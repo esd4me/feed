@@ -15,6 +15,9 @@ html = requests.get(url, headers=headers).text
 soup = BeautifulSoup(html, "lxml")
 
 messages = soup.find_all("div", class_="tgme_widget_message_wrap")
+#debug
+print(len(messages))
+print(html[:1000])
 
 posts_html = []
 
