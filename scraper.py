@@ -57,7 +57,7 @@ for msg in messages[-20:][::-1]:
     formatted = iran_time.strftime("%Y-%m-%d %H:%M:%S")
     
     post_html = f"""
-##  Updated at: {formatted}
+######🔵  Updated at: {formatted}
 
 {image_html}
 
