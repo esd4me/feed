@@ -25,6 +25,9 @@ jobs:
     - name: Install dependencies
       run: pip install -r requirements.txt
 
+    - name: Show HTML
+      run: python -c "import requests; print(requests.get('https://t.me/s/VahidOnline').text[:2000])"
+
     - name: Run scraper
       run: python scraper.py
 
