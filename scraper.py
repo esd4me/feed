@@ -21,7 +21,7 @@ messages = soup.find_all("div", class_="tgme_widget_message_wrap")
 
 posts_html = []
 
-for msg in messages[-10:][::-1]:
+for msg in messages[-20:][::-1]:
 
     # TEXT
     text_div = msg.find("div", class_="tgme_widget_message_text")
@@ -49,10 +49,10 @@ for msg in messages[-10:][::-1]:
 
     post_link = ""
     if link_tag:
-        post_link = "https://t.me" + link_tag["href"]
+        post_link = link_tag["href"]
 
     post_html = f"""
-## Telegram Post
+## ESD Post
 
 {image_html}
 
