@@ -16,12 +16,12 @@ soup = BeautifulSoup(html, "lxml")
 
 messages = soup.find_all("div", class_="tgme_widget_message_wrap")
 #debug
-print(len(messages))
-print(html[:1000])
+#print(len(messages))
+#print(html[:1000])
 
 posts_html = []
 
-for msg in messages[-5:][::-1]:
+for msg in messages[-10:][::-1]:
 
     # TEXT
     text_div = msg.find("div", class_="tgme_widget_message_text")
