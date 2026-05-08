@@ -67,6 +67,7 @@ for msg in messages[-10:][::-1]:
     posts_html.append(post_html)
 
 posts_content = "\n".join(posts_html)
+print("POSTS CONTENT LENGTH:", len(posts_content))
 
 # UPDATE README
 with open("README.md", "r", encoding="utf-8") as f:
