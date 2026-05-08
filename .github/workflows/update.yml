@@ -1,5 +1,8 @@
 name: Update Telegram Feed
 
+permissions:
+  contents: write
+  
 on:
   schedule:
     - cron: '*/1 * * * *'
