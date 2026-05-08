@@ -67,21 +67,41 @@ for msg in messages[-10:][::-1]:
     posts_html.append(post_html)
 
 posts_content = "\n".join(posts_html)
+
+#debug
 print("POSTS CONTENT LENGTH:", len(posts_content))
 
 # UPDATE README
+start = "<!-- POSTS_START -->"
+end = "<!-- POSTS_END -->"
+
 with open("README.md", "r", encoding="utf-8") as f:
-    readme = f.read()
+    content = f.read()
 
-pattern = r"<!-- POSTS_START -->(.*?)<!-- POSTS_END -->"
+# Case 1: markers exist → replace normally
+if start in content and end in content:
+    before = content.split(start)[0]
+    after = content.split(end)[1]
 
-replacement = f"""<!-- POSTS_START -->
+    new_content = (
+        before
+        + start + "\n"
+        + posts_content + "\n"
+        + end
+        + after
+    )
+
+# Case 2: markers missing → auto-create section
+else:
+    new_content = content.strip() + f"""
+
+{start}
 {posts_content}
-<!-- POSTS_END -->"""
+{end}
+"""
 
-updated = re.sub(pattern, replacement, readme, flags=re.S)
-
+# Write back
 with open("README.md", "w", encoding="utf-8") as f:
-    f.write(updated)
+    f.write(new_content)
 
-print("README updated.")
+print("README updated (auto-safe mode).")
