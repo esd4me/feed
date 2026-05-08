@@ -30,21 +30,22 @@ jobs:
 
    # - name: Show HTML
      # run: python -c "import requests; print(requests.get('https://t.me/s/VahidOnline').text[:2000])"
-
-    - name: Run scraper
-      run: python scraper.py
-
+      
     - name: Commit and push
       run: |
         git config user.name github-actions
         git config user.email github-actions@github.com
-    
-        # Ensure we are synced FIRST
-        git pull --rebase origin main
-    
-        # Now add changes
+      
+        # 1. Always sync FIRST
+        git fetch origin main
+        git reset --hard origin/main
+      
+        # 2. Run script AFTER clean state
+        python scraper.py
+      
+        # 3. Commit changes
         git add README.md
-    
         git commit -m "update" || echo "no changes"
-    
+      
+        # 4. Push safely
         git push
