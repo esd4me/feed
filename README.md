@@ -3,7 +3,144 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-08 17:49:22
+###### 🔵 Updated at: 2026-05-08 19:25:32
+
+<img src="https://cdn4.telesco.pe/file/sDQrn4obJ6mL7y9xqDx6Q8OpBOJ8KvssWfSwcdIIjEzViCCwuKn0le-D9Fq0dAvczg36rMVZkCPphCE-IdlEpGUWqG6Lws3DQHtxOTEEoJtn0piFtaiat1y3taM6pa_9Fzt906a-eY45W7Ylr-wQ4tsP0WCQnhmMSHgWa4AURcU10sIKoNs9luQ4R_k0BuofWaV9ZZXbL2RBXzcqzElzJjvrOtSKQC7JTvuAalqUq8WeZl0oMJnN7dbrKqKSQAG84R11V7AFRl1JLnWa6Rjk_HM7ibqnTdCFTJ7nmIlynHiE1VLyFr5OGZ-YP2NpuGnFIpI6zYX8rbwXwI23bzKgNQ.jpg" width="400"><br>
+
+روح‌الله مومن‌نسب، دبیر ستاد امر به معروف تهران نوشت نمی‌شود نیروهای مسلح، مرزهای ما و تنگه هرمز را به روی دشمنان ببندند اما دولت فضای مجازی را در اختیار آنان قرار دهد.
+او افزود که «فضای مجازی به هیچ وجه نباید به حالت قبل برگردد؛ همان‌طور که امام شهید ما به حالت قبل برنمی‌گردد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75335)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-08 19:25:32
+
+<img src="https://cdn1.telesco.pe/file/HHXUmE9v8SALYoqDAiQbiVeq6gyrfx7ZefelorrdHqbs4RFYizxC_DOrugeXM3vqdvVOeFuvDWel9dOgFCmHtlLweBZbaCLllUaXYwXGEXRRt0DylaPFdYdjkljh23Um-mAvQWxJEu-tCzZfaQ1LNcc2S_C1oVmbqR4Xu4YMdgSogumhJtUTHRW3w5P2mixnVs4BXv0_ZnXuYS7S7_P3gCRbu4NMDUeAiG43uqU372Y8dVn8XW6eDT6X9Kno-C_OrbKoSKu6SkWQs3XuqubtNrC_J68kpfpomhpjrsodG_pXt8rDnRL9ns2jyCPIhDucEprl5M9kJkwQ2fcY8F8cYQ.jpg" width="400"><br>
+
+دونالد ترامپ در حساب تروث سوشال خود با انتشار تصویری شبیه‌سازی‌شده از انهدام یک پهپاد ایرانی توسط سلاح لیزری نیروی دریایی آمریکا، سرنگونی پهپادهای جمهوری اسلامی را به «پروانه‌ای که به سمت قبرش سقوط می‌کند»، تشبیه کرد.
+او در واکنش به درگیری‌های شبانه ناوشکن‌ها در تنگه هرمز، این تبادل آتش را تنها یک «سیلی از روی محبت» (Love tap) خواند و تاکید کرد که آتش‌بس شکننده منطقه همچنان برقرار است.
+سلاحی که ترامپ به آن اشاره می‌کند،سامانه لیزری ضد پهپاد «لوکاست» (LOCUST) است که پیش‌تر اعلام شد بر روی ناو هواپیمابر «یواس‌اس جورج اچ.دبلیو. بوش» نصب و آزمایش شده است.
+به گزارش وب‌سایت «وار زون»، این نخستین بار است که یک سلاح انرژی هدایت‌شده روی یک ناو هواپیمابر کلاس نیمیتز نصب می‌شود.
+مقامات عالی‌رتبه نیروی دریایی اعلام کرده‌اند که هدف نهایی آن‌ها، تبدیل این سلاح‌های پیشرفته به گزینه اصلی مقابله با تهدیدات نزدیک در آب‌های بین‌المللی است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75334)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-08 19:25:32
+
+<img src="https://cdn1.telesco.pe/file/rTL5vtmNFckrsET1iz-T_zR3Ig-mBOgbRZhrgf5f50_NQ9cpxZ8WRQRzSk1PMm1AUZCScyt2a4_xa_fqy_S1EZ1mudGMi-Sjh5VQbCrw4sPh93wGe5U9Di5jQZcDy8cD0Qr053vHrNlJOKMv7a04_RQy8cE4UvoKQXLyjv30g106WNimaI_cOm52yrxBfY5aPW_9db6_JJmv95e_ORvHP9kDudp599R5VeTnCpebcOiC8H3QzlgwsXkoQgv_9xExteEd1wunOtKaRQ0k_iWfRSa3gN71A4V1ZuN-mbM0Soi74LAEh4EmmXrix3FWmQWnTwvWTaha88vASRoUq0nagg.jpg" width="400"><br>
+
+فرماندار میناب: حمله آمریکا به یک لنج باری یک کشته و چهار مفقود بر جا گذاشته است
+فرماندار میناب می‌گوید که در حملات دیشب آمریکا یک لنج باری هدف قرار گرفته است که منجر به کشته شدن یک ملوان و مفقود شدن چهار نفر دیگر شده است. [گویا قبلا گفته بودند پنج مفقود داشته بعدا جسد یکیشون پیدا شد]
+به گفته محمد رادمهر، ۱۰ ملوان دیگر این لنج هم مجروح و به بیمارستان منتقل شدند.
+به گفته آقای رادمهر این حمله در نزدیکی آب‌های شهرستان میناب رخ داده است.
+عملیات جستجو برای یافتن سایر مفقود‌شدگان ادامه دارد.
+دیشب نیروهای ایرانی و آمریکایی در آب‌های جنوبی ایران تبادل آتش کردند، هرچند دونالد ترامپ می‌گوید که آتش‌بس همچنان برقرار است.
+آمریکا می‌گوید که نیروهایش «بی‌مقدمه» هدف حمله موشک‌ها، پهپادها و قایق‌های تندرو ایران قرار گرفتند و ایران می‌گوید که حملاتش تلافی‌جویانه و در پاسخ به حمله آمریکا به یک نفتکش ایرانی و یک کشتی دیگر در منطقه تنگه هرمز بوده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75333)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-08 19:25:32
+
+<img src="https://cdn1.telesco.pe/file/edWSrqk2qorKrLrk0vbGraBPSew1PoHgtfISr9fkRV6OtzQ6YehdcsquYfvePXESeMa1iGRlpgtCgA2em4SXD-JccKyFWBEF21wzIMLCwRV6DB--TMVTPiXss0JGl5lmip2_UW0MBByno3ZxF0eoG1FgELMFFnVsqD1IXG3VUlJ5xFTylvm-w2nlZt7BAC33sixOMpAoVowfXcTAPKF2dLHiCD1uJK4eJ9MZSmNDxl2xC0BDDTiV_RTWyiWRklk94OJc1ZC5phOCiFzq-U6PFh31jyK3FTscYMmcx9IxLTTsXBpK_tnVRWKtlfyQSA3VM-f2UMiR8jOimHUq_7QRJg.jpg" width="400"><br>
+
+مارکو روبیو، وزیر امور خارجه آمریکا، گفت اقدام نظامی آمریکا علیه ایران در بامداد جمعه «جدا و متمایز» از عملیات «خشم حماسی» بوده و ایالات متحده همچنان به‌صورت «دفاعی» واکنش نشان خواهد داد.
+روبیو روز جمعه در شهر رم، پایتخت ایتالیا، در جمع خبرنگاران اعلام کرد «خشم حماسی» که او اوایل این هفته گفته بود به پایان رسیده است، «یک عملیات تهاجمی بود که برای نابودی سکوهای پرتاب موشک، نیروی دریایی و نیروی هوایی آن‌ها طراحی شده بود.»
+او افزود آنچه ساعاتی پیش رخ داد «ناوشکن‌های آمریکایی بودند که در آب‌های بین‌المللی در حال حرکت بودند و از سوی ایرانی‌ها به آن‌ها شلیک شد، و آمریکا برای حفاظت از خود به‌صورت دفاعی پاسخ داد.»
+دیپلمات ارشد آمریکا گفت: «فقط کشورهای احمق وقتی به آن‌ها شلیک می‌شود، پاسخ نمی‌دهند. و ما کشور احمقی نیستیم.»
+وقتی از روبیو پرسیده شد که آیا آمریکا خطوط قرمزی را به ایران منتقل کرده است یا نه، پاسخ داد: «خط قرمز روشن است: اگر آمریکایی‌ها را تهدید کنند، نابود خواهند شد.»
+وزیر خارجه آمریکا همچنین خبر داد که واشینگتن انتظار دارد روز جمعه پاسخ ایران به پیشنهاد واشینگتن برای پایان دادن به جنگ را دریافت کند.
+روبیو در این زمینه توضیح داد: «خواهیم دید که این پاسخ شامل چه چیزهایی است. امید ما این است که چیزی باشد که بتواند ما را وارد یک روند جدی مذاکره کند.»
+او همچنین تلاش‌های ایران برای کنترل تنگه هرمز را محکوم کرد و گفت: «ایران اکنون ادعا می‌کند که مالک این آبراه بین‌المللی است و حق کنترل آن را دارد... این اقدامی غیرقابل قبول است که آن‌ها تلاش دارند آن را عادی جلوه دهند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75328)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-08 19:25:32
+
+<img src="https://cdn4.telesco.pe/file/tblz1NWsMaCTybKmNZlakitMP2yv1XVOQzsI_CNW_ZOAiU8QIB6hd17bVlkL7BsgiPNTvGcq4pt7MOIcQJuEGhoyky5BC4ipSMMfCNJoGG2vP9JZ8xtSfoLlldXNodGi6RniQARqSKYOL5MikU1y6a54WPKLlZ19ulZtmxe3ih95AUZkYElzN6qh0IXG2XQ2xT93BLZpvXwuSz46I2E94R7tP3OW0PXrTHgQt-SSEaHYgoA5DSckf3Auys7JRRERpxMDVAlUcOG-hRxCHB4G3sSVS_1uXm4sVJAppjHK42ztIjqAo340-BS7LhJw9llkCpet7iYJbnc4wEVgNqOJrA.jpg" width="400"><br>
+
+وزیر خارجه جمهوری اسلامی، آمریکا را متهم کرد که با «ماجراجویی نظامی بی‌خردانه» دیپلماسی «قربانی» می‌کند.
+عباس عراقچی در پستی در شبکه اجتماعی ایکس نوشت: «هر زمان که یک راه‌ حل دیپلماتیک روی میز قرار می گیرد، ایالات متحده به‌ یک ماجراجویی نظامی بی‌خردانه رو می‌آورد.»
+آقای عراقچی در ادامه می‌نویسد که دلیل این اقدام چه «صرفاً یک تاکتیک کور برای اعمال فشار» باشد و چه «فریبکاری یک خرابکار» که می‌خواهد «رئیس‌جمهور آمریکا را به باتلاقی تازه بکشاند» و یا هر دلیل دیگری «نتیجه همیشه یکی است: ایرانیان هرگز در برابر فشار سر خم نمی‌کنند، ولی این دیپلماسی است که همواره قربانی می‌شود.»
+او همچنین ارزیابی سازمان اطلاعات مرکزی آمریکا از ذخایر موشکی ایران را اشتباه توصیف کرد و نوشت: «ذخایر موشکی و ظرفیت پرتابگرهای ما نسبت به ۹ اسفند در سطح ۷۵ درصد نیست؛ رقم صحیح ۱۲۰ درصد است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75327)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-08 19:25:32
+
+<img src="https://cdn4.telesco.pe/file/QZQ0uAJixvVrW3U2KVaJjcPal_uUhLtR78LMOZ2psD9JtyuTQuMyp1c1GI1yUCrq8jbWu38qK7oceKXVDZGIbizwy4euOaEY3ZRI441k4ocBKFNNPIWpeowqypbY2dgdd1BrIvic6rsPhhSO3iWmqFZGJHp_jaoKS0uEjzCO0i3NwwK0YrB4uwEXRjvnyh1cBNcHR5sguCEI-WU20CCr7NYACbTRZ58uZ2igdp8a4qjyMFvdTZv-SEjALvGcK1jqO6fANXpWoGDlQBdF5B-pejGInHRy4FBvud7Fu2fWGxb8inAUkblzkyZf930-8tyJBbQLgYOz0CGJiOPLZx6YJw.jpg" width="400"><br>
+
+سنتکام، فرماندهی مرکزی ایالات متحده، اعلام کرد از زمان آغاز محاصره دریایی تا روز جمعه، ۱۸ اردیبهشت مانع از ورود یا خروج بیش از ۷۰ نفتکش از بنادر ایران شده است.
+سنتکام در پیام تازه‌اش در شبکه اجتماعی ایکس نوشته که این کشتی‌های تجاری ظرفیت حمل بیش از ۱۶۶ میلیون بشکه نفت ایران به ارزش تخمینی بیش از ۱۳ میلیارد دلار را دارند.
+این موضوع ساعاتی پس از آن اعلام شد که ارتش آمریکا گفت نیروهایش در نخستین ساعات بامداد جمعه حملات «تحریک‌نشدهٔ» ایران علیه ناوشکن‌های آمریکایی در تنگه هرمز را رهگیری کرده و در پاسخ، «تأسیسات نظامی ایران» را هدف قرار دادند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75326)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-08 19:25:32
+
+<img src="https://cdn4.telesco.pe/file/vWD0JpWoxi_4hQAaw0mZz5Khh3vJUwIGyDW8SmEcKokh8Gg84kD4h5MPJII7w_CpE9dFnMM7gvP5mFPpCS7kAUU5pKDDJwHpWVFmw_Uur7sqIEg0NUEQDCFECJBVOeq8LarjELTIt7WyycAfAbIzyXRDgVGvW9Vfcipibbi-VvflZPeMmUkwh_O8pfN2qirv9k2qJ5kSFP67cNeJ_luWPs9TtKwJZF21coLx9PLSbHPVgi4oH1XlmA60al4DFqBOKcD60rvYjczmoxsVz6UYzaVNsAHETzVno2rFtZUr4YYFjzxe3tHWlrPbZ82Fl3hDBMdO0BYpzVMVR06J38DZDg.jpg" width="400"><br>
+
+امروز هفتادمین روز قطع اینترنت در ایران است و به‌گزارش نت‌بلاکس این اختلال صبح جمعه ۱۸ اردیبهشت از یک هزار ۶۵۶ ساعت فراتر رفت.
+این در حالی است که مقامات و افراد نزدیک به حکومت یا کسانی که حکومت خود با واگذاری «سیم‌کارت سفید» انتخاب می‌کند، هم‌چنان به اینترنت دسترسی دارند.
+علاوه بر آن، اخیراً برخی اپارتورهای نیز اینترنت موسوم به طبقاتی را باقیمت‌های گزاف در اختیار برخی مشاغل و طبقات قرار داده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75325)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-08 19:25:32
 
 <img src="https://cdn4.telesco.pe/file/F6BmpAFnXKuFqkgt_HtgMls_d0KKbg75TLd_-FU-tHb8QmtDE06UJ9EkvlXXY23eH7bJ6qYSydFjxvqtGBF0dezn33GrmcbwHqhO62z8xYT5UxwizFBx6GHEgSg2ANTHuwtM8QFsddCvZBpvJbRdnS65M8QAtJgxsgoEsDVPUftoWcOLAOKuOUfddF0s2CtHfAxqAPPCct6QmJNGNEydIJ4FsgQzvq0MjDJAwjYosGxc4fPsftlz-gVhUkOlMWDUU3p2bhiFknlYMSuk9hvtum820LP8z1u9CVcdRzXuRcLAX02KYz6s-9odqGuP3xcYj5Vy4ASctpYmk4euekx_SQ.jpg" width="400"><br>
 
@@ -21,7 +158,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-08 17:49:22
+###### 🔵 Updated at: 2026-05-08 19:25:32
 
 <img src="https://cdn1.telesco.pe/file/Fxde1f8qwDXs374EYgiOD0ECJ3E9wFHKtjHInYNt3mzTgdrePc1K3fsHD_xpX_7VIjgV7XOAFXdm_XimYaKx3c-TFffNmLNFdNCX6Lx2gbHVlKkwyFjC9hA6tzwVJv37FM36NVUxV5muFtxKRvhgGIf6pk0PaQPnnyG7d8IJMLuF_NKmLSMRILMwrPUcLliGY5HQt09U2rp7DgkEZX8rfp2uRRkev-E-kzxrMQ6Iv6sAFo7w8j-CEp4UeAzlFN39KcRE4-46LqWDmpGeEIBlTbx4OfEiM0BMZgrfnygBRwQj7ljp_eMe7OJIeT7iAzTMlKOEosKClzZ-7A0n0cUkvw.jpg" width="400"><br>
 
@@ -37,7 +174,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-08 17:49:22
+###### 🔵 Updated at: 2026-05-08 19:25:32
 
 <img src="https://cdn1.telesco.pe/file/KJG6LuPxBkmhp6HONZDU3c9U4PbnXvSXuqzomjQKZhc9jt2Wjg4b4WLLRlJsSxxutb7hLNROlnHP6tJwcdqXaHvRmgrgO-LdSkU8GL-OhPdBGr0GHmtmL4aC8_sDQusuDRWhKvj7gx4RDw7YT--KpwbKOAQpMRWggbmMzGRJeqqXlTIO9gFckFmUvdJir3i7LLs9o3OhN15GNVGf8iUPWqGPRzBUtmIJk1ELLhX-ckTYOcMMDqwhezU8lL8aXf3VA6gAdcnKhPJG-Z5PmVSJq8QfaMsBD0Gc5xv-QlkMRAGqmCO3SH12kxZj_CDqFuuiq93q9TVeAj4rmu610yL_3A.jpg" width="400"><br>
 
@@ -67,249 +204,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75315)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-<img src="https://cdn1.telesco.pe/file/fQ9NMJ-XyRdYvStiC-bgiPZ35eptGYntaOfwTE15MBNgDvD7-T1JA-kM5HiEbU3qwZjMSGLE-kqjJVhB_l45NjSasZ5etCnaPNyaX8ewV7CUvCj3C_YsNO4xnoHX3phiVFKC8HGxsXkNnpOMoETds88_zXoNRIq9X2nGJbigHGRxIbAyZ6a1h6pnNUzeVwUdRLQya9ADozM3_kzyL9tEXYZLe8UeNK1EBeFR_KyOpztUNwaBiuSMFtUM50aDYG2FLiHZG2EXNaFdK_5BO9a3AUMqZkfg2mFcUVGSa42JaUd_KLK7oCiaVSYq96BNhi_z63mItGQ5iRxWqc8j9oQF1w.jpg" width="400"><br>
-
-ترامپ: ایران را دیوانگان هدایت می‌کنند
-پست ترامپ، ترجمه ماشین:
-سه ناوشکن درجه‌یک آمریکایی به‌تازگی، با موفقیت کامل و در حالی که زیر آتش بودند، از تنگه هرمز خارج شدند. هیچ آسیبی به این سه ناوشکن وارد نشد، اما به مهاجمان ایرانی آسیب سنگینی وارد شد. آن‌ها به‌طور کامل نابود شدند، همراه با شمار زیادی قایق کوچک که اکنون برای جایگزینی نیروی دریایی کاملاً از سر بریده‌شده‌شان استفاده می‌شوند. این قایق‌ها به‌سرعت و با کارایی کامل به قعر دریا رفتند.
-به‌سوی ناوشکن‌های ما موشک شلیک شد و به‌راحتی سرنگون شدند. پهپادها نیز آمدند و در هوا سوزانده شدند. آن‌ها به‌شکلی بسیار زیبا به سوی اقیانوس سقوط کردند؛ درست مانند پروانه‌ای که به سوی گور خود فرو می‌افتد!
-یک کشور عادی اجازه می‌داد این ناوشکن‌ها عبور کنند، اما ایران یک کشور عادی نیست. آن‌ها را دیوانگانی هدایت می‌کنند و اگر فرصت استفاده از سلاح هسته‌ای را داشتند، بی‌تردید این کار را می‌کردند — اما هرگز چنین فرصتی نخواهند داشت و همان‌طور که امروز دوباره آن‌ها را از پا درآوردیم، اگر توافق خود را سریع امضا نکنند، در آینده بسیار سخت‌تر و بسیار خشن‌تر آن‌ها را از پا درخواهیم آورد!
-سه ناوشکن ما، همراه با خدمه فوق‌العاده‌شان، اکنون دوباره به محاصره دریایی ما خواهند پیوست؛ محاصره‌ای که واقعاً یک «دیوار فولادین» است.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75314)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-<img src="https://cdn1.telesco.pe/file/k0hGntvJXnQHexS4zZcmQHywt-QZvY2K-uOnzVLm89QDvV3VZ4alOF-EXhVRzZK431ueyH6HK4NLn-0gmjhYTNKQd6Qqlj5OwDWJVj3-C0Z9eU1DNnOEztrSzZ_D_rePWDqiSxUNndvVSvzyt9OMDwqTKJXN7lKMIu_UHwxoV0aawc8j6opdH5ZSMW8l72kJEetP5R4PwTLm1LaCSMzuJ-F0Q2XKoqILNgzif6TwHyx2oMfs1hmQCm4YDsUP1h4uA0nkQ4vosnrOUZXtE6qPJmWldVKfBP2BPKuWUcVbC3lbZ2gp3G8Z4IfA08OB_MoVE7jNL6-Hau-65KCJnozqug.jpg" width="400"><br>
-
-♦️
-دونالد ترامپ، رئیس‌جمهوری آمریکا در پی حمله‌ها به بنادر جنوبی ایران و شنیده شدن صدای انفجار در غرب تهران به ای‌بی‌سی گفت که ارتش آمریکا در اقدامی دفاعی به رژیم ایران یک «نوازش دوستانه» داده است و آتش‌بس همچنان در حال اجراست. او گفت حمله‌های متقابل به ایران فقط یک نوازش دوستانه بوده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75313)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-<img src="https://cdn4.telesco.pe/file/ltYj0k3xuhno8aDmmkCf5n8js032HrPBUdGFj6sqLQD32Hlhu3D91-dz5tNiphXhJg1Gw-VNyz7iVRhJqmCxMcft0_LUjgydS_vLf-zrAUnXpirMyjZ1q84biXm-Wy3jeUB3B08ti1_dqYOHuPIgLvOjj_sGU6nbDawBDl25K1kJU75U8kQ6QWNnWjEoxQ33_ypmzZE5Q6YSOtQlOU_84UgZiokmL_84XmWu3Z7WX3-0JGxCHgPB_sSrPEqv6m9RA1O3eeKZRk7H6bdeuUdj910FpwqIjhrQAql7dxhbo8vjrlrsqBbc0kqJa6k2I7BOML32QekDYJ-MOYc19xRccw.jpg" width="400"><br>
-
-♦️
-جنیفر گریفین، خبرنگار فاکس‌نیوز، در شبکه اجتماعی اکس به نقل از یک مقام ارشد ایالات متحده از حملات نظامی این کشور به بندر قشم و بندرعباس خبر داد. این مقام آمریکایی تاکید کرد که این اقدام به معنای شروع دوباره جنگ یا پایان آتش‌بس نیست. این حملات دو روز پس از شلیک موشک‌های بالستیک ایران به بندر فجیره امارات صورت می‌گیرد. گزارش‌ها همچنین از حمله به ایستگاه بازرسی دریایی بندر کرگان در میناب حکایت دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75312)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-<img src="https://cdn4.telesco.pe/file/JyQgRQnJd3jYAe9Swb2275zQxFiNddpMgt3Db95NVJ36ddcQElyoCtr4yhbZjqOYRL037GHMjqY7T7l4AHXQil2V8uAPJP0JdUhdabKc35RY_ClzuSBey2EpjSSFra5dXyIsu4AeNVonuQa1YCsAQEIdQvBG8XY0fAkH1r7taBHK207-wAWFb2Ny2CnBiSCk44pXYQTBNox6nOH-WTXL4j6WaXOH2jiZYxyIqlM3xkY-a1QS-1oZLDrxtIwxqNKgMZ011brq953KO1xGepanNBOD3m-eiPX7sakThexHWnSghZDEHproPmOfwGiOSBc-q7c6WIANhBk_bhpTfNnnwA.jpg" width="400"><br>
-
-ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهای آمریکایی ۱۷ اردیبهشت همزمان با عبور ناوشکن‌های مجهز به موشک هدایت‌شونده آمریکا از تنگه هرمز به سوی دریای عمان، حملات موشکی، پهپادی و قایق‌های کوچک جمهوری اسلامی را رهگیری و به منابع این حمله‌ها در ایران حمله کردند.
-طبق اعلام سنتکام، نیروهای جمهوری اسلامی در حالی این حمله‌ها را با چندین موشک، پهپاد و قایق‌های کوچک انجام دادند که ناوهای یواس‌اس تراکستون، یواس‌اس رافائل پرالتا و یواس‌اس میسون از این گذرگاه بین‌المللی دریایی عبور می‌کردند و هیچ‌یک از تجهیزات یا دارایی‌های آمریکا هدف قرار نگرفت.
-سنتکام گفت نیروهای آمریکا ضمن دفع این تهدیدها، تاسیسات نظامی ایران را که مسئول حمله به نیروهای آمریکایی بودند، از جمله محل‌های پرتاب موشک و پهپاد، مراکز فرماندهی و کنترل و گره‌های اطلاعاتی، نظارتی و شناسایی، هدف قرار دادند.
-سنتکام تاکید کرد که به دنبال تشدید تنش نیست، اما همچنان در موقعیت مناسب قرار دارد و آماده حفاظت از نیروهای آمریکایی است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75311)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-
-
-قرارگاه خاتم النبیاء که مدیریت جنگ در ایران را بر عهده دارد، ساعتی بعد از گزارش‌ها از حملات و رد و بدل شدن آتش در حوالی تنگه هرمز، با انتشار بیانیه‌ای این حملات را «نقض اتش‌بس» و در پی «همکاری چند کشور منطقه با آمریکا» ارزیابی کرده و گفته است: «ارتش متجاوز، تروریست و راهزن آمریکا با نقض آتش‌بس یک کشتی نفتکش ایرانی و در حال حرکت از آبهای ساحلی ایران در منطقه جاسک به سمت تنگه هرمز و همچنین یک کشتی دیگر در حال ورود به تنگه هرمز را روبروی بندر فجیره امارات مورد هدف قرار دادند و همزمان مناطق غیرنظامی را با همکاری برخی از کشورهای منطقه در سواحل بندر خمیر، سیریک و جزیره قشم مورد تعرض هوایی خود قرار دادند.»
-این قرارگاه در ادامه مدعی شده که نیروهای نظامی ایران به این حملات واکنش نشان داده‌اند: «نیروهای مسلح جمهوری اسلامی ایران نیز بلافاصله و در اقدامی متقابل شناورهای نظامی آمریکا در شرق تنگه هرمز و جنوب بندر چابهار را مورد هجوم قرار داده و خسارات قابل توجهی به‌ آنها وارد نمودند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75310)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-<img src="https://cdn4.telesco.pe/file/u2Sumf_5K6y3ROMw_f_GstWNAr8HVzPvBUZvU6C1stIJm1WjFjZq66aV84PIkgjdFR89lH4CdrmeilmGjZSU743mlrvubdHBfeOLu00xC4cs2ltpJs_KeSqDBqbgaBK1LHSCmV0PYEmBzBY07uPAXxJR5uDLN4PtZZ7dwoIR2J_iMG1n7giMfT8Y2_0F4ogxzHxPUux2w8lEL__rTMyDhdjzniIjRSU-q9Nz_hTUf4Zix4Cy8EIAaT7Ht6feeDuAxUsEghInPCjGAcq9l6iUvHiPCdEvUPVDWMQGI2PKZbjbJAhbSVVAs2b8GMPXF6hKnyn03IHOSQ3nhYj5hdKA3g.jpg" width="400"><br>
-
-گویا پیام دریافتی پست قبل درست بود:
-خبرگزاری مهر بامداد جمعه ۱۸ اردیبهشت‌ماه به نقل از محمد رادمهر، معاون استاندار و فرماندار ویژه میناب، گزارش داد یک پایگاه دریابانی در این شهرستان هدف حمله قرار گرفته است.
-به گفته رادمهر، این حمله ساعت ۰۰:۱۰ توسط اسرائیل و آمریکا انجام شده است.
-همزمان فاکس‌نیوز گزارش داد آمریکا حملاتی را به جزیره قشم و بندرعباس در جنوب ایران انجام داده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75309)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-
-
-هرمزگان
-پیام‌های دریافتی:
-وحید بندر صدای انفجار اومد الان
-الان ساعت دوازده شب صدای دو انفجار دیگه در بندرعباس شنیده شد
-همین الان بندرعباس صدای انفجار اومد
-سلام بندرعباس ۰۰:۰۰ یک صدا اومد
-۰۰:۰۲ بامداد جمعه ۱۸ اردیبهشت صدای تک انفجار این دفعه از فاصله بسیار دورتر ظاهرا از مناطقی در نزدیکی جزیره لارک یا هرمز بود.
-خودم همچنان در همین محدوده نزدیک اسکله بهمن، محله دوحه و چابهار هستم
-👈
-پاسگاه بندرکرگان در میناب استان هرمزگان مورد اصابت موشک آمریکایی قرار گرفت.
-پاسگاه دریایی است. می‌گفتند پهپاد از همین نقطه بلند شده.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75308)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-
-
-ویدیو و پیام‌های دریافتی:
-وحید جان سلام ۲۳:۵۳ غرب تهران فعالیت پدافند
-غرب تهران نمی‌فهمم صدای پدافنده یا انفجار ۱۱:۵۳
-سلام غرب تهران چنتا صدای انفجار و پدافند ۲۳:۵۲
-صدا ها مرتب و پشت سر هم نیست
-وحید من غرب تهرانم، ازادی. ساعت ۱۱:۵۳ صدای انفجار دور میاد
-چندتا پشت هم
-ساعت ۲۳:۵۰ امشب ۱۷ اردیبهشت صدای انفجار یا پدافند محدوده غرب تهران.
-۱۱:۵۳ تهران شهرک اکباتان ۴ افنجار دور شنیده شد
-مطمعنم صدا پدافند نبود انفجار دور بود
-۱۱:۵۴ صدای پدافند به صدای انفجار ها اضافه شد شهرک اکباتان
-ساعت 23:53، ممتد صدهای پدافند و مشابه انفجار باغ فیض غرب تهران
-صدای چندین انفجار الان سمت شهران ۲۳:۵۴
-سلام ساعت ۲۳:۵۲ دقیقه صدای چندین وحشتناک انفجار  سمت غرب تهران شهران
-پدافند غرب تهران داره میزنه
-از غرب، جنت اباد نمی دونم پدافندها فعال شده یا داره می زنه
-غرب تهران بلوار فردوس ساعت ۱۱:۵۴
-صداهای متعدد میاد
-شبیه پدافند
-صدای انفجار و پدافند
-جنت آباد ساعت 1154 شب
-امشب
-سلام وحید همین الان دوتا صدای انفجار اومد سمت بلوار  فردوس غرب صدای پندافند هم میاد به شدت
-چند تا صدای انفجار و پدافند میاد سمت غرب
-منطقه ۵ ساعت ۱۱:۵۲ دقیقه
-بلوار فردوس شرق، غرب تهران از ساعت ۲۳:۵۰ دقیقه صداهای ممتد شبیه فعالیت پدافند میاد، و یا حتی شلیک یه چیزی فراتر از پدافند
-سلام محدوده چیتگر فعالیت شدید پدافند ساعت ۲۳:۵۴
-وحید ۱۱:۴۵ شب، جنت‌اباد مرکزی تهران، یه عالمه صدا که فک میکنم پدافند بودن
-وحید جان همین الان غرب تهران (سمت میدون آزادی) صدای پدافند شدید میاد
-سمت شهرک نفت هم همینطور...
-صدای پدافند از دور در مرکز تهران ساعت ۲۳:۵۵ شنیده میشه
-صدای ضد هوایی بوضوح در جنت‌آباد شنیده میشه
-سلام وحید همین الان کلی صدای پدافند تو تهرانسر اومد ساعت ۲۳:۵۰
-وحید سلام شهرک غرب ۲۳ و ۵۳ پدافند فعال شد.
-سلام وحید جان ۲۳:۵۵ منطقه ۱۰ صدای بم عجیبی اومد چند بار پشت سر هم. شک دارم چی بود.
-وحید جان ساعت ۱۱:۵۴ جنت آباد مرکزی بنظر صدای پدافند میاد چندتا پشت سر هم
-سلام وحید جان ما تهران، جنت آبادیم، پدافند فعال شده، انفجار نیست
-۱۱:۵۷ دو مرتبه صدای انفجار و پدافند شدید غرب تهران شهرک اکباتان
-ساعت ۱۱:۵۷ باز صدای پدافند شدید و صدای انفجار. جنگ اینجوری صدای پدافند نبود.
-غرب تهران، ساعت 23:57 تشخیص نمی‌دم صدای انفجاره یا پدافند، اما صدا مهیبه
-وحید جان ساعت ۱۱:۵۷ جنت آباد مرکزی بنظر صدای پدافند میاد چندتا پشت سر هم
-صدای ممتد پدافند غرب تهران ۲۳:۵۷ همچنان ادامه داره
-۲۳:۵۷ سمت مرزداران غرب تهران صدای پیدافند میاد همینجوری
-ساعت ۱۱:۵۷ باز صدای پدافند شدید و صدای انفجار.
-غرب تهران، ساعت 23:57 تشخیص نمی‌دم صدای انفجاره یا پدافند، اما صدا مهیبه
-11:57 صدای انفجار میاد بعید میدونم پدافند باشه جنت آباد مرکزی
-صداها وحشتناکه ۱۱:۵۷غرب تهران جنت اباد مثل زمان جنگ
-الان صدای خیلی شدید تر میاد ۲۳:۵۷
-جردن ۲۳:۵۵ صدای پدافند میاد
-سلام وحید همین الان دوتا صدای انفجار اومد سمت بلوار  فردوس غرب صدای پندافند هم میاد به شدت
-ساعت ۱۱:۵۷ بازم صدای انفجار و پدافند، انفجار هم هست  ولی انفجارهای بزرگی نیستن
-باز هم به صدا انفجار میاد، به نظر پدافند باشه
-ساعت ۲۳:۵۸، شهران
-ساعت ۱۱:۵۷، همچنان جنت‌اباد مرکزی تهران، همچنان صدای پشت سر هم به احتمال زیاد پدافند
-سلام ۸ انفجار مجدد ساعت ۲۳:۵۷ غرب تهران شهران
-غرب تهران سیمون بولیوار دوباره صدای احتمالا پدافند ۲۳:۵۷
-سلام وحید جان ۱۱:۵۶ صدای پدافند شدید محدوده دریاچه و میدان المپیک میاد
-همین لحظه ۱۱:۵۸ همچنان ضد هوایی شدید
-سلام سمت شهرآرا صدای پدافند میاد پشت هم
-ما مرزداران هستیم
-از دوردست خیلی صدای انفجار میاد
-ساعت ۲۳:۵۶
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75307)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-
-
-صداوسیما به نقل از یک مقام آگاه نظامی گزارش داد «به دنبال تعرض ارتش آمریکا به یک نفت‌کش ایرانی، یگان‌های متعرض دشمن در محدوده تنگه هرمز زیر آتش موشکی جمهوری اسلامی قرار گرفتند که پس از تحمل خسارت مجبور به فرار شدند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75306)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-08 17:49:22
-
-<img src="https://cdn4.telesco.pe/file/M9emShKNZJJKFdOOD-xgSLCk1nCB3LFNDFT2r3YU7w7eQU-_NUZ8JtZ_-sVtCs0cQjrswxrRkhfT9MJyWWFCbyupYUSjnwZfjqp7UaIRCXPkXSbnVKqiHdIc-iu7uuJvMAzpm37L7D5ouz5QlGtkhjTrK47XxGAczSjxE5iNEqqSypNs7c0tZ7I_er20a3qVswCHBQFB5NR_YLqhx7hA9MAv-EzLQQprXOcks0BlneBjA5-J8FZU5qf-q5-1WRp8i-mU1xYN3K7Ay4QfUzr9TneAOS-wNPugOhpQKobpmWqbq4y2WUZexWnKNP9m_KM6t4jm-GIDoQNw6G3QnSL6Rg.jpg" width="400"><br>
-
-خبرگزاری فارس، وابسته به سپاه پاسداران، در خبری اختصاصی اعلام کرد که صداهای انفجار که پنجشنبه‌شب، ۱۷ اردیبهشت در حوالی بندرعباس شنیده شد، مربوط به «تبادل آتش» میان نیروهای مسلح جمهوری اسلامی و ایالات متحده بوده است.
-به گفته فارس، در جریان این تبادل آتش، بخش‌هایی از اسکله بهمن در جزیره قشم هدف قرار گرفته است.
-@
-VahidOOnLine
-آپدیت: منابع غیررسمی حکومتی و سپاهی میگن امارات اسکله بهمن رو هدف گرفته.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75305)
 
 ---
 
