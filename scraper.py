@@ -1,5 +1,7 @@
 import requests
 from bs4 import BeautifulSoup
+from datetime import datetime
+from zoneinfo import ZoneInfo
 import re
 
 CHANNEL = "VahidOnline"
@@ -51,8 +53,11 @@ for msg in messages[-20:][::-1]:
     if link_tag:
         post_link = link_tag["href"]
 
+    iran_time = datetime.now(ZoneInfo("Asia/Tehran"))
+    formatted = iran_time.strftime("%Y-%m-%d %H:%M:%S")
+    
     post_html = f"""
-## ESD Post
+##  Updated at: {formatted}
 
 {image_html}
 
