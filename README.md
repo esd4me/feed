@@ -3,7 +3,128 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-09 17:35:16
+###### 🔵 Updated at: 2026-05-09 18:38:42
+
+<img src="https://cdn1.telesco.pe/file/miDpllLYTDqcLCJfuO4idxxiKwZv6AZBJ1SsZXXwiGQazvJyJ3tevF_GBjHEsg_x-DBUfADY1mCg_JQpbj0C5RYTFo3hZDeUeKzvImPrwxh3uu4InmtqiVjuM2wenL31ftqOsYnsOJOndsB6dE92e0uXaQCvGcAjJw63XpbzIhMXmnhpbZq2W4LucYQ8rea8rZ-b9y_KNen0vIuoTqWFXEqRIS3qko-RuBYjoZrsqsLICaFgrBssTMHsQs8rhUqwY58zm_AHhs3r-VAuL9o1JgH2qHBnv-sRyqIN5AWRtJNN3ncyZqTWxI2pnHR9d1d36pWCD5LCH81xmvmvbxIBDg.jpg" width="400"><br>
+
+وزارت کشور بحرین روز شنبه ۱۹ اردیبهشت اعلام کرد که ۴۱ نفر را که به گفته این وزارتخانه با سپاه پاسداران ایران مرتبط بوده‌اند، دستگیر کرده است.
+خبرگزاری دولتی بحرین به نقل از این وزارتخانه گزارش داد که مقامات امنیتی گروهی مرتبط با سپاه پاسداران ایران را شناسایی کرده است و افزود که تحقیقات برای شناسایی و برخورد با هر فردی که در این تشکیلات فعالیت داشته ادامه دارد.
+@
+VahidHeadline
+ابراهیم عزیزی، رئیس کمیسیون امنیت ملی مجلس شورای اسلامی، روز شنبه ۱۹ اردیبهشت، با انتشار پیامی در شبکه اجتماعی ایکس کشورهای منطقه از جمله بحرین را تهدید کرد که در صورت همراهی با قطعنامه پیشنهادی آمریکا در شورای امنیت سازمان ملل، با «پیامدهای جدی» مواجه خواهد شد.
+عزیزی بحرین را «کشور ذره‌بینی» خواند و نوشت: «به دولت‌هایی همچون کشور ذره‌بینی بحرین که در حال همراهی با قطعنامه آمریکایی هستند، درباره پیامدهای جدی این اقدام هشدار می‌دهیم. درهای تنگه هرمز را برای همیشه به روی خود نبندید!»
+قطعنامه مذکور که با حمایت آمریکا و کشورهای حوزه خلیج فارس به شورای امنیت سازمان ملل ارائه شده، از ایران می‌خواهد که ضمن توقف حملات علیه شناورهایی که قصد عبور از تنگه هرمز را دارند، محل دقیق مین‌های کارگذاری شده را اعلام کند و از دریافت هرگونه عوارض عبور از شناورهای عبوری خودداری کند.
+@
+VahidOOnLine
+وزارت خارجه عربستان سعودی در بیانیه‌ای حمایت کامل ریاض را از اقداماتی اعلام کرد که پادشاهی بحرین برای مقابله با آنچه «اقدام‌های صادرشده از سوی ایران» خوانده، اتخاذ کرده است.
+در این بیانیه آمده است این اقدام‌ها به گفته مقام‌های سعودی، امنیت ملی بحرین را تحت تاثیر قرار می‌دهد و با هدف بی‌ثبات کردن امنیت و ثبات این کشور انجام می‌شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75354)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 18:38:42
+
+<img src="https://cdn4.telesco.pe/file/vD_LXMZZ6KjmMSlQ01akVqVz3M0-J01E3ddCwruEY0TrIH3R5cP3SzfGxIjZMMKxFS6PI8GzxiDbJUh16MWKSTGlXZEI1w6peS4u6XnE_eZbdPLWJcGEq_l1K52I4PUBt-8MVmUoZaHD86DrQPbcnMyKZ_ILtblzLJ_1m4pCQsHp-Xm2LkFjOVd_NXqDHbpI9-bUeOsq5yUtjMIy45d7gQ22BuFXRJbCB5rtyEgLmvYekX8UBdxdNa7hO3E-IX_rvEVyrNQmrTO-UqLtpcix0iz5sa0CpEUw0KXPwodhiUCZnuH-nYQFZa_n2sb1oGJdRdsnr2mgIANcpgAejTYugQ.jpg" width="400"><br>
+
+همزمان با شرایط پرتنش منطقه، رویداد «در امارات بسازید» در ابوظبی برگزار شد و شرکت‌های تجاری نزدیک به ۴۶ میلیارد دلار در امارات سرمایه‌گذاری کردند.
+بر اساس اعلام اوپک، این رقم بیش از مجموع درآمد نفتی جمهوری اسلامی، ۴۵.۳ میلیارد دلار، در سال ۲۰۲۵ میلادی است.
+النهار گزارش کرد این سرمایه‌گذاری شامل صنایع دفاعی و تکنولوژیک، دارویی، شیمیایی و انرژی است. این رویداد چهارروزه حتی در شرایط جنگی تعطیل نشد و توانست جایگاه امارات را به عنوان یک قطب صنعتی در منطقه تقویت کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75353)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 18:38:42
+
+<img src="https://cdn1.telesco.pe/file/sSx5B8zzxqE35hROSDVMLtBQk-cGXrk_VxoaP_9yuiXebQ1-DImE1gV1q6eERX7EWjapl0X3ifBOVvTScnI16IGzmL7zdGoZt6P752C-2FZzGK0aYdmuzu2uZ6nys_vZQwKLEJoWuZSwR3lmKyD-LIKKSFsBIWcsecR3JAmzGUF8GlB5U5PGYC-TvK9BO7951sjYFUsRUERm0cQ5JnJNIxnqUryFX_Jw9yruQKKaTE0bHCUnrN-e4LQEcuiDkNH83xLedg5x5anZb8mcGdoL_YJTkgcxszReSEb4etv6aWUkAFAxoEjs_68LUVdKdWlc-p0zG26M2WLXSvt6AYsd7A.jpg" width="400"><br>
+
+در آغاز یازدهمین هفته از قطعی سراسری اینترنت بین‌المللی در ایران، یک مقام دولتی هشدار داد که این اقدام حکومت در درازمدت خود به «تهدید امنیتی» برای جمهوری اسلامی بدل خواهد شد.
+احسان چیت‌ساز، معاون وزیر ارتباطات در دولت مسعود پزشکیان، گفت: «قطع اینترنت فقط در بازه‌های زمانی کوتاه می‌تواند کمک کند و در بلندمدت تهدید امنیتی است.»
+قطعی اینترنت در ایران روز شنبه، ۱۹ اردیبهشت، یازدهمین هفته خود را آغاز کرد، در حالی که مردم عادی در کشور تنها با صرف هزینه‌های گزاف می‌توانند به اینترنت بین‌المللی دسترسی داشته باشند و مقام‌های حکومتی و عده‌ای از حامیان جمهوری اسلامی با مانعی در دسترسی مواجه نیستند.
+@
+VahidHeadline
+معاون وزیر ارتباطات ایران خسارت‌های ناشی از قطع اینترنت برای اقتصاد دیجیتال ایران، در پلتفرم‌های بزرگ را ۵۵ هزار میلیارد تومان اعلام کرد.
+او گفته است: «مجموع عدم‌النفع (کاهش درآمد) این حوزه نزدیک به ۱۶/۳۲ هزار میلیارد تومان برآورد می‌شود.»
+معاون وزیر ارتباطات ایران همچنین گفته است قطعی اینترنت در حوزه مخابرات و ارتباطات حدود ۶/۴ هزار میلیارد تومان کاهش درآمد مستقیم کسب‌وکارها را در بر داشته است.
+آقای چیت‌ساز گفته است: «قطع اینترنت برای کسب‌وکار اقتصاد دیجیتال ممکن است برای چند ساعت قابل تحمل باشد، اما قطع گسترده و سراسری آن عملا یک شوک اقتصادی ایجاد می‌کند.»
+یازده هفته از قطع سراسری اینترنت در ایران می‌گذرد.
+افشین کلاهی، ازاعضای اتاق بازرگانی ایران، پیش از این گفته بود که خسارت مستقیم قطع اینترنت در ایران ۳۰ تا ۴۰ میلیون دلار در روز است و خسارت مستقیم و غیرمستقیم این محدودیت تا۸۰ میلیون دلار در روز می‌رسد.
+@
+VahidHeadline
+خبرگزاری دولتی ایرنا در گزارشی میدانی از تهران، عملاً تأیید کرده است که قطع اینترنت بخشی از فروشگاه‌های مجازی را از فضای آنلاین بیرون رانده و به خیابان و پیاده‌رو کشانده است.
+ایرنا نوشته پررنگ شدن دستفروشی فقط محدود به نقاط مرکزی تهران نیست و از بازار امامزاده حسن در جنوب غرب تهران تا شهرک اندیشه شهریار نیز دیده می‌شود.
+به گزارش این خبرگزاری، مدارای شهرداری و «دستور آگاهانه» برای برخورد نکردن با دستفروشان، این روند را آشکارتر کرده و بخش‌هایی از شهر را به ویترین بساط‌گرانی تبدیل کرده است که به‌اجبار از اینستاگرام به خیابان کوچ کرده‌اند.
+ایرنا نوشته فروشندگانی که تا چند ماه پیش با صفحه اینستاگرامی، پرداخت آنلاین و ارسال سفارش فعالیت می‌کردند، حالا در نبود اینترنت آزاد و پایدار، ناچار شده‌اند در خیابان بساط کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75348)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 18:38:42
+
+<img src="https://cdn1.telesco.pe/file/KkE8GkBHivNvgOXsrlLuhoO4cdZyz74TguyFDbZixMReZvHyoypE0fiZfwAq-hbUdBCGXsthggVJ68qBn4WHO9zuwOpJ1WNSv2bW83O3eMTyL91dW_aJYxFPyMo0SYgdLpqlqUJlAUzVx7kwwsCXHRizDf3KRhpZNvQMZZEnII6D4NmTypzy9UwLwtXBEMXWTVmVqyaT58SHvVrt2bY2_SbesQLiU9l1l6lKCW0As9oLQoHS1d41S-sWzob_G7atxwyNJtB_eZJoDxliZnu4rVSYDUBFeK86oydN9oGL-GhM_IAiYY3cl0dkdPWE6NuIO8mZDYeGfEkxr5_SxkBWJQ.jpg" width="400"><br>
+
+تازه‌ترین داده‌های مرکز آمار ایران نشان می‌دهد قیمت برخی کالاهای اساسی خوراکی در فروردین ۱۴۰۵ نسبت به مدت مشابه سال قبل جهش کم‌سابقه‌ای داشته است.
+بنابر این گزارش، روغن جامد با تورم نقطه‌ای ۳۷۵ درصدی، بیشترین افزایش قیمت را در میان اقلام خوراکی ثبت کرده و قیمت آن از حدود ۸۱ هزار تومان در فروردین ۱۴۰۴ به بیش از ۳۸۵ هزار تومان رسیده است. روغن مایع نیز با افزایش ۳۰۸ درصدی، از حدود ۷۴ هزار تومان به بیش از ۳۰۰ هزار تومان رسیده است.
+برنج خارجی درجه یک با رشد ۲۰۹ درصدی، مرغ ماشینی با ۱۹۱ درصد، سس مایونز با ۱۹۰ درصد و تخم‌مرغ با ۱۷۰ درصد افزایش قیمت، از دیگر اقلام پرتورم بوده‌اند.
+این جهش قیمت‌ها در حالی رخ داده که فعالان کارگری سبد معیشت خانوار کارگری را بیش از ۷۱ میلیون تومان برآورد کرده‌اند، اما حداقل مزد پایه ماهانه کارگران در سال ۱۴۰۵ حدود ۱۶ میلیون و ۶۰۰ هزار تومان است؛ شکافی که نشان می‌دهد حتی درآمد رسمی کارگران فاصله‌ای چندبرابری با هزینه حداقلی زندگی دارد.
+@
+VahidHeadline
+خبرآنلاین در گزارشی نوشته اثر افزایش ۶۰ درصدی حداقل مزد سال ۱۴۰۵ تنها در ۴۵ روز از بین رفته و قدرت خرید کارگران دوباره به سطح پیش از افزایش مزد بازگشته است.
+بر اساس این گزارش، حداقل مزد پایه ماهانه امسال ۱۶ میلیون و ۶۲۵ هزار تومان تعیین شد؛ رقمی که در روز تصویب، با دلار ۱۴۳ هزار و ۷۰۰ تومانی حدود ۱۱۶ دلار ارزش داشت. اما با رسیدن دلار به حدود ۱۹۰ هزار تومان در نیمه اردیبهشت، ارزش دلاری مزد به حدود ۸۷.۵ دلار سقوط کرده است.
+خبرآنلاین نوشته قدرت خرید مزد بر اساس طلا هم افت کرده؛ حداقل حقوق که در اسفند معادل حدود یک گرم طلای ۱۸ عیار بود، حالا به ۰.۸۱ گرم رسیده است.
+این یعنی افزایش اسمی دستمزد، زیر فشار سقوط ریال، تورم و سیاست‌های اقتصادی جمهوری اسلامی عملاً خنثی شده و کارگران دوباره با شکافی عمیق میان درآمد و هزینه زندگی روبه‌رو شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75346)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 18:38:42
+
+<img src="https://cdn4.telesco.pe/file/AZS31yh6JvTe-n9mkazLWmi2t7w5LZkt6BFYWXqHHqesGaMljx5AsK9y0GRNmOURzDXCDGXaJGmuRvAH5H0aHD61YlCRgSikImBs4228XqNqTIy58Pha0vWrVcC4bbHjE73OJ_c7ETa3Mjo9wrnJqzQaN-WFHQa1U3JvLxjXTsLZoTI6pnaRaunAM7sWB4R-lG6AhHbLKyQlrgx2rfVMcqB2ehRw0uKazdGfHecG7d177KZULZG_9xlCHMzmNYma6Rx5MAKWtTsDSVw5HrE4TexJZ65BPG3wWHJwcRhiRvwMGGenAEfD58DKsXEUfoU0_x8vhLLBZ58tQipqTS9oFg.jpg" width="400"><br>
+
+روز جمعه،‌ ۱۸ اردیبهشت، یک خبرنگار در کاخ سفید از دونالد ترامپ درباره نتیجه تحقیقات دولت آمریکا درباره حمله به مدرسه میناب پرسید.
+او در پاسخ گفت که این مسئله هم‌چنان در حال بررسی است و نتیجه تحقیقات «به محض آماده شدن» در اختیار خبرنگاران و رسانه‌ها قرار خواهد گرفت.
+در جریان حمله به مدرسه‌ای دخترانه و پسرانه در شهر میناب در جنوب کشور که در روز آغازین جنگ مشترک آمریکا و اسرائیل با ایران رخ داد دست‌کم ۱۲۰ دانش‌آموز و ۲۶ معلم کشته شدند.
+چند روز پس از حمله، تحقیقات رسانه‌ها نشان داد که این مدرسه که در نزدیکی یک پایگاه دریایی سپاه قرار داشت با موشک‌های آمریکایی هدف قرار گرفته است.
+از آن زمان تاکنون هفته‌هاست که پنتاگون اعلام کرده است در حال تحقیق درباره چگونگی رخ دادن این حمله است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75345)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 18:38:42
 
 <img src="https://cdn4.telesco.pe/file/IZ77twVrL6vK1LkuzJ_HQ4kXsI1J43-o6XftEJnr45XHSKizDl0y024VLhJSnhL069QDKTfSHBB6qU4P0ILvmepdYTuqcfkLpO9XFBwahfZOQ47zKC3n7rM4ZGYgvCQTgAf1NntHb-og61dMR3FM7WIa4joelgsr8_Px0CjJZ4CoUYT9oA4fZFy1srlE7ls_og2XburmsXIJhfKxtkmYhtuVbxuVJ9qXcDemoM-lDitJVkPgSnkIm1ImO4-wr6ZqMh2h8O0SVys3QU6totLp-xpuVC2Q_Iht4isP4wSz-YK6qbRpamw8Eg75ScvzTyorDnf4XGxiLzQ5NVU8Liw_TA.jpg" width="400"><br>
 
@@ -20,7 +141,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 17:35:16
+###### 🔵 Updated at: 2026-05-09 18:38:42
 
 <img src="https://cdn1.telesco.pe/file/qFBznJi03r7vccbkt85eSmEBajPWfNl9bPDZGmTu8WI39OkJW-NqYZM8vGr-BJTttbUUYRdgXgwFIZBj0xZSGOCf5Kd9UhvcYlIJ5uko30SHSa1Z2v6IUG7SEECCW0FfhOz48-qI40N7Dm9umG9SoBNlACuHw2dJJmGcOigkvYT45Fnqaee_rG13-6s-tOdzRfDG_hjTqxqhuURUzjc9bAs6Fux8CFowZ9k-PNQbT9aWxpfdA-SVfNrLQjzk7qgmuHVBhy4BJTBhTdjfgUl_aG01S-aOuiVvgO3V6Is7qnyInqPLYWa9i8W4aGdsiVnOFbH0vljRPbSQPlaIRQKRjQ.jpg" width="400"><br>
 
@@ -43,7 +164,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 17:35:16
+###### 🔵 Updated at: 2026-05-09 18:38:42
 
 <img src="https://cdn4.telesco.pe/file/SSWek-caOt8jw-CWhhMUWr28AFmrVvYzv3SA1RaFeplrnofA9UCo-xQU8_j_QbgDe6rgfqmkaX_3TjFyNW-f3lQF9S9PiYApeHgLq92oztg5KoTJb6MEKhc1CtEU2-JgoaORZoCzpbHdybAW6hntKyXYlNjtEdPNGCp7aVdR9C7x3x8QdCYMf8Eauw9-XsnadH9u9j3ALfPTiVtFzHz9t4vG51uO0eBgkltY65kK65NFCfv5YrzwH2_P_FNvOYbBSS7VJyT9U2wNoF0VogRXSVCPtwCroeV6EZ9lJkTHvMmpehlRL4EDQR_R2_UuM-Ow8ZBgnTy8vNzHVpzG3R_TIQ.jpg" width="400"><br>
 
@@ -60,7 +181,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 17:35:16
+###### 🔵 Updated at: 2026-05-09 18:38:42
 
 
 
@@ -80,7 +201,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 17:35:16
+###### 🔵 Updated at: 2026-05-09 18:38:42
 
 <img src="https://cdn4.telesco.pe/file/tUNB-lCz6Qc4XHZpyodX6jgRChnoabk0R2bOX2zA51RbpX3vsl2xXkwKiV7OgpLZwf-KvuUu7wAeBg7KBC4Qt2CX28ValVEJLZFBwvLXdT4ni3kauGKxwnLRppffMEov0FAjpLD0K6tQgRyLAfso8IRx4lwZZQVcL4i7jYayJDPHURXp08Fc3kLTC1NUlx0IKaACZNAWsgEqYbOS2JNRmfqaYZAJflwA1PsJn7dRUDP_kMovp-BZhsuc2AiLlFHj50h9Ylb72JW4SEpR01cjWBs3_EWRzD3I9AxwCilojI8-GaUkj6fq9-YhHgG91pIF5MYtdmhxSdSM3LCY49fygg.jpg" width="400"><br>
 
@@ -97,7 +218,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 17:35:16
+###### 🔵 Updated at: 2026-05-09 18:38:42
 
 <img src="https://cdn4.telesco.pe/file/iUltVPgIhYSWG5SjGLzGxRGVnWHDrCcYB6aUoAlwTsFN5V3B9CRZshch_iBBdRHGO-h9fY0xv1CGcqU2bUMl7jv6RqgcXrSnXyIkq4FB_6CIh84yNA0aFQ-GAL1W4ZoEXgxz6FmFe81HQspzN34zQCuP9iNknMghRkRBeWsdzWCkrr-hSI5QJHCZR16f6mvlgRwbdmmQO9zl2wsqmzKt9zYN4lIc4puNGG0AcCmJXm6n3Z_NBdGZe6wX7ob-OQz61Q4bGBQbVc04SgnmN8QFVp7JX52yidPZnwKWKdbDtd0sZGMxwpRGWkg8uhc6mGcb-o7ODBDritf834BfcmtcBA.jpg" width="400"><br>
 
@@ -113,7 +234,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 17:35:16
+###### 🔵 Updated at: 2026-05-09 18:38:42
 
 <img src="https://cdn1.telesco.pe/file/jrGfdzkihKyDgGyJtoSuvPMkJD4hiwxFPmqBeh-FwvoXDDz7Esm3htTMT_i4ZTWxZAiCvrCT8CdXuoyzC3ePLCoMsCYfVOXqS9PyelqOraLfcNK17iKnb1LkyFKhw7yFqi-LuKcXUfqT8XAtOLJaqD1685zDsmF-BlVogxxstYc12zC4KQv-xEuHX1pITKhm63g-K_pmG9eNkJmQ9tbuEson_tG8QSOd0rgfMcCmYLMdbJJbZNzgqlc2b_Xt1m61aDfmzLOPNBOOXR1klEZT6HAOZi8A5gsxR9kPe-nebtxKvpTh6FLb-sUqo-jQP8IQclLgynJ_Dp2pljKmwv1NpA.jpg" width="400"><br>
 
@@ -130,161 +251,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75336)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 17:35:16
-
-<img src="https://cdn4.telesco.pe/file/sDQrn4obJ6mL7y9xqDx6Q8OpBOJ8KvssWfSwcdIIjEzViCCwuKn0le-D9Fq0dAvczg36rMVZkCPphCE-IdlEpGUWqG6Lws3DQHtxOTEEoJtn0piFtaiat1y3taM6pa_9Fzt906a-eY45W7Ylr-wQ4tsP0WCQnhmMSHgWa4AURcU10sIKoNs9luQ4R_k0BuofWaV9ZZXbL2RBXzcqzElzJjvrOtSKQC7JTvuAalqUq8WeZl0oMJnN7dbrKqKSQAG84R11V7AFRl1JLnWa6Rjk_HM7ibqnTdCFTJ7nmIlynHiE1VLyFr5OGZ-YP2NpuGnFIpI6zYX8rbwXwI23bzKgNQ.jpg" width="400"><br>
-
-روح‌الله مومن‌نسب، دبیر ستاد امر به معروف تهران نوشت نمی‌شود نیروهای مسلح، مرزهای ما و تنگه هرمز را به روی دشمنان ببندند اما دولت فضای مجازی را در اختیار آنان قرار دهد.
-او افزود که «فضای مجازی به هیچ وجه نباید به حالت قبل برگردد؛ همان‌طور که امام شهید ما به حالت قبل برنمی‌گردد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75335)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 17:35:16
-
-<img src="https://cdn1.telesco.pe/file/HHXUmE9v8SALYoqDAiQbiVeq6gyrfx7ZefelorrdHqbs4RFYizxC_DOrugeXM3vqdvVOeFuvDWel9dOgFCmHtlLweBZbaCLllUaXYwXGEXRRt0DylaPFdYdjkljh23Um-mAvQWxJEu-tCzZfaQ1LNcc2S_C1oVmbqR4Xu4YMdgSogumhJtUTHRW3w5P2mixnVs4BXv0_ZnXuYS7S7_P3gCRbu4NMDUeAiG43uqU372Y8dVn8XW6eDT6X9Kno-C_OrbKoSKu6SkWQs3XuqubtNrC_J68kpfpomhpjrsodG_pXt8rDnRL9ns2jyCPIhDucEprl5M9kJkwQ2fcY8F8cYQ.jpg" width="400"><br>
-
-دونالد ترامپ در حساب تروث سوشال خود با انتشار تصویری شبیه‌سازی‌شده از انهدام یک پهپاد ایرانی توسط سلاح لیزری نیروی دریایی آمریکا، سرنگونی پهپادهای جمهوری اسلامی را به «پروانه‌ای که به سمت قبرش سقوط می‌کند»، تشبیه کرد.
-او در واکنش به درگیری‌های شبانه ناوشکن‌ها در تنگه هرمز، این تبادل آتش را تنها یک «سیلی از روی محبت» (Love tap) خواند و تاکید کرد که آتش‌بس شکننده منطقه همچنان برقرار است.
-سلاحی که ترامپ به آن اشاره می‌کند،سامانه لیزری ضد پهپاد «لوکاست» (LOCUST) است که پیش‌تر اعلام شد بر روی ناو هواپیمابر «یواس‌اس جورج اچ.دبلیو. بوش» نصب و آزمایش شده است.
-به گزارش وب‌سایت «وار زون»، این نخستین بار است که یک سلاح انرژی هدایت‌شده روی یک ناو هواپیمابر کلاس نیمیتز نصب می‌شود.
-مقامات عالی‌رتبه نیروی دریایی اعلام کرده‌اند که هدف نهایی آن‌ها، تبدیل این سلاح‌های پیشرفته به گزینه اصلی مقابله با تهدیدات نزدیک در آب‌های بین‌المللی است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75334)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 17:35:16
-
-<img src="https://cdn1.telesco.pe/file/rTL5vtmNFckrsET1iz-T_zR3Ig-mBOgbRZhrgf5f50_NQ9cpxZ8WRQRzSk1PMm1AUZCScyt2a4_xa_fqy_S1EZ1mudGMi-Sjh5VQbCrw4sPh93wGe5U9Di5jQZcDy8cD0Qr053vHrNlJOKMv7a04_RQy8cE4UvoKQXLyjv30g106WNimaI_cOm52yrxBfY5aPW_9db6_JJmv95e_ORvHP9kDudp599R5VeTnCpebcOiC8H3QzlgwsXkoQgv_9xExteEd1wunOtKaRQ0k_iWfRSa3gN71A4V1ZuN-mbM0Soi74LAEh4EmmXrix3FWmQWnTwvWTaha88vASRoUq0nagg.jpg" width="400"><br>
-
-فرماندار میناب: حمله آمریکا به یک لنج باری یک کشته و چهار مفقود بر جا گذاشته است
-فرماندار میناب می‌گوید که در حملات دیشب آمریکا یک لنج باری هدف قرار گرفته است که منجر به کشته شدن یک ملوان و مفقود شدن چهار نفر دیگر شده است. [گویا قبلا گفته بودند پنج مفقود داشته بعدا جسد یکیشون پیدا شد]
-به گفته محمد رادمهر، ۱۰ ملوان دیگر این لنج هم مجروح و به بیمارستان منتقل شدند.
-به گفته آقای رادمهر این حمله در نزدیکی آب‌های شهرستان میناب رخ داده است.
-عملیات جستجو برای یافتن سایر مفقود‌شدگان ادامه دارد.
-دیشب نیروهای ایرانی و آمریکایی در آب‌های جنوبی ایران تبادل آتش کردند، هرچند دونالد ترامپ می‌گوید که آتش‌بس همچنان برقرار است.
-آمریکا می‌گوید که نیروهایش «بی‌مقدمه» هدف حمله موشک‌ها، پهپادها و قایق‌های تندرو ایران قرار گرفتند و ایران می‌گوید که حملاتش تلافی‌جویانه و در پاسخ به حمله آمریکا به یک نفتکش ایرانی و یک کشتی دیگر در منطقه تنگه هرمز بوده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75333)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 17:35:16
-
-<img src="https://cdn1.telesco.pe/file/edWSrqk2qorKrLrk0vbGraBPSew1PoHgtfISr9fkRV6OtzQ6YehdcsquYfvePXESeMa1iGRlpgtCgA2em4SXD-JccKyFWBEF21wzIMLCwRV6DB--TMVTPiXss0JGl5lmip2_UW0MBByno3ZxF0eoG1FgELMFFnVsqD1IXG3VUlJ5xFTylvm-w2nlZt7BAC33sixOMpAoVowfXcTAPKF2dLHiCD1uJK4eJ9MZSmNDxl2xC0BDDTiV_RTWyiWRklk94OJc1ZC5phOCiFzq-U6PFh31jyK3FTscYMmcx9IxLTTsXBpK_tnVRWKtlfyQSA3VM-f2UMiR8jOimHUq_7QRJg.jpg" width="400"><br>
-
-مارکو روبیو، وزیر امور خارجه آمریکا، گفت اقدام نظامی آمریکا علیه ایران در بامداد جمعه «جدا و متمایز» از عملیات «خشم حماسی» بوده و ایالات متحده همچنان به‌صورت «دفاعی» واکنش نشان خواهد داد.
-روبیو روز جمعه در شهر رم، پایتخت ایتالیا، در جمع خبرنگاران اعلام کرد «خشم حماسی» که او اوایل این هفته گفته بود به پایان رسیده است، «یک عملیات تهاجمی بود که برای نابودی سکوهای پرتاب موشک، نیروی دریایی و نیروی هوایی آن‌ها طراحی شده بود.»
-او افزود آنچه ساعاتی پیش رخ داد «ناوشکن‌های آمریکایی بودند که در آب‌های بین‌المللی در حال حرکت بودند و از سوی ایرانی‌ها به آن‌ها شلیک شد، و آمریکا برای حفاظت از خود به‌صورت دفاعی پاسخ داد.»
-دیپلمات ارشد آمریکا گفت: «فقط کشورهای احمق وقتی به آن‌ها شلیک می‌شود، پاسخ نمی‌دهند. و ما کشور احمقی نیستیم.»
-وقتی از روبیو پرسیده شد که آیا آمریکا خطوط قرمزی را به ایران منتقل کرده است یا نه، پاسخ داد: «خط قرمز روشن است: اگر آمریکایی‌ها را تهدید کنند، نابود خواهند شد.»
-وزیر خارجه آمریکا همچنین خبر داد که واشینگتن انتظار دارد روز جمعه پاسخ ایران به پیشنهاد واشینگتن برای پایان دادن به جنگ را دریافت کند.
-روبیو در این زمینه توضیح داد: «خواهیم دید که این پاسخ شامل چه چیزهایی است. امید ما این است که چیزی باشد که بتواند ما را وارد یک روند جدی مذاکره کند.»
-او همچنین تلاش‌های ایران برای کنترل تنگه هرمز را محکوم کرد و گفت: «ایران اکنون ادعا می‌کند که مالک این آبراه بین‌المللی است و حق کنترل آن را دارد... این اقدامی غیرقابل قبول است که آن‌ها تلاش دارند آن را عادی جلوه دهند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75328)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 17:35:16
-
-<img src="https://cdn4.telesco.pe/file/tblz1NWsMaCTybKmNZlakitMP2yv1XVOQzsI_CNW_ZOAiU8QIB6hd17bVlkL7BsgiPNTvGcq4pt7MOIcQJuEGhoyky5BC4ipSMMfCNJoGG2vP9JZ8xtSfoLlldXNodGi6RniQARqSKYOL5MikU1y6a54WPKLlZ19ulZtmxe3ih95AUZkYElzN6qh0IXG2XQ2xT93BLZpvXwuSz46I2E94R7tP3OW0PXrTHgQt-SSEaHYgoA5DSckf3Auys7JRRERpxMDVAlUcOG-hRxCHB4G3sSVS_1uXm4sVJAppjHK42ztIjqAo340-BS7LhJw9llkCpet7iYJbnc4wEVgNqOJrA.jpg" width="400"><br>
-
-وزیر خارجه جمهوری اسلامی، آمریکا را متهم کرد که با «ماجراجویی نظامی بی‌خردانه» دیپلماسی «قربانی» می‌کند.
-عباس عراقچی در پستی در شبکه اجتماعی ایکس نوشت: «هر زمان که یک راه‌ حل دیپلماتیک روی میز قرار می گیرد، ایالات متحده به‌ یک ماجراجویی نظامی بی‌خردانه رو می‌آورد.»
-آقای عراقچی در ادامه می‌نویسد که دلیل این اقدام چه «صرفاً یک تاکتیک کور برای اعمال فشار» باشد و چه «فریبکاری یک خرابکار» که می‌خواهد «رئیس‌جمهور آمریکا را به باتلاقی تازه بکشاند» و یا هر دلیل دیگری «نتیجه همیشه یکی است: ایرانیان هرگز در برابر فشار سر خم نمی‌کنند، ولی این دیپلماسی است که همواره قربانی می‌شود.»
-او همچنین ارزیابی سازمان اطلاعات مرکزی آمریکا از ذخایر موشکی ایران را اشتباه توصیف کرد و نوشت: «ذخایر موشکی و ظرفیت پرتابگرهای ما نسبت به ۹ اسفند در سطح ۷۵ درصد نیست؛ رقم صحیح ۱۲۰ درصد است.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75327)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 17:35:16
-
-<img src="https://cdn4.telesco.pe/file/QZQ0uAJixvVrW3U2KVaJjcPal_uUhLtR78LMOZ2psD9JtyuTQuMyp1c1GI1yUCrq8jbWu38qK7oceKXVDZGIbizwy4euOaEY3ZRI441k4ocBKFNNPIWpeowqypbY2dgdd1BrIvic6rsPhhSO3iWmqFZGJHp_jaoKS0uEjzCO0i3NwwK0YrB4uwEXRjvnyh1cBNcHR5sguCEI-WU20CCr7NYACbTRZ58uZ2igdp8a4qjyMFvdTZv-SEjALvGcK1jqO6fANXpWoGDlQBdF5B-pejGInHRy4FBvud7Fu2fWGxb8inAUkblzkyZf930-8tyJBbQLgYOz0CGJiOPLZx6YJw.jpg" width="400"><br>
-
-سنتکام، فرماندهی مرکزی ایالات متحده، اعلام کرد از زمان آغاز محاصره دریایی تا روز جمعه، ۱۸ اردیبهشت مانع از ورود یا خروج بیش از ۷۰ نفتکش از بنادر ایران شده است.
-سنتکام در پیام تازه‌اش در شبکه اجتماعی ایکس نوشته که این کشتی‌های تجاری ظرفیت حمل بیش از ۱۶۶ میلیون بشکه نفت ایران به ارزش تخمینی بیش از ۱۳ میلیارد دلار را دارند.
-این موضوع ساعاتی پس از آن اعلام شد که ارتش آمریکا گفت نیروهایش در نخستین ساعات بامداد جمعه حملات «تحریک‌نشدهٔ» ایران علیه ناوشکن‌های آمریکایی در تنگه هرمز را رهگیری کرده و در پاسخ، «تأسیسات نظامی ایران» را هدف قرار دادند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75326)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 17:35:16
-
-<img src="https://cdn4.telesco.pe/file/vWD0JpWoxi_4hQAaw0mZz5Khh3vJUwIGyDW8SmEcKokh8Gg84kD4h5MPJII7w_CpE9dFnMM7gvP5mFPpCS7kAUU5pKDDJwHpWVFmw_Uur7sqIEg0NUEQDCFECJBVOeq8LarjELTIt7WyycAfAbIzyXRDgVGvW9Vfcipibbi-VvflZPeMmUkwh_O8pfN2qirv9k2qJ5kSFP67cNeJ_luWPs9TtKwJZF21coLx9PLSbHPVgi4oH1XlmA60al4DFqBOKcD60rvYjczmoxsVz6UYzaVNsAHETzVno2rFtZUr4YYFjzxe3tHWlrPbZ82Fl3hDBMdO0BYpzVMVR06J38DZDg.jpg" width="400"><br>
-
-امروز هفتادمین روز قطع اینترنت در ایران است و به‌گزارش نت‌بلاکس این اختلال صبح جمعه ۱۸ اردیبهشت از یک هزار ۶۵۶ ساعت فراتر رفت.
-این در حالی است که مقامات و افراد نزدیک به حکومت یا کسانی که حکومت خود با واگذاری «سیم‌کارت سفید» انتخاب می‌کند، هم‌چنان به اینترنت دسترسی دارند.
-علاوه بر آن، اخیراً برخی اپارتورهای نیز اینترنت موسوم به طبقاتی را باقیمت‌های گزاف در اختیار برخی مشاغل و طبقات قرار داده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75325)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 17:35:16
-
-<img src="https://cdn4.telesco.pe/file/udAlzjplR7g7G7iZFSlS93VwEZ81Ce7t0xzwdogWz3XydWW1H_4Cx2V-7sjjV4Q2rR1P5Ub08WLTSvwkRS4_5kvO6JhDDifBp54GdoBG9O_vFez-tarieu13WrqTJUpMReLWcNrpTByrujNLpGfYFPwVLsKjwGDtjc8_GdvIZi-nGJYsVOFWe7UqQC0R2OpoqNklDN1dFE1vw3FDk0ByLkbyTlAVr5n5NGe4S6MHlO9ngFropHYBndPbJcWtxmd5ugj2zAaJr5Nk9k00elIqIP1dImS_AgGtwgf1GY3w4bdqbFMfTbtwcXeWHarGEHMbP4wMmdUB3w8ftBRAmKp3lw.jpg" width="400"><br>
-
-اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز جمعه ۱۸ اردیبهشت و پس از حملات متقابل در خلیج فارس، تنگه هرمز و انتشار گزارش‌ها از مقابله پدافند امارات متحده با موشک‌ها و پهپادها، پیامی «تهدیدآمیز» به زبان عربی منتشر کرد.
-بقایی در این پیام نوشت: «اگر دندان‌های شیر را دیدی که بیرون زده‌اند، تصور نکن که شیر لبخند می‌زند.»
-به نظر می‌رسد با توجه به حملات روزهای گذشته به بندر فجیره و دیگر نقاط امارات و اتهام‌های قرارگاه خاتم‌الانبیا پس از درگیری در تنگه هرمز، بقایی با این پیام امارات متحده عربی را تهدید کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75324)
 
 ---
 
