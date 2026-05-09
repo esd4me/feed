@@ -3,7 +3,41 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-09 19:36:26
+###### 🔵 Updated at: 2026-05-09 20:38:31
+
+<img src="https://cdn4.telesco.pe/file/ajKy4QswZ6_cJ5DIp5TUyRZhoRiWqE4ugdByPiGAxxou9OmNiMxbGw_hSi3rBgE--hD7Jcx_qvxDS12bF5rSTgOYwdKfUD2aUSjAwSbAuhzDo2AWPDSrWPiNpDcRXvnmhvRqiWZZz8Zrveo2z2XhejIsE0jcJ1SoX9PIPpDj6Acy6S5sGMddMBM9KsTqdFjLFHxLVeDllZ6A6ZFE6_AI5MQi-sEetzJINwSoq2yu-dQj6myfCg-GDRGaxhRADvHx5M27cSbDFRUiPWPgqu8Hx7I-iZaKfUPHZYUweH6yFGA4jCCJEgA0MNx6CQ6RY4fw1hwgjl6oaOKwD340kllm2Q.jpg" width="400"><br>
+
+مقام‌های لبنانی روز شنبه اعلام کردند که در حملات هوایی اسرائیل به جنوب لبنان، هشت نفر کشته شده‌اند. همچنین بزرگراهی در جنوب بیروت هدف حمله هوایی قرار گرفت.
+این حملات تازه با وجود آتش‌بس سه‌هفته‌ای میان اسرائیل و حزب‌الله، گروه مورد حمایت ایران، انجام شد؛ آتش‌بسی که تأثیر چندانی در توقف تبادل روزانه آتش، عمدتاً در جنوب لبنان، نداشته است.
+حزب‌الله روز شنبه اعلام کرد که در واکنش به ادامه حملات، نیروهای اسرائیلی در شمال این کشور را با پهپاد هدف قرار داده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75364)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 20:38:31
+
+<img src="https://cdn4.telesco.pe/file/hCovR5rjQ7GmFYo3YsFpVJIFzGkD5o7PZ656heCe55U5OadEB4q33iSgvUYuDqI0Gin9wIkO2Xn3r3IhmtkfnYo_n7vGUsaCkqikZnT7qcVNkZ6JuBizzPoEj_ny7OgMTvZHdgdTdwsCOSp4Y7G4T6Z8ypD7euHa3G6g5YQ_0bXkx1gV8W2IBP_heHY0jgl_1j2b7XhomuJKNTOSnMaL-yGefWBUYrHCVrUqrV-HPIYBQirM9QjvxsjWFi5UXZFRdaNCIDQ55GGnsueFRMYzc_3ahlv0uev2wpVF5smRcRBwcpoB-c2x_e74Woj6KK9y4QASW7YeP0sLfjiMI9xzdg.jpg" width="400"><br>
+
+فرماندهی مرکزی آمریکا، سنتکام، روز ۱۹ اردیبهشت ۱۴۰۵ اعلام کرد محاصره دریایی آمریکا علیه جمهوری اسلامی همچنان به‌طور کامل اجرا می‌شود و نیروهای این فرماندهی تاکنون ۵۸ کشتی تجاری را تغییر مسیر داده و چهار شناور را از کار انداخته‌اند تا از ورود یا خروج آن‌ها به بنادر ایران جلوگیری شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75363)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 20:38:31
 
 <img src="https://cdn1.telesco.pe/file/fuavnaWkCQ_sd_d5SGQy7AVi0NlHcTzWKe8DIaZhgAzj6DRBMRk5wFOP6DzPdlA-hu5aTkqJQBm5V-JJ2mw3TEAM8XUqFMsKECVJ-QanTIssLmgEmgFMCrpryg2mVz9jwkxJagl7ElEwAAL3B3_LHD8vgcUD4TZB3jecgYxHyI3yvjAOZkW3MYWFf_6jI3PANIQHCZlAziT_54zxN0v_Ukl7awuA1vfQJ84VhpO3K_K9_i-BM9yqu3AjIUN8Vgyf725t8w_jlLlD5Fua79_qeotxIx__7u-iSK7t0nHCWfBzoNGkM6KUy8B0m4SbZzg5LxI7ug-rcONtvHMhHqVP2g.jpg" width="400"><br>
 
@@ -18,7 +52,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-09 19:36:26
+###### 🔵 Updated at: 2026-05-09 20:38:31
 
 <img src="https://cdn4.telesco.pe/file/nNC0w5QLwwdjsCFSXHdc_L08nfwaNwODXY-9j1XgM4aXyFteu7mlOjuP1LLLihpTgbCmq7a6BT2v8OR0LlWLbHExOJlEdY-jo3lS3iI0FY-rlysa-dQ9QOOKLQjQA7HG1tmtMpE-K1Bvi0jh3xdHMFBSCbyOhbHLq238XYqwXNT9xSceYCicCLnKOSLTqHti_3Eu4xpIJ--ZamMH_NyyCu_mbhDtH5aH-o2MEYbaydQOop7IAP5slY5MrLXPtextuqv72J9ZnxjfXQlRiKAukzzCi0oN15xwYTV_oCZdce0JptpQON0r4nXQ1jkx1qT4r29AxiakBHN6qCG1GSNhGg.jpg" width="400"><br>
 
@@ -36,7 +70,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 19:36:26
+###### 🔵 Updated at: 2026-05-09 20:38:31
 
 <img src="https://cdn1.telesco.pe/file/miDpllLYTDqcLCJfuO4idxxiKwZv6AZBJ1SsZXXwiGQazvJyJ3tevF_GBjHEsg_x-DBUfADY1mCg_JQpbj0C5RYTFo3hZDeUeKzvImPrwxh3uu4InmtqiVjuM2wenL31ftqOsYnsOJOndsB6dE92e0uXaQCvGcAjJw63XpbzIhMXmnhpbZq2W4LucYQ8rea8rZ-b9y_KNen0vIuoTqWFXEqRIS3qko-RuBYjoZrsqsLICaFgrBssTMHsQs8rhUqwY58zm_AHhs3r-VAuL9o1JgH2qHBnv-sRyqIN5AWRtJNN3ncyZqTWxI2pnHR9d1d36pWCD5LCH81xmvmvbxIBDg.jpg" width="400"><br>
 
@@ -62,7 +96,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 19:36:26
+###### 🔵 Updated at: 2026-05-09 20:38:31
 
 <img src="https://cdn4.telesco.pe/file/vD_LXMZZ6KjmMSlQ01akVqVz3M0-J01E3ddCwruEY0TrIH3R5cP3SzfGxIjZMMKxFS6PI8GzxiDbJUh16MWKSTGlXZEI1w6peS4u6XnE_eZbdPLWJcGEq_l1K52I4PUBt-8MVmUoZaHD86DrQPbcnMyKZ_ILtblzLJ_1m4pCQsHp-Xm2LkFjOVd_NXqDHbpI9-bUeOsq5yUtjMIy45d7gQ22BuFXRJbCB5rtyEgLmvYekX8UBdxdNa7hO3E-IX_rvEVyrNQmrTO-UqLtpcix0iz5sa0CpEUw0KXPwodhiUCZnuH-nYQFZa_n2sb1oGJdRdsnr2mgIANcpgAejTYugQ.jpg" width="400"><br>
 
@@ -80,7 +114,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 19:36:26
+###### 🔵 Updated at: 2026-05-09 20:38:31
 
 <img src="https://cdn1.telesco.pe/file/sSx5B8zzxqE35hROSDVMLtBQk-cGXrk_VxoaP_9yuiXebQ1-DImE1gV1q6eERX7EWjapl0X3ifBOVvTScnI16IGzmL7zdGoZt6P752C-2FZzGK0aYdmuzu2uZ6nys_vZQwKLEJoWuZSwR3lmKyD-LIKKSFsBIWcsecR3JAmzGUF8GlB5U5PGYC-TvK9BO7951sjYFUsRUERm0cQ5JnJNIxnqUryFX_Jw9yruQKKaTE0bHCUnrN-e4LQEcuiDkNH83xLedg5x5anZb8mcGdoL_YJTkgcxszReSEb4etv6aWUkAFAxoEjs_68LUVdKdWlc-p0zG26M2WLXSvt6AYsd7A.jpg" width="400"><br>
 
@@ -112,7 +146,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 19:36:26
+###### 🔵 Updated at: 2026-05-09 20:38:31
 
 <img src="https://cdn1.telesco.pe/file/KkE8GkBHivNvgOXsrlLuhoO4cdZyz74TguyFDbZixMReZvHyoypE0fiZfwAq-hbUdBCGXsthggVJ68qBn4WHO9zuwOpJ1WNSv2bW83O3eMTyL91dW_aJYxFPyMo0SYgdLpqlqUJlAUzVx7kwwsCXHRizDf3KRhpZNvQMZZEnII6D4NmTypzy9UwLwtXBEMXWTVmVqyaT58SHvVrt2bY2_SbesQLiU9l1l6lKCW0As9oLQoHS1d41S-sWzob_G7atxwyNJtB_eZJoDxliZnu4rVSYDUBFeK86oydN9oGL-GhM_IAiYY3cl0dkdPWE6NuIO8mZDYeGfEkxr5_SxkBWJQ.jpg" width="400"><br>
 
@@ -137,7 +171,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 19:36:26
+###### 🔵 Updated at: 2026-05-09 20:38:31
 
 <img src="https://cdn4.telesco.pe/file/AZS31yh6JvTe-n9mkazLWmi2t7w5LZkt6BFYWXqHHqesGaMljx5AsK9y0GRNmOURzDXCDGXaJGmuRvAH5H0aHD61YlCRgSikImBs4228XqNqTIy58Pha0vWrVcC4bbHjE73OJ_c7ETa3Mjo9wrnJqzQaN-WFHQa1U3JvLxjXTsLZoTI6pnaRaunAM7sWB4R-lG6AhHbLKyQlrgx2rfVMcqB2ehRw0uKazdGfHecG7d177KZULZG_9xlCHMzmNYma6Rx5MAKWtTsDSVw5HrE4TexJZ65BPG3wWHJwcRhiRvwMGGenAEfD58DKsXEUfoU0_x8vhLLBZ58tQipqTS9oFg.jpg" width="400"><br>
 
@@ -152,46 +186,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75345)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 19:36:26
-
-<img src="https://cdn4.telesco.pe/file/IZ77twVrL6vK1LkuzJ_HQ4kXsI1J43-o6XftEJnr45XHSKizDl0y024VLhJSnhL069QDKTfSHBB6qU4P0ILvmepdYTuqcfkLpO9XFBwahfZOQ47zKC3n7rM4ZGYgvCQTgAf1NntHb-og61dMR3FM7WIa4joelgsr8_Px0CjJZ4CoUYT9oA4fZFy1srlE7ls_og2XburmsXIJhfKxtkmYhtuVbxuVJ9qXcDemoM-lDitJVkPgSnkIm1ImO4-wr6ZqMh2h8O0SVys3QU6totLp-xpuVC2Q_Iht4isP4wSz-YK6qbRpamw8Eg75ScvzTyorDnf4XGxiLzQ5NVU8Liw_TA.jpg" width="400"><br>
-
-ترامپ به خبرنگاران درباره چشم‌انداز توافق با جمهوری اسلامی گفت: «اگر همه‌چیز امضا و نهایی نشود، مسیر متفاوتی را در پیش خواهیم گرفت. اگر اتفاقی نیافتد، ممکن است به پروژه آزادی تنگه هرمز بازگردیم، اما آن پروژه آزادی پلاس خواهد بود؛ یعنی پروژه آزادی به‌اضافه موارد دیگر.»
-او در پاسخ به پرسش یک خبرنگار مبنی بر اینکه آیا جمهوری اسلامی عمدا روند مذاکرات را به کندی پیش می‌برد، گفت: «به‌زودی خواهیم فهمید.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75344)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 19:36:26
-
-<img src="https://cdn1.telesco.pe/file/qFBznJi03r7vccbkt85eSmEBajPWfNl9bPDZGmTu8WI39OkJW-NqYZM8vGr-BJTttbUUYRdgXgwFIZBj0xZSGOCf5Kd9UhvcYlIJ5uko30SHSa1Z2v6IUG7SEECCW0FfhOz48-qI40N7Dm9umG9SoBNlACuHw2dJJmGcOigkvYT45Fnqaee_rG13-6s-tOdzRfDG_hjTqxqhuURUzjc9bAs6Fux8CFowZ9k-PNQbT9aWxpfdA-SVfNrLQjzk7qgmuHVBhy4BJTBhTdjfgUl_aG01S-aOuiVvgO3V6Is7qnyInqPLYWa9i8W4aGdsiVnOFbH0vljRPbSQPlaIRQKRjQ.jpg" width="400"><br>
-
-آسوشیتدپرس گزارش داده که لکه‌ای نفتی ظاهرا از بخش غربی جزیره خارک، پایانه اصلی صادرات نفت خام ایران در خلیج فارس، در حال نشت است.
-آمی دنیل، مدیرعامل شرکت اطلاعات دریایی «ویندوارد ای‌آی»، به ای‌پی گفت که از روز سه‌شنبه، معادل حدود ۸۰ هزار بشکه نفت از جزیره خارک نشت کرده است.
-@
-VahidOOnLine
-شبکه خبری فاکس‌نیوز به نقل از کارشناسان می‌گوید این موضوع ممکن است نشانه‌ای از فروپاشی زیرساخت‌های نفتی جمهوری اسلامی باشد که زیر فشار فزاینده ایالات متحده قرار دارد.
-به گفته تحلیلگرانی که خبرگزاری رویترز از آن‌ها نقل قول کرده است، این لکه که در تصاویر ماهواره‌ای کوپرنیکوس سنتینل بین چهارشنبه و جمعه دیده می‌شود، منطقه‌ای به وسعت تقریباً ۴۵ کیلومتر مربع از غرب جزیره خارک را پوشانده است.
-مقامات آمریکایی بارها گفته‌اند که با محاصره دریایی جمهوری اسلامی، ذخایر نفت در ایران به زودی پر خواهد شد و رژیم ناچار می‌شود که تولید خود را کاهش دهد، امری که می‌تواند آسیب دائمی به میزان برداشت از چاه‌های نفت وارد کند.
-حالا، نشت مشکوک نفت در دریا این نظریه را به وجود آورده است که جمهوری اسلامی نفت خود را به دریا می‌ریزد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75342)
 
 ---
 
