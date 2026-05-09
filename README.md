@@ -3,7 +3,40 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-09 18:38:42
+###### 🔵 Updated at: 2026-05-09 19:36:26
+
+<img src="https://cdn1.telesco.pe/file/fuavnaWkCQ_sd_d5SGQy7AVi0NlHcTzWKe8DIaZhgAzj6DRBMRk5wFOP6DzPdlA-hu5aTkqJQBm5V-JJ2mw3TEAM8XUqFMsKECVJ-QanTIssLmgEmgFMCrpryg2mVz9jwkxJagl7ElEwAAL3B3_LHD8vgcUD4TZB3jecgYxHyI3yvjAOZkW3MYWFf_6jI3PANIQHCZlAziT_54zxN0v_Ukl7awuA1vfQJ84VhpO3K_K9_i-BM9yqu3AjIUN8Vgyf725t8w_jlLlD5Fua79_qeotxIx__7u-iSK7t0nHCWfBzoNGkM6KUy8B0m4SbZzg5LxI7ug-rcONtvHMhHqVP2g.jpg" width="400"><br>
+
+گذشت
+‌ عبدالله امیدوار، یکی از دو برادر امیدوار که اولین نزدیک به ۷۰ سال پیش با موتورسیکلت دور جهان را گشتند، در سانتياگو، پايتخت شيلی درگذشت.
+عبدالله،  برادر کوچکتر پس از پایان سفرشان به شيلی رفت و در آنجا ازدواج کرد و شرکت فیلم‌سازی در شيلی تاسيس کرد.
+عبدالله۲۱ ساله و عیسی ۲۳ ساله،  در سال ۱۹۵۴
+
+[View Post](https://t.me/VahidOnline/75358)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 19:36:26
+
+<img src="https://cdn4.telesco.pe/file/nNC0w5QLwwdjsCFSXHdc_L08nfwaNwODXY-9j1XgM4aXyFteu7mlOjuP1LLLihpTgbCmq7a6BT2v8OR0LlWLbHExOJlEdY-jo3lS3iI0FY-rlysa-dQ9QOOKLQjQA7HG1tmtMpE-K1Bvi0jh3xdHMFBSCbyOhbHLq238XYqwXNT9xSceYCicCLnKOSLTqHti_3Eu4xpIJ--ZamMH_NyyCu_mbhDtH5aH-o2MEYbaydQOop7IAP5slY5MrLXPtextuqv72J9ZnxjfXQlRiKAukzzCi0oN15xwYTV_oCZdce0JptpQON0r4nXQ1jkx1qT4r29AxiakBHN6qCG1GSNhGg.jpg" width="400"><br>
+
+وزارت دفاع بریتانیا روز شنبه اعلام کرد که پیش از هرگونه مأموریت بین‌المللی برای کمک به حفاظت از کشتیرانی در تنگه هرمز، یک ناوشکن به خاورمیانه اعزام خواهد کرد.
+سخنگوی این وزارتخانه به خبرگزاری فرانسه گفت: «استقرار پیشاپیش ناوشکن «اچ‌ام‌اس دراگون» بخشی از برنامه‌ریزی محتاطانه‌ای است که تضمین می‌کند بریتانیا به‌عنوان بخشی از یک ائتلاف چندملیتی به رهبری مشترک بریتانیا و فرانسه، در زمان مناسب آماده تأمین امنیت تنگه باشد.»
+لندن و پاریس چند هفته پیش اعلام کردند که طرح‌های نظامی برای تأمین امنیت تنگه هرمز در حال شکل‌گیری است و در بازگرداندن جریان تجارت از طریق این گذرگاه حیاتی موفق خواهد بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75357)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 19:36:26
 
 <img src="https://cdn1.telesco.pe/file/miDpllLYTDqcLCJfuO4idxxiKwZv6AZBJ1SsZXXwiGQazvJyJ3tevF_GBjHEsg_x-DBUfADY1mCg_JQpbj0C5RYTFo3hZDeUeKzvImPrwxh3uu4InmtqiVjuM2wenL31ftqOsYnsOJOndsB6dE92e0uXaQCvGcAjJw63XpbzIhMXmnhpbZq2W4LucYQ8rea8rZ-b9y_KNen0vIuoTqWFXEqRIS3qko-RuBYjoZrsqsLICaFgrBssTMHsQs8rhUqwY58zm_AHhs3r-VAuL9o1JgH2qHBnv-sRyqIN5AWRtJNN3ncyZqTWxI2pnHR9d1d36pWCD5LCH81xmvmvbxIBDg.jpg" width="400"><br>
 
@@ -29,7 +62,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 18:38:42
+###### 🔵 Updated at: 2026-05-09 19:36:26
 
 <img src="https://cdn4.telesco.pe/file/vD_LXMZZ6KjmMSlQ01akVqVz3M0-J01E3ddCwruEY0TrIH3R5cP3SzfGxIjZMMKxFS6PI8GzxiDbJUh16MWKSTGlXZEI1w6peS4u6XnE_eZbdPLWJcGEq_l1K52I4PUBt-8MVmUoZaHD86DrQPbcnMyKZ_ILtblzLJ_1m4pCQsHp-Xm2LkFjOVd_NXqDHbpI9-bUeOsq5yUtjMIy45d7gQ22BuFXRJbCB5rtyEgLmvYekX8UBdxdNa7hO3E-IX_rvEVyrNQmrTO-UqLtpcix0iz5sa0CpEUw0KXPwodhiUCZnuH-nYQFZa_n2sb1oGJdRdsnr2mgIANcpgAejTYugQ.jpg" width="400"><br>
 
@@ -47,7 +80,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 18:38:42
+###### 🔵 Updated at: 2026-05-09 19:36:26
 
 <img src="https://cdn1.telesco.pe/file/sSx5B8zzxqE35hROSDVMLtBQk-cGXrk_VxoaP_9yuiXebQ1-DImE1gV1q6eERX7EWjapl0X3ifBOVvTScnI16IGzmL7zdGoZt6P752C-2FZzGK0aYdmuzu2uZ6nys_vZQwKLEJoWuZSwR3lmKyD-LIKKSFsBIWcsecR3JAmzGUF8GlB5U5PGYC-TvK9BO7951sjYFUsRUERm0cQ5JnJNIxnqUryFX_Jw9yruQKKaTE0bHCUnrN-e4LQEcuiDkNH83xLedg5x5anZb8mcGdoL_YJTkgcxszReSEb4etv6aWUkAFAxoEjs_68LUVdKdWlc-p0zG26M2WLXSvt6AYsd7A.jpg" width="400"><br>
 
@@ -79,7 +112,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 18:38:42
+###### 🔵 Updated at: 2026-05-09 19:36:26
 
 <img src="https://cdn1.telesco.pe/file/KkE8GkBHivNvgOXsrlLuhoO4cdZyz74TguyFDbZixMReZvHyoypE0fiZfwAq-hbUdBCGXsthggVJ68qBn4WHO9zuwOpJ1WNSv2bW83O3eMTyL91dW_aJYxFPyMo0SYgdLpqlqUJlAUzVx7kwwsCXHRizDf3KRhpZNvQMZZEnII6D4NmTypzy9UwLwtXBEMXWTVmVqyaT58SHvVrt2bY2_SbesQLiU9l1l6lKCW0As9oLQoHS1d41S-sWzob_G7atxwyNJtB_eZJoDxliZnu4rVSYDUBFeK86oydN9oGL-GhM_IAiYY3cl0dkdPWE6NuIO8mZDYeGfEkxr5_SxkBWJQ.jpg" width="400"><br>
 
@@ -104,7 +137,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 18:38:42
+###### 🔵 Updated at: 2026-05-09 19:36:26
 
 <img src="https://cdn4.telesco.pe/file/AZS31yh6JvTe-n9mkazLWmi2t7w5LZkt6BFYWXqHHqesGaMljx5AsK9y0GRNmOURzDXCDGXaJGmuRvAH5H0aHD61YlCRgSikImBs4228XqNqTIy58Pha0vWrVcC4bbHjE73OJ_c7ETa3Mjo9wrnJqzQaN-WFHQa1U3JvLxjXTsLZoTI6pnaRaunAM7sWB4R-lG6AhHbLKyQlrgx2rfVMcqB2ehRw0uKazdGfHecG7d177KZULZG_9xlCHMzmNYma6Rx5MAKWtTsDSVw5HrE4TexJZ65BPG3wWHJwcRhiRvwMGGenAEfD58DKsXEUfoU0_x8vhLLBZ58tQipqTS9oFg.jpg" width="400"><br>
 
@@ -124,7 +157,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 18:38:42
+###### 🔵 Updated at: 2026-05-09 19:36:26
 
 <img src="https://cdn4.telesco.pe/file/IZ77twVrL6vK1LkuzJ_HQ4kXsI1J43-o6XftEJnr45XHSKizDl0y024VLhJSnhL069QDKTfSHBB6qU4P0ILvmepdYTuqcfkLpO9XFBwahfZOQ47zKC3n7rM4ZGYgvCQTgAf1NntHb-og61dMR3FM7WIa4joelgsr8_Px0CjJZ4CoUYT9oA4fZFy1srlE7ls_og2XburmsXIJhfKxtkmYhtuVbxuVJ9qXcDemoM-lDitJVkPgSnkIm1ImO4-wr6ZqMh2h8O0SVys3QU6totLp-xpuVC2Q_Iht4isP4wSz-YK6qbRpamw8Eg75ScvzTyorDnf4XGxiLzQ5NVU8Liw_TA.jpg" width="400"><br>
 
@@ -141,7 +174,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 18:38:42
+###### 🔵 Updated at: 2026-05-09 19:36:26
 
 <img src="https://cdn1.telesco.pe/file/qFBznJi03r7vccbkt85eSmEBajPWfNl9bPDZGmTu8WI39OkJW-NqYZM8vGr-BJTttbUUYRdgXgwFIZBj0xZSGOCf5Kd9UhvcYlIJ5uko30SHSa1Z2v6IUG7SEECCW0FfhOz48-qI40N7Dm9umG9SoBNlACuHw2dJJmGcOigkvYT45Fnqaee_rG13-6s-tOdzRfDG_hjTqxqhuURUzjc9bAs6Fux8CFowZ9k-PNQbT9aWxpfdA-SVfNrLQjzk7qgmuHVBhy4BJTBhTdjfgUl_aG01S-aOuiVvgO3V6Is7qnyInqPLYWa9i8W4aGdsiVnOFbH0vljRPbSQPlaIRQKRjQ.jpg" width="400"><br>
 
@@ -159,98 +192,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75342)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 18:38:42
-
-<img src="https://cdn4.telesco.pe/file/SSWek-caOt8jw-CWhhMUWr28AFmrVvYzv3SA1RaFeplrnofA9UCo-xQU8_j_QbgDe6rgfqmkaX_3TjFyNW-f3lQF9S9PiYApeHgLq92oztg5KoTJb6MEKhc1CtEU2-JgoaORZoCzpbHdybAW6hntKyXYlNjtEdPNGCp7aVdR9C7x3x8QdCYMf8Eauw9-XsnadH9u9j3ALfPTiVtFzHz9t4vG51uO0eBgkltY65kK65NFCfv5YrzwH2_P_FNvOYbBSS7VJyT9U2wNoF0VogRXSVCPtwCroeV6EZ9lJkTHvMmpehlRL4EDQR_R2_UuM-Ow8ZBgnTy8vNzHVpzG3R_TIQ.jpg" width="400"><br>
-
-به گزارش «واشنگتن‌پست»، معدن‌کاران در میانمار موفق به کشف یک یاقوت سرخ بسیار کمیاب و غول‌پیکر شده‌اند که از نظر وزن، دومین یاقوت بزرگی است که تاکنون در این کشور کشف شده است. این سنگ قیمتی ۱۱ هزار قیراطی (معادل ۲.۲ کیلوگرم) در نزدیکی شهر «موگوک» پیدا شده؛ منطقه‌ای که به دلیل استخراج یاقوت‌های سرخ تیره و باکیفیت که در جهان به «خون کفتری» (Pigeon Blood) شهرت دارند، شناخته می‌شود. اگرچه وزن این سنگ حدود نیمی از رکورد کشف‌شده در سال ۱۹۹۶ است، اما کارشناسان معتقدند به دلیل رنگ سرخ ارغوانی منحصربه‌فرد، شفافیت بالا و کیفیت بازتاب نور، ارزش مادی بسیار بیشتری نسبت به نمونه‌های قبلی دارد.
-میانمار تامین‌کننده حدود ۹۰ درصد یاقوت‌های جهان است، اما تجارت این سنگ‌ها همواره با مناقشات سیاسی و حقوق بشری گره خورده است. سنگ‌های قیمتی یکی از منابع اصلی درآمد برای دولت نظامی میانمار و همچنین گروه‌های مسلح قومی به شمار می‌روند که برای خودمختاری می‌جنگند. در همین راستا، سازمان‌های حقوق بشری مانند «گلوبال ویتنس» از جواهرسازان بین‌المللی خواسته‌اند تا خرید سنگ از میانمار را متوقف کنند، چرا که سود حاصل از این صنعت سوخت لازم برای ادامه جنگ‌های داخلی و تقویت قدرت نظامیان را تأمین می‌کند. با وجود تغییرات سیاسی ظاهری در میانمار، ارتش همچنان کنترل بخش‌های کلیدی این معادن را در دست دارد و کشف این یاقوت عظیم در میانه بحران‌های امنیتی، بار دیگر توجه جهانی را به ثروت‌های پنهان در مناطق درگیر جنگ جلب کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75341)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 18:38:42
-
-
-
-مظاهر حسینی، مسئول دیدارهای دفتر علی خامنه‌ای، در تجمع شبانه حکومتی، گفت که مجتبی خامنه‌ای در جریان بمباران بیت علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، از ناحیه زانو، کمر و پشت گوش آسیب دیده است.
-حسینی گفت: «زمانی که در دفتر بودم، در ۳۰ متری ما بمب خورد که شیرازی [رییس دفتر نظامی علی خامنه‌ای] و دوستانشان پرپر شدند. ۷۰، ۸۰ متری ما جایگاه کار علی خامنه‌ای را زدند که آن اتفاق افتاد.»
-او افزود: «منزل مجتبی خامنه‌ای را زدند که همسرش کشته شد. مجتبی خامنه‌ای در بین راه که آمد در پله‌ها که برود بالا، موشک آنجا خورد و خانم حداد [همسر مجتبی خامنه‌ای] کشته شد. مجتبی خامنه‌ای در بین راه ضربه موج [انفجار] خورده و روی زمین افتاده است.»
-مسئول دیدارهای دفتر رهبر پیشین جمهوری اسلامی، درباره آسیب‌های وارد شده به مجتبی خامنه‌ای گفت: «یک خرده کشکک پایش صدمه دیده و یک خرده کمرش. کمرش در این ایام درست شد و کشکک پایش به زودی خوب می‌شود و در سلامتی کامل است.»
-حسینی گفت: «یکی از عزیزان در هفته پیش با او دیدار داشت، آن بحث پیشانی که گفته‌اند بی‌خود است. یک ترک کوچک پشت گوشش خورده که آن هم پشت عمامه است و اصلا مشخص نیست.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75340)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 18:38:42
-
-<img src="https://cdn4.telesco.pe/file/tUNB-lCz6Qc4XHZpyodX6jgRChnoabk0R2bOX2zA51RbpX3vsl2xXkwKiV7OgpLZwf-KvuUu7wAeBg7KBC4Qt2CX28ValVEJLZFBwvLXdT4ni3kauGKxwnLRppffMEov0FAjpLD0K6tQgRyLAfso8IRx4lwZZQVcL4i7jYayJDPHURXp08Fc3kLTC1NUlx0IKaACZNAWsgEqYbOS2JNRmfqaYZAJflwA1PsJn7dRUDP_kMovp-BZhsuc2AiLlFHj50h9Ylb72JW4SEpR01cjWBs3_EWRzD3I9AxwCilojI8-GaUkj6fq9-YhHgG91pIF5MYtdmhxSdSM3LCY49fygg.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۱۸ اردیبهشت، اعلام کرد که روسیه و اوکراین بر سر یک آتش‌بس سه روزه که از شنبه آغاز می‌شود و همچنین تبادل متقابل ۲۰۰۰ اسیر (۱۰۰۰ نفر از هر طرف) به توافق رسیده‌اند.
-ترامپ در پیامی ابراز امیدواری کرد که این آتش‌بس در روزهای شنبه، یکشنبه و دوشنبه، «آغازی بر پایان این جنگ طولانی، مرگبار و سخت» باشد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75339)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 18:38:42
-
-<img src="https://cdn4.telesco.pe/file/iUltVPgIhYSWG5SjGLzGxRGVnWHDrCcYB6aUoAlwTsFN5V3B9CRZshch_iBBdRHGO-h9fY0xv1CGcqU2bUMl7jv6RqgcXrSnXyIkq4FB_6CIh84yNA0aFQ-GAL1W4ZoEXgxz6FmFe81HQspzN34zQCuP9iNknMghRkRBeWsdzWCkrr-hSI5QJHCZR16f6mvlgRwbdmmQO9zl2wsqmzKt9zYN4lIc4puNGG0AcCmJXm6n3Z_NBdGZe6wX7ob-OQz61Q4bGBQbVc04SgnmN8QFVp7JX52yidPZnwKWKdbDtd0sZGMxwpRGWkg8uhc6mGcb-o7ODBDritf834BfcmtcBA.jpg" width="400"><br>
-
-خبرگزاری «تسنیم»،رسانه نزدیک به سپاه پاسداران به نقل از یک منبع نظامی نوشته است که  «پس از مدتی تبادل آتش، هم اینک درگیری‌ها متوقف شده و فضا آرام است». او اما در عین حال ادامه داده که «اگر مجددا آمریکایی‌ها قصد ورود به خلیج فارس را داشته باشند و یا برای شناورهای ایرانی مزاحمتی ایجاد کنند، مجدداً پاسخ قاطع دریافت خواهند کرد. بنابراین احتمال ورود مجدد به درگیری‌هایی از این قبیل در این منطقه همچنان وجود دارد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75338)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 18:38:42
-
-<img src="https://cdn1.telesco.pe/file/jrGfdzkihKyDgGyJtoSuvPMkJD4hiwxFPmqBeh-FwvoXDDz7Esm3htTMT_i4ZTWxZAiCvrCT8CdXuoyzC3ePLCoMsCYfVOXqS9PyelqOraLfcNK17iKnb1LkyFKhw7yFqi-LuKcXUfqT8XAtOLJaqD1685zDsmF-BlVogxxstYc12zC4KQv-xEuHX1pITKhm63g-K_pmG9eNkJmQ9tbuEson_tG8QSOd0rgfMcCmYLMdbJJbZNzgqlc2b_Xt1m61aDfmzLOPNBOOXR1klEZT6HAOZi8A5gsxR9kPe-nebtxKvpTh6FLb-sUqo-jQP8IQclLgynJ_Dp2pljKmwv1NpA.jpg" width="400"><br>
-
-فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد که در راستای اجرای محاصره دریایی ایران، نیروهای آمریکایی طی دو عملیات جداگانه، سه نفتکش با پرچم ایران را که قصد ورود به بنادر این کشور در دریای عمان را داشتند، از کار انداخته‌اند.
-در آخرین اقدام در تاریخ ۱۸ اردیبهشت، یک جنگنده F/A-18 سوپر هورنت برخاسته از ناو هواپیمابر «جورج اچ.دبلیو. بوش»، با شلیک مهمات دقیق به دودکش نفتکش‌های «سی استار ۳» (Sea Star III) و «سودا» (Sevda)، آن‌ها را از کار انداخت و مانع ورود این کشتی‌های خالی از بار به بنادر ایران شد. همچنین در ۱۶ اردیبهشت، جنگنده‌ای از ناو «آبراهام لینکلن» با شلیک توپ ۲۰ میلی‌متری، سکان نفتکش «حسنا» (Hasna) را هدف قرار داد و آن را متوقف کرد.
-دریادار برد کوپر، فرمانده سنتکام، با تاکید بر پایبندی نیروهای آمریکایی به اجرای کامل محاصره، اعلام کرد که این سه شناور دیگر به سمت ایران در حرکت نیستند. طبق بیانیه سنتکام، تاکنون چندین کشتی تجاری توسط نیروهای آمریکایی از کار افتاده و بیش از ۵۰ فروند دیگر نیز تغییر مسیر داده شده‌اند.
-@
-VahidOOnLine
-خبرگزاری فارس، وابسته به سپاه پاسداران، روز جمعه ۱۸ اردیبهشت از وقوع «درگیری‌های پراکنده» میان نیروهای مسلح جمهوری اسلامی و آمریکا در محدوده تنگه هرمز خبر داد.
-فاکس‌نیوز به نقل از یک مقام آمریکایی، اعلام کرد که این درگیری‌ها ناشی از اقدام آمریکا برای مقابله با حرکت یک نفتکش متعلق به ایران بوده است. بر اساس این گزارش، نفتکش مذکور قصد شکستن محاصره را داشته که با مقابله شناورهای آمریکایی مواجه شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75336)
 
 ---
 
