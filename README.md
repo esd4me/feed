@@ -3,7 +3,59 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-09 23:34:33
+###### 🔵 Updated at: 2026-05-10 00:29:22
+
+<img src="https://cdn1.telesco.pe/file/PL1XICXY1Cs9iKF3pL2xLlgD4OgvD7WnJFwqnCo2t5FOkG5FkJao2WLniYhaiSPuL3h5TdUJ-0JGp-bi31ryjFjRmhB2nsQUeofGMQ7hVdVxoZ9W--sAi9VlD4D21yeaHH0YLG27vrOoHlAZ9O7O30JgtdaXQ56ava2ZR1wJIYxU1UjwjTGR1JDiuK3sa2udUfhYilP9i4R8upCZrOiFwgTPglXixtY0qBvlYrFTECufxrFrgffEyuBEZM-FERSeotCK7AGV3m7fU_GSeO8NXln_A7G9VOw-fF_LFGKOjV0hDnMbML8Ojy3DbB_4oUqsKzGJdGbS82xegabGhItDrw.jpg" width="400"><br>
+
+پست ترامپ:
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75368)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 00:29:22
+
+<img src="https://cdn4.telesco.pe/file/srlCyM4lroAavTzijkVUboKUSVEWQrVpXMMiv_ZQXRtas4L06gE6ImhI4ZhlILKWRQdIjW4L70g-4CBauIcwOBlUBk2bediqIj0JHcalbpg0YwV1g_nk-hTPssmsAMca37G8E6hlYlN33GLbRrZF3RR2rh8h6ITH23kn0AA3u6RmwDZ-gVxpNiIt_3ZPRRXBV5y06MMMraYEuBGFGc8yisT3ZtoJpW2ru6CDIkKQrVwfmgMY4cm4wkihRkt0SNjCWCpvojf7NEV8FXYpX4zyS7IVcsKLDhIr914axmaICcGN6y-q70g29iaPbY3eSLg1wvUy-JHs5w77XOVb3LW54w.jpg" width="400"><br>
+
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، با اشاره به کابل‌های فیبر نوری عبوری از تنگه هرمز و تهدید به اختلال در اقتصاد دیجیتال جهان در صورت آسیب به این کابل‌ها، خواهان اخذ هزینه از شرکت‌های خارجی و الزام غول‌های فناوری نظیر متا، آمازون و مایکروسافت به فعالیت تحت قوانین جمهوری اسلامی شد.
+تسنیم نوشت: «کابل‌های تار نوری زیردریایی عبوری از تنگه هرمز روزانه حامل بیش از ۱۰ تریلیون دلار آمریکا تراکنش مالی (شامل پیام‌های سوئیفت، معاملات بورس و تبادلات ارزی) هستند.»
+رسانه وابسته به سپاه در ادامه خواستار «اخذ هزینه مجوز اولیه و تمدید سالانه از شرکت‌های خارجی، الزام غول‌های فناوری (متا، آمازون، مایکروسافت) به فعالیت تحت قوانین جمهوری اسلامی و انحصار تعمیر و نگهداری کابل‌ها از سوی شرکت‌های ایرانی شد.»
+فارس، دیگر وابسته به سپاه، نیز در گزارشی نوشت که ده‌ها کابل فیبر نوری زیردریایی که آسیا، اروپا و خاورمیانه را به هم متصل می‌کنند، از گذرگاه تنگه هرمز عبور می‌کنند و تهدید کرد که «هرگونه آسیب به این کابل‌ها می‌تواند اختلالات گسترده‌ای در اینترنت و اقتصاد دیجیتال کشورهای مختلف ایجاد کند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75367)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 00:29:22
+
+<img src="https://cdn4.telesco.pe/file/i6RK2B1HPeuSU-6YfznboI7678gkgjR2CEZQObTjQ6de98bCmOjZVkYQTAd61zCeg_EncBK_x-vUYVykUrQLorljdFnKNBfvub8kjcUEPSS8IijGGt0aSnBlMxKpnDqx_z5uewhp2lJjeEgNlA6GsFTZPbbXQBZRFC_ZCVMUIN_ITWAoA_27BNK4Wnb1wi3DJQtk_5fTLXSPpHSGcj7LJwj0XRmaajDqkdqmeDEbtSeyHuFZ5jej4mC5ECqtaKfGsjWHFfi5mF2CDQjIxknqWsZmZa15sDwFlRnHqoA4R3Gau__3DwetKXZYcDCr1gT-xYmMT3D_z2PAL0T2FPkMRg.jpg" width="400"><br>
+
+ولادیمیر پوتین، رئیس‌جمهور روسیه، روز شنبه ۱۹ اردیبهشت، ساعتی بعد از برپایی رژهٔ «روز پیروزی» در مسکو، گفت که معتقد است جنگ اوکراین در حال اتمام است.
+او بدون اشاره به جزئیات بیشتر دربارهٔ این جنگ به خبرنگاران گفت: «فکر می‌کنم این موضوع در حال پایان یافتن است.»
+روزنامه فایننشال تایمز روز پنجشنبه گزارش داده بود که رهبران اتحادیه اروپا در حال آماده‌سازی برای مذاکرات احتمالی هستند. وقتی از پوتین پرسیده شد آیا حاضر است با اروپایی‌ها وارد گفت‌وگو شود، او گفت که گزینه ترجیحی‌اش گرهارد شرودر، صدراعظم پیشین آلمان، است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75366)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 00:29:22
 
 
 
@@ -21,7 +73,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 23:34:33
+###### 🔵 Updated at: 2026-05-10 00:29:22
 
 <img src="https://cdn4.telesco.pe/file/ajKy4QswZ6_cJ5DIp5TUyRZhoRiWqE4ugdByPiGAxxou9OmNiMxbGw_hSi3rBgE--hD7Jcx_qvxDS12bF5rSTgOYwdKfUD2aUSjAwSbAuhzDo2AWPDSrWPiNpDcRXvnmhvRqiWZZz8Zrveo2z2XhejIsE0jcJ1SoX9PIPpDj6Acy6S5sGMddMBM9KsTqdFjLFHxLVeDllZ6A6ZFE6_AI5MQi-sEetzJINwSoq2yu-dQj6myfCg-GDRGaxhRADvHx5M27cSbDFRUiPWPgqu8Hx7I-iZaKfUPHZYUweH6yFGA4jCCJEgA0MNx6CQ6RY4fw1hwgjl6oaOKwD340kllm2Q.jpg" width="400"><br>
 
@@ -39,7 +91,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 23:34:33
+###### 🔵 Updated at: 2026-05-10 00:29:22
 
 <img src="https://cdn4.telesco.pe/file/hCovR5rjQ7GmFYo3YsFpVJIFzGkD5o7PZ656heCe55U5OadEB4q33iSgvUYuDqI0Gin9wIkO2Xn3r3IhmtkfnYo_n7vGUsaCkqikZnT7qcVNkZ6JuBizzPoEj_ny7OgMTvZHdgdTdwsCOSp4Y7G4T6Z8ypD7euHa3G6g5YQ_0bXkx1gV8W2IBP_heHY0jgl_1j2b7XhomuJKNTOSnMaL-yGefWBUYrHCVrUqrV-HPIYBQirM9QjvxsjWFi5UXZFRdaNCIDQ55GGnsueFRMYzc_3ahlv0uev2wpVF5smRcRBwcpoB-c2x_e74Woj6KK9y4QASW7YeP0sLfjiMI9xzdg.jpg" width="400"><br>
 
@@ -55,7 +107,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 23:34:33
+###### 🔵 Updated at: 2026-05-10 00:29:22
 
 <img src="https://cdn1.telesco.pe/file/fuavnaWkCQ_sd_d5SGQy7AVi0NlHcTzWKe8DIaZhgAzj6DRBMRk5wFOP6DzPdlA-hu5aTkqJQBm5V-JJ2mw3TEAM8XUqFMsKECVJ-QanTIssLmgEmgFMCrpryg2mVz9jwkxJagl7ElEwAAL3B3_LHD8vgcUD4TZB3jecgYxHyI3yvjAOZkW3MYWFf_6jI3PANIQHCZlAziT_54zxN0v_Ukl7awuA1vfQJ84VhpO3K_K9_i-BM9yqu3AjIUN8Vgyf725t8w_jlLlD5Fua79_qeotxIx__7u-iSK7t0nHCWfBzoNGkM6KUy8B0m4SbZzg5LxI7ug-rcONtvHMhHqVP2g.jpg" width="400"><br>
 
@@ -70,7 +122,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 23:34:33
+###### 🔵 Updated at: 2026-05-10 00:29:22
 
 <img src="https://cdn4.telesco.pe/file/nNC0w5QLwwdjsCFSXHdc_L08nfwaNwODXY-9j1XgM4aXyFteu7mlOjuP1LLLihpTgbCmq7a6BT2v8OR0LlWLbHExOJlEdY-jo3lS3iI0FY-rlysa-dQ9QOOKLQjQA7HG1tmtMpE-K1Bvi0jh3xdHMFBSCbyOhbHLq238XYqwXNT9xSceYCicCLnKOSLTqHti_3Eu4xpIJ--ZamMH_NyyCu_mbhDtH5aH-o2MEYbaydQOop7IAP5slY5MrLXPtextuqv72J9ZnxjfXQlRiKAukzzCi0oN15xwYTV_oCZdce0JptpQON0r4nXQ1jkx1qT4r29AxiakBHN6qCG1GSNhGg.jpg" width="400"><br>
 
@@ -88,7 +140,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 23:34:33
+###### 🔵 Updated at: 2026-05-10 00:29:22
 
 <img src="https://cdn1.telesco.pe/file/miDpllLYTDqcLCJfuO4idxxiKwZv6AZBJ1SsZXXwiGQazvJyJ3tevF_GBjHEsg_x-DBUfADY1mCg_JQpbj0C5RYTFo3hZDeUeKzvImPrwxh3uu4InmtqiVjuM2wenL31ftqOsYnsOJOndsB6dE92e0uXaQCvGcAjJw63XpbzIhMXmnhpbZq2W4LucYQ8rea8rZ-b9y_KNen0vIuoTqWFXEqRIS3qko-RuBYjoZrsqsLICaFgrBssTMHsQs8rhUqwY58zm_AHhs3r-VAuL9o1JgH2qHBnv-sRyqIN5AWRtJNN3ncyZqTWxI2pnHR9d1d36pWCD5LCH81xmvmvbxIBDg.jpg" width="400"><br>
 
@@ -114,7 +166,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 23:34:33
+###### 🔵 Updated at: 2026-05-10 00:29:22
 
 <img src="https://cdn4.telesco.pe/file/vD_LXMZZ6KjmMSlQ01akVqVz3M0-J01E3ddCwruEY0TrIH3R5cP3SzfGxIjZMMKxFS6PI8GzxiDbJUh16MWKSTGlXZEI1w6peS4u6XnE_eZbdPLWJcGEq_l1K52I4PUBt-8MVmUoZaHD86DrQPbcnMyKZ_ILtblzLJ_1m4pCQsHp-Xm2LkFjOVd_NXqDHbpI9-bUeOsq5yUtjMIy45d7gQ22BuFXRJbCB5rtyEgLmvYekX8UBdxdNa7hO3E-IX_rvEVyrNQmrTO-UqLtpcix0iz5sa0CpEUw0KXPwodhiUCZnuH-nYQFZa_n2sb1oGJdRdsnr2mgIANcpgAejTYugQ.jpg" width="400"><br>
 
@@ -132,7 +184,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 23:34:33
+###### 🔵 Updated at: 2026-05-10 00:29:22
 
 <img src="https://cdn1.telesco.pe/file/sSx5B8zzxqE35hROSDVMLtBQk-cGXrk_VxoaP_9yuiXebQ1-DImE1gV1q6eERX7EWjapl0X3ifBOVvTScnI16IGzmL7zdGoZt6P752C-2FZzGK0aYdmuzu2uZ6nys_vZQwKLEJoWuZSwR3lmKyD-LIKKSFsBIWcsecR3JAmzGUF8GlB5U5PGYC-TvK9BO7951sjYFUsRUERm0cQ5JnJNIxnqUryFX_Jw9yruQKKaTE0bHCUnrN-e4LQEcuiDkNH83xLedg5x5anZb8mcGdoL_YJTkgcxszReSEb4etv6aWUkAFAxoEjs_68LUVdKdWlc-p0zG26M2WLXSvt6AYsd7A.jpg" width="400"><br>
 
@@ -159,31 +211,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75348)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 23:34:33
-
-<img src="https://cdn1.telesco.pe/file/KkE8GkBHivNvgOXsrlLuhoO4cdZyz74TguyFDbZixMReZvHyoypE0fiZfwAq-hbUdBCGXsthggVJ68qBn4WHO9zuwOpJ1WNSv2bW83O3eMTyL91dW_aJYxFPyMo0SYgdLpqlqUJlAUzVx7kwwsCXHRizDf3KRhpZNvQMZZEnII6D4NmTypzy9UwLwtXBEMXWTVmVqyaT58SHvVrt2bY2_SbesQLiU9l1l6lKCW0As9oLQoHS1d41S-sWzob_G7atxwyNJtB_eZJoDxliZnu4rVSYDUBFeK86oydN9oGL-GhM_IAiYY3cl0dkdPWE6NuIO8mZDYeGfEkxr5_SxkBWJQ.jpg" width="400"><br>
-
-تازه‌ترین داده‌های مرکز آمار ایران نشان می‌دهد قیمت برخی کالاهای اساسی خوراکی در فروردین ۱۴۰۵ نسبت به مدت مشابه سال قبل جهش کم‌سابقه‌ای داشته است.
-بنابر این گزارش، روغن جامد با تورم نقطه‌ای ۳۷۵ درصدی، بیشترین افزایش قیمت را در میان اقلام خوراکی ثبت کرده و قیمت آن از حدود ۸۱ هزار تومان در فروردین ۱۴۰۴ به بیش از ۳۸۵ هزار تومان رسیده است. روغن مایع نیز با افزایش ۳۰۸ درصدی، از حدود ۷۴ هزار تومان به بیش از ۳۰۰ هزار تومان رسیده است.
-برنج خارجی درجه یک با رشد ۲۰۹ درصدی، مرغ ماشینی با ۱۹۱ درصد، سس مایونز با ۱۹۰ درصد و تخم‌مرغ با ۱۷۰ درصد افزایش قیمت، از دیگر اقلام پرتورم بوده‌اند.
-این جهش قیمت‌ها در حالی رخ داده که فعالان کارگری سبد معیشت خانوار کارگری را بیش از ۷۱ میلیون تومان برآورد کرده‌اند، اما حداقل مزد پایه ماهانه کارگران در سال ۱۴۰۵ حدود ۱۶ میلیون و ۶۰۰ هزار تومان است؛ شکافی که نشان می‌دهد حتی درآمد رسمی کارگران فاصله‌ای چندبرابری با هزینه حداقلی زندگی دارد.
-@
-VahidHeadline
-خبرآنلاین در گزارشی نوشته اثر افزایش ۶۰ درصدی حداقل مزد سال ۱۴۰۵ تنها در ۴۵ روز از بین رفته و قدرت خرید کارگران دوباره به سطح پیش از افزایش مزد بازگشته است.
-بر اساس این گزارش، حداقل مزد پایه ماهانه امسال ۱۶ میلیون و ۶۲۵ هزار تومان تعیین شد؛ رقمی که در روز تصویب، با دلار ۱۴۳ هزار و ۷۰۰ تومانی حدود ۱۱۶ دلار ارزش داشت. اما با رسیدن دلار به حدود ۱۹۰ هزار تومان در نیمه اردیبهشت، ارزش دلاری مزد به حدود ۸۷.۵ دلار سقوط کرده است.
-خبرآنلاین نوشته قدرت خرید مزد بر اساس طلا هم افت کرده؛ حداقل حقوق که در اسفند معادل حدود یک گرم طلای ۱۸ عیار بود، حالا به ۰.۸۱ گرم رسیده است.
-این یعنی افزایش اسمی دستمزد، زیر فشار سقوط ریال، تورم و سیاست‌های اقتصادی جمهوری اسلامی عملاً خنثی شده و کارگران دوباره با شکافی عمیق میان درآمد و هزینه زندگی روبه‌رو شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75346)
 
 ---
 
