@@ -3,12 +3,30 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-09 20:38:31
+###### 🔵 Updated at: 2026-05-09 21:32:54
+
+
+
+ویدیویی از تجمعات شبانه طرفداران جمهوری اسلامی منتشر شده که در آن فرد خواننده می‌گوید زنان «کم حجابی» که در تجمع طرفداری از حکومت شرکت می‌کنند «نور چشم» آن‌ها هستند و ظاهر افراد ملاک نیست.
+نظام جمهوری اسلامی پیش از این زنان بدون حجاب اجباری را بازداشت کرده و طی لایحه‌ای به نام «حجاب و عفاف» قصد ابلاغ جریمه‌های و محرومیت‌های سنگین علیه آنان را داشت.
+با این حال، در هفته‌های گذشته حکومت سعی کرده با انتشار ویدیوها و مصاحبه‌هایی از تعدادی زن بی‌حجاب در تجمعات حکومتی، پایگاه اجتماعی خود را گسترده نشان دهد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75365)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-09 21:32:54
 
 <img src="https://cdn4.telesco.pe/file/ajKy4QswZ6_cJ5DIp5TUyRZhoRiWqE4ugdByPiGAxxou9OmNiMxbGw_hSi3rBgE--hD7Jcx_qvxDS12bF5rSTgOYwdKfUD2aUSjAwSbAuhzDo2AWPDSrWPiNpDcRXvnmhvRqiWZZz8Zrveo2z2XhejIsE0jcJ1SoX9PIPpDj6Acy6S5sGMddMBM9KsTqdFjLFHxLVeDllZ6A6ZFE6_AI5MQi-sEetzJINwSoq2yu-dQj6myfCg-GDRGaxhRADvHx5M27cSbDFRUiPWPgqu8Hx7I-iZaKfUPHZYUweH6yFGA4jCCJEgA0MNx6CQ6RY4fw1hwgjl6oaOKwD340kllm2Q.jpg" width="400"><br>
 
 مقام‌های لبنانی روز شنبه اعلام کردند که در حملات هوایی اسرائیل به جنوب لبنان، هشت نفر کشته شده‌اند. همچنین بزرگراهی در جنوب بیروت هدف حمله هوایی قرار گرفت.
-این حملات تازه با وجود آتش‌بس سه‌هفته‌ای میان اسرائیل و حزب‌الله، گروه مورد حمایت ایران، انجام شد؛ آتش‌بسی که تأثیر چندانی در توقف تبادل روزانه آتش، عمدتاً در جنوب لبنان، نداشته است.
+این حملات تازه با وجود آتش‌بس سه‌هفته‌ای میان اسرائیل و حزب‌الله، گروه مورد حمایت [جمهوری اسلامی در] ایران، انجام شد؛ آتش‌بسی که تأثیر چندانی در توقف تبادل روزانه آتش، عمدتاً در جنوب لبنان، نداشته است.
 حزب‌الله روز شنبه اعلام کرد که در واکنش به ادامه حملات، نیروهای اسرائیلی در شمال این کشور را با پهپاد هدف قرار داده است.
 @
 VahidHeadline
@@ -21,7 +39,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 20:38:31
+###### 🔵 Updated at: 2026-05-09 21:32:54
 
 <img src="https://cdn4.telesco.pe/file/hCovR5rjQ7GmFYo3YsFpVJIFzGkD5o7PZ656heCe55U5OadEB4q33iSgvUYuDqI0Gin9wIkO2Xn3r3IhmtkfnYo_n7vGUsaCkqikZnT7qcVNkZ6JuBizzPoEj_ny7OgMTvZHdgdTdwsCOSp4Y7G4T6Z8ypD7euHa3G6g5YQ_0bXkx1gV8W2IBP_heHY0jgl_1j2b7XhomuJKNTOSnMaL-yGefWBUYrHCVrUqrV-HPIYBQirM9QjvxsjWFi5UXZFRdaNCIDQ55GGnsueFRMYzc_3ahlv0uev2wpVF5smRcRBwcpoB-c2x_e74Woj6KK9y4QASW7YeP0sLfjiMI9xzdg.jpg" width="400"><br>
 
@@ -37,7 +55,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 20:38:31
+###### 🔵 Updated at: 2026-05-09 21:32:54
 
 <img src="https://cdn1.telesco.pe/file/fuavnaWkCQ_sd_d5SGQy7AVi0NlHcTzWKe8DIaZhgAzj6DRBMRk5wFOP6DzPdlA-hu5aTkqJQBm5V-JJ2mw3TEAM8XUqFMsKECVJ-QanTIssLmgEmgFMCrpryg2mVz9jwkxJagl7ElEwAAL3B3_LHD8vgcUD4TZB3jecgYxHyI3yvjAOZkW3MYWFf_6jI3PANIQHCZlAziT_54zxN0v_Ukl7awuA1vfQJ84VhpO3K_K9_i-BM9yqu3AjIUN8Vgyf725t8w_jlLlD5Fua79_qeotxIx__7u-iSK7t0nHCWfBzoNGkM6KUy8B0m4SbZzg5LxI7ug-rcONtvHMhHqVP2g.jpg" width="400"><br>
 
@@ -52,7 +70,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 20:38:31
+###### 🔵 Updated at: 2026-05-09 21:32:54
 
 <img src="https://cdn4.telesco.pe/file/nNC0w5QLwwdjsCFSXHdc_L08nfwaNwODXY-9j1XgM4aXyFteu7mlOjuP1LLLihpTgbCmq7a6BT2v8OR0LlWLbHExOJlEdY-jo3lS3iI0FY-rlysa-dQ9QOOKLQjQA7HG1tmtMpE-K1Bvi0jh3xdHMFBSCbyOhbHLq238XYqwXNT9xSceYCicCLnKOSLTqHti_3Eu4xpIJ--ZamMH_NyyCu_mbhDtH5aH-o2MEYbaydQOop7IAP5slY5MrLXPtextuqv72J9ZnxjfXQlRiKAukzzCi0oN15xwYTV_oCZdce0JptpQON0r4nXQ1jkx1qT4r29AxiakBHN6qCG1GSNhGg.jpg" width="400"><br>
 
@@ -70,7 +88,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 20:38:31
+###### 🔵 Updated at: 2026-05-09 21:32:54
 
 <img src="https://cdn1.telesco.pe/file/miDpllLYTDqcLCJfuO4idxxiKwZv6AZBJ1SsZXXwiGQazvJyJ3tevF_GBjHEsg_x-DBUfADY1mCg_JQpbj0C5RYTFo3hZDeUeKzvImPrwxh3uu4InmtqiVjuM2wenL31ftqOsYnsOJOndsB6dE92e0uXaQCvGcAjJw63XpbzIhMXmnhpbZq2W4LucYQ8rea8rZ-b9y_KNen0vIuoTqWFXEqRIS3qko-RuBYjoZrsqsLICaFgrBssTMHsQs8rhUqwY58zm_AHhs3r-VAuL9o1JgH2qHBnv-sRyqIN5AWRtJNN3ncyZqTWxI2pnHR9d1d36pWCD5LCH81xmvmvbxIBDg.jpg" width="400"><br>
 
@@ -96,7 +114,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 20:38:31
+###### 🔵 Updated at: 2026-05-09 21:32:54
 
 <img src="https://cdn4.telesco.pe/file/vD_LXMZZ6KjmMSlQ01akVqVz3M0-J01E3ddCwruEY0TrIH3R5cP3SzfGxIjZMMKxFS6PI8GzxiDbJUh16MWKSTGlXZEI1w6peS4u6XnE_eZbdPLWJcGEq_l1K52I4PUBt-8MVmUoZaHD86DrQPbcnMyKZ_ILtblzLJ_1m4pCQsHp-Xm2LkFjOVd_NXqDHbpI9-bUeOsq5yUtjMIy45d7gQ22BuFXRJbCB5rtyEgLmvYekX8UBdxdNa7hO3E-IX_rvEVyrNQmrTO-UqLtpcix0iz5sa0CpEUw0KXPwodhiUCZnuH-nYQFZa_n2sb1oGJdRdsnr2mgIANcpgAejTYugQ.jpg" width="400"><br>
 
@@ -114,7 +132,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-09 20:38:31
+###### 🔵 Updated at: 2026-05-09 21:32:54
 
 <img src="https://cdn1.telesco.pe/file/sSx5B8zzxqE35hROSDVMLtBQk-cGXrk_VxoaP_9yuiXebQ1-DImE1gV1q6eERX7EWjapl0X3ifBOVvTScnI16IGzmL7zdGoZt6P752C-2FZzGK0aYdmuzu2uZ6nys_vZQwKLEJoWuZSwR3lmKyD-LIKKSFsBIWcsecR3JAmzGUF8GlB5U5PGYC-TvK9BO7951sjYFUsRUERm0cQ5JnJNIxnqUryFX_Jw9yruQKKaTE0bHCUnrN-e4LQEcuiDkNH83xLedg5x5anZb8mcGdoL_YJTkgcxszReSEb4etv6aWUkAFAxoEjs_68LUVdKdWlc-p0zG26M2WLXSvt6AYsd7A.jpg" width="400"><br>
 
@@ -146,7 +164,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-09 20:38:31
+###### 🔵 Updated at: 2026-05-09 21:32:54
 
 <img src="https://cdn1.telesco.pe/file/KkE8GkBHivNvgOXsrlLuhoO4cdZyz74TguyFDbZixMReZvHyoypE0fiZfwAq-hbUdBCGXsthggVJ68qBn4WHO9zuwOpJ1WNSv2bW83O3eMTyL91dW_aJYxFPyMo0SYgdLpqlqUJlAUzVx7kwwsCXHRizDf3KRhpZNvQMZZEnII6D4NmTypzy9UwLwtXBEMXWTVmVqyaT58SHvVrt2bY2_SbesQLiU9l1l6lKCW0As9oLQoHS1d41S-sWzob_G7atxwyNJtB_eZJoDxliZnu4rVSYDUBFeK86oydN9oGL-GhM_IAiYY3cl0dkdPWE6NuIO8mZDYeGfEkxr5_SxkBWJQ.jpg" width="400"><br>
 
@@ -166,26 +184,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75346)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-09 20:38:31
-
-<img src="https://cdn4.telesco.pe/file/AZS31yh6JvTe-n9mkazLWmi2t7w5LZkt6BFYWXqHHqesGaMljx5AsK9y0GRNmOURzDXCDGXaJGmuRvAH5H0aHD61YlCRgSikImBs4228XqNqTIy58Pha0vWrVcC4bbHjE73OJ_c7ETa3Mjo9wrnJqzQaN-WFHQa1U3JvLxjXTsLZoTI6pnaRaunAM7sWB4R-lG6AhHbLKyQlrgx2rfVMcqB2ehRw0uKazdGfHecG7d177KZULZG_9xlCHMzmNYma6Rx5MAKWtTsDSVw5HrE4TexJZ65BPG3wWHJwcRhiRvwMGGenAEfD58DKsXEUfoU0_x8vhLLBZ58tQipqTS9oFg.jpg" width="400"><br>
-
-روز جمعه،‌ ۱۸ اردیبهشت، یک خبرنگار در کاخ سفید از دونالد ترامپ درباره نتیجه تحقیقات دولت آمریکا درباره حمله به مدرسه میناب پرسید.
-او در پاسخ گفت که این مسئله هم‌چنان در حال بررسی است و نتیجه تحقیقات «به محض آماده شدن» در اختیار خبرنگاران و رسانه‌ها قرار خواهد گرفت.
-در جریان حمله به مدرسه‌ای دخترانه و پسرانه در شهر میناب در جنوب کشور که در روز آغازین جنگ مشترک آمریکا و اسرائیل با ایران رخ داد دست‌کم ۱۲۰ دانش‌آموز و ۲۶ معلم کشته شدند.
-چند روز پس از حمله، تحقیقات رسانه‌ها نشان داد که این مدرسه که در نزدیکی یک پایگاه دریایی سپاه قرار داشت با موشک‌های آمریکایی هدف قرار گرفته است.
-از آن زمان تاکنون هفته‌هاست که پنتاگون اعلام کرده است در حال تحقیق درباره چگونگی رخ دادن این حمله است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75345)
 
 ---
 
