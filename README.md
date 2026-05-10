@@ -3,7 +3,28 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
+
+<img src="https://cdn1.telesco.pe/file/Q53BpCVHLOVwul5xzy0dCxH7269RVf_iF0ldNkkKb0NZXn4W79Jdq2bP6ZK_7BZhsCvQL3hjyecQnZxeLKr-UUGMy9rT537teJ7ZrtXMK5Kd8DSconveuzrzXYROM28XCTH45N6ml7pamZLCcfdZEbLxN7Xr1MsIs5pqaqCnJWLREyWskFCTNDOmJEujugzgF9AZiop9T7vWudxnQyQFgX8RFTLVZry6azf7IcT0kJ61SlFAJY12g2nTi-WqsabEvE2u04xGrEsfsP4lJnoznEognf1TWYf3q062LSof-rDclrPt9MctflUv1e7Q-pXHj-L4DQHalCSda1fB0h3aXA.jpg" width="400"><br>
+
+ترامپ: آن‌ها دیگر نخواهند خندید
+پست تازه ترامپ پس از آن که جمهوری اسلامی گفت پاسخش را از طریق پاکستان ارسال کرده. ترجمه ماشین:
+ایران به مدت ۴۷ سال با ایالات متحده و بقیه جهان بازی کرده است؛ «تعویق، تعویق، تعویق!» و سرانجام وقتی باراک حسین اوباما رئیس‌جمهور شد، به گنج رسید. او نه‌تنها با آن‌ها خوب بود، بلکه عالی بود؛ عملاً به طرف آن‌ها رفت، اسرائیل و همه متحدان دیگر را کنار گذاشت و به ایران یک فرصت تازه، بزرگ و بسیار قدرتمند برای ادامه حیات داد.
+صدها میلیارد دلار، و ۱.۷ میلیارد دلار پول نقد سبز، که با هواپیما به تهران منتقل شد، مثل هدیه‌ای روی سینی نقره به آن‌ها داده شد. همه بانک‌ها در واشنگتن دی‌سی، ویرجینیا و مریلند خالی شدند. آن‌قدر پول بود که وقتی رسید، اراذل ایرانی نمی‌دانستند با آن چه کار کنند. آن‌ها هرگز چنین پولی ندیده بودند و دیگر هم هرگز نخواهند دید. پول‌ها در چمدان‌ها و کیف‌ها از هواپیما پایین آورده شد و ایرانی‌ها نمی‌توانستند خوش‌شانسی خود را باور کنند.
+آن‌ها بالاخره بزرگ‌ترین ساده‌لوحِ همه تاریخ را در قالب یک رئیس‌جمهور ضعیف و احمق آمریکایی پیدا کردند. او به‌عنوان «رهبر» ما یک فاجعه بود، اما نه به بدی جو بایدن خواب‌آلود!
+ایرانی‌ها ۴۷ سال ما را سر دوانده‌اند، ما را منتظر نگه داشته‌اند، مردم ما را با بمب‌های کنار جاده‌ای خود کشته‌اند، اعتراضات را نابود کرده‌اند، و اخیراً ۴۲ هزار معترض بی‌گناه و غیرمسلح را از بین برده‌اند و به کشور ما که اکنون دوباره بزرگ شده است، خندیده‌اند. دیگر نخواهند خندید!
+رئیس‌جمهور دونالد ج. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75386)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/hThiqU5CrFKkKndWR4uIvnEIRatkOPNumP96cg7lfNGkfeXV5kqX0qnTQuyzkpNAkx8Q3zpXVv0X2GVKVChR7LBNpfGtVP5mFm9ZY-80SvInaEZLYu6fgR4XWDWQjqGWzH7a5LUr3SLSskO7k9wqHRDdRMHoyiVufDDUowvOexC6Iyzsivo8wUSKumIDZXTUs0zsuAgYdVVq_qstl0QC2IGbf9r8AJyqQLtOTOoAyypTPBf58Po280TQHOYAL-cF1CWqwVtmxythnRRv-xu_iEEjnYGi_AtdS_CzC9PFPXmsTeLZL3UsLnvpVUxgtGEsxhjvt_t6JthA7oQlJuscWw.jpg" width="400"><br>
 
@@ -22,7 +43,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn1.telesco.pe/file/vZULu8J-xjlcMTvlQtlbms6PxVFFXIHxhLhmaox9bdfY6RHPYUA-AsSgX7K3hjqmQScVLhThqCJXCeXBH8Rq2zxIlAG2kBU4EdSwBAbXtqB575NzPhDE68_aigy1rkAS6LFdy4vnzUYyVbwzRbopaFGkvd_jhE896Trg1o0moByOL0_qHFTUQ5OAI-vehxSjUjmNw3uErOKhN6o2SR3r3QXG7pB3zcqDQpbvN58R6FrPAk-Of8N62nX9di6YaqflYybINmwkzFAehPejC3Rud9v5F7uC-LyRQ9eDng5pZNUTQUvLP4qmofpSQq8Z3TNQJsZuyZcLJJa8CYgwdecEEQ.jpg" width="400"><br>
 
@@ -36,7 +57,7 @@ Afkham_minus
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/vJjZiRd5gjHONTbzo9ds-6DUTJ8VX6gtV4syVE6kQFa2T8065RI5zEURQhn_XB13tYHJZhDSy4CyvYJlutvQy6zI566t6gJxGYkAxn283gbayYOwhcaxn3BzkLXHMM7yqWZBt6sGkTqBAVripbdOfjnA3oWRulsMVHNpRbST5MmHqMcmJpHxeOiKQnE2iK-w65f2wdVeN0OGRFTYZOLpdSE3RD5g-QK0cmbBQtRonIyX_mPBhINGfBL_IEIkbUBzK5NjebDxelWJHzr6JVOlvmVlnjCKn1eT-l3ED988qF81pFzjVhUVe6K-NyOM8xmftChd05xHp4-ePlgHlG2urg.jpg" width="400"><br>
 
@@ -54,7 +75,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn1.telesco.pe/file/NuO3SYrEbGp8dYaqHroIy34NoxggNhNHr5zMVZRb_4p1xCzAAgz0MMtjk6ZGGjMcU7-zi3NfP-TYpnQ54bpMoZd01j-ZW-GZzLtXOoAxPBkY979wd0eDEcfk3wmuaeyQz8oANiJp2FpIJS7ESNb4-XsCNQkG4TrKB-9TrExbonyi-ogupS5DV_KdN7H6zMUAN50j0PH4pGDUipAEkx4D2HEOTKuEc4oRHl0c73W-YCLrivqmQUfuZHfpzX_lW7sm0xPqgw32oe9qERucg1eklmmo2sZXF70FXzt0Yi-wAz__yRva8gWFAS2vj9_s8bvEHjU_cMQzqRSn3q59tKrh6A.jpg" width="400"><br>
 
@@ -85,7 +106,7 @@ IranIntl
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/D5fuz6Vf6pwJ0L6jYzrVXYK3q4l71n9BxyKdBUY0QGk4o5pTkuhQAITaIQ4iq8PqXzQcU4-QvYS_qPWlfhBglvkI8NU0vv1qWUyTwdR1X6RCZvddG9lE6gaY_XQrJD4Q-xvAksu4_y96UpQL7ZQcvUfgC5a-EDytoAIRbkO6aAiG0pA1bQlklFSFtU_EuQffS9UCTmQUDgb_oYIf-KjhC8o2eK_tTMQ1iYCd3BG0tSQPa0YOnueqkMcC3EnURxR5ciiocUWTK-02L9j8oNmEYeyMLLUjd3-Zzp2qrj3CpYCdnSZDzOUmrpQVEIMsf8-SbeTmzy63NqIhxXcyY5hbjA.jpg" width="400"><br>
 
@@ -107,7 +128,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/a6qs4gpzwXlDsNekkChbNoCQ14lctcyfVH4KBP2Us9lr1fo-rmkerpCPh9ZwDfbdjOEqUk8AgmV72DCMpN61v8cW0UUL5m25mVh-_cx9XQtNV5vuH3lInVr-UxkJ7lfBbVqc4w5_Ihpc3X5cwT8hZVs9iSNKfyS2J-zUs6vDxNPjnZJWRRkn_mzIPiRZBuhGXgppy5yG_Xi42-dmbFlBnkrUnd6J1B2ROMDlxQKeaiFWGI8Dvuw3XPI60fT8v4neuYuWE3BBO0iZalM3V8R0Mh9Yb_v_HnJaMcLTjwn9LlLUx6ELg3VmG073SmaLFMuKP6pdSh2a-z9hzuT98oFXZA.jpg" width="400"><br>
 
@@ -125,7 +146,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/na2oOEDLccYFSsUrvcIgyWPDLgrEygrFibnUq3Tj94QdUcJYFMYuir5A3WN0P7aNFYBmyNLqXNV6mKqMaP-mzL_kBNwagweRXp2HpDckQxr1c4MJg18gd3EHXmxdET87_-wVOkF6VCXy0Nts22LN5u_FPgPqQgOX0kfMrtfME0QyAmQILCJGFeQCKJ_6sXy8nGUB9dlsnnIHrmLzGtO7E7VRQpN8cdr5zI3NXc7dtjcKNWPYP01ygn239Q98CQidX-VxE-5ZPqHyPjTGbyNPg3mklc707G_ytX2xPDskfMzXnWx3ekVN6vlybI0TX5xppOPLlQf1xV7bAZpeEwxKAQ.jpg" width="400"><br>
 
@@ -143,7 +164,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/OdOM2VP2pwHG_0QPpwIeNivJSHuwdeaz9UIWXdf3esRJrsGbEL3snj2ohGiu-NiYMDV0ZIO0NhV1pJLMqqYMrlodK7K4sRBMGENykE6kkJHaru50bdm4t1lEnaj7q-xfDuE7D2dvfPYuMfmQWxRwk4JeGqeybR_kFpKZQeuPmJ2HpNNxjXfcXW-mEUcYkAbo4jqb-q3IV6ivN8Z74CVj2h6YqgaTrxErPyIKOgsGQ-gMXEHc0T8mX1mrAQ1ePoGkvUoqT-tjAlOi25gHrjHz-0G8sxWvb0pneX0xrARn5ODi-iwHXx9nTwCUvp9zdPZXtg5JlEJ7l0eBPJSLIDNAUw.jpg" width="400"><br>
 
@@ -162,7 +183,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/hXkV2bRjLaWLyEJMhBi8z2dLOAckBw6ftumBjq1nx9VGYpsy57cWzsv9zD6JaMZt3-ByADcU98ptuy0UbVQ0paZ5nc73HrXjRpGzRs0JwxwwMB6D_NhlTYbUB54vd_MU-gqh1VliTb22ZpA7CDuujclpf4yg4Jsi9D1Qb7XbGKSeJd-FNxBAHhpg9etGXf-pOkNGWPutSWCeaeqfnMGJm10dPF-v6CqG_8K2I752copn3fVvjV6cS0Ymu6gxrfDtVm4g75RFhx1X7roMjdo-97rMXDfZSd1fGiyd9CMLGRksgIs9weeyaXQZPSUtoQuTiJmZjqyWUjVtvEtS5BhtXQ.jpg" width="400"><br>
 
@@ -181,7 +202,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/PizTiCrRxFUIiRTh03dawdAErJ2Du-Y862iUq5yyIa4yr6ff-oSJr00SrZ78RDu589VHbOhNZN730NDCWMgSHfllM2KszWmQ2Di5GDN5RlktDGvk6V8CxFmMU4oPUvFmbIGJIa7Bg19BlvFjRfZBpdcCCOgJ8U9Ou27rqzQ1ir_jMabjs65BMYMy7wvTYjJpvekg84LwSmBa6FnwlOELoMt46QJlFAoKoa6hCsQKm81eij96PDZRk_Qt9eW50wdwvsCe1dAYM-Bjg2cI0Q8HKq0YBlh7aSN8uRyQboglMcLZQq-THkmFWMR5wpZ6oEVNAJJZeOlrOsnOsHao9j75AQ.jpg" width="400"><br>
 
@@ -202,7 +223,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/eHHgO53I-wn9ehLlXCCpBHfE8e18-Cy0qfIcEOVqviozu_gVrnpAyemyBKQKuhoxrqu9nHKdu0TCRc37pZNfW1nIgzZskBsgKF7HtJqPiA9JMNgnkPUmJPMRDQk-Az8MckbMwthMyEd5gQg4donUpTn4CVgq5fta1XCC6DOiGGfoG85hJl_T8EmAh_EKDOK_MGHf9hUZFsEgTW7JC906uf9bYG6jB7R2MBuPxudue2dlZpIZDPoZOLpJzgk4rc0suO8oCREcfDKC3r0nu8lBQk0aB42hFRlNYrt4zybcNgLQpHMupBuCxxzeTz_50yU1uixJ79SpwfuHuNHdUL6O-w.jpg" width="400"><br>
 
@@ -221,7 +242,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn1.telesco.pe/file/WLFjAGJgkqAQ5DLt3px7Y3_-eLBHx1f_Kb1T84fZKvklvKpZSXjq6Of-G4RheRVB2ptlrKZBJsoT9jYe602tLAOiZeV5ZgAGuQJeNM8wSGOH3slzPbavlWUJmLT9shkQDs-V6HWrCS2w-tw_J4q8OGpWmDHeXNRzn3aAUmSBribka2wghADz2x1_vcXjhNlR2X2bRZy1BLrXfcgWZPldO-uvlvMY2f--de-_Lqbzu6oiyjgD0dPLWdaAFVP-Ntu65_tRh2NoHr5R5bV6UaXRPAQf7ufzdfo-JBMSN4u-thVYiHWdvR0zhFz9kbOTLqpF5xPoMgITTVWT5MXvlBhUfw.jpg" width="400"><br>
 
@@ -237,7 +258,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn1.telesco.pe/file/PL1XICXY1Cs9iKF3pL2xLlgD4OgvD7WnJFwqnCo2t5FOkG5FkJao2WLniYhaiSPuL3h5TdUJ-0JGp-bi31ryjFjRmhB2nsQUeofGMQ7hVdVxoZ9W--sAi9VlD4D21yeaHH0YLG27vrOoHlAZ9O7O30JgtdaXQ56ava2ZR1wJIYxU1UjwjTGR1JDiuK3sa2udUfhYilP9i4R8upCZrOiFwgTPglXixtY0qBvlYrFTECufxrFrgffEyuBEZM-FERSeotCK7AGV3m7fU_GSeO8NXln_A7G9VOw-fF_LFGKOjV0hDnMbML8Ojy3DbB_4oUqsKzGJdGbS82xegabGhItDrw.jpg" width="400"><br>
 
@@ -252,7 +273,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-10 21:06:13
+###### 🔵 Updated at: 2026-05-10 22:08:13
 
 <img src="https://cdn4.telesco.pe/file/srlCyM4lroAavTzijkVUboKUSVEWQrVpXMMiv_ZQXRtas4L06gE6ImhI4ZhlILKWRQdIjW4L70g-4CBauIcwOBlUBk2bediqIj0JHcalbpg0YwV1g_nk-hTPssmsAMca37G8E6hlYlN33GLbRrZF3RR2rh8h6ITH23kn0AA3u6RmwDZ-gVxpNiIt_3ZPRRXBV5y06MMMraYEuBGFGc8yisT3ZtoJpW2ru6CDIkKQrVwfmgMY4cm4wkihRkt0SNjCWCpvojf7NEV8FXYpX4zyS7IVcsKLDhIr914axmaICcGN6y-q70g29iaPbY3eSLg1wvUy-JHs5w77XOVb3LW54w.jpg" width="400"><br>
 
@@ -266,24 +287,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75367)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 21:06:13
-
-<img src="https://cdn4.telesco.pe/file/i6RK2B1HPeuSU-6YfznboI7678gkgjR2CEZQObTjQ6de98bCmOjZVkYQTAd61zCeg_EncBK_x-vUYVykUrQLorljdFnKNBfvub8kjcUEPSS8IijGGt0aSnBlMxKpnDqx_z5uewhp2lJjeEgNlA6GsFTZPbbXQBZRFC_ZCVMUIN_ITWAoA_27BNK4Wnb1wi3DJQtk_5fTLXSPpHSGcj7LJwj0XRmaajDqkdqmeDEbtSeyHuFZ5jej4mC5ECqtaKfGsjWHFfi5mF2CDQjIxknqWsZmZa15sDwFlRnHqoA4R3Gau__3DwetKXZYcDCr1gT-xYmMT3D_z2PAL0T2FPkMRg.jpg" width="400"><br>
-
-ولادیمیر پوتین، رئیس‌جمهور روسیه، روز شنبه ۱۹ اردیبهشت، ساعتی بعد از برپایی رژهٔ «روز پیروزی» در مسکو، گفت که معتقد است جنگ اوکراین در حال اتمام است.
-او بدون اشاره به جزئیات بیشتر دربارهٔ این جنگ به خبرنگاران گفت: «فکر می‌کنم این موضوع در حال پایان یافتن است.»
-روزنامه فایننشال تایمز روز پنجشنبه گزارش داده بود که رهبران اتحادیه اروپا در حال آماده‌سازی برای مذاکرات احتمالی هستند. وقتی از پوتین پرسیده شد آیا حاضر است با اروپایی‌ها وارد گفت‌وگو شود، او گفت که گزینه ترجیحی‌اش گرهارد شرودر، صدراعظم پیشین آلمان، است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75366)
 
 ---
 
