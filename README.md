@@ -3,7 +3,70 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
+
+<img src="https://cdn1.telesco.pe/file/vZULu8J-xjlcMTvlQtlbms6PxVFFXIHxhLhmaox9bdfY6RHPYUA-AsSgX7K3hjqmQScVLhThqCJXCeXBH8Rq2zxIlAG2kBU4EdSwBAbXtqB575NzPhDE68_aigy1rkAS6LFdy4vnzUYyVbwzRbopaFGkvd_jhE896Trg1o0moByOL0_qHFTUQ5OAI-vehxSjUjmNw3uErOKhN6o2SR3r3QXG7pB3zcqDQpbvN58R6FrPAk-Of8N62nX9di6YaqflYybINmwkzFAehPejC3Rud9v5F7uC-LyRQ9eDng5pZNUTQUvLP4qmofpSQq8Z3TNQJsZuyZcLJJa8CYgwdecEEQ.jpg" width="400"><br>
+
+Afkham_minus
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75384)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 20:05:05
+
+<img src="https://cdn4.telesco.pe/file/vJjZiRd5gjHONTbzo9ds-6DUTJ8VX6gtV4syVE6kQFa2T8065RI5zEURQhn_XB13tYHJZhDSy4CyvYJlutvQy6zI566t6gJxGYkAxn283gbayYOwhcaxn3BzkLXHMM7yqWZBt6sGkTqBAVripbdOfjnA3oWRulsMVHNpRbST5MmHqMcmJpHxeOiKQnE2iK-w65f2wdVeN0OGRFTYZOLpdSE3RD5g-QK0cmbBQtRonIyX_mPBhINGfBL_IEIkbUBzK5NjebDxelWJHzr6JVOlvmVlnjCKn1eT-l3ED988qF81pFzjVhUVe6K-NyOM8xmftChd05xHp4-ePlgHlG2urg.jpg" width="400"><br>
+
+رحیم نادعلی، معاون فرهنگی سپاه «محمد رسول‌الله» تهران گفت: «در جشن بزرگ پیوند آسمانی زوج‌های جان‌فدا، خودروهای جیپ جنگی برای جابه‌جایی عروس و دامادها در نظر گرفته شده که با گل‌آرایی، پرچم جمهوری اسلامی و تصاویر رهبری تزئین شده و زوج‌ها در این خودروها در مراسم حضور خواهند یافت.»
+او افزود زوج‌های شرکت‌کننده قرار است با «ماشین‌های عروسی به شکل جیپ نظامی» و «خودروهای نظامی گل‌کاری‌شده» در سطح شهر حضور پیدا کنند تا «فضای شهر را به یک شکل هنری و نظامی» درآورند.
+به گفته او، هدف این است که نشان داده شود این «زوج‌های جانفدا» جان خود را «زیر پرچم جمهوری اسلامی تقدیم این نظام خواهند کرد» و «از هیچ چیز نمی‌ترسند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75383)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 20:05:05
+
+<img src="https://cdn1.telesco.pe/file/NuO3SYrEbGp8dYaqHroIy34NoxggNhNHr5zMVZRb_4p1xCzAAgz0MMtjk6ZGGjMcU7-zi3NfP-TYpnQ54bpMoZd01j-ZW-GZzLtXOoAxPBkY979wd0eDEcfk3wmuaeyQz8oANiJp2FpIJS7ESNb4-XsCNQkG4TrKB-9TrExbonyi-ogupS5DV_KdN7H6zMUAN50j0PH4pGDUipAEkx4D2HEOTKuEc4oRHl0c73W-YCLrivqmQUfuZHfpzX_lW7sm0xPqgw32oe9qERucg1eklmmo2sZXF70FXzt0Yi-wAz__yRva8gWFAS2vj9_s8bvEHjU_cMQzqRSn3q59tKrh6A.jpg" width="400"><br>
+
+رئیس‌جمهور آمریکا می‌گوید عملیات نظامی در ایران تمام نشده و ارتش ایالات متحده می‌تواند اهداف دیگری را نیز هدف قرار دهد.
+دونالد ترامپ در گفت‌وگویی با شریل اتکیسون، مجری آمریکایی، که هفته گذشته ضبط و روز یکشنبه ۲۰ اردیبهشت پخش شده است، در پاسخ به این سوال که آیا عملیات رزمی در ایران تمام شده است، گفت: «نه، من چنین چیزی نگفتم. من گفتم آن‌ها شکست خورده‌اند، اما این به آن معنا نیست که کارشان تمام شده است. ما می‌توانیم به مدت دو هفته بیشتر هم وارد عمل شویم و تک‌تک اهداف را هدف قرار دهیم.»
+او با اشاره به این که در حملات آمریکا و اسرائیل طی جنگ اخیر «احتمالا ۷۰ درصد» اهداف مورد اصابت قرار گرفتند، افزود: «ما اهداف دیگری هم داریم که احتمالاً می‌توانیم به آن‌ها حمله کنیم. اما حتی اگر این کار را نکنیم، سال‌ها طول می‌کشد تا آن‌ها دوباره بازسازی شوند.»
+به نظر می‌رسد اظهارات آقای ترامپ پیش از ارسال پاسخ ایران به آخرین پیشنهاد آمریکا برای این توافق انجام شده است. هرچند که او پیشنهادات قبلی ایران را رد کرده بود.
+رئیس‌جمهور آمریکا در مصاحبه با شریل اتکیسون همچنین دربارهٔ اورانیوم غنی‌شده ایران که در عمق زمین و در تأسیسات هدف قرار گرفته در جنگ ۱۲ روزه سال گذشته مدفون شده‌اند، گفت: «ما در مقطعی آن را به دست خواهیم آورد… ما آنجا را تحت نظارت داریم.»
+ترامپ اضافه کرد: «من چیزی به نام نیروی فضایی ایجاد کردم و آن‌ها آنجا را زیر نظر دارند… اگر کسی به آن محل نزدیک شود، ما مطلع خواهیم شد و آن‌ها را نابود خواهیم کرد.»
+او بارها اشاره کرده است که توافق با ایران باید شامل تحویل ذخایر اورانیوم غنی‌شده ایران به آمریکا باشد. تهران چنین درخواستی را رد کرده است.
+@
+VahidHeadline
+رئیس‌جمهور آمریکا گفت: «ما نمی‌توانیم اجازه بدهیم ایران سلاح هسته‌ای داشته باشد، چون آنها دیوانه‌اند. نمی‌توانیم اجازه دسترسی هسته‌ای به آنها بدهیم. اوباما این کار را کرد. اگر من توافق هسته‌ای ایران را لغو نکرده بودم، الان سلاح هسته‌ای را داشتند و الان علیه اسرائیل و خاورمیانه و شاید حتی فراتر از آن استفاده می‌کردند. می‌دانید، آنها در واقع موشک‌هایی دارند که دیدید می‌توانند به اروپا برسند.»
+از آقای ترامپ سوال شد آیا این درست که عملیات رزمی علیه ایران تمام شده است.
+رئیس‌جمهور آمریکا پاسخ داد:«من این را نگفتم. من گفتم آنها شکست خورده‌اند اما این به این معنا نیست که کارشان تمام شده است. ما می‌توانیم دو هفته دیگر هم وارد عمل شویم و هر هدفی را بزنیم. ما اهداف مشخصی داریم که احتمالاً ۷۰ درصد آن‌ها را زده‌ایم اما اهداف دیگری هم هستند که می‌توانیم بزنیم.»
+آقای ترامپ گفت حتی اگر هم این کار را نکنیم، بازسازی سال‌های زیادی برای ایران طول می‌کشد.
+@
+VahidHeadline
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفت‌وگو با سی‌بی‌اس نیوز درباره اورانیوم غنی‌شده در ایران و جنگ علیه جمهوری اسلامی گفت دونالد ترامپ به او گفته می‌خواهد وارد آنجا شود و به نظر او این اقدام از نظر عملی امکان‌پذیر است. او افزود اگر توافقی حاصل شود و بتوان وارد شد و این برنامه را برچید، این بهترین راه خواهد بود.
+نتانیاهو از پاسخ به این پرسش که در صورت عدم توافق چه رخ خواهد داد خودداری کرد و گفت برای این موضوع جدول زمانی تعیین نمی‌کند، اما این ماموریت را بسیار مهم دانست.
+IranIntl
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75378)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/D5fuz6Vf6pwJ0L6jYzrVXYK3q4l71n9BxyKdBUY0QGk4o5pTkuhQAITaIQ4iq8PqXzQcU4-QvYS_qPWlfhBglvkI8NU0vv1qWUyTwdR1X6RCZvddG9lE6gaY_XQrJD4Q-xvAksu4_y96UpQL7ZQcvUfgC5a-EDytoAIRbkO6aAiG0pA1bQlklFSFtU_EuQffS9UCTmQUDgb_oYIf-KjhC8o2eK_tTMQ1iYCd3BG0tSQPa0YOnueqkMcC3EnURxR5ciiocUWTK-02L9j8oNmEYeyMLLUjd3-Zzp2qrj3CpYCdnSZDzOUmrpQVEIMsf8-SbeTmzy63NqIhxXcyY5hbjA.jpg" width="400"><br>
 
@@ -25,7 +88,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/a6qs4gpzwXlDsNekkChbNoCQ14lctcyfVH4KBP2Us9lr1fo-rmkerpCPh9ZwDfbdjOEqUk8AgmV72DCMpN61v8cW0UUL5m25mVh-_cx9XQtNV5vuH3lInVr-UxkJ7lfBbVqc4w5_Ihpc3X5cwT8hZVs9iSNKfyS2J-zUs6vDxNPjnZJWRRkn_mzIPiRZBuhGXgppy5yG_Xi42-dmbFlBnkrUnd6J1B2ROMDlxQKeaiFWGI8Dvuw3XPI60fT8v4neuYuWE3BBO0iZalM3V8R0Mh9Yb_v_HnJaMcLTjwn9LlLUx6ELg3VmG073SmaLFMuKP6pdSh2a-z9hzuT98oFXZA.jpg" width="400"><br>
 
@@ -43,7 +106,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/na2oOEDLccYFSsUrvcIgyWPDLgrEygrFibnUq3Tj94QdUcJYFMYuir5A3WN0P7aNFYBmyNLqXNV6mKqMaP-mzL_kBNwagweRXp2HpDckQxr1c4MJg18gd3EHXmxdET87_-wVOkF6VCXy0Nts22LN5u_FPgPqQgOX0kfMrtfME0QyAmQILCJGFeQCKJ_6sXy8nGUB9dlsnnIHrmLzGtO7E7VRQpN8cdr5zI3NXc7dtjcKNWPYP01ygn239Q98CQidX-VxE-5ZPqHyPjTGbyNPg3mklc707G_ytX2xPDskfMzXnWx3ekVN6vlybI0TX5xppOPLlQf1xV7bAZpeEwxKAQ.jpg" width="400"><br>
 
@@ -61,7 +124,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/OdOM2VP2pwHG_0QPpwIeNivJSHuwdeaz9UIWXdf3esRJrsGbEL3snj2ohGiu-NiYMDV0ZIO0NhV1pJLMqqYMrlodK7K4sRBMGENykE6kkJHaru50bdm4t1lEnaj7q-xfDuE7D2dvfPYuMfmQWxRwk4JeGqeybR_kFpKZQeuPmJ2HpNNxjXfcXW-mEUcYkAbo4jqb-q3IV6ivN8Z74CVj2h6YqgaTrxErPyIKOgsGQ-gMXEHc0T8mX1mrAQ1ePoGkvUoqT-tjAlOi25gHrjHz-0G8sxWvb0pneX0xrARn5ODi-iwHXx9nTwCUvp9zdPZXtg5JlEJ7l0eBPJSLIDNAUw.jpg" width="400"><br>
 
@@ -80,7 +143,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/hXkV2bRjLaWLyEJMhBi8z2dLOAckBw6ftumBjq1nx9VGYpsy57cWzsv9zD6JaMZt3-ByADcU98ptuy0UbVQ0paZ5nc73HrXjRpGzRs0JwxwwMB6D_NhlTYbUB54vd_MU-gqh1VliTb22ZpA7CDuujclpf4yg4Jsi9D1Qb7XbGKSeJd-FNxBAHhpg9etGXf-pOkNGWPutSWCeaeqfnMGJm10dPF-v6CqG_8K2I752copn3fVvjV6cS0Ymu6gxrfDtVm4g75RFhx1X7roMjdo-97rMXDfZSd1fGiyd9CMLGRksgIs9weeyaXQZPSUtoQuTiJmZjqyWUjVtvEtS5BhtXQ.jpg" width="400"><br>
 
@@ -99,7 +162,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/PizTiCrRxFUIiRTh03dawdAErJ2Du-Y862iUq5yyIa4yr6ff-oSJr00SrZ78RDu589VHbOhNZN730NDCWMgSHfllM2KszWmQ2Di5GDN5RlktDGvk6V8CxFmMU4oPUvFmbIGJIa7Bg19BlvFjRfZBpdcCCOgJ8U9Ou27rqzQ1ir_jMabjs65BMYMy7wvTYjJpvekg84LwSmBa6FnwlOELoMt46QJlFAoKoa6hCsQKm81eij96PDZRk_Qt9eW50wdwvsCe1dAYM-Bjg2cI0Q8HKq0YBlh7aSN8uRyQboglMcLZQq-THkmFWMR5wpZ6oEVNAJJZeOlrOsnOsHao9j75AQ.jpg" width="400"><br>
 
@@ -120,7 +183,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/eHHgO53I-wn9ehLlXCCpBHfE8e18-Cy0qfIcEOVqviozu_gVrnpAyemyBKQKuhoxrqu9nHKdu0TCRc37pZNfW1nIgzZskBsgKF7HtJqPiA9JMNgnkPUmJPMRDQk-Az8MckbMwthMyEd5gQg4donUpTn4CVgq5fta1XCC6DOiGGfoG85hJl_T8EmAh_EKDOK_MGHf9hUZFsEgTW7JC906uf9bYG6jB7R2MBuPxudue2dlZpIZDPoZOLpJzgk4rc0suO8oCREcfDKC3r0nu8lBQk0aB42hFRlNYrt4zybcNgLQpHMupBuCxxzeTz_50yU1uixJ79SpwfuHuNHdUL6O-w.jpg" width="400"><br>
 
@@ -139,7 +202,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn1.telesco.pe/file/WLFjAGJgkqAQ5DLt3px7Y3_-eLBHx1f_Kb1T84fZKvklvKpZSXjq6Of-G4RheRVB2ptlrKZBJsoT9jYe602tLAOiZeV5ZgAGuQJeNM8wSGOH3slzPbavlWUJmLT9shkQDs-V6HWrCS2w-tw_J4q8OGpWmDHeXNRzn3aAUmSBribka2wghADz2x1_vcXjhNlR2X2bRZy1BLrXfcgWZPldO-uvlvMY2f--de-_Lqbzu6oiyjgD0dPLWdaAFVP-Ntu65_tRh2NoHr5R5bV6UaXRPAQf7ufzdfo-JBMSN4u-thVYiHWdvR0zhFz9kbOTLqpF5xPoMgITTVWT5MXvlBhUfw.jpg" width="400"><br>
 
@@ -155,7 +218,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn1.telesco.pe/file/PL1XICXY1Cs9iKF3pL2xLlgD4OgvD7WnJFwqnCo2t5FOkG5FkJao2WLniYhaiSPuL3h5TdUJ-0JGp-bi31ryjFjRmhB2nsQUeofGMQ7hVdVxoZ9W--sAi9VlD4D21yeaHH0YLG27vrOoHlAZ9O7O30JgtdaXQ56ava2ZR1wJIYxU1UjwjTGR1JDiuK3sa2udUfhYilP9i4R8upCZrOiFwgTPglXixtY0qBvlYrFTECufxrFrgffEyuBEZM-FERSeotCK7AGV3m7fU_GSeO8NXln_A7G9VOw-fF_LFGKOjV0hDnMbML8Ojy3DbB_4oUqsKzGJdGbS82xegabGhItDrw.jpg" width="400"><br>
 
@@ -170,7 +233,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/srlCyM4lroAavTzijkVUboKUSVEWQrVpXMMiv_ZQXRtas4L06gE6ImhI4ZhlILKWRQdIjW4L70g-4CBauIcwOBlUBk2bediqIj0JHcalbpg0YwV1g_nk-hTPssmsAMca37G8E6hlYlN33GLbRrZF3RR2rh8h6ITH23kn0AA3u6RmwDZ-gVxpNiIt_3ZPRRXBV5y06MMMraYEuBGFGc8yisT3ZtoJpW2ru6CDIkKQrVwfmgMY4cm4wkihRkt0SNjCWCpvojf7NEV8FXYpX4zyS7IVcsKLDhIr914axmaICcGN6y-q70g29iaPbY3eSLg1wvUy-JHs5w77XOVb3LW54w.jpg" width="400"><br>
 
@@ -189,7 +252,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 <img src="https://cdn4.telesco.pe/file/i6RK2B1HPeuSU-6YfznboI7678gkgjR2CEZQObTjQ6de98bCmOjZVkYQTAd61zCeg_EncBK_x-vUYVykUrQLorljdFnKNBfvub8kjcUEPSS8IijGGt0aSnBlMxKpnDqx_z5uewhp2lJjeEgNlA6GsFTZPbbXQBZRFC_ZCVMUIN_ITWAoA_27BNK4Wnb1wi3DJQtk_5fTLXSPpHSGcj7LJwj0XRmaajDqkdqmeDEbtSeyHuFZ5jej4mC5ECqtaKfGsjWHFfi5mF2CDQjIxknqWsZmZa15sDwFlRnHqoA4R3Gau__3DwetKXZYcDCr1gT-xYmMT3D_z2PAL0T2FPkMRg.jpg" width="400"><br>
 
@@ -207,7 +270,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 19:09:30
+###### 🔵 Updated at: 2026-05-10 20:05:05
 
 
 
@@ -220,55 +283,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75365)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 19:09:30
-
-<img src="https://cdn4.telesco.pe/file/ajKy4QswZ6_cJ5DIp5TUyRZhoRiWqE4ugdByPiGAxxou9OmNiMxbGw_hSi3rBgE--hD7Jcx_qvxDS12bF5rSTgOYwdKfUD2aUSjAwSbAuhzDo2AWPDSrWPiNpDcRXvnmhvRqiWZZz8Zrveo2z2XhejIsE0jcJ1SoX9PIPpDj6Acy6S5sGMddMBM9KsTqdFjLFHxLVeDllZ6A6ZFE6_AI5MQi-sEetzJINwSoq2yu-dQj6myfCg-GDRGaxhRADvHx5M27cSbDFRUiPWPgqu8Hx7I-iZaKfUPHZYUweH6yFGA4jCCJEgA0MNx6CQ6RY4fw1hwgjl6oaOKwD340kllm2Q.jpg" width="400"><br>
-
-مقام‌های لبنانی روز شنبه اعلام کردند که در حملات هوایی اسرائیل به جنوب لبنان، هشت نفر کشته شده‌اند. همچنین بزرگراهی در جنوب بیروت هدف حمله هوایی قرار گرفت.
-این حملات تازه با وجود آتش‌بس سه‌هفته‌ای میان اسرائیل و حزب‌الله، گروه مورد حمایت [جمهوری اسلامی در] ایران، انجام شد؛ آتش‌بسی که تأثیر چندانی در توقف تبادل روزانه آتش، عمدتاً در جنوب لبنان، نداشته است.
-حزب‌الله روز شنبه اعلام کرد که در واکنش به ادامه حملات، نیروهای اسرائیلی در شمال این کشور را با پهپاد هدف قرار داده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75364)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 19:09:30
-
-<img src="https://cdn4.telesco.pe/file/hCovR5rjQ7GmFYo3YsFpVJIFzGkD5o7PZ656heCe55U5OadEB4q33iSgvUYuDqI0Gin9wIkO2Xn3r3IhmtkfnYo_n7vGUsaCkqikZnT7qcVNkZ6JuBizzPoEj_ny7OgMTvZHdgdTdwsCOSp4Y7G4T6Z8ypD7euHa3G6g5YQ_0bXkx1gV8W2IBP_heHY0jgl_1j2b7XhomuJKNTOSnMaL-yGefWBUYrHCVrUqrV-HPIYBQirM9QjvxsjWFi5UXZFRdaNCIDQ55GGnsueFRMYzc_3ahlv0uev2wpVF5smRcRBwcpoB-c2x_e74Woj6KK9y4QASW7YeP0sLfjiMI9xzdg.jpg" width="400"><br>
-
-فرماندهی مرکزی آمریکا، سنتکام، روز ۱۹ اردیبهشت ۱۴۰۵ اعلام کرد محاصره دریایی آمریکا علیه جمهوری اسلامی همچنان به‌طور کامل اجرا می‌شود و نیروهای این فرماندهی تاکنون ۵۸ کشتی تجاری را تغییر مسیر داده و چهار شناور را از کار انداخته‌اند تا از ورود یا خروج آن‌ها به بنادر ایران جلوگیری شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75363)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 19:09:30
-
-<img src="https://cdn1.telesco.pe/file/vzE7nLjQ2W1kbsJfBwJsp7PlTURabOlHaUriMa8upTnK8UnBv4W1IbiRmaNcmFTLxK6SMYqaJj422ZXydaBHHHlGliw25hVz3QXssRhU9AbE4sOIeMfFP_Ay_cERHAJib9a0hK-5K0gafFEjltjc9xIiTAC4mlBgmSFE37EZqK5Q27ACGwtNQ0kqAh3HPuBhT8KXTYU1i9hoiEnNscO8nAtI_GVyV6UWdgm-GducgFWhvYHjTHuhJ6_EKWZiN9l4VRE5n4odbzi2JhPymrYf-QzA7Qa1dJr0A7bu1ggdaJcQkChjif6T6uYHptWF0h8Np-JFMj1ZW9Drl1T2x37nhw.jpg" width="400"><br>
-
-گذشت
-‌ عبدالله امیدوار، یکی از دو برادر امیدوار که اولین نزدیک به ۷۰ سال پیش با موتورسیکلت دور جهان را گشتند، در سانتياگو، پايتخت شيلی درگذشت.
-عبدالله،  برادر کوچکتر پس از پایان سفرشان به شيلی رفت و در آنجا ازدواج کرد و شرکت فیلم‌سازی در شيلی تاسيس کرد.
-عبدالله۲۱ ساله و عیسی ۲۳ ساله،  در سال ۱۹۵۴
-
-[View Post](https://t.me/VahidOnline/75358)
 
 ---
 
