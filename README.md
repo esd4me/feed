@@ -3,7 +3,66 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
+
+<img src="https://cdn1.telesco.pe/file/LLAhmrPVRbx-Uy69hZ34W0_REcu7cg1QCTpjE5-xApqEcMhnqfAGCjukU6cLBBua7Sara0fLiRrjERlrZPe6cgAujBxWAdE71zBeNVUOIEkHoawr3GKYyFsAYpBlUTCWc5KXOzRMRYtng3dSdwsWKUbpUHssADwdK8o8Kn3dMXQ1RKs529OQvCXk0bwSlkWVjYqzKxv3M4wK7hjtNNjYm9QV44njjLGOGYi31T4h1Tef6oSSPg5sxQTjjrGoOE2osJHhKhh89aPSzyvZ9JcsthYA5RPS0LBeeOjCYXUYry_z1ZHgd1ciAgqWqNryorACZaTMKmNpu4DGF54PQiyHiQ.jpg" width="400"><br>
+
+☄️
+ترامپ پاسخ جمهوری اسلامی را رد کرد
+پست ترامپ، ترجمه ماشین:
+همین حالا پاسخ به‌اصطلاح «نمایندگان» ایران را خواندم. از آن خوشم نیامد — کاملاً غیرقابل‌قبول است! از توجه شما به این موضوع سپاسگزارم.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75390)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-11 00:03:36
+
+<img src="https://cdn1.telesco.pe/file/Aej3CUr2ExgjhnBad8p0HSDIlW14pVjnVvr-95dfgU1i2NM3nmmxfVrCXQ-19TIzbgIOsLRvngHEojyNezbft6IWexKEDEj9vudHyxuWk5C_Ff0h7wHS_EmbN4ZP4fK84G5EPzx66krZXaJdX-fpg2iGm1mkwtGMndPWRIPdSqbpZkAvz_CbgULwkKFihfhfGU_RaeV91iPLDZDAgvCIZqCML7h5mD1lO6qrbUy9nAcchVRlLmAAMBd7hn7eZaZP8Tpz2uOdcGkG5zDAMXTsae3x0nDMwA3kW_Y4QbiU5tPS73Fkts2wZPR_gXpknV9YnRHe9DG9QB8P-QAOWuL9FQ.jpg" width="400"><br>
+
+روزنامه وال‌استریت ژورنال، شامگاه یکشنبه ۲۰ اردیبهشت ماه، به نقل از منابعی آگاه، جزئیاتی از پاسخ ایران به پیشنهاد صلح آمریکا را منتشر کرد.
+به گزارش این روزنامه، پاسخ ایران که از طریق پاکستان به‌عنوان میانجی به واشنگتن منتقل شده، همچنان اختلاف‌های مهمی میان دو طرف باقی گذاشته است.
+به گفته منابع وال‌استریت ژورنال، تهران حاضر نشده از پیش درباره سرنوشت برنامه هسته‌ای خود و ذخایر اورانیوم با غنای بالا تعهد بدهد.
+ایران پیشنهاد کرده مسائل هسته‌ای طی ۳۰ روز آینده مورد مذاکره قرار گیرد.
+مقامام‌های ایران همچنین برای رقیق‌سازی بخشی از اورانیوم غنی‌شده و انتقال بخش دیگری از آن به یک کشور ثالث اعلام آمادگی کرده‌اند.
+وال‌استریت ژورنال گزارش داد تهران با برچیدن تاسیسات هسته‌ای خود مخالفت کرده، اما در عین حال آمادگی‌اش را برای تعلیق غنی‌سازی اورانیوم اعلام کرده است؛ تعلیقی که به گفته این روزنامه، مدت آن کوتاه‌تر از توقف ۲۰ ساله پیشنهادی آمریکا خواهد بود.
+بر اساس این گزارش، ایران در پاسخی چندصفحه‌ای به تازه‌ترین پیشنهاد آمریکا برای پایان دادن به جنگ، خواستار پایان درگیری‌ها و لغو محاصره کشتی‌ها و بنادر ایرانی شده و پیشنهاد داده است تنگه هرمز به‌تدریج به روی رفت‌وآمد تجاری باز شود.
+وال‌استریت ژورنال نوشت ایران در مقابل، خواستار تضمین‌هایی شده است که اگر مذاکرات شکست بخورد یا آمریکا در آینده از توافق خارج شود، اورانیوم منتقل‌شده دوباره به ایران بازگردانده شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75389)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-11 00:03:36
+
+<img src="https://cdn4.telesco.pe/file/Poe0Zbldukv5bLjiDzI1YnOFCkQmjJmWLJjakgvnLvaK5OXYx9b7KAWbayn9FqhJObOrNnPidy2-KcR3FXnly9jtae0jwwylcwMySP333vptKcPJlNKSTQ5_2P4_SNZih_56JtD9WcMoJm24qxon4NOVTB1HMlnTqbIklS9HmNupAlmN9JFZ8tRetVoI8cLxr0czezaS7tkPTHuKmo3mSz7lgwlCU9maBgxgEANNB1OUyUSxSimN3E79a9Lww3M1WQyQTTZw7TDUdF96OMlU081rx5yO966I7kWHxaStnJ2kk3Xd5HOtyC5zuCwCbMKhZtMHEYn3aQIc3SDaa6w8Gw.jpg" width="400"><br>
+
+رسانه‌های ایران شامگاه یک‌شنبه با اشاره به شنیده شدن فعالیت پدافند هوایی در اندیمشک و شمال دزفول از سرنگونی «پرنده متخاصم دشمن» در اندیمشک خبر دادند.
+شهروندان نیز یک‌شنبه ساعت حدود ۱۰ شب از شنیده‌شدن صدای پدافند در این شهر خبر دادند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75388)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 
 
@@ -28,7 +87,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn1.telesco.pe/file/Q53BpCVHLOVwul5xzy0dCxH7269RVf_iF0ldNkkKb0NZXn4W79Jdq2bP6ZK_7BZhsCvQL3hjyecQnZxeLKr-UUGMy9rT537teJ7ZrtXMK5Kd8DSconveuzrzXYROM28XCTH45N6ml7pamZLCcfdZEbLxN7Xr1MsIs5pqaqCnJWLREyWskFCTNDOmJEujugzgF9AZiop9T7vWudxnQyQFgX8RFTLVZry6azf7IcT0kJ61SlFAJY12g2nTi-WqsabEvE2u04xGrEsfsP4lJnoznEognf1TWYf3q062LSof-rDclrPt9MctflUv1e7Q-pXHj-L4DQHalCSda1fB0h3aXA.jpg" width="400"><br>
 
@@ -49,7 +108,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/hThiqU5CrFKkKndWR4uIvnEIRatkOPNumP96cg7lfNGkfeXV5kqX0qnTQuyzkpNAkx8Q3zpXVv0X2GVKVChR7LBNpfGtVP5mFm9ZY-80SvInaEZLYu6fgR4XWDWQjqGWzH7a5LUr3SLSskO7k9wqHRDdRMHoyiVufDDUowvOexC6Iyzsivo8wUSKumIDZXTUs0zsuAgYdVVq_qstl0QC2IGbf9r8AJyqQLtOTOoAyypTPBf58Po280TQHOYAL-cF1CWqwVtmxythnRRv-xu_iEEjnYGi_AtdS_CzC9PFPXmsTeLZL3UsLnvpVUxgtGEsxhjvt_t6JthA7oQlJuscWw.jpg" width="400"><br>
 
@@ -68,7 +127,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn1.telesco.pe/file/vZULu8J-xjlcMTvlQtlbms6PxVFFXIHxhLhmaox9bdfY6RHPYUA-AsSgX7K3hjqmQScVLhThqCJXCeXBH8Rq2zxIlAG2kBU4EdSwBAbXtqB575NzPhDE68_aigy1rkAS6LFdy4vnzUYyVbwzRbopaFGkvd_jhE896Trg1o0moByOL0_qHFTUQ5OAI-vehxSjUjmNw3uErOKhN6o2SR3r3QXG7pB3zcqDQpbvN58R6FrPAk-Of8N62nX9di6YaqflYybINmwkzFAehPejC3Rud9v5F7uC-LyRQ9eDng5pZNUTQUvLP4qmofpSQq8Z3TNQJsZuyZcLJJa8CYgwdecEEQ.jpg" width="400"><br>
 
@@ -82,7 +141,7 @@ Afkham_minus
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/vJjZiRd5gjHONTbzo9ds-6DUTJ8VX6gtV4syVE6kQFa2T8065RI5zEURQhn_XB13tYHJZhDSy4CyvYJlutvQy6zI566t6gJxGYkAxn283gbayYOwhcaxn3BzkLXHMM7yqWZBt6sGkTqBAVripbdOfjnA3oWRulsMVHNpRbST5MmHqMcmJpHxeOiKQnE2iK-w65f2wdVeN0OGRFTYZOLpdSE3RD5g-QK0cmbBQtRonIyX_mPBhINGfBL_IEIkbUBzK5NjebDxelWJHzr6JVOlvmVlnjCKn1eT-l3ED988qF81pFzjVhUVe6K-NyOM8xmftChd05xHp4-ePlgHlG2urg.jpg" width="400"><br>
 
@@ -100,7 +159,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn1.telesco.pe/file/NuO3SYrEbGp8dYaqHroIy34NoxggNhNHr5zMVZRb_4p1xCzAAgz0MMtjk6ZGGjMcU7-zi3NfP-TYpnQ54bpMoZd01j-ZW-GZzLtXOoAxPBkY979wd0eDEcfk3wmuaeyQz8oANiJp2FpIJS7ESNb4-XsCNQkG4TrKB-9TrExbonyi-ogupS5DV_KdN7H6zMUAN50j0PH4pGDUipAEkx4D2HEOTKuEc4oRHl0c73W-YCLrivqmQUfuZHfpzX_lW7sm0xPqgw32oe9qERucg1eklmmo2sZXF70FXzt0Yi-wAz__yRva8gWFAS2vj9_s8bvEHjU_cMQzqRSn3q59tKrh6A.jpg" width="400"><br>
 
@@ -131,7 +190,7 @@ IranIntl
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/D5fuz6Vf6pwJ0L6jYzrVXYK3q4l71n9BxyKdBUY0QGk4o5pTkuhQAITaIQ4iq8PqXzQcU4-QvYS_qPWlfhBglvkI8NU0vv1qWUyTwdR1X6RCZvddG9lE6gaY_XQrJD4Q-xvAksu4_y96UpQL7ZQcvUfgC5a-EDytoAIRbkO6aAiG0pA1bQlklFSFtU_EuQffS9UCTmQUDgb_oYIf-KjhC8o2eK_tTMQ1iYCd3BG0tSQPa0YOnueqkMcC3EnURxR5ciiocUWTK-02L9j8oNmEYeyMLLUjd3-Zzp2qrj3CpYCdnSZDzOUmrpQVEIMsf8-SbeTmzy63NqIhxXcyY5hbjA.jpg" width="400"><br>
 
@@ -153,7 +212,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/a6qs4gpzwXlDsNekkChbNoCQ14lctcyfVH4KBP2Us9lr1fo-rmkerpCPh9ZwDfbdjOEqUk8AgmV72DCMpN61v8cW0UUL5m25mVh-_cx9XQtNV5vuH3lInVr-UxkJ7lfBbVqc4w5_Ihpc3X5cwT8hZVs9iSNKfyS2J-zUs6vDxNPjnZJWRRkn_mzIPiRZBuhGXgppy5yG_Xi42-dmbFlBnkrUnd6J1B2ROMDlxQKeaiFWGI8Dvuw3XPI60fT8v4neuYuWE3BBO0iZalM3V8R0Mh9Yb_v_HnJaMcLTjwn9LlLUx6ELg3VmG073SmaLFMuKP6pdSh2a-z9hzuT98oFXZA.jpg" width="400"><br>
 
@@ -171,7 +230,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/na2oOEDLccYFSsUrvcIgyWPDLgrEygrFibnUq3Tj94QdUcJYFMYuir5A3WN0P7aNFYBmyNLqXNV6mKqMaP-mzL_kBNwagweRXp2HpDckQxr1c4MJg18gd3EHXmxdET87_-wVOkF6VCXy0Nts22LN5u_FPgPqQgOX0kfMrtfME0QyAmQILCJGFeQCKJ_6sXy8nGUB9dlsnnIHrmLzGtO7E7VRQpN8cdr5zI3NXc7dtjcKNWPYP01ygn239Q98CQidX-VxE-5ZPqHyPjTGbyNPg3mklc707G_ytX2xPDskfMzXnWx3ekVN6vlybI0TX5xppOPLlQf1xV7bAZpeEwxKAQ.jpg" width="400"><br>
 
@@ -189,7 +248,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/OdOM2VP2pwHG_0QPpwIeNivJSHuwdeaz9UIWXdf3esRJrsGbEL3snj2ohGiu-NiYMDV0ZIO0NhV1pJLMqqYMrlodK7K4sRBMGENykE6kkJHaru50bdm4t1lEnaj7q-xfDuE7D2dvfPYuMfmQWxRwk4JeGqeybR_kFpKZQeuPmJ2HpNNxjXfcXW-mEUcYkAbo4jqb-q3IV6ivN8Z74CVj2h6YqgaTrxErPyIKOgsGQ-gMXEHc0T8mX1mrAQ1ePoGkvUoqT-tjAlOi25gHrjHz-0G8sxWvb0pneX0xrARn5ODi-iwHXx9nTwCUvp9zdPZXtg5JlEJ7l0eBPJSLIDNAUw.jpg" width="400"><br>
 
@@ -208,7 +267,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/hXkV2bRjLaWLyEJMhBi8z2dLOAckBw6ftumBjq1nx9VGYpsy57cWzsv9zD6JaMZt3-ByADcU98ptuy0UbVQ0paZ5nc73HrXjRpGzRs0JwxwwMB6D_NhlTYbUB54vd_MU-gqh1VliTb22ZpA7CDuujclpf4yg4Jsi9D1Qb7XbGKSeJd-FNxBAHhpg9etGXf-pOkNGWPutSWCeaeqfnMGJm10dPF-v6CqG_8K2I752copn3fVvjV6cS0Ymu6gxrfDtVm4g75RFhx1X7roMjdo-97rMXDfZSd1fGiyd9CMLGRksgIs9weeyaXQZPSUtoQuTiJmZjqyWUjVtvEtS5BhtXQ.jpg" width="400"><br>
 
@@ -227,7 +286,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/PizTiCrRxFUIiRTh03dawdAErJ2Du-Y862iUq5yyIa4yr6ff-oSJr00SrZ78RDu589VHbOhNZN730NDCWMgSHfllM2KszWmQ2Di5GDN5RlktDGvk6V8CxFmMU4oPUvFmbIGJIa7Bg19BlvFjRfZBpdcCCOgJ8U9Ou27rqzQ1ir_jMabjs65BMYMy7wvTYjJpvekg84LwSmBa6FnwlOELoMt46QJlFAoKoa6hCsQKm81eij96PDZRk_Qt9eW50wdwvsCe1dAYM-Bjg2cI0Q8HKq0YBlh7aSN8uRyQboglMcLZQq-THkmFWMR5wpZ6oEVNAJJZeOlrOsnOsHao9j75AQ.jpg" width="400"><br>
 
@@ -248,7 +307,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 23:14:28
+###### 🔵 Updated at: 2026-05-11 00:03:36
 
 <img src="https://cdn4.telesco.pe/file/eHHgO53I-wn9ehLlXCCpBHfE8e18-Cy0qfIcEOVqviozu_gVrnpAyemyBKQKuhoxrqu9nHKdu0TCRc37pZNfW1nIgzZskBsgKF7HtJqPiA9JMNgnkPUmJPMRDQk-Az8MckbMwthMyEd5gQg4donUpTn4CVgq5fta1XCC6DOiGGfoG85hJl_T8EmAh_EKDOK_MGHf9hUZFsEgTW7JC906uf9bYG6jB7R2MBuPxudue2dlZpIZDPoZOLpJzgk4rc0suO8oCREcfDKC3r0nu8lBQk0aB42hFRlNYrt4zybcNgLQpHMupBuCxxzeTz_50yU1uixJ79SpwfuHuNHdUL6O-w.jpg" width="400"><br>
 
@@ -262,37 +321,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75371)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 23:14:28
-
-<img src="https://cdn1.telesco.pe/file/WLFjAGJgkqAQ5DLt3px7Y3_-eLBHx1f_Kb1T84fZKvklvKpZSXjq6Of-G4RheRVB2ptlrKZBJsoT9jYe602tLAOiZeV5ZgAGuQJeNM8wSGOH3slzPbavlWUJmLT9shkQDs-V6HWrCS2w-tw_J4q8OGpWmDHeXNRzn3aAUmSBribka2wghADz2x1_vcXjhNlR2X2bRZy1BLrXfcgWZPldO-uvlvMY2f--de-_Lqbzu6oiyjgD0dPLWdaAFVP-Ntu65_tRh2NoHr5R5bV6UaXRPAQf7ufzdfo-JBMSN4u-thVYiHWdvR0zhFz9kbOTLqpF5xPoMgITTVWT5MXvlBhUfw.jpg" width="400"><br>
-
-تصاویر ساختگی دیگری که ترامپ در صفحه‌اش منتشر کرده
-:
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75369)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 23:14:28
-
-<img src="https://cdn1.telesco.pe/file/PL1XICXY1Cs9iKF3pL2xLlgD4OgvD7WnJFwqnCo2t5FOkG5FkJao2WLniYhaiSPuL3h5TdUJ-0JGp-bi31ryjFjRmhB2nsQUeofGMQ7hVdVxoZ9W--sAi9VlD4D21yeaHH0YLG27vrOoHlAZ9O7O30JgtdaXQ56ava2ZR1wJIYxU1UjwjTGR1JDiuK3sa2udUfhYilP9i4R8upCZrOiFwgTPglXixtY0qBvlYrFTECufxrFrgffEyuBEZM-FERSeotCK7AGV3m7fU_GSeO8NXln_A7G9VOw-fF_LFGKOjV0hDnMbML8Ojy3DbB_4oUqsKzGJdGbS82xegabGhItDrw.jpg" width="400"><br>
-
-پست ترامپ:
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75368)
 
 ---
 
