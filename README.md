@@ -3,7 +3,124 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
+
+<img src="https://cdn4.telesco.pe/file/D5fuz6Vf6pwJ0L6jYzrVXYK3q4l71n9BxyKdBUY0QGk4o5pTkuhQAITaIQ4iq8PqXzQcU4-QvYS_qPWlfhBglvkI8NU0vv1qWUyTwdR1X6RCZvddG9lE6gaY_XQrJD4Q-xvAksu4_y96UpQL7ZQcvUfgC5a-EDytoAIRbkO6aAiG0pA1bQlklFSFtU_EuQffS9UCTmQUDgb_oYIf-KjhC8o2eK_tTMQ1iYCd3BG0tSQPa0YOnueqkMcC3EnURxR5ciiocUWTK-02L9j8oNmEYeyMLLUjd3-Zzp2qrj3CpYCdnSZDzOUmrpQVEIMsf8-SbeTmzy63NqIhxXcyY5hbjA.jpg" width="400"><br>
+
+خبرگزاری ایرنا، روز یکشنبه ۲۰ اردیبهشت ۱۴۰۵گزارش داد پاسخ تهران به آخرین طرح پیشنهادی ایالات متحده برای رسیدن به توافق بر سر پایان جنگ، برای پاکستان به عنوان میانجی مذاکرات ارسال شده است.
+ایرنا بدون اشاره به جزئیات بیشتر نوشت: «بر اساس طرح پیشنهادی، در این مرحله مذاکرات متمرکز بر موضوع خاتمه جنگ در منطقه خواهد بود.»
+وب‌سایت اکسیوس و خبرگزاری رویترز، چهارشنبه هفته گذشته گزارش دادند که واشنگتن و تهران به یک «یادداشت تفاهم یک‌صفحه‌ای» برای پایان دادن به جنگ نزدیک شده‌اند.
+رویترز نوشته بود در این تفاهم‌نامه حتی به تعلیق فعالیت هسته‌ای ایران یا بازگشایی تنگه هرمز که از سوی سپاه پاسداران بسته شده، اشاره‌ای نشده است.
+در مقابل، روزنامه وال‌استریت ژورنال گزارش داده بود که در طرح پیشنهادی آمریکا، تهران باید ثابت کند که به‌دنبال سلاح اتمی نیست، تاسیسات فردو، نطنز و اصفهان را برچیند، فعالیت زیرزمینی هسته‌ای را متوقف کند و همچنین بپذیرد غنی‌سازی را تا ۲۰ سال متوقف کند.
+رییس‌جمهور و وزیر خارجه آمریکا روز جمعه گفته بودند جمهوری اسلامی تا پایان همان روز قرار است به پیشنهاد ایالات متحده پاسخ دهد.
+@
+VahidHeadline
+ولی جمهوری اسلامی به جای جمعه، روز بسته شدن بازارها، صبر کرد یکشنبه پاسخ داد که ساعت ۸ شبش به وقت شرق آمریکا بازارهای مالی هفته کاری رو آغاز می‌کنند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75377)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 18:14:19
+
+<img src="https://cdn4.telesco.pe/file/a6qs4gpzwXlDsNekkChbNoCQ14lctcyfVH4KBP2Us9lr1fo-rmkerpCPh9ZwDfbdjOEqUk8AgmV72DCMpN61v8cW0UUL5m25mVh-_cx9XQtNV5vuH3lInVr-UxkJ7lfBbVqc4w5_Ihpc3X5cwT8hZVs9iSNKfyS2J-zUs6vDxNPjnZJWRRkn_mzIPiRZBuhGXgppy5yG_Xi42-dmbFlBnkrUnd6J1B2ROMDlxQKeaiFWGI8Dvuw3XPI60fT8v4neuYuWE3BBO0iZalM3V8R0Mh9Yb_v_HnJaMcLTjwn9LlLUx6ELg3VmG073SmaLFMuKP6pdSh2a-z9hzuT98oFXZA.jpg" width="400"><br>
+
+وزارت دفاع امارات متحده عربی روز یکشنبه ۲۰ اردیبهشت اعلام کرد که سامانه‌های پدافند هوایی این کشور با موفقیت دو پهپاد پرتاب شده از «ایران» را منهدم کردند.
+این وزارتخانه تاکید کرده است که از زمان ««شروع حملات آشکار ایران، پدافند هوایی امارات متحده عربی در مجموع ۵۵۱ موشک بالستیک، ۲۹ موشک کروز و ۲۲۶۵ پهپاد را منهدم کرده است.»
+وزارت دفاع امارات همچنین گزارش داده است که از زمان شروع حملات آشکار ایران، تعداد کل جانباختگان نظامی به ۳ نفر رسیده و تلفات غیرنظامی هم ۱۰ نفر از ملیت‌های پاکستانی، نپالی، بنگلادشی، فلسطینی، هندی و مصری است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75376)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 18:14:19
+
+<img src="https://cdn4.telesco.pe/file/na2oOEDLccYFSsUrvcIgyWPDLgrEygrFibnUq3Tj94QdUcJYFMYuir5A3WN0P7aNFYBmyNLqXNV6mKqMaP-mzL_kBNwagweRXp2HpDckQxr1c4MJg18gd3EHXmxdET87_-wVOkF6VCXy0Nts22LN5u_FPgPqQgOX0kfMrtfME0QyAmQILCJGFeQCKJ_6sXy8nGUB9dlsnnIHrmLzGtO7E7VRQpN8cdr5zI3NXc7dtjcKNWPYP01ygn239Q98CQidX-VxE-5ZPqHyPjTGbyNPg3mklc707G_ytX2xPDskfMzXnWx3ekVN6vlybI0TX5xppOPLlQf1xV7bAZpeEwxKAQ.jpg" width="400"><br>
+
+رسانه‌های جمهوری اسلامی گفته‌اند علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، با مجتبی خامنه‌ای دیدار کرده و گزارشی از آمادگی نیروهای مسلح، از جمله ارتش، سپاه، نیروی انتظامی، نهادهای امنیتی، مرزبانی، وزارت دفاع و بسیج ارائه داده است.
+بر اساس این گزارش‌ها، عبداللهی گفته نیروهای مسلح از نظر روحیه رزمی، آمادگی دفاعی و هجومی، طرح‌های راهبردی و تجهیزات لازم برای مقابله با «دشمنان» در سطح بالایی از آمادگی قرار دارند.
+این رسانه‌ها همچنین نوشتند مجتبی خامنه‌ای در این دیدار تدابیر تازه‌ای برای ادامه اقدامات و مقابله با دشمنان ابلاغ کرده است. با وجود انتشار متن این خبر، رسانه‌های جمهوری اسلامی تصویری از این دیدار منتشر نکردند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75375)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 18:14:19
+
+<img src="https://cdn4.telesco.pe/file/OdOM2VP2pwHG_0QPpwIeNivJSHuwdeaz9UIWXdf3esRJrsGbEL3snj2ohGiu-NiYMDV0ZIO0NhV1pJLMqqYMrlodK7K4sRBMGENykE6kkJHaru50bdm4t1lEnaj7q-xfDuE7D2dvfPYuMfmQWxRwk4JeGqeybR_kFpKZQeuPmJ2HpNNxjXfcXW-mEUcYkAbo4jqb-q3IV6ivN8Z74CVj2h6YqgaTrxErPyIKOgsGQ-gMXEHc0T8mX1mrAQ1ePoGkvUoqT-tjAlOi25gHrjHz-0G8sxWvb0pneX0xrARn5ODi-iwHXx9nTwCUvp9zdPZXtg5JlEJ7l0eBPJSLIDNAUw.jpg" width="400"><br>
+
+خبرگزاری فارس، وابسته به سپاه پاسداران درباره کشتی باری هدف ‌قرارگرفته شده در نزدیکی سواحل قطر، به نقل از منبعی که نامش را فاش نکرد، گزارش داد این کشتی با پرچم آمریکا تردد می‌کرده و متعلق به ایالات متحده بوده است.
+سازمان «عملیات تجارت دریایی بریتانیا» (UKMTO) صبح یکشنبه گزارش داد که یک پرتابه به سمت یک کشتی باری  در ۲۳ مایل دریایی (۳۷ کیلومتری) شمال شرقی دوحه شلیک شده است.
+بنا بر این گزارش یک آتش‌سوزی کوچک در این کشتی رخ داده که خاموش شده است و تلفات جانی نیز نداشته است.
+این خبر در حالی اعلام شده است که مارکو روبیو، وزیر امور خارجه آمریکا روز شنبه با محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر امور خارجه قطر، در میامی دیدار و گفتگو کرد و شراکت دو کشور را برای بازدارندگی در برابر تهدیدات و تقویت ثبات در خاورمیانه حائز اهمیت خواند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75374)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 18:14:19
+
+<img src="https://cdn4.telesco.pe/file/hXkV2bRjLaWLyEJMhBi8z2dLOAckBw6ftumBjq1nx9VGYpsy57cWzsv9zD6JaMZt3-ByADcU98ptuy0UbVQ0paZ5nc73HrXjRpGzRs0JwxwwMB6D_NhlTYbUB54vd_MU-gqh1VliTb22ZpA7CDuujclpf4yg4Jsi9D1Qb7XbGKSeJd-FNxBAHhpg9etGXf-pOkNGWPutSWCeaeqfnMGJm10dPF-v6CqG_8K2I752copn3fVvjV6cS0Ymu6gxrfDtVm4g75RFhx1X7roMjdo-97rMXDfZSd1fGiyd9CMLGRksgIs9weeyaXQZPSUtoQuTiJmZjqyWUjVtvEtS5BhtXQ.jpg" width="400"><br>
+
+‌ ‌ ‌ ‌
+خبرگزاری فارس می‌گوید «یک نفتکش حمل‌کننده گاز طبیعی مایع متعلق به قطر به نام الخریطیات» با «اجازه ایران» از تنگه هرمز عبور کرده است.
+بنابر این گزارش، این نفتکش «روز گذشته در دهانهٔ تنگهٔ هرمز دیده شده بود و پس از آن سامانه موقعیت‌یاب خودکار خود را خاموش کرد.»
+به گفته فارس، «این نفتکش که مقصدش پاکستان است، نخستین نفتکش غیرمرتبط با ایران است که از نیروی دریایی سپاه اجازه عبور از تنگه هرمز دریافت کرده است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75373)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 18:14:19
+
+<img src="https://cdn4.telesco.pe/file/PizTiCrRxFUIiRTh03dawdAErJ2Du-Y862iUq5yyIa4yr6ff-oSJr00SrZ78RDu589VHbOhNZN730NDCWMgSHfllM2KszWmQ2Di5GDN5RlktDGvk6V8CxFmMU4oPUvFmbIGJIa7Bg19BlvFjRfZBpdcCCOgJ8U9Ou27rqzQ1ir_jMabjs65BMYMy7wvTYjJpvekg84LwSmBa6FnwlOELoMt46QJlFAoKoa6hCsQKm81eij96PDZRk_Qt9eW50wdwvsCe1dAYM-Bjg2cI0Q8HKq0YBlh7aSN8uRyQboglMcLZQq-THkmFWMR5wpZ6oEVNAJJZeOlrOsnOsHao9j75AQ.jpg" width="400"><br>
+
+رسانه‌های داخل ایران روز یک‌شنبه به نقل از مدیرعامل شرکت پایانه‌های نفتی ایران هر گونه آلودگی نفتی ناشی از تأسیسات جزیره خارک را تکذیب کردند.
+او گفت: «به محض انتشار این اخبار، گروه‌های متخصص اچ‌اس‌ئی و اداره شیمیایی و آزمایشگاه، همه منطقه را پایش کردند اما حتی کوچک‌ترین موردی یافت نشد.»
+خبرگزاری رویترز گزارش داده بود که تصاویر ماهواره‌ای ثبت‌شده در روزهای ۱۶ تا ۱۸ اردیبهشت، لکه‌ای بزرگ را در آب‌های اطراف جزیره خارک، مهم‌ترین پایانه صادرات نفت ایران، نشان می‌دهد که به گفته کارشناسان با «نشت نفت» سازگار است.
+بر اساس این گزارش، لکه‌ای خاکستری و سفیدرنگ در غرب جزیره خارک دیده شده که به گفته یک پژوهشگر «رصدخانه منازعه و محیط زیست»، مساحتی حدود ۴۵ کیلومتر مربع را پوشش می‌دهد.
+به گفته عباس اسدروز، «طبق اعلام مرکز بین‌المللی «میمک» به نمایندگی از سازمان بین‌المللی دریانوردی هیچ‌گونه نشتی در زیرساخت‌ها، مخازن ذخیره‌سازی، سیستم‌های اندازه‌گیری، اسکله‌ها، خطوط لوله این منطقه و کشتی‌های در حال بارگیری وجود ندارد.»
+اسدروز توضیح نداده است که لکه موجود در تصاویر نشان‌دهنده چه چیزی است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75372)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 <img src="https://cdn4.telesco.pe/file/eHHgO53I-wn9ehLlXCCpBHfE8e18-Cy0qfIcEOVqviozu_gVrnpAyemyBKQKuhoxrqu9nHKdu0TCRc37pZNfW1nIgzZskBsgKF7HtJqPiA9JMNgnkPUmJPMRDQk-Az8MckbMwthMyEd5gQg4donUpTn4CVgq5fta1XCC6DOiGGfoG85hJl_T8EmAh_EKDOK_MGHf9hUZFsEgTW7JC906uf9bYG6jB7R2MBuPxudue2dlZpIZDPoZOLpJzgk4rc0suO8oCREcfDKC3r0nu8lBQk0aB42hFRlNYrt4zybcNgLQpHMupBuCxxzeTz_50yU1uixJ79SpwfuHuNHdUL6O-w.jpg" width="400"><br>
 
@@ -22,7 +139,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 <img src="https://cdn1.telesco.pe/file/WLFjAGJgkqAQ5DLt3px7Y3_-eLBHx1f_Kb1T84fZKvklvKpZSXjq6Of-G4RheRVB2ptlrKZBJsoT9jYe602tLAOiZeV5ZgAGuQJeNM8wSGOH3slzPbavlWUJmLT9shkQDs-V6HWrCS2w-tw_J4q8OGpWmDHeXNRzn3aAUmSBribka2wghADz2x1_vcXjhNlR2X2bRZy1BLrXfcgWZPldO-uvlvMY2f--de-_Lqbzu6oiyjgD0dPLWdaAFVP-Ntu65_tRh2NoHr5R5bV6UaXRPAQf7ufzdfo-JBMSN4u-thVYiHWdvR0zhFz9kbOTLqpF5xPoMgITTVWT5MXvlBhUfw.jpg" width="400"><br>
 
@@ -38,7 +155,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 <img src="https://cdn1.telesco.pe/file/PL1XICXY1Cs9iKF3pL2xLlgD4OgvD7WnJFwqnCo2t5FOkG5FkJao2WLniYhaiSPuL3h5TdUJ-0JGp-bi31ryjFjRmhB2nsQUeofGMQ7hVdVxoZ9W--sAi9VlD4D21yeaHH0YLG27vrOoHlAZ9O7O30JgtdaXQ56ava2ZR1wJIYxU1UjwjTGR1JDiuK3sa2udUfhYilP9i4R8upCZrOiFwgTPglXixtY0qBvlYrFTECufxrFrgffEyuBEZM-FERSeotCK7AGV3m7fU_GSeO8NXln_A7G9VOw-fF_LFGKOjV0hDnMbML8Ojy3DbB_4oUqsKzGJdGbS82xegabGhItDrw.jpg" width="400"><br>
 
@@ -53,7 +170,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 <img src="https://cdn4.telesco.pe/file/srlCyM4lroAavTzijkVUboKUSVEWQrVpXMMiv_ZQXRtas4L06gE6ImhI4ZhlILKWRQdIjW4L70g-4CBauIcwOBlUBk2bediqIj0JHcalbpg0YwV1g_nk-hTPssmsAMca37G8E6hlYlN33GLbRrZF3RR2rh8h6ITH23kn0AA3u6RmwDZ-gVxpNiIt_3ZPRRXBV5y06MMMraYEuBGFGc8yisT3ZtoJpW2ru6CDIkKQrVwfmgMY4cm4wkihRkt0SNjCWCpvojf7NEV8FXYpX4zyS7IVcsKLDhIr914axmaICcGN6y-q70g29iaPbY3eSLg1wvUy-JHs5w77XOVb3LW54w.jpg" width="400"><br>
 
@@ -72,7 +189,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 <img src="https://cdn4.telesco.pe/file/i6RK2B1HPeuSU-6YfznboI7678gkgjR2CEZQObTjQ6de98bCmOjZVkYQTAd61zCeg_EncBK_x-vUYVykUrQLorljdFnKNBfvub8kjcUEPSS8IijGGt0aSnBlMxKpnDqx_z5uewhp2lJjeEgNlA6GsFTZPbbXQBZRFC_ZCVMUIN_ITWAoA_27BNK4Wnb1wi3DJQtk_5fTLXSPpHSGcj7LJwj0XRmaajDqkdqmeDEbtSeyHuFZ5jej4mC5ECqtaKfGsjWHFfi5mF2CDQjIxknqWsZmZa15sDwFlRnHqoA4R3Gau__3DwetKXZYcDCr1gT-xYmMT3D_z2PAL0T2FPkMRg.jpg" width="400"><br>
 
@@ -90,7 +207,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 
 
@@ -108,7 +225,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 <img src="https://cdn4.telesco.pe/file/ajKy4QswZ6_cJ5DIp5TUyRZhoRiWqE4ugdByPiGAxxou9OmNiMxbGw_hSi3rBgE--hD7Jcx_qvxDS12bF5rSTgOYwdKfUD2aUSjAwSbAuhzDo2AWPDSrWPiNpDcRXvnmhvRqiWZZz8Zrveo2z2XhejIsE0jcJ1SoX9PIPpDj6Acy6S5sGMddMBM9KsTqdFjLFHxLVeDllZ6A6ZFE6_AI5MQi-sEetzJINwSoq2yu-dQj6myfCg-GDRGaxhRADvHx5M27cSbDFRUiPWPgqu8Hx7I-iZaKfUPHZYUweH6yFGA4jCCJEgA0MNx6CQ6RY4fw1hwgjl6oaOKwD340kllm2Q.jpg" width="400"><br>
 
@@ -126,7 +243,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 <img src="https://cdn4.telesco.pe/file/hCovR5rjQ7GmFYo3YsFpVJIFzGkD5o7PZ656heCe55U5OadEB4q33iSgvUYuDqI0Gin9wIkO2Xn3r3IhmtkfnYo_n7vGUsaCkqikZnT7qcVNkZ6JuBizzPoEj_ny7OgMTvZHdgdTdwsCOSp4Y7G4T6Z8ypD7euHa3G6g5YQ_0bXkx1gV8W2IBP_heHY0jgl_1j2b7XhomuJKNTOSnMaL-yGefWBUYrHCVrUqrV-HPIYBQirM9QjvxsjWFi5UXZFRdaNCIDQ55GGnsueFRMYzc_3ahlv0uev2wpVF5smRcRBwcpoB-c2x_e74Woj6KK9y4QASW7YeP0sLfjiMI9xzdg.jpg" width="400"><br>
 
@@ -142,7 +259,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-10 17:24:19
+###### 🔵 Updated at: 2026-05-10 18:14:19
 
 <img src="https://cdn1.telesco.pe/file/fuavnaWkCQ_sd_d5SGQy7AVi0NlHcTzWKe8DIaZhgAzj6DRBMRk5wFOP6DzPdlA-hu5aTkqJQBm5V-JJ2mw3TEAM8XUqFMsKECVJ-QanTIssLmgEmgFMCrpryg2mVz9jwkxJagl7ElEwAAL3B3_LHD8vgcUD4TZB3jecgYxHyI3yvjAOZkW3MYWFf_6jI3PANIQHCZlAziT_54zxN0v_Ukl7awuA1vfQJ84VhpO3K_K9_i-BM9yqu3AjIUN8Vgyf725t8w_jlLlD5Fua79_qeotxIx__7u-iSK7t0nHCWfBzoNGkM6KUy8B0m4SbZzg5LxI7ug-rcONtvHMhHqVP2g.jpg" width="400"><br>
 
@@ -152,100 +269,6 @@ VahidHeadline
 عبدالله۲۱ ساله و عیسی ۲۳ ساله،  در سال ۱۹۵۴
 
 [View Post](https://t.me/VahidOnline/75358)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 17:24:19
-
-<img src="https://cdn4.telesco.pe/file/nNC0w5QLwwdjsCFSXHdc_L08nfwaNwODXY-9j1XgM4aXyFteu7mlOjuP1LLLihpTgbCmq7a6BT2v8OR0LlWLbHExOJlEdY-jo3lS3iI0FY-rlysa-dQ9QOOKLQjQA7HG1tmtMpE-K1Bvi0jh3xdHMFBSCbyOhbHLq238XYqwXNT9xSceYCicCLnKOSLTqHti_3Eu4xpIJ--ZamMH_NyyCu_mbhDtH5aH-o2MEYbaydQOop7IAP5slY5MrLXPtextuqv72J9ZnxjfXQlRiKAukzzCi0oN15xwYTV_oCZdce0JptpQON0r4nXQ1jkx1qT4r29AxiakBHN6qCG1GSNhGg.jpg" width="400"><br>
-
-وزارت دفاع بریتانیا روز شنبه اعلام کرد که پیش از هرگونه مأموریت بین‌المللی برای کمک به حفاظت از کشتیرانی در تنگه هرمز، یک ناوشکن به خاورمیانه اعزام خواهد کرد.
-سخنگوی این وزارتخانه به خبرگزاری فرانسه گفت: «استقرار پیشاپیش ناوشکن «اچ‌ام‌اس دراگون» بخشی از برنامه‌ریزی محتاطانه‌ای است که تضمین می‌کند بریتانیا به‌عنوان بخشی از یک ائتلاف چندملیتی به رهبری مشترک بریتانیا و فرانسه، در زمان مناسب آماده تأمین امنیت تنگه باشد.»
-لندن و پاریس چند هفته پیش اعلام کردند که طرح‌های نظامی برای تأمین امنیت تنگه هرمز در حال شکل‌گیری است و در بازگرداندن جریان تجارت از طریق این گذرگاه حیاتی موفق خواهد بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75357)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 17:24:19
-
-<img src="https://cdn1.telesco.pe/file/miDpllLYTDqcLCJfuO4idxxiKwZv6AZBJ1SsZXXwiGQazvJyJ3tevF_GBjHEsg_x-DBUfADY1mCg_JQpbj0C5RYTFo3hZDeUeKzvImPrwxh3uu4InmtqiVjuM2wenL31ftqOsYnsOJOndsB6dE92e0uXaQCvGcAjJw63XpbzIhMXmnhpbZq2W4LucYQ8rea8rZ-b9y_KNen0vIuoTqWFXEqRIS3qko-RuBYjoZrsqsLICaFgrBssTMHsQs8rhUqwY58zm_AHhs3r-VAuL9o1JgH2qHBnv-sRyqIN5AWRtJNN3ncyZqTWxI2pnHR9d1d36pWCD5LCH81xmvmvbxIBDg.jpg" width="400"><br>
-
-وزارت کشور بحرین روز شنبه ۱۹ اردیبهشت اعلام کرد که ۴۱ نفر را که به گفته این وزارتخانه با سپاه پاسداران ایران مرتبط بوده‌اند، دستگیر کرده است.
-خبرگزاری دولتی بحرین به نقل از این وزارتخانه گزارش داد که مقامات امنیتی گروهی مرتبط با سپاه پاسداران ایران را شناسایی کرده است و افزود که تحقیقات برای شناسایی و برخورد با هر فردی که در این تشکیلات فعالیت داشته ادامه دارد.
-@
-VahidHeadline
-ابراهیم عزیزی، رئیس کمیسیون امنیت ملی مجلس شورای اسلامی، روز شنبه ۱۹ اردیبهشت، با انتشار پیامی در شبکه اجتماعی ایکس کشورهای منطقه از جمله بحرین را تهدید کرد که در صورت همراهی با قطعنامه پیشنهادی آمریکا در شورای امنیت سازمان ملل، با «پیامدهای جدی» مواجه خواهد شد.
-عزیزی بحرین را «کشور ذره‌بینی» خواند و نوشت: «به دولت‌هایی همچون کشور ذره‌بینی بحرین که در حال همراهی با قطعنامه آمریکایی هستند، درباره پیامدهای جدی این اقدام هشدار می‌دهیم. درهای تنگه هرمز را برای همیشه به روی خود نبندید!»
-قطعنامه مذکور که با حمایت آمریکا و کشورهای حوزه خلیج فارس به شورای امنیت سازمان ملل ارائه شده، از ایران می‌خواهد که ضمن توقف حملات علیه شناورهایی که قصد عبور از تنگه هرمز را دارند، محل دقیق مین‌های کارگذاری شده را اعلام کند و از دریافت هرگونه عوارض عبور از شناورهای عبوری خودداری کند.
-@
-VahidOOnLine
-وزارت خارجه عربستان سعودی در بیانیه‌ای حمایت کامل ریاض را از اقداماتی اعلام کرد که پادشاهی بحرین برای مقابله با آنچه «اقدام‌های صادرشده از سوی ایران» خوانده، اتخاذ کرده است.
-در این بیانیه آمده است این اقدام‌ها به گفته مقام‌های سعودی، امنیت ملی بحرین را تحت تاثیر قرار می‌دهد و با هدف بی‌ثبات کردن امنیت و ثبات این کشور انجام می‌شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75354)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 17:24:19
-
-<img src="https://cdn4.telesco.pe/file/vD_LXMZZ6KjmMSlQ01akVqVz3M0-J01E3ddCwruEY0TrIH3R5cP3SzfGxIjZMMKxFS6PI8GzxiDbJUh16MWKSTGlXZEI1w6peS4u6XnE_eZbdPLWJcGEq_l1K52I4PUBt-8MVmUoZaHD86DrQPbcnMyKZ_ILtblzLJ_1m4pCQsHp-Xm2LkFjOVd_NXqDHbpI9-bUeOsq5yUtjMIy45d7gQ22BuFXRJbCB5rtyEgLmvYekX8UBdxdNa7hO3E-IX_rvEVyrNQmrTO-UqLtpcix0iz5sa0CpEUw0KXPwodhiUCZnuH-nYQFZa_n2sb1oGJdRdsnr2mgIANcpgAejTYugQ.jpg" width="400"><br>
-
-همزمان با شرایط پرتنش منطقه، رویداد «در امارات بسازید» در ابوظبی برگزار شد و شرکت‌های تجاری نزدیک به ۴۶ میلیارد دلار در امارات سرمایه‌گذاری کردند.
-بر اساس اعلام اوپک، این رقم بیش از مجموع درآمد نفتی جمهوری اسلامی، ۴۵.۳ میلیارد دلار، در سال ۲۰۲۵ میلادی است.
-النهار گزارش کرد این سرمایه‌گذاری شامل صنایع دفاعی و تکنولوژیک، دارویی، شیمیایی و انرژی است. این رویداد چهارروزه حتی در شرایط جنگی تعطیل نشد و توانست جایگاه امارات را به عنوان یک قطب صنعتی در منطقه تقویت کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75353)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-10 17:24:19
-
-<img src="https://cdn1.telesco.pe/file/sSx5B8zzxqE35hROSDVMLtBQk-cGXrk_VxoaP_9yuiXebQ1-DImE1gV1q6eERX7EWjapl0X3ifBOVvTScnI16IGzmL7zdGoZt6P752C-2FZzGK0aYdmuzu2uZ6nys_vZQwKLEJoWuZSwR3lmKyD-LIKKSFsBIWcsecR3JAmzGUF8GlB5U5PGYC-TvK9BO7951sjYFUsRUERm0cQ5JnJNIxnqUryFX_Jw9yruQKKaTE0bHCUnrN-e4LQEcuiDkNH83xLedg5x5anZb8mcGdoL_YJTkgcxszReSEb4etv6aWUkAFAxoEjs_68LUVdKdWlc-p0zG26M2WLXSvt6AYsd7A.jpg" width="400"><br>
-
-در آغاز یازدهمین هفته از قطعی سراسری اینترنت بین‌المللی در ایران، یک مقام دولتی هشدار داد که این اقدام حکومت در درازمدت خود به «تهدید امنیتی» برای جمهوری اسلامی بدل خواهد شد.
-احسان چیت‌ساز، معاون وزیر ارتباطات در دولت مسعود پزشکیان، گفت: «قطع اینترنت فقط در بازه‌های زمانی کوتاه می‌تواند کمک کند و در بلندمدت تهدید امنیتی است.»
-قطعی اینترنت در ایران روز شنبه، ۱۹ اردیبهشت، یازدهمین هفته خود را آغاز کرد، در حالی که مردم عادی در کشور تنها با صرف هزینه‌های گزاف می‌توانند به اینترنت بین‌المللی دسترسی داشته باشند و مقام‌های حکومتی و عده‌ای از حامیان جمهوری اسلامی با مانعی در دسترسی مواجه نیستند.
-@
-VahidHeadline
-معاون وزیر ارتباطات ایران خسارت‌های ناشی از قطع اینترنت برای اقتصاد دیجیتال ایران، در پلتفرم‌های بزرگ را ۵۵ هزار میلیارد تومان اعلام کرد.
-او گفته است: «مجموع عدم‌النفع (کاهش درآمد) این حوزه نزدیک به ۱۶/۳۲ هزار میلیارد تومان برآورد می‌شود.»
-معاون وزیر ارتباطات ایران همچنین گفته است قطعی اینترنت در حوزه مخابرات و ارتباطات حدود ۶/۴ هزار میلیارد تومان کاهش درآمد مستقیم کسب‌وکارها را در بر داشته است.
-آقای چیت‌ساز گفته است: «قطع اینترنت برای کسب‌وکار اقتصاد دیجیتال ممکن است برای چند ساعت قابل تحمل باشد، اما قطع گسترده و سراسری آن عملا یک شوک اقتصادی ایجاد می‌کند.»
-یازده هفته از قطع سراسری اینترنت در ایران می‌گذرد.
-افشین کلاهی، ازاعضای اتاق بازرگانی ایران، پیش از این گفته بود که خسارت مستقیم قطع اینترنت در ایران ۳۰ تا ۴۰ میلیون دلار در روز است و خسارت مستقیم و غیرمستقیم این محدودیت تا۸۰ میلیون دلار در روز می‌رسد.
-@
-VahidHeadline
-خبرگزاری دولتی ایرنا در گزارشی میدانی از تهران، عملاً تأیید کرده است که قطع اینترنت بخشی از فروشگاه‌های مجازی را از فضای آنلاین بیرون رانده و به خیابان و پیاده‌رو کشانده است.
-ایرنا نوشته پررنگ شدن دستفروشی فقط محدود به نقاط مرکزی تهران نیست و از بازار امامزاده حسن در جنوب غرب تهران تا شهرک اندیشه شهریار نیز دیده می‌شود.
-به گزارش این خبرگزاری، مدارای شهرداری و «دستور آگاهانه» برای برخورد نکردن با دستفروشان، این روند را آشکارتر کرده و بخش‌هایی از شهر را به ویترین بساط‌گرانی تبدیل کرده است که به‌اجبار از اینستاگرام به خیابان کوچ کرده‌اند.
-ایرنا نوشته فروشندگانی که تا چند ماه پیش با صفحه اینستاگرامی، پرداخت آنلاین و ارسال سفارش فعالیت می‌کردند، حالا در نبود اینترنت آزاد و پایدار، ناچار شده‌اند در خیابان بساط کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75348)
 
 ---
 
