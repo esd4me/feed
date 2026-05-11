@@ -3,7 +3,70 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-11 20:35:50
+###### 🔵 Updated at: 2026-05-11 22:41:13
+
+<img src="https://cdn1.telesco.pe/file/V25pSzPciti7go_PQteHD6vwB6-xCfxTQpFsUzXcOLDHWSv6bqQIVEIWtnFGP9WuAVq3yRIP-6qpxMMmwKwYgkHPmMh6NWdsjGZhUEFhWNpflEY45Fru7jJaROIsaYtllCIVQp6Rlhe1RGRJk9dcKWwPpfUIwqx1TCot2ScDVTYN4qFz0txN-1d9ExqUu2Pgo-ldclc1j3RAoZujoiUI-faNbMtTXVSMdQ0M1OBGwsCQHEMbXkhztiD2uT_5jM_UvF7tw7gaa4QThJWykCyzls6s9bgUpayAvwk3MWHPkinEYEd0qKOgcgqjyQRIGIWz4FgujiQIXF6luySldQk4iQ.jpg" width="400"><br>
+
+محمدباقر قالیباف، رئیس مجلس شورای اسلامی و رئیس هیات جمهوری اسلامی در مذاکرات با آمریکا، دوشنبه ۲۱ اردیبهشت‌ماه در شبکه اجتماعی اکس نوشت نیروهای مسلح جمهوری اسلامی آماده «پاسخگویی درس‌آموز» به هر تجاوزی هستند.
+قالیباف نوشت: «استراتژی اشتباه و تصمیم‌های اشتباه همیشه نتیجه اشتباه خواهد داشت. همه دنیا قبلا این را فهمیده‌اند.»
+او افزود: «ما برای تمام گزینه‌ها آماده هستیم؛ شگفت‌زده خواهند شد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75425)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-11 22:41:13
+
+<img src="https://cdn4.telesco.pe/file/sCnPGUEFaLR16afOKkvknrkQdrizBYRFtDdkb-p_jFsqqTBbFFDdB2k6tH6Ekt1BxepTmKIYnFerM3MATkcb_CPzrafI2AaOMvZY-3jEdngPBMMEI59_Uyx9hleCEyncMLwn1GnrqyLvShxB-FMm4Ax8kWBJvpRItn9iqALMfGFqtCmkb5-ep-rLvsTTUF0GImScjw3MlR_XF5UVLKmH21aiKIKOSNRhWWYhs1UY-WFeGvzmC8DlCCFaObxK_PdEy_BGWT4azMKUf_1v6oPjvHkDRJMHuTOP1R0oPjd-OJCs3EeJfcssZV0dG_u3ZiVfMUZ7CkKfXVwsaWcsOcUQfQ.jpg" width="400"><br>
+
+وب‌سایت اکسیوس گزارش داد دونالد ترامپ روز دوشنبه روز دوشنبه ۲۱ اردیبهشت ۱۴۰۵ با اعضای تیم امنیت ملی خود درباره ادامه جنگ با ایران و احتمال ازسرگیری اقدام نظامی علیه جمهوری اسلامی جلسه برگزار می‌کند.
+بر اساس این گزارش، سه مقام آمریکایی گفته‌اند مذاکرات میان تهران و واشنگتن روز یکشنبه به بن‌بست رسیده و همین موضوع گزینه نظامی را دوباره روی میز قرار داده است.
+اکسیوس به نقل از مقام‌های آمریکایی نوشت ترامپ همچنان خواهان توافق برای پایان جنگ است، اما رد بسیاری از خواسته‌های آمریکا از سوی ایران و خودداری تهران از دادن امتیاز جدی درباره برنامه هسته‌ای، احتمال اقدام نظامی را افزایش داده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75424)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-11 22:41:13
+
+<img src="https://cdn1.telesco.pe/file/l-3b-wbsVIdnBtNYZ3AtZo5_ZkSzMftvRULhBPf9tQcn9ddBZh96Flmm9wfBs2Wj7JQlbGS07_ckjaFdCrFl-4dY66A7D-sow2e3Nks-sjUZO9MUwP8XjTbQS8_We3vu-3b-9DF4QGtZ18A2lMHUgnUJOo2_pwLy1fKC5VHPuVPlQJ_o6NdX-NcniIWtXdTn9AGl4DshaeWrVaqdurGJzFU50a5pehUsT3UUw5VWKRovwoHcU6Y2wbojQMwhls_wnFlHkcuhhG0GnkvIj0QCRUFrQQ5ZsY_6dMMF6Pn92Df3cp7c4yHWtEfCkguh24qkXZlGAYKTLdxra0mIeQk9qw.jpg" width="400"><br>
+
+پیام‌های دریافتی حدود ساعت ۱۹:۳۰ به همراه تصاویر بالا:
+▪️
+وحید الان برام پیغام اومده که من جان فدا هستم و ثبت نام کردم ولی خودم در جریان نیستم
+😂
+▪️
+آقا یه اتفاق جالب افتاده. ظاهرا بعد از هک شدن دیتابیس جانفدا دوستان یه فکر بکر به سرشون زده.
+من هیچ وقت در این کمپین ثبت نام نکردم ولی پیام زیر رو برام فرستادن. فکر کنم خودشون به صورت پیش فرض همه رو تو این کمپین عضو کردند، حالا هرکی جرات داره انصراف بده… البته نمیدونم انصراف داره یا نه.
+▪️
+امروز این پیام برای من اومده در شرایطی که من اصلا ثبت‌نام نکردم.
+حتی برای پدر خانمم که فوت شده هم اومده.
+▪️
+امروز عصر واسه من این پیام اومده
+در صورتی که من حتی تا حالا سایتشو هم باز نکردم
+حالا یا خودشون دارن روی شماره هایی که از یک سایتی یا صنفی داشتن ثبت نام میکنن، یا اینکه یک ادم [...] واسه من فرم پر کرده یا اینکه مسیج الکی فرستادن
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75420)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-11 22:41:13
 
 <img src="https://cdn1.telesco.pe/file/OEnyCedAVk4rzPKZd0m-dHDD8IQVPSTZZ2WzTzJaG_qpvgvPjZuYlYDJbSzj-sq2U6ejXbqqghUglamUuhK_jCYuUY7_SOvsEWXJnWCLsZ-e_UCyop58ChZq1rxOk5QnoU_E2LCR2duYxrF5e_cuxRWvb76ubyujPPWp9s2AjyDPu67TjzyRSMiXerTfrQNuSzYj3knnObhG1_6SxTlMlbCqQwqAt1GsIi6AqQc13KM1n3kAdazb5NonZkBiTmY_VbC5-hhLU2ye9YDk9ZuD3gX5PDPu88BKz3FzzW91Pif6hCbQBmaorj6GXm9XhH5kFkqIqPMmc7r1YriKLp8f4Q.jpg" width="400"><br>
 
@@ -38,6 +101,11 @@ VahidOOnLine
 براساس آخرین گزارش‌های آژانس بین‌المللی انرژی اتمی، ایران دست‌کم ۴۶۰ کیلوگرم اورانیوم با غنای ۶۰ درصد دارد که گمان می‌رود در تاسیسات هسته‌ای اصفهان مدفون شده‌اند. این تاسیسات در جنگ ۱۲ روزه و جنگ اخیر اسرائیل و آمریکا بارها بمباران شدند.
 @
 VahidOOnLine
+دونالد ترامپ، رئیس جمهوری ایالات متحده در اظهاراتی گفت: «مردم در [ایران] می‌خواهند به خیابان‌ها بروند. آن‌ها هیچ سلاحی ندارند، هیچ تفنگی ندارند.»
+او ادامه داد: «فکر می‌کردیم کردها قرار است سلاح بدهند، اما آن‌ها ما را ناامید کردند. کردها فقط می‌گیرند، می‌گیرند، می‌گیرند. در کنگره هم درباره آن‌ها شهرت خوبی دارند و می‌گویند خیلی سخت می‌جنگند، اما نه، وقتی می‌جنگند که پول بگیرند.»
+ترامپ گفت: «من از کردها خیلی ناامید شدم، اما ما برخی سلاح‌ها را با مهمات فرستادیم که قرار بود تحویل داده شود، اما آن‌ها آن را نگه داشتند. من گفتم آن‌ها آن را نگه می‌دارند، اما چه می‌دانم؟»
+@
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -47,7 +115,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-11 20:35:50
+###### 🔵 Updated at: 2026-05-11 22:41:13
 
 <img src="https://cdn1.telesco.pe/file/kctZaj5fDSJfWH-ngDBoCH453BB373E8ge9GR4V53kAWhku3bzrBJ6tnWN_RyPQKz8EzM1ktwOjaS-oxC4DNraBR5ZsSYsrW3QLjm26wgd3sClKxjdK1aZgTccqvSK7IgR7NO_GO5fYpshOsQQWo6K9MwbZr_lbFcpOsIybLtf4V6EY1o95qVG7KIlOo9wNbRc2iaaKD1wIWC7tMF4VkQcJ8cxu4j0vw96VBYfPi7jqd9Y9Z7xqbdeV367i6LrorcN41cn_VDolteppAOutLtsLmfJiLm99ZgmVzG2EJY8guGwX1UXM5QjQCBXZ7XdWEu011GPtJEWyGdCyFnBI3LA.jpg" width="400"><br>
 
@@ -61,7 +129,7 @@ AmirKh1982
 
 
 
-###### 🔵 Updated at: 2026-05-11 20:35:50
+###### 🔵 Updated at: 2026-05-11 22:41:13
 
 
 
@@ -81,7 +149,7 @@ hamedbd
 
 
 
-###### 🔵 Updated at: 2026-05-11 20:35:50
+###### 🔵 Updated at: 2026-05-11 22:41:13
 
 <img src="https://cdn4.telesco.pe/file/NRx26BOFWlZUoNWQyDt-jRdmad_0OsnIrz6SHSyjkdA8CzkUZJyHBmNQN5df3YC6T-ObfGMKy1uko9QPZgzKnKQSx6m8xUQn41Dg_3xbVJF9n6FgpcLMx12uDCfN_XM94vInO0tCPDWK6T_kVROGrrOGW8nHeTo9QNX0vexFotgiGMf6e8RX-fqwVDWM5cLEswC0KAwEVXJ2-qnFdWyd64zePtJWYg8nqouXFA2xN6EownnULdfk5dUD7-o0SPC1Uunp2G2YNNIh5x0J6jNDJOjLeHz1aCUhYhqzJBOrc2KESU-PYpvAcBrooHcO_H_GYGgBubDm9vM9WXTtmJtxdA.jpg" width="400"><br>
 
@@ -100,7 +168,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-11 20:35:50
+###### 🔵 Updated at: 2026-05-11 22:41:13
 
 <img src="https://cdn1.telesco.pe/file/DV-nzUcNyZNrgBpthlUi8kFS50aoV1p2DF2o1w8NrF0iBz5_XMngawUk0KQx__EooMaRqQYU1XvvY5L4aMU658Xms6sXWtXCFT6_iPy9zEBMosNGqWLPDsomFjxhHK3dwL7krHipuMj5-FC8up7n4nvx91Ug23mtCa0D6YIQQjcELFVxTyhounmikGHKmD57FAD1R_AKdaZK_fuw52aIyEjPJXJfuxuVbUffTSL4JX66V3d3klQY-B4agoTlvEACxDXLH_UVu387j4wzwPz-NtcbagWnx2UtAAdQwJjyVVU272WCJh74eskQ-mnOwL_YsqTEuPy8pRR6YPISMrQuJQ.jpg" width="400"><br>
 
@@ -116,72 +184,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75402)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-11 20:35:50
-
-<img src="https://cdn1.telesco.pe/file/lJLcsvsN3ZjHfa-GoiZkbKBXgIOUtoP6JibsmOCEpAWZSvDyvlhl0G6no5WF6sCTZg9k5TJxWqs8hPK2BsgnfiquyD1rOOuRWrCiMy7FaXxj8OmP3qc9BqMOxBjpQ2wXe7qUd7e5k3oZ6viDKjRN-4PFUFSn1kV5qbQBuhjKPTk_biQ57_KKbusbg5Hsb3mfvM8rOlym4mtE1lK1XkKkxXZ6XNtxrKJLESZl-WwTwpmOcnX8RPajMW4XH342Fua_Jw9bFRq6TVCmovwqY4CYBj1WV3eF5puB0HsKFRumI06j4nnfW6CbdPo9U7hyRglWqJmFIQCi5fm3NG1I66j1zA.jpg" width="400"><br>
-
-نخست‌وزیر بریتانیا تاکید کرد که از جنگ ایران حمایت نمی‌کند و افزود که شهروندان این کشور نگران افزایش قیمت بنزین و تاثیرات اقتصادی آن هستند.
-کی‌یر استارمر تاکید کرد کشورهای دیگر می خواستند بریتانیا را جنگ ایران بکشانند اما او هرگز این کار را نخواهد کرد.
-@
-VahidOOnLine
-دولت بریتانیا روز دوشنبه، ۲۱ اردیبهشت، ۱۲ فرد حقیقی و حقوقی مرتبط با حکومت ایران را تحریم کرد.
-به گزارش خبرگزاری رویترز، این افراد به «مشارکت در اعمال خصمانه» علیه بریتانیا و چند کشور دیگر متهم شده‌اند.
-در بیانیه رسمی دولت بریتانیا، از جمله این اعمال خصمانه به «طراحی حمله و ارائه خدمات مالی به گروه‌هایی که در پی بی‌ثبات کردن بریتانیا و دیگر کشورها هستند» اشاره شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75400)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-11 20:35:50
-
-<img src="https://cdn4.telesco.pe/file/jOe8nezdCMZbkjycDndQbqu1NBeFz4HZDKJG-6fRA2xb-3Fb1jtrcfDJcXRfd41ldOvKY9QVqpICiAQ6NpIipdyGGVAWDFeCE8H87DeAmaybUCbRls-mhQsqySIBYysBLkopRIpWat-sls4-VDhUnkVTvFi1dTjAkhh1NLJIIyZqTUrOUXam7VLb7TnnNYwN3bICBSz_p1AVK_Kv46yvDffRD_M6OZFhNixCk1v-Q2Lb57akPUcG-Q8Pj5jv8PGTIcGyG8QD_ix03s81sjGrNz6GoHBHacO4th_zBiNJf73QLN7-8O_uZEmnCXFZn1-eout4gEXqUU1kVPQmbfn0rw.jpg" width="400"><br>
-
-محمدعلی جعفری، فرمانده قرارگاه «بقیه‌الله» سپاه پاسداران، گفت: «تا زمانی که جنگ در همه جبهه‌ها پایان نیابد، تحریم‌ها برداشته نشود، پول‌های بلوکه‌شده آزاد نشود، خسارت‌های ناشی از جنگ جبران نشود و حق حاکمیت جمهوری اسلامی بر تنگه هرمز به رسمیت شناخته نشود، هیچ مذاکره دیگری در کار نیست.»
-او افزود که با این سطح از بی‌اعتمادی به آمریکا، طبیعی است تیم مذاکره‌کننده با هدایت کلیت نظام، شروطی را مشخص کند که همه حقوق مسلم جمهوری اسلامی را تامین کند و این شروط «حداقل انتظارات» ما است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75399)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-11 20:35:50
-
-<img src="https://cdn1.telesco.pe/file/RQXfDbJggfRdW8T8jgUBHg4Ze3AN3YiBfMrMX6Wcfq8S8ggpCT37aD5s4r7B-tz1T6eyNYw_Guv9wD4u8xybBZJjB8GzvXhw8y3xyWA1N3vXJNVcphmWWqX6yDDq571KD4_pnkrrzj0n98Gjn0O21a4F36AtNjJLLGEQc9rYJmCvLz-OcZ2mI1pdG-bnr67Qu17Vjdy2HFueQuh2OYtaccVmlf7Q8mDCBptXRXwefIVtHZTF876RX4N9dcLJ7Yztqtvjeh_3r7cb4u5Tr30iDxocP5SMDKtT699KsV-zEkcuxh2LqbvvD9bWsKD7d9qDaD3NbIE4q7LTBkICzSkT9Q.jpg" width="400"><br>
-
-«اسماعیل بقایی»، سخنگوی وزارت امور خارجه جمهوری اسلامی، در نشست خبری روز دوشنبه ۲۱اردیبهشت۱۴۰۵ گفت در شرایط کنونی اولویت تهران «پایان جنگ» است و نه تصمیم‌گیری درباره آینده برنامه هسته‌ای یا ذخایر اورانیوم ایران.
-او در بخشی از صحبت‌هایش بدون نام بردن از دولت یا فرد خاصی نیز گفت: «هنوز با کسانی که علیه ما تجاوز مرتکب شدند تسویه حساب نکرده‌ایم.»
-بقایی در واکنش به اظهارات «ولادیمیر پوتین» درباره آمادگی روسیه برای انتقال ذخایر اورانیوم ایران گفت: «در مرحله کنونی تمرکز ما بر پایان جنگ است. این که بعدا در مورد موضوع هسته‌ای، مواد غنی شده ایران و مباحث مرتبط با غنی‌سازی چه تصمیمی گرفته شود و چه گزینه‌هایی را مد نظر قرار دهیم، موضوعاتی هستند که وقتی زمانش برسد حتما در موردش صحبت خواهیم کرد.»
-او همچنین درباره روابط تهران و پکن گفت جمهوری اسلامی با چین «ارتباط مستمر» دارد و گفت: «چینی‌ها به خوبی از مواضع ما آگاه هستند.» بقایی مدعی شد چین نیز مانند جمهوری اسلامی، اقدامات آمریکا را بخشی از روند «تشدید یک‌جانبه‌گرایی» می‌داند.
-سخنگوی وزارت خارجه جمهوری اسلامی در بخش دیگری از سخنانش، آمریکا را «بزرگترین تهدید کننده صلح و امنیت بین‌المللی» توصیف کرد و گفت: «جمهوری اسلامی ایران ثابت کرده قدرت مسوولیت‌پذیری در منطقه است. ما قلدر نیستیم، بلکه قلدر ستیز هستیم.»
-اسماعیل بقایی با اشاره به حملات آمریکا و اسراییل علیه جمهوری اسلامی گفت: «حمله به یک کشور، از بین بردن زیرساخت‌های آن، ترور رهبر و شهروندان یک کشور، مصداق عمل مسئولانه نیست؟»
-او همچنین در واکنش به انتقادهای «دونالد ترامپ» از طرح پیشنهادی جمهوری اسلامی، از مواضع تهران دفاع کرد و گفت: «ما امتیازی نخواستیم. تنها چیزی که مطالبه کردیم حقوق مشروع ایران است.»
-بقایی در واکنش به صحبت‌های رییس جمهوری آمریکا گفت: «قضاوت را به مردم واگذار می‌کنم که آیا مطالبه ایران برای خاتمه جنگ در منطقه، توقف راهزنی دریایی علیه کشتی‌های ایران، آزاد شدن دارایی‌های متعلق به مردم ایران که سال‌هاست به ناحق محبوس شده، زیاده‌خواهانه است؟»
-او همچنین گفت: «هر آنچه که ما در طرح پیشنهاد کردیم معقول و سخاوتمندانه بود و برای خیر منطقه و جهان است.»
-سخنگوی وزارت خارجه همچنین مدعی شد که این وزارتخانه، از هر تصمیمی که از سوی نهادهای نظامی مانند سپاه پاسداران برای «تنگه هرمز» گرفته شود اطاعت می‌کند.
-@
-VahidHeadline
-گزارش ایسنا:
-isna.ir
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75396)
 
 ---
 
