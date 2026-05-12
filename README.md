@@ -3,7 +3,69 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-12 15:01:15
+###### 🔵 Updated at: 2026-05-12 16:52:39
+
+<img src="https://cdn1.telesco.pe/file/egL9qPDvubRemi7wEbz6l1zszXJq2Lswer2XLdFfiE3xCxPyvVXh2fBsyE96RMtFLhfWJU4J9suv4haTxdr5kgm80rxLzKOVlPIA_50t_Isu04bM_VIaKUBkkTlVGPg7p9Dk-x8K3j259BHn6GRFWWlNOT3aKl9TF1l6xZ_BH3_El9C33YQ0Hj2W5HD4gJtmM0T7OCQK3bFwuQ5AE05AHJWG3MEzvJvf30JRbYZ8AuqHmHcFoAYpxkXKEMHRIvVpdYV95J_OWZKadJW10UcCb5WMvbURnWAb0s2xDJV0Q1uEUtRcmwOZDoE0P8OjMP9c5yob39wgTMFmU0hcD1XIlg.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز سه‌شنبه در تروث سوشال دو تصویر گرافیکی منتشر کرد که صحنه‌هایی از حمله به پهپادها و قایق‌های جمهوری اسلامی را نشان می‌دهد.
+در یکی از این تصاویر، یک ناو آمریکایی با استفاده از سلاح لیزری یک پهپاد جمهوری اسلامی را هدف قرار داده و نابود می‌کند. در تصویر دیگر، یک پهپاد آمریکایی دو قایق جمهوری اسلامی را هدف قرار داده و منهدم می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75430)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-12 16:52:39
+
+
+
+نشست خبری سخنگوی دولت مسعود پزشکیان روز سه‌شنبه ۲۲ اردیبهشت به دلیل وضعیت اینترنت به بگومگوی خبرنگاران با فاطمه مهاجرانی منجر شد.
+سخنگوی دولت تاکید کرد که «اینترنت پرو» با مصوبه شورای عالی امنیت ملی که ریاست آن را مسعود پزشکیان بر عهده دارد،‌ مورد استفاده قرار می‌گیرد.
+او در عین حال تاکید کرد که این اینترنت ویژه کسب و کارها است. [در حالیکه خیلی از مردم بدون کسب و کار هم پیامک گرفتند بیاید پرو بخرید]
+@
+VahidHeadline
+فاطمه مهاجرانی گفت با توجه به وضعیت جنگی، فعلا اینترنت عمومی وصل نخواهد شد.
+مهاجرانی در پاسخ به پرسش‌های متعدد خبرنگاران درباره وضعیت اینترنت و به‌ویژه «اینترنت پرو» گفت ما در وضعیت جنگی هستیم. رئیس جمهوری به‌عنوان رئیس شورای عالی امنیت ملی پیگیر حقوق مردم است اما وضعیت جنگی است و بعد از پایان شرایط ویژه، اینترنت به‌حالت قبل بازخواهد گشت.»
+پس از این سخنان، چند خبرنگار تلاش کردند تا با یادآوری تعهدات دولت پیگیر وضعیت وصل اینترنت شوند. مهاجرانی خطاب به آن‌ها گفت: «وقتی رئیس جمهوری آمریکا می‌گوید آتش‌بس به تنفس مصنوعی وصل است، انتظار شما چیست؟»
+@
+VahidOOnLine
+فاطمه مهاجرانی، سخنگوی دولت جمهوری اسلامی، با اشاره به قطعی طولانی‌مدت اینترنت در ایران گفت اینترنت حق مردم است و عصبانیت مردم کاملا درست است. اما در ادامه تاکید کرد: «عامل این عصبانیت دشمنانی هستند که باعث می‌شوند فضای امنیتی ما مخدوش شود.»
+او افزود: «رسانه‌ها کمک کنند که این ادبیات را جا بیندازند. دولت طرفدار دسترسی آزاد است.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75429)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-12 16:52:39
+
+<img src="https://cdn1.telesco.pe/file/IVI4Y3bLh55rsomgPtqr2D-XY4z6RI-fnur5iTMh10zIWCHpB9pNQlc1J1OIv1kPY8Vd-PRGtrPmV7KPyH86T0_3LcrXONn_Gzv-2VkB6B9U-3Huu9gtvDCKFo4rp5necTnMC6JjG3Qx22d8u9sK217w5JcUEuKDwYf4H0pxggEknQAfVOC8Q5LG3QwhiMFe7SvDWUSe34h4ujAremv_GORTRzHVel4RHUxtmntZsvlFFq44oz6GxyWpnhVDNT9ViSosKEUY_3NaQkfHPMWXZYFhlVY3drX_b7W22kuDOY8id7UDB6qcWKR1BDXcIm9jj56O8Di9GrUNLNXwqTERVA.jpg" width="400"><br>
+
+قوه قضائیه از اجرای حکم اعدام یک زندانی دیگر به نام عبدالجلیل شه‌بخش در بامداد سه‌شنبه ۲۲ اردیبهشت خبر داد.
+ارگان رسمی نهاد قضایی ایران، شه‌بخش را «تروریست آموزش‌دیده» گروه «انصارالفرقان» معرفی کرده است.
+از زمان حملات آمریکا و اسرائیل به ایران، جمهوری اسلامی اجرای احکام اعدام را افزایش داده است و در برخی روزها چند نفر را اعدام کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75428)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-12 16:52:39
 
 <img src="https://cdn4.telesco.pe/file/ceLDJmuvaG-au2iU1mwfAsYz2svUUsCdXd8oR4mcl-RYoAGW9KjIotNQlVXo2-XrxYTjtCaDYMemsvSa7kV--0guAFODOb39Vaxc-wmd_1fNgDQzZVWhGuA4rxXC3bQWTkB-aE3DkAvw0Q9PMeN_oHvUda7SppDmZt_K2NZ_Uf_jNd0SYJ47-E_0zo8LZqpYRzlMiuKDnP6Ejfd9AifBdRfVa8vTi4pzKkWUlIB_m3ALcUel5kG_rTyZPE7zJ1gYNe0PCwoT41e629eKOGJFgh2toyNFPFpUvg9WOgoCY6VGOp3mgZzUTNRf1ecq1s1V4IfGiHjmSbqRBCo4T4UTCQ.jpg" width="400"><br>
 
@@ -22,7 +84,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 15:01:15
+###### 🔵 Updated at: 2026-05-12 16:52:39
 
 <img src="https://cdn4.telesco.pe/file/G1LOVFBdw1il00p_j-qQeFY0vK0oPEOOhd9Lbu8oVKbIQQdBN4Sg9gzmMuSPlJADLc2uqSVqzSHD6UxwTnXfcaksZE9JeaPkV93HmRlavFMCtE1cUWLBYhTgJ_dTO-xUFZixj490UV9iuTgV7Kca1ayOD1eQgUWDzKWaH3ez0ZrxEoqf2XHFgkwaQPli90PF5C7BqOxlF683XTwQ84drXNbZBBkxMOzMzzFlyJNj2Z4zjDeNPu4PhVFLWlrOcoNH4yvD0ZC_oYTg3XpynY5QJ7fudPOQje8FRDC3uF0tZhwnfhq1DVdu7byevgqtUBEpGo3rNcbVPt_izoN8XwdVwQ.jpg" width="400"><br>
 
@@ -41,7 +103,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 15:01:15
+###### 🔵 Updated at: 2026-05-12 16:52:39
 
 <img src="https://cdn1.telesco.pe/file/V25pSzPciti7go_PQteHD6vwB6-xCfxTQpFsUzXcOLDHWSv6bqQIVEIWtnFGP9WuAVq3yRIP-6qpxMMmwKwYgkHPmMh6NWdsjGZhUEFhWNpflEY45Fru7jJaROIsaYtllCIVQp6Rlhe1RGRJk9dcKWwPpfUIwqx1TCot2ScDVTYN4qFz0txN-1d9ExqUu2Pgo-ldclc1j3RAoZujoiUI-faNbMtTXVSMdQ0M1OBGwsCQHEMbXkhztiD2uT_5jM_UvF7tw7gaa4QThJWykCyzls6s9bgUpayAvwk3MWHPkinEYEd0qKOgcgqjyQRIGIWz4FgujiQIXF6luySldQk4iQ.jpg" width="400"><br>
 
@@ -59,7 +121,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 15:01:15
+###### 🔵 Updated at: 2026-05-12 16:52:39
 
 <img src="https://cdn4.telesco.pe/file/sCnPGUEFaLR16afOKkvknrkQdrizBYRFtDdkb-p_jFsqqTBbFFDdB2k6tH6Ekt1BxepTmKIYnFerM3MATkcb_CPzrafI2AaOMvZY-3jEdngPBMMEI59_Uyx9hleCEyncMLwn1GnrqyLvShxB-FMm4Ax8kWBJvpRItn9iqALMfGFqtCmkb5-ep-rLvsTTUF0GImScjw3MlR_XF5UVLKmH21aiKIKOSNRhWWYhs1UY-WFeGvzmC8DlCCFaObxK_PdEy_BGWT4azMKUf_1v6oPjvHkDRJMHuTOP1R0oPjd-OJCs3EeJfcssZV0dG_u3ZiVfMUZ7CkKfXVwsaWcsOcUQfQ.jpg" width="400"><br>
 
@@ -77,7 +139,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 15:01:15
+###### 🔵 Updated at: 2026-05-12 16:52:39
 
 <img src="https://cdn1.telesco.pe/file/l-3b-wbsVIdnBtNYZ3AtZo5_ZkSzMftvRULhBPf9tQcn9ddBZh96Flmm9wfBs2Wj7JQlbGS07_ckjaFdCrFl-4dY66A7D-sow2e3Nks-sjUZO9MUwP8XjTbQS8_We3vu-3b-9DF4QGtZ18A2lMHUgnUJOo2_pwLy1fKC5VHPuVPlQJ_o6NdX-NcniIWtXdTn9AGl4DshaeWrVaqdurGJzFU50a5pehUsT3UUw5VWKRovwoHcU6Y2wbojQMwhls_wnFlHkcuhhG0GnkvIj0QCRUFrQQ5ZsY_6dMMF6Pn92Df3cp7c4yHWtEfCkguh24qkXZlGAYKTLdxra0mIeQk9qw.jpg" width="400"><br>
 
@@ -104,7 +166,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 15:01:15
+###### 🔵 Updated at: 2026-05-12 16:52:39
 
 <img src="https://cdn1.telesco.pe/file/OEnyCedAVk4rzPKZd0m-dHDD8IQVPSTZZ2WzTzJaG_qpvgvPjZuYlYDJbSzj-sq2U6ejXbqqghUglamUuhK_jCYuUY7_SOvsEWXJnWCLsZ-e_UCyop58ChZq1rxOk5QnoU_E2LCR2duYxrF5e_cuxRWvb76ubyujPPWp9s2AjyDPu67TjzyRSMiXerTfrQNuSzYj3knnObhG1_6SxTlMlbCqQwqAt1GsIi6AqQc13KM1n3kAdazb5NonZkBiTmY_VbC5-hhLU2ye9YDk9ZuD3gX5PDPu88BKz3FzzW91Pif6hCbQBmaorj6GXm9XhH5kFkqIqPMmc7r1YriKLp8f4Q.jpg" width="400"><br>
 
@@ -148,40 +210,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75408)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-12 15:01:15
-
-<img src="https://cdn1.telesco.pe/file/kctZaj5fDSJfWH-ngDBoCH453BB373E8ge9GR4V53kAWhku3bzrBJ6tnWN_RyPQKz8EzM1ktwOjaS-oxC4DNraBR5ZsSYsrW3QLjm26wgd3sClKxjdK1aZgTccqvSK7IgR7NO_GO5fYpshOsQQWo6K9MwbZr_lbFcpOsIybLtf4V6EY1o95qVG7KIlOo9wNbRc2iaaKD1wIWC7tMF4VkQcJ8cxu4j0vw96VBYfPi7jqd9Y9Z7xqbdeV367i6LrorcN41cn_VDolteppAOutLtsLmfJiLm99ZgmVzG2EJY8guGwX1UXM5QjQCBXZ7XdWEu011GPtJEWyGdCyFnBI3LA.jpg" width="400"><br>
-
-AmirKh1982
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75406)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-12 15:01:15
-
-
-
-قطع اینترنت نه تنها ربطی به تأمین امنیت زیرساخت‌ها ندارد، که «اقدام علیه امنیت ملی» است.
-در ۷۲ روز گذشته میلیون‌ها گوشی، کامپیوتر و سرور ایرانی از صدها پچ امنیتی حیاتی محروم ماندند و در معرض انواع نفوذ و هک قرار گرفته‌اند.
-در این
-#رشتو
-بخشی از این آپدیتها را مرور می‌کنم: @
-hamedbd_channel
-hamedbd
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75405)
 
 ---
 
