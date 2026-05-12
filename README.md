@@ -3,7 +3,152 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
+
+<img src="https://cdn1.telesco.pe/file/bsF7u_naagB1G0Qv2GQTHoPSLRWlSMcP5vro5Uwme_5Cu2lTaHXl9URR76NV_NI2QVa07JUs79PplxctJeurSTyUu0sAedy_meyb_ow9GY-tXJeeRZJ8ZLK_-PH8VXJUpEss0SI0HJYjDpszlIqVyRFokOJIpLgIwGQwsP3pKyLFuwtjrDEQIS_hWFnrvXlBwOfed6MB_eE5O2mNGqGiRjhhqdiJbsPf7CFnVFRLMotPfmtIyY62pmHeLYaW8DW5cnaGDc8qz1guj0C-hVnA8v597SRF6oTO9DnanT9nN-N8fVgpsctYUX1SiXNqLzT2QhfZJZY5l6p6PGInurjN7A.jpg" width="400"><br>
+
+زمین‌لرزه چهارم
+پیام‌های دریافتی:
+دوباره لرزید  شرق همین الان 12:33
+بازم اومد ولی ریزتر از قبلی
+همین الان دوباره لرزید (نارمک ) ۰۰:۳۳
+من الان دوباره لرزیدم
+وحیددد نزدیک چهاربار تو پردیس
+#زلزله
+اومد نمیدونی تختم چجوری میلرزید
+🔄
+آپدیت: تصویر دریافتی بالا و متن رسانه‌های داخلی به نقل از مرکز لرزه‌نگاری:
+بزرگی: ۳.۴
+🔹
+محل وقوع: حوالی پرديس
+🔹
+زمان وقوع: ۳۲ دقیقه بامداد
+🔹
+عمق زمین‌لرزه: ۱۰ کیلومتر
+🔹
+نزدیک‌ترین شهرها:
+۱۰ کیلومتری پرديس (تهران)
+۱۱ کیلومتری بومهن (تهران)
+۱۲ کیلومتری رودهن (تهران)
+🔹
+نزدیکترین مراکز استان:
+۴۱ کیلومتری تهران
+۷۶ کیلومتری كرج
+#زلزله
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75438)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 01:12:56
+
+
+
+زمین‌لرزه دیگری به بزرگی ۴
+این میشه سومین بار ظرف چند ساعت گذشته! اولین باردر شرق استان احساس شد و پیام‌ها از پردیس و بومهن و دماوند بود و یکی هم از لواسان]
+پیام‌های دریافتی لرزش سوم:
+تهران مجددا لرزید
+دوباره لرزید کمی خفیف‌تر
+وحید جان دوباره لرزیدیم  شرق تهران .. ۲۷
+دوباره! پس لرزه بود.
+دوباره هم اومد ولی ضعیف بود خوشبختانه
+وحید جان شاید باورت نشه اما سومیش هم همین الان اومد، منتها خیلی کوتاه و کم بود...
+ان، زلزله، ۰۰:۲۷
+باز اومد، کوتاه، شاید پس لرزه باشه
+دوباره اومد
+یعنی اون رفت این برگشت
+دوباره زلزله اومد
+باز هم لرزش ۱۲:۲۷
+سلام بازم لرزید حدود دو سه دقیقه پیش طوفانم هست خدا رحم کنه تو این شرایط فقط بلایای طبیعی کم داریم
+اینجا ازگل، ۱۲:۲۷دقیقه، دوباره لرزید
+🔄
+رسانه‌های داخلی به نقل از مرکز لرزه‌نگاری:
+🔹
+بزرگی: ۴
+🔹
+محل وقوع: حوالی پرديس
+🔹
+زمان: ۲۶ دقیقه بامداد
+🔹
+عمق زمین‌لرزه: ۸ کیلومتر
+🔹
+نزدیک‌ترین شهرها:
+۹ کیلومتری پرديس (تهران)
+۱۱ کیلومتری بومهن (تهران)
+۱۲ کیلومتری رودهن (تهران)
+🔹
+نزدیکترین مراکز استان:
+۴۰ کیلومتری تهران
+۷۶ کیلومتری كرج
+#زلزله
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75437)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 01:12:56
+
+<img src="https://cdn1.telesco.pe/file/vjKNgPAwlYF9qwR2oHbJDVuyTqFlSy3pwU8t6Aass2MvrHntbdxkMD7Kwc1VA8XsKgrpmNgbG25Ju_7XYPLVsc7Vn4er1A-gBl2GY_DXNkulBwzLllSgt0_g821Wql6P_ohbmeMYjhnesADA3mYcLqmLGwS3Z0TdlLtVbBrpzTgJjIDN-KtoAomrFhXHmPh9KJfzYGIOdHPfV80aRE17toYn5g2kEgKWeC9wl4UJRkrsX6MS7Ebo_LLcZwZcZQIXtSQpi9VUbdcqL_t5Z-8DciBEw-PyWNxO1hoQleLV3dd30y5psQW6FH_7su2h4xXYoaNMF62Gf3RxfpkPrqZ4-g.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+وقتی «رسانه‌های جعلی» می‌گویند دشمن ایرانی از نظر نظامی در برابر ما عملکرد خوبی دارد، این عملاً خیانت است؛ چون چنین ادعایی کاملاً دروغ و حتی مضحک است. آن‌ها به دشمن کمک و از او حمایت می‌کنند! تنها نتیجه‌اش این است که به ایران امیدی واهی می‌دهد؛ در حالی که اصلاً نباید چنین امیدی وجود داشته باشد. این‌ها بزدل‌های آمریکایی هستند که علیه کشور خودمان طرف می‌گیرند.
+ایران ۱۵۹ کشتی در نیروی دریایی خود داشت؛ تک‌تک آن کشتی‌ها اکنون در کف دریا آرمیده‌اند. آن‌ها دیگر نیروی دریایی ندارند، نیروی هوایی‌شان از بین رفته، تمام فناوری‌شان نابود شده، «رهبران»شان دیگر در میان ما نیستند، و کشورشان یک فاجعه اقتصادی است.
+فقط بازنده‌ها، ناسپاس‌ها و احمق‌ها می‌توانند علیه آمریکا استدلالی مطرح کنند!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75436)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 01:12:56
+
+
+
+"وحید تهران لرزید"
++ ده‌ها پیام دریافتی مشابه درباره احساس لرزش زمین در مناطق مختلف تهران
+به نظر می‌رسه بیشتر پیام‌ها از سمت شرق و شمال شرق تهران هستند گرچه در غرب شهر هم کاملا حس شده.
+حدود سه ساعت پیش هم در شرق استان تهران حوالی پردیس و بومهن و دماوند زمین‌‌لرزه خفیف‌تری حس شده بود و غیر از اون مناطق فقط یک پیام از لواسان داشتم و پیامی از خود تهران نداشتم.
+🔄
+رسانه‌های داخلی:
+زمین‌لرزه‌ای به بزرگی ۴.۶  ساعت ۲۳:۴۶ امشب مرز استان‌های تهران و مازندران را لرزاند.
+این زلزله در حوالی شهر پردیس و در عمق ۱۰ کیلومتری زمین به وقوع پیوسته و در بخش‌هایی از پایتخت نیز احساس شده است.
+بزرگی: 4.6
+محل وقوع: مرز استانهای تهران و مازندران  - حوالی پرديس
+تاریخ و زمان وقوع به وقت محلی: 1405/02/22 23:46:07
+طول جغرافیایی: 51.83
+عرض جغرافیایی: 35.82
+عمق زمین‌لرزه: 10 کیلومتر
+نزدیک‌ترین شهرها:
+8 کیلومتری پرديس (تهران)
+10 کیلومتری بومهن (تهران)
+11 کیلومتری رودهن (تهران)
+نزدیکترین مراکز استان:
+41 کیلومتری تهران
+77 کیلومتری كرج
+#زلزله
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75435)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn1.telesco.pe/file/bBawosfea_rE_PcnONrVfak1oCCCGmmbAuxNYcKMORQXNltgKYXA6Qoc5zGySzFoJWVjXm5Tu1StPnar7CbJiwKU16utyZ_Lo7RpoD2Gg9GXQr-9ZNmgI1-fFhZmVQJRq3FK6cNnw2SHrHwOun5MYlZTFn_ImKdtP7wISqev0fr3ZuwHnfl-WspdNcMCDfRS8GAj1fgTnGFe5Ejcz7s8RqBE2vhsUXE7OrMOB6vV3ht0GFT8op6sbzUf5vpH69hqT5pZP4d9n9wTLjl-vnVYkJDc4k0McPV4nK2WUuvCByPcbm5dWhL1GexsxruX00RvfCPOpkHbWDfmFXEUwx_ziw.jpg" width="400"><br>
 
@@ -25,7 +170,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn1.telesco.pe/file/LsHOlEdxEQHUSd6UF6sORX6iNgoe8kRL_pP2cRhEnEKsgwcF9vrvm2S2hUVg4Ag1bptSXtUkq3yu03pgYuLUX2i0JwLm412aU6MEPhlwxF7Fdtcy-qHdb4ItWS_jIyjrDafwfMAhx-T1umn6P9PH_QCNp3fE2fMrFXDxmFK6sqMmMiXwH402h_JHtx6axLq7X2klg4GdQIR25nnVeu_M4_dwCJXRNzvXhnCu_PsB68f9_MGKwBok37dwrqW7leyKKG3HE_M8U4OqmBXpU6iVvXgHzvRYXqoMyPDsBw68CT3XrxKmx3Ow485RyqZDShypuUO5Qt6MTROYQ_zJMUTX4A.jpg" width="400"><br>
 
@@ -48,7 +193,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn4.telesco.pe/file/gH-AHbJtGDmc5BDQ-AaYFcg-WAtf9jB2zy9hAjfXRKnvWL2U1GPysNuO3sEyJd7Tr-m0xabBShOpDyIX4htvej9DV-bNUy07xr9OmoyVxPzC82d8wLNxJDd0UcoIFPUFVxP9pYqV6XJe139ODN_zjQwy3T8ft2J1l5Arpp0z2hVWz7ZO31vZCGMNN510aAx4ll-_ctnj0fFv6SEjnQ7TlQRWJbAk1Epfg8xgvLzueg6uZo90wG4Z01-ejxaCer8i6TNUbYFM_5Q9DZxmnwv8Tdxecijj4CP8v8Qt0n7DGGgJtBmwn4M2aODPcTAuVI_F_7H7crd2z3cMuWpn8sbrqw.jpg" width="400"><br>
 
@@ -65,7 +210,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn1.telesco.pe/file/egL9qPDvubRemi7wEbz6l1zszXJq2Lswer2XLdFfiE3xCxPyvVXh2fBsyE96RMtFLhfWJU4J9suv4haTxdr5kgm80rxLzKOVlPIA_50t_Isu04bM_VIaKUBkkTlVGPg7p9Dk-x8K3j259BHn6GRFWWlNOT3aKl9TF1l6xZ_BH3_El9C33YQ0Hj2W5HD4gJtmM0T7OCQK3bFwuQ5AE05AHJWG3MEzvJvf30JRbYZ8AuqHmHcFoAYpxkXKEMHRIvVpdYV95J_OWZKadJW10UcCb5WMvbURnWAb0s2xDJV0Q1uEUtRcmwOZDoE0P8OjMP9c5yob39wgTMFmU0hcD1XIlg.jpg" width="400"><br>
 
@@ -82,7 +227,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 
 
@@ -109,7 +254,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn1.telesco.pe/file/IVI4Y3bLh55rsomgPtqr2D-XY4z6RI-fnur5iTMh10zIWCHpB9pNQlc1J1OIv1kPY8Vd-PRGtrPmV7KPyH86T0_3LcrXONn_Gzv-2VkB6B9U-3Huu9gtvDCKFo4rp5necTnMC6JjG3Qx22d8u9sK217w5JcUEuKDwYf4H0pxggEknQAfVOC8Q5LG3QwhiMFe7SvDWUSe34h4ujAremv_GORTRzHVel4RHUxtmntZsvlFFq44oz6GxyWpnhVDNT9ViSosKEUY_3NaQkfHPMWXZYFhlVY3drX_b7W22kuDOY8id7UDB6qcWKR1BDXcIm9jj56O8Di9GrUNLNXwqTERVA.jpg" width="400"><br>
 
@@ -127,7 +272,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn4.telesco.pe/file/ceLDJmuvaG-au2iU1mwfAsYz2svUUsCdXd8oR4mcl-RYoAGW9KjIotNQlVXo2-XrxYTjtCaDYMemsvSa7kV--0guAFODOb39Vaxc-wmd_1fNgDQzZVWhGuA4rxXC3bQWTkB-aE3DkAvw0Q9PMeN_oHvUda7SppDmZt_K2NZ_Uf_jNd0SYJ47-E_0zo8LZqpYRzlMiuKDnP6Ejfd9AifBdRfVa8vTi4pzKkWUlIB_m3ALcUel5kG_rTyZPE7zJ1gYNe0PCwoT41e629eKOGJFgh2toyNFPFpUvg9WOgoCY6VGOp3mgZzUTNRf1ecq1s1V4IfGiHjmSbqRBCo4T4UTCQ.jpg" width="400"><br>
 
@@ -146,7 +291,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn4.telesco.pe/file/G1LOVFBdw1il00p_j-qQeFY0vK0oPEOOhd9Lbu8oVKbIQQdBN4Sg9gzmMuSPlJADLc2uqSVqzSHD6UxwTnXfcaksZE9JeaPkV93HmRlavFMCtE1cUWLBYhTgJ_dTO-xUFZixj490UV9iuTgV7Kca1ayOD1eQgUWDzKWaH3ez0ZrxEoqf2XHFgkwaQPli90PF5C7BqOxlF683XTwQ84drXNbZBBkxMOzMzzFlyJNj2Z4zjDeNPu4PhVFLWlrOcoNH4yvD0ZC_oYTg3XpynY5QJ7fudPOQje8FRDC3uF0tZhwnfhq1DVdu7byevgqtUBEpGo3rNcbVPt_izoN8XwdVwQ.jpg" width="400"><br>
 
@@ -165,7 +310,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn1.telesco.pe/file/PW72znyUiZ8wYUO55yn7qWjpuMaD0UNoXx4WNjvXxolsu6BhylimLDprGQSgHhpZai5jOXRrIIf_mZRSLtuCR8UyDC3KZizmgH1SE-WuBPWHTGqx9aaVcZD9KD2_eOkCOn3tsVmLPrODlEe4gY9OSjTDKKDtRYVpae37Lm70_anLdCKD_bjsdMlSdD0coKGxI4rLDwIKM2EpM1n9yP2_yfY_SWiR4FJmTpnp03UCt6QT2w5ivIFqXYs4MEcJt8fq0sq_RzOJ3Jgo1Ny6v50N4qIEj-6XMjE4UJhedQDVTeJzvT7JPpB3ZSBzqgeN5sJy0EUqu2rRGxgHDUDZTRK_Bw.jpg" width="400"><br>
 
@@ -183,7 +328,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn4.telesco.pe/file/cYtyCP3NbBysAiyRzrgCqmb9-zFLcMqYQX_i2kpt7ryoW0M9yn26tviomT_6j3eecOk1mSGdpNBoDqCG_vr_NagNdBZGTQwxyHuu6KO9fW9JoO_piV63ddWUxYOyPOde7NO3jyx3NKBXEmJr-wbm-Hyw0eaH98TKco8VFwG8kDrWW5WIMHrvsFvlek4AkpyxXv86FsAgZei5nB_WJ_KUrFBCzSF8D0iIvsGx3K3opk1wAP_0qWmuv3Ez788qvu_Rk8h4Oe5qqGHgxZjjpiKLNu-q7vXqSgqp3NfaE2rY493ImAPGlqH-opBFq9zh4tyJl7_R2VXK_YdvYqTtHvhy4Q.jpg" width="400"><br>
 
@@ -201,7 +346,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn1.telesco.pe/file/JFhxeBnX9l3a_8lQG3uLRh-wbucf8xnnsSc0IH-p8tdOVhZGEKbAHUx3sWiICW5vaeyESfylzYm7yMuMopX5tsEQG31Fk9AGHf33SUAMt7XUuLAFrcIXIwbdIawbzbcj0NGkpD4zO0QAQR3nWGGo3FTNSbAEsVpg2Y60CxdPiNkwnRr1kuvyW_OrORfgUAYSUqbKV5wGAeSoO_3yTJ3K52orx3pDfCpAIi6mlwrA0BEdGNuqBrWqY3JwxtzVZiSyZueoqcXDO5bkS4JAi-KS0fydJJPPUwnLFz3ZppBLbnVwV_JlyOFJwrSWTxwbRXUjtTOhwenwnTgZXnrY1GsvIg.jpg" width="400"><br>
 
@@ -228,7 +373,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 23:41:43
+###### 🔵 Updated at: 2026-05-13 01:12:56
 
 <img src="https://cdn1.telesco.pe/file/nqovXvOAI9DexPaMXTcMITatM4IJ2p00dN4zG4enGOTaZqzqWGYibKl0EPE95xtlyoYMvjzoafgU_wB05Ytj9jsP4uXXDq-F-oOxIU-JGOidA460EjIgg6Va7IfDcMG9N1XvDsWRrJaC2jVzD2FFHT7uUmZzFYMCL-jeNratnyK_e8g7YbXNJ-0hAXUAUHER2Djh169RoeRcE_5AfLcSH7mNxVrDL-ucd8gPlAbfJhr6rSCejTrwyE7jf_a1C0gqoEQcsW49uGYTW6qTbqFE5mam0V03goR51_WbW8pN0iv8diY7fzlpk7RP-L1fx2udWyt1z_p3DLa6pYX6LZ8GgQ.jpg" width="400"><br>
 
