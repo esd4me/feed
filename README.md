@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 <img src="https://cdn1.telesco.pe/file/LsHOlEdxEQHUSd6UF6sORX6iNgoe8kRL_pP2cRhEnEKsgwcF9vrvm2S2hUVg4Ag1bptSXtUkq3yu03pgYuLUX2i0JwLm412aU6MEPhlwxF7Fdtcy-qHdb4ItWS_jIyjrDafwfMAhx-T1umn6P9PH_QCNp3fE2fMrFXDxmFK6sqMmMiXwH402h_JHtx6axLq7X2klg4GdQIR25nnVeu_M4_dwCJXRNzvXhnCu_PsB68f9_MGKwBok37dwrqW7leyKKG3HE_M8U4OqmBXpU6iVvXgHzvRYXqoMyPDsBw68CT3XrxKmx3Ow485RyqZDShypuUO5Qt6MTROYQ_zJMUTX4A.jpg" width="400"><br>
 
@@ -26,7 +26,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 <img src="https://cdn4.telesco.pe/file/gH-AHbJtGDmc5BDQ-AaYFcg-WAtf9jB2zy9hAjfXRKnvWL2U1GPysNuO3sEyJd7Tr-m0xabBShOpDyIX4htvej9DV-bNUy07xr9OmoyVxPzC82d8wLNxJDd0UcoIFPUFVxP9pYqV6XJe139ODN_zjQwy3T8ft2J1l5Arpp0z2hVWz7ZO31vZCGMNN510aAx4ll-_ctnj0fFv6SEjnQ7TlQRWJbAk1Epfg8xgvLzueg6uZo90wG4Z01-ejxaCer8i6TNUbYFM_5Q9DZxmnwv8Tdxecijj4CP8v8Qt0n7DGGgJtBmwn4M2aODPcTAuVI_F_7H7crd2z3cMuWpn8sbrqw.jpg" width="400"><br>
 
@@ -43,7 +43,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 <img src="https://cdn1.telesco.pe/file/egL9qPDvubRemi7wEbz6l1zszXJq2Lswer2XLdFfiE3xCxPyvVXh2fBsyE96RMtFLhfWJU4J9suv4haTxdr5kgm80rxLzKOVlPIA_50t_Isu04bM_VIaKUBkkTlVGPg7p9Dk-x8K3j259BHn6GRFWWlNOT3aKl9TF1l6xZ_BH3_El9C33YQ0Hj2W5HD4gJtmM0T7OCQK3bFwuQ5AE05AHJWG3MEzvJvf30JRbYZ8AuqHmHcFoAYpxkXKEMHRIvVpdYV95J_OWZKadJW10UcCb5WMvbURnWAb0s2xDJV0Q1uEUtRcmwOZDoE0P8OjMP9c5yob39wgTMFmU0hcD1XIlg.jpg" width="400"><br>
 
@@ -60,7 +60,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 
 
@@ -87,7 +87,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 <img src="https://cdn1.telesco.pe/file/IVI4Y3bLh55rsomgPtqr2D-XY4z6RI-fnur5iTMh10zIWCHpB9pNQlc1J1OIv1kPY8Vd-PRGtrPmV7KPyH86T0_3LcrXONn_Gzv-2VkB6B9U-3Huu9gtvDCKFo4rp5necTnMC6JjG3Qx22d8u9sK217w5JcUEuKDwYf4H0pxggEknQAfVOC8Q5LG3QwhiMFe7SvDWUSe34h4ujAremv_GORTRzHVel4RHUxtmntZsvlFFq44oz6GxyWpnhVDNT9ViSosKEUY_3NaQkfHPMWXZYFhlVY3drX_b7W22kuDOY8id7UDB6qcWKR1BDXcIm9jj56O8Di9GrUNLNXwqTERVA.jpg" width="400"><br>
 
@@ -105,7 +105,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 <img src="https://cdn4.telesco.pe/file/ceLDJmuvaG-au2iU1mwfAsYz2svUUsCdXd8oR4mcl-RYoAGW9KjIotNQlVXo2-XrxYTjtCaDYMemsvSa7kV--0guAFODOb39Vaxc-wmd_1fNgDQzZVWhGuA4rxXC3bQWTkB-aE3DkAvw0Q9PMeN_oHvUda7SppDmZt_K2NZ_Uf_jNd0SYJ47-E_0zo8LZqpYRzlMiuKDnP6Ejfd9AifBdRfVa8vTi4pzKkWUlIB_m3ALcUel5kG_rTyZPE7zJ1gYNe0PCwoT41e629eKOGJFgh2toyNFPFpUvg9WOgoCY6VGOp3mgZzUTNRf1ecq1s1V4IfGiHjmSbqRBCo4T4UTCQ.jpg" width="400"><br>
 
@@ -124,7 +124,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 <img src="https://cdn4.telesco.pe/file/G1LOVFBdw1il00p_j-qQeFY0vK0oPEOOhd9Lbu8oVKbIQQdBN4Sg9gzmMuSPlJADLc2uqSVqzSHD6UxwTnXfcaksZE9JeaPkV93HmRlavFMCtE1cUWLBYhTgJ_dTO-xUFZixj490UV9iuTgV7Kca1ayOD1eQgUWDzKWaH3ez0ZrxEoqf2XHFgkwaQPli90PF5C7BqOxlF683XTwQ84drXNbZBBkxMOzMzzFlyJNj2Z4zjDeNPu4PhVFLWlrOcoNH4yvD0ZC_oYTg3XpynY5QJ7fudPOQje8FRDC3uF0tZhwnfhq1DVdu7byevgqtUBEpGo3rNcbVPt_izoN8XwdVwQ.jpg" width="400"><br>
 
@@ -143,7 +143,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 <img src="https://cdn1.telesco.pe/file/V25pSzPciti7go_PQteHD6vwB6-xCfxTQpFsUzXcOLDHWSv6bqQIVEIWtnFGP9WuAVq3yRIP-6qpxMMmwKwYgkHPmMh6NWdsjGZhUEFhWNpflEY45Fru7jJaROIsaYtllCIVQp6Rlhe1RGRJk9dcKWwPpfUIwqx1TCot2ScDVTYN4qFz0txN-1d9ExqUu2Pgo-ldclc1j3RAoZujoiUI-faNbMtTXVSMdQ0M1OBGwsCQHEMbXkhztiD2uT_5jM_UvF7tw7gaa4QThJWykCyzls6s9bgUpayAvwk3MWHPkinEYEd0qKOgcgqjyQRIGIWz4FgujiQIXF6luySldQk4iQ.jpg" width="400"><br>
 
@@ -161,7 +161,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
 <img src="https://cdn4.telesco.pe/file/sCnPGUEFaLR16afOKkvknrkQdrizBYRFtDdkb-p_jFsqqTBbFFDdB2k6tH6Ekt1BxepTmKIYnFerM3MATkcb_CPzrafI2AaOMvZY-3jEdngPBMMEI59_Uyx9hleCEyncMLwn1GnrqyLvShxB-FMm4Ax8kWBJvpRItn9iqALMfGFqtCmkb5-ep-rLvsTTUF0GImScjw3MlR_XF5UVLKmH21aiKIKOSNRhWWYhs1UY-WFeGvzmC8DlCCFaObxK_PdEy_BGWT4azMKUf_1v6oPjvHkDRJMHuTOP1R0oPjd-OJCs3EeJfcssZV0dG_u3ZiVfMUZ7CkKfXVwsaWcsOcUQfQ.jpg" width="400"><br>
 
@@ -179,9 +179,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
-<img src="https://cdn1.telesco.pe/file/l-3b-wbsVIdnBtNYZ3AtZo5_ZkSzMftvRULhBPf9tQcn9ddBZh96Flmm9wfBs2Wj7JQlbGS07_ckjaFdCrFl-4dY66A7D-sow2e3Nks-sjUZO9MUwP8XjTbQS8_We3vu-3b-9DF4QGtZ18A2lMHUgnUJOo2_pwLy1fKC5VHPuVPlQJ_o6NdX-NcniIWtXdTn9AGl4DshaeWrVaqdurGJzFU50a5pehUsT3UUw5VWKRovwoHcU6Y2wbojQMwhls_wnFlHkcuhhG0GnkvIj0QCRUFrQQ5ZsY_6dMMF6Pn92Df3cp7c4yHWtEfCkguh24qkXZlGAYKTLdxra0mIeQk9qw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JFhxeBnX9l3a_8lQG3uLRh-wbucf8xnnsSc0IH-p8tdOVhZGEKbAHUx3sWiICW5vaeyESfylzYm7yMuMopX5tsEQG31Fk9AGHf33SUAMt7XUuLAFrcIXIwbdIawbzbcj0NGkpD4zO0QAQR3nWGGo3FTNSbAEsVpg2Y60CxdPiNkwnRr1kuvyW_OrORfgUAYSUqbKV5wGAeSoO_3yTJ3K52orx3pDfCpAIi6mlwrA0BEdGNuqBrWqY3JwxtzVZiSyZueoqcXDO5bkS4JAi-KS0fydJJPPUwnLFz3ZppBLbnVwV_JlyOFJwrSWTxwbRXUjtTOhwenwnTgZXnrY1GsvIg.jpg" width="400"><br>
 
 پیام‌های دریافتی حدود ساعت ۱۹:۳۰ به همراه تصاویر بالا:
 ▪️
@@ -206,9 +206,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-12 19:35:59
+###### 🔵 Updated at: 2026-05-12 21:45:19
 
-<img src="https://cdn1.telesco.pe/file/OEnyCedAVk4rzPKZd0m-dHDD8IQVPSTZZ2WzTzJaG_qpvgvPjZuYlYDJbSzj-sq2U6ejXbqqghUglamUuhK_jCYuUY7_SOvsEWXJnWCLsZ-e_UCyop58ChZq1rxOk5QnoU_E2LCR2duYxrF5e_cuxRWvb76ubyujPPWp9s2AjyDPu67TjzyRSMiXerTfrQNuSzYj3knnObhG1_6SxTlMlbCqQwqAt1GsIi6AqQc13KM1n3kAdazb5NonZkBiTmY_VbC5-hhLU2ye9YDk9ZuD3gX5PDPu88BKz3FzzW91Pif6hCbQBmaorj6GXm9XhH5kFkqIqPMmc7r1YriKLp8f4Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nqovXvOAI9DexPaMXTcMITatM4IJ2p00dN4zG4enGOTaZqzqWGYibKl0EPE95xtlyoYMvjzoafgU_wB05Ytj9jsP4uXXDq-F-oOxIU-JGOidA460EjIgg6Va7IfDcMG9N1XvDsWRrJaC2jVzD2FFHT7uUmZzFYMCL-jeNratnyK_e8g7YbXNJ-0hAXUAUHER2Djh169RoeRcE_5AfLcSH7mNxVrDL-ucd8gPlAbfJhr6rSCejTrwyE7jf_a1C0gqoEQcsW49uGYTW6qTbqFE5mam0V03goR51_WbW8pN0iv8diY7fzlpk7RP-L1fx2udWyt1z_p3DLa6pYX6LZ8GgQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس جمهوری آمریکا روز دوشنبه ۲۱ اردیبهشت گفت پاسخ تهران به طرح پیشنهادی صلح آمریکا احمقانه بوده است و او از ادامه جنگ و فشار بر ایران خسته نمی‌شود.
 ترامپ در یک برنامه عمومی در کاخ سفید و در پاسخ به پرسش‌های خبرنگاران درباره طولانی شدن مسدودیت تنگه هرمز گفت: «احمق‌ها نمی‌خواستند قبول کنند. فکر می‌کردند من خسته می‌شوم یا حوصله‌ام سر می‌رود یا تحت فشار قرار می‌گیرم اما هیچ فشاری وجود ندارد.  ما به یک پیروزی کامل خواهیم رسید.»
