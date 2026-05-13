@@ -3,13 +3,143 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
+
+<img src="https://cdn4.telesco.pe/file/O14IFO4Leg8r14i-eJQcq6nBidwI05y_mv0HYxPhz1Hob3svJpkwytROq9IRVuo2h1LLuSiM-fSnBnulBU-6A2En5gYgg85rYR2oQtcsGtdThWUrISzoggOQW7wrFWWDbfRu5Uo_QUVXUYNEHCyKN_OjMRCJAXXKCfjN9TbzIXbZFC2d-GVB--L9G805okiFEA8OwOGidijWnRwdKKrXHBVJEa1rSa5wkqsrsDCVOJKLsk35G6xZ5lvG3XB-IIzXdv5vEeqQ1TA4Dqgwyvd5el0pJotGPU6ns4W-2O1mCJD42p-ALEw4muh00AFqWOLmuTHvmUanTjlmWgn-bLeATA.jpg" width="400"><br>
+
+ستاد فرماندهی مرکزی ایالات متحده روز چهارشنبه ۲۳ اردیبهشت با تاکید بر ادامه محاصره دریایی بنادر ایران اعلام کرد که از زمان آغاز این عملیات، به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده شده است.
+سنتکام در پیامی در شبکه ایکس نوشت که نیروهای آمریکایی طی چهار هفته گذشته ۶۷ کشتی تجاری را وادار به تغییر مسیر کرده و چهار شناور را نیز برای اجرای محاصره «از کار انداخته‌اند».
+این فرماندهی همچنین اعلام کرد اوایل هفته جاری، دو کشتی تجاری دیگر پس از تماس رادیویی و شلیک تیر هشدار از سوی نیروهای آمریکایی مسیر خود را تغییر داده و از ادامه حرکت به سمت بنادر ایران منصرف شدند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75449)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 19:32:19
+
+
+
+پاسخ‌های ملی‌پوشان فوتبال در صداوسیما درباره میزان تحصیلات دانشگاهی‌شان جنجالی شد.
+در این گفتگو، یکی از ملی‌پوشان در پاسخ به سوال مجری که پرسیده بود «در کدام دانشگاه درس می‌خوانی؟» گفت: «نمی‌دانم، الان حضور ذهن ندارم».
+در دوره قبلی جام جهانی نیز انتشار ویدیویی از دروازه‌بان تیم ملی فوتبال ایران که گفته بود «من دکترا دارم»، بحث‌برانگیز شده بود؛ دکترایی که بعدها مشخص شد به‌صورت غیرحضوری در رشته تربیت بدنی دانشگاه پیام نور اخذ شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75448)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 19:32:19
+
+<img src="https://cdn4.telesco.pe/file/kA5t2YJ66l6D4r6kWOB6gtUby7uZddouscSQ9RBZIlxhqkpx9Us0kKl4aPcSEef648Kw60y3zC-z_1t8tUWTBXhyJLqyace-5I4w7w09dfkrXtWgJ8xy1bLAowxIgJFWyvhqDXfS8VQOlSz71mDt5CwFhZ7q9xkUFr8OEKOXvvSsfjcz2vq_MZXglTrdSQy_q-IMHaV_qrQrPH6lcRnCeXjGCmdBpAaGcWQYfaZNMFcWvB0cNY5PplUqQLDZaOwHLy-Je44fli7CImAkJMmJy6zxPlcRFC2YV0YOX65xFsILdzdHYBcwfOrfQcz7qVKiFDKlxX-lq74Fzx84xHAtBQ.jpg" width="400"><br>
+
+رویترز به نقل از دو مقام غربی و دو مقام ایرانی گزارش داد عربستان سعودی در جریان جنگ خاورمیانه، در پاسخ به حملاتی که در خاک این کشور انجام شده بود، چندین حمله اعلام‌نشده در ایران انجام داده است.
+به گفته دو مقام غربی، این حملات توسط نیروی هوایی عربستان سعودی و در اواخر ماه مارس انجام شده‌اند. یکی از این مقامات گفت این حملات «اقداماتی تلافی‌جویانه در پاسخ به حملاتی بود که عربستان سعودی هدف آن قرار گرفته بود»
+رویترز با اشاره به گزارش‌های پیشین درباره حملات امارات متحده عربی به ایران نوشت اقدامات عربستان سعودی و امارات متحده نشان می‌دهد کشورهای عربی خلیج فارس که هدف حملات جمهوری اسلامی قرار گرفته‌اند، به‌تدریج وارد فاز پاسخ‌گویی مستقیم شده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75447)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 19:32:19
+
+<img src="https://cdn4.telesco.pe/file/NIT32DOKjVCT_sbkUhWvz45WxT5dQEsmLT-Brt7ipyBs5j4oh1JECRx_JhvEP5C7Bpd4b7yI8hPcR1FL-jHqhYwGIip30W79881UuQD8XPTsTUo7RjgvU57USxoQ2-FrgXZyHWgfOirFeoDflvBghPAF8ikRkM84oBVXG3tdhTkqsOjiJxBpPCQdGgUBPJda3Zi7T29jWCeBKN_z-c0c8muyUShZaJdJlJl2MjiydlI8JRhULOdi1g8G-jd8LxITNoHdL748pPyia6B00yiCUCfxOftzig3FzfEjgtq_Yj_tEj6mBAhaiV9Uuawa28tDX9aEzUs9XLu8KMwxDsKXHQ.jpg" width="400"><br>
+
+یک کمیسیون مستقل اسرائیلی جزئیات تکان‌دهنده‌ای از خشونت جنسی «سیستماتیک و گسترده» توسط حماس و سایر گروه‌های مسلح فلسطینی در جریان حملات ۷ اکتبر ۲۰۲۳ و علیه گروگان‌ها منتشر کرده است.
+گزارش ۳۰۰ صفحه‌ای این کمیسیون نتیجه‌گیری می‌کند که تجاوز و شکنجه جنسی «با هدف به حداکثر رساندن درد و رنج» انجام شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75446)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 19:32:19
+
+<img src="https://cdn1.telesco.pe/file/PIZxgnGUQ27EKKKnPLzG9dPIAo4zWkZMYVTg26JFWqmd106wlx7vmnNnJviEE_S-EZC9xYuUdhxSDVk0yFgP73e7JXel7pc0g3gcZgi14mCU723FmYWqxhDGqLSFgyf1-ECnDRF6XbKblHePBNa85EmeyBk2toGUFSgEKUoAVccfjO7bgyjGFuNNuXTMvP1PmJ2-oyHp2G_6WsMk-24tYIuA4keIcgHxjr1UzTr_Cjg59Lq47vedyZ8h-fGjcWP17wZTVUvxIYeYlENXFGVovGHxfzGjkfXlFlbhzh71TGWtaP3Qpgh_c0-DG_U5mPnDNbLvplgWZkcmSvoUGqEhow.jpg" width="400"><br>
+
+مسعود پزشکیان، رئیس‌جمهور ایران، محمدرضا عارف، معاون اول خود، را به ریاست «ستاد ویژه ساماندهی و راهبری فضای مجازی کشور» منصوب کرد.
+در حکم آقای پزشکیان بر «حکمرانی یکپارچه» در فضای مجازی، پایان دادن به «چندصدایی» و جلوگیری از «موازی‌کاری» میان نهادهای مسئول تأکید شده است.
+این انتصاب در حالی انجام می‌شود که امروز هفتاد و پنجمین روز اختلال و محدودیت گسترده اینترنت در ایران است.
+حکومت ایران از ۹ اسفند (۲۸ فوریه) و همزمان با حملات اسرائیل و آمریکا، دسترسی به اینترنت بین‌الملل را قطع کرد و تماس‌ تلفنی با خارج از ایران هم با اختلال جدی رو‌به‌رو است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75445)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 19:32:19
+
+<img src="https://cdn1.telesco.pe/file/jei5nMTri7ibMtCTTk3oJN1HkZc7OVjd7EotNnrTX7ZIhEqFHd7siMC5xHkdOc60uyi60KoaHwPjEfkhQ0OOQPoAZKxoyMv9ILPN_FY7yN506v6z0S1EeFj0NzBPb4FqMK7eI0kJ_N2GyJSh9rkZkQ4v0zGagwc4fnMjE0t_My00iYi77P20WrNXH89R8cvFTXKyu6LS0TQ1_p-HXCZ7fQClQvZVlrx_eWM1AMqTYEXaH3bEqiIhWKJzi0dslEOCmTjnE72IUpMf_BnTOsDsndKIPhDsAdyRj91XZP63tj7PETvX7iccPOjCUFMwceguz2hg77kWshg9QjRN98DSbQ.jpg" width="400"><br>
+
+به گزارش خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، مهدی زارع، زلزله‌شناس و استاد پژوهشگاه بین‌المللی زلزله‌شناسی و مهندسی زلزله با اشاره به زمین‌لرزه به بزرگی ۷.۱ در قرن نوزدهم در گسل شرق تهران گفت: «وقوع زلزله‌های ۴ ریشتری اخیر در ۲۸ فروردین و ۲۲ اردیبهشت در پردیس نشان از تخلیه انرژی دارد. وقوع زمین‌لرزه‌های کوچک به صورت مستمر، بخشی از انرژی گسل را تخلیه می‌کند، ولی این لرزه‌ها می‌توانند نشانه‌ای از ناپایداری در پهنه‌ای وسیع‌تر باشند که مقدمه رویداد بزرگتری است.
+به عبارت دیگر، لرزه‌های خرد و متوسط، هرچند تا حدی تنش را کاهش می‌دهند، اما نمی‌توانند به طور قطع احتمال وقوع یک زلزله بزرگ را منتفی کنند. در برخی موارد، چنین توالی‌هایی می‌توانند پیش‌لرزه (foreshock) باشند.»
+@
+VahidOOnLine
+امروز پیام‌هایی از پس‌لرزه یا پیش‌لرزه ساعت ۱۲:۳۳ دریافت کرده بودم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75444)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 19:32:19
+
+<img src="https://cdn4.telesco.pe/file/jCc7lDOSE8QLQz827-lAlxQqXnHQQx_nE22HDCoVPt8ELhJ7s-Psgao0rj34e-DSgade3RNQBQOZQ-kegNc0Dv50UUUmHumkYztlI5na9aZ_1-lLcxI-myMnSiRx3_auTv69A2aWrRwQJQxSGiGQMNkA-gq9PHhmCFhaZQkJ2gK1RHzA45zqw5_774hc7YEZ5KXDEXOvXxs-olDLDiyIN4MophTgYOH0xhXIeiZkLzj-CSEpzyX9rEKE_2mFVXSuHPaVHOJcez8o6DcrmlLtoRIPWvCYghqR5XoCtV6mG0fb9HW4ArV3h0v8xn0zpOt1gghfsKCs7hEvjGWp7CE_gA.jpg" width="400"><br>
+
+احسان شیرخانی، شهروند ۳۵ ساله اهل شهرستان ملکان در استان آذربایجان شرقی، بامداد روز سه‌شنبه ۲۲ اردیبهشت ۱۴۰۵، با شلیک مستقیم نیروهای بسیج در ایست بازرسی شهرستان بناب جان خود را از دست داد.
+بر اساس گزارش رسیده به ایران‌وایر، نیروهای مستقر در ایست بازرسی بسیج شهرستان بناب، خودروی این شهروند را به بهانه «عدم توجه به دستور ایست» هدف تیراندازی مستقیم قرار داده‌اند.
+یک منبع مطلع در این‌باره به ایران‌وایر گفت که نیروهای بسیج بدون رعایت قانون به‌کارگیری سلاح و بدون شلیک تیر هوایی، مستقیما به سمت اتاق خودرو تیراندازی کرده‌اند. به گفته این منبع، چهار گلوله به احسان شیرخانی اصابت کرده و او در دم جان باخته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75443)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
 <img src="https://cdn1.telesco.pe/file/V-P_gDvnq04fdrhMCvSt-KOV3kFu3aO_50Me4UhzwjDGIwZylc6v6aaSOOvV6cmIw6PnqFYGJxSiNPIj2EREnZbfHelm89ILnosMBMXfC4RrYlzJbxlDsX4PPc967fQ3R24WS5L3wrFob6DlATu8iuNJy_qxRlr-YKKF12W_KNoBwFah2V47j6Dj1t_ZHengYG0i7he4FRlYMecL04C4fQCZfcj-TteJVqJ4PNZ4rj0dKEIeOUL1Mzeo_78i6W1o_prA68sx2kcTak3ckCq-4a1qM6VgUKmq2Y6MY3BQAJmP_9yYHJc6FtF13qCHhD_QRIJ4cLJz6G4jAi1JJYyPEw.jpg" width="400"><br>
 
-یک اعدام دیگر
-میزان خبرگزاری قوه قضاییه جمهوری اسلامی با انتشار تصاویر بالا نوشت: احسان افرشته اعدام شد
-قوه قضاییه مدعی شده که: افرشته در نپال از سوی موساد آموزش جاسوسی دیده و اطلاعات حساس کشور را به اسرائیل می‌فروخت.
+قوه قضائیه ایران یک زندانی دیگر به نام احسان افرشته را به اتهام «جاسوسی» برای اسرائیل اعدام کرد.
+میزان‌نیوز نوشته که افراشته که «در نپال توسط موساد آموزش دیده بود و اطلاعات حساس کشور را به اسرائیل می‌فروخت»، بامداد چهارشنبه ۲۳ اردیبهشت اعدام شد.
+در بخشی از گزارش بدون اشاره به جزئیات آمده که او «به عنوان کارشناس سایبری در یک شرکت وابسته نهاد نظامی مشغول به فعالیت» بود.
+با این حال در گزارش مفصلی که ارگان رسمی دستگاه قضایی ایران درباره این زندانی منتشر کرده، مشخص نیست که او چه زمانی بازداشت و دادگاهی شده و از جزئیات روند محاکمهٔ او نیز اطلاعاتی منتشر نکرده است.
+شماری از وب‌سایت‌ها و نهادهای حقوق بشری نوشته‌اند که احسان افرشته، متولد سال ۱۳۷۲ و فارغ‌التحصیل کارشناسی ارشد مهندسی عمران و متخصص شبکه، اوایل سال ۱۴۰۳ پس از بازگشت از ترکیه بازداشت شد.
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -19,7 +149,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
 <img src="https://cdn1.telesco.pe/file/bsF7u_naagB1G0Qv2GQTHoPSLRWlSMcP5vro5Uwme_5Cu2lTaHXl9URR76NV_NI2QVa07JUs79PplxctJeurSTyUu0sAedy_meyb_ow9GY-tXJeeRZJ8ZLK_-PH8VXJUpEss0SI0HJYjDpszlIqVyRFokOJIpLgIwGQwsP3pKyLFuwtjrDEQIS_hWFnrvXlBwOfed6MB_eE5O2mNGqGiRjhhqdiJbsPf7CFnVFRLMotPfmtIyY62pmHeLYaW8DW5cnaGDc8qz1guj0C-hVnA8v597SRF6oTO9DnanT9nN-N8fVgpsctYUX1SiXNqLzT2QhfZJZY5l6p6PGInurjN7A.jpg" width="400"><br>
 
@@ -75,7 +205,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
 
 
@@ -125,7 +255,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
 <img src="https://cdn1.telesco.pe/file/vjKNgPAwlYF9qwR2oHbJDVuyTqFlSy3pwU8t6Aass2MvrHntbdxkMD7Kwc1VA8XsKgrpmNgbG25Ju_7XYPLVsc7Vn4er1A-gBl2GY_DXNkulBwzLllSgt0_g821Wql6P_ohbmeMYjhnesADA3mYcLqmLGwS3Z0TdlLtVbBrpzTgJjIDN-KtoAomrFhXHmPh9KJfzYGIOdHPfV80aRE17toYn5g2kEgKWeC9wl4UJRkrsX6MS7Ebo_LLcZwZcZQIXtSQpi9VUbdcqL_t5Z-8DciBEw-PyWNxO1hoQleLV3dd30y5psQW6FH_7su2h4xXYoaNMF62Gf3RxfpkPrqZ4-g.jpg" width="400"><br>
 
@@ -144,7 +274,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
 
 
@@ -179,7 +309,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
 <img src="https://cdn1.telesco.pe/file/bBawosfea_rE_PcnONrVfak1oCCCGmmbAuxNYcKMORQXNltgKYXA6Qoc5zGySzFoJWVjXm5Tu1StPnar7CbJiwKU16utyZ_Lo7RpoD2Gg9GXQr-9ZNmgI1-fFhZmVQJRq3FK6cNnw2SHrHwOun5MYlZTFn_ImKdtP7wISqev0fr3ZuwHnfl-WspdNcMCDfRS8GAj1fgTnGFe5Ejcz7s8RqBE2vhsUXE7OrMOB6vV3ht0GFT8op6sbzUf5vpH69hqT5pZP4d9n9wTLjl-vnVYkJDc4k0McPV4nK2WUuvCByPcbm5dWhL1GexsxruX00RvfCPOpkHbWDfmFXEUwx_ziw.jpg" width="400"><br>
 
@@ -201,9 +331,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
-<img src="https://cdn1.telesco.pe/file/LsHOlEdxEQHUSd6UF6sORX6iNgoe8kRL_pP2cRhEnEKsgwcF9vrvm2S2hUVg4Ag1bptSXtUkq3yu03pgYuLUX2i0JwLm412aU6MEPhlwxF7Fdtcy-qHdb4ItWS_jIyjrDafwfMAhx-T1umn6P9PH_QCNp3fE2fMrFXDxmFK6sqMmMiXwH402h_JHtx6axLq7X2klg4GdQIR25nnVeu_M4_dwCJXRNzvXhnCu_PsB68f9_MGKwBok37dwrqW7leyKKG3HE_M8U4OqmBXpU6iVvXgHzvRYXqoMyPDsBw68CT3XrxKmx3Ow485RyqZDShypuUO5Qt6MTROYQ_zJMUTX4A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZSdYI19yH98-TNBLYS5nyTeFyjXCV3_Y3fUr2LQGvvKm7juliOSeEGn8N_Dg5OhFWpD5gBIJqQlb_TCT_QvrsbK2C3ffzEmBycEp2O_8RvWfSAk-3TeJriw_JHPQLb2PQQnNSAtViXPYolkrXJiuZ3Vm75haLnRAgF3WoUUsgjw5AA9yiR_H-TYOz526r6-LROT_-KkRPvO3vGGx-bj-G0x-gPGD-7PSQ3neEWgcvUH14I31U6dK6nouVW7gmenQFUQRmXWeICpK_lS2xR8LlsjU8tN40XUd6sVvslNCU500JgmbQOHHB7y3V4jV1ObHG0_PjPxIZreNeuWvhVR6Qw.jpg" width="400"><br>
 
 دونالد ترامپ در گفت‌وگو با برنامه رادیویی «سید رازبرگ» گفت: انتظار داریم اقتصاد ایران زیر فشارهای ناشی از محاصره بنادرش فرو بپاشد.
 او افزود این درگیری بدون نیاز به شتاب‌زدگی حل‌وفصل خواهد شد و جمهوری اسلامی با انزوایی روبه‌رو است که آن را از منابع درآمدی محروم می‌کند.
@@ -224,9 +354,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
-<img src="https://cdn4.telesco.pe/file/gH-AHbJtGDmc5BDQ-AaYFcg-WAtf9jB2zy9hAjfXRKnvWL2U1GPysNuO3sEyJd7Tr-m0xabBShOpDyIX4htvej9DV-bNUy07xr9OmoyVxPzC82d8wLNxJDd0UcoIFPUFVxP9pYqV6XJe139ODN_zjQwy3T8ft2J1l5Arpp0z2hVWz7ZO31vZCGMNN510aAx4ll-_ctnj0fFv6SEjnQ7TlQRWJbAk1Epfg8xgvLzueg6uZo90wG4Z01-ejxaCer8i6TNUbYFM_5Q9DZxmnwv8Tdxecijj4CP8v8Qt0n7DGGgJtBmwn4M2aODPcTAuVI_F_7H7crd2z3cMuWpn8sbrqw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/GmhNoHaEik-Ll5juwD9o9NUVUp4WpfijvOhKH4aJbjs8-tGSlkv4TYLgndufHaqDia9OnJqpI5XGd3B6amU9KkdsMfyBWGhGgR5oWGvvDbKQo0LDqOkGkihVtDfe0zxOkCT-W-KduDV9Qsm0ysxev7zE56wvbfOsPKpdV3DoqZ7zDHAFqp5hMfHw0c7PsVG0H1xYwyqAGUn4HXVZPPiM7CjfiOkRcglZMV8C7lVThNVNTVeFeb9xMYddWjHQR2yEgtkchMMae5ZuXfd_SToG4eA2FzApWqtZDi9lipwMtU5t-m8W3Jy-zF0si0JKA9noUzw5yXklbNVNK7tt_Wmzvg.jpg" width="400"><br>
 
 یک مقام ارشد پنتاگون روز سه‌شنبه ۲۲ اردیبهشت اعلام کرد که جنگ ایالات متحده با ایران تاکنون ۲۹ میلیارد دلار هزینه داشته است، رقمی که نسبت به برآورد ارائه‌شده در اواخر ماه گذشته، چهار میلیارد دلار افزایش نشان می‌دهد.
 به گزارش خبرگزاری رویترز، در حالی که تنها شش ماه تا انتخابات میان‌دوره‌ای کنگره آمریکا باقی مانده است، دموکرات‌ها در نظرسنجی‌های عمومی موقعیت بهتری پیدا کرده‌اند و تلاش می‌کنند این جنگ را به مسائل مربوط به هزینه‌های زندگی پیوند بزنند.
@@ -241,7 +371,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 16:56:16
+###### 🔵 Updated at: 2026-05-13 19:32:19
 
 <img src="https://cdn1.telesco.pe/file/jyFL5x3nEMqh6laN9MhPbqP9ZnkCIkX-DdCfzUuwyfnUDf3iEWb58TRuF-oWNGHWEFX4rHJ6rXq9bGEZur7jYMnAFn_lRDynfOaiy2pEMUitcsfwXbA4IHPA64Onxy88eYfRp0wjx4w7KQwzmvSfivhNP8nlvDkoPgw-DR08btNsD_4iZ088QSP27zoiUcdd7JvS74pfQdrwTVkX-TK3BbbZ2F6MxprmKIYJ6Ta-5NSM8rqvCkC_E6dG9WpbogJfsSAM-W7K26DNsYyPc2xS_x89o2jcqs_7Vt6IXGzVjUvAkcj5pJA3Z0GEy3wJn_5G9jg19cqYx0GY7xmf1vc47g.jpg" width="400"><br>
 
@@ -253,152 +383,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75430)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-13 16:56:16
-
-
-
-نشست خبری سخنگوی دولت مسعود پزشکیان روز سه‌شنبه ۲۲ اردیبهشت به دلیل وضعیت اینترنت به بگومگوی خبرنگاران با فاطمه مهاجرانی منجر شد.
-سخنگوی دولت تاکید کرد که «اینترنت پرو» با مصوبه شورای عالی امنیت ملی که ریاست آن را مسعود پزشکیان بر عهده دارد،‌ مورد استفاده قرار می‌گیرد.
-او در عین حال تاکید کرد که این اینترنت ویژه کسب و کارها است. [در حالیکه خیلی از مردم بدون کسب و کار هم پیامک گرفتند بیاید پرو بخرید]
-@
-VahidHeadline
-فاطمه مهاجرانی گفت با توجه به وضعیت جنگی، فعلا اینترنت عمومی وصل نخواهد شد.
-مهاجرانی در پاسخ به پرسش‌های متعدد خبرنگاران درباره وضعیت اینترنت و به‌ویژه «اینترنت پرو» گفت ما در وضعیت جنگی هستیم. رئیس جمهوری به‌عنوان رئیس شورای عالی امنیت ملی پیگیر حقوق مردم است اما وضعیت جنگی است و بعد از پایان شرایط ویژه، اینترنت به‌حالت قبل بازخواهد گشت.»
-پس از این سخنان، چند خبرنگار تلاش کردند تا با یادآوری تعهدات دولت پیگیر وضعیت وصل اینترنت شوند. مهاجرانی خطاب به آن‌ها گفت: «وقتی رئیس جمهوری آمریکا می‌گوید آتش‌بس به تنفس مصنوعی وصل است، انتظار شما چیست؟»
-@
-VahidOOnLine
-فاطمه مهاجرانی، سخنگوی دولت جمهوری اسلامی، با اشاره به قطعی طولانی‌مدت اینترنت در ایران گفت اینترنت حق مردم است و عصبانیت مردم کاملا درست است. اما در ادامه تاکید کرد: «عامل این عصبانیت دشمنانی هستند که باعث می‌شوند فضای امنیتی ما مخدوش شود.»
-او افزود: «رسانه‌ها کمک کنند که این ادبیات را جا بیندازند. دولت طرفدار دسترسی آزاد است.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75429)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-13 16:56:16
-
-<img src="https://cdn1.telesco.pe/file/SpvzjGlgh6a3D27-04Gs-BxDFL4hsiOg93_Cek46h8GsC_W6rvqE8isT8RB5OADdND7XXh_bVaEVMbJaCyfmcO7OBvWa971wtofpUyPqHkwi-ekJnalkpyIk352MlZkE9XZRKXk4mOZJV-LhpI1Tnrg1iHspBB2mP2JCrCbzwc9zblKCxpl5WPwkA0_D8UUZorMGa7S2sN7Y-m_-R_zdezqdM2a6_MfQRyOZh2dfQkep-GDdSe21cRVByhrSChppdLsfr-sKdWt5VGzJWgrYcQ_CkJw5FGDRrkOGUACc23J9kXKWRANGIwgqzcpCFKwvN07k_LlH8bRaijgL9dn9oQ.jpg" width="400"><br>
-
-قوه قضائیه از اجرای حکم اعدام یک زندانی دیگر به نام عبدالجلیل شه‌بخش در بامداد سه‌شنبه ۲۲ اردیبهشت خبر داد.
-ارگان رسمی نهاد قضایی ایران، شه‌بخش را «تروریست آموزش‌دیده» گروه «انصارالفرقان» معرفی کرده است.
-از زمان حملات آمریکا و اسرائیل به ایران، جمهوری اسلامی اجرای احکام اعدام را افزایش داده است و در برخی روزها چند نفر را اعدام کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75428)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-13 16:56:16
-
-<img src="https://cdn4.telesco.pe/file/eBTOox00MylcFuPBXFLi2zeav7Qs4UTTgqytttSjTm_JripR_aFaQLYq-GUjJ3ITuSn4irFKc0X5cNMG-IVYAQM-eIRsOmS8UZKPAm6ZlWLhlYPZ3MA_S3Dv7z0whdQ_yv2X1eNrr6EWkEKS3Vr8NndMBjOXYFU70Yrsttk9RV3IU3n7S3i5q0T0ujDaRMAdEQ8PAMxrbED5AjrjbpQ9W5TZr5gAIwtxbFAnPj-_oZ4krCrGQHspNuSghx9I2ghF_JxAJpJk7C9g6s9oqnq8_AqeiMGTlY07H5EZHkCE_YnCO8nAG3IlobkEApi4shVvRMIneK5AbxzxkbvWhpO-6Q.jpg" width="400"><br>
-
-به گزارش نشریه آمریکایی وال استریت ژورنال، امارات متحده عربی به‌طور مخفیانه حملات نظامی علیه ایران انجام داده است؛ موضوعی که به گفته منابع آگاه به این نشریه، می تواند امارات را به یکی از طرف‌های فعال مخاصمه با ایران مطرح کند.
-منابع آگاه به وال استریت ژورنال گفته‌اند حملاتی که امارات تاکنون به‌صورت علنی تایید نکرده، شامل حمله به یک پالایشگاه در جزیره لاوان در خلیج فارس بوده است.
-در اوایل آوریل گذشته و هم‌زمان با اعلام آتش‌بس از سوی دونالد ترامپ چند حمله هوایی به تاسیسات نفتی ایران در جزایر این کشور و اصطلاحا مناطق فلات قاره شرکت ملی نفت ایران صورت گرفت که باعث آتش‌سوزی گسترده و خروج بخش بزرگی از ظرفیت پالایشگاه لاوان از مدار برای چندین ماه شد.
-ایران در آن زمان اعلام کرده بود این پالایشگاه در یک «حمله دشمن» هدف قرار گرفته و در پاسخ، موجی از حملات موشکی و پهپادی علیه امارات و کویت انجام داده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75427)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-13 16:56:16
-
-<img src="https://cdn4.telesco.pe/file/XHusn0KlcVaAhkiFnfaS1oak5e2udiKTdM2gHgRyezzWOCEmU4x9wMeOac9X27w0pB2DJ33HXqzV6FumhLfe41hNjzZSyVb9AsJL-mMVRNDgGBLJB_CWW_RO0Z7wYnr9Ug95h8ablkysAdbsLNqdYqzNU2ZmOXuFWNljibLcFtee9pxTvloM1PLLcOyEf2hnlIStRDbT1Mydz5cjdmbnodZRQbDwpCoSviE9LmKLr6pA9clhtCAY4h4ttt-gCDl1HS3-fEWVm46gMmQH3wcmfpTTytXTelmUE9yxxqaVbnYz9l3jbE5QwEWtAGfgyRcKN97Nw4HYtTh3nUFKEFouKg.jpg" width="400"><br>
-
-وزارت خزانه‌داری ایالات متحده، روز دوشنبه، ۲۱ اردیبهشت‌ماه، در بیانیه‌ای رسمی اعلام کرد که پاسخ اخیر تهران به پیشنهاد دیپلماتیک واشنگتن، نه‌تنها از نظر سیاسی غیرقابل‌قبول است، بلکه با استانداردهای لازم برای لغو تحریم‌های مالی و اقتصادی نیز همخوانی ندارد.
-این وزارتخانه تاکید کرد که رویکرد فعلی ایران مانع از هرگونه گشایش در مسیر مبادلات بین‌المللی و آزادسازی دارایی‌های بلوکه شده می‌شود و تا زمانی که تعهدات شفافی در حوزه برنامه هسته‌ای ارائه نشود، فشارها بر شبکه مالی این کشور ادامه خواهد یافت.
-در همین راستا، اسکات بسنت، وزیر خزانه‌داری دولت دونالد ترامپ، در اکس با بازنشر این بیانیه، موضعی قاطعانه اتخاذ کرد.
-او با اشاره به اینکه پاسخ تهران نشان‌دهنده عدم تمایل این کشور به همکاری واقعی است، نوشت: «در حالی که دولت ترامپ با حسن نیت مسیری برای دیپلماسی باز کرد، تهران با پاسخی کاملا غیرقابل‌قبول به میز مذاکره بازگشته است.» بسنت تاکید کرد که وزارت خزانه‌داری، سیاست‌های مالی را به گونه‌ای تنظیم خواهد کرد که جمهوری اسلامی متوجه شود عدم پذیرش توافق، هزینه‌های اقتصادی سنگین و غیرقابل‌جبرانی برای نظام پولی و بانکی این کشور به همراه خواهد داشت. او نوشت: «زمان آن رسیده که تهران متوجه شود هزینه لجاجت، فروپاشی کامل اقتصادی است».
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75426)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-13 16:56:16
-
-<img src="https://cdn1.telesco.pe/file/PW72znyUiZ8wYUO55yn7qWjpuMaD0UNoXx4WNjvXxolsu6BhylimLDprGQSgHhpZai5jOXRrIIf_mZRSLtuCR8UyDC3KZizmgH1SE-WuBPWHTGqx9aaVcZD9KD2_eOkCOn3tsVmLPrODlEe4gY9OSjTDKKDtRYVpae37Lm70_anLdCKD_bjsdMlSdD0coKGxI4rLDwIKM2EpM1n9yP2_yfY_SWiR4FJmTpnp03UCt6QT2w5ivIFqXYs4MEcJt8fq0sq_RzOJ3Jgo1Ny6v50N4qIEj-6XMjE4UJhedQDVTeJzvT7JPpB3ZSBzqgeN5sJy0EUqu2rRGxgHDUDZTRK_Bw.jpg" width="400"><br>
-
-محمدباقر قالیباف، رئیس مجلس شورای اسلامی و رئیس هیات جمهوری اسلامی در مذاکرات با آمریکا، دوشنبه ۲۱ اردیبهشت‌ماه در شبکه اجتماعی اکس نوشت نیروهای مسلح جمهوری اسلامی آماده «پاسخگویی درس‌آموز» به هر تجاوزی هستند.
-قالیباف نوشت: «استراتژی اشتباه و تصمیم‌های اشتباه همیشه نتیجه اشتباه خواهد داشت. همه دنیا قبلا این را فهمیده‌اند.»
-او افزود: «ما برای تمام گزینه‌ها آماده هستیم؛ شگفت‌زده خواهند شد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75425)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-13 16:56:16
-
-<img src="https://cdn4.telesco.pe/file/cYtyCP3NbBysAiyRzrgCqmb9-zFLcMqYQX_i2kpt7ryoW0M9yn26tviomT_6j3eecOk1mSGdpNBoDqCG_vr_NagNdBZGTQwxyHuu6KO9fW9JoO_piV63ddWUxYOyPOde7NO3jyx3NKBXEmJr-wbm-Hyw0eaH98TKco8VFwG8kDrWW5WIMHrvsFvlek4AkpyxXv86FsAgZei5nB_WJ_KUrFBCzSF8D0iIvsGx3K3opk1wAP_0qWmuv3Ez788qvu_Rk8h4Oe5qqGHgxZjjpiKLNu-q7vXqSgqp3NfaE2rY493ImAPGlqH-opBFq9zh4tyJl7_R2VXK_YdvYqTtHvhy4Q.jpg" width="400"><br>
-
-وب‌سایت اکسیوس گزارش داد دونالد ترامپ روز دوشنبه روز دوشنبه ۲۱ اردیبهشت ۱۴۰۵ با اعضای تیم امنیت ملی خود درباره ادامه جنگ با ایران و احتمال ازسرگیری اقدام نظامی علیه جمهوری اسلامی جلسه برگزار می‌کند.
-بر اساس این گزارش، سه مقام آمریکایی گفته‌اند مذاکرات میان تهران و واشنگتن روز یکشنبه به بن‌بست رسیده و همین موضوع گزینه نظامی را دوباره روی میز قرار داده است.
-اکسیوس به نقل از مقام‌های آمریکایی نوشت ترامپ همچنان خواهان توافق برای پایان جنگ است، اما رد بسیاری از خواسته‌های آمریکا از سوی ایران و خودداری تهران از دادن امتیاز جدی درباره برنامه هسته‌ای، احتمال اقدام نظامی را افزایش داده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75424)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-13 16:56:16
-
-<img src="https://cdn1.telesco.pe/file/JFhxeBnX9l3a_8lQG3uLRh-wbucf8xnnsSc0IH-p8tdOVhZGEKbAHUx3sWiICW5vaeyESfylzYm7yMuMopX5tsEQG31Fk9AGHf33SUAMt7XUuLAFrcIXIwbdIawbzbcj0NGkpD4zO0QAQR3nWGGo3FTNSbAEsVpg2Y60CxdPiNkwnRr1kuvyW_OrORfgUAYSUqbKV5wGAeSoO_3yTJ3K52orx3pDfCpAIi6mlwrA0BEdGNuqBrWqY3JwxtzVZiSyZueoqcXDO5bkS4JAi-KS0fydJJPPUwnLFz3ZppBLbnVwV_JlyOFJwrSWTxwbRXUjtTOhwenwnTgZXnrY1GsvIg.jpg" width="400"><br>
-
-پیام‌های دریافتی حدود ساعت ۱۹:۳۰ به همراه تصاویر بالا:
-▪️
-وحید الان برام پیغام اومده که من جان فدا هستم و ثبت نام کردم ولی خودم در جریان نیستم
-😂
-▪️
-آقا یه اتفاق جالب افتاده. ظاهرا بعد از هک شدن دیتابیس جانفدا دوستان یه فکر بکر به سرشون زده.
-من هیچ وقت در این کمپین ثبت نام نکردم ولی پیام زیر رو برام فرستادن. فکر کنم خودشون به صورت پیش فرض همه رو تو این کمپین عضو کردند، حالا هرکی جرات داره انصراف بده… البته نمیدونم انصراف داره یا نه.
-▪️
-امروز این پیام برای من اومده در شرایطی که من اصلا ثبت‌نام نکردم.
-حتی برای پدر خانمم که فوت شده هم اومده.
-▪️
-امروز عصر واسه من این پیام اومده
-در صورتی که من حتی تا حالا سایتشو هم باز نکردم
-حالا یا خودشون دارن روی شماره هایی که از یک سایتی یا صنفی داشتن ثبت نام میکنن، یا اینکه یک ادم [...] واسه من فرم پر کرده یا اینکه مسیج الکی فرستادن
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75420)
 
 ---
 
