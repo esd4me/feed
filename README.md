@@ -3,11 +3,27 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
+
+<img src="https://cdn1.telesco.pe/file/V-P_gDvnq04fdrhMCvSt-KOV3kFu3aO_50Me4UhzwjDGIwZylc6v6aaSOOvV6cmIw6PnqFYGJxSiNPIj2EREnZbfHelm89ILnosMBMXfC4RrYlzJbxlDsX4PPc967fQ3R24WS5L3wrFob6DlATu8iuNJy_qxRlr-YKKF12W_KNoBwFah2V47j6Dj1t_ZHengYG0i7he4FRlYMecL04C4fQCZfcj-TteJVqJ4PNZ4rj0dKEIeOUL1Mzeo_78i6W1o_prA68sx2kcTak3ckCq-4a1qM6VgUKmq2Y6MY3BQAJmP_9yYHJc6FtF13qCHhD_QRIJ4cLJz6G4jAi1JJYyPEw.jpg" width="400"><br>
+
+یک اعدام دیگر
+میزان خبرگزاری قوه قضاییه جمهوری اسلامی با انتشار تصاویر بالا نوشت: احسان افرشته اعدام شد
+قوه قضاییه مدعی شده که: افرشته در نپال از سوی موساد آموزش جاسوسی دیده و اطلاعات حساس کشور را به اسرائیل می‌فروخت.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75439)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn1.telesco.pe/file/bsF7u_naagB1G0Qv2GQTHoPSLRWlSMcP5vro5Uwme_5Cu2lTaHXl9URR76NV_NI2QVa07JUs79PplxctJeurSTyUu0sAedy_meyb_ow9GY-tXJeeRZJ8ZLK_-PH8VXJUpEss0SI0HJYjDpszlIqVyRFokOJIpLgIwGQwsP3pKyLFuwtjrDEQIS_hWFnrvXlBwOfed6MB_eE5O2mNGqGiRjhhqdiJbsPf7CFnVFRLMotPfmtIyY62pmHeLYaW8DW5cnaGDc8qz1guj0C-hVnA8v597SRF6oTO9DnanT9nN-N8fVgpsctYUX1SiXNqLzT2QhfZJZY5l6p6PGInurjN7A.jpg" width="400"><br>
 
-زمین‌لرزه چهارم
+زمین‌لرزه چهارم۰۰:۳۳
 پیام‌های دریافتی:
 دوباره لرزید  شرق همین الان 12:33
 بازم اومد ولی ریزتر از قبلی
@@ -16,7 +32,6 @@
 وحیددد نزدیک چهاربار تو پردیس
 #زلزله
 اومد نمیدونی تختم چجوری میلرزید
-🔄
 آپدیت: تصویر دریافتی بالا و متن رسانه‌های داخلی به نقل از مرکز لرزه‌نگاری:
 بزرگی: ۳.۴
 🔹
@@ -34,6 +49,22 @@
 نزدیکترین مراکز استان:
 ۴۱ کیلومتری تهران
 ۷۶ کیلومتری كرج
+🔄
+آپدیت ۳:۳۰
+پیام‌های دریافتی درباره لرزش پنجم
+زلزله دوباره
+ساعت ۳:۳۳ شرق تهران باز زلزله اومد
+پردیس،۵ دقیقه پیش برای پنجمین بار زلزله اومد وحید جان سابقه نداشته تا حالا خیلی مشکوکه
+ساعت ۳:۳۵
+پردیس دوباره لرزید سه و نیم
+سلام وحید جان
+ساعت ۳.۵ باز زمین لرزه اومد پردیس، با صدایی شبیه به ترکیدن
+🔄
+آپدیت: لرزش ششم ساعت ۵:۵۷
+یه کوچولو دیگه زلزله سمت پردیس حس شد الان
+و الان هم دوباره لرزید
+٥:٥٧ دوباره پس لرزه اما خفيف تر
+آقا وحید ساعت ۵:۵۵ دقیقه صبح، پردیس برای ششمین بار لرزش احساس شد
 #زلزله
 📡
 @VahidOnline
@@ -44,7 +75,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 
 
@@ -94,7 +125,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn1.telesco.pe/file/vjKNgPAwlYF9qwR2oHbJDVuyTqFlSy3pwU8t6Aass2MvrHntbdxkMD7Kwc1VA8XsKgrpmNgbG25Ju_7XYPLVsc7Vn4er1A-gBl2GY_DXNkulBwzLllSgt0_g821Wql6P_ohbmeMYjhnesADA3mYcLqmLGwS3Z0TdlLtVbBrpzTgJjIDN-KtoAomrFhXHmPh9KJfzYGIOdHPfV80aRE17toYn5g2kEgKWeC9wl4UJRkrsX6MS7Ebo_LLcZwZcZQIXtSQpi9VUbdcqL_t5Z-8DciBEw-PyWNxO1hoQleLV3dd30y5psQW6FH_7su2h4xXYoaNMF62Gf3RxfpkPrqZ4-g.jpg" width="400"><br>
 
@@ -113,7 +144,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 
 
@@ -148,7 +179,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn1.telesco.pe/file/bBawosfea_rE_PcnONrVfak1oCCCGmmbAuxNYcKMORQXNltgKYXA6Qoc5zGySzFoJWVjXm5Tu1StPnar7CbJiwKU16utyZ_Lo7RpoD2Gg9GXQr-9ZNmgI1-fFhZmVQJRq3FK6cNnw2SHrHwOun5MYlZTFn_ImKdtP7wISqev0fr3ZuwHnfl-WspdNcMCDfRS8GAj1fgTnGFe5Ejcz7s8RqBE2vhsUXE7OrMOB6vV3ht0GFT8op6sbzUf5vpH69hqT5pZP4d9n9wTLjl-vnVYkJDc4k0McPV4nK2WUuvCByPcbm5dWhL1GexsxruX00RvfCPOpkHbWDfmFXEUwx_ziw.jpg" width="400"><br>
 
@@ -170,7 +201,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn1.telesco.pe/file/LsHOlEdxEQHUSd6UF6sORX6iNgoe8kRL_pP2cRhEnEKsgwcF9vrvm2S2hUVg4Ag1bptSXtUkq3yu03pgYuLUX2i0JwLm412aU6MEPhlwxF7Fdtcy-qHdb4ItWS_jIyjrDafwfMAhx-T1umn6P9PH_QCNp3fE2fMrFXDxmFK6sqMmMiXwH402h_JHtx6axLq7X2klg4GdQIR25nnVeu_M4_dwCJXRNzvXhnCu_PsB68f9_MGKwBok37dwrqW7leyKKG3HE_M8U4OqmBXpU6iVvXgHzvRYXqoMyPDsBw68CT3XrxKmx3Ow485RyqZDShypuUO5Qt6MTROYQ_zJMUTX4A.jpg" width="400"><br>
 
@@ -193,7 +224,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn4.telesco.pe/file/gH-AHbJtGDmc5BDQ-AaYFcg-WAtf9jB2zy9hAjfXRKnvWL2U1GPysNuO3sEyJd7Tr-m0xabBShOpDyIX4htvej9DV-bNUy07xr9OmoyVxPzC82d8wLNxJDd0UcoIFPUFVxP9pYqV6XJe139ODN_zjQwy3T8ft2J1l5Arpp0z2hVWz7ZO31vZCGMNN510aAx4ll-_ctnj0fFv6SEjnQ7TlQRWJbAk1Epfg8xgvLzueg6uZo90wG4Z01-ejxaCer8i6TNUbYFM_5Q9DZxmnwv8Tdxecijj4CP8v8Qt0n7DGGgJtBmwn4M2aODPcTAuVI_F_7H7crd2z3cMuWpn8sbrqw.jpg" width="400"><br>
 
@@ -210,7 +241,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn1.telesco.pe/file/egL9qPDvubRemi7wEbz6l1zszXJq2Lswer2XLdFfiE3xCxPyvVXh2fBsyE96RMtFLhfWJU4J9suv4haTxdr5kgm80rxLzKOVlPIA_50t_Isu04bM_VIaKUBkkTlVGPg7p9Dk-x8K3j259BHn6GRFWWlNOT3aKl9TF1l6xZ_BH3_El9C33YQ0Hj2W5HD4gJtmM0T7OCQK3bFwuQ5AE05AHJWG3MEzvJvf30JRbYZ8AuqHmHcFoAYpxkXKEMHRIvVpdYV95J_OWZKadJW10UcCb5WMvbURnWAb0s2xDJV0Q1uEUtRcmwOZDoE0P8OjMP9c5yob39wgTMFmU0hcD1XIlg.jpg" width="400"><br>
 
@@ -227,7 +258,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 
 
@@ -254,7 +285,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn1.telesco.pe/file/IVI4Y3bLh55rsomgPtqr2D-XY4z6RI-fnur5iTMh10zIWCHpB9pNQlc1J1OIv1kPY8Vd-PRGtrPmV7KPyH86T0_3LcrXONn_Gzv-2VkB6B9U-3Huu9gtvDCKFo4rp5necTnMC6JjG3Qx22d8u9sK217w5JcUEuKDwYf4H0pxggEknQAfVOC8Q5LG3QwhiMFe7SvDWUSe34h4ujAremv_GORTRzHVel4RHUxtmntZsvlFFq44oz6GxyWpnhVDNT9ViSosKEUY_3NaQkfHPMWXZYFhlVY3drX_b7W22kuDOY8id7UDB6qcWKR1BDXcIm9jj56O8Di9GrUNLNXwqTERVA.jpg" width="400"><br>
 
@@ -272,7 +303,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn4.telesco.pe/file/eBTOox00MylcFuPBXFLi2zeav7Qs4UTTgqytttSjTm_JripR_aFaQLYq-GUjJ3ITuSn4irFKc0X5cNMG-IVYAQM-eIRsOmS8UZKPAm6ZlWLhlYPZ3MA_S3Dv7z0whdQ_yv2X1eNrr6EWkEKS3Vr8NndMBjOXYFU70Yrsttk9RV3IU3n7S3i5q0T0ujDaRMAdEQ8PAMxrbED5AjrjbpQ9W5TZr5gAIwtxbFAnPj-_oZ4krCrGQHspNuSghx9I2ghF_JxAJpJk7C9g6s9oqnq8_AqeiMGTlY07H5EZHkCE_YnCO8nAG3IlobkEApi4shVvRMIneK5AbxzxkbvWhpO-6Q.jpg" width="400"><br>
 
@@ -291,9 +322,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
-<img src="https://cdn4.telesco.pe/file/G1LOVFBdw1il00p_j-qQeFY0vK0oPEOOhd9Lbu8oVKbIQQdBN4Sg9gzmMuSPlJADLc2uqSVqzSHD6UxwTnXfcaksZE9JeaPkV93HmRlavFMCtE1cUWLBYhTgJ_dTO-xUFZixj490UV9iuTgV7Kca1ayOD1eQgUWDzKWaH3ez0ZrxEoqf2XHFgkwaQPli90PF5C7BqOxlF683XTwQ84drXNbZBBkxMOzMzzFlyJNj2Z4zjDeNPu4PhVFLWlrOcoNH4yvD0ZC_oYTg3XpynY5QJ7fudPOQje8FRDC3uF0tZhwnfhq1DVdu7byevgqtUBEpGo3rNcbVPt_izoN8XwdVwQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XHusn0KlcVaAhkiFnfaS1oak5e2udiKTdM2gHgRyezzWOCEmU4x9wMeOac9X27w0pB2DJ33HXqzV6FumhLfe41hNjzZSyVb9AsJL-mMVRNDgGBLJB_CWW_RO0Z7wYnr9Ug95h8ablkysAdbsLNqdYqzNU2ZmOXuFWNljibLcFtee9pxTvloM1PLLcOyEf2hnlIStRDbT1Mydz5cjdmbnodZRQbDwpCoSviE9LmKLr6pA9clhtCAY4h4ttt-gCDl1HS3-fEWVm46gMmQH3wcmfpTTytXTelmUE9yxxqaVbnYz9l3jbE5QwEWtAGfgyRcKN97Nw4HYtTh3nUFKEFouKg.jpg" width="400"><br>
 
 وزارت خزانه‌داری ایالات متحده، روز دوشنبه، ۲۱ اردیبهشت‌ماه، در بیانیه‌ای رسمی اعلام کرد که پاسخ اخیر تهران به پیشنهاد دیپلماتیک واشنگتن، نه‌تنها از نظر سیاسی غیرقابل‌قبول است، بلکه با استانداردهای لازم برای لغو تحریم‌های مالی و اقتصادی نیز همخوانی ندارد.
 این وزارتخانه تاکید کرد که رویکرد فعلی ایران مانع از هرگونه گشایش در مسیر مبادلات بین‌المللی و آزادسازی دارایی‌های بلوکه شده می‌شود و تا زمانی که تعهدات شفافی در حوزه برنامه هسته‌ای ارائه نشود، فشارها بر شبکه مالی این کشور ادامه خواهد یافت.
@@ -310,7 +341,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn1.telesco.pe/file/PW72znyUiZ8wYUO55yn7qWjpuMaD0UNoXx4WNjvXxolsu6BhylimLDprGQSgHhpZai5jOXRrIIf_mZRSLtuCR8UyDC3KZizmgH1SE-WuBPWHTGqx9aaVcZD9KD2_eOkCOn3tsVmLPrODlEe4gY9OSjTDKKDtRYVpae37Lm70_anLdCKD_bjsdMlSdD0coKGxI4rLDwIKM2EpM1n9yP2_yfY_SWiR4FJmTpnp03UCt6QT2w5ivIFqXYs4MEcJt8fq0sq_RzOJ3Jgo1Ny6v50N4qIEj-6XMjE4UJhedQDVTeJzvT7JPpB3ZSBzqgeN5sJy0EUqu2rRGxgHDUDZTRK_Bw.jpg" width="400"><br>
 
@@ -328,7 +359,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn4.telesco.pe/file/cYtyCP3NbBysAiyRzrgCqmb9-zFLcMqYQX_i2kpt7ryoW0M9yn26tviomT_6j3eecOk1mSGdpNBoDqCG_vr_NagNdBZGTQwxyHuu6KO9fW9JoO_piV63ddWUxYOyPOde7NO3jyx3NKBXEmJr-wbm-Hyw0eaH98TKco8VFwG8kDrWW5WIMHrvsFvlek4AkpyxXv86FsAgZei5nB_WJ_KUrFBCzSF8D0iIvsGx3K3opk1wAP_0qWmuv3Ez788qvu_Rk8h4Oe5qqGHgxZjjpiKLNu-q7vXqSgqp3NfaE2rY493ImAPGlqH-opBFq9zh4tyJl7_R2VXK_YdvYqTtHvhy4Q.jpg" width="400"><br>
 
@@ -346,7 +377,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 05:15:53
+###### 🔵 Updated at: 2026-05-13 09:06:47
 
 <img src="https://cdn1.telesco.pe/file/JFhxeBnX9l3a_8lQG3uLRh-wbucf8xnnsSc0IH-p8tdOVhZGEKbAHUx3sWiICW5vaeyESfylzYm7yMuMopX5tsEQG31Fk9AGHf33SUAMt7XUuLAFrcIXIwbdIawbzbcj0NGkpD4zO0QAQR3nWGGo3FTNSbAEsVpg2Y60CxdPiNkwnRr1kuvyW_OrORfgUAYSUqbKV5wGAeSoO_3yTJ3K52orx3pDfCpAIi6mlwrA0BEdGNuqBrWqY3JwxtzVZiSyZueoqcXDO5bkS4JAi-KS0fydJJPPUwnLFz3ZppBLbnVwV_JlyOFJwrSWTxwbRXUjtTOhwenwnTgZXnrY1GsvIg.jpg" width="400"><br>
 
@@ -368,55 +399,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75420)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-13 05:15:53
-
-<img src="https://cdn1.telesco.pe/file/nqovXvOAI9DexPaMXTcMITatM4IJ2p00dN4zG4enGOTaZqzqWGYibKl0EPE95xtlyoYMvjzoafgU_wB05Ytj9jsP4uXXDq-F-oOxIU-JGOidA460EjIgg6Va7IfDcMG9N1XvDsWRrJaC2jVzD2FFHT7uUmZzFYMCL-jeNratnyK_e8g7YbXNJ-0hAXUAUHER2Djh169RoeRcE_5AfLcSH7mNxVrDL-ucd8gPlAbfJhr6rSCejTrwyE7jf_a1C0gqoEQcsW49uGYTW6qTbqFE5mam0V03goR51_WbW8pN0iv8diY7fzlpk7RP-L1fx2udWyt1z_p3DLa6pYX6LZ8GgQ.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس جمهوری آمریکا روز دوشنبه ۲۱ اردیبهشت گفت پاسخ تهران به طرح پیشنهادی صلح آمریکا احمقانه بوده است و او از ادامه جنگ و فشار بر ایران خسته نمی‌شود.
-ترامپ در یک برنامه عمومی در کاخ سفید و در پاسخ به پرسش‌های خبرنگاران درباره طولانی شدن مسدودیت تنگه هرمز گفت: «احمق‌ها نمی‌خواستند قبول کنند. فکر می‌کردند من خسته می‌شوم یا حوصله‌ام سر می‌رود یا تحت فشار قرار می‌گیرم اما هیچ فشاری وجود ندارد.  ما به یک پیروزی کامل خواهیم رسید.»
-@
-VahidOOnLine
-دونالد ترامپ، رئیس جمهوری آمریکا روز دوشنبه ۲۱ اردیبهشت، در پاسخ به پرسش خبرنگاران درباره آنچه او تغییر رژیم در ایران خوانده بود گفت: «در ایران میانه‌رو و دیوانه‌ها را دارید. دیوانه‌ها می‌خواهند تا آخر بجنگند.»
-رئیس جمهوری آمریکا گفت جنگ خیلی کوتاهی در پیش خواهد بود. ترامپ تاکید کرد که میانه‌روها در جمهوری اسلامی از دیوانه‌ها می‌ترسند.
-دونالد ترامپ از پایان هفته سوم جنگ می‌گوید با توجه به کشته شدن دو صف اول رهبران جمهوری اسلامی، تغییر رژیم در ایران پیشاپیش روی داده است.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس‌جمهوری آمریکا، اعلام کرد که در حال بررسی دوباره «پروژه آزادی» در تنگه هرمز است، اما هنوز تصمیم نهایی درباره اجرای آن نگرفته است. او گفت هدایت کشتی‌ها توسط آمریکا در تنگه هرمز تنها بخش کوچکی از یک عملیات نظامی بزرگ‌تر خواهد بود.
-ترامپ همچنین درباره مذاکرات با جمهوری اسلامی گفت: «حکومت تسلیم خواهد شد.»
-او روز یکشنبه نیز اعلام کرده بود از پاسخ تهران به پیشنهاد آمریکا رضایت ندارد و آن را «کاملا غیرقابل قبول» توصیف کرده بود. همزمان صداوسیمای جمهوری اسلامی اعلام کرد پیشنهاد آمریکا رد شده، زیرا به گفته این رسانه، به معنی «تسلیم کامل رژیم ایران» بوده است.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس‌جمهوری آمریکا، به فاکس‌نیوز گفت واشینگتن در حال بررسی ازسرگیری عملیاتی برای بازگشایی تنگه هرمز است.
-او افزود واشینگتن فشار بر جمهوری اسلامی را تا زمان دستیابی به توافق ادامه خواهد داد.
-ترامپ همچنین گفت هنوز تصمیم نهایی درباره ازسرگیری «پروژه آزادی» را نگرفته است.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس‌جمهوری آمریکا، دوشنبه ۲۱ اردیبهشت‌ماه در گفتگو با سی‌بی‌اس نیوز درباره پاسخ اخیر تهران به پیشنهاد صلح آمریکا گفت جمهوری اسلامی در برنامه هسته‌ای خود امتیازاتی داده، اما این امتیازها «کافی نبوده» و پیشنهاد تهران همچنان «بسیار ضعیف و غیرقابل قبول» است.
-@
-VahidOOnLine
-دونالد ترامپ در واکنش به اظهارات بنیامین نتانیاهو که گفته بود «هیچ‌کس پیش‌بینی کامل و دقیقی» درباره تنگه هرمز نداشت، گفت: «من داشتم. من می‌دانستم آن‌ها تنگه هرمز را بسته‌اند. این تنها سلاحی است که دارند.»
-ترامپ افزود آمریکا می‌توانست در چارچوب «پروژه آزادی» این گذرگاه را باز کند و گفت این عملیات می‌تواند از سر گرفته شود و در آن صورت «بسیار شدیدتر» خواهد بود.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس جمهوری ایالات متحده یک روز پس از مخالفت با پاسخ پیشنهادی جمهوری اسلامی به طرح آمریکا برای پایان جنگ، به فاکس نیوز گفت که ایران فنآوری لازم برای بیرون کشیدن ذخایر اورانیوم غنی‌شده مدفون زیر خاک را ندارد.
-ترامپ در این گفتگو تاکید کرد که اورانیوم غنی شده ایران آنچنان در اعماق خاک تاسیسات هسته‌ای دفن شده که آمریکا باید آن را خارج کند.
-براساس آخرین گزارش‌های آژانس بین‌المللی انرژی اتمی، ایران دست‌کم ۴۶۰ کیلوگرم اورانیوم با غنای ۶۰ درصد دارد که گمان می‌رود در تاسیسات هسته‌ای اصفهان مدفون شده‌اند. این تاسیسات در جنگ ۱۲ روزه و جنگ اخیر اسرائیل و آمریکا بارها بمباران شدند.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس جمهوری ایالات متحده در اظهاراتی گفت: «مردم در [ایران] می‌خواهند به خیابان‌ها بروند. آن‌ها هیچ سلاحی ندارند، هیچ تفنگی ندارند.»
-او ادامه داد: «فکر می‌کردیم کردها قرار است سلاح بدهند، اما آن‌ها ما را ناامید کردند. کردها فقط می‌گیرند، می‌گیرند، می‌گیرند. در کنگره هم درباره آن‌ها شهرت خوبی دارند و می‌گویند خیلی سخت می‌جنگند، اما نه، وقتی می‌جنگند که پول بگیرند.»
-ترامپ گفت: «من از کردها خیلی ناامید شدم، اما ما برخی سلاح‌ها را با مهمات فرستادیم که قرار بود تحویل داده شود، اما آن‌ها آن را نگه داشتند. من گفتم آن‌ها آن را نگه می‌دارند، اما چه می‌دانم؟»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75408)
 
 ---
 
