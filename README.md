@@ -3,7 +3,27 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
+
+<img src="https://cdn1.telesco.pe/file/BWFpApOxzn-PKPY99L6x5R0nGFc8oF-yC2RQ0fz4zs0bsmF45CCGAxkgxYBc_yBZR2ELt6YPWsTlRNZUhTHSi-DPSmea-420GMwMlrwAsGkhVKKA0F6XWKw9912NaeqKyO52yTjNTPaOMTBj2lxbXwvDHGDBKB4CwWbbiy9zXiGF4BpIA8eF_Rc880BgMlw2HiAceoOSoQTo_esPruKb9RdlCwfWq9pzjqdT79yr6JUdTUlc9gjQGABxzYS8GVphWupZzU74XxN7da9OKHPquJlFt0e1a90BLDZ58uLAWyN0x9Q2qED_2szsLbPNQPsg3Bx_XV93petpXbsct-Xz1w.jpg" width="400"><br>
+
+وزارت خارجه امارات متحده عربی اعلام کرد گزارش‌های منتشرشده درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به این کشور صحت ندارد.
+پیش‌تر دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ آمریکا و اسرائیل با جمهوری اسلامی، به‌طور مخفیانه به امارات متحده عربی سفر کرده و در این سفر با محمد بن زاید آل نهیان، رییس امارات متحده عربی، دیدار کرد.
+وزارت خارجه امارات متحده عربی اعلام کرد روابط این کشور با اسرائیل علنی است و در چارچوب توافق‌نامه‌های ابراهیم که به‌طور عمومی اعلام شده‌اند، برقرار شده است.
+وزارت خارجه امارات متحده عربی افزود این روابط مبتنی بر محرمانگی نیست و هرگونه ادعا درباره سفرها یا ترتیبات اعلام‌نشده «بی‌اساس» است، مگر آن‌که به‌صورت رسمی از سوی امارات متحده عربی اعلام شود.
+عباس عراقچی در واکنش به سفر نتانیاهو به امارات متحده عربی در زمان جنگ، نوشت: همکاری با اسرائیل در این مسیر غیرقابل بخشش است. افرادی که برای ایجاد اختلاف با اسرائیل همکاری می‌کنند، پاسخگو خواهند شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75454)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn4.telesco.pe/file/kOGY9A28aAMN5wcl6JONtrcpq5Bll4BKMy_5n1211-N6CTxCdK8K7AO8QbavZGVes_QwYm1rTAEdLfGe9GfiCocXxXoKK3JfB7Db1-Q89tnuv_QgwLrJwvBAhXhvNk9T74iIHjlN3DegX3xMowEwj7PtiuGG1O5umFhJCLkJjeDRjh0-HEJCyN1wg3EF41Up2cZ8i3Z0cKO0zE_CPcYYhME9ZDy75zrScIpGITOhbRwZxcByhBk9z-XgXjpm8xux1N6oyZU4CjZcRggbfukXsZ9ZPK3rNCfn3zJ4pSOxywzehOsNT-EJqK_s1OMOqntGsEn0ss_FpjvMkH_87yoCXQ.jpg" width="400"><br>
 
@@ -22,7 +42,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn1.telesco.pe/file/sQ1WyOwT63GWDznGTxj55_GXDRk61OvTsoOtFtmrx0pi4NhHKRasD6Ahc_ioWul_hvkUGjaHjxHFxAIP9jHE3Ad94OB307AyvnvQtXLyKhnTH8mJEjdZVVZdQOnUPJ626mao8dzlMcxA8kdtAEc5QcQBKXm72QcBGmd1tzEmDDfy9hCWAXPvVQr87R2saQlypxw-FeG8u6TiFeQyJpQxMOzdIzkRo3L0A1EfMiCdN3qeWvke0r_OslqDId8pK1a8_El-1B3kRtshwM81iGAY2kEFYfRPW4AYfsdEWOi_2RSuUyGNuv50NNcj4uBEyeEUrfzadWLSYjnoafUCDMNC_g.jpg" width="400"><br>
 
@@ -40,7 +60,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn1.telesco.pe/file/SYXGcnpMNP4rUdDGfNHNfj-RC5UdBvGVOaeQZHEv_yvyXqLPh0YkleH3ib9Gao0FTd-2ZcxG9TygoWHWQ_KFzr1jjUonaSZG2yP_UKXApZV7ya7-rDGiNWSOQtDeM7NjSkaQiM8tvlM7q2Nm9pQ7vFzVEv9kGc6dLTcb_mtoTUcE6yoYw1xGwrajOuGGNLUekHhKLM6t9G4Bfhkj4ow64bw5tYUjyLnXB3BkEDWqP_MRtIZHGCNKk6nR1c2DTlD_98cnSwAeoqN4VIvehlIFSiBrbQC7L0PKz3TyYZUljynqj2cL0Sa_v8FB8fBLHBETLOwrB2xst_aiyABXxKnRUw.jpg" width="400"><br>
 
@@ -51,6 +71,8 @@ VahidHeadline
 همچنین به گفته مقام‌های عرب و یک منبع آگاه که با روزنامه وال‌استریت جورنال گفت‌وگو کردند، دیوید بارنئا، رئیس موساد، دست‌کم دو بار در طول جنگ با ایران به امارات سفر کرد تا دربارهٔ هماهنگی‌های مربوط به این درگیری رایزنی کند.
 @
 VahidHeadline
+آپدیت:
+امارات تکذیب کرد
 📡
 @VahidOnline
 
@@ -60,7 +82,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn4.telesco.pe/file/O14IFO4Leg8r14i-eJQcq6nBidwI05y_mv0HYxPhz1Hob3svJpkwytROq9IRVuo2h1LLuSiM-fSnBnulBU-6A2En5gYgg85rYR2oQtcsGtdThWUrISzoggOQW7wrFWWDbfRu5Uo_QUVXUYNEHCyKN_OjMRCJAXXKCfjN9TbzIXbZFC2d-GVB--L9G805okiFEA8OwOGidijWnRwdKKrXHBVJEa1rSa5wkqsrsDCVOJKLsk35G6xZ5lvG3XB-IIzXdv5vEeqQ1TA4Dqgwyvd5el0pJotGPU6ns4W-2O1mCJD42p-ALEw4muh00AFqWOLmuTHvmUanTjlmWgn-bLeATA.jpg" width="400"><br>
 
@@ -78,7 +100,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 
 
@@ -96,7 +118,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn4.telesco.pe/file/kA5t2YJ66l6D4r6kWOB6gtUby7uZddouscSQ9RBZIlxhqkpx9Us0kKl4aPcSEef648Kw60y3zC-z_1t8tUWTBXhyJLqyace-5I4w7w09dfkrXtWgJ8xy1bLAowxIgJFWyvhqDXfS8VQOlSz71mDt5CwFhZ7q9xkUFr8OEKOXvvSsfjcz2vq_MZXglTrdSQy_q-IMHaV_qrQrPH6lcRnCeXjGCmdBpAaGcWQYfaZNMFcWvB0cNY5PplUqQLDZaOwHLy-Je44fli7CImAkJMmJy6zxPlcRFC2YV0YOX65xFsILdzdHYBcwfOrfQcz7qVKiFDKlxX-lq74Fzx84xHAtBQ.jpg" width="400"><br>
 
@@ -114,7 +136,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn4.telesco.pe/file/NIT32DOKjVCT_sbkUhWvz45WxT5dQEsmLT-Brt7ipyBs5j4oh1JECRx_JhvEP5C7Bpd4b7yI8hPcR1FL-jHqhYwGIip30W79881UuQD8XPTsTUo7RjgvU57USxoQ2-FrgXZyHWgfOirFeoDflvBghPAF8ikRkM84oBVXG3tdhTkqsOjiJxBpPCQdGgUBPJda3Zi7T29jWCeBKN_z-c0c8muyUShZaJdJlJl2MjiydlI8JRhULOdi1g8G-jd8LxITNoHdL748pPyia6B00yiCUCfxOftzig3FzfEjgtq_Yj_tEj6mBAhaiV9Uuawa28tDX9aEzUs9XLu8KMwxDsKXHQ.jpg" width="400"><br>
 
@@ -131,7 +153,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn1.telesco.pe/file/PIZxgnGUQ27EKKKnPLzG9dPIAo4zWkZMYVTg26JFWqmd106wlx7vmnNnJviEE_S-EZC9xYuUdhxSDVk0yFgP73e7JXel7pc0g3gcZgi14mCU723FmYWqxhDGqLSFgyf1-ECnDRF6XbKblHePBNa85EmeyBk2toGUFSgEKUoAVccfjO7bgyjGFuNNuXTMvP1PmJ2-oyHp2G_6WsMk-24tYIuA4keIcgHxjr1UzTr_Cjg59Lq47vedyZ8h-fGjcWP17wZTVUvxIYeYlENXFGVovGHxfzGjkfXlFlbhzh71TGWtaP3Qpgh_c0-DG_U5mPnDNbLvplgWZkcmSvoUGqEhow.jpg" width="400"><br>
 
@@ -150,7 +172,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn1.telesco.pe/file/jei5nMTri7ibMtCTTk3oJN1HkZc7OVjd7EotNnrTX7ZIhEqFHd7siMC5xHkdOc60uyi60KoaHwPjEfkhQ0OOQPoAZKxoyMv9ILPN_FY7yN506v6z0S1EeFj0NzBPb4FqMK7eI0kJ_N2GyJSh9rkZkQ4v0zGagwc4fnMjE0t_My00iYi77P20WrNXH89R8cvFTXKyu6LS0TQ1_p-HXCZ7fQClQvZVlrx_eWM1AMqTYEXaH3bEqiIhWKJzi0dslEOCmTjnE72IUpMf_BnTOsDsndKIPhDsAdyRj91XZP63tj7PETvX7iccPOjCUFMwceguz2hg77kWshg9QjRN98DSbQ.jpg" width="400"><br>
 
@@ -168,7 +190,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn4.telesco.pe/file/jCc7lDOSE8QLQz827-lAlxQqXnHQQx_nE22HDCoVPt8ELhJ7s-Psgao0rj34e-DSgade3RNQBQOZQ-kegNc0Dv50UUUmHumkYztlI5na9aZ_1-lLcxI-myMnSiRx3_auTv69A2aWrRwQJQxSGiGQMNkA-gq9PHhmCFhaZQkJ2gK1RHzA45zqw5_774hc7YEZ5KXDEXOvXxs-olDLDiyIN4MophTgYOH0xhXIeiZkLzj-CSEpzyX9rEKE_2mFVXSuHPaVHOJcez8o6DcrmlLtoRIPWvCYghqR5XoCtV6mG0fb9HW4ArV3h0v8xn0zpOt1gghfsKCs7hEvjGWp7CE_gA.jpg" width="400"><br>
 
@@ -186,7 +208,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn1.telesco.pe/file/V-P_gDvnq04fdrhMCvSt-KOV3kFu3aO_50Me4UhzwjDGIwZylc6v6aaSOOvV6cmIw6PnqFYGJxSiNPIj2EREnZbfHelm89ILnosMBMXfC4RrYlzJbxlDsX4PPc967fQ3R24WS5L3wrFob6DlATu8iuNJy_qxRlr-YKKF12W_KNoBwFah2V47j6Dj1t_ZHengYG0i7he4FRlYMecL04C4fQCZfcj-TteJVqJ4PNZ4rj0dKEIeOUL1Mzeo_78i6W1o_prA68sx2kcTak3ckCq-4a1qM6VgUKmq2Y6MY3BQAJmP_9yYHJc6FtF13qCHhD_QRIJ4cLJz6G4jAi1JJYyPEw.jpg" width="400"><br>
 
@@ -206,9 +228,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
-<img src="https://cdn1.telesco.pe/file/bsF7u_naagB1G0Qv2GQTHoPSLRWlSMcP5vro5Uwme_5Cu2lTaHXl9URR76NV_NI2QVa07JUs79PplxctJeurSTyUu0sAedy_meyb_ow9GY-tXJeeRZJ8ZLK_-PH8VXJUpEss0SI0HJYjDpszlIqVyRFokOJIpLgIwGQwsP3pKyLFuwtjrDEQIS_hWFnrvXlBwOfed6MB_eE5O2mNGqGiRjhhqdiJbsPf7CFnVFRLMotPfmtIyY62pmHeLYaW8DW5cnaGDc8qz1guj0C-hVnA8v597SRF6oTO9DnanT9nN-N8fVgpsctYUX1SiXNqLzT2QhfZJZY5l6p6PGInurjN7A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ilajmroBqEC5AemlWBqFZFzRiGgJ6MzK4rRazh9snqogUK6EHpQ7hyLG6wIg0099JRYSVdgMiaZBsAMdSVUc_gnHj4KLpdlwE_NMl2FRwVkhXsx5Cg6PL0GyQLLIgMNSm1gy68Bmb9JJuH-gIFevTS2-ZE1Sj8-BD5hHaR7Q612Ax5ziB5SlIwHPzWf1Mhq8-i6UNX8orcQC8z5HaGc-qqViFUtNopTMCrMfRW96mohQ7nZK2qb456hTmp1dNzWMjfXBQrGhdMpVykiaddCtlqhrOn4mzxt-SpfZoClj_xQzuuQjKudR4hJHc-rQaAULg69CkKpfwyQNTbZWKTt1Mg.jpg" width="400"><br>
 
 زمین‌لرزه چهارم۰۰:۳۳
 پیام‌های دریافتی:
@@ -262,7 +284,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 
 
@@ -312,9 +334,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
-<img src="https://cdn1.telesco.pe/file/vjKNgPAwlYF9qwR2oHbJDVuyTqFlSy3pwU8t6Aass2MvrHntbdxkMD7Kwc1VA8XsKgrpmNgbG25Ju_7XYPLVsc7Vn4er1A-gBl2GY_DXNkulBwzLllSgt0_g821Wql6P_ohbmeMYjhnesADA3mYcLqmLGwS3Z0TdlLtVbBrpzTgJjIDN-KtoAomrFhXHmPh9KJfzYGIOdHPfV80aRE17toYn5g2kEgKWeC9wl4UJRkrsX6MS7Ebo_LLcZwZcZQIXtSQpi9VUbdcqL_t5Z-8DciBEw-PyWNxO1hoQleLV3dd30y5psQW6FH_7su2h4xXYoaNMF62Gf3RxfpkPrqZ4-g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IhV0UDCpsAGLvgK7Cx4ZLnTKTvd-W0l-sn1pYYY5cIR0v_OxqBFuY4VAC1yjl8HIGcdmRGgY1cGOMjEwvTtcUp2sSKbNRPCv9volyaZTPh88XXzWdGy7jWWJ0pwkr5yPL55FYjNiz42Bo2PlTuMhNPihmzZsKRNmYTUArhRp4tA4hqMFxW9ee2-JnJUc36W4q9L4ZmpNrbe2OXFbdI_bP_HtZD4P95Za0SHOaQWGm6gMdfRy6Qv0zrYwa6Q7Y6eJ8bWXV7ONYqRl_XoajUOKoIqwr0F2zmHphaiQyMBjk9Rzj9tFBaigcbythl2-RA6numso4T-yb0Bg-4U63qyscg.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 وقتی «رسانه‌های جعلی» می‌گویند دشمن ایرانی از نظر نظامی در برابر ما عملکرد خوبی دارد، این عملاً خیانت است؛ چون چنین ادعایی کاملاً دروغ و حتی مضحک است. آن‌ها به دشمن کمک و از او حمایت می‌کنند! تنها نتیجه‌اش این است که به ایران امیدی واهی می‌دهد؛ در حالی که اصلاً نباید چنین امیدی وجود داشته باشد. این‌ها بزدل‌های آمریکایی هستند که علیه کشور خودمان طرف می‌گیرند.
@@ -331,7 +353,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 
 
@@ -366,7 +388,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-13 23:37:38
+###### 🔵 Updated at: 2026-05-14 01:13:15
 
 <img src="https://cdn1.telesco.pe/file/ZLYDJYnUbDMRKMQ8X18poEgak23idrmp6Usu88RFJqfAvFoUzYv-LnW9tapo43LHMoBggSMw0sdyXsAtaJriq6hzGp2l1NLQ3WmIInKZXKN7-WSGS_aksGoxxzCW3UMflk7NrNY91UoHLWHhCFF553JTicADWT5bwSSsd5n2mRiRy_b41MSj0EW8g8uNAQHbG92gWypyLqX9ZOQeIO1AWTMtYsEpeCTCSyvSjbx7uuVNycHX24NrdbqWJjTG7tn3etWuMIo3eRB-ycW816yC-unfOaL40_urLzTnK8eN8Rvrl2nx5Ch_c7kVAbD7KKSFETnV5CbybxsFjp1ntGFESg.jpg" width="400"><br>
 
