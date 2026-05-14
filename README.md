@@ -3,7 +3,188 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn4.telesco.pe/file/PeGiS6ypJslkdkw9kHckbfzo1udqTI4V76unR5xoIp6pSgzEBjnygArS1j94MXUewyYVTkhLcUC9j6EH7GTjmmQrM2_FXUAXaIM7AozYkPyALZo28C64mBta1OibiB6lDnsegCeM5UyHRIvJbBGEO_0Ua8QcbYFBvIQN_Sdyx86VTFwh2MjvQME6QFomChIQW5WFhlAdFA2XVrCqTODKcUZrqNmeAsxKBESC7WTvptWkeiueaNUsZ7-VDfUXtVnvONY2orJg9YmP7wa7EnwQbPC2SfwMuRVJthZzSls-qIQcAOd4ezjQrHVmq8IOqO3IByKdqw-nrBZR80HPKphzpg.jpg" width="400"><br>
+
+یسرائیل کاتز، وزیر دفاع اسرائیل در یک سخنرانی گفت که ماموریت ارتش این کشور درباره ایران کامل نشده و برای این احتمال آماده است که شاید دوباره ناچار به اقدام شود.
+یسرائیل کاتز تاکید کرد: «اگر اهداف‌مان تامین نشود، دوباره اقدام خواهیم کرد.»
+پیش از این نیز ایال زمیر، رییس ستاد کل ارتش اسرائیل، گفته بود که «نبرد به پایان نرسیده و ارتش برای ازسرگیری جنگ در صورت نیاز آماده است.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75465)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn4.telesco.pe/file/lvvm6Rxm5H9l5bHHw1PXMiejlykhLfVjRpMpgEBXa63_iUzeE0v7uREPu-ITj1DhutDXycoJaDGfaO4ulvdARZ2U5w2Yz3rqn4Xxaqusu42EG9Ou87PZyGhkPhWww9hdH9ZEdvoc128WCjoFTJw4_RZ9lQNqHU9g-vEtd-v0tg3c1IJhW50qNeS-OkJDbWEjlFu2mNIYY4QvSnnqzPm9G393NSy50TsSajEUHSacprnQY5vByhQjkoaGznz3ySlJW46gRVcT7ZMDFjZzM-nRyimO7ltLiPCCq2UwIuoHOiT7RdqLi4X_yRhPByAWfRcyvfP904vGvX0UFksChR8snw.jpg" width="400"><br>
+
+اسکات بسنت، وزیر دارایی آمریکا، در گفت‌وگویی با شبکه سی‌ان‌بی‌سی در حاشیه سفر رئیس‌جمهور آمریکا، در یک مصاحبه از پیش ضبط‌شده گفت که معتقد است چین از نفوذش بر تهران برای بازگشایی تنگه هرمز استفاده خواهد کرد.
+او گفت: «فکر می‌کنم آن‌ها (چینی‌ها) هر کاری از دستشان بربیاید انجام خواهند داد.»
+آقای بسنت افزود: « بازگشایی تنگه هرمز بسیار به نفع چین است. فکر می‌کنم آن‌ها پشت پرده تلاش خواهند کرد، البته اگر اصلا کسی بتواند بر تصمیم‌های رهبری ایران تاثیر بگذارد.»
+به اعتقاد وزیر دارایی آمریکا، چین به‌زودی سفارش بزرگی از هواپیماهای بوئینگ را اعلام خواهد کرد و افزود دو طرف در حال گفت‌وگو درباره بهبود روابط تجاری از جمله صادرات انرژی هستند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75464)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn4.telesco.pe/file/WIVpDj0pJQh5asHVYCFPB-MRy9xE6v3aWhm-hooJLnLuiNPJK8LnVFrBh2kKZ28PAFi8JpJ7zW-QAcN0U8izsmcBt66qwlYH4IkLLt7zXVGuOuokPLpcTYjH3lxjmJhY_ogXHJDpOpekecbi67DqoR25pildUKUZZBEbAmHKedoCLIRTNUSeeOXS5m5yaSrEVAaq_Zjw3tc0PcPRjRegeMCWBK2mg8O-zUdWjn8VvP43o5zhXgIZnFoLnJ1qMHnS-DHpXsVgZfIiXEhdXjXwIt49ez4YpGESZap-pxRXlLIHFWU7CfUyZHYTkemowqWo1KpCFuvyvoMZRwCCFRlVMA.jpg" width="400"><br>
+
+رسانه‌های ایران می‌گویند وزیر خارجه جمهوری اسلامی در نشست بریکس در دهلی‌نو، امارات متحده عربی را به «دخالت مستقیم» در عملیات نظامی علیه کشورش متهم کرد.
+این تنش یک روز پس از آن رخ داد که امارات ادعای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، مبنی بر سفر به این کشور حاشیه خلیج فارس در جریان جنگ ایران را رد کرد.
+خبرگزاری مهر به نقل از عراقچی نوشت: «من به خاطر حفظ وحدت، در سخنرانی‌ام در بریکس نامی از امارات نبردم. اما حقیقت این است که امارات مستقیماً در تجاوز علیه کشور من دخیل بود. وقتی حملات آغاز شد، آن‌ها حتی آن را محکوم هم نکردند.»
+رسانه‌های ایرانی مشخص نکردند که نماینده امارات چه اظهاراتی در این نشست مطرح کرده بود.
+بر اساس این گزارش‌ها، عراقچی همچنین گفت که «نه پایگاه‌های آمریکا و نه اتحاد با اسرائیل برای امارات امنیت به همراه نیاورده و این کشور باید در سیاست خود نسبت به ایران تجدیدنظر کند».
+عراقچی پیش‌ از این نیز گفته بود: «کسانی که با اسرائیل برای ایجاد تفرقه همکاری می‌کنند، پاسخگو خواهند شد.»
+رسانه‌های ایرانی همچنین درباره اینکه آیا شرکت‌کنندگان نشست وزیران خارجه بریکس در هند خواهند توانست بیانیه نهایی مشترکی صادر کنند یا نه، ابراز تردید کرده‌اند؛ زیرا اختلافات میان ایران و امارات ادامه دارد.
+در همین رابطه از کاظم غریب‌آبادی، معاون وزیر خارجه ایران، نقل شده که به دلیل حضور امارات در این نشست، «مشکلات و رایزنی‌هایی» وجود داشته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75463)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn4.telesco.pe/file/ZezA5neX5DEbTTU2OMHHL4CqfdyumC7IgTZba4bIaLsLQNeqkEr1ekMIQyqymlWhkd4a6BZn2AWyPXJ7IwsfKtMqB-dOjsy470mI7ZDvtx6JhoWAdfDEtS7Q9dQmV66BSQXhpdTyx8a6gAkGHJo282uYZY5sD5cNiuYDJz2igbq9sowUtHD0mScQMnzQjLYxOu4d9qlSvWuZnDKyiShur-gtkLCTK3n9xKL8PtalBpb8Ukso1LYX7QOW1uV5J-L-tAgXZCtkaCXlp5y_nzg2omgDkgpepwCWTbFWvRSnOUljxuQ8hBmwm4ilkiVZd3Ffth0rV-SLjQKDURXbpAdFSw.jpg" width="400"><br>
+
+یونهاپ، خبرگزاری دولتی کره جنوبی، روز چهارشنبه ۲۴ اردیبهشت به نقل از یکی از مقام‌های امنیتی این کشور گزارش کرد که بررسی‌های سئول نشان می‌دهد که به احتمال بسیار زیاد جمهوری اسلامی ایران مسئول حمله به کشتی باری این کشور در تنگه هرمز بوده است.
+سفارت جمهوری اسلامی در سئول هفته گذشته هرگونه حمله جمهوری اسلامی به کشتی باری کره جنوبی در تنگه هرمز را رد کرده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75462)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn4.telesco.pe/file/LPJLaoVlvjBHUek4UV1R62Z86wpMrpnrKq-sLi4wdos7Lx8nr3XEmNAsBL5jcmBI08RVcavorJGuRkcD2iBCY0-inHf966hurvQZsJxBxOHoZA5oX1weV7MGHt5MxcQMXwWPQhG1X9oRY_WqGmt-5wHrCsbPS_9GA6fhPhqsbGYjMfDdCsFyyx9QNa9bQ27zn2DBEnRIZ73HFJ8VHRIGHundCJuAP1BXVkpfgUUHLyZ8VTLruJCwNZ_7b9IYzw8aqIFo7DUn66nSr0I6Td9L4qhlQTlhhlcXXlb6OSkF-uMU_WPgBNw8_6U0shq0eBnxfTlvdz3wFo6OUu_ahM-gkw.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا روز پنجشنبه ۲۴ اردیبهشت اعلام کرد پس از وقوع حادثه‌ای دریایی در شمال شرقی امارات متحده عربی، «افراد غیرمجاز» کنترل یک کشتی در لنگرگاه را به دست گرفته‌اند و این کشتی اکنون به سوی آب‌های سرزمینی ایران در حرکت است.
+این نهاد گفت گزارشی دربارهٔ حادثه دریایی در ۳۸ مایل دریایی (حدود ۷۰ کیلومتری) شمال شرقی بندر فجیره امارات متحده عربی دریافت کرده و پس از آن، کشتی به تصرف درآمده و مسیر آن به سوی آب‌های سرزمینی ایران تغییر داده شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75461)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn4.telesco.pe/file/GA2lxw9pX0SpswOT1vSl98s6IOFFIWyuNmRtl4jF_yOlB9yIeeRC5xPy97t85PgakAcXKoH6yS8v0moVH1JB3o2b4u9wgdt5iadaUupMP-_94WpwOOPF85PepyEyFvrCiqztZ9Bz8I4GzAgawc10g2PtDHit1I-cju_wHCXgsHzzlMO_C6YC3Hp5KCtBIRy4xdmxQ9uIqQ3PKmJM9IMKuQVNoldNm19RdMkjOw91ZjY68yRLq6zwYvjn_kOxbJ4woHFmllnzElfFi0pQPr5uWRbFcsrtr-J515iLe-tE4_K9x9QXhoL3IbLjz7esr2fpkRPyOuB94NScoKNQ9HPkdg.jpg" width="400"><br>
+
+کاخ سفید اعلام کرد که دونالد ترامپ و شی جین‌پینگ، در پکن توافق کردند که ایران هرگز نباید به سلاح هسته‌ای دست پیدا کند و تنگه هرمز باید باز بماند.
+آمریکا این گفت‌وگوی دو ساعته را «خوب» توصیف کرده و می‌گوید که دو رهبر در حال تلاش برای تقویت همکاری‌های اقتصادی هستند.
+در بیانیه کاخ سفید، رئیس‌جمهور شی همچنین «علاقه‌مندی خود را» برای خرید بیشتر نفت آمریکا ابراز کرد تا وابستگی چین به تنگه هرمز را کاهش دهد.
+همچنین گفته شد که مدیران برخی از بزرگ‌ترین شرکت‌های آمریکایی هم در بخشی از این دیدار حضور داشتند.
+آن‌ها همچنین درباره اهمیت پایان دادن به ورود مواد اولیه برای ساخت ماده مخدر فنتانیل به آمریکا هم صحبت کردند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75460)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn4.telesco.pe/file/rqUMHJYGul-qXHDhTOCXziG98foTe-VvJJXqavvzJBMN1GKwVBRDvnhzh34mBf448mUoBmQuBruq7fQ9rr2q54hz9cy5YToWjLGA4MD5lSizzZvoXRmE1TmyNLQ1L_sAPEK4OZlu0kkmfDaDu-3HSALQeKGjSmDgo9wKNKkSFa9ixf_KL-dzgYMlVHowoybrtnkMZA7gP4AdGH_6utm3v-k60N6Mo3uaSwjFXHLqX2Js82OASo_SNVkUeLsHyWVU2aVeUcMtbRLrAGgPaR0wrDtms_0IbTfSAe7-Gs6Wk7SZpumfnpLImUNidUtA3tglvU7EdTKdtvdiBqPgEUsMzg.jpg" width="400"><br>
+
+مارکو روبیو، وزیر خارجه آمریکا، می‌گوید به نفع چین است که حکومت ایران را برای باز کردن تنگه هرمز تحت فشار بگذارد.
+براساس گزارشی که فاکس‌نیوز از اظهارات روبیو در راه سفر به چین پخش کرد، او گفت: «ما این استدلال را با چینی‌ها مطرح کرده‌ایم و امیدوارم قانع‌کننده باشد. آن‌ها اواخر این هفته در سازمان ملل فرصت خواهند داشت دربارهٔ این موضوع اقدامی انجام دهند؛ زمانی که قطعنامه‌ای برای محکوم کردن اقدامات ایران در ارتباط با تنگه‌ها مطرح می‌شود.»
+روبیو گفت حکومت ایران در حال ایجاد ظرفیتی بوده که بتواند با «انبوهی از موشک‌ها و پهپادها» سامانه‌های دفاعی کشورهای منطقه را از کار بیندازد و هرگونه حملهٔ احتمالی به برنامه هسته‌ای خود را با تهدید به وارد کردن خسارت گسترده به کشورهای خلیج فارس پاسخ دهد.
+مارکو روبیو همچنین با اشاره به بحران تنگه هرمز، گفت این وضعیت بیش از هر کشور دیگری به زیان چین است و پکن باید ایران را برای عقب‌نشینی از اقداماتش تحت فشار بگذارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75459)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn1.telesco.pe/file/Ov9aSxOGdKzEw3j3asTDzJe5KQaBko1pXgwYt0kMbZN1dBuK6b_HxsHV-tA5tocO8cZvrnU2CGAGiY7pzpLHXxFWpsmQez28xgTow8gSJNx6nDmywJovA4lmAurw3Xigy9Vn_4IVDEa0rmLbKDtcM1ZiVFGBPuBsXfV3lMAISTUPNb2hAIoffuv-MxsiqsK-INBvUWt2SEyRDhDeCxonTtXDJUdn52nLeoBQKtMiIGhpV3RPOVjc35N4IxO1tG8SUG0hzeCCvkpW_1Nrmb6Gkuo7vMTI2gm3dZoy5wmjwakxK2I3Wht0pFwPNuD9qxwOZ3NeHoGcwtQ04eDsmROneQ.jpg" width="400"><br>
+
+نت‌بلاکس، نهاد بین‌المللی پایش اینترنت، نوشت که پس از بیش از ۱۸۰۰ ساعت قطعی اینترنت در ایران، نظامی طبقاتی توسط جمهوری اسلامی برای دسترسی ایجاد شده است.
+😋
+💩
+همزمان مهدی طباطبایی، معاون ارتباطات و اطلاع‌رسانی دفتر مسعود پزشکیان، ادعا کرده است که اگر همه‌پرسی برگزار شود، مردم در شرایط جنگی، امنیت را به سهولت دسترسی به اینترنت ترجیح خواهند داد.
+@
+VahidHeadline
+روزنامه اعتماد گزارش داد که نخستین نشست «ستاد ویژه ساماندهی و راهبری فضای مجازی» هفته آینده به ریاست محمدرضا عارف برگزار خواهد شد.
+هدف اصلی این ستاد، فراهم کردن زمینه‌های لازم برای رفع محدودیت‌های فضای مجازی است تا حداکثر تا میانه خردادماه، امکان اتصال مجدد شهروندان به اینترنت بین‌المللی فراهم شود.
+عارف در این مسیر قصد دارد از ظرفیت نخبگان و اساتید برجسته ارتباطات نظیر هادی خانیکی و علی ربیعی [
+🤨
+] استفاده کرده و میان نهادهای حاکمیتی برای بازگشت سرویس‌دهی هم‌افزایی ایجاد کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75457)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
+
+<img src="https://cdn4.telesco.pe/file/b4mX3yDmuQRbPcbNoT2_ldllZojIncpbdGulrbA7bo3PkF4GyceNhhp8JUA7fW2rztdwys4iVeLrmD0AW_LvLzcZ8RuqyLUmI_cOJp7kSPYDQZmdVrlwW3QISFm0a5MZSLulCeASicO8IGk1Hwsw1YtGXGsvlt5Qf_P5AWGz3G7kfBlBdFew4Ph0JO62FinlrPtVSOK7QSPIc0SncYU-GMBMEo8ws1D1V2K7GA4o8Mb5hPecJWIIyUHo8_3q5ci9ajpCNzG6x2rIpHgc7QeiIYnlDi6K8aakoarfdAU9_l-YQKskpfX_IhqAdoKDzoUDK-_6tskjZiOli1a1dXJbPA.jpg" width="400"><br>
+
+مهدی شفاخواه، فعال حوزه آموزش و حمایت از کودکان کار و ساکنان مناطق محروم، توسط نیروهای وزارت اطلاعات جمهوری اسلامی بازداشت شد.
+این فعال حوزه کودکان عصر سه‌شنبه ۲۲ اردیبهشت ۱۴۰۵، ماموران وزارت اطلاعات بازداشت و به مکان نامعلومی منتقل شد. همچنین تمامی وسایل الکترونیکی و ارتباطی او و همسرش نیز توقیف شده است.
+@
+VahidHeadline
+هنوز از دلایل بازداشت، اتهامات انتسابی و محل دقیق نگهداری شفاخواه هیچ اطلاع دقیقی در دسترس نیست و پیگیری‌های خانواده او برای کسب اطلاع از وضعیت سلامت او بی‌نتیجه مانده است.
+مهدی شفاخواه طی سال‌های اخیر به صورت داوطلبانه در مناطق محروم و حاشیه‌نشین فعالیت داشته و از طریق آموزش ورزش و مهارت‌های اجتماعی به کودکان کار و نوجوانان آسیب‌پذیر، در راستای کاهش آسیب‌های اجتماعی از جمله اعتیاد و بزهکاری تلاش می‌کرد.
+او برادر رضا شفاخواه، وکیل دادگستری و فعال حقوق کودکان و زندانیان سیاسی، است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75456)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
 
 
@@ -21,7 +202,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
 <img src="https://cdn1.telesco.pe/file/BWFpApOxzn-PKPY99L6x5R0nGFc8oF-yC2RQ0fz4zs0bsmF45CCGAxkgxYBc_yBZR2ELt6YPWsTlRNZUhTHSi-DPSmea-420GMwMlrwAsGkhVKKA0F6XWKw9912NaeqKyO52yTjNTPaOMTBj2lxbXwvDHGDBKB4CwWbbiy9zXiGF4BpIA8eF_Rc880BgMlw2HiAceoOSoQTo_esPruKb9RdlCwfWq9pzjqdT79yr6JUdTUlc9gjQGABxzYS8GVphWupZzU74XxN7da9OKHPquJlFt0e1a90BLDZ58uLAWyN0x9Q2qED_2szsLbPNQPsg3Bx_XV93petpXbsct-Xz1w.jpg" width="400"><br>
 
@@ -41,7 +222,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
 <img src="https://cdn4.telesco.pe/file/kOGY9A28aAMN5wcl6JONtrcpq5Bll4BKMy_5n1211-N6CTxCdK8K7AO8QbavZGVes_QwYm1rTAEdLfGe9GfiCocXxXoKK3JfB7Db1-Q89tnuv_QgwLrJwvBAhXhvNk9T74iIHjlN3DegX3xMowEwj7PtiuGG1O5umFhJCLkJjeDRjh0-HEJCyN1wg3EF41Up2cZ8i3Z0cKO0zE_CPcYYhME9ZDy75zrScIpGITOhbRwZxcByhBk9z-XgXjpm8xux1N6oyZU4CjZcRggbfukXsZ9ZPK3rNCfn3zJ4pSOxywzehOsNT-EJqK_s1OMOqntGsEn0ss_FpjvMkH_87yoCXQ.jpg" width="400"><br>
 
@@ -60,7 +241,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
 <img src="https://cdn1.telesco.pe/file/sQ1WyOwT63GWDznGTxj55_GXDRk61OvTsoOtFtmrx0pi4NhHKRasD6Ahc_ioWul_hvkUGjaHjxHFxAIP9jHE3Ad94OB307AyvnvQtXLyKhnTH8mJEjdZVVZdQOnUPJ626mao8dzlMcxA8kdtAEc5QcQBKXm72QcBGmd1tzEmDDfy9hCWAXPvVQr87R2saQlypxw-FeG8u6TiFeQyJpQxMOzdIzkRo3L0A1EfMiCdN3qeWvke0r_OslqDId8pK1a8_El-1B3kRtshwM81iGAY2kEFYfRPW4AYfsdEWOi_2RSuUyGNuv50NNcj4uBEyeEUrfzadWLSYjnoafUCDMNC_g.jpg" width="400"><br>
 
@@ -78,7 +259,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
 <img src="https://cdn1.telesco.pe/file/SYXGcnpMNP4rUdDGfNHNfj-RC5UdBvGVOaeQZHEv_yvyXqLPh0YkleH3ib9Gao0FTd-2ZcxG9TygoWHWQ_KFzr1jjUonaSZG2yP_UKXApZV7ya7-rDGiNWSOQtDeM7NjSkaQiM8tvlM7q2Nm9pQ7vFzVEv9kGc6dLTcb_mtoTUcE6yoYw1xGwrajOuGGNLUekHhKLM6t9G4Bfhkj4ow64bw5tYUjyLnXB3BkEDWqP_MRtIZHGCNKk6nR1c2DTlD_98cnSwAeoqN4VIvehlIFSiBrbQC7L0PKz3TyYZUljynqj2cL0Sa_v8FB8fBLHBETLOwrB2xst_aiyABXxKnRUw.jpg" width="400"><br>
 
@@ -100,7 +281,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
 <img src="https://cdn4.telesco.pe/file/O14IFO4Leg8r14i-eJQcq6nBidwI05y_mv0HYxPhz1Hob3svJpkwytROq9IRVuo2h1LLuSiM-fSnBnulBU-6A2En5gYgg85rYR2oQtcsGtdThWUrISzoggOQW7wrFWWDbfRu5Uo_QUVXUYNEHCyKN_OjMRCJAXXKCfjN9TbzIXbZFC2d-GVB--L9G805okiFEA8OwOGidijWnRwdKKrXHBVJEa1rSa5wkqsrsDCVOJKLsk35G6xZ5lvG3XB-IIzXdv5vEeqQ1TA4Dqgwyvd5el0pJotGPU6ns4W-2O1mCJD42p-ALEw4muh00AFqWOLmuTHvmUanTjlmWgn-bLeATA.jpg" width="400"><br>
 
@@ -118,7 +299,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
 
 
@@ -136,9 +317,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
-<img src="https://cdn4.telesco.pe/file/kA5t2YJ66l6D4r6kWOB6gtUby7uZddouscSQ9RBZIlxhqkpx9Us0kKl4aPcSEef648Kw60y3zC-z_1t8tUWTBXhyJLqyace-5I4w7w09dfkrXtWgJ8xy1bLAowxIgJFWyvhqDXfS8VQOlSz71mDt5CwFhZ7q9xkUFr8OEKOXvvSsfjcz2vq_MZXglTrdSQy_q-IMHaV_qrQrPH6lcRnCeXjGCmdBpAaGcWQYfaZNMFcWvB0cNY5PplUqQLDZaOwHLy-Je44fli7CImAkJMmJy6zxPlcRFC2YV0YOX65xFsILdzdHYBcwfOrfQcz7qVKiFDKlxX-lq74Fzx84xHAtBQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/EwQCy8C9bKY1Igop_bZbcZVvd6s5ufwoSSu5wv6IQ4EYUcrwasoO2rtetbROLOSkqg9UM8fSFDU--auXBZf_kAErS-E4-fP1C2q7JR_0q5lDIfLPtY1QEPLRfj4DFtyd9MerS5yGrP2z_wzSkMgOeP8ExtK-0KLqXZjiBcefVAA_zSZd6R3PzKUIeqPl7nNhsEaCzV7WmqMW9WuMMvTXCwob9soDRXFvd_1MyZYGcAJevT3Xt6nUwfXW2PhCLGlFMG5bCYQ8O9Vxus-47tKon3j1XtQg0kSoJjMINnpq_jViS577iVG7VPS8mnLsIiT-YBvc5wDBfAS3LQxKJE2Q5A.jpg" width="400"><br>
 
 رویترز به نقل از دو مقام غربی و دو مقام ایرانی گزارش داد عربستان سعودی در جریان جنگ خاورمیانه، در پاسخ به حملاتی که در خاک این کشور انجام شده بود، چندین حمله اعلام‌نشده در ایران انجام داده است.
 به گفته دو مقام غربی، این حملات توسط نیروی هوایی عربستان سعودی و در اواخر ماه مارس انجام شده‌اند. یکی از این مقامات گفت این حملات «اقداماتی تلافی‌جویانه در پاسخ به حملاتی بود که عربستان سعودی هدف آن قرار گرفته بود»
@@ -154,9 +335,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
-<img src="https://cdn4.telesco.pe/file/NIT32DOKjVCT_sbkUhWvz45WxT5dQEsmLT-Brt7ipyBs5j4oh1JECRx_JhvEP5C7Bpd4b7yI8hPcR1FL-jHqhYwGIip30W79881UuQD8XPTsTUo7RjgvU57USxoQ2-FrgXZyHWgfOirFeoDflvBghPAF8ikRkM84oBVXG3tdhTkqsOjiJxBpPCQdGgUBPJda3Zi7T29jWCeBKN_z-c0c8muyUShZaJdJlJl2MjiydlI8JRhULOdi1g8G-jd8LxITNoHdL748pPyia6B00yiCUCfxOftzig3FzfEjgtq_Yj_tEj6mBAhaiV9Uuawa28tDX9aEzUs9XLu8KMwxDsKXHQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/lXij14moM9_35QHQU-Mzo3frkDkx-4vK8cykAl3nvuoUJk7oOR7GfGgoXLc2qUOI1bftyVbsihSPrkyh72c3kyNJn43Roce_Wkt_dIFzKbtkKgA_FKlTSwcMDxJDstFPGIojQ16E7-_4g0a27-THISq4n2ANYuDUVkpelBpCWMJhMOFGdZ2r_OWHJqF9JAx8olT3EZ1bGHl8632WSYUzwshjp7Euk5LtrWAecUrt9RFmLJUs20CFU3wEtUrzSJRFNWuB3YqB2MfxdDdk5xG0qYsbV1lySKhGJc30PYX9d2bWm8jKAZ79RjarECc_Xf8NXaH9tBS8t4Jpm-rDqtMqaQ.jpg" width="400"><br>
 
 یک کمیسیون مستقل اسرائیلی جزئیات تکان‌دهنده‌ای از خشونت جنسی «سیستماتیک و گسترده» توسط حماس و سایر گروه‌های مسلح فلسطینی در جریان حملات ۷ اکتبر ۲۰۲۳ و علیه گروگان‌ها منتشر کرده است.
 گزارش ۳۰۰ صفحه‌ای این کمیسیون نتیجه‌گیری می‌کند که تجاوز و شکنجه جنسی «با هدف به حداکثر رساندن درد و رنج» انجام شده است.
@@ -171,9 +352,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 15:47:07
+###### 🔵 Updated at: 2026-05-14 18:16:25
 
-<img src="https://cdn1.telesco.pe/file/PIZxgnGUQ27EKKKnPLzG9dPIAo4zWkZMYVTg26JFWqmd106wlx7vmnNnJviEE_S-EZC9xYuUdhxSDVk0yFgP73e7JXel7pc0g3gcZgi14mCU723FmYWqxhDGqLSFgyf1-ECnDRF6XbKblHePBNa85EmeyBk2toGUFSgEKUoAVccfjO7bgyjGFuNNuXTMvP1PmJ2-oyHp2G_6WsMk-24tYIuA4keIcgHxjr1UzTr_Cjg59Lq47vedyZ8h-fGjcWP17wZTVUvxIYeYlENXFGVovGHxfzGjkfXlFlbhzh71TGWtaP3Qpgh_c0-DG_U5mPnDNbLvplgWZkcmSvoUGqEhow.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/UD1zwCJlJ2k5SLepZnZqMSNRMoF3wqcl9VmQWNDR7Ldo1r07PeB5Syors_YjRaBqpw2-VHZxTAoCfD_mFfZA_yhY3tdfC85KBGvb0Ik0uYSziajFsoO6oPu0X8qfpRvg80RKFgGeu7KDF4Gj2EO6x46HnKzKvTnkSJ9QnnX_iTaORSlwKfocsZQVSRzaqm4gYWuzUbEiVZNr5iYLHD_BANw4E1lK6rN0SZtwIXmF-ExqulupaUM7g_ldzprFusmvyW_vgg5H8VIEWUZVodCPV3Ip0g0JU4XBbs9yaDzgd-cKZ6HsIlbJm5AD72ZV1WAGUrYXhTSOP2H0VFsxX9pE2g.jpg" width="400"><br>
 
 مسعود پزشکیان، رئیس‌جمهور ایران، محمدرضا عارف، معاون اول خود، را به ریاست «ستاد ویژه ساماندهی و راهبری فضای مجازی کشور» منصوب کرد.
 در حکم آقای پزشکیان بر «حکمرانی یکپارچه» در فضای مجازی، پایان دادن به «چندصدایی» و جلوگیری از «موازی‌کاری» میان نهادهای مسئول تأکید شده است.
@@ -185,222 +366,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75445)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 15:47:07
-
-<img src="https://cdn1.telesco.pe/file/jei5nMTri7ibMtCTTk3oJN1HkZc7OVjd7EotNnrTX7ZIhEqFHd7siMC5xHkdOc60uyi60KoaHwPjEfkhQ0OOQPoAZKxoyMv9ILPN_FY7yN506v6z0S1EeFj0NzBPb4FqMK7eI0kJ_N2GyJSh9rkZkQ4v0zGagwc4fnMjE0t_My00iYi77P20WrNXH89R8cvFTXKyu6LS0TQ1_p-HXCZ7fQClQvZVlrx_eWM1AMqTYEXaH3bEqiIhWKJzi0dslEOCmTjnE72IUpMf_BnTOsDsndKIPhDsAdyRj91XZP63tj7PETvX7iccPOjCUFMwceguz2hg77kWshg9QjRN98DSbQ.jpg" width="400"><br>
-
-به گزارش خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، مهدی زارع، زلزله‌شناس و استاد پژوهشگاه بین‌المللی زلزله‌شناسی و مهندسی زلزله با اشاره به زمین‌لرزه به بزرگی ۷.۱ در قرن نوزدهم در گسل شرق تهران گفت: «وقوع زلزله‌های ۴ ریشتری اخیر در ۲۸ فروردین و ۲۲ اردیبهشت در پردیس نشان از تخلیه انرژی دارد. وقوع زمین‌لرزه‌های کوچک به صورت مستمر، بخشی از انرژی گسل را تخلیه می‌کند، ولی این لرزه‌ها می‌توانند نشانه‌ای از ناپایداری در پهنه‌ای وسیع‌تر باشند که مقدمه رویداد بزرگتری است.
-به عبارت دیگر، لرزه‌های خرد و متوسط، هرچند تا حدی تنش را کاهش می‌دهند، اما نمی‌توانند به طور قطع احتمال وقوع یک زلزله بزرگ را منتفی کنند. در برخی موارد، چنین توالی‌هایی می‌توانند پیش‌لرزه (foreshock) باشند.»
-@
-VahidOOnLine
-امروز پیام‌هایی از پس‌لرزه یا پیش‌لرزه ساعت ۱۲:۳۳ دریافت کرده بودم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75444)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 15:47:07
-
-<img src="https://cdn4.telesco.pe/file/jCc7lDOSE8QLQz827-lAlxQqXnHQQx_nE22HDCoVPt8ELhJ7s-Psgao0rj34e-DSgade3RNQBQOZQ-kegNc0Dv50UUUmHumkYztlI5na9aZ_1-lLcxI-myMnSiRx3_auTv69A2aWrRwQJQxSGiGQMNkA-gq9PHhmCFhaZQkJ2gK1RHzA45zqw5_774hc7YEZ5KXDEXOvXxs-olDLDiyIN4MophTgYOH0xhXIeiZkLzj-CSEpzyX9rEKE_2mFVXSuHPaVHOJcez8o6DcrmlLtoRIPWvCYghqR5XoCtV6mG0fb9HW4ArV3h0v8xn0zpOt1gghfsKCs7hEvjGWp7CE_gA.jpg" width="400"><br>
-
-احسان شیرخانی، شهروند ۳۵ ساله اهل شهرستان ملکان در استان آذربایجان شرقی، بامداد روز سه‌شنبه ۲۲ اردیبهشت ۱۴۰۵، با شلیک مستقیم نیروهای بسیج در ایست بازرسی شهرستان بناب جان خود را از دست داد.
-بر اساس گزارش رسیده به ایران‌وایر، نیروهای مستقر در ایست بازرسی بسیج شهرستان بناب، خودروی این شهروند را به بهانه «عدم توجه به دستور ایست» هدف تیراندازی مستقیم قرار داده‌اند.
-یک منبع مطلع در این‌باره به ایران‌وایر گفت که نیروهای بسیج بدون رعایت قانون به‌کارگیری سلاح و بدون شلیک تیر هوایی، مستقیما به سمت اتاق خودرو تیراندازی کرده‌اند. به گفته این منبع، چهار گلوله به احسان شیرخانی اصابت کرده و او در دم جان باخته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75443)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 15:47:07
-
-<img src="https://cdn1.telesco.pe/file/aY1GvERwCftlm3BG6d4FjvHje0bzqMRvCJw-O1dKjt5Q5_whk57Jm4skik7Z7GVQLf4yBLw2sF68KCY66EEK27paLB1AETq5MhgXqC8KcVPtwxZYkT_RoV_LKmUx13cfr_YEds2i5SZluMeRjx3w3R10xuc6mE9-V4ADDmEzvLXoFkSVVLf0Yjm3X55YnkVxnYJlcyd33Rc9yzPaygD0vWeregvveiRGGImjpotIA6ColZvs9rm0PdtlpVAo6wTiLd0SMfbLdkFbDoTd7VxdNgv0Fkf0sQ7Zh9G20CLwgXfGLbulUWZMdF1BBjDMqLanha8YiCLBtaeOZhJF5ZSQ5A.jpg" width="400"><br>
-
-قوه قضائیه ایران یک زندانی دیگر به نام احسان افرشته را به اتهام «جاسوسی» برای اسرائیل اعدام کرد.
-میزان‌نیوز نوشته که افراشته که «در نپال توسط موساد آموزش دیده بود و اطلاعات حساس کشور را به اسرائیل می‌فروخت»، بامداد چهارشنبه ۲۳ اردیبهشت اعدام شد.
-در بخشی از گزارش بدون اشاره به جزئیات آمده که او «به عنوان کارشناس سایبری در یک شرکت وابسته نهاد نظامی مشغول به فعالیت» بود.
-با این حال در گزارش مفصلی که ارگان رسمی دستگاه قضایی ایران درباره این زندانی منتشر کرده، مشخص نیست که او چه زمانی بازداشت و دادگاهی شده و از جزئیات روند محاکمهٔ او نیز اطلاعاتی منتشر نکرده است.
-شماری از وب‌سایت‌ها و نهادهای حقوق بشری نوشته‌اند که احسان افرشته، متولد سال ۱۳۷۲ و فارغ‌التحصیل کارشناسی ارشد مهندسی عمران و متخصص شبکه، اوایل سال ۱۴۰۳ پس از بازگشت از ترکیه بازداشت شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75439)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 15:47:07
-
-<img src="https://cdn1.telesco.pe/file/ilajmroBqEC5AemlWBqFZFzRiGgJ6MzK4rRazh9snqogUK6EHpQ7hyLG6wIg0099JRYSVdgMiaZBsAMdSVUc_gnHj4KLpdlwE_NMl2FRwVkhXsx5Cg6PL0GyQLLIgMNSm1gy68Bmb9JJuH-gIFevTS2-ZE1Sj8-BD5hHaR7Q612Ax5ziB5SlIwHPzWf1Mhq8-i6UNX8orcQC8z5HaGc-qqViFUtNopTMCrMfRW96mohQ7nZK2qb456hTmp1dNzWMjfXBQrGhdMpVykiaddCtlqhrOn4mzxt-SpfZoClj_xQzuuQjKudR4hJHc-rQaAULg69CkKpfwyQNTbZWKTt1Mg.jpg" width="400"><br>
-
-زمین‌لرزه چهارم۰۰:۳۳
-پیام‌های دریافتی:
-دوباره لرزید  شرق همین الان 12:33
-بازم اومد ولی ریزتر از قبلی
-همین الان دوباره لرزید (نارمک ) ۰۰:۳۳
-من الان دوباره لرزیدم
-وحیددد نزدیک چهاربار تو پردیس
-#زلزله
-اومد نمیدونی تختم چجوری میلرزید
-آپدیت: تصویر دریافتی بالا و متن رسانه‌های داخلی به نقل از مرکز لرزه‌نگاری:
-بزرگی: ۳.۴
-🔹
-محل وقوع: حوالی پرديس
-🔹
-زمان وقوع: ۳۲ دقیقه بامداد
-🔹
-عمق زمین‌لرزه: ۱۰ کیلومتر
-🔹
-نزدیک‌ترین شهرها:
-۱۰ کیلومتری پرديس (تهران)
-۱۱ کیلومتری بومهن (تهران)
-۱۲ کیلومتری رودهن (تهران)
-🔹
-نزدیکترین مراکز استان:
-۴۱ کیلومتری تهران
-۷۶ کیلومتری كرج
-🔄
-آپدیت ۳:۳۰
-پیام‌های دریافتی درباره لرزش پنجم
-زلزله دوباره
-ساعت ۳:۳۳ شرق تهران باز زلزله اومد
-پردیس،۵ دقیقه پیش برای پنجمین بار زلزله اومد وحید جان سابقه نداشته تا حالا خیلی مشکوکه
-ساعت ۳:۳۵
-پردیس دوباره لرزید سه و نیم
-سلام وحید جان
-ساعت ۳.۵ باز زمین لرزه اومد پردیس، با صدایی شبیه به ترکیدن
-🔄
-آپدیت: لرزش ششم ساعت ۵:۵۷
-یه کوچولو دیگه زلزله سمت پردیس حس شد الان
-و الان هم دوباره لرزید
-٥:٥٧ دوباره پس لرزه اما خفيف تر
-آقا وحید ساعت ۵:۵۵ دقیقه صبح، پردیس برای ششمین بار لرزش احساس شد
-#زلزله
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75438)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 15:47:07
-
-
-
-زمین‌لرزه دیگری به بزرگی ۴
-این میشه سومین بار ظرف چند ساعت گذشته! اولین باردر شرق استان احساس شد و پیام‌ها از پردیس و بومهن و دماوند بود و یکی هم از لواسان]
-پیام‌های دریافتی لرزش سوم:
-تهران مجددا لرزید
-دوباره لرزید کمی خفیف‌تر
-وحید جان دوباره لرزیدیم  شرق تهران .. ۲۷
-دوباره! پس لرزه بود.
-دوباره هم اومد ولی ضعیف بود خوشبختانه
-وحید جان شاید باورت نشه اما سومیش هم همین الان اومد، منتها خیلی کوتاه و کم بود...
-ان، زلزله، ۰۰:۲۷
-باز اومد، کوتاه، شاید پس لرزه باشه
-دوباره اومد
-یعنی اون رفت این برگشت
-دوباره زلزله اومد
-باز هم لرزش ۱۲:۲۷
-سلام بازم لرزید حدود دو سه دقیقه پیش طوفانم هست خدا رحم کنه تو این شرایط فقط بلایای طبیعی کم داریم
-اینجا ازگل، ۱۲:۲۷دقیقه، دوباره لرزید
-🔄
-رسانه‌های داخلی به نقل از مرکز لرزه‌نگاری:
-🔹
-بزرگی: ۴
-🔹
-محل وقوع: حوالی پرديس
-🔹
-زمان: ۲۶ دقیقه بامداد
-🔹
-عمق زمین‌لرزه: ۸ کیلومتر
-🔹
-نزدیک‌ترین شهرها:
-۹ کیلومتری پرديس (تهران)
-۱۱ کیلومتری بومهن (تهران)
-۱۲ کیلومتری رودهن (تهران)
-🔹
-نزدیکترین مراکز استان:
-۴۰ کیلومتری تهران
-۷۶ کیلومتری كرج
-#زلزله
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75437)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 15:47:07
-
-<img src="https://cdn1.telesco.pe/file/IhV0UDCpsAGLvgK7Cx4ZLnTKTvd-W0l-sn1pYYY5cIR0v_OxqBFuY4VAC1yjl8HIGcdmRGgY1cGOMjEwvTtcUp2sSKbNRPCv9volyaZTPh88XXzWdGy7jWWJ0pwkr5yPL55FYjNiz42Bo2PlTuMhNPihmzZsKRNmYTUArhRp4tA4hqMFxW9ee2-JnJUc36W4q9L4ZmpNrbe2OXFbdI_bP_HtZD4P95Za0SHOaQWGm6gMdfRy6Qv0zrYwa6Q7Y6eJ8bWXV7ONYqRl_XoajUOKoIqwr0F2zmHphaiQyMBjk9Rzj9tFBaigcbythl2-RA6numso4T-yb0Bg-4U63qyscg.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-وقتی «رسانه‌های جعلی» می‌گویند دشمن ایرانی از نظر نظامی در برابر ما عملکرد خوبی دارد، این عملاً خیانت است؛ چون چنین ادعایی کاملاً دروغ و حتی مضحک است. آن‌ها به دشمن کمک و از او حمایت می‌کنند! تنها نتیجه‌اش این است که به ایران امیدی واهی می‌دهد؛ در حالی که اصلاً نباید چنین امیدی وجود داشته باشد. این‌ها بزدل‌های آمریکایی هستند که علیه کشور خودمان طرف می‌گیرند.
-ایران ۱۵۹ کشتی در نیروی دریایی خود داشت؛ تک‌تک آن کشتی‌ها اکنون در کف دریا آرمیده‌اند. آن‌ها دیگر نیروی دریایی ندارند، نیروی هوایی‌شان از بین رفته، تمام فناوری‌شان نابود شده، «رهبران»شان دیگر در میان ما نیستند، و کشورشان یک فاجعه اقتصادی است.
-فقط بازنده‌ها، ناسپاس‌ها و احمق‌ها می‌توانند علیه آمریکا استدلالی مطرح کنند!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75436)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 15:47:07
-
-
-
-"وحید تهران لرزید"
-+ ده‌ها پیام دریافتی مشابه درباره احساس لرزش زمین در مناطق مختلف تهران
-به نظر می‌رسه بیشتر پیام‌ها از سمت شرق و شمال شرق تهران هستند گرچه در غرب شهر هم کاملا حس شده.
-حدود سه ساعت پیش هم در شرق استان تهران حوالی پردیس و بومهن و دماوند زمین‌‌لرزه خفیف‌تری حس شده بود و غیر از اون مناطق فقط یک پیام از لواسان داشتم و پیامی از خود تهران نداشتم.
-🔄
-رسانه‌های داخلی:
-زمین‌لرزه‌ای به بزرگی ۴.۶  ساعت ۲۳:۴۶ امشب مرز استان‌های تهران و مازندران را لرزاند.
-این زلزله در حوالی شهر پردیس و در عمق ۱۰ کیلومتری زمین به وقوع پیوسته و در بخش‌هایی از پایتخت نیز احساس شده است.
-بزرگی: 4.6
-محل وقوع: مرز استانهای تهران و مازندران  - حوالی پرديس
-تاریخ و زمان وقوع به وقت محلی: 1405/02/22 23:46:07
-طول جغرافیایی: 51.83
-عرض جغرافیایی: 35.82
-عمق زمین‌لرزه: 10 کیلومتر
-نزدیک‌ترین شهرها:
-8 کیلومتری پرديس (تهران)
-10 کیلومتری بومهن (تهران)
-11 کیلومتری رودهن (تهران)
-نزدیکترین مراکز استان:
-41 کیلومتری تهران
-77 کیلومتری كرج
-#زلزله
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75435)
 
 ---
 
