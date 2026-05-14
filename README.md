@@ -3,7 +3,43 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
+
+<img src="https://cdn1.telesco.pe/file/aLPBrhPsHRf7tmnJqo2pJ_GUYDElB9T_sENaSh_K4Al9IF06PV_-jDCWtbQO5boGr6W6vqyuMavTLMejFDioIwTXYnb9FqV9Z4mLOVkulYqe26aLqYD98OH0X2nqA-jcw9TfuTtijeV-iJ12XsfvKGxSkp1TpG0R7aLuqqAqnedPgaiQFN-TBUeOImlUWELX9LCZNQLyrR3sXwNQwI27deIlpCGE0b71htmu-bor0TvXH7QN7Bp7v5-Lhf26UIJKncKkUnIuhNr_1KQsQfC9WgJgnM1m0qnqz67PhIzkXCKjcEQMhMcjqoE9HPL97qbLCM_I20C2ZDe2vb1UMyup6A.jpg" width="400"><br>
+
+پست ترامپ درباره سخنان رئیس‌جمهور چین: آمریکا دیگر در حال افول نیست
+ترجمه ماشین:  وقتی رئیس‌جمهور شی با ظرافت بسیار از ایالات متحده به‌عنوان کشوری که شاید در حال افول باشد یاد کرد، منظور او خسارت عظیمی بود که ما در چهار سال دوران جو بایدن خواب‌آلود و دولت بایدن متحمل شدیم؛ و از این نظر، او ۱۰۰ درصد درست می‌گفت. کشور ما با مرزهای باز، مالیات‌های بالا، تراجنسیتی‌سازی برای همه، حضور مردان در ورزش زنان، DEI، توافق‌های تجاری وحشتناک، جرم و جنایت گسترده و بسیاری چیزهای دیگر، به‌شدت آسیب دید!
+رئیس‌جمهور شی به خیزش شگفت‌انگیزی اشاره نمی‌کرد که ایالات متحده در ۱۶ ماه تماشایی دولت ترامپ به جهان نشان داده است؛ از جمله رکوردهای تاریخی در بازار سهام و حساب‌های بازنشستگی 401K، پیروزی نظامی و روابط شکوفا در ونزوئلا، نابودی نظامی ایران — که ادامه خواهد داشت! — قدرتمندترین ارتش روی زمین با فاصله‌ای بسیار زیاد، تبدیل دوباره آمریکا به یک ابرقدرت اقتصادی، با سرمایه‌گذاری بی‌سابقه ۱۸ تریلیون دلاری دیگران در ایالات متحده، بهترین بازار کار تاریخ آمریکا، با شمار افرادی که اکنون در ایالات متحده کار می‌کنند بیش از هر زمان دیگری، پایان دادن به DEI ویرانگر کشور، و آن‌قدر دستاوردهای دیگر که فهرست کردن فوری آن‌ها ناممکن است. در واقع، رئیس‌جمهور شی به‌خاطر موفقیت‌های عظیم بسیار در چنین مدت کوتاهی به من تبریک گفت.
+دو سال پیش، ما در واقع ملتی در حال افول بودیم. در این مورد، من کاملاً با رئیس‌جمهور شی موافقم! اما اکنون، ایالات متحده داغ‌ترین کشور در هر جای جهان است، و امیدوارم رابطه ما با چین از همیشه قوی‌تر و بهتر شود!
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75470)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-15 02:10:07
+
+<img src="https://cdn4.telesco.pe/file/SITPFakuq-8KNY-QWVN5rvrUcKv4UKPZEUInikdfOgjCZs1PPqfS9TqWfMZWGfclgtltXqp2QSlwQWm1dSJF001h6N49ZBzX6iAG5jSCL92wBJf1YDaRhAFzJx957SAfj-kULD9pSPt5MCcLCPUKWXO1Q5QSUo_0jbzmX4RUXbGw8GSUq8FRATkG4pcrkzKGXYyX3RKMU_Trc3yVw3XpIcn8q4EjX-MUWddYisPS5UWNltgN_WqGSzpQHeLxL_0bvdfxYtctwV-fbFzaSQJBWoHn7xBqzDRTDMJnz09pVrCmY80Y9K8CZcgI6Nstl82MboOOvUDE5vZLhT0hipiW8A.jpg" width="400"><br>
+
+همزمان با سفر «دونالد ترامپ» رییس‌جمهور آمریکا به چین، رهبران ۲۶کشور دیگر نیز روز پنجشنبه ۲۴اردیبهشت۱۴۰۵ در بیانیه‌ای مشترک خواهان بازگشت وضعیت عادی دریانوردی در تنگه هرمز شدند.
+این بیانیه که توسط کشورهایی مانند بریتانیا، فرانسه، بحرین، کانادا، آلمان، ژاپن، قطر و کره جنوبی امضا شده است بر «تعهد خود به استفاده از ظرفیت‌های جمعی دیپلماتیک، اقتصادی و نظامی برای حمایت از آزادی ناوبری در تنگه هرمز» تأکید کردند.
+در این بیانیه آمده است: «کشتیرانی باید آزاد باشد، مطابق با مفاد کنوانسیون سازمان ملل متحد درباره حقوق دریاهاو حقوق بین‌الملل.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75469)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/eyRMGx0H20hLaxzdYKMs4EyqF9I7efim8vZaYmGvuU4NEPYrePaQXvfY-WJ83Wa_YH2zR12Ar_9lGZi1GKD_b18o-k1pFND6H5FzLG5x3CeIQf2Vc0BohvsHQnbTYe8M7-yGVXHN9CY2Bo9llNY4kiAf7jcvFs5qQ5tqq_nuaIJzZwhaYLo04wrbk-7e6n8V7lpWumTdbXPKI-Iq_-mXdoJalsYS3TdfcyBFm82ILInPtV6IMor0e6Ddqk2eBUmFZ71sX7qY6gwj5SI3ZiE1ub0OOd0cWuEucLlfRgz74jPO2xX9e9aolKF9ubptwRWqdTHyvTg2JLOxymmTnysXcw.jpg" width="400"><br>
 
@@ -24,7 +60,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/mlSN1GLClTczQ129KCbfizdg4JN_N_94GEbBf7weSSABv8p4E0hKyUIrtVr79oFoFkZ56550OUkJZnUrmgdduM3ijLWHa0SUQLNfe3T7hC3YADNbPFzh-iUbXt0hS6c-aCvheVZ7YfVfvNb93Zbe_v4n1jJ0oPTGTrZe061v0qx6usPqZ40djKjWgLGNVLb3zkO62IJ_4K5VnZaEMjEudF-xrkXywg8rjxy4m2nA0likrwr7IXYhFEnejI4aS1iMqIR7EwZG8Divw0pLl2oEYSOjtjUpfL-9jXsxGUOPV5kREL31ZyPlfPlpF8A_03UxFri0beHUWJFY2cDTr2a-AA.jpg" width="400"><br>
 
@@ -42,7 +78,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/u0UD6cVDZaPYdikjXKwZdwD3szb4hZbBTOq_lbtEq1O1cj0g2fcfInVB29seF-xIA6zDPm0_7_i-gBVuaH9QAmzpcWcjpU4MZh7S1FzzxLzXnEHvMYy8pdvwIBKEHRZOqyuZaMSpS8Fmleg5b0h7BLNEk3jPi3W8NBBS6kEL_KOOctCgixH3LfLzW_Nvrzx0wOzj62hKC73rSOvDUi8Ua87tWGWo_tN3tlPadGCLSpC2ngX_vHPJhFVoq5LG80Vro9nraGf6FZFBn7R2UZcejFjavGE35879bgB4E2g6iFMXRu5Njx9uGZ8DljKvf2SyOqzG6xH_8ZkYKBJVYnrO1A.jpg" width="400"><br>
 
@@ -61,7 +97,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/PeGiS6ypJslkdkw9kHckbfzo1udqTI4V76unR5xoIp6pSgzEBjnygArS1j94MXUewyYVTkhLcUC9j6EH7GTjmmQrM2_FXUAXaIM7AozYkPyALZo28C64mBta1OibiB6lDnsegCeM5UyHRIvJbBGEO_0Ua8QcbYFBvIQN_Sdyx86VTFwh2MjvQME6QFomChIQW5WFhlAdFA2XVrCqTODKcUZrqNmeAsxKBESC7WTvptWkeiueaNUsZ7-VDfUXtVnvONY2orJg9YmP7wa7EnwQbPC2SfwMuRVJthZzSls-qIQcAOd4ezjQrHVmq8IOqO3IByKdqw-nrBZR80HPKphzpg.jpg" width="400"><br>
 
@@ -79,7 +115,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/lvvm6Rxm5H9l5bHHw1PXMiejlykhLfVjRpMpgEBXa63_iUzeE0v7uREPu-ITj1DhutDXycoJaDGfaO4ulvdARZ2U5w2Yz3rqn4Xxaqusu42EG9Ou87PZyGhkPhWww9hdH9ZEdvoc128WCjoFTJw4_RZ9lQNqHU9g-vEtd-v0tg3c1IJhW50qNeS-OkJDbWEjlFu2mNIYY4QvSnnqzPm9G393NSy50TsSajEUHSacprnQY5vByhQjkoaGznz3ySlJW46gRVcT7ZMDFjZzM-nRyimO7ltLiPCCq2UwIuoHOiT7RdqLi4X_yRhPByAWfRcyvfP904vGvX0UFksChR8snw.jpg" width="400"><br>
 
@@ -98,7 +134,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/WIVpDj0pJQh5asHVYCFPB-MRy9xE6v3aWhm-hooJLnLuiNPJK8LnVFrBh2kKZ28PAFi8JpJ7zW-QAcN0U8izsmcBt66qwlYH4IkLLt7zXVGuOuokPLpcTYjH3lxjmJhY_ogXHJDpOpekecbi67DqoR25pildUKUZZBEbAmHKedoCLIRTNUSeeOXS5m5yaSrEVAaq_Zjw3tc0PcPRjRegeMCWBK2mg8O-zUdWjn8VvP43o5zhXgIZnFoLnJ1qMHnS-DHpXsVgZfIiXEhdXjXwIt49ez4YpGESZap-pxRXlLIHFWU7CfUyZHYTkemowqWo1KpCFuvyvoMZRwCCFRlVMA.jpg" width="400"><br>
 
@@ -121,7 +157,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/ZezA5neX5DEbTTU2OMHHL4CqfdyumC7IgTZba4bIaLsLQNeqkEr1ekMIQyqymlWhkd4a6BZn2AWyPXJ7IwsfKtMqB-dOjsy470mI7ZDvtx6JhoWAdfDEtS7Q9dQmV66BSQXhpdTyx8a6gAkGHJo282uYZY5sD5cNiuYDJz2igbq9sowUtHD0mScQMnzQjLYxOu4d9qlSvWuZnDKyiShur-gtkLCTK3n9xKL8PtalBpb8Ukso1LYX7QOW1uV5J-L-tAgXZCtkaCXlp5y_nzg2omgDkgpepwCWTbFWvRSnOUljxuQ8hBmwm4ilkiVZd3Ffth0rV-SLjQKDURXbpAdFSw.jpg" width="400"><br>
 
@@ -138,7 +174,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/LPJLaoVlvjBHUek4UV1R62Z86wpMrpnrKq-sLi4wdos7Lx8nr3XEmNAsBL5jcmBI08RVcavorJGuRkcD2iBCY0-inHf966hurvQZsJxBxOHoZA5oX1weV7MGHt5MxcQMXwWPQhG1X9oRY_WqGmt-5wHrCsbPS_9GA6fhPhqsbGYjMfDdCsFyyx9QNa9bQ27zn2DBEnRIZ73HFJ8VHRIGHundCJuAP1BXVkpfgUUHLyZ8VTLruJCwNZ_7b9IYzw8aqIFo7DUn66nSr0I6Td9L4qhlQTlhhlcXXlb6OSkF-uMU_WPgBNw8_6U0shq0eBnxfTlvdz3wFo6OUu_ahM-gkw.jpg" width="400"><br>
 
@@ -155,7 +191,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/GA2lxw9pX0SpswOT1vSl98s6IOFFIWyuNmRtl4jF_yOlB9yIeeRC5xPy97t85PgakAcXKoH6yS8v0moVH1JB3o2b4u9wgdt5iadaUupMP-_94WpwOOPF85PepyEyFvrCiqztZ9Bz8I4GzAgawc10g2PtDHit1I-cju_wHCXgsHzzlMO_C6YC3Hp5KCtBIRy4xdmxQ9uIqQ3PKmJM9IMKuQVNoldNm19RdMkjOw91ZjY68yRLq6zwYvjn_kOxbJ4woHFmllnzElfFi0pQPr5uWRbFcsrtr-J515iLe-tE4_K9x9QXhoL3IbLjz7esr2fpkRPyOuB94NScoKNQ9HPkdg.jpg" width="400"><br>
 
@@ -175,7 +211,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/rqUMHJYGul-qXHDhTOCXziG98foTe-VvJJXqavvzJBMN1GKwVBRDvnhzh34mBf448mUoBmQuBruq7fQ9rr2q54hz9cy5YToWjLGA4MD5lSizzZvoXRmE1TmyNLQ1L_sAPEK4OZlu0kkmfDaDu-3HSALQeKGjSmDgo9wKNKkSFa9ixf_KL-dzgYMlVHowoybrtnkMZA7gP4AdGH_6utm3v-k60N6Mo3uaSwjFXHLqX2Js82OASo_SNVkUeLsHyWVU2aVeUcMtbRLrAGgPaR0wrDtms_0IbTfSAe7-Gs6Wk7SZpumfnpLImUNidUtA3tglvU7EdTKdtvdiBqPgEUsMzg.jpg" width="400"><br>
 
@@ -194,7 +230,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn1.telesco.pe/file/Ov9aSxOGdKzEw3j3asTDzJe5KQaBko1pXgwYt0kMbZN1dBuK6b_HxsHV-tA5tocO8cZvrnU2CGAGiY7pzpLHXxFWpsmQez28xgTow8gSJNx6nDmywJovA4lmAurw3Xigy9Vn_4IVDEa0rmLbKDtcM1ZiVFGBPuBsXfV3lMAISTUPNb2hAIoffuv-MxsiqsK-INBvUWt2SEyRDhDeCxonTtXDJUdn52nLeoBQKtMiIGhpV3RPOVjc35N4IxO1tG8SUG0hzeCCvkpW_1Nrmb6Gkuo7vMTI2gm3dZoy5wmjwakxK2I3Wht0pFwPNuD9qxwOZ3NeHoGcwtQ04eDsmROneQ.jpg" width="400"><br>
 
@@ -220,7 +256,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/b4mX3yDmuQRbPcbNoT2_ldllZojIncpbdGulrbA7bo3PkF4GyceNhhp8JUA7fW2rztdwys4iVeLrmD0AW_LvLzcZ8RuqyLUmI_cOJp7kSPYDQZmdVrlwW3QISFm0a5MZSLulCeASicO8IGk1Hwsw1YtGXGsvlt5Qf_P5AWGz3G7kfBlBdFew4Ph0JO62FinlrPtVSOK7QSPIc0SncYU-GMBMEo8ws1D1V2K7GA4o8Mb5hPecJWIIyUHo8_3q5ci9ajpCNzG6x2rIpHgc7QeiIYnlDi6K8aakoarfdAU9_l-YQKskpfX_IhqAdoKDzoUDK-_6tskjZiOli1a1dXJbPA.jpg" width="400"><br>
 
@@ -242,7 +278,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 
 
@@ -262,7 +298,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn1.telesco.pe/file/i0tiZIXyO1t1zpWaWpLjbqED3ExUUrYLnRBlOR-ynriTOkQPqIHGORmHE6uNdNl-w6cdlq5HoFS9LFdEVGb_u2SmO8uyJa7LMlCyIyvTJtQYGu4q58jgS44PZKeotlK8At_6jzqjQGoh1PEmR78PrIrYK76xPg5Q4VP_ZFcSHyeoowG1gfGCI3gOaaZxzKzdH6kuyj__0EdpXRJy56U9LpHWh3EOf45ve2ssaqfOpmnwSF_InofRXZcF4eiA1-7SW2k89ffSOT3chvO2DvKuYdgas9PAiItuMKdjPxm_K4mhJnocX8kPwst3aHaNxfLnaKQ2H1z636JDPObEIMfwhA.jpg" width="400"><br>
 
@@ -282,7 +318,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn4.telesco.pe/file/ERt79bIRJZ3bcpXxPQScAAr19YAmWzXTWFcdYOfifZ73-PJSNXUh2FiQmbcN3CVDNhRUEwQEQYYtoxX0U9Z_zCJaImf57DE7TtOFMAjxqPE1R5lOV2gaYqO1Hs8bbFJgIqITtr2jacx1vSjpJcvnv9EysrJ2gm_Fp7X7XvBKfNB60IkeMqx-9fKIgYNLu_wSeRVJ2dHRZfaTjJhF401Enw7kvAbX0nm7Vq3Rs2sgN0QztVVl_YWdo3PuWKGZpoDDEBWenES48les32iOGnPTJrkgFmTodBD8ei920KcPAWn2PFEawd40kTtEElQLGqrhXZHbXjrkp2KPTB5nyM1GCw.jpg" width="400"><br>
 
@@ -301,7 +337,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn1.telesco.pe/file/DSknCtWcL1MJzLuK78MN4eJ6sAkhpSrNCaxM60bqMfveYsc4ROtjQkZUS2xhuC-BFY0CI4U25ft7PS_N5Hle41NuMioMKlBVR9PY6RdAA6ZyWZZh6f042mrj0HXMEIHd9_c0fEjjmLGojra23mJYdVRmE0_lnFwlzctQ1CkQLXU5MZ7c5QHMF74-x7NXrEjFDQPxVHUcP4zxrXyUR96sZl6ZlXqRQKflcyzmKJK0iDtD75ohTvC4kVQV-oYp_5wO7VsJXyKEvTynf0oOttdi2NG_8O7lqU94aGX1v8xmqQmTyr1FKDt4dBEaqs8gMSc67H0_0Ono2U66vzeD6_AD5A.jpg" width="400"><br>
 
@@ -319,7 +355,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 01:08:59
+###### 🔵 Updated at: 2026-05-15 02:10:07
 
 <img src="https://cdn1.telesco.pe/file/MpbIpxdt87qWeY2hCeKGskM4Ny0qKQN9vpMCh7HYrm8ZdTJtHcWShr_o-xxJ36lk5i3e33c35Ackytz2jYxs__bPifd_t7j4VL7IVNvJsMI4RBEuV0aPP5TD_RpgqFXRi_C9EechKHCmyvf-Kwsb9_jDDopmrUzr3hoVLfPC27T_Nsv0jjKXlrG7YTpybrFW01bipnek_jTE2BIX32NIY4BPZb7CVTOxZn9N3iN6mNa3AAIb83Th5EhdQCXnXFwFQBI2GJcjY1mQMQhcpLbsBM-M5JT6b4tvAqEU-nubSUkrpV6xDFIyRGcl-vuL378iPGYDCc7CtIhtMIqX2-JGVg.jpg" width="400"><br>
 
@@ -336,42 +372,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75451)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 01:08:59
-
-<img src="https://cdn4.telesco.pe/file/gE1YPdn9r9H-3sfNldi3R4j1Rxdl1VLCOWpg3MKK4NikYwhlN5_BstADR_daP7awVzwaEEnQvAZynf3fEy5_DWjjsy9uEOor_XKBD11zrS_ySUulrPKMe0q52hqBUCAKRPlQcWQhjq3TnhQwUyZhJAuycO4VSnbo3EIAbz3k4aOVx6hVCSjH12nZLcPEh6lIMiUpkRQxrnGHLty_CaQ5eSTvgK8kP8hDBGtoM5c-b11cTY1P6UaVVdFR7b9TM2AEffTanNGCytGbz2okiPs1ozmxpg6YFswv1KPLzZIBknJUC0zYnkrZAAP8lLdnHuNumt5lQFBmddzFyp3aBz_DWQ.jpg" width="400"><br>
-
-ستاد فرماندهی مرکزی ایالات متحده روز چهارشنبه ۲۳ اردیبهشت با تاکید بر ادامه محاصره دریایی بنادر ایران اعلام کرد که از زمان آغاز این عملیات، به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده شده است.
-سنتکام در پیامی در شبکه ایکس نوشت که نیروهای آمریکایی طی چهار هفته گذشته ۶۷ کشتی تجاری را وادار به تغییر مسیر کرده و چهار شناور را نیز برای اجرای محاصره «از کار انداخته‌اند».
-این فرماندهی همچنین اعلام کرد اوایل هفته جاری، دو کشتی تجاری دیگر پس از تماس رادیویی و شلیک تیر هشدار از سوی نیروهای آمریکایی مسیر خود را تغییر داده و از ادامه حرکت به سمت بنادر ایران منصرف شدند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75449)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 01:08:59
-
-
-
-پاسخ‌های ملی‌پوشان فوتبال در صداوسیما درباره میزان تحصیلات دانشگاهی‌شان جنجالی شد.
-در این گفتگو، یکی از ملی‌پوشان در پاسخ به سوال مجری که پرسیده بود «در کدام دانشگاه درس می‌خوانی؟» گفت: «نمی‌دانم، الان حضور ذهن ندارم».
-در دوره قبلی جام جهانی نیز انتشار ویدیویی از دروازه‌بان تیم ملی فوتبال ایران که گفته بود «من دکترا دارم»، بحث‌برانگیز شده بود؛ دکترایی که بعدها مشخص شد به‌صورت غیرحضوری در رشته تربیت بدنی دانشگاه پیام نور اخذ شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75448)
 
 ---
 
