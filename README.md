@@ -3,7 +3,65 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
+
+<img src="https://cdn4.telesco.pe/file/eyRMGx0H20hLaxzdYKMs4EyqF9I7efim8vZaYmGvuU4NEPYrePaQXvfY-WJ83Wa_YH2zR12Ar_9lGZi1GKD_b18o-k1pFND6H5FzLG5x3CeIQf2Vc0BohvsHQnbTYe8M7-yGVXHN9CY2Bo9llNY4kiAf7jcvFs5qQ5tqq_nuaIJzZwhaYLo04wrbk-7e6n8V7lpWumTdbXPKI-Iq_-mXdoJalsYS3TdfcyBFm82ILInPtV6IMor0e6Ddqk2eBUmFZ71sX7qY6gwj5SI3ZiE1ub0OOd0cWuEucLlfRgz74jPO2xX9e9aolKF9ubptwRWqdTHyvTg2JLOxymmTnysXcw.jpg" width="400"><br>
+
+برد کوپر، فرمانده ستاد فرماندهی مرکزی ایالات متحده (سنتکام)، اعلام کرد که صنایع موشکی، پهپادی و دریایی ایران «۹۰ درصد تضعیف شده‌اند.»
+او در یک جلسه استماع در سنای آمریکا گفت: «تهدید ایران به‌طور قابل‌توجهی تضعیف شده و این کشور دیگر مانند گذشته، در هیچ حوزه‌ای، قادر به تهدید شرکای منطقه‌ای یا ایالات متحده نیست. آنها به‌شدت تضعیف شده‌اند.»
+کوپر اشاره کرد که نیروهای نیابتی مسلح ایران در ۳۰ ماه پیش از جنگ اخیر، بیش از ۳۵۰ حمله علیه نیروها و دیپلمات‌های آمریکایی انجام داده بودند؛ به‌طور میانگین هر سه روز یک حمله، که در نتیجه آن چهار سرباز آمریکایی کشته شدند.
+برد کوپر با دفاع از جنگ اخیر  تأکید کرد: «امروز حماس، حزب‌الله و حوثی‌ها همگی از تأمین تسلیحات و حمایت ایران قطع شده‌اند. این نتیجه از پیش تضمین‌شده نبود.»
+او همچنین گفت نیروهای آمریکایی دیگر برای سرنگون کردن پهپادهای ایرانی از مهمات پیشرفته و گران‌قیمت استفاده نمی‌کنند.
+ذخایر سامانه‌های دفاعی پرهزینه برای مقابله با پهپادهای ایرانی در طول جنگ خبرساز شده بود، اما فرمانده سنتکام اعلام کرد ارتش آمریکا اکنون از مهمات ارزان‌تر استفاده می‌کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75468)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 20:24:19
+
+<img src="https://cdn4.telesco.pe/file/mlSN1GLClTczQ129KCbfizdg4JN_N_94GEbBf7weSSABv8p4E0hKyUIrtVr79oFoFkZ56550OUkJZnUrmgdduM3ijLWHa0SUQLNfe3T7hC3YADNbPFzh-iUbXt0hS6c-aCvheVZ7YfVfvNb93Zbe_v4n1jJ0oPTGTrZe061v0qx6usPqZ40djKjWgLGNVLb3zkO62IJ_4K5VnZaEMjEudF-xrkXywg8rjxy4m2nA0likrwr7IXYhFEnejI4aS1iMqIR7EwZG8Divw0pLl2oEYSOjtjUpfL-9jXsxGUOPV5kREL31ZyPlfPlpF8A_03UxFri0beHUWJFY2cDTr2a-AA.jpg" width="400"><br>
+
+حمید رسایی، نماینده تهران در مجلس، نوشت جریانی «شناخته‌شده» در دولت چهاردهم که راه‌حل را «آزاد کردن و گران کردن» می‌داند، قصد دارد سهمیه بنزین هزار و ۵۰۰ تومانی و سه هزار تومانی را کاهش دهد و قیمت بنزین پنج هزار تومانی را به ۱۵ تا ۲۰ هزار تومان افزایش دهد.
+او افزود همان جریان در دولت چهاردهم پیش‌تر با حذف ارز ترجیحی ۲۸ هزار و ۵۰۰ تومانی و گران کردن ارز، به گفته او، «بالاترین تورم پس از انقلاب ۵۷» را به مردم تحمیل کرده بود.
+رسایی نوشت محمدباقر قالیباف با «پلمپ کردن بدون توجیه و دلیل مجلس»، راه نظارت نمایندگان بر تصمیمات دولت را بسته است. او افزود انجام تکلیف نمایندگی سخت شده، اما تلاش می‌کند مجلس را از این «مرگ تعمدی» بیرون بیاورد و جلوی این تصمیمات «عجیب» را در موقعیت «سخت و جنگی» فعلی بگیرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75467)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 20:24:19
+
+<img src="https://cdn4.telesco.pe/file/u0UD6cVDZaPYdikjXKwZdwD3szb4hZbBTOq_lbtEq1O1cj0g2fcfInVB29seF-xIA6zDPm0_7_i-gBVuaH9QAmzpcWcjpU4MZh7S1FzzxLzXnEHvMYy8pdvwIBKEHRZOqyuZaMSpS8Fmleg5b0h7BLNEk3jPi3W8NBBS6kEL_KOOctCgixH3LfLzW_Nvrzx0wOzj62hKC73rSOvDUi8Ua87tWGWo_tN3tlPadGCLSpC2ngX_vHPJhFVoq5LG80Vro9nraGf6FZFBn7R2UZcejFjavGE35879bgB4E2g6iFMXRu5Njx9uGZ8DljKvf2SyOqzG6xH_8ZkYKBJVYnrO1A.jpg" width="400"><br>
+
+مصطفی پوردهقان، دبیر دوم کمیسیون صنایع و معادن مجلس گفته است که مصوبه شورای عالی امنیت ملی در مورد اینترنت پرو در اجرا به «قلکی برای همراه اول، ایرانسل و رایتل» تبدیل شده است.
+او در مورد انتخاب محمدرضا عارف، به عنوان رئیس ستاد ویژه ساماندهی فضای مجازی گفت که «مجلس در این مورد چیزی نمی‌داند» و این حکم مسعود پزشکیان، رئیس‌جمهور را «تزئینی» خوانده است.
+به گفته این نماینده مجلس این قبیل اقدامات بیشتر جنبه «روانی » دارد و قرار نیست که «اتفاق خاصی» در این مورد بیفتد.
+آقای پوردهقان همچنین گفته است که بدتر از قطعی اینترنت، تعطیلی مجلس است و اکنون مجلس با بسیاری از وزرای دولت به لحاظ نظارتی هیچ ارتباط خاصی درمورد عملکردشان ندارد که یکی از همین موارد موضوع اینترنت است و هنوز یک جلسه ویژه نداریم که فردی بیاید و شرایط را توضیح دهد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75466)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/PeGiS6ypJslkdkw9kHckbfzo1udqTI4V76unR5xoIp6pSgzEBjnygArS1j94MXUewyYVTkhLcUC9j6EH7GTjmmQrM2_FXUAXaIM7AozYkPyALZo28C64mBta1OibiB6lDnsegCeM5UyHRIvJbBGEO_0Ua8QcbYFBvIQN_Sdyx86VTFwh2MjvQME6QFomChIQW5WFhlAdFA2XVrCqTODKcUZrqNmeAsxKBESC7WTvptWkeiueaNUsZ7-VDfUXtVnvONY2orJg9YmP7wa7EnwQbPC2SfwMuRVJthZzSls-qIQcAOd4ezjQrHVmq8IOqO3IByKdqw-nrBZR80HPKphzpg.jpg" width="400"><br>
 
@@ -21,7 +79,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/lvvm6Rxm5H9l5bHHw1PXMiejlykhLfVjRpMpgEBXa63_iUzeE0v7uREPu-ITj1DhutDXycoJaDGfaO4ulvdARZ2U5w2Yz3rqn4Xxaqusu42EG9Ou87PZyGhkPhWww9hdH9ZEdvoc128WCjoFTJw4_RZ9lQNqHU9g-vEtd-v0tg3c1IJhW50qNeS-OkJDbWEjlFu2mNIYY4QvSnnqzPm9G393NSy50TsSajEUHSacprnQY5vByhQjkoaGznz3ySlJW46gRVcT7ZMDFjZzM-nRyimO7ltLiPCCq2UwIuoHOiT7RdqLi4X_yRhPByAWfRcyvfP904vGvX0UFksChR8snw.jpg" width="400"><br>
 
@@ -40,7 +98,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/WIVpDj0pJQh5asHVYCFPB-MRy9xE6v3aWhm-hooJLnLuiNPJK8LnVFrBh2kKZ28PAFi8JpJ7zW-QAcN0U8izsmcBt66qwlYH4IkLLt7zXVGuOuokPLpcTYjH3lxjmJhY_ogXHJDpOpekecbi67DqoR25pildUKUZZBEbAmHKedoCLIRTNUSeeOXS5m5yaSrEVAaq_Zjw3tc0PcPRjRegeMCWBK2mg8O-zUdWjn8VvP43o5zhXgIZnFoLnJ1qMHnS-DHpXsVgZfIiXEhdXjXwIt49ez4YpGESZap-pxRXlLIHFWU7CfUyZHYTkemowqWo1KpCFuvyvoMZRwCCFRlVMA.jpg" width="400"><br>
 
@@ -63,7 +121,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/ZezA5neX5DEbTTU2OMHHL4CqfdyumC7IgTZba4bIaLsLQNeqkEr1ekMIQyqymlWhkd4a6BZn2AWyPXJ7IwsfKtMqB-dOjsy470mI7ZDvtx6JhoWAdfDEtS7Q9dQmV66BSQXhpdTyx8a6gAkGHJo282uYZY5sD5cNiuYDJz2igbq9sowUtHD0mScQMnzQjLYxOu4d9qlSvWuZnDKyiShur-gtkLCTK3n9xKL8PtalBpb8Ukso1LYX7QOW1uV5J-L-tAgXZCtkaCXlp5y_nzg2omgDkgpepwCWTbFWvRSnOUljxuQ8hBmwm4ilkiVZd3Ffth0rV-SLjQKDURXbpAdFSw.jpg" width="400"><br>
 
@@ -80,7 +138,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/LPJLaoVlvjBHUek4UV1R62Z86wpMrpnrKq-sLi4wdos7Lx8nr3XEmNAsBL5jcmBI08RVcavorJGuRkcD2iBCY0-inHf966hurvQZsJxBxOHoZA5oX1weV7MGHt5MxcQMXwWPQhG1X9oRY_WqGmt-5wHrCsbPS_9GA6fhPhqsbGYjMfDdCsFyyx9QNa9bQ27zn2DBEnRIZ73HFJ8VHRIGHundCJuAP1BXVkpfgUUHLyZ8VTLruJCwNZ_7b9IYzw8aqIFo7DUn66nSr0I6Td9L4qhlQTlhhlcXXlb6OSkF-uMU_WPgBNw8_6U0shq0eBnxfTlvdz3wFo6OUu_ahM-gkw.jpg" width="400"><br>
 
@@ -97,7 +155,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/GA2lxw9pX0SpswOT1vSl98s6IOFFIWyuNmRtl4jF_yOlB9yIeeRC5xPy97t85PgakAcXKoH6yS8v0moVH1JB3o2b4u9wgdt5iadaUupMP-_94WpwOOPF85PepyEyFvrCiqztZ9Bz8I4GzAgawc10g2PtDHit1I-cju_wHCXgsHzzlMO_C6YC3Hp5KCtBIRy4xdmxQ9uIqQ3PKmJM9IMKuQVNoldNm19RdMkjOw91ZjY68yRLq6zwYvjn_kOxbJ4woHFmllnzElfFi0pQPr5uWRbFcsrtr-J515iLe-tE4_K9x9QXhoL3IbLjz7esr2fpkRPyOuB94NScoKNQ9HPkdg.jpg" width="400"><br>
 
@@ -117,7 +175,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/rqUMHJYGul-qXHDhTOCXziG98foTe-VvJJXqavvzJBMN1GKwVBRDvnhzh34mBf448mUoBmQuBruq7fQ9rr2q54hz9cy5YToWjLGA4MD5lSizzZvoXRmE1TmyNLQ1L_sAPEK4OZlu0kkmfDaDu-3HSALQeKGjSmDgo9wKNKkSFa9ixf_KL-dzgYMlVHowoybrtnkMZA7gP4AdGH_6utm3v-k60N6Mo3uaSwjFXHLqX2Js82OASo_SNVkUeLsHyWVU2aVeUcMtbRLrAGgPaR0wrDtms_0IbTfSAe7-Gs6Wk7SZpumfnpLImUNidUtA3tglvU7EdTKdtvdiBqPgEUsMzg.jpg" width="400"><br>
 
@@ -136,7 +194,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn1.telesco.pe/file/Ov9aSxOGdKzEw3j3asTDzJe5KQaBko1pXgwYt0kMbZN1dBuK6b_HxsHV-tA5tocO8cZvrnU2CGAGiY7pzpLHXxFWpsmQez28xgTow8gSJNx6nDmywJovA4lmAurw3Xigy9Vn_4IVDEa0rmLbKDtcM1ZiVFGBPuBsXfV3lMAISTUPNb2hAIoffuv-MxsiqsK-INBvUWt2SEyRDhDeCxonTtXDJUdn52nLeoBQKtMiIGhpV3RPOVjc35N4IxO1tG8SUG0hzeCCvkpW_1Nrmb6Gkuo7vMTI2gm3dZoy5wmjwakxK2I3Wht0pFwPNuD9qxwOZ3NeHoGcwtQ04eDsmROneQ.jpg" width="400"><br>
 
@@ -162,7 +220,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/b4mX3yDmuQRbPcbNoT2_ldllZojIncpbdGulrbA7bo3PkF4GyceNhhp8JUA7fW2rztdwys4iVeLrmD0AW_LvLzcZ8RuqyLUmI_cOJp7kSPYDQZmdVrlwW3QISFm0a5MZSLulCeASicO8IGk1Hwsw1YtGXGsvlt5Qf_P5AWGz3G7kfBlBdFew4Ph0JO62FinlrPtVSOK7QSPIc0SncYU-GMBMEo8ws1D1V2K7GA4o8Mb5hPecJWIIyUHo8_3q5ci9ajpCNzG6x2rIpHgc7QeiIYnlDi6K8aakoarfdAU9_l-YQKskpfX_IhqAdoKDzoUDK-_6tskjZiOli1a1dXJbPA.jpg" width="400"><br>
 
@@ -184,12 +242,14 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 
 
 خبرگزاری مهر پرچم حزب‌الله را در ویدیوی مربوط به بدرقه فوتبالیست‌ها سانسور کرد.
 FattahiFarzad
+دیده شدن پرچم حزب‌الله تو اینستاگرام مساوی با پاک شدن ویدئوست و ممکنه حتی اکانتشون هم بن بشه.
+Sam1Kia
 اعضای تیم فوتبال چهارشنبه‌شب ۲۳ اردیبهشت‌ماه در میدان انقلاب تهران برای حضور در جام جهانی ۲۰۲۶ بدرقه شدند؛ رقابت‌هایی که خرداد و تیر ۱۴۰۵ به میزبانی مشترک آمریکا، مکزیک و کانادا برگزار خواهد شد.
 @
 VahidOOnLine
@@ -202,7 +262,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn1.telesco.pe/file/BWFpApOxzn-PKPY99L6x5R0nGFc8oF-yC2RQ0fz4zs0bsmF45CCGAxkgxYBc_yBZR2ELt6YPWsTlRNZUhTHSi-DPSmea-420GMwMlrwAsGkhVKKA0F6XWKw9912NaeqKyO52yTjNTPaOMTBj2lxbXwvDHGDBKB4CwWbbiy9zXiGF4BpIA8eF_Rc880BgMlw2HiAceoOSoQTo_esPruKb9RdlCwfWq9pzjqdT79yr6JUdTUlc9gjQGABxzYS8GVphWupZzU74XxN7da9OKHPquJlFt0e1a90BLDZ58uLAWyN0x9Q2qED_2szsLbPNQPsg3Bx_XV93petpXbsct-Xz1w.jpg" width="400"><br>
 
@@ -222,7 +282,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn4.telesco.pe/file/kOGY9A28aAMN5wcl6JONtrcpq5Bll4BKMy_5n1211-N6CTxCdK8K7AO8QbavZGVes_QwYm1rTAEdLfGe9GfiCocXxXoKK3JfB7Db1-Q89tnuv_QgwLrJwvBAhXhvNk9T74iIHjlN3DegX3xMowEwj7PtiuGG1O5umFhJCLkJjeDRjh0-HEJCyN1wg3EF41Up2cZ8i3Z0cKO0zE_CPcYYhME9ZDy75zrScIpGITOhbRwZxcByhBk9z-XgXjpm8xux1N6oyZU4CjZcRggbfukXsZ9ZPK3rNCfn3zJ4pSOxywzehOsNT-EJqK_s1OMOqntGsEn0ss_FpjvMkH_87yoCXQ.jpg" width="400"><br>
 
@@ -241,7 +301,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn1.telesco.pe/file/sQ1WyOwT63GWDznGTxj55_GXDRk61OvTsoOtFtmrx0pi4NhHKRasD6Ahc_ioWul_hvkUGjaHjxHFxAIP9jHE3Ad94OB307AyvnvQtXLyKhnTH8mJEjdZVVZdQOnUPJ626mao8dzlMcxA8kdtAEc5QcQBKXm72QcBGmd1tzEmDDfy9hCWAXPvVQr87R2saQlypxw-FeG8u6TiFeQyJpQxMOzdIzkRo3L0A1EfMiCdN3qeWvke0r_OslqDId8pK1a8_El-1B3kRtshwM81iGAY2kEFYfRPW4AYfsdEWOi_2RSuUyGNuv50NNcj4uBEyeEUrfzadWLSYjnoafUCDMNC_g.jpg" width="400"><br>
 
@@ -259,7 +319,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 <img src="https://cdn1.telesco.pe/file/SYXGcnpMNP4rUdDGfNHNfj-RC5UdBvGVOaeQZHEv_yvyXqLPh0YkleH3ib9Gao0FTd-2ZcxG9TygoWHWQ_KFzr1jjUonaSZG2yP_UKXApZV7ya7-rDGiNWSOQtDeM7NjSkaQiM8tvlM7q2Nm9pQ7vFzVEv9kGc6dLTcb_mtoTUcE6yoYw1xGwrajOuGGNLUekHhKLM6t9G4Bfhkj4ow64bw5tYUjyLnXB3BkEDWqP_MRtIZHGCNKk6nR1c2DTlD_98cnSwAeoqN4VIvehlIFSiBrbQC7L0PKz3TyYZUljynqj2cL0Sa_v8FB8fBLHBETLOwrB2xst_aiyABXxKnRUw.jpg" width="400"><br>
 
@@ -281,9 +341,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
-<img src="https://cdn4.telesco.pe/file/O14IFO4Leg8r14i-eJQcq6nBidwI05y_mv0HYxPhz1Hob3svJpkwytROq9IRVuo2h1LLuSiM-fSnBnulBU-6A2En5gYgg85rYR2oQtcsGtdThWUrISzoggOQW7wrFWWDbfRu5Uo_QUVXUYNEHCyKN_OjMRCJAXXKCfjN9TbzIXbZFC2d-GVB--L9G805okiFEA8OwOGidijWnRwdKKrXHBVJEa1rSa5wkqsrsDCVOJKLsk35G6xZ5lvG3XB-IIzXdv5vEeqQ1TA4Dqgwyvd5el0pJotGPU6ns4W-2O1mCJD42p-ALEw4muh00AFqWOLmuTHvmUanTjlmWgn-bLeATA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/gE1YPdn9r9H-3sfNldi3R4j1Rxdl1VLCOWpg3MKK4NikYwhlN5_BstADR_daP7awVzwaEEnQvAZynf3fEy5_DWjjsy9uEOor_XKBD11zrS_ySUulrPKMe0q52hqBUCAKRPlQcWQhjq3TnhQwUyZhJAuycO4VSnbo3EIAbz3k4aOVx6hVCSjH12nZLcPEh6lIMiUpkRQxrnGHLty_CaQ5eSTvgK8kP8hDBGtoM5c-b11cTY1P6UaVVdFR7b9TM2AEffTanNGCytGbz2okiPs1ozmxpg6YFswv1KPLzZIBknJUC0zYnkrZAAP8lLdnHuNumt5lQFBmddzFyp3aBz_DWQ.jpg" width="400"><br>
 
 ستاد فرماندهی مرکزی ایالات متحده روز چهارشنبه ۲۳ اردیبهشت با تاکید بر ادامه محاصره دریایی بنادر ایران اعلام کرد که از زمان آغاز این عملیات، به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده شده است.
 سنتکام در پیامی در شبکه ایکس نوشت که نیروهای آمریکایی طی چهار هفته گذشته ۶۷ کشتی تجاری را وادار به تغییر مسیر کرده و چهار شناور را نیز برای اجرای محاصره «از کار انداخته‌اند».
@@ -299,7 +359,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-14 18:16:25
+###### 🔵 Updated at: 2026-05-14 20:24:19
 
 
 
@@ -312,60 +372,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75448)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 18:16:25
-
-<img src="https://cdn4.telesco.pe/file/EwQCy8C9bKY1Igop_bZbcZVvd6s5ufwoSSu5wv6IQ4EYUcrwasoO2rtetbROLOSkqg9UM8fSFDU--auXBZf_kAErS-E4-fP1C2q7JR_0q5lDIfLPtY1QEPLRfj4DFtyd9MerS5yGrP2z_wzSkMgOeP8ExtK-0KLqXZjiBcefVAA_zSZd6R3PzKUIeqPl7nNhsEaCzV7WmqMW9WuMMvTXCwob9soDRXFvd_1MyZYGcAJevT3Xt6nUwfXW2PhCLGlFMG5bCYQ8O9Vxus-47tKon3j1XtQg0kSoJjMINnpq_jViS577iVG7VPS8mnLsIiT-YBvc5wDBfAS3LQxKJE2Q5A.jpg" width="400"><br>
-
-رویترز به نقل از دو مقام غربی و دو مقام ایرانی گزارش داد عربستان سعودی در جریان جنگ خاورمیانه، در پاسخ به حملاتی که در خاک این کشور انجام شده بود، چندین حمله اعلام‌نشده در ایران انجام داده است.
-به گفته دو مقام غربی، این حملات توسط نیروی هوایی عربستان سعودی و در اواخر ماه مارس انجام شده‌اند. یکی از این مقامات گفت این حملات «اقداماتی تلافی‌جویانه در پاسخ به حملاتی بود که عربستان سعودی هدف آن قرار گرفته بود»
-رویترز با اشاره به گزارش‌های پیشین درباره حملات امارات متحده عربی به ایران نوشت اقدامات عربستان سعودی و امارات متحده نشان می‌دهد کشورهای عربی خلیج فارس که هدف حملات جمهوری اسلامی قرار گرفته‌اند، به‌تدریج وارد فاز پاسخ‌گویی مستقیم شده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75447)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 18:16:25
-
-<img src="https://cdn4.telesco.pe/file/lXij14moM9_35QHQU-Mzo3frkDkx-4vK8cykAl3nvuoUJk7oOR7GfGgoXLc2qUOI1bftyVbsihSPrkyh72c3kyNJn43Roce_Wkt_dIFzKbtkKgA_FKlTSwcMDxJDstFPGIojQ16E7-_4g0a27-THISq4n2ANYuDUVkpelBpCWMJhMOFGdZ2r_OWHJqF9JAx8olT3EZ1bGHl8632WSYUzwshjp7Euk5LtrWAecUrt9RFmLJUs20CFU3wEtUrzSJRFNWuB3YqB2MfxdDdk5xG0qYsbV1lySKhGJc30PYX9d2bWm8jKAZ79RjarECc_Xf8NXaH9tBS8t4Jpm-rDqtMqaQ.jpg" width="400"><br>
-
-یک کمیسیون مستقل اسرائیلی جزئیات تکان‌دهنده‌ای از خشونت جنسی «سیستماتیک و گسترده» توسط حماس و سایر گروه‌های مسلح فلسطینی در جریان حملات ۷ اکتبر ۲۰۲۳ و علیه گروگان‌ها منتشر کرده است.
-گزارش ۳۰۰ صفحه‌ای این کمیسیون نتیجه‌گیری می‌کند که تجاوز و شکنجه جنسی «با هدف به حداکثر رساندن درد و رنج» انجام شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75446)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-14 18:16:25
-
-<img src="https://cdn1.telesco.pe/file/UD1zwCJlJ2k5SLepZnZqMSNRMoF3wqcl9VmQWNDR7Ldo1r07PeB5Syors_YjRaBqpw2-VHZxTAoCfD_mFfZA_yhY3tdfC85KBGvb0Ik0uYSziajFsoO6oPu0X8qfpRvg80RKFgGeu7KDF4Gj2EO6x46HnKzKvTnkSJ9QnnX_iTaORSlwKfocsZQVSRzaqm4gYWuzUbEiVZNr5iYLHD_BANw4E1lK6rN0SZtwIXmF-ExqulupaUM7g_ldzprFusmvyW_vgg5H8VIEWUZVodCPV3Ip0g0JU4XBbs9yaDzgd-cKZ6HsIlbJm5AD72ZV1WAGUrYXhTSOP2H0VFsxX9pE2g.jpg" width="400"><br>
-
-مسعود پزشکیان، رئیس‌جمهور ایران، محمدرضا عارف، معاون اول خود، را به ریاست «ستاد ویژه ساماندهی و راهبری فضای مجازی کشور» منصوب کرد.
-در حکم آقای پزشکیان بر «حکمرانی یکپارچه» در فضای مجازی، پایان دادن به «چندصدایی» و جلوگیری از «موازی‌کاری» میان نهادهای مسئول تأکید شده است.
-این انتصاب در حالی انجام می‌شود که امروز هفتاد و پنجمین روز اختلال و محدودیت گسترده اینترنت در ایران است.
-حکومت ایران از ۹ اسفند (۲۸ فوریه) و همزمان با حملات اسرائیل و آمریکا، دسترسی به اینترنت بین‌الملل را قطع کرد و تماس‌ تلفنی با خارج از ایران هم با اختلال جدی رو‌به‌رو است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75445)
 
 ---
 
