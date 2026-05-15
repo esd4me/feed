@@ -3,7 +3,103 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-15 16:28:06
+###### 🔵 Updated at: 2026-05-15 18:48:14
+
+<img src="https://cdn4.telesco.pe/file/VmSQ_HC9y4TQD2ukSQIiTF80MyWHtysHNDLIWfTM_qnJqehjKukIiJBpZDExIPA8yXgCiV8FOe75bewQemmVFn7qJnHH21TZ9UepUTrrSfnvxOfNsHHVM3gB8sKPufvECKmqqWwR2SXQu0tA-UJEg1ZQiVZwpTqFGOUNruT6hycT1t4stZFbdxAWEQHYnlj0L5OYS65ukYQ54mdhhCI59M_uRo0LteSoW8v56dCJHZlYgY3cIGfsmtsdEPkJYhbxdrBiNLmSUCXqTiDBm5lu6FGA_ueFkdctN3yBQLW7vfpIU7SZw6yrhJtg0jGrZkF-J8H72J8OztGr2lu_uwlorQ.jpg" width="400"><br>
+
+صدراعظم آلمان می‌گوید در جریان گفت‌و‌گوی تلفنی با دونالد ترامپ، رئیس‌جمهور آمریکا، هر دو بر سر ضرورت باز کردن تنگهٔ هرمز توسط ایران و ممانعت از دسترسی تهران به سلاح هسته‌ای، توافق داشته‌اند.
+فریدریش مرتس روز جمعه ۲۵ اردیبهشت در شبکهٔ ایکس نوشت که در مسیر بازگشت رئیس‌جمهور آمریکا از چین، «تماس تلفنی خوبی» با او داشته است.
+او افزود که آن‌ها توافق دارند که «ایران باید همین حالا پای میز مذاکره بیاید. باید تنگهٔ هرمز را باز کند. نباید اجازه داده شود تهران به سلاح هسته‌ای دست پیدا کند».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75484)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-15 18:48:14
+
+<img src="https://cdn1.telesco.pe/file/DD5HNhtOXihGqElCfmMn6POiKqfRGxc1WBBmmX4EkkJBoPyO9NBft33DnfaS0WccNdD7DzfqFNniyx0MDNv77-r9AjSRZUfDKzVXkod21HfQm2jBouCXmLlC_TfMZ1Bh_60D-xF9K_KYVXv4WL9pxdC6sRIcGHLV9ERPTnr73lYFRhcEaPddXct4rCSKEMxM1NJ2C6f1g6zkNMWEr7gn-c8EjpWyKOwkQWXOiwwjnzlfHS8bdz5jww0jksqbDK15rPoOHZtyozFfTawvNq2xmhGtxQOBX-jAeWeDPfr4oqvTyU9vKoWmdqnomYRsunVFZTSbLekrgLycSAcgY2hBAw.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه ۲۵ اردیبهشت در مسیر بازگشت از چین در پاسخ به خبرنگاران، درباره آخرین پیشنهاد ایران در مذاکرات هسته‌ای گفت که آن را «از همان جمله اول» رد کرده است.
+او با بیان اینکه محتوای ابتدایی این پیشنهاد «غیرقابل قبول» بوده، افزود: «حتی ادامه آن را هم نخواندم.» ترامپ تأکید کرد که صرف تعیین بازه زمانی مانند ۲۰ سال کافی نیست و آنچه اهمیت دارد، ارائه تضمین‌های واقعی و قابل اجرا از سوی ایران است.
+رئیس‌جمهوری آمریکا همچنین تصریح کرد که، هرگونه توافق باید شامل انتقال کامل مواد و سوخت هسته‌ای از ایران باشد و افزود که توافقی مبتنی بر «حرف‌های توخالی» قابل پذیرش نخواهد بود.
+@
+VahidOOnLine
+دونالد ترامپ در پاسخ به پرسشی درباره پیشنهاد اخیر جمهوری اسلامی گفت این پیشنهاد را بررسی کرده، اما به گفته او، اگر از جمله نخست یک متن خوشش نیاید، بقیه آن را کنار می‌گذارد.
+ترامپ در پاسخ به این پرسش که جمله نخست چه بوده است، آن را «غیرقابل قبول» توصیف کرد و گفت مسئله اصلی از نگاه او این است که ایران نباید «هیچ شکل» از برنامه هسته‌ای داشته باشد.
+در ادامه، خبرنگار از ترامپ پرسید آیا دوره ۲۰ ساله برای او کافی نیست. ترامپ پاسخ داد که «۲۰ سال کافی است»، اما به گفته او، سطح تضمین‌هایی که جمهوری اسلامی ارائه می‌دهد اهمیت دارد.
+ترامپ گفت که اگر قرار است توافقی ۲۰ ساله مطرح باشد، باید «۲۰ سال واقعی» باشد و نباید به گفته او، توافقی مبهم یا ظاهری باشد.
+@
+VahidOOnLine
+دونالد ترامپ، رئیس جمهوری آمریکا روز جمعه ۲۵ اردیبهشت و در زمان بازگشت از چین به آمریکا در هواپیمای ایرفورس وان به خبرنگاران گفت با وجود آنکه نیروهای مسلح ایران در جنگ نابود شده‌اند، ممکن است نیاز به «یک پاکسازی کوچک» وجود داشته باشد.
+ترامپ ساعاتی پیش در گفتگویی با فاکس‌نیوز هم گفته بود که نیروهای مسلح جمهوری اسلامی در چهار هفته گذشته، تلاش کرده‌اند تا تعدادی از پرتابگرهای موشکی را از زیر خاک بیرون بکشند و جای بعضی تجهیزات را عوض کنند، با این حال «آمریکا قادر است در دو روز همه این‌ها را نابود کند.»
+@
+VahidOOnLine
+دونالد ترامپ در پاسخ به پرسشی درباره اینکه آیا شی جین‌پینگ، رئیس‌جمهوری چین، تعهدی قاطع برای فشار بر جمهوری اسلامی به منظور بازگشایی تنگه هرمز داده است، گفت از کسی «درخواست لطف» نمی‌کند.
+ترامپ گفت: «من درخواست هیچ لطفی نمی‌کنم، چون وقتی درخواست لطف می‌کنید، باید در مقابل لطفی انجام دهید.» او افزود که آمریکا به چنین کمکی نیاز ندارد.
+رئیس‌جمهوری آمریکا در ادامه گفت نیروهای مسلح طرف مقابل «اساسا از بین رفته‌اند» و ممکن است به گفته او «کمی کار پاکسازی» لازم باشد. او همچنین به آتش‌بس اشاره کرد و گفت این آتش‌بس به درخواست کشورهای دیگر انجام شد.
+ترامپ گفت شخصا چندان موافق آتش‌بس نبوده، اما آن را به عنوان لطفی به پاکستان پذیرفته است. او از مقام‌های پاکستانی، از جمله نخست‌وزیر و فیلدمارشال این کشور، با تعبیر «افرادی فوق‌العاده» یاد کرد.
+@
+VahidOOnLine
+دونالد ترامپ گفت آمریکا ممکن است در مقطعی برای حذف آنچه «گرد و غبار هسته‌ای» نامید وارد ایران شود. ترامپ در مسیر بازگشت به آمریکا و در هواپیمای ریاست‌جمهوری، ایر فورس وان، به خبرنگاران گفت: «در زمان مناسب، یا وارد می‌شویم یا آن را به دست می‌آوریم. فکر می‌کنم احتمالا آن را به دست می‌آوریم، اما اگر به دست نیاوریم، وارد خواهیم شد.»
+او افزود: «فکر می‌کنم آنها کاملا شکست خواهند خورد و ما هیچ خطری نخواهیم داشت. ما تجهیزات لازم برای خارج کردن آن را داریم، هیچ‌کس دیگر ندارد؛ شاید چین چنین تجهیزاتی داشته باشد.»
+ترامپ پیش‌تر نیز در ماه مارس در کاخ سفید درباره ذخایر اورانیوم غنی‌شده جمهوری اسلامی هشدار مشابهی داده و گفته بود: «یا آن را از آنها پس می‌گیریم یا آن را برمی‌داریم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75479)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-15 18:48:14
+
+<img src="https://cdn4.telesco.pe/file/ED-cAblv5b59zhD71wWdTNKSYFj9tJ_YG6LOr4hHm77ZyMET8urJipAme77oBBQoLdaJH-BVdwW8dDLSAlkHl4IB-e2FLZuv8mU_Ow_i1J_2jOkOAmMp6LbupYp__Bw_z5SJ-SWsGnRN3dg0l4ICXStnQXJSiGo74Kc87GevTvcSyRM9VVIbD9Q-OBXNjM0di1w5Ro-OpMMMyO0_1ALY3ewl64wq8fyAku7UPxp3C4vUrOHdAmn0n2665KUQBuW46avY3MHZbR5ENIB2RLaKuUvQqkwGimQLN8vvxNaqFved9BcNu8NPt8qyCjeazaIjkUlyRtv-PMzxY1z-3hlamw.jpg" width="400"><br>
+
+نشست وزیران خارجهٔ کشورهای عضو بریکس در دهلی‌نو، پایتخت هند، به‌دلیل اختلاف‌نظر میان اعضا به‌خصوص بین ایران و امارات متحدهٔ عربی بر سر جنگ ایران، بدون صدور بیانیهٔ مشترک پایان یافت.
+به‌گزارش رویترز، هند روز جمعه ۲۵ اردیبهشت اعلام کرد به‌جای بیانیهٔ مشترک، «بیانیهٔ رئیس» منتشر شده است، زیرا برخی اعضا دربارهٔ تحولات خاورمیانه دیدگاه‌های متفاوتی داشتند.
+گروه بریکس شامل برزیل، روسیه، هند، چین، آفریقای جنوبی، اتیوپی، مصر، ایران، امارات متحدهٔ عربی و اندونزی است.
+روز پنجشنبه رسانه‌های ایران از تنش لفظی در این نشست خبر دادند و نوشتند عباس عراقچی، وزیر خارجه ایران، امارات را به مشارکت مستقیم در جنگ آمریکا و اسرائیل علیه ایران متهم کرد و گفت میزبانی پایگاه‌های نظامی آمریکا از سوی ابوظبی و همکاری امنیتی این کشور با اسرائیل، آن را به بخشی از جنگ تبدیل کرده است.
+روزنامهٔ لبنانی الاخبار نوشت که در مقابل، هیئت اماراتی خواهان آن بود که هر بیانیهٔ نهایی، حملات موشکی جمهوری اسلامی ایران به این کشور و توقیف کشتی‌ها را محکوم کند، در حالی که تهران بر درج محکومیت صریح حملات آمریکا و اسرائیل اصرار داشت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75478)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-15 18:48:14
+
+<img src="https://cdn4.telesco.pe/file/Km9FZedA1YxWD3oU_JcoJEs_AbChs2q45MUuB3C-_nDnfVyntrhT02bTxSfTZh_d-poGmy31mbw3T2RvvxVhLgSQSmL7Z1hppke4RpiJRVc8rNMJhwoLvx4r6nJF--Q5SV7lwenVa-YHKz5cRrG13myWxRBVjCJhCzAMGAM2oDbRr2o4hqKDBBTnJtItqEl2_LwmaAVsb-dq3_dgsUI_MNiVQGFhjrhxgdX9BrBRX95bcwctNVbCMkB335PfSca-cLKUWKuv8HQpsS2o3rbNZ6hlr5SsoRTkKeZuND6sT4ox-HH4pBByJZK1ADfJkP_jge0aOoGsHDN6EbyxACQJIQ.jpg" width="400"><br>
+
+امارات متحده عربی اعلام کرد این کشور ساخت یک خط لوله جدید نفتی را برای دو برابر کردن ظرفیت صادرات نفت از طریق بندر فجیره تا سال ۲۰۲۷ تسریع خواهد کرد. این اقدام توانایی ابوظبی برای دور زدن تنگه هرمز را به‌طور چشمگیری افزایش خواهد داد.
+دفتر رسانه‌ای دولت ابوظبی روز جمعه ۲۵ اردیبهشت اعلام کرد شیخ خالد بن محمد بن زاید، ولیعهد ابوظبی، به شرکت ملی نفت ابوظبی، ادنوک، دستور داده است اجرای پروژه خط لوله «غرب به شرق» را سرعت ببخشد. به‌گفتهٔ این نهاد، این خط لوله اکنون در حال ساخت است و انتظار می‌رود در سال ۲۰۲۷ به بهره‌برداری برسد.
+در بیانیهٔ دولت امارات اشاره‌ای به زمان‌بندی اولیه این پروژه نشده است.
+خط لولهٔ کنونی نفت خام ابوظبی، موسوم به «حبشان ـ فجیره»، ظرفیت انتقال روزانه تا یک میلیون و ۸۰۰ هزار بشکه نفت را دارد و نقش مهمی در افزایش صادرات مستقیم نفت امارات از سواحل دریای عمان ایفا کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75477)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-15 18:48:14
 
 <img src="https://cdn1.telesco.pe/file/GLxtBS4aHnKG385SLIziDy9YoznGiMQgZurjkBwXhkGIb5-92NKAaggFRdTA_iLsW3VyfXbOYys3Popvi77vKVWGm0kKw_NHZWJ2Dxs5n5OBggDRiztdRqsGzjfz1icKuwZRSMMHCp0IMfChtO-lRif_NPiIioFR-4olo8qtUrPoLchUSwgboKKFAj9BYtq9Xy6bgqbDdr0LwET9dBu_-vHWmj6-_1R-LBbgMq4ojSsps0FPo9DQ18MUz4LOlvZnmsdtW0AM4aGwS0ajNu379ycpGrhSeEy_RGn93-uQA34UKwYdrHUqovMSMaDeoR5kQo0_TuLDHXyfSBftev_eFw.jpg" width="400"><br>
 
@@ -36,7 +132,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 16:28:06
+###### 🔵 Updated at: 2026-05-15 18:48:14
 
 <img src="https://cdn1.telesco.pe/file/aLPBrhPsHRf7tmnJqo2pJ_GUYDElB9T_sENaSh_K4Al9IF06PV_-jDCWtbQO5boGr6W6vqyuMavTLMejFDioIwTXYnb9FqV9Z4mLOVkulYqe26aLqYD98OH0X2nqA-jcw9TfuTtijeV-iJ12XsfvKGxSkp1TpG0R7aLuqqAqnedPgaiQFN-TBUeOImlUWELX9LCZNQLyrR3sXwNQwI27deIlpCGE0b71htmu-bor0TvXH7QN7Bp7v5-Lhf26UIJKncKkUnIuhNr_1KQsQfC9WgJgnM1m0qnqz67PhIzkXCKjcEQMhMcjqoE9HPL97qbLCM_I20C2ZDe2vb1UMyup6A.jpg" width="400"><br>
 
@@ -54,7 +150,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-15 16:28:06
+###### 🔵 Updated at: 2026-05-15 18:48:14
 
 <img src="https://cdn4.telesco.pe/file/SITPFakuq-8KNY-QWVN5rvrUcKv4UKPZEUInikdfOgjCZs1PPqfS9TqWfMZWGfclgtltXqp2QSlwQWm1dSJF001h6N49ZBzX6iAG5jSCL92wBJf1YDaRhAFzJx957SAfj-kULD9pSPt5MCcLCPUKWXO1Q5QSUo_0jbzmX4RUXbGw8GSUq8FRATkG4pcrkzKGXYyX3RKMU_Trc3yVw3XpIcn8q4EjX-MUWddYisPS5UWNltgN_WqGSzpQHeLxL_0bvdfxYtctwV-fbFzaSQJBWoHn7xBqzDRTDMJnz09pVrCmY80Y9K8CZcgI6Nstl82MboOOvUDE5vZLhT0hipiW8A.jpg" width="400"><br>
 
@@ -72,7 +168,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 16:28:06
+###### 🔵 Updated at: 2026-05-15 18:48:14
 
 <img src="https://cdn4.telesco.pe/file/eyRMGx0H20hLaxzdYKMs4EyqF9I7efim8vZaYmGvuU4NEPYrePaQXvfY-WJ83Wa_YH2zR12Ar_9lGZi1GKD_b18o-k1pFND6H5FzLG5x3CeIQf2Vc0BohvsHQnbTYe8M7-yGVXHN9CY2Bo9llNY4kiAf7jcvFs5qQ5tqq_nuaIJzZwhaYLo04wrbk-7e6n8V7lpWumTdbXPKI-Iq_-mXdoJalsYS3TdfcyBFm82ILInPtV6IMor0e6Ddqk2eBUmFZ71sX7qY6gwj5SI3ZiE1ub0OOd0cWuEucLlfRgz74jPO2xX9e9aolKF9ubptwRWqdTHyvTg2JLOxymmTnysXcw.jpg" width="400"><br>
 
@@ -93,7 +189,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 16:28:06
+###### 🔵 Updated at: 2026-05-15 18:48:14
 
 <img src="https://cdn4.telesco.pe/file/mlSN1GLClTczQ129KCbfizdg4JN_N_94GEbBf7weSSABv8p4E0hKyUIrtVr79oFoFkZ56550OUkJZnUrmgdduM3ijLWHa0SUQLNfe3T7hC3YADNbPFzh-iUbXt0hS6c-aCvheVZ7YfVfvNb93Zbe_v4n1jJ0oPTGTrZe061v0qx6usPqZ40djKjWgLGNVLb3zkO62IJ_4K5VnZaEMjEudF-xrkXywg8rjxy4m2nA0likrwr7IXYhFEnejI4aS1iMqIR7EwZG8Divw0pLl2oEYSOjtjUpfL-9jXsxGUOPV5kREL31ZyPlfPlpF8A_03UxFri0beHUWJFY2cDTr2a-AA.jpg" width="400"><br>
 
@@ -111,7 +207,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-15 16:28:06
+###### 🔵 Updated at: 2026-05-15 18:48:14
 
 <img src="https://cdn4.telesco.pe/file/u0UD6cVDZaPYdikjXKwZdwD3szb4hZbBTOq_lbtEq1O1cj0g2fcfInVB29seF-xIA6zDPm0_7_i-gBVuaH9QAmzpcWcjpU4MZh7S1FzzxLzXnEHvMYy8pdvwIBKEHRZOqyuZaMSpS8Fmleg5b0h7BLNEk3jPi3W8NBBS6kEL_KOOctCgixH3LfLzW_Nvrzx0wOzj62hKC73rSOvDUi8Ua87tWGWo_tN3tlPadGCLSpC2ngX_vHPJhFVoq5LG80Vro9nraGf6FZFBn7R2UZcejFjavGE35879bgB4E2g6iFMXRu5Njx9uGZ8DljKvf2SyOqzG6xH_8ZkYKBJVYnrO1A.jpg" width="400"><br>
 
@@ -130,9 +226,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 16:28:06
+###### 🔵 Updated at: 2026-05-15 18:48:14
 
-<img src="https://cdn4.telesco.pe/file/PeGiS6ypJslkdkw9kHckbfzo1udqTI4V76unR5xoIp6pSgzEBjnygArS1j94MXUewyYVTkhLcUC9j6EH7GTjmmQrM2_FXUAXaIM7AozYkPyALZo28C64mBta1OibiB6lDnsegCeM5UyHRIvJbBGEO_0Ua8QcbYFBvIQN_Sdyx86VTFwh2MjvQME6QFomChIQW5WFhlAdFA2XVrCqTODKcUZrqNmeAsxKBESC7WTvptWkeiueaNUsZ7-VDfUXtVnvONY2orJg9YmP7wa7EnwQbPC2SfwMuRVJthZzSls-qIQcAOd4ezjQrHVmq8IOqO3IByKdqw-nrBZR80HPKphzpg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/kDibiMLSAkD_Yai3GILaI6BUs_hjob6mcuMbmHgykNOsXuDoxTfZBrONDSxsMOdN8Gmd1pk0FsYogd-01pSKvMUmA7zsLX1peE5dL5oini3cWf7_Z-EzajgXS0gKpwV4DE6GTjO1XGmWDRnzoOe4AcNf9yzsBmS1gPh4bSytQWYiNDBwnDSkBiCayjiQfVHnV7hXrm-EdcbUuyOn9duGCNKbBHyjN2bca1P3x_BYEB4_Ms9J-M1nUQrAzfVI8mqhQMdXB2IT-DnwE0ZMqTHPfPLLHcesosv_Vsk_ft8mAfP6Zhgx6nazYqN_SBUxof3QztuKWBniXAiET71QfFu2aQ.jpg" width="400"><br>
 
 یسرائیل کاتز، وزیر دفاع اسرائیل در یک سخنرانی گفت که ماموریت ارتش این کشور درباره ایران کامل نشده و برای این احتمال آماده است که شاید دوباره ناچار به اقدام شود.
 یسرائیل کاتز تاکید کرد: «اگر اهداف‌مان تامین نشود، دوباره اقدام خواهیم کرد.»
@@ -143,147 +239,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75465)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 16:28:06
-
-<img src="https://cdn4.telesco.pe/file/lvvm6Rxm5H9l5bHHw1PXMiejlykhLfVjRpMpgEBXa63_iUzeE0v7uREPu-ITj1DhutDXycoJaDGfaO4ulvdARZ2U5w2Yz3rqn4Xxaqusu42EG9Ou87PZyGhkPhWww9hdH9ZEdvoc128WCjoFTJw4_RZ9lQNqHU9g-vEtd-v0tg3c1IJhW50qNeS-OkJDbWEjlFu2mNIYY4QvSnnqzPm9G393NSy50TsSajEUHSacprnQY5vByhQjkoaGznz3ySlJW46gRVcT7ZMDFjZzM-nRyimO7ltLiPCCq2UwIuoHOiT7RdqLi4X_yRhPByAWfRcyvfP904vGvX0UFksChR8snw.jpg" width="400"><br>
-
-اسکات بسنت، وزیر دارایی آمریکا، در گفت‌وگویی با شبکه سی‌ان‌بی‌سی در حاشیه سفر رئیس‌جمهور آمریکا، در یک مصاحبه از پیش ضبط‌شده گفت که معتقد است چین از نفوذش بر تهران برای بازگشایی تنگه هرمز استفاده خواهد کرد.
-او گفت: «فکر می‌کنم آن‌ها (چینی‌ها) هر کاری از دستشان بربیاید انجام خواهند داد.»
-آقای بسنت افزود: « بازگشایی تنگه هرمز بسیار به نفع چین است. فکر می‌کنم آن‌ها پشت پرده تلاش خواهند کرد، البته اگر اصلا کسی بتواند بر تصمیم‌های رهبری ایران تاثیر بگذارد.»
-به اعتقاد وزیر دارایی آمریکا، چین به‌زودی سفارش بزرگی از هواپیماهای بوئینگ را اعلام خواهد کرد و افزود دو طرف در حال گفت‌وگو درباره بهبود روابط تجاری از جمله صادرات انرژی هستند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75464)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 16:28:06
-
-<img src="https://cdn4.telesco.pe/file/WIVpDj0pJQh5asHVYCFPB-MRy9xE6v3aWhm-hooJLnLuiNPJK8LnVFrBh2kKZ28PAFi8JpJ7zW-QAcN0U8izsmcBt66qwlYH4IkLLt7zXVGuOuokPLpcTYjH3lxjmJhY_ogXHJDpOpekecbi67DqoR25pildUKUZZBEbAmHKedoCLIRTNUSeeOXS5m5yaSrEVAaq_Zjw3tc0PcPRjRegeMCWBK2mg8O-zUdWjn8VvP43o5zhXgIZnFoLnJ1qMHnS-DHpXsVgZfIiXEhdXjXwIt49ez4YpGESZap-pxRXlLIHFWU7CfUyZHYTkemowqWo1KpCFuvyvoMZRwCCFRlVMA.jpg" width="400"><br>
-
-رسانه‌های ایران می‌گویند وزیر خارجه جمهوری اسلامی در نشست بریکس در دهلی‌نو، امارات متحده عربی را به «دخالت مستقیم» در عملیات نظامی علیه کشورش متهم کرد.
-این تنش یک روز پس از آن رخ داد که امارات ادعای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، مبنی بر سفر به این کشور حاشیه خلیج فارس در جریان جنگ ایران را رد کرد.
-خبرگزاری مهر به نقل از عراقچی نوشت: «من به خاطر حفظ وحدت، در سخنرانی‌ام در بریکس نامی از امارات نبردم. اما حقیقت این است که امارات مستقیماً در تجاوز علیه کشور من دخیل بود. وقتی حملات آغاز شد، آن‌ها حتی آن را محکوم هم نکردند.»
-رسانه‌های ایرانی مشخص نکردند که نماینده امارات چه اظهاراتی در این نشست مطرح کرده بود.
-بر اساس این گزارش‌ها، عراقچی همچنین گفت که «نه پایگاه‌های آمریکا و نه اتحاد با اسرائیل برای امارات امنیت به همراه نیاورده و این کشور باید در سیاست خود نسبت به ایران تجدیدنظر کند».
-عراقچی پیش‌ از این نیز گفته بود: «کسانی که با اسرائیل برای ایجاد تفرقه همکاری می‌کنند، پاسخگو خواهند شد.»
-رسانه‌های ایرانی همچنین درباره اینکه آیا شرکت‌کنندگان نشست وزیران خارجه بریکس در هند خواهند توانست بیانیه نهایی مشترکی صادر کنند یا نه، ابراز تردید کرده‌اند؛ زیرا اختلافات میان ایران و امارات ادامه دارد.
-در همین رابطه از کاظم غریب‌آبادی، معاون وزیر خارجه ایران، نقل شده که به دلیل حضور امارات در این نشست، «مشکلات و رایزنی‌هایی» وجود داشته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75463)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 16:28:06
-
-<img src="https://cdn4.telesco.pe/file/PlHgrBB6ATkjaNqvhsnHHuAjEUqfJkw0fJCNx0nVCf-Ma-wLSpLnlWJA8VCvesB3pFJjpMAseFogpRS8OLSci3LsNUyC_6LGLAXZtKDRBBqGipjlG2mqd_XVu-hwv7cnvXCRoJrkhrZapSepSadVO6YDxkc33vkzPdpCXeSvfTSc9p53WdusQZFvzfBewwgJ8ryO_zHe4laHtJqoVxUsIJSovOB3Z7sC28Kr6l8WPGPN8Bfkq8goO1PlmtHu5ifeWwElht5y9s2fRcGkxNz5pyM9Nwx9ozGrP22dfEC-ZCFi_7MmHceaP9n0N1bL6gs3_CbSSJPMoiqQRohqL-ZGzQ.jpg" width="400"><br>
-
-یونهاپ، خبرگزاری دولتی کره جنوبی، روز چهارشنبه ۲۴ اردیبهشت به نقل از یکی از مقام‌های امنیتی این کشور گزارش کرد که بررسی‌های سئول نشان می‌دهد که به احتمال بسیار زیاد جمهوری اسلامی ایران مسئول حمله به کشتی باری این کشور در تنگه هرمز بوده است.
-سفارت جمهوری اسلامی در سئول هفته گذشته هرگونه حمله جمهوری اسلامی به کشتی باری کره جنوبی در تنگه هرمز را رد کرده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75462)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 16:28:06
-
-<img src="https://cdn4.telesco.pe/file/LPJLaoVlvjBHUek4UV1R62Z86wpMrpnrKq-sLi4wdos7Lx8nr3XEmNAsBL5jcmBI08RVcavorJGuRkcD2iBCY0-inHf966hurvQZsJxBxOHoZA5oX1weV7MGHt5MxcQMXwWPQhG1X9oRY_WqGmt-5wHrCsbPS_9GA6fhPhqsbGYjMfDdCsFyyx9QNa9bQ27zn2DBEnRIZ73HFJ8VHRIGHundCJuAP1BXVkpfgUUHLyZ8VTLruJCwNZ_7b9IYzw8aqIFo7DUn66nSr0I6Td9L4qhlQTlhhlcXXlb6OSkF-uMU_WPgBNw8_6U0shq0eBnxfTlvdz3wFo6OUu_ahM-gkw.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا روز پنجشنبه ۲۴ اردیبهشت اعلام کرد پس از وقوع حادثه‌ای دریایی در شمال شرقی امارات متحده عربی، «افراد غیرمجاز» کنترل یک کشتی در لنگرگاه را به دست گرفته‌اند و این کشتی اکنون به سوی آب‌های سرزمینی ایران در حرکت است.
-این نهاد گفت گزارشی دربارهٔ حادثه دریایی در ۳۸ مایل دریایی (حدود ۷۰ کیلومتری) شمال شرقی بندر فجیره امارات متحده عربی دریافت کرده و پس از آن، کشتی به تصرف درآمده و مسیر آن به سوی آب‌های سرزمینی ایران تغییر داده شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75461)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 16:28:06
-
-<img src="https://cdn4.telesco.pe/file/GA2lxw9pX0SpswOT1vSl98s6IOFFIWyuNmRtl4jF_yOlB9yIeeRC5xPy97t85PgakAcXKoH6yS8v0moVH1JB3o2b4u9wgdt5iadaUupMP-_94WpwOOPF85PepyEyFvrCiqztZ9Bz8I4GzAgawc10g2PtDHit1I-cju_wHCXgsHzzlMO_C6YC3Hp5KCtBIRy4xdmxQ9uIqQ3PKmJM9IMKuQVNoldNm19RdMkjOw91ZjY68yRLq6zwYvjn_kOxbJ4woHFmllnzElfFi0pQPr5uWRbFcsrtr-J515iLe-tE4_K9x9QXhoL3IbLjz7esr2fpkRPyOuB94NScoKNQ9HPkdg.jpg" width="400"><br>
-
-کاخ سفید اعلام کرد که دونالد ترامپ و شی جین‌پینگ، در پکن توافق کردند که ایران هرگز نباید به سلاح هسته‌ای دست پیدا کند و تنگه هرمز باید باز بماند.
-آمریکا این گفت‌وگوی دو ساعته را «خوب» توصیف کرده و می‌گوید که دو رهبر در حال تلاش برای تقویت همکاری‌های اقتصادی هستند.
-در بیانیه کاخ سفید، رئیس‌جمهور شی همچنین «علاقه‌مندی خود را» برای خرید بیشتر نفت آمریکا ابراز کرد تا وابستگی چین به تنگه هرمز را کاهش دهد.
-همچنین گفته شد که مدیران برخی از بزرگ‌ترین شرکت‌های آمریکایی هم در بخشی از این دیدار حضور داشتند.
-آن‌ها همچنین درباره اهمیت پایان دادن به ورود مواد اولیه برای ساخت ماده مخدر فنتانیل به آمریکا هم صحبت کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75460)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 16:28:06
-
-<img src="https://cdn4.telesco.pe/file/rqUMHJYGul-qXHDhTOCXziG98foTe-VvJJXqavvzJBMN1GKwVBRDvnhzh34mBf448mUoBmQuBruq7fQ9rr2q54hz9cy5YToWjLGA4MD5lSizzZvoXRmE1TmyNLQ1L_sAPEK4OZlu0kkmfDaDu-3HSALQeKGjSmDgo9wKNKkSFa9ixf_KL-dzgYMlVHowoybrtnkMZA7gP4AdGH_6utm3v-k60N6Mo3uaSwjFXHLqX2Js82OASo_SNVkUeLsHyWVU2aVeUcMtbRLrAGgPaR0wrDtms_0IbTfSAe7-Gs6Wk7SZpumfnpLImUNidUtA3tglvU7EdTKdtvdiBqPgEUsMzg.jpg" width="400"><br>
-
-مارکو روبیو، وزیر خارجه آمریکا، می‌گوید به نفع چین است که حکومت ایران را برای باز کردن تنگه هرمز تحت فشار بگذارد.
-براساس گزارشی که فاکس‌نیوز از اظهارات روبیو در راه سفر به چین پخش کرد، او گفت: «ما این استدلال را با چینی‌ها مطرح کرده‌ایم و امیدوارم قانع‌کننده باشد. آن‌ها اواخر این هفته در سازمان ملل فرصت خواهند داشت دربارهٔ این موضوع اقدامی انجام دهند؛ زمانی که قطعنامه‌ای برای محکوم کردن اقدامات ایران در ارتباط با تنگه‌ها مطرح می‌شود.»
-روبیو گفت حکومت ایران در حال ایجاد ظرفیتی بوده که بتواند با «انبوهی از موشک‌ها و پهپادها» سامانه‌های دفاعی کشورهای منطقه را از کار بیندازد و هرگونه حملهٔ احتمالی به برنامه هسته‌ای خود را با تهدید به وارد کردن خسارت گسترده به کشورهای خلیج فارس پاسخ دهد.
-مارکو روبیو همچنین با اشاره به بحران تنگه هرمز، گفت این وضعیت بیش از هر کشور دیگری به زیان چین است و پکن باید ایران را برای عقب‌نشینی از اقداماتش تحت فشار بگذارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75459)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 16:28:06
-
-<img src="https://cdn1.telesco.pe/file/Ov9aSxOGdKzEw3j3asTDzJe5KQaBko1pXgwYt0kMbZN1dBuK6b_HxsHV-tA5tocO8cZvrnU2CGAGiY7pzpLHXxFWpsmQez28xgTow8gSJNx6nDmywJovA4lmAurw3Xigy9Vn_4IVDEa0rmLbKDtcM1ZiVFGBPuBsXfV3lMAISTUPNb2hAIoffuv-MxsiqsK-INBvUWt2SEyRDhDeCxonTtXDJUdn52nLeoBQKtMiIGhpV3RPOVjc35N4IxO1tG8SUG0hzeCCvkpW_1Nrmb6Gkuo7vMTI2gm3dZoy5wmjwakxK2I3Wht0pFwPNuD9qxwOZ3NeHoGcwtQ04eDsmROneQ.jpg" width="400"><br>
-
-نت‌بلاکس، نهاد بین‌المللی پایش اینترنت، نوشت که پس از بیش از ۱۸۰۰ ساعت قطعی اینترنت در ایران، نظامی طبقاتی توسط جمهوری اسلامی برای دسترسی ایجاد شده است.
-😋
-💩
-همزمان مهدی طباطبایی، معاون ارتباطات و اطلاع‌رسانی دفتر مسعود پزشکیان، ادعا کرده است که اگر همه‌پرسی برگزار شود، مردم در شرایط جنگی، امنیت را به سهولت دسترسی به اینترنت ترجیح خواهند داد.
-@
-VahidHeadline
-روزنامه اعتماد گزارش داد که نخستین نشست «ستاد ویژه ساماندهی و راهبری فضای مجازی» هفته آینده به ریاست محمدرضا عارف برگزار خواهد شد.
-هدف اصلی این ستاد، فراهم کردن زمینه‌های لازم برای رفع محدودیت‌های فضای مجازی است تا حداکثر تا میانه خردادماه، امکان اتصال مجدد شهروندان به اینترنت بین‌المللی فراهم شود.
-عارف در این مسیر قصد دارد از ظرفیت نخبگان و اساتید برجسته ارتباطات نظیر هادی خانیکی و علی ربیعی [
-🤨
-] استفاده کرده و میان نهادهای حاکمیتی برای بازگشت سرویس‌دهی هم‌افزایی ایجاد کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75457)
 
 ---
 
