@@ -3,7 +3,41 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-15 22:19:27
+###### 🔵 Updated at: 2026-05-15 23:38:31
+
+<img src="https://cdn1.telesco.pe/file/l-KeD3KNP8JGb1Gel3OLKweyBinv7BYKaEQQVzTzDURWebfRX3zGiaYUnlbjwmk8V0nVH2YSNrGQ3QXR93CMT3y08Fzutsp_Xdj314TKUmyzVvuAk7usQlpBUzD65_AxoF88oFQyHh-2yw6l6-qwk1I8i-AnGOUUDS-BKaUeKFav_KX1E6TppjipvWrD_obFHxYOk0COgqWaOluhzeGnUtdxTHRn2mJ9P4EPZEQeSwEBsoAynj8-u2lpTIw_RH33zGIWi9pu_XMt4kusfCPTh38sZylVImtxL_54AImoSdCGTpivxyEqGbiTlOwcyJZpjkHwOweJRDOdS3apuqiDKg.jpg" width="400"><br>
+
+فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی، گفت که جنازه پدرش که در نخستین روز حملات اسرائیل و آمریکا به دفتر خامنه‌ای کشته شد، نزدیک به ۳۰ روز زیر آوار مانده بود.
+موسوی پس از کشته شدن محمد باقری در جنگ ۱۲ روزه، به‌عنوان رییس ستاد کل نیروهای مسلح منصوب شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75491)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-15 23:38:31
+
+<img src="https://cdn1.telesco.pe/file/L-ky1DebhOO3Csuy_477KxfsWXbJKHyHEWi-t33Q64TwLfINJxbX6afZIoxj4aRQlyl-ALQEE9ALOKrUw7eVZap5H_bdpGd8HAkKo2--U_mZVqAWyA2q5n0jTQA9Bv3L8wPAXtDt3WUGUGjxkuk606P9xL0RBns7fKIs4Ffv-K1wiJsBnJnDW8sX3tGHM7bpbxLMVbSd9fwJDnJZDhsvNRUzni7hguKTqJjAIL_gDAZhqRLhgaXdCV0VwmAJKAoxMQ_uowNrlxz4LQX8QqSnr4ewNiXrxcm8kx9JYkNT1eldIVkphZ4JmtydOgPD5-m23Q2vcl1hgpoqZQ_3ZlAfVQ.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور، عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است.
+عزالدین حداد، از فرماندهان ارشد گردان‌های عزالدین قسام، شاخه نظامی حماس است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75488)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-15 23:38:31
 
 <img src="https://cdn4.telesco.pe/file/cp24fuugD4RzXWNsz0M1_rbzHYn-B5KX13SEKd4IBAQOGZrmujY0iYtyO9P5b90mlSP5NNBY1LmO5yy6dH5o4X0iWME65tWS8vx0wgW7_38ZKehgtD-eShH5cpRyaMapI1lV3Kat2ossopVFr8LnE9yPNQNIFwlYHb4_j1Iwo9YEBJASELMUirnRlnoboBiPrjNUU4J2FMBikTdt7o8EtX_VcSqcvYrU_sNR8FGjm_YhvacsTPHDNEj0KDtuPC4gkZaDeNCRb6wvdEmQub0T9wGNQSFzZ3-OKi77fQD4oSB4WirE2GfclKALoK2vPWN_Q8yLf5Sn6IiUkVN_9XqC6g.jpg" width="400"><br>
 
@@ -24,7 +58,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 22:19:27
+###### 🔵 Updated at: 2026-05-15 23:38:31
 
 
 
@@ -48,7 +82,7 @@ AzamBahrami
 
 
 
-###### 🔵 Updated at: 2026-05-15 22:19:27
+###### 🔵 Updated at: 2026-05-15 23:38:31
 
 <img src="https://cdn4.telesco.pe/file/IZoGPGEXHV9LRJuD8tVakSeJyfhT3TgH76tHD65HRVkusTFmHAgK0It26rk6VHvTHlbaz2gNfL4o7GiOryMkg28SFryI1F8KSxSChm8eZDhBHGCODswA4_JTAAgv5kuhju_E8Gx0_V5agSkubUbWHF4pRbN8UP8svDcikzqYxrc2iSWH5_T9RYsZCviVpx-9o8SpccKR1q_5f6rq3hdJnaSGBDlc0bu_NP1KACo6hhQnEGNzU4Pvh2dy_OHkR_EVcxfDVu3h0vD5tnbVpwCaxIb1te5Hnpuuj07wXA8GDThVTxYrlYSd9zbXHpL-B9m32Nx4KB4Za7BihYmxM3H1MQ.jpg" width="400"><br>
 
@@ -65,7 +99,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 22:19:27
+###### 🔵 Updated at: 2026-05-15 23:38:31
 
 <img src="https://cdn4.telesco.pe/file/VmSQ_HC9y4TQD2ukSQIiTF80MyWHtysHNDLIWfTM_qnJqehjKukIiJBpZDExIPA8yXgCiV8FOe75bewQemmVFn7qJnHH21TZ9UepUTrrSfnvxOfNsHHVM3gB8sKPufvECKmqqWwR2SXQu0tA-UJEg1ZQiVZwpTqFGOUNruT6hycT1t4stZFbdxAWEQHYnlj0L5OYS65ukYQ54mdhhCI59M_uRo0LteSoW8v56dCJHZlYgY3cIGfsmtsdEPkJYhbxdrBiNLmSUCXqTiDBm5lu6FGA_ueFkdctN3yBQLW7vfpIU7SZw6yrhJtg0jGrZkF-J8H72J8OztGr2lu_uwlorQ.jpg" width="400"><br>
 
@@ -83,7 +117,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 22:19:27
+###### 🔵 Updated at: 2026-05-15 23:38:31
 
 <img src="https://cdn1.telesco.pe/file/DD5HNhtOXihGqElCfmMn6POiKqfRGxc1WBBmmX4EkkJBoPyO9NBft33DnfaS0WccNdD7DzfqFNniyx0MDNv77-r9AjSRZUfDKzVXkod21HfQm2jBouCXmLlC_TfMZ1Bh_60D-xF9K_KYVXv4WL9pxdC6sRIcGHLV9ERPTnr73lYFRhcEaPddXct4rCSKEMxM1NJ2C6f1g6zkNMWEr7gn-c8EjpWyKOwkQWXOiwwjnzlfHS8bdz5jww0jksqbDK15rPoOHZtyozFfTawvNq2xmhGtxQOBX-jAeWeDPfr4oqvTyU9vKoWmdqnomYRsunVFZTSbLekrgLycSAcgY2hBAw.jpg" width="400"><br>
 
@@ -122,7 +156,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-15 22:19:27
+###### 🔵 Updated at: 2026-05-15 23:38:31
 
 <img src="https://cdn4.telesco.pe/file/ED-cAblv5b59zhD71wWdTNKSYFj9tJ_YG6LOr4hHm77ZyMET8urJipAme77oBBQoLdaJH-BVdwW8dDLSAlkHl4IB-e2FLZuv8mU_Ow_i1J_2jOkOAmMp6LbupYp__Bw_z5SJ-SWsGnRN3dg0l4ICXStnQXJSiGo74Kc87GevTvcSyRM9VVIbD9Q-OBXNjM0di1w5Ro-OpMMMyO0_1ALY3ewl64wq8fyAku7UPxp3C4vUrOHdAmn0n2665KUQBuW46avY3MHZbR5ENIB2RLaKuUvQqkwGimQLN8vvxNaqFved9BcNu8NPt8qyCjeazaIjkUlyRtv-PMzxY1z-3hlamw.jpg" width="400"><br>
 
@@ -142,7 +176,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 22:19:27
+###### 🔵 Updated at: 2026-05-15 23:38:31
 
 <img src="https://cdn4.telesco.pe/file/Km9FZedA1YxWD3oU_JcoJEs_AbChs2q45MUuB3C-_nDnfVyntrhT02bTxSfTZh_d-poGmy31mbw3T2RvvxVhLgSQSmL7Z1hppke4RpiJRVc8rNMJhwoLvx4r6nJF--Q5SV7lwenVa-YHKz5cRrG13myWxRBVjCJhCzAMGAM2oDbRr2o4hqKDBBTnJtItqEl2_LwmaAVsb-dq3_dgsUI_MNiVQGFhjrhxgdX9BrBRX95bcwctNVbCMkB335PfSca-cLKUWKuv8HQpsS2o3rbNZ6hlr5SsoRTkKeZuND6sT4ox-HH4pBByJZK1ADfJkP_jge0aOoGsHDN6EbyxACQJIQ.jpg" width="400"><br>
 
@@ -161,7 +195,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-15 22:19:27
+###### 🔵 Updated at: 2026-05-15 23:38:31
 
 <img src="https://cdn1.telesco.pe/file/GLxtBS4aHnKG385SLIziDy9YoznGiMQgZurjkBwXhkGIb5-92NKAaggFRdTA_iLsW3VyfXbOYys3Popvi77vKVWGm0kKw_NHZWJ2Dxs5n5OBggDRiztdRqsGzjfz1icKuwZRSMMHCp0IMfChtO-lRif_NPiIioFR-4olo8qtUrPoLchUSwgboKKFAj9BYtq9Xy6bgqbDdr0LwET9dBu_-vHWmj6-_1R-LBbgMq4ojSsps0FPo9DQ18MUz4LOlvZnmsdtW0AM4aGwS0ajNu379ycpGrhSeEy_RGn93-uQA34UKwYdrHUqovMSMaDeoR5kQo0_TuLDHXyfSBftev_eFw.jpg" width="400"><br>
 
@@ -189,63 +223,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75471)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 22:19:27
-
-<img src="https://cdn1.telesco.pe/file/aLPBrhPsHRf7tmnJqo2pJ_GUYDElB9T_sENaSh_K4Al9IF06PV_-jDCWtbQO5boGr6W6vqyuMavTLMejFDioIwTXYnb9FqV9Z4mLOVkulYqe26aLqYD98OH0X2nqA-jcw9TfuTtijeV-iJ12XsfvKGxSkp1TpG0R7aLuqqAqnedPgaiQFN-TBUeOImlUWELX9LCZNQLyrR3sXwNQwI27deIlpCGE0b71htmu-bor0TvXH7QN7Bp7v5-Lhf26UIJKncKkUnIuhNr_1KQsQfC9WgJgnM1m0qnqz67PhIzkXCKjcEQMhMcjqoE9HPL97qbLCM_I20C2ZDe2vb1UMyup6A.jpg" width="400"><br>
-
-ترامپ: منظور رئیس‌جمهور چین از آمریکای در حال افول، دوران بایدن بود
-ترجمه ماشین:  وقتی رئیس‌جمهور شی با ظرافت بسیار از ایالات متحده به‌عنوان کشوری که شاید در حال افول باشد یاد کرد، منظور او خسارت عظیمی بود که ما در چهار سال دوران جو بایدن خواب‌آلود و دولت بایدن متحمل شدیم؛ و از این نظر، او ۱۰۰ درصد درست می‌گفت. کشور ما با مرزهای باز، مالیات‌های بالا، تراجنسیتی‌سازی برای همه، حضور مردان در ورزش زنان، DEI، توافق‌های تجاری وحشتناک، جرم و جنایت گسترده و بسیاری چیزهای دیگر، به‌شدت آسیب دید!
-رئیس‌جمهور شی به خیزش شگفت‌انگیزی اشاره نمی‌کرد که ایالات متحده در ۱۶ ماه تماشایی دولت ترامپ به جهان نشان داده است؛ از جمله رکوردهای تاریخی در بازار سهام و حساب‌های بازنشستگی 401K، پیروزی نظامی و روابط شکوفا در ونزوئلا، نابودی نظامی ایران — که ادامه خواهد داشت! — قدرتمندترین ارتش روی زمین با فاصله‌ای بسیار زیاد، تبدیل دوباره آمریکا به یک ابرقدرت اقتصادی، با سرمایه‌گذاری بی‌سابقه ۱۸ تریلیون دلاری دیگران در ایالات متحده، بهترین بازار کار تاریخ آمریکا، با شمار افرادی که اکنون در ایالات متحده کار می‌کنند بیش از هر زمان دیگری، پایان دادن به DEI ویرانگر کشور، و آن‌قدر دستاوردهای دیگر که فهرست کردن فوری آن‌ها ناممکن است. در واقع، رئیس‌جمهور شی به‌خاطر موفقیت‌های عظیم بسیار در چنین مدت کوتاهی به من تبریک گفت.
-دو سال پیش، ما در واقع ملتی در حال افول بودیم. در این مورد، من کاملاً با رئیس‌جمهور شی موافقم! اما اکنون، ایالات متحده داغ‌ترین کشور در هر جای جهان است، و امیدوارم رابطه ما با چین از همیشه قوی‌تر و بهتر شود!
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75470)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 22:19:27
-
-<img src="https://cdn4.telesco.pe/file/SITPFakuq-8KNY-QWVN5rvrUcKv4UKPZEUInikdfOgjCZs1PPqfS9TqWfMZWGfclgtltXqp2QSlwQWm1dSJF001h6N49ZBzX6iAG5jSCL92wBJf1YDaRhAFzJx957SAfj-kULD9pSPt5MCcLCPUKWXO1Q5QSUo_0jbzmX4RUXbGw8GSUq8FRATkG4pcrkzKGXYyX3RKMU_Trc3yVw3XpIcn8q4EjX-MUWddYisPS5UWNltgN_WqGSzpQHeLxL_0bvdfxYtctwV-fbFzaSQJBWoHn7xBqzDRTDMJnz09pVrCmY80Y9K8CZcgI6Nstl82MboOOvUDE5vZLhT0hipiW8A.jpg" width="400"><br>
-
-همزمان با سفر «دونالد ترامپ» رییس‌جمهور آمریکا به چین، رهبران ۲۶کشور دیگر نیز روز پنجشنبه ۲۴اردیبهشت۱۴۰۵ در بیانیه‌ای مشترک خواهان بازگشت وضعیت عادی دریانوردی در تنگه هرمز شدند.
-این بیانیه که توسط کشورهایی مانند بریتانیا، فرانسه، بحرین، کانادا، آلمان، ژاپن، قطر و کره جنوبی امضا شده است بر «تعهد خود به استفاده از ظرفیت‌های جمعی دیپلماتیک، اقتصادی و نظامی برای حمایت از آزادی ناوبری در تنگه هرمز» تأکید کردند.
-در این بیانیه آمده است: «کشتیرانی باید آزاد باشد، مطابق با مفاد کنوانسیون سازمان ملل متحد درباره حقوق دریاهاو حقوق بین‌الملل.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75469)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-15 22:19:27
-
-<img src="https://cdn4.telesco.pe/file/FZQ-MgTfmbajL_sooeq8pgjVfC2cYjvI9_rZGsKtsrfkEsuGgts3zJAeko6OqmvdKYEsipZ1duqpBd2F9VaLr-V2-CnxOKdiWTHLthxFuQmGU1AdVj2dINvuz_7VUiNpmkoRVOh4H07jaeAmeYUMVqCRBwlz9cM9IS6tYIKXaxOXy0mmLro9tKgFjJ1755qoBXYnCDeJg8QqPLuUIrimtnqicGYlP9mpWvIN_jcjGpZHFuQhKmd6mxaZzlzDOY7Hqm94fUe-zmcZ6DgRs_iUCl7OzqyX2boSG4tjvwDPKPJB8PdborYh_A-DaAbLYbecGpkltia9wyMXvD0E0hWuCA.jpg" width="400"><br>
-
-برد کوپر، فرمانده ستاد فرماندهی مرکزی ایالات متحده (سنتکام)، اعلام کرد که صنایع موشکی، پهپادی و دریایی ایران «۹۰ درصد تضعیف شده‌اند.»
-او در یک جلسه استماع در سنای آمریکا گفت: «تهدید ایران به‌طور قابل‌توجهی تضعیف شده و این کشور دیگر مانند گذشته، در هیچ حوزه‌ای، قادر به تهدید شرکای منطقه‌ای یا ایالات متحده نیست. آنها به‌شدت تضعیف شده‌اند.»
-کوپر اشاره کرد که نیروهای نیابتی مسلح ایران در ۳۰ ماه پیش از جنگ اخیر، بیش از ۳۵۰ حمله علیه نیروها و دیپلمات‌های آمریکایی انجام داده بودند؛ به‌طور میانگین هر سه روز یک حمله، که در نتیجه آن چهار سرباز آمریکایی کشته شدند.
-برد کوپر با دفاع از جنگ اخیر  تأکید کرد: «امروز حماس، حزب‌الله و حوثی‌ها همگی از تأمین تسلیحات و حمایت ایران قطع شده‌اند. این نتیجه از پیش تضمین‌شده نبود.»
-او همچنین گفت نیروهای آمریکایی دیگر برای سرنگون کردن پهپادهای ایرانی از مهمات پیشرفته و گران‌قیمت استفاده نمی‌کنند.
-ذخایر سامانه‌های دفاعی پرهزینه برای مقابله با پهپادهای ایرانی در طول جنگ خبرساز شده بود، اما فرمانده سنتکام اعلام کرد ارتش آمریکا اکنون از مهمات ارزان‌تر استفاده می‌کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75468)
 
 ---
 
