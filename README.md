@@ -3,7 +3,76 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-16 03:40:34
+###### 🔵 Updated at: 2026-05-16 07:30:37
+
+<img src="https://cdn1.telesco.pe/file/c9lvg2J0qpRDf06ear7d467K36BTinIDlDrml6ZB6AwKqH413qRuxQtTxm_va2sDiAezEfQY4BDtkIUk05oWGqhEDM7zYxGvn5bffA_McT8TU31AhG2UiFw2ato4jFKeg5_zGRfYD7KNq8-eB6wKz8Wde8X86aVsQa16LNR4BB9fW15hIt_m6QjacE6p004rRDyDRtutHxW2J-P_PtmA0l9hFb_Lt8cEZ2R_dq61QfDF_3okI-5j67yToIH9FJxWPCgWN4Cdbny5Gyv-YUtqNcgXR-4zNcbLu7EDlRk240m5R_J2FjrOmfkW8P6i06dylxMEZhICUUP7_BwHOi6LGQ.jpg" width="400"><br>
+
+دونالد ترامپ با اشاره به افزایش هزینه‌های اقتصادی ناشی از تقابل با جمهوری اسلامی، از آمریکایی‌ها خواست این فشار کوتاه‌مدت را تحمل کنند و گفت جلوگیری از تهدید حکومت ایران اولویتی بالاتر از پیامدهای کوتاه‌مدت اقتصادی دارد.
+او تاکید کرد: «متاسفم که این فشار را تحمل می‌کنید، اما باید جلوی این گروه بسیار دیوانه را بگیریم.»
+رییس‌جمهوری آمریکا در بخش دیگری از این مصاحبه گفت حکومت ایران از نظر نظامی به‌شدت آسیب دیده و بار دیگر تاکید کرد: «آن‌ها دیگر نیروی دریایی ندارند. نیروی هوایی ندارند. همه‌چیز نابود شده است. نیروی هوایی‌شان از بین رفته است.»
+او تاکید کرد: «تنگه باز خواهد شد. آن‌ها سلاح هسته‌ای نخواهند داشت و دنیا ادامه خواهد یافت.»
+رییس‌جمهوری آمریکا گفت به درخواست مقام‌هایی از پاکستان، مرحله نهایی عملیات علیه ایران را متوقف کرده است. او گفت: «آن‌ها گفتند: می‌توانید متوقف شوید؟ ما قرار است به توافق برسیم. و واقعاً چارچوب یک توافق را داشتیم؛ بدون برنامه هسته‌ای.»
+ترامپ در ادامه تاکید کرد تهران پذیرفته بود مواد باقی‌مانده از برنامه هسته‌ای خود را تحویل دهد، اما بعد از هر توافق عقب‌نشینی کرده است. او گفت: «هر بار توافق می‌کنند، روز بعد انگار می‌گویند چنین گفت‌وگویی نداشته‌ایم. این حدود پنج بار اتفاق افتاده است. مشکلی در آن‌ها وجود دارد. واقعاً دیوانه‌اند. و به همین دلیل نمی‌توانند سلاح هسته‌ای داشته باشند.»
+رییس‌جمهوری آمریکا در بخش دیگری از مصاحبه، در پاسخ به این پرسش که آیا توان و مقاومت حکومت ایران را دست‌کم گرفته، گفت: «هیچ‌چیز را دست‌کم نگرفتم. ما به‌شدت به آن‌ها ضربه زدیم.»
+ترامپ تاکید کرد آمریکا عمداً بخشی از زیرساخت‌های ایران را هدف قرار نداده است و افزود: «پل‌هایشان را باقی گذاشتیم. زیرساخت برق‌شان را باقی گذاشتیم. می‌توانیم همه آن را در دو روز نابود کنیم؛ همه‌چیز.» او گفت به تاسیسات نفتی و برخی زیرساخت‌ها در خارک حمله نشده، زیرا آسیب به آن‌ها می‌توانست موجب از بین رفتن نفت شود.
+رییس‌جمهوری آمریکا درباره وضعیت مذاکرات با جمهوری اسلامی گفت افرادی که آمریکا با آن‌ها در حال گفت‌وگو است، به گفته او «منطقی» به نظر می‌رسند، اما توان یا آمادگی لازم برای تصمیم‌گیری ندارند.
+ترامپ در پاسخ به این پرسش که آمریکا در حال حاضر با چه کسانی در ایران طرف است، گفت: «با افرادی طرف هستیم که فکر می‌کنم منطقی هستند، اما از توافق می‌ترسند. نمی‌دانند چطور توافق کنند. قبلاً در چنین موقعیتی نبوده‌اند.»
+او در پاسخ به این سوال که آیا تا زمان دستیابی به توافق صبر خواهد کرد، تاکید کرد: «من کاری را انجام می‌دهم که درست باشد. باید کار درست را انجام دهم.»
+او همچنین گفت مقام‌های ایرانی به او گفته‌اند محل نگهداری مواد هسته‌ای به‌شدت هدف قرار گرفته و «کوه گرانیتی» روی آن فرو ریخته است. ترامپ افزود: «آن‌ها گفتند فقط دو کشور می‌توانند به آن دسترسی پیدا کنند؛ ما و چین. گفتند خودشان توانایی دسترسی ندارند چون کاملاً نابود شده است.»
+ترامپ گفت: «نمی‌توان اجازه داد ایران سلاح هسته‌ای داشته باشد. آن‌ها از آن علیه ما استفاده خواهند کرد. اول اسرائیل را نابود می‌کنند، بعد خاورمیانه را، بعد اروپا را.»
+او درباره افزایش قیمت سوخت در آمریکا گفت فشار اقتصادی ناشی از بحران کوتاه‌مدت خواهد بود و افزود: «وقتی مردم توضیح کامل را می‌شنوند، همه موافق می‌شوند. این یک درد کوتاه‌مدت خواهد بود.» ترامپ گفت پس از پایان بحران، قیمت انرژی «مثل سنگ سقوط خواهد کرد.»
+رییس‌جمهوری آمریکا در پاسخ به نگرانی‌ها درباره افزایش فشار اقتصادی بر خانواده‌های آمریکایی در پی جنگ با ایران و رشد هزینه‌ها، گفت شهروندان باید این فشارها را تحمل کنند زیرا به گفته او هدف، مقابله با تهدیدی بزرگ‌تر است.
+ترامپ در واکنش به این موضوع که برخی آمریکایی‌ها افزایش هزینه‌ها و بدبینی اقتصادی را احساس می‌کنند، گفت: «باید تحمل کنند و باور داشته باشند که ما آن‌ها را به نقطه بهتری می‌رسانیم. اما من باید کار درست را انجام دهم.»
+ترامپ در ادامه، فشارهای اقتصادی ناشی از بحران را با ضرورت مقابله با جمهوری اسلامی مرتبط دانست و گفت: «به مردم گفتم متاسفم که این فشار را تحمل می‌کنید، اما باید جلوی این گروه بسیار دیوانه را بگیریم.»
+رییس‌جمهوری آمریکا همچنین گفت کشتی‌های حامل نفت ایران که چین در روزهای اخیر خارج کرده، با اجازه واشینگتن حرکت کرده‌اند. او گفت: «ما اجازه دادیم این اتفاق بیفتد.»
+ترامپ در پایان در پاسخ به این پرسش که آیا حکومت ایران در نهایت عقب‌نشینی خواهد کرد گفت: «بله، قطعاً. هیچ شکی ندارم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75494)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-16 07:30:37
+
+<img src="https://cdn4.telesco.pe/file/NzeAZeu8U8iHW7G3_EKrjvIvujhHS9elfV7-gutKX1LYu7r1u_0-XINQMa-TZk1WNZmIJ_RA2mIBpEkKnq7NnhxSH42oXkDLjAaHNS34VjT_0ZoJnATYH2UcgllwyoPlVKgkeruaLKGP7Gm8JsZ6EpB-_uoMNjeBmvQZnAx4qc97mrHYS92KgYjsUbRZBnhL6qqB11R-mdbuY4HeGC5SpoJEn1rJM8GzvcvJpYNxol6zVxEI0iLYtlfqPpIQWL2NTDI0ZiOMR39uMmtiXP7QH7EuXypyf9xpWeRXxNFT6hmiQS_EShcdN4dASpxqj5tD5QkKzVdoZDW3is1Yu-HQyA.jpg" width="400"><br>
+
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در واکنش به بالا رفتن قیمت انرژی در آمریکا، در ایکس نوشت: «در حال حاضر، افزایش قیمت بنزین و حباب بازار سهام را کنار بگذارید. درد واقعی زمانی آغاز می‌شود که بدهی آمریکا و نرخ وام‌های مسکن شروع به جهش کنند.»
+او نوشت همین حالا هم میزان ناتوانی در بازپرداخت وام خودرو به بالاترین سطح خود در بیش از ۳۰ سال گذشته رسیده است، اما تمام این‌ها قابل اجتناب بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75493)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-16 07:30:37
+
+<img src="https://cdn4.telesco.pe/file/izOZS6aaaTapmyJEzcdoAOvh7mtwf91EsLRARm2cAJYr04UQjwG0tXZKBPe5WaaANcLwewVoKD9EJzR1cq1RUi6WANQ_jZELPX1_NraIOGq89UTXxglG2Rj2ZxQhJ5sb2RvFJj-U1j0B5GR4veVI-bIApCpAm0o2-yQm54lTOqan5Adt-0x187ZhtxzAA9TuZwx_9JuaPdRM7Y7_4fKIru1ryZxDTduCosGe7dLO9IuP4glY6hZWwaXThpKE-NuaJos9RgOchlN6Pq8AZ9jXyvi9UMm6BIysyjqWndd1fJxYSQKdCxAeq56LnkCTQTUqzrkV2RPygYSFfTlUrIPjHg.jpg" width="400"><br>
+
+‌ نماینده چین در سازمان ملل و و رئیس دوره‌ای شورای امنیت، از پیش‌نویس قطعنامه پیشنهادی آمریکا و بحرین درباره تنگه هرمز انتقاد کرد و گفت که «محتوا و زمان‌بندی آن مناسب نیست و تصویبش کمکی نخواهد کرد.»
+به گزارش رویترز، این پیش‌نویس قطعنامه از ایران می‌خواهد که حملات و مین‌گذاری در تنگه هرمز را متوقف کند. اما دیپلمات‌ها گفتند که اگر این قطعنامه به رای گذاشته شود، احتمالا با وتوی روسیه و چین روبه‌رو خواهد شد.
+دو کشور ماه گذشته نیز قطعنامه مشابه مورد حمایت آمریکا را وتو کرده بودند و متن آن را علیه ایران «جانبدارانه» خواندند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75492)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-16 07:30:37
 
 <img src="https://cdn1.telesco.pe/file/l-KeD3KNP8JGb1Gel3OLKweyBinv7BYKaEQQVzTzDURWebfRX3zGiaYUnlbjwmk8V0nVH2YSNrGQ3QXR93CMT3y08Fzutsp_Xdj314TKUmyzVvuAk7usQlpBUzD65_AxoF88oFQyHh-2yw6l6-qwk1I8i-AnGOUUDS-BKaUeKFav_KX1E6TppjipvWrD_obFHxYOk0COgqWaOluhzeGnUtdxTHRn2mJ9P4EPZEQeSwEBsoAynj8-u2lpTIw_RH33zGIWi9pu_XMt4kusfCPTh38sZylVImtxL_54AImoSdCGTpivxyEqGbiTlOwcyJZpjkHwOweJRDOdS3apuqiDKg.jpg" width="400"><br>
 
@@ -20,7 +89,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 03:40:34
+###### 🔵 Updated at: 2026-05-16 07:30:37
 
 <img src="https://cdn1.telesco.pe/file/L-ky1DebhOO3Csuy_477KxfsWXbJKHyHEWi-t33Q64TwLfINJxbX6afZIoxj4aRQlyl-ALQEE9ALOKrUw7eVZap5H_bdpGd8HAkKo2--U_mZVqAWyA2q5n0jTQA9Bv3L8wPAXtDt3WUGUGjxkuk606P9xL0RBns7fKIs4Ffv-K1wiJsBnJnDW8sX3tGHM7bpbxLMVbSd9fwJDnJZDhsvNRUzni7hguKTqJjAIL_gDAZhqRLhgaXdCV0VwmAJKAoxMQ_uowNrlxz4LQX8QqSnr4ewNiXrxcm8kx9JYkNT1eldIVkphZ4JmtydOgPD5-m23Q2vcl1hgpoqZQ_3ZlAfVQ.jpg" width="400"><br>
 
@@ -37,7 +106,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 03:40:34
+###### 🔵 Updated at: 2026-05-16 07:30:37
 
 <img src="https://cdn4.telesco.pe/file/cp24fuugD4RzXWNsz0M1_rbzHYn-B5KX13SEKd4IBAQOGZrmujY0iYtyO9P5b90mlSP5NNBY1LmO5yy6dH5o4X0iWME65tWS8vx0wgW7_38ZKehgtD-eShH5cpRyaMapI1lV3Kat2ossopVFr8LnE9yPNQNIFwlYHb4_j1Iwo9YEBJASELMUirnRlnoboBiPrjNUU4J2FMBikTdt7o8EtX_VcSqcvYrU_sNR8FGjm_YhvacsTPHDNEj0KDtuPC4gkZaDeNCRb6wvdEmQub0T9wGNQSFzZ3-OKi77fQD4oSB4WirE2GfclKALoK2vPWN_Q8yLf5Sn6IiUkVN_9XqC6g.jpg" width="400"><br>
 
@@ -58,7 +127,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 03:40:34
+###### 🔵 Updated at: 2026-05-16 07:30:37
 
 
 
@@ -82,7 +151,7 @@ AzamBahrami
 
 
 
-###### 🔵 Updated at: 2026-05-16 03:40:34
+###### 🔵 Updated at: 2026-05-16 07:30:37
 
 <img src="https://cdn4.telesco.pe/file/IZoGPGEXHV9LRJuD8tVakSeJyfhT3TgH76tHD65HRVkusTFmHAgK0It26rk6VHvTHlbaz2gNfL4o7GiOryMkg28SFryI1F8KSxSChm8eZDhBHGCODswA4_JTAAgv5kuhju_E8Gx0_V5agSkubUbWHF4pRbN8UP8svDcikzqYxrc2iSWH5_T9RYsZCviVpx-9o8SpccKR1q_5f6rq3hdJnaSGBDlc0bu_NP1KACo6hhQnEGNzU4Pvh2dy_OHkR_EVcxfDVu3h0vD5tnbVpwCaxIb1te5Hnpuuj07wXA8GDThVTxYrlYSd9zbXHpL-B9m32Nx4KB4Za7BihYmxM3H1MQ.jpg" width="400"><br>
 
@@ -99,7 +168,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 03:40:34
+###### 🔵 Updated at: 2026-05-16 07:30:37
 
 <img src="https://cdn4.telesco.pe/file/VmSQ_HC9y4TQD2ukSQIiTF80MyWHtysHNDLIWfTM_qnJqehjKukIiJBpZDExIPA8yXgCiV8FOe75bewQemmVFn7qJnHH21TZ9UepUTrrSfnvxOfNsHHVM3gB8sKPufvECKmqqWwR2SXQu0tA-UJEg1ZQiVZwpTqFGOUNruT6hycT1t4stZFbdxAWEQHYnlj0L5OYS65ukYQ54mdhhCI59M_uRo0LteSoW8v56dCJHZlYgY3cIGfsmtsdEPkJYhbxdrBiNLmSUCXqTiDBm5lu6FGA_ueFkdctN3yBQLW7vfpIU7SZw6yrhJtg0jGrZkF-J8H72J8OztGr2lu_uwlorQ.jpg" width="400"><br>
 
@@ -117,7 +186,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 03:40:34
+###### 🔵 Updated at: 2026-05-16 07:30:37
 
 <img src="https://cdn1.telesco.pe/file/DD5HNhtOXihGqElCfmMn6POiKqfRGxc1WBBmmX4EkkJBoPyO9NBft33DnfaS0WccNdD7DzfqFNniyx0MDNv77-r9AjSRZUfDKzVXkod21HfQm2jBouCXmLlC_TfMZ1Bh_60D-xF9K_KYVXv4WL9pxdC6sRIcGHLV9ERPTnr73lYFRhcEaPddXct4rCSKEMxM1NJ2C6f1g6zkNMWEr7gn-c8EjpWyKOwkQWXOiwwjnzlfHS8bdz5jww0jksqbDK15rPoOHZtyozFfTawvNq2xmhGtxQOBX-jAeWeDPfr4oqvTyU9vKoWmdqnomYRsunVFZTSbLekrgLycSAcgY2hBAw.jpg" width="400"><br>
 
@@ -156,7 +225,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 03:40:34
+###### 🔵 Updated at: 2026-05-16 07:30:37
 
 <img src="https://cdn4.telesco.pe/file/ED-cAblv5b59zhD71wWdTNKSYFj9tJ_YG6LOr4hHm77ZyMET8urJipAme77oBBQoLdaJH-BVdwW8dDLSAlkHl4IB-e2FLZuv8mU_Ow_i1J_2jOkOAmMp6LbupYp__Bw_z5SJ-SWsGnRN3dg0l4ICXStnQXJSiGo74Kc87GevTvcSyRM9VVIbD9Q-OBXNjM0di1w5Ro-OpMMMyO0_1ALY3ewl64wq8fyAku7UPxp3C4vUrOHdAmn0n2665KUQBuW46avY3MHZbR5ENIB2RLaKuUvQqkwGimQLN8vvxNaqFved9BcNu8NPt8qyCjeazaIjkUlyRtv-PMzxY1z-3hlamw.jpg" width="400"><br>
 
@@ -171,58 +240,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75478)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-16 03:40:34
-
-<img src="https://cdn4.telesco.pe/file/Km9FZedA1YxWD3oU_JcoJEs_AbChs2q45MUuB3C-_nDnfVyntrhT02bTxSfTZh_d-poGmy31mbw3T2RvvxVhLgSQSmL7Z1hppke4RpiJRVc8rNMJhwoLvx4r6nJF--Q5SV7lwenVa-YHKz5cRrG13myWxRBVjCJhCzAMGAM2oDbRr2o4hqKDBBTnJtItqEl2_LwmaAVsb-dq3_dgsUI_MNiVQGFhjrhxgdX9BrBRX95bcwctNVbCMkB335PfSca-cLKUWKuv8HQpsS2o3rbNZ6hlr5SsoRTkKeZuND6sT4ox-HH4pBByJZK1ADfJkP_jge0aOoGsHDN6EbyxACQJIQ.jpg" width="400"><br>
-
-امارات متحده عربی اعلام کرد این کشور ساخت یک خط لوله جدید نفتی را برای دو برابر کردن ظرفیت صادرات نفت از طریق بندر فجیره تا سال ۲۰۲۷ تسریع خواهد کرد. این اقدام توانایی ابوظبی برای دور زدن تنگه هرمز را به‌طور چشمگیری افزایش خواهد داد.
-دفتر رسانه‌ای دولت ابوظبی روز جمعه ۲۵ اردیبهشت اعلام کرد شیخ خالد بن محمد بن زاید، ولیعهد ابوظبی، به شرکت ملی نفت ابوظبی، ادنوک، دستور داده است اجرای پروژه خط لوله «غرب به شرق» را سرعت ببخشد. به‌گفتهٔ این نهاد، این خط لوله اکنون در حال ساخت است و انتظار می‌رود در سال ۲۰۲۷ به بهره‌برداری برسد.
-در بیانیهٔ دولت امارات اشاره‌ای به زمان‌بندی اولیه این پروژه نشده است.
-خط لولهٔ کنونی نفت خام ابوظبی، موسوم به «حبشان ـ فجیره»، ظرفیت انتقال روزانه تا یک میلیون و ۸۰۰ هزار بشکه نفت را دارد و نقش مهمی در افزایش صادرات مستقیم نفت امارات از سواحل دریای عمان ایفا کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75477)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-16 03:40:34
-
-<img src="https://cdn1.telesco.pe/file/GLxtBS4aHnKG385SLIziDy9YoznGiMQgZurjkBwXhkGIb5-92NKAaggFRdTA_iLsW3VyfXbOYys3Popvi77vKVWGm0kKw_NHZWJ2Dxs5n5OBggDRiztdRqsGzjfz1icKuwZRSMMHCp0IMfChtO-lRif_NPiIioFR-4olo8qtUrPoLchUSwgboKKFAj9BYtq9Xy6bgqbDdr0LwET9dBu_-vHWmj6-_1R-LBbgMq4ojSsps0FPo9DQ18MUz4LOlvZnmsdtW0AM4aGwS0ajNu379ycpGrhSeEy_RGn93-uQA34UKwYdrHUqovMSMaDeoR5kQo0_TuLDHXyfSBftev_eFw.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس جمهوری آمریکا در مصاحبه‌ای که با فاکس نیوز انجام داد گفت او درباره ایران با چین صحبت کرده است.
-ترامپ افزود فکر نمی‌کند که چین هم خواهان این باشد که جمهوری اسلامی به سلاح هسته‌ای دست پیدا کند.
-او گفت جمهوری اسلامی می‌تواند یا «توافق کند و یا «نابود» شود. رئیس جمهوری آمریکا گفت نمی‌خواهد چنین کاری کند اما آمریکا قوی‌ترین ارتش جهان را دارد.
-ترامپ گفت ما در جمهوری اسلامی با «رده سوم» رهبرانش طرف هستیم. او گفت رده اول و دوم رهبری نابود شدند و فکر می‌کند رده سوم از رده اول و دوم «که دیگر با ما نیستند» «منطقی‌تر» و از لحاظی «باهوش‌تر» هستند.
-او این تغییر را به‌نوعی با یک «تغییر رژیم» مقایسه کرد.
-ترامپ با اشاره به اینکه جمهوری اسلامی «پنج روز» زمان صرف کرد تا به پیشنهاد آمریکا که «یک ساعت» هم زمان نمی‌برد پاسخ دهد، افزود جمهوری اسلامی در داخل خود «آشوب فراوان» دارد و «چیزی به جز آشوب» ندارند.
-ترامپ در مورد حمایت چین از جمهوری اسلامی گفت که رئيس جمهوری چین، شی جین‌پینگ قویا گفت که به جمهوری اسلامی سلاح نخواهد داد.
-...
-او افزود «امیدوارم» جمهوری اسلامی این مصاحبه را ببیند چرا که آمریکا می‌تواند به سرعت همه تسلیحاتی که آن‌ها در طول آتش‌بس ممکن است به آن‌ها دست یافته باشند به سرعت نابود ‌کند. ترامپ گفت «ما دقیقا می‌دانیم چه کاری می‌کنند...و هر کاری که در چهار هفته گذشته انجام داده‌اند ما آن‌ها را در یک روز از بین می‌بریم.»
-رئیس جمهوری آمریکا گفت جنگ را می‌توانست «چند هفته بیشتر» ادامه دهد و ماجرا تمام می‌شد اما به درخواست چند کشور آن را متوقف کرد. ترامپ گفت جمهوری اسلامی دو گزینه دارد: «یا توافق کند و یا نابود شود.»
-ترامپ همچنین درباره خارج کردن اورانیوم غنی‌شده از ایران گفت این کار را بیشتر برای «روابط عمومی» انجام خواهد داد و او احساس بهتری خواهد داشت که آن مواد از ایران خارج شود.
-رئیس جمهوری آمریکا افزود «به‌دست آوردنش پروژه بزرگی است، واقعاً پروژه بزرگی است.»
-او گفت: «اوایل به انجام این کار فکر می‌کردیم، اما زمان می‌برد؛ حدود یک هفته و نیم طول می‌کشید، و این مدت زیادی است که در قلمرو دشمن باشید.»
-دونالد ترامپ توضیح داد که «باید این حجم عظیم گرانیت را جابه‌جا کنید. می‌دانید، آنجا گرانیت است. گرانیت سخت‌ترین سنگ است. واقعاً شگفت‌انگیز است، چون بمب‌هایی که استفاده کردیم فوق‌العاده قدرتمند بودند. و یادتان نرود که علاوه بر آن، با موشک‌های تاماهاوک هم آنجا را زدیم.»
-او گفت فکر نمی‌کند خارج کردن آن مواد از ایران «لازم باشد، مگر از نظر روابط عمومی. به نظرم برای رسانه‌های جعلی مهم است که ما آن را به‌دست بیاوریم. من همان کسی بودم که گفتم آن را به‌دست خواهیم آورد، و به‌دستش هم می‌آوریم. حواسمان به آن هست.»
-ترامپ اشاره کرد که با «نیروی فضایی» آمریکا که ابتکار او بود همه تحرکات در اطراف سایت‌های هسته‌ای در ایران زیر نظر آمریکا است.
-او گفت «من ترجیح می‌دهم آن را به‌دست بیاوریم، اما مراقبش هستیم. دقیقاً می‌دانیم آنجا چه اتفاقی می‌افتد. چند روز پیش مردی تلاش کرد وارد آن گذرگاه شود. دیدیم دری کاملاً متلاشی شده بود. و ما از همه‌چیز خبر داریم. اگر هرگز حرکتی انجام دهند، و این را هم به آن‌ها گفته‌ام، اگر نیرویی بفرستند و ببینم کسی تلاش می‌کند، تنها کاری که می‌کنیم این است که با چند بمب دیگر آنجا را می‌زنیم و کار تمام می‌شود. آن‌ها چنین کاری نخواهند کرد.»
-ترامپ گفت: «به آن‌ها گفتم ما در آن محل، در آن سه سایت، ۲۴ ساعته ۹ دوربین داریم. دقیقاً می‌دانیم چه می‌گذرد. هیچ‌کس حتی به آن نزدیک هم نشده است. در ابتدا بررسی کردند و گفتند هیچ راهی وجود ندارد که کسی بتواند به آن غبار هسته‌ای برسد. اما با این حال، من ترجیح می‌دهم آن را داشته باشیم. ترجیح می‌دهم به‌دستش بیاوریم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75471)
 
 ---
 
