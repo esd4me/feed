@@ -3,7 +3,22 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
+
+<img src="https://cdn1.telesco.pe/file/UwEjwDv6FEivTuzhzitX4s5GFJz2HcHWW-S6YmgGP4cyNKcGaI5uSmEoBMRHM8BnHUp7c6qaDqJZ0f8lLMRoCp3bK1DESUsaOBWdNLK_0xgFg29CvbEayuaUYk2NI5lwGbjF1sxAyxHiCkamCMAdrEWAz7LwsqN8bG15aYx-79Sgr-hcc52UQguiXsOaeWcw0wfGGduSRAGoUoia2v7l6y1WmybmFwKWtzy8rJOoucGkpLchOqFlHvgF_ONCm083Dc47FjZRISK1TJMQ1OXVkBwxct13nSEs7qBjYeRL5rfncTZDB4er7zCE9kwLDCVpY2OADSxnBKAC6X74yFDDuQ.jpg" width="400"><br>
+
+دختر جمیله شفیعی:
+JamilehShafiei
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75501)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 
 
@@ -17,7 +32,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 
 
@@ -40,7 +55,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 <img src="https://cdn4.telesco.pe/file/qE2fnRhyeR8l5aUyHu6XErNnWQZ-jH5I9XdNREUPElv_9PZOzakUPqMXehYMoxB49PCjuFpZ5cI6vCC43nY0I3UgcuYMv34KiCOj9Eg0b9BBkilJt2G_c0rm-Zd-I9Mg9CU3vDct4m5euNYcyFK_mI5zwWWPhHyBydBXbJDlKJPommEpGpJIiB-lNsFEvBCR3KJybmT-Dc0wFJZHH4zU7PEVvN1CDKSzWAsbSJEWMfRLO0hyFR-dkvf_pzh8xKkE6W3CnAF2TQGKLicfImhuUqh7ddzSmKgRJZzJdnSzna9ppaEDYQ-P9mO802pZ3f-JdC3qmjjtyUfFGdpQL8yRmg.jpg" width="400"><br>
 
@@ -60,7 +75,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 <img src="https://cdn1.telesco.pe/file/c9lvg2J0qpRDf06ear7d467K36BTinIDlDrml6ZB6AwKqH413qRuxQtTxm_va2sDiAezEfQY4BDtkIUk05oWGqhEDM7zYxGvn5bffA_McT8TU31AhG2UiFw2ato4jFKeg5_zGRfYD7KNq8-eB6wKz8Wde8X86aVsQa16LNR4BB9fW15hIt_m6QjacE6p004rRDyDRtutHxW2J-P_PtmA0l9hFb_Lt8cEZ2R_dq61QfDF_3okI-5j67yToIH9FJxWPCgWN4Cdbny5Gyv-YUtqNcgXR-4zNcbLu7EDlRk240m5R_J2FjrOmfkW8P6i06dylxMEZhICUUP7_BwHOi6LGQ.jpg" width="400"><br>
 
@@ -94,7 +109,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 <img src="https://cdn4.telesco.pe/file/NzeAZeu8U8iHW7G3_EKrjvIvujhHS9elfV7-gutKX1LYu7r1u_0-XINQMa-TZk1WNZmIJ_RA2mIBpEkKnq7NnhxSH42oXkDLjAaHNS34VjT_0ZoJnATYH2UcgllwyoPlVKgkeruaLKGP7Gm8JsZ6EpB-_uoMNjeBmvQZnAx4qc97mrHYS92KgYjsUbRZBnhL6qqB11R-mdbuY4HeGC5SpoJEn1rJM8GzvcvJpYNxol6zVxEI0iLYtlfqPpIQWL2NTDI0ZiOMR39uMmtiXP7QH7EuXypyf9xpWeRXxNFT6hmiQS_EShcdN4dASpxqj5tD5QkKzVdoZDW3is1Yu-HQyA.jpg" width="400"><br>
 
@@ -111,7 +126,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 <img src="https://cdn4.telesco.pe/file/izOZS6aaaTapmyJEzcdoAOvh7mtwf91EsLRARm2cAJYr04UQjwG0tXZKBPe5WaaANcLwewVoKD9EJzR1cq1RUi6WANQ_jZELPX1_NraIOGq89UTXxglG2Rj2ZxQhJ5sb2RvFJj-U1j0B5GR4veVI-bIApCpAm0o2-yQm54lTOqan5Adt-0x187ZhtxzAA9TuZwx_9JuaPdRM7Y7_4fKIru1ryZxDTduCosGe7dLO9IuP4glY6hZWwaXThpKE-NuaJos9RgOchlN6Pq8AZ9jXyvi9UMm6BIysyjqWndd1fJxYSQKdCxAeq56LnkCTQTUqzrkV2RPygYSFfTlUrIPjHg.jpg" width="400"><br>
 
@@ -129,7 +144,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 <img src="https://cdn1.telesco.pe/file/l-KeD3KNP8JGb1Gel3OLKweyBinv7BYKaEQQVzTzDURWebfRX3zGiaYUnlbjwmk8V0nVH2YSNrGQ3QXR93CMT3y08Fzutsp_Xdj314TKUmyzVvuAk7usQlpBUzD65_AxoF88oFQyHh-2yw6l6-qwk1I8i-AnGOUUDS-BKaUeKFav_KX1E6TppjipvWrD_obFHxYOk0COgqWaOluhzeGnUtdxTHRn2mJ9P4EPZEQeSwEBsoAynj8-u2lpTIw_RH33zGIWi9pu_XMt4kusfCPTh38sZylVImtxL_54AImoSdCGTpivxyEqGbiTlOwcyJZpjkHwOweJRDOdS3apuqiDKg.jpg" width="400"><br>
 
@@ -146,7 +161,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 <img src="https://cdn1.telesco.pe/file/L-ky1DebhOO3Csuy_477KxfsWXbJKHyHEWi-t33Q64TwLfINJxbX6afZIoxj4aRQlyl-ALQEE9ALOKrUw7eVZap5H_bdpGd8HAkKo2--U_mZVqAWyA2q5n0jTQA9Bv3L8wPAXtDt3WUGUGjxkuk606P9xL0RBns7fKIs4Ffv-K1wiJsBnJnDW8sX3tGHM7bpbxLMVbSd9fwJDnJZDhsvNRUzni7hguKTqJjAIL_gDAZhqRLhgaXdCV0VwmAJKAoxMQ_uowNrlxz4LQX8QqSnr4ewNiXrxcm8kx9JYkNT1eldIVkphZ4JmtydOgPD5-m23Q2vcl1hgpoqZQ_3ZlAfVQ.jpg" width="400"><br>
 
@@ -163,7 +178,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 <img src="https://cdn4.telesco.pe/file/cp24fuugD4RzXWNsz0M1_rbzHYn-B5KX13SEKd4IBAQOGZrmujY0iYtyO9P5b90mlSP5NNBY1LmO5yy6dH5o4X0iWME65tWS8vx0wgW7_38ZKehgtD-eShH5cpRyaMapI1lV3Kat2ossopVFr8LnE9yPNQNIFwlYHb4_j1Iwo9YEBJASELMUirnRlnoboBiPrjNUU4J2FMBikTdt7o8EtX_VcSqcvYrU_sNR8FGjm_YhvacsTPHDNEj0KDtuPC4gkZaDeNCRb6wvdEmQub0T9wGNQSFzZ3-OKi77fQD4oSB4WirE2GfclKALoK2vPWN_Q8yLf5Sn6IiUkVN_9XqC6g.jpg" width="400"><br>
 
@@ -184,7 +199,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 17:25:45
+###### 🔵 Updated at: 2026-05-16 18:23:26
 
 
 
@@ -203,80 +218,6 @@ AzamBahrami
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75486)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-16 17:25:45
-
-<img src="https://cdn4.telesco.pe/file/IZoGPGEXHV9LRJuD8tVakSeJyfhT3TgH76tHD65HRVkusTFmHAgK0It26rk6VHvTHlbaz2gNfL4o7GiOryMkg28SFryI1F8KSxSChm8eZDhBHGCODswA4_JTAAgv5kuhju_E8Gx0_V5agSkubUbWHF4pRbN8UP8svDcikzqYxrc2iSWH5_T9RYsZCviVpx-9o8SpccKR1q_5f6rq3hdJnaSGBDlc0bu_NP1KACo6hhQnEGNzU4Pvh2dy_OHkR_EVcxfDVu3h0vD5tnbVpwCaxIb1te5Hnpuuj07wXA8GDThVTxYrlYSd9zbXHpL-B9m32Nx4KB4Za7BihYmxM3H1MQ.jpg" width="400"><br>
-
-وزیر خارجه پاکستان اعلام کرد که یازده شهروند پاکستانی و ۲۰ شهروند ایرانی که در کشتی‌های توقیف‌شده توسط آمریکا در آب‌های آزاد گرفتار شده بودند، به اسلام‌آباد منتقل می‌شوند.
-اسحاق دار افزوده که «تمامی این افراد از سنگاپور به بانکوک رسیده‌اند و اکنون سوار پروازی شده‌اند که قرار است اواخر امشب به اسلام‌آباد برسد. سپس بازگشت برادران ایرانی به وطن خود تسهیل خواهد شد».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75485)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-16 17:25:45
-
-<img src="https://cdn4.telesco.pe/file/VmSQ_HC9y4TQD2ukSQIiTF80MyWHtysHNDLIWfTM_qnJqehjKukIiJBpZDExIPA8yXgCiV8FOe75bewQemmVFn7qJnHH21TZ9UepUTrrSfnvxOfNsHHVM3gB8sKPufvECKmqqWwR2SXQu0tA-UJEg1ZQiVZwpTqFGOUNruT6hycT1t4stZFbdxAWEQHYnlj0L5OYS65ukYQ54mdhhCI59M_uRo0LteSoW8v56dCJHZlYgY3cIGfsmtsdEPkJYhbxdrBiNLmSUCXqTiDBm5lu6FGA_ueFkdctN3yBQLW7vfpIU7SZw6yrhJtg0jGrZkF-J8H72J8OztGr2lu_uwlorQ.jpg" width="400"><br>
-
-صدراعظم آلمان می‌گوید در جریان گفت‌و‌گوی تلفنی با دونالد ترامپ، رئیس‌جمهور آمریکا، هر دو بر سر ضرورت باز کردن تنگهٔ هرمز توسط ایران و ممانعت از دسترسی تهران به سلاح هسته‌ای، توافق داشته‌اند.
-فریدریش مرتس روز جمعه ۲۵ اردیبهشت در شبکهٔ ایکس نوشت که در مسیر بازگشت رئیس‌جمهور آمریکا از چین، «تماس تلفنی خوبی» با او داشته است.
-او افزود که آن‌ها توافق دارند که «ایران باید همین حالا پای میز مذاکره بیاید. باید تنگهٔ هرمز را باز کند. نباید اجازه داده شود تهران به سلاح هسته‌ای دست پیدا کند».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75484)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-16 17:25:45
-
-<img src="https://cdn1.telesco.pe/file/DD5HNhtOXihGqElCfmMn6POiKqfRGxc1WBBmmX4EkkJBoPyO9NBft33DnfaS0WccNdD7DzfqFNniyx0MDNv77-r9AjSRZUfDKzVXkod21HfQm2jBouCXmLlC_TfMZ1Bh_60D-xF9K_KYVXv4WL9pxdC6sRIcGHLV9ERPTnr73lYFRhcEaPddXct4rCSKEMxM1NJ2C6f1g6zkNMWEr7gn-c8EjpWyKOwkQWXOiwwjnzlfHS8bdz5jww0jksqbDK15rPoOHZtyozFfTawvNq2xmhGtxQOBX-jAeWeDPfr4oqvTyU9vKoWmdqnomYRsunVFZTSbLekrgLycSAcgY2hBAw.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه ۲۵ اردیبهشت در مسیر بازگشت از چین در پاسخ به خبرنگاران، درباره آخرین پیشنهاد ایران در مذاکرات هسته‌ای گفت که آن را «از همان جمله اول» رد کرده است.
-او با بیان اینکه محتوای ابتدایی این پیشنهاد «غیرقابل قبول» بوده، افزود: «حتی ادامه آن را هم نخواندم.» ترامپ تأکید کرد که صرف تعیین بازه زمانی مانند ۲۰ سال کافی نیست و آنچه اهمیت دارد، ارائه تضمین‌های واقعی و قابل اجرا از سوی ایران است.
-رئیس‌جمهوری آمریکا همچنین تصریح کرد که، هرگونه توافق باید شامل انتقال کامل مواد و سوخت هسته‌ای از ایران باشد و افزود که توافقی مبتنی بر «حرف‌های توخالی» قابل پذیرش نخواهد بود.
-@
-VahidOOnLine
-دونالد ترامپ در پاسخ به پرسشی درباره پیشنهاد اخیر جمهوری اسلامی گفت این پیشنهاد را بررسی کرده، اما به گفته او، اگر از جمله نخست یک متن خوشش نیاید، بقیه آن را کنار می‌گذارد.
-ترامپ در پاسخ به این پرسش که جمله نخست چه بوده است، آن را «غیرقابل قبول» توصیف کرد و گفت مسئله اصلی از نگاه او این است که ایران نباید «هیچ شکل» از برنامه هسته‌ای داشته باشد.
-در ادامه، خبرنگار از ترامپ پرسید آیا دوره ۲۰ ساله برای او کافی نیست. ترامپ پاسخ داد که «۲۰ سال کافی است»، اما به گفته او، سطح تضمین‌هایی که جمهوری اسلامی ارائه می‌دهد اهمیت دارد.
-ترامپ گفت که اگر قرار است توافقی ۲۰ ساله مطرح باشد، باید «۲۰ سال واقعی» باشد و نباید به گفته او، توافقی مبهم یا ظاهری باشد.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس جمهوری آمریکا روز جمعه ۲۵ اردیبهشت و در زمان بازگشت از چین به آمریکا در هواپیمای ایرفورس وان به خبرنگاران گفت با وجود آنکه نیروهای مسلح ایران در جنگ نابود شده‌اند، ممکن است نیاز به «یک پاکسازی کوچک» وجود داشته باشد.
-ترامپ ساعاتی پیش در گفتگویی با فاکس‌نیوز هم گفته بود که نیروهای مسلح جمهوری اسلامی در چهار هفته گذشته، تلاش کرده‌اند تا تعدادی از پرتابگرهای موشکی را از زیر خاک بیرون بکشند و جای بعضی تجهیزات را عوض کنند، با این حال «آمریکا قادر است در دو روز همه این‌ها را نابود کند.»
-@
-VahidOOnLine
-دونالد ترامپ در پاسخ به پرسشی درباره اینکه آیا شی جین‌پینگ، رئیس‌جمهوری چین، تعهدی قاطع برای فشار بر جمهوری اسلامی به منظور بازگشایی تنگه هرمز داده است، گفت از کسی «درخواست لطف» نمی‌کند.
-ترامپ گفت: «من درخواست هیچ لطفی نمی‌کنم، چون وقتی درخواست لطف می‌کنید، باید در مقابل لطفی انجام دهید.» او افزود که آمریکا به چنین کمکی نیاز ندارد.
-رئیس‌جمهوری آمریکا در ادامه گفت نیروهای مسلح طرف مقابل «اساسا از بین رفته‌اند» و ممکن است به گفته او «کمی کار پاکسازی» لازم باشد. او همچنین به آتش‌بس اشاره کرد و گفت این آتش‌بس به درخواست کشورهای دیگر انجام شد.
-ترامپ گفت شخصا چندان موافق آتش‌بس نبوده، اما آن را به عنوان لطفی به پاکستان پذیرفته است. او از مقام‌های پاکستانی، از جمله نخست‌وزیر و فیلدمارشال این کشور، با تعبیر «افرادی فوق‌العاده» یاد کرد.
-@
-VahidOOnLine
-دونالد ترامپ گفت آمریکا ممکن است در مقطعی برای حذف آنچه «گرد و غبار هسته‌ای» نامید وارد ایران شود. ترامپ در مسیر بازگشت به آمریکا و در هواپیمای ریاست‌جمهوری، ایر فورس وان، به خبرنگاران گفت: «در زمان مناسب، یا وارد می‌شویم یا آن را به دست می‌آوریم. فکر می‌کنم احتمالا آن را به دست می‌آوریم، اما اگر به دست نیاوریم، وارد خواهیم شد.»
-او افزود: «فکر می‌کنم آنها کاملا شکست خواهند خورد و ما هیچ خطری نخواهیم داشت. ما تجهیزات لازم برای خارج کردن آن را داریم، هیچ‌کس دیگر ندارد؛ شاید چین چنین تجهیزاتی داشته باشد.»
-ترامپ پیش‌تر نیز در ماه مارس در کاخ سفید درباره ذخایر اورانیوم غنی‌شده جمهوری اسلامی هشدار مشابهی داده و گفته بود: «یا آن را از آنها پس می‌گیریم یا آن را برمی‌داریم.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75479)
 
 ---
 
