@@ -3,7 +3,64 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
+
+
+
+"مجری شبکه سه تلویزیون: یک راکت ۲۰۰ دلاری می‌تواند کل ارتش آمریکا را در منطقه به زانو درآورد"  ویدیو با تیتر بالا در منابع جمهوری اسلامی منتشر شده و خانعلی‌زاده متوهم رو نشون میده که مطابق معمول چرندیاتی در سطح خودش میگه.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75500)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-16 17:25:45
+
+
+
+در یک برنامه زنده تلویزیونی که از شبکه افق صداوسیما پخش شده است، مجری برنامه با اسلحه واقعی به پرچم امارات متحده عربی شلیک می‌کند.
+در این برنامه که موضوع آن درباره آموزش شلیک با اسلحه کلاشنیکف است، فردی که لباس نظامی به تن دارد و صورت خود را با ماسک پوشانده است مراحل آماده‌سازی اسلحه و شلیک گلوله را به مجری آموزش می‌دهد.
+مجری برنامه هم در مرحله شلیک تصمیم می‌گیرد به پرچم امارات که در بنر مربوط به دکور استودیو، شلیک کند.
+@
+VahidHeadline
+صدا و سیمای جمهوری اسلامی جمعه چند برنامه پخش کرد که در آنها مجریان در بخش‌های استودیویی با در دست داشتن تفنگ ظاهر شدند و کار با سلاح‌های سبک آموزش داده شد. مجریان در این برنامه‌ها اعلام کردند که در صورت لزوم به جنگ خواهند پیوست.
+این برنامه‌ها که دست‌کم در سه بخش پخش شد، در رسانه‌های داخلی بازنشر و در شبکه‌های اجتماعی با واکنش‌هایی همراه شد. برخی کاربران شبکه‌های اجتماعی این بخش‌ها را نشانه‌ای از بسیج در شرایط جنگی توصیف کردند.
+جکسون هینکل، مفسر سیاسی آمریکایی، در شبکه اجتماعی ایکس نوشت تلویزیون دولتی ایران نحوه استفاده و شلیک با کلاشینکف را به‌عنوان «آمادگی برای تهاجم زمینی آمریکا» نشان می‌دهد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75499)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-16 17:25:45
+
+<img src="https://cdn4.telesco.pe/file/qE2fnRhyeR8l5aUyHu6XErNnWQZ-jH5I9XdNREUPElv_9PZOzakUPqMXehYMoxB49PCjuFpZ5cI6vCC43nY0I3UgcuYMv34KiCOj9Eg0b9BBkilJt2G_c0rm-Zd-I9Mg9CU3vDct4m5euNYcyFK_mI5zwWWPhHyBydBXbJDlKJPommEpGpJIiB-lNsFEvBCR3KJybmT-Dc0wFJZHH4zU7PEVvN1CDKSzWAsbSJEWMfRLO0hyFR-dkvf_pzh8xKkE6W3CnAF2TQGKLicfImhuUqh7ddzSmKgRJZzJdnSzna9ppaEDYQ-P9mO802pZ3f-JdC3qmjjtyUfFGdpQL8yRmg.jpg" width="400"><br>
+
+رسانه وابسته به قوه قضائیه جمهوری اسلامی اعلام کرد اموال ۵۱ نفر در استان یزد، با دستور قضایی و به اتهام آنچه «خیانت به وطن» و «همکاری با دشمن» خوانده شده، توقیف شده است.
+بر اساس این گزارش، پرونده این افراد در ارتباط با قانون موسوم به «تشدید مجازات جاسوسی و همکاری با رژیم صهیونیستی علیه امنیت و منافع ملی» در حال رسیدگی است و مقام‌های قضایی مدعی شده‌اند دارایی‌های توقیف‌شده قرار است برای «حفظ حقوق عامه» و بازسازی اماکن آسیب‌دیده از جنگ هزینه شود.
+اموال توقیف‌شده شامل حساب‌های بانکی، دارایی‌های منقول و غیرمنقول، سهام شرکت‌ها و حتی اموال وکالتی عنوان شده است.
+طبق گزارش میزان، از میان این ۵۱ نفر، ۲۰ نفر در داخل کشور حضور دارند و ۳۱ نفر دیگر در خارج از کشور به سر می‌برند.
+این اقدام در ادامه موج تازه‌ای از مصادره و توقیف اموال شهروندان و مخالفان سیاسی صورت می‌گیرد؛ روندی که در عمل به ابزاری برای فشار، ارعاب و مصادره دارایی افراد تحت عنوان‌های سنگینی مانند «خیانت» و «همکاری با دشمن» تبدیل شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75498)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn1.telesco.pe/file/c9lvg2J0qpRDf06ear7d467K36BTinIDlDrml6ZB6AwKqH413qRuxQtTxm_va2sDiAezEfQY4BDtkIUk05oWGqhEDM7zYxGvn5bffA_McT8TU31AhG2UiFw2ato4jFKeg5_zGRfYD7KNq8-eB6wKz8Wde8X86aVsQa16LNR4BB9fW15hIt_m6QjacE6p004rRDyDRtutHxW2J-P_PtmA0l9hFb_Lt8cEZ2R_dq61QfDF_3okI-5j67yToIH9FJxWPCgWN4Cdbny5Gyv-YUtqNcgXR-4zNcbLu7EDlRk240m5R_J2FjrOmfkW8P6i06dylxMEZhICUUP7_BwHOi6LGQ.jpg" width="400"><br>
 
@@ -37,7 +94,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn4.telesco.pe/file/NzeAZeu8U8iHW7G3_EKrjvIvujhHS9elfV7-gutKX1LYu7r1u_0-XINQMa-TZk1WNZmIJ_RA2mIBpEkKnq7NnhxSH42oXkDLjAaHNS34VjT_0ZoJnATYH2UcgllwyoPlVKgkeruaLKGP7Gm8JsZ6EpB-_uoMNjeBmvQZnAx4qc97mrHYS92KgYjsUbRZBnhL6qqB11R-mdbuY4HeGC5SpoJEn1rJM8GzvcvJpYNxol6zVxEI0iLYtlfqPpIQWL2NTDI0ZiOMR39uMmtiXP7QH7EuXypyf9xpWeRXxNFT6hmiQS_EShcdN4dASpxqj5tD5QkKzVdoZDW3is1Yu-HQyA.jpg" width="400"><br>
 
@@ -54,7 +111,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn4.telesco.pe/file/izOZS6aaaTapmyJEzcdoAOvh7mtwf91EsLRARm2cAJYr04UQjwG0tXZKBPe5WaaANcLwewVoKD9EJzR1cq1RUi6WANQ_jZELPX1_NraIOGq89UTXxglG2Rj2ZxQhJ5sb2RvFJj-U1j0B5GR4veVI-bIApCpAm0o2-yQm54lTOqan5Adt-0x187ZhtxzAA9TuZwx_9JuaPdRM7Y7_4fKIru1ryZxDTduCosGe7dLO9IuP4glY6hZWwaXThpKE-NuaJos9RgOchlN6Pq8AZ9jXyvi9UMm6BIysyjqWndd1fJxYSQKdCxAeq56LnkCTQTUqzrkV2RPygYSFfTlUrIPjHg.jpg" width="400"><br>
 
@@ -72,7 +129,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn1.telesco.pe/file/l-KeD3KNP8JGb1Gel3OLKweyBinv7BYKaEQQVzTzDURWebfRX3zGiaYUnlbjwmk8V0nVH2YSNrGQ3QXR93CMT3y08Fzutsp_Xdj314TKUmyzVvuAk7usQlpBUzD65_AxoF88oFQyHh-2yw6l6-qwk1I8i-AnGOUUDS-BKaUeKFav_KX1E6TppjipvWrD_obFHxYOk0COgqWaOluhzeGnUtdxTHRn2mJ9P4EPZEQeSwEBsoAynj8-u2lpTIw_RH33zGIWi9pu_XMt4kusfCPTh38sZylVImtxL_54AImoSdCGTpivxyEqGbiTlOwcyJZpjkHwOweJRDOdS3apuqiDKg.jpg" width="400"><br>
 
@@ -89,7 +146,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn1.telesco.pe/file/L-ky1DebhOO3Csuy_477KxfsWXbJKHyHEWi-t33Q64TwLfINJxbX6afZIoxj4aRQlyl-ALQEE9ALOKrUw7eVZap5H_bdpGd8HAkKo2--U_mZVqAWyA2q5n0jTQA9Bv3L8wPAXtDt3WUGUGjxkuk606P9xL0RBns7fKIs4Ffv-K1wiJsBnJnDW8sX3tGHM7bpbxLMVbSd9fwJDnJZDhsvNRUzni7hguKTqJjAIL_gDAZhqRLhgaXdCV0VwmAJKAoxMQ_uowNrlxz4LQX8QqSnr4ewNiXrxcm8kx9JYkNT1eldIVkphZ4JmtydOgPD5-m23Q2vcl1hgpoqZQ_3ZlAfVQ.jpg" width="400"><br>
 
@@ -106,7 +163,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn4.telesco.pe/file/cp24fuugD4RzXWNsz0M1_rbzHYn-B5KX13SEKd4IBAQOGZrmujY0iYtyO9P5b90mlSP5NNBY1LmO5yy6dH5o4X0iWME65tWS8vx0wgW7_38ZKehgtD-eShH5cpRyaMapI1lV3Kat2ossopVFr8LnE9yPNQNIFwlYHb4_j1Iwo9YEBJASELMUirnRlnoboBiPrjNUU4J2FMBikTdt7o8EtX_VcSqcvYrU_sNR8FGjm_YhvacsTPHDNEj0KDtuPC4gkZaDeNCRb6wvdEmQub0T9wGNQSFzZ3-OKi77fQD4oSB4WirE2GfclKALoK2vPWN_Q8yLf5Sn6IiUkVN_9XqC6g.jpg" width="400"><br>
 
@@ -127,7 +184,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 
 
@@ -151,7 +208,7 @@ AzamBahrami
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn4.telesco.pe/file/IZoGPGEXHV9LRJuD8tVakSeJyfhT3TgH76tHD65HRVkusTFmHAgK0It26rk6VHvTHlbaz2gNfL4o7GiOryMkg28SFryI1F8KSxSChm8eZDhBHGCODswA4_JTAAgv5kuhju_E8Gx0_V5agSkubUbWHF4pRbN8UP8svDcikzqYxrc2iSWH5_T9RYsZCviVpx-9o8SpccKR1q_5f6rq3hdJnaSGBDlc0bu_NP1KACo6hhQnEGNzU4Pvh2dy_OHkR_EVcxfDVu3h0vD5tnbVpwCaxIb1te5Hnpuuj07wXA8GDThVTxYrlYSd9zbXHpL-B9m32Nx4KB4Za7BihYmxM3H1MQ.jpg" width="400"><br>
 
@@ -168,7 +225,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn4.telesco.pe/file/VmSQ_HC9y4TQD2ukSQIiTF80MyWHtysHNDLIWfTM_qnJqehjKukIiJBpZDExIPA8yXgCiV8FOe75bewQemmVFn7qJnHH21TZ9UepUTrrSfnvxOfNsHHVM3gB8sKPufvECKmqqWwR2SXQu0tA-UJEg1ZQiVZwpTqFGOUNruT6hycT1t4stZFbdxAWEQHYnlj0L5OYS65ukYQ54mdhhCI59M_uRo0LteSoW8v56dCJHZlYgY3cIGfsmtsdEPkJYhbxdrBiNLmSUCXqTiDBm5lu6FGA_ueFkdctN3yBQLW7vfpIU7SZw6yrhJtg0jGrZkF-J8H72J8OztGr2lu_uwlorQ.jpg" width="400"><br>
 
@@ -186,7 +243,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-16 15:31:48
+###### 🔵 Updated at: 2026-05-16 17:25:45
 
 <img src="https://cdn1.telesco.pe/file/DD5HNhtOXihGqElCfmMn6POiKqfRGxc1WBBmmX4EkkJBoPyO9NBft33DnfaS0WccNdD7DzfqFNniyx0MDNv77-r9AjSRZUfDKzVXkod21HfQm2jBouCXmLlC_TfMZ1Bh_60D-xF9K_KYVXv4WL9pxdC6sRIcGHLV9ERPTnr73lYFRhcEaPddXct4rCSKEMxM1NJ2C6f1g6zkNMWEr7gn-c8EjpWyKOwkQWXOiwwjnzlfHS8bdz5jww0jksqbDK15rPoOHZtyozFfTawvNq2xmhGtxQOBX-jAeWeDPfr4oqvTyU9vKoWmdqnomYRsunVFZTSbLekrgLycSAcgY2hBAw.jpg" width="400"><br>
 
@@ -220,26 +277,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75479)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-16 15:31:48
-
-<img src="https://cdn4.telesco.pe/file/ED-cAblv5b59zhD71wWdTNKSYFj9tJ_YG6LOr4hHm77ZyMET8urJipAme77oBBQoLdaJH-BVdwW8dDLSAlkHl4IB-e2FLZuv8mU_Ow_i1J_2jOkOAmMp6LbupYp__Bw_z5SJ-SWsGnRN3dg0l4ICXStnQXJSiGo74Kc87GevTvcSyRM9VVIbD9Q-OBXNjM0di1w5Ro-OpMMMyO0_1ALY3ewl64wq8fyAku7UPxp3C4vUrOHdAmn0n2665KUQBuW46avY3MHZbR5ENIB2RLaKuUvQqkwGimQLN8vvxNaqFved9BcNu8NPt8qyCjeazaIjkUlyRtv-PMzxY1z-3hlamw.jpg" width="400"><br>
-
-نشست وزیران خارجهٔ کشورهای عضو بریکس در دهلی‌نو، پایتخت هند، به‌دلیل اختلاف‌نظر میان اعضا به‌خصوص بین ایران و امارات متحدهٔ عربی بر سر جنگ ایران، بدون صدور بیانیهٔ مشترک پایان یافت.
-به‌گزارش رویترز، هند روز جمعه ۲۵ اردیبهشت اعلام کرد به‌جای بیانیهٔ مشترک، «بیانیهٔ رئیس» منتشر شده است، زیرا برخی اعضا دربارهٔ تحولات خاورمیانه دیدگاه‌های متفاوتی داشتند.
-گروه بریکس شامل برزیل، روسیه، هند، چین، آفریقای جنوبی، اتیوپی، مصر، ایران، امارات متحدهٔ عربی و اندونزی است.
-روز پنجشنبه رسانه‌های ایران از تنش لفظی در این نشست خبر دادند و نوشتند عباس عراقچی، وزیر خارجه ایران، امارات را به مشارکت مستقیم در جنگ آمریکا و اسرائیل علیه ایران متهم کرد و گفت میزبانی پایگاه‌های نظامی آمریکا از سوی ابوظبی و همکاری امنیتی این کشور با اسرائیل، آن را به بخشی از جنگ تبدیل کرده است.
-روزنامهٔ لبنانی الاخبار نوشت که در مقابل، هیئت اماراتی خواهان آن بود که هر بیانیهٔ نهایی، حملات موشکی جمهوری اسلامی ایران به این کشور و توقیف کشتی‌ها را محکوم کند، در حالی که تهران بر درج محکومیت صریح حملات آمریکا و اسرائیل اصرار داشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75478)
 
 ---
 
