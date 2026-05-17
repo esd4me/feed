@@ -3,7 +3,21 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
+
+<img src="https://cdn1.telesco.pe/file/khg7pfEaW-RFmpELYKeepRIvbtM0UnqB5uyFmLGxoOurmunHtTIqJsuRYCcvbJTG46WjAJdg3hais6YuiH_VJXKX2Rs4VrbsyV9aM8MTJcOTaskBwtcoq3ZAkwCK4fUy25iEkz5UTxVBZd5N1XcsuXLyBLN9uI5FQJE2kvZGugBz8l28pF1-TwBz7GkJ9BSirAVrakFEVg5Pz3ShRO-L2KEKveoW9kGlGhrQY1amhIodvDb43a3srDAFhfDOVWOCLW5SaJ18u45ese9C1FsU9WoU1_zuALxptuzFhVsYO1a3hDCx9KKqHTCBkUhc_25pr_MH__yOy0-FYhnAICMuiA.jpg" width="400"><br>
+
+drpezeshkian
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75516)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 <img src="https://cdn1.telesco.pe/file/dvRzYGBHCpi-GIVfM0DBrZokQ1q6vVLF1ItciF2vQ7mt6bysyuq52V85sOY4zTuW_S_6Y37pSMDjVxgoIha843zh1Nl7AMgjbzW4w7yiQLbsauoPOGGXhpFTnQp_livqMDeq6XRiqzbE4wbsQoS3dEVYoiAy3umZ262iYNDfhH6j4U6m1Ifv09kDmmV_VCP2F1wAZ4ZERPgETjIzsZ7Amp3pdH1mFQ4sxztD-Me_LzKIO8PAFzcR1nbuhp2rDdXbvqwLs14dMvlux8w5awP-7vp5b8haBZ3kKMqFAm10636VevjuaB75xvLqxSFNFAixp-t848wfP5lOXXTX5cbkEw.jpg" width="400"><br>
 
@@ -23,7 +37,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 <img src="https://cdn4.telesco.pe/file/mZUAXwSH-9IIoQgpch2bE0P6HxmuxBRJWfOpgNkj-IM6DXETiuPtCz7JehQMUQ-pHsGRVVuCQWx-qEyR0Cd2GEoSwIlLqD3w8mZsPSDLaK_NqpPVCjd3OJq2nRy8RVjxdRIONERnDHHJOUQbye0JFBUDKqDx74IuW-hzIKl-5QhGvkCSP6qLAYq8-eUP-UgBYZXH3z-GCXmwRNaJwEWR8O58PI9PPMKvU0wi3_5TJwiax8Dm4O-ZML5mHz2eXWcFKRrjfa5vXyKUO4ioXY3gH1L5EXzsK07cx9XuoKMyrAbFzPKDeGMrUdzlrApY1ZZU1JcKweL5smRHwEyskroymg.jpg" width="400"><br>
 
@@ -46,7 +60,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 <img src="https://cdn4.telesco.pe/file/mv3aj6Kx5KeplKB5UmdGchuaJezI2odBxObQGygyLIPJCTAUtzQpJLMjFbItlXy0Xt0bHN5K_bV5PyVu1erUetGFGDwBMIES6_rMbt9eivZizJ55epbRGWRPYuDR62dqMh5f9KKF45ufKa4y27GBMWtvVWIcFz6tc2Vf3IczQQxtsfIr_6hQnkr1RJM7xV3KvU9cVRxmtlkcRBD2VBwtRNNTTaP5Mo35NepXrUHFIq7Ropk1chMYs87JPJv0yy-LjykRiJb8HgDSoN6LCbJ_WfW-bi1qIKfk33XZZa5nCFar4t-VU7L7N27TGHh0-qIhSdh-LR_gPhRS1vh4vWoTtg.jpg" width="400"><br>
 
@@ -62,7 +76,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 <img src="https://cdn4.telesco.pe/file/TPDR4UY_D5GBm9oO0tnLL9ADBJVMG5JO2tRJtRdVzVgDcBFtvW5Rgdncqv5GINRGGcyyJeO696VQtITLz39j-m-vOaV2FVRZ6x-adKQ26uBSV0kZKDJS5UAEEQ3fp86CvVfra3r4kKX6ynNawj-tVgcrHuBhb7ur9pgMHzzVqXUEDVbv6nOw3OQ_mMI0LqmQKaxnhRTzPfn6q-nF2RbiuqqaE3CA1ZZ9sAfRDRV5JFFRFj6CIsg-rFBXl6aCKVXz-xGgXolSPKUrrMMhCVvYQerqaxTnfXyGbfc9131POUR9FVUm7H8VC9oF7s-Do_uT-iKP-yQNDBp_bpHBIzacCA.jpg" width="400"><br>
 
@@ -81,7 +95,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 <img src="https://cdn4.telesco.pe/file/i3yqFzbm77ekMQe2hDokVvGYlwPfZpsEgfI1hy9SqjoSWTO8EYVgEL51P32HkIPOWnu-d1ks9tR_BGrIluGGiPNjuUZdsdSPVLD15qNrXlONr3EFT2pzmCU4tmW4VOKrqkDw_AbctHne4Jb9Et0bu649DhCEyjGJg4LtzcPLXzdwkCdmXGniU8wwYf3ZBiLCiS0k_qZd-wPCNmJHy7zdRM6HCvEAr0lGlPLtTwb5CmoLaOMY8kPYRfgpRTdWHJYG4snltilZA8YIfD5KgHSqa8bqgdDihILUXOoGbME2X5r3GaZ1YOcZZDh1h-rVR-0WgPtTpKkqzScFaB75vzZXCA.jpg" width="400"><br>
 
@@ -102,7 +116,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 <img src="https://cdn1.telesco.pe/file/ZSdILLGoIRnBJKi_L0H-ZUoqhDRSKa1s_jY-V9nEpx5KowmE7TsAGCGn8BHKCXPfN1HWDb0lwTbyR56B9wB7RpTrsol6H6z5p1fd720mlCMz3eNhIKR_gQOsw2vmJgz0EvavkXV2kyAZr4041sc9tnKz9Sk5J-yAm4_SHS5MlObK9rknGgHx5eG86rkC1Rle67t_Uo0-d0g0WSJiVEWTxhnGpGQfrY26wQGMFWWy4W2DS-99XcvWdhbY7J15JjYWiUty5GAmoNcNh5zs5H-fhTN11L0QGEJO_i-AlcaxYFstqZUbvyP5u0S1CG_H8Cjuxreh_CdBydjPO2cU_be9Lw.jpg" width="400"><br>
 
@@ -126,7 +140,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 <img src="https://cdn1.telesco.pe/file/Ks47G7a5a-HH12ME9vgMHPeyW7yBa4nTJL4V-S6nnUS9KI6S3vaoyxGsfq45wlICPamitAsZudVXbJo-88_N83T0TQgTMxVACfOTN83M4FK4R5VV0ttB4NVF33OcFbY1qyO4uTOofpqxaaktMqUqavZQ4OaJSLTaEg20SxbaEBHT6EN-O03lBPCSN1fpTt9rXOh0eVp9F9GRHnE3sY0M-kn9Tu625ycE5zgnwJhxmUfHlkMM2OPPTDgoYzi0nErQFVRhvWDt-ciIJt4KFBTgIpqMG8Ec4gGk9tfDWWR-xMHX-4VUgBYJ39Xx7L_PRUerNOJl-GpbxQ925Hki3eVFbA.jpg" width="400"><br>
 
@@ -144,7 +158,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 
 
@@ -162,7 +176,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 <img src="https://cdn1.telesco.pe/file/aCqWK-cadKW2igF4rg_Vp76SS8O3UuQYx10WtxOZUqBYDQ-tfSrtnraPNEa3LU4CopcwnI652pQ9Wq6uE9Frk_0efd1-x0FDcx0KqifuCLz5dPl56We7TJsZSSeFmrjju6oBW7A3vrAhWyEVVtw6yCFmRqcc3zvS1tZUY7XRf3ACJ3OXEKdvZ0JoTf6SLnP54_4oQVsBSqG591iKE2GiJLzhxS8eXJ9oqPDTh0cbL77JFuEBf7PHtv-gExuKtgSjdrn1F3D3d3ZEiEhdSqBCNqANWy397SFv4-gy-kzrmexA1fdL0CWjqeoPLNxnJCcxMOmKgtNR08Q-cuDmPk3SJA.jpg" width="400"><br>
 
@@ -177,7 +191,7 @@ JamilehShafiei
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 
 
@@ -191,7 +205,7 @@ JamilehShafiei
 
 
 
-###### 🔵 Updated at: 2026-05-17 17:46:50
+###### 🔵 Updated at: 2026-05-17 19:01:16
 
 
 
@@ -209,60 +223,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75499)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-17 17:46:50
-
-<img src="https://cdn4.telesco.pe/file/B3SEaMk5QvtALKY7styW-lngOBBf-UHM8HPX38whil4Vv5CQa034JXCCy3MruqIijc3D0HqzEgDbKIBLhZ9SmAgnGnY9QytzxIfd9YDaxSkIISxbO6mJBJ2gJy4lTfS1h5H47KykjhbgNXlo5jtdFFz0w_zxcBJbxyaaFi-d1PmuTsl3ipkQpItqVcIg4EjZjZLQqGZaGiJzeF58yCVl6H_EE2ifGjbdMJUkcWX0Sxuf5aD1S1jw2b7khby6l7EenjP_FlGTbxkm7SMClBZRcTknMsuJp9McbXU7jbQATg0mjjkGmz657DkU_IVAkImSEC8nDKDLM2DFHPQwcI8FIw.jpg" width="400"><br>
-
-رسانه وابسته به قوه قضائیه جمهوری اسلامی اعلام کرد اموال ۵۱ نفر در استان یزد، با دستور قضایی و به اتهام آنچه «خیانت به وطن» و «همکاری با دشمن» خوانده شده، توقیف شده است.
-بر اساس این گزارش، پرونده این افراد در ارتباط با قانون موسوم به «تشدید مجازات جاسوسی و همکاری با رژیم صهیونیستی علیه امنیت و منافع ملی» در حال رسیدگی است و مقام‌های قضایی مدعی شده‌اند دارایی‌های توقیف‌شده قرار است برای «حفظ حقوق عامه» و بازسازی اماکن آسیب‌دیده از جنگ هزینه شود.
-اموال توقیف‌شده شامل حساب‌های بانکی، دارایی‌های منقول و غیرمنقول، سهام شرکت‌ها و حتی اموال وکالتی عنوان شده است.
-طبق گزارش میزان، از میان این ۵۱ نفر، ۲۰ نفر در داخل کشور حضور دارند و ۳۱ نفر دیگر در خارج از کشور به سر می‌برند.
-این اقدام در ادامه موج تازه‌ای از مصادره و توقیف اموال شهروندان و مخالفان سیاسی صورت می‌گیرد؛ روندی که در عمل به ابزاری برای فشار، ارعاب و مصادره دارایی افراد تحت عنوان‌های سنگینی مانند «خیانت» و «همکاری با دشمن» تبدیل شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75498)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-17 17:46:50
-
-<img src="https://cdn1.telesco.pe/file/Ta1OUmGdgBFoK6e_iMlJD85jafRE_bvnMGrUYTznISFbiQ5KH0gqRnRUqEDJo855uu-uk24scb5m-nQrR_r0cF1Bai9NvFgho4jZrp-qVmW1sFnEFg8-3mbSDXVt3UgJZu1GYZT_FoMpkIckdbuoJClMtxqphu_HA5DlPRWJXixuDHSP_hHKmYlAdUYiQZYU5qNcvxEheV0YdnBhqm-Cv0JghT5QRZE0REUES-D4d2h0ZKNIlx1862GN0F_fN1r65aCVFEKKc43T4i_PPtxJMvO3Vv7lmLs1Zm031GHREwes-e1H2MZmVDBtjh3nWh27yxuSQiE3ndEnfdb4pfHC5Q.jpg" width="400"><br>
-
-دونالد ترامپ با اشاره به افزایش هزینه‌های اقتصادی ناشی از تقابل با جمهوری اسلامی، از آمریکایی‌ها خواست این فشار کوتاه‌مدت را تحمل کنند و گفت جلوگیری از تهدید حکومت ایران اولویتی بالاتر از پیامدهای کوتاه‌مدت اقتصادی دارد.
-او تاکید کرد: «متاسفم که این فشار را تحمل می‌کنید، اما باید جلوی این گروه بسیار دیوانه را بگیریم.»
-رییس‌جمهوری آمریکا در بخش دیگری از این مصاحبه گفت حکومت ایران از نظر نظامی به‌شدت آسیب دیده و بار دیگر تاکید کرد: «آن‌ها دیگر نیروی دریایی ندارند. نیروی هوایی ندارند. همه‌چیز نابود شده است. نیروی هوایی‌شان از بین رفته است.»
-او تاکید کرد: «تنگه باز خواهد شد. آن‌ها سلاح هسته‌ای نخواهند داشت و دنیا ادامه خواهد یافت.»
-رییس‌جمهوری آمریکا گفت به درخواست مقام‌هایی از پاکستان، مرحله نهایی عملیات علیه ایران را متوقف کرده است. او گفت: «آن‌ها گفتند: می‌توانید متوقف شوید؟ ما قرار است به توافق برسیم. و واقعاً چارچوب یک توافق را داشتیم؛ بدون برنامه هسته‌ای.»
-ترامپ در ادامه تاکید کرد تهران پذیرفته بود مواد باقی‌مانده از برنامه هسته‌ای خود را تحویل دهد، اما بعد از هر توافق عقب‌نشینی کرده است. او گفت: «هر بار توافق می‌کنند، روز بعد انگار می‌گویند چنین گفت‌وگویی نداشته‌ایم. این حدود پنج بار اتفاق افتاده است. مشکلی در آن‌ها وجود دارد. واقعاً دیوانه‌اند. و به همین دلیل نمی‌توانند سلاح هسته‌ای داشته باشند.»
-رییس‌جمهوری آمریکا در بخش دیگری از مصاحبه، در پاسخ به این پرسش که آیا توان و مقاومت حکومت ایران را دست‌کم گرفته، گفت: «هیچ‌چیز را دست‌کم نگرفتم. ما به‌شدت به آن‌ها ضربه زدیم.»
-ترامپ تاکید کرد آمریکا عمداً بخشی از زیرساخت‌های ایران را هدف قرار نداده است و افزود: «پل‌هایشان را باقی گذاشتیم. زیرساخت برق‌شان را باقی گذاشتیم. می‌توانیم همه آن را در دو روز نابود کنیم؛ همه‌چیز.» او گفت به تاسیسات نفتی و برخی زیرساخت‌ها در خارک حمله نشده، زیرا آسیب به آن‌ها می‌توانست موجب از بین رفتن نفت شود.
-رییس‌جمهوری آمریکا درباره وضعیت مذاکرات با جمهوری اسلامی گفت افرادی که آمریکا با آن‌ها در حال گفت‌وگو است، به گفته او «منطقی» به نظر می‌رسند، اما توان یا آمادگی لازم برای تصمیم‌گیری ندارند.
-ترامپ در پاسخ به این پرسش که آمریکا در حال حاضر با چه کسانی در ایران طرف است، گفت: «با افرادی طرف هستیم که فکر می‌کنم منطقی هستند، اما از توافق می‌ترسند. نمی‌دانند چطور توافق کنند. قبلاً در چنین موقعیتی نبوده‌اند.»
-او در پاسخ به این سوال که آیا تا زمان دستیابی به توافق صبر خواهد کرد، تاکید کرد: «من کاری را انجام می‌دهم که درست باشد. باید کار درست را انجام دهم.»
-او همچنین گفت مقام‌های ایرانی به او گفته‌اند محل نگهداری مواد هسته‌ای به‌شدت هدف قرار گرفته و «کوه گرانیتی» روی آن فرو ریخته است. ترامپ افزود: «آن‌ها گفتند فقط دو کشور می‌توانند به آن دسترسی پیدا کنند؛ ما و چین. گفتند خودشان توانایی دسترسی ندارند چون کاملاً نابود شده است.»
-ترامپ گفت: «نمی‌توان اجازه داد ایران سلاح هسته‌ای داشته باشد. آن‌ها از آن علیه ما استفاده خواهند کرد. اول اسرائیل را نابود می‌کنند، بعد خاورمیانه را، بعد اروپا را.»
-او درباره افزایش قیمت سوخت در آمریکا گفت فشار اقتصادی ناشی از بحران کوتاه‌مدت خواهد بود و افزود: «وقتی مردم توضیح کامل را می‌شنوند، همه موافق می‌شوند. این یک درد کوتاه‌مدت خواهد بود.» ترامپ گفت پس از پایان بحران، قیمت انرژی «مثل سنگ سقوط خواهد کرد.»
-رییس‌جمهوری آمریکا در پاسخ به نگرانی‌ها درباره افزایش فشار اقتصادی بر خانواده‌های آمریکایی در پی جنگ با ایران و رشد هزینه‌ها، گفت شهروندان باید این فشارها را تحمل کنند زیرا به گفته او هدف، مقابله با تهدیدی بزرگ‌تر است.
-ترامپ در واکنش به این موضوع که برخی آمریکایی‌ها افزایش هزینه‌ها و بدبینی اقتصادی را احساس می‌کنند، گفت: «باید تحمل کنند و باور داشته باشند که ما آن‌ها را به نقطه بهتری می‌رسانیم. اما من باید کار درست را انجام دهم.»
-ترامپ در ادامه، فشارهای اقتصادی ناشی از بحران را با ضرورت مقابله با جمهوری اسلامی مرتبط دانست و گفت: «به مردم گفتم متاسفم که این فشار را تحمل می‌کنید، اما باید جلوی این گروه بسیار دیوانه را بگیریم.»
-رییس‌جمهوری آمریکا همچنین گفت کشتی‌های حامل نفت ایران که چین در روزهای اخیر خارج کرده، با اجازه واشینگتن حرکت کرده‌اند. او گفت: «ما اجازه دادیم این اتفاق بیفتد.»
-ترامپ در پایان در پاسخ به این پرسش که آیا حکومت ایران در نهایت عقب‌نشینی خواهد کرد گفت: «بله، قطعاً. هیچ شکی ندارم.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75494)
 
 ---
 
