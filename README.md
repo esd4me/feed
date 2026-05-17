@@ -3,7 +3,130 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-17 16:14:23
+###### 🔵 Updated at: 2026-05-17 17:46:50
+
+<img src="https://cdn1.telesco.pe/file/dvRzYGBHCpi-GIVfM0DBrZokQ1q6vVLF1ItciF2vQ7mt6bysyuq52V85sOY4zTuW_S_6Y37pSMDjVxgoIha843zh1Nl7AMgjbzW4w7yiQLbsauoPOGGXhpFTnQp_livqMDeq6XRiqzbE4wbsQoS3dEVYoiAy3umZ262iYNDfhH6j4U6m1Ifv09kDmmV_VCP2F1wAZ4ZERPgETjIzsZ7Amp3pdH1mFQ4sxztD-Me_LzKIO8PAFzcR1nbuhp2rDdXbvqwLs14dMvlux8w5awP-7vp5b8haBZ3kKMqFAm10636VevjuaB75xvLqxSFNFAixp-t848wfP5lOXXTX5cbkEw.jpg" width="400"><br>
+
+محسن نقوی، وزیر کشور پاکستان، عصر امروز با محمدباقر قالیباف، رئیس مجلس ایران در تهران دیدار و گفت‌وگو کرد.
+رسانه‌های ایرانی و پاکستانی گزارش داده‌‌اند که آقای نقوی برای از سرگیری مذاکرات به ایران سفر کرده است.
+گفته شده او حامل پیام‌ آمریکاست و پاسخ ایران را هم دریافت خواهد کرد.
+به گفته سفارت پاکستان در تهران، آقای نقوی دیروز پس از ورود به تهران «نزدیک به سه ساعت در نهاد ریاست جمهوری حضور داشت» و اسکندر مومنی، وزیر کشور، و عباس عراقچی، وزیر امور خارجه نیز «در جریان این دیدار در نهاد ریاست جمهوری حضور داشتند.»
+علاوه بر این، محسن نقوی «دیداری خصوصی» با مسعود پزشکیان داشت که «حدود ۹۰ دقیقه به طول انجامید و با حضور وزیر کشور ایران همراه بود.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75514)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-17 17:46:50
+
+<img src="https://cdn4.telesco.pe/file/mZUAXwSH-9IIoQgpch2bE0P6HxmuxBRJWfOpgNkj-IM6DXETiuPtCz7JehQMUQ-pHsGRVVuCQWx-qEyR0Cd2GEoSwIlLqD3w8mZsPSDLaK_NqpPVCjd3OJq2nRy8RVjxdRIONERnDHHJOUQbye0JFBUDKqDx74IuW-hzIKl-5QhGvkCSP6qLAYq8-eUP-UgBYZXH3z-GCXmwRNaJwEWR8O58PI9PPMKvU0wi3_5TJwiax8Dm4O-ZML5mHz2eXWcFKRrjfa5vXyKUO4ioXY3gH1L5EXzsK07cx9XuoKMyrAbFzPKDeGMrUdzlrApY1ZZU1JcKweL5smRHwEyskroymg.jpg" width="400"><br>
+
+خبرگزاری فارس با انتشار متنی مدعی شد جزئیاتی از پاسخ آمریکا به پیشنهادهای ایران در جریان مذاکرات به دست آورده است؛ گزارشی که در آن از پنج شرط اصلی واشنگتن برای توافق با تهران سخن گفته شده است.
+براساس شنیده‌های فارس، شروط اعلام‌شده از سوی آمریکا شامل موارد زیر است:
+۱- عدم پرداخت هرگونه غرامت و خسارت از سوی آمریکا
+۲- خروج و تحویل ۴۰۰ کیلوگرم اورانیوم از ایران به آمریکا
+۳- فعال ماندن تنها یک مجموعه از تاسیسات هسته‌ای ایران
+۴- عدم پرداخت حتی ۲۵ درصد از دارایی‌های بلوکه‌شده ایران
+۵- منوط‌شدن توقف جنگ در همه ساحتها به انجام مذاکره
+به گفته فارس، در مقابل، ایران انجام هرگونه مذاکره را منوط به تحقق پنج پیش‌شرط اعتمادساز دانسته است: «پایان جنگ در همه جبهه‌ها به‌ویژه لبنان»، «رفع تحریم‌های ضدایرانی»، «آزادسازی پول‌های بلوکه‌شده ایران»، «جبران خسارات ناشی از جنگ» و «پذیرش حق حاکمیت ایران بر تنگه هرمز».
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75513)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-17 17:46:50
+
+<img src="https://cdn4.telesco.pe/file/mv3aj6Kx5KeplKB5UmdGchuaJezI2odBxObQGygyLIPJCTAUtzQpJLMjFbItlXy0Xt0bHN5K_bV5PyVu1erUetGFGDwBMIES6_rMbt9eivZizJ55epbRGWRPYuDR62dqMh5f9KKF45ufKa4y27GBMWtvVWIcFz6tc2Vf3IczQQxtsfIr_6hQnkr1RJM7xV3KvU9cVRxmtlkcRBD2VBwtRNNTTaP5Mo35NepXrUHFIq7Ropk1chMYs87JPJv0yy-LjykRiJb8HgDSoN6LCbJ_WfW-bi1qIKfk33XZZa5nCFar4t-VU7L7N27TGHh0-qIhSdh-LR_gPhRS1vh4vWoTtg.jpg" width="400"><br>
+
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در کانال تلگرامی خود اعلام کرد که کتاب «قدرت مذاکره» او به چاپ پنجم رسیده و در چاپ جدید این کتاب، بخش جدیدی با عنوان «دیپلماسی زیر آتش» درباره روند «مذاکرات غیرمستقیم با آمریکا در جنگ ۱۲ روزه» به آن افزوده شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75512)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-17 17:46:50
+
+<img src="https://cdn4.telesco.pe/file/TPDR4UY_D5GBm9oO0tnLL9ADBJVMG5JO2tRJtRdVzVgDcBFtvW5Rgdncqv5GINRGGcyyJeO696VQtITLz39j-m-vOaV2FVRZ6x-adKQ26uBSV0kZKDJS5UAEEQ3fp86CvVfra3r4kKX6ynNawj-tVgcrHuBhb7ur9pgMHzzVqXUEDVbv6nOw3OQ_mMI0LqmQKaxnhRTzPfn6q-nF2RbiuqqaE3CA1ZZ9sAfRDRV5JFFRFj6CIsg-rFBXl6aCKVXz-xGgXolSPKUrrMMhCVvYQerqaxTnfXyGbfc9131POUR9FVUm7H8VC9oF7s-Do_uT-iKP-yQNDBp_bpHBIzacCA.jpg" width="400"><br>
+
+اداره رسانه‌ای ابوظبی روز یک‌شنبه ۲۷ اردیبهشت در شبکه‌های اجتماعی از وقوع آتش‌سوزی در نیروگاه اتمی براکه در امارات متحده عربی خبر داد.
+این آتش‌سوزی پس از حمله پهپادی به نیروگاه اتمی برکه در منطقه الظَفرَه آغاز شده، اما کشته و مجروح بر جا نگذاشته است.
+بر اساس توضیح اداره رسانه‌ای ابوظبی، این حریق در ژنراتور برق خارج از محدوده پیرامون نیروگاه به راه افتاده و بر ایمنی سایت اثر منفی نداشته است.
+در پی آغاز حمله مشترک آمریکا و اسرائیل به خاک ایران، امارات متحده عربی به بزرگ‌ترین هدف حملات تلافی‌جویانه سپاه پاسداران تبدیل شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75511)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-17 17:46:50
+
+<img src="https://cdn4.telesco.pe/file/i3yqFzbm77ekMQe2hDokVvGYlwPfZpsEgfI1hy9SqjoSWTO8EYVgEL51P32HkIPOWnu-d1ks9tR_BGrIluGGiPNjuUZdsdSPVLD15qNrXlONr3EFT2pzmCU4tmW4VOKrqkDw_AbctHne4Jb9Et0bu649DhCEyjGJg4LtzcPLXzdwkCdmXGniU8wwYf3ZBiLCiS0k_qZd-wPCNmJHy7zdRM6HCvEAr0lGlPLtTwb5CmoLaOMY8kPYRfgpRTdWHJYG4snltilZA8YIfD5KgHSqa8bqgdDihILUXOoGbME2X5r3GaZ1YOcZZDh1h-rVR-0WgPtTpKkqzScFaB75vzZXCA.jpg" width="400"><br>
+
+خبرگزاری فارس، نزدیک به سپاه پاسداران، روز یک‌شنبه ۲۷ اردیبهشت نوشت که محمدباقر قالیباف، رئیس مجلس شورای اسلامی و عضو سابق سپاه، به عنوان نماینده ویژه ایران در امور چین تعیین شده است.
+این خبرگزاری امنیتی بدون هیچ توضیح دیگری تنها نوشته است:‌ «پیشتر علی لاریجانی و عبدالرضا رحمانی‌ فضلی چنین مسئولیتی را برعهده داشتند.»
+🔸
+در این خبر نه توضیح داده شده که چه کسی یا چه نهادی قالیباف را به این سمت منصوب کرده است و نه برهه کنونی چه اهمیتی دارد که حکومت تصور کرده است به این نماینده ویژه نیاز دارد.
+اعلام تعیین قالیباف به عنوان نماینده ویژه در امور چین دو روز پس از دیدار رسمی رئیس جمهور آمریکا از کشور چین رخ می‌دهد که در آن یکی از موضوعات گفت‌وگو ایران و تنگه هرمز بود.
+کاخ سفید روز پنجشنبه ۲۴ اردیبهشت اعلام کرد دونالد ترامپ، رئیس‌جمهور آمریکا، و شی جین‌پینگ، رئیس‌جمهور چین، در دیدار خود درباره گسترش همکاری‌های اقتصادی، باز ماندن تنگه هرمز و جلوگیری از دستیابی ایران به سلاح هسته‌ای گفت‌وگو و توافق کردند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75510)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-17 17:46:50
+
+<img src="https://cdn1.telesco.pe/file/ZSdILLGoIRnBJKi_L0H-ZUoqhDRSKa1s_jY-V9nEpx5KowmE7TsAGCGn8BHKCXPfN1HWDb0lwTbyR56B9wB7RpTrsol6H6z5p1fd720mlCMz3eNhIKR_gQOsw2vmJgz0EvavkXV2kyAZr4041sc9tnKz9Sk5J-yAm4_SHS5MlObK9rknGgHx5eG86rkC1Rle67t_Uo0-d0g0WSJiVEWTxhnGpGQfrY26wQGMFWWy4W2DS-99XcvWdhbY7J15JjYWiUty5GAmoNcNh5zs5H-fhTN11L0QGEJO_i-AlcaxYFstqZUbvyP5u0S1CG_H8Cjuxreh_CdBydjPO2cU_be9Lw.jpg" width="400"><br>
+
+جلسه دادگاه صادق ساعدی‌نیا، مدیر کافه‌های زنجیره‌ای ساعدی‌نیا که در اعتراضات سراسری دی ماه گذشته به همراه پدرش، محمدعلی ساعدی‌نیا، بازداشت شده بود در دادگاه انقلاب قم برگزار شد.
+کافه‌های ساعدی‌نیا از جمله کسب‌وکارهایی بود که در اعتراضات دی ماه پارسال که با اعتراض بازار به نابسامانی اقتصادی آغاز شد، مغازه‌هایشان را تعطیل کردند.
+نماینده دادستان قم در این جلسه آقای ساعدی‌نیا را به «فعالیت تبلیغی یا رسانه‌ای برخلاف امنیت کشور»، «اقدام عملیاتی برای گروه‌های معاند نظام از طریق انتشار استوری و فعالیت مجازی و حضور در تجمعات غیرقانونی و تعطیل کردن کافه‌ها و مغازه‌های خود در کل کشور و تشویق تعدادی از کارکنانش در ارتکاب جرایم علیه امنیت کشور» متهم کرد.
+به گفته نماینده دادستان و قاضی، موارد اتهامی بر مبنای اطلاعاتی است که از محتوای لوازم الکترونیکی ضبط شده از آقای ساعدی‌نیا و از جمله تصاویر و چت‌های او در واتساپ استخراج شده است.
+نماینده دادستان گفت که آقای ساعدی‌نیا در واتساپ خود «برنامه‌ریزی برای تعطیلی کافه‌ها را همزمان با صدور فراخوان دشمن به مشورت گذاشته بود.»
+قاضی به او گفت: «شما با فراخوانی که داده‌اید با اقداماتی که انجام داده‌اید، این تعداد جوان را به این مهلکه وارد کرده‌اید و نظام متحمل صدمات زیادی شده است. چطور می‌توانید جبران کنید؟»
+@
+VahidHeadline
+نماینده دادستان، مواردی از جمله فعالیت‌های ساعدی‌نیا در فضای مجازی، تهیه کلیپی از یکی از کارکنانش با نوشته «جاوید شاه» روی دست، ایجاد و مدیریت گروه واتساپی کارکنان کافه‌ها، انتشار پیام صوتی درباره خاموش کردن گوشی برای جلوگیری از ردیابی، حضور برخی کارکنان در اعتراضات و برنامه‌ریزی برای تعطیلی کافه‌ها و کارخانه‌ها همزمان با فراخوان‌های اعتراضی را از مصادیق اتهامات مطرح‌شده علیه او عنوان کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75509)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-17 17:46:50
 
 <img src="https://cdn1.telesco.pe/file/Ks47G7a5a-HH12ME9vgMHPeyW7yBa4nTJL4V-S6nnUS9KI6S3vaoyxGsfq45wlICPamitAsZudVXbJo-88_N83T0TQgTMxVACfOTN83M4FK4R5VV0ttB4NVF33OcFbY1qyO4uTOofpqxaaktMqUqavZQ4OaJSLTaEg20SxbaEBHT6EN-O03lBPCSN1fpTt9rXOh0eVp9F9GRHnE3sY0M-kn9Tu625ycE5zgnwJhxmUfHlkMM2OPPTDgoYzi0nErQFVRhvWDt-ciIJt4KFBTgIpqMG8Ec4gGk9tfDWWR-xMHX-4VUgBYJ39Xx7L_PRUerNOJl-GpbxQ925Hki3eVFbA.jpg" width="400"><br>
 
@@ -21,7 +144,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-17 16:14:23
+###### 🔵 Updated at: 2026-05-17 17:46:50
 
 
 
@@ -39,9 +162,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-17 16:14:23
+###### 🔵 Updated at: 2026-05-17 17:46:50
 
-<img src="https://cdn1.telesco.pe/file/UwEjwDv6FEivTuzhzitX4s5GFJz2HcHWW-S6YmgGP4cyNKcGaI5uSmEoBMRHM8BnHUp7c6qaDqJZ0f8lLMRoCp3bK1DESUsaOBWdNLK_0xgFg29CvbEayuaUYk2NI5lwGbjF1sxAyxHiCkamCMAdrEWAz7LwsqN8bG15aYx-79Sgr-hcc52UQguiXsOaeWcw0wfGGduSRAGoUoia2v7l6y1WmybmFwKWtzy8rJOoucGkpLchOqFlHvgF_ONCm083Dc47FjZRISK1TJMQ1OXVkBwxct13nSEs7qBjYeRL5rfncTZDB4er7zCE9kwLDCVpY2OADSxnBKAC6X74yFDDuQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aCqWK-cadKW2igF4rg_Vp76SS8O3UuQYx10WtxOZUqBYDQ-tfSrtnraPNEa3LU4CopcwnI652pQ9Wq6uE9Frk_0efd1-x0FDcx0KqifuCLz5dPl56We7TJsZSSeFmrjju6oBW7A3vrAhWyEVVtw6yCFmRqcc3zvS1tZUY7XRf3ACJ3OXEKdvZ0JoTf6SLnP54_4oQVsBSqG591iKE2GiJLzhxS8eXJ9oqPDTh0cbL77JFuEBf7PHtv-gExuKtgSjdrn1F3D3d3ZEiEhdSqBCNqANWy397SFv4-gy-kzrmexA1fdL0CWjqeoPLNxnJCcxMOmKgtNR08Q-cuDmPk3SJA.jpg" width="400"><br>
 
 دختر جمیله شفیعی:
 JamilehShafiei
@@ -54,7 +177,7 @@ JamilehShafiei
 
 
 
-###### 🔵 Updated at: 2026-05-17 16:14:23
+###### 🔵 Updated at: 2026-05-17 17:46:50
 
 
 
@@ -68,7 +191,7 @@ JamilehShafiei
 
 
 
-###### 🔵 Updated at: 2026-05-17 16:14:23
+###### 🔵 Updated at: 2026-05-17 17:46:50
 
 
 
@@ -91,9 +214,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-17 16:14:23
+###### 🔵 Updated at: 2026-05-17 17:46:50
 
-<img src="https://cdn4.telesco.pe/file/qE2fnRhyeR8l5aUyHu6XErNnWQZ-jH5I9XdNREUPElv_9PZOzakUPqMXehYMoxB49PCjuFpZ5cI6vCC43nY0I3UgcuYMv34KiCOj9Eg0b9BBkilJt2G_c0rm-Zd-I9Mg9CU3vDct4m5euNYcyFK_mI5zwWWPhHyBydBXbJDlKJPommEpGpJIiB-lNsFEvBCR3KJybmT-Dc0wFJZHH4zU7PEVvN1CDKSzWAsbSJEWMfRLO0hyFR-dkvf_pzh8xKkE6W3CnAF2TQGKLicfImhuUqh7ddzSmKgRJZzJdnSzna9ppaEDYQ-P9mO802pZ3f-JdC3qmjjtyUfFGdpQL8yRmg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/B3SEaMk5QvtALKY7styW-lngOBBf-UHM8HPX38whil4Vv5CQa034JXCCy3MruqIijc3D0HqzEgDbKIBLhZ9SmAgnGnY9QytzxIfd9YDaxSkIISxbO6mJBJ2gJy4lTfS1h5H47KykjhbgNXlo5jtdFFz0w_zxcBJbxyaaFi-d1PmuTsl3ipkQpItqVcIg4EjZjZLQqGZaGiJzeF58yCVl6H_EE2ifGjbdMJUkcWX0Sxuf5aD1S1jw2b7khby6l7EenjP_FlGTbxkm7SMClBZRcTknMsuJp9McbXU7jbQATg0mjjkGmz657DkU_IVAkImSEC8nDKDLM2DFHPQwcI8FIw.jpg" width="400"><br>
 
 رسانه وابسته به قوه قضائیه جمهوری اسلامی اعلام کرد اموال ۵۱ نفر در استان یزد، با دستور قضایی و به اتهام آنچه «خیانت به وطن» و «همکاری با دشمن» خوانده شده، توقیف شده است.
 بر اساس این گزارش، پرونده این افراد در ارتباط با قانون موسوم به «تشدید مجازات جاسوسی و همکاری با رژیم صهیونیستی علیه امنیت و منافع ملی» در حال رسیدگی است و مقام‌های قضایی مدعی شده‌اند دارایی‌های توقیف‌شده قرار است برای «حفظ حقوق عامه» و بازسازی اماکن آسیب‌دیده از جنگ هزینه شود.
@@ -111,7 +234,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-17 16:14:23
+###### 🔵 Updated at: 2026-05-17 17:46:50
 
 <img src="https://cdn1.telesco.pe/file/Ta1OUmGdgBFoK6e_iMlJD85jafRE_bvnMGrUYTznISFbiQ5KH0gqRnRUqEDJo855uu-uk24scb5m-nQrR_r0cF1Bai9NvFgho4jZrp-qVmW1sFnEFg8-3mbSDXVt3UgJZu1GYZT_FoMpkIckdbuoJClMtxqphu_HA5DlPRWJXixuDHSP_hHKmYlAdUYiQZYU5qNcvxEheV0YdnBhqm-Cv0JghT5QRZE0REUES-D4d2h0ZKNIlx1862GN0F_fN1r65aCVFEKKc43T4i_PPtxJMvO3Vv7lmLs1Zm031GHREwes-e1H2MZmVDBtjh3nWh27yxuSQiE3ndEnfdb4pfHC5Q.jpg" width="400"><br>
 
@@ -140,75 +263,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75494)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-17 16:14:23
-
-<img src="https://cdn4.telesco.pe/file/otXJD3HKUFpgIWWi37jaduEKGDad3u0kR8LIAmXojPAa40sseW0VXVgKfWd3vS900BM-mVip2-o0kHoRPm8n3ICCXdvOiLQ0e2TicR1x-XvgDV_WzJkRar3zxTTZDwuaYUkjL0jcfRPjdLDoylk7DjG8HovtKHGtybh-rrz3cDQ-sS9pgUKq1z_IlOyOStBTcqqjBwwVI9Fn4LjhxWe4h07wywIaYbBxcd2uGNcdAACbMDrSmh5o6xYaq2sBqyFwpnvEmrUD3MqQiSaNJXqBApG7voCWv0ABFFWVgsGmG7MHxU8wVWEX0GhjuA63qRHK0HwFbQqR4f_yDV5RZ7vR2A.jpg" width="400"><br>
-
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، در واکنش به بالا رفتن قیمت انرژی در آمریکا، در ایکس نوشت: «در حال حاضر، افزایش قیمت بنزین و حباب بازار سهام را کنار بگذارید. درد واقعی زمانی آغاز می‌شود که بدهی آمریکا و نرخ وام‌های مسکن شروع به جهش کنند.»
-او نوشت همین حالا هم میزان ناتوانی در بازپرداخت وام خودرو به بالاترین سطح خود در بیش از ۳۰ سال گذشته رسیده است، اما تمام این‌ها قابل اجتناب بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75493)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-17 16:14:23
-
-<img src="https://cdn4.telesco.pe/file/ZTA1fU3EWb_frn0ZJDxYU9gfF48EFVEI4op76PAtKQnYqOZlr2SDosabJobJ-q_bXxUu9lApuDq8k7uUwj5LBGpMTdQi3iI2tkWew3Fb5Ru-TNzZDqb5cbrPrHEDQjVBY_FhiVYfGCaY3XF7GnL4hpeJfTAP9-_sSOdST3TbN1thP_EzkkCY93snKNtp087DaWI-_QGZw94sKQg832jqUBo_fA_c9ExmHpSN-7GhH7NAeDeSILCxnalItHm6kbMmTcbyTAVLxwqqKO2RdBse1DhX1XevIRyKasxgwdXhQ1VlT1q2DKzKh9_5NT8lcsCiv8yWxACuDr2-H08W-0ZqXQ.jpg" width="400"><br>
-
-‌ نماینده چین در سازمان ملل و و رئیس دوره‌ای شورای امنیت، از پیش‌نویس قطعنامه پیشنهادی آمریکا و بحرین درباره تنگه هرمز انتقاد کرد و گفت که «محتوا و زمان‌بندی آن مناسب نیست و تصویبش کمکی نخواهد کرد.»
-به گزارش رویترز، این پیش‌نویس قطعنامه از ایران می‌خواهد که حملات و مین‌گذاری در تنگه هرمز را متوقف کند. اما دیپلمات‌ها گفتند که اگر این قطعنامه به رای گذاشته شود، احتمالا با وتوی روسیه و چین روبه‌رو خواهد شد.
-دو کشور ماه گذشته نیز قطعنامه مشابه مورد حمایت آمریکا را وتو کرده بودند و متن آن را علیه ایران «جانبدارانه» خواندند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75492)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-17 16:14:23
-
-<img src="https://cdn1.telesco.pe/file/PO3T0xnh7IgzdakJ0fPZTLxlv2e5Z5JgDspBeQOHYwuFTYemUAzhUaL6ot3Zdjb7BpWu9ypBcBXf-SdKJNqKyN7V-7ymkLL-dOdz5OINq6rSjb7159h-dTmdeFahDW8CotvRE-bCZtyi0zjHejOqANOuZNPDUE20GbO8FoCcA-I2Oj-WZAV0ePLFgBbYf22Q0I6XwLZdHX8JFDABYiResKN1vIJXi9UFiCRckEkVkEpvoG_lHu-pIF7qURR6L3HvCkC7VME--PrdCAiCkVH8-LM-vmSrmrMsPHqzJDx8dvSd4ezPpTlsDIrb0ibRbL_r0d3gU5QB1r49oB_cJ4TmlQ.jpg" width="400"><br>
-
-فرزند عبدالرحیم موسوی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی، گفت که جنازه پدرش که در نخستین روز حملات اسرائیل و آمریکا به دفتر خامنه‌ای کشته شد، نزدیک به ۳۰ روز زیر آوار مانده بود.
-موسوی پس از کشته شدن محمد باقری در جنگ ۱۲ روزه، به‌عنوان رییس ستاد کل نیروهای مسلح منصوب شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75491)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-17 16:14:23
-
-<img src="https://cdn1.telesco.pe/file/m8N1TuUdk-gGAJh2O0PmIkgafevDJQUUqhqDRRv8mx-WYeYZgJENjkbVVAbHrjMDbUBqdKC7Z1_r4mIWuTvJ4pjE41AlVNXEMf1wCV02SKsCGE9uIaWrxfSpqXlqx-I-QGQpC97ZwEfrN320fyXAumSqCzr8uqsjy9y31ZGl0IP-pv1UgvfGDZcA1pEOJg1xrrUl0fmMm8bItcuXTv0FloahbpPsO6nQjxvyZIbpk8a4V-nfX2xLYvCkiklNKvOEGDZCdJqquXTc1aU_iND-Pnv6a2TqjL4lL2dCZYHndBv1xE-pPN-_HgoU3pt5Zu14raiBiBQrnJzHkz4NuWMK5A.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل در بیانیه‌ای اعلام کردند ارتش این کشور، عزالدین حداد، فرمانده شاخه نظامی حماس، را در یک حمله هوایی هدف قرار داده است.
-عزالدین حداد، از فرماندهان ارشد گردان‌های عزالدین قسام، شاخه نظامی حماس است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75488)
 
 ---
 
