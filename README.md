@@ -3,7 +3,173 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+
+
+دونالد ترامپ، رییس‌جمهور آمریکا سه‌شنبه به خبرنگاران در کاخ سفید گفت ممکن است مجبور شویم دوباره به  ایران ضربه بزنیم، مطمئن نیستم.
+او گفت منظورم این است که دو یا سه روز، شاید جمعه، شنبه، یکشنبه، چیزی در این حدود، شاید اوایل هفته آینده؛ یک بازه زمانی محدود، چون نمی‌توانیم اجازه دهیم آن‌ها سلاح هسته‌ای جدید داشته باشند.
+رییس‌جمهور آمریکا ادامه داد که او دوشنبه تنها یک ساعت با تصمیم‌گیری برای انجام یک حمله فاصله داشت، اما این حمله را به تعویق انداخت.
+او افزود جمهوری اسلامی برای رسیدن به توافق التماس می‌کند.
+ترامپ درباره جنگ گفت: «همه به من می‌گویند این کار محبوب نیست، اما من فکر می‌کنم خیلی محبوب است».
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75555)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+
+
+در پی کارزار ایران‌اینترنشنال برای یافتن هویت پیکر جاویدنامان در بیمارستان الغدیر تهران، ویدیویی از لحظه قتل جاویدنام آیدا عقیلی به دست ما رسیده است.
+آیدا عقیلی، ۳۴ ساله، شامگاه ۱۸ دی ۱۴۰۴ در شرق تهران با شلیک دو گلوله ماموران به سرش کشته شد که پیکر او را پیچیده در پتویی چهارخانه در حیاط پشتی بیمارستان الغدیر یافتند.
+@
+VahidOOnLine
+مربوط به این تصاویر تکان‌دهنده: @
+VahidOnline
+این ویدیوی دلخراش: @
+VahidOnline
+اعتراض‌های چهارشنبه ۱۷ دی:@
+VahidOnline
+#بیمارستان_الغدیر
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75554)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+<img src="https://cdn4.telesco.pe/file/mvgThDxGVe9wREfpAVrf45Xiks25QZ3V8uFRWAnSZ9ZSBmIlPzrxz-uiqAvlCFLkIqAK5DjTxas-4J4Rv8Xw821RpHWJaZwGAAl5e_JVo4Zc9X865OTtscvN76t6QWUPxtlL46yfHXOBGAtyIsdAcng8NiXZEYGsIQrr4je1zK8QWF9vaQmZT4WWqqW4oP1iHiiljeP5Vsl1_EZdtLqEq-PWwtDjTX7GUL3FXRgZjQwAP5utQfRhb6cJoRAhhEkw3QJAaJnXgtdqmzZnNDrXrJenUku4dzAtDVZeQfNrBwlHOVyNnZLHnrjjKY_WeufM5pOp3Gz-KOCxrW0RFmGT2w.jpg" width="400"><br>
+
+آرش زاد
+:
+آمار نشون می‌ده در سه ماه گذشته یک پاکسازی طبقاتی دیجیتال در ایران رخ داده. در این مدت سهم اندروید از ترافیک اینترنت ۲۵٪ افت و آیفون ۱۸۰٪ رشد داشته. این به معنی خروج میلیون‌ها کاربر طبقه متوسط و پایین از فضای آنلاینه. اونی که آیفون داره از پس هزینه کانفیگ یا اینترنت پرو برمیاد، اونی که نداره، اونقدر دغدغه مالی مختلف داره که عطای اینترنت رو به لقاش می‌بخشه.
+
+[View Post](https://t.me/VahidOnline/75553)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+<img src="https://cdn4.telesco.pe/file/wA8hFAbeYjXR_kUbazudYCENFwEL2uyQY-VnP91Fvxprx-oKxEjh724qdTTwfi1O6tlkTppQbUziAx-KH51B2YDY9JvlGVpEVgCsMzJVeptNz3tyiF0Vilb-GxgwbHgQbzV1ut-Bknzu-5lTMtsgjEChN6mKjqS4VsB7tI90Sj2-pwJCkuVqgHis05soTTejigZMF_m2UuD7CvuOMha6U91NholUe27zZJHT9dXyHtcVrYmV8Q6t6OaHcvkpTSt00-RMVHhII2bgAOlWdJ1wXfQpZV7j8f-HUEiyZdiQSO9TC5xzQfP_rDv7EGiN8VR_n0gX2kMg3AL1Y7bQyOd_Xg.jpg" width="400"><br>
+
+خبرگزاری دولتی ایرنا در گزارشی تصویری با عنوان «مهر مادری به عمر چهل روز»، داستان زنی را منتشر کرد که در جریان جنگ ۴۰ روزه، سرپرستی یک نوزاد رهاشده در بیمارستان را برعهده گرفته است.
+در این گزارش، برای نخستین‌بار تصاویری از یک زن ایرانی بدون پوشش سر منتشر شد؛ موضوعی که بازتاب گسترده‌ای در افکار عمومی یافت.
+با این حال، دقایقی پس از انتشار این گزارش، چهار تصویری که در آن زن بدون پوشش سر دیده می‌شد، از خروجی وب‌سایت ایرنا حذف شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75552)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+<img src="https://cdn1.telesco.pe/file/bEXUp1nNNEyPlKDdYHx_HUY0W735IcjwqoHNX_C4HwNfObdAhwlFRsTxoXJQOckHx7Qz6OkbZxcJ9QPJRId24p77DHyIrpogA7o06QQ9VD7OqGOsolg5Nd7NaF_GkzRZha38xpHf_ImGMA_d77k5L8drFeHeVjwu7qF3KVdCytgQXHRXEcZjLqcB7G7k5HLsBXoN7mRCIjNlSQSwQLYgscpRZU6m4h1sfskIpn9WHTINNVdgoq23kjBhgmoa1Ayh5yvqCfleqKXTuoYbbJdU3zz9qYMCx82JeKNovYEdhGX_Er5lHHnpycX-CZAFRBSzWRgdPw2YCEdvMaZK9AdVbg.jpg" width="400"><br>
+
+هتل عامری‌های کاشان، یکی از بزرگ‌ترین مجموعه‌های هتلینگ سنتی در این شهر تاریخی، به دلیل آنچه «عدم رعایت حجاب اجباری» عنوان شده، پلمپ شد.
+@
+VahidHeadline
+پیش‌تر پیامی دریافت کرده بودم درباره اینکه فقط رستورانش رو بستند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75551)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+<img src="https://cdn4.telesco.pe/file/F_ACG7pYJHMP-_XCA-VE5BwMtUai3Mn6BQ21hZDZZZag8S-7NFzxVQLgEfv1LGvRrL5SPbIbOQH-EP-sreA9gZKqBU11kqdUxQ2_VVq9FsS_1ow_W0FIeh8wJOudQwTP_52BrS3gbshisv2hvuxX73lDIPthcSNPsKPpwtJeua9FXZJuIal54-lY8U5HiotmlvnbOAYfxEwIKxo4dmntPnTO9GSSZRUWIRgQjdgpdR5RHlx5OBmbsOKZDyX2nWEf0j-1fGpnnABVX05kMTyJTS49nHZhvJ60XgPtx3Y04ur0DOSLx5thHNI-ALdZU0oUlGEJk4uXW0kSnHIGP1jxiQ.jpg" width="400"><br>
+
+ایووت کوپر، وزیر خارجه بریتانیا روز سه‌شنبه ۲۹ اردیبهشت هشدار داد که جهان دیگر نمی‌تواند بیش از این برای بازگشایی تنگه هرمز صبر کند  و ادامه بسته‌ماندن آن امنیت غذایی کشورهای آسیب‌پذیر را با بحران جدی‌تری روبه‌رو می‌کند.
+وزارت خارجه بریتانیا روز سه‌شنبه اعلام کرد کوپر در کنفرانس جهانی مشارکت‌ها در لندن، با اشاره به پیامدهای بحران جنگ ایران بر انرژی، کود کشاورزی و قیمت مواد غذایی، خواستار فشار فوری بین‌المللی برای بازگشایی تنگه هرمز شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75550)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+<img src="https://cdn4.telesco.pe/file/J-ZXrgwN9OT7r0YiSgEblIfNMrMRg8WIk0ZuISS1ZiTKDVRkoY7PcX9e4aGVFUrlc7-6pz4yhCmc_p2Q3Ab7waPkDCCnaiRo6r9aHnF_ovTsGT_eBih1YoPU6qBtKWa2K46E4xflDvQrhIs90sB6KXE4TBgFH0_tjeykZdhXzRMnfzpBJY4dn3CTdILGcFTlun4zYfEGH7CCf0Li90x6GmBc_g99Q7aKAwqwcxgVt1jTmem3hgEqLeXGatCmC6oD2yATDWSOZsLJgPZv1SiH1_8wC2sa9kRAYZzuul7qZarUEU3qk_CTUFYRxsA4_V9edqEImFlVnYyzbKvzG-hL5Q.jpg" width="400"><br>
+
+معاون وزیر خارجه ایران می‌گوید تهران در پیشنهادهای اخیر خود به آمریکا برای پایان جنگ میان دو کشور، خواستار برخورداری از حق غنی‌سازی، خاتمه جنگ در تمام جبهه‌ها از جمله لبنان و خروج نیروهای آمریکایی از محیط پیرامونی ایران شده است.
+کاظم غریب‌آبادی که روز سه‌شنبه ۲۹ اردیبهشت برای ارائه گزارشی در مورد روند مذاکرات میان تهران و واشینگتن، در کمیسیون امنیت ملی و سیاست خارجی مجلس حاضر شده بود، از دیگر شروط ایران را «رفع محاصرهٔ دریایی آمریکا، آزادسازی اموال و دارایی‌های ایران، تأمین خسارت‌های وارد شده در جنگ توسط ایالات متحده جهت بازسازی و خاتمه تمامی تحریم‌های یکجانبه و قطعنامه‌های شورای امنیت» اعلام کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75549)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+<img src="https://cdn4.telesco.pe/file/sohqcrfNbnR5d7wFnzmK6C7C7zqZ0Xg7B0bkoJ08JHwTdR1oMWxt7YJtZ7gVN3qeO9NhU4DfKv4lahif9N0EyRq2F4LFh0DbPrVvOvfMQ33k-94SnAt94yC-WiS0r4e7fPZY6VWLkgBUlBDB1_6OvoKhWvKq6gLnN5mgHAibUG5KO_tWFZWtLDR-T--Flj_4V9jVkUZUGS9wdn7rvFaPFZ1j_OaLLslcYRjjUyjBrZDhU69qpTQ_Bcuw3GaCawst_SN-b1vEBpoPUj7Hgxz_dh1ti-P_qut3if0rhi9WX4FrlgwxmX_jVmCSOcXzJsXHXcyi8PlpE5d_6RIcvrweTA.jpg" width="400"><br>
+
+سازمان «کمک به گروگان‌ها در سراسر جهان» دوشنبه شب اعلام کرد شهاب دلیلی، زندانی سیاسی و کاپیتان پیشین شرکت کشتی‌رانی ایران، پس از آزادی از زندان اوین از طریق ایروان به واشینگتن منتقل شده و به خانواده‌اش پیوسته است.
+این سازمان اعلام کرد دلیلی پس از گذراندن بیش از یک دهه «بازداشت غیرقانونی» در ایران، اکنون در سلامت کامل قرار دارد.
+شهاب دلیلی که ساکن آمریکا بود، سال ۱۳۹۵ خورشیدی برای مراسم خاکسپاری پدرش به تهران سفر کرده بود اما هنگام بازگشت توسط نیروهای امنیتی بازداشت شد.
+خانواده او گفته بودند جمهوری اسلامی او را با اتهام‌هایی از جمله «جاسوسی» و «همکاری با دولت متخاصم» به ۱۰ سال حبس محکوم کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75548)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
+
+<img src="https://cdn4.telesco.pe/file/EJHTNqEvTGDr-QgQhum7hIGKK1leDkT6r9b-UYwa-RZauIYj5MhVvyjWINT0Hpo6ExsmF3Go7AFzTRVuIJB6-4m3ykF01k-IO1BOybUFWEaoyY310SW4nMpV4Pzqt94BwydGNTayOxu_RLIgPEF_JcwVqmSwWF0BIX2c0t5RjMokI8QRI7FXVMQZ9FvRfclkKPU8j3qruZnqrOHeYUdAyXsP2Nzk6S0laelgsIDzVHSJ7UM4xsww0_sD-RSKMJRsK8HhBWZbJxoy2kvCS43oPuT5zU4CvY7Nd-ve-mH8QSMM2H1ti81QUE4ehtqmMGK-TKCsZZZgto-ln6zRJqEydg.jpg" width="400"><br>
+
+حامد تیزرویان، عکاس حیات‌وحش و فعال محیط زیست، در ساری بازداشت شده است.
+به گفته زینب رحیمی، روزنامه‌نگار حوزه محیط زیست، آقای تیزرویان روز ۱۴ اردیبهشت ۱۴۰۵، بازداشت شده و موبایل و دیگر وسایل الکترونیکی او ضبط شده است.
+اتهام مطرح‌شده علیه آقای تیزرویان «اجتماع و تبانی با هدف اقدام علیه امنیت ملی» عنوان شده است.
+بازداشت او در پی انتشار مطالبی انتقادی درباره کشتار معترضان در دی‌ماه و همچنین اعتراض به اعدام‌ها در شبکه‌های اجتماعی صورت گرفته است.
+آقای تیزرویان از عکاسان برجسته و سرشناس حیات وحش است و ثبت عکس‌های کمیاب از حیات وحش ایران از جمله خرس قهوه‌ای و مرال به عنوان گونه‌های‌ در معرض خطر انقراض، بخشی از کارنامه کاری این عکاس حیات وحش است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75547)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
 <img src="https://cdn1.telesco.pe/file/t10jZT2f_sZFHFbfV7TM1bZd31Jb3Hf3m3Kd6y4lri82mYvwNDGL_7JczPNdepNtHdYkMMnaP8EPUiFa5ZRfQO8vIN5mG77gWNVVN6OMcRw2CYXA6AYd4zRDm_sl6nK0F1LyqZ4hitLZIcwt4MtERE5SdGIbJvMXg9x6FcvR9wUeGZsyA1XpLzARHvwhZJ2IaIs3ZUtHA3xALrTYs5s8JTigU_z4v7nio0TcdThzMx-xPpYCY6imqC-KFIJh8DoS0Sb8Hd6tPca8lsBhvmKflsHbs2DPq69qWL28rN-r2b7fsGZfYsq0UY79PpXqHaXaEqmB28vclE16nCdikoe6Lw.jpg" width="400"><br>
 
@@ -17,7 +183,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
 <img src="https://cdn1.telesco.pe/file/GRvuwAde7EkhXDtlHHnRdGk5kSVzOPj6aJcsGgCl4pfM48iTDagfjkDMM9ttQxELCrPw4zx6g76TMYO5lgxzpxaRB_Q9RDUUr9uxsdjygUlgsvvyJHeGL0DoZgTERM6S0r4vl58q1wurgGU6ETli2DNaKnxNcU3oYjl3mVCKruJq53jXP8CLAmMh_TlBQoOm-7Vohr9uDR9E8qE7zEZQZWdGiu2CPIVQAOYBY8QqnyreI9-9Skl5Kpy1V2uE8E1n_oOcTO09qIr_PdYpN-3MTVvlDK1HRvPdCaDIyUI_RwSwWRM-1pUQLWh72nfSCJXn2CrLA2FPrfojFvgiZhL0fg.jpg" width="400"><br>
 
@@ -42,7 +208,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
 <img src="https://cdn1.telesco.pe/file/TeBYXBo8x1B1zLLqNI6H2jIBhXW7P6REanEjmc4Y7S67R5FhLLD8V8o7NsQRlmGc58siam1PSOTl_Gtsb6b8ZSKr9NPYEoOMQpueDeMalI3LON1wf4Y3l96yQTj2ceVvzQu971ns7_AhxHv-o0ydJWJWALjS4gzALXnQaaohHLlNihIjLUCsF-LJDIOnve4xzkkkGEfXxMpuwQHptcN5RGI4T6m_cGDfsruTBJhYLxN4XiiJ_Y8vqY24BT7X4GetmMUdma2Rbda4HAB928NZvwXW6ZODY_9uYU6t9j-rAvEzM0Mb6l-it8Foi_B-KijFIgDPMepN_srDa9mJTByjng.jpg" width="400"><br>
 
@@ -64,7 +230,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
 <img src="https://cdn1.telesco.pe/file/s1XF_bVFFcjg87NF8HCMOdNpbKbbf7dFJnd769huSzl4OzDv4J67cYKiQ0Cen-2FnB6JWZTpMt9sdClasbsLAT-cSHtHPWZyjJRHt95z-ZqAQIojjEfdBEWPXEMxxvLPqPxetMKsKRW_rzR7ptgxMkU3_3JemDsYi7cIEXVicq-t4R8YJ_tOfXHqZbrxBWCQCbh9Yr8weRYBrFU-V4HmYea_xJpxMy8kdBUfl6QykXtw2RGOGcwz-wwiUmsHjF--SvU9m_mzsN5tRfYM1xnlyQ8DcNoRJxJlapG7dVnzwIkCsw1QTbukFaX0BTMensG8djasi5u3c7NxU3re4ILLJw.jpg" width="400"><br>
 
@@ -82,7 +248,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
 <img src="https://cdn1.telesco.pe/file/BTPJNjC7o1I5qrFTvWjpZmgSDqInSsVxsBvh3Ygqp6i64rrRf846i0wzK4mhQXlBS15rSHKPlwYIbM37cIBZi_5nNiPDp-5nVRKo-YI1-Lt4Uh1wRT5NK-WWzPcjQGTl1bzgRBNJMiXiS2Bsut5CLNSDqtxnSU_ZabFEnPUijjjsmhGz_LPbxywLJeJHA8Jz7mgxgUgwQMxgO2gtobnCm50mRApDPjsEeysPD73AciBtYs-rJPyas4p6wkaJeMQSAXfT0lI41IkHt5zjstrTB7d1arOSqTZW2QwPHAKgHhH9CjoTqMxRWpTgz6XPO2-AnkMOUeqeMWoS-NJ7wdt26g.jpg" width="400"><br>
 
@@ -109,7 +275,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
 <img src="https://cdn1.telesco.pe/file/KrLlgvSzf0JMzHGuwoSKhGjbsPD-AH0TrQtTPE6rokSfkrg8ntZT_07raUTI_9g0LmBPgR_2qUcruL3wlWljlr_aLWez5UfiECyhXWrpmjmQRQAeps5EPjnt0G9rsJhdW93K_5z7phmPjbXUhyZny0mJDnMEebjMncECcsSZNKVYYOwyROvu9ybLmDCCsflUoYauyBSZXOUEV5EOz6JRrDlpj0f1OGwX2kHI920662Nz13DWGqDJkoM8RN7kbiPkUh-yl9MHwqH9cuZWV8ts2jF9ec2XEwyo1ejRdKE9YZmM79ItpujhSnG1KNdM_E2LsKKU1mq-8rZTW4iddtyneg.jpg" width="400"><br>
 
@@ -127,9 +293,9 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
-<img src="https://cdn4.telesco.pe/file/ileLRG9T0lYNPzk2zBBZ1k4Gy-6MYChDWrIjanxIh_V2tUDXGfq-f8Yd7QQt8BbVp-cyTjZ4pq7sZa4MHitQXk13U5PBIEC7fGW-YGmr7aCaNfSqGDraymy1HyPNfRupvcQDrP5ZZPvin7AmDwjIoEotOlPYP90KipLlMd6rO3lZ5g92K5oHsavojqVy35Xtu1v03mNzRRGS_nutf8XgetuTnSLzxtcDDC19LdnHY4rwaDRfVfBtXVdKVy1bkqf6zqpTk6OEZD5IC9VnqphdNfiWJwbc2o8UZamJ2IAOffA6zp0DBK7RKQbau4o0OLuR4v9pS75kNGOWgInPyWRfYQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/FEfl4IRQ-uNdyDPp-jLxNxQ11vJR3JcJ41TOfR4h2j-JGSAy018W5brj-s7PX4up4YEX5JWAKdYmGnrpwKdkGgNlTsXSURUAnNi3uhNcQHZF8D-FKbTErPcU21qOltsT8Kv_GKmVd1VJBbpTJez-FZ6-yvApNjkTKL_0P9h10hGoM5K82lnqDLvpyUpm_J1Tu0xWjc4g6NncoztFj4FmGuZkjetC7lI5M1IOhCMnVvk1k-g2Y4aUt-Kd1UfjnI3uct6i9F07jkBNxmau7qVltHbHV1KBgSRu2v0hwFsMavEq51V-aeiplLU_5SzI3efoVOeWtLZQdrNBwy-q_AM7Dg.jpg" width="400"><br>
 
 مدیر مرکز روابط عمومی وزارت بهداشت جمهوری اسلامی، روز دوشنبه ۲۸ اردیبهشت مدعی شد که در حمله اسراییل به بیت خامنه‌ای «اتفاق خاصی» برای مجتبی خامنه‌ای نیفتاده و زخم‌های او نه چهره‌اش را مخدوش کرده و نه به قطع عضو انجامیده است.
 @
@@ -143,9 +309,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
-<img src="https://cdn4.telesco.pe/file/DMVc2Ne4To0nG0A73Pq6CPMyeT26p7WfLCdhm0o89Zv8dYiu_cjp64lKp7_6wOcFL18LP8sdyimJECkD8mHTMgcHHOXq_EtPlTKX7UBfoYEOHc9ltWf5LPz_SXb24Ya6K_XdS0JBhnB_HX-OcgEQF826uft2O6rnn94rfWSJMN_NETbHHuJlN2CvbYHA8ZBp19ZEDvo8N844f87YE9sv1ov7htplCQ_VYcCqZleNNbn67QihVsHfcfZ-UojzE-3KyrTW8WyFhkr7XSrLeJkMUdHKxDKDLacGEFBerDgJ8T-50ciFLMX48jfGCqpbvNQ7TWvs44UV_ziWjY0wCTUMVA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/pQoVGd75PgO_cZ6ELeZKZjlZ5O1YPKOKS8W-e-rEg1wg70242Rzu_AOTaOKhcYeHUDkGX1siJp6p7hp2sx-Wc5t02rSfgE2DZiGga8DoRQjSbmAOCJwckINGw5fWZGFBAPw2xONM2B63wQx1ADKDsp1AYvbFw5Q_IURHdzl2e2CZcjjKvKLBjnZbi6AhG6Wgc9TBzeQOxfdFViSGb3vaBzKEIvdrvuRBPYzz_uAdeSfCPrsBKtJCUAokvphiR0JbPj6oUeLNYNZr7W7097DZ3dojt5wjOOzQ5Cu06MPWl_94V1x0EyLfh756hngQNUJppnTX7HLLAFku8B8ADdRdJw.jpg" width="400"><br>
 
 فردریش مرتس گفت که «ما حملات هوایی تازه ایران به امارات و دیگر شرکا را به‌شدت محکوم می‌کنیم.»
 صدر‌اعظم آلمان در شبکه اجتماعی ایکس، حمله به «تاسیسات هسته‌ای» را تهدیدی برای ایمنی مردم سراسر منطقه خواند.
@@ -163,9 +329,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-19 15:49:07
+###### 🔵 Updated at: 2026-05-19 19:23:19
 
-<img src="https://cdn1.telesco.pe/file/dUxJ2TCCkSqBPVkA6QoFRNMTlj9S1KhtwxGk0ixUZs1i1bMEC9Sxu9KmCn527MI5pwH1-tJ1b8cSli3lITsRdI2Sjkonq2FUlyTsWCDL8nLqd7xoOiRj17950njVDeX-iX9YtQQC5RhvbpWwuxdMkVh_8QjOOzT9aDnXw6SPSi3iflIztS6-CoQEV-d041r_WVlKBdhjpotSq4A3eNgo8rTiHhXJQP8n_tnvvpzssLK3Z2cTPIrOXUFLaXpJVOqotwa6meVXQhVlOQLdKpP4DdfbGeZfazZAo-eIl1NGotMivgrBsLLbX4rTXQRCvRRsAVUVrNje8RhSWzVxGZxOOw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/P9oXs1Y6N-P3UY2wGp2soBXLPw7TVv-pCtmP6afZ4-dCNB3oO-x00tiBZc00r_kcWZygLzo-0STsqBkLRb5S9ZGvqs7J6HDxXEzsL8a5FbzOZY0O9c_Pyjxqs25fDsF_2WxJP5L97vNO9iUl_jA5azwHMVNpRuimbHQ5hiqkd34lM5OH0mhk7tKErX7KQFCOrRieDubirCCCqVYmoHLHE4Fi4gcoFxYeLzreLv9ln_q7XkM4p5_SgufKbgTklWUYx4dkHciRiLd4u_Mcbcf_mK4olAgiV0QH2gArHv3wFbeHSDEV5fhhXEiCkdfhMwqsSShbg9fWfDeFzWplSakHnQ.jpg" width="400"><br>
 
 خبرگزاری تسنیم، وابسته به سپاه پاسداران، روز دوشنبه ۲۸ اردیبهشت ماه به نقل از «یک منبع نزدیک به تیم مذاکره‌کننده» جمهوری اسلامی نوشت که تهران «جدیدترین متن خود را در ۱۴ بند به واسطه پاکستانی تحویل داده است و میانجی پاکستانی آن را به آمریکایی‌ها ارائه می‌کند.»
 ساعتی پیش از انتشار این خبر رویترز به نقل از یک مقام پاکستانی گزارش کرده بود که اسلام‌آباد یکشنبه شب طرح پیشنهادی اصلاح‌شده جمهوری اسلامی ایران را به واشنگتن تحویل داده است.
@@ -183,168 +349,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75536)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-19 15:49:07
-
-<img src="https://cdn4.telesco.pe/file/IDeXMpTGV0SZjmRTClakWGDiR0BjP4zwQAl_MrH0t4SKTV-uQ0J5NzUR-cQF65tg488Qsaplgz14S7vf6-HJDYCW-3liZVUu_ag7ayEU3yh3O1A93PD32doSaekHEIkORVluTNPgyOZ8yIsHnS30rJAfApKWKZc0q13lYXYKObnL8LPbs0U5hPdBwmwVG4xXmUtksxZDKt9v-wYz6D7kf1W3ivY7FeljjqGk8jS0yGLkVd3vnSRxhplByyXgjMo6GjQLxmYybg2ymQsVvD5N8tI20Q-e2hCxVI0NCLnwtwZjkNerN8XtQuyTUxd_iW8plRXsHD-4bZVmuTBqZWNkGw.jpg" width="400"><br>
-
-♦️
-خبرگزاری تسنیم وابسته به سپاه پاسداران، روز دوشنبه ۲۸ اردیبهشت، به نقل از یک منبع نزدیک به تیم مذاکره‌کننده گزارش داد آمریکا در متن جدید پیشنهادی خود، برخلاف متون پیشین، پذیرفته است تحریم‌های نفتی ایران را «در طول دوره مذاکرات» به‌طور موقت تعلیق کند.
-به گفته این منبع، آمریکایی‌ها در متن جدید با «تعلیق موقت» (Waive) تحریم‌های نفتی ایران موافقت کرده‌اند. «ویو» به معنای معافیت یا چشم‌پوشی موقت از اجرای تحریم‌ها است و به معنای لغو کامل و دائمی آن‌ها محسوب نمی‌شود.
-بر اساس این گزارش، تیم مذاکره‌کننده ایرانی همچنان بر این موضع تاکید دارد که لغو همه تحریم‌های ایران باید بخشی از تعهدات آمریکا باشد. در مقابل، واشنگتن پیشنهاد داده است معافیت‌های مرتبط با اوفک (دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا) تنها تا زمان دستیابی به تفاهم نهایی اعمال شود.
-به گزارش تسنیم، این تغییر در متن جدید آمریکا نسبت به پیشنهادهای قبلی، تحول تازه‌ای در روند مذاکرات به شمار می‌رود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75535)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-19 15:49:07
-
-<img src="https://cdn4.telesco.pe/file/mTeu06HOU0metv_yTbXIcR86t1DaNnwjo1kbCCbELPKGB0syBXSUMpa-Q1JXDMTHZJqvDD3GCX2-3rb3UmvduOtp6EOd2PAnNh7gYhta1JLbm3Kwl-0XpO_FM9TbFKnnlW2Q-M1JmV3xSwJt1V3gnx4tmkPD3h9701lrL4dTlQfbWFeGH94kiVyXi4kxD0SBmnIG8VqnAI5iZMMmYU2EpKtB6yFkq4mUagWSGX_UPuUsOGwHxsp5eLphYTapl-JAMX9uMaMjCC6lucMl2PW6-MYKYNKpQY6oCnkyMZHgcmGJsDYD-zNRy0Xot_A36S9weTym7bLO3v6GvX1oFtFFmg.jpg" width="400"><br>
-
-خبرگزاری رویترز به نقل از منابع آگاه گزارش داد پاکستان در چارچوب پیمان دفاعی خود با عربستان سعودی، ۸ هزار نیروی نظامی به همراه یک اسکادران جنگنده و سامانه پدافند هوایی به این کشور اعزام کرده است.
-به گزارش رویترز، این نیروها از توان عملیاتی برخوردارند و با هدف حمایت از عربستان سعودی در صورت ازسرگیری حملات علیه این کشور مستقر شده‌اند.
-این تحرک نظامی در حالی صورت می‌گیرد که پاکستان نقش اصلی میانجی‌گری میان تهران و واشینگتن را بر عهده دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75534)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-19 15:49:07
-
-<img src="https://cdn4.telesco.pe/file/txuWYO_JNA4xRzIsK12XNoZNFGPfCK7cz6MBHxGj7m3hAPkee-KqkxmxNmd987xKQ7j7NmMXQWfiTBaFXJoYCNckglnHj2D5EDkpA-pjU3KkN7rbYuqoOp90TGgyMzaqMmBoHWvR_Wu2enuuSb9Xx2kcurGdrIRzURgNFDfxzf-4AUwlMWBM6ThlXEBScqBbg8cGj5-Lnn6Y5ncBB2wFoftzTKsV63lFyUI0BLRJco3MvgFJuYfmMXvPP2ukNmkYGRTDwAM-xDPxLXEEN065HsipCIYiZmHMX59BTwQt1BPcyOZuMJxbQ0RVotb67alYRFWeCpauYhXqBVuJR0wafQ.jpg" width="400"><br>
-
-رئیس کل دادگستری آذربایجان غربی روز دوشنبه ۲۸ اردیبهشت از توقیف اموال ۱۲۹ نفر در این استان با اتهامات امنیتی خبر داد.
-ناصر عتباتی از این افراد با عنوان «گروهک‌های ضدانقلاب و تجزیه‌طلب» نام برد و آن‌ها را به «اقدامات ضدامنیتی و همکاری با کشورهای متخاصم» متهم و اعلام کرد که اموال آن‌ها به «نفع ملت» مصادره شده است.
-دادگستری آذربایجان غربی اسامی این افراد را اعلام نکرده و برای اتهامات علیه این افراد شواهد و مدارکی ارائه نداده است.
-پیش از این نیز گزارش‌های متعددی از توقیف اموال شماری از روزنامه‌نگاران، فعالان سیاسی و مدنی، هنرمندان، ورزشکاران و چهره‌های شناخته‌شده با اتهامات مشابه منتشر شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75533)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-19 15:49:07
-
-<img src="https://cdn4.telesco.pe/file/A6g768la9TNQP-h8Wo_bZQJpaZvc8JRPo3AghAS53Wpl0vD74BMF7sTYPqdhO69LJCAQbwiHr9Wn_GdbiUqBYlw-Ljf5U3fvEojjiXbrNXxF1VmoDmoagskMJBgPHxJ-lveuh0F-eaK1kCOOLW54mE42-lEBymSIH3EBBMjzMIiSeqXJNWddtWsUsnkUSFFVXPnaE1ech1-zWWDO_ogYktojOJNWOJPWgJ_-P6EpbBJ7tEa5v3ApMEeiQBl_Fr2GbhXUnmK7QezL5HIsnv0BKQ8_BRLyP_WwLXLRFrfJmFOieJMKKJJ3PpG1w8NeIJe5CEt_EVYtCD7aAelBW6fWkA.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهور آمریکا می‌گوید مقامات حکومت ایران برای امضای توافق با آمریکا «می‌میرند».
-او در گفت‌و‌گو با نشریه تجاری «فورچون» افزوده با این حال آنها در جریان مذاکرات، «روی یک چیزی توافق می‌کنند»، اما «بعد یک کاغذی برایتان می‌فرستند که هیچ ارتباطی با توافقی که کرده‌اید ندارد. من می‌گویم: ‘شما دیوانه‌اید؟’»
-ترامپ در این گفت‌و‌گو همچنین بر این نکته تأکید کرده که مقامات جمهوری اسلامی «مدام فریاد می‌زنند» و سروصدا می‌کنند، اما در عمل «تشنه توافق» هستند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75532)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-19 15:49:07
-
-<img src="https://cdn1.telesco.pe/file/fOi_ZpWtTebjw-2ZhAL1uTmnTjUeGA-zDSW_E0w6MtxbmEEJe3QI4kVRIPgEdtS5UdYAIlvS1Q3BHoWAq84BjktZVrA44Agg1RKPxB68T5NepNNC12RQ-PvZmz_uLYeBMML7FWQxgC75NmpbkQy-z8_5RHTQ8GKtNnlvbcf-2koGO3HY9MXwmhB-yOyo-C2ImvtseHnjWik_HlFzi1rwHbVlI5BzL46ZFQMOlZ3VoaqtInlqk8gcxuAc5YBYTAqYNE_5CJCBvqDzKUQlDPlyDmMElmQ-qgywQcnwOvPYBgws9zGzMDVA_w55t3IYPc5gwZsS3XKpBPuMliIlj7Xjyg.jpg" width="400"><br>
-
-سخنگوی وزارت خارجه ایران می‌گوید روند مذاکرات تهران و واشینگتن، «ادامه‌دار» است و حکومت ایران از ایالات متحده، «اصلاحاتی» در پاسخ به طرح پیشنهادی خود دریافت کرده است.
-اسماعیل بقائی در نشست خبری روز دوشنبه ۲۸ اردیبهشت گفت: هفته گذشته، علی‌رغم این‌که طرف‌های آمریکایی به‌صورت علنی اعلام کردند طرح پیشنهادی ایران مردود است «اما ما از طرف میانجی پاکستانی مجموعه نکات و ملاحظات اصلاحی را از نظر آن‌ها دریافت کردیم».
-او افزود ایران بعد از این‌که طرح ۱۴ بندی خود را ارائه کرد، «طرف آمریکایی ملاحظاتش را مطرح کرد. متقابلاً ما نیز ملاحظات خود را مطرح کردیم. از روز بعد از ارسال نقطه‌نظر آمریکایی از طرف پاکستان، ما با مجموعه‌ای از پیشنهادات طرف مقابل مواجه شدیم که در این چند روز بررسی شد».
-سخنگوی وزارت خارجه ایران به‌دلیل آنچه تبادل «نقطه‌نظرات متقابل» طرفین به یکدیگر نامیده، تأکید کرد که «بنابراین، روند [مذاکرات ]از طریق پاکستان ادامه دارد».
-بقائی جزئیاتی در مورد اصلاحات مدنظر ایالات متحده ارائه نکرد.
-@
-VahidHeadline
-او همچنین آمریکا را به «خیانت به دیپلماسی» متهم کرد و گفت واشینگتن دیگر «به‌عنوان یک طرف معتبر» در عرصه بین‌المللی تلقی نمی‌شود.
-سخنگوی وزارت خارجه جمهوری اسلامی تاکید کرد تهران در مذاکرات با آمریکا همچنان خواهان آزادسازی دارایی‌های بلوکه‌شده ایران و دریافت غرامت جنگی است و این مطالبات را «حق ایران» توصیف کرد.
-بقایی همچنین درباره تردد کشتی‌ها در تنگه هرمز گفت موضوع ترتیبات جدید امنیتی در این آبراه صرفا «مالی» نیست و هدف اصلی، حفظ امنیت تردد دریایی و صیانت از «حاکمیت ملی ایران» است.
-او همچنین در واکنش به گزارش حمله به یک کشتی کره جنوبی در تنگه هرمز، بدون اشاره مستقیم به عامل حمله گفت «نباید عملیات‌های پرچم دروغین را دست‌کم گرفت» و مدعی شد هنوز مشخص نیست این حادثه توسط چه بازیگری در منطقه انجام شده است.
-@
-VahidHeadline
-اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، در پاسخ به پرسشی درباره گزارش‌ها از قصد امارات متحده عربی برای حمله به جمهوری اسلامی و سفر مقام‌های اسرائیلی به این کشور گفت: «ما قرار نیست با گزارش‌ها این واقعیت را از یاد ببریم که تهدید اصلی کدام طرف است.»
-بقایی با تهدید کشورهای منطقه از جمله امارات متحده عربی گفت: « اماراتی‌ها از اتفاقاتی که در دو سه ماه اخیر افتاد باید درس بگیرند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75530)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-19 15:49:07
-
-<img src="https://cdn4.telesco.pe/file/odht9TtSgMx1RvscvDnhweUyeYBH0-7WHhZICzy1EuOdjFWU0zzhGa5uWt96b66SnWZgWjleXzcr-pGtM3LXuCAXefb0srEDxKT2tBjsSozLIl3YGQlOS-gOvTti2T64wex5VoXKlwJCg0kcocfeRdSEqB_9FwTEjUsfMwIBJUFkKiJT0C24tWRHqeDgEJpOy71RI37cLaH6VnP7Zg2QxslCyiJ-cFoM-cxaKlSuH_GitAzcfuzMD5nnk5baKGongM8P8_zu4PTZRvAS1lA0Vth6zi8IHWE9DTJpPGPJIPXv5LO74Oac_8HcrA6kEUvFHDdHZn4v9xc3AVmHm-FQHQ.jpg" width="400"><br>
-
-«نت‌بلاکس» نهاد ناظر بر آزادی اینترنت اعلام کرد قطعی و محدودیت اینترنت در ایران وارد هشتادمین روز خود شده و مدت این خاموشی تاکنون از ۱۸۹۶ ساعت عبور کرده است.
-نت‌بلاکس همچنین گزارش داده که هم‌زمان با ادامه محدودیت‌های اینترنتی، محتواهایی در حمایت از حکومت، شبکه‌های اجتماعی در ایران را پر کرده است.
-بر اساس این گزارش، برخی شهروندان ایرانی که تلاش کرده‌اند به اینترنت موسوم به «سیم کارت سفید» یا اینترنت ویژه (اینترنت پرو) دسترسی پیدا کنند، گفته‌اند از آن‌ها خواسته شده سهمیه مشخصی از پست‌های تبلیغاتی روزانه در حمایت از حکومت را در صفحات اجتماعی خود منتشر کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75529)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-19 15:49:07
-
-<img src="https://cdn1.telesco.pe/file/TQx18n1o5kLcSD4s4wG_ADgQbAYwIolAjMOA7M0ZwLyukzn35iY4Zp5HbakyvRYbnta3uIYGL71hNRBe3uNPNjMVLQ-YrS-yoFOMH7yxP8YIxTP0BXVLqsJQXIf_JjJohNjCMfRCs8kM_7pFmrobl0ru32E8QDFW2-XsduhNlkE538zFpdYAR0WhlMOj9EFobgqT1GFWsmwbbA4lQKXfeeV86z66VOqDhrJHzYpIqm1FrYUHtvnUHq8-wUZNsEN7OrWA7B67v1vGDMWVgp_5jvON4_juQ9080UihhghPzGgUzdEQd2yUOVvrFIFN1FIwCEf0Qu-WuVu8X-JVuxMZ8Q.jpg" width="400"><br>
-
-سازمان عفو بین‌الملل روز دوشنبه ۲۸ اردیبهشت گزارش داد که ایران در سال ۲۰۲۵ تعداد «بی‌سابقه» دو هزار و ۱۵۹ نفر را اعدام کرده است؛ رقمی که باعث افزایش آمار جهانی تا بالاترین سطح از سال ۱۹۸۱ به این سو شده است.
-این سازمان مستقر در لندن اعلام کرد که در سال ۲۰۲۵ دست‌کم دو هزار و ۷۰۷ نفر در سراسر جهان اعدام شده‌اند، هرچند اعدام‌های انجام‌شده در چین در این آمار لحاظ نشده است.
-عفو بین‌الملل گفت «هزاران اعدام» در چین، که بیشترین استفاده را از مجازات اعدام در جهان دارد، انجام شده، اما جزئیات به‌دلیل «محرمانه بودن داده‌های دولتی» در این کشور کمونیستی نامشخص است.
-این سازمان افزود که آمار جهانی سال ۲۰۲۵، شامل اعدام‌ها در عربستان سعودی، کویت، مصر، یمن، سنگاپور و ایالات متحده، نسبت به مجموع سال ۲۰۲۴ بیش از دو سوم افزایش داشته است.
-در این گزارش آمده است: «این روند بیشترین شدت را در کشورهایی داشته که مقامات در آن‌ها با محدود کردن فضای مدنی، خاموش کردن صداهای مخالف و بی‌اعتنایی به حمایت‌های مقرر در قوانین و استانداردهای بین‌المللی حقوق بشر، کنترل خود بر قدرت را تشدید کرده‌اند».
-به نوشته عفو بین‌الملل، «افزایش بی‌سابقه اعدام‌های ثبت‌شده در ایران» در حالی رخ داده که مقام‌های جمهوری اسلامی، به‌ویژه پس از جنگ ۱۲ روزه تابستان پارسال با اسرائیل، «استفاده از مجازات اعدام را به‌عنوان ابزاری برای سرکوب و کنترل سیاسی تشدید کرده‌اند».
-عفو بین‌الملل و دیگر گروه‌های حقوق بشری گفته‌اند که پس از اعتراضات گسترده ضدحکومتی در دی‌ماه پارسال و همچنین پس از آغاز جنگ با اسرائیل و ایالات متحده در اسفندماه، استفاده از مجازات اعدام در ایران افزایش یافته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75528)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-19 15:49:07
-
-<img src="https://cdn4.telesco.pe/file/IJRp3QueMpvyS1jnXvbiESQPDhf8iwCJYDvb51KSF5QxEj79wRj7G5rPGJGLOquKV5REGW2S67iKYAh8PkeRhjt4UD7EFPpso3RoeVXtBiae6sBKLq-4D6wRpCcJZR5Jh5QJIxvq1RjoPBXGN_cZc1gGNpHpRefkqqSby6PgwoY6nciCq_X7f1SdIKolJVEW1UFLjmF6MVfbkYsqL0TH_FhBtAB8nKjGX_0j1998FWj5IHZlBLYF3K-qyWXILOEx9N6PwZsRvLbpUNdZ3kmD-3tRu8weWXXVwQV4WwpF-0hCsEdSolvr1hsMgDhPg_s5xCvog6te17oI-EqHD8EfEA.jpg" width="400"><br>
-
-در پی افزایش تنش‌های ژئوپولیتیک در خلیج فارس و نگرانی از تداوم فشارهای تورمی، قیمت نفت در بازار جهانی انرژی افزایش یافت.
-قیمت نفت برنت در روز دوشنبه ۲۸ اردیبهشت با رشد ۱.۲ درصدی به بیش از ۱۱۱ دلار در هر بشکه رسید و نفت خام وست تکزاس اینترمدیت آمریکا نیز با افزایش یک درصدی بیش از ۱۰۸ دلار معامله شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75527)
 
 ---
 
