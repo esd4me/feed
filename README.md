@@ -3,7 +3,45 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
+
+
+
+سلام وحید دو زلزله شدید بندرعباس رو لرزاند
+ساعت ۳:۱۱ دقیقه بندرعباس زلزله اومد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75563)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 03:14:29
+
+<img src="https://cdn1.telesco.pe/file/cfBT_dCmmR1bhL09pBkLfRUm2hpaZnZGdhKdrrEZYGehIYLBhM3E_dTWVlF7zIQtshoc-wDlDRkrtQ1tLe9NJiYxzw_3p6d5W_3ZV-aa7POM7s3skk9OY7IlbLOn9PNswX4wPSrhJXQ7ixTYi8U-qhYTU8q6PPJq8__3wSwhrIC_36pCGJilw0KEx222sFF3JM5ZlWpdMTmDEZHyX0_JlHQQIeO0K6lHH8QypJ0sxP8yCmmqc2HrHhTUnQ658u6eUHASkSko-IyeuUwED-71MS6t7ZiALqMbxv88fQQTyvmp7Dqb4tLQSaadGOztTxqZwz4Pqp2BbX1_sWbs478ANQ.jpg" width="400"><br>
+
+سنای آمریکا روز سه‌شنبه قطعنامه‌ای را برای توقف اقدام نظامی در ایران پیش برد.
+پیش بردن این قطعنامه پس از آن صورت گرفت که سناتور جمهوری‌خواه، بیل کسیدی از لوئیزیانا، به آن رای مثبت داد. کسیدی چند روز پیش، در رقابت‌های درون حزبی ایالتی برای ادامه حضورش در سنا، به نامزدی که از حمایت ترامپ برخوردار بود، باخت.
+به گزارش سی‌ان‌بی‌سی، با وجود اینکه قطعنامه اختیارات جنگی با نتیجه ۵۰ به ۴۷ به تصویب رسید، اما هنوز احتمال کمی برای تبدیل شدن به قانون دارد. این قطعنامه باید ابتدا در سنا به تصویب نهایی برسد، سپس مجلس نمایندگان به رای بدهد و سپس نیز، دونالد ترامپ به احتمال قریب به یقین، آن را وتو خواهد کرد.
+@
+VahidHeadline
+چهار جمهوری‌خواه هم‌حزبی ترامپ همراه با همه دموکرات‌ها به جز یک نفر، به آن رای مثبت دادند. سه سناتور جمهوری‌خواه نیز در رای‌گیری غایب بودند.
+باوجود تصویب این آیین‌نامه، حتی اگر قطعنامه‌ای در سنا با ۱۰۰ عضو هم به تایید برسد، کار دشواری در مجلس نمایندگان خواهد داشت که تحت کنترل جمهوری‌خواهان است و پس از آن نیز باید دو‌سوم رای کنگره و سنا را داشته باشد تا بتواند گزینه وتوی احتمالی رئیس‌جمهور را دور بزند.
+طبق قانون اختیارات جنگی آمریکا مصوب ۱۹۷۳ که در واکنش به جنگ ویتنام تصویب شد، رئیس‌جمهور آمریکا تنها ۶۰ روز می‌تواند بدون مجوز کنگره عملیات نظامی انجام دهد و پس از آن باید یا جنگ را متوقف کند، یا از کنگره مجوز بگیرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75562)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn1.telesco.pe/file/nPoNMZGvY6kPvEjbEr_2z17If7JYBQhhyyv_26Pre3QB_NIKlJpIvKWa9pANaX2dyaQgmXgHBOVcr0UXmxSrhyH5ef8tt-BMn4Y1GG_qI6pWkFAkZTpRTHs785HuTKgDNSbe0sNEEZrcfOaQtwH9B0QOSbPv5M11dKC0svcaawXZfZ6nYdagYrWMuaw4-nm72XE4V88SthGQ_JyjajAQT9OYlZjhY_0BovaMALW9ZxZ-cDBNVYw0_Ke8zE5wGXumcRLyJHzO3PQSyRLPpcYeG61vgBwHBizMW05hyxBl7XpdrCz8YqQV8MIgAawHYLkSoPhX14HzVGHukTvQ84DDjQ.jpg" width="400"><br>
 
@@ -50,7 +88,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 
 
@@ -70,7 +108,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 
 
@@ -94,7 +132,7 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn4.telesco.pe/file/mvgThDxGVe9wREfpAVrf45Xiks25QZ3V8uFRWAnSZ9ZSBmIlPzrxz-uiqAvlCFLkIqAK5DjTxas-4J4Rv8Xw821RpHWJaZwGAAl5e_JVo4Zc9X865OTtscvN76t6QWUPxtlL46yfHXOBGAtyIsdAcng8NiXZEYGsIQrr4je1zK8QWF9vaQmZT4WWqqW4oP1iHiiljeP5Vsl1_EZdtLqEq-PWwtDjTX7GUL3FXRgZjQwAP5utQfRhb6cJoRAhhEkw3QJAaJnXgtdqmzZnNDrXrJenUku4dzAtDVZeQfNrBwlHOVyNnZLHnrjjKY_WeufM5pOp3Gz-KOCxrW0RFmGT2w.jpg" width="400"><br>
 
@@ -108,7 +146,7 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn4.telesco.pe/file/wA8hFAbeYjXR_kUbazudYCENFwEL2uyQY-VnP91Fvxprx-oKxEjh724qdTTwfi1O6tlkTppQbUziAx-KH51B2YDY9JvlGVpEVgCsMzJVeptNz3tyiF0Vilb-GxgwbHgQbzV1ut-Bknzu-5lTMtsgjEChN6mKjqS4VsB7tI90Sj2-pwJCkuVqgHis05soTTejigZMF_m2UuD7CvuOMha6U91NholUe27zZJHT9dXyHtcVrYmV8Q6t6OaHcvkpTSt00-RMVHhII2bgAOlWdJ1wXfQpZV7j8f-HUEiyZdiQSO9TC5xzQfP_rDv7EGiN8VR_n0gX2kMg3AL1Y7bQyOd_Xg.jpg" width="400"><br>
 
@@ -131,7 +169,7 @@ FSeifikaran
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn4.telesco.pe/file/F_ACG7pYJHMP-_XCA-VE5BwMtUai3Mn6BQ21hZDZZZag8S-7NFzxVQLgEfv1LGvRrL5SPbIbOQH-EP-sreA9gZKqBU11kqdUxQ2_VVq9FsS_1ow_W0FIeh8wJOudQwTP_52BrS3gbshisv2hvuxX73lDIPthcSNPsKPpwtJeua9FXZJuIal54-lY8U5HiotmlvnbOAYfxEwIKxo4dmntPnTO9GSSZRUWIRgQjdgpdR5RHlx5OBmbsOKZDyX2nWEf0j-1fGpnnABVX05kMTyJTS49nHZhvJ60XgPtx3Y04ur0DOSLx5thHNI-ALdZU0oUlGEJk4uXW0kSnHIGP1jxiQ.jpg" width="400"><br>
 
@@ -148,7 +186,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn4.telesco.pe/file/J-ZXrgwN9OT7r0YiSgEblIfNMrMRg8WIk0ZuISS1ZiTKDVRkoY7PcX9e4aGVFUrlc7-6pz4yhCmc_p2Q3Ab7waPkDCCnaiRo6r9aHnF_ovTsGT_eBih1YoPU6qBtKWa2K46E4xflDvQrhIs90sB6KXE4TBgFH0_tjeykZdhXzRMnfzpBJY4dn3CTdILGcFTlun4zYfEGH7CCf0Li90x6GmBc_g99Q7aKAwqwcxgVt1jTmem3hgEqLeXGatCmC6oD2yATDWSOZsLJgPZv1SiH1_8wC2sa9kRAYZzuul7qZarUEU3qk_CTUFYRxsA4_V9edqEImFlVnYyzbKvzG-hL5Q.jpg" width="400"><br>
 
@@ -165,7 +203,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn4.telesco.pe/file/sohqcrfNbnR5d7wFnzmK6C7C7zqZ0Xg7B0bkoJ08JHwTdR1oMWxt7YJtZ7gVN3qeO9NhU4DfKv4lahif9N0EyRq2F4LFh0DbPrVvOvfMQ33k-94SnAt94yC-WiS0r4e7fPZY6VWLkgBUlBDB1_6OvoKhWvKq6gLnN5mgHAibUG5KO_tWFZWtLDR-T--Flj_4V9jVkUZUGS9wdn7rvFaPFZ1j_OaLLslcYRjjUyjBrZDhU69qpTQ_Bcuw3GaCawst_SN-b1vEBpoPUj7Hgxz_dh1ti-P_qut3if0rhi9WX4FrlgwxmX_jVmCSOcXzJsXHXcyi8PlpE5d_6RIcvrweTA.jpg" width="400"><br>
 
@@ -184,7 +222,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn4.telesco.pe/file/EJHTNqEvTGDr-QgQhum7hIGKK1leDkT6r9b-UYwa-RZauIYj5MhVvyjWINT0Hpo6ExsmF3Go7AFzTRVuIJB6-4m3ykF01k-IO1BOybUFWEaoyY310SW4nMpV4Pzqt94BwydGNTayOxu_RLIgPEF_JcwVqmSwWF0BIX2c0t5RjMokI8QRI7FXVMQZ9FvRfclkKPU8j3qruZnqrOHeYUdAyXsP2Nzk6S0laelgsIDzVHSJ7UM4xsww0_sD-RSKMJRsK8HhBWZbJxoy2kvCS43oPuT5zU4CvY7Nd-ve-mH8QSMM2H1ti81QUE4ehtqmMGK-TKCsZZZgto-ln6zRJqEydg.jpg" width="400"><br>
 
@@ -204,7 +242,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn1.telesco.pe/file/qOyYoX7nXjydM1lK2HXU8aTgduI_FFrcurlqhvPjfMU3ad62_1BFTPXZeWdMERZT0_4wAsBNnk19FRZzDd3ey8JfAWsfeHW7KpmJDGaLe--zFI8sURRgyPCAR0FrI3s7PXvY85dxuFclLoSan0fe_tp5jnJ86LwhtId27HxhIFeeoxM8jpRhpknwfpInAjoTzr9rLR2vheCMz6ChRFvNE4Lb0GjL8mekILpUt8kDbZcinp5t4nVbwY8DKUG_oZnVZy2daX5GOiAQrEkcPJmQkGkgRnSRaXfNPBzzvXNOhmnAxtddRMHdPZiw1--GQBNURh1ow7kuy7FOGs2FKb106w.jpg" width="400"><br>
 
@@ -218,7 +256,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn1.telesco.pe/file/vQZA1IoOxbmV5c6EG7rTn__d7DXJodjoE-bsKIdakVCy-oeigdbZ5H5cfzqnQ2qAihevUXfRCiQfe8AZRYwdtIZ9N9aSFQJnV6HCuBpC_DldDeTsJe5RSoo1AXeX0jJaqsK0cmNXr1GEyPfAYY24AAjOWWNwl72OpZLJ4RxxqtUv2xH4piI6eoNT1Nq48eoBFExjBbxNJFPcLWfh0ZN-kiuIrWJi1AJs9mJwSI81OXuH0OurBy5P9wOIrjYckAj1VoR-_ENWpIG-rDK9AHiiS4k0HBBYurFs1vQ-d-_OnHIa-I8atzG35ez_oLfP3CqCR4L95a8g9m49tEZsqASr8w.jpg" width="400"><br>
 
@@ -243,7 +281,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn1.telesco.pe/file/uylluMRRAzBvrNZ-YqtKq4dXa9Eapr2yeIZ93LtbJC-A_v_PpDVASRC9_W0YqGE0BU8_RbQhvkJur2L09v4Rl4WVOfRn-7EiatrJDrCQB4g_0UrGb08va_JdGKHNoKghcpOlx1dG9bjL3ZDrPsh_jOh9_p4nHwATYMA7CHXAO4BPbzDmgjtKiFZZHgOzHBGMJUs3LzRSiYBr-XNw4eIUHd-wJwx74j7UY44GgqEnwkfwpZkumCV1cYf8OmFR-RuV3ZCwtbwnJwPPd2GSxvrZ3TToS6uhKyw2wNluf9zawO4gVDsn1Lq1jSNvfZjgO7msn5XhsUqe3THnEBlT8-7SDg.jpg" width="400"><br>
 
@@ -265,7 +303,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 02:07:14
+###### 🔵 Updated at: 2026-05-20 03:14:29
 
 <img src="https://cdn1.telesco.pe/file/h-dD4O__LjwWIBSxFyomf9liL7-g41TEWiLx_GLew5Y-BxWH7wJolVGLv2fEJjgcpf1SvDCQ4d1wdCvAcBEES_29H4J61zKO2RjTKqQUlkr9sX4v6Uu9SkrDr_5hgwrfixC5PYuUDTdv6wQHz9dItTuntiP2sB7nHFeA3LpKPNnTAXbWQGl7hBEQUjNkTzqDKA8H4d5MvLw_WIXsvlFhfz6JyV_yCXjnt81fcgykgOJj529X8Rw-ybkas5iuDwspO5IEMrGDPMgSDBxf72rW_JoUSrrjSFqbtMZ5m8KL30Z8-v8-YY27OGgRr6gWnt7Sn9ZtDTZhYbx3L9C-FdpuQg.jpg" width="400"><br>
 
@@ -278,33 +316,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75543)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 02:07:14
-
-<img src="https://cdn1.telesco.pe/file/cMwYsemP93JJCFip5hSbMUP2u0jvNQhU72rY5eM8OHrkaW0vW0dH21G-3XVRX7bqDLDxn7jorbzThW0juAMwr04k8Ime2MVF1p63U1C2ioM-s2ZMx3iBiBii2dJ6Rnj6RZfh7crYWNew5UH6oGCGH4lqze3YJB86oiONcb5KckHV3vkO5qcJ3uyxugPsiJeae_gPDNm4adbmQVE0SVg2tGc-ELxT8-JUHC7JyzhpvalxDJ4bPRI1yBfw1o2K82HvmhcrP7zQrg0n5MnF0Rz6_GwkwvfMTZIsZfRibzUm5k6J2NbjBmMIOD5QzvvZqb8nV0Jb9HGG8Pe2qhHz7StrLA.jpg" width="400"><br>
-
-وب‌سایت اکسیوس، روز دوشنبه ۲۸ اردیبهشت ۱۴۰۵ به نقل از یک مقام ارشد آمریکایی و یک منبع آگاه گزارش داد که تهران پیشنهاد تازه‌ای برای توافق ارایه کرده، اما کاخ سفید آن را «پیشرفت معنادار» ندانسته و برای دستیابی به توافق کافی نمی‌داند.
-به گفته مقام ارشد آمریکایی، اگر ایران موضع خود را تغییر ندهد، مذاکرات «از طریق بمب‌ها» ادامه خواهد یافت.
-بر اساس  گزارش اکسیوس، مقام‌های آمریکایی می‌گویند دونالد ترامپ خواهان دستیابی به توافقی برای پایان جنگ است، اما هم‌زمان به دلیل رد بسیاری از خواسته‌های واشنگتن از سوی ایران و خودداری تهران از ارایه امتیازهای قابل‌توجه در برنامه هسته‌ای، گزینه ازسرگیری حملات را نیز بررسی می‌کند.
-دو مقام آمریکایی گفته‌اند ترامپ قرار است روز سه‌شنبه نشست تیم ارشد امنیت ملی خود را در اتاق وضعیت کاخ سفید برگزار کند تا گزینه‌های نظامی را بررسی کند.
-آکسیوس گزارش داده پیشنهاد تازه ایران که شامگاه یک‌شنبه از طریق میانجی‌گران پاکستانی به آمریکا منتقل شده، تنها تغییرات محدودی نسبت به نسخه قبلی دارد.
-بر اساس این گزارش، در پیشنهاد جدید، توضیحات بیشتری درباره تعهد ایران به نساختن سلاح هسته‌ای آمده، اما هیچ تعهد مشخصی درباره توقف غنی‌سازی اورانیوم یا تحویل ذخایر اورانیوم با غنای بالا ارایه نشده است.
-در حالی که رسانه‌های دولتی ایران گزارش داده بودند آمریکا در جریان مذاکرات با لغو برخی تحریم‌های نفتی موافقت کرده، مقام آمریکایی به آکسیوس گفته است هیچ کاهش تحریمی «رایگان» و بدون اقدام متقابل از سوی ایران انجام نخواهد شد.
-این مقام آمریکایی همچنین گفته است: «ما واقعا پیشرفت زیادی نداشته‌ایم. اکنون در نقطه بسیار حساسی قرار داریم و فشار بر ایران است تا به شکل درستی پاسخ دهد.»
-او افزوده است: «زمان آن رسیده که ایرانی‌ها امتیاز واقعی بدهند. ما به گفت‌وگوهای جدی، دقیق و جزیی درباره برنامه هسته‌ای نیاز داریم. اگر این اتفاق رخ ندهد، گفت‌وگو از طریق بمب‌ها انجام خواهد شد و این مایه تاسف است.»
-در ادامه این گزارش آمده است که ایران و آمریکا هنوز مذاکرات مستقیم درباره جزییات توافق ندارند و گفت‌وگوها به‌صورت غیرمستقیم برای رسیدن به چارچوبی مشترک ادامه دارد.
-این مقام آمریکایی مدعی شده که ارایه پیشنهاد تازه از سوی ایران، با وجود تغییرات اندک، نشان می‌دهد تهران نگران اقدام نظامی بیشتر آمریکا است.
-در مقابل، مقام‌های ایرانی همواره تاکید کرده‌اند که این ترامپ است که برای دستیابی به توافق عجله دارد و زمان به سود ایران پیش می‌رود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75541)
 
 ---
 
