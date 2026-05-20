@@ -3,12 +3,42 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
+
+<img src="https://cdn1.telesco.pe/file/dLKsHee9i_guOs9R_agROIQ6EJGxfzcobphm_JH4aK0c8ElyUKRcy9LEZr-WO2YPFV5E7-cvSap7vAvAZAzVoN9ntN6ANF0L460XEshcr4AK8SyfiWGXAXtSp4CYiwPlJNGzViIksPv7YjPSzAK9ChTW-jGS1aE1Jn5I0AXA2AhTrvnB59nH55Aoxjp34GjrScT78oP-ON_AE2Pi-RuCaKm0HPB9g0QNV3gwbTIVoNQ0NqFxyYmuiBvFpM2yKg7OqHg680Zt9EGWHVjXkSFP5iAjhSMwTq65kXDvBZuQX8YvpewhH_BaC-m_CaoNo4Dy7r8Mveq4CTVmynF14Ll09g.jpg" width="400"><br>
+
+ترامپ در یک سخنرانی در کاخ سفید گفت  ایران قرار نیست به سلاح هسته‌ای دست پیدا کند. نمی‌توانند سلاح هسته‌ای داشته باشند. ما نمی‌توانیم چنین چیزی را تحمل کنیم و آن را تحمل نخواهیم کرد.
+او گفت ما نیروی دریایی آن‌ها را نابود کردیم. نیروی هوایی آنها از بین رفته است. سامانه‌های پدافند هوایی آنها از بین رفته است. تمام تجهیزاتی که برای جنگ استفاده می‌کردند از بین رفته است. تقریبا همه چیز از بین رفته است.
+ترامپ افزود: نمی‌خواهم بگویم رهبران آنها از بین رفته‌اند، چون بیان آن چندان خوشایند نیست، اما واقعیت همین است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75564)
+
+---
 
 
 
+###### 🔵 Updated at: 2026-05-20 05:21:22
+
+<img src="https://cdn1.telesco.pe/file/UDl-I0Dfi9lhKPiyM7aJ7oznlS-J9lBSTKl6bVZ6b7ySusTOTSWEwiMyqeoC8iq_o5k7etMJfJnweqndHK1-hKo_B_eyQWDnbaIw6RO-icO_hV8wHHGV33UJqlrTuM7dTUiIPknmWgSe0qjdaMxXpXgzEw9hdFAjqu5cGxRQlaI9wgR1cQyKWAUklBWfN7efTwo0Iccw4oD7oaPh_PgJDfcWDWBI3B65nv27L2fbDh1v1VU_0CAZH0ui00P7J8w9Ik_cY7eXpxiYbOzO0Q7oaE_mTu_Mi-lV5zH8uSghuuxB5Fi9gfvP8tHVem6_WVRTd2tZjj6wFgz-KEf62itCgQ.jpg" width="400"><br>
+
+زمین‌لرزه در قشم
+آپدیت:‌
+تصویر بالا:
+#زلزله
+به بزرگی ۴٫۷ در عمق ۲۰ کیلومتری بندر لافت در جزیره قشم هرمزگان
+پیام‌های دریافتی:
 سلام وحید دو زلزله شدید بندرعباس رو لرزاند
 ساعت ۳:۱۱ دقیقه بندرعباس زلزله اومد
+همین الان ساعت ۳:۱۲ دوبار به مدت ۱۵ ثانیه وحشتناک بندرعباس لرزید
+من بندرعباس هستم دو بار لرزید
+زلزله اومده خیلی بد بود
+زمین لرزه نسبتا شدید ساعت ٣:١٠ بامداد بندرعباس
+بندرعباس هستم فکر کردیم باز زدن دقیقا ۲۰ ثانیه همه جا میلرزید
+چند دقیقه پیش زمین لرزه نسبتا شدید اومد دوبار تو فاصله خیلی کم بندرعباس
 📡
 @VahidOnline
 
@@ -18,7 +48,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn1.telesco.pe/file/cfBT_dCmmR1bhL09pBkLfRUm2hpaZnZGdhKdrrEZYGehIYLBhM3E_dTWVlF7zIQtshoc-wDlDRkrtQ1tLe9NJiYxzw_3p6d5W_3ZV-aa7POM7s3skk9OY7IlbLOn9PNswX4wPSrhJXQ7ixTYi8U-qhYTU8q6PPJq8__3wSwhrIC_36pCGJilw0KEx222sFF3JM5ZlWpdMTmDEZHyX0_JlHQQIeO0K6lHH8QypJ0sxP8yCmmqc2HrHhTUnQ658u6eUHASkSko-IyeuUwED-71MS6t7ZiALqMbxv88fQQTyvmp7Dqb4tLQSaadGOztTxqZwz4Pqp2BbX1_sWbs478ANQ.jpg" width="400"><br>
 
@@ -41,7 +71,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn1.telesco.pe/file/nPoNMZGvY6kPvEjbEr_2z17If7JYBQhhyyv_26Pre3QB_NIKlJpIvKWa9pANaX2dyaQgmXgHBOVcr0UXmxSrhyH5ef8tt-BMn4Y1GG_qI6pWkFAkZTpRTHs785HuTKgDNSbe0sNEEZrcfOaQtwH9B0QOSbPv5M11dKC0svcaawXZfZ6nYdagYrWMuaw4-nm72XE4V88SthGQ_JyjajAQT9OYlZjhY_0BovaMALW9ZxZ-cDBNVYw0_Ke8zE5wGXumcRLyJHzO3PQSyRLPpcYeG61vgBwHBizMW05hyxBl7XpdrCz8YqQV8MIgAawHYLkSoPhX14HzVGHukTvQ84DDjQ.jpg" width="400"><br>
 
@@ -88,7 +118,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 
 
@@ -108,7 +138,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 
 
@@ -132,7 +162,7 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn4.telesco.pe/file/mvgThDxGVe9wREfpAVrf45Xiks25QZ3V8uFRWAnSZ9ZSBmIlPzrxz-uiqAvlCFLkIqAK5DjTxas-4J4Rv8Xw821RpHWJaZwGAAl5e_JVo4Zc9X865OTtscvN76t6QWUPxtlL46yfHXOBGAtyIsdAcng8NiXZEYGsIQrr4je1zK8QWF9vaQmZT4WWqqW4oP1iHiiljeP5Vsl1_EZdtLqEq-PWwtDjTX7GUL3FXRgZjQwAP5utQfRhb6cJoRAhhEkw3QJAaJnXgtdqmzZnNDrXrJenUku4dzAtDVZeQfNrBwlHOVyNnZLHnrjjKY_WeufM5pOp3Gz-KOCxrW0RFmGT2w.jpg" width="400"><br>
 
@@ -146,7 +176,7 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn4.telesco.pe/file/wA8hFAbeYjXR_kUbazudYCENFwEL2uyQY-VnP91Fvxprx-oKxEjh724qdTTwfi1O6tlkTppQbUziAx-KH51B2YDY9JvlGVpEVgCsMzJVeptNz3tyiF0Vilb-GxgwbHgQbzV1ut-Bknzu-5lTMtsgjEChN6mKjqS4VsB7tI90Sj2-pwJCkuVqgHis05soTTejigZMF_m2UuD7CvuOMha6U91NholUe27zZJHT9dXyHtcVrYmV8Q6t6OaHcvkpTSt00-RMVHhII2bgAOlWdJ1wXfQpZV7j8f-HUEiyZdiQSO9TC5xzQfP_rDv7EGiN8VR_n0gX2kMg3AL1Y7bQyOd_Xg.jpg" width="400"><br>
 
@@ -169,7 +199,7 @@ FSeifikaran
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn4.telesco.pe/file/F_ACG7pYJHMP-_XCA-VE5BwMtUai3Mn6BQ21hZDZZZag8S-7NFzxVQLgEfv1LGvRrL5SPbIbOQH-EP-sreA9gZKqBU11kqdUxQ2_VVq9FsS_1ow_W0FIeh8wJOudQwTP_52BrS3gbshisv2hvuxX73lDIPthcSNPsKPpwtJeua9FXZJuIal54-lY8U5HiotmlvnbOAYfxEwIKxo4dmntPnTO9GSSZRUWIRgQjdgpdR5RHlx5OBmbsOKZDyX2nWEf0j-1fGpnnABVX05kMTyJTS49nHZhvJ60XgPtx3Y04ur0DOSLx5thHNI-ALdZU0oUlGEJk4uXW0kSnHIGP1jxiQ.jpg" width="400"><br>
 
@@ -186,7 +216,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn4.telesco.pe/file/J-ZXrgwN9OT7r0YiSgEblIfNMrMRg8WIk0ZuISS1ZiTKDVRkoY7PcX9e4aGVFUrlc7-6pz4yhCmc_p2Q3Ab7waPkDCCnaiRo6r9aHnF_ovTsGT_eBih1YoPU6qBtKWa2K46E4xflDvQrhIs90sB6KXE4TBgFH0_tjeykZdhXzRMnfzpBJY4dn3CTdILGcFTlun4zYfEGH7CCf0Li90x6GmBc_g99Q7aKAwqwcxgVt1jTmem3hgEqLeXGatCmC6oD2yATDWSOZsLJgPZv1SiH1_8wC2sa9kRAYZzuul7qZarUEU3qk_CTUFYRxsA4_V9edqEImFlVnYyzbKvzG-hL5Q.jpg" width="400"><br>
 
@@ -203,7 +233,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn4.telesco.pe/file/sohqcrfNbnR5d7wFnzmK6C7C7zqZ0Xg7B0bkoJ08JHwTdR1oMWxt7YJtZ7gVN3qeO9NhU4DfKv4lahif9N0EyRq2F4LFh0DbPrVvOvfMQ33k-94SnAt94yC-WiS0r4e7fPZY6VWLkgBUlBDB1_6OvoKhWvKq6gLnN5mgHAibUG5KO_tWFZWtLDR-T--Flj_4V9jVkUZUGS9wdn7rvFaPFZ1j_OaLLslcYRjjUyjBrZDhU69qpTQ_Bcuw3GaCawst_SN-b1vEBpoPUj7Hgxz_dh1ti-P_qut3if0rhi9WX4FrlgwxmX_jVmCSOcXzJsXHXcyi8PlpE5d_6RIcvrweTA.jpg" width="400"><br>
 
@@ -222,7 +252,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn4.telesco.pe/file/EJHTNqEvTGDr-QgQhum7hIGKK1leDkT6r9b-UYwa-RZauIYj5MhVvyjWINT0Hpo6ExsmF3Go7AFzTRVuIJB6-4m3ykF01k-IO1BOybUFWEaoyY310SW4nMpV4Pzqt94BwydGNTayOxu_RLIgPEF_JcwVqmSwWF0BIX2c0t5RjMokI8QRI7FXVMQZ9FvRfclkKPU8j3qruZnqrOHeYUdAyXsP2Nzk6S0laelgsIDzVHSJ7UM4xsww0_sD-RSKMJRsK8HhBWZbJxoy2kvCS43oPuT5zU4CvY7Nd-ve-mH8QSMM2H1ti81QUE4ehtqmMGK-TKCsZZZgto-ln6zRJqEydg.jpg" width="400"><br>
 
@@ -242,7 +272,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn1.telesco.pe/file/qOyYoX7nXjydM1lK2HXU8aTgduI_FFrcurlqhvPjfMU3ad62_1BFTPXZeWdMERZT0_4wAsBNnk19FRZzDd3ey8JfAWsfeHW7KpmJDGaLe--zFI8sURRgyPCAR0FrI3s7PXvY85dxuFclLoSan0fe_tp5jnJ86LwhtId27HxhIFeeoxM8jpRhpknwfpInAjoTzr9rLR2vheCMz6ChRFvNE4Lb0GjL8mekILpUt8kDbZcinp5t4nVbwY8DKUG_oZnVZy2daX5GOiAQrEkcPJmQkGkgRnSRaXfNPBzzvXNOhmnAxtddRMHdPZiw1--GQBNURh1ow7kuy7FOGs2FKb106w.jpg" width="400"><br>
 
@@ -256,7 +286,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn1.telesco.pe/file/vQZA1IoOxbmV5c6EG7rTn__d7DXJodjoE-bsKIdakVCy-oeigdbZ5H5cfzqnQ2qAihevUXfRCiQfe8AZRYwdtIZ9N9aSFQJnV6HCuBpC_DldDeTsJe5RSoo1AXeX0jJaqsK0cmNXr1GEyPfAYY24AAjOWWNwl72OpZLJ4RxxqtUv2xH4piI6eoNT1Nq48eoBFExjBbxNJFPcLWfh0ZN-kiuIrWJi1AJs9mJwSI81OXuH0OurBy5P9wOIrjYckAj1VoR-_ENWpIG-rDK9AHiiS4k0HBBYurFs1vQ-d-_OnHIa-I8atzG35ez_oLfP3CqCR4L95a8g9m49tEZsqASr8w.jpg" width="400"><br>
 
@@ -281,7 +311,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-20 03:14:29
+###### 🔵 Updated at: 2026-05-20 05:21:22
 
 <img src="https://cdn1.telesco.pe/file/uylluMRRAzBvrNZ-YqtKq4dXa9Eapr2yeIZ93LtbJC-A_v_PpDVASRC9_W0YqGE0BU8_RbQhvkJur2L09v4Rl4WVOfRn-7EiatrJDrCQB4g_0UrGb08va_JdGKHNoKghcpOlx1dG9bjL3ZDrPsh_jOh9_p4nHwATYMA7CHXAO4BPbzDmgjtKiFZZHgOzHBGMJUs3LzRSiYBr-XNw4eIUHd-wJwx74j7UY44GgqEnwkfwpZkumCV1cYf8OmFR-RuV3ZCwtbwnJwPPd2GSxvrZ3TToS6uhKyw2wNluf9zawO4gVDsn1Lq1jSNvfZjgO7msn5XhsUqe3THnEBlT8-7SDg.jpg" width="400"><br>
 
@@ -298,24 +328,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75544)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 03:14:29
-
-<img src="https://cdn1.telesco.pe/file/h-dD4O__LjwWIBSxFyomf9liL7-g41TEWiLx_GLew5Y-BxWH7wJolVGLv2fEJjgcpf1SvDCQ4d1wdCvAcBEES_29H4J61zKO2RjTKqQUlkr9sX4v6Uu9SkrDr_5hgwrfixC5PYuUDTdv6wQHz9dItTuntiP2sB7nHFeA3LpKPNnTAXbWQGl7hBEQUjNkTzqDKA8H4d5MvLw_WIXsvlFhfz6JyV_yCXjnt81fcgykgOJj529X8Rw-ybkas5iuDwspO5IEMrGDPMgSDBxf72rW_JoUSrrjSFqbtMZ5m8KL30Z8-v8-YY27OGgRr6gWnt7Sn9ZtDTZhYbx3L9C-FdpuQg.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری ایالات متحده، دوشنبه گفت که آمریکا در حال صدور یک مجوز عمومی ۳۰ روزه برای فراهم کردن دسترسی موقت به آن بخش از نفت روسیه‌ است که در دریا سرگردان مانده است.
-بسنت در شبکه ایکس نوشت: «این تمدید، انعطاف‌پذیری بیشتری فراهم خواهد کرد و ما با این کشورها همکاری خواهیم کرد تا در صورت نیاز، مجوزهای مشخص صادر کنیم.»
-او افزود: «این مجوز عمومی به ثبات بازار فیزیکی نفت خام کمک خواهد کرد و اطمینان می‌دهد که نفت به آسیب‌پذیرترین کشورهای از نظر انرژی برسد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75543)
 
 ---
 
