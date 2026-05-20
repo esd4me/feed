@@ -3,7 +3,45 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
+
+<img src="https://cdn1.telesco.pe/file/cKCd0ka1cAgzzWaZt_rNUY_4GoIl7-fy4YiGGGbupQNWaOpgj9xKhWDDSwqO9yHEiVC3subnM49uAD1ctrAHAk2UbVUvxnDY4fSQxEtl8Fnc_jWpXqR03YDxCwxXv-NkT5HI36OROxssE_yPMMGDbGQ137cnrjcGceWndthMuTub4kkKBz9Oa77XeBfuHs63DNeW9nLk61QQDR8i8KAmyyIedtLXAa2F5u48Tw6gGf34xoP6HIx9IQfKq5j7SJFgPWL7gxaZdPnMetETorMhtSZ9BYu1NWKh8uo9I75Lm6tRgO45Nu8AfKihOSpHn6R7i4Oo_oZUAqC9dyhF3M-FBw.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، شامگاه چهارشنبه گفت حاضر است «چند روز» برای رسیدن پاسخ ایران به پیشنهاد واشینگتن درباره توافق پایان جنگ صبر کند اما هشدار داد که این پاسخ باید «۱۰۰ درصد درست» باشد.
+او بعد از سخنرانی در جمع دانشجویان نظامی به خبرنگاران گفت اگر پاسخ ایران درست نباشد، تشدید تنش به سرعت رخ می‌دهد و افزود: «ما آماده پیش‌روی هستیم. باید جواب‌های ۱۰۰ درصد درست و خوبی بگیریم.»
+ترامپ اعلام کرد که آمریکا در حال حاضر با افراد «خیلی خوبی» از طرف ایرانی مواجه است که «استعداد و قدرت ذهن» دارند؛ افرادی که به گفته او جایگزین رهبران پیشین ایران شده‌اند.
+این اظهارات ساعتی بعد از آن است که سخنگوی وزارت خارجه ایران اعلام کرد تهران در حال بررسی طرح پیشنهادی جدید آمریکا است.
+این طرح توسط اسلام‌آباد به دست مقام‌های جمهوری اسلامی رسیده است؛ همزمان با سفر وزیر کشور پاکستان به تهران.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75584)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 23:24:01
+
+<img src="https://cdn1.telesco.pe/file/OjCD64bTFRd86__mZjXU7rcIhOQPUT1cmxGFxQOAH2TR3YMVXxX-ahh385m_lA9b7BlosOid_exk5icl_iB-f1T9R9pwBL5ndpWHzKKJvzQAYKuY8cEONwWk1wBmpr9vxPdya6_1GJhh-XMsIe0pwZI5lcJpoLH2agHx1ncC-Z3-b_WD1jvGrlyEbxUSTaBrMXvAgImlEzWFI2hAg6X-4f4AX-023fhMe29F7_iFo1R2OzP4J4ZoE75MueNKA5h783QZrO49_h_4pc5K9lEX2KpHQShv3SiW-s_Tg1JFJuCXmUA5NaFh6NDsjRBMMiUuzfdJDq3AfEH7hjzpwt9SOg.jpg" width="400"><br>
+
+آکسیوس در گزارشی اختصاصی اعلام کرد دونالد ترامپ در تماس تلفنی طولانی و «دشوار» خود با بنیامین نتانیاهو، از تلاش میانجی‌ها برای تدوین یک «تفاهم‌نامه» خبر داده است. بر اساس این طرح، آمریکا و جمهوری اسلامی با امضای این تفاهم‌نامه رسما به جنگ پایان داده و یک دوره ۳۰ روزه را برای مذاکره درباره برنامه هسته‌ای ایران و بازگشایی تنگه هرمز آغاز می‌کنند.
+به گفته دو نفر از منابع آکسیوس، این پیشنهاد با مخالفت شدید نخست‌وزیر اسرائیل مواجه شده و دو رهبر درباره مسیر پیش‌رو اختلاف‌نظر جدی دارند. یک مقام آمریکایی وضعیت نتانیاهو را پس از این تماس، «بسیار خشمگین و آشفته» توصیف کرد.
+آکسیوس به نقل از منابع خود نوشت سفیر اسرائیل در واشنگتن نیز نگرانی شدید نتانیاهو از این گفتگو را به اطلاع قانون‌گذاران آمریکایی رسانده است؛ هرچند سخنگوی سفارت این موضوع را تکذیب کرد. یکی از منابع با اشاره به بدبینی همیشگی نتانیاهو به روند گفتگوها گفت: «بی‌بی همیشه نگران است.» کاخ سفید و دفتر نخست‌وزیری اسرائیل از اظهارنظر در این باره خودداری کرده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75582)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 
 
@@ -20,7 +58,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn1.telesco.pe/file/BRuN8K1Z_-EAA8WJe11DMS-Ye-hg3HirQuP_ca-v8T0-tWEE5V-T1KIpyfjUPCyjuuUZlso47Iu5EuCp15p_T4w-jeyzplDPzqTFqVvQ8WBfnutqF-c_dxusdy_vvUfL2VOtEjNMOfYCMTZDiPH7kxp9caNL5jsvQuTtBDxqcNgosbpFGyHEYO7XyS-QtUJZaLGXyK8vxWowVtX_SpnZRuCF9QnvBH0vmznFZmipZ9_eyx25cLsWdYr3bWQ641nV2BNt-X55-tyqJ5EJSfiC8HQHA_C3uAQEDy0wPEnq3Ze3LSHqYnXRcn8z3pQMMOm96Wo-2ne_1KUKSzmO-3eo4Q.jpg" width="400"><br>
 
@@ -38,7 +76,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn4.telesco.pe/file/ZFcI_czlDAMf_11XdfuqsdgsSBqytujU5EmHn56t2J2jwLHrG_DP7X72eqAwV3aOULlolVuXW_GbUZPjWbvzHY4lZ4xlrsehhljY2EJ1A7yDjfDIDstADLEHMb--KCWiCzAyhKjsW0f9BsEbKBO-Z2A_94uAHmXa36EhgkAjPv_IRGjg-INQGiIaTgfa8ZYpUgc8XnGLfComGr_fPo4BVXpzqV-8PtH8PeTKYA1Jv3ZUaJ-3sMF19tWyjl9rYEgNfPeMSbpxlL5HOMaAkWXo8OWNEmYayHgVsy2ircyA0k63Jpw49KyDFuWwoLb1mEQ7M9Svt6rIP2j4h_hsFbfOaA.jpg" width="400"><br>
 
@@ -56,7 +94,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 
 
@@ -75,7 +113,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 
 
@@ -94,7 +132,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn1.telesco.pe/file/gfHh1xPtJ4YTHN91wlZZxb8cya6aLwKqarhMe8_MkHQMhHVezFvEaCqZ4AsJY8W7N8QdpuhMP6iXmQH5T2wEkcjQiNWRKAWvttlmq0mk_d2J38sgI-T8Ep84AQboqjNrs8nkPOXR0WL_mDaVKx8ftgDuZMFuv--nDECF9oe-kAfJK6YarELvb__VyV0kk2rLPpKTOFuAcZW0kiSjjcJK0ywJOCjahaSF5_2zc_jegbWjoXzuxml-yTuGJrVTU0wL8r8GvbKGyk3Ha8lIjrs5BBxI5nSRIQ2JcK2YLXZ0C-U_MzfODcWFnLTN44jF-OqjST4zLEMzKFlcVlnlasFrew.jpg" width="400"><br>
 
@@ -112,7 +150,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn1.telesco.pe/file/USUpbF2aw-Iip221qrZZpXsmgHFzdgqjLgpW65BmJjioeBPEE48d4jZcEF_LKFjGxUHQUzGS-rP_lU5gGAvwO4ZzcypLaOp2BQQMG8o_UXRWPxRMGtFk8OYwikAxkJ9YLRatGsfgQd7heb6TBIvKHtA7uDd5V0Y9kMIY0thF2T-NkvV_9jqWAtX--cGZdhZ43W8QtSgIjAh9peToBuePdt_TGOzrR2tT5T0fznj43uoUZgxW1rtX8nRFP1qBA0ZB_mBqKplwYpL4Bb3YE1OGQu95NaqP7312FLontI73hYIQvMJuQCW7r6sv-5ZoUVuOH9dd9zmo_T8alxSxj5UdJQ.jpg" width="400"><br>
 
@@ -132,7 +170,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn1.telesco.pe/file/GHA_9Nt1XYjOrr7yd4P1w1R7P8Qet5PxdGXkxOuoz5QBRLGeFX-NNjoGAM1WTwY5dALXPHqOFk6NZ7Q6U-CU76obrtK1yEJY5zBFVNZqr0skYwD2IyCkyhtqitdyI3FekxYZNehoryf_T0_9EZ-ervj2yGKqsKjTuhxM-3-GGrHd43PA_aHEKpmChe3YXXjP0DdQXkxDczJB2I_yJtnfO6ALsa84zwAxpA4nwOdImG4dTllX_ycIpqtJ57XB2WabTwjDQmk9AXG-4vmM9QiTVnsr40-_iZ9Ya6-nAKyYrnTQ1mdto1_P-e8aT4iKnvFfjOewzg6nJDB0crdyrUdAdg.jpg" width="400"><br>
 
@@ -150,7 +188,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn4.telesco.pe/file/tXFnAoXKqcXZL7d3_kV7HYlSAH4krE890rsYamto2GanEsFIW8k61F6r03xSGv91Ff7-5T0bPCA3KEcGXSDUjgrEDTnPjAS4iVmeni6BgqLxo5EyCvX70eVtAJ3jTt-hj5ix3P2sRr9oP1I5-sc4dIU0D97s5kO2StcmnboZ83o1r7inua_9e-S1tA7kdneh0ATp8yX7Xu-q_a7ZL3k5pCbNcVTG1VFp-O36L1f7G4IN7tg9HY0bWlqhBRvKagn5rNkYJGthQpEVE4iKvuwxST42-MZTt2aie4CTxNcf5ufV_mP818YYak9meoqyMia0s6uJBUki5lUeY82LV1m6nA.jpg" width="400"><br>
 
@@ -168,7 +206,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn4.telesco.pe/file/KSRd1YitmDKOkLx7SFW8invTNzdpAvfgq-yes2F73P830t4IY_Izg9DNGcM6l3fTDZlGufQd4kIrrSWey473FJDL-EMqOVBWNkeoPac7XJsEb2W7VlGG4O_ZUeFSBC23RJROdIfFpYvDX_X6doJKkAAZxJuTFH_HT2so906fYHR5QOH2F8l7n2hj0JTEWFwbRDnBr0tyGUjAfk56ryC2YjRiGaSxLGqFBbWoUzhVVsshzqhXzMwD7B0hQrvLmbxQEeLyt6qNXAUFdxCGj9NWixbcLiXSfJAs00JyfL89-rjrsDRxoWENZQUfLLfOQ7brChYG2h160o1yz8DLZ8GZtg.jpg" width="400"><br>
 
@@ -185,7 +223,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn4.telesco.pe/file/EpN_PMSYI9ja9T73JJ-WMfAQA48Wbt8tr-L3OprcaFX3YwHF0NsWLaYHl5CSMyG_5-RVHO_cpnOiV_gWDpJ-hDaWy5f4cNSPEDg5hZwQvfpl9H-k31ZCWaqjGgJM7rgXlMEtSUSDZQ5wnhjYGffHrbKitjFd7qwni1r8nz0UO_t2d0snhhfMZait6hrBl7Ke9gLm9pGzbfcFSsBRXJnucF9bm9R5h-hkrEOfcYw3RdHtB-hsAn7EjGZjdTLm1yWr9iR333HFXtfyL4Jma37fHxdSp68n5KqzKNO1EsReR__jRAe_dmJ8BZxEYNY6RDKgUH5rtYOEz8aBBiM3CTEOTA.jpg" width="400"><br>
 
@@ -204,7 +242,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 <img src="https://cdn1.telesco.pe/file/NbMn7H4pklhF3tEEKPVA_H_qPbseOqthqXvIr6nJUtciqwfScN8UeZL0Eb38gc2NteQl7J5x-Lqbgv_xX0sGX57g-e106KzyS46c6q5guXZIwU4mRuLolPAadRzaKk8E0t_ytwvO28zKo78vzEhNEpxK32JMaMbUnSkuzQxoRKEdI-Fb95ZOR9zmDmRiAYANOyDyEdgRX_BH9byNTIZexfAUr5DXgQAkL0gEWizogJdcT7KobW6S2jDTbhVwivTeQW78XjYT-nzQ3XLb4sbrG2nBahBarNqyEp2h2HIsizPKtu-3GGIIbQynl4bjqsAGMoXCQ1aDeeH3VZE5OlQu-A.jpg" width="400"><br>
 
@@ -224,7 +262,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 21:10:39
+###### 🔵 Updated at: 2026-05-20 23:24:01
 
 
 
@@ -234,114 +272,6 @@ J74wabx
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75566)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 21:10:39
-
-<img src="https://cdn1.telesco.pe/file/SCtxp76U_kZviqPs9KcTIjopJcD4cg-AYZoWjUIeJTxKJA5YNTbvawYo83UfUOdeWhQALAgGJJBS3qlcKP6reUKCWZ45Gh48MGoDelbmiZbAVdV9bi7mHUQhd7lnADzFQmw5TzRAdctNQnvovXwzInJi7Fo1aWtIJ6aOmVcZQwJIF7G8roeE8qQ7R_9BdM6RFkBeP0eWyfv3lvyGms8wvTn7tIZXocg4puSx36uBy2hwnA8c2g5lZ2_UO7nG0q7peYkUDb96MVd78AI1C8v60pV7CfeXKC8uFsn6vs692ZrDNixV5_LdWUizK5JDamHPVsLvU2tga3VkpTsmrfgaYg.jpg" width="400"><br>
-
-ترجمه ماشین
-تیتر نیویورک‌تایمز: هدف اولیه جنگ، روی کار آوردن رئیس‌جمهور تندروی پیشین به عنوان رهبر ایران بود
-بخش‌های خبری مطلب:
-به گفته مقامات آمریکایی، حمله اسرائیل که با هدف آزادی محمود احمدی‌نژاد از حبس خانگی در تهران طراحی شده بود، بخشی از تلاش‌ها برای تغییر رژیم و به قدرت رساندن او بود.
-چند روز پس از آنکه حملات اسرائیل در آغازین روزهای جنگ، رهبر ایران و سایر مقامات ارشد را به قتل رساند، پرزیدنت ترامپ علناً اظهار داشت که بهتر است «شخصی از درون» ایران کنترل کشور را به دست بگیرد.
-اکنون مشخص شده است که ایالات متحده و اسرائیل با در نظر داشتن شخصیتی خاص و بسیار غافلگیرکننده وارد این درگیری شدند: محمود احمدی‌نژاد، رئیس‌جمهور پیشین ایران که به دلیل دیدگاه‌های تندرو، ضداسرائیلی و ضدآمریکایی‌اش شناخته می‌شود.
-اما بر اساس گفته‌های مقامات آمریکاییِ مطلع از این موضوع، این طرح جسورانه که توسط اسرائیلی‌ها تدوین شده بود و با آقای احمدی‌نژاد نیز درباره آن مشورت شده بود، به سرعت با شکست مواجه شد.
-مقامات آمریکایی و یکی از نزدیکان آقای احمدی‌نژاد اعلام کردند که او در روز اول جنگ بر اثر حمله اسرائیل به خانه‌اش در تهران - که برای رهایی او از حصر خانگی طراحی شده بود - مجروح شد. آن‌ها گفتند که او از این حمله جان سالم به در برد، اما پس از این خطر جانی، نسبت به طرح تغییر رژیم دلسرد و ناامید شد.
-او از آن زمان تاکنون در انظار عمومی دیده نشده است و مکان و وضعیت فعلی او نامشخص است.
-...
-اینکه آقای احمدی‌نژاد چگونه برای مشارکت در این طرح به کار گرفته شد، هنوز در هاله‌ای از ابهام قرار دارد.
-...
-سخنگوی موساد، سازمان اطلاعات خارجی اسرائیل، از اظهارنظر در این باره خودداری کرد.
-...
-مقامات آمریکایی گفتند که این حمله - که توسط نیروی هوایی اسرائیل انجام شد - به منظور کشتن نگهبانان مراقب آقای احمدی‌نژاد و به عنوان بخشی از طرحی برای رهایی او از حبس خانگی صورت گرفت.
-این حمله آسیب چندانی به خانه آقای احمدی‌نژاد که در انتهای یک کوچه بن‌بست قرار داشت، وارد نکرد. اما پاسگاه امنیتی در ورودی کوچه مورد اصابت قرار گرفت. تصاویر ماهواره‌ای نشان می‌دهد که آن ساختمان ویران شده است.
-در روزهای پس از آن، خبرگزاری‌های رسمی روشن کردند که او جان سالم به در برده است، اما «محافظان» او - که در واقع اعضای سپاه پاسداران انقلاب اسلامی بودند و همزمان وظیفه محافظت و نگهداری او در حبس خانگی را بر عهده داشتند - کشته شده‌اند.
-مقاله‌ای در نشریه آتلانتیک در ماه مارس، با استناد به منابع ناشناس نزدیک به آقای احمدی‌نژاد، نوشت که رئیس‌جمهور پیشین پس از حمله به خانه‌اش از حصر دولتی آزاد شده است؛ این مقاله آن رویداد را «در عمل یک عملیات فرار از زندان» توصیف کرد.
-پس از انتشار آن مقاله، یکی از نزدیکان آقای احمدی‌نژاد در گفتگو با نیویورک تایمز تأیید کرد که آقای احمدی‌نژاد این حمله را به عنوان تلاشی برای آزادی خود تلقی کرده است. این فرد مطلع گفت که آمریکایی‌ها آقای احمدی‌نژاد را شخصی می‌دانستند که می‌تواند ایران را رهبری کند و توانایی مدیریت «وضعیت سیاسی، اجتماعی و نظامی ایران» را دارد.
-این فرد مطلع اظهار داشت که آقای احمدی‌نژاد می‌توانست در آینده نزدیک «نقش بسیار مهمی» در ایران ایفا کند و اشاره کرد که ایالات متحده او را شبیه به دلسی رودریگز می‌دید؛ کسی که پس از دستگیری آقای مادورو توسط نیروهای آمریکایی در ونزوئلا قدرت را به دست گرفت و از آن زمان همکاری نزدیکی با دولت ترامپ داشته است.
-...
-در چند سال گذشته آقای احمدی‌نژاد سفرهایی به خارج از ایران داشته است که به گمانه‌زنی‌ها دامن زده است.
-به گزارش مجله نیولاینز، او در سال ۲۰۲۳ به گواتمالا و در سال‌های ۲۰۲۴ و ۲۰۲۵ به مجارستان سفر کرد. هر دو کشور روابط نزدیکی با اسرائیل دارند.
-ویکتور اوربان، نخست‌وزیر مجارستان در آن زمان، روابط نزدیکی با آقای نتانیاهو دارد. در طول این سفرها به مجارستان، آقای احمدی‌نژاد در دانشگاهی مرتبط با آقای اوربان سخنرانی کرد.
-او تنها چند روز قبل از آغاز حملات اسرائیل به ایران در ژوئن گذشته از بوداپست بازگشت. زمانی که آن جنگ درگرفت، او حضور علنی کمرنگی داشت و تنها چند بیانیه در شبکه‌های اجتماعی منتشر کرد. سکوت نسبی او در مورد جنگ با کشوری که آقای احمدی‌نژاد مدت‌ها آن را دشمن اصلی ایران می‌دانست، مورد توجه بسیاری در شبکه‌های اجتماعی ایران قرار گرفت.
-...
-nytimes
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75565)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 21:10:39
-
-<img src="https://cdn1.telesco.pe/file/dLKsHee9i_guOs9R_agROIQ6EJGxfzcobphm_JH4aK0c8ElyUKRcy9LEZr-WO2YPFV5E7-cvSap7vAvAZAzVoN9ntN6ANF0L460XEshcr4AK8SyfiWGXAXtSp4CYiwPlJNGzViIksPv7YjPSzAK9ChTW-jGS1aE1Jn5I0AXA2AhTrvnB59nH55Aoxjp34GjrScT78oP-ON_AE2Pi-RuCaKm0HPB9g0QNV3gwbTIVoNQ0NqFxyYmuiBvFpM2yKg7OqHg680Zt9EGWHVjXkSFP5iAjhSMwTq65kXDvBZuQX8YvpewhH_BaC-m_CaoNo4Dy7r8Mveq4CTVmynF14Ll09g.jpg" width="400"><br>
-
-ترامپ در یک سخنرانی در کاخ سفید گفت  ایران قرار نیست به سلاح هسته‌ای دست پیدا کند. نمی‌توانند سلاح هسته‌ای داشته باشند. ما نمی‌توانیم چنین چیزی را تحمل کنیم و آن را تحمل نخواهیم کرد.
-او گفت ما نیروی دریایی آن‌ها را نابود کردیم. نیروی هوایی آنها از بین رفته است. سامانه‌های پدافند هوایی آنها از بین رفته است. تمام تجهیزاتی که برای جنگ استفاده می‌کردند از بین رفته است. تقریبا همه چیز از بین رفته است.
-ترامپ افزود: نمی‌خواهم بگویم رهبران آنها از بین رفته‌اند، چون بیان آن چندان خوشایند نیست، اما واقعیت همین است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75564)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 21:10:39
-
-<img src="https://cdn1.telesco.pe/file/UDl-I0Dfi9lhKPiyM7aJ7oznlS-J9lBSTKl6bVZ6b7ySusTOTSWEwiMyqeoC8iq_o5k7etMJfJnweqndHK1-hKo_B_eyQWDnbaIw6RO-icO_hV8wHHGV33UJqlrTuM7dTUiIPknmWgSe0qjdaMxXpXgzEw9hdFAjqu5cGxRQlaI9wgR1cQyKWAUklBWfN7efTwo0Iccw4oD7oaPh_PgJDfcWDWBI3B65nv27L2fbDh1v1VU_0CAZH0ui00P7J8w9Ik_cY7eXpxiYbOzO0Q7oaE_mTu_Mi-lV5zH8uSghuuxB5Fi9gfvP8tHVem6_WVRTd2tZjj6wFgz-KEf62itCgQ.jpg" width="400"><br>
-
-زمین‌لرزه در قشم
-آپدیت:‌
-تصویر بالا:
-#زلزله
-به بزرگی ۴٫۷ در عمق ۲۰ کیلومتری بندر لافت در جزیره قشم هرمزگان
-پیام‌های دریافتی:
-سلام وحید دو زلزله شدید بندرعباس رو لرزاند
-ساعت ۳:۱۱ دقیقه بندرعباس زلزله اومد
-همین الان ساعت ۳:۱۲ دوبار به مدت ۱۵ ثانیه وحشتناک بندرعباس لرزید
-من بندرعباس هستم دو بار لرزید
-زلزله اومده خیلی بد بود
-زمین لرزه نسبتا شدید ساعت ٣:١٠ بامداد بندرعباس
-بندرعباس هستم فکر کردیم باز زدن دقیقا ۲۰ ثانیه همه جا میلرزید
-چند دقیقه پیش زمین لرزه نسبتا شدید اومد دوبار تو فاصله خیلی کم بندرعباس
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75563)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 21:10:39
-
-<img src="https://cdn1.telesco.pe/file/cfBT_dCmmR1bhL09pBkLfRUm2hpaZnZGdhKdrrEZYGehIYLBhM3E_dTWVlF7zIQtshoc-wDlDRkrtQ1tLe9NJiYxzw_3p6d5W_3ZV-aa7POM7s3skk9OY7IlbLOn9PNswX4wPSrhJXQ7ixTYi8U-qhYTU8q6PPJq8__3wSwhrIC_36pCGJilw0KEx222sFF3JM5ZlWpdMTmDEZHyX0_JlHQQIeO0K6lHH8QypJ0sxP8yCmmqc2HrHhTUnQ658u6eUHASkSko-IyeuUwED-71MS6t7ZiALqMbxv88fQQTyvmp7Dqb4tLQSaadGOztTxqZwz4Pqp2BbX1_sWbs478ANQ.jpg" width="400"><br>
-
-سنای آمریکا روز سه‌شنبه قطعنامه‌ای را برای توقف اقدام نظامی در ایران پیش برد.
-پیش بردن این قطعنامه پس از آن صورت گرفت که سناتور جمهوری‌خواه، بیل کسیدی از لوئیزیانا، به آن رای مثبت داد. کسیدی چند روز پیش، در رقابت‌های درون حزبی ایالتی برای ادامه حضورش در سنا، به نامزدی که از حمایت ترامپ برخوردار بود، باخت.
-به گزارش سی‌ان‌بی‌سی، با وجود اینکه قطعنامه اختیارات جنگی با نتیجه ۵۰ به ۴۷ به تصویب رسید، اما هنوز احتمال کمی برای تبدیل شدن به قانون دارد. این قطعنامه باید ابتدا در سنا به تصویب نهایی برسد، سپس مجلس نمایندگان به رای بدهد و سپس نیز، دونالد ترامپ به احتمال قریب به یقین، آن را وتو خواهد کرد.
-@
-VahidHeadline
-چهار جمهوری‌خواه هم‌حزبی ترامپ همراه با همه دموکرات‌ها به جز یک نفر، به آن رای مثبت دادند. سه سناتور جمهوری‌خواه نیز در رای‌گیری غایب بودند.
-باوجود تصویب این آیین‌نامه، حتی اگر قطعنامه‌ای در سنا با ۱۰۰ عضو هم به تایید برسد، کار دشواری در مجلس نمایندگان خواهد داشت که تحت کنترل جمهوری‌خواهان است و پس از آن نیز باید دو‌سوم رای کنگره و سنا را داشته باشد تا بتواند گزینه وتوی احتمالی رئیس‌جمهور را دور بزند.
-طبق قانون اختیارات جنگی آمریکا مصوب ۱۹۷۳ که در واکنش به جنگ ویتنام تصویب شد، رئیس‌جمهور آمریکا تنها ۶۰ روز می‌تواند بدون مجوز کنگره عملیات نظامی انجام دهد و پس از آن باید یا جنگ را متوقف کند، یا از کنگره مجوز بگیرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75562)
 
 ---
 
