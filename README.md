@@ -3,7 +3,62 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
+
+
+
+پوتین هم به خدمت شی رسید.
+J74wabx
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75566)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 09:23:53
+
+<img src="https://cdn1.telesco.pe/file/RPFxSsAwNSuyhIz5p7xL34_jFup5ltG1fYleMHq4Q1McW17jPumvl96lxl7xbMm5jGL31xq9J2hgXzCjkbhg8nt41BH4B_aG1BM3oWxEHn6KcvPbRLL54I9HiRyKBr8Vxov-Q1Rera_dVzZwnLovXXx1gHCUUMd06l_s33kr8gu-_yJe_beNRHzKaDX-qW35zljMIlxxgb3J7QUZG0WeJ7_mf9RXwj6XTNGYYFCaHSU3B67dYPg6Uu9vHKrKBWxejwsdo4D7hMZpeBW56Fvs3VrdFRik5vxeX-uXaHOMS-DS-A7QdzOhq4bgRQwBgUmYFtv9CgmBMWjfOIZ2P6MOwA.jpg" width="400"><br>
+
+ترجمه ماشین
+تیتر نیویورک‌تایمز: هدف اولیه جنگ، روی کار آوردن رئیس‌جمهور تندروی پیشین به عنوان رهبر ایران بود
+بخش‌های خبری مطلب:
+به گفته مقامات آمریکایی، حمله اسرائیل که با هدف آزادی محمود احمدی‌نژاد از حبس خانگی در تهران طراحی شده بود، بخشی از تلاش‌ها برای تغییر رژیم و به قدرت رساندن او بود.
+چند روز پس از آنکه حملات اسرائیل در آغازین روزهای جنگ، رهبر ایران و سایر مقامات ارشد را به قتل رساند، پرزیدنت ترامپ علناً اظهار داشت که بهتر است «شخصی از درون» ایران کنترل کشور را به دست بگیرد.
+اکنون مشخص شده است که ایالات متحده و اسرائیل با در نظر داشتن شخصیتی خاص و بسیار غافلگیرکننده وارد این درگیری شدند: محمود احمدی‌نژاد، رئیس‌جمهور پیشین ایران که به دلیل دیدگاه‌های تندرو، ضداسرائیلی و ضدآمریکایی‌اش شناخته می‌شود.
+اما بر اساس گفته‌های مقامات آمریکاییِ مطلع از این موضوع، این طرح جسورانه که توسط اسرائیلی‌ها تدوین شده بود و با آقای احمدی‌نژاد نیز درباره آن مشورت شده بود، به سرعت با شکست مواجه شد.
+مقامات آمریکایی و یکی از نزدیکان آقای احمدی‌نژاد اعلام کردند که او در روز اول جنگ بر اثر حمله اسرائیل به خانه‌اش در تهران - که برای رهایی او از حصر خانگی طراحی شده بود - مجروح شد. آن‌ها گفتند که او از این حمله جان سالم به در برد، اما پس از این خطر جانی، نسبت به طرح تغییر رژیم دلسرد و ناامید شد.
+او از آن زمان تاکنون در انظار عمومی دیده نشده است و مکان و وضعیت فعلی او نامشخص است.
+...
+اینکه آقای احمدی‌نژاد چگونه برای مشارکت در این طرح به کار گرفته شد، هنوز در هاله‌ای از ابهام قرار دارد.
+...
+سخنگوی موساد، سازمان اطلاعات خارجی اسرائیل، از اظهارنظر در این باره خودداری کرد.
+...
+مقامات آمریکایی گفتند که این حمله - که توسط نیروی هوایی اسرائیل انجام شد - به منظور کشتن نگهبانان مراقب آقای احمدی‌نژاد و به عنوان بخشی از طرحی برای رهایی او از حبس خانگی صورت گرفت.
+این حمله آسیب چندانی به خانه آقای احمدی‌نژاد که در انتهای یک کوچه بن‌بست قرار داشت، وارد نکرد. اما پاسگاه امنیتی در ورودی کوچه مورد اصابت قرار گرفت. تصاویر ماهواره‌ای نشان می‌دهد که آن ساختمان ویران شده است.
+در روزهای پس از آن، خبرگزاری‌های رسمی روشن کردند که او جان سالم به در برده است، اما «محافظان» او - که در واقع اعضای سپاه پاسداران انقلاب اسلامی بودند و همزمان وظیفه محافظت و نگهداری او در حبس خانگی را بر عهده داشتند - کشته شده‌اند.
+مقاله‌ای در نشریه آتلانتیک در ماه مارس، با استناد به منابع ناشناس نزدیک به آقای احمدی‌نژاد، نوشت که رئیس‌جمهور پیشین پس از حمله به خانه‌اش از حصر دولتی آزاد شده است؛ این مقاله آن رویداد را «در عمل یک عملیات فرار از زندان» توصیف کرد.
+پس از انتشار آن مقاله، یکی از نزدیکان آقای احمدی‌نژاد در گفتگو با نیویورک تایمز تأیید کرد که آقای احمدی‌نژاد این حمله را به عنوان تلاشی برای آزادی خود تلقی کرده است. این فرد مطلع گفت که آمریکایی‌ها آقای احمدی‌نژاد را شخصی می‌دانستند که می‌تواند ایران را رهبری کند و توانایی مدیریت «وضعیت سیاسی، اجتماعی و نظامی ایران» را دارد.
+این فرد مطلع اظهار داشت که آقای احمدی‌نژاد می‌توانست در آینده نزدیک «نقش بسیار مهمی» در ایران ایفا کند و اشاره کرد که ایالات متحده او را شبیه به دلسی رودریگز می‌دید؛ کسی که پس از دستگیری آقای مادورو توسط نیروهای آمریکایی در ونزوئلا قدرت را به دست گرفت و از آن زمان همکاری نزدیکی با دولت ترامپ داشته است.
+...
+در چند سال گذشته آقای احمدی‌نژاد سفرهایی به خارج از ایران داشته است که به گمانه‌زنی‌ها دامن زده است.
+به گزارش مجله نیولاینز، او در سال ۲۰۲۳ به گواتمالا و در سال‌های ۲۰۲۴ و ۲۰۲۵ به مجارستان سفر کرد. هر دو کشور روابط نزدیکی با اسرائیل دارند.
+ویکتور اوربان، نخست‌وزیر مجارستان در آن زمان، روابط نزدیکی با آقای نتانیاهو دارد. در طول این سفرها به مجارستان، آقای احمدی‌نژاد در دانشگاهی مرتبط با آقای اوربان سخنرانی کرد.
+او تنها چند روز قبل از آغاز حملات اسرائیل به ایران در ژوئن گذشته از بوداپست بازگشت. زمانی که آن جنگ درگرفت، او حضور علنی کمرنگی داشت و تنها چند بیانیه در شبکه‌های اجتماعی منتشر کرد. سکوت نسبی او در مورد جنگ با کشوری که آقای احمدی‌نژاد مدت‌ها آن را دشمن اصلی ایران می‌دانست، مورد توجه بسیاری در شبکه‌های اجتماعی ایران قرار گرفت.
+...
+nytimes
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75565)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn1.telesco.pe/file/dLKsHee9i_guOs9R_agROIQ6EJGxfzcobphm_JH4aK0c8ElyUKRcy9LEZr-WO2YPFV5E7-cvSap7vAvAZAzVoN9ntN6ANF0L460XEshcr4AK8SyfiWGXAXtSp4CYiwPlJNGzViIksPv7YjPSzAK9ChTW-jGS1aE1Jn5I0AXA2AhTrvnB59nH55Aoxjp34GjrScT78oP-ON_AE2Pi-RuCaKm0HPB9g0QNV3gwbTIVoNQ0NqFxyYmuiBvFpM2yKg7OqHg680Zt9EGWHVjXkSFP5iAjhSMwTq65kXDvBZuQX8YvpewhH_BaC-m_CaoNo4Dy7r8Mveq4CTVmynF14Ll09g.jpg" width="400"><br>
 
@@ -21,7 +76,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn1.telesco.pe/file/UDl-I0Dfi9lhKPiyM7aJ7oznlS-J9lBSTKl6bVZ6b7ySusTOTSWEwiMyqeoC8iq_o5k7etMJfJnweqndHK1-hKo_B_eyQWDnbaIw6RO-icO_hV8wHHGV33UJqlrTuM7dTUiIPknmWgSe0qjdaMxXpXgzEw9hdFAjqu5cGxRQlaI9wgR1cQyKWAUklBWfN7efTwo0Iccw4oD7oaPh_PgJDfcWDWBI3B65nv27L2fbDh1v1VU_0CAZH0ui00P7J8w9Ik_cY7eXpxiYbOzO0Q7oaE_mTu_Mi-lV5zH8uSghuuxB5Fi9gfvP8tHVem6_WVRTd2tZjj6wFgz-KEf62itCgQ.jpg" width="400"><br>
 
@@ -48,7 +103,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn1.telesco.pe/file/cfBT_dCmmR1bhL09pBkLfRUm2hpaZnZGdhKdrrEZYGehIYLBhM3E_dTWVlF7zIQtshoc-wDlDRkrtQ1tLe9NJiYxzw_3p6d5W_3ZV-aa7POM7s3skk9OY7IlbLOn9PNswX4wPSrhJXQ7ixTYi8U-qhYTU8q6PPJq8__3wSwhrIC_36pCGJilw0KEx222sFF3JM5ZlWpdMTmDEZHyX0_JlHQQIeO0K6lHH8QypJ0sxP8yCmmqc2HrHhTUnQ658u6eUHASkSko-IyeuUwED-71MS6t7ZiALqMbxv88fQQTyvmp7Dqb4tLQSaadGOztTxqZwz4Pqp2BbX1_sWbs478ANQ.jpg" width="400"><br>
 
@@ -71,7 +126,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn1.telesco.pe/file/nPoNMZGvY6kPvEjbEr_2z17If7JYBQhhyyv_26Pre3QB_NIKlJpIvKWa9pANaX2dyaQgmXgHBOVcr0UXmxSrhyH5ef8tt-BMn4Y1GG_qI6pWkFAkZTpRTHs785HuTKgDNSbe0sNEEZrcfOaQtwH9B0QOSbPv5M11dKC0svcaawXZfZ6nYdagYrWMuaw4-nm72XE4V88SthGQ_JyjajAQT9OYlZjhY_0BovaMALW9ZxZ-cDBNVYw0_Ke8zE5wGXumcRLyJHzO3PQSyRLPpcYeG61vgBwHBizMW05hyxBl7XpdrCz8YqQV8MIgAawHYLkSoPhX14HzVGHukTvQ84DDjQ.jpg" width="400"><br>
 
@@ -118,7 +173,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 
 
@@ -138,7 +193,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 
 
@@ -162,7 +217,7 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn4.telesco.pe/file/mvgThDxGVe9wREfpAVrf45Xiks25QZ3V8uFRWAnSZ9ZSBmIlPzrxz-uiqAvlCFLkIqAK5DjTxas-4J4Rv8Xw821RpHWJaZwGAAl5e_JVo4Zc9X865OTtscvN76t6QWUPxtlL46yfHXOBGAtyIsdAcng8NiXZEYGsIQrr4je1zK8QWF9vaQmZT4WWqqW4oP1iHiiljeP5Vsl1_EZdtLqEq-PWwtDjTX7GUL3FXRgZjQwAP5utQfRhb6cJoRAhhEkw3QJAaJnXgtdqmzZnNDrXrJenUku4dzAtDVZeQfNrBwlHOVyNnZLHnrjjKY_WeufM5pOp3Gz-KOCxrW0RFmGT2w.jpg" width="400"><br>
 
@@ -176,7 +231,7 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn4.telesco.pe/file/wA8hFAbeYjXR_kUbazudYCENFwEL2uyQY-VnP91Fvxprx-oKxEjh724qdTTwfi1O6tlkTppQbUziAx-KH51B2YDY9JvlGVpEVgCsMzJVeptNz3tyiF0Vilb-GxgwbHgQbzV1ut-Bknzu-5lTMtsgjEChN6mKjqS4VsB7tI90Sj2-pwJCkuVqgHis05soTTejigZMF_m2UuD7CvuOMha6U91NholUe27zZJHT9dXyHtcVrYmV8Q6t6OaHcvkpTSt00-RMVHhII2bgAOlWdJ1wXfQpZV7j8f-HUEiyZdiQSO9TC5xzQfP_rDv7EGiN8VR_n0gX2kMg3AL1Y7bQyOd_Xg.jpg" width="400"><br>
 
@@ -199,7 +254,7 @@ FSeifikaran
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn4.telesco.pe/file/F_ACG7pYJHMP-_XCA-VE5BwMtUai3Mn6BQ21hZDZZZag8S-7NFzxVQLgEfv1LGvRrL5SPbIbOQH-EP-sreA9gZKqBU11kqdUxQ2_VVq9FsS_1ow_W0FIeh8wJOudQwTP_52BrS3gbshisv2hvuxX73lDIPthcSNPsKPpwtJeua9FXZJuIal54-lY8U5HiotmlvnbOAYfxEwIKxo4dmntPnTO9GSSZRUWIRgQjdgpdR5RHlx5OBmbsOKZDyX2nWEf0j-1fGpnnABVX05kMTyJTS49nHZhvJ60XgPtx3Y04ur0DOSLx5thHNI-ALdZU0oUlGEJk4uXW0kSnHIGP1jxiQ.jpg" width="400"><br>
 
@@ -216,7 +271,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn4.telesco.pe/file/J-ZXrgwN9OT7r0YiSgEblIfNMrMRg8WIk0ZuISS1ZiTKDVRkoY7PcX9e4aGVFUrlc7-6pz4yhCmc_p2Q3Ab7waPkDCCnaiRo6r9aHnF_ovTsGT_eBih1YoPU6qBtKWa2K46E4xflDvQrhIs90sB6KXE4TBgFH0_tjeykZdhXzRMnfzpBJY4dn3CTdILGcFTlun4zYfEGH7CCf0Li90x6GmBc_g99Q7aKAwqwcxgVt1jTmem3hgEqLeXGatCmC6oD2yATDWSOZsLJgPZv1SiH1_8wC2sa9kRAYZzuul7qZarUEU3qk_CTUFYRxsA4_V9edqEImFlVnYyzbKvzG-hL5Q.jpg" width="400"><br>
 
@@ -233,7 +288,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn4.telesco.pe/file/sohqcrfNbnR5d7wFnzmK6C7C7zqZ0Xg7B0bkoJ08JHwTdR1oMWxt7YJtZ7gVN3qeO9NhU4DfKv4lahif9N0EyRq2F4LFh0DbPrVvOvfMQ33k-94SnAt94yC-WiS0r4e7fPZY6VWLkgBUlBDB1_6OvoKhWvKq6gLnN5mgHAibUG5KO_tWFZWtLDR-T--Flj_4V9jVkUZUGS9wdn7rvFaPFZ1j_OaLLslcYRjjUyjBrZDhU69qpTQ_Bcuw3GaCawst_SN-b1vEBpoPUj7Hgxz_dh1ti-P_qut3if0rhi9WX4FrlgwxmX_jVmCSOcXzJsXHXcyi8PlpE5d_6RIcvrweTA.jpg" width="400"><br>
 
@@ -252,7 +307,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn4.telesco.pe/file/EJHTNqEvTGDr-QgQhum7hIGKK1leDkT6r9b-UYwa-RZauIYj5MhVvyjWINT0Hpo6ExsmF3Go7AFzTRVuIJB6-4m3ykF01k-IO1BOybUFWEaoyY310SW4nMpV4Pzqt94BwydGNTayOxu_RLIgPEF_JcwVqmSwWF0BIX2c0t5RjMokI8QRI7FXVMQZ9FvRfclkKPU8j3qruZnqrOHeYUdAyXsP2Nzk6S0laelgsIDzVHSJ7UM4xsww0_sD-RSKMJRsK8HhBWZbJxoy2kvCS43oPuT5zU4CvY7Nd-ve-mH8QSMM2H1ti81QUE4ehtqmMGK-TKCsZZZgto-ln6zRJqEydg.jpg" width="400"><br>
 
@@ -272,7 +327,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 05:21:22
+###### 🔵 Updated at: 2026-05-20 09:23:53
 
 <img src="https://cdn1.telesco.pe/file/qOyYoX7nXjydM1lK2HXU8aTgduI_FFrcurlqhvPjfMU3ad62_1BFTPXZeWdMERZT0_4wAsBNnk19FRZzDd3ey8JfAWsfeHW7KpmJDGaLe--zFI8sURRgyPCAR0FrI3s7PXvY85dxuFclLoSan0fe_tp5jnJ86LwhtId27HxhIFeeoxM8jpRhpknwfpInAjoTzr9rLR2vheCMz6ChRFvNE4Lb0GjL8mekILpUt8kDbZcinp5t4nVbwY8DKUG_oZnVZy2daX5GOiAQrEkcPJmQkGkgRnSRaXfNPBzzvXNOhmnAxtddRMHdPZiw1--GQBNURh1ow7kuy7FOGs2FKb106w.jpg" width="400"><br>
 
@@ -281,53 +336,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75546)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 05:21:22
-
-<img src="https://cdn1.telesco.pe/file/vQZA1IoOxbmV5c6EG7rTn__d7DXJodjoE-bsKIdakVCy-oeigdbZ5H5cfzqnQ2qAihevUXfRCiQfe8AZRYwdtIZ9N9aSFQJnV6HCuBpC_DldDeTsJe5RSoo1AXeX0jJaqsK0cmNXr1GEyPfAYY24AAjOWWNwl72OpZLJ4RxxqtUv2xH4piI6eoNT1Nq48eoBFExjBbxNJFPcLWfh0ZN-kiuIrWJi1AJs9mJwSI81OXuH0OurBy5P9wOIrjYckAj1VoR-_ENWpIG-rDK9AHiiS4k0HBBYurFs1vQ-d-_OnHIa-I8atzG35ez_oLfP3CqCR4L95a8g9m49tEZsqASr8w.jpg" width="400"><br>
-
-☄️
-ترامپ: حمله فردا را به تعویق انداختم
-پست ترامپ ترجمه ماشین:
-از سوی امیر قطر تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی  محمد بن سلمان آل سعود و رئیس امارات متحده عربی محمد بن زاید آل نهیان، از من خواسته شده است حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، به تعویق بیندازم؛
-زیرا مذاکرات جدی اکنون در جریان است
-و
-به باور آن‌ها، به‌عنوان رهبران بزرگ و متحدان ما، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود.
-این توافق، نکته مهمی را در بر خواهد داشت: هیچ سلاح هسته‌ای برای ایران!
-بر اساس احترامی که برای رهبران نام‌برده قائلم، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک ارتش، ژنرال دانیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده فردا به ایران را انجام ندهیم؛ اما همچنین به آن‌ها دستور داده‌ام که آماده باشند، در صورت حاصل نشدن یک توافق قابل قبول، در یک لحظه و بدون درنگ، حمله‌ای کامل و گسترده علیه ایران را آغاز کنند.
-از توجه شما به این موضوع سپاسگزارم!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75545)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 05:21:22
-
-<img src="https://cdn1.telesco.pe/file/uylluMRRAzBvrNZ-YqtKq4dXa9Eapr2yeIZ93LtbJC-A_v_PpDVASRC9_W0YqGE0BU8_RbQhvkJur2L09v4Rl4WVOfRn-7EiatrJDrCQB4g_0UrGb08va_JdGKHNoKghcpOlx1dG9bjL3ZDrPsh_jOh9_p4nHwATYMA7CHXAO4BPbzDmgjtKiFZZHgOzHBGMJUs3LzRSiYBr-XNw4eIUHd-wJwx74j7UY44GgqEnwkfwpZkumCV1cYf8OmFR-RuV3ZCwtbwnJwPPd2GSxvrZ3TToS6uhKyw2wNluf9zawO4gVDsn1Lq1jSNvfZjgO7msn5XhsUqe3THnEBlT8-7SDg.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس جمهوری آمریکا، روز دوشنبه در گفتگو با نیویورک پست اعلام کرد که پس از دریافت آخرین پاسخ ناامیدکننده تهران در مذاکرات توافق صلح، «به هیچ وجه حاضر به دادن امتیاز» به ایران نیست.
-ترامپ در مصاحبه تلفنی کوتاه، ضمن ابراز نارضایتی از آخرین پیشنهاد تهران گفت ایران می‌داند «به‌زودی چه اتفاقی خواهد افتاد».
-به گزارش نیویورک پست، وقتی از ترامپ درباره اظهارنظر روز جمعه‌اش مبنی بر اینکه مایل به پذیرش تعلیق ۲۰ ساله غنی‌سازی اورانیوم ایران است سوال شد، جواب داد: «در حال حاضر به هیچ وجه آماده دادن امتیاز نیستم».
-ترامپ ادامه داد: «من واقعا نمی‌توانم در این مورد با شما صحبت کنم. چیزهای بسیار زیادی در حال رخ دادن است».
-رئیس جمهوری آمریکا همچنین گفت از تهران «ناامید یا کلافه» نشده، اما هم‌زمان تأکید کرد ایران به‌خوبی آگاه است که ایالات متحده می‌تواند فشار بیشتری وارد کند.
-ترامپ گفت: «می‌توانم به شما بگویم آن‌ها بیش از هر زمان دیگری خواستار توافق هستند، زیرا آن‌ها می‌دانند ما...به‌زودی چه اتفاقی قرار است بیفتد».
-وقتی درباره ادعاهای منابع منطقه‌ای مبنی بر اینکه ایران تلاش می‌کند در قبال هر دو مسئله هسته‌ای و بازگشایی تنگه هرمز در برابر واشنگتن «سیاست صبر و انتظار» پیش بگیرد، سوال شد، ترامپ گفت «چنین چیزی نشنیده است».
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75544)
 
 ---
 
