@@ -3,7 +3,81 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
+
+<img src="https://cdn4.telesco.pe/file/tXFnAoXKqcXZL7d3_kV7HYlSAH4krE890rsYamto2GanEsFIW8k61F6r03xSGv91Ff7-5T0bPCA3KEcGXSDUjgrEDTnPjAS4iVmeni6BgqLxo5EyCvX70eVtAJ3jTt-hj5ix3P2sRr9oP1I5-sc4dIU0D97s5kO2StcmnboZ83o1r7inua_9e-S1tA7kdneh0ATp8yX7Xu-q_a7ZL3k5pCbNcVTG1VFp-O36L1f7G4IN7tg9HY0bWlqhBRvKagn5rNkYJGthQpEVE4iKvuwxST42-MZTt2aie4CTxNcf5ufV_mP818YYak9meoqyMia0s6uJBUki5lUeY82LV1m6nA.jpg" width="400"><br>
+
+سپاه پاسداران با انتشار بیانیه‌ای تهدید کرده که در صورت آغاز دوباره جنگ آمریکا و اسرائیل علیه ایران، جنگ «به فراتر از منطقه کشیده خواهد شد.»
+در این بیانیه با اشاره به تهدیدهای دونالد ترامپ و مقام‌های اسرائیل برای حمله مجدد به ایران آمده: «اگر تجاوز به ایران تکرار شود جنگ منطقه‌ای که وعده داده شده بود، این بار به فراتر از منطقه کشیده خواهد شد و ضربات کوبنده ما در جاهایی که تصور آن را ندارید شما را به خاک سیاه خواهد نشاند.»
+عباس عراقچی، وزیر خارجه ایران هم در واکنش به اظهارات تهدیدآمیز دونالد ترامپ، رئیس‌جمهور آمریکا، درباره احتمال از سرگیری حمله نظامی به ایران، در شبکه ایکس نوشته «با درس‌هایی که آموخته‌ایم و دانشی که به دست آورده‌ایم، مطمئن باشید بازگشت به میدان جنگ با شگفتی‌های بسیار بیشتری همراه خواهد بود.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75570)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 17:53:22
+
+<img src="https://cdn4.telesco.pe/file/KSRd1YitmDKOkLx7SFW8invTNzdpAvfgq-yes2F73P830t4IY_Izg9DNGcM6l3fTDZlGufQd4kIrrSWey473FJDL-EMqOVBWNkeoPac7XJsEb2W7VlGG4O_ZUeFSBC23RJROdIfFpYvDX_X6doJKkAAZxJuTFH_HT2so906fYHR5QOH2F8l7n2hj0JTEWFwbRDnBr0tyGUjAfk56ryC2YjRiGaSxLGqFBbWoUzhVVsshzqhXzMwD7B0hQrvLmbxQEeLyt6qNXAUFdxCGj9NWixbcLiXSfJAs00JyfL89-rjrsDRxoWENZQUfLLfOQ7brChYG2h160o1yz8DLZ8GZtg.jpg" width="400"><br>
+
+رسانه‌های ایران روز چهارشنبه ۳۰ اردیبهشت خبر دادند که محسن نقوی، وزیر کشور پاکستان، وارد تهران شده است. او روز ۲۶ اردیبهشت نیز به ایران سفر کرده بود.
+خبرگزاری ایسنا اعلام کرده که برنامه و اهداف سفر این مقام ارشد پاکستانی در ایران «مشخص نیست». خبرگزاری تسنیم نیز گزارش داده که آقای نقوی در بدو ورود به تهران با وزیر کشور ایران دیدار کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75569)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 17:53:22
+
+<img src="https://cdn4.telesco.pe/file/EpN_PMSYI9ja9T73JJ-WMfAQA48Wbt8tr-L3OprcaFX3YwHF0NsWLaYHl5CSMyG_5-RVHO_cpnOiV_gWDpJ-hDaWy5f4cNSPEDg5hZwQvfpl9H-k31ZCWaqjGgJM7rgXlMEtSUSDZQ5wnhjYGffHrbKitjFd7qwni1r8nz0UO_t2d0snhhfMZait6hrBl7Ke9gLm9pGzbfcFSsBRXJnucF9bm9R5h-hkrEOfcYw3RdHtB-hsAn7EjGZjdTLm1yWr9iR333HFXtfyL4Jma37fHxdSp68n5KqzKNO1EsReR__jRAe_dmJ8BZxEYNY6RDKgUH5rtYOEz8aBBiM3CTEOTA.jpg" width="400"><br>
+
+رسانه‌ها در ایران از اجرای حکم اعدام قاتل الهه حسین‌نژاد، که جسد او اوایل خرداد سال گذشته در بیابان‌های اطراف تهران پیدا شد، خبر می‌دهند.
+عصر چهارم خرداد ۱۴۰۴ الهه حسین‌نژاد ۲۴ ساله از سالن زیبایی که در آنجا مشغول به کار بود، بیرون آمد تا به خانه‌اش در اسلامشهر برود، اما ناپدید شد و وقتی خانواده‌اش اعلام شکایت کردند بررسی‌های تیم جنایی نشان می‌داد الهه از میدان آزادی سوار یک خودروی عبوری شده است.
+جست و جوها برای یافتن الهه سرانجام پس از ۱۱ روز نتیجه داد و با دستگیری راننده خودرو به نام بهمن ۳۷ ساله و اعتراف به قتل الهه، جسد او در بیابان‌های اطراف تهران پیدا شد. متهم نیز پس از محاکمه به اعدام محکوم شد.
+این قتل جنجال زیادی درباره امنیت زنان در ایران به پا کرد و تا مدت‌ها رسانه‌ها درباره آن مطالب مختلفی منتشر می‌کردند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75568)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 17:53:22
+
+<img src="https://cdn4.telesco.pe/file/fAdf6MH0VhyRVnjPDPCoIUCEk_UvTSKl8PynmAS1DVHdLivfLrgvOGfiA7PLkL5fOgqex0CiiofmoVu5R5BRkaRDPC3lSnePIQ0Xwpq5nZlPCEa4fXKqh_Hv3oKRLljD_gKRAUYZR79L5zg2Dy4eKVzL46reFa6W24huETpSxPOsrfPr3feRxwvRehfKbr5tKF80bVvfwVKiFZCgxevSICGpoBAFTqpZ7ANgi31uVVb6oiRK4vUZ9cqWp3fCtdYhizxG1IjePSoZdtuIPs4Wz_zQxcqhXMeoRv8AFnwFJZMIbZUb6k0rJyV6IRw75-_MjImg2B8fvXiyuj-lIau7kQ.jpg" width="400"><br>
+
+رسانه‌های حقوق بشری گزارش دادند دادگاه کیفری تهران پس از رسیدگی دوباره به پرونده شهرک اکباتان، سه معترض بازداشت‌شده در این پرونده را به دیه و پنج سال حبس محکوم و سه معترض دیگر را از اتهام مشارکت در «قتل عمد» تبرئه کرد. حکم اعدام این شش تن پیش‌تر در دیوان عالی کشور نقض شده بود.
+سایت هرانا چهارشنبه ۳۰ اردیبهشت گزارش داد شعبه ۱۳ دادگاه کیفری یک استان تهران، میلاد آرمون، علیرضا کفایی و امیرمحمد خوش‌اقبال را بابت اتهام «مشارکت در قتل عمد» آرمان علی‌وردی، از نیروهای بسیج، محکوم کرد. هر یک از آن‌ها به پرداخت سهم مساوی از دیه کامل یک انسان و پنج سال حبس محکوم شده‌اند.
+طبق گزارش هرانا، نوید نجاران، حسین نعمتی و علیرضا برمرزپورناک، سه متهم دیگر این پرونده، به دلیل «فقدان مدارک دال بر وارد کردن ضربه به ناحیه مشخصی از بدن علی‌وردی» از اتهام مشارکت در قتل عمد تبرئه شدند.
+این حکم ۱۵ بهمن سال گذشته صادر و سه‌شنبه ۲۹ اردیبهشت به وکلای این افراد ابلاغ شده است.
+این شش شهروند معترض در آبان ۱۴۰۳ از سوی همین شعبه به اعدام محکوم شده بودند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75567)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
 
 
@@ -18,9 +92,9 @@ J74wabx
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
-<img src="https://cdn1.telesco.pe/file/RPFxSsAwNSuyhIz5p7xL34_jFup5ltG1fYleMHq4Q1McW17jPumvl96lxl7xbMm5jGL31xq9J2hgXzCjkbhg8nt41BH4B_aG1BM3oWxEHn6KcvPbRLL54I9HiRyKBr8Vxov-Q1Rera_dVzZwnLovXXx1gHCUUMd06l_s33kr8gu-_yJe_beNRHzKaDX-qW35zljMIlxxgb3J7QUZG0WeJ7_mf9RXwj6XTNGYYFCaHSU3B67dYPg6Uu9vHKrKBWxejwsdo4D7hMZpeBW56Fvs3VrdFRik5vxeX-uXaHOMS-DS-A7QdzOhq4bgRQwBgUmYFtv9CgmBMWjfOIZ2P6MOwA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/SCtxp76U_kZviqPs9KcTIjopJcD4cg-AYZoWjUIeJTxKJA5YNTbvawYo83UfUOdeWhQALAgGJJBS3qlcKP6reUKCWZ45Gh48MGoDelbmiZbAVdV9bi7mHUQhd7lnADzFQmw5TzRAdctNQnvovXwzInJi7Fo1aWtIJ6aOmVcZQwJIF7G8roeE8qQ7R_9BdM6RFkBeP0eWyfv3lvyGms8wvTn7tIZXocg4puSx36uBy2hwnA8c2g5lZ2_UO7nG0q7peYkUDb96MVd78AI1C8v60pV7CfeXKC8uFsn6vs692ZrDNixV5_LdWUizK5JDamHPVsLvU2tga3VkpTsmrfgaYg.jpg" width="400"><br>
 
 ترجمه ماشین
 تیتر نیویورک‌تایمز: هدف اولیه جنگ، روی کار آوردن رئیس‌جمهور تندروی پیشین به عنوان رهبر ایران بود
@@ -58,7 +132,7 @@ nytimes
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
 <img src="https://cdn1.telesco.pe/file/dLKsHee9i_guOs9R_agROIQ6EJGxfzcobphm_JH4aK0c8ElyUKRcy9LEZr-WO2YPFV5E7-cvSap7vAvAZAzVoN9ntN6ANF0L460XEshcr4AK8SyfiWGXAXtSp4CYiwPlJNGzViIksPv7YjPSzAK9ChTW-jGS1aE1Jn5I0AXA2AhTrvnB59nH55Aoxjp34GjrScT78oP-ON_AE2Pi-RuCaKm0HPB9g0QNV3gwbTIVoNQ0NqFxyYmuiBvFpM2yKg7OqHg680Zt9EGWHVjXkSFP5iAjhSMwTq65kXDvBZuQX8YvpewhH_BaC-m_CaoNo4Dy7r8Mveq4CTVmynF14Ll09g.jpg" width="400"><br>
 
@@ -76,7 +150,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
 <img src="https://cdn1.telesco.pe/file/UDl-I0Dfi9lhKPiyM7aJ7oznlS-J9lBSTKl6bVZ6b7ySusTOTSWEwiMyqeoC8iq_o5k7etMJfJnweqndHK1-hKo_B_eyQWDnbaIw6RO-icO_hV8wHHGV33UJqlrTuM7dTUiIPknmWgSe0qjdaMxXpXgzEw9hdFAjqu5cGxRQlaI9wgR1cQyKWAUklBWfN7efTwo0Iccw4oD7oaPh_PgJDfcWDWBI3B65nv27L2fbDh1v1VU_0CAZH0ui00P7J8w9Ik_cY7eXpxiYbOzO0Q7oaE_mTu_Mi-lV5zH8uSghuuxB5Fi9gfvP8tHVem6_WVRTd2tZjj6wFgz-KEf62itCgQ.jpg" width="400"><br>
 
@@ -103,7 +177,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
 <img src="https://cdn1.telesco.pe/file/cfBT_dCmmR1bhL09pBkLfRUm2hpaZnZGdhKdrrEZYGehIYLBhM3E_dTWVlF7zIQtshoc-wDlDRkrtQ1tLe9NJiYxzw_3p6d5W_3ZV-aa7POM7s3skk9OY7IlbLOn9PNswX4wPSrhJXQ7ixTYi8U-qhYTU8q6PPJq8__3wSwhrIC_36pCGJilw0KEx222sFF3JM5ZlWpdMTmDEZHyX0_JlHQQIeO0K6lHH8QypJ0sxP8yCmmqc2HrHhTUnQ658u6eUHASkSko-IyeuUwED-71MS6t7ZiALqMbxv88fQQTyvmp7Dqb4tLQSaadGOztTxqZwz4Pqp2BbX1_sWbs478ANQ.jpg" width="400"><br>
 
@@ -126,7 +200,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
 <img src="https://cdn1.telesco.pe/file/nPoNMZGvY6kPvEjbEr_2z17If7JYBQhhyyv_26Pre3QB_NIKlJpIvKWa9pANaX2dyaQgmXgHBOVcr0UXmxSrhyH5ef8tt-BMn4Y1GG_qI6pWkFAkZTpRTHs785HuTKgDNSbe0sNEEZrcfOaQtwH9B0QOSbPv5M11dKC0svcaawXZfZ6nYdagYrWMuaw4-nm72XE4V88SthGQ_JyjajAQT9OYlZjhY_0BovaMALW9ZxZ-cDBNVYw0_Ke8zE5wGXumcRLyJHzO3PQSyRLPpcYeG61vgBwHBizMW05hyxBl7XpdrCz8YqQV8MIgAawHYLkSoPhX14HzVGHukTvQ84DDjQ.jpg" width="400"><br>
 
@@ -173,7 +247,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
 
 
@@ -193,7 +267,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
 
 
@@ -217,9 +291,9 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
-<img src="https://cdn4.telesco.pe/file/mvgThDxGVe9wREfpAVrf45Xiks25QZ3V8uFRWAnSZ9ZSBmIlPzrxz-uiqAvlCFLkIqAK5DjTxas-4J4Rv8Xw821RpHWJaZwGAAl5e_JVo4Zc9X865OTtscvN76t6QWUPxtlL46yfHXOBGAtyIsdAcng8NiXZEYGsIQrr4je1zK8QWF9vaQmZT4WWqqW4oP1iHiiljeP5Vsl1_EZdtLqEq-PWwtDjTX7GUL3FXRgZjQwAP5utQfRhb6cJoRAhhEkw3QJAaJnXgtdqmzZnNDrXrJenUku4dzAtDVZeQfNrBwlHOVyNnZLHnrjjKY_WeufM5pOp3Gz-KOCxrW0RFmGT2w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/b5uNM7K9Zt6cFuP3B3X3ZS1TCe_OH3LjmFbrBRRdZjweRtSzn1Uvfe9mx8TTpiqUPfLXU3tGhPIPB4NXJLN5lWMxj4nxLfS3doffTuh1bk-dW2BR4vVhAtnGENP2UwKzdh1RaC3wbEfNzumXVW7ZEMr-ou0TVQiEzd0-d__cdx74w0MNmyld0rPMNo_0UnSp4ZIqON4jZPKDSWsqUxJe_-PcExlVhCAKTPtoerGhcxyHc8XOejwwh4RlRoDTl1lZTk4nrTTTTR4QSkV_1Ed1_3hlEc2sDGRhtuZ4eYbNdvtpD6JiTACOMPtavEmtqZzY_keHSTTOoaMFrMzOg074wg.jpg" width="400"><br>
 
 آرش زاد
 :
@@ -231,9 +305,9 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
-<img src="https://cdn4.telesco.pe/file/wA8hFAbeYjXR_kUbazudYCENFwEL2uyQY-VnP91Fvxprx-oKxEjh724qdTTwfi1O6tlkTppQbUziAx-KH51B2YDY9JvlGVpEVgCsMzJVeptNz3tyiF0Vilb-GxgwbHgQbzV1ut-Bknzu-5lTMtsgjEChN6mKjqS4VsB7tI90Sj2-pwJCkuVqgHis05soTTejigZMF_m2UuD7CvuOMha6U91NholUe27zZJHT9dXyHtcVrYmV8Q6t6OaHcvkpTSt00-RMVHhII2bgAOlWdJ1wXfQpZV7j8f-HUEiyZdiQSO9TC5xzQfP_rDv7EGiN8VR_n0gX2kMg3AL1Y7bQyOd_Xg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BnE_czF4QWekatwX7DSxQFmhBzgDR_l8pNHq6fSIGJlYT2vghzJgTNWwPx8GJq-tMaOLR7iY2BZ5XWHCrZqaQ1ZU-KeEWktA5AwBUpEsHde1FRQMROYT3mRu-ZZXAz-N3ssC6KlvqpXTwPxyl8mJ2yvFYhAK5VqAdq1OFTtW6-MgoQ9Z3f6d9dNkuCuydNB0KXU7TI6ShTh9xUPI7nNj0toZgAgtMib-WY8YxHYAcXITemKby8I2v_QYcMHOMJhy_LOwdkjj5M3eL5CfItDmSWiEJ_9IFS8WlixcZVRMoVW2OlyHE3CA9HDO2zvYPpGvHEKMOtt_I5MIrnLt5wyJ0Q.jpg" width="400"><br>
 
 خبرگزاری دولتی ایرنا در گزارشی تصویری با عنوان «مهر مادری به عمر چهل روز»، داستان زنی را منتشر کرد که در جریان جنگ ۴۰ روزه، سرپرستی یک نوزاد رهاشده در بیمارستان را برعهده گرفته است.
 در این گزارش، برای نخستین‌بار تصاویری از یک زن ایرانی بدون پوشش سر منتشر شد؛ موضوعی که بازتاب گسترده‌ای در افکار عمومی یافت.
@@ -254,9 +328,9 @@ FSeifikaran
 
 
 
-###### 🔵 Updated at: 2026-05-20 15:14:34
+###### 🔵 Updated at: 2026-05-20 17:53:22
 
-<img src="https://cdn4.telesco.pe/file/F_ACG7pYJHMP-_XCA-VE5BwMtUai3Mn6BQ21hZDZZZag8S-7NFzxVQLgEfv1LGvRrL5SPbIbOQH-EP-sreA9gZKqBU11kqdUxQ2_VVq9FsS_1ow_W0FIeh8wJOudQwTP_52BrS3gbshisv2hvuxX73lDIPthcSNPsKPpwtJeua9FXZJuIal54-lY8U5HiotmlvnbOAYfxEwIKxo4dmntPnTO9GSSZRUWIRgQjdgpdR5RHlx5OBmbsOKZDyX2nWEf0j-1fGpnnABVX05kMTyJTS49nHZhvJ60XgPtx3Y04ur0DOSLx5thHNI-ALdZU0oUlGEJk4uXW0kSnHIGP1jxiQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/DHadRDKUKiXmKd0gdgrq5p1HQFjoql0Ap2byNMs-I1R0ISy12y_-i0ZG-CKFCibP2oXwr-3JGuvmoDmAMPkSzTDrtWBoBS8N5cXsfu1t9sgMdAQBuGPEqN_G922vaBN2-fCo3LJFbHegdMFWll_ah2gFfF_csKAx6ngeGeDSepQAfhmo2xpY7of8YcdVtR_kbaHAOwWQrInYk8OD5X04Z6UvIOp0dPz0sWyoyd7mu_jHDDlBKHUooA0c4SlaNZU0uOVZUE6dGfsg2JSQ39by1gt76AZgkqUrt5pu9QyJb7_iaLqNW23mwy5KE0xIQJvuAq1nwqxXRx1GFn29DXLOjw.jpg" width="400"><br>
 
 ایووت کوپر، وزیر خارجه بریتانیا روز سه‌شنبه ۲۹ اردیبهشت هشدار داد که جهان دیگر نمی‌تواند بیش از این برای بازگشایی تنگه هرمز صبر کند  و ادامه بسته‌ماندن آن امنیت غذایی کشورهای آسیب‌پذیر را با بحران جدی‌تری روبه‌رو می‌کند.
 وزارت خارجه بریتانیا روز سه‌شنبه اعلام کرد کوپر در کنفرانس جهانی مشارکت‌ها در لندن، با اشاره به پیامدهای بحران جنگ ایران بر انرژی، کود کشاورزی و قیمت مواد غذایی، خواستار فشار فوری بین‌المللی برای بازگشایی تنگه هرمز شده است.
@@ -266,76 +340,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75550)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 15:14:34
-
-<img src="https://cdn4.telesco.pe/file/J-ZXrgwN9OT7r0YiSgEblIfNMrMRg8WIk0ZuISS1ZiTKDVRkoY7PcX9e4aGVFUrlc7-6pz4yhCmc_p2Q3Ab7waPkDCCnaiRo6r9aHnF_ovTsGT_eBih1YoPU6qBtKWa2K46E4xflDvQrhIs90sB6KXE4TBgFH0_tjeykZdhXzRMnfzpBJY4dn3CTdILGcFTlun4zYfEGH7CCf0Li90x6GmBc_g99Q7aKAwqwcxgVt1jTmem3hgEqLeXGatCmC6oD2yATDWSOZsLJgPZv1SiH1_8wC2sa9kRAYZzuul7qZarUEU3qk_CTUFYRxsA4_V9edqEImFlVnYyzbKvzG-hL5Q.jpg" width="400"><br>
-
-معاون وزیر خارجه ایران می‌گوید تهران در پیشنهادهای اخیر خود به آمریکا برای پایان جنگ میان دو کشور، خواستار برخورداری از حق غنی‌سازی، خاتمه جنگ در تمام جبهه‌ها از جمله لبنان و خروج نیروهای آمریکایی از محیط پیرامونی ایران شده است.
-کاظم غریب‌آبادی که روز سه‌شنبه ۲۹ اردیبهشت برای ارائه گزارشی در مورد روند مذاکرات میان تهران و واشینگتن، در کمیسیون امنیت ملی و سیاست خارجی مجلس حاضر شده بود، از دیگر شروط ایران را «رفع محاصرهٔ دریایی آمریکا، آزادسازی اموال و دارایی‌های ایران، تأمین خسارت‌های وارد شده در جنگ توسط ایالات متحده جهت بازسازی و خاتمه تمامی تحریم‌های یکجانبه و قطعنامه‌های شورای امنیت» اعلام کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75549)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 15:14:34
-
-<img src="https://cdn4.telesco.pe/file/sohqcrfNbnR5d7wFnzmK6C7C7zqZ0Xg7B0bkoJ08JHwTdR1oMWxt7YJtZ7gVN3qeO9NhU4DfKv4lahif9N0EyRq2F4LFh0DbPrVvOvfMQ33k-94SnAt94yC-WiS0r4e7fPZY6VWLkgBUlBDB1_6OvoKhWvKq6gLnN5mgHAibUG5KO_tWFZWtLDR-T--Flj_4V9jVkUZUGS9wdn7rvFaPFZ1j_OaLLslcYRjjUyjBrZDhU69qpTQ_Bcuw3GaCawst_SN-b1vEBpoPUj7Hgxz_dh1ti-P_qut3if0rhi9WX4FrlgwxmX_jVmCSOcXzJsXHXcyi8PlpE5d_6RIcvrweTA.jpg" width="400"><br>
-
-سازمان «کمک به گروگان‌ها در سراسر جهان» دوشنبه شب اعلام کرد شهاب دلیلی، زندانی سیاسی و کاپیتان پیشین شرکت کشتی‌رانی ایران، پس از آزادی از زندان اوین از طریق ایروان به واشینگتن منتقل شده و به خانواده‌اش پیوسته است.
-این سازمان اعلام کرد دلیلی پس از گذراندن بیش از یک دهه «بازداشت غیرقانونی» در ایران، اکنون در سلامت کامل قرار دارد.
-شهاب دلیلی که ساکن آمریکا بود، سال ۱۳۹۵ خورشیدی برای مراسم خاکسپاری پدرش به تهران سفر کرده بود اما هنگام بازگشت توسط نیروهای امنیتی بازداشت شد.
-خانواده او گفته بودند جمهوری اسلامی او را با اتهام‌هایی از جمله «جاسوسی» و «همکاری با دولت متخاصم» به ۱۰ سال حبس محکوم کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75548)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 15:14:34
-
-<img src="https://cdn4.telesco.pe/file/EJHTNqEvTGDr-QgQhum7hIGKK1leDkT6r9b-UYwa-RZauIYj5MhVvyjWINT0Hpo6ExsmF3Go7AFzTRVuIJB6-4m3ykF01k-IO1BOybUFWEaoyY310SW4nMpV4Pzqt94BwydGNTayOxu_RLIgPEF_JcwVqmSwWF0BIX2c0t5RjMokI8QRI7FXVMQZ9FvRfclkKPU8j3qruZnqrOHeYUdAyXsP2Nzk6S0laelgsIDzVHSJ7UM4xsww0_sD-RSKMJRsK8HhBWZbJxoy2kvCS43oPuT5zU4CvY7Nd-ve-mH8QSMM2H1ti81QUE4ehtqmMGK-TKCsZZZgto-ln6zRJqEydg.jpg" width="400"><br>
-
-حامد تیزرویان، عکاس حیات‌وحش و فعال محیط زیست، در ساری بازداشت شده است.
-به گفته زینب رحیمی، روزنامه‌نگار حوزه محیط زیست، آقای تیزرویان روز ۱۴ اردیبهشت ۱۴۰۵، بازداشت شده و موبایل و دیگر وسایل الکترونیکی او ضبط شده است.
-اتهام مطرح‌شده علیه آقای تیزرویان «اجتماع و تبانی با هدف اقدام علیه امنیت ملی» عنوان شده است.
-بازداشت او در پی انتشار مطالبی انتقادی درباره کشتار معترضان در دی‌ماه و همچنین اعتراض به اعدام‌ها در شبکه‌های اجتماعی صورت گرفته است.
-آقای تیزرویان از عکاسان برجسته و سرشناس حیات وحش است و ثبت عکس‌های کمیاب از حیات وحش ایران از جمله خرس قهوه‌ای و مرال به عنوان گونه‌های‌ در معرض خطر انقراض، بخشی از کارنامه کاری این عکاس حیات وحش است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75547)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 15:14:34
-
-<img src="https://cdn1.telesco.pe/file/qOyYoX7nXjydM1lK2HXU8aTgduI_FFrcurlqhvPjfMU3ad62_1BFTPXZeWdMERZT0_4wAsBNnk19FRZzDd3ey8JfAWsfeHW7KpmJDGaLe--zFI8sURRgyPCAR0FrI3s7PXvY85dxuFclLoSan0fe_tp5jnJ86LwhtId27HxhIFeeoxM8jpRhpknwfpInAjoTzr9rLR2vheCMz6ChRFvNE4Lb0GjL8mekILpUt8kDbZcinp5t4nVbwY8DKUG_oZnVZy2daX5GOiAQrEkcPJmQkGkgRnSRaXfNPBzzvXNOhmnAxtddRMHdPZiw1--GQBNURh1ow7kuy7FOGs2FKb106w.jpg" width="400"><br>
-
-زیرنویس شبکه خبر صدا و سیمای جمهوری اسلامی
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75546)
 
 ---
 
