@@ -3,7 +3,154 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
+
+
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز چهارشنبه ۳۰ اردیبهشت با تاکید بر این‌که نیروی دریایی و هوایی ایران از بین رفته‌اند، گفت اکنون تنها سوال این است که آیا آمریکا برای تمام کردن کار بازمی‌گردد یا جمهوری اسلامی پای امضای یک سند (توافق‌نامه) خواهد آمد.
+ترامپ که در مراسم فارغ‌التحصیلی آکادمی گارد ساحلی آمریکا سخنرانی می‌کرد، گفت: «همه چیزِ آن‌ها از دست رفته است؛ نیروی دریایی‌شان نابود شده، نیروی هوایی‌شان از بین رفته و تقریبا همه‌چیزشان را از دست داده‌اند. اکنون تنها سوال این است که آیا ما پیش می‌رویم تا کار را تمام کنیم، یا اینکه آن‌ها یک سند را امضا خواهند کرد؟ باید ببینیم چه پیش می‌آید.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75581)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 21:10:39
+
+<img src="https://cdn1.telesco.pe/file/BRuN8K1Z_-EAA8WJe11DMS-Ye-hg3HirQuP_ca-v8T0-tWEE5V-T1KIpyfjUPCyjuuUZlso47Iu5EuCp15p_T4w-jeyzplDPzqTFqVvQ8WBfnutqF-c_dxusdy_vvUfL2VOtEjNMOfYCMTZDiPH7kxp9caNL5jsvQuTtBDxqcNgosbpFGyHEYO7XyS-QtUJZaLGXyK8vxWowVtX_SpnZRuCF9QnvBH0vmznFZmipZ9_eyx25cLsWdYr3bWQ641nV2BNt-X55-tyqJ5EJSfiC8HQHA_C3uAQEDy0wPEnq3Ze3LSHqYnXRcn8z3pQMMOm96Wo-2ne_1KUKSzmO-3eo4Q.jpg" width="400"><br>
+
+قیمت نفت، چهارشنبه ۳۰ اردیبهشت پس از اظهارات خوش‌بینانه دونالد ترامپ درباره مذاکرات با جمهوری اسلامی بیش از پنج درصد کاهش یافت.
+بهای نفت برنت به ۱۰۵ دلار و ۷۰ سنت رسید؛ زیرا معامله‌گران به نشانه‌هایی واکنش نشان دادند که حاکی از نزدیک‌تر شدن واشینگتن و تهران به توافقی است که می‌تواند از دور تازه حملات جلوگیری کند و نگرانی‌ها درباره اختلال طولانی‌مدت عرضه در خاورمیانه را کاهش دهد.
+ترامپ گفت مذاکرات با جمهوری اسلامی در «مراحل نهایی» قرار دارد، اما هشدار داد اگر تهران با توافق صلح موافقت نکند، آمریکا ممکن است حملات بیشتری انجام دهد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75580)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 21:10:39
+
+<img src="https://cdn4.telesco.pe/file/ZFcI_czlDAMf_11XdfuqsdgsSBqytujU5EmHn56t2J2jwLHrG_DP7X72eqAwV3aOULlolVuXW_GbUZPjWbvzHY4lZ4xlrsehhljY2EJ1A7yDjfDIDstADLEHMb--KCWiCzAyhKjsW0f9BsEbKBO-Z2A_94uAHmXa36EhgkAjPv_IRGjg-INQGiIaTgfa8ZYpUgc8XnGLfComGr_fPo4BVXpzqV-8PtH8PeTKYA1Jv3ZUaJ-3sMF19tWyjl9rYEgNfPeMSbpxlL5HOMaAkWXo8OWNEmYayHgVsy2ircyA0k63Jpw49KyDFuWwoLb1mEQ7M9Svt6rIP2j4h_hsFbfOaA.jpg" width="400"><br>
+
+فیصل بن فرحان، وزیر خارجه عربستان سعودی، نوشت ریاض از تصمیم رییس‌جمهوری آمریکا برای دادن فرصت دوباره به مذاکرات با جمهوری اسلامی به‌منظور دستیابی به توافقی که به پایان جنگ و بازگشت امنیت و آزادی کشتیرانی در تنگه هرمز به وضعیت پیش از ۹ اسفند ۱۴۰۴ منجر شود، قدردانی می‌کند.
+او همچنین از تلاش‌های مستمر پاکستان برای میانجی‌گری در این زمینه تقدیر کرد و در شبکه ایکس نوشت عربستان سعودی امیدوار است جمهوری اسلامی از این فرصت برای جلوگیری از «پیامدهای خطرناک تشدید تنش» استفاده کرده و فورا به تلاش‌ها برای پیشبرد مذاکرات پاسخ دهد.
+وزیر خارجه عربستان سعودی افزود هدف از این تلاش‌ها، دستیابی به توافقی جامع است که صلح پایدار در منطقه و جهان را محقق کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75579)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 21:10:39
+
+
+
+محمدباقر قالیباف، رئیس مجلس ایران گفت که «تحرکات آشکار و پنهان دشمن نشان می‌دهد که به موازات فشارهای اقتصادی و سیاسی از اهداف نظامی خود دست نکشیده و به دنبال دور جدیدی از جنگ و ماجراجویی جدید است.»
+او این اظهارات را در سومین پیام صوتی خود مطرح کرد و با اشاره به گذشت یک ماه از آتش‌بس، فضای سیاسی پیرامون دونالد ترامپ، رئیس‌جمهور ایالات متحده را از عوامل تأثیرگذار بر تصمیم‌گیری‌های او در قبال ایران دانست.
+قالیباف در این پیام، با تاکید بر تداوم فشارهای اقتصادی و سیاسی، گفت که هدف این فشارها واداشتن ایران به عقب‌نشینی است، اما به ادعای او ساختار نظامی کشور برای بازسازی توان عملیاتی خود از فرصت این دوره یک‌ماهه آتش‌بس استفاده کرده است.
+در بخش دیگری از این پیام صوتی ۱۲ دقیقه‌ای، رئیس مجلس ایران با انتقاد از برخی جریان‌های سیاسی، آنان را به «نادیده گرفتن شرایط امنیتی» و تمرکز بیش از حد بر نقد دولت متهم کرد و گفت که طرح این انتقادات می‌تواند به انسجام ملی آسیب بزند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75578)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 21:10:39
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، پیش از ترک واشنگتن به مقصد کانتیکت، در گفتگو با خبرنگاران در فرودگاه به تشریح وضعیت تقابل با ایران و گزینه‌های روی میز پرداخت.
+او با اشاره به وضعیت داخلی ایران مدعی شد: «در حال حاضر خشم زیادی در ایران وجود دارد، زیرا مردم در شرایط بسیار بدی زندگی می‌کنند. ناآرامی و تلاطمی در آنجا جریان دارد که قبلا نظیرش را ندیده‌ایم؛ باید دید چه پیش می‌آید.»
+ترامپ در پاسخ به سوال خبرنگار درباره احتمال انجام یک «توافق محدود برای تمدید آتش‌بس» گفت: «ما این شانس را امتحان می‌کنیم. من عجله‌ای ندارم؛ هرچند موضوع انتخابات میان‌دوره‌ای مطرح است، اما در حالت ایده‌آل ترجیح می‌دهم به جای افراد زیاد، آدم‌های کمتری کشته شوند.»
+رئیس‌جمهوری آمریکا همچنین با ابراز تردید درباره نیت مقامات تهران گفت: «من متعجبم که آیا آن‌ها واقعا خیر و صلاح مردم خود را می‌خواهند یا خیر؛ رفتار آن‌ها نشان می‌دهد که به فکر مردم نیستند، در حالی که باید خیر و صلاح کل منطقه را در نظر بگیرند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75577)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 21:10:39
+
+<img src="https://cdn1.telesco.pe/file/gfHh1xPtJ4YTHN91wlZZxb8cya6aLwKqarhMe8_MkHQMhHVezFvEaCqZ4AsJY8W7N8QdpuhMP6iXmQH5T2wEkcjQiNWRKAWvttlmq0mk_d2J38sgI-T8Ep84AQboqjNrs8nkPOXR0WL_mDaVKx8ftgDuZMFuv--nDECF9oe-kAfJK6YarELvb__VyV0kk2rLPpKTOFuAcZW0kiSjjcJK0ywJOCjahaSF5_2zc_jegbWjoXzuxml-yTuGJrVTU0wL8r8GvbKGyk3Ha8lIjrs5BBxI5nSRIQ2JcK2YLXZ0C-U_MzfODcWFnLTN44jF-OqjST4zLEMzKFlcVlnlasFrew.jpg" width="400"><br>
+
+اسماعیل بقائی، سخنگوی وزارت امور خارجه جمهوری اسلامی، روز چهارشنبه ۳۰ اردیبهشت‌ماه درباره گمانه‌زنی‌ها راجع به سفر عباس عراقچی به نیویورک گفت:  «وزیر خارجه ایران برای شرکت در نشست شورای امنیت سازمان ملل درباره صلح و امنیت بین‌المللی دعوت شده، اما حضور او هنوز قطعی نیست.»
+به گفته سخنگوی وزارت امور خارجه جمهوری اسلامی «این نشست به ریاست دوره‌ای چین در شورای امنیت، روز پنجم خرداد برگزار خواهد شد، اما با توجه به برنامه کاری فشرده وزیر امور خارجه»، تصمیم نهایی درباره سفر هنوز گرفته نشده است.»
+این اظهارات پس از آن مطرح شد که علی خضریان، عضو کمیسیون امنیت ملی مجلس، در یک برنامه تلویزیونی نسبت به احتمال سفر عراقچی به نیویورک برای مذاکره درباره تنگه هرمز انتقاد کرده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75574)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 21:10:39
+
+<img src="https://cdn1.telesco.pe/file/USUpbF2aw-Iip221qrZZpXsmgHFzdgqjLgpW65BmJjioeBPEE48d4jZcEF_LKFjGxUHQUzGS-rP_lU5gGAvwO4ZzcypLaOp2BQQMG8o_UXRWPxRMGtFk8OYwikAxkJ9YLRatGsfgQd7heb6TBIvKHtA7uDd5V0Y9kMIY0thF2T-NkvV_9jqWAtX--cGZdhZ43W8QtSgIjAh9peToBuePdt_TGOzrR2tT5T0fznj43uoUZgxW1rtX8nRFP1qBA0ZB_mBqKplwYpL4Bb3YE1OGQu95NaqP7312FLontI73hYIQvMJuQCW7r6sv-5ZoUVuOH9dd9zmo_T8alxSxj5UdJQ.jpg" width="400"><br>
+
+خبرگزاری قوه‌قضائیه گزارش داد رشید مظاهری، دروازه‌بان پیشین تیم ملی فوتبال و استقلال تهران، «هنگام تلاش برای خروج غیرقانونی از مرزهای غربی ایران بازداشت شده است.»
+میزان در این گزارش رشید مظاهری را متهم کرده که «قصد داشته با تغییر چهره و پرداخت رشوه به ماموران مرزبانی از کشور خارج شود.»
+قوه قضائیه به زمان بازداشت این بازیکن پیشین تیم ملی فوتبال ایران اشاره نکرده است.
+رشید مظاهری پس از کشتار معترضان در ۱۸ و ۱۹ دی، با انتشار ویدیویی در پنجم اسفند، علی خامنه‌ای را مسئول کشته‌شدن معترضان معرفی کرده بود. پس از انتشار آن ویدیو، تا مدت‌ها خبری از وضعیت او منتشر نشده بود.
+خبرگزاری میزان گزارش کرده که مظاهری در «بند عمومی زندان» به سر می‌برد و قرار است به اتهام‌های «پرداخت رشوه به مامور دولت»، «فعالیت تبلیغی برخلاف امنیت ملی در شرایط جنگی» و «اقدام به عبور غیرمجاز از مرز» محاکمه شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75572)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 21:10:39
+
+<img src="https://cdn1.telesco.pe/file/GHA_9Nt1XYjOrr7yd4P1w1R7P8Qet5PxdGXkxOuoz5QBRLGeFX-NNjoGAM1WTwY5dALXPHqOFk6NZ7Q6U-CU76obrtK1yEJY5zBFVNZqr0skYwD2IyCkyhtqitdyI3FekxYZNehoryf_T0_9EZ-ervj2yGKqsKjTuhxM-3-GGrHd43PA_aHEKpmChe3YXXjP0DdQXkxDczJB2I_yJtnfO6ALsa84zwAxpA4nwOdImG4dTllX_ycIpqtJ57XB2WabTwjDQmk9AXG-4vmM9QiTVnsr40-_iZ9Ya6-nAKyYrnTQ1mdto1_P-e8aT4iKnvFfjOewzg6nJDB0crdyrUdAdg.jpg" width="400"><br>
+
+در میانه اختلال در مسیرهای رسمی تجارت و فشار بر زنجیره تأمین صنایع، سازمان توسعه تجارت ایران واردات برخی مواد اولیه پتروشیمی و پلیمری را از طریق رویه‌های کولبری و ملوانی مجاز اعلام کرد.
+این تصمیم نشان می‌دهد بحران تأمین مواد اولیه در صنایع پایین‌دستی به مرحله‌ای رسیده که حکومت برای جبران کمبود، به مسیرهای مرزی و غیرمتعارف متوسل شده است.
+اما این تصمیم پرسش‌های جدی ایجاد می‌کند. مواد اولیه پلیمری و پتروشیمی کالای مصرفی ساده نیستند؛ واردات آنها نیازمند حجم بالا، کنترل کیفیت، استاندارد، ردیابی منشأ، بیمه، حمل‌ونقل تخصصی و تسویه تجاری منظم است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75571)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
 <img src="https://cdn4.telesco.pe/file/tXFnAoXKqcXZL7d3_kV7HYlSAH4krE890rsYamto2GanEsFIW8k61F6r03xSGv91Ff7-5T0bPCA3KEcGXSDUjgrEDTnPjAS4iVmeni6BgqLxo5EyCvX70eVtAJ3jTt-hj5ix3P2sRr9oP1I5-sc4dIU0D97s5kO2StcmnboZ83o1r7inua_9e-S1tA7kdneh0ATp8yX7Xu-q_a7ZL3k5pCbNcVTG1VFp-O36L1f7G4IN7tg9HY0bWlqhBRvKagn5rNkYJGthQpEVE4iKvuwxST42-MZTt2aie4CTxNcf5ufV_mP818YYak9meoqyMia0s6uJBUki5lUeY82LV1m6nA.jpg" width="400"><br>
 
@@ -21,7 +168,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
 <img src="https://cdn4.telesco.pe/file/KSRd1YitmDKOkLx7SFW8invTNzdpAvfgq-yes2F73P830t4IY_Izg9DNGcM6l3fTDZlGufQd4kIrrSWey473FJDL-EMqOVBWNkeoPac7XJsEb2W7VlGG4O_ZUeFSBC23RJROdIfFpYvDX_X6doJKkAAZxJuTFH_HT2so906fYHR5QOH2F8l7n2hj0JTEWFwbRDnBr0tyGUjAfk56ryC2YjRiGaSxLGqFBbWoUzhVVsshzqhXzMwD7B0hQrvLmbxQEeLyt6qNXAUFdxCGj9NWixbcLiXSfJAs00JyfL89-rjrsDRxoWENZQUfLLfOQ7brChYG2h160o1yz8DLZ8GZtg.jpg" width="400"><br>
 
@@ -38,7 +185,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
 <img src="https://cdn4.telesco.pe/file/EpN_PMSYI9ja9T73JJ-WMfAQA48Wbt8tr-L3OprcaFX3YwHF0NsWLaYHl5CSMyG_5-RVHO_cpnOiV_gWDpJ-hDaWy5f4cNSPEDg5hZwQvfpl9H-k31ZCWaqjGgJM7rgXlMEtSUSDZQ5wnhjYGffHrbKitjFd7qwni1r8nz0UO_t2d0snhhfMZait6hrBl7Ke9gLm9pGzbfcFSsBRXJnucF9bm9R5h-hkrEOfcYw3RdHtB-hsAn7EjGZjdTLm1yWr9iR333HFXtfyL4Jma37fHxdSp68n5KqzKNO1EsReR__jRAe_dmJ8BZxEYNY6RDKgUH5rtYOEz8aBBiM3CTEOTA.jpg" width="400"><br>
 
@@ -57,9 +204,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
-<img src="https://cdn4.telesco.pe/file/fAdf6MH0VhyRVnjPDPCoIUCEk_UvTSKl8PynmAS1DVHdLivfLrgvOGfiA7PLkL5fOgqex0CiiofmoVu5R5BRkaRDPC3lSnePIQ0Xwpq5nZlPCEa4fXKqh_Hv3oKRLljD_gKRAUYZR79L5zg2Dy4eKVzL46reFa6W24huETpSxPOsrfPr3feRxwvRehfKbr5tKF80bVvfwVKiFZCgxevSICGpoBAFTqpZ7ANgi31uVVb6oiRK4vUZ9cqWp3fCtdYhizxG1IjePSoZdtuIPs4Wz_zQxcqhXMeoRv8AFnwFJZMIbZUb6k0rJyV6IRw75-_MjImg2B8fvXiyuj-lIau7kQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NbMn7H4pklhF3tEEKPVA_H_qPbseOqthqXvIr6nJUtciqwfScN8UeZL0Eb38gc2NteQl7J5x-Lqbgv_xX0sGX57g-e106KzyS46c6q5guXZIwU4mRuLolPAadRzaKk8E0t_ytwvO28zKo78vzEhNEpxK32JMaMbUnSkuzQxoRKEdI-Fb95ZOR9zmDmRiAYANOyDyEdgRX_BH9byNTIZexfAUr5DXgQAkL0gEWizogJdcT7KobW6S2jDTbhVwivTeQW78XjYT-nzQ3XLb4sbrG2nBahBarNqyEp2h2HIsizPKtu-3GGIIbQynl4bjqsAGMoXCQ1aDeeH3VZE5OlQu-A.jpg" width="400"><br>
 
 رسانه‌های حقوق بشری گزارش دادند دادگاه کیفری تهران پس از رسیدگی دوباره به پرونده شهرک اکباتان، سه معترض بازداشت‌شده در این پرونده را به دیه و پنج سال حبس محکوم و سه معترض دیگر را از اتهام مشارکت در «قتل عمد» تبرئه کرد. حکم اعدام این شش تن پیش‌تر در دیوان عالی کشور نقض شده بود.
 سایت هرانا چهارشنبه ۳۰ اردیبهشت گزارش داد شعبه ۱۳ دادگاه کیفری یک استان تهران، میلاد آرمون، علیرضا کفایی و امیرمحمد خوش‌اقبال را بابت اتهام «مشارکت در قتل عمد» آرمان علی‌وردی، از نیروهای بسیج، محکوم کرد. هر یک از آن‌ها به پرداخت سهم مساوی از دیه کامل یک انسان و پنج سال حبس محکوم شده‌اند.
@@ -77,7 +224,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
 
 
@@ -92,7 +239,7 @@ J74wabx
 
 
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
 <img src="https://cdn1.telesco.pe/file/SCtxp76U_kZviqPs9KcTIjopJcD4cg-AYZoWjUIeJTxKJA5YNTbvawYo83UfUOdeWhQALAgGJJBS3qlcKP6reUKCWZ45Gh48MGoDelbmiZbAVdV9bi7mHUQhd7lnADzFQmw5TzRAdctNQnvovXwzInJi7Fo1aWtIJ6aOmVcZQwJIF7G8roeE8qQ7R_9BdM6RFkBeP0eWyfv3lvyGms8wvTn7tIZXocg4puSx36uBy2hwnA8c2g5lZ2_UO7nG0q7peYkUDb96MVd78AI1C8v60pV7CfeXKC8uFsn6vs692ZrDNixV5_LdWUizK5JDamHPVsLvU2tga3VkpTsmrfgaYg.jpg" width="400"><br>
 
@@ -132,7 +279,7 @@ nytimes
 
 
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
 <img src="https://cdn1.telesco.pe/file/dLKsHee9i_guOs9R_agROIQ6EJGxfzcobphm_JH4aK0c8ElyUKRcy9LEZr-WO2YPFV5E7-cvSap7vAvAZAzVoN9ntN6ANF0L460XEshcr4AK8SyfiWGXAXtSp4CYiwPlJNGzViIksPv7YjPSzAK9ChTW-jGS1aE1Jn5I0AXA2AhTrvnB59nH55Aoxjp34GjrScT78oP-ON_AE2Pi-RuCaKm0HPB9g0QNV3gwbTIVoNQ0NqFxyYmuiBvFpM2yKg7OqHg680Zt9EGWHVjXkSFP5iAjhSMwTq65kXDvBZuQX8YvpewhH_BaC-m_CaoNo4Dy7r8Mveq4CTVmynF14Ll09g.jpg" width="400"><br>
 
@@ -150,7 +297,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
 <img src="https://cdn1.telesco.pe/file/UDl-I0Dfi9lhKPiyM7aJ7oznlS-J9lBSTKl6bVZ6b7ySusTOTSWEwiMyqeoC8iq_o5k7etMJfJnweqndHK1-hKo_B_eyQWDnbaIw6RO-icO_hV8wHHGV33UJqlrTuM7dTUiIPknmWgSe0qjdaMxXpXgzEw9hdFAjqu5cGxRQlaI9wgR1cQyKWAUklBWfN7efTwo0Iccw4oD7oaPh_PgJDfcWDWBI3B65nv27L2fbDh1v1VU_0CAZH0ui00P7J8w9Ik_cY7eXpxiYbOzO0Q7oaE_mTu_Mi-lV5zH8uSghuuxB5Fi9gfvP8tHVem6_WVRTd2tZjj6wFgz-KEf62itCgQ.jpg" width="400"><br>
 
@@ -177,7 +324,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-20 17:53:22
+###### 🔵 Updated at: 2026-05-20 21:10:39
 
 <img src="https://cdn1.telesco.pe/file/cfBT_dCmmR1bhL09pBkLfRUm2hpaZnZGdhKdrrEZYGehIYLBhM3E_dTWVlF7zIQtshoc-wDlDRkrtQ1tLe9NJiYxzw_3p6d5W_3ZV-aa7POM7s3skk9OY7IlbLOn9PNswX4wPSrhJXQ7ixTYi8U-qhYTU8q6PPJq8__3wSwhrIC_36pCGJilw0KEx222sFF3JM5ZlWpdMTmDEZHyX0_JlHQQIeO0K6lHH8QypJ0sxP8yCmmqc2HrHhTUnQ658u6eUHASkSko-IyeuUwED-71MS6t7ZiALqMbxv88fQQTyvmp7Dqb4tLQSaadGOztTxqZwz4Pqp2BbX1_sWbs478ANQ.jpg" width="400"><br>
 
@@ -195,151 +342,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75562)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 17:53:22
-
-<img src="https://cdn1.telesco.pe/file/nPoNMZGvY6kPvEjbEr_2z17If7JYBQhhyyv_26Pre3QB_NIKlJpIvKWa9pANaX2dyaQgmXgHBOVcr0UXmxSrhyH5ef8tt-BMn4Y1GG_qI6pWkFAkZTpRTHs785HuTKgDNSbe0sNEEZrcfOaQtwH9B0QOSbPv5M11dKC0svcaawXZfZ6nYdagYrWMuaw4-nm72XE4V88SthGQ_JyjajAQT9OYlZjhY_0BovaMALW9ZxZ-cDBNVYw0_Ke8zE5wGXumcRLyJHzO3PQSyRLPpcYeG61vgBwHBizMW05hyxBl7XpdrCz8YqQV8MIgAawHYLkSoPhX14HzVGHukTvQ84DDjQ.jpg" width="400"><br>
-
-جی‌دی ونس، معاون رییس‌جمهور آمریکا، گفت واشینگتن و تهران پیشرفت زیادی در گفت‌وگوهای خود داشته‌اند و هیچ‌یک از دو طرف خواهان ازسرگیری کارزار نظامی نیستند.
-ونس افزود: «ما فکر می‌کنیم پیشرفت زیادی داشته‌ایم. تصور می‌کنیم مقام‌های تهران نیز می‌خواهند به توافق برسند.»
-او گفت آمریکا می‌تواند کارزار نظامی را از سر بگیرد، اما «این چیزی نیست که ترامپ یا ایران می‌خواهند.»
-ونس همچنین گفت: «فکر می‌کنم جمهوری اسلامی می‌خواهد توافق کند، اما تا زمانی که توافق امضا نشود، نخواهیم دانست.»
-@
-VahidOOnLine
-جی‌دی ونس اعلام کرد که دولت ترامپ برای دستیابی به توافقی جهت پایان دادن به جنگ تلاش می‌کند، اما او همچنان شاهد وجود شکاف و گسست در میان سران ایران است و موضع مذاکراتی تهران شفاف نیست.
-معاون رییس‌جمهور آمریکا گفت: «خودِ ایرانی‌ها هم دقیقا مطمئن نیستند که می‌خواهند در چه مسیری حرکت کنند؛ آن‌ها در حال حاضر کشوری چندپارچه و دارای شکاف هستند.»
-او در ادامه افزود: «در ساختار حاکمیتی این کشور، رهبر وجود دارد و در رده‌های پایین‌تر از او نیز مقامات زیادی هستند که بر روند مذاکرات نفوذ دارند. به همین دلیل، گاهی اوقات اصلا مشخص نیست که موضع واقعی تیم مذاکره‌کننده چیست.»
-ونس  با اشاره به اینکه هنوز روشن نیست این تشتت آرا ناشی از ضعف در هماهنگی است یا سوءنیت، تاکید کرد که نتیجه این وضعیت، ایجاد فرآیندی مبهم و سردرگم‌کننده بوده است. ونس در پایان گفت: «با اطمینان می‌گویم که گاهی درک این نکته که ایرانی‌ها دقیقا می‌خواهند از این مذاکرات به چه هدفی دست یابند، بسیار دشوار است.»
-@
-VahidOOnLine
-جی‌دی ونس گفت اعضای تیم مذاکره‌کننده جمهوری اسلامی برخی ویژگی‌های ایرانیان، از جمله «هوش و سختکوشی» را دارند، اما همزمان مواضع «بسیار تندروانه» نیز در میان آن‌ها دیده می‌شود.
-معاون رئیس‌جمهوری آمریکا با توصیف ایران به‌عنوان «تمدنی بزرگ و پرافتخار» گفت مردم ایران «شگفت‌انگیز» هستند و جامعه ایرانی-آمریکایی در ایالات متحده نیز نمونه‌ای از این ویژگی‌ها را نشان می‌دهد.
-او در عین حال افزود گاهی مشخص نیست تهران دقیقا چه هدفی را از مذاکرات دنبال می‌کند و ساختار تصمیم‌گیری در جمهوری اسلامی را «چندپاره» توصیف کرد.
-ونس همچنین بار دیگر تاکید کرد واشنگتن اجازه نخواهد داد جمهوری اسلامی به سلاح هسته‌ای دست پیدا کند و هدف مذاکرات، جلوگیری بلندمدت از بازسازی توان هسته‌ای جمهوری اسلامی است.
-@
-VahidOOnLine
-جی‌دی ونس اعلام کرد: «فکر می‌کنم ما در حال حاضر فرصتی داریم تا رابطه‌ای را که طی ۴۷ سال گذشته بین ایران و ایالات متحده وجود داشته است، بازتنظیم کنیم.»
-معاون رئیس‌جمهوری آمریکا که در نبود کارولین لویت، سخنگوی کاخ سفید، مسئولیت نشست خبری روزانه را بر عهده داشت، در ادامه افزود: «این همان چیزی است که رئیس‌جمهوری از ما خواسته و ما به تلاش در این مسیر ادامه خواهیم داد. اما برای این کار، همراهی هر دو طرف لازم است (یک دست صدا ندارد).»
-ونس با تبیین خطوط قرمز واشنگتن تاکید کرد: «ما به توافقی که به ایرانی‌ها اجازه دسترسی به سلاح هسته‌ای را بدهد، تن نخواهیم داد. بنابراین، همان‌طور که رئیس‌جمهوری ترامپ به من گفت، ما در حالت آماده‌باش کامل نظامی هستیم. ما تمایلی به پیمودن این مسیر [از سرگیری جنگ] نداریم، اما اگر مجبور شویم، رئیس‌جمهوری آمادگی و توانایی پیشبرد آن را دارد.»
-@
-VahidOOnLine
-ونس افزود که به‌تازگی با آقای ترامپ صحبت کرده و رئیس‌جمهور آمریکا تأکید کرده است که مسئله اصلی برای آمریکا این است که ایران هرگز نباید به سلاح هسته‌ای دست پیدا کند.
-ونس یادآوری کرد که اگر چنین اتفاقی بیفتد، کشورهای حاشیه خلیج فارس نیز به‌دنبال سلاح هسته‌ای خواهند رفت و سپس کشورهای دیگر جهان هم همین مسیر را دنبال خواهند کرد.
-او گفت: «ما می‌خواهیم تعداد کشورهایی که سلاح هسته‌ای دارند محدود باقی بماند، و به همین دلیل ایران نمی‌تواند سلاح هسته‌ای داشته باشد.»
-وقتی از ونس پرسیده شد که آیا ممکن است روسیه مالکیت اورانیوم غنی‌شده ایران را در اختیار بگیرد، او پاسخ داد: «این در حال حاضر برنامه دولت ایالات متحده نیست. ایرانی‌ها هم چنین موضوعی را مطرح نکرده‌اند.»
-@
-VahidHeadline
-جی‌دی ونس همچنین گفت واشینگتن می‌خواهد جمهوری اسلامی فرایندی را بپذیرد که تضمین کند ایران حتی سال‌ها بعد از دوران ریاست‌جمهوری ترامپ هم نتواند توان هسته‌ای خود را بازسازی کند.
-او گفت: «ما می‌خواهیم نه فقط تعهد به عدم دستیابی به سلاح هسته‌ای را ببینیم، بلکه می‌خواهیم تعهدی برای همکاری در یک فرایند ببینیم تا اطمینان حاصل شود که نه فقط اکنون، نه فقط وقتی دونالد ترامپ رئیس‌جمهور است، بلکه سال‌ها بعد هم ایرانی‌ها به دنبال بازسازی توان هسته‌ای خود نباشند.»
-او افزود: «این چیزی است که ما در مذاکرات در تلاش برای رسیدن به آن هستیم.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75556)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 17:53:22
-
-
-
-دونالد ترامپ، رییس‌جمهور آمریکا سه‌شنبه به خبرنگاران در کاخ سفید گفت ممکن است مجبور شویم دوباره به  ایران ضربه بزنیم، مطمئن نیستم.
-او گفت منظورم این است که دو یا سه روز، شاید جمعه، شنبه، یکشنبه، چیزی در این حدود، شاید اوایل هفته آینده؛ یک بازه زمانی محدود، چون نمی‌توانیم اجازه دهیم آن‌ها سلاح هسته‌ای جدید داشته باشند.
-رییس‌جمهور آمریکا ادامه داد که او دوشنبه تنها یک ساعت با تصمیم‌گیری برای انجام یک حمله فاصله داشت، اما این حمله را به تعویق انداخت.
-او افزود جمهوری اسلامی برای رسیدن به توافق التماس می‌کند.
-ترامپ درباره جنگ گفت: «همه به من می‌گویند این کار محبوب نیست، اما من فکر می‌کنم خیلی محبوب است».
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75555)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 17:53:22
-
-
-
-در پی کارزار ایران‌اینترنشنال برای یافتن هویت پیکر جاویدنامان در بیمارستان الغدیر تهران، ویدیویی از لحظه قتل جاویدنام آیدا عقیلی به دست ما رسیده است.
-آیدا عقیلی، ۳۴ ساله، شامگاه ۱۸ دی ۱۴۰۴ در شرق تهران با شلیک دو گلوله ماموران به سرش کشته شد که پیکر او را پیچیده در پتویی چهارخانه در حیاط پشتی بیمارستان الغدیر یافتند.
-@
-VahidOOnLine
-مربوط به این تصاویر تکان‌دهنده: @
-VahidOnline
-این ویدیوی دلخراش: @
-VahidOnline
-اعتراض‌های چهارشنبه ۱۷ دی:@
-VahidOnline
-#بیمارستان_الغدیر
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75554)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 17:53:22
-
-<img src="https://cdn4.telesco.pe/file/b5uNM7K9Zt6cFuP3B3X3ZS1TCe_OH3LjmFbrBRRdZjweRtSzn1Uvfe9mx8TTpiqUPfLXU3tGhPIPB4NXJLN5lWMxj4nxLfS3doffTuh1bk-dW2BR4vVhAtnGENP2UwKzdh1RaC3wbEfNzumXVW7ZEMr-ou0TVQiEzd0-d__cdx74w0MNmyld0rPMNo_0UnSp4ZIqON4jZPKDSWsqUxJe_-PcExlVhCAKTPtoerGhcxyHc8XOejwwh4RlRoDTl1lZTk4nrTTTTR4QSkV_1Ed1_3hlEc2sDGRhtuZ4eYbNdvtpD6JiTACOMPtavEmtqZzY_keHSTTOoaMFrMzOg074wg.jpg" width="400"><br>
-
-آرش زاد
-:
-آمار نشون می‌ده در سه ماه گذشته یک پاکسازی طبقاتی دیجیتال در ایران رخ داده. در این مدت سهم اندروید از ترافیک اینترنت ۲۵٪ افت و آیفون ۱۸۰٪ رشد داشته. این به معنی خروج میلیون‌ها کاربر طبقه متوسط و پایین از فضای آنلاینه. اونی که آیفون داره از پس هزینه کانفیگ یا اینترنت پرو برمیاد، اونی که نداره، اونقدر دغدغه مالی مختلف داره که عطای اینترنت رو به لقاش می‌بخشه.
-
-[View Post](https://t.me/VahidOnline/75553)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 17:53:22
-
-<img src="https://cdn4.telesco.pe/file/BnE_czF4QWekatwX7DSxQFmhBzgDR_l8pNHq6fSIGJlYT2vghzJgTNWwPx8GJq-tMaOLR7iY2BZ5XWHCrZqaQ1ZU-KeEWktA5AwBUpEsHde1FRQMROYT3mRu-ZZXAz-N3ssC6KlvqpXTwPxyl8mJ2yvFYhAK5VqAdq1OFTtW6-MgoQ9Z3f6d9dNkuCuydNB0KXU7TI6ShTh9xUPI7nNj0toZgAgtMib-WY8YxHYAcXITemKby8I2v_QYcMHOMJhy_LOwdkjj5M3eL5CfItDmSWiEJ_9IFS8WlixcZVRMoVW2OlyHE3CA9HDO2zvYPpGvHEKMOtt_I5MIrnLt5wyJ0Q.jpg" width="400"><br>
-
-خبرگزاری دولتی ایرنا در گزارشی تصویری با عنوان «مهر مادری به عمر چهل روز»، داستان زنی را منتشر کرد که در جریان جنگ ۴۰ روزه، سرپرستی یک نوزاد رهاشده در بیمارستان را برعهده گرفته است.
-در این گزارش، برای نخستین‌بار تصاویری از یک زن ایرانی بدون پوشش سر منتشر شد؛ موضوعی که بازتاب گسترده‌ای در افکار عمومی یافت.
-با این حال، دقایقی پس از انتشار این گزارش، چهار تصویری که در آن زن بدون پوشش سر دیده می‌شد، از خروجی وب‌سایت ایرنا حذف شد.
-@
-VahidHeadline
-آپدیت:
-گویا نوزاد بازمانده جنگ هم نبود و تکذیب شد و مسائلی دیگر:
-beehnam
-،
-FSeifikaran
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75552)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-20 17:53:22
-
-<img src="https://cdn4.telesco.pe/file/DHadRDKUKiXmKd0gdgrq5p1HQFjoql0Ap2byNMs-I1R0ISy12y_-i0ZG-CKFCibP2oXwr-3JGuvmoDmAMPkSzTDrtWBoBS8N5cXsfu1t9sgMdAQBuGPEqN_G922vaBN2-fCo3LJFbHegdMFWll_ah2gFfF_csKAx6ngeGeDSepQAfhmo2xpY7of8YcdVtR_kbaHAOwWQrInYk8OD5X04Z6UvIOp0dPz0sWyoyd7mu_jHDDlBKHUooA0c4SlaNZU0uOVZUE6dGfsg2JSQ39by1gt76AZgkqUrt5pu9QyJb7_iaLqNW23mwy5KE0xIQJvuAq1nwqxXRx1GFn29DXLOjw.jpg" width="400"><br>
-
-ایووت کوپر، وزیر خارجه بریتانیا روز سه‌شنبه ۲۹ اردیبهشت هشدار داد که جهان دیگر نمی‌تواند بیش از این برای بازگشایی تنگه هرمز صبر کند  و ادامه بسته‌ماندن آن امنیت غذایی کشورهای آسیب‌پذیر را با بحران جدی‌تری روبه‌رو می‌کند.
-وزارت خارجه بریتانیا روز سه‌شنبه اعلام کرد کوپر در کنفرانس جهانی مشارکت‌ها در لندن، با اشاره به پیامدهای بحران جنگ ایران بر انرژی، کود کشاورزی و قیمت مواد غذایی، خواستار فشار فوری بین‌المللی برای بازگشایی تنگه هرمز شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75550)
 
 ---
 
