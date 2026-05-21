@@ -3,7 +3,64 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
+
+
+
+'من وطن‌فروش نیستم... زنده باد جمهوری اسلامی... تا آخر کنار ولایت می‌مانیم... این پرچم با طوفان نمی‌افتد... سقوط این کشور را به گور خواهند برد... عزت این ملت معامله‌شدنی نیست راه مقاومت ادامه دارد...'
+تبلیغ «وطن»دوستی در «کشور جمهوری اسلامی» با شهروندان وارداتی از 'عمان، سنگال، غنا، کنیا، بورکینافاسو، ساحل عاج، نیجریه، تانزانیا، مالی'
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75588)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 03:43:58
+
+<img src="https://cdn1.telesco.pe/file/a1R9xrBqQNg_VUHgbpnEZJ_Pl9Zow4t8LycYBSkag0cg5zLy0Woan_f-Stn_oOhRnkiaQUTpGVe81x9WJx6rvapuwQFJ7CuxCdG_0zFaCYSbWt7zVi6KDRXtSMJ98t8Ok24wKv6FDJzfVjYAPJ_wsRNTDN4nR-WqozcHqKUq56Nle5mlUZMRwV-JseKqk9FHuMReWDhIm6wui3dTBAQXUSOBaI7z4jdEvhMZQwOSiZVnnue3cALCKlB0uiRjjDwjudzldWhACpsOZ275zvQNjZZBZIMnyvKGIHpMpSLObyC2esOfAyx6FLgJLetpOONZMdL-9SAFOxEnm3rTnnb8jQ.jpg" width="400"><br>
+
+حساب رسمی کاخ سفید در شبکه اجتماعی ایکس، روز چهارشنبه ۳۰ اردیبهشت در پُستی، عکسی از رئيس جمهوری آمریکا، دونالد ترامپ را منتشر کرد که زیر آن تصاویری از «دشمنان خنثی‌شده آمریکا بدست پرزیدنت دونالد جی. ترامپ» دیده می‌شود.
+در این پست تصاویری از علی خامنه‌‌ای رهبر کشته‌شده جمهوری اسلامی، نیکلاس مادورو رهبر دستگیر‌شده ونزوئلا، رائول کاسترو رهبر سابق کوبا، و ابو بلال المنوکی از رهبران داعش که به جای تصویرش پرچم داعش نشان داده شده، منتشر شده است.
+کاخ سفید در مورد کاسترو، روی تصویر او نوشت که علیه او کیفرخواست صادر شده است. در مورد مادورو روی تصویر او نوشت که دستگیر شده است. و در مورد علی خامنه‌ای و ابو بلال المنوکی روی تصاویر آن‌ها نوشت که «کشته‌ شدند.»
+حساب رسمی کاخ سفید افزود: «عدالت اجرا خواهد شد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75587)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 03:43:58
+
+<img src="https://cdn1.telesco.pe/file/Lqe_Mbs-iCQQUCe5bovjVQCv8sQLOI-aBmaSX8OXJzMvN0nmeoU1cbnIUdSofZ_DoICwu4zqR-8biBFfn6JIToeFtSBTSF_x37KbCsK_K1iKx-AsQUaSXuPh5MH5V4INPVe8AEyrkaAgzLMIq4sBoXcCd0Uca9N-GBXe37tfg4K0yV3r0IN-AZ1PWBYxooUVJjCMlxDdcCbc060R5xtNNrJtsLR2-1UQe_5Arf157pLaA3rCOYwiSWNno81IHYo5NdjE2oEOhAybLHDQBWTufTJG4yiZL0M7S7OnZFWD-zeXWAHa_8Kc0XivQX5cvUmSd-xZ4JM3Sg76DnmRvWrS9Q.jpg" width="400"><br>
+
+روزنامه اسرائیل هیوم به نقل از «منابع آگاه» نوشت جلسه چهارشنبه ۳۰ اردیبهشت در کاخ سفید درباره ایران با اختلاف‌نظر شدید میان مقام‌های ارشد دولت آمریکا همراه شد، اما رییس‌جمهوری آمریکا در نهایت، خلاف نظر وزیر جنگ و وزیر امور خارجه، و همسو با دیدگاه جی‌دی ونس و فرستادگان ویژه‌اش، ادامه مذاکرات با جمهوری اسلامی را تایید کرد.
+این روزنامه راستگرا نوشت ارزیابی مارکو روبیو، وزیر امور خارجه، و پیت هگست، وزیر جنگ آمریکا، این بود که در این مرحله، بدون اعمال فشار قابل‌توجه، از جمله تهدید به حمله و تشدید تحریم‌های اقتصادی، نمی‌توان از جمهوری اسلامی امتیاز گرفت. در مقابل، ونس معتقد بود تازه‌ترین پیشنهاد تهران نشانه‌ای از انعطاف است و می‌تواند زمینه حرکت به سوی یک توافق اولیه را فراهم کند.
+منابع آگاه از این جلسه به اسرائیل هیوم گفتند که استیو ویتکاف و جرد کوشنر، فرستادگان ویژه دونالد ترامپ نیز در این گفت‌وگو از موضع ونس حمایت کردند.
+آنها پیش از این جلسه با رهبران عمان، قطر و عربستان سعودی گفت‌وگو کرده بودند.
+به نوشته این رسانه تنش در این جلسه زمانی شدت گرفت که ترامپ از ونس و فرستادگان انتقاد و آنها متهم کرد که رویکردشان به جمهوری اسلامی امکان می‌دهد زمان بخرد و به تصویر ایالات متحده و نهاد ریاست‌جمهوری آسیب بزند. ونس با لحنی قاطع پاسخ داد که دولت باید به دنبال پایان دادن به این کارزار نظامی، بازگرداندن سربازان به خانه، کاهش قیمت نفت و تمرکز بر مشکلات داخلی آمریکا باشد؛ پاسخی که حاضران را غافلگیر کرد.
+اسرائیل هیوم در ادامه این گزارش به گفت‌وگوی ترامپ با رهبران منطقه اشاره کرد و به نقل از دو منبع نوشت که رهبران اسرائیل و امارات متحده عربی، همزمان با تاکید بر ضرورت حفاظت از تاسیسات حساس خود در قبال حملات احتمالی جمهوری اسلامی، از پیش گرفتن «سیاست‌های سخت‌گیرانه» علیه جمهوری اسلامی حمایت می‌کنند.
+در مقابل، رهبران عربستان سعودی و قطر ترجیح می‌دهند از بازگشت به درگیری‌ها پرهیز شود.
+این روزنامه همچنین به نقل از یک مقام آمریکایی درباره تماس تلفنی ترامپ با نخست‌وزیر اسرائیل نوشت که نتانیاهو از رفتار جمهوری اسلامی و احتمال وقت‌کشی تهران ابراز سرخوردگی کرد، در حالی که ترامپ بر پیچیدگی شرایط و دشواری‌هایی پیشِ رو تاکید داشت. با این حال رییس‌جمهوری آمریکا بار دیگر گفت که به رفع تهدید هسته‌ای حکومت ایران متعهد است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75586)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn1.telesco.pe/file/cKCd0ka1cAgzzWaZt_rNUY_4GoIl7-fy4YiGGGbupQNWaOpgj9xKhWDDSwqO9yHEiVC3subnM49uAD1ctrAHAk2UbVUvxnDY4fSQxEtl8Fnc_jWpXqR03YDxCwxXv-NkT5HI36OROxssE_yPMMGDbGQ137cnrjcGceWndthMuTub4kkKBz9Oa77XeBfuHs63DNeW9nLk61QQDR8i8KAmyyIedtLXAa2F5u48Tw6gGf34xoP6HIx9IQfKq5j7SJFgPWL7gxaZdPnMetETorMhtSZ9BYu1NWKh8uo9I75Lm6tRgO45Nu8AfKihOSpHn6R7i4Oo_oZUAqC9dyhF3M-FBw.jpg" width="400"><br>
 
@@ -23,7 +80,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn1.telesco.pe/file/OjCD64bTFRd86__mZjXU7rcIhOQPUT1cmxGFxQOAH2TR3YMVXxX-ahh385m_lA9b7BlosOid_exk5icl_iB-f1T9R9pwBL5ndpWHzKKJvzQAYKuY8cEONwWk1wBmpr9vxPdya6_1GJhh-XMsIe0pwZI5lcJpoLH2agHx1ncC-Z3-b_WD1jvGrlyEbxUSTaBrMXvAgImlEzWFI2hAg6X-4f4AX-023fhMe29F7_iFo1R2OzP4J4ZoE75MueNKA5h783QZrO49_h_4pc5K9lEX2KpHQShv3SiW-s_Tg1JFJuCXmUA5NaFh6NDsjRBMMiUuzfdJDq3AfEH7hjzpwt9SOg.jpg" width="400"><br>
 
@@ -41,7 +98,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 
 
@@ -58,7 +115,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn1.telesco.pe/file/BRuN8K1Z_-EAA8WJe11DMS-Ye-hg3HirQuP_ca-v8T0-tWEE5V-T1KIpyfjUPCyjuuUZlso47Iu5EuCp15p_T4w-jeyzplDPzqTFqVvQ8WBfnutqF-c_dxusdy_vvUfL2VOtEjNMOfYCMTZDiPH7kxp9caNL5jsvQuTtBDxqcNgosbpFGyHEYO7XyS-QtUJZaLGXyK8vxWowVtX_SpnZRuCF9QnvBH0vmznFZmipZ9_eyx25cLsWdYr3bWQ641nV2BNt-X55-tyqJ5EJSfiC8HQHA_C3uAQEDy0wPEnq3Ze3LSHqYnXRcn8z3pQMMOm96Wo-2ne_1KUKSzmO-3eo4Q.jpg" width="400"><br>
 
@@ -76,7 +133,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn4.telesco.pe/file/ZFcI_czlDAMf_11XdfuqsdgsSBqytujU5EmHn56t2J2jwLHrG_DP7X72eqAwV3aOULlolVuXW_GbUZPjWbvzHY4lZ4xlrsehhljY2EJ1A7yDjfDIDstADLEHMb--KCWiCzAyhKjsW0f9BsEbKBO-Z2A_94uAHmXa36EhgkAjPv_IRGjg-INQGiIaTgfa8ZYpUgc8XnGLfComGr_fPo4BVXpzqV-8PtH8PeTKYA1Jv3ZUaJ-3sMF19tWyjl9rYEgNfPeMSbpxlL5HOMaAkWXo8OWNEmYayHgVsy2ircyA0k63Jpw49KyDFuWwoLb1mEQ7M9Svt6rIP2j4h_hsFbfOaA.jpg" width="400"><br>
 
@@ -94,7 +151,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 
 
@@ -113,7 +170,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 
 
@@ -132,7 +189,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn1.telesco.pe/file/gfHh1xPtJ4YTHN91wlZZxb8cya6aLwKqarhMe8_MkHQMhHVezFvEaCqZ4AsJY8W7N8QdpuhMP6iXmQH5T2wEkcjQiNWRKAWvttlmq0mk_d2J38sgI-T8Ep84AQboqjNrs8nkPOXR0WL_mDaVKx8ftgDuZMFuv--nDECF9oe-kAfJK6YarELvb__VyV0kk2rLPpKTOFuAcZW0kiSjjcJK0ywJOCjahaSF5_2zc_jegbWjoXzuxml-yTuGJrVTU0wL8r8GvbKGyk3Ha8lIjrs5BBxI5nSRIQ2JcK2YLXZ0C-U_MzfODcWFnLTN44jF-OqjST4zLEMzKFlcVlnlasFrew.jpg" width="400"><br>
 
@@ -150,7 +207,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn1.telesco.pe/file/USUpbF2aw-Iip221qrZZpXsmgHFzdgqjLgpW65BmJjioeBPEE48d4jZcEF_LKFjGxUHQUzGS-rP_lU5gGAvwO4ZzcypLaOp2BQQMG8o_UXRWPxRMGtFk8OYwikAxkJ9YLRatGsfgQd7heb6TBIvKHtA7uDd5V0Y9kMIY0thF2T-NkvV_9jqWAtX--cGZdhZ43W8QtSgIjAh9peToBuePdt_TGOzrR2tT5T0fznj43uoUZgxW1rtX8nRFP1qBA0ZB_mBqKplwYpL4Bb3YE1OGQu95NaqP7312FLontI73hYIQvMJuQCW7r6sv-5ZoUVuOH9dd9zmo_T8alxSxj5UdJQ.jpg" width="400"><br>
 
@@ -170,7 +227,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn1.telesco.pe/file/GHA_9Nt1XYjOrr7yd4P1w1R7P8Qet5PxdGXkxOuoz5QBRLGeFX-NNjoGAM1WTwY5dALXPHqOFk6NZ7Q6U-CU76obrtK1yEJY5zBFVNZqr0skYwD2IyCkyhtqitdyI3FekxYZNehoryf_T0_9EZ-ervj2yGKqsKjTuhxM-3-GGrHd43PA_aHEKpmChe3YXXjP0DdQXkxDczJB2I_yJtnfO6ALsa84zwAxpA4nwOdImG4dTllX_ycIpqtJ57XB2WabTwjDQmk9AXG-4vmM9QiTVnsr40-_iZ9Ya6-nAKyYrnTQ1mdto1_P-e8aT4iKnvFfjOewzg6nJDB0crdyrUdAdg.jpg" width="400"><br>
 
@@ -188,7 +245,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn4.telesco.pe/file/tXFnAoXKqcXZL7d3_kV7HYlSAH4krE890rsYamto2GanEsFIW8k61F6r03xSGv91Ff7-5T0bPCA3KEcGXSDUjgrEDTnPjAS4iVmeni6BgqLxo5EyCvX70eVtAJ3jTt-hj5ix3P2sRr9oP1I5-sc4dIU0D97s5kO2StcmnboZ83o1r7inua_9e-S1tA7kdneh0ATp8yX7Xu-q_a7ZL3k5pCbNcVTG1VFp-O36L1f7G4IN7tg9HY0bWlqhBRvKagn5rNkYJGthQpEVE4iKvuwxST42-MZTt2aie4CTxNcf5ufV_mP818YYak9meoqyMia0s6uJBUki5lUeY82LV1m6nA.jpg" width="400"><br>
 
@@ -206,7 +263,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 02:30:03
+###### 🔵 Updated at: 2026-05-21 03:43:58
 
 <img src="https://cdn4.telesco.pe/file/KSRd1YitmDKOkLx7SFW8invTNzdpAvfgq-yes2F73P830t4IY_Izg9DNGcM6l3fTDZlGufQd4kIrrSWey473FJDL-EMqOVBWNkeoPac7XJsEb2W7VlGG4O_ZUeFSBC23RJROdIfFpYvDX_X6doJKkAAZxJuTFH_HT2so906fYHR5QOH2F8l7n2hj0JTEWFwbRDnBr0tyGUjAfk56ryC2YjRiGaSxLGqFBbWoUzhVVsshzqhXzMwD7B0hQrvLmbxQEeLyt6qNXAUFdxCGj9NWixbcLiXSfJAs00JyfL89-rjrsDRxoWENZQUfLLfOQ7brChYG2h160o1yz8DLZ8GZtg.jpg" width="400"><br>
 
@@ -218,60 +275,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75569)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-21 02:30:03
-
-<img src="https://cdn4.telesco.pe/file/EpN_PMSYI9ja9T73JJ-WMfAQA48Wbt8tr-L3OprcaFX3YwHF0NsWLaYHl5CSMyG_5-RVHO_cpnOiV_gWDpJ-hDaWy5f4cNSPEDg5hZwQvfpl9H-k31ZCWaqjGgJM7rgXlMEtSUSDZQ5wnhjYGffHrbKitjFd7qwni1r8nz0UO_t2d0snhhfMZait6hrBl7Ke9gLm9pGzbfcFSsBRXJnucF9bm9R5h-hkrEOfcYw3RdHtB-hsAn7EjGZjdTLm1yWr9iR333HFXtfyL4Jma37fHxdSp68n5KqzKNO1EsReR__jRAe_dmJ8BZxEYNY6RDKgUH5rtYOEz8aBBiM3CTEOTA.jpg" width="400"><br>
-
-رسانه‌ها در ایران از اجرای حکم اعدام قاتل الهه حسین‌نژاد، که جسد او اوایل خرداد سال گذشته در بیابان‌های اطراف تهران پیدا شد، خبر می‌دهند.
-عصر چهارم خرداد ۱۴۰۴ الهه حسین‌نژاد ۲۴ ساله از سالن زیبایی که در آنجا مشغول به کار بود، بیرون آمد تا به خانه‌اش در اسلامشهر برود، اما ناپدید شد و وقتی خانواده‌اش اعلام شکایت کردند بررسی‌های تیم جنایی نشان می‌داد الهه از میدان آزادی سوار یک خودروی عبوری شده است.
-جست و جوها برای یافتن الهه سرانجام پس از ۱۱ روز نتیجه داد و با دستگیری راننده خودرو به نام بهمن ۳۷ ساله و اعتراف به قتل الهه، جسد او در بیابان‌های اطراف تهران پیدا شد. متهم نیز پس از محاکمه به اعدام محکوم شد.
-این قتل جنجال زیادی درباره امنیت زنان در ایران به پا کرد و تا مدت‌ها رسانه‌ها درباره آن مطالب مختلفی منتشر می‌کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75568)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-21 02:30:03
-
-<img src="https://cdn1.telesco.pe/file/NbMn7H4pklhF3tEEKPVA_H_qPbseOqthqXvIr6nJUtciqwfScN8UeZL0Eb38gc2NteQl7J5x-Lqbgv_xX0sGX57g-e106KzyS46c6q5guXZIwU4mRuLolPAadRzaKk8E0t_ytwvO28zKo78vzEhNEpxK32JMaMbUnSkuzQxoRKEdI-Fb95ZOR9zmDmRiAYANOyDyEdgRX_BH9byNTIZexfAUr5DXgQAkL0gEWizogJdcT7KobW6S2jDTbhVwivTeQW78XjYT-nzQ3XLb4sbrG2nBahBarNqyEp2h2HIsizPKtu-3GGIIbQynl4bjqsAGMoXCQ1aDeeH3VZE5OlQu-A.jpg" width="400"><br>
-
-رسانه‌های حقوق بشری گزارش دادند دادگاه کیفری تهران پس از رسیدگی دوباره به پرونده شهرک اکباتان، سه معترض بازداشت‌شده در این پرونده را به دیه و پنج سال حبس محکوم و سه معترض دیگر را از اتهام مشارکت در «قتل عمد» تبرئه کرد. حکم اعدام این شش تن پیش‌تر در دیوان عالی کشور نقض شده بود.
-سایت هرانا چهارشنبه ۳۰ اردیبهشت گزارش داد شعبه ۱۳ دادگاه کیفری یک استان تهران، میلاد آرمون، علیرضا کفایی و امیرمحمد خوش‌اقبال را بابت اتهام «مشارکت در قتل عمد» آرمان علی‌وردی، از نیروهای بسیج، محکوم کرد. هر یک از آن‌ها به پرداخت سهم مساوی از دیه کامل یک انسان و پنج سال حبس محکوم شده‌اند.
-طبق گزارش هرانا، نوید نجاران، حسین نعمتی و علیرضا برمرزپورناک، سه متهم دیگر این پرونده، به دلیل «فقدان مدارک دال بر وارد کردن ضربه به ناحیه مشخصی از بدن علی‌وردی» از اتهام مشارکت در قتل عمد تبرئه شدند.
-این حکم ۱۵ بهمن سال گذشته صادر و سه‌شنبه ۲۹ اردیبهشت به وکلای این افراد ابلاغ شده است.
-این شش شهروند معترض در آبان ۱۴۰۳ از سوی همین شعبه به اعدام محکوم شده بودند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75567)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-21 02:30:03
-
-
-
-پوتین هم به خدمت شی رسید.
-J74wabx
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75566)
 
 ---
 
