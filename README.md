@@ -3,7 +3,106 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
+
+<img src="https://cdn4.telesco.pe/file/cOXvPlUaUPBcOQer8iAzJ_WkZwQEIFP5qaOlRanXP4tA9b2XoMVxrgGSceZkGPV0z24OHowxTuanTyFcKoO1teSuR0rAW-xLPf_MHVFd-KiTzvuiMVINHwwqK17Lf5qDIdpKw-1FekctCjBS5Opv5H7FzPTmeK72r4AoraMPL0b-splrh5AtgCV33MRRg0xHCsvTnvk99RBjBgRF_KM3JxwtKaIQgx_-wz7ehfbnD10k_x8_8cjNmKQGHt8uYV5Bd1qJnZ923ulGra03jwnD1VBtlWzA_HRXfqtGj2Ua4CNkn9I_TxxKXshlmQpw5or9KCbRdSW3ASkz9XiJzRY1rg.jpg" width="400"><br>
+
+انور قرقاش، مشاور ارشد رئیس دولت امارات متحده عربی، می‌گوید که برخی رفتارهای ایران در سال‌های گذشته باعث کاهش اعتماد میان کشورهای منطقه خلیج فارس شده است.
+او در پیامی در شبکه اجتماعی ایکس نوشت که کشورهای منطقه طی سال‌های طولانی با «رفتارهای زورگویانه و تهدیدآمیز» ایران روبه‌رو بوده‌اند؛ رفتارهایی که به بخشی از واقعیت سیاسی خلیج فارس تبدیل شده است.
+آقای قرقاش همچنین تاکید کرد که شکاف میان مواضع تند و ادعاهای دوستی از سوی ایران، باعث از بین رفتن اعتماد و اعتبار شده است «و امروز، پس از تجاوز وحشیانه ایران، حکومت ایران تلاش می‌کند واقعیت تازه‌ای را که از یک شکست آشکار نظامی به‌وجود آمده تثبیت کند؛ اما تلاش برای کنترل تنگه هرمز یا تعرض به حاکمیت دریایی امارات متحده عربی چیزی جز خیال‌پردازی و آرزوهای دست‌نیافتنی نیست.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75594)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 18:00:15
+
+
+
+بریتانیا از توافق تجاری ۵ میلیارد دلاری با کشورهای خلیج فارس رونمایی کرد؛ توافقی که در بحبوحه تنش‌های منطقه‌ای پس از جنگ ایران، به گفته لندن «پیامی از ثبات و اعتماد» به بازارها می‌دهد.
+این توافق با شورای همکاری خلیج فارس شامل عربستان، امارات، قطر، کویت، عمان و بحرین است و قرار است سالانه حدود ۳.۷ میلیارد پوند به اقتصاد بریتانیا اضافه کند.
+لندن می‌گوید ۹۳ درصد تعرفه‌های کشورهای خلیج فارس برای کالاهای بریتانیایی حذف می‌شود؛ از جمله محصولات غذایی، خودرو، صنایع هوافضا و الکترونیک.
+در مقابل، بریتانیا نیز برخی تعرفه‌ها را کاهش می‌دهد، هرچند نفت و گاز کشورهای عربی پیش‌تر هم بدون تعرفه وارد بریتانیا می‌شد.
+فعالان حقوق بشر از نبود بندهای الزام‌آور درباره حقوق بشر در این توافق انتقاد کرده‌اند و آن را «عقب‌گرد اخلاقی» توصیف کردند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75593)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 18:00:15
+
+<img src="https://cdn1.telesco.pe/file/u8hGLKA_7du-_5Dh9RPHLPRIuVMHfG0AraWpQGEt8Wkavd77crl7l3_S3DGW9qDTvYVkYvJe_v_RH0KFO3gWUiG6kp4i3lHL-UztBBa7fgzO6JU23g8zgFO-_998PuUGzeQheoT_j2RohGpjzorqbSfppAhoXi3XCNF30JI-xu8F0QXLwZ21n48zjC9D7GC2TX7kiZhbwn9ZHpQhFYLCGKZQVojeGS05TxNbrvG33205zmoj1euLxAM11BC6fkYb8FhdrZe6HiAmyHJ-5SwrcuqzDOZYrCkZjtqUevJ8Oc7Aw8m47ZjQbTSEyAtnDsXVnJfsSeOywsacRY4zpH9Orw.jpg" width="400"><br>
+
+علی یزدی‌خواه، نایب‌رییس کمیسیون فرهنگی مجلس، گفت در شرایط فعلی تصمیمی برای بازگشایی اینترنت جهانی وجود ندارد و محدودیت‌ها با «ملاحظات امنیتی» ادامه خواهد داشت.
+یزدی‌خواه قطع اینترنت جهانی را به مصوبات شورای عالی امنیت ملی نسبت داد و گفت این تصمیم به‌دلیل «مسائل امنیتی، امنیت کشور و حفظ جان افراد» گرفته شده است.
+با وجود اینکه نت‌بلاکس اعلام کرده خاموشی اینترنت در ایران وارد هشتادوسومین روز خود شده، یزدی‌خواه گفت بیش از ۹۰ درصد نیازهای مردم در وضعیت فعلی برآورده می‌شود و مراجعات گسترده‌ای در اعتراض به قطع اینترنت وجود ندارد.
+او همچنین گفت در قالب طرح موسوم به «اینترنت پرو»، تاکنون بیش از یک میلیون نفر دسترسی دریافت کرده‌اند؛ طرحی که منتقدان آن را مصداق اینترنت طبقاتی و تبعیض‌آمیز می‌دانند، زیرا دسترسی به اینترنت جهانی را به گروه‌های خاص محدود می‌کند و شهروندان عادی را از حق برابر دسترسی آزاد به اینترنت محروم نگه می‌دارد.
+نایب‌رییس کمیسیون فرهنگی مجلس همچنین گفت شرکت‌های صادرات و واردات، مراکز علمی و پژوهشی، آزمایشگاه‌ها و برخی اصناف در صورت نیاز می‌توانند برای دسترسی به اینترنت بین‌الملل اقدام کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75592)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 18:00:15
+
+<img src="https://cdn1.telesco.pe/file/N2nx2ghJTqkYDsZgj03_yQa6nrNBDL_KBxYeLnEE-YSCUB-m7sPJO852FWbyTPuBFOh5fKFEwULtrV9SLecXeLcHt0IE0e4v57FLavytyB2JmEks0ZHXmIRSGUw9kusSAtak1x8zYD5Gg6UFDmSfry9P0T7HTp7HRQsNprSD04KVEBzc_ZZwFR2ed_o0kE-qWDcRnVDLgDwwlhkjsFxVGKRMh0irb1_Jg1-gA36VqGqaHVnSmfX_121VA_gsBqVMOe7N0V5Y6aXE_3PXEOntRVpd1DGmhcnBFSvphioC3huPBSlaPwpryWnDHqp79v2WxbmGGpqgcw6oSgz4xgVqBQ.jpg" width="400"><br>
+
+خبرگزاری رویترز به نقل از دو منبع ارشد در حکومت ایران گزارش داد مجتبی خامنه‌ای، رهبر جمهوری اسلامی، دستور داده ذخایر اورانیوم با غنای بالا نباید از ایران خارج شود.
+به گفته این منابع، این دستور موضع تهران را در برابر یکی از اصلی‌ترین خواسته‌های آمریکا در مذاکرات برای پایان دادن به جنگ آمریکا و اسرائیل علیه جمهوری اسلامی سخت‌تر کرده است.
+مقام‌های اسرائیلی نیز به رویترز گفته‌اند دونالد ترامپ به اسرائیل اطمینان داده هر توافق احتمالی باید شامل خروج ذخایر اورانیوم غنی‌شده از ایران باشد.
+یکی از منابع ایرانی به رویترز گفت دستور رهبر جمهوری اسلامی و اجماع در ساختار حاکمیت این است که ذخایر اورانیوم غنی‌شده نباید از کشور خارج شود.
+به گفته منابع رویترز، مقام‌های جمهوری اسلامی معتقدند انتقال این مواد به خارج، جمهوری اسلامی را در برابر حملات احتمالی آینده آمریکا و اسرائیل آسیب‌پذیرتر می‌کند.
+@
+VahidOOnLine
+دقایقی پس از این خبر رویترز بهای نفت در بازارهای جهانی نزدیک به دو دلار افزایش یافت.
+قیمت هر بشکه نفت خام برنت دریای شمال بعدازظهر پنجشنبه ۳۱ اردیبهشت‌ماه در بازارهای اروپایی از ۱۰۵ دلار به بیش از ۱۰۷ دلار افزایش یافت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75591)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 18:00:15
+
+<img src="https://cdn4.telesco.pe/file/X452vkkpM0nQTqvPpOJceEqJozAd9kZuG8VUH2mkHZnI9JMKGLzWBkxcZq5Rymjk4qAPFc6iTOAssAlXY450koYyxS_4t-xFZSkCG-FaSmzzzYI4thvVgSAz28kSXl6R60OtR4o0GN2Te8DAni-xPT7g6F_G-eE-J-nk2_d5F0dzNeTTmohafE0cM1S_w5cn7cRwBgcxgyuB74RlqFHJ63Dns8HgA6lBzOS0IQmXQGxOnJTpff1JvpDZgxbdMmleBvNClv1_8R1gv6_5vBTUGCtPmWucAcV2kLtsUbPbXr2difE0bTKPJttxVYuzDlQm_G7uFaesK4zfCFcAyZ6-OA.jpg" width="400"><br>
+
+مهدی کابی‌زاده، شهروند ۴۷ ساله و پدر یک دختر بود که در اعتراضات دی‌ماه در استان خوزستان بازداشت و پس از انتقال به مرکز درمانی به دلیل منع رسیدگی جان باخت. او دختری به نام حلما دارد.
+بر اساس اطلاعات رسیده به ایران اینترنشنال از افراد مطلع از خانواده او، مهدی کابی‌زاده در اعتراضات اهواز به دست ماموران بازداشت شد و سپس به دلیل بیماری خونی و روده به بیمارستان منتقل و بستری شد. با این حال، مسئولان بیمارستان به دلیل سابقه حضور او در اعتراضات و بازداشتش از رسیدگی و درمان کافی خودداری کردند که موجب جان باختن او شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75590)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 <img src="https://cdn1.telesco.pe/file/ugLJDM8CRyU9Ir0dZpZwLfaE9Z3nyfyQlPQW5yBzAvrdLUHvko1RGKQGoxtdH3vpw80s3eTU29yRHbFsouzr8HSe92zlrrTWEM35UDTSpOzvFqEXp8DmXcH_8W4a8PoLy7ayZseqaqi3GH-gRaWliay6mWSt_n8Ey0aFCsstJ6iJAG4wCSeAq_P-yuaPAlIwoEPTfOr88vB9goQbOSnFAIbmKr10Ro0RBo4M-BKgt-bnCsw9MX3t3xYJ5PzarJ2HPuvIrncw8eheTWQI_av9j16Z2l4ia9ztZrMDmJCJ3clYSlQHSxwegFRylpTfCzLvB0P4yxaC3HPsiJH9M4aALQ.jpg" width="400"><br>
 
@@ -23,7 +122,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 
 
@@ -38,7 +137,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 <img src="https://cdn1.telesco.pe/file/a1R9xrBqQNg_VUHgbpnEZJ_Pl9Zow4t8LycYBSkag0cg5zLy0Woan_f-Stn_oOhRnkiaQUTpGVe81x9WJx6rvapuwQFJ7CuxCdG_0zFaCYSbWt7zVi6KDRXtSMJ98t8Ok24wKv6FDJzfVjYAPJ_wsRNTDN4nR-WqozcHqKUq56Nle5mlUZMRwV-JseKqk9FHuMReWDhIm6wui3dTBAQXUSOBaI7z4jdEvhMZQwOSiZVnnue3cALCKlB0uiRjjDwjudzldWhACpsOZ275zvQNjZZBZIMnyvKGIHpMpSLObyC2esOfAyx6FLgJLetpOONZMdL-9SAFOxEnm3rTnnb8jQ.jpg" width="400"><br>
 
@@ -57,7 +156,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 <img src="https://cdn1.telesco.pe/file/Lqe_Mbs-iCQQUCe5bovjVQCv8sQLOI-aBmaSX8OXJzMvN0nmeoU1cbnIUdSofZ_DoICwu4zqR-8biBFfn6JIToeFtSBTSF_x37KbCsK_K1iKx-AsQUaSXuPh5MH5V4INPVe8AEyrkaAgzLMIq4sBoXcCd0Uca9N-GBXe37tfg4K0yV3r0IN-AZ1PWBYxooUVJjCMlxDdcCbc060R5xtNNrJtsLR2-1UQe_5Arf157pLaA3rCOYwiSWNno81IHYo5NdjE2oEOhAybLHDQBWTufTJG4yiZL0M7S7OnZFWD-zeXWAHa_8Kc0XivQX5cvUmSd-xZ4JM3Sg76DnmRvWrS9Q.jpg" width="400"><br>
 
@@ -80,7 +179,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 <img src="https://cdn1.telesco.pe/file/cKCd0ka1cAgzzWaZt_rNUY_4GoIl7-fy4YiGGGbupQNWaOpgj9xKhWDDSwqO9yHEiVC3subnM49uAD1ctrAHAk2UbVUvxnDY4fSQxEtl8Fnc_jWpXqR03YDxCwxXv-NkT5HI36OROxssE_yPMMGDbGQ137cnrjcGceWndthMuTub4kkKBz9Oa77XeBfuHs63DNeW9nLk61QQDR8i8KAmyyIedtLXAa2F5u48Tw6gGf34xoP6HIx9IQfKq5j7SJFgPWL7gxaZdPnMetETorMhtSZ9BYu1NWKh8uo9I75Lm6tRgO45Nu8AfKihOSpHn6R7i4Oo_oZUAqC9dyhF3M-FBw.jpg" width="400"><br>
 
@@ -100,7 +199,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 <img src="https://cdn1.telesco.pe/file/OjCD64bTFRd86__mZjXU7rcIhOQPUT1cmxGFxQOAH2TR3YMVXxX-ahh385m_lA9b7BlosOid_exk5icl_iB-f1T9R9pwBL5ndpWHzKKJvzQAYKuY8cEONwWk1wBmpr9vxPdya6_1GJhh-XMsIe0pwZI5lcJpoLH2agHx1ncC-Z3-b_WD1jvGrlyEbxUSTaBrMXvAgImlEzWFI2hAg6X-4f4AX-023fhMe29F7_iFo1R2OzP4J4ZoE75MueNKA5h783QZrO49_h_4pc5K9lEX2KpHQShv3SiW-s_Tg1JFJuCXmUA5NaFh6NDsjRBMMiUuzfdJDq3AfEH7hjzpwt9SOg.jpg" width="400"><br>
 
@@ -118,7 +217,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 
 
@@ -135,7 +234,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 <img src="https://cdn1.telesco.pe/file/BRuN8K1Z_-EAA8WJe11DMS-Ye-hg3HirQuP_ca-v8T0-tWEE5V-T1KIpyfjUPCyjuuUZlso47Iu5EuCp15p_T4w-jeyzplDPzqTFqVvQ8WBfnutqF-c_dxusdy_vvUfL2VOtEjNMOfYCMTZDiPH7kxp9caNL5jsvQuTtBDxqcNgosbpFGyHEYO7XyS-QtUJZaLGXyK8vxWowVtX_SpnZRuCF9QnvBH0vmznFZmipZ9_eyx25cLsWdYr3bWQ641nV2BNt-X55-tyqJ5EJSfiC8HQHA_C3uAQEDy0wPEnq3Ze3LSHqYnXRcn8z3pQMMOm96Wo-2ne_1KUKSzmO-3eo4Q.jpg" width="400"><br>
 
@@ -153,7 +252,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 <img src="https://cdn4.telesco.pe/file/ZFcI_czlDAMf_11XdfuqsdgsSBqytujU5EmHn56t2J2jwLHrG_DP7X72eqAwV3aOULlolVuXW_GbUZPjWbvzHY4lZ4xlrsehhljY2EJ1A7yDjfDIDstADLEHMb--KCWiCzAyhKjsW0f9BsEbKBO-Z2A_94uAHmXa36EhgkAjPv_IRGjg-INQGiIaTgfa8ZYpUgc8XnGLfComGr_fPo4BVXpzqV-8PtH8PeTKYA1Jv3ZUaJ-3sMF19tWyjl9rYEgNfPeMSbpxlL5HOMaAkWXo8OWNEmYayHgVsy2ircyA0k63Jpw49KyDFuWwoLb1mEQ7M9Svt6rIP2j4h_hsFbfOaA.jpg" width="400"><br>
 
@@ -171,7 +270,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 
 
@@ -190,7 +289,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
 
 
@@ -209,9 +308,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 15:17:18
+###### 🔵 Updated at: 2026-05-21 18:00:15
 
-<img src="https://cdn1.telesco.pe/file/gfHh1xPtJ4YTHN91wlZZxb8cya6aLwKqarhMe8_MkHQMhHVezFvEaCqZ4AsJY8W7N8QdpuhMP6iXmQH5T2wEkcjQiNWRKAWvttlmq0mk_d2J38sgI-T8Ep84AQboqjNrs8nkPOXR0WL_mDaVKx8ftgDuZMFuv--nDECF9oe-kAfJK6YarELvb__VyV0kk2rLPpKTOFuAcZW0kiSjjcJK0ywJOCjahaSF5_2zc_jegbWjoXzuxml-yTuGJrVTU0wL8r8GvbKGyk3Ha8lIjrs5BBxI5nSRIQ2JcK2YLXZ0C-U_MzfODcWFnLTN44jF-OqjST4zLEMzKFlcVlnlasFrew.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/R5GbxrNX8BQSo_bf4bFwEYsxe9HQQIOGaiREexuDu2qO9ClTv6F1axrCsE-7olOkMVDQTsuJXh_vLjf_Cb3yo92Ep9aNOZPbc35NvOAFLTMwtgDUbmS9G3zl4CvH8a6Pq3H0vsnWmq_J2221p3oyo3hHxkeuYIbMQrcu4oqrKHhGDp4CPbSy07Pr1R_lZY48TXq8SNX5olub2amu1XMTqcvw3NgbR6khkKxG0wVauATMOuKtnper5LlBZ5iNxvw0JV--MXMlxP-naDFMIZ_pq-3wxWj7Vl8Ba2tcOsecLM5vAek6U_fqjPhpePJAwXKaCd2N_2TtSu-qJYSG5yeNmg.jpg" width="400"><br>
 
 اسماعیل بقائی، سخنگوی وزارت امور خارجه جمهوری اسلامی، روز چهارشنبه ۳۰ اردیبهشت‌ماه درباره گمانه‌زنی‌ها راجع به سفر عباس عراقچی به نیویورک گفت:  «وزیر خارجه ایران برای شرکت در نشست شورای امنیت سازمان ملل درباره صلح و امنیت بین‌المللی دعوت شده، اما حضور او هنوز قطعی نیست.»
 به گفته سخنگوی وزارت امور خارجه جمهوری اسلامی «این نشست به ریاست دوره‌ای چین در شورای امنیت، روز پنجم خرداد برگزار خواهد شد، اما با توجه به برنامه کاری فشرده وزیر امور خارجه»، تصمیم نهایی درباره سفر هنوز گرفته نشده است.»
@@ -222,62 +321,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75574)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-21 15:17:18
-
-<img src="https://cdn1.telesco.pe/file/USUpbF2aw-Iip221qrZZpXsmgHFzdgqjLgpW65BmJjioeBPEE48d4jZcEF_LKFjGxUHQUzGS-rP_lU5gGAvwO4ZzcypLaOp2BQQMG8o_UXRWPxRMGtFk8OYwikAxkJ9YLRatGsfgQd7heb6TBIvKHtA7uDd5V0Y9kMIY0thF2T-NkvV_9jqWAtX--cGZdhZ43W8QtSgIjAh9peToBuePdt_TGOzrR2tT5T0fznj43uoUZgxW1rtX8nRFP1qBA0ZB_mBqKplwYpL4Bb3YE1OGQu95NaqP7312FLontI73hYIQvMJuQCW7r6sv-5ZoUVuOH9dd9zmo_T8alxSxj5UdJQ.jpg" width="400"><br>
-
-خبرگزاری قوه‌قضائیه گزارش داد رشید مظاهری، دروازه‌بان پیشین تیم ملی فوتبال و استقلال تهران، «هنگام تلاش برای خروج غیرقانونی از مرزهای غربی ایران بازداشت شده است.»
-میزان در این گزارش رشید مظاهری را متهم کرده که «قصد داشته با تغییر چهره و پرداخت رشوه به ماموران مرزبانی از کشور خارج شود.»
-قوه قضائیه به زمان بازداشت این بازیکن پیشین تیم ملی فوتبال ایران اشاره نکرده است.
-رشید مظاهری پس از کشتار معترضان در ۱۸ و ۱۹ دی، با انتشار ویدیویی در پنجم اسفند، علی خامنه‌ای را مسئول کشته‌شدن معترضان معرفی کرده بود. پس از انتشار آن ویدیو، تا مدت‌ها خبری از وضعیت او منتشر نشده بود.
-خبرگزاری میزان گزارش کرده که مظاهری در «بند عمومی زندان» به سر می‌برد و قرار است به اتهام‌های «پرداخت رشوه به مامور دولت»، «فعالیت تبلیغی برخلاف امنیت ملی در شرایط جنگی» و «اقدام به عبور غیرمجاز از مرز» محاکمه شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75572)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-21 15:17:18
-
-<img src="https://cdn1.telesco.pe/file/GHA_9Nt1XYjOrr7yd4P1w1R7P8Qet5PxdGXkxOuoz5QBRLGeFX-NNjoGAM1WTwY5dALXPHqOFk6NZ7Q6U-CU76obrtK1yEJY5zBFVNZqr0skYwD2IyCkyhtqitdyI3FekxYZNehoryf_T0_9EZ-ervj2yGKqsKjTuhxM-3-GGrHd43PA_aHEKpmChe3YXXjP0DdQXkxDczJB2I_yJtnfO6ALsa84zwAxpA4nwOdImG4dTllX_ycIpqtJ57XB2WabTwjDQmk9AXG-4vmM9QiTVnsr40-_iZ9Ya6-nAKyYrnTQ1mdto1_P-e8aT4iKnvFfjOewzg6nJDB0crdyrUdAdg.jpg" width="400"><br>
-
-در میانه اختلال در مسیرهای رسمی تجارت و فشار بر زنجیره تأمین صنایع، سازمان توسعه تجارت ایران واردات برخی مواد اولیه پتروشیمی و پلیمری را از طریق رویه‌های کولبری و ملوانی مجاز اعلام کرد.
-این تصمیم نشان می‌دهد بحران تأمین مواد اولیه در صنایع پایین‌دستی به مرحله‌ای رسیده که حکومت برای جبران کمبود، به مسیرهای مرزی و غیرمتعارف متوسل شده است.
-اما این تصمیم پرسش‌های جدی ایجاد می‌کند. مواد اولیه پلیمری و پتروشیمی کالای مصرفی ساده نیستند؛ واردات آنها نیازمند حجم بالا، کنترل کیفیت، استاندارد، ردیابی منشأ، بیمه، حمل‌ونقل تخصصی و تسویه تجاری منظم است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75571)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-21 15:17:18
-
-<img src="https://cdn4.telesco.pe/file/tXFnAoXKqcXZL7d3_kV7HYlSAH4krE890rsYamto2GanEsFIW8k61F6r03xSGv91Ff7-5T0bPCA3KEcGXSDUjgrEDTnPjAS4iVmeni6BgqLxo5EyCvX70eVtAJ3jTt-hj5ix3P2sRr9oP1I5-sc4dIU0D97s5kO2StcmnboZ83o1r7inua_9e-S1tA7kdneh0ATp8yX7Xu-q_a7ZL3k5pCbNcVTG1VFp-O36L1f7G4IN7tg9HY0bWlqhBRvKagn5rNkYJGthQpEVE4iKvuwxST42-MZTt2aie4CTxNcf5ufV_mP818YYak9meoqyMia0s6uJBUki5lUeY82LV1m6nA.jpg" width="400"><br>
-
-سپاه پاسداران با انتشار بیانیه‌ای تهدید کرده که در صورت آغاز دوباره جنگ آمریکا و اسرائیل علیه ایران، جنگ «به فراتر از منطقه کشیده خواهد شد.»
-در این بیانیه با اشاره به تهدیدهای دونالد ترامپ و مقام‌های اسرائیل برای حمله مجدد به ایران آمده: «اگر تجاوز به ایران تکرار شود جنگ منطقه‌ای که وعده داده شده بود، این بار به فراتر از منطقه کشیده خواهد شد و ضربات کوبنده ما در جاهایی که تصور آن را ندارید شما را به خاک سیاه خواهد نشاند.»
-عباس عراقچی، وزیر خارجه ایران هم در واکنش به اظهارات تهدیدآمیز دونالد ترامپ، رئیس‌جمهور آمریکا، درباره احتمال از سرگیری حمله نظامی به ایران، در شبکه ایکس نوشته «با درس‌هایی که آموخته‌ایم و دانشی که به دست آورده‌ایم، مطمئن باشید بازگشت به میدان جنگ با شگفتی‌های بسیار بیشتری همراه خواهد بود.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75570)
 
 ---
 
