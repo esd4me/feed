@@ -3,9 +3,23 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
-<img src="https://cdn1.telesco.pe/file/UxeQmXtrZAQYKXpfoYlD21SnBaplPFxiMzqRx6DAOtHFYQreyHixekF8yNPYbtAzg6Sq3WeQykzffmvRNtSFvYbVK8dAoWZeXOHU7KVCEGzkMluyV3fNmr9FFrQq2xwY5l8HdqkdO0-bIrJ-Ydyu-RvqFB3egNhg6oSMmX8MTQ46L9hAWg7VAYIdMHmIU4334IZMo88sLz9KscTx3xobgYaXXoKlrq5LukW4zzkDScEmLS4-lC9ABGwcnm6cRqJf_NvcYJCCnbrpeS_GtKyf8jOHFyu9A8YLasReKwo1V98iSB0uzixBIBBtSpLh1V8ZuQ9NJSoRdXh3BzXO5cQb7Q.jpg" width="400"><br>
+
+
+حمید رسایی هم تلویحا وجود یا عاملیت داشتن مجتبی خامنه‌ای در تصمیم‌گیری‌ها رو زیر سوال برد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75600)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-21 22:50:35
+
+
 
 دونالد ترامپ، رییس‌جمهور آمریکا، در کاخ سفید گفت: «جمهوری اسلامی قرار نیست سلاح هسته‌ای داشته باشد. ما نمی‌توانیم اجازه بدهیم.»
 او افزود که در صورت دستیابی جمهوری اسلامی به سلاح اتمی، «در خاورمیانه جنگ هسته‌ای به راه خواهد افتاد، و آن جنگ به اینجا خواهد رسید، آن جنگ به اروپا خواهد رفت.»
@@ -26,7 +40,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 
 
@@ -47,7 +61,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/JbGxywyp2cBnKkjN9CfdJ4u8s2JuKbZ_7xkJiKCgWZa3HrwSqJsypQ613VkRhfvHiiP2OvoPhHNiaZLrOueDXKJ52U7AYUHznW1wpopr1oPqfuckpLaLEZewCDDzrs5tL7dRSB2VssqRf0xw6OubTvOojK7a0qQQStG2KKBeGnjllxoDFGzqexO45t__hxrt0d-dlwxaJunVR9s9J8E30m_TXIb_9KChOAGKuPPSx8R2Et75OFwxeJfRWLnTh7KRi0aPmBYB74MCVcONbhUQhUB73-zLC8A8yXwz5JqGmgkMiVucNJH9iPbgvMOM22c6cTDtcVanCWHJ8418ppVtjQ.jpg" width="400"><br>
 
@@ -63,7 +77,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/VeNQc0rhhWrZX2C8RXdulh7ecATjIV1xW7rr7LsEa3Nppo3YKiPIIbETf576sEFnB-EOWugHA4AKJ6Sy9iA_lGyh67FHFPvZ_x7P5wJbgLwoEG9uzTZ65USovNBEWaFoj79OagDyCQhQyObq136iPfcZmNhAAzedERB9bUoKTRupMixTHtXFJhTC3U9J1FHvXCgVYXfUgbUJ4zomPhAOQ0mWA7UPk_rAE75l-eRlVLGecDf4HvEMzCWrTFQzTwPV9k9K3R1QUt34jh7fFT4qfy2ICbkl2h44i1ErL23p-Rc9Ld5jgtXHAtj6psuzRpA9mRy-7DNoUm8cKkhK7dnF8g.jpg" width="400"><br>
 
@@ -81,7 +95,7 @@ FSeifikaran
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn4.telesco.pe/file/cOXvPlUaUPBcOQer8iAzJ_WkZwQEIFP5qaOlRanXP4tA9b2XoMVxrgGSceZkGPV0z24OHowxTuanTyFcKoO1teSuR0rAW-xLPf_MHVFd-KiTzvuiMVINHwwqK17Lf5qDIdpKw-1FekctCjBS5Opv5H7FzPTmeK72r4AoraMPL0b-splrh5AtgCV33MRRg0xHCsvTnvk99RBjBgRF_KM3JxwtKaIQgx_-wz7ehfbnD10k_x8_8cjNmKQGHt8uYV5Bd1qJnZ923ulGra03jwnD1VBtlWzA_HRXfqtGj2Ua4CNkn9I_TxxKXshlmQpw5or9KCbRdSW3ASkz9XiJzRY1rg.jpg" width="400"><br>
 
@@ -99,7 +113,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 
 
@@ -119,7 +133,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/u8hGLKA_7du-_5Dh9RPHLPRIuVMHfG0AraWpQGEt8Wkavd77crl7l3_S3DGW9qDTvYVkYvJe_v_RH0KFO3gWUiG6kp4i3lHL-UztBBa7fgzO6JU23g8zgFO-_998PuUGzeQheoT_j2RohGpjzorqbSfppAhoXi3XCNF30JI-xu8F0QXLwZ21n48zjC9D7GC2TX7kiZhbwn9ZHpQhFYLCGKZQVojeGS05TxNbrvG33205zmoj1euLxAM11BC6fkYb8FhdrZe6HiAmyHJ-5SwrcuqzDOZYrCkZjtqUevJ8Oc7Aw8m47ZjQbTSEyAtnDsXVnJfsSeOywsacRY4zpH9Orw.jpg" width="400"><br>
 
@@ -139,7 +153,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/N2nx2ghJTqkYDsZgj03_yQa6nrNBDL_KBxYeLnEE-YSCUB-m7sPJO852FWbyTPuBFOh5fKFEwULtrV9SLecXeLcHt0IE0e4v57FLavytyB2JmEks0ZHXmIRSGUw9kusSAtak1x8zYD5Gg6UFDmSfry9P0T7HTp7HRQsNprSD04KVEBzc_ZZwFR2ed_o0kE-qWDcRnVDLgDwwlhkjsFxVGKRMh0irb1_Jg1-gA36VqGqaHVnSmfX_121VA_gsBqVMOe7N0V5Y6aXE_3PXEOntRVpd1DGmhcnBFSvphioC3huPBSlaPwpryWnDHqp79v2WxbmGGpqgcw6oSgz4xgVqBQ.jpg" width="400"><br>
 
@@ -163,7 +177,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn4.telesco.pe/file/X452vkkpM0nQTqvPpOJceEqJozAd9kZuG8VUH2mkHZnI9JMKGLzWBkxcZq5Rymjk4qAPFc6iTOAssAlXY450koYyxS_4t-xFZSkCG-FaSmzzzYI4thvVgSAz28kSXl6R60OtR4o0GN2Te8DAni-xPT7g6F_G-eE-J-nk2_d5F0dzNeTTmohafE0cM1S_w5cn7cRwBgcxgyuB74RlqFHJ63Dns8HgA6lBzOS0IQmXQGxOnJTpff1JvpDZgxbdMmleBvNClv1_8R1gv6_5vBTUGCtPmWucAcV2kLtsUbPbXr2difE0bTKPJttxVYuzDlQm_G7uFaesK4zfCFcAyZ6-OA.jpg" width="400"><br>
 
@@ -180,7 +194,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/ugLJDM8CRyU9Ir0dZpZwLfaE9Z3nyfyQlPQW5yBzAvrdLUHvko1RGKQGoxtdH3vpw80s3eTU29yRHbFsouzr8HSe92zlrrTWEM35UDTSpOzvFqEXp8DmXcH_8W4a8PoLy7ayZseqaqi3GH-gRaWliay6mWSt_n8Ey0aFCsstJ6iJAG4wCSeAq_P-yuaPAlIwoEPTfOr88vB9goQbOSnFAIbmKr10Ro0RBo4M-BKgt-bnCsw9MX3t3xYJ5PzarJ2HPuvIrncw8eheTWQI_av9j16Z2l4ia9ztZrMDmJCJ3clYSlQHSxwegFRylpTfCzLvB0P4yxaC3HPsiJH9M4aALQ.jpg" width="400"><br>
 
@@ -200,7 +214,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 
 
@@ -215,7 +229,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/a1R9xrBqQNg_VUHgbpnEZJ_Pl9Zow4t8LycYBSkag0cg5zLy0Woan_f-Stn_oOhRnkiaQUTpGVe81x9WJx6rvapuwQFJ7CuxCdG_0zFaCYSbWt7zVi6KDRXtSMJ98t8Ok24wKv6FDJzfVjYAPJ_wsRNTDN4nR-WqozcHqKUq56Nle5mlUZMRwV-JseKqk9FHuMReWDhIm6wui3dTBAQXUSOBaI7z4jdEvhMZQwOSiZVnnue3cALCKlB0uiRjjDwjudzldWhACpsOZ275zvQNjZZBZIMnyvKGIHpMpSLObyC2esOfAyx6FLgJLetpOONZMdL-9SAFOxEnm3rTnnb8jQ.jpg" width="400"><br>
 
@@ -234,7 +248,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/Lqe_Mbs-iCQQUCe5bovjVQCv8sQLOI-aBmaSX8OXJzMvN0nmeoU1cbnIUdSofZ_DoICwu4zqR-8biBFfn6JIToeFtSBTSF_x37KbCsK_K1iKx-AsQUaSXuPh5MH5V4INPVe8AEyrkaAgzLMIq4sBoXcCd0Uca9N-GBXe37tfg4K0yV3r0IN-AZ1PWBYxooUVJjCMlxDdcCbc060R5xtNNrJtsLR2-1UQe_5Arf157pLaA3rCOYwiSWNno81IHYo5NdjE2oEOhAybLHDQBWTufTJG4yiZL0M7S7OnZFWD-zeXWAHa_8Kc0XivQX5cvUmSd-xZ4JM3Sg76DnmRvWrS9Q.jpg" width="400"><br>
 
@@ -257,7 +271,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/cKCd0ka1cAgzzWaZt_rNUY_4GoIl7-fy4YiGGGbupQNWaOpgj9xKhWDDSwqO9yHEiVC3subnM49uAD1ctrAHAk2UbVUvxnDY4fSQxEtl8Fnc_jWpXqR03YDxCwxXv-NkT5HI36OROxssE_yPMMGDbGQ137cnrjcGceWndthMuTub4kkKBz9Oa77XeBfuHs63DNeW9nLk61QQDR8i8KAmyyIedtLXAa2F5u48Tw6gGf34xoP6HIx9IQfKq5j7SJFgPWL7gxaZdPnMetETorMhtSZ9BYu1NWKh8uo9I75Lm6tRgO45Nu8AfKihOSpHn6R7i4Oo_oZUAqC9dyhF3M-FBw.jpg" width="400"><br>
 
@@ -277,7 +291,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 <img src="https://cdn1.telesco.pe/file/OjCD64bTFRd86__mZjXU7rcIhOQPUT1cmxGFxQOAH2TR3YMVXxX-ahh385m_lA9b7BlosOid_exk5icl_iB-f1T9R9pwBL5ndpWHzKKJvzQAYKuY8cEONwWk1wBmpr9vxPdya6_1GJhh-XMsIe0pwZI5lcJpoLH2agHx1ncC-Z3-b_WD1jvGrlyEbxUSTaBrMXvAgImlEzWFI2hAg6X-4f4AX-023fhMe29F7_iFo1R2OzP4J4ZoE75MueNKA5h783QZrO49_h_4pc5K9lEX2KpHQShv3SiW-s_Tg1JFJuCXmUA5NaFh6NDsjRBMMiUuzfdJDq3AfEH7hjzpwt9SOg.jpg" width="400"><br>
 
@@ -295,7 +309,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-21 20:47:05
+###### 🔵 Updated at: 2026-05-21 22:50:35
 
 
 
@@ -307,24 +321,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75581)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-21 20:47:05
-
-<img src="https://cdn1.telesco.pe/file/dDrliBWTZR5OvzgdZLdRoIu8sNFci8qXnjvmFRnoUJSdpeoGMY5w5hz2OaLU_9nTXSzLaTVTdWzCMwFKJFTy1i1uCAAnFkTRl9IkwrkLc5Rf7IHroBxuvGBazVLrBfokZ3Ih7Aan7IgzlAAuvgpDPJPt9F0AuDIjJbd_grUaDH3B0JBIUpGnnPZSnBF2wSrrNyiuXTuPZdzsNl3s1lyhJVefduyT-ZaRe7nH7jzS1Pplq6FSuZYq29emDbWkJvBM1B37mI-ZEWVO2rebn27WB9ov_gvfdBeiTa00CAFjxmTJZ-oGAdeI_4XkGnpcNR3SkUCFX0XEFXJpVlpNFErDGg.jpg" width="400"><br>
-
-قیمت نفت، چهارشنبه ۳۰ اردیبهشت پس از اظهارات خوش‌بینانه دونالد ترامپ درباره مذاکرات با جمهوری اسلامی بیش از پنج درصد کاهش یافت.
-بهای نفت برنت به ۱۰۵ دلار و ۷۰ سنت رسید؛ زیرا معامله‌گران به نشانه‌هایی واکنش نشان دادند که حاکی از نزدیک‌تر شدن واشینگتن و تهران به توافقی است که می‌تواند از دور تازه حملات جلوگیری کند و نگرانی‌ها درباره اختلال طولانی‌مدت عرضه در خاورمیانه را کاهش دهد.
-ترامپ گفت مذاکرات با جمهوری اسلامی در «مراحل نهایی» قرار دارد، اما هشدار داد اگر تهران با توافق صلح موافقت نکند، آمریکا ممکن است حملات بیشتری انجام دهد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75580)
 
 ---
 
