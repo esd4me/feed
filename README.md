@@ -3,9 +3,67 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-22 21:46:23
+###### 🔵 Updated at: 2026-05-22 23:43:50
 
-<img src="https://cdn1.telesco.pe/file/sPGfRedI735yNtEhDWjIlk2EYA6zcpWzoZfqDu4ze2O7jDaHeFHw7yaBe9tk7NPqNedBOWPrksclsjQDERK9qzHJTRT1_EkqO1dJxd2JtTY1Grplz0RI5Bo6zLcsEzsFxvdi6oh93XLo2syvP4H4QtHF6bJOhqCJOlnsduNQYZsYFq1qo10DEjVU2H421I5IYBD6jW5Wt-SQfqD6W_TTOLHyGBBXIg9aBdNrUI7egoNGGers-qTrpWeLagCYrB9DsXtLHJgbwUrrfd7rf6B96u2tc3R7HAtaXWWhtAq-szdj4OLV_V_8pB632tGZUW3merxd6KAoEIaNxcJkWqGbWQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Bfj205fK1JtK0_PBNgVVT8euEfWJGD2BLsKGQ2GVD4AoCfCwgIxboftqH2SQxoQeCvm-3cfZqxusxv0vXGYiAhqFQwxu_ooazSiTuRzVrTIcqQPvoonRBqZwpHjNkdVRyKWpHycj39D_9Znl9nhK5sfIB-pdKa6lealUnOBUYQB9ubjIrFpAPD6dAMBmH37SZWVwtd8tT0_mgwSEecVpqHf8eeVohoduOMrqCOcoESKpNI-DAfK7T9ebzN4NgQkOkt1Zr_dNRfxmolu116HUnF2O6QFiumW0P0HoKc9dL9oU16D3DmBiymwoyVvE1kXfArjkwqxQb6cuAO0Zw8hAkw.jpg" width="400"><br>
+
+اکسیوس به نقل از یک منبع نزدیک به ترامپ نوشت که رییس‌جمهوری آمریکا در روزهای اخیر به‌طور فزاینده‌ای کلافه شده و احتمال انجام یک عملیات نظامی نهایی و گسترده را مطرح کرده است؛ عملیاتی که پس از آن بتواند اعلام پیروزی کرده و به جنگ پایان دهد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75628)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-22 23:43:50
+
+<img src="https://cdn4.telesco.pe/file/VY_TRQU1ApKr0NjOjKkJb54HykqAYj6xk1alTiXR15BeYX8PUD7VxlghVsJa3yQly5pDIzNN6jiDTgK90TaCH3DlDzqeQiE6Y1yMULWmkypFdaH9HHBml9xYawG9eEUBqrAhVc8yeFUmOcm8DDD6WecepFqrQme2KNxHQ5DIai8FKDWPokCWbDDyPyyRah2MmDIwqkuUDMoSnxIz6SJbxbGe6mgtcLoWT0jMfIFSvdxauHadcWvTHAwq8EIm4tCEj1uwyxXzegmxFJjAepAjusEeAkqPGeUHYu07MksDTx46S7kKCP2mV2bgEzLlN-YleHYlWMm-Jo3frgH33U1nqg.jpg" width="400"><br>
+
+سخنگوی هیئت مذاکره‌کننده ایران با آمریکا روز جمعه گفت که موضوع پرونده هسته‌ای ایران در این مرحله مورد مذاکره نیست و از اختلاف نظر عمیق با آمریکا خبر داد.
+اسماعیل بقائی گفت: «اختلاف‌نظرها بین ایران و آمریکا آن‌قدر عمیق و زیاد است که نمی‌شود گفت با چندبار رفت‌وآمد یا مذاکرات ظرف چند هفته ما باید حتماً به نتیجه برسیم.»
+او گزارش‌ها درباره قریب‌الوقوع بودن توافق با آمریکا را رد کرد و اعلام کرد: «نمی‌توانیم بگوییم ضرورتاً به جایی رسیده‌ایم که توافق نزدیک است.»
+بقائی بار دیگر موضع جمهوری اسلامی درباره برنامه هسته‌ای و اورانیوم غنی‌شده را تکرار کرد و گفت مواضع ایران قبلاً اعلام شده است.
+@
+VahidHeadline
+سخنگوی وزارت خارجه ایران حضور هیئتی از قطر را در تهران تایید کرد
+اسماعیل بقایی،‌ سخنگوی وزارت خارجه ایران تایید کرد که یک هیئت از قطر روز جمعه در تهران بودند و با عباس عراقچی وزیر خارجه ایران گفت‌وگو کردند.
+او بدون ارائه جزئیات گفت که کشورهای مختلفی طی روزهای اخیر با وزیر خارجه گفتوگو کردند اما تاکید کرد که میانجی اصلی میان ایران و آمریکا همان کشور پاکستان است.
+پیشتر رویترز به نقل از یک منبع آگاه گزارش داد که هیئتی از قطر در هماهنگی با آمریکا وارد تهران شده است.
+قطر و امارات و عربستان سعودی سه کشوری بودند که آقای ترامپ روز دوشنبه گفت که به درخواست آنها فعلا حمله مجدد به ایران را متوقف کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75627)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-22 23:43:50
+
+<img src="https://cdn4.telesco.pe/file/IpjoLtVwB9bCR-7ErgujYzMT9W8A_Sb1e7XtojBKcNieV6GcTJ2gELo1RRDghqp0BTErAdgBAOVAkRCUV6XoC_WCUV1AdezJ5T93Pe5On01WpQgBkHXIuyMmQHG6IlRbFxVNvtv37EkA43pAcnkqBGdwgAff5YeDInXp78yc3cYLDdDer393pnICM5u3j60rvjHQsEFOVtuby7Py4C2pdiedCX9AMdl_BPtimrLkz93UE14Iq5ebUCLfPFfJdAxlbuX8u0IiLy2Petzoh4OiCOuOAXlvUXz3arTPe6mpN0noJBNuUDMXxOCS4lzn2UbxY0AQT44-ljv3HDDfizED4Q.jpg" width="400"><br>
+
+تصویری از عاصم منیر، فرمانده ارتش پاکستان که امروز جمعه یکم خرداد۱۴۰۵ وارد تهران شد و مورد استقبال اسکندر مومنی وزیر کشور قرار گرفت. خبرگزاری آسوشیتدپرس پاکستان نیز به نقل از منابع امنیتی اعلام کرده‌اند که عاصم منیر در طول این سفر رسمی، درباره «مذاکرات جاری ایران و آمریکا و صلح و ثبات منطقه‌ و منافع دوجانبه دیگر» با مقام‌های ایران گفت‌و‌گو خواهد کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75626)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-22 23:43:50
+
+<img src="https://cdn1.telesco.pe/file/GPkthl53O78baM2lAwpZDcOPxfG9szhDA5s0-WiVGomGq4rcMae9tzz3IFkl8_NfWWuywWF7MqDf9BB-c0NfJqEegrZGHt4t-sAj4TXXJFt6iW5-jK4Z3Fvp8llROivAhqOynWtwG90zlN6y-lXNDS_N4xuTSyvQIbRk0YZZfmH3C8Rg4UwoQzdDYPZPwSVCV2y9_bN0aZI5-jNkQXZ44tGC5bNollM6DVe9cnlW-k54OzGF1oGsMkPScsVGrVL5gW-IfL-l1fbnzAEvrktSDe36-_1gNcS4hDfeP_2_P0sQ8P5fQQBAte-QVPAn_PQhaAI-Vpc5c0KXJDxmOpaXJA.jpg" width="400"><br>
 
 «فاکس نیوز»: تولسی گابارد از پست خود به عنوان مدیر اطلاعات ملی آمریکا استعفا کرد.
 AlArabiya_Fa
@@ -14,15 +72,18 @@ AlArabiya_Fa
 تولسی کار فوق‌العاده‌ای انجام داده و دلمان برای او تنگ خواهد شد. معاون اصلی و بسیار محترم او در دفتر مدیر اطلاعات ملی، آرون لوکاس، به‌عنوان سرپرست مدیر اطلاعات ملی خدمت خواهد کرد.
 رئیس‌جمهور دونالد جی. ترامپ
 realDonaldTrump
-متن
-استعفانامه
-، ترجمه ماشین:
-آقای رئیس‌جمهور عزیز،
-از اعتمادی که به من کردید و از فرصتی که برای رهبری دفتر مدیر اطلاعات ملی در یک سال و نیم گذشته در اختیارم گذاشتید، عمیقاً سپاسگزارم.
-متأسفانه باید استعفای خود را، با اثرگذاری از ۳۰ ژوئن ۲۰۲۶، تقدیم کنم. همسرم، آبراهام، به‌تازگی به نوعی بسیار نادر از سرطان استخوان مبتلا شده است. او در هفته‌ها و ماه‌های پیش رو با چالش‌های بزرگی روبه‌رو خواهد بود. در این مقطع، باید از خدمت عمومی کناره‌گیری کنم تا در کنارش باشم و در این نبرد به‌طور کامل از او حمایت کنم.
-آبراهام در تمام یازده سال زندگی مشترکمان تکیه‌گاه من بوده است؛ از مأموریتم در شرق آفریقا در یک عملیات مشترک نیروهای ویژه، تا چندین کارزار سیاسی، و اکنون نیز در دوران خدمتم در این جایگاه، استوار کنارم ایستاده است. قدرت و عشق او مرا در هر چالشی سرپا نگه داشته است. وجدانم اجازه نمی‌دهد از او بخواهم در حالی که من همچنان در این سمت دشوار و وقت‌گیر هستم، این مبارزه را به‌تنهایی پشت سر بگذارد.
-هرچند ما در دفتر مدیر اطلاعات ملی پیشرفت‌های چشمگیری داشته‌ایم — از جمله پیشبرد شفافیتی بی‌سابقه و بازگرداندن یکپارچگی و درستکاری به جامعه اطلاعاتی — اما اذعان دارم که هنوز کارهای مهمی برای انجام دادن باقی مانده است. من کاملاً متعهد هستم که در هفته‌های پیش رو انتقالی روان و کامل را تضمین کنم تا شما و تیم‌تان هیچ اختلالی در رهبری یا روند کار تجربه نکنید.
-از درک شما در این مقطع عمیقاً شخصی و دشوار برای خانواده‌مان سپاسگزارم. تا همیشه از شما و مردم آمریکا به‌خاطر افتخار بزرگی که خدمت به کشورمان در مقام مدیر اطلاعات ملی برایم داشت، سپاسگزار خواهم بود.
+از سوی دیگر رویترز به نقل از یک منبع آگاه از موضوع، نوشته که او ادعا کرده کاخ سفید خانم گابارد را برای کناره‌گیری «تحت فشار» قرار داده بود.
+پیشتر اختلاف دیدگاه‌هایی بین رئیس‌جمهور ایالات متحده و مدیر امنیت ملی‌اش، بخصوص در قبال ایران بروز کرده بود. دونالد ترامپ در فروردین‌ماه هم اشاره کرده بود که از نظر او، تولسی گابارد در قبال برچیده‌شدن بلندپروازی‌های هسته‌ای ایران، «موضع نرم‌تری» دارد.
+خانم گابارد بیش از یک سال پیش، پنجم فروردین‌ماه ۱۴۰۴ به کنگره گفته بود که ایران در حال ساخت سلاح هسته‌ای نیست.
+مدیر اطلاعات ملی آمریکا که برای ارائۀ گزارش سالانۀ نهادهای اطلاعاتی ایالات متحده به همراه رئیس سی‌آی‌ای و مدیر اف‌بی‌آی در جلسه استماع سنا حاضر شده بود، تأکید کرد که بر اساس ارزیابی نهادهای اطلاعاتی، علی خامنه‌ای رهبر وقت جمهوری اسلامی، درباره تعلیق برنامهٔ تسلیحات هسته‌ای ایران، که در سال ۱۳۸۲ فرمان آن‌را صادر کرده بود، تجدیدنظر نکرده است.
+با این حال خانم گابارد بعد از مدتی، موضع‌گیری خود در این زمینه را تغییر داد.
+تولسی گابارد که مسیر سیاسی پرفراز و نشیبی داشته، پیش از پیوستن به حزب جمهوری‌خواه و ورود به دولت دوم دونالد ترامپ، عضو حزب دموکرات و نمایندۀ هاوایی در مجلس نمایندگان بود.
+او هفت سال پیش، زمانی که خود را برای رقابت به‌عنوان نامزد حزب دموکرات در انتخابات رباست جمهوری آماده می‌کرد، گفت که در صورت پیروزی در این انتخابات، ایالات متحده را به توافق هسته‌ای با ایران باز خواهد گرداند.
+خانم گابارد در آن زمان در گفت‌وگو با شبکه تلویزیونی فاکس‌نیوز هشدار داده بود که ایالات متحده در آستانه جنگ با ایران قرار دارد.
+تولسی گابارد نخستین و تنها مقام ارشد امنیتی یا نظامی دولت دونالد ترامپ نیست که کناره‌گیری کرده یا وادار به کناره‌گیری شده است.
+در آخرین روزهای سال ۱۴۰۴، جوزف کنت مدیر وقت مرکز ضد تروریسم آژانس امنیت ملی آمریکا، که مستقیماً از سوی دونالد ترامپ منصوب شده بود و زیر نظر تولسی گابارد انجام وظیفه می‌کرد، در مخالفت آشکار با جنگ ایران، کناره‌گیری کرد.
+@
+VahidHeadline
 خبر یک ماه و نیم پیش:
 ترامپ قصد داشت گابارد را اخراج کند
 به گزارش وب‌سایت آکسیوس، دونالد ترامپ تا آستانه اخراج تولسی گابارد، مدیر اطلاعات ملی آمریکا، پیش رفته بود، اما مداخله لحظه آخری راجر استون، مشاور قدیمی و نزدیک او، مانع از این اتفاق شد.
@@ -42,7 +103,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-22 21:46:23
+###### 🔵 Updated at: 2026-05-22 23:43:50
 
 <img src="https://cdn1.telesco.pe/file/oPGOv7746w-1MJPoMVfGT-BhLyRoX1TrV0F3vjEmSSTeZNxJ4xyBXJIqUxduH49iVI_vxhjbm4-yn_shY_3dV4t4sWvoU_PsKY8jTJG2SBk2Dt05J2RT0UCQ3K1xjvpBUqMFxpe0S5sARaJJIbmyTZA5iPuT8uQlivYUJ1w7E0Q6Kfj4pwH1era1HyKeAQRtAYtQDZDVj7zg38rfJXiBWyzIbw3URKc8mMmlxD2xDqTGNIGId3GZ_as2NC2MESICUQhKoTJ567EaMUC2lDefy0AKzuBg1GMxS8e_tgOJznExoJG6uZvC0EfsaiMdv4UFvZeOOO3CdroUfpW2AJ3Xvg.jpg" width="400"><br>
 
@@ -70,7 +131,7 @@ afintl
 
 
 
-###### 🔵 Updated at: 2026-05-22 21:46:23
+###### 🔵 Updated at: 2026-05-22 23:43:50
 
 <img src="https://cdn4.telesco.pe/file/hjqMRu_Mk_9hR1CqSubOYUPs3CQxFdJLG68mwRJGCmamaCTFyXcHVzKPJwVbObsS9-LARXcwPZXQuZobvNxKHU-BCVUYwKKI-w54RFrofnAFFpCHKxc6Ic9I9SdMlrZiHtTutthYYm_iOJPGgQGrqAltlxHZ3s7AX0qq076NYdMcEyvxUgXiI2K-V-6DPwTY0jAGCLxvfyb7sPAvh9UDt_RyGKYof8F4o3Qe8mTl4Q41RJ1Pp_B8Wxq6Y5gYC8QvME5JqwsAz7rpztBqDFOlAyLO42rz0miIdthdlRIN9yFVeMcubdqFjAVzUT6w6g6iB_LnDwW84VApBlONhsKeeA.jpg" width="400"><br>
 
@@ -87,7 +148,7 @@ afintl
 
 
 
-###### 🔵 Updated at: 2026-05-22 21:46:23
+###### 🔵 Updated at: 2026-05-22 23:43:50
 
 <img src="https://cdn1.telesco.pe/file/bPqcucaJCcrb7MouHJ_jV-Ivialw6lZJjvJTPgqBeVBY6NABXuYmF7FbpoeacdsvnXdOuyli8aX-jHZ0LQETgwHTQBGqj4NllOZb_UN3dfadC1VduapERQKfWjmEwPDfeRNipHpKzaczifv9LB_krC9Gbj2vSaTmVihuC2kCMMohXL2ZG5sAOy8yMJY6_ZTEXV3nun9AvkXSSNyAcxZyU3QNq9vMmMCdwhABSAaTtFYjHIbl_Uz4mtUHgoDFdMCKAW05li_SY9GY7vwRiiBG-GXUlEb9X9pwcZVOyIX5vbAh872CS9QfvgHRRq8l0CNlJjn1g116NE8P1zVLx6d7Iw.jpg" width="400"><br>
 
@@ -102,7 +163,7 @@ MNaseri23595
 
 
 
-###### 🔵 Updated at: 2026-05-22 21:46:23
+###### 🔵 Updated at: 2026-05-22 23:43:50
 
 <img src="https://cdn4.telesco.pe/file/MH4ubX3GKv9bTb0LF3RTMzcuY9RDDuKPU2IWa3gV1Hkkn7VPanR26H8iO3HGaW5MHfbw1WZFxxANMNMt6h33X8CxUQKAixk2mvG_gPo-OaBOafp5CdHCT_PgWYgPdBa0mrLgLgsEhpxdKz27F8f76WFKbCgzW20W128XgcWifZUClJ0eh_mvjR2G1SXtQds7dqovxR0mZ86bEq6Y8TYSOXnhzRVxzD9VilGKiIjfwzsY9tImCqDgbnPveSAXlurOV5k0or6Enq3Shl6pfFjToqpNgRbXAE7wu03Or_XtJnqpDb05Kq9IHJfFRlwB__x6DY4IttsZ004PlFTjZtzn4g.jpg" width="400"><br>
 
@@ -121,7 +182,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-22 21:46:23
+###### 🔵 Updated at: 2026-05-22 23:43:50
 
 <img src="https://cdn1.telesco.pe/file/BXOazYje9DvSXD1-WHNQ_XakGXx8TD3CrJ4H6AtbeZg1gX5IEJgAnqsDgbRSWL6p-ORSBlfea_HtYErQnXAd-_-dDbzqRjp_ZQZO03Rha1pdaUxbcoN1MIzlMs1zHddHbfqv9nvgEe5Ntpa6TELkKzGe5NafezUuEfQrxbLW5iG0ypgiYckI32P4VcvZ5eYeuTVJS9vEhYojDtlyKvBOsnCxvn7ZdmdxEyAQ0F5AECnl9dcQqRyI09qdHgm4NbEyLsNqMnQnrBoC4J-iykJ0RXAu88MeA8hX3nhhl9huMmVs5z4jU2zDZ4aOa3UjiibcMVQol21QlcZ3wm3ZUAMMAA.jpg" width="400"><br>
 
@@ -155,7 +216,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-22 21:46:23
+###### 🔵 Updated at: 2026-05-22 23:43:50
 
 <img src="https://cdn4.telesco.pe/file/ZUmCWnf7Bx_EuYTHYGc0LWI6n68j1BPQSlzQX82MF7Z8nywWas6GBiXHBzfB7DJg8S_OlP5_OybeBCveVaNNEJ7dNOMTXKO5JacdwBjzGdUaxNEKyl1W1VuW1buCKK4M-3ozBkza40x8xoPZQtrhdNRAIQQqTljIHbQtS2VGppxIIEWUutZQkaRVKzEyDTg8WZgdc6Un73jsoP-eoAROmZezAAC4Ld7g2I245_jW9NYMiY3vfGpXqFYVM3pr-BmAQTt-I5WD4mBDUn6xcCjkMDBmhHG0CMjtIsl51v_fYHyn37Xsigz6NAg3VgG4VF8_pNtolLhZ4IRgRPB9a-ZV2A.jpg" width="400"><br>
 
@@ -171,7 +232,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-22 21:46:23
+###### 🔵 Updated at: 2026-05-22 23:43:50
 
 <img src="https://cdn1.telesco.pe/file/WmfZkuCkEkoFPo1zptxQfclIbW-Y3fOlJEF62lcPMRuI6EM1rsjGBFZFfA6wFjMSpoW-drKc-176NTXXyUpF1vGKe6eaubR2PWZSO5_AvyJA081_Q7sC8W2gMAge30eiX7AoP2vEbfRKknJgBbHS75vg1q-ZNkQTRZinl3t2TN9C-ikkRxh6EGc68k7RQ20bqznkZ0RSx7iCJVVSwGEw8UMgt_Qf-OIyUexw1e5ApblrUe-s2HR56DVwaSxkkodmG0GKL2jLd77ElWxqKGzEKM1nBcZoxKPWnxQ2F53977KnshwGq05EhFZDB6loPg_yc02b3AuxRgnTGEPjw7IYBw.jpg" width="400"><br>
 
@@ -185,25 +246,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75607)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-22 21:46:23
-
-<img src="https://cdn4.telesco.pe/file/oBR6ceWMbQspuGCDJBTOywc5_2DKLxEY9qwiwNz1NHaHsjFc02tRj-Noc5MII6BqORFD_adunGZyE9jXjTLTWjfglJZgQRF5ixOrkMq_jEjXCZBPJ_B8pZoqkSL7zUS-sXGVUR8Cksbs7sc3NEoQLdz21Ot_zNYzEBNWpTyz6f8786HwRAH97O7M0pmGrpH3WO70UhD83qYsI0EMHH3ex6koO9M7FKvrS8erqfJ_MSmvyXOv7lxfb8Dc9PT9M0JosLrkW1u6oRx--M2bH4KpWcKrw84ilYFFhDZHSve4Xfg_Vx5zsnJLPhLPmXk56ZGd0bzRGQICb5zpdVG4yLhqCA.jpg" width="400"><br>
-
-کشورهای عرب حوزه خلیج فارس از جامعه جهانی خواستند که طرح جمهوری اسلامی برای مدیریت تنگه هرمز را رد کنند.
-به گزارش بلومبرگ، در میانه مذاکرات دیپلماتیک سازمان بین‌المللی دریانوردی با ایران و عمان پیرامون بازگرداندن آزادی تردد و امنیت کامل کشتیرانی در این آبراه راهبردی، کشورهای عرب حوزه خلیج فارس طی نامه‌های به اعضای این نهاد زیرمجموعه سازمان ملل، نسبت به طرح جمهوری اسلامی موسوم به «نهاد مدیریت آبراه خلیج فارس» هشدار دادند.
-پنج کشور عربستان، امارات، بحرین، کویت و قطر در نامه خود گفته‌اند که به رسمیت شناختن مسیر پیشنهادی جمهوری اسلامی می‌تواند یک «سابقه خطرناک» ایجاد کند.
-سفیر ایران در فرانسه روز گذشته تأیید کرد که تهران با عمان درباره اعمال دائمی عوارض عبور در حال مذاکره است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75606)
 
 ---
 
