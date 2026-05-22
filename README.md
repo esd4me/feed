@@ -3,7 +3,74 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-22 19:56:14
+###### 🔵 Updated at: 2026-05-22 21:46:23
+
+<img src="https://cdn1.telesco.pe/file/sPGfRedI735yNtEhDWjIlk2EYA6zcpWzoZfqDu4ze2O7jDaHeFHw7yaBe9tk7NPqNedBOWPrksclsjQDERK9qzHJTRT1_EkqO1dJxd2JtTY1Grplz0RI5Bo6zLcsEzsFxvdi6oh93XLo2syvP4H4QtHF6bJOhqCJOlnsduNQYZsYFq1qo10DEjVU2H421I5IYBD6jW5Wt-SQfqD6W_TTOLHyGBBXIg9aBdNrUI7egoNGGers-qTrpWeLagCYrB9DsXtLHJgbwUrrfd7rf6B96u2tc3R7HAtaXWWhtAq-szdj4OLV_V_8pB632tGZUW3merxd6KAoEIaNxcJkWqGbWQ.jpg" width="400"><br>
+
+«فاکس نیوز»: تولسی گابارد از پست خود به عنوان مدیر اطلاعات ملی آمریکا استعفا کرد.
+AlArabiya_Fa
+پست ترامپ، ترجمه ماشین:
+متأسفانه تولسی گبرد، پس از آنکه عملکردی بسیار خوب داشت، روز ۳۰ ژوئن دولت را ترک خواهد کرد. همسر فوق‌العاده او، آبراهام، به‌تازگی به نوعی نادر از سرطان استخوان مبتلا شده و او، به‌درستی، می‌خواهد در کنار همسرش باشد و در حالی که این نبرد دشوار را با هم پشت سر می‌گذارند، به بازگشت او به سلامتی کمک کند. تردیدی ندارم که او به‌زودی بهتر از همیشه خواهد شد.
+تولسی کار فوق‌العاده‌ای انجام داده و دلمان برای او تنگ خواهد شد. معاون اصلی و بسیار محترم او در دفتر مدیر اطلاعات ملی، آرون لوکاس، به‌عنوان سرپرست مدیر اطلاعات ملی خدمت خواهد کرد.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+متن
+استعفانامه
+، ترجمه ماشین:
+آقای رئیس‌جمهور عزیز،
+از اعتمادی که به من کردید و از فرصتی که برای رهبری دفتر مدیر اطلاعات ملی در یک سال و نیم گذشته در اختیارم گذاشتید، عمیقاً سپاسگزارم.
+متأسفانه باید استعفای خود را، با اثرگذاری از ۳۰ ژوئن ۲۰۲۶، تقدیم کنم. همسرم، آبراهام، به‌تازگی به نوعی بسیار نادر از سرطان استخوان مبتلا شده است. او در هفته‌ها و ماه‌های پیش رو با چالش‌های بزرگی روبه‌رو خواهد بود. در این مقطع، باید از خدمت عمومی کناره‌گیری کنم تا در کنارش باشم و در این نبرد به‌طور کامل از او حمایت کنم.
+آبراهام در تمام یازده سال زندگی مشترکمان تکیه‌گاه من بوده است؛ از مأموریتم در شرق آفریقا در یک عملیات مشترک نیروهای ویژه، تا چندین کارزار سیاسی، و اکنون نیز در دوران خدمتم در این جایگاه، استوار کنارم ایستاده است. قدرت و عشق او مرا در هر چالشی سرپا نگه داشته است. وجدانم اجازه نمی‌دهد از او بخواهم در حالی که من همچنان در این سمت دشوار و وقت‌گیر هستم، این مبارزه را به‌تنهایی پشت سر بگذارد.
+هرچند ما در دفتر مدیر اطلاعات ملی پیشرفت‌های چشمگیری داشته‌ایم — از جمله پیشبرد شفافیتی بی‌سابقه و بازگرداندن یکپارچگی و درستکاری به جامعه اطلاعاتی — اما اذعان دارم که هنوز کارهای مهمی برای انجام دادن باقی مانده است. من کاملاً متعهد هستم که در هفته‌های پیش رو انتقالی روان و کامل را تضمین کنم تا شما و تیم‌تان هیچ اختلالی در رهبری یا روند کار تجربه نکنید.
+از درک شما در این مقطع عمیقاً شخصی و دشوار برای خانواده‌مان سپاسگزارم. تا همیشه از شما و مردم آمریکا به‌خاطر افتخار بزرگی که خدمت به کشورمان در مقام مدیر اطلاعات ملی برایم داشت، سپاسگزار خواهم بود.
+خبر یک ماه و نیم پیش:
+ترامپ قصد داشت گابارد را اخراج کند
+به گزارش وب‌سایت آکسیوس، دونالد ترامپ تا آستانه اخراج تولسی گابارد، مدیر اطلاعات ملی آمریکا، پیش رفته بود، اما مداخله لحظه آخری راجر استون، مشاور قدیمی و نزدیک او، مانع از این اتفاق شد.
+دلیل خشم ترامپ به شهادت اخیر گابارد در کنگره بازمی‌گردد؛ جایی که او برخلاف انتظار، از جنگ با ایران حمایت تمام‌عیار نکرد.
+طبق گفته منابع آگاه، ترامپ از اینکه گابارد در اظهاراتش اعلام کرده بود برنامه هسته‌ای ایران پیش از آغاز جنگ «منهدم» شده بود (موضعی که توجیهات ترامپ برای حمله را تضعیف می‌کرد)، به شدت ناراضی بود.
+همچنین استعفای اعتراضی جو کنت، دستیار گابارد که جنگ را غیرضروری خوانده بود، بر آتش خشم ترامپ افزود.
+در حالی که ترامپ در حال نظرسنجی از مشاورانش برای جایگزینی گابارد بود و وفاداری او را زیر سؤال می‌برد، راجر استون در تماسی تلفنی از او دفاع کرد. یک منبع نزدیک به آکسیوس گفت: «راجر معامله را جوش داد و تولسی را نجات داد.»
+استون نیز بعدا در شبکه اجتماعی ایکس تایید کرد: «خوشبختانه به موقع اقدام کردم.» با این میانجی‌گری، گبرد فعلا در سمت خود ابقا شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75625)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-22 21:46:23
+
+<img src="https://cdn1.telesco.pe/file/oPGOv7746w-1MJPoMVfGT-BhLyRoX1TrV0F3vjEmSSTeZNxJ4xyBXJIqUxduH49iVI_vxhjbm4-yn_shY_3dV4t4sWvoU_PsKY8jTJG2SBk2Dt05J2RT0UCQ3K1xjvpBUqMFxpe0S5sARaJJIbmyTZA5iPuT8uQlivYUJ1w7E0Q6Kfj4pwH1era1HyKeAQRtAYtQDZDVj7zg38rfJXiBWyzIbw3URKc8mMmlxD2xDqTGNIGId3GZ_as2NC2MESICUQhKoTJ567EaMUC2lDefy0AKzuBg1GMxS8e_tgOJznExoJG6uZvC0EfsaiMdv4UFvZeOOO3CdroUfpW2AJ3Xvg.jpg" width="400"><br>
+
+پست
+ترامپ درباره شرکت نکردن در مراسم ازدواج پسرش
+ترجمه ماشین:
+با اینکه بسیار دوست داشتم کنار پسرم، دان جونیور، و جدیدترین عضو خانواده ترامپ، همسر آینده‌اش بتینا باشم، شرایط مربوط به دولت و عشق من به ایالات متحده آمریکا اجازه چنین کاری را به من نمی‌دهد.
+احساس می‌کنم مهم است که در این دوره مهم زمانی، در واشینگتن دی‌سی و در کاخ سفید بمانم.
+به دان و بتینا تبریک می‌گویم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+دیروز:
+ترامپ با اشاره به مشغله‌های شدید خود گفت: «به پسرم گفتم الآن زمان‌بندی خوبی برای من نیست؛ موضوعی به نام ایران و مسائل دیگر را در دست دارم. این از آن مواردی است که اگر در عروسی شرکت کنم، توسط رسانه‌های اخبار جعلی سلاخی می‌شوم و اگر شرکت نکنم هم باز من را می‌کشند!»
+@
+VahidOOnLine
+رسانه‌های امریکایی نوشته‌اند که دونالد ترامپ جونیور، ۴۸ ساله، قرار است در پایان هفته جاری با بتینا اندرسون، مدل و چهره اجتماعی ۳۹ ساله در یک جزیره خصوصی در باهاما ازدواج کند.
+بر اساس گزارش‌ها، این زوج در ابتدا به برگزاری مراسم عروسی در کاخ سفید فکر کرده بودند، اما بعداً تصمیم گرفتند مراسم کوچک‌تری برگزار کنند. دلیل این تغییر، نگرانی از واکنش عمومی به برگزاری یک مراسم پرزرق‌وبرق در زمانی خوانده شده که امریکا با تنش‌های مربوط به ایران روبه‌رو است.
+afintl
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75624)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-22 21:46:23
 
 <img src="https://cdn4.telesco.pe/file/hjqMRu_Mk_9hR1CqSubOYUPs3CQxFdJLG68mwRJGCmamaCTFyXcHVzKPJwVbObsS9-LARXcwPZXQuZobvNxKHU-BCVUYwKKI-w54RFrofnAFFpCHKxc6Ic9I9SdMlrZiHtTutthYYm_iOJPGgQGrqAltlxHZ3s7AX0qq076NYdMcEyvxUgXiI2K-V-6DPwTY0jAGCLxvfyb7sPAvh9UDt_RyGKYof8F4o3Qe8mTl4Q41RJ1Pp_B8Wxq6Y5gYC8QvME5JqwsAz7rpztBqDFOlAyLO42rz0miIdthdlRIN9yFVeMcubdqFjAVzUT6w6g6iB_LnDwW84VApBlONhsKeeA.jpg" width="400"><br>
 
@@ -20,7 +87,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-22 19:56:14
+###### 🔵 Updated at: 2026-05-22 21:46:23
 
 <img src="https://cdn1.telesco.pe/file/bPqcucaJCcrb7MouHJ_jV-Ivialw6lZJjvJTPgqBeVBY6NABXuYmF7FbpoeacdsvnXdOuyli8aX-jHZ0LQETgwHTQBGqj4NllOZb_UN3dfadC1VduapERQKfWjmEwPDfeRNipHpKzaczifv9LB_krC9Gbj2vSaTmVihuC2kCMMohXL2ZG5sAOy8yMJY6_ZTEXV3nun9AvkXSSNyAcxZyU3QNq9vMmMCdwhABSAaTtFYjHIbl_Uz4mtUHgoDFdMCKAW05li_SY9GY7vwRiiBG-GXUlEb9X9pwcZVOyIX5vbAh872CS9QfvgHRRq8l0CNlJjn1g116NE8P1zVLx6d7Iw.jpg" width="400"><br>
 
@@ -35,7 +102,7 @@ MNaseri23595
 
 
 
-###### 🔵 Updated at: 2026-05-22 19:56:14
+###### 🔵 Updated at: 2026-05-22 21:46:23
 
 <img src="https://cdn4.telesco.pe/file/MH4ubX3GKv9bTb0LF3RTMzcuY9RDDuKPU2IWa3gV1Hkkn7VPanR26H8iO3HGaW5MHfbw1WZFxxANMNMt6h33X8CxUQKAixk2mvG_gPo-OaBOafp5CdHCT_PgWYgPdBa0mrLgLgsEhpxdKz27F8f76WFKbCgzW20W128XgcWifZUClJ0eh_mvjR2G1SXtQds7dqovxR0mZ86bEq6Y8TYSOXnhzRVxzD9VilGKiIjfwzsY9tImCqDgbnPveSAXlurOV5k0or6Enq3Shl6pfFjToqpNgRbXAE7wu03Or_XtJnqpDb05Kq9IHJfFRlwB__x6DY4IttsZ004PlFTjZtzn4g.jpg" width="400"><br>
 
@@ -54,7 +121,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-22 19:56:14
+###### 🔵 Updated at: 2026-05-22 21:46:23
 
 <img src="https://cdn1.telesco.pe/file/BXOazYje9DvSXD1-WHNQ_XakGXx8TD3CrJ4H6AtbeZg1gX5IEJgAnqsDgbRSWL6p-ORSBlfea_HtYErQnXAd-_-dDbzqRjp_ZQZO03Rha1pdaUxbcoN1MIzlMs1zHddHbfqv9nvgEe5Ntpa6TELkKzGe5NafezUuEfQrxbLW5iG0ypgiYckI32P4VcvZ5eYeuTVJS9vEhYojDtlyKvBOsnCxvn7ZdmdxEyAQ0F5AECnl9dcQqRyI09qdHgm4NbEyLsNqMnQnrBoC4J-iykJ0RXAu88MeA8hX3nhhl9huMmVs5z4jU2zDZ4aOa3UjiibcMVQol21QlcZ3wm3ZUAMMAA.jpg" width="400"><br>
 
@@ -88,7 +155,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-22 19:56:14
+###### 🔵 Updated at: 2026-05-22 21:46:23
 
 <img src="https://cdn4.telesco.pe/file/ZUmCWnf7Bx_EuYTHYGc0LWI6n68j1BPQSlzQX82MF7Z8nywWas6GBiXHBzfB7DJg8S_OlP5_OybeBCveVaNNEJ7dNOMTXKO5JacdwBjzGdUaxNEKyl1W1VuW1buCKK4M-3ozBkza40x8xoPZQtrhdNRAIQQqTljIHbQtS2VGppxIIEWUutZQkaRVKzEyDTg8WZgdc6Un73jsoP-eoAROmZezAAC4Ld7g2I245_jW9NYMiY3vfGpXqFYVM3pr-BmAQTt-I5WD4mBDUn6xcCjkMDBmhHG0CMjtIsl51v_fYHyn37Xsigz6NAg3VgG4VF8_pNtolLhZ4IRgRPB9a-ZV2A.jpg" width="400"><br>
 
@@ -104,7 +171,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-22 19:56:14
+###### 🔵 Updated at: 2026-05-22 21:46:23
 
 <img src="https://cdn1.telesco.pe/file/WmfZkuCkEkoFPo1zptxQfclIbW-Y3fOlJEF62lcPMRuI6EM1rsjGBFZFfA6wFjMSpoW-drKc-176NTXXyUpF1vGKe6eaubR2PWZSO5_AvyJA081_Q7sC8W2gMAge30eiX7AoP2vEbfRKknJgBbHS75vg1q-ZNkQTRZinl3t2TN9C-ikkRxh6EGc68k7RQ20bqznkZ0RSx7iCJVVSwGEw8UMgt_Qf-OIyUexw1e5ApblrUe-s2HR56DVwaSxkkodmG0GKL2jLd77ElWxqKGzEKM1nBcZoxKPWnxQ2F53977KnshwGq05EhFZDB6loPg_yc02b3AuxRgnTGEPjw7IYBw.jpg" width="400"><br>
 
@@ -123,7 +190,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-22 19:56:14
+###### 🔵 Updated at: 2026-05-22 21:46:23
 
 <img src="https://cdn4.telesco.pe/file/oBR6ceWMbQspuGCDJBTOywc5_2DKLxEY9qwiwNz1NHaHsjFc02tRj-Noc5MII6BqORFD_adunGZyE9jXjTLTWjfglJZgQRF5ixOrkMq_jEjXCZBPJ_B8pZoqkSL7zUS-sXGVUR8Cksbs7sc3NEoQLdz21Ot_zNYzEBNWpTyz6f8786HwRAH97O7M0pmGrpH3WO70UhD83qYsI0EMHH3ex6koO9M7FKvrS8erqfJ_MSmvyXOv7lxfb8Dc9PT9M0JosLrkW1u6oRx--M2bH4KpWcKrw84ilYFFhDZHSve4Xfg_Vx5zsnJLPhLPmXk56ZGd0bzRGQICb5zpdVG4yLhqCA.jpg" width="400"><br>
 
@@ -137,41 +204,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75606)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-22 19:56:14
-
-<img src="https://cdn4.telesco.pe/file/ZW3Lz40IxD-wglobVDDw9di2-e9Eg87ja3SjR0bNXJ8zPeATqQwTOo78GFPdIcG2RdX_xAApWc-QJKKxklwmdAskSiDfEjEyEfc6ezTvrDTPF4UJUbCgOFt3K9RSLiN1m4_hhBt3KicFMVBvZC1MZ6o-LINfvYfHDdOMfn7Kzrkw3ic1kxxmSE0N9DE6QC2FXN3jqnfT5Y-d2le-jy3Awg9I9y1ccIOBeBfGJsDN1sTGvknWAJuYnRPZXvnNfaDZLi0WgQkbJEkt1T0yhOj1zhJLM-QTryzTDqBRXCTEJ02anITs_q_s2y4IuWMfoYYVZXGa-QGh2-hDaRAEi7uLJg.jpg" width="400"><br>
-
-نهاد بین‌المللی ناظر بر وضعیت اینترنت، نت‌بلاکس، صبح جمعه اول خرداد اعلام کرد قطع گسترده اینترنت در ایران وارد هشتاد‌وچهارمین روز خود شده و بیش از هزار و ۹۹۲ ساعت است که دسترسی کاربران در ایران به شبکه‌های بین‌المللی همچنان قطع است.
-این نهاد ناظر بر اینترنت نوشت با ادامه این وضعیت، شکاف‌های اجتماعی و اقتصادی عمیق‌تر می‌شود و هر ساعت از قطع اینترنت، ارتباط با جهان خارج را بیش از پیش به جایگاه، همراهی با حکومت و برخورداری از امتیاز وابسته می‌کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75605)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-22 19:56:14
-
-<img src="https://cdn4.telesco.pe/file/CB5GROuhbzT6OWO6Wn9KGW4et0ipujOKw2YuRp9AOg8pWMWWMkkE_qkRe0J-bSyDcfpPTNesOjb0yTtmjgS_GfmTbeuSnsgMMXxVUOkqMHoygrGLODEqjk5ogs-7VeCEKYPdBQXOd9afjuvKDtxyDtU7G71W1kqFXsK-2j9rplRkxtjC8h50XaFqQ94L7pSZeJSM3TsJje3wR5Kl4XDfGGCHv3p8MO5AyYzCpuFiGL4IWhtfninWPNj_Gi9VvmXSNUp0RzJNgTHTfgb8yGMJ1KCHH76MFWoiFn-AIV8yw7PnzdcRx-z0sDu9NW9wFxvRXe6wEiyvpWfWMFS6sZFTrw.jpg" width="400"><br>
-
-دیوان عالی کشور احکام اعدام محمدرضا مجیدی‌اصل و همسرش بیتا همتی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، را نقض کرد.
-هرانا خبر داد که پرونده این دو متهم برای رسیدگی مجدد به شعبه هم‌عرض ارجاع شده است.
-این دو پیش‌تر به همراه بهروز زمانی‌نژاد و کوروش زمانی‌نژاد با حکم صادرشده از سوی قاضی ایمان افشاری، رئیس شعبه ۲۶ دادگاه انقلاب تهران، از بابت اتهام «اقدام عملیاتی برای دولت متخاصم ایالات متحده و گروه‌های متخاصم» به اعدام محکوم شده بودند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75604)
 
 ---
 
