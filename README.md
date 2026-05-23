@@ -3,7 +3,31 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
+
+<img src="https://cdn4.telesco.pe/file/DOl2XjDTv6dYBldMxj7ETajcN8PRlGQclLBUitNwVHkouQhF3sLCLdMRQu0Suo1_knDdmzg2wGtqozBp4TRLxXfTS6ubbcNdDKbxaQPYTQ1Ll5WGrjBGa_qv4kiSHbZ6otzE4IUI7uNCsLKfwkKBO6R4paYmkfWCSb28C5-1mAGsPOjLryZ4tAoz_rnUgO_Z8hc0czSmc96wseIp535FwqRO3zvwZqVypVrtJVVoZ1BcjrKB3kcwOE_ExLPE9_c3NJebjt_IQx74_azhdMXxD_nYSUur67MJ18DdAx-3Q59yZa8-Ino51Km1ckJEmKlBjWuX6MieK3v7KdZAzzxHkQ.jpg" width="400"><br>
+
+شبکه ۱۳ اسرائیل در گزارشی از روند گفت‌وگوهای ایران و آمریکا گفت مقام‌های اسرائیلی معتقدند ایالات متحده و ایران به دستیابی به توافق احتمالی نزدیک‌تر شده‌اند و گزارش‌های اخیر و اطلاعاتی که دریافت می‌شود، «در اورشلیم به‌طور فزاینده‌ای معتبر تلقی می‌شود».
+بر اساس گزارش این شبکه، مقام‌های ارشد اسرائیلی گفته‌اند پیشرفت در مذاکرات برای بخشی از نهاد امنیتی اسرائیل «بسیار ناامیدکننده» است، به‌ویژه در شرایطی که به نظر می‌رسد تلاش واشینگتن برای رسیدن به توافق در حال تشدید شدن است.
+این مقام‌ها همچنین معتقدند فشار برخی مشاوران رئیس‌جمهور ترامپ در روزهای اخیر افزایش یافته و انتظار می‌رود بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در پی این تحولات، نشست‌هایی مشورتی با وزیران ارشد و مقام‌های امنیتی برگزار کند.
+نهادها و مقامات رسمی اسرائیل هنوز این گزارش را رد یا تأیید نکرده‌اند.
+ارزیابی اسرائیل در دو هفتهٔ گذشته این بود که ترامپ خواهان توافق است، اما در نهایت به دلیل اختلاف بر سر مسائل کلیدی، موفق به دستیابی به آن نخواهد شد. با این حال، مقام‌های اسرائیلی اکنون معتقدند روند کنونی ظاهراً برخلاف چیزی است که اسرائیل در هفته‌های اخیر برای آن تلاش کرده بود.
+این گزارش همچنین می‌گوید چارچوبی که دربارهٔ آن گفت‌وگو می‌شود، شامل یک توافق موقت ۶۰ روزه خواهد بود که ممکن است بعداً در حالی که مذاکرات درباره توافقی گسترده‌تر ادامه دارد، تمدید شود.
+روز شنبه مقامات ایران و آمریکا و همچنین پاکستان که نقش میانجی را بین دو طرف بر عهده دارد، اعلام کردند که در مذاکرات برای پایان دادن به جنگ پیشرفت حاصل شده است.
+روز شنبه، روزنامه اسرائیل هیوم نیز در گزارشی ادعا کرد پیش‌نویس توافقی که روی میز قرار دارد، شامل تعهد اولیه ایران به خودداری از توسعه سلاح هسته‌ای و تعلیق بلندمدت غنی‌سازی اورانیوم است و سایر مسائل، از جمله سرنوشت ذخایر کنونی اورانیوم غنی‌شده ایران، در مذاکرات بعدی در دورهٔ آتش‌بس بررسی خواهد شد.
+این روزنامه همچنین به‌نقل از منابع آگاه که نام‌شان را نیاورده، ادعا کرد «رهبری سیاسی ایران پیش‌تر با تحویل اورانیوم غنی‌شده موافقت کرده بود، اما فرماندهان سپاه پاسداران با این اقدام مخالفت کردند و تصمیم‌گیری دربارهٔ این موضوع اکنون به تأیید رهبر جمهوری اسلامی بستگی دارد».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75658)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn1.telesco.pe/file/IGqjz8RKWounAZMYKlKK93Gj_jP31597EzqhNDbPWc2BSQngrXQliyCbfO_UKqR5yAQiVfvpohfZCrPV0APFQL71w0V3QY8pJHaZ3CiV7JjdDw1CzMSgZ-P7BxvnbWOv-ZWt34e0lnIJvqTtmH7W3QJiKQK0Xete3SIbq7JBPC-sx5gig50UjNzNgRaWYUmkkwa_THnVO9Mvih04mVzStxgr_OWcv27CKwNTbZoCtcCqbo8FVcEgKQ45nvdUHmDGSxvAaO-jNMFeJKwLleHMboUp4ayn3hMgGStGgzp7I3FLDaMxiIz1qoixf_ox9tx7lSFmBc_jyXgp-iM1rfI5rg.jpg" width="400"><br>
 
@@ -22,7 +46,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn1.telesco.pe/file/kDrnWO5WXSGxMJ4J-oXMyXdt5XGrAMNNFCVge7bYU6xwYaTv2fTbdqt2EgeD79qFM5mh_T3_ZHwudqDwpb5IB51BAeFg_37BYhHjGRrtBP7taLfUiVtbOVxAYFKO3-mwx0c2T63pgXd9ltGMndaQNevLfdl2O_ckSP7mBnMMzO2H2EazAiP_etcKtIYl2fzVhY0eY1waQYfhHZ5rPwPOlJvW60Xoztj5J11ovdIZs1ABbrt8d1ANxSrvTDxvLJezNlddm65JzQffMVre7CWNlz6V3onUEbUeDFxRRbTQue_C0HuyB24OgbMnKpsRerVjsamiToBiyew3OHQ_3krtSQ.jpg" width="400"><br>
 
@@ -53,7 +77,7 @@ CBSNews
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn1.telesco.pe/file/cs_JOYsND-XFbsHf0jzhrl56DkiQ8BfdWUjuE8lDY4CEvyDWrRpCV1KcR46KYdqFGQHlYUUxh5d75z_vJhHVZz1-TEIoB8h2BRRxoV3U_pOLkZVYBZnCLv7oPe_FbJIYtu7PQybqT3XUy7uwe3HwCRVCWtbw3-gDztPBUtzIPgDLvIQ6510D-OYG-q4eJ7gyTzlKoqK5TGxet1k3bc7CNbOHk18OfPaQgWw9x5Y-Q8jQTMx_MaB53pKM2y8HMv03gPiNoHFlc3_2DXfNd6YnLKSpoRADbHxIKBG8be1VvJAub4PNO6dUmYLNgAfBPfUJYGHMZI5_lNg3k-fuVdph3Q.jpg" width="400"><br>
 
@@ -70,7 +94,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn1.telesco.pe/file/Bli7-_wiNUCASYqgcNsq4tLWhLDGeP1g9ke-OydpX895Wd6cDUdel5ga9xG7CIZgZBHWlLk8U8wgXb05zA7aHo18MS5_V4oQEeS2mfum6FSpMyR2mMq7I4Em9jKykrjsdpDjNLobkyfOVnJlmLF-FjHOh5p5cEvL-CmQ_jKHde4vwOFESm0z2XIn6R7LrpRULbDVDOi81_Yo9voWN8d9D6PiO0Ufyl61HPalv_OPRT31p86qiAtJRA_qFCKX-YQSAZ4yqsHYjkz4_k9dgbGaZlOLAsUoyGNUkyyeAK_CLh9-IBKyup2gxwhe6bXVez_QU9yOdmJYtL92twrxdiumbg.jpg" width="400"><br>
 
@@ -93,7 +117,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn4.telesco.pe/file/mtzbRP19A_FHOODZost9I2UUc4FG2lMYi2IyXcURVKqbMqcsj2PbhvTOnQSsqq5WVpU-22_ldUL0kQeeaVhBeTMR5FQhvFpDJQ95ALsDRku50LAMuDsVEKvTbzNYhIpSfsm7ekZYJyGM79PjoXOTUVmFHg_ZujEZd1Eehjgf69z-F3S1c1N3_0S7f1ylZ5hhvchnkE-6CViTccFf8DLDe3yegYXFB5HEH-b-vcPC0xapgKukvsHuqIhOqAtvTkgvvbIFdnGkUob9h45NpS_UG2qhZuZyhw-XZO73KuidWtZYCLN57j55A2d35Kj5Z50mgUMJgb06-6ju5ltmEarVsQ.jpg" width="400"><br>
 
@@ -111,7 +135,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn4.telesco.pe/file/uLPAzDqLubYNwmXo7nGFj3KRcMIPZeWTYrlYrrHLRZMl4i4egGMFOleaEtciZWYZGN4f-dWJsxwfoVYyVV7v7KmIMHC1MWqueh6V9sHfOLNbAd6jBSHwgFwoDYcX5IhPwuyYCN5K3_DvPiWEsZwgE5zgLd6ueuA2BGcDuNZmhivLrtYJjJQAdSycqL_rp06rYUsdRFeppFscDB6Nldp3PR4cwW_Z22n1IHSyREG0wK-OmKhekUqLwP4vLly5yIWfdrG3JprUYk5BbIigTs6IRicDSThTEjCdKiQeoK-AKygdWNwGs8qVGlJPpm9m4Lzo5C08q4QVNc-VpwGOhhh5oQ.jpg" width="400"><br>
 
@@ -129,7 +153,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 
 
@@ -150,7 +174,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn1.telesco.pe/file/N8dpkFfmNcK-xGJK21PzoBjwq7gXtSN-xEQBwSxow0AjJsG03MtHboyu56B1puFKfnk2g1G6N_diutvxBRqZY8cphsKDbNc3dV6dRpIhAHKgUes_cWFms3kvXr071v9hZ1wDNj7pfnDJKXXrVyiEl_Qn1dQ15gpdUoRGTS6nyTE_u8Rz2BzHPcHJIFya3NuB8MPed9r3JAiGGLBu51D-R5JyCLRXMZF2mkT9t8gmoAEdkwD_ooaIwfKxC2MmGIxcV8mR3VSHLpaFynPmDfeLI6VqLw-zpkJIBk4l1A4m0178-au9Pi0Z4qxf_jQI11nh25M7Ko-rHARn_xFUYTgTfA.jpg" width="400"><br>
 
@@ -179,7 +203,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn1.telesco.pe/file/GsUs1R-w-QMKxCLEmAhxRDmx7VwWz74xswyNcriZtPeUvQKjLscUn7MOktKB1B0PEi777od0p9tLsWEjh1BYnDi6XbHl8QGKcFunMmgJhNYXBtg2pQjHmP-kgumMMaE4RUObubfbpnOcKULmeCEQn9wAj3QqrtPMgzevYI2m-c2vlcW9o8I8KfWRyoXt-8gpwZbx-oUfP8YXCb4PqpogMBPwD295uzPUjevQdvd3ohYgge_hI207w7boze8DmnoGpjfYktl_kNUIokyAu4sCIRqxrJgB3KGbNrzyS-P4S0yzCMr-P418AKXY515vC5zApV-Cl7WM7NokwcIIWaTqEg.jpg" width="400"><br>
 
@@ -196,7 +220,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn1.telesco.pe/file/MSP6LUub5KTeHdmmwBSgMHYlIEOj6gIPrLJxiWqQq_pq6h6trwUWuV5kdYlkfbD-zpu4_yxiOKIJaECqD29PEzUkuRARDYUpb6TSS0tCA8SV5oscrCTUZ5G38anDhs7qOSa4HC3Z7wKjWz1nwYoJWu4MsydVUZfGxA383p71CKogXsy4zK3TI0MGk6M9kUm7aBm15zKxEarTqm0vc7yrEynJarSf67na7N-6Hc_6iKFw95QBfKd08G4gPPNFq-IWdIXop7Dxziv8LgsrLUlgzoa_5y15p2A7dpBeJ8vCaY9T_7li1GOVGDNYX77K7O_IxpJ9hyVa4g741S9Y_AidIA.jpg" width="400"><br>
 
@@ -215,7 +239,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 
 
@@ -238,7 +262,7 @@ EricLDaugh
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn4.telesco.pe/file/bCJ-PqQLA6q4aaZ7UoWvk_qQ_hp8NRaBc9LQo5sY0TyowHyL2Ofa0TQlX8Y1LrrlcK0lC9-jtistAoqSkgms_Oifm-V6DD3qdbG3UWzmWc-Yi1V6a8I3YncREtbZ5tfQDYuf4nrb6eqekgoAZGZ0YE0pRNY6H3Kvg9bLxbEoftkHY_aSXTRLZcClXj3TvyqmSvJDMIYUrom_i7qxWI9-wXy4FwIkN2FSfNWQVjodnGmJ-TlpJPJJz1a244vHq3PSplr8qmyTR7ifPaI2WuQqPvft8WnXy6hRBwdHPpowMNI7DkGyav4K5vzYRtIdDQ6H_nUemolAkCDIE_-tLMJ4UA.jpg" width="400"><br>
 
@@ -254,7 +278,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn4.telesco.pe/file/FKiFytLd6R9Wt5kCsruuKvXULqPc0bGqtzFX25xVORsBvcn7saTJz-28U0SOtG0RsBuB0BFPmRbxnnTbd67NzDC0dwZ1AuU7URfBwQXTzysAYbb8F4pQcPQ0bxiufc0ELnTOMtYBFADPdDhcpeXc95bvk8QPdnWZSO0uICpjKdOyR1lnBwNXeCRL82MjJMa1WXB05Q32bvOu1ooPqA85tA1cBMZeIG7FTfRWz78JghPxJAFrjPvBB_Um_3MvsUKCzKolIKXkPTcp1I5oGAGow4spqXfSOTPeuVtNaGKhlYbSlMKvEzOmHl0_DRhrfGiOojHf_swe1wZ6v3HV_pvNNg.jpg" width="400"><br>
 
@@ -275,7 +299,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-23 20:13:47
+###### 🔵 Updated at: 2026-05-23 21:47:40
 
 <img src="https://cdn1.telesco.pe/file/Mp5M6CPwIJapOOFPahUSY4VbEoJKJ29gelqng_srbTa2RhYSpCli5u2R6IV1wIolbKfhSjkoM18YQgybFiuPmBW1UC1kA2287mTmNbwWA2ownegxkBImB7KbMrGwcMcqdPbyUjaKQMH53kLSLPLgu2734Pd1RjrDIX40tpmARaLpw7VT3okVdHMpa9MbNb69d5LK5_mlnB8_uiDcUX1THsRNUVbsxEXXPyPkQ-8Rqm8NERONh20mqzpsUYdIipVNkIwygQOolSNqYQgfogLfosx88OY-CMF5pgJvGkxmTG-yf5N07YkG5S9OOzpBalgY0EPyAdXYcSaRrn9yK9uuAg.jpg" width="400"><br>
 
