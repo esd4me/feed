@@ -3,7 +3,51 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
+
+<img src="https://cdn4.telesco.pe/file/V1CpDbqkvXpcgJZAXThI1JRRR4t-TSjiFwMUDt2tlehw_I3Qiab_q1MM1kTSeCEAcQod8UOjFVg-Y91Su0ZqIEtezkIyQ9pISBEANEK__pUjSOTyUBrku81LMt1Y-Rd4ysXNsmTTgPb9O9r0heEjzTXtEsWtlX4APdvh2CQXP3PnSPR4Hd4Wwg0D-jICiDUaE7q7WoS4WBYfJczINBZkIouFzQzk7Vjt-Q4fu2WmUj3f9OORQzLMS1R7a_ReCvB_CaMVQZH6DXyaYmcZw_ayrkIZgxrwz6P8hYx7FADuNNlJdldMZ11cDPSVnU6VutidbxGXiPihnrlvUh3HkXK23A.jpg" width="400"><br>
+
+روزنامه «نیویورک‌پست» به نقل از منابع آگاه افشا کرد که ایوانکا ترامپ، دختر ۴۴ ساله دونالد ترامپ، هدف یک طرح ترور پیچیده از سوی یک تروریست تحت آموزش سپاه پاسداران انقلاب اسلامی قرار گرفته که با انگیزه انتقام‌جویی از کشته شدن قاسم سلیمانی طراحی شده بود.
+بر اساس این گزارش، متهم که یک تبعه عراقی ۳۲ ساله به نام «محمد باقر سعد داوود الساعدی» است و به تازگی دستگیر شده، عهد کرده بود برای «به آتش کشیدن خانه ترامپ»، دختر رئیس‌جمهوری آمریکا را به قتل برساند.
+منابع اطلاعاتی اعلام کرده‌اند که الساعدی حتی نقشه و جزئیات معماری عمارت ۲۴ میلیون دلاری ایوانکا ترامپ و همسرش جارد کوشنر در فلوریدا را در اختیار داشته و پیش از این با انتشار تصویری از موقعیت این خانه در شبکه اجتماعی اکس (توییتر سابق)، به زبان عربی تهدید کرده بود که «نه کاخ‌ها و نه سرویس مخفی آمریکا» نمی‌توانند از آن‌ها محافظت کنند و انتقام تنها مسئله زمان است.
+وزارت دادگستری ایالات متحده اعلام کرده است که الساعدی از مهره‌های بلندپایه در حلقه‌های تروریستی وابسته به ایران و کتائب حزب‌الله عراق به شمار می‌رود که در تاریخ ۱۵ مه در ترکیه بازداشت و به آمریکا مسترد شد. او در ایالات متحده با اتهاماتی سنگین پیرامون هدایت و اجرای ۱۸ حمله و تلاش برای ترور در سراسر اروپا و آمریکا مواجه است؛ پرونده‌ای که شامل بمب‌گذاری در یک بانک در آمستردام، حمله با چاقو به دو شهروند یهودی در لندن، تیراندازی به ساختمان کنسولگری آمریکا در تورنتو و آتش‌سوزی عمدی در معابد یهودیان در بلژیک و هلند می‌شود.
+این متهم که به دلیل وابستگی به قاسم سلیمانی او را مانند پدر خود می‌دانست، پس از کشته شدن سلیمانی در حمله پهپادی شش سال پیش آمریکا در بغداد، تحت آموزش‌های نظامی و اطلاعاتی ویژه سپاه پاسداران در تهران قرار گرفت و ارتباط نزدیکی نیز با جانشین او، سردار اسماعیل قاانی، برای تامین مالی شبکه‌های تروریستی خود داشته است.
+اطلاعات فاش‌شده نشان می‌دهد الساعدی با وجود نقش برجسته‌اش در شبکه‌های تروریستی، حضور بسیار فعالی در شبکه‌های اجتماعی نظیر «اسنپ‌چت» و «اکس» داشته و تصاویری از رایزنی‌های نظامی خود با قاسم سلیمانی را نیز به اشتراک گذاشته بود.
+او با تاسیس یک آژانس مسافرتی مذهبی و با سوءاستفاده از یک «گذرنامه خدمت عراقی» که سفر بدون تشریفات امنیتی و اخذ آسان ویزا را برای او ممکن می‌ساخت، به راحتی به کشورهای مختلف سفر کرده و با گروه‌های تروریستی ارتباط می‌گرفت.
+الیزابت تسورکوف، پژوهشگر انستیتو «نیولینز» که خود ۹۰۳ روز در اسارت کتائب حزب‌الله بود، تایید کرده که روابط الساعدی با سلیمانی و قاانی فرصت بزرگی برای گروه‌های شبه‌نظامی عراقی ایجاد کرده بود. الساعدی که در زمان دستگیری در ترکیه در حال سفر به روسیه بود، هم‌اکنون در سلول انفرادی بازداشتگاه متروپولیتن بروکلین، در کنار دیگر زندانیان سرشناس نگهداری می‌شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75631)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-23 05:01:09
+
+<img src="https://cdn4.telesco.pe/file/XJAfFWdhyMkpmJWy_YLwS1WwIzYeRm-5FWb7vW45wq4k2R1lAlaKZFtdZVBEhonF_Riic1At7KjnvPAOiV9O4xjVKsukSqcV0iIdRsBhhtosvMi4uiaqQToptZVHybsiC9P_GyXzEed8QnEf1G9ECBs_exX-cGcpA-FGXGI_qQAulDcnHim9IIzHuaPKRvnKoFQ0jm-8yWysb47mT-5XoP4Fa_kNE5aAkSlDCBiPPGpEZMSyUEFV1Md5oy6AjrQ3jSeBSXjc-yTFOqxoZArZrEiTkb84vrWj64WR6co3SzVO1029AcHwDMxlD5eUQtanyXtY2-UGkfvd-14yTJFarw.jpg" width="400"><br>
+
+سی‌بی‌اس گزارش داد که آمریکا در حالی خود را برای دور تازه‌ای از حملات نظامی علیه ایران آماده می‌کند که تلاش‌های دیپلماتیک همچنان ادامه دارد.
+به گزارش سی‌بی‌اس نیوز، منابعی که مستقیم در جریان برنامه‌ریزی‌ها قرار دارند می‌گویند که دولت ترامپ روز جمعه در حال آماده‌سازی برای حملات تازه بود هرچند تا عصر جمعه تصمیم نهایی گرفته نشد.
+آقای ترامپ در پیامی در شبکه‌های اجتماعی اعلام کرد که «مسائل مربوط به دولت» مانع از حضور او در مراسم ازدواج پسرش، دونالد ترامپ جونیور در روز شنبه خواهد شد.
+او قرار بود تعطیلات آخر هفته را در مجموعه گلف خود در ایالت نیوجرسی بگذراند، اما اکنون به کاخ سفید بازمی‌گردد.
+چند منبع نیز گفته‌اند که برخی اعضای ارتش و جامعه اطلاعاتی آمریکا برنامه‌های تعطیلات خود را لغو کرده‌اند؛ اقدامی که در انتظار احتمال حملات تازه انجام شده است.
+به گفته این منابع، مقام‌های دفاعی و اطلاعاتی آمریکا در حال به‌روزرسانی فهرست نیروهای آماده‌باش در پایگاه‌های خارج از کشور هستند؛ همزمان با خروج بخشی از نیروهای مستقر در خاورمیانه، در چارچوب تلاش برای کاهش حضور نظامی آمریکا در منطقه و نگرانی از واکنش احتمالی ایران.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75630)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn1.telesco.pe/file/di49PUZn6TgsNQCFSsPnheNgxruGHOG267c0_lRRIBjre5Cxvm71pZoR0D0iBuDw17FyR9uM24APUtOPArpqKvNxOBfg-Xn06PMw0xXq-U31e5WD8Kpmi06NVscq6xb1VOKCr0aYtzt3C2vj7NNnl97fXp7tf7Vueh3axT_yCcw8bmNRp19gEMlS3cmp727-coeJKZsSG68ywO_TYIvn4yT6ojobS9sIpnT6zoqoTHy6HphVgE7sjQYuwfZHXlbjHfiwyy-nAvaJhZxFpQufoW2iIrJMMSpmqgRGRaVOjkweXAj-Qdizurw6AQNe8cXFiZf_L7opRzTR2oyYYHFDkQ.jpg" width="400"><br>
 
@@ -24,7 +68,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn4.telesco.pe/file/Bfj205fK1JtK0_PBNgVVT8euEfWJGD2BLsKGQ2GVD4AoCfCwgIxboftqH2SQxoQeCvm-3cfZqxusxv0vXGYiAhqFQwxu_ooazSiTuRzVrTIcqQPvoonRBqZwpHjNkdVRyKWpHycj39D_9Znl9nhK5sfIB-pdKa6lealUnOBUYQB9ubjIrFpAPD6dAMBmH37SZWVwtd8tT0_mgwSEecVpqHf8eeVohoduOMrqCOcoESKpNI-DAfK7T9ebzN4NgQkOkt1Zr_dNRfxmolu116HUnF2O6QFiumW0P0HoKc9dL9oU16D3DmBiymwoyVvE1kXfArjkwqxQb6cuAO0Zw8hAkw.jpg" width="400"><br>
 
@@ -40,7 +84,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn4.telesco.pe/file/VY_TRQU1ApKr0NjOjKkJb54HykqAYj6xk1alTiXR15BeYX8PUD7VxlghVsJa3yQly5pDIzNN6jiDTgK90TaCH3DlDzqeQiE6Y1yMULWmkypFdaH9HHBml9xYawG9eEUBqrAhVc8yeFUmOcm8DDD6WecepFqrQme2KNxHQ5DIai8FKDWPokCWbDDyPyyRah2MmDIwqkuUDMoSnxIz6SJbxbGe6mgtcLoWT0jMfIFSvdxauHadcWvTHAwq8EIm4tCEj1uwyxXzegmxFJjAepAjusEeAkqPGeUHYu07MksDTx46S7kKCP2mV2bgEzLlN-YleHYlWMm-Jo3frgH33U1nqg.jpg" width="400"><br>
 
@@ -66,7 +110,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn4.telesco.pe/file/IpjoLtVwB9bCR-7ErgujYzMT9W8A_Sb1e7XtojBKcNieV6GcTJ2gELo1RRDghqp0BTErAdgBAOVAkRCUV6XoC_WCUV1AdezJ5T93Pe5On01WpQgBkHXIuyMmQHG6IlRbFxVNvtv37EkA43pAcnkqBGdwgAff5YeDInXp78yc3cYLDdDer393pnICM5u3j60rvjHQsEFOVtuby7Py4C2pdiedCX9AMdl_BPtimrLkz93UE14Iq5ebUCLfPFfJdAxlbuX8u0IiLy2Petzoh4OiCOuOAXlvUXz3arTPe6mpN0noJBNuUDMXxOCS4lzn2UbxY0AQT44-ljv3HDDfizED4Q.jpg" width="400"><br>
 
@@ -82,7 +126,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn1.telesco.pe/file/GPkthl53O78baM2lAwpZDcOPxfG9szhDA5s0-WiVGomGq4rcMae9tzz3IFkl8_NfWWuywWF7MqDf9BB-c0NfJqEegrZGHt4t-sAj4TXXJFt6iW5-jK4Z3Fvp8llROivAhqOynWtwG90zlN6y-lXNDS_N4xuTSyvQIbRk0YZZfmH3C8Rg4UwoQzdDYPZPwSVCV2y9_bN0aZI5-jNkQXZ44tGC5bNollM6DVe9cnlW-k54OzGF1oGsMkPScsVGrVL5gW-IfL-l1fbnzAEvrktSDe36-_1gNcS4hDfeP_2_P0sQ8P5fQQBAte-QVPAn_PQhaAI-Vpc5c0KXJDxmOpaXJA.jpg" width="400"><br>
 
@@ -124,7 +168,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn1.telesco.pe/file/oPGOv7746w-1MJPoMVfGT-BhLyRoX1TrV0F3vjEmSSTeZNxJ4xyBXJIqUxduH49iVI_vxhjbm4-yn_shY_3dV4t4sWvoU_PsKY8jTJG2SBk2Dt05J2RT0UCQ3K1xjvpBUqMFxpe0S5sARaJJIbmyTZA5iPuT8uQlivYUJ1w7E0Q6Kfj4pwH1era1HyKeAQRtAYtQDZDVj7zg38rfJXiBWyzIbw3URKc8mMmlxD2xDqTGNIGId3GZ_as2NC2MESICUQhKoTJ567EaMUC2lDefy0AKzuBg1GMxS8e_tgOJznExoJG6uZvC0EfsaiMdv4UFvZeOOO3CdroUfpW2AJ3Xvg.jpg" width="400"><br>
 
@@ -152,7 +196,7 @@ afintl
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn4.telesco.pe/file/hjqMRu_Mk_9hR1CqSubOYUPs3CQxFdJLG68mwRJGCmamaCTFyXcHVzKPJwVbObsS9-LARXcwPZXQuZobvNxKHU-BCVUYwKKI-w54RFrofnAFFpCHKxc6Ic9I9SdMlrZiHtTutthYYm_iOJPGgQGrqAltlxHZ3s7AX0qq076NYdMcEyvxUgXiI2K-V-6DPwTY0jAGCLxvfyb7sPAvh9UDt_RyGKYof8F4o3Qe8mTl4Q41RJ1Pp_B8Wxq6Y5gYC8QvME5JqwsAz7rpztBqDFOlAyLO42rz0miIdthdlRIN9yFVeMcubdqFjAVzUT6w6g6iB_LnDwW84VApBlONhsKeeA.jpg" width="400"><br>
 
@@ -169,7 +213,7 @@ afintl
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn1.telesco.pe/file/bPqcucaJCcrb7MouHJ_jV-Ivialw6lZJjvJTPgqBeVBY6NABXuYmF7FbpoeacdsvnXdOuyli8aX-jHZ0LQETgwHTQBGqj4NllOZb_UN3dfadC1VduapERQKfWjmEwPDfeRNipHpKzaczifv9LB_krC9Gbj2vSaTmVihuC2kCMMohXL2ZG5sAOy8yMJY6_ZTEXV3nun9AvkXSSNyAcxZyU3QNq9vMmMCdwhABSAaTtFYjHIbl_Uz4mtUHgoDFdMCKAW05li_SY9GY7vwRiiBG-GXUlEb9X9pwcZVOyIX5vbAh872CS9QfvgHRRq8l0CNlJjn1g116NE8P1zVLx6d7Iw.jpg" width="400"><br>
 
@@ -184,7 +228,7 @@ MNaseri23595
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn4.telesco.pe/file/MH4ubX3GKv9bTb0LF3RTMzcuY9RDDuKPU2IWa3gV1Hkkn7VPanR26H8iO3HGaW5MHfbw1WZFxxANMNMt6h33X8CxUQKAixk2mvG_gPo-OaBOafp5CdHCT_PgWYgPdBa0mrLgLgsEhpxdKz27F8f76WFKbCgzW20W128XgcWifZUClJ0eh_mvjR2G1SXtQds7dqovxR0mZ86bEq6Y8TYSOXnhzRVxzD9VilGKiIjfwzsY9tImCqDgbnPveSAXlurOV5k0or6Enq3Shl6pfFjToqpNgRbXAE7wu03Or_XtJnqpDb05Kq9IHJfFRlwB__x6DY4IttsZ004PlFTjZtzn4g.jpg" width="400"><br>
 
@@ -203,7 +247,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn1.telesco.pe/file/BXOazYje9DvSXD1-WHNQ_XakGXx8TD3CrJ4H6AtbeZg1gX5IEJgAnqsDgbRSWL6p-ORSBlfea_HtYErQnXAd-_-dDbzqRjp_ZQZO03Rha1pdaUxbcoN1MIzlMs1zHddHbfqv9nvgEe5Ntpa6TELkKzGe5NafezUuEfQrxbLW5iG0ypgiYckI32P4VcvZ5eYeuTVJS9vEhYojDtlyKvBOsnCxvn7ZdmdxEyAQ0F5AECnl9dcQqRyI09qdHgm4NbEyLsNqMnQnrBoC4J-iykJ0RXAu88MeA8hX3nhhl9huMmVs5z4jU2zDZ4aOa3UjiibcMVQol21QlcZ3wm3ZUAMMAA.jpg" width="400"><br>
 
@@ -237,7 +281,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 03:15:18
+###### 🔵 Updated at: 2026-05-23 05:01:09
 
 <img src="https://cdn4.telesco.pe/file/ZUmCWnf7Bx_EuYTHYGc0LWI6n68j1BPQSlzQX82MF7Z8nywWas6GBiXHBzfB7DJg8S_OlP5_OybeBCveVaNNEJ7dNOMTXKO5JacdwBjzGdUaxNEKyl1W1VuW1buCKK4M-3ozBkza40x8xoPZQtrhdNRAIQQqTljIHbQtS2VGppxIIEWUutZQkaRVKzEyDTg8WZgdc6Un73jsoP-eoAROmZezAAC4Ld7g2I245_jW9NYMiY3vfGpXqFYVM3pr-BmAQTt-I5WD4mBDUn6xcCjkMDBmhHG0CMjtIsl51v_fYHyn37Xsigz6NAg3VgG4VF8_pNtolLhZ4IRgRPB9a-ZV2A.jpg" width="400"><br>
 
@@ -248,25 +292,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75611)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-23 03:15:18
-
-<img src="https://cdn1.telesco.pe/file/WmfZkuCkEkoFPo1zptxQfclIbW-Y3fOlJEF62lcPMRuI6EM1rsjGBFZFfA6wFjMSpoW-drKc-176NTXXyUpF1vGKe6eaubR2PWZSO5_AvyJA081_Q7sC8W2gMAge30eiX7AoP2vEbfRKknJgBbHS75vg1q-ZNkQTRZinl3t2TN9C-ikkRxh6EGc68k7RQ20bqznkZ0RSx7iCJVVSwGEw8UMgt_Qf-OIyUexw1e5ApblrUe-s2HR56DVwaSxkkodmG0GKL2jLd77ElWxqKGzEKM1nBcZoxKPWnxQ2F53977KnshwGq05EhFZDB6loPg_yc02b3AuxRgnTGEPjw7IYBw.jpg" width="400"><br>
-
-فیلم مستند «تمرین‌هایی برای یک انقلاب»، ساخته پگاه آهنگرانی جایزه «چشم طلایی» هفتاد و نهمین جشنواره فیلم کن را از آن خود کرد.
-«لوئی دور» یا چشم طلایی، مهم‌ترین جایزه بخش مستند جشنواره فیلم کن است.
-پگاه آهنگرانی جایزه‌اش را به مردم ایران تقدیم کرد و گفت: «(مردم ایران) با وجود تمام سرکوب‌هایی که در طول این سال‌ها تحمل کرده‌اند، هرگز از تلاش برای حقوقشان، آزادی‌شان و آرزوهایشان دست نکشیده‌‌اند و مطمئنم که آنها هرگز تسلیم نخواهند شد. مطمئنم و یک آرزو دارم که می‌خواهم اینجا بگویم: این‌که روزی دختر کوچکم لی‌لی و همه بچه‌های ایران در آینده‌ای نزدیک در ایرانی آزاد و دموکراتیک زندگی کنند.»
-به گفته خانم آهنگرانی او با استفاده از آرشیوهای شخصی، ویدئوهای خانگی، تصاویر اعتراضات خیابانی، روزنامه‌ها و صداهای ضبط‌ شده، بیش از ۴۰ سال از تاریخ ایران را بازخوانی ‌کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75607)
 
 ---
 
