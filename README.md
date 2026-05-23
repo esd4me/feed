@@ -3,14 +3,121 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-23 18:12:48
+###### 🔵 Updated at: 2026-05-23 19:17:32
 
-<img src="https://cdn4.telesco.pe/file/SutuxizDDw6AaaqL6MfVj1YJ3wXLHTf9pR6dtd3fSxH-dc4Fk9QayLUvp2kXTqPxNsR53szh_m88QGAEP6GDu7zMkAG6aZbuyv3x-Y1sjozcjAOXCHXhWLQ-K4tUobmY9clfafzh6d90CHEiTyDqMjpoGYodOJrFBgE0be5I1OXbZFmI8B1n873ava6mWjgCMAUpMbNyR2qcJL1iy1vOrbhuksCTDQJ5ohqkFIpxfgixvOlFuFjA4kNT6ZxAi6EvPNeiOzd3htdDsG19o_BFzr5J0TWCK1Syiu2QFUdh7UFe5i0WXRgVFeTz6u_cYxKuQVgyHq3eotGWwqnjZ6FYCQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/J16bG9ty7YnOUMAQdQVgAH72Hk3McZxzZROhfUkbwAOqtIUMWmlTX7kQnMfEZbyvCsfIDOkXLOSV--xwK-tV3lkxzxpdwDOpQsi3i9Pxma1fYTmEuoYX7Y2s42-iwnoywUh4f-j3iHj33hSZyRsLeXnKlkVz46C0x1hZQ54lWl7uY7e76d6FSAy2-Gd_z2VUV8mdLbG1Jva4ESYLz3EeqHWs8FZtPWiQIlDIdizTu36F8o45IDu6RwkIMlaZUj7oxBmQTVqfnAWShTdmzUflMtk-WmVeUqHdR0TkbTcRdv-Q-I4OfTC3lqez_wqPMNVab1uocyqAh6W2SacmSIESQA.jpg" width="400"><br>
 
-♦️
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز شنبه دوم خرداد در گفتگو با آکسیوس اعلام کرد که اواخر امروز با تیم مذاکره‌کننده خود دیدار می‌کند تا آخرین پیشنهاد ایران را بررسی کند. او افزود که احتمالا تا روز یکشنبه درباره پذیرش توافق یا از سرگیری جنگ تصمیم‌گیری خواهد کرد.
+ترامپ شانس دستیابی به یک توافق «خوب» یا در غیر این صورت، «نابود کردن کامل آن‌ها» را یک «۵۰-۵۰ محکم» توصیف کرد. به گفته او، قرار است اواخر روز شنبه نشستی با حضور استیو ویتکاف، جرد کوشنر و جی‌دی ونس، معاون رئیس‌جمهور، برای بررسی پاسخ اخیر جمهوری اسلامی برگزار شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75655)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-23 19:17:32
+
+<img src="https://cdn1.telesco.pe/file/Bli7-_wiNUCASYqgcNsq4tLWhLDGeP1g9ke-OydpX895Wd6cDUdel5ga9xG7CIZgZBHWlLk8U8wgXb05zA7aHo18MS5_V4oQEeS2mfum6FSpMyR2mMq7I4Em9jKykrjsdpDjNLobkyfOVnJlmLF-FjHOh5p5cEvL-CmQ_jKHde4vwOFESm0z2XIn6R7LrpRULbDVDOi81_Yo9voWN8d9D6PiO0Ufyl61HPalv_OPRT31p86qiAtJRA_qFCKX-YQSAZ4yqsHYjkz4_k9dgbGaZlOLAsUoyGNUkyyeAK_CLh9-IBKyup2gxwhe6bXVez_QU9yOdmJYtL92twrxdiumbg.jpg" width="400"><br>
+
+خبرگزاری تسنیم، رسانه وابسته به سپاه، درباره روند مذاکرات تهران و واشینگتن، با اشاره به اینکه هنوز اختلافات جدی در بعضی از حوزه‌ها مانند تعهد واقعی آمریکا به آزادسازی اموال و موضوع تنگه هرمز وجود دارد، نوشت: «با توجه به زیاده‌خواهی‌های آمریکا، احتمال عدم حل موضوعات بالاست.»
+در این گزارش آمده که در صورت حل موارد اختلاف، احتمالا در گام اول یک تفاهم اولیه اعلام شود و سپس مهلت ۳۰ یا ۶۰ روزه برای گفتگو درباره موضوع هسته‌ای (بدون تعهد اولیه جمهوری اسلامی) اعلام شود.
+تسنیم نوشت که آمریکایی‌ها در متون پیشین خود تاکید داشتند که تهران در همان گام نخست باید امتیازاتی در بحث هسته‌ای بدهد و موضوع تعطیلی تاسیسات هسته‌ای و تحویل مواد غنی‌شده به آمریکایی‌ها از جمله مباحثی است که مدام در متن‌های آمریکایی‌ها مورد درخواست قرار می‌گرفت اما حکومت ایران اساسا بحث درباره جزئیات هسته‌ای را در این مرحله رد می‌کند.
+بر اساس این گزارش تهران بر ضرورت پایان جنگ و تهدید در همه جبهه‌ها از جمله لبنان تاکید دارد. و این موضوع باید مورد پذیرش طرف آمریکایی قرار گیرد اما آمریکایی‌ها در برخی از متن‌های پیشین خود با این موضوعات مخالفت کرده‌اند.
+@
+VahidOOnLine
+خبرگزاری تسنیم، وابسته به سپاه، به نقل از یک منبع مطلع نوشت که خبر العربیه درباره اینکه تهران پیشنهاد تعلیق ۱۰ ساله غنی‌سازی اورانیوم بالای ۳.۶ درصد را مطرح کرده، «از اساس کذب است».
+تسنیم به نقل از این منبع با تاکید بر «ساختگی» بودن خبر العربیه، نوشت: «اساسا تمرکز پیام‌ها و گفتگوها در وضعیت فعلی صرفا بر روی مساله پایان جنگ است و هیچ جزئیاتی درباره موضوع هسته‌ای مورد بحث قرار نمی‌گیرد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75654)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-23 19:17:32
+
+<img src="https://cdn4.telesco.pe/file/mtzbRP19A_FHOODZost9I2UUc4FG2lMYi2IyXcURVKqbMqcsj2PbhvTOnQSsqq5WVpU-22_ldUL0kQeeaVhBeTMR5FQhvFpDJQ95ALsDRku50LAMuDsVEKvTbzNYhIpSfsm7ekZYJyGM79PjoXOTUVmFHg_ZujEZd1Eehjgf69z-F3S1c1N3_0S7f1ylZ5hhvchnkE-6CViTccFf8DLDe3yegYXFB5HEH-b-vcPC0xapgKukvsHuqIhOqAtvTkgvvbIFdnGkUob9h45NpS_UG2qhZuZyhw-XZO73KuidWtZYCLN57j55A2d35Kj5Z50mgUMJgb06-6ju5ltmEarVsQ.jpg" width="400"><br>
+
+بخش رسانه‌ای ارتش پاکستان (ISPR) آخرین دور گفتگوها میان میانجی‌های قطری-پاکستانی و مقامات بلندپایه جمهوری اسلامی را «کوتاه اما بسیار پربار» توصیف کرد.
+بر اساس بیانیه منتشر شده، این رایزنی‌های فشرده در ۲۴ ساعت گذشته در فضایی مثبت و سازنده برگزار شده و پیشرفت‌های دلگرم‌کننده‌ای را برای دستیابی به یک تفاهم نهایی جهت پایان دادن به جنگ ایجاد کرده است.
+ارتش پاکستان جزئیات بیشتری از مفاد دقیق این مذاکرات ارائه نکرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75653)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-23 19:17:32
+
+<img src="https://cdn4.telesco.pe/file/uLPAzDqLubYNwmXo7nGFj3KRcMIPZeWTYrlYrrHLRZMl4i4egGMFOleaEtciZWYZGN4f-dWJsxwfoVYyVV7v7KmIMHC1MWqueh6V9sHfOLNbAd6jBSHwgFwoDYcX5IhPwuyYCN5K3_DvPiWEsZwgE5zgLd6ueuA2BGcDuNZmhivLrtYJjJQAdSycqL_rp06rYUsdRFeppFscDB6Nldp3PR4cwW_Z22n1IHSyREG0wK-OmKhekUqLwP4vLly5yIWfdrG3JprUYk5BbIigTs6IRicDSThTEjCdKiQeoK-AKygdWNwGs8qVGlJPpm9m4Lzo5C08q4QVNc-VpwGOhhh5oQ.jpg" width="400"><br>
+
+فایننشال تایمز گزارش داد که میانجی‌های جنگ ایران معتقدند در حال نزدیک شدن به توافقی هستند که آتش‌بس میان واشینگتن و تهران را به مدت ۶۰ روز تمدید و چارچوبی برای مذاکرات درباره برنامه هسته‌ای جمهوری اسلامی ایجاد کند.
+بنا بر این گزارش، افرادی که در جریان این مذاکرات قرار دارند به این رسانه گفتند این توافق شامل بازگشایی تدریجی تنگه هرمز و همچنین تعهد به بررسی رقیق‌سازی یا واگذاری ذخایر اورانیوم با غنای بالا خواهد بود.
+فایننشال تایمز افزود که آمریکا همچنین محاصره دریایی بنادر جنوب ایران را کاهش می‌دهد و با کاهش تحریم‌ها و همچنین آزادسازی مرحله‌ای دارایی‌های مسدودشده تهران در خارج از کشور موافقت خواهد کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75652)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-23 19:17:32
+
+
+
+🔻
+‌ویدیوهایی از اعتراض دانش‌آموزان در شهرهای مختلف منتشر شده است. این دانش‌آموزان به حضوری شدن امتحاناتشان اعتراض دارند.
+دانش‌آموزان در شهرهای خرم‌آباد، یاسوج و دورود مقابل ساختمان‌های آموزش و پرورش این شهرها تجمع کردند و با شعارهای مختلف اعتراض خودشان را نشان دادند.
+در جریان اعتراضات سراسری در دی ماه ۱۴۰۴ که به کشتار بی‌سابقه معترضان انجامید در بعضی استان‌ها مدارس غیرحضوری شد.
+با شروع جنگ آمریکا و اسرائیل با ایران، مدارس در ایران تعطیل شد و بعد از تعطیلات نوروز کلیه کلاس‌ها غیرحضوری برگزار شد.
+چند روز پیش عبدالرضا فولادوند، سرپرست مرکز ارزشیابی آموزش و پرورش در یک مصاحبه تلویزیونی از احتمال برگزاری امتحانات به صورت حضوری خبر داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75651)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-23 19:17:32
+
+<img src="https://cdn1.telesco.pe/file/N8dpkFfmNcK-xGJK21PzoBjwq7gXtSN-xEQBwSxow0AjJsG03MtHboyu56B1puFKfnk2g1G6N_diutvxBRqZY8cphsKDbNc3dV6dRpIhAHKgUes_cWFms3kvXr071v9hZ1wDNj7pfnDJKXXrVyiEl_Qn1dQ15gpdUoRGTS6nyTE_u8Rz2BzHPcHJIFya3NuB8MPed9r3JAiGGLBu51D-R5JyCLRXMZF2mkT9t8gmoAEdkwD_ooaIwfKxC2MmGIxcV8mR3VSHLpaFynPmDfeLI6VqLw-zpkJIBk4l1A4m0178-au9Pi0Z4qxf_jQI11nh25M7Ko-rHARn_xFUYTgTfA.jpg" width="400"><br>
+
 یک مقام جمهوری اسلامی روز شنبه دوم خرداد، در گفتگو با شبکه الجزیره اعلام کرد که تهران با میانجی‌گری پاکستان با یک تفاهم‌نامه موافقت کرده و اکنون در انتظار پاسخ ایالات متحده است.
-به گفته این مقام، مفاد این تفاهم‌نامه شامل پایان دادن به جنگ، رفع کامل محاصره دریایی، بازگشایی تنگه هرمز و خروج نیروهای آمریکایی از منطقه جنگی است. او تصریح کرد که به دلیل پیچیدگی موضوع هسته‌ای و نیاز به زمان بیشتر، این تفاهم‌نامه شامل مسائل هسته‌ای نمی‌شود؛ با این حال، پس از گذشت ۳۰ روز از اجرای این توافق، درب‌های مذاکرات هسته‌ای باز خواهد شد.
-این منبع آگاه همچنین اشاره کرد که قرار بود فرمانده ارتش پاکستان این تفاهم‌نامه را در تهران اعلام کند، اما او جهت هماهنگی با واشنگتن، ایران را ترک کرده است. او با تاکید بر نقش اساسی دولت قطر در تدوین این پیش‌نویس افزود که ایران هیچ امتیازی فراتر از آنچه در این تفاهم‌نامه قید شده، واگذار نخواهد کرد.
+به گفته این مقام، مفاد این تفاهم‌نامه شامل پایان دادن به جنگ، رفع کامل محاصره دریایی، بازگشایی تنگه هرمز و خروج نیروهای آمریکایی از منطقه جنگی است.
+او تصریح کرد که به دلیل پیچیدگی موضوع هسته‌ای و نیاز به زمان بیشتر، این تفاهم‌نامه شامل مسائل هسته‌ای نمی‌شود؛ با این حال، پس از گذشت ۳۰ روز از اجرای این توافق، درب‌های مذاکرات هسته‌ای باز خواهد شد.
+این منبع آگاه همچنین اشاره کرد که قرار بود فرمانده ارتش پاکستان این تفاهم‌نامه را در تهران اعلام کند، اما او جهت هماهنگی با واشنگتن، ایران را ترک کرده است.
+او با تاکید بر نقش اساسی دولت قطر در تدوین این پیش‌نویس افزود که ایران هیچ امتیازی فراتر از آنچه در این تفاهم‌نامه قید شده، واگذار نخواهد کرد.
+@
+VahidOOnLine
+همچنین بر اساس این گزارش، تهران پیشنهاد داده غنی‌سازی اورانیوم بالاتر از ۳.۶ درصد را به مدت ۱۰ سال به حالت تعلیق درآورد.
+@
+VahidOOnLine
+🔄
+آپدیت:
+خبرگزاری تسنیم، وابسته به سپاه، به نقل از یک منبع مطلع نوشت که خبر العربیه درباره اینکه تهران پیشنهاد تعلیق ۱۰ ساله غنی‌سازی اورانیوم بالای ۳.۶ درصد را مطرح کرده، «از اساس کذب است».
+تسنیم به نقل از این منبع با تاکید بر «ساختگی» بودن خبر العربیه، نوشت: «اساسا تمرکز پیام‌ها و گفتگوها در وضعیت فعلی صرفا بر روی مساله پایان جنگ است و هیچ جزئیاتی درباره موضوع هسته‌ای مورد بحث قرار نمی‌گیرد.»
 @
 VahidOOnLine
 📡
@@ -22,7 +129,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 18:12:48
+###### 🔵 Updated at: 2026-05-23 19:17:32
 
 <img src="https://cdn1.telesco.pe/file/GsUs1R-w-QMKxCLEmAhxRDmx7VwWz74xswyNcriZtPeUvQKjLscUn7MOktKB1B0PEi777od0p9tLsWEjh1BYnDi6XbHl8QGKcFunMmgJhNYXBtg2pQjHmP-kgumMMaE4RUObubfbpnOcKULmeCEQn9wAj3QqrtPMgzevYI2m-c2vlcW9o8I8KfWRyoXt-8gpwZbx-oUfP8YXCb4PqpogMBPwD295uzPUjevQdvd3ohYgge_hI207w7boze8DmnoGpjfYktl_kNUIokyAu4sCIRqxrJgB3KGbNrzyS-P4S0yzCMr-P418AKXY515vC5zApV-Cl7WM7NokwcIIWaTqEg.jpg" width="400"><br>
 
@@ -39,7 +146,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 18:12:48
+###### 🔵 Updated at: 2026-05-23 19:17:32
 
 <img src="https://cdn1.telesco.pe/file/MSP6LUub5KTeHdmmwBSgMHYlIEOj6gIPrLJxiWqQq_pq6h6trwUWuV5kdYlkfbD-zpu4_yxiOKIJaECqD29PEzUkuRARDYUpb6TSS0tCA8SV5oscrCTUZ5G38anDhs7qOSa4HC3Z7wKjWz1nwYoJWu4MsydVUZfGxA383p71CKogXsy4zK3TI0MGk6M9kUm7aBm15zKxEarTqm0vc7yrEynJarSf67na7N-6Hc_6iKFw95QBfKd08G4gPPNFq-IWdIXop7Dxziv8LgsrLUlgzoa_5y15p2A7dpBeJ8vCaY9T_7li1GOVGDNYX77K7O_IxpJ9hyVa4g741S9Y_AidIA.jpg" width="400"><br>
 
@@ -58,7 +165,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 18:12:48
+###### 🔵 Updated at: 2026-05-23 19:17:32
 
 
 
@@ -81,7 +188,7 @@ EricLDaugh
 
 
 
-###### 🔵 Updated at: 2026-05-23 18:12:48
+###### 🔵 Updated at: 2026-05-23 19:17:32
 
 <img src="https://cdn4.telesco.pe/file/bCJ-PqQLA6q4aaZ7UoWvk_qQ_hp8NRaBc9LQo5sY0TyowHyL2Ofa0TQlX8Y1LrrlcK0lC9-jtistAoqSkgms_Oifm-V6DD3qdbG3UWzmWc-Yi1V6a8I3YncREtbZ5tfQDYuf4nrb6eqekgoAZGZ0YE0pRNY6H3Kvg9bLxbEoftkHY_aSXTRLZcClXj3TvyqmSvJDMIYUrom_i7qxWI9-wXy4FwIkN2FSfNWQVjodnGmJ-TlpJPJJz1a244vHq3PSplr8qmyTR7ifPaI2WuQqPvft8WnXy6hRBwdHPpowMNI7DkGyav4K5vzYRtIdDQ6H_nUemolAkCDIE_-tLMJ4UA.jpg" width="400"><br>
 
@@ -97,7 +204,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-23 18:12:48
+###### 🔵 Updated at: 2026-05-23 19:17:32
 
 <img src="https://cdn4.telesco.pe/file/FKiFytLd6R9Wt5kCsruuKvXULqPc0bGqtzFX25xVORsBvcn7saTJz-28U0SOtG0RsBuB0BFPmRbxnnTbd67NzDC0dwZ1AuU7URfBwQXTzysAYbb8F4pQcPQ0bxiufc0ELnTOMtYBFADPdDhcpeXc95bvk8QPdnWZSO0uICpjKdOyR1lnBwNXeCRL82MjJMa1WXB05Q32bvOu1ooPqA85tA1cBMZeIG7FTfRWz78JghPxJAFrjPvBB_Um_3MvsUKCzKolIKXkPTcp1I5oGAGow4spqXfSOTPeuVtNaGKhlYbSlMKvEzOmHl0_DRhrfGiOojHf_swe1wZ6v3HV_pvNNg.jpg" width="400"><br>
 
@@ -118,7 +225,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-23 18:12:48
+###### 🔵 Updated at: 2026-05-23 19:17:32
 
 <img src="https://cdn1.telesco.pe/file/Mp5M6CPwIJapOOFPahUSY4VbEoJKJ29gelqng_srbTa2RhYSpCli5u2R6IV1wIolbKfhSjkoM18YQgybFiuPmBW1UC1kA2287mTmNbwWA2ownegxkBImB7KbMrGwcMcqdPbyUjaKQMH53kLSLPLgu2734Pd1RjrDIX40tpmARaLpw7VT3okVdHMpa9MbNb69d5LK5_mlnB8_uiDcUX1THsRNUVbsxEXXPyPkQ-8Rqm8NERONh20mqzpsUYdIipVNkIwygQOolSNqYQgfogLfosx88OY-CMF5pgJvGkxmTG-yf5N07YkG5S9OOzpBalgY0EPyAdXYcSaRrn9yK9uuAg.jpg" width="400"><br>
 
@@ -153,87 +260,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75635)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-23 18:12:48
-
-<img src="https://cdn1.telesco.pe/file/AnFIodMTFbAfAA1QqawvaY3hBDA8L8I9XXAvxoH3uKOxXz7_s5YMKxNv7JP_QvdJfFmFnP-prUziFNYiKkiftgnU-v-Eih5xiyr0djt7CnqNts9vMNNAXGzOGMz75X-ph010OqkQkGtpWqxeTUuPbuTFvMdmmArfJzhLk2ZuhL5PRPKUCKCM_AWPuvMmrpR7ZlIHnAjBUj5Y_TT15CS8kePTmnCWBjGgEFV-DuaMpqoyDZOGAfSazcNYUCNzUmSpbkK_GaIjeBtVKP5-FwhmmJvHSpqV2BAGsoAFuZ60TZCRr3GRj-fSB8Cp07em2BP-maRRrFJMHG_38FGLFKb7pQ.jpg" width="400"><br>
-
-سخنگوی سازمان هواپیمایی ایران اعلام کرد این سازمان هیچ اطلاعیه رسمی هوانوردی جدیدی درباره اعمال محدودیت در آسمان کشور صادر نکرده است و شرایط پروازی عادی است.
-او با تاکید بر تداوم وضعیت عادی پروازها گفت: «شرایط آسمان کشور همچنان مانند روال گذشته است و پروازها طبق برنامه انجام می‌شود.»
-سخنگوی سازمان هواپیمایی بدون اشاره به جزئیات اطلاعیه هوانوردی (نوتام)، افزود: «نوتامی که اخیرا در فضای مجازی منتشر شده، تکذیب می‌شود.»
-سازمان هواپیمایی کشوری ایران روز جمعه یکم خرداد در اطلاعیه‌ای اعلام کرده بود فعالیت فرودگاه‌های واقع در بخش غربی محدوده پروازی ایران، موسوم به «FIR تهران»، تا دوشنبه متوقف شده و تنها شمار محدودی از فرودگاه‌ها مجاز به فعالیت هستند.
-بر اساس آن اطلاعیه، فرودگاه‌های ارومیه، کرمان، آبادان، شیراز، یزد، کرمانشاه، رشت و اهواز از این محدودیت مستثنی شده‌اند و فعالیت آنها نیز فقط از طلوع تا غروب آفتاب مجاز اعلام شده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75634)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-23 18:12:48
-
-<img src="https://cdn4.telesco.pe/file/k4LA03MAwuuFy1WMT8dSUvggIp8lVtmQr-vKGj4xUIYKntPM2sVX7BJj3tb72KIYrdlX19yvyQjKMPjgGF_KksV-WgeTu0OvbEMZ3g1W9qiN4urEHqMtjcnoCO-LvNUd-Vqz007V0WRXGNoND380RhkRwn5Txvlheh4sTFXvbJ7WUIU8s2hAnvthdGwHgLnrLHbEWIF9l1gC52Eqds6quBg4UujugovnaIKps1yGz7Ly_H6G7rIMXbLZdGS9c2TSAlMob1UjIviEDIt2VnmKMuoVU6lCEIW_t-zHmaTz2pscyLShdSFji51T0jUrfwVIvwXpozNHRVhQXZy-LK7gaw.jpg" width="400"><br>
-
-رسانه‌ها در ایران از دیدار فیلد مارشال عاصم منیر، فرمانده ارتش پاکستان با عباس عراقچی، وزیر امور خارجه ایران در شامگاه جمعه یکم خرداد خبر دادند.
-بر اساس این خبر، دیدار این دو مقام تا پاسی از شب ادامه یافته و محور گفت‌وگوها «تلاش‌ها برای جلوگیری از تشدید تنش و خاتمه جنگ» و «راهکارهای تقویت صلح، ثبات و امنیت در منطقه غرب آسیا» بوده است.
-جزئیات بیشتری از این دیدار منتشر نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75633)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-23 18:12:48
-
-<img src="https://cdn4.telesco.pe/file/PTk_QBOuT2uf2x6VS2XuRLQewIiy-cWGNr5shqUrZoqdagLtZO6MwKQ5mu3R5HMdggi2ZW2B1epqS72Tqj3je-Ot1hlV07L5fX7XLjZZATrxeswuk5sGbZtQ0r4ku3wRI7JQCm9jEQqIBtcx4tOu6agMHl4igxb7I4m9a1Dw71GJXXcfI5w8mT4QROq54H0FlOMeBBgrCjD_U7qZAI0gW7TcvHtGmhzLScqXjse69sEBt2AdmYY-zfYh0AQ_6W8KLvwQb7z-R6l35XmP4pVZd1CxpFAh3NKQXrLvaMj0aRZhsu--qvWyBKs9ygeMG694Td96ckiV-Arbzv2_G6hXGg.jpg" width="400"><br>
-
-دولت دونالد ترامپ اعلام کرد که سیاست‌های مهاجرت به آمریکا تغییر می‌کند.
-در یک تغییر اساسی در سیاست‌های مهاجرتی آمریکا، دولت این کشور اعلام کرد خارجی‌هایی که قصد دریافت اقامت دائم یا همان گرین کارت را دارند، باید خاک ایالات متحده را ترک و از طریق کنسولگری یا سفارت آمریکا اقدام نمایند.
-زک کالر، سخنگوی دفتر مهاجرت دولت آمریکا، گفت که این سیاست «نیاز به یافتن و اخراج» کسانی را کاهش می‌دهد که درخواست اقامتشان رد شده است.
-از سوی دیگر وکلای مهاجرت و گروه‌های امدادی می‌گویند که این تغییر احتمالا به «جدایی بیش‌ازپیش خانواده‌ها» منجر خواهد شد و قربانیان قاچاق انسان هم مجبور خواهند شد «به کشورهای خطرناکی بازگردند که از آن گریخته‌اند.»
-این تغییر سیاست تازه‌ترین اقدام آقای ترامپ در محدود کرد مهاجرت به آمریکا است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75632)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-23 18:12:48
-
-<img src="https://cdn4.telesco.pe/file/V1CpDbqkvXpcgJZAXThI1JRRR4t-TSjiFwMUDt2tlehw_I3Qiab_q1MM1kTSeCEAcQod8UOjFVg-Y91Su0ZqIEtezkIyQ9pISBEANEK__pUjSOTyUBrku81LMt1Y-Rd4ysXNsmTTgPb9O9r0heEjzTXtEsWtlX4APdvh2CQXP3PnSPR4Hd4Wwg0D-jICiDUaE7q7WoS4WBYfJczINBZkIouFzQzk7Vjt-Q4fu2WmUj3f9OORQzLMS1R7a_ReCvB_CaMVQZH6DXyaYmcZw_ayrkIZgxrwz6P8hYx7FADuNNlJdldMZ11cDPSVnU6VutidbxGXiPihnrlvUh3HkXK23A.jpg" width="400"><br>
-
-روزنامه «نیویورک‌پست» به نقل از منابع آگاه افشا کرد که ایوانکا ترامپ، دختر ۴۴ ساله دونالد ترامپ، هدف یک طرح ترور پیچیده از سوی یک تروریست تحت آموزش سپاه پاسداران انقلاب اسلامی قرار گرفته که با انگیزه انتقام‌جویی از کشته شدن قاسم سلیمانی طراحی شده بود.
-بر اساس این گزارش، متهم که یک تبعه عراقی ۳۲ ساله به نام «محمد باقر سعد داوود الساعدی» است و به تازگی دستگیر شده، عهد کرده بود برای «به آتش کشیدن خانه ترامپ»، دختر رئیس‌جمهوری آمریکا را به قتل برساند.
-منابع اطلاعاتی اعلام کرده‌اند که الساعدی حتی نقشه و جزئیات معماری عمارت ۲۴ میلیون دلاری ایوانکا ترامپ و همسرش جارد کوشنر در فلوریدا را در اختیار داشته و پیش از این با انتشار تصویری از موقعیت این خانه در شبکه اجتماعی اکس (توییتر سابق)، به زبان عربی تهدید کرده بود که «نه کاخ‌ها و نه سرویس مخفی آمریکا» نمی‌توانند از آن‌ها محافظت کنند و انتقام تنها مسئله زمان است.
-وزارت دادگستری ایالات متحده اعلام کرده است که الساعدی از مهره‌های بلندپایه در حلقه‌های تروریستی وابسته به ایران و کتائب حزب‌الله عراق به شمار می‌رود که در تاریخ ۱۵ مه در ترکیه بازداشت و به آمریکا مسترد شد. او در ایالات متحده با اتهاماتی سنگین پیرامون هدایت و اجرای ۱۸ حمله و تلاش برای ترور در سراسر اروپا و آمریکا مواجه است؛ پرونده‌ای که شامل بمب‌گذاری در یک بانک در آمستردام، حمله با چاقو به دو شهروند یهودی در لندن، تیراندازی به ساختمان کنسولگری آمریکا در تورنتو و آتش‌سوزی عمدی در معابد یهودیان در بلژیک و هلند می‌شود.
-این متهم که به دلیل وابستگی به قاسم سلیمانی او را مانند پدر خود می‌دانست، پس از کشته شدن سلیمانی در حمله پهپادی شش سال پیش آمریکا در بغداد، تحت آموزش‌های نظامی و اطلاعاتی ویژه سپاه پاسداران در تهران قرار گرفت و ارتباط نزدیکی نیز با جانشین او، سردار اسماعیل قاانی، برای تامین مالی شبکه‌های تروریستی خود داشته است.
-اطلاعات فاش‌شده نشان می‌دهد الساعدی با وجود نقش برجسته‌اش در شبکه‌های تروریستی، حضور بسیار فعالی در شبکه‌های اجتماعی نظیر «اسنپ‌چت» و «اکس» داشته و تصاویری از رایزنی‌های نظامی خود با قاسم سلیمانی را نیز به اشتراک گذاشته بود.
-او با تاسیس یک آژانس مسافرتی مذهبی و با سوءاستفاده از یک «گذرنامه خدمت عراقی» که سفر بدون تشریفات امنیتی و اخذ آسان ویزا را برای او ممکن می‌ساخت، به راحتی به کشورهای مختلف سفر کرده و با گروه‌های تروریستی ارتباط می‌گرفت.
-الیزابت تسورکوف، پژوهشگر انستیتو «نیولینز» که خود ۹۰۳ روز در اسارت کتائب حزب‌الله بود، تایید کرده که روابط الساعدی با سلیمانی و قاانی فرصت بزرگی برای گروه‌های شبه‌نظامی عراقی ایجاد کرده بود. الساعدی که در زمان دستگیری در ترکیه در حال سفر به روسیه بود، هم‌اکنون در سلول انفرادی بازداشتگاه متروپولیتن بروکلین، در کنار دیگر زندانیان سرشناس نگهداری می‌شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75631)
 
 ---
 
