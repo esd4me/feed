@@ -3,7 +3,201 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-24 17:47:10
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn4.telesco.pe/file/tfcyTzTzH1KPt1gjV8eLUGzal-ffX4NYzUZKtNidIVvIcfqR9MPItJeM_9aoBrIVqIOzQJvmvSUDDLVGqAs_JyaJSqGEgUMuj09eNOQ-RiWU6if1paMtadZiu8NDb4tIPqto2QalRJGTgr8Vo4UHnQIGSN2lEXv3mS68lbNaQyjisDmKAI99PdR21PcgysObxU0bR_kePPa2Wv2ZEMew62f7yHhOf_mUmAsZf9QGzvSg6gdq7sLeDnnyZMM_fBxsWnhk41Up7cikABuOgUElXXLEGSdpb7zqNSpJX_zzzzOEGYHwBJ2gokgPLXHGi6MaCGQkog9ZBqM1TvdV-E65Xg.jpg" width="400"><br>
+
+رسانه آکسیوس، روز یکشنبه سوم خرداد ماه، به نقل از یک مقام ارشد دولت دونالد ترامپ گزارش داد، «چند مورد جزئیات حل‌نشده» میان تهران و واشنگتن باقی‌مانده است و به همین دلیل توافق میان ایران و آمریکا احتمالا امروز امضا نخواهد شد.
+این مقام آمریکایی به آکسیوس گفت هنوز بر سر برخی بخش‌های توافق «رفت‌وبرگشت» وجود دارد و اختلاف‌ها بیشتر بر سر عباراتی است که برای هر یک از دو طرف اهمیت دارد: «برخی کلمات برای ما مهم هستند و برخی کلمات برای آن‌ها.»
+آکسیوس به نقل از این مقام ارشد کاخ سفید نوشت، ساختار تصمیم‌گیری در جمهوری اسلامی «سریع عمل نمی‌کند» و روند دریافت همه تاییدیه‌های لازم چند روز زمان خواهد برد.
+به گفته این مقام، ارزیابی واشنگتن این است که «مجتبی خامنه‌ای»، رهبر جمهوری اسلامی، چارچوب کلی توافق را تایید کرده، اما اینکه این روند به توافق نهایی منجر شود، «همچنان یک سوال باز» است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75686)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn4.telesco.pe/file/T8SXLZ3ljEXBWtCv6I1i-0OF9B9bO7CPHmvVLI-OjPArpvvUZc0DjcA5Iz6miUwGxct3nhnivu0-Ceru1cZ1hIaWxBCOHagt7VvYyml0c_pX3OgrupHxm-lgCxNVx5PVbLJtOetrf5e75w2vS02NeKJQRv2U0EYDHvY7WSdBK0IDG-8LeZbyLNy6r1ddaJVA9VGbuUXL7P1UaqJSHGLnh9kwpdVvc6VzybOdsrY1UNJTpT7rzwGGkSySUvd_mR6lehOgeFRjBA0dcI1-l73si4N4KcusNlHHmKxJDKWAdtmdFzlZMVfY6Lise_2k3Fn1_EWHD1D6v3lQ-uN3u1oSIw.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، اعلام کرد او و دونالد ترامپ توافق دارند هرگونه توافق نهایی با جمهوری اسلامی باید به‌طور کامل تهدید هسته‌ای را برطرف کند.
+او گفت این به معنای برچیدن تاسیسات غنی‌سازی ایران و خارج کردن مواد هسته‌ای غنی‌شده از خاک این کشور است.
+نتانیاهو افزود ترامپ بار دیگر بر حق اسرائیل برای دفاع از خود در برابر تهدیدها در همه جبهه‌ها، از جمله لبنان، تاکید کرده است.
+او همچنین گفت سیاست او، همانند سیاست ترامپ، همچنان ثابت است؛ ایران نباید به سلاح هسته‌ای دست یابد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75685)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn1.telesco.pe/file/OL8ZCMzzB_KhdWHNaUoRyGc40cNp8NRT6QNrFdcSh_ESjPBG78H6Ird5btjInEeNz6k0KaCuMjsARdhYIgg4MkraUWzoapUCQWPMQ2y13vjj15jxVufi9FDekg8SHTH6_UaOZdoQEUZLIGPuZ91v8hcLU7pGdxHxvt7qVtoKYXl839eFUL66TAZyoQmvQ4NSaMBGEArNX6Cf7z625X5FJykfRDtGtWec_DVrqz7GUoD8IQoKtcr-r0I_dMTMU6z_PzdjcoHk7OHPM20HpM-165VDAYBWt5rn-NrL4oNkdL4r9dLhYLhuonyrmSWPm_ROA6WW0Q4QDBg8YMahezkITA.jpg" width="400"><br>
+
+ترامپ سخنان پزشکیان را نشان داد: آماده‌ایم به جهان اطمینان بدهیم
+ترامپ اسکرین‌شاتی از
+توییت
+خبرنگار فاکس‌نیوز رو پست کرده که نوشته بود:
+مسعود پزشکیان، رئیس‌جمهور ایران: ما آماده‌ایم به جهان اطمینان بدهیم که به‌دنبال سلاح هسته‌ای نیستیم. ما به‌دنبال بی‌ثباتی در منطقه نیستیم.
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75684)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn1.telesco.pe/file/SC_HKxC9by7A7fMDpn1w514SHGeJNzuG3umLVU0KTGEaG8LV6l42ZACiMR4J5nyZ-9UpCjXHs5ZmL1-Q0KsWEtSc_cw90KwF8_B9zbzwsgAmIwjbKw1HR2K4kkHbKCSTc3N52QMpuUzF9O14N8bowxJ8wAYL68Owr4Q1fpr_h83NSMt580r8UZCuExZO8J5CofLfVelep94iMTxiirnQWnk69wG4m44kYH_kftLXHmCbf7gCQlFjCCkSl_jCR5bspLAs0OuICFupP1Ap35wuaElHALlD8y23E78Uq8XrLQvX915phxadMIz3JlW23aMCJ9KAESO6Ay9KpOfOD3MX5Q.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+یکی از بدترین توافق‌هایی که کشور ما تاکنون انجام داده، توافق هسته‌ای ایران بود؛ توافقی که باراک حسین اوباما و افراد کاملاً ناشیِ دولت اوباما آن را مطرح کردند و به امضا رساندند. این توافق، مسیری مستقیم برای دستیابی ایران به سلاح هسته‌ای بود. اما درباره معامله‌ای که اکنون دولت ترامپ با ایران در حال مذاکره بر سر آن است، چنین نیست؛ در واقع کاملاً برعکس است!
+مذاکرات به شکلی منظم و سازنده در حال پیشرفت است و من به نمایندگانم اطلاع داده‌ام که برای رسیدن به توافق عجله نکنند، زیرا زمان به سود ماست. محاصره تا زمانی که توافقی حاصل، تأیید و امضا شود، با تمام قدرت برقرار خواهد ماند. هر دو طرف باید وقت بگذارند و کار را درست انجام دهند. هیچ اشتباهی نباید رخ دهد!
+رابطه ما با ایران در حال تبدیل شدن به رابطه‌ای بسیار حرفه‌ای‌تر و ثمربخش‌تر است. با این حال، آنها باید درک کنند که نمی‌توانند سلاح یا بمب هسته‌ای تولید یا تهیه کنند. مایلم تا این مرحله از همه کشورهای خاورمیانه بابت حمایت و همکاری‌شان تشکر کنم؛ حمایتی که با پیوستن آنها به کشورهای عضو توافق‌های تاریخی ابراهیم، بیش از پیش تقویت و گسترش خواهد یافت و چه کسی می‌داند، شاید جمهوری اسلامی ایران هم بخواهد به آن بپیوندد!
+از توجه شما به این موضوع سپاسگزارم.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75683)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn1.telesco.pe/file/I-rynD_ZFvuCB5z_Qvh-Hv8DBs1sieGRSO884eyUkJ104HAuiKYDzXPUSobt-7VFanSL-R0i7WOQ_PnhpaJN7gAANsfboWIhu4IRCZCNJrufQ33TyYURfrKzeB-dQ-wWteTddn-J4GHSfnaL_1sCRyAdnZbwYpsw67fQx6GpaVfQ-yJWqzOCYi0pdnR9TVFqb1u_q2-Q3l6oBLB4zy3jAmJ0Ed1wYqvSNcmuD2NUXb9elqXzbaBFoapGHIsjrQQqwWFwh1ClqsWy2xoGuiEh4RYSYXkkF7HhGivgT_qJdY91WpQ-j0iemtzNj75b4amCoDz5O3oqhTlDhrI10h0Y4A.jpg" width="400"><br>
+
+دونالد ترامپ تصویری ساخته با هوش مصنوعی را در شبکه اجتماعی تروث سوشال
+منتشر کرد
+که انهدام یک قایق سپاه پاسداران  به دست پهپاد آمریکایی را نشان می‌دهد.
+بر این تصویر، واژه «حداحافظ» به زبان اسپانیایی نوشته شده است.
+این تصویر در حالی توسط رئیس جمهوری آمریکا منتشر می‌شود که رسانه‌ها در انتظار نهایی شدن توافق احتمالی تهران و واشنگتن برای پایان جنگ هستند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75682)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn4.telesco.pe/file/lgIHtMVyaGQdRSPsfwz40Hy2aamEPgeMgtAFPZOq-9VV0A6kwIhwuJgQ7V-huCeMQgbGl9jrxlfoxzn_FNC173EflOofwuPSu5_FJNvB96aMaUZ06AyIfTZE7Lf96_ibBpGMBOZBOOWDM17UH6BD0dNzPnONkSVcfGhsBS6vpgEeETdZm6i4dFWDlp_oKTe7z_TGT7Ez7SLFAaPGYfAMPiuNr01SqkS2lD4GbgM6aXgGoNLJkPydQoR2MyePj5VEvPqYtDTHWrW2X0-ytT4rxNgUW_NJfgZMBow6i0WJ9Eb0epox5sc_SFcVIseoqiKr-AfBkZ68JRgLnCqoanXslA.jpg" width="400"><br>
+
+محمدرضا عارف، معاون اول پزشکیان گفت: «مدیران دولت تا زمانی که مباحث کارشناسی درباره مدیریت مصرف بنزین نهایی نشده است، حق اظهارنظر شخصی ندارند.»
+او افزود: «اگر کسی از این دستور تخطی کند با او برخورد می‌شود، زیرا ابتدا باید نظرات کارشناسی بررسی و سپس جمع‌بندی نهایی حاصل شود.»
+او ادامه داد: «مسئولان تا پیش از آن حق ندارند اظهارنظر شخصی کنند، چرا که نباید در جامعه التهاب یا نگرانی ایجاد شود.»
+@
+VahidOOnLine
+این دستور در شرایطی صادر شده که شایعات درباره افزایش قیمت بنزین، تغییر سهمیه‌ها و تشدید سیاست‌های مدیریت مصرف بالا گرفته است.
+همزمان، ناترازی بنزین و فاصله میان مصرف داخلی و توان تأمین سوخت، نگرانی‌ها درباره کمبود احتمالی یا فشار بیشتر بر شبکه توزیع را افزایش داده است.
+عارف گفت دولت تلاش می‌کند تصمیم‌ها به‌گونه‌ای اتخاذ شود که معیشت مردم آسیب نبیند، اما واقعیات اقتصادی کشور و تحولات اخیر نیز باید در نظر گرفته شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75681)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn1.telesco.pe/file/dOLxUFIaUWWk6w6Ii6X4vmw0q5pdnUuwWVYbZUP43BIlbue_mubWi5Xbb7ZEAMdtmtV4uMQBtleg7YFXwGzltHxsW8yY7mitXpZEnwmJwojbkyOdpmaDPQRJ1VZlsE1snlQH_D5xqQq6eRDpMq_JI3RFe3e2csG30mMbS7mWEI_VdqAZbsoe8gxHY07YtgzEyj6XMHKb1Yj_viwoPv6FlG4gTlVpVTnBham43PzK3Iy9m34S_HRVSYaXqIecSKzV3E49JLI69no6DtNCT5MYntfgPu4mWEV4HxVqzX2z-WvZtp4WOYkZ-EFSaslTI8gJW7zHEJJMsskp25Y_LHc7nw.jpg" width="400"><br>
+
+خبرگزاری فارس، نزدیک به سپاه پاسداران روز یکشنبه سوم خرداد با اشاره به توافق احتمالی میان جمهوری اسلامی و آمریکا، نوشت:  در پیش‌نویس توافق احتمالی ایران و آمریکا هیچ بندی درباره «تعهدات هسته‌ای ایران گنجانده نشده و تمام مسائل مرتبط با برنامه هسته‌ای به مذاکرات ۶۰ روزه پس‌از امضای توافق موکول شده است.»
+فارس در ادامه تاکید کرده است که «ایران در این توافق هیچ تعهدی برای واگذاری ذخایر هسته‌ای، خروج تجهیزات، تعطیلی تأسیسات یا حتی تعهد به نساختن بمب هسته‌ای وجود ندارد.»
+این در حالیست که نیویورک تایمز به نقل از دو مقام آمریکایی گزارش داد، یکی از عناصر کلیدی توافق پیشنهادی میان واشنگتن و تهران، تعهد آشکار ایران به واگذاری ذخایر اورانیوم با غنی‌سازی بالای خود است.
+@
+VahidOOnLine
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، نوشت که شنیده‌ها از جزییات تفاهم اولیه «احتمالی»، حاکی است که واشینگتن متعهد خواهد شد در طول دوره مذاکرات، تحریم‌های نفتی ایران را به حالت اسقاط درآورد و جمهوری اسلامی در مقطع کنونی هیچ اقدامی را در حوزه هسته‌ای نپذیرفته است.
+این گزارش افزود در صورتی که این تفاهم‌نامه مورد توافق قرار گیرد، بخشی از دارایی‌های بلوکه شده حکومت ایران باید در گام اول آزاد شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75679)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn1.telesco.pe/file/BQCs6-SzeXEDPt0Qv7gGQG0kyTHmYtrmTOJn7p6a8UaCmYT7HPaq14GGAZn8RD4ULRNBUaa_rzubpXuiv6F9SW-nUe0-KSes6nxla-e5VIQWNlsn_6KF_VPBD5yjHQe6F3H66olD8tbuxzNER2O_NuI_BsN4UH4TJCw9jPOfD29Vydey4GYeB8cTeKVbyk-G_r3LBJOqi1uNH-dWDQBg0DqRKS5EHTCA2wTl_dcHH1OqS6nvKimERw7tHadSTrT2UYxd0Z_qFpd9-JY0J7pWi2wAM_cCjdyhlLHCdLnuMJRq1qO-a4_OmrFnnCnrZDr28OoNLX2rF6keH1f64pJw2g.jpg" width="400"><br>
+
+مارکو روبیو، وزیر خارجه آمریکا، روز یکشنبه در جریان نشست خبری مشترک با سابرامانیام جایشانکار، وزیر خارجه هند، در دهلی‌نو اعلام کرد که طی ۴۸ ساعت گذشته «پیشرفت قابل‌توجهی» در مذاکرات و رایزنی‌های مرتبط با بحران تنگه هرمز و پرونده ایران حاصل شده و احتمال دارد تا ساعاتی دیگر اخبار مهم‌تری در این زمینه منتشر شود.
+او بدون ارائه جزئیات کامل، گفت هنوز توافق نهایی شکل نگرفته اما مسیر مذاکرات نسبت به روزهای گذشته امیدوارکننده‌تر شده است.
+روبیو با تاکید بر اینکه دولت آمریکا همچنان راه‌حل دیپلماتیک را ترجیح می‌دهد، اظهار داشت دونالد ترامپ تمایل دارد بحران ایران از طریق وزارت خارجه و مذاکره حل شود، نه از مسیر درگیری نظامی.
+با این حال او هشدار داد که واشنگتن در هر شرایطی مانع دستیابی ایران به سلاح هسته‌ای خواهد شد و این موضوع «خط قرمز» دولت آمریکاست.
+به گفته او، رئیس‌جمهوری آمریکا بارها تاکید کرده که ایران هرگز نباید به توانایی ساخت سلاح هسته‌ای برسد و دولت ترامپ در این زمینه از همه دولت‌های پیشین آمریکا سخت‌گیرتر عمل کرده است.
+وزیر خارجه آمریکا در بخش دیگری از سخنانش به وضعیت تنگه هرمز پرداخت و گفت این آبراه، یک مسیر بین‌المللی است و هیچ کشوری حق ندارد عبور و مرور آزاد کشتی‌های تجاری را تهدید کند. او اقدامات اخیر ایران در قبال کشتی‌های عبوری را مغایر قوانین بین‌المللی دانست و هشدار داد اگر جامعه جهانی در برابر چنین اقداماتی سکوت کند، یک «وضعیت خطرناک و غیرقابل‌قبول» به رویه‌ای عادی در جهان تبدیل خواهد شد، موضوعی که می‌تواند در مناطق دیگر دنیا نیز تکرار شود.
+روبیو همچنین اعلام کرد آمریکا طی دو روز گذشته همراه با شرکای خود در منطقه خلیج فارس روی چارچوبی کار کرده که هدف آن باز نگه داشتن کامل تنگه هرمز، جلوگیری از اخذ عوارض یا محدودیت برای عبور کشتی‌ها و همچنین رسیدگی به نگرانی‌های مرتبط با برنامه هسته‌ای ایران است.
+او توضیح داد که در صورت موفقیت این روند، نه‌تنها امنیت کشتیرانی و تجارت جهانی حفظ خواهد شد، بلکه نگرانی‌ها درباره برنامه هسته‌ای ایران نیز تا حد زیادی کاهش پیدا می‌کند.
+روبیو در ادامه گفت هرگونه توافق احتمالی نیازمند پذیرش کامل ایران و اجرای عملی تعهدات خواهد بود و مذاکرات درباره جزئیات فنی برنامه هسته‌ای، روندی پیچیده و زمان‌بر دارد.
+او افزود هنوز نمی‌توان درباره موفقیت نهایی مذاکرات با قطعیت صحبت کرد، اما «نشانه‌هایی از پیشرفت واقعی» دیده می‌شود و ممکن است جهان در ساعات آینده خبرهای مثبتی درباره تنگه هرمز و روند مذاکرات دریافت کند.
+@
+VahidOOnLine
+روبیو گفت: «هدف نهایی این است که ایران هرگز نتواند به سلاح هسته‌ای دست یابد. ایران هرگز نباید مالک سلاح هسته‌ای شود.»
+او تاکید کرد دونالد ترامپ، رئیس‌جمهوری آمریکا، در این زمینه موضعی «کاملا روشن» داشته و گفته است ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.
+وزیر خارجه آمریکا افزود: «قطعا تا زمانی که دونالد ترامپ رئیس‌جمهور است، این اتفاق نخواهد افتاد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75676)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
+
+<img src="https://cdn1.telesco.pe/file/pw_qbBn-biCp7yzUz0FW5OlwKwEgiTPzNQY2TfAO4_kw2GBw6hrfNJzmSIt0ACBW8_AMtmRSfB6yN2zDbcxXHCjIj4zb4Dm5yvEzOfZDeTTi-vANKOPLlENJ2fpOorIYsLI258feK57_CS3o4YzZDiZbtEr3tGqh2AF0LTX9zY5lMH3jx503xaNi3Jxs2qQGtsMsrGlsk0l7nH728tTeLsKqu1gO8exgXhCwKa3JSKIEm9CI6CfaQdzOSu7KlPXLt-4YTo0K4btPfse2k7yQrOiI82WnBe2hU3B3fj2QayDRloVJjpbBaiZmaTPkhaeELCIIufQZ4rYCiVi6gCXtpg.jpg" width="400"><br>
+
+محمد سرافراز، رئیس پیشین سازمان صداوسیما و عضو کنونی شورای عالی فضای مجازی، می‌گوید بخشی از حاکمیت ایران با الهام از الگوی چین به‌دنبال محدود کردن اینترنت جهانی برای عموم مردم و ارائهٔ آن فقط به گروهی خاص و کنترل‌شده است.
+او روز یک‌شنبه سوم خرداد در گفت‌وگو با روزنامه اینترنتی فراز گفت جمهوری اسلامی تجهیزات لازم برای «قطع دائمی اینترنت» را از چین خریداری و وارد کرده است.
+محمد سرافراز توضیح داد که در چین اینترنت جهانی برای عموم مردم قطع است و فقط به‌صورت محدود در اختیار گروه‌هایی خاص قرار می‌گیرد. سرافراز با اشاره به الگویی که آن را «سامانه نیکان» در چین خواند، گفت هدف چنین سازوکاری این است که «روایت حکومت» بر کشور حاکم باشد.
+او همچنین اپراتورهای عضو شورای عالی فضای مجازی را از عوامل پشت پردهٔ تصویب طرح موسوم به «اینترنت پرو» دانست و گفت ذی‌نفعان قطع اینترنت «یک روز فیلترشکن می‌فروشند و یک روز اینترنت پرو».
+@
+VahidHeadline
+پس از ۲۰۴۰ ساعت قطعی اینترنت در ایران، نت‌بلاکس، نهاد مستقل و بین المللی پایش اینترنت، در حساب‌کاربری‌اش در شبکه اجتماعی ایکس نوشت که در حالی که دسترسی به اینترنت جهانی در طول مذاکرات صلح تا حد زیادی قطع است، کاربران منتخب در لیست سفید، تصویری مصنوعی از زندگی ایرانیان را به جهان خارج ارائه می‌دهند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75675)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 19:07:14
 
 
 
@@ -22,7 +216,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-24 17:47:10
+###### 🔵 Updated at: 2026-05-24 19:07:14
 
 <img src="https://cdn1.telesco.pe/file/Xh3DyxA0jIfmRqJecTu_XBywxgOVfqRg2AaUvNe5AapFmIC2_2WwVDNcRhDwxkpW4kIsb36hnKP2xRyU4F-5vXzkMoAXj_GUlN9omo7zWRRcHaO8h989eyv2b93dFLjzibft03_NVmlkZrlryWSDiXUMIA85JhEM1L0TVNNn9iCI0SZ8eAEO7630RwNN0tRWYP3BXpusE_ojyPK6Kdl9jThHXeF7t9o6_rhjCTU7VBVo4K3rPpo9m4Wmcljqaf4qCCHBDmnVrUdWlrCbw_6KnYxZbA_GKWDXuWzP3o_HoXEt1XNULAXQ3fCnlWKJZoC3K1AkSvFkdO6HH3ZW9yZ4dg.jpg" width="400"><br>
 
@@ -46,7 +240,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-24 17:47:10
+###### 🔵 Updated at: 2026-05-24 19:07:14
 
 <img src="https://cdn1.telesco.pe/file/b3jInH-2zpgFhu9eMN26UiKU4PdKUvhmbxwP8te7QxKofjpTQ8y2s6gWhahHZ2uH1r84k7iMr4hVC35n7ZnvRa4KOvEjUbnSUVam5BoX5esPRuaF8WbWEueakhvcXwiUFcoqDuDwxDmudGBcnPRCovYfiTQLtSpXcbibyoaqlR_VcKqSqDW6iKlB02cGsWVaZgGxiAbayIA_wx36aPQ8cB6Riy3NPq9SeQAiGwF0WxIOekUCDQ2FaghSvmTNnG4SGOPHpBbuVGgFc7tSLWsr48T42c4Uil57WRrTYtVUkghDMFwJ5BWVAQlnbp7GQhuYxTrIUNHGSYYSkyezO2ljFA.jpg" width="400"><br>
 
@@ -109,7 +303,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-05-24 17:47:10
+###### 🔵 Updated at: 2026-05-24 19:07:14
 
 <img src="https://cdn4.telesco.pe/file/ltWRvwNWMYWbvoSt6-az_2rm4ylfG07qlgRF3B7qnx99g3PLBcT8tztm8OuZx7knXJJsvSONoFoCwVFR3KbSFX0JXeKiCOCvzVp4hD5miPHZHP4UvIPkGyKhgDu_ZEKhBlemyFCR3KRYifKpMM6JH6dpyBGWb_wg0tv4w-5OyWRsFSfoOgVxkrmjTPbuL5GXJyjppvJmfIKbDqobIE_on6wP4ylftLVTx834kGMngSuvioAXQ-c_R1C7CVX15gBGqGd4XfnykEXOQZmlf_mFghlq7chL_Szs3lfOwyujg3JeXxAMc9uujKKRpDacEA0MpaiUqnABKPVe1A4lE3XxLQ.jpg" width="400"><br>
 
@@ -128,7 +322,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-24 17:47:10
+###### 🔵 Updated at: 2026-05-24 19:07:14
 
 <img src="https://cdn1.telesco.pe/file/pdOsVk93IEZ2RlS2pVWAbyoDYiWKutmDmXGc5e16aptkR_AUb0oc45pBqAXduJM8dSFuz96-JDx70FCv4Uz_65ihafP_Hzmrbuj1yzeiig6AZHalLCMIeCzCasG-YT4JTyT-E9hAoszRr1CmDTxGLjHQCi5qMsrVhQGfTqv8K11YLdJ-yRU48FngVJDEE9MJdcYHYAOLsO7gMPrkbmz5ug9DpFTlBf-mkqHM-TZ_0gsdx8yZYv_1Iq5e8Kdkjk5DrN43LmrUsxxLxulV-L5hUtb-9eJRIDAnN0qLSVxwZ_XT9GwtVi8MLWpNx-MgIatSUq3Rr3m8ZH18CwgGxrVsfw.jpg" width="400"><br>
 
@@ -147,7 +341,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-24 17:47:10
+###### 🔵 Updated at: 2026-05-24 19:07:14
 
 <img src="https://cdn1.telesco.pe/file/Cgz-Nr4KMYa2KtFzgA1xJnsOT0GhKgmCb336K2uwmStLUSsVgXZHQ5K9rbVJeYLcic17AgkH1er_T5ADVB1Wfp923KwlvwxLPZf_UqOnvLU4QjSgWvvEghX60w_LSzu03KxX-Gybqdy9XaFHVOaRyCxSKk-gz1yIIzNvNUTeVBSeAvSPXaDNvu4FFJ--iZ7WBHvyLMpZu-0rmKFfDn3hY5IcvoMzti4vWS1TlvksevfEwBJ1IhI-NF6SKC9KwryoP22Adb4sLVw7EWRpmnKOQ47hlKH02fJwSe1H43gvzm18MP9pACg86EgJgb6bcATG07nrbOOrg0a7CsVotGvWUA.jpg" width="400"><br>
 
@@ -162,7 +356,7 @@ CMShehbaz
 
 
 
-###### 🔵 Updated at: 2026-05-24 17:47:10
+###### 🔵 Updated at: 2026-05-24 19:07:14
 
 <img src="https://cdn1.telesco.pe/file/DiuzKj4qPVSv1TVqdJ-WhvgFtmZyMo0j6tgp2RQs4lWXynVv_sUl-5xg8DWd8ZfT9fL-I0JPhrchfS3sEAEW7JQ68HIFpfL3MN7wt4uWAg9vzY7IgRhkWSUXvZR3ehGgMes0vXGeXTXJMkPPEhC4fZeW5XFk3asCrUG15T7p2FtyKY3_srwyosUvO4ENKZ_BxdQAYI86OQnLmBBRd7DbHO1Z6qnlFnVCLhLjeERiZjb3OnE5sN4dOO4-z8VI1xHJHAbahkMxxC2wHKYtUSkdx-U0EqP3krOPmiTASTHRkWrNv1ouUGJgNlYNur6KkvG5-kK_TqSDbQUcJZdCu9k2vw.jpg" width="400"><br>
 
@@ -174,266 +368,6 @@ LindseyGrahamSC
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75666)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-
-
-شنبه عصر، یک تیراندازی در حوالی کاخ سفید خبر روی داد که طی آن دو نفر از جمله یک عابر و فرد مظنون تیر خوردند.
-سرویس مخفی ایالات متحده، در گزارشی اعلام کرد که اندکی پس از ساعت ۶ عصر روز شنبه، فردی در محدوده خیابان ۱۷ و خیابان پنسیلوانیا، (شمال غربی) سلاحی را از کیف خود خارج کرد و شروع به تیراندازی کرد.
-سرویس مخفی ایالات متحده افزود پلیس سرویس مخفی به تیرانازی او پاسخ داد و به مظنون شلیک کرد.
-به گفته سرویس مخفی،‌مظنون به یک بیمارستان محلی منتقل شد، اما در آنجا اعلام شد که جان باخته است.
-به گفته این نهاد امنیی، در جریان این تیراندازی، یک عابر نیز مورد اصابت گلوله قرار گرفت و هیچ‌یک از مأموران آسیب ندیدند.
-سرویس مخفی که وظیفه حفاظت از رئیس‌جمهوری آمریکا را دارد افزود دونالد ترامپ، رئیس‌جمهوری آمریکا، در زمان حادثه در کاخ سفید حضور داشت.
-@
-VahidHeadline
-آپدیت:
-رسانه‌های آمریکایی هویت عامل تیراندازی عصر شنبه در مجاورت کاخ سفید را «نصیر بست»، جوان ۲۱ ساله اهل مریلند، معرفی کردند که به عنوان فردی با اختلالات روانی و عاطفی شدید برای ماموران امنیتی شناخته‌شده بوده است.
-بر اساس گزارش‌ها، این فرد که پیش از این در ژوئن ۲۰۲۵ با ادعای این‌که «خدا» است یک مسیر ورودی کاخ سفید را مسدود کرده و پس از آن به یک مرکز روان‌پزشکی منتقل شده بود، به دلیل تلاش مجدد برای ورود به حریم کاخ سفید در ژوئیه همان سال، حکم دادگاه مبنی بر «ممنوعیت ورود و نزدیکی به این عمارت» را داشته است.
-گزارش‌های تکمیلی نشان می‌دهد که «نصیر بست» دست‌کم در یک پست رسانه‌های اجتماعی تمایل خود را برای آسیب رساندن به دونالد ترامپ ابراز کرده بود؛ او سرانجام پس از نقض حکم دادگاه، نزدیک شدن به ایست بازرسی خیابان هفدهم و پنسیلوانیا و گشودن آتش به سمت ماموران، در تبادل آتش متقابل با نیروهای سرویس مخفی هدف قرار گرفت و در بیمارستان جان باخت.
-📷
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75665)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn4.telesco.pe/file/q02VmD6ZWlVaQhAWv9493_uWUBfOTeydgqo7gW-oyim7CDwOgdQBkTdXGwbln7PFjBBt63nMeIWBuB2KDwdk9laIunoUEx2qTA8JjMi8ULoPgHjbFE3tJgG3NQxETknGgpggWG9VKooDv1gSKAFFBo42OWEECghOq6Cy-cllpFc_PzE917_6MIVbzLxwX6Zyn-EHFpJDXuL611Zjsp2P8Wuh40OqHA1UvuWfEsuoDu4EcvgyXDB9xelzofpgGeWSxdcBE5p_GASFF6XeaHJQuHRDuZAc_gDWSg7E4br_JpWscREdyozvs56h0MxvjHC0pfcmnQsfQeUAvOwh17xxyg.jpg" width="400"><br>
-
-فارس، خبرگزاری وابسته به سپاه، در واکنش به پیام دونالد ترامپ، رئیس‌جمهوری آمریکا مبنی بر نزدیک شدن به توافق با ایران و بازگشایی تنگه هرمز نوشت: «این ادعا نیز با واقعیت‌ها فاصله دارد».
-فارس در ادامه نوشت: «برخلاف ادعای لحظات قبل دونالد ترامپ در شبکه اجتماعی تروث سوشال مبنی بر بازگشت تنگه هرمز به وضعیت پیشین و آماده‌سازی برای امضای توافق‌نامه، پیگیری‌های خبرنگار فارس نشان می‌دهد که این ادعا نیز با واقعیت‌ها فاصله دارد؛ چرا که بر اساس آخرین متن ردوبدل‌شده، در صورت توافق احتمالی، تنگه هرمز کماکان تحت مدیریت ایران خواهد بود و اگرچه ایران موافقت کرده اجازه دهد تعداد کشتی‌های عبوری به میزان قبل از جنگ بازگردد، اما این به‌هیچ‌عنوان به معنای تردد آزاد به وضعیت قبل از جنگ نیست و مدیریت تنگه، تعیین مسیر، زمان، نحوه عبور و صدور مجوز، کماکان در انحصار و با تدبیر جمهوری اسلامی ایران خواهد بود.»
-خبرگزاری سپاه در ادامه مدعی شد که برخلاف شروط پیشین ترامپ مبنی بر گنجاندن برنامه هسته‌ای در توافق، «هیچ تعهدی از سوی ایران داده نشده و پرونده هسته‌ای اساسا در این مرحله مورد بحث قرار نگرفته است.»
-فارس همچنین ادعا کرد که «مقامات آمریکایی در پیغام‌های متعدد به ایران اذعان داشته‌اند که توییت‌های ترامپ عمدتا جنبه تبلیغاتی و مصرف رسانه‌ای در داخل آمریکا دارد و توصیه کرده‌اند که به این اظهارات توجهی نشود».
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75664)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn4.telesco.pe/file/twpmWhQNneJcTP14J-QmVHRBJPd0YQdNV0dX3iC_YkLgiQVZkYZf01fucl8gX2I9EHR9McuepOfaeY8yBXhB9mcA7DC3drV__Mh5Jqf9flesn1t8dy8JbV0miVyhJCwPRPE7PclN3GVh6NxHHB7qhi5ODkXvBZJiLWGSjVuR_CeYJFuCDxZ6c6sWjHlMxN9aMNKFCfYUSz34T-Q-Kx7wCcYzIj6suLcl2a2FetUTLJa1zycjZY4aRlybVekVc4KpgLjnH7BLADIOEEonRFZ2OKidb7RGSY4oXrMGUS7W2s-QnqszYqmhSpJzccFs71TYnkw5iN-vLkLrw6Qxjx1vCw.jpg" width="400"><br>
-
-خبرنگار الجزیره به نقل از «منابع خود»، مفاد کلیدی پیش‌نویس توافقی را که قرار است میان واشنگتن و تهران نهایی شود را اعلام کرد.
-خبرنگار الجزیره مدعی شد، توافق پیشنهادی شامل «پایان جنگ در تمامی جبهه‌ها از جمله لبنان»، «آزادسازی چندین میلیارد دلار از دارایی‌های مسدودشده ایران»، «رفع محاصره دریایی آمریکا و بازگشایی تنگه هرمز» و همچنین «عقب‌نشینی نیروهای آمریکایی از مجاورت مرزهای ایران» است.
-پس از اجرای این گام‌ها، طرفین یک مهلت ۳۰ روزه، که با توافق دوطرفه قابل تمدید است، خواهند داشت تا درباره مسئله هسته‌ای به توافق برسند که در طول این مدت نیز تردد از تنگه هرمز تسهیل خواهد شد.
-به گفته این خبرنگار، از نظر ایران، مدیریت تنگه هرمز یک موضوع دوجانبه میان تهران و مسقط تلقی می‌شود و گفتگوها در این زمینه با عمان در جریان است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75663)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn4.telesco.pe/file/tFwrnWn0-dHCSgoktSeMAUyub92ujDYUYO1S48PdLWowd5bnsfK60pwObDB3yZXuI9D6xFCtgbs9ys3eyP9_rJsyKUFvwtUvd51aps2BT5STsSlmBFuz4aadAyGgmrRgEPblOHrKRpHKfyHzbQrt6ChfvIIcd7vYLKBttEALIfuK-rEUvcD02Mt-mTgM2Xo-OH-QNJiwpDdLbEw1J338OpigVsqwvTauSIdpqBlcDIZTNBfuJgZbMdgVLvDK7459Lho6Vs0ojvJwxi_jdN5nVGmQcgnze8c6V3Nf8pWbb8wZg5M-oalw8UztKjorH3dnwibdAxB92tKv7UyRSa3wYA.jpg" width="400"><br>
-
-«یک منبع ارشد منطقه‌ای» از جزییات گفتگوی رهبران کشورهای عربی و مسلمان با دونالد ترامپ خبر داد.
-خبرنگار آکسیوس نوشت: «یک منبع ارشد منطقه‌ای به من گفت که تمامی رهبران عرب و مسلمان حاضر در گفتگوی روز شنبه با ترامپ، از او خواسته‌اند تا برای پایان دادن به جنگ و مهار تنش‌ها در منطقه، توافق را پیش ببرد.»
-این منبع تاکید کرده است که «پیام همه این بود: لطفا به خاطر کل منطقه، جنگ را متوقف کنید.»
-به گفته این منبع، مذاکرات به خوبی در حال پیشرفت است و میانجی‌ها امیدوارند روز یکشنبه یک توافق چارچوب یک‌صفحه‌ای را منعقد و بلافاصله آن را اعلام کنند و پس از آن، قصد دارند ظرف چند روز مذاکرات را برای دستیابی به یک توافق دقیق و پرجزئیات آغاز کنند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75662)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn1.telesco.pe/file/OCQYzOuLM7dkztg1hmeABttCbWDFDTJ3FiMau-xnS5VaLGC15nOTrkyqPANZ1GJGspk2MVXQnd-rxQ-hjVrsAWI-k7pMufCB11jtgRYFqFU5WA5wynFHLQMkDBAEytB6NxADtJp9znAgS_6fcRo5SQVuh20EWLnXMCRJqPatPhx2jQZcjpLBrONw3Ok5JJsSp75TRR-KeiGfL47jca7AhT-Blj0FmgSrdJFgGVmF30mAt1mV_tMooYk-kVvpvITj_SFdQ3Q2OJ404I-0pSK3x0P23iDyteHfIkOYFfjkTEhXCdSCOMammyJM0dtzxI5nVuCFZFTnyh8Xf9DGfWiFXw.jpg" width="400"><br>
-
-☄️
-ترامپ: یک توافق تنظیم شده و اکنون در انتظار نهایی شدن است
-پست ترامپ، ترجمه ماشین:
-من در دفتر بیضیِ کاخ سفید هستم؛ جایی که همین حالا تماس بسیار خوبی با
-▪️
-پرزیدنت محمد بن سلمان آل سعود از عربستان سعودی،
-▪️
-محمد بن زاید آل نهیان از امارات متحده عربی،
-▪️
-امیر تمیم بن حمد بن خلیفه آل ثانی،
-نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جبر آل ثانی و وزیر علی الثوادی از قطر،
-▪️
-فیلد مارشال سید عاصم منیر احمد شاه از پاکستان،
-▪️
-رجب طیب اردوغان رئیس‌جمهور ترکیه،
-▪️
-عبدالفتاح السیسی رئیس‌جمهور مصر،
-▪️
-عبدالله دوم پادشاه اردن،
-▪️
-و حمد بن عیسی آل خلیفه پادشاه بحرین،
-درباره جمهوری اسلامی ایران و همه مسائل مربوط به یادداشت تفاهمی در ارتباط با صلح داشتیم.
-یک توافق تا حد زیادی مذاکره شده و نهایی شدن آن منوط به جمع‌بندی میان ایالات متحده آمریکا، جمهوری اسلامی ایران و کشورهای مختلف دیگری است که نامشان ذکر شد.
-▪️
-جداگانه، با نخست‌وزیر بی‌بی نتانیاهو از اسرائیل نیز تماسی داشتم که آن هم بسیار خوب پیش رفت.
-جنبه‌ها و جزئیات نهایی توافق در حال حاضر در حال بررسی است و به‌زودی اعلام خواهد شد. علاوه بر بسیاری دیگر از عناصر این توافق، تنگه هرمز باز خواهد شد.
-از توجه شما به این موضوع سپاسگزارم!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75660)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn1.telesco.pe/file/KYsgrZ-fZAmJHrm5La_Pi5JK54B9WD6lpgJI4MjYAVW9x2EldPROqiUbbK-_ovEyvgqXradvzCF1vDuRNyagHWKhJtpY7OyrDywHHmlTysrBsfngR-04StIL3E6wjuy8Bj5Fhi5f7Ea7PgzBBi2HJnJn_kYPCxJMZ6Uk0s1Nqw5PaAK-6IIVRo7t98vXu6fHQddzy3FO-QNOwg_41sxnCUpDVAcjKTRbR7wHX8m5uNR_u7jLwpUrvnenl2sjJDCedWbi8NiBHmcp2_62vJN4kXSozUhMrGxKJKrqIWqv5MggeUcE1rvNaIwGHi-73ucRgAaRlzTHFQ3OQGs7GcLI9w.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، روز شنبه دوم خرداد ۱۴۰۵ در تماس‌هایی جداگانه با رهبران عربستان سعودی، امارات، قطر، مصر، ترکیه، پاکستان و فرانسه درباره توافق احتمالی برای پایان جنگ با جمهوری اسلامی گفت‌وگو کرد. همزمان یک مقام آمریکایی آگاه از روند مذاکرات گفت واشنگتن و تهران به دستیابی به توافق نزدیک شده‌اند و اختلاف‌های باقی‌مانده عمدتا بر سر نحوه نگارش برخی بندهای توافق است.
-به گزارش اکسیوس، چند تن از رهبران حاضر در تماس با ترامپ از او خواسته‌اند مسیر دستیابی به توافق را دنبال کند. با این حال، این مقام آمریکایی تاکید کرده است که هنوز تصمیم نهایی از سوی رییس‌جمهوری آمریکا اتخاذ نشده و او همچنان می‌تواند توافق را رد کرده و دستور حملات جدید علیه ایران را صادر کند.
-همزمان، جی‌دی ونس، معاون رییس‌جمهوری آمریکا، و پیت هگست، وزیر دفاع این کشور، برای شرکت در نشست ویژه بررسی توافق احتمالی به واشینگتن فراخوانده شدند. ترامپ پیش‌تر گفته بود پس از بررسی آخرین پیشنهاد ایران با تیم مذاکره‌کننده خود، احتمالا تا روز یکشنبه درباره ادامه مذاکرات یا ازسرگیری جنگ تصمیم خواهد گرفت.
-به گفته منابع آگاه، پیش‌نویس جدیدی که قرار است ترامپ آن را بررسی کند، حاصل مذاکرات اخیر میان ایران و پاکستان است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75659)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn4.telesco.pe/file/DOl2XjDTv6dYBldMxj7ETajcN8PRlGQclLBUitNwVHkouQhF3sLCLdMRQu0Suo1_knDdmzg2wGtqozBp4TRLxXfTS6ubbcNdDKbxaQPYTQ1Ll5WGrjBGa_qv4kiSHbZ6otzE4IUI7uNCsLKfwkKBO6R4paYmkfWCSb28C5-1mAGsPOjLryZ4tAoz_rnUgO_Z8hc0czSmc96wseIp535FwqRO3zvwZqVypVrtJVVoZ1BcjrKB3kcwOE_ExLPE9_c3NJebjt_IQx74_azhdMXxD_nYSUur67MJ18DdAx-3Q59yZa8-Ino51Km1ckJEmKlBjWuX6MieK3v7KdZAzzxHkQ.jpg" width="400"><br>
-
-شبکه ۱۳ اسرائیل در گزارشی از روند گفت‌وگوهای ایران و آمریکا گفت مقام‌های اسرائیلی معتقدند ایالات متحده و ایران به دستیابی به توافق احتمالی نزدیک‌تر شده‌اند و گزارش‌های اخیر و اطلاعاتی که دریافت می‌شود، «در اورشلیم به‌طور فزاینده‌ای معتبر تلقی می‌شود».
-بر اساس گزارش این شبکه، مقام‌های ارشد اسرائیلی گفته‌اند پیشرفت در مذاکرات برای بخشی از نهاد امنیتی اسرائیل «بسیار ناامیدکننده» است، به‌ویژه در شرایطی که به نظر می‌رسد تلاش واشینگتن برای رسیدن به توافق در حال تشدید شدن است.
-این مقام‌ها همچنین معتقدند فشار برخی مشاوران رئیس‌جمهور ترامپ در روزهای اخیر افزایش یافته و انتظار می‌رود بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در پی این تحولات، نشست‌هایی مشورتی با وزیران ارشد و مقام‌های امنیتی برگزار کند.
-نهادها و مقامات رسمی اسرائیل هنوز این گزارش را رد یا تأیید نکرده‌اند.
-ارزیابی اسرائیل در دو هفتهٔ گذشته این بود که ترامپ خواهان توافق است، اما در نهایت به دلیل اختلاف بر سر مسائل کلیدی، موفق به دستیابی به آن نخواهد شد. با این حال، مقام‌های اسرائیلی اکنون معتقدند روند کنونی ظاهراً برخلاف چیزی است که اسرائیل در هفته‌های اخیر برای آن تلاش کرده بود.
-این گزارش همچنین می‌گوید چارچوبی که دربارهٔ آن گفت‌وگو می‌شود، شامل یک توافق موقت ۶۰ روزه خواهد بود که ممکن است بعداً در حالی که مذاکرات درباره توافقی گسترده‌تر ادامه دارد، تمدید شود.
-روز شنبه مقامات ایران و آمریکا و همچنین پاکستان که نقش میانجی را بین دو طرف بر عهده دارد، اعلام کردند که در مذاکرات برای پایان دادن به جنگ پیشرفت حاصل شده است.
-روز شنبه، روزنامه اسرائیل هیوم نیز در گزارشی ادعا کرد پیش‌نویس توافقی که روی میز قرار دارد، شامل تعهد اولیه ایران به خودداری از توسعه سلاح هسته‌ای و تعلیق بلندمدت غنی‌سازی اورانیوم است و سایر مسائل، از جمله سرنوشت ذخایر کنونی اورانیوم غنی‌شده ایران، در مذاکرات بعدی در دورهٔ آتش‌بس بررسی خواهد شد.
-این روزنامه همچنین به‌نقل از منابع آگاه که نام‌شان را نیاورده، ادعا کرد «رهبری سیاسی ایران پیش‌تر با تحویل اورانیوم غنی‌شده موافقت کرده بود، اما فرماندهان سپاه پاسداران با این اقدام مخالفت کردند و تصمیم‌گیری دربارهٔ این موضوع اکنون به تأیید رهبر جمهوری اسلامی بستگی دارد».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75658)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn1.telesco.pe/file/IGqjz8RKWounAZMYKlKK93Gj_jP31597EzqhNDbPWc2BSQngrXQliyCbfO_UKqR5yAQiVfvpohfZCrPV0APFQL71w0V3QY8pJHaZ3CiV7JjdDw1CzMSgZ-P7BxvnbWOv-ZWt34e0lnIJvqTtmH7W3QJiKQK0Xete3SIbq7JBPC-sx5gig50UjNzNgRaWYUmkkwa_THnVO9Mvih04mVzStxgr_OWcv27CKwNTbZoCtcCqbo8FVcEgKQ45nvdUHmDGSxvAaO-jNMFeJKwLleHMboUp4ayn3hMgGStGgzp7I3FLDaMxiIz1qoixf_ox9tx7lSFmBc_jyXgp-iM1rfI5rg.jpg" width="400"><br>
-
-خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه و نزدیک به تیم مذاکره‌کننده، با تاکید بر اینکه اگر آمریکا انعطاف نشان ندهد، مذاکره شکست می‌خورد نوشت که موضوع هسته‌ای، پول‌های بلوکه‌شده و کنترل جمهوری اسلامی بر تنگه هرمز، سه موضوع اختلاف جدی در مذاکرات است.
-فارس نوشت که تهران اعلام کرده که در این دوره وارد مذاکره درباره موضوع هسته‌ای نمی‌شود. تنها در صورتی که طرف مقابل شرایط اعتمادساز را اجرا کند، در دور بعد درباره مسائل هسته‌ای صحبت خواهد شد.
-رسانه سپاه به نقل از این منبع نوشت: «پول‌‌های بلوکه‌شده باید واریز شود؛ شرط دوم و اساسی برای ورود تهران به مذاکره این است که پول‌های بلوکه‌شده ابتدا واریز و آزاد شوند. بدون این اتفاق، اساسا وارد مذاکره نمی‌شویم.»
-در ادامه آمده است: «اختلاف دیگر بر سر نحوه عبور کشتی‌ها در تنگه هرمز است. آمریکا تاکید دارد که تنگه باید کاملا به شرایط پیشین بازگردد، اما تهران می‌گوید فقط خود را متعهد می‌کند که تعداد کشتی‌ها به وضعیت قبل بازگردد. معنای این حرف آن است که حکومت ایران با مدل خود، تعداد کشتی‌های مجاز برای عبور را تعیین می‌کند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75657)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn1.telesco.pe/file/kDrnWO5WXSGxMJ4J-oXMyXdt5XGrAMNNFCVge7bYU6xwYaTv2fTbdqt2EgeD79qFM5mh_T3_ZHwudqDwpb5IB51BAeFg_37BYhHjGRrtBP7taLfUiVtbOVxAYFKO3-mwx0c2T63pgXd9ltGMndaQNevLfdl2O_ckSP7mBnMMzO2H2EazAiP_etcKtIYl2fzVhY0eY1waQYfhHZ5rPwPOlJvW60Xoztj5J11ovdIZs1ABbrt8d1ANxSrvTDxvLJezNlddm65JzQffMVre7CWNlz6V3onUEbUeDFxRRbTQue_C0HuyB24OgbMnKpsRerVjsamiToBiyew3OHQ_3krtSQ.jpg" width="400"><br>
-
-ترامپ: به توافق بسیار نزدیک‌تر شده‌ایم
-ترجمه ماشین:
-پرزیدنت ترامپ به شبکه سی‌بی‌اس نیوز گفت مذاکره‌کنندگان ایالات متحده و ایران برای نهایی کردن توافقی که به جنگ میان دو کشور پایان دهد، «بسیار به هم نزدیک‌تر شده‌اند».
-منابع آگاه از مذاکرات به سی‌بی‌اس نیوز گفتند تازه‌ترین پیشنهاد شامل روندی برای بازگشایی تنگه هرمز، آزادسازی بخشی از دارایی‌های ایران که در بانک‌های خارجی نگهداری می‌شود، و ادامه مذاکرات است.
-آقای ترامپ از ارائه جزئیات درباره این توافق خودداری کرد، اما گفت که «هر روز بهتر و بهتر می‌شود.»
-آقای ترامپ در یک مصاحبه تلفنی به سی‌بی‌اس نیوز گفت: «نمی‌توانم قبل از اینکه به خودشان بگویم، به شما بگویم، درست است؟»
-👈
-آقای ترامپ گفت معتقد است توافق نهایی مانع دستیابی ایران به سلاح هسته‌ای خواهد شد و افزود که در غیر این صورت «اصلاً درباره آن صحبت هم نمی‌کرد».
-👈
-او همچنین گفت این توافق باعث خواهد شد اورانیوم غنی‌شده ایران «به شکل رضایت‌بخشی مدیریت شود.»
-👈
-او گفت: «من فقط توافقی را امضا می‌کنم که در آن به هر چیزی که می‌خواهیم برسیم.»
-منابع به سی‌بی‌اس نیوز گفتند آقای ترامپ هنوز در حال بررسی پیشنهادهاست و هنوز تصمیم نهایی خود را نگرفته است. این منابع گفتند او با مشاوران خود رایزنی می‌کند و با رهبران خارجی، از جمله رهبران عربستان سعودی و دیگر کشورهای حوزه خلیج فارس، گفت‌وگو دارد.
-آقای ترامپ گفت اگر آمریکا و ایران به توافق نرسند، «با وضعیتی روبه‌رو خواهیم شد که هیچ کشوری هرگز به اندازه ضربه‌ای که آن‌ها در آستانه دریافتش هستند، ضربه نخورده باشد.»
-آقای ترامپ پیش‌تر ایران را تهدید کرده بود؛ او پیش از آغاز آتش‌بسی که در ماه آوریل آغاز شد، گفته بود بدون توافق «یک تمدن کامل نابود خواهد شد» و اخیراً نیز به این کشور هشدار داده بود که «ساعت در حال تیک‌تاک است.»
-مارکو روبیو، وزیر خارجه آمریکا، نیز روز شنبه گفت ممکن است «بعداً امروز خبری» درباره وضعیت مذاکرات میان ایران و آمریکا منتشر شود.
-روبیو پیش از یک شام رسمی در سفارت آمریکا در دهلی‌نو، هند، گفت: «پیشرفت‌هایی حاصل شده، همین حالا هم که با شما صحبت می‌کنم، کارهایی در حال انجام است. این احتمال وجود دارد که چه بعداً امروز، چه فردا، چه ظرف چند روز آینده، چیزی برای گفتن داشته باشیم؛ اما همان‌طور که رئیس‌جمهور گفت، این موضوع باید به یک شکل یا شکل دیگر حل شود.»
-CBSNews
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75656)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn1.telesco.pe/file/cs_JOYsND-XFbsHf0jzhrl56DkiQ8BfdWUjuE8lDY4CEvyDWrRpCV1KcR46KYdqFGQHlYUUxh5d75z_vJhHVZz1-TEIoB8h2BRRxoV3U_pOLkZVYBZnCLv7oPe_FbJIYtu7PQybqT3XUy7uwe3HwCRVCWtbw3-gDztPBUtzIPgDLvIQ6510D-OYG-q4eJ7gyTzlKoqK5TGxet1k3bc7CNbOHk18OfPaQgWw9x5Y-Q8jQTMx_MaB53pKM2y8HMv03gPiNoHFlc3_2DXfNd6YnLKSpoRADbHxIKBG8be1VvJAub4PNO6dUmYLNgAfBPfUJYGHMZI5_lNg3k-fuVdph3Q.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز شنبه دوم خرداد در گفتگو با آکسیوس اعلام کرد که اواخر امروز با تیم مذاکره‌کننده خود دیدار می‌کند تا آخرین پیشنهاد ایران را بررسی کند. او افزود که احتمالا تا روز یکشنبه درباره پذیرش توافق یا از سرگیری جنگ تصمیم‌گیری خواهد کرد.
-ترامپ شانس دستیابی به یک توافق «خوب» یا در غیر این صورت، «نابود کردن کامل آن‌ها» را یک «۵۰-۵۰ محکم» توصیف کرد. به گفته او، قرار است اواخر روز شنبه نشستی با حضور استیو ویتکاف، جرد کوشنر و جی‌دی ونس، معاون رئیس‌جمهور، برای بررسی پاسخ اخیر جمهوری اسلامی برگزار شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75655)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 17:47:10
-
-<img src="https://cdn1.telesco.pe/file/Bli7-_wiNUCASYqgcNsq4tLWhLDGeP1g9ke-OydpX895Wd6cDUdel5ga9xG7CIZgZBHWlLk8U8wgXb05zA7aHo18MS5_V4oQEeS2mfum6FSpMyR2mMq7I4Em9jKykrjsdpDjNLobkyfOVnJlmLF-FjHOh5p5cEvL-CmQ_jKHde4vwOFESm0z2XIn6R7LrpRULbDVDOi81_Yo9voWN8d9D6PiO0Ufyl61HPalv_OPRT31p86qiAtJRA_qFCKX-YQSAZ4yqsHYjkz4_k9dgbGaZlOLAsUoyGNUkyyeAK_CLh9-IBKyup2gxwhe6bXVez_QU9yOdmJYtL92twrxdiumbg.jpg" width="400"><br>
-
-خبرگزاری تسنیم، رسانه وابسته به سپاه، درباره روند مذاکرات تهران و واشینگتن، با اشاره به اینکه هنوز اختلافات جدی در بعضی از حوزه‌ها مانند تعهد واقعی آمریکا به آزادسازی اموال و موضوع تنگه هرمز وجود دارد، نوشت: «با توجه به زیاده‌خواهی‌های آمریکا، احتمال عدم حل موضوعات بالاست.»
-در این گزارش آمده که در صورت حل موارد اختلاف، احتمالا در گام اول یک تفاهم اولیه اعلام شود و سپس مهلت ۳۰ یا ۶۰ روزه برای گفتگو درباره موضوع هسته‌ای (بدون تعهد اولیه جمهوری اسلامی) اعلام شود.
-تسنیم نوشت که آمریکایی‌ها در متون پیشین خود تاکید داشتند که تهران در همان گام نخست باید امتیازاتی در بحث هسته‌ای بدهد و موضوع تعطیلی تاسیسات هسته‌ای و تحویل مواد غنی‌شده به آمریکایی‌ها از جمله مباحثی است که مدام در متن‌های آمریکایی‌ها مورد درخواست قرار می‌گرفت اما حکومت ایران اساسا بحث درباره جزئیات هسته‌ای را در این مرحله رد می‌کند.
-بر اساس این گزارش تهران بر ضرورت پایان جنگ و تهدید در همه جبهه‌ها از جمله لبنان تاکید دارد. و این موضوع باید مورد پذیرش طرف آمریکایی قرار گیرد اما آمریکایی‌ها در برخی از متن‌های پیشین خود با این موضوعات مخالفت کرده‌اند.
-@
-VahidOOnLine
-خبرگزاری تسنیم، وابسته به سپاه، به نقل از یک منبع مطلع نوشت که خبر العربیه درباره اینکه تهران پیشنهاد تعلیق ۱۰ ساله غنی‌سازی اورانیوم بالای ۳.۶ درصد را مطرح کرده، «از اساس کذب است».
-تسنیم به نقل از این منبع با تاکید بر «ساختگی» بودن خبر العربیه، نوشت: «اساسا تمرکز پیام‌ها و گفتگوها در وضعیت فعلی صرفا بر روی مساله پایان جنگ است و هیچ جزئیاتی درباره موضوع هسته‌ای مورد بحث قرار نمی‌گیرد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75654)
 
 ---
 
