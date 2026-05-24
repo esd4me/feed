@@ -3,7 +3,41 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
+
+<img src="https://cdn1.telesco.pe/file/as5Wf7NZS7UDgk9Zg3cVVqqAslT47izpdptGmAryLTK00mCEcgiXC-wDSdJWF7l3gBJLPgrPZBrwADgPDWUmsFnG30Iio7dcbc3bZic5_r6zXhwfx3tszQ8za24iOcUBuSqHd86zR860bi9WTrWlDjV4cq3RJJsgIaTiFgy883gc2lpsNcCR0p6tV8K5pmHir8Y6uYgK8wWqjqkhA2QT7h4Dq5PVx4HhpTV79vWwTTP-OgQNEd-MP16im7r6il5s6DGGlQorIDbHFw-mmpD51K1wf8Rk2vKmDvm1gQoCKUo1lHchDWyx5qWJIf87_ZhQjKLGDeWQcdIh4T78KN1ykw.jpg" width="400"><br>
+
+پست ترامپ
+روی تصویر بمب نوشته: از توجه شما به این موضوع سپاسگزارم.
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75689)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 23:26:36
+
+<img src="https://cdn4.telesco.pe/file/AKmWoksu5ovNrRgZT029jq0OTWDKb8C_gaN7koTwoVMyRSdrsuSfO_Pi9OadJau1-s0VuslDwSaxZG7wyM0fskrZf_hIDPigQZWB0nzpZPQkVFASlzoJ_EWL66mux9Br-ZmHRiJCZpgSDqdc83WYlRuVXYcZotCH3dXLuuspiP3lzY_ms5WPeL7IH7KQezZStX8Up7xwHEIOiQGB3jcjGJQ6BDw5VRii_vL5hpFxl08Q11df-rJVApwSYBAezGjCY0kCuH9nzsdK2tctYd3jDts6cWIuBrKQtHvO753IduARUDa4zJFSObBaEBVuxM3aLlU3fSWvNcKrzn8NbPQYqg.jpg" width="400"><br>
+
+مارکو روبیو، وزیر خارجه آمریکا، در گفت‌وگویی کوتاه با نیویورک تایمز گفت: «ما موضوع را به بعد موکول نمی‌کنیم. مذاکرات هسته‌ای مسائل بسیار فنی هستند. شما نمی‌توانید یک موضوع هسته‌ای را در ۷۲ ساعت و روی یک دستمال کاغذی حل کنید.»
+او افزود: «در حال حاضر، هفت یا هشت کشور منطقه از این رویکرد حمایت می‌کنند و ما آماده‌ایم این مسیر را ادامه دهیم.»
+این در حالی است که آقای روبیو ساعاتی پیش گفته بود که ممکن است تا شامگاه یک‌شنبه خبری دربارهٔ توافقی با ایران اعلام شود که می‌تواند به‌طور رسمی به جنگ خاورمیانه پایان دهد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75688)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/mXBiINj3Ppd0PGyNQv3ZMGOOGd3NQL2gr6FCBwfkjRaYhe01MhXCKDOc2F9ByxStLWp81Dqu42SIz5ZO52YSZFFY4G6Hvq0gTOvdApCLgFLMsMkNuGxJfZo705pSRiiCOl1t-_YvMISeO-fyPoqvIa_Og9RRtn9Fu_htUERsXWriGerk0QHFQ1a1r9XKCNIul4FNWorZZBSNJ6TeUJXZXOlneBUAhOwD3Tl2PisJ_5mBvtN1A2l81--GS5rQLfwgvqE7Y8EHTrG_DgMOxCFW2ELSMs_gKCx3R_RZOyzGj6WZn_qeUJf-w0rn_6K-C6dLIooRTVGWU0wZV1BzficODQ.jpg" width="400"><br>
 
@@ -25,7 +59,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn4.telesco.pe/file/tfcyTzTzH1KPt1gjV8eLUGzal-ffX4NYzUZKtNidIVvIcfqR9MPItJeM_9aoBrIVqIOzQJvmvSUDDLVGqAs_JyaJSqGEgUMuj09eNOQ-RiWU6if1paMtadZiu8NDb4tIPqto2QalRJGTgr8Vo4UHnQIGSN2lEXv3mS68lbNaQyjisDmKAI99PdR21PcgysObxU0bR_kePPa2Wv2ZEMew62f7yHhOf_mUmAsZf9QGzvSg6gdq7sLeDnnyZMM_fBxsWnhk41Up7cikABuOgUElXXLEGSdpb7zqNSpJX_zzzzOEGYHwBJ2gokgPLXHGi6MaCGQkog9ZBqM1TvdV-E65Xg.jpg" width="400"><br>
 
@@ -44,7 +78,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn4.telesco.pe/file/T8SXLZ3ljEXBWtCv6I1i-0OF9B9bO7CPHmvVLI-OjPArpvvUZc0DjcA5Iz6miUwGxct3nhnivu0-Ceru1cZ1hIaWxBCOHagt7VvYyml0c_pX3OgrupHxm-lgCxNVx5PVbLJtOetrf5e75w2vS02NeKJQRv2U0EYDHvY7WSdBK0IDG-8LeZbyLNy6r1ddaJVA9VGbuUXL7P1UaqJSHGLnh9kwpdVvc6VzybOdsrY1UNJTpT7rzwGGkSySUvd_mR6lehOgeFRjBA0dcI1-l73si4N4KcusNlHHmKxJDKWAdtmdFzlZMVfY6Lise_2k3Fn1_EWHD1D6v3lQ-uN3u1oSIw.jpg" width="400"><br>
 
@@ -63,7 +97,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/OL8ZCMzzB_KhdWHNaUoRyGc40cNp8NRT6QNrFdcSh_ESjPBG78H6Ird5btjInEeNz6k0KaCuMjsARdhYIgg4MkraUWzoapUCQWPMQ2y13vjj15jxVufi9FDekg8SHTH6_UaOZdoQEUZLIGPuZ91v8hcLU7pGdxHxvt7qVtoKYXl839eFUL66TAZyoQmvQ4NSaMBGEArNX6Cf7z625X5FJykfRDtGtWec_DVrqz7GUoD8IQoKtcr-r0I_dMTMU6z_PzdjcoHk7OHPM20HpM-165VDAYBWt5rn-NrL4oNkdL4r9dLhYLhuonyrmSWPm_ROA6WW0Q4QDBg8YMahezkITA.jpg" width="400"><br>
 
@@ -82,7 +116,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/SC_HKxC9by7A7fMDpn1w514SHGeJNzuG3umLVU0KTGEaG8LV6l42ZACiMR4J5nyZ-9UpCjXHs5ZmL1-Q0KsWEtSc_cw90KwF8_B9zbzwsgAmIwjbKw1HR2K4kkHbKCSTc3N52QMpuUzF9O14N8bowxJ8wAYL68Owr4Q1fpr_h83NSMt580r8UZCuExZO8J5CofLfVelep94iMTxiirnQWnk69wG4m44kYH_kftLXHmCbf7gCQlFjCCkSl_jCR5bspLAs0OuICFupP1Ap35wuaElHALlD8y23E78Uq8XrLQvX915phxadMIz3JlW23aMCJ9KAESO6Ay9KpOfOD3MX5Q.jpg" width="400"><br>
 
@@ -102,7 +136,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/I-rynD_ZFvuCB5z_Qvh-Hv8DBs1sieGRSO884eyUkJ104HAuiKYDzXPUSobt-7VFanSL-R0i7WOQ_PnhpaJN7gAANsfboWIhu4IRCZCNJrufQ33TyYURfrKzeB-dQ-wWteTddn-J4GHSfnaL_1sCRyAdnZbwYpsw67fQx6GpaVfQ-yJWqzOCYi0pdnR9TVFqb1u_q2-Q3l6oBLB4zy3jAmJ0Ed1wYqvSNcmuD2NUXb9elqXzbaBFoapGHIsjrQQqwWFwh1ClqsWy2xoGuiEh4RYSYXkkF7HhGivgT_qJdY91WpQ-j0iemtzNj75b4amCoDz5O3oqhTlDhrI10h0Y4A.jpg" width="400"><br>
 
@@ -122,7 +156,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn4.telesco.pe/file/lgIHtMVyaGQdRSPsfwz40Hy2aamEPgeMgtAFPZOq-9VV0A6kwIhwuJgQ7V-huCeMQgbGl9jrxlfoxzn_FNC173EflOofwuPSu5_FJNvB96aMaUZ06AyIfTZE7Lf96_ibBpGMBOZBOOWDM17UH6BD0dNzPnONkSVcfGhsBS6vpgEeETdZm6i4dFWDlp_oKTe7z_TGT7Ez7SLFAaPGYfAMPiuNr01SqkS2lD4GbgM6aXgGoNLJkPydQoR2MyePj5VEvPqYtDTHWrW2X0-ytT4rxNgUW_NJfgZMBow6i0WJ9Eb0epox5sc_SFcVIseoqiKr-AfBkZ68JRgLnCqoanXslA.jpg" width="400"><br>
 
@@ -145,7 +179,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/dOLxUFIaUWWk6w6Ii6X4vmw0q5pdnUuwWVYbZUP43BIlbue_mubWi5Xbb7ZEAMdtmtV4uMQBtleg7YFXwGzltHxsW8yY7mitXpZEnwmJwojbkyOdpmaDPQRJ1VZlsE1snlQH_D5xqQq6eRDpMq_JI3RFe3e2csG30mMbS7mWEI_VdqAZbsoe8gxHY07YtgzEyj6XMHKb1Yj_viwoPv6FlG4gTlVpVTnBham43PzK3Iy9m34S_HRVSYaXqIecSKzV3E49JLI69no6DtNCT5MYntfgPu4mWEV4HxVqzX2z-WvZtp4WOYkZ-EFSaslTI8gJW7zHEJJMsskp25Y_LHc7nw.jpg" width="400"><br>
 
@@ -167,7 +201,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/BQCs6-SzeXEDPt0Qv7gGQG0kyTHmYtrmTOJn7p6a8UaCmYT7HPaq14GGAZn8RD4ULRNBUaa_rzubpXuiv6F9SW-nUe0-KSes6nxla-e5VIQWNlsn_6KF_VPBD5yjHQe6F3H66olD8tbuxzNER2O_NuI_BsN4UH4TJCw9jPOfD29Vydey4GYeB8cTeKVbyk-G_r3LBJOqi1uNH-dWDQBg0DqRKS5EHTCA2wTl_dcHH1OqS6nvKimERw7tHadSTrT2UYxd0Z_qFpd9-JY0J7pWi2wAM_cCjdyhlLHCdLnuMJRq1qO-a4_OmrFnnCnrZDr28OoNLX2rF6keH1f64pJw2g.jpg" width="400"><br>
 
@@ -197,7 +231,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/pw_qbBn-biCp7yzUz0FW5OlwKwEgiTPzNQY2TfAO4_kw2GBw6hrfNJzmSIt0ACBW8_AMtmRSfB6yN2zDbcxXHCjIj4zb4Dm5yvEzOfZDeTTi-vANKOPLlENJ2fpOorIYsLI258feK57_CS3o4YzZDiZbtEr3tGqh2AF0LTX9zY5lMH3jx503xaNi3Jxs2qQGtsMsrGlsk0l7nH728tTeLsKqu1gO8exgXhCwKa3JSKIEm9CI6CfaQdzOSu7KlPXLt-4YTo0K4btPfse2k7yQrOiI82WnBe2hU3B3fj2QayDRloVJjpbBaiZmaTPkhaeELCIIufQZ4rYCiVi6gCXtpg.jpg" width="400"><br>
 
@@ -219,7 +253,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 
 
@@ -238,7 +272,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/Xh3DyxA0jIfmRqJecTu_XBywxgOVfqRg2AaUvNe5AapFmIC2_2WwVDNcRhDwxkpW4kIsb36hnKP2xRyU4F-5vXzkMoAXj_GUlN9omo7zWRRcHaO8h989eyv2b93dFLjzibft03_NVmlkZrlryWSDiXUMIA85JhEM1L0TVNNn9iCI0SZ8eAEO7630RwNN0tRWYP3BXpusE_ojyPK6Kdl9jThHXeF7t9o6_rhjCTU7VBVo4K3rPpo9m4Wmcljqaf4qCCHBDmnVrUdWlrCbw_6KnYxZbA_GKWDXuWzP3o_HoXEt1XNULAXQ3fCnlWKJZoC3K1AkSvFkdO6HH3ZW9yZ4dg.jpg" width="400"><br>
 
@@ -262,7 +296,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn1.telesco.pe/file/b3jInH-2zpgFhu9eMN26UiKU4PdKUvhmbxwP8te7QxKofjpTQ8y2s6gWhahHZ2uH1r84k7iMr4hVC35n7ZnvRa4KOvEjUbnSUVam5BoX5esPRuaF8WbWEueakhvcXwiUFcoqDuDwxDmudGBcnPRCovYfiTQLtSpXcbibyoaqlR_VcKqSqDW6iKlB02cGsWVaZgGxiAbayIA_wx36aPQ8cB6Riy3NPq9SeQAiGwF0WxIOekUCDQ2FaghSvmTNnG4SGOPHpBbuVGgFc7tSLWsr48T42c4Uil57WRrTYtVUkghDMFwJ5BWVAQlnbp7GQhuYxTrIUNHGSYYSkyezO2ljFA.jpg" width="400"><br>
 
@@ -325,7 +359,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-05-24 22:18:04
+###### 🔵 Updated at: 2026-05-24 23:26:36
 
 <img src="https://cdn4.telesco.pe/file/ltWRvwNWMYWbvoSt6-az_2rm4ylfG07qlgRF3B7qnx99g3PLBcT8tztm8OuZx7knXJJsvSONoFoCwVFR3KbSFX0JXeKiCOCvzVp4hD5miPHZHP4UvIPkGyKhgDu_ZEKhBlemyFCR3KRYifKpMM6JH6dpyBGWb_wg0tv4w-5OyWRsFSfoOgVxkrmjTPbuL5GXJyjppvJmfIKbDqobIE_on6wP4ylftLVTx834kGMngSuvioAXQ-c_R1C7CVX15gBGqGd4XfnykEXOQZmlf_mFghlq7chL_Szs3lfOwyujg3JeXxAMc9uujKKRpDacEA0MpaiUqnABKPVe1A4lE3XxLQ.jpg" width="400"><br>
 
@@ -339,40 +373,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75670)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 22:18:04
-
-<img src="https://cdn1.telesco.pe/file/pdOsVk93IEZ2RlS2pVWAbyoDYiWKutmDmXGc5e16aptkR_AUb0oc45pBqAXduJM8dSFuz96-JDx70FCv4Uz_65ihafP_Hzmrbuj1yzeiig6AZHalLCMIeCzCasG-YT4JTyT-E9hAoszRr1CmDTxGLjHQCi5qMsrVhQGfTqv8K11YLdJ-yRU48FngVJDEE9MJdcYHYAOLsO7gMPrkbmz5ug9DpFTlBf-mkqHM-TZ_0gsdx8yZYv_1Iq5e8Kdkjk5DrN43LmrUsxxLxulV-L5hUtb-9eJRIDAnN0qLSVxwZ_XT9GwtVi8MLWpNx-MgIatSUq3Rr3m8ZH18CwgGxrVsfw.jpg" width="400"><br>
-
-نیویورک تایمز به نقل از دو مقام آمریکایی گزارش داد، یکی از عناصر کلیدی توافق پیشنهادی میان واشنگتن و تهران، تعهد آشکار ایران به واگذاری ذخایر اورانیوم با غنی‌سازی بالای خود است؛
-مقامات آمریکایی تصریح کردند که این پیشنهاد هنوز جزئیات دقیق نحوه واگذاری این ذخایر را تعیین نکرده و حل این مسئله را به دور بعدی گفتگوها درباره برنامه هسته‌ای ایران موکول کرده است، اما یک بیانیه کلی که ایران را متعهد به این کار کند، که هدف دیرینه ایالات متحده بوده، برای توافق بسیار حیاتی است، به‌ویژه اگر این توافق کلی با بدبینی جمهوری‌خواهان در کنگره مواجه شود. تا این لحظه، ایران هیچ بیانیه‌ عمومی درباره توافقی که ترامپ اعلام کرده، صادر نکرده است.
-تهران در ابتدا با گنجاندن هرگونه توافقی درباره ذخایر اورانیوم غنی‌شده خود در این مرحله اولیه مخالفت کرده و خواستار موکول شدن آن به مرحله دوم گفتگوها بود، اما مذاکره‌کنندگان آمریکایی از طریق واسطه‌ها به صراحت اعلام کردند که بدون دستیابی به توافقی بر سر این ذخایر در فاز اولیه، میز مذاکره را ترک کرده و کارزار نظامی خود را از سر خواهند گرفت.
-براساس این گزارش، بخش دیگری از این توافق محتمل شامل آزادسازی میلیاردها دلار از دارایی‌های بلوکه‌شده ایران در خارج از کشور است؛ اما به گفته مقامات آمریکایی، ایران تنها زمانی به بخش عمده این دارایی‌ها که قرار است توسط ایالات متحده و متحدانش در یک صندوق بازسازی قرار گیرد دسترسی پیدا خواهد کرد که با یک توافق هسته‌ای نهایی موافقت کند؛ امری که انگیزه‌ای برای تهران ایجاد می‌کند تا پای میز مذاکره بماند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75669)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-24 22:18:04
-
-<img src="https://cdn1.telesco.pe/file/Cgz-Nr4KMYa2KtFzgA1xJnsOT0GhKgmCb336K2uwmStLUSsVgXZHQ5K9rbVJeYLcic17AgkH1er_T5ADVB1Wfp923KwlvwxLPZf_UqOnvLU4QjSgWvvEghX60w_LSzu03KxX-Gybqdy9XaFHVOaRyCxSKk-gz1yIIzNvNUTeVBSeAvSPXaDNvu4FFJ--iZ7WBHvyLMpZu-0rmKFfDn3hY5IcvoMzti4vWS1TlvksevfEwBJ1IhI-NF6SKC9KwryoP22Adb4sLVw7EWRpmnKOQ47hlKH02fJwSe1H43gvzm18MP9pACg86EgJgb6bcATG07nrbOOrg0a7CsVotGvWUA.jpg" width="400"><br>
-
-شهباز شریف، نخست‌وزیر پاکستان، ابراز امیدواری کرد پاکستان به‌زودی میزبان دور بعدی گفت‌وگوهای تهران و واشینگتن باشد.
-CMShehbaz
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75668)
 
 ---
 
