@@ -3,7 +3,44 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
+
+<img src="https://cdn1.telesco.pe/file/lQmVVuO1QHQ-79RwaABTjeBYi3JDKN3zYqgza-dAfLfVZBJu3CMO7kPrHmIneJLq8nMGJ5b0SxU0BiBuK6m8vN7tCBdmh6ekGlJDQq9oD9WvEiKgY2fZl-bGWPMvVoF-rwAFqQJ6KyoL2d9BV7P-S6BbCK6__rqF9xSB7YTn2nQBLJfevKKmABwWEb9lTLQ30jGHZLMMNIHd7rWkGulB0i1k8dd9Smi7o24E6xpJmAiAvaA6r-DvYFitjW7i7n7cvY2dVR0gXPgYrpOr8DBLiYRnagkH2nCRW-l9omh7sVyZWIPJB4ZnrBjJQo_KfARp7LyOx7zCs4weEQl0m2ADFA.jpg" width="400"><br>
+
+خبرگزاری دانشجو گزارش داد که در "حمله سحرگاه شب گذشته ۴ خرداد" در جنوب جزیره لارکآمریکا و اسرائیل به جنوب جزیره لارک، عباس اسلامی، قدرت زرنگاری و عبدالرضا گلزاری، نیروهای سپاه پاسداران کشته شدند.
+براساس این گزارش «تعداد دقیق کشته‌شدگان هنوز مشخص نشده است».
+@
+VahidOOnLine
+گویا این واقعه مربوط به اولین ساعت‌های دوشنبه است. یعنی حدود ۲۴ ساعت قبل ولی به نظر می‌رسه اون دسته از منابع جمهوری اسلامی که این خبر رو پخش کردند عمدا طوری گمراه‌کننده نوشتند که الان به نظر بیاد.
+من هم حدود سه چهار صبح دوشنبه پیام‌هایی داشتم از شنیده شدن صدای انفجار از قشم و بندرعباس
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75716)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-26 01:45:40
+
+<img src="https://cdn1.telesco.pe/file/LX6-FqjvTlzQul_98IDgeuvmtTyAKSAOOfcVaR32HCZ5IUZ5DKmvEGo6F0XiLcFhG-ioImuQAV_28Q9ReSFcWPf0bxjyzMcP0wUoBOo6ftfmSZNLoZ1VroNsMSiOmJC2go1N86OY48xRnTQRw00YKUOnxws3Z1hVWGpikxFuPBKdxHjRrVLildb4RCochY-w93gxwtMD3D3_01nS4VKICUJcBdL6v4_LRu-7oxlsy8VzNS_FpmqmdcqvA0DLBhFUeTMGTOg_ONfRiptRvjdpyy7p1f2RcO3Pdriyg2n_zqmrQTTzSdtEhOCeBQUmMQ-MlmzzGrCIfDrkLDhwtes-pg.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+غبار هسته‌ای، یعنی اورانیوم غنی‌شده، یا باید فوراً به ایالات متحده تحویل داده شود تا به کشورمان منتقل و نابود شود، یا ترجیحاً، در همکاری و هماهنگی با جمهوری اسلامی ایران، در همان محل یا در مکان قابل قبول دیگری نابود شود؛ در حالی که کمیسیون انرژی اتمی، یا نهاد معادل آن، شاهد این روند و رویداد باشد.
+از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دی‌جی‌تی
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75715)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 
 
@@ -43,7 +80,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 
 
@@ -66,7 +103,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn1.telesco.pe/file/nDk-jYbmRVddMb1BP8JJfzLM-WxhRvtFcqBJk9KNrZhJOwjk-GWlw7S6Rk933CpMLk0XTS_np9R-cTd03DwDWgytgGo0vQz-sEbP9Ql15ovUQnVhxkHm6FDFGmAUIlaGV6yQSM6TUC19N3n6BOYnFnCisjLnWNCLk-m0ui5TsMQpaJPeSkzUm4DgoJsGWnEeasr0kGYDWC9GowR8zAReuM3ZmpOvuNHYydQDkaNuN1S84u4ny5RPYxaDBauqM0PVDfLEs2_hjQzP5Mo1Xs8Q3JvNH4L7bp1mmFpoXE0w6WUbxmguZbkc3ZO4sewm_FTu284yJgnCg1NCyshi-3PpVA.jpg" width="400"><br>
 
@@ -85,7 +122,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn4.telesco.pe/file/pdEKhL0_4xOE3aUlG-DdD83KLczlW7t2z4MFQLsL9LwioJFFiu6IiPQUNxlowMJp-mF4OK4MRUlAzKzKtnSkcvR2ZQKUV7e8FxzF5XreChwad-RVLRCEYxx1QmxvZz_HmHoiJIyzO8EU9XYzcx9cu9AkKz6fPHI1wr9Wf11Wa_hHXUKCwKN25u_45JZ-BiMbOCe3F_Gc5C2KQduyl-4yKcNYA9Q4kQ37bM8gOjSpnizSSGa1mE1fcXeGqVXLRLq7rYUgVvIm96utV8queHLq7s_jYqIT8v3xxAYVLmDZ7tYnjjEnZV1qaWIkB1s6AGu8BMSdkNYxPJzRUG1R3NF3Mw.jpg" width="400"><br>
 
@@ -103,7 +140,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn1.telesco.pe/file/iByIIe3DLAvyZnsdGS8-xtq46g0UziuJBxHmF4ujwux9791EF0HMTOj6KxmZ74Td8R8mdYfUipvRwF5MXkJXcQLsxZ8xWuJcXPv00fN5v89mJ_8Greu3KUh5UftauovKAR_cAqppYNCuK-72gY9ruT8p94YL-9AMVpAhqgNxSloDD0nYG5AAf6UeYeliME7ssBSDNkavpl4RWOngDi8YTwXKd2ygc24-Reg5o_eU4M6BHybyPgm1-xZrpKmDL8C_3JcU2XEfXcMiKwOZ4JL_Jvln8m3gFjPjMxnSNWNmdkFqWFcGcZLyNIc_m-GojWTiKhZv4Y2S9PM3bcpUrT_Qpw.jpg" width="400"><br>
 
@@ -124,7 +161,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn1.telesco.pe/file/paaG3GHZS2c4ytrvOVe0Jaz5fQFDdb_Bw6rKoN5oprXsn99sb76_EF8H2NGoIidyMC4Inz-ohVPjjU8YSyL7vcEyajBfw065ZmVmsnlLwI35AOm_3z5t8kvSznKVjhMojgJOc9xNJ99_2DNpEAqUV1S30bxUJbM2CAjMW1D3aS0kcAmiwDNoKlG7ZEfKIPW9rCQCpTlWeqqHiqVOTWWTvkurmjfDj9PVQ5OuF9NvOoaC0TiMOGgK1JxLMb7lyWJb3F7nxKujhWwBc9O_dCLsSps9Qvk7fx84Ex9zsitgduUGQB9qDBPRtn6JYa4jByIWW7ezRJAk3PtUnUrwL4rjlA.jpg" width="400"><br>
 
@@ -141,7 +178,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn1.telesco.pe/file/JHYqzapz0i4Yw1_WFoCIHmRN5-aRgRmOB3KPLbGjdZT5bq0_rTjZxjR6JwHFSK7UgZF56XZs1z7RzpG0Pdrt4zEIKrUG8nJY9WTFZI_stX0NsdOLVDmDx-1pwcldtZ538uSn3XNwWWDBTt4ZWun_3qEDe4q-lmDL57a13tE1OnNrw0-jltJRR4r-MLlm_Ak0qWjhmW8ndfDAinUn9tNHmcUmhBBvBqs30sW8VWmFvFebKgWueTK-95JNeeEUPJQynT5EgLVaZ6HLS6lOWPjQU2rye29jN-SFMAt7rRjPNs0C9f8cMDZ8eApBJ_U3DzYb949oAfjGndkIHOvIjSLUjQ.jpg" width="400"><br>
 
@@ -156,7 +193,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn1.telesco.pe/file/Ym_snmOjSKT_FKZWa52DOVvFe090ObEBnb_8mhil0I-cIVM2tt8YicH3ChxUP_kRfJe47vUsgMUe1ulm9ra1h8zC9MIG9WfUnJPYSFrYgwf4dJtSFs8maUzvuDm8Lyki_WVgH071UWN4q50BAzxZ-mGu0cG1m4eYjNqwAn45mszoSNwawhbn46YtL7J0wzn3VeitMDHHppO48Dz8ml6kJEGtSIjxzlilgbRMMEk7TNuWOTgJgX_Yhw5k_KyUZeIJAOIKXKiUInWw8aYKIDKmR_VZqpWiRTSgGUfY6K8RbYKeKgSMEw-8JYnM1R79bN4RclPoGyNG_1IcS3zVtOtjxg.jpg" width="400"><br>
 
@@ -179,7 +216,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn1.telesco.pe/file/NlhYAMwxa857MtnBlLA7B2zHvWQ7VYX-vmi8n4BfBnjZMncodjkB0qogm0S8k6I8I4fwKloV2LbCd1fu1Q1lDW-8W9yVO8ALEmTbdDrKAryOTDrq9KFhqtqzncQCb_Kn9nqHdpGD5sOJoCUKtCZ4K74M_OV07j6YK0f1U-GqTpvk-_ZEDpV3S1CMFTn3eEfuZWqRz3jCSI4b0yg-cFVMppTpF3GRl6zFljQ-UdGtxi2_HNXUEivMNHIklteUyGbVUXs6OpAdGcBM_1IMsgDaPtdSbz46dagcc7WgBX4qw7R9pkSjDLgx7Jhmnrpy2VZfJROold0HAZ4zM0o2gKg5og.jpg" width="400"><br>
 
@@ -200,7 +237,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn4.telesco.pe/file/YKj1jpsK78ACke2k0d4_0OU_JnvGCwkxklfRueQJ3hklcTwf2Fhk_dCBeuNXw4zi3m6IDgcRB9i8Y-aCCrRyYuLX2xuk_tvRFO6S1EQHd6q8hKDoLfHLhZMKstQD6DtsNmRrQRuVJHt1swmXGSB0y8kD6V_3G41WZdHmF5Fe-5wbz-ksJ7KUXf3gn5Yhq1T-TRipcKTvvleSWWRCwZhzQn6J2NypfoJUUi6zMetQNpiQNK_hoFBQFNQbz3JsiuRS6zHmFkCVEDGd9XCxZgGYe_ktrfSoxlDPBRohVGLkFXlDMl34l8I5Or3naYX60OZS4TmAYcsYtMwn2UAj15MkbQ.jpg" width="400"><br>
 
@@ -219,7 +256,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn4.telesco.pe/file/VsJT-RIh2QHN_ELKeNr_VrxW7ATqG9I2Hl26JWl9llaD3Dh2wJ2XbKyvW1dkguc9x12XvqvKUWidwMsJ4knYQt9Bbvq7VIOLIXA0KzhDPQtyiyMjA9cRxP9el_BZtycaFYDDITQo7Hl2EJ1qrD0uUhAH2dzn0FAo9c3Pk1uPC4n5x-TvPeGkgjB8CovzbbycJT8AirvGK7qQ7et_tezhevW5-tymG3Il2JPCnkKjZPstaHH-LAt1PKNfygyL7TqDvY7-sySVK70szWJIqcvJ7jjMSguWpRuyakFsPrKPvWYweNoCx3ZATkq3gad8suUpbPBkWb7gMamG8jHo4Ku7tw.jpg" width="400"><br>
 
@@ -239,7 +276,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn4.telesco.pe/file/owAgQ68AQQFa-6416vCBzD7Q915GySjVZqyHVybEBcB7AevyOKwukPQDtlZ-0MLMcm8QRzuqCz9aGmLRTSScVJaiUVp3vU8JvHQTkTUyaeqGOO8pFvL2oGO9O8-G8trruS3cwmgReMgbPzBLJUht3ZDfTZQjBrZYiiII7O3VO_cIQmw9wv6XH0CEdf0CqehYX6Ht0jiSGsqlrlcdBv-9SP5LTsq4URO16CBnMe1IDPGJE09aNRaHPRKmZfDbMpiwO9VJD0yxmFLOPtscjaccetm8X9MPuplPmTXuB7zzVRf0UwsPQMtBqUXgIfvYUZicAS1W7epg3tdomuQ0ns9XHQ.jpg" width="400"><br>
 
@@ -256,7 +293,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-26 00:33:28
+###### 🔵 Updated at: 2026-05-26 01:45:40
 
 <img src="https://cdn4.telesco.pe/file/n1_K7poIOjSuZ_75zXYJrn1Irv74QzvgPvGvb2jaftsF6WFzG_fTWBF-uPNEOQZlVNBeGDuPYLN0Yq9yCD2yvndallnGfdlCvUP-gBlk_GgmrOHprUHDnqXVvqiUyzhZU1yO7fNKk9vF-_uy_FW8vGIs3GurlZan52hiCvk7oniCnNUDNi8JZXi9NBvZwL1-9WzsUJIknbL7ZIq_AralQMNkT8SaRDz-nhnhlOyX0I0bElzL8x322cOrr0oztGQlBD2G2KF2KW4-HXUVPG9STNfVE0a6aJNfuwkxLC_Kd5HzeHwhqbjV9M8Yt6Wp_zuEbebdFAA4VlnwNFz64JTuAg.jpg" width="400"><br>
 
@@ -272,60 +309,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75697)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-26 00:33:28
-
-<img src="https://cdn4.telesco.pe/file/Z_SXiI8n1CpO5UfIXI4M2FT2T5f9maT2h_WSLL59TXnlhdTOEpL4Ei8fj7thIMY_InkR4ZaOCrnJt79iaMqMKhFBH3XjohShX69A3Kgu9J4NQP_y6RJ6SJGzZIRs1aWJ5RnANgovg3UHECQPCH6phQ-PyuoD7YkmTHD6sFCuP1YL5JLqIro_8Ao-dMM6jDexgOEg_cCHAoFdA_1DGYOW2hIpoADyVe2p9rYKixglcmn1S1phzjfsQK6xBb6ceT32lYHPvyRE8kQPuy5P0tNNdEITpRrpKF30pldKeQ2KD8WxYO6ThD-qlmvwfElOMO7dkebhQPb9ngUyViwxlECi4g.jpg" width="400"><br>
-
-روز سه‌شنبه ۲۶ اردیبهشت‌ماه ۱۴۰۵، «جانا سعدوئی»، زن ۱۹ ساله، مادر دو کودک و اهل روستای تاریمیش از توابع بخش قطور شهرستان خوی، به دست همسر خود به قتل رسیده است.
-به گفته منابع آگاه، همسر این زن پس از وارد کردن ضربات مرگبار، تلاش کرده است ماجرا را به‌عنوان «خودکشی» جلوه دهد.
-با این حال، نتایج بررسی‌های پزشکی قانونی و تناقض‌های موجود در روایت‌ها و اظهارات مطرح‌شده، ابعاد این قتل و تلاش برای صحنه‌سازی را آشکار کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75696)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-26 00:33:28
-
-<img src="https://cdn4.telesco.pe/file/VDRGCKBIqmc2T2oioMB3-BuUTyTlQgUhk8iIq23XsY_5qsDegB76Yw_Jn9sKfGyLLF2GiuaxzfziFjYIKmDUpTqMFBJz30dHlzUf2Qr2uSqBS6if84Gln75hajjv7wAnhxrv27h4AaPCD-00raG2DU6LHOYm2zH8m1wbZqid1JOZQsEFpTddFzXyfv13gELUD33pKDJRWYqq3zGBTbgTtFnp3vorEtks1LoZaJaO9FrfMm7ZlUuwRlag2cZr7g8lJ-gM3peaAXOA3S05qhazGb9B2RQROZqKD0P5h8iTzSX91328zwRflRvvulMGZhcH5oDhOkC6sic-YdXjdgTcMg.jpg" width="400"><br>
-
-وزیر خارجه ایالات متحده، روز دوشنبه چهارم خرداد گفت که واشینگتن در مذاکرات جاری خود با ایران، «هر فرصتی برای موفقیت» به دیپلماسی خواهد داد.
-مارکو روبیو که اکنون در هند به‌سر می‌برد در جمع خبرنگاران گفت که مذاکرات با ایران همچنان «در حال پیشرفت» است و خوش‌بینی محتاطانه‌ای نسبت به توافق احتمالی برای بازگشایی مسیرهای کلیدی کشتیرانی و از سرگیری مذاکرات هسته‌ای ابراز کرد.
-او که روز گذشته از احتمال توافق با ایران تا پایان روز یک‌شنبه خبر داده بود، گفت: «همه ما باید مطمئن باشیم که یا به یک توافق خوب خواهیم رسید، یا مجبور می‌شویم به شکل دیگری با این مسئله برخورد کنیم. ترجیح ما این است که یک توافق خوب داشته باشیم.»
-دونالد ترامپ، رئیس‌جمهور آمریکا نیز شامگاه یک‌شنبه در دومین پیام خود درباره روند مذاکرات با ایران اطمینان داد که توافق احتمالی با ایران «خوب و درست» خواهد بود اما هیچ کس درباره محتوای آن اطلاع ندارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75695)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-26 00:33:28
-
-<img src="https://cdn4.telesco.pe/file/Ky88I5LtU2cxKdTUlwahvcR0w9tLKVckGBwQi-fzmSlEk8Ab9YMaI2fYvsQKbiWNR1NsUbPeRIELYbiwZPEFRmzvTFeIMiX2zvwrsFzbSksvqM3uBqaCpl719VkrnVvq1Q5O5dtVrh-As85SQXqe_ndIBv7zcrSLOTxSzn35vyAWjuZkvy25oRhOXmGtlxipefiJnnvudMDoEj0yA86bfaClaUK7m1VLB-PzqCwCAaUs5cHm0RuWEhq4La6ozvnTdns98ZRpObzBiIuoUHy9gdFgy3fsKUdraWigbAg3HFh9uzOl0XswFzSpSkB6LEDAUOR6fOBeHlN9gkZ2EcRBKQ.jpg" width="400"><br>
-
-خبرگزاری «میزان» رسانه قوه قضاییه جمهوری اسلامی اعلام کرد حکم اعدام «عباس اکبری فیض‌آبادی»، از متهمان پرونده اعتراضات دی‌۱۴۰۴ در شهرستان «نایین» اصفهان، صبح روز دوشنبه ۴خرداد۱۴۰۵ اجرا شده است.
-«میزان» مدعی شده که عباس اکبری از «لیدرهای مسلح» اعتراضات در نایین بوده و در جریان حمله به فرمانداری این شهر و برخی مراکز حکومتی، به سوی ماموران امنیتی تیراندازی کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75694)
 
 ---
 
