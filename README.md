@@ -3,7 +3,46 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
+
+<img src="https://cdn4.telesco.pe/file/pdEKhL0_4xOE3aUlG-DdD83KLczlW7t2z4MFQLsL9LwioJFFiu6IiPQUNxlowMJp-mF4OK4MRUlAzKzKtnSkcvR2ZQKUV7e8FxzF5XreChwad-RVLRCEYxx1QmxvZz_HmHoiJIyzO8EU9XYzcx9cu9AkKz6fPHI1wr9Wf11Wa_hHXUKCwKN25u_45JZ-BiMbOCe3F_Gc5C2KQduyl-4yKcNYA9Q4kQ37bM8gOjSpnizSSGa1mE1fcXeGqVXLRLq7rYUgVvIm96utV8queHLq7s_jYqIT8v3xxAYVLmDZ7tYnjjEnZV1qaWIkB1s6AGu8BMSdkNYxPJzRUG1R3NF3Mw.jpg" width="400"><br>
+
+ساعاتی پس از انتشار خبر تصویب تصمیم بازگشت اینترنت به خانه‌های مردم، چند رسانه در داخل کشور می‌گویند که مسعود پزشکیان، رئیس جمهور، این مصوبه را به طور رسمی ابلاغ کرده است.
+رسانه‌ها در ایران روز دوشنبه از تصویب مصوبه‌ای «جدید و مهم» دربارهٔ اتصال دوباره اینترنت کشور به اینترنت بین‌الملل در «ستاد ویژه ساماندهی فضای مجازی» خبر داده‌ بودند، مصوبه‌ای که برای اجرا نیازمند تأیید نهایی مسعود پزشکیان، رئیس‌جمهور ایران، بود.
+به گزارش سیتنا، پایگاه خبری فناوری اطلاعات، بر اساس این مصوبه، اینترنت عمومی باید «به وضعیت قبل از دی‌ماه ۱۴۰۴» بازگردد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75710)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-25 21:31:05
+
+<img src="https://cdn1.telesco.pe/file/iByIIe3DLAvyZnsdGS8-xtq46g0UziuJBxHmF4ujwux9791EF0HMTOj6KxmZ74Td8R8mdYfUipvRwF5MXkJXcQLsxZ8xWuJcXPv00fN5v89mJ_8Greu3KUh5UftauovKAR_cAqppYNCuK-72gY9ruT8p94YL-9AMVpAhqgNxSloDD0nYG5AAf6UeYeliME7ssBSDNkavpl4RWOngDi8YTwXKd2ygc24-Reg5o_eU4M6BHybyPgm1-xZrpKmDL8C_3JcU2XEfXcMiKwOZ4JL_Jvln8m3gFjPjMxnSNWNmdkFqWFcGcZLyNIc_m-GojWTiKhZv4Y2S9PM3bcpUrT_Qpw.jpg" width="400"><br>
+
+العربیه به نقل از منابع آگاه گزارش داد پیش‌نویس یک یادداشت تفاهم اولیه و نهایی میان آمریکا و جمهوری اسلامی در حال بررسی است؛ تفاهمی که شامل بازگشایی تنگه هرمز، تمدید آتش‌بس و کاهش برخی محدودیت‌ها علیه ایران می‌شود.
+بر اساس گزارش العربیه، در پیش‌نویس این تفاهم‌نامه آمده است تنگه هرمز بدون دریافت هزینه از کشتی‌ها بازگشایی خواهد شد و عملیات پاکسازی مین‌ها نیز انجام می‌شود.
+این گزارش همچنین می‌گوید در چارچوب این تفاهم، به جمهوری اسلامی اجازه فروش و صادرات نفت داده خواهد شد.
+العربیه افزود پیش‌نویس توافق شامل تمدید ۶۰ روزه آتش‌بس است و امکان تمدید دوباره آن نیز وجود دارد.
+بر اساس این گزارش، آمریکا همچنین متعهد شده محدودیت‌ها علیه بنادر جنوب ایران را کاهش دهد.
+منابع العربیه گفته‌اند بخشی از دارایی‌های مسدودشده ایران نیز بر اساس سازوکاری مشخص آزاد خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75709)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn1.telesco.pe/file/paaG3GHZS2c4ytrvOVe0Jaz5fQFDdb_Bw6rKoN5oprXsn99sb76_EF8H2NGoIidyMC4Inz-ohVPjjU8YSyL7vcEyajBfw065ZmVmsnlLwI35AOm_3z5t8kvSznKVjhMojgJOc9xNJ99_2DNpEAqUV1S30bxUJbM2CAjMW1D3aS0kcAmiwDNoKlG7ZEfKIPW9rCQCpTlWeqqHiqVOTWWTvkurmjfDj9PVQ5OuF9NvOoaC0TiMOGgK1JxLMb7lyWJb3F7nxKujhWwBc9O_dCLsSps9Qvk7fx84Ex9zsitgduUGQB9qDBPRtn6JYa4jByIWW7ezRJAk3PtUnUrwL4rjlA.jpg" width="400"><br>
 
@@ -20,7 +59,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn1.telesco.pe/file/JHYqzapz0i4Yw1_WFoCIHmRN5-aRgRmOB3KPLbGjdZT5bq0_rTjZxjR6JwHFSK7UgZF56XZs1z7RzpG0Pdrt4zEIKrUG8nJY9WTFZI_stX0NsdOLVDmDx-1pwcldtZ538uSn3XNwWWDBTt4ZWun_3qEDe4q-lmDL57a13tE1OnNrw0-jltJRR4r-MLlm_Ak0qWjhmW8ndfDAinUn9tNHmcUmhBBvBqs30sW8VWmFvFebKgWueTK-95JNeeEUPJQynT5EgLVaZ6HLS6lOWPjQU2rye29jN-SFMAt7rRjPNs0C9f8cMDZ8eApBJ_U3DzYb949oAfjGndkIHOvIjSLUjQ.jpg" width="400"><br>
 
@@ -35,7 +74,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn1.telesco.pe/file/Ym_snmOjSKT_FKZWa52DOVvFe090ObEBnb_8mhil0I-cIVM2tt8YicH3ChxUP_kRfJe47vUsgMUe1ulm9ra1h8zC9MIG9WfUnJPYSFrYgwf4dJtSFs8maUzvuDm8Lyki_WVgH071UWN4q50BAzxZ-mGu0cG1m4eYjNqwAn45mszoSNwawhbn46YtL7J0wzn3VeitMDHHppO48Dz8ml6kJEGtSIjxzlilgbRMMEk7TNuWOTgJgX_Yhw5k_KyUZeIJAOIKXKiUInWw8aYKIDKmR_VZqpWiRTSgGUfY6K8RbYKeKgSMEw-8JYnM1R79bN4RclPoGyNG_1IcS3zVtOtjxg.jpg" width="400"><br>
 
@@ -58,7 +97,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn1.telesco.pe/file/NlhYAMwxa857MtnBlLA7B2zHvWQ7VYX-vmi8n4BfBnjZMncodjkB0qogm0S8k6I8I4fwKloV2LbCd1fu1Q1lDW-8W9yVO8ALEmTbdDrKAryOTDrq9KFhqtqzncQCb_Kn9nqHdpGD5sOJoCUKtCZ4K74M_OV07j6YK0f1U-GqTpvk-_ZEDpV3S1CMFTn3eEfuZWqRz3jCSI4b0yg-cFVMppTpF3GRl6zFljQ-UdGtxi2_HNXUEivMNHIklteUyGbVUXs6OpAdGcBM_1IMsgDaPtdSbz46dagcc7WgBX4qw7R9pkSjDLgx7Jhmnrpy2VZfJROold0HAZ4zM0o2gKg5og.jpg" width="400"><br>
 
@@ -79,7 +118,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn4.telesco.pe/file/YKj1jpsK78ACke2k0d4_0OU_JnvGCwkxklfRueQJ3hklcTwf2Fhk_dCBeuNXw4zi3m6IDgcRB9i8Y-aCCrRyYuLX2xuk_tvRFO6S1EQHd6q8hKDoLfHLhZMKstQD6DtsNmRrQRuVJHt1swmXGSB0y8kD6V_3G41WZdHmF5Fe-5wbz-ksJ7KUXf3gn5Yhq1T-TRipcKTvvleSWWRCwZhzQn6J2NypfoJUUi6zMetQNpiQNK_hoFBQFNQbz3JsiuRS6zHmFkCVEDGd9XCxZgGYe_ktrfSoxlDPBRohVGLkFXlDMl34l8I5Or3naYX60OZS4TmAYcsYtMwn2UAj15MkbQ.jpg" width="400"><br>
 
@@ -98,7 +137,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn4.telesco.pe/file/VsJT-RIh2QHN_ELKeNr_VrxW7ATqG9I2Hl26JWl9llaD3Dh2wJ2XbKyvW1dkguc9x12XvqvKUWidwMsJ4knYQt9Bbvq7VIOLIXA0KzhDPQtyiyMjA9cRxP9el_BZtycaFYDDITQo7Hl2EJ1qrD0uUhAH2dzn0FAo9c3Pk1uPC4n5x-TvPeGkgjB8CovzbbycJT8AirvGK7qQ7et_tezhevW5-tymG3Il2JPCnkKjZPstaHH-LAt1PKNfygyL7TqDvY7-sySVK70szWJIqcvJ7jjMSguWpRuyakFsPrKPvWYweNoCx3ZATkq3gad8suUpbPBkWb7gMamG8jHo4Ku7tw.jpg" width="400"><br>
 
@@ -118,7 +157,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn4.telesco.pe/file/owAgQ68AQQFa-6416vCBzD7Q915GySjVZqyHVybEBcB7AevyOKwukPQDtlZ-0MLMcm8QRzuqCz9aGmLRTSScVJaiUVp3vU8JvHQTkTUyaeqGOO8pFvL2oGO9O8-G8trruS3cwmgReMgbPzBLJUht3ZDfTZQjBrZYiiII7O3VO_cIQmw9wv6XH0CEdf0CqehYX6Ht0jiSGsqlrlcdBv-9SP5LTsq4URO16CBnMe1IDPGJE09aNRaHPRKmZfDbMpiwO9VJD0yxmFLOPtscjaccetm8X9MPuplPmTXuB7zzVRf0UwsPQMtBqUXgIfvYUZicAS1W7epg3tdomuQ0ns9XHQ.jpg" width="400"><br>
 
@@ -135,7 +174,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn4.telesco.pe/file/n1_K7poIOjSuZ_75zXYJrn1Irv74QzvgPvGvb2jaftsF6WFzG_fTWBF-uPNEOQZlVNBeGDuPYLN0Yq9yCD2yvndallnGfdlCvUP-gBlk_GgmrOHprUHDnqXVvqiUyzhZU1yO7fNKk9vF-_uy_FW8vGIs3GurlZan52hiCvk7oniCnNUDNi8JZXi9NBvZwL1-9WzsUJIknbL7ZIq_AralQMNkT8SaRDz-nhnhlOyX0I0bElzL8x322cOrr0oztGQlBD2G2KF2KW4-HXUVPG9STNfVE0a6aJNfuwkxLC_Kd5HzeHwhqbjV9M8Yt6Wp_zuEbebdFAA4VlnwNFz64JTuAg.jpg" width="400"><br>
 
@@ -156,7 +195,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn4.telesco.pe/file/Z_SXiI8n1CpO5UfIXI4M2FT2T5f9maT2h_WSLL59TXnlhdTOEpL4Ei8fj7thIMY_InkR4ZaOCrnJt79iaMqMKhFBH3XjohShX69A3Kgu9J4NQP_y6RJ6SJGzZIRs1aWJ5RnANgovg3UHECQPCH6phQ-PyuoD7YkmTHD6sFCuP1YL5JLqIro_8Ao-dMM6jDexgOEg_cCHAoFdA_1DGYOW2hIpoADyVe2p9rYKixglcmn1S1phzjfsQK6xBb6ceT32lYHPvyRE8kQPuy5P0tNNdEITpRrpKF30pldKeQ2KD8WxYO6ThD-qlmvwfElOMO7dkebhQPb9ngUyViwxlECi4g.jpg" width="400"><br>
 
@@ -174,7 +213,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn4.telesco.pe/file/VDRGCKBIqmc2T2oioMB3-BuUTyTlQgUhk8iIq23XsY_5qsDegB76Yw_Jn9sKfGyLLF2GiuaxzfziFjYIKmDUpTqMFBJz30dHlzUf2Qr2uSqBS6if84Gln75hajjv7wAnhxrv27h4AaPCD-00raG2DU6LHOYm2zH8m1wbZqid1JOZQsEFpTddFzXyfv13gELUD33pKDJRWYqq3zGBTbgTtFnp3vorEtks1LoZaJaO9FrfMm7ZlUuwRlag2cZr7g8lJ-gM3peaAXOA3S05qhazGb9B2RQROZqKD0P5h8iTzSX91328zwRflRvvulMGZhcH5oDhOkC6sic-YdXjdgTcMg.jpg" width="400"><br>
 
@@ -193,7 +232,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn4.telesco.pe/file/Ky88I5LtU2cxKdTUlwahvcR0w9tLKVckGBwQi-fzmSlEk8Ab9YMaI2fYvsQKbiWNR1NsUbPeRIELYbiwZPEFRmzvTFeIMiX2zvwrsFzbSksvqM3uBqaCpl719VkrnVvq1Q5O5dtVrh-As85SQXqe_ndIBv7zcrSLOTxSzn35vyAWjuZkvy25oRhOXmGtlxipefiJnnvudMDoEj0yA86bfaClaUK7m1VLB-PzqCwCAaUs5cHm0RuWEhq4La6ozvnTdns98ZRpObzBiIuoUHy9gdFgy3fsKUdraWigbAg3HFh9uzOl0XswFzSpSkB6LEDAUOR6fOBeHlN9gkZ2EcRBKQ.jpg" width="400"><br>
 
@@ -210,7 +249,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn1.telesco.pe/file/scyt2bzi2cgKMxyNg_wthPL6-qrZ0oYXwM3Wg3zg4mC-ioZtmhsO_4MHtSTFvK7ycSOZtGuNi_HNMZwGIP5GtkRw4N6D1I-vOxWaDxgg4Etj1yHEj8_b_7Vsu0bRu6N5qtz9G1mi2MWdI0g57SJTF3M3e-hT84E216TAIFztVniJwd6DmAuX3jpWGfHZ6AWQ--wditsRHpsxt2h5mfd0qYSugSfm7pmJG9Tmixo-AM3vKxiTB4wKTsrEvpGXm_OCjbMYsOwpXDTtUYtgP-JCQdlq2qDoxS0Tb31BtybBjKjAsvzpmJLE246rR_xgAvkuvK8KxUAgZdLpO2nuFV7lmQ.jpg" width="400"><br>
 
@@ -240,7 +279,7 @@ cbsnews
 
 
 
-###### 🔵 Updated at: 2026-05-25 19:44:49
+###### 🔵 Updated at: 2026-05-25 21:31:05
 
 <img src="https://cdn1.telesco.pe/file/fOt-BnL1F-RDZZuRWrw_ZZO3LhCRrzZmIHUC2J2snWmZqOkNSIx6XTaYTP8JDiKDORgwg4Tmx2S10jtflqVSJqnoYTGcWsQN4J78KCqLmMhCbph1geJ2SpVea_TV-lqVP2UZTpreOsCeEY64JGzFISvWB1TkO7SB7RoU-9fVzUi39ssfJpDUIWmynBoj0IVAS3VTdn5R_c7KBpfCIHI7ywiyyfrV_J2Oc6zaxOq_qi5LpP6OlQcybnyqW25XQlKa08AnWC0Hb6RIICZ0F6p0B3MVxEx1ZkVXTZyLGmj99gdNYC51Ddem-YUa440dBhlW86nRDXu_leoN-R3en5Mg0g.jpg" width="400"><br>
 
@@ -257,48 +296,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75691)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-25 19:44:49
-
-<img src="https://cdn1.telesco.pe/file/DYFns-73G8CHZU3folO6jrY_UGFyvoxo4u-w_grL6Zp0ZB3Je6nzYwpjqoyTLybIqYSuZk5jLtEQvwbtFt09f5WP4PE-YtIjyvJFf-UD8MkQr3DeJX4s8jSerDbAz-BsW4mDsRiqD9RuDid3RDLazawwuLEa_kQWznCoYNEF3U9gMLeYDUbzsffYVSJgasZh4J3XFweTn6HVEDVekOIUJpC-wEifFnIPB6wR0P7T_Ety6BHVcyinDd8AI-p9XeGRavFGg4zscd8PCAo1pTQLAM1k1pZByJWYklpas8qJEVX7aqseP1-RVYx7iVz4W1SdCvlHF95wd5UJfLeFxZf4_A.jpg" width="400"><br>
-
-خبرگزاری حکومتی تسنیم، شامگاه یکشنبه سوم خرداد ماه، به نقل از دادگاه انقلاب تهران اعلام کرد، رای اولیه پرونده موسوم به «بچه‌های اکباتان» صادر شده و طی آن چهار نفر از «متهمان اصلی» به اتهام «افساد فی‌الارض» به اعدام محکوم شده‌اند.
-به گزارش تسنیم،  اتهامات ۹ نفر از متهمان این پرونده که به دلیل کشته شدن «آرمان علی‌وردی» بسیجی حامی حکومت زندانی شده‌اند مواردی چون  «وارد کردن ضربات چاقو،اخلال در نظم عمومی، اخلال گسترده در امنیت کشور، اجتماع و تبانی برای ارتکاب جرم علیه امنیت داخلی کشور، توزیع کوکتل مولوتف، وارد کردن ضربات سنگ به آرمان علی وردی، ضرب و شتم آرمان علی‌وردی و فعالیت تبلیغی علیه نظام» عنوان شده است.
-بر اساس این گزارش، دادگاه انقلاب تهران متهمان ردیف اول تا چهارم پرونده را به اتهام «افساد فی‌الارض» به اعدام محکوم کرد و متهمان ردیف پنجم تا نهم نیز به حبس از یک تا پنج سال و مجازات‌های تکمیلی محکوم شدند.
-@
-VahidOOnLine
-شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی چهار تن از متهمان پرونده «شهرک اکباتان» را به اتهام «افسادفی‌الارض» به اعدام محکوم کرد؛ این در حالی است که دادگاه کیفری پیش‌تر اعلام کرده بود انتساب قتل به متهمان به‌صورت قطعی ثابت نشده و امکان صدور حکم قصاص وجود ندارد.
-خبرگزاری میزان، وابسته به قوه قضاییه جمهوری اسلامی، روز یکشنبه در گزارشی تلاش کرد صدور این حکم را توجیه کند.
-بر اساس این گزارش، رسیدگی به پرونده در دو مرجع موازی انجام شده؛ دادگاه کیفری به اتهام قتل رسیدگی کرد و دادگاه انقلاب به اتهامات امنیتی از جمله افساد فی‌الارض.
-میزان مدعی شد که پس از آن‌که کمیسیون پزشکی قانونی و اداره آگاهی هر دو اعلام کردند تعیین فرد وارد کننده ضربه مرگبار به آرمان علی‌وردی ممکن نیست، دادگاه کیفری سه تن از متهمان را از اتهام مشارکت در قتل تبرئه و سه تن دیگر را به پرداخت دیه و حبس محکوم کرد. اما در مسیر موازی، دادگاه انقلاب همان متهمان را به اتهام افساد فی‌الارض به اعدام محکوم کرد.
-به گزارش خبرگزاری هرانا، میلاد آرمون، نوید نجاران، مهدی ایمانی و سید محمدمهدی حسینی چهار نفری هستند که حکم اعدام برای آن‌ها صادر شده است.
-چهار متهم دیگر این پرونده یعنی امیرمحمد خوش‌اقبال، علیرضا برمرزپورناک، علیرضا کفایی و حسین نعمتی نیز هر کدام به پنج سال زندان، دو سال حبس به اتهام تبلیغ علیه نظام، دو سال منع فعالیت در فضای مجازی و دو سال منع اسکان در تهران و البرز محکوم شدند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75690)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-25 19:44:49
-
-<img src="https://cdn1.telesco.pe/file/as5Wf7NZS7UDgk9Zg3cVVqqAslT47izpdptGmAryLTK00mCEcgiXC-wDSdJWF7l3gBJLPgrPZBrwADgPDWUmsFnG30Iio7dcbc3bZic5_r6zXhwfx3tszQ8za24iOcUBuSqHd86zR860bi9WTrWlDjV4cq3RJJsgIaTiFgy883gc2lpsNcCR0p6tV8K5pmHir8Y6uYgK8wWqjqkhA2QT7h4Dq5PVx4HhpTV79vWwTTP-OgQNEd-MP16im7r6il5s6DGGlQorIDbHFw-mmpD51K1wf8Rk2vKmDvm1gQoCKUo1lHchDWyx5qWJIf87_ZhQjKLGDeWQcdIh4T78KN1ykw.jpg" width="400"><br>
-
-پست ترامپ
-روی تصویر بمب نوشته: از توجه شما به این موضوع سپاسگزارم.
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75689)
 
 ---
 
