@@ -3,7 +3,47 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
+
+
+
+#بندرعباس
+پیام‌های دریافتی درباره صدای شنیده شدن صدای انفجار:
+بندرعباس سه بار صدای شدید اومد الان
+صدای بمب میاد.
+بندرعباس ساعت ۲۳:۴۰
+همین الان ساعت ۲۳:۴۰ صدای سه تا انفجار شدید توو بندرعباس اومد. نزدیک پایگاه شکاری یا همون فرودگاه بود به نظرم
+سلام وحید جان
+بندر عباس صدای آزاد سازی پول های بلوکه شده میاد
+بندرعباس ۲۳:۴۰ سه تا انفجار شدید
+حاجی۲۳/۴۰ سه تا انفجار شدید شرق بندرعباس
+دقیقا صدای انفجار ۴۰روز جنگ بود
+سلام همین الان بندرعباس صدای دوتا انفجار اومد
+بندرعباس حدود ۲۳:۴۰ دقیقه سمت فرودگاه صدای سه انفجار اومد.
+درود وحید جان
+بندر عباس ۱۱:۴۲ سه تا صدای زدن اومد
+بندرعباس، ساعت 11.40
+صدای شدید انفجار و لرزش
+سه تا صدای انفجار پشت هم شنیدیم بندرعباس
+بندرعباس 11:40  شب 4 خرداد صدای انفجار
+بندرعباس ۵ بار صدای انفجار
+ما سمت پایگاه هوایی هستیم نسبتا شدید بود
+پدافند سمت فرودگاه بندرعباس فعال شده ساعت ۲۳:۴۵
+آپدیت:
+رسانه‌های ایران شامگاه دوشنبه از شنیده‌شدن صداهای انفجار در بندرعباس و همزمان در خلیج فارس حوالی سیریک و جاسک خبر دادند.
+معاون استاندار هرمزگان اعلام کرد منشا صدای انفجار در حال بررسی است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75714)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 
 
@@ -26,7 +66,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn1.telesco.pe/file/nDk-jYbmRVddMb1BP8JJfzLM-WxhRvtFcqBJk9KNrZhJOwjk-GWlw7S6Rk933CpMLk0XTS_np9R-cTd03DwDWgytgGo0vQz-sEbP9Ql15ovUQnVhxkHm6FDFGmAUIlaGV6yQSM6TUC19N3n6BOYnFnCisjLnWNCLk-m0ui5TsMQpaJPeSkzUm4DgoJsGWnEeasr0kGYDWC9GowR8zAReuM3ZmpOvuNHYydQDkaNuN1S84u4ny5RPYxaDBauqM0PVDfLEs2_hjQzP5Mo1Xs8Q3JvNH4L7bp1mmFpoXE0w6WUbxmguZbkc3ZO4sewm_FTu284yJgnCg1NCyshi-3PpVA.jpg" width="400"><br>
 
@@ -45,7 +85,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn4.telesco.pe/file/pdEKhL0_4xOE3aUlG-DdD83KLczlW7t2z4MFQLsL9LwioJFFiu6IiPQUNxlowMJp-mF4OK4MRUlAzKzKtnSkcvR2ZQKUV7e8FxzF5XreChwad-RVLRCEYxx1QmxvZz_HmHoiJIyzO8EU9XYzcx9cu9AkKz6fPHI1wr9Wf11Wa_hHXUKCwKN25u_45JZ-BiMbOCe3F_Gc5C2KQduyl-4yKcNYA9Q4kQ37bM8gOjSpnizSSGa1mE1fcXeGqVXLRLq7rYUgVvIm96utV8queHLq7s_jYqIT8v3xxAYVLmDZ7tYnjjEnZV1qaWIkB1s6AGu8BMSdkNYxPJzRUG1R3NF3Mw.jpg" width="400"><br>
 
@@ -63,7 +103,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn1.telesco.pe/file/iByIIe3DLAvyZnsdGS8-xtq46g0UziuJBxHmF4ujwux9791EF0HMTOj6KxmZ74Td8R8mdYfUipvRwF5MXkJXcQLsxZ8xWuJcXPv00fN5v89mJ_8Greu3KUh5UftauovKAR_cAqppYNCuK-72gY9ruT8p94YL-9AMVpAhqgNxSloDD0nYG5AAf6UeYeliME7ssBSDNkavpl4RWOngDi8YTwXKd2ygc24-Reg5o_eU4M6BHybyPgm1-xZrpKmDL8C_3JcU2XEfXcMiKwOZ4JL_Jvln8m3gFjPjMxnSNWNmdkFqWFcGcZLyNIc_m-GojWTiKhZv4Y2S9PM3bcpUrT_Qpw.jpg" width="400"><br>
 
@@ -84,7 +124,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn1.telesco.pe/file/paaG3GHZS2c4ytrvOVe0Jaz5fQFDdb_Bw6rKoN5oprXsn99sb76_EF8H2NGoIidyMC4Inz-ohVPjjU8YSyL7vcEyajBfw065ZmVmsnlLwI35AOm_3z5t8kvSznKVjhMojgJOc9xNJ99_2DNpEAqUV1S30bxUJbM2CAjMW1D3aS0kcAmiwDNoKlG7ZEfKIPW9rCQCpTlWeqqHiqVOTWWTvkurmjfDj9PVQ5OuF9NvOoaC0TiMOGgK1JxLMb7lyWJb3F7nxKujhWwBc9O_dCLsSps9Qvk7fx84Ex9zsitgduUGQB9qDBPRtn6JYa4jByIWW7ezRJAk3PtUnUrwL4rjlA.jpg" width="400"><br>
 
@@ -101,7 +141,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn1.telesco.pe/file/JHYqzapz0i4Yw1_WFoCIHmRN5-aRgRmOB3KPLbGjdZT5bq0_rTjZxjR6JwHFSK7UgZF56XZs1z7RzpG0Pdrt4zEIKrUG8nJY9WTFZI_stX0NsdOLVDmDx-1pwcldtZ538uSn3XNwWWDBTt4ZWun_3qEDe4q-lmDL57a13tE1OnNrw0-jltJRR4r-MLlm_Ak0qWjhmW8ndfDAinUn9tNHmcUmhBBvBqs30sW8VWmFvFebKgWueTK-95JNeeEUPJQynT5EgLVaZ6HLS6lOWPjQU2rye29jN-SFMAt7rRjPNs0C9f8cMDZ8eApBJ_U3DzYb949oAfjGndkIHOvIjSLUjQ.jpg" width="400"><br>
 
@@ -116,7 +156,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn1.telesco.pe/file/Ym_snmOjSKT_FKZWa52DOVvFe090ObEBnb_8mhil0I-cIVM2tt8YicH3ChxUP_kRfJe47vUsgMUe1ulm9ra1h8zC9MIG9WfUnJPYSFrYgwf4dJtSFs8maUzvuDm8Lyki_WVgH071UWN4q50BAzxZ-mGu0cG1m4eYjNqwAn45mszoSNwawhbn46YtL7J0wzn3VeitMDHHppO48Dz8ml6kJEGtSIjxzlilgbRMMEk7TNuWOTgJgX_Yhw5k_KyUZeIJAOIKXKiUInWw8aYKIDKmR_VZqpWiRTSgGUfY6K8RbYKeKgSMEw-8JYnM1R79bN4RclPoGyNG_1IcS3zVtOtjxg.jpg" width="400"><br>
 
@@ -139,7 +179,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn1.telesco.pe/file/NlhYAMwxa857MtnBlLA7B2zHvWQ7VYX-vmi8n4BfBnjZMncodjkB0qogm0S8k6I8I4fwKloV2LbCd1fu1Q1lDW-8W9yVO8ALEmTbdDrKAryOTDrq9KFhqtqzncQCb_Kn9nqHdpGD5sOJoCUKtCZ4K74M_OV07j6YK0f1U-GqTpvk-_ZEDpV3S1CMFTn3eEfuZWqRz3jCSI4b0yg-cFVMppTpF3GRl6zFljQ-UdGtxi2_HNXUEivMNHIklteUyGbVUXs6OpAdGcBM_1IMsgDaPtdSbz46dagcc7WgBX4qw7R9pkSjDLgx7Jhmnrpy2VZfJROold0HAZ4zM0o2gKg5og.jpg" width="400"><br>
 
@@ -160,7 +200,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn4.telesco.pe/file/YKj1jpsK78ACke2k0d4_0OU_JnvGCwkxklfRueQJ3hklcTwf2Fhk_dCBeuNXw4zi3m6IDgcRB9i8Y-aCCrRyYuLX2xuk_tvRFO6S1EQHd6q8hKDoLfHLhZMKstQD6DtsNmRrQRuVJHt1swmXGSB0y8kD6V_3G41WZdHmF5Fe-5wbz-ksJ7KUXf3gn5Yhq1T-TRipcKTvvleSWWRCwZhzQn6J2NypfoJUUi6zMetQNpiQNK_hoFBQFNQbz3JsiuRS6zHmFkCVEDGd9XCxZgGYe_ktrfSoxlDPBRohVGLkFXlDMl34l8I5Or3naYX60OZS4TmAYcsYtMwn2UAj15MkbQ.jpg" width="400"><br>
 
@@ -179,7 +219,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn4.telesco.pe/file/VsJT-RIh2QHN_ELKeNr_VrxW7ATqG9I2Hl26JWl9llaD3Dh2wJ2XbKyvW1dkguc9x12XvqvKUWidwMsJ4knYQt9Bbvq7VIOLIXA0KzhDPQtyiyMjA9cRxP9el_BZtycaFYDDITQo7Hl2EJ1qrD0uUhAH2dzn0FAo9c3Pk1uPC4n5x-TvPeGkgjB8CovzbbycJT8AirvGK7qQ7et_tezhevW5-tymG3Il2JPCnkKjZPstaHH-LAt1PKNfygyL7TqDvY7-sySVK70szWJIqcvJ7jjMSguWpRuyakFsPrKPvWYweNoCx3ZATkq3gad8suUpbPBkWb7gMamG8jHo4Ku7tw.jpg" width="400"><br>
 
@@ -199,7 +239,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn4.telesco.pe/file/owAgQ68AQQFa-6416vCBzD7Q915GySjVZqyHVybEBcB7AevyOKwukPQDtlZ-0MLMcm8QRzuqCz9aGmLRTSScVJaiUVp3vU8JvHQTkTUyaeqGOO8pFvL2oGO9O8-G8trruS3cwmgReMgbPzBLJUht3ZDfTZQjBrZYiiII7O3VO_cIQmw9wv6XH0CEdf0CqehYX6Ht0jiSGsqlrlcdBv-9SP5LTsq4URO16CBnMe1IDPGJE09aNRaHPRKmZfDbMpiwO9VJD0yxmFLOPtscjaccetm8X9MPuplPmTXuB7zzVRf0UwsPQMtBqUXgIfvYUZicAS1W7epg3tdomuQ0ns9XHQ.jpg" width="400"><br>
 
@@ -216,7 +256,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn4.telesco.pe/file/n1_K7poIOjSuZ_75zXYJrn1Irv74QzvgPvGvb2jaftsF6WFzG_fTWBF-uPNEOQZlVNBeGDuPYLN0Yq9yCD2yvndallnGfdlCvUP-gBlk_GgmrOHprUHDnqXVvqiUyzhZU1yO7fNKk9vF-_uy_FW8vGIs3GurlZan52hiCvk7oniCnNUDNi8JZXi9NBvZwL1-9WzsUJIknbL7ZIq_AralQMNkT8SaRDz-nhnhlOyX0I0bElzL8x322cOrr0oztGQlBD2G2KF2KW4-HXUVPG9STNfVE0a6aJNfuwkxLC_Kd5HzeHwhqbjV9M8Yt6Wp_zuEbebdFAA4VlnwNFz64JTuAg.jpg" width="400"><br>
 
@@ -237,7 +277,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn4.telesco.pe/file/Z_SXiI8n1CpO5UfIXI4M2FT2T5f9maT2h_WSLL59TXnlhdTOEpL4Ei8fj7thIMY_InkR4ZaOCrnJt79iaMqMKhFBH3XjohShX69A3Kgu9J4NQP_y6RJ6SJGzZIRs1aWJ5RnANgovg3UHECQPCH6phQ-PyuoD7YkmTHD6sFCuP1YL5JLqIro_8Ao-dMM6jDexgOEg_cCHAoFdA_1DGYOW2hIpoADyVe2p9rYKixglcmn1S1phzjfsQK6xBb6ceT32lYHPvyRE8kQPuy5P0tNNdEITpRrpKF30pldKeQ2KD8WxYO6ThD-qlmvwfElOMO7dkebhQPb9ngUyViwxlECi4g.jpg" width="400"><br>
 
@@ -255,7 +295,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn4.telesco.pe/file/VDRGCKBIqmc2T2oioMB3-BuUTyTlQgUhk8iIq23XsY_5qsDegB76Yw_Jn9sKfGyLLF2GiuaxzfziFjYIKmDUpTqMFBJz30dHlzUf2Qr2uSqBS6if84Gln75hajjv7wAnhxrv27h4AaPCD-00raG2DU6LHOYm2zH8m1wbZqid1JOZQsEFpTddFzXyfv13gELUD33pKDJRWYqq3zGBTbgTtFnp3vorEtks1LoZaJaO9FrfMm7ZlUuwRlag2cZr7g8lJ-gM3peaAXOA3S05qhazGb9B2RQROZqKD0P5h8iTzSX91328zwRflRvvulMGZhcH5oDhOkC6sic-YdXjdgTcMg.jpg" width="400"><br>
 
@@ -274,7 +314,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-25 23:25:57
+###### 🔵 Updated at: 2026-05-26 00:33:28
 
 <img src="https://cdn4.telesco.pe/file/Ky88I5LtU2cxKdTUlwahvcR0w9tLKVckGBwQi-fzmSlEk8Ab9YMaI2fYvsQKbiWNR1NsUbPeRIELYbiwZPEFRmzvTFeIMiX2zvwrsFzbSksvqM3uBqaCpl719VkrnVvq1Q5O5dtVrh-As85SQXqe_ndIBv7zcrSLOTxSzn35vyAWjuZkvy25oRhOXmGtlxipefiJnnvudMDoEj0yA86bfaClaUK7m1VLB-PzqCwCAaUs5cHm0RuWEhq4La6ozvnTdns98ZRpObzBiIuoUHy9gdFgy3fsKUdraWigbAg3HFh9uzOl0XswFzSpSkB6LEDAUOR6fOBeHlN9gkZ2EcRBKQ.jpg" width="400"><br>
 
@@ -286,36 +326,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75694)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-25 23:25:57
-
-<img src="https://cdn1.telesco.pe/file/scyt2bzi2cgKMxyNg_wthPL6-qrZ0oYXwM3Wg3zg4mC-ioZtmhsO_4MHtSTFvK7ycSOZtGuNi_HNMZwGIP5GtkRw4N6D1I-vOxWaDxgg4Etj1yHEj8_b_7Vsu0bRu6N5qtz9G1mi2MWdI0g57SJTF3M3e-hT84E216TAIFztVniJwd6DmAuX3jpWGfHZ6AWQ--wditsRHpsxt2h5mfd0qYSugSfm7pmJG9Tmixo-AM3vKxiTB4wKTsrEvpGXm_OCjbMYsOwpXDTtUYtgP-JCQdlq2qDoxS0Tb31BtybBjKjAsvzpmJLE246rR_xgAvkuvK8KxUAgZdLpO2nuFV7lmQ.jpg" width="400"><br>
-
-سی‌بی‌اس: مجتبی خامنه‌ای در مکانی نامعلوم با دسترسی کم به دنیای خارج پنهان شده است.
-ترجمه ماشین:
-اطلاعات نهادهای امنیتی آمریکا نشان می‌دهد که رهبر عالی ایران عملاً در مکانی نامعلوم پنهان شده، دسترسی محدودی به جهان خارج دارد و ارتباط با او تنها از طریق شبکه‌ای پیچیده از پیک‌ها امکان‌پذیر است؛ این را مقام‌های آمریکایی آگاه از موضوع گفته‌اند.
-به گفته این منابع، مقام‌های ایرانی که مجوز همکاری با دولت ترامپ را دارند، برای برقراری ارتباط در داخل ساختار حکومتی خودشان با دشواری روبه‌رو بوده‌اند؛ مسئله‌ای که یکی از دلایل اصلی تأخیر در روشن شدن جزئیات توافق احتمالی با ایران و توافق‌های قبلی بوده است.
-دو مقام آمریکایی گفتند وقتی آمریکا جزئیات پیشنهادی را ارسال می‌کند، دشواری دسترسی به رهبر عالی باعث می‌شود گاهی پیش از دریافت پاسخ از سوی آمریکا، تأخیری طولانی رخ دهد.
-سخنگوی کاخ سفید از اظهارنظر درباره اطلاعات مربوط به محل حضور رهبر عالی یا روش‌های ارتباطی ایران خودداری کرد.
-یک مقام ارشد دولت روز یکشنبه گفت رهبر عالی با چارچوب کلی پیش‌نویس توافق فعلی موافقت کرده و دونالد ترامپ، رئیس‌جمهوری آمریکا، در تروث‌سوشال نوشت که انتظار دارد ظرف چند روز آینده پاسخ نهایی اعلام شود.
-مجتبی خامنه‌ای، رهبر عالی ایران، که در حملات آمریکا و اسرائیل در عملیات «خشم حماسی» زخمی شده بود، برای جلوگیری از حملاتی مشابه حملاتی که به کشته شدن پدرش، آیت‌الله علی خامنه‌ای، منجر شد، تدابیر بسیار شدیدی اتخاذ کرده است. علی خامنه‌ای از سال ۱۹۸۹ تا ۲۸ فوریه بر ایران حکومت می‌کرد. مجتبی خامنه‌ای از پیش از آغاز جنگ تاکنون به‌طور رسمی در انظار عمومی دیده یا شنیده نشده است.
-یکی از مقام‌ها گفت اطلاعات به‌دست‌آمده توسط نهادهای اطلاعاتی آمریکا و اسرائیل از داخل حکومت ایران، امکان شناسایی و حذف بخش بزرگی از رهبری ارشد ایران در جریان جنگ را فراهم کرده است.
-منابع گفتند در حال حاضر بیشتر رهبران ایران نور روز را نمی‌بینند، هفته‌ها در پناهگاه‌های به‌شدت مستحکم می‌مانند و جز در موارد کاملاً ضروری از صحبت با یکدیگر خودداری می‌کنند.
-یکی از مقام‌ها گفت: «تماشای تلاش آن‌ها برای فهمیدن این‌که چطور با هم حرف بزنند، تقریباً مثل تماشای یک سیتکام است. آن‌ها کاملاً به ستوه آمده‌اند.»
-شدیدترین تدابیر احتیاطی از سوی رهبر عالی اتخاذ شده است.
-بر اساس طراحی این سازوکار، حتی مقام‌های عالی‌رتبه حکومت ایران هم نمی‌دانند او کجاست و هیچ راهی برای تماس مستقیم با او ندارند.
-در عوض، پیام‌ها از طریق شبکه‌ای از پیک‌ها منتقل می‌شود که با هدف پنهان نگه داشتن محل حضور رهبر عالی ایجاد شده است.
-یکی از مقام‌ها گفت: «به همین دلیل است که می‌بینید برخی می‌گویند: "رهبر عالی با چارچوب موافقت کرده" یا "منتظر پاسخ درباره نکات نهایی توافق هستیم." هر اطلاعاتی که به او می‌رسد، از پیش قدیمی شده و پاسخ‌های او با تأخیر زیادی همراه است.»
-رهبر عالی در قالب کلیات با زیردستان خود ارتباط برقرار کرده و به آن‌ها جهت داده است که درباره چه موضوعاتی می‌توانند مذاکره کنند و چه موضوعاتی نباید مطرح شود.
-cbsnews
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75693)
 
 ---
 
