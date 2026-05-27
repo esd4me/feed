@@ -3,7 +3,236 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-27 17:22:05
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+<img src="https://cdn1.telesco.pe/file/Kh3vl7smseZbasRLJQwwhMiP_9Cpsx9ShUehqFSkGL9oqLzqS9h_kMQk3CwPuNR4-EgrqhLoKid1sz7SF9IACWJqGi_g7bqeiZ3yjDfDR38LYwzqQDmXG77s0Ya5MeMb0qAlq3xNqwKc1ILk_tjDT_cDLsb-XYoKYb3GEp2wc2Z-lyk1prYye684dU7WDJInpCfru7QvO0y8DqvDEU-blVDiTaDlbO7vzJS8OMseI5-lyT9DAHI9pqy4WHGkitshj6AElcaisaja6PsbHseVSx1BsO4TDJgB30RkCj2nmEDF3ljG19_eLfJ8MtjOPg3maEmDEwKBfvwEzhjNTmdELg.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، روز چهارشنبه گفت که ایران در ازای کنار گذاشتن اورانیوم با غنای بالای خود، از لغو تحریم‌ها توسط واشینگتن برخوردار نخواهد شد و از پیشنهادات ایران برای توافق پایان جنگ ابراز نارضایتی کرد.
+ترامپ پیش از برگزاری جلسه کابینه خود در یک تماس تلفنی کوتاه با شبکه پی‌بی‌اس نیوز، در پاسخ به این سوال که آیا توافق فعلی به این معناست که ایران در ازای لغو تحریم‌ها، اورانیوم با غنای بالای خود را واگذار خواهد کرد، گفت: «نه، نه، اصلاً. خبری از لغو تحریم‌ها نیست، نه.»
+او اضافه کرد: «آن‌ها قرار است اورانیوم با غنای بالای خود را کنار بگذارند، نه در ازای لغو تحریم‌ها. نه، نه، اصلاً.»
+ایران بیش از ۴۰۰ کیلو اورانیوم غنی شده تا حد ۶۰ درصد دارد که در تأسیسات زیرزمینی هدف قرار گرفته در جنگ ۱۲ روزه سال گذشته مدفون است.
+رئیس‌جمهور ایالات متحده ساعتی بعد در ابتدای نشست کابینه خود در کاخ سفید گفت که ایران بسیار مایل است به توافق برسد، اما آمریکا هنوز از توافق پیشنهادی رضایت ندارد.
+ترامپ در این نشست در حضور خبرنگاران گفت: «ایران خیلی مصمم است، آن‌ها خیلی می‌خواهند که به توافق برسند. تا اینجا هنوز موفق نشده‌اند... ما از آن راضی نیستیم، اما خواهیم شد.»
+او سپس بار دیگر ایران را به ازسرگیری حملات نظامی تهدید کرد: «یا به آن نقطه می‌رسیم، یا اینکه مجبور می‌شویم کار را یکسره کنیم.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75757)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+<img src="https://cdn1.telesco.pe/file/aKxayZbpLu9kqjvkqF2MgjnTMKYERVKnghH1KIKptnT7t36AdI2hLPTiQMTzsAbYnOLxhiCqwd4BXhYbES-_JZRjXlnyMkB7zS8ZVSR4gh22d20-j_Z_UIL8NiPe_lFt9R6U3vdjk0eGBWVJ7timvFsvZzO0Md5XPHeQPol_p845sppl0QL9idnCNTDEwyUXrmzJ-vz9y6n-u430JMqQVqTVCwfVl3Y12eC_mCQnxDzOX43MRnuvzBZqXZoBkELUTcRakFJyzOAUB7Dq5bOrRfFtHNY4va4P1o0Snmz4o5wddsYUymLh5bmwssKUPABtrPoeH4fRfkx1FGTzsuKY7Q.jpg" width="400"><br>
+
+⚠️
+تصاویر دلخراش از اجساد مردم کشته‌شده در بیمارستان تهرانپارس تهران
+⚠️
+دو روز پیش ویدیوی دوم رو با تردید منتشر کرده بودم و نوشته بودم نمی‌دونم درسته یا نه. حالا عکس‌هایی از بیمارستان تهرانپارس با شرح جان‌باختگان ۱۸ و ۱۹ دی دریافت کردم که نشون میدن اون ویدیو…
+
+[View Post](https://t.me/VahidOnline/75756)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+
+
+دونالد‌ ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ششم خرداد، در نشست کابینه در کاخ سفید درباره مذاکرات با جمهوری اسلامی گفت تهران «بسیار مشتاق» توافق است، اما مذاکرات هنوز به نتیجه نهایی نرسیده است.
+ترامپ گفت: ما از وضعیت فعلی راضی نیستیم ولی خواهیم شد.
+رئیس‌جمهوری آمریکا همچنین جمهوری اسلامی را تحت فشار شدید توصیف کرد و گفت: «نیروی دریایی‌شان نابود شده، نیروی هوایی از بین رفته و همه‌چیزشان از دست رفته است.»
+ترامپ افزود جمهوری اسلامی «در حالی مذاکره می‌کند که چیزی برایش باقی نمانده» و هشدار داد اگر توافق حاصل نشود، آمریکا ممکن است «برگردد و کار را تمام کند.»
+ترامپ گفت: «آنها تازه دوباره به اینترنت برگشته‌اند، چون به‌شدت تحت فشار قرار گرفته‌اند.»
+او همچنین گفت اقتصاد ایران «در حال سقوط آزاد» است و تهران به‌دلیل فشارهای سنگین، گزینه دیگری جز حرکت به‌سوی توافق ندارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75755)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+
+
+خبرگزاری فارس به نقل از «منابع آگاه» گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، ممکن است در ساعات آینده به‌صورت یک‌طرفه اعلام کند که توافق میان ایران و آمریکا نهایی شده است؛ اقدامی که به گفته این منابع می‌تواند با هدف اعمال فشار سیاسی و اثرگذاری بر افکار عمومی انجام شود، پیش از آنکه اختلافات باقی‌مانده به‌طور کامل برطرف شود.
+بر اساس این گزارش، این سناریو در حالی مطرح شده که هنوز برخی موضوعات میان دو طرف حل‌نشده باقی مانده و روند مذاکرات به مرحله نهایی نرسیده است.
+در همین زمینه، یک عضو تیم مذاکره‌کننده ایرانی در گفتگو با فارس تاکید کرده است که تا زمانی که همه موارد مورد نظر ایران حل و فصل نشود، هیچ توافقی قابل اعلام نخواهد بود.
+به گفته این منبع، جمهوری اسلامی ایران تنها در صورتی که اختلافات به‌طور کامل برطرف شود، نتیجه مذاکرات را به‌صورت رسمی اعلام خواهد کرد و هیچ توافقی پیش از رسیدن به جمع‌بندی نهایی، مورد تایید تهران نخواهد بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75753)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+<img src="https://cdn1.telesco.pe/file/tMFHNkYCnZ9iYqVnuD5sOVcqnde92AR9bQF0Spk_mqHr9KrkQ1WHF4m6WOW_9QSy2akqMiJxDG438AkutMZF21paP8yZLYnfNeHnJd9BDYYJxhcT4k98nFFQvSRLEvjDvfIfUWmk21-c57MbN9p8KLMqi3GYdtFbZEeDO0dRvf1C1w2zEoCXMhVM0d-rR61wS-qmSs241-xNZnnrc23xHiqTq-5worOzYBZU-6Mq1c6N0N5VY9TkhyzYhtjamNkgT7fWV0Lc9USVK6MDMWeq5JceK6J2QxUE5o9m9Yqth3SdVw90upGWJsIVt8ra0vjnOe5VomdPv9An27d4yJNSMA.jpg" width="400"><br>
+
+#آتش‌سوزی
+در یکی از برج‌های مجتمع مسکونی پامچال در چیتگر
+#تهران
+تصاویر دریافتی + منتشرشده، چهارشنبه ۶ خرداد
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75749)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+<img src="https://cdn4.telesco.pe/file/rlvahMzgDi02YRSU9gwfrq1gBF_hfk1RwSsK1gDJp3jr6hjs-gxGO7PcQXS375-lXh4VTLBtZXYj0gJpB4Q1jTz9CI0fcE6i_SL0SIj7B9XV1MjjRi5JTz2kA7h3PkXV521Y4F7LEdnlD5lZaBdtY6dTh4H0shNLkWria-jWAyuYMkKEryBJBaLAtb_XlWu_Ou1-hFSY7Kcme6QDe1i3raboI4sjk99-efRqIjvdI4EoPN-Ojqvu7quFrNqyul5mLWvla3sFbrZ7V4chnEA-8HYIFyz-xxh7P-wlrTtf2GaukWITZgjUyTQkWGml3Ass5xRWdSMUGNeVU7DCbC4VUw.jpg" width="400"><br>
+
+کاخ سفید روز چهارشنبه اعلام کرد گزارشی که از سوی صداوسیمای جمهوری اسلامی منتشر شده و به پیش‌نویس یک چارچوب اولیه و غیررسمی برای تفاهم‌نامه میان ایران و ایالات متحده اشاره داشت، «صحیح نیست» و تفاهم‌نامه مورد اشاره «کاملاً ساختگی» است.
+تلویزیون حکومتی ایران ساعتی قبل گزارش داده بود که پیش‌نویس یک توافق چارچوبی با ایالات متحده شامل تعهد به لغو محاصره دریایی ایران، بازگرداندن رفت‌وآمد در تنگه هرمز و خروج نیروهای آمریکایی از منطقه خلیج فارس است.
+کاخ سفید در بیانیه‌ای اعلام کرد: «این گزارش رسانه‌های تحت کنترل ایران حقیقت ندارد و تفاهم‌نامه‌ای که آنها منتشر کرده‌اند کاملاً ساختگی است. هیچ‌کس نباید آنچه رسانه‌های دولتی ایران منتشر می‌کنند را باور کند. واقعیت‌ها اهمیت دارند.»
+گزارش صداوسیما
+مدعی شده بود که آمریکا متعهد به رفع محاصره دریایی ایران شده و در مقابل، ایران تعهد داده تعداد کشتی‌های عبوری تجاری را طی یک ماه به سطح پیش از تنش‌ها بازگرداند.
+تلویزیون جمهوری اسلامی همچنین گفته بود بر اساس این پیش‌نویس، «مدیریت و مسیر عبور و مرور» کشتی‌ها با ایران و همکاری عمان انجام خواهد شد و آمریکا تعهد داده نیروهای نظامی این کشور از «محیط پیرامونی ایران خارج شوند».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75748)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+<img src="https://cdn1.telesco.pe/file/T66X8JzDCXM3E4GgPLlgygUjw-9C058iZYqT8vbY9-kuss1_oiKmxuzd7TeqptM50ur7iYnbOQi3jx6-dQXG82ePshsgfGdra3G5uOrAc3aQ7kMSiE43VnQMimU7T2O88qxPHThWxeKztHn-pseNPPEPh-_-z6MXxQ3ZX3VL4cBYTny9Gm46yN_5LsE5cNUFN1oQ_cbvDpZtkmfbk0PasiCCelf0IknxYfgd7753GZFmPTbW_p_tdfcYU52LDCz455y_kvedsRTt7T_w54JUDl6cIWdzVZs5mfq2nxg5gtAizYiHedaLXbc-Xp80RIVQqOIixyMw75h6RtaXx16jWw.jpg" width="400"><br>
+
+دونالد‌ ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ششم خرداد در شبکه اجتماعی تروث سوشال با انتشار تصویری ساخته‌شده با هوش مصنوعی، از شبکه سی‌ان‌ان انتقاد کرد و نوشت این رسانه نیروی دریایی جمهوری اسلامی را قدرتمند نشان می‌دهد، در حالی که شناورهای ایران در اقیانوس غرق شده‌اند.
+در این تصویر، جمله «سی‌ان‌ان: نیروی دریایی ایران قدرتمند است» در کنار تصویری از شناورهای غرق‌شده جمهوری اسلامی در کف اقیانوس دیده می‌شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75747)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+<img src="https://cdn1.telesco.pe/file/iFoUVLCJ08ecp6Z4OhgCFOdxmAXNdQnv_1gOOUnF4txwlvLjjDlrVCF3owhUbrcs92T5Ck5OOYms9SrPX1Cuyv5rDdzX_rtJ38h5MFNJCt4um2xP9dWeVUjT6XB02-2XwvRwON3wiVd4xrpbfHV-3GptN9BOFWMWgh-1_dlOSz8XzFkXNE2xsi26eJgFnBGXUEKfqjhxDQCrJOfMspXjEnuJd_M7I-XqM3cxtoWp9Hn5F3IV9eScsCX2WPTXEKZUpl0-6lqJODAyK-Mqlvw99DhiVSzY5XtodWOHq0hLU-XFafaeBjQxnWtpwVJ9uGyY6RCGiYMXYN74aM-4y1fFNw.jpg" width="400"><br>
+
+‏گروهی از کاربران در شبکه اجتماعی ایکس (توییتر سابق) پست‌های انتقادی گزارش‌گونه از تحولات و رویدادهای سیاسی خارج از ایران منتشر می‌کنند، خطاب به شهروندانی که پس از حدود سه ماه به‌طور تدریجی با فیلترشکن موفق می‌‌شوند به اینترنت وصل شوند.
+‏این پست‌ها که با عبارت‌هایی مانند «
+وقتی شما نبودید
+» یا «بچه‌های ایران که تازه وصل شده‌اید» آغاز می‌شود، همزمان با کاهش تدریجی اختلال در دسترسی به اینترنت، به محلی برای مستندسازی و بازاندیشی انتقادی نسبت به تحولات سیاسی‌ ۸۸ روز گذشته تبدیل شده است.
+@
+VahidHeadline
+دوستانی که تازه وصل شدن یدونه «
+سلام وحید جان
+» سرچ کنید آرشیو کامل از اندر احوالات ایرانی جماعت در زمان قطعی نت رو براتون میاره
+iamroyaz
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75746)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+
+
+خبرگزاری صداوسیما اعلام کرد به یک سند غیررسمی اولیه از چارچوب ۱۴ بندی تفاهم احتمالی میان ایران و آمریکا دسترسی پیدا کرده، سندی که به گفته رسانه‌های ایرانی، هنوز نهایی نشده اما حاوی جزئیاتی درباره وضعیت تنگه هرمز و حضور نظامی آمریکا در منطقه است.
+بر اساس این گزارش، در پیش‌نویس منتشرشده آمده است که آمریکا متعهد می‌شود نیروهای نظامی خود را از اطراف ایران خارج کرده و محاصره دریایی را متوقف کند. در مقابل، تهران نیز تعهد می‌دهد ظرف مدت یک ماه، عبور کشتی‌های تجاری از تنگه هرمز را به سطح پیش از جنگ بازگرداند.
+طبق مفاد این سند، کشتی‌های نظامی مشمول توافق نخواهند بود و مدیریت مسیر حرکت کشتی‌های تجاری در تنگه هرمز با همکاری ایران و سلطنت عمان انجام می‌شود.
+صداوسیما همچنین گزارش داد که هنوز چارچوب نهایی تفاهم تدوین نشده و ایران تاکید کرده بدون وجود «سازوکار راستی‌آزمایی» یا همان مکانیزم اطمینان، هیچ اقدام عملی انجام نخواهد داد.
+در بخش دیگری از این گزارش آمده است که اگر دو طرف طی ۶۰ روز آینده به توافق نهایی برسند، این تفاهم می‌تواند در قالب یک قطعنامه الزام‌آور در شورای امنیت سازمان ملل تصویب شود.
+@
+VahidOOnLine
+🔄
+آپدیت:
+کاخ سفید: گزارش رسانه‌های جمهوری اسلامی درباره تفاهم‌نامه تهران و واشینگتن کاملا ساختگی است
+کاخ سفید گزارش رسانه‌های جمهوری اسلامی درباره بندهای تفاهم‌نامه احتمالی را «کاملا ساختگی» خواند و گفت نباید به روایت رسانه‌های جمهوری اسلامی اعتماد کرد
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75745)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+<img src="https://cdn1.telesco.pe/file/qf145ARdzftX3bXxlj5UTuaLo2lg_n5OWeTWVccd_RojGWxPgAb4OArCrMfHLv61xIBidA4L6wLWrNy05WzlD1wXBOwQh6OqBFcjnBcaOZdQjSjGJvvc6-udFOFBaPteULUQkpKBXx3j5XPctW2U6TrpNC8AxgrjNCJ3EEHrYwqsIdvvJb9K2bLU8W6ZgeimQScXj6xgdsyzfAgdhV0SL-Kodm89HuwcZu5j_RSG7zcEH10svguymVjDHJe-i4Ks0WFW2DlIW5LS3a84VRjSeKnMjR7OQWoXvF7TA7mpixtjyyqOJ0ax_kZf3KsWO06x8N7cJLUjsY62ixjZaTUJDw.jpg" width="400"><br>
+
+دونالد ترامپ در تروث‌سوشال گزارشی از جروزالم‌پست را بازنشر کرد که بر اساس اطلاعات اختصاصی «مدیا لاین» نوشته است موارد آزار و تعرض جنسی به زنان بازداشت‌شده، به‌ویژه زنان جوان، در زندان‌ها و بازداشتگاه‌های جمهوری اسلامی در دوران آتش‌بس افزایش یافته است.
+در این گزارش، زنی جوان به نام کاملیا گفته پس از بازداشت خشونت‌آمیز در خانه‌اش، دو هفته همراه هشت زن دیگر، از جمله دختری ۱۶ ساله که با ساچمه از ناحیه صورت زخمی شده بود، در اتاقی ۲۰ متری نگهداری شد.
+به گفته کاملیا، او پس از انتقال به سلول انفرادی و خودداری از اعتراف اجباری، در اتاق بازجویی هدف خشونت قرار گرفت، لباس‌هایش پاره شد، با باتوم مورد تجاوز قرار گرفت، به‌شدت کتک خورد و به تجاوز گروهی تهدید شد.
+جروزالم‌پست همچنین با اشاره به قطع گسترده اینترنت، بازداشت‌ها، ناپدیدسازی قهری، آدم‌ربایی، تهدید روزنامه‌نگاران و مخالفان در خارج از کشور و افزایش ناگهانی اعدام مخالفان نوشت سرکوب در ایران تشدید شده است.
+دونالد ترامپ پیش‌تر نیز با انتشار پستی در تروث سوشال خواستار آزادی هشت زندانی سیاسی زن در ایران شده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75744)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
+
+<img src="https://cdn1.telesco.pe/file/N2JTZb0Y0brTZCKRsM0WTQw0PVGXP5yftQoLYOf_VP3T580j-ksMmhBuNSDrc64S7X7qBaSE4lKgF2YbTC9dzl8umxWpW3Dg2C7loAk266SZ2b6Py6QpPAYthMNq2xsRzKXK-1S-Ol_F37vlfc7maaqwfRx2JLzCFPEt3dVdkYvqx35Fnr7-FE-N8bHP_7dSjWdQrORbvawfytJdGSewiIN9a4tBIeaj_H08U4MtCqWOGw90SSMB5OQLuBHtvM9P4cXSO7YTLvf9LNsGxO7BVr_5QLOdMZmpSDc5x5xquoIh8wwjQEowpvtMBcqHWo-FVk_U9wkDeNulq7BGwCsB7w.jpg" width="400"><br>
+
+وزارت اطلاعات جمهوری اسلامی روز چهارشنبه ششم خرداد هشدار داد که بعد از جنگ اخیر، «برخی کمبودها و گرانی‌ها» در پی فشارهای اقتصادی آمریکا می‌تواند باعث بروز ناآرامی‌های تازه در ایران شود.
+این وزارتخانه در بیانیه‌ای مدعی شد که «تشدید فشارهای اقتصادی و متعاقب آن، انجام تحریکات گوناگون اجتماعی توسط عوامل دشمن و رسانه‌های مزدور فارسی‌زبان بیگانه، با سوء استفاده از برخی کمبودها و گرانی‌ها» یکی از محورهای مورد توجه آمریکا و اسرائیل است.
+هشدار درباره احتمال ناآرامی همزمان با افزایش شدید نرخ تورم و و گرانی کالاها و همچنین انتشار گزارش‌هایی درباره کاهش شدید درآمدهای دولت جمهوری اسلامی در پی هفته‌ها محاصره دریایی آمریکا و سقوط شدید صادرات نفت ایران مطرح شده است.
+این در حالی است که اعتراضات دی‌ماه سال گذشته نیز بعد از افزایش مداوم نرخ ارز در بازار و مناطق تجاری ایران آغاز و بعد از چند روز با افزایش تعداد معترضان، با خشونت شدید نیروهای امنیتی و کشتار هزاران نفر مواجه شد.
+وزارت اطلاعات همچنین درباره «عملیات تروریستی و تجاوزات مرزی بویژه در شمال غرب و جنوب شرق ایران» و انواع عملیات «ترور و خرابکاری» هشدار داده و مدعی شده که آمریکا و اسرائیل به دنبال وارد کردن «انواع سلاح، مهمات و ابزار ارتباطی غیرقانونی، بویژه استارلینک» به ایران هستند.
+ابراز نگرانی از رواج اینترنت ماهواره‌ای استارلینک در حالی است که بعد از ۸۸ روز قطع سراسری اینترنت در ایران، از روز سه‌شنبه شهروندان توانسته‌اند به شکل تدریجی و محدود به برخی سرویس‌های اینترنت جهانی دسترسی پیدا کنند.
+@
+VahidHeadline
+این بیانیه که با عنوان «سخنی با ولی‌نعمتان و هشداری به دشمنان» در رسانه‌های داخلی ایران منتشر شده، ادعا می‌کند که «دشمن شکست خورده در جنگ نظامی، بدنبال تولید دستآورد برای خویش، گرچه از طریق جنگ نرم، می‌باشد.»
+این بیانیه در حالی صادر می‌شود که اسماعیل خطیب، وزیر اطلاعات جمهوری اسلامی در سومین هفته جنگ در حمله اسرائیل کشته شد و دولت هنوز جانشینی برای او معرفی نکرده است.
+وزارت اطلاعات در این بیانیه علاوه بر اسرائیل و آمریکا، بریتانیا و اروپا را به همراهی با این دو قدرت متهم و کشورهای عرب حاشیه خلیج فارس را به‌عنوان «غلامان متمول» مسئول تامین مالی «جنگ ترکیبی تمام عیار» علیه «مردم قهرمان ایران» معرفی کرده است.
+وزارت اطلاعات در این بیانیه معترضان و مخالفان جمهوری اسلامی در خارج از ایران را تهدید کرد و نوشت: «مزدوران ضد انقلاب و تروریست‌های مقیم خارج کشور و حامیان آن‌ها نیز از آتشی که می‌افروزند در امان نخواهند بود.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75742)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-27 20:25:38
 
 <img src="https://cdn1.telesco.pe/file/ptqRyQc09jO7Z9JH6hTjcVA_QSH2D1-K--s8JJegWooBReS_8s7OKm3WrzalW4yPWuoDzc90LdB1Zba_1H6STZ-ujXwndWf6Ih9G2VeP5zEJF9ZLqOuc114_wHkEO_OzyPIHbgWPGVDu-vF5gp9_ECyN7FxYjw-l6ix86f_TPjFsGa7tFg0frYfETRIYdKShYHqU33aABQLQ1fFcEe4rn0NSKSPI9_xTKYmTwxrudjWLQZRv0bGvnQon3Z7Z__e1WWPLJtKgzy9u37tHzNQzgZHUaYsgUregyN3i2WvFgLXybTEz25Q0rWGRx2qpLZG4jeihyPo_zYgq7VI6z6xsfA.jpg" width="400"><br>
 
@@ -24,7 +253,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-27 17:22:05
+###### 🔵 Updated at: 2026-05-27 20:25:38
 
 <img src="https://cdn1.telesco.pe/file/rw4QHvM1qNizcipOMkSM5Hn-opz4j3YJZ7iNAGYVf7Cma_BJIRY3z5Nhbd__dKBFYZMmFUdmiXdVRj-KyGT4_5yF8N58JdyLeZ_LF2NCOF1nAuwVoR0ZVPvQzTs8qejaadTYKH8MF2LbpwbP1k63XXVilnfA5xwlZCTFEnDgyDzySGLnog3k06qxwEcCmuEsd-0427eN9UFvi4AcnXY2t9H8PbWr3vHHbd-kx83Bi_F5ehDBLKlMowf6qJvw2jWU6Hr277mo7a9qGvzPaX8c6yvCeH8nV86s5aIUGITAn-Dh2_B8bhEwGzRlSK3KG9WFNwirpAkmvnzWmlXsWHfICg.jpg" width="400"><br>
 
@@ -42,7 +271,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-27 17:22:05
+###### 🔵 Updated at: 2026-05-27 20:25:38
 
 <img src="https://cdn1.telesco.pe/file/MtqTqOgnIgvAXWmT0gd_UIbiSLlwBpuvUAJWNpo_zqdS_sYEMOy7Ea4IGB-FxFJVC0bSx9TkqEEiZT7P3TDjKHFuiZDfSDpzhZa9i4gQneB9cOCS_Mcg0JX-XR71h8jTeRwUVKbo2_7oPmOi_qMrKU1Ft2o17ykLLALAO5npoARNhWC01pv8rWydRidpOZFBW-Fo4bhB1q8Tf7eUOezz0xvNAFaSouk579aeX7CjCh-oTphKFmZiuvNi874iQLI57GMD6fLGcJdIkfratlOZulH4aKm4Z0t8Vv5PrnfDi9MjHrj36udJDppuw_MOw1EhzW57L-r8nkDaUImTx4Ivsw.jpg" width="400"><br>
 
@@ -63,9 +292,9 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-27 17:22:05
+###### 🔵 Updated at: 2026-05-27 20:25:38
 
-<img src="https://cdn4.telesco.pe/file/vivr5NQVqYWt_-k091a-7Kd1vsUkhl1_ROW6vzOZDs9kocczxtMJ8vs_EZlCJAzKUezfljfFPWd_JQxB-MX2iBvPFuf82ra7axqRoAGG-lrJK4TR1FKKkHG4aIGZwZDf0UR77aOYG6cKwAGp6R3ZOeQftpEcuyxHuBVPYerycWHj1TaRbAncRkgmJJ4OXthkH1meyDu9NvAxOnqcvq21C0p7tTzn5YeY7sfMYxyCwny5iy9Pd73oC-VW61JoW6zLTHLzZDiUndBuBG5m-Bj8WUhrE7T4zaLzKRRJiV4bXJQcygg1TxBJUBvxeEtku4yOgKaneMmA-jZ9tZ6x0j5K_g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/S8vBMIL205Pu-NRWBtk6z4ZfOaTmYW6ZcJUeBxW0VIthRGJu_qePPaqyQs6d3iarfu5QYgJyvbQxreXnlgRHkfx2tjJ0oGjNXxYvewYJoUyUKUYWwyyp0NBUsDtg_eOGZrcVpM3uHx1z-g2-xuSxlbUATE4ivgG1hQEvEcEQxroDTI0vgaPxpQzFT56mNMYRC6ONpTZFYzOmW4y96hU6nBuUS_WWdX3JZoQW808u-fNLSgAtu8Qwvt_LiEIYiC90edfuLf_Jz7_ECgof5ndG83Opr6rg70EKhWO98p7TANquFngZ5rEeqlv3t-vMEawpW4DC-ShEjBM-YslVxhQzMg.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهور آمریکا، قرار است روز چهارشنبه نشستی کم‌سابقه با اعضای کابینه خود در اقامتگاه ریاست‌جمهوری کمپ دیوید برگزار کند؛ نشستی که به گفته یک مقام کاخ سفید، همزمان با نزدیک شدن مذاکرات مربوط به ایران به مرحله‌ای حساس برگزار می‌شود.
 خبرگزاری فرانسه با انتشار این خبر نوشت که انتخاب کمپ دیوید، اقامتگاهی دورافتاده در کوهستان‌های مریلند که ترامپ برخلاف بسیاری از رؤسای‌جمهور پیشین کمتر به آن رفت‌وآمد داشته، نشان‌دهنده حساسیت گفت‌وگوهای پیش رو ارزیابی شده است.
@@ -89,9 +318,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-27 17:22:05
+###### 🔵 Updated at: 2026-05-27 20:25:38
 
-<img src="https://cdn1.telesco.pe/file/LxmKHmOx_jSiGUj1ychutybcIuYy26xsUe7Xkwx4r_t2U5Uo_9Aimi8rZp_471q9O8zv0X5R1I2Bl_sU-B5bWxdJpMaG6vr7mLul9CI0-bfUgGqAYKk4oR-eNUmQfLY-9R23rWd5DOlHGxCxomDJP22HBPGK-Bd_ctBrPxlNkqx80dUH7lFplSg1FoTW9VltGAgPIT5Wep3P2Zm2Mp7gAFCUt7Mb93lUe3SbnTPiSO2sOCfb4EPC-nCZvKCvPneneB-bnpeKaIW5CKOpwn2WNO9KwD8w1zVaE4OSIw6UXUOWevC0WI-wlppF3szs7NnxKZ0NK4ClJSdZXGnHMLD5ZA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/M6_2z83uc-Ube27l9Pi5Hhx0YsLxdZqPZlW5memD3N8ElfMJYJgnm-1S_GtDYvMrE3Rbn4u1XnLPUTxzEzsGRxN599p4sfqMASlqdx281w5NGUr3k0dG47LStrKEE0wfk2hK6FuQm_7xiq0oKmV2sb6hxXQbD9e7GlIGrlZ1ePXywH3v8cx4j0FcVWZPlgrO0aoVsnzAB_psKJtJ_INewsBn9Hg8nPP-39k-_bXlsK_fsTyskHXEN2RZ9nemWCpg2bQqqUavxNJjf-yK6CYeODIgaQd4eOqaHcyM9qSea5QZq-q4KvlhxaDdLN5ajrvP2s3jAwQ5jTzu0W5SsZltGg.jpg" width="400"><br>
 
 ♦️
 به گزارش فارس، خبرگزاری وابسته به سپاه، محمدباقر قالیباف، رئیس هیات مذاکره‌کننده جمهوری اسلامی ایران که روز دوشنبه در راس هیاتی با همراهی عباس عراقچی، وزیر امور خارجه و عبدالناصر همتی، رئیس بانک مرکزی، برای رایزنی با مقامات قطری به دوحه سفر کرده بود، عصر سه‌شنبه، پنجم خردادماه، به ایران بازگشت. بر اساس این گزارش، محور اصلی گفتگوهای میان مقامات عالی تهران و دوحه در این سفر، رایزنی درباره بازگشت پول‌های مسدودشده ایران بوده است.
@@ -101,180 +330,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75737)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-27 17:22:05
-
-<img src="https://cdn4.telesco.pe/file/O46EHopApYe82-yYQIDrd-RU0J-bi-IGaEIikH-BNXBk5qxfxDy6ryqHq_ak-xBouGKyzCoH4LOAB8XaIl54pCl2U0t5sTCb2PSmOwxpFoZHTR8zAfRaXJc8reX5BLutgJahN1V-4KNrqxUFKeDeryghUpdj0afZVCV8q3ZRmqVxMlj6K5YCvT5vUkyCnc1DOSK1MEYEerRIR4TeY0DLmn17R_Tvzi8spTOeVkjWoEecSkx51qrxVG7bIL7A4oX0CAeUVoH6E0ZA2MWv2-RIqN6fww0nInbot0xodYdyopzRdeL50Dg1C845ziWQJE3z6mjTKjtIH3ASCboRw5RUZg.jpg" width="400"><br>
-
-خبرگزاری تسنیم، روز سه‌شنبه، به نقل از منابع خود مدعی شد که طبق متن ۱۴ ماده‌ای یادداشت تفاهم بین ایران و آمریکا، منابع بلوکه‌شده ایران، به میزان ۲۴ میلیارد دلار باید در طول مذاکرات آزاد شود.
-آنطور که این رسانه نزدیک به سپاه پاسداران از قول « یک منبع آگاه نزدیک به تیم مذاکره‌کننده» گزارش داده، ایران تأکید دارد که نصف این مبلغ باید با شروع مذاکرات، در دسترس قرار گیرد، و بقیه در طول ۶۰ روز منتقل شود.
-این گزارش می‌گوید که سفر اخیر عباس عراقچی و محمدباقر قالیباف به قطر هم برای تفاهم دربارهٔ اجرایی‌سازی این مطالبه، و نحوه دسترسی به ۱۲ میلیارد دلار در گام اول و رفع موانع بوده است.
-همزمان، احمد بخشایش اردستانی، عضو کمیسیون امنیت ملی مجلس، مدعی شد که چند روز پیش، قرار بود ۱۲ میلیارد دلار از منابع مسدودشده ایران، از طریق روسیه وارد شود، ولی آمریکایی‌ها مانع این انتقال شدند.
-هنوز هیچ مقام رسمی در دولت آمریکا، این ادعاها را تأیید نکرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75736)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-27 17:22:05
-
-<img src="https://cdn1.telesco.pe/file/U1wYYEc9PO5mn8cbvorpUmdw3we9g1-2gk60wydIbfDGmNjK2TQRe0dqSYo74ZLBbXszQ3_g2T7Uf2zl8qHTgbEHUlaDDY54X88n6tDW6NliDMhbaCJ6cDSYyeX0SZeVczYlWkNHaYcVTNFdYcHdYAmOsPobUPghM_2B-YnQ59Gd3ketGA2zsRis_7TyCR_CRPqCNftVXHRPeQWpsqWRvrmS5ScHJrk6GCStHxILfuQtqq6DX44ffw-L2CWC-ypCR8fUpOb9cBDX59MCPZSH-AXwmFmks7T466U9VtAPG0lrIE4_r-Eggdk3tXJLxGAwYgT3sg3YeljObbYtsBjzkQ.jpg" width="400"><br>
-
-نت‌بلاکس، نهاد پایش وضعیت اینترنت در جهان، اعلام کرد داده‌های زنده این مجموعه نشان می‌دهد اتصال اینترنت در ایران در هشتاد و هشتمین روز قطعی گسترده، به صورت نسبی در حال بازگشت است؛ هرچند هنوز مشخص نیست این وضعیت پایدار خواهد ماند یا نه.
-@
-VahidHeadline
-ساعاتی پیش از این واقعه اخبار دیگری منتشر شده بود:
-در حالی که مقام‌های دولت مسعود پزشکیان از آغاز روند اتصال کامل به اینترنت تا ۲۴ ساعت آینده خبر می‌دادند، دیوان عدالت اداری اعلام کرد دستور توقف اجرای مصوبه تشکیل «ستاد ویژه ساماندهی و راهبری فضای مجازی کشور» را صادر کرده است.
-این دیوان ظهر سه‌شنبه پنجم خرداد اعلام کرد «به‌دنبال طرح شکایاتی، دستور به توقف مصوبهٔ ایجاد «ستاد ویژهٔ ساماندهی و راهبری فضای مجازی کشور» داده است» و افزود: «تا زمان رسیدگی نهایی به شکایات مطروحه، مصوبات و تصمیمات این ستاد قابل ترتیب اثر نخواهد بود.»
-مرکز رسانه قوه قضاییه نیز اعلام کرد دستورات و مصوبات ستاد ویژه «به دلیل بررسی غیرقانونی بودن ساختار ستاد، تا زمان رسیدگی قانونی قابل اجرا نیست».
-@
-VahidHeadline
-بعدش:
-همزمان با اعلام دیوان عدالت اداری مبنی بر صدور دستور توقف بازگشت اینترنت، ایسنا به نقل از «یک منبع مطلع»، روز سه‌شنبه، پنجم خردادماه، گزارش داد که با صدور دستور اتصال اینترنت از وزیر ارتباطات و فناوری اطلاعات فرآیند اتصال در حال انجام است و طی ۲۴ ساعت این امکان برای همه فراهم خواهد شد.
-این درحالی اتفاق افتاد که تنها یک روز پس از مصوبه «ستاد ویژه ساماندهی فضای مجازی» برای «بازگشت اینترنت به وضعیت پیش از دی‌ماه ۱۴۰۴»، دیوان عدالت اداری با صدور دستور موقت، «اجرای مصوبه ایجاد ستاد ویژه ساماندهی فضای مجاری» را متوقف و مصوبات این ستاد را تا زمان رسیدگی نهایی، غیرقابل اجرا اعلام کرد.
-همزمان، انتخاب نوشت که کامیار ثقفی، رضا تقی پور، رسول جلیلی و محمد حسن انتظاری تحت راهبری یک مقام ابقا شده دولت ابراهیم رئیسی، «شاکی قضایی» اتصال اینترنت بین‌الملل هستند.
-ایران از زمان آغاز جنگ در نهم اسفند، به مدت ۸۸ روز، در خاموشی دیجیتال به سر می‌برد.
-@
-VahidOOnLine
-محمدرضا عارف، معاون اول پزشکیان، در شبکه ایکس نوشت پیرو دستور پزشکیان «گام نخست دسترسی آزاد و ضابطه‌مند به فضای مجازی برداشته شد.»
-او افزود: «با بازگشایی اینترنت، خدمات هوشمند هموار و مطالبات مردمی که این‌چنین پای کار نظام و ایران ایستادند محقق و موانع توسعه دانش‌بنیان و مرجعیت علمی برداشته می‌شود.»
-عارف در متن خود درباره «گام نخست» و وصل شدن اینترنت برای شهروندان توضیحی ارائه نداد.
-این در حالی است که پیش‌تر فارس، رسانه وابسته به سپاه نوشت دیوان عدالت اداری اعلام کرد که در پی طرح شکایاتی درباره ابطال «سند ایجاد ستاد ویژه ساماندهی و راهبری فضای مجازی کشور»، هیات تخصصی صنایع و بازرگانی این دیوان، با احراز ضرورت و فوریت موضوع، دستور توقف اجرای این مصوبه را تا زمان رسیدگی به شکایت صادر کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75732)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-27 17:22:05
-
-<img src="https://cdn1.telesco.pe/file/S1Pq-rGXTXOZ8CJ1A7oSxg0yHgs3gkRhRnC0dswv0OtTz57dCYqtY8N4jW21Wu6mbawONMInU4Std5Lgit7pRHX8DBXVJ7q5ZskOqlP5U1vuFvwI4_3WvddE0m5E896D7LabNRA7huBdtTFAG2qe-puuQr4e8zuUBYgKRYjZwO1nFMe5_eHiDY7pK6cehtxyi51XHVrDxJ9JManx75xtwP2imZ_vDWPa27QQka3-POz4uYHEy7VXPjvISdXy9u0DUtFp_6bYwJRj9oGCfXu4c4c7yI5uO-gMTcMuEM09XysyfucZD_NwttVRmBN1Z4i3a7CKF4nM-96Ww-bgZ8P9lg.jpg" width="400"><br>
-
-Gerduo
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75731)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-27 17:22:05
-
-<img src="https://cdn1.telesco.pe/file/BLgCxtsYAFvzF_agdEyfbl3GRr-TwZaWtwpsywo-qhbKYOdM5-g0TanaWTqjTZ2enkFMoBzAE3CpjdJJ18IclMrLwUkant-slPX21XAA1oo8wnl8WGubfDx3oI4TD7SaYw5CQsKIGAIpwABss1Qw0JtBy7Ug1e26DuxtIJJI0QlKHXUnnYKslmYkzDLxjheUbxHGaDkU4D1NmB0VBmJugwk8xjVa4b5TemgmaRv9B-Maeg6Xd_u5_RelV2__RcAnWNGJpspxuzn89Ay57IYwoHPxTmOMoaOESzq-igfOVYrMfXQhnAP0wQEoq5FzFW-zwCh2FkZICVDuB1Lg6WKdNQ.jpg" width="400"><br>
-
-رسانه‌های ایران روز سه‌شنبه پنجم خرداد پیامی منسوب به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، را به‌مناسبت برگزاری مراسم حج منتشر کردند که در آن می‌گوید آمریکا از این پس «نقطه امنی برای استقرار پایگاه نظامی در منطقه نخواهد داشت».
-او در این پیام توضیحی دربارهٔ پایگاه‌های آمریکایی مستقر در کشورهای خلیج فارس نکرد اما هشدار داد که «سرزمین‌های منطقه دیگر سپر پایگاه‌های آمریکایی نخواهد بود».
-مجتبی خامنه‌ای همچنین با یادآوری ادعای ۱۰ سال پیش پدرش علی خامنه‌ای درباره اسرائیل، مدعی شد این کشور نیز «به مراحل پایانی عمر» خود نزدیک شده و «۲۵ سال بعد از آن تاریخ را نخواهد دید».
-از زمان اعلام نام مجتبی خامنه‌ای، به عنوان سومین رهبر جمهوری اسلامی، تصویر یا صدایی از او منتشر نشده و رسانه‌های ایران فقط پیام‌های کتبی را از او منتشر می‌کنند.
-@
-VahidHeadline
-در پیام منتسب به مجتبی خامنه‌ای با اشاره به گفته‌های ۱۰ سال پیش علی خامنه‌ای، رهبر کشته شده جمهوری اسلامی، اسرائیل «رژیم متزلزل صهیونی و غده سرطانی» توصیف شده و آمده است: «اسرائیل به مراحل پایانی عمر منحوس خود نزدیک شده و به فضل الهی و مطابق با سخن قاطع و آینده‌نگرِ ده سال قبل رهبر عظیم‌الشأن شهید قدس‌الله‌نفسه‌الزکیه، ۲۵ سال بعد از آن تاریخ را نخواهد دید، ان‌شاءالله.»
-این سخنان در حالی عنوان می‌شود که اسرائیل و آمریکا در یک سال گذشته در جریان دو جنگ، مقام‌های عالی‌رتبه  سیاسی و نظامی حکومت ازجمله علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، را کشتند، بخش بزرگی از برنامه هسته‌ای جمهوری اسلامی را نابود و تاسیسات و زیرساخت‌های نظامی و اقتصادی ایران را به‌شدت تضعیف کرده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75729)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-27 17:22:05
-
-<img src="https://cdn4.telesco.pe/file/uxklfF1p0qlLzc23Dn6mSoYYog5t5UBgCHJJDOMFDTpbc4xOJGye8MVlScSfU4DeaetQNbLLzrcssUmQnEsiQ9FSbKtm4VW58E1-u5qm7B_Ti0pt7UNKQjxzojSvfW_fT-KP5vB3MzzXZ2-Vrk3dKRgqyp9BHxjOJcP7DB3sBkmCR8Vl8-8LpcjXBryCJq0fm8XCSlbnqnov2QnOAAaS0Pm7NepCajmy8sXjaqh4NSh3FEA32ThUKqtXO9aUC6qB04FGp-BIUuXqvR98gd-MPDNRW2afchTxiSxvbq-CHpnkemuBcbSegGjW0Gz7cclvHMS49QT3JXr2DOTKUjSJbw.jpg" width="400"><br>
-
-سخنگوی وزارت خارجه قطر می‌گوید گزارش‌هایی که ادعا می‌کنند دولت این کشور برای تضمین نهایی‌شدن توافق با ایران، ۱۲ میلیارد دلار به جمهوری اسلامی «پیشنهاد» داده، «کاملاً بی‌اساس» است.
-ماجد الانصاری سه‌شنبه پنجم خرداد در شبکه ایکس نوشته که این گزارش‌ها «توسط طرف‌هایی منتشر می‌شوند که به دنبال برهم زدن توافق و تضعیف تلاش‌های دیپلماتیک با هدف کاهش تنش‌ها و تقویت ثبات در منطقه‌اند.»
-او افزوده که تلاش‌های دیپلماتیک قطر که با «هماهنگی» شرکای منطقه‌ای انجام می‌شود، «شناخته‌شده و شفاف است».
-ماجد الانصاری انتشار این دست روایت‌ها را «تلاش‌های مذبوحانه برای خدشه‌دار کردن اعتبار» دولت قطر نامیده که به گفته او به‌عنوان «یک بازیگر بین‌المللی قابل اعتماد در مسیر دستیابی به صلح» است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75728)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-27 17:22:05
-
-<img src="https://cdn1.telesco.pe/file/Ezg-JJvuNSxi1bf6M_ObRltUSAlNMANV0bHcDi9SaknUvTJYTrtDmj2740IIUixHPGmm_UT6Gl9_F0TMRIyVPwJybyKIjbNeEeU0vg9kZOz9YrlhwoRbkJRBNMFdYzeo7WWOFGgQuKQSjfOly2X5WzhUYbV5gxPmijCDENvyclX7pqHZg3jQ3j2Gsa7GEv6bmnG3GHfcEGk7Djknr1-Z6TP-_XIcXIr-Ae5kGg0R7jpIE7Zg964aqUMJgowm4pAx3_jnJ0v8UXSRKAbXhaU1Eh5SQUeNk_1-0t3krnDtEMCVKYyZ3NcwDVTqO13No5dy5HVwFYlzjSeYrzIUHxpC8Q.jpg" width="400"><br>
-
-خبرگزاری میزان، وابسته به قوه قضائیه، اعلام کرد غلامرضا خانی‌شکرآب به اتهام «همکاری اطلاعاتی و جاسوسی به نفع اسرائیل» اعدام شده است.
-میزان مدعی شده او «سرشبکه عملیاتی موساد» بوده و پس از تأیید حکم در دیوان عالی کشور اعدام شده است.
-در روایت قوه‌قضائیه، اتهام‌های سنگینی به او نسبت داده شده است؛ از جمله جذب افراد برای عملیات خرابکارانه، دریافت پول نقد و ارز دیجیتال، تعرض و اسیدپاشی به خودروهای افراد مورد نظر موساد، آتش‌زدن اموال عمومی، تهیه بمب و ارسال آن به تهران، تصویربرداری از نقاط هدف و حتی مأموریت برای فراهم‌کردن مقدمات ترور یک خاخام یهودی در یکی از کشورهای منطقه.
-ابهام اصلی پرونده، نحوه انتقال خانی‌شکرآب به ایران است. میزان نوشته او در خارج از کشور شناسایی و با «فریب اطلاعاتی» به داخل کشور هدایت و بازداشت شد.
-@
-VahidHeadline
-میزان نوشته است: بر اساس اعترافات متهم، یکی از مهم‌ترین مأموریت‌هایی که سرویس موساد برای وی طراحی کرده بود، اعزام او به یکی از کشورهای منطقه با هدف شناسایی و فراهم‌سازی مقدمات ترور یک خاخام یهودی بوده است.
-@
-VahidHeadline
-گزارش دستگاه قضایی اشاره‌ای به تاریخ بازداشت و محاکمهٔ متهم نکرده و در عین حال وی را «از اراذل و اوباش یکی از استان‌های کشور و دارای سوابق نزاع و شرارت» خوانده و ادعا کرده است که او «به دنبال جذب افراد و به‌کارگیری آن‌ها در داخل کشور برای اجرای اقدامات ضد امنیتی بوده است».
-از روند محاکمه این متهم گزارشی منتشر نشده و گزارش قوه قضاییه نیز مدارک و مستنداتی از اتهامات ارائه نداده است.
-دستگاه قضایی جمهوری اسلامی در ماه‌های اخیر به شکل تقریباً روزانه اقدام به اجرای احکام اعدام معترضان و یا افرادی می‌کند که آن‌ها را به همکاری با آمریکا و اسرائیل متهم می‌کند. برخی نهادهای حقوق‌بشری می‌گویند جمهوری اسلامی از اعدام برای ایجاد فضای ترس و به‌عنوان عامل سرکوب استفاده می‌کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75723)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-27 17:22:05
-
-<img src="https://cdn1.telesco.pe/file/UCijj8lHiUliyqwERseppH7A6uSLfEqZSEoYUN5XttCgXGx99P7Bj-14UW3OXs5CWMKHbeH0in4SMlq__FOMOEONSb3mkkj630JVtxwvpN2BvlA5nrQMu2D9Ve4YMy120wiu0V2gaVnDFTyifxvgDAIUgU1tqOvocEQq7jQ3WTJ6ck6NBi_i5oHLiyRwqATyf70BFt-8KVYNwjTzAyo4UzhHlYMktRVD90Z5fYd5yN3o2zOAmXUVZ4_ik1Nyzu1L31GXl2uqJEdGxHFu36A5swtK-Zfc22P29oc5R7splKEygp-VTvvwoWQ7XjTj6miI3W3ahe7qSvfL7rFw3uL5IQ.jpg" width="400"><br>
-
-با وجود حملات اخیر آمریکا به سامانه‌های موشکی و قایق‌های ایران در خلیج فارس که وضعیت آتش‌بس شکننده را متزلزل‌تر کرده است،‌ مارکو روبیو، وزیر خارجه آمریکا روز سه‌شنبه گفت که توافق با ایران «همچنان امکان‌پذیر است.»
-او در هند به خبرنگاران گفت: «امروز مذاکراتی در قطر در جریان بود،‌ و باید دید آیا می‌توانیم شاهد پیشرفتی باشیم یا خیر. فکر می‌کنم بخش زیادی از زمان صرف دقت در کلمات و واژه‌های به کار گرفته در متن اسناد می‌شود، بنابراین چند روز طول خواهد کشید.»
-آقای روبیو افزود: «رئیس‌جمهور تمایل خود را برای انجام این کار ابراز کرده است. او یا به یک توافق خوب دست خواهد یافت یا هیچ توافقی نخواهد کرد.»
-آقای روبیو به خبرنگاران گفت که تنگه هرمز باید باز باشد.
-او گفت که آنها به هر حال این مسیر را باز خواهند کرد و افزود: «آنچه در آنجا اتفاق میافتد،‌ غیرقانونی است و باعث بی‌ثباتی برای جهان و غیرقابل قبول است.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75721)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-27 17:22:05
-
-<img src="https://cdn1.telesco.pe/file/CfWsRnRMMKUmYfF-juaqLORrU6eJK2l1dV2iwsmqxEKCDwKlglyy86G84YfW4SrSygOrpyEcyjM04_X_nYdn-G2vx0JHZr032flCbwtxxAUbvHasB7gJpz5whZFxH5m9SGFueu7RciEe7ESqoTtSRYMz6Of92aWWJgdSanKQ6w6WmqIjK7kVIeAtp5qOCCiy-p8eLrlTGEKImpfvcVqnGGMtvDaYpVL9nFEzoogQEI0VanVn98S7QqfiU3emNkwuUA6EE0VZMfgR1X6351yhL-nVIyuu9ScSggLnN4McHqCAPXCvs8KNnzyKX3BSswAtihlVihLS0yhPG3MnxS1onQ.jpg" width="400"><br>
-
-وزارت خارجه آمریکا اواخر دوشنبه به وقت واشنگتن گفت مارکو روبیو وزیر امور خارجه، به در خواست همتای روس خود سرگئی لاوروف، با او صحبت کرد. در این تماس تلفنی، دو وزیر درباره جنگ روسیه و اوکراین، روابط دوجانبه و اوضاع ایران صحبت کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75720)
 
 ---
 
