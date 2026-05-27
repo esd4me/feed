@@ -3,7 +3,45 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
+
+
+
+#بندرعباس
+پیام‌های دریافتی:
+چهار تا صدای انفجار پشت سر هم اومد الان
+ساعت ۱:۳۳ بندرعباس
+درود آقا وحید همین الان سه تا صدای انفجار اومد تو بندرعباس ساعت ۱:۳۳ دقیقه
+حاجی صدای انفجار دوباره شرق بندرعباس همین حالا  سه تا پشت سر هم ساعت1/43 دقیقه
+سلام وحید
+۰۱:۳۳ شب
+همین الان بندرعباس صدای ۳ تا انفجار اومد
+سمت بهشت بندر
+احتمالا باز مثل سری قبل باند فرودگاهه
+بندرعباس ساعت ۱:۳۰ هفتم خرداد صدای جنگنده بعدش سه تا صدا انفجار اومد
+سه تا انفجار بندرعباس
+ساعت 1 و 33 دقیقه بامداد پنجشنبه 7 خرداد صدای سه تا انفجار رو از بندر عباس کس دیگه ای هم گزارش کرده ؟
+شبیه صدای موشک زمین به هوا بود
+بندرعباس صدا اومد
+سه بار
+درود. ساعت ۱:۳۲ دقیقه صدای سه انفجار شدید در بندرعباس اومد و خونه شدید لرزید.
+ساعت ۱:۴۷ باز هم صدای دو انفجار دیگه اومد
+صدای سه انفجار بندرعباس همین الان
+سلام وحید جان بندرعباس چند انفجار وحشتناک پنجره خونه لرزید 1.38
+دباره زدن بندرعباس ساعت 1.49
+۳تا صدای انفجار بعد صدای پدافند
+سه انفجار پشت سر هم و یکی هم ده دقیقه بعدش بندرعباس رخ داده
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75760)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/RJuPJYsq1FXjm4ojuLk38981rfRJQCbktBZhZ449-spfa5ZO1LCwlER2ndgQENdh9uSkAiQW_BYY5eKnlb38JpOniM-89yFG6OuCPF4GSu9-tIsd-BOMLWVhon3ZHtuTasBnhDW0U6mI6itjwyUSdre65kslvBzunQvwQqwHoNYzGjYq2gWVi1HfThuC2ia-9Nc3iLhahZDJGH_7qML4TD_9OqlwszL0lK_SwxDZHhkyyolWq7tG-Cf2QHbBSlT03mmNiwzNdFcG5nmV8CEgWpcoCtJdTqqI34XaHKzER1-1klgbrMBGKwFXd79LpKaPhhsW289yBkOuJGLSc8OF-A.jpg" width="400"><br>
 
@@ -25,7 +63,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/Kh3vl7smseZbasRLJQwwhMiP_9Cpsx9ShUehqFSkGL9oqLzqS9h_kMQk3CwPuNR4-EgrqhLoKid1sz7SF9IACWJqGi_g7bqeiZ3yjDfDR38LYwzqQDmXG77s0Ya5MeMb0qAlq3xNqwKc1ILk_tjDT_cDLsb-XYoKYb3GEp2wc2Z-lyk1prYye684dU7WDJInpCfru7QvO0y8DqvDEU-blVDiTaDlbO7vzJS8OMseI5-lyT9DAHI9pqy4WHGkitshj6AElcaisaja6PsbHseVSx1BsO4TDJgB30RkCj2nmEDF3ljG19_eLfJ8MtjOPg3maEmDEwKBfvwEzhjNTmdELg.jpg" width="400"><br>
 
@@ -47,7 +85,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/aKxayZbpLu9kqjvkqF2MgjnTMKYERVKnghH1KIKptnT7t36AdI2hLPTiQMTzsAbYnOLxhiCqwd4BXhYbES-_JZRjXlnyMkB7zS8ZVSR4gh22d20-j_Z_UIL8NiPe_lFt9R6U3vdjk0eGBWVJ7timvFsvZzO0Md5XPHeQPol_p845sppl0QL9idnCNTDEwyUXrmzJ-vz9y6n-u430JMqQVqTVCwfVl3Y12eC_mCQnxDzOX43MRnuvzBZqXZoBkELUTcRakFJyzOAUB7Dq5bOrRfFtHNY4va4P1o0Snmz4o5wddsYUymLh5bmwssKUPABtrPoeH4fRfkx1FGTzsuKY7Q.jpg" width="400"><br>
 
@@ -62,7 +100,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 
 
@@ -83,7 +121,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 
 
@@ -102,7 +140,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/tMFHNkYCnZ9iYqVnuD5sOVcqnde92AR9bQF0Spk_mqHr9KrkQ1WHF4m6WOW_9QSy2akqMiJxDG438AkutMZF21paP8yZLYnfNeHnJd9BDYYJxhcT4k98nFFQvSRLEvjDvfIfUWmk21-c57MbN9p8KLMqi3GYdtFbZEeDO0dRvf1C1w2zEoCXMhVM0d-rR61wS-qmSs241-xNZnnrc23xHiqTq-5worOzYBZU-6Mq1c6N0N5VY9TkhyzYhtjamNkgT7fWV0Lc9USVK6MDMWeq5JceK6J2QxUE5o9m9Yqth3SdVw90upGWJsIVt8ra0vjnOe5VomdPv9An27d4yJNSMA.jpg" width="400"><br>
 
@@ -120,7 +158,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn4.telesco.pe/file/rlvahMzgDi02YRSU9gwfrq1gBF_hfk1RwSsK1gDJp3jr6hjs-gxGO7PcQXS375-lXh4VTLBtZXYj0gJpB4Q1jTz9CI0fcE6i_SL0SIj7B9XV1MjjRi5JTz2kA7h3PkXV521Y4F7LEdnlD5lZaBdtY6dTh4H0shNLkWria-jWAyuYMkKEryBJBaLAtb_XlWu_Ou1-hFSY7Kcme6QDe1i3raboI4sjk99-efRqIjvdI4EoPN-Ojqvu7quFrNqyul5mLWvla3sFbrZ7V4chnEA-8HYIFyz-xxh7P-wlrTtf2GaukWITZgjUyTQkWGml3Ass5xRWdSMUGNeVU7DCbC4VUw.jpg" width="400"><br>
 
@@ -141,7 +179,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/T66X8JzDCXM3E4GgPLlgygUjw-9C058iZYqT8vbY9-kuss1_oiKmxuzd7TeqptM50ur7iYnbOQi3jx6-dQXG82ePshsgfGdra3G5uOrAc3aQ7kMSiE43VnQMimU7T2O88qxPHThWxeKztHn-pseNPPEPh-_-z6MXxQ3ZX3VL4cBYTny9Gm46yN_5LsE5cNUFN1oQ_cbvDpZtkmfbk0PasiCCelf0IknxYfgd7753GZFmPTbW_p_tdfcYU52LDCz455y_kvedsRTt7T_w54JUDl6cIWdzVZs5mfq2nxg5gtAizYiHedaLXbc-Xp80RIVQqOIixyMw75h6RtaXx16jWw.jpg" width="400"><br>
 
@@ -158,7 +196,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/iFoUVLCJ08ecp6Z4OhgCFOdxmAXNdQnv_1gOOUnF4txwlvLjjDlrVCF3owhUbrcs92T5Ck5OOYms9SrPX1Cuyv5rDdzX_rtJ38h5MFNJCt4um2xP9dWeVUjT6XB02-2XwvRwON3wiVd4xrpbfHV-3GptN9BOFWMWgh-1_dlOSz8XzFkXNE2xsi26eJgFnBGXUEKfqjhxDQCrJOfMspXjEnuJd_M7I-XqM3cxtoWp9Hn5F3IV9eScsCX2WPTXEKZUpl0-6lqJODAyK-Mqlvw99DhiVSzY5XtodWOHq0hLU-XFafaeBjQxnWtpwVJ9uGyY6RCGiYMXYN74aM-4y1fFNw.jpg" width="400"><br>
 
@@ -181,7 +219,7 @@ iamroyaz
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 
 
@@ -207,7 +245,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/qf145ARdzftX3bXxlj5UTuaLo2lg_n5OWeTWVccd_RojGWxPgAb4OArCrMfHLv61xIBidA4L6wLWrNy05WzlD1wXBOwQh6OqBFcjnBcaOZdQjSjGJvvc6-udFOFBaPteULUQkpKBXx3j5XPctW2U6TrpNC8AxgrjNCJ3EEHrYwqsIdvvJb9K2bLU8W6ZgeimQScXj6xgdsyzfAgdhV0SL-Kodm89HuwcZu5j_RSG7zcEH10svguymVjDHJe-i4Ks0WFW2DlIW5LS3a84VRjSeKnMjR7OQWoXvF7TA7mpixtjyyqOJ0ax_kZf3KsWO06x8N7cJLUjsY62ixjZaTUJDw.jpg" width="400"><br>
 
@@ -227,7 +265,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/N2JTZb0Y0brTZCKRsM0WTQw0PVGXP5yftQoLYOf_VP3T580j-ksMmhBuNSDrc64S7X7qBaSE4lKgF2YbTC9dzl8umxWpW3Dg2C7loAk266SZ2b6Py6QpPAYthMNq2xsRzKXK-1S-Ol_F37vlfc7maaqwfRx2JLzCFPEt3dVdkYvqx35Fnr7-FE-N8bHP_7dSjWdQrORbvawfytJdGSewiIN9a4tBIeaj_H08U4MtCqWOGw90SSMB5OQLuBHtvM9P4cXSO7YTLvf9LNsGxO7BVr_5QLOdMZmpSDc5x5xquoIh8wwjQEowpvtMBcqHWo-FVk_U9wkDeNulq7BGwCsB7w.jpg" width="400"><br>
 
@@ -254,7 +292,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/ptqRyQc09jO7Z9JH6hTjcVA_QSH2D1-K--s8JJegWooBReS_8s7OKm3WrzalW4yPWuoDzc90LdB1Zba_1H6STZ-ujXwndWf6Ih9G2VeP5zEJF9ZLqOuc114_wHkEO_OzyPIHbgWPGVDu-vF5gp9_ECyN7FxYjw-l6ix86f_TPjFsGa7tFg0frYfETRIYdKShYHqU33aABQLQ1fFcEe4rn0NSKSPI9_xTKYmTwxrudjWLQZRv0bGvnQon3Z7Z__e1WWPLJtKgzy9u37tHzNQzgZHUaYsgUregyN3i2WvFgLXybTEz25Q0rWGRx2qpLZG4jeihyPo_zYgq7VI6z6xsfA.jpg" width="400"><br>
 
@@ -275,7 +313,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 00:46:35
+###### 🔵 Updated at: 2026-05-28 02:22:31
 
 <img src="https://cdn1.telesco.pe/file/JRDxHab5601My7gJNFCi7Zo48rBVhWBH9ULSjItj0_xd7eay1jml103xI0bjBnyKXDCejlRBN4uCrbBFA3p7NGCS8PASPnKykac0HtQsWk2BSIEXmGXWDVFoobrKF71ahM_5SStk55HGMqD1L9RMm-4yK5E77rjhiB0zgIRDf7YNUlSvBp44eL3tpPLYNmt_-fUXfdpLCTMJkfemmGdKPWVQyJ6V6oINomQj8oeUiKwoLzc4HZb2Rs3lijgOyyiGPEEf5CEk7Wex4XoD1TafE32J_tkPENfGb721XLOMJGE6qxxiKaT4LpCFEKVnEDb9nRBmBrpzuMlEcuatdQtcyg.jpg" width="400"><br>
 
@@ -288,27 +326,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75740)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-28 00:46:35
-
-<img src="https://cdn1.telesco.pe/file/rmY5gIMWwztMVWoHFiP1wEvceZ_c8HvMlkL_3VgmXA2kRsMA0lUtLJTz_15vMGsNittak_hpeuqYIJoWpKmtXvBJh57qPqJZONTGcDsrRzttBzvl2CJ2sbk-ePGeOBkkLSg8vzq26rE6FDoZOadTDij5JmBKGqTS9ShuBtZV9l-5c3ls0hxh33OrvXn_Ovlu-ZjfgB96YZXXRZjDcrBO3suXaADf56uu_HR1VzAZ_krwFM66gRjGoCED3Lb2PZ9YWwjlC7u_v13yqjrj1zwlvz4NM8TPVo5Yc6hw0f5NYtwyu7trRBYvfCXW9pbO4nYIZ69Il1xi4sspLfiVLR9YrQ.jpg" width="400"><br>
-
-ترامپ متنی که
-۸ روز پیش
-منتشر کرده بود رو دوباره پست کرد.
-ترجمه ماشین:
-اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش از بین رفته و در کف دریا آرمیده، و نیروی هوایی‌اش دیگر در میان ما نیست؛ و اگر کل ارتشش از تهران بیرون بیاید، سلاح‌ها را زمین بگذارد و دست‌ها را بالا ببرد، در حالی که هر کدام فریاد می‌زنند «تسلیمم، تسلیمم» و با هیجان پرچم سفیدِ نمادین را تکان می‌دهند؛ و اگر تمام رهبران باقی‌مانده‌اش همه «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت و نیروی عظیم ایالات متحده باشکوه آمریکا بپذیرند، نیویورک تایمز شکست‌خورده، چاینا استریت ژورنال، همان وال‌استریت ژورنال، سی‌ان‌ان فاسد و حالا بی‌اهمیت، و همه دیگر اعضای رسانه‌های جعلی، تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا به دست آورد و اصلاً هم رقابت نزدیک نبود.
-دموکرات‌ها و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها به‌کلی دیوانه شده‌اند!!!
-رئیس‌جمهور دی‌جی‌تی
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75739)
 
 ---
 
