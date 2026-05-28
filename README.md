@@ -3,14 +3,36 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
+
+<img src="https://cdn4.telesco.pe/file/XP_5iSpGknZxazjKvvvLwW0vOpNAPt9y_kzpAFqA2TQQ5G5PfG4IBDcYNsN7Y5HnoDNnkloiG1-OnCuAhw3xLgDS66bxprTOe-Zt-UnBEjJ199O2LuEr5RECJw56OjyxCNbPgGlBnc2hvRbLleahCfqvyhMEdMjG4AH_Yy-o22xAqOO1RbDxJkCc8y23_A9oEHPN3DnzbdzhoPyc13UAZB4S14M9_OkxdpvlSFd7mnnyDZBQO3UJXQY640CGHiz0CuqdTkI_BeYglBVA3uRVsLImuhCPRNEjgprISEfc3KkuK8ln62BqtoMSQvqIz1K6MYFGjoymGt2A_Vo-i2drBw.jpg" width="400"><br>
+
+رسانه‌های ایران گزارش دادند که نیروی دریایی سپاه شامگاه پنج‌شنبه در نزدیکی تنگه هرمز به ۴ «شناور خاطی» که قصد عبور بدون هماهنگی از تنگه هرمز را داشتند، «شلیک اخطار» کرده است.
+همزمان، گزارش‌های منتشرشده در رسانه‌های اجتماعی از شنیده‌شدن صدای انفجار در هرمزگان و بوشهر حکایت دارد.
+@
+VahidOOnLine
+ساعتی پیش پیامی دریافت کرده بودم که در پست قبلی نقلش کرده بودم و الان به اینجا منتقلش کردم. پیامی از شهروندی که درباره یکی از اعضای خانواده‌اش نوشته بود: الان قشم بود. پلاک موقت دادن بهشون گفتند فقط از جزیره خارج شید سریع
+همزمان با خبر بالا هم پیام‌هایی داشتم:
+صدای انفجارهایی در بندر عباس شنیده میشه.
+صدای انفجار داره سمت قشم و دریا میاد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75781)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 
 
 ☄️
 #جم
 در استان بوشهر
-پیام‌های دریافتی درباره شنیده شدن صداهایی:
+پیام‌های دریافتی درباره شنیده شدن صداهایی
+:
 ▪️
 همین االان 10/42دقیقه موشک از جم پرتاب شد
 ▪️
@@ -24,9 +46,9 @@
 درود بر وحید جان آنلاین از جم پیام میدم
 حوالی ساعت 22:41 بود که فک کنم صدای فرستادن موشک یا رد شدن جت و این داستانا یهو اومد
 صدای مهیب و خوبی بود
-پیش‌تر پیامی هم دریافت کرده بودم از کسی درباره یکی از اعضای خانواده‌اش:
-▪️
-الان قشم بود. پلاک موقت دادن بهشون گفتند فقط از جزیره خارج شید سریع
+🔄
+آپدیت:
+خبرگزاری تسنیم وابسته به سپاه به نقل از "یک منبع نظامی" نوشته "یک موشک پدافندی به سمت یک پهپاد متجاوز آمریکایی" شلیک شده.
 📡
 @VahidOnline
 
@@ -36,7 +58,7 @@
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn4.telesco.pe/file/Q_yqJTjWq6RGm1vIi_VkjEyKaBmeHFECf3yIjeN7HHI5JH3MApSUOTVRgOF4EIfm45E08EElYh56T-qXYEqDkjRK7KejWQjxBxMT5jVGRddPCymZcza-QAMtZbhg4S2Wsr1NtTOpd4SAM50eOilEatP7ukI49FjKhEglTTgyN7lc7yGJ90g6Y3-w0d2RtznlbPINEbSfzGYbWOEfDJcqkdNBeYtereWi0d4FSVO4QPJ5GirgqZ73whYFaIH5uTDPx3oIFqwdaRDYNtvX_NVO9CGV26NJpVNx2zC877X23wP859GnfKa942_WlbLFCk2ZzNBLgewQJDaP7noYV_nimg.jpg" width="400"><br>
 
@@ -54,7 +76,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn1.telesco.pe/file/a7yMLy3aBJccFmyJ4Mi_qrKXAUW96DndYDhbem3DTsNvalgRpc8CwUx4hqyayOsw4VV7chy-1_Zy9g1_-SNqCws6EpVYsbXEL6u04PVC6FXZDwWuWfRLlDLRW_TgalxX6xK_6RsRfJrHGPVBq9IWnDliyYfUN3TO-w-BiUWqYmuO1GJD3Y3oBAD6Rrj5m6OKDtH8-DJsYuOB8cWd00VLce1X0nR3y1F0PE0MdUXP5Z83HlxESzjXoPPYrVH0XBxuve8teL0oq6i_BNu2yX1X9_Hu2urt4Yl9UIJ0Ak2qL0lc9tvwJUD3t1qD-h1KpADcnFq70EtGUoBHIrODWDSJZA.jpg" width="400"><br>
 
@@ -78,7 +100,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn1.telesco.pe/file/La7jo8zpY22FTs_GNFMp_m3Oqs9W5zjH5E-Nb1JWIUzhB5-gFQPkn639avq8a_IrG_ganCbEYlD_cUH-PCP_mx_zcwtgll4LBhFNvEBuIMRdQ-KFxprPeg7K5MyGxdVUlFLPWGuK8xeGhF8r4MqtbTVk6ROvJUwBJPKiJTsEolvsfKcuP2YahhnCE6hijgrnDo2oWJrvPQRkz_FcaUOCJvy74YfrqcIJsSrkAH55XH8YD-Ui8q6dJwboBwdtbUmHQKnr9PYeeCjGxa_9QNJexBFWUtKk51rewyXC61Dhk6ePRfsfPI4cUBO6DkPMNG8TgWARqfY-SeiI2eClbzzJ9g.jpg" width="400"><br>
 
@@ -99,7 +121,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn1.telesco.pe/file/krrn7olbm3BRCfG9y3gf2IjflqDMwH62zCsl6S5Spkqj06VKY0oH0YbyX32lFw6AKnaf7Dr15FzVInuV4kHYlrKugrkFvZdRJwk1whkLzg1nwNi1MEBSF_MmER9ZrvjlArz7TqyBa-_ln81TEvgA_-1MufyxTkZzigYTuG2N13CuTMG9bAuQ59QyZr_r15O3Yy1apTeI7LxalkbOLyiIpEobzEqgplaJ65zxVq4nt__izYorfAYHhBtXEIaGQRIwjsyvdupbTNGJL9BpodACSwqp7gGhinaWB1TB6BbaLxidKdfU1TVeKRU28riZQXn996J5ZblA3Rp-JYiP7w6uqA.jpg" width="400"><br>
 
@@ -124,7 +146,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn1.telesco.pe/file/WRBUNinpC6rHAgZM0ERzT9u74yxeUERHPNWBH5r9BtJ5f8TBmx3JG6JUumLoOCkZE5JMhcFMqZntxzN5DE4oyPPBXyZqPF1LN5AuQSSA39BQcVb90fdNz3g0rVS6AWBuES6tss5b0c6yHmmkgXFsmncUOpDrd5nFRqC6nxnLpxx-0WtTfs7q8MBt61ImPAq7dOB_RbWBBS2J-pB_BGqY8GVZnafEkQg8e80SQfPTq4FgAk1U3OVTSRXQ5YXSHTk6MQG5UOF4_EfhsfYpxEDaFqOY75PFa5M_H7U1t-MDcv23nQYSM3YxQIRzxtbDiw1uMUeKBH-XntlCecZwWOXnSA.jpg" width="400"><br>
 
@@ -160,7 +182,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn4.telesco.pe/file/Z1QNtFwBh-Razq-S7N1qU81u8Lg-zTOgYCAIrRCocyr4DXsBYetzulqor3LmMQkZhGY3vaNAQW1o9nJksAdLMKXGsc3K3f9O4-9xLDiZdE49G-kJZDVzAvJ55gXLVYM_4113hwEDZpZk35TBXCrNaN5RaYFqlblT8T8jccJa_90mn-qWDAJOYoilcPERqJwAJDbg5rOUHsAIf-oIbZm_pInJSc8U49CJ4nauaV0viKinrhP5wexLxMrDYo8pU7ntZHEHedGAd_r-DmhqkChvvqRowViTrczvJuRSmCW5_e1vaBhznBnJNV25jOSPaKAy6me2YSE9xbEOuzkGG5NVEQ.jpg" width="400"><br>
 
@@ -180,7 +202,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn4.telesco.pe/file/i56q8fgaVbmaP5-TmI0neNk5VZ7mU9AVP-zxnF4FP__IJrW2tFf11bk38nVFP2BgC5a5TCEMXC7hJL3PbLN-If3BqKRAU57fi9ptOjNb9YhyaHiwE3w1DHrpTA-AqTJ1XxD0hxrFC744Ed1cy26yMIJdfV8WzGu2sZEVfbtVn0Rv--h3VMQ1x9U7Qb2FppGnMaZaxx387ImPGhgredQe034VRMNC1dy6eG30djjUwzrApjb2gjNfELMSY7jgu_TpsjXmVpLPs6DlVP6Oe7PsUpoyHSx4xDegM-0IAsvw0wl61Fp_6_zfqDTVm-v8oX52xn3n9U4dy8u-iPl3q0je7Q.jpg" width="400"><br>
 
@@ -196,7 +218,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn1.telesco.pe/file/PA7iSJwZdE0QcdCsIQxqPY7xt8I-4h1ak6i90ixpAlDyMf4u-XXvJ6O1t8ozpIcCUkYRaGKY-QV8Y6KJ3KW6Up8A6MUzt4Cmo4Ilewj2pobQ85OjTIRKZ76fHvtrLZCyjMH3tc_-bGKO9-_Ybm10AgwB24CXwfffoF3PRb2g3BqCFcjjPWVMDuk6RwTRrutXxjXm7ymW7yI738_Csyv2LzAA2VYx0AbBJ2LJKy4Xn_bVY7mLG1-AxN5qgT9AC6NVEFAguOClNxKd6YDGLYhj9kslvoKqKgsfhu2e7a0oojLd0aEklaBbcIc0NblXuj-2JlJOSfZ2lcu-bp4AWQuHaA.jpg" width="400"><br>
 
@@ -213,7 +235,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn4.telesco.pe/file/ZCW4dWfrCO78WQelVFFmzCOTljggAzHBKw1tKBYpPhG6pED7xmd6qATlnGCNX5Uql70tNZnf9Mn1t2anlJtzDhcVHrW-M8mAMGgbLkLblRQoqubsclk-glYwScIlZ_nPXGynQNCdAXe_VdpjiADKcFebDOluxEJpcUIi8Lq4MDje4aBxAdAHhWt5j-ED48g6G-mPbFvh5H_miHWF-kbTVhFRuHYaVZBZBiwNWPUjxmtfmYMP1X9kxkVGcUnFR4OFFZYxgaD3eUfBH28TTXEPi-14Orllte_DxyFc0bRmB_UKQ3dgLXBWBW0G_BmEX16ZWMJfFwoqs1oPfyHpVKDD6Q.jpg" width="400"><br>
 
@@ -230,7 +252,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn1.telesco.pe/file/HLzROFGv8YcqwCqr5aFhUqGXVzK-jee9InL6za30zhXK4SiEVXKxpF5fVVRjEfXjALZL5SZYKLAIRC6rhvCdH0ZticraL_4AxfDBUQ3KWmX8AKy-MGb4amhnmacDki6RGc6ZHWLEwd20qs8wzmk3Eom6gc3Ii5q82DxIWQJi5-3cYUytsuAPsAvKmfEtUgdKJoYXxJkZpN1wZGoBG_tY_IlQgeiTlLVQ5Q0r4C1YhUuT3gqSVCS5mqHmDQZ8YSqmC2FgCnOiyeyvdPQkippv4vwxp-dWPMVC4oiKrtbRDxTOWBacURPd0sB6uQk-kuAzqZaqhZmP2TQHxWJzwReOiA.jpg" width="400"><br>
 
@@ -245,7 +267,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 
 
@@ -269,7 +291,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn1.telesco.pe/file/lQPoOL8nW-YAp6YNIDAz0Scx0d0sFOj1v9CKH8NFdU7EZ9z8NAhh7hlStN5Z9GsBh7omPwz3NaUbe3Amt1oDbzea9nAJ60JA_evveV9saKoOPfn0YI2zhIszFh_w8mwwmEQAAb8oLXEy60QBBxKJiKFTugpiLla80jl8oxC0MEcmoZQpo7CsrUx5i3karo--2hChvnODp5RypHgGo_ModJ0FG6gkMY0vAS-RRrcgWu8OuErKx25ub8N5-iGNRdN80dzpl6X20GpIhL-UXU7LmtpNQUVpX0BNAce4jaC6NkXxQRqa9ZeB2bD-ZTPGL1hyWGXuRYKHfWT9PGJm2K-U_Q.jpg" width="400"><br>
 
@@ -288,7 +310,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 23:24:34
+###### 🔵 Updated at: 2026-05-29 01:21:27
 
 <img src="https://cdn1.telesco.pe/file/twkwd9QayHrUkVlwgrYaeG5w12YS1y5O0j0F1sDslVK4KbNVMWGcxQUe4MYUmlm4Zkw9H9fidxKpgu8XMi0OQ23xGBM6UIV10SiP4KN07OLMdI-UIiHkuW5ctWv6OXNQBTiS9tVRxPTQiwH80Fxn8ln0tAzSmK0BJGIwECVpWoGDSI9gtA9au-ECK6o3HF-4RzGpRhNYglc8eKhAdNN2c8tKduyvvp8k08_kHmqHHzmAE-ZI7ZCFg8-nWoGKj3GPGUTCndNXUWNrn3WSIXrdo5FgZMjn6U-HdDwd650T1st7-1xyU6xInYEnzTJwCUS_FqIQqhps4Q2iRmetmwpnsw.jpg" width="400"><br>
 
@@ -309,26 +331,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75762)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-28 23:24:34
-
-<img src="https://cdn1.telesco.pe/file/jQmIzWrj7ezSyt_gldcXav7cFV4d-E_yg6IA5h86BBub6ILF0zdE7NLmvXP4dpFLTk7_fr0sC8D5OszOXts9u5WUMZAF2Ht5Qd6FAQMt_nr0g12cqNvPQDk0ig2ss-aD8yg31uWNhoHtmeiQ9LpbOAOK_w8NlKdddBkT70gYsmd7MCdZNycIEMyjydgWFG79xCj6Xpbx0epAUfqQftiH304cQ9KXpz0KC7W7rjxbcYYIK200qRxdNnBtSA702vKfGrMcQ5AC0RdMJeAjfZcy9vDDS2S4v9WAPi3Ir1CI2cG8RzQAvL0aZNHYTX0tXjJeHfAzj92ZcbzT-QltrOOhcA.jpg" width="400"><br>
-
-اسوشیتدپرس به نقل از مقامات آمریکایی گزارش داد که نیروهای فرماندهی مرکزی آمریکا چهار پهپاد تهاجمی یک‌طرفه ایران را که در نزدیکی تنگه هرمز تهدیدی ایجاد کرده بودند سرنگون کردند و یک ایستگاه کنترل زمینی را در بندر عباس هدف گرفتند که در آستانه پرتاب پنجمین پهپاد بود.
-@
-VahidOOnLine
-در همین حال، خبرگزاری تسنیم، نزدیک به سپاه پاسداران، به نقل از یک منبع آگاه نوشت: «ساعاتی پیش یک نفتکش آمریکایی با خاموش کردن سیستم راداری خود قصد عبور از تنگه هرمز را داشت که با اقدام سریع و قاطع نیروی دریایی سپاه و شلیک به سمت آن، مجبور به توقف و بازگشت شد.»
-تسنیم درباره حمله هوایی آمریکا به نقاطی در شرق بندرعباس نوشته نیروهای آمریکایی «به زمین سوخته‌ای در اطراف بندرعباس شلیک کرد که صدای انفجارها مربوط به این ماجرا بوده است؛ این شلیک هیچ خسارت جانی یا مالی به همراه نداشته است.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75761)
 
 ---
 
