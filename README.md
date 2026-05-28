@@ -3,17 +3,86 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
-<img src="https://cdn1.telesco.pe/file/BvnzZcQrm4EAd-MdgTbROjDijAg-mTsv8Kzqf7JuHhbSCy8S4YNExhgAfpmSjzOXPxCq2iOIBiHzGSV5p_mHIel_wBQbbXW8rzU53nH1OJx4PvDGhJvLydyP0wBGJYbFGqZkgIwmJyGG-W-9dRM1k8EvCsxk6U1A0RO5uP5NGWwOGhCfVYagfNSDAtNN99bVLfz-qhGfyEeFIyNhPw7rQswQAqLoqH_SA3ObKgScfbWL3WsbfyXsQa03KoBZtiAbpALkFwHVOnwDO47Mu5jbO7qrjg3u6lI5O1Oj-Qt5-CjzsZ8HHjQbydTeo5KcLMHn6y0lXX-mKTe5d-tg2Z3rnw.jpg" width="400"><br>
 
+
+ویدیوی دریافتی: 'رد موشک شلیک شده در آسمان
+#امیدیه
+خوزستان، پنج‌شنبه ۷ خرداد'
+Vahid
 ☄️
-یک مقام آمریکایی به سی‌بی‌اس گفت ایالات متحده حملات جدیدی را علیه یک سایت نظامی ایران انجام داده ولی آتش‌بس همچنان برقرار است.
-cbsnews
-یک مقام آمریکایی در گفت‌وگو با رویترز از حملات جدید آمریکا به یک سایت نظامی در ایران خبر داد و گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است. هنوز به جزییات این سایت نظامی و تعداد پهپادها اشاره‌ای نشده است.
-ساعتی پیش در پی شنیده شدن صدای ۳ انفجار در شرق بندرعباس، پدافند هوایی این شهر فعال شد.
+سپاه اعلام کرد در واکنش به حمله‌های پرتابه‌های هوایی آمریکا در سحرگاه پنج‌شنبه به نقطه‌ای در حاشیه فرودگاه بندرعباس، یک پایگاه هوایی آمریکا را که مبدا این حملات بود در ساعت ۴:۵۰ هدف قرار داده است.
+سپاه تاکید کرد در صورت تکرار حمله‌های آمریکا، پاسخ جمهوری اسلامی «قاطع‌تر» خواهد بود.
 @
 VahidOOnLine
+رسانه‌هایی که بیانیه سپاه رو نقل کردند، از جمله خبرگزاری رسمی جمهوری اسلامی، ایرنا، نوشتند "ساعت ۴/۵۰" حمله کردند که یعنی چهار و نیم ولی با توجه به اینکه با دو رقم اعشار نوشتند احتمالا منظورشون چهار و پنجاه دقیقه بوده.
+اما این هم عجیبه چون آژیر در کویت و پیام‌ها از امیدیه مربوط به ساعت ۵:۵۰ بودند!
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75766)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-28 09:26:20
+
+<img src="https://cdn1.telesco.pe/file/lQPoOL8nW-YAp6YNIDAz0Scx0d0sFOj1v9CKH8NFdU7EZ9z8NAhh7hlStN5Z9GsBh7omPwz3NaUbe3Amt1oDbzea9nAJ60JA_evveV9saKoOPfn0YI2zhIszFh_w8mwwmEQAAb8oLXEy60QBBxKJiKFTugpiLla80jl8oxC0MEcmoZQpo7CsrUx5i3karo--2hChvnODp5RypHgGo_ModJ0FG6gkMY0vAS-RRrcgWu8OuErKx25ub8N5-iGNRdN80dzpl6X20GpIhL-UXU7LmtpNQUVpX0BNAce4jaC6NkXxQRqa9ZeB2bD-ZTPGL1hyWGXuRYKHfWT9PGJm2K-U_Q.jpg" width="400"><br>
+
+از
+#امیدیه
+در خوزستان پیام‌ها و تصاویری دریافت می‌کنم  که میگن حدود ساعت ۵:۵۰ موشکی شلیک شده و سمت تونل امیدیه میانکوه صدای انفجاری شنیده شده.
+یکی نوشته لانچر هدف گرفته شده.
+دقیقا میشه هم‌زمان با
+شنیده شدن آژیر در کویت
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75763)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-28 09:26:20
+
+<img src="https://cdn1.telesco.pe/file/twkwd9QayHrUkVlwgrYaeG5w12YS1y5O0j0F1sDslVK4KbNVMWGcxQUe4MYUmlm4Zkw9H9fidxKpgu8XMi0OQ23xGBM6UIV10SiP4KN07OLMdI-UIiHkuW5ctWv6OXNQBTiS9tVRxPTQiwH80Fxn8ln0tAzSmK0BJGIwECVpWoGDSI9gtA9au-ECK6o3HF-4RzGpRhNYglc8eKhAdNN2c8tKduyvvp8k08_kHmqHHzmAE-ZI7ZCFg8-nWoGKj3GPGUTCndNXUWNrn3WSIXrdo5FgZMjn6U-HdDwd650T1st7-1xyU6xInYEnzTJwCUS_FqIQqhps4Q2iRmetmwpnsw.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+سلام وحید الان کویت رو زد ۵/۲۰
+وحيد همين الان اژير كويت فعال شد
+سلام صدای پدافند و تقریبا ۲ تا انفجار در کویت
+درود وحید
+🙋🏻‍♂️
+اینجا ساعت ۵:۲۰ به وقت کویت صدای اژیر اومد و رو گوشی ها هشدار اومد
+ولی هنوز هیچ رسانه‌ی کویتیی دلیل این اتفاقو نگفته
+آپدیت:
+ارتش کویت اعلام کرد سامانه‌های پدافند هوایی این کشور حملات موشکی و پهپادی «متخاصم» را رهگیری کرده‌اند، اما مشخص نکرد این تهدیدها از کجا منشأ گرفته‌اند.
+ارتش کویت در بیانیه‌ای اعلام کرد صداهای انفجاری که در کشور شنیده شده است، ناشی از رهگیری این تهدیدها توسط سامانه‌های دفاع هوایی بوده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75762)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-28 09:26:20
+
+<img src="https://cdn1.telesco.pe/file/jQmIzWrj7ezSyt_gldcXav7cFV4d-E_yg6IA5h86BBub6ILF0zdE7NLmvXP4dpFLTk7_fr0sC8D5OszOXts9u5WUMZAF2Ht5Qd6FAQMt_nr0g12cqNvPQDk0ig2ss-aD8yg31uWNhoHtmeiQ9LpbOAOK_w8NlKdddBkT70gYsmd7MCdZNycIEMyjydgWFG79xCj6Xpbx0epAUfqQftiH304cQ9KXpz0KC7W7rjxbcYYIK200qRxdNnBtSA702vKfGrMcQ5AC0RdMJeAjfZcy9vDDS2S4v9WAPi3Ir1CI2cG8RzQAvL0aZNHYTX0tXjJeHfAzj92ZcbzT-QltrOOhcA.jpg" width="400"><br>
+
+اسوشیتدپرس به نقل از مقامات آمریکایی گزارش داد که نیروهای فرماندهی مرکزی آمریکا چهار پهپاد تهاجمی یک‌طرفه ایران را که در نزدیکی تنگه هرمز تهدیدی ایجاد کرده بودند سرنگون کردند و یک ایستگاه کنترل زمینی را در بندر عباس هدف گرفتند که در آستانه پرتاب پنجمین پهپاد بود.
+@
+VahidOOnLine
+در همین حال، خبرگزاری تسنیم، نزدیک به سپاه پاسداران، به نقل از یک منبع آگاه نوشت: «ساعاتی پیش یک نفتکش آمریکایی با خاموش کردن سیستم راداری خود قصد عبور از تنگه هرمز را داشت که با اقدام سریع و قاطع نیروی دریایی سپاه و شلیک به سمت آن، مجبور به توقف و بازگشت شد.»
+تسنیم درباره حمله هوایی آمریکا به نقاطی در شرق بندرعباس نوشته نیروهای آمریکایی «به زمین سوخته‌ای در اطراف بندرعباس شلیک کرد که صدای انفجارها مربوط به این ماجرا بوده است؛ این شلیک هیچ خسارت جانی یا مالی به همراه نداشته است.»
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -23,7 +92,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 
 
@@ -61,7 +130,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 <img src="https://cdn1.telesco.pe/file/RJuPJYsq1FXjm4ojuLk38981rfRJQCbktBZhZ449-spfa5ZO1LCwlER2ndgQENdh9uSkAiQW_BYY5eKnlb38JpOniM-89yFG6OuCPF4GSu9-tIsd-BOMLWVhon3ZHtuTasBnhDW0U6mI6itjwyUSdre65kslvBzunQvwQqwHoNYzGjYq2gWVi1HfThuC2ia-9Nc3iLhahZDJGH_7qML4TD_9OqlwszL0lK_SwxDZHhkyyolWq7tG-Cf2QHbBSlT03mmNiwzNdFcG5nmV8CEgWpcoCtJdTqqI34XaHKzER1-1klgbrMBGKwFXd79LpKaPhhsW289yBkOuJGLSc8OF-A.jpg" width="400"><br>
 
@@ -83,7 +152,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 <img src="https://cdn1.telesco.pe/file/Kh3vl7smseZbasRLJQwwhMiP_9Cpsx9ShUehqFSkGL9oqLzqS9h_kMQk3CwPuNR4-EgrqhLoKid1sz7SF9IACWJqGi_g7bqeiZ3yjDfDR38LYwzqQDmXG77s0Ya5MeMb0qAlq3xNqwKc1ILk_tjDT_cDLsb-XYoKYb3GEp2wc2Z-lyk1prYye684dU7WDJInpCfru7QvO0y8DqvDEU-blVDiTaDlbO7vzJS8OMseI5-lyT9DAHI9pqy4WHGkitshj6AElcaisaja6PsbHseVSx1BsO4TDJgB30RkCj2nmEDF3ljG19_eLfJ8MtjOPg3maEmDEwKBfvwEzhjNTmdELg.jpg" width="400"><br>
 
@@ -105,7 +174,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 <img src="https://cdn1.telesco.pe/file/aKxayZbpLu9kqjvkqF2MgjnTMKYERVKnghH1KIKptnT7t36AdI2hLPTiQMTzsAbYnOLxhiCqwd4BXhYbES-_JZRjXlnyMkB7zS8ZVSR4gh22d20-j_Z_UIL8NiPe_lFt9R6U3vdjk0eGBWVJ7timvFsvZzO0Md5XPHeQPol_p845sppl0QL9idnCNTDEwyUXrmzJ-vz9y6n-u430JMqQVqTVCwfVl3Y12eC_mCQnxDzOX43MRnuvzBZqXZoBkELUTcRakFJyzOAUB7Dq5bOrRfFtHNY4va4P1o0Snmz4o5wddsYUymLh5bmwssKUPABtrPoeH4fRfkx1FGTzsuKY7Q.jpg" width="400"><br>
 
@@ -120,7 +189,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 
 
@@ -141,7 +210,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 
 
@@ -160,7 +229,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 <img src="https://cdn1.telesco.pe/file/tMFHNkYCnZ9iYqVnuD5sOVcqnde92AR9bQF0Spk_mqHr9KrkQ1WHF4m6WOW_9QSy2akqMiJxDG438AkutMZF21paP8yZLYnfNeHnJd9BDYYJxhcT4k98nFFQvSRLEvjDvfIfUWmk21-c57MbN9p8KLMqi3GYdtFbZEeDO0dRvf1C1w2zEoCXMhVM0d-rR61wS-qmSs241-xNZnnrc23xHiqTq-5worOzYBZU-6Mq1c6N0N5VY9TkhyzYhtjamNkgT7fWV0Lc9USVK6MDMWeq5JceK6J2QxUE5o9m9Yqth3SdVw90upGWJsIVt8ra0vjnOe5VomdPv9An27d4yJNSMA.jpg" width="400"><br>
 
@@ -178,7 +247,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 <img src="https://cdn4.telesco.pe/file/rlvahMzgDi02YRSU9gwfrq1gBF_hfk1RwSsK1gDJp3jr6hjs-gxGO7PcQXS375-lXh4VTLBtZXYj0gJpB4Q1jTz9CI0fcE6i_SL0SIj7B9XV1MjjRi5JTz2kA7h3PkXV521Y4F7LEdnlD5lZaBdtY6dTh4H0shNLkWria-jWAyuYMkKEryBJBaLAtb_XlWu_Ou1-hFSY7Kcme6QDe1i3raboI4sjk99-efRqIjvdI4EoPN-Ojqvu7quFrNqyul5mLWvla3sFbrZ7V4chnEA-8HYIFyz-xxh7P-wlrTtf2GaukWITZgjUyTQkWGml3Ass5xRWdSMUGNeVU7DCbC4VUw.jpg" width="400"><br>
 
@@ -199,7 +268,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 <img src="https://cdn1.telesco.pe/file/T66X8JzDCXM3E4GgPLlgygUjw-9C058iZYqT8vbY9-kuss1_oiKmxuzd7TeqptM50ur7iYnbOQi3jx6-dQXG82ePshsgfGdra3G5uOrAc3aQ7kMSiE43VnQMimU7T2O88qxPHThWxeKztHn-pseNPPEPh-_-z6MXxQ3ZX3VL4cBYTny9Gm46yN_5LsE5cNUFN1oQ_cbvDpZtkmfbk0PasiCCelf0IknxYfgd7753GZFmPTbW_p_tdfcYU52LDCz455y_kvedsRTt7T_w54JUDl6cIWdzVZs5mfq2nxg5gtAizYiHedaLXbc-Xp80RIVQqOIixyMw75h6RtaXx16jWw.jpg" width="400"><br>
 
@@ -216,7 +285,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-28 05:20:40
+###### 🔵 Updated at: 2026-05-28 09:26:20
 
 <img src="https://cdn1.telesco.pe/file/iFoUVLCJ08ecp6Z4OhgCFOdxmAXNdQnv_1gOOUnF4txwlvLjjDlrVCF3owhUbrcs92T5Ck5OOYms9SrPX1Cuyv5rDdzX_rtJ38h5MFNJCt4um2xP9dWeVUjT6XB02-2XwvRwON3wiVd4xrpbfHV-3GptN9BOFWMWgh-1_dlOSz8XzFkXNE2xsi26eJgFnBGXUEKfqjhxDQCrJOfMspXjEnuJd_M7I-XqM3cxtoWp9Hn5F3IV9eScsCX2WPTXEKZUpl0-6lqJODAyK-Mqlvw99DhiVSzY5XtodWOHq0hLU-XFafaeBjQxnWtpwVJ9uGyY6RCGiYMXYN74aM-4y1fFNw.jpg" width="400"><br>
 
@@ -234,100 +303,6 @@ iamroyaz
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75746)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-28 05:20:40
-
-
-
-خبرگزاری صداوسیما اعلام کرد به یک سند غیررسمی اولیه از چارچوب ۱۴ بندی تفاهم احتمالی میان ایران و آمریکا دسترسی پیدا کرده، سندی که به گفته رسانه‌های ایرانی، هنوز نهایی نشده اما حاوی جزئیاتی درباره وضعیت تنگه هرمز و حضور نظامی آمریکا در منطقه است.
-بر اساس این گزارش، در پیش‌نویس منتشرشده آمده است که آمریکا متعهد می‌شود نیروهای نظامی خود را از اطراف ایران خارج کرده و محاصره دریایی را متوقف کند. در مقابل، تهران نیز تعهد می‌دهد ظرف مدت یک ماه، عبور کشتی‌های تجاری از تنگه هرمز را به سطح پیش از جنگ بازگرداند.
-طبق مفاد این سند، کشتی‌های نظامی مشمول توافق نخواهند بود و مدیریت مسیر حرکت کشتی‌های تجاری در تنگه هرمز با همکاری ایران و سلطنت عمان انجام می‌شود.
-صداوسیما همچنین گزارش داد که هنوز چارچوب نهایی تفاهم تدوین نشده و ایران تاکید کرده بدون وجود «سازوکار راستی‌آزمایی» یا همان مکانیزم اطمینان، هیچ اقدام عملی انجام نخواهد داد.
-در بخش دیگری از این گزارش آمده است که اگر دو طرف طی ۶۰ روز آینده به توافق نهایی برسند، این تفاهم می‌تواند در قالب یک قطعنامه الزام‌آور در شورای امنیت سازمان ملل تصویب شود.
-@
-VahidOOnLine
-🔄
-آپدیت:
-کاخ سفید: گزارش رسانه‌های جمهوری اسلامی درباره تفاهم‌نامه تهران و واشینگتن کاملا ساختگی است
-کاخ سفید گزارش رسانه‌های جمهوری اسلامی درباره بندهای تفاهم‌نامه احتمالی را «کاملا ساختگی» خواند و گفت نباید به روایت رسانه‌های جمهوری اسلامی اعتماد کرد
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75745)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-28 05:20:40
-
-<img src="https://cdn1.telesco.pe/file/qf145ARdzftX3bXxlj5UTuaLo2lg_n5OWeTWVccd_RojGWxPgAb4OArCrMfHLv61xIBidA4L6wLWrNy05WzlD1wXBOwQh6OqBFcjnBcaOZdQjSjGJvvc6-udFOFBaPteULUQkpKBXx3j5XPctW2U6TrpNC8AxgrjNCJ3EEHrYwqsIdvvJb9K2bLU8W6ZgeimQScXj6xgdsyzfAgdhV0SL-Kodm89HuwcZu5j_RSG7zcEH10svguymVjDHJe-i4Ks0WFW2DlIW5LS3a84VRjSeKnMjR7OQWoXvF7TA7mpixtjyyqOJ0ax_kZf3KsWO06x8N7cJLUjsY62ixjZaTUJDw.jpg" width="400"><br>
-
-دونالد ترامپ در تروث‌سوشال گزارشی از جروزالم‌پست را بازنشر کرد که بر اساس اطلاعات اختصاصی «مدیا لاین» نوشته است موارد آزار و تعرض جنسی به زنان بازداشت‌شده، به‌ویژه زنان جوان، در زندان‌ها و بازداشتگاه‌های جمهوری اسلامی در دوران آتش‌بس افزایش یافته است.
-در این گزارش، زنی جوان به نام کاملیا گفته پس از بازداشت خشونت‌آمیز در خانه‌اش، دو هفته همراه هشت زن دیگر، از جمله دختری ۱۶ ساله که با ساچمه از ناحیه صورت زخمی شده بود، در اتاقی ۲۰ متری نگهداری شد.
-به گفته کاملیا، او پس از انتقال به سلول انفرادی و خودداری از اعتراف اجباری، در اتاق بازجویی هدف خشونت قرار گرفت، لباس‌هایش پاره شد، با باتوم مورد تجاوز قرار گرفت، به‌شدت کتک خورد و به تجاوز گروهی تهدید شد.
-جروزالم‌پست همچنین با اشاره به قطع گسترده اینترنت، بازداشت‌ها، ناپدیدسازی قهری، آدم‌ربایی، تهدید روزنامه‌نگاران و مخالفان در خارج از کشور و افزایش ناگهانی اعدام مخالفان نوشت سرکوب در ایران تشدید شده است.
-دونالد ترامپ پیش‌تر نیز با انتشار پستی در تروث سوشال خواستار آزادی هشت زندانی سیاسی زن در ایران شده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75744)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-28 05:20:40
-
-<img src="https://cdn1.telesco.pe/file/N2JTZb0Y0brTZCKRsM0WTQw0PVGXP5yftQoLYOf_VP3T580j-ksMmhBuNSDrc64S7X7qBaSE4lKgF2YbTC9dzl8umxWpW3Dg2C7loAk266SZ2b6Py6QpPAYthMNq2xsRzKXK-1S-Ol_F37vlfc7maaqwfRx2JLzCFPEt3dVdkYvqx35Fnr7-FE-N8bHP_7dSjWdQrORbvawfytJdGSewiIN9a4tBIeaj_H08U4MtCqWOGw90SSMB5OQLuBHtvM9P4cXSO7YTLvf9LNsGxO7BVr_5QLOdMZmpSDc5x5xquoIh8wwjQEowpvtMBcqHWo-FVk_U9wkDeNulq7BGwCsB7w.jpg" width="400"><br>
-
-وزارت اطلاعات جمهوری اسلامی روز چهارشنبه ششم خرداد هشدار داد که بعد از جنگ اخیر، «برخی کمبودها و گرانی‌ها» در پی فشارهای اقتصادی آمریکا می‌تواند باعث بروز ناآرامی‌های تازه در ایران شود.
-این وزارتخانه در بیانیه‌ای مدعی شد که «تشدید فشارهای اقتصادی و متعاقب آن، انجام تحریکات گوناگون اجتماعی توسط عوامل دشمن و رسانه‌های مزدور فارسی‌زبان بیگانه، با سوء استفاده از برخی کمبودها و گرانی‌ها» یکی از محورهای مورد توجه آمریکا و اسرائیل است.
-هشدار درباره احتمال ناآرامی همزمان با افزایش شدید نرخ تورم و و گرانی کالاها و همچنین انتشار گزارش‌هایی درباره کاهش شدید درآمدهای دولت جمهوری اسلامی در پی هفته‌ها محاصره دریایی آمریکا و سقوط شدید صادرات نفت ایران مطرح شده است.
-این در حالی است که اعتراضات دی‌ماه سال گذشته نیز بعد از افزایش مداوم نرخ ارز در بازار و مناطق تجاری ایران آغاز و بعد از چند روز با افزایش تعداد معترضان، با خشونت شدید نیروهای امنیتی و کشتار هزاران نفر مواجه شد.
-وزارت اطلاعات همچنین درباره «عملیات تروریستی و تجاوزات مرزی بویژه در شمال غرب و جنوب شرق ایران» و انواع عملیات «ترور و خرابکاری» هشدار داده و مدعی شده که آمریکا و اسرائیل به دنبال وارد کردن «انواع سلاح، مهمات و ابزار ارتباطی غیرقانونی، بویژه استارلینک» به ایران هستند.
-ابراز نگرانی از رواج اینترنت ماهواره‌ای استارلینک در حالی است که بعد از ۸۸ روز قطع سراسری اینترنت در ایران، از روز سه‌شنبه شهروندان توانسته‌اند به شکل تدریجی و محدود به برخی سرویس‌های اینترنت جهانی دسترسی پیدا کنند.
-@
-VahidHeadline
-این بیانیه که با عنوان «سخنی با ولی‌نعمتان و هشداری به دشمنان» در رسانه‌های داخلی ایران منتشر شده، ادعا می‌کند که «دشمن شکست خورده در جنگ نظامی، بدنبال تولید دستآورد برای خویش، گرچه از طریق جنگ نرم، می‌باشد.»
-این بیانیه در حالی صادر می‌شود که اسماعیل خطیب، وزیر اطلاعات جمهوری اسلامی در سومین هفته جنگ در حمله اسرائیل کشته شد و دولت هنوز جانشینی برای او معرفی نکرده است.
-وزارت اطلاعات در این بیانیه علاوه بر اسرائیل و آمریکا، بریتانیا و اروپا را به همراهی با این دو قدرت متهم و کشورهای عرب حاشیه خلیج فارس را به‌عنوان «غلامان متمول» مسئول تامین مالی «جنگ ترکیبی تمام عیار» علیه «مردم قهرمان ایران» معرفی کرده است.
-وزارت اطلاعات در این بیانیه معترضان و مخالفان جمهوری اسلامی در خارج از ایران را تهدید کرد و نوشت: «مزدوران ضد انقلاب و تروریست‌های مقیم خارج کشور و حامیان آن‌ها نیز از آتشی که می‌افروزند در امان نخواهند بود.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75742)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-28 05:20:40
-
-<img src="https://cdn1.telesco.pe/file/ubJAWsFkW0gHLJkx32tckJZRKBFNB5-rMmUntnT1hjlSSkRflNNWGUJS835QPdTE1lFlggzJgT4pI31xU1Ipo4cEqe8E0Xc4vJWTwTk-lA8krCZjZxNsYS1iWhwPEBbCAE827eGMiuFPphj_F6mIWiiPjhjgfzE77BzIM3WecJ4Nu_pkFznI_0n5sHcHmtrxnJ4mPTRDaRn_hPJSoagHDC61FSVcnutKl38tjdu47iQMG3E5Wb_gtEsfKD6uHIVBE3JLKtuZd4hfSD4v6c-cK1ROfWItAiLmD7zyLFEGttZrnNaKl2tv8WihpS2jPGq1hRsv--CZvLeNXFo_JXNSZg.jpg" width="400"><br>
-
-نیویورک تایمز به نقل از دو مقام آمریکایی در روز سه‌شنبه ۵ خرداد گزارش داد که حملات دوشنبه شب نظامی ایالات متحده به اهدافی در جنوب ایران پس از آن صورت گرفت که تحلیلگران اطلاعاتی، مجموعه‌ای از اقدامات نظامی بالقوه تهدیدآمیز جمهوری اسلامی را در ۲۴ ساعت منتهی به این حملات شناسایی کردند.
-هواپیماهای جنگی آمریکا دو قایق تندرو سپاه پاسداران انقلاب اسلامی را که سعی در مین‌گذاری در تنگه هرمز داشتند، غرق کردند.
-این مقامات که نخواستند نامشان فاش شود، همچنین گفتند که جمهوری اسلامی پهپادهای تهاجمی یک‌طرفه را به سمت حدود دوازده کشتی جنگی نیروی دریایی ایالات متحده که در خلیج عمان و دریای عرب یا اطراف آن هستند شلیک کرد. این کشتی‌ها در حال اعمال محاصره دریایی آمریکا علیه جمهوری اسلامی هستند.
-طبق این گزارش تحلیلگران نظامی آمریکا همچنین فعالیت‌هایی را در برخی از سایت‌های موشکی زمین به هوای جمهوری اسلامی در نزدیکی تنگه هرمز شناسایی کردند؛ فعالیت‌هایی که امنیت هواپیماهای جنگی آمریکایی مستقر بر روی زمین و آن‌هایی که روی ناو هواپیمابر آمریکا در منطقه به عنوان بخشی از نیروی اعمال‌کننده محاصره دریایی حضور دارند، تهدید می‌کرد.
-تیم هاوکینز، سخنگوی فرماندهی مرکزی ایالات متحده، روز دوشنبه در بیانیه‌ای گفت که ایالات متحده «برای محافظت از نیروهای خود در برابر تهدیدات نیروهای» جمهوری اسلامی حملاتی را به اهدافی در جنوب ایران انجام داد.
-سایر مقامات پنتاگون گزارش‌های رسانه‌های داخلی در ایران را که در روز سه‌شنبه مدعی شدند یک پهپاد آمریکایی «ام-کیو۹ ریپر» توسط جمهوری اسلامی سرنگون شد، رد کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75741)
 
 ---
 
