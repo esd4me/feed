@@ -3,7 +3,90 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
+
+
+
+اسکات بسنت:
+ما حدود ۱ میلیارد دلار از ارزهای دیجیتال ایران را توقیف کرده‌ایم - کیف پول‌ها را کاملاً توقیف کرده‌ایم.
+ممکن است برخی از آنها همین الان در حال تایپ کردن باشند و متوجه نشوند که کیف پولشان توقیف شده است.
+این پولی است که از مردم ایران دزدیده شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75796)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 23:57:58
+
+<img src="https://cdn1.telesco.pe/file/A1DKLT3cka7rmvW3v5-gZX5R4xJQwZ4ij5CoIioWHt-jzXDaOxsoloM_7cpWh7ynhECXgoj776Q1Cc5d7FstI0ECjGrNGKBHm1sqL5p1BbmbV1wAjfeEh0xXpGHiwRVd_E7cRgW5PceT_PjYFTxk7tptAaOS4y2axbi8e-lyPokeUJ9lCHkOfuZ93RMvn7954XKWNdi3UoeEMF9Vewlj7EmOaNkzfUa_lsKfLN6tdBV-vTsKmQ26B7puu9Iou3ORkeWEKpFfc8_VQ5bPL65t4YynFWhX1Od-DQLR0jtsu_xjttMS_2E6Nq_NOZoV5r3q4Ic-uAZ7pECl9HBx4WANtQ.jpg" width="400"><br>
+
+نیویورک‌تایمز به نقل از یک مقام ارشد آمریکایی گزارش داد نشست دونالد ترامپ در «اتاق وضعیت» کاخ سفید دو ساعت به طول انجامید، اما رییس‌جمهور آمریکا هنوز درباره هیچ توافق جدیدی با تهران به تصمیم نهایی نرسیده است.
+این مقام افزود دولت آمریکا معتقد است به دستیابی به توافق نزدیک شده، اما برخی مسائل از جمله آزادسازی دارایی‌های مسدودشده همچنان محل بررسی و اختلاف‌نظر است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75795)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 23:57:58
+
+<img src="https://cdn4.telesco.pe/file/gDQpmh-f_xnZ9weP5asfzBYQbUYAxkKxZ5XaNdMCL73MFCFI2Cx_XK7Y4QOvxYiOpA9pMM9kzH174etF8p5pDhEPgdkopBvW0IwnU_v_nL0tAo1fn_PIJdBAAeyHNDTVhcQdFzURLtNMCh7TFq31P63cGg2qt3YRGcH_Y55vPsqM858IzgYndPs6sd_3W2HBW7SQ7fBo_ypJoacpLfB24wUjg8ogRNkXUygB_eHQ0qDPfv8-vNmbNh-vnOKH60NxTyV23xP4hfneOkKuZ-2nvJT9NMfswPVxdwRK7wz8fpNn1u5srr5C3B0BYL3o90EPs6l65ioTmweIse4pod0fPA.jpg" width="400"><br>
+
+روزنامه وال‌استریت ژورنال روز جمعه هشتم خرداد، در گزارشی اختصاصی به نقل از منابع آگاه فاش کرد که امارات متحده عربی در طول جنگ، ده‌ها حمله هوایی را علیه مواضعی در ایران انجام داده است.
+منابع وال‌استریت ژورنال می‌گویند نقش امارات در این کارزار نظامی، «بسیار عمیق‌تر» از آنچه که پیش‌تر گزارش شده، بوده است.
+بر اساس این گزارش، این حملات با هماهنگی کامل واشنگتن و تل‌آویو و با اتکا به اطلاعات ارائه‌شده از سوی آن‌ها انجام شده است.
+اهداف امارات شامل جزایر قشم و ابوموسی در تنگه هرمز، بندرعباس، پالایشگاه نفت جزیره لاوان و مجتمع پتروشیمی عسلویه بوده است.
+حملات به عسلویه که به صورت مشترک با اسرائیل و در پاسخ به ضربات جمهوری اسلامی به زیرساخت‌های انرژی امارات انجام شد، واکنش‌های شدید بین‌المللی را برانگیخت و واشنگتن را وادار کرد از اسرائیل بخواهد حمله به تاسیسات انرژی را متوقف کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75794)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 23:57:58
+
+
+
+#قشم
+پیام‌های دریافتی درباره فعالیت پدافند:
+سلام وحید
+قشم ساعت ۲۱:۲۵ تاریخ جمعه ۸ خرداد
+پدافند فعال شد من در محدوده قلعه پرتغالی‌ها شهر قشمم و شلیک پدافند کاملا قابل دیدن و شنیدن بود
+21:26 هشتم خرداد جزیره
+#قشم
+صدای توافق خیلی بلند به گوشمون رسید. حدود یک دقیقه صدای شدید پدافند، احتمالا برخورد موفق با پهباد نفوذی.
+درود همین پنج دقیقه پیش پدافند قشم داشت شلیک می کرد درگیری بود
+ساعت 21:25
+همین الان پدافند قشم فعال شد و یک چیزی رو زد
+🔄
+آپدیت:
+تسنیم: "در پی رصد ریزپرنده متخاصم دشمن آمریکایی ـ صهیونی در حوالی قشم توسط پدافند هوایی ارتش، بلافاصله در عملیات موفق مورد اصابت قرار گرفت و منهدم شد."
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75793)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn1.telesco.pe/file/EgceUAvQmS3Q1l7y7BtvTjiYmWC3fPQ7b3Ime48ePr2xi7k6PrN5zlelWxq5X7464p5gPdkvEkDT_QCgVQCFZkTGbermigMI-3GzN6W9vG0Rp0W0QeWFBi5l_iDP_gBXUarTCSk4FPPzzUmEV0YpAnFs3EYQXzgNoQAjNjq3GvxVvxeKo7oeLuV30t6ZbNHxqJuWuQGZcRHrEP_kCGOkXFRpiGGQf_cLmKB0hwkjrKDs0uMsubfStcWTDTrgLBQaP0dIQoDGBzAdtGiAYFX92_y4HZ7-YUryWS_YuGo8kk61BLi1GIOa7v2p4c6EDXnm25JApPaIdbvvGWZ-1kymIA.jpg" width="400"><br>
 
@@ -26,7 +109,7 @@ NewtGingrich
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn4.telesco.pe/file/Gki71nUc_XcQ8EZszEXElozL6GLmZEM5f0_pq0PwAxEmBfE35pY0qoIN7V1gJaPmU7u_agomUbLjqdS0hJhPxVZKEHbRqSfW66Xg_9TgQ40OY_B7E11c3ukkBXxGaylj-__BvWP9h_M6492JRNVhushvrIPGGvjhCgPu8xG8Ddx7KsLZZf7Jzw4r46dWAPe_Ms6H1Fn9b_W2vv411qWVsFjd8vaMbYluIHqLS6LsTe9LmeLgT1Uj2Go60QKQ7uL7ALa0eQzg78H7fEfDZitdaA5FxgrCEKi4qcTYOScKsuC_CMVd84CZTD6SujwgsTTkyiLtUmaY6vkElQkcUDLpFA.jpg" width="400"><br>
 
@@ -43,14 +126,16 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
-<img src="https://cdn4.telesco.pe/file/FVR5D3E1GoDxzoThMDXIHQsUE7UbTMLqPV95uFLTVUcVLydpHq4go1XO-RqdvYDLHUzpNoaNv6sFJbYNPbx6wHvA3TAyUkCOdwDx9jb7WboAKqjr_Rkpej90goFAeJAysISNKLl5f9aPuw_m7PQQ_v-PYD-NnMikHIw7zi0VJ_bXkPHlvf1_Be0lOY53h6kueMWHQ_S7JjXA_Kb9fGBIz2tljs2ky9yrKT3e0Q45MBhQ8VsSWFGaRuvIZbhcheCIcRj7tnaRW2j6HYyPbKheB7U0ficXXDsoawquzX3HEoRD2qDIQ7KP1h2xKVW4TZBYCnLPpKVk55VNIiMTdm5SEw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Ia82aWDpNR0pkdD6JPDJoh2gbH3Luggd_0i_Q2jzAGI_BaTs6lRAZqvTOnonqCq0Wkr8QbjqXkI3-TVZhaSGu7OsVqSNSep8DFmVL9JAuQIJEosHRSyqtQ5gE8rJ55jRNnbvunXQteiq3LL7jx6uGL-cl8FNJv160-eQVob5tRPPguRbiVB4kqNOd57ArnAjOGkALPgkmxyRhyszeKR0PIYpYXPMp3IOnNzzZXAxgTrl_ih85gM_zl8ZdrqlQEzpKDQixO30CsPfJhFbAuY5u1jIYAjgc7rnVbCu5wc-kcTDm5quABOjEHjCApksPIpbAIY1UoLZxdjXTxAH0dX53g.jpg" width="400"><br>
 
-خبرگزاری رویترز روز جمعه به نقل از یک منبع ایرانی نوشت که بین تهران و واشینگتن یک تفاهم سیاسی صورت گرفته اما هنوز نهایی نشده و همچنین توافق با ایران شامل نابودی مواد هسته‌ای نیست.
-دونالد ترامپ، رئیس‌جمهور آمریکا ساعتی پیش اعلام کرد که توافق پایان دادن جنگ باید شامل مواردی مانند تعهد ایران به باز شدن تنگه هرمز و نابودی ذخایر اورانیوم باشد.
-منبع ایرانی به رویترز گفته است که تفاهم بین واشینگتن و تهران شامل موضوع هسته‌ای نیست و اظهارات آقای ترامپ درباره نابودی اورانیوم ایران را رد کرده است.
-خبرگزاری فارس، نزدیک به سپاه پاسداران، نیز به نقل از یک منبع ایرانی دیگر اظهارنظر رئیس‌جمهور ایالات منحده دربارهٔ توافق احتمالی با ایران، را «آمیخته‌ای از راست و دروغ» خوانده است.
+اسماعیل بقایی، سخنگوی وزارت خارجه ایران در مصاحبه‌ای با صدا و سیما گفت که تبادل پیام‌ها ادامه دارد ولی هنوز هیچ توافقی نهایی نشده است و افزود که مدیریت تنگه هرمز باید توسط ایران و عمان تعیین شود.
+او بار دیگر گفت: «در این مرحله بر خاتمه جنگ متمرکز هستیم و در مورد پرونده هسته‌ای هیچ مذاکره‌ای نداریم.»
+این اظهارات در حالی از سوی ایران مطرح شده که آقای ترامپ فهرستی از خواسته‌هایی را که می‌گوید ایران باید برآورده کند، مطرح کرد که شامل تعهد ایران به عدم دستیابی به سلاح هسته‌ای، باز کردن تنگه هرمز بدون دریافت عوارض، مین‌روبی کامل این آبراه و خارج‌سازی ذخایر اورانیوم ‌غنی‌شده ایران با همکاری آمریکا و تحت نظارت آژانس و سپس از بین بردن این مواد است.
+@
+VahidHeadline
+پیش‌تر: خبرگزاری فارس، نزدیک به سپاه پاسداران، نیز به نقل از یک منبع ایرانی دیگر اظهارنظر رئیس‌جمهور ایالات منحده دربارهٔ توافق احتمالی با ایران، را «آمیخته‌ای از راست و دروغ» خوانده است.
 این منبع گفته که در متن توافق بندی درباره باز شدن تنگه هرمز بدون دریافت عوارض وجود ندارد و تفاهم بر سر نابودی دخایر اورانیوم ایران را نیز «بی‌اساس» دانسته است.
 @
 VahidHeadline
@@ -63,7 +148,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn1.telesco.pe/file/dBUhUaPd0jjGtVsFOfuCrCaOfBULvOncVHHBbn_9lYr4kkF1iO7aXV-T7OTVG0a9rn2xW1wQ2WB3OC47os-A-b6J49H__6J0gPAoGH-lm-u_tA-Q7swr9OvsBYCjAaXzbqwBlxemvv2ahsLcJ0sb3_9QeRaNnPnQpeptGiE9aKHdr8GBNysRLi8kwlJGAW-8wAtPX-1y3svWDbAH5EjE9akqoquP9vDIc430LBiEi6_4_f5ndz2dDJbKStf3LOkPav4FZyPITvtDUdIrdsmmhWsmY_oico5IPk9K6Qt0ugS4CY0m1-Pf4mmMuyx3vbK5_nARt0P25L_DSTabtWsaAg.jpg" width="400"><br>
 
@@ -95,7 +180,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 
 
@@ -111,7 +196,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 
 
@@ -130,7 +215,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn4.telesco.pe/file/Qe4wjsiq0cCugMCblAjlH_FrF5_RSUj89AomfXH8pahC6QrvXsNFs5-nErt8wAMjZL2hmeBU9DTho9ivBFgffglgVfxfiOM1OkFcNIPgBJ-Nnl2bXYyDhABR1ZaO9KbbPB85babclMOJxOlvWMwnPq1rEV3mn4N94ls88FgVcO4i7GOP-dvnfVsMvSULqLQgrHDVrCckCNVfwRkfl9CH0FvDMknZENqx0cwPBoVU9rtQP3dSmWFpKtHW0qvX7ZKFmKpNVstgpUQHBiEJpgNRs3M2fpa0tag-wEjjADouK45rUtgaZsydKaDGcbnGX5n-fY2Y9L6co_ElIvIgntrX6Q.jpg" width="400"><br>
 
@@ -148,7 +233,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn1.telesco.pe/file/Y_1cF8Y0KW7pzZySPo0bVYduuV4zJlRxafABBSnhIlhgibVn2TdKKBKVtK0Qh-5WkxNa3NlKxL6MJoJSv0U98PzIvI3_tyfBkjzGiMlRwl8eDfjDZSCfuMxS_eTgI9U5AiIVo0KTKnh41dNyoxtRkZVtUjQt_OOaMGIV78QhTGrc2nz49k61gj07PkUZHYkriuQv2y8e9709JV-tbDiMJsAUcesneX1gyRLQvaUQ-j9raqvnLqIJPmH_WULUzlycjYemXCbkmffETbKy56yXwc5188jRvpEYaEncU_2U1QJSHjhHWbQfdNw3Lk2dOWX0vpN6ELcE-Bf_EJXg5fIXsg.jpg" width="400"><br>
 
@@ -168,7 +253,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn4.telesco.pe/file/sD5KlbDTZ4IY0lI6HQqtMXfgLksjv4NLHDx-kGAw9Hv5J4qVZc5TVgROmmrpcD2gezlesrF4nIPKtuv1fUXOEDW6NYS3-fAb2QPhbQ1Ozq1xM9vnQb5bI3ISxBZ1Igz-UD2H2_uitvcEA9afyxPRVgXeQx9cOQeKM_qCoex2hT1LC8AjYUXv-sBJRFN8g6fUk9O-VcL6u5kTSfXIWRNgBFJw_fBWgRghfeQoclcA_QvOj7hUtIBc3EBsCy-XFpPB10n7QhvPh-c8DBwjmrDrNZaVlaTO3qBqfQzE32u6dVGEOrFnR4mXDBO_z1MucVw2IlSCvDAjI8t_yP2jplu2xw.jpg" width="400"><br>
 
@@ -192,7 +277,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn4.telesco.pe/file/DPxqb2ejKHZFWdX0znKaahNrkZnRgfzSVHm8EHEbf7_rZTdY-hbp_eFdteo6D31op1O4jyD6Wv7ZudSQurGWbIFx29tzNQ_MNyHSK8N7ktEJuUpCqsOq4poWB7CODlvgCVF6vPzl5EYnK8b6XZY6187QKXFHCQkEPCwPd2smaFqhQeK6f0Ki4IHZG8_BCNNdkH9M-nWPXPsxUcnEOhszrOKqHxJn8OIBdFkTB7J33IEh2BWfS6VDDURhfwPDbbZJiWr-vatR9rPOFCppFr75rmoodY5RuilVv5AXoJF2FESytTOTMMMTrQ3JlXa-7T5pFT7b_RetTAU99b1ZLnj1Eg.jpg" width="400"><br>
 
@@ -211,7 +296,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 
 
@@ -232,9 +317,9 @@ FoxNews
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
-<img src="https://cdn4.telesco.pe/file/XP_5iSpGknZxazjKvvvLwW0vOpNAPt9y_kzpAFqA2TQQ5G5PfG4IBDcYNsN7Y5HnoDNnkloiG1-OnCuAhw3xLgDS66bxprTOe-Zt-UnBEjJ199O2LuEr5RECJw56OjyxCNbPgGlBnc2hvRbLleahCfqvyhMEdMjG4AH_Yy-o22xAqOO1RbDxJkCc8y23_A9oEHPN3DnzbdzhoPyc13UAZB4S14M9_OkxdpvlSFd7mnnyDZBQO3UJXQY640CGHiz0CuqdTkI_BeYglBVA3uRVsLImuhCPRNEjgprISEfc3KkuK8ln62BqtoMSQvqIz1K6MYFGjoymGt2A_Vo-i2drBw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Y70Ssyvrqu1yggJkSBu5dHcPX7oYYA-vNs1eeevVtQefu0G1y2T2waZrG_wr7JU80idITsIK2-finFrGhE-tiRyXIWsyY_58NMxxuK69_44FLr5GlxuaXT4k7jVLaQIBFM4BN3lTQ-h_pkDVhnxPTuDXTvBhpRRK8aQZ2ds0Z9wbMez2avFs0mWvaERDSVo-JS8VBCwqzacUBsFuIAgUgMFqLyxRi_fUtL1kMWMNlfszToBn18ZGuqD5TeFZbxzTpnYbj8YumDN4aGpVr0tSc4GH5hQNf9pVV45nx78DvaCKZHOryuTQwo2RGykMZBTvfLgs8ueqm-GXM4Fz00XtcA.jpg" width="400"><br>
 
 رسانه‌های ایران گزارش دادند که نیروی دریایی سپاه شامگاه پنج‌شنبه در نزدیکی تنگه هرمز به ۴ «شناور خاطی» که قصد عبور بدون هماهنگی از تنگه هرمز را داشتند، «شلیک اخطار» کرده است.
 همزمان، گزارش‌های منتشرشده در رسانه‌های اجتماعی از شنیده‌شدن صدای انفجار در هرمزگان و بوشهر حکایت دارد.
@@ -253,7 +338,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn1.telesco.pe/file/Z4q0I53w7bYAIU_Dda-uNkJRuYiZC9xkHqrYcM1IxWUQGHll-VrZSrvMfLt6M-3CPfxNx86pWzpXPQ2emjo0r0u4743v0dFol2UoHXzrwQKBoKM8Qm2stMgPfoN1I0BjPnfui_ZIkPqKVH0p8sSgy4SPXu5y6zzdiG6ToR5HDcX3NgwaCPdnMo0bMahbZQfSXgHQKLBDNy-6Lb4eixrY-9Hy3Hp27P2XFpOTTBFgWnnSM63SWGI-CpEYGKl7PvNGJWBM7TqMNq__shxgK1nt5oEZMmtfcNILExwCRMB0OLbZgErXa8fb8rtIOpWIp1Z_0rjgdOsuuiGogMaGlQgdLg.jpg" width="400"><br>
 
@@ -297,7 +382,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn4.telesco.pe/file/vHTrEZ-czFdQd4bhxUFSuUk2aKlVd-zcGB2hW-zUym-YGhtwT5-TpFlVZmFe0jIyLuqbBc7a7xz3av0kk-wdOhXX_NGwhz0gUB60epioRhRpMblyEoZT8lhVLa618QPtsXhmQr5PHI-PP3Ni5BaSZepcAAizWzVlZZ3J9snvMQeQNwfpk59V2rxw_lvG9xF2Qr8aaaVQfQorK7Gnw1AX8pI6aw2x6gme9PZjYD-6D9jl10kaTj_UC2EWoP60nUAZmxbb0CsbCGYTm3WZdCRvSHKD4UzfLxqy1RJ8_ZpcIA2D11DvCVZ5lGO4M8F_WIUIgH4Q1j2lc95TGl_vxl8_aA.jpg" width="400"><br>
 
@@ -315,7 +400,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn1.telesco.pe/file/vM53yVlH4-YhkF5a7Pj6DqGBMYxrd6K7tuEAH3C2nKUcKfhTlZX_ZzSwRHaHlFZ9pKQB2uVa6G6rF9rBufUQHSdtArUpL_M6E36SNt-OPP2k08yoTb1-B361dQXf5j6Zh5kAzqle32sN-NYiRyNv4gIvCUu2N4pR2UjgYEsVbgc1Y1Lh9mVq7_4GLQQCSyVE2ocU727wydnYzLl0qorHYW3YqlIILIL8HW86Q2BAIXUiHXmVnK5n0ObiPv9O8sWTNT1GdX8JEk1CYZxYGSZrfYDyGv71K-TGhre4YpOJmNwyu1ebL6okMhoTAYSUoIoHfTNn1BTfNWxv5fUw691bbw.jpg" width="400"><br>
 
@@ -339,7 +424,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 21:27:46
+###### 🔵 Updated at: 2026-05-29 23:57:58
 
 <img src="https://cdn1.telesco.pe/file/H4q50U8aVJ5_ZbG5HvveZRtu0gzN5K9BCnyj-lPTSf4nxN5H3JMQ1JrT5b0UUazesW29dBWdIRhF6VknHYFIOPUDqiSCYkJe_yOhu7U8ofXtJZLZlQTrz7QXmqWUMry_Q8j6yzGsYmDH3ivt4YFEcgLNrJSZw67luEtoHCbTQBlgLVxbdhmHPryEupqnHYVTe0rpEKzDpQmo2ShNx16krEdselSqtSk18UXtJVJnEN5-o4370NAdkoB0CmCQxy2ctdWVXuD1nz06OjLF5fBVPYmc7shc0qFjp6mqfnwXaDBAGumJBhg9_cxt_dtT9Gca65CihrF2dr3S7i_MMzTWtQ.jpg" width="400"><br>
 
@@ -355,67 +440,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75776)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 21:27:46
-
-<img src="https://cdn1.telesco.pe/file/vhqdpCBnsqVhaV5OPMv4a2N2VkGtGP_SNLNaWDeRLztkNmzMry3Xv9pzsfpQRtqX2oDKMjX_6NlDONeRB6bGXPyVFtCzjVdMewVbPcOSwdGPtey3-vWvxRYR8z-_4GqdptoCKKHM8jGX7R_kcFh2irKkichE-elbOk1R5PK85p_JchJELZjUJI2rB1gZjXRdM-1gskUl-ng8AiGx1TGMjBRch7RYwDvvoxzGCadiuXaTgNbuK89dVQLzeO7HB2RjBQ9G9vZH6lGaeHrJj070DHYAyA0OiwV87Yo7siqIfMdhm1q2iWnEbVAqP12LkLsFLK63ddNWjJXkdTHy8IC9PA.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری آمریکا، روز پنج‌شنبه در پیامی در شبکه ایکس نوشت که ایالات متحده در راستای افزایش فشار بر تهران و باز نگه داشتن تنگه هرمز «دسترسی هر دو شرکت هواپیمایی ایرانی به اماکن فرود، سوخت‌گیری و فروش بلیت را متوقف خواهد کرد»، اما جزئیات بیشتری ارائه نداد و به نام دو شرکت اشاره نکرد.
-@
-VahidHeadline
-اسکات بسنت، وزیر خزانه‌داری آمریکا، با تاکید بر اینکه این کشور به کارزار «خشم اقتصادی» علیه حکومت ایران ادامه می‌دهد، در شبکه ایکس نوشت نیروهای جمهوری اسلامی حقوق دریافت نمی‌کنند، پلیس‌ها سر کار حاضر نمی‌شوند و جزیره خارک تعطیل شده است و اقتصاد و ارزش پول ایران در سقوط آزاد قرار دارد.
-او افزود سازمان مدیریت تنگه هرمز از سوی جمهوری اسلامی یک شوخی است و امروز وزارت خزانه‌داری آن را تحریم کرده است. ما به هر نهاد شرکتی یا دولتی درباره پرداخت عوارض یا پنهان کردن آن به‌عنوان کمک هشدار داده‌ایم.
-بسنت اضافه کرد با تشکیل «دیوار فولادی»، محاصره دریایی آمریکا باعث شده میزان نفت خام ایران در دریا به پایین‌ترین سطح تاریخی برسد.
-او تاکید کرد تنها یک نتیجه رضایت‌بخش در مذاکرات این روند نزولی را متوقف خواهد کرد.
-@
-VahidOOnLine
-دولت دونالد ترامپ نهاد موسوم به «سازمان تنگه خلیج فارس» جمهوری اسلامی را تحریم کرد
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75774)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 21:27:46
-
-<img src="https://cdn1.telesco.pe/file/rUhLbro8KdTpLVmfwYCWTwk_6POPdF4LBNr-pVyoz5LmPypRImT216lF6HsRpw8Vqhqk2C4XItVYofmodtlpcvHYLV9t0l1ayO_y742Qc3ZDQDFSz3lkme67KezeEHa_YYiUHOb6DWCQ1EOzuROaWn3pzEJCg-2BLxvvgo101gpb148am5bnfpL1cpgA1B0_MTmx1rV2ssBdtsFeN-h5AwB3q2JftrUWIlMUsmDtxC0ahYQl1K0fdXQJgZm1cG-zQeDN70uxbRHnAvLp9dEkVISNEmJoRe4-q14MpYT4nCy0IK28mmPmQHUCI1yxtqpCG12nwlaGXiWbdVtppm2a3g.jpg" width="400"><br>
-
-وزارت خارجه کویت حملات اخیر موشکی و پهپادی رژیم ایران به خاک کویت را به عنوان یک تشدید تنش جدی و نقض آشکار حاکمیت و امنیت محکوم کرد.
-این وزارتخانه روز پنج‌شنبه اعلام کرد که تهران را کاملاً مسئول حملات اخیر می‌داند و حکومت ایران خواست فوراً و بدون قید و شرط حملات را متوقف کند.
-@
-VahidHeadline
-اسماعیل بقائی سخنگوی وزارت خارجه ایران، حمله بامداد پنج‌شنبه آمریکا به مناطقی در بندرعباس، را «تجاوز» نامید و آن را محکوم کرد.
-آقای بقائی این حمله را «نقض فاحش حقوق بین‌الملل و منشور ملل متحد» دانست و افزود: «شورای امنیت سازمان ملل موظف به ایفای مسئولیت قانونی خود برای پاسخگو کردن متجاوزان آمریکایی است.»
-سخنگوی وزارت خارجه ایران می‌گوید آمریکا «به‌طور مستمر»، آتش‌بس میان دو کشور را که از ۱۹ فروردین اجرایی شده، «نقض» می‌کند.
-سنتکام با این حال تأکید کرده که این اقدامات «سنجیده، صرفاً دفاعی و با هدف حفظ آتش‌بس» انجام شد. این دومین بار در سه روز گذشته بود که آمریکا اهدافی را در ایران هدف حمله قرار داد.
-@
-VahidHeadline
-فرماندهی مرکزی ارتش ایالات متحده، سنتکام، حمله موشکی ایران به کویت را «نفض فاحش» آتش‌بس خوانده است.
-این نهاد در حساب رسمی خود در شبکه ایکس نوشته است: «ساعت ۱۰:۱۷ شب به وقت شرق آمریکا در تاریخ ۲۷ مه، ایران یک موشک بالستیک به سمت کویت شلیک کرد که با موفقیت توسط نیروهای کویتی رهگیری شد.»
-سنتکام نوشته است «این نقض فاحش آتش‌بس توسط رژیم ایران، ساعاتی پس از آن رخ داد که نیروهای ایرانی پنج پهپاد تهاجمی یک‌طرفه را شلیک کردند که تهدیدی آشکار در تنگه هرمز و نزدیکی آن ایجاد کردند.»
-فرماندهی مرکزی ارتش آمریکا می‌گوید: «تمام پهپادها با موفقیت توسط نیروهای آمریکایی رهگیری شدند و آنها همچنین از پرتاب ششمین پهپاد از یک سایت کنترل زمینی ایران در بندرعباس جلوگیری کردند.»
-سنتکام در ادامه آورده است: «فرماندهی مرکزی ایالات متحده و شرکای منطقه‌ای کماکان هوشیار و محتاط هستند و ما همچنان به دفاع از نیروها و منافع خود در برابر تجاوز توجیه‌ناپذیر ایران ادامه می‌دهیم.»
-@
-VahidOOnLine
-وزارت خارجه عربستان سعودی در بیانیه‌ای در شبکه ایکس، حملات خصمانه با موشک و پهپاد به کویت را به‌شدت محکوم و تقبیح کرد.
-@
-VahidOOnLine
-وزارت خارجه قطر در بیانیه‌ای هدف قرار گرفتن کویت با موشک و پهپاد را به‌شدت محکوم کرد و آن را «نقض آشکار حاکمیت» این کشور و «نقض فاحش قوانین بین‌المللی» دانست.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75772)
 
 ---
 
