@@ -3,7 +3,99 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
+
+<img src="https://cdn1.telesco.pe/file/EgceUAvQmS3Q1l7y7BtvTjiYmWC3fPQ7b3Ime48ePr2xi7k6PrN5zlelWxq5X7464p5gPdkvEkDT_QCgVQCFZkTGbermigMI-3GzN6W9vG0Rp0W0QeWFBi5l_iDP_gBXUarTCSk4FPPzzUmEV0YpAnFs3EYQXzgNoQAjNjq3GvxVvxeKo7oeLuV30t6ZbNHxqJuWuQGZcRHrEP_kCGOkXFRpiGGQf_cLmKB0hwkjrKDs0uMsubfStcWTDTrgLBQaP0dIQoDGBzAdtGiAYFX92_y4HZ7-YUryWS_YuGo8kk61BLi1GIOa7v2p4c6EDXnm25JApPaIdbvvGWZ-1kymIA.jpg" width="400"><br>
+
+دونالد ترامپ پستی از نیوت گینگریچ، رییس پیشین مجلس نمایندگان آمریکا، را در تروث سوشال بازنشر کرد که در آن نوشته شده بود: پس از بررسی جنگ ایران در این هفته، متقاعد شدم ترامپ در آستانه یک پیروزی تاریخی قرار دارد
+IranIntlbrk
+پستی که گینگریچ ۸ ساعت پیش نوشته بود، ترجمه ماشین:
+پس از آنکه این هفته را صرف بررسی جنگ ایران کردم، اکنون متقاعد شده‌ام که رئیس‌جمهور ترامپ در آستانه یک پیروزی تاریخی قرار دارد. نقطه عطف واقعی برای من زمانی رقم خورد که تصمیم‌ها و مانورهای رئیس‌جمهور ترامپ را نه از منظر یکجانبه‌گرایی آمریکا، بلکه از منظر رهبر یک ائتلاف تاریخی چشمگیر بررسی کردم؛ بزرگ‌ترین ائتلافی که تاکنون در خاورمیانه مدرن شکل گرفته است.
+همه می‌دانند که اسرائیل متحد مهمی است. اما آنچه کمتر درباره آن صحبت می‌شود، عمق حمایت امارات متحده عربی، قطر، بحرین، عربستان سعودی و دیگر کشورهای منطقه است. برای دیکتاتوری ایران باید بسیار تأمل‌برانگیز باشد که دریابد حتی یک متحد ندارد که حاضر باشد محاصره دریایی آمریکا را به چالش بکشد. آرام‌آرام، به‌تدریج و با احتیاط، متحدان اروپایی ما نیز در حال صف‌آرایی برای کمک در خلیج فارس و تنگه هرمز هستند.
+بخش بزرگی از مانورهای رئیس‌جمهور ترامپ علیه ایران زمانی معنا پیدا می‌کند که او را نه صرفاً یک رئیس‌جمهور یکجانبه‌گرای آمریکایی، بلکه رهبر یک ائتلاف ببینیم. من بخش زیادی از چند هفته گذشته را صرف بررسی گزینه‌های نظامی کردم؛ از جمله پیروزی در نبرد خلیج فارس و تنگه هرمز و، در صورت لزوم، استفاده از سطحی تکان‌دهنده و خردکننده از قدرت نظامی؛ مشابه آنچه رئیس‌جمهور نیکسون و وزیر خارجه کیسینجر در کریسمس ۱۹۷۲ علیه هانوی و هایفونگ به کار گرفتند؛ اقدامی که هر دو رهبر معتقد بودند ویتنام شمالی را به پذیرش آتش‌بس و آزادی اسرای آمریکایی متقاعد کرد.
+اگر این یک کارزار یکجانبه آمریکایی بود، می‌توانستم با اشتیاق از یک کارزار نظامی تهاجمی‌تر حمایت کنم. اما در عین حال روشن است که چنین اقدامی ائتلاف را از هم می‌پاشاند، زیرا متحدان عرب ما متقاعدند که ایران هنوز می‌تواند خسارت عظیمی به میدان‌های نفتی و زیرساخت‌های آنان وارد کند. ائتلاف‌ها ذاتاً کندتر از کارزارهای یکجانبه عمل می‌کنند. با این حال، ائتلاف‌ها در نهایت قدرتی به‌مراتب بیشتر را وارد میدان می‌کنند.
+من نیز مانند همه دیگران از سرعت گفت‌وگوها با این دیکتاتوری سرخورده‌ام؛ اما پس از بررسی توازن قوا و گزینه‌های در دسترس ائتلاف از یک سو، و دیکتاتوری مذهبیِ ایران از سوی دیگر، آماده‌ام بگویم که رهبری ائتلافیِ رئیس‌جمهور ترامپ ــ چیزی که تقریباً هیچ‌یک از منتقدان او نمی‌خواهند به آن اذعان کنند ــ در آستانه دستیابی به یک پیروزی عظیم تاریخی است.
+و اگر دیکتاتوری ایران در نهایت ثابت کند که به شکلی نومیدانه به موضعی انتحاری پایبند است، زمان کافی برای یک کارزار نظامی با قدرت و اثربخشی عظیم وجود خواهد داشت. در هر صورت، ما در آستانه یک پیروزی شگفت‌انگیز برای ارزش‌های خود و برای خاورمیانه‌ای امن‌تر قرار داریم.
+NewtGingrich
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75792)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 21:27:46
+
+<img src="https://cdn4.telesco.pe/file/Gki71nUc_XcQ8EZszEXElozL6GLmZEM5f0_pq0PwAxEmBfE35pY0qoIN7V1gJaPmU7u_agomUbLjqdS0hJhPxVZKEHbRqSfW66Xg_9TgQ40OY_B7E11c3ukkBXxGaylj-__BvWP9h_M6492JRNVhushvrIPGGvjhCgPu8xG8Ddx7KsLZZf7Jzw4r46dWAPe_Ms6H1Fn9b_W2vv411qWVsFjd8vaMbYluIHqLS6LsTe9LmeLgT1Uj2Go60QKQ7uL7ALa0eQzg78H7fEfDZitdaA5FxgrCEKi4qcTYOScKsuC_CMVd84CZTD6SujwgsTTkyiLtUmaY6vkElQkcUDLpFA.jpg" width="400"><br>
+
+مهدی خانعلی‌زاده، عضو تیم رسانه‌ای هیات مذاکره‌کننده جمهوری اسلامی، نوشت که در متن تفاهم احتمالی هشت بند از ۱۰ بند بیانیه شورای عالی امنیت ملی که به تایید مجتبی خامنه‌ای رسیده، رعایت نشده و زیر پا گذاشته شده است.
+او افزود که تفاهم‌نامه کنونی برخلاف بیانیه آتش‌بس شورای عالی امنیت ملی است و مشخص شده که اساسا مذاکرات پسااسلام‌آباد، بر مبنای شروط رهبری انجام نشده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75791)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 21:27:46
+
+<img src="https://cdn4.telesco.pe/file/FVR5D3E1GoDxzoThMDXIHQsUE7UbTMLqPV95uFLTVUcVLydpHq4go1XO-RqdvYDLHUzpNoaNv6sFJbYNPbx6wHvA3TAyUkCOdwDx9jb7WboAKqjr_Rkpej90goFAeJAysISNKLl5f9aPuw_m7PQQ_v-PYD-NnMikHIw7zi0VJ_bXkPHlvf1_Be0lOY53h6kueMWHQ_S7JjXA_Kb9fGBIz2tljs2ky9yrKT3e0Q45MBhQ8VsSWFGaRuvIZbhcheCIcRj7tnaRW2j6HYyPbKheB7U0ficXXDsoawquzX3HEoRD2qDIQ7KP1h2xKVW4TZBYCnLPpKVk55VNIiMTdm5SEw.jpg" width="400"><br>
+
+خبرگزاری رویترز روز جمعه به نقل از یک منبع ایرانی نوشت که بین تهران و واشینگتن یک تفاهم سیاسی صورت گرفته اما هنوز نهایی نشده و همچنین توافق با ایران شامل نابودی مواد هسته‌ای نیست.
+دونالد ترامپ، رئیس‌جمهور آمریکا ساعتی پیش اعلام کرد که توافق پایان دادن جنگ باید شامل مواردی مانند تعهد ایران به باز شدن تنگه هرمز و نابودی ذخایر اورانیوم باشد.
+منبع ایرانی به رویترز گفته است که تفاهم بین واشینگتن و تهران شامل موضوع هسته‌ای نیست و اظهارات آقای ترامپ درباره نابودی اورانیوم ایران را رد کرده است.
+خبرگزاری فارس، نزدیک به سپاه پاسداران، نیز به نقل از یک منبع ایرانی دیگر اظهارنظر رئیس‌جمهور ایالات منحده دربارهٔ توافق احتمالی با ایران، را «آمیخته‌ای از راست و دروغ» خوانده است.
+این منبع گفته که در متن توافق بندی درباره باز شدن تنگه هرمز بدون دریافت عوارض وجود ندارد و تفاهم بر سر نابودی دخایر اورانیوم ایران را نیز «بی‌اساس» دانسته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75790)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 21:27:46
+
+<img src="https://cdn1.telesco.pe/file/dBUhUaPd0jjGtVsFOfuCrCaOfBULvOncVHHBbn_9lYr4kkF1iO7aXV-T7OTVG0a9rn2xW1wQ2WB3OC47os-A-b6J49H__6J0gPAoGH-lm-u_tA-Q7swr9OvsBYCjAaXzbqwBlxemvv2ahsLcJ0sb3_9QeRaNnPnQpeptGiE9aKHdr8GBNysRLi8kwlJGAW-8wAtPX-1y3svWDbAH5EjE9akqoquP9vDIc430LBiEi6_4_f5ndz2dDJbKStf3LOkPav4FZyPITvtDUdIrdsmmhWsmY_oico5IPk9K6Qt0ugS4CY0m1-Pf4mmMuyx3vbK5_nARt0P25L_DSTabtWsaAg.jpg" width="400"><br>
+
+☄️
+پست ترامپ، ترجمه ماشین:
+ایران باید بپذیرد که هرگز سلاح یا بمب هسته‌ای نخواهد داشت.
+تنگه هرمز باید فوراً، بدون عوارض، برای عبور و مرور آزادانه کشتی‌ها در هر دو جهت باز شود. همه مین‌های دریایی، اگر وجود داشته باشند، برچیده خواهند شد؛ ما با مین‌روب‌های زیرآبی فوق‌العاده خود، شمار زیادی از این مین‌ها را از طریق انفجار از بین برده‌ایم. ایران نیز باید فوراً هر مین باقی‌مانده‌ای را، که تعدادشان زیاد نخواهد بود، جمع‌آوری یا منفجر کند.
+کشتی‌هایی که به‌دلیل محاصره دریایی شگفت‌انگیز و بی‌سابقه ما در تنگه گرفتار شده بودند ــ
+❗️
+محاصره‌ای که اکنون لغو خواهد شد ــ می‌توانند روند «بازگشت به خانه» را آغاز کنند! از طرف من، رئیس‌جمهور محبوبتان، به همسران، شوهران، پدران، مادران و خانواده‌هایتان سلام برسانید!
+مواد غنی‌شده، که گاهی از آن با عنوان «غبار هسته‌ای» یاد می‌شود و در اعماق زمین دفن شده؛ در حالی که کوه‌هایی که عملاً بر اثر حمله قدرتمند بمب‌افکن‌های B-2 ما در ۱۱ ماه پیش فرو ریخته‌اند روی آن قرار دارند،
+❗️
+توسط ایالات متحده از زیر خاک بیرون آورده خواهد شد؛ کشوری که، طبق توافق، تنها کشور در کنار چین است که توان مکانیکی انجام چنین کاری را دارد.
+این کار با هماهنگی و همکاری نزدیک با جمهوری اسلامی ایران و همچنین آژانس بین‌المللی انرژی اتمی انجام خواهد شد و سپس این مواد نابود خواهد شد.
+❗️
+تا اطلاع ثانوی، هیچ پولی رد و بدل نخواهد شد.
+درباره موارد دیگری که اهمیت بسیار کمتری دارند نیز توافق حاصل شده است.
+💥
+اکنون در اتاق وضعیت جلسه خواهم داشت تا تصمیم نهایی را بگیرم.
+از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75789)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 
 
@@ -19,7 +111,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 
 
@@ -38,7 +130,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 <img src="https://cdn4.telesco.pe/file/Qe4wjsiq0cCugMCblAjlH_FrF5_RSUj89AomfXH8pahC6QrvXsNFs5-nErt8wAMjZL2hmeBU9DTho9ivBFgffglgVfxfiOM1OkFcNIPgBJ-Nnl2bXYyDhABR1ZaO9KbbPB85babclMOJxOlvWMwnPq1rEV3mn4N94ls88FgVcO4i7GOP-dvnfVsMvSULqLQgrHDVrCckCNVfwRkfl9CH0FvDMknZENqx0cwPBoVU9rtQP3dSmWFpKtHW0qvX7ZKFmKpNVstgpUQHBiEJpgNRs3M2fpa0tag-wEjjADouK45rUtgaZsydKaDGcbnGX5n-fY2Y9L6co_ElIvIgntrX6Q.jpg" width="400"><br>
 
@@ -56,7 +148,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 <img src="https://cdn1.telesco.pe/file/Y_1cF8Y0KW7pzZySPo0bVYduuV4zJlRxafABBSnhIlhgibVn2TdKKBKVtK0Qh-5WkxNa3NlKxL6MJoJSv0U98PzIvI3_tyfBkjzGiMlRwl8eDfjDZSCfuMxS_eTgI9U5AiIVo0KTKnh41dNyoxtRkZVtUjQt_OOaMGIV78QhTGrc2nz49k61gj07PkUZHYkriuQv2y8e9709JV-tbDiMJsAUcesneX1gyRLQvaUQ-j9raqvnLqIJPmH_WULUzlycjYemXCbkmffETbKy56yXwc5188jRvpEYaEncU_2U1QJSHjhHWbQfdNw3Lk2dOWX0vpN6ELcE-Bf_EJXg5fIXsg.jpg" width="400"><br>
 
@@ -76,7 +168,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 <img src="https://cdn4.telesco.pe/file/sD5KlbDTZ4IY0lI6HQqtMXfgLksjv4NLHDx-kGAw9Hv5J4qVZc5TVgROmmrpcD2gezlesrF4nIPKtuv1fUXOEDW6NYS3-fAb2QPhbQ1Ozq1xM9vnQb5bI3ISxBZ1Igz-UD2H2_uitvcEA9afyxPRVgXeQx9cOQeKM_qCoex2hT1LC8AjYUXv-sBJRFN8g6fUk9O-VcL6u5kTSfXIWRNgBFJw_fBWgRghfeQoclcA_QvOj7hUtIBc3EBsCy-XFpPB10n7QhvPh-c8DBwjmrDrNZaVlaTO3qBqfQzE32u6dVGEOrFnR4mXDBO_z1MucVw2IlSCvDAjI8t_yP2jplu2xw.jpg" width="400"><br>
 
@@ -100,7 +192,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 <img src="https://cdn4.telesco.pe/file/DPxqb2ejKHZFWdX0znKaahNrkZnRgfzSVHm8EHEbf7_rZTdY-hbp_eFdteo6D31op1O4jyD6Wv7ZudSQurGWbIFx29tzNQ_MNyHSK8N7ktEJuUpCqsOq4poWB7CODlvgCVF6vPzl5EYnK8b6XZY6187QKXFHCQkEPCwPd2smaFqhQeK6f0Ki4IHZG8_BCNNdkH9M-nWPXPsxUcnEOhszrOKqHxJn8OIBdFkTB7J33IEh2BWfS6VDDURhfwPDbbZJiWr-vatR9rPOFCppFr75rmoodY5RuilVv5AXoJF2FESytTOTMMMTrQ3JlXa-7T5pFT7b_RetTAU99b1ZLnj1Eg.jpg" width="400"><br>
 
@@ -119,7 +211,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 
 
@@ -140,7 +232,7 @@ FoxNews
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 <img src="https://cdn4.telesco.pe/file/XP_5iSpGknZxazjKvvvLwW0vOpNAPt9y_kzpAFqA2TQQ5G5PfG4IBDcYNsN7Y5HnoDNnkloiG1-OnCuAhw3xLgDS66bxprTOe-Zt-UnBEjJ199O2LuEr5RECJw56OjyxCNbPgGlBnc2hvRbLleahCfqvyhMEdMjG4AH_Yy-o22xAqOO1RbDxJkCc8y23_A9oEHPN3DnzbdzhoPyc13UAZB4S14M9_OkxdpvlSFd7mnnyDZBQO3UJXQY640CGHiz0CuqdTkI_BeYglBVA3uRVsLImuhCPRNEjgprISEfc3KkuK8ln62BqtoMSQvqIz1K6MYFGjoymGt2A_Vo-i2drBw.jpg" width="400"><br>
 
@@ -161,7 +253,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
 <img src="https://cdn1.telesco.pe/file/Z4q0I53w7bYAIU_Dda-uNkJRuYiZC9xkHqrYcM1IxWUQGHll-VrZSrvMfLt6M-3CPfxNx86pWzpXPQ2emjo0r0u4743v0dFol2UoHXzrwQKBoKM8Qm2stMgPfoN1I0BjPnfui_ZIkPqKVH0p8sSgy4SPXu5y6zzdiG6ToR5HDcX3NgwaCPdnMo0bMahbZQfSXgHQKLBDNy-6Lb4eixrY-9Hy3Hp27P2XFpOTTBFgWnnSM63SWGI-CpEYGKl7PvNGJWBM7TqMNq__shxgK1nt5oEZMmtfcNILExwCRMB0OLbZgErXa8fb8rtIOpWIp1Z_0rjgdOsuuiGogMaGlQgdLg.jpg" width="400"><br>
 
@@ -205,9 +297,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
-<img src="https://cdn4.telesco.pe/file/Q_yqJTjWq6RGm1vIi_VkjEyKaBmeHFECf3yIjeN7HHI5JH3MApSUOTVRgOF4EIfm45E08EElYh56T-qXYEqDkjRK7KejWQjxBxMT5jVGRddPCymZcza-QAMtZbhg4S2Wsr1NtTOpd4SAM50eOilEatP7ukI49FjKhEglTTgyN7lc7yGJ90g6Y3-w0d2RtznlbPINEbSfzGYbWOEfDJcqkdNBeYtereWi0d4FSVO4QPJ5GirgqZ73whYFaIH5uTDPx3oIFqwdaRDYNtvX_NVO9CGV26NJpVNx2zC877X23wP859GnfKa942_WlbLFCk2ZzNBLgewQJDaP7noYV_nimg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/vHTrEZ-czFdQd4bhxUFSuUk2aKlVd-zcGB2hW-zUym-YGhtwT5-TpFlVZmFe0jIyLuqbBc7a7xz3av0kk-wdOhXX_NGwhz0gUB60epioRhRpMblyEoZT8lhVLa618QPtsXhmQr5PHI-PP3Ni5BaSZepcAAizWzVlZZ3J9snvMQeQNwfpk59V2rxw_lvG9xF2Qr8aaaVQfQorK7Gnw1AX8pI6aw2x6gme9PZjYD-6D9jl10kaTj_UC2EWoP60nUAZmxbb0CsbCGYTm3WZdCRvSHKD4UzfLxqy1RJ8_ZpcIA2D11DvCVZ5lGO4M8F_WIUIgH4Q1j2lc95TGl_vxl8_aA.jpg" width="400"><br>
 
 ارگان خبری مجموعه فعالان حقوق بشر در ایران خبر داد که تارا و کیمیا داوودی، دو خواهر محبوس در زندان اوین، توسط شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی در مجموع به ۱۶ سال حبس محکوم شده‌اند.
 براساس این گزارش، کیمیا داوودی به اتهاماتی از جمله «ارتباط با گروه‌ها و شبکه‌های معاند» و «اجتماع و تبانی علیه امنیت کشور» به ۱۰ سال زندان و تارا داوودی نیز به اتهاماتی شامل «اجتماع و تبانی علیه امنیت کشور» و «تبلیغ علیه نظام» به شش سال حبس محکوم شده است.
@@ -223,9 +315,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
-<img src="https://cdn1.telesco.pe/file/a7yMLy3aBJccFmyJ4Mi_qrKXAUW96DndYDhbem3DTsNvalgRpc8CwUx4hqyayOsw4VV7chy-1_Zy9g1_-SNqCws6EpVYsbXEL6u04PVC6FXZDwWuWfRLlDLRW_TgalxX6xK_6RsRfJrHGPVBq9IWnDliyYfUN3TO-w-BiUWqYmuO1GJD3Y3oBAD6Rrj5m6OKDtH8-DJsYuOB8cWd00VLce1X0nR3y1F0PE0MdUXP5Z83HlxESzjXoPPYrVH0XBxuve8teL0oq6i_BNu2yX1X9_Hu2urt4Yl9UIJ0Ak2qL0lc9tvwJUD3t1qD-h1KpADcnFq70EtGUoBHIrODWDSJZA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vM53yVlH4-YhkF5a7Pj6DqGBMYxrd6K7tuEAH3C2nKUcKfhTlZX_ZzSwRHaHlFZ9pKQB2uVa6G6rF9rBufUQHSdtArUpL_M6E36SNt-OPP2k08yoTb1-B361dQXf5j6Zh5kAzqle32sN-NYiRyNv4gIvCUu2N4pR2UjgYEsVbgc1Y1Lh9mVq7_4GLQQCSyVE2ocU727wydnYzLl0qorHYW3YqlIILIL8HW86Q2BAIXUiHXmVnK5n0ObiPv9O8sWTNT1GdX8JEk1CYZxYGSZrfYDyGv71K-TGhre4YpOJmNwyu1ebL6okMhoTAYSUoIoHfTNn1BTfNWxv5fUw691bbw.jpg" width="400"><br>
 
 اکسیوس به نقل از مقامات آمریکایی گزارش داد که مذاکره‌کنندگان آمریکا و جمهوری اسلامی به یک یادداشت تفاهم با مدت ۶۰ روزه برای تمدید آتش‌بس و آغاز مذاکرات درباره برنامه هسته‌ای ایران رسیده‌اند، اما دونالد ترامپ، رییس‌جمهوری آمریکا، این متن را هنوز تایید نهایی نکرده است.
 مقامات آمریکایی که نامشان فاش نشده به این رسانه گفتند که شرایط توافق تا سه‌شنبه تقریبا نهایی شده بود، اما هر دو طرف هنوز نیاز داشتند تایید مقامات ارشد خود را بگیرند.
@@ -247,9 +339,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
-<img src="https://cdn1.telesco.pe/file/La7jo8zpY22FTs_GNFMp_m3Oqs9W5zjH5E-Nb1JWIUzhB5-gFQPkn639avq8a_IrG_ganCbEYlD_cUH-PCP_mx_zcwtgll4LBhFNvEBuIMRdQ-KFxprPeg7K5MyGxdVUlFLPWGuK8xeGhF8r4MqtbTVk6ROvJUwBJPKiJTsEolvsfKcuP2YahhnCE6hijgrnDo2oWJrvPQRkz_FcaUOCJvy74YfrqcIJsSrkAH55XH8YD-Ui8q6dJwboBwdtbUmHQKnr9PYeeCjGxa_9QNJexBFWUtKk51rewyXC61Dhk6ePRfsfPI4cUBO6DkPMNG8TgWARqfY-SeiI2eClbzzJ9g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/H4q50U8aVJ5_ZbG5HvveZRtu0gzN5K9BCnyj-lPTSf4nxN5H3JMQ1JrT5b0UUazesW29dBWdIRhF6VknHYFIOPUDqiSCYkJe_yOhu7U8ofXtJZLZlQTrz7QXmqWUMry_Q8j6yzGsYmDH3ivt4YFEcgLNrJSZw67luEtoHCbTQBlgLVxbdhmHPryEupqnHYVTe0rpEKzDpQmo2ShNx16krEdselSqtSk18UXtJVJnEN5-o4370NAdkoB0CmCQxy2ctdWVXuD1nz06OjLF5fBVPYmc7shc0qFjp6mqfnwXaDBAGumJBhg9_cxt_dtT9Gca65CihrF2dr3S7i_MMzTWtQ.jpg" width="400"><br>
 
 پس از انتشار پیامی منسوب به مجتبی خامنه‌ای درباره «نابودی اسرائیل تا ۱۵ سال آینده»، رسانه‌های ایران تصویری از دیوارنگاره جدید در میدان فلسطین تهران منتشر کردند که بر آن جمله «اسرائیل ۱۵ سال آینده را نخواهد دید» نوشته شده است.
 در پیام منتسب به مجتبی خامنه‌ای که رسانه‌های ایران آن را منتشر کرده بودند، آمده است اسرائیل «به مراحل پایانی عمر منحوس خود نزدیک شده است.» در این پیام به سخنان علی خامنه‌ای در سال ۱۳۹۴ اشاره شده و تاکید شده است که اسرائیل «۲۵ سال بعد از آن تاریخ را نخواهد دید.»
@@ -268,9 +360,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
-<img src="https://cdn1.telesco.pe/file/krrn7olbm3BRCfG9y3gf2IjflqDMwH62zCsl6S5Spkqj06VKY0oH0YbyX32lFw6AKnaf7Dr15FzVInuV4kHYlrKugrkFvZdRJwk1whkLzg1nwNi1MEBSF_MmER9ZrvjlArz7TqyBa-_ln81TEvgA_-1MufyxTkZzigYTuG2N13CuTMG9bAuQ59QyZr_r15O3Yy1apTeI7LxalkbOLyiIpEobzEqgplaJ65zxVq4nt__izYorfAYHhBtXEIaGQRIwjsyvdupbTNGJL9BpodACSwqp7gGhinaWB1TB6BbaLxidKdfU1TVeKRU28riZQXn996J5ZblA3Rp-JYiP7w6uqA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vhqdpCBnsqVhaV5OPMv4a2N2VkGtGP_SNLNaWDeRLztkNmzMry3Xv9pzsfpQRtqX2oDKMjX_6NlDONeRB6bGXPyVFtCzjVdMewVbPcOSwdGPtey3-vWvxRYR8z-_4GqdptoCKKHM8jGX7R_kcFh2irKkichE-elbOk1R5PK85p_JchJELZjUJI2rB1gZjXRdM-1gskUl-ng8AiGx1TGMjBRch7RYwDvvoxzGCadiuXaTgNbuK89dVQLzeO7HB2RjBQ9G9vZH6lGaeHrJj070DHYAyA0OiwV87Yo7siqIfMdhm1q2iWnEbVAqP12LkLsFLK63ddNWjJXkdTHy8IC9PA.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا، روز پنج‌شنبه در پیامی در شبکه ایکس نوشت که ایالات متحده در راستای افزایش فشار بر تهران و باز نگه داشتن تنگه هرمز «دسترسی هر دو شرکت هواپیمایی ایرانی به اماکن فرود، سوخت‌گیری و فروش بلیت را متوقف خواهد کرد»، اما جزئیات بیشتری ارائه نداد و به نام دو شرکت اشاره نکرد.
 @
@@ -293,9 +385,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 18:21:46
+###### 🔵 Updated at: 2026-05-29 21:27:46
 
-<img src="https://cdn1.telesco.pe/file/WRBUNinpC6rHAgZM0ERzT9u74yxeUERHPNWBH5r9BtJ5f8TBmx3JG6JUumLoOCkZE5JMhcFMqZntxzN5DE4oyPPBXyZqPF1LN5AuQSSA39BQcVb90fdNz3g0rVS6AWBuES6tss5b0c6yHmmkgXFsmncUOpDrd5nFRqC6nxnLpxx-0WtTfs7q8MBt61ImPAq7dOB_RbWBBS2J-pB_BGqY8GVZnafEkQg8e80SQfPTq4FgAk1U3OVTSRXQ5YXSHTk6MQG5UOF4_EfhsfYpxEDaFqOY75PFa5M_H7U1t-MDcv23nQYSM3YxQIRzxtbDiw1uMUeKBH-XntlCecZwWOXnSA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rUhLbro8KdTpLVmfwYCWTwk_6POPdF4LBNr-pVyoz5LmPypRImT216lF6HsRpw8Vqhqk2C4XItVYofmodtlpcvHYLV9t0l1ayO_y742Qc3ZDQDFSz3lkme67KezeEHa_YYiUHOb6DWCQ1EOzuROaWn3pzEJCg-2BLxvvgo101gpb148am5bnfpL1cpgA1B0_MTmx1rV2ssBdtsFeN-h5AwB3q2JftrUWIlMUsmDtxC0ahYQl1K0fdXQJgZm1cG-zQeDN70uxbRHnAvLp9dEkVISNEmJoRe4-q14MpYT4nCy0IK28mmPmQHUCI1yxtqpCG12nwlaGXiWbdVtppm2a3g.jpg" width="400"><br>
 
 وزارت خارجه کویت حملات اخیر موشکی و پهپادی رژیم ایران به خاک کویت را به عنوان یک تشدید تنش جدی و نقض آشکار حاکمیت و امنیت محکوم کرد.
 این وزارتخانه روز پنج‌شنبه اعلام کرد که تهران را کاملاً مسئول حملات اخیر می‌داند و حکومت ایران خواست فوراً و بدون قید و شرط حملات را متوقف کند.
@@ -324,59 +416,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75772)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 18:21:46
-
-<img src="https://cdn4.telesco.pe/file/Z1QNtFwBh-Razq-S7N1qU81u8Lg-zTOgYCAIrRCocyr4DXsBYetzulqor3LmMQkZhGY3vaNAQW1o9nJksAdLMKXGsc3K3f9O4-9xLDiZdE49G-kJZDVzAvJ55gXLVYM_4113hwEDZpZk35TBXCrNaN5RaYFqlblT8T8jccJa_90mn-qWDAJOYoilcPERqJwAJDbg5rOUHsAIf-oIbZm_pInJSc8U49CJ4nauaV0viKinrhP5wexLxMrDYo8pU7ntZHEHedGAd_r-DmhqkChvvqRowViTrczvJuRSmCW5_e1vaBhznBnJNV25jOSPaKAy6me2YSE9xbEOuzkGG5NVEQ.jpg" width="400"><br>
-
-رسانه‌های ایران پیامی منسوب به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، را خطاب به نمایندگان مجلس شورای اسلامی منتشر کردند که در آن می‌گوید «ایجاد تفرقه و تجزیه اجتماعی»، در کنار جنگ و فشار اقتصادی و محاصره، «طرح و نقشهٔ کور دشمن» است.
-مجتبی خامنه‌ای در این پیام که روز پنجشنبه هفتم خرداد منتشر شد، همچنین به تمام کسانی که آن‌ها را «جان‌فدایانی که دل‌شان برای اسلام و انقلاب یا استقلال و سربلندی ایران می‌تپد» نامیده، هشدار داد که «اختلافات غیرموجه و حتی موجه را به تنازع و تفرقه تبدیل نکنند».
-وزارت اطلاعات جمهوری اسلامی روز گذشته در بیانیه‌ای هشدار داد که بعد از جنگ اخیر، «برخی کمبودها و گرانی‌ها» در پی فشارهای اقتصادی آمریکا می‌تواند باعث بروز ناآرامی‌های تازه در ایران شود.
-وال‌استریت جورنال نیز روز پنجشنبه در گزارشی به نقل از تحلیلگران هشدار داد که ادامهٔ محاصرهٔ دریایی آمریکا علیه ایران که به کاهش ذخایر ارزی ایران انجامیده، می‌تواند احتمال بروز اعتراضات جدید در ایران را افزایش دهد.
-از زمان اعلام نام مجتبی خامنه‌ای، به عنوان سومین رهبر جمهوری اسلامی، تصویر یا صدایی از او منتشر نشده و رسانه‌های ایران فقط پیام‌های کتبی از او منتشر می‌کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75771)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 18:21:46
-
-<img src="https://cdn4.telesco.pe/file/i56q8fgaVbmaP5-TmI0neNk5VZ7mU9AVP-zxnF4FP__IJrW2tFf11bk38nVFP2BgC5a5TCEMXC7hJL3PbLN-If3BqKRAU57fi9ptOjNb9YhyaHiwE3w1DHrpTA-AqTJ1XxD0hxrFC744Ed1cy26yMIJdfV8WzGu2sZEVfbtVn0Rv--h3VMQ1x9U7Qb2FppGnMaZaxx387ImPGhgredQe034VRMNC1dy6eG30djjUwzrApjb2gjNfELMSY7jgu_TpsjXmVpLPs6DlVP6Oe7PsUpoyHSx4xDegM-0IAsvw0wl61Fp_6_zfqDTVm-v8oX52xn3n9U4dy8u-iPl3q0je7Q.jpg" width="400"><br>
-
-وزارت دادگستری آمریکا اعلام کرد «جاناتان لودهولت»، شهروند آمریکایی ساکن استاتن آیلند، به‌دلیل مشارکت در طرح «تعقیب و قتل» مسیح علی‌نژاد، فعال سیاسی ایرانی-آمریکایی، به ۱۰ سال زندان و سه سال آزادی تحت نظارت محکوم شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75770)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 18:21:46
-
-<img src="https://cdn1.telesco.pe/file/PA7iSJwZdE0QcdCsIQxqPY7xt8I-4h1ak6i90ixpAlDyMf4u-XXvJ6O1t8ozpIcCUkYRaGKY-QV8Y6KJ3KW6Up8A6MUzt4Cmo4Ilewj2pobQ85OjTIRKZ76fHvtrLZCyjMH3tc_-bGKO9-_Ybm10AgwB24CXwfffoF3PRb2g3BqCFcjjPWVMDuk6RwTRrutXxjXm7ymW7yI738_Csyv2LzAA2VYx0AbBJ2LJKy4Xn_bVY7mLG1-AxN5qgT9AC6NVEFAguOClNxKd6YDGLYhj9kslvoKqKgsfhu2e7a0oojLd0aEklaBbcIc0NblXuj-2JlJOSfZ2lcu-bp4AWQuHaA.jpg" width="400"><br>
-
-«محمدباقر قالیباف»، رییس مجلس شورای اسلامی، در پیامی به «غلامحسین محسنی اژه‌ای»، رییس قوه قضاییه نوشت: «قوه قضاییه زیر بمباران و تهدید دشمنان دست از صیانت از حقوق مردم و برخورد با قاتلان داخلی و خائنین به ملت نکشید و خوش درخشید.»
-این تمجید از عملکرد قوه قضاییه درحالی صورت گرفته که در طول روزهایی که از جنگ ایران با آمریکا و اسراییل می‌گذرد دستکم ۳۹زندانی سیاسی اعدام شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75769)
 
 ---
 
