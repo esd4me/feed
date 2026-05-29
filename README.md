@@ -3,7 +3,104 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
+
+
+
+این ویدیو با شرح عبور موشک‌های تاماهاک در مرز عراق و ایران در شبکه‌های اجتماعی و چند رسانه منتشر شده و گفته می‌شود مربوط به روزهای نخست جنگ است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75788)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 18:21:46
+
+
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، روز پنجشنبه هفتم خرداد ماه اعلام کرد عمان پس از دریافت هشدار واشنگتن درباره پیامدهای احتمالی مشارکت در طرح دریافت عوارض از کشتی‌های عبوری از تنگه هرمز، به آمریکا اطمینان داده است که برنامه‌ای برای اجرای چنین طرحی ندارد.
+بسنت روز پنجشنبه در نشست خبری کاخ سفید گفت که صبح همان روز با سفیر عمان گفتگو کرده و از او شنیده است که مسقط هیچ برنامه‌ای برای دریافت عوارض در تنگه هرمز ندارد.
+او افزود: «به او گفتم این موضوع از اساس غیرقابل قبول است و او نیز نمی‌خواهد افراد عمانی یا موسسات مالی عمانی را در معرض خطر تحریم قرار دهد.»
+بسنت ساعاتی پیش‌تر در پیامی در شبکه اجتماعی ایکس هشدار داده بود که وزارت خزانه‌داری آمریکا هر فرد یا نهادی را که به‌صورت مستقیم یا غیرمستقیم در تسهیل دریافت عوارض در تنگه هرمز نقش داشته باشد، هدف تحریم قرار خواهد داد. او تصریح کرده بود که هر شریک احتمالی این طرح نیز با مجازات و تحریم روبه‌رو خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75787)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 18:21:46
+
+<img src="https://cdn4.telesco.pe/file/Qe4wjsiq0cCugMCblAjlH_FrF5_RSUj89AomfXH8pahC6QrvXsNFs5-nErt8wAMjZL2hmeBU9DTho9ivBFgffglgVfxfiOM1OkFcNIPgBJ-Nnl2bXYyDhABR1ZaO9KbbPB85babclMOJxOlvWMwnPq1rEV3mn4N94ls88FgVcO4i7GOP-dvnfVsMvSULqLQgrHDVrCckCNVfwRkfl9CH0FvDMknZENqx0cwPBoVU9rtQP3dSmWFpKtHW0qvX7ZKFmKpNVstgpUQHBiEJpgNRs3M2fpa0tag-wEjjADouK45rUtgaZsydKaDGcbnGX5n-fY2Y9L6co_ElIvIgntrX6Q.jpg" width="400"><br>
+
+شبکه العربیه به نقل از منابع آگاه گزارش داد جمهوری اسلامی می‌خواهد اورانیوم غنی‌سازی‌شده خود را به چین منتقل کند، مشروط بر آن‌که چین تضمین دهد این مواد را به آمریکا تحویل نخواهد داد.
+به گفته این منابع، بسیاری از نکات مرتبط با برنامه هسته‌ای جمهوری اسلامی در مذاکرات جاری حل‌وفصل شده است.
+بر اساس این گزارش، جمهوری اسلامی با نظارت بین‌المللی بر تاسیسات هسته‌ای خود برای جلوگیری از تعطیل‌شدن آن‌ها موافقت کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75786)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 18:21:46
+
+<img src="https://cdn1.telesco.pe/file/Y_1cF8Y0KW7pzZySPo0bVYduuV4zJlRxafABBSnhIlhgibVn2TdKKBKVtK0Qh-5WkxNa3NlKxL6MJoJSv0U98PzIvI3_tyfBkjzGiMlRwl8eDfjDZSCfuMxS_eTgI9U5AiIVo0KTKnh41dNyoxtRkZVtUjQt_OOaMGIV78QhTGrc2nz49k61gj07PkUZHYkriuQv2y8e9709JV-tbDiMJsAUcesneX1gyRLQvaUQ-j9raqvnLqIJPmH_WULUzlycjYemXCbkmffETbKy56yXwc5188jRvpEYaEncU_2U1QJSHjhHWbQfdNw3Lk2dOWX0vpN6ELcE-Bf_EJXg5fIXsg.jpg" width="400"><br>
+
+محمدباقر قالیباف، مذاکره‌کننده ارشد جمهوری اسلامی با آمریکا، روز جمعه تهدید کرد که تهران امتیازات مورد نظر خود در توافق پایان دادن به جنگ را با «موشک» می‌گیرد و پیش از اقدام واشینگتن درباره این توافق اقدامی نخواهد کرد.
+او در شبکه ایکس همچنین نوشت: «هیچ اعتمادی به تضمین‌ها و حرف‌ها نداریم، فقط رفتارها معیار است.»
+این موضع‌گیری یک روز پس از آن انجام شد که چند رسانه غربی خبر دادند آمریکا و ایران به تفاهمی برای تمدید آتش‌بس و رفع محدودیت عبور و مرور کشتی‌ها در تنگه هرمز رسیده‌اند، اما این توافق منتظر تصمیم و امضای نهایی دونالد ترامپ، رئیس‌جمهور ایالات متحده است.
+قالیباف در پیام خود اعلام کرده که «اقدامی پیش از اقدام طرف مقابل انجام نخواهد شد».
+از سوی دیگر، رسانه‌های نزدیک به سپاه پاسداران می‌گویند گزارش‌ها درباره توافق تهران و واشنگتن صحیح نیست. خبرگزاری تسنیم در این مورد به نقل از یک «منبع مطلع» نوشت: «متن توافق تا این لحظه جمع‌بندی نهایی نشده است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75785)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 18:21:46
+
+<img src="https://cdn4.telesco.pe/file/sD5KlbDTZ4IY0lI6HQqtMXfgLksjv4NLHDx-kGAw9Hv5J4qVZc5TVgROmmrpcD2gezlesrF4nIPKtuv1fUXOEDW6NYS3-fAb2QPhbQ1Ozq1xM9vnQb5bI3ISxBZ1Igz-UD2H2_uitvcEA9afyxPRVgXeQx9cOQeKM_qCoex2hT1LC8AjYUXv-sBJRFN8g6fUk9O-VcL6u5kTSfXIWRNgBFJw_fBWgRghfeQoclcA_QvOj7hUtIBc3EBsCy-XFpPB10n7QhvPh-c8DBwjmrDrNZaVlaTO3qBqfQzE32u6dVGEOrFnR4mXDBO_z1MucVw2IlSCvDAjI8t_yP2jplu2xw.jpg" width="400"><br>
+
+‏
+🔴
+بنیاد عبدالرحمن برومند از ابتدای سال جاری تاکنون، اجرای ۶۶۰ مورد اعدام توسط جمهوری اسلامی را مستند کرده است. با این حال، به دلیل ماهیت پنهان‌کاری و غیرشفاف بودن سیستم قضایی ایران، آمار واقعی به احتمال زیاد بسیار بیشتر از این رقم است.
+‏
+🔸
+از زمان آغاز جنگ، آمار اعدام معترضان و افرادی که به جاسوسی و اتهامات مشابه علیه امنیت ملی متهم شده‌اند، با سرعتی نگران‌کننده افزایش یافته است. «اعترافات اجباری»  قربانیان، اصلی‌ترین «مدرک» مورد استفاده در این احکام مرگبار بوده است.
+‏
+🔸
+این اعترافات در شرایطی کاملا مبهم و تحت فشارهای شدید جسمی و روحی اخذ می‌شوند. جمهوری اسلامی به طور مستمر این اعترافات اجباری را در رسانه‌های دولتی پخش می‌کند تا از آن به عنوان ابزاری برای توجیه اعدام‌ها و سرکوب مخالفت‌های عمومی استفاده کند.
+‏⁧
+#نه_به_اعدام
+⁩
+@IranRights
+
+[View Post](https://t.me/VahidOnline/75784)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn4.telesco.pe/file/DPxqb2ejKHZFWdX0znKaahNrkZnRgfzSVHm8EHEbf7_rZTdY-hbp_eFdteo6D31op1O4jyD6Wv7ZudSQurGWbIFx29tzNQ_MNyHSK8N7ktEJuUpCqsOq4poWB7CODlvgCVF6vPzl5EYnK8b6XZY6187QKXFHCQkEPCwPd2smaFqhQeK6f0Ki4IHZG8_BCNNdkH9M-nWPXPsxUcnEOhszrOKqHxJn8OIBdFkTB7J33IEh2BWfS6VDDURhfwPDbbZJiWr-vatR9rPOFCppFr75rmoodY5RuilVv5AXoJF2FESytTOTMMMTrQ3JlXa-7T5pFT7b_RetTAU99b1ZLnj1Eg.jpg" width="400"><br>
 
@@ -22,7 +119,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 
 
@@ -43,7 +140,7 @@ FoxNews
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn4.telesco.pe/file/XP_5iSpGknZxazjKvvvLwW0vOpNAPt9y_kzpAFqA2TQQ5G5PfG4IBDcYNsN7Y5HnoDNnkloiG1-OnCuAhw3xLgDS66bxprTOe-Zt-UnBEjJ199O2LuEr5RECJw56OjyxCNbPgGlBnc2hvRbLleahCfqvyhMEdMjG4AH_Yy-o22xAqOO1RbDxJkCc8y23_A9oEHPN3DnzbdzhoPyc13UAZB4S14M9_OkxdpvlSFd7mnnyDZBQO3UJXQY640CGHiz0CuqdTkI_BeYglBVA3uRVsLImuhCPRNEjgprISEfc3KkuK8ln62BqtoMSQvqIz1K6MYFGjoymGt2A_Vo-i2drBw.jpg" width="400"><br>
 
@@ -64,7 +161,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn1.telesco.pe/file/Z4q0I53w7bYAIU_Dda-uNkJRuYiZC9xkHqrYcM1IxWUQGHll-VrZSrvMfLt6M-3CPfxNx86pWzpXPQ2emjo0r0u4743v0dFol2UoHXzrwQKBoKM8Qm2stMgPfoN1I0BjPnfui_ZIkPqKVH0p8sSgy4SPXu5y6zzdiG6ToR5HDcX3NgwaCPdnMo0bMahbZQfSXgHQKLBDNy-6Lb4eixrY-9Hy3Hp27P2XFpOTTBFgWnnSM63SWGI-CpEYGKl7PvNGJWBM7TqMNq__shxgK1nt5oEZMmtfcNILExwCRMB0OLbZgErXa8fb8rtIOpWIp1Z_0rjgdOsuuiGogMaGlQgdLg.jpg" width="400"><br>
 
@@ -108,7 +205,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn4.telesco.pe/file/Q_yqJTjWq6RGm1vIi_VkjEyKaBmeHFECf3yIjeN7HHI5JH3MApSUOTVRgOF4EIfm45E08EElYh56T-qXYEqDkjRK7KejWQjxBxMT5jVGRddPCymZcza-QAMtZbhg4S2Wsr1NtTOpd4SAM50eOilEatP7ukI49FjKhEglTTgyN7lc7yGJ90g6Y3-w0d2RtznlbPINEbSfzGYbWOEfDJcqkdNBeYtereWi0d4FSVO4QPJ5GirgqZ73whYFaIH5uTDPx3oIFqwdaRDYNtvX_NVO9CGV26NJpVNx2zC877X23wP859GnfKa942_WlbLFCk2ZzNBLgewQJDaP7noYV_nimg.jpg" width="400"><br>
 
@@ -126,7 +223,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn1.telesco.pe/file/a7yMLy3aBJccFmyJ4Mi_qrKXAUW96DndYDhbem3DTsNvalgRpc8CwUx4hqyayOsw4VV7chy-1_Zy9g1_-SNqCws6EpVYsbXEL6u04PVC6FXZDwWuWfRLlDLRW_TgalxX6xK_6RsRfJrHGPVBq9IWnDliyYfUN3TO-w-BiUWqYmuO1GJD3Y3oBAD6Rrj5m6OKDtH8-DJsYuOB8cWd00VLce1X0nR3y1F0PE0MdUXP5Z83HlxESzjXoPPYrVH0XBxuve8teL0oq6i_BNu2yX1X9_Hu2urt4Yl9UIJ0Ak2qL0lc9tvwJUD3t1qD-h1KpADcnFq70EtGUoBHIrODWDSJZA.jpg" width="400"><br>
 
@@ -150,7 +247,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn1.telesco.pe/file/La7jo8zpY22FTs_GNFMp_m3Oqs9W5zjH5E-Nb1JWIUzhB5-gFQPkn639avq8a_IrG_ganCbEYlD_cUH-PCP_mx_zcwtgll4LBhFNvEBuIMRdQ-KFxprPeg7K5MyGxdVUlFLPWGuK8xeGhF8r4MqtbTVk6ROvJUwBJPKiJTsEolvsfKcuP2YahhnCE6hijgrnDo2oWJrvPQRkz_FcaUOCJvy74YfrqcIJsSrkAH55XH8YD-Ui8q6dJwboBwdtbUmHQKnr9PYeeCjGxa_9QNJexBFWUtKk51rewyXC61Dhk6ePRfsfPI4cUBO6DkPMNG8TgWARqfY-SeiI2eClbzzJ9g.jpg" width="400"><br>
 
@@ -171,7 +268,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn1.telesco.pe/file/krrn7olbm3BRCfG9y3gf2IjflqDMwH62zCsl6S5Spkqj06VKY0oH0YbyX32lFw6AKnaf7Dr15FzVInuV4kHYlrKugrkFvZdRJwk1whkLzg1nwNi1MEBSF_MmER9ZrvjlArz7TqyBa-_ln81TEvgA_-1MufyxTkZzigYTuG2N13CuTMG9bAuQ59QyZr_r15O3Yy1apTeI7LxalkbOLyiIpEobzEqgplaJ65zxVq4nt__izYorfAYHhBtXEIaGQRIwjsyvdupbTNGJL9BpodACSwqp7gGhinaWB1TB6BbaLxidKdfU1TVeKRU28riZQXn996J5ZblA3Rp-JYiP7w6uqA.jpg" width="400"><br>
 
@@ -196,7 +293,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn1.telesco.pe/file/WRBUNinpC6rHAgZM0ERzT9u74yxeUERHPNWBH5r9BtJ5f8TBmx3JG6JUumLoOCkZE5JMhcFMqZntxzN5DE4oyPPBXyZqPF1LN5AuQSSA39BQcVb90fdNz3g0rVS6AWBuES6tss5b0c6yHmmkgXFsmncUOpDrd5nFRqC6nxnLpxx-0WtTfs7q8MBt61ImPAq7dOB_RbWBBS2J-pB_BGqY8GVZnafEkQg8e80SQfPTq4FgAk1U3OVTSRXQ5YXSHTk6MQG5UOF4_EfhsfYpxEDaFqOY75PFa5M_H7U1t-MDcv23nQYSM3YxQIRzxtbDiw1uMUeKBH-XntlCecZwWOXnSA.jpg" width="400"><br>
 
@@ -232,7 +329,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn4.telesco.pe/file/Z1QNtFwBh-Razq-S7N1qU81u8Lg-zTOgYCAIrRCocyr4DXsBYetzulqor3LmMQkZhGY3vaNAQW1o9nJksAdLMKXGsc3K3f9O4-9xLDiZdE49G-kJZDVzAvJ55gXLVYM_4113hwEDZpZk35TBXCrNaN5RaYFqlblT8T8jccJa_90mn-qWDAJOYoilcPERqJwAJDbg5rOUHsAIf-oIbZm_pInJSc8U49CJ4nauaV0viKinrhP5wexLxMrDYo8pU7ntZHEHedGAd_r-DmhqkChvvqRowViTrczvJuRSmCW5_e1vaBhznBnJNV25jOSPaKAy6me2YSE9xbEOuzkGG5NVEQ.jpg" width="400"><br>
 
@@ -252,7 +349,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn4.telesco.pe/file/i56q8fgaVbmaP5-TmI0neNk5VZ7mU9AVP-zxnF4FP__IJrW2tFf11bk38nVFP2BgC5a5TCEMXC7hJL3PbLN-If3BqKRAU57fi9ptOjNb9YhyaHiwE3w1DHrpTA-AqTJ1XxD0hxrFC744Ed1cy26yMIJdfV8WzGu2sZEVfbtVn0Rv--h3VMQ1x9U7Qb2FppGnMaZaxx387ImPGhgredQe034VRMNC1dy6eG30djjUwzrApjb2gjNfELMSY7jgu_TpsjXmVpLPs6DlVP6Oe7PsUpoyHSx4xDegM-0IAsvw0wl61Fp_6_zfqDTVm-v8oX52xn3n9U4dy8u-iPl3q0je7Q.jpg" width="400"><br>
 
@@ -268,7 +365,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-29 15:25:18
+###### 🔵 Updated at: 2026-05-29 18:21:46
 
 <img src="https://cdn1.telesco.pe/file/PA7iSJwZdE0QcdCsIQxqPY7xt8I-4h1ak6i90ixpAlDyMf4u-XXvJ6O1t8ozpIcCUkYRaGKY-QV8Y6KJ3KW6Up8A6MUzt4Cmo4Ilewj2pobQ85OjTIRKZ76fHvtrLZCyjMH3tc_-bGKO9-_Ybm10AgwB24CXwfffoF3PRb2g3BqCFcjjPWVMDuk6RwTRrutXxjXm7ymW7yI738_Csyv2LzAA2VYx0AbBJ2LJKy4Xn_bVY7mLG1-AxN5qgT9AC6NVEFAguOClNxKd6YDGLYhj9kslvoKqKgsfhu2e7a0oojLd0aEklaBbcIc0NblXuj-2JlJOSfZ2lcu-bp4AWQuHaA.jpg" width="400"><br>
 
@@ -280,81 +377,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75769)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 15:25:18
-
-<img src="https://cdn4.telesco.pe/file/ZCW4dWfrCO78WQelVFFmzCOTljggAzHBKw1tKBYpPhG6pED7xmd6qATlnGCNX5Uql70tNZnf9Mn1t2anlJtzDhcVHrW-M8mAMGgbLkLblRQoqubsclk-glYwScIlZ_nPXGynQNCdAXe_VdpjiADKcFebDOluxEJpcUIi8Lq4MDje4aBxAdAHhWt5j-ED48g6G-mPbFvh5H_miHWF-kbTVhFRuHYaVZBZBiwNWPUjxmtfmYMP1X9kxkVGcUnFR4OFFZYxgaD3eUfBH28TTXEPi-14Orllte_DxyFc0bRmB_UKQ3dgLXBWBW0G_BmEX16ZWMJfFwoqs1oPfyHpVKDD6Q.jpg" width="400"><br>
-
-نت‌بلاکس، نهاد ناظر بر اختلالات اینترنتی، اعلام کرد که علیرغم اینکه دسترسی به شبکه جهانی تا حد زیادی در ایران بازگشته است، اما شاخص‌ها نشان می‌دهند که کاربران همچنان با فیلترینگ شدید مواجه هستند.
-نت‌بلاکس، این فیلترینگ شدید را مشابه دوره مابین اعتراضات سراسری دی ماه و آغاز عملیات نظامی علیه جمهوری اسلامی، حدفاصل دی ماه تا اسفند ۱۴۰۴ توصیف کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75768)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 15:25:18
-
-<img src="https://cdn1.telesco.pe/file/HLzROFGv8YcqwCqr5aFhUqGXVzK-jee9InL6za30zhXK4SiEVXKxpF5fVVRjEfXjALZL5SZYKLAIRC6rhvCdH0ZticraL_4AxfDBUQ3KWmX8AKy-MGb4amhnmacDki6RGc6ZHWLEwd20qs8wzmk3Eom6gc3Ii5q82DxIWQJi5-3cYUytsuAPsAvKmfEtUgdKJoYXxJkZpN1wZGoBG_tY_IlQgeiTlLVQ5Q0r4C1YhUuT3gqSVCS5mqHmDQZ8YSqmC2FgCnOiyeyvdPQkippv4vwxp-dWPMVC4oiKrtbRDxTOWBacURPd0sB6uQk-kuAzqZaqhZmP2TQHxWJzwReOiA.jpg" width="400"><br>
-
-⚠️
-تصاویر پیکرهای بی‌جان و شیون مادر  تصاویر دریافتی از: 'بیمارستان الغدیر #تهران، بامداد جمعه ۱۹ دی' Vahid #بیمارسان_الغدیر
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75767)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 15:25:18
-
-
-
-ویدیوی دریافتی: 'رد موشک شلیک شده در آسمان
-#امیدیه
-خوزستان، پنج‌شنبه ۷ خرداد'
-Vahid
-☄️
-سپاه اعلام کرد در واکنش به حمله‌های پرتابه‌های هوایی آمریکا در سحرگاه پنج‌شنبه به نقطه‌ای در حاشیه فرودگاه بندرعباس، یک پایگاه هوایی آمریکا را که مبدا این حملات بود در ساعت ۴:۵۰ هدف قرار داده است.
-سپاه تاکید کرد در صورت تکرار حمله‌های آمریکا، پاسخ جمهوری اسلامی «قاطع‌تر» خواهد بود.
-@
-VahidOOnLine
-رسانه‌هایی که بیانیه سپاه رو نقل کردند، از جمله خبرگزاری رسمی جمهوری اسلامی، ایرنا، نوشتند "ساعت ۴/۵۰" حمله کردند که یعنی چهار و نیم ولی با توجه به اینکه با دو رقم اعشار نوشتند احتمالا منظورشون چهار و پنجاه دقیقه بوده.
-اما این هم عجیبه چون آژیر در کویت و پیام‌ها از امیدیه مربوط به ساعت ۵:۵۰ بودند!
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75766)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-29 15:25:18
-
-<img src="https://cdn1.telesco.pe/file/uBh1kXMtga0rwYHUM3Wf8rorXE01GJ3N6RIUpn1rZgvA2fVur1VUNwIQSXaBd3rxFc26lNMDvYhO_HNvCVJvBNkBCtvm5pMg4MTTHTncajmkYCQr2peyjPuBbVnjzIy3bbtQj2XWwqgutLIy3o3_st66Dw95r7LeUJ7rNvoewT00BMI38m_VIh_r_HF4kj2gdycIUz5XnftuL1qMkdEFNC6gmle03YC0dRiki4Z0pPP3O7jGnnPYmqjhe_kOv8dJAejUSWJdWvNPeJN9glGpa2U-mjfGJBSP6wu-L6_7y3IGTBhdJrqNsuEF6BA8AWNOG4gLC1itRnV6hZQLB6PfZQ.jpg" width="400"><br>
-
-از
-#امیدیه
-در خوزستان پیام‌ها و تصاویری دریافت می‌کنم  که میگن حدود ساعت ۵:۵۰ موشکی شلیک شده و سمت تونل امیدیه میانکوه صدای انفجاری شنیده شده.
-یکی نوشته لانچر هدف گرفته شده.
-دقیقا میشه هم‌زمان با
-شنیده شدن آژیر در کویت
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75763)
 
 ---
 
