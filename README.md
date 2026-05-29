@@ -3,7 +3,25 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
+
+
+
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، بامداد شنبه ۹ خرداد با انتشار تصاویری مدعی شد بقایای یک پهپاد متعلق به آمریکا و اسرائیل که در حوالی قشم هدف قرار گرفته، کشف شده است.
+تسنیم بیان کرد این پهپاد با واکنش پدافند هوایی ارتش هدف قرار گرفت و منهدم شد.
+پیش از این خبرگزاری مهر به نقل از منابع محلی گزارش داد یک ریزپرنده در حوالی قشم از سوی پدافند هوایی هدف قرار گرفته و منهدم شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75798)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn1.telesco.pe/file/R9AG5ERQEQMucFD98J4DqJomVe5DLWYZtHAcNPPBIAoLJgwtWsgHMtQi4y4PcsmWsJ7GWdUdpSBmQ6A5Lc6Gre7lWvft2x2hDQmg5T3lVTa1mvhIFCjTtH0pGzXwsAlv9r3hjd7ZVUWRrwHYYvHR1vC24GQwjRDu-E815EWFinr05byWDHspr_U_xSwQ3VBebBOKKUFVGYPgvOMutfr6Bq5czHrdv5frQe4XvcajaZ9ptTcOgnxEINLTnDnhPLKsV944v2tBS8erDr4ygm8Y8FZ_fyziQ2Vrs-9RP1MIdJhRCJy8VvxWKsvTpg2Lm3wqmvgb4iIeGfbvoJYsVJA3Bg.jpg" width="400"><br>
 
@@ -21,7 +39,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 
 
@@ -39,7 +57,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn1.telesco.pe/file/A1DKLT3cka7rmvW3v5-gZX5R4xJQwZ4ij5CoIioWHt-jzXDaOxsoloM_7cpWh7ynhECXgoj776Q1Cc5d7FstI0ECjGrNGKBHm1sqL5p1BbmbV1wAjfeEh0xXpGHiwRVd_E7cRgW5PceT_PjYFTxk7tptAaOS4y2axbi8e-lyPokeUJ9lCHkOfuZ93RMvn7954XKWNdi3UoeEMF9Vewlj7EmOaNkzfUa_lsKfLN6tdBV-vTsKmQ26B7puu9Iou3ORkeWEKpFfc8_VQ5bPL65t4YynFWhX1Od-DQLR0jtsu_xjttMS_2E6Nq_NOZoV5r3q4Ic-uAZ7pECl9HBx4WANtQ.jpg" width="400"><br>
 
@@ -59,7 +77,7 @@ sky
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn4.telesco.pe/file/gDQpmh-f_xnZ9weP5asfzBYQbUYAxkKxZ5XaNdMCL73MFCFI2Cx_XK7Y4QOvxYiOpA9pMM9kzH174etF8p5pDhEPgdkopBvW0IwnU_v_nL0tAo1fn_PIJdBAAeyHNDTVhcQdFzURLtNMCh7TFq31P63cGg2qt3YRGcH_Y55vPsqM858IzgYndPs6sd_3W2HBW7SQ7fBo_ypJoacpLfB24wUjg8ogRNkXUygB_eHQ0qDPfv8-vNmbNh-vnOKH60NxTyV23xP4hfneOkKuZ-2nvJT9NMfswPVxdwRK7wz8fpNn1u5srr5C3B0BYL3o90EPs6l65ioTmweIse4pod0fPA.jpg" width="400"><br>
 
@@ -79,7 +97,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 
 
@@ -106,7 +124,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn1.telesco.pe/file/EgceUAvQmS3Q1l7y7BtvTjiYmWC3fPQ7b3Ime48ePr2xi7k6PrN5zlelWxq5X7464p5gPdkvEkDT_QCgVQCFZkTGbermigMI-3GzN6W9vG0Rp0W0QeWFBi5l_iDP_gBXUarTCSk4FPPzzUmEV0YpAnFs3EYQXzgNoQAjNjq3GvxVvxeKo7oeLuV30t6ZbNHxqJuWuQGZcRHrEP_kCGOkXFRpiGGQf_cLmKB0hwkjrKDs0uMsubfStcWTDTrgLBQaP0dIQoDGBzAdtGiAYFX92_y4HZ7-YUryWS_YuGo8kk61BLi1GIOa7v2p4c6EDXnm25JApPaIdbvvGWZ-1kymIA.jpg" width="400"><br>
 
@@ -129,7 +147,7 @@ NewtGingrich
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn4.telesco.pe/file/Gki71nUc_XcQ8EZszEXElozL6GLmZEM5f0_pq0PwAxEmBfE35pY0qoIN7V1gJaPmU7u_agomUbLjqdS0hJhPxVZKEHbRqSfW66Xg_9TgQ40OY_B7E11c3ukkBXxGaylj-__BvWP9h_M6492JRNVhushvrIPGGvjhCgPu8xG8Ddx7KsLZZf7Jzw4r46dWAPe_Ms6H1Fn9b_W2vv411qWVsFjd8vaMbYluIHqLS6LsTe9LmeLgT1Uj2Go60QKQ7uL7ALa0eQzg78H7fEfDZitdaA5FxgrCEKi4qcTYOScKsuC_CMVd84CZTD6SujwgsTTkyiLtUmaY6vkElQkcUDLpFA.jpg" width="400"><br>
 
@@ -146,7 +164,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn1.telesco.pe/file/Ia82aWDpNR0pkdD6JPDJoh2gbH3Luggd_0i_Q2jzAGI_BaTs6lRAZqvTOnonqCq0Wkr8QbjqXkI3-TVZhaSGu7OsVqSNSep8DFmVL9JAuQIJEosHRSyqtQ5gE8rJ55jRNnbvunXQteiq3LL7jx6uGL-cl8FNJv160-eQVob5tRPPguRbiVB4kqNOd57ArnAjOGkALPgkmxyRhyszeKR0PIYpYXPMp3IOnNzzZXAxgTrl_ih85gM_zl8ZdrqlQEzpKDQixO30CsPfJhFbAuY5u1jIYAjgc7rnVbCu5wc-kcTDm5quABOjEHjCApksPIpbAIY1UoLZxdjXTxAH0dX53g.jpg" width="400"><br>
 
@@ -168,7 +186,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn1.telesco.pe/file/dBUhUaPd0jjGtVsFOfuCrCaOfBULvOncVHHBbn_9lYr4kkF1iO7aXV-T7OTVG0a9rn2xW1wQ2WB3OC47os-A-b6J49H__6J0gPAoGH-lm-u_tA-Q7swr9OvsBYCjAaXzbqwBlxemvv2ahsLcJ0sb3_9QeRaNnPnQpeptGiE9aKHdr8GBNysRLi8kwlJGAW-8wAtPX-1y3svWDbAH5EjE9akqoquP9vDIc430LBiEi6_4_f5ndz2dDJbKStf3LOkPav4FZyPITvtDUdIrdsmmhWsmY_oico5IPk9K6Qt0ugS4CY0m1-Pf4mmMuyx3vbK5_nARt0P25L_DSTabtWsaAg.jpg" width="400"><br>
 
@@ -200,7 +218,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 
 
@@ -216,7 +234,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 
 
@@ -235,7 +253,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn4.telesco.pe/file/Qe4wjsiq0cCugMCblAjlH_FrF5_RSUj89AomfXH8pahC6QrvXsNFs5-nErt8wAMjZL2hmeBU9DTho9ivBFgffglgVfxfiOM1OkFcNIPgBJ-Nnl2bXYyDhABR1ZaO9KbbPB85babclMOJxOlvWMwnPq1rEV3mn4N94ls88FgVcO4i7GOP-dvnfVsMvSULqLQgrHDVrCckCNVfwRkfl9CH0FvDMknZENqx0cwPBoVU9rtQP3dSmWFpKtHW0qvX7ZKFmKpNVstgpUQHBiEJpgNRs3M2fpa0tag-wEjjADouK45rUtgaZsydKaDGcbnGX5n-fY2Y9L6co_ElIvIgntrX6Q.jpg" width="400"><br>
 
@@ -253,7 +271,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn1.telesco.pe/file/Y_1cF8Y0KW7pzZySPo0bVYduuV4zJlRxafABBSnhIlhgibVn2TdKKBKVtK0Qh-5WkxNa3NlKxL6MJoJSv0U98PzIvI3_tyfBkjzGiMlRwl8eDfjDZSCfuMxS_eTgI9U5AiIVo0KTKnh41dNyoxtRkZVtUjQt_OOaMGIV78QhTGrc2nz49k61gj07PkUZHYkriuQv2y8e9709JV-tbDiMJsAUcesneX1gyRLQvaUQ-j9raqvnLqIJPmH_WULUzlycjYemXCbkmffETbKy56yXwc5188jRvpEYaEncU_2U1QJSHjhHWbQfdNw3Lk2dOWX0vpN6ELcE-Bf_EJXg5fIXsg.jpg" width="400"><br>
 
@@ -273,7 +291,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn4.telesco.pe/file/sD5KlbDTZ4IY0lI6HQqtMXfgLksjv4NLHDx-kGAw9Hv5J4qVZc5TVgROmmrpcD2gezlesrF4nIPKtuv1fUXOEDW6NYS3-fAb2QPhbQ1Ozq1xM9vnQb5bI3ISxBZ1Igz-UD2H2_uitvcEA9afyxPRVgXeQx9cOQeKM_qCoex2hT1LC8AjYUXv-sBJRFN8g6fUk9O-VcL6u5kTSfXIWRNgBFJw_fBWgRghfeQoclcA_QvOj7hUtIBc3EBsCy-XFpPB10n7QhvPh-c8DBwjmrDrNZaVlaTO3qBqfQzE32u6dVGEOrFnR4mXDBO_z1MucVw2IlSCvDAjI8t_yP2jplu2xw.jpg" width="400"><br>
 
@@ -297,9 +315,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
-<img src="https://cdn4.telesco.pe/file/DPxqb2ejKHZFWdX0znKaahNrkZnRgfzSVHm8EHEbf7_rZTdY-hbp_eFdteo6D31op1O4jyD6Wv7ZudSQurGWbIFx29tzNQ_MNyHSK8N7ktEJuUpCqsOq4poWB7CODlvgCVF6vPzl5EYnK8b6XZY6187QKXFHCQkEPCwPd2smaFqhQeK6f0Ki4IHZG8_BCNNdkH9M-nWPXPsxUcnEOhszrOKqHxJn8OIBdFkTB7J33IEh2BWfS6VDDURhfwPDbbZJiWr-vatR9rPOFCppFr75rmoodY5RuilVv5AXoJF2FESytTOTMMMTrQ3JlXa-7T5pFT7b_RetTAU99b1ZLnj1Eg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OoICUO11A_uxVD7J54vKsD8yqJJ_bu3byHOoJRbhBozMJ4IIz7tnMcR1GK6yGblPfzbhycdVOynu9n7WBn5PDwoG-rrKLnRb8mnXtBELiY9lThQjSsJ7ls8sAiycGB69WnDye9fayL396bU1Ua5NWYYvjBXvljtODkY521frx0lwSwB4E33ObbG6n39k2ArDi_42ikm8iVIvEiXy2x39fLPUJSiN6_RCj-fO1wm3FeKIXFuMCa6iOSOSBTlMlzHJfRl-IvbQqMzeeYZKOMW_78pXPixkTnlEbX8olELOuQZ0-D2P7zo4mUlH_9S5eeFOgQnAYoaA6mnk1_TV-r5BwQ.jpg" width="400"><br>
 
 ‌ ‌ ‌ ‌
 شیخ تمیم بن حمد آل ثانی، امیر قطر، در تماسی تلفنی با دونالد ترامپ، رئیس جمهور آمریکا، در مورد تحولات منطقه‌ای گفتگو کرد.
@@ -316,7 +334,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 
 
@@ -337,7 +355,7 @@ FoxNews
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn4.telesco.pe/file/Y70Ssyvrqu1yggJkSBu5dHcPX7oYYA-vNs1eeevVtQefu0G1y2T2waZrG_wr7JU80idITsIK2-finFrGhE-tiRyXIWsyY_58NMxxuK69_44FLr5GlxuaXT4k7jVLaQIBFM4BN3lTQ-h_pkDVhnxPTuDXTvBhpRRK8aQZ2ds0Z9wbMez2avFs0mWvaERDSVo-JS8VBCwqzacUBsFuIAgUgMFqLyxRi_fUtL1kMWMNlfszToBn18ZGuqD5TeFZbxzTpnYbj8YumDN4aGpVr0tSc4GH5hQNf9pVV45nx78DvaCKZHOryuTQwo2RGykMZBTvfLgs8ueqm-GXM4Fz00XtcA.jpg" width="400"><br>
 
@@ -358,9 +376,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
-<img src="https://cdn1.telesco.pe/file/Z4q0I53w7bYAIU_Dda-uNkJRuYiZC9xkHqrYcM1IxWUQGHll-VrZSrvMfLt6M-3CPfxNx86pWzpXPQ2emjo0r0u4743v0dFol2UoHXzrwQKBoKM8Qm2stMgPfoN1I0BjPnfui_ZIkPqKVH0p8sSgy4SPXu5y6zzdiG6ToR5HDcX3NgwaCPdnMo0bMahbZQfSXgHQKLBDNy-6Lb4eixrY-9Hy3Hp27P2XFpOTTBFgWnnSM63SWGI-CpEYGKl7PvNGJWBM7TqMNq__shxgK1nt5oEZMmtfcNILExwCRMB0OLbZgErXa8fb8rtIOpWIp1Z_0rjgdOsuuiGogMaGlQgdLg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Rf5jD_zBZm_23CCnpV4KN27NG60A9p50hF01cYrDZ9O_q8Shb3HlI4ukIEe8rDjYIsFTBgRtWN39dG1nlsOm4x6f4YVWYagssT2gJd3MHrQ0fVRlmYsBBklLvoWRDD_OKxuhEdP1ANGIFYdlTz2rMeV3O7ghDzvww2nCeurUNRryfQRMpG1F3h9-5D-IavXhDE_IpQ-9vs8FqyiXZ6uhM-NNT_eTpptBUpB_2qeeoLK5Rps5GK0MQ_HHeNUIBuyU0fvmb_z3_cs6c5yMmsWia2z4bWL40wYiTo436c2qkQFJRMqHfWaAc-iEU4i0bim8HHU0FqozAiUVPiqmEx2JVg.jpg" width="400"><br>
 
 ☄️
 #جم
@@ -402,7 +420,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 01:42:52
+###### 🔵 Updated at: 2026-05-30 03:13:46
 
 <img src="https://cdn4.telesco.pe/file/vHTrEZ-czFdQd4bhxUFSuUk2aKlVd-zcGB2hW-zUym-YGhtwT5-TpFlVZmFe0jIyLuqbBc7a7xz3av0kk-wdOhXX_NGwhz0gUB60epioRhRpMblyEoZT8lhVLa618QPtsXhmQr5PHI-PP3Ni5BaSZepcAAizWzVlZZ3J9snvMQeQNwfpk59V2rxw_lvG9xF2Qr8aaaVQfQorK7Gnw1AX8pI6aw2x6gme9PZjYD-6D9jl10kaTj_UC2EWoP60nUAZmxbb0CsbCGYTm3WZdCRvSHKD4UzfLxqy1RJ8_ZpcIA2D11DvCVZ5lGO4M8F_WIUIgH4Q1j2lc95TGl_vxl8_aA.jpg" width="400"><br>
 
@@ -415,30 +433,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75779)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-30 01:42:52
-
-<img src="https://cdn1.telesco.pe/file/vM53yVlH4-YhkF5a7Pj6DqGBMYxrd6K7tuEAH3C2nKUcKfhTlZX_ZzSwRHaHlFZ9pKQB2uVa6G6rF9rBufUQHSdtArUpL_M6E36SNt-OPP2k08yoTb1-B361dQXf5j6Zh5kAzqle32sN-NYiRyNv4gIvCUu2N4pR2UjgYEsVbgc1Y1Lh9mVq7_4GLQQCSyVE2ocU727wydnYzLl0qorHYW3YqlIILIL8HW86Q2BAIXUiHXmVnK5n0ObiPv9O8sWTNT1GdX8JEk1CYZxYGSZrfYDyGv71K-TGhre4YpOJmNwyu1ebL6okMhoTAYSUoIoHfTNn1BTfNWxv5fUw691bbw.jpg" width="400"><br>
-
-اکسیوس به نقل از مقامات آمریکایی گزارش داد که مذاکره‌کنندگان آمریکا و جمهوری اسلامی به یک یادداشت تفاهم با مدت ۶۰ روزه برای تمدید آتش‌بس و آغاز مذاکرات درباره برنامه هسته‌ای ایران رسیده‌اند، اما دونالد ترامپ، رییس‌جمهوری آمریکا، این متن را هنوز تایید نهایی نکرده است.
-مقامات آمریکایی که نامشان فاش نشده به این رسانه گفتند که شرایط توافق تا سه‌شنبه تقریبا نهایی شده بود، اما هر دو طرف هنوز نیاز داشتند تایید مقامات ارشد خود را بگیرند.
-مقامات آمریکایی افزودند که طرف ایرانی اعلام کرده که تاییدهای لازم را دریافت کرده و آماده امضا است.
-تهران هنوز این موضوع را تایید نکرده است.
-اکسیوس نوشت مذاکره‌کنندگان آمریکایی جزئیات توافق نهایی را به ترامپ گزارش دادند و او درخواست کرد چند روز برای فکر کردن زمان داشته باشد.
-@
-VahidOOnLine
-بعدا
-فاکس‌نیوز
-هم خبر مشابهی منتشر کرد.
-و گویا به همین دلیل هم می‌خواستند اینترنت را باز کنند. پیروزی جلوه دادن با اعلام جشن و پروپاگاندا در جو جام‌جهانی و...
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75778)
 
 ---
 
