@@ -3,7 +3,80 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
+
+<img src="https://cdn1.telesco.pe/file/sIG1U2wqn7OouvMpgXhOoFxLC2w0edEETYm8UGRqI81lKS2-sChtp5xanVJPAfmYdV9vf8biCZG9jbJT-TcIFgrzDPRD3yYI414susH51on8lfUucE29SK-PAfXqjZqiOX0CX2RaxTWj02LGHJ_tsJvLO46vHvkoJ222Tk4hNADGWwXZnM4OJ31HTfq2Ycghu4LcxxqDWrYBH-OD75MJzU6TR77coE4IZcdsQPwly0naA4mdHwSxMtdeIu1QfgH8Bu2fJ5BVrrGqc-eh_xl0eHDisL1uX0Wqizpf7owTqYVknGpx6rnSOYm0t4FJ7DatAhcF_MIYxBCraxX2x6Odww.jpg" width="400"><br>
+
+قرارگاه مرکزی خاتم‌الانبیا در بیانیه‌ای اعلام کرد که هرگونه اقدام شناورهای نظامی جهت مداخله در مدیریت تنگه هرمز یا ایجاد اختلال در تردد، مورد هدف نیروهای مسلح جمهوری اسلامی قرار خواهد گرفت.
+در این بیانیه آمده: «هرگونه تخلف از این ضوابط، امنیت تردد آن‌ها را با مخاطره جدی مواجه خواهد کرد.»
+قرارگاه مرکزی خاتم‌الانبیا اعلام کرد کلیه کشتی‌ها، شناورهای تجاری و نفتکش‌ها صرفا ملزم به تردد از مسیرهای تعیین‌شده و اخذ مجوز از نیروی دریایی سپاه پاسداران هستند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75804)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-30 19:17:13
+
+
+
+پیت هگست، وزیر دفاع آمریکا، روز شنبه نهم خرداد گفت ایالات متحده در صورتی که مذاکرات با ایران به توافق منجر نشود، آماده ازسرگیری حملات علیه جمهوری اسلامی است.
+هگست در جمع خبرنگاران گفت: «در حال حاضر تمرکز ما بر حفظ آمادگی و آماده بودن برای بازگشت به عملیات است، اگر لازم باشد.»
+او افزود دونالد ترامپ «صبور» است و به دنبال دستیابی به «توافقی خوب» است که تضمین کند ایران هرگز به سلاح هسته‌ای دست پیدا نخواهد کرد.
+اظهارات وزیر دفاع آمریکا در حالی مطرح می‌شود که مذاکره‌کنندگان تهران و واشینگتن در تلاش‌اند اختلافات باقی‌مانده بر سر برنامه هسته‌ای ایران را برطرف کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75803)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-30 19:17:13
+
+<img src="https://cdn1.telesco.pe/file/PbY9XkwTonv7ZIAqWZiVGyov7kZ1AIODuJWrJAsxpK-JtmckLun4ICm__rykUJN1UXAKB9Hg8RLqeloZZmG94biWVNEic-mDm5s19AB8Gx3La0aWujqb5WL6xmgjP1JVULVWCwMedOBsw94bGuB5HMrjEqT0UQfDJ262e7TWHmaXdUKtII3ACnmSlfs1HYS2xbwGUGgTG7ae-boLYWSW4PvcBKAGHlI5h8xGhK0SWlsAh2ci0SZeX7QAonQLrCsxjk8I9K5jcsWu6ema9X0ZR0Qq5oRwzE_Ec-HPcxFDHLU7fOtTdLbUHnmJvOKuzxIadq92YCcZ_IgP5-a8HAUZtA.jpg" width="400"><br>
+
+مصطفی نیلی، وکیل دادگستری، اعلام کرد شعبه اول دادگاه انقلاب شیراز بنیامین نقدی را با اتهام «افساد فی‌الارض» به اعدام محکوم کرده است.
+نیلی در گفت‌وگو با امتداد گفت که بنیامین نقدی شامگاه ۱۳ دی‌ماه در شیراز به دلیل شعله‌ور کردن یک کپسول آتش‌نشانی به سمت ماموران نیروی انتظامی بازداشت شد.
+به گفته این وکیل دادگستری، در ابتدا اتهام «شروع به قتل» به موکلش تفهیم شد، اما پس از آن اتهام وی به «محاربه» تغییر یافت.
+او افزود پس از پایان تحقیقات مقدماتی، کیفرخواست بنیامین نقدی با اتهام‌های «محاربه»، «عضویت در گروه‌های برهم‌زننده امنیت کشور»، «اجتماع و تبانی به قصد ارتکاب جرم علیه امنیت کشور» و «فعالیت تبلیغی علیه نظام» صادر شد. به گفته نیلی، در خصوص اتهام‌های «ایراد صدمه جسمانی به ماموران» و «حمل سلاح سرد» قرار منع تعقیب صادر شده بود.
+نیلی همچنین گفت قضات شعبه اول دادگاه انقلاب شیراز در جریان رسیدگی، مجموعه اتهام‌های مطرح‌شده را مصداق «افساد فی‌الارض» تشخیص داده و بر همین اساس حکم اعدام برای بنیامین نقدی صادر کرده‌اند.
+وکیل بنیامین نقدی با اشاره به قصد خود و همکارانش برای اعتراض به این رای گفت که در مهلت قانونی درخواست فرجام‌خواهی خواهند کرد. او ابراز امیدواری کرد که با توجه به این که به گفته وی در جریان رخداد مورد اشاره هیچ فردی آسیب ندیده است و اقدامات موکلش مصداق افساد فی‌الارض نیست، حکم صادره در دیوان عالی کشور نقض شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75802)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-30 19:17:13
+
+
+
+اینترنت در ایران آزاد و عادی نشده. بیشتر مسیرهای خارجی یا بسته‌اند یا نیمه‌بازند. فقط بعضی مقاصد و مسیرهای خاص اجازه عبور دارند. همین باعث شده فیلترشکن‌های معمولی خوب کار نکنند.
+در این میون بعضی از افرادی که دامنه‌ها و مسیرهای سفیدشده دارند، دسترسی می‌فروشند. نتیجه‌اش هم شده اینترنت نابرابر، رانتی و پر از راه‌حل‌های موقت.
+انگاری که درِ ساختمون رو کمی باز گذاشته باشن که هوا بیاد، اما اجازه ندن کسی ازش رد بشه.
+برای همینه که گوشی‌تون ممکنه نشون بده که اینترنت دارید، حتی شاید اولش سایت یا اپ مورد نظر رو باز کنه یا بهش واکنش نشون بده، اما در عمل از اینترنت خبری نیست.
+
+[View Post](https://t.me/VahidOnline/75801)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn1.telesco.pe/file/hHhSjMS2n6SNIVlbfUpVGAu6laFQ0ICCudWIyKkrYCJ7y31a7AdHfTKoKLLim5Q5yRVEwdzvSC-fPpMom-rAUiS2nzN2-rEwqxJ_g2LX7jIxjdHktlx5D1ry2Nnfl1tgFSvZFmlBNNnCOVAbrhU1_mM6Sk7P2xLeGNpQQ8N6PoRrgWHcYOAZWHujc8-TItdB3Qxy55OhNhMFTaWfAOXItWk9r2VElhc-sRuQImlJpcrnFUJHCfRTmo_r_kpT5TsL-OHAM9H0ZYmjzsrsGUjWFkWEcC9kl9TP005OV4n151LmRrXDZ0btHrqYj1Jx2igIjvaZfavfh6rkhy4WK9wHFg.jpg" width="400"><br>
 
@@ -22,7 +95,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn4.telesco.pe/file/lMMie3fAnIZOhZaMVsFcp3nC-CGCtotfp7Ry0xnAyJHZ0Q4J-m726OGYqQ3b8p45d0iwp28p4U9at6UXsfJc-sDrhrvTbvRjQbwd8PgbOkX7_4OWhllCAEjDMp6H9bzy4RtAYjCI4UMWl5iyxJqvHLJTLwc5XlHrfoHNuOqeXWINlWHz10gZkWhlFWVgpYMYNA3AXvhaQ_dB3rePrwWnvZTgAw0VuvCWQ9Nir1wegZa4AKiOQ4corDjTpQVYFNxcIHt-96A_RIHRrvE59fNvt1MS_Sso0j8_9wbqFwyqK_4qjgAq1AfEC2jWKckdjhaqinmX0a9ykfjAXMaC_cex2g.jpg" width="400"><br>
 
@@ -43,7 +116,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 
 
@@ -61,7 +134,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn1.telesco.pe/file/R9AG5ERQEQMucFD98J4DqJomVe5DLWYZtHAcNPPBIAoLJgwtWsgHMtQi4y4PcsmWsJ7GWdUdpSBmQ6A5Lc6Gre7lWvft2x2hDQmg5T3lVTa1mvhIFCjTtH0pGzXwsAlv9r3hjd7ZVUWRrwHYYvHR1vC24GQwjRDu-E815EWFinr05byWDHspr_U_xSwQ3VBebBOKKUFVGYPgvOMutfr6Bq5czHrdv5frQe4XvcajaZ9ptTcOgnxEINLTnDnhPLKsV944v2tBS8erDr4ygm8Y8FZ_fyziQ2Vrs-9RP1MIdJhRCJy8VvxWKsvTpg2Lm3wqmvgb4iIeGfbvoJYsVJA3Bg.jpg" width="400"><br>
 
@@ -79,7 +152,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 
 
@@ -97,7 +170,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn1.telesco.pe/file/A1DKLT3cka7rmvW3v5-gZX5R4xJQwZ4ij5CoIioWHt-jzXDaOxsoloM_7cpWh7ynhECXgoj776Q1Cc5d7FstI0ECjGrNGKBHm1sqL5p1BbmbV1wAjfeEh0xXpGHiwRVd_E7cRgW5PceT_PjYFTxk7tptAaOS4y2axbi8e-lyPokeUJ9lCHkOfuZ93RMvn7954XKWNdi3UoeEMF9Vewlj7EmOaNkzfUa_lsKfLN6tdBV-vTsKmQ26B7puu9Iou3ORkeWEKpFfc8_VQ5bPL65t4YynFWhX1Od-DQLR0jtsu_xjttMS_2E6Nq_NOZoV5r3q4Ic-uAZ7pECl9HBx4WANtQ.jpg" width="400"><br>
 
@@ -117,7 +190,7 @@ sky
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn4.telesco.pe/file/gDQpmh-f_xnZ9weP5asfzBYQbUYAxkKxZ5XaNdMCL73MFCFI2Cx_XK7Y4QOvxYiOpA9pMM9kzH174etF8p5pDhEPgdkopBvW0IwnU_v_nL0tAo1fn_PIJdBAAeyHNDTVhcQdFzURLtNMCh7TFq31P63cGg2qt3YRGcH_Y55vPsqM858IzgYndPs6sd_3W2HBW7SQ7fBo_ypJoacpLfB24wUjg8ogRNkXUygB_eHQ0qDPfv8-vNmbNh-vnOKH60NxTyV23xP4hfneOkKuZ-2nvJT9NMfswPVxdwRK7wz8fpNn1u5srr5C3B0BYL3o90EPs6l65ioTmweIse4pod0fPA.jpg" width="400"><br>
 
@@ -137,7 +210,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 
 
@@ -164,7 +237,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn1.telesco.pe/file/EgceUAvQmS3Q1l7y7BtvTjiYmWC3fPQ7b3Ime48ePr2xi7k6PrN5zlelWxq5X7464p5gPdkvEkDT_QCgVQCFZkTGbermigMI-3GzN6W9vG0Rp0W0QeWFBi5l_iDP_gBXUarTCSk4FPPzzUmEV0YpAnFs3EYQXzgNoQAjNjq3GvxVvxeKo7oeLuV30t6ZbNHxqJuWuQGZcRHrEP_kCGOkXFRpiGGQf_cLmKB0hwkjrKDs0uMsubfStcWTDTrgLBQaP0dIQoDGBzAdtGiAYFX92_y4HZ7-YUryWS_YuGo8kk61BLi1GIOa7v2p4c6EDXnm25JApPaIdbvvGWZ-1kymIA.jpg" width="400"><br>
 
@@ -187,7 +260,7 @@ NewtGingrich
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn4.telesco.pe/file/Gki71nUc_XcQ8EZszEXElozL6GLmZEM5f0_pq0PwAxEmBfE35pY0qoIN7V1gJaPmU7u_agomUbLjqdS0hJhPxVZKEHbRqSfW66Xg_9TgQ40OY_B7E11c3ukkBXxGaylj-__BvWP9h_M6492JRNVhushvrIPGGvjhCgPu8xG8Ddx7KsLZZf7Jzw4r46dWAPe_Ms6H1Fn9b_W2vv411qWVsFjd8vaMbYluIHqLS6LsTe9LmeLgT1Uj2Go60QKQ7uL7ALa0eQzg78H7fEfDZitdaA5FxgrCEKi4qcTYOScKsuC_CMVd84CZTD6SujwgsTTkyiLtUmaY6vkElQkcUDLpFA.jpg" width="400"><br>
 
@@ -204,7 +277,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn1.telesco.pe/file/Ia82aWDpNR0pkdD6JPDJoh2gbH3Luggd_0i_Q2jzAGI_BaTs6lRAZqvTOnonqCq0Wkr8QbjqXkI3-TVZhaSGu7OsVqSNSep8DFmVL9JAuQIJEosHRSyqtQ5gE8rJ55jRNnbvunXQteiq3LL7jx6uGL-cl8FNJv160-eQVob5tRPPguRbiVB4kqNOd57ArnAjOGkALPgkmxyRhyszeKR0PIYpYXPMp3IOnNzzZXAxgTrl_ih85gM_zl8ZdrqlQEzpKDQixO30CsPfJhFbAuY5u1jIYAjgc7rnVbCu5wc-kcTDm5quABOjEHjCApksPIpbAIY1UoLZxdjXTxAH0dX53g.jpg" width="400"><br>
 
@@ -226,9 +299,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
-<img src="https://cdn1.telesco.pe/file/dBUhUaPd0jjGtVsFOfuCrCaOfBULvOncVHHBbn_9lYr4kkF1iO7aXV-T7OTVG0a9rn2xW1wQ2WB3OC47os-A-b6J49H__6J0gPAoGH-lm-u_tA-Q7swr9OvsBYCjAaXzbqwBlxemvv2ahsLcJ0sb3_9QeRaNnPnQpeptGiE9aKHdr8GBNysRLi8kwlJGAW-8wAtPX-1y3svWDbAH5EjE9akqoquP9vDIc430LBiEi6_4_f5ndz2dDJbKStf3LOkPav4FZyPITvtDUdIrdsmmhWsmY_oico5IPk9K6Qt0ugS4CY0m1-Pf4mmMuyx3vbK5_nARt0P25L_DSTabtWsaAg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/J5Sfnbo-J6rPvaXtcv3DO7wfWz3xvS8YFUId8Q51whbRKBoipbiHaTv5FJd5sPpUqLagtK9Ut-tYvB3EzsEHvJoN7W1iHgopjNOxu7j8QYDf28ZQuqAjhvSQ1p_u_P9fdWF_MHMQVhEsFIdw2NPyPpI3eYMpZZZzC79XMq2_2u8rH3veBI9MmkGnuDL0O9nVgEGwPrXs6oTiKTpksl38xwsKCUSqcfsMnJ22qcXlMEPpczipZwPbFx2Up01clf6xpFT5UU65cjNmbIYjmrSh0xemZPUJCuXS4PCmkEHxV85sQG2UMR1KwKcgztZsuRuO6093QbcdbTB5kLw41d4lSA.jpg" width="400"><br>
 
 ☄️
 پست ترامپ، ترجمه ماشین:
@@ -258,7 +331,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 
 
@@ -274,7 +347,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 
 
@@ -293,7 +366,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn4.telesco.pe/file/qwl-dhEkNPT89p7rlIzm8g0yqMPlK6BoYbq4y_3RBvDMsmo-MJLdMwKVZ5CxiXgk7dYZiFpu4TL3GI0OZ_Z-bbpi_Nrr4xVHv2ex5csu-JYkt5Gbg5hhEL4h-sCXDpB1HTwHRwdyGu_8st2FjX1jxUdOAtdxJjKTAgvUboQQEqQ8UzspGaciRUlnDD1Phmqvakfq-YKgkTbfCC2d8fbrBNal0Hlkss39DbUb62to48o4EqXQNw3ISTiFRzebFUIC7liy0G-dhGykm4fKal1xMgR1a-H6xWBWmx_GOYydKZ86C1NOOyWP9ufPzSDO9a0T3OsttdbZuo-t9Cn5Q4731g.jpg" width="400"><br>
 
@@ -311,7 +384,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-30 17:53:14
+###### 🔵 Updated at: 2026-05-30 19:17:13
 
 <img src="https://cdn1.telesco.pe/file/YEiJ7NW9fyC_ru4DcFWdcovG4LNdaYbywnwa8QL1Ox4LVcsal5LKLqI7gcwQQ1JCpz0DMVhdVCRQ8eYyJE1efoX7VvEvQ88WXGrHXte1bvVnMyQkp8RRKdE24PvWfuAXidwrql00AdFtmlUoL950Jw99gWIEvMUQIni0gTjESIGcl8oOKlWeacC6WJpFdGOvOlv6Ar8x-3f8bgxKfLwbT6vJ-7cG5YLiZqG52zLc0xIZbZbfmqwZ7pCtZiNMXH48aGV6OesG-LB1HzCCkMRIA9uKrNTa632YYilhScUu_in2ndmnD4g0liBfTLhXWy8yOf21FFOQbY1kSVwrGPSCuw.jpg" width="400"><br>
 
@@ -326,91 +399,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75785)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-30 17:53:14
-
-<img src="https://cdn4.telesco.pe/file/cV5kJZxBFx8MrVva0ckaqFaORnEnjrqs_6pkV7YQs5Ctm4H42fyEGeWH3QxgAY_MdAvZyoRw-kYFa32A8GxM70DCLgOGRUDV6eb6N-7kakX8Xn2_0W_9MaesjWq7aLW0jqYxrRffV2qVb7cscjdQpxizTVJBH-QAfVtnrd2ujp1TgW-dnwmWVcgigF5WAzyOdoIe9BwSBYeQX8ezBW3ITiem0ccxxGSwYy1NAag4CzzLJLiKN6R2Bd0Eu4KFMR4elict9toB2SoKztIV0xgkJV93mJIZd37b2TmCYRqcczdEShhQ6tw0PgtFmIDlRPOzFuOd1vhGUXOFPJWgOU6mQg.jpg" width="400"><br>
-
-‏
-🔴
-بنیاد عبدالرحمن برومند از ابتدای سال جاری تاکنون، اجرای ۶۶۰ مورد اعدام توسط جمهوری اسلامی را مستند کرده است. با این حال، به دلیل ماهیت پنهان‌کاری و غیرشفاف بودن سیستم قضایی ایران، آمار واقعی به احتمال زیاد بسیار بیشتر از این رقم است.
-‏
-🔸
-از زمان آغاز جنگ، آمار اعدام معترضان و افرادی که به جاسوسی و اتهامات مشابه علیه امنیت ملی متهم شده‌اند، با سرعتی نگران‌کننده افزایش یافته است. «اعترافات اجباری»  قربانیان، اصلی‌ترین «مدرک» مورد استفاده در این احکام مرگبار بوده است.
-‏
-🔸
-این اعترافات در شرایطی کاملا مبهم و تحت فشارهای شدید جسمی و روحی اخذ می‌شوند. جمهوری اسلامی به طور مستمر این اعترافات اجباری را در رسانه‌های دولتی پخش می‌کند تا از آن به عنوان ابزاری برای توجیه اعدام‌ها و سرکوب مخالفت‌های عمومی استفاده کند.
-‏⁧
-#نه_به_اعدام
-⁩
-@IranRights
-
-[View Post](https://t.me/VahidOnline/75784)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-30 17:53:14
-
-<img src="https://cdn4.telesco.pe/file/OoICUO11A_uxVD7J54vKsD8yqJJ_bu3byHOoJRbhBozMJ4IIz7tnMcR1GK6yGblPfzbhycdVOynu9n7WBn5PDwoG-rrKLnRb8mnXtBELiY9lThQjSsJ7ls8sAiycGB69WnDye9fayL396bU1Ua5NWYYvjBXvljtODkY521frx0lwSwB4E33ObbG6n39k2ArDi_42ikm8iVIvEiXy2x39fLPUJSiN6_RCj-fO1wm3FeKIXFuMCa6iOSOSBTlMlzHJfRl-IvbQqMzeeYZKOMW_78pXPixkTnlEbX8olELOuQZ0-D2P7zo4mUlH_9S5eeFOgQnAYoaA6mnk1_TV-r5BwQ.jpg" width="400"><br>
-
-‌ ‌ ‌ ‌
-شیخ تمیم بن حمد آل ثانی، امیر قطر، در تماسی تلفنی با دونالد ترامپ، رئیس جمهور آمریکا، در مورد تحولات منطقه‌ای گفتگو کرد.
-دفتر امیر قطر در گزارشی از این مکالمه تلفنی اعلام کرد که شیخ تمیم بر اهمیت اولویت دادن به راه‌حل‌های دیپلماتیک و گفت‌وگو بین همه طرف‌ها به امید جلوگیری از تنش‌ها و تشدید بیشتر در خاورمیانه تأکید کرد.
-در این بیانیه آمده است که ترامپ نیز به نوبه خود از نقش قطر در حمایت از تلاش‌های میانجیگری پاکستان بین واشنگتن و تهران قدردانی کرد و «از تلاش‌های قطر برای رفع اختلافات و ترویج کاهش تنش در منطقه» تمجید کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75783)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-30 17:53:14
-
-
-
-فاکس‌نیوز: جی‌دی ونس می‌گوید ایالات متحده در مذاکرات با ایران «پیشرفت زیادی» داشته و معتقد است تهران «حداقل تا حالا با حسن نیت در حال مذاکره است.»
-جی‌دی ونس: خب، فکر می‌کنم گفتن دقیق اینکه رئیس‌جمهور دقیقاً چه زمانی یا اصلاً  تفاهم‌نامه را امضا خواهد کرد، سخت است. ما در حال رفت‌وآمد بر سر چند نکتهٔ زبانی هستیم.
-کاملاً واضح است که به نظر من، ایرانی‌ها — آنها یک معامله می‌خواهند. آنها می‌خواهند تنگهٔ هرمز را باز کنند. ما هم می‌خواهیم تنگهٔ هرمز را باز کنیم.
-🔸
-چند مسئله در مورد موضوع هسته‌ای وجود دارد: ذخیرهٔ اورانیوم غنی‌شدهٔ بالا و همچنین مسئلهٔ غنی‌سازی.
-پس می‌دانید، ما با آنها در حال چانه‌زنی و رفت‌وآمد هستیم. ما واقعاً فکر می‌کنیم آنها حداقل تا حالا با حسن نیت مذاکره می‌کنند.
-داریم پیشرفت می‌کنیم و امیدواریم به این پیشرفت ادامه دهیم تا رئیس‌جمهور در موقعیتی قرار بگیرد که بتواند توافق را تأیید کند.
-FoxNews
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75782)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-30 17:53:14
-
-<img src="https://cdn4.telesco.pe/file/Y70Ssyvrqu1yggJkSBu5dHcPX7oYYA-vNs1eeevVtQefu0G1y2T2waZrG_wr7JU80idITsIK2-finFrGhE-tiRyXIWsyY_58NMxxuK69_44FLr5GlxuaXT4k7jVLaQIBFM4BN3lTQ-h_pkDVhnxPTuDXTvBhpRRK8aQZ2ds0Z9wbMez2avFs0mWvaERDSVo-JS8VBCwqzacUBsFuIAgUgMFqLyxRi_fUtL1kMWMNlfszToBn18ZGuqD5TeFZbxzTpnYbj8YumDN4aGpVr0tSc4GH5hQNf9pVV45nx78DvaCKZHOryuTQwo2RGykMZBTvfLgs8ueqm-GXM4Fz00XtcA.jpg" width="400"><br>
-
-رسانه‌های ایران گزارش دادند که نیروی دریایی سپاه شامگاه پنج‌شنبه در نزدیکی تنگه هرمز به ۴ «شناور خاطی» که قصد عبور بدون هماهنگی از تنگه هرمز را داشتند، «شلیک اخطار» کرده است.
-همزمان، گزارش‌های منتشرشده در رسانه‌های اجتماعی از شنیده‌شدن صدای انفجار در هرمزگان و بوشهر حکایت دارد.
-@
-VahidOOnLine
-ساعتی پیش پیامی دریافت کرده بودم که در پست قبلی نقلش کرده بودم و الان به اینجا منتقلش کردم. پیامی از شهروندی که درباره یکی از اعضای خانواده‌اش نوشته بود: الان قشم بود. پلاک موقت دادن بهشون گفتند فقط از جزیره خارج شید سریع
-همزمان با خبر بالا هم پیام‌هایی داشتم:
-صدای انفجارهایی در بندر عباس شنیده میشه.
-صدای انفجار داره سمت قشم و دریا میاد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75781)
 
 ---
 
