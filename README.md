@@ -3,7 +3,113 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
+
+<img src="https://cdn4.telesco.pe/file/v9QccuOXyeOdOlzJ-d1UYJ_3l6FvKI5F8M1qtVzig6G36XcQmV3ghxRcp6gEBoqTNZy-0x8y38LNdz80K6yEYVgKfJZG5flPJrWiZTrktQYU1qyfDLInCgeU8txjnQkBuy2W2MnhCV4TMlvfzSuTRg6DDJgPY4Pt7AGvN2mWKm_AipaDTnbK0s0OjY0bOgfIhWKTz8xXWHfADFOSFEO-tht_EOScUDuhjw5D4rbsxg2P6APYpCMaafNPVhDlIbhBt_5S-JZGJLA7mJXsdhSAZqZkuxt8ZaJ8dMqDvuu1FCB9XiJ4qPJVPpNI8VgKGg1lgiv9piFZeyUxbFyvKZyNkA.jpg" width="400"><br>
+
+مسعود پیاهو، مردی که تصویر معترض نشسته مقابل نیروهای پلیس یگان ویژه در مقابل پاساژ علاالدین در آغاز اعتراضات دی ماه سال گذشته را منتشر کرد،
+به گفته وکیلش
+به ۱۰ سال زندان محکوم شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75821)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 19:51:20
+
+<img src="https://cdn4.telesco.pe/file/AQxWyjLi6_ukAqkI4ugVQdtb1tDcXB_VEwdkYRsEwezbwaRo1Cl4KPUaSR_zpSZt00n_yhCe0loaidDgq_Wx7r1sKz0IK-tePtmi5jZwCiUO0rUw2di5rdFIV89bKa2ryYKM4JElUf7BDGm3Hy7_UwZiQeI3bXg0iHlo6OPuUQybEEis4526_iY5ojE0eBagmPx7WjgrDuuRjT3B_G8bk3rBzBzRNIDQdbJVGVM_zTenVihpyg2vv8XdlB63LFfFKuuZMXG_CSOLEQ5ArVppBkWhiqgxXKXGkbncatT5Far3UMum4pgiRlNt9YyK4HyCE7jWU4Ez_KhnSHdrXfY-Cg.jpg" width="400"><br>
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، در گفت‌وگو با فاکس‌نیوز درباره ایران اعلام کرد: لایه اول و دوم حکومت آن‌ها از بین رفته و اکنون با لایه سوم روبه‌رو هستیم. شاید آن‌ها دیده‌اند برای بقیه چه اتفاقی افتاد و می‌بینند ترامپ آماده انجام چه اقداماتی است.
+بسنت افزود: اگر ترامپ با این توافق موافقت کند، همین حالا به رهبران جمهوری اسلامی می‌گویم که او این توافق را هم از نظر نظامی و هم از نظر اقتصادی اجرا خواهد کرد. آزادی کشتیرانی در خلیج فارس از طریق تنگه هرمز باید به وضعیت پیشین بازگردد.
+او درباره اینکه آیا ترامپ «کار را تمام خواهد کرد» گفت: اگر «تمام کردن کار» یعنی اطمینان از باز بودن تنگه هرمز، در اختیار گرفتن اورانیوم با غنای بالا و نداشتن سلاح هسته‌ای از سوی جمهوری اسلامی، پس کار تمام شده است.
+بسنت تاکید کرد: چه از طریق مداخله نظامی، چه محاصره یا فشار اقتصادی، این نخستین بار در ۴۷ سال گذشته است که ایرانی‌ها درباره نداشتن سلاح هسته‌ای گفت‌وگو می‌کنند. این موضوع پیش‌تر ممنوعه بود و اکنون برای نخستین بار روی میز مذاکره قرار گرفته است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75820)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 19:51:20
+
+
+
+عراقچی در تاریخ ۲۹ آبان ۱۴۰۴
+در تلویزیون جمهوری اسلامی میگه ترامپ به ما نامه‌ای داده و صراحتا نوشته
+«دو گزینه بیشتر نیست»
+یا جنگ و خونریزی یا مذاکره مستقیم
+«برای از بین بردن غنی‌سازی و موشکی»
+این مصاحبه چند ماه بعد از جنگ ۱۲ روزه بود! یعنی در آبان ماه، مشکلات آمریکا و جمهوری اسلامی همچنان همون چیزهایی بودند که باعث یک جنگ شد، و این مصاحبه یک ماه پیش از آن بود که دست به قتل‌عام مردم در خیابان‌ها بزنید!
+الان هم محور مذاکرات کاملا مشخصه!
+همون چیزهایی است که جنگ ۱۲ روزه رو رقم زد. همون چیزهایی است که در آبان ماه عراقچی در تلویزیون گفت.
+خون تک‌تک ایرانیان از جمله کودکان میناب پای شماست! شما طرف مذاکره بودید، شما انتخاب کننده و تصمیم گیر بودید.
+و شما بین اورانیوم و موشک، و یا جان مردم، زیرساخت‌های کشور، فولاد و پتروشیمی و…
+اورانیوم و موشک و دشمنی با اسرائیل و آمریکا رو انتخاب کردید! هنوز هم طرف مذاکره و تصمیم‌گیر شما هستید! و‌ جنگ ‌از سر گرفته بشه باز تصمیم و انتخاب شماست و مقصر شما هستید!
+نمی‌توانید پشت کودکان میناب قایم بشید و از کشتار دیماه فرار کنید!
+هر خون و ‌هر ویرانی ، همه پای شماست.
+
+[View Post](https://t.me/VahidOnline/75819)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 19:51:20
+
+<img src="https://cdn1.telesco.pe/file/R8rx0iTw4cssqahePG7fK3f9DcUY6XccNpf8qEfZRDQfF1Hqa-zfjE1alOzFd3QrxG81X4eYf5YKW2wN94FYQSJP3U7_R14FylV-kyCFXRk1M_zLQEPC8587x-3C_nitHrqBu5P3oZ1gw4DEPwxzLDHQdA3fJtyeIOgeaj2tc64DyuKZ0KoPHhCx5Nj9X1GVM41_aGh_kFwgG0g7PdtubyhXcZfhUVgEoy2OoCMl2gkfxcZoSQCkr_2lOCGd0cAQOVoGzJZeV4xnnr1ggPTdGAHlpHJdsRevaqsOXoDkrwKBHxsCyMzoylp4MnWcST1MEUmfc-bzp-P8BG0vGHzdVQ.jpg" width="400"><br>
+
+حسن و حسین امیری، دو برادر دوقلوی ۲۰ ساله محبوس در زندان قزلحصار کرج، از سوی شعبه ۲۶ دادگاه انقلاب تهران به ریاست قاضی ایمان افشاری به اعدام محکوم شدند.
+بر اساس اطلاعات دریافتی هرانا، مبنای صدور این رای اتهام «جاسوسی برای اسراییل» عنوان شده است.
+یک منبع مطلع در گفت‌وگو با هرانا اعلام کرد در کیفرخواست صادرشده علیه حسن و حسین امیری، مشاهده تصاویری از ساختمان‌های آسیب‌دیده به عنوان مستند اتهام «جاسوسی به نفع اسراییل» مورد استناد قرار گرفته است.
+این منبع همچنین گفت: «حسن و حسین امیری به دستور بازپرس پرونده به صورت جداگانه در زندان قزلحصار نگهداری می‌شوند و از حق ملاقات با یکدیگر محروم هستند. این دو زندانی در حال حاضر در سوییت ۳۵ این زندان محبوس هستند.»
+بر اساس این گزارش، این دو برادر پیشتر در یکی از ایست‌های بازرسی و پس از بررسی تلفن همراهشان بازداشت شدند.آن‌ها پس از بازداشت، به مدت دو ماه در وضعیت بلاتکلیف در زندان قزلحصار کرج نگهداری شدند.
+👈
+حسن و حسین امیری از دو سالگی در مراکز بهزیستی پرورش یافته‌اند و خانواده‌ای برای پیگیری وضعیت قضایی و حقوقی خود ندارند. به گفته آشنایان این دو جوان، نبود حامی خانوادگی بر نگرانی‌ها درباره روند رسیدگی به پرونده آنان افزوده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75818)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 19:51:20
+
+<img src="https://cdn1.telesco.pe/file/q6xKN3YRm2Zv-57FT2RJWjQ6ydKQagpgTWTwRLlbJD8O8oWvapVUrb8xoX3Ouf_p_Xu3WwHrZN_dchC8PCz3q8DMAbjaojOwEQVX4LWgB9okBZQRLMpxEg4-JWHhNrS3DFint_NfWTlzZLV5Qn85rES7C-Gi49rsRjaMKUzKXP9cXfkMt4larJruWWsHa4T8_ePJg0kBqTj0-uVoCti8HsmDBMc0_lci39sCkuWYTJVJ0A0mlzB_egaXBw9MhLo_MLVhRg9F98lU5kJKtL4XSbIg-Vs-EtftNHIfrFfzc1R1P7Y1Kk45aHl5c93u2OYH5CQ02nWDTxUOJzWLHKUa6A.jpg" width="400"><br>
+
+سی‌ان‌ان: ایران چندین ورودی تأسیسات موشکی زیرزمینی خود را بازگشایی کرده است
+شبکه خبری سی‌ان‌ان روز یکشنبه ۱۰ خرداد با استناد به تصاویر ماهواره‌ای اعلام کرد ایران توانسته از زمان توقف جنگ شماری از زرادخانه‌های موشکی مدفون خود بر اثر حملات هوایی آمریکا و اسرائیل را از زیر خاک بیرون بیاورد.
+حملات آمریکا و اسرائیل با تخریب جاده‌ها و مسدود کردن ورودی تونل‌ها، دسترسی ایران به پایگاه‌های موشکی زیرزمینی را محدود کرده بود.
+سی‌ان‌ان ادعا کرده است که ایران تاکنون ۵۰ مورد از ۶۹ ورودی تونلی را که در ۱۸ تأسیسات موشکی زیرزمینی توسط آمریکا و اسرائیل هدف قرار گرفته بودند، بازگشایی کرده است، از جمله در پایگاه‌هایی در خارج از اصفهان و در اطراف خمین.
+بر اساس گزارش این شبکه خبری، ایران همچنین بخش‌های دیگری از این پایگاه‌ها را نیز ترمیم کرده است؛ از جمله جاده‌هایی که آمریکا و اسرائیل برای جلوگیری از تردد پرتابگرهای موشکی بمباران کرده بودند. تصاویر ماهواره‌ای نشان می‌دهند که تقریباً تمامی گودال‌های ناشی از بمباران اکنون پر شده‌اند و در دو پایگاه، این جاده‌ها حتی دوباره آسفالت شده‌اند.
+ایران شبکه پایگاه‌های زیرزمینی خود را در عمق خاک و در مواردی زیر کوه‌ها ساخته است تا در برابر حملات هوایی مصون باشند، به همین دلیل آمریکا و اسرائیل بسیاری از ورودی‌های این تأسیسات را بمباران کردند؛ اقدامی که در کنار تلاش برای شناسایی و نابود کردن پرتابگرهای موشکی، باعث شد توان ایران برای شلیک موشک به‌طور قابل توجهی محدود شود.
+این حملات خسارت سنگینی به پایگاه‌ها وارد کرد؛ به‌گونه‌ای که بیشتر ورودی‌های تونل‌ها زیر حجم عظیمی از آوار مدفون شدند و جاده‌های منتهی به این سایت‌ها نیز به‌شدت تخریب شدند.
+سی‌ان‌ان می‌گوید باز کردن ورودی تأسیسات موشکی زیرزمینی می‌تواند به ایران این قابلیت را دهد که در صورت وقوع دور جدیدی از درگیری‌ها، موشک‌های بالستیک بیشتری نسبت به اواخر جنگ ۴۰ روزه به سمت اسرائیل و کشورهای دیگر شلیک کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75817)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn4.telesco.pe/file/C75a8REshYwZkyASCvJR8NZjTxBM6D9L7ADwoYzWuCvjmU8B6eZjYs5YT4RI7ZvRQc3zv_2k6uwhP6M-kWV86MsAKYFmzujX-EW3ul-SJicF8WFTDD9cz5bP2wjAYIltWIOSl5ZGHmJJGNpNA0-umbi-dj6GIRogQm6I3Okfo6jXQRyokKsT8leZvcD0zSZpJwKGLa59PVm-mQONzHoGK3xOpbFUBZq-S-m3koKxAOV-dThGQnjAjbJ-mAp6klHMBW0tvki52B91KD0iPzXqOyRIZ1ZKE-LHZLpkFkSiFTvK4T_emL1-vgQC--1l4b4fBLwji6N94H5KZ6Zb-ia2Pg.jpg" width="400"><br>
 
@@ -20,7 +126,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn4.telesco.pe/file/CshAQo1Ho8OYNtQbQBQbYSh2dVxxWYWeRzVoUnFgJEYu_cfL-YQ6TRKDVoC7UHIjwiTTafaug0P07-XPEnBHKjD3q8iNAtGdTgrKm1vdmuNqrVHl08V0u7d_lAhy5kYUBZe00rnjsswfAKjEfsMmW-6x3bYwQWf5hMnft7naGNYNZqO16YTdKECfe8-R6LdgrVGyoU5YU6gd53DMTo6vpu0SnjZQuSz6uYSbhA6YQlMKqjVe5uovIw8BD2Z-a1a_qwQTWzYCcZ4AOSz6rRiCfD7QKmNl4TLk8h0pS5TXoVRtvPga-hQgtZ6iI1MrAzS11NTpgu4aG-ik7fTaw8pb3w.jpg" width="400"><br>
 
@@ -37,7 +143,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn4.telesco.pe/file/EHWkEFK5dtRALD2XETRZpmYpcPf8XI7d4962mz_mUwHCHxu37HS4qGAdfJ-EQBPD0xKXJH2scmMw3MLkGpNdc9GjgNGdd5r4KDvq9qPdAP3XLdVaZTNX1W_uuwxbHLf0vDRe4cyaY5_c6zD6ijH3RI6exZCvBH547VpD_JXJ38f2QWiQkkxXVAv2g_OXEmOpqAt0teA_s2dbo7-7QCpo17AKdU8KktvWwb8Qpfhtnb8LgeA2QrlSKpunQyLHI2h-up1IHL7kD2XuhToIc0NzqKjLEdCq1c4GspafXlmWrN0k7YSqf5796jLjuApkpi83F5Vi-icnOrwS58Vy3BclrQ.jpg" width="400"><br>
 
@@ -55,7 +161,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn1.telesco.pe/file/Sf6FM1H8oa9FTeMaLgnUazc6lOhRWrmk7cSh6XQhOABjzbS7ar_MZ8JDPFmuj5lkVWS6YkINvrQOa-FVSLSfqrlkTmI3kkOAzwQTeuPDNWpt-uSOPBiWhD0qoCY-f15QsxO-VqggPNAW64p6-7XoOWnRO5k5VFLIJRV7aQDwfZ58PCIxLpCVZAhTHyXRRy8xxUWdYsuAjQxLP9oYfqnpJWO463T82nDSLSH8reHJF2tf8y8wY8-g-3W9IogoUuKWk-rw0W20iPBd1tYYn0gTu6qOtvJUsjVgRHdAwgWv7j0wk31nOpHZGl1cMzwgCX6XyoR1k1U7Kl3Q1qLNMQJQaQ.jpg" width="400"><br>
 
@@ -80,7 +186,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn1.telesco.pe/file/o4GxOvL0wLf2-zaR4SbkjVulpWHnnw94b_YgO9EPcL6OOnoiXW12cJVuzCe03_Eqo8nvTj8CGympvVlN_i2DacIQyVblUKgx4k1YfwkirmW20Gh6G6ATru-PhT1e08Va5eBu394-Gk4DBH6Gi-fHB5RVEZu1R5VLkWJ43LTfSHic25OAqi-Q4xvWLpUGmdANec8mVWKAiZ8NAb7wfohZAQkmRyDpwDxihZVe0neSg8V_OeOBjvvT80L3AUhMQ_FcbRl7nnEGccxZs8FhzYUfOwmc2RJ3TpsbmPtmTHH2UakReQSHh2eiYg9XId5ysI4fW-rotfTjAMp6HrNBh5-nag.jpg" width="400"><br>
 
@@ -101,7 +207,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn1.telesco.pe/file/LYlL1f8tW1JnXpNCOGRyC28BBWh-j6cncpm81_A7u181IJyTCduQGeiXf4XIkYlJfWqk-fjomvniteFDQWtxk8_TKgZimeMhQvOjmkpF8rCdtpbUH_b7S18iqbk_vWGodqCqB4_DRdNZbenA6BADuVQ5gqUp372kWVlQ6_Hn_C-oxwgnukwiEwTTD2DwiN4wULy8wl1dHLpvETkL_QTspexVTjV2AL8QRgJNllwdDJpoBY0H8xIyGxXKPtQ1ls2MpeGeXzzd5_nTxDBdfyMVD3m3RimlqraIwZ01DHUdN0OIsg2m221AMWfqmI17mtvWwj62dEgSAPrdkAoSPuHRzA.jpg" width="400"><br>
 
@@ -127,7 +233,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn4.telesco.pe/file/Ek3RvOYMTzB0GmtIEVUuqub6OyyueYNwFR7tGMNJSfkLvtPUb2eF7QffoR0SEvNo6nxXmo-ayoAm6Ex6ttGI6XTD-j3SV2tSZt4dW7pJgKxvxsaw0_9KTSfCy16zLqwWNtzwR2hfYThUxw9RxT8Xpwg7DPO4b7_Ds3i5ZFu-z4OOyXRsf-uIKCDPC5bavvVAh4JVkyw85b_ckH7g2oJbu4_46a8v90BWVod1niX4IJ6UtwAPn5AcJvQUabBebGy2T8G3aQrSYbmKIBkJDRFpi1h_BS4eveJWH0GCjn_gf8hmENXM3kTjxyhSzrmd4_IdEpYH3crY_ptrKSCcESEN2Q.jpg" width="400"><br>
 
@@ -144,7 +250,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn1.telesco.pe/file/ctvg9oKHcfYdYF_GTtdDJv85_b--lajgdGgbPY_ML4tDTxOgE2S18zPFgXOrIbgz8iUHE-WeHdI_kgOqwdkcLIeZK4_BTDRYGcmOfwktsxOEly950eZaiVAZrFneRUgWo6G07Cbf-DJ_IMNPTQ4KnjIy2DQ2HZ7zeQ54tzFCpsUy2njsTA2Ikn3rzAntpua26g_CHVn4fJ5zEW8tq0dX1wui7O1d6T4LFDi5i-4L3dPzCa8vugWLes3ACE_CBQe6DI9Vqm2rGJiy0vHZoWeD_TazixPp3E811djvCHlz8WKbyljAzQoK2kUb-EGFBsEWb6e3vVCzqcxWHAytEGGy0Q.jpg" width="400"><br>
 
@@ -165,7 +271,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn4.telesco.pe/file/iW1Cpcjo7RWWv0d40vK6ZbVkKBwIVK4XvVcfKsqMITKLaxOJz86mFOG11gw9FGkWBTC8Xc4x2VaHkwTciIYHGKVO5hnBLr2Yscn6hLYSGQfQ4QwaxJ_mF4qqjGQrcrRsuE5e-J3j5At2WwRMIx5GwRIiCUrohVKEtJGxdiuwjOhMgZ7mer-mwIEnyy8d5cXX6R690MN6ZcEAn2eJwrm4ymL2JU4EZfDbiy5BNpSGP4dnQKDwXsjl-oFGhqFXnsyGaz5qLgFvLzk0R0aIG2ICAviLmi_XOCMp-DgDoYytgmDCe7gIPgRqTFdWQmYPiJJ7smG2PYu3i6w0kAS--uU5iw.jpg" width="400"><br>
 
@@ -183,7 +289,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 <img src="https://cdn4.telesco.pe/file/jqkvst42AkE1zYZUxb7tj4ZVPpRZIlEuwfBoMvOhoZ727sE_5eW9l3En-te7dF_FyEHI1ksF3b008uQWNy4pu4wsrvE1DMyW-zIN6DwtjSPrdmAHgKXKtpD36jbs82x5aP3UQRbEltEp0KNZIXg8YRqYnyTLHfWYDa-CY0J3ltABXUnw6teppLivUbUmO3a_FMOqM7_4SW_MZClKYLjlgnkKWR7DoJ6j30IyB84oWKLgh7jw-x0LLJpDyrEVlJqYi8mrxeDo31QloP8mzBlHNhLQ-GnQMs_q6WxHC7JYRtJU9XxOOm6CJUhVF8M8lXflf2rhWHMUNPFC85GaQNS-aQ.jpg" width="400"><br>
 
@@ -202,9 +308,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
-<img src="https://cdn1.telesco.pe/file/sIG1U2wqn7OouvMpgXhOoFxLC2w0edEETYm8UGRqI81lKS2-sChtp5xanVJPAfmYdV9vf8biCZG9jbJT-TcIFgrzDPRD3yYI414susH51on8lfUucE29SK-PAfXqjZqiOX0CX2RaxTWj02LGHJ_tsJvLO46vHvkoJ222Tk4hNADGWwXZnM4OJ31HTfq2Ycghu4LcxxqDWrYBH-OD75MJzU6TR77coE4IZcdsQPwly0naA4mdHwSxMtdeIu1QfgH8Bu2fJ5BVrrGqc-eh_xl0eHDisL1uX0Wqizpf7owTqYVknGpx6rnSOYm0t4FJ7DatAhcF_MIYxBCraxX2x6Odww.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Nvl1ETdZegsIzIG8hcUeuV41MiQf7xcdBqtVWCxLhLANHZTcAytVye7dw3QGunHo1VANKX0fIlwEDJDzZbxOau8cF6_5tFVa1UpaowFlPIKnzrRYEP4XJbZ_LBRLvYZdsFwHTFIjwiDY1bpmXE4s-pozi-fjx7FBGVv66qNouVGTd_l5iqJwN6BXIxrV19SOdyYbAjv0zRBdgrY2D-oMUZlaa4EhoPxjUtRI6Mzd9wJb8CT7WblS_uQ14c1wVYbuHCTupxxl4VihIyUtCJYMlkCDmjYwUdxPmrAFJgwoB-NQ1v4wFw5oaeoTC9wrI3irAcllN_CwnVmrr-eJXYS4rQ.jpg" width="400"><br>
 
 قرارگاه مرکزی خاتم‌الانبیا در بیانیه‌ای اعلام کرد که هرگونه اقدام شناورهای نظامی جهت مداخله در مدیریت تنگه هرمز یا ایجاد اختلال در تردد، مورد هدف نیروهای مسلح جمهوری اسلامی قرار خواهد گرفت.
 در این بیانیه آمده: «هرگونه تخلف از این ضوابط، امنیت تردد آن‌ها را با مخاطره جدی مواجه خواهد کرد.»
@@ -220,7 +326,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
 
 
@@ -239,9 +345,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 18:36:32
+###### 🔵 Updated at: 2026-05-31 19:51:20
 
-<img src="https://cdn1.telesco.pe/file/PbY9XkwTonv7ZIAqWZiVGyov7kZ1AIODuJWrJAsxpK-JtmckLun4ICm__rykUJN1UXAKB9Hg8RLqeloZZmG94biWVNEic-mDm5s19AB8Gx3La0aWujqb5WL6xmgjP1JVULVWCwMedOBsw94bGuB5HMrjEqT0UQfDJ262e7TWHmaXdUKtII3ACnmSlfs1HYS2xbwGUGgTG7ae-boLYWSW4PvcBKAGHlI5h8xGhK0SWlsAh2ci0SZeX7QAonQLrCsxjk8I9K5jcsWu6ema9X0ZR0Qq5oRwzE_Ec-HPcxFDHLU7fOtTdLbUHnmJvOKuzxIadq92YCcZ_IgP5-a8HAUZtA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jt1nRvc-c1TSzSHI1gFlj4LSp-O48plGshimqaNG4G5UZwpkd5O4IgpU1NmyhjyZHmbJlfNYEZkuRpGZjsPpIwcyJY_jN9dtgXaHl8RKKy4e3jFxHz6Cid7oTOppow8jRj6T9qiC9K6hi7fjF73Ge-7gPl5rXSxg1hk_7Dt5lAZfA3wDNNq_JsLr_kCDZGmC7pkzfP93fa_v41qjA59xiZW6vXVAXNzSJcXcmHo-AmACZ0_X3EBLPGZpW2vCN5qFU1eqU-Wo5nbB6XoVvFY1QU0LSCQgxJPb_FWFj6Vtp_7a6AtNJ47-JNztnBZJ-ZIP9smzy7mqsvHAyqUq0fhjkA.jpg" width="400"><br>
 
 مصطفی نیلی، وکیل دادگستری، اعلام کرد شعبه اول دادگاه انقلاب شیراز بنیامین نقدی را با اتهام «افساد فی‌الارض» به اعدام محکوم کرده است.
 نیلی در گفت‌وگو با امتداد گفت که بنیامین نقدی شامگاه ۱۳ دی‌ماه در شیراز به دلیل شعله‌ور کردن یک کپسول آتش‌نشانی به سمت ماموران نیروی انتظامی بازداشت شد.
@@ -255,97 +361,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75802)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 18:36:32
-
-
-
-اینترنت در ایران آزاد و عادی نشده. بیشتر مسیرهای خارجی یا بسته‌اند یا نیمه‌بازند. فقط بعضی مقاصد و مسیرهای خاص اجازه عبور دارند. همین باعث شده فیلترشکن‌های معمولی خوب کار نکنند.
-در این میون بعضی از افرادی که دامنه‌ها و مسیرهای سفیدشده دارند، دسترسی می‌فروشند. نتیجه‌اش هم شده اینترنت نابرابر، رانتی و پر از راه‌حل‌های موقت.
-انگاری که درِ ساختمون رو کمی باز گذاشته باشن که هوا بیاد، اما اجازه ندن کسی ازش رد بشه.
-برای همینه که گوشی‌تون ممکنه نشون بده که اینترنت دارید، حتی شاید اولش سایت یا اپ مورد نظر رو باز کنه یا بهش واکنش نشون بده، اما در عمل از اینترنت خبری نیست.
-
-[View Post](https://t.me/VahidOnline/75801)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 18:36:32
-
-<img src="https://cdn1.telesco.pe/file/AeC2UoTXi35rTm_ExYSZ732fSwPsfNdyqKLWceC4RcDNnbn0jO9sYcO12lGZu2SQaviSYfymSGXFjttkSO_5m4T0tJ98CrYkLmA5BoyhHSpoDtIjDH_bM2nYAj7nTXz9WuIM1L2MJygpEvPz0FaET5Sqlr-K_QzWbRJeG-sYt4JOAfXuTMerH384QywIw77gHP_AjiZ0RF8XIPlelKazsYVcOj_ZXR2aMm_wiOlO53tTHG-y3QV_u_jg7fkVaCAjonOlzG6wio9ocDSMRu9B0YEmXWVpz6rnQSnuMceNYb6KIwjQGbA2S-mySGf_P7s4LU32YTnQyNZgu2E-gw_wSw.jpg" width="400"><br>
-
-ان‌بی‌سی به نقل از سه منبع آگاه گزارش داد جنگنده اف-۱۵ای آمریکا که ماه گذشته در ایران سرنگون شد، احتمالا با یک موشک دوش‌پرتاب ساخت چین هدف قرار گرفته است.
-به گفته یکی از این منابع و یک مقام آمریکایی آگاه، چین همچنین ممکن است در روزهای نخست درگیری، یک رادار هشداردهنده دوربرد را در اختیار ایران قرار داده باشد که این رادار توانایی شناسایی هواپیماهای رادارگریز را دارد.
-ان‌بی‌سی نوشت مقام‌های آمریکایی همچنان در حال بررسی سرنگونی جنگنده اف-۱۵ای هستند و هنوز روشن نیست تجهیزات نظامی احتمالی چه زمانی به تهران تحویل داده شده است.
-کاخ سفید به ان‌بی‌سی گفت شی جین‌پینگ به ترامپ اطمینان داده پکن تجهیزات نظامی به ایران نمی‌دهد. سخنگوی سفارت چین در واشینگتن نیز گفت پکن صادرات نظامی را «با احتیاط و مسئولیت‌پذیری» کنترل می‌کند و با «تهمت بی‌اساس» مخالف است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75800)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 18:36:32
-
-<img src="https://cdn4.telesco.pe/file/fSOPH_mqsnMqXpKdJYBExYH5HIfVYoe6HnU6hqON5Ywu80JqK_qNDZjqhqZWrr7NodNVGKC7arMJOXFXnmhlUqxLSy0vwAFl1NYSmLYCL4d5bDm0BwcP-fnV4_tn22llIK0K9lbgXEtbF0sXwUUX4oq5P0u7ogbRbKxTXdUDP2oAt0dmZR5ZR0oG3e2Dh2GW6bqFkeH-fM2wS-DnfdP30jV2raK4fXlUEUOcjliDWSz2dG72aPSPSuL5qNr_Fvrv-XylPmJAWcqYKJ6AFMeSdhftayT-Sy6N6n_FMZkOeOhh1wqwRPxJH_z74VH4KIR_Onk0bQEddGu1LH6mcNYFow.jpg" width="400"><br>
-
-'به جای پول نقد قطر موافقت کرده ۶ میلیارد دلار  اعتبار در اختیار تهران قرار بگیرد تا کالاها و محصولات اساسی را از قطر خریداری کند'
-یک منبع آگاه از روند مذاکرات به ایران‌اینترنشنال گفت سفر قالیباف به قطر به شکستی دیپلماتیک منجر شد و با وجود درخواست تهران برای آزادسازی فوری و بی‌قید و شرط ۱۲ میلیارد دلار به صورت نقدی همزمان با امضای یک یادداشت تفاهم اولیه با آمریکا، مقام‌های قطری این درخواست را رد کردند.
-به گفته این منبع، مقام‌های قطری تنها با آزادسازی نیمی از این مبلغ تحت محدودیت‌های سخت‌گیرانه موافقت کردند.
-بر اساس گفته‌های یک منبع نزدیک به یک مقام قطری حاضر در این گفت‌وگوها، دوحه از انتقال مستقیم یا نقدی این منابع به ایران خودداری کرده است. در عوض، این پول تنها به صورت اعتبار در اختیار تهران قرار می‌گیرد تا کالاها و محصولات اساسی را مستقیما از قطر خریداری کند.
-این محدودیت در شرایطی اعمال شده که آمریکا به شدت با اعطای دسترسی مستقیم و بدون محدودیت جمهوری اسلامی به دارایی‌های نقدی مخالفت کرده است.
-آمریکا ابراز نگرانی کرده است که تزریق مستقیم پول نقد می‌تواند برای تهران فضای تنفسی اقتصادی حیاتی ایجاد کند و به آن اجازه دهد حقوق‌های معوقه بخش عمومی را پرداخت کرده و در دوره‌ای از تنش شدید منطقه‌ای، تجهیزات نظامی را از کشورهای دیگر تامین کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75799)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 18:36:32
-
-
-
-خبرگزاری تسنیم، وابسته به سپاه پاسداران، بامداد شنبه ۹ خرداد با انتشار تصاویری مدعی شد بقایای یک پهپاد متعلق به آمریکا و اسرائیل که در حوالی قشم هدف قرار گرفته، کشف شده است.
-تسنیم بیان کرد این پهپاد با واکنش پدافند هوایی ارتش هدف قرار گرفت و منهدم شد.
-پیش از این خبرگزاری مهر به نقل از منابع محلی گزارش داد یک ریزپرنده در حوالی قشم از سوی پدافند هوایی هدف قرار گرفته و منهدم شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75798)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 18:36:32
-
-<img src="https://cdn1.telesco.pe/file/vLOtgjqq_dBi0qfecTbBWs4kVk96UO8b2bKewfWKTS_pBZlDvS3odfxtj0T7sFTE21MLw4BeYOqHYeMDEs-h24ZWuZ3gPxoGT-tYRUrlr9QbuUQjZ5mZXoclIHbvrfCVxYmFX3ob_L2L83FE2tnccCF9v2kY5fVfKScsEccYcYwpvkBQMqgoQ-gG_XCF-5F4zPyWFwqJ7LeJEAnP3MX-ruhow4tpH0dI_xP4Gq1ohbr37h3E-uhjkj7r1W2O9nnf3z-fs_kjSXCLgy_x_VnxCArELFxVV_Q9_UugcyNuMDvf2p4ZfeQ0wI9yHxpDo8srRijUFqvcCfA1XcHlu2X-jA.jpg" width="400"><br>
-
-به گزارش نیویورک‌پست، یکی از آخرین موارد اختلاف بر سر راه توافق احتمالی میان واشینگتن و تهران، چگونگی آزادسازی مرحله‌ای دارایی‌های ایران است که در قطر نگهداری می‌شود و برای اهداف بشردوستانه در نظر گرفته شده است.
-بر اساس این گزارش، منابع مالی مورد بحث مستقیما در اختیار حکومت ایران قرار نخواهد گرفت، بلکه برای خرید مواد غذایی و تجهیزات پزشکی استفاده می‌شود و سپس این اقلام به ایران ارسال خواهد شد.
-نیویورک‌پست به نقل از یک مقام دولت آمریکا نوشت پرداخت تدریجی این منابع به اجرای تعهدات از سوی ایران، از جمله بازگشایی تنگه هرمز و پاکسازی مین‌ها در تنگه هرمز، وابسته خواهد بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75797)
 
 ---
 
