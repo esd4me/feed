@@ -3,7 +3,105 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
+
+<img src="https://cdn4.telesco.pe/file/C75a8REshYwZkyASCvJR8NZjTxBM6D9L7ADwoYzWuCvjmU8B6eZjYs5YT4RI7ZvRQc3zv_2k6uwhP6M-kWV86MsAKYFmzujX-EW3ul-SJicF8WFTDD9cz5bP2wjAYIltWIOSl5ZGHmJJGNpNA0-umbi-dj6GIRogQm6I3Okfo6jXQRyokKsT8leZvcD0zSZpJwKGLa59PVm-mQONzHoGK3xOpbFUBZq-S-m3koKxAOV-dThGQnjAjbJ-mAp6klHMBW0tvki52B91KD0iPzXqOyRIZ1ZKE-LHZLpkFkSiFTvK4T_emL1-vgQC--1l4b4fBLwji6N94H5KZ6Zb-ia2Pg.jpg" width="400"><br>
+
+بر اساس مصوبه جدید شورای شهر تهران، هزینه خدمات مرتبط با خاکسپاری در بهشت‌زهرا به‌طور میانگین حدود ۴۰ درصد افزایش یافته و در برخی موارد رشد تعرفه‌ها به ۵۰ درصد رسیده است.
+روزنامه دنیای اقتصاد گزارش داد نرخ خدماتی از جمله حمل متوفی، تغسیل، تکفین، تدفین و برگزاری مراسم افزایش یافته است. بر اساس این مصوبه، هزینه انتقال هر متوفی از سطح شهر تهران تا شعاع ۱۰ کیلومتری ۵۰ درصد افزایش داشته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75816)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 17:19:01
+
+<img src="https://cdn4.telesco.pe/file/CshAQo1Ho8OYNtQbQBQbYSh2dVxxWYWeRzVoUnFgJEYu_cfL-YQ6TRKDVoC7UHIjwiTTafaug0P07-XPEnBHKjD3q8iNAtGdTgrKm1vdmuNqrVHl08V0u7d_lAhy5kYUBZe00rnjsswfAKjEfsMmW-6x3bYwQWf5hMnft7naGNYNZqO16YTdKECfe8-R6LdgrVGyoU5YU6gd53DMTo6vpu0SnjZQuSz6uYSbhA6YQlMKqjVe5uovIw8BD2Z-a1a_qwQTWzYCcZ4AOSz6rRiCfD7QKmNl4TLk8h0pS5TXoVRtvPga-hQgtZ6iI1MrAzS11NTpgu4aG-ik7fTaw8pb3w.jpg" width="400"><br>
+
+سایت هرانا گزارش داد زهرا شهباز طبری، زندانی سیاسی محبوس در زندان لاکان رشت، پس از نقض حکم پیشین در دیوان عالی کشور، بار دیگر از سوی شعبه دوم دادگاه انقلاب رشت به ریاست محمدعلی درویش‌گفتار، به اتهام «بغی از طریق عضویت و فعالیت در سازمان مجاهدین خلق» به اعدام محکوم شد.
+این زندانی سیاسی ۶۸ ساله، در فروردین ۱۴۰۴ در منزل شخصی خود در رشت بازداشت شده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75815)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 17:19:01
+
+<img src="https://cdn4.telesco.pe/file/EHWkEFK5dtRALD2XETRZpmYpcPf8XI7d4962mz_mUwHCHxu37HS4qGAdfJ-EQBPD0xKXJH2scmMw3MLkGpNdc9GjgNGdd5r4KDvq9qPdAP3XLdVaZTNX1W_uuwxbHLf0vDRe4cyaY5_c6zD6ijH3RI6exZCvBH547VpD_JXJ38f2QWiQkkxXVAv2g_OXEmOpqAt0teA_s2dbo7-7QCpo17AKdU8KktvWwb8Qpfhtnb8LgeA2QrlSKpunQyLHI2h-up1IHL7kD2XuhToIc0NzqKjLEdCq1c4GspafXlmWrN0k7YSqf5796jLjuApkpi83F5Vi-icnOrwS58Vy3BclrQ.jpg" width="400"><br>
+
+نیروی دریایی سپاه پاسداران روز یک‌شنبه اعلام کرد‌ «طی شبانه‌روز گذشته ۲۸ فروند کشتی اعم از نفتکش، کانتینربَر و سایر کشتی‌های تجاری پس از کسب مجوز با هماهنگی و تأمین امنیت نیروی دریایی سپاه از تنگه هرمز عبور کردند.»
+ساعتی پیشتر روزنامه اسرائیلی «اسرائیل هیوم» نوشته بود که ده‌ها نفتکش حامل نفت و گاز طبیعی مایع در هفتهٔ گذشته با اجازه آمریکا و پرداخت عوارض به ایران از تنگهٔ هرمز عبور کرده‌اند.
+این در حالی است که دولت آمریکا بارها اعلام کرده است با پرداخت عوارض به ایران برای عبور از تنگه هرمز مخالف است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75814)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 17:19:01
+
+<img src="https://cdn1.telesco.pe/file/Sf6FM1H8oa9FTeMaLgnUazc6lOhRWrmk7cSh6XQhOABjzbS7ar_MZ8JDPFmuj5lkVWS6YkINvrQOa-FVSLSfqrlkTmI3kkOAzwQTeuPDNWpt-uSOPBiWhD0qoCY-f15QsxO-VqggPNAW64p6-7XoOWnRO5k5VFLIJRV7aQDwfZ58PCIxLpCVZAhTHyXRRy8xxUWdYsuAjQxLP9oYfqnpJWO463T82nDSLSH8reHJF2tf8y8wY8-g-3W9IogoUuKWk-rw0W20iPBd1tYYn0gTu6qOtvJUsjVgRHdAwgWv7j0wk31nOpHZGl1cMzwgCX6XyoR1k1U7Kl3Q1qLNMQJQaQ.jpg" width="400"><br>
+
+جلسه مجازی صحن مجلس شورای اسلامی به ریاست محمدباقر قالیباف و مشارکت آنلاین ۱۸۷ نماینده و حضور ۱۴ نماینده برگزار شد.
+در این جلسه که اولین جلسه از سومین سال مجلس دوازدهم بود، اعضای جدید هیئت رئیسه مجلس سوگند یاد کردند.
+جلسه روز یک‌شنبه، دهم خردادماه، همچون جلسات معدود گذشته در مکانی مخفی برگزار شد.
+محمدباقر قالیباف در همین جلسه تأکید کرد که «تا اطمینان پیدا نکنیم که حقوق ملت ایران را گرفته‌ایم، هیچ توافقی تأیید نمی‌شود».
+قالیباف که از او به عنوان رئیس هیئت مذاکره‌کننده ایران نیز یاد می‌شود در این جلسه بیانیه‌ای را قرائت کرد و در آن ادعا کرد که «در حال عقب نشاندن دشمن در یک جنگ تاریخ‌ساز هستیم».
+@
+VahidHeadline
+محمدباقر قالیباف، رییس مجلس شورای اسلامی گفت: «سومین سال مجلس دوازدهم را در حالی آغاز می‌کنیم که یاد و خاطره رهبر شهید با ماست و هنوز فقدان رهبر و پدر امت را باور نمی‌کنیم.»
+او ادامه داد: «رهبرمان به ما آموخت مقابل زورگویی و تهدید، ذره‌ای سر خم نکنیم و با مشت‌های گره کرده مقابل خصم تا آخرین قطره خون مبارزه کنیم.»
+قالیباف اضافه کرد: «دیدن جای خالی رهبری برایمان جانکاه است، ولی دلگرم به مدیریت و رهبری جدید هستیم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75812)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 17:19:01
+
+<img src="https://cdn1.telesco.pe/file/o4GxOvL0wLf2-zaR4SbkjVulpWHnnw94b_YgO9EPcL6OOnoiXW12cJVuzCe03_Eqo8nvTj8CGympvVlN_i2DacIQyVblUKgx4k1YfwkirmW20Gh6G6ATru-PhT1e08Va5eBu394-Gk4DBH6Gi-fHB5RVEZu1R5VLkWJ43LTfSHic25OAqi-Q4xvWLpUGmdANec8mVWKAiZ8NAb7wfohZAQkmRyDpwDxihZVe0neSg8V_OeOBjvvT80L3AUhMQ_FcbRl7nnEGccxZs8FhzYUfOwmc2RJ3TpsbmPtmTHH2UakReQSHh2eiYg9XId5ysI4fW-rotfTjAMp6HrNBh5-nag.jpg" width="400"><br>
+
+نیروی انتظامی تهران کافه‌ای در خیابان ولیعصر را که در آن برنامه‌های موسیقی اجرا می‌شد، به بهانه آن چه «فعالیت‌های مروج فرقه‌های انحرافی» خواند، پلمب کرد.
+مرکز اطلاع‌رسانی پلیس جمهوری اسلامی در اطلاعیه‌ای نوشت: «این کافه با برگزاری برنامه‌هایی با ظاهر موسیقی غربی، بستری برای حرکات نابهنجار، و آنچه که ماموران توصیف کرده‌اند "تحرکات شیطانی" فراهم آورده بود.»
+نیروی انتظامی جمهوری اسلامی نام این کافه را ذکر نکرد اما ادعا کرد که «مشتریان این کافه، شامل دختران و پسران جوان، در وضعیتی غیرطبیعی و با حرکاتی عجیب و غریب، که از آن به عنوان “شیطانی” یاد شده، مشاهده گردیدند.»
+پیشتر نیز بسیاری از کافه‌ها و اماکن کسب و کار به اتهام‌های مشابه پلمب شده‌ بودند اما جمهوری اسلامی سرکوب‌ شهروندان را از زمان اعتراضات دی‌ماه گذشته تاکنون شدت بیشتری داده است.
+موج تازه اعدام‌ها، صدور احکام سنگین و بازداشت‌ها نگرانی فعالان و نهادهای حقوق بشری را برانگیخته است.
+@
+VahidHeadline
+ویدیوی بالا رو هم به عنوان "تحرکات شیطانی" در اون کافه منتشر کردند!
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75810)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn1.telesco.pe/file/LYlL1f8tW1JnXpNCOGRyC28BBWh-j6cncpm81_A7u181IJyTCduQGeiXf4XIkYlJfWqk-fjomvniteFDQWtxk8_TKgZimeMhQvOjmkpF8rCdtpbUH_b7S18iqbk_vWGodqCqB4_DRdNZbenA6BADuVQ5gqUp372kWVlQ6_Hn_C-oxwgnukwiEwTTD2DwiN4wULy8wl1dHLpvETkL_QTspexVTjV2AL8QRgJNllwdDJpoBY0H8xIyGxXKPtQ1ls2MpeGeXzzd5_nTxDBdfyMVD3m3RimlqraIwZ01DHUdN0OIsg2m221AMWfqmI17mtvWwj62dEgSAPrdkAoSPuHRzA.jpg" width="400"><br>
 
@@ -29,7 +127,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn4.telesco.pe/file/Ek3RvOYMTzB0GmtIEVUuqub6OyyueYNwFR7tGMNJSfkLvtPUb2eF7QffoR0SEvNo6nxXmo-ayoAm6Ex6ttGI6XTD-j3SV2tSZt4dW7pJgKxvxsaw0_9KTSfCy16zLqwWNtzwR2hfYThUxw9RxT8Xpwg7DPO4b7_Ds3i5ZFu-z4OOyXRsf-uIKCDPC5bavvVAh4JVkyw85b_ckH7g2oJbu4_46a8v90BWVod1niX4IJ6UtwAPn5AcJvQUabBebGy2T8G3aQrSYbmKIBkJDRFpi1h_BS4eveJWH0GCjn_gf8hmENXM3kTjxyhSzrmd4_IdEpYH3crY_ptrKSCcESEN2Q.jpg" width="400"><br>
 
@@ -46,7 +144,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn1.telesco.pe/file/ctvg9oKHcfYdYF_GTtdDJv85_b--lajgdGgbPY_ML4tDTxOgE2S18zPFgXOrIbgz8iUHE-WeHdI_kgOqwdkcLIeZK4_BTDRYGcmOfwktsxOEly950eZaiVAZrFneRUgWo6G07Cbf-DJ_IMNPTQ4KnjIy2DQ2HZ7zeQ54tzFCpsUy2njsTA2Ikn3rzAntpua26g_CHVn4fJ5zEW8tq0dX1wui7O1d6T4LFDi5i-4L3dPzCa8vugWLes3ACE_CBQe6DI9Vqm2rGJiy0vHZoWeD_TazixPp3E811djvCHlz8WKbyljAzQoK2kUb-EGFBsEWb6e3vVCzqcxWHAytEGGy0Q.jpg" width="400"><br>
 
@@ -67,7 +165,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn4.telesco.pe/file/iW1Cpcjo7RWWv0d40vK6ZbVkKBwIVK4XvVcfKsqMITKLaxOJz86mFOG11gw9FGkWBTC8Xc4x2VaHkwTciIYHGKVO5hnBLr2Yscn6hLYSGQfQ4QwaxJ_mF4qqjGQrcrRsuE5e-J3j5At2WwRMIx5GwRIiCUrohVKEtJGxdiuwjOhMgZ7mer-mwIEnyy8d5cXX6R690MN6ZcEAn2eJwrm4ymL2JU4EZfDbiy5BNpSGP4dnQKDwXsjl-oFGhqFXnsyGaz5qLgFvLzk0R0aIG2ICAviLmi_XOCMp-DgDoYytgmDCe7gIPgRqTFdWQmYPiJJ7smG2PYu3i6w0kAS--uU5iw.jpg" width="400"><br>
 
@@ -85,7 +183,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn4.telesco.pe/file/jqkvst42AkE1zYZUxb7tj4ZVPpRZIlEuwfBoMvOhoZ727sE_5eW9l3En-te7dF_FyEHI1ksF3b008uQWNy4pu4wsrvE1DMyW-zIN6DwtjSPrdmAHgKXKtpD36jbs82x5aP3UQRbEltEp0KNZIXg8YRqYnyTLHfWYDa-CY0J3ltABXUnw6teppLivUbUmO3a_FMOqM7_4SW_MZClKYLjlgnkKWR7DoJ6j30IyB84oWKLgh7jw-x0LLJpDyrEVlJqYi8mrxeDo31QloP8mzBlHNhLQ-GnQMs_q6WxHC7JYRtJU9XxOOm6CJUhVF8M8lXflf2rhWHMUNPFC85GaQNS-aQ.jpg" width="400"><br>
 
@@ -104,7 +202,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn1.telesco.pe/file/sIG1U2wqn7OouvMpgXhOoFxLC2w0edEETYm8UGRqI81lKS2-sChtp5xanVJPAfmYdV9vf8biCZG9jbJT-TcIFgrzDPRD3yYI414susH51on8lfUucE29SK-PAfXqjZqiOX0CX2RaxTWj02LGHJ_tsJvLO46vHvkoJ222Tk4hNADGWwXZnM4OJ31HTfq2Ycghu4LcxxqDWrYBH-OD75MJzU6TR77coE4IZcdsQPwly0naA4mdHwSxMtdeIu1QfgH8Bu2fJ5BVrrGqc-eh_xl0eHDisL1uX0Wqizpf7owTqYVknGpx6rnSOYm0t4FJ7DatAhcF_MIYxBCraxX2x6Odww.jpg" width="400"><br>
 
@@ -122,7 +220,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 
 
@@ -141,7 +239,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn1.telesco.pe/file/PbY9XkwTonv7ZIAqWZiVGyov7kZ1AIODuJWrJAsxpK-JtmckLun4ICm__rykUJN1UXAKB9Hg8RLqeloZZmG94biWVNEic-mDm5s19AB8Gx3La0aWujqb5WL6xmgjP1JVULVWCwMedOBsw94bGuB5HMrjEqT0UQfDJ262e7TWHmaXdUKtII3ACnmSlfs1HYS2xbwGUGgTG7ae-boLYWSW4PvcBKAGHlI5h8xGhK0SWlsAh2ci0SZeX7QAonQLrCsxjk8I9K5jcsWu6ema9X0ZR0Qq5oRwzE_Ec-HPcxFDHLU7fOtTdLbUHnmJvOKuzxIadq92YCcZ_IgP5-a8HAUZtA.jpg" width="400"><br>
 
@@ -162,7 +260,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 
 
@@ -177,7 +275,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn1.telesco.pe/file/AeC2UoTXi35rTm_ExYSZ732fSwPsfNdyqKLWceC4RcDNnbn0jO9sYcO12lGZu2SQaviSYfymSGXFjttkSO_5m4T0tJ98CrYkLmA5BoyhHSpoDtIjDH_bM2nYAj7nTXz9WuIM1L2MJygpEvPz0FaET5Sqlr-K_QzWbRJeG-sYt4JOAfXuTMerH384QywIw77gHP_AjiZ0RF8XIPlelKazsYVcOj_ZXR2aMm_wiOlO53tTHG-y3QV_u_jg7fkVaCAjonOlzG6wio9ocDSMRu9B0YEmXWVpz6rnQSnuMceNYb6KIwjQGbA2S-mySGf_P7s4LU32YTnQyNZgu2E-gw_wSw.jpg" width="400"><br>
 
@@ -196,7 +294,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn4.telesco.pe/file/fSOPH_mqsnMqXpKdJYBExYH5HIfVYoe6HnU6hqON5Ywu80JqK_qNDZjqhqZWrr7NodNVGKC7arMJOXFXnmhlUqxLSy0vwAFl1NYSmLYCL4d5bDm0BwcP-fnV4_tn22llIK0K9lbgXEtbF0sXwUUX4oq5P0u7ogbRbKxTXdUDP2oAt0dmZR5ZR0oG3e2Dh2GW6bqFkeH-fM2wS-DnfdP30jV2raK4fXlUEUOcjliDWSz2dG72aPSPSuL5qNr_Fvrv-XylPmJAWcqYKJ6AFMeSdhftayT-Sy6N6n_FMZkOeOhh1wqwRPxJH_z74VH4KIR_Onk0bQEddGu1LH6mcNYFow.jpg" width="400"><br>
 
@@ -217,7 +315,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 
 
@@ -235,7 +333,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 15:28:01
+###### 🔵 Updated at: 2026-05-31 17:19:01
 
 <img src="https://cdn1.telesco.pe/file/vLOtgjqq_dBi0qfecTbBWs4kVk96UO8b2bKewfWKTS_pBZlDvS3odfxtj0T7sFTE21MLw4BeYOqHYeMDEs-h24ZWuZ3gPxoGT-tYRUrlr9QbuUQjZ5mZXoclIHbvrfCVxYmFX3ob_L2L83FE2tnccCF9v2kY5fVfKScsEccYcYwpvkBQMqgoQ-gG_XCF-5F4zPyWFwqJ7LeJEAnP3MX-ruhow4tpH0dI_xP4Gq1ohbr37h3E-uhjkj7r1W2O9nnf3z-fs_kjSXCLgy_x_VnxCArELFxVV_Q9_UugcyNuMDvf2p4ZfeQ0wI9yHxpDo8srRijUFqvcCfA1XcHlu2X-jA.jpg" width="400"><br>
 
@@ -248,153 +346,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75797)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 15:28:01
-
-
-
-اسکات بسنت، وزیر خزانه‌داری ایالات متحده، روز جمعه هشتم خرداد در «مجمع اقتصادی ملی ریگان» اعلام کرد که واشنگتن حدود یک میلیارد دلار از دارایی‌های رمزارزی مرتبط با حکومت ایران را به طور مستقیم توقیف و کیف‌پول‌های دیجیتال آن‌ها را ضبط کرده است.
-او با تاکید بر اینکه این اموال در واقع پول‌های دزدیده‌شده از مردم ایران است، اشاره کرد که بسیاری از صاحبان این حساب‌ها هنوز متوجه ضبط دارایی و کیف‌پول دیجیتال خود نشده‌اند.
-وزیر خزانه‌داری آمریکا همچنین افزود واشنگتن با همکاری نزدیک متحدان اروپایی خود در حال ردیابی و توقیف املاک و مستغلات، از جمله ویلاها و خانه‌های متعلق به این افراد در سراسر اروپا است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75796)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 15:28:01
-
-<img src="https://cdn1.telesco.pe/file/rnByf3ljTf8XP5U1sVKU3MbUUUVY9dkhs1H4dydJys9qzgkc3Em5-SqjevdDONSaDEeK3CCx0yN2OuUZ-frOD9o5pEmRl4tWj6hd_YBJBddHkpdE-QaMSTTH8opDxWCexpZ7qSjqonPXmhoJadUfqChM3MYf81KVjuOgHl1oyB2mWlSb9YbAIEUdp-hUZQFjAgCU6eJkUJIwO3FZXKLP1OkB93XfamZflGkZ37t8VBO-R9L53982i9S6ydwXAU8X79LQujBSeqK3BqmsWYmXU7X3T-jdNC_royQwBU7KxNrCHfEvPkKvoZFUVp6HHadzTTx9sK2If_fRTdIyeF0EOg.jpg" width="400"><br>
-
-نیویورک‌تایمز به نقل از یک مقام ارشد آمریکایی گزارش داد نشست دونالد ترامپ در «اتاق وضعیت» کاخ سفید دو ساعت به طول انجامید، اما رییس‌جمهور آمریکا هنوز درباره هیچ توافق جدیدی با تهران به تصمیم نهایی نرسیده است.
-این مقام افزود دولت آمریکا معتقد است به دستیابی به توافق نزدیک شده، اما برخی مسائل از جمله آزادسازی دارایی‌های مسدودشده همچنان محل بررسی و اختلاف‌نظر است.
-@
-VahidOOnLine
-یک مقام ارشد به خبرگزاری آسوشیتدپرس گفت که این جلسه در حال بررسی چارچوب توافقی بود که آتش‌بس را به مدت ۶۰ روز تمدید می‌کرد و مذاکرات در مورد برنامه هسته‌ای ایران را پیش می‌برد.
-این مقام رسمی در مورد اینکه آیا ترامپ پس از این جلسه تقریباً دو ساعته تصمیمی برای پذیرش این توافق اولیه گرفته است یا خیر، اظهار نظری نکرد.
-sky
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75795)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 15:28:01
-
-<img src="https://cdn4.telesco.pe/file/paNePfhNe9MoCHgukX-oIo1wcBT2P9AD6-VZexFGXnKujfc7WTaYsgAMO2KMsgM2ewUAinTVmptgC5XG0MGt3LQlHBJtskFZrN2fytG-ryiBVw6jr8LsfUp-iMsovppKmFU-PHqopzIgeTU0MlRsZbs_A15AO58dM17GDfPJWPzh6oohgVrd3ouy0OkShaIwoHmW30OBiZJ_7megAG6hrzB_Jirrs3gVXw1omvw3QvgdZfbFK9sDxrSO8WfKBjHr56HYrINPrlWU1QdAhBaZ2OoOiERJHklLPtuGpjmPA7qpwy6qXKDVqjnFCInlRlZflFNp-5zIQhoqUnfGxzoJZw.jpg" width="400"><br>
-
-روزنامه وال‌استریت ژورنال روز جمعه هشتم خرداد، در گزارشی اختصاصی به نقل از منابع آگاه فاش کرد که امارات متحده عربی در طول جنگ، ده‌ها حمله هوایی را علیه مواضعی در ایران انجام داده است.
-منابع وال‌استریت ژورنال می‌گویند نقش امارات در این کارزار نظامی، «بسیار عمیق‌تر» از آنچه که پیش‌تر گزارش شده، بوده است.
-بر اساس این گزارش، این حملات با هماهنگی کامل واشنگتن و تل‌آویو و با اتکا به اطلاعات ارائه‌شده از سوی آن‌ها انجام شده است.
-اهداف امارات شامل جزایر قشم و ابوموسی در تنگه هرمز، بندرعباس، پالایشگاه نفت جزیره لاوان و مجتمع پتروشیمی عسلویه بوده است.
-حملات به عسلویه که به صورت مشترک با اسرائیل و در پاسخ به ضربات جمهوری اسلامی به زیرساخت‌های انرژی امارات انجام شد، واکنش‌های شدید بین‌المللی را برانگیخت و واشنگتن را وادار کرد از اسرائیل بخواهد حمله به تاسیسات انرژی را متوقف کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75794)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 15:28:01
-
-
-
-#قشم
-پیام‌های دریافتی درباره فعالیت پدافند:
-سلام وحید
-قشم ساعت ۲۱:۲۵ تاریخ جمعه ۸ خرداد
-پدافند فعال شد من در محدوده قلعه پرتغالی‌ها شهر قشمم و شلیک پدافند کاملا قابل دیدن و شنیدن بود
-21:26 هشتم خرداد جزیره
-#قشم
-صدای توافق خیلی بلند به گوشمون رسید. حدود یک دقیقه صدای شدید پدافند، احتمالا برخورد موفق با پهباد نفوذی.
-درود همین پنج دقیقه پیش پدافند قشم داشت شلیک می کرد درگیری بود
-ساعت 21:25
-همین الان پدافند قشم فعال شد و یک چیزی رو زد
-🔄
-آپدیت:
-تسنیم: "در پی رصد ریزپرنده متخاصم دشمن آمریکایی ـ صهیونی در حوالی قشم توسط پدافند هوایی ارتش، بلافاصله در عملیات موفق مورد اصابت قرار گرفت و منهدم شد."
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75793)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 15:28:01
-
-<img src="https://cdn1.telesco.pe/file/DZlC6kaW1ukfEpQxO6Qs-8IEAZheziw01rEbUE8ngNKmhFPGvkyjZwuo1jg0laG3qzvpfPiOiKR6136BPnz7DDxgnuDGzd36X3xKegVRznnqXwz9xl3Tb9hwLrSLqfYSVGGf47vpIt_8_q7EFYAZ_eKKTElQblM-Qk5KKYpYYEB5RjCuoNm9OjKI3_Q9d9AUeb3u15PGc4CG-Ce2XX0XlsFEeCxsoHIIh5iP6vCT_d5qjl1gzFpcvZ9ICwAGrG15Ec6kFfAMHZsc7BirkzMVPFKldlxc7EZAVWqPzFfjBUUW8U2mZfrrCvRuQUtA2AUcptpwq8NprYYaeO8H8PhbHg.jpg" width="400"><br>
-
-دونالد ترامپ پستی از نیوت گینگریچ، رییس پیشین مجلس نمایندگان آمریکا، را در تروث سوشال بازنشر کرد که در آن نوشته شده بود: پس از بررسی جنگ ایران در این هفته، متقاعد شدم ترامپ در آستانه یک پیروزی تاریخی قرار دارد
-IranIntlbrk
-پستی که گینگریچ ۸ ساعت پیش نوشته بود، ترجمه ماشین:
-پس از آنکه این هفته را صرف بررسی جنگ ایران کردم، اکنون متقاعد شده‌ام که رئیس‌جمهور ترامپ در آستانه یک پیروزی تاریخی قرار دارد. نقطه عطف واقعی برای من زمانی رقم خورد که تصمیم‌ها و مانورهای رئیس‌جمهور ترامپ را نه از منظر یکجانبه‌گرایی آمریکا، بلکه از منظر رهبر یک ائتلاف تاریخی چشمگیر بررسی کردم؛ بزرگ‌ترین ائتلافی که تاکنون در خاورمیانه مدرن شکل گرفته است.
-همه می‌دانند که اسرائیل متحد مهمی است. اما آنچه کمتر درباره آن صحبت می‌شود، عمق حمایت امارات متحده عربی، قطر، بحرین، عربستان سعودی و دیگر کشورهای منطقه است. برای دیکتاتوری ایران باید بسیار تأمل‌برانگیز باشد که دریابد حتی یک متحد ندارد که حاضر باشد محاصره دریایی آمریکا را به چالش بکشد. آرام‌آرام، به‌تدریج و با احتیاط، متحدان اروپایی ما نیز در حال صف‌آرایی برای کمک در خلیج فارس و تنگه هرمز هستند.
-بخش بزرگی از مانورهای رئیس‌جمهور ترامپ علیه ایران زمانی معنا پیدا می‌کند که او را نه صرفاً یک رئیس‌جمهور یکجانبه‌گرای آمریکایی، بلکه رهبر یک ائتلاف ببینیم. من بخش زیادی از چند هفته گذشته را صرف بررسی گزینه‌های نظامی کردم؛ از جمله پیروزی در نبرد خلیج فارس و تنگه هرمز و، در صورت لزوم، استفاده از سطحی تکان‌دهنده و خردکننده از قدرت نظامی؛ مشابه آنچه رئیس‌جمهور نیکسون و وزیر خارجه کیسینجر در کریسمس ۱۹۷۲ علیه هانوی و هایفونگ به کار گرفتند؛ اقدامی که هر دو رهبر معتقد بودند ویتنام شمالی را به پذیرش آتش‌بس و آزادی اسرای آمریکایی متقاعد کرد.
-اگر این یک کارزار یکجانبه آمریکایی بود، می‌توانستم با اشتیاق از یک کارزار نظامی تهاجمی‌تر حمایت کنم. اما در عین حال روشن است که چنین اقدامی ائتلاف را از هم می‌پاشاند، زیرا متحدان عرب ما متقاعدند که ایران هنوز می‌تواند خسارت عظیمی به میدان‌های نفتی و زیرساخت‌های آنان وارد کند. ائتلاف‌ها ذاتاً کندتر از کارزارهای یکجانبه عمل می‌کنند. با این حال، ائتلاف‌ها در نهایت قدرتی به‌مراتب بیشتر را وارد میدان می‌کنند.
-من نیز مانند همه دیگران از سرعت گفت‌وگوها با این دیکتاتوری سرخورده‌ام؛ اما پس از بررسی توازن قوا و گزینه‌های در دسترس ائتلاف از یک سو، و دیکتاتوری مذهبیِ ایران از سوی دیگر، آماده‌ام بگویم که رهبری ائتلافیِ رئیس‌جمهور ترامپ ــ چیزی که تقریباً هیچ‌یک از منتقدان او نمی‌خواهند به آن اذعان کنند ــ در آستانه دستیابی به یک پیروزی عظیم تاریخی است.
-و اگر دیکتاتوری ایران در نهایت ثابت کند که به شکلی نومیدانه به موضعی انتحاری پایبند است، زمان کافی برای یک کارزار نظامی با قدرت و اثربخشی عظیم وجود خواهد داشت. در هر صورت، ما در آستانه یک پیروزی شگفت‌انگیز برای ارزش‌های خود و برای خاورمیانه‌ای امن‌تر قرار داریم.
-NewtGingrich
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75792)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 15:28:01
-
-<img src="https://cdn4.telesco.pe/file/qEY5x19Brbib2g8GaSQE5PPAfv0ZMwdpo5ad5BlBq6DVicB2WS_4KUkmh_xCpilnwTTIpWlyMZjvceDDv_IKTKOVTfY2wsEVth9-1_4eDWvdsDYzc7z-cxmjh-Av-rdeKRlT2ke0XgqyJp2Dxb55a1axb-lKMx0ulqKL1aiR8B3wKp2O_uLOENu8m2lID19en918hUSNe-gXYBL9M5vZBLDauMAaDgeMP4xlFs1Kiwq-wN9qDR0XFc34Z4paHX5tW2iTx5iC_vXAdbAbNldbypEDx3p1ZPeLxbU5hy4lUHn2jEQerd5HqJEc5okWUDoic4x6J7ohmzYBH6IzTdXRvQ.jpg" width="400"><br>
-
-مهدی خانعلی‌زاده، عضو تیم رسانه‌ای هیات مذاکره‌کننده جمهوری اسلامی، نوشت که در متن تفاهم احتمالی هشت بند از ۱۰ بند بیانیه شورای عالی امنیت ملی که به تایید مجتبی خامنه‌ای رسیده، رعایت نشده و زیر پا گذاشته شده است.
-او افزود که تفاهم‌نامه کنونی برخلاف بیانیه آتش‌بس شورای عالی امنیت ملی است و مشخص شده که اساسا مذاکرات پسااسلام‌آباد، بر مبنای شروط رهبری انجام نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75791)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 15:28:01
-
-<img src="https://cdn1.telesco.pe/file/I4s7cGpEbkd2PGG1PcBtrzf2WAiU467aUVotBn7og6jg2S9LujZyKHZhBP8bAMQUju953HJspro-Qi4XKww4dbW7sRwkS7z7Ena79Ej9xpXv1hjBnk-1rVzSZUh5PSo6z4ZE9fsmWeuMTECCTn9xaTV_d4USJjj4RJpfoOTPV8lCvGv5us6JF4mu8dYmFkTPGJsPiesEObeeNBndPBPO0oJ_gkdebDY8DHVvoqjrqbWTvbDy6YrGp9J-11_dtwaNBWI0kutRCrz36GXOzKsT9mHE65qb3_9fZLbNPyxxf7bYLGGQTNdrfNL6BhtHvVRV-uY3Ou42jajlo3iSRMOJIA.jpg" width="400"><br>
-
-اسماعیل بقایی، سخنگوی وزارت خارجه ایران در مصاحبه‌ای با صدا و سیما گفت که تبادل پیام‌ها ادامه دارد ولی هنوز هیچ توافقی نهایی نشده است و افزود که مدیریت تنگه هرمز باید توسط ایران و عمان تعیین شود.
-او بار دیگر گفت: «در این مرحله بر خاتمه جنگ متمرکز هستیم و در مورد پرونده هسته‌ای هیچ مذاکره‌ای نداریم.»
-این اظهارات در حالی از سوی ایران مطرح شده که آقای ترامپ فهرستی از خواسته‌هایی را که می‌گوید ایران باید برآورده کند، مطرح کرد که شامل تعهد ایران به عدم دستیابی به سلاح هسته‌ای، باز کردن تنگه هرمز بدون دریافت عوارض، مین‌روبی کامل این آبراه و خارج‌سازی ذخایر اورانیوم ‌غنی‌شده ایران با همکاری آمریکا و تحت نظارت آژانس و سپس از بین بردن این مواد است.
-@
-VahidHeadline
-پیش‌تر: خبرگزاری فارس، نزدیک به سپاه پاسداران، نیز به نقل از یک منبع ایرانی دیگر اظهارنظر رئیس‌جمهور ایالات منحده دربارهٔ توافق احتمالی با ایران، را «آمیخته‌ای از راست و دروغ» خوانده است.
-این منبع گفته که در متن توافق بندی درباره باز شدن تنگه هرمز بدون دریافت عوارض وجود ندارد و تفاهم بر سر نابودی دخایر اورانیوم ایران را نیز «بی‌اساس» دانسته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75790)
 
 ---
 
