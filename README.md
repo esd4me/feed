@@ -3,7 +3,42 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
+
+<img src="https://cdn1.telesco.pe/file/r3RLeQHV9-Y3Ny35FFnDtvd4O8k5tAnDgUr68gkRcGmkIzFjAFFOyT9wyl7ue8NniFMAHY4pfzInhhTxK5G4N_7_Bi7B1fmbTItPox6RG_hYooF69nZbTn4_DzO6KNer244MB2XUNDDY7sUP3PRA2IppRrLoraG9rl_JUKs9Good3QWUhoa_iu5v4UUKVIhxGuSYueHtoIZihKQBnfJcQeM18TLIfiWjdU364siMelYBLzaoDFSCkfVtUmk8r7W6l44gauC2LOm7CLQl6GYbMi3lkgAoncs5FXlLSZWZ_CQbeFSwdE0NxjYcE1w4JJRMvowCVaofa4HiAV9NQb5mdg.jpg" width="400"><br>
+
+فاکس نیوز هم به درخواست استعفای پزشکیان پرداخته:
+FoxNews
+چند مقام دولتی در ایران از جمله سخنگوی دولت این کشور با تکذیب شایعه استعفای مسعود پزشکیان، آن را «خبر کذب با هدف ایجاد ناامیدی» خواندند.
+فاطمه مهاجرانی، سخنگوی دولت، الیاس حضرتی و علی احمدنیا که از اعضای شورای اطلاع رسانی دولت آقای پزشکیان هستند در پست‌های جداگانه به ادامه کار رئیس جمهوری و تلاش او برای «حل مسائل کشور» اشاره کرده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75825)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 00:32:21
+
+<img src="https://cdn1.telesco.pe/file/Rai_COe3zYcSQzan7oUQKfLr-gEFUPOlFCv72YYlS7dNW925Dxoebrt8ZLwVykPWZpZWXiPOkiCvWECn50fY_EFTdMmbR96n-kqhmb0_BiiSsVtdcW3gz3R88ZZt_hmr_twa3kKridCLf_pCPznS3plrGY0tSFOh3CWEYXCorbhZuAyh69Og4Uq9vgm9vo6gR06Dm8wbMFJ1NnBmYqZF6Gmk0VJ-pKEENVXVHa2IINV0vCwNE7tAsn0LLhWKekc0ZxFEcX63qrc-SAWcMKKRw3g6tbsPZUnI5Kpoxysb-D2ccOHdiw2XQBiDUWXyCKYjifdbEcNJRJY9n4iVNZJJDw.jpg" width="400"><br>
+
+به گزارش تسنیم، خبرگزاری وابسته به سپاه، یکشنبه‌شب «نشت و انفجار شدید گاز» در یک مجتمع ۴۰ واحدی واقع در فاز یک اندیشه، دست‌کم ۴ مجروح برجای گذاشت. بر اساس اعلام سازمان آتش‌نشانی، این حادثه در طبقه سوم این مجتمع رخ داده و با توجه به شدت انفجار و ارزیابی‌های اولیه در محل، احتمال افزایش شمار مجروحان وجود دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75824)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 
 
@@ -20,7 +55,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn1.telesco.pe/file/mWFlQs04vZ9IyS1ElfHGtorzRgw7og9XXEOgQycMHXWw6w942GcFZdIIg_p9Q6KY4yxlIGF1SDZGQvq7whubGnwEbjKpbdwRseRSbuJlDaR-k3ivdKD-6b10yNXeaqveUGLaEZ5pyjaPxvy8zx5lA5wJZral5cVhGBmfRclG5vd3hkQcUbM74AtztyaIKivElInHMGNjiJ3mloeVce2-wRLUrxssa-eP1kSlbR5rO_R2Rk-MwdYpG8aoF50otusLsfwSfA65qM7rDdEdpq064mtmPWrW7fgJPLU75Q7eNQ5940eMXvT1nKNexGztQ4u8_76Lw1MtHQbsdCT8if92Uw.jpg" width="400"><br>
 
@@ -34,7 +69,7 @@ IranIntlbrk
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn4.telesco.pe/file/v9QccuOXyeOdOlzJ-d1UYJ_3l6FvKI5F8M1qtVzig6G36XcQmV3ghxRcp6gEBoqTNZy-0x8y38LNdz80K6yEYVgKfJZG5flPJrWiZTrktQYU1qyfDLInCgeU8txjnQkBuy2W2MnhCV4TMlvfzSuTRg6DDJgPY4Pt7AGvN2mWKm_AipaDTnbK0s0OjY0bOgfIhWKTz8xXWHfADFOSFEO-tht_EOScUDuhjw5D4rbsxg2P6APYpCMaafNPVhDlIbhBt_5S-JZGJLA7mJXsdhSAZqZkuxt8ZaJ8dMqDvuu1FCB9XiJ4qPJVPpNI8VgKGg1lgiv9piFZeyUxbFyvKZyNkA.jpg" width="400"><br>
 
@@ -52,7 +87,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 
 
@@ -71,7 +106,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 
 
@@ -95,7 +130,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn1.telesco.pe/file/R8rx0iTw4cssqahePG7fK3f9DcUY6XccNpf8qEfZRDQfF1Hqa-zfjE1alOzFd3QrxG81X4eYf5YKW2wN94FYQSJP3U7_R14FylV-kyCFXRk1M_zLQEPC8587x-3C_nitHrqBu5P3oZ1gw4DEPwxzLDHQdA3fJtyeIOgeaj2tc64DyuKZ0KoPHhCx5Nj9X1GVM41_aGh_kFwgG0g7PdtubyhXcZfhUVgEoy2OoCMl2gkfxcZoSQCkr_2lOCGd0cAQOVoGzJZeV4xnnr1ggPTdGAHlpHJdsRevaqsOXoDkrwKBHxsCyMzoylp4MnWcST1MEUmfc-bzp-P8BG0vGHzdVQ.jpg" width="400"><br>
 
@@ -117,7 +152,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn1.telesco.pe/file/q6xKN3YRm2Zv-57FT2RJWjQ6ydKQagpgTWTwRLlbJD8O8oWvapVUrb8xoX3Ouf_p_Xu3WwHrZN_dchC8PCz3q8DMAbjaojOwEQVX4LWgB9okBZQRLMpxEg4-JWHhNrS3DFint_NfWTlzZLV5Qn85rES7C-Gi49rsRjaMKUzKXP9cXfkMt4larJruWWsHa4T8_ePJg0kBqTj0-uVoCti8HsmDBMc0_lci39sCkuWYTJVJ0A0mlzB_egaXBw9MhLo_MLVhRg9F98lU5kJKtL4XSbIg-Vs-EtftNHIfrFfzc1R1P7Y1Kk45aHl5c93u2OYH5CQ02nWDTxUOJzWLHKUa6A.jpg" width="400"><br>
 
@@ -140,7 +175,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn4.telesco.pe/file/C75a8REshYwZkyASCvJR8NZjTxBM6D9L7ADwoYzWuCvjmU8B6eZjYs5YT4RI7ZvRQc3zv_2k6uwhP6M-kWV86MsAKYFmzujX-EW3ul-SJicF8WFTDD9cz5bP2wjAYIltWIOSl5ZGHmJJGNpNA0-umbi-dj6GIRogQm6I3Okfo6jXQRyokKsT8leZvcD0zSZpJwKGLa59PVm-mQONzHoGK3xOpbFUBZq-S-m3koKxAOV-dThGQnjAjbJ-mAp6klHMBW0tvki52B91KD0iPzXqOyRIZ1ZKE-LHZLpkFkSiFTvK4T_emL1-vgQC--1l4b4fBLwji6N94H5KZ6Zb-ia2Pg.jpg" width="400"><br>
 
@@ -157,7 +192,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn4.telesco.pe/file/CshAQo1Ho8OYNtQbQBQbYSh2dVxxWYWeRzVoUnFgJEYu_cfL-YQ6TRKDVoC7UHIjwiTTafaug0P07-XPEnBHKjD3q8iNAtGdTgrKm1vdmuNqrVHl08V0u7d_lAhy5kYUBZe00rnjsswfAKjEfsMmW-6x3bYwQWf5hMnft7naGNYNZqO16YTdKECfe8-R6LdgrVGyoU5YU6gd53DMTo6vpu0SnjZQuSz6uYSbhA6YQlMKqjVe5uovIw8BD2Z-a1a_qwQTWzYCcZ4AOSz6rRiCfD7QKmNl4TLk8h0pS5TXoVRtvPga-hQgtZ6iI1MrAzS11NTpgu4aG-ik7fTaw8pb3w.jpg" width="400"><br>
 
@@ -174,7 +209,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn4.telesco.pe/file/EHWkEFK5dtRALD2XETRZpmYpcPf8XI7d4962mz_mUwHCHxu37HS4qGAdfJ-EQBPD0xKXJH2scmMw3MLkGpNdc9GjgNGdd5r4KDvq9qPdAP3XLdVaZTNX1W_uuwxbHLf0vDRe4cyaY5_c6zD6ijH3RI6exZCvBH547VpD_JXJ38f2QWiQkkxXVAv2g_OXEmOpqAt0teA_s2dbo7-7QCpo17AKdU8KktvWwb8Qpfhtnb8LgeA2QrlSKpunQyLHI2h-up1IHL7kD2XuhToIc0NzqKjLEdCq1c4GspafXlmWrN0k7YSqf5796jLjuApkpi83F5Vi-icnOrwS58Vy3BclrQ.jpg" width="400"><br>
 
@@ -192,7 +227,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn1.telesco.pe/file/Sf6FM1H8oa9FTeMaLgnUazc6lOhRWrmk7cSh6XQhOABjzbS7ar_MZ8JDPFmuj5lkVWS6YkINvrQOa-FVSLSfqrlkTmI3kkOAzwQTeuPDNWpt-uSOPBiWhD0qoCY-f15QsxO-VqggPNAW64p6-7XoOWnRO5k5VFLIJRV7aQDwfZ58PCIxLpCVZAhTHyXRRy8xxUWdYsuAjQxLP9oYfqnpJWO463T82nDSLSH8reHJF2tf8y8wY8-g-3W9IogoUuKWk-rw0W20iPBd1tYYn0gTu6qOtvJUsjVgRHdAwgWv7j0wk31nOpHZGl1cMzwgCX6XyoR1k1U7Kl3Q1qLNMQJQaQ.jpg" width="400"><br>
 
@@ -217,7 +252,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn1.telesco.pe/file/o4GxOvL0wLf2-zaR4SbkjVulpWHnnw94b_YgO9EPcL6OOnoiXW12cJVuzCe03_Eqo8nvTj8CGympvVlN_i2DacIQyVblUKgx4k1YfwkirmW20Gh6G6ATru-PhT1e08Va5eBu394-Gk4DBH6Gi-fHB5RVEZu1R5VLkWJ43LTfSHic25OAqi-Q4xvWLpUGmdANec8mVWKAiZ8NAb7wfohZAQkmRyDpwDxihZVe0neSg8V_OeOBjvvT80L3AUhMQ_FcbRl7nnEGccxZs8FhzYUfOwmc2RJ3TpsbmPtmTHH2UakReQSHh2eiYg9XId5ysI4fW-rotfTjAMp6HrNBh5-nag.jpg" width="400"><br>
 
@@ -238,7 +273,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn1.telesco.pe/file/LYlL1f8tW1JnXpNCOGRyC28BBWh-j6cncpm81_A7u181IJyTCduQGeiXf4XIkYlJfWqk-fjomvniteFDQWtxk8_TKgZimeMhQvOjmkpF8rCdtpbUH_b7S18iqbk_vWGodqCqB4_DRdNZbenA6BADuVQ5gqUp372kWVlQ6_Hn_C-oxwgnukwiEwTTD2DwiN4wULy8wl1dHLpvETkL_QTspexVTjV2AL8QRgJNllwdDJpoBY0H8xIyGxXKPtQ1ls2MpeGeXzzd5_nTxDBdfyMVD3m3RimlqraIwZ01DHUdN0OIsg2m221AMWfqmI17mtvWwj62dEgSAPrdkAoSPuHRzA.jpg" width="400"><br>
 
@@ -264,7 +299,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn4.telesco.pe/file/Ek3RvOYMTzB0GmtIEVUuqub6OyyueYNwFR7tGMNJSfkLvtPUb2eF7QffoR0SEvNo6nxXmo-ayoAm6Ex6ttGI6XTD-j3SV2tSZt4dW7pJgKxvxsaw0_9KTSfCy16zLqwWNtzwR2hfYThUxw9RxT8Xpwg7DPO4b7_Ds3i5ZFu-z4OOyXRsf-uIKCDPC5bavvVAh4JVkyw85b_ckH7g2oJbu4_46a8v90BWVod1niX4IJ6UtwAPn5AcJvQUabBebGy2T8G3aQrSYbmKIBkJDRFpi1h_BS4eveJWH0GCjn_gf8hmENXM3kTjxyhSzrmd4_IdEpYH3crY_ptrKSCcESEN2Q.jpg" width="400"><br>
 
@@ -281,7 +316,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn1.telesco.pe/file/mSYKky0fC6w5ooCo8Rm9tDzb1bVWUIB45awRdub7--jjZeLBEME6OU8N97YNnVOPWik-29d83jB4c9YLAy5zExOeUVVAMsSjMSbDdpsqtoVTPvYDLnnHarVqU0G7a8hzPIbuRPOEs2FuOBd0yV5KnxjGm2b9oM8nGk2GXSh8ptQbzOg1bQ9-j-9kulz32qzo9gK1-ZVf3vA341PZNsMWXqE4lCV3tGepyPK186smsX8eUlWL7uiuywTj5llksoOMRDWSm48f9r2g3cNWpaWceh_oaU_uVtuhBtzdN4vzMJUEEl8pc0tP0GucRWZ28c1LHItqUW7bnQiTriPyuvngzA.jpg" width="400"><br>
 
@@ -302,7 +337,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 23:28:02
+###### 🔵 Updated at: 2026-06-01 00:32:21
 
 <img src="https://cdn4.telesco.pe/file/e0XMchXGFZauoHhGUuSdcRYMTF7RDi1qTtRXBQTil9vZ3-qbKgp8QyvZZ1kUUt_ugC2-NDlO0GvYodgoj16HtugdzouOnDU_CXuB7r_3yy50UoW0QzlFiEhqMMWD-xATcPz4IjvPXjHrG7J_eJnHPZpwk7HoKMDBU5dh73lsXV2WtQ1EaA99NN-tpamrkPAYjBfTwTE4w3_KhS6XIuJhf3see_Qy2EecbR_exeCYz-OdtNozRegSH0yHdn9mU3y3BJeyYkt159a9EITCzCYyUI0AR6bfzjfy8pWXSAcLUJsTYFJu7hWj9JZlPmQRL9qOiacVxuU0BfSVbJXP-nOvvw.jpg" width="400"><br>
 
@@ -315,43 +350,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75806)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 23:28:02
-
-<img src="https://cdn4.telesco.pe/file/AdmK4GkqOdX6guIWd9bOJTcJdwHki5tn4xNFF-F3PZIJvsZfANI0-MIFbuqeE9Qz2w41Bx1imPcDCtdzoIqojLcZx1Hhuvrb1T2qp2Hd2EviZOEEcLkiDfvP-URnmA2IWZ0IvNHmtqT-MMOXU9EjKlDklP2actG4_FUE6mEobExUQ4PtD3rNWClB2R0hGx-Q4tTrsM5rjlusW1NUCN4LKpXsOrgoEiz1bx0oqi-ei7PQOUn49EHnfCgrthR0YRUZiBzhwjfIBBV9F58cneHi0XkKSwUB4gDQMg3MgbtKvOB8j557Ka4x5YGoI0ZrU87FAcmkB9EKOSKkaCjO9KyEtg.jpg" width="400"><br>
-
-♦️
-به گزارش نیویورک‌پست، در پی حمله موشکی جمهوری اسلامی به یک پایگاه هوایی در کویت، چند نفر از نیروهای نظامی و پیمانکاران آمریکایی مجروح شدند. این حمله در حالی رخ می‌دهد که دونالد ترامپ، رئیس‌جمهوری آمریکا، در حال ارزیابی پذیرش آخرین پیشنهاد صلح تهران یا بازگشت به شرایط جنگی است.
-یک منبع مطلع روز شنبه نهم خرداد، اعلام کرد که در پی رهگیری یک موشک «فاتح-۱۱۰» توسط پدافند هوایی کویت طی ۲۴ ساعت گذشته، قطعات و ترکش‌های ناشی از انهدام موشک بر فراز پایگاه هوایی «علی السالم» فرود آمده و منجر به جراحت سطحی چند آمریکایی شده است. این حادثه همچنین خسارت شدیدی به دو پهپاد «ام‌کیو-۹ ریپر» (MQ-9 Reaper) به ارزش تقریبی ۳۰ میلیون دلار وارد کرده است.
-این حمله در شرایطی صورت گرفته که دونالد ترامپ روز جمعه با تیم امنیتی خود تشکیل جلسه داد و اعلام کرد که قصد دارد تصمیم نهایی را درباره توافق با ایران اتخاذ کند؛ توافقی که شامل تمدید ۶۰ روزه آتش‌بس، بازگشایی تنگه هرمز و آغاز مذاکرات بیشتر درباره مواد هسته‌ای ایران در ازای لغو محاصره دریایی آمریکا می‌شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75805)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 23:28:02
-
-<img src="https://cdn1.telesco.pe/file/Nvl1ETdZegsIzIG8hcUeuV41MiQf7xcdBqtVWCxLhLANHZTcAytVye7dw3QGunHo1VANKX0fIlwEDJDzZbxOau8cF6_5tFVa1UpaowFlPIKnzrRYEP4XJbZ_LBRLvYZdsFwHTFIjwiDY1bpmXE4s-pozi-fjx7FBGVv66qNouVGTd_l5iqJwN6BXIxrV19SOdyYbAjv0zRBdgrY2D-oMUZlaa4EhoPxjUtRI6Mzd9wJb8CT7WblS_uQ14c1wVYbuHCTupxxl4VihIyUtCJYMlkCDmjYwUdxPmrAFJgwoB-NQ1v4wFw5oaeoTC9wrI3irAcllN_CwnVmrr-eJXYS4rQ.jpg" width="400"><br>
-
-قرارگاه مرکزی خاتم‌الانبیا در بیانیه‌ای اعلام کرد که هرگونه اقدام شناورهای نظامی جهت مداخله در مدیریت تنگه هرمز یا ایجاد اختلال در تردد، مورد هدف نیروهای مسلح جمهوری اسلامی قرار خواهد گرفت.
-در این بیانیه آمده: «هرگونه تخلف از این ضوابط، امنیت تردد آن‌ها را با مخاطره جدی مواجه خواهد کرد.»
-قرارگاه مرکزی خاتم‌الانبیا اعلام کرد کلیه کشتی‌ها، شناورهای تجاری و نفتکش‌ها صرفا ملزم به تردد از مسیرهای تعیین‌شده و اخذ مجوز از نیروی دریایی سپاه پاسداران هستند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75804)
 
 ---
 
