@@ -3,7 +3,50 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
+
+<img src="https://cdn1.telesco.pe/file/p-CXtY76YxxLQTAaSe2kH_bHdT0-7cWLOfn7QH3jiejdD6dhMhw9CceBwJZKL4kXc-tm-9FTf-q4XrEbKue97rbhlVpGMgbXcMh1K9f6REq68LPVmT-siVuWIVRCxe8_PXsjSFinwNiAEdAtqUQvHy6NzJqXaScqiQ6NUXr3WOfWOKfGWX7t8jmRQusba--WvVV6RYkAnvOw774f7nDimGek-aDBHhJmycQ7Dssp8ozqbxpRbyLBdnr5biGxShzkz1XhCAZuxQfkw6o0KPn95vPDKSy8VXdrUG1DhIwzC2GzP0cFLehjDcjcH_LQcqfFWxiKzQNJcvl4zn2Rjq59Hg.jpg" width="400"><br>
+
+آکسیوس، ترجمه ماشین:
+رئیس‌جمهور ترامپ در جلسه‌ای که روز جمعه در اتاق وضعیت برگزار شد، خواستار چند اصلاح در توافقی شد که فرستادگانش با همتایان ایرانی خود به آن رسیده بودند؛ این را یک مقام ارشد دولت و منبع دومی که در جریان موضوع قرار گرفته بود، گفته‌اند.
+...
+مقام‌های ایرانی به رسانه‌های دولتی گفتند که آن‌ها نیز متن نهایی را تأیید نکرده‌اند؛ هرچند دو مقام آمریکایی پیش‌تر در طول هفته مدعی شده بودند که تهران آماده امضاست و همه چیز به تصمیم ترامپ بستگی دارد.
+به گفته این دو منبع، ترامپ از تیم خود خواست تغییراتی در پیش‌نویس مربوط به بندهای برنامه هسته‌ای ایران ایجاد کنند.
+در شکل فعلی، این تفاهم‌نامه شامل تعهد ایران به دنبال نکردن سلاح هسته‌ای است، اما امتیاز مشخص دیگری فراتر از آن در آن نیامده است.
+در این متن آمده است که یک بازه ۶۰ روزه برای مذاکره درباره تعهدات هسته‌ای ایران و کاهش تحریم‌ها از سوی آمریکا وجود خواهد داشت؛ نخستین موضوعات در دستور کار نیز چگونگی تعیین تکلیف ذخایر اورانیوم غنی‌شده ایران و محدود کردن غنی‌سازی بیشتر خواهد بود.
+ترامپ می‌خواهد تلاش کند این بخش را اصلاح کند.
+یک مقام ارشد دولت گفت: «موضوع، جزئیات بیشتر درباره این است که آمریکا چگونه مواد را دریافت می‌کند و زمان‌بندی آن چگونه خواهد بود»؛ منظور او اورانیوم غنی‌شده بود.
+منبع دوم گفت ترامپ همچنین می‌خواهد برخی از عبارت‌ها درباره بازگشایی تنگه هرمز را اصلاح کند.
+این مقام آمریکایی گفت به ترامپ گفته شده است حدود سه روز طول می‌کشد تا ایرانی‌ها با پاسخ برگردند. این مقام ارشد دولت گفت: «آن‌ها عملا در غارها هستند و از ایمیل استفاده نمی‌کنند.»
+این مقام ارشد دولت گفت: «توافقی در کار خواهد بود. اینکه چقدر قریب‌الوقوع است، باید دید. ما حاضریم صبر کنیم تا رئیس‌جمهور آنچه را خواسته به دست بیاورد. ممکن است یک هفته طول بکشد. ممکن است کمتر باشد. ممکن است بیشتر باشد. امیدواریم در آغاز هفته چیزی داشته باشیم.»
+axios
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75809)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 08:25:45
+
+<img src="https://cdn4.telesco.pe/file/Ek3RvOYMTzB0GmtIEVUuqub6OyyueYNwFR7tGMNJSfkLvtPUb2eF7QffoR0SEvNo6nxXmo-ayoAm6Ex6ttGI6XTD-j3SV2tSZt4dW7pJgKxvxsaw0_9KTSfCy16zLqwWNtzwR2hfYThUxw9RxT8Xpwg7DPO4b7_Ds3i5ZFu-z4OOyXRsf-uIKCDPC5bavvVAh4JVkyw85b_ckH7g2oJbu4_46a8v90BWVod1niX4IJ6UtwAPn5AcJvQUabBebGy2T8G3aQrSYbmKIBkJDRFpi1h_BS4eveJWH0GCjn_gf8hmENXM3kTjxyhSzrmd4_IdEpYH3crY_ptrKSCcESEN2Q.jpg" width="400"><br>
+
+روابط‌عمومی سپاه بامداد یکشنبه، ۱۰ خردادماه، اعلام کرد یک پهپاد «ام‌کیو۱» (MQ1) ارتش آمریکا را منهدم کرده است.
+خبرگزاری فارس نوشت: «این پهپاد با ورود به آب‌های سرزمینی ایران قصد انجام عملیات خصمانه داشت که بلافاصله در رصد و هدف موشک‌های پدافند سپاه قرار گرفت و سرنگون شد».
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75808)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn1.telesco.pe/file/ctvg9oKHcfYdYF_GTtdDJv85_b--lajgdGgbPY_ML4tDTxOgE2S18zPFgXOrIbgz8iUHE-WeHdI_kgOqwdkcLIeZK4_BTDRYGcmOfwktsxOEly950eZaiVAZrFneRUgWo6G07Cbf-DJ_IMNPTQ4KnjIy2DQ2HZ7zeQ54tzFCpsUy2njsTA2Ikn3rzAntpua26g_CHVn4fJ5zEW8tq0dX1wui7O1d6T4LFDi5i-4L3dPzCa8vugWLes3ACE_CBQe6DI9Vqm2rGJiy0vHZoWeD_TazixPp3E811djvCHlz8WKbyljAzQoK2kUb-EGFBsEWb6e3vVCzqcxWHAytEGGy0Q.jpg" width="400"><br>
 
@@ -24,7 +67,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn4.telesco.pe/file/iW1Cpcjo7RWWv0d40vK6ZbVkKBwIVK4XvVcfKsqMITKLaxOJz86mFOG11gw9FGkWBTC8Xc4x2VaHkwTciIYHGKVO5hnBLr2Yscn6hLYSGQfQ4QwaxJ_mF4qqjGQrcrRsuE5e-J3j5At2WwRMIx5GwRIiCUrohVKEtJGxdiuwjOhMgZ7mer-mwIEnyy8d5cXX6R690MN6ZcEAn2eJwrm4ymL2JU4EZfDbiy5BNpSGP4dnQKDwXsjl-oFGhqFXnsyGaz5qLgFvLzk0R0aIG2ICAviLmi_XOCMp-DgDoYytgmDCe7gIPgRqTFdWQmYPiJJ7smG2PYu3i6w0kAS--uU5iw.jpg" width="400"><br>
 
@@ -42,7 +85,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn4.telesco.pe/file/jqkvst42AkE1zYZUxb7tj4ZVPpRZIlEuwfBoMvOhoZ727sE_5eW9l3En-te7dF_FyEHI1ksF3b008uQWNy4pu4wsrvE1DMyW-zIN6DwtjSPrdmAHgKXKtpD36jbs82x5aP3UQRbEltEp0KNZIXg8YRqYnyTLHfWYDa-CY0J3ltABXUnw6teppLivUbUmO3a_FMOqM7_4SW_MZClKYLjlgnkKWR7DoJ6j30IyB84oWKLgh7jw-x0LLJpDyrEVlJqYi8mrxeDo31QloP8mzBlHNhLQ-GnQMs_q6WxHC7JYRtJU9XxOOm6CJUhVF8M8lXflf2rhWHMUNPFC85GaQNS-aQ.jpg" width="400"><br>
 
@@ -61,7 +104,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn1.telesco.pe/file/sIG1U2wqn7OouvMpgXhOoFxLC2w0edEETYm8UGRqI81lKS2-sChtp5xanVJPAfmYdV9vf8biCZG9jbJT-TcIFgrzDPRD3yYI414susH51on8lfUucE29SK-PAfXqjZqiOX0CX2RaxTWj02LGHJ_tsJvLO46vHvkoJ222Tk4hNADGWwXZnM4OJ31HTfq2Ycghu4LcxxqDWrYBH-OD75MJzU6TR77coE4IZcdsQPwly0naA4mdHwSxMtdeIu1QfgH8Bu2fJ5BVrrGqc-eh_xl0eHDisL1uX0Wqizpf7owTqYVknGpx6rnSOYm0t4FJ7DatAhcF_MIYxBCraxX2x6Odww.jpg" width="400"><br>
 
@@ -79,7 +122,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 
 
@@ -98,7 +141,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn1.telesco.pe/file/PbY9XkwTonv7ZIAqWZiVGyov7kZ1AIODuJWrJAsxpK-JtmckLun4ICm__rykUJN1UXAKB9Hg8RLqeloZZmG94biWVNEic-mDm5s19AB8Gx3La0aWujqb5WL6xmgjP1JVULVWCwMedOBsw94bGuB5HMrjEqT0UQfDJ262e7TWHmaXdUKtII3ACnmSlfs1HYS2xbwGUGgTG7ae-boLYWSW4PvcBKAGHlI5h8xGhK0SWlsAh2ci0SZeX7QAonQLrCsxjk8I9K5jcsWu6ema9X0ZR0Qq5oRwzE_Ec-HPcxFDHLU7fOtTdLbUHnmJvOKuzxIadq92YCcZ_IgP5-a8HAUZtA.jpg" width="400"><br>
 
@@ -119,7 +162,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 
 
@@ -134,9 +177,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
-<img src="https://cdn1.telesco.pe/file/hHhSjMS2n6SNIVlbfUpVGAu6laFQ0ICCudWIyKkrYCJ7y31a7AdHfTKoKLLim5Q5yRVEwdzvSC-fPpMom-rAUiS2nzN2-rEwqxJ_g2LX7jIxjdHktlx5D1ry2Nnfl1tgFSvZFmlBNNnCOVAbrhU1_mM6Sk7P2xLeGNpQQ8N6PoRrgWHcYOAZWHujc8-TItdB3Qxy55OhNhMFTaWfAOXItWk9r2VElhc-sRuQImlJpcrnFUJHCfRTmo_r_kpT5TsL-OHAM9H0ZYmjzsrsGUjWFkWEcC9kl9TP005OV4n151LmRrXDZ0btHrqYj1Jx2igIjvaZfavfh6rkhy4WK9wHFg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/AeC2UoTXi35rTm_ExYSZ732fSwPsfNdyqKLWceC4RcDNnbn0jO9sYcO12lGZu2SQaviSYfymSGXFjttkSO_5m4T0tJ98CrYkLmA5BoyhHSpoDtIjDH_bM2nYAj7nTXz9WuIM1L2MJygpEvPz0FaET5Sqlr-K_QzWbRJeG-sYt4JOAfXuTMerH384QywIw77gHP_AjiZ0RF8XIPlelKazsYVcOj_ZXR2aMm_wiOlO53tTHG-y3QV_u_jg7fkVaCAjonOlzG6wio9ocDSMRu9B0YEmXWVpz6rnQSnuMceNYb6KIwjQGbA2S-mySGf_P7s4LU32YTnQyNZgu2E-gw_wSw.jpg" width="400"><br>
 
 ان‌بی‌سی به نقل از سه منبع آگاه گزارش داد جنگنده اف-۱۵ای آمریکا که ماه گذشته در ایران سرنگون شد، احتمالا با یک موشک دوش‌پرتاب ساخت چین هدف قرار گرفته است.
 به گفته یکی از این منابع و یک مقام آمریکایی آگاه، چین همچنین ممکن است در روزهای نخست درگیری، یک رادار هشداردهنده دوربرد را در اختیار ایران قرار داده باشد که این رادار توانایی شناسایی هواپیماهای رادارگریز را دارد.
@@ -153,7 +196,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn4.telesco.pe/file/fSOPH_mqsnMqXpKdJYBExYH5HIfVYoe6HnU6hqON5Ywu80JqK_qNDZjqhqZWrr7NodNVGKC7arMJOXFXnmhlUqxLSy0vwAFl1NYSmLYCL4d5bDm0BwcP-fnV4_tn22llIK0K9lbgXEtbF0sXwUUX4oq5P0u7ogbRbKxTXdUDP2oAt0dmZR5ZR0oG3e2Dh2GW6bqFkeH-fM2wS-DnfdP30jV2raK4fXlUEUOcjliDWSz2dG72aPSPSuL5qNr_Fvrv-XylPmJAWcqYKJ6AFMeSdhftayT-Sy6N6n_FMZkOeOhh1wqwRPxJH_z74VH4KIR_Onk0bQEddGu1LH6mcNYFow.jpg" width="400"><br>
 
@@ -174,7 +217,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 
 
@@ -192,7 +235,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn1.telesco.pe/file/vLOtgjqq_dBi0qfecTbBWs4kVk96UO8b2bKewfWKTS_pBZlDvS3odfxtj0T7sFTE21MLw4BeYOqHYeMDEs-h24ZWuZ3gPxoGT-tYRUrlr9QbuUQjZ5mZXoclIHbvrfCVxYmFX3ob_L2L83FE2tnccCF9v2kY5fVfKScsEccYcYwpvkBQMqgoQ-gG_XCF-5F4zPyWFwqJ7LeJEAnP3MX-ruhow4tpH0dI_xP4Gq1ohbr37h3E-uhjkj7r1W2O9nnf3z-fs_kjSXCLgy_x_VnxCArELFxVV_Q9_UugcyNuMDvf2p4ZfeQ0wI9yHxpDo8srRijUFqvcCfA1XcHlu2X-jA.jpg" width="400"><br>
 
@@ -210,7 +253,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 
 
@@ -228,7 +271,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn1.telesco.pe/file/rnByf3ljTf8XP5U1sVKU3MbUUUVY9dkhs1H4dydJys9qzgkc3Em5-SqjevdDONSaDEeK3CCx0yN2OuUZ-frOD9o5pEmRl4tWj6hd_YBJBddHkpdE-QaMSTTH8opDxWCexpZ7qSjqonPXmhoJadUfqChM3MYf81KVjuOgHl1oyB2mWlSb9YbAIEUdp-hUZQFjAgCU6eJkUJIwO3FZXKLP1OkB93XfamZflGkZ37t8VBO-R9L53982i9S6ydwXAU8X79LQujBSeqK3BqmsWYmXU7X3T-jdNC_royQwBU7KxNrCHfEvPkKvoZFUVp6HHadzTTx9sK2If_fRTdIyeF0EOg.jpg" width="400"><br>
 
@@ -248,7 +291,7 @@ sky
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn4.telesco.pe/file/paNePfhNe9MoCHgukX-oIo1wcBT2P9AD6-VZexFGXnKujfc7WTaYsgAMO2KMsgM2ewUAinTVmptgC5XG0MGt3LQlHBJtskFZrN2fytG-ryiBVw6jr8LsfUp-iMsovppKmFU-PHqopzIgeTU0MlRsZbs_A15AO58dM17GDfPJWPzh6oohgVrd3ouy0OkShaIwoHmW30OBiZJ_7megAG6hrzB_Jirrs3gVXw1omvw3QvgdZfbFK9sDxrSO8WfKBjHr56HYrINPrlWU1QdAhBaZ2OoOiERJHklLPtuGpjmPA7qpwy6qXKDVqjnFCInlRlZflFNp-5zIQhoqUnfGxzoJZw.jpg" width="400"><br>
 
@@ -268,7 +311,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 
 
@@ -295,7 +338,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn1.telesco.pe/file/DZlC6kaW1ukfEpQxO6Qs-8IEAZheziw01rEbUE8ngNKmhFPGvkyjZwuo1jg0laG3qzvpfPiOiKR6136BPnz7DDxgnuDGzd36X3xKegVRznnqXwz9xl3Tb9hwLrSLqfYSVGGf47vpIt_8_q7EFYAZ_eKKTElQblM-Qk5KKYpYYEB5RjCuoNm9OjKI3_Q9d9AUeb3u15PGc4CG-Ce2XX0XlsFEeCxsoHIIh5iP6vCT_d5qjl1gzFpcvZ9ICwAGrG15Ec6kFfAMHZsc7BirkzMVPFKldlxc7EZAVWqPzFfjBUUW8U2mZfrrCvRuQUtA2AUcptpwq8NprYYaeO8H8PhbHg.jpg" width="400"><br>
 
@@ -318,7 +361,7 @@ NewtGingrich
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn4.telesco.pe/file/qEY5x19Brbib2g8GaSQE5PPAfv0ZMwdpo5ad5BlBq6DVicB2WS_4KUkmh_xCpilnwTTIpWlyMZjvceDDv_IKTKOVTfY2wsEVth9-1_4eDWvdsDYzc7z-cxmjh-Av-rdeKRlT2ke0XgqyJp2Dxb55a1axb-lKMx0ulqKL1aiR8B3wKp2O_uLOENu8m2lID19en918hUSNe-gXYBL9M5vZBLDauMAaDgeMP4xlFs1Kiwq-wN9qDR0XFc34Z4paHX5tW2iTx5iC_vXAdbAbNldbypEDx3p1ZPeLxbU5hy4lUHn2jEQerd5HqJEc5okWUDoic4x6J7ohmzYBH6IzTdXRvQ.jpg" width="400"><br>
 
@@ -335,7 +378,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-05-31 03:47:45
+###### 🔵 Updated at: 2026-05-31 08:25:45
 
 <img src="https://cdn1.telesco.pe/file/I4s7cGpEbkd2PGG1PcBtrzf2WAiU467aUVotBn7og6jg2S9LujZyKHZhBP8bAMQUju953HJspro-Qi4XKww4dbW7sRwkS7z7Ena79Ej9xpXv1hjBnk-1rVzSZUh5PSo6z4ZE9fsmWeuMTECCTn9xaTV_d4USJjj4RJpfoOTPV8lCvGv5us6JF4mu8dYmFkTPGJsPiesEObeeNBndPBPO0oJ_gkdebDY8DHVvoqjrqbWTvbDy6YrGp9J-11_dtwaNBWI0kutRCrz36GXOzKsT9mHE65qb3_9fZLbNPyxxf7bYLGGQTNdrfNL6BhtHvVRV-uY3Ou42jajlo3iSRMOJIA.jpg" width="400"><br>
 
@@ -352,54 +395,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75790)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 03:47:45
-
-<img src="https://cdn1.telesco.pe/file/J5Sfnbo-J6rPvaXtcv3DO7wfWz3xvS8YFUId8Q51whbRKBoipbiHaTv5FJd5sPpUqLagtK9Ut-tYvB3EzsEHvJoN7W1iHgopjNOxu7j8QYDf28ZQuqAjhvSQ1p_u_P9fdWF_MHMQVhEsFIdw2NPyPpI3eYMpZZZzC79XMq2_2u8rH3veBI9MmkGnuDL0O9nVgEGwPrXs6oTiKTpksl38xwsKCUSqcfsMnJ22qcXlMEPpczipZwPbFx2Up01clf6xpFT5UU65cjNmbIYjmrSh0xemZPUJCuXS4PCmkEHxV85sQG2UMR1KwKcgztZsuRuO6093QbcdbTB5kLw41d4lSA.jpg" width="400"><br>
-
-☄️
-پست ترامپ، ترجمه ماشین:
-ایران باید بپذیرد که هرگز سلاح یا بمب هسته‌ای نخواهد داشت.
-تنگه هرمز باید فوراً، بدون عوارض، برای عبور و مرور آزادانه کشتی‌ها در هر دو جهت باز شود. همه مین‌های دریایی، اگر وجود داشته باشند، برچیده خواهند شد؛ ما با مین‌روب‌های زیرآبی فوق‌العاده خود، شمار زیادی از این مین‌ها را از طریق انفجار از بین برده‌ایم. ایران نیز باید فوراً هر مین باقی‌مانده‌ای را، که تعدادشان زیاد نخواهد بود، جمع‌آوری یا منفجر کند.
-کشتی‌هایی که به‌دلیل محاصره دریایی شگفت‌انگیز و بی‌سابقه ما در تنگه گرفتار شده بودند ــ
-❗️
-محاصره‌ای که اکنون لغو خواهد شد ــ می‌توانند روند «بازگشت به خانه» را آغاز کنند! از طرف من، رئیس‌جمهور محبوبتان، به همسران، شوهران، پدران، مادران و خانواده‌هایتان سلام برسانید!
-مواد غنی‌شده، که گاهی از آن با عنوان «غبار هسته‌ای» یاد می‌شود و در اعماق زمین دفن شده؛ در حالی که کوه‌هایی که عملاً بر اثر حمله قدرتمند بمب‌افکن‌های B-2 ما در ۱۱ ماه پیش فرو ریخته‌اند روی آن قرار دارند،
-❗️
-توسط ایالات متحده از زیر خاک بیرون آورده خواهد شد؛ کشوری که، طبق توافق، تنها کشور در کنار چین است که توان مکانیکی انجام چنین کاری را دارد.
-این کار با هماهنگی و همکاری نزدیک با جمهوری اسلامی ایران و همچنین آژانس بین‌المللی انرژی اتمی انجام خواهد شد و سپس این مواد نابود خواهد شد.
-❗️
-تا اطلاع ثانوی، هیچ پولی رد و بدل نخواهد شد.
-درباره موارد دیگری که اهمیت بسیار کمتری دارند نیز توافق حاصل شده است.
-💥
-اکنون در اتاق وضعیت جلسه خواهم داشت تا تصمیم نهایی را بگیرم.
-از توجه شما به این موضوع سپاسگزارم!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75789)
-
----
-
-
-
-###### 🔵 Updated at: 2026-05-31 03:47:45
-
-
-
-این ویدیو با شرح عبور موشک‌های تاماهاک در مرز عراق و ایران در شبکه‌های اجتماعی و چند رسانه منتشر شده و گفته می‌شود مربوط به روزهای نخست جنگ است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75788)
 
 ---
 
