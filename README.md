@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 
 
@@ -63,12 +63,13 @@ J74wabx
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 
 
+پیام‌های دریافتی از
 #بندرعباس
-پیام‌های دریافتی درباره شنیده شدن صدای سه انفجار:
+درباره شنیده شدن صدای سه انفجار:
 بندرعباس ساعت ۹:۰۷ سه تا انفجار
 الان بندرعباس ساعت 9:7 دقیقه 3انفجار قوی
 یک صداهایی شبیه برخورد جسم سنگین (بمب یا هرچی) به زمین داره میاد از دوردست.
@@ -79,7 +80,9 @@ J74wabx
 صدای ۳ تا انفجار از نزدیکی پایگاه هوایی شنیده شد.
 آپدیت:
 خبرگزاری تسنیم وابسته به سپاه مدعی شده که مربوط به مهمات خنثی نشده بوده. البته دو روز پیش‌تر از این هم اعلام کرده بودند که طی ۷۲ ساعت آینده قراره از این صداها شنیده بشه در بندرعباس.
-پیام‌های دریافتی از اصفهان درباره شنیده شدن دو صدای انفجار از دور:
+پیام‌های دریافتی از
+#اصفهان
+درباره شنیده شدن دو صدای انفجار از دور:
 پیام ساعت ۹:۱۷: اصفهان صدای انفجار میاد، دو بار پشت سر هم
 اصفهان همین الان صدای انفجار اومد سمت ناحیه ۶
 الان اصفهان یه صدایی مثل صدای انفجار اومد
@@ -97,7 +100,7 @@ J74wabx
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/lV-6zKQLu-YipfR-urlDS_mv5RIM67c4gdATBUNT534PBl1H0knz9jOTFOzRy2WuUPUcHOuSGFMYlW58lJ8aCjH76t_MiJBrjvWx4cdTYEXfm6HYCmAl8JnDVBKQfNgen5y-9_SFWrLaUyYvsoOt-F28YU-QY9YUFuEoyVt1mryYvjvpMxNgb4BW7MNHRV6szoijw7aMEUfIW6UVOvcDGZeyacy1TPoGu2SwoJKdtnSdX7GdmzOeF60dh7S-dISZ-Ao6IIgvDo6zmMMkcsFaUtYoQ1oiG0mLuwoH8yAVpfKni-uJFeWWh0X6KMgq1I-BFl65COxUDNtvORQ37U9RAg.jpg" width="400"><br>
 
@@ -116,7 +119,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 
 
@@ -136,7 +139,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 
 
@@ -155,7 +158,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/RIFAeOpoQkm-CWzvbgvNZCbhLIwd1-Lg58Nn0jVOeLs80LaOtk3sW5GEjB-xIBm4uVh5d1C8cDWeCtiOw8bRypGV8EyE0Vk2UYMT1MZvCWfimGsYCOrzDbdcdmTZeQxDj_ZgknS4Bjh3oz8huTCvrW5HQFwI4HRIQRsibNi185YV0sw_-c69cpEtVL8_FpUv_dodsbYKzJA5uevYk-h1q6_0yHFwDPb6_lTJ-cbx00ZuenZNbkuY2DpPjHLv_dgZ9Anq1kl-W2JRfQR0d5bwxm8tBVbQ4FN7BXsIVo9A1aowF8Ro1RBhVdd_JPmTWierd6OLu7FPm0TG5GzEcwtF-g.jpg" width="400"><br>
 
@@ -177,7 +180,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 
 
@@ -203,7 +206,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/nFx_opZC2r0ML-PHsS9xF3Ixs75l2YN5AN1Mn3B5wyJzH0JJ9DJhNqsdBVr9BmI6hO4eQLAhs7ecsX3gFHGn2ujUibR-aR1UB7yujqwbvr263CTsmFMqfhmT7aoSD19wjW1HanxBcI8hdsQDHhzYFFQu5s1Lwigpauk8HpDCN1M0UDz8i-xDOXH1QqP5hB8khFIfSf0jGIWAyt-MOZovYqcFeFQr9TYF3xudMcFNWjAVsSUH5YC--Uz07siwFUlTu0lP31W_RxE5Z1cRWMkU6D4LYBWoOkPCeaZbNN6F8nSbizU00Udk2wjUJLsjfkQPOSdG66mde5qiGhRd0Sy_Zg.jpg" width="400"><br>
 
@@ -226,7 +229,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/BWQkbD-ZPV68gHh_6x91cO-XSxyi813H-8v4wzwun13yB2nkSOFb3DDnxBLy_ZTcUYcTtY5yYSZ5yvNufH8gdXXmMs_lYoreQlAJk4oo0Uulh-xtRUbtszw3c81OF9s4voIQlCgPcac3DBdBeXxlW7-vJSG32I9LPIkFXUnWxDJrX-vYDB8o--DSNQj7fP_5DnXjnkVWb_mM1CI-tEpz9ZWx2BrBUc2Rl3U2RoqpLBIx44kPkA79fumjn-M35crHsCMJeEdb37ENVYlA7tDFOHkqe9pLjjMJdrNwWU0bzbh79Pt0kv6Eco_mUq-22Orn4xzHke_8BYJ3adHL2bK0nA.jpg" width="400"><br>
 
@@ -245,7 +248,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/oVGaKP76wBYxVF-ZYt9-nvDYlDzmpxCOtasRxb_hwJPCB5HruMFr6MKrrPELsHGm41Zs5ydEwDt1OCy6l0UwrFuVWmDWm1RBQvbXrMPjwJ__-HzOl8Q7ei-QCkba02v6R0riBjuy3l1XVzmhtB7-GIiR_9E1VW09nJSmDF9VJ1uLuSQE-rTC5_Jqd_wssQeex-YT1dim8kalZ-NJEC-feo9Nsy3Z0abWkcfVFBVJzJOBRX7ZRgzf8T3iAF_lnYfddRvnRjdQ1Me8v7xz1v0xltFr9Rm2SaMlDfGFFWXQB_GlK_1lVHsGNq7sQfbUCRIg908sYnBey_zynMFF839bkg.jpg" width="400"><br>
 
@@ -263,7 +266,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/OLN8Mingp6_1O6C8tj90kcb_Cfg2GWy3_DoiHOnB8GIDe1aeFTGSvuIy5iOA5eFQYg68--Tw28v62xrl_BQA_xSCqIyHeCuuQ9Ncp3h_PJFPLZ7z2v8GPg34F1aWhK7urWrSkgs4oUKz_gsnHSG3Q7bk67SVjhFwytGFwLahoev_l1awruVIbF3HnZwcIiakL8dBj2uc8eImczQ6i5tK799GQDmGGreLKG5tNIW5dmHU3YZuaMyk9wi3WwpTsXwGdGteG69Hwst5_WQQOUwoU7GEP_w3msji3iz6achCH_fln01EOWh1pxmhyCnKCSc4ukj2_Ez1TFlcuXOt96cW9w.jpg" width="400"><br>
 
@@ -284,7 +287,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/r3RLeQHV9-Y3Ny35FFnDtvd4O8k5tAnDgUr68gkRcGmkIzFjAFFOyT9wyl7ue8NniFMAHY4pfzInhhTxK5G4N_7_Bi7B1fmbTItPox6RG_hYooF69nZbTn4_DzO6KNer244MB2XUNDDY7sUP3PRA2IppRrLoraG9rl_JUKs9Good3QWUhoa_iu5v4UUKVIhxGuSYueHtoIZihKQBnfJcQeM18TLIfiWjdU364siMelYBLzaoDFSCkfVtUmk8r7W6l44gauC2LOm7CLQl6GYbMi3lkgAoncs5FXlLSZWZ_CQbeFSwdE0NxjYcE1w4JJRMvowCVaofa4HiAV9NQb5mdg.jpg" width="400"><br>
 
@@ -303,7 +306,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/Rai_COe3zYcSQzan7oUQKfLr-gEFUPOlFCv72YYlS7dNW925Dxoebrt8ZLwVykPWZpZWXiPOkiCvWECn50fY_EFTdMmbR96n-kqhmb0_BiiSsVtdcW3gz3R88ZZt_hmr_twa3kKridCLf_pCPznS3plrGY0tSFOh3CWEYXCorbhZuAyh69Og4Uq9vgm9vo6gR06Dm8wbMFJ1NnBmYqZF6Gmk0VJ-pKEENVXVHa2IINV0vCwNE7tAsn0LLhWKekc0ZxFEcX63qrc-SAWcMKKRw3g6tbsPZUnI5Kpoxysb-D2ccOHdiw2XQBiDUWXyCKYjifdbEcNJRJY9n4iVNZJJDw.jpg" width="400"><br>
 
@@ -322,7 +325,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 
 
@@ -339,7 +342,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn1.telesco.pe/file/mWFlQs04vZ9IyS1ElfHGtorzRgw7og9XXEOgQycMHXWw6w942GcFZdIIg_p9Q6KY4yxlIGF1SDZGQvq7whubGnwEbjKpbdwRseRSbuJlDaR-k3ivdKD-6b10yNXeaqveUGLaEZ5pyjaPxvy8zx5lA5wJZral5cVhGBmfRclG5vd3hkQcUbM74AtztyaIKivElInHMGNjiJ3mloeVce2-wRLUrxssa-eP1kSlbR5rO_R2Rk-MwdYpG8aoF50otusLsfwSfA65qM7rDdEdpq064mtmPWrW7fgJPLU75Q7eNQ5940eMXvT1nKNexGztQ4u8_76Lw1MtHQbsdCT8if92Uw.jpg" width="400"><br>
 
@@ -353,7 +356,7 @@ IranIntlbrk
 
 
 
-###### 🔵 Updated at: 2026-06-01 10:22:15
+###### 🔵 Updated at: 2026-06-01 15:56:22
 
 <img src="https://cdn4.telesco.pe/file/v9QccuOXyeOdOlzJ-d1UYJ_3l6FvKI5F8M1qtVzig6G36XcQmV3ghxRcp6gEBoqTNZy-0x8y38LNdz80K6yEYVgKfJZG5flPJrWiZTrktQYU1qyfDLInCgeU8txjnQkBuy2W2MnhCV4TMlvfzSuTRg6DDJgPY4Pt7AGvN2mWKm_AipaDTnbK0s0OjY0bOgfIhWKTz8xXWHfADFOSFEO-tht_EOScUDuhjw5D4rbsxg2P6APYpCMaafNPVhDlIbhBt_5S-JZGJLA7mJXsdhSAZqZkuxt8ZaJ8dMqDvuu1FCB9XiJ4qPJVPpNI8VgKGg1lgiv9piFZeyUxbFyvKZyNkA.jpg" width="400"><br>
 
