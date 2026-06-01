@@ -3,7 +3,179 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
+
+
+
+پیام‌های دریافتی درباره قطع شدن موقت خطوط تلفن همراه در بعضی از شهرهای استان‌های فارس، بوشهر و هرمزگان و...
+از حدد ساعت ۲
+▪️
+شیراز کلا قطع شده انگار
+نه میشه زنگ زد نه میشه کاری کرد
+▪️
+کل تلفن های همراه توی شیراز قطع شده
+تمام اینترنت ها قطع شده
+مشخص نیست چرا اینجوری شده
+نه ایرانسل نه همراه اول نه رایتل آنتن نداره
+▪️
+وحید از حدود ساعت ۲:۱۰ تا همین الان انتن گوشی ها و اینترنت خانگی و هر چیز مخابراتی توی شیراز پرید
+همین الان [۲:۳۰] همراه اول وصل شد با سرعت کم. ایرانسل وصل نیست
+▪️
+شیراز خط گوشی بیشتر از ۲۰ دقیقه رفت
+از ساعتای ۲:۱۰ دقیقه تا ۲:۳۰
+ایرانسل هنوز نیومده
+آپدیت:
+ایرانسل هم وصل شد
+ولی همگی 3G  هستن
+سلام وحید جان بندرخمیر هم از ساعت 2 همه چیز قطع شده الان به زور وصل شدم بهتون اطلاع بدم
+اصفهان هم دقایقی خط همه رفت
+تو شیراز یک دفعه همه انتن ها پرید. حتی نت مودم خونه مون هم کاملا قطع شد
+الان بعد از حدود نیم ساعت دوباره انتن ها اومد
+وحید فکر کردم فقط واسه من اینطوریه نت خونگی مبینت ما هم قطع شده خوزستان سربندر
+از شهرستان های فارس نیم ساعت همه انتن ها رفت و اینترنت مخابرات هم کار نمیکرد الان اینترنت مخابرات اومد و انتن همراه اول هم با سرعت کم اومد ایرانسل قطعه
+نت و انتن و... کامل توی بندر ماهشهر پریده
+اهواز هم همینطور
+سلام بندرگناوه چند دقیقه کلا همه چی قطع نه زنگ نه حتی شبکه داخلی همه چی بسته شد
+بندر ساعت ۲ بامداد تقریبا آنتن ها رفت
+و بعد برگشت خط 3g شده اما اینترنت کار نمیکنه
+الان فقط اینترنت فیبر وصل شده
+دقیقا راس ساعت ۲ کل دیتا سنتر شیراز قطع شد
+تلفن همراه کاملا بدون آنتن
+تقریبا ۳۰ دقیقه شد که وصل شد
+همین الان حدود نیم ساعت در نورآباد ممسنی همه چی پریددد نت و آنتن و خط و همه چی
+😐
+شیراز از ساعت 2 تا 2:30 انتن همه اپراتور ها قطع شد
+بندرعباس هم همینطور، قطع شد وحید جان تا الان
+اینترنت و انتن های تلفن همراه تو قشم کلا قطع شد یهو
+تقریبا ۱۰ دقیقه قطع شد
+هم انتن هم اینترنت همراه
+بوشهر اینترنت مخابرات و ایرانسل هی ده دقیقه ده دقیقه قطع میشه
+خیلیاهم کلا قطع شدن از اشناهام
+شیراز بعد از نیم ساعت وصل شد
+کل سرویس های ایرانسل و همراه اول و شاتل حتی اینترنت مخابرات قطع بود
+خط  ایرانسل هم برگشت
+وحید سلام و خسته نباشی، اینترنت و خطا برای ده دقیقه کامل قطع شدن هم بوشهر هم بندرعباس، بوشهر وصل شده و نت همراه ضعیفه منتهی بندرعباس اینترنت ایرانسل قطع شده
+وحید اصلا همه‌ی استان فارس همین شد
+من فسا هستم منم قطع شدم
+دقیقا از ۲:۰۲ تا ۲:۳۶ قطع شدم
+وحید بوشهر هم کلا قطع شد الان وصل شده و خیلی ضعیفه یه نیم ساعتی کلا آنتن نبود
+میناب هم یه ۲۰ ۲۵ دقیقه ای کلا انتن نبود
+بندرعباس: ایرانسل کلا قطعه، همراه هم قطع و وصله
+سلام اقا وحید داخل بندر دیلم استان بوشهر ما از ساعت ۱:۴۵ دقیقه هیچی انتن نداشتیم چه ایرانسل چه همراه الان درست شد تازه نت رو h هست
+با تمام سیم‌کارت‌ها ما الان وصل شدیم
+مرودشتم کامل قطع شده بود همه چی الان وصل شد
+سلام وجید جان
+ما برازجان هستیم
+برای ما هم نت ایرانسل، همراه اول و رایتل و مخابرات کلا قطع شد
+الان که برگشتن 3G هستن
+سلام از جنوب استان فارس پیام میدم اینترنت خانگی و همراه و همچنین آنتن از ساعت ۲ تا حدود ۳۰ دقیقه کاملا قطع بود
+بوانات برا یه نیم ساعتی انتن پرید
+سلام توی یزد هم آنتن همراه اول کلا قطع شد، فکر کردم باگ گوشی خودمه، اما الان که گزارشات رو دیدم ظاهرا چیز دیگه ای بوده
+درود وقت بخیر شیراز حدود ۲:۱۰ دقیقه کل خط ها انتن و اینترنتشون پرید و بعد از حدود نیم ساعت با سرعت بسیار کمی وصل شد
+تشکر وحید جان
+سلام وحید خط بستک و کل غرب استان هرمزگان بعد ۲۰ دقیقه وصل شد
+سلام وحید جان بندرعباس الان 45 دقیقس که همه چی قطعه آنتن ایرانسل اومده ولی روشن نمیشه همه چی پریده فقط فیبر نوری وصله فعلا
+سلام وحید جان :استان بوشهر :کنگان از ساعت ۲:۲۳نت ایرانسل و مخابرات پریده و هنوز وصل نشده خدا میدونه چیکار میکنن.
+شهرستان
+قیر و کارزین
+هم ایرانسل هم همراه وصل شد اما مودم مخابرات از ساعت ۲ قطع
+درود. از لاهیجان پیام میدم. اینجا هم امروز اینترنت مخابرات دو بار برای چند دقیقه رفت و بعدش با سرعت خیلی کمی وصل شد.
+اصفهان هم حدود ساعت دو انتن قطع شد‌ ولی چند دقیقه بعد برگشت
+سلام داخل اهواز کل آنتن ها قطع شد و سریعا به حالت قبل برگشت
+مجدد همه چیز پرید توی بندر ماهشهر باز الان وصل شد
+وسط بازی بودم پرید بیرون انتن رفت فکر کردم خودم اینجوری ام  از ساعت دو
+الان وصل شدم دیدم بچه ها هم نیستن هیچ کدوم نوراباد ممسنی
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75864)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 02:49:04
+
+<img src="https://cdn1.telesco.pe/file/O1Pp8tzggLzdFCVKBO2IhMV26EbaM75MmI92cc0fCaK79vogbwoiWZSKq5E3tS9g71C6SphYjrzDuSujtZq0tqv6kWce7KI4hOKwc8sc9nqhvVBRqTleT29E0Nmf7Ot81b8yInnmnTdUSca8I4lMlOIljVBvE0G0eTcXEobUTBeCqwmST5ANFI8BhyYNSxboagr_vD-i2bIAHMhyMZEkQLi47Jzhrc8DB_bhM6UC7_566Ae5Bhz5JQoHkj0xpW1bjj5n_qzWry2BkoIcPWJFHwm8u2SiU8VmaNYFe5mOeCGOAz9Lh4y-1tIdge9NIfExza4ofzRP-533Thw73TPRcg.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگوی تلفنی با شبکه خبری «ای‌بی‌سی نیوز» اعلام کرد که به نظر او، توافق با تهران برای تمدید آتش‌بس و بازگشایی تنگه هرمز «طی هفته آینده» حاصل خواهد شد.
+ترامپ روز دوشنبه در گفتگو با جاناتان کارل، خبرنگار ارشد این شبکه در واشنگتن، با ابراز خوش‌بینی گفت: «اوضاع خوب به نظر می‌رسد.»
+رئیس‌جمهوری آمریکا با اشاره به تنش‌های اخیر افزود: «امروز مشکل کوچکی پیش آمد، اما همان‌طور که احتمالا پیش‌تر متوجه شدید، من خیلی سریع آن را برطرف کردم.»
+او توضیح داد که این مشکل ناشی از ناراحتی و عصبانیت مقام‌های ایران از حملات اسرائیل به لبنان بوده است؛ ترامپ در تشریح نحوه حل این بحران گفت: «من با حزب‌الله صحبت کردم و گفتم تیراندازی نکنید؛ با بنیامین نتانیاهو، نخست‌وزیر اسرائیل هم صحبت کردم و گفتم تیراندازی نکنید، و هر دو طرف شلیک به یکدیگر را متوقف کردند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75863)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 02:49:04
+
+<img src="https://cdn1.telesco.pe/file/HajLH_mSt4xhJHB3kZsNC7GreOPmidpWX3mafpQcgzFgXKjV8E7-gKy1hCFfQkdXJFJBAyygrgZgFZbXtEtX1uldUshACFJnXPpykiwKBu_bNgj7FMKD6WFIkqe1mpfSb6BVT5xQvDOC8VKW1623E3pDeg4SgAX04vosRkQO2sOY_TYh0EfPyuGwXhw8KH2-TygFTsPoZJF_-phUflapzGi_C7e3WPrRATQWRoC_bMXyqiHqjLzh4A16s_hPUDcVr0Rwr4ON5aHOqXr188vcqiQ8uVOx6aG1cLdBIlo84XVNTkwIPwY9DRt7x1aFo6ze1aSvYWXAFLx1UOsxHMs7dQ.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+امروز با بی‌بی نتانیاهو گفت‌وگویی داشتم و از او خواستم وارد یک حمله بزرگ به بیروتِ لبنان نشود. او نیروهایش را برگرداند. ممنون بی‌بی!
+همچنین با نمایندگان رهبران حزب‌الله گفت‌وگو کردم و آن‌ها پذیرفتند که تیراندازی به اسرائیل و سربازانش را متوقف کنند. به همین ترتیب، اسرائیل هم پذیرفت که تیراندازی به آن‌ها را متوقف کند.
+ببینیم این وضعیت چقدر دوام می‌آورد — امیدوارم تا ابد ادامه داشته باشد!
+رئیس‌جمهور دونالد ج. ترامپ
+realDonaldTrump
+خیلی شبیه به
+پست چند ساعت پیش
+ش به نظر می‌رسه. به نظر می‌رسه همون رو بازنویسی کرده ولی قبلی رو حذف نکرده.
+نظر چت‌ جی‌پی‌تی:
+در اصلِ پیام، تفاوت محتواییِ بنیادی ندارد:
+هر دو می‌گویند ترامپ با نتانیاهو صحبت کرده، نیروهای اسرائیلی از رفتن به بیروت منصرف شده‌اند، و از طریق نمایندگان/واسطه‌ها با حزب‌الله هم درباره توقف درگیری صحبت شده است. گزارش‌های خبری هم نسخه اول را با همین مضمون منتشر کرده‌اند.
+اما متن دوم از چند جهت مهم بازنویسی و تنظیم‌شده‌تر است:
+۱. ترامپ نقش خودش را پررنگ‌تر کرده
+در متن اول می‌گوید:
+تماس بسیار سازنده‌ای با نتانیاهو داشتم و نیروها به بیروت نمی‌روند...
+اما در متن دوم می‌گوید:
+از نتانیاهو خواستم وارد یک یورش بزرگ به بیروت نشود. او نیروهایش را برگرداند. ممنون بی‌بی!
+یعنی متن دوم بیشتر این برداشت را القا می‌کند که ترامپ شخصا جلوی حمله بزرگ به بیروت را گرفته و نتانیاهو به درخواست او عمل کرده است.
+۲. عبارت «حمله/یورش بزرگ به بیروت» اضافه شده
+در متن اول فقط می‌گوید:
+نیروها به بیروت نمی‌روند.
+در متن دوم می‌گوید:
+وارد یک major raid of Beirut, Lebanon نشود.
+این مهم است، چون متن دوم وضعیت را جدی‌تر و عملیاتی‌تر تصویر می‌کند: نه فقط «نرفتن نیروها»، بلکه جلوگیری از یک عملیات بزرگ در بیروت.
+۳. تماس با حزب‌الله با احتیاط بیشتری بیان شده
+متن اول می‌گوید:
+I had a very good call with Hezbollah
+یعنی ظاهرا «تماس خیلی خوبی با حزب‌الله داشتم».
+اما متن دوم می‌گوید:
+I also had a conversation with Representatives of the Leaders of Hezbollah
+یعنی «با نمایندگان رهبران حزب‌الله صحبت کردم».
+این تغییر احتمالا برای این است که مستقیم نگویند ترامپ با خود حزب‌الله «تماس خیلی خوب» داشته؛ متن دوم آن را رسمی‌تر و غیرمستقیم‌تر می‌کند.
+۴. تعهد حزب‌الله محدودتر و دقیق‌تر بیان شده
+در متن اول:
+all shooting will stop — Israel will not attack them, and they will not attack Israel
+یعنی «همه تیراندازی‌ها متوقف می‌شود؛ اسرائیل به آنها حمله نمی‌کند و آنها به اسرائیل حمله نمی‌کنند.»
+در متن دوم:
+they agreed to stop shooting at Israel, and its soldiers. Likewise, Israel agreed to stop shooting at them.
+اینجا حزب‌الله مشخصا متعهد می‌شود به اسرائیل و سربازانش شلیک نکند و اسرائیل هم به آنها شلیک نکند.
+تفاوت ظریف این است که متن اول از «attack» استفاده می‌کند که گسترده‌تر است؛ متن دوم بیشتر روی «shooting» تمرکز دارد که ممکن است محدودتر از «حمله» باشد.
+۵. متن دوم تردید و شکنندگی توافق را اضافه می‌کند
+متن اول قاطعانه تمام می‌شود. اما متن دوم اضافه می‌کند:
+Let’s see how long that lasts — Hopefully it will be for ETERNITY!
+یعنی: «ببینیم چقدر دوام می‌آورد؛ امیدوارم برای همیشه باشد.»
+این جمله نشان می‌دهد ترامپ خودش هم دوام توافق را قطعی نمی‌داند و بیشتر حالت آرزویی/نمایشی به آن می‌دهد.
+جمع‌بندی کوتاه
+متن اول بیشتر شبیه اعلام رسمی یک توافق فوری است.
+متن دوم بیشتر شبیه بازنویسی سیاسی‌تر و شخصی‌تر همان پیام است؛ در آن ترامپ نقش خودش را برجسته‌تر کرده، تماس با حزب‌الله را غیرمستقیم‌تر توصیف کرده، عبارت «یورش بزرگ به بیروت» را اضافه کرده، و در پایان هم درباره دوام توافق تردید نشان داده است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75862)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 <img src="https://cdn1.telesco.pe/file/tEXMPFngltyibxPjUxAXwPzWToqmxR7DMAHnIBXvN3QykkK2GJC6o4Usg-fUv4ZLJjvQPW87qiDICkW1eVyoxlOOeZIEpd_yw8P9VliFUM9HcuROh99fUvSkISGPPs9AJl1IeSp6d85MVWT-yJRcEuLjLf4E8cgyO7JE1JpFESZmWePYTQYmRjm2f3wiaBDBOVbDWUpWxIJGkep09atZ36gRvbUseJCvInGFAS1fyvSifBCjlyVyAEfIq8d85DNQ2gH4Gvm3j2uwj1Gm50BEgDSdY8mS5psV16o6uPbhsmkXmAqoa_qGGMJgSg5NevA5oDsEAow5ZTlGtVWwN7AgsQ.jpg" width="400"><br>
 
@@ -22,7 +194,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 
 
@@ -37,7 +209,7 @@ IranIntlbrk
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 <img src="https://cdn1.telesco.pe/file/G2mTrds2QSkJZ0Ku4ELr-vFtqFQhCoVy5BvqENJXddduOWqwlRqs7FFHfcPl6uXyzLcXQJtpkvM3te9LIjRj1Rm3XvK5OJ1vQ2TITWPYuuZfK2rG22tyuG5DbSG8C6x90kdLD9lILOrbHUnu-dMTS6IP_wcMXYA9M4Ie5_un9wf5FBD7Bm7L3xiG9YroDT0NiqQ45eaJmOEZF403iDtwyW34KmoO4RRbkxb_zp_gvxOl3Y0VmWtsNyMlTQ89sNShAVUsZr71Lt083MZdrXWeo_648iy6o30YpLBFD44zGwjK0OentKKpjdw6sHKcom5wHhk5r-Ui60LXMfbcdNSi-Q.jpg" width="400"><br>
 
@@ -62,7 +234,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 <img src="https://cdn1.telesco.pe/file/IcIglenDwcmbJDUY3gQwB7FlFQaC2lX4wZJUw9PqhqcRhEraBYp2CaoG3VDxdmXZPnWo5ai3nvUl19Z8zpnOXLKv2_yjYQXdIJGsW9zd-jK7nW--GwnTtqE0R9cUdpQws9fZBv8SBMM6T1GqTscGzGB0SCP76lVpE7TY2SVMo_R03PY4x2lPwFJvkAO2498LgSNNHG_ZImjytrtbMVzjNgSMnEvALWbN64iUbtgW4KwNJ5iRW7M4Q4OFZOU6AFUxrx3aIrzU9ix3TfzpTn30GW9hziLWw57L7SYpUPtiTDFOWapc1creKSBCHo5jWR_3-NV33dDE-kYbIRUfOtBeRQ.jpg" width="400"><br>
 
@@ -80,7 +252,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 <img src="https://cdn1.telesco.pe/file/Pm_T3RkDnx7E4YRqb908VWdaoW1FkdVLzdIDVgr3ld_CAfQ-PQbVVb1OHCfgpaCfZmSRp2vaHQ0dq6R4DV9HhyMdHy03qhyc13EYj2F7PlDbdrgTSEpUiuIno0ea9xc0TkeGUKUa7dKMwt6ZqIvKFG-hBiWkGuhcFfiihrDn0eAtr9RKH7KYhls9KeY-vimJfcInDvFOE8yqOh-gSsPXpdctoKk0qaDuBEjCPhv4uIinTzqcv-hBCTrghu1c8hd-dTAkzc3Qmz9ElnzcweLwG9JgNmZLOcttN7SGQlrUhvCkMNLZyo6RvSmxwXsX94rFzodG9-T-m2ghf052PTCgmw.jpg" width="400"><br>
 
@@ -98,7 +270,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 <img src="https://cdn1.telesco.pe/file/oKmve2_YbYSkzy6OsvnxpLltZa_vbKqAuZYYlb_95Ze7TXjJV0hJdjaAI6Sizv-dCQfQk1zKiT9NTivR2_brWNLlYgsU3SVEmoh4H_fDzfRFpTI9LIlJM60OiDlixxfn8VJsYz6uhMO8mLtgWUDYPYFoddj8Tu5xoMdyW__q_togCPRomLbQYfccFdA6ndHAWTghACowSCp8vHQqY6u9SQmfVtjT2hxodw1DH9OoH64tDYvRVzaEp0CGVzDKOV5gYvNEltTZ1dQPopzXh_ErPrWq0qJVDV5Hhb0dZ15lXwWLE_OsXmDBN4LSn2TClIVqRptpsUGpOULNl_BUFPR_vA.jpg" width="400"><br>
 
@@ -117,7 +289,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 <img src="https://cdn1.telesco.pe/file/Nf642AAlRRvcgPIjs-ssCUOzclEGe40pEMju3IB9o1nooC9P-qpc_Su2tRJ8ydowrQpBzkxcP-cbij-PlA0OY-eR4JsR2y7TjdYOi_Lu5GhaLOW_L9NEyJ7-PmO2PSR5X2IznpP8v8rZ5tVFBh3Kw9ysJklOssweeRqtUzYcfYlkF04CRQWz6sZGIrWC_T1D-JW-WL5MLT0FC5vr7lBj0BTQJmVP8cU0x4D-MtEN1ra_iAsgg4XM_aog4k27i5yqMmg5oJdrsgCbR2_DarLKt-m7pZXltTnZeS_1Vl_HdpHsqAHy-eprm6zcCNiTbGzxY-mD4XdgUJeOHp3XQEk2og.jpg" width="400"><br>
 
@@ -143,7 +315,7 @@ J74wabx
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 <img src="https://cdn1.telesco.pe/file/dV5pFpD_4F-bt_S3wb7-R8rV_wCjh6C35tcckDTsjxjKcCYBRZAOhkDZx7hMBuI6CSLGCKFaqNJc-Md6Y9TfFt2_6L3ipbIkwz4SJ-CIY-Z_Jli1IOnDjDpouXXuph3e1jONrM9LeuoGZ0bYBEwZMJbLdWqcAvL5g3OEUyrzWWDLdhc7r-uPKKfPwSQndB5CPbYPavQZE2p1g-Nvealj1VkHaYh6GLHyRNrQCNyWecVNj6nc0-zLwbEVPWNgN4k8JRelM3AD7vBRZbbX6_LWzcHACIUxTp0waotvrQsJM7LXaMjq_VzN_28zeWa-yh4WYsCVxlzu3nUSfOQnP5mPSw.jpg" width="400"><br>
 
@@ -161,7 +333,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 
 
@@ -180,7 +352,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 01:19:40
+###### 🔵 Updated at: 2026-06-02 02:49:04
 
 <img src="https://cdn1.telesco.pe/file/kD1E7iPofak2U7jzOEnE2lMkjWrfyzCZgfl9gJkrkGv2DZGgqMWUZv9MKCDrMzQG5cfzjlXSVgvOj-mgY23zedlgoG1E34u0XNuO1H22azCcVlb6jn1iE5gUa8dnD0FTRWDJcggSoQa3T1FjuJqRDJ_zUmYtXq5exk159W1Sa8G7FmS8OEbEhUeINprCG_y80Sld34PEof1T3mY810PDNQr7d_t_-saPSQngqUEhtxoZMjskRngGxbqJVBZweBbHZnvI3CX0EI_Zfg2NjIWRhWIDkvp_BoQiHEAeoQgoElOiyOBJCiJwEkx8Vv_40b_IpCMonYwbMHyVRmHW77KcrA.jpg" width="400"><br>
 
@@ -215,25 +387,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75843)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 01:19:40
-
-<img src="https://cdn4.telesco.pe/file/U5H3TS9LQidKHFuDjLvBiWWusjOZUPmRekOx2Ak0-9jqZswqhgOBBnR9Gz4InnEUa-1t19sb0gLn3S1z3I2DiYozg7bPKnIUeBLC2v9kdSLB3RVjVM9fE-Qr57scU0rYXVywkXYvD6-2koLhdbmlQZVxA6sufvcZCompispn4Tpwwe6pfumapxWIQi0hvaNWvAg7HNlfJPnEg9bOUAd_daljJuCI7G60caTQd6f48E20Y-jvdlKe6T7DakZiaQ1Oemj26Z58NEGUHwyE-k8twOvGAFaWaMsC4ySLPPcPJbJT1PEoG1unmHgfhodBWuI40IFCrxGSvEkhfA6Lmk7avA.jpg" width="400"><br>
-
-رسانه‌های ایران از کشته شدن یک دانشجوی زن در دانشکده دندانپزشکی قزوین به ضرب گلوله خبر داده‌اند.
-میزان، خبرگزاری قوه قضائیه، از قول دادستان قزوین نوشت: «بررسی‌های اولیه نشان می‌دهد این دو دانشجو که در آستانه فارغ‌التحصیلی قرار داشتند، در مرحله متارکه از یک رابطه عاطفی بوده و پیش از این نیز اختلافات خانوادگی شدیدی با یکدیگر داشتند. صبح امروز، مرد جوان با یک قبضه سلاح کلت جنگی وارد محوطه درمانگاه شده و چهار گلوله به ناحیه سینه دانشجوی دختر شلیک کرده است. شدت جراحات وارده به‌حدی بوده که متأسفانه وی در همان محل جان خود را از دست می‌دهد.
-در اطلاعیه دانشگاه علوم پزشکی قزوین در این باره آمده است: «انگیزه این واقعه، مسایل شخصی و خانوادگی بوده و ارتباطی با فرآیندهای اداری یا محیط آموزشی دانشکده ندارد.»
-به گفته حمیدرضا قافله باشی، رئیس دانشگاه علوم پزشکی قزوین، «این تیراندازی به دلیل خصومت‌ خانوادگی اتفاق افتاده و دو دانشجو که زن و شوهر بودند در اثر شلیک جان خود را از دست داده‌اند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75842)
 
 ---
 
