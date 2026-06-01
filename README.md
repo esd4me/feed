@@ -3,7 +3,166 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-01 15:56:22
+###### 🔵 Updated at: 2026-06-01 21:54:13
+
+<img src="https://cdn1.telesco.pe/file/Pm_T3RkDnx7E4YRqb908VWdaoW1FkdVLzdIDVgr3ld_CAfQ-PQbVVb1OHCfgpaCfZmSRp2vaHQ0dq6R4DV9HhyMdHy03qhyc13EYj2F7PlDbdrgTSEpUiuIno0ea9xc0TkeGUKUa7dKMwt6ZqIvKFG-hBiWkGuhcFfiihrDn0eAtr9RKH7KYhls9KeY-vimJfcInDvFOE8yqOh-gSsPXpdctoKk0qaDuBEjCPhv4uIinTzqcv-hBCTrghu1c8hd-dTAkzc3Qmz9ElnzcweLwG9JgNmZLOcttN7SGQlrUhvCkMNLZyo6RvSmxwXsX94rFzodG9-T-m2ghf052PTCgmw.jpg" width="400"><br>
+
+ترامپ: مذاکرات با جمهوری اسلامی ایران با سرعتی بالا ادامه دارد.
+از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+این دفعه گفت "جمهوری اسلامی ایران"
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75856)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 21:54:13
+
+<img src="https://cdn1.telesco.pe/file/oKmve2_YbYSkzy6OsvnxpLltZa_vbKqAuZYYlb_95Ze7TXjJV0hJdjaAI6Sizv-dCQfQk1zKiT9NTivR2_brWNLlYgsU3SVEmoh4H_fDzfRFpTI9LIlJM60OiDlixxfn8VJsYz6uhMO8mLtgWUDYPYFoddj8Tu5xoMdyW__q_togCPRomLbQYfccFdA6ndHAWTghACowSCp8vHQqY6u9SQmfVtjT2hxodw1DH9OoH64tDYvRVzaEp0CGVzDKOV5gYvNEltTZ1dQPopzXh_ErPrWq0qJVDV5Hhb0dZ15lXwWLE_OsXmDBN4LSn2TClIVqRptpsUGpOULNl_BUFPR_vA.jpg" width="400"><br>
+
+ترامپ: اسرائیل و حزب‌الله پذیرفتند حمله‌ها متوقف شود
+ترجمه ماشین:
+من تماس بسیار سازنده‌ای با نخست‌وزیر اسرائیل، بی‌بی نتانیاهو، داشتم و هیچ نیرویی به بیروت اعزام نخواهد شد؛ و هر نیرویی هم که در مسیر بوده، همین حالا بازگردانده شده است.
+همچنین، از طریق نمایندگان بلندپایه، تماس بسیار خوبی با حزب‌الله داشتم و آن‌ها پذیرفتند که همه تیراندازی‌ها متوقف شود — اینکه اسرائیل به آن‌ها حمله نکند و آن‌ها هم به اسرائیل حمله نکنند.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75855)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 21:54:13
+
+<img src="https://cdn1.telesco.pe/file/Nf642AAlRRvcgPIjs-ssCUOzclEGe40pEMju3IB9o1nooC9P-qpc_Su2tRJ8ydowrQpBzkxcP-cbij-PlA0OY-eR4JsR2y7TjdYOi_Lu5GhaLOW_L9NEyJ7-PmO2PSR5X2IznpP8v8rZ5tVFBh3Kw9ysJklOssweeRqtUzYcfYlkF04CRQWz6sZGIrWC_T1D-JW-WL5MLT0FC5vr7lBj0BTQJmVP8cU0x4D-MtEN1ra_iAsgg4XM_aog4k27i5yqMmg5oJdrsgCbR2_DarLKt-m7pZXltTnZeS_1Vl_HdpHsqAHy-eprm6zcCNiTbGzxY-mD4XdgUJeOHp3XQEk2og.jpg" width="400"><br>
+
+ترامپ: محاصره را حفظ می‌کنیم
+توییت‌های خبرنگار NBC، ترجمه ماشین:
+تازه: رئیس‌جمهور ترامپ به من گفت که درباره گزارش‌ها مبنی بر تعلیق مذاکرات ایران با آمریکا، چیزی از ایران نشنیده است؛ اما اگر درست باشد، اشکالی ندارد:
+«فکر می‌کنم اگر حقیقت را بخواهید، زیادی حرف زده‌ایم. به نظرم سکوت کردن خیلی خوب خواهد بود، و این می‌تواند برای مدتی طولانی باشد.»
+او ادامه داد: «این به آن معنا نیست که قرار است برویم و همه‌جا آنجا بمب بریزیم. فقط سکوت می‌کنیم. محاصره را حفظ می‌کنیم. محاصره یک تکه فولاد است.»
+آیا می‌تواند آن‌ها را آن‌قدر منتظر بگذارد تا کوتاه بیایند؟
+«فکر می‌کنم تا هر وقت که بخواهند می‌توانم صبر کنم. آن‌ها دارند ثروت هنگفتی از دست می‌دهند...»
+همچنین وقتی از نویسنده کتاب «هنر معامله» درباره گزارش‌های تعلیق مذاکرات پرسیدم به نظر می‌رسید با اکراه نوعی احترام برای مذاکره‌کنندگان ایرانی قائل است:
+«این حرف مناسبی است، چون آن‌ها مذاکره‌کنندگان بهتری هستند تا جنگجو.»
+GarrettHaake
+الان هم:
+ترامپ و نتانیاهو دارند تلفنی صحبت میکنند.
+J74wabx
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75854)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 21:54:13
+
+<img src="https://cdn1.telesco.pe/file/dV5pFpD_4F-bt_S3wb7-R8rV_wCjh6C35tcckDTsjxjKcCYBRZAOhkDZx7hMBuI6CSLGCKFaqNJc-Md6Y9TfFt2_6L3ipbIkwz4SJ-CIY-Z_Jli1IOnDjDpouXXuph3e1jONrM9LeuoGZ0bYBEwZMJbLdWqcAvL5g3OEUyrzWWDLdhc7r-uPKKfPwSQndB5CPbYPavQZE2p1g-Nvealj1VkHaYh6GLHyRNrQCNyWecVNj6nc0-zLwbEVPWNgN4k8JRelM3AD7vBRZbbX6_LWzcHACIUxTp0waotvrQsJM7LXaMjq_VzN_28zeWa-yh4WYsCVxlzu3nUSfOQnP5mPSw.jpg" width="400"><br>
+
+هم‌زمان با صدور هشدار تخلیه از سوی ارتش اسراییل برای ساکنان حومه جنوبی بیروت، فرمانده قرارگاه مرکزی خاتم‌الانبیا به ساکنان مناطق شمالی اسراییل هشدار داد که در صورت عملی شدن تهدیدهای اسراییل علیه لبنان، برای جلوگیری از آسیب، این مناطق را ترک کنند.
+علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، اعلام کرد بنیامین نتانیاهو «در ادامه شرارت‌های خود در منطقه»، ضاحیه و بیروت را به بمباران تهدید کرده و برای ساکنان این مناطق هشدار تخلیه صادر کرده است.
+او افزود: «با توجه به نقض مکرر آتش‌بس توسط اسراییل، در صورت عملی شدن این تهدید، به ساکنان بخش‌های شمالی و شهرک‌های نظامی در سرزمین‌های اشغالی هشدار می‌دهیم اگر نمی‌خواهند آسیب ببینند منطقه را ترک کنند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75853)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 21:54:13
+
+
+
+«حمید سلیمیان» در حال نواختن تنبک
+#حمید_سلیمیان
+، متأهل و پدر یک پسر چهارماهه شامگاه ۱۸ دی‌ماه ۱۴۰۴ در جریان اعتراضات در زرین‌شهر اصفهان با شلیک مستقیم گلوله جنگی جان خود را از دست داد.
+حمید سلیمیان راننده یکی از شرکت‌های فولاد بود و به گفته نزدیکانش به موسیقی علاقه فراوانی داشت او  تنبک و سنتور می‌نواخت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75852)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 21:54:13
+
+<img src="https://cdn1.telesco.pe/file/kD1E7iPofak2U7jzOEnE2lMkjWrfyzCZgfl9gJkrkGv2DZGgqMWUZv9MKCDrMzQG5cfzjlXSVgvOj-mgY23zedlgoG1E34u0XNuO1H22azCcVlb6jn1iE5gUa8dnD0FTRWDJcggSoQa3T1FjuJqRDJ_zUmYtXq5exk159W1Sa8G7FmS8OEbEhUeINprCG_y80Sld34PEof1T3mY810PDNQr7d_t_-saPSQngqUEhtxoZMjskRngGxbqJVBZweBbHZnvI3CX0EI_Zfg2NjIWRhWIDkvp_BoQiHEAeoQgoElOiyOBJCiJwEkx8Vv_40b_IpCMonYwbMHyVRmHW77KcrA.jpg" width="400"><br>
+
+هم‌زمان با تشدید حملات نظامی اسراییل به لبنان، مقام‌های جمهوری اسلامی بار دیگر تاکید کردند که هرگونه آتش‌بس میان ایران و آمریکا باید شامل همه جبهه‌های درگیری، به‌ویژه لبنان، باشد و هشدار دادند ادامه حملات به این کشور می‌تواند پیامدهایی در پی داشته باشد.
+بنیامین نتانیاهو، نخست‌وزیر اسراییل، روز دوشنبه ۱۱ خرداد ۱۴۰۵، اعلام کرد که به ارتش این کشور دستور داده است اهداف متعلق به حزب‌الله در ضاحیه، حومه جنوبی بیروت، را هدف قرار دهد. او در یک پیام ویدیویی گفت: «هیچ وضعیتی وجود نخواهد داشت که حزب‌الله شهرها و شهروندان ما را هدف قرار دهد اما مقرهای تروریستی آن در ضاحیه بیروت از حمله مصون بماند.»
+دفتر نخست‌وزیر اسراییل در بیانیه‌ای اعلام کرد نتانیاهو و یسراییل کاتس، وزیر دفاع این کشور، در پی آنچه «نقض مکرر آتش‌بس از سوی حزب‌الله» و «حملات علیه شهرها و شهروندان اسراییل» خوانده شده، به ارتش دستور حمله به «اهداف تروریستی» در حومه جنوبی بیروت را داده‌اند.
+نتانیاهو همچنین گفت عملیات زمینی ارتش اسراییل در لبنان در حال گسترش است. اسراییل در جنوب لبنان منطقه‌ای امنیتی ایجاد کرده و می‌گوید هدف از آن جلوگیری از حملات حزب‌الله به مناطق شمالی این کشور است.
+در واکنش به این تحولات، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «آتش‌بس میان ایران و آمریکا، بدون هیچ ابهامی، آتش‌بسی در تمام جبهه‌ها، از جمله لبنان، است.» او افزود نقض آتش‌بس در هر جبهه‌ای «به معنای نقض آتش‌بس در تمامی جبهه‌ها» خواهد بود.
+عراقچی همچنین آمریکا و اسراییل را مسوول پیامدهای هرگونه نقض این آتش‌بس دانست. جمهوری اسلامی پیش از این نیز بارها اعلام کرده بود که آتش‌بس میان ایران و آمریکا باید سایر جبهه‌های درگیری، به‌ویژه لبنان، را نیز در بر بگیرد.
+ابوالفضل شکارچی، سخنگوی نیروهای مسلح جمهوری اسلامی، نیز به اسراییل هشدار داد که «تداوم جنایات در لبنان برای نیروهای مسلح ایران قابل تحمل نخواهد بود.»
+هم‌زمان، محمدباقر قالیباف، رییس مجلس شورای اسلامی و رییس هیات مذاکره‌کننده ایران با آمریکا، با اشاره به آنچه «محاصره دریایی و تشدید جنایات جنگی در لبنان» خواند، این اقدامات را «شواهد آشکار عدم پایبندی آمریکا به آتش‌بس» توصیف کرد.
+قالیباف در پیامی به زبان انگلیسی در شبکه ایکس، بدون اشاره به جزییات بیشتر، نوشت: «هر انتخابی بهایی دارد و زمان پرداخت آن فرا می‌رسد. همه‌چیز در نهایت سر جای خود قرار خواهد گرفت.»
+این اظهارات در حالی مطرح می‌شود که عملیات نظامی اسراییل علیه حزب‌الله، از گروه‌های مورد حمایت جمهوری اسلامی در منطقه، شدت گرفته است. با وجود تاکید مکرر تهران بر ضرورت گنجاندن لبنان در هر توافق آتش‌بس میان ایران و آمریکا، این مطالبه تاکنون محقق نشده است.
+اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، نیز روز دوشنبه در نشست خبری هفتگی خود گفت: «ما تاکید کردیم و کماکان تاکید داریم بر این نکته که آتش‌بس در لبنان بخش لاینفک هرگونه آتش‌بس و هرگونه توافق نهایی برای خاتمه جنگ است.»
+او همچنین حملات اسراییل به لبنان را از عوامل ایجاد تاخیر در روند دیپلماتیک برای پایان دادن به جنگ میان ایران و آمریکا دانست و بار دیگر بر ضرورت برقراری آتش‌بس در لبنان به عنوان بخشی جدایی‌ناپذیر از هر توافق نهایی تاکید کرد.
+@
+VahidHeadline
+تازه‌تر:
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد که جمهوری اسلامی در واکنش به ادامه حملات اسراییل به لبنان و آنچه «نقض آتش‌بس در همه جبهه‌ها» خوانده شده، روند گفت‌وگوها و تبادل پیام با آمریکا از طریق میانجی‌ها را متوقف خواهد کرد.
+تسنیم همچنین مدعی شده است که ایران و گروه‌های هم‌پیمان آن در «جبهه مقاومت» در حال بررسی اقداماتی از جمله انسداد تنگه هرمز و فعال‌سازی سایر جبهه‌ها از جمله تنگه باب‌المندب هستند. این گزارش می‌گوید این اقدامات با هدف واکنش به حملات اسراییل و حامیان آن در دستور کار قرار گرفته است.
+@
+VahidHeadline
+ارتش اسرائیل در بیانیه‌ای به ساکنان منطقه ضاحیه در جنوب بیروت هشدار داد و از آن‌ها خواست برای حفظ جان خود این منطقه را تخلیه کنند.
+در این بیانیه آمده است اگر حزب‌الله به شلیک راکت به سوی شهرها و شهرک‌های اسرائیل ادامه دهد، ارتش اسرائیل اهدافی را در ضاحیه جنوبی هدف قرار خواهد داد.
+در ادامه تاکید شده است دولت اسرائیل با مردم لبنان در حال جنگ نیست، بلکه با سازمان تروریستی حزب‌الله می‌جنگد.
+@
+VahidOOnLine
+در پی اعلام خبرگزاری تسنیم مبنی بر توقف «گفتگوها و تبادل متون از طریق میانجی» میان تهران و واشنگتن، بهای جهانی نفت بیش از ۵ درصد افزایش یافت و به بالاترین سطح خود در هفته‌های اخیر رسید.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75843)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 21:54:13
+
+<img src="https://cdn4.telesco.pe/file/U5H3TS9LQidKHFuDjLvBiWWusjOZUPmRekOx2Ak0-9jqZswqhgOBBnR9Gz4InnEUa-1t19sb0gLn3S1z3I2DiYozg7bPKnIUeBLC2v9kdSLB3RVjVM9fE-Qr57scU0rYXVywkXYvD6-2koLhdbmlQZVxA6sufvcZCompispn4Tpwwe6pfumapxWIQi0hvaNWvAg7HNlfJPnEg9bOUAd_daljJuCI7G60caTQd6f48E20Y-jvdlKe6T7DakZiaQ1Oemj26Z58NEGUHwyE-k8twOvGAFaWaMsC4ySLPPcPJbJT1PEoG1unmHgfhodBWuI40IFCrxGSvEkhfA6Lmk7avA.jpg" width="400"><br>
+
+رسانه‌های ایران از کشته شدن یک دانشجوی زن در دانشکده دندانپزشکی قزوین به ضرب گلوله خبر داده‌اند.
+میزان، خبرگزاری قوه قضائیه، از قول دادستان قزوین نوشت: «بررسی‌های اولیه نشان می‌دهد این دو دانشجو که در آستانه فارغ‌التحصیلی قرار داشتند، در مرحله متارکه از یک رابطه عاطفی بوده و پیش از این نیز اختلافات خانوادگی شدیدی با یکدیگر داشتند. صبح امروز، مرد جوان با یک قبضه سلاح کلت جنگی وارد محوطه درمانگاه شده و چهار گلوله به ناحیه سینه دانشجوی دختر شلیک کرده است. شدت جراحات وارده به‌حدی بوده که متأسفانه وی در همان محل جان خود را از دست می‌دهد.
+در اطلاعیه دانشگاه علوم پزشکی قزوین در این باره آمده است: «انگیزه این واقعه، مسایل شخصی و خانوادگی بوده و ارتباطی با فرآیندهای اداری یا محیط آموزشی دانشکده ندارد.»
+به گفته حمیدرضا قافله باشی، رئیس دانشگاه علوم پزشکی قزوین، «این تیراندازی به دلیل خصومت‌ خانوادگی اتفاق افتاده و دو دانشجو که زن و شوهر بودند در اثر شلیک جان خود را از دست داده‌اند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75842)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-01 21:54:13
 
 
 
@@ -63,7 +222,7 @@ J74wabx
 
 
 
-###### 🔵 Updated at: 2026-06-01 15:56:22
+###### 🔵 Updated at: 2026-06-01 21:54:13
 
 
 
@@ -100,7 +259,7 @@ J74wabx
 
 
 
-###### 🔵 Updated at: 2026-06-01 15:56:22
+###### 🔵 Updated at: 2026-06-01 21:54:13
 
 <img src="https://cdn1.telesco.pe/file/lV-6zKQLu-YipfR-urlDS_mv5RIM67c4gdATBUNT534PBl1H0knz9jOTFOzRy2WuUPUcHOuSGFMYlW58lJ8aCjH76t_MiJBrjvWx4cdTYEXfm6HYCmAl8JnDVBKQfNgen5y-9_SFWrLaUyYvsoOt-F28YU-QY9YUFuEoyVt1mryYvjvpMxNgb4BW7MNHRV6szoijw7aMEUfIW6UVOvcDGZeyacy1TPoGu2SwoJKdtnSdX7GdmzOeF60dh7S-dISZ-Ao6IIgvDo6zmMMkcsFaUtYoQ1oiG0mLuwoH8yAVpfKni-uJFeWWh0X6KMgq1I-BFl65COxUDNtvORQ37U9RAg.jpg" width="400"><br>
 
@@ -119,7 +278,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-01 15:56:22
+###### 🔵 Updated at: 2026-06-01 21:54:13
 
 
 
@@ -139,7 +298,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-01 15:56:22
+###### 🔵 Updated at: 2026-06-01 21:54:13
 
 
 
@@ -153,222 +312,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75836)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn1.telesco.pe/file/RIFAeOpoQkm-CWzvbgvNZCbhLIwd1-Lg58Nn0jVOeLs80LaOtk3sW5GEjB-xIBm4uVh5d1C8cDWeCtiOw8bRypGV8EyE0Vk2UYMT1MZvCWfimGsYCOrzDbdcdmTZeQxDj_ZgknS4Bjh3oz8huTCvrW5HQFwI4HRIQRsibNi185YV0sw_-c69cpEtVL8_FpUv_dodsbYKzJA5uevYk-h1q6_0yHFwDPb6_lTJ-cbx00ZuenZNbkuY2DpPjHLv_dgZ9Anq1kl-W2JRfQR0d5bwxm8tBVbQ4FN7BXsIVo9A1aowF8Ro1RBhVdd_JPmTWierd6OLu7FPm0TG5GzEcwtF-g.jpg" width="400"><br>
-
-بیانیه سپاه: ساعتی پیش آمریکا به دکل مخابراتی سیریک حمله کرده بود پاسخ دادیم
-من اون موقع فقط از یک نفر دو پیام داشتم:
-ساعت 4:00 چهار انفجار در شهرستان سیریک
-پایگاه سپاه سرخور زدن
-ساعت 4:26 دوباره یکی زد
-هرمزگان شهرستان سیریک
-و الان کسی تصویر دوم بالا رو فرستاد و نوشت:
-"حدود ساعت چهار صبح، آمریکا با چند موشک به اینجا حمله کرد.
-پایگاه  نیروی دریایی سپاه  شهرستان سیریک ، حوالی روستای گروک"
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75834)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-
-
-'شلیک موشک از
-#امیدیه
-در خوزستان'
-ویدیوی دریافتی دیگر از همان موشک،
-دوشنبه ۱۱ خرداد ساعت ۶:۳۰
-Vahid
-ستاد کل
-ارتش کویت
-دقایقی پیش اعلام کرد سامانه‌های پدافند هوایی این کشور در حال مقابله با حملات موشکی و پهپادی دشمن هستند.
-به گزارش خبرگزاری رویترز، جزییات بیشتری درباره این حمله پهپادی منتشر نشده است.
-ارتش کویت در بیانیه خود تاکید کرد که صداهای احتمالی انفجار ناشی از رهگیری اهداف مهاجم از سوی سامانه‌های پدافندی است و از شهروندان خواست دستورالعمل‌های ایمنی را رعایت کنند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75833)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn1.telesco.pe/file/nFx_opZC2r0ML-PHsS9xF3Ixs75l2YN5AN1Mn3B5wyJzH0JJ9DJhNqsdBVr9BmI6hO4eQLAhs7ecsX3gFHGn2ujUibR-aR1UB7yujqwbvr263CTsmFMqfhmT7aoSD19wjW1HanxBcI8hdsQDHhzYFFQu5s1Lwigpauk8HpDCN1M0UDz8i-xDOXH1QqP5hB8khFIfSf0jGIWAyt-MOZovYqcFeFQr9TYF3xudMcFNWjAVsSUH5YC--Uz07siwFUlTu0lP31W_RxE5Z1cRWMkU6D4LYBWoOkPCeaZbNN6F8nSbizU00Udk2wjUJLsjfkQPOSdG66mde5qiGhRd0Sy_Zg.jpg" width="400"><br>
-
-بیانیه سنتکام درباره حملات شنبه و یکشنبه
-(از جمله حمله ساعاتی پیش به سیریک هرمزگان که با توجه به
-پستی پایین‌تر
-گویا حدود ساعت ۴ صبح دوشنبه به وقت ایران انجام شده. در آمریکا هنوز یکشنبه است.)
-ترجمه ماشین:
-"آمریکا در واکنش به تجاوز ایران، از خود دفاع کرد و تهدیدها را از کار انداخت
-تامپا، فلوریدا — فرماندهی مرکزی ایالات متحده آمریکا، سنتکام، این آخر هفته حملات دفاعی علیه سایت‌های راداری ایران و مراکز فرماندهی و کنترل پهپادها در گروک ایران و جزیره قشم انجام داد.
-این حملات حساب‌شده و عامدانه، روزهای شنبه و یکشنبه و در پاسخ به اقدامات تهاجمی ایران انجام شد؛ اقداماتی که شامل سرنگونی یک پهپاد MQ-1 آمریکا بود که بر فراز آب‌های بین‌المللی فعالیت می‌کرد. جنگنده‌های آمریکایی به‌سرعت واکنش نشان دادند و پدافند هوایی ایران، یک ایستگاه کنترل زمینی، و دو پهپاد تهاجمی یک‌طرفه را که تهدیدی آشکار برای کشتی‌های در حال عبور از آب‌های منطقه‌ای محسوب می‌شدند، منهدم کردند.
-هیچ‌یک از نیروهای نظامی آمریکا آسیب ندیدند. سنتکام در جریان آتش‌بس جاری، در واکنش به تجاوز بی‌دلیل ایران، به حفاظت از دارایی‌ها و منافع ایالات متحده ادامه خواهد داد."
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75832)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn1.telesco.pe/file/BWQkbD-ZPV68gHh_6x91cO-XSxyi813H-8v4wzwun13yB2nkSOFb3DDnxBLy_ZTcUYcTtY5yYSZ5yvNufH8gdXXmMs_lYoreQlAJk4oo0Uulh-xtRUbtszw3c81OF9s4voIQlCgPcac3DBdBeXxlW7-vJSG32I9LPIkFXUnWxDJrX-vYDB8o--DSNQj7fP_5DnXjnkVWb_mM1CI-tEpz9ZWx2BrBUc2Rl3U2RoqpLBIx44kPkA79fumjn-M35crHsCMJeEdb37ENVYlA7tDFOHkqe9pLjjMJdrNwWU0bzbh79Pt0kv6Eco_mUq-22Orn4xzHke_8BYJ3adHL2bK0nA.jpg" width="400"><br>
-
-'شلیک موشک از
-#امیدیه
-در خوزستان'
-تصاویر دریافتی، دوشنبه ۱۱ خرداد ساعت ۶:۳۰ به وقت
-#ایران
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75828)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn1.telesco.pe/file/oVGaKP76wBYxVF-ZYt9-nvDYlDzmpxCOtasRxb_hwJPCB5HruMFr6MKrrPELsHGm41Zs5ydEwDt1OCy6l0UwrFuVWmDWm1RBQvbXrMPjwJ__-HzOl8Q7ei-QCkba02v6R0riBjuy3l1XVzmhtB7-GIiR_9E1VW09nJSmDF9VJ1uLuSQE-rTC5_Jqd_wssQeex-YT1dim8kalZ-NJEC-feo9Nsy3Z0abWkcfVFBVJzJOBRX7ZRgzf8T3iAF_lnYfddRvnRjdQ1Me8v7xz1v0xltFr9Rm2SaMlDfGFFWXQB_GlK_1lVHsGNq7sQfbUCRIg908sYnBey_zynMFF839bkg.jpg" width="400"><br>
-
-شلیک موشک به کویت
-دوباره همز‌مان پیام‌هایی درباره شلیک موشک از امیدیه خوزستان و اعلام هشدار در کویت دریافت کردم.
-دوشنبه ۱۱ خرداد
-ساعت ۶ به وقت کویت که میشه ساعت ۶:۳۰ به وقت ایران
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75827)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn1.telesco.pe/file/OLN8Mingp6_1O6C8tj90kcb_Cfg2GWy3_DoiHOnB8GIDe1aeFTGSvuIy5iOA5eFQYg68--Tw28v62xrl_BQA_xSCqIyHeCuuQ9Ncp3h_PJFPLZ7z2v8GPg34F1aWhK7urWrSkgs4oUKz_gsnHSG3Q7bk67SVjhFwytGFwLahoev_l1awruVIbF3HnZwcIiakL8dBj2uc8eImczQ6i5tK799GQDmGGreLKG5tNIW5dmHU3YZuaMyk9wi3WwpTsXwGdGteG69Hwst5_WQQOUwoU7GEP_w3msji3iz6achCH_fln01EOWh1pxmhyCnKCSc4ukj2_Ez1TFlcuXOt96cW9w.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-رسانه اخبار جعلی سی‌ان‌ان امروز طبق معمول گفت که توافق هسته‌ای ایرانِ من درباره مسائل هسته‌ای صحبت نمی‌کند؛ در حالی که در واقع، بسیار روشن تصریح می‌کند که ایران سلاح هسته‌ای نخواهد داشت.
-سپس با جزئیات بسیار محکم و مفصل، به جنبه‌های مختلف دیگر موضوع هسته‌ای می‌پردازد.
-در واقع، بیشترِ این توافق درباره همین موضوع است.
-سی‌ان‌ان و بسیاری دیگر در رسانه‌های اخبار جعلی، فاجعه‌ای با رتبه‌های پایین هستند.
-حتی با مالکیت جدید هم بعید است اوضاعشان هرگز بهتر شود!!!
-رئیس‌جمهور، دی‌جی‌تی
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75826)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn1.telesco.pe/file/r3RLeQHV9-Y3Ny35FFnDtvd4O8k5tAnDgUr68gkRcGmkIzFjAFFOyT9wyl7ue8NniFMAHY4pfzInhhTxK5G4N_7_Bi7B1fmbTItPox6RG_hYooF69nZbTn4_DzO6KNer244MB2XUNDDY7sUP3PRA2IppRrLoraG9rl_JUKs9Good3QWUhoa_iu5v4UUKVIhxGuSYueHtoIZihKQBnfJcQeM18TLIfiWjdU364siMelYBLzaoDFSCkfVtUmk8r7W6l44gauC2LOm7CLQl6GYbMi3lkgAoncs5FXlLSZWZ_CQbeFSwdE0NxjYcE1w4JJRMvowCVaofa4HiAV9NQb5mdg.jpg" width="400"><br>
-
-فاکس نیوز هم به درخواست استعفای پزشکیان پرداخته:
-FoxNews
-چند مقام دولتی با تکذیب شایعه استعفای مسعود پزشکیان، آن را «خبر کذب با هدف ایجاد ناامیدی» خواندند.
-فاطمه مهاجرانی، سخنگوی دولت، الیاس حضرتی و علی احمدنیا که از اعضای شورای اطلاع رسانی دولت مسعود پزشکیان هستند در پست‌های جداگانه به ادامه کار رئیس جمهوری و تلاش او برای «حل مسائل کشور» اشاره کرده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75825)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn1.telesco.pe/file/Rai_COe3zYcSQzan7oUQKfLr-gEFUPOlFCv72YYlS7dNW925Dxoebrt8ZLwVykPWZpZWXiPOkiCvWECn50fY_EFTdMmbR96n-kqhmb0_BiiSsVtdcW3gz3R88ZZt_hmr_twa3kKridCLf_pCPznS3plrGY0tSFOh3CWEYXCorbhZuAyh69Og4Uq9vgm9vo6gR06Dm8wbMFJ1NnBmYqZF6Gmk0VJ-pKEENVXVHa2IINV0vCwNE7tAsn0LLhWKekc0ZxFEcX63qrc-SAWcMKKRw3g6tbsPZUnI5Kpoxysb-D2ccOHdiw2XQBiDUWXyCKYjifdbEcNJRJY9n4iVNZJJDw.jpg" width="400"><br>
-
-رسانه‌های جمهوری اسلامی وقوع دو انفجار را که تقریبا هم‌زمان در تهران و کرمانشاه و در ساعات پایانی یکشنبه گزارش شد به نشت گاز نسبت دادند.
-سایت تسنیم، نزدیک به سپاه پاسداران اعلام کرد که در ساعات پایانی روز یکشنبه، «انفجار گاز» در محله باغ ابریشم کرمانشاه باعث مصدومیت ۲ نفر شد.
-این سایت‌ همچنین [با انتشار عکس بالا] مدعی شد که انفجار در یک واحد مسکونی در «فاز یک اندیشه» در استان تهران ناشی از «نشت گاز» بوده است.
-خبرگزاری ایسنا به نقل از سخنگوی اورژانس استان تهران می‌گوید این انفجار تاکنون ۶ مصدوم بر جای گذاشته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75824)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-
-
-خبرگزاری تسنیم، وابسته به سپاه پاسداران انقلاب اسلامی، در واکنش به گزارش شبکه ایران اینترنشنال درباره استعفای مسعود پزشکیان، رییس دولت، این خبر را تکذیب کرد و آن را «شایعه‌سازی» خواند.
-شبکه ایران اینترنشنال، ساعاتی پیش در گزارشی اعلام کرد مسعود پزشکیان در نامه‌ای رسمی به دفتر مجتبی خامنه‌ای، رهبر جمهوری اسلامی، خواستار کناره‌گیری از سمت خود شده است. این رسانه همچنین نوشت در این نامه به وجود اختلافات ساختاری در اداره کشور و نقش نهادهای نظامی در تصمیم‌گیری‌های کلان اشاره شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75823)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn1.telesco.pe/file/mWFlQs04vZ9IyS1ElfHGtorzRgw7og9XXEOgQycMHXWw6w942GcFZdIIg_p9Q6KY4yxlIGF1SDZGQvq7whubGnwEbjKpbdwRseRSbuJlDaR-k3ivdKD-6b10yNXeaqveUGLaEZ5pyjaPxvy8zx5lA5wJZral5cVhGBmfRclG5vd3hkQcUbM74AtztyaIKivElInHMGNjiJ3mloeVce2-wRLUrxssa-eP1kSlbR5rO_R2Rk-MwdYpG8aoF50otusLsfwSfA65qM7rDdEdpq064mtmPWrW7fgJPLU75Q7eNQ5940eMXvT1nKNexGztQ4u8_76Lw1MtHQbsdCT8if92Uw.jpg" width="400"><br>
-
-IranIntlbrk
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75822)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-01 15:56:22
-
-<img src="https://cdn4.telesco.pe/file/v9QccuOXyeOdOlzJ-d1UYJ_3l6FvKI5F8M1qtVzig6G36XcQmV3ghxRcp6gEBoqTNZy-0x8y38LNdz80K6yEYVgKfJZG5flPJrWiZTrktQYU1qyfDLInCgeU8txjnQkBuy2W2MnhCV4TMlvfzSuTRg6DDJgPY4Pt7AGvN2mWKm_AipaDTnbK0s0OjY0bOgfIhWKTz8xXWHfADFOSFEO-tht_EOScUDuhjw5D4rbsxg2P6APYpCMaafNPVhDlIbhBt_5S-JZGJLA7mJXsdhSAZqZkuxt8ZaJ8dMqDvuu1FCB9XiJ4qPJVPpNI8VgKGg1lgiv9piFZeyUxbFyvKZyNkA.jpg" width="400"><br>
-
-مسعود پیاهو، مردی که تصویر معترض نشسته مقابل نیروهای پلیس یگان ویژه در مقابل پاساژ علاالدین در آغاز اعتراضات دی ماه سال گذشته را منتشر کرد،
-به گفته وکیلش
-به ۱۰ سال زندان محکوم شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75821)
 
 ---
 
