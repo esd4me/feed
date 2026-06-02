@@ -3,7 +3,26 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
+
+
+
+ارتش آمریکا به یک کشتی دیگر شلیک کرد.
+بیانه سنتکام، ترجمه ماشین:
+تامپا، فلوریدا — نیروهای آمریکا [امروز] ۲ ژوئن یک نفتکش بدون بار را که قصد داشت به سوی یکی از بنادر ایران در خلیج [فارس] حرکت کند، از کار انداختند.
+فرماندهی مرکزی آمریکا، سنتکام، تدابیر محاصره را علیه نفتکش M/T Lexie با پرچم بوتسوانا اجرا کرد؛ این کشتی هنگام عبور از آب‌های بین‌المللی به سوی جزیره خارک در حرکت بود. خدمه کشتی هشدارهای مکرر را نادیده گرفتند و طی یک دوره ۲۴ ساعته چندین بار از اجرای دستورهای نیروهای آمریکایی سر باز زدند.
+در نهایت، یک هواپیمای آمریکایی با شلیک یک موشک هل‌فایر به موتورخانه کشتی، آن را از کار انداخت و مانع رسیدن نفتکش به ایران شد.
+سنتکام از ۱۳ آوریل اجرای محاصره همه رفت‌وآمدهای دریایی به بنادر ایران و خروج از آن‌ها را آغاز کرده است. با ادامه آتش‌بس با ایران، نیروهای آمریکا تاکنون شش کشتی تجاری را از کار انداخته و مسیر ۱۲۲ کشتی را تغییر داده‌اند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75882)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn1.telesco.pe/file/dmW_kn2MUtmhLrC2FeBh47JMdyr0lPhq2uV3ZA-tFKhikP-FIySq4ABHxR5MHbOBXj_F-_9TIYb-gqTPcO01URLfh8gwSHe-tPUOnSKmSCeEPmIfAkXwaQB5QbHPDrq8kh5nAB629kOnq0iGR9bTSmOb2oHzaGs7xBzHX5wOk008a3KqsdmjiZElRuLXZZqiCpRwV-liBpava8q3hhKJzOAkqokj57WmWoDAdIeQTFIm01U_9JX7waxBjHqnG_IchMNI8U3cm9QPDSWFewcqxvRlY5YCipzthmh0ss_UevBBCtdIy4G8zhR7641P_FwQuzchHml-HZ7P-4GB_eSzUA.jpg" width="400"><br>
 
@@ -23,7 +42,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn1.telesco.pe/file/j66Drd8i-fT8Fkw-ppvDr5f3wF_MuxL5bZkatrm89zCAvSXP_DLRmAbUU2uqAFgkLUkr8eoTYMxiYxrabII_v06un_Cw3Fu5Lm-NmAkWGAUWE9VMYu8cqxxmTWKRaeqhpM5rnm0IygCm3TU-WOM4HqjO3-81Oa0-hC43uean3xSfg75_2WH3F--iv31n4-eL0p6Fpv9LgiinrD6zT69jftbOD6ApEpV4-yuPXD2t8KJyAaFEaUM8NNKmavrndTZFY_AvXrMIspyLTsmmcDyMljNHbu6hQ-bGgoxa9zEY7XYUiGEyn0ZnJwj-nUVWxvg6ZOtLYhwrTSt-OrKc4tgQnw.jpg" width="400"><br>
 
@@ -41,7 +60,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn1.telesco.pe/file/TES0zcEcKRtecRY0rZt6eet4GxEYMUJvc0ks2PVBPDOLHe5pwp2gbBX74Df3LSvJjGvXo5K0FW0o1Pa3IsSdcltO6VxrRmp_UH8-oYfdXiUe_Vat9_FnuvL83hy0H5jlHmAYEstlXzPhn1Zsk6ZO0nbD-oAusPWQPt-5i8OTCJuzgWNI3oKENShnINZ4zayGv2N6V0pxcidx-mFYvAZzfr-fYr9v2wdVs1UE5QCOQVt1_p0bF9hjSFn2CLZApBhewhQEMd5ppQ-Y_4RRCJ2zAPXtO6FX53n5cvPyF5wVWdsDcI4vxBu-4huRNZF9r66vnqVOtLREo0Wz1l0z2nVteg.jpg" width="400"><br>
 
@@ -65,7 +84,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn4.telesco.pe/file/PwRBPy7DbEkNzvyoK1tcDzG2xH4U_rbYg5SKyLvl6w4AYZV8gM_DwMZripgzaZRgGXdHQfHeLSz7yhKv2B3pljXtwkTzYjRGEz-Fq5k9GVUn_z-ZsmGhuIRBljTW2geQR8MA2L8OigyX1csklxoTEkYU6B4ELPlu98-v9dgicaDP4x-Ka1IfsOWgY_TeI0w2Rwo5JaBYUqsw2FzoXmcw_MAJ4zbj1wPryg7EZTKCMMZJb1SPiJ2yVyrDkgJjmZwOR9BDlCSkG_lWxr2RQYDZPe6lGNK8IE2OtRPDkdFCorn7FzAe344M-YmgwRvlPWLkbwgDzQgtKUmGjLN6Igpfag.jpg" width="400"><br>
 
@@ -82,7 +101,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn1.telesco.pe/file/o-AAtMvWiLkPzEfWVbSAstV6i2Ib7trxJ6j5EMN-IzVF34wbJZkvA9YNP5LVNIiVEhIX8QVZ6KcCrr0kiZrmxQhCCcU4apnk1StiP5fiQKFOWPkYqpM-d-FFJMZIXaZJ9vwXnx0UFxtIOPG5inXj1Zn-PFZ_23B8Uzy3faU7_bcVr0lTe3kozf4ssZys2YfSNz63qqoUGPdofGMaDzFoTrD2_nXDc4gdAv5xvu-EaUSQ_qvgAujIFaAL9CxULUoH0iwX7UmISv7GAEUpwEwtepKitCH-hVB2YHOuNBGNoAAd58DUyzPwRryx1MpMOCgrcG_15tLbfo_Gd2Fx3fVTxA.jpg" width="400"><br>
 
@@ -103,7 +122,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn1.telesco.pe/file/Nb0KW1sD8OqYI-866KuArRJicztK-bnBc2WwRn6xBagceO4uREi8PR9AdbO1kvUqKdE8dd0COQqflUh9WrTGf9fweqhTH2HQmZ_SJwHwejUF-BOj-WN0Psf9zWvz_vhFR0Sy9K7wd3Uo1tfbTrIpMpKU-n9lAZVi9Mg8WTyEmGth5gf2NVzhaAcwV-pkq5lTCBZP7yz8lSNrdriUEZ-d4nE9LYxVJ4KJV54VXW2YsIfXteC6dB0qjBGULsBJ5Z9p4dhipjSShMMsSpPGHTvtf1d1thJ4BQ2fP0lMt3x0hBkAjdmUWuH9K47ekhFt7iI3dQDhEx-LuGa-yZqnaNg1Ew.jpg" width="400"><br>
 
@@ -132,7 +151,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn1.telesco.pe/file/Zroorx49rjH6saih2sKwUMe0gO9QBW1Gq34HgFNLZ9LSL_AOymIdQ_xBkhA1MQMWHkqN5Q91B61GJwINrk58x_JQ3VPLROzUDniEnZjr-IMXNnCicwy07C4oPBGSEuml2Ytub9G8sxTj0Cil8ayY0c9QS8UsnSV6cywj1CD0SABGCTGjGDKC06zLNR3N5HS7X80gETaxC5bucLorbkchCSAhQ4faSiLypNaqLIPsufb8XPPie1YUuFQPKSyQf3SuLGM1-y-HcxMRg7-thVrpQ6N6eK-DpH3Y1qxWYlZfXpt_nZ2nkAoQnbSn3nhHeosqj55cqf7viAk6mrlK-zQEjA.jpg" width="400"><br>
 
@@ -146,7 +165,7 @@ Gerduo
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn4.telesco.pe/file/kRJAwJoootKheDgrZR3EcoWS8GisUEM3wnSbScpDo4dLDABYE7fQMZ7xMoKH3Os1EVGQLJ5m_3ZQ859TYmooisPNgHKDZZhMkkQ9dx2FNGjscz1gEDtFQEYY8C9mt4TsPTBMqS79AlOFzTg_0zyqngTBSwCbdAGg9yGC3-E0UondnYXtDRdgOhP7tsGxFB0172IJHv32B_r-UV0pUQt_zTXkT4Sny23lovN_vkLDmjIWgnu-fK9wHdTUgKEy3dAWG0XNAbDhk2BMVEysjPh2bZN-XuuVXy8HDwRWDwZydKWwB9_NVKaSTXLPsK5eKZHan-A1wvzQ3x4-vXihv_h4TQ.jpg" width="400"><br>
 
@@ -168,7 +187,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn4.telesco.pe/file/Mfv8qQ0DkLYWDOEvlT2aVRix4VSEBRiipFOzVp7W2eOQpopw57O-MOj9SA1ZFi_9iXvP7CLWp-i6Y7NJdNFUefGKaVr0CShDbQcHaEW-08w97zbjwhgARlhB3xRc37Z_-lehzbmqjgjSv5urYIWFvUn4KHchbFOihK5EjNTG7dMMf3o96gv3DSbDoQmYZfYn31Zt2jGGt1noIqx5NRlFJPg6N7ZiPEYn4suBp9fsSZp5iaar81XqQJaRMh6ia7rDzh23OV0i2I1-IWNGMZprHNVoTbYT9iIFd8e2RdMlHSpxJoWmrtziKdqB6dDZVltXTuQvzBoA_kFR9pUq-4yDjw.jpg" width="400"><br>
 
@@ -189,7 +208,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 
 
@@ -207,7 +226,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn1.telesco.pe/file/TyAxl67jqxbYb30qKGFIQ8XGr5UjyQG5otqBdvxI7PMAepOA0XrEXTojVGmnvJpF1QqTxnPdjoJBYVVAHVURbtwDcUkFD_b8zVyZPqPTEPWntTmrfl05roAbTjrzKvar2Nw1kCER8kIJTzpXW8ubpF0MwlE9yzyHuCl7pHS5y2JjtBwqQx0iVIFaOwBWBlcXei8eL1R2aNYjEAGoyl49RHLJ07CkMYHySi2X_aPW7LPFHAV-SxOEsV19XK7Cd7Yjexgqr37XlFJi_lgFdj6uwaLzzVxy3yVjIoAPP_-bUiaVlf59thwI6v1hEV77iCnn-iyUfnSx8r65YSlaBx5MPA.jpg" width="400"><br>
 
@@ -225,7 +244,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 
 
@@ -268,7 +287,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 
 
@@ -359,7 +378,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 22:08:59
+###### 🔵 Updated at: 2026-06-03 01:06:08
 
 <img src="https://cdn1.telesco.pe/file/O1Pp8tzggLzdFCVKBO2IhMV26EbaM75MmI92cc0fCaK79vogbwoiWZSKq5E3tS9g71C6SphYjrzDuSujtZq0tqv6kWce7KI4hOKwc8sc9nqhvVBRqTleT29E0Nmf7Ot81b8yInnmnTdUSca8I4lMlOIljVBvE0G0eTcXEobUTBeCqwmST5ANFI8BhyYNSxboagr_vD-i2bIAHMhyMZEkQLi47Jzhrc8DB_bhM6UC7_566Ae5Bhz5JQoHkj0xpW1bjj5n_qzWry2BkoIcPWJFHwm8u2SiU8VmaNYFe5mOeCGOAz9Lh4y-1tIdge9NIfExza4ofzRP-533Thw73TPRcg.jpg" width="400"><br>
 
@@ -373,68 +392,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75863)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 22:08:59
-
-<img src="https://cdn1.telesco.pe/file/HajLH_mSt4xhJHB3kZsNC7GreOPmidpWX3mafpQcgzFgXKjV8E7-gKy1hCFfQkdXJFJBAyygrgZgFZbXtEtX1uldUshACFJnXPpykiwKBu_bNgj7FMKD6WFIkqe1mpfSb6BVT5xQvDOC8VKW1623E3pDeg4SgAX04vosRkQO2sOY_TYh0EfPyuGwXhw8KH2-TygFTsPoZJF_-phUflapzGi_C7e3WPrRATQWRoC_bMXyqiHqjLzh4A16s_hPUDcVr0Rwr4ON5aHOqXr188vcqiQ8uVOx6aG1cLdBIlo84XVNTkwIPwY9DRt7x1aFo6ze1aSvYWXAFLx1UOsxHMs7dQ.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-امروز با بی‌بی نتانیاهو گفت‌وگویی داشتم و از او خواستم وارد یک حمله بزرگ به بیروتِ لبنان نشود. او نیروهایش را برگرداند. ممنون بی‌بی!
-همچنین با نمایندگان رهبران حزب‌الله گفت‌وگو کردم و آن‌ها پذیرفتند که تیراندازی به اسرائیل و سربازانش را متوقف کنند. به همین ترتیب، اسرائیل هم پذیرفت که تیراندازی به آن‌ها را متوقف کند.
-ببینیم این وضعیت چقدر دوام می‌آورد — امیدوارم تا ابد ادامه داشته باشد!
-رئیس‌جمهور دونالد ج. ترامپ
-realDonaldTrump
-خیلی شبیه به
-پست چند ساعت پیش
-ش به نظر می‌رسه. به نظر می‌رسه همون رو بازنویسی کرده ولی قبلی رو حذف نکرده.
-نظر چت‌ جی‌پی‌تی:
-در اصلِ پیام، تفاوت محتواییِ بنیادی ندارد:
-هر دو می‌گویند ترامپ با نتانیاهو صحبت کرده، نیروهای اسرائیلی از رفتن به بیروت منصرف شده‌اند، و از طریق نمایندگان/واسطه‌ها با حزب‌الله هم درباره توقف درگیری صحبت شده است. گزارش‌های خبری هم نسخه اول را با همین مضمون منتشر کرده‌اند.
-اما متن دوم از چند جهت مهم بازنویسی و تنظیم‌شده‌تر است:
-۱. ترامپ نقش خودش را پررنگ‌تر کرده
-در متن اول می‌گوید:
-تماس بسیار سازنده‌ای با نتانیاهو داشتم و نیروها به بیروت نمی‌روند...
-اما در متن دوم می‌گوید:
-از نتانیاهو خواستم وارد یک یورش بزرگ به بیروت نشود. او نیروهایش را برگرداند. ممنون بی‌بی!
-یعنی متن دوم بیشتر این برداشت را القا می‌کند که ترامپ شخصا جلوی حمله بزرگ به بیروت را گرفته و نتانیاهو به درخواست او عمل کرده است.
-۲. عبارت «حمله/یورش بزرگ به بیروت» اضافه شده
-در متن اول فقط می‌گوید:
-نیروها به بیروت نمی‌روند.
-در متن دوم می‌گوید:
-وارد یک major raid of Beirut, Lebanon نشود.
-این مهم است، چون متن دوم وضعیت را جدی‌تر و عملیاتی‌تر تصویر می‌کند: نه فقط «نرفتن نیروها»، بلکه جلوگیری از یک عملیات بزرگ در بیروت.
-۳. تماس با حزب‌الله با احتیاط بیشتری بیان شده
-متن اول می‌گوید:
-I had a very good call with Hezbollah
-یعنی ظاهرا «تماس خیلی خوبی با حزب‌الله داشتم».
-اما متن دوم می‌گوید:
-I also had a conversation with Representatives of the Leaders of Hezbollah
-یعنی «با نمایندگان رهبران حزب‌الله صحبت کردم».
-این تغییر احتمالا برای این است که مستقیم نگویند ترامپ با خود حزب‌الله «تماس خیلی خوب» داشته؛ متن دوم آن را رسمی‌تر و غیرمستقیم‌تر می‌کند.
-۴. تعهد حزب‌الله محدودتر و دقیق‌تر بیان شده
-در متن اول:
-all shooting will stop — Israel will not attack them, and they will not attack Israel
-یعنی «همه تیراندازی‌ها متوقف می‌شود؛ اسرائیل به آنها حمله نمی‌کند و آنها به اسرائیل حمله نمی‌کنند.»
-در متن دوم:
-they agreed to stop shooting at Israel, and its soldiers. Likewise, Israel agreed to stop shooting at them.
-اینجا حزب‌الله مشخصا متعهد می‌شود به اسرائیل و سربازانش شلیک نکند و اسرائیل هم به آنها شلیک نکند.
-تفاوت ظریف این است که متن اول از «attack» استفاده می‌کند که گسترده‌تر است؛ متن دوم بیشتر روی «shooting» تمرکز دارد که ممکن است محدودتر از «حمله» باشد.
-۵. متن دوم تردید و شکنندگی توافق را اضافه می‌کند
-متن اول قاطعانه تمام می‌شود. اما متن دوم اضافه می‌کند:
-Let’s see how long that lasts — Hopefully it will be for ETERNITY!
-یعنی: «ببینیم چقدر دوام می‌آورد؛ امیدوارم برای همیشه باشد.»
-این جمله نشان می‌دهد ترامپ خودش هم دوام توافق را قطعی نمی‌داند و بیشتر حالت آرزویی/نمایشی به آن می‌دهد.
-جمع‌بندی کوتاه
-متن اول بیشتر شبیه اعلام رسمی یک توافق فوری است.
-متن دوم بیشتر شبیه بازنویسی سیاسی‌تر و شخصی‌تر همان پیام است؛ در آن ترامپ نقش خودش را برجسته‌تر کرده، تماس با حزب‌الله را غیرمستقیم‌تر توصیف کرده، عبارت «یورش بزرگ به بیروت» را اضافه کرده، و در پایان هم درباره دوام توافق تردید نشان داده است.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75862)
 
 ---
 
