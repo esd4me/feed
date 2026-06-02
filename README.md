@@ -3,7 +3,149 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-02 14:28:34
+###### 🔵 Updated at: 2026-06-02 18:27:16
+
+<img src="https://cdn4.telesco.pe/file/PwRBPy7DbEkNzvyoK1tcDzG2xH4U_rbYg5SKyLvl6w4AYZV8gM_DwMZripgzaZRgGXdHQfHeLSz7yhKv2B3pljXtwkTzYjRGEz-Fq5k9GVUn_z-ZsmGhuIRBljTW2geQR8MA2L8OigyX1csklxoTEkYU6B4ELPlu98-v9dgicaDP4x-Ka1IfsOWgY_TeI0w2Rwo5JaBYUqsw2FzoXmcw_MAJ4zbj1wPryg7EZTKCMMZJb1SPiJ2yVyrDkgJjmZwOR9BDlCSkG_lWxr2RQYDZPe6lGNK8IE2OtRPDkdFCorn7FzAe344M-YmgwRvlPWLkbwgDzQgtKUmGjLN6Igpfag.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسراییل، در مراسم تودیع دیوید بارنئا، رییس موساد، گفت جمهوری اسلامی تاکنون به دلیل توطئه‌هایش علیه اسراییل بهای سنگینی پرداخته و سرانجام این حکومت سقوط است.
+بر اساس گزارش دفتر نخست‌وزیر اسراییل که روز سه‌شنبه ۱۲ خرداد ۱۴۰۵ در شبکه ایکس منتشر شد، نتانیاهو در این مراسم گفت: «هر کسی که بدخواهی علیه اسراییل در سر می‌پروراند، بداند که توطئه‌هایش شکست خواهد خورد و بهایی که خواهد پرداخت بسیار سنگین خواهد بود. بهایی که جمهوری اسلامی تا همین‌جا پرداخته است، بسیار سنگین است. پایه‌های رژیم وحشت در ایران ترک خورده و دیگر به آنچه بود باز نخواهد گشت. من به شما می‌گویم سرانجامش سقوط است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75877)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 18:27:16
+
+<img src="https://cdn1.telesco.pe/file/o-AAtMvWiLkPzEfWVbSAstV6i2Ib7trxJ6j5EMN-IzVF34wbJZkvA9YNP5LVNIiVEhIX8QVZ6KcCrr0kiZrmxQhCCcU4apnk1StiP5fiQKFOWPkYqpM-d-FFJMZIXaZJ9vwXnx0UFxtIOPG5inXj1Zn-PFZ_23B8Uzy3faU7_bcVr0lTe3kozf4ssZys2YfSNz63qqoUGPdofGMaDzFoTrD2_nXDc4gdAv5xvu-EaUSQ_qvgAujIFaAL9CxULUoH0iwX7UmISv7GAEUpwEwtepKitCH-hVB2YHOuNBGNoAAd58DUyzPwRryx1MpMOCgrcG_15tLbfo_Gd2Fx3fVTxA.jpg" width="400"><br>
+
+مارکو روبیو، وزیر خارجه آمریکا در جلسه کمیته روابط خارجی سنا گفت که جمهوری اسلامی در حال دستیابی به سلاح هسته‌ای بود و اگر عملیات خشم حماسی صورت نمی‌گرفت دیر می‌شد.
+آقای روبیو با یادآوری این که توانایی نظامی جمهوری اسلامی به شدت تضعیف شده، افزود که جمهوری اسلامی ایران برای اولین بار در تاریخ، بسیاری از شرایط مدنظر آمریکا برای رسیدن به توافق را پذیرفته است.
+به گفته او شکاف در ساختار قدرت سیاسی جمهوری اسلامی و زمان طولانی رسیدن پیام‌ها مذاکرات را طولانی کرده است. اما طبعا اگر مذاکرات به هدف دلخواه آمریکا نرسد، ایالات متحده گزینه‌های دیگری را درپیش خواهد گرفت.
+@
+VahidHeadline
+پیش‌تر ‌خبرگزاری فارس، وابسته به سپاه، به نقل از یک منبع آگاه نوشت که تبادل پیام بین جمهوری اسلامی و آمریکا برای آنچه دست‌یابی به یادداشت تفاهم اولیه بین تهران و واشینگتن خوانده می‌شود، دست‌کم چند روز است که متوقف شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75876)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 18:27:16
+
+<img src="https://cdn1.telesco.pe/file/Nb0KW1sD8OqYI-866KuArRJicztK-bnBc2WwRn6xBagceO4uREi8PR9AdbO1kvUqKdE8dd0COQqflUh9WrTGf9fweqhTH2HQmZ_SJwHwejUF-BOj-WN0Psf9zWvz_vhFR0Sy9K7wd3Uo1tfbTrIpMpKU-n9lAZVi9Mg8WTyEmGth5gf2NVzhaAcwV-pkq5lTCBZP7yz8lSNrdriUEZ-d4nE9LYxVJ4KJV54VXW2YsIfXteC6dB0qjBGULsBJ5Z9p4dhipjSShMMsSpPGHTvtf1d1thJ4BQ2fP0lMt3x0hBkAjdmUWuH9K47ekhFt7iI3dQDhEx-LuGa-yZqnaNg1Ew.jpg" width="400"><br>
+
+هما میرافشار، شاعر و ترانه‌سرای نامدار ایرانی، در ۸۹ سالگی در لس‌آنجلس درگذشت.
+مرتضی برجسته اشراقی، با نام هنری مرتضی، سه‌شنبه ۱۲ خرداد، در اینستاگرام نوشت که خانم افشار هفته گذشته چشم از جهان فروبست، اما خانوادهٔ او با تأخیر این خبر را منتشر کردند.
+این شاعر و ترانه‌سرا، که بر اساس گزارش‌ها، سال‌ها با بیماری آلزایمر دست‌و‌پنجه نرم می‌کرد، از پُرکارترین و محبوب‌ترین ترانه‌سرایان قبل و بعد از انقلاب ۱۳۵۷ بود.
+هما افشار با بسیاری از خوانندگان برجسته ایرانی از جمله حمیرا، هایده، مهستی، ستار، ابی، داریوش، معین و عارف همکاری داشت.
+او در سال ۱۳۱۵ در تهران متولد شد و در جوانی با علی میرافشار، پسرعموی حمیرا، ازدواج کرد. این پیوند، دوستی نزدیکی بین هما و حمیرا ایجاد کرد که به گفته خود او، جرقهٔ تولید بسیاری از ترانه‌ها و همکاری‌های این دو با هم شد.
+@
+VahidHeadline
+هما میرافشار، روزنامه‌نگار، شاعر و ترانه‌سرای تصنیف‌های عاشقانه موسیقی دستگاهی و آثار به یادماندنی پاپ، در ۸۹ سالگی درگذشت؛ چهره‌های نامدار موسیقی و علاقه‌مندانش در شبکه‌های اجتماعی از مقام هنری او تجلیل کردند.
+او در سه مجموعه شعری بیش از هزار سروده دارد که افزون بر ۲۵۰ شعرش در زمره ماندگارترین ترانه‌های ایرانی است و بی‌دلیل نیست که در جامعه موسیقی به «زن هزار ترانه» و یا «ملکه ترانه‌سرایی ایران» معروف شد. از همین روست که ایرج جنتی عطایی، ترانه‌سرای برجسته معاصر، هما میرافشار را پیشکسوت خود می‌‌داند که «پیش از ترانه نو و در کنار آن شهره بود.»
+هما پیشگام سرودن اشعاری بود که یک زن برای معشوق می‌خواند و یا حرف‌های عاشقانه‌ یک مرد برای دلبرش، چرا که تصنیف‌سرایان آن دوران به جنسیت ترانه‌ها کمتر می‌پرداختند. او سال‌ها پیش در برنامه «یک‌ حرف و دو حرف» رادیو بی‌بی‌سی به زنده‌یاد محمود خوشنام، پژوهشگر موسیقی، در این باره گفت: «منیر طاها، سیمین بهبهانی یا لعبت والا که کار می‌کردند، من ندیدم که ترانه‌هایشان بوی زنانه بدهد مگر این که از زبان مرد بیرون آمده باشد. اگر خواننده آنها مرد بوده به ناچار باید چیزی را می‌نوشتند که یک مرد به یک زن بگوید.»
+«یادم می‌آید که یکی از من پرسید که شما این حالت را چگونه می‌نویسید و من در پاسخ گفتم اگر بخواهم از زبان مرد شعر بگویم، مشتاق شنیدن همان‌هایی هستم که دوست دارم از او بشنوم. آن حرف‌ها را می‌گذاردم در کلام و اکبر گلپا می‌خواند، یا می‌دادم به محمودی خوانساری می‎‌خواند اما گاه طوری می‌نوشتم که مرد یا زن هر کدام بخوانند فرقی نکند.»
+....
+در ابتدای دهه پنجاه بود که اشعار هما میرافشار و ملودی‌های زیبای محمد حیدری در صدر جدول بهترین‌ ترانه‌ها قرار گرفت و نام هما درخشید؛ مثل ترانه «دیوونتم» با اجرای حمیرا: «بذار بگم دیوونه‏‌تم...آره دیوونه‏‌تم من...نشکن منو به سنگ غم... چراغ خونه‌تم من...» یا ترانه «دلم می‌خواد» با اجرای هایده: «دلم می‏‌خواد که روزی صدهزار بار... بهت بگم دوست دارم عزیزم...» و یا ترانه «میکده» با صدای اکبر گلپایگانی: «هوس میکده داره دل دیوونه‏‌ی من، نمی‌‏دونه بی‏‌تو ایام بهارو چه کنه...»
+...
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75871)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 18:27:16
+
+<img src="https://cdn1.telesco.pe/file/Zroorx49rjH6saih2sKwUMe0gO9QBW1Gq34HgFNLZ9LSL_AOymIdQ_xBkhA1MQMWHkqN5Q91B61GJwINrk58x_JQ3VPLROzUDniEnZjr-IMXNnCicwy07C4oPBGSEuml2Ytub9G8sxTj0Cil8ayY0c9QS8UsnSV6cywj1CD0SABGCTGjGDKC06zLNR3N5HS7X80gETaxC5bucLorbkchCSAhQ4faSiLypNaqLIPsufb8XPPie1YUuFQPKSyQf3SuLGM1-y-HcxMRg7-thVrpQ6N6eK-DpH3Y1qxWYlZfXpt_nZ2nkAoQnbSn3nhHeosqj55cqf7viAk6mrlK-zQEjA.jpg" width="400"><br>
+
+Gerduo
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75870)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 18:27:16
+
+<img src="https://cdn4.telesco.pe/file/kRJAwJoootKheDgrZR3EcoWS8GisUEM3wnSbScpDo4dLDABYE7fQMZ7xMoKH3Os1EVGQLJ5m_3ZQ859TYmooisPNgHKDZZhMkkQ9dx2FNGjscz1gEDtFQEYY8C9mt4TsPTBMqS79AlOFzTg_0zyqngTBSwCbdAGg9yGC3-E0UondnYXtDRdgOhP7tsGxFB0172IJHv32B_r-UV0pUQt_zTXkT4Sny23lovN_vkLDmjIWgnu-fK9wHdTUgKEy3dAWG0XNAbDhk2BMVEysjPh2bZN-XuuVXy8HDwRWDwZydKWwB9_NVKaSTXLPsK5eKZHan-A1wvzQ3x4-vXihv_h4TQ.jpg" width="400"><br>
+
+یک مقام شهرداری تهران می‌گوید که برگزاری «مراسم بدرقه» و تشییع جنازهٔ علی خامنه‌ای، رهبر کشته‌شدهٔ جمهوری اسلامی، در شهرهای قم، مشهد و تهران «قطعی شده است».
+به گزارش رسانه‌های ایران، محمدامین توکلی‌زاده معاون اجتماعی شهرداری تهران روز سه‌شنبه ۱۲ خرداد گفت که این نهاد «در حال تدارک برای حضور جمعیتی بیش از ۱۵ تا ۲۰ میلیون نفر در تهران هستیم».
+او به زمان دقیق برگزاری این مراسم اشاره نکرد ولی گفت که احتمالا در پایان ذی‌الحجه و اوایل محرم برگزار شود.
+این زمان تقریبا مصادف با اواخر خرداد و اوایل تیرماه است.
+علی خامنه‌ای از ۹ اسفند پارسال که در حملات مشترک آمریکا و اسرائیل کشته شد، هنوز دفن نشده است.
+معاون اجتماعی شهرداری تهران در ادامه گفت که «مراسم بدرقه» سه روز در نظر گرفته شده و در تهران قرار است ۲۴ ساعت طول بکشد.
+به گفته توکلی‌زاده، محل دفن خامنه‌ای «طبق وصیت ایشان و توصیه‌های نزدیکان‌شان» در حرم امام هشتم شیعیان تعیین شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75869)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 18:27:16
+
+<img src="https://cdn4.telesco.pe/file/Mfv8qQ0DkLYWDOEvlT2aVRix4VSEBRiipFOzVp7W2eOQpopw57O-MOj9SA1ZFi_9iXvP7CLWp-i6Y7NJdNFUefGKaVr0CShDbQcHaEW-08w97zbjwhgARlhB3xRc37Z_-lehzbmqjgjSv5urYIWFvUn4KHchbFOihK5EjNTG7dMMf3o96gv3DSbDoQmYZfYn31Zt2jGGt1noIqx5NRlFJPg6N7ZiPEYn4suBp9fsSZp5iaar81XqQJaRMh6ia7rDzh23OV0i2I1-IWNGMZprHNVoTbYT9iIFd8e2RdMlHSpxJoWmrtziKdqB6dDZVltXTuQvzBoA_kFR9pUq-4yDjw.jpg" width="400"><br>
+
+پس از چند روز تاخیر، بانک مرکزی و مرکز آمار ایران به‌طور همزمان گزارش‌های تورمی اردیبهشت‌ماه را منتشر کردند؛ گزارش‌هایی که با وجود تفاوت در ارقام، از تداوم روند صعودی قیمت‌ها و افزایش فشار معیشتی بر خانوارها حکایت دارد.
+مرکز آمار ایران تورم ماهانه خانوارهای کشور را ۸.۸ درصد، تورم نقطه‌به‌نقطه را ۸۳.۹ درصد و تورم سالانه را ۵۷.۷ درصد اعلام کرد.
+همزمان بانک مرکزی با تمرکز بر مناطق شهری، تورم ماهانه را ۸.۵ درصد، تورم نقطه‌ای را ۷۷.۲ درصد و تورم سالانه را ۵۳.۹ درصد برآورد کرد.
+بر اساس گزارش بانک مرکزی، شاخص کالاها در اردیبهشت‌ماه نسبت به ماه قبل ۱۰ درصد و نسبت به مدت مشابه سال گذشته ۱۱۳.۸ درصد افزایش یافته است؛ آماری که از رشد شدید هزینه خرید اقلام روزمره حکایت دارد.
+اختلاف ارقام منتشر شده از سوی دو نهاد آماری به تفاوت در جامعه آماری، سال پایه، شیوه نمونه‌گیری و وزن‌دهی کالاها و خدمات بازمی‌گردد. مرکز آمار کل خانوارهای شهری و روستایی را مبنا قرار می‌دهد، در حالی که بانک مرکزی تنها مناطق شهری را بررسی می‌کند.
+مقایسه آمارها با ماه‌های گذشته نیز از شتاب گرفتن روند تورمی خبر می‌دهد. تورم نقطه‌به‌نقطه که در فروردین‌ماه ۷۳.۵ درصد اعلام شده بود، در اردیبهشت به ۸۳.۹ درصد رسید؛ افزایشی بیش از ۱۰ واحد درصدی تنها در یک ماه.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75868)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 18:27:16
+
+
+
+صدها دانش‌آموز روز سه‌شنبه ۱۲ خرداد با تجمع مقابل وزارت آموزش و پرورش در تهران، به تغییر قوانین کنکور، افزایش تأثیر معدل و پیامدهای جنگ بر آمادگی برای آزمون سراسری اعتراض کردند.
+در ویدئوهای منتشرشده در شبکه‌های اجتماعی، شعارهایی از جمله «دانش‌آموز بیداره، از تبعیض بیزاره»، «دانش‌آموز می‌میرد، ذلت نمی‌پذیرد»، «وعده زیاد شنیدیم، عدالت و ندیدیم» و «فشار روانی کافیه، زندگی‌مونو پس بدین» شنیده می‌شود.
+سیاست‌های مرتبط با کنکور از جمله افزایش تأثیر معدل و تغییر در شیوه برگزاری و زمان‌بندی آزمون‌ها، در کنار شرایط ناشی از جنگ، در ماه‌های اخیر با تغییرات و ابهام‌هایی همراه بوده که به گفته داوطلبان، موجب سردرگمی و دشواری در برنامه‌ریزی برای امتحانات نهایی و کنکور شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75867)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-02 18:27:16
 
 <img src="https://cdn1.telesco.pe/file/TyAxl67jqxbYb30qKGFIQ8XGr5UjyQG5otqBdvxI7PMAepOA0XrEXTojVGmnvJpF1QqTxnPdjoJBYVVAHVURbtwDcUkFD_b8zVyZPqPTEPWntTmrfl05roAbTjrzKvar2Nw1kCER8kIJTzpXW8ubpF0MwlE9yzyHuCl7pHS5y2JjtBwqQx0iVIFaOwBWBlcXei8eL1R2aNYjEAGoyl49RHLJ07CkMYHySi2X_aPW7LPFHAV-SxOEsV19XK7Cd7Yjexgqr37XlFJi_lgFdj6uwaLzzVxy3yVjIoAPP_-bUiaVlf59thwI6v1hEV77iCnn-iyUfnSx8r65YSlaBx5MPA.jpg" width="400"><br>
 
@@ -21,7 +163,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 14:28:34
+###### 🔵 Updated at: 2026-06-02 18:27:16
 
 
 
@@ -64,7 +206,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 14:28:34
+###### 🔵 Updated at: 2026-06-02 18:27:16
 
 
 
@@ -155,7 +297,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-02 14:28:34
+###### 🔵 Updated at: 2026-06-02 18:27:16
 
 <img src="https://cdn1.telesco.pe/file/O1Pp8tzggLzdFCVKBO2IhMV26EbaM75MmI92cc0fCaK79vogbwoiWZSKq5E3tS9g71C6SphYjrzDuSujtZq0tqv6kWce7KI4hOKwc8sc9nqhvVBRqTleT29E0Nmf7Ot81b8yInnmnTdUSca8I4lMlOIljVBvE0G0eTcXEobUTBeCqwmST5ANFI8BhyYNSxboagr_vD-i2bIAHMhyMZEkQLi47Jzhrc8DB_bhM6UC7_566Ae5Bhz5JQoHkj0xpW1bjj5n_qzWry2BkoIcPWJFHwm8u2SiU8VmaNYFe5mOeCGOAz9Lh4y-1tIdge9NIfExza4ofzRP-533Thw73TPRcg.jpg" width="400"><br>
 
@@ -174,7 +316,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-02 14:28:34
+###### 🔵 Updated at: 2026-06-02 18:27:16
 
 <img src="https://cdn1.telesco.pe/file/HajLH_mSt4xhJHB3kZsNC7GreOPmidpWX3mafpQcgzFgXKjV8E7-gKy1hCFfQkdXJFJBAyygrgZgFZbXtEtX1uldUshACFJnXPpykiwKBu_bNgj7FMKD6WFIkqe1mpfSb6BVT5xQvDOC8VKW1623E3pDeg4SgAX04vosRkQO2sOY_TYh0EfPyuGwXhw8KH2-TygFTsPoZJF_-phUflapzGi_C7e3WPrRATQWRoC_bMXyqiHqjLzh4A16s_hPUDcVr0Rwr4ON5aHOqXr188vcqiQ8uVOx6aG1cLdBIlo84XVNTkwIPwY9DRt7x1aFo6ze1aSvYWXAFLx1UOsxHMs7dQ.jpg" width="400"><br>
 
@@ -236,7 +378,7 @@ Let’s see how long that lasts — Hopefully it will be for ETERNITY!
 
 
 
-###### 🔵 Updated at: 2026-06-02 14:28:34
+###### 🔵 Updated at: 2026-06-02 18:27:16
 
 <img src="https://cdn1.telesco.pe/file/tEXMPFngltyibxPjUxAXwPzWToqmxR7DMAHnIBXvN3QykkK2GJC6o4Usg-fUv4ZLJjvQPW87qiDICkW1eVyoxlOOeZIEpd_yw8P9VliFUM9HcuROh99fUvSkISGPPs9AJl1IeSp6d85MVWT-yJRcEuLjLf4E8cgyO7JE1JpFESZmWePYTQYmRjm2f3wiaBDBOVbDWUpWxIJGkep09atZ36gRvbUseJCvInGFAS1fyvSifBCjlyVyAEfIq8d85DNQ2gH4Gvm3j2uwj1Gm50BEgDSdY8mS5psV16o6uPbhsmkXmAqoa_qGGMJgSg5NevA5oDsEAow5ZTlGtVWwN7AgsQ.jpg" width="400"><br>
 
@@ -255,7 +397,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-02 14:28:34
+###### 🔵 Updated at: 2026-06-02 18:27:16
 
 
 
@@ -270,7 +412,7 @@ IranIntlbrk
 
 
 
-###### 🔵 Updated at: 2026-06-02 14:28:34
+###### 🔵 Updated at: 2026-06-02 18:27:16
 
 <img src="https://cdn1.telesco.pe/file/G2mTrds2QSkJZ0Ku4ELr-vFtqFQhCoVy5BvqENJXddduOWqwlRqs7FFHfcPl6uXyzLcXQJtpkvM3te9LIjRj1Rm3XvK5OJ1vQ2TITWPYuuZfK2rG22tyuG5DbSG8C6x90kdLD9lILOrbHUnu-dMTS6IP_wcMXYA9M4Ie5_un9wf5FBD7Bm7L3xiG9YroDT0NiqQ45eaJmOEZF403iDtwyW34KmoO4RRbkxb_zp_gvxOl3Y0VmWtsNyMlTQ89sNShAVUsZr71Lt083MZdrXWeo_648iy6o30YpLBFD44zGwjK0OentKKpjdw6sHKcom5wHhk5r-Ui60LXMfbcdNSi-Q.jpg" width="400"><br>
 
@@ -290,164 +432,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75858)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 14:28:34
-
-<img src="https://cdn1.telesco.pe/file/IcIglenDwcmbJDUY3gQwB7FlFQaC2lX4wZJUw9PqhqcRhEraBYp2CaoG3VDxdmXZPnWo5ai3nvUl19Z8zpnOXLKv2_yjYQXdIJGsW9zd-jK7nW--GwnTtqE0R9cUdpQws9fZBv8SBMM6T1GqTscGzGB0SCP76lVpE7TY2SVMo_R03PY4x2lPwFJvkAO2498LgSNNHG_ZImjytrtbMVzjNgSMnEvALWbN64iUbtgW4KwNJ5iRW7M4Q4OFZOU6AFUxrx3aIrzU9ix3TfzpTn30GW9hziLWw57L7SYpUPtiTDFOWapc1creKSBCHo5jWR_3-NV33dDE-kYbIRUfOtBeRQ.jpg" width="400"><br>
-
-قاآنی: ادامه حملات به لبنان و غزه، باب‌المندب را به تنگه هرمز تبدیل خواهد کرد
-اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، شامگاه دوشنبه ۱۱ خرداد ماه در پیامی که رسانه‌های دولتی ایران منتشر کرده‌اند، نوشت جنگ اسرائیل در لبنان و غزه «در سایه حمایت‌های وقیحانه آمریکا، عزم محور مقاومت را برای توسعه پشتیبانی‌ها از هر دو جبهه، اقدام برای فعال‌سازی سایر جبهه‌ها و همسان‌سازی وضعیت ترافیکی تنگه باب‌المندب با تنگه هرمز رقم خواهد زد.»
-فرمانده نیروی قدس سپاه همچنین هشدار داد که ادامه عملیات اسرائیل در جنوب لبنان و غزه، این کشور را با واکنش‌های گسترده‌تری از سوی حزب‌الله و گروه‌های فلسطینی روبه‌رو خواهد کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75857)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 14:28:34
-
-<img src="https://cdn1.telesco.pe/file/Pm_T3RkDnx7E4YRqb908VWdaoW1FkdVLzdIDVgr3ld_CAfQ-PQbVVb1OHCfgpaCfZmSRp2vaHQ0dq6R4DV9HhyMdHy03qhyc13EYj2F7PlDbdrgTSEpUiuIno0ea9xc0TkeGUKUa7dKMwt6ZqIvKFG-hBiWkGuhcFfiihrDn0eAtr9RKH7KYhls9KeY-vimJfcInDvFOE8yqOh-gSsPXpdctoKk0qaDuBEjCPhv4uIinTzqcv-hBCTrghu1c8hd-dTAkzc3Qmz9ElnzcweLwG9JgNmZLOcttN7SGQlrUhvCkMNLZyo6RvSmxwXsX94rFzodG9-T-m2ghf052PTCgmw.jpg" width="400"><br>
-
-ترامپ: مذاکرات با جمهوری اسلامی ایران با سرعتی بالا ادامه دارد.
-از توجه شما به این موضوع سپاسگزارم!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-این دفعه گفت "جمهوری اسلامی ایران"
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75856)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 14:28:34
-
-<img src="https://cdn1.telesco.pe/file/oKmve2_YbYSkzy6OsvnxpLltZa_vbKqAuZYYlb_95Ze7TXjJV0hJdjaAI6Sizv-dCQfQk1zKiT9NTivR2_brWNLlYgsU3SVEmoh4H_fDzfRFpTI9LIlJM60OiDlixxfn8VJsYz6uhMO8mLtgWUDYPYFoddj8Tu5xoMdyW__q_togCPRomLbQYfccFdA6ndHAWTghACowSCp8vHQqY6u9SQmfVtjT2hxodw1DH9OoH64tDYvRVzaEp0CGVzDKOV5gYvNEltTZ1dQPopzXh_ErPrWq0qJVDV5Hhb0dZ15lXwWLE_OsXmDBN4LSn2TClIVqRptpsUGpOULNl_BUFPR_vA.jpg" width="400"><br>
-
-ترامپ: اسرائیل و حزب‌الله پذیرفتند حمله‌ها متوقف شود
-ترجمه ماشین:
-من تماس بسیار سازنده‌ای با نخست‌وزیر اسرائیل، بی‌بی نتانیاهو، داشتم و هیچ نیرویی به بیروت اعزام نخواهد شد؛ و هر نیرویی هم که در مسیر بوده، همین حالا بازگردانده شده است.
-همچنین، از طریق نمایندگان بلندپایه، تماس بسیار خوبی با حزب‌الله داشتم و آن‌ها پذیرفتند که همه تیراندازی‌ها متوقف شود — اینکه اسرائیل به آن‌ها حمله نکند و آن‌ها هم به اسرائیل حمله نکنند.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75855)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 14:28:34
-
-<img src="https://cdn1.telesco.pe/file/Nf642AAlRRvcgPIjs-ssCUOzclEGe40pEMju3IB9o1nooC9P-qpc_Su2tRJ8ydowrQpBzkxcP-cbij-PlA0OY-eR4JsR2y7TjdYOi_Lu5GhaLOW_L9NEyJ7-PmO2PSR5X2IznpP8v8rZ5tVFBh3Kw9ysJklOssweeRqtUzYcfYlkF04CRQWz6sZGIrWC_T1D-JW-WL5MLT0FC5vr7lBj0BTQJmVP8cU0x4D-MtEN1ra_iAsgg4XM_aog4k27i5yqMmg5oJdrsgCbR2_DarLKt-m7pZXltTnZeS_1Vl_HdpHsqAHy-eprm6zcCNiTbGzxY-mD4XdgUJeOHp3XQEk2og.jpg" width="400"><br>
-
-ترامپ: محاصره را حفظ می‌کنیم
-توییت‌های خبرنگار NBC، ترجمه ماشین:
-تازه: رئیس‌جمهور ترامپ به من گفت که درباره گزارش‌ها مبنی بر تعلیق مذاکرات ایران با آمریکا، چیزی از ایران نشنیده است؛ اما اگر درست باشد، اشکالی ندارد:
-«فکر می‌کنم اگر حقیقت را بخواهید، زیادی حرف زده‌ایم. به نظرم سکوت کردن خیلی خوب خواهد بود، و این می‌تواند برای مدتی طولانی باشد.»
-او ادامه داد: «این به آن معنا نیست که قرار است برویم و همه‌جا آنجا بمب بریزیم. فقط سکوت می‌کنیم. محاصره را حفظ می‌کنیم. محاصره یک تکه فولاد است.»
-آیا می‌تواند آن‌ها را آن‌قدر منتظر بگذارد تا کوتاه بیایند؟
-«فکر می‌کنم تا هر وقت که بخواهند می‌توانم صبر کنم. آن‌ها دارند ثروت هنگفتی از دست می‌دهند...»
-همچنین وقتی از نویسنده کتاب «هنر معامله» درباره گزارش‌های تعلیق مذاکرات پرسیدم به نظر می‌رسید با اکراه نوعی احترام برای مذاکره‌کنندگان ایرانی قائل است:
-«این حرف مناسبی است، چون آن‌ها مذاکره‌کنندگان بهتری هستند تا جنگجو.»
-GarrettHaake
-الان هم:
-ترامپ و نتانیاهو دارند تلفنی صحبت میکنند.
-J74wabx
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75854)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 14:28:34
-
-<img src="https://cdn1.telesco.pe/file/dV5pFpD_4F-bt_S3wb7-R8rV_wCjh6C35tcckDTsjxjKcCYBRZAOhkDZx7hMBuI6CSLGCKFaqNJc-Md6Y9TfFt2_6L3ipbIkwz4SJ-CIY-Z_Jli1IOnDjDpouXXuph3e1jONrM9LeuoGZ0bYBEwZMJbLdWqcAvL5g3OEUyrzWWDLdhc7r-uPKKfPwSQndB5CPbYPavQZE2p1g-Nvealj1VkHaYh6GLHyRNrQCNyWecVNj6nc0-zLwbEVPWNgN4k8JRelM3AD7vBRZbbX6_LWzcHACIUxTp0waotvrQsJM7LXaMjq_VzN_28zeWa-yh4WYsCVxlzu3nUSfOQnP5mPSw.jpg" width="400"><br>
-
-هم‌زمان با صدور هشدار تخلیه از سوی ارتش اسراییل برای ساکنان حومه جنوبی بیروت، فرمانده قرارگاه مرکزی خاتم‌الانبیا به ساکنان مناطق شمالی اسراییل هشدار داد که در صورت عملی شدن تهدیدهای اسراییل علیه لبنان، برای جلوگیری از آسیب، این مناطق را ترک کنند.
-علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، اعلام کرد بنیامین نتانیاهو «در ادامه شرارت‌های خود در منطقه»، ضاحیه و بیروت را به بمباران تهدید کرده و برای ساکنان این مناطق هشدار تخلیه صادر کرده است.
-او افزود: «با توجه به نقض مکرر آتش‌بس توسط اسراییل، در صورت عملی شدن این تهدید، به ساکنان بخش‌های شمالی و شهرک‌های نظامی در سرزمین‌های اشغالی هشدار می‌دهیم اگر نمی‌خواهند آسیب ببینند منطقه را ترک کنند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75853)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 14:28:34
-
-
-
-«حمید سلیمیان» در حال نواختن تنبک
-#حمید_سلیمیان
-، متأهل و پدر یک پسر چهارماهه شامگاه ۱۸ دی‌ماه ۱۴۰۴ در جریان اعتراضات در زرین‌شهر اصفهان با شلیک مستقیم گلوله جنگی جان خود را از دست داد.
-حمید سلیمیان راننده یکی از شرکت‌های فولاد بود و به گفته نزدیکانش به موسیقی علاقه فراوانی داشت او  تنبک و سنتور می‌نواخت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75852)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-02 14:28:34
-
-<img src="https://cdn1.telesco.pe/file/kD1E7iPofak2U7jzOEnE2lMkjWrfyzCZgfl9gJkrkGv2DZGgqMWUZv9MKCDrMzQG5cfzjlXSVgvOj-mgY23zedlgoG1E34u0XNuO1H22azCcVlb6jn1iE5gUa8dnD0FTRWDJcggSoQa3T1FjuJqRDJ_zUmYtXq5exk159W1Sa8G7FmS8OEbEhUeINprCG_y80Sld34PEof1T3mY810PDNQr7d_t_-saPSQngqUEhtxoZMjskRngGxbqJVBZweBbHZnvI3CX0EI_Zfg2NjIWRhWIDkvp_BoQiHEAeoQgoElOiyOBJCiJwEkx8Vv_40b_IpCMonYwbMHyVRmHW77KcrA.jpg" width="400"><br>
-
-هم‌زمان با تشدید حملات نظامی اسراییل به لبنان، مقام‌های جمهوری اسلامی بار دیگر تاکید کردند که هرگونه آتش‌بس میان ایران و آمریکا باید شامل همه جبهه‌های درگیری، به‌ویژه لبنان، باشد و هشدار دادند ادامه حملات به این کشور می‌تواند پیامدهایی در پی داشته باشد.
-بنیامین نتانیاهو، نخست‌وزیر اسراییل، روز دوشنبه ۱۱ خرداد ۱۴۰۵، اعلام کرد که به ارتش این کشور دستور داده است اهداف متعلق به حزب‌الله در ضاحیه، حومه جنوبی بیروت، را هدف قرار دهد. او در یک پیام ویدیویی گفت: «هیچ وضعیتی وجود نخواهد داشت که حزب‌الله شهرها و شهروندان ما را هدف قرار دهد اما مقرهای تروریستی آن در ضاحیه بیروت از حمله مصون بماند.»
-دفتر نخست‌وزیر اسراییل در بیانیه‌ای اعلام کرد نتانیاهو و یسراییل کاتس، وزیر دفاع این کشور، در پی آنچه «نقض مکرر آتش‌بس از سوی حزب‌الله» و «حملات علیه شهرها و شهروندان اسراییل» خوانده شده، به ارتش دستور حمله به «اهداف تروریستی» در حومه جنوبی بیروت را داده‌اند.
-نتانیاهو همچنین گفت عملیات زمینی ارتش اسراییل در لبنان در حال گسترش است. اسراییل در جنوب لبنان منطقه‌ای امنیتی ایجاد کرده و می‌گوید هدف از آن جلوگیری از حملات حزب‌الله به مناطق شمالی این کشور است.
-در واکنش به این تحولات، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «آتش‌بس میان ایران و آمریکا، بدون هیچ ابهامی، آتش‌بسی در تمام جبهه‌ها، از جمله لبنان، است.» او افزود نقض آتش‌بس در هر جبهه‌ای «به معنای نقض آتش‌بس در تمامی جبهه‌ها» خواهد بود.
-عراقچی همچنین آمریکا و اسراییل را مسوول پیامدهای هرگونه نقض این آتش‌بس دانست. جمهوری اسلامی پیش از این نیز بارها اعلام کرده بود که آتش‌بس میان ایران و آمریکا باید سایر جبهه‌های درگیری، به‌ویژه لبنان، را نیز در بر بگیرد.
-ابوالفضل شکارچی، سخنگوی نیروهای مسلح جمهوری اسلامی، نیز به اسراییل هشدار داد که «تداوم جنایات در لبنان برای نیروهای مسلح ایران قابل تحمل نخواهد بود.»
-هم‌زمان، محمدباقر قالیباف، رییس مجلس شورای اسلامی و رییس هیات مذاکره‌کننده ایران با آمریکا، با اشاره به آنچه «محاصره دریایی و تشدید جنایات جنگی در لبنان» خواند، این اقدامات را «شواهد آشکار عدم پایبندی آمریکا به آتش‌بس» توصیف کرد.
-قالیباف در پیامی به زبان انگلیسی در شبکه ایکس، بدون اشاره به جزییات بیشتر، نوشت: «هر انتخابی بهایی دارد و زمان پرداخت آن فرا می‌رسد. همه‌چیز در نهایت سر جای خود قرار خواهد گرفت.»
-این اظهارات در حالی مطرح می‌شود که عملیات نظامی اسراییل علیه حزب‌الله، از گروه‌های مورد حمایت جمهوری اسلامی در منطقه، شدت گرفته است. با وجود تاکید مکرر تهران بر ضرورت گنجاندن لبنان در هر توافق آتش‌بس میان ایران و آمریکا، این مطالبه تاکنون محقق نشده است.
-اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، نیز روز دوشنبه در نشست خبری هفتگی خود گفت: «ما تاکید کردیم و کماکان تاکید داریم بر این نکته که آتش‌بس در لبنان بخش لاینفک هرگونه آتش‌بس و هرگونه توافق نهایی برای خاتمه جنگ است.»
-او همچنین حملات اسراییل به لبنان را از عوامل ایجاد تاخیر در روند دیپلماتیک برای پایان دادن به جنگ میان ایران و آمریکا دانست و بار دیگر بر ضرورت برقراری آتش‌بس در لبنان به عنوان بخشی جدایی‌ناپذیر از هر توافق نهایی تاکید کرد.
-@
-VahidHeadline
-تازه‌تر:
-خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد که جمهوری اسلامی در واکنش به ادامه حملات اسراییل به لبنان و آنچه «نقض آتش‌بس در همه جبهه‌ها» خوانده شده، روند گفت‌وگوها و تبادل پیام با آمریکا از طریق میانجی‌ها را متوقف خواهد کرد.
-تسنیم همچنین مدعی شده است که ایران و گروه‌های هم‌پیمان آن در «جبهه مقاومت» در حال بررسی اقداماتی از جمله انسداد تنگه هرمز و فعال‌سازی سایر جبهه‌ها از جمله تنگه باب‌المندب هستند. این گزارش می‌گوید این اقدامات با هدف واکنش به حملات اسراییل و حامیان آن در دستور کار قرار گرفته است.
-@
-VahidHeadline
-ارتش اسرائیل در بیانیه‌ای به ساکنان منطقه ضاحیه در جنوب بیروت هشدار داد و از آن‌ها خواست برای حفظ جان خود این منطقه را تخلیه کنند.
-در این بیانیه آمده است اگر حزب‌الله به شلیک راکت به سوی شهرها و شهرک‌های اسرائیل ادامه دهد، ارتش اسرائیل اهدافی را در ضاحیه جنوبی هدف قرار خواهد داد.
-در ادامه تاکید شده است دولت اسرائیل با مردم لبنان در حال جنگ نیست، بلکه با سازمان تروریستی حزب‌الله می‌جنگد.
-@
-VahidOOnLine
-در پی اعلام خبرگزاری تسنیم مبنی بر توقف «گفتگوها و تبادل متون از طریق میانجی» میان تهران و واشنگتن، بهای جهانی نفت بیش از ۵ درصد افزایش یافت و به بالاترین سطح خود در هفته‌های اخیر رسید.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75843)
 
 ---
 
