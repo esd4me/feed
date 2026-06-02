@@ -3,7 +3,135 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
+
+<img src="https://cdn4.telesco.pe/file/BNoOB7JVqB3brIe62Ewa91kkzxcZlL_J0zUTwggfC8Qkq3zlbWzutQryUIIu_SNosUbEVfapdzyccEUgxXMIQQyOsEAGJJk_Qq5WWzQK9MkKD9oVZxXysTZLjfbH_88IpNxFKjb_K-5iaIUUAiwi9x5JBFItNTLt5BIWJNNSq2DvfXvh9ewgdBiA6X8o9MZPaBOH-gF-N5guXOhGmoL4Kh0VaCDY3CiunKtJ3yK5sT5ZVyCh0pzSnLLjkO6ryh5xWPPGmA2LzbggsMeq4wNnNoc54oXChGavzWIF1g1JJFhrf9VOkaFvLd2slEm2iB-09CC1-G4L_r9W9ju2gw_0vA.jpg" width="400"><br>
+
+‌ساعتی پس از انتشار بیانیه سنتکام مبنی بر متوقف کردن یک نفتکش در مسیر بنادر ایران، خبرگزاری‌های داخل ایران و نزدیک به سپاه پاسداران از به صدا در آمدن آژیرهای خطر در کویت در پی حمله موشکی به پایگاه‌های نظامی آمریکا در این کشور خبر دادند.
+خبرگزاری تسنیم اگر چه رسما این حمله را از جانب ایران گزارش نکرده اما به نقل از منابع عربی خود نوشت: «دست کم صدای سه انفجار» در کویت شنیده شده و دو پایگاه علی السالم و عریفجان مورد حمله قرار گرفته‌اند.
+ایران در واکنش به حمله هفته گذشته نیروهای امریکایی به نقاطی در نزدیکی بندرعباس، به پایگاه‌های آمریکایی در کویت حمله موشکی پهپادی کرده بود که در پی آن به گزارش رسانه‌های امریکا چند نظامی این کشور زخمی شدند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75887)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 02:50:23
+
+<img src="https://cdn1.telesco.pe/file/J1oj0eICaFfQsEzzKPsx5aARGwlkPmMlq3LH8pA9M9LmuLeZ2CO6Bd23CfXY-UrE1JOoqDMCed3IvYwgQPd_x6yicbEwOgWSHwDCwwTYNAUUGQsdeYOcKiD2g63wS8xftgmkmFdhbhb8wNT04Q3Yd-64m0-74XicZM4h2WRxhcTbBUe7y8ljAVDkxDqUKuU9Egu5PKL_hm24Sz93REd78fK9iUn9HdRL80tAHXgU0qH-qWOrwg79CVEMvteJDfPWrPHzxIbTPkEkgqERQBEcYfwgbqj3pWENo4VNusZ_O8_Mwq2WXbiPButYuHnvzw06sr4d_kXyxBd4jIZuuhY5QA.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+عکس بالا: بندر کنگان دو تا موشک شلیک شد سمت کشور های عربی 2.19
+ساعت ۲:۲۰ از جم بوشهر موشک زدن
+درود همین الان از جم دو عدد موشک شلیک شد به سمت خلیج فارس
+از جم ساعت ۲:۲۱
+دو تا موشک پرتاب شد
+از جم بوشهر هم دو تا زدن
+همين الان
+شلیک موشک از شهرک موشکی شهید چمران جم هم اکنون
+ساعت ۲:۲۳ دقیقه صبح دو موشک همزمان
+آپدیت: پرتاب سوم
+سومی هم پرتاب شد
+یکی دیگه هم همین الان شلیک شد
+۲:۲۴ از جم یکی دیگه پرتاب شد
+🔄
+آپدیت:
+وزارت کشور بحرین دقایقی قبل از به صدا در آمدن «آژیر خطر» خبر داد و از ساکنان این کشور خواست به نزدیکترین مکان امن بروند. این هشدار پس از آن است که کویت نیز اعلام کرد مشغول مقابله با حملات هوایی است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75886)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 02:50:23
+
+<img src="https://cdn1.telesco.pe/file/IooSf4neQtAPzAI7WougwwjnIASrts99XDJ_k4OK92kitlABgvfNejjc3YWOpKoQyhLvZg5j7kM9ISKhBTnFcHrnXGZHV7Mc48giW0EKw3lnwfHu-kQyRo0wi1ZFGsjNfzkyVS5ixPXsqf86gFi44iMGF71aOh2L2saxDlQTY398kybOtrS3A3P9PLmVeiszDVWJiH5jfGmz-V7XVhEQZYj-8UcKat2RGPEclfaCUQ0aGY6COSVJUmqk7PVqU2X2HMhjQ7ZiMdthzbwp6EHzt5OQtSYkVZ32x0LaMU6wsEhFKRG0_St3bn2ldIrtrnX3ylOZr7nyd8-jPa2L10YjGw.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+۲:۰۷ همین چند ثانیه پیش صدای پرتاب موشک از توی خود شهر داراب شنیده شد.
+الان دوباره صدای پرتاب موشک اومد
+وحید سلام
+یکی دیگه هم الان زدن از داراب
+۲ دقیقه پیش
+۲ تای قبلی هم یکیش تو هوا ترکید
+آپدیت: عکس بالا
+و پیامی دیگر از کویت: دوباره صدای آژیر
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75885)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 02:50:23
+
+<img src="https://cdn1.telesco.pe/file/l06wn0xL4SJDtyxhwa1ewqgDUcosz31Q1-WaebSBI5EqIY0klNQoBho_CPNHLZNKuI5KsgHcKBdP60781uyyQxeileuZtNIy8Li5miO8yytLtxlFWh53kxAyBkU0wdhnCg6tGUbAYZu7NRCR-oS-qFBMUQD92MaYCt4HyKcaJUp8zOgHGSLFKZt1abA3IXgfdPZ3TmmzoMuUjOEFStqwmUTMpGbF7TDukk0JKA58UBAofuKFtQIS3QGXGT_TwiLHBvCzLZv34LWbyS0GV_pfv46Zpnu1VEqlMYD_4q6QIhmvBIAWR2N-EYnA9gqPREXUpv6kEMycz5TSmmaWZIobGg.jpg" width="400"><br>
+
+از داراب در استان فارس پیام‌هایی درباره شلیک موشک دریافت می‌کنم. هم‌زمان اسکرین‌شات‌هایی هم از کویت دریافت می‌کنم که میگن هشدار اعلام شده.
+چهارشنبه ۱۳ خرداد
+Vahid
+ارتش کویت
+اعلام کرد
+سامانه‌های دفاعی این کشور در حال مقابله با حملات موشکی و پهپادی خصمانه هستند.
+VahidOOnLine
+ستاد کل نیروهای مسلح کویت با انتشار بیانیه‌ای فوری اعلام کرد که سیستم‌های پدافند هوایی این کشور، بامداد چهارشنبه، ۱۳ خردادماه، مشغول مقابله با حملات موشکی و پهپادهای متخاصم در آسمان کویت هستند. ارتش کویت در این اطلاعیه تاکید کرد که صدای انفجارهای شنیده‌شده در مناطق مختلف، ناشی از عملیات موفقیت‌آمیز سامانه‌های دفاع جوی در رهگیری و انهدام این «اهداف متخاصم» است. مقامات نظامی کویت از تمامی شهروندان و ساکنان این کشور خواسته‌اند تا آرامش خود را حفظ کرده و به طور کامل به دستورالعمل‌های امنیتی و ایمنی صادر شده از سوی مراجع مربوطه پایبند باشند.
+@
+VahidOOnLine
+پیام‌های دریافتی که پیش از اخبار بالا نقل کرده بودم:
+سلام همین الان ساعت ۱:۲۳ دقیقه دوتا موشک از داراب استان فارس پرتاب شد
+یکیش حین رفتن ترکید
+همین الان داراب صدای انفجار شدید اومد و شیشه ها لرزید
+کل همسایه ها ریختن تو کوچه ببینن چه خبره
+وحيد همين الان اژير كويت فعال شد دوباره
+٦ تا انفجار خيلي سنگين تا الان
+توي اين ٣ ماه اينقد صداش سنگين نبود
+سلام آژیر در کویت
+۵ انفجار بزرگ در کویت نسبت به روزهای قبل بیشتره
+آپدیت:
+ما بین فسا و داراب هستیم
+یه صدای انفجار وحشتناک اومد ولی نفهمیدیم چیشده
+من داراب هستم
+ما عروسی بودیم تقریبا ساعت ۱.۴۰ دقیقه بود که یه صدای انفجار اومد و سقف سالن لرزید
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75884)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 02:50:23
+
+
+
+پیام دریافتی تایید نشده:
+صدای  انفجار روستای نخل گل قشم
+خبرگزاری مهر هم نوشته:
+"بامداد چهارشنبه صدای انفجار‌هایی در محدوده شهرستان قشم از سوی منابع محلی و ساکنان این جزیره گزارش شده است."
+معناش این نیست که خبر حتما درسته.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75883)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 
 
@@ -13,6 +141,8 @@
 فرماندهی مرکزی آمریکا، سنتکام، تدابیر محاصره را علیه نفتکش M/T Lexie با پرچم بوتسوانا اجرا کرد؛ این کشتی هنگام عبور از آب‌های بین‌المللی به سوی جزیره خارک در حرکت بود. خدمه کشتی هشدارهای مکرر را نادیده گرفتند و طی یک دوره ۲۴ ساعته چندین بار از اجرای دستورهای نیروهای آمریکایی سر باز زدند.
 در نهایت، یک هواپیمای آمریکایی با شلیک یک موشک هل‌فایر به موتورخانه کشتی، آن را از کار انداخت و مانع رسیدن نفتکش به ایران شد.
 سنتکام از ۱۳ آوریل اجرای محاصره همه رفت‌وآمدهای دریایی به بنادر ایران و خروج از آن‌ها را آغاز کرده است. با ادامه آتش‌بس با ایران، نیروهای آمریکا تاکنون شش کشتی تجاری را از کار انداخته و مسیر ۱۲۲ کشتی را تغییر داده‌اند.
+@
+CENTCOM
 📡
 @VahidOnline
 
@@ -22,7 +152,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn1.telesco.pe/file/dmW_kn2MUtmhLrC2FeBh47JMdyr0lPhq2uV3ZA-tFKhikP-FIySq4ABHxR5MHbOBXj_F-_9TIYb-gqTPcO01URLfh8gwSHe-tPUOnSKmSCeEPmIfAkXwaQB5QbHPDrq8kh5nAB629kOnq0iGR9bTSmOb2oHzaGs7xBzHX5wOk008a3KqsdmjiZElRuLXZZqiCpRwV-liBpava8q3hhKJzOAkqokj57WmWoDAdIeQTFIm01U_9JX7waxBjHqnG_IchMNI8U3cm9QPDSWFewcqxvRlY5YCipzthmh0ss_UevBBCtdIy4G8zhR7641P_FwQuzchHml-HZ7P-4GB_eSzUA.jpg" width="400"><br>
 
@@ -42,7 +172,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn1.telesco.pe/file/j66Drd8i-fT8Fkw-ppvDr5f3wF_MuxL5bZkatrm89zCAvSXP_DLRmAbUU2uqAFgkLUkr8eoTYMxiYxrabII_v06un_Cw3Fu5Lm-NmAkWGAUWE9VMYu8cqxxmTWKRaeqhpM5rnm0IygCm3TU-WOM4HqjO3-81Oa0-hC43uean3xSfg75_2WH3F--iv31n4-eL0p6Fpv9LgiinrD6zT69jftbOD6ApEpV4-yuPXD2t8KJyAaFEaUM8NNKmavrndTZFY_AvXrMIspyLTsmmcDyMljNHbu6hQ-bGgoxa9zEY7XYUiGEyn0ZnJwj-nUVWxvg6ZOtLYhwrTSt-OrKc4tgQnw.jpg" width="400"><br>
 
@@ -60,7 +190,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn1.telesco.pe/file/TES0zcEcKRtecRY0rZt6eet4GxEYMUJvc0ks2PVBPDOLHe5pwp2gbBX74Df3LSvJjGvXo5K0FW0o1Pa3IsSdcltO6VxrRmp_UH8-oYfdXiUe_Vat9_FnuvL83hy0H5jlHmAYEstlXzPhn1Zsk6ZO0nbD-oAusPWQPt-5i8OTCJuzgWNI3oKENShnINZ4zayGv2N6V0pxcidx-mFYvAZzfr-fYr9v2wdVs1UE5QCOQVt1_p0bF9hjSFn2CLZApBhewhQEMd5ppQ-Y_4RRCJ2zAPXtO6FX53n5cvPyF5wVWdsDcI4vxBu-4huRNZF9r66vnqVOtLREo0Wz1l0z2nVteg.jpg" width="400"><br>
 
@@ -84,7 +214,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn4.telesco.pe/file/PwRBPy7DbEkNzvyoK1tcDzG2xH4U_rbYg5SKyLvl6w4AYZV8gM_DwMZripgzaZRgGXdHQfHeLSz7yhKv2B3pljXtwkTzYjRGEz-Fq5k9GVUn_z-ZsmGhuIRBljTW2geQR8MA2L8OigyX1csklxoTEkYU6B4ELPlu98-v9dgicaDP4x-Ka1IfsOWgY_TeI0w2Rwo5JaBYUqsw2FzoXmcw_MAJ4zbj1wPryg7EZTKCMMZJb1SPiJ2yVyrDkgJjmZwOR9BDlCSkG_lWxr2RQYDZPe6lGNK8IE2OtRPDkdFCorn7FzAe344M-YmgwRvlPWLkbwgDzQgtKUmGjLN6Igpfag.jpg" width="400"><br>
 
@@ -101,7 +231,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn1.telesco.pe/file/o-AAtMvWiLkPzEfWVbSAstV6i2Ib7trxJ6j5EMN-IzVF34wbJZkvA9YNP5LVNIiVEhIX8QVZ6KcCrr0kiZrmxQhCCcU4apnk1StiP5fiQKFOWPkYqpM-d-FFJMZIXaZJ9vwXnx0UFxtIOPG5inXj1Zn-PFZ_23B8Uzy3faU7_bcVr0lTe3kozf4ssZys2YfSNz63qqoUGPdofGMaDzFoTrD2_nXDc4gdAv5xvu-EaUSQ_qvgAujIFaAL9CxULUoH0iwX7UmISv7GAEUpwEwtepKitCH-hVB2YHOuNBGNoAAd58DUyzPwRryx1MpMOCgrcG_15tLbfo_Gd2Fx3fVTxA.jpg" width="400"><br>
 
@@ -122,7 +252,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn1.telesco.pe/file/Nb0KW1sD8OqYI-866KuArRJicztK-bnBc2WwRn6xBagceO4uREi8PR9AdbO1kvUqKdE8dd0COQqflUh9WrTGf9fweqhTH2HQmZ_SJwHwejUF-BOj-WN0Psf9zWvz_vhFR0Sy9K7wd3Uo1tfbTrIpMpKU-n9lAZVi9Mg8WTyEmGth5gf2NVzhaAcwV-pkq5lTCBZP7yz8lSNrdriUEZ-d4nE9LYxVJ4KJV54VXW2YsIfXteC6dB0qjBGULsBJ5Z9p4dhipjSShMMsSpPGHTvtf1d1thJ4BQ2fP0lMt3x0hBkAjdmUWuH9K47ekhFt7iI3dQDhEx-LuGa-yZqnaNg1Ew.jpg" width="400"><br>
 
@@ -151,7 +281,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn1.telesco.pe/file/Zroorx49rjH6saih2sKwUMe0gO9QBW1Gq34HgFNLZ9LSL_AOymIdQ_xBkhA1MQMWHkqN5Q91B61GJwINrk58x_JQ3VPLROzUDniEnZjr-IMXNnCicwy07C4oPBGSEuml2Ytub9G8sxTj0Cil8ayY0c9QS8UsnSV6cywj1CD0SABGCTGjGDKC06zLNR3N5HS7X80gETaxC5bucLorbkchCSAhQ4faSiLypNaqLIPsufb8XPPie1YUuFQPKSyQf3SuLGM1-y-HcxMRg7-thVrpQ6N6eK-DpH3Y1qxWYlZfXpt_nZ2nkAoQnbSn3nhHeosqj55cqf7viAk6mrlK-zQEjA.jpg" width="400"><br>
 
@@ -165,7 +295,7 @@ Gerduo
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn4.telesco.pe/file/kRJAwJoootKheDgrZR3EcoWS8GisUEM3wnSbScpDo4dLDABYE7fQMZ7xMoKH3Os1EVGQLJ5m_3ZQ859TYmooisPNgHKDZZhMkkQ9dx2FNGjscz1gEDtFQEYY8C9mt4TsPTBMqS79AlOFzTg_0zyqngTBSwCbdAGg9yGC3-E0UondnYXtDRdgOhP7tsGxFB0172IJHv32B_r-UV0pUQt_zTXkT4Sny23lovN_vkLDmjIWgnu-fK9wHdTUgKEy3dAWG0XNAbDhk2BMVEysjPh2bZN-XuuVXy8HDwRWDwZydKWwB9_NVKaSTXLPsK5eKZHan-A1wvzQ3x4-vXihv_h4TQ.jpg" width="400"><br>
 
@@ -187,7 +317,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 01:06:08
+###### 🔵 Updated at: 2026-06-03 02:50:23
 
 <img src="https://cdn4.telesco.pe/file/Mfv8qQ0DkLYWDOEvlT2aVRix4VSEBRiipFOzVp7W2eOQpopw57O-MOj9SA1ZFi_9iXvP7CLWp-i6Y7NJdNFUefGKaVr0CShDbQcHaEW-08w97zbjwhgARlhB3xRc37Z_-lehzbmqjgjSv5urYIWFvUn4KHchbFOihK5EjNTG7dMMf3o96gv3DSbDoQmYZfYn31Zt2jGGt1noIqx5NRlFJPg6N7ZiPEYn4suBp9fsSZp5iaar81XqQJaRMh6ia7rDzh23OV0i2I1-IWNGMZprHNVoTbYT9iIFd8e2RdMlHSpxJoWmrtziKdqB6dDZVltXTuQvzBoA_kFR9pUq-4yDjw.jpg" width="400"><br>
 
@@ -203,195 +333,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75868)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-03 01:06:08
-
-
-
-صدها دانش‌آموز روز سه‌شنبه ۱۲ خرداد با تجمع مقابل وزارت آموزش و پرورش در تهران، به تغییر قوانین کنکور، افزایش تأثیر معدل و پیامدهای جنگ بر آمادگی برای آزمون سراسری اعتراض کردند.
-در ویدئوهای منتشرشده در شبکه‌های اجتماعی، شعارهایی از جمله «دانش‌آموز بیداره، از تبعیض بیزاره»، «دانش‌آموز می‌میرد، ذلت نمی‌پذیرد»، «وعده زیاد شنیدیم، عدالت و ندیدیم» و «فشار روانی کافیه، زندگی‌مونو پس بدین» شنیده می‌شود.
-سیاست‌های مرتبط با کنکور از جمله افزایش تأثیر معدل و تغییر در شیوه برگزاری و زمان‌بندی آزمون‌ها، در کنار شرایط ناشی از جنگ، در ماه‌های اخیر با تغییرات و ابهام‌هایی همراه بوده که به گفته داوطلبان، موجب سردرگمی و دشواری در برنامه‌ریزی برای امتحانات نهایی و کنکور شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75867)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-03 01:06:08
-
-<img src="https://cdn1.telesco.pe/file/TyAxl67jqxbYb30qKGFIQ8XGr5UjyQG5otqBdvxI7PMAepOA0XrEXTojVGmnvJpF1QqTxnPdjoJBYVVAHVURbtwDcUkFD_b8zVyZPqPTEPWntTmrfl05roAbTjrzKvar2Nw1kCER8kIJTzpXW8ubpF0MwlE9yzyHuCl7pHS5y2JjtBwqQx0iVIFaOwBWBlcXei8eL1R2aNYjEAGoyl49RHLJ07CkMYHySi2X_aPW7LPFHAV-SxOEsV19XK7Cd7Yjexgqr37XlFJi_lgFdj6uwaLzzVxy3yVjIoAPP_-bUiaVlf59thwI6v1hEV77iCnn-iyUfnSx8r65YSlaBx5MPA.jpg" width="400"><br>
-
-ترامپ برای سومین بار این متن رو علیه بعضی از رسانه‌ها پست کرد.
-ترجمه ماشین:
-اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش از بین رفته و در کف دریا آرام گرفته، و نیروی هوایی‌اش دیگر در میان ما نیست؛ و اگر تمام ارتشش از تهران بیرون بیاید، سلاح‌ها را زمین بیندازد و دست‌ها را بالا ببرد، در حالی که هرکدام فریاد می‌زنند «تسلیمم، تسلیمم» و دیوانه‌وار پرچم سفیدِ نمادین را تکان می‌دهند؛ و اگر همه رهبران باقی‌مانده‌اش تمام «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت و نیروی عظیم ایالات متحده باشکوه آمریکا بپذیرند، نیویورک تایمزِ رو به افول، چاینا استریت ژورنال — یعنی وال‌استریت ژورنال! — سی‌ان‌انِ فاسد و حالا بی‌اهمیت، و همه اعضای دیگر رسانه‌های اخبار جعلی، تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا به دست آورد؛ اصلا هم رقابت نزدیکی نبود. دموکرات‌های احمق و رسانه‌ها کاملا راهشان را گم کرده‌اند. آن‌ها کاملا دیوانه شده‌اند!!!
-رئیس‌جمهور دی‌جی‌تی
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75866)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-03 01:06:08
-
-
-
-باز هم صدای غیرمعمول پرواز یک هواپیما خیلی‌ها رو در تهران از خواب بیدار کرد.
-پیام‌های دریافتی:
-صدای هواپیما سعادت آباد
-سلام، تهران صدای توافق میاد فکر کنم
-صدای جنگنده یا هواپیما ۰۴:۰۹ غرب تهران
-دوباره همین الان دقیقا ساعت ۴:۱۰ صدای شدید تر جنگنده غرب تهران
-سلام تهران صدای جنگنده میاد چخبره؟؟!
-مطمئن نیستم ولی غرب تهران فکر کنم صدای هواپیما یا جنگنده اومد
-تهران سمت  سعادت اباد صدای جنگنده میاد
-خیلی پایین بود صداش
-همین الان تهران صدای کلی جنگنده اومد ک رد شدن
-خیلی بلند بودن
-صدای جنگنده غرب تهران
-ساعت۴:۱۰صبح صدای جنگنده سمت شمال غرب میاد
-تهران جنت اباد 4 09 صدا جنگنده اومد
-4 و ده دقیقه صبح بالا سر شهرک نفت پونک جنگنده اومد آنتن قطع شد و وصل شد
-همین الان غرب تهران حدود ۲ دقیقه صدای جنگنده اومد
-دقیقن ده ثانیه پیش ساعت ۴:۱۰ ‌صبح یک‌هواپیمای از همونایی که موقع جنگ از بالا سر خونمون رد می شد
-تهران حدود ساعت ۴ یه هواپیما مسافربری رد شد صداشم زیاد بود
-هیچ وقت از این مسیر رد نمیشه!
-توی فلایت رادارم نیست
-شهرک‌ غرب ۴:۱۰
-صدای جنگنده او‌مد
-سلام وحید جان . ساعت حدودا ۴ و ۵ تا ۴ و ۱۰ دقیقه صبح شمال غرب تهران صدای مهیب جنگنده اومد. کاملا مشخص بود تو ارتفاع پایین داره پرواز میکنه . البته نه پدافند عمل کرد نه بعدش انفجاری شد. احتمالا برای نیرو هوایی ایران بوده
-امروز سه شنبه دوازده خرداد ساعت ۴و۱۳دقیقه صبح صدای هواپیمای باری یا مسافری اومد چون چراغهای کابین و چشمک زن روشن بودن، مسیرش رو دنبال کردم مهرآباد ننشست تا جنوب تهران ادامه مسیر داد، صداش عین هواپیمایی بود که دیروز دوشنبه ساعت ۹و۱۵دقیقه صبح ، بسیار طولانی و ممتد حرکت می کرد به سمت  شمال ،چون از  کوه های البرز رد شد
-صدای جنگنده نبود غرب تهران
-یه هواپیمای خیلی بزرگ بود که اونقد پایین پرواز میکرد احساس کردم الانه که بخوره به ساختمون روبرویی خیلی بزرگ بود هواپیماش و خیلی پایین
-پنجره باز بود دم پنجره خوابیده بودم صداش شبیه جنگنده نبود مابین جنگنده و پهپاد بود
-همچین قیرقاژ داد رفتم رو هوا
-سمت پونک
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75865)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-03 01:06:08
-
-
-
-پیام‌های دریافتی درباره قطع شدن موقت خطوط تلفن همراه در بعضی از شهرهای استان‌های فارس، بوشهر و هرمزگان و...
-از حدد ساعت ۲
-▪️
-شیراز کلا قطع شده انگار
-نه میشه زنگ زد نه میشه کاری کرد
-▪️
-کل تلفن های همراه توی شیراز قطع شده
-تمام اینترنت ها قطع شده
-مشخص نیست چرا اینجوری شده
-نه ایرانسل نه همراه اول نه رایتل آنتن نداره
-▪️
-وحید از حدود ساعت ۲:۱۰ تا همین الان انتن گوشی ها و اینترنت خانگی و هر چیز مخابراتی توی شیراز پرید
-همین الان [۲:۳۰] همراه اول وصل شد با سرعت کم. ایرانسل وصل نیست
-▪️
-شیراز خط گوشی بیشتر از ۲۰ دقیقه رفت
-از ساعتای ۲:۱۰ دقیقه تا ۲:۳۰
-ایرانسل هنوز نیومده
-آپدیت:
-ایرانسل هم وصل شد
-ولی همگی 3G  هستن
-سلام وحید جان بندرخمیر هم از ساعت 2 همه چیز قطع شده الان به زور وصل شدم بهتون اطلاع بدم
-اصفهان هم دقایقی خط همه رفت
-تو شیراز یک دفعه همه انتن ها پرید. حتی نت مودم خونه مون هم کاملا قطع شد
-الان بعد از حدود نیم ساعت دوباره انتن ها اومد
-وحید فکر کردم فقط واسه من اینطوریه نت خونگی مبینت ما هم قطع شده خوزستان سربندر
-از شهرستان های فارس نیم ساعت همه انتن ها رفت و اینترنت مخابرات هم کار نمیکرد الان اینترنت مخابرات اومد و انتن همراه اول هم با سرعت کم اومد ایرانسل قطعه
-نت و انتن و... کامل توی بندر ماهشهر پریده
-اهواز هم همینطور
-سلام بندرگناوه چند دقیقه کلا همه چی قطع نه زنگ نه حتی شبکه داخلی همه چی بسته شد
-بندر ساعت ۲ بامداد تقریبا آنتن ها رفت
-و بعد برگشت خط 3g شده اما اینترنت کار نمیکنه
-الان فقط اینترنت فیبر وصل شده
-دقیقا راس ساعت ۲ کل دیتا سنتر شیراز قطع شد
-تلفن همراه کاملا بدون آنتن
-تقریبا ۳۰ دقیقه شد که وصل شد
-همین الان حدود نیم ساعت در نورآباد ممسنی همه چی پریددد نت و آنتن و خط و همه چی
-😐
-شیراز از ساعت 2 تا 2:30 انتن همه اپراتور ها قطع شد
-بندرعباس هم همینطور، قطع شد وحید جان تا الان
-اینترنت و انتن های تلفن همراه تو قشم کلا قطع شد یهو
-تقریبا ۱۰ دقیقه قطع شد
-هم انتن هم اینترنت همراه
-بوشهر اینترنت مخابرات و ایرانسل هی ده دقیقه ده دقیقه قطع میشه
-خیلیاهم کلا قطع شدن از اشناهام
-شیراز بعد از نیم ساعت وصل شد
-کل سرویس های ایرانسل و همراه اول و شاتل حتی اینترنت مخابرات قطع بود
-خط  ایرانسل هم برگشت
-وحید سلام و خسته نباشی، اینترنت و خطا برای ده دقیقه کامل قطع شدن هم بوشهر هم بندرعباس، بوشهر وصل شده و نت همراه ضعیفه منتهی بندرعباس اینترنت ایرانسل قطع شده
-وحید اصلا همه‌ی استان فارس همین شد
-من فسا هستم منم قطع شدم
-دقیقا از ۲:۰۲ تا ۲:۳۶ قطع شدم
-وحید بوشهر هم کلا قطع شد الان وصل شده و خیلی ضعیفه یه نیم ساعتی کلا آنتن نبود
-میناب هم یه ۲۰ ۲۵ دقیقه ای کلا انتن نبود
-بندرعباس: ایرانسل کلا قطعه، همراه هم قطع و وصله
-سلام اقا وحید داخل بندر دیلم استان بوشهر ما از ساعت ۱:۴۵ دقیقه هیچی انتن نداشتیم چه ایرانسل چه همراه الان درست شد تازه نت رو h هست
-با تمام سیم‌کارت‌ها ما الان وصل شدیم
-مرودشتم کامل قطع شده بود همه چی الان وصل شد
-سلام وجید جان
-ما برازجان هستیم
-برای ما هم نت ایرانسل، همراه اول و رایتل و مخابرات کلا قطع شد
-الان که برگشتن 3G هستن
-سلام از جنوب استان فارس پیام میدم اینترنت خانگی و همراه و همچنین آنتن از ساعت ۲ تا حدود ۳۰ دقیقه کاملا قطع بود
-بوانات برا یه نیم ساعتی انتن پرید
-سلام توی یزد هم آنتن همراه اول کلا قطع شد، فکر کردم باگ گوشی خودمه، اما الان که گزارشات رو دیدم ظاهرا چیز دیگه ای بوده
-درود وقت بخیر شیراز حدود ۲:۱۰ دقیقه کل خط ها انتن و اینترنتشون پرید و بعد از حدود نیم ساعت با سرعت بسیار کمی وصل شد
-تشکر وحید جان
-سلام وحید خط بستک و کل غرب استان هرمزگان بعد ۲۰ دقیقه وصل شد
-سلام وحید جان بندرعباس الان 45 دقیقس که همه چی قطعه آنتن ایرانسل اومده ولی روشن نمیشه همه چی پریده فقط فیبر نوری وصله فعلا
-سلام وحید جان :استان بوشهر :کنگان از ساعت ۲:۲۳نت ایرانسل و مخابرات پریده و هنوز وصل نشده خدا میدونه چیکار میکنن.
-شهرستان
-قیر و کارزین
-هم ایرانسل هم همراه وصل شد اما مودم مخابرات از ساعت ۲ قطع
-درود. از لاهیجان پیام میدم. اینجا هم امروز اینترنت مخابرات دو بار برای چند دقیقه رفت و بعدش با سرعت خیلی کمی وصل شد.
-اصفهان هم حدود ساعت دو انتن قطع شد‌ ولی چند دقیقه بعد برگشت
-سلام داخل اهواز کل آنتن ها قطع شد و سریعا به حالت قبل برگشت
-مجدد همه چیز پرید توی بندر ماهشهر باز الان وصل شد
-وسط بازی بودم پرید بیرون انتن رفت فکر کردم خودم اینجوری ام  از ساعت دو
-الان وصل شدم دیدم بچه ها هم نیستن هیچ کدوم نوراباد ممسنی
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75864)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-03 01:06:08
-
-<img src="https://cdn1.telesco.pe/file/O1Pp8tzggLzdFCVKBO2IhMV26EbaM75MmI92cc0fCaK79vogbwoiWZSKq5E3tS9g71C6SphYjrzDuSujtZq0tqv6kWce7KI4hOKwc8sc9nqhvVBRqTleT29E0Nmf7Ot81b8yInnmnTdUSca8I4lMlOIljVBvE0G0eTcXEobUTBeCqwmST5ANFI8BhyYNSxboagr_vD-i2bIAHMhyMZEkQLi47Jzhrc8DB_bhM6UC7_566Ae5Bhz5JQoHkj0xpW1bjj5n_qzWry2BkoIcPWJFHwm8u2SiU8VmaNYFe5mOeCGOAz9Lh4y-1tIdge9NIfExza4ofzRP-533Thw73TPRcg.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگوی تلفنی با شبکه خبری «ای‌بی‌سی نیوز» اعلام کرد که به نظر او، توافق با تهران برای تمدید آتش‌بس و بازگشایی تنگه هرمز «طی هفته آینده» حاصل خواهد شد.
-ترامپ روز دوشنبه در گفتگو با جاناتان کارل، خبرنگار ارشد این شبکه در واشنگتن، با ابراز خوش‌بینی گفت: «اوضاع خوب به نظر می‌رسد.»
-رئیس‌جمهوری آمریکا با اشاره به تنش‌های اخیر افزود: «امروز مشکل کوچکی پیش آمد، اما همان‌طور که احتمالا پیش‌تر متوجه شدید، من خیلی سریع آن را برطرف کردم.»
-او توضیح داد که این مشکل ناشی از ناراحتی و عصبانیت مقام‌های ایران از حملات اسرائیل به لبنان بوده است؛ ترامپ در تشریح نحوه حل این بحران گفت: «من با حزب‌الله صحبت کردم و گفتم تیراندازی نکنید؛ با بنیامین نتانیاهو، نخست‌وزیر اسرائیل هم صحبت کردم و گفتم تیراندازی نکنید، و هر دو طرف شلیک به یکدیگر را متوقف کردند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75863)
 
 ---
 
