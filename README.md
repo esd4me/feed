@@ -3,15 +3,85 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
-<img src="https://cdn4.telesco.pe/file/BNoOB7JVqB3brIe62Ewa91kkzxcZlL_J0zUTwggfC8Qkq3zlbWzutQryUIIu_SNosUbEVfapdzyccEUgxXMIQQyOsEAGJJk_Qq5WWzQK9MkKD9oVZxXysTZLjfbH_88IpNxFKjb_K-5iaIUUAiwi9x5JBFItNTLt5BIWJNNSq2DvfXvh9ewgdBiA6X8o9MZPaBOH-gF-N5guXOhGmoL4Kh0VaCDY3CiunKtJ3yK5sT5ZVyCh0pzSnLLjkO6ryh5xWPPGmA2LzbggsMeq4wNnNoc54oXChGavzWIF1g1JJFhrf9VOkaFvLd2slEm2iB-09CC1-G4L_r9W9ju2gw_0vA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/u7aj23-UpGBW26fDdBXTKlHjQvZL7uRXHtez6s6JolJ1feOu4uDAR0AIPr6DoNaB9xOPEtgxzlpegVT663KsFCOnmSrGGrhkcBo-s8s9rvZikmxBTJzUKXRcEGpOgyco7J68DnkJmppdm3q7Dv3mdNDtGcTUL1dFEzEJ42mCkWsi8cxUJ2AiWDzg4ITHqe1HK-gFuDvZf7DP6rpubq8kpQW-vMkGgwtkE1HTbakLDYtDF2qfK6ghA_YuRjJ8kpLJO3xrvKyY1BJt6ckm7TvFyBrtnzt_as7TeE-v_DEa04FQmO2EYQ0mTq5aQRo7wHlZicvaDITsdGZ701NmUh04HQ.jpg" width="400"><br>
 
-‌ساعتی پس از انتشار بیانیه سنتکام مبنی بر متوقف کردن یک نفتکش در مسیر بنادر ایران، خبرگزاری‌های داخل ایران و نزدیک به سپاه پاسداران از به صدا در آمدن آژیرهای خطر در کویت در پی حمله موشکی به پایگاه‌های نظامی آمریکا در این کشور خبر دادند.
-خبرگزاری تسنیم اگر چه رسما این حمله را از جانب ایران گزارش نکرده اما به نقل از منابع عربی خود نوشت: «دست کم صدای سه انفجار» در کویت شنیده شده و دو پایگاه علی السالم و عریفجان مورد حمله قرار گرفته‌اند.
-ایران در واکنش به حمله هفته گذشته نیروهای امریکایی به نقاطی در نزدیکی بندرعباس، به پایگاه‌های آمریکایی در کویت حمله موشکی پهپادی کرده بود که در پی آن به گزارش رسانه‌های امریکا چند نظامی این کشور زخمی شدند.
+نیویورک‌پست می‌نویسد، بر اساس گزارشی جدید، یک خلبان جنگنده «اف-۱۵ئی استرایک ایگل» نیروی هوایی آمریکا در جریان جنگ ایران در کمتر از یک ماه دو بار در کویت (آتش خودی) و ایران سرنگون شد، اما هر دو بار زنده ماند.
+هویت این خلبان هرگز به‌طور علنی اعلام نشده است. مقام‌های کنونی و سابق نظامی به نشریه «های ساید ساب‌استک» گفتند که او یکی از دشوارترین پنج هفته‌های دوران خدمت یک خلبان نیروی هوایی آمریکا را از زمان جنگ ویتنام پشت سر گذاشته است.
+به نوشته نیویورک‌پست، بدبیاری او از دوم مارس آغاز شد؛ زمانی که در یک حادثه آتش خودی در کویت، نیروهای دفاعی این کشور به اشتباه به سوی سه فروند جنگنده اف-۱۵ئی آمریکایی شلیک کردند.
+در این حادثه، هر شش خدمه این سه جنگنده مجبور شدند با استفاده از صندلی پران از هواپیما خارج شوند و با چتر در خاک کویت فرود آیند. همه آن‌ها سالم نجات پیدا کردند.
+با وجود این حادثه، به گفته پیت هگست، وزیر جنگ آمریکا، خلبانان تنها چهار هفته بعد دوباره به ماموریت بازگشتند و در عملیات بمباران اهدافی در تهران شرکت کردند؛ اقدامی که او آن را نشانه شجاعت و فداکاری این نیروها دانست.
+نیویورک‌پست می‌نویسد، اما چند روز پس از آن ماموریت، بدشانسی بار دیگر به سراغ یکی از این خلبانان آمد. یک جنگنده اف-۱۵ئی بر فراز ایران هدف قرار گرفت و دو سرنشین آن در خاک ایران سقوط کردند.
+این خلبان در سوم آوریل به‌سرعت نجات داده شد، اما افسر سامانه‌های تسلیحاتی همراه او زخمی شده بود و پس از آنکه ایران برای دستگیری او جایزه تعیین کرد، ناچار شد مخفی شود. او روز بعد در عملیاتی نجات پیدا کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75890)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 05:32:04
+
+<img src="https://cdn1.telesco.pe/file/NNdYDGG5yg0Y_ZrkhP9vPj8G56yhEcS2WAGejfDT1Bz5SLcheKQwicLXntNfbLaMlP_Q-LPQME0dWz4hxew7te4u2JkfTSzNaMWteBVBL_8PbJ8K4scnIFkmORj9k0bvoW3meP1mFsKC2WOp86MeXlxwcps64JVLWtwb8vPWCzz52fcQ_P4gq7r6hA3kXaRJZKqa7CYGGWFUW7W8VSTPTft3yZVp_JEq10JSUT004OGxTJWilEbucuS-Y1n1Ovo1TV16HTMGHcb1R-45NyTUDb22eOyl_Sgi9y5kHh3FjJJERvrJ5K0vYY-o0vbmsL2h4Rcd_gx_6vRhNHd07rsS_g.jpg" width="400"><br>
+
+ستاد فرماندهی مرکزی آمریکا در شبکه‌های اجتماعی اعلام کرد که سپاه پاسداران مدعی شده که در حملات امروز با موشک و پهپاد به مقر ناوگان پنجم آمریکا در بحرین و یک پایگاه هوایی آمریکا در منطقه ضربه زده است.
+سنتکام گفت این ادعا نادرست است و تمام حملات جمهوری اسلامی به نیروهای آمریکایی شکست خورد.
 @
 VahidHeadline
+(مثل دو روز گذشته در این ساعت، ده‌ها پیام دیگر از تهران دریافت کردم درباره صدای عجیب پرواز هواپیما که منجر به بیدار شدن خیلی‌ها شد.)
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75889)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 05:32:04
+
+<img src="https://cdn1.telesco.pe/file/qVGyW-Fp14Y4-JBLQW8YgAIkBSn84H9vYEFut-e8mXSfrWYR_9tGaiH46QZsceV4W3GyyXzCxRoOJVS6vl7YQDUGWYEjXhQOGYd-CxYYBQjAl-6vuzRUCxO7kT0agF8f6GyIy2owDPHNbTsiRpPQ9B8yu1WWekmsQKR54_LNYvvnbT3bLa0vXymGG8d5nLHQ3H1ZSrZ9WIZo_Oo2g21CzQiRoLdD3F47Dv6dtX673xmswEv58olIeJrR1zyqDdhiXTrSy_CU-IMwhL__-uY-y0VUWhhRwxvKEsJsnOAEC1TEuZpGGkCbUlAp8RumIqGN_SoKJyUu0VvGsW2hGHuYVw.jpg" width="400"><br>
+
+سنتکام از حمله به جزیره قشم پس از دفع حملات موشکی جمهوری اسلامی خبر داد
+ترجمه ماشین:
+نیروهای آمریکا و شرکایش در برابر رفتار تهاجمی ایران دفاع کردند
+تامپا، فلوریدا — نیروهای آمریکا در تاریخ ۲ ژوئن با موفقیت چندین موشک بالستیک و پهپاد ایرانی را منهدم کردند و در پاسخ به تلاش‌های ایران برای حمله در سراسر خاورمیانه، حملات دفاع از خود را در جزیره قشم انجام دادند.
+ایران چندین موشک بالستیک به سوی همسایگان منطقه‌ای شلیک کرد؛ با این حال، هیچ‌کدام به اهداف مورد نظر خود اصابت نکردند.
+دو موشک ایرانی که به سوی کویت شلیک شده بودند، پیش از رسیدن به هدف سقوط کردند یا در مسیر متلاشی شدند و سه موشکی که به سوی بحرین شلیک شده بودند، بلافاصله توسط نیروهای پدافند هوایی آمریکا و بحرین رهگیری شدند.
+لحظاتی پیش از آن، نیروهای فرماندهی مرکزی آمریکا، سنتکام، سه پهپاد تهاجمی یک‌طرفه را که ایران به سوی دریانوردان غیرنظامی در حال عبور قانونی از آب‌های منطقه‌ای شلیک کرده بود، سرنگون کردند.
+نیروهای آمریکایی همچنین حملات دفاع از خود را علیه یک ایستگاه کنترل زمینی نظامی ایران در جزیره قشم انجام دادند.
+هیچ‌یک از نیروهای آمریکایی آسیبی ندیدند. نیروهای سنتکام در جریان آتش‌بس جاری، همچنان هوشیار و آماده دفاع در برابر تجاوز بی‌دلیل ایران هستند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75888)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-03 05:32:04
+
+<img src="https://cdn1.telesco.pe/file/gAmzuUZDyUxvLjMKm6mYsXzSpF01pEzxPThOUEoFahBb7F_4QoAtaNQEIptYYTlNHLvKSOS5IrAmHYsmC9ySPALG4vQwDNlpOqCzogDE6GJpOF_1V-TqUW7DfQeaaUKXSRHgTG2YtwRwwLynyMDlavjiEZeuIjzV2VQmUziJacdBt18i8TqHX-yN3ZGS-CYE7sx0x0mMiem0guvLEk5C6zxqO_jUxvWcPK87HvG7037fKIEuGNJmSWrw-axxXV9K0c5uaY_2vAzVE9dhmEOg-73HTHj7_WgR8ncQu1_6wlrbM607Njh9iYcy0gUH_msvzvSI8WKlfi_z1AZXAswgZA.jpg" width="400"><br>
+
+ساعتی پس از مخابره گزارش‌های متعدد از حملات موشکی به نقاطی در کویت و بحرین، سپاه پاسداران با انتشار اطلاعیه‌ای رسما از حمله به پایگاه ناوگان پنجم نیروی دریایی آمریکا خبر داد.
+@
+VahidHeadline
+بیانیه سپاه به نقل از منابع جمهوری اسلامی
+"بسم الله القاصم الجبارین
+فَمَنِ اعْتَدَىٰ عَلَيْكُمْ فَاعْتَدُوا عَلَيْهِ بِمِثْلِ مَا اعْتَدَىٰ عَلَيْكُمْ
+در اواخر شب گذشته ارتش متجاوز آمریکا یک نفتکش ایرانی را در حوالی تنگه هرمز مورد اصابت پرتابه هوایی قرار داد که این نفتکش از محل موتورخانه دچار خسارت گردید.
+در پاسخ به این تجاوز و نقض مقررات تنگه هرمز شناور متعلق به دشمن آمریکایی صهیونی به نام پانایا مورد هدف موشک های نیروی دریایی سپاه قرار گرفت.
+دشمن آمریکایی در تجاوزی مجدد یک دکل مخابراتی سپاه در جنوب جزیره قشم را هدف پرتابه های هوایی خود قرار داد در پاسخ به این تجاوز پایگاه هوایی و بالگردی آنان مستقر در یکی از کشورهای منطقه و همچنین مرکز ناوگان پنجم دریایی آمریکا مورد تهاجم موشکی و پهپادی نیروی هوافضای سپاه قرار گرفتند.
+پیش از این اخطار داده بودیم که در صورت تجاوز پاسخ متفاوت و سنگین تر خواهد بود و همینطور اقدام کردیم. این پاسخ ها باید عبرت شده باشد.
+تکرار می کنیم برهم زدن امنیت تنگه هرمز تاوان سختی برای ارتش متجاوز آمریکا خواهد داشت.
+و ما النصر الا من عندالله العزیز الحکیم"
 📡
 @VahidOnline
 
@@ -21,7 +91,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn1.telesco.pe/file/J1oj0eICaFfQsEzzKPsx5aARGwlkPmMlq3LH8pA9M9LmuLeZ2CO6Bd23CfXY-UrE1JOoqDMCed3IvYwgQPd_x6yicbEwOgWSHwDCwwTYNAUUGQsdeYOcKiD2g63wS8xftgmkmFdhbhb8wNT04Q3Yd-64m0-74XicZM4h2WRxhcTbBUe7y8ljAVDkxDqUKuU9Egu5PKL_hm24Sz93REd78fK9iUn9HdRL80tAHXgU0qH-qWOrwg79CVEMvteJDfPWrPHzxIbTPkEkgqERQBEcYfwgbqj3pWENo4VNusZ_O8_Mwq2WXbiPButYuHnvzw06sr4d_kXyxBd4jIZuuhY5QA.jpg" width="400"><br>
 
@@ -53,7 +123,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn1.telesco.pe/file/IooSf4neQtAPzAI7WougwwjnIASrts99XDJ_k4OK92kitlABgvfNejjc3YWOpKoQyhLvZg5j7kM9ISKhBTnFcHrnXGZHV7Mc48giW0EKw3lnwfHu-kQyRo0wi1ZFGsjNfzkyVS5ixPXsqf86gFi44iMGF71aOh2L2saxDlQTY398kybOtrS3A3P9PLmVeiszDVWJiH5jfGmz-V7XVhEQZYj-8UcKat2RGPEclfaCUQ0aGY6COSVJUmqk7PVqU2X2HMhjQ7ZiMdthzbwp6EHzt5OQtSYkVZ32x0LaMU6wsEhFKRG0_St3bn2ldIrtrnX3ylOZr7nyd8-jPa2L10YjGw.jpg" width="400"><br>
 
@@ -75,7 +145,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn1.telesco.pe/file/l06wn0xL4SJDtyxhwa1ewqgDUcosz31Q1-WaebSBI5EqIY0klNQoBho_CPNHLZNKuI5KsgHcKBdP60781uyyQxeileuZtNIy8Li5miO8yytLtxlFWh53kxAyBkU0wdhnCg6tGUbAYZu7NRCR-oS-qFBMUQD92MaYCt4HyKcaJUp8zOgHGSLFKZt1abA3IXgfdPZ3TmmzoMuUjOEFStqwmUTMpGbF7TDukk0JKA58UBAofuKFtQIS3QGXGT_TwiLHBvCzLZv34LWbyS0GV_pfv46Zpnu1VEqlMYD_4q6QIhmvBIAWR2N-EYnA9gqPREXUpv6kEMycz5TSmmaWZIobGg.jpg" width="400"><br>
 
@@ -113,15 +183,16 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 
 
 پیام دریافتی تایید نشده:
 صدای  انفجار روستای نخل گل قشم
+سلام وحید جان
+قشم صدای پایان جنگ در همه جبهه ها از جمله لبنان میاد
 خبرگزاری مهر هم نوشته:
 "بامداد چهارشنبه صدای انفجار‌هایی در محدوده شهرستان قشم از سوی منابع محلی و ساکنان این جزیره گزارش شده است."
-معناش این نیست که خبر حتما درسته.
 📡
 @VahidOnline
 
@@ -131,7 +202,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 
 
@@ -141,7 +212,6 @@ VahidOOnLine
 فرماندهی مرکزی آمریکا، سنتکام، تدابیر محاصره را علیه نفتکش M/T Lexie با پرچم بوتسوانا اجرا کرد؛ این کشتی هنگام عبور از آب‌های بین‌المللی به سوی جزیره خارک در حرکت بود. خدمه کشتی هشدارهای مکرر را نادیده گرفتند و طی یک دوره ۲۴ ساعته چندین بار از اجرای دستورهای نیروهای آمریکایی سر باز زدند.
 در نهایت، یک هواپیمای آمریکایی با شلیک یک موشک هل‌فایر به موتورخانه کشتی، آن را از کار انداخت و مانع رسیدن نفتکش به ایران شد.
 سنتکام از ۱۳ آوریل اجرای محاصره همه رفت‌وآمدهای دریایی به بنادر ایران و خروج از آن‌ها را آغاز کرده است. با ادامه آتش‌بس با ایران، نیروهای آمریکا تاکنون شش کشتی تجاری را از کار انداخته و مسیر ۱۲۲ کشتی را تغییر داده‌اند.
-@
 CENTCOM
 📡
 @VahidOnline
@@ -152,7 +222,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn1.telesco.pe/file/dmW_kn2MUtmhLrC2FeBh47JMdyr0lPhq2uV3ZA-tFKhikP-FIySq4ABHxR5MHbOBXj_F-_9TIYb-gqTPcO01URLfh8gwSHe-tPUOnSKmSCeEPmIfAkXwaQB5QbHPDrq8kh5nAB629kOnq0iGR9bTSmOb2oHzaGs7xBzHX5wOk008a3KqsdmjiZElRuLXZZqiCpRwV-liBpava8q3hhKJzOAkqokj57WmWoDAdIeQTFIm01U_9JX7waxBjHqnG_IchMNI8U3cm9QPDSWFewcqxvRlY5YCipzthmh0ss_UevBBCtdIy4G8zhR7641P_FwQuzchHml-HZ7P-4GB_eSzUA.jpg" width="400"><br>
 
@@ -172,7 +242,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn1.telesco.pe/file/j66Drd8i-fT8Fkw-ppvDr5f3wF_MuxL5bZkatrm89zCAvSXP_DLRmAbUU2uqAFgkLUkr8eoTYMxiYxrabII_v06un_Cw3Fu5Lm-NmAkWGAUWE9VMYu8cqxxmTWKRaeqhpM5rnm0IygCm3TU-WOM4HqjO3-81Oa0-hC43uean3xSfg75_2WH3F--iv31n4-eL0p6Fpv9LgiinrD6zT69jftbOD6ApEpV4-yuPXD2t8KJyAaFEaUM8NNKmavrndTZFY_AvXrMIspyLTsmmcDyMljNHbu6hQ-bGgoxa9zEY7XYUiGEyn0ZnJwj-nUVWxvg6ZOtLYhwrTSt-OrKc4tgQnw.jpg" width="400"><br>
 
@@ -190,7 +260,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn1.telesco.pe/file/TES0zcEcKRtecRY0rZt6eet4GxEYMUJvc0ks2PVBPDOLHe5pwp2gbBX74Df3LSvJjGvXo5K0FW0o1Pa3IsSdcltO6VxrRmp_UH8-oYfdXiUe_Vat9_FnuvL83hy0H5jlHmAYEstlXzPhn1Zsk6ZO0nbD-oAusPWQPt-5i8OTCJuzgWNI3oKENShnINZ4zayGv2N6V0pxcidx-mFYvAZzfr-fYr9v2wdVs1UE5QCOQVt1_p0bF9hjSFn2CLZApBhewhQEMd5ppQ-Y_4RRCJ2zAPXtO6FX53n5cvPyF5wVWdsDcI4vxBu-4huRNZF9r66vnqVOtLREo0Wz1l0z2nVteg.jpg" width="400"><br>
 
@@ -214,7 +284,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn4.telesco.pe/file/PwRBPy7DbEkNzvyoK1tcDzG2xH4U_rbYg5SKyLvl6w4AYZV8gM_DwMZripgzaZRgGXdHQfHeLSz7yhKv2B3pljXtwkTzYjRGEz-Fq5k9GVUn_z-ZsmGhuIRBljTW2geQR8MA2L8OigyX1csklxoTEkYU6B4ELPlu98-v9dgicaDP4x-Ka1IfsOWgY_TeI0w2Rwo5JaBYUqsw2FzoXmcw_MAJ4zbj1wPryg7EZTKCMMZJb1SPiJ2yVyrDkgJjmZwOR9BDlCSkG_lWxr2RQYDZPe6lGNK8IE2OtRPDkdFCorn7FzAe344M-YmgwRvlPWLkbwgDzQgtKUmGjLN6Igpfag.jpg" width="400"><br>
 
@@ -231,7 +301,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn1.telesco.pe/file/o-AAtMvWiLkPzEfWVbSAstV6i2Ib7trxJ6j5EMN-IzVF34wbJZkvA9YNP5LVNIiVEhIX8QVZ6KcCrr0kiZrmxQhCCcU4apnk1StiP5fiQKFOWPkYqpM-d-FFJMZIXaZJ9vwXnx0UFxtIOPG5inXj1Zn-PFZ_23B8Uzy3faU7_bcVr0lTe3kozf4ssZys2YfSNz63qqoUGPdofGMaDzFoTrD2_nXDc4gdAv5xvu-EaUSQ_qvgAujIFaAL9CxULUoH0iwX7UmISv7GAEUpwEwtepKitCH-hVB2YHOuNBGNoAAd58DUyzPwRryx1MpMOCgrcG_15tLbfo_Gd2Fx3fVTxA.jpg" width="400"><br>
 
@@ -252,7 +322,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-03 02:50:23
+###### 🔵 Updated at: 2026-06-03 05:32:04
 
 <img src="https://cdn1.telesco.pe/file/Nb0KW1sD8OqYI-866KuArRJicztK-bnBc2WwRn6xBagceO4uREi8PR9AdbO1kvUqKdE8dd0COQqflUh9WrTGf9fweqhTH2HQmZ_SJwHwejUF-BOj-WN0Psf9zWvz_vhFR0Sy9K7wd3Uo1tfbTrIpMpKU-n9lAZVi9Mg8WTyEmGth5gf2NVzhaAcwV-pkq5lTCBZP7yz8lSNrdriUEZ-d4nE9LYxVJ4KJV54VXW2YsIfXteC6dB0qjBGULsBJ5Z9p4dhipjSShMMsSpPGHTvtf1d1thJ4BQ2fP0lMt3x0hBkAjdmUWuH9K47ekhFt7iI3dQDhEx-LuGa-yZqnaNg1Ew.jpg" width="400"><br>
 
@@ -276,63 +346,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75871)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-03 02:50:23
-
-<img src="https://cdn1.telesco.pe/file/Zroorx49rjH6saih2sKwUMe0gO9QBW1Gq34HgFNLZ9LSL_AOymIdQ_xBkhA1MQMWHkqN5Q91B61GJwINrk58x_JQ3VPLROzUDniEnZjr-IMXNnCicwy07C4oPBGSEuml2Ytub9G8sxTj0Cil8ayY0c9QS8UsnSV6cywj1CD0SABGCTGjGDKC06zLNR3N5HS7X80gETaxC5bucLorbkchCSAhQ4faSiLypNaqLIPsufb8XPPie1YUuFQPKSyQf3SuLGM1-y-HcxMRg7-thVrpQ6N6eK-DpH3Y1qxWYlZfXpt_nZ2nkAoQnbSn3nhHeosqj55cqf7viAk6mrlK-zQEjA.jpg" width="400"><br>
-
-Gerduo
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75870)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-03 02:50:23
-
-<img src="https://cdn4.telesco.pe/file/kRJAwJoootKheDgrZR3EcoWS8GisUEM3wnSbScpDo4dLDABYE7fQMZ7xMoKH3Os1EVGQLJ5m_3ZQ859TYmooisPNgHKDZZhMkkQ9dx2FNGjscz1gEDtFQEYY8C9mt4TsPTBMqS79AlOFzTg_0zyqngTBSwCbdAGg9yGC3-E0UondnYXtDRdgOhP7tsGxFB0172IJHv32B_r-UV0pUQt_zTXkT4Sny23lovN_vkLDmjIWgnu-fK9wHdTUgKEy3dAWG0XNAbDhk2BMVEysjPh2bZN-XuuVXy8HDwRWDwZydKWwB9_NVKaSTXLPsK5eKZHan-A1wvzQ3x4-vXihv_h4TQ.jpg" width="400"><br>
-
-یک مقام شهرداری تهران می‌گوید که برگزاری «مراسم بدرقه» و تشییع جنازهٔ علی خامنه‌ای، رهبر کشته‌شدهٔ جمهوری اسلامی، در شهرهای قم، مشهد و تهران «قطعی شده است».
-به گزارش رسانه‌های ایران، محمدامین توکلی‌زاده معاون اجتماعی شهرداری تهران روز سه‌شنبه ۱۲ خرداد گفت که این نهاد «در حال تدارک برای حضور جمعیتی بیش از ۱۵ تا ۲۰ میلیون نفر در تهران هستیم».
-او به زمان دقیق برگزاری این مراسم اشاره نکرد ولی گفت که احتمالا در پایان ذی‌الحجه و اوایل محرم برگزار شود.
-این زمان تقریبا مصادف با اواخر خرداد و اوایل تیرماه است.
-علی خامنه‌ای از ۹ اسفند پارسال که در حملات مشترک آمریکا و اسرائیل کشته شد، هنوز دفن نشده است.
-معاون اجتماعی شهرداری تهران در ادامه گفت که «مراسم بدرقه» سه روز در نظر گرفته شده و در تهران قرار است ۲۴ ساعت طول بکشد.
-به گفته توکلی‌زاده، محل دفن خامنه‌ای «طبق وصیت ایشان و توصیه‌های نزدیکان‌شان» در حرم امام هشتم شیعیان تعیین شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75869)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-03 02:50:23
-
-<img src="https://cdn4.telesco.pe/file/Mfv8qQ0DkLYWDOEvlT2aVRix4VSEBRiipFOzVp7W2eOQpopw57O-MOj9SA1ZFi_9iXvP7CLWp-i6Y7NJdNFUefGKaVr0CShDbQcHaEW-08w97zbjwhgARlhB3xRc37Z_-lehzbmqjgjSv5urYIWFvUn4KHchbFOihK5EjNTG7dMMf3o96gv3DSbDoQmYZfYn31Zt2jGGt1noIqx5NRlFJPg6N7ZiPEYn4suBp9fsSZp5iaar81XqQJaRMh6ia7rDzh23OV0i2I1-IWNGMZprHNVoTbYT9iIFd8e2RdMlHSpxJoWmrtziKdqB6dDZVltXTuQvzBoA_kFR9pUq-4yDjw.jpg" width="400"><br>
-
-پس از چند روز تاخیر، بانک مرکزی و مرکز آمار ایران به‌طور همزمان گزارش‌های تورمی اردیبهشت‌ماه را منتشر کردند؛ گزارش‌هایی که با وجود تفاوت در ارقام، از تداوم روند صعودی قیمت‌ها و افزایش فشار معیشتی بر خانوارها حکایت دارد.
-مرکز آمار ایران تورم ماهانه خانوارهای کشور را ۸.۸ درصد، تورم نقطه‌به‌نقطه را ۸۳.۹ درصد و تورم سالانه را ۵۷.۷ درصد اعلام کرد.
-همزمان بانک مرکزی با تمرکز بر مناطق شهری، تورم ماهانه را ۸.۵ درصد، تورم نقطه‌ای را ۷۷.۲ درصد و تورم سالانه را ۵۳.۹ درصد برآورد کرد.
-بر اساس گزارش بانک مرکزی، شاخص کالاها در اردیبهشت‌ماه نسبت به ماه قبل ۱۰ درصد و نسبت به مدت مشابه سال گذشته ۱۱۳.۸ درصد افزایش یافته است؛ آماری که از رشد شدید هزینه خرید اقلام روزمره حکایت دارد.
-اختلاف ارقام منتشر شده از سوی دو نهاد آماری به تفاوت در جامعه آماری، سال پایه، شیوه نمونه‌گیری و وزن‌دهی کالاها و خدمات بازمی‌گردد. مرکز آمار کل خانوارهای شهری و روستایی را مبنا قرار می‌دهد، در حالی که بانک مرکزی تنها مناطق شهری را بررسی می‌کند.
-مقایسه آمارها با ماه‌های گذشته نیز از شتاب گرفتن روند تورمی خبر می‌دهد. تورم نقطه‌به‌نقطه که در فروردین‌ماه ۷۳.۵ درصد اعلام شده بود، در اردیبهشت به ۸۳.۹ درصد رسید؛ افزایشی بیش از ۱۰ واحد درصدی تنها در یک ماه.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75868)
 
 ---
 
