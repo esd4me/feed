@@ -3,10 +3,76 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-04 00:00:39
+###### 🔵 Updated at: 2026-06-04 02:08:39
 
-<img src="https://cdn1.telesco.pe/file/haZSjGXksSLCk3t3chYPecD3zBRTcC0hhH4kUFk0SiVrGkQP4QHBSq12ch2M5lmK2uNf7UdZpaWqWbrzOSxFGn6NLZpx3D1NLSyeyjNbBOb8lQz9sCzwxKcx-VyUcT-dkcLnVAUGqRDmwR9Q_XQPaQKR98cRsboJghyygLCnkMRCVqfmkjHyO1Bt_I9HYUlH-giRZNVMA4BYe5bR94y2Q8YYTQdvX4QSU6DsIDB4cYkhlI9Vg0ag99kTfpeVz-9H-Vvq9COLxpPiqCXUeBFLKPzbnUb0eWy4rBYGyCA7hMYdJ5uJekZN86j0cyKz3MTQnLU3zgoC6Ksh3XIXm9E08w.jpg" width="400"><br>
 
+
+لحظه اصابت پهپاد انتحاری شاهد 136 به ترمینال فرودگاه کویت از دید دوربین مدار بسته.
+mohsenreyhani01
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75931)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-04 02:08:39
+
+<img src="https://cdn1.telesco.pe/file/aajgSTr9c8X_RhccJ2yH3XRFwKuMsw7HvIjyJRWFRFQzneMS6ojwRcUI3m7GTrH1_7M7nSuw08ualRvx2i31Z1tKNN4uuD_PjpBNQD0nNSbppWyUZpKEiHHE1yiOYm9C-uMu0f7SDxQ3P1bGNjgOffMAFoOh7iLJxJFCzti7bx_NTWbSmbKXcTzjGiUM8RUQDKf654cuSiTCnK0cyXB-_6sr7KtOWQiy1UmuJVOKiF88LGpm9nGq67QFQb3-84wjUHxp4h-0h3WW8TWqwZRyaultg2O1DhVQ_1wvLrA_LEagw19VmaROZMRu9WweMtyP21tB1RC9xltCMVHLTeaEjA.jpg" width="400"><br>
+
+مجلس نمایندگان آمریکا روز چهارشنبه از قطعنامه‌ای به رهبری دموکرات‌ها حمایت کرد که هدف آن متوقف کردن جنگ با حکومت ایران تا زمان صدور مجوز از سوی کنگره است.
+به گزارش رویترز این قطعنامه با ۲۱۵ رای موافق در برابر ۲۰۸ رای مخالف تصویب شد و چهار نماینده جمهوری‌خواه نیز به دموکرات‌ها پیوستند.
+این رای‌گیری تازه‌ترین شکست سیاسی دونالد ترامپ در کنگره به شمار می‌رود؛ با وجود آنکه جمهوری‌خواهان در هر دو مجلس اکثریت شکننده‌ای دارند.
+بنا به این گزارش، این اقدام عمدتا جنبه نمادین دارد، زیرا برای اجرایی شدن باید در سنا نیز تصویب شود و همچنین برای عبور از وتوی احتمالی دونالد ترامپ به حمایت دو سوم اعضای هر دو مجلس نیاز دارد.
+با این حال، این رای‌گیری نشان‌دهنده افزایش نگرانی در کنگره درباره جنگ با حکومت ایران است.
+سه قطعنامه مشابه پیشین در مجلس نمایندگان شکست خورده بودند، اما با اختلاف آرای کمتر از دفعات قبل.
+همچنین سنا ماه گذشته یک قطعنامه مشابه را در یک رای‌گیری رویه‌ای به پیش برد؛ اتفاقی که پس از هفت تلاش ناموفق قبلی رخ داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75930)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-04 02:08:39
+
+<img src="https://cdn1.telesco.pe/file/aENbctYEv9zwPJBPKBmf4tdNZ7PdBXgthW7ViqcpR4gnGk7M__xVC4Qu-QoGAu82Akbbph3jC7fgObNVSlPAC12NcqoM1DrLvGOeZJ-JYdCqF34Afc2n3c4iHlp-fOHSUZsKOdYQ5Ea2M5iVLo6eo4lhgjArzO9JQgti0gFxS4mHxtvsHoinure5uIAsa98EkVba-Qs2-SgpxNVnaa35Pv3C_u2NIHGYEBPz_6hi-tpko0E67ZR4_1v8hBEMn-NaqtIJiAwRKjaKchpbNBm_k0ijgmmqT8lWpxrSj9Cu9RWasWkVi7LMoqpgOiKHcIIhFR6RHJsIzKToNkyCPv_cHw.jpg" width="400"><br>
+
+🔻
+ترامپ: می‌توانیم همه را نابود کنیم، اما ترجیح می‌دهم به توافق مکتوبی برسیم
+دونالد ترامپ، رییس‌جمهوری آمریکا چهارشنبه ۱۳ خرداد در کاخ سفید درباره حمله جمهوری اسلامی به کویت و شکستن آتش‌بس گفت: «ما سه‌شنبه شب حسابی به آن‌ها (جمهوری اسلامی) ضربه زدیم، و در واقع دیشب هم همین‌طور. و وقتی موضوع را برای من توضیح دادند، گفتم بسیار خب، پس همین کار را می‌کنیم، اما ما هم کمی داشتیم شدید به آن‌ها ضربه می‌زدیم.
+ترامپ گفت: «بنابراین برای بعضی چیزها دلیلی وجود دارد، و معمولا دلیلی هست که گاهی منطقی به نظر می‌رسد. و خب، آن‌ها کاری انجام دادند که خیلی… مسئلهٔ بزرگی نبود. ما خیلی سریع جلویش را گرفتیم، همان‌طور که با بزرگ‌ترین ارتش جهان این کار را می‌کنیم. اما بعضی‌ها ممکن است بگویند که آن‌ها تا حدی تحریک شده بودند، چون ما به دلیلی دیگر اقدام قاطعی انجام داده بودیم. بنابراین آن‌ها در حال تلافی بودند.»
+او در ادامه گفت: «خود مذاکرات بسیار خوب پیش می‌رود. بسیار خوب. اگر اتفاق بیفتد؛ ممکن است اتفاق بیفتد، ممکن هم هست نیفتد، چه کسی می‌داند. اما اگر اتفاق بیفتد، ممکن است همین آخر هفته رخ دهد. تقریبا اوضاع به همین شکل است.
+آنجا بخش متفاوتی از جهان است، می‌دانید. من می‌گویم در آن بخش از جهان، آتش‌بس یعنی این‌که به شکلی ملایم‌تر به تیراندازی ادامه بدهید.»
+ترامپ افزود: «تحت هیچ‌ شرایطی نمی‌توانیم اجازه دهیم ایران به سلاح هسته‌ای دست پیدا کند، هر اتفاقی ممکن است بیفتد وقتی با ایران طرف هستید، اما وقتی با کشورهای دیگر هم طرف هستید، این یک بخش بسیار بی‌ثبات از جهان است، احتمالا بی‌ثبات‌ترین بخش جهان.
+رییس‌جمهوری آمریکا تاکید کرد:
+«ما از سه تیم رهبری عبور کرده‌ایم. این یک وضعیت نظامی است، و واقعا هیچ ارتشی مثل ارتش ما وجود ندارد. ما می‌توانیم دو، سه هفته دیگر ادامه بدهیم و همه را کاملا نابود کنیم. ترجیح می‌دهم این کار را نکنم. انجامش خیلی آسان است. آن‌ها آماده‌اند که این کار را انجام دهند. می‌خواهند انجام دهند.»
+ترامپ گفت: «اما اگر بتوانیم چیزی را مکتوب به دست بیاوریم که همان نتیجه را بدون کشتن همه به‌دست بدهد، من آن را ترجیح می‌دهم. فکر می‌کنم بیشتر افراد من هم همین را می‌خواهند. بعضی‌ها نه، اما بیشترشان بله. یعنی ما بالاترین بازار سهام تاریخ را داریم، با وجود یک درگیری نظامی یا جنگ. بعضی‌ها اسمش را جنگ می‌گذارند، بعضی‌ها درگیری نظامی. برای ما چیز بزرگی نیست.»
+🔻
+ترامپ: اورانیوم غنی‌شده زیر کوه دفن شده و می‌خواهیم آن را خارج کنیم
+دونالد ترامپ، رییس‌جمهوری آمریکا چهارشنبه ۳ خرداد درباره خروج اورانیوم غنی‌شده از ایران گفت جمهوری اسلامی در مقاطع مختلف با این موضوع موافقت کرده، اما چند بار نیز نظر خود را تغییر داده است و این مسئله بیش از حد بزرگ‌نمایی شده است.
+او گفت: آن‌ها [با خروج اورانیوم غنی‌شده از ایران] موافقت کردند و بعد گاهی هم مخالفت کردند. این یکی از چیزهایی است که درباره‌اش صحبت کردیم. خیلی هم بیش از حد بزرگ‌نمایی شده است. من خودم آن را بیش از حد بزرگ‌نمایی کردم.
+ترامپ با اشاره به گزارش آژانس بین‌المللی انرژی اتمی گفت این مواد «نابود شده» و زیر کوهی دفن شده‌اند که تقریبا فروریخته است.
+او افزود بیرون آوردن این مواد بسیار دشوار است، اما تاکید کرد: «من می‌خواهم آن را به دست بیاوریم.» به گفته او، آمریکا و احتمالا چین تنها کشورهایی هستند که تجهیزات لازم برای چنین عملیاتی را دارند.
+رییس‌جمهوری آمریکا همچنین گفت سه سایت مورد نظر به طور دائمی زیر نظر هستند و در صورت هرگونه تحرک، آمریکا از آن مطلع خواهد شد.
+او افزود: «اگر کسی به آنجا برود، دقیقا می‌بینیم چه اتفاقی می‌افتد و کمی هم بیشتر آن را منفجر می‌کنیم.»
+رییس‌جمهوری آمریکا درباره مین‌روبی در تنگه هرمز گفت ایالات متحده از مین‌روب‌های زیرآبی استفاده کرده و مین‌ها را پاکسازی کرده است.
+او افزود: «تنگه هرمز بلافاصله پس از امضا باز خواهد شد.»
+🔻
+ترامپ: ایران یک مشکل بزرگ جهانی بود و اگر مهار نمی‌شد، می‌توانست خاورمیانه را نابود کند
+دونالد ترامپ، رییس‌جمهوری آمریکا درباره گفت‌وگو با حزب‌الله گفت آمریکا برای نخستین بار با این گروه صحبت کرده و سه‌شنبه توافق شده که شلیک انجام نشود.
+او افزود اسرائیل نیز قرار نیست شلیک کند و تاکید کرد موضوع‌های مرتبط با تنگه هرمز، برنامه هسته‌ای و لبنان باید از یکدیگر جدا بررسی شوند.
+ترامپ گفت بنیامین نتانیاهو، نخست‌وزیر اسرائیل، برای او «شریک بسیار خوبی» بوده است.
+او همچنین با اشاره به نقش آمریکا در تحولات منطقه گفت بدون کمک واشینگتن، اسرائیل قادر به انجام عملیات اخیر نبود.
+ترامپ افزود ایران «یک مشکل بزرگ جهانی» بوده و اگر مهار نمی‌شد، می‌توانست خاورمیانه را نابود کند.
+@
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -16,7 +82,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-04 00:00:39
+###### 🔵 Updated at: 2026-06-04 02:08:39
 
 <img src="https://cdn4.telesco.pe/file/hoFhpc5ooGcpIvgJJYwppst6aG15Xnwt48O_yvvaT2lp9sGgW6uluCwUS2EJaCUNLy519ncKYajDItCij1fB3SLrP1HXyHhkPeQJLJq9bTQJlro3tLz5m1YyHB64JbdO2OWklfDR3KiRzb-U5NTNTl-oD7YIOm9HxtqrS0fjOy5sfQsU1Z6t3WqV_VQjxxk16ah5Cduu-WjnT1O2ax63T6xWza4GXVRiWofo67w-S7FPolD38Kahu3jt4YHchPmdlf7WbIO4yDOaWlJlYGfVZjJbB-7qU0Yh9BOGls799iyWy7uRyuI-xO9FmgmszUd2fldLA0Deo8XgwpLD_R-nTw.jpg" width="400"><br>
 
@@ -35,7 +101,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 00:00:39
+###### 🔵 Updated at: 2026-06-04 02:08:39
 
 <img src="https://cdn1.telesco.pe/file/ljny-MyYMQxiXptJha8LoCEM1CDro58PZkHGQA72dFcAfjJyHP1KAfZqeFbVaYxF5XdWZf2OI6eLrbgxV75pgmGIfmbIF5JMUrep2JDcWQU9Y20xmJHZ4rLzT4OiBRQtvNeMzTNeruv6VkV0cxi1f0XQDNNBbxjU3oJ3QRzKjNwEeYUVnzUr26P42oinKP14bsbiFjygcjDGPnHQlA90UGo6t3XxBHqfR9w3FEjt_RgTLiPsBe4iV7co6WjXFhtNLjdUA7L8PfF3t8w9vgAqTMjQ3F0S9gH5faA-PrrJ8YvtGU7Anges83acAsiVqHaT5rZlFzdfDqxuyiPbHxB55A.jpg" width="400"><br>
 
@@ -52,7 +118,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-04 00:00:39
+###### 🔵 Updated at: 2026-06-04 02:08:39
 
 
 
@@ -71,7 +137,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 00:00:39
+###### 🔵 Updated at: 2026-06-04 02:08:39
 
 <img src="https://cdn1.telesco.pe/file/RM6nQJDIyLmH3WsPqg1DDwu3PdIsVMuMcApqcxsNNI2gcMhZlZpgkNfQ_Ip6pTnlPIzhakIk3gN4EBheHZ9K9Orh7sjtdg_XunPn275JvMztuHLqiMEHrPVewUJL5A_MkkMV47yhs0RZY-4q1LQ84kT9oHR51-9qmgrmbD0S1hU14KO-DonpRzvmUzzZK3bNIT6RrjjKt77NYvx85TNOWkhaN7UyFXc9kdgFOigH0AEApNBqWxGeeEKa8KqX8mwMhznFpA2ff0xVFyy_NgCk2mvGOvKvgLnjEQHym_BKNYeBtD5vHL0Qendd14sJsmhWt_7FiCOAZcyYbK0J5pn8Hg.jpg" width="400"><br>
 
@@ -95,7 +161,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 00:00:39
+###### 🔵 Updated at: 2026-06-04 02:08:39
 
 <img src="https://cdn1.telesco.pe/file/s-oYu9BHxT-MAB8fiFi0P09w5im8AIhr1R37fe7PdWda3zknWrr6qY4rkr-HVVskl5hp8QS2fYrpdcP9RJSF4KgG3pSvoAq6Yz3q0_kZhQq3Rs5EJMVW8q2VRbjpCz5gTOmp3N0QCf5KPbuWANcc1zXLll9CeZrpsWwhMeBXWneMnjNXjVTaqSFDmRcBc8XZHgPlpMaYDuUVBKv_BTjUxkOQpLhGHzoMr0Sp77yqX6S1MpVpcRcm0sxF9cWS7eR7p5jOL3Vtgaj3M02HL423ExNjRNHcElR29eo9fMZGzk_-AtXdIToanQvL2MzChz-SIdD9Pqob7nUMv15DACg7Vw.jpg" width="400"><br>
 
@@ -124,7 +190,7 @@ VahidOnline
 
 
 
-###### 🔵 Updated at: 2026-06-04 00:00:39
+###### 🔵 Updated at: 2026-06-04 02:08:39
 
 <img src="https://cdn1.telesco.pe/file/tEmJQUQzWNsMCIQ5xJDrVcrJp5zBRwd83WRJFXKzj2L7_oL45Z1bbKlKYl_VmhaUVELlUTAOIfPtADNqCKQSS9KkF8Gx3x4xT7NYTNtiLCyp_RbokV8vHQ__Sx9Eh8EP2gTrHQsBS_iDUsWvB4-O_9L227uw3MD0EFURzvNYKf1rzJtzcG7o9sQrKXK17Ua6E7QYvK8SaXvCSHSRN2_mCBrB8DwFIV070j3WghOrk-jS7P7_by0fSj6votu0juJYh9ld0426rqdE77W9LwFuZ2bdUA-XQQJzi_dRQ4Y7Mbb2mQg3dK4wBfp5Xvd6oyvdIEFEBPxTOIjcZ2tmObAi0Q.jpg" width="400"><br>
 
@@ -166,53 +232,6 @@ nbcnews
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75911)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-04 00:00:39
-
-
-
-Gholipour:
-"آغاز پویش صیغه ساعتی در تجمعات شبانه حامیان خامنه‌ای"
-beehnam
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75910)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-04 00:00:39
-
-
-
-پیام‌های دریافتی ساعت ۱۳:۴۵
-سلام وحید همین الان بندرو زدن فکر کنم فرودگاه یا پایگاه هوایی بود صداش زیاد بود جوری که تا شهر نمایشو لرزوند
-بندرعباس سمت اسلکه صدای انفجار یا بمب
-وحید جان بندرعباس صدا انفجار خیلی بلند 13:45
-بندرعباس رو زدن خیلی بد بود این دفعه صداش از همیشه بیشتر بود خونه لرزید
-سلام ساعت 13:46 بندرعباس صدای انفجار اومد.
-غرب بندرعباس
-بندرعباس صدای چندین انفجار سنگین همین الان شنیده شد
-همین الان بندر رو زد
-سلام ، ۱۳:۴۵ صدای ی انفجار با لرزش شدید بندرعباس
-سلام 13:46 صدای انفجار بندرعباس
-وحید بندرو فکر کنم زدن صدا انفجار اومد
-سلام همین الان قشم صدای انفجار شدید اومد
-هرمزگان صدا اومد
-بعدش این خبر منتشر شد:
-"معاون سیاسی، امنیتی و اجتماعی استانداری هرمزگان گفت: صدا‌های شنیده شده در شهر بندرعباس ناشی از انفجار‌های کنترل‌شده مهمات دشمن است."
-(گزارش درست اینه که: صدا شنیدم.
-"زدند" و "حمله شده" و.... تحلیل و تفسیر هایی هستند که برای رسیدن بهشون نیاز به داده‌های بیشتری از شنیده شدن صدا هست. لطفا در پیام‌های خبری تفسیر نکنید.)
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75909)
 
 ---
 
