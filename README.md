@@ -3,7 +3,74 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
+
+<img src="https://cdn1.telesco.pe/file/tipqLGT5iBgzRXpNsMcbiAXkQ2jWglmRxD6Xv5HGkldOiovXKgHRCFIZmUF5ct6ZMfpl8xpiXmrnm9pwqB0bnTb2J327rI5jU454plunkPgACtZsT274w-EP3kUYKekv8c9J5WBI2bJ6fUKesEaM4kNyYy-cGJXIV3EG7sAw61rlv6YmXWfLHDtTUTdsfCnDj04l_QX2ypa-blVR4Ra6ph4BMUMU0ipA65HtLL0R6JIK42gfbmsJ-egM1cG5YZeibbIa56DaBBfZ9w3_tJdDNfw9fUWhSuvxC8mwCRjEZ9n0RcdUzuZFm4wtMk7QLSMIiwPd6py6tCkeyBJ4PbCMiA.jpg" width="400"><br>
+
+🔻
+ترامپ: ایران نباید سلاح اتمی داشته باشد
+دونالد ترامپ، رییس‌جمهوری آمریکا، در کاخ سفید در پاسخ به این که اگر حکومت ایران نیروهای آمریکایی را بکشد، آیا جنگ با جمهوری اسلامی را از سر خواهد گرفت، گفت: «این دلیل خوبی برای چنین کاری خواهد بود. اگر آن‌ها نیروهای آمریکایی را بکشند، فکر می‌کنم خیلی سریع دست به این کار بزنم.»
+ترامپ درباره جمهوری اسلامی تاکید کرد: «آن‌ها نمی‌توانند سلاح هسته‌ای داشته باشند.»
+رییس‌جمهوری آمریکا گفت: «ما برای به‌دست آوردن اورانیوم غنی‌شده آن‌ها به توافقی با ایران نیاز نداریم.»
+او درباره کمک ناتو به بازگشایی تنگه هرمز نیز گفت: «ما به آن‌ها فرصت دادیم که کمک کنند، اما نخواستند کمک کنند. این موضوع برای آن‌ها بسیار پرهزینه خواهد شد، چون نباید چنین کاری می‌کردند. باید کمک می‌کردند.»
+🔻
+ترامپ درباره جنگ: چه از نظر نظامی و چه روی کاغذ، ما پیروز خواهیم شد
+دونالد ترامپ، رییس‌جمهوری آمریکا درباره جنگ ایران گفت: «چه از نظر نظامی و چه روی کاغذ، ما پیروز خواهیم شد. بخش اصلی این است که تنگه فورا باز خواهد شد.»
+ترامپ افزود: «آن‌ها (جمهوری اسلامی) هیچ نیروی دریایی ندارند، هیچ نیروی هوایی ندارند. ما آن‌ها را نابود کرده‌ایم.»
+او ادامه داد: «رهبری‌شان را از بین برده‌ایم و تقریبا همه آن‌ها را نابود کرده‌ایم. بعد در رسانه‌های جعلی می‌خوانید که آن‌ها در جنگ خیلی خوب عمل می‌کنند. واقعا باورنکردنی است. ما هر چیزی را که می‌شد نابود کرد، از بین بردیم.»
+🔻
+ترامپ: حکومت ایران درباره توان و اراده آمریکا دچار اشتباه محاسباتی شده است
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در نشست کابینه در کاخ سفید با اشاره به مذاکرات جاری و وضعیت تنگه هرمز گفت یکی از محورهای اصلی توافق، بازگشایی فوری تنگه هرمز برای عبور و مرور کشتی‌ها است و تأکید کرد آمریکا «هم در میدان نبرد و هم در عرصه دیپلماسی» پیروز خواهد شد.
+رئیس‌جمهوری آمریکا مدعی شد توان نظامی جمهوری اسلامی به‌شدت تضعیف شده و گفت: «آن‌ها دیگر نیروی دریایی و نیروی هوایی مؤثری ندارند. ما تقریباً همه توان نظامی و ساختار رهبری آن‌ها را نابود کرده‌ایم.»
+او در پاسخ به پرسشی درباره احتمال ازسرگیری جنگ در صورت کشته شدن نیروهای آمریکایی توسط حکومت ایران گفت چنین اقدامی می‌تواند دلیل کافی برای اقدام نظامی جدید باشد و در آن صورت آمریکا «بسیار سریع» واکنش نشان خواهد داد.
+ترامپ همچنین درباره ذخایر اورانیوم غنی‌شده ایران گفت آمریکا در مقطعی گزینه خارج کردن این مواد را بررسی کرده بود، اما به دلیل نیاز به حضور طولانی‌تر نیروهای آمریکایی از این طرح صرف‌نظر شد. به گفته او، واشینگتن همچنان توانایی دسترسی به این مواد را دارد.
+وی افزود آمریکا با استفاده از سامانه‌های پیشرفته نظارتی و امکانات فضایی، تمامی مناطق مورد نظر را به‌طور کامل زیر نظر دارد و هرگونه تحرک را رصد می‌کند.
+ترامپ درباره احتمال دیدار با مجتبی خامنه‌ای نیز گفت شخصاً تمایلی ندارد و چنین پیشنهادی را هم مطرح نکرده است، اما اگر چنین دیداری انجام شود، با احترام برخورد خواهد کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75943)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-05 01:26:53
+
+<img src="https://cdn1.telesco.pe/file/aviJdhSe3q7EffXWxStQTNXI_65wDmTiS-vjnH5nAnxhgGOfEUb025014EUyeNxqVGo8eHM1VNBP-4YjmHFbKj8MCfrh0I8uunVE9u3kzGGz8Y33xcDVr-a33qugy-r0Bqs78acMX4kP00EcnZPRhSFyws5EtKKmXs_dLAUuvVcnhe6My5uoBeigyfm2Eym0ImrMMLyTim_Pt46Sv4rj10R2LaRHjUZjSdWYPcQvgZUSpC80geOHpHzssgvKHmQxR76SYt6griOTwsU-dB2PIooNgwWAeXAuZkN5AxS8-dvfphEpqznJ4ybSCIdN6zxlRgdnrfZSKbe-dBVXUoDSCg.jpg" width="400"><br>
+
+العربیه پنجشنبه شب ۱۴ خردادماه، به نقل از منابع اختصاصی گزارش داد محسن نقوی، وزیر کشور پاکستان، برای پیشبرد مذاکرات میان جمهوری اسلامی ایران و آمریکا به تهران سفر می‌کند.
+به گفته این منابع، سفر نقوی در چارچوب تلاش‌های میانجی‌گرانه اسلام‌آباد میان تهران و واشنگتن انجام می‌شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75942)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-05 01:26:53
+
+<img src="https://cdn1.telesco.pe/file/GNMmMCJDEAkHWHG_gavpxKPk9K7ZJG5KrcAbbFcRJYkeeNygnOkp1Drryr9pKBjYkq6CC1q6z5Z6qwpntfyNPMBvY9nyGNpCNXmoZg0xHYD2ovjrvqn8jujLHWoBFh1HslaVw577smRqlGIECO_gDSCqAO4_bJYyGZ9C0l4xik_o-cC79sEnPUQua1kW7ejE5txNu6z8cK6uJ9DAt5Jn8T6XOs8oUALwopgfqAMM-i08PYKk5pi3FkTnUWKYjb6e7ML5diIjZInwyXkDviiofeMuC-ABBuuQpvzZ7J7MvT8bOsc_4REgRoT_MYp49TUDxCeHYhofGgT41Q-rWdQdGQ.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه گفت ایالات متحده بر جمهوری اسلامی غلبه می‌کند، یا با توافق یا با عملیات نظامی.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75941)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn4.telesco.pe/file/srGeW1mIBAu8QzEumCtzjgPY2x0PsNVfw6sOot4yNuVbStukIdlxpJ011VUFKjomDhDe-lsHfFSdUXrDzYgXN7BR4hyqzNty-i1fSCHjZj96Xi_5YyCILEj8IfnLFFrHaG2Tkub-2B5Lj5OhgEDQuFs1mSAr-_TWdMHABsJrU1GZpC8AiaAEowSJeUFHBZYYxbDPtOM0YoHnl5JIEdBjU6aM48cdaZtsXMgY9-wscSs004K8IGfc6zJ-HX-hFCCGa94pdDhcrCHJHkoq66rPxX7ruA4SvygfMSNXk78uhdINmppTVfhtV-b0Rph4Ile2w1yalMX3d0asmwElMaHHlg.jpg" width="400"><br>
 
@@ -20,7 +87,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn1.telesco.pe/file/FHOVjf3h0V5ZUJOtgwWUi4QpRUC4TY6FCwn9U-3HNl76KZ0iD-NHdaOG2pAfc6REtugwRbcOnFBAL4FJURINXY6pmqd0z__B-Mmt2IdBUEYvD-FtHu8qZ22740-AC6BuZU464vr9kkyTLtovhysTUcfcUwrEcuxLsVakSEVWqZ2C-raPkxwzUUlih-IuVNhBGrcnBQ5NMrWOTskPGrAH6LJPAe0x9LD7YPtGNOiyCQFnGeW38Q9996ZoRlY97fsz03R5FqQ785ir0eoVrC__wDaac47Y3Mj4qEqIc1By0iZIuuFlPRod2ZGWTRJpEHXsErbp8oGGP1nDi0I-dgrDEw.jpg" width="400"><br>
 
@@ -42,7 +109,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn1.telesco.pe/file/NNG6cWU70R2p2RGikqaZvFWoFYyOhbbhqfn-BUAs2cfPSoXbkcMjrlGKzhXpzI52p0dU0Xgm9cTYFrMBPJUUfUCMElxiv-3kJ6ZHDBPVF_x7OtLl1syJYLPnFR498ffcDno5WZxyx_luN3KoRw7ChjnkQCbosiKmSVl7655WTKfgj__2f0UyVlshXyJhNWa_RikprNoyL5tCE6-7n8gchAslXF2HmXF-JtD0iEcGQwuk5Wq-TuExgjZbEjT2pfWB__OzFY-5jAuoVuNVrGn3wEo-02L1bF8SxnyfFIha_o0yTei50spWQ0o0epaU89z9MuA3mh1SJDhRqZ25_VHuJw.jpg" width="400"><br>
 
@@ -61,7 +128,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn1.telesco.pe/file/deQ3uGLInXjoGnHndg1u4wgYv4Oy6k5fbSIIRZlhnGSZbhIRXtB4_PA0NucRa6kuVK026V34FpLG-2sYNacPqOMXhmX0D1_Q8VQ01sppcjCk8pxdIvya9gcYU_F_AN9esw6fdHC4S8_ThRR7UQlASeZTjpeDMN2MJdAJ-5lwKUo_NAqWC3ZjQTrmzYh4Z448xZbiFQTwI64Lu4jtxJkFuyENXSHGokex8V8A8BfrOy2a2GpRRgaHWamt6FCEMCU_jOX3gEhvfc9T5PqteL6F4ipSHok_Izbl6c6IBGjNwKzC8JWX6NIKrMJLFzEzVnzFnTTdQFkgZkiPVuz7SM_gRw.jpg" width="400"><br>
 
@@ -85,7 +152,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn4.telesco.pe/file/TovUDbG5NGCljVEeiyEbt5fvrenHdHOEzuY5KdWtfGjeDad7GFEQcNWSO-4Rdveq8w-xDaQSKOna0uYBNxeyfK0dnjfTp8URxwfRcn4R-4U0iMA9BnYeJqV2RhSnWgdVtEgdvWxOaX00tu2DPBGTNfr_9wEm7KnjdKZiZ2CopNQXfczPOcQ4IgcuAMO6svrOQjn00cg2LEUnDUmP1v7sO4EZZq3OzD3XzEWA1yyDdIvs9DcSVvdePZy4FynG68263FCPRBt3V35B_3ItAAiW1Jbfen58MBITRcBNsNfiW2fxsDzahJExaLLwAY726MI05O_BxahaZ-9eSgJaOKWjdA.jpg" width="400"><br>
 
@@ -104,7 +171,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn1.telesco.pe/file/b2qa6yutjdtAVd4444DLCR1aaES1-HrrnzRDWR-fetuzMBXLKW17Cy0rh5cBgz2nrlfqBUUc4EMibDqJtBqZurzCOIOnPMQ4evMxapn0flP23zhoOF3OkB73nwGIxjFehOa7YJjUiHqDnqvGTmqYbiSRjP_lksMQoko99tuq9KXoxPkpX5YpSizx7cTxyX9vw6FsMn8oaZd6vHBdkYMEG7xoj6xKl8EU4ZNa12ieUDYgVpUMFUJsATNHh7EfsklL-XYvdpzTOmjw2mgUEfPfDc4ryY0VVw4PVkKJlIWO92VNgL1AL0y3vkdWVjNIAo3KTOi6piYerQMqsmWJiwjbDg.jpg" width="400"><br>
 
@@ -123,7 +190,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn1.telesco.pe/file/K4Ad6sB8xSBbx4WDn6TBG5u5XhPfrQt29jPvkftgX5Vuar8m01kw00fEm2QzRpDnNciWrdP0fme0Z8JirbOxwXkLLTXxPx3PzbvoJN-v5dvM16u6AEXwMdJaQyBeMUgf7GPE3o0NM6VftWf09PLOhPxvOAqqTp4cWuZFH6JAb0bo9uBG8n7zhw9P_TgtKmoSe05bnZDAURiJDmlyse8qc6MJ4QhujB8jcDZKsZJAzCU-udVK0vNOWLwnDKDPxrfw6gBk2N7qw-i_R3u2wDZfTaENchy0RRFaFuUJBdLRUB7QRD2aqRWyQ9aWEtyJb6FYoyGh6XHvaZ0ksWpLU1rZXA.jpg" width="400"><br>
 
@@ -140,7 +207,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn4.telesco.pe/file/lZK3bb9TP4dfiHzVOMZ3bl-G1MAcbO4d63CbCylKr3n7plb2oR0RmQ9r6S1cYQBghBI9fq1KUuKC9oyzAgJUBEhVjyTympHF_12eEJt6rw5xdy-naeBrbj5kqQonsVVwEQk-ouVVzp2HpCXf3rzwfdk2pmIlEAon8Nr51SQjJ-5BOz-BBAANuWgY-VDdNJrH9Ze_wHdmTZHT6q7EtE9OgyXxEJUUkrBEedwRoylzJAf2HQ92l32WUD6U2Iz2A4P8uP1MYsPwO_h13V4kU8RCTarlnYOHDN1L-TR2GA9ibXpfF1VKxw1VVbxufWsHPaPSaV5bnHMYmuLihhyDzaiCtw.jpg" width="400"><br>
 
@@ -159,7 +226,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn1.telesco.pe/file/huHdFD3cViR196V8SxHOQ2JAyKqyZwHwqSI7v1CVtCyldSxYbATLmUMBngQj0wsJ0uJiEBBqj6QtaRjgEXcCYc-pzV2TrIq66G6X5CHU2vkuOdpITAE4ZkSQWmOzScvxZs1qkW48Z6yfsxzss_-ODFXRDBvT1LPtFKqvumLZBTZ4qdfgpiY3XvUeO6CBiQwUZdAs3082QKMZs5HcazpfshcSjijzDaQFMCv0X9NG_5Fca57YFxb9x9M-LHfcVJAiXQMrIoOp6wRYrncV7lCNpmzgK04_3ITEszH44s6mGC3_GOw6FEmTQFSgqRZoeDMoYBajREWPpNk7Gsnf0C2Hag.jpg" width="400"><br>
 
@@ -179,7 +246,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 
 
@@ -201,9 +268,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
-<img src="https://cdn1.telesco.pe/file/aajgSTr9c8X_RhccJ2yH3XRFwKuMsw7HvIjyJRWFRFQzneMS6ojwRcUI3m7GTrH1_7M7nSuw08ualRvx2i31Z1tKNN4uuD_PjpBNQD0nNSbppWyUZpKEiHHE1yiOYm9C-uMu0f7SDxQ3P1bGNjgOffMAFoOh7iLJxJFCzti7bx_NTWbSmbKXcTzjGiUM8RUQDKf654cuSiTCnK0cyXB-_6sr7KtOWQiy1UmuJVOKiF88LGpm9nGq67QFQb3-84wjUHxp4h-0h3WW8TWqwZRyaultg2O1DhVQ_1wvLrA_LEagw19VmaROZMRu9WweMtyP21tB1RC9xltCMVHLTeaEjA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/m15FtrVGVSH91Q2tEyB1FeLyKystFcjKoaYUhAM2GXjSfynm-iB_yi7yDjC0CuIE0j80lgGX3jHptdaSeZkwzx4QpGXC8RXeDAyl1-oiNNQJwf5ITBcY_i4KeqRyOxuikCeKGjM2f9JBbOa7Os_snc6Tc3mERdemHf9n4GFCt3hghcx68Er3gCuWSSSVj5JWj2JxFzVP8uo8eVqfJkDEGF2ug4BaB7FTASR427VwWG42d-AuQPJ25gTgQ_MJCumC1eLY500Zst69lB3AE2UUGQRDW8rtd1T6o7UAKX5_GGuViRppPOPca9JcDLf4wnH0jYzc1MnnFh0ZgpkEJmXzGA.jpg" width="400"><br>
 
 مجلس نمایندگان آمریکا روز چهارشنبه از قطعنامه‌ای به رهبری دموکرات‌ها حمایت کرد که هدف آن متوقف کردن جنگ با حکومت ایران تا زمان صدور مجوز از سوی کنگره است.
 به گزارش رویترز این قطعنامه با ۲۱۵ رای موافق در برابر ۲۰۸ رای مخالف تصویب شد و چهار نماینده جمهوری‌خواه نیز به دموکرات‌ها پیوستند.
@@ -223,9 +290,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
-<img src="https://cdn1.telesco.pe/file/aENbctYEv9zwPJBPKBmf4tdNZ7PdBXgthW7ViqcpR4gnGk7M__xVC4Qu-QoGAu82Akbbph3jC7fgObNVSlPAC12NcqoM1DrLvGOeZJ-JYdCqF34Afc2n3c4iHlp-fOHSUZsKOdYQ5Ea2M5iVLo6eo4lhgjArzO9JQgti0gFxS4mHxtvsHoinure5uIAsa98EkVba-Qs2-SgpxNVnaa35Pv3C_u2NIHGYEBPz_6hi-tpko0E67ZR4_1v8hBEMn-NaqtIJiAwRKjaKchpbNBm_k0ijgmmqT8lWpxrSj9Cu9RWasWkVi7LMoqpgOiKHcIIhFR6RHJsIzKToNkyCPv_cHw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QyBnkPnfWzzSDKpl57PE01YYGMsoM-hjbqtGCuHvuUHReKEHb79WqIiGycgVhZG2jzebUNwmdnbXINIV3pd9uhHV8arQ_yD8IaJI8qVLHt7y3cyYCSFVfrXIlndU7K36TwaATFXCUII1E0gilLrowhen7rbXIJLcnfSU5tOGvppTrJAsq-xP_EyTGBRvQ2LhydJ1SdaU-84eiJBzMgJJTeRqvfNHUbtND8f3tVUTjpbStgfJ7ihg1lOxUK59JoSYCnmmD8QtNUyLhnmXt9fwxsjiLzwrIYBfH2hUklwBod12zFTvO7SHAH8aGLT4GHQG2wXO6iPClUvQosRGcygvQg.jpg" width="400"><br>
 
 🔻
 ترامپ: می‌توانیم همه را نابود کنیم، اما ترجیح می‌دهم به توافق مکتوبی برسیم
@@ -265,7 +332,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn4.telesco.pe/file/ncjgwF4MClSDBl5C1aUbV_kWScuBoIkNwI9Cal4SoNfnrvC-Ogne4iNtfrwv7XH9IbNDA0i0jTf_RnAI-F82lkfOZt7Bl7-VeopMPnyzqjewLGE3hIhL_sCmRjelpPRhHA9BNbk2GlUGTzdRB5R1if80My1eSJrGns57WBiSffbVksJRplzusD2GUzhcNjZ_Sjml0cDnRcGwfxVOSbjMk0ovpLIKhKCrWbBtcIx0lg7Sazgzf7wYy01GMIHYqMNW8kdcSn78VKMcXTfuQGsqClsl1AOkjbSLD6GHSrGdPddOWwb6eHNmfw_f3ptJcr0sG8c6VWO_KzXteqIAK1HLWQ.jpg" width="400"><br>
 
@@ -284,7 +351,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn1.telesco.pe/file/sJ35_92HLR1bdYxjr1a9lMWtXcfwxKy9qIAKwQcDwn_NxGCYuYl148CkEhRdMfkcw0bhCkzWegEAjlle7tBbnNxzEWeIYor6GMOD4qpanWTxdTAi661a3VP-d0wYenUNjcujcprnqsrdCeA3K5B_mdLWhRQq_ROvb_OdDiMC2wStUNY5O-0QGrk08oskRM1shy44dG1Ys2dT6Yz4FUA8yd4ALiO70wBobMPEuEof99hdvzNb8MietldZJVX1qRx9fDuArXd4kfgQbtphKqfQii3KYt67WJvHj_CdojIHby5ECP-faGnmzydciKmz46rYyTTwwZpEx2__JmBwRVZhUQ.jpg" width="400"><br>
 
@@ -301,7 +368,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 
 
@@ -320,7 +387,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 23:51:02
+###### 🔵 Updated at: 2026-06-05 01:26:53
 
 <img src="https://cdn1.telesco.pe/file/EhGGKcbnAMFZCunsqEoAvD5VzBy3bLcyrepiQlsAoqTk3eLEuFyK3CYvUyZ_ulI0laodDSgxcx9NSNOmbutxVLpg4x2MM9kBr7DQZKgRvf909n-t8k1uRpt9uvyZ_cbImqd2DDb02TUA1g3Sx7rtTXQD9RtRnQ__zqWAi_vML6fmilzXDfn6h6dBZpsV0zTy6yik1ioyCezcZPWC8L1OpjI2cAjP_nsjsXXHssQeOt6yswwb9myTzO5tiXQifs4nkxpPNalKqbx2vBWamq-jxqJ0tVhql6NVbAsTEzFKMA1ZOWULtBgjGfiCy-5R959uADEijVq9JM5pv5Tem2m9Ag.jpg" width="400"><br>
 
@@ -339,35 +406,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75924)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-04 23:51:02
-
-<img src="https://cdn1.telesco.pe/file/hJH-YOGTeVm4Z82DZFFLXem67PDKsH3Ukp6YSJza-neud4VOlI-DavNoPLIqDaqO_97iS5dbsgzdLRmhPvMm8_1Waw8ek8tj3WgoY47MUwGfz57FD2doj7lFgFabMq8Kr4xrYvD7QK-QN1MlkscBOSF_1YDwZbn4qCYXuV8-wV76ui-1uNJ_4BpCE2OZc2n90Bs847-Ii07UWzeebAU9DLePXlZd9GaAGikA7lf1TJm0A7MA8LA9my0nIQBDP098VDtbqiu14eAgQJQdpn3bVpDKblxKqaUj6PvX7gMtg73WRzO_6c74GfBs6sZqdPqVPO-ysGEvVjCG3m7viJcIlA.jpg" width="400"><br>
-
-وزارت دادگستری آمریکا روز چهارشنبه اعلام کرد مدیرعامل یک شرکت فناوری در کالیفرنیا به اتهام تأمین تجهیزات آمریکایی برای نهادهای هسته‌ای و نظامی ایران بازداشت شد.
-بر اساس بیانیه این وزارتخانه، جمشید قُمی، ۶۳ ساله، شهروند دو تابعیتی ایران و آمریکا و ساکن نیوپورت کوست در ایالت کالیفرنیا، به «تبانی برای نقض قانون اختیارات اقتصادی در شرایط اضطراری بین‌المللی» متهم شده است.
-او متهم است که «تجهیزات پیشرفته شبکه، امنیتی و رمزنگاری ساخت آمریکا را برای مشتریان ایرانی، از جمله نهادهای هسته‌ای و نظامی حکومت ایران تهیه کرده است.»
-وزارت دادگستری آمریکا همچنین اعلام کرد که جمشید قمی از «شرکت‌های پوششی» در امارات متحده عربی برای پنهان کردن محموله‌های تجهیزات شبکه و رایانه‌ای که مقصد نهایی آنها ایران بود، استفاده می‌کرد و این شرکت‌های واسطه برای مخفی نگه داشتن مقصد واقعی کالاها و دور زدن تحریم‌های ایالات متحده به کار گرفته شده بودند.
-جان آیزنبرگ، معاون دادستان کل آمریکا در امور امنیت ملی، در این بیانیه گفت: «طبق آنچه در کیفرخواست آمده، قمی با تأمین فناوری آمریکایی برای سازمان انرژی اتمی ایران و سایر نهادهای تحریم‌شده مرتبط با برنامه هسته‌ای ایران، به ثروت دست یافته است.»
-او افزود: «بخش امنیت ملی وزارت دادگستری افرادی را که برای پیشبرد اهداف هسته‌ای ایران قوانین ما را نقض می‌کنند، پاسخگو خواهد کرد.»
-به گفته وزارت دادگستری ایالات متحده، متهم بیش از ۱۵ میلیون دلار از ایران به حساب‌های بانکی خود در آمریکا و یک حساب امانی منتقل کرده و به‌دروغ این پول را به سازمان مالیات آمریکا به‌عنوان ارث خارجی اعلام کرده است.
-بر اساس این اتهامات، اظهارنامه‌های مالیاتی فدرال او تقریباً هیچ درآمدی را نشان نمی‌داد و بالاترین درآمدی که در هر سال گزارش کرده بود تنها ۲۰٬۶۸۴ دلار بوده است.
-وزارت دادگستری آمریکا همچنین مدعی است که او از درآمد حاصل از «طرح دور زدن تحریم‌ها» برای تأمین هزینه ساخت یک عمارت چند میلیون دلاری در اورنج کانتی کالیفرنیا استفاده کرده است.
-@
-VahidHeadline
-دادستانی علاوه بر درخواست مجازات حبس، به دنبال مصادره اموال وی از جمله عمارت گران‌قیمت اوست.
-بازپرسان معتقدند او به مدت بیش از یک دهه از طریق شرکت خود در تهران به نام «فراز پرداز رایانه»، بیش از ۲۵۰ تن تجهیزات کنترل‌شده تکنولوژی را به‌صورت مخفیانه خریداری کرده است.
-او متهم است که با استفاده از حساب‌های شخصی در eBay و PayPal و از طریق شرکت‌های صوری در امارات کالاها را تهیه و به ایران ارسال می‌کرد.
-@
-VahidOnline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75913)
 
 ---
 
