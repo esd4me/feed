@@ -3,7 +3,44 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-04 02:08:39
+###### 🔵 Updated at: 2026-06-04 03:48:55
+
+<img src="https://cdn4.telesco.pe/file/lZK3bb9TP4dfiHzVOMZ3bl-G1MAcbO4d63CbCylKr3n7plb2oR0RmQ9r6S1cYQBghBI9fq1KUuKC9oyzAgJUBEhVjyTympHF_12eEJt6rw5xdy-naeBrbj5kqQonsVVwEQk-ouVVzp2HpCXf3rzwfdk2pmIlEAon8Nr51SQjJ-5BOz-BBAANuWgY-VDdNJrH9Ze_wHdmTZHT6q7EtE9OgyXxEJUUkrBEedwRoylzJAf2HQ92l32WUD6U2Iz2A4P8uP1MYsPwO_h13V4kU8RCTarlnYOHDN1L-TR2GA9ibXpfF1VKxw1VVbxufWsHPaPSaV5bnHMYmuLihhyDzaiCtw.jpg" width="400"><br>
+
+الحدث گزارش داد آمریکا و جمهوری اسلامی به توافقی چهار مرحله‌ای نزدیک شده‌اند که با کاهش تنش‌ها آغاز می‌شود و به پرونده هسته‌ای و ترتیبات امنیتی منطقه ختم خواهد شد و انتقال از هر مرحله به مرحله بعدی، پس از «اجرای تعهدات» انجام می‌شود.
+طبق این گزارش، مرحله نخست توافق شامل توقف عملیات نظامی مستقیم و پرهیز از هرگونه تشدید تنش یا گشودن جبهه‌های جدید در منطقه است. مرحله دوم نیز بر امنیت کشتیرانی، بازگشایی تنگه هرمز و ترتیبات امنیتی ویژه گذرگاه‌های دریایی و خطوط انرژی متمرکز است.
+به نوشته الحدث، مرحله سوم این توافق شامل اعتمادسازی اقتصادی، کاهش محدود برخی تحریم‌های جمهوری اسلامی، آزادسازی بخشی از اموال مسدودشده ایران و ارائه تسهیلات مرتبط با صادرات نفت است.
+بر اساس این گزارش، مرحله چهارم توافق پیچیده‌ترین مرحله به شمار می‌رود و ممکن است ماه‌ها طول بکشد. این مرحله شامل بررسی برنامه هسته‌ای ایران، سطح غنی‌سازی اورانیوم و سازوکارهای نظارتی و ترتیبات امنیتی منطقه‌ای است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75933)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-04 03:48:55
+
+<img src="https://cdn4.telesco.pe/file/iU74U7EwdZFRtzG7-qMyKM1mqEuuX2CGmFpEgF13Mz1UbwwRsAww1JP00gsToEEk5nXfTRb_E3htqEaT8KHhCpAbeWvq0Lq2UFlTsyXHVsBMImCfD4UwaogLuZW9A5sfMHlPW76Y1PW5nlnH4MYkmsi1xtgFdmJiLNPAoofatI_HHkXeBbs9rOMlGmN9oDHTJiiVB8dTv8o9LpeWfDH4ifJDKvwfUBXJZscq1i5v9aurjjj1chn2T6Y49T9kaW-kk5YxZAEVMIqBjZ9vL2bHdUfpvQgDjTcpk9eewAvVMFKxO9jYquDmq6hzGVAJ4TFx-vypWd2VkAfbqlIUSL-1kg.jpg" width="400"><br>
+
+♦️
+به گزارش رویترز، وزارت خارجه آمریکا روز چهارشنبه اعلام کرد اسرائیل و لبنان پس از مذاکرات انجام‌شده در واشنگتن، بر سر اجرای آتش‌بس به توافق رسیده‌اند.
+بر اساس بیانیه مشترک منتشرشده، دو طرف توافق کرده‌اند مسیرهای سیاسی و امنیتی را بار دیگر از هفته اول تیر از سر بگیرند؛ اقدامی که با هدف دستیابی به یک توافق جامع انجام خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75932)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-04 03:48:55
 
 
 
@@ -18,7 +55,7 @@ mohsenreyhani01
 
 
 
-###### 🔵 Updated at: 2026-06-04 02:08:39
+###### 🔵 Updated at: 2026-06-04 03:48:55
 
 <img src="https://cdn1.telesco.pe/file/aajgSTr9c8X_RhccJ2yH3XRFwKuMsw7HvIjyJRWFRFQzneMS6ojwRcUI3m7GTrH1_7M7nSuw08ualRvx2i31Z1tKNN4uuD_PjpBNQD0nNSbppWyUZpKEiHHE1yiOYm9C-uMu0f7SDxQ3P1bGNjgOffMAFoOh7iLJxJFCzti7bx_NTWbSmbKXcTzjGiUM8RUQDKf654cuSiTCnK0cyXB-_6sr7KtOWQiy1UmuJVOKiF88LGpm9nGq67QFQb3-84wjUHxp4h-0h3WW8TWqwZRyaultg2O1DhVQ_1wvLrA_LEagw19VmaROZMRu9WweMtyP21tB1RC9xltCMVHLTeaEjA.jpg" width="400"><br>
 
@@ -40,7 +77,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 02:08:39
+###### 🔵 Updated at: 2026-06-04 03:48:55
 
 <img src="https://cdn1.telesco.pe/file/aENbctYEv9zwPJBPKBmf4tdNZ7PdBXgthW7ViqcpR4gnGk7M__xVC4Qu-QoGAu82Akbbph3jC7fgObNVSlPAC12NcqoM1DrLvGOeZJ-JYdCqF34Afc2n3c4iHlp-fOHSUZsKOdYQ5Ea2M5iVLo6eo4lhgjArzO9JQgti0gFxS4mHxtvsHoinure5uIAsa98EkVba-Qs2-SgpxNVnaa35Pv3C_u2NIHGYEBPz_6hi-tpko0E67ZR4_1v8hBEMn-NaqtIJiAwRKjaKchpbNBm_k0ijgmmqT8lWpxrSj9Cu9RWasWkVi7LMoqpgOiKHcIIhFR6RHJsIzKToNkyCPv_cHw.jpg" width="400"><br>
 
@@ -82,7 +119,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 02:08:39
+###### 🔵 Updated at: 2026-06-04 03:48:55
 
 <img src="https://cdn4.telesco.pe/file/hoFhpc5ooGcpIvgJJYwppst6aG15Xnwt48O_yvvaT2lp9sGgW6uluCwUS2EJaCUNLy519ncKYajDItCij1fB3SLrP1HXyHhkPeQJLJq9bTQJlro3tLz5m1YyHB64JbdO2OWklfDR3KiRzb-U5NTNTl-oD7YIOm9HxtqrS0fjOy5sfQsU1Z6t3WqV_VQjxxk16ah5Cduu-WjnT1O2ax63T6xWza4GXVRiWofo67w-S7FPolD38Kahu3jt4YHchPmdlf7WbIO4yDOaWlJlYGfVZjJbB-7qU0Yh9BOGls799iyWy7uRyuI-xO9FmgmszUd2fldLA0Deo8XgwpLD_R-nTw.jpg" width="400"><br>
 
@@ -101,7 +138,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 02:08:39
+###### 🔵 Updated at: 2026-06-04 03:48:55
 
 <img src="https://cdn1.telesco.pe/file/ljny-MyYMQxiXptJha8LoCEM1CDro58PZkHGQA72dFcAfjJyHP1KAfZqeFbVaYxF5XdWZf2OI6eLrbgxV75pgmGIfmbIF5JMUrep2JDcWQU9Y20xmJHZ4rLzT4OiBRQtvNeMzTNeruv6VkV0cxi1f0XQDNNBbxjU3oJ3QRzKjNwEeYUVnzUr26P42oinKP14bsbiFjygcjDGPnHQlA90UGo6t3XxBHqfR9w3FEjt_RgTLiPsBe4iV7co6WjXFhtNLjdUA7L8PfF3t8w9vgAqTMjQ3F0S9gH5faA-PrrJ8YvtGU7Anges83acAsiVqHaT5rZlFzdfDqxuyiPbHxB55A.jpg" width="400"><br>
 
@@ -118,7 +155,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-04 02:08:39
+###### 🔵 Updated at: 2026-06-04 03:48:55
 
 
 
@@ -137,7 +174,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 02:08:39
+###### 🔵 Updated at: 2026-06-04 03:48:55
 
 <img src="https://cdn1.telesco.pe/file/RM6nQJDIyLmH3WsPqg1DDwu3PdIsVMuMcApqcxsNNI2gcMhZlZpgkNfQ_Ip6pTnlPIzhakIk3gN4EBheHZ9K9Orh7sjtdg_XunPn275JvMztuHLqiMEHrPVewUJL5A_MkkMV47yhs0RZY-4q1LQ84kT9oHR51-9qmgrmbD0S1hU14KO-DonpRzvmUzzZK3bNIT6RrjjKt77NYvx85TNOWkhaN7UyFXc9kdgFOigH0AEApNBqWxGeeEKa8KqX8mwMhznFpA2ff0xVFyy_NgCk2mvGOvKvgLnjEQHym_BKNYeBtD5vHL0Qendd14sJsmhWt_7FiCOAZcyYbK0J5pn8Hg.jpg" width="400"><br>
 
@@ -161,7 +198,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 02:08:39
+###### 🔵 Updated at: 2026-06-04 03:48:55
 
 <img src="https://cdn1.telesco.pe/file/s-oYu9BHxT-MAB8fiFi0P09w5im8AIhr1R37fe7PdWda3zknWrr6qY4rkr-HVVskl5hp8QS2fYrpdcP9RJSF4KgG3pSvoAq6Yz3q0_kZhQq3Rs5EJMVW8q2VRbjpCz5gTOmp3N0QCf5KPbuWANcc1zXLll9CeZrpsWwhMeBXWneMnjNXjVTaqSFDmRcBc8XZHgPlpMaYDuUVBKv_BTjUxkOQpLhGHzoMr0Sp77yqX6S1MpVpcRcm0sxF9cWS7eR7p5jOL3Vtgaj3M02HL423ExNjRNHcElR29eo9fMZGzk_-AtXdIToanQvL2MzChz-SIdD9Pqob7nUMv15DACg7Vw.jpg" width="400"><br>
 
@@ -185,53 +222,6 @@ VahidOnline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75913)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-04 02:08:39
-
-<img src="https://cdn1.telesco.pe/file/tEmJQUQzWNsMCIQ5xJDrVcrJp5zBRwd83WRJFXKzj2L7_oL45Z1bbKlKYl_VmhaUVELlUTAOIfPtADNqCKQSS9KkF8Gx3x4xT7NYTNtiLCyp_RbokV8vHQ__Sx9Eh8EP2gTrHQsBS_iDUsWvB4-O_9L227uw3MD0EFURzvNYKf1rzJtzcG7o9sQrKXK17Ua6E7QYvK8SaXvCSHSRN2_mCBrB8DwFIV070j3WghOrk-jS7P7_by0fSj6votu0juJYh9ld0426rqdE77W9LwFuZ2bdUA-XQQJzi_dRQ4Y7Mbb2mQg3dK4wBfp5Xvd6oyvdIEFEBPxTOIjcZ2tmObAi0Q.jpg" width="400"><br>
-
-سی‌ان‌بی‌سی، ترجمه ماشین:
-▪️
-نتانیاهو از پاسخ به سوالی در مورد اینکه ترامپ در تماس تلفنی این هفته به او فحاشی رکیک کرده و رئیس جمهور آمریکا گفته است اگر او نبود، نتانیاهو الان زندانی بود، طفره رفت.
-نتانیاهو در پاسخ به سوالی در مورد اینکه ترامپ ظاهراً او را «دیوانه» خطاب کرده است، گفت: «وارد جزئیات نمی‌شوم.»
-[ولی ترامپ در
-مصاحبه با NBC
-گزارش آکسیوس رو تایید کرد که بهش گفت دیوانه]
-▪️
-نتانیاهو می‌گوید او و ترامپ «اختلافات تاکتیکی» دارند اما «در مورد مسائل اصلی اتفاق نظر دارند»
-نتانیاهو هرگونه اشاره‌ای به اختلاف با ترامپ را کم‌اهمیت جلوه داد و گفت اگرچه آنها گاهی اوقات «اختلافات تاکتیکی» دارند، اما «در مورد مسائل اصلی اتفاق نظر دارند».
-او گفت که این موارد شامل جلوگیری از دستیابی ایران به سلاح هسته‌ای و تهدید اسرائیل با آن می‌شود.
-او گفت: «گاهی اوقات، مثل بهترین خانواده‌ها، این اختلافات تاکتیکی را داریم. اما ما همیشه راهی برای حل آنها پیدا می‌کنیم و این کار را به عنوان دوستان خوب انجام می‌دهیم.»
-او گفت: «ما می‌توانیم صبح اختلاف نظر داشته باشیم» و تا بعد از ظهر به زمینه مشترک برسیم.
-▪️
-نتانیاهو در پاسخ به این سوال که آیا واقعاً آتش‌بس با ایران برقرار شده است، گفت: «فکر می‌کنم یک بازی تاکتیکی در حال انجام است.»
-نتانیاهو گفت: «و ایران مطمئناً می‌داند [ترامپ] چه گفته است، اینکه در صورت لزوم، بازگشت کامل به اقدام نظامی وجود خواهد داشت. این تصمیم رئیس جمهور است، اسرائیل آماده است، و نیروهای آمریکایی نیز آماده هستند.»
-او گفت: «فکر می‌کنم ایران باید این را در نظر بگیرد. فکر می‌کنم آنها دارند این را در نظر می‌گیرند که دارند با آتش بازی می‌کنند، این واضح است.»
-▪️
-نتانیاهو از اقدام تلافی‌جویانه ترامپ در محاصره بنادر ایران در تنگه هرمز تمجید کرد و آن را «بسیار مؤثر» خواند.
-او گفت: «محاصره معکوس، یک حرکت هوشمندانه بوده است.»
-▪️
-نتانیاهو گفت که «هر دو روز یک بار» با ترامپ صحبت می‌کند.
-او گفت که دو رهبر «اهداف مشترکی دارند... ما می‌خواهیم به آنها دست یابیم.»
-اما در پاسخ به این سوال که از توافق آتش‌بس احتمالی چه انتظاری دارد، نتانیاهو اذعان کرد که «این یک سوال بی‌پاسخ است که جنگ چگونه باید پایان یابد.»
-▪️
-نتانیاهو گفت نهادهایی که به نفت ارسالی از طریق تنگه هرمز متکی هستند، در حال حاضر «در حال توسعه مسیرهای جایگزین» هستند که کمبود عرضه انرژی ناشی از بسته شدن مؤثر این آبراه کلیدی در طول جنگ را جبران خواهد کرد.
-▪️
-نتانیاهو انتظار دارد که تغییر رژیم در ایران رخ دهد زیرا رهبری فعلی «به شدت» تضعیف شده است - اما پیش‌بینی نکرد که این اتفاق چه زمانی رخ خواهد داد.
-نتانیاهو گفت: «شما نمی‌توانید دقیقاً پیش‌بینی کنید که چنین رژیمی چه زمانی سقوط می‌کند. شما در بسیاری از موارد آن را پیش‌بینی نکردید: نه در رومانی، و نه در سقوط دیوار برلین، و هیچ‌کس آن را پیش‌بینی نکرد، اما این اتفاق افتاد. چرا؟ چون ترک‌ها از زیر در حال گسترش بودند.»
-او گفت: «در واقع، شما همین الان در ایران شکاف‌های عظیمی دارید و نمی‌توانید پیش‌بینی کنید که چه زمانی این اتفاق خواهد افتاد.»
-«اما من دیروز در یک نشست عمومی اینجا گفتم... ببینید، من معتقدم که در نهایت این شکاف‌ها گسترش پیدا می‌کنند و رژیم سقوط خواهد کرد و ما تمام تلاشمان را خواهیم کرد.»
-نتانیاهو گفت: «من فکر می‌کنم که ما باید به مردم ایران کمک کنیم تا این رژیم را سرنگون کنند، و این تغییر نکرده است، اما دقیقاً در لحظه‌ای که ما انتخاب می‌کنیم، این اتفاق نخواهد افتاد.»
-او گفت: «فکر می‌کنم آنها به شدت تضعیف شده‌اند.»
-nbcnews
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75911)
 
 ---
 
