@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 <img src="https://cdn4.telesco.pe/file/lZK3bb9TP4dfiHzVOMZ3bl-G1MAcbO4d63CbCylKr3n7plb2oR0RmQ9r6S1cYQBghBI9fq1KUuKC9oyzAgJUBEhVjyTympHF_12eEJt6rw5xdy-naeBrbj5kqQonsVVwEQk-ouVVzp2HpCXf3rzwfdk2pmIlEAon8Nr51SQjJ-5BOz-BBAANuWgY-VDdNJrH9Ze_wHdmTZHT6q7EtE9OgyXxEJUUkrBEedwRoylzJAf2HQ92l32WUD6U2Iz2A4P8uP1MYsPwO_h13V4kU8RCTarlnYOHDN1L-TR2GA9ibXpfF1VKxw1VVbxufWsHPaPSaV5bnHMYmuLihhyDzaiCtw.jpg" width="400"><br>
 
@@ -22,15 +22,17 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
-<img src="https://cdn4.telesco.pe/file/iU74U7EwdZFRtzG7-qMyKM1mqEuuX2CGmFpEgF13Mz1UbwwRsAww1JP00gsToEEk5nXfTRb_E3htqEaT8KHhCpAbeWvq0Lq2UFlTsyXHVsBMImCfD4UwaogLuZW9A5sfMHlPW76Y1PW5nlnH4MYkmsi1xtgFdmJiLNPAoofatI_HHkXeBbs9rOMlGmN9oDHTJiiVB8dTv8o9LpeWfDH4ifJDKvwfUBXJZscq1i5v9aurjjj1chn2T6Y49T9kaW-kk5YxZAEVMIqBjZ9vL2bHdUfpvQgDjTcpk9eewAvVMFKxO9jYquDmq6hzGVAJ4TFx-vypWd2VkAfbqlIUSL-1kg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/huHdFD3cViR196V8SxHOQ2JAyKqyZwHwqSI7v1CVtCyldSxYbATLmUMBngQj0wsJ0uJiEBBqj6QtaRjgEXcCYc-pzV2TrIq66G6X5CHU2vkuOdpITAE4ZkSQWmOzScvxZs1qkW48Z6yfsxzss_-ODFXRDBvT1LPtFKqvumLZBTZ4qdfgpiY3XvUeO6CBiQwUZdAs3082QKMZs5HcazpfshcSjijzDaQFMCv0X9NG_5Fca57YFxb9x9M-LHfcVJAiXQMrIoOp6wRYrncV7lCNpmzgK04_3ITEszH44s6mGC3_GOw6FEmTQFSgqRZoeDMoYBajREWPpNk7Gsnf0C2Hag.jpg" width="400"><br>
 
-♦️
-به گزارش رویترز، وزارت خارجه آمریکا روز چهارشنبه اعلام کرد اسرائیل و لبنان پس از مذاکرات انجام‌شده در واشنگتن، بر سر اجرای آتش‌بس به توافق رسیده‌اند.
-بر اساس بیانیه مشترک منتشرشده، دو طرف توافق کرده‌اند مسیرهای سیاسی و امنیتی را بار دیگر از هفته اول تیر از سر بگیرند؛ اقدامی که با هدف دستیابی به یک توافق جامع انجام خواهد شد.
+وزارت خارجه آمریکا اعلام کرد اسرائیل و لبنان بر سر اجرای یک آتش‌بس به توافق رسیده‌اند.
+بر اساس بیانیه منتشر شده، اجرای این توافق «منوط به توقف کامل» حملات حزب‌الله و همچنین تحقق چند شرط دیگر است.
+این توافق پس از آن اعلام شد که حملات اسرائیل به جنوب لبنان در روز چهارشنبه دست کم ۹ کشته بر جای گذاشت و حزب‌الله نیز راکت هایی را به سوی شمال اسرائیل شلیک کرد.
+در بیانیه چهارشنبه شب وزارت خارجه آمریکا آمده است: «همه طرف‌ها بار دیگر تاکید کردند که آینده روابط میان اسرائیل و لبنان باید توسط دو دولت مستقل و حاکم تعیین شود. آنها هرگونه تلاش از سوی دولت‌ها یا بازیگران غیردولتی برای گروگان گرفتن آینده لبنان را رد کردند.»
+حزب‌الله تاکنون به صورت رسمی درباره این توافق اظهار نظر نکرده است.
 @
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -40,12 +42,19 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 
 
 لحظه اصابت پهپاد انتحاری شاهد 136 به ترمینال فرودگاه کویت از دید دوربین مدار بسته.
 mohsenreyhani01
+سازمان هواپیمایی کشوری کویت با انتشار ویدیویی گزارش کرده که «نخستین تصاویر» حمله پهپادی به فرودگاه بین‌المللی این کشور که از طریق دوربین‌های مداربسته بیرون و داخل فرودگاه ثبت شده را علنی می‌کند.
+در این تصاویر که از چند زاویه بیرون و داخل فرودگاه دیده می‌شود یک پرتابه مشابه پهپادهای انتحاری به سقف ترمینال فرودگاه برخورد و موجب انفجاری بزرگ می‌شود.
+در ویدیویی دیگر، وزارت کشور کویت با انتشار ویدیویی اعلام کرد که شیخ فهد یوسف سعود الصباح، معاون اول نخست‌وزیر و وزیر کشور نیز ضمن بازدید از ساختمان ترمینال ۱ فرودگاه بین‌المللی کویت، این حمله را «تجاوز فجیع ایران» خواند.
+کویت اعلام کرده در جریان این حمله یک نفر کشته و بیش از ۶۰ نفر مجروح شدند. فرد کشته شده تبعه هندی بوده و وزارت خارجه هند گفته چند شهروند دیگر این کشور نیز در این حمله زخمی شده‌اند.
+سپاه پاسداران که شب گذشته از حملات موشکی و پهپادی خود به پایگاه‌های آمریکایی در کویت و بحرین خبر داده بود، روز چهارشنبه گفت «هیچ شلیکی به سوی فرودگاه کویت» انجام نداده است.
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -55,7 +64,7 @@ mohsenreyhani01
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 <img src="https://cdn1.telesco.pe/file/aajgSTr9c8X_RhccJ2yH3XRFwKuMsw7HvIjyJRWFRFQzneMS6ojwRcUI3m7GTrH1_7M7nSuw08ualRvx2i31Z1tKNN4uuD_PjpBNQD0nNSbppWyUZpKEiHHE1yiOYm9C-uMu0f7SDxQ3P1bGNjgOffMAFoOh7iLJxJFCzti7bx_NTWbSmbKXcTzjGiUM8RUQDKf654cuSiTCnK0cyXB-_6sr7KtOWQiy1UmuJVOKiF88LGpm9nGq67QFQb3-84wjUHxp4h-0h3WW8TWqwZRyaultg2O1DhVQ_1wvLrA_LEagw19VmaROZMRu9WweMtyP21tB1RC9xltCMVHLTeaEjA.jpg" width="400"><br>
 
@@ -77,7 +86,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 <img src="https://cdn1.telesco.pe/file/aENbctYEv9zwPJBPKBmf4tdNZ7PdBXgthW7ViqcpR4gnGk7M__xVC4Qu-QoGAu82Akbbph3jC7fgObNVSlPAC12NcqoM1DrLvGOeZJ-JYdCqF34Afc2n3c4iHlp-fOHSUZsKOdYQ5Ea2M5iVLo6eo4lhgjArzO9JQgti0gFxS4mHxtvsHoinure5uIAsa98EkVba-Qs2-SgpxNVnaa35Pv3C_u2NIHGYEBPz_6hi-tpko0E67ZR4_1v8hBEMn-NaqtIJiAwRKjaKchpbNBm_k0ijgmmqT8lWpxrSj9Cu9RWasWkVi7LMoqpgOiKHcIIhFR6RHJsIzKToNkyCPv_cHw.jpg" width="400"><br>
 
@@ -119,7 +128,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 <img src="https://cdn4.telesco.pe/file/hoFhpc5ooGcpIvgJJYwppst6aG15Xnwt48O_yvvaT2lp9sGgW6uluCwUS2EJaCUNLy519ncKYajDItCij1fB3SLrP1HXyHhkPeQJLJq9bTQJlro3tLz5m1YyHB64JbdO2OWklfDR3KiRzb-U5NTNTl-oD7YIOm9HxtqrS0fjOy5sfQsU1Z6t3WqV_VQjxxk16ah5Cduu-WjnT1O2ax63T6xWza4GXVRiWofo67w-S7FPolD38Kahu3jt4YHchPmdlf7WbIO4yDOaWlJlYGfVZjJbB-7qU0Yh9BOGls799iyWy7uRyuI-xO9FmgmszUd2fldLA0Deo8XgwpLD_R-nTw.jpg" width="400"><br>
 
@@ -138,7 +147,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 <img src="https://cdn1.telesco.pe/file/ljny-MyYMQxiXptJha8LoCEM1CDro58PZkHGQA72dFcAfjJyHP1KAfZqeFbVaYxF5XdWZf2OI6eLrbgxV75pgmGIfmbIF5JMUrep2JDcWQU9Y20xmJHZ4rLzT4OiBRQtvNeMzTNeruv6VkV0cxi1f0XQDNNBbxjU3oJ3QRzKjNwEeYUVnzUr26P42oinKP14bsbiFjygcjDGPnHQlA90UGo6t3XxBHqfR9w3FEjt_RgTLiPsBe4iV7co6WjXFhtNLjdUA7L8PfF3t8w9vgAqTMjQ3F0S9gH5faA-PrrJ8YvtGU7Anges83acAsiVqHaT5rZlFzdfDqxuyiPbHxB55A.jpg" width="400"><br>
 
@@ -155,7 +164,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 
 
@@ -174,7 +183,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 <img src="https://cdn1.telesco.pe/file/RM6nQJDIyLmH3WsPqg1DDwu3PdIsVMuMcApqcxsNNI2gcMhZlZpgkNfQ_Ip6pTnlPIzhakIk3gN4EBheHZ9K9Orh7sjtdg_XunPn275JvMztuHLqiMEHrPVewUJL5A_MkkMV47yhs0RZY-4q1LQ84kT9oHR51-9qmgrmbD0S1hU14KO-DonpRzvmUzzZK3bNIT6RrjjKt77NYvx85TNOWkhaN7UyFXc9kdgFOigH0AEApNBqWxGeeEKa8KqX8mwMhznFpA2ff0xVFyy_NgCk2mvGOvKvgLnjEQHym_BKNYeBtD5vHL0Qendd14sJsmhWt_7FiCOAZcyYbK0J5pn8Hg.jpg" width="400"><br>
 
@@ -198,7 +207,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-04 03:48:55
+###### 🔵 Updated at: 2026-06-04 08:43:32
 
 <img src="https://cdn1.telesco.pe/file/s-oYu9BHxT-MAB8fiFi0P09w5im8AIhr1R37fe7PdWda3zknWrr6qY4rkr-HVVskl5hp8QS2fYrpdcP9RJSF4KgG3pSvoAq6Yz3q0_kZhQq3Rs5EJMVW8q2VRbjpCz5gTOmp3N0QCf5KPbuWANcc1zXLll9CeZrpsWwhMeBXWneMnjNXjVTaqSFDmRcBc8XZHgPlpMaYDuUVBKv_BTjUxkOQpLhGHzoMr0Sp77yqX6S1MpVpcRcm0sxF9cWS7eR7p5jOL3Vtgaj3M02HL423ExNjRNHcElR29eo9fMZGzk_-AtXdIToanQvL2MzChz-SIdD9Pqob7nUMv15DACg7Vw.jpg" width="400"><br>
 
