@@ -3,7 +3,22 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
+
+
+
+پخش امشب برنامه «خیابان انقلاب» به خاطر این حرف‌ها لغو شد
+beehnam
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75954)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn4.telesco.pe/file/ArHPvBajPoQQwxYi7NIuu37FISpe-3Fd42n2_kYoPRkwy7nQ8oydYoAq1XdCgfgf9hWIZ9oj4u9Dt_92EJbQBCCkruS7XxYEZktG2OJPodBvpzp0KG8smryzjvHE7jdGnKpJbbyj6a7SX39kMtV-dJ9qf3dx2v-W-V8ieIBIhoZyUDogU57A5rZrZZHxy39Hdei4dScbijPN-XRmzkfQRst3eW68dv2MAHXk12K8tyHuRkMchwaiXPMqY3dzWlpakUJw-O70JCBLGMNR-dof-auEZ-mJ1ZJK-SfdQ5qfmDCCsKAG9V7-Qj8LJJXnu_gnRhxk7kiWU92U2AMoXIpWkw.jpg" width="400"><br>
 
@@ -20,7 +35,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn4.telesco.pe/file/WShDeSZ9xQ2Ra5en6F_-se3g6SErpcmXUlyI5m-HeFXyINCQ6CXO1zswiZvfcLMuzSkAqTh5yoLnhsqbEATlGOS0hiZkb5ogOTD5ozZfDpPPoXUfo2lfceimzEMVPxDWnDyXdCkAnniuSUGq984KYixJQ3vY756O9aM1SbZuCyrS_WPVyJIYxTITZ4Y60F1VT1skx8_9YMMcUrRGLfcpZH2RCLgrF5kczgGwfEtqmiy8MhP-qdky_56S99aplCRQaralk9tzZqfoLiLDVUv964ZNVMXAW-TPLjQPpfaYtHIAU1KYPCVEDTDyLFGEwmgwqju6qxBDTwI4nPrIrkk5AA.jpg" width="400"><br>
 
@@ -42,7 +57,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 
 
@@ -95,7 +110,7 @@ BrmTheGreat
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/X2OvuP2w2rTGwreIXbF6VtTv6YtceiPKOyXarTHlqw5sXTSfOetW4npdaJpktyTBpczqsPZP_ljlq-YXtdbJ1Dvxi0s7w_lKylr_5YHOX_c8qBPm_kWCJYvh5-Ftj_JtpbQvLHE6aVNfT8J0oKKXCMUV0jdYCKsp4YHjVFWQQNgaX6oJrcgfnmSRe-DcAedYGBnI_e7xOjIv1_NPTDQVa15bpHrW6uj42Hfd11DJXmfIec3mVhSVF5aNYYho0X14i5hgCdSliSIMEeYlXB9OSTMF1i5UILI13FqoMG8MnB8nqMEVeVkXMrECyRzZxFzwGTW3YtipCwvoR6Z_XKoviA.jpg" width="400"><br>
 
@@ -118,7 +133,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn4.telesco.pe/file/uAeVWz8TnZAv5aTw00H3pBVCX18SXRhKIpTRzdJz4PUbHT4G6ve00WWGQo780DOEkL0fkF1j8rzQDtuMvu0p0CMu64_aJoHwJtZxT0OU_dFRzIg7K4f-Elm8cy1FRtUT9lbJtsdQv8CE-bl7KR1u1W7R77HExSpE1ZpVEfXqEIBViP-RVV4M9A0M5mrCKnKS14Yu4AEg99slN3Twtrg-UrqbnaIo2FGJw905Rx008SZ6tMrfCHCzcqXgDAXkSqHZNZrwqX09QksrTvAiaTAk0SqPfjkaZhu6i1IEWC-wEexbJt4ij35UcmlEpUF6o-TjcYWDWV9B0Pov51BaWix-BA.jpg" width="400"><br>
 
@@ -138,7 +153,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/tTSuELwa5YXjA4qxabEuc-HdUYZ_ZRwmSfLHi_mRfhymdxHfANFzx2C_vLYnO1KcnXChMU4eHjnvoJcXFEzHIYbXpJyj4-uZn-SaFV3GPsmP8VviBVbOsrtMGOHysk1Su3CZA_ILoAvRLD13io_lO3Nxx1k7ejktqIvqFEYGIWga8bnsFCVl--XtqhdhLB36wM9H6hN1aMI-Q_vZx1GsavzE_PJPHj1_zCyiXGhF7xQKhIBNym_gAqoVfGs4nT8Uuh5aeQ8CY6LT9H0RV_4wz4IIusYk84kIc7Kaj59-rwCdPtVXgz7RJNv0JMK7Ln0zkx00SMvlMxBByS39_f5y-g.jpg" width="400"><br>
 
@@ -157,7 +172,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn4.telesco.pe/file/GTehDdxnMln3etsx70yxebAyPwVHWlX59vxhv3-U-zR6yJ2cb3imIaBX5l21UPG1JKeAZf07FbLWHTw5j4MjO87gFauvzHqxSGcCTtvGPj0wcYUB7dZ1UdxR1m3m1NiE4QSAdR3Qu_h3uSQ8Nvam5SMHq2eLInXQvxBAtS1cVqYXNl6UxktNzA3hzVyrcD8N7aYc1lJ3KN2QZ_DVJyuh5l151bR4UJmaephuarsidShYXOpSTCF-IkdYv3LPG8y4uD5G1jmbThjX53BL4IFARKi9YTCR1cAOuLl0kDryn1WCHzMT8hvnhNEh9_erhsYES7DmyiTB_DIu8QL1gXLv8Q.jpg" width="400"><br>
 
@@ -176,7 +191,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/G8EvJ3Mz-A5wzFmQxWXib8lBioQSqht3_ZcAUpBv5oacVYGyvcpa8WwcHK09tZdnUnUK4XPb3f567uPHYQB30Lef8MtZyfZWkM2gamqibcJShR67mUZm3BP7dxMm2zcFl4XdP7cellpzty4jVDpanN8YCdya9FUMw0IPv9Qb8Gl8MsoH2bT_AvF2V2Ht4UuzBOg1DrwCwMJ34VYUvjSls3tImTQAAwM9XaZ-w1Tqws1JnczCXSwlAmRDMrGqhr8cFQloTtvdhzlS3-yLAhuGa41XFMHxkC8bHZiSJ401oZEmW_5rv-ffs5GzMhjoz8FMLrpe7pAsrhgWDF_hNK6Fjw.jpg" width="400"><br>
 
@@ -200,7 +215,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/tipqLGT5iBgzRXpNsMcbiAXkQ2jWglmRxD6Xv5HGkldOiovXKgHRCFIZmUF5ct6ZMfpl8xpiXmrnm9pwqB0bnTb2J327rI5jU454plunkPgACtZsT274w-EP3kUYKekv8c9J5WBI2bJ6fUKesEaM4kNyYy-cGJXIV3EG7sAw61rlv6YmXWfLHDtTUTdsfCnDj04l_QX2ypa-blVR4Ra6ph4BMUMU0ipA65HtLL0R6JIK42gfbmsJ-egM1cG5YZeibbIa56DaBBfZ9w3_tJdDNfw9fUWhSuvxC8mwCRjEZ9n0RcdUzuZFm4wtMk7QLSMIiwPd6py6tCkeyBJ4PbCMiA.jpg" width="400"><br>
 
@@ -234,9 +249,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
-<img src="https://cdn1.telesco.pe/file/aviJdhSe3q7EffXWxStQTNXI_65wDmTiS-vjnH5nAnxhgGOfEUb025014EUyeNxqVGo8eHM1VNBP-4YjmHFbKj8MCfrh0I8uunVE9u3kzGGz8Y33xcDVr-a33qugy-r0Bqs78acMX4kP00EcnZPRhSFyws5EtKKmXs_dLAUuvVcnhe6My5uoBeigyfm2Eym0ImrMMLyTim_Pt46Sv4rj10R2LaRHjUZjSdWYPcQvgZUSpC80geOHpHzssgvKHmQxR76SYt6griOTwsU-dB2PIooNgwWAeXAuZkN5AxS8-dvfphEpqznJ4ybSCIdN6zxlRgdnrfZSKbe-dBVXUoDSCg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OpODWKC5etyBGk0b5BKhE0MGccAG396tRP7-oHmppWudBtfXwImMWQpRPRt_8PTRa8De6SueENrAGOMmdXRtnoW6Fq6VVoGYtWgrwLxbgV_nBq0gG92Hx_15wYUeuFucgk9H-AeAESV9gk1ApoZgcQjIUavHTv2OUFfMuXuVEmw5XD3phABvQpd8qmkOdQ3R0UtkIwoGWd3IEV_qogajfk5xK6lvqLD1vwrGo0CSEM97Z7qsFDCmYVZPgBLXS4_yFflQ8IWa1mAELiO3bSDLhHcgPTzKjnqG3QdNG03tRuWIxcKfskaQ_gvuV-P4iwD_vuE7ly9BVzXrM9sQ-aRU3g.jpg" width="400"><br>
 
 العربیه پنجشنبه شب ۱۴ خردادماه، به نقل از منابع اختصاصی گزارش داد محسن نقوی، وزیر کشور پاکستان، برای پیشبرد مذاکرات میان جمهوری اسلامی ایران و آمریکا به تهران سفر می‌کند.
 به گفته این منابع، سفر نقوی در چارچوب تلاش‌های میانجی‌گرانه اسلام‌آباد میان تهران و واشنگتن انجام می‌شود.
@@ -251,7 +266,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/GNMmMCJDEAkHWHG_gavpxKPk9K7ZJG5KrcAbbFcRJYkeeNygnOkp1Drryr9pKBjYkq6CC1q6z5Z6qwpntfyNPMBvY9nyGNpCNXmoZg0xHYD2ovjrvqn8jujLHWoBFh1HslaVw577smRqlGIECO_gDSCqAO4_bJYyGZ9C0l4xik_o-cC79sEnPUQua1kW7ejE5txNu6z8cK6uJ9DAt5Jn8T6XOs8oUALwopgfqAMM-i08PYKk5pi3FkTnUWKYjb6e7ML5diIjZInwyXkDviiofeMuC-ABBuuQpvzZ7J7MvT8bOsc_4REgRoT_MYp49TUDxCeHYhofGgT41Q-rWdQdGQ.jpg" width="400"><br>
 
@@ -267,7 +282,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn4.telesco.pe/file/cnZJOllE-XRPsTwckgltPsZb-kIKXQgWOlnqb2xIwSaY2tCByrkyxLS2S8djAI_SpsGrvDWPL3Pg9M_dToquKB-P2HrMg74a2aXxeaUMK21Xcv7R4v9j7jy0PzWCytCQl_OL6M7eaZx1QGj1QUw14bnJ0Sq22i_TtWkCAdBdY4S8XSJMDQ8g_FvU5RDqkgS6ZRmV9qhbIYTr92lNZnLl5U1VzDz5fmuu6Xb8r7saOT6B6SB-bhEit4KDt-EfHbKZfMSrYe1o6CmFecJlPe5aB3mLqMIbEZTVRND2to-zAsA-J6PdHxfr5puYf_4GzEM1JOWVrals3KrUVc9LaTra5Q.jpg" width="400"><br>
 
@@ -284,7 +299,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/qn9Z1SHVuqqXlSHUEZNutWii2LWJov9p7sp6eP9rNtcayGwbzORPiQf6_n2zD6qiXqJ-lyVjCCyobrkyBNAbU5p8vCAJ--ViriwPHmL6y0tHjQBuWJ7gIBIvY6dPjvyE39WUoVtmAlUKvhBD91Fi_dJU83lfdSlG3p0Lf8kFrxXvSLlDD0lyQs5mhGPZTQEeSQS2ve_8-ECm03pwThOqliFLsy-RFjmlOQL5s2sFFp27bcXC8j9WO2Ywwk1nkbWN23TnkZ6fhOAmL4_4Sw8wEpXX-dhWg6tRD6EOSMBGv7uf7pw_BGuNgliLCE1jZ0WbBPycNosO2oaRd4wIDHbE5Q.jpg" width="400"><br>
 
@@ -306,7 +321,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/oNexD75gO0JmwXApD-uqdu25HDIF2OU_uYoT4BzmrRX568KN1F7RK_qcHiXZTWboLS95QDy1ZbXW8bAynF6-CF6rZH-BBSoFkFBW-JGc39IULNliTjGlTMEbNkNhBufy0yqcevGco5UdIsX-ky5wq9wrU85qLN5Q4v0L0hQlbcgva9SuNngw_jrdcRDSK9gzB-iRW3m2aNtohVidgf_hkOKRwJNfcvpAeDcqXYDN1jD7xqtUaeCc87i5Owh_c2xAbZGHYcqNE99IY1qt8PCbV4uuVG136t4WqF17RqpUDFWbcEwRF5hGIt8DhEAUnfHXx5IZZzEJDVnWTknnU3sw2w.jpg" width="400"><br>
 
@@ -325,7 +340,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/Q2bSnfElviYkNDWDY0lPA0zH5zfgpKYHypw6nBh1fYM4SDnXomFUoQk9EiCmBij3VNmUF4UAnVKBpQeNaM82AHBhJcfH_lD8g2ndXbKh48vfWIOV8g2M6FjAZVs1TlShK1tgqvFLTmHIx3xUOzjLg2zx_Vc3too7PK96afgEy1zq_gOxczPzAuxhRJyUQDs5L1A0iEvRZbL6ZQ_nhOmAhBarmso10tz-HG_nul6CYUgKQoAr823qSYEQHZJZpbEIGM0OSyrfr42wBAA6fZValQDt7SeAT7taeBdSSSJ92ONr0WajJKCMFZ7fO8e_Ue-MzW6CPPGvdyZMOiZwvjd_vg.jpg" width="400"><br>
 
@@ -349,7 +364,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn4.telesco.pe/file/qqGWvOe_lrsW3fe79E4w46YrHvhEDohkEDZaO9bZkAUht8Y8BLgKlNKrEalHxxwNpz8060nHc9U8pwh4U_NK2CRBywCV04jJmxXQwhA-cGpQhhS40jeAEd-1CCZRQSM9A_X0mtx4o6f8iNe3kJOCMjNyk7SYKYSkYDzkmLHXB6NbhhVzr89TuAm5ByJ81qFktSF2w-W-b82JQ_WPtsD6hxF6gO3SZBJOSE3_xN0J7TW3K4-gINgB0VSM4vvciTEbSts-kd10rj5d7k3yr5KT6Dl-dfBq0qN99Vlf4H-aiacR22791Rvyhqg00R2hp8bAeVk2SyRf0VB21UoYSUrFow.jpg" width="400"><br>
 
@@ -368,7 +383,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 21:59:15
+###### 🔵 Updated at: 2026-06-05 23:57:35
 
 <img src="https://cdn1.telesco.pe/file/r4sfUf0xpdiknj12bHoZPXAafFL74MhgizviYBx_YqVeuvsZIbnh6IZyugzqfPztjg3IxR5nx9rFJSIDcio0_6E8Rx19SN0iuatvQBme7H7q8vJoIqHy7p7Aek5BiZHrLQKonA1c-vFgR6iJZgpLTry_FMiFrHyPUJkCf13xKPfGoV5H4IseUD1hKxKQGgFiUlEyGwt7VukbaGV40TCZmotDsJXo7AFy3kN7LHXRWw-91KGqrE-rWu70qCk7_O6waFKfmj_wjy6vZ1idYzE8Tw_ugpkLDZ3SQDqi0L3DubjdTck0m0vZ9-oFD8-PDCk0T6-Fm7XOMsKvfXL6rmURIw.jpg" width="400"><br>
 
@@ -382,23 +397,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75935)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-05 21:59:15
-
-<img src="https://cdn1.telesco.pe/file/X9sI81GaBoC01qb_6I5ySgpCsIgFeSoPw2BlzmEGOsKHwyFX4YVQMY6gXnuDAw0WdVWFQRaaOMuxw-t6Si1-nbUgtY8z_jngn-d7jen3jBy6p6ksJvoL-DZwXkO21oPk5UdwbQierRX5ZObyXsmPVd4BCeGzLS3t5MIidNN85fJhPuaoWrtQ3lhrNdRuafh0gDK3lmtscSkBp-_2scnfuBtBm1cdO1S01gTEd3PLSqZpOFFScPfM86QspgcsnTOdTCq_k9TZQAD6MRdDC0hHcQ0H5cFs30s_S2P68BAKHUfaDuHD8KAC1GHBotV8j4H6dI9x_BgfQ8Lq3zJFRi3BJg.jpg" width="400"><br>
-
-سازمان هه‌نگاو و سازمان کوییرهای ایرانی سیمرغ با انتشار اطلاعیه‌هایی خبر کشته‌شدن مهشید فلاحی، زن ترنس، در سنندج را تکذیب کردند.
-این سازمان‌ها ضمن عذرخواهی درباره انتشار این خبر نادرست، با وجود راستی‌آزمایی‌های قبلی، گفتند اسناد جدید نشان می‌دهد این شهروند زنده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75934)
 
 ---
 
