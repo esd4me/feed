@@ -3,7 +3,46 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
+
+<img src="https://cdn4.telesco.pe/file/ArHPvBajPoQQwxYi7NIuu37FISpe-3Fd42n2_kYoPRkwy7nQ8oydYoAq1XdCgfgf9hWIZ9oj4u9Dt_92EJbQBCCkruS7XxYEZktG2OJPodBvpzp0KG8smryzjvHE7jdGnKpJbbyj6a7SX39kMtV-dJ9qf3dx2v-W-V8ieIBIhoZyUDogU57A5rZrZZHxy39Hdei4dScbijPN-XRmzkfQRst3eW68dv2MAHXk12K8tyHuRkMchwaiXPMqY3dzWlpakUJw-O70JCBLGMNR-dof-auEZ-mJ1ZJK-SfdQ5qfmDCCsKAG9V7-Qj8LJJXnu_gnRhxk7kiWU92U2AMoXIpWkw.jpg" width="400"><br>
+
+یک مقام کاخ سفید روز جمعه به خبرگزاری رویترز گفت که بازیکنان تیم ملی فوتبال ایران برای ورود به ایالات متحده و شرکت در جام جهانی فوتبال ویزا دریافت کرده‌اند.
+تیم ایران قرار است نخستین دیدار خود در جام جهانی را روز ۲۵ خرداد برابر نیوزیلند در لس‌آنجلس برگزار کند. این تیم سپس در همان شهر به مصاف بلژیک خواهد رفت. بازی سوم ایران در سیاتل مقابل مصر انجام خواهد شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75953)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-05 21:59:15
+
+<img src="https://cdn4.telesco.pe/file/WShDeSZ9xQ2Ra5en6F_-se3g6SErpcmXUlyI5m-HeFXyINCQ6CXO1zswiZvfcLMuzSkAqTh5yoLnhsqbEATlGOS0hiZkb5ogOTD5ozZfDpPPoXUfo2lfceimzEMVPxDWnDyXdCkAnniuSUGq984KYixJQ3vY756O9aM1SbZuCyrS_WPVyJIYxTITZ4Y60F1VT1skx8_9YMMcUrRGLfcpZH2RCLgrF5kczgGwfEtqmiy8MhP-qdky_56S99aplCRQaralk9tzZqfoLiLDVUv964ZNVMXAW-TPLjQPpfaYtHIAU1KYPCVEDTDyLFGEwmgwqju6qxBDTwI4nPrIrkk5AA.jpg" width="400"><br>
+
+«مسعود نبی‌دوست» خبرنگار خراسانی فعال در حوزه میراث فرهنگی با انتشار تصاویری خبر داد که کلیسای تاریخی انجیلی مشهد، از آثار ثبت‌شده در فهرست میراث ملی ایران، بامداد پنج‌شنبه ۱۴خردادماه۱۴۰۵ به‌طور کامل تخریب شده است.
+رسانه‌های ایران از جمله «جماران» نوشته‌اند که تخریب این کلیسا «توسط عوامل ناشناس» و با استفاده از بولدوزر صورت گرفته است.
+فعالان میراث فرهنگی می‌گویند این اقدام در سایه غفلت مسوولان میراث فرهنگی رخ داده، عملیاتی که حدود دو ساعت طول کشیده و صبح روز ۱۴خرداد نیز با بستن اطراف این کلیسا از ورود افراد و خبرنگاران جهت عکاسی ممانعت به عمل آمده است.
+انگیزه، هویت افراد یا نهاد تخریب‌ کننده، مشخص نیست اما این نخستین بار نیست که یک بنای ثبت ملی شده تاریخی در ایران بدون اینکه نهادی مسوولیت آن را بپذیرد شبانه تخریب می‌شود.
+کلیسای تاریخی انجیلی مربوط به دورهٔ پهلوی اول است و در خیابان جنت، کوچهٔ گلستان شهر مشهد واقع شده است. این اثر در تاریخ ۲۵ مرداد ۱۳۸۴ با شمارهٔ ثبت ۱۳۳۷۵ به‌عنوان یکی از آثار ملی ایران به ثبت رسیده‌ است.
+پیش از این بارها بناهایی همچون کلیساها، آرامگاه‌ها و بناهای متعلق به اقلیت‌های مذهبی از جمله بهاییان، مسیحیان و یهودیان
+تخریب‎ شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75952)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 
 
@@ -56,7 +95,7 @@ BrmTheGreat
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/X2OvuP2w2rTGwreIXbF6VtTv6YtceiPKOyXarTHlqw5sXTSfOetW4npdaJpktyTBpczqsPZP_ljlq-YXtdbJ1Dvxi0s7w_lKylr_5YHOX_c8qBPm_kWCJYvh5-Ftj_JtpbQvLHE6aVNfT8J0oKKXCMUV0jdYCKsp4YHjVFWQQNgaX6oJrcgfnmSRe-DcAedYGBnI_e7xOjIv1_NPTDQVa15bpHrW6uj42Hfd11DJXmfIec3mVhSVF5aNYYho0X14i5hgCdSliSIMEeYlXB9OSTMF1i5UILI13FqoMG8MnB8nqMEVeVkXMrECyRzZxFzwGTW3YtipCwvoR6Z_XKoviA.jpg" width="400"><br>
 
@@ -79,7 +118,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn4.telesco.pe/file/uAeVWz8TnZAv5aTw00H3pBVCX18SXRhKIpTRzdJz4PUbHT4G6ve00WWGQo780DOEkL0fkF1j8rzQDtuMvu0p0CMu64_aJoHwJtZxT0OU_dFRzIg7K4f-Elm8cy1FRtUT9lbJtsdQv8CE-bl7KR1u1W7R77HExSpE1ZpVEfXqEIBViP-RVV4M9A0M5mrCKnKS14Yu4AEg99slN3Twtrg-UrqbnaIo2FGJw905Rx008SZ6tMrfCHCzcqXgDAXkSqHZNZrwqX09QksrTvAiaTAk0SqPfjkaZhu6i1IEWC-wEexbJt4ij35UcmlEpUF6o-TjcYWDWV9B0Pov51BaWix-BA.jpg" width="400"><br>
 
@@ -99,7 +138,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/tTSuELwa5YXjA4qxabEuc-HdUYZ_ZRwmSfLHi_mRfhymdxHfANFzx2C_vLYnO1KcnXChMU4eHjnvoJcXFEzHIYbXpJyj4-uZn-SaFV3GPsmP8VviBVbOsrtMGOHysk1Su3CZA_ILoAvRLD13io_lO3Nxx1k7ejktqIvqFEYGIWga8bnsFCVl--XtqhdhLB36wM9H6hN1aMI-Q_vZx1GsavzE_PJPHj1_zCyiXGhF7xQKhIBNym_gAqoVfGs4nT8Uuh5aeQ8CY6LT9H0RV_4wz4IIusYk84kIc7Kaj59-rwCdPtVXgz7RJNv0JMK7Ln0zkx00SMvlMxBByS39_f5y-g.jpg" width="400"><br>
 
@@ -118,7 +157,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn4.telesco.pe/file/GTehDdxnMln3etsx70yxebAyPwVHWlX59vxhv3-U-zR6yJ2cb3imIaBX5l21UPG1JKeAZf07FbLWHTw5j4MjO87gFauvzHqxSGcCTtvGPj0wcYUB7dZ1UdxR1m3m1NiE4QSAdR3Qu_h3uSQ8Nvam5SMHq2eLInXQvxBAtS1cVqYXNl6UxktNzA3hzVyrcD8N7aYc1lJ3KN2QZ_DVJyuh5l151bR4UJmaephuarsidShYXOpSTCF-IkdYv3LPG8y4uD5G1jmbThjX53BL4IFARKi9YTCR1cAOuLl0kDryn1WCHzMT8hvnhNEh9_erhsYES7DmyiTB_DIu8QL1gXLv8Q.jpg" width="400"><br>
 
@@ -137,7 +176,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/G8EvJ3Mz-A5wzFmQxWXib8lBioQSqht3_ZcAUpBv5oacVYGyvcpa8WwcHK09tZdnUnUK4XPb3f567uPHYQB30Lef8MtZyfZWkM2gamqibcJShR67mUZm3BP7dxMm2zcFl4XdP7cellpzty4jVDpanN8YCdya9FUMw0IPv9Qb8Gl8MsoH2bT_AvF2V2Ht4UuzBOg1DrwCwMJ34VYUvjSls3tImTQAAwM9XaZ-w1Tqws1JnczCXSwlAmRDMrGqhr8cFQloTtvdhzlS3-yLAhuGa41XFMHxkC8bHZiSJ401oZEmW_5rv-ffs5GzMhjoz8FMLrpe7pAsrhgWDF_hNK6Fjw.jpg" width="400"><br>
 
@@ -161,7 +200,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/tipqLGT5iBgzRXpNsMcbiAXkQ2jWglmRxD6Xv5HGkldOiovXKgHRCFIZmUF5ct6ZMfpl8xpiXmrnm9pwqB0bnTb2J327rI5jU454plunkPgACtZsT274w-EP3kUYKekv8c9J5WBI2bJ6fUKesEaM4kNyYy-cGJXIV3EG7sAw61rlv6YmXWfLHDtTUTdsfCnDj04l_QX2ypa-blVR4Ra6ph4BMUMU0ipA65HtLL0R6JIK42gfbmsJ-egM1cG5YZeibbIa56DaBBfZ9w3_tJdDNfw9fUWhSuvxC8mwCRjEZ9n0RcdUzuZFm4wtMk7QLSMIiwPd6py6tCkeyBJ4PbCMiA.jpg" width="400"><br>
 
@@ -195,7 +234,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/aviJdhSe3q7EffXWxStQTNXI_65wDmTiS-vjnH5nAnxhgGOfEUb025014EUyeNxqVGo8eHM1VNBP-4YjmHFbKj8MCfrh0I8uunVE9u3kzGGz8Y33xcDVr-a33qugy-r0Bqs78acMX4kP00EcnZPRhSFyws5EtKKmXs_dLAUuvVcnhe6My5uoBeigyfm2Eym0ImrMMLyTim_Pt46Sv4rj10R2LaRHjUZjSdWYPcQvgZUSpC80geOHpHzssgvKHmQxR76SYt6griOTwsU-dB2PIooNgwWAeXAuZkN5AxS8-dvfphEpqznJ4ybSCIdN6zxlRgdnrfZSKbe-dBVXUoDSCg.jpg" width="400"><br>
 
@@ -212,7 +251,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/GNMmMCJDEAkHWHG_gavpxKPk9K7ZJG5KrcAbbFcRJYkeeNygnOkp1Drryr9pKBjYkq6CC1q6z5Z6qwpntfyNPMBvY9nyGNpCNXmoZg0xHYD2ovjrvqn8jujLHWoBFh1HslaVw577smRqlGIECO_gDSCqAO4_bJYyGZ9C0l4xik_o-cC79sEnPUQua1kW7ejE5txNu6z8cK6uJ9DAt5Jn8T6XOs8oUALwopgfqAMM-i08PYKk5pi3FkTnUWKYjb6e7ML5diIjZInwyXkDviiofeMuC-ABBuuQpvzZ7J7MvT8bOsc_4REgRoT_MYp49TUDxCeHYhofGgT41Q-rWdQdGQ.jpg" width="400"><br>
 
@@ -228,7 +267,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn4.telesco.pe/file/cnZJOllE-XRPsTwckgltPsZb-kIKXQgWOlnqb2xIwSaY2tCByrkyxLS2S8djAI_SpsGrvDWPL3Pg9M_dToquKB-P2HrMg74a2aXxeaUMK21Xcv7R4v9j7jy0PzWCytCQl_OL6M7eaZx1QGj1QUw14bnJ0Sq22i_TtWkCAdBdY4S8XSJMDQ8g_FvU5RDqkgS6ZRmV9qhbIYTr92lNZnLl5U1VzDz5fmuu6Xb8r7saOT6B6SB-bhEit4KDt-EfHbKZfMSrYe1o6CmFecJlPe5aB3mLqMIbEZTVRND2to-zAsA-J6PdHxfr5puYf_4GzEM1JOWVrals3KrUVc9LaTra5Q.jpg" width="400"><br>
 
@@ -245,9 +284,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
-<img src="https://cdn1.telesco.pe/file/FHOVjf3h0V5ZUJOtgwWUi4QpRUC4TY6FCwn9U-3HNl76KZ0iD-NHdaOG2pAfc6REtugwRbcOnFBAL4FJURINXY6pmqd0z__B-Mmt2IdBUEYvD-FtHu8qZ22740-AC6BuZU464vr9kkyTLtovhysTUcfcUwrEcuxLsVakSEVWqZ2C-raPkxwzUUlih-IuVNhBGrcnBQ5NMrWOTskPGrAH6LJPAe0x9LD7YPtGNOiyCQFnGeW38Q9996ZoRlY97fsz03R5FqQ785ir0eoVrC__wDaac47Y3Mj4qEqIc1By0iZIuuFlPRod2ZGWTRJpEHXsErbp8oGGP1nDi0I-dgrDEw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qn9Z1SHVuqqXlSHUEZNutWii2LWJov9p7sp6eP9rNtcayGwbzORPiQf6_n2zD6qiXqJ-lyVjCCyobrkyBNAbU5p8vCAJ--ViriwPHmL6y0tHjQBuWJ7gIBIvY6dPjvyE39WUoVtmAlUKvhBD91Fi_dJU83lfdSlG3p0Lf8kFrxXvSLlDD0lyQs5mhGPZTQEeSQS2ve_8-ECm03pwThOqliFLsy-RFjmlOQL5s2sFFp27bcXC8j9WO2Ywwk1nkbWN23TnkZ6fhOAmL4_4Sw8wEpXX-dhWg6tRD6EOSMBGv7uf7pw_BGuNgliLCE1jZ0WbBPycNosO2oaRd4wIDHbE5Q.jpg" width="400"><br>
 
 دبیرکل گروه حزب‌الله طرح آتش‌بسی را که دولت‌های لبنان و اسرائیل در مذاکراتی با میانجی‌گری آمریکا بر سر آن توافق کرده بودند، رد کرد.
 ایالات متحده روز چهارشنبه اعلام کرده بود که لبنان و اسرائیل بر سر اجرای یک آتش‌بس به توافق رسیده‌اند؛ توافقی که مشروط به توقف حملات حزب‌الله و خروج نیروهای این گروه از مناطق مرزی جنوب لبنان است.
@@ -267,7 +306,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/oNexD75gO0JmwXApD-uqdu25HDIF2OU_uYoT4BzmrRX568KN1F7RK_qcHiXZTWboLS95QDy1ZbXW8bAynF6-CF6rZH-BBSoFkFBW-JGc39IULNliTjGlTMEbNkNhBufy0yqcevGco5UdIsX-ky5wq9wrU85qLN5Q4v0L0hQlbcgva9SuNngw_jrdcRDSK9gzB-iRW3m2aNtohVidgf_hkOKRwJNfcvpAeDcqXYDN1jD7xqtUaeCc87i5Owh_c2xAbZGHYcqNE99IY1qt8PCbV4uuVG136t4WqF17RqpUDFWbcEwRF5hGIt8DhEAUnfHXx5IZZzEJDVnWTknnU3sw2w.jpg" width="400"><br>
 
@@ -286,7 +325,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/Q2bSnfElviYkNDWDY0lPA0zH5zfgpKYHypw6nBh1fYM4SDnXomFUoQk9EiCmBij3VNmUF4UAnVKBpQeNaM82AHBhJcfH_lD8g2ndXbKh48vfWIOV8g2M6FjAZVs1TlShK1tgqvFLTmHIx3xUOzjLg2zx_Vc3too7PK96afgEy1zq_gOxczPzAuxhRJyUQDs5L1A0iEvRZbL6ZQ_nhOmAhBarmso10tz-HG_nul6CYUgKQoAr823qSYEQHZJZpbEIGM0OSyrfr42wBAA6fZValQDt7SeAT7taeBdSSSJ92ONr0WajJKCMFZ7fO8e_Ue-MzW6CPPGvdyZMOiZwvjd_vg.jpg" width="400"><br>
 
@@ -310,7 +349,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn4.telesco.pe/file/qqGWvOe_lrsW3fe79E4w46YrHvhEDohkEDZaO9bZkAUht8Y8BLgKlNKrEalHxxwNpz8060nHc9U8pwh4U_NK2CRBywCV04jJmxXQwhA-cGpQhhS40jeAEd-1CCZRQSM9A_X0mtx4o6f8iNe3kJOCMjNyk7SYKYSkYDzkmLHXB6NbhhVzr89TuAm5ByJ81qFktSF2w-W-b82JQ_WPtsD6hxF6gO3SZBJOSE3_xN0J7TW3K4-gINgB0VSM4vvciTEbSts-kd10rj5d7k3yr5KT6Dl-dfBq0qN99Vlf4H-aiacR22791Rvyhqg00R2hp8bAeVk2SyRf0VB21UoYSUrFow.jpg" width="400"><br>
 
@@ -329,7 +368,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/r4sfUf0xpdiknj12bHoZPXAafFL74MhgizviYBx_YqVeuvsZIbnh6IZyugzqfPztjg3IxR5nx9rFJSIDcio0_6E8Rx19SN0iuatvQBme7H7q8vJoIqHy7p7Aek5BiZHrLQKonA1c-vFgR6iJZgpLTry_FMiFrHyPUJkCf13xKPfGoV5H4IseUD1hKxKQGgFiUlEyGwt7VukbaGV40TCZmotDsJXo7AFy3kN7LHXRWw-91KGqrE-rWu70qCk7_O6waFKfmj_wjy6vZ1idYzE8Tw_ugpkLDZ3SQDqi0L3DubjdTck0m0vZ9-oFD8-PDCk0T6-Fm7XOMsKvfXL6rmURIw.jpg" width="400"><br>
 
@@ -348,7 +387,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 20:13:20
+###### 🔵 Updated at: 2026-06-05 21:59:15
 
 <img src="https://cdn1.telesco.pe/file/X9sI81GaBoC01qb_6I5ySgpCsIgFeSoPw2BlzmEGOsKHwyFX4YVQMY6gXnuDAw0WdVWFQRaaOMuxw-t6Si1-nbUgtY8z_jngn-d7jen3jBy6p6ksJvoL-DZwXkO21oPk5UdwbQierRX5ZObyXsmPVd4BCeGzLS3t5MIidNN85fJhPuaoWrtQ3lhrNdRuafh0gDK3lmtscSkBp-_2scnfuBtBm1cdO1S01gTEd3PLSqZpOFFScPfM86QspgcsnTOdTCq_k9TZQAD6MRdDC0hHcQ0H5cFs30s_S2P68BAKHUfaDuHD8KAC1GHBotV8j4H6dI9x_BgfQ8Lq3zJFRi3BJg.jpg" width="400"><br>
 
@@ -360,45 +399,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75934)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-05 20:13:20
-
-<img src="https://cdn4.telesco.pe/file/XBIZv-2wISESfIIEFbySMjk6lImjMc0jsmLCWst05lhx42uQLYHGmL_TyrLY7BGJdqLyJj0nR-IAVRJ6dzCspLx81vjxR2Tu_SjMwrfO2heaPPMkDA0WZ_Z9xjQgd54PUHyaEM80B4SB6YAFrszZl6OAv3epG33vu6UH9tKIE8mkKSJw7BZk5MfYHDeb6ugHb6knB2dtUoXy1F22gzt1fPwBGe2_xQEGl3TjnRQ2PNDXkweMQt_nzH9ZlUSMJFrMOM_EoL6gEVY_7V8KEtawPHxQzXfJiyS1WvvplLKMaPeicp8B8skbfDCEszNFaOycr8OcIcX9f8FJJu1wD1gbSw.jpg" width="400"><br>
-
-الحدث گزارش داد آمریکا و جمهوری اسلامی به توافقی چهار مرحله‌ای نزدیک شده‌اند که با کاهش تنش‌ها آغاز می‌شود و به پرونده هسته‌ای و ترتیبات امنیتی منطقه ختم خواهد شد و انتقال از هر مرحله به مرحله بعدی، پس از «اجرای تعهدات» انجام می‌شود.
-طبق این گزارش، مرحله نخست توافق شامل توقف عملیات نظامی مستقیم و پرهیز از هرگونه تشدید تنش یا گشودن جبهه‌های جدید در منطقه است. مرحله دوم نیز بر امنیت کشتیرانی، بازگشایی تنگه هرمز و ترتیبات امنیتی ویژه گذرگاه‌های دریایی و خطوط انرژی متمرکز است.
-به نوشته الحدث، مرحله سوم این توافق شامل اعتمادسازی اقتصادی، کاهش محدود برخی تحریم‌های جمهوری اسلامی، آزادسازی بخشی از اموال مسدودشده ایران و ارائه تسهیلات مرتبط با صادرات نفت است.
-بر اساس این گزارش، مرحله چهارم توافق پیچیده‌ترین مرحله به شمار می‌رود و ممکن است ماه‌ها طول بکشد. این مرحله شامل بررسی برنامه هسته‌ای ایران، سطح غنی‌سازی اورانیوم و سازوکارهای نظارتی و ترتیبات امنیتی منطقه‌ای است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75933)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-05 20:13:20
-
-<img src="https://cdn1.telesco.pe/file/IFIYVMDh58Uw_XozRN-G2DH5W61JcMFNa12-sAGoyg0d8CA1sxQEIRoV5clsj-xfiClNNjriwqy96nP-bl-ItzSz5d4yacsb85UzC9ZhqgOwO3kTeUHaAzugNai2S1oUSrWHhFfbyb6DNd5yAeZ9WsjCmCShoPrynlCUngoQ35Wgl-o2Ro7yy1oBELAKOqfBykW9gdFKqTwCkQ_bPb6PPmUdGwA6aaLa5nuVXXhOPm2Tfckr_S_XX5a3jED_kv337nqBXNyrCa8lyXDV--iYwiFPTozGZUD0656hDNMP3FF1J1cSiDY1abQR_wfIlilovEtn5Sb2mAm8b_IlFnxafg.jpg" width="400"><br>
-
-وزارت خارجه آمریکا اعلام کرد اسرائیل و لبنان بر سر اجرای یک آتش‌بس به توافق رسیده‌اند.
-بر اساس بیانیه منتشر شده، اجرای این توافق «منوط به توقف کامل» حملات حزب‌الله و همچنین تحقق چند شرط دیگر است.
-این توافق پس از آن اعلام شد که حملات اسرائیل به جنوب لبنان در روز چهارشنبه دست کم ۹ کشته بر جای گذاشت و حزب‌الله نیز راکت هایی را به سوی شمال اسرائیل شلیک کرد.
-در بیانیه چهارشنبه شب وزارت خارجه آمریکا آمده است: «همه طرف‌ها بار دیگر تاکید کردند که آینده روابط میان اسرائیل و لبنان باید توسط دو دولت مستقل و حاکم تعیین شود. آنها هرگونه تلاش از سوی دولت‌ها یا بازیگران غیردولتی برای گروگان گرفتن آینده لبنان را رد کردند.»
-حزب‌الله تاکنون به صورت رسمی درباره این توافق اظهار نظر نکرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75932)
 
 ---
 
