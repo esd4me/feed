@@ -3,7 +3,68 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
+
+
+
+سیریک در هرمزگان
+پیام‌های دریافتی:
+پایگاه نیروی دریایی سپاه بندر سیریک  رو همین الان دوباره زدند. همون
+لوکیشن چند روز پیش.
+شهرستان سیریک صدای لانچ موشک ساعت  ۲:۱۴
+سلام ساعت دو ده دیقه
+پنج تا انفجار نیرو دریای سپاه سیرک هرمزگان
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75957)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-06 02:38:32
+
+<img src="https://cdn4.telesco.pe/file/bzjxAOe5kcLRgl7YNvrKwTo9V6ICcLpx7tlzxwdEtBAZOzi62rbChgsRDZaMAjqifUv8pmfSX7fiiTSVnmT-ElKUgBON78eIR9typDPUBiz-fmQgrYc--4V-dRPpmheMzPZ1YlConTePviY23xN1Th1simr90vaNFwQd2qbAIRx8_TJt17y0UDemCB-WiePDi-acCLMp1i1Bx9py8bh7AlMvxugzOjGMyaYPxAA9y0FpgakTAt57itsMXSQpfnMUySXAL1aQY0ipdHqbkSshb8aywcbWsZCWitl8xi3jp0ddQ4e5R1JjHRDmOONcY7L6WWC7OxIqohFztxLwQLINag.jpg" width="400"><br>
+
+🔻
+وب‌سایت آکسیوس گزارش داده است که استیو ویتکاف و جرد کوشنر، فرستادگان دونالد ترامپ، روز پنجشنبه برای رایزنی با گروهی از کارشناسان فنی به آزمایشگاه ملی اوک‌ریج در ایالت تنسی سفر کردند.
+به نوشته آکسیوس، کاخ سفید در تلاش است با ایران بر سر یک تفاهم‌نامه برای پایان دادن به جنگ و آغاز مذاکرات تفصیلی هسته‌ای «به توافق برسد» و می‌خواهد در صورت آغاز این مذاکرات، تیم کارشناسی لازم را آماده داشته باشد.
+به گفته منابع آمریکایی و منطقه‌ای، تهران و واشنگتن همچنان بر سر برخی جزئیات این تفاهم‌نامه اختلاف دارند، اما مذاکرات وارد مراحل پایانی شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75956)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-06 02:38:32
+
+<img src="https://cdn1.telesco.pe/file/XlWwuzeBH_ss6hPggUaomIqnXvrLuXfWX6cu-D7RB1cocNCSkAUpmIMNmG7zKnubXMd7168ysEBAog52XA6g_G_O9904Q1jVuAOHho5gt5LUoU2YIo4Epr_-WDvBbuJd_XcQv6h_mnaQkzh4Q3vnc8ShNKono4ALEELhuI_ZE8_r3_s1HzXaywbTobVeZ2jy6wgYzVbmY94KmK39pp93RfvNPxS9RwEORTkaW94CmPQb99Tq3R2Vjy_oG3J_bO63knx6_E-7ZrgxuODVCypyyWpF-dtQ9jIX2eK18c3vKOrllX5zUrIgT3FvpsdsBJ8aBwhfzyH4pz9qBcfhjBTCOg.jpg" width="400"><br>
+
+سی‌ان‌ان به نقل از یک مقام آمریکایی گزارش داد جمهوری اسلامی چندین پهپاد انتحاری را به سمت تنگه هرمز پرتاب کرد که هواپیماهای آمریکا دست‌کم چهار پهپاد را سرنگون کردند.
+این مقام گفت مقام‌های آمریکایی گمان می‌کنند این پهپادها کشتی‌های تجاری در حال عبور از آب‌های منطقه یا نیروهای آمریکایی فعال در نزدیکی آن منطقه را هدف قرار داده بودند.
+@
+VahidOOnLine
+ساعتی پیش‌تر اخباری درباره خارک و بندرعباس در بعضی منابع منتشر شده بود، خبرگزاری مهر میگه صحت ندارند:
+جمعه شب خبرهایی مبنی بر شنیده شدن صدای انفجار و پدافند در جزیره خارگ منتشر شده است.
+پیگیری های خبرنگار مهر مستقر در جزیره خارگ نشان می دهد، چنین خبری صحت ندارد.
+بامداد شنبه برخی فعالین فضای مجازی مدعی وقوع درگیری‌ها و حملاتی به شهر بندرعباس شدند که بررسی‌های خبرنگار مهر نشان می‌دهد هیچ‌گونه درگیری در این شهر اتفاق نیفتاده است.
+شلیک‌هایی در این منطقه صورت گرفته که جنبه اخطار داشته و کانون تحرکات در دریا و فراتر از جزیره لارک بوده است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75955)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 
 
@@ -18,7 +79,7 @@ beehnam
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn4.telesco.pe/file/ArHPvBajPoQQwxYi7NIuu37FISpe-3Fd42n2_kYoPRkwy7nQ8oydYoAq1XdCgfgf9hWIZ9oj4u9Dt_92EJbQBCCkruS7XxYEZktG2OJPodBvpzp0KG8smryzjvHE7jdGnKpJbbyj6a7SX39kMtV-dJ9qf3dx2v-W-V8ieIBIhoZyUDogU57A5rZrZZHxy39Hdei4dScbijPN-XRmzkfQRst3eW68dv2MAHXk12K8tyHuRkMchwaiXPMqY3dzWlpakUJw-O70JCBLGMNR-dof-auEZ-mJ1ZJK-SfdQ5qfmDCCsKAG9V7-Qj8LJJXnu_gnRhxk7kiWU92U2AMoXIpWkw.jpg" width="400"><br>
 
@@ -39,7 +100,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn4.telesco.pe/file/WShDeSZ9xQ2Ra5en6F_-se3g6SErpcmXUlyI5m-HeFXyINCQ6CXO1zswiZvfcLMuzSkAqTh5yoLnhsqbEATlGOS0hiZkb5ogOTD5ozZfDpPPoXUfo2lfceimzEMVPxDWnDyXdCkAnniuSUGq984KYixJQ3vY756O9aM1SbZuCyrS_WPVyJIYxTITZ4Y60F1VT1skx8_9YMMcUrRGLfcpZH2RCLgrF5kczgGwfEtqmiy8MhP-qdky_56S99aplCRQaralk9tzZqfoLiLDVUv964ZNVMXAW-TPLjQPpfaYtHIAU1KYPCVEDTDyLFGEwmgwqju6qxBDTwI4nPrIrkk5AA.jpg" width="400"><br>
 
@@ -61,7 +122,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 
 
@@ -110,7 +171,7 @@ BrmTheGreat
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn1.telesco.pe/file/X2OvuP2w2rTGwreIXbF6VtTv6YtceiPKOyXarTHlqw5sXTSfOetW4npdaJpktyTBpczqsPZP_ljlq-YXtdbJ1Dvxi0s7w_lKylr_5YHOX_c8qBPm_kWCJYvh5-Ftj_JtpbQvLHE6aVNfT8J0oKKXCMUV0jdYCKsp4YHjVFWQQNgaX6oJrcgfnmSRe-DcAedYGBnI_e7xOjIv1_NPTDQVa15bpHrW6uj42Hfd11DJXmfIec3mVhSVF5aNYYho0X14i5hgCdSliSIMEeYlXB9OSTMF1i5UILI13FqoMG8MnB8nqMEVeVkXMrECyRzZxFzwGTW3YtipCwvoR6Z_XKoviA.jpg" width="400"><br>
 
@@ -133,7 +194,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn4.telesco.pe/file/uAeVWz8TnZAv5aTw00H3pBVCX18SXRhKIpTRzdJz4PUbHT4G6ve00WWGQo780DOEkL0fkF1j8rzQDtuMvu0p0CMu64_aJoHwJtZxT0OU_dFRzIg7K4f-Elm8cy1FRtUT9lbJtsdQv8CE-bl7KR1u1W7R77HExSpE1ZpVEfXqEIBViP-RVV4M9A0M5mrCKnKS14Yu4AEg99slN3Twtrg-UrqbnaIo2FGJw905Rx008SZ6tMrfCHCzcqXgDAXkSqHZNZrwqX09QksrTvAiaTAk0SqPfjkaZhu6i1IEWC-wEexbJt4ij35UcmlEpUF6o-TjcYWDWV9B0Pov51BaWix-BA.jpg" width="400"><br>
 
@@ -153,7 +214,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn1.telesco.pe/file/tTSuELwa5YXjA4qxabEuc-HdUYZ_ZRwmSfLHi_mRfhymdxHfANFzx2C_vLYnO1KcnXChMU4eHjnvoJcXFEzHIYbXpJyj4-uZn-SaFV3GPsmP8VviBVbOsrtMGOHysk1Su3CZA_ILoAvRLD13io_lO3Nxx1k7ejktqIvqFEYGIWga8bnsFCVl--XtqhdhLB36wM9H6hN1aMI-Q_vZx1GsavzE_PJPHj1_zCyiXGhF7xQKhIBNym_gAqoVfGs4nT8Uuh5aeQ8CY6LT9H0RV_4wz4IIusYk84kIc7Kaj59-rwCdPtVXgz7RJNv0JMK7Ln0zkx00SMvlMxBByS39_f5y-g.jpg" width="400"><br>
 
@@ -172,7 +233,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn4.telesco.pe/file/GTehDdxnMln3etsx70yxebAyPwVHWlX59vxhv3-U-zR6yJ2cb3imIaBX5l21UPG1JKeAZf07FbLWHTw5j4MjO87gFauvzHqxSGcCTtvGPj0wcYUB7dZ1UdxR1m3m1NiE4QSAdR3Qu_h3uSQ8Nvam5SMHq2eLInXQvxBAtS1cVqYXNl6UxktNzA3hzVyrcD8N7aYc1lJ3KN2QZ_DVJyuh5l151bR4UJmaephuarsidShYXOpSTCF-IkdYv3LPG8y4uD5G1jmbThjX53BL4IFARKi9YTCR1cAOuLl0kDryn1WCHzMT8hvnhNEh9_erhsYES7DmyiTB_DIu8QL1gXLv8Q.jpg" width="400"><br>
 
@@ -191,7 +252,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn1.telesco.pe/file/G8EvJ3Mz-A5wzFmQxWXib8lBioQSqht3_ZcAUpBv5oacVYGyvcpa8WwcHK09tZdnUnUK4XPb3f567uPHYQB30Lef8MtZyfZWkM2gamqibcJShR67mUZm3BP7dxMm2zcFl4XdP7cellpzty4jVDpanN8YCdya9FUMw0IPv9Qb8Gl8MsoH2bT_AvF2V2Ht4UuzBOg1DrwCwMJ34VYUvjSls3tImTQAAwM9XaZ-w1Tqws1JnczCXSwlAmRDMrGqhr8cFQloTtvdhzlS3-yLAhuGa41XFMHxkC8bHZiSJ401oZEmW_5rv-ffs5GzMhjoz8FMLrpe7pAsrhgWDF_hNK6Fjw.jpg" width="400"><br>
 
@@ -215,7 +276,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn1.telesco.pe/file/hvM6Xxd4RmNdYQId4DRMkwMxw26L4iLxY59PZHm3ynNnfNY4CcI-mTg_2Jf-Dn53Le3HiFjQV0q_Kl4pi-9_eXEv0PFLbTkfgu2N2A6GC4vGY9UHCJDQmGlvm3E6wgROjWRqje7vjmpWkrSKr1UnjBCUYkQ_RazXe5lzZGaYWUSNfmIIhA2S-rWRHUmbVzdEo3QdyqhFLbJgGNTj9WxO1ku0yl3DTOk34nKHABA1KYt40-1De9Lhwk4ogxfNzDzg4QPHKpCR_NAIU4xq9BJuyBVpuzcqEbVQ5u6Y04cPbigiZ90ATQl7j72LGNQGfwPl0iNAJQu_qEK3-dMmdsQnJA.jpg" width="400"><br>
 
@@ -249,7 +310,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn1.telesco.pe/file/OpODWKC5etyBGk0b5BKhE0MGccAG396tRP7-oHmppWudBtfXwImMWQpRPRt_8PTRa8De6SueENrAGOMmdXRtnoW6Fq6VVoGYtWgrwLxbgV_nBq0gG92Hx_15wYUeuFucgk9H-AeAESV9gk1ApoZgcQjIUavHTv2OUFfMuXuVEmw5XD3phABvQpd8qmkOdQ3R0UtkIwoGWd3IEV_qogajfk5xK6lvqLD1vwrGo0CSEM97Z7qsFDCmYVZPgBLXS4_yFflQ8IWa1mAELiO3bSDLhHcgPTzKjnqG3QdNG03tRuWIxcKfskaQ_gvuV-P4iwD_vuE7ly9BVzXrM9sQ-aRU3g.jpg" width="400"><br>
 
@@ -266,7 +327,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn1.telesco.pe/file/g1SxIzXmuysQ59FiJLpi74i7w6lyYno0jEahyojyxZ1Spww2L4LBBOE3oiquV5cExyFNGurFgvU_CipRLbHesRTXB7eSFQIqgdnhtkBJxVXbP9Cf4NfHneJfvo1LUXOq9y2ACVjvOIfx18zpV9jmsS8HjZF3U8ueR7XZ6rcjZ4yy34ynwcK9RHLIfC-dTMVQ9o_aIrLdPDjeFiv6qWoBMTR6KX3u_oXytIdLJADEXwGrBKKYwFTPgx3rocSSBicDlZ_qnzoZ-5X-WG2HO3VzvjPtN09TrVGAauWBO20rYcSAK3SIOcnIZY5EYTRU66uVnZkX_Ge5JHR5A0bo84ryzA.jpg" width="400"><br>
 
@@ -282,7 +343,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn4.telesco.pe/file/cnZJOllE-XRPsTwckgltPsZb-kIKXQgWOlnqb2xIwSaY2tCByrkyxLS2S8djAI_SpsGrvDWPL3Pg9M_dToquKB-P2HrMg74a2aXxeaUMK21Xcv7R4v9j7jy0PzWCytCQl_OL6M7eaZx1QGj1QUw14bnJ0Sq22i_TtWkCAdBdY4S8XSJMDQ8g_FvU5RDqkgS6ZRmV9qhbIYTr92lNZnLl5U1VzDz5fmuu6Xb8r7saOT6B6SB-bhEit4KDt-EfHbKZfMSrYe1o6CmFecJlPe5aB3mLqMIbEZTVRND2to-zAsA-J6PdHxfr5puYf_4GzEM1JOWVrals3KrUVc9LaTra5Q.jpg" width="400"><br>
 
@@ -299,7 +360,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn1.telesco.pe/file/qn9Z1SHVuqqXlSHUEZNutWii2LWJov9p7sp6eP9rNtcayGwbzORPiQf6_n2zD6qiXqJ-lyVjCCyobrkyBNAbU5p8vCAJ--ViriwPHmL6y0tHjQBuWJ7gIBIvY6dPjvyE39WUoVtmAlUKvhBD91Fi_dJU83lfdSlG3p0Lf8kFrxXvSLlDD0lyQs5mhGPZTQEeSQS2ve_8-ECm03pwThOqliFLsy-RFjmlOQL5s2sFFp27bcXC8j9WO2Ywwk1nkbWN23TnkZ6fhOAmL4_4Sw8wEpXX-dhWg6tRD6EOSMBGv7uf7pw_BGuNgliLCE1jZ0WbBPycNosO2oaRd4wIDHbE5Q.jpg" width="400"><br>
 
@@ -321,7 +382,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 01:26:57
+###### 🔵 Updated at: 2026-06-06 02:38:32
 
 <img src="https://cdn1.telesco.pe/file/oNexD75gO0JmwXApD-uqdu25HDIF2OU_uYoT4BzmrRX568KN1F7RK_qcHiXZTWboLS95QDy1ZbXW8bAynF6-CF6rZH-BBSoFkFBW-JGc39IULNliTjGlTMEbNkNhBufy0yqcevGco5UdIsX-ky5wq9wrU85qLN5Q4v0L0hQlbcgva9SuNngw_jrdcRDSK9gzB-iRW3m2aNtohVidgf_hkOKRwJNfcvpAeDcqXYDN1jD7xqtUaeCc87i5Owh_c2xAbZGHYcqNE99IY1qt8PCbV4uuVG136t4WqF17RqpUDFWbcEwRF5hGIt8DhEAUnfHXx5IZZzEJDVnWTknnU3sw2w.jpg" width="400"><br>
 
@@ -335,68 +396,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75938)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 01:26:57
-
-<img src="https://cdn1.telesco.pe/file/Q2bSnfElviYkNDWDY0lPA0zH5zfgpKYHypw6nBh1fYM4SDnXomFUoQk9EiCmBij3VNmUF4UAnVKBpQeNaM82AHBhJcfH_lD8g2ndXbKh48vfWIOV8g2M6FjAZVs1TlShK1tgqvFLTmHIx3xUOzjLg2zx_Vc3too7PK96afgEy1zq_gOxczPzAuxhRJyUQDs5L1A0iEvRZbL6ZQ_nhOmAhBarmso10tz-HG_nul6CYUgKQoAr823qSYEQHZJZpbEIGM0OSyrfr42wBAA6fZValQDt7SeAT7taeBdSSSJ92ONr0WajJKCMFZ7fO8e_Ue-MzW6CPPGvdyZMOiZwvjd_vg.jpg" width="400"><br>
-
-پیام مکتوب و منسوب به مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی، در مراسم سالگرد مرگ روح‌الله خمینی در تهران، خوانده شد.
-در این پیام که محمدجواد حاج‌علی‌اکبری، امام جمعه تهران، روز پنجشنبه ۱۴خرداد خواند، رهبر جمهوری اسلامی‌ آمریکا و اسرائیل را به «جنگ ترکیبی» با ایران متهم کرد و گفت این جنگ «بر دو نقطه متمرکز است؛ یکی تاب‌آوری مردم و دیگری ایجاد اخلال در دستگاه محاسباتی مسئولان کشور».
-مجتبی خامنه‌ای همچنین هرگونه اقدامی که به‌گفتهٔ او «موجب بدبینی و سرخوردگی» شود را «کمک به دشمن» خواند و خواستار «حفظ وحدت و انسجام و اعتماد متقابل» مردم و مسئولان نظام شد.
-مجتبی خامنه‌ای هفتهٔ گذشته نیز به تمام کسانی که آن‌ها را «جان‌فدایانی که دل‌شان برای اسلام و انقلاب یا استقلال و سربلندی ایران می‌تپد» نامیده، هشدار داده بود که «اختلافات غیرموجه و حتی موجه را به تنازع و تفرقه تبدیل نکنند».
-در بخش دیگری از این پیام، اسرائیل «پادگانی متعلق به نظام سلطه» توصیف شده و تاکید شده است این کشور از هر اقدامی برای جلوگیری از پیشرفت ایران کوتاهی نمی‌کند.
-این پیام همچنین اعلام کرده است: «دشمن خبیث در مصاف با فرزندان دلاور شما در نیروهای مسلح دچار شکست شده است» و افزوده است دشمن پس از آنچه «تحقیری پرمعنا و عمیق» خوانده شده، تمرکز خود را بر تضعیف تاب‌آوری مردم و ایجاد خطا در دستگاه محاسباتی مسئولان قرار داده است.
-در پایان، در این پیام از همگان خواسته شده است با ایستادگی، روشن‌بینی، حفظ وحدت و انسجام و همصدایی نکردن با دشمن، «نقشه شوم» او را خنثی کنند.
-از زمان اعلام نام مجتبی خامنه‌ای، به عنوان سومین رهبر جمهوری اسلامی، تصویر یا صدایی از او منتشر نشده و رسانه‌های ایران فقط پیام‌های کتبی از او منتشر می‌کنند.
-مراسم سالگرد مرگ روح‌الله خمینی که هر سال ۱۴ خرداد با سخنرانی رهبر جمهوری اسلامی و با حضور پرشمار مقامات و فرماندهان ارشد نظامی برگزار می‌شد، امسال به‌صورت خیلی محدود و بدون حضور مقامات نظام برگزار شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75937)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 01:26:57
-
-<img src="https://cdn4.telesco.pe/file/qqGWvOe_lrsW3fe79E4w46YrHvhEDohkEDZaO9bZkAUht8Y8BLgKlNKrEalHxxwNpz8060nHc9U8pwh4U_NK2CRBywCV04jJmxXQwhA-cGpQhhS40jeAEd-1CCZRQSM9A_X0mtx4o6f8iNe3kJOCMjNyk7SYKYSkYDzkmLHXB6NbhhVzr89TuAm5ByJ81qFktSF2w-W-b82JQ_WPtsD6hxF6gO3SZBJOSE3_xN0J7TW3K4-gINgB0VSM4vvciTEbSts-kd10rj5d7k3yr5KT6Dl-dfBq0qN99Vlf4H-aiacR22791Rvyhqg00R2hp8bAeVk2SyRf0VB21UoYSUrFow.jpg" width="400"><br>
-
-♦️
-دونالد ترامپ، رئیس جمهوری آمریکای روز پنجشنبه ۱۴ خردادماه از تصویب قطعنامه «پایان جنگ ترامپ با ایران» به‌شدت انتقاد کرد.
-رئیس جمهوری آمریکا در این پیام نوشت:‌ «دیروز، در یک رای‌گیری بی‌معنی، مجلس نمایندگان، چهار جمهوریخواه بد و تمام دموکرات‌ها، درست در میانه مذاکرات نهایی من برای پایان دادن به جنگ با جمهوری اسلامی ایران، به محدود کردن اختیارات جنگی من رای دادند. چه کسی چنین کار غیرمیهن‌پرستانه‌ای انجام می‌دهد؟ آنها می‌دانند مذاکرات در چه مرحله‌ای است.»
-ترامپ با انتقاد تند از نمایندگان حامی این طرح نوشت: «دموکرات‌ها از سندرم اختلال روانی [بیماری مخالفت] ترامپ تغذیه می‌شوند. آنها ترجیح می‌دهند کشورمان شکست بخورد تا اینکه به من یک پیروزی دیگر، از پیروزی‌های بسیار، بدهند. چهار نماینده جمهوریخواه، داستان آن‌ها کاملا متفاوت است. آن‌ها خودنما هستند! آن‌ها باید از خودشان خجالت بکشند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75936)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 01:26:57
-
-<img src="https://cdn1.telesco.pe/file/r4sfUf0xpdiknj12bHoZPXAafFL74MhgizviYBx_YqVeuvsZIbnh6IZyugzqfPztjg3IxR5nx9rFJSIDcio0_6E8Rx19SN0iuatvQBme7H7q8vJoIqHy7p7Aek5BiZHrLQKonA1c-vFgR6iJZgpLTry_FMiFrHyPUJkCf13xKPfGoV5H4IseUD1hKxKQGgFiUlEyGwt7VukbaGV40TCZmotDsJXo7AFy3kN7LHXRWw-91KGqrE-rWu70qCk7_O6waFKfmj_wjy6vZ1idYzE8Tw_ugpkLDZ3SQDqi0L3DubjdTck0m0vZ9-oFD8-PDCk0T6-Fm7XOMsKvfXL6rmURIw.jpg" width="400"><br>
-
-مرجان ساتراپی، نویسنده، تصویرگر و فیلمساز ایرانی-فرانسوی و خالق کتاب مصور «پرسپولیس»، در ۵۶ سالگی درگذشت.
-به گزارش خبرگزاری فرانسه، نزدیکان ساتراپی اعلام کردند او «کمی بیش از یک سال پس از درگذشت ماتیاس ریپا، همسرش و عشق زندگی‌اش، از غم درگذشت.»
-ساتراپی سال گذشته نشان لژیون دونور دولت فرانسه را در اعتراض به ریاکاری دولت فرانسه در قبال مردم ایران و جمهوری اسلامی رد کرد.
-مرجان ساتراپی با انتشار «پرسپولیس»، کتابی مصور درباره زندگی خود در ایران و مهاجرت، به شهرت جهانی رسید. این اثر با استقبال گسترده مخاطبان روبه‌رو شد و به یکی از آثار شاخص ادبیات مصور معاصر تبدیل شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75935)
 
 ---
 
