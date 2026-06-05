@@ -3,7 +3,31 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
+
+<img src="https://cdn1.telesco.pe/file/FJd_wP6iE9qd0J1CS-1vA1m6HOldWnFMbkvzzB-Vn9nfvQC3yrkOnJuxSoCglT0qZHSp5zMmVl2_mfbSUkYGNpSuCz8YYoVpntVGuAl4Ow5yQ5aCJ0_s_pc80xqSEdiuJ7U0Tmghr2o7kMqgcTQqsSNx2tHZZOeq-ripYCk9NoVdaZYbqVDDr7au-ISXdaKcvA5J-LWTD1lz8ID2AuUZMjNXdV17cVVHB2tTPqaTKfPm4XKzWEQoFDnUK5DEI9mcRYoVUFzL0umzWwjpLBzbItxuk0XHAyM-OZz8aPi4w5f0KQ_bTzlRS1dFAa13ENd4mS-INQISdAzc1rNJXHPYNA.jpg" width="400"><br>
+
+خبرگزاری رویترز به نقل از دو منبع در روز جمعه گزارش داد که پایانه نفتی مینا الفحل در عمان پس از وقوع یک انفجار در نزدیکی اسکله‌ها، عملیات بارگیری نفت را متوقف کرده است. به گفته این منابع، انفجار ظاهراً در پی یک حمله پهپادی رخ داده است.
+@
+VahidHeadline
+AJENews
+هنوز مشخص نیست این حمله دقیقا چه زمانی روی داده است.
+بر اساس داده‌های کشتیرانی ال‌اس‌ای‌جی، روز جمعه چند نفتکش بسیار بزرگ در نزدیکی این بندر لنگر انداخته بودند.
+رویترز در ادامه
+نوشته
+:‌ رسانه‌های دولتی ایران روز چهارشنبه گزارش دادند جمهوری اسلامی یک کشتی نظامی آمریکا را که «مرکز کنترل و فرماندهی» توصیف شده بود، هنگام نزدیک شدن به آب‌های سرزمینی ایران در دریای عمان هدف قرار داده است، اما ستاد فرماندهی مرکزی آمریکا، سنتکام، این گزارش‌ها را رد کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75944)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/tipqLGT5iBgzRXpNsMcbiAXkQ2jWglmRxD6Xv5HGkldOiovXKgHRCFIZmUF5ct6ZMfpl8xpiXmrnm9pwqB0bnTb2J327rI5jU454plunkPgACtZsT274w-EP3kUYKekv8c9J5WBI2bJ6fUKesEaM4kNyYy-cGJXIV3EG7sAw61rlv6YmXWfLHDtTUTdsfCnDj04l_QX2ypa-blVR4Ra6ph4BMUMU0ipA65HtLL0R6JIK42gfbmsJ-egM1cG5YZeibbIa56DaBBfZ9w3_tJdDNfw9fUWhSuvxC8mwCRjEZ9n0RcdUzuZFm4wtMk7QLSMIiwPd6py6tCkeyBJ4PbCMiA.jpg" width="400"><br>
 
@@ -37,7 +61,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/aviJdhSe3q7EffXWxStQTNXI_65wDmTiS-vjnH5nAnxhgGOfEUb025014EUyeNxqVGo8eHM1VNBP-4YjmHFbKj8MCfrh0I8uunVE9u3kzGGz8Y33xcDVr-a33qugy-r0Bqs78acMX4kP00EcnZPRhSFyws5EtKKmXs_dLAUuvVcnhe6My5uoBeigyfm2Eym0ImrMMLyTim_Pt46Sv4rj10R2LaRHjUZjSdWYPcQvgZUSpC80geOHpHzssgvKHmQxR76SYt6griOTwsU-dB2PIooNgwWAeXAuZkN5AxS8-dvfphEpqznJ4ybSCIdN6zxlRgdnrfZSKbe-dBVXUoDSCg.jpg" width="400"><br>
 
@@ -54,7 +78,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/GNMmMCJDEAkHWHG_gavpxKPk9K7ZJG5KrcAbbFcRJYkeeNygnOkp1Drryr9pKBjYkq6CC1q6z5Z6qwpntfyNPMBvY9nyGNpCNXmoZg0xHYD2ovjrvqn8jujLHWoBFh1HslaVw577smRqlGIECO_gDSCqAO4_bJYyGZ9C0l4xik_o-cC79sEnPUQua1kW7ejE5txNu6z8cK6uJ9DAt5Jn8T6XOs8oUALwopgfqAMM-i08PYKk5pi3FkTnUWKYjb6e7ML5diIjZInwyXkDviiofeMuC-ABBuuQpvzZ7J7MvT8bOsc_4REgRoT_MYp49TUDxCeHYhofGgT41Q-rWdQdGQ.jpg" width="400"><br>
 
@@ -70,7 +94,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn4.telesco.pe/file/srGeW1mIBAu8QzEumCtzjgPY2x0PsNVfw6sOot4yNuVbStukIdlxpJ011VUFKjomDhDe-lsHfFSdUXrDzYgXN7BR4hyqzNty-i1fSCHjZj96Xi_5YyCILEj8IfnLFFrHaG2Tkub-2B5Lj5OhgEDQuFs1mSAr-_TWdMHABsJrU1GZpC8AiaAEowSJeUFHBZYYxbDPtOM0YoHnl5JIEdBjU6aM48cdaZtsXMgY9-wscSs004K8IGfc6zJ-HX-hFCCGa94pdDhcrCHJHkoq66rPxX7ruA4SvygfMSNXk78uhdINmppTVfhtV-b0Rph4Ile2w1yalMX3d0asmwElMaHHlg.jpg" width="400"><br>
 
@@ -87,7 +111,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/FHOVjf3h0V5ZUJOtgwWUi4QpRUC4TY6FCwn9U-3HNl76KZ0iD-NHdaOG2pAfc6REtugwRbcOnFBAL4FJURINXY6pmqd0z__B-Mmt2IdBUEYvD-FtHu8qZ22740-AC6BuZU464vr9kkyTLtovhysTUcfcUwrEcuxLsVakSEVWqZ2C-raPkxwzUUlih-IuVNhBGrcnBQ5NMrWOTskPGrAH6LJPAe0x9LD7YPtGNOiyCQFnGeW38Q9996ZoRlY97fsz03R5FqQ785ir0eoVrC__wDaac47Y3Mj4qEqIc1By0iZIuuFlPRod2ZGWTRJpEHXsErbp8oGGP1nDi0I-dgrDEw.jpg" width="400"><br>
 
@@ -109,7 +133,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/NNG6cWU70R2p2RGikqaZvFWoFYyOhbbhqfn-BUAs2cfPSoXbkcMjrlGKzhXpzI52p0dU0Xgm9cTYFrMBPJUUfUCMElxiv-3kJ6ZHDBPVF_x7OtLl1syJYLPnFR498ffcDno5WZxyx_luN3KoRw7ChjnkQCbosiKmSVl7655WTKfgj__2f0UyVlshXyJhNWa_RikprNoyL5tCE6-7n8gchAslXF2HmXF-JtD0iEcGQwuk5Wq-TuExgjZbEjT2pfWB__OzFY-5jAuoVuNVrGn3wEo-02L1bF8SxnyfFIha_o0yTei50spWQ0o0epaU89z9MuA3mh1SJDhRqZ25_VHuJw.jpg" width="400"><br>
 
@@ -128,7 +152,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/deQ3uGLInXjoGnHndg1u4wgYv4Oy6k5fbSIIRZlhnGSZbhIRXtB4_PA0NucRa6kuVK026V34FpLG-2sYNacPqOMXhmX0D1_Q8VQ01sppcjCk8pxdIvya9gcYU_F_AN9esw6fdHC4S8_ThRR7UQlASeZTjpeDMN2MJdAJ-5lwKUo_NAqWC3ZjQTrmzYh4Z448xZbiFQTwI64Lu4jtxJkFuyENXSHGokex8V8A8BfrOy2a2GpRRgaHWamt6FCEMCU_jOX3gEhvfc9T5PqteL6F4ipSHok_Izbl6c6IBGjNwKzC8JWX6NIKrMJLFzEzVnzFnTTdQFkgZkiPVuz7SM_gRw.jpg" width="400"><br>
 
@@ -152,7 +176,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn4.telesco.pe/file/TovUDbG5NGCljVEeiyEbt5fvrenHdHOEzuY5KdWtfGjeDad7GFEQcNWSO-4Rdveq8w-xDaQSKOna0uYBNxeyfK0dnjfTp8URxwfRcn4R-4U0iMA9BnYeJqV2RhSnWgdVtEgdvWxOaX00tu2DPBGTNfr_9wEm7KnjdKZiZ2CopNQXfczPOcQ4IgcuAMO6svrOQjn00cg2LEUnDUmP1v7sO4EZZq3OzD3XzEWA1yyDdIvs9DcSVvdePZy4FynG68263FCPRBt3V35B_3ItAAiW1Jbfen58MBITRcBNsNfiW2fxsDzahJExaLLwAY726MI05O_BxahaZ-9eSgJaOKWjdA.jpg" width="400"><br>
 
@@ -171,7 +195,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/b2qa6yutjdtAVd4444DLCR1aaES1-HrrnzRDWR-fetuzMBXLKW17Cy0rh5cBgz2nrlfqBUUc4EMibDqJtBqZurzCOIOnPMQ4evMxapn0flP23zhoOF3OkB73nwGIxjFehOa7YJjUiHqDnqvGTmqYbiSRjP_lksMQoko99tuq9KXoxPkpX5YpSizx7cTxyX9vw6FsMn8oaZd6vHBdkYMEG7xoj6xKl8EU4ZNa12ieUDYgVpUMFUJsATNHh7EfsklL-XYvdpzTOmjw2mgUEfPfDc4ryY0VVw4PVkKJlIWO92VNgL1AL0y3vkdWVjNIAo3KTOi6piYerQMqsmWJiwjbDg.jpg" width="400"><br>
 
@@ -190,7 +214,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/K4Ad6sB8xSBbx4WDn6TBG5u5XhPfrQt29jPvkftgX5Vuar8m01kw00fEm2QzRpDnNciWrdP0fme0Z8JirbOxwXkLLTXxPx3PzbvoJN-v5dvM16u6AEXwMdJaQyBeMUgf7GPE3o0NM6VftWf09PLOhPxvOAqqTp4cWuZFH6JAb0bo9uBG8n7zhw9P_TgtKmoSe05bnZDAURiJDmlyse8qc6MJ4QhujB8jcDZKsZJAzCU-udVK0vNOWLwnDKDPxrfw6gBk2N7qw-i_R3u2wDZfTaENchy0RRFaFuUJBdLRUB7QRD2aqRWyQ9aWEtyJb6FYoyGh6XHvaZ0ksWpLU1rZXA.jpg" width="400"><br>
 
@@ -207,7 +231,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn4.telesco.pe/file/XBIZv-2wISESfIIEFbySMjk6lImjMc0jsmLCWst05lhx42uQLYHGmL_TyrLY7BGJdqLyJj0nR-IAVRJ6dzCspLx81vjxR2Tu_SjMwrfO2heaPPMkDA0WZ_Z9xjQgd54PUHyaEM80B4SB6YAFrszZl6OAv3epG33vu6UH9tKIE8mkKSJw7BZk5MfYHDeb6ugHb6knB2dtUoXy1F22gzt1fPwBGe2_xQEGl3TjnRQ2PNDXkweMQt_nzH9ZlUSMJFrMOM_EoL6gEVY_7V8KEtawPHxQzXfJiyS1WvvplLKMaPeicp8B8skbfDCEszNFaOycr8OcIcX9f8FJJu1wD1gbSw.jpg" width="400"><br>
 
@@ -226,9 +250,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
-<img src="https://cdn1.telesco.pe/file/huHdFD3cViR196V8SxHOQ2JAyKqyZwHwqSI7v1CVtCyldSxYbATLmUMBngQj0wsJ0uJiEBBqj6QtaRjgEXcCYc-pzV2TrIq66G6X5CHU2vkuOdpITAE4ZkSQWmOzScvxZs1qkW48Z6yfsxzss_-ODFXRDBvT1LPtFKqvumLZBTZ4qdfgpiY3XvUeO6CBiQwUZdAs3082QKMZs5HcazpfshcSjijzDaQFMCv0X9NG_5Fca57YFxb9x9M-LHfcVJAiXQMrIoOp6wRYrncV7lCNpmzgK04_3ITEszH44s6mGC3_GOw6FEmTQFSgqRZoeDMoYBajREWPpNk7Gsnf0C2Hag.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IFIYVMDh58Uw_XozRN-G2DH5W61JcMFNa12-sAGoyg0d8CA1sxQEIRoV5clsj-xfiClNNjriwqy96nP-bl-ItzSz5d4yacsb85UzC9ZhqgOwO3kTeUHaAzugNai2S1oUSrWHhFfbyb6DNd5yAeZ9WsjCmCShoPrynlCUngoQ35Wgl-o2Ro7yy1oBELAKOqfBykW9gdFKqTwCkQ_bPb6PPmUdGwA6aaLa5nuVXXhOPm2Tfckr_S_XX5a3jED_kv337nqBXNyrCa8lyXDV--iYwiFPTozGZUD0656hDNMP3FF1J1cSiDY1abQR_wfIlilovEtn5Sb2mAm8b_IlFnxafg.jpg" width="400"><br>
 
 وزارت خارجه آمریکا اعلام کرد اسرائیل و لبنان بر سر اجرای یک آتش‌بس به توافق رسیده‌اند.
 بر اساس بیانیه منتشر شده، اجرای این توافق «منوط به توقف کامل» حملات حزب‌الله و همچنین تحقق چند شرط دیگر است.
@@ -246,7 +270,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 
 
@@ -268,7 +292,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/m15FtrVGVSH91Q2tEyB1FeLyKystFcjKoaYUhAM2GXjSfynm-iB_yi7yDjC0CuIE0j80lgGX3jHptdaSeZkwzx4QpGXC8RXeDAyl1-oiNNQJwf5ITBcY_i4KeqRyOxuikCeKGjM2f9JBbOa7Os_snc6Tc3mERdemHf9n4GFCt3hghcx68Er3gCuWSSSVj5JWj2JxFzVP8uo8eVqfJkDEGF2ug4BaB7FTASR427VwWG42d-AuQPJ25gTgQ_MJCumC1eLY500Zst69lB3AE2UUGQRDW8rtd1T6o7UAKX5_GGuViRppPOPca9JcDLf4wnH0jYzc1MnnFh0ZgpkEJmXzGA.jpg" width="400"><br>
 
@@ -290,7 +314,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/QyBnkPnfWzzSDKpl57PE01YYGMsoM-hjbqtGCuHvuUHReKEHb79WqIiGycgVhZG2jzebUNwmdnbXINIV3pd9uhHV8arQ_yD8IaJI8qVLHt7y3cyYCSFVfrXIlndU7K36TwaATFXCUII1E0gilLrowhen7rbXIJLcnfSU5tOGvppTrJAsq-xP_EyTGBRvQ2LhydJ1SdaU-84eiJBzMgJJTeRqvfNHUbtND8f3tVUTjpbStgfJ7ihg1lOxUK59JoSYCnmmD8QtNUyLhnmXt9fwxsjiLzwrIYBfH2hUklwBod12zFTvO7SHAH8aGLT4GHQG2wXO6iPClUvQosRGcygvQg.jpg" width="400"><br>
 
@@ -332,7 +356,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn4.telesco.pe/file/ncjgwF4MClSDBl5C1aUbV_kWScuBoIkNwI9Cal4SoNfnrvC-Ogne4iNtfrwv7XH9IbNDA0i0jTf_RnAI-F82lkfOZt7Bl7-VeopMPnyzqjewLGE3hIhL_sCmRjelpPRhHA9BNbk2GlUGTzdRB5R1if80My1eSJrGns57WBiSffbVksJRplzusD2GUzhcNjZ_Sjml0cDnRcGwfxVOSbjMk0ovpLIKhKCrWbBtcIx0lg7Sazgzf7wYy01GMIHYqMNW8kdcSn78VKMcXTfuQGsqClsl1AOkjbSLD6GHSrGdPddOWwb6eHNmfw_f3ptJcr0sG8c6VWO_KzXteqIAK1HLWQ.jpg" width="400"><br>
 
@@ -351,7 +375,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/sJ35_92HLR1bdYxjr1a9lMWtXcfwxKy9qIAKwQcDwn_NxGCYuYl148CkEhRdMfkcw0bhCkzWegEAjlle7tBbnNxzEWeIYor6GMOD4qpanWTxdTAi661a3VP-d0wYenUNjcujcprnqsrdCeA3K5B_mdLWhRQq_ROvb_OdDiMC2wStUNY5O-0QGrk08oskRM1shy44dG1Ys2dT6Yz4FUA8yd4ALiO70wBobMPEuEof99hdvzNb8MietldZJVX1qRx9fDuArXd4kfgQbtphKqfQii3KYt67WJvHj_CdojIHby5ECP-faGnmzydciKmz46rYyTTwwZpEx2__JmBwRVZhUQ.jpg" width="400"><br>
 
@@ -368,7 +392,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 
 
@@ -387,7 +411,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-05 03:48:44
+###### 🔵 Updated at: 2026-06-05 08:21:00
 
 <img src="https://cdn1.telesco.pe/file/EhGGKcbnAMFZCunsqEoAvD5VzBy3bLcyrepiQlsAoqTk3eLEuFyK3CYvUyZ_ulI0laodDSgxcx9NSNOmbutxVLpg4x2MM9kBr7DQZKgRvf909n-t8k1uRpt9uvyZ_cbImqd2DDb02TUA1g3Sx7rtTXQD9RtRnQ__zqWAi_vML6fmilzXDfn6h6dBZpsV0zTy6yik1ioyCezcZPWC8L1OpjI2cAjP_nsjsXXHssQeOt6yswwb9myTzO5tiXQifs4nkxpPNalKqbx2vBWamq-jxqJ0tVhql6NVbAsTEzFKMA1ZOWULtBgjGfiCy-5R959uADEijVq9JM5pv5Tem2m9Ag.jpg" width="400"><br>
 
