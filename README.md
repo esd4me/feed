@@ -3,7 +3,26 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
+
+<img src="https://cdn4.telesco.pe/file/qJih5IIx-j5tyrx_WmyUDZ0-uMyR3kOhG_8t5-LU1BAsxLL020FZbnZSyuHDaPNPRnbK9S0XLV17gmBMkRYrbIOfgCbXavNlOcss2jltkeJ273hJRVmHgIQdvVgWUPj-gT8GOQHyj5x5h35JZoBHSLYqrlreXDiDjG7YhAVdC3T1Q8qgrUHIZZsYY5HNuv_Ro3Z9MTELvAinXAqswno221La6G-JBiBg_AWj5dCsRS9VVhhY8NLoz4JyJ4NEoHtag7_h29R87VrX4gMT2_HLRWxnHAS1fypPcUPJxVYRa0kf2VzcSRHnKrGZ9-w7_Pu8UpdSWe0klIYZJMKoSQb1Uw.jpg" width="400"><br>
+
+خبرگزاری فرانسه گزارش داد، ابوالفضل پسندیده، سفیر جمهوری اسلامی در مکزیک به خبرنگاران گفته است بر اساس شروط تعیین‌شده برای ویزای اعضای تیم ملی، بازیکنان و کادر فنی تنها در روز برگزاری مسابقات خود اجازه ورود به خاک ایالات متحده را دارند و باید بلافاصله پس از پایان بازی، این کشور را ترک کنند.
+این محدودیت سخت‌گیرانه در شرایطی ابلاغ شده است که کاروان تیم ملی ایران روز شنبه، تحت سایه یک بحران دیپلماتیک شدید میان تهران و واشنگتن، اردوی تمرینی خود در ترکیه را به مقصد مقر جدید خود در شهر تیخوانای مکزیک ترک کرد.
+براساس این گزارش، با توجه به اینکه هر سه بازی مرحله گروهی ایران قرار است در خاک آمریکا برگزار شود، این اولین بار در تاریخ جام جهانی است که یک کشور میزبان، پذیرای تیم ملی کشوری می‌شود که با آن در وضعیت جنگی قرار دارد.
+این دستورالعمل جدید واشنگتن در تضاد کامل با اظهارات قبلی امیرمهدی علوی، سخنگوی تیم ملی قرار دارد که پیش‌تر مدعی شده بود ویزاها «چندبار ورود» هستند و تیم یک یا دو روز پیش از مسابقات به محل بازی‌ها خواهد رسید.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75977)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn1.telesco.pe/file/byIm0fHlF0IDSQ9q605SiaOkxZ3fd5RGz_OYezWqJ8H1BVbBaw0Gkzz89hUOuGP2lz5XKzO7FwwOpHodL6amX9qoFPHFUHGkKaOsgTTJlW4JDVhGSvMHbUaaanJBVJmRbsjvHb12Ur6GfFWRfga7mhyu3Q9V1fcCMDOrK7-ODFgbL9f1Akev6Mbx27oDGMpS0pOj8rE9PMdj2gPX5tmAkT2vF3gmubLlp4tgfS1zckqj8VRfnOn5jgjx71VpKg-mprVUerFMYRwAD4DJtVSJCzOlAkosfR2z6HMF83EbNLNGu-d_5T5onn-9YPP9sddOtT3RxgdfZOgBLcJcR7nS4Q.jpg" width="400"><br>
 
@@ -22,7 +41,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 
 
@@ -37,7 +56,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn1.telesco.pe/file/dJaN6hlVK3bH4LejJvRduf4huAcIFmbNZUQTbjtLFjidM8Xysby1Fmv26mIgTIoZL65Er2UHOqHFCpPAkogOU9TCYivqbnYZPPFGFT6W_xUKUlO0iqLsXWi7gj22yO7_RLvgQsEKbqbOdjN7k5jqyu0WMH-FzbkHdAQCrEFnNTRm56Rh2aafWBr2u12ZGXQzo4UEWmszXs9mTf_wAhh9YTIEiRKVodiOrv6TQGwGrhBsFlxWFi7HB7LKTSjCFNzcsm4LDulmUrn954rl9Niq7gJj0Uwdrmv8OQtPLKpst_5wMDZpq4Xrod6C71ImF4g6Ll7uMi3wcUfbozPzRR3bLw.jpg" width="400"><br>
 
@@ -54,7 +73,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn1.telesco.pe/file/Ws6_jcsK9mB5jfVzfGTd2SNT96Mc0E6uZI3CRkzxHzpDamPwqdX78mc1iVjgau7dmXbkIU5rHo_0R2ZqdSSceuDIHFTOy5fsoVeWk2y3HDFsP7CvtTXqcP0WphpPd7y_wFP8a8F6dIwh844pzhzu2ONshwBHtxp0jRPDS2Uhv3ml9Ta4l-XJi5peVmUhkKnagValk7C0bq4vOe7DOH_ZRpMxvB0xmx0vtf-DOHov-l-TIriSKl3QzgfnjVC4X1yyDiEtWnJjrNeZDg4Uog8y3rkcJPH9fRVEWWGh_uvKAKlDKOXa5VOrsVhGQW5ruOKAWtHD72EOqMUVR5Vv4ncskg.jpg" width="400"><br>
 
@@ -74,7 +93,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn1.telesco.pe/file/ok736ncFuTyMxXmN2haoNQDaBIoaAVSl6nlZN30rNYwgHkp9KsNoJ5uWJua2eMylhFRvfb3daUedmNkp--DoyAu8WKLHAGH01VxBCnHF4VBHaKTQJH0IpIYY4g1VJLUGTJGrsa4wfRgEkeIEbkgBE7HwxxM0TNPkM1a3n5qFpFhiiA86JtCwsTYa4-owvAYYoCk-MyHwA-9Yh-vdFiLpHxNMTBfq2SPkgJoRZIBajkLMRptGZWxDKoIuKUtGe2OyYIjOI7HbDxh_p1RWWa9WOWnOAqJ7icweuW2F4xTijymME0A0IxEkdvEC9MOBARITQDLNRJB8xqcQ8zyrzFIOcg.jpg" width="400"><br>
 
@@ -93,7 +112,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn4.telesco.pe/file/jGSSoxH8oGPybsCtiXlXOfmEQyvvRg5uycdsxlFrchDsAux9WCSZ-OE0bFNwQUfQyMWDIWvjbLLXY4h98ZmQfHy-HXyxBaCh8RHnoixeuQL_xoVr4hbP0H5yEW6m1TaykKdxISXXTUNKy-iZpXti4K49Y7W-3efKDCRcgmj4tgznl5HRq6R_9ZeT-_QDoCb10qK4t5ei4YGz5VXV8rWHxillbxd1-vh4VphGfW3G1H2BcznnuW67rxrt-vL8XBp61HWb8xQQspgGEygSarscL8LPO6QfgoRmqSAH6EDE_Si3Ub6qx_B72Fwf__R9oD035KL0Nzb_TTAWok2SesL8_g.jpg" width="400"><br>
 
@@ -110,7 +129,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn1.telesco.pe/file/jqJ_XnIGxi0beE3eDcppS1YrsJ2goTXsuSAQ25d7bSEalh7QCBqGQy5Y-yXbkyxpSp3P9kf0G39ASfDgQXafmUaNvYicMYlM9RAD9A8XvlKkk0AG5ICIv3zDvbwbCSyDlhPJBny_4C9zV1Bs-cm2NhgOJR8ih09NOSL6Tx-092le-S0uoj8tHGWN-93dsvDbAsjOOnDGZrtZ1cCXqHOzY8iqE15Id7KVFyrMPxKD883ygkgq5r-lWXFI62ILenrXXWzPhy--qJpu4YR6NPLdeC6Ytk85st_4Gk95zDDnZSKyaGyqg0XwYzEPiLNoDePulPS2SYVgZ5rYN63CvVB2Tw.jpg" width="400"><br>
 
@@ -135,7 +154,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 
 
@@ -158,7 +177,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn4.telesco.pe/file/kLQmkQN68KbDzeUNr-YYFNMgrypUiOhX0CnoEZ6TKeV1a_JHXzuwqw2qUosc_v7OPgzkuXqO7hiyCLZUaLiQ2B2HdqyBFoDHnHC7WVmKaZWE3TvXh2lOkwIfgXx8ZP54ynL19dl6mryhAH8IgIBPdvRbkNa9LK1_tjV7k0xXffkRJsHMSH92LZw3EgFLZt1nWSpLKYKQHrymP_NrtEt0X1rwUcAuP6G1NaLOlNeIXfDwtN4WxIgBx7uc5n4O84w45ZR3_aRKDZJbYdLGSlh_0JoAY1k8mRcx8uXIVNcBK7L_ZNsaw8IDFSGSw9Nfg_W64dQniJZPs-Njk00_3Li-Zg.jpg" width="400"><br>
 
@@ -177,7 +196,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn4.telesco.pe/file/Y1Tt6Y_n4REH6FJNK82vlQ6560VEqmMAsqeUQe2ZUhHsKefW3wZ9jTuwPr0ovsUI17LLfPAnYInIcfXYCPU-hrTq4_N64gJcxtHED-TPw8Yh8Qwxj7EDv-UJrxa9d2zVrUi2LbdNMxTIdcY7fUN6hjxuI7IiBJ4ujI9HYdQE2XB-AdYQlyywQveMaT-ZYqJLtZcZU2ibhcIcZDN1C07s6p4HqbIJON2YclR2_x6QoL8oA5IdWGU8vqW6Oj0XjBdUGn6V_N9nG2T7sKXX_8BYmY8F9JathLBA1CBlmDIFjuDXEFihgBkeyDgqvo4d8zKJj0OGdwnsGtx6EIDQDWUYUg.jpg" width="400"><br>
 
@@ -195,7 +214,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 
 
@@ -215,7 +234,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn4.telesco.pe/file/WY2wWF420IE1vY9dvDK0_7_7-N3sWjID-eTyu4IRBehvLeMQwCkBEQHEbMT1TAj2b_vHAtV3B-5epl4QYctpupY5aQWbAk0JL9GWd2TJub8Hlg7RnxlJVZ68Us_nMzXHRXIGgQsI5ZOWFFq2sMV8ZEEQObBve97p-f86R7hljV6YwPJv99WxtwAMf2iMFGxSsvnCxvBkFVsNtl45j6NWxRmZIvnip66xduHHo1tN2Fp0UaFuwGui-MF_Kl6fyH18PMiN25AZSIsVApnPgXoq_S8N4zqkhn7y9n2o3nYFkh_UyCmY6PzMQFqdvMeMG7Bq7pSrD2mSuGgDQpYDIIav-A.jpg" width="400"><br>
 
@@ -236,7 +255,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn1.telesco.pe/file/p-rmcLzVEnFIxg3jAW_MTKgd1yC6BN8tSVbDWiDrVzc8zxGt56N395z2G9X23-4ECc3iFt6JZxPXxYRhBEbCa91VEhz57mHfgXAUx6iGNrNbVAxS_vHoCuBTyAbgFqszI9kvGQoNu6TJMtkdiOruDDv4tp67mI-tyQMVD2UYiDv2pP4P9ivvVnDioNi-3Egi9_m6Q6kmXopxZWT3KIIJ5Ulo2yF9v3I2nCUkal4-021xU6tfLe-w0UyAMK60bGbT-7ftvQP_onTNEAz1_enTNI7NX-aI_TDXeqidLTT4M6JpO6wDgW7NQ4ExfkEF1ELbSQs80Ci_j3LBRIGhvS4mGg.jpg" width="400"><br>
 
@@ -254,7 +273,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn1.telesco.pe/file/a-GQBaJHaq77ZtqA8ZNAQATyPl77_BHoK-Iq9-BSozdqA-GEpJogccJuyRpt7nuhvRIb9Hhb505xkkck83MhXe4mwj-vEbAOJYDQ6kvBXAcfzDLlnHtY9CEsKCEOcFsqgL6jjAFuHBg-nYxsHgyVUjjWCZZdL4gXxT2fxaL4tuxJ_RPAUL31Ecw20vmR9zoKdkUdai4bNgyeEdrdpiQ1FdUDRh4Ht1ou6VSgbzurnKxtFbtkkNL69uRHbBuPJTnQSrqUbOE6lcmO3a63VnhvBcCTIvXmPmEsJRtQEDl591uc2PxUYLeud2ktMauAoTCOsJalfbe3zJQxu_PirHzOWA.jpg" width="400"><br>
 
@@ -268,7 +287,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
 <img src="https://cdn1.telesco.pe/file/FoRp0ESEEESZnGBvJ_D5CFyAc8qyJjhDrxs3m--Fq2zzYW3JCnSsUBwDwwkj3Ox3rEqH6jSeWkg2MispnyGdt85eVMTGyN4P3G4qa-H5AYd8CRpIVHi7Ujlu-lUpofq9fgmvpAQh-hFLtw8JnxNU__z7PiF6nO12z8jaJX-Unwbfumo0I7PfL9SLCoLa62kGdk6ZVowX1c_NZ8eAvNNe6Ncq1XbS8HHHzmNNeS49pDwN0ykJRe2ele4-MptRcn2Deh7WXuj5JxlWecyClfbokczkE-8O_gZ7RTBoWrf47W5UIlcGK1415GjC-z92LMBvedMNbi77mO-rtwinubfsag.jpg" width="400"><br>
 
@@ -286,9 +305,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 02:14:15
+###### 🔵 Updated at: 2026-06-07 03:21:21
 
-<img src="https://cdn4.telesco.pe/file/C67yUJTaaG9XHFqiKOpHMqHmOT9FHtBKsbBvIHtNZCzbydxEs6oQ8hxhYIBocI7GMsx1HQJ3QSmlVuth3Z_HI6Ree9MSnERURg6ZGhsK5oTzY2AU4udKcbQd13t1ZmISZ-92rRBzB42ZM1jsBrwtvGqL2NjgOw_xBqLZ6ErpQLoUOJqx8E5uS_CGquKi2VAIONvdh7DXdg6tFbcHlD4A3g7m0rmEneCYz0atLCHnX7-5ODC36tHYPAT6Xx2ODafCZ9q4_Mu3E32ElLYlzKyrhxXPaRfHC35jwPOCwaaaFsjgf-EUONqGtyT7P1riPsZoQGgwIqYdaLWkYChqOpR00w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/qtTlN7mp5GDRj2siWHd4WxgpqgmTMABTMD-PGRsmFtRZmvbPAERkw4Ies36NJfA6BEcNM6Y8aBFMf8r4KrwsuivuMbw2aE_9TtyzpQNuQBvASou5s7JV4tqz7oVZMBJPEhyifofcGbYcksEr41scRoHtRuFR-K3IcKWZyVmb1-LkcEJoklgMSg3BpL808WhYWWGKcyDHXPXTLA4j4q5U7B8ac2NcNsoWdSjUOtdOHH5AMQxyYcFszGpnVchN3ecbtpUwhw6fLpTUFq69LOmvQLctodk16iLzhikV5RswB_KgPtqut7FcXdF--2Af9ChEL3wwURW88icKFKPi-nArzw.jpg" width="400"><br>
 
 ♦️
 فرماندهی مرکزی ایالات متحده (سنتکام)، بامداد شنبه، ۱۶ خردادماه، با انتشار بیانیه‌ای رسمی اعلام کرد که نیروهای ارتش آمریکا چهار فروند پهپاد انتحاری (یک‌طرفه) ایران را که به سمت تنگه هرمز پرتاب شده و تهدیدی فوری برای تردد دریایی منطقه به شمار می‌رفتند، سرنگون کرده‌اند. بر اساس این بیانیه، نیروهای آمریکایی متعاقب و با هدف دفاع از خود در برابر حملات بیشتر، سایت‌های راداری نظارت ساحلی ایران را در منطقه «گروک» و «جزیره قشم» هدف حمله قرار دادند. سنتکام در پایان با تاکید بر حفظ آمادگی کامل نیروهای آمریکایی افزود که واشنگتن برای دفاع از خود و پاسخ به «تجاوزات توجیه‌ناپذیر ایران»، در حالت آماده‌باش قرار دارد.
@@ -298,26 +317,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75958)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-07 02:14:15
-
-
-
-سیریک در هرمزگان
-پیام‌های دریافتی:
-پایگاه نیروی دریایی سپاه بندر سیریک  رو همین الان دوباره زدند. همون
-لوکیشن چند روز پیش.
-شهرستان سیریک صدای لانچ موشک ساعت  ۲:۱۴
-سلام ساعت دو ده دیقه
-پنج تا انفجار نیرو دریای سپاه سیرک هرمزگان
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75957)
 
 ---
 
