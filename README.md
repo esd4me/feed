@@ -3,7 +3,98 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
+
+
+
+فرماندهی مرکزی ایالات متحده: "نیروهای سنتکام موشک‌ها و پهپادهای پرتاب‌شده از سوی ایران را منهدم کردند"
+ترجمه ماشین:
+تمپا، فلوریدا — نیروهای آمریکا در تاریخ ۵ ژوئن، چندین موشک بالستیک و پهپاد ایرانی را که از سوی ایران به سمت تنگه هرمز و کشورهای همسایه در خلیج فارس پرتاب شده بودند، رهگیری کردند.
+ایران چند ساعت پس از آنکه فرماندهی مرکزی آمریکا، سنتکام، چهار پهپاد تهاجمی یک‌طرفه ایرانی را که به سمت تنگه هرمز پرتاب شده بودند سرنگون کرد، هفت موشک بالستیک به سمت کویت و بحرین شلیک کرد. این پهپادهای تهاجمی تهدیدی فوری برای تردد دریایی منطقه‌ای محسوب می‌شدند. نیروهای آمریکا سپس برای دفاع در برابر حملات دریایی بیشتر، سایت‌های راداری نظارت ساحلی ایران را در گورک و جزیره قشم هدف قرار دادند.
+ارزیابی‌های اولیه نشان می‌دهد شش فروند از موشک‌های پرتاب‌شده از سوی ایران رهگیری شده‌اند و موشک هفتم به هدف مورد نظر خود نرسیده است. در حال حاضر هیچ گزارشی از آسیب‌دیدن نیروهای آمریکایی وجود ندارد و ادعاهای ایران مبنی بر واردکردن خسارت به مقر ناوگان پنجم آمریکا در بحرین نادرست است.
+نیروهای سنتکام همچنان هوشیار و در آمادگی کامل هستند تا در چارچوب دفاع از خود، به تجاوزات بی‌دلیل ایران پاسخ دهند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75965)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-06 08:01:07
+
+<img src="https://cdn4.telesco.pe/file/WY2wWF420IE1vY9dvDK0_7_7-N3sWjID-eTyu4IRBehvLeMQwCkBEQHEbMT1TAj2b_vHAtV3B-5epl4QYctpupY5aQWbAk0JL9GWd2TJub8Hlg7RnxlJVZ68Us_nMzXHRXIGgQsI5ZOWFFq2sMV8ZEEQObBve97p-f86R7hljV6YwPJv99WxtwAMf2iMFGxSsvnCxvBkFVsNtl45j6NWxRmZIvnip66xduHHo1tN2Fp0UaFuwGui-MF_Kl6fyH18PMiN25AZSIsVApnPgXoq_S8N4zqkhn7y9n2o3nYFkh_UyCmY6PzMQFqdvMeMG7Bq7pSrD2mSuGgDQpYDIIav-A.jpg" width="400"><br>
+
+روابط عمومی سپاه، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرد: «به دنبال حملات ارتش آمریکا به سیریک و جزیره قشم، پایگاه‌های دشمن در منطقه مورد اصابت موشک‌های هوافضا قرار گرفتند».
+@
+VahidOOnLine
+سپاه در بیانیه‌ای با اشاره به اخطار خود در ساعت ۱:۳۰ بامداد شنبه به چهار نفتکش که قصد خروج از تنگه هرمز را داشتند، گفت یکی از این نفتکش‌ها را هدف قرار داده و متوقف کرده است و دیگر شناورها نیز به عقب برگشتند.
+طبق این بیانیه، در ساعت ۲:۳۰ بامداد نیز پهپادهای آمریکایی یک دکل مخابراتی در قشم و یک دکل را در سیریک با دو پرتابه هدف قرار دادند که نیروهای هوافضای سپاه متقابلا با موشک‌های بالستیک به پایگاه هوایی علی‌السالم آمریکا در کویت و تاسیسات ناوگان پنجم نیروی دریایی آمریکا در بحرین حمله کردند.
+در همین حال، ستاد فرماندهی مرکزی آمریکا، سنتکام، در بیانیه‌ای با اشاره به اینکه در حال حاضر گزارشی از آسیب به نیروهای آمریکایی وجود ندارد، اظهارات مقام‌های سپاه درباره آسیب زدن به مقر ناوگان پنجم آمریکا در بحرین را تکذیب کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75964)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-06 08:01:07
+
+<img src="https://cdn1.telesco.pe/file/p-rmcLzVEnFIxg3jAW_MTKgd1yC6BN8tSVbDWiDrVzc8zxGt56N395z2G9X23-4ECc3iFt6JZxPXxYRhBEbCa91VEhz57mHfgXAUx6iGNrNbVAxS_vHoCuBTyAbgFqszI9kvGQoNu6TJMtkdiOruDDv4tp67mI-tyQMVD2UYiDv2pP4P9ivvVnDioNi-3Egi9_m6Q6kmXopxZWT3KIIJ5Ulo2yF9v3I2nCUkal4-021xU6tfLe-w0UyAMK60bGbT-7ftvQP_onTNEAz1_enTNI7NX-aI_TDXeqidLTT4M6JpO6wDgW7NQ4ExfkEF1ELbSQs80Ci_j3LBRIGhvS4mGg.jpg" width="400"><br>
+
+'رد موشک‌های شلیک شده از ایران'
+تصاویر دریافتی از استان‌های فارس و بوشهر
+آپدیت:
+وزارت کشور بحرین نیز دقایقی قبل از به صدا در آمدن آژیر خطر خبر داد و از مردم خواست به اماکن امن بروند.
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75961)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-06 08:01:07
+
+<img src="https://cdn1.telesco.pe/file/a-GQBaJHaq77ZtqA8ZNAQATyPl77_BHoK-Iq9-BSozdqA-GEpJogccJuyRpt7nuhvRIb9Hhb505xkkck83MhXe4mwj-vEbAOJYDQ6kvBXAcfzDLlnHtY9CEsKCEOcFsqgL6jjAFuHBg-nYxsHgyVUjjWCZZdL4gXxT2fxaL4tuxJ_RPAUL31Ecw20vmR9zoKdkUdai4bNgyeEdrdpiQ1FdUDRh4Ht1ou6VSgbzurnKxtFbtkkNL69uRHbBuPJTnQSrqUbOE6lcmO3a63VnhvBcCTIvXmPmEsJRtQEDl591uc2PxUYLeud2ktMauAoTCOsJalfbe3zJQxu_PirHzOWA.jpg" width="400"><br>
+
+شلیک موشک‌هایی دیگر از ایران همزمان با صدور هشدآری دیگر در کویت
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75960)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-06 08:01:07
+
+<img src="https://cdn1.telesco.pe/file/FoRp0ESEEESZnGBvJ_D5CFyAc8qyJjhDrxs3m--Fq2zzYW3JCnSsUBwDwwkj3Ox3rEqH6jSeWkg2MispnyGdt85eVMTGyN4P3G4qa-H5AYd8CRpIVHi7Ujlu-lUpofq9fgmvpAQh-hFLtw8JnxNU__z7PiF6nO12z8jaJX-Unwbfumo0I7PfL9SLCoLa62kGdk6ZVowX1c_NZ8eAvNNe6Ncq1XbS8HHHzmNNeS49pDwN0ykJRe2ele4-MptRcn2Deh7WXuj5JxlWecyClfbokczkE-8O_gZ7RTBoWrf47W5UIlcGK1415GjC-z92LMBvedMNbi77mO-rtwinubfsag.jpg" width="400"><br>
+
+پیام‌های دریافتی: اعلام هشدار در کویت
+آپدیت:
+ارتش کویت دقایقی قبل از فعالیت پدافند هوایی کویت برای مقابله با «حملات موشکی و پهپادی خصمانه» خبر داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75959)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 <img src="https://cdn4.telesco.pe/file/C67yUJTaaG9XHFqiKOpHMqHmOT9FHtBKsbBvIHtNZCzbydxEs6oQ8hxhYIBocI7GMsx1HQJ3QSmlVuth3Z_HI6Ree9MSnERURg6ZGhsK5oTzY2AU4udKcbQd13t1ZmISZ-92rRBzB42ZM1jsBrwtvGqL2NjgOw_xBqLZ6ErpQLoUOJqx8E5uS_CGquKi2VAIONvdh7DXdg6tFbcHlD4A3g7m0rmEneCYz0atLCHnX7-5ODC36tHYPAT6Xx2ODafCZ9q4_Mu3E32ElLYlzKyrhxXPaRfHC35jwPOCwaaaFsjgf-EUONqGtyT7P1riPsZoQGgwIqYdaLWkYChqOpR00w.jpg" width="400"><br>
 
@@ -20,7 +111,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 
 
@@ -40,7 +131,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 <img src="https://cdn4.telesco.pe/file/bzjxAOe5kcLRgl7YNvrKwTo9V6ICcLpx7tlzxwdEtBAZOzi62rbChgsRDZaMAjqifUv8pmfSX7fiiTSVnmT-ElKUgBON78eIR9typDPUBiz-fmQgrYc--4V-dRPpmheMzPZ1YlConTePviY23xN1Th1simr90vaNFwQd2qbAIRx8_TJt17y0UDemCB-WiePDi-acCLMp1i1Bx9py8bh7AlMvxugzOjGMyaYPxAA9y0FpgakTAt57itsMXSQpfnMUySXAL1aQY0ipdHqbkSshb8aywcbWsZCWitl8xi3jp0ddQ4e5R1JjHRDmOONcY7L6WWC7OxIqohFztxLwQLINag.jpg" width="400"><br>
 
@@ -59,7 +150,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 <img src="https://cdn1.telesco.pe/file/XlWwuzeBH_ss6hPggUaomIqnXvrLuXfWX6cu-D7RB1cocNCSkAUpmIMNmG7zKnubXMd7168ysEBAog52XA6g_G_O9904Q1jVuAOHho5gt5LUoU2YIo4Epr_-WDvBbuJd_XcQv6h_mnaQkzh4Q3vnc8ShNKono4ALEELhuI_ZE8_r3_s1HzXaywbTobVeZ2jy6wgYzVbmY94KmK39pp93RfvNPxS9RwEORTkaW94CmPQb99Tq3R2Vjy_oG3J_bO63knx6_E-7ZrgxuODVCypyyWpF-dtQ9jIX2eK18c3vKOrllX5zUrIgT3FvpsdsBJ8aBwhfzyH4pz9qBcfhjBTCOg.jpg" width="400"><br>
 
@@ -81,7 +172,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 
 
@@ -96,7 +187,7 @@ beehnam
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 <img src="https://cdn4.telesco.pe/file/ArHPvBajPoQQwxYi7NIuu37FISpe-3Fd42n2_kYoPRkwy7nQ8oydYoAq1XdCgfgf9hWIZ9oj4u9Dt_92EJbQBCCkruS7XxYEZktG2OJPodBvpzp0KG8smryzjvHE7jdGnKpJbbyj6a7SX39kMtV-dJ9qf3dx2v-W-V8ieIBIhoZyUDogU57A5rZrZZHxy39Hdei4dScbijPN-XRmzkfQRst3eW68dv2MAHXk12K8tyHuRkMchwaiXPMqY3dzWlpakUJw-O70JCBLGMNR-dof-auEZ-mJ1ZJK-SfdQ5qfmDCCsKAG9V7-Qj8LJJXnu_gnRhxk7kiWU92U2AMoXIpWkw.jpg" width="400"><br>
 
@@ -117,7 +208,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 <img src="https://cdn4.telesco.pe/file/WShDeSZ9xQ2Ra5en6F_-se3g6SErpcmXUlyI5m-HeFXyINCQ6CXO1zswiZvfcLMuzSkAqTh5yoLnhsqbEATlGOS0hiZkb5ogOTD5ozZfDpPPoXUfo2lfceimzEMVPxDWnDyXdCkAnniuSUGq984KYixJQ3vY756O9aM1SbZuCyrS_WPVyJIYxTITZ4Y60F1VT1skx8_9YMMcUrRGLfcpZH2RCLgrF5kczgGwfEtqmiy8MhP-qdky_56S99aplCRQaralk9tzZqfoLiLDVUv964ZNVMXAW-TPLjQPpfaYtHIAU1KYPCVEDTDyLFGEwmgwqju6qxBDTwI4nPrIrkk5AA.jpg" width="400"><br>
 
@@ -139,7 +230,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 
 
@@ -188,7 +279,7 @@ BrmTheGreat
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 <img src="https://cdn1.telesco.pe/file/X2OvuP2w2rTGwreIXbF6VtTv6YtceiPKOyXarTHlqw5sXTSfOetW4npdaJpktyTBpczqsPZP_ljlq-YXtdbJ1Dvxi0s7w_lKylr_5YHOX_c8qBPm_kWCJYvh5-Ftj_JtpbQvLHE6aVNfT8J0oKKXCMUV0jdYCKsp4YHjVFWQQNgaX6oJrcgfnmSRe-DcAedYGBnI_e7xOjIv1_NPTDQVa15bpHrW6uj42Hfd11DJXmfIec3mVhSVF5aNYYho0X14i5hgCdSliSIMEeYlXB9OSTMF1i5UILI13FqoMG8MnB8nqMEVeVkXMrECyRzZxFzwGTW3YtipCwvoR6Z_XKoviA.jpg" width="400"><br>
 
@@ -211,7 +302,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 <img src="https://cdn4.telesco.pe/file/uAeVWz8TnZAv5aTw00H3pBVCX18SXRhKIpTRzdJz4PUbHT4G6ve00WWGQo780DOEkL0fkF1j8rzQDtuMvu0p0CMu64_aJoHwJtZxT0OU_dFRzIg7K4f-Elm8cy1FRtUT9lbJtsdQv8CE-bl7KR1u1W7R77HExSpE1ZpVEfXqEIBViP-RVV4M9A0M5mrCKnKS14Yu4AEg99slN3Twtrg-UrqbnaIo2FGJw905Rx008SZ6tMrfCHCzcqXgDAXkSqHZNZrwqX09QksrTvAiaTAk0SqPfjkaZhu6i1IEWC-wEexbJt4ij35UcmlEpUF6o-TjcYWDWV9B0Pov51BaWix-BA.jpg" width="400"><br>
 
@@ -231,7 +322,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 03:48:15
+###### 🔵 Updated at: 2026-06-06 08:01:07
 
 <img src="https://cdn1.telesco.pe/file/tTSuELwa5YXjA4qxabEuc-HdUYZ_ZRwmSfLHi_mRfhymdxHfANFzx2C_vLYnO1KcnXChMU4eHjnvoJcXFEzHIYbXpJyj4-uZn-SaFV3GPsmP8VviBVbOsrtMGOHysk1Su3CZA_ILoAvRLD13io_lO3Nxx1k7ejktqIvqFEYGIWga8bnsFCVl--XtqhdhLB36wM9H6hN1aMI-Q_vZx1GsavzE_PJPHj1_zCyiXGhF7xQKhIBNym_gAqoVfGs4nT8Uuh5aeQ8CY6LT9H0RV_4wz4IIusYk84kIc7Kaj59-rwCdPtVXgz7RJNv0JMK7Ln0zkx00SMvlMxBByS39_f5y-g.jpg" width="400"><br>
 
@@ -245,155 +336,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75946)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 03:48:15
-
-<img src="https://cdn4.telesco.pe/file/GTehDdxnMln3etsx70yxebAyPwVHWlX59vxhv3-U-zR6yJ2cb3imIaBX5l21UPG1JKeAZf07FbLWHTw5j4MjO87gFauvzHqxSGcCTtvGPj0wcYUB7dZ1UdxR1m3m1NiE4QSAdR3Qu_h3uSQ8Nvam5SMHq2eLInXQvxBAtS1cVqYXNl6UxktNzA3hzVyrcD8N7aYc1lJ3KN2QZ_DVJyuh5l151bR4UJmaephuarsidShYXOpSTCF-IkdYv3LPG8y4uD5G1jmbThjX53BL4IFARKi9YTCR1cAOuLl0kDryn1WCHzMT8hvnhNEh9_erhsYES7DmyiTB_DIu8QL1gXLv8Q.jpg" width="400"><br>
-
-علی کمالی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، توسط شعبه ۲۶ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده‌است.
-رسانه‌ حقوق بشری هرانابا اعلام محکومیت علی کمالی به اعدام، نوشت این حکم در حال حاضر در دیوان عالی کشور تحت بررسی قرار دارد.
-به‌گفته هرانا شعبه ۲۶ به ریاست ایمان افشاری در اواسط اردیبهشت سال جاری حکم را صادر کرد. کمالی که دارای اقامت مالزی است، ۲۲ دی‌ماه ۱۴۰۴ در تهران بازداشت
-شد و اکنون در زندان تهران بزرگ نگهداری می‌شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75945)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 03:48:15
-
-<img src="https://cdn1.telesco.pe/file/G8EvJ3Mz-A5wzFmQxWXib8lBioQSqht3_ZcAUpBv5oacVYGyvcpa8WwcHK09tZdnUnUK4XPb3f567uPHYQB30Lef8MtZyfZWkM2gamqibcJShR67mUZm3BP7dxMm2zcFl4XdP7cellpzty4jVDpanN8YCdya9FUMw0IPv9Qb8Gl8MsoH2bT_AvF2V2Ht4UuzBOg1DrwCwMJ34VYUvjSls3tImTQAAwM9XaZ-w1Tqws1JnczCXSwlAmRDMrGqhr8cFQloTtvdhzlS3-yLAhuGa41XFMHxkC8bHZiSJ401oZEmW_5rv-ffs5GzMhjoz8FMLrpe7pAsrhgWDF_hNK6Fjw.jpg" width="400"><br>
-
-خبرگزاری رویترز به نقل از دو منبع در روز جمعه گزارش داد که پایانه نفتی مینا الفحل در عمان پس از وقوع یک انفجار در نزدیکی اسکله‌ها، عملیات بارگیری نفت را متوقف کرده است. به گفته این منابع، انفجار ظاهراً در پی یک حمله پهپادی رخ داده است.
-@
-VahidHeadline
-AJENews
-هنوز مشخص نیست این حمله دقیقا چه زمانی روی داده است.
-بر اساس داده‌های کشتیرانی ال‌اس‌ای‌جی، روز جمعه چند نفتکش بسیار بزرگ در نزدیکی این بندر لنگر انداخته بودند.
-رویترز در ادامه
-نوشته
-:‌ رسانه‌های دولتی ایران روز چهارشنبه گزارش دادند جمهوری اسلامی یک کشتی نظامی آمریکا را که «مرکز کنترل و فرماندهی» توصیف شده بود، هنگام نزدیک شدن به آب‌های سرزمینی ایران در دریای عمان هدف قرار داده است، اما ستاد فرماندهی مرکزی آمریکا، سنتکام، این گزارش‌ها را رد کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75944)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 03:48:15
-
-<img src="https://cdn1.telesco.pe/file/hvM6Xxd4RmNdYQId4DRMkwMxw26L4iLxY59PZHm3ynNnfNY4CcI-mTg_2Jf-Dn53Le3HiFjQV0q_Kl4pi-9_eXEv0PFLbTkfgu2N2A6GC4vGY9UHCJDQmGlvm3E6wgROjWRqje7vjmpWkrSKr1UnjBCUYkQ_RazXe5lzZGaYWUSNfmIIhA2S-rWRHUmbVzdEo3QdyqhFLbJgGNTj9WxO1ku0yl3DTOk34nKHABA1KYt40-1De9Lhwk4ogxfNzDzg4QPHKpCR_NAIU4xq9BJuyBVpuzcqEbVQ5u6Y04cPbigiZ90ATQl7j72LGNQGfwPl0iNAJQu_qEK3-dMmdsQnJA.jpg" width="400"><br>
-
-🔻
-ترامپ: ایران نباید سلاح اتمی داشته باشد
-دونالد ترامپ، رییس‌جمهوری آمریکا، در کاخ سفید در پاسخ به این که اگر حکومت ایران نیروهای آمریکایی را بکشد، آیا جنگ با جمهوری اسلامی را از سر خواهد گرفت، گفت: «این دلیل خوبی برای چنین کاری خواهد بود. اگر آن‌ها نیروهای آمریکایی را بکشند، فکر می‌کنم خیلی سریع دست به این کار بزنم.»
-ترامپ درباره جمهوری اسلامی تاکید کرد: «آن‌ها نمی‌توانند سلاح هسته‌ای داشته باشند.»
-رییس‌جمهوری آمریکا گفت: «ما برای به‌دست آوردن اورانیوم غنی‌شده آن‌ها به توافقی با ایران نیاز نداریم.»
-او درباره کمک ناتو به بازگشایی تنگه هرمز نیز گفت: «ما به آن‌ها فرصت دادیم که کمک کنند، اما نخواستند کمک کنند. این موضوع برای آن‌ها بسیار پرهزینه خواهد شد، چون نباید چنین کاری می‌کردند. باید کمک می‌کردند.»
-🔻
-ترامپ درباره جنگ: چه از نظر نظامی و چه روی کاغذ، ما پیروز خواهیم شد
-دونالد ترامپ، رییس‌جمهوری آمریکا درباره جنگ ایران گفت: «چه از نظر نظامی و چه روی کاغذ، ما پیروز خواهیم شد. بخش اصلی این است که تنگه فورا باز خواهد شد.»
-ترامپ افزود: «آن‌ها (جمهوری اسلامی) هیچ نیروی دریایی ندارند، هیچ نیروی هوایی ندارند. ما آن‌ها را نابود کرده‌ایم.»
-او ادامه داد: «رهبری‌شان را از بین برده‌ایم و تقریبا همه آن‌ها را نابود کرده‌ایم. بعد در رسانه‌های جعلی می‌خوانید که آن‌ها در جنگ خیلی خوب عمل می‌کنند. واقعا باورنکردنی است. ما هر چیزی را که می‌شد نابود کرد، از بین بردیم.»
-🔻
-ترامپ: حکومت ایران درباره توان و اراده آمریکا دچار اشتباه محاسباتی شده است
-دونالد ترامپ، رئیس‌جمهوری آمریکا، در نشست کابینه در کاخ سفید با اشاره به مذاکرات جاری و وضعیت تنگه هرمز گفت یکی از محورهای اصلی توافق، بازگشایی فوری تنگه هرمز برای عبور و مرور کشتی‌ها است و تأکید کرد آمریکا «هم در میدان نبرد و هم در عرصه دیپلماسی» پیروز خواهد شد.
-رئیس‌جمهوری آمریکا مدعی شد توان نظامی جمهوری اسلامی به‌شدت تضعیف شده و گفت: «آن‌ها دیگر نیروی دریایی و نیروی هوایی مؤثری ندارند. ما تقریباً همه توان نظامی و ساختار رهبری آن‌ها را نابود کرده‌ایم.»
-او در پاسخ به پرسشی درباره احتمال ازسرگیری جنگ در صورت کشته شدن نیروهای آمریکایی توسط حکومت ایران گفت چنین اقدامی می‌تواند دلیل کافی برای اقدام نظامی جدید باشد و در آن صورت آمریکا «بسیار سریع» واکنش نشان خواهد داد.
-ترامپ همچنین درباره ذخایر اورانیوم غنی‌شده ایران گفت آمریکا در مقطعی گزینه خارج کردن این مواد را بررسی کرده بود، اما به دلیل نیاز به حضور طولانی‌تر نیروهای آمریکایی از این طرح صرف‌نظر شد. به گفته او، واشینگتن همچنان توانایی دسترسی به این مواد را دارد.
-وی افزود آمریکا با استفاده از سامانه‌های پیشرفته نظارتی و امکانات فضایی، تمامی مناطق مورد نظر را به‌طور کامل زیر نظر دارد و هرگونه تحرک را رصد می‌کند.
-ترامپ درباره احتمال دیدار با مجتبی خامنه‌ای نیز گفت شخصاً تمایلی ندارد و چنین پیشنهادی را هم مطرح نکرده است، اما اگر چنین دیداری انجام شود، با احترام برخورد خواهد کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75943)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 03:48:15
-
-<img src="https://cdn1.telesco.pe/file/OpODWKC5etyBGk0b5BKhE0MGccAG396tRP7-oHmppWudBtfXwImMWQpRPRt_8PTRa8De6SueENrAGOMmdXRtnoW6Fq6VVoGYtWgrwLxbgV_nBq0gG92Hx_15wYUeuFucgk9H-AeAESV9gk1ApoZgcQjIUavHTv2OUFfMuXuVEmw5XD3phABvQpd8qmkOdQ3R0UtkIwoGWd3IEV_qogajfk5xK6lvqLD1vwrGo0CSEM97Z7qsFDCmYVZPgBLXS4_yFflQ8IWa1mAELiO3bSDLhHcgPTzKjnqG3QdNG03tRuWIxcKfskaQ_gvuV-P4iwD_vuE7ly9BVzXrM9sQ-aRU3g.jpg" width="400"><br>
-
-العربیه پنجشنبه شب ۱۴ خردادماه، به نقل از منابع اختصاصی گزارش داد محسن نقوی، وزیر کشور پاکستان، برای پیشبرد مذاکرات میان جمهوری اسلامی ایران و آمریکا به تهران سفر می‌کند.
-به گفته این منابع، سفر نقوی در چارچوب تلاش‌های میانجی‌گرانه اسلام‌آباد میان تهران و واشنگتن انجام می‌شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75942)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 03:48:15
-
-<img src="https://cdn1.telesco.pe/file/g1SxIzXmuysQ59FiJLpi74i7w6lyYno0jEahyojyxZ1Spww2L4LBBOE3oiquV5cExyFNGurFgvU_CipRLbHesRTXB7eSFQIqgdnhtkBJxVXbP9Cf4NfHneJfvo1LUXOq9y2ACVjvOIfx18zpV9jmsS8HjZF3U8ueR7XZ6rcjZ4yy34ynwcK9RHLIfC-dTMVQ9o_aIrLdPDjeFiv6qWoBMTR6KX3u_oXytIdLJADEXwGrBKKYwFTPgx3rocSSBicDlZ_qnzoZ-5X-WG2HO3VzvjPtN09TrVGAauWBO20rYcSAK3SIOcnIZY5EYTRU66uVnZkX_Ge5JHR5A0bo84ryzA.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه گفت ایالات متحده بر جمهوری اسلامی غلبه می‌کند، یا با توافق یا با عملیات نظامی.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75941)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 03:48:15
-
-<img src="https://cdn4.telesco.pe/file/cnZJOllE-XRPsTwckgltPsZb-kIKXQgWOlnqb2xIwSaY2tCByrkyxLS2S8djAI_SpsGrvDWPL3Pg9M_dToquKB-P2HrMg74a2aXxeaUMK21Xcv7R4v9j7jy0PzWCytCQl_OL6M7eaZx1QGj1QUw14bnJ0Sq22i_TtWkCAdBdY4S8XSJMDQ8g_FvU5RDqkgS6ZRmV9qhbIYTr92lNZnLl5U1VzDz5fmuu6Xb8r7saOT6B6SB-bhEit4KDt-EfHbKZfMSrYe1o6CmFecJlPe5aB3mLqMIbEZTVRND2to-zAsA-J6PdHxfr5puYf_4GzEM1JOWVrals3KrUVc9LaTra5Q.jpg" width="400"><br>
-
-آژانس بین‌المللی انرژی اتمی پنج‌شنبه ۱۴خرداد۱۴۰۵ در گزارشی به کشورهای عضو، بار دیگر از جمهوری اسلامی خواست «به‌طور فوری» درباره سرنوشت ذخایر اورانیوم غنی‌شده خود پس از حملات سال گذشته آمریکا و اسراییل به تاسیسات هسته‌ای این کشور توضیح دهد.
-در این گزارش همچنین از مقامات جمهوری اسلامی خواسته شده تا زمینه ازسرگیری کامل بازرسی‌ها را فراهم کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75940)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-06 03:48:15
-
-<img src="https://cdn1.telesco.pe/file/qn9Z1SHVuqqXlSHUEZNutWii2LWJov9p7sp6eP9rNtcayGwbzORPiQf6_n2zD6qiXqJ-lyVjCCyobrkyBNAbU5p8vCAJ--ViriwPHmL6y0tHjQBuWJ7gIBIvY6dPjvyE39WUoVtmAlUKvhBD91Fi_dJU83lfdSlG3p0Lf8kFrxXvSLlDD0lyQs5mhGPZTQEeSQS2ve_8-ECm03pwThOqliFLsy-RFjmlOQL5s2sFFp27bcXC8j9WO2Ywwk1nkbWN23TnkZ6fhOAmL4_4Sw8wEpXX-dhWg6tRD6EOSMBGv7uf7pw_BGuNgliLCE1jZ0WbBPycNosO2oaRd4wIDHbE5Q.jpg" width="400"><br>
-
-دبیرکل گروه حزب‌الله طرح آتش‌بسی را که دولت‌های لبنان و اسرائیل در مذاکراتی با میانجی‌گری آمریکا بر سر آن توافق کرده بودند، رد کرد.
-ایالات متحده روز چهارشنبه اعلام کرده بود که لبنان و اسرائیل بر سر اجرای یک آتش‌بس به توافق رسیده‌اند؛ توافقی که مشروط به توقف حملات حزب‌الله و خروج نیروهای این گروه از مناطق مرزی جنوب لبنان است.
-@
-VahidHeadline
-نعیم قاسم، دبیرکل حزب‌الله لبنان، توافق دولت لبنان با اسرائیل که با میانجی‌گری آمریکا تدوین شده است را «تسلیم و شکست تمام‌عیار» توصیف کرد و گفت حزب‌الله تنها به توقف کامل حملات، آتش‌بس و خروج اسرائیل از خاک لبنان متعهد است.
-او همچنین خلع سلاح حزب‌الله را به معنای از بین رفتن قدرت لبنان دانست و تاکید کرد این موضوع برای حزب‌الله قابل پذیرش نیست.
-پس از توافق آتش‌بس میان اسرائیل و حزب‌الله لبنان، آمریکا برای حل‌وفصل اختلافات مرزی و مسائل امنیتی میان دو طرف نقش میانجی را بر عهده گرفته است. در همین حال، موضوع خلع سلاح حزب‌الله و نحوه اجرای آتش‌بس همچنان از مهم‌ترین محورهای اختلاف میان دولت لبنان، حزب‌الله و اسرائیل به شمار می‌رود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75939)
 
 ---
 
