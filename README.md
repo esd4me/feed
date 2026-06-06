@@ -3,7 +3,26 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
+
+
+
+👀
+رویترز به نقل از منبعی آگاه گزارش داد که آمریکا در حال بررسی تحویل دارایی‌های بلوکه شده ایران به کشورهای خلیج فارس جهت بازسازی و جبران خسارات ناشی از حملات جمهوری اسلامی است
+رویترز خبر داد که وزیر خزانه‌داری آمریکا به تیم خود دستور داده خسارات واردشده به کشورهای خلیج‌فارس در حملات جمهوری اسلامی را بررسی کنند
+رویترز به نقل از یک منبع آگاه خبر داد که آمریکا دارایی‌های ایران را برای حمایت از بازسازی و جبران خسارات آینده ناشی از حملات جمهوری اسلامی را در اختیار کشورهای خلیج فارس قرار خواهد داد
+رویترز به نقل از این منبع نوشت که آمریکا همچنین بررسی خواهد کرد که آیا می‌توان از دارایی‌های ایران برای جبران خسارات گذشته نیز استفاده کرد یا نه
+IranIntlbrk
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75976)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 
 
@@ -18,7 +37,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn1.telesco.pe/file/dJaN6hlVK3bH4LejJvRduf4huAcIFmbNZUQTbjtLFjidM8Xysby1Fmv26mIgTIoZL65Er2UHOqHFCpPAkogOU9TCYivqbnYZPPFGFT6W_xUKUlO0iqLsXWi7gj22yO7_RLvgQsEKbqbOdjN7k5jqyu0WMH-FzbkHdAQCrEFnNTRm56Rh2aafWBr2u12ZGXQzo4UEWmszXs9mTf_wAhh9YTIEiRKVodiOrv6TQGwGrhBsFlxWFi7HB7LKTSjCFNzcsm4LDulmUrn954rl9Niq7gJj0Uwdrmv8OQtPLKpst_5wMDZpq4Xrod6C71ImF4g6Ll7uMi3wcUfbozPzRR3bLw.jpg" width="400"><br>
 
@@ -35,7 +54,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn1.telesco.pe/file/Ws6_jcsK9mB5jfVzfGTd2SNT96Mc0E6uZI3CRkzxHzpDamPwqdX78mc1iVjgau7dmXbkIU5rHo_0R2ZqdSSceuDIHFTOy5fsoVeWk2y3HDFsP7CvtTXqcP0WphpPd7y_wFP8a8F6dIwh844pzhzu2ONshwBHtxp0jRPDS2Uhv3ml9Ta4l-XJi5peVmUhkKnagValk7C0bq4vOe7DOH_ZRpMxvB0xmx0vtf-DOHov-l-TIriSKl3QzgfnjVC4X1yyDiEtWnJjrNeZDg4Uog8y3rkcJPH9fRVEWWGh_uvKAKlDKOXa5VOrsVhGQW5ruOKAWtHD72EOqMUVR5Vv4ncskg.jpg" width="400"><br>
 
@@ -55,7 +74,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn1.telesco.pe/file/ok736ncFuTyMxXmN2haoNQDaBIoaAVSl6nlZN30rNYwgHkp9KsNoJ5uWJua2eMylhFRvfb3daUedmNkp--DoyAu8WKLHAGH01VxBCnHF4VBHaKTQJH0IpIYY4g1VJLUGTJGrsa4wfRgEkeIEbkgBE7HwxxM0TNPkM1a3n5qFpFhiiA86JtCwsTYa4-owvAYYoCk-MyHwA-9Yh-vdFiLpHxNMTBfq2SPkgJoRZIBajkLMRptGZWxDKoIuKUtGe2OyYIjOI7HbDxh_p1RWWa9WOWnOAqJ7icweuW2F4xTijymME0A0IxEkdvEC9MOBARITQDLNRJB8xqcQ8zyrzFIOcg.jpg" width="400"><br>
 
@@ -74,7 +93,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn4.telesco.pe/file/jGSSoxH8oGPybsCtiXlXOfmEQyvvRg5uycdsxlFrchDsAux9WCSZ-OE0bFNwQUfQyMWDIWvjbLLXY4h98ZmQfHy-HXyxBaCh8RHnoixeuQL_xoVr4hbP0H5yEW6m1TaykKdxISXXTUNKy-iZpXti4K49Y7W-3efKDCRcgmj4tgznl5HRq6R_9ZeT-_QDoCb10qK4t5ei4YGz5VXV8rWHxillbxd1-vh4VphGfW3G1H2BcznnuW67rxrt-vL8XBp61HWb8xQQspgGEygSarscL8LPO6QfgoRmqSAH6EDE_Si3Ub6qx_B72Fwf__R9oD035KL0Nzb_TTAWok2SesL8_g.jpg" width="400"><br>
 
@@ -91,7 +110,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn1.telesco.pe/file/jqJ_XnIGxi0beE3eDcppS1YrsJ2goTXsuSAQ25d7bSEalh7QCBqGQy5Y-yXbkyxpSp3P9kf0G39ASfDgQXafmUaNvYicMYlM9RAD9A8XvlKkk0AG5ICIv3zDvbwbCSyDlhPJBny_4C9zV1Bs-cm2NhgOJR8ih09NOSL6Tx-092le-S0uoj8tHGWN-93dsvDbAsjOOnDGZrtZ1cCXqHOzY8iqE15Id7KVFyrMPxKD883ygkgq5r-lWXFI62ILenrXXWzPhy--qJpu4YR6NPLdeC6Ytk85st_4Gk95zDDnZSKyaGyqg0XwYzEPiLNoDePulPS2SYVgZ5rYN63CvVB2Tw.jpg" width="400"><br>
 
@@ -116,7 +135,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 
 
@@ -139,7 +158,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn4.telesco.pe/file/kLQmkQN68KbDzeUNr-YYFNMgrypUiOhX0CnoEZ6TKeV1a_JHXzuwqw2qUosc_v7OPgzkuXqO7hiyCLZUaLiQ2B2HdqyBFoDHnHC7WVmKaZWE3TvXh2lOkwIfgXx8ZP54ynL19dl6mryhAH8IgIBPdvRbkNa9LK1_tjV7k0xXffkRJsHMSH92LZw3EgFLZt1nWSpLKYKQHrymP_NrtEt0X1rwUcAuP6G1NaLOlNeIXfDwtN4WxIgBx7uc5n4O84w45ZR3_aRKDZJbYdLGSlh_0JoAY1k8mRcx8uXIVNcBK7L_ZNsaw8IDFSGSw9Nfg_W64dQniJZPs-Njk00_3Li-Zg.jpg" width="400"><br>
 
@@ -158,7 +177,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn4.telesco.pe/file/Y1Tt6Y_n4REH6FJNK82vlQ6560VEqmMAsqeUQe2ZUhHsKefW3wZ9jTuwPr0ovsUI17LLfPAnYInIcfXYCPU-hrTq4_N64gJcxtHED-TPw8Yh8Qwxj7EDv-UJrxa9d2zVrUi2LbdNMxTIdcY7fUN6hjxuI7IiBJ4ujI9HYdQE2XB-AdYQlyywQveMaT-ZYqJLtZcZU2ibhcIcZDN1C07s6p4HqbIJON2YclR2_x6QoL8oA5IdWGU8vqW6Oj0XjBdUGn6V_N9nG2T7sKXX_8BYmY8F9JathLBA1CBlmDIFjuDXEFihgBkeyDgqvo4d8zKJj0OGdwnsGtx6EIDQDWUYUg.jpg" width="400"><br>
 
@@ -176,7 +195,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 
 
@@ -196,7 +215,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn4.telesco.pe/file/WY2wWF420IE1vY9dvDK0_7_7-N3sWjID-eTyu4IRBehvLeMQwCkBEQHEbMT1TAj2b_vHAtV3B-5epl4QYctpupY5aQWbAk0JL9GWd2TJub8Hlg7RnxlJVZ68Us_nMzXHRXIGgQsI5ZOWFFq2sMV8ZEEQObBve97p-f86R7hljV6YwPJv99WxtwAMf2iMFGxSsvnCxvBkFVsNtl45j6NWxRmZIvnip66xduHHo1tN2Fp0UaFuwGui-MF_Kl6fyH18PMiN25AZSIsVApnPgXoq_S8N4zqkhn7y9n2o3nYFkh_UyCmY6PzMQFqdvMeMG7Bq7pSrD2mSuGgDQpYDIIav-A.jpg" width="400"><br>
 
@@ -217,7 +236,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn1.telesco.pe/file/p-rmcLzVEnFIxg3jAW_MTKgd1yC6BN8tSVbDWiDrVzc8zxGt56N395z2G9X23-4ECc3iFt6JZxPXxYRhBEbCa91VEhz57mHfgXAUx6iGNrNbVAxS_vHoCuBTyAbgFqszI9kvGQoNu6TJMtkdiOruDDv4tp67mI-tyQMVD2UYiDv2pP4P9ivvVnDioNi-3Egi9_m6Q6kmXopxZWT3KIIJ5Ulo2yF9v3I2nCUkal4-021xU6tfLe-w0UyAMK60bGbT-7ftvQP_onTNEAz1_enTNI7NX-aI_TDXeqidLTT4M6JpO6wDgW7NQ4ExfkEF1ELbSQs80Ci_j3LBRIGhvS4mGg.jpg" width="400"><br>
 
@@ -235,7 +254,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn1.telesco.pe/file/a-GQBaJHaq77ZtqA8ZNAQATyPl77_BHoK-Iq9-BSozdqA-GEpJogccJuyRpt7nuhvRIb9Hhb505xkkck83MhXe4mwj-vEbAOJYDQ6kvBXAcfzDLlnHtY9CEsKCEOcFsqgL6jjAFuHBg-nYxsHgyVUjjWCZZdL4gXxT2fxaL4tuxJ_RPAUL31Ecw20vmR9zoKdkUdai4bNgyeEdrdpiQ1FdUDRh4Ht1ou6VSgbzurnKxtFbtkkNL69uRHbBuPJTnQSrqUbOE6lcmO3a63VnhvBcCTIvXmPmEsJRtQEDl591uc2PxUYLeud2ktMauAoTCOsJalfbe3zJQxu_PirHzOWA.jpg" width="400"><br>
 
@@ -249,7 +268,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn1.telesco.pe/file/FoRp0ESEEESZnGBvJ_D5CFyAc8qyJjhDrxs3m--Fq2zzYW3JCnSsUBwDwwkj3Ox3rEqH6jSeWkg2MispnyGdt85eVMTGyN4P3G4qa-H5AYd8CRpIVHi7Ujlu-lUpofq9fgmvpAQh-hFLtw8JnxNU__z7PiF6nO12z8jaJX-Unwbfumo0I7PfL9SLCoLa62kGdk6ZVowX1c_NZ8eAvNNe6Ncq1XbS8HHHzmNNeS49pDwN0ykJRe2ele4-MptRcn2Deh7WXuj5JxlWecyClfbokczkE-8O_gZ7RTBoWrf47W5UIlcGK1415GjC-z92LMBvedMNbi77mO-rtwinubfsag.jpg" width="400"><br>
 
@@ -267,7 +286,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 <img src="https://cdn4.telesco.pe/file/C67yUJTaaG9XHFqiKOpHMqHmOT9FHtBKsbBvIHtNZCzbydxEs6oQ8hxhYIBocI7GMsx1HQJ3QSmlVuth3Z_HI6Ree9MSnERURg6ZGhsK5oTzY2AU4udKcbQd13t1ZmISZ-92rRBzB42ZM1jsBrwtvGqL2NjgOw_xBqLZ6ErpQLoUOJqx8E5uS_CGquKi2VAIONvdh7DXdg6tFbcHlD4A3g7m0rmEneCYz0atLCHnX7-5ODC36tHYPAT6Xx2ODafCZ9q4_Mu3E32ElLYlzKyrhxXPaRfHC35jwPOCwaaaFsjgf-EUONqGtyT7P1riPsZoQGgwIqYdaLWkYChqOpR00w.jpg" width="400"><br>
 
@@ -284,7 +303,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 00:06:23
+###### 🔵 Updated at: 2026-06-07 01:13:46
 
 
 
@@ -299,25 +318,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75957)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-07 00:06:23
-
-<img src="https://cdn4.telesco.pe/file/bzjxAOe5kcLRgl7YNvrKwTo9V6ICcLpx7tlzxwdEtBAZOzi62rbChgsRDZaMAjqifUv8pmfSX7fiiTSVnmT-ElKUgBON78eIR9typDPUBiz-fmQgrYc--4V-dRPpmheMzPZ1YlConTePviY23xN1Th1simr90vaNFwQd2qbAIRx8_TJt17y0UDemCB-WiePDi-acCLMp1i1Bx9py8bh7AlMvxugzOjGMyaYPxAA9y0FpgakTAt57itsMXSQpfnMUySXAL1aQY0ipdHqbkSshb8aywcbWsZCWitl8xi3jp0ddQ4e5R1JjHRDmOONcY7L6WWC7OxIqohFztxLwQLINag.jpg" width="400"><br>
-
-🔻
-وب‌سایت آکسیوس گزارش داده است که استیو ویتکاف و جرد کوشنر، فرستادگان دونالد ترامپ، روز پنجشنبه برای رایزنی با گروهی از کارشناسان فنی به آزمایشگاه ملی اوک‌ریج در ایالت تنسی سفر کردند.
-به نوشته آکسیوس، کاخ سفید در تلاش است با ایران بر سر یک تفاهم‌نامه برای پایان دادن به جنگ و آغاز مذاکرات تفصیلی هسته‌ای «به توافق برسد» و می‌خواهد در صورت آغاز این مذاکرات، تیم کارشناسی لازم را آماده داشته باشد.
-به گفته منابع آمریکایی و منطقه‌ای، تهران و واشنگتن همچنان بر سر برخی جزئیات این تفاهم‌نامه اختلاف دارند، اما مذاکرات وارد مراحل پایانی شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75956)
 
 ---
 
