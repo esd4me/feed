@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn4.telesco.pe/file/Y1Tt6Y_n4REH6FJNK82vlQ6560VEqmMAsqeUQe2ZUhHsKefW3wZ9jTuwPr0ovsUI17LLfPAnYInIcfXYCPU-hrTq4_N64gJcxtHED-TPw8Yh8Qwxj7EDv-UJrxa9d2zVrUi2LbdNMxTIdcY7fUN6hjxuI7IiBJ4ujI9HYdQE2XB-AdYQlyywQveMaT-ZYqJLtZcZU2ibhcIcZDN1C07s6p4HqbIJON2YclR2_x6QoL8oA5IdWGU8vqW6Oj0XjBdUGn6V_N9nG2T7sKXX_8BYmY8F9JathLBA1CBlmDIFjuDXEFihgBkeyDgqvo4d8zKJj0OGdwnsGtx6EIDQDWUYUg.jpg" width="400"><br>
 
@@ -21,7 +21,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 
 
@@ -41,7 +41,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn4.telesco.pe/file/WY2wWF420IE1vY9dvDK0_7_7-N3sWjID-eTyu4IRBehvLeMQwCkBEQHEbMT1TAj2b_vHAtV3B-5epl4QYctpupY5aQWbAk0JL9GWd2TJub8Hlg7RnxlJVZ68Us_nMzXHRXIGgQsI5ZOWFFq2sMV8ZEEQObBve97p-f86R7hljV6YwPJv99WxtwAMf2iMFGxSsvnCxvBkFVsNtl45j6NWxRmZIvnip66xduHHo1tN2Fp0UaFuwGui-MF_Kl6fyH18PMiN25AZSIsVApnPgXoq_S8N4zqkhn7y9n2o3nYFkh_UyCmY6PzMQFqdvMeMG7Bq7pSrD2mSuGgDQpYDIIav-A.jpg" width="400"><br>
 
@@ -62,7 +62,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn1.telesco.pe/file/p-rmcLzVEnFIxg3jAW_MTKgd1yC6BN8tSVbDWiDrVzc8zxGt56N395z2G9X23-4ECc3iFt6JZxPXxYRhBEbCa91VEhz57mHfgXAUx6iGNrNbVAxS_vHoCuBTyAbgFqszI9kvGQoNu6TJMtkdiOruDDv4tp67mI-tyQMVD2UYiDv2pP4P9ivvVnDioNi-3Egi9_m6Q6kmXopxZWT3KIIJ5Ulo2yF9v3I2nCUkal4-021xU6tfLe-w0UyAMK60bGbT-7ftvQP_onTNEAz1_enTNI7NX-aI_TDXeqidLTT4M6JpO6wDgW7NQ4ExfkEF1ELbSQs80Ci_j3LBRIGhvS4mGg.jpg" width="400"><br>
 
@@ -80,7 +80,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn1.telesco.pe/file/a-GQBaJHaq77ZtqA8ZNAQATyPl77_BHoK-Iq9-BSozdqA-GEpJogccJuyRpt7nuhvRIb9Hhb505xkkck83MhXe4mwj-vEbAOJYDQ6kvBXAcfzDLlnHtY9CEsKCEOcFsqgL6jjAFuHBg-nYxsHgyVUjjWCZZdL4gXxT2fxaL4tuxJ_RPAUL31Ecw20vmR9zoKdkUdai4bNgyeEdrdpiQ1FdUDRh4Ht1ou6VSgbzurnKxtFbtkkNL69uRHbBuPJTnQSrqUbOE6lcmO3a63VnhvBcCTIvXmPmEsJRtQEDl591uc2PxUYLeud2ktMauAoTCOsJalfbe3zJQxu_PirHzOWA.jpg" width="400"><br>
 
@@ -94,7 +94,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn1.telesco.pe/file/FoRp0ESEEESZnGBvJ_D5CFyAc8qyJjhDrxs3m--Fq2zzYW3JCnSsUBwDwwkj3Ox3rEqH6jSeWkg2MispnyGdt85eVMTGyN4P3G4qa-H5AYd8CRpIVHi7Ujlu-lUpofq9fgmvpAQh-hFLtw8JnxNU__z7PiF6nO12z8jaJX-Unwbfumo0I7PfL9SLCoLa62kGdk6ZVowX1c_NZ8eAvNNe6Ncq1XbS8HHHzmNNeS49pDwN0ykJRe2ele4-MptRcn2Deh7WXuj5JxlWecyClfbokczkE-8O_gZ7RTBoWrf47W5UIlcGK1415GjC-z92LMBvedMNbi77mO-rtwinubfsag.jpg" width="400"><br>
 
@@ -112,7 +112,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn4.telesco.pe/file/C67yUJTaaG9XHFqiKOpHMqHmOT9FHtBKsbBvIHtNZCzbydxEs6oQ8hxhYIBocI7GMsx1HQJ3QSmlVuth3Z_HI6Ree9MSnERURg6ZGhsK5oTzY2AU4udKcbQd13t1ZmISZ-92rRBzB42ZM1jsBrwtvGqL2NjgOw_xBqLZ6ErpQLoUOJqx8E5uS_CGquKi2VAIONvdh7DXdg6tFbcHlD4A3g7m0rmEneCYz0atLCHnX7-5ODC36tHYPAT6Xx2ODafCZ9q4_Mu3E32ElLYlzKyrhxXPaRfHC35jwPOCwaaaFsjgf-EUONqGtyT7P1riPsZoQGgwIqYdaLWkYChqOpR00w.jpg" width="400"><br>
 
@@ -129,7 +129,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 
 
@@ -149,7 +149,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn4.telesco.pe/file/bzjxAOe5kcLRgl7YNvrKwTo9V6ICcLpx7tlzxwdEtBAZOzi62rbChgsRDZaMAjqifUv8pmfSX7fiiTSVnmT-ElKUgBON78eIR9typDPUBiz-fmQgrYc--4V-dRPpmheMzPZ1YlConTePviY23xN1Th1simr90vaNFwQd2qbAIRx8_TJt17y0UDemCB-WiePDi-acCLMp1i1Bx9py8bh7AlMvxugzOjGMyaYPxAA9y0FpgakTAt57itsMXSQpfnMUySXAL1aQY0ipdHqbkSshb8aywcbWsZCWitl8xi3jp0ddQ4e5R1JjHRDmOONcY7L6WWC7OxIqohFztxLwQLINag.jpg" width="400"><br>
 
@@ -168,7 +168,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn1.telesco.pe/file/XlWwuzeBH_ss6hPggUaomIqnXvrLuXfWX6cu-D7RB1cocNCSkAUpmIMNmG7zKnubXMd7168ysEBAog52XA6g_G_O9904Q1jVuAOHho5gt5LUoU2YIo4Epr_-WDvBbuJd_XcQv6h_mnaQkzh4Q3vnc8ShNKono4ALEELhuI_ZE8_r3_s1HzXaywbTobVeZ2jy6wgYzVbmY94KmK39pp93RfvNPxS9RwEORTkaW94CmPQb99Tq3R2Vjy_oG3J_bO63knx6_E-7ZrgxuODVCypyyWpF-dtQ9jIX2eK18c3vKOrllX5zUrIgT3FvpsdsBJ8aBwhfzyH4pz9qBcfhjBTCOg.jpg" width="400"><br>
 
@@ -190,7 +190,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 
 
@@ -205,7 +205,7 @@ beehnam
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn4.telesco.pe/file/ArHPvBajPoQQwxYi7NIuu37FISpe-3Fd42n2_kYoPRkwy7nQ8oydYoAq1XdCgfgf9hWIZ9oj4u9Dt_92EJbQBCCkruS7XxYEZktG2OJPodBvpzp0KG8smryzjvHE7jdGnKpJbbyj6a7SX39kMtV-dJ9qf3dx2v-W-V8ieIBIhoZyUDogU57A5rZrZZHxy39Hdei4dScbijPN-XRmzkfQRst3eW68dv2MAHXk12K8tyHuRkMchwaiXPMqY3dzWlpakUJw-O70JCBLGMNR-dof-auEZ-mJ1ZJK-SfdQ5qfmDCCsKAG9V7-Qj8LJJXnu_gnRhxk7kiWU92U2AMoXIpWkw.jpg" width="400"><br>
 
@@ -226,7 +226,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 <img src="https://cdn4.telesco.pe/file/WShDeSZ9xQ2Ra5en6F_-se3g6SErpcmXUlyI5m-HeFXyINCQ6CXO1zswiZvfcLMuzSkAqTh5yoLnhsqbEATlGOS0hiZkb5ogOTD5ozZfDpPPoXUfo2lfceimzEMVPxDWnDyXdCkAnniuSUGq984KYixJQ3vY756O9aM1SbZuCyrS_WPVyJIYxTITZ4Y60F1VT1skx8_9YMMcUrRGLfcpZH2RCLgrF5kczgGwfEtqmiy8MhP-qdky_56S99aplCRQaralk9tzZqfoLiLDVUv964ZNVMXAW-TPLjQPpfaYtHIAU1KYPCVEDTDyLFGEwmgwqju6qxBDTwI4nPrIrkk5AA.jpg" width="400"><br>
 
@@ -248,7 +248,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
 
 
@@ -297,9 +297,9 @@ BrmTheGreat
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
-<img src="https://cdn1.telesco.pe/file/X2OvuP2w2rTGwreIXbF6VtTv6YtceiPKOyXarTHlqw5sXTSfOetW4npdaJpktyTBpczqsPZP_ljlq-YXtdbJ1Dvxi0s7w_lKylr_5YHOX_c8qBPm_kWCJYvh5-Ftj_JtpbQvLHE6aVNfT8J0oKKXCMUV0jdYCKsp4YHjVFWQQNgaX6oJrcgfnmSRe-DcAedYGBnI_e7xOjIv1_NPTDQVa15bpHrW6uj42Hfd11DJXmfIec3mVhSVF5aNYYho0X14i5hgCdSliSIMEeYlXB9OSTMF1i5UILI13FqoMG8MnB8nqMEVeVkXMrECyRzZxFzwGTW3YtipCwvoR6Z_XKoviA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/C4bXyOsyb00K_qkSaRgIDXznqQGZILHFSN4BmheM-ztUNYEjErdgsAjHihSwL85QPZ-7-w7_x5O4nGBvXsRZokdNU3elb1BvYli9QbzUip7mAmeXTo_dNhYUYWY1xjG62rbCO779frLWxeXcqhmPzlmBjzFAri2sIe_4ZIt8thwlzakK4qFsB_fttBop7V20lB_sVRdYYe-WU_9A1ueSwZi9MXzuXzo9ayNwehpw6uj7cuCndH2O_6E2igz4wukCruABX0bfCP0TLI0GlsVwsn9bzLuVK9tllQi0Xz1Bo8xj9oSyWXeUqJxekYWsy6nBdyJOaulc3mp1a98vHNEBjQ.jpg" width="400"><br>
 
 شبکه خبری الحدث، روز جمعه ۱۵ خرداد ماه به نقل از «منابعی آگاه» گزارش کرد تهران موافقتش با انتقال بخشی از ذخایر اورانیوم خود به یک کشور ثالث را به اسلام‌آباد اعلام کرده است.
 بر اساس این گزارش، اصلی‌ترین اختلاف باقی‌مانده در مذاکرات میان تهران و واشنگتن به موضوع آزادسازی دارایی‌های بلوکه‌شده ایران مربوط می‌شود و نحوه و سازوکار آزادسازی این اموال همچنان یکی از شکاف‌های مهم میان طرفین به شمار می‌رود.
@@ -320,9 +320,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
-<img src="https://cdn4.telesco.pe/file/uAeVWz8TnZAv5aTw00H3pBVCX18SXRhKIpTRzdJz4PUbHT4G6ve00WWGQo780DOEkL0fkF1j8rzQDtuMvu0p0CMu64_aJoHwJtZxT0OU_dFRzIg7K4f-Elm8cy1FRtUT9lbJtsdQv8CE-bl7KR1u1W7R77HExSpE1ZpVEfXqEIBViP-RVV4M9A0M5mrCKnKS14Yu4AEg99slN3Twtrg-UrqbnaIo2FGJw905Rx008SZ6tMrfCHCzcqXgDAXkSqHZNZrwqX09QksrTvAiaTAk0SqPfjkaZhu6i1IEWC-wEexbJt4ij35UcmlEpUF6o-TjcYWDWV9B0Pov51BaWix-BA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OuCRp5exqlqrAKabkG-JuDbQgQpHPBdko3ggnRwRiOjxzFYvmF_rQMlRZG0QdfwKpF6jClafYJVIEKHU11vfqwGxjW-QfQ_VgVvh2zrS985va3imac_SPiwXAGZzckEpFfnax38cx3AWZ6DS1JGPR6fRbm98-czYK-R1xj5K5Hx1uArwOnpOLbAjAHHxCm1OsuhEoucrHs7BGgu7b-PoKij9ujFMshHTGd1R1f1Lj3N2wqe8BNGpPzpWoWIBmcf4o-PBBSjM7DNSjo4pIa_QaMR7Ly2MKgtu2z1TrV6vfU4uG1evWCtx2fTBQlY0hqtJt3GB6dFryO8gcEvTlGaLaQ.jpg" width="400"><br>
 
 جوزف عون، رئیس‌جمهور لبنان، در مصاحبه‌ای که روز جمعه منتشر شد، از ایران خواست در امور لبنان دخالت نکند. او همچنین به گروه حزب‌الله، متحد مورد حمایت تهران، گفت که تنها راه‌حل درگیری با اسرائیل، دیپلماسی است.
 او در این گفت‌وگو با شبکه خبری سی‌ان‌ان خطاب به ایران گفت: «این کشور شما نیست، کشورِ ماست... دخالت در کشور ما وظیفه شما نیست.»
@@ -340,9 +340,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-06 17:41:56
+###### 🔵 Updated at: 2026-06-06 19:13:29
 
-<img src="https://cdn1.telesco.pe/file/tTSuELwa5YXjA4qxabEuc-HdUYZ_ZRwmSfLHi_mRfhymdxHfANFzx2C_vLYnO1KcnXChMU4eHjnvoJcXFEzHIYbXpJyj4-uZn-SaFV3GPsmP8VviBVbOsrtMGOHysk1Su3CZA_ILoAvRLD13io_lO3Nxx1k7ejktqIvqFEYGIWga8bnsFCVl--XtqhdhLB36wM9H6hN1aMI-Q_vZx1GsavzE_PJPHj1_zCyiXGhF7xQKhIBNym_gAqoVfGs4nT8Uuh5aeQ8CY6LT9H0RV_4wz4IIusYk84kIc7Kaj59-rwCdPtVXgz7RJNv0JMK7Ln0zkx00SMvlMxBByS39_f5y-g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/PiYt2Dy4OiYr9Bu-1JnuZQu94KFGoLb-Z6ZNptRROFdH6vnrIX5NujsgWjyb_h-x4FNraJeQ6egq1C839m2Xb8UkR50bqV1RclFH3B4BmY7h_B_5-Ogtcjmf8iNU4-ySd1mGKFoOrDi0jnXRuRxsMUD3uxM_iRHQbAJsq4t1FZV0i2hGCp8afn1dsp--tJWfdarts8uh21lZUkjsP0HWKo9yokc1mWXM1Yk6GQuyopI1qDX1QxaCz2hckvMF4-janxFOUI1VyghbowoZi8IMXIQL9x1Ov8VC4NmpoMdoQkWZHIHtKchjJUE_xOjCNxpIZo6FzaDYWgsqcsew1apzww.jpg" width="400"><br>
 
 ستاد فرماندهی مرکزی ایالات متحده، سنتکام، ادعای ارتش جمهوری اسلامی درباره شلیک موشک و پهپاد به سمت ناوشکن‌های آمریکایی در دریای عمان را تکذیب کرد.
 رسانه‌های ایران روز جمعه به نقل از ارتش اعلام کردند که نیروی دریایی آن به عنوان «اخطار» به سمت دو ناوشکن آمریکایی «موشک قدیر و پهپادهای تهاجمی جدید» شلیک کرده و این دو ناوشکن دریای عمان را به سمت اقیانوس هند ترک کردند.
