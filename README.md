@@ -3,7 +3,46 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
+
+
+
+پیام‌های دریافتی از شنیده شدن صدای جنگنده در تهران که لابد داخلی است:
+سلام وحید جان ۲۱:۳۲ شمال غرب تهران صدای شدید جنگنده
+درود وحید جان
+صدای جنگنده (؟) غرب تهران
+۲۱:۳۲
+صدای جنگنده غرب تهران ساعت ۹:۳۲
+بازهم مرکز تهران صدای جنگنده یا هواپیما رو نمیدونم ولی خیلی پایینه ساعت ۲۱:۳۳
+شهرک غرب
+صدا جنگنده
+صدای جنگنده ساعت ۲۱:۳۵ دقیقه، شمالغرب تهران
+مرکز تهران صدای جنگنده میاد شدییید
+صدای نامتعارف جنگنده در مرکز تهران از ساعت ۲۱:۳۳
+غرب تهران صدا جنگنده داریم 9.32
+۹:۳۱ شهرآرا صدای جنگنده میاد وحشتناک خیلی پایینه
+سلام الان نیروهوایی صدای خیلی عجیب میاد صدای جنگنده ست انگار خیلی بلنده
+سلام وحید . ساعت ۹ و ۳۳ دقیقه شب مرکز تهران صدای جنگنده میومد واضح . ۱۷ خرداد .
+سلام ساعت ۲۱ و ۳۳ دقیقه شنیده شدن صدای جنگنده زیاد ، امیرآباد تهران
+صدای جنگنده میاد سمت مرکز شهر
+آپدیت: کلی پیام مشابه میاد که دیگه نقل نمی‌کنم. درباره صدای هواپیما اهمیتی نداره که در کدوم محله شنیده شده.
+بین پیام‌های اولیه دو تا پیام هم بودند که نادرست به نظر می‌رسند:
+سلام وحید، اینجا شهریار صدای موشک میاد. احتمالا از بیدگنه جمهوری اسلامی داره موشک میزنه
+وحید از بیدگنه موشک زدن ۲۱:۲۸
+صداش تا فردیس اومد قشنگ
+آپدیت:
+در پیام‌های بعدی روی این تاکید می‌کنند که صدا طولانی بود و چند دقیقه طول کشید.
+بعضی‌ها هم نوشتند این بار هم هواپیمای مسافربری بوده با رفتاری عجیب و پرواز با ارتفاع کم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/75994)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn1.telesco.pe/file/KBwwrpkuXXsNASnIwAFF1BH-hJaNwo7gd_xwN86gwQs-x6_fHVQcGacgudO5LYO5hz8Nll90iGzyHYZMo23YFdgH5yyfAOjnwqQweGrtGFzm3lvbA8OTiNKgQXDLC23zdN0gsWHeZbBKXmTnB6io6o1fS7kSOSQpW9b4HwQcIeYQ660fp8w41vdz_RW2yOduxGXkZOh5ygY0tFQzcVKyhIlIGylTG8P4FqJ-zQlriEO6qlPSWuvV5BL__E5YfI9bmiJ8ygMVrJFLseFxLThJuowHNCdw8n-UCZ1NdIz4vnXmAnT5YVm38VP5ZbrgNcP1shFxWrUsT-_yJY0BrfnSsQ.jpg" width="400"><br>
 
@@ -19,7 +58,7 @@ drpezeshkian
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn1.telesco.pe/file/oUjieCrOn8wEmCIVvsxoRQbQzQXzOF3an0HCiBDh5C8B8uo6gdWNdNF3I5Lmto27KV8VYquFhi8BSCjI4xROpKszMkU14TcmKnaBpGSY9_jolxG1UiWHdI0fH_w6I-zF7QL3F_olnyGNFyTOyGLPNX3QmyetiD047I1ZPJTCMakZnAB1xBvEm6yiuEplHh4h8FGqVAAfa0rGsky8eFhGI7Sf2nPfARjkb_HtMva8zP9Sl5jvUFXpjnv2HMkgW1TAoyZj-ujFUV1I1JNTyjsbLU0mN62w6Vqfi8_0WFv9Lwf2TSBSt84mydQYAINmrqhGhxUtBtxvKFFYGMQGGRYy8Q.jpg" width="400"><br>
 
@@ -40,7 +79,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn1.telesco.pe/file/mSPeEgJe9lAxWospZvpQY-KZAEgY5KZD21KieJbgLIinDDUoGD-paNHG3f1MD6TOx1Dnu-gvM2EBjT2D0ATzlCULO9kQ82_zTv7EeDSH0CIiFdEJUqfAdJnDcJ77Z-yjfgHHHfFA3WlH46QhDhAvO-mojiW3EVLesJj0iSU-uR1sP2Z4zfUa9ENWUtCcASVJkzpyWeW_dkQGQuIt_cFli3FZo0BAwxKJHMLaSPLNpvx0Of9r_x7vHU6HVcIzQw3AiSZAYr_AY18w5fOBQx3-_FfL9lwmSnTSZVBfw0-MIhaumz9MsZLoqDnZfz3cfTQGidb10lBIdOAHBx4bkelxPA.jpg" width="400"><br>
 
@@ -55,7 +94,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn4.telesco.pe/file/d-1BHsoc7LtoUMjzCTDI0nwW3SSg6IMMlVVdFzgb03HL8xTgSAgSz6yXRTx_3dWjU7tH7UqQJHB3dyEBVUCQ4smoPAcl3k47NBhiArFI3ugAV9Wgy9PFHq6SJsskZfyjm8vcENXc8n-7BVEJiUKh-Ist_vnJjMIE863o1ukXfpX0ax71CK0yDHVwSq7LrLEk9F81iHjxhcDJLQ8nkC2sr_sTYSHdMkDsfyl2k6NlYjrO00uVH1l3TxgrCUqZhPBerh-1jVVGc0xTXCAxwxP-nw4EafnKjGjs_fQgGQioRV1yBF5gP4_RaHc9Pzp7-oTjbMAeu9ZCevBgr4cLQ_8Kjg.jpg" width="400"><br>
 
@@ -74,7 +113,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn1.telesco.pe/file/KauOIoIwIUKF8PpSx4irAHCkO4JR5MoG_GXySj0qOadexX8_XbfOHPYJSn9hwAMpjynEQWVnJkccPPHcsbJlwKsJNJ2hfNclqO7PcoB57YqmAKVsIHqD3lr8SqXeAfqRDpqI1odwr0e8g6BJJUyQ8qmRgokdMMOM9lGcC3fv3HR4n9gIGyZuMJxex5WCwU59yynRoLWvp3Rdgx5FoZ_JPrXIN9Hl1gJa-kTdxVAo_nsvZYEqn1SZ1eadDGYRcDKdvuRlCUE_ZnhxNtPeMa0c7V_Q7LE0Op98z9TRi3pwvZPjC2mHygkKxUA7hSmet11S2HxjJqA09vB-pY5YLZOwLQ.jpg" width="400"><br>
 
@@ -100,7 +139,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 
 
@@ -124,7 +163,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 
 
@@ -143,7 +182,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn4.telesco.pe/file/hYabQFFKkzllgmZOsMOBro2GrOI7Cuxeqn_akmMHBH_dVXMmgWZvD-7cYqrufnYEP0BlVyuL87tCGTBZ9DqNzUdPFPG2s8sMsSEXi8vEiUwOhmSBzINyRbnOP54owYHvrMIOZUPZFCcT-2hTfpNuPrn0AelFKT5zmV9cuQh2q-XZ5J2kdwFH3y69lMnPOrsBCmEE2ESEhgNRIRs3eiXG-izxJwvRyU7eGDruTKOb-E0NtaO2aYmkr9idIo0wJ8WIQDrN2IQvVqm_-t3SRdFAwS7uiFLYN9Wh3yMltWPCd6qkGrckh2-Mmybb-cSeOJpU5JmlMlqTm1KE6f9YsqJ9hA.jpg" width="400"><br>
 
@@ -161,7 +200,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn4.telesco.pe/file/AUhirIV7-L7MYhRxjfJZljGwvJqguWq0QCRATVJPG3iCzlEqguEPrhzfVBmMt68HDUpXLv9GearopvMiPts_Bgg7LsQwxqwXfhRT6jG6gM61KSKHNe5Qd1Klh4M3xu3tlkPbhRMQUGXKGfMEwNoukhac5Pi09YtdKZRsxEs_5UH3eB_tUVYS_vNxLc78jsnf2SJ6xSvUYL5SRapIS0MkwLkbsZAHNJP40dP9d8LHq3iWqzdGTjc1B3uvkl-gC-njoAuEFIntJnHSn5LRJZy9BZi_vtHj9P-cuD_NubG62GrdN2mxfCj3YBNTZ7SRjdY0jaMsfGdrlJucVBuvAN7Q4A.jpg" width="400"><br>
 
@@ -179,7 +218,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn4.telesco.pe/file/FDSa-JBp1iBwHd4V3GQ04EM0F2mY_7_E3i-XlsbvvExIDSJ04nqOU1KbaOI9PQn9O7x-g_7VLELXQnjXZQnSLUiAWVfZU4YquFmKSXmyuhWeu7a-kOXdxr06ZLNNeLgq9i-d6NVB2JYHLAZMhtkGPNGFgFhOjn4aN4GjJHnh7anSCTat4N1mFmwXGuaqn5Y2aArmrVXqEB5vB4oMUOC4CP3AnCwuqfZinua0Iq70CNFxrO7NmZWJ-GjNq4f0TNyfPOemCJZSRPIEpgTrDm6t0s0V8Nyx0QRtaX54UQklUYt7_whoXajQbDQiSsX_DIl0aXnXj_Fse4e0R2F2TWC1jg.jpg" width="400"><br>
 
@@ -195,7 +234,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn1.telesco.pe/file/Y4V3yodlu2V3fBcqMru1ETGRrSQwyiJYbaOE_I3aRY2KLU1DiaycsjN_Y63yslQaa7nv28bVJEG0CjpHR4oWtn0X5WWd8Peg75bmsm_4hruEx4A7V4PVVuk-VsOL7_oQSU7_OyGSUaVvovKPw9cv3nbxsZ0CnYVKvOXLGy3-KVkGzhB4_cG1b0iSzGsECqY1YVV7CCdnRcP95toWcPErAVWSmCdEpOC2-qES6ge6RwoSvwqb95MU_kM7c_FmMjKfySaFb-lWphmcXhwL-E0ZWYntSURiCk7JUZXrJvBmBiBPzVvWneo-2iliJ4W2fsFHIR-baqJlNFi5JoA03QYMCw.jpg" width="400"><br>
 
@@ -212,7 +251,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn4.telesco.pe/file/qJih5IIx-j5tyrx_WmyUDZ0-uMyR3kOhG_8t5-LU1BAsxLL020FZbnZSyuHDaPNPRnbK9S0XLV17gmBMkRYrbIOfgCbXavNlOcss2jltkeJ273hJRVmHgIQdvVgWUPj-gT8GOQHyj5x5h35JZoBHSLYqrlreXDiDjG7YhAVdC3T1Q8qgrUHIZZsYY5HNuv_Ro3Z9MTELvAinXAqswno221La6G-JBiBg_AWj5dCsRS9VVhhY8NLoz4JyJ4NEoHtag7_h29R87VrX4gMT2_HLRWxnHAS1fypPcUPJxVYRa0kf2VzcSRHnKrGZ9-w7_Pu8UpdSWe0klIYZJMKoSQb1Uw.jpg" width="400"><br>
 
@@ -231,7 +270,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 <img src="https://cdn1.telesco.pe/file/byIm0fHlF0IDSQ9q605SiaOkxZ3fd5RGz_OYezWqJ8H1BVbBaw0Gkzz89hUOuGP2lz5XKzO7FwwOpHodL6amX9qoFPHFUHGkKaOsgTTJlW4JDVhGSvMHbUaaanJBVJmRbsjvHb12Ur6GfFWRfga7mhyu3Q9V1fcCMDOrK7-ODFgbL9f1Akev6Mbx27oDGMpS0pOj8rE9PMdj2gPX5tmAkT2vF3gmubLlp4tgfS1zckqj8VRfnOn5jgjx71VpKg-mprVUerFMYRwAD4DJtVSJCzOlAkosfR2z6HMF83EbNLNGu-d_5T5onn-9YPP9sddOtT3RxgdfZOgBLcJcR7nS4Q.jpg" width="400"><br>
 
@@ -250,7 +289,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 21:13:37
+###### 🔵 Updated at: 2026-06-07 22:27:48
 
 
 
@@ -260,23 +299,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75975)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-07 21:13:37
-
-<img src="https://cdn1.telesco.pe/file/dJaN6hlVK3bH4LejJvRduf4huAcIFmbNZUQTbjtLFjidM8Xysby1Fmv26mIgTIoZL65Er2UHOqHFCpPAkogOU9TCYivqbnYZPPFGFT6W_xUKUlO0iqLsXWi7gj22yO7_RLvgQsEKbqbOdjN7k5jqyu0WMH-FzbkHdAQCrEFnNTRm56Rh2aafWBr2u12ZGXQzo4UEWmszXs9mTf_wAhh9YTIEiRKVodiOrv6TQGwGrhBsFlxWFi7HB7LKTSjCFNzcsm4LDulmUrn954rl9Niq7gJj0Uwdrmv8OQtPLKpst_5wMDZpq4Xrod6C71ImF4g6Ll7uMi3wcUfbozPzRR3bLw.jpg" width="400"><br>
-
-احمد خاتمی، عضو مجلس خبرگان، در دیدار با اعضای شورای اداری شهرستان سیرجان با اشاره به وضعیت جسمانی مجتبی خامنه‌ای، گفت: در جریان حمله روز نخست جنگ، او از ناحیه پا دچار آسیب‌دیدگی شد؛ به‌گونه‌ای که احتمال قطع پا نیز مطرح بوده، اما این اتفاق رخ نداد و او هم‌اکنون در سلامت به سر می‌برد.
-این در حالی است که از روز ۹ اسفند سال ۱۴۰۴ و حمله به دفتر علی خامنه‌ای، هیچ تصویر یا فایل صوتی از مجتبی خامنه‌ای منتشر نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75974)
 
 ---
 
