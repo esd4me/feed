@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn1.telesco.pe/file/mSPeEgJe9lAxWospZvpQY-KZAEgY5KZD21KieJbgLIinDDUoGD-paNHG3f1MD6TOx1Dnu-gvM2EBjT2D0ATzlCULO9kQ82_zTv7EeDSH0CIiFdEJUqfAdJnDcJ77Z-yjfgHHHfFA3WlH46QhDhAvO-mojiW3EVLesJj0iSU-uR1sP2Z4zfUa9ENWUtCcASVJkzpyWeW_dkQGQuIt_cFli3FZo0BAwxKJHMLaSPLNpvx0Of9r_x7vHU6HVcIzQw3AiSZAYr_AY18w5fOBQx3-_FfL9lwmSnTSZVBfw0-MIhaumz9MsZLoqDnZfz3cfTQGidb10lBIdOAHBx4bkelxPA.jpg" width="400"><br>
 
@@ -18,7 +18,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn4.telesco.pe/file/d-1BHsoc7LtoUMjzCTDI0nwW3SSg6IMMlVVdFzgb03HL8xTgSAgSz6yXRTx_3dWjU7tH7UqQJHB3dyEBVUCQ4smoPAcl3k47NBhiArFI3ugAV9Wgy9PFHq6SJsskZfyjm8vcENXc8n-7BVEJiUKh-Ist_vnJjMIE863o1ukXfpX0ax71CK0yDHVwSq7LrLEk9F81iHjxhcDJLQ8nkC2sr_sTYSHdMkDsfyl2k6NlYjrO00uVH1l3TxgrCUqZhPBerh-1jVVGc0xTXCAxwxP-nw4EafnKjGjs_fQgGQioRV1yBF5gP4_RaHc9Pzp7-oTjbMAeu9ZCevBgr4cLQ_8Kjg.jpg" width="400"><br>
 
@@ -37,7 +37,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn1.telesco.pe/file/KauOIoIwIUKF8PpSx4irAHCkO4JR5MoG_GXySj0qOadexX8_XbfOHPYJSn9hwAMpjynEQWVnJkccPPHcsbJlwKsJNJ2hfNclqO7PcoB57YqmAKVsIHqD3lr8SqXeAfqRDpqI1odwr0e8g6BJJUyQ8qmRgokdMMOM9lGcC3fv3HR4n9gIGyZuMJxex5WCwU59yynRoLWvp3Rdgx5FoZ_JPrXIN9Hl1gJa-kTdxVAo_nsvZYEqn1SZ1eadDGYRcDKdvuRlCUE_ZnhxNtPeMa0c7V_Q7LE0Op98z9TRi3pwvZPjC2mHygkKxUA7hSmet11S2HxjJqA09vB-pY5YLZOwLQ.jpg" width="400"><br>
 
@@ -63,7 +63,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn4.telesco.pe/file/cLYxWBGDPoysYx2Ho_gwrnf6NMRQ574FBVkAWTxIuGdd1oqoUycXU5onOhPlA_lDuTdiCaq-Ac1dJF9x2bPKxg-CEJBaTwae8Wtf6jSRJl1agOTzm6Huirwo0SuPK-Wz6x_hYnuJFJ9upl37zXnS7T6Q42TcC7Us7WLGCcNv5oaSUa4zRufyafkOL60-1bqQAnjbhjEYV6cGfb1cCosGqivcRSPCSFakTCyYOoz7K5Cr3gHUsVoSd-oHsPZar1tWhbDm7AbeyAXdFmVe7uxrpz2Amva8G059Xab_Ypo-Wr3d11YME8m9wGixzmt4PqRpO7-XDdULPs0FArQPwXVJiA.jpg" width="400"><br>
 
@@ -88,7 +88,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn4.telesco.pe/file/OOFtLLpFuaQ8qfg4DvAfiDQjpUXnhUaGCNgyFazWWToEktlA4nfExw4KBnAnEW8LzeEgUfMNdIZo8qWWj-a7cp48VOWR4WWDOUYERkf9VG0xfP5V8kKoYpw2UnePutKsdSP2wvI1VzFZN6EuoRfpm1sWQ0fkFwbJzwH_eHC7-c9KihWTDx9qdMqKp1A0z9esyfgDFJia9ipzipFvec8ZAUELYUTLxDe1pHbRt9EgNZDCUbFQtIlBkFj76o7nLFsvLLUKmEjDu2ur_UJy24z3zTcZCpgHvoXySYX5g5Q7DmMiUSxYWgjBYWmzVrElSWKhgppef3Gyzp3tRxMswq_6PA.jpg" width="400"><br>
 
@@ -108,7 +108,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn4.telesco.pe/file/hYabQFFKkzllgmZOsMOBro2GrOI7Cuxeqn_akmMHBH_dVXMmgWZvD-7cYqrufnYEP0BlVyuL87tCGTBZ9DqNzUdPFPG2s8sMsSEXi8vEiUwOhmSBzINyRbnOP54owYHvrMIOZUPZFCcT-2hTfpNuPrn0AelFKT5zmV9cuQh2q-XZ5J2kdwFH3y69lMnPOrsBCmEE2ESEhgNRIRs3eiXG-izxJwvRyU7eGDruTKOb-E0NtaO2aYmkr9idIo0wJ8WIQDrN2IQvVqm_-t3SRdFAwS7uiFLYN9Wh3yMltWPCd6qkGrckh2-Mmybb-cSeOJpU5JmlMlqTm1KE6f9YsqJ9hA.jpg" width="400"><br>
 
@@ -126,7 +126,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn4.telesco.pe/file/AUhirIV7-L7MYhRxjfJZljGwvJqguWq0QCRATVJPG3iCzlEqguEPrhzfVBmMt68HDUpXLv9GearopvMiPts_Bgg7LsQwxqwXfhRT6jG6gM61KSKHNe5Qd1Klh4M3xu3tlkPbhRMQUGXKGfMEwNoukhac5Pi09YtdKZRsxEs_5UH3eB_tUVYS_vNxLc78jsnf2SJ6xSvUYL5SRapIS0MkwLkbsZAHNJP40dP9d8LHq3iWqzdGTjc1B3uvkl-gC-njoAuEFIntJnHSn5LRJZy9BZi_vtHj9P-cuD_NubG62GrdN2mxfCj3YBNTZ7SRjdY0jaMsfGdrlJucVBuvAN7Q4A.jpg" width="400"><br>
 
@@ -144,7 +144,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn4.telesco.pe/file/FDSa-JBp1iBwHd4V3GQ04EM0F2mY_7_E3i-XlsbvvExIDSJ04nqOU1KbaOI9PQn9O7x-g_7VLELXQnjXZQnSLUiAWVfZU4YquFmKSXmyuhWeu7a-kOXdxr06ZLNNeLgq9i-d6NVB2JYHLAZMhtkGPNGFgFhOjn4aN4GjJHnh7anSCTat4N1mFmwXGuaqn5Y2aArmrVXqEB5vB4oMUOC4CP3AnCwuqfZinua0Iq70CNFxrO7NmZWJ-GjNq4f0TNyfPOemCJZSRPIEpgTrDm6t0s0V8Nyx0QRtaX54UQklUYt7_whoXajQbDQiSsX_DIl0aXnXj_Fse4e0R2F2TWC1jg.jpg" width="400"><br>
 
@@ -160,7 +160,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn1.telesco.pe/file/Y4V3yodlu2V3fBcqMru1ETGRrSQwyiJYbaOE_I3aRY2KLU1DiaycsjN_Y63yslQaa7nv28bVJEG0CjpHR4oWtn0X5WWd8Peg75bmsm_4hruEx4A7V4PVVuk-VsOL7_oQSU7_OyGSUaVvovKPw9cv3nbxsZ0CnYVKvOXLGy3-KVkGzhB4_cG1b0iSzGsECqY1YVV7CCdnRcP95toWcPErAVWSmCdEpOC2-qES6ge6RwoSvwqb95MU_kM7c_FmMjKfySaFb-lWphmcXhwL-E0ZWYntSURiCk7JUZXrJvBmBiBPzVvWneo-2iliJ4W2fsFHIR-baqJlNFi5JoA03QYMCw.jpg" width="400"><br>
 
@@ -177,7 +177,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn4.telesco.pe/file/qJih5IIx-j5tyrx_WmyUDZ0-uMyR3kOhG_8t5-LU1BAsxLL020FZbnZSyuHDaPNPRnbK9S0XLV17gmBMkRYrbIOfgCbXavNlOcss2jltkeJ273hJRVmHgIQdvVgWUPj-gT8GOQHyj5x5h35JZoBHSLYqrlreXDiDjG7YhAVdC3T1Q8qgrUHIZZsYY5HNuv_Ro3Z9MTELvAinXAqswno221La6G-JBiBg_AWj5dCsRS9VVhhY8NLoz4JyJ4NEoHtag7_h29R87VrX4gMT2_HLRWxnHAS1fypPcUPJxVYRa0kf2VzcSRHnKrGZ9-w7_Pu8UpdSWe0klIYZJMKoSQb1Uw.jpg" width="400"><br>
 
@@ -196,7 +196,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn1.telesco.pe/file/byIm0fHlF0IDSQ9q605SiaOkxZ3fd5RGz_OYezWqJ8H1BVbBaw0Gkzz89hUOuGP2lz5XKzO7FwwOpHodL6amX9qoFPHFUHGkKaOsgTTJlW4JDVhGSvMHbUaaanJBVJmRbsjvHb12Ur6GfFWRfga7mhyu3Q9V1fcCMDOrK7-ODFgbL9f1Akev6Mbx27oDGMpS0pOj8rE9PMdj2gPX5tmAkT2vF3gmubLlp4tgfS1zckqj8VRfnOn5jgjx71VpKg-mprVUerFMYRwAD4DJtVSJCzOlAkosfR2z6HMF83EbNLNGu-d_5T5onn-9YPP9sddOtT3RxgdfZOgBLcJcR7nS4Q.jpg" width="400"><br>
 
@@ -215,7 +215,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 
 
@@ -230,7 +230,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn1.telesco.pe/file/dJaN6hlVK3bH4LejJvRduf4huAcIFmbNZUQTbjtLFjidM8Xysby1Fmv26mIgTIoZL65Er2UHOqHFCpPAkogOU9TCYivqbnYZPPFGFT6W_xUKUlO0iqLsXWi7gj22yO7_RLvgQsEKbqbOdjN7k5jqyu0WMH-FzbkHdAQCrEFnNTRm56Rh2aafWBr2u12ZGXQzo4UEWmszXs9mTf_wAhh9YTIEiRKVodiOrv6TQGwGrhBsFlxWFi7HB7LKTSjCFNzcsm4LDulmUrn954rl9Niq7gJj0Uwdrmv8OQtPLKpst_5wMDZpq4Xrod6C71ImF4g6Ll7uMi3wcUfbozPzRR3bLw.jpg" width="400"><br>
 
@@ -247,7 +247,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
 <img src="https://cdn1.telesco.pe/file/LVEFqTCGHQaM8F3QFFswZn7ju5TdkD341in_wSPkhrtC6KygElvk-oK6bgYcaOF69XpGIGojlZlXBnPR12v4p6S4KmG2fUF9vkS33CarAyuzfEPwmaDRdNzN8RbDo4LRx2o7nGW9585iiOM8XHLkXqDJ4usLy5lI6_C6Nr5DK1Aj_YSo0ZWLLP3u5whuGFt29wbuoDsn8ZSDJW00r3zjxuVrcB67AdWTRACZyHj0KmnX40mZvkejrPyNVJpHzdkbn2NtE6_Hd8E8QHLOjTMyki0sB4NC4vcnSABopBBiOTRNS-4J-XGVLamr5OHoR51N2GPxEw-UXtasYDgpIqqk3A.jpg" width="400"><br>
 
@@ -267,9 +267,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
-<img src="https://cdn1.telesco.pe/file/ok736ncFuTyMxXmN2haoNQDaBIoaAVSl6nlZN30rNYwgHkp9KsNoJ5uWJua2eMylhFRvfb3daUedmNkp--DoyAu8WKLHAGH01VxBCnHF4VBHaKTQJH0IpIYY4g1VJLUGTJGrsa4wfRgEkeIEbkgBE7HwxxM0TNPkM1a3n5qFpFhiiA86JtCwsTYa4-owvAYYoCk-MyHwA-9Yh-vdFiLpHxNMTBfq2SPkgJoRZIBajkLMRptGZWxDKoIuKUtGe2OyYIjOI7HbDxh_p1RWWa9WOWnOAqJ7icweuW2F4xTijymME0A0IxEkdvEC9MOBARITQDLNRJB8xqcQ8zyrzFIOcg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XQozMp8DxRKAQpRZsfs3hR6f3fUxqrlwq_eHIcIj_k6WU6yWooHG5dEw5_WjawGE4jHQrMrepfibZVyoro8QHM4TNFGJyoYr3MtwzWVRJoktnXxmi4HsmBycX4YX_fJ-DB9i8FCw5wKSjTM7ZXxcnxuUp9mfUbw3RDicfBgMF_amR4vSHvgSMFfeRkdYxdlAr8u5xfe2WgS1j_miyNL88RjQ12eW6rAtKoAZlloFTB_RxZxNRiXSTI7NPDaqvKkTz60z4_Nt_ID4KP_W3RGqQoRTi2gpapRi6Un6Tmgo6Ww96sgZejaMzO2nLPAOcqwF6ljTsEgk7zzRYrbgsNFOjQ.jpg" width="400"><br>
 
 محمدرضا عارف، معاون اول مسعود پزشکیان، در بازدید از دانشگاه علم و صنعت گفت: در جنگ‌های اخیر شاهد مهاجرت معکوس نخبگان و مردم به کشور بودیم. باید از ظرفیت ایرانیان علاقه‌مند به خدمت به کشور استفاده کنیم و با طراحی مشوق‌های مناسب، زمینه بازگشت نخبگان و استادانان را فراهم سازیم.
 او افزود: نباید دنبال این باشیم چرا استادان مهاجرت کرده‌اند، بلکه باید به بازگرداندن آنان بیندیشیم.
@@ -286,9 +286,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 18:28:34
+###### 🔵 Updated at: 2026-06-07 19:50:18
 
-<img src="https://cdn4.telesco.pe/file/jGSSoxH8oGPybsCtiXlXOfmEQyvvRg5uycdsxlFrchDsAux9WCSZ-OE0bFNwQUfQyMWDIWvjbLLXY4h98ZmQfHy-HXyxBaCh8RHnoixeuQL_xoVr4hbP0H5yEW6m1TaykKdxISXXTUNKy-iZpXti4K49Y7W-3efKDCRcgmj4tgznl5HRq6R_9ZeT-_QDoCb10qK4t5ei4YGz5VXV8rWHxillbxd1-vh4VphGfW3G1H2BcznnuW67rxrt-vL8XBp61HWb8xQQspgGEygSarscL8LPO6QfgoRmqSAH6EDE_Si3Ub6qx_B72Fwf__R9oD035KL0Nzb_TTAWok2SesL8_g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ZKrZlmoThM-W5HOttifvHzk76UGejGE03Bx7l5k7nXZz3gFsSxPtZyv5_mdoXlF2LhYVO5gyWYOperaXGiG60jztRn5fpsobvcBGd0aac80Dy0cFCVJXDPXOx_kZjA1VEluDc67LS3su4vooh4XzUdP2HbbahLjFbfRlod_eswBLx4gbogph-3OqonvNGstCtgIXjlzM56nS7mjs5Tk2L-1Bs53eTP0cnBVgVzV13JFns5A99HqWf0ze6CKn4JWwko4Pa1vMzIzQlXPHHWMkNxlW32FW-MRvm2idTJGvjN1nIJlR-282NBtxYfbCB1RaUmjBi9cUd6j7S5Ktg_JkHA.jpg" width="400"><br>
 
 وزارت امور خارجه جمهوری اسلامی در بیانیه‌ای حمله بامداد شنبه ۱۶ خرداد ۱۴۰۵ ارتش آمریکا به تاسیسات راداری و نظارت ساحلی در منطقه سیریک و جزیره قشم را «نقض آشکار آتش‌بس» و «تجاوز نظامی علیه حاکمیت ملی و تمامیت سرزمینی ایران» خواند و آن را به شدت محکوم کرد.
 در این بیانیه آمده است که تاسیسات هدف قرار گرفته، ماموریت حفاظت از امنیت مرزهای کشور و امنیت کشتیرانی در آبراه‌های بین‌المللی را بر عهده داشته‌اند.
