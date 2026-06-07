@@ -3,14 +3,18 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
-<img src="https://cdn1.telesco.pe/file/P6RYHtrcWf_GUh0B6cIZ2LrcUilSJgoFsypSuWLl_mkHTgnTFL38N8LtS78e4XLr713JCA3-sG0oKYSEXSXn1K1UOySFkZ3xg95K3ONAGLVvFz4wyNXS0T-3VYZxipsHk7ngV4TLf_UBL4r-gm9B29SPwDCxfRsePTGzmKetEoSmbdDshi93-ZDoFhBh8ryCyIAoUgFUhxu2xiChw_4XUpTQ8SSILUwAKXCKDV7B9qtO0Cr51G6b0Gyxj0NRRVM6yiEoFGhyB4iWuhIGi8QiYv_-5KJiuOJN0b2JirNryb4p6HLcPU6aJJAwbrjKCinyXaGZuNFtJze-XhGSMysZlg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/TxMWkUYBhDKN0aKdHZGLC0AIMWnYx0Q8SsSAD4JDsfk-YzQ3sbSMOnyAda0nA-RL7VcFn25kX2tyd_714O_M8md52zClaXCxGq3FqYZMLNJqLTLPhBeWdZlpkTOeYzh_tLtu4ExCudN-h_cgIYCHtqhS-N7ebenTAk_J-A00mElfi5ql596v4N4DDYvb9J5yqJyhwtdWEH_8lCMaY9nYLwPd40SbKurSw5V-kc363xoYGFaHrjPk6-QUKQVGQYYWozlU_CKcmwioZuCOkp3_X-Epcwk7MPgyQvARkQwBpOA-D-HWT_Lo9YNZSADo_Foh2Ji-BXollr_UZeeZ3gXZWw.jpg" width="400"><br>
 
-⚡️
 سایت خبری اسرائیل‌هیوم می‌گوید دونالد ترامپ در تماس تلفنی با بنیامین نتانیاهو به او قول داد که متعهد است هرگونه امکان دستیابی جمهوری اسلامی به سلاح هسته‌ای را از بین ببرد و همچنین مانع از آن شود که این رژیم تهدیدی دائمی برای اسرائیل باشد.
 @
 VahidHeadline
+بخش دیجیتال روزنامه اسرائیلی یدیعوت اخرونوت، وای‌نت، در گزارشی نوشت که آمریکا از اسرائیل خواست پاسخ تلافی‌جویانه خود به حملات تازه موشکی جمهوری اسلامی به اسرائیل را به تعویق بیندازد. طبق این گزارش، واشنگتن از اسرائیل می‌خواهد که «چند روز» صبر کند تا ببیند آیا مذاکرات با جمهوری اسلامی به توافقی منجر می‌شود یا خیر.
+اسرائیل در حال بررسی واکنش به شلیک موشکی جمهوری اسلامی است.
+@
+VahidHeadline
+ادعای یک مقام آمریکایی به کانال ۱۲ اسرائیل:  نتانیاهو «به نحوی» با به تأخیر انداختن پاسخ به حمله ایران موافقت کرده است./انتخاب
 📡
 @VahidOnline
 
@@ -20,7 +24,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/G3zB9DbzXP9Q4al6VqHv8xT91087Ijwz6QOiDvgriX4_nOaIRB-M86Yyza5CgIxie6QLT4pnFr5Z4x0NxeD0msg5DnRwW2qzFl4uXsBP89lJruH7H-t4baBX5kxpg-MpE6UiRHEqPD1ZSNpJI13M3TFrriXDj15oiq6sloJ2eu6en1lh8nRBeSNqK8jdv4BxS-9z6AEJE-CmpuKbYEgUcRyvt2hbupVlf2KB2Gd0NasuRD1HrnDKRkeWcK7msOesLuf1GbPTkJM10bvQCP6jXsK6WVrGf5NZumC0gHyRcckDfOQgmC7rIw475lYVA3IbgLG8iHltezS56_8El944gg.jpg" width="400"><br>
 
@@ -44,7 +48,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 
 
@@ -59,7 +63,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/DbMLcDWgrZzMdTDciRf7P1r1WAqgYqYE2ZWIlc09xS9hKx3yEL6HiYmP6rURIcofVL8VMItnPafl1M7_Yd0_zJNK74VEX8MCg4UF00QROIZqtzD4QCPaklQq_B1Zb7PYqhtPN0Kpzhb1SQx8SCQCjzZLLKqR_FHpn9bROi2Q1sl2zzVDKvladz-YiNm3DyI87AbFQTe6fdxdL0GSWLiGdHLVLnKSVVZ72QX3KTQzlB_GqOiAIViVdRfbyhmpubN6XxanTLUmZnMgYofUYFt6oKkiCOVg5sMhzdvsat1PN6rC2X9K47WBmUzRumioladBRwwhF4-EEAmYWkN34fcYTw.jpg" width="400"><br>
 
@@ -73,7 +77,7 @@ shamidartii
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn4.telesco.pe/file/S14CI8iLPcfUm7lAYg6WBATqYN4GQV658C9OeZx88MqgEYmYdtzydZwMH6GfEpcPDszffCpBsHybbaGwC5ojPn92GZlnpd874W9ivv7B6FDfly7Ce6yoGjLLbXYW1ZdUlMBccbrpUVYz2HLL-j_aFcf75PzBLcdCRfY7essjRnFnXWvUaf4lsBECWjYv5iGiWoJ5NS2y4EzlBpkw0jaxKlXiXPDwDbCP0EtskxU5-Ynis84_JaBBXYcsoL4N5wK_me98Xx51PHmeF67vKdSrU18y_9JPWVXDHbHQ_ZdyQgHYr6amepWwmPi0kCDJF75ZvEdYE_Z7-Kf91pL61AwBsQ.jpg" width="400"><br>
 
@@ -90,7 +94,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/Jz6fAAoq8Sp3rVhsH31MEO0c0c-OfMJU4dejYDRx2ryBvx_-fb2Bzr00UU3aX1Ja0dnzGgOrefQ-5seHUb4YY-gZOt9uuAuGzCRm0lrbeVibzKtdzSBVuEh7h4EEO2NbfpymxAmxEcV8L6cCAPPHPzhUaWVynliGowx4AN-8-_NhDgF0CZKBANkvJ-dniODDa4Xk7OM0q5MkCAE0cD6QX_qSrcNPNy808T46O9bZnxmDc7owXN6KA5pZ1DRitM1bmpHzh7BhbZX9_NgB6IgnaTCrjcXL1bBKbBCncSvbagOwDJbKqC_9bduQn31zMMZaRoCXpM31E34WuGLQQNlloA.jpg" width="400"><br>
 
@@ -114,7 +118,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/BIlTitCM8LGz7nmqpKarITiaQx1vHAx6QQndwHUyIa2k_K9-Q2yHXEajn8ZJDZn2oR1Getfg-hOaom7ga_5qSOJ9Vl1sDAzfWeQ18YFuTGvwIja3D7_Re2o0bGcJ1Yub_k4wKT3hcp-BdS5yIIBstf3s9XjNzcgTNudbz2UohfDX_2K_NBnPvI3RFx_hUUMGymc4Y7P2B2YpD9PsqJDY-aOqxOakLXvTwZG3CsU_zbjCWK11_MivzMaawEiXVqnHyMrATu9iq81mVV1c6t0ZaRi87F4O3wH_c1a6mVljARGxLl6cTWISTXRu5n1zt1Dkmndcj7Pw-9P5xDAxu0csbA.jpg" width="400"><br>
 
@@ -140,7 +144,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/GTG0O_nSytzIyUH2US2n0Xi6P_LtLAlQYrfi0jA1rOGtAsq5GWadK1nbMMWgaLLdQYMGtQI7gw0KhnvOX9gLIWvklXquqan0RSqx5ttJwKM1wFpPkPybMV8Udijmqa0fYh3SBUjFJyayTHqGlyHfuXhL1BlkOe_luzK3j5Hk1njgOcmpG_bVYybB4Ojz-rchu_LYetupoGJVWTDbkxftWt2N3jOCN4SCpREdv8gkbBpiIr_BoHoE6V6ziUOiUF1UT9yv7fY4hcoh4oT7WMFFru5CArVsLZ4qpTKKIA6KFE2tmu8ryC9_bpt9wWVNV1LKCAzWadwo6SX4zBhcsGyOHw.jpg" width="400"><br>
 
@@ -157,7 +161,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/upYSylL-k_e57scWLLSkiFhMvrvPtiFb8gFZijBfr2OslArrkkMowFkV0lB_9bcmeBHnWg87qJ1pQtJeaH_FImTgRdk5D2YR4stbD4M1miT33jW88qvIqQ3VjgsqCpGjO2djbEv8qxk9P6KSLv5nPyXGHLN-zeUwNF2030nV67lKHAXrx1PIjM2gyDAjYStZjZghc9axat08A-KBA6KGvB3OSfa56AfFcDx3UqJSLMMTxRNZh3BWbsxecWLw2TQ24s7G6H2gD7gsibB-uGqQIisGvcearhK5zWIMDlHRCnVrRwFGhKwSEtscnfDydz06wfaMKuc1ZoeRkd-JsXJtAg.jpg" width="400"><br>
 
@@ -172,6 +176,9 @@ VahidHeadline
 مسیر خیلی غیرعادی با ارتفاع خیلی کم ۰۰:۰۸
 آپدیت:
 بعدش کلی پیام مشابه دیگر دریافت کردم.
+آپدیت:
+وحید جان همچنان پروازها از فرودگاه مهراباد به سمت شرق ابران ادامه داره احتمالا هر ۴/۵دقیقه یک پرواز بوده لاینقطع
+شاید ۳۰/۴۰هواپیمای مسافربری پریدن تو این دو ساعت
 📡
 @VahidOnline
 
@@ -181,7 +188,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/sgprDiZvb9MU3plHPaI7xADhwsR6uzVi29VswiLfH3WrXiqS8GU_haML4YULk8YAXEunJKK-yLZUIGgnz-riZxm-LJcNbe1NHbkykIHuzsUpNPwJgae09dCVwhIVZodoxxL-xmPCRE4U1zl-dYViAQ76b_vBkXVJoia6SQqQ-OZ5N7DyKK3TNMfMg9VdCmC9BF1AEqIKl9q_c2kwjUkOdtbX6cSQgx0V_DUtRpFE8r8m1q3FityVWBTMjdQxiowhE3ja7NL6-xruzBMZiEcCaNP_r1-kOivTPfPjbRQHL8gnV8fuzPG6dNrtEFCki4iKNI5Jq73xgss4_gr4_xGuzw.jpg" width="400"><br>
 
@@ -203,7 +210,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/B24q-v85IdkxJevQZOZ7FZ1UMVdjyzwv4OC1XHK1ky-fxC0elH8xMog18zSuoLUjZdET4nKoXSdVNJpmFySinXoM0x-hzWhgprlQU0zOxk2J1_OgEvbsNngkkGhAgC8skGcIlZ0hcwDQOM_m0OYvj2g6mUYNI3iocEzXzZ3nkXYeM3CDywXpNjWZZ5ZUlnwAMOMil49nG9fenlxutK-8cqP5ef_SRZ9OOXPyyapRAoKYBkJHo3bfjKuDyRblnN9Y82HW_laVTQWabC6Mf6K3Va4TZJ5lRc8ddxFBY2NlC7dMsS9JsCKNQOwLl-qpg5ukbni6TEvNg9ZsPOrZ_c1YEA.jpg" width="400"><br>
 
@@ -221,7 +228,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/Y3pc4wE-dxFIL5NADxZs8asnkgUxdatdApEapZncwulojqZkSPiqgIJBo5kmGDi_2BFuDvYWWwSBlZ8M5ZzFMfgBGtV_H4NWOYMOx7QL8L5CvZEfJGWAtJ5MXWk0hTFvtYg1jxtk6ZgMGHqshEjISiYMFF9YjZzIJeGciQFN5SFIpldLbxLYVq24agPuFSIV84hOPsU5HW-biUarXzYmKsbkZqp1_90Bxx64MrkVyXzzjh3iBey3wUAe2Si6pUDuQDIcjBTnwaCdgnWYzMWJCW_vt-9bFgaJ2QqnvGXMQk2_Tu03yMx040X3VRh-XFLKY9ifb8GNqsyHJEHhdUHFcA.jpg" width="400"><br>
 
@@ -238,7 +245,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/Ti6LWtoN4q7c8jBZ1wQvJgkN2mUeHUXZCzodSeRNB0As6XXqDcmH1UkW96CLppP4J5e-wN9VovVkfVyo23d1tGLwYpjux8yjrECWKgFYeDXp3KbiXpbiK81WWt_Jgoc1amsWObM_ja9r-FySms5xtHMGFRGlieAu988MNC1QSrlKy4Ak1sG3780QvTwGqwGB6zDFJK_tf-zeea5DwstFSVVndbawkzrAwQcDtZsGQ9jrRME-co1gkYowxvMqu4khna4rOFaqcujHhnI6BqGQgly37dPCciXSrYMBoFZVb8nPLkN52IkY54WMWyq63NWmfe_ijfov6d1Py8frinxXYA.jpg" width="400"><br>
 
@@ -257,7 +264,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 
 
@@ -272,7 +279,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/GOHgYOb3-nsEuwtV17ig4O5t2mefVXlvYOuilw8zq7Rjgfz_Mk4e4awDUh_vb_4EaParyy7dKKoTRq-Q72sSw_4rhphDq_RkMjJY5dH82J02XHoUeU2Uogz2b4IqYifdyi31qpv_oyyo3xKHqTz1MTqSVTPikQxLmXKqHfHYBxrYN6R_kqL4E-VN7i4nrc9WfMR7yemqccLyia2sSk4SIvVgW27zOsIpOckk-RmP9JjhrgMTgtp5z_acfRGlgz92agJoywK6LGa6rZhVIGLnYRmvfkGTQ8Zdt3ckwTwX9Can2VQXHbQUZoENdE-xGhfLVcTjIsbY0pSa5XuM90LgnQ.jpg" width="400"><br>
 
@@ -292,7 +299,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 
 
@@ -323,7 +330,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 
 
@@ -355,7 +362,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 
 
@@ -394,7 +401,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 02:14:21
+###### 🔵 Updated at: 2026-06-08 03:23:11
 
 <img src="https://cdn1.telesco.pe/file/KBwwrpkuXXsNASnIwAFF1BH-hJaNwo7gd_xwN86gwQs-x6_fHVQcGacgudO5LYO5hz8Nll90iGzyHYZMo23YFdgH5yyfAOjnwqQweGrtGFzm3lvbA8OTiNKgQXDLC23zdN0gsWHeZbBKXmTnB6io6o1fS7kSOSQpW9b4HwQcIeYQ660fp8w41vdz_RW2yOduxGXkZOh5ygY0tFQzcVKyhIlIGylTG8P4FqJ-zQlriEO6qlPSWuvV5BL__E5YfI9bmiJ8ygMVrJFLseFxLThJuowHNCdw8n-UCZ1NdIz4vnXmAnT5YVm38VP5ZbrgNcP1shFxWrUsT-_yJY0BrfnSsQ.jpg" width="400"><br>
 
