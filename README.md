@@ -3,7 +3,151 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
+
+<img src="https://cdn1.telesco.pe/file/WGDQPKlMlDrQvwRz56yx7rn7mAJLAJjLRATnt9oq1QXrggnhrzpGhyrNbnbwNr36qKcohDGacSBPuhmYqr3I5O7Toet_8NTO4jCT8THTeab_Po-WHevXod9dJ9OPZZBP90LpHlKAl3Vl26zJ6V9HCZNYZ-8-ttbSS1LKBucqsgYLGf0VWLVB0MAu0VeATF6mh9YM2Hvh0CNNEwj-htZG4QsStnTi2Y10dvUNfpBf6D3Bqjzqb7He8eLnu5pvl3iC5qAXd9TGUXH-2g6YD8cKRD5oarci-h1XYOX2p-Pqg4krhq6B-NhI3SC9SlmfVhnedtOdt2ppTSd6a77pG1XxtA.jpg" width="400"><br>
+
+shamidartii
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76009)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 01:08:58
+
+<img src="https://cdn4.telesco.pe/file/S14CI8iLPcfUm7lAYg6WBATqYN4GQV658C9OeZx88MqgEYmYdtzydZwMH6GfEpcPDszffCpBsHybbaGwC5ojPn92GZlnpd874W9ivv7B6FDfly7Ce6yoGjLLbXYW1ZdUlMBccbrpUVYz2HLL-j_aFcf75PzBLcdCRfY7essjRnFnXWvUaf4lsBECWjYv5iGiWoJ5NS2y4EzlBpkw0jaxKlXiXPDwDbCP0EtskxU5-Ynis84_JaBBXYcsoL4N5wK_me98Xx51PHmeF67vKdSrU18y_9JPWVXDHbHQ_ZdyQgHYr6amepWwmPi0kCDJF75ZvEdYE_Z7-Kf91pL61AwBsQ.jpg" width="400"><br>
+
+با به اوج رسیدن نگرانی از آغاز درگیری مجدد نظامی میان ایران و اسرائیل، سازمان هواپیمایی ایران اعلام کرد تمامی پروازهای شهر فرودگاهی امام خمینی از بامداد دوشنبه ۱۸ خرداد تا اطلاع ثانوی متوقف خواهد شد.
+در اطلاعیه این سازمان آمده است: «مسافران از مراجعه به فرودگاه خودداری کرده و اخبار بعدی را از مراجع رسمی پیگیری کنند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76008)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 01:08:58
+
+<img src="https://cdn1.telesco.pe/file/Jz6fAAoq8Sp3rVhsH31MEO0c0c-OfMJU4dejYDRx2ryBvx_-fb2Bzr00UU3aX1Ja0dnzGgOrefQ-5seHUb4YY-gZOt9uuAuGzCRm0lrbeVibzKtdzSBVuEh7h4EEO2NbfpymxAmxEcV8L6cCAPPHPzhUaWVynliGowx4AN-8-_NhDgF0CZKBANkvJ-dniODDa4Xk7OM0q5MkCAE0cD6QX_qSrcNPNy808T46O9bZnxmDc7owXN6KA5pZ1DRitM1bmpHzh7BhbZX9_NgB6IgnaTCrjcXL1bBKbBCncSvbagOwDJbKqC_9bduQn31zMMZaRoCXpM31E34WuGLQQNlloA.jpg" width="400"><br>
+
+ایتامار بن گویر، وزیر امنیت ملی راست‌گرای تندرو اسرائیل، پس از حملات جدید موشکی ایران به شمال اسرائیل، خواستار واکنشی شدید شده است.
+او عصر یکشنبه در پیامی کوتاه به زبان عبری در شبکه اجتماعی ایکس نوشت: «امشب تهران باید بسوزد!»
+اظهارات ایتامار بن گویر در حالی مطرح شده که ایران ساعاتی پس از حمله اسرائیل به حومه جنوبی بیروت، موجی از موشک‌ها را به سوی اسرائیل شلیک کرد. ارتش اسرائیل اعلام کرده است که این موشک‌ها رهگیری شده‌اند و گزارشی از تلفات فوری منتشر نشده است.
+ایتامار بن گویر از چهره‌های تندرو کابینه بنیامین نتانیاهو به شمار می‌رود و در روزهای اخیر نیز از توافق آتش‌بس میان اسرائیل و لبنان انتقاد کرده بود.
+@
+VahidHeadline
+نفتالی بنت، نخست‌وزیر پیشین اسرائیل، در واکنش به حملات موشکی جمهوری اسلامی به اسرائیل، در شبکه ایکس نوشت: «خویشتنداری یا واکنشی نمادین، این پیام را به دشمنان ما منتقل خواهد کرد که ریختن خون شهروندانمان بی‌هزینه است؛ از این‌رو اسرائیل باید با قدرت و به‌طور موثر عمل کند.»
+بنت نوشت: «این یک لحظه آزمون است: «آیا اسرائیل کشوری دارای حاکمیت است که توانایی دفاع از خود را دارد؟»
+نخست‌وزیر پیشین اسرائیل نوشت: «در این موضوع، همه ما، تمامی شهروندان اسرائیل، در کنار یکدیگر ایستاده‌ایم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76007)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 01:08:58
+
+<img src="https://cdn1.telesco.pe/file/BIlTitCM8LGz7nmqpKarITiaQx1vHAx6QQndwHUyIa2k_K9-Q2yHXEajn8ZJDZn2oR1Getfg-hOaom7ga_5qSOJ9Vl1sDAzfWeQ18YFuTGvwIja3D7_Re2o0bGcJ1Yub_k4wKT3hcp-BdS5yIIBstf3s9XjNzcgTNudbz2UohfDX_2K_NBnPvI3RFx_hUUMGymc4Y7P2B2YpD9PsqJDY-aOqxOakLXvTwZG3CsU_zbjCWK11_MivzMaawEiXVqnHyMrATu9iq81mVV1c6t0ZaRi87F4O3wH_c1a6mVljARGxLl6cTWISTXRu5n1zt1Dkmndcj7Pw-9P5xDAxu0csbA.jpg" width="400"><br>
+
+همزمان با حملات موشکی ایران به اسرائیل، تسنیم، خبرگزاری وابسته به سپاه، یکشنبه‌شب، در پی شنیده شدن صدای انفجار در تبریز، گزارش داد: «براساس پیگیری‌ها، صدای شنیده شده در‌ فرودگاه تبریز تست پدافند بوده و هیچ‌گونه حمله‌ای به این فرودگاه اتفاق نیفتاده است».
+@
+VahidOOnLine
+پیام‌هایی که من دریافت کرده بودم:
+سلام وحید جان
+الان ۲۳:۵۵ سه صدای انفجار بزرگ آمد تو تبریز
+پیام بعدی در ۱۹ دقیقه بامداد: همین الان باز زدن تبریز رو
+سلام وحید جان
+تبریز ساعت ۱۲:۱۵ نزدیک لشکر عاشورا صدای انفحار اومد.
+البته شدتش مثل انفجار های جنگ ۴۰ روزه نبود.
+تبریز نیم ساعته صداهای عجیبی میاد
+مطمعنا صدای پدافند نیست انفجاره
+هم اکنون صدای چند انفجار شدید در تبریز
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76006)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 01:08:58
+
+<img src="https://cdn1.telesco.pe/file/GTG0O_nSytzIyUH2US2n0Xi6P_LtLAlQYrfi0jA1rOGtAsq5GWadK1nbMMWgaLLdQYMGtQI7gw0KhnvOX9gLIWvklXquqan0RSqx5ttJwKM1wFpPkPybMV8Udijmqa0fYh3SBUjFJyayTHqGlyHfuXhL1BlkOe_luzK3j5Hk1njgOcmpG_bVYybB4Ojz-rchu_LYetupoGJVWTDbkxftWt2N3jOCN4SCpREdv8gkbBpiIr_BoHoE6V6ziUOiUF1UT9yv7fY4hcoh4oT7WMFFru5CArVsLZ4qpTKKIA6KFE2tmu8ryC9_bpt9wWVNV1LKCAzWadwo6SX4zBhcsGyOHw.jpg" width="400"><br>
+
+سخنگوی ارتش اسرائیل، افی دفرین، می‌گوید پس از حمله موشکی بالستیک جمهوری اسلامی ایران به اسرائیل، ایال زمیر، رئیس ستاد ارتش اسرائیل، در حال انجام ارزیابی و تصویب برنامه‌های آینده است.
+سخنگوی ارتش اسرائیل گفت: «رژیم تروریستی ایران اشتباه بزرگی مرتکب شد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76005)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 01:08:58
+
+<img src="https://cdn1.telesco.pe/file/upYSylL-k_e57scWLLSkiFhMvrvPtiFb8gFZijBfr2OslArrkkMowFkV0lB_9bcmeBHnWg87qJ1pQtJeaH_FImTgRdk5D2YR4stbD4M1miT33jW88qvIqQ3VjgsqCpGjO2djbEv8qxk9P6KSLv5nPyXGHLN-zeUwNF2030nV67lKHAXrx1PIjM2gyDAjYStZjZghc9axat08A-KBA6KGvB3OSfa56AfFcDx3UqJSLMMTxRNZh3BWbsxecWLw2TQ24s7G6H2gD7gsibB-uGqQIisGvcearhK5zWIMDlHRCnVrRwFGhKwSEtscnfDydz06wfaMKuc1ZoeRkd-JsXJtAg.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+ما تهرانسریم
+تو این 1ساعت اخیر که اینا اسرائیل رو زدن
+نزدیک به 8تا هواپیما مسافربری از مهرآباد بلند شد
+نهمی هم الان رفت
+انگار دارن فرودگاه رو خالی میکنن
+سلام از تهران داره همینجور هواپیما بلند میشه همشونم تو ارتفاع کم پرواز میکنن
+همین الان از بالا سر مهرآباد یه هواپیما با چراغ روشن از غرب به شرق رفت
+مسیر خیلی غیرعادی با ارتفاع خیلی کم ۰۰:۰۸
+آپدیت:
+بعدش کلی پیام مشابه دیگر دریافت کردم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76003)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 01:08:58
+
+<img src="https://cdn1.telesco.pe/file/sgprDiZvb9MU3plHPaI7xADhwsR6uzVi29VswiLfH3WrXiqS8GU_haML4YULk8YAXEunJKK-yLZUIGgnz-riZxm-LJcNbe1NHbkykIHuzsUpNPwJgae09dCVwhIVZodoxxL-xmPCRE4U1zl-dYViAQ76b_vBkXVJoia6SQqQ-OZ5N7DyKK3TNMfMg9VdCmC9BF1AEqIKl9q_c2kwjUkOdtbX6cSQgx0V_DUtRpFE8r8m1q3FityVWBTMjdQxiowhE3ja7NL6-xruzBMZiEcCaNP_r1-kOivTPfPjbRQHL8gnV8fuzPG6dNrtEFCki4iKNI5Jq73xgss4_gr4_xGuzw.jpg" width="400"><br>
+
+ترامپ: حملات ایران به کسی آسیبی نرساند، امیدوارم اسرائیل تلافی نکند
+درپی اعلام خبر حمله موشکی ایران به اسرائیل در شامگاه یک‌شنبه، دونالد ترامپ، رئیس‌جمهور آمریکا، در گفت‌وگویی تلفنی با خبرنگار اکسیوس گفت: «همین حالا با بی‌بی (بنیامین نتانیاهو) تماس می‌گیرم و به او می‌گویم تلافی نکند. هر دو طرف کار خودشان را کرده‌اند. اسرائیل حمله خود را انجام داد و ایران هم حمله خود را انجام داد. دیگر نیازی به حمله دیگری نیست.»
+دونالد ترامپ در این گفت‌وگو افزود: «حملات ایران به کسی آسیبی نرساند. امیدوارم اسرائیل تلافی نکند. اگر بی‌بی (بنیامین نتانیاهو) پاسخ بدهد، این ماجرا همان‌طور که در ۴۷ سال گذشته، یا حتی در ۳۰۰۰ سال گذشته، ادامه داشته، باز هم ادامه پیدا خواهد کرد.»
+ترامپ افزود: «ما به یک توافق نهایی با ایران بسیار نزدیک هستیم. این توافق، توافق خوبی خواهد بود. نمی‌خواهم به خاطر اتفاقاتی که اکنون در حال رخ دادن است، این روند از بین برود.»
+این اتفاق چند ساعت بعد از آن رخ داد که ارتش اسرائیل منطقه ضاحیه در جنوب بیروت را هدف قرار داد و ایران تهدید کرد به این حمله پاسخ خواهد داد.
+یک منبع ارشد ایرانی هم به خبرگزاری رویترز گفته است که «ایران به هر حمله اسرائیل با نیرویی شدیدتر پاسخ خواهد داد.»
+ارتش اسرائیل اعلام کرده است همه موشک‌هایی را که تاکنون از سوی ایران شلیک شده‌اند رهگیری کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76002)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 <img src="https://cdn1.telesco.pe/file/B24q-v85IdkxJevQZOZ7FZ1UMVdjyzwv4OC1XHK1ky-fxC0elH8xMog18zSuoLUjZdET4nKoXSdVNJpmFySinXoM0x-hzWhgprlQU0zOxk2J1_OgEvbsNngkkGhAgC8skGcIlZ0hcwDQOM_m0OYvj2g6mUYNI3iocEzXzZ3nkXYeM3CDywXpNjWZZ5ZUlnwAMOMil49nG9fenlxutK-8cqP5ef_SRZ9OOXPyyapRAoKYBkJHo3bfjKuDyRblnN9Y82HW_laVTQWabC6Mf6K3Va4TZJ5lRc8ddxFBY2NlC7dMsS9JsCKNQOwLl-qpg5ukbni6TEvNg9ZsPOrZ_c1YEA.jpg" width="400"><br>
 
@@ -21,7 +165,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 <img src="https://cdn1.telesco.pe/file/Y3pc4wE-dxFIL5NADxZs8asnkgUxdatdApEapZncwulojqZkSPiqgIJBo5kmGDi_2BFuDvYWWwSBlZ8M5ZzFMfgBGtV_H4NWOYMOx7QL8L5CvZEfJGWAtJ5MXWk0hTFvtYg1jxtk6ZgMGHqshEjISiYMFF9YjZzIJeGciQFN5SFIpldLbxLYVq24agPuFSIV84hOPsU5HW-biUarXzYmKsbkZqp1_90Bxx64MrkVyXzzjh3iBey3wUAe2Si6pUDuQDIcjBTnwaCdgnWYzMWJCW_vt-9bFgaJ2QqnvGXMQk2_Tu03yMx040X3VRh-XFLKY9ifb8GNqsyHJEHhdUHFcA.jpg" width="400"><br>
 
@@ -38,7 +182,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 <img src="https://cdn1.telesco.pe/file/Ti6LWtoN4q7c8jBZ1wQvJgkN2mUeHUXZCzodSeRNB0As6XXqDcmH1UkW96CLppP4J5e-wN9VovVkfVyo23d1tGLwYpjux8yjrECWKgFYeDXp3KbiXpbiK81WWt_Jgoc1amsWObM_ja9r-FySms5xtHMGFRGlieAu988MNC1QSrlKy4Ak1sG3780QvTwGqwGB6zDFJK_tf-zeea5DwstFSVVndbawkzrAwQcDtZsGQ9jrRME-co1gkYowxvMqu4khna4rOFaqcujHhnI6BqGQgly37dPCciXSrYMBoFZVb8nPLkN52IkY54WMWyq63NWmfe_ijfov6d1Py8frinxXYA.jpg" width="400"><br>
 
@@ -57,7 +201,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 
 
@@ -72,7 +216,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 <img src="https://cdn1.telesco.pe/file/GOHgYOb3-nsEuwtV17ig4O5t2mefVXlvYOuilw8zq7Rjgfz_Mk4e4awDUh_vb_4EaParyy7dKKoTRq-Q72sSw_4rhphDq_RkMjJY5dH82J02XHoUeU2Uogz2b4IqYifdyi31qpv_oyyo3xKHqTz1MTqSVTPikQxLmXKqHfHYBxrYN6R_kqL4E-VN7i4nrc9WfMR7yemqccLyia2sSk4SIvVgW27zOsIpOckk-RmP9JjhrgMTgtp5z_acfRGlgz92agJoywK6LGa6rZhVIGLnYRmvfkGTQ8Zdt3ckwTwX9Can2VQXHbQUZoENdE-xGhfLVcTjIsbY0pSa5XuM90LgnQ.jpg" width="400"><br>
 
@@ -92,7 +236,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 
 
@@ -123,7 +267,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 
 
@@ -155,7 +299,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 
 
@@ -194,7 +338,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 <img src="https://cdn1.telesco.pe/file/KBwwrpkuXXsNASnIwAFF1BH-hJaNwo7gd_xwN86gwQs-x6_fHVQcGacgudO5LYO5hz8Nll90iGzyHYZMo23YFdgH5yyfAOjnwqQweGrtGFzm3lvbA8OTiNKgQXDLC23zdN0gsWHeZbBKXmTnB6io6o1fS7kSOSQpW9b4HwQcIeYQ660fp8w41vdz_RW2yOduxGXkZOh5ygY0tFQzcVKyhIlIGylTG8P4FqJ-zQlriEO6qlPSWuvV5BL__E5YfI9bmiJ8ygMVrJFLseFxLThJuowHNCdw8n-UCZ1NdIz4vnXmAnT5YVm38VP5ZbrgNcP1shFxWrUsT-_yJY0BrfnSsQ.jpg" width="400"><br>
 
@@ -210,7 +354,7 @@ drpezeshkian
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 <img src="https://cdn1.telesco.pe/file/oUjieCrOn8wEmCIVvsxoRQbQzQXzOF3an0HCiBDh5C8B8uo6gdWNdNF3I5Lmto27KV8VYquFhi8BSCjI4xROpKszMkU14TcmKnaBpGSY9_jolxG1UiWHdI0fH_w6I-zF7QL3F_olnyGNFyTOyGLPNX3QmyetiD047I1ZPJTCMakZnAB1xBvEm6yiuEplHh4h8FGqVAAfa0rGsky8eFhGI7Sf2nPfARjkb_HtMva8zP9Sl5jvUFXpjnv2HMkgW1TAoyZj-ujFUV1I1JNTyjsbLU0mN62w6Vqfi8_0WFv9Lwf2TSBSt84mydQYAINmrqhGhxUtBtxvKFFYGMQGGRYy8Q.jpg" width="400"><br>
 
@@ -231,7 +375,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-07 23:43:45
+###### 🔵 Updated at: 2026-06-08 01:08:58
 
 <img src="https://cdn1.telesco.pe/file/mSPeEgJe9lAxWospZvpQY-KZAEgY5KZD21KieJbgLIinDDUoGD-paNHG3f1MD6TOx1Dnu-gvM2EBjT2D0ATzlCULO9kQ82_zTv7EeDSH0CIiFdEJUqfAdJnDcJ77Z-yjfgHHHfFA3WlH46QhDhAvO-mojiW3EVLesJj0iSU-uR1sP2Z4zfUa9ENWUtCcASVJkzpyWeW_dkQGQuIt_cFli3FZo0BAwxKJHMLaSPLNpvx0Of9r_x7vHU6HVcIzQw3AiSZAYr_AY18w5fOBQx3-_FfL9lwmSnTSZVBfw0-MIhaumz9MsZLoqDnZfz3cfTQGidb10lBIdOAHBx4bkelxPA.jpg" width="400"><br>
 
@@ -241,94 +385,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/75990)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-07 23:43:45
-
-<img src="https://cdn4.telesco.pe/file/d-1BHsoc7LtoUMjzCTDI0nwW3SSg6IMMlVVdFzgb03HL8xTgSAgSz6yXRTx_3dWjU7tH7UqQJHB3dyEBVUCQ4smoPAcl3k47NBhiArFI3ugAV9Wgy9PFHq6SJsskZfyjm8vcENXc8n-7BVEJiUKh-Ist_vnJjMIE863o1ukXfpX0ax71CK0yDHVwSq7LrLEk9F81iHjxhcDJLQ8nkC2sr_sTYSHdMkDsfyl2k6NlYjrO00uVH1l3TxgrCUqZhPBerh-1jVVGc0xTXCAxwxP-nw4EafnKjGjs_fQgGQioRV1yBF5gP4_RaHc9Pzp7-oTjbMAeu9ZCevBgr4cLQ_8Kjg.jpg" width="400"><br>
-
-«وحید هاشمی» ۲۶ ساله و تبعه افغانستان، شامگاه ۱۸ دی‌ماه ۱۴۰۴ در خیابان ۲۰۲ فلکه تهرانپارس هدف شلیک گلوله جنگی قرار گرفت و ساعاتی بعد بر اثر شدت جراحات جان خود را از دست داد.
-به گفته نزدیکان، گلوله جنگی به ران پای چپ او اصابت کرده بود. وحید هاشمی حدود دو ساعت پس از تیراندازی به بیمارستان تهرانپارس منتقل شد، اما به دلیل خونریزی شدید جان باخت.
-خانواده وحید هاشمی پس از ناپدید شدن او به جست‌وجوی او پرداختند و سرانجام پس از شش روز موفق شدند پیکر او را پیدا کنند.
-پیکر وحید هاشمی در تاریخ ۲۴ دی‌ماه در قطعه ۹۶ بهشت زهرا به خاک سپرده شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75989)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-07 23:43:45
-
-<img src="https://cdn1.telesco.pe/file/KauOIoIwIUKF8PpSx4irAHCkO4JR5MoG_GXySj0qOadexX8_XbfOHPYJSn9hwAMpjynEQWVnJkccPPHcsbJlwKsJNJ2hfNclqO7PcoB57YqmAKVsIHqD3lr8SqXeAfqRDpqI1odwr0e8g6BJJUyQ8qmRgokdMMOM9lGcC3fv3HR4n9gIGyZuMJxex5WCwU59yynRoLWvp3Rdgx5FoZ_JPrXIN9Hl1gJa-kTdxVAo_nsvZYEqn1SZ1eadDGYRcDKdvuRlCUE_ZnhxNtPeMa0c7V_Q7LE0Op98z9TRi3pwvZPjC2mHygkKxUA7hSmet11S2HxjJqA09vB-pY5YLZOwLQ.jpg" width="400"><br>
-
-ترامپ: پیش از نهایی شدن توافق، دارایی‌های ایران آزاد نخواهد شد
-دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با شبکه ان‌بی‌سی نیوز گفت که به‌عنوان بخشی از هرگونه توافق، دارایی‌های مسدودشده ایران را از ابتدا آزاد نخواهد کرد و هیچ تحریمی را نیز پیشاپیش لغو نخواهد کرد.
-او افزود که اصراری ندارد لبنان در توافق کوتاه‌مدت میان واشینگتن و تهران گنجانده شود.
-ترامپ در پاسخ به این پرسش که آیا این اقدامات پس از توافق انجام خواهد شد، گفت: «بله، بعد از آن. اگر رفتار مناسبی داشته باشند و به تعهدات خود عمل کنند، آن وقت گفت‌وگو را آغاز می‌کنیم.»
-رییس‌جمهور آمریکا اضافه کرد اگر بتواند با تهران برای پایان دادن به جنگ سه‌ماهه میان دو کشور به توافق برسد، آمریکا با ایران برای جمع‌آوری و نابودی ذخایر اورانیوم با غنای بالای این کشور همکاری خواهد کرد.
-او افزود در صورت عدم دستیابی به توافق، واشینگتن توان نظامی جمهوری اسلامی را بیش از پیش تضعیف خواهد کرد تا نیروهای آمریکایی بتوانند با امنیت کامل این مواد را خودشان جمع‌آوری کنند.
-ترامپ افزود که خواهان اضافه شدن بندی جدید به توافق است تا ایران نتواند با خرید سلاح هسته‌ای یا تجهیزات مرتبط، محدودیت‌های توافق را دور بزند.
-او گفت: «پرسیدم اگر آنها خودشان سلاح هسته‌ای تولید نکنند اما آن را خریداری یا به هر شکلی به دست آورند چه؟ من می‌خواهم در متن توافق عبارت خرید، تهیه یا کسب سلاح نیز گنجانده شود. آنها نه حق تولید سلاح هسته‌ای را دارند و نه حق خرید یا دستیابی به آن را. تهران در ابتدا کمی با این درخواست مخالفت کرد اما از موضع خود عقب نشست.»
-دونالد ترامپ، رییس‌جمهور آمریکا، درباره مجتبی خامنه‌ای و محل اقامت او گفت: «او به‌شدت زخمی شده است. نمی‌خواهم بگویم می‌دانم کجاست یا نه، اما احتمال زیادی وجود دارد که از محل اقامت مجتبی خامنه‌ای مطلع باشم.»
-ترامپ همچنین اعلام کرد فعلا قصد خروج نیروهای آمریکایی از منطقه را ندارد؛ حتی با وجود آتش‌بس شکننده و ارزیابی او مبنی بر اینکه توان تهاجمی و دفاعی جمهوری اسلامی به‌شدت آسیب دیده است.
-او افزود: «هزینه نگه داشتن حدود ۵۰ هزار نیروی آمریکایی در منطقه بسیار ناچیز است و ممکن است برای اعمال فشار در مذاکرات به آنها نیاز داشته باشیم».
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75984)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-07 23:43:45
-
-
-
-دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز یکشنبه اعلام کرد که ارتش این کشور مراکز فرماندهی نیروهای مسلح را در حومه جنوبی بیروت هدف حمله قرار داده است.
-در این بیانیه آمده است: «مطابق دستورهای نخست‌وزیر نتانیاهو و وزیر دفاع کاتز، نیروهای دفاعی اسرائیل دقایقی پیش یک مرکز فرماندهی نیروهای مسلح را در منطقه ضاحیه بیروت هدف قرار دادند. این اقدام در پاسخ به شلیک‌های حزب‌الله به سوی خاک اسرائیل انجام شده است.»
-این نخستین حمله به پایگاه اصلی حزب‌الله از زمان برقراری آتش‌بسی است که روز ۱۶ آوریل با میانجی‌گری طرف‌های بین‌المللی حاصل شد. آمریکا هفته گذشته اعلام کرد دولت‌های اسرائیل و لبنان به تمدید آتش‌بس به شکل مشروط دست یافتند.
-حزب‌الله، گروه مورد حمایت جمهوری اسلامی، پیشنهادهایی را که برقراری آتش‌بس را به خلع سلاح این گروه مشروط می‌کند رد کرده و تأکید دارد که اسرائیل باید ابتدا حملات خود را متوقف کرده و نیروهایش را از جنوب لبنان خارج کند.
-ضاحیه محل اصلی استقرار فرماندهی و نیروهای حزب‌الله است. این گروه از سوی آمریکا تروریستی شناخته می‌شود، اما اتحادیه اروپا تنها شاخه نظامی آن را در فهرست سازمان‌های تروریستی قرار داده است.
-ارتش اسرائیل ساعتی پیش گفته بود دو پرتابه شلیک شده از لبنان به سمت خاک اسرائیل را رهگیری کرده است.
-ایران که در حال مذاکره با آمریکا برای رسیدن به توافق پایان جنگ است، پیش‌تر تهدید کرده بود در صورت حمله اسرائیل به بیروت، جنگ را ازسرمی‌گیرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75983)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-07 23:43:45
-
-
-
-یک کشته و دست‌کم پنج زخمی در تیراندازی مرگبار در اسرائیل؛ دو مهاجم کشته شدند
-ارتش اسرائیل اعلام کرد دو مهاجم حمله تیراندازی روز یکشنبه در مرکز اسرائیل، پس از عملیات نیروهای امنیتی کشته شدند؛ حمله‌ای که به گفته امدادگران، یک کشته و دست‌کم پنج زخمی برجای گذاشت.
-این حمله در چند نقطه در نزدیکی حصار امنیتی کرانه باختری رخ داد. امدادگران اسرائیلی گفتند قربانیان در سه محل جداگانه هدف قرار گرفتند.
-به گزارش تایمز اسرائیل، یک مرد ۳۱ ساله که نزدیک تزور ناتان هدف قرار گرفته بود جان باخت و یک مرد حدوداً ۴۰ ساله در وضعیت وخیم به بیمارستان منتقل شد. چند زخمی دیگر نیز با جراحات متوسط یا شدید به مراکز درمانی انتقال یافتند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75982)
 
 ---
 
