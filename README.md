@@ -3,7 +3,86 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
+
+<img src="https://cdn1.telesco.pe/file/G6lZKFNRktCH6_P1qeOshwzzJue4wOldolWWu5R8WqTngdMtYso9wKWQ4LerJV9At71Rab8Gky-fdhSTOrNONHb-IG6sEScZZIIJp_SmQDKoy4LHOifoB-AfueP2atMx0RgqbHYZ4m39Xt1Jo0XpUz6FIEJniH_-vDL0yH7uCEL9NJGy-ADWgp0TlBXlo7x0Y48jpum-HWv00nLJuej3SnUlK8AWKXiuKMkc7VWO9RpYvBbqMikHpcDG2G3gJiRpl8eRJ_vUxBtvs35sZDgf5xDzUTXkod3_sENktoYeb5D-pDGvQ95-MYlizgU07pkq9d6SrPPRnqBlryOskaUt7w.jpg" width="400"><br>
+
+ترامپ گفت: «به بی‌بی گفتم خیلی مراقب باش چه کار می‌کنی، چون ممکن است خیلی زود در برابر ایران تنها بمانی».
+@
+VahidOOnLine
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه در گفتگو با کانال ۱۲ تلویزیون اسرائیل اعلام کرد توانسته دامنه حمله اسرائیل به ایران را محدود کند و بنیامین نتانیاهو را برای کاهش تنش‌ها تحت فشار قرار داده است.
+ترامپ گفت: «من موفق شدم شدت حمله اسرائیل به ایران را کاهش دهم.»
+او همچنین افزود شماری از کشورهای منطقه از او خواسته‌اند بر نتانیاهو فشار بیاورد تا از تشدید درگیری‌ها جلوگیری شود.
+رئیس‌جمهوری آمریکا در ادامه گفت در مورد حمله به ایران به نخست‌وزیر اسرائیل هشدار داده است: «به نتانیاهو گفتم خودت را در برابر ایران تنها خواهی یافت.»
+ترامپ همچنین گفت نتانیاهو «با تاخیر مرا در جریان حمله به ایران قرار داد، اما من موفق شدم این حمله را کاهش دهم.»
+کانال ۱۲ تلویزیون اسرائیل عصر دوشنبه ۱۸ خردادماه به نقل از یک مقام رسمی دولت نتانیاهو اعلام کرده بود اسرائیل حملات به ایران را به درخواست دونالد ترامپ متوقف کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76080)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 22:09:30
+
+<img src="https://cdn1.telesco.pe/file/tWifXmXFXwyqiZ-3ybTx4mOqWghUWVWOXRkArLQRAaHNNV-AQExcoIJBOda4fZWKJDScIDPLKKgxj0DgGnOyp_6JiUYXTJkx_HtT_9rSUn2uPKjmy4Twnldif4ZhGZ1ssQ3pMDDjvii-kmi68NDYcvR0SaXc0uGd0eUgqb7l5zxO0KA7YUV9WCpYl87FGu6VZjqP3EEeNHh0N0gSZP70wptJp0NgLFN2iWnmK2-x5Q9VI7IYngEX7DIIRLnL61UsW-T4WPx5kNLNe0bs2i50tjhmALbmgbuy9U4SUoQV1uQtINJqEGGacUJ2DHS-9oFKi8zobfpHa-Whc-9Q3cl6pw.jpg" width="400"><br>
+
+سنتکام: نیروهای آمریکا نفتکشِ متخلف را در خلیج عمان از حرکت بازداشتند
+پست اکانت فرماندهی مرکزی ایالات متحده، ترجمه ماشین:
+تامپا، فلوریدا — نیروهای آمریکایی روز ۸ ژوئن یک نفتکشِ بدون بار را در خلیج عمان از کار انداختند؛ پس از آن‌که این کشتی با تلاش برای حرکت به‌سوی یک بندر ایرانی، محاصره جاری علیه ایران را نقض کرد.
+فرماندهی مرکزی ایالات متحده، سنتکام، نفتکش
+M/T Marivex
+با پرچم پالائو را هنگامی که در آب‌های بین‌المللی خلیج عمان به‌سوی ایران در حرکت بود، از کار انداخت. یک جنگنده
+F/A-18 سوپر هورنت
+از ناو
+USS Abraham Lincoln (CVN 72)
+پس از آن‌که خدمه کشتی از اجرای دستورهای نیروهای آمریکایی سر باز زدند، یک مهمات دقیق‌زن را به بخش‌های مهندسی و هدایت کشتی شلیک کرد. کشتی Marivex دیگر به‌سوی ایران حرکت نمی‌کند.
+از زمان آغاز محاصره در ۱۳ آوریل، نیروهای سنتکام هفت کشتیِ متخلف را از کار انداخته‌اند، ۱۳۴ کشتیِ فرمان‌بردار را به مسیر دیگری هدایت کرده‌اند و اجازه عبور به ۴۲ کشتیِ حامل کمک‌های بشردوستانه داده‌اند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76079)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 22:09:30
+
+<img src="https://cdn1.telesco.pe/file/iB0QKCtArmoFbiXAb018md-VQLihHw4V5hJ1yGQDa1ej37xLVmX_hdrUdVFNYh7jzPw6MoJuUtByEg1k145ex_7BKOgDKy_yhyFSh7HM65gvbj_xknlnl_6fILfpf6fFb18Hhl1-79Dh9tahgczSU2PSrYgBCRa-G36I-KK8ydJqAM5EwpExUeEJgQ9BnYYOWwA8fOxcO_9TCD52BDofd78hsQl8HoxAg7WibBuBhbZ8mxHYu7Ijn6jo2gHX23ke79CyRqVRpgWixm1jpncweXaL9jCiKOX-XcKRFZbjSKIrecTQnWskd923B24KAEyy_5MEOxmSzHB3ncMceH355g.jpg" width="400"><br>
+
+حامد تیزرویان، عکاس حیات‌وحش و فعال محیط زیست، در ساری بازداشت شده است.  به گفته زینب رحیمی، روزنامه‌نگار حوزه محیط زیست، آقای تیزرویان روز ۱۴ اردیبهشت ۱۴۰۵، بازداشت شده و موبایل و دیگر وسایل الکترونیکی او ضبط شده است.   اتهام مطرح‌شده علیه آقای تیزرویان «اجتماع…
+
+[View Post](https://t.me/VahidOnline/76078)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 22:09:30
+
+<img src="https://cdn1.telesco.pe/file/mEUcx48n-hiCOHTCGBUPWyqcZnNA3re_REm099aQG2d7RHH-Zwey48UVilxsMcfZuhVI_YQPUvySZg6bL3jeydQTj2imcKIzVxSkM3DSlbmS-csA-gP5_7U5LxmpHJ-dn6yhnbCEHYhKJq2Knc38hR_wg_xMIFPpbKZOboO9rYupnNnHAzdwle63j7g0z377VPk7QPwMPZHiPNN0PRUQMIr5wt0a8yVMKnCztJWbS9huryqCkJqzyi8pphtV5z6fg6jmxWBv3TjLOMOdrKWNXlrcl2I2R2qK6V5TkXwTQYu39peBXea-nonR5h1eGGDaWp73ug1wIpm5LimvvQf_yQ.jpg" width="400"><br>
+
+ایران وضعیت پرواز‌ها به حالت عادی برگشته است
+سازمان هواپیمایی کشوری ایران عصر دوشنبه اعلام کرد که فضای هوایی کشور به شرایط عادی بازگشته و عملیات هوانوردی مطابق با اطلاعیه‌های هوانوردی (نوتام)، از سر گرفته خواهد شد.
+ایران ساعاتی پیشتر گفته بود که تمام پروازها از فرودگاه‌های کشور لغو شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76077)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn1.telesco.pe/file/pnuW0e1Poi087U6dqYwn03jL2o2HPcurN-EPy9BmsS4kxCmUzLZJspntXmenEo7Cu-kwNd63XOHg8BqrXkb6VvlycGy4jKwseNOavvb4bO7YFSQ4_Bc-vJifiW4b57sTXD6uUUAxni0uOx-UyeXmJoI03D_571W1um3ntjkChg_8lU8iZDtejvqPhorJ3XqOZ0i-sx0-c3OdI5XznvmDuYkiHXG9a6LCeVkKGCeT-RJpuPg4ctM5mzjROOkTkGxZfPte5g5Po-0nUm4LFqkRJ_8SBSSV4eAN12l6NnldO_8v4E1RSXCslndPEttQt63UnC01sKYkL4CHwUNUWNnKoQ.jpg" width="400"><br>
 
@@ -21,7 +100,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn4.telesco.pe/file/TqM3MbBrfT8b8iDAS9gAzjmYFhh1gXO_GY5qEylIFFaqJ1KXe6t9c08S-KQl8vtXvmH4fUn5f3YD483aBrzX-ZqJfeOufuIULXRucRtom5K0rPkT4qmRYgaUuJt7W510yEEimpju03EAOJFx8jDO1MxZkZ2ZlpWGNihuCYeWRy0-AItidOTIsXEcq0__pwcSV_VwyLkKsdB-Tq3dnYz5ygEYaYR7rTxjtFYH8feaDLXA9o4VszWTsyXFQzFketAihzjOe2-kvCxHWAFcTD9xuKHeSn9qbRRZqNr6i7ROlK2hd-33o1tPPIrgLUiJMkavy-iLgF47KyEp4bw9sEouOA.jpg" width="400"><br>
 
@@ -40,18 +119,17 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
-<img src="https://cdn1.telesco.pe/file/dBX5dYNW8itHh98B2oxxgrnJ74BzgTqECj13lk2FN5-yZYyIj-B9GDg-y33zUzkSnbv8ai2o2jzJtpoPoF9wssClYmL5DimM85xRL5g6OzE2riwoKrkbEN6eIVw1mhRWr_I_KgkTc63nWkwBQae6cOJdi6UEny407pwFWzYgulxTHP_nCVUy4W-7oJq7y8HVu3roJXnhFCqy_HKhZC8W7iFPpMdNLoCvNAY2HGi_eRCvlFpSccQeJhAWUyqzyfstqKrgzlW52iLOeJmToNedXks4QDurf5eEBN8lGFcqGSKo-BDV9U5-2dEIdzeA8F21_OFq37nbBEjJOxPhp0D0wg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/idYrxJNd2GYYwkdZ_ZwZlfceYwkvo2Z1_M_N-xPvcGBQXhJnS_yjaH7Upzt3m_mUfo1y1MjJ7S1Apz_LxwoyXXDATyzdTJ6lkGWbjsz0b-__8scGQKq2ejsVjtrcE3z7gX3wTRVYH48e0xPtNOgswFdVRuQe4ab9hSbT-6KV8YD5Yj_aIpbGeN-GctCB0EQI118Lh2ZTIRaqLQIvKL27PjWTXAGkuqAwoHZ1BUeFT9QXKUv5ZN8HJscVIBLlvdowhIflgKD1kRe_eqhk-3lX_9lyc-8OimQ1b4abUsuvxWkBkMQCYFnc_uz4dKtI3zWkl0Nblo09nNOXmkM0Ri20Jg.jpg" width="400"><br>
 
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت جمهوری اسلامی و حزب‌الله امروز ضعیف‌تر از همیشه‌اند و اسرائیل قوی‌تر از گذشته است، اما رویارویی با آنها هنوز پایان نیافته است.
-او افزود در ۲۴ ساعت گذشته، جمهوری اسلامی و حزب‌الله تلاش کردند «معادله تازه‌ای» را تحمیل کنند که برای اسرائیل «قابل تحمل و قابل پذیرش» نیست. نتانیاهو گفت آنها تصور می‌کردند می‌توانند از خاک لبنان و ایران به سوی اسرائیل آتش بگشایند و این کشور واکنشی نشان ندهد، اما «چنین چیزی نه رخ داده و نه رخ خواهد داد، دست‌کم تا زمانی که من مسئولیت را بر عهده دارم.»
+نخست‌وزیر اسرائیل روز دوشنبه ۱۸ خرداد با اشاره به توقف حملات متقابل اسرائیل و ایران گفت «آتشباری متوقف شده اما اگر رژیم تروریستی (ایران) اشتباه کند، ما به شدت پاسخ خواهیم داد».
+بنیامین نتانیاهو در اولین پیام ویدئویی خود پس از آغاز موج تازه حملات ایران و اسرائیل، افزود: «ایران و حزب‌الله از همیشه ضعیف‌تر و ما قوی‌تر از همیشه هستیم».
+به گفته او، «ایران و حزب‌الله تلاش کردند معادله جدیدی را به ما تحمیل کنند که از نظر ما غیرقابل تحمل و غیرقابل قبول است. آن‌ها فکر می‌کردند که از خاک لبنان و از ایران به اسرائیل حمله می‌کنند و ما سکوت خواهیم کرد. این اتفاق نیفتاد و نخواهد افتاد، نه در زمانی که من رهبر هستم».
+نخست‌وزیر اسرائیل تصریح کرد: «ما حمله خواهیم کرد، با قدرت پاسخ خواهیم داد. به نابودی تمام زیرساخت‌های تروریستی آن‌ها در جنوب لبنان ادامه می‌دهیم، و امنیت را به شمال باز خواهیم گرداند. اگر به موقع و با قدرت اقدام نکرده بودیم، امروز این‌جا نبودیم».
+نتانیاهو همچنین گفت که ایران به سلاح هسته‌ای دست نخواهد یافت.
 @
-VahidOOnLine
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت پس از حمله جمهوری اسلامی به اسرائیل، به ارتش این کشور دستور داده اهداف نظامی و اقتصادی را در سراسر ایران هدف قرار دهد و افزود در حال حاضر آتش درگیری در این جبهه مهار شده، زیرا پس از وارد کردن ضربه به حکومت تهران، حملات علیه اسرائیل متوقف شده است.
-او تاکید کرد اگر جمهوری اسلامی بار دیگر حمله کند، اسرائیل «با تمام قدرت» پاسخ خواهد داد و حق کامل دفاع از خود را دارد.
-@
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -61,12 +139,18 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn1.telesco.pe/file/YkCRkxLsL6k2V0LDY0BhFK6My384Kze0QXJ_tb55y4h7uIbQ6-NVsTHRNTK6z0ik7yzFZjYP29ANFLu89XYsn0kuy4rbsb-lQV82s_gZIhIVGip4VMc3i8N6eFtsi6i4IcQllfpUIZRQOi7xzJs3owieP4H1cQD_mkPUNQajvZLgR3YAeHEaWz5tbMk2N_QAhyUEpntLkDGPamzVHygOMKZd2nwjs-5fdDq92AY145JUmmRmG0rwDamt1_KLd-2EUkSh0di9Tnut74m8_j-yi0_Y_NfVRsVIk2LSfjVR6UwPEzQD_VzxLFh5UTzfzvnl8qI6CXS2smVE7zey0o1Mig.jpg" width="400"><br>
 
 اسرائیل هشدار تخلیه فوری برای مناطقی از لبنان صادر کرده.
 J74wabx
+ارتش اسرائیل با صدور یک «هشدار فوری» از ساکنان جنوب لبنان، به‌ویژه در منطقه «زقوق المفدی» خواست خانه‌های خود را ترک کرده و به سمت شمال حرکت کنند.
+آویخای ادرعی، سخنگوی عرب‌زبان ارتش اسرائیل، در شبکه اجتماعی ایکس نوشت: «در پی نقض توافق آتش‌بس از سوی گروه تروریستی حزب‌الله، ارتش اسرائیل ناگزیر است با قدرت اقدام کند. ارتش اسرائیل قصد آسیب رساندن به شما را ندارد.»
+او همچنین هشدار داد: «هر فردی که در نزدیکی نیروهای حزب‌الله، تأسیسات آن یا تجهیزات و امکانات رزمی این گروه حضور داشته باشد، جان خود را به خطر می‌اندازد.»
+این در حالیست که ایران امروز گفت عملیات جنگی علیه اسرائیل را متوقف کرده است اما هشدار داد اگر حمله به لبنان ادامه پیدا کند با شدتی بیشتر از قبل پاسخ خواهد داد.
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -76,12 +160,12 @@ J74wabx
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn1.telesco.pe/file/qBDLjdtl_t9bjWTicJ_R1RayOoqHYWD69J70FbqDsWPN1vMD_yxZmxZDMDJFHikhp2sK21luo8DGgrGyMUi45av3d8ln_lTAUllTIyiWhyzRxDMYnhTvXv3YVvtUtZIw-GThFsPIHh64oW_pNkQnLqVCsIjOn6Yn7k4xbuwyIa1BBk7rDf0nzSfJ_urkj19NynAnEYHxdFANjGPYd8j7vf01vmXS_Q3LBtKoxa7YTaUSosPuiEUzzyHKnMRvd6LKfWBm2sWE_Rw4up3lsvofZ3Nh1qCi8Ay-NiywSA7hvo59p7LnjFAlDKSacQ2sFrW2FKiCVo69-SW-sU54KCk0cA.jpg" width="400"><br>
 
 IranSaat25
-(بحث وطنه*)
+(وطنه*)
 📡
 @VahidOnline
 
@@ -91,7 +175,7 @@ IranSaat25
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn1.telesco.pe/file/dXYpbQWew5-TQuMA-d2aN3OVpwzfGh4KaQyvhDzNtD2dlX7h-_trfP9vOeagy9m2rvCQcAdLID8RJbKdmg5hoI89Db_OiEgaPKkEWaoMg-Vq99hLLLzYD_rfKCDdO0KcaHRCs6qVv_3p2EUUVGp4NmIaR4FpHtpSwG5M7EWBvzWZ5TT_ibKhuUT6jWNH6AWR7JdLV-tb5Hu34ma1XSJRmpKYcQjiaGeZyvjOxn8hk666j4GKlhttmfccNGlaJ73TdB-FDJtzF43ZRrS2eyBzMoBa9RWLzbamA9QV9fEC316HGk9VwwtEgW35nT4GsBlCxjwXMX0Q7_hbb8Bxe1Oyvw.jpg" width="400"><br>
 
@@ -105,7 +189,7 @@ Atlansick
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn1.telesco.pe/file/ArYq0KqbvYgkidQwU9cT_ksZbKBFEqxFmKa-ji1taRNkjTHjXBLRqBJVtcj9vUi2hxJRpGUs3h_R40xmeX7ZTHAbLGAYeoSrEJOry9ljdgAKD7GB_JRRHlZq5d7kD5Bked4cZtSzE3LaCKc0biDtGUjWtiV9UC-wCbopsC5sK9NzSmGhAsFb2A-ZzYv5D5ywz3fcajeGkcSn4OWiUF3GMVDao9T5UuuRQy3Nwdf-5yuwcM8g_C3wywqpEVWCtUAtDzRVCv8kWZK3hQcyp9vfamWoHPTPMzamslx0l84t87K7lf1fG3wR9WzT9q3wFl05lpCuhH21L6m5nnNqSTBlrg.jpg" width="400"><br>
 
@@ -124,7 +208,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn4.telesco.pe/file/DThcraQCG6qhSAbbaLzg5dwZicOYdguRQBLA8__Eh_62Xa8hKW6YoaBqHyKj2396fW291wUeokYuROqI-bAeaetxvdbgOrvdYcz5cT9xA3qi4wsmp-SW7hlynOmqskd9kBToWKkt53LwUePXZinCHFw15nhn72I3n0yyeGZGumdkYvV-DpxDhm_Zr7SUg9XmrxV6r9j5vuc7BNNymGSSwTZLdaqyfFBn4qSgDNNFwDoP2HneZzlae__JFcO3Xc8LTwYV84aFiI1N28KRNS0cIwmnCSXgOy9NpYIJJCcgjZg0hcptUwvVWVIXXBi0RlObTgxW4s1IzLkoW6IR9RRFEA.jpg" width="400"><br>
 
@@ -141,7 +225,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 
 
@@ -162,7 +246,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn1.telesco.pe/file/LKSkITTAPT8iYfdq8841J1U39Vbycv6qkEj6T86xE7h8QA8ntS8iTcTPpemy6025NhEbmkWsvuea56e_05lpZ_NhlgxcF3-vGU-49xTMFX3NZ3mqHLkC0OQ-cidtSXSYUIjR-TG-GxAfLnbu39vq3ngeWdP74c98bRR47wl6OhwVewYzYCvYvorOCcNGkd9khoCC_WEvzmID8nOUYzDIMXa0lEDYbEm57z9nH4qSV9LTYv27F7wmGh61HO9672nmjo8lrRnWEW2sbB8n6egjwUovi7pZOrDYq571Do4mqNE5SyE_0NGVKXhj7w0oitCJ0x0tg39v581tldrOrdy87w.jpg" width="400"><br>
 
@@ -179,7 +263,7 @@ mb_ghalibaf
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn4.telesco.pe/file/PUJA541Z0iUwvvSP4BjgaGUfwQZzD5MAqXKDG8o_ul6QKT8m6Yo66VHDmQawXhl_s9gLZKbAZypLUmxGym_t1-Gy7Lbxtqn_zrPCc8YlGP2nHxdewBpa_qHQO-ZIn1zXoT1aIlDhBxbFnj-EkJppHoPywY4HZPiHNSQETM7gwd0__yMTRHCcwziz7S43axj3_cP5r7JKZ87Zaixhj0SB3lauzJb-3isu9zo1PExKsRY2TiN27O6UJSMUlA4mUqVXtEClAUhUnzbz7VFf0XjiBCp3BkAtznf7-3L8fzgOiX7oHRdsH08Gz-jG5FPGnQZMniMxbLpPeb2lTf_IIQbYbg.jpg" width="400"><br>
 
@@ -197,7 +281,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn4.telesco.pe/file/O3hbE973k9_4riEpDsXp_04kyD7dOTZl6rgtTzwI5dL7mSHtNnB1MB1PJ8zKZZi_aNAhqGdjQmFfetPKFLt8lk56cdLGuW8ihMXYt2ctJkAOXfr_mt1UucGM1yqESTZvBfeXweHQYYLhifnuC_KPsPDcFNLbBidCBnbFRwwdc-JIwkNeXealsLOrUkAIQ7A_XYIAbEPVSdFV-iu1A7wrOD47IYLM3zPhQ0e_XqY1mLsLxcLvaD3Ie0LvGEnk5mFjfMzQxZTSvhnLhwAqWH-mK_MkfLHWW2YXsAjuz-4z2qs_gZepooriT6SaPSQ-lxV9z3MIC4CD7G2SeQRFK0ABwg.jpg" width="400"><br>
 
@@ -213,7 +297,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 19:51:26
+###### 🔵 Updated at: 2026-06-08 22:09:30
 
 <img src="https://cdn4.telesco.pe/file/FWvamWPV6sBQ8vxxzof1aDm_2q-yRmrrBgP1dHvMYVOos-BGls0JPy4uUnqnaAwiAZ5qVVdZAE9DV0h984j7nv9x-3JGOAt-viLAPdZZ-8-XDe46yIXSK99ULPYmCAqdzQuaUU6oOxB0PxCwY0AnVhNs7khmygmAk0-C9W6u3GS0Nswci0vLEq3593iy_Oc8Y1_UqwL6YgQv5WDnyze2oApKEDxhSzsHTClVHYPpZFnt7VxkBb2VwnN2r8rm9caQUaQTxYMHBhb2DD_LKQw1k1dA3Jmhupa6LyABaoqFeJvd3RCBFtxuHxhIO0aAhKABUz9mU33X0i6YD2crkF9_bg.jpg" width="400"><br>
 
@@ -228,85 +312,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76062)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 19:51:26
-
-<img src="https://cdn4.telesco.pe/file/Ns28mmaEqFHd715oBQ8Ul7u-gQHwAd8dczbTTpai-8Rv3leACEOiMCcCscVoeqmBS6D6qbZJeIEe5DrnEsz8iCIqlPlrpNdAtXL_T8GBw86GOwlGP-4H8I_SDsyuO030mmbjAF3Uj7aFFpp2wz4MG8rBxRg5kXow0pr7NvNr-nzHzvnHF8ARtXZs6R1UUWFe4yCGnIrKxxG6msXEfVgUR581n-fIiJD8FGTg3wFX4DRcoAJFmy-fdRmPwWEtPRgUXs4uE15QhpQgL4NSS6hFX1ShQe78sSqkFpc4zl1aI_Diokqwps8hqMDiKodYwD4Fq8zhvJKdvKlYupf1ZX2l5A.jpg" width="400"><br>
-
-کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا، روز دوشنبه ۱۸ خرداد اعلام کرد که اتحادیه اروپا به‌دلیل تهدید آزادی تردد دریایی توسط جمهوری اسلامی، تحریم‌هایی را علیه شماری از افراد و نهادهای ایرانی اعمال کرده است.
-کالاس این اظهارات را در جمع خبرنگاران و در حاشیه نشست وزیران دفاع اتحادیه اروپا در قبرس مطرح کرد.
-هنوز جزئیات بیشتری درباره این تحریم‌ها ارائه نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76061)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 19:51:26
-
-
-
-ویدئویی در شبکه‌های اجتماعی از لحظه حمله‌ الهه و شهربانو منصوریان به اتاق ریاست فدراسیون ووشو و شکستن دوربین مداربسته منتشر شده است.
-طی سال‌های اخیر
-خواهران منصوریان
-بارها به ساختمان فدراسیون یا کمپ تیم‌های ملی حمله کرده یا با مدیران درگیر شده‌اند، اما همواره از حمایت نهادهای حکومتی برخوردار بوده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76060)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 19:51:26
-
-<img src="https://cdn4.telesco.pe/file/nAbzoYyBTM4k4Ys6S0dkeYqyTISv_rqOel4vTE4gP2wGnpmJBPvu9T3SDL7EDwxpzovud9MbSgfD2PnJUbWnuMOq2OugMmC6U8LCh6twQT0Ix4okUxe2jY19-fiiJNXdgc6X70eOfgijLf8B-2xTZmTdL0mxgiVSSfFFVYRqOIemqBWdV4I5fXPSrCuxt9yaH3mD5UpikUvshT7VbtEYquoNgJh0xSnaaFJy_I4mDNlS9Tusty6YnV-w1haCIyq5cP275bv-mHXWpeEDyqWQFSDau5LUqTQJKGe8uoTsqclJzAodrTyujaxdcGW8tZh0lY9vjNo3St9Bz35OAFfHvw.jpg" width="400"><br>
-
-⭕️
-سپاه پاسداران از «توقف عملیات» علیه اسرائیل خبر داد
-♦️
-قرارگاه مرکزی خاتم‌الانبیا سپاه پاسداران، روز دوشنبه ۱۸ خرداد ماه با اعلام آنکه نیروهای مسلح جمهوری اسلامی ایران در واکنش به حملات اسرائیل به منطقه ضاحیه و جنوب لبنان «پاسخی دردناک» به این کشور داده‌اند، از «توقف عملیات» نظامی خبر داد.
-بر اساس بیانیه قرارگاه خاتم‌الانبیا، پرتاب موشک به اسرائیل «در راستای حمایت از مردم مظلوم لبنان» توصیف شده است.
-در این بیانیه آمده است که این پاسخ برای اسرائیل و حامیانش باید «درس عبرت» باشد.
-قرارگاه خاتم‌الانبیا همچنین اعلام کرد «توقف عملیات نیروهای مسلح» در دستور کار قرار گرفته است.
-با این حال، در این بیانیه هشدار داده شده که در صورت ادامه حملات و اقدامات اسرائیل، به‌ویژه در جنوب لبنان، جمهوری اسلامی ایران «اقدامات بسیار شدیدتر و کوبنده‌تر از قبل» انجام خواهد داد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76059)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 19:51:26
-
-<img src="https://cdn1.telesco.pe/file/u3hRruqTgnk9KVaBKoZX1sqDkNR9T7zTZ0MuObaGPRhooi_lLMkk6Ficdvd1PcBvPuAkBVbzklCmWbOPh9zv0R0WB_AKbSucOiDoFC29Tfdrcec5_XCtHP7nq_zsBSTHJaLyVFxP1b9B8U--GV7kEJ6zkT1zjFnpNQNZFpCvtc7rvmiXjvKYKfjaRlFVEKS6lpUyQXO7LhWSWEm53t2jYBhapfzXdm6sAI_PARwSDoMKQqDPwXswmrOT2-MwqSTJcqvld9bHA-Xm0L7p8gRQovIAOESD6GyReeEdvlOdBNygYbIsThQZZIBU91ANZa_c0ZNvAMaQ_PROQ6tHBbRVRw.jpg" width="400"><br>
-
-اسرائیل و ایران باید فوراً «تیراندازی» را متوقف کنند.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-دو طرف، اسرائیل و ایران، به دنبال برقراری فوری آتش‌بس هستند! مذاکرات نهایی درباره «صلح» در جریان است، مگر آنکه نادانی یا حماقت مانع آن شود. محاصره تا زمانی که «توافق نهایی» حاصل شود، همچنان برقرار خواهد ماند و با تمام قدرت و اثر کامل اجرا خواهد شد. امور باید به‌سرعت پیش برود. از توجه شما به این موضوع سپاسگزارم!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76057)
 
 ---
 
