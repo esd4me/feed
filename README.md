@@ -3,7 +3,237 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-08 15:40:25
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn1.telesco.pe/file/pnuW0e1Poi087U6dqYwn03jL2o2HPcurN-EPy9BmsS4kxCmUzLZJspntXmenEo7Cu-kwNd63XOHg8BqrXkb6VvlycGy4jKwseNOavvb4bO7YFSQ4_Bc-vJifiW4b57sTXD6uUUAxni0uOx-UyeXmJoI03D_571W1um3ntjkChg_8lU8iZDtejvqPhorJ3XqOZ0i-sx0-c3OdI5XznvmDuYkiHXG9a6LCeVkKGCeT-RJpuPg4ctM5mzjROOkTkGxZfPte5g5Po-0nUm4LFqkRJ_8SBSSV4eAN12l6NnldO_8v4E1RSXCslndPEttQt63UnC01sKYkL4CHwUNUWNnKoQ.jpg" width="400"><br>
+
+وزارت دفاع عربستان سعودی اعلام کرد یک موشک بالستیک که از یمن شلیک شده بود، در منطقه‌ای خالی از سکنه در نزدیکی مرزهای عربستان سعودی و یمن سقوط کرد.
+به گزارش رویترز، وزارت دفاع عربستان سعودی اعلام کرد این موشک به سمت یکی از کشورهای منطقه در حرکت بود.
+همزمان حوثی‌های یمن، تحت حمایت جمهوری‌ اسلامی، اعلام کردند دوشنبه یک حمله موشکی به منطقه یافا در اسرائیل انجام داده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76076)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn4.telesco.pe/file/TqM3MbBrfT8b8iDAS9gAzjmYFhh1gXO_GY5qEylIFFaqJ1KXe6t9c08S-KQl8vtXvmH4fUn5f3YD483aBrzX-ZqJfeOufuIULXRucRtom5K0rPkT4qmRYgaUuJt7W510yEEimpju03EAOJFx8jDO1MxZkZ2ZlpWGNihuCYeWRy0-AItidOTIsXEcq0__pwcSV_VwyLkKsdB-Tq3dnYz5ygEYaYR7rTxjtFYH8feaDLXA9o4VszWTsyXFQzFketAihzjOe2-kvCxHWAFcTD9xuKHeSn9qbRRZqNr6i7ROlK2hd-33o1tPPIrgLUiJMkavy-iLgF47KyEp4bw9sEouOA.jpg" width="400"><br>
+
+یک مقام آمریکایی، روز دوشنبه ۱۸ خرداد ۱۴۰۵، اظهارات مطرح‌شده از سوی ارتش اسراییل مبنی بر مشارکت ایالات متحده در رهگیری موشک‌های بالستیک شلیک‌شده از جمهوری اسلامی به سوی اسراییل را رد کرد.
+به گزارش سی‌ان‌ان، این مقام آمریکایی گفت ارتش ایالات متحده هیچ‌یک از موشک‌های ایرانی که بامداد دوشنبه به سمت اسراییل شلیک شدند را رهگیری نکرده است.
+این موضع‌گیری در حالی مطرح می‌شود که در دورهای پیشین درگیری میان ایران و اسراییل، آمریکا با استفاده از سامانه‌های دفاعی خود در رهگیری برخی موشک‌های شلیک‌شده به سوی اسراییل مشارکت داشت.
+@
+VahidHeadline
+نباید اینجوری نگاه کرد که تعداد موشک‌ها چقدر بوده و نیاز به کمک داشتند یا نه؟
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76075)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn1.telesco.pe/file/dBX5dYNW8itHh98B2oxxgrnJ74BzgTqECj13lk2FN5-yZYyIj-B9GDg-y33zUzkSnbv8ai2o2jzJtpoPoF9wssClYmL5DimM85xRL5g6OzE2riwoKrkbEN6eIVw1mhRWr_I_KgkTc63nWkwBQae6cOJdi6UEny407pwFWzYgulxTHP_nCVUy4W-7oJq7y8HVu3roJXnhFCqy_HKhZC8W7iFPpMdNLoCvNAY2HGi_eRCvlFpSccQeJhAWUyqzyfstqKrgzlW52iLOeJmToNedXks4QDurf5eEBN8lGFcqGSKo-BDV9U5-2dEIdzeA8F21_OFq37nbBEjJOxPhp0D0wg.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت جمهوری اسلامی و حزب‌الله امروز ضعیف‌تر از همیشه‌اند و اسرائیل قوی‌تر از گذشته است، اما رویارویی با آنها هنوز پایان نیافته است.
+او افزود در ۲۴ ساعت گذشته، جمهوری اسلامی و حزب‌الله تلاش کردند «معادله تازه‌ای» را تحمیل کنند که برای اسرائیل «قابل تحمل و قابل پذیرش» نیست. نتانیاهو گفت آنها تصور می‌کردند می‌توانند از خاک لبنان و ایران به سوی اسرائیل آتش بگشایند و این کشور واکنشی نشان ندهد، اما «چنین چیزی نه رخ داده و نه رخ خواهد داد، دست‌کم تا زمانی که من مسئولیت را بر عهده دارم.»
+@
+VahidOOnLine
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت پس از حمله جمهوری اسلامی به اسرائیل، به ارتش این کشور دستور داده اهداف نظامی و اقتصادی را در سراسر ایران هدف قرار دهد و افزود در حال حاضر آتش درگیری در این جبهه مهار شده، زیرا پس از وارد کردن ضربه به حکومت تهران، حملات علیه اسرائیل متوقف شده است.
+او تاکید کرد اگر جمهوری اسلامی بار دیگر حمله کند، اسرائیل «با تمام قدرت» پاسخ خواهد داد و حق کامل دفاع از خود را دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76073)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn1.telesco.pe/file/YkCRkxLsL6k2V0LDY0BhFK6My384Kze0QXJ_tb55y4h7uIbQ6-NVsTHRNTK6z0ik7yzFZjYP29ANFLu89XYsn0kuy4rbsb-lQV82s_gZIhIVGip4VMc3i8N6eFtsi6i4IcQllfpUIZRQOi7xzJs3owieP4H1cQD_mkPUNQajvZLgR3YAeHEaWz5tbMk2N_QAhyUEpntLkDGPamzVHygOMKZd2nwjs-5fdDq92AY145JUmmRmG0rwDamt1_KLd-2EUkSh0di9Tnut74m8_j-yi0_Y_NfVRsVIk2LSfjVR6UwPEzQD_VzxLFh5UTzfzvnl8qI6CXS2smVE7zey0o1Mig.jpg" width="400"><br>
+
+اسرائیل هشدار تخلیه فوری برای مناطقی از لبنان صادر کرده.
+J74wabx
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76072)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn1.telesco.pe/file/qBDLjdtl_t9bjWTicJ_R1RayOoqHYWD69J70FbqDsWPN1vMD_yxZmxZDMDJFHikhp2sK21luo8DGgrGyMUi45av3d8ln_lTAUllTIyiWhyzRxDMYnhTvXv3YVvtUtZIw-GThFsPIHh64oW_pNkQnLqVCsIjOn6Yn7k4xbuwyIa1BBk7rDf0nzSfJ_urkj19NynAnEYHxdFANjGPYd8j7vf01vmXS_Q3LBtKoxa7YTaUSosPuiEUzzyHKnMRvd6LKfWBm2sWE_Rw4up3lsvofZ3Nh1qCi8Ay-NiywSA7hvo59p7LnjFAlDKSacQ2sFrW2FKiCVo69-SW-sU54KCk0cA.jpg" width="400"><br>
+
+IranSaat25
+(بحث وطنه*)
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76071)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn1.telesco.pe/file/dXYpbQWew5-TQuMA-d2aN3OVpwzfGh4KaQyvhDzNtD2dlX7h-_trfP9vOeagy9m2rvCQcAdLID8RJbKdmg5hoI89Db_OiEgaPKkEWaoMg-Vq99hLLLzYD_rfKCDdO0KcaHRCs6qVv_3p2EUUVGp4NmIaR4FpHtpSwG5M7EWBvzWZ5TT_ibKhuUT6jWNH6AWR7JdLV-tb5Hu34ma1XSJRmpKYcQjiaGeZyvjOxn8hk666j4GKlhttmfccNGlaJ73TdB-FDJtzF43ZRrS2eyBzMoBa9RWLzbamA9QV9fEC316HGk9VwwtEgW35nT4GsBlCxjwXMX0Q7_hbb8Bxe1Oyvw.jpg" width="400"><br>
+
+Atlansick
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76070)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn1.telesco.pe/file/ArYq0KqbvYgkidQwU9cT_ksZbKBFEqxFmKa-ji1taRNkjTHjXBLRqBJVtcj9vUi2hxJRpGUs3h_R40xmeX7ZTHAbLGAYeoSrEJOry9ljdgAKD7GB_JRRHlZq5d7kD5Bked4cZtSzE3LaCKc0biDtGUjWtiV9UC-wCbopsC5sK9NzSmGhAsFb2A-ZzYv5D5ywz3fcajeGkcSn4OWiUF3GMVDao9T5UuuRQy3Nwdf-5yuwcM8g_C3wywqpEVWCtUAtDzRVCv8kWZK3hQcyp9vfamWoHPTPMzamslx0l84t87K7lf1fG3wR9WzT9q3wFl05lpCuhH21L6m5nnNqSTBlrg.jpg" width="400"><br>
+
+محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی جمهوری اسلامی ایران، در پیامی که روز دوشنبه ۱۸ خرداد منتشر شد، هشدار داد در صورت تکرار اقدامات آمریکا و اسرائیل، منطقه با پیامدهای گسترده‌ای روبه‌رو خواهد شد.
+ذوالقدر در این پیام نوشت: «تهدید معتبر را از جایی غیر از واشنگتن و تل‌آویو جست‌وجو کنید.» او افزود: «اگر ائتلاف شیطانی صهیونی-آمریکایی دیگر بار دست از پا خطا کند، منطقه برایش جهنم خواهد شد.»
+دبیر شورای عالی امنیت ملی در بخش دیگری از این پیام مدعی شد که جمهوری اسلامی طی «چهل و هفت سال و صد روز مقاومت»، از میدان جنگ تا عرصه سیاست و دیپلماسی، معادلات امنیتی جهان را تغییر داده است.
+این پیام پس از آن منتشر شد که قرارگاه مرکزی خاتم‌الانبیا اعلام کرد عملیات نیروهای مسلح جمهوری اسلامی علیه اسرائیل پایان یافته است. رسانه‌های رسمی اسرائیل نیز از توقف حملات این کشور به ایران به درخواست دونالد ترامپ خبر داده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76069)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn4.telesco.pe/file/DThcraQCG6qhSAbbaLzg5dwZicOYdguRQBLA8__Eh_62Xa8hKW6YoaBqHyKj2396fW291wUeokYuROqI-bAeaetxvdbgOrvdYcz5cT9xA3qi4wsmp-SW7hlynOmqskd9kBToWKkt53LwUePXZinCHFw15nhn72I3n0yyeGZGumdkYvV-DpxDhm_Zr7SUg9XmrxV6r9j5vuc7BNNymGSSwTZLdaqyfFBn4qSgDNNFwDoP2HneZzlae__JFcO3Xc8LTwYV84aFiI1N28KRNS0cIwmnCSXgOy9NpYIJJCcgjZg0hcptUwvVWVIXXBi0RlObTgxW4s1IzLkoW6IR9RRFEA.jpg" width="400"><br>
+
+یسرائیل کاتز، وزیر دفاع اسرائیل، اعلام کرد هرگونه حمله به شهرهای شمالی این کشور با حمله به ضاحیه در جنوب بیروت پاسخ داده خواهد شد و ارتش اسرائیل به عملیات خود در لبنان علیه سازمان «تروریستی» حزب‌الله ادامه خواهد داد.
+او افزود: ما تهدیدات جمهوری اسلامی را کاملا رد می‌کنیم. هرگونه تلاش تهران برای پیوند دادن لبنان و ایران و حمله به اسرائیل، همان‌طور که یک‌شنبه اتفاق افتاد، با شدت زیادی پاسخ داده خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76068)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+
+
+ارتش اسراییل، روز دوشنبه ۱۸ خرداد، ویدیویی را از لحظه حمله به یک سامانه پدافندی جمهوری اسلامی منتشر کرد.
+ارتش اسراییل گفته نابودی سامانه‌های پدافند هوایی ایران، آزادی عمل هوایی بیشتری برای عملیات‌های بعدی فراهم می‌کند و بخشی از تلاش این کشور برای مقابله با تهدیدهای جمهوری اسلامی به شمار می‌رود.
+@
+VahidHeadline
+و در پستی دیگر ویدیوی دوم بالا رو درباره مجتمع پتروشیمی در ماهشهر منتشر کردند.
+بدون هیچ شرحی درباره اقدام نظامی خودشون نسبت به اون مجتمع پتروشیمی
+نه در متن پست نه در خود ویدیو
+اگر قبلا تایید نکرده بودند که به اونجا حمله کردند این طور پست گذاشتن بیشتر شبیه به تهدید به نظر می‌رسید. شاید الان هم همینطور باشه.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76066)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn1.telesco.pe/file/LKSkITTAPT8iYfdq8841J1U39Vbycv6qkEj6T86xE7h8QA8ntS8iTcTPpemy6025NhEbmkWsvuea56e_05lpZ_NhlgxcF3-vGU-49xTMFX3NZ3mqHLkC0OQ-cidtSXSYUIjR-TG-GxAfLnbu39vq3ngeWdP74c98bRR47wl6OhwVewYzYCvYvorOCcNGkd9khoCC_WEvzmID8nOUYzDIMXa0lEDYbEm57z9nH4qSV9LTYv27F7wmGh61HO9672nmjo8lrRnWEW2sbB8n6egjwUovi7pZOrDYq571Do4mqNE5SyE_0NGVKXhj7w0oitCJ0x0tg39v581tldrOrdy87w.jpg" width="400"><br>
+
+توییت محمدباقر قالیباف:
+"معادلهٔ آتش‌‌بس روی کاغذ و نقض مکرر آن در میدان را بر هم زدیم.
+تا زمانی که ارادهٔ واقعی برای اعتمادسازی نداشته باشید، پاسخ ایران همین خواهد بود."
+mb_ghalibaf
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76065)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn4.telesco.pe/file/PUJA541Z0iUwvvSP4BjgaGUfwQZzD5MAqXKDG8o_ul6QKT8m6Yo66VHDmQawXhl_s9gLZKbAZypLUmxGym_t1-Gy7Lbxtqn_zrPCc8YlGP2nHxdewBpa_qHQO-ZIn1zXoT1aIlDhBxbFnj-EkJppHoPywY4HZPiHNSQETM7gwd0__yMTRHCcwziz7S43axj3_cP5r7JKZ87Zaixhj0SB3lauzJb-3isu9zo1PExKsRY2TiN27O6UJSMUlA4mUqVXtEClAUhUnzbz7VFf0XjiBCp3BkAtznf7-3L8fzgOiX7oHRdsH08Gz-jG5FPGnQZMniMxbLpPeb2lTf_IIQbYbg.jpg" width="400"><br>
+
+رسانه‌های دولتی لبنان گزارش دادند یک حمله هوایی اسرائیل روز دوشنبه ۱۸ خرداد یک خودرو را در شهر صور در جنوب لبنان هدف قرار داده است.
+خبرگزاری ملی لبنان اعلام کرد: «یک حمله هوایی دشمن، خودرویی را با موشک در شهر صور و در نزدیکی ساختمان صلیب سرخ لبنان هدف قرار داد.» تاکنون جزئیاتی درباره تلفات احتمالی یا هویت سرنشینان این خودرو منتشر نشده است.
+این حمله ساعتی پس از آن صورت گرفت که جمهوری اسلامی ایران و اسرائیل پس از ۱۶ ساعت درگیری نظامی اعلام کردند حمله به یکدیگر را متوقف می‌کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76064)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn4.telesco.pe/file/O3hbE973k9_4riEpDsXp_04kyD7dOTZl6rgtTzwI5dL7mSHtNnB1MB1PJ8zKZZi_aNAhqGdjQmFfetPKFLt8lk56cdLGuW8ihMXYt2ctJkAOXfr_mt1UucGM1yqESTZvBfeXweHQYYLhifnuC_KPsPDcFNLbBidCBnbFRwwdc-JIwkNeXealsLOrUkAIQ7A_XYIAbEPVSdFV-iu1A7wrOD47IYLM3zPhQ0e_XqY1mLsLxcLvaD3Ie0LvGEnk5mFjfMzQxZTSvhnLhwAqWH-mK_MkfLHWW2YXsAjuz-4z2qs_gZepooriT6SaPSQ-lxV9z3MIC4CD7G2SeQRFK0ABwg.jpg" width="400"><br>
+
+رییس سازمان اورژانس ایران، روز دوشنبه ۱۸ خرداد ۱۴۰۵، اعلام کرد در جریان حملات اسراییل به ایران، ۱۵ نفر مجروح شده‌اند و تاکنون هیچ موردی از جان‌باختن شهروندان گزارش نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76063)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
+
+<img src="https://cdn4.telesco.pe/file/FWvamWPV6sBQ8vxxzof1aDm_2q-yRmrrBgP1dHvMYVOos-BGls0JPy4uUnqnaAwiAZ5qVVdZAE9DV0h984j7nv9x-3JGOAt-viLAPdZZ-8-XDe46yIXSK99ULPYmCAqdzQuaUU6oOxB0PxCwY0AnVhNs7khmygmAk0-C9W6u3GS0Nswci0vLEq3593iy_Oc8Y1_UqwL6YgQv5WDnyze2oApKEDxhSzsHTClVHYPpZFnt7VxkBb2VwnN2r8rm9caQUaQTxYMHBhb2DD_LKQw1k1dA3Jmhupa6LyABaoqFeJvd3RCBFtxuHxhIO0aAhKABUz9mU33X0i6YD2crkF9_bg.jpg" width="400"><br>
+
+خبرگزاری ایسنا عصر روز دوشنبه، ۱۸ خردادماه، به نقل از شرکت فرودگاه‌ها و ناوبری هوایی ایران خبر داد که «همه پروازهای فرودگاه‌های کشور تا اطلاع ثانوی لغو شد».
+این اداره همچنین از تمام مسافران خواست تا «جهت حفظ نظم و پیشگیری از هرگونه سردرگمی، تا زمان اعلام وضعیت عادی از سوی مراجع ذی‌صلاح به فرودگاه‌ها مراجعه نکنند».
+این خبر ساعتی پس از آن منتشر شده که قرارگاه مرکزی خاتم‌الانبیاء سپاه در آغاز بعدازظهر روز دوشنبه با انتشار بیانیه‌ای از توقف عملیات نیروهای مسلح جمهوری اسلامی علیه اسرائیل خبر داد.
+همزمان رئیس سازمان حج و زیارت خبر داده است که «با توجه به شرایط پروازهای بازگشت حجاج احتمال تأخیر در برخی پروازها حتی تا ۷۲ ساعت وجود دارد».
+او اضافه کرد: «برای فردا (سه‌شنبه ۱۹ خرداد) ۱۰ پرواز پیش‌بینی شده که امیدواریم بخش عمده آن‌ها انجام شود.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76062)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 19:51:26
 
 <img src="https://cdn4.telesco.pe/file/Ns28mmaEqFHd715oBQ8Ul7u-gQHwAd8dczbTTpai-8Rv3leACEOiMCcCscVoeqmBS6D6qbZJeIEe5DrnEsz8iCIqlPlrpNdAtXL_T8GBw86GOwlGP-4H8I_SDsyuO030mmbjAF3Uj7aFFpp2wz4MG8rBxRg5kXow0pr7NvNr-nzHzvnHF8ARtXZs6R1UUWFe4yCGnIrKxxG6msXEfVgUR581n-fIiJD8FGTg3wFX4DRcoAJFmy-fdRmPwWEtPRgUXs4uE15QhpQgL4NSS6hFX1ShQe78sSqkFpc4zl1aI_Diokqwps8hqMDiKodYwD4Fq8zhvJKdvKlYupf1ZX2l5A.jpg" width="400"><br>
 
@@ -21,7 +251,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 15:40:25
+###### 🔵 Updated at: 2026-06-08 19:51:26
 
 
 
@@ -40,7 +270,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 15:40:25
+###### 🔵 Updated at: 2026-06-08 19:51:26
 
 <img src="https://cdn4.telesco.pe/file/nAbzoYyBTM4k4Ys6S0dkeYqyTISv_rqOel4vTE4gP2wGnpmJBPvu9T3SDL7EDwxpzovud9MbSgfD2PnJUbWnuMOq2OugMmC6U8LCh6twQT0Ix4okUxe2jY19-fiiJNXdgc6X70eOfgijLf8B-2xTZmTdL0mxgiVSSfFFVYRqOIemqBWdV4I5fXPSrCuxt9yaH3mD5UpikUvshT7VbtEYquoNgJh0xSnaaFJy_I4mDNlS9Tusty6YnV-w1haCIyq5cP275bv-mHXWpeEDyqWQFSDau5LUqTQJKGe8uoTsqclJzAodrTyujaxdcGW8tZh0lY9vjNo3St9Bz35OAFfHvw.jpg" width="400"><br>
 
@@ -63,7 +293,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 15:40:25
+###### 🔵 Updated at: 2026-06-08 19:51:26
 
 <img src="https://cdn1.telesco.pe/file/u3hRruqTgnk9KVaBKoZX1sqDkNR9T7zTZ0MuObaGPRhooi_lLMkk6Ficdvd1PcBvPuAkBVbzklCmWbOPh9zv0R0WB_AKbSucOiDoFC29Tfdrcec5_XCtHP7nq_zsBSTHJaLyVFxP1b9B8U--GV7kEJ6zkT1zjFnpNQNZFpCvtc7rvmiXjvKYKfjaRlFVEKS6lpUyQXO7LhWSWEm53t2jYBhapfzXdm6sAI_PARwSDoMKQqDPwXswmrOT2-MwqSTJcqvld9bHA-Xm0L7p8gRQovIAOESD6GyReeEdvlOdBNygYbIsThQZZIBU91ANZa_c0ZNvAMaQ_PROQ6tHBbRVRw.jpg" width="400"><br>
 
@@ -77,276 +307,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76057)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-<img src="https://cdn1.telesco.pe/file/UGZY9JJmLB5IvTBZIQWkI0QoVa8-5tq6phw_OpE4poilx52gABU47eY02GbBmeT5SeSVh395eAE5g6O6lkeOT-dO25DD65tqiZycFRltf6eclGzqMOnfDpsZtfHmsFZ1KjvG6NWNrZfix5EO6bwbYLKtOCSF7JygBbbDFft6NNGo6n28s79EqlS0xNwjjacPia2e8OnLqDVQeMzNkZGcE1HkaAzEzbUi6YPQnmguj3LqblfU8nD_CzuWjv7mE74aG3VuqZy3FKiEPKAiRA7iEk8C2I8U-ewwrGPcuAOnFhPR7ae4Jbrs_Gp9u5byVwpqldl-xTkxDF0WmNk-5f5KiA.jpg" width="400"><br>
-
-رسانه‌های وابسته به جمهوری اسلامی گزارش داده‌اند که نیروی هوایی اسرائیل همچنان حملات خود را در نقاطی از کشور ادامه می‌دهد.
-بر اساس این گزارش‌ها، فرودگاه شیراز در جنوب کشور نیز در میان اهداف حملات اخیر قرار داشته است.
-هنوز جزئیات دقیقی درباره میزان خسارت، وضعیت پروازها و تلفات احتمالی منتشر نشده است.
-@
-VahidHeadline
-در خبری دیگر:
-خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی نوشته:
-"پهپاد متخاصم دشمن آمریکا_صهیونیستی توسط پدافند هوایی در آسمان تهران هدف قرار گرفت و منهدم شد./ مهر"
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76056)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-<img src="https://cdn4.telesco.pe/file/NT7P8V3sYARYfsHGIXcpawuF8kstLRj6I3x4YDwg1kmNseYD8s-yBVk64f0nHMsJUmpBNShlg00hlRQFrJaV8-zKMUby-vatEJJYWMVfGaX8QxuCss1abgaTxpOHaMNaaOZqE0IDcb3H8eadyFTk0-cN1KZS_cp_ZKMOSw8X7tfmXHxhmXVuk829BTvP_XqdXHo0ceuxcf0iO59qwlJ_FhYPJU2LfL6wWol2RYr6wZv-5xbyp3r6rcGUMPBMJyQK-Iu2W47ZNcBCR70N0PnNVWzHkJjs9AJ9PcGus0OaJvpfMUwTUcfzeuSa_w3KhLuFjfsPdo-TUPFcXset0Hq0cA.jpg" width="400"><br>
-
-سپاه پاسداران در بیانیه‌ای گفت در پاسخ به حمله اسرائیل به صنایع پتروشیمی ایران به صنایع پتروشیمی حیفا حمله موشکی کرده است.
-بنابر این بیانیه، هدف قرار دادن اهداف غیرنظامی و تاسیسات نفتی «بازی خطرناکی» است که زیرساخت‌های انرژِی منطقه را تهدید می‌کند.
-پتروشیمی کارون ماهشهر که در بیانیه سپاه نامش برده نشد، تاسیساتی است که هدف حمله اسرائیل قرار گرفته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76055)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-
-
-پیام‌های دریافتی:
-‌
-وحید تهران صدای مهیب وحشتناک
-ساعات 11:33 دقیقه جنوب تهرانسر صدای انفجار اومد
-سلام ساعت ۱۱:۳۰ رباط کریم صدای انفجار
-تهران صدا و موج شدید انفجار ۱۱:۳۲
-همین الان صدای تک انفجار غرب تهران
-زدن تهران صدا واضح انفجار
-ساعت ۱۱:۳۳: صدای یک انفجار شنیده شد - تهران آزادی
-صداش خیلی زیاد نبود حوالی غرب باید باشه احتمالا
-اسلامشهر صدای انفجار ساعت ۱۱:۳۲
-تهران الان صدای انفجار اومد
-تهران غرب ۱۱:۳۳ تک انفجار بزرگ
-سلام وحید جان.۱۱:۳۳ تهران صدا انفجار اومد.من غربم صدا دور بود ازم
-۱۱:۳۳ دقیقه صدای انفجار ملارد فکر کنم زدن
-ما سمت مهرآبادیم ساعت ۱۱:۳۲ صدای انفجار اومد
-صدای انفجار در اسلامشهر ساعت ۱۱:۳۴
-وحید ما غربیم 11.33 صدا انفجار امد
-یه صدای تک انفجاری اومد الان انگار سمت یافت اباد
-بهشت‌زهرام. از نزدیک اینجا صدای انفجار اومد. ساعت یازده‌و‌سی‌و‌دو.
-همین الان اسلامشهر تهران ۲ تا صدای انفجار
-سلام وحید جان، صدای انفجار در فردیس
-غزب تهران سمت پونک همین الان صدای انفجار
-تهران اطراف اتوبان نواب صدای انفجار
-شهرک غرب
-صدای مهیب انفجار از دور اومد
-وحید قلعه حسن خان دو تا صدا انفجار قوی
-سلام باقرشهر کهریزیک صدای انفجار 11:33
-وحید داداش سمت دریاچه ۳ تا انفجار ولی دور بود
-11:32
-گرمدره صدای بمی داشت تک صدا بود ولی دلم یجوری شد
-سلام وحید جان من سمت مهرشهر هستم ساعت 11:31
-صدای انفجار خیلی وحشتناکی اومد
-از شرق کرج یا غرب تهران
-ساعت ۱۱:۳۳ سمت ملارد صدای انفجار وحشتناک اومد
-سلام ۱۱:۳۳ صدای انفجار اومد از جنوب تهران از دور بود
-تهران سمت شریعتی ساعت۱۱:۳۲ صدای خیلی دور انفجار اومد
-از ملارد ساعت ۱۱:۳۳ یدونه صدا اومد
-وحید اسلامشهر دوتا صدای خیلی وحشتناک اومد
-ساعت ۱۱:۳۴ اسلامشهر ۲ انفجار با فاصله یک دقیقه
-ما سمت چهارراه ولیعصریم دقیقا ۱۱:۳۳ دای انفجار از دور اومد
-سلام ما عظیمیه کرج ساعت 11:33 صدا شنیدیم، دور بود
-سلام من نزدیک مهرآبادم یدونه صدا اومد بنظرم بلند بود اما خیلی نزدیک نبود
-بازم هم مهرشهر کرج صدای یک انفجار
-ساعت ۱۱:۳۵
-درود گلشهر صدای انفجار اومد همین حالا
-ما تو یافت ابادیم صدایی که اومد نسبتا دور بود ولی خیلی مهیب بود
-سلام وحید جان من سمت شمال تهرانم ۱۱:۳۳ دقیقه صدای انفجار دور ولی سنگین اومد
-آپدیت:
-پیام‌های زیادی درباره فعالیت پدافند در مناطق مختلف تهران دریافت می‌کنم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76054)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-<img src="https://cdn1.telesco.pe/file/qaA0y1OZssQ4qWQDu2YsTf1r2CuqZE1rkZXJ6D_CZrFbIyZ-WRuRR638NVCQzQBD8-YYxUviSpGcTGo4J0VIgHLkxF6KvupZTZ9AP7G1Yq_W1mb_T3CzEdJzZZHC0R8OjAg1H9Kxbmbvm6YMZtLYzNFAUwHgrRTbWP8u-2w81ZwlWxHGZzw6bOIhQGUDEGuvWl62lNqB5As_u4cMuTsHrbnoCpJZF-xx3FgjvnaUcag8cO93i2CSCGH4yIov949_VNq5qzCCaXcAzEM-_rRKY55atdMogLsx-AUfi8-O0sd9fQQgyS0TCEzGPSRUUdMflViKueZaWgXr-hqqOHZSMw.jpg" width="400"><br>
-
-پست ایلان ماسک: "تنگه هرمز به نام اهورا مزدا از آیین زرتشت نامگذاری شده است."
-elonmusk
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76053)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-<img src="https://cdn4.telesco.pe/file/exzVUZ27j-yKSUwABXgtcmjTt2uu_Q6vSU9cOLdZXRJ5JJf1QqekGxxa8a3WxYP8NfnekF2gdRj9PJc2tr3ewXsVhN48Dk4O_RomhMrpf9iacqj80cCCkROKteYrOTbO-VS2ylh2RbTVKWAsN4njkTSIG5ce4GnsPHsAIpTqo1z9UlPrpwC6Fc8S_NMj8q9jAgvg9KpTrq7pDwgGVdbhaBwPXTpCQrAnygKknXpM7rXlpqwF0Trm-TXaEPOsJD4_d1E8kOK24m4MxHmT47EqjayBr_m79-xY0F9uhnWcqSyRhUKniBX6_HO0GRkDu1qhb-Kq3HkesJ-dJcmFbeO4Ag.jpg" width="400"><br>
-
-«اسماعیل بقایی»، سخنگوی وزارت امور خارجه جمهوری اسلامی، در نخستین کنفرانس خبری خود پس از آغاز حملات ایران به اسراییل گفت که اتفاقات ساعات‌ گذشته، به بی‌اعتمادی موجود میان تهران و واشنگتن دامن خواهد زد.
-بقایی در نشست خبری خود گفت تبادل پیام میان ایران و آمریکا تاکنون در فضایی لبریز از بی‌اعتمادی انجام شده و به گفته او، آتش‌بس نیز «به طور مستمر و مکرر» از سوی طرف مقابل نقض شده است. او تاکید کرد جمهوری اسلامی هر زمان که لازم بداند برای دفاع از «امنیت کشور» اقدام خواهد کرد.
-سخنگوی وزارت امور خارجه همچنین آمریکا را مسوول تحولات اخیر منطقه دانست و گفت اسراییل بدون هماهنگی با واشنگتن اقدامی انجام نمی‌دهد.
-به گفته او، وزارت خارجه آمریکا حمایت از اسراییل را دلیل اصلی جنگ علیه ایران دانسته و جمهوری اسلامی از همکاری و هماهنگی کامل فرماندهی مرکزی ارتش آمریکا، سنتکام، با اسراییل در حوزه‌های دفاعی و تهاجمی اطلاع دارد.
-بقایی با اشاره به تفاهم آتش‌بس ۱۹ فروردین، آمریکا را مسوول هرگونه نقض آن دانست و گفت پیامدهای تشدید تنش در منطقه متوجه واشنگتن خواهد بود.
-او همچنین از «رافائل گروسی»، مدیرکل آژانس بین‌المللی انرژی اتمی، انتقاد کرد و گفت در صورت تصویب قطعنامه‌ای علیه ایران در شورای حکام آژانس، تهران «پاسخ مناسب» خواهد داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76052)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-
-
-اکانت ارتش اسرائیل با انتشار ویدیوی بالا نوشت: "در دوره اخیر، سامانه‌های پدافندی در چندین منطقه مختلف در ایران مستقر شده بودند، ... این حمله منجر به انهدام این سامانه‌ها شد."
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76051)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-<img src="https://cdn4.telesco.pe/file/LiEajPXiKMih9L3ScGpLQ6_8IS3yu75yyLVUeTqJz2rIkOIbGcX69Pbv-x-j52N82oGMsiudAqP8DamA2YUB__2wzE37MOOtDrJ4XmKRYPRJ4x2yf3_hvcLmSFvdm2XoDunZyj72BbCVsv9No0j6Hl5qHVK0m1TVcoVOHwS6am--0QIzwQZl6piQtrL2Vo8q0N0CUEKWNBSOxEQ011lsNLaguD5PnO_anzAI0xTfPXaQbqRQI8mxGJplPz46TpKYzJnMI8lHGYLKO2Yapmynk6b6kHCkEtHEmE2X6OpymhGXtlfy-zxNdFLkAPEd4BLDzzxDos6zPqN1GWCfCdzO8Q.jpg" width="400"><br>
-
-وزارت امور خارجه قطر اعلام کرد «محمد بن عبدالرحمن آل ثانی»، نخست وزیر و وزیر امور خارجه این کشور، در تماس تلفنی با «عباس عراقچی»، وزیر امور خارجه جمهوری اسلامی، درباره تلاش‌های میانجیگرانه میان ایالات متحده و ایران و همچنین تحولات لبنان گفت‌وگو کرده است.
-بر اساس بیانیه وزارت امور خارجه قطر، نخست وزیر این کشور در این تماس بر حمایت دوحه از تلاش‌ها برای مهار تنش‌ها و دستیابی به توافقی جامع که به تقویت امنیت و صلح در منطقه کمک کند، تاکید کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76050)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-<img src="https://cdn1.telesco.pe/file/dew4RyEW4vXEKHu6Gu2wDAFyW221SXNuZyCf0PIsdcBNsH9ipZzcYGuRwS4jAwKkXM2QBVKAtbh28xGOT_YO0YoXjh5xHFez6ebp-r5KoRQ26DM6OMbsyW1Izg4vJyJWPmTGm-7P6vEHXA2xO1bMXRpLcR6BfafKnFYWlIOpQIQvHO8pQlViZYopzuhVpkkwi3fHUigBxgVNFIto40bR78g9DeUEUbS5MzH5VD9h2aJhnGzWKnntLLpwKCDw29GvyFib71JvgagU2B_gKoVEzqGzzy0QsyquaYORWXjPR7_lq7qk4ED3n_MCVK6s7nCKaFIyiSa2ki2Ol4yf62MMlA.jpg" width="400"><br>
-
-پیام‌های دریافتی:
-ما کاشان هستیم
-اینجا قشنگ صدای موشک رو حس کردیم که داره رد می‌شه
-همین الان ساعت ۱۰ و ۱ دقیقه.
-از خمین همین الان موشک زدن
-شلیک موشک از ابهر ساعت ۱۰
-خمین ۹.۵۷
-وحید طرفای ابهر خرمدره ازناب زنجان موشک زدن ساعت ۱۰.۰۲
-سلام شلیک موشک از استان مرکزی
-وحید جان سلام ساعت ۹.۵۸ دقیقه یه موشک از ابهر زدن
-سلام از کاشان هم همین الان موشک زدن
-شلیک موشک از زنجان ده صبح
-سلام از خوانسار صدای موشک اومد، رد موشک هم توی آسمون هست.
-همین الان از زنجان دو تا موشک بلند شد
-هم‌زمان پست ارتش اسرائیل:
-ارتش اسرائیل شناسایی کرده است که مدتی پیش موشک‌هایی از ایران به سمت حریم کشور اسرائیل شلیک شده‌اند.
-سامانه‌های پدافندی در حال رهگیری این تهدید هستند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76046)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-
-
-لحظه اعلام خبر حمله موشکی به اسرائیل در تجمع هواداران گروه‌های مسلح شیعه در تهران
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76045)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-<img src="https://cdn4.telesco.pe/file/cIiVYqYaS7EvD3FvJuj89-FeZydriki6wUdoa0NV5o-B0E1ayo6KdvMoD66hOHbh9Iw9T3xWtnzw_dr9OaU_OfPje4GL1lzBDGaMjv-JvbowjD0_1dCZj19JEqUE-5Pjs2hJKrPbCoRr_oqxqZYZqzhzG97OpXIKCRPz3gWbTQegKuKXazz3pmfcbA2BRpRpkQVY65Lh0uSEO8NMRNF495jTC2dAxWGqxQ_vSeWMPMt7bGFHJD7ZqLy-lpQKBVo4rXkWOjQC1r3nhl35YNDpGevX5Yne-L5gROeg08jrwuza52B29fvtmlpSJ54KIVXt0u-TtBCALtHQ3nVDXQDpDQ.jpg" width="400"><br>
-
-ارتش اسرائیل اعلام کرد که تمامی موشک‌های پرتاب‌شده از سوی جمهوری اسلامی در صبح دوشنبه به سوی اسرائیل رهگیری شدند.
-ارتش اسرائیل افزود که پرتابه‌ای که به یک زمین باز در کرانه باختری اصابت کرد، احتمالاً یک قطعه بزرگ باقی‌مانده پس از عملیات رهگیری بوده است.
-در همین حال، پس از آنکه هشدار اولیه در اورشلیم درباره حمله موشکی جمهوری اسلامی صادر شده بود، برای این منطقه وضعیت پایان هشدار اعلام شد، زیرا موشک جمهوری اسلامی موفق به رسیدن به خاک اسرائیل نشد.
-@
-VahidHeadline
-به گفته نیروهای امدادی اسرائیل، اصابت یک قطعه از موشک‌های شلیک شده از ایران، به چند خانه در یکی از شهرک‌های کرانه باختری آسیب وارد کرد.
-در این حادثه مجروحیت گزارش نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76044)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-
-
-@
-iliaen
-ارتش اسرائیل حمله به سایت‌های پتروشیمی در جنوب غرب ایران را تایید کرد
-به دنبال گزارش خبرگزاری فارس مبنی بر حمله به مجموعه پتروشیمی کارون در ماهشهر که خساراتی به دنبال داشته، ارتش اسرائیل حمله به سایت‌های پتروشیمی در جنوب غرب ایران را تایید کرد و گفت به اهداف متعددی در مجموعه پتروشیمی ماهشهر حمله کرده و جزئیات مربوط به این حمله را به زودی ارایه خواهد داد.
-ارتش اسرائیل پیش‌تر گفته بود که مواضع حکومت ایران را در غرب و مرکز ایران هدف گرفته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76043)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 15:40:25
-
-
-
-اصابت موشک به شهرک یهودی‌نشین ایتامار نزدیک شهر نابلوس و در بخش شمالی کرانه باختری رود اردن
-FattahiFarzad
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76042)
 
 ---
 
