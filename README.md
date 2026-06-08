@@ -3,9 +3,123 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
-<img src="https://cdn1.telesco.pe/file/G6lZKFNRktCH6_P1qeOshwzzJue4wOldolWWu5R8WqTngdMtYso9wKWQ4LerJV9At71Rab8Gky-fdhSTOrNONHb-IG6sEScZZIIJp_SmQDKoy4LHOifoB-AfueP2atMx0RgqbHYZ4m39Xt1Jo0XpUz6FIEJniH_-vDL0yH7uCEL9NJGy-ADWgp0TlBXlo7x0Y48jpum-HWv00nLJuej3SnUlK8AWKXiuKMkc7VWO9RpYvBbqMikHpcDG2G3gJiRpl8eRJ_vUxBtvs35sZDgf5xDzUTXkod3_sENktoYeb5D-pDGvQ95-MYlizgU07pkq9d6SrPPRnqBlryOskaUt7w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/d82nhegdaOnYSCL5ROa2KPeynhPaWIjxmAkHuwcG8cnPHAXPSs40k_6w2zLK1HWHWGjGOX4HIyvQual9XUtBYc8Ju-M3OAFB3r8op-nwck1xg3oUGSud9G6he2Akntghoku9301r83PzaSf_NSevgL2YZ8aMVlC2NwGM4YxUb5KBQzJ2BWsuKAFQ48uQgxIc-Imc-D2PJTSMAQv58kI8PyQreicP8hlIaMgzFKO-NYzX1l8xAZghhdQsNNUDn7olSw5am9gZ3CIDqB08ER4dieq-uquIs0cVbBJOoTIAOTi0PEFRC-Xez33-MA0QikU5BA71YjYmluTpnqjPmnMA2w.jpg" width="400"><br>
+
+‌سارا اسمیت، سردبیر بخش آمریکای شمالی بی‌بی‌سی، در یک تماس تلفنی کوتاه با دونالد ترامپ درباره گفت و گوی تلفنی روز گذشته او با بنیامین نتانیاهو، نخست وزیر اسرائیل، پرسید.
+وقتی از آقای ترامپ سؤال شد که آیا نتانیاهو با حمله موشکی به ایران در روز یکشنبه از درخواست او سرپیچی کرده است، رئیس‌جمهور آمریکا این موضوع را رد کرد و گفت: «نه، نه. موشک‌ها از قبل شلیک شده بودند. آن‌ها از قبل در راه بودند.»
+او سپس افزود: «اگر به او بگویم کاری انجام دهد، انجام می‌دهد.»
+این تماس کمتر از یک دقیقه طول کشید.
+در بخش دیگری، سارا اسمیت از آقای ترامپ پرسید که برای متوقف کردن حملات اسرائیل به ایران به نتانیاهو چه گفته است.
+«تنها چیزی که گفتم این بود که باید از عقل و منطق استفاده کنیم. ما به امضای یک توافق بسیار قدرتمند و بسیار خوب نزدیک هستیم. بدون سلاح هسته‌ای، بدون هیچ چیز دیگر.»
+او ادامه داد: «می‌دانید، باید از مقدار زیادی عقل سلیم استفاده کنیم. همه چیز خوب بود.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76086)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 00:35:34
+
+
+
+پیام‌های دریافتی تایید نشده:
+وحید جان گیشا یه جارو زدن یه انفجار وحشتناک بود
+[از روی صدای یک انفجار چطور میشه تشخیص داد که دلیلش حمله بوده یا چی؟]
+وحید جان ۱۲ و ۱ دقیقه صدای انفجار خیلی خیلیییی بزرگ
+گیشا
+سلام از گیشا
+یه صدای خیلی بلند انفجار اومد
+همین ده دقیقه پیش
+همه ی همسایه ها اومدن دم پنجره
+نمی‌دونم چی بود خیلی عجیب بود
+همه جا لرزید
+📡
+@VahidOnline
+۲۰ دقیقه صبر کردم ولی پیام‌های زیادی دریافت نکردم.
+آپدیت:
+ما وسط گیشاییم و خونه هم ساکته، کوچیکترین صدایی نیومده
+وحید جان راست میگن دقیقا ۱۲ و یک دقیقه در گیشا صدای انفجار بزرگ اومد،اما فقط یکی و واقعا نمیدونم چی بود، ضمنا برخورد به زمین و یا عمیق نبود.
+من گیشا زندگی میکنم ، با اینکه امروز ظهر هم گفتند یک جا یک جای گیشا را زدند متوجه نشدم
+حتی الان هم که پیام گذاشتی داشتم می‌خوندم اما متوجه انفجاری نشدم
+من گیشا هستم چیزی نشنیدم
+آپدیت:
+بعدش کلی پیام دیگر هم در تایید و تکذیب شنیده شدن صدا دریافت کردم ولی چون بعد از انتشار پست بودند نمیشه خیلی روشون حساب کرد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76085)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 00:35:34
+
+<img src="https://cdn4.telesco.pe/file/sibo_5yl3Cy5VlKfwcLY33fOJSduRNs4KtITDsRqdmL7l2qj2Bu_nDWWKiAWVcVe08rj87-XrkqXJVtlQsWwbMghl5Ax4924_QWvBzvqa1fvHmtUywhJKjYS2kkzjJ14wRaZv5xAPh9h5XF53WYEflwNeS6gCWaim7SUzO8NtwCvkLfCtfoA5kmjT7gWKE3d6N-iKQaPB_b7_Gn8q9JoVwMySFP21kdPfHNpzd4exIsSSsz2fcc2pve7zVPbQmoCoK9yCE9NgULMYO9nuExYEIiCx4nBtZgAKz20UwPb5Vf5Li-72WhA6BeP4HSp0VD6brk5HL05zR0ZNLVsQ1gN8Q.jpg" width="400"><br>
+
+♦️
+شبکه خبری سی‌بی‌اس، روز دوشنبه ۱۸ خرداد ماه گزارش داد، دولت دونالد ترامپ قصد دارد روند لغو تابعیت ۱۷ شهروند آمریکایی را که به تقلب در پرونده‌های مهاجرتی یا برخی جرایم متهم هستند، آغاز کند.
+بر اساس این گزارش، وزارت دادگستری آمریکا این افراد را به پنهان کردن اطلاعات مهم، ارائه اطلاعات نادرست در روند دریافت تابعیت یا ارتکاب جرایم مختلف متهم کرده است.
+سی‌بی‌اس نوشت این اقدام بخشی از کارزار گسترده دولت ترامپ برای استفاده از سازوکار قانونی سلب تابعیت از افرادی است که به گفته مقام‌های آمریکایی، شهروندی این کشور را از طریق تقلب یا پنهان‌کاری به دست آورده‌اند.
+در میان افرادی که هدف این اقدام قرار گرفته‌اند، نام چند نفر که به جرایمی از جمله سوءاستفاده جنسی از کودکان، کلاهبرداری مالی، پولشویی، تقلب مهاجرتی و استفاده از هویت‌های جعلی متهم یا محکوم شده‌اند، دیده می‌شود.
+تاد بلانش، معاون دادستان کل آمریکا، گفت دولت در برابر سوءاستفاده از روند دریافت تابعیت «هیچ‌گونه مدارا» نخواهد داشت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76084)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 00:35:34
+
+<img src="https://cdn4.telesco.pe/file/f3D8ASStHr6ADCZqQXmEwYiyy8WaplyaW1P5mR9UqS4qvN1YBmt0V9YiCxQBe7ZxJ6RVcQVpyTIa94jg3KBxabHAoN49p2ghnnMZ8_14NRKAoZaMd-gyGiDBF81aGIgB5E07Ruos05f2XemJt-bWWpmuabEbpK3dzBHK1BUuhWdDeiiKQ8bunqWvpM4c71oxauTaZqKtdfWAEy0s6W17Bd7Tr5_VRSIizfbQh2jiKyNUWG2diKVLwNvxgRW_Mp6DpyN312m4ThIf5F2OVOBmyk2qO9CBKqXmg-apNGeC25tSGdID_e_zKIVW2BTScXRZZlGD-H-Ago6s6-CgDDUJyQ.jpg" width="400"><br>
+
+شبکه خبری سی‌ان‌ان، شامگاه دوشنبه ۱۸ خرداد ماه، به نقل از یک منبع اسرائیلی و یک مقام آمریکایی آگاه گزارش کرد اسرائیل در حال آماده شدن برای حمله‌ای گسترده به تهران بود، اما دونالد ترامپ، رئیس‌جمهوری آمریکا، در تماس تلفنی با بنیامین نتانیاهو از او خواست از انجام حملات تلافی‌جویانه بیشتر خودداری کند.
+به گفته منبع اسرائیلی، ترامپ در این تماس از نتانیاهو خواست دامنه واکنش اسرائیل را محدود کند تا از تشدید تنش‌ها جلوگیری شود.
+بر اساس این گزارش، نتانیاهو در نخستین تماس که شامگاه یکشنبه به وقت آمریکا انجام شد، در برابر درخواست ترامپ مقاومت کرد و اصرار داشت اسرائیل باید به حملات ایران پاسخ دهد.
+با وجود اخطار ترامپ در گفتگوی یکشنبه شب، ارتش اسرائیل برخی اهداف را در ایران، از جمله یک مجتمع مهم پتروشیمی، هدف قرار داد.
+این شبکه همچنین نوشت لحن گفتگوهای اخیر ترامپ و نتانیاهو به اندازه تماس‌های هفته گذشته تند نبوده است. به گزارش سی‌ان‌ان، در تماس‌های هفته گذشته تنش میان دو طرف به حدی رسیده بود که ترامپ با الفاظ تندی با نخست‌وزیر اسرائیل صحبت کرده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76083)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 00:35:34
+
+<img src="https://cdn4.telesco.pe/file/ko1ea_En5RrwDGvFCwTRFNPAXQ6g6Sf_fm6XaQuZ-rUWVL2YCVXlsRr8K0uULiKheKUXg3HCa07pV2XKNlLLansLdrE7JRScjAMGcVrf4I3q8nlWmI6i_0Jyr8Ux1dWSJDwLj7GkJ_kSoelSJ5MHe3m2uz7oAEz60Kk-UL-R3Vemo8YQvvKWfeVue9J3MHt6HD5RPDf6cV_rHpoPeTdZjUXHW7XeT4QFp6jL69kSRf9H62cUOz2cy__7kBJoB06gsjKrSXPgw2Dhqb50aS4RLJPamOu9WUEbREKwL4Lq3F2pNeWk4D8SnQ3Kxr8NNdqvWioWbFMU49Rs2xVTs-4B_g.jpg" width="400"><br>
+
+محمدرضا عارف، معاون اول پزشکیان، درباره حملات موشکی اخیر جمهوری اسلامی به اسرائیل نوشت که دشمن در کوتاه‌ترین زمان ممکن ناچار به التماس مجدد برای پذیرش توقف آتش از سوی تهران شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76082)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 00:35:34
+
+<img src="https://cdn1.telesco.pe/file/Xb-56ebX1KZoCulOjofdDyrdH_4VwagRB1oleJEVbIbLrRn7nbxMpXaXcm4e7ytfjuPVJk7lITcgzDgf8jOOeKpzM_hcQK0DCPPJKBUic_R2FsLKMMFFhb6yLpqPSswNX_oPi6vtEASdtu59gvvpIvhrE7DE2vTiyDYdmcPnWv931gDihr7IXywLQdj9LVqi0rma14hujxvt8uWjt4KQ5BSGtXbkcb_ukxq3f6Ua0KNED4IBip-pXkBpdo9MzA31tjKMCv9R5uMkkQA3mfkSMEJkaPd1RG1yGl26n05iewWoWALx99m_dsET6HHE3lB8zKiX_g5pol2B78pWxPhDcw.jpg" width="400"><br>
 
 ترامپ گفت: «به بی‌بی گفتم خیلی مراقب باش چه کار می‌کنی، چون ممکن است خیلی زود در برابر ایران تنها بمانی».
 @
@@ -27,7 +141,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/tWifXmXFXwyqiZ-3ybTx4mOqWghUWVWOXRkArLQRAaHNNV-AQExcoIJBOda4fZWKJDScIDPLKKgxj0DgGnOyp_6JiUYXTJkx_HtT_9rSUn2uPKjmy4Twnldif4ZhGZ1ssQ3pMDDjvii-kmi68NDYcvR0SaXc0uGd0eUgqb7l5zxO0KA7YUV9WCpYl87FGu6VZjqP3EEeNHh0N0gSZP70wptJp0NgLFN2iWnmK2-x5Q9VI7IYngEX7DIIRLnL61UsW-T4WPx5kNLNe0bs2i50tjhmALbmgbuy9U4SUoQV1uQtINJqEGGacUJ2DHS-9oFKi8zobfpHa-Whc-9Q3cl6pw.jpg" width="400"><br>
 
@@ -52,7 +166,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/iB0QKCtArmoFbiXAb018md-VQLihHw4V5hJ1yGQDa1ej37xLVmX_hdrUdVFNYh7jzPw6MoJuUtByEg1k145ex_7BKOgDKy_yhyFSh7HM65gvbj_xknlnl_6fILfpf6fFb18Hhl1-79Dh9tahgczSU2PSrYgBCRa-G36I-KK8ydJqAM5EwpExUeEJgQ9BnYYOWwA8fOxcO_9TCD52BDofd78hsQl8HoxAg7WibBuBhbZ8mxHYu7Ijn6jo2gHX23ke79CyRqVRpgWixm1jpncweXaL9jCiKOX-XcKRFZbjSKIrecTQnWskd923B24KAEyy_5MEOxmSzHB3ncMceH355g.jpg" width="400"><br>
 
@@ -64,7 +178,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/mEUcx48n-hiCOHTCGBUPWyqcZnNA3re_REm099aQG2d7RHH-Zwey48UVilxsMcfZuhVI_YQPUvySZg6bL3jeydQTj2imcKIzVxSkM3DSlbmS-csA-gP5_7U5LxmpHJ-dn6yhnbCEHYhKJq2Knc38hR_wg_xMIFPpbKZOboO9rYupnNnHAzdwle63j7g0z377VPk7QPwMPZHiPNN0PRUQMIr5wt0a8yVMKnCztJWbS9huryqCkJqzyi8pphtV5z6fg6jmxWBv3TjLOMOdrKWNXlrcl2I2R2qK6V5TkXwTQYu39peBXea-nonR5h1eGGDaWp73ug1wIpm5LimvvQf_yQ.jpg" width="400"><br>
 
@@ -82,7 +196,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/pnuW0e1Poi087U6dqYwn03jL2o2HPcurN-EPy9BmsS4kxCmUzLZJspntXmenEo7Cu-kwNd63XOHg8BqrXkb6VvlycGy4jKwseNOavvb4bO7YFSQ4_Bc-vJifiW4b57sTXD6uUUAxni0uOx-UyeXmJoI03D_571W1um3ntjkChg_8lU8iZDtejvqPhorJ3XqOZ0i-sx0-c3OdI5XznvmDuYkiHXG9a6LCeVkKGCeT-RJpuPg4ctM5mzjROOkTkGxZfPte5g5Po-0nUm4LFqkRJ_8SBSSV4eAN12l6NnldO_8v4E1RSXCslndPEttQt63UnC01sKYkL4CHwUNUWNnKoQ.jpg" width="400"><br>
 
@@ -100,7 +214,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn4.telesco.pe/file/TqM3MbBrfT8b8iDAS9gAzjmYFhh1gXO_GY5qEylIFFaqJ1KXe6t9c08S-KQl8vtXvmH4fUn5f3YD483aBrzX-ZqJfeOufuIULXRucRtom5K0rPkT4qmRYgaUuJt7W510yEEimpju03EAOJFx8jDO1MxZkZ2ZlpWGNihuCYeWRy0-AItidOTIsXEcq0__pwcSV_VwyLkKsdB-Tq3dnYz5ygEYaYR7rTxjtFYH8feaDLXA9o4VszWTsyXFQzFketAihzjOe2-kvCxHWAFcTD9xuKHeSn9qbRRZqNr6i7ROlK2hd-33o1tPPIrgLUiJMkavy-iLgF47KyEp4bw9sEouOA.jpg" width="400"><br>
 
@@ -119,7 +233,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/idYrxJNd2GYYwkdZ_ZwZlfceYwkvo2Z1_M_N-xPvcGBQXhJnS_yjaH7Upzt3m_mUfo1y1MjJ7S1Apz_LxwoyXXDATyzdTJ6lkGWbjsz0b-__8scGQKq2ejsVjtrcE3z7gX3wTRVYH48e0xPtNOgswFdVRuQe4ab9hSbT-6KV8YD5Yj_aIpbGeN-GctCB0EQI118Lh2ZTIRaqLQIvKL27PjWTXAGkuqAwoHZ1BUeFT9QXKUv5ZN8HJscVIBLlvdowhIflgKD1kRe_eqhk-3lX_9lyc-8OimQ1b4abUsuvxWkBkMQCYFnc_uz4dKtI3zWkl0Nblo09nNOXmkM0Ri20Jg.jpg" width="400"><br>
 
@@ -139,7 +253,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/YkCRkxLsL6k2V0LDY0BhFK6My384Kze0QXJ_tb55y4h7uIbQ6-NVsTHRNTK6z0ik7yzFZjYP29ANFLu89XYsn0kuy4rbsb-lQV82s_gZIhIVGip4VMc3i8N6eFtsi6i4IcQllfpUIZRQOi7xzJs3owieP4H1cQD_mkPUNQajvZLgR3YAeHEaWz5tbMk2N_QAhyUEpntLkDGPamzVHygOMKZd2nwjs-5fdDq92AY145JUmmRmG0rwDamt1_KLd-2EUkSh0di9Tnut74m8_j-yi0_Y_NfVRsVIk2LSfjVR6UwPEzQD_VzxLFh5UTzfzvnl8qI6CXS2smVE7zey0o1Mig.jpg" width="400"><br>
 
@@ -160,7 +274,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/qBDLjdtl_t9bjWTicJ_R1RayOoqHYWD69J70FbqDsWPN1vMD_yxZmxZDMDJFHikhp2sK21luo8DGgrGyMUi45av3d8ln_lTAUllTIyiWhyzRxDMYnhTvXv3YVvtUtZIw-GThFsPIHh64oW_pNkQnLqVCsIjOn6Yn7k4xbuwyIa1BBk7rDf0nzSfJ_urkj19NynAnEYHxdFANjGPYd8j7vf01vmXS_Q3LBtKoxa7YTaUSosPuiEUzzyHKnMRvd6LKfWBm2sWE_Rw4up3lsvofZ3Nh1qCi8Ay-NiywSA7hvo59p7LnjFAlDKSacQ2sFrW2FKiCVo69-SW-sU54KCk0cA.jpg" width="400"><br>
 
@@ -175,7 +289,7 @@ IranSaat25
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/dXYpbQWew5-TQuMA-d2aN3OVpwzfGh4KaQyvhDzNtD2dlX7h-_trfP9vOeagy9m2rvCQcAdLID8RJbKdmg5hoI89Db_OiEgaPKkEWaoMg-Vq99hLLLzYD_rfKCDdO0KcaHRCs6qVv_3p2EUUVGp4NmIaR4FpHtpSwG5M7EWBvzWZ5TT_ibKhuUT6jWNH6AWR7JdLV-tb5Hu34ma1XSJRmpKYcQjiaGeZyvjOxn8hk666j4GKlhttmfccNGlaJ73TdB-FDJtzF43ZRrS2eyBzMoBa9RWLzbamA9QV9fEC316HGk9VwwtEgW35nT4GsBlCxjwXMX0Q7_hbb8Bxe1Oyvw.jpg" width="400"><br>
 
@@ -189,7 +303,7 @@ Atlansick
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn1.telesco.pe/file/ArYq0KqbvYgkidQwU9cT_ksZbKBFEqxFmKa-ji1taRNkjTHjXBLRqBJVtcj9vUi2hxJRpGUs3h_R40xmeX7ZTHAbLGAYeoSrEJOry9ljdgAKD7GB_JRRHlZq5d7kD5Bked4cZtSzE3LaCKc0biDtGUjWtiV9UC-wCbopsC5sK9NzSmGhAsFb2A-ZzYv5D5ywz3fcajeGkcSn4OWiUF3GMVDao9T5UuuRQy3Nwdf-5yuwcM8g_C3wywqpEVWCtUAtDzRVCv8kWZK3hQcyp9vfamWoHPTPMzamslx0l84t87K7lf1fG3wR9WzT9q3wFl05lpCuhH21L6m5nnNqSTBlrg.jpg" width="400"><br>
 
@@ -208,7 +322,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 <img src="https://cdn4.telesco.pe/file/DThcraQCG6qhSAbbaLzg5dwZicOYdguRQBLA8__Eh_62Xa8hKW6YoaBqHyKj2396fW291wUeokYuROqI-bAeaetxvdbgOrvdYcz5cT9xA3qi4wsmp-SW7hlynOmqskd9kBToWKkt53LwUePXZinCHFw15nhn72I3n0yyeGZGumdkYvV-DpxDhm_Zr7SUg9XmrxV6r9j5vuc7BNNymGSSwTZLdaqyfFBn4qSgDNNFwDoP2HneZzlae__JFcO3Xc8LTwYV84aFiI1N28KRNS0cIwmnCSXgOy9NpYIJJCcgjZg0hcptUwvVWVIXXBi0RlObTgxW4s1IzLkoW6IR9RRFEA.jpg" width="400"><br>
 
@@ -225,7 +339,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 22:09:30
+###### 🔵 Updated at: 2026-06-09 00:35:34
 
 
 
@@ -241,77 +355,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76066)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 22:09:30
-
-<img src="https://cdn1.telesco.pe/file/LKSkITTAPT8iYfdq8841J1U39Vbycv6qkEj6T86xE7h8QA8ntS8iTcTPpemy6025NhEbmkWsvuea56e_05lpZ_NhlgxcF3-vGU-49xTMFX3NZ3mqHLkC0OQ-cidtSXSYUIjR-TG-GxAfLnbu39vq3ngeWdP74c98bRR47wl6OhwVewYzYCvYvorOCcNGkd9khoCC_WEvzmID8nOUYzDIMXa0lEDYbEm57z9nH4qSV9LTYv27F7wmGh61HO9672nmjo8lrRnWEW2sbB8n6egjwUovi7pZOrDYq571Do4mqNE5SyE_0NGVKXhj7w0oitCJ0x0tg39v581tldrOrdy87w.jpg" width="400"><br>
-
-توییت محمدباقر قالیباف:
-"معادلهٔ آتش‌‌بس روی کاغذ و نقض مکرر آن در میدان را بر هم زدیم.
-تا زمانی که ارادهٔ واقعی برای اعتمادسازی نداشته باشید، پاسخ ایران همین خواهد بود."
-mb_ghalibaf
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76065)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 22:09:30
-
-<img src="https://cdn4.telesco.pe/file/PUJA541Z0iUwvvSP4BjgaGUfwQZzD5MAqXKDG8o_ul6QKT8m6Yo66VHDmQawXhl_s9gLZKbAZypLUmxGym_t1-Gy7Lbxtqn_zrPCc8YlGP2nHxdewBpa_qHQO-ZIn1zXoT1aIlDhBxbFnj-EkJppHoPywY4HZPiHNSQETM7gwd0__yMTRHCcwziz7S43axj3_cP5r7JKZ87Zaixhj0SB3lauzJb-3isu9zo1PExKsRY2TiN27O6UJSMUlA4mUqVXtEClAUhUnzbz7VFf0XjiBCp3BkAtznf7-3L8fzgOiX7oHRdsH08Gz-jG5FPGnQZMniMxbLpPeb2lTf_IIQbYbg.jpg" width="400"><br>
-
-رسانه‌های دولتی لبنان گزارش دادند یک حمله هوایی اسرائیل روز دوشنبه ۱۸ خرداد یک خودرو را در شهر صور در جنوب لبنان هدف قرار داده است.
-خبرگزاری ملی لبنان اعلام کرد: «یک حمله هوایی دشمن، خودرویی را با موشک در شهر صور و در نزدیکی ساختمان صلیب سرخ لبنان هدف قرار داد.» تاکنون جزئیاتی درباره تلفات احتمالی یا هویت سرنشینان این خودرو منتشر نشده است.
-این حمله ساعتی پس از آن صورت گرفت که جمهوری اسلامی ایران و اسرائیل پس از ۱۶ ساعت درگیری نظامی اعلام کردند حمله به یکدیگر را متوقف می‌کنند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76064)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 22:09:30
-
-<img src="https://cdn4.telesco.pe/file/O3hbE973k9_4riEpDsXp_04kyD7dOTZl6rgtTzwI5dL7mSHtNnB1MB1PJ8zKZZi_aNAhqGdjQmFfetPKFLt8lk56cdLGuW8ihMXYt2ctJkAOXfr_mt1UucGM1yqESTZvBfeXweHQYYLhifnuC_KPsPDcFNLbBidCBnbFRwwdc-JIwkNeXealsLOrUkAIQ7A_XYIAbEPVSdFV-iu1A7wrOD47IYLM3zPhQ0e_XqY1mLsLxcLvaD3Ie0LvGEnk5mFjfMzQxZTSvhnLhwAqWH-mK_MkfLHWW2YXsAjuz-4z2qs_gZepooriT6SaPSQ-lxV9z3MIC4CD7G2SeQRFK0ABwg.jpg" width="400"><br>
-
-رییس سازمان اورژانس ایران، روز دوشنبه ۱۸ خرداد ۱۴۰۵، اعلام کرد در جریان حملات اسراییل به ایران، ۱۵ نفر مجروح شده‌اند و تاکنون هیچ موردی از جان‌باختن شهروندان گزارش نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76063)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 22:09:30
-
-<img src="https://cdn4.telesco.pe/file/FWvamWPV6sBQ8vxxzof1aDm_2q-yRmrrBgP1dHvMYVOos-BGls0JPy4uUnqnaAwiAZ5qVVdZAE9DV0h984j7nv9x-3JGOAt-viLAPdZZ-8-XDe46yIXSK99ULPYmCAqdzQuaUU6oOxB0PxCwY0AnVhNs7khmygmAk0-C9W6u3GS0Nswci0vLEq3593iy_Oc8Y1_UqwL6YgQv5WDnyze2oApKEDxhSzsHTClVHYPpZFnt7VxkBb2VwnN2r8rm9caQUaQTxYMHBhb2DD_LKQw1k1dA3Jmhupa6LyABaoqFeJvd3RCBFtxuHxhIO0aAhKABUz9mU33X0i6YD2crkF9_bg.jpg" width="400"><br>
-
-خبرگزاری ایسنا عصر روز دوشنبه، ۱۸ خردادماه، به نقل از شرکت فرودگاه‌ها و ناوبری هوایی ایران خبر داد که «همه پروازهای فرودگاه‌های کشور تا اطلاع ثانوی لغو شد».
-این اداره همچنین از تمام مسافران خواست تا «جهت حفظ نظم و پیشگیری از هرگونه سردرگمی، تا زمان اعلام وضعیت عادی از سوی مراجع ذی‌صلاح به فرودگاه‌ها مراجعه نکنند».
-این خبر ساعتی پس از آن منتشر شده که قرارگاه مرکزی خاتم‌الانبیاء سپاه در آغاز بعدازظهر روز دوشنبه با انتشار بیانیه‌ای از توقف عملیات نیروهای مسلح جمهوری اسلامی علیه اسرائیل خبر داد.
-همزمان رئیس سازمان حج و زیارت خبر داده است که «با توجه به شرایط پروازهای بازگشت حجاج احتمال تأخیر در برخی پروازها حتی تا ۷۲ ساعت وجود دارد».
-او اضافه کرد: «برای فردا (سه‌شنبه ۱۹ خرداد) ۱۰ پرواز پیش‌بینی شده که امیدواریم بخش عمده آن‌ها انجام شود.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76062)
 
 ---
 
