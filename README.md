@@ -3,18 +3,372 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
-<img src="https://cdn1.telesco.pe/file/TxMWkUYBhDKN0aKdHZGLC0AIMWnYx0Q8SsSAD4JDsfk-YzQ3sbSMOnyAda0nA-RL7VcFn25kX2tyd_714O_M8md52zClaXCxGq3FqYZMLNJqLTLPhBeWdZlpkTOeYzh_tLtu4ExCudN-h_cgIYCHtqhS-N7ebenTAk_J-A00mElfi5ql596v4N4DDYvb9J5yqJyhwtdWEH_8lCMaY9nYLwPd40SbKurSw5V-kc363xoYGFaHrjPk6-QUKQVGQYYWozlU_CKcmwioZuCOkp3_X-Epcwk7MPgyQvARkQwBpOA-D-HWT_Lo9YNZSADo_Foh2Ji-BXollr_UZeeZ3gXZWw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/vNnnPwdCugg8o79lJvdmrHCLXg6cNis3HcTxUEU7Ii6RUB1MIQ6HiVJeZAAZtswDH9Hm5Yz2MerB_AskG4vbg6xnTxHlVEBoX7iVyChI9Jj3ltAj5a9jp_HvVCGdEPLOr8OLRoXL3iwT3_z4rZ161d5jvcra9M-4fW_rujz2qHM-YoKSCLyKXNbqMsdc0OuJ6KxklE5FdCiVVv9AUbdvHeVMewkFcxCJChLUc-sA4wwbIADhaZ7XFQiJ80DAhk-YtjyL37fupmMLN4tOazDqBxeyhucnMFBFdMflRDksvN4TuYSA0WYH5zefYO8d53Tnhj5lOLrc4sHbMZPgor7KhA.jpg" width="400"><br>
 
-سایت خبری اسرائیل‌هیوم می‌گوید دونالد ترامپ در تماس تلفنی با بنیامین نتانیاهو به او قول داد که متعهد است هرگونه امکان دستیابی جمهوری اسلامی به سلاح هسته‌ای را از بین ببرد و همچنین مانع از آن شود که این رژیم تهدیدی دائمی برای اسرائیل باشد.
+آتش‌نشانی تهران اعلام کرد: صبح دوشنبه دست کم صدای ۲ انفجار حوالی ساعت ۴:۴۳ و ۴:۴۵ در نقاط مختلفی از غرب تهران شنیده شد و ادعاهایی درباره هدف قرار گرفتن فرودگاه مهرآباد منتشر شده است. سخنگوی آتش نشانی تهران از آماده باش آتش‌نشانی خبر داد، اما اعلام کرد که نقاط شهری در تهران هدف قرار نگرفته‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76023)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn1.telesco.pe/file/NYtD8wNSQXYfaxOiagNNRmw8QNd_F7xr4lnf5bvKqOjxqTvdfW_TaJ5ARgc-XR_WxFWL-PUzAk1nM99dirtX6g7U-XkLwCIAPt93NPsbUzMf_N-oSbXe4XjRC8pMVSlvsxJAhM7z-WU2SGmZF1-r683jm7Y4bPPw-kz4vqK7nlIgx0A2yPpeYAnzKn7AtYU0ZzK6-pT6_2JJdbd355olisJniVaCyNWvJ7Dzams7vjPOcOJ0zh8laQ09ULM6jK2qdOrPTEyjqHS5caFRUCRpN6RwoR3hf6n0RAjpbJfabIV3zsPKmElNQUskByMiksfCe5e-9c4fp2-yjUTLKNb9Hg.jpg" width="400"><br>
+
+یک خبرنگار اسرائیلی حوزه دفاعی به نام امیر بوخبوط می‌گوید که نیروی هوایی اسرائیل صبح دوشنبه به ده مکان در ایران حمله کرده است که از جمله سامانه‌های پدافند هوایی و موشک‌های بالستیک در آن‌ها قرار داشتند.
 @
 VahidHeadline
-بخش دیجیتال روزنامه اسرائیلی یدیعوت اخرونوت، وای‌نت، در گزارشی نوشت که آمریکا از اسرائیل خواست پاسخ تلافی‌جویانه خود به حملات تازه موشکی جمهوری اسلامی به اسرائیل را به تعویق بیندازد. طبق این گزارش، واشنگتن از اسرائیل می‌خواهد که «چند روز» صبر کند تا ببیند آیا مذاکرات با جمهوری اسلامی به توافقی منجر می‌شود یا خیر.
-اسرائیل در حال بررسی واکنش به شلیک موشکی جمهوری اسلامی است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76022)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn4.telesco.pe/file/p0gl-MR3onu8QLC1B0p_eQpRHnm6tXchr9ragSDRoVuFne4Tyynj95J7NpP3QvAE6qHx5IJmQH76bPjKL0JazAm6G1kQl5eCiM-UzUmE1r2r5Kug-A-wxjewGh9i20RG_3CP6SocG6IQlwAk5OEKsCUIUpxl7-x6jCfViFDGBDVUA_mfp6v_6zVf29zHKrEAYrxcVYIiMP8PJwPbZ70Hvy_ck13TIIAyed76dF35m83Mr4SBQX4R2TlVGik-jaksQAl6CtyhhEDj1o0a4mT8utp04cK0EKTUBFXWNFAiPyaSnevEpW5e2j21Y-c7NC2J3HSgQtOnak3zsKtVFR1oJg.jpg" width="400"><br>
+
+♦️
+سپاه پاسداران انقلاب اسلامی در بیانیه‌ای ادعا کرد، ارتش اسرائیل در حمله‌های بامداد دوشنبه که پس از حمله‌های یکشنبه شب سپاه به شمال اسرائیل انجام شد، از «موشک‌های بالستیک پرتاب‌شونده از هوا» استفاده کرده است. ارتش اسرائیل هنوز نوع سلاح‌های به کار رفته را اعلام نکرده و تنها گفته است که به مواضع رژیم ایران در غرب و مرکز ایران حمله کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76021)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn1.telesco.pe/file/Yh86YCpQDM77ImkFTSVZ7gOuP8gaBP9r2IvKYWTSnudgmfvnU_vu5zufKGcjHXhBi2Zsdyb5l9StEzDxDO6qppOzgMe_zEkPVW6_kaQYhlh5ZskLIR7YGWLNHUw_AEiA5eXppOg0utTP_-YyoR72OXTbyZC6pwbleYfoXIHdF-pQdUqRdVEIi30KBCJx_OAvRf1Xe7J-r0qVsHj_M-KZGFtX4azKtrcIaDRRkktH-JMwEX7qOttI8cLx3DgO-vMisuhABJlNJSlF0kFybkIoWpJ8lb9sZP1VB-ichSHly9RxRz8sKjDVZ7iydDmyPKAI0pumYJR_agFdYm7pcjH0oQ.jpg" width="400"><br>
+
+کانال ۱۲ اسرائیل از حمله نیروی هوایی این کشور به فرودگاه مهرآباد تهران خبر داد.
+@
+VahidOOnLine
+درحالی که هنوز ارتش اسرائیل اعلام نکرده حمله‌های بامداد دوشنبه در پاسخ به حمله‌های یکشنبه شب سپاه پاسداران به شمال اسرائیل را با چه تجهیزات و تسلیحاتی انجام داده است، کانال ۱۴ تلویزیون اسرائیل گفت که جنگنده های اسرائیلی اهدافی را در ایران هدف قرار داده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76019)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn1.telesco.pe/file/EB3PX3wYDdxG89rMx1-V2fezA6ggu_9QqbSz4eKivVkL4ggvtnzy6DIT2KIJtBasBFdyiK_Drf2rTkZZub8G9LK3HqT48E-ZEgqxkRd2gNq9_ZOFxdtAO8aPvbuJQ2YASkgrWlcjWv2fdLWTuDdAyitBeQ7iP3kAndWyPtAo0nJxo9V1JQRa_LNDeH11BUA3ngUUEAFcueCuCC4UB_dw9XuuP3giUTZkEc1pq7K88ViEefELacf7Q_1g_S55KoSSaPZNZuU-oJONp1pwFfV-zxg405AOfO1f5mdo6IaYFp2hE_aV53SWZwmKBRQo_or9m5uUsSl34txCGQjJlvOwXg.jpg" width="400"><br>
+
+👆
+نجف اباد ساعت ۴:۴۰ فکر کنم با پهپاد زدن
+سار پیام‌های دریافتی:
+کرج هستیم الان  دوشنبه ساعت ۴:۴۳ دقیقه صبح  از راه دور صدای انفجار بسیار بزرگی اومد
+سلام وحید سمت شهرک غرب ۴:۴۳ دو بار تا الان صدا اومد خفیف بود
+ما رباط کریم هستیم
+ساعت ۴:۴۵ صبح ۴ بار صدای انفجار اوم
+وحید ساعت 4:44 صدای انفجار نزدیک سمت جنوب تهران (باقرشهر)  شنیده شد طوری ک خونه لرزید
+سلام،چهاردانگه دوبار صدای بلند اومد ساعت ۴:۴۳ دقیقه
+سلام وحید سمت مهرآباد ساعت 4:45 دو تا صدای انفجار شبیه دوران جنگ اومد
+ما شمال غرب تهران چند دقیقه پیش و دقایق قبلش صدای انفجار مهیبی شنیدیم ولی دور بود. صدای جنگنده هم نیومد
+...
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76018)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn1.telesco.pe/file/Gj7GREz74ZCbskm6VxOJ0ZAxSzEOtQ-0PF4sT5011ihSe7VEWpSYrr92cIbgyYRL5Squwc1qFmmXoeuWH9Q_MPDxAi3RTByur_Yv0VwQV_x6oNsEu01jv2_HXqTdb9lnHp8v13BTH2-RvhlaldOQd3VU7WF90roNInM7XdvmIfSnIWPem4SYOthbMjLhnfinwKly1nCiOReZLUrEzA7QbKB6R2-klH1gEc_HsNsGINcDDfG7MtHcN-kL6ncNLjHLoohrMXyWk7juKNEUF8AXnGje3v9Dw0Q4RZ6gwrZ74oGQZDqvLf0SBU8jNlkNouqaT0JQzLuePpqJ9-CqnnKqcg.jpg" width="400"><br>
+
+👆
+دریافتی با شرح: نجف‌آباد
+سایر پیام‌های دریافتی ساعت ۴:۴۵
+سلام ساعت ۴:۴۵
+سمت خزانه دوبار صدا انفجار اومد
+صدای بمب جنوب تهران ۴:۴۵
+سلام همین الان صدای دو انفجار از میدان المپیک
+داره میزنننه
+فردیس کرج ۴:۴۵
+همین الان صدای مهیب سمت مهرآباد
+ساعت ۴:۴۴ سمت غرب صدای عجیب و بلند اومد ، لرزش خفیف سعادت آباد
+تهران اندیشه
+دوبار صدای انفجار همین الان
+سلام اصابت موشک غرب تهران تا الان دوتا انفجار 4::44
+صدای دو انفجار با فاصله کرج
+ساعت 4:43 دقیقه غرب تهران صدای تک انفجار
+دو دقیقه بعد دوباره صدای انفجار اما دور تر
+صدا انفجار داره میاد سمت غربه انگار
+دوتا صدای انفجار غرب تهران
+تهران زرگنده ساعت ۰۴:۴۳ صدای دو انفجار اومد
+الان ساعت 4:43 دقیقه و 4: 45 دقیقه صبح غرب تهران صدای انفجار کوبنده شدید
+همین الان دو تا صدای انفجار در اصفهان شنیده شد.
+سلام وحید. شهرک اکباتان. صدای انقجار اومد دو بار همین الان. ساعت ۴:۴۳ و ۴:۴۵ دقیقه
+صدای انفجار , کرج , ساعت ۰۴:۴۲ , ۱۸ خرداد ۱۴۰۵
+صدای انفجار , کرج , ساعت ۰۴:۴۵ , ۱۸ خرداد ۱۴۰۵
+کرج صدای انفجار 4:45
+جنوب غرب تهران دو سه تا صدا مثل انفجار از دور اومد
+صدای دو انفجار مرکز تهران ۴ و ۴۵ دقیقه صبح
+یه صدای گروم مانندی اومد اما دوره مرزدارانیم ساعت ۴:۴۳ بعدی ۴:۴۵
+سلام وحید جان ساعت 4:40 دقیقه رباط کریم حداقل 4 تا صدای انفجار اومد
+ساعت ۴:۴۳ و ۴:۴۵
+۲ تا صدای مهیبی اومد نمیدونم چی بود
+سمت خیابان زنجان
+زد صدا اومد شهران ۴:۴۳
+دوباره زد
+نزدیک نیست ولی صدا میاد
+۴:۴۵ تهران شهران
+وحید ۴:۴۳ صدای انفجار دریاچه چیتگر
+کرج مهرشهر دو تا انفجار به همراه لرز ساعت 4:40
+احتمال میدم سمت فردیس باشه
+وحید تهرانم سمت شرق یه صدا هایی میاد شبیه انفجار ولی نمیتونم تشخیص بدم
+۴.۴۵ دقیقه تهران سمت غرب ۲ تا صدا انفجار
+سلام غرب تهران دو بار صدای انفجار اومد
+سلام وحید ساعت ۴:۴۵ دقیقه شرق صدای انفجار اومد.البته دور بود.
+وحید ۴:۴۲ پرند صدای انفجار مهیب حداقل دوتا
+سمت م معلمم یافت اباد
+همین اطراف بوده صداش همراه با لرزش بود
+دوتا صدا انفجار 4.43
+وحید جان ساعت ۴:۴۵ سه تا صدا شبیه انفجار سمت غرب شنیده شد.
+وحید جان شهرری همین الان دوجا رو زدن شیشه ها لرزید
+ساعت ۴:۴۵ ۱ انفجار دیگه شنیده شد
+دومی صدای مهیب تر بود
+جنوب غرب تهران سمت تهرانسر همین الان صدای دو تا انفجار اومد حس میکنم موشک بود
+سلام تهران سمت شرق و غرب صدای خیلی بدی اومد
+۲ تا پشت سر هم ساعت 4:43
+مرکز شهر سمت ۷تیر. ۳تا صدای انفجار از دور اومد الان ساعت ۴:۴۵
+وحید جان صدای دو تا انفجار به فاصله یکی دو دقیقه حدود ساعت ۴:۴۴ از نزدیک ستارخان شنیدم
+سمت صادقیه تهران تا الان دو بار صدا شنیده شد
+از ساعت ۴:۴۰ تا ۴:۴۵
+اما بنظر دور بود معلوم نیست کجا بود
+سلام مرکز شهر تهران ساعت ۴:۴۳ دوتا صدای انفجار پشت سرهم اومد ولی صدا دور بود
+سلام اسلامشهر ساعت 4:42 بامداد صدای خیلی بلند اومد
+صدا انفجار تهران ساعت 4:44 سمت پیامبر مرکزی
+دو تا صدای انفجار مانند اطراف اصفهان چند دقیقه پیش( فکر کنم نجف آباد ۴:۴۲)
+ساعت ۴:۴۵ و ۴:۴۰ دوتا صدا انفجار اومد
+سمت مهراباد
+سلام اقا وحید ، سمت شهرری رو فکر کنم زدن خیلیی صدای بدی اومد من از خواب پریدم
+سلام وحید جان  الان
+دو بار بیدگه ملارد رو زد
+کرج مهرشهر
+صدای دو انفجار ۴:۴۳ و ۴:۴۶
+وحید حوالی ۴:۴۰ تهران صدای انفجار شنیدم
+دو مرتبه بود، اولی اومد بعد از ۵ دقیقه دومی ترکید
+4:45 فردیس 2 صدای انفجار از دور دست
+دوتا صدای بدجور اومد ساعت ۴‌.۴۰
+سمت خانی آبادم ولی صدا یکم دور بود
+ولی زیاد بود مثل غرش بود
+شهریار صدای چند انفجار بیشتر سمت رباط کریم می خورد باشه
+درود وحید جان ساعت ۴:۴۳ دقیقه ۳تا صدای انفجار توو پرند شنیدیم
+سلام ساعت4:42دقیقه صبح صدای انفجار در اشتهارد شنیده شد 2مین بعدش هم بازم صدای انفجار صدای بمی داشت
+سلام اقا وحید من اسلامشهرم با صدا انفجار بیدار شدم
+صدا صدای زدن بود،سه تا انفجار شنیدم
+وحیدجان سمت شرق اتوبان بسیج صدای 2تا انفجار اومد ساعت 4:45
+رباط کریم صدای شدید انفجار
+چهار پنج تا
+غرب تهران ۴ و ۴۰ صبح صدای دو تا انفجار اومد اولی شدید بود از خواب پریدم
+ساعت ۴:۴۵  دو بار صدای انفجار اومد کرج
+تهرانسر ساعت ۰۴:۴۳ صدای انفجار شنیدیم و از خواب پریدیم.
+اصفهان چند تا انفجار شنیده شد
+ساعت ۴:۴۲ دقیقه، از سمت غرب تهران دو تا صدای تک انفجار اومد. یکی دور و یکی نزدیک
+درود صدای چهار انفجار شدید اومد ما سمت نسیم شهر هستیم جوری بود از خواب بیدار شدیم
+ما نزدیکی اکباتان زندگی می‌کنیم و توی پنج دقیقه ی اخیر سه تا صدای انفجار شنیدیم
+کرج صدای انفجار میاد
+قطعا حمله شده
+رعد و برق و غیره نیست
+اصفهان دوبار صدای انفجار 4:42صبح
+هیچ صدای جنگنده یا موشکی نیومد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76017)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+
+
+پیام‌های دریافتی از ساعت ۴:۴۰
+سلام وحید جان
+4:40 دقیقه انفجار از سمت سپاه تبریز طرف متظریه اومد
+۴:۴۰: وحید ارومیه یه صدایی اومد نمیدونم چی بود
+صدای انفجار شدید در ار‌ومیه
+مشخص نیست صدای چیه
+سلام آقا یک صدای مهیبی همین الان از ارومیه اومد ساعت ۴:۳۹. شب هم البته چندین تا موشک از اینجا فرستاده شده بود.
+سلام وحید ارومیه ساعت 3:39 صبح صدا اومد و انگار زدن چون خونمون لرزید و دقیقا مثل موقع جنگ بود
+وحیدجان نجف‌ آباد صدای چند انفجار شدید. ۴:۴۲
+وحیددد
+دارنن  اصفهانو میزنن
+نجف اباددد  سمت ویلا شهر
+دوتا زدن همه جا ترکید
+لرزید داریم سکته میکنیم
+شاباد موج انفجار شدید
+سلام وحید غرب تهران صدای انفجار شدید اومد همین الان ۴:۴۳
+وحید اینجا صدا انفجار اومد ۳ بار
+خیلی بلند و نزدیک. ما کامل از خواب پریدیم
+بدون صدای جنگنده بود.
+نجف آباد اصفهان
+خمینی شهر دوبار صداری انفجار اومد
+وحید زد الان تهران رو
+یوسف آباد ۴:۴٣ صدای انفجار از دور شنیدیم.
+مجدد ۴:۴۵ صدا اومد.
+۴:۴۲دقیقه همین الان دو انفجار پی در پی اسلامشهر
+انفجار مرکز تهران ساعت ۴:۴۳
+وحید زدددددددد
+بالاخره زد
+همین الان ۴:۴۳
+غرب تهران سمت جنت آباد صدای وحشتناک اصابت موشک یا بمب
+صدای جنگنده نیومد
+دوباره الان ۴:۴۵ دومی  رو زد
+توضیحات اینکه چند دقیقه قبلش برق نوسان شدید کرد
+صدای دو تا انفجار همین الان نجف آباد اصفهان
+انفجار لرزش شیشه صادقیه تهران
+غرب تهرانسر یدونه صدا
+اسلامشهر همین الان صدای انفجار مهیب شنیده شد
+سلام ساعت ۴:۴۱ صبح، صدای انفجار شدید تو تبریز اومد، جوری که از خواب پریدم، قطعا پدافند و اینا نبود...
+وحید جان از سمت قروه کردستان صدای سه انفجار شنیدیم با فاصله ۱۵ دقیقه، به نظرم موشک خوردیم چون لرزشش زیاد بود
+سلام وحید جان
+ساعت ۴:۴۴ صبح اسلامشهر مرجان آباد
+۲ انفجار شدید پشت سر هم
+جنت آباد جنوبی صدای انفجار - ساعت ۴:۴۴ صبح - ادامه دار نبود در حد دو سه تا بود
+۴:۴۵ مجدد زدن
+ساعت ۴:۴۴ دوشنبه صدای ٢ انفجار با فاصله ١ دقیقه از هم غرب تهران
+الان صدای دو تا انفجار شدید اومد . اصفهان
+سلام از انديشه
+وحيدجان فكر كنم ٢تا صداي انفجار بمبي اومد اينجا
+صدای انفجار از دور
+غرب تهران ۴:۴۳ حدودا
+ساعت ۴:۴۲ دو تا صدای انفجار توی قائمیه اسلامشهر  اومد
+پشت سر هم
+آنقدر شدید بود شیشه ها به شدت لرزید
+ساعت ۴:۴۲ صدای انفجار خیلی خفیف شمال اصفهان
+انگار خیلی دور بود از ما
+فکر کنم ۳ تا بود
+اسلامشهر ساعت ۴.۴۴ دقیقه صدای  سه تا انفجار اومد
+وحید حان مرکز تهرانیم، ساعت ۰۴:۴۴ صدای ۳ تا انفجار شنیدیم.
+وحید سلام. صدا دوتا انقجار ۴/۴۱ نجف اباد
+صدای انفجار فردیس
+وحید نجف اباد صدای انفجار بلند  چند تا شیشه های خونمون لرزید مثل چی
+بیدار شدیم ۴.۴۳
+یه جارو زدن داره مثل چی ازش دود میره سمت همین نیرو انتظامیو اینا که توی جنگم زدن
+الان صدای دوتا انفجار اومد
+شیشه ها لرزید
+مثل صدای لانچ موشک بود
+شاید جای رو زدن ولی صدای جنگنده نیومد
+خمینی شهر
+سلام نجف آباد الان صدای ۱۰ تا انفجار اومده و جنگنده
+سلام نجف اباد ساعت ۴:۴۲ دو تا انفجار خیلی بزرگ کامل مثل وقتایی که میزدند بود. صدای زیاد و بعدم موجش اومد
+سلام وحید همین الان صدا انفجار اومد سمت تهرانسر در حدی که شیشه لرزید
+دوباره الانم اومد ولی دور بود
+4:41 صدای انفجار اومد
+04:44یکی دیگه.
+فکر کنم بیدگنه رو زدن
+چند دقیقه پیش تو استان کردستان شهرستان قروه سه تا صدا اومد آسمون صافه ولی اطراف رو زدن احتمالا
+غرب تهران صدای انفجار
+مجدد
+وحید داداش صدا انفجار کردستان
+سلام كرج ٤:٤٣ صدا انفجار طوري از دور اومد. رعدو برق نبود
+بازم الان صدا اومد
+ساعت 4:42 صدای انفجار خفیف و لرزش زمین سمت صادقیه تهران
+4:44 صدای دوم شدید تر بود. صادقیه
+توهم زدم یا صدا اومد؟ سمت ملارد
+زدن وحییید زدنننن
+انلاین شو وحید بد دارن میزنن
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76016)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn1.telesco.pe/file/s1qU7msM3b7I7UBos62nm342Jnc7tZk1smT1ITBX92BQPWDBecPznfldEgvf5q5JT0MQwc9BZnD_j4ty6ENkT2t70C8XnlqCTZBvkDFcv7IQMBCduPMkQvQpgKMDWu_Og0b1rfhv9QKZdU3oOw0HHM2PCA7vkx-VrLfgQPrmBSuqziEOGeXML3hE0OXkFpf21hFAuMusIpLaLw4f6vbCojxQ23m6-hWE0o8P3aK1ytpPml7BRCSu7iLBiVqvchvPJTXt78lPgGQe22d5FCNm4lytDJkqFFjTkOG5zRvL_8-2CZ3YRPwEXHAoi3ytI1soxP7BVou6EfiDuTEpN5aieQ.jpg" width="400"><br>
+
+♦️
+سخنگوی ارتش اسرائیل در نخستین ساعات بامداد دوشنبه و اندکی پس از حمله‌های موشکی جمهوری اسلامی به اسرائیل در گزارش اولیه اعلام کرد: «نیروی هوایی اسرائیل، تحت هدایت رکن اطلاعات ارتش، اندکی قبل به اهداف نظامی رژیم  ایران در غرب و مرکز ایران حمله کرد. جزئیات بیشتر متعاقبا اعلام خواهد شد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76015)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn4.telesco.pe/file/GabR9I7FrrzLwYKpqtcyoQ-Wk--Qr7R9kc18tplUZyerJeLfJ-Jk8eCjrut40-8BA6LT0kjBQcK9qDVCsz12ulmxizWBoAG38S1R-hVBu6LdbNytIRXZxLDta9Y6BRdbfmicAYqzBTRStTgyVbOyE4xf2mm6XYwn7QWAhHCVv3zHFntw4I1ylLkvCtI-R9eSWC5R01MxLhung7Bi0k22emFo_Vnzqb-5QqhkNDJDRrVnGQvknfbu6ld-cCCusMFzU9iWyQM8AC7kKaohPEah6chlXAjgPc-6URQI5EsaB1rEwW4oJ7ykONIsLv9HdvSgUq_kZ28VuI3eEwetMmZsmg.jpg" width="400"><br>
+
+🔴
+رسانه‌های رسمی ایران از شنیدن انفجار و حمله هوایی به چند شهر ایران از جمله تهران، اصفهان، تبریز و نزدیک به کرج خبر می‌دهند.
+bbc.in
 @
 VahidHeadline
-ادعای یک مقام آمریکایی به کانال ۱۲ اسرائیل:  نتانیاهو «به نحوی» با به تأخیر انداختن پاسخ به حمله ایران موافقت کرده است./انتخاب
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76014)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn4.telesco.pe/file/knp_95B1weuhTRtcG6zwJzkFk1sGQOCEBvmryVnvSAisxJrNXkB3xYOS7cbVK1Vc6aPoiAjG4ZkBlUSlHbYFXzfl27i4dlXpGqnuGUFeLEbfQgvYocdTQLh8y2GaoEyKpjVC1LAw8f5HmYSSv2nPfJL97Lg4Ir2eOUFLuwBCxPA4SE33Q6GZP8N68CNerVyWPJwGdzbMPhLMJtjGYt6jEMa4OIIOxttT8sDYcYbXX2gfkKgS8qFBQoco7G-lSEk_VPOetUhYcna4IXObhZWHNXOJDVqSrJZfOMDdebcqfcsejgpcJ0xGNAxI6KrPObJE9MUDs5oFjccEU_Y7E0DJxA.jpg" width="400"><br>
+
+خبرگزاری فارس از وقوع انفجار در تهران، اصفهان و تبریز در بامداد دوشنبه خبر داد. خبرگزاری تسنیم از وقوع انفجار در کرج در بامداد دوشنبه خبر داد. ارتش اسرائیل نیز اعلام کرد نیروی هوایی این کشور «مدتی پیش» اهداف نظامی متعلق به «حکومت ایران» را در غرب و مرکز ایران هدف قرار داده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76013)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-08 06:05:00
+
+<img src="https://cdn1.telesco.pe/file/YRQYxzBCZRJafsZUU40rgICbGqOqL-NtuOZ6WQQ7golTfBWFxONNPuWk2FKbxjj8AnTvE_7P8RI8bFPKoGl9aMaNyhuWcMHdvJPaNWNuwtTWVqBSTyomkp3Kk3HETf3VTMle-PFCmVEgwdl3EZ0YuCjICO-jo_3B2kWo480D5SngFKauwYPzvukqE4UD-3PdTjo0ZwAkUfvqdbM5ZJNdIBxd0rCCn-KOa8cebWxhJBrilQ1epEOs3rrOMMHz8x1rwlW6GvMRsgRpUcqPrAH4CAbJLrFEvevHsZ4u0kVp6VS5uLZpwkhjxrdeETF7jwRRBJlnuRx5LzNK5Ff4DzgVqw.jpg" width="400"><br>
+
+به گزارش اکسیوس، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با درخواست دونالد ترامپ، رئیس‌جمهوری آمریکا، برای به تعویق انداختن پاسخ به حملات موشکی بالستیک ایران موافقت کرده  تا به واشنگتن چند روز دیگر فرصت داده شود تلاش‌های دیپلماتیک برای دستیابی به توافق با تهران ادامه یابد.
+بر اساس این گزارش به نقل از یک مقام ارشد آمریکایی و یک مقام ارشد اسرائیلی، ترامپ در تماس تلفنی یکشنبه شب از نتانیاهو خواسته از انجام حمله تلافی‌جویانه خودداری کند، زیرا به گفته مقام آمریکایی، او معتقد بوده «ما به انجام یک توافق خوب نزدیک هستیم».
+طبق این گزارش، نتانیاهو تلاش کرده با این درخواست مخالفت کند و ترامپ را متقاعد کند که اجازه حمله به ایران را بدهد، اما در نهایت «تا حدی به‌طور غیررسمی» با درخواست رئیس‌جمهور موافقت کرده است.
+این مقام آمریکایی گفته است که این گفت‌وگو بسیار آرام‌تر از تماس پرتنش هفته گذشته درباره طرح‌های اسرائیل برای حمله به بیروت بوده است؛ زمانی که ترامپ به‌طور علنی اعتراف کرده بود بر سر نتانیاهو فریاد زده و الفاظ تندی به کار برده بود.
+پس از این تماس، این مقام گفته است: «فکر می‌کنیم رئیس‌جمهور کمی زمان خریده است. او بسیار قاطع است که ما به توافق با ایران نزدیک شده‌ایم. فکر نمی‌کنم در حال حاضر حمله اسرائیل قریب‌الوقوع باشد.»
+او همچنین گفته است: «ما در یک لحظه حساس هستیم — چرا باید وقتی در راند چهارم هستید، یک توافق احتمالی را به خطر بیندازید؟ رئیس‌جمهور فکر می‌کند سه ماه است درگیر این موضوع هستیم و اکنون زمان پایان دادن به آن است.»
+با این حال، هنوز تصمیم رسمی در اسرائیل گرفته نشده و طبق گزارش شبکه ۱۲، نتانیاهو تا نیم ساعت پیش همچنان در حال برگزاری نشست با مقامات ارشد امنیتی درباره این موضوع بوده است.
+@
+‌VahidOOnLine
 📡
 @VahidOnline
 
@@ -24,7 +378,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
 <img src="https://cdn1.telesco.pe/file/G3zB9DbzXP9Q4al6VqHv8xT91087Ijwz6QOiDvgriX4_nOaIRB-M86Yyza5CgIxie6QLT4pnFr5Z4x0NxeD0msg5DnRwW2qzFl4uXsBP89lJruH7H-t4baBX5kxpg-MpE6UiRHEqPD1ZSNpJI13M3TFrriXDj15oiq6sloJ2eu6en1lh8nRBeSNqK8jdv4BxS-9z6AEJE-CmpuKbYEgUcRyvt2hbupVlf2KB2Gd0NasuRD1HrnDKRkeWcK7msOesLuf1GbPTkJM10bvQCP6jXsK6WVrGf5NZumC0gHyRcckDfOQgmC7rIw475lYVA3IbgLG8iHltezS56_8El944gg.jpg" width="400"><br>
 
@@ -48,7 +402,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
 
 
@@ -63,7 +417,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
 <img src="https://cdn1.telesco.pe/file/DbMLcDWgrZzMdTDciRf7P1r1WAqgYqYE2ZWIlc09xS9hKx3yEL6HiYmP6rURIcofVL8VMItnPafl1M7_Yd0_zJNK74VEX8MCg4UF00QROIZqtzD4QCPaklQq_B1Zb7PYqhtPN0Kpzhb1SQx8SCQCjzZLLKqR_FHpn9bROi2Q1sl2zzVDKvladz-YiNm3DyI87AbFQTe6fdxdL0GSWLiGdHLVLnKSVVZ72QX3KTQzlB_GqOiAIViVdRfbyhmpubN6XxanTLUmZnMgYofUYFt6oKkiCOVg5sMhzdvsat1PN6rC2X9K47WBmUzRumioladBRwwhF4-EEAmYWkN34fcYTw.jpg" width="400"><br>
 
@@ -77,7 +431,7 @@ shamidartii
 
 
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
 <img src="https://cdn4.telesco.pe/file/S14CI8iLPcfUm7lAYg6WBATqYN4GQV658C9OeZx88MqgEYmYdtzydZwMH6GfEpcPDszffCpBsHybbaGwC5ojPn92GZlnpd874W9ivv7B6FDfly7Ce6yoGjLLbXYW1ZdUlMBccbrpUVYz2HLL-j_aFcf75PzBLcdCRfY7essjRnFnXWvUaf4lsBECWjYv5iGiWoJ5NS2y4EzlBpkw0jaxKlXiXPDwDbCP0EtskxU5-Ynis84_JaBBXYcsoL4N5wK_me98Xx51PHmeF67vKdSrU18y_9JPWVXDHbHQ_ZdyQgHYr6amepWwmPi0kCDJF75ZvEdYE_Z7-Kf91pL61AwBsQ.jpg" width="400"><br>
 
@@ -94,7 +448,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
 <img src="https://cdn1.telesco.pe/file/Jz6fAAoq8Sp3rVhsH31MEO0c0c-OfMJU4dejYDRx2ryBvx_-fb2Bzr00UU3aX1Ja0dnzGgOrefQ-5seHUb4YY-gZOt9uuAuGzCRm0lrbeVibzKtdzSBVuEh7h4EEO2NbfpymxAmxEcV8L6cCAPPHPzhUaWVynliGowx4AN-8-_NhDgF0CZKBANkvJ-dniODDa4Xk7OM0q5MkCAE0cD6QX_qSrcNPNy808T46O9bZnxmDc7owXN6KA5pZ1DRitM1bmpHzh7BhbZX9_NgB6IgnaTCrjcXL1bBKbBCncSvbagOwDJbKqC_9bduQn31zMMZaRoCXpM31E34WuGLQQNlloA.jpg" width="400"><br>
 
@@ -118,7 +472,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
 <img src="https://cdn1.telesco.pe/file/BIlTitCM8LGz7nmqpKarITiaQx1vHAx6QQndwHUyIa2k_K9-Q2yHXEajn8ZJDZn2oR1Getfg-hOaom7ga_5qSOJ9Vl1sDAzfWeQ18YFuTGvwIja3D7_Re2o0bGcJ1Yub_k4wKT3hcp-BdS5yIIBstf3s9XjNzcgTNudbz2UohfDX_2K_NBnPvI3RFx_hUUMGymc4Y7P2B2YpD9PsqJDY-aOqxOakLXvTwZG3CsU_zbjCWK11_MivzMaawEiXVqnHyMrATu9iq81mVV1c6t0ZaRi87F4O3wH_c1a6mVljARGxLl6cTWISTXRu5n1zt1Dkmndcj7Pw-9P5xDAxu0csbA.jpg" width="400"><br>
 
@@ -144,7 +498,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
 <img src="https://cdn1.telesco.pe/file/GTG0O_nSytzIyUH2US2n0Xi6P_LtLAlQYrfi0jA1rOGtAsq5GWadK1nbMMWgaLLdQYMGtQI7gw0KhnvOX9gLIWvklXquqan0RSqx5ttJwKM1wFpPkPybMV8Udijmqa0fYh3SBUjFJyayTHqGlyHfuXhL1BlkOe_luzK3j5Hk1njgOcmpG_bVYybB4Ojz-rchu_LYetupoGJVWTDbkxftWt2N3jOCN4SCpREdv8gkbBpiIr_BoHoE6V6ziUOiUF1UT9yv7fY4hcoh4oT7WMFFru5CArVsLZ4qpTKKIA6KFE2tmu8ryC9_bpt9wWVNV1LKCAzWadwo6SX4zBhcsGyOHw.jpg" width="400"><br>
 
@@ -161,7 +515,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-08 03:23:11
+###### 🔵 Updated at: 2026-06-08 06:05:00
 
 <img src="https://cdn1.telesco.pe/file/upYSylL-k_e57scWLLSkiFhMvrvPtiFb8gFZijBfr2OslArrkkMowFkV0lB_9bcmeBHnWg87qJ1pQtJeaH_FImTgRdk5D2YR4stbD4M1miT33jW88qvIqQ3VjgsqCpGjO2djbEv8qxk9P6KSLv5nPyXGHLN-zeUwNF2030nV67lKHAXrx1PIjM2gyDAjYStZjZghc9axat08A-KBA6KGvB3OSfa56AfFcDx3UqJSLMMTxRNZh3BWbsxecWLw2TQ24s7G6H2gD7gsibB-uGqQIisGvcearhK5zWIMDlHRCnVrRwFGhKwSEtscnfDydz06wfaMKuc1ZoeRkd-JsXJtAg.jpg" width="400"><br>
 
@@ -183,235 +537,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76003)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-<img src="https://cdn1.telesco.pe/file/sgprDiZvb9MU3plHPaI7xADhwsR6uzVi29VswiLfH3WrXiqS8GU_haML4YULk8YAXEunJKK-yLZUIGgnz-riZxm-LJcNbe1NHbkykIHuzsUpNPwJgae09dCVwhIVZodoxxL-xmPCRE4U1zl-dYViAQ76b_vBkXVJoia6SQqQ-OZ5N7DyKK3TNMfMg9VdCmC9BF1AEqIKl9q_c2kwjUkOdtbX6cSQgx0V_DUtRpFE8r8m1q3FityVWBTMjdQxiowhE3ja7NL6-xruzBMZiEcCaNP_r1-kOivTPfPjbRQHL8gnV8fuzPG6dNrtEFCki4iKNI5Jq73xgss4_gr4_xGuzw.jpg" width="400"><br>
-
-ترامپ: حملات ایران به کسی آسیبی نرساند، امیدوارم اسرائیل تلافی نکند
-درپی اعلام خبر حمله موشکی ایران به اسرائیل در شامگاه یک‌شنبه، دونالد ترامپ، رئیس‌جمهور آمریکا، در گفت‌وگویی تلفنی با خبرنگار اکسیوس گفت: «همین حالا با بی‌بی (بنیامین نتانیاهو) تماس می‌گیرم و به او می‌گویم تلافی نکند. هر دو طرف کار خودشان را کرده‌اند. اسرائیل حمله خود را انجام داد و ایران هم حمله خود را انجام داد. دیگر نیازی به حمله دیگری نیست.»
-دونالد ترامپ در این گفت‌وگو افزود: «حملات ایران به کسی آسیبی نرساند. امیدوارم اسرائیل تلافی نکند. اگر بی‌بی (بنیامین نتانیاهو) پاسخ بدهد، این ماجرا همان‌طور که در ۴۷ سال گذشته، یا حتی در ۳۰۰۰ سال گذشته، ادامه داشته، باز هم ادامه پیدا خواهد کرد.»
-ترامپ افزود: «ما به یک توافق نهایی با ایران بسیار نزدیک هستیم. این توافق، توافق خوبی خواهد بود. نمی‌خواهم به خاطر اتفاقاتی که اکنون در حال رخ دادن است، این روند از بین برود.»
-این اتفاق چند ساعت بعد از آن رخ داد که ارتش اسرائیل منطقه ضاحیه در جنوب بیروت را هدف قرار داد و ایران تهدید کرد به این حمله پاسخ خواهد داد.
-یک منبع ارشد ایرانی هم به خبرگزاری رویترز گفته است که «ایران به هر حمله اسرائیل با نیرویی شدیدتر پاسخ خواهد داد.»
-ارتش اسرائیل اعلام کرده است همه موشک‌هایی را که تاکنون از سوی ایران شلیک شده‌اند رهگیری کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76002)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-<img src="https://cdn1.telesco.pe/file/B24q-v85IdkxJevQZOZ7FZ1UMVdjyzwv4OC1XHK1ky-fxC0elH8xMog18zSuoLUjZdET4nKoXSdVNJpmFySinXoM0x-hzWhgprlQU0zOxk2J1_OgEvbsNngkkGhAgC8skGcIlZ0hcwDQOM_m0OYvj2g6mUYNI3iocEzXzZ3nkXYeM3CDywXpNjWZZ5ZUlnwAMOMil49nG9fenlxutK-8cqP5ef_SRZ9OOXPyyapRAoKYBkJHo3bfjKuDyRblnN9Y82HW_laVTQWabC6Mf6K3Va4TZJ5lRc8ddxFBY2NlC7dMsS9JsCKNQOwLl-qpg5ukbni6TEvNg9ZsPOrZ_c1YEA.jpg" width="400"><br>
-
-mohsenreyhani01
-سپاه پاسداران پس از حملات موشکی به اسرائیل در بیانیه‌ای اعلام کرد عملیات شامگاه یک‌شنبه صرفا یک اعلام اخطار بود و در صورت تکرار حملات، پاسخ‌ها گسترده‌تر خواهد بود و تمام اهداف آمریکایی-اسرائیلی را در منطقه در بر خواهد گرفت.
-در این بیانیه آمده است: پذیرش آتش‌بس از سوی ما در ۱۹ فروردین ماه مشروط به توقف آتش در تمام جبهه‌ها بود اما مثل همیشه آمریکا و اسرائیل به تعهد خود پایبند نبودند، هم حملات را در لبنان ادامه دادند و هم با تعرض مکرر به سواحل و شناورهای ایرانی در تنگه هرمز، دریای عمان و اقیانوس هند آتش‌بس را نقض کردند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76001)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-<img src="https://cdn1.telesco.pe/file/Y3pc4wE-dxFIL5NADxZs8asnkgUxdatdApEapZncwulojqZkSPiqgIJBo5kmGDi_2BFuDvYWWwSBlZ8M5ZzFMfgBGtV_H4NWOYMOx7QL8L5CvZEfJGWAtJ5MXWk0hTFvtYg1jxtk6ZgMGHqshEjISiYMFF9YjZzIJeGciQFN5SFIpldLbxLYVq24agPuFSIV84hOPsU5HW-biUarXzYmKsbkZqp1_90Bxx64MrkVyXzzjh3iBey3wUAe2Si6pUDuQDIcjBTnwaCdgnWYzMWJCW_vt-9bFgaJ2QqnvGXMQk2_Tu03yMx040X3VRh-XFLKY9ifb8GNqsyHJEHhdUHFcA.jpg" width="400"><br>
-
-دونالد ترامپ به شبکه فاکس نیوز گفت: پیشنهادی که به ایران دارم این است: موشک‌های خود را شلیک کرده‌اید، همین کافی است.
-او افزود: به میز مذاکره بازگردید و توافق کنید.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76000)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-<img src="https://cdn1.telesco.pe/file/Ti6LWtoN4q7c8jBZ1wQvJgkN2mUeHUXZCzodSeRNB0As6XXqDcmH1UkW96CLppP4J5e-wN9VovVkfVyo23d1tGLwYpjux8yjrECWKgFYeDXp3KbiXpbiK81WWt_Jgoc1amsWObM_ja9r-FySms5xtHMGFRGlieAu988MNC1QSrlKy4Ak1sG3780QvTwGqwGB6zDFJK_tf-zeea5DwstFSVVndbawkzrAwQcDtZsGQ9jrRME-co1gkYowxvMqu4khna4rOFaqcujHhnI6BqGQgly37dPCciXSrYMBoFZVb8nPLkN52IkY54WMWyq63NWmfe_ijfov6d1Py8frinxXYA.jpg" width="400"><br>
-
-نیروی هوایی اسرائیل در بیانیه‌ای دقایقی قبل اعلام کرد که این نیرو تاکنون تمامی موشک‌های شلیک‌شده از سوی جمهوری اسلامی ایران را رهگیری و منهدم کرده است. این نیرو گفت ارتش اسرائیل اکنون پرتاب‌های بیشتری را که به سمت اسرائیل شلیک شده‌اند شناسایی کرده است.
-@
-VahidHeadline
-ارتش اسرائیل به صدای آمریکا گفت که جمهوری اسلامی تاکنون یازده موشک به سمت اسرائیل شلیک کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75999)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-
-
-توییت باراک راوید، خبرنگار آکسیوس:
-یک مقام اسرائیلی به من گفت که اسرائیل قصد دارد به حمله ایران تلافی کند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75998)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-<img src="https://cdn1.telesco.pe/file/GOHgYOb3-nsEuwtV17ig4O5t2mefVXlvYOuilw8zq7Rjgfz_Mk4e4awDUh_vb_4EaParyy7dKKoTRq-Q72sSw_4rhphDq_RkMjJY5dH82J02XHoUeU2Uogz2b4IqYifdyi31qpv_oyyo3xKHqTz1MTqSVTPikQxLmXKqHfHYBxrYN6R_kqL4E-VN7i4nrc9WfMR7yemqccLyia2sSk4SIvVgW27zOsIpOckk-RmP9JjhrgMTgtp5z_acfRGlgz92agJoywK6LGa6rZhVIGLnYRmvfkGTQ8Zdt3ckwTwX9Can2VQXHbQUZoENdE-xGhfLVcTjIsbY0pSa5XuM90LgnQ.jpg" width="400"><br>
-
-سپاه: در صورت گسترش حملات پاسخ ما کوبنده‌تر خواهد بود
-به نقل از تسنیم، خبرگزاری وابسته به سپاه:
-"فرمانده قرارگاه حضرت خاتم‌الانبیا(ص):
-رژیم متجاوز صهیونیستی با نقض مکرر آتش‌بس شرارت های خود علیه مردم مظلوم لبنان با چراغ سبز و حمایت آمریکای جنایتکار و سکوت مجامع بین المللی را روز به روز افزایش داده و با استفاده از سلاح های ممنوعه از جمله بمب های فسفری مرتکب جنایات جنگی می گردد.
-با وجود هشدارهای قبلی جمهوری اسلامی ایران، رژیم کودک کش صهیونیستی با عبور از همه خطوط قرمز و افزایش حملات در جنوب لبنان، ضاحیه بیروت را هدف قرار داده است.
-قبلا اخطار داده بودیم در صورت گسترش جنایت در ضاحیه بیروت، اهدافی را در سرزمین های اشغالی مورد هجوم قرار می دهیم.
-ارتش صهیونیستی باید حملات خود به جنوب لبنان و ضاحیه را متوقف نماید و در صورت گسترش حملات خود به آن منطقه و یا پاسخ به اقدام ایران با ضربات کوبنده تر و پشیمان کننده روبرو و حملات ویرانگری علیه رژیم و حامیان آن آغاز خواهد شد."
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75997)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-
-
-☄️
-موج بعدی شلیک موشک به سمت اسرائیل
-پیام‌های دریافتی:
-دوباره شلیک از کرمانشاه
-دوباره یکی دیگه زدن الان
-یکی بود
-10:44 دوباره صدای انفجار اومد کرمانشاه
-صدای انفجار مجدد
-بازم زدن
-همین الان صدا اومد از روانسر کرمانشاه
-22:47 شلیک موشک از تبریز
-آذرشهر [نزدیک تبریز] صدای موشک ۳ تا
-سلام وحید
-ساعت ۲۲:۴۰ ۴ تا شلیک از تبریز به فاصله هر یک دقیقه
-نور خیلییی زیادی داره و صدای زیاد
-🔄
-آپدیت:
-منابع حکومتی نوشتند از اصفهان و ارومیه هم موشک شلیک شد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75996)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-
-
-☄️
-'شلیک موشک از کرمانشاه'
-‌
-بعضی از پیام‌های دریافتی:
-سلام همین الان صدای موشک از کرمانشاه اومد
-سلام صدای جنگنده در کرمانشاه
-سلام وحید جان.
-همین الان ساعت ده و نیم دو تا موشک از کرمانشاه شلیک شد
-صدای غرش  شدید ترسناک ساعت 10.31 شب کرمانشاه میاد
-وحید همین الان از کرمانشاه موشک پرتاب شد
-از کرمامشاه الان دوتا موشک شلیک کردن
-صدای پرتاب موشک از کرمانشاه الان
-سلام وحید جان
-من کرمانشاهم
-الان ۱۰:۳۰ یه صدایی شبیه شلیک موشک اومد
-مطمئن نیستم، ولی دقیقا شبیه صدایی بود که زمان جنگ میومد.
-🔄
-توییت ارتش اسرائیل:
-ارتش اسرائیل موشک‌هایی را که از ایران به سمت اسرائیل شلیک شده بود، شناسایی کرد. سیستم‌های دفاعی برای رهگیری این تهدید در حال فعالیت هستند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75995)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-
-
-پیام‌های دریافتی از شنیده شدن صدای جنگنده در تهران که لابد داخلی است:
-سلام وحید جان ۲۱:۳۲ شمال غرب تهران صدای شدید جنگنده
-درود وحید جان
-صدای جنگنده (؟) غرب تهران
-۲۱:۳۲
-صدای جنگنده غرب تهران ساعت ۹:۳۲
-بازهم مرکز تهران صدای جنگنده یا هواپیما رو نمیدونم ولی خیلی پایینه ساعت ۲۱:۳۳
-شهرک غرب
-صدا جنگنده
-صدای جنگنده ساعت ۲۱:۳۵ دقیقه، شمالغرب تهران
-مرکز تهران صدای جنگنده میاد شدییید
-صدای نامتعارف جنگنده در مرکز تهران از ساعت ۲۱:۳۳
-غرب تهران صدا جنگنده داریم 9.32
-۹:۳۱ شهرآرا صدای جنگنده میاد وحشتناک خیلی پایینه
-سلام الان نیروهوایی صدای خیلی عجیب میاد صدای جنگنده ست انگار خیلی بلنده
-سلام وحید . ساعت ۹ و ۳۳ دقیقه شب مرکز تهران صدای جنگنده میومد واضح . ۱۷ خرداد .
-سلام ساعت ۲۱ و ۳۳ دقیقه شنیده شدن صدای جنگنده زیاد ، امیرآباد تهران
-صدای جنگنده میاد سمت مرکز شهر
-آپدیت: کلی پیام مشابه میاد که دیگه نقل نمی‌کنم. درباره صدای هواپیما اهمیتی نداره که در کدوم محله شنیده شده.
-بین پیام‌های اولیه دو تا پیام هم بودند که نادرست به نظر می‌رسند:
-سلام وحید، اینجا شهریار صدای موشک میاد. احتمالا از بیدگنه جمهوری اسلامی داره موشک میزنه
-وحید از بیدگنه موشک زدن ۲۱:۲۸
-صداش تا فردیس اومد قشنگ
-آپدیت:
-در پیام‌های بعدی روی این تاکید می‌کنند که صدا طولانی بود و چند دقیقه طول کشید.
-بعضی‌ها هم نوشتند این بار هم هواپیمای مسافربری بوده با رفتاری عجیب و پرواز با ارتفاع کم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75994)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-08 03:23:11
-
-<img src="https://cdn1.telesco.pe/file/KBwwrpkuXXsNASnIwAFF1BH-hJaNwo7gd_xwN86gwQs-x6_fHVQcGacgudO5LYO5hz8Nll90iGzyHYZMo23YFdgH5yyfAOjnwqQweGrtGFzm3lvbA8OTiNKgQXDLC23zdN0gsWHeZbBKXmTnB6io6o1fS7kSOSQpW9b4HwQcIeYQ660fp8w41vdz_RW2yOduxGXkZOh5ygY0tFQzcVKyhIlIGylTG8P4FqJ-zQlriEO6qlPSWuvV5BL__E5YfI9bmiJ8ygMVrJFLseFxLThJuowHNCdw8n-UCZ1NdIz4vnXmAnT5YVm38VP5ZbrgNcP1shFxWrUsT-_yJY0BrfnSsQ.jpg" width="400"><br>
-
-توییت پزشکیان علیه صدا و سیما
-رئیس دولت در جمهوری اسلامی، تلویزیون حکومتی را در شبکه فیلترشده ایکس تهدید کرد:
-drpezeshkian
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/75993)
 
 ---
 
