@@ -3,9 +3,91 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
-<img src="https://cdn4.telesco.pe/file/j4UD0LuGO2L3hZps1g3AK2H2fao0KlbrLSQPUd-gwWJO2802bneEQqXzZ5cYxam1bV5k361sGXRy8OFWPnTM1PjbAxNpcChQidWiDih18Z9zEjs5fB_otTBWmBAUAIXC951zn-7UdczlA4M8joI1YCXtCc3b8mHzRXGfpXtKUAejHpAmCI-3CTv5zyPStXYO3l7IOc7LLZEmJx7cfwQWTkHmbzs5mMiu1EjLrpI8VPwsB_fXYnUi9UrCVPbUpdQJlbm8KvbjiCUIr4Sfvj8XLPNDMUHnpYHRAWgzkgSIsK4vJREH7KOBdThM5iEircvvmEIqIUbq90WU9HzXolO6AA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/spOQ1ik9CPP3wK9T3k_oQd3HrS26U0Q8hSnf26HI990kwb1ryJYQjYZl4FfSC0XbY3q9vDb0t2HNJmiWjaCZuynWdFE2W9JhJGnZvoVZjEHUn2Oc9b7On2N9YGEcesxo45QnwoThrIPCRlqcs-o49UtAxy-d4hDlzPwNdHlWXW_GAwTv9ynTM4lVgFYJrEMPoUfxP19sXCOs0pzy_wfQmPRF-sr__3JWXlOh6jtNT_weFl-EaWBrYgWpdXqgtBgLiSkY2lvhE9GCgbHHPzOEBjHjMWlLN9OKBl0YLag2DjFZVa7naGJO0IVx_jrPSLLiYzAoTSqnK9OsNnNYoy_gag.jpg" width="400"><br>
+
+خبرگزاری سی‌ان‌ان به نقل از دو مقام آمریکایی گزارش داد که هلی‌کوپتر نیروی زمینی ارتش این کشور که در سواحل عمان سقوط کرد، توسط یک پهپاد ایرانی سرنگون شده است.
+یک منبع آگاه دیگر  تایید کرد که یک پهپاد از نوع «شاهد» به این هلی‌کوپتر آمریکایی برخورد کرده است.
+یک مقام آمریکایی به اکسیوس گفت تحقیقات هنوز مشخص نکرده که آیا این برخورد عمدی بوده است یا نه.
+😱
+‍
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76105)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 21:18:21
+
+<img src="https://cdn1.telesco.pe/file/F8ARwItN2DuxoPGrYluy2y1Ehk8R_J5Ss9vuGjkFnHwvEWTYXIskoubVe0oSWGNHCHQA2QVOEv6MkxEoqNipY2xhZM5-diH6CRTeAYQo_e__B_7C6ub07BV5xA9f-2NR5qBK_6DvlzdfWLyRFCl5JPmzZrlPk-zSNEmDttzbjvh2hP9lsBvwYy5nPcWvYxjwCZPENFMWtu48MPADVrz1tkyxkDfM3SiTnGzn32CzwayH7pzaJsKPA5Ac9YYFu2L_vyZr9LAqgUWMTLbHlAXqsH79ezJV1tfWkJP4SsOPWlZCvxYBkcPazvaQh5CrRtGg7MZCyo5lyJ1fY_D7LXPj2Q.jpg" width="400"><br>
+
+توییت قالیباف، ترجمه ماشین:
+ما زبان دیپلماسی را ترجیح می‌دهیم، اما به زبان‌های دیگری بسیار روان‌تر سخن می‌گوییم. تعهداتتان را زیر پا بگذارید، آن‌وقت ما به زبانی روی می‌آوریم که در آن بهترینیم.
+خودتان بر اسبی سوار می‌شوید که زین کرده‌اید!
+mb_ghalibaf
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76103)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 21:18:21
+
+<img src="https://cdn1.telesco.pe/file/KsUj1L8t9W7rsoUv--y2F8KEqZodjmtbkSwGzO5I8mn_kKKxTF_eMDhDPp_Y9Zbpf_9vjLE19FOjKKeaj-1aPI0J1mVEWE7T9FWxgBYuzKlQ7p4Vp8q8QvyIEu8Zvy1KhzBXQ2zV83ccs07eoVbSm_R2MLiQtbRrxucXy_3FE0Sk58-X4tMUPTCIveLlHyIjYce3uhhDu1xiRrqppwU86120ibmVk-uhOm1GbeIG-VxVy7uArxGdizA8SPJgimIGnNR0Q-xewY4dVnFLZIxOSXipgZaafK6Wv--OBNCanRMggb6xqcPIzFtZBT4N2zlwszZ0WaKVEGmZovZ0ck5nFA.jpg" width="400"><br>
+
+☄️
+ترامپ: ایرانی‌ها بالگرد پیشرفته ما را سرنگون کردند، ناچاریم پاسخ بدهیم
+ترجمه ماشین:
+به‌تازگی از سوی ارتش بزرگمان به من اطلاع داده شد که دیشب ایرانی‌ها یکی از بالگردهای آپاچی بسیار پیشرفته ما را هنگام گشت‌زنی بر فراز تنگه هرمز سرنگون کرده‌اند. دو خلبان در این حادثه حضور داشتند که هر دو سالم و بدون آسیب هستند. با این حال، ایالات متحده ناگزیر است به این حمله پاسخ دهد.
+از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76102)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 21:18:21
+
+<img src="https://cdn1.telesco.pe/file/TXsmDhodT6bQ7pJz4mOnhnZW6JeBvZFGxgp3MsYtLEMoHv9muQSYZViMi7Hx2yKCq2lhoBUheljvpTVCVxsZGDeRF7cFB7Tc_aYJnHjPoXvsrlsjGP2yPf_g8mzOrYR7c95VWipTn_Q05c8C57wzHJwVzCD-wra88etgJ3vOnHraZMOjU0TA-k_fcJcQPlSoLtztejo-I7ZxiDS2Ny5yWB4_dnz-BVp3wQ3aELQGm0hRLQUzq5oXEoN9Nvtb92sAyRtyUeST7xDDCtcN9FFslMIuSkIw-P5v8VJztMvxgrP58Z82D_3BbdQCoB6MofeSM6fsjLjtQRSpEwr-n7DCMg.jpg" width="400"><br>
+
+طالبان به تجمع مدافعان حقوق زنان و مخالفان حجاب در غرب افغانستان حمله کرد
+AngelaGhayour_
+مقام‌های امنیتی افغانستان روز سه‌شنبه ۱۹ خرداد تظاهراتی که در حمایت از حقوق زنان را در ولایت غربی هرات برگزار شده را متفرق کرد.
+این اعتراض پس از آن آغاز شد که پلیس امر به معروف طالبان گروهی از زنان را به اتهام نقض قوانین اجباری پوشش بازداشت کرده بود.
+به گزارش خبرگزاری رویترز، شاهدان گفتند که در جریان حمله طالبان یک نفر کشته شده، چندین نفر دیگر زخمی شده‌اند و ده‌ها نفر از جمله زنان و دختران بازداشت شده‌اند.
+..
+به گزارش رویترز، هرات که مدت‌ها به‌عنوان یکی از پویاترین شهرهای اجتماعی و فرهنگی افغانستان شناخته می‌شد، دستخوش تغییرات قابل توجهی شده است.
+...
+شاهدان گفتند اعتراض‌ها زمانی آغاز شد که مأموران امر به معروف تلاش کردند زنانی را که با الزامات پوشش اجباری مخالفت می‌کردند بازداشت کنند.
+برخی از ساکنان گفتند مأموران حتی زنانی را هدف قرار دادند که از پیش نیز پوشش مورد نظر، شامل پوشاندن کامل صورت و بدن، را رعایت کرده بودند.
+@
+VahidAfLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76100)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-09 21:18:21
+
+<img src="https://cdn1.telesco.pe/file/M0hTVGzhAom7OQxwSBTnc6-D0bZJ1UD9RuQboj38Ew9EDA961NsTKyUlYCCwkKtUFz-Nmlf0pOgnIJBEuq56V3puBONbJyljjwf9ZxzUBKSXDkkgXrnocF1F7q1QdiwQo1igLo7b2n2T5G0a997q63kyW2Xo-Hm_sBs7JxCsn7w0gd0GI2QEsrUEFjf_jCH2fUt_KwbMkS8Iwmf6bwd4Sok3HPIgBWTJjlj7g_BYpCqUlBqysUigFyIuFP3uOVjFcXfqEYdPTLBeVdFVp96ou66YPeTjhrvVkQMJWvKvXayoRR1D5Mtg5m9wUyhSabi9itG-HXa5ttGTn5JkPz7vWA.jpg" width="400"><br>
 
 علیرضا پیغمبری، جوان ۲۶ ساله و از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴، توسط دادگاه انقلاب تهران، بابت اتهام «محاربه» به اعدام محکوم شده است.
 @
@@ -19,7 +101,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 
 
@@ -38,7 +120,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 <img src="https://cdn4.telesco.pe/file/Ta6C1AhFROjynFropgZs9oidjj_ho5xYptgdJw5AEveRb9tCIpPe0EU2DkymfTAwwn_69gTAvuT0TzuKw9FOLuAg5ea9bAT1tU6E2HPz7BbIiZ1vh6Hc0mRTVm_dfV0k4qXwpx99r7a4ePl3huCoijs83CU2AnllGoYXUt13oyfheoGMLG0Vacrw5dgY5BYDKUo0fVpIy6AZpva3xRUBZBVLv7kLHPMf0tS5_WhU1gzElDxw8E_R21u9qvp8ovrrhgwnRd_m93ute_SlGjYprX_IrKrOC5yqsBXZnurMgghQH1b8TrOTZIJCHeEUQS624oXtco7TNVOHMsyQ7UEp2g.jpg" width="400"><br>
 
@@ -57,7 +139,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 <img src="https://cdn1.telesco.pe/file/oHYNSaIK4Qi7SL7U8RPx134nvMMZMI9TYQ-rFfid9o7FAWCRhy464lZGl-dVZfSsu4z3JWPXLbZqFyMnGLuc0CrtKLckgpI-nUtDjJSLjRyMBJnJfCD1XHVvrWsJk1KMSuxiwmonGRVWyDLlwtDKZMBKYKcbB0aKp-y_vhroVIr1E0ZLh_lC9j2PlNf7lJ9d6vM-IgAGr6QuFRkISYDBg0p_rAMrTlQDyoxJ7JVo6S2-Lx0LPTZflCavhL4OFJR2yHYKYFZybGD5D1EQLopSeguWST-qlefNypAjfXsMrV-eKN2Q8v8KHL7wkDZrudo1eExB6wJDxvNz3MrffPhm0g.jpg" width="400"><br>
 
@@ -80,7 +162,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 <img src="https://cdn1.telesco.pe/file/EgNZVczGrfeD0pGCHJgXFYtaMwvri-F9fyjY_DBzUBW6AkGnKaNCaAoh3kQEAR3QSqbxqrzKE_wQT0bsv01pn20eTrBC--hTM70EoKWtr04FzfZMIy1UDNQCqmOizcf9PdDVZZxVfjoqK1BTzQnqkrA8OhkdVeQ06Px77xoQg37gcYKS7-IUCPwPrIbOtQniAXQ4TOrZD71WQq6kldi2ifXRQp42agGkcaIXafU62SKZ9WyQjoQaA_jQ6Y70ed_4r5P9daSbPV0c9AVcR7Zl-twfVcbQoM_n_eJs-hiQAtwNAbuC64afKtXUmBTJf8nvzZzTSLX2xhnE2VHtqjFwRw.jpg" width="400"><br>
 
@@ -97,7 +179,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 <img src="https://cdn1.telesco.pe/file/PrfAT11O5ozS61N8kEYAHnvDNbIxv_-hKesRf-KQHxgAFprPI4wwllULLB9-iMCHiDMvgJ-8ndyyerbNkhPiimmYWaMUBNauiqIdbpENsh91X_8QiAoFMfFxtFIpCvr61B31pHoT_cQZUaSKuMlg6CEqJhgBE658r32FOCLL1v0c_5UceMk09MMDWVHr03UF6-Oj6jZJeR5idhLCFjodZwMzoLiS6pvFscO1Vb0dctoe4QtTDfJt5ZBHYkVa5a6yE9XQjP3e2LevNMjb5Rz9FzK0Iy8ULFMIdd0PPTQ7cpn3VVDjJkpsGgvTdjywfKpHPaAamf1ptP6ma0YBQvY5eg.jpg" width="400"><br>
 
@@ -123,7 +205,7 @@ IranIntlbrk
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 <img src="https://cdn4.telesco.pe/file/aZML2JARgSRvjm68olzvzzRD2wS0e5Ul8OlP5rxtpJ-ddwe73bQROOMDO7XqtDGIwMlOePG3YwRxfF3Ldjb-llFxh1xUoLRxXLd_0qTY7K6Hz3_1524UWgbECrvvu5bjcuLQ2SvW3Q-hpFcJiMVkhKubsb4I-836nklFuU1t6VCpoBHMfOYbQo2nSUnQMo7kZlJ5VE2TU7cL2IJaBuULQct6BOSGNhD0HwWME9JumvWSxOTbgI3OmCgnAIZLrxgVPU1QBxYA3YouvSP2g54q4aCTJ_iqLR9EQjIVnaUmYbuhSbliTyY_lawMWDv0LZCXo4DY9ooKXEhPm3i7OlhFgQ.jpg" width="400"><br>
 
@@ -142,7 +224,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 <img src="https://cdn4.telesco.pe/file/sooMTPCcYTo7nTyBCvdtgC9uI0smz-3LMGAo53OQyzibkDc-4rCmLJMSzBivjsmWnounNX5TKD4PxOtoQdDC7emhPF_Cw-e1TDoGPEIy8c89YU7QU4EfB92S6dslx6las-ayaWT8xSD-l4x2W95RGHN8-rLdEpw1rGUgSucCS3rvzHZvOHOzIlGY6QoneX8y7ZWePPVBGgQBMPzFfQU8wSAOYwZqQXYqWFmxu7aVhT-NdgKDEqxaNqzGRYuVU3XWaFCLZnZ4bI1OysWDQPdc1QC78BwLWAC9atNVk_mZ3uOa95pF2EGPk5rgkriCFVgvEXj0SF4eOU1O4Z1p4b2gVw.jpg" width="400"><br>
 
@@ -163,7 +245,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 
 
@@ -182,7 +264,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 
 
@@ -208,7 +290,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 <img src="https://cdn4.telesco.pe/file/d82nhegdaOnYSCL5ROa2KPeynhPaWIjxmAkHuwcG8cnPHAXPSs40k_6w2zLK1HWHWGjGOX4HIyvQual9XUtBYc8Ju-M3OAFB3r8op-nwck1xg3oUGSud9G6he2Akntghoku9301r83PzaSf_NSevgL2YZ8aMVlC2NwGM4YxUb5KBQzJ2BWsuKAFQ48uQgxIc-Imc-D2PJTSMAQv58kI8PyQreicP8hlIaMgzFKO-NYzX1l8xAZghhdQsNNUDn7olSw5am9gZ3CIDqB08ER4dieq-uquIs0cVbBJOoTIAOTi0PEFRC-Xez33-MA0QikU5BA71YjYmluTpnqjPmnMA2w.jpg" width="400"><br>
 
@@ -230,7 +312,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-09 19:16:57
+###### 🔵 Updated at: 2026-06-09 21:18:21
 
 
 
@@ -260,87 +342,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76085)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-09 19:16:57
-
-<img src="https://cdn4.telesco.pe/file/sibo_5yl3Cy5VlKfwcLY33fOJSduRNs4KtITDsRqdmL7l2qj2Bu_nDWWKiAWVcVe08rj87-XrkqXJVtlQsWwbMghl5Ax4924_QWvBzvqa1fvHmtUywhJKjYS2kkzjJ14wRaZv5xAPh9h5XF53WYEflwNeS6gCWaim7SUzO8NtwCvkLfCtfoA5kmjT7gWKE3d6N-iKQaPB_b7_Gn8q9JoVwMySFP21kdPfHNpzd4exIsSSsz2fcc2pve7zVPbQmoCoK9yCE9NgULMYO9nuExYEIiCx4nBtZgAKz20UwPb5Vf5Li-72WhA6BeP4HSp0VD6brk5HL05zR0ZNLVsQ1gN8Q.jpg" width="400"><br>
-
-♦️
-شبکه خبری سی‌بی‌اس، روز دوشنبه ۱۸ خرداد ماه گزارش داد، دولت دونالد ترامپ قصد دارد روند لغو تابعیت ۱۷ شهروند آمریکایی را که به تقلب در پرونده‌های مهاجرتی یا برخی جرایم متهم هستند، آغاز کند.
-بر اساس این گزارش، وزارت دادگستری آمریکا این افراد را به پنهان کردن اطلاعات مهم، ارائه اطلاعات نادرست در روند دریافت تابعیت یا ارتکاب جرایم مختلف متهم کرده است.
-سی‌بی‌اس نوشت این اقدام بخشی از کارزار گسترده دولت ترامپ برای استفاده از سازوکار قانونی سلب تابعیت از افرادی است که به گفته مقام‌های آمریکایی، شهروندی این کشور را از طریق تقلب یا پنهان‌کاری به دست آورده‌اند.
-در میان افرادی که هدف این اقدام قرار گرفته‌اند، نام چند نفر که به جرایمی از جمله سوءاستفاده جنسی از کودکان، کلاهبرداری مالی، پولشویی، تقلب مهاجرتی و استفاده از هویت‌های جعلی متهم یا محکوم شده‌اند، دیده می‌شود.
-تاد بلانش، معاون دادستان کل آمریکا، گفت دولت در برابر سوءاستفاده از روند دریافت تابعیت «هیچ‌گونه مدارا» نخواهد داشت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76084)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-09 19:16:57
-
-<img src="https://cdn4.telesco.pe/file/f3D8ASStHr6ADCZqQXmEwYiyy8WaplyaW1P5mR9UqS4qvN1YBmt0V9YiCxQBe7ZxJ6RVcQVpyTIa94jg3KBxabHAoN49p2ghnnMZ8_14NRKAoZaMd-gyGiDBF81aGIgB5E07Ruos05f2XemJt-bWWpmuabEbpK3dzBHK1BUuhWdDeiiKQ8bunqWvpM4c71oxauTaZqKtdfWAEy0s6W17Bd7Tr5_VRSIizfbQh2jiKyNUWG2diKVLwNvxgRW_Mp6DpyN312m4ThIf5F2OVOBmyk2qO9CBKqXmg-apNGeC25tSGdID_e_zKIVW2BTScXRZZlGD-H-Ago6s6-CgDDUJyQ.jpg" width="400"><br>
-
-شبکه خبری سی‌ان‌ان، شامگاه دوشنبه ۱۸ خرداد ماه، به نقل از یک منبع اسرائیلی و یک مقام آمریکایی آگاه گزارش کرد اسرائیل در حال آماده شدن برای حمله‌ای گسترده به تهران بود، اما دونالد ترامپ، رئیس‌جمهوری آمریکا، در تماس تلفنی با بنیامین نتانیاهو از او خواست از انجام حملات تلافی‌جویانه بیشتر خودداری کند.
-به گفته منبع اسرائیلی، ترامپ در این تماس از نتانیاهو خواست دامنه واکنش اسرائیل را محدود کند تا از تشدید تنش‌ها جلوگیری شود.
-بر اساس این گزارش، نتانیاهو در نخستین تماس که شامگاه یکشنبه به وقت آمریکا انجام شد، در برابر درخواست ترامپ مقاومت کرد و اصرار داشت اسرائیل باید به حملات ایران پاسخ دهد.
-با وجود اخطار ترامپ در گفتگوی یکشنبه شب، ارتش اسرائیل برخی اهداف را در ایران، از جمله یک مجتمع مهم پتروشیمی، هدف قرار داد.
-این شبکه همچنین نوشت لحن گفتگوهای اخیر ترامپ و نتانیاهو به اندازه تماس‌های هفته گذشته تند نبوده است. به گزارش سی‌ان‌ان، در تماس‌های هفته گذشته تنش میان دو طرف به حدی رسیده بود که ترامپ با الفاظ تندی با نخست‌وزیر اسرائیل صحبت کرده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76083)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-09 19:16:57
-
-<img src="https://cdn4.telesco.pe/file/ko1ea_En5RrwDGvFCwTRFNPAXQ6g6Sf_fm6XaQuZ-rUWVL2YCVXlsRr8K0uULiKheKUXg3HCa07pV2XKNlLLansLdrE7JRScjAMGcVrf4I3q8nlWmI6i_0Jyr8Ux1dWSJDwLj7GkJ_kSoelSJ5MHe3m2uz7oAEz60Kk-UL-R3Vemo8YQvvKWfeVue9J3MHt6HD5RPDf6cV_rHpoPeTdZjUXHW7XeT4QFp6jL69kSRf9H62cUOz2cy__7kBJoB06gsjKrSXPgw2Dhqb50aS4RLJPamOu9WUEbREKwL4Lq3F2pNeWk4D8SnQ3Kxr8NNdqvWioWbFMU49Rs2xVTs-4B_g.jpg" width="400"><br>
-
-محمدرضا عارف، معاون اول پزشکیان، درباره حملات موشکی اخیر جمهوری اسلامی به اسرائیل نوشت که دشمن در کوتاه‌ترین زمان ممکن ناچار به التماس مجدد برای پذیرش توقف آتش از سوی تهران شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76082)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-09 19:16:57
-
-<img src="https://cdn1.telesco.pe/file/Xb-56ebX1KZoCulOjofdDyrdH_4VwagRB1oleJEVbIbLrRn7nbxMpXaXcm4e7ytfjuPVJk7lITcgzDgf8jOOeKpzM_hcQK0DCPPJKBUic_R2FsLKMMFFhb6yLpqPSswNX_oPi6vtEASdtu59gvvpIvhrE7DE2vTiyDYdmcPnWv931gDihr7IXywLQdj9LVqi0rma14hujxvt8uWjt4KQ5BSGtXbkcb_ukxq3f6Ua0KNED4IBip-pXkBpdo9MzA31tjKMCv9R5uMkkQA3mfkSMEJkaPd1RG1yGl26n05iewWoWALx99m_dsET6HHE3lB8zKiX_g5pol2B78pWxPhDcw.jpg" width="400"><br>
-
-ترامپ گفت: «به بی‌بی گفتم خیلی مراقب باش چه کار می‌کنی، چون ممکن است خیلی زود در برابر ایران تنها بمانی».
-@
-VahidOOnLine
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه در گفتگو با کانال ۱۲ تلویزیون اسرائیل اعلام کرد توانسته دامنه حمله اسرائیل به ایران را محدود کند و بنیامین نتانیاهو را برای کاهش تنش‌ها تحت فشار قرار داده است.
-ترامپ گفت: «من موفق شدم شدت حمله اسرائیل به ایران را کاهش دهم.»
-او همچنین افزود شماری از کشورهای منطقه از او خواسته‌اند بر نتانیاهو فشار بیاورد تا از تشدید درگیری‌ها جلوگیری شود.
-رئیس‌جمهوری آمریکا در ادامه گفت در مورد حمله به ایران به نخست‌وزیر اسرائیل هشدار داده است: «به نتانیاهو گفتم خودت را در برابر ایران تنها خواهی یافت.»
-ترامپ همچنین گفت نتانیاهو «با تاخیر مرا در جریان حمله به ایران قرار داد، اما من موفق شدم این حمله را کاهش دهم.»
-کانال ۱۲ تلویزیون اسرائیل عصر دوشنبه ۱۸ خردادماه به نقل از یک مقام رسمی دولت نتانیاهو اعلام کرده بود اسرائیل حملات به ایران را به درخواست دونالد ترامپ متوقف کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76080)
 
 ---
 
