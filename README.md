@@ -3,12 +3,123 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 
 
-توییت اکانت سنتکام:
-"نیروهای فرماندهی مرکزی ایالات متحده (CENTCOM) در پاسخ به سرنگونی یک هلیکوپتر آپاچی ارتش ایالات متحده که دیروز رخ داد، ساعت ۵ بعد از ظهر به وقت شرق آمریکا، به دستور فرمانده کل قوا، حملات دفاع از خود علیه ایران را آغاز کردند. این ماموریت، پاسخی متناسب به تجاوز ناموجه ایران است."
+موج حملات آمریکا «فروکش کرده است»
+رسانه‌های ایران از «فروکش کردن» موج حملات آمریکا خبر دادند که می‌تواند نشانه‌ای از «مقطعی و محدود» بودن این حملات، تلقی شود. چنانچه سنتکام آنها را «متناسب» خوانده بود.
+خبرگزاری تسنیم  همچنین تصاویری ویدیویی منتشر کرده و مدعی شده که یک پهپاد شاهد ایران در آسمان عراق مشاهده شده و آژیرهای خطر در کویت و بحرین که میزبان پایگاه‌های نظامی آمریکا هستند به صدا در آمده است
+اما هنوز جزییات رسمی در این باره از سوی رسانه‌های بین‌المللی مخابره نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76117)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 02:29:17
+
+
+
+خبرنگار صدا و سیما در سیریک: در پی حمله امشب آمریکا به سیریک، ۲ مخزن آب بخش بمانی مورد اصابت قرار گرفته و آب آشامیدنی این بخش قطع شده است.
+"خبرگزاری صداوسیما" در خبر دیگری نوشته: هیچ بندر تجاری در جزیره قشم هدف قرار نگرفته است. در پی شنیده شدن ۶ انفجار در قشم برخی کانال های خبری از حمله به یک بندر تجاری در قشم خبر داده بودند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76116)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 02:29:17
+
+<img src="https://cdn1.telesco.pe/file/TfjUyXrucMq82jDT45RdU97z0PdppMeWwxJo6PJ2D6l2ayKmgmSUxF4Kbe0aP3ekVs4_2U_GqGs0UrlzYeNkXL-B4K6ANTQdvlEYLxHgk6AzD7hhOdJSSOEb43kqXR_wvi9FBid_9o_b8tU9iK0yhdL_c8771TsH7HVYioLobBySt7hyGt_kQDf7CyKJHaLxPhYQNg7zcC6vfEC4ZgJhvptTwRVmMKFmo2kW4NRGQpOHTk1IwEl-VS0YV3UeSnUIFHHgzG4cqYn18LGGhEAD4Z3BxBU_cjSUlGYIvbY-CtAmJFoU1Mh0-ONRTipTT-Wdawv1wsZY3igLIAj8FrJGCw.jpg" width="400"><br>
+
+توییت تازه عباس عراقچی، ترجمه ماشین:
+با وجود شکست‌هایش در میدان نبرد، ایالات متحده تصمیم گرفت عزم ما را بیازماید.
+نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی را بی‌پاسخ نخواهند گذاشت.
+اگر می‌خواهید در امان باشید، منطقه ما را ترک کنید.
+تاریخ خلیج فارس فصل‌های بسیاری درباره سرنوشت‌های شومِ بیگانگانِ مداخله‌گر دارد.
+araghchi
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76115)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 02:29:17
+
+<img src="https://cdn1.telesco.pe/file/HxHx168HB76_EZ0CWyi8uwNrII1qpTk0PxhrkLecJ57VZdwyILVjJ3LO2elxiiAdbyE8FNqgVLZwTWuptMZh4Ios2e64a2ZN4kOFcspHNFi6sG-pkDcFTeVEEMvVu7xVkmn_R-UItPk1Wbyg5sHqKV3qAxgs54BbSh_UZyBC8f5yhWZRpp5_Q61gO8CnkQle6IXv8jUfT3WjdJ_3EnPcc1CwjBugkrHsSHDlBnK3VffUaHLkSUFiJr51c1c-7v8cISoZ5csMcPPOxFoHAy-JTLNLRiU5Ercz4tn7mtKQtN3_u2lvHkTKqAvCnKPfg8-8Lxb1w0rH7cQfqKWEq5ocZw.jpg" width="400"><br>
+
+یک مقام آمریکایی به سی‌ان‌ان گفت که حملات جدید سنتکام با قصد هشدار دادن به جمهوری اسلامی است.
+او گفت ایالات متحده معتقد است که این حملات مانع مذاکرات برای پایان دادن به جنگ نخواهد شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76114)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 02:29:17
+
+
+
+فاکس نیوز به نقل از یک مقام آمریکایی گزارش داد که حملات آمریکا به جمهوری اسلامی ادامه دارد و اهداف شامل سامانه‌های پدافند هوایی و رادار است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76113)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 02:29:17
+
+<img src="https://cdn1.telesco.pe/file/hPORqQOxprVkgjoKxbTf0clKo3PkWsLNEpoEpmT52O8NHD58v560G5Kb2W-AdVy7sTFEICftIRGrU5RSLsN5t5Z-XvEcMHOaKCxxDaLY-galGrIFPbTSwtj-3ol-A2cMqZWxdFd7x5OOsE0pvXLFxHz19V7OBFOEctfQ_9j52I4Rvag5bE8-9VS6hha-jx-f34JJUycKdstRWEKQ0oHfkONzxSI0vThPsHFz1-HG1_wBTKJibZ7fHUvNpKrfPVOGRCWlAvFk6jGgCi_HOVxQC--gYh43SAuI03yz90aW_yB2jAHrevLFgbPPNwtCbjTUodVZ-AcapR735qIQ7rOfmg.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، سه‌شنبه‌شب، در گفتگو با شبکه خبری «ای‌بی‌سی» (ABC) درباره آغاز عملیات نظامی واشنگتن علیه ایران گفت: «من فکر می‌کنم پاسخ دادن امر بسیار مهمی است. آن‌ها یک هلیکوپتر را سرنگون کردند و ما همین حالا که صحبت می‌کنیم، در حال پاسخ دادن به آن‌ها هستیم.»
+ترامپ با تاکید بر موضع قاطع خود افزود: «این اقدام پاسخی به کاری است که آن‌ها شب گذشته با هلیکوپتر ما انجام دادند و من معتقدم این واکنش باید بسیار قوی و قدرتمند باشد و حملات جاری نیز دقیقا همین‌گونه است.»
+@
+VahidOOnLine
+"خبرگزاری صدا و سیما":
+سیریک اصابت یک پرتابه تایید شده اما مکان و نحوه اصابت مشخص نشده است
+برخی منابع از شنیده شدن صدای انفجار و فعالیت پدافند در بندرعباس، قشم و سیریک خبر می دهند.
+"به گفته یک منبع آگاه ۶ صدای انفجار در قشم شنیده شده که بر اثر پرتابه های دشمن بوده است.
+ظاهراً این پرتابه ها از جنگنده شیلک شده است."
+من از جاسک هم چندین پیام داشتم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76112)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 02:29:17
+
+<img src="https://cdn1.telesco.pe/file/HA_cdnODD1waQ7iQ5v2dmGGyUOfoclbFYm4WIGADHUj1q9h8iRdovrDbNJ6dZSkk-DWD3-whllueewlK9AUD0OYDlAB1yg9Ilj2fuMy3yMr1ip7tFkFyCJH7XSi1LnBb-fgXEflEQt08KS2PLIJfbzw5JcGjcLqTfVohxlkxCBYs0BS7ldLT_HblTi9_PPGtLBkvCr-i5WxCpKCW9orfWappfb4qeaCPsypdOWLEGSd705djbwj9apF-V0PTuOgwIb46sNT2ctTDqZL0ZXduLLeX-HZWqpjIylGQIUabCBfMP7wzw9WvKvYGx71D-gWtJFfSg-G-uzKidY347f18vw.jpg" width="400"><br>
+
+☄️
+سنتکام: حملات در پاسخ به سرنگونی بالگرد آغاز شد
+ترجمه ماشین:
+فرماندهی مرکزی ایالات متحده آمریکا، سنتکام، اعلام کرد نیروهایش امروز ساعت ۵ عصر به وقت شرق آمریکا، به دستور فرمانده کل قوا، حملات دفاع از خود علیه ایران را آغاز کردند. این اقدام در پاسخ به سرنگونی هلیکوپتر آپاچی ارتش آمریکا در روز گذشته انجام شده است. این مأموریت پاسخی متناسب به تجاوز بی‌دلیل ایران است.
 CENTCOM
 📡
 @VahidOnline
@@ -19,7 +130,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 
 
@@ -39,7 +150,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn1.telesco.pe/file/Ep5lf03Uy2W_3b2oKCxwe-pndW-xhTCxVDHQVRYz8J3EHy_Rz2Mw3xzGI96ld7ZubTSjjNmUnFDktrxmB_45_p6i_LJf0tST9o1MiIfEgve8rqiR0ofwUWrSVbZbf6qbDRFQ_JtSQrfbwBxHc1RvJ3_GcxwKk0zDp11HHq5IX52-X4ci5a75MThPPxQi2PnbmwiTuw5O7EQLSg4KFgarbboE3uMfqRY5kzk19TqkyiS-j1VUnafjw_uqRT9Fe7iZ0IrL_Iak95rab_CkhD3PDkp7kp74tE3diJbYwfx4mbisqJ3Us7vzbe_jgl9lrcIoElGZLX1fe-8AW1SQUksPVA.jpg" width="400"><br>
 
@@ -61,7 +172,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn1.telesco.pe/file/gJevVMV9h87aSuJ5su3CUyQZ8QyUO1-CXZsOKRrAPJKe8zVxHhSN0-YQqlMGOZe_MY73jGKubwDlubdTiIXyPHSpriwQzdI1waNJQYoZ6siixrpN3GoNmsENZpLhyEYApDIldnh6jwFuzOXMJeRdBXS_iRLr_UJt_9CtU2vAZtZL1Rr53t720UO8V9kgakQ7WeyMDixUPn_E8SIlFJwNpvpXEA5FUB7RJd2IaBgY70oTVp6tr0hKFidI_GBL-s_2ZQLSirwA8bw6Q4XG1vfP8qKKYZDmiPrKr-SwEvyU2vwyyMRfPycGuGzPtAzJZ_4zptf_95YAXYFWFp6IMDMbdw.jpg" width="400"><br>
 
@@ -83,7 +194,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn1.telesco.pe/file/LXOkTSZDfCM5P65vBD-yRJGv4-eMONhxIuc42BdPm0w3r6-ouA2s91SQPr5PJT23Mc5-TzgAYnol8SgjVk6hqtuQrReW0FvLUcAx8tB3IU4DyZi5ykAUC-k725-7c4C6y-LBfdyqYkRmxT2PZj3xWzUPHQy3WZJb_LXE3OqE3aPzrt2cHVxfH2ZboFxmPP7JQrrOH_J9zUw7NjIFSThdqCMxxq6AZaXWZjdsUNFYlaOGXwVAtMDZ1tqXoTYuSjpXn92tfk94_W8IoMY7LkhVI8glYQiseYWEKxoi6kf7QR6PxJeEdPu3TIEaixVkteN93faA6NqeHZb2WVRn7c6iYA.jpg" width="400"><br>
 
@@ -101,7 +212,7 @@ araghchi
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn1.telesco.pe/file/spOQ1ik9CPP3wK9T3k_oQd3HrS26U0Q8hSnf26HI990kwb1ryJYQjYZl4FfSC0XbY3q9vDb0t2HNJmiWjaCZuynWdFE2W9JhJGnZvoVZjEHUn2Oc9b7On2N9YGEcesxo45QnwoThrIPCRlqcs-o49UtAxy-d4hDlzPwNdHlWXW_GAwTv9ynTM4lVgFYJrEMPoUfxP19sXCOs0pzy_wfQmPRF-sr__3JWXlOh6jtNT_weFl-EaWBrYgWpdXqgtBgLiSkY2lvhE9GCgbHHPzOEBjHjMWlLN9OKBl0YLag2DjFZVa7naGJO0IVx_jrPSLLiYzAoTSqnK9OsNnNYoy_gag.jpg" width="400"><br>
 
@@ -121,7 +232,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn1.telesco.pe/file/F8ARwItN2DuxoPGrYluy2y1Ehk8R_J5Ss9vuGjkFnHwvEWTYXIskoubVe0oSWGNHCHQA2QVOEv6MkxEoqNipY2xhZM5-diH6CRTeAYQo_e__B_7C6ub07BV5xA9f-2NR5qBK_6DvlzdfWLyRFCl5JPmzZrlPk-zSNEmDttzbjvh2hP9lsBvwYy5nPcWvYxjwCZPENFMWtu48MPADVrz1tkyxkDfM3SiTnGzn32CzwayH7pzaJsKPA5Ac9YYFu2L_vyZr9LAqgUWMTLbHlAXqsH79ezJV1tfWkJP4SsOPWlZCvxYBkcPazvaQh5CrRtGg7MZCyo5lyJ1fY_D7LXPj2Q.jpg" width="400"><br>
 
@@ -138,7 +249,7 @@ mb_ghalibaf
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn1.telesco.pe/file/KsUj1L8t9W7rsoUv--y2F8KEqZodjmtbkSwGzO5I8mn_kKKxTF_eMDhDPp_Y9Zbpf_9vjLE19FOjKKeaj-1aPI0J1mVEWE7T9FWxgBYuzKlQ7p4Vp8q8QvyIEu8Zvy1KhzBXQ2zV83ccs07eoVbSm_R2MLiQtbRrxucXy_3FE0Sk58-X4tMUPTCIveLlHyIjYce3uhhDu1xiRrqppwU86120ibmVk-uhOm1GbeIG-VxVy7uArxGdizA8SPJgimIGnNR0Q-xewY4dVnFLZIxOSXipgZaafK6Wv--OBNCanRMggb6xqcPIzFtZBT4N2zlwszZ0WaKVEGmZovZ0ck5nFA.jpg" width="400"><br>
 
@@ -158,7 +269,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn1.telesco.pe/file/TXsmDhodT6bQ7pJz4mOnhnZW6JeBvZFGxgp3MsYtLEMoHv9muQSYZViMi7Hx2yKCq2lhoBUheljvpTVCVxsZGDeRF7cFB7Tc_aYJnHjPoXvsrlsjGP2yPf_g8mzOrYR7c95VWipTn_Q05c8C57wzHJwVzCD-wra88etgJ3vOnHraZMOjU0TA-k_fcJcQPlSoLtztejo-I7ZxiDS2Ny5yWB4_dnz-BVp3wQ3aELQGm0hRLQUzq5oXEoN9Nvtb92sAyRtyUeST7xDDCtcN9FFslMIuSkIw-P5v8VJztMvxgrP58Z82D_3BbdQCoB6MofeSM6fsjLjtQRSpEwr-n7DCMg.jpg" width="400"><br>
 
@@ -183,7 +294,7 @@ VahidAfLine
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn1.telesco.pe/file/M0hTVGzhAom7OQxwSBTnc6-D0bZJ1UD9RuQboj38Ew9EDA961NsTKyUlYCCwkKtUFz-Nmlf0pOgnIJBEuq56V3puBONbJyljjwf9ZxzUBKSXDkkgXrnocF1F7q1QdiwQo1igLo7b2n2T5G0a997q63kyW2Xo-Hm_sBs7JxCsn7w0gd0GI2QEsrUEFjf_jCH2fUt_KwbMkS8Iwmf6bwd4Sok3HPIgBWTJjlj7g_BYpCqUlBqysUigFyIuFP3uOVjFcXfqEYdPTLBeVdFVp96ou66YPeTjhrvVkQMJWvKvXayoRR1D5Mtg5m9wUyhSabi9itG-HXa5ttGTn5JkPz7vWA.jpg" width="400"><br>
 
@@ -199,7 +310,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 
 
@@ -218,7 +329,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-10 00:55:25
+###### 🔵 Updated at: 2026-06-10 02:29:17
 
 <img src="https://cdn4.telesco.pe/file/Ta6C1AhFROjynFropgZs9oidjj_ho5xYptgdJw5AEveRb9tCIpPe0EU2DkymfTAwwn_69gTAvuT0TzuKw9FOLuAg5ea9bAT1tU6E2HPz7BbIiZ1vh6Hc0mRTVm_dfV0k4qXwpx99r7a4ePl3huCoijs83CU2AnllGoYXUt13oyfheoGMLG0Vacrw5dgY5BYDKUo0fVpIy6AZpva3xRUBZBVLv7kLHPMf0tS5_WhU1gzElDxw8E_R21u9qvp8ovrrhgwnRd_m93ute_SlGjYprX_IrKrOC5yqsBXZnurMgghQH1b8TrOTZIJCHeEUQS624oXtco7TNVOHMsyQ7UEp2g.jpg" width="400"><br>
 
@@ -232,72 +343,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76097)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 00:55:25
-
-<img src="https://cdn1.telesco.pe/file/oHYNSaIK4Qi7SL7U8RPx134nvMMZMI9TYQ-rFfid9o7FAWCRhy464lZGl-dVZfSsu4z3JWPXLbZqFyMnGLuc0CrtKLckgpI-nUtDjJSLjRyMBJnJfCD1XHVvrWsJk1KMSuxiwmonGRVWyDLlwtDKZMBKYKcbB0aKp-y_vhroVIr1E0ZLh_lC9j2PlNf7lJ9d6vM-IgAGr6QuFRkISYDBg0p_rAMrTlQDyoxJ7JVo6S2-Lx0LPTZflCavhL4OFJR2yHYKYFZybGD5D1EQLopSeguWST-qlefNypAjfXsMrV-eKN2Q8v8KHL7wkDZrudo1eExB6wJDxvNz3MrffPhm0g.jpg" width="400"><br>
-
-ستاد فرماندهی مرکزی آمریکا، سنتکام، در بیانیه‌ای اعلام کرد دو خدمه یک فروند بالگرد تهاجمی «ای‌اچ-۶۴ آپاچی» ارتش آمریکا که در نزدیکی سواحل عمان دچار سانحه شده بود، توسط نیروهای آمریکایی نجات یافته‌اند.
-بر اساس بیانیه سنتکام، این حادثه ساعت ۷:۳۳ عصر به وقت شرق آمریکا در روز ۱۸ خرداد ۱۴۰۵ رخ داد. این بالگرد در زمان وقوع سانحه در حال گشت‌زنی بر فراز آب‌های منطقه بود.
-سنتکام اعلام کرد دو نظامی حاضر در این بالگرد ظرف حدود دو ساعت نجات یافتند و در وضعیت پایدار قرار دارند. این نهاد همچنین افزود که علت وقوع حادثه همچنان تحت بررسی است.
-یک مقام آمریکایی به شبکه ای‌بی‌سی گفت دو خلبان این بالگرد پس از سقوط در آب، توسط یک شناور سطحی بدون سرنشین یا پهپاد دریایی از آب گرفته شده و به خشکی منتقل شدند.
-به گفته این مقام، پهپاد دریایی مورد استفاده در این عملیات طراحی مشابه یک قایق تندرو داشته است.
-@
-VahidHeadline
-هنوز مشخص نیست که آیا این هلیکوپتر بر اثر آتش نیروهای ایرانی سرنگون شده، دچار نقص فنی شده یا با مشکل دیگری مواجه بوده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76096)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 00:55:25
-
-<img src="https://cdn1.telesco.pe/file/EgNZVczGrfeD0pGCHJgXFYtaMwvri-F9fyjY_DBzUBW6AkGnKaNCaAoh3kQEAR3QSqbxqrzKE_wQT0bsv01pn20eTrBC--hTM70EoKWtr04FzfZMIy1UDNQCqmOizcf9PdDVZZxVfjoqK1BTzQnqkrA8OhkdVeQ06Px77xoQg37gcYKS7-IUCPwPrIbOtQniAXQ4TOrZD71WQq6kldi2ifXRQp42agGkcaIXafU62SKZ9WyQjoQaA_jQ6Y70ed_4r5P9daSbPV0c9AVcR7Zl-twfVcbQoM_n_eJs-hiQAtwNAbuC64afKtXUmBTJf8nvzZzTSLX2xhnE2VHtqjFwRw.jpg" width="400"><br>
-
-پس از برقراری تدریجی دسترسی به اینترنت در ایران، ویدیویی در شبکه‌های اجتماعی منتشر شده است که فرزند جاویدنام نسترن زارع‌منش را در حالی نشان می‌دهد که پشت پیانو نشسته و هم‌زمان با نواختن ملودی، یاد مادرش را گرامی می‌دارد.
-نسترن زارع‌منش، ۳۹ ساله و مادر دو فرزند ۱۰ و ۱۵ ساله، ساکن تهران بود که ۱۸ دی ۱۴۰۴ در جریان انقلاب ملی با شلیک گلوله نیروهای سرکوبگر جمهوری اسلامی به سینه و گلو جان خود را از دست داد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76092)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 00:55:25
-
-<img src="https://cdn1.telesco.pe/file/PrfAT11O5ozS61N8kEYAHnvDNbIxv_-hKesRf-KQHxgAFprPI4wwllULLB9-iMCHiDMvgJ-8ndyyerbNkhPiimmYWaMUBNauiqIdbpENsh91X_8QiAoFMfFxtFIpCvr61B31pHoT_cQZUaSKuMlg6CEqJhgBE658r32FOCLL1v0c_5UceMk09MMDWVHr03UF6-Oj6jZJeR5idhLCFjodZwMzoLiS6pvFscO1Vb0dctoe4QtTDfJt5ZBHYkVa5a6yE9XQjP3e2LevNMjb5Rz9FzK0Iy8ULFMIdd0PPTQ7cpn3VVDjJkpsGgvTdjywfKpHPaAamf1ptP6ma0YBQvY5eg.jpg" width="400"><br>
-
-جی دی ونس، معاون ترامپ، در مصاحبه با فاکس‌نیوز ابراز اطمینان کرد آمریکا و جمهوری اسلامی می‌توانند درباره پرونده هسته‌ای به یک توافق بلندمدت برسند.
-او گفت صرف‌نظر از اینکه اسرائیل از این موضوع خوشش بیاید یا نه، چنین توافقی به نفع آمریکا است و واشینگتن به پیگیری آن ادامه می‌دهد.
-ونس با اشاره به نگرانی درباره اینکه تهران ممکن است در حال بازی دادن واشینگتن باشد، گفت: یکی از مهم‌ترین عوامل موفقیت این توافق نهایی این نیست که جمهوری اسلامی چه چیزی روی کاغذ می‌نویسد، بلکه این است که آیا واقعا به برخی از الزامات توافقی که به آن می‌رسیم پایبند می‌ماند یا نه.
-او با تاکید بر اینکه آمریکا تعهد جمهوری اسلامی به چنین توافقی را در بلندمدت راستی‌آزمایی خواهد کرد، گفت
-:
-بیایید صادق باشیم. ایرانی‌ها نمی‌خواهند این جنگ ادامه پیدا کند. ادامه جنگ به نفع آن‌ها نیست. آن‌ها پای میز مذاکره آمده‌اند و پیشنهادهای واقعی را مطرح می‌کنند. اگر به این توافق برسیم، یک موفقیت بزرگ برای مردم آمریکا خواهد بود.
-@
-VahidOOnLine
-جی دی ونس در گفتگو با شبکه فاکس نیوز: موضع رییس‌جمهوری کاملا روشن بوده است. اسرائیل اهداف خاص خود را دارد، اما هدف اصلی آمریکا در قبال ایران این است که اطمینان حاصل شود ایران به سلاح هسته‌ای دست پیدا نمی‌کند
-جی دی ونس: در ماه‌های گذشته و در واقع طی حدود یک سال و نیم اخیر، شرایطی ایجاد شده که رییس‌جمهوری معتقد است ــ و من هم فکر می‌کنم درست می‌گوید ــ می‌توان به یک راه‌حل بلندمدت برای مسئله هسته‌ای ایران دست یافت
-ونس: ممکن است اسرائیل از چنین توافقی خوشش بیاید یا خوشش نیاید، اما ما معتقدیم این مسیر به نفع ایالات متحده آمریکا است.
-به همین دلیل به دنبال آن خواهیم رفت، زیرا این همان چیزی است که رییس‌جمهوری آمریکا برای انجام آن انتخاب شده و همان کاری است که برای خدمت به مردم آمریکا باید انجام دهیم
-IranIntlbrk
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76091)
 
 ---
 
