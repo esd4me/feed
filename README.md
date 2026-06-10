@@ -3,7 +3,249 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-10 15:29:52
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn4.telesco.pe/file/DrGIoH_NE4Sw2yNIUTcP5HrZkUXrrWY9YslvLYjT3c7BIoRnjyM6rC_Fn1m7Yo_oFf5F0OmkMpV-yZG3k0bQMve40nrQGdfRAQEi31vjIh2A0CBB2HbztG8Pg4anObr-OBsRf8sIea5akK8Jodhcaye1Yn1L2rE4JUD0apTH-mUjNyFsD8Qe-jDrSUCw_jJNhxc8r6K5cw-rbSjp0stgMCNOyhFef_xDDCEC_hleikqKgpYLICQ_xjnCX-JGn5DoOJ6iFG4zzsrSM4ztAgIJyawmJ_qI-puFyu90wZHe2ApDBYbu8GnMKilDker60lXFA0Q8pQE0m3vQu6QZ9EWFfg.jpg" width="400"><br>
+
+ایالات متحده، بریتانیا و ۲۰ کشور دیگر در بیانیه‌ای مشترک تاکید کردند که نهادهای امنیتی جمهوری اسلامی ایران باید به توطئه‌های خود برای ترور، ربودن و آزار و اذیت افراد در اروپا، آمریکای شمالی و استرالیا پایان دهند.
+وزارت امور خارجه بریتانیا روز چهارشنبه ۲۰ خرداد اعلام کرد که سازمان اطلاعات سپاه پاسداران، نیروی قدس و وزارت اطلاعات ایران، مخالفان سیاسی، روزنامه‌نگاران و همچنین جوامع و منافع یهودی و اسرائیلی را هدف قرار داده‌اند. این کشورها همچنین حملات منتسب به گروهی موسوم به «حرکت اصحاب الیمین الاسلامیه» را محکوم کردند.
+در این بیانیه آمده است: «ما در عزم خود برای محافظت از کشورها و شهروندانمان در برابر این تهدیدات متحد هستیم. جمهوری اسلامی ایران باید فورا این اقدامات را متوقف کند.»
+این بیانیه به امضای کشورهای آلبانی، استرالیا، بلژیک، بلغارستان، کانادا، جمهوری چک، دانمارک، استونی، فرانسه، فنلاند، آلمان، ایرلند، لتونی، لیتوانی، هلند، نیوزیلند، مقدونیه شمالی، نروژ، پرتغال و سوئد رسیده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76147)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn4.telesco.pe/file/qFDRVQWNxl2jdbvb_dWFX64whUG3TPKz_mMhnAEosIiJO0j_JSzdjlMuhx1mImqrVn3EdteGdUpqP7t-Cw2SGnuualBcUeNetsMxqKwScc_iilOFiRaHsGliMFaaa_M3BFUuMCtv-6YlwkCjBQ2lm3b1HffpG2L-Zx1r4LndyVyuaTEUd3wwmPwcf3AjLqZNAHXP84JbKbDDnOuDDusxOIBPvVOBbJA26Sezi5BARmkDPAK_pFlU65E4qZVo-blBlqqtEvvGLJnQfqGzCO1-BTHG5TyGUYy_SBz9x3k_ER6iIBtYVccUdtbFn9sgRpirPeNNfU22oM-VN8cZeROwRA.jpg" width="400"><br>
+
+شورای حکام آژانس بین‌المللی انرژی اتمی روز چهارشنبه قطعنامه‌ای با حمایت آمریکا را تصویب کرد که از ایران می‌خواهد ذخایر باقی‌مانده اورانیوم غنی‌شده خود را اعلام کند و به بازرسان اجازه دهد آنها را راستی‌آزمایی کنند.
+به گزارش خبرگزاری رویترز، دیپلمات‌های حاضر در نشست غیرعلنی اعلام کردند که این قطعنامه که از سوی ایالات متحده، بریتانیا، فرانسه و آلمان ارائه شده بود، با ۲۱ رأی موافق، ۳ رأی مخالف و ۱۰ رأی ممتنع به تصویب رسید.
+به گفته این دیپلمات‌ها، روسیه، چین و نیجر به این قطعنامه رأی مخالف دادند. آنها همچنین افزودند که ونزوئلا اجازه شرکت در رأی‌گیری را نداشت.
+هیئت نمایندگی ایران در سازمان ملل و سایر سازمان‌های بین‌المللی در وین در واکنش به تصویب این قطعنامه، آن را «سیاسی» و «عاری از حرفه‌ای‌گری مورد انتظار از یک نهاد فنی» خواند.
+در بیانیه این هیئت نمایندگی آمده است که تهران «از حقوق مسلم خود، از جمله در پاسخ به این قطعنامه ناقص، کوتاهی نخواهد کرد.»
+تصویب این قطعنامه می‌تواند مذاکرات جاری بین ایران و آمریکا برای رسیدن به توافق صلح را پیچیده‌تر کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76146)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn4.telesco.pe/file/ooBMXMmMnH5Z86N8fOAbu3KRF9jcUf2t2eZYaoZFUmwFV5BFG2BnZTPQ8BhRtggTBw21OBCT7hghFyIES3VlrNxecw3TljhaiazJcGZsDnp3ilqVUhz-urPSA-eiYX4PWfFEgtGPG7tBkdhg_wNazLseX0aGGMwtQhbniiCJXI2AYOUUme4ZhWFZNBulCMJ9p2mI32brAkAJ9ho77s24_8X0rj9xnoko2H2rfxm_H9Zb-x6MYjYF1EPfdH9krvcMy7lZ5T7ESx51eRDkjDQ8upQ7HBPXxugYTn50cF2_WtZg-sLYsCUknNFcqs3W1H2LeoZDG3hVzjEteCqjxQEqzQ.jpg" width="400"><br>
+
+♦️
+دونالد ترامپ، رئیس‌جمهوری آمریکا در گفتگو با شبکه فاکس‌نیوز اعلام کرد که دلیل سقوط روز دوشنبه بالگرد آپاچی آمریکا در نزدیکی تنگه هرمز، یک پهپاد ایرانی بوده که در بدنه این پرنده نظامی و در فضای میان دو خدمه آن گیر کرده بود.
+به گزارش فاکس‌نیوز و به نقل از گفتگوی تلفنی ترامپ با تری اینگست، خبرنگار این شبکه در روز چهارشنبه، این بالگرد آپاچی در ارتفاع پایین در حال پرواز بوده که پهپاد ایرانی بدون منفجر شدن، درون این بالگرد جنگنده گیر می‌کند. بر اساس این گزارش، خلبانان پس از این اتفاق بالگرد را به همراه پهپادی که درون آن بوده، به پایین هدایت کرده و در آب افتاده‌اند.
+در پی این حادثه در شامگاه دوشنبه، فرماندهی مرکزی آمریکا (سنتکام) اعلام کرد که «حملات دفاع مشروع» را علیه اهدافی در ایران انجام داده است؛ حملاتی که در ادامه منجر به پاسخ تلافی‌جویانه ایران و هدف قرار گرفتن تأسیسات نظامی آمریکا در سراسر خلیج فارس شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76145)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn4.telesco.pe/file/OevLYHbZUDWXRf1dFXyP93-w9JoA2ojX94GEVLjcp63wSkoUM3RQpDyk0srEk7YrGOZYZmZtSdjySwVrVqQ6O1ip5xBNIdg29Xr2MaliCbfcgyQUaQSrcEYlU1rqCyGnhfAgtNiRVFCZtW00uzFlgZA4b5t8wUVW_-wLryxStCFosfG1ftXKdbj6mV2Mni2v_VaFnj4nUE9G0gVJv43In2X0CnZhZF1Ep2isHjGxaeb39M5wV3aaAdF-ZuUtxdT2Wy7K0REfICyX26JKRJwX1aNDptecWozyWBZHA8DkKOD_N07YChmS_IC1y9ZqswBV01ks8JY1lcty3jkLoF-E9A.jpg" width="400"><br>
+
+رسانه‌های مختلف به نقل از دیپلمات‌ها از سفر یک گروه مذاکره کننده قطری به تهران در روز چهارشنبه برای رسیدگی به اختلافات باقی‌مانده بین ایالات متحده و ایران خبر دادند.
+خبرگزاری فرانسه به نقل از دیپلماتی آگاه به این سفر نوشت که این گروه مذاکره کننده قطری «پس از مشورت با ایالات متحده» به تهران سفر کرده تا در دیدار با مقام‌های ایران «شکاف‌های باقی‌مانده را پر کنند.»
+از زمان آتش‌بس میان ایران و آمریکا و اسرائیل، پاکستان به عنوان میانجی اصلی مذاکرات صلح میان ایران و آمریکا را هدایت می‌کرد اما در هفته‌های اخیر قطر نیز به عنوان میانجی دیگر تلاش کرده تا امکان برقرای تفاهمی میان ایران و آمریکا را فراهم کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76144)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn1.telesco.pe/file/OqTnbWy4pmcVsdMU8ClpA2ilAh2hNQ2TT_gTiRajASZF8PLW43x6CfhWVvGYGlxs1ZOD_MCkNOOg7GzZtpBFaYrq5yasCl8omcrg7TlCDB8s5HaysP2cxhGW9aflxgvscVYmEFx05psg2EKRSFCY0IzbjwB4KSAMuXC9fF7veoiwcVhdh3v1dAycwdGe8G4q8tWM5-VlRk_-hNO8Ho7BHCu1h-UIiUZLU6bFvrOaSGX20vNw1QjFiGgJQnS1vY1VmIdXAZAj3NsRUdWiTcskRJEZp1v1EFb2udZAFBwyDAt1Snzt-hy9Sq-ou2OukRFPq4bgQuNB3DSSvhpZ4CN5NA.jpg" width="400"><br>
+
+🔻
+ترامپ: ممکن است به‌زودی دستور حمله به نیروگاه‌ها و پل‌ها در ایران را صادر کنم
+دونالد ترامپ، رییس‌جمهوری آمریکا، در مصاحبه با فاکس‌نیوز گفت ممکن است به‌زودی دستور حملات جدید به نیروگاه‌ها و پل‌ها در ایران را صادر کند.
+او دلیل این موضوع را طولانی شدن روند مذاکرات از سوی جمهوری اسلامی عنوان کرد و افزود تهران دستیابی به توافق را بیش از حد به تاخیر انداخته است.
+ترامپ تاکید کرد صدور دستور حملات جدید نزدیک است و گفت اگر روند مذاکرات تغییر نکند، تصمیم‌های تازه‌ای اتخاذ خواهد شد. او افزود ۵۵ درصد از سامانه‌های راداری که جمهوری اسلامی در دوران آتش‌بس بازسازی کرده بود، در حملات جدید آمریکا نابود شد.
+🔻
+دونالد ترامپ: محاصره دریایی جمهوری اسلامی، یک دیوار فولادی است
+دونالد ترامپ با انتشار پیامی در شبکه اجتماعی تروت سوشال، محاصره دریایی بنادر جنوبی ایران را کارآمد خواند و آن را به یک «دیوار فولادی» تشبیه کرد.
+در این پیام آمده است: «رسانه‌های جعلی از گزارش میزان اثربخشی محاصره دریایی آمریکا خودداری می‌کنند. این موفق‌ترین محاصره در تاریخ جنگ‌های دریایی است.»
+رییس‌جمهوری آمریکا ادامه داد: «ایران هیچ داد و ستدی انجام نمی‌دهد، به نیروهای نظامی خود حقوق نمی‌دهد، بدهی‌هایش را تسویه نمی‌کند و به‌سرعت در حال تبدیل شدن به یک کشور شکست‌خورده است.»
+🔻
+ترامپ: حمله بامداد چهارشنبه جمهوری اسلامی به بالگرد آپاچی ناکام ماند
+دونالد ترامپ، رییس‌جمهوری آمریکا، در مصاحبه با فاکس‌نیوز گفت در حمله بامداد چهارشنبه جمهوری اسلامی، یک پهپاد ایرانی به یک بالگرد آپاچی اصابت کرد اما منفجر نشد.
+او افزود این پهپاد میان دو خلبان گیر کرد و با وجود برخورد، انفجاری رخ نداد.
+ترامپ گفت خلبانان بالگرد را در دریا فرود آوردند و برای نخستین بار در تاریخ نظامی آمریکا، به وسیله یک شناور دریایی بدون سرنشین نجات پیدا کردند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76143)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn1.telesco.pe/file/ZpehcRPMobECo7xeii9Ka78DG-_0vYzLXHRg8Ht2VIm2wldzo6lMiEPWEMcHGcks7j6MH_xgRVsV2wIF1GxI8r5V9Tit4PWNsmdNoQqAzcWwCCwrYgNNXeMTMx0O4RBilloYkzAR8TUnoFIy2scrseQXrWV2jPQSPB-KbomgGKRQBVGDHSzjiO6k6MZxNH2UyLSL2DhGe3_gEJuxJ3G9-VlkPNADfZ9TNkPpiKmDys62VK5DM1pc-aVTx_nei6LPizd-9dSyJop_vfTqFoC1CPIvNKAjxdBTrfBC0GufOLOMp4po_Gr5P2Dhod84jgGaKxdtYphTcSjvecU7eXgmMA.jpg" width="400"><br>
+
+ارتش اسرائیل ظهر چهارشنبه ۲۰ خردادماه، ساعاتی پس از صدور هشدار تخلیه برای ساکنان شهر صور و مناطق اطراف آن، این شهر در جنوب لبنان را بمباران کرد.
+@
+VahidOOnLine
+بنیامین نتانیاهو در واکنش به محکومیت حملات اسرائیل در منطقه از سوی رجب طیب اردوغان در بیانیه‌ای گفت: دولت اسرائیل و ارتش اسرائیل، که اخلاقی‌ترین ارتش جهان است، به اقدام قاطع علیه ایران و نیروهای نیابتی آن که خاورمیانه و سراسر جهان را تهدید می‌کنند، ادامه خواهند داد.
+نخست‌وزیر اسرائیل در این بیانیه گفت: دیکتاتور یهودستیز اردوغان که در حال نسل‌کشی علیه کردهاست، از سازمان «تروریستی» حماس حمایت می‌کند، مردم خود را سرکوب می‌کند و مخالفان سیاسی را زندانی می‌کند، آخرین کسی است که می‌تواند برای اسرائیل موعظه اخلاقی کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76141)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+
+
+رئیس‌جمهور ایالات متحده روز چهارشنبه ۲۰ خرداد گفت که ایران برای رسیدن به توافقی که می‌توانست برایش بسیار خوب باشد بیش از حد تعلل کرد و حالا باید بهای آن را بپردازد.
+دونالد ترامپ در پیامی در شبکه اجتماعی خود، تروث سوشال، نوشت: «ارتش ایران کاملاً در وضعیت آشفته‌ای قرار دارد. بخش زیادی از آن، مانند نیروی دریایی و نیروی هوایی، عملاً دیگر وجود ندارد؛ آن‌ها کاملاً شکست خورده‌اند».
+او افزود: «ایران فقط حرف می‌زند و عمل نمی‌کند. قلدر خاورمیانه مُرده است!!! آن‌ها برای رسیدن به توافقی که می‌توانست برایشان بسیار خوب باشد بیش از حد تعلل کردند و حالا باید بهای آن را بپردازند!!!»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76139)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn4.telesco.pe/file/Ud0VJBpc0sUAoI_o5jMAsIa9-wB9sspzIsDAlV2zTo63DdqC_wMDn_jTH-llNTCAGhgFBlh9K6umQa5WhMatd5fBEAss0VGF0PTT2-gvZ9-uaS7Z5LqErBOYXHrBRFcv3fl4apYdBOGuQqa6UiNBkSvRKmUUI1QzEcJtDxZSCElR2zowby8IWAjgaGbIKx1M9xO5lmNF9msImBkvLdWFo9KRb1f97tynlAdEw7Gj2BdDHaWljpqvnvg0BzUOUQ3ZmJZhURgpljrHPr4EdeWvkBsduBGMr6yYNXcgVuseOrInRy9ChcH7AjHTuIyoMFcbIa2-4z-wq9yh3lD8Taa4Ew.jpg" width="400"><br>
+
+سخنگوی وزارت خارجه ایران درباره تأثیر درگیری‌های نظامی اخیر بر مذاکرات با آمریکا گفت ««باید بررسی شود، دیپلماسی و میدان دو امر جدا از هم نبوده و در امتداد و عرض یکدیگر» هستند.
+اسماعیل بقائی روز چهارشنبه ۲۰ خرداد دربارهٔ آخرین وضعیت مذاکرات هم گفت: «با توجه به تحولات دیشب باید بررسی کنیم. روند دیپلماتیک در خلأ اتفاق نمی‌افتد و برای پیشبرد هر فرایند دیپلماتیکی نیازمند فضای حداقلی هستید تا بتوان روند جاری را پیش برد.»
+شب گذشته ارتش ایالات متحده، در واکنش به سرنگونی یک بالگرد آمریکایی در سواحل عمان، حملاتی را به جنوب ایران انجام داد و ایران نیز در واکنش به شلیک موشک به برخی کشورهای منطقه اقدام کرد.
+دونالد ترامپ که پیشتر بارها از نزدیک بودن توافق خبر داده بود، هنگام انجام عملیات آمریکا در جنوب ایران گفت: «ما توافقی بسیار خوب داشتیم و احتمالاً همچنان خواهیم داشت.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76138)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn4.telesco.pe/file/kY5LvC-YfsOaZJinK-BsTa0t0ffOZAaVyVPGh0McTAkygAJHdGp1PDRyNjLDEhXz_QXqPAgj5dyDcZ_zSfvgrLpvqwV09svHbaAXvDTpBYS_oeIk_lSkNEAdLj9iT3oQlEYCZjKMBvUj3QIQkVa1h0oHVQzz-n7A9J69Qo-aab3q0Lg4ChYbe__c_k0J88dtaCuczVHJHviQYMeGUtDpU1s0h8KHvRh_TNUf2I5eKZOZbV3M4sYJufY0Sp742KZo0Yc8lqMwUUv1QyznkCCNsdfkhjD5PyUb3SbvqmNuAgl9pA9VaJAg141fLo65Z2r-FNSFFKvAZPVdWtgNM0UQYQ.jpg" width="400"><br>
+
+امارات متحده عربی روز چهارشنبه، حملات موشکی و پهپادی جمهوری اسلامی به بحرین، کویت و اردن را به‌شدت محکوم کرد.
+وزارت خارجه امارات در بیانیه‌ای این حملات را «تروریستی» و «بی‌دلیل» خواند و اعلام کرد که هدف قرار دادن پادشاهی بحرین، دولت کویت و پادشاهی اردن هاشمی، نقض آشکار حاکمیت این سه کشور و تهدیدی علیه امنیت و ثبات آن‌هاست.
+در این بیانیه همچنین آمده است که امارات همبستگی کامل خود را با بحرین، کویت و اردن اعلام می‌کند و از همه اقداماتی که این کشورها برای حفاظت از امنیت و ثبات خود انجام دهند، حمایت می‌کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76137)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn1.telesco.pe/file/ivZe2g0vX-gxKCkIlSH3z4cOT5K7aVmxy-f07HzoZeaFmaxY9xNMSDPs9-IIKjICf1GYr58HZbXTdD-QIHGd06SreEmiCd9jYHpy2IjhpL3wnMUVm165XALyitDsJhSi417LzJLpuUqQ9Hnffo1MBOh0-lzpjl1Mn3MgUxAeaVtCbxbaUJfci8x00B9ayp9DkkoxgT4rnJpoBxNBku5ZqKclSTMF_f-jlgoUVvGCMkPIoo-iUVNVJxZoUWAY49rdiFmGSsk3a02XcVAzkaVjBFWJwOFwRltGM5ldcIFw2Ev6C7bkMm87S3_Icut5Hy-_iEN1xvvL5gpvGBntH-mVJA.jpg" width="400"><br>
+
+انجمن اسلامی دانشجویان دانشگاه صنعتی شریف با صدور اطلاعیه ‌ای از اعمال نخستین حکم اخراج یک دانشجو توسط شورای انضباطی این دانشگاه خبر داد.
+به این ترتیب، رضا دالمن، دانشجوی کارشناسی ارشد مهندسی کامپیوتر، به اخراج و محرومیت از تحصیل در تمام دانشگاه‌ها به مدت چهار سال محکوم شده است.
+انجمن اسلامی دانشجویان دانشگاه صنعتی شریف اعلام کرد که آقای دالمن با وجود تبرئه از سوی دستگاه قضایی، از سوی شورای انضباطی دانشگاه با این حکم سنگین روبه‌رو شده است.
+این انجمن یادآور شد که حکم اخراج دانشجوی فوق برای تأیید به وزارت علوم ارسال و در روزهای اخیر نیز حداقل برای یک دانشجوی دیگر نیز حکم «بدوی اخراج» صادر شده است.
+رضا دالمن، در ۲۸ اسفند سال ۱۴۰۴ و در اوج جنگ ۴۰ روزه از سوی نهادهای امنیتی بازداشت و پس از یک ماه با قرار وثیقه آزاد شده بود.
+@
+VahidHeadline
+پیش‌تر گزارش‌هایی منتشر شده بود که یکی از دلایل بازداشت او، آویختن یک عروسک موش از درختی در محوطه دانشگاه عنوان شده بود؛ اقدامی که در فضای اعتراضی آن زمان، با اشاره به لقبی که برخی معترضان برای علی خامنه‌ای به‌کار می‌بردند، انجام شده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76135)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn4.telesco.pe/file/D5eljf5YqZ7cJnvn6nzUC60F0zyG-yApx6h9ARCzw9FF1erSufKLfa4BZQG8JzqIwElkzZqt08jOgVZaNZKLlwgs6h24eGXD6HfKY9syRVXD-HKhObHRKdmBw0vfaHwFJI7Ui27LiH5DQt0IOgNZBUXBup1g_nfxDfj7CfPPOp05KkpFIvsAHcyt-LFwMZDnGkGKCkTy_6hU7-Ys4Ug764XIr1LMecyntiUYzYX6o2V-ywU4VOx5-6qP8F9OvB5qJ3BO6vqVRFETB9GV5LCTJYY3OBVfIn8pysG2E4eYsJV9osdaHyoRn4xxsHa0hDH_m3Ew0NthEUNHddEuhIpJAg.jpg" width="400"><br>
+
+قوه قضائیه جمهوری اسلامی روز چهارشنبه ۲۰ خرداد خبر داد که صادق زیباکلام، استاد سابق دانشگاه تهران و فعال سیاسی، بازداشت شده است.
+خبرگزاری میزان، وابسته به دستگاه قضائی ایران، اعلام کرد که «قرار نظارت قضائی» بر آقای زیباکلام روز ۱۷ خرداد تشدید شده بود و به دلیل انجام مصاحبه‌ای جدید، علیه او اعلام جرم و سپس صبح امروز بازداشت شد.
+اعلام جرم روز ۱۷ خرداد در پی انتشار مصاحبه صادق زیباکلام با شبکه بریتانیایی «کانال ۴» رخ داد.
+این فعال و تحلیلگر سیاسی در این گفت‌وگو به زبان انگلیسی، علی خامنه‌ای، رهبر سابق جمهوری اسلامی، را «ستون فقرات تندروها» در ایران خواند و گفت او در طول مدت رهبری خود به مدت ۳۶ سال ایده‌هایی مانند «آمریکاستیزی، نابودی اسرائیل، حمایت از حماس و حزب‌الله» داشت.
+زیباکلام درباره مجتبی خامنه‌ای، رهبر جدید، نیز گفت تردید دارد او ایده‌های پدرش را داشته باشد و همچنین اعلام کرد که او نمی‌تواند قدرت و جایگاه رهبر سابق جمهوری اسلامی را به دست بیاورد.
+او در اردیبهشت ۱۴۰۳ در پی تشکیل سه پرونده قضائی بازداشت شده بود و تیر ماه همان سال به دلیل «ابتلا به بیماری سرطان» از زندان آزاد شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76134)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
+
+<img src="https://cdn4.telesco.pe/file/EKmDpVw894pCSBNO_uE3X57IQsTClLHyz7JC1E5JpCOPgReQgNUEUsAFd9tQev4da00vXxDjKE_UMpg8DvNfukQh0p9ZdYO2VEuA2-efbrn8Kl2oLJiYF3L44F9o2HNdnRA3iphOglV-3A4zf4jDM_qq96RoNuhRpptbHA-MmA9KGk7oBTZgbXpzU9iBallAjyTEsu5vgdwBsqONAXzKQMCJqg9RZw49CpzmlLJ8yXrv3PEfc2IpHgEij3PTquO9w15MYZ6uCCJ9vr7Z6WT9wCrSPqiqZHJ0LEliTjPVXEqEnE-QuRfGbdWRhEF17S6vxfIdWmAwLFAdlJoAQpXBGQ.jpg" width="400"><br>
+
+‏
+🔴
+«از آغاز سال ۲۰۲۶، بنیاد عبدالرحمن برومند دست‌کم ۷۱۱ مورد اعدام را در ایران ثبت کرده است. این آمار شامل دست‌کم ۶۶ مورد اعدام در ماه مه و ۱۸ مورد تنها در نه روز اول ماه جون است.
+‏
+@IranRights
+
+[View Post](https://t.me/VahidOnline/76133)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-10 19:26:08
 
 
 
@@ -53,7 +295,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-10 15:29:52
+###### 🔵 Updated at: 2026-06-10 19:26:08
 
 <img src="https://cdn4.telesco.pe/file/vdGP6mmtfx-60iH0S7MN-5lUjK-YDth49Qh3lyPl9-v36ObJiqL6mfyq6vPDOFxxmadvHOYUJT_LCPCNRMqoO9qE_ebqE6N5n3lGNCyyftDiHdnYzfWmaQ0ceygrgDxnbt_qdbH_mvZ3vB6EsbLJ7SVJ69jS9tdP6DoQ1Yn25uKFwcmOUnFx1S2GVnT-sSNYzdmDjRy8ed5k1e4xRzdL5tVBRpe38UQG_8t2v5ZLplxz69Zrx8jgRmwJ-SX4qNkOD2CMISPnGkS7XcF4DxTY2IH_bg4mLdUU3GhmwFLJa7PU_22cjWcNMH9ZUbo-bB8cFor6w_9F-v3t2rKI2m5asw.jpg" width="400"><br>
 
@@ -70,7 +312,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-10 15:29:52
+###### 🔵 Updated at: 2026-06-10 19:26:08
 
 <img src="https://cdn1.telesco.pe/file/omgBAO31N2F9eibAz5kIlmyubz3JTc30TCiUGjBIzZcMpizfjXwRdb6KMVUpNU3Fpj5CnkfQT9NhIorlD2ecBL5KhIjMLbjMBw0mR_JaBTqF9MeoFd2T7BzMb8FgpIXWDlvQla6lsZ0krR7u2Wabwy_p8wK5WVJm83Hc0oZqnqrmee54Z2RsV5ajKZ67txVmyv_-ztMQM919ZchRhzr_YluhpREFRSBzd8LSQhwtM0EAmKYHaZkStrH9PPd5BUKqBGr50DPzKR_B4zEJ2vPANVeeeSk1e3HsOSSjQeUZ0AIYXMZY7-IdXNLMi372J0LAx58xMAUrFcJJKOdWhvdmpA.jpg" width="400"><br>
 
@@ -90,7 +332,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-10 15:29:52
+###### 🔵 Updated at: 2026-06-10 19:26:08
 
 <img src="https://cdn1.telesco.pe/file/mmEIkHlkoLNrH6QWysJQ7giB0xcUYENFXv4jbor_ba4SJgYF9IDZW2lN2tKgntAT6fJv0YKpZbd28XNzn0goz4uQ2YHYzthR6H0OdxGHQjJu4vplWR3w86BX8n5nfVYASqbkK0rRcsdaWicOFWAOGLVdC6FbSH2BDaxt3n3HATuyYI5rE6bTpyvWF0VmmDOzn8d5LyvFyd964k-rOYy1pevfuMwzpz8tCWH_FTCRQspz_Enw35v43gjBX4Dgvpdih4XS6E-B66e9ib8wLgnmiQQJrfCFKCQesIrt9gn03ViOx2_txAQKsBNDsm4XI2yqb3rTc4ymGYxGu-s7CovcOA.jpg" width="400"><br>
 
@@ -109,7 +351,7 @@ moi_bahrain
 
 
 
-###### 🔵 Updated at: 2026-06-10 15:29:52
+###### 🔵 Updated at: 2026-06-10 19:26:08
 
 <img src="https://cdn1.telesco.pe/file/n3ejOe0R1FUWSV_rWT0iJjFf_hP9Y9rtEAq0AuxDeB0iGuJHMGzeHeqBmnj2M-zDSPO70StDz2o1LzmlOzevZMzMzbCL1XsUwGok86nlCO89jOdK6eGgDRIw0_czXdkPpMJzfDqZbVe1VWUM_kl7PnlYIoKIKtLvS_l8X7ERkroW0Qg0tF6UKW4blcXVczgZFyau9RLXbsP8i82lXdd3h4iSPIGY3OjZqNlpDNII7M_2Xy1bz_mE-wyAB_1yr1arz2rdb-xheXKy6CI6mKJx5tYUvyq5p0k7L2jCoWEnsjUTyN8EpPPF01n-4L9clVx3Eqiwti8jNSZXUmzTrCKVHA.jpg" width="400"><br>
 
@@ -125,7 +367,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-10 15:29:52
+###### 🔵 Updated at: 2026-06-10 19:26:08
 
 <img src="https://cdn4.telesco.pe/file/Nkendx6_btI-p2YnlIhJVkQJmB5EoYAIHgzvD4sfSCm2Rmfam6yD_9Y2SG5KysWa46fnuCHc7Q4UyyqVDmpXrESXaoN4bcAc1deHIJhXyFaa-npv9x0RHvZ_l7fp6MOAmsRRW9dQQbXcFqcrjcwHYXr1BLT3xEL1RwjT03Cj5t-PlrZYOxezZ7HFuzVeY1NNnKWamDu_n9d01ER7IwGtjkA7ImR0kCsmwdrXDBhp8LpdqeoOQirJzjTfe7wc7quMhAUrrgYqAlYZUbdwOss0Mbbghqt7Yisc-fl8sMGmGuaibtSBcPzNXS5RiLeOD8mnN78PzKlEnQT7QeH3TNAssw.jpg" width="400"><br>
 
@@ -137,302 +379,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76127)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-پیام‌های دریافتی تایید نشده:
-سلام آقا وحید  ساعت ۴و۳۶ دقیقه
-خمین ۳ تا موشک پرتاب شد
-همین الان پنج تا موشک از خمین شلیک شد ساعت ۴:۳۵
-سلام وحید جان  همین الان ازنا لرستان زدن
-ساعت4:37
-ساعت ۴:۳۵ از خمین چهارتا موشک زدن
-از خمین حدود ۴ تا موشک فرستادنننن همین الان
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76126)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-<img src="https://cdn1.telesco.pe/file/iB2H3EtH4wMjuC-SRHszUl8Psdu7WcMzQwr2x64tw3lxGmVt7Rw9tNI_TPyhR31NWtx1BMUv3tHIc2xEV-k0AC7zPTfhf73-b5TfabAJXBXOcki5PLCPqgqrgrISi6sUz894HskqOS5zbfrprjqrpMokwK15nLogeTJJsj6fAFxgCzVRKYPfHHCfRg-SjfHqAzzjAqaa2Gjc4we92DaDojcD1YJ6Mtdx4OrvJkVgC9YbtucxGqggoFch4Wri1YAIgqm1Vr7C-1UtmbJxgGl_zFqNiPtncaqwKTwo92XvM4d0Gc29naG7PwTtgGXlYfmllJ4gBdmpzLL10LMUZdo-mw.jpg" width="400"><br>
-
-"
-آمریکا حملات خود را در پاسخ به حمله ایران به آپاچی تکمیل کرد
-"
-پست سنتکام، ترجمه ماشین:
-تامپا، فلوریدا — نیروهای فرماندهی مرکزی ایالات متحده، سنتکام، روز ۹ ژوئن به دستور فرمانده کل قوا، حملات دفاعی خود علیه ایران را در پاسخ به سرنگونی هلیکوپتر آپاچی ارتش آمریکا در روز گذشته تکمیل کردند.
-نیروهای سنتکام با استفاده از مهمات هدایت‌شونده دقیق شلیک‌شده از جنگنده‌های نیروی هوایی و نیروی دریایی آمریکا، سامانه‌های پدافند هوایی ایران، ایستگاه‌های کنترل زمینی و سایت‌های راداری نظارتی در نزدیکی تنگه هرمز را هدف قرار دادند.
-این عملیات پاسخی متناسب به حملات اخیر علیه نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال عبور از آب‌های منطقه بود.
-نیروهای آمریکایی همچنان هوشیار و در موضع آمادگی برای دفاع در برابر تجاوزات توجیه‌ناپذیر ایران باقی می‌مانند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76125)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-خبرگزاری فارس، وابسته به سپاه:
-"
-سپاه پاسداران: یک فروند پهپاد MQ9 دشمن رهگیری و منهدم شد
-در جریان درگیری‌های هوایی جاری در تنگۀ‌هرمز یک فروند پهپاد MQ9 که از آسمان شمال خلیج‌فارس قصد نزدیک شدن و مداخله در صحنۀ نبرد را داشت، در آسمان شهرستان جم استان بوشهر مورد اصابت آتش رزمندگان قهرمان پدافند هوایی نوین سپاه قرار گرفت و منهدم شد."
-‌
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76124)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-صدا و سیما:  دو انفجار در بندر عباس
-هنوز درباره محل دقیق انفجارها و جزئیات اصابت‌های احتمالی، اطلاعات دقیقی در دسترس نیست.
-دو‌ مخزن آب در سیریک و‌ بندر کوهستک بطور کامل تخریب شده است.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76123)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-پیام‌های دریافتی تایید نشده:
-یک صدای انفجار هم تو اهواز اومد 03:53
-سلام وحید جان، اهواز ساعت 3:53 صدای بمب شنیده شد.
-سلام همین الان اهواز رو زدن
-همین الان اهواز صدا انفجار زدن پنجره لریزید
-یه صدای شدیدی اومد که خونمون لرزید همه همسایه ها ریختن بیرون
-سری قبل کولر روشن بود اصلا صدا نمیرسید این خیلی شدید بود
-آپدیت:
-خبرگزاری مهر: صدای انفجار در اهواز شنیده شد
-منابع محلی از شنیده شدن صدائی شبیه به انفجار در اهواز خبر می‌دهند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76122)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-پیام‌های دریافتی تایید نشده:
-‌
-از جم شلیک کردن ساعت ۳:۳۳
-نصفش تو هوا منفجر شد،بقیه‌اش هم نمیدونم کجا قراره فرود بیاد.
-بعد از انتشار پست: وحید جان نزدن،تو آسمون منفجر شد،صدای اون بود.
-سلام وحید جان شهرستان جم رو همین الان  ۳ و نیم صبح زدن، یه صدایی اومد ولی چون پنجره‌ بسته است لرزشش خیلی بیشتر بود
-ساعت ۳:۳۴  شهر جم رو زدن
-اول فکردیم موشک بلند شد
-ولی بعدش خورد زمین ترکید
-سلام فک کنم جم رو زدن یه صدای انفجاری اومد الان 3:35
-توی جم این پدافند بود فعال شد اون صدای انفجار هم پهپاد زدن باهاش
-قشم: دوباره یه لرزش دیگه ۳:۳۹
-احتمالا بندرعباسه ما داریم حس می‌کنیم
-وحید هنوز صدای انفجار قشم داره حس میشه
-همین
-الان پشت سر هم
-سلام وقت بخیر ۳:۳۸ بندر عباس پایگاه هوایی رو زدن
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76121)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-<img src="https://cdn4.telesco.pe/file/pBaZ7yMivsi5G0m2DMGB1rCXV5JBpUozmgAqUpt_MmHKLdzX2MCxAti8cPEzdWJW_7UCLmlBX8jup2A--4p6aZH7vDrCaAb9_80Z9-pYbT8oKB95HxiN5Z24-gD_n4qRHUF54Ali4mPDnH2CTSu1dzJ0RcjnSYheSmxmgiw7J4dpbNIwso7EXQ4Q0byr4Cwfa14EZOKalKgLlbGQWyJcmiyIg_vnBWES23erqzjJSY6c9ygWPApD_E7ka0GupdWDRriVxQ2-Slz0yP8f88WeLHUhjV7RmCBlhMBl4sDUtJiZ4xQHRqwXTD-HssVdy_gqCv0DEXJeazrkvzbwdqyZHg.jpg" width="400"><br>
-
-مایک جانسون، رییس مجلس نمایندگان آمریکا، گفت پیشاپیش از دور جدید حملات آمریکا به جمهوری اسلامی با خبر شده بود. او این حمله‌ها را «متناسب و محدود» توصیف کرد و گفت این عملیات سامانه‌های راداری، موشکی و مراکز فرماندهی و کنترل را هدف گرفته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76120)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-پیام‌‌های دریافتی تایید نشده:
-سلام وحید جان، ۰۳:۱۸ و ۰۳:۱۹ دوتا صدای انفجار اومد بندرعباس
-الانم دوتا وحشتناک تر
-🤯
-همین الان بندرعباس صدا اومد ۳:۲۱
-سلام وحید همین الان دوتا انفجار شدید بندرعباس
-وحید بندرعباس انفجار شدید
-همين الان بندرعباس صدا اومد ٣:٢٢ دقيقه
-درود بندر ۳.۲۳ انفجار پیاپی + ۳.۲۲
-و مجدد ۳.۲۴ بندرعباس
-دوتا صدای وحشتناک ۳:۲۳
-همین الان بندرعباس
-سلام وحید سیریک سمت روستایی طاهرویی صدای انفجار شدیدی اومدم فکر کنم نیرو دریایی سپاه رو زدن
-سلا وحید جان، همین الان بندرعباس صدای دوتا انفجار پشت سر هم اومد، ترسناک بود
-صدای انفجار بندرعباس همین الان دوبار صدا اومد
-صدای نسبتا شدید و خطرناک
-وحید ساعت ۳:۲۴ بندرعباس صدای دو تا انفجار
-بندرعباس ۴ انفجار
-قشم ساعت ۳:۲۳ بامداد ۲۰ خرداد
-در محدوده طولا یه لرزش نسبتا شدید احساس شد ولی صدای انفجار خاصی نیومد، شاید زلزله شاید هم انفجارات حمله‌های اخیر بوده که لرزشش رو حس کردیم، خونه کامل لرزید
-سلام وحید جان همین حالا قشم ۲ تا صدای انفجار اومد ، دومی نزدیکتر یا شدید تر بود
-بندر دوتا انفجار خیلی شدید پشت سرهم اومد سمت پارک جنگلی
-ساعت ۳:۲۳ بامداد بندرعباس یه چیزی منفجر شد
-سلام سمت پایگاه هوایی بندرعباس رو میزنن
-#قشم
-، 03:23، 20 خرداد صدای بلند انفجار شنیده شد. (شاید صدای انفجار بندرعباس بوده)
-سلام بندعباس صدای انفجار الان چهارشنبه ۳:۲۴
-نزديك  پایگاه هوایی بندرعباس خونه ماست به فاصله پنج دقیقه چهار انفجار بزرگ صدا اومد
-اقا وحید بندر خیلی صدا  انفجار میاد
-سلام وحید جان بندرعباس 3:24 دوبار زدن صدای خیلی زیادی اومد همراه با لرزش
-وحید جان درود
-ساعت 3:24 دقیقه بامداد چهارشنبه 4 انفجار شدید سمت فرودگاه و پایگاه هوایی بندرعباس
-۳:۲۳ دقیقه ۴ ۵ تا پشت هم زدن بندر رو
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76119)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-<img src="https://cdn4.telesco.pe/file/CdW0pJqgekdoZdU37_HSAGQ4Zzmui479mJmafYXZ5oBNoHbJUpcB3FvfiukikiKsuCh6zEEbT2r1s0Cj1gN-moJ3JVE2V8eN5eIve10rNDfSlzG9BcySwSM4axgQ0Fcxl4jETeERbjQpsxBGcXKv78vbOuvURu8SSqGtntLrhw9DRLlQGNYDbW1STul7sXmT1mdoRv4LgTGeA9iMG6HGvHrrqxRRRe00Ee8Df5PFProL-3nPgHyuViPrACmgkVdGZqdHABqIscR4eMVGzCvCZZ3jql-Hidt0p31nZtAeVmL8ttzv4F0Y3fDaSl-R3hIf0MH2r622FVxiVBdNuDIQMA.jpg" width="400"><br>
-
-خبرگزاری مهر به نقل از منابع محلی و ساکنان روستاهای اطراف، از شنیده شدن مجدد صدای چندین انفجار در محدوده شهرستان جاسک خبر داد. پیش‌تر حملات نظامی به بندر جاسک و کوه مبارک توسط منابع آگاه تایید شده بود و این حادثه، دومین موج از صداهای انفجار در این منطقه از آغازین ساعات بامداد چهارشنبه به شمار می‌رود.
-@
-VahidOOnLine
-من هم حدود ساعت ۲:۳۰ چند پیام از جاسک دریافت کرده بودم.
-خبرنگار آکسیوس هم به نقل از مقام آمریکایی گفته یک موج حمله دیگه انجام شده.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76118)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-موج حملات آمریکا «فروکش کرده است»
-رسانه‌های ایران از «فروکش کردن» موج حملات آمریکا خبر دادند که می‌تواند نشانه‌ای از «مقطعی و محدود» بودن این حملات، تلقی شود. چنانچه سنتکام آنها را «متناسب» خوانده بود.
-خبرگزاری تسنیم  همچنین تصاویری ویدیویی منتشر کرده و مدعی شده که یک پهپاد شاهد ایران در آسمان عراق مشاهده شده و آژیرهای خطر در کویت و بحرین که میزبان پایگاه‌های نظامی آمریکا هستند به صدا در آمده است
-اما هنوز جزییات رسمی در این باره از سوی رسانه‌های بین‌المللی مخابره نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76117)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-خبرنگار صدا و سیما در سیریک: در پی حمله امشب آمریکا به سیریک، ۲ مخزن آب بخش بمانی مورد اصابت قرار گرفته و آب آشامیدنی این بخش قطع شده است.
-"خبرگزاری صداوسیما" در خبر دیگری نوشته: هیچ بندر تجاری در جزیره قشم هدف قرار نگرفته است. در پی شنیده شدن ۶ انفجار در قشم برخی کانال های خبری از حمله به یک بندر تجاری در قشم خبر داده بودند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76116)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-<img src="https://cdn1.telesco.pe/file/TfjUyXrucMq82jDT45RdU97z0PdppMeWwxJo6PJ2D6l2ayKmgmSUxF4Kbe0aP3ekVs4_2U_GqGs0UrlzYeNkXL-B4K6ANTQdvlEYLxHgk6AzD7hhOdJSSOEb43kqXR_wvi9FBid_9o_b8tU9iK0yhdL_c8771TsH7HVYioLobBySt7hyGt_kQDf7CyKJHaLxPhYQNg7zcC6vfEC4ZgJhvptTwRVmMKFmo2kW4NRGQpOHTk1IwEl-VS0YV3UeSnUIFHHgzG4cqYn18LGGhEAD4Z3BxBU_cjSUlGYIvbY-CtAmJFoU1Mh0-ONRTipTT-Wdawv1wsZY3igLIAj8FrJGCw.jpg" width="400"><br>
-
-توییت تازه عباس عراقچی، ترجمه ماشین:
-با وجود شکست‌هایش در میدان نبرد، ایالات متحده تصمیم گرفت عزم ما را بیازماید.
-نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی را بی‌پاسخ نخواهند گذاشت.
-اگر می‌خواهید در امان باشید، منطقه ما را ترک کنید.
-تاریخ خلیج فارس فصل‌های بسیاری درباره سرنوشت‌های شومِ بیگانگانِ مداخله‌گر دارد.
-araghchi
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76115)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-<img src="https://cdn1.telesco.pe/file/HxHx168HB76_EZ0CWyi8uwNrII1qpTk0PxhrkLecJ57VZdwyILVjJ3LO2elxiiAdbyE8FNqgVLZwTWuptMZh4Ios2e64a2ZN4kOFcspHNFi6sG-pkDcFTeVEEMvVu7xVkmn_R-UItPk1Wbyg5sHqKV3qAxgs54BbSh_UZyBC8f5yhWZRpp5_Q61gO8CnkQle6IXv8jUfT3WjdJ_3EnPcc1CwjBugkrHsSHDlBnK3VffUaHLkSUFiJr51c1c-7v8cISoZ5csMcPPOxFoHAy-JTLNLRiU5Ercz4tn7mtKQtN3_u2lvHkTKqAvCnKPfg8-8Lxb1w0rH7cQfqKWEq5ocZw.jpg" width="400"><br>
-
-یک مقام آمریکایی به سی‌ان‌ان گفت که حملات جدید سنتکام با قصد هشدار دادن به جمهوری اسلامی است.
-او گفت ایالات متحده معتقد است که این حملات مانع مذاکرات برای پایان دادن به جنگ نخواهد شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76114)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-10 15:29:52
-
-
-
-فاکس نیوز به نقل از یک مقام آمریکایی گزارش داد که حملات آمریکا به جمهوری اسلامی ادامه دارد و اهداف شامل سامانه‌های پدافند هوایی و رادار است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76113)
 
 ---
 
