@@ -3,11 +3,255 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-11 20:22:09
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+
+
+سی‌بی‌اس:
+فوری: احتمالاً اوایل هفته آینده یادداشت تفاهمی بین ایالات متحده و ایران امضا خواهد شد که راه را برای مذاکرات بیشتر در مورد یک توافق بلندمدت هموار می‌کند.
+CBSNews
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76240)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn1.telesco.pe/file/VziLtV-rpY5K7SHT7QZonW3DeDgz71Fj2JtXCe6a0Q6u8HxHz9Nlpi5Hkut5fecGqrxI3nVhjGtgf77Zvz6uygTTTN7dcUmioqsazzEUi3MXmWdRB9L29nQpjIYILJJUTg75Y1wTvuG3bKv3X6iRSlyOIcxSCGbQwGKtBqoACe_h9b7YQi2XrYnaww6v0iWPBLJ2uKA2WahZGtcQ4k-9AP5e0wDHumW7q_Bkz3S0WY_2eLVr15uSJc7Mp3OzZKCnml0Cmnq1H2jiLiBewfo6tYktNN4zgrPLGWLZ10urwgDNDpIMMfmLWZHGp1eRgWiOMk7jpuLFs5S-x8iOL531Pw.jpg" width="400"><br>
+
+خبرگزاری فارس در پستی جدید نوشته:
+"بنظر می رسد با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌."
+🔄
+آپدیت:
+خبرگزاری فارس جملات بالا که در انتهای پست نوشته بود رو تغییر داد به:
+"البته بنظر می رسد با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال بررسی مجدد این متن وجود دارد."
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76239)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+
+
+الحدث به نقل از یک مقام ارشد گزارش داد هیات قطری که از تهران بازگشت، موافقت جمهوری اسلامی با پیش‌نویس نهایی توافق را اعلام کرد
+IranIntlbrk
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76238)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+
+
+نیویورک‌تایمز: ‌قبل از لغو حملات برنامه‌ریزی‌شده به ایران در روز پنج‌شنبه، ترامپ با میانجی‌گران پاکستانی صحبت کرد که به او گفتند با ایران «توافقی» دارند.
+clashreport
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76237)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn1.telesco.pe/file/NSBFsh3qmPE3J-8zI1KJy430wOHjV2-whQi4EYxgg8Q_P05rm271MGPMtQ3PIEJJImlsbYUWRC2N0dDDPxagJHSO20VzEHk5-sOS0dBbKWGWHuYv_yZ67Z4kzZ9FtaXv6s2xXBkRmFA4KtddhO3hThyeJrCUxPrwE7VY5F_gHE7RPsRxJEBLu5sn2Y6pM_Ba0lgw2yG4A-Ouq9Yd-pq2pcjD2PNug1nguVTm5uMr-yh8IvIKBx1aIzh9GTk7t6tgAG5s-r4HWJwcdQbhv9AqGcbplZ1vw_X5lZQl_bAkZKqyzycaK5HXU319GyDDjqXbOgxcCpCHuhzCDJhhIEsxUw.jpg" width="400"><br>
+
+سی‌ان‌ان به نقل از یک منبع اسرائیلی گزارش داد پست دونالد ترامپ در تروث سوشال درباره نزدیک بودن توافق با تهران، بنیامین نتانیاهو را غافلگیر کرد؛ در حالی که او در میانه یک نشست امنیتی درباره ایران حضور داشت.
+سی‌ان‌ان افزود که این کشور از وجود هرگونه توافق قریب‌الوقوع با جمهوری اسلامی یا تایید آن بی‌اطلاع بوده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76236)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn1.telesco.pe/file/n2uxYfbHOJ5HKoM3jm862QYC_j9vQshNogQNlkjdulkZATqIcHsGMS2gkEokgHNadxYzPXaYHEXEeWYahm7ThQ7v2i04RtPzBaxui5q33n_Qa8En4QLAXy1b6DwEjwONIdaMnyPef3olmJQbQNB_05SnirqQGoYMf5I3xMcTklzFGDkEOHsKJ-EDMzmF-Eodrr7Bv2YStr35iWJqb63rIm4zwrpG3TGffVmL7LP5fvZQvw-NkLFHx8XdSGI9McVsRAYo3H_NpmHAWz4Y33o5wO7uf3KM97kWdOTET-U4WfIermMtOgbjkqMJQcR8KURFHUVdmInr1neAm--6qCdSeA.jpg" width="400"><br>
+
+خبرگزاری فارس، نزدیک به سپاه پاسداران، ساعتی پس از پیام دونالد ترامپ دربارهٔ مذاکرات با ایران، مدعی شد که «هیچ متنی برای یادداشت تفاهم اولیه با آمریکا تأیید نشده است».
+فارس ادعای خود را با استناد به اظهارات «یک منبع آگاه نزدیک به تیم مذاکره‌کننده جمهوری اسلامی ایران» بیان کرده است.
+رئیس‌جمهور آمریکا گفت: «زمان و مکان امضای این توافق به‌زودی اعلام خواهد شد».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76235)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn1.telesco.pe/file/ri8F5LFj69ORlkgMM-Mv9C-dEmG69hBriC_P7ZramKaSghnJ-qSbruR56V7N21BvTtBxrbAToALHdI5HK6xbhgGXhX5IxCAC80BKq_sI6ETwMwPPzl4TLmad7KidHK6c-R-LXuC3YSGL5Mg4-pQUr3oCDp6aiP3LPjBJYGfGmlTLrdCAl1GhwJqigkgQfpIllMg_9vnnOaRBs9DWNYt2U1Qys5ReIuwrrDGMRT2xqdVZUQbcp047eFbFKhUn6zyqGUnr3LFNCRdeKpfmieTolmOJzcxKDbqvkohcxgPXE8TmXUj5zMC3OJ0EnIl9YNhSKZ9kZTH9JAJr7nl3JkHDOw.jpg" width="400"><br>
+
+اکسیوس به نقل از سه منبع آگاه گزارش داد اختلافات اصلی تهران و واشینگتن برای رسیدن به یک تفاهم‌نامه، چهارشنبه در جریان گفت‌وگو میان مقام‌های جمهوری اسلامی و میانجی‌های قطری برطرف شده است.
+بر اساس این گزارش، مقام‌های ایرانی پنج‌شنبه به چند کشور اعلام کرده‌اند مذاکرات تهران به توافقی اصولی منجر شده، اما مجتبی خامنه‌ای باید تایید نهایی را صادر کند.
+این منابع خاطرنشان کردند که هم ایرانی‌ها و هم قطری‌ها تاکید کرده‌اند که حملات آمریکا در طول شامگاه چهارشنبه، تردیدهای ایران نسبت به نیت واقعی ترامپ را به شکل قابل توجهی افزایش داده است.
+@
+VahidOOnLine
+ترامپ: توافق تقریبا نهایی شده
+ترجمه ماشین:
+... نیویورک‌پست نخستین‌بار گزارش داد ایران چهارشنبه‌شب پیش‌نویس نهایی یک توافق را به میانجی‌های قطری ارائه کرده است.
+رئیس‌جمهور ترامپ روز پنجشنبه، پس از اعلام اینکه حملات برنامه‌ریزی‌شده علیه ایران را متوقف کرده، به نیویورک‌پست گفت توافقی که مدت‌ها انتظارش می‌رفت برای آغاز مذاکرات هسته‌ای با تهران «تقریباً نهایی شده است».
+او در یک تماس تلفنی کوتاه با نیویورک‌پست گفت: «تقریباً همه‌چیز نهایی شده است.»
+nypost
+سی‌ان‌ان به نقل از یک منبع آگاه گزارش داد مقامات آمریکایی بر این باورند که نشست‌های این هفته میان مقامات ایران و قطر در تهران، به حل برخی از نقاط مبهم و کلیدی باقی‌مانده در توافق با ایالات متحده کمک کرده است. این اختلافات عمدتا شامل جزئیات نحوه پیشبرد مذاکرات آینده در قبال برنامه هسته‌ای ایران و ترتیب زمان‌بندی لغو تحریم‌ها و گشایش‌های مالی برای تهران بوده است.
+بر اساس این گزارش، ایران اواسط این هفته جدیدترین پیش‌نویس توافق پیشنهادی خود با آمریکا را از طریق میانجی‌های قطری ارسال کرد. این در حالی است که حدود دو هفته پیش، دونالد ترامپ با اعمال تغییراتی در متن، خواستار سخت‌گیرانه‌تر شدن لحن توافق در بخش هسته‌ای شده بود و از طولانی شدن پاسخ ایران ابراز نارضایتی می‌کرد.
+با این وجود، رایزنی‌های این هفته از طریق قطر باعث کاهش شکاف‌ها شد. مقامات آمریکایی در تمام این مدت در تماس مداوم با میانجی‌ها بودند؛ حتی در روزهایی که واشنگتن و تهران به طور پی‌درپی در حال تبادل آتش و حملات نظامی به یکدیگر بودند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76234)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn1.telesco.pe/file/CtWzlzHEcVB_QLBM9VqFaIBz1-w8uUMOySZNhepYzsvbKhu9tc_M5u3j7fwCjIVCMghR6jP2RIFGeR3c8u8whQ7VXlR3YjKslku1y1rKMgCSWDo9KlyFK_3d_8-18hGxboqKvOqM7zIG0YK8R9pfcO9_phjcU-vKc1nNhmi2i6cEDMYiu2A5ha0aGd7AyLDBE9K4RKD3Kv2R8oVfjHpybR2SaVKTLoltuOVQEUQeO-dHVr9MjzIDZEridWTg2SCh4gmDfNTQTNkRnPuO3iTOUsS4FgmSQ9HWiUqLQILDoJz9IoXcxrGQUq9e8kZpYupp3S6ELSuUt1O910yuRO-qRw.jpg" width="400"><br>
+
+☄️
+ترامپ: حمله امشب را  لغو کردم چون بالاترین سطح رهبری در جمهوری اسلامی توافق را تایید کرد
+پست ترامپ، ترجمه ماشین:
+با توجه به این واقعیت که گفت‌وگوها با جمهوری اسلامی ایران به عالی‌ترین سطح رهبری ایران رسانده شده و مورد تأیید قرار گرفته است، من، به‌عنوان رئیس‌جمهور ایالات متحده آمریکا، حملات و بمباران‌های برنامه‌ریزی‌شده علیه ایران در شامگاه امروز را لغو کرده‌ام.
+گفت‌وگوها و نکات نهایی، هم در کلیات و هم با جزئیات فراوان، به تأیید همه طرف‌های دخیل رسیده است؛ از جمله ایالات متحده، اسرائیل، عربستان سعودی، امارات متحده عربی، قطر، ترکیه، پاکستان، بحرین، کویت، اردن، مصر و دیگران.
+محاصره دریایی تا زمانی که این توافق نهایی شود، با تمام قدرت و به‌طور کامل برقرار خواهد ماند — زمان و مکان امضا به‌زودی اعلام خواهد شد.
+دونالد جی. ترامپ
+رئیس‌جمهور ایالات متحده آمریکا
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76233)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn4.telesco.pe/file/sdxWQakusBnd_SKmf4UHcYgVAMqsbOVPafMy9U0GeCkqrfgU8NE7lJsVf7ktWmvHUH_Vh9gC_DipmKyr3YbwJ-VF5SDS9FOu3NlirsiejSRX8kcp_oO7dwYLGF3c7JcdhB3bzOHBnGLN5xw_sHG0oGdXU7UNY5osjRj4sGwNcHNBAM68QaB421sDR6pI5m2NsJ-h5vFnD1dkxEn8zj_A65yFfAY80CR4e0rrMSK4gi8JdtFt7pnlxLwLq3vXU4uplK8XZ3_7nmJNArf8AqeIQ1bxn9As_qISWOqPnfZ9X4jYwKtbKRVtmK3B6MSEnTKX5U9daetSvGHzyVRGAv-aiw.jpg" width="400"><br>
+
+خبرگزاری فارس، وابسته به سپاه پاسداران، در گزارشی اعلام کرد ایستگاه‌های زمینی استارلینک در اسرائیل، قطر، اردن، امارات و عمان به همراه سهامداران شرکت اسپیس‌ایکس و زیرساخت‌های شرکت‌های «الفیظابی» و «مبادله» به فهرست اهداف نظامی جمهوری اسلامی ایران اضافه شده‌اند.
+فارس مدعی شد این تصمیم پس از به دست آمدن شواهدی مبنی بر استفاده ارتش‌های آمریکا و اسرائیل از زیرساخت‌های تحت مدیریت ایلان ماسک، از جمله شبکه اینترنت ماهواره‌ای استارلینک، اتخاذ شده است.
+بر اساس این گزارش، «ایستگاه‌های زمینی استارلینک» در اسرائیل، قطر، اردن، امارات و عمان، به همراه سهامداران شرکت اسپیس‌ایکس و همچنین زیرساخت‌های شرکت‌های «الفیظابی» و «مبادله» در فهرست جدید اهداف ایران قرار گرفته‌اند.
+فارس نوشت: «ایستگاه‌های زمینی استارلینک واقع در اسرائیل، قطر، اردن، امارات و عمان، به همراه سهامداران اسپیس‌ایکس و همچنین زیرساخت‌های دو شرکت الفیظابی و مبادله، از جمله مکان‌های جدید در فهرست اهداف ایران هستند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76232)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn1.telesco.pe/file/o70ellaA0Fk_faPXwrD__U9KBfBQYPGGfIabv4GGGRoVlfXvApWbBX5PSAezPU3nGLLWtfow4O-XrQAkzQQTO6HRtB0HbJHDV7YVjk52825srvSGsb-OXsNdV_dsMPIwCyKnPewT8T7iRVfK1NGygmxdBTE2a5VXoWTJrI-XNu5KicHKwZgQAaBtYVPj0yOrR_am3uKt9Ap4uxBLB2ZqhwyMU8ZwaDldwtt9gTHksdXD-PyFUObUuieH4LngWoRvLq2fGUncpP7L2WSE04Suyj0TnaPaTFarSl3VSkQcGjOoVVU4c-QdF2Yj2t0-rHhGMJ2WMNOj0H0PRD2YaNd7oA.jpg" width="400"><br>
+
+وزارت دفاع جمهوری اسلامی در بیانیه‌ای اعلام کرد «هرگونه خطای محاسباتی یا تعرض به امنیت و تمامیت ارضی کشور با پاسخی قاطع، پشیمان‌کننده و فراتر از تصور غلط دشمنان مواجه خواهد شد.»
+در بخشی از این بیانیه آمده است: «بی‌تردید نیروهای مسلح جمهوری اسلامی امروز از آمادگی، توانمندی و قدرت دفاعی قوی‌تر از گذشته برخوردارند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76231)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn1.telesco.pe/file/aHn6a3JSm2aAJqAqVmSoZ_etpRxqBku-TRp-QqDr_sbyvTMQs51xh2LXHYZCprmfjgYGWu0bs-1eiRZNba6wTGNphVPH9IPRdu0H68HmeBRnTFmR5029gkwpOatI72Pi9hJvoTCaDYJkqmY9eRLP8PqeAIT-4rJnzTwydBhGAXoZe9a5obvZu7ePTKGTGLHNkICClK9ilynBcddEFr0LC7ZZHzn4hESeeNb0djL1OD02XXv3pE3ZpySf13AVBg4J30GWKj5R29nXrnoYicS2kB1MqV4EMAfO4-4Irbas4AQxmgaIlMYTDCiWxuVsY12pCrGVxUNPOd7E76BtTtYI5w.jpg" width="400"><br>
+
+علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، در خصوص تهدید زیرساخت‌های نفتی ایران از سوی دونالد ترامپ گفت: «یا صادرات نفت و گاز برای همه برقرار خواهد بود یا برای هیچ‌کس امکان‌پذیر نخواهد بود.»
+او ادامه داد: «در صورت تکرار حملات آمریکا، پاسخی شدیدتر خواهیم داد و آتش جنگ می‌تواند گسترده‌تر شود.»
+فرمانده قرارگاه مرکزی خاتم‌الانبیا اضافه کرد: «تناقض در گفتار و رفتار آمریکا عامل اصلی ناامنی در منطقه است و امنیت تجارت بین‌المللی، به‌ویژه در تنگه هرمز، را به خطر انداخته است.»
+او گفت سران آمریکا با «عدم شناخت ملت ایران و نیروهای مسلح» در دور باطل قرار دارند و با جنگ رسانه‌ای نمی‌توانند «شکست‌های پی‌درپی» خود را پنهان کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76230)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+<img src="https://cdn1.telesco.pe/file/M1ic1MXIVsje76ef43uHieqLXxW3Sj9FHhqvL3yDbOEj2uo7IcMK-UftEGWGlJZoIqvo0yl2JusbvmvLDJZWaGsmeFOEOirTULbu3W8N7jS9RWrEOPzU9r8765ruG4G9hkD64PDxZS1uMqhpfRaholRWw7uiPyHpvBLsym2L6pHDQzUAU6979RrRTyXuOHQajmiVaWz_CK18Xcyt44-XzL4wRCz1Mms9XGfncFtgVlKWA2FGBiJV43ke6uGOVsfxg-oQe_loK8ZcaxNruCrAqRlVyhUDnFzcSkycI8shmXp0IHisJ9a98C7oxZJ4ppJRqrEVRy2VyzClZoD3d8KFpQ.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+"تنگه هرمز برای عبور و مرور باز است
+مسیرهای امنی برای کشتی‌های تجاری که از تنگه هرمز عبور می‌کنند ایجاد شده است.
+این مسیرها برای همه کشتی‌هایی که محاصره علیه ایران را نقض نمی‌کنند، در دسترس است.
+صدها کشتی در دو ماه گذشته از این مسیر عبور کرده‌اند.
+نیروهای آمریکا برای دفاع در برابر تجاوز ایران در موضع آمادگی قرار دارند.
+ایران کنترل تنگه هرمز را در اختیار ندارد."
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76229)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
+
+
+
+ترامپ: ما هواپیماها را وسط تهران به پرواز درمی‌آوریم و آن‌ها حتی خبر ندارند. تمام رادارها و پدافندهایشان نابوده شده. آنها تمام شده‌اند... برایشان سخت است چون مغرور هستند. ۴۷ سال قلدر خاورمیانه بوده‌اند...
+ویدیوهایی است از
+این مصاحبه فاکس‌نیوز
+با ترجمه و زیرنویس هوش مصنوعی
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76228)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 22:57:27
 
 <img src="https://cdn4.telesco.pe/file/M3ZZ7ce6dEHumYQe5PINbLNmclqD5i-8HHa_c0jjYqNKEOZ4ruhE-VcExiWS2PCjdPsgvf889-_JN4ij8POtugdjvUPeRnQkvr2UWEzbiLMJ1xEP2tGvK9VN4DaWj0u_mgRUnUteZic99tdVCHosEEWYSuAOxng0epCy4bssSXHrO6iLwQ1aqOIPCVIifeXCJ8G0JqUOopgT6v4mQQNlP2d2lDsY4YiQwbWDY4ji7yU4vRFVsvvfaK6TG9jnLWbEluOy75H63KIOWfgJvajx8YiYH7byFYXGW8WRklm1XTk6ziv8W1sYYnIWz0vP2LME_l-SwZpDA1J2Yvu-SvXohA.jpg" width="400"><br>
 
-خبرگزاری بلومبرگ روز پنجشنبه ۱۹ خرداد به نقل از «منابع آگاه» گزارش داد که مقام‌های ارشد امنیت ملی امارات متحده عربی و ایران برای نخستین بار از زمان آغاز جنگ آمریکا و اسرائیل علیه تهران، حضوری با یکدیگر دیدار کردند.
+خبرگزاری بلومبرگ به نقل از «منابع آگاه» گزارش داد که مقام‌های ارشد امنیت ملی امارات متحده عربی و ایران برای نخستین بار از زمان آغاز جنگ آمریکا و اسرائیل علیه تهران، حضوری با یکدیگر دیدار کردند.
 این دیدار که در هفته جاری انجام شد، به نوشتهٔ بلومبرگ، نشان‌دهندهٔ چرخشی قابل توجه در رویکرد دو طرف است و در شرایطی صورت می‌گیرد که هر دو کشور بیش از پیش به اهمیت روابط دوجانبه آرام‌تر پی برده‌اند.
 این خبرگزاری می‌گوید که منابع آن به‌دلیل حساسیت موضوع نخواستند نامشان فاش شود.
 بر اساس این گزارش، رهبران امارات می‌خواهند برنامه‌های بلندپروازانهٔ اقتصادی خود، از جمله سرمایه‌گذاری میلیاردی در افزایش تولید نفت و ایجاد مراکز دادهٔ هوش مصنوعی، بدون اختلال ادامه یابد. این رابطه برای تهران نیز اهمیت دارد، زیرا امارات پیش از آغاز جنگ یکی از بزرگ‌ترین شرکای تجاری تهران و مسیر مهمی برای انتقال نفت تحریم‌شده ایران بود.
@@ -29,7 +273,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-11 20:22:09
+###### 🔵 Updated at: 2026-06-11 22:57:27
 
 <img src="https://cdn4.telesco.pe/file/slvAOI09-G7y6simFu6n-KB4L-wknouyJT_1HzKoBteWjx6XD0S5dmufWfYXfeZ1evuO9p_LZUC7EDaJ8f0aIWYIFAaKBmdmt1DOUJVOyop-LP912A8_gBRw64vw7kDXO295_V8XjkbdShIv0sa33rLfYxtivupqLyon1CBvgSwFze6WPzUbHWzqoUlW8zStdVWde5txe0ZHoyVfudJnqSa5ZyA53QfKEFd9m6sV9TMdjIGwk62_RzOscdbEbRvIN0ByDMVmqsu5fF4W9svPrkC2_00A6Qosx2aJtriuisyp08yLtWlYmGOvT0axBXGGDL41KdvSF0q8ZhGDkZMHcA.jpg" width="400"><br>
 
@@ -49,7 +293,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-11 20:22:09
+###### 🔵 Updated at: 2026-06-11 22:57:27
 
 <img src="https://cdn1.telesco.pe/file/bagwnPaXkzwy_xvfMjBWVCSrUe9GqhSTgF7nkeS4yWaQiLK4ok74KODXeYKqg2tE7Df5AEKCGqRvQCrYYPhOtgLHzmQkTN790ch6_1vcYeNHUCv5sbpQ49Y6g375vD-pRhmszCYCINov22mCV29h5R0QfpP-iwKdt3r57HrOp7mLAKjadvNkR7DAwDEA8EmAwO745sGR4lU2OKZ4WUDVufNPAqXMHQzbkuSqrgKKRBQASHer8hgwDZMPAbM6Wofj2ewtL4CvQLJwtfnRLmxLe66lZo_JUxXDfya3xZFRMsK01JnC05HKZ86Q2NiH1_KlHExF63OEn8zp1seHDIkzNw.jpg" width="400"><br>
 
@@ -66,7 +310,7 @@ mb_ghalibaf
 
 
 
-###### 🔵 Updated at: 2026-06-11 20:22:09
+###### 🔵 Updated at: 2026-06-11 22:57:27
 
 <img src="https://cdn4.telesco.pe/file/YvD5ZylozrH5AYBIv1bI4Tsp2evfB_zG7d-aC6u-SJxw1-rEKOVEJSFtzDzttgsi27TwIUKNJd5ILXA2cFYulV_ZlfDS4GdQOhLl6jQV9Tj9nMFxDY01IUZ4HyR13xrt3rHKn48K4ALMPAN9hechVxE40-0XmiFbMkuwuz-EmaI-oRYplu1OUEkkkpc8fcPEbxL0DNYt2ITdB1r3Gg7ezZ38BHJNiTLfOAoqeqSLORzWHIJhxWBlIu9vjRbXGFrke1xZLGb73iEK9ODL8ZxicwsM-MPGMtj3l3pR7tpxqYMUYAIgPI_H3CTUWdZSC86sij0Q8BAkTFLS30e-2Mujzw.jpg" width="400"><br>
 
@@ -86,7 +330,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-11 20:22:09
+###### 🔵 Updated at: 2026-06-11 22:57:27
 
 
 
@@ -129,7 +373,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-11 20:22:09
+###### 🔵 Updated at: 2026-06-11 22:57:27
 
 
 
@@ -145,7 +389,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-06-11 20:22:09
+###### 🔵 Updated at: 2026-06-11 22:57:27
 
 <img src="https://cdn1.telesco.pe/file/hwqUzrjZnc5eK1Il6NgWwJ6ejDmWRpRpAeRD9--RAIVIwS_C3IcVjA6x3F_96umReKKdkI15hIySLjJTqUsg0tey4OYyVP9BCBr8BCDwsHEd-MGek1nUAtzxVHzAP7s2YCbZL1qgWan-C3jQpNIxkS7EmltzWqTs5MtsWRyW7ewbAKL_NDgxokdOBldvBYL8sArKjTK3gCs5TFlV0Qhj31_6KnNBJpiDBif2MqORgo5hlu7GgJptk_MJjRmVtM71iXY9W01i3fGUp0R7O2BvaSbkVW_NSBUFMLxq_bQPMJ9XLuEaxmT1VQ-dD5LIwHmforwSgsQpHJX_B7-xow95RA.jpg" width="400"><br>
 
@@ -190,140 +434,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76214)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 20:22:09
-
-<img src="https://cdn4.telesco.pe/file/kNCSXQroOOD-FDoQ6ZvFgXQId7ll6u1v2ZZbxjFIQXPl7o9a1OFQ_IDPsBM4XNorfwqCcwTYnBI_-h3_HKBaYQmajXZuMb3_yrOXuMTtJOHiMWd-I0MSWis73kOGcWv-FF9NoNea2v3TT8uM7vFVpcQlzyHiY80QB6QtS8D63VNJHUyIIJleD6PYbsO9Ds0II_7OJ0yBaNTnooB9vF9zqhneB_DzqroF6NcoJf2QkH93NTuc_X2y1sdUvaU2Ur5Wte6wLeMtd91Udy1kyEgoz74cf5i36fTIQJMwzTg8iX8n0QRW-VkjGHlcnuSWmKhTd3PHOM6HBSuGtFu7eJyulg.jpg" width="400"><br>
-
-«اسکات بسنت»، وزیر دارایی ایالات متحده، در شبکه ایکس نوشت که جمهوری اسلامی ایران در «بازی با حاصل جمع صفر» شکست خواهد خورد.
-بسنت در این پست توضیح دادکه خساراتی که حملات موشکی و پهپادی جمهوری اسلامی به کشورهای عربی به‌عنوان «متحدان آمریکا در خلیج فارس» وارد می‌کند از محل دارایی‌های بلوکه شده در آمریکا برداشت خواهد شد.
-وزیر دارایی آمریکا همچنین نوشت که هرگونه عوارضی که از کشتی‌ها برای عبور از تنگه هرمز دریافت شود، با برداشت از حساب‌های ایران جبران خواهد شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76213)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 20:22:09
-
-<img src="https://cdn4.telesco.pe/file/n4i21lvIuBzjFNTKxVphzJIIOGKc_gVXvX_on2ar_NC557C2yxBVAbVgV7hsbaALfWEF3uphdxMvu7clawRd4zIwbu1Efbf7tuN3HQDqaSPA8tgWBAZXUDopWOAY6QK8ZL1R5ejhmJC4lNlpxU5x51fDvtqCbm8R73iQoHy4-2HmU5D-DiSsF1aIyu2AXbN3SZ6pLMzkINzU7QKtuqumm5jwv500O403z31vIbbxgAP-cbEDXe4WEglIVTPifNpO0kItJcV1jcApqSV_6RbhsntaaOxkvYv2gqanS17KrZQcU1Sq2VbN67vKr3nRMkwnd-_IKpZNfuVGo5aF9XJqiQ.jpg" width="400"><br>
-
-رئیس‌جمهور آمریکا روز پنجشنبه اعلام کرد که ارتش این کشور امشب بار دیگر ایران را به سختی مورد حمله قرار خواهد داد و از برنامه ایالات متحده برای به دست آوردن کنترل جزیره خارگ ایران خبر داد.
-دونالد ترامپ با انتشار پیامی در شبکه اجتماعی تروث سوشال نوشت: «ایالات متحده امشب ضربات بسیار سختی به ایران وارد خواهد کرد؛ کشوری که نیروی دریایی، نیروی هوایی، سامانه‌های راداری، پدافند ضدهوایی و تمامی دیگر اشکال دفاعی آن، به همراه بخش عمده توان تهاجمی‌اش، از بین رفته‌اند!»
-آقای ترامپ در ادامه پیام خود نوشت: «در مقطعی در آینده‌ای نه‌چندان دور، ما جزیره خارگ و دیگر زیرساخت‌های نفتی را در اختیار خواهیم گرفت و کنترل کامل بازارهای نفت و گاز ایران را به دست خواهیم آورد؛ همان‌گونه که در مورد ونزوئلا انجام داده‌ایم، اقدامی که نتایج فوق‌العاده‌ای هم برای ونزوئلا و هم برای ایالات متحده آمریکا داشته است».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76212)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 20:22:09
-
-<img src="https://cdn4.telesco.pe/file/iHSNA8HeUMv2nuUs_07t6aL41PMZjbilFs978vzsXIxP0Ya2Xb4nJwLR1uRODA6odQTj44ZqAn0QNp8J7gDliQxupxCG-zFhBUdnG4czUFE5q0J-PQHJAxqu1sjdf2BsFbn2CQDZXSJv41DgJ10XF5TAE1HDb7ZXrvf_DdCARdvXeefuqTO6UZJNdaxGdbW1AHWoud_sqlQa-h7RNxcHjUbTjN1kRlPMmIZCBsG36GWmikr11QnvEHQ5tjbwcEggsUIMtE9t2kbAdEYctIAF0Mm11WV8d5jO_vLg1_QrKmfi_fQMQeQxPlpqTAYWNFLzU2Le1yg3Qlyyb22CXcZ5Ug.jpg" width="400"><br>
-
-دبیرکل سازمان ملل متحد، آنتونیو گوترش، در پیامی تازه درباره وضعیت خاورمیانه هشدار داد که این منطقه «هر روز بیشتر به سمت بحران عمیق‌تر کشیده می‌شود» و تأکید کرد پیامدهای آن فراتر از مرزهای منطقه خواهد بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76211)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 20:22:09
-
-<img src="https://cdn4.telesco.pe/file/En8-Mi2mOm5DRCrRluxKRb_8WubrU-yQGwDuT-TKxulXS_Xdfox_zLhVig0MT5Bx-QuYDmBIZkBaZOpQ2ZXs7rluwBcD602DdDgo8HZPkdA0nJPmvXNe7ewOV5zuBzxNa-M1_n00RwYsV4igBQZQQImTUE0opkaYF3cX1qiMAXw6XkVXn8Cu-5iXKS-hjFrKzyzRpQduD6lut-wvb9F8U5xKdWN4pYM_PIFWQo2ifnWvSMZWa0xNemyEBGczfRQUch392gTGSBg8fFu9b_VLS00WcDuaOgjdlDkk9qrsySSnmKD2OtxyPiBudGSQTqvwMCSFsB4BmKwc17tgMjT-Vg.jpg" width="400"><br>
-
-وزارت امور خارجه جمهوری اسلامی با صدور بیانیه‌ای در واکنش به حملات ارتش آمریکا به اهدافی در ایران، این اقدام را نقض قوانین بین‌المللی خوانده و گفته است این حملات آتش‌بس ۱۹ فروردین را عملا بی‌معنی کرده است.
-در بیانیه وزارت خارجه ایران بار دیگر به کشورهای حاشیه خلیج‌فارس درباره استفاده ارتش آمریکا از قلمرو، امکانات و منابع آنها هشدار داده شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76210)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 20:22:09
-
-
-
-پست سنتکام، ترجمه ماشین:
-نیروهای آمریکا سومین نفتکش ناقض محاصره را در خلیج عمان از کار انداختند
-تامپا، فلوریدا — نیروهای آمریکا ساعت ۱۱:۲۰ شب به وقت شرق آمریکا در ۱۰ ژوئن، پس از آنکه یک نفتکش با تلاش برای انتقال نفت ایران محاصره علیه ایران را نقض کرد، این شناور را در خلیج عمان از کار انداختند. این سومین کشتی تجاری است که این هفته توسط نیروهای آمریکایی از کار انداخته می‌شود.
-فرماندهی مرکزی آمریکا، سنتکام، علیه نفتکش
-M/T Jalveer
-با پرچم گینه بیسائو اقدام کرد؛ این کشتی در تلاش بود نفت را از ایران از مسیر خلیج عمان منتقل کند. یک هواپیمای آمریکایی پس از آنکه خدمه کشتی بارها از اجرای دستورهای نیروهای آمریکایی سر باز زدند، دو موشک هلفایر به اتاق موتور کشتی شلیک کرد.
-اوایل این هفته، هواپیماهای آمریکایی به‌ترتیب در روزهای دوشنبه و سه‌شنبه دو کشتی با پرچم پالائو، یعنی
-M/T Marivex
-و
-M/T Settebello
-، را از کار انداختند. مارویکس با تلاش برای حرکت به‌سوی یک بندر ایرانی محاصره را نقض کرد و ستبِلو نیز تلاش داشت نفت ایران را منتقل کند.
-از زمان آغاز محاصره در ۱۳ آوریل، نیروهای سنتکام ۹ شناور نافرمان را از کار انداخته‌اند، ۱۳۵ کشتی را که از دستورها پیروی کردند تغییر مسیر داده‌اند و اجازه عبور به ۴۲ شناور حامل کمک‌های بشردوستانه داده‌اند.
-این محاصره به‌طور بی‌طرفانه علیه شناورهای همه کشورها که وارد بنادر و مناطق ساحلی ایران می‌شوند یا از آن‌ها خارج می‌شوند، اجرا می‌شود؛ از جمله همه بنادر ایران در «خلیج [فارس]» و خلیج عمان.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76209)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 20:22:09
-
-<img src="https://cdn4.telesco.pe/file/OYimmdol4Z4lnNHRQnps0pfSzgNgd8iRG4fkN8uBQfne6_-f59fSSMC_i7APWcle9DKBxg4NNs6NnX9__eheaYIO2vy4XxS98k3M62PnN5TYuJAK3FzpnTy-mOCtyiJuRSc1Vrhk2frYzIPPOAzoRSH3XIcxO_9NRmnuHF_pG3xOkAbOQl8GpJeogulfybi9AVnp2a6VZ0aRwlSgmHIU3o1e3vP5XPW3DE_M_MiSrlS72BWV2SoGRd8OV1WQ_5VGquSZctvU4hLw7FnQVN-bIwz1A8aI4jqa6yG8uSOS5Gf7Uvdxc-OdGacAoLWpgLHd7M0T_yVUijzOvyagHZawyg.jpg" width="400"><br>
-
-عبدالرحیم سلیمانی اردستانی، عضو مجمع مدرسین و محققین حوزه علمیه قم، توسط دادگاه ویژه روحانیت به شش سال حبس، خلع لباس روحانیت و پرداخت جزای نقدی محکوم شد.
-نزدیکان آقای سلیمانی اردستانی اعلام کردند که وی تنها به شرط برگزاری دادگاه علنی حاضر به اعتراض به این حکم است و در غیر اینصورت، حکم را بدون اعتراض می‌پذیرد.
-او به اتهاماتی چون توهین به مقدسات، توهین به علی و مجتبی خامنه‌ای، توهین به مقدسات تشیع، توهین به مراجع دینی و هتک حیثیت روحانیت شیعه متهم شده است.
-سلیمانی اردستانی در فروردین ماه توسط نیروهای امنیتی بازداشت و به زندان ساحلی قم منتقل شد.
-او پیش از بازداشت و در تحلیل نخستین پیام مجتبی خامنه‌ای که به تجلیل از علی خامنه‌ای پرداخته بود، نوشت: «مهم‌ترین هنر والد شما این بود که مخالفان و منتقدان خود را بی‌بصیرت یا مزدور بیگانگان می‌خواند و هر برخوردی را با آنان روا می‌دانست! از صفات اخلاقی ایشان دو صفت لجبازی و کینه‌توزی را بسیار برجسته یافتم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76208)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 20:22:09
-
-<img src="https://cdn1.telesco.pe/file/dNSK8b-zLxxdreJjoxNhQaG-maLzbdlYzEDf8UhYtjLJkB_qFE7cD1LcVV5rctDheXXm9Fjq12XX06z_hX7YRXE_35h8qkRrdHDbXbY8hk3qOOA_GCTrSXjiNVQTxHAvcDwRkPv90blpifyC7bimDvb4beJ0BxJDoet0KT4suX_6eNXTJ3amJH5d6k_tf26v_kbjUyJmd8Ae9DT8xWLd7ZPFWwTklaMA8TG4OtgHexrJrQbaHQgTNqqrI75s-YdlktPTcesgKJFT5CNfxi4XwZDVCsifFJZy8Z0YWjh2oFR8KW_5sDONI-383LkHKBeU4GckbrtZeFqWaWq8kwMzAA.jpg" width="400"><br>
-
-عکس دریافتی از پیشوا در جنوب شرق استان تهران
-'دود انفجار حمله حدود ساعت ۴ صبح که در ورامین و پاکدشت هم احساس شد.'
-پنج‌شنبه ۲۱ خرداد
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76207)
 
 ---
 
