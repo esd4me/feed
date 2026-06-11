@@ -3,9 +3,173 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 
+
+پیام‌های دریافتی از حوالی شرق استان البرز و غرب استان قزوین
+من سمت ساوجبلاغ کرجم
+ده دقیقه صدای موشک اومد
+الان صدای پنج انفجار اومد ۳:۳۲
+سلام همین الان ساعت ۳:۳۳صبح اطراف هشتگرد صدای اتفجار و موج میاد
+سلام ۶ بار سمت نظرآباد البرز رو زدن
+ساعت ۳.۳۴
+۲۱ خرداد
+ساعت۳:۳۰
+شهر جدید هشتگرد
+۶/۷ تا انفجار پشت هم
+اما خیلی دوره
+نمیدونم کرجه یا تهران
+ابیک قزوین ساعت ۳:۳۴
+بامداد ۲۱ خرداد
+صدای و موج انفجار اومد، به نظر میاد از سمت کرج یا هشتگرد باشه
+۵-۶ تا بود حداقل
+۳:۳۰ صدای ۵ تا انفجاد اومد از اطراف هشتگرد بود فکر کنم قشنگ شنیدم
+سلام وحید نظراباد از دور صدا ۷.۸ تا موشک پشت هم اومد در های خونه لرزید
+هشتگرد ۵ صدای انفجار از طرف اشتهارد
+سلام وحید جان ساعت ۳.۳۳ صدای ۱۰ تا انفجار شدید اومد من نظرآبادم ولی صدا از دور بود
+پشت هم موشک داره میاد با نور انفجار و صدای مهیب
+محدوده نظر اباد هشتگرد
+از پشت بوم کاملا مشخصه
+سلاممم کرج هشتگرد 4تا صدای انفجار شدید اومد
+دوتاش خیلی بزرگ بود بطوری ک کل خانواده از خواب پریدن
+قشنگ کل خونه لرزید
+۵ ۶ تا صدای انفجار هشتگرد جدید ساعت ۳:۲۰
+سلام وحید جان
+۶ بار صدای انفجار مهیب اطراف اشتهارد شنیدیم‌ از حدود ساعت ۳:۲۰ تا ۳:۳۵
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76179)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 03:42:32
+
+<img src="https://cdn1.telesco.pe/file/YNiH23ffne2f3T_NNcALXhYgGD9uMT5oT-0BvR6UpkKfAnESx0to6qENkUdwUevLd8_nm6qjFbblKnnwE3cBi9VfpJXUoumi_BEYTrHlFlQluxcv-AqxmO3Yx9zY-D_sbS5rM7Qr2tmlzwaV3Zl1Heazmg-2Sz_MG_6qa8nrbT-dwU6UUdi4ZQHidi5FxwDJHWspE5-9Xtjqt0cO0_e8qx7MvdwWDZ1iTUhkSPWvZQJA8VUBSjwseQy0ZM13UrPnUU_h_odFPovVvtkyKQTN9OeeoEyzjDtQtV9d1wJzFrZ70Nns7GYrlG1fGBGXUhvbc7G5wSC2KOQkd4I1XeXHCA.jpg" width="400"><br>
+
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76178)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 03:42:32
+
+<img src="https://cdn1.telesco.pe/file/bEwYiI1idwWsdoS2kOK7b0Oxakq-8uon8IDza9RBneTCCoQOnAcf1XLHOipyeI0hYbq08G8z9P8801GuwatdxQw1bCOtbYCxMZrHXih9FdV-b9I7Xmdj7Zcvxqh89R3mrlq7XaCOHpvdh-N7DaNVOJRAslgeN0SEJMf68dL08bMjowKjONb0e1yEPNnglDGvwnoiwwPagUEVMEG8x7jbyFX_4VVBnqn92qZUIqszE6wjhWyMprVH_XghpkQ13Z_ZuB5NGSckXm0MbzjJvWy4fXRIhKDUZkTJZC-30xtZFSnjZR5oCbE3n-fVT5sMP5RfhS7mF-VYvccEuDGvn0eUmg.jpg" width="400"><br>
+
+پست‌‌‌های اکانت فرماندهی مرکزی ایالات متحده، سنتکام
+ترجمه ماشین:
+🚫
+ادعا:
+سپاه پاسداران انقلاب اسلامی ایران مدعی شده است که تنگه هرمز بسته شده است.
+✅
+واقعیت:
+کشتی‌های تجاری امشب همچنان در حال عبور و مرور به داخل و خارج از تنگه هرمز هستند.
+CENTCOM
+🚫
+ادعا: منابع رسانه‌ای ایران مدعی‌اند که ایران به یک ناو جنگی آمریکا در تنگه هرمز حمله کرده است. نادرست است.
+✅
+واقعیت: هیچ ناو جنگی آمریکایی هدف قرار نگرفته است.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76177)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 03:42:32
+
+<img src="https://cdn1.telesco.pe/file/kYbH3ZdQIVouEf-N1QBNkFQC1LvzZT6mz0gT6XO6GFMqYPf2SACFguQXx31sj_pA-69gWi0bNYWrK9gkSCFV83jrDfV4O_ZxrbXGmyuSn3mMXal71VO-tmknX1z_dWbpgWJHHN_tp3aK84HkiIJvWz-Vx56VGXlZ21SRdcdV66YsT5XBbs6ddNUj8THZ5FkjgE1zou1borTWK3aZwZ-RC8P__2RNhqVNSk1SZ6M7LdxyhWONiphIZeMoZe9Xc3cQ2mwrSicigEAwa5f7b-sBjanS-9U4azmVj6I5xu8eTmkaZAfbqQ1jc6nAsKL395fI9RynY83tVZriG4Svj3AQEA.jpg" width="400"><br>
+
+☄️
+ترامپ: مقامات ایرانی در تماس مستقیم خواستند بمباران متوقف شود
+پست خبرنگار فاکس‌نیوز، ترجمه ماشین:
+امشب با پرزیدنت ترامپ صحبت کردم؛ در حالی که او از اتاق وضعیت، حملات نظامی آمریکا علیه ایران را زیر نظر داشت.
+رئیس‌جمهور به من گفت که امشب مستقیماً با مقام‌های ایرانی صحبت کرده است؛ مقام‌هایی که از او خواسته‌اند بمباران را متوقف کند.
+در زمان گفت‌وگوی ما، ایالات متحده ۴۹ موشک تاماهاوک شلیک کرده بود و جنگنده‌ها نیز در حال بمباران بودند.
+نزدیک‌ترین هدف به تهران حدود ۴۰ مایل [۶۴ کیلومتر] بیرون از شهر بود.
+ترامپ افزود که بمباران به‌زودی متوقف خواهد شد، اما اگر آن‌ها توافق را امضا نکنند، «تا سر حد نابودی بمبارانشان می‌کنیم.»
+پرزیدنت ترامپ این را «نقض‌شده‌ترین آتش‌بس در تاریخ جهان» خواند.
+جی‌دی ونس، معاون رئیس‌جمهور، به من گفت که ایالات متحده در روند مذاکرات، هم با صداهای میانه‌رو و هم با صداهای تندروتر در ایران سروکار دارد.
+به‌روزرسانی‌های بیشتر در فاکس‌نیوز منتشر خواهد شد.
+TreyYingst
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76176)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 03:42:32
+
+<img src="https://cdn4.telesco.pe/file/q3LJe-shX3K73wpxcIkx3J-UyUpaj7QLA0K6MMmAMNdRtGyqb5fFIaDC_NfphNUDUFGmLMIR62Wvtnz70SGQaIY_UUbctwOeVMunQCZF1ttH7j8R5gkNU6nHGrMLhb0AnoiFskWRSbHni2afdvtApwKH7BPWzD5bX9vFTMueeK5M017ZM7As9yu1ymkKVFk8i2XclrZVYZEEkeXMZsE5jdqO46u0dJzZ1gugLkV9mwgLDwpL2sWUfe28QHwyk95XcnFiIYlcdqAE5A1SQ_L1EqmPGHCoW-GjUD2NFKeuWp_G3H-_13rO5OcjZWkrNGRSqok4pMmKEzLTRAellhfuwQ.jpg" width="400"><br>
+
+♦️
+دقایقی پس از بیانیه قرارگاه خاتم که در آن تنگه هرمز کاملا بسته اعلام شده و هشدار داده شده بود که به هر شناوری که قصد عبور داشته باشد شلیک می‌شود، تسنیم از مورد اصابت قرار گرفتن دو کشتی در تنگه هرمز خبر داد. در گزارش این رسانه وابسته به سپاه آمده است که کشتی‌های «متخلف» قصد داشتند «به‌طور غیرقانونی» از تنگه هرمز عبور کنند. هنوز مقامات رسمی و سنتکام در این زمینه اظهارنظر نکرده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76174)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 03:42:32
+
+<img src="https://cdn1.telesco.pe/file/rgGbpDkrBYcoUg_OnM_Q0dUWK1LpAQpUn8caNlYHxzn8ERyDeIdTb1kuxQrE_9nyrZ1ov-3KfpxmN8AAXq-rlYpjCqTbq1qqcg6SFLrS8LkLtZd7oAIIiDtsP5gaG2mzTNxfZ9EJrMFefZSe9ksC9B-Fx9OT1eAV6xYc2jxA6uq70RDLjNGYCZ621mzD1ttUT3WaWuLBkmDCEYDHYv3KGnY0wnWzJuMD89pb1LRLUMriSrhewCetpCY31be0qLrqRmxUNJeXxlYU2bTblxBa7nCHfA5o2yumJ_NHadQuBnOv6eRK4cWs4DmYboNHGhXxY-FLBDDiPa259tiIjQsMrw.jpg" width="400"><br>
+
+⚡️
+روزنامه وال‌استریت ژورنال پنج‌شنبه شب به وقت واشنگتن به نقل از یک مقام ارشد آمریکایی گزارش داد که هیچ سایت زیرساختی در ایران مورد اصابت قرار نگرفته است و نیروهای نظامی ایالات متحده در حال حمله به پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز بودند. انفجارهایی در امتداد تنگه هرمز، از جمله بندرعباس، جزیره قشم و سیریک گزارش شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76173)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 03:42:32
+
+
+
+پیام‌های دریافتی:
+قشم ۲:۳۵ صدا و لرزشش حس شد
+۲:۳۵ دقیقه بندرعباس دوباره صدای انفجار اومد
+سلام  بندرعباس دوباره زدن ۲:۳۷
+[احتمالا منظورشون اینه که صدا شنیدند!]
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76172)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-11 03:42:32
+
+<img src="https://cdn1.telesco.pe/file/VdPjsAG0dvZ21DOAop4D4f29gJZawU4QYFO1x0bdduGD36JEO3XgY4hP0T6WfebBrZgXiVcWAQqadYWQmKA8ngNpEvukbImtbhddtr0fCc_SQyQ3f47Bl1O88Y5S6OsYKaoD7hkYTUAMuL6f555WlZhzOlpKumyWi2j0b1YND4x0RPihzPL_zWwf8yG9NmgvZ61-InkCtYL9Yc361qJpBcD-ueApV-vtSdQu4_W0GN7UyawVnaddJkrJhCHdIVo1D6qhjjTiqHUOQnqVnMefJjgwAgC57x6DSaqfLZslSKWLKKw7bav7i7SenNP26vMWw4kTa2L3kpr9EN5c3kNpEg.jpg" width="400"><br>
 
 سپاه: هرگونه تردد شناورها از تنگه هرمز مورد اصابت قرار خواهد گرفت
 منابع حکومتی:
@@ -21,7 +185,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 <img src="https://cdn4.telesco.pe/file/a2wNg7k5cU22Qo6U3BEqhIVbfwG8lxpKwI6UAZHdMAumf_KpOLlzqHEjL9AwU0Hq6GC_QG8Px9EuG-_7BvCADU1PTQGj6I9ZqMLuVeqeB3MfYLJrYJQ7MI8-cn9y_IbBWYX6b1W0p5zUPj-DN25kkTAbHdfut8S5rxXVaCj0poqJh4BLqvaeDzYXpMDxWswzErm0sBD01jCrct-5A9UoqShQEn5pR0Ts6IKuKGsgMZeqF0Gu4mIcedBj6bkoPuMEonB9ltX2cQ2k-xIBIoXYXuqtZ1ZJgOttMj0-J1fwsg_7cutAfl-SBCUakLVr4lL0vC1zqYCx0sIr0czIwjGQ_Q.jpg" width="400"><br>
 
@@ -39,7 +203,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 
 
@@ -64,7 +228,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 
 
@@ -88,7 +252,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 <img src="https://cdn1.telesco.pe/file/GxdRP1XKl_6TT52SV0491mH-VATkhFalvveQGkUpV-33OSphuZLBgp4zGumUTHbVrbiQZidkxIz-TtzjoWD69JRTlSspKsW_0dRglXtvssT1QL4IbMvxB-bi8jQ6wTMwPpN-pzSfEQvKVjvbGOkjaNiPx6q7zr4eYGJA7JMkpDaAyp5lr_K0VkRFAlJw5iFTVWvoHXrDUz78EAFa8QsjxQw8vabAI4cGFSWypEJ6IHGbEoVgCcDTynk-U-_uBsrB_J_J9zdfDVg85Z0cceUxIPzVGXGUdrKWhsvQKdr9S9NIrBexzi_7M2Wk4ns0vUatpeZ1ALHUFsYBMCHrf9wD6Q.jpg" width="400"><br>
 
@@ -105,7 +269,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 
 
@@ -143,7 +307,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 
 
@@ -172,7 +336,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 
 
@@ -189,7 +353,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 <img src="https://cdn1.telesco.pe/file/bCU0hh8b-izH0zOb9KUZvaSYDTyKsT3_U7yAPTu5THnX-HJulWE-JGhhANsgCmMhI28r95AyX5KNorGeBaRXQEhgYaLmjsFk6g87zhsDi3svpAaoDSqJfvf-K9l76Zwce0Ebr2vMVwQpt6GPbjMWMmpKlkL-Nv8KdrMAysPKaycL0AcR6tOsVKXL83Z5exFy6NhBAGjwE2zHoMngaCZvpJcNlJxZZ6qd4QcCikObAcgoOzGU5VR7MXNdYpsFQjDr-uwTweTntz13Cq886bCez7iUJi5TseIBa_lDpqsnOpuWWrVyxb6XqTe_Ccoyc-lq3CGXxEfp87ZfghkV0a3tuA.jpg" width="400"><br>
 
@@ -212,7 +376,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 <img src="https://cdn4.telesco.pe/file/loZ_NKgccrLS1NN16JsA_jCZacffclVqVbHdbnyr_QpSTCJExfdeWlUTXXG7BeMpChw-3fmwdzo5PeGTiEUwjp-BoxsW4VKxcaodEtsyTUspumIJdGYR_bLDZpiEDJbO_pcpY2rV8TaPXR8wXbxlnrs9HpC5YuBxksJR8RSgkN-IfRBoeRyR7IpyehpyZZdpB5B-BXnTZws4G4xAkPEpbfV48R0jHc1OekHPasotAKqHhxLtHbx2lIvyZkHSUMjcTNtIctZDFKm4tqnPl0KotCO9eDjkdMJuELhunjMM50uwbIlThPs0d7qaPKlrW_jsDHHYfUy124siqSAHTrDolA.jpg" width="400"><br>
 
@@ -241,7 +405,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 <img src="https://cdn1.telesco.pe/file/iBShcOok_FK_AB8TPwbqN6nBi8DHAFHK1e-F5UJT6P6aO858WfW8OivKcnvAbk7ajXeX_xpWl15U60DIxPObD0aETBqg57TdZhq9ZaTbS-Ib26-VCY2weoFpOev0zH8rh_oOnMCOUJXrONrj-mQUpAcGqmYmzf_o0B6pjYBRFWT5wfagiHY6vEAeJGxOi7GiIuUg_uKNf1GdUxvIwQa9Ruv1eBQeOumhN1u5tAGFcpUtpuimEoQploBMt5wREIM-CZRawCDVSadto__TV5cxhayqkUoJuDRYvGEuRF2A8oTVIPgsTQmb1HAbJxK58tQ9MnsuBAx2vLkaCSXotGGdhg.jpg" width="400"><br>
 
@@ -259,7 +423,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-11 02:26:01
+###### 🔵 Updated at: 2026-06-11 03:42:32
 
 
 
@@ -271,62 +435,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76159)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 02:26:01
-
-<img src="https://cdn1.telesco.pe/file/uYlEx93uo9g7lAqIABCuXaTEnLVq3opkUbFPX47RUneRL1OGaFXomGU5RLy6uM7h4HzPYfiJNxYDutcdjJx1GUfSYmtu1gKUD1P4-OiLgWrCKUG1P12cqal1iJ7rqInCuE8wbhELbQFVK6i5lMHaT1c-6GChd_ZAuBjK5dNYpCEK6YxbDQdBVkUG-73NP1Is44C76HRgToj31lgbbGfWuFrkTdzAjpXdeuXYQ3DD3w3YZQjuMhclOm6uAQAx0h8iE-Fvj1vTEJyFEHxCuC504RQQenAHb-oPNe2SLX88w6dcVXsMXZLSxlNK_rXEOtk9P2KBrN_r8JXqAuX4Vn2EJg.jpg" width="400"><br>
-
-ترامپ: بیش از ۱۰۰ میلیون بشکه نفت در جریان ماموریتی محرمانه از تنگه هرمز عبور کرده است
-ترجمه ماشین:
-ماه گذشته، من به ارتش بزرگ ایالات متحده دستور دادم مأموریتی محرمانه برای حمایت از نفتکش‌ها و دیگر کشتی‌های تجاری در عبور از تنگه هرمز اجرا کند. امروز خوشحالم اعلام کنم که این تلاش باعث شده بیش از ۱۰۰ میلیون بشکه نفت از تنگه عبور کند و وارد بازار آزاد شود. بیش از ۲۰۰ کشتی تجاری نیز با ایمنی از تنگه عبور کرده‌اند.
-این تلاش به‌شدت موفقیت‌آمیز به این دلیل است که ایالات متحده آمریکا تنگه هرمز را کنترل می‌کند — نه ایران. ارتش آن‌ها شکست خورده و اقتصادشان از دست رفته است. کار ایران تمام است!
-از توجه شما به این موضوع سپاسگزارم.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76158)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 02:26:01
-
-<img src="https://cdn1.telesco.pe/file/OYvz63hRsMhfQyejxKm9A-vfBD8eYibERC_snObcKg_cGspdjB4MP5HZXogug-hHS0Vs1VDG1pDCLD8JzOuCOXZpjKxY4jLtQ1WCt2vDIFQU79dyzwOL1wA0804mEH9baan-PsWMJZEt5oGQ6FrTiFptCv-9ieNi82BhJtLrgtYbiGxpok71mao8NkjEJuM3DcgukvVUTYVMJWOuuP8eEnxO4PPQXDTGr45XDxiJXOnHRXjgvcG5dYj2fiV0O7Fnxf0qObd1xyXMs0QWceaSYFyCx9EFwDBbMud66VuYvi-tu8pwmtDAKIHUcT4cda-sv-ZhmHREhKU4-SJYk18a9w.jpg" width="400"><br>
-
-تصاویر دریافتی از نزدیک‌تر: 'آتش‌سوزی حوالی میدان قیام تهران'
-چهارشنبه ۲۰ خرداد
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76156)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-11 02:26:01
-
-<img src="https://cdn1.telesco.pe/file/a-jFXr2u1aL7GHod3oVt7jUVnKEbe4OIswVGAdik1rVvtiCC7-Z9nxM_6YwKlXW0tOxRND1EST7WuYfJ50szrHEwdcA6INJwk-vExpPx_ywcXAVhQJ_dzxsWmZNqtAXc4ogL-raApN90vUsY2EJJsZnlt32G2PBf25YSRejqz4scKoAWMCcRt90jAVcP2ZxXXq-mOlVs-LPMiFvJNzlII9LeQHd0iaI0MNJ4neO-Ni0kidBXFvzwPnIxaRvNKkJAHvt6PB3_kdgbLZwX_SaJm5mphRJM3cSgfBCYHX3ybJQXttoc5l7tanJ2WYHKoxujHPe39GH8wSPSQHgu6V3d4A.jpg" width="400"><br>
-
-تصاویر دریافتی از ستون دود سیاه و غلیظ حوالی مرکز
-#تهران
-منابع حکومتی نوشته‌اند: "یک انبار کالا حوالی میدان قیام در منطقه ۱۲ تهران دچار
-#آتش‌سوزی
-شده است."
-چهارشنبه ۲۰ خرداد
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76151)
 
 ---
 
