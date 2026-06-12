@@ -3,7 +3,179 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
+
+<img src="https://cdn1.telesco.pe/file/sI585Om7DBVbZdihlFA2EXlCYE-tRTMarUAdufgRjDRBivMetye2lJj_5lsoGyupXvur4vwUb110xYICI_3U_MB7IRXmM5qnDgNWbj1zhCdzC0Gt0wPVcnrOJZOW0cJr68zDSYoMPIjJMlKBrXJUDAqYvMGcSKOaOv2kZ1cNioIsHrGaMW3nkaTRFYqJJWDYZ8CWBC_Gpaz3d5BtM5tf3KdsGwU51u4Ny26zrfvOznYwEiBid71XeNicCjZb9C5p2Uf_fKZ6wyTnJ0CqU4NZkLFC_Xz1wWNnvkMwZywoNy-6OT5KgwvvrKLYQvPxKSBYA7U3SlCId0ufnQICmfFiyg.jpg" width="400"><br>
+
+خبرگزاری فارس در انتقاد از
+توییت عراقچی
+نوشته:
+عراقچی نه‌تنها مستقیماً ادعای ترامپ درباره «جعلی بودن» مفاد منتشرشده را رد نکرد، بلکه با درخواست از رسانه‌ها برای پرهیز از گمانه‌زنی، عملاً فضایی ایجاد کرد که می‌توان آن را تأیید غیرمستقیم نادرست بودن برخی اخبار تلقی کرد.
+آیا موضع‌گیری او نوعی عقب‌نشینی یا هماهنگی با روایت ترامپ است؟ در شرایطی که ترامپ مدعی عذرخواهی خصوصی ایران شده
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76280)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 21:59:42
+
+
+
+مقام آمریکایی: به احتمال زیاد توافق طی چند روز آینده امضا می‌شود
+پست‌های خبرنگار نیوزنیشن در کاخ سفید،
+ترجمه ماشین:
+🚨
+اکنون یک مقام ارشد دولت ترامپ جزئیات بیشتری درباره توافق پیشنهادی با ایران ارائه می‌کند.
+آن‌ها انتظار دارند این توافق طی «چند روز آینده» امضا شود.
+صددرصد قطعی نیست، اما احتمالاً ۸۰ تا ۸۵ درصد احتمال دارد که طی چند روز آینده امضا شود.
+این توافق «اهداف اصلی»‌ای را که رئیس‌جمهور برای این مأموریت تعیین کرده بود محقق می‌کند.
+نخست، تنگه را بازگشایی می‌کند و محاصره را برمی‌دارد.
+🔻
+برچیدن برنامه هسته‌ای ایران.
+دریافت مواد غنی‌شده توسط آمریکا: هم در محل نابود می‌شود و هم از کشور خارج می‌شود.
+ایرانی‌ها دیگر خشونت در منطقه را تأمین مالی نخواهند کرد.
+یک نظام بازرسی که اطمینان دهد این یک تعهد بلندمدت و قابل اجرای بلندمدت است.
+🔻
+پرسش درباره «حجم دارایی‌هایی که در صورت پایبندی ایران آزاد خواهد شد».
+به گفته مقام ارشد دولت: وقتی ایرانی‌ها «به تعهدات خود عمل کنند، می‌توانند در ازای این عملکرد، امتیازاتی دریافت کنند.»
+🔻
+پرسش دوم: چه چیزی تغییر کرده؟ چه چیزی باعث شده این توافق نسبت به قبل ملموس‌تر باشد؟
+-«ما به مرحله‌ای رسیده‌ایم که متن را به جایی رسانده‌ایم که از آن احساس خوبی داریم.»
+-«ما متن یک یادداشت تفاهم را داریم که فکر می‌کنیم هر دو طرف نسبت به آن احساس خوبی دارند.»
+-«ما احساس می‌کنیم کنترل ایرانی‌ها بر تنگه هرمز تضعیف شده است.»
+🔻
+مقام ارشد دولت: «چه تضمینی داریم که ایرانی‌ها به سهم خود از توافق پایبند بمانند؟ ما هیچ امتیازی نمی‌دهیم مگر اینکه آن‌ها به سهم خود از توافق پایبند بمانند.»
+این مقام ارشد دولت درباره یادداشت تفاهم با ایران می‌گوید: «متن را به نقطه‌ای رسانده‌ایم که هر دو طرف آن را می‌پسندیم.»
+به گفته مقام ارشد دولت، اگر آن‌ها بتوانند به آن پایبند بمانند، می‌توانند ظرف «چند روز آینده» به توافق برسند.
+آیا رهبر عالی ایران این توافق را، به شکلی که شما شرح دادید، تأیید کرده است؟
+مقام ارشد دولت می‌گوید: «افراد در طرف غیرنظامی و نظامی... شهادت داده‌اند/اطمینان داده‌اند که رهبر عالی از جایگاه فعلی آن‌ها در مذاکرات رضایت دارد.»
+🔻
+مذاکرات فنی ۶۰ روز طول خواهد کشید.
+KellieMeyerNews
+در پست دیگری هم نوشت:
+🚨
+مقام ارشد دولت به من می‌گوید که در ۲۴ ساعت گذشته، همه از ونس گرفته تا ویتکاف و کوشنر و ترامپ، به‌همراه هگست، روبیو، وایلز و رتکلیف، در مذاکرات مربوط به ایران دخیل بوده‌اند.
+KellieMeyerNews
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76279)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 21:59:42
+
+<img src="https://cdn1.telesco.pe/file/nRnOi0LjWvKgqVKuIoniOGcst16lwC8jU7sCMfIfbRjONt2JqulmBAEb8A6OLrvl63mb4w7UNDJ8dCQg7Xr35VbWB1dBBS4R5FrZiAVtYKII6RLxQuRaEgSfvJJZ1Lxd6JzL44W_hhJuN0nOiW63hhQoecC9yAbMC4x0bq_RcZKCDjemDS-cDT3ksTt22zZQMvV2OlvihpdjvFrHmilhF4DEE1gR7wNPKgS81Asy0QYe537nPimxixl60RHRBN4Nw3C19kDAZheDbE0Mhaza9MMviVFY-RTxmNQVQgH5J8BfFmMEhbEE-Nycu5PEAAj7AnpHHMEagZSLP2fIacCwNg.jpg" width="400"><br>
+
+یسرائیل کاتز، وزیر امور خارجه اسرائیل، روز جمعه ۲۲ خرداد، با انتشار پیامی در شبکه اجتماعی ایکس اعلام کرد که هرچند رئیس‌جمهوری آمریکا بر اساس منافع واشنگتن و هدف مشترک با تل‌آویو، یعنی جلوگیری از دستیابی ایران به سلاح هسته‌ای، به سمت یک توافق حرکت می‌کند، اما اسرائیل انتظارات فراتری دارد. کاتز تاکید کرد: «از رئیس‌جمهوری آمریکا انتظار داریم این اصل و شروط دیگر در حوزه موشکی و گروه‌های نیابتی را حفظ کند».
+او با اشاره به اینکه ضربات سنگین مشترک، توانمندی‌های ایران را سال‌ها به عقب رانده است، افزود: «اسرائیل باید تضمین کند که در آینده نیز توانایی اقدام مستقل برای جلوگیری از هسته‌ای شدن ایران را دارد؛ به همین منظور، من و بنیامین نتانیاهو به ارتش دستور آمادگی لازم را داده‌ایم.»
+وزیر خارجه اسرائیل همچنین به عنوان درس اصلی از وقایع ۷ اکتبر تصریح کرد که این کشور به هیچ وجه از مناطق امنیتی در لبنان، سوریه و غزه عقب‌نشینی نخواهد کرد و ارتش به دفاع از مرزها در برابر تهدیدات جهادی از بلندی‌های حرمون تا عمق غزه ادامه می‌دهد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76277)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 21:59:42
+
+<img src="https://cdn1.telesco.pe/file/OxatahxcP2oxvEYdI5Dfilq-1bF3YUzQx2Hv3dqUdPFgBl-9LFb8-g-UGIUeiDEMNoxrpRSgkg6qXBPvy2Fl-aGWXtLziIxUEMBH89zHVyOv5Nr2TznSjFeumRs9bK1yn_rP_IDxosndA51C6g892bIl19IoHQOdepS5EWWjXn4gWYDHs3j-CU08SeuD81Av5og2eAIKf1Yj1rmL_bRDkCvyUGntPn3j5_PcCk_KW1bW6G8sXrsK9RrnhpyaNQ7NiPMEExeWklyYQiNtM6me1anQ3Vtutp_K-k7WJnjpNRSSpMqCwZOrj1nMIbvqkpllmGYmG1RKdw3zEAhjfgWi-w.jpg" width="400"><br>
+
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس شورای اسلامی، در ایکس نوشت: با مشاهده‌ی متن توافق باید اعلام کنم، نسبت به دو نسخه‌ی قبلی، خسارت بارتر و عقب‌نشینی‌های ایران نیز بیشتر شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76275)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 21:59:42
+
+<img src="https://cdn1.telesco.pe/file/KPBPFBI4Oaw247qqoJuIHRZVcI9ehKoRN9vKHBNBGK2cF1gpVTL4nEokvcDyCc1uruvu4kHdYfGVKrHuIjE2Sn1grwpvKodFRCLzYKZr1oprBNgbijwH-kJrs7vi5Z7gS24PUAq5pjHXYbrAyjz95hGCKk4u2M5GANwOz7TM63a4G6S6rIytTwbFttBEIolDa2H1xQ3zdcic_gGN6cqs3grxZLIcANCNuHrANns_5Yb2KlEnuug356aNckjHKdtJgBG9fpyoyW3jTJB4euU5eJjeiLUqefB_SNfR1c1Kc0ryBeFcXKY3EY_crmHXpurCxgSx9V3oBZsRlVPSSbDIGg.jpg" width="400"><br>
+
+سی‌ان‌ان به نقل از یک مقام ارشد دولت ترامپ گزارش داد توافق با جمهوری اسلامی شامل برچیدن برنامه هسته‌ای ایران و پایان دادن به حمایت مالی تهران از گروه‌های تروریستی است.
+سی‌ان‌ان به نقل از مقام ارشد دولت ترامپ افزود که جمهوری اسلامی با «برچیدن برنامه هسته‌ای، نابودی و خروج مواد هسته‌ای، آزاد نشدن دارایی‌ها تا زمان اجرای تعهدات، باز ماندن تنگه هرمز و توقف حمایت مالی از گروه‌های تروریستی» موافقت کرده است.
+مقام ارشد دولت ترامپ گفت مقام‌های جمهوری اسلامی پیش‌تر گفته بودند بدون آزادسازی دارایی‌ها توافقی را امضا نخواهند کرد و بارها از گفت‌وگو درباره حمایت مالی از گروه‌های تروریستی خودداری کرده بودند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76274)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 21:59:42
+
+<img src="https://cdn1.telesco.pe/file/II_H72jltUoNKUZYcFw6YRRhLzOCnEZ1WAEU0G5ol91GyuH6GorYLq6wxP4KZSp7JOB0lhQjCUJu_vM6It-K-vPK8j1cyXaUlccYh_3LN_jIYkDKLktu9JElKaakks_HtDgSVely_oPDWKkHASn8U4BBpNP7RXQcL4trTHOOfhwaYnYqSDBj_JTvS0O0Sm7OhXTWcyrAIs7ra4vsEdHT1sgbIsqP1YnU_qDC28g5VgxcI5v6IDOad7d_47DwJr1hKNQT5tRMl8kRc8QqsBQ1krAkvYjM6tGOq0uAFsBbp0U0EpTiQD56odIJuMPp-NRNmDNC4ocqNpCTOJc13JZqig.jpg" width="400"><br>
+
+اکسیوس گزارش داد دونالد ترامپ،
+پیام عباس عراقچی در شبکه ایکس
+را «بسیار مثبت» ارزیابی کرد و گفت معتقد است توافق با جمهوری اسلامی می‌تواند در آخر هفته یا روز دوشنبه امضا شود.
+اکسیوس همچنین به نقل از ترامپ نوشت که جمهوری اسلامی به صورت خصوصی بابت انتشار «اطلاعات نادرست» عذرخواهی کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76273)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 21:59:42
+
+<img src="https://cdn1.telesco.pe/file/PW2WtP3yRCfvWR6cXpqhtjsdk1GyMM2sTZXmzBC__AFhjrQH9wR3pkJ2AkTWw0CmO38U6LkZFfuez56lya5fFuQRhDZrQTR7ai2uJyyFF3hqyCYZULEIkzwmvJwJY7XLkrOhcOJokQeh79_pz2_boPC346aqV7tCzEtDQiJsXPmdTl5qjuE-v1B_3sbQ7ZQGEVDrmUWduF9DT7cEQdp5xYlQBvgIVKkM2ssw6CwyQLDZ-5zpMvbEgrnT99UNGkJgYj2Cyc-IKGzSffTnHJR9MlZaCZ_tQXtpDIljn1qTWTiY595NvwobM9qUhIBQq50q4PFttEJdKWfbDoVMHUjwsw.jpg" width="400"><br>
+
+امیرحسین ثابتی، عضو مجلس شورای اسلامی، نوشته:
+طبق اطلاعات به دست آمده متن توافق احتمالی بدتر از برجام است/ چنین توافقی نه گشایش اقتصادی می‌آورد و نه جلوی جنگ را میگیرد
+دوشنبه شب در تجمع مردم در میدان مجتهدی طرشت حاضر شدم و توضیح دادم که دشمن به دنبال نابودی ایران است، چه از طریق جنگ و چه از طریق مذاکره و کسانی که هنوز هدف دشمن را نفهمیده و فکر میکنند با توافق با امریکا میشود دشمن را سرجایش نشاند، بدیهیات اتفاقات اخیر را هم نفهمیده‌اند.
+سپس گفتم طبق اطلاعاتی که تا این لحظه از متن توافق احتمالی به دست آورده‌ایم توافقی ضعیف‌تر از برجام در راه است که خطوط قرمز رهبری در آن رعایت نشده و نه باعث گشایش اقتصادی میشود و نه امنیت کشور را تامین میکند.
+در پایان نیز تبیین کردم که اگر بخواهیم امنیت مان را حفظ کنیم باید بیشتر از همیشه آماده جنگ باشیم وگرنه با ژست مذاکره و گفتگو و تن دادن به توافق به هر قیمت امنیت کشور نیز در دراز مدت مخدوش خواهد شد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76272)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 21:59:42
+
+<img src="https://cdn1.telesco.pe/file/h_GZXoHzQGK3MQQmPql2uH3V07oHoDY9sbBHjb0lDOXWoUBLEpxQAjxZ5LnT2mwfLZeIufM2a3i6aC3kgU8LkRbsEP7SwPh-rdU5kpnugtP-ggQ7njJklYKWBAtcTF6Olp6X236jo_I1nm26ZsBr6l22mnCzqDcjP0oGmvQNJhLDAt5AkhvxcHMto9LyYml28c3EJo_PbuPKC7rpvPinHZ8RdqY92UYFbwQ2F7qRu6HwSTNJt0vSvnnOHrDNa2qaSqNBCz13z7QLl6bXP20IwwL47WlB1s1JneBpLiexqqjkKgZIw7QCxNpKSyrhiGEDElozDC5V4RKkruvqTtPBhw.jpg" width="400"><br>
+
+شهباز شریف، نخست‌وزیر پاکستان در پستی در ایکس نوشته است «در میانه تلاش‌های فشرده میانجی‌گرانه پاکستان، ما کاملاً از کارزار بی‌وقفه انتشار اطلاعات نادرست که از سوی طرف‌هایی که با هدف خراب کردن توافق صلح انجام می‌شود، آگاهیم. با کنار گذاشتن این حاشیه‌ها، می‌توانیم تأیید کنیم که متن نهایی و مورد توافق حاصل شده است و پاکستان اکنون به‌طور نزدیک با هر دو طرف برای نهایی‌سازی مراحل بعدی همکاری می‌کند.»
+او نوشته است:«صلح هرگز تا این حد نزدیک نبوده است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76271)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
 <img src="https://cdn1.telesco.pe/file/dwyOCuKEtL186EgrfeOTu2HKAxmMtHmuMvxSd2AcAAS8sspfz5b-YnMU4rFbiHZkE0irXI53DE6uCcgIKSwWLx0sxEv5jGu4DiKWmR3A1tB6Z-D2-BvQ93AZQqA57Eo69QMtATTC7x80935njdh__jwGT2sYGWoMUHBy7QbuXsXougDHOtfjrVOB7DYaaZXxQx_ctuzYwNoZCo1R9-nQtQ9K75MHUealBqYna2mtNvFTce4TLuqHQJhG6B_MTNZZOqQf3jv977ed6z0NCI0ezjJQISA6v5N0RukVCv-0y_mO9E2PUHpltQHJ3wQbKHxQmrkt23PCVQByWvJlrxw68g.jpg" width="400"><br>
 
@@ -20,7 +192,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
 <img src="https://cdn1.telesco.pe/file/KS4MdsPm-XJEnOR_RTT0SmJzx0ACUlnOHYBUwoEEU6N6F-4ZjlEES6fI_M6GptUQFbKjM5V9SXbDD5BInIF9ej4EqfOi3OmxGFUBMMkLAhPLZ4Yp-UegtBM5pKwFZvQTfDg6bU3GpayrbLH8K-6wRdFOlxHlmwqnRmFlIROc4d3Bixxlsti4RqzdSCJcHEbvUB5pThE7nha1cU-EaSP8GQYNRHNWaUEXyK0acRJo2CkFQMVyPqV7DKm8CoQ80kB2dRvC0cX7vsTKxj69F9itZhcXNT52pLo_KijWpZZ6XNEBRL03tBaSTel6V23PSMlYbMQ7PW9PqvJiaQchUzHFbQ.jpg" width="400"><br>
 
@@ -48,7 +220,7 @@ iranintl
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
 <img src="https://cdn1.telesco.pe/file/n0E4RoXqWBYQHLgFnOpnAfA-MtT86te4Ic1RrJkccrU1Nhu3iihptS5VFhDdAnri7XtYqjSHSm_gk8Bsg8-jnJVUtupQKzWjwGi4kbJHdX27u86MFHnX0UNEsoAxpmdDjOIOahuESxKK-czZLjitYfRChgBBUs1qHBWR7cU4uYrAWeteWVZeocDINmGQtOptMa2ufZCSPH8ve1Tx3fPEhlz37Vj5jfVN2tiyO8059QMptNrWCUv4qGjPkIrOcsf2sbwPczgG6ChC1jvAzWK1kSz2kPmw7D2Xi5HDQhK1PiYN8GCfYnqGgkw6IQHjANWIuaBQoxSJpDBISot0rAb_7w.jpg" width="400"><br>
 
@@ -66,13 +238,14 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
 <img src="https://cdn1.telesco.pe/file/XIL98dqGeF7GiAqVrpkjRI59HnqpaijdZwLj5timIvTIBldo_xcgen2w0aqSA8ApmDVaPZ-9Y6oIeepdJAHAaZvGYcLoDVmHx-CznHdNiw9uaaWhnyznnzS-tq2SmgnDz_YEOU6aWQQCrZx6bIkkkeTcPYDLDEHNRP75rOh_GqG7FLRIJ-4WGMsWNXoFXDvxbrFheB5xWfaWg8pkxAw8AYSIsPX19gDVEEW9C--gZWEZspdwNbnXauH6Vka-L4N8ag8jeuC9QybwNrNGtYd8SSKGImCgRSOIy5IB4KE0b0gXlRSfZ5C6whR0kyLnVJ_vFjOhIAhKFh-mNvYZ-e0Mlw.jpg" width="400"><br>
 
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز جمعه گفت که «یادداشت تفاهم اسلام‌آباد» برای پایان دادن به جنگ آمریکا و اسرائیل علیه ایران، «هیچگاه تا این حد به نهایی شدن نزدیک نبوده است».
-او با انتشار بیانیه‌ای در شبکه ایکس در عین حال از رسانه‌ها خواست تا زمان تکمیل و نهایی شدن آن، از گمانه‌زنی درباره محتوای این توافق خودداری کنند.
-عراقچی افزود که ایران در زمان مناسب، تمامی جزئیات این توافق را با افکار عمومی در میان خواهد گذاشت؛ اقدامی که به گفته او در چارچوب رویکرد مسئولانه و شفاف تهران صورت خواهد گرفت.
+توییت عراقچی، ترجمه ماشین:
+یادداشت تفاهم اسلام‌آباد هیچ‌گاه تا این اندازه نزدیک به نهایی‌شدن نبوده است. تا زمان نهایی‌شدن آن، رسانه‌ها باید از ورود به گمانه‌زنی درباره محتوای آن خودداری کنند.
+در راستای رویکرد مسئولانه و شفاف ما، همه جزئیات در زمان مقتضی با افکار عمومی در میان گذاشته خواهد شد.
+araghchi
 ساعتی پیش، دونالد ترامپ،‌ رئیس‌جمهور آمریکا، از آنچه درز دادن مواردی از توافق به رسانه‌ها توسط ایران خواند انتقاد کرد و اعلام کرد موضع جمهوری اسلامی درباره توافق «هیچ نسبتی با واقعیت ندارد».
 @
 VahidHeadline
@@ -85,7 +258,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
 
 
@@ -97,17 +270,15 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
-<img src="https://cdn4.telesco.pe/file/TtmgFn9Xl3MGqO33kBRxTImNubuSm2gW9D3t_qTigHapBEWk20h3GxP38C_Ih3Oi-TV6-OIbnYg3o7s7gUDTqAVd1WsU8_4m1CjfZbZXpdZRhLxHSD95UfI5VQKkKbzDi2FuglT1RRc_IIGpYIFyreWukUpAMgaBgxso7PV5AOyIc0FovQ-J3bE5ISjTd5rewSkmdM3kxgS8M4BZXBrN6KP6t1Vb3E3IGeebimCWgrWsj-WRdY8EhqQSe3M7fkEkgiOxMHX9Fh_55YMnkh0kXas7w2Ooye_4Wvar_ii_fxrfbfaQkCwyeFeazMJsblzVZTTznQRq7nSGmL0EcWAdTg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Trm-EZtXAViiwvza8O7DEdlFaP2pBSwGWvJFX5KmDD0lVl0qAzNh3wE9sP9bZQzWupfOjfc5lW2TqT-EO0Ilr4qNleragbTnrKeI-4aAU2O7zWyyyDIhejW-Y_ejbwpHclFnNPDHY0qS0i4h3Zkq27s7sq8WoCXPyT6EYBfJL6lGOMSpWxN_CSCBv_kTaMXuUWEMriK0M0-8eJ1WXxR1MKIOi8fuTrtplQErBOtaKV5m2RCalOr8g7Q4tPKQ8vqr_qesvSlBEPrCWUlqFJKZwCwEXXmFERzImjNchFOby3e7UGD1Ty-w_CM2NQpqxJ6Tr3isujmzTwZ1sdC5-MkEsA.jpg" width="400"><br>
 
-♦️
-تنها یک روز پس از اعلام نهایی شدن توافق با ایران، دونالد ترامپ مقامات تهران را «بدقول و بی‌شرف» (Dishonorable) خواند و آن‌ها را به ارائه اطلاعات نادرست از مفاد توافق متهم کرد.
-ترامپ در شبکه اجتماعی «تروث سوشال» نوشت: «شرایطی که ایران به رسانه‌های جعلی درز داده، هیچ ارتباطی با توافقی که به صورت مکتوب بر سر آن موافقت شده بود، ندارد. بیانیه ضعیف و رقت‌انگیز آن‌ها درباره توافق، فرسنگ‌ها با حقیقت فاصله دارد. معامله با این افرادِ بی‌اعتبار فایده‌ای ندارد؛ در قاموس آن‌ها چیزی به نام حسن نیت وجود ندارد.»
-این خشم ترامپ پس از آن برانگیخته شد که رسانه‌های دولتی ایران، گزارش‌هایی از «خطوط کلی توافق احتمالی» منتشر کردند و مدعی شدند که جمهوری اسلامی مدیریت تنگه هرمز را واگذار نخواهد کرد و آمریکا باید ۲۴ میلیارد دلار از دارایی‌های بلوکه‌شده ایران را آزاد کند.
-ترامپ در پایان پیام خود، تداوم هدف قرار گرفتن کشتی‌ها در تنگه هرمز توسط ایران را «کاملا غیرقابل قبول» دانست و هشدار داد: «بهتر است رفتارشان را اصلاح کنند، آن هم سریع!»
-@
-VahidOOnLine
+پست ترامپ، ترجمه ماشین:
+شرایطی که ایران به رسانه‌های اخبار جعلی درز داده، هیچ ربطی به شرایطی ندارد که به‌صورت مکتوب بر سر آن توافق شده بود. آنچه آن‌ها گفتند، از جمله بیانیه ضعیف و رقت‌انگیزشان درباره داشتن یک توافق، هیچ نسبتی با حقیقت ندارد. طرف‌های بسیار بی‌شرافتی برای معامله هستند. با آن‌ها چیزی به نام معامله با حسن‌نیت وجود ندارد. شگفت‌انگیز است!
+همچنین حمله پهپادی کاملاً دفع‌شده آن‌ها در شب گذشته علیه کشتی‌های هندی که در حال خروج از تنگه هرمز بودند، کاملاً غیرقابل قبول است. بهتر است هرچه زودتر خودشان را جمع‌وجور کنند، آن هم سریع!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
 📡
 @VahidOnline
 
@@ -117,16 +288,14 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
-<img src="https://cdn1.telesco.pe/file/XjJR0Y9jgSkcy9bSSpjLhnsdR_gee_rayNtIm6puDZkxA4j7rqYqLQ3ozzI76x6Xj4HWWkpqLb79AjMBIlaDrb86DSE7Nls8HMjZhXR13LQ8FenhjEN8oRYDXUACdpN-wCHT_96N--pEeOXY5zkD128aPWtlQ78bbvV3OHyysTd5rwWvJt1Ep_lIk1cexMAcQabf37o8kbGmza3zG6Jo0l2h90wlCFxmglSeDJers3438hPm7A1NSyDc_WYidrUPv8ulH6e616lApyZpX6f2HFtBs2ljJUTx13_7px-oyPRf9Gs-q3q4q1Ln98uxZFjkxhHYuVGOK2Ss8VUHUHIigw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QTtCRv7fGgQrThJrc_7WF9oinyofqWjIWQrixuD9-skFkO9ySlAIizankcTwbgIE3_7tiRuxmjZlWzq0dUtTlNd4agRlklRy1zXVa7iAOyt1fp9-Lw6o9bw2jEdGVg3_OhqxLP4TF8Ulci6MKBPWkYSOllphzoclU7kzYv-so75mMWHqgBIlFqkSNyNP6tHl6jkth85tYsi_q7mxW83SBuhBKJk0UKiqTgJQ-oEzhTOa9CKKauCSKvQ0ggcjudUfx019z5xzjZZigvCWvGRD5PehjFG99fQ8-eG0c3helEGyxCPNhmxxfscvE3EIgxXo1XcdZfFrMyXTAI99p6EcBA.jpg" width="400"><br>
 
-دونالد ترامپ در شبکه تروث سوشال نوشت مفادی که جمهوری اسلامی در اختیار رسانه‌ها قرار داده، هیچ ارتباطی با مفادی که به صورت مکتوب بر سر آن توافق شده ندارد.
-ترامپ اضافه کرد: «آنچه آن‌ها گفته‌اند، از جمله بیانیه ضعیف و رقت‌انگیزشان درباره توافق، هیچ ارتباطی با واقعیت ندارد.»
-رییس جمهوری ایالات متحده مقام‌های جمهوری اسلامی را «بسیار بی‌آبرو» خواند و افزود با آن‌ها چیزی به نام مذاکره با حسن نیت وجود ندارد.
-ترامپ همچنین گفت حمله پهپادی شب گذشته جمهوری اسلامی به کشتی‌های هندی که در حال خروج از تنگه هرمز بودند، «کاملا غیرقابل قبول» بوده و افزود: «آنها باید خیلی سریع اوضاع را سامان دهند.»
+«حبیب‌الله سیاری»، معاون هماهنگ‌کننده ارتش، در گفتگویی با تلویزیون حکومتی جمهوری اسلامی تایید کرده است که از سرنوشت خلبانانی که در جنگ اخیر به قطر حمله کردند اطلاعی در دست نیست.
+در این گفتگو که شامگاه پنجشنبه ۲۱خرداد۱۴۰۵ از تلویزیون جمهوری اسلامی پخش شد، سیاری درباره خلبانان یک یا چند فروند جنگنده سوخو ۲۴ متعلق به ارتش ایران سخن می‌گوید که به پایگاه العدید در قطر حمله کردند.
 @
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -136,7 +305,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
 <img src="https://cdn4.telesco.pe/file/YXQa3iHIoqzVnFElgqATxCV3phPpW1_-tingTo1QUD-z4uyfSBAi0vusqAd7ZpT9x5d4-rcI3rsONhzE-L8eljdCHDC3djCsRi4XY39km-Xh3Mp2Q2rPXpVHcH3DrIS6PMQX4tfOsZyq1c0peyigMjqiWkVLpovn7WJH6jKutmOR_2msoaM3yzuCb0v7k81EhwwGtCNZPnMiay8RJqYsQfqg3U7YCAGSjPSFcIZf9QdiEjTY53_PJabo2a3lIgdFQEOpnylhceAos7wT0NDjxsx3ROrD0xfenT-juA98kx6u_cr-lggnfo2nIrVigUluXcwEKnDAHw0QC1ik9BnNWQ.jpg" width="400"><br>
 
@@ -154,7 +323,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
 <img src="https://cdn4.telesco.pe/file/Dc-jCFAfTdi0vqlD4Lz_aTL7mil6U4zpv387gSb1lPHcTcD5PtMRuPaZhEyc6yusnh0vCTW2j5f4x--4JWc4o7gDvjgazx4vVgJDi4Fw40ioJ2b91DUKc9St67Sk8Kl3Pqk3cee20HEaBfdXB3BUqeyaN3E8rhpmusfisraXdkZTfcffWir2z8Y6nBZpiNUwnDOs0rvMm73LHwJaNhS6Q3-ROjZvi9dLpYcPo1O8rV2KnkxRDaUXqUXXjCBRID8O4I3-4c8LG8UAk-p1a-FYf2wF67IT83Bn-XwWQiHiK9QLIWKWgqSOW-wZMIPXqb98jzMS-Nuvk2rUaHcd9VUpOw.jpg" width="400"><br>
 
@@ -186,7 +355,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 20:04:52
+###### 🔵 Updated at: 2026-06-12 21:59:42
 
 <img src="https://cdn4.telesco.pe/file/OeXB9WU4zTJXmf6KpUFrP5uizTzd9MGcnp970tqc0Rw6iIJJWLdkLTen-DBDkSi4BLVKXNAN3-Z4RUfqS7RSAtv8h8IZXERXnKO6m0xnwHsHM6wFKn0xeRJckhx087Ocg7Y9_tOL-AcWIWazVxQ7BMKY51bkH2rWZM3rB0gYVD_ND5KWbVbGK009mkAjhQmx3aJaBqOjQVD5SgtH2PWSn6YkSdnO-McmcC3Lv-iJ6ZO4z8Xr_CC6qv6Yod8S98nc1jEC0-5FEmb4HGVDWANuPtdVKw8HCJ1y3lpiAKPP11XNS2e6sHVEYkNe4JHiN-xt8i_QNa5OVgAIbEEBrSSuqw.jpg" width="400"><br>
 
@@ -201,259 +370,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76260)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-<img src="https://cdn1.telesco.pe/file/STkaalMGl2JwinFrVJoXL8_nOGfyNrKs3AU5m9JdsH_Qr2Bx8nl9VQYFrKSQggA6GAnCY4UHSQprvCIT4DWWbAF_KFX6_WmWIeEAOxY4Xcgcr0xGaIr4gBOn5hOv_oAm16naY2ji_iPB2dLopXCQF4VZHGRVgntHAYmHsAeaD1G37larGdrFyZZSixUYT7ngjvblwpMRi0A7RVIKa1CVY1wFAVzcJ3u6qUrnCvyDHMowWeli1eownUvRlcTHjkiu4t1CH-fgivZlxtrlISSIx3dhWvQJ9hA0MtbA-dRzWqh_IgsfJISzDGsk8l0-hkVE4-3-jCOmlz0uVv0P_-9jAw.jpg" width="400"><br>
-
-خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، جمعه ۲۲ خرداد به نقل از «منبع نزدیک به تیم مذاکره کننده ایرانی» جزئیات جدیدی از پیش‌نویس تفاهمنامه ۱۴ ماده‌ای ایران و آمریکا را منتشر کرد.
-بر اساس این گزارش تهران متعهد می‌شود به دنبال ساخت سلاح هسته‌ای نرود و در مقابل، برخی امتیازهای اقتصادی از جمله تسهیل صادرات نفت و بررسی آزادسازی بخشی از دارایی‌های مسدودشده را به دست می‌آورد.
-مهر به نقل از این مقام گزارش داد که پس از امضای احتمالی این تفاهم‌نامه، مذاکرات جامع‌تری به‌مدت ۶۰ روز آغاز خواهد شد و موضوعات پیچیده‌تر از جمله سطح غنی‌سازی اورانیوم، ذخایر اورانیوم غنی‌شده و جزئیات رفع تحریم‌ها مورد بررسی قرار می‌گیرد.
-براساس این گزارش ۱۴ محور تفاهمنامه احتمالی تهران و واشنگتن شامل موارد زیر است:
-۱- توقف دائمی و فوری جنگ در همه جبهه ها از جمله لبنان
-۲- تعهد آمریکا به مداخله نکردن در امور داخلی ایران
-۳- رفع کامل محاصره دریایی ظرف ۳۰ روز
-۴- تعهد آمریکا به خروج نیروهایش از پیرامون ایران
-۵- بازگشایی تنگه هرمز ظرف ۳۰ روز به وسیله ایران
-۶- تعلیق تحریم های فروش نفت، محصولات پتروشیمی و مشتقات و دسترسی کامل ایران به منابع مالی آن.
-۷- لزوم ارائه طرح های بازسازی ایران حداقل به مبلغ ۳۰۰ میلیارد دلار توسط آمریکا و متحدانش
-۸- ۶۰ روز مذاکره برای رسیدن به توافق نهایی مبتنی بر موضوعات هسته‌ای و لغو کامل تحریم‌های اولیه، ثانویه، آمریکا و قطعنامه‌های شورای امنیت سازمان ملل و شورای حکام آژانس بین المللی انرژی اتمی
-۹- تعهد ایران برای تداوم عضویت در پیمان «ان پی تی» مبنی بر عدم تولید سلاح هسته ای
-۱۰- در دوره مذاکرات آمریکا متعهد شده به نیروهای خود در منطقه اضافه نمی کند و تحریم جدیدی هم وضع نخواهد کرد.
-۱۱- آزادسازی ۲۴ میلیارد دلار اموال مسدود شده ایران در دوره ۶۰ روزه مذاکرات نهایی. نیمی از این مبلغ قبل از شروع مذاکرات باید در دسترس ایران قرار گیرد.
-۱۲- تشکیل سازوکار نظارتی برای اجرایی کردن توافق احتمالی
-۱۳- تایید توافق نامه نهایی توسط قطعنامه شورای امنیت سازمان ملل
-مهر به نقل از این «مقام آگاه» گزارش کرد که در بند آخر توافقنامه احتمالی، دوطرف تفاهم می‌کنند، مذاکره نهایی قبل از آزادسازی نیمی از اموال مسدود شده ایران، تعلیق تحریم‌های نفتی و رفع محاصره دریایی آغاز نشود.
-دونالد ترامپ، رئیس جمهوری آمریکا شامگاه پنجشنبه گفته بود که به محض امضای توافق، محاصره دریایی پایان می‌یابد و تنگه هرمز باز می‌شود.
-به گزارش مهر، توافق نهایی صرفا در موضوع سرنوشت اورانیوم‌های غنی شده و غنی سازی، رفع تحریم‌ها و «برنامه بازسازی اقتصاد ایران انجام می‌شود» و بحث درباره برنامه موشکی و حمایت از گروه‌های نیابتی «به صورت قطعی از دستور کار خارج شده است».
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76259)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-<img src="https://cdn4.telesco.pe/file/coOtx7-N7x8kd3dqKP2qJ7mLgRZPsgzF0JHqvMx1qV7ztbu5I6Z04bgGbv9kFhUO4zyvoocXs5iw2HuFK0bHAghbEjG8W1c8VYQY0P_7B9_NSJjjFn7BqbtBdWGZLEUQ7rkYsAUokN-6cDqktnaGlVmt54FyafPN5MRRDxFeIYjSaF0wfc03NItKOI4MkMJPJjucnkw71oOOY6dgG8X7b-je9uzqWF7NOY_GWJR6vuPX_UqbcTdtA97iOXrM4FUpl8yP0RVRdUsj00rKaGQlhUEgauRqkAiELFERy4w1Ych5CK3OsPAJqalbTbBcf-q-bPOYNTFRpFcDMZAUQ9YvoA.jpg" width="400"><br>
-
-«امیر احمدوند» ۳۹ ساله، شامگاه ۱۸ دی‌ماه ۱۴۰۴ در نزدیکی کلانتری رشید در تهران هدف شلیک گلوله قرار گرفت و جان خود را از دست داد. او متأهل بود و همسرش در زمان کشته‌شدن او سه ماهه باردار و در شرایط استراحت مطلق قرار داشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76258)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-<img src="https://cdn1.telesco.pe/file/ZFQ70kPrrn0uybPU33dhsIkIv1sQtD-19-CK8TPYNzG5FSMUamjyhicHS7FQnArLdur9yy8Gtqqp_GY9HZ0KRAP-mdzz8nThJcveHnZRd4iAmJwGsLhYxuqfmZLrlr8IypWQtFSZf3FeclfjGuWUFw5oaCEfnkkrmsbDBGmr56OCVp-K3xmJ00ex-zif1GU65fhoee5EV7EbHOpMJ-pCGv-MK7d_dEOxRz6RciYOALRpLW-3aQPuEDyvCDGNNVozyGsLe20g5bd1SZPkDfqrthArrPj1EVKQQcBFn8xAJovko2_GALitUJR1bpEnkRFb5o0uFV87YqjU5a0j2PCdFA.jpg" width="400"><br>
-
-به گزارش پولتیکو، اندکی پس از آنکه دونالد ترامپ، رئیس‌جمهوری آمریکا، صبح پنجشنبه در پیامی اعلام کرد که قصد دارد ایران را «امشب به‌طور بسیار سختی هدف قرار دهد»، رهبران کشورهای حوزه خلیج فارس و جنوب آسیا در تلاشی آخرین‌دقیقه‌ای با او تماس گرفتند تا نظرش را تغییر دهند.
-آنها به او اطمینان دادند که یک توافق اولیه که مسیر را برای مذاکرات جزئی‌تر هموار می‌کند، در واقع در دسترس است.
-به نوشته پولتیکو، این تماس‌ها که پیش‌تر گزارش نشده بودند، به گفته دو مقام دولت آمریکا و یک دیپلمات مطلع از این تماس‌ها، از سوی تمیم بن حمد آل ثانی، امیر قطر، محمد بن زاید آل نهیان، رئیس امارات متحده عربی و عاصم منیر، رئیس دفاع پاکستان انجام شد.
-هر سه منبع به دلیل حساسیت موضوع دیپلماتیک با شرط ناشناس ماندن با پولتیکو  صحبت کردند.
-ترامپ سپس در تروث سوشال اعلام کرد که ممکن است یک توافق در چند روز آینده امضا شود.
-@
-VahidOOnLine
-این رسانه نوشت گفت‌وگوها شامل بازگشایی تنگه هرمز و دسترسی ایران به بیش از ۱۶ میلیارد دلار منابع مالی بوده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76257)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-<img src="https://cdn1.telesco.pe/file/OUclA8DazQfpdStF9SWN5jkqDtDMatwUpP1T0otm1cJf1X-f9FXapHHkzfxt5Q5RTHRWhjJok_Q6LpGpbpyJg5WAQEnZ8b2iPAVQEspBsSwV-KnWb7UxHUxxxVfAYtze4Qddcc70XuTXN_p_m31xRRMGHf914kCwN5G1uhWWfBgWzvdYF0SFNe_DZdY0c-2EGChtD-SLNsbGsj4bQk3yxPw8tVpN3YgS0snG3lq7EKq7RHLYtaFAHKAIRSjH5vJOvcgyyHoJdizWgl_TKaT2_ncvasPvmf2YoCTN9z2ldeDpxs42vW8w5ayfKDfv2ZRB5UX1OUSyBNzqXNJRTzebTg.jpg" width="400"><br>
-
-به گفته یک مقام ارشد دفاعی ایالات متحده، ترافیک کشتی‌های تجاری در تنگه هرمز پنجشنبه شب پس از آنکه جمهوری اسلامی ایران پهپادهایی را به سمت کشتی‌هایی که از این آبراه استراتژیک عبور می‌کردند، شلیک کرد، آشکارا مورد تهدید قرار گرفت.
-به گزارش فاکس‌نیوز این مقام گفت: «به نظر می‌رسد جمهوری اسلامی امشب تلاش کرده است به کشتی‌های تجاری که از تنگه هرمز عبور می‌کردند، حمله کند. نیروهای آمریکایی دو پهپاد تهاجمی یک‌طرفه ایرانی را سرنگون کردند.»
-این مقام گفت که علیرغم این حملات، ترافیک دریایی از طریق تنگه ادامه دارد.
-این تحول ساعاتی پس از آن رخ داد که دونالد ترامپ گفت توافقی با جمهوری اسلامی ممکن است ظرف چند روز امضا شود و تنگه هرمز به عنوان بخشی از این توافق بازگشایی خواهد شد.
-در پی شنیده شدن صدای چندین انفجار در سواحل جنوب ایران، پیشتر خبرگزاری فارس وابسته به سپاه پاسداران به نقل از «منابع محلی» در بندرعباس گفت که نیروهای جمهوری اسلامی به یک نفتکش که «بدون هماهنگی» وارد محدود تنگه هرمز شده بود اجازه عبور ندادند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76256)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-<img src="https://cdn1.telesco.pe/file/D8rDbeKMr6Ljf2ZOO0aex9V0VFnRR3tVZbU9lco0iKMI84wTG66XT6WI5RoKEpS_0p-SZobagjimugBanDz6gRPNuYDvXhfY3Zvpet8PskRrhSQHoWikw3-SNBHHg6zplcUpqtv2EnvTNNJCdofEIiVnsu27NCt1H5qokAT65OVb_tLY3pxbuyTHHTQ0ZSSp4EgfFMTQqLIFT4UCx1Y5EEJVCnc4R1_t1poo_9rwuoG1i4p7j93xznuQlTKh2GOo9katy_xsddHGpISqlBQoNvQfqfTbxYP-1x1yo5cZVZw_o1t7zJ6DZRt_cDFrWDS2yC6cK4mo46tjegfXDRmQUA.jpg" width="400"><br>
-
-زمین‌لرزه به بزرگی ۳/۱ در پردیس
-شرق استان تهران
-عمق: ۱۰ کیلومتر
-پیام‌های دریافتی:
-سلام من فاز یازده پردیس هستم همین الان زلزله وحشتناکی اومد اینجا، کل خونه شد گهواره
-سلام آقا وحید
-یه زلزله عجیب اومد همین الان دماوند سقف میلرزید نه زمین
-سلام پردیس تهران زلزله
-۳
-ریشتر
-میشد شایدم بیشتر
-سلام  زلزله آمد لواسان
-ساعت 3 و ربع خونمون لرزید . رودهن
-بی صدا بود
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76255)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-
-
-ترامپ: امروز جنگ با ایران را پایان دادیم.
-و آن‌ها موافقت کرده‌اند که هرگز سلاح هسته‌ای نداشته باشند.
-چیزی که ما روی آن اصرار داشتیم.
-این کل هدف بود. این ۹۵٪ ماجرا بود.
-در جریان گفتگوی تلفنی برای حمایت از نامزد انتخابات سنا در ایالت آلاباما
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76254)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-<img src="https://cdn1.telesco.pe/file/AeIvxbC4ZeqsHc_Z7ufwJUUDCsfnZOYUmnCVR8TxT4qCdyxTZl8pLycT9XKcXxfaRuTVMZVhRBMAm8QBgvQHPJQI5z4eq9wvbnjMWdEdPLMwmzDryRamziKsNqkor1z1k2HmR7XB_B9lSuWJGDh_L3SpZbU3EVtVD0ZuTgREUxSg6QEzkk-GA6qA-PKlCHKvEPX6yl-Xg792XVJMdrW6cIHA6n3mbUhD0C3F8o6k8TRrDv2Rly6kIonfGx4MKb2OnH-agf1JdEBOHkV-8JU5HziZMcl0iHFSmBnZvIqVSRbiQvHLTYeUhJJYTnnLVGbi3vAWS6cBJqkK1f4-dsY_rg.jpg" width="400"><br>
-
-شبکه العربیه بامداد جمعه ۲۲ خردادماه به نقل از منابع خود گزارش داد پیش‌نویس مفاد نهایی توافق میان آمریکا و جمهوری اسلامی شامل تمدید آتش‌بس به مدت ۶۰ روز و بازگشایی تنگه هرمز است.
-به گفته منابع العربیه، مذاکره‌کنندگان در طول این دو ماه برای دستیابی به یک راه‌حل سیاسی دائمی تلاش خواهند کرد. این منابع افزودند مذاکرات هسته‌ای بر سازوکارهای راستی‌آزمایی، روندهای بازرسی و محدودیت‌های آینده متمرکز خواهد بود و در همین دوره درباره اورانیوم غنی‌شده با غلظت بالا نیز گفتگو خواهد شد.
-به گفته منابع العربیه، آمریکا دسترسی به بخشی از دارایی‌های مسدودشده حکومت ایران را تسهیل خواهد کرد و در چارچوب توافق، کاهش و لغو بخشی از تحریم‌ها را دنبال خواهد کرد. این منابع همچنین گفتند آزادی کشتیرانی بر پایه توافق میان آمریکا و جمهوری اسلامی احیا خواهد شد و گفتگوها درباره لبنان و امنیت منطقه‌ای نیز پس از توافق ادامه می‌یابد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76253)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-
-
-ادعای خبرگزاری فارس:
-ایران اجازۀ عبور نفتکش متخلف از تنگۀ هرمز را نداد
-🔹
-پیگیری خبرنگار فارس در بندرعباس از منابع محلی نشان می‌دهد دقایقی قبل نیروهای ایران اجازۀ عبور یک نفتکش متخلف که بدون هماهنگی وارد محدودۀ تنگه شده بود را ندادند.
-🔹
-گزارش‌های مردمی نیز از شنیده شدن صدای سه انفجار در فاصله حدود دو کیلومتری ساحل از سیریک حکایت دارد.
-صدا و سیما:
-یک منبع آگاه نظامی تایید کرد صداهای انفجار شنیده شده در شهرستان سیریک مربوط به مقابله با یک فروند شناور متخلفی است که قصد عبور از تنگه هرمز را داشت
-براساس اعلام این مقام نظامی؛  شناوری که دقایقی پیش مخل نظم دریانوردی اعلام شده بود یک فروند نفت کش است که با اخطار نیروی دریایی سپاه ناچار به رعایت قانون منع تردد در تنگه هرمز شد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76252)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-
-
-ادعای تسنیم: آمریکا از اصلاحیه‌های اخیر خود کوتاه آمده!
-خبرگزاری تسنیم، وابسته به سپاه، نوشته:
-متن تفاهم تا این لحظه در مراجع ذی‌صلاح  ایران به تایید نهایی نرسیده است
-▪️
-پیگیری‌های خبرنگار تسنیم از منابع مطلع حاکیست: آخرین تحول رخ داده این است که فشار نظامی و دیپلماتیک آمریکا برای تغییر در متن ۱۴ ماده‌ای پاسخ نداده و آمریکا از طریق واسطه قطری اعلام کرده است که نیازی به اصلاحیه‌های اخیر آمریکا نیست.
-▪️
-به گفته این منابع، ترامپ طی روزهای اخیر با شروع به فشار و تهدید و اقدام نظامی و از طریق دیگر با فشار میانجی قطری تلاش کرد تا از دو سو مواضع ایران را تغییر دهد که در نهایت ایران تغییرات جدید را نپذیرفت.
-▪️
-با این حال این متن همچنان نیازمند بررسی و نهایی شدن در نهادهای ذیربط در ایران است و تا آن زمان سایر گمانه زنی‌ها و خبرها، معتبر نیست.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76251)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 20:04:52
-
-
-
-"خبرگزاری مهر" وابسته به سازمان تبلیغات اسلامی، در پستی نوشته:
-♦️
-شنیده شدن صدای انفجار در نزدیکی ساحل سیریک؛ جزئیات همچنان مبهم
-🔹
-منابع محلی در استان هرمزگان از شنیده شدن صدای انفجاری در دریا، حدود دو کیلومتری ساحل سیریک، خبر می‌دهند. هنوز علت و منبع این صدا تأیید نشده است.
-🔹
-منابع محلی در منطقه سیریک (استان هرمزگان) می‌گویند صدای انفجاری در دریا، در فاصله حدود دو کیلومتری ساحل، به گوش رسیده است.
-🔹
-هنوز از ماهیت و علت این انفجار اطلاعات دقیقی در دست نیست، اما با توجه به دستورالعمل‌های مربوط به بسته بودن تنگه هرمز، این وضعیت احتمالی می‌تواند در همین راستا باشد.
-🔹
-با این حال، این فرضیه تاکنون به طور رسمی تأیید نشده است و‌ خبرنگار مهر در تلاش است تا جزئیات بیشتری را از مقامات محلی و رسمی پیگیری کند. /مهر
-"خبرگزاری  صدا و سیما" هم بعدش در سه پست نوشت:
-خبرنگار صداو سیما در سیریک:
-دقایقی پیش صدای انجار در سیریک شنیده شد.
-🔹
-منشا و‌ مکان آن هنوز مشخص نیست.
-🔺
-منابع خبری از شنیده‌شدن مجدد صدا در محدوده دریایی سیریک خبر دادند
-🔺
-ماهیت و علت انفجارها در سیریک  هنوز بطور دقیق مشخص نشده اما برخی منابع آگاه آنرا مرتبط با مدیریت و بسته نگه داشتن تنگه هرمز می‌دانند.
-آپدیت ۱:۱۰
-پست تازه خبرگزاری مهر:
-♦️
-تکرار صدای انفجار در محدوده دریایی سیریک؛ علت هنوز نامشخص
-🔹
-منابع خبری مهر تأیید کرده‌اند که بار دیگر صدای انفجار در محدوده دریایی سیریک، در استان هرمزگان، به گوش رسیده است.
-🔹
-هنوز ماهیت و علت دقیق این انفجارها مشخص نشده، با این حال براساس اخبار رسیده به خبرنگار مهر احتمال می‌رود که این رویدادها با سیاست‌های مربوط به بسته نگه داشتن تنگه هرمز در ارتباط باشد.
-🔹
-پیش از این نیز منابع محلی از شنیده شدن صدای انفجاری در دریا، در فاصله حدود دو کیلومتری ساحل سیریک، خبر داده بودند.
-🔹
-با این حال، هیچ‌یک از این فرضیه‌ها تاکنون به طور رسمی تأیید نشده است.
-آپدیت ۱:۱۵
-تسنیم: سیریک نیست. سمت دریا است.
-یک منبع در استانداری هرمزگان به تسنیم کفت:
-🔹
-تا این لحظه هیچ اصابت پرتابه و درگیری در سیریک وجود نداشته است.
-🔹
-صداهای شنیده شده از سمت دریا و مرتبط با تنگه هرمز است.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76250)
 
 ---
 
