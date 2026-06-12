@@ -3,7 +3,50 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
+
+<img src="https://cdn1.telesco.pe/file/ZFQ70kPrrn0uybPU33dhsIkIv1sQtD-19-CK8TPYNzG5FSMUamjyhicHS7FQnArLdur9yy8Gtqqp_GY9HZ0KRAP-mdzz8nThJcveHnZRd4iAmJwGsLhYxuqfmZLrlr8IypWQtFSZf3FeclfjGuWUFw5oaCEfnkkrmsbDBGmr56OCVp-K3xmJ00ex-zif1GU65fhoee5EV7EbHOpMJ-pCGv-MK7d_dEOxRz6RciYOALRpLW-3aQPuEDyvCDGNNVozyGsLe20g5bd1SZPkDfqrthArrPj1EVKQQcBFn8xAJovko2_GALitUJR1bpEnkRFb5o0uFV87YqjU5a0j2PCdFA.jpg" width="400"><br>
+
+به گزارش پولتیکو، اندکی پس از آنکه دونالد ترامپ، رئیس‌جمهوری آمریکا، صبح پنجشنبه در پیامی اعلام کرد که قصد دارد ایران را «امشب به‌طور بسیار سختی هدف قرار دهد»، رهبران کشورهای حوزه خلیج فارس و جنوب آسیا در تلاشی آخرین‌دقیقه‌ای با او تماس گرفتند تا نظرش را تغییر دهند.
+آنها به او اطمینان دادند که یک توافق اولیه که مسیر را برای مذاکرات جزئی‌تر هموار می‌کند، در واقع در دسترس است.
+به نوشته پولتیکو، این تماس‌ها که پیش‌تر گزارش نشده بودند، به گفته دو مقام دولت آمریکا و یک دیپلمات مطلع از این تماس‌ها، از سوی تمیم بن حمد آل ثانی، امیر قطر، محمد بن زاید آل نهیان، رئیس امارات متحده عربی و عاصم منیر، رئیس دفاع پاکستان انجام شد.
+هر سه منبع به دلیل حساسیت موضوع دیپلماتیک با شرط ناشناس ماندن با پولتیکو  صحبت کردند.
+ترامپ سپس در تروث سوشال اعلام کرد که ممکن است یک توافق در چند روز آینده امضا شود.
+@
+VahidOOnLine
+این رسانه نوشت گفت‌وگوها شامل بازگشایی تنگه هرمز و دسترسی ایران به بیش از ۱۶ میلیارد دلار منابع مالی بوده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76257)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 09:47:47
+
+<img src="https://cdn1.telesco.pe/file/OUclA8DazQfpdStF9SWN5jkqDtDMatwUpP1T0otm1cJf1X-f9FXapHHkzfxt5Q5RTHRWhjJok_Q6LpGpbpyJg5WAQEnZ8b2iPAVQEspBsSwV-KnWb7UxHUxxxVfAYtze4Qddcc70XuTXN_p_m31xRRMGHf914kCwN5G1uhWWfBgWzvdYF0SFNe_DZdY0c-2EGChtD-SLNsbGsj4bQk3yxPw8tVpN3YgS0snG3lq7EKq7RHLYtaFAHKAIRSjH5vJOvcgyyHoJdizWgl_TKaT2_ncvasPvmf2YoCTN9z2ldeDpxs42vW8w5ayfKDfv2ZRB5UX1OUSyBNzqXNJRTzebTg.jpg" width="400"><br>
+
+به گفته یک مقام ارشد دفاعی ایالات متحده، ترافیک کشتی‌های تجاری در تنگه هرمز پنجشنبه شب پس از آنکه جمهوری اسلامی ایران پهپادهایی را به سمت کشتی‌هایی که از این آبراه استراتژیک عبور می‌کردند، شلیک کرد، آشکارا مورد تهدید قرار گرفت.
+به گزارش فاکس‌نیوز این مقام گفت: «به نظر می‌رسد جمهوری اسلامی امشب تلاش کرده است به کشتی‌های تجاری که از تنگه هرمز عبور می‌کردند، حمله کند. نیروهای آمریکایی دو پهپاد تهاجمی یک‌طرفه ایرانی را سرنگون کردند.»
+این مقام گفت که علیرغم این حملات، ترافیک دریایی از طریق تنگه ادامه دارد.
+این تحول ساعاتی پس از آن رخ داد که دونالد ترامپ گفت توافقی با جمهوری اسلامی ممکن است ظرف چند روز امضا شود و تنگه هرمز به عنوان بخشی از این توافق بازگشایی خواهد شد.
+در پی شنیده شدن صدای چندین انفجار در سواحل جنوب ایران، پیشتر خبرگزاری فارس وابسته به سپاه پاسداران به نقل از «منابع محلی» در بندرعباس گفت که نیروهای جمهوری اسلامی به یک نفتکش که «بدون هماهنگی» وارد محدود تنگه هرمز شده بود اجازه عبور ندادند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76256)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 <img src="https://cdn1.telesco.pe/file/D8rDbeKMr6Ljf2ZOO0aex9V0VFnRR3tVZbU9lco0iKMI84wTG66XT6WI5RoKEpS_0p-SZobagjimugBanDz6gRPNuYDvXhfY3Zvpet8PskRrhSQHoWikw3-SNBHHg6zplcUpqtv2EnvTNNJCdofEIiVnsu27NCt1H5qokAT65OVb_tLY3pxbuyTHHTQ0ZSSp4EgfFMTQqLIFT4UCx1Y5EEJVCnc4R1_t1poo_9rwuoG1i4p7j93xznuQlTKh2GOo9katy_xsddHGpISqlBQoNvQfqfTbxYP-1x1yo5cZVZw_o1t7zJ6DZRt_cDFrWDS2yC6cK4mo46tjegfXDRmQUA.jpg" width="400"><br>
 
@@ -30,7 +73,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -38,7 +81,7 @@
 و آن‌ها موافقت کرده‌اند که هرگز سلاح هسته‌ای نداشته باشند.
 چیزی که ما روی آن اصرار داشتیم.
 این کل هدف بود. این ۹۵٪ ماجرا بود.
-در گفتگوی تلفنی با برت جونز، نامزد جمهوری‌خواه انتخابات فرمانداری ایالت جورجیا در آمریکا
+در جریان گفتگوی تلفنی برای حمایت از نامزد انتخابات سنا در ایالت آلاباما
 📡
 @VahidOnline
 
@@ -48,7 +91,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 <img src="https://cdn1.telesco.pe/file/AeIvxbC4ZeqsHc_Z7ufwJUUDCsfnZOYUmnCVR8TxT4qCdyxTZl8pLycT9XKcXxfaRuTVMZVhRBMAm8QBgvQHPJQI5z4eq9wvbnjMWdEdPLMwmzDryRamziKsNqkor1z1k2HmR7XB_B9lSuWJGDh_L3SpZbU3EVtVD0ZuTgREUxSg6QEzkk-GA6qA-PKlCHKvEPX6yl-Xg792XVJMdrW6cIHA6n3mbUhD0C3F8o6k8TRrDv2Rly6kIonfGx4MKb2OnH-agf1JdEBOHkV-8JU5HziZMcl0iHFSmBnZvIqVSRbiQvHLTYeUhJJYTnnLVGbi3vAWS6cBJqkK1f4-dsY_rg.jpg" width="400"><br>
 
@@ -66,7 +109,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -88,7 +131,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -110,7 +153,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -162,7 +205,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 <img src="https://cdn1.telesco.pe/file/clBgUYYPFvTA9cOh1WAdPWXR5fKQvVjeHW_chgySiinVBSiU6FqcsQvt_QvDSFuHI1Ci00BhBHdAcygkjOmtRUQCo7AAiUTx2k_ykSPLgaAt4ijumHLqT2Ur1jLh1IAe0hsZVIZZ4Ib45jPHa-1DsFsXxcDxWCPsas8-YaHPtgrFe8omGX47dvzJkpMXBDZSywX0hHghGfcUIgm-zBP9UIbnKUYsZpWTKPHPUABtVm30KOevkag3muO6EYVg2wsig1pJWnWJmW7yJLDOgdl-OUyVIvTJ6pw-90v8ztRl5cz72-h8hBG3nS8AtZhcoe8ymFmlrrSzhincucmAVqDXkQ.jpg" width="400"><br>
 
@@ -177,7 +220,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -194,7 +237,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 <img src="https://cdn1.telesco.pe/file/H2For9TcrBxGg-QTyyhz3mPcj-oqnM5dfhKPgHYkIiE8_A5Z4cwl5_P_jFYP1NIV3HdXliMyXva4F4desYp-x8c7k8-xabeySgdUQfi8MQxGa_rywX30nElNrT3WewIU3xJ8-QWBPdG4jtsKLUAfwP2A0apIMX6GFGufP87RHBxz5egtpnJy9oabhtMNWwm_i2J7Q-U6MBZyYx7qKSKCVEe62FIm-u9odG6U94PGgG3AynHEGvA2gNHZneR4q4quGlzEz4xSsUq_zAi4hr2XGYsCLTkheZt9CkgK-IsR5iSuYjktNXq-zsJUKJiBozVUf4mUmHswr2XppHYKUb1SAA.jpg" width="400"><br>
 
@@ -213,7 +256,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 <img src="https://cdn1.telesco.pe/file/ZKZ9FgazCMI-37vkapYKzBOAQuaFOAlGwQt7UGfgDPgN30fOtFh-IavLwOh1BeaZFHmIF2RmGb03GT6IQnlOEuqWU1i4YtuZwJpSbgImpagyOxC6jv4eDow2nAhPKW2josMPqAhBUhE4TO8PHf5uKqu5BGq1t-jxKi2Ux8Y84jXJiAozYeUy_lXUdrRekh1zOu6A5ZEBb4_gMOzh9igR-CI2sp28au1B8f-zcvw0_ANgDaSSqG_wge3aoe16GmyYhH8WMrwma7r_N8beO1ZPvzdkNce_xYhqz4ry8TDSDer3p5ikJlSBxc_Jn4qL7v9s2nH-xLnfr4sPg7X3q9WCFw.jpg" width="400"><br>
 
@@ -240,7 +283,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -256,7 +299,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -270,7 +313,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -291,7 +334,7 @@ KellieMeyerNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -305,7 +348,7 @@ KellieMeyerNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -328,7 +371,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 
 
@@ -344,7 +387,7 @@ CBSNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 <img src="https://cdn1.telesco.pe/file/VziLtV-rpY5K7SHT7QZonW3DeDgz71Fj2JtXCe6a0Q6u8HxHz9Nlpi5Hkut5fecGqrxI3nVhjGtgf77Zvz6uygTTTN7dcUmioqsazzEUi3MXmWdRB9L29nQpjIYILJJUTg75Y1wTvuG3bKv3X6iRSlyOIcxSCGbQwGKtBqoACe_h9b7YQi2XrYnaww6v0iWPBLJ2uKA2WahZGtcQ4k-9AP5e0wDHumW7q_Bkz3S0WY_2eLVr15uSJc7Mp3OzZKCnml0Cmnq1H2jiLiBewfo6tYktNN4zgrPLGWLZ10urwgDNDpIMMfmLWZHGp1eRgWiOMk7jpuLFs5S-x8iOL531Pw.jpg" width="400"><br>
 
@@ -363,7 +406,7 @@ CBSNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 05:07:48
+###### 🔵 Updated at: 2026-06-12 09:47:47
 
 <img src="https://cdn1.telesco.pe/file/fqf-lFwGdg_D6lJgHS6pg1ryP1YloIWXagPunoNoTBEY_cNflZqF39RNEPD7hK6UxpytOnlp5S09N2HR1VU_powUeTwrxr62oEgohAxF2lOHyIXz6uSh0JDU-nE9lXHwEUmNbm36ywXIwJk4an1FZPGNXEKcPhd9no_Dislj-34xDp_iGujvNY3PAsB3G9X9-WoUOWotaXQnww1XXewJVdb3jpougB6FKvkzaZtZQhHSK65ei_BHqZF-Tc4yFZ6PufYRLmBBEjnfflHP76K2Kuk7RBjFTRgc2vwejGHLkm5eE1WrEc3sXuneAlu90uZ5F-NEbVAa5EPYoUGxPoME2g.jpg" width="400"><br>
 
@@ -376,38 +419,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76238)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 05:07:48
-
-
-
-نیویورک‌تایمز: ‌قبل از لغو حملات برنامه‌ریزی‌شده به ایران در روز پنج‌شنبه، ترامپ با میانجی‌گران پاکستانی صحبت کرد که به او گفتند با ایران «توافقی» دارند.
-clashreport
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76237)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 05:07:48
-
-<img src="https://cdn1.telesco.pe/file/NSBFsh3qmPE3J-8zI1KJy430wOHjV2-whQi4EYxgg8Q_P05rm271MGPMtQ3PIEJJImlsbYUWRC2N0dDDPxagJHSO20VzEHk5-sOS0dBbKWGWHuYv_yZ67Z4kzZ9FtaXv6s2xXBkRmFA4KtddhO3hThyeJrCUxPrwE7VY5F_gHE7RPsRxJEBLu5sn2Y6pM_Ba0lgw2yG4A-Ouq9Yd-pq2pcjD2PNug1nguVTm5uMr-yh8IvIKBx1aIzh9GTk7t6tgAG5s-r4HWJwcdQbhv9AqGcbplZ1vw_X5lZQl_bAkZKqyzycaK5HXU319GyDDjqXbOgxcCpCHuhzCDJhhIEsxUw.jpg" width="400"><br>
-
-سی‌ان‌ان به نقل از یک منبع اسرائیلی گزارش داد پست دونالد ترامپ در تروث سوشال درباره نزدیک بودن توافق با تهران، بنیامین نتانیاهو را غافلگیر کرد؛ در حالی که او در میانه یک نشست امنیتی درباره ایران حضور داشت.
-سی‌ان‌ان افزود که این کشور از وجود هرگونه توافق قریب‌الوقوع با جمهوری اسلامی یا تایید آن بی‌اطلاع بوده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76236)
 
 ---
 
