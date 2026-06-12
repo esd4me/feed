@@ -3,7 +3,71 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
+
+<img src="https://cdn4.telesco.pe/file/VSJXhq2y_0DHvR1_ohpUigwNjVzavAVl9TQvUeNmlYKNyqV6BjVk0gW8ErzOhiP0Ft-hXplfJcQhtdglpOrzZXHaDVrk5msUElf3DCCd7txoOAI9_jSNfDtpCJ30dYpAHaRJ3HqHDbeABQJTsqLlmB8rizC0dPHH2SpYvDx2J7JbqAvwlUK1BKjMmBq1Udf9CZPfLuQC7dk9s9OYPjsjUgFn8CY97oY21AsSzHCVvLjKGaFwzKJPrdKUkZG5I3tGycRYb4M4LEt71SQIuxazqEqd3hHmAaVXvsvZkMCowNx0z5D9H0WuZLbqcNkhgqZ3UAO0Fksa98SpsRAWItmD8A.jpg" width="400"><br>
+
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، شامگاه جمعه در یک برنامه زنده تلویزیونی اعلام کرد هنوز توافقی با آمریکا امضا نشده و مدعی شد که پرونده هسته‌ای ایران به مرحله دوم و نهایی این توافق موکول شده است.
+او در گفت‌وگو با تلویزیون حکومتی ایران گفت توافق احتمالی با ایالات متحده شامل دو مرحله است و «موضوع هسته‌ای را به مرحله دوم انتقال دادیم».
+این در حالی است که ساعتی قبل یک مقام ارشد آمریکایی به خبرنگاران گفت بر اساس توافق، قرار است اورانیوم غنی‌شده ایران در خاک این کشور نابود شود و سپس به خارج از ایران منتقل شود.
+با این حال وزیر خارجه جمهوری اسلامی با اشاره به اینکه نتیجه مذاکرات یک «یادداشت ۱۴ ماده‌ای» است اعلام کرد مفاد آن بعد از نهایی شدن اعلام می‌شود.
+وزیر خارجه ایران در گفت‌وگوی خود خبر داد که طبق تصمیم جمهوری اسلامی، «آینده تنگه هرمز و اداره آن مثل گذشته نخواهد بود‌» و ادعا کرد که ایران و عمان بیانیه مشترکی در مورد اداره این آبراه منتشر خواهند کرد.
+او در ادامه اذعان کرد که طبق قوانین بین‌الملل گرفتن عوارض از کشتی‌ها در تنگه هرمز امکان‌پذیر نیست و افزود: «اما هزینه خدمات دریافت خواهد شد و این در مذاکرات تثبیت خواهد شد.»
+عراقچی اعلام کرد طبق توافق، محاصره دریایی ایالات متحده علیه بنادر ایرانی به‌طور کامل رفع خواهد شد و دارایی‌های بلوکه‌شدهٔ ایران آزاد خواهد شد.
+مقام‌های آمریکایی آزاد شدن این دارایی‌ها را به دفعات رد کرده‌اند. جی‌دی ونس، معاون رئیس‌جمهور آمریکا ساعاتی پیش تصریح کرد بعد از امضای توافق، هیچ‌گونه منابع مالی در اختیار ایران قرار نخواهد گرفت.
+@
+VahidHeadline
+این رو هم گفته که:  اگر آخرین مرحله مذاکرات انجام شود تفاهم از راه دور به امضای دو طرف می‌رسد و اعلام خواهد شد. ممکن است در چند روز آینده اتفاق بیفتد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76283)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-13 00:06:48
+
+<img src="https://cdn1.telesco.pe/file/nFWFBG0UnS4Y6bcAS9lfg14CgP07h6TilLPbvFOiehYATqWVozSvgIyPBdLKHttqShMNZgnhoIHvexS1Ciuc81X6ZJsJUH3Pa9VsFOfuxM7w36AlbrvC8uxIYJdfRCzkk4Z-HdKYglVEznqzmLSD4w9khUkHGzQS5KuBHVNs_obc1_TzrFpR6HF-EuYV0W-tnkfI2qS6L7M0LMxfvJdvHXQPH8NWzR93z-Wtg1sY1BLMpaWar_SwVTiIKUPvnvJN35wDQSWJYgzBf_AZI-rnfDqXvWGDjSJUEA0Oxx91i8JUnLzacxXkm5Qbg2hwI9zwxqRaMV2CaDXSQu_mqpI21g.jpg" width="400"><br>
+
+توییت قالیباف، ترجمه ماشین:
+تعهداتی که داده می‌شوند باید عملی شوند؛ نه اما و اگری، نه عذر و بهانه‌ای. برای توافق نهاییِ پیشِ رو، راه دیگری وجود ندارد.
+هرچه بکاری، همان را درو می‌کنی.
+mb_ghalibaf
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76282)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-13 00:06:48
+
+<img src="https://cdn1.telesco.pe/file/JCCHACnQx4k2B8wN6VyaUdPGaBhy969vkOKda_8keLMnZnOl0GOLEs6aNmORPo5jlhNioXEbszniAdV0QaD1lgTi2rs5GSgNCsI9SIUabAypXSXPnS_U8rWQxYhXGxPSYw4Y0GjbxcPVZmNBQI1WdrK1het0MBibK0yOYo8f3wScsJb7elAEagCObpUk90unR9joo9YVZls-1nV10tLzmtTsdW6fJ4GWj9HIuyZQvq1fsl6S_6s6OYQGw3D6rw_dU_j1zRR9lzRnaScRDnKMM9l3tZSojHotZOufbvULpSCjEH-RZSM349hayEk-3xl5v6y6jIvvMFSaLqkBYS4_7w.jpg" width="400"><br>
+
+چهار منبع آگاه به رویترز اعلام کردند که امارات متحده عربی با آزادسازی میلیاردها دلار برای حکومت ایران موافقت کرده است.
+رویترز نوشت که این اقدام نشان‌دهنده تغییر تاکتیکی ابوظبی پس از هفته‌ها حملات حکومت ایران به این کشور ثروتمند عربی خلیج فارس در جریان جنگ آمریکا و اسرائیل با جمهوری اسلامی است.
+دو منبع منطقه‌ای به رویترز گفتند که امارات با آزادسازی مجموعا ۱۰ میلیارد دلار موافقت کرده است که
+بیش از ۳ میلیارد دلار آن تاکنون پرداخت شده است.
+دو منبع دیگر که از این توافق آگاهی دارند، مجموع مبالغ مورد نظر را ۲۰ میلیارد دلار اعلام کردند و افزودند که این اقدام در ازای توقف حملات حکومت ایران به امارات متحده عربی مورد توافق قرار گرفته است.
+یکی از این منابع نیز گفت که نخستین بخش به ارزش ۳ میلیارد دلار تاکنون در اختیار حکومت ایران قرار گرفته است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76281)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/sI585Om7DBVbZdihlFA2EXlCYE-tRTMarUAdufgRjDRBivMetye2lJj_5lsoGyupXvur4vwUb110xYICI_3U_MB7IRXmM5qnDgNWbj1zhCdzC0Gt0wPVcnrOJZOW0cJr68zDSYoMPIjJMlKBrXJUDAqYvMGcSKOaOv2kZ1cNioIsHrGaMW3nkaTRFYqJJWDYZ8CWBC_Gpaz3d5BtM5tf3KdsGwU51u4Ny26zrfvOznYwEiBid71XeNicCjZb9C5p2Uf_fKZ6wyTnJ0CqU4NZkLFC_Xz1wWNnvkMwZywoNy-6OT5KgwvvrKLYQvPxKSBYA7U3SlCId0ufnQICmfFiyg.jpg" width="400"><br>
 
@@ -21,11 +85,18 @@
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
+<img src="https://cdn1.telesco.pe/file/M9zrheW7FQ4ZbtyNSEvxm-KDZXIAPYlN3S3AbUptz0h-Fs7ljZJIsKQKDtBDj_I7amSpKsM82kvFvnQRDbfkx11IkBcG-b08mxnCaPoubgyQ4DZpv0X0-LzCWL7wyjl9uLx3Yn6XPSMNDnDgVzuISAEXmu8PJ38lN7aLEP5gkMTBEAxkSA647dGKj4_3eu24ttd5nmNAfpREg8kgYlk18hkOmds-47ESVJLXAt8vX61otrNWS_u9fS9BE54iBmcu_NQJCax579OmarHvSphfHUomRygBjeye6KGF3cJ0x4i2TnaJNU0I3ND8_0xKU-k3okLUQ8a9nDhks1NKA9phcQ.jpg" width="400"><br>
 
-
-مقام آمریکایی: به احتمال زیاد توافق طی چند روز آینده امضا می‌شود
+یک مقام ارشد آمریکایی روز جمعه در گفت‌وگو با خبرنگاران با اشاره به این که واشنگتن انتظار دارد توافق با ایران در روزهای آینده امضا شود، گفت یکی از مفاد آن نابودی و خروج ذخایر اورانیوم غنی‌شده ایران است.
+این مقام آمریکایی که به شرط ناشناس ماندن صحبت می‌کرد، اظهار داشت: «تیم مذاکره‌کننده ما را در موقعیت بسیار خوبی قرار داده است، اما باید ببینیم چه پیش می‌آید. هنوز کاملاً به خط پایان نرسیده‌ایم، ولی بسیار به آن نزدیک هستیم.»
+او گفت که مفاد مورد توافق، اهداف اصلی دونالد ترامپ، رئیس‌جمهور آمریکا، را محقق می‌کند و «در پایان، وضعیت را در جایگاهی بسیار بسیار مطلوب قرار می‌دهد.»
+این مقام افزود که مفاد آنچه «یادداشت تفاهم» نامیده می‌شود، شامل بازگشایی تنگه هرمز و لغو محاصره آمریکا علیه بنادر ایران است.
+به گفته او، ذخایر اورانیوم با غنای بالای ایران نیز در محل نابود شده و سپس از ایران خارج خواهد شد.
+این مقام افزود که مفاد توافق همچنین شامل یک رژیم بازرسی است تا اطمینان حاصل شود که اجرای آن در بلندمدت قابل راستی‌آزمایی و الزام‌آور خواهد بود.
+@
+VahidHeadline
 پست‌های خبرنگار نیوزنیشن در کاخ سفید،
 ترجمه ماشین:
 🚨
@@ -51,13 +122,10 @@
 مقام ارشد دولت: «چه تضمینی داریم که ایرانی‌ها به سهم خود از توافق پایبند بمانند؟ ما هیچ امتیازی نمی‌دهیم مگر اینکه آن‌ها به سهم خود از توافق پایبند بمانند.»
 این مقام ارشد دولت درباره یادداشت تفاهم با ایران می‌گوید: «متن را به نقطه‌ای رسانده‌ایم که هر دو طرف آن را می‌پسندیم.»
 به گفته مقام ارشد دولت، اگر آن‌ها بتوانند به آن پایبند بمانند، می‌توانند ظرف «چند روز آینده» به توافق برسند.
+مذاکرات فنی ۶۰ روز طول خواهد کشید.
 آیا رهبر عالی ایران این توافق را، به شکلی که شما شرح دادید، تأیید کرده است؟
 مقام ارشد دولت می‌گوید: «افراد در طرف غیرنظامی و نظامی... شهادت داده‌اند/اطمینان داده‌اند که رهبر عالی از جایگاه فعلی آن‌ها در مذاکرات رضایت دارد.»
-🔻
-مذاکرات فنی ۶۰ روز طول خواهد کشید.
 KellieMeyerNews
-در پست دیگری هم نوشت:
-🚨
 مقام ارشد دولت به من می‌گوید که در ۲۴ ساعت گذشته، همه از ونس گرفته تا ویتکاف و کوشنر و ترامپ، به‌همراه هگست، روبیو، وایلز و رتکلیف، در مذاکرات مربوط به ایران دخیل بوده‌اند.
 KellieMeyerNews
 📡
@@ -69,7 +137,7 @@ KellieMeyerNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/nRnOi0LjWvKgqVKuIoniOGcst16lwC8jU7sCMfIfbRjONt2JqulmBAEb8A6OLrvl63mb4w7UNDJ8dCQg7Xr35VbWB1dBBS4R5FrZiAVtYKII6RLxQuRaEgSfvJJZ1Lxd6JzL44W_hhJuN0nOiW63hhQoecC9yAbMC4x0bq_RcZKCDjemDS-cDT3ksTt22zZQMvV2OlvihpdjvFrHmilhF4DEE1gR7wNPKgS81Asy0QYe537nPimxixl60RHRBN4Nw3C19kDAZheDbE0Mhaza9MMviVFY-RTxmNQVQgH5J8BfFmMEhbEE-Nycu5PEAAj7AnpHHMEagZSLP2fIacCwNg.jpg" width="400"><br>
 
@@ -87,13 +155,18 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/OxatahxcP2oxvEYdI5Dfilq-1bF3YUzQx2Hv3dqUdPFgBl-9LFb8-g-UGIUeiDEMNoxrpRSgkg6qXBPvy2Fl-aGWXtLziIxUEMBH89zHVyOv5Nr2TznSjFeumRs9bK1yn_rP_IDxosndA51C6g892bIl19IoHQOdepS5EWWjXn4gWYDHs3j-CU08SeuD81Av5og2eAIKf1Yj1rmL_bRDkCvyUGntPn3j5_PcCk_KW1bW6G8sXrsK9RrnhpyaNQ7NiPMEExeWklyYQiNtM6me1anQ3Vtutp_K-k7WJnjpNRSSpMqCwZOrj1nMIbvqkpllmGYmG1RKdw3zEAhjfgWi-w.jpg" width="400"><br>
 
 محمود نبویان، عضو کمیسیون امنیت ملی مجلس شورای اسلامی، در ایکس نوشت: با مشاهده‌ی متن توافق باید اعلام کنم، نسبت به دو نسخه‌ی قبلی، خسارت بارتر و عقب‌نشینی‌های ایران نیز بیشتر شده است.
 @
 VahidOOnLine
+نبویان سپس در توییت دیگری با اسکرین‌شات پست ترامپ درباره توییت عراقچی نوشت:
+توافقی که با پخت و پز بانیان توافق ننگین برجام باشد، حتما
+#خسارت_محض
+است
+nabaviantwt
 📡
 @VahidOnline
 
@@ -103,7 +176,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/KPBPFBI4Oaw247qqoJuIHRZVcI9ehKoRN9vKHBNBGK2cF1gpVTL4nEokvcDyCc1uruvu4kHdYfGVKrHuIjE2Sn1grwpvKodFRCLzYKZr1oprBNgbijwH-kJrs7vi5Z7gS24PUAq5pjHXYbrAyjz95hGCKk4u2M5GANwOz7TM63a4G6S6rIytTwbFttBEIolDa2H1xQ3zdcic_gGN6cqs3grxZLIcANCNuHrANns_5Yb2KlEnuug356aNckjHKdtJgBG9fpyoyW3jTJB4euU5eJjeiLUqefB_SNfR1c1Kc0ryBeFcXKY3EY_crmHXpurCxgSx9V3oBZsRlVPSSbDIGg.jpg" width="400"><br>
 
@@ -121,7 +194,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/II_H72jltUoNKUZYcFw6YRRhLzOCnEZ1WAEU0G5ol91GyuH6GorYLq6wxP4KZSp7JOB0lhQjCUJu_vM6It-K-vPK8j1cyXaUlccYh_3LN_jIYkDKLktu9JElKaakks_HtDgSVely_oPDWKkHASn8U4BBpNP7RXQcL4trTHOOfhwaYnYqSDBj_JTvS0O0Sm7OhXTWcyrAIs7ra4vsEdHT1sgbIsqP1YnU_qDC28g5VgxcI5v6IDOad7d_47DwJr1hKNQT5tRMl8kRc8QqsBQ1krAkvYjM6tGOq0uAFsBbp0U0EpTiQD56odIJuMPp-NRNmDNC4ocqNpCTOJc13JZqig.jpg" width="400"><br>
 
@@ -140,7 +213,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/PW2WtP3yRCfvWR6cXpqhtjsdk1GyMM2sTZXmzBC__AFhjrQH9wR3pkJ2AkTWw0CmO38U6LkZFfuez56lya5fFuQRhDZrQTR7ai2uJyyFF3hqyCYZULEIkzwmvJwJY7XLkrOhcOJokQeh79_pz2_boPC346aqV7tCzEtDQiJsXPmdTl5qjuE-v1B_3sbQ7ZQGEVDrmUWduF9DT7cEQdp5xYlQBvgIVKkM2ssw6CwyQLDZ-5zpMvbEgrnT99UNGkJgYj2Cyc-IKGzSffTnHJR9MlZaCZ_tQXtpDIljn1qTWTiY595NvwobM9qUhIBQq50q4PFttEJdKWfbDoVMHUjwsw.jpg" width="400"><br>
 
@@ -158,7 +231,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/h_GZXoHzQGK3MQQmPql2uH3V07oHoDY9sbBHjb0lDOXWoUBLEpxQAjxZ5LnT2mwfLZeIufM2a3i6aC3kgU8LkRbsEP7SwPh-rdU5kpnugtP-ggQ7njJklYKWBAtcTF6Olp6X236jo_I1nm26ZsBr6l22mnCzqDcjP0oGmvQNJhLDAt5AkhvxcHMto9LyYml28c3EJo_PbuPKC7rpvPinHZ8RdqY92UYFbwQ2F7qRu6HwSTNJt0vSvnnOHrDNa2qaSqNBCz13z7QLl6bXP20IwwL47WlB1s1JneBpLiexqqjkKgZIw7QCxNpKSyrhiGEDElozDC5V4RKkruvqTtPBhw.jpg" width="400"><br>
 
@@ -175,7 +248,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/dwyOCuKEtL186EgrfeOTu2HKAxmMtHmuMvxSd2AcAAS8sspfz5b-YnMU4rFbiHZkE0irXI53DE6uCcgIKSwWLx0sxEv5jGu4DiKWmR3A1tB6Z-D2-BvQ93AZQqA57Eo69QMtATTC7x80935njdh__jwGT2sYGWoMUHBy7QbuXsXougDHOtfjrVOB7DYaaZXxQx_ctuzYwNoZCo1R9-nQtQ9K75MHUealBqYna2mtNvFTce4TLuqHQJhG6B_MTNZZOqQf3jv977ed6z0NCI0ezjJQISA6v5N0RukVCv-0y_mO9E2PUHpltQHJ3wQbKHxQmrkt23PCVQByWvJlrxw68g.jpg" width="400"><br>
 
@@ -192,7 +265,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/KS4MdsPm-XJEnOR_RTT0SmJzx0ACUlnOHYBUwoEEU6N6F-4ZjlEES6fI_M6GptUQFbKjM5V9SXbDD5BInIF9ej4EqfOi3OmxGFUBMMkLAhPLZ4Yp-UegtBM5pKwFZvQTfDg6bU3GpayrbLH8K-6wRdFOlxHlmwqnRmFlIROc4d3Bixxlsti4RqzdSCJcHEbvUB5pThE7nha1cU-EaSP8GQYNRHNWaUEXyK0acRJo2CkFQMVyPqV7DKm8CoQ80kB2dRvC0cX7vsTKxj69F9itZhcXNT52pLo_KijWpZZ6XNEBRL03tBaSTel6V23PSMlYbMQ7PW9PqvJiaQchUzHFbQ.jpg" width="400"><br>
 
@@ -220,7 +293,7 @@ iranintl
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/n0E4RoXqWBYQHLgFnOpnAfA-MtT86te4Ic1RrJkccrU1Nhu3iihptS5VFhDdAnri7XtYqjSHSm_gk8Bsg8-jnJVUtupQKzWjwGi4kbJHdX27u86MFHnX0UNEsoAxpmdDjOIOahuESxKK-czZLjitYfRChgBBUs1qHBWR7cU4uYrAWeteWVZeocDINmGQtOptMa2ufZCSPH8ve1Tx3fPEhlz37Vj5jfVN2tiyO8059QMptNrWCUv4qGjPkIrOcsf2sbwPczgG6ChC1jvAzWK1kSz2kPmw7D2Xi5HDQhK1PiYN8GCfYnqGgkw6IQHjANWIuaBQoxSJpDBISot0rAb_7w.jpg" width="400"><br>
 
@@ -238,7 +311,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/XIL98dqGeF7GiAqVrpkjRI59HnqpaijdZwLj5timIvTIBldo_xcgen2w0aqSA8ApmDVaPZ-9Y6oIeepdJAHAaZvGYcLoDVmHx-CznHdNiw9uaaWhnyznnzS-tq2SmgnDz_YEOU6aWQQCrZx6bIkkkeTcPYDLDEHNRP75rOh_GqG7FLRIJ-4WGMsWNXoFXDvxbrFheB5xWfaWg8pkxAw8AYSIsPX19gDVEEW9C--gZWEZspdwNbnXauH6Vka-L4N8ag8jeuC9QybwNrNGtYd8SSKGImCgRSOIy5IB4KE0b0gXlRSfZ5C6whR0kyLnVJ_vFjOhIAhKFh-mNvYZ-e0Mlw.jpg" width="400"><br>
 
@@ -258,7 +331,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 
 
@@ -270,7 +343,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/Trm-EZtXAViiwvza8O7DEdlFaP2pBSwGWvJFX5KmDD0lVl0qAzNh3wE9sP9bZQzWupfOjfc5lW2TqT-EO0Ilr4qNleragbTnrKeI-4aAU2O7zWyyyDIhejW-Y_ejbwpHclFnNPDHY0qS0i4h3Zkq27s7sq8WoCXPyT6EYBfJL6lGOMSpWxN_CSCBv_kTaMXuUWEMriK0M0-8eJ1WXxR1MKIOi8fuTrtplQErBOtaKV5m2RCalOr8g7Q4tPKQ8vqr_qesvSlBEPrCWUlqFJKZwCwEXXmFERzImjNchFOby3e7UGD1Ty-w_CM2NQpqxJ6Tr3isujmzTwZ1sdC5-MkEsA.jpg" width="400"><br>
 
@@ -288,7 +361,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-12 21:59:42
+###### 🔵 Updated at: 2026-06-13 00:06:48
 
 <img src="https://cdn1.telesco.pe/file/QTtCRv7fGgQrThJrc_7WF9oinyofqWjIWQrixuD9-skFkO9ySlAIizankcTwbgIE3_7tiRuxmjZlWzq0dUtTlNd4agRlklRy1zXVa7iAOyt1fp9-Lw6o9bw2jEdGVg3_OhqxLP4TF8Ulci6MKBPWkYSOllphzoclU7kzYv-so75mMWHqgBIlFqkSNyNP6tHl6jkth85tYsi_q7mxW83SBuhBKJk0UKiqTgJQ-oEzhTOa9CKKauCSKvQ0ggcjudUfx019z5xzjZZigvCWvGRD5PehjFG99fQ8-eG0c3helEGyxCPNhmxxfscvE3EIgxXo1XcdZfFrMyXTAI99p6EcBA.jpg" width="400"><br>
 
@@ -300,76 +373,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76263)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 21:59:42
-
-<img src="https://cdn4.telesco.pe/file/YXQa3iHIoqzVnFElgqATxCV3phPpW1_-tingTo1QUD-z4uyfSBAi0vusqAd7ZpT9x5d4-rcI3rsONhzE-L8eljdCHDC3djCsRi4XY39km-Xh3Mp2Q2rPXpVHcH3DrIS6PMQX4tfOsZyq1c0peyigMjqiWkVLpovn7WJH6jKutmOR_2msoaM3yzuCb0v7k81EhwwGtCNZPnMiay8RJqYsQfqg3U7YCAGSjPSFcIZf9QdiEjTY53_PJabo2a3lIgdFQEOpnylhceAos7wT0NDjxsx3ROrD0xfenT-juA98kx6u_cr-lggnfo2nIrVigUluXcwEKnDAHw0QC1ik9BnNWQ.jpg" width="400"><br>
-
-محمود نبویان، نماینده مجلس جمهوری اسلامی، با انتقاد از پیش‌نویس توافق احتمالی میان آمریکا و جمهوری اسلامی، آن را مشابه برجام و «خسارت محض» توصیف کرد. او گفت: «حرف از پیروزی با این متن مبهم و خسارت‌بار کاملا غلط است.»
-نبویان با انتقاد از مفاد مطرح‌شده در پیش‌نویس توافق، گفت در این توافق جمهوری اسلامی حق تولید سلاح هسته‌ای را نخواهد داشت. او همچنین افزود سرنوشت مواد غنی‌شده به رضایت آمریکا وابسته شده و همه موضوعات مرتبط با برنامه هسته‌ای باید مورد مذاکره قرار گیرد.
-این نماینده مجلس تاکید کرد: «این توافق مانند برجام خسارت محض است و بخاطر تغییر محاسبات مسئولان است.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76262)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 21:59:42
-
-<img src="https://cdn4.telesco.pe/file/Dc-jCFAfTdi0vqlD4Lz_aTL7mil6U4zpv387gSb1lPHcTcD5PtMRuPaZhEyc6yusnh0vCTW2j5f4x--4JWc4o7gDvjgazx4vVgJDi4Fw40ioJ2b91DUKc9St67Sk8Kl3Pqk3cee20HEaBfdXB3BUqeyaN3E8rhpmusfisraXdkZTfcffWir2z8Y6nBZpiNUwnDOs0rvMm73LHwJaNhS6Q3-ROjZvi9dLpYcPo1O8rV2KnkxRDaUXqUXXjCBRID8O4I3-4c8LG8UAk-p1a-FYf2wF67IT83Bn-XwWQiHiK9QLIWKWgqSOW-wZMIPXqb98jzMS-Nuvk2rUaHcd9VUpOw.jpg" width="400"><br>
-
-روزنامه اعتماد در داخل ایران به نقل از یک عضو رسانه‌ای هیئت مذاکره‌کننده جمهوری اسلامی و وب‌سایت اکسیوس در خارج به نقل از یک دیپلمات از یک کشور میانجی و یک مقام آمریکایی روز جمعه، ۲۲ خردادماه، گزارش‌هایی از محتوای احتمالی تفاهم‌نامه میان ایران و آمریکا منتشر کردند.
-این دو گزارش تا اندازه‌ای به یکدیگر نزدیک هستند، اما گزارش اعتماد با وجود جزئیات بیشتر به نقطه نظر حکومت ایران نزدیک است، در حالی که متن اکسیوس برخی از موارد را منوط به آینده مذاکرات گزارش کرده است، مانند تعلیق تحریم‌ها که اکسیوس می‌گوید مشروط به پایبندی تهران به تفاهم‌نامه است.
-روزنامه اعتماد به نقل از «عضو کمیته رسانه هیئت مذاکراتی ایران» از تفاهم‌نامه‌ای ۱۴ ماده‌ای می‌گوید که در آن بر «بازگشایی تنگه هرمز ظرف ۳۰ روز با ترتیبات ایرانی» و «تعلیق تحریم‌های فروش نفت، محصولات پتروشیمی و مشتقات و دسترسی کامل ایران به منابع مالی آن» تأکید شده است.
-این در حالی است که در گزارش اکسیوس آمده است که تنگه هرمز «بلافاصله بدون دریافت عوارض بازگشایی می‌شود» و «ظرف ۳۰ روز» تعداد کشتی‌های عبوری از این تنگه به زمان پیش از جنگ بازمی‌گردد.
-در مقابل این اقدام، آمریکا هم محاصره دریایی بنادر ایران را که بر صادرات نفت ایران اثر قابل توجه دارد حذف می‌کند.
-اکسیوس به نقل از منبع دیپلماتیک خود می‌نویسد: «هیچ تاریخی برای تعلیق تحریم‌ها تعیین نشده و تعلیق منوط است به اجرای توافق [از طرف ایران].»
-به نوشته اکسیوس، تعلیق تحریم زمانی افزایش می‌یابد که ایران «تفاهم‌نامه را اجرا کند و در مذاکرات بعدی از خود حسن نیت نشان دهد».
-تفاوت دیگر بین دو گزارش از محتوای احتمالی به آزاد شدن یا نشدن اموال بلوکه‌شده ایران مربوط است. اعتماد به نقل از منبع خود می‌گوید: «آزادسازی ۲۴ میلیارد دلار پول‌های بلوکه شده ایران در دوره ۶۰ روزه مذاکرات نهایی. نیمی از این مبلغ قبل از شروع مذاکرات باید در دسترس ایران قرار گیرد.»
-این در حالی است که دونالد ترامپ پیشتر به طور مشخص با آزاد کردن پول‌های ایران پیش از مذاکره یا رسیدن به توافق مخالفت کرده و به طور کلی به این کار به دلیل سابقه‌اش با باراک اوباما در توافق برجام حساسیت ویژه دارد.
-گزارش اکسیوس در این زمینه سکوت می‌کند و می‌نویسد که «مشخص نیست» که متن تفاهم‌نامه حاوی اطلاعاتی درباره پول‌های ایران هست یا خیر.
-درباره برنامه هسته‌ای ایران، اکسیوس نوشته است که تفاهم‌نامه شامل «تعهداتی»‌از طرف ایران خواهد بود، مهم‌تر از همه این که ایران هرگز به دنبال سلاح اتمی نخواهد رفت و بن‌بست در مورد اورانیوم غنی‌شده را حل خواهد کرد، دو موضوعی که ترامپ بر آن تمرکز دارد.
-به نوشته اکسیوس، ترامپ موافقت کرده است که یکی از گزینه‌ها برای حل این مسئله رقیق کردن اورانیوم در داخل ایران «زیر نظر کارشناسان سازمان ملل» است، نکته‌ای که پیشتر روزنامه نیویورک تایمز هم خبر داده بود.
-منبع اعتماد تنها به این شکل به این موضوعات اشاره کرده است: «۶۰ روز مذاکره برای رسیدن به توافق نهایی مبتنی بر موضوعات هسته‌ای و لغو کامل تحریم‌های اولیه، ثانویه، آمریکا و قطعنامه‌های شورای امنیت سازمان ملل و شورای حکام آژانس بین‌المللی انرژی اتمی» و «تکرار تعهد ایران در پیمان ان‌پی‌تی مبنی بر عدم تولید سلاح هسته‌ای».
-در این بخش از گزارش روزنامه اعتماد به موضوع سرنوشت مواد غنی‌شده اشاره نشده است.
-به طور کلی، بر اساس گزارش اکسیوس، تفاهم‌نامه در صورت امضا شدن آتش‌بس جنگ را، از جمله در لبنان، تا ۶۰ روز تمدید می‌کند، دو ماهی که قرار است تهران و واشینگتن مذاکرات هسته‌ای را برگزار کنند.
-آن طور که اکسیوس نوشته است، ایران و آمریکا بر سر متن تفاهم‌نامه توافق کرده‌اند، و این متن توسط مقامات عالی‌رتبه در جمهوری اسلامی نیز تأیید شده، اما «احتمالا هنوز تأیید مجتبی خامنه‌ای را ندارد». بنابراین در حال حاضر گفته سخنگوی وزارت خارجه ایران که تفاهم‌نامه هنوز نهایی نشده به واقعیت نزدیک‌تر است.
-در حالی که ترامپ از امضای تفاهم‌نامه احتمالا در روزهای شنبه و یک‌شنبه حرف زده بود، به نوشته اکسیوس، چهار هواپیمای نیروی هوایی آمریکا روز پنج‌شنبه برای انتقال تجهیزات سفر جی‌دی ونس، معاون ترامپ، به ژنو در سوئیس برای شرکت در مراسم امضا «در روزهای آینده» پرواز کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76261)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 21:59:42
-
-<img src="https://cdn4.telesco.pe/file/OeXB9WU4zTJXmf6KpUFrP5uizTzd9MGcnp970tqc0Rw6iIJJWLdkLTen-DBDkSi4BLVKXNAN3-Z4RUfqS7RSAtv8h8IZXERXnKO6m0xnwHsHM6wFKn0xeRJckhx087Ocg7Y9_tOL-AcWIWazVxQ7BMKY51bkH2rWZM3rB0gYVD_ND5KWbVbGK009mkAjhQmx3aJaBqOjQVD5SgtH2PWSn6YkSdnO-McmcC3Lv-iJ6ZO4z8Xr_CC6qv6Yod8S98nc1jEC0-5FEmb4HGVDWANuPtdVKw8HCJ1y3lpiAKPP11XNS2e6sHVEYkNe4JHiN-xt8i_QNa5OVgAIbEEBrSSuqw.jpg" width="400"><br>
-
-خبرگزاری بلومبرگ به نقل از مقامات ارشد آمریکایی و ایرانی نوشته احتمال دارد توافق میان دو کشور از روز یکشنبه و در شهر ژنو سوئیس نهایی شود.
-این خبرگزاری بدون اشاره به نام این مقام‌ها افزوده که طرفین «در آستانه» دستیابی به توافقی برای بازگشایی تنگه هرمز قرار دارند.
-بر اساس این گزارش، طرف‌های ایرانی و آمریکایی قرار است در حاشیه اجلاس گروه هفت که از دوشنبه در فرانسه برگزار می‌شود، «دیدار کنند».
-اجلاس امسال گروه هفت از ۲۵ تا ۲۷ خرداد در دامنه‌های آلپ فرانسه برگزار می‌شود. به گفته افرادی که در جریان برنامه‌ریزی‌ها قرار دارند، شهر ژنو در سوئیس که در نزدیکی محل برگزاری اجلاس قرار دارد، به عنوان یکی از گزینه‌های احتمالی برای امضای این توافق مطرح شده و ممکن است این مراسم از روز یکشنبه ۲۴ خرداد انجام شود.
-یک مقام ارشد ایرانی و یکی از اعضای گروه هفت به بلومبرگ گفته‌اند که «احتمال دستیابی به توافق زیاد است.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76260)
 
 ---
 
