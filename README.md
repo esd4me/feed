@@ -3,16 +3,18 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
-<img src="https://cdn1.telesco.pe/file/XN82aC7GdpMcSafZCFf8UlSoNuT9gXKyGZi8eD8oPrHeQ_-d_yyQGONGHic0pRsAg6G04MD_J675H2GINLjqyWD5HWFyJjtGz9pVkBBxW-B11fIZl6ljm0wt1kDG20pWnXm2-ZSO_SUkExRrOmSNXjXVmAsIXmgzrw9TiaLGFa5on1jDmTymSmgd4Wgk04Va0W39heOGsaZbFE8NayBQRYWhSUYyhJ8n85NS52wOFCzOjFPtOfFk-9qrrlj_fF09obRoD5JIxtiKg96YQ86RKyBQ6frAaOC5cApR0B3k0G60m_iWa9wppMD69VuOsfpW4bQXKjQ905KS-AiJ5kIpXg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/YQPhbvXylbhuM7pOUVJ1Yc_5XgXznNaNQ4qYmif17eGhF35eomrqTS6W7JbDzb0A19KD41nJOEao8dLEaSlY7TeYeOY3JejRRZTO1Hvk143vXzOprphs9y4N0QhjQmUcGTHcLjQNZwdOWIto09I-ghv9183kkJ1pc4Xc1tt7ZL8BCSkxvnW3IjpaepUhc-jXWET35tU0biEXBnP9jgM_q0NcHiHPzuIEVjtuPtsSJ1ve2YN48aLY_FgSHA0eRNlcRpzxQPBjMvfREWjYBlWHRYYJMfqGREgA2xUIf8SZ9PFQdoZaxNDXRFscKi61BPJVIQxAyri2n60MTLTZrp8peA.jpg" width="400"><br>
 
-"امارات گزارش‌های رسانه‌ای درباره انتقال پول به ایران را قاطعانه تکذیب کرد"
-ترجمه ماشین:
-امارات متحده عربی
-وزارت امور خارجه
-بیانیه
-امارات گزارش‌های رسانه‌ای درباره انتقال پول به ایران را قاطعانه تکذیب کرد
+وزارت خارجه امارات متحده عربی گزارش‌های منتشرشده در برخی رسانه‌های بین‌المللی درباره انتقال یا آزادسازی منابع مالی برای ایران را قاطعانه تکذیب کرد.
+این وزارتخانه در بیانیه‌ای در شبکه اجتماعی ایکس اعلام کرد که ادعاهای مطرح‌شده درباره انتقال مبالغ مالی از امارات به جمهوری اسلامی ایران، از جمله گزارش‌هایی درباره انتقال ۳ میلیارد دلار، «نادرست» است و هیچ مبنای واقعی ندارد.
+پیشتر
+رویترز به نقل از چهار منبع آگاه گزارش داد که امارات متحده عربی با آزادسازی میلیاردها دلار برای ایران موافقت کرده و بخشی از این منابع مالی نیز در اختیار تهران قرار گرفته است.
+اما وزارت خارجه امارات تاکید کرد که هیچ‌گونه دارایی یا منابع مالی ایران از طریق این کشور آزاد یا منتقل نشده است.
+@
+VahidOnline
+بیانیه امارات، ترجمه ماشین:
 امارات متحده عربی گزارش‌هایی را که از سوی برخی رسانه‌های بین‌المللی منتشر شده و مدعی انتقال پول از امارات به جمهوری اسلامی ایران هستند، از جمله ادعاهایی درباره مبلغ ۳ میلیارد دلار، قاطعانه تکذیب کرده است.
 وزارت امور خارجه در بیانیه‌ای تأکید کرد که این ادعاها کاملاً نادرست و بی‌اساس هستند و تصریح کرد که هیچ‌گونه دارایی مسدودشده ایران از طریق امارات آزاد، منتقل یا تسهیل نشده است.
 این وزارتخانه همچنین از رسانه‌ها خواست دقت را رعایت کنند، به منابع رسمی اتکا کنند و از انتشار یا بازنشر اطلاعات تأییدنشده و ادعاهای بی‌اساس خودداری کنند.
@@ -27,7 +29,7 @@ mofauae
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/Bw5FZ6DUUpaxemsWhUJHOoSnP4K8vSSopYL3xhyeFz0D35ZCcG2leFNInfV1utoRg_tQOAQzYn6gw-CcE457PWdmWk__FZP-1aDgNjDadhIE6ocFJjtW4h_fhMPShHFxXiajmLx2WBe2ppq2cLgNcy9cUxnjszcJaP_1RvyX4LuRD_cT8EoOrP9DyrImLLkd-FT4iFk69SC15PRSEFxcMHk887sI_8dzoNcWHuATRYx6sT7wIfKhftqU_3jv1mb_Ga35GMi2Hg69KvZnRSUkPUash7fCupZQ6m8e1kMl8wSCZgOS_YI24WLqpRLq-yXuWdrO3gWt0JzfA0x-FOBKxg.jpg" width="400"><br>
 
@@ -44,7 +46,7 @@ malekshariati
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/ClGxLxZJyjoMZaeTXEBwXuKeCx9J9vS4I7jKUKApCTkiHKdu2_OO5-tlFcI0R69P7m3Xjx5uGbzN9JWqNO48npcl7r30MeSv0RUc8qoB80XrzkfrslyeA5ABdjHD98sBLCzWdU8cn9Strps-53QDMH0luNxirPql-NLr-FJpgQ0x8uzS5N3v5CRu3t8FdjDAerBUgIpe9tCWWARAk8kAKKPpn_VgnAmsheEM81EUVbCoe1RAVXfOUGoJC1OJpOCNjw7YC_GeiNYxpnEZt-oaACQpxiFsbBrOCdZ_98Vz-wPm7Z6TN5O2A-uBhhHfUpc17a_aNPts3b39XIbLqkW4qQ.jpg" width="400"><br>
 
@@ -66,7 +68,7 @@ malekshariati
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/s0mUVcv9wKkHFrHBKJ9fQwzrPkXFHg-YWASRWnn4Esj24xX2T43WTeknIv1ufgXtHc2vLG5TfiUQ-1VBPZxZ7IE6Jmcj9md0AccUBXqrsWvFEZBjDeyhKfYpsRixTkDXmh3BL_dBKYAIbp-7eXm4_hODR--nHsejjcjXVJJTRckWNXqsEMrQsij6vK9z5X52s7N6piWhXf3ZWFw8Cv6YGF1ItShntHjZ3-Wm4OdeVPvXwPfZpnI_ZiMGA3Dh0kU3JhQKKWie-rX5Agnd-6PbhDbE2a5QqFq-_Ip4XXRt_qvW4TE9flrn7RZBMVYPjE3V_p1cXJsJxZo-ibx5Lh0Nwg.jpg" width="400"><br>
 
@@ -93,7 +95,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/nFWFBG0UnS4Y6bcAS9lfg14CgP07h6TilLPbvFOiehYATqWVozSvgIyPBdLKHttqShMNZgnhoIHvexS1Ciuc81X6ZJsJUH3Pa9VsFOfuxM7w36AlbrvC8uxIYJdfRCzkk4Z-HdKYglVEznqzmLSD4w9khUkHGzQS5KuBHVNs_obc1_TzrFpR6HF-EuYV0W-tnkfI2qS6L7M0LMxfvJdvHXQPH8NWzR93z-Wtg1sY1BLMpaWar_SwVTiIKUPvnvJN35wDQSWJYgzBf_AZI-rnfDqXvWGDjSJUEA0Oxx91i8JUnLzacxXkm5Qbg2hwI9zwxqRaMV2CaDXSQu_mqpI21g.jpg" width="400"><br>
 
@@ -110,7 +112,7 @@ mb_ghalibaf
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/JCCHACnQx4k2B8wN6VyaUdPGaBhy969vkOKda_8keLMnZnOl0GOLEs6aNmORPo5jlhNioXEbszniAdV0QaD1lgTi2rs5GSgNCsI9SIUabAypXSXPnS_U8rWQxYhXGxPSYw4Y0GjbxcPVZmNBQI1WdrK1het0MBibK0yOYo8f3wScsJb7elAEagCObpUk90unR9joo9YVZls-1nV10tLzmtTsdW6fJ4GWj9HIuyZQvq1fsl6S_6s6OYQGw3D6rw_dU_j1zRR9lzRnaScRDnKMM9l3tZSojHotZOufbvULpSCjEH-RZSM349hayEk-3xl5v6y6jIvvMFSaLqkBYS4_7w.jpg" width="400"><br>
 
@@ -131,7 +133,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/sI585Om7DBVbZdihlFA2EXlCYE-tRTMarUAdufgRjDRBivMetye2lJj_5lsoGyupXvur4vwUb110xYICI_3U_MB7IRXmM5qnDgNWbj1zhCdzC0Gt0wPVcnrOJZOW0cJr68zDSYoMPIjJMlKBrXJUDAqYvMGcSKOaOv2kZ1cNioIsHrGaMW3nkaTRFYqJJWDYZ8CWBC_Gpaz3d5BtM5tf3KdsGwU51u4Ny26zrfvOznYwEiBid71XeNicCjZb9C5p2Uf_fKZ6wyTnJ0CqU4NZkLFC_Xz1wWNnvkMwZywoNy-6OT5KgwvvrKLYQvPxKSBYA7U3SlCId0ufnQICmfFiyg.jpg" width="400"><br>
 
@@ -149,7 +151,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/M9zrheW7FQ4ZbtyNSEvxm-KDZXIAPYlN3S3AbUptz0h-Fs7ljZJIsKQKDtBDj_I7amSpKsM82kvFvnQRDbfkx11IkBcG-b08mxnCaPoubgyQ4DZpv0X0-LzCWL7wyjl9uLx3Yn6XPSMNDnDgVzuISAEXmu8PJ38lN7aLEP5gkMTBEAxkSA647dGKj4_3eu24ttd5nmNAfpREg8kgYlk18hkOmds-47ESVJLXAt8vX61otrNWS_u9fS9BE54iBmcu_NQJCax579OmarHvSphfHUomRygBjeye6KGF3cJ0x4i2TnaJNU0I3ND8_0xKU-k3okLUQ8a9nDhks1NKA9phcQ.jpg" width="400"><br>
 
@@ -201,7 +203,7 @@ KellieMeyerNews
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/nRnOi0LjWvKgqVKuIoniOGcst16lwC8jU7sCMfIfbRjONt2JqulmBAEb8A6OLrvl63mb4w7UNDJ8dCQg7Xr35VbWB1dBBS4R5FrZiAVtYKII6RLxQuRaEgSfvJJZ1Lxd6JzL44W_hhJuN0nOiW63hhQoecC9yAbMC4x0bq_RcZKCDjemDS-cDT3ksTt22zZQMvV2OlvihpdjvFrHmilhF4DEE1gR7wNPKgS81Asy0QYe537nPimxixl60RHRBN4Nw3C19kDAZheDbE0Mhaza9MMviVFY-RTxmNQVQgH5J8BfFmMEhbEE-Nycu5PEAAj7AnpHHMEagZSLP2fIacCwNg.jpg" width="400"><br>
 
@@ -219,7 +221,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/OxatahxcP2oxvEYdI5Dfilq-1bF3YUzQx2Hv3dqUdPFgBl-9LFb8-g-UGIUeiDEMNoxrpRSgkg6qXBPvy2Fl-aGWXtLziIxUEMBH89zHVyOv5Nr2TznSjFeumRs9bK1yn_rP_IDxosndA51C6g892bIl19IoHQOdepS5EWWjXn4gWYDHs3j-CU08SeuD81Av5og2eAIKf1Yj1rmL_bRDkCvyUGntPn3j5_PcCk_KW1bW6G8sXrsK9RrnhpyaNQ7NiPMEExeWklyYQiNtM6me1anQ3Vtutp_K-k7WJnjpNRSSpMqCwZOrj1nMIbvqkpllmGYmG1RKdw3zEAhjfgWi-w.jpg" width="400"><br>
 
@@ -240,7 +242,7 @@ nabaviantwt
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/KPBPFBI4Oaw247qqoJuIHRZVcI9ehKoRN9vKHBNBGK2cF1gpVTL4nEokvcDyCc1uruvu4kHdYfGVKrHuIjE2Sn1grwpvKodFRCLzYKZr1oprBNgbijwH-kJrs7vi5Z7gS24PUAq5pjHXYbrAyjz95hGCKk4u2M5GANwOz7TM63a4G6S6rIytTwbFttBEIolDa2H1xQ3zdcic_gGN6cqs3grxZLIcANCNuHrANns_5Yb2KlEnuug356aNckjHKdtJgBG9fpyoyW3jTJB4euU5eJjeiLUqefB_SNfR1c1Kc0ryBeFcXKY3EY_crmHXpurCxgSx9V3oBZsRlVPSSbDIGg.jpg" width="400"><br>
 
@@ -258,7 +260,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/II_H72jltUoNKUZYcFw6YRRhLzOCnEZ1WAEU0G5ol91GyuH6GorYLq6wxP4KZSp7JOB0lhQjCUJu_vM6It-K-vPK8j1cyXaUlccYh_3LN_jIYkDKLktu9JElKaakks_HtDgSVely_oPDWKkHASn8U4BBpNP7RXQcL4trTHOOfhwaYnYqSDBj_JTvS0O0Sm7OhXTWcyrAIs7ra4vsEdHT1sgbIsqP1YnU_qDC28g5VgxcI5v6IDOad7d_47DwJr1hKNQT5tRMl8kRc8QqsBQ1krAkvYjM6tGOq0uAFsBbp0U0EpTiQD56odIJuMPp-NRNmDNC4ocqNpCTOJc13JZqig.jpg" width="400"><br>
 
@@ -277,7 +279,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/PW2WtP3yRCfvWR6cXpqhtjsdk1GyMM2sTZXmzBC__AFhjrQH9wR3pkJ2AkTWw0CmO38U6LkZFfuez56lya5fFuQRhDZrQTR7ai2uJyyFF3hqyCYZULEIkzwmvJwJY7XLkrOhcOJokQeh79_pz2_boPC346aqV7tCzEtDQiJsXPmdTl5qjuE-v1B_3sbQ7ZQGEVDrmUWduF9DT7cEQdp5xYlQBvgIVKkM2ssw6CwyQLDZ-5zpMvbEgrnT99UNGkJgYj2Cyc-IKGzSffTnHJR9MlZaCZ_tQXtpDIljn1qTWTiY595NvwobM9qUhIBQq50q4PFttEJdKWfbDoVMHUjwsw.jpg" width="400"><br>
 
@@ -295,7 +297,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/h_GZXoHzQGK3MQQmPql2uH3V07oHoDY9sbBHjb0lDOXWoUBLEpxQAjxZ5LnT2mwfLZeIufM2a3i6aC3kgU8LkRbsEP7SwPh-rdU5kpnugtP-ggQ7njJklYKWBAtcTF6Olp6X236jo_I1nm26ZsBr6l22mnCzqDcjP0oGmvQNJhLDAt5AkhvxcHMto9LyYml28c3EJo_PbuPKC7rpvPinHZ8RdqY92UYFbwQ2F7qRu6HwSTNJt0vSvnnOHrDNa2qaSqNBCz13z7QLl6bXP20IwwL47WlB1s1JneBpLiexqqjkKgZIw7QCxNpKSyrhiGEDElozDC5V4RKkruvqTtPBhw.jpg" width="400"><br>
 
@@ -312,7 +314,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/dwyOCuKEtL186EgrfeOTu2HKAxmMtHmuMvxSd2AcAAS8sspfz5b-YnMU4rFbiHZkE0irXI53DE6uCcgIKSwWLx0sxEv5jGu4DiKWmR3A1tB6Z-D2-BvQ93AZQqA57Eo69QMtATTC7x80935njdh__jwGT2sYGWoMUHBy7QbuXsXougDHOtfjrVOB7DYaaZXxQx_ctuzYwNoZCo1R9-nQtQ9K75MHUealBqYna2mtNvFTce4TLuqHQJhG6B_MTNZZOqQf3jv977ed6z0NCI0ezjJQISA6v5N0RukVCv-0y_mO9E2PUHpltQHJ3wQbKHxQmrkt23PCVQByWvJlrxw68g.jpg" width="400"><br>
 
@@ -329,7 +331,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/KS4MdsPm-XJEnOR_RTT0SmJzx0ACUlnOHYBUwoEEU6N6F-4ZjlEES6fI_M6GptUQFbKjM5V9SXbDD5BInIF9ej4EqfOi3OmxGFUBMMkLAhPLZ4Yp-UegtBM5pKwFZvQTfDg6bU3GpayrbLH8K-6wRdFOlxHlmwqnRmFlIROc4d3Bixxlsti4RqzdSCJcHEbvUB5pThE7nha1cU-EaSP8GQYNRHNWaUEXyK0acRJo2CkFQMVyPqV7DKm8CoQ80kB2dRvC0cX7vsTKxj69F9itZhcXNT52pLo_KijWpZZ6XNEBRL03tBaSTel6V23PSMlYbMQ7PW9PqvJiaQchUzHFbQ.jpg" width="400"><br>
 
@@ -357,7 +359,7 @@ iranintl
 
 
 
-###### 🔵 Updated at: 2026-06-13 01:43:40
+###### 🔵 Updated at: 2026-06-13 03:24:54
 
 <img src="https://cdn1.telesco.pe/file/n0E4RoXqWBYQHLgFnOpnAfA-MtT86te4Ic1RrJkccrU1Nhu3iihptS5VFhDdAnri7XtYqjSHSm_gk8Bsg8-jnJVUtupQKzWjwGi4kbJHdX27u86MFHnX0UNEsoAxpmdDjOIOahuESxKK-czZLjitYfRChgBBUs1qHBWR7cU4uYrAWeteWVZeocDINmGQtOptMa2ufZCSPH8ve1Tx3fPEhlz37Vj5jfVN2tiyO8059QMptNrWCUv4qGjPkIrOcsf2sbwPczgG6ChC1jvAzWK1kSz2kPmw7D2Xi5HDQhK1PiYN8GCfYnqGgkw6IQHjANWIuaBQoxSJpDBISot0rAb_7w.jpg" width="400"><br>
 
