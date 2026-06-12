@@ -3,7 +3,52 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
+
+<img src="https://cdn1.telesco.pe/file/D8rDbeKMr6Ljf2ZOO0aex9V0VFnRR3tVZbU9lco0iKMI84wTG66XT6WI5RoKEpS_0p-SZobagjimugBanDz6gRPNuYDvXhfY3Zvpet8PskRrhSQHoWikw3-SNBHHg6zplcUpqtv2EnvTNNJCdofEIiVnsu27NCt1H5qokAT65OVb_tLY3pxbuyTHHTQ0ZSSp4EgfFMTQqLIFT4UCx1Y5EEJVCnc4R1_t1poo_9rwuoG1i4p7j93xznuQlTKh2GOo9katy_xsddHGpISqlBQoNvQfqfTbxYP-1x1yo5cZVZw_o1t7zJ6DZRt_cDFrWDS2yC6cK4mo46tjegfXDRmQUA.jpg" width="400"><br>
+
+زمین‌لرزه به بزرگی ۳/۱ در پردیس
+شرق استان تهران
+عمق: ۱۰ کیلومتر
+پیام‌های دریافتی:
+سلام من فاز یازده پردیس هستم همین الان زلزله وحشتناکی اومد اینجا، کل خونه شد گهواره
+سلام آقا وحید
+یه زلزله عجیب اومد همین الان دماوند سقف میلرزید نه زمین
+سلام پردیس تهران زلزله
+۳
+ریشتر
+میشد شایدم بیشتر
+سلام  زلزله آمد لواسان
+ساعت 3 و ربع خونمون لرزید . رودهن
+بی صدا بود
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76255)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 05:07:48
+
+
+
+ترامپ: امروز جنگ با ایران را پایان دادیم.
+و آن‌ها موافقت کرده‌اند که هرگز سلاح هسته‌ای نداشته باشند.
+چیزی که ما روی آن اصرار داشتیم.
+این کل هدف بود. این ۹۵٪ ماجرا بود.
+در گفتگوی تلفنی با برت جونز، نامزد جمهوری‌خواه انتخابات فرمانداری ایالت جورجیا در آمریکا
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76254)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 <img src="https://cdn1.telesco.pe/file/AeIvxbC4ZeqsHc_Z7ufwJUUDCsfnZOYUmnCVR8TxT4qCdyxTZl8pLycT9XKcXxfaRuTVMZVhRBMAm8QBgvQHPJQI5z4eq9wvbnjMWdEdPLMwmzDryRamziKsNqkor1z1k2HmR7XB_B9lSuWJGDh_L3SpZbU3EVtVD0ZuTgREUxSg6QEzkk-GA6qA-PKlCHKvEPX6yl-Xg792XVJMdrW6cIHA6n3mbUhD0C3F8o6k8TRrDv2Rly6kIonfGx4MKb2OnH-agf1JdEBOHkV-8JU5HziZMcl0iHFSmBnZvIqVSRbiQvHLTYeUhJJYTnnLVGbi3vAWS6cBJqkK1f4-dsY_rg.jpg" width="400"><br>
 
@@ -21,7 +66,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -43,7 +88,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -65,7 +110,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -117,7 +162,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 <img src="https://cdn1.telesco.pe/file/clBgUYYPFvTA9cOh1WAdPWXR5fKQvVjeHW_chgySiinVBSiU6FqcsQvt_QvDSFuHI1Ci00BhBHdAcygkjOmtRUQCo7AAiUTx2k_ykSPLgaAt4ijumHLqT2Ur1jLh1IAe0hsZVIZZ4Ib45jPHa-1DsFsXxcDxWCPsas8-YaHPtgrFe8omGX47dvzJkpMXBDZSywX0hHghGfcUIgm-zBP9UIbnKUYsZpWTKPHPUABtVm30KOevkag3muO6EYVg2wsig1pJWnWJmW7yJLDOgdl-OUyVIvTJ6pw-90v8ztRl5cz72-h8hBG3nS8AtZhcoe8ymFmlrrSzhincucmAVqDXkQ.jpg" width="400"><br>
 
@@ -132,7 +177,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -149,7 +194,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 <img src="https://cdn1.telesco.pe/file/H2For9TcrBxGg-QTyyhz3mPcj-oqnM5dfhKPgHYkIiE8_A5Z4cwl5_P_jFYP1NIV3HdXliMyXva4F4desYp-x8c7k8-xabeySgdUQfi8MQxGa_rywX30nElNrT3WewIU3xJ8-QWBPdG4jtsKLUAfwP2A0apIMX6GFGufP87RHBxz5egtpnJy9oabhtMNWwm_i2J7Q-U6MBZyYx7qKSKCVEe62FIm-u9odG6U94PGgG3AynHEGvA2gNHZneR4q4quGlzEz4xSsUq_zAi4hr2XGYsCLTkheZt9CkgK-IsR5iSuYjktNXq-zsJUKJiBozVUf4mUmHswr2XppHYKUb1SAA.jpg" width="400"><br>
 
@@ -168,7 +213,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 <img src="https://cdn1.telesco.pe/file/ZKZ9FgazCMI-37vkapYKzBOAQuaFOAlGwQt7UGfgDPgN30fOtFh-IavLwOh1BeaZFHmIF2RmGb03GT6IQnlOEuqWU1i4YtuZwJpSbgImpagyOxC6jv4eDow2nAhPKW2josMPqAhBUhE4TO8PHf5uKqu5BGq1t-jxKi2Ux8Y84jXJiAozYeUy_lXUdrRekh1zOu6A5ZEBb4_gMOzh9igR-CI2sp28au1B8f-zcvw0_ANgDaSSqG_wge3aoe16GmyYhH8WMrwma7r_N8beO1ZPvzdkNce_xYhqz4ry8TDSDer3p5ikJlSBxc_Jn4qL7v9s2nH-xLnfr4sPg7X3q9WCFw.jpg" width="400"><br>
 
@@ -195,7 +240,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -211,7 +256,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -225,7 +270,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -246,7 +291,7 @@ KellieMeyerNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -260,7 +305,7 @@ KellieMeyerNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -283,7 +328,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -299,7 +344,7 @@ CBSNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 <img src="https://cdn1.telesco.pe/file/VziLtV-rpY5K7SHT7QZonW3DeDgz71Fj2JtXCe6a0Q6u8HxHz9Nlpi5Hkut5fecGqrxI3nVhjGtgf77Zvz6uygTTTN7dcUmioqsazzEUi3MXmWdRB9L29nQpjIYILJJUTg75Y1wTvuG3bKv3X6iRSlyOIcxSCGbQwGKtBqoACe_h9b7YQi2XrYnaww6v0iWPBLJ2uKA2WahZGtcQ4k-9AP5e0wDHumW7q_Bkz3S0WY_2eLVr15uSJc7Mp3OzZKCnml0Cmnq1H2jiLiBewfo6tYktNN4zgrPLGWLZ10urwgDNDpIMMfmLWZHGp1eRgWiOMk7jpuLFs5S-x8iOL531Pw.jpg" width="400"><br>
 
@@ -318,7 +363,7 @@ CBSNews
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 <img src="https://cdn1.telesco.pe/file/fqf-lFwGdg_D6lJgHS6pg1ryP1YloIWXagPunoNoTBEY_cNflZqF39RNEPD7hK6UxpytOnlp5S09N2HR1VU_powUeTwrxr62oEgohAxF2lOHyIXz6uSh0JDU-nE9lXHwEUmNbm36ywXIwJk4an1FZPGNXEKcPhd9no_Dislj-34xDp_iGujvNY3PAsB3G9X9-WoUOWotaXQnww1XXewJVdb3jpougB6FKvkzaZtZQhHSK65ei_BHqZF-Tc4yFZ6PufYRLmBBEjnfflHP76K2Kuk7RBjFTRgc2vwejGHLkm5eE1WrEc3sXuneAlu90uZ5F-NEbVAa5EPYoUGxPoME2g.jpg" width="400"><br>
 
@@ -336,7 +381,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 
 
@@ -351,7 +396,7 @@ clashreport
 
 
 
-###### 🔵 Updated at: 2026-06-12 02:39:32
+###### 🔵 Updated at: 2026-06-12 05:07:48
 
 <img src="https://cdn1.telesco.pe/file/NSBFsh3qmPE3J-8zI1KJy430wOHjV2-whQi4EYxgg8Q_P05rm271MGPMtQ3PIEJJImlsbYUWRC2N0dDDPxagJHSO20VzEHk5-sOS0dBbKWGWHuYv_yZ67Z4kzZ9FtaXv6s2xXBkRmFA4KtddhO3hThyeJrCUxPrwE7VY5F_gHE7RPsRxJEBLu5sn2Y6pM_Ba0lgw2yG4A-Ouq9Yd-pq2pcjD2PNug1nguVTm5uMr-yh8IvIKBx1aIzh9GTk7t6tgAG5s-r4HWJwcdQbhv9AqGcbplZ1vw_X5lZQl_bAkZKqyzycaK5HXU319GyDDjqXbOgxcCpCHuhzCDJhhIEsxUw.jpg" width="400"><br>
 
@@ -363,53 +408,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76236)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 02:39:32
-
-<img src="https://cdn1.telesco.pe/file/n2uxYfbHOJ5HKoM3jm862QYC_j9vQshNogQNlkjdulkZATqIcHsGMS2gkEokgHNadxYzPXaYHEXEeWYahm7ThQ7v2i04RtPzBaxui5q33n_Qa8En4QLAXy1b6DwEjwONIdaMnyPef3olmJQbQNB_05SnirqQGoYMf5I3xMcTklzFGDkEOHsKJ-EDMzmF-Eodrr7Bv2YStr35iWJqb63rIm4zwrpG3TGffVmL7LP5fvZQvw-NkLFHx8XdSGI9McVsRAYo3H_NpmHAWz4Y33o5wO7uf3KM97kWdOTET-U4WfIermMtOgbjkqMJQcR8KURFHUVdmInr1neAm--6qCdSeA.jpg" width="400"><br>
-
-خبرگزاری فارس، نزدیک به سپاه پاسداران، ساعتی پس از پیام دونالد ترامپ دربارهٔ مذاکرات با ایران، مدعی شد که «هیچ متنی برای یادداشت تفاهم اولیه با آمریکا تأیید نشده است».
-فارس ادعای خود را با استناد به اظهارات «یک منبع آگاه نزدیک به تیم مذاکره‌کننده جمهوری اسلامی ایران» بیان کرده است.
-رئیس‌جمهور آمریکا گفت: «زمان و مکان امضای این توافق به‌زودی اعلام خواهد شد».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76235)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-12 02:39:32
-
-<img src="https://cdn1.telesco.pe/file/ri8F5LFj69ORlkgMM-Mv9C-dEmG69hBriC_P7ZramKaSghnJ-qSbruR56V7N21BvTtBxrbAToALHdI5HK6xbhgGXhX5IxCAC80BKq_sI6ETwMwPPzl4TLmad7KidHK6c-R-LXuC3YSGL5Mg4-pQUr3oCDp6aiP3LPjBJYGfGmlTLrdCAl1GhwJqigkgQfpIllMg_9vnnOaRBs9DWNYt2U1Qys5ReIuwrrDGMRT2xqdVZUQbcp047eFbFKhUn6zyqGUnr3LFNCRdeKpfmieTolmOJzcxKDbqvkohcxgPXE8TmXUj5zMC3OJ0EnIl9YNhSKZ9kZTH9JAJr7nl3JkHDOw.jpg" width="400"><br>
-
-اکسیوس به نقل از سه منبع آگاه گزارش داد اختلافات اصلی تهران و واشینگتن برای رسیدن به یک تفاهم‌نامه، چهارشنبه در جریان گفت‌وگو میان مقام‌های جمهوری اسلامی و میانجی‌های قطری برطرف شده است.
-بر اساس این گزارش، مقام‌های ایرانی پنج‌شنبه به چند کشور اعلام کرده‌اند مذاکرات تهران به توافقی اصولی منجر شده، اما مجتبی خامنه‌ای باید تایید نهایی را صادر کند.
-این منابع خاطرنشان کردند که هم ایرانی‌ها و هم قطری‌ها تاکید کرده‌اند که حملات آمریکا در طول شامگاه چهارشنبه، تردیدهای ایران نسبت به نیت واقعی ترامپ را به شکل قابل توجهی افزایش داده است.
-@
-VahidOOnLine
-ترامپ: توافق تقریبا نهایی شده
-ترجمه ماشین:
-... نیویورک‌پست نخستین‌بار گزارش داد ایران چهارشنبه‌شب پیش‌نویس نهایی یک توافق را به میانجی‌های قطری ارائه کرده است.
-رئیس‌جمهور ترامپ روز پنجشنبه، پس از اعلام اینکه حملات برنامه‌ریزی‌شده علیه ایران را متوقف کرده، به نیویورک‌پست گفت توافقی که مدت‌ها انتظارش می‌رفت برای آغاز مذاکرات هسته‌ای با تهران «تقریباً نهایی شده است».
-او در یک تماس تلفنی کوتاه با نیویورک‌پست گفت: «تقریباً همه‌چیز نهایی شده است.»
-nypost
-سی‌ان‌ان به نقل از یک منبع آگاه گزارش داد مقامات آمریکایی بر این باورند که نشست‌های این هفته میان مقامات ایران و قطر در تهران، به حل برخی از نقاط مبهم و کلیدی باقی‌مانده در توافق با ایالات متحده کمک کرده است. این اختلافات عمدتا شامل جزئیات نحوه پیشبرد مذاکرات آینده در قبال برنامه هسته‌ای ایران و ترتیب زمان‌بندی لغو تحریم‌ها و گشایش‌های مالی برای تهران بوده است.
-بر اساس این گزارش، ایران اواسط این هفته جدیدترین پیش‌نویس توافق پیشنهادی خود با آمریکا را از طریق میانجی‌های قطری ارسال کرد. این در حالی است که حدود دو هفته پیش، دونالد ترامپ با اعمال تغییراتی در متن، خواستار سخت‌گیرانه‌تر شدن لحن توافق در بخش هسته‌ای شده بود و از طولانی شدن پاسخ ایران ابراز نارضایتی می‌کرد.
-با این وجود، رایزنی‌های این هفته از طریق قطر باعث کاهش شکاف‌ها شد. مقامات آمریکایی در تمام این مدت در تماس مداوم با میانجی‌ها بودند؛ حتی در روزهایی که واشنگتن و تهران به طور پی‌درپی در حال تبادل آتش و حملات نظامی به یکدیگر بودند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76234)
 
 ---
 
