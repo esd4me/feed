@@ -3,7 +3,54 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
+
+
+
+قالیباف و عراقچی! پس اون رهبرم چی؟
+برخی رسانه‌های داخل ایران تصاویری از تجمع برخی طرفداران حکومت در شامگاه یکشنبه را منتشر کرده‌اند که در مخالفت با امضای توافق احتمالی با آمریکا علیه برخی مقام‌های جمهوری اسلامی شعار می‌دهند.
+در یکی از این تجمعات که در میدان ابن سینا در تهران برپا شده، تجمع‌کنندگان علیه وزیر خارجه و رئیس مجلس شورای اسلامی شعارهایی مانند «عراقچی حیا کن مملکت رو رها کن» و «قالیباف، عراقچی / پس خون رهبرم چی؟» سر داده‌اند.
+برخی رسانه‌های نزدیک به اصلاح‌طلبان این افراد را «نزدیکان به جبهه پایداری» معرفی کرده‌اند.
+خبرگزاری دانشجو نیز عکس‌هایی از یک تجمع در مشهد منتشر کرده که در آن‌ها پلاکاردهایی در مخالفت با توافق و همچنین انتقاد تند از مذاکره‌کنندگان دیده می‌شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76308)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-13 23:20:44
+
+
+
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران:
+اصرار عجیب ترامپ بر امضای تفاهم با ایران در روز یکشنبه و آزمونی برای تیم مذاکره‌کننده
+🔹
+ساعاتی پیش، دونالد ترامپ، رئیس‌جمهور آمریکا، بار دیگر تأکید کرد که «یادداشت تفاهم» با ایران روز یکشنبه امضا خواهد شد. این در حالی است که مسئولان مذاکره‌کننده ایرانی صراحتاً اعلام کرده بودند که تفاهم هنوز نهایی نشده و یکشنبه قطعاً انجام نمی‌شود.
+🔹
+نکته قابل تأمل، همزمانی یکشنبه با چهاردهم ژوئن، روز تولد ترامپ است. برخی ناظران احتمال می‌دهند او با این اصرار در پی آن است که از این مناسبت بهره‌برداری نمادین کرده و آن را به یک رویداد تبلیغاتی برای خود تبدیل کند.
+🔹
+اما با توجه به مواضع شفاف مقامات ایرانی مبنی بر نهایی نبودن توافق، به نظر می‌رسد مسئولان مذاکره‌کننده کشورمان متوجه این لایه‌های پنهان هستند و اجازه چنین مانور رسانه‌ای و تشریفاتی‌ای را نخواهند داد. از این زاویه، سرنوشت امضای یکشنبه نه فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.
+@
+VahidOOnLine
+وب‌سایت خبری اکسیوس به نقل از منابع آگاه نوشت که دلیل امضای ویدیویی توافق آمریکا و جمهوری اسلامی، «ملاحظات اجرایی و لجستیکی» و عدم امکان سفر جی‌دی‌ونس به پاکستان است.
+اکسیوس نوشت که یکی از دلایل اصلی امضای ویدیویی توافق آمریکا و جمهوری اسلامی این است که ونس در صورت سفر برای امضای توافق، نمی‌توانست قبل از عزیمت ترامپ برای شرکت در اجلاس گروه ۷ در فرانسه در صبح دوشنبه به آمریکا بازگردد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76307)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn1.telesco.pe/file/cpTUyQUkM9yl-jVaT9KUeV_jSXkGoSQ2z6UJFKVamp9NT7o8xx0ChWURbegMc6K1XX2IXT73ZDbSoJ4fmShdC2HI8pWZNoyJqLCChdjOvVJSrGjAXtBiNoOH7_dngtCWS6zkmagHRufISK2V02OlWIyi5RThjBHWnji0UlBXcZ-kQonw5kBxr8ngm3YhHcZeaHzU_fxPvqnKWOUfJ9yQFEOLehjgZDfAnm49ewgk--bAwRQrVzbgFCJLRe-TEiEN__vNW83__oiLP8Hw7puf1cnKHW-x74DkEd-rCTPiSLcnc1DA1XDIYzwAQva7CVgLElSeX0Q77vJ_nMn5R6E_yA.jpg" width="400"><br>
 
@@ -32,7 +79,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 
 
@@ -49,7 +96,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn1.telesco.pe/file/YMlITBsu-rgWqaPgNkHHvuv6UCJvcUYnqwVrV2IUzCvaQ3Z-pIwJZ3ghqI1iyliIStPMU7w566pbXnCDoGMSIKGbrzLwidpndrWRTw96Nl1wm7NBtYGT4-bj3xTWzKJPDDm-muH-OZrvHTKUmWZH6jCB8EfGmDxD9-lQZXIZdWWh4Ud8FKdp7ImvKhbIt2O61vMkcEnlaJJIHbVocoPOTP804idXTsl9B_xQeHFttnkCGAxSR2aaFG9q0mMZpzYFjLsUH69SIYHkdXv6kLd5TtUJQmpsTEPMxn1wxTtf9gsTWDtxDUC9cbiZFYF-eusHzw5wCqxaMJYt69eazt9Dmg.jpg" width="400"><br>
 
@@ -72,7 +119,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn1.telesco.pe/file/FoTj0CQ84Ztmv6CpQ6PEsKDr04KH-jyPIXuZimBLF1s-erVht8VQU-Smi64dRYBWP9SAnjDo3iohAg3bUBxkB5IVp9z27V3vTZ0QdjEt6et689m0k-Mdox_OA8hYXNOM6ascY5kXxBYQQ7BCplu_-qiWVkRVRHNJAM3VErpTQHqLKWaYYKkqXl_WqlsFGK5a6qHP-r6OHqRc-YuqTgi4DSNXb939FL-lBJ3agm9DucR2i6b35o1UegKF9uinN30jr0i8qX3ODpdoBmCVj_e-juIWfVNsjroM88f-Bl7HAwq7jqYu5CKZPKh3MWk1iUL9aOvsR-emQej0Yith0b3rUw.jpg" width="400"><br>
 
@@ -100,7 +147,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn4.telesco.pe/file/DUONKIZEURe4N_vAzCLwcR5mEH7n-HWG-xBCwDeASPQALfWHpGPhk4fpXqtf5vfekTQzb9ksMbidas2c3l-LsiW77-mggJI1FICpWf7CLRbgbLXsPbzuat-5QH-XRfuz0OtAFpWipmw40jQiPF-t-HOTuiKvbPJpHK4gsty8-8YI5LVbV50TFSIOwAI9E7QaDvG1Y38f2ENe6vR63-6QI6fZunCXCD_SCyaQVHgJVNzBq3xUl_uGI2TWOFynnJxUUtUg85WOsq8RokvFe05WMPSbfJdvd6HXBBrvJI354QdeqFK_i9Tpxdp2S-pkO3lRjQoHltloh6LEsWzlHmYL9Q.jpg" width="400"><br>
 
@@ -119,7 +166,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn1.telesco.pe/file/CXrjpGDSvQYo9Wpsj4Fy2RIeDkaOw6I6h0gOFQH_otdJ1-Qs_n09hC16LghpxHtlqV4nbzAZ0F9o0BdIQtMF1_0QkiL0EvtvKK77QE5h2F-MuKVZISgG8W4vQqtLL2Dhsd4U2Y5fowb-ytZmw9LooEwKVd75JnAPinZkTJgLHpIuQEwZuJ4egZ5t-tCg9xkWfX5Yds-JUhtCqTBp0h2stK4f6rRRhSZouYbyXM4K8lEr6y7B-75y1hgVpvQg0FCPfS_YzO28Wx0gYvLLm6gUJ7ziGw9jSM4VmNtdLVob5ANoCvR6aYNjQsr19WCVeaKkQYfVldJ1spkDHdbHiXyPbA.jpg" width="400"><br>
 
@@ -137,7 +184,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn4.telesco.pe/file/WmCaDNh8znAxuHtqScpPqrve70O78Wzhj_r8e9tt76gwc0zukprGOweZ20aPasLb6oHljfd0qE62n3IE0U5mDHrZu9kPthZF0_Wi9g7n9KNvLi9BDTv2Vrp41cR_iQ0-Y5DRpCVkjJHDsTrQbKZffUaOggF6YiRp3B8iRA5r4AtK61tJjUrA2K4D8FjcdIBDZ0YnOc1j6ixPi2SayCsev8tiUww5bz9ssqdq4U3jTK7ZpGTH0HuHd9YX3Ii1c3zso3cmutFyk53NDOZml5vWEWWxinRNqZhjD8UgzPZOsfBrAOJXvUac3TUH9P9oJtnSpvQPAJSdJ-jNIi6tPwcfng.jpg" width="400"><br>
 
@@ -157,7 +204,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn1.telesco.pe/file/b7_Fc1tRcoNoW8BBbXb0a03tUu5VNlspw0Xq2mUysNJNYrweEgVsnKc_dMuq8Y7Lxgh_1vsHO5q4zMPGDy9OO8BTj3l-X-pcOpv9ujxLKGA5xJU3p0ABPcoZPoGTEguMoxnTzPjHWFvSfZ_8kmjuqie_vn0cFb84CjpczWswuiCNTd4ew3UoqToQetxARBGUN6jIW3Sqxy9z1JqcP-8rNcdM8a2tl1sV6vkJwpPgwgj43OGm8DdbyB6bi_fc-smnuVdpXa84_mfjY27OmNghEFhQJl63aedYVbFk-4UTrN10lT_scSJ3EyrAJR7X6mFMN46eYBHcJupqpZDNh2oSgw.jpg" width="400"><br>
 
@@ -176,7 +223,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn1.telesco.pe/file/rrQTaUkLoSro7NjVNaJyigbAYrYRHWym4FXAhkMbp5Uban8pQ4sFlLS1H6LweHTzKB2MLRVeK2AzHvRfMtcrAqXtXUGz0L4NJ3pi1UYG2P2p6AKjdrHO7KlRebHyLniAGqHN7O7caJYPqETFUcH2HMsP5VJRPJjsbbEOue5Q-QgbZnrrZH7OSuc6ShYSfk0ak6EFQmkKFGGOwajjLYrJcXCl3Vgk1pnUy0FSLZA7CGKBCA7m8zksJLD0WgTv49nyXPi5VjV8kWFhfaizizYnwY9dII_Amadf10KIE60gBkCtwaHr4eBesj4J63rx_DcCrEVH3uKOL73c06NRgnXmeg.jpg" width="400"><br>
 
@@ -209,7 +256,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 21:30:49
+###### 🔵 Updated at: 2026-06-13 23:20:44
 
 <img src="https://cdn1.telesco.pe/file/an_UAM1nWHVevBi1cxDofmIkwMhpuNd7DfQcXyLs4sUgmATcFHEIHRHs5UTQub5eC9JN_iua_O0ddclPA7V7ae1XvT3skZ9gmxXfef57YDXjfbPSofyEj-IU-KH9PvshF0IbFxbCuUI0a6rMdEpj0Nlz7EW9JpwXBjVSskf7u4jKwqSorlF_hymQGfj-JK95VjAHm0p9rdBZk8wYKmNjteeUUnFKRivJN0kuYe19t2MgMJeL5d3Thg-EczanpRVdA8LZqVKPhhSZ4pF9g-jNJYUV3lNTV1JxFzKDGas1KZZG5KcOziZMnD5eqG_RgW1VW9LLksVoEG4o9lvFr0eQVw.jpg" width="400"><br>
 
@@ -227,122 +274,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76293)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 21:30:49
-
-<img src="https://cdn4.telesco.pe/file/UVA7QMqWoXxbyV5m9Iuiw-xRqZFymi7NxbPhLM5azP9Ock5c18FilE2Ay86z2ZJc9ry4THcVikuJZu5VFyNPy1F_r3UKA4eKk0KJF1kvefdtkGwcfhO6WzEEAUPVElfv05-3qai9BNpG0ruvl9udXJ5FuVXLupIq-uZPa81G4lB8E-O3_TzHHGnxp3sMrLV-YAD6KVX4C21mVKwrRz97oX229eD3cEE_1r4tWcL8u-Os9J1R2xLZBRhZt4nevy3E06bvnWLrlRC79ptLmyIn75SPsEB2sOF3pSJv2mxcQzhPz45ZUQ3SX76jRTQkUV8Hh7SBB-itnIbSMhbbqN9G9g.jpg" width="400"><br>
-
-دفتر حفظ و نشر آثار علی خامنه‌ای با انتشار اطلاعیه شماره ۳ ستاد بزرگداشت «عروج خونین» او، جزئیات مراسم وداع، تشییع و تدفین دومین رهبر جمهوری اسلامی را اعلام کرد؛ مراسمی که قرار است حدود ۱۲۹ روز پس از کشته شدن او در ۹ اسفند ۱۴۰۴ برگزار شود.
-بر اساس این اطلاعیه، مراسم وداع با پیکر علی خامنه‌ای و اعضای خانواده‌اش روزهای ۱۳ و ۱۴ تیرماه در مصلای تهران برگزار خواهد شد. تشییع پیکر او روز ۱۵ تیر در تهران، ۱۶ تیر در قم و در نهایت ۱۸ تیرماه، همزمان با شب شهادت چهارمین پیشوای شیعیان، در مشهد برگزار می‌شود و پیکر او در حرم هشتمین پیشوای شیعیان به خاک سپرده خواهد شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76292)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 21:30:49
-
-<img src="https://cdn4.telesco.pe/file/hq6t9-WWfP7uZ8YkmuT7WXrYLFiS_2ER8Rjaf7lv2k_DPSJClTVO3ryLhrC0EBO42Hp-rTzdm9mnDosAVwYPdUohQwAqIR7FNUXjt_-n9ba8BQKzhWjUe54HyuHFq5bw44WSkTl9lwsy_tgfft7P35QaS0RQbUh5C446ZlefxY9aBZAq-9eFWD9iDEyEuyK-gtYhVodR81Nlfk6c9RiIMrRixoTUfAE558qnoPOJ6IORMEc6ed8It2kYpSvLbBY3jJy7MFOLXXYgjzzxRMfRSKlA3LdMt3CgC-7N7qhTMrU_gCZQg39m6OggERj1J4es22k8yb5rAkW7TbCPkpOinQ.jpg" width="400"><br>
-
-«سید آرمان موسوی» ۲۹ ساله، روز پنج‌شنبه ۱۸ دی‌ماه ۱۴۰۴ در محله مسکن شهر کرمانشاه هدف شلیک مستقیم قرار گرفت و جان خود را از دست داد.
-به گفته منابع آگاه، گلوله جنگی به ناحیه قلب او اصابت کرده بود و در اثر شدت جراحات جان باخت. پیکر سید آرمان موسوی روز شنبه ۲۰ دی‌ماه در کرمانشاه به خاک سپرده شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76290)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 21:30:49
-
-<img src="https://cdn4.telesco.pe/file/loM5VVjC894aqLbBnw35VywgiZQ_-yiNa_XLFoi5xyDmZOSb7hYK_9RpJdvXtj_XPD6QrsfukfTrcYf175zstjPU4ZOlD7aCqd38s5WVptG6G6FEAzEvhivnbiD6UlsLaBre8Vgl842KH84mIyNqReKQb2iPpgQmUrIaira1COEKuaAC-r_fENs2glSrxpVedao2OrJo7ueeMYKLIprdRpPfZ7RqKm59P13HVx7Q1IwGYOLIqdRdCDu2Hk1ANcLGzKjwP-RcJNH6clDfLD-Zyw8efIh_GRCFPn-K2PrMITle5Ho7kFD1YJi2G6JGfb6VgtJpn6HOyreRNgwruG69Hg.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری ایالات متحده، در گفتگوی با «فاکس‌نیوز» اعلام کرد که با توجه به روند پیشرفت مذاکرات، انتظار می‌رود توافق صلح با ایران «احتمالا تا پایان همین هفته یا روز دوشنبه نهایی شود».
-بسنت با اشاره به اینکه تصمیمات دونالد ترامپ برای جلوگیری از دستیابی تهران به سلاح هسته‌ای، هزینه‌ها و فشارهای کوتاه‌مدتی را به بازار سوخت و اقتصاد خانواده‌های آمریکایی وارد کرد، افزود: «ما درک می‌کنیم که در ماه‌های اخیر شرایط سختی سپری شد و افزایش بهای انرژی بخش زیادی از رشد دستمزدها را بلعید، اما ما در حال عبور از این وضعیت بحرانی هستیم.»
-وزیر خزانه‌داری آمریکا با تاکید بر اینکه زیرساخت‌های اقتصادی کشور در حال حاضر بسیار قدرتمند عمل می‌کنند و بازار انرژی به خوبی تامین شده است، خاطرنشان کرد که با حل‌وفصل این مناقشه و مهار تورم، بهای جهانی نفت حدود ۲۵ تا ۳۰ درصد و قیمت بنزین در بازار داخلی بیش از ۱۰ درصد از اوج خود کاهش یافته و روند نزولی قیمت‌ها و کاهش هزینه‌های زندگی مردم با قدرت ادامه خواهد یافت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76289)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 21:30:49
-
-<img src="https://cdn4.telesco.pe/file/cEPoQtyBSfkAn3apXD4uEQvvCCq6HCZFjnBgLZIgadlEBAtmH16fCcqZfrPAIPSWXvIHeEDfAjGhUodKPTEA-P9VQG_SPyCdTLvgqICZGxBiVwWP1GcBPZc4jPM2OWoHi2K0G8C8CewIQkCnUZ20aMSZyFLNJVDqpLLtCFHZzvWBNn9xezP8YZElaAOwcf-MATX7O2vS1v28ln9jGoxD3OxG6OxGrFZo_tUJrDqeonoEUzslf4kj_B2itK9AD9JL9CpcERXJU4VhNNvmO_0d7AQTOt7aHhcDlCbQlXFzmBYObmdxYv3QP8ZCyNhrmUluAZuwv9neInkkgb7WRso03Q.jpg" width="400"><br>
-
-‌ ‌ ‌ ‌
-فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرد که ایران چند پهپاد انتحاری را با هدف حمله به کشتی‌های تجاری در حال عبور از تنگه هرمز به پرواز درآورده است.
-سنتکام در شبکه ایکس نوشت که نیروهای آمریکایی در ساعات اخیر همه این پهپادها را سرنگون کرده‌اند و تردد کشتی‌ها در تنگه هرمز بدون اختلال ادامه دارد.
-در این پیام آمده است: «ایران چند پهپاد انتحاری را در تلاش برای هدف قرار دادن کشتی‌های تجاری در حال عبور از تنگه هرمز به پرواز درآورد. نیروهای آمریکایی در ساعات اخیر همه آنها را سرنگون کرده‌اند و جریان تردد در تنگه بدون مانع ادامه دارد. این گذرگاه مهم تجارت بین‌المللی همچنان برای عبور و مرور باز است.»
-پیش‌تر نیز یک منبع آگاه به رویترز گفته بود نیروهای آمریکایی چند پهپاد ایرانی را که به سمت تنگه هرمز در حرکت بودند سرنگون کرده‌اند. این منبع گفته بود پهپادها تهدیدی برای کشتیرانی تجاری به شمار می‌رفتند.
-این رویداد در حالی است که تهران و واشنگتن همزمان از پیشرفت در مذاکرات برای دستیابی به توافقی جهت پایان دادن به درگیری‌ها سخن می‌گویند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76288)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 21:30:49
-
-<img src="https://cdn1.telesco.pe/file/YQPhbvXylbhuM7pOUVJ1Yc_5XgXznNaNQ4qYmif17eGhF35eomrqTS6W7JbDzb0A19KD41nJOEao8dLEaSlY7TeYeOY3JejRRZTO1Hvk143vXzOprphs9y4N0QhjQmUcGTHcLjQNZwdOWIto09I-ghv9183kkJ1pc4Xc1tt7ZL8BCSkxvnW3IjpaepUhc-jXWET35tU0biEXBnP9jgM_q0NcHiHPzuIEVjtuPtsSJ1ve2YN48aLY_FgSHA0eRNlcRpzxQPBjMvfREWjYBlWHRYYJMfqGREgA2xUIf8SZ9PFQdoZaxNDXRFscKi61BPJVIQxAyri2n60MTLTZrp8peA.jpg" width="400"><br>
-
-وزارت خارجه امارات متحده عربی گزارش‌های منتشرشده در برخی رسانه‌های بین‌المللی درباره انتقال یا آزادسازی منابع مالی برای ایران را قاطعانه تکذیب کرد.
-این وزارتخانه در بیانیه‌ای در شبکه اجتماعی ایکس اعلام کرد که ادعاهای مطرح‌شده درباره انتقال مبالغ مالی از امارات به جمهوری اسلامی ایران، از جمله گزارش‌هایی درباره انتقال ۳ میلیارد دلار، «نادرست» است و هیچ مبنای واقعی ندارد.
-پیشتر
-رویترز به نقل از چهار منبع آگاه گزارش داد که امارات متحده عربی با آزادسازی میلیاردها دلار برای ایران موافقت کرده و بخشی از این منابع مالی نیز در اختیار تهران قرار گرفته است.
-اما وزارت خارجه امارات تاکید کرد که هیچ‌گونه دارایی یا منابع مالی ایران از طریق این کشور آزاد یا منتقل نشده است.
-@
-VahidOnline
-بیانیه امارات، ترجمه ماشین:
-امارات متحده عربی گزارش‌هایی را که از سوی برخی رسانه‌های بین‌المللی منتشر شده و مدعی انتقال پول از امارات به جمهوری اسلامی ایران هستند، از جمله ادعاهایی درباره مبلغ ۳ میلیارد دلار، قاطعانه تکذیب کرده است.
-وزارت امور خارجه در بیانیه‌ای تأکید کرد که این ادعاها کاملاً نادرست و بی‌اساس هستند و تصریح کرد که هیچ‌گونه دارایی مسدودشده ایران از طریق امارات آزاد، منتقل یا تسهیل نشده است.
-این وزارتخانه همچنین از رسانه‌ها خواست دقت را رعایت کنند، به منابع رسمی اتکا کنند و از انتشار یا بازنشر اطلاعات تأییدنشده و ادعاهای بی‌اساس خودداری کنند.
-mofauae
-درباره این خبر
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76287)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 21:30:49
-
-<img src="https://cdn1.telesco.pe/file/Bw5FZ6DUUpaxemsWhUJHOoSnP4K8vSSopYL3xhyeFz0D35ZCcG2leFNInfV1utoRg_tQOAQzYn6gw-CcE457PWdmWk__FZP-1aDgNjDadhIE6ocFJjtW4h_fhMPShHFxXiajmLx2WBe2ppq2cLgNcy9cUxnjszcJaP_1RvyX4LuRD_cT8EoOrP9DyrImLLkd-FT4iFk69SC15PRSEFxcMHk887sI_8dzoNcWHuATRYx6sT7wIfKhftqU_3jv1mb_Ga35GMi2Hg69KvZnRSUkPUash7fCupZQ6m8e1kMl8wSCZgOS_YI24WLqpRLq-yXuWdrO3gWt0JzfA0x-FOBKxg.jpg" width="400"><br>
-
-مالک شریعتی نیاسر، دیگر عضو مجلس شورای اسلامی نوشته:
-خب وقتی در باز بشه و ببینن که می‌فهمن مویوم...
-malekshariati
-این طور برداشت شده که داره میگه قالیباف پشت همه تصمیماتی است که به اسم مجتبی اعلام میشه.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76285)
 
 ---
 
