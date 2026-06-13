@@ -3,7 +3,70 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
+
+
+
+پست ترامپ ترجمه ماشین:
+توافق باراک حسین اوباما با ایران، یعنی برجام، مسیری آسان، زیبا و هموار به سوی سلاح هسته‌ای بود؛ سلاحی که ایران شش سال پیش می‌توانست به آن دست یابد و مدت‌ها پیش از حالا از آن استفاده می‌کرد. توافق من با ایران درست نقطه مقابل آن است:
+دیوارِ جلوگیری از دستیابی به سلاح هسته‌ای!
+در واقع، آن‌ها دیگر سلاح هسته‌ای نمی‌خواهند و چنین سلاحی هم نخواهند داشت؛ نه از طریق خرید، نه توسعه، و نه هیچ شکل دیگری از تهیه و تدارک. قرار است این توافق فردا امضا شود و بلافاصله پس از امضا، تنگه هرمز به روی همه باز خواهد بود.
+رابطه ما با ایران بسیار متفاوت و بهتر از رابطه‌ای است که دولت‌های پیشین داشته‌اند. برخلاف صدها میلیارد دلار پرداختی اوباما به آن‌ها، از جمله ۱.۷ میلیارد دلار پول نقدِ سبز و سرد، هیچ پولی رد و بدل نخواهد شد.
+در زمان مناسب، وقتی همه چیز آرام باشد، ما وارد خواهیم شد و «غبار هسته‌ای» را که در اعماق کوه‌های قدرتمندِ گرانیتیِ فرورفته زیر آفتاب دفن شده است ــ به لطف بمب‌افکن‌های زیبای B-2 ما و خلبانان درخشانشان ــ به دست خواهیم آورد و آن را رقیق‌سازی و نابود خواهیم کرد؛ چه در ایران و چه در ایالات متحده.
+ما مشتاق همکاری با ایران و سراسر خاورمیانه در آینده‌ای طولانی هستیم. امیدوارم این روند همگی سریع، آسان و روان پیش برود. اگر چنین نشود، ما گزینه نهایی را در اختیار داریم؛ گزینه‌ای که امیدوارم هرگز دوباره به کار گرفته نشود!
+از توجه شما به این موضوع سپاسگزارم!!!
+رئیس‌جمهور دونالد ج. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76306)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-13 20:21:11
+
+
+
+شبکه الجزیره به نقل از سخنگوی وزارت خارجه پاکستان گزارش داد که مراسم «امضای الکترونیکی» توافق میان آمریکا و جمهوری اسلامی یکشنبه ۲۳ خرداد برگزار خواهد کرد. به گفته او، پاکستان میزبان این مراسم خواهد بود و مراسم از طریق «ارتباط ویدیویی و آنلاین» برگزار می‌شود.
+او جزئیات بیشتری درباره شرکت‌کنندگان یا مفاد این توافق ارائه نکرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76305)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-13 20:21:11
+
+<img src="https://cdn1.telesco.pe/file/YMlITBsu-rgWqaPgNkHHvuv6UCJvcUYnqwVrV2IUzCvaQ3Z-pIwJZ3ghqI1iyliIStPMU7w566pbXnCDoGMSIKGbrzLwidpndrWRTw96Nl1wm7NBtYGT4-bj3xTWzKJPDDm-muH-OZrvHTKUmWZH6jCB8EfGmDxD9-lQZXIZdWWh4Ud8FKdp7ImvKhbIt2O61vMkcEnlaJJIHbVocoPOTP804idXTsl9B_xQeHFttnkCGAxSR2aaFG9q0mMZpzYFjLsUH69SIYHkdXv6kLd5TtUJQmpsTEPMxn1wxTtf9gsTWDtxDUC9cbiZFYF-eusHzw5wCqxaMJYt69eazt9Dmg.jpg" width="400"><br>
+
+یک مقام ارشد دولت آمریکا به رویترز گفت که دونالد ترامپ، رییس‌جمهوری آمریکا، در نشست گروه هفت با رهبران امارات متحده عربی و قطر و برخی دیگر از رهبران خاورمیانه دیدار خواهد کرد.
+به گفته این مقام، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در دیدارهای ترامپ با رهبران خاورمیانه هفت حضور نخواهد داشت.
+نشست رهبران هفت اقتصاد پیشرفته جهان، موسوم به «گروه هفت» ۲۵ تا ۲۷ خرداد در شهر اویان فرانسه برگزار خواهد شد.
+@
+VahidOOnLine
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، در نشست خبری شنبه ۲۳ خرداد گفت احتمال نهایی شدن یادداشت تفاهم میان تهران و واشینگتن در «روزهای آتی» بالا است.
+او در پاسخ به پرسشی درباره احتمال سفر هیات مذاکره‌کننده جمهوری اسلامی به ژنو یا اسلام‌آباد در دو روز آینده برای نهایی کردن یادداشت تفاهم، گفت: «درباره زمان دقیق امضا باید منتظر بمانیم.»
+بقائی افزود: «برنامه‌ای برای سفر به ژنو یا جایی دیگر ظرف یکی دو روز آینده نداریم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76303)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn1.telesco.pe/file/FoTj0CQ84Ztmv6CpQ6PEsKDr04KH-jyPIXuZimBLF1s-erVht8VQU-Smi64dRYBWP9SAnjDo3iohAg3bUBxkB5IVp9z27V3vTZ0QdjEt6et689m0k-Mdox_OA8hYXNOM6ascY5kXxBYQQ7BCplu_-qiWVkRVRHNJAM3VErpTQHqLKWaYYKkqXl_WqlsFGK5a6qHP-r6OHqRc-YuqTgi4DSNXb939FL-lBJ3agm9DucR2i6b35o1UegKF9uinN30jr0i8qX3ODpdoBmCVj_e-juIWfVNsjroM88f-Bl7HAwq7jqYu5CKZPKh3MWk1iUL9aOvsR-emQej0Yith0b3rUw.jpg" width="400"><br>
 
@@ -31,7 +94,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn4.telesco.pe/file/DUONKIZEURe4N_vAzCLwcR5mEH7n-HWG-xBCwDeASPQALfWHpGPhk4fpXqtf5vfekTQzb9ksMbidas2c3l-LsiW77-mggJI1FICpWf7CLRbgbLXsPbzuat-5QH-XRfuz0OtAFpWipmw40jQiPF-t-HOTuiKvbPJpHK4gsty8-8YI5LVbV50TFSIOwAI9E7QaDvG1Y38f2ENe6vR63-6QI6fZunCXCD_SCyaQVHgJVNzBq3xUl_uGI2TWOFynnJxUUtUg85WOsq8RokvFe05WMPSbfJdvd6HXBBrvJI354QdeqFK_i9Tpxdp2S-pkO3lRjQoHltloh6LEsWzlHmYL9Q.jpg" width="400"><br>
 
@@ -50,7 +113,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn1.telesco.pe/file/CXrjpGDSvQYo9Wpsj4Fy2RIeDkaOw6I6h0gOFQH_otdJ1-Qs_n09hC16LghpxHtlqV4nbzAZ0F9o0BdIQtMF1_0QkiL0EvtvKK77QE5h2F-MuKVZISgG8W4vQqtLL2Dhsd4U2Y5fowb-ytZmw9LooEwKVd75JnAPinZkTJgLHpIuQEwZuJ4egZ5t-tCg9xkWfX5Yds-JUhtCqTBp0h2stK4f6rRRhSZouYbyXM4K8lEr6y7B-75y1hgVpvQg0FCPfS_YzO28Wx0gYvLLm6gUJ7ziGw9jSM4VmNtdLVob5ANoCvR6aYNjQsr19WCVeaKkQYfVldJ1spkDHdbHiXyPbA.jpg" width="400"><br>
 
@@ -68,7 +131,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn4.telesco.pe/file/WmCaDNh8znAxuHtqScpPqrve70O78Wzhj_r8e9tt76gwc0zukprGOweZ20aPasLb6oHljfd0qE62n3IE0U5mDHrZu9kPthZF0_Wi9g7n9KNvLi9BDTv2Vrp41cR_iQ0-Y5DRpCVkjJHDsTrQbKZffUaOggF6YiRp3B8iRA5r4AtK61tJjUrA2K4D8FjcdIBDZ0YnOc1j6ixPi2SayCsev8tiUww5bz9ssqdq4U3jTK7ZpGTH0HuHd9YX3Ii1c3zso3cmutFyk53NDOZml5vWEWWxinRNqZhjD8UgzPZOsfBrAOJXvUac3TUH9P9oJtnSpvQPAJSdJ-jNIi6tPwcfng.jpg" width="400"><br>
 
@@ -88,7 +151,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn1.telesco.pe/file/b7_Fc1tRcoNoW8BBbXb0a03tUu5VNlspw0Xq2mUysNJNYrweEgVsnKc_dMuq8Y7Lxgh_1vsHO5q4zMPGDy9OO8BTj3l-X-pcOpv9ujxLKGA5xJU3p0ABPcoZPoGTEguMoxnTzPjHWFvSfZ_8kmjuqie_vn0cFb84CjpczWswuiCNTd4ew3UoqToQetxARBGUN6jIW3Sqxy9z1JqcP-8rNcdM8a2tl1sV6vkJwpPgwgj43OGm8DdbyB6bi_fc-smnuVdpXa84_mfjY27OmNghEFhQJl63aedYVbFk-4UTrN10lT_scSJ3EyrAJR7X6mFMN46eYBHcJupqpZDNh2oSgw.jpg" width="400"><br>
 
@@ -107,7 +170,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn1.telesco.pe/file/rrQTaUkLoSro7NjVNaJyigbAYrYRHWym4FXAhkMbp5Uban8pQ4sFlLS1H6LweHTzKB2MLRVeK2AzHvRfMtcrAqXtXUGz0L4NJ3pi1UYG2P2p6AKjdrHO7KlRebHyLniAGqHN7O7caJYPqETFUcH2HMsP5VJRPJjsbbEOue5Q-QgbZnrrZH7OSuc6ShYSfk0ak6EFQmkKFGGOwajjLYrJcXCl3Vgk1pnUy0FSLZA7CGKBCA7m8zksJLD0WgTv49nyXPi5VjV8kWFhfaizizYnwY9dII_Amadf10KIE60gBkCtwaHr4eBesj4J63rx_DcCrEVH3uKOL73c06NRgnXmeg.jpg" width="400"><br>
 
@@ -140,7 +203,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn1.telesco.pe/file/an_UAM1nWHVevBi1cxDofmIkwMhpuNd7DfQcXyLs4sUgmATcFHEIHRHs5UTQub5eC9JN_iua_O0ddclPA7V7ae1XvT3skZ9gmxXfef57YDXjfbPSofyEj-IU-KH9PvshF0IbFxbCuUI0a6rMdEpj0Nlz7EW9JpwXBjVSskf7u4jKwqSorlF_hymQGfj-JK95VjAHm0p9rdBZk8wYKmNjteeUUnFKRivJN0kuYe19t2MgMJeL5d3Thg-EczanpRVdA8LZqVKPhhSZ4pF9g-jNJYUV3lNTV1JxFzKDGas1KZZG5KcOziZMnD5eqG_RgW1VW9LLksVoEG4o9lvFr0eQVw.jpg" width="400"><br>
 
@@ -163,7 +226,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn4.telesco.pe/file/UVA7QMqWoXxbyV5m9Iuiw-xRqZFymi7NxbPhLM5azP9Ock5c18FilE2Ay86z2ZJc9ry4THcVikuJZu5VFyNPy1F_r3UKA4eKk0KJF1kvefdtkGwcfhO6WzEEAUPVElfv05-3qai9BNpG0ruvl9udXJ5FuVXLupIq-uZPa81G4lB8E-O3_TzHHGnxp3sMrLV-YAD6KVX4C21mVKwrRz97oX229eD3cEE_1r4tWcL8u-Os9J1R2xLZBRhZt4nevy3E06bvnWLrlRC79ptLmyIn75SPsEB2sOF3pSJv2mxcQzhPz45ZUQ3SX76jRTQkUV8Hh7SBB-itnIbSMhbbqN9G9g.jpg" width="400"><br>
 
@@ -180,24 +243,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
-
-<img src="https://cdn4.telesco.pe/file/RoPpyR5xCzUIBEu97Pvwcf4-WmaQkr1v64VDveXni9-VKNLOi4XNrBvhNistzRngwPRiDOaEJyH1sGfJNIKsCla_3xDa54KKIK9oiieZggtSpB2LeAwh3k9NWACdqrV8Md-2voIAkt3xXg7lDIszSeh0unVRv3tXBL9KrAFM2egium5KATiyGSpLEAg2QyizRxed0JJNh6uSDeeoZz6OZrXcFb2oYHKEnqdL6m3G_jU01L7GfSsa1HdPChYwZjf0PieL_Yu0PWad2erRiBaDu6q2C5TInwh97CcAzKsCSXEksCRqlOILqf1Tnc27G4DnUrImRRhwJ2pe51xUlqUuuA.jpg" width="400"><br>
-
-پیمان گنجی، جوان ۳۳ ساله و از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴، از سوی شعبه ۲۶ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده است.
-بر اساس گزارش منتشرشده از سوی هرانا، این حکم توسط شعبه ۲۶ دادگاه انقلاب تهران به ریاست قاضی ایمان افشاری صادر شده و پرونده او هم‌اکنون برای رسیدگی در مرحله فرجام‌خواهی در شعبه ۹ دیوان عالی کشور قرار دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76291)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn4.telesco.pe/file/hq6t9-WWfP7uZ8YkmuT7WXrYLFiS_2ER8Rjaf7lv2k_DPSJClTVO3ryLhrC0EBO42Hp-rTzdm9mnDosAVwYPdUohQwAqIR7FNUXjt_-n9ba8BQKzhWjUe54HyuHFq5bw44WSkTl9lwsy_tgfft7P35QaS0RQbUh5C446ZlefxY9aBZAq-9eFWD9iDEyEuyK-gtYhVodR81Nlfk6c9RiIMrRixoTUfAE558qnoPOJ6IORMEc6ed8It2kYpSvLbBY3jJy7MFOLXXYgjzzxRMfRSKlA3LdMt3CgC-7N7qhTMrU_gCZQg39m6OggERj1J4es22k8yb5rAkW7TbCPkpOinQ.jpg" width="400"><br>
 
@@ -214,7 +260,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn4.telesco.pe/file/loM5VVjC894aqLbBnw35VywgiZQ_-yiNa_XLFoi5xyDmZOSb7hYK_9RpJdvXtj_XPD6QrsfukfTrcYf175zstjPU4ZOlD7aCqd38s5WVptG6G6FEAzEvhivnbiD6UlsLaBre8Vgl842KH84mIyNqReKQb2iPpgQmUrIaira1COEKuaAC-r_fENs2glSrxpVedao2OrJo7ueeMYKLIprdRpPfZ7RqKm59P13HVx7Q1IwGYOLIqdRdCDu2Hk1ANcLGzKjwP-RcJNH6clDfLD-Zyw8efIh_GRCFPn-K2PrMITle5Ho7kFD1YJi2G6JGfb6VgtJpn6HOyreRNgwruG69Hg.jpg" width="400"><br>
 
@@ -232,7 +278,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn4.telesco.pe/file/cEPoQtyBSfkAn3apXD4uEQvvCCq6HCZFjnBgLZIgadlEBAtmH16fCcqZfrPAIPSWXvIHeEDfAjGhUodKPTEA-P9VQG_SPyCdTLvgqICZGxBiVwWP1GcBPZc4jPM2OWoHi2K0G8C8CewIQkCnUZ20aMSZyFLNJVDqpLLtCFHZzvWBNn9xezP8YZElaAOwcf-MATX7O2vS1v28ln9jGoxD3OxG6OxGrFZo_tUJrDqeonoEUzslf4kj_B2itK9AD9JL9CpcERXJU4VhNNvmO_0d7AQTOt7aHhcDlCbQlXFzmBYObmdxYv3QP8ZCyNhrmUluAZuwv9neInkkgb7WRso03Q.jpg" width="400"><br>
 
@@ -253,7 +299,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn1.telesco.pe/file/YQPhbvXylbhuM7pOUVJ1Yc_5XgXznNaNQ4qYmif17eGhF35eomrqTS6W7JbDzb0A19KD41nJOEao8dLEaSlY7TeYeOY3JejRRZTO1Hvk143vXzOprphs9y4N0QhjQmUcGTHcLjQNZwdOWIto09I-ghv9183kkJ1pc4Xc1tt7ZL8BCSkxvnW3IjpaepUhc-jXWET35tU0biEXBnP9jgM_q0NcHiHPzuIEVjtuPtsSJ1ve2YN48aLY_FgSHA0eRNlcRpzxQPBjMvfREWjYBlWHRYYJMfqGREgA2xUIf8SZ9PFQdoZaxNDXRFscKi61BPJVIQxAyri2n60MTLTZrp8peA.jpg" width="400"><br>
 
@@ -279,7 +325,7 @@ mofauae
 
 
 
-###### 🔵 Updated at: 2026-06-13 18:43:20
+###### 🔵 Updated at: 2026-06-13 20:21:11
 
 <img src="https://cdn1.telesco.pe/file/Bw5FZ6DUUpaxemsWhUJHOoSnP4K8vSSopYL3xhyeFz0D35ZCcG2leFNInfV1utoRg_tQOAQzYn6gw-CcE457PWdmWk__FZP-1aDgNjDadhIE6ocFJjtW4h_fhMPShHFxXiajmLx2WBe2ppq2cLgNcy9cUxnjszcJaP_1RvyX4LuRD_cT8EoOrP9DyrImLLkd-FT4iFk69SC15PRSEFxcMHk887sI_8dzoNcWHuATRYx6sT7wIfKhftqU_3jv1mb_Ga35GMi2Hg69KvZnRSUkPUash7fCupZQ6m8e1kMl8wSCZgOS_YI24WLqpRLq-yXuWdrO3gWt0JzfA0x-FOBKxg.jpg" width="400"><br>
 
@@ -291,72 +337,6 @@ malekshariati
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76285)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 18:43:20
-
-<img src="https://cdn1.telesco.pe/file/ClGxLxZJyjoMZaeTXEBwXuKeCx9J9vS4I7jKUKApCTkiHKdu2_OO5-tlFcI0R69P7m3Xjx5uGbzN9JWqNO48npcl7r30MeSv0RUc8qoB80XrzkfrslyeA5ABdjHD98sBLCzWdU8cn9Strps-53QDMH0luNxirPql-NLr-FJpgQ0x8uzS5N3v5CRu3t8FdjDAerBUgIpe9tCWWARAk8kAKKPpn_VgnAmsheEM81EUVbCoe1RAVXfOUGoJC1OJpOCNjw7YC_GeiNYxpnEZt-oaACQpxiFsbBrOCdZ_98Vz-wPm7Z6TN5O2A-uBhhHfUpc17a_aNPts3b39XIbLqkW4qQ.jpg" width="400"><br>
-
-خبرگزاری تسنیم:
-استانداری هرمزگان: صدای انفجار در حوالی بندر سیریک ناشی از شلیک هشدار در تنگه هرمز است
-خبرگزاری فارس:
-شلیک هشدار به کشتی‌های متخلف در تنگۀ هرمز
-دقایقی پیش مردم در قشم، جاسک و سیریک در استان هرمزگان شنیدن صدایی شبیه انفجار گزارش کردند؛ گزارشی از اصابت در این نقاط مخابره نشده است.
-به گزارش خبرگزاری فارس از بندرعباس، منابع محلی از شنیده شدن صدای انفجار در سه نقطه از هرمزگان خبر می‌دهند.
-دقایقی پیش اهالی مسن قشم، مناطقی از سیریک و همینطور جاسک از شنیده شدن صدای انفجارهایی خبر می‌دهند.
-بررسی‌های خبرنگار فارس از منابع آگاه حاکی است صداهای شنیده شده مربوط به انجام شلیک هشدار به کشتی‌های متخلف در محدوده تنگه هرمز است.
-منابع استانی نیز وقوع انفجار بر اثر اصابت در این ۳ نقطه را رد می‌کنند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76284)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 18:43:20
-
-<img src="https://cdn1.telesco.pe/file/s0mUVcv9wKkHFrHBKJ9fQwzrPkXFHg-YWASRWnn4Esj24xX2T43WTeknIv1ufgXtHc2vLG5TfiUQ-1VBPZxZ7IE6Jmcj9md0AccUBXqrsWvFEZBjDeyhKfYpsRixTkDXmh3BL_dBKYAIbp-7eXm4_hODR--nHsejjcjXVJJTRckWNXqsEMrQsij6vK9z5X52s7N6piWhXf3ZWFw8Cv6YGF1ItShntHjZ3-Wm4OdeVPvXwPfZpnI_ZiMGA3Dh0kU3JhQKKWie-rX5Agnd-6PbhDbE2a5QqFq-_Ip4XXRt_qvW4TE9flrn7RZBMVYPjE3V_p1cXJsJxZo-ibx5Lh0Nwg.jpg" width="400"><br>
-
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، درباره تفاهم با آمریکا به صداوسیما گفت: «احتمالا در چند روز آینده تفاهم‌نامه میان ما و آمریکا امضا خواهد شد.»
-او افزود: «امضای یادداشت تفاهم بعد از گذشتن از آخرین مراحل مذاکرات به صورت دیجیتالی و از راه دور انجام می‌شود که اعلام خواهد شد.»
-@
-VahidOOnLine
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، شامگاه جمعه در یک برنامه زنده تلویزیونی اعلام کرد هنوز توافقی با آمریکا امضا نشده و مدعی شد که پرونده هسته‌ای ایران به مرحله دوم و نهایی این توافق موکول شده است.
-او در گفت‌وگو با تلویزیون حکومتی ایران گفت توافق احتمالی با ایالات متحده شامل دو مرحله است و «موضوع هسته‌ای را به مرحله دوم انتقال دادیم».
-این در حالی است که ساعتی قبل یک مقام ارشد آمریکایی به خبرنگاران گفت بر اساس توافق، قرار است اورانیوم غنی‌شده ایران در خاک این کشور نابود شود و سپس به خارج از ایران منتقل شود.
-با این حال وزیر خارجه جمهوری اسلامی با اشاره به اینکه نتیجه مذاکرات یک «یادداشت ۱۴ ماده‌ای» است اعلام کرد مفاد آن بعد از نهایی شدن اعلام می‌شود.
-وزیر خارجه ایران در گفت‌وگوی خود خبر داد که طبق تصمیم جمهوری اسلامی، «آینده تنگه هرمز و اداره آن مثل گذشته نخواهد بود‌» و ادعا کرد که ایران و عمان بیانیه مشترکی در مورد اداره این آبراه منتشر خواهند کرد.
-او در ادامه اذعان کرد که طبق قوانین بین‌الملل گرفتن عوارض از کشتی‌ها در تنگه هرمز امکان‌پذیر نیست و افزود: «اما هزینه خدمات دریافت خواهد شد و این در مذاکرات تثبیت خواهد شد.»
-عراقچی اعلام کرد طبق توافق، محاصره دریایی ایالات متحده علیه بنادر ایرانی به‌طور کامل رفع خواهد شد و دارایی‌های بلوکه‌شدهٔ ایران آزاد خواهد شد.
-مقام‌های آمریکایی آزاد شدن این دارایی‌ها را به دفعات رد کرده‌اند. جی‌دی ونس، معاون رئیس‌جمهور آمریکا ساعاتی پیش تصریح کرد بعد از امضای توافق، هیچ‌گونه منابع مالی در اختیار ایران قرار نخواهد گرفت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76283)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-13 18:43:20
-
-<img src="https://cdn1.telesco.pe/file/eVBauF_uk6JJIaoXPMLOr_4OCabBjahBs1nvp3WwdXfVOC3aqTG0ZELkNW3tr5cnjgkuSguAuO2p5VM3tAlfkjSR6yfEeGZFBCtFxZ3ZXSiDyHsLPADtY5AUNuGCGqfpgdTslxUv1LLgErm20ElTIpGpITZdqxmXEyNxplm26JKYomDgNS3TrUfowyewefB2UcrIVv0eVgpzCOFodjSYBRmFuFt9fbukwnAcesgE-xjcG8PZkbq5llraj_-qvbdycLFrVCw_wDaAig-lZtjOe_yl46wzRbvcNvRvLnLC9nZMDEErnKMnp2jwWdu1RwM_0HzqZYkuxIGtyBat8pvRxA.jpg" width="400"><br>
-
-توییت قالیباف، ترجمه ماشین:
-تعهداتی که داده می‌شوند باید عملی شوند؛ نه اما و اگری، نه عذر و بهانه‌ای. برای توافق نهاییِ پیشِ رو، راه دیگری وجود ندارد.
-هرچه بکاری، همان را درو می‌کنی.
-mb_ghalibaf
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76282)
 
 ---
 
