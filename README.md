@@ -3,7 +3,81 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-14 19:36:34
+###### 🔵 Updated at: 2026-06-14 21:12:04
+
+<img src="https://cdn1.telesco.pe/file/gPDuAIbqu6NfzoUQc3mjoOlidUTB-nbTO68_hXRUpqDUbhMbSJ8BQVxNJOu8YBjWyoqwYNTpu7AwqXEivpurPegE1HJ0eKbdmxuvAfcZzeVDfpRlyA9sWhi62JFsT43epUj53spK5-od3DF-VRPQMTwpovZmJg4uHAswtOLbnP5rRsvW2zhMzqwwQcs0X5mT8CaClnyTGjUnDaGRFxyIHgcm5x3eFF2lKZRc66xySuF9M-yvV5Q6NWMpGaukvH_MDVX0aywEvBHZBbKCNuQrQr0Fly2E9pRr5YHQzFDGypNY4duwKuRw6zusVE7JBjtjBQCei4F11FnKePIskcHW3w.jpg" width="400"><br>
+
+‏پاسخ رزمندگان اسلام در پیش است.
+محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی در جمهوری اسلامی
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76340)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 21:12:04
+
+<img src="https://cdn1.telesco.pe/file/MP81C9seSRtE2lP8_hw1jyHmFN4FkPYKbstXaS116gL0kdz8FG7aMULvJ40JKul1gLE8loio-bSFt5k4HgLgREypG8xHi5LwV3pM4_C5GxYfJFeC8jsn1v9r8QVmS4sWeDibmGhQef-stGCPzqdDABLQuKhpyX5Dx0SbhRTRPw9NnllGC9hDcGDOYmN2_MgYeKMzz1pbacyyYmjcScMApG8XGj4NS95oMD8BA1HwRQrbejuVwhTkzp7fuu_dWD9jDunMZYQAytXa4IYqGTFyGhr7BWqDUtB3tuM6wH5Xc6a_7fBbZdLwzoF_IjD_TgobniAqEvh34FRR4qbuvsOAew.jpg" width="400"><br>
+
+نصب تصاویر #مجتبی خامنه‌ای و آدولف #هیتلر با هم عکس جعلی چهره رهبر جدید جمهوری اسلامی (دستکاری شده با هوش مصنوعی) رو با استناد و افتخار به سخنان جعلی و چرندیات هرگز گفته نشده آن جنایتکار دیگر منتشر می‌کنند. عکس دریافتی از بابلسر، سه‌شنبه ۴ فروردین Vahid
+📡
+…
+
+[View Post](https://t.me/VahidOnline/76339)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 21:12:04
+
+<img src="https://cdn4.telesco.pe/file/XXbYBQjctftdS5TNR1BVRNKOaWDNliAxDByoLQGwrbe5wYyWg-8FjFbelgAQpv4Ryma93uD6IfTUoAztOGqJzgWk39tZ30fY16QGWpq7FwiqqbaADa4IiUHn3jC6KIVS0tjxrZ_aNrRzdxDCos_uVK8rKNbZDF6N5SDiLWL0bDkdmi3uLHsJj9rSU79rWyc63oioYUJVteg1OpR7jFp8LFYIPDH2cJtIHety77pTARlWR92sdWp72ezumaeyLX-76qeJP5BzHe6qjgJNs_V8KwV6cHn4i2IUGj-3DcUW1v-ebt2DzGYGQjxjXdVlLmsuHKZPvJ2QI5TgNeSSmcU13w.jpg" width="400"><br>
+
+مسعود پزشکیان، رئیس‌جمهور ایران، در پی انتقادات برخی حامیان حکومت از محتوای توافق احتمالی با آمریکا، روز یکشنبه گفت که روند مذاکرات بر اساس مصوبات شورای عالی امنیت ملی و دیدگاه‌های رهبر جمهوری اسلامی پیش می‌رود.
+او در دیدار با مدیران رسانه‌های داخلی افزود: «تصمیمات راهبردی کشور باید در چارچوب سازوکارهای قانونی اتخاذ شود و همه جریان‌ها و گروه‌ها نیز خود را ملزم به تبعیت از این تصمیمات بدانند.»
+در آستانهٔ امضای تفاهم‌نامهٔ ایران و آمریکا برای پایان جنگ، اعتراض‌ در میان حامیان تندروی حکومت به متنی که به‌عنوان تفاهم‌نامه در برخی رسانه‌ها منتشر شد بالا گرفته و تجمعاتی نیز توسط گروهی از طرفداران جمهوری اسلامی علیه این تفاهم و مذاکره‌کنندگان برگزار شده است.
+در یکی از این تجمعات در تهران، تجمع‌کنندگان علیه عباس عراقچی، وزیر خارجه، و محمدباقر قالیباف، رئیس مجلس شورای اسلامی، شعارهایی سر دادند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76338)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 21:12:04
+
+
+
+ترامپ: به نتانیاهو گفتم داری چه غلطی می‌کنی؟
+ظرف دو سه ساعت آینده یک توافق بزرگ امضا خواهد شد
+ویدیوی بالا با زیرنویس فارسی است، متن دو دقیقه اولش:
+«بله کوین، عصر بخیر. همین الان با رئیس‌جمهور ترامپ صحبت کردم. او به فاکس‌نیوز گفت که معتقد است یک توافق بزرگ با ایران ظرف دو تا سه ساعت آینده امضا خواهد شد.
+از او درباره حملات امروز اسرائیل علیه حزب‌الله در پایتخت لبنان، بیروت، پرسیدم. او گفت با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تلفنی صحبت کرده و از او پرسیده: “داری چه غلطی می‌کنی؟” ترامپ گفت به نخست‌وزیر گفته بود این حملات علیه حزب‌الله را انجام ندهد تا بر پیشبرد این توافق اثر نگذارد.
+اکنون اسرائیلی‌ها، به گفته ارتش اسرائیل، خود را برای احتمال شلیک موشک‌های بالستیک ورودی از سوی ایران آماده می‌کنند. رئیس‌جمهور ترامپ به فاکس‌نیوز گفت از ایران خواهد خواست با شلیک موشک به سوی اسرائیل پاسخ ندهد، چون این توافق در آستانه امضا قرار دارد و انتظار می‌رود امشب امضا شود.
+همه اینها در پس‌زمینه تازه‌ترین گفت‌وگوها برای رساندن این توافق نهایی به خط پایان رخ می‌دهد. رئیس‌جمهور درباره حملات میانه هفته گذشته هم صحبت کرد؛ زمانی که آمریکا بسیاری از مواضع ایران را زیر ضربه می‌برد و ایرانی‌ها را به میز مذاکره برمی‌گرداند.
+شاید یادتان باشد، کوین، من با رئیس‌جمهور تلفنی صحبت می‌کردم، در حالی که او در اتاق وضعیت بود، و ایرانی‌ها با او تماس گرفتند و از او خواستند بمباران را متوقف کند. رئیس‌جمهور معتقد است همان لحظه توانست معادله را تغییر دهد و دوباره ایرانی‌ها را وادار کند این امتیازها را بدهند.
+رئیس‌جمهور ترامپ گفت اگر آنها امشب توافق را امضا کنند، او فوراً دستور خواهد داد محاصره بنادر ایران برداشته شود و سپس وارد گفت‌وگوهای جزئی‌تر درباره برنامه هسته‌ای ایران خواهند شد.
+اما دوباره، مهم‌ترین خبرهایی که اکنون می‌دانیم این است:
+رئیس‌جمهور ترامپ به فاکس‌نیوز گفته معتقد است توافق با ایران ظرف دو تا سه ساعت آینده امضا خواهد شد. به گفته رئیس‌جمهور، این امضا به‌صورت الکترونیکی انجام می‌شود و حدود یک هفته بعد انتظار می‌رود مراسم امضای حضوری، احتمالاً در جایی در اروپا، برگزار شود.
+باز هم تأکید می‌کنم: رئیس‌جمهور پس از حملات امروز اسرائیل به پایتخت لبنان، بیروت، واکنش نشان داد. اسرائیلی‌ها در پاسخ به آتش پهپادی این هفته از آن سوی مرز به سمت شمال اسرائیل، مواضع حزب‌الله را هدف قرار دادند. و رئیس‌جمهور می‌گوید از نخست‌وزیر اسرائیل پرسیده: “داری چه غلطی می‌کنی؟”»
+TreyYingst
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76337)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 21:12:04
 
 <img src="https://cdn1.telesco.pe/file/MCw1RhOoAAUxxJ6_BTNUYKnvU9SRhTbczjQLqCkjX9nCS860_raSgNyfsAxIABuaTTsfBcHmOFwn_U7xgN4MMNoEPTbEiOfxfYdIhnlOwo-SYgIx7u1TcrGIPkrbWB-lfti_-375wq3k1U7jiuIgITrM5HBrkdwVQ1m8Te_YuHUZGu46yW-LhRBscWPAW_2HyDkpX6YTXTkbyAFmabG8cLNekJsD5XAUq0B4wkUuCSuPR-1bTy-BDpTF4haiRZJFDB0T67peJWRvd3UP3hfNaFRCDT9C4wVkUanlJ9WBeE3ZmeN7SJKz2VlNUrf-Z7nzL1kngOBRnaUkqIM09oS5RQ.jpg" width="400"><br>
 
@@ -20,7 +94,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 19:36:34
+###### 🔵 Updated at: 2026-06-14 21:12:04
 
 <img src="https://cdn1.telesco.pe/file/FmhaNtnAdrp3rBycerby8GQRQh6k34hnEHMN-r7McjLgZZJfWN64gUIYviYyputDM16zoByhdx-PNurEGWxG-tnVYwzUzASUm-_e9RcBb2SPbLcidyidXMx7JzpJyvxeOiq4KxG5pAyNpTmCczmKjGPGacbc58BBt_l3dCGlIBElmD2n7bxgRbIPjqTktbiPfyDKU8GGD-SN_KT5em3E6VXHovgAJpt_AFm7DdARSuhFpYpCo2TaXLYfl3ckpJXMX9PhrZEsKpJ5NHLvQK3D-S6cfLBUHbOsAQIpOwkB5R-S2Fot0iu4YdAdFQRNVK81XnyAXMpw4UZ-nIPHWwMvAw.jpg" width="400"><br>
 
@@ -41,7 +115,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-14 19:36:34
+###### 🔵 Updated at: 2026-06-14 21:12:04
 
 <img src="https://cdn1.telesco.pe/file/PaY8Pm1CPw4HokTcjcnSwpJ3M0TNiDSZealgAL9Nw33mWC4ZZ0LNpsqjCvXTta_gjbIjZNsKBb8mH-19dSGlYE9Ny3Gh7vET7XS4UjqstMnBgIDtH5c6Dy3_0wBHiv9vZw7nW9QniSse7yoDrr5YKFo9ORzECPDaa65j5qG9yce-VADFCduH4nUZBpAz7Fyz6DaSuafp6rM-SlFMmMLXFKypNRLPjdDfKzZ-GfFcwswTIjm4oIZ2neohlnE3ZAAQzv3SERz6COhdh9QSCh9zy5GRmJL3UgljbLB6NDSzje-4SzSIEUUjtG55tiVpoXHbbIDKGyzWpOAhGPsKVOatSw.jpg" width="400"><br>
 
@@ -72,7 +146,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 19:36:34
+###### 🔵 Updated at: 2026-06-14 21:12:04
 
 <img src="https://cdn1.telesco.pe/file/UMniGdI77C0QBAIhXqIXfbpdv7gKM7NvqczVYr5n9ajET_LaH1g7LXWW1_ftKtXhvStBl-d6y49hmhvomYrc-WpRF3rkdWlbRvMGRqyrIVKq1e_UhVi3qRlrSEefp_YXODBi3klRWFVejhg9wzby0BtSdI25rbFMt8K76cSUaqofvI3eEnGo7gxrPJQOGRvGcnv27UspHerekej9Ey0tkN9Vd16DU3rIlwAO2sqq3hAKJThTMBWtr-NKrPRBWVG-4V4NXc3yHUu753sv41i30IiNPljxq-GXwS9LRtomXuf020WPufQh_T7XmHX1PCVWX3RKti7ZPVjeZIth1DR8XQ.jpg" width="400"><br>
 
@@ -97,7 +171,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 19:36:34
+###### 🔵 Updated at: 2026-06-14 21:12:04
 
 <img src="https://cdn1.telesco.pe/file/bTM60r3Mj_AMuGICTYl7KTAez6Y3zWGS_T_6XRhwrt2qNP8IeAj1AF0Pa9t5edZQX6op7_UFIVHWR4yzo4lzFnci7o2gMnBwHtyBpw-SoENNhMtfE7Eb7AWSBgzSWPHX961qRZ3hG6SzdsQ57Nuth7zq823kGwoh0Eiwk4tOaQ2c8lkHrVlNDtOGnqdJokM2dL_ML2JNsS7PtZGShGU4zVXbRV_nkskNEZxH1kQ1yuJ8sh3m-Of9B7w4AhE8NW6oZSgiuiPJO7SwAeYf0DINyFgbeMMc_Fq4Qm2R332lsoOj4xbyi4fEk_x7td-K8QQrs-0qpcXKLFfwq7vj70Icrw.jpg" width="400"><br>
 
@@ -129,7 +203,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 19:36:34
+###### 🔵 Updated at: 2026-06-14 21:12:04
 
 <img src="https://cdn4.telesco.pe/file/nBMpbuNviTszpJpCXJgDvrvZudWtitCPu4T1KkZ4aarxz99DR33EDqaU7pfe3dQxocw9670czrnkZcfCQ2wzA0Gv8z2E7jMfxrbDEztGiTzTAm5MngdiB2gnqlHhkvksSQp88LeRk-PzSME-3zxyG6og45nmidYc1VKdPl1Qx4f7U_j20TDlyNOQU-Nc0sVbY8Nsq5PlHAHebUf9jr-F3phBvccpLPed5-WZ-VHfhMSGM7IjXfpM1fZgW_UERc1BToaaSp1z_auu65e0hezpmihS61quOKHksKS1cgyPi0hNXsxfNbjFtfVtplfGdeT57A0fALAkLfVjSQ7kA7p5PQ.jpg" width="400"><br>
 
@@ -149,7 +223,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 19:36:34
+###### 🔵 Updated at: 2026-06-14 21:12:04
 
 <img src="https://cdn1.telesco.pe/file/tjIz2SLWLq_-5wD0SibXDMbjC5S3gvPC4CtkN5W1WaEX8SB3t8CY1CPiz9fwe0tI_AwvSpbB5dYACsqGsMebdqwoSTeIaGFp0cDoK0OH1ODPA74KAXyvXWDWzRn1me_RhE-sTPhXf9AV1pd3qwod1yGbm4LD6kanevnuR7DhyGtXUnH-K73okZ2_ammYVkKzlahofyRFe4YNtjkUuWxkt5W6BV_NaIiyLrAMJQt4pfo-sOIm5YkhFYlpph42v467Wuo4V5mzlJgNEe_e7HFdQE6M0-bc_TNF-e2NYaFGlb-46GAa-ajmJgiqjNWKbEM6VmyIqOaDt3qCoRDS4oShKA.jpg" width="400"><br>
 
@@ -164,60 +238,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76320)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 19:36:34
-
-<img src="https://cdn4.telesco.pe/file/n3bxJ-fdhh-EDaVygs5BoM3qelorAs2UUkN-iYEuGbhZuc66XxqItYWklBvmk2wlB8xVtDXNHnjP6Aa8n2lsRPTXrQUIbVl3ix7WjMYSsOg3x2BA8UgPByNnlA0cRNxn04wAnlhP-ikhaXSVxVtKTknOMcWxGrMSEdkYGP6i3EclW0Zb6m89gEShNiWdT8XvCecj4tkB90aDShpoCBj2vqb_OMUCcQAsjjKQ128nQenAV3WWmC3yMSWJZFH5JvGrahvTeKh5risIUE-8jsxfFxwJWNFdo-dFCb4xAxPvetmKvzvs3WVzCWPw_qMESq4FNd3DWTWvPOa4s9gLNLkFDg.jpg" width="400"><br>
-
-سی‌ان‌ان به نقل از یک منبع دیپلماتیک گزارش داد مذاکره‌کنندگان قطری پس از رایزنی با آمریکا راهی تهران شده‌اند تا با مقام‌های جمهوری اسلامی درباره کاهش اختلاف‌های باقی‌مانده و نهایی کردن تفاهم احتمالی میان تهران و واشنگتن گفت‌وگو کنند.
-رسانه‌های ایران نیز گزارش دادند این هیئت قطری به تهران سفر کرده است.
-این سفر در ادامه رفت‌وآمدهای دیپلماتیک قطر انجام می‌شود. چهارشنبه گذشته نیز مذاکره‌کنندگان قطری پس از مشورت با طرف آمریکایی به تهران رفتند و درباره متن احتمالی تفاهم با مقام‌های جمهوری اسلامی رایزنی کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76319)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 19:36:34
-
-
-
-عراقچی: مقاومت باعث جنگ شد
-[اینطور برداشت شده که داره میگه نپذیرفتن شرایط طرف مقابل در مذاکرات منجر به جنگ شد]
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران شنبه ۲۳ خرداد در شبکه خبر و در پاسخ به پرسشی درباره علت دو جنگ اخیر گفت: «مذاکرات علت جنگ نبود، مقاومت تیم دیپلماسی در مذاکرات علت جنگ بود.»
-این گفته‌ها که در تعارض با موضع رسمی نظام جمهوری اسلامی و شخص علی  خامنه‌ای، رهبر پیشین جمهوری اسلامی به شمار می‌رود، با واکنش تند رسانه‌ها و سیاستمداران جریان اصولگرا مواجه شد.
-علی خامنه‌ای، رهبر جمهوری اسلامی ماه‌ها قبل و پس از «جنگ ۱۲ روزه» گفته بود دشمن هر جا احساس کند که ما ضعیفیم، حمله می‌کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76318)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 19:36:34
-
-<img src="https://cdn4.telesco.pe/file/DO8Q6z3fApmGcxDHtgEm27Dc_HlgXl-kHWuqJg7CnYrXj3wIv9RXbhl35swjC-FQbrBskdtHrBr4-NKyJvTqoegdUOiOcNftgbmG-kQFzMZCCk_GhjES0vDJ0sANxOyrpRZRTFmQNmrXkarPqERxkD-E3U5dr_Eyl5eT6YlrbPprzZBg-QSPp1kQZHJ18qseCr32uESA0hGX6vN3v_XB_OdyumkFL_H7KB3z9F8feK6XNR2cxYgvqFs7Y9vlnnbPqQFTDB7ivX2fDZ3F-0roF-JKYTNUmunaEF-Z5j31Rrx2tsfwgAK-Ux3xjbuVQskd7qPQxeOqYWCrKwns4zAVdA.jpg" width="400"><br>
-
-وزارت اطلاعات جمهوری اسلامی در اطلاعیه‌ای مدعی شد یک فرد متهم به تلاش برای نفوذ به مراکز داده، یک هسته چهار نفره در جنوب شرق کشور و ۱۲۶ نفر از آنچه «لیدرهای میدانی شبکه خرابکاری خیابانی» خواند، بازداشت شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76317)
 
 ---
 
