@@ -3,7 +3,180 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
+
+
+
+اعلام خبر توافق و توقف جنگ در شبکه خبر
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76351)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 01:15:06
+
+<img src="https://cdn1.telesco.pe/file/hVYnMHpxc9i9pbpOiYCFUqYHZzVoHP8OjFo5vM0iGmFAH5rdHTYNLUXuIJSs8UuK8JdNxdBIiaAcTFms1ewy99vlxKJneSad5hdIsPUdvlhFjUAzz8tO3UM5gwibSWtk79pt58hN-1u2fSCSSCBqlzM3tSBIOvyDcwaRNK_FMM_ru3tiCQrwXm143hRq8ZZ24QBv8HCve8HoQE6sxufBI0re9Rusb943f-idv5h5ZDNLTrjrapphyA89p-E-mr4w7QKqeDkYHGJgsAd26AgXYJ79eQhjfxchfFJvz35NQcg7KLH9Ue37xAjKd6DA6rC6UDX9gF4q-KJeBRudBavnjA.jpg" width="400"><br>
+
+☄️
+ترامپ: تبریک به همه، توافق نهایی شد
+پست ترامپ ترجمه ماشین:
+توافق با جمهوری اسلامی ایران اکنون کامل شده است. به همه تبریک می‌گویم!
+بدین‌وسیله من به‌طور کامل اجازه بازگشایی بدون عوارض تنگه هرمز را صادر می‌کنم و هم‌زمان با این، مجوز برداشته شدن فوری محاصره دریایی ایالات متحده را صادر می‌کنم.
+کشتی‌های جهان، موتورهای خود را روشن کنید. بگذارید نفت جریان پیدا کند!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76350)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 01:15:06
+
+<img src="https://cdn1.telesco.pe/file/LWqbBZOBNzLrUunFEo6gzDQh4mJVfrYrXvbAJ_wFbMaznC__g_tFJz4W0hYuKqTgFv2jU-T58BpGnmfeau_oT6GrQhP7ryZCT0iTzntyNklgl72CSCGp7QYBdeDxGhZnQP_RgTDrYhUtjpK2RshOEDRLv45dAwN-YOCPkZ8wNIaNdu29wsnGG_hgdhVTeJR7IfOPup-uqctZxNi5jS-X0uKA-SZcpCpUbW46Eqz2XchRDoM7A0blaHRtg5S4Ls7fg1EZ7N7firEabSoDQ9L-DD55Q3-FYaxscdo-8V5j5MrDiqFBmbh56MhxYBVdOJ7cn2wzG1PyUNUnMhuqOQdgDg.jpg" width="400"><br>
+
+شبکه خبر:
+نخست‌وزیر پاکستان از دستیابی به توافق و پایان جنگ خبر داد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76349)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 01:15:06
+
+<img src="https://cdn1.telesco.pe/file/I0MoJ7Hra9UEnXQKfh_a5NAaTGjyK4mCb2mHNAwkSRzmctSU4DSGgpkpukdmIl8zZK__azZRdoMLFUbgNVQkchTmBjoPSwbeMBb2IG0WGbjh09DSbBEPD-LwPJb-p-vXS061H8L9RNWkkBbVCu3ADqfuGoiPgd8FLmNWNAXJ_W9S-f-aO9pDOVh49UNVAICqLpPsE6p_3QAKwuz21IGThmRTbEvpGd6X-G6FiBD82lQ-apbGCP6R02jgG6UgiDpxVGJEfMc2uidK_c0ZScHRnQLtJsUBMjkRdjj6YhzmVw1I9GL5Ut3_pACoDaJmpMWrg9X6osaXKEaB3lgd3HM2ag.jpg" width="400"><br>
+
+☄️
+نخست‌وزیر پاکستان: توافق حاصل شد، جمعه در سوئیس امضا می‌شود
+پست شهباز شریف، ترجمه ماشین:
+در پی مذاکرات فشرده، خوشحالیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله در لبنان، را اعلام کرده‌اند.
+مراسم رسمی امضای توافق روز جمعه، ۱۹ ژوئن، [۲۹ خرداد] در سوئیس برگزار خواهد شد.
+مایلیم از ایالات متحده آمریکا و جمهوری اسلامی ایران به‌خاطر تعهدشان به یافتن راه‌حلی دیپلماتیک برای این مناقشه تشکر کنیم. همچنین مایلیم قدردانی صمیمانه خود را از برادرانمان در این تلاش میانجی‌گرانه، رهبری بزرگ دولت قطر، به‌خاطر حمایتشان در دستیابی به این توافق ابراز کنیم. به‌ویژه از رهبری دوراندیش پادشاهی عربستان سعودی و جمهوری ترکیه نیز به‌خاطر مشارکت‌های عظیمشان در این زمینه تشکر می‌کنم.
+اکنون که توافق برقرار شده است، میانجی‌ها مجموعه‌ای از نشست‌ها را در این هفته تسهیل خواهند کرد. این گفت‌وگوهای پیش از اجرا، زمینه را برای مذاکرات فنی و مراسم رسمی امضا فراهم خواهد کرد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76348)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 01:15:06
+
+
+
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد جمعی از حامیان تندروی جمهوری اسلامی کفن‌پوش شده و در تجمعی مقابل استانداری زنجان شعار «اگر چیزی امضا شه، مسئول باید کشته شه» سر دادند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76347)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 01:15:06
+
+<img src="https://cdn1.telesco.pe/file/KGcuIsXtvcRVCdjgJpHppRhNn3ocCdFsALRrU52JHOMBfgJeWWXT_fG8jVX9cJx0S7m12sxTN-vZSl412Z13Io1MqX5hLVlLLIwxexcluqQ_SAd-pJJtt5_2KGKHoK9SeHtUm2M3JxeHkKxGPfSKovyRSDi1RsriLCBPej7PnVdgKuGqBhXWookC-oZiuxOcdXR5vbj35xXFWOD4vp1RzWysMWGMq-nVJ1W6wQWYdqHLtqYbRWKXEHCVLlNGKldLIQ-wkNIKpWcuhSROgZ3jkqYffFrpeEXuEhU0UQSCoqIUINToM85Tqc3K6G3Wuz-fONLnTl3VcCSwncQ6J5KR6Q.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با
+وال استریت ژورنال
+گفت توافق با جمهوری اسلامی قریب‌الوقوع است، اما تهران هنوز موافقت خود با آن را تایید نکرده است.
+ترامپ افزود قصد دارد به‌زودی بیانیه‌ای صادر کند که در آن اعلام خواهد شد آمریکا با جمهوری اسلامی به توافق رسیده است.
+او گفت این توافق، در صورت نهایی شدن، یا توسط خود او یا از سوی جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به‌صورت الکترونیکی امضا خواهد شد.
+رییس‌جمهوری آمریکا روز یکشنبه این توافق را گامی بزرگ در مسیر پایان دادن به درگیری نزدیک به چهارماهه توصیف کرد.
+ترامپ همچنین گفت این توافق شامل تعهد جمهوری اسلامی به دست نیافتن به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز خواهد بود. او افزود عجله‌ای برای خارج کردن مواد هسته‌ای از ایران وجود ندارد و این موضوع می‌تواند در مرحله‌ای بعدی دنبال شود.
+ترامپ گفت: «بعدا و زمانی که آماده باشیم وارد عمل شویم، مواد هسته‌ای را جمع‌آوری خواهیم کرد. به نظرم طی یک یا دو ماه آینده این کار انجام می‌شود و عجله‌ای وجود ندارد.»
+@
+VahidOOnLine
+نقل خبرگزاری فارس:
+ترامپ: به‌زودی بیانیه‌ای صادر خواهم کرد که تایید می‌کند آمریکا با توافق با ایران موافقت کرده است
+🔹
+این توافق به‌صورت الکترونیکی، یا توسط من یا توسط معاونم ونس امضا خواهد شد.
+🔹
+توافق شامل تعهد ایران به عدم دستیابی به سلاح هسته‌ای و بازگشایی فوری تنگه هرمز خواهد بود.
+🔹
+ایران هنوز موافقت خود با این توافق را تایید نکرده است.
+🔹
+هر زمان که آماده باشیم، مواد هسته‌ای را تحویل خواهیم گرفت و این اتفاق ظرف یک یا دو ماه آینده رخ خواهد داد.
+🔹
+من خواهان پایان یافتن حملات هستم و ایرانی‌ها هم می‌خواهند که جنگ تمام شود.
+🔹
+من هیچ‌وقت به دنبال تغییر رژیم ایران نبوده‌ام.
+🔹
+بازرسی‌های بسیار دقیق و شدیدی از ایرانی‌ها به عمل خواهد آمد.
+🔹
+در این توافق پولی به ایران داده نخواهد شد، اما احتمالاً تحریم‌ها لغو می‌شوند؛ باید ببینیم در عمل چگونه رفتار خواهند کرد.
+🔹
+محاصره دریایی اعمال‌شده علیه ایران موفقیت‌آمیز بوده و تاثیر آن از حملات نظامی هم بیشتر است.
+🔹
+نتانیاهو از این توافق حمایت می‌کند؛ این توافق برای او خوب است چون تحت هیچ شرایطی اجازه نمی‌دهد ایران به سلاح هسته‌ای دست پیدا کند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76346)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 01:15:06
+
+<img src="https://cdn1.telesco.pe/file/k23bYUIstp4ZdKnNQGO_WI3SGgN8-pq6mtUTd6XGtYT7wi8wpcjaxqCo3KwaGk31jOpBBPAwhJXMoaNzu5H4xbr9F0HNrUjx5j7-uyQhxbpckZDb4CVMp-Gig-m1IMERM4PAnVj34tlE5W0lwtKbDuagluKwpTafTB7Rz84ZSpwxGruoR6ZzWmaSEOggLCf3IR9zjf8aDm_r0Tvq0Qy_Ny_A6-m6OHF4GG6XTUfteSGMkNEC99IlX0qTktUEXh0e2ZdzAS8wwxPIFFWJEwK3z-vrvtU4_9sGD8ViAGrGbY5-8buutY55GGjMH96sNdj3Ih5ZsnV5a8UJTLCYRL-tRw.jpg" width="400"><br>
+
+به گزارش «کانال ۱۲» اسرائیل، بنیامین نتانیاهو و دونالد ترامپ لحظاتی پیش به صورت تلفنی گفتگو کردند و رئیس‌جمهوری آمریکا، نخست‌وزیر اسرائیل را در جریان «پیشرفت‌های کلیدی برای امضای توافق با ایران» قرار داد.
+مقامی ارشد اعلام کرده که احتمال امضای این توافق «حتی طی همین امشب» (بامداد دوشنبه به وقت تهران) وجود دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76345)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 01:15:06
+
+
+
+پست‌های ترامپ، ترجمه ماشین:
+سناتور جک رید، یک «دموکرات» از رود آیلند، وقتی گفت توافقی که ما همین حالا انجام دادیم به خوبی فاجعه اوباما، معروف به برجام، نیست، دروغ گفت.
+رید یا یک کلاهبردار تمام‌عیار است یا بی‌کفایت.
+توافق اوباما مسیری به سوی سلاح هسته‌ای برای ایران بود، همراه با پول نقد و همه چیز؛ یکی از بدترین و احمقانه‌ترین توافق‌هایی که آمریکا تا به حال انجام داده است؛ به همین دلیل هم می‌گویم «دموکرات‌های احمق»!
+توافق ما دیواری در برابر دستیابی ایران به سلاح هسته‌ای است؛ درست نقطه مقابل اوباما.
+جک رید را استیضاح کنید!
+(توضیح ماشین: در متن اصلی چند غلط املایی عمدی هست: Dumocrats به‌جای Democrats برای تحقیر دموکرات‌ها و Obuma به‌جای Obama.)
+realDonaldTrum
+ویکتوریا کوتس از بنیاد هریتیج واقعاً فوق‌العاده است! او موضوع را مثل تعداد کمی از دیگران می‌فهمد. متشکرم ویکتوریا.
+ایران هرگز سلاح هسته‌ای نخواهد داشت و تنگه هرمز هم به‌زودی برای تجارت باز خواهد شد!!!
+رئیس‌جمهور دی‌جی‌تی
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76344)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/iMPr40c5cY0SsWJAcNWCgYPf9R_KKqJv3IsimHFQai6FFpJ_OpOolPMMYKC6OVhuOQp3EqwL0ol4qxcyht4P1xH9reY5EosA23DnHd2m6CMm1-lSji8uxUmdRIN4utjNlRO51DidQc3wCbe4j8OWO4iBlsqXyBus-xrU877b6Q9ywZp7jpWwoStjyXGWd4TAs_hyrUfOnDdE2O3bgbqahLUCjLSfd2ATes6yHoGV8VRdeGHfByJXZ-ckNu_13cWp8mh3vxMT116fjsPEhXKWbKXEtRYz-hg60yrJsKCfqR8VhkDo3Z9gl54Am6tAmxAGX0Crvcjc4VXyzo8agi68wA.jpg" width="400"><br>
 
@@ -22,7 +195,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/nXWFyMoCq1qNG2MUK8Dgr1CRLapyS6spy0edIlxc962CeuyQiCwPuIF3ke78IU_mmdJ5dybH67ByyK_uN3DdrCVC8bK5NeJIaI8ZUFd44EXenlBN-TWB0z28mFYHHNtpR6TUalyIPKnDQwl1jqxyZWLjPGGYBqq1ns_GVnk_diF9E6tS8SZA1ZR7UpU0HKYN9EjEHgMYkB2Raqx_0OXZLMGR1Pux23GSpChw51a5jsa-hLoZv7J2z0Oh9yQm6xMOtN4a8pu7Hj88xWrO4SCJa-SNtepTvfCymgHWWvudzGw8xyOz3sAgCPbqQ_WDfCdGqJmyG9v9k02bN62XiBf0nQ.jpg" width="400"><br>
 
@@ -45,7 +218,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 
 
@@ -61,7 +234,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/gPDuAIbqu6NfzoUQc3mjoOlidUTB-nbTO68_hXRUpqDUbhMbSJ8BQVxNJOu8YBjWyoqwYNTpu7AwqXEivpurPegE1HJ0eKbdmxuvAfcZzeVDfpRlyA9sWhi62JFsT43epUj53spK5-od3DF-VRPQMTwpovZmJg4uHAswtOLbnP5rRsvW2zhMzqwwQcs0X5mT8CaClnyTGjUnDaGRFxyIHgcm5x3eFF2lKZRc66xySuF9M-yvV5Q6NWMpGaukvH_MDVX0aywEvBHZBbKCNuQrQr0Fly2E9pRr5YHQzFDGypNY4duwKuRw6zusVE7JBjtjBQCei4F11FnKePIskcHW3w.jpg" width="400"><br>
 
@@ -76,7 +249,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/MP81C9seSRtE2lP8_hw1jyHmFN4FkPYKbstXaS116gL0kdz8FG7aMULvJ40JKul1gLE8loio-bSFt5k4HgLgREypG8xHi5LwV3pM4_C5GxYfJFeC8jsn1v9r8QVmS4sWeDibmGhQef-stGCPzqdDABLQuKhpyX5Dx0SbhRTRPw9NnllGC9hDcGDOYmN2_MgYeKMzz1pbacyyYmjcScMApG8XGj4NS95oMD8BA1HwRQrbejuVwhTkzp7fuu_dWD9jDunMZYQAytXa4IYqGTFyGhr7BWqDUtB3tuM6wH5Xc6a_7fBbZdLwzoF_IjD_TgobniAqEvh34FRR4qbuvsOAew.jpg" width="400"><br>
 
@@ -90,7 +263,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 <img src="https://cdn4.telesco.pe/file/XXbYBQjctftdS5TNR1BVRNKOaWDNliAxDByoLQGwrbe5wYyWg-8FjFbelgAQpv4Ryma93uD6IfTUoAztOGqJzgWk39tZ30fY16QGWpq7FwiqqbaADa4IiUHn3jC6KIVS0tjxrZ_aNrRzdxDCos_uVK8rKNbZDF6N5SDiLWL0bDkdmi3uLHsJj9rSU79rWyc63oioYUJVteg1OpR7jFp8LFYIPDH2cJtIHety77pTARlWR92sdWp72ezumaeyLX-76qeJP5BzHe6qjgJNs_V8KwV6cHn4i2IUGj-3DcUW1v-ebt2DzGYGQjxjXdVlLmsuHKZPvJ2QI5TgNeSSmcU13w.jpg" width="400"><br>
 
@@ -109,7 +282,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 
 
@@ -135,7 +308,7 @@ TreyYingst
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/MCw1RhOoAAUxxJ6_BTNUYKnvU9SRhTbczjQLqCkjX9nCS860_raSgNyfsAxIABuaTTsfBcHmOFwn_U7xgN4MMNoEPTbEiOfxfYdIhnlOwo-SYgIx7u1TcrGIPkrbWB-lfti_-375wq3k1U7jiuIgITrM5HBrkdwVQ1m8Te_YuHUZGu46yW-LhRBscWPAW_2HyDkpX6YTXTkbyAFmabG8cLNekJsD5XAUq0B4wkUuCSuPR-1bTy-BDpTF4haiRZJFDB0T67peJWRvd3UP3hfNaFRCDT9C4wVkUanlJ9WBeE3ZmeN7SJKz2VlNUrf-Z7nzL1kngOBRnaUkqIM09oS5RQ.jpg" width="400"><br>
 
@@ -152,7 +325,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/FmhaNtnAdrp3rBycerby8GQRQh6k34hnEHMN-r7McjLgZZJfWN64gUIYviYyputDM16zoByhdx-PNurEGWxG-tnVYwzUzASUm-_e9RcBb2SPbLcidyidXMx7JzpJyvxeOiq4KxG5pAyNpTmCczmKjGPGacbc58BBt_l3dCGlIBElmD2n7bxgRbIPjqTktbiPfyDKU8GGD-SN_KT5em3E6VXHovgAJpt_AFm7DdARSuhFpYpCo2TaXLYfl3ckpJXMX9PhrZEsKpJ5NHLvQK3D-S6cfLBUHbOsAQIpOwkB5R-S2Fot0iu4YdAdFQRNVK81XnyAXMpw4UZ-nIPHWwMvAw.jpg" width="400"><br>
 
@@ -173,7 +346,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-14 23:49:12
+###### 🔵 Updated at: 2026-06-15 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/PaY8Pm1CPw4HokTcjcnSwpJ3M0TNiDSZealgAL9Nw33mWC4ZZ0LNpsqjCvXTta_gjbIjZNsKBb8mH-19dSGlYE9Ny3Gh7vET7XS4UjqstMnBgIDtH5c6Dy3_0wBHiv9vZw7nW9QniSse7yoDrr5YKFo9ORzECPDaa65j5qG9yce-VADFCduH4nUZBpAz7Fyz6DaSuafp6rM-SlFMmMLXFKypNRLPjdDfKzZ-GfFcwswTIjm4oIZ2neohlnE3ZAAQzv3SERz6COhdh9QSCh9zy5GRmJL3UgljbLB6NDSzje-4SzSIEUUjtG55tiVpoXHbbIDKGyzWpOAhGPsKVOatSw.jpg" width="400"><br>
 
@@ -199,63 +372,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76331)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 23:49:12
-
-<img src="https://cdn1.telesco.pe/file/UMniGdI77C0QBAIhXqIXfbpdv7gKM7NvqczVYr5n9ajET_LaH1g7LXWW1_ftKtXhvStBl-d6y49hmhvomYrc-WpRF3rkdWlbRvMGRqyrIVKq1e_UhVi3qRlrSEefp_YXODBi3klRWFVejhg9wzby0BtSdI25rbFMt8K76cSUaqofvI3eEnGo7gxrPJQOGRvGcnv27UspHerekej9Ey0tkN9Vd16DU3rIlwAO2sqq3hAKJThTMBWtr-NKrPRBWVG-4V4NXc3yHUu753sv41i30IiNPljxq-GXwS9LRtomXuf020WPufQh_T7XmHX1PCVWX3RKti7ZPVjeZIth1DR8XQ.jpg" width="400"><br>
-
-محمدباقر قالیباف، مذاکره‌کننده ارشد جمهوری اسلامی در گفت‌وگوهای توافق با آمریکا، اعلام کرد پس از حمله اسراییل به حومه جنوبی بیروت، ادامه مسیر توافق با آمریکا «ممکن نیست».
-قالیباف روز یکشنبه در پیامی در شبکه اجتماعی ایکس نوشت حمله اخیر به حومه جنوبی بیروت بار دیگر نشان داد که آمریکا یا اراده لازم برای اجرای تعهدات خود را ندارد یا از توان انجام آن برخوردار نیست.
-او افزود تلاش برای کسب امتیاز از طریق چراغ سبز نشان دادن به اسراییل نتیجه‌ای نخواهد داشت و سیاست «پلیس خوب و پلیس بد» دیگر کارایی گذشته را ندارد.
-او تاکید کرد: «اگر اراده و توان اجرای تعهدات خود را ندارید، سخن گفتن از ادامه مسیر ممکن نیست.»
-@
-VahidHeadline
-حساب رسمی وزارت خارجه اسرائیل، روز یکشنبه ۲۴ خرداد ماه در واکنش به اظهارات محمدباقر قالیباف، رئیس مجلس شورای اسلامی در شبکه اجتماعی ایکس نوشت: جمهوری اسلامی «مثل همیشه دروغ می‌گوید.»
-وزارت خارجه اسرائیل در این پیام با بیان آنکه اسرائیل شلیک به خاک خود را تحمل نخواهد کرد یادآور شد، حزب‌الله، صبح روز یکشنبه «بدون هیچ‌گونه تحریک قبلی» بار دیگر به اسرائیل حمله کرده است.
-در این پیام آمده است حزب‌الله به طور مداوم غیرنظامیان اسرائیلی را هدف قرار می‌دهد و حتی پس از برقراری آتش‌بس نیز حملات خود علیه اسرائیل را متوقف نکرده است.
-قالیباف در روزی که به گفته دونالد ترامپ قرار بود توافق پایان جنگ میان ایران و آمریکا امضا شود، در ایکس نوشت حمله اسرائیل «به ضاحیه بار دیگر نشان داد آمریکا یا اراده‌ای برای اجرای تعهدات خود ندارد یا توان آن را. با چراغ سبز نشان دادن به رژیم نمی‌توانید امتیاز بگیرید. بازی پلیس بد و پلیس خوب قدیمی شده است. اگر اراده و توان اجرای تعهدات خود را ندارید، سخن گفتن از ادامه مسیر ممکن نیست.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76329)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 23:49:12
-
-<img src="https://cdn1.telesco.pe/file/bTM60r3Mj_AMuGICTYl7KTAez6Y3zWGS_T_6XRhwrt2qNP8IeAj1AF0Pa9t5edZQX6op7_UFIVHWR4yzo4lzFnci7o2gMnBwHtyBpw-SoENNhMtfE7Eb7AWSBgzSWPHX961qRZ3hG6SzdsQ57Nuth7zq823kGwoh0Eiwk4tOaQ2c8lkHrVlNDtOGnqdJokM2dL_ML2JNsS7PtZGShGU4zVXbRV_nkskNEZxH1kQ1yuJ8sh3m-Of9B7w4AhE8NW6oZSgiuiPJO7SwAeYf0DINyFgbeMMc_Fq4Qm2R332lsoOj4xbyi4fEk_x7td-K8QQrs-0qpcXKLFfwq7vj70Icrw.jpg" width="400"><br>
-
-دفتر نخست‌وزیری اسرائیل روز یک‌شنبه، ۲۴ خردادماه، اعلام کرد که ارتش این کشور سایتی متعلق به گروه حزب‌الله در حومه جنوبی بیروت، محله ضاحیه، را هدف قرار داده است.
-در بیانیه ارتش اسرائیل در همین باره اشاره شده است که به «اهدافی تروریستی متعلق به حزب‌الله» در ضاحیه حمله شده است.
-اسرائیل دلیل این حمله را شلیک از طرف حزب‌الله به خاک اسرائیل عنوان کرد.
-ساعتی پیشتر ارتش اسرائیل اعلام کرده بود که سه پهپاد روز یک‌شنبه به طور جداگانه به شمال اسرائیل پرتاب شده‌اند. اسرائیل گروه حزب‌الله را مسئول پرتاب این پهپادها اعلام کرد.
-ارتش اسرائیل روز یک‌شنبه همچنین به ساکنان چندین روستای دیگر در جنوب لبنان هشدار داد که محل زندگی خود را ترک کنند.
-خبرگزاری فرانسه به نقل از سخنگوی عرب‌زبان ارتش اسرائیل نوشت که ساکنان ۲۹ روستا در این منطقه باید به نقطه‌ای دیگر نقل مکان کنند. اسرائیل قصد حمله هوایی به این روستاها را دارد.
-طبق این گزارش، اسرائیل صبح یک‌شنبه ابتدا به ساکنان ۱۳ روستا و سپس ساکنان ۱۶ روستای دیگر در جنوب لبنان اخطار داده است.
-@
-VahidHeadline
-شبکه العربیه گزارش داد علی الحاج، از فرماندهان حزب‌الله، در حمله هوایی یکشنبه ۲۴ خرداد اسرائیل به ضاحیه بیروت کشته شده است.
-دفاع مدنی لبنان نیز اعلام کرد در این حمله سه نفر کشته شدند.
-العربیه همچنین گزارش داد ارتش اسرائیل یکشنبه سه حمله هوایی به شهر سجد در جنوب لبنان انجام داده است.
-ارتش اسرائیل پیش‌تر اعلام کرده بود در واکنش به شلیک سه پهپاد از سوی حزب‌الله به شمال اسرائیل و آنچه نقض آتش‌بس از سوی این گروه خواند، یکی از مقرهای حزب‌الله را در ضاحیه بیروت هدف قرار داده است.
-@
-VahidOOnLine
-خبرنگار آکسیوس، به نقل از مقام‌های اسرائیلی و آمریکایی گزارش داد اسرائیل اندکی پیش از حمله، فرماندهی مرکزی ارتش آمریکا (سنتکام) را از این عملیات مطلع کرده بود.
-جمهوری اسلامی پیش‌تر هشدار داده بود هرگونه حمله اسرائیل به بیروت می‌تواند با واکنش تهران همراه شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76323)
 
 ---
 
