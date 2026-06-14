@@ -3,7 +3,93 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
+
+
+
+خبرگزاری فارس:
+‌غریب‌آبادی، معاون وزیر خارجه: در مذاکرات ۶۰ روزه در مورد چند موضوع بحث خواهیم کرد:
+🔸
+۱. خاتمه تمام تحریم‌ها و قطعنامه‌های شورای امنیت
+🔸
+۲. موضوعات هسته‌ای
+🔸
+۳. تعیین سازوکار نهایی بازسازی ایران
+🔸
+۴. تعیین سازوکار اجرایی برای نظارت بر تعهدات طرفین
+خبرگزاری مهر:
+جزئیات جدید از پیش‌نویس تفاهمنامه ۱۴ ماده ای ایران و آمریکا
+جزییات این پیش‌نویس به شرح ذیل است:
+۱- توقف دائمی و فوری جنگ در همه جبهه ها از جمله لبنان
+۲- تعهد آمریکا به عدم مداخله در امور داخلی ایران و احترام به حاکمیت جمهوری اسلامی ایران.
+۳- رفع کامل محاصره دریایی ظرف ۳۰ روز
+۴- تعهد آمریکا به خروج نیروهایش از پیرامون ایران
+۵- بازگشایی تنگه هرمز ظرف ۳۰ روز با ترتیبات ایرانی
+۶- تعلیق تحریم های فروش نفت، محصولات پتروشیمی و مشتقات و دسترسی کامل ایران به منابع مالی آن.
+۷- لزوم ارائه طرح های بازسازی ایران حداقل به مبلغ ۳۰۰ میلیارد دلار توسط آمریکا و متحدانش
+۸- ۶۰ روز مذاکره برای رسیدن به توافق نهایی مبتنی بر موضوعات هسته ای و لغو کامل تحریم های اولیه، ثانویه، آمریکا و قطعنامه های شورای امنیت سازمان ملل و شورای حکام آژانس بین المللی انرژی اتمی
+۹- تکرار تعهد ایران در پیمان ان پی تی مبنی بر عدم تولید سلاح هسته ای
+۱۰- در دوره مذاکرات آمریکا متعهد شده به نیروهای خود در منطقه اضافه نمی کند و تحریم جدیدی هم وضع نخواهد کرد.
+۱۱- آزادسازی ۲۴ میلیارد دلار پول های بلوکه شده ایران در دوره ۶۰ روزه مذاکرات نهایی. نیمی از این مبلغ قبل از شروع مذاکرات باید در دسترس ایران قرار گیرد.
+۱۲- تشکیل سازوکار نظارتی برای اجرایی کردن توافق.
+۱۳- توافق نامه نهایی توسط قطعنامه شورای امنیت سازمان ملل به تایید می رسد.
+۱۴- مذاکره نهایی قبل از آزادسازی نیمی از پول های بلوکه شده ایران، تعلیق تحریم های نفتی ایران و رفع محاصره دریایی آغاز نمی شود و توافق نهایی صرفا در موضوع سرنوشت مواد غنی شده و غنی سازی، رفع تحریم ها، برنامه بازسازی اقتصاد ایران انجام می شود و بحث درباره برنامه موشکی ایران و حمایت از گروه های مقاومت به صورت قطعی از دستور کار خارج شده است/مهر
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76354)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 02:26:01
+
+<img src="https://cdn1.telesco.pe/file/Sxj1xbwr8YbEFTCgywhbCrBBWRLiU6BpdlYPw82TzuC_D0Lv2u63ry-wfSnj-35BrXl7k1qBmZfAHiaGqlZG6LT-fU8QgNklcYoTAOTZdfne009YcIqyQ9KD-7VgIYjthQVQS6nUSQt1OHcGuCnh3-suJGTJQkqiwAarGUrouzKdFZnLc7JNqQNxDOcKkes4u4fK1V1K_dC3F4YpngLgwjy9NPmLR0WpD5d44uONgo9gE4dl_SOs4z05D_Id0cWdNgN4VJ_4raPILMJa8qY69Z7JRNreoYRdkBeBstvhxjek3KLwtzaU1PKZUhm3ynTMcuM0bf-tiGvLw2s5Btevsg.jpg" width="400"><br>
+
+ترامپ: تنگه هرمز جمعه پس از امضا باز می‌شود
+روسای جمهور پیش از من در رسیدن به صلح با ایران شکست خورده بودند
+پست ترامپ، ترجمه ماشین:
+این توافق بزرگ، صلح و امنیت را برای کل منطقه به ارمغان خواهد آورد. بسیاری از رؤسای‌جمهور تلاش کردند با ایران صلح کنند، اما همه پیش از من شکست خوردند. رهبران منطقه، برای نخستین بار، رئیس‌جمهوری را یافته‌اند که می‌تواند به آن‌ها کمک کند به صلح واقعی دست پیدا کنند.
+با باز شدن تنگه پس از امضای توافق در روز جمعه، برای مقاصد مربوط به پاک‌سازی مین‌ها، نفت دوباره از هر دو سوی آن برای منطقه و جهان جریان خواهد یافت!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76353)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 02:26:01
+
+
+
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، به شبکه خبری فاکس گفت: «بر اساس توافق حاصل‌شده میان واشینگتن و تهران، ایران به طور دائمی از دستیابی به سلاح هسته‌ای منع خواهد شد.»
+او افزود: «تنگه هرمز بلافاصله بازگشایی می‌شود و محاصره دریایی آمریکا پایان خواهد یافت.»
+به گفته معاون رییس‌جمهوری آمریکا، با اجرای این توافق، زمینه برای سرمایه‌گذاری‌های گسترده در منطقه فراهم خواهد شد.
+ونس در عین حال تاکید کرد اجرای این توافق به پایبندی جمهوری اسلامی به تعهداتش بستگی دارد.
+@
+VahidOOnLine
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، گفت قصد دارد در مراسم رسمی امضای یادداشت تفاهم میان آمریکا و جمهوری اسلامی حضور داشته باشد، اما احتمال دارد دونالد ترامپ نیز شخصا در این مراسم شرکت کند.
+ونس در گفت‌وگویی کوتاه با شبکه فاکس نیوز گفت: «فکر می‌کنم هنوز در حال بررسی جزییات و هماهنگی‌ها درباره افرادی هستیم که در مراسم امضا حضور خواهند داشت. من قطعا قصد دارم در آنجا باشم، اما این احتمال وجود دارد که خود رییس‌جمهوری نیز در مراسم حضور پیدا کند.»
+سرویس مخفی آمریکا معمولا حضور همزمان رییس‌جمهوری و معاون رییس‌جمهوری را، به‌ویژه در سفرهای خارجی، به دلایل امنیتی و ملاحظات جانشینی توصیه نمی‌کند.
+این اظهارات ساعاتی پس از آن مطرح شد که شهباز شریف، نخست‌وزیر پاکستان، از برگزاری مراسم رسمی امضای توافق میان آمریکا و جمهوری اسلامی در روز جمعه در ژنو سوئیس خبر داد.
+قرار است دونالد ترامپ پیش از آن برای شرکت در نشست سالانه گروه هفت به فرانسه سفر کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76352)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 
 
@@ -17,7 +103,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/hVYnMHpxc9i9pbpOiYCFUqYHZzVoHP8OjFo5vM0iGmFAH5rdHTYNLUXuIJSs8UuK8JdNxdBIiaAcTFms1ewy99vlxKJneSad5hdIsPUdvlhFjUAzz8tO3UM5gwibSWtk79pt58hN-1u2fSCSSCBqlzM3tSBIOvyDcwaRNK_FMM_ru3tiCQrwXm143hRq8ZZ24QBv8HCve8HoQE6sxufBI0re9Rusb943f-idv5h5ZDNLTrjrapphyA89p-E-mr4w7QKqeDkYHGJgsAd26AgXYJ79eQhjfxchfFJvz35NQcg7KLH9Ue37xAjKd6DA6rC6UDX9gF4q-KJeBRudBavnjA.jpg" width="400"><br>
 
@@ -38,7 +124,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/LWqbBZOBNzLrUunFEo6gzDQh4mJVfrYrXvbAJ_wFbMaznC__g_tFJz4W0hYuKqTgFv2jU-T58BpGnmfeau_oT6GrQhP7ryZCT0iTzntyNklgl72CSCGp7QYBdeDxGhZnQP_RgTDrYhUtjpK2RshOEDRLv45dAwN-YOCPkZ8wNIaNdu29wsnGG_hgdhVTeJR7IfOPup-uqctZxNi5jS-X0uKA-SZcpCpUbW46Eqz2XchRDoM7A0blaHRtg5S4Ls7fg1EZ7N7firEabSoDQ9L-DD55Q3-FYaxscdo-8V5j5MrDiqFBmbh56MhxYBVdOJ7cn2wzG1PyUNUnMhuqOQdgDg.jpg" width="400"><br>
 
@@ -53,12 +139,13 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/I0MoJ7Hra9UEnXQKfh_a5NAaTGjyK4mCb2mHNAwkSRzmctSU4DSGgpkpukdmIl8zZK__azZRdoMLFUbgNVQkchTmBjoPSwbeMBb2IG0WGbjh09DSbBEPD-LwPJb-p-vXS061H8L9RNWkkBbVCu3ADqfuGoiPgd8FLmNWNAXJ_W9S-f-aO9pDOVh49UNVAICqLpPsE6p_3QAKwuz21IGThmRTbEvpGd6X-G6FiBD82lQ-apbGCP6R02jgG6UgiDpxVGJEfMc2uidK_c0ZScHRnQLtJsUBMjkRdjj6YhzmVw1I9GL5Ut3_pACoDaJmpMWrg9X6osaXKEaB3lgd3HM2ag.jpg" width="400"><br>
 
 ☄️
-نخست‌وزیر پاکستان: توافق حاصل شد، جمعه در سوئیس امضا می‌شود
+نخست‌وزیر پاکستان: توافق حاصل شد
+مراسم امضا جمعه در سوئیس امضا می‌شود
 پست شهباز شریف، ترجمه ماشین:
 در پی مذاکرات فشرده، خوشحالیم اعلام کنیم که توافق صلح میان ایالات متحده آمریکا و جمهوری اسلامی ایران حاصل شده است. هر دو طرف پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها، از جمله در لبنان، را اعلام کرده‌اند.
 مراسم رسمی امضای توافق روز جمعه، ۱۹ ژوئن، [۲۹ خرداد] در سوئیس برگزار خواهد شد.
@@ -73,7 +160,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 
 
@@ -89,7 +176,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/KGcuIsXtvcRVCdjgJpHppRhNn3ocCdFsALRrU52JHOMBfgJeWWXT_fG8jVX9cJx0S7m12sxTN-vZSl412Z13Io1MqX5hLVlLLIwxexcluqQ_SAd-pJJtt5_2KGKHoK9SeHtUm2M3JxeHkKxGPfSKovyRSDi1RsriLCBPej7PnVdgKuGqBhXWookC-oZiuxOcdXR5vbj35xXFWOD4vp1RzWysMWGMq-nVJ1W6wQWYdqHLtqYbRWKXEHCVLlNGKldLIQ-wkNIKpWcuhSROgZ3jkqYffFrpeEXuEhU0UQSCoqIUINToM85Tqc3K6G3Wuz-fONLnTl3VcCSwncQ6J5KR6Q.jpg" width="400"><br>
 
@@ -134,7 +221,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/k23bYUIstp4ZdKnNQGO_WI3SGgN8-pq6mtUTd6XGtYT7wi8wpcjaxqCo3KwaGk31jOpBBPAwhJXMoaNzu5H4xbr9F0HNrUjx5j7-uyQhxbpckZDb4CVMp-Gig-m1IMERM4PAnVj34tlE5W0lwtKbDuagluKwpTafTB7Rz84ZSpwxGruoR6ZzWmaSEOggLCf3IR9zjf8aDm_r0Tvq0Qy_Ny_A6-m6OHF4GG6XTUfteSGMkNEC99IlX0qTktUEXh0e2ZdzAS8wwxPIFFWJEwK3z-vrvtU4_9sGD8ViAGrGbY5-8buutY55GGjMH96sNdj3Ih5ZsnV5a8UJTLCYRL-tRw.jpg" width="400"><br>
 
@@ -151,7 +238,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 
 
@@ -176,7 +263,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/iMPr40c5cY0SsWJAcNWCgYPf9R_KKqJv3IsimHFQai6FFpJ_OpOolPMMYKC6OVhuOQp3EqwL0ol4qxcyht4P1xH9reY5EosA23DnHd2m6CMm1-lSji8uxUmdRIN4utjNlRO51DidQc3wCbe4j8OWO4iBlsqXyBus-xrU877b6Q9ywZp7jpWwoStjyXGWd4TAs_hyrUfOnDdE2O3bgbqahLUCjLSfd2ATes6yHoGV8VRdeGHfByJXZ-ckNu_13cWp8mh3vxMT116fjsPEhXKWbKXEtRYz-hg60yrJsKCfqR8VhkDo3Z9gl54Am6tAmxAGX0Crvcjc4VXyzo8agi68wA.jpg" width="400"><br>
 
@@ -195,7 +282,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/nXWFyMoCq1qNG2MUK8Dgr1CRLapyS6spy0edIlxc962CeuyQiCwPuIF3ke78IU_mmdJ5dybH67ByyK_uN3DdrCVC8bK5NeJIaI8ZUFd44EXenlBN-TWB0z28mFYHHNtpR6TUalyIPKnDQwl1jqxyZWLjPGGYBqq1ns_GVnk_diF9E6tS8SZA1ZR7UpU0HKYN9EjEHgMYkB2Raqx_0OXZLMGR1Pux23GSpChw51a5jsa-hLoZv7J2z0Oh9yQm6xMOtN4a8pu7Hj88xWrO4SCJa-SNtepTvfCymgHWWvudzGw8xyOz3sAgCPbqQ_WDfCdGqJmyG9v9k02bN62XiBf0nQ.jpg" width="400"><br>
 
@@ -218,7 +305,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 
 
@@ -234,7 +321,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/gPDuAIbqu6NfzoUQc3mjoOlidUTB-nbTO68_hXRUpqDUbhMbSJ8BQVxNJOu8YBjWyoqwYNTpu7AwqXEivpurPegE1HJ0eKbdmxuvAfcZzeVDfpRlyA9sWhi62JFsT43epUj53spK5-od3DF-VRPQMTwpovZmJg4uHAswtOLbnP5rRsvW2zhMzqwwQcs0X5mT8CaClnyTGjUnDaGRFxyIHgcm5x3eFF2lKZRc66xySuF9M-yvV5Q6NWMpGaukvH_MDVX0aywEvBHZBbKCNuQrQr0Fly2E9pRr5YHQzFDGypNY4duwKuRw6zusVE7JBjtjBQCei4F11FnKePIskcHW3w.jpg" width="400"><br>
 
@@ -249,7 +336,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/MP81C9seSRtE2lP8_hw1jyHmFN4FkPYKbstXaS116gL0kdz8FG7aMULvJ40JKul1gLE8loio-bSFt5k4HgLgREypG8xHi5LwV3pM4_C5GxYfJFeC8jsn1v9r8QVmS4sWeDibmGhQef-stGCPzqdDABLQuKhpyX5Dx0SbhRTRPw9NnllGC9hDcGDOYmN2_MgYeKMzz1pbacyyYmjcScMApG8XGj4NS95oMD8BA1HwRQrbejuVwhTkzp7fuu_dWD9jDunMZYQAytXa4IYqGTFyGhr7BWqDUtB3tuM6wH5Xc6a_7fBbZdLwzoF_IjD_TgobniAqEvh34FRR4qbuvsOAew.jpg" width="400"><br>
 
@@ -263,7 +350,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn4.telesco.pe/file/XXbYBQjctftdS5TNR1BVRNKOaWDNliAxDByoLQGwrbe5wYyWg-8FjFbelgAQpv4Ryma93uD6IfTUoAztOGqJzgWk39tZ30fY16QGWpq7FwiqqbaADa4IiUHn3jC6KIVS0tjxrZ_aNrRzdxDCos_uVK8rKNbZDF6N5SDiLWL0bDkdmi3uLHsJj9rSU79rWyc63oioYUJVteg1OpR7jFp8LFYIPDH2cJtIHety77pTARlWR92sdWp72ezumaeyLX-76qeJP5BzHe6qjgJNs_V8KwV6cHn4i2IUGj-3DcUW1v-ebt2DzGYGQjxjXdVlLmsuHKZPvJ2QI5TgNeSSmcU13w.jpg" width="400"><br>
 
@@ -282,7 +369,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 
 
@@ -308,7 +395,7 @@ TreyYingst
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/MCw1RhOoAAUxxJ6_BTNUYKnvU9SRhTbczjQLqCkjX9nCS860_raSgNyfsAxIABuaTTsfBcHmOFwn_U7xgN4MMNoEPTbEiOfxfYdIhnlOwo-SYgIx7u1TcrGIPkrbWB-lfti_-375wq3k1U7jiuIgITrM5HBrkdwVQ1m8Te_YuHUZGu46yW-LhRBscWPAW_2HyDkpX6YTXTkbyAFmabG8cLNekJsD5XAUq0B4wkUuCSuPR-1bTy-BDpTF4haiRZJFDB0T67peJWRvd3UP3hfNaFRCDT9C4wVkUanlJ9WBeE3ZmeN7SJKz2VlNUrf-Z7nzL1kngOBRnaUkqIM09oS5RQ.jpg" width="400"><br>
 
@@ -325,7 +412,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 01:15:06
+###### 🔵 Updated at: 2026-06-15 02:26:01
 
 <img src="https://cdn1.telesco.pe/file/FmhaNtnAdrp3rBycerby8GQRQh6k34hnEHMN-r7McjLgZZJfWN64gUIYviYyputDM16zoByhdx-PNurEGWxG-tnVYwzUzASUm-_e9RcBb2SPbLcidyidXMx7JzpJyvxeOiq4KxG5pAyNpTmCczmKjGPGacbc58BBt_l3dCGlIBElmD2n7bxgRbIPjqTktbiPfyDKU8GGD-SN_KT5em3E6VXHovgAJpt_AFm7DdARSuhFpYpCo2TaXLYfl3ckpJXMX9PhrZEsKpJ5NHLvQK3D-S6cfLBUHbOsAQIpOwkB5R-S2Fot0iu4YdAdFQRNVK81XnyAXMpw4UZ-nIPHWwMvAw.jpg" width="400"><br>
 
@@ -341,37 +428,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76335)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 01:15:06
-
-<img src="https://cdn1.telesco.pe/file/PaY8Pm1CPw4HokTcjcnSwpJ3M0TNiDSZealgAL9Nw33mWC4ZZ0LNpsqjCvXTta_gjbIjZNsKBb8mH-19dSGlYE9Ny3Gh7vET7XS4UjqstMnBgIDtH5c6Dy3_0wBHiv9vZw7nW9QniSse7yoDrr5YKFo9ORzECPDaa65j5qG9yce-VADFCduH4nUZBpAz7Fyz6DaSuafp6rM-SlFMmMLXFKypNRLPjdDfKzZ-GfFcwswTIjm4oIZ2neohlnE3ZAAQzv3SERz6COhdh9QSCh9zy5GRmJL3UgljbLB6NDSzje-4SzSIEUUjtG55tiVpoXHbbIDKGyzWpOAhGPsKVOatSw.jpg" width="400"><br>
-
-محمدجعفر اسدی، معاون بازرسی قرارگاه مرکزی خاتم‌الانبیا، در واکنش به حمله اسرائیل به ضاحیه بیروت گفت: «بدون شک این جنایات بی‌پاسخ نخواهد ماند.»
-او در گفت‌وگو با دفاع‌پرس، حمله ارتش اسرائیل به منطقه ضاحیه را محکوم کرد و نسبت به پیامدهای آن هشدار داد.
-ارتش اسرائیل در بیانیه‌ای یکشنبه ۲۴ خرداد اعلام کرد در واکنش به شلیک پرتابه از سوی حزب‌الله به شمال اسرائیل، اهدافی از این گروه را در ضاحیه بیروت هدف قرار داده است.
-@
-VahidOOnLine
-محمد مرندی، از اصحاب رسانه همراه با هیات مذاکره جمهوری اسلامی در پاکستان، درباره ادامه مذاکرات تهران و واشینگتن، در شبکه ایکس نوشت: «فعلا هیچ مذاکره دیگری در کار نخواهد بود.»
-@
-VahidOOnLine
-نظام‌الدین موسوی، سخنگوی پیشین هیات رییسه مجلس جمهوری اسلامی، در پلتفرم ایکس نوشت حمله اسرائیل به ضاحیه بیروت در روزی که قرار بود تفاهم میان جمهوری اسلامی و آمریکا امضا شود، با هدف بر هم زدن تفاهم انجام نشد، بلکه تلاشی برای «تحقیر جمهوری اسلامی» صورت گرفت.
-او خطاب به تیم مذاکره‌کننده جمهوری اسلامی نوشت: «حضرات مذاکره‌کننده، به تحقیر تن ندهید و در شرایط تحقیر، هیچ چیز را امضا نکنید.»
-@
-VahidOOnLine
-ارتش اسرائیل اعلام کرد ایال زمیر، رییس ستاد ارتش، پس از حمله به بیروت در حال برگزاری ارزیابی‌های مستمر از وضعیت با همه فرماندهان مرتبط است.
-ارتش اسرائیل افزود بر اساس این ارزیابی‌ها، خود را برای احتمال شلیک به خاک اسرائیل در ساعات آینده آماده می‌کند.
-این نهاد تاکید کرد در بالاترین سطح آماده‌باش قرار دارد و برای سناریوهای مختلف دفاعی و تهاجمی آماده است.
-ارتش اسرائیل تاکید کرد شلیک به خاک این کشور را تحمل نخواهد کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76331)
 
 ---
 
