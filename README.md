@@ -3,7 +3,115 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-14 15:31:36
+###### 🔵 Updated at: 2026-06-14 17:54:47
+
+<img src="https://cdn1.telesco.pe/file/tjIz2SLWLq_-5wD0SibXDMbjC5S3gvPC4CtkN5W1WaEX8SB3t8CY1CPiz9fwe0tI_AwvSpbB5dYACsqGsMebdqwoSTeIaGFp0cDoK0OH1ODPA74KAXyvXWDWzRn1me_RhE-sTPhXf9AV1pd3qwod1yGbm4LD6kanevnuR7DhyGtXUnH-K73okZ2_ammYVkKzlahofyRFe4YNtjkUuWxkt5W6BV_NaIiyLrAMJQt4pfo-sOIm5YkhFYlpph42v467Wuo4V5mzlJgNEe_e7HFdQE6M0-bc_TNF-e2NYaFGlb-46GAa-ajmJgiqjNWKbEM6VmyIqOaDt3qCoRDS4oShKA.jpg" width="400"><br>
+
+در حالی که خبرها از داخل ایران اشاره به ادامه بررسی متن تفاهم‌نامه و نامشخص بودن زمان امضای آن دارد، خبرگزاری رویترز روز یک‌شنبه نوشت که دولت دونالد ترامپ در تفاهم‌نامه با آزاد کردن ۲۵ میلیارد دلار از دارایی‌های مسدود ایران موافقت کرده است.
+رویترز خبر خود را به نقل از «مقامی ارشد» در جمهوری اسلامی نوشته، اما به نام او اشاره نکرده است.
+به گفته منبع رویترز، دولت آمریکا همچنین موافقت کرده است که اورانیوم بسیار غنی‌شده ایران در داخل کشور رقیق شود.
+این‌ها دو مورد از بحث‌انگیزترین موضوعات در مذاکرات جاری میان ایران و آمریکا بوده است: ترامپ بارها بر لزوم گرفتن یا انتقال یا از بین بردن اورانیوم ۶۰ درصد غنی‌شده ایران تأکید کرده و همزمان بارها گفته است که پولی به ایران نخواهد داد.
+مسئله دادن پول به حکومت ایران به‌ویژه برای دونالد ترامپ حساسیت‌برانگیز بوده است،‌ چرا که او خود سال‌هاست به باراک اوباما تاخته که چرا در جریان رسیدن به توافق موسوم به برجام با انتقال پول به تهران موافقت کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76320)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 17:54:47
+
+<img src="https://cdn4.telesco.pe/file/n3bxJ-fdhh-EDaVygs5BoM3qelorAs2UUkN-iYEuGbhZuc66XxqItYWklBvmk2wlB8xVtDXNHnjP6Aa8n2lsRPTXrQUIbVl3ix7WjMYSsOg3x2BA8UgPByNnlA0cRNxn04wAnlhP-ikhaXSVxVtKTknOMcWxGrMSEdkYGP6i3EclW0Zb6m89gEShNiWdT8XvCecj4tkB90aDShpoCBj2vqb_OMUCcQAsjjKQ128nQenAV3WWmC3yMSWJZFH5JvGrahvTeKh5risIUE-8jsxfFxwJWNFdo-dFCb4xAxPvetmKvzvs3WVzCWPw_qMESq4FNd3DWTWvPOa4s9gLNLkFDg.jpg" width="400"><br>
+
+سی‌ان‌ان به نقل از یک منبع دیپلماتیک گزارش داد مذاکره‌کنندگان قطری پس از رایزنی با آمریکا راهی تهران شده‌اند تا با مقام‌های جمهوری اسلامی درباره کاهش اختلاف‌های باقی‌مانده و نهایی کردن تفاهم احتمالی میان تهران و واشنگتن گفت‌وگو کنند.
+رسانه‌های ایران نیز گزارش دادند این هیئت قطری به تهران سفر کرده است.
+این سفر در ادامه رفت‌وآمدهای دیپلماتیک قطر انجام می‌شود. چهارشنبه گذشته نیز مذاکره‌کنندگان قطری پس از مشورت با طرف آمریکایی به تهران رفتند و درباره متن احتمالی تفاهم با مقام‌های جمهوری اسلامی رایزنی کردند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76319)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 17:54:47
+
+
+
+عراقچی: مقاومت باعث جنگ شد
+[اینطور برداشت شده که داره میگه نپذیرفتن شرایط طرف مقابل در مذاکرات منجر به جنگ شد]
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران شنبه ۲۳ خرداد در شبکه خبر و در پاسخ به پرسشی درباره علت دو جنگ اخیر گفت: «مذاکرات علت جنگ نبود، مقاومت تیم دیپلماسی در مذاکرات علت جنگ بود.»
+این گفته‌ها که در تعارض با موضع رسمی نظام جمهوری اسلامی و شخص علی  خامنه‌ای، رهبر پیشین جمهوری اسلامی به شمار می‌رود، با واکنش تند رسانه‌ها و سیاستمداران جریان اصولگرا مواجه شد.
+علی خامنه‌ای، رهبر جمهوری اسلامی ماه‌ها قبل و پس از «جنگ ۱۲ روزه» گفته بود دشمن هر جا احساس کند که ما ضعیفیم، حمله می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76318)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 17:54:47
+
+<img src="https://cdn4.telesco.pe/file/DO8Q6z3fApmGcxDHtgEm27Dc_HlgXl-kHWuqJg7CnYrXj3wIv9RXbhl35swjC-FQbrBskdtHrBr4-NKyJvTqoegdUOiOcNftgbmG-kQFzMZCCk_GhjES0vDJ0sANxOyrpRZRTFmQNmrXkarPqERxkD-E3U5dr_Eyl5eT6YlrbPprzZBg-QSPp1kQZHJ18qseCr32uESA0hGX6vN3v_XB_OdyumkFL_H7KB3z9F8feK6XNR2cxYgvqFs7Y9vlnnbPqQFTDB7ivX2fDZ3F-0roF-JKYTNUmunaEF-Z5j31Rrx2tsfwgAK-Ux3xjbuVQskd7qPQxeOqYWCrKwns4zAVdA.jpg" width="400"><br>
+
+وزارت اطلاعات جمهوری اسلامی در اطلاعیه‌ای مدعی شد یک فرد متهم به تلاش برای نفوذ به مراکز داده، یک هسته چهار نفره در جنوب شرق کشور و ۱۲۶ نفر از آنچه «لیدرهای میدانی شبکه خرابکاری خیابانی» خواند، بازداشت شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76317)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 17:54:47
+
+<img src="https://cdn4.telesco.pe/file/Il_qMMo7aqKE68HsdOz_thHLqMOFElErLc442LeiF7swcepLDO0Zf47GZTxCIXlJqna4I-NnZwE6amVKFGqoxdDNcivmbOp1quxtLI1ogiLjz1eCOH5LYlI9XC-_woKU-uvOjFUk2a7gKozCPWET-DWY9qZNRxwFEKAunyJBwKuytk9wx8NCRlveXGg_Glgxp0ueis814mnCXVawaJuLHdZ0Dn5qM2B0JKMgQJMn3kpeesIBmV-FSmih6NSfK6R7m92LwAcdD7oFJU__nl1un5ucMUq8KDamdIMQHt2pP2VVCnT1AOMkJYln6dPekjG_m7kMjqHSXUkyOrg1jI-RxQ.jpg" width="400"><br>
+
+محمود طراوت‌روی، نازنین سالاری و مسعود احمدیان، وکلای دادگستری، به حبس و به عنوان مجازات تکمیلی به دو سال ممنوعیت خروج از کشور همراه با ابطال گذرنامه نیز محکوم شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76316)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 17:54:47
+
+<img src="https://cdn4.telesco.pe/file/WT8VwBnTZ6S5MFTSN9NuAOID6u0bzzuvL8Urkyb7aVjYUDouev0T_JHSb2huCXAfn_elaScu9Dec5RRmu0KfdEXfK2pnprl_Y2g8hc1fCVUgLWJq8BYo8ya2g9gWy7IPQGHcPRBJagOPnHz0B6IgrTJR566TcdJOUUetp8M8roMU48EPMF4etU5qIQRPevDoc3joxZR6R_G7pcnasoaSJyDXPFxr0WORufHuOX_cX38V-J7JHT1kWx4oYJnc2BUmhxWv2OKXVCKDAJiIqBcS-X4kuwCoBc2xUdQ2Nr1aR6lZoxL8w4cBB0YnKAFjP7GzFlAsGRKuFL4B-Co_4wdE7A.jpg" width="400"><br>
+
+ماموران اطلاعاتی و نظامی جمهوری اسلامی در استان گلستان با یورش به منزل خانواده جاویدنام ابوالفضل میرآییز، اقدام به تفتیش خانه، طرح اتهامات بی‌اساس و تهدید اعضای خانواده او کرده‌اند.
+طبق این گزارش‌ها، ماموران ضمن بازرسی کامل منزل، بخشی از وسایل شخصی خانواده را نیز با خود برده‌اند و آنان را به برخوردهای امنیتی تهدید کرده‌اند.
+ابوالفضل میرآییز، ورزشکار ۳۴ ساله گرگانی، در جریان اعتراضات دی‌ماه با شلیک مستقیم ماموران حکومتی در خیابان‌های گرگان جان خود را از دست داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76315)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 17:54:47
 
 
 
@@ -21,7 +129,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-14 15:31:36
+###### 🔵 Updated at: 2026-06-14 17:54:47
 
 <img src="https://cdn1.telesco.pe/file/tRbtIV0XvNx_isj93ZelxUgXv08NxHJIe7QhY7cX29CUY-vAPc8jPXJT0cJUh9JWWP4HVo1dluYsQ4LTCUUzZY6g6sjY6ERfBNO0sHAEHnCmn8uROl8l_SOUPiNdpI0dupJUlDav2lKk7_voVY0umt3U9Df677DVSLUyWEUYtx_RTNaJvNE8tGF-wyd6dYxMMJ73mERs__wNE01y1yDehkK67WJwLuGyLBaZXIaTv3dRLcz2EqIBBxtNLUwAFFYmfxgGUQWRTWAAnXZVvktzFDhycP4YvNEn0NB0uDrf02Uz9f4DTttTiBNS7kGkAtSEWjR0h84pkHju92t2IAkYpw.jpg" width="400"><br>
 
@@ -41,7 +149,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 15:31:36
+###### 🔵 Updated at: 2026-06-14 17:54:47
 
 
 
@@ -68,7 +176,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 15:31:36
+###### 🔵 Updated at: 2026-06-14 17:54:47
 
 <img src="https://cdn1.telesco.pe/file/cpTUyQUkM9yl-jVaT9KUeV_jSXkGoSQ2z6UJFKVamp9NT7o8xx0ChWURbegMc6K1XX2IXT73ZDbSoJ4fmShdC2HI8pWZNoyJqLCChdjOvVJSrGjAXtBiNoOH7_dngtCWS6zkmagHRufISK2V02OlWIyi5RThjBHWnji0UlBXcZ-kQonw5kBxr8ngm3YhHcZeaHzU_fxPvqnKWOUfJ9yQFEOLehjgZDfAnm49ewgk--bAwRQrVzbgFCJLRe-TEiEN__vNW83__oiLP8Hw7puf1cnKHW-x74DkEd-rCTPiSLcnc1DA1XDIYzwAQva7CVgLElSeX0Q77vJ_nMn5R6E_yA.jpg" width="400"><br>
 
@@ -97,7 +205,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-14 15:31:36
+###### 🔵 Updated at: 2026-06-14 17:54:47
 
 
 
@@ -114,7 +222,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 15:31:36
+###### 🔵 Updated at: 2026-06-14 17:54:47
 
 <img src="https://cdn1.telesco.pe/file/YMlITBsu-rgWqaPgNkHHvuv6UCJvcUYnqwVrV2IUzCvaQ3Z-pIwJZ3ghqI1iyliIStPMU7w566pbXnCDoGMSIKGbrzLwidpndrWRTw96Nl1wm7NBtYGT4-bj3xTWzKJPDDm-muH-OZrvHTKUmWZH6jCB8EfGmDxD9-lQZXIZdWWh4Ud8FKdp7ImvKhbIt2O61vMkcEnlaJJIHbVocoPOTP804idXTsl9B_xQeHFttnkCGAxSR2aaFG9q0mMZpzYFjLsUH69SIYHkdXv6kLd5TtUJQmpsTEPMxn1wxTtf9gsTWDtxDUC9cbiZFYF-eusHzw5wCqxaMJYt69eazt9Dmg.jpg" width="400"><br>
 
@@ -137,9 +245,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 15:31:36
+###### 🔵 Updated at: 2026-06-14 17:54:47
 
-<img src="https://cdn1.telesco.pe/file/FoTj0CQ84Ztmv6CpQ6PEsKDr04KH-jyPIXuZimBLF1s-erVht8VQU-Smi64dRYBWP9SAnjDo3iohAg3bUBxkB5IVp9z27V3vTZ0QdjEt6et689m0k-Mdox_OA8hYXNOM6ascY5kXxBYQQ7BCplu_-qiWVkRVRHNJAM3VErpTQHqLKWaYYKkqXl_WqlsFGK5a6qHP-r6OHqRc-YuqTgi4DSNXb939FL-lBJ3agm9DucR2i6b35o1UegKF9uinN30jr0i8qX3ODpdoBmCVj_e-juIWfVNsjroM88f-Bl7HAwq7jqYu5CKZPKh3MWk1iUL9aOvsR-emQej0Yith0b3rUw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/L1yVMaI2CitF3eZ2cvYHj3GFHuDFNH1X33-PMOmNRjukPAv435HzQ8LBlDXLq9nzk5g6FP5DwEjqwr4eeTUFO6v3kPgbwDFe52gIIMkiH-tUUAmuh2pQsN3p9l7117Xqe0efgUFvcRo0Pozp1BRwFs2FtD5d41YTOo5v1BYYU-dO6Fb0-7o3VunTqizvRuV10l6P7DkGtx59_2dFr71uQNXuoMJVAhsgOoCulggXly5dDlmexTx_LkoxT7eyuFipWqPAxqxFSEDJagZ1Vn1Sho408qOT_RLmT0zzEPiW0gIg6MoquvAWOctqd_mROvPIP-P43C-aCCBLLrNi1hPyHQ.jpg" width="400"><br>
 
 نخست‌وزیر پاکستان: تفاهم‌نامه ایران و آمریکا احتمالا تا ۲۴ ساعت آینده نهایی می‌شود
 نخست‌وزیر پاکستان می‌گوید ایران و آمریکا بیش از هر زمانی به توافق صلح نزدیک‌تر شده‌اند.
@@ -160,138 +268,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76300)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 15:31:36
-
-<img src="https://cdn4.telesco.pe/file/DUONKIZEURe4N_vAzCLwcR5mEH7n-HWG-xBCwDeASPQALfWHpGPhk4fpXqtf5vfekTQzb9ksMbidas2c3l-LsiW77-mggJI1FICpWf7CLRbgbLXsPbzuat-5QH-XRfuz0OtAFpWipmw40jQiPF-t-HOTuiKvbPJpHK4gsty8-8YI5LVbV50TFSIOwAI9E7QaDvG1Y38f2ENe6vR63-6QI6fZunCXCD_SCyaQVHgJVNzBq3xUl_uGI2TWOFynnJxUUtUg85WOsq8RokvFe05WMPSbfJdvd6HXBBrvJI354QdeqFK_i9Tpxdp2S-pkO3lRjQoHltloh6LEsWzlHmYL9Q.jpg" width="400"><br>
-
-مرکز پژوهش‌های مجلس در تازه‌ترین گزارش خود درباره وضعیت شبکه برق کشور هشدار داده است که با وجود افزایش نسبی ظرفیت تولید، ناترازی برق در تابستان ۱۴۰۵ همچنان ادامه خواهد داشت و احتمال بروز خاموشی، به‌ویژه در ساعات شب، وجود دارد.
-بر اساس برآورد دفتر مطالعات انرژی، صنعت و معدن این مرکز، در سناریوی واقع‌بینانه میزان کسری برق در اوج مصرف تابستان به حدود ۱۳ هزار و ۶۰۰ مگاوات خواهد رسید. در این برآورد، توان تأمین هم‌زمان شبکه حدود ۶۸ هزار و ۴۰۰ مگاوات و میزان تقاضا بیش از ۸۱ هزار مگاوات پیش‌بینی شده است.
-@
-VahidHeadline
-پیام دریافتی:
-امروز روستاهای خشکبیجار  از ساعت ۱۶:۴۵ حدود ۱ ساعت و ۱۵ دقیقه برق قطع شد. بعد از قطع برق تماس گرفتم با ۱۲۱ که گفتن قطعی ۲ ساعته کنترل مصرف هست که امروز صبح از رشت شروع شده و عصر به شهرستانهاش رسیده.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76299)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 15:31:36
-
-<img src="https://cdn1.telesco.pe/file/CXrjpGDSvQYo9Wpsj4Fy2RIeDkaOw6I6h0gOFQH_otdJ1-Qs_n09hC16LghpxHtlqV4nbzAZ0F9o0BdIQtMF1_0QkiL0EvtvKK77QE5h2F-MuKVZISgG8W4vQqtLL2Dhsd4U2Y5fowb-ytZmw9LooEwKVd75JnAPinZkTJgLHpIuQEwZuJ4egZ5t-tCg9xkWfX5Yds-JUhtCqTBp0h2stK4f6rRRhSZouYbyXM4K8lEr6y7B-75y1hgVpvQg0FCPfS_YzO28Wx0gYvLLm6gUJ7ziGw9jSM4VmNtdLVob5ANoCvR6aYNjQsr19WCVeaKkQYfVldJ1spkDHdbHiXyPbA.jpg" width="400"><br>
-
-شبکه تلویزیونی سی‌ان‌ان در گزارشی اختصاصی که روز شنبه، ۲۳ خردادماه، منتشر شد می‌گوید که حکومت ایران در هفته‌های اخیر بر تلاش خود برای سخت‌تر کردن راه‌های دسترسی به اورانیوم غنی‌شده مدفون در سایت‌های بمباران‌شده‌اش افزوده است.
-این گزارش به نقل از پنج منبع «آشنا با اطلاعات و ارزیابی‌های دولت ایالات متحده» نوشته شده، اما به نام و منصب آنها اشاره نکرده است.
-سی‌ان‌ان در گزارش خود نوشته است که جمهوری اسلامی در هفته‌های اخیر این تونل‌های زیرزمینی را منفجر کرده و در ورودی آنها مین کار گذاشته است تا دسترسی به آنها را هر چه بیشتر دشوار سازد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76298)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 15:31:36
-
-<img src="https://cdn4.telesco.pe/file/WmCaDNh8znAxuHtqScpPqrve70O78Wzhj_r8e9tt76gwc0zukprGOweZ20aPasLb6oHljfd0qE62n3IE0U5mDHrZu9kPthZF0_Wi9g7n9KNvLi9BDTv2Vrp41cR_iQ0-Y5DRpCVkjJHDsTrQbKZffUaOggF6YiRp3B8iRA5r4AtK61tJjUrA2K4D8FjcdIBDZ0YnOc1j6ixPi2SayCsev8tiUww5bz9ssqdq4U3jTK7ZpGTH0HuHd9YX3Ii1c3zso3cmutFyk53NDOZml5vWEWWxinRNqZhjD8UgzPZOsfBrAOJXvUac3TUH9P9oJtnSpvQPAJSdJ-jNIi6tPwcfng.jpg" width="400"><br>
-
-رسانه‌ها و مقام‌های ایرانی روز شنبه خبر دادند که خدمات چند بانک ایرانی به شکل همزمان دچار مشکل شده و این اختلال تا بعدازظهر همچنان ادامه دارد.
-خبرگزاری ایسنا اعلام کرد که «بانک‌های ملی، تجارت، صادرات و پاسارگاد» از جمله بانک‌هایی بودند که همراه‌بانک و دستگاه‌های خودپرداز آنها مختل شده است.
-خبرگزاری فارس در این‌باره نوشت بانک «توسعه صادرات» نیز اختلال مشابهی دارد و افزود که «برخی منابع از احتمال وقوع حمله سایبری خبر داده‌اند، اما تاکنون هیچ مقام رسمی این موضوع را تأیید یا رد نکرده است».
-ساعتی بعد علیرضا قیطاسی، دبیر شورای هماهنگی بانک‌های دولتی در گفت‌وگو با صداوسیما بدون اشاره به جزئیات درباره دلایل این اتفاق گفت: «رفع اختلال از خدمات بانک‌های ملی، صادرات، تجارت و توسعه صادرات در دست انجام است.»
-حملات به شبکه بانکی ایران در سال‌های اخیر سابقه دارد و بارها اطلاعات مشتریان بانک‌های مختلف ایران هدف رخنهٔ سایبری قرار گرفته و در فضای مجازی و اینترنت خرید و فروش شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76297)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 15:31:36
-
-<img src="https://cdn1.telesco.pe/file/b7_Fc1tRcoNoW8BBbXb0a03tUu5VNlspw0Xq2mUysNJNYrweEgVsnKc_dMuq8Y7Lxgh_1vsHO5q4zMPGDy9OO8BTj3l-X-pcOpv9ujxLKGA5xJU3p0ABPcoZPoGTEguMoxnTzPjHWFvSfZ_8kmjuqie_vn0cFb84CjpczWswuiCNTd4ew3UoqToQetxARBGUN6jIW3Sqxy9z1JqcP-8rNcdM8a2tl1sV6vkJwpPgwgj43OGm8DdbyB6bi_fc-smnuVdpXa84_mfjY27OmNghEFhQJl63aedYVbFk-4UTrN10lT_scSJ3EyrAJR7X6mFMN46eYBHcJupqpZDNh2oSgw.jpg" width="400"><br>
-
-گزارش تازه «پروژه شفافیت فناوری» نشان می‌دهد یوتیوب میزبان ۸۴ کانال مرتبط با افراد و نهادهایی بوده که در فهرست تحریم‌های آمریکا قرار دارند؛ بخشی از آن‌ها همچنان از طریق نمایش تبلیغات در این پلتفرم درآمدزایی می‌کرده‌اند.
-بر اساس این گزارش، ۵۶ کانال به اشخاص و اتباع تحریم‌شده در فهرست SDN و ۲۸ کانال دیگر به نهادهای دولتی و رسمی مرتبط بوده‌اند. در میان نمونه‌های شناسایی‌شده، نام‌هایی از نهادها و رسانه‌ها و همچنین برخی کسب‌وکارها و افراد قرار دارد.
-پس از انتشار نتایج این گزارش، شرکت گوگل ۶۳ کانال را ظرف چند ساعت حذف کرده است. گوگل اعلام کرده که به قوانین تحریمی آمریکا پایبند است و اقدامات لازم برای اجرای مقررات را انجام می‌دهد.
-در فهرست منتشر شده از کانال‌های شناسایی‌شده، نام‌هایی مانند نو‌بیتکس، و‌الکس، بیت‌پین، رمزینکس، گروه بهمن، ماهان ایر، فارس‌نیوز، پرس‌تی‌وی، ایرنا، بانک پاسارگاد، دانشگاه المصطفی و همچنین برخی چهره‌ها و کانال‌های سیاسی و رسانه‌ای دیده می‌شود. مانند علی‌اکبر ولایتی، امیرحسین ثابتی، بابک زنجانی و مسعود پزشکیان.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76296)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 15:31:36
-
-<img src="https://cdn1.telesco.pe/file/rrQTaUkLoSro7NjVNaJyigbAYrYRHWym4FXAhkMbp5Uban8pQ4sFlLS1H6LweHTzKB2MLRVeK2AzHvRfMtcrAqXtXUGz0L4NJ3pi1UYG2P2p6AKjdrHO7KlRebHyLniAGqHN7O7caJYPqETFUcH2HMsP5VJRPJjsbbEOue5Q-QgbZnrrZH7OSuc6ShYSfk0ak6EFQmkKFGGOwajjLYrJcXCl3Vgk1pnUy0FSLZA7CGKBCA7m8zksJLD0WgTv49nyXPi5VjV8kWFhfaizizYnwY9dII_Amadf10KIE60gBkCtwaHr4eBesj4J63rx_DcCrEVH3uKOL73c06NRgnXmeg.jpg" width="400"><br>
-
-دستور کنترل صادرات با استناد به نگرانی‌‌های مرتبط با امنیت ملی، دسترسی «اتباع خارجی» را، چه در داخل و چه خارج از آمریکا، ممنوع کرده است.
-شرکت آنتروپیک، سازنده دستیار هوش مصنوعی «کلود» (Claude)، جمعه ۲۲ خرداد اعلام کرد به دنبال دریافت یک دستور کنترل صادرات از دولت آمریکا، دسترسی به دو مدل پیشرفته خود، «فِیبل ۵» (Fable 5) و «مایتوس ۵» (Mythos 5)، را «برای همه کاربران» قطع کرده است.
-این دستور با استناد به «اختیارات امنیت ملی» صادر شده و دسترسی هر «تبعه خارجی» را، چه داخل و چه خارج از خاک آمریکا و حتی کارکنان خارجی‌تبار خود آنتروپیک، ممنوع می‌کند.
-آنتروپیک گفت این دستور را ساعت ۵:۲۱ بعدازظهر به وقت شرق آمریکا دریافت کرده است. از آنجا که شرکت نمی‌تواند به‌صورت لحظه‌ای کاربران خارجی را از دیگران جدا کند، ناچار شده هر دو مدل را برای تمام مشتریان غیرفعال کند.
-دسترسی به سایر مدل‌های این شرکت، از جمله Opus، بدون تغییر باقی مانده است.
-بنا بر گزارش اکسیوس و وال‌استریت ژورنال، نامه این دستور را هاوارد لاتنیک، وزیر بازرگانی آمریکا، خطاب به داریو آمودی، مدیرعامل آنتروپیک، فرستاده و با همکاری اداره صنعت و امنیت این وزارتخانه، تنظیم شده است.
-متن نامه جزییات دقیق نگرانی امنیتی را مشخص نکرده، اما به گفته یک مقام دولتی، واشینگتن پس از آن که شرکتی دیگر مدعی شد توانسته سازوکارهای ایمنی مایتوس را دور بزند («جیلبریک» کند)، نگران خطرهای امنیت ملی شده است.
-همان مقام افزود دولت پیش‌تر کوشیده بود آنتروپیک را به تعویق عرضه این مدل‌ها متقاعد کند و پس از ناکامی، نامه «کنترل صادرات» را صادر کرد.
-آنتروپیک با این تصمیم مخالفت کرده، اما گفته است از آن تبعیت می‌کند.
-به گفته این شرکت، روش افشاشده یک «جیلبریک محدود» است؛ در عمل یعنی درخواست از مدل برای خواندن یک کد و رفع ایرادهای آن؛ آسیب‌پذیری‌هایی جزیی و از پیش‌شناخته‌شده که مدل‌های عمومی دیگر، از جمله GPT-5.5 شرکت OpenAI، نیز قادر به یافتنشان هستند.
-آنتروپیک تاکید کرد فِیبل ۵ با تدابیر حفاظتی‌ای به‌مراتب قوی‌تر از هر مدل پیشین عرضه شده و پیش از انتشار، هزاران ساعت با همکاری دولت آمریکا، موسسه ایمنی هوش مصنوعی بریتانیا و گروه‌های مستقل آزموده شده است.
-این شرکت ممانعت از دسترسی برای یک مدل تجاری در دسترس صدها میلیون کاربر را به‌خاطر یک آسیب‌پذیری محدود «نامتناسب» خواند و هشدار داد اگر چنین معیاری به کل صنعت تعمیم یابد، عملا عرضه هر مدل پیشرفته‌ای متوقف خواهد شد.
-این دستور، تنها سه روز پس از رونمایی فِیبل ۵ و مایتوس ۵ صادر شد. مدل‌هایی که آنتروپیک آن‌ها را قدرتمندترین سامانه‌های خود معرفی کرده بود. هر دو بر یک بنیان فنی ساخته شده‌اند، اما تنها فِیبل ۵ با محدودیت‌های سخت‌گیرانه، به‌ویژه در حوزه‌های امنیت سایبری و زیست‌شناسی، برای عموم منتشر شد؛ مایتوس ۵ بدون این محدودیت‌ها و تنها در اختیار شماری از شرکای مورد اعتماد، از جمله شرکت‌های امنیت سایبری و زیرساخت، قرار گرفت.
-این دو ادامه «مایتوس پریویو» هستند. مدلی که بهار امسال با توانایی‌های پیشرفته سایبری توجه وال‌استریت و مقام‌های دولتی را جلب کرد و در چارچوب طرحی به نام «گلَس‌وینگ» میان گروهی محدود توزیع شد.
-اما اهمیت این ماجرا فراتر از یک مدل و یک شرکت است: این نخستین بار است که واشینگتن از اهرم کنترل صادرات در مورد یک مدل تجاری پیشرفته استفاده می‌کند. این وضعیت نشان می‌دهد سرنوشت یک مدل را می‌توان نه با تصمیم سازنده، بلکه با دستور دولت رقم زد.
-چارچوب «ملیت‌محور» این محدودیت نیز کاربران و شرکت‌های غیرآمریکایی را مستقیم هدف می‌گیرد.
-آنتروپیک می‌گوید توقف عرضه‌های ناایمن توسط دولت را می‌پذیرد، اما در چارچوب فرایندی قانونی، شفاف و مبتنی بر واقعیت‌های فنی. اقدامی که به گفته این شرکت با چنین معیارهایی نخوانده است.
-آنتروپیک این ماجرا را «سوءتفاهم» خوانده و گفته است طی ۲۴ ساعت آینده جزییات فنی بیشتری منتشر می‌کند و در تلاش برای بازگرداندن دسترسی است، هرچند زمان مشخصی برای آن اعلام نکرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76295)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-14 15:31:36
-
-<img src="https://cdn1.telesco.pe/file/an_UAM1nWHVevBi1cxDofmIkwMhpuNd7DfQcXyLs4sUgmATcFHEIHRHs5UTQub5eC9JN_iua_O0ddclPA7V7ae1XvT3skZ9gmxXfef57YDXjfbPSofyEj-IU-KH9PvshF0IbFxbCuUI0a6rMdEpj0Nlz7EW9JpwXBjVSskf7u4jKwqSorlF_hymQGfj-JK95VjAHm0p9rdBZk8wYKmNjteeUUnFKRivJN0kuYe19t2MgMJeL5d3Thg-EczanpRVdA8LZqVKPhhSZ4pF9g-jNJYUV3lNTV1JxFzKDGas1KZZG5KcOziZMnD5eqG_RgW1VW9LLksVoEG4o9lvFr0eQVw.jpg" width="400"><br>
-
-خبرگزاری رسمی لبنان روز شنبه ۲۳ خرداد خبر داد که ساعتی پس از صدور هشدار به مردم ساکن جنوب لبنان، ارتش اسرائیل به چند نقطه در این منطقه حمله هوایی کرده است.
-ارتش اسرائیل روز شنبه صبح به ساکنان ۲۰ نقطه در جنوب لبنان از جمله شهر نبطیه هشدار داد که باید محل سکونت خود را ترک کرده و به شمال رود لیتانی بروند.
-ارتش اسرائیل اعلام کرد این هشدار در پی نقض آتش‌بس از سوی حزب‌الله لبنان، صادر شده است
-.
-حال خبرگزاری ملی لبنان می‌گوید که هواپیماهای جنگنده اسرائیل چند نقطه از جمله دو روستای سجود و ریحان را در نزدیکی شهر نبطیه بمباران کرده‌اند.
-اسرائیل در ماه گذشته میلادی تمام مناطق در جنوب رود لیتانی را «منطقه جنگی» اعلام کرد و از آن زمان این نقاط را بمباران کرده است.
-اوایل ماه مارس یعنی تنها یکی دو هفته پس از حمله مشترک آمریکا و اسرائیل به خاک ایران،‌ گروه حزب‌الله در حمایت از جمهوری اسلامی به اسرائیل حمله کرد، حمله‌ای که بلافاصله پاسخ ارتش اسرائیل را به دنبال داشت.
-درگیری این دو هنوز ادامه دارد و حتی پس از برقراری آتش‌بس حدود دو ماه پیش، هم ادامه یافته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76293)
 
 ---
 
