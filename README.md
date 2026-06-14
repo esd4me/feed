@@ -3,7 +3,26 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
+
+<img src="https://cdn1.telesco.pe/file/iMPr40c5cY0SsWJAcNWCgYPf9R_KKqJv3IsimHFQai6FFpJ_OpOolPMMYKC6OVhuOQp3EqwL0ol4qxcyht4P1xH9reY5EosA23DnHd2m6CMm1-lSji8uxUmdRIN4utjNlRO51DidQc3wCbe4j8OWO4iBlsqXyBus-xrU877b6Q9ywZp7jpWwoStjyXGWd4TAs_hyrUfOnDdE2O3bgbqahLUCjLSfd2ATes6yHoGV8VRdeGHfByJXZ-ckNu_13cWp8mh3vxMT116fjsPEhXKWbKXEtRYz-hg60yrJsKCfqR8VhkDo3Z9gl54Am6tAmxAGX0Crvcjc4VXyzo8agi68wA.jpg" width="400"><br>
+
+محمدباقر قالیباف، رییس مجلس جمهوری اسلامی، در واکنش به حمله اسرائیل به اهدافی در جنوب بیروت در
+شبکه ایکس
+نوشت: «مجاهدت‌های رزمندگان لبنان و دیپلماسی مقتدرانه جمهوری اسلامی حاکمیت و تمامیت ارضی لبنان را تضمین می‌کند و بساط دیوانه‌بازی و جنگ‌افروزی اسرائیل را بر هم خواهد زد، بچرخ تا بچرخیم.»
+قالیباف تاکید کرد که هیچ‌یک از ارکان مقاومت را نمی‌توان «تک و تنها» قرار داد و حاکمیت و تمامیت ارضی لبنان حفظ خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76343)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn1.telesco.pe/file/nXWFyMoCq1qNG2MUK8Dgr1CRLapyS6spy0edIlxc962CeuyQiCwPuIF3ke78IU_mmdJ5dybH67ByyK_uN3DdrCVC8bK5NeJIaI8ZUFd44EXenlBN-TWB0z28mFYHHNtpR6TUalyIPKnDQwl1jqxyZWLjPGGYBqq1ns_GVnk_diF9E6tS8SZA1ZR7UpU0HKYN9EjEHgMYkB2Raqx_0OXZLMGR1Pux23GSpChw51a5jsa-hLoZv7J2z0Oh9yQm6xMOtN4a8pu7Hj88xWrO4SCJa-SNtepTvfCymgHWWvudzGw8xyOz3sAgCPbqQ_WDfCdGqJmyG9v9k02bN62XiBf0nQ.jpg" width="400"><br>
 
@@ -26,7 +45,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 
 
@@ -42,7 +61,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn1.telesco.pe/file/gPDuAIbqu6NfzoUQc3mjoOlidUTB-nbTO68_hXRUpqDUbhMbSJ8BQVxNJOu8YBjWyoqwYNTpu7AwqXEivpurPegE1HJ0eKbdmxuvAfcZzeVDfpRlyA9sWhi62JFsT43epUj53spK5-od3DF-VRPQMTwpovZmJg4uHAswtOLbnP5rRsvW2zhMzqwwQcs0X5mT8CaClnyTGjUnDaGRFxyIHgcm5x3eFF2lKZRc66xySuF9M-yvV5Q6NWMpGaukvH_MDVX0aywEvBHZBbKCNuQrQr0Fly2E9pRr5YHQzFDGypNY4duwKuRw6zusVE7JBjtjBQCei4F11FnKePIskcHW3w.jpg" width="400"><br>
 
@@ -57,7 +76,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn1.telesco.pe/file/MP81C9seSRtE2lP8_hw1jyHmFN4FkPYKbstXaS116gL0kdz8FG7aMULvJ40JKul1gLE8loio-bSFt5k4HgLgREypG8xHi5LwV3pM4_C5GxYfJFeC8jsn1v9r8QVmS4sWeDibmGhQef-stGCPzqdDABLQuKhpyX5Dx0SbhRTRPw9NnllGC9hDcGDOYmN2_MgYeKMzz1pbacyyYmjcScMApG8XGj4NS95oMD8BA1HwRQrbejuVwhTkzp7fuu_dWD9jDunMZYQAytXa4IYqGTFyGhr7BWqDUtB3tuM6wH5Xc6a_7fBbZdLwzoF_IjD_TgobniAqEvh34FRR4qbuvsOAew.jpg" width="400"><br>
 
@@ -71,7 +90,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn4.telesco.pe/file/XXbYBQjctftdS5TNR1BVRNKOaWDNliAxDByoLQGwrbe5wYyWg-8FjFbelgAQpv4Ryma93uD6IfTUoAztOGqJzgWk39tZ30fY16QGWpq7FwiqqbaADa4IiUHn3jC6KIVS0tjxrZ_aNrRzdxDCos_uVK8rKNbZDF6N5SDiLWL0bDkdmi3uLHsJj9rSU79rWyc63oioYUJVteg1OpR7jFp8LFYIPDH2cJtIHety77pTARlWR92sdWp72ezumaeyLX-76qeJP5BzHe6qjgJNs_V8KwV6cHn4i2IUGj-3DcUW1v-ebt2DzGYGQjxjXdVlLmsuHKZPvJ2QI5TgNeSSmcU13w.jpg" width="400"><br>
 
@@ -90,7 +109,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 
 
@@ -116,7 +135,7 @@ TreyYingst
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn1.telesco.pe/file/MCw1RhOoAAUxxJ6_BTNUYKnvU9SRhTbczjQLqCkjX9nCS860_raSgNyfsAxIABuaTTsfBcHmOFwn_U7xgN4MMNoEPTbEiOfxfYdIhnlOwo-SYgIx7u1TcrGIPkrbWB-lfti_-375wq3k1U7jiuIgITrM5HBrkdwVQ1m8Te_YuHUZGu46yW-LhRBscWPAW_2HyDkpX6YTXTkbyAFmabG8cLNekJsD5XAUq0B4wkUuCSuPR-1bTy-BDpTF4haiRZJFDB0T67peJWRvd3UP3hfNaFRCDT9C4wVkUanlJ9WBeE3ZmeN7SJKz2VlNUrf-Z7nzL1kngOBRnaUkqIM09oS5RQ.jpg" width="400"><br>
 
@@ -133,7 +152,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn1.telesco.pe/file/FmhaNtnAdrp3rBycerby8GQRQh6k34hnEHMN-r7McjLgZZJfWN64gUIYviYyputDM16zoByhdx-PNurEGWxG-tnVYwzUzASUm-_e9RcBb2SPbLcidyidXMx7JzpJyvxeOiq4KxG5pAyNpTmCczmKjGPGacbc58BBt_l3dCGlIBElmD2n7bxgRbIPjqTktbiPfyDKU8GGD-SN_KT5em3E6VXHovgAJpt_AFm7DdARSuhFpYpCo2TaXLYfl3ckpJXMX9PhrZEsKpJ5NHLvQK3D-S6cfLBUHbOsAQIpOwkB5R-S2Fot0iu4YdAdFQRNVK81XnyAXMpw4UZ-nIPHWwMvAw.jpg" width="400"><br>
 
@@ -154,7 +173,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn1.telesco.pe/file/PaY8Pm1CPw4HokTcjcnSwpJ3M0TNiDSZealgAL9Nw33mWC4ZZ0LNpsqjCvXTta_gjbIjZNsKBb8mH-19dSGlYE9Ny3Gh7vET7XS4UjqstMnBgIDtH5c6Dy3_0wBHiv9vZw7nW9QniSse7yoDrr5YKFo9ORzECPDaa65j5qG9yce-VADFCduH4nUZBpAz7Fyz6DaSuafp6rM-SlFMmMLXFKypNRLPjdDfKzZ-GfFcwswTIjm4oIZ2neohlnE3ZAAQzv3SERz6COhdh9QSCh9zy5GRmJL3UgljbLB6NDSzje-4SzSIEUUjtG55tiVpoXHbbIDKGyzWpOAhGPsKVOatSw.jpg" width="400"><br>
 
@@ -185,7 +204,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn1.telesco.pe/file/UMniGdI77C0QBAIhXqIXfbpdv7gKM7NvqczVYr5n9ajET_LaH1g7LXWW1_ftKtXhvStBl-d6y49hmhvomYrc-WpRF3rkdWlbRvMGRqyrIVKq1e_UhVi3qRlrSEefp_YXODBi3klRWFVejhg9wzby0BtSdI25rbFMt8K76cSUaqofvI3eEnGo7gxrPJQOGRvGcnv27UspHerekej9Ey0tkN9Vd16DU3rIlwAO2sqq3hAKJThTMBWtr-NKrPRBWVG-4V4NXc3yHUu753sv41i30IiNPljxq-GXwS9LRtomXuf020WPufQh_T7XmHX1PCVWX3RKti7ZPVjeZIth1DR8XQ.jpg" width="400"><br>
 
@@ -210,7 +229,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-14 22:27:38
+###### 🔵 Updated at: 2026-06-14 23:49:12
 
 <img src="https://cdn1.telesco.pe/file/bTM60r3Mj_AMuGICTYl7KTAez6Y3zWGS_T_6XRhwrt2qNP8IeAj1AF0Pa9t5edZQX6op7_UFIVHWR4yzo4lzFnci7o2gMnBwHtyBpw-SoENNhMtfE7Eb7AWSBgzSWPHX961qRZ3hG6SzdsQ57Nuth7zq823kGwoh0Eiwk4tOaQ2c8lkHrVlNDtOGnqdJokM2dL_ML2JNsS7PtZGShGU4zVXbRV_nkskNEZxH1kQ1yuJ8sh3m-Of9B7w4AhE8NW6oZSgiuiPJO7SwAeYf0DINyFgbeMMc_Fq4Qm2R332lsoOj4xbyi4fEk_x7td-K8QQrs-0qpcXKLFfwq7vj70Icrw.jpg" width="400"><br>
 
