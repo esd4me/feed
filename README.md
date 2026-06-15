@@ -3,7 +3,26 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
+
+<img src="https://cdn4.telesco.pe/file/YMMnr5IdzTx-mj31Wp4WyonDygzH9yhFzrYvrc_4TxKTrPXl_y7Gj4lowImQ0wekaWTsDU5i2ckwj9AQYRYKcs_7i4kWM6mSUknkPje0n6K6hpALLmfUm7ep4xNCTohkl1Q6wTUvqzLuiDEh1HwfMHHt5kqHJ-Zk_xiKHijccJ5EuChYPwemUmqWCalam9f4JKv1_z3gehD5AE9J6ZBCu3NJJNi8uyb9q0oEFKNJCygOWeLYv-MTlm6PUohybhxxrsAI5D_-CFqVOCPu85yWK_ZUcfS60XGhJuEkGVbCCfpDzHOHKtZJY6V7N1LylSQX5UDQADysAhdSvFuxXt-YUg.jpg" width="400"><br>
+
+به گفته دو مقام جمهوری اسلامی که نیویورک‌تایمز نام آنها را اعلام نکرده، تهران تا پس از عبور ساعت از نیمه‌شب به وقت محلی صبر کرد تا توافق را نهایی کند، زیرا نمی‌خواست این رویداد مهم با روز تولد دونالد ترامپ، رئیس‌جمهوری آمریکا، در روز یکشنبه هم‌زمان شود.
+بر اساس این گزارش، اختلاف زمانی هفت‌ونیم ساعته میان تهران و واشینگتن باعث شد هر دو طرف بتوانند روایت مورد نظر خود را از زمان نهایی شدن توافق ارائه دهند. ترامپ گفته بود توافق در روز یکشنبه نهایی شده، در حالی که ایران اعلام کرده بود این روند در روزی بعد از آن تکمیل شده است. دونالد ترامپ ۱۴ ژوئن ۱۹۴۶ به دنیا آمده است.
+@
+VahidOOnLine
+"بدو گفتم تو صورت را نکو گیر
+که من صورت دهم کار خود از زیر"
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76361)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 
 
@@ -31,7 +50,7 @@ nytimes
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 
 
@@ -50,7 +69,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/Aee_C1xWbFTD_QI-xzRKA0ZgxOKqsQOvbXLia0eKR5d65oH2YEAIwfPB7y4KC45aPEwZuFHZhWOL1r_18yzLPvbguZgkKMr853N2qAVUKh24qEhcSuqPzm-Gjo_UQAkvBfTSnS2Sl1RBbp59EugpXvq_YvOmghMIY6roqiUzEWDaNuEc7oF56fWLPmXPKUab6HprU9wUyGhxFC3iFCOgna5gG0YDjY8Rxe-LHIDyEns485VNEaWTqwkuaMng3FqMtVKWv401I-pR47okRc8x3VYeWDClVyV6ffQ3MpvcSwj13xHqE1VqiHvGARGSwIrvF3o7qJbMYsySRzk8VSmFcw.jpg" width="400"><br>
 
@@ -75,7 +94,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/TsutBVda9pJ6pU2p25NrM4gR3tQEptdMr4mEesScHIP0j2c0ZmyMViEvkXQ3994rUu4D_GYIsnIjB7BuEMkwa1fzNuGspXWlYLFl4NKL99LUP-_DA3idVOgfX-4vBj1BHoGH6RsEtpviawszt9gsYc8hssl81qjzVcCjwxHKEWLWhrMDAGhv11JSBd1FQV5CyWRjsmYJ2_K-UZ4oF625TN869RHB5YgXikLIwO7odZWm1CigWxgCTgTuVzljdETi0cLb8qoPut8tZKyHflv-CYylQLQqDtrJEjp03Q0k4TbHI1gew3-oDVuHt5xlXT53vqXvb_eaNIgnWtwsaKdIkA.jpg" width="400"><br>
 
@@ -94,7 +113,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 
 
@@ -125,7 +144,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 
 
@@ -165,7 +184,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/Sxj1xbwr8YbEFTCgywhbCrBBWRLiU6BpdlYPw82TzuC_D0Lv2u63ry-wfSnj-35BrXl7k1qBmZfAHiaGqlZG6LT-fU8QgNklcYoTAOTZdfne009YcIqyQ9KD-7VgIYjthQVQS6nUSQt1OHcGuCnh3-suJGTJQkqiwAarGUrouzKdFZnLc7JNqQNxDOcKkes4u4fK1V1K_dC3F4YpngLgwjy9NPmLR0WpD5d44uONgo9gE4dl_SOs4z05D_Id0cWdNgN4VJ_4raPILMJa8qY69Z7JRNreoYRdkBeBstvhxjek3KLwtzaU1PKZUhm3ynTMcuM0bf-tiGvLw2s5Btevsg.jpg" width="400"><br>
 
@@ -185,7 +204,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 
 
@@ -211,7 +230,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 
 
@@ -225,7 +244,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/hVYnMHpxc9i9pbpOiYCFUqYHZzVoHP8OjFo5vM0iGmFAH5rdHTYNLUXuIJSs8UuK8JdNxdBIiaAcTFms1ewy99vlxKJneSad5hdIsPUdvlhFjUAzz8tO3UM5gwibSWtk79pt58hN-1u2fSCSSCBqlzM3tSBIOvyDcwaRNK_FMM_ru3tiCQrwXm143hRq8ZZ24QBv8HCve8HoQE6sxufBI0re9Rusb943f-idv5h5ZDNLTrjrapphyA89p-E-mr4w7QKqeDkYHGJgsAd26AgXYJ79eQhjfxchfFJvz35NQcg7KLH9Ue37xAjKd6DA6rC6UDX9gF4q-KJeBRudBavnjA.jpg" width="400"><br>
 
@@ -246,7 +265,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/LWqbBZOBNzLrUunFEo6gzDQh4mJVfrYrXvbAJ_wFbMaznC__g_tFJz4W0hYuKqTgFv2jU-T58BpGnmfeau_oT6GrQhP7ryZCT0iTzntyNklgl72CSCGp7QYBdeDxGhZnQP_RgTDrYhUtjpK2RshOEDRLv45dAwN-YOCPkZ8wNIaNdu29wsnGG_hgdhVTeJR7IfOPup-uqctZxNi5jS-X0uKA-SZcpCpUbW46Eqz2XchRDoM7A0blaHRtg5S4Ls7fg1EZ7N7firEabSoDQ9L-DD55Q3-FYaxscdo-8V5j5MrDiqFBmbh56MhxYBVdOJ7cn2wzG1PyUNUnMhuqOQdgDg.jpg" width="400"><br>
 
@@ -261,7 +280,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/I0MoJ7Hra9UEnXQKfh_a5NAaTGjyK4mCb2mHNAwkSRzmctSU4DSGgpkpukdmIl8zZK__azZRdoMLFUbgNVQkchTmBjoPSwbeMBb2IG0WGbjh09DSbBEPD-LwPJb-p-vXS061H8L9RNWkkBbVCu3ADqfuGoiPgd8FLmNWNAXJ_W9S-f-aO9pDOVh49UNVAICqLpPsE6p_3QAKwuz21IGThmRTbEvpGd6X-G6FiBD82lQ-apbGCP6R02jgG6UgiDpxVGJEfMc2uidK_c0ZScHRnQLtJsUBMjkRdjj6YhzmVw1I9GL5Ut3_pACoDaJmpMWrg9X6osaXKEaB3lgd3HM2ag.jpg" width="400"><br>
 
@@ -282,7 +301,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 
 
@@ -298,7 +317,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/KGcuIsXtvcRVCdjgJpHppRhNn3ocCdFsALRrU52JHOMBfgJeWWXT_fG8jVX9cJx0S7m12sxTN-vZSl412Z13Io1MqX5hLVlLLIwxexcluqQ_SAd-pJJtt5_2KGKHoK9SeHtUm2M3JxeHkKxGPfSKovyRSDi1RsriLCBPej7PnVdgKuGqBhXWookC-oZiuxOcdXR5vbj35xXFWOD4vp1RzWysMWGMq-nVJ1W6wQWYdqHLtqYbRWKXEHCVLlNGKldLIQ-wkNIKpWcuhSROgZ3jkqYffFrpeEXuEhU0UQSCoqIUINToM85Tqc3K6G3Wuz-fONLnTl3VcCSwncQ6J5KR6Q.jpg" width="400"><br>
 
@@ -343,7 +362,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/k23bYUIstp4ZdKnNQGO_WI3SGgN8-pq6mtUTd6XGtYT7wi8wpcjaxqCo3KwaGk31jOpBBPAwhJXMoaNzu5H4xbr9F0HNrUjx5j7-uyQhxbpckZDb4CVMp-Gig-m1IMERM4PAnVj34tlE5W0lwtKbDuagluKwpTafTB7Rz84ZSpwxGruoR6ZzWmaSEOggLCf3IR9zjf8aDm_r0Tvq0Qy_Ny_A6-m6OHF4GG6XTUfteSGMkNEC99IlX0qTktUEXh0e2ZdzAS8wwxPIFFWJEwK3z-vrvtU4_9sGD8ViAGrGbY5-8buutY55GGjMH96sNdj3Ih5ZsnV5a8UJTLCYRL-tRw.jpg" width="400"><br>
 
@@ -360,7 +379,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 
 
@@ -385,7 +404,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/iMPr40c5cY0SsWJAcNWCgYPf9R_KKqJv3IsimHFQai6FFpJ_OpOolPMMYKC6OVhuOQp3EqwL0ol4qxcyht4P1xH9reY5EosA23DnHd2m6CMm1-lSji8uxUmdRIN4utjNlRO51DidQc3wCbe4j8OWO4iBlsqXyBus-xrU877b6Q9ywZp7jpWwoStjyXGWd4TAs_hyrUfOnDdE2O3bgbqahLUCjLSfd2ATes6yHoGV8VRdeGHfByJXZ-ckNu_13cWp8mh3vxMT116fjsPEhXKWbKXEtRYz-hg60yrJsKCfqR8VhkDo3Z9gl54Am6tAmxAGX0Crvcjc4VXyzo8agi68wA.jpg" width="400"><br>
 
@@ -404,7 +423,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 03:36:01
+###### 🔵 Updated at: 2026-06-15 08:54:16
 
 <img src="https://cdn1.telesco.pe/file/nXWFyMoCq1qNG2MUK8Dgr1CRLapyS6spy0edIlxc962CeuyQiCwPuIF3ke78IU_mmdJ5dybH67ByyK_uN3DdrCVC8bK5NeJIaI8ZUFd44EXenlBN-TWB0z28mFYHHNtpR6TUalyIPKnDQwl1jqxyZWLjPGGYBqq1ns_GVnk_diF9E6tS8SZA1ZR7UpU0HKYN9EjEHgMYkB2Raqx_0OXZLMGR1Pux23GSpChw51a5jsa-hLoZv7J2z0Oh9yQm6xMOtN4a8pu7Hj88xWrO4SCJa-SNtepTvfCymgHWWvudzGw8xyOz3sAgCPbqQ_WDfCdGqJmyG9v9k02bN62XiBf0nQ.jpg" width="400"><br>
 
@@ -422,22 +441,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76342)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 03:36:01
-
-
-
-شماری از حامیان جمهوری اسلامی و مخالفان توافق با ایالات متحده، در تجمع خود با سر دادن شعار خواهان اعدام عباس عراقچی، وزیر خارجه حکومت ایران شدند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76341)
 
 ---
 
