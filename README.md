@@ -3,7 +3,129 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
+
+
+
+مصاحبه ترامپ با نیویورک‌تایمز، ترجمه ماشین:
+رئیس‌جمهور ترامپ بعدازظهر یکشنبه در مصاحبه‌ای گفت توافقی که با ایران به دست آورده، در نهایت تضمین خواهد کرد که تنگه هرمز  «برای همیشه بدون عوارض» باشد و استدلال کرد که با وجود مخالفت‌های بنیامین نتانیاهو، نخست‌وزیر اسرائیل، او اسرائیل را از نابودی هسته‌ای نجات داده است.
+آقای ترامپ همچنین اصرار کرد که اگر ایران نتواند به توافق نهایی هسته‌ای با ایالات متحده برسد ــ روندی که دستیارانش می‌گویند انتظار دارند روز جمعه در سوئیس آغاز شود ــ او حملات نظامی به تهران را از سر خواهد گرفت یا در ازای دریافت ۲۰ درصد از درآمدهای منطقه، ایالات متحده را به «نگهبان خاورمیانه» تبدیل خواهد کرد.
+در یک گفت‌وگوی تلفنی ۲۸ دقیقه‌ای که آقای ترامپ از محل اقامتش در کاخ سفید آغاز کرد، و در یک تماس کوتاه بعدی، رئیس‌جمهور ادعا کرد که تصمیمش برای حمله به ایران در اواخر فوریه و محاصره دریایی بعدی بنادر این کشور پس از آنکه تهران تنگه را بست، خاورمیانه را به سود آمریکا دگرگون کرده است.
+او که در روز تولد ۸۰ سالگی‌اش صحبت می‌کرد و صدای جمع شدن خانواده‌اش برای شام جشن تولد در پس‌زمینه شنیده می‌شد، از دو رهبر اقتدارگرا ــ شی جین‌پینگ، رئیس‌جمهور چین، و ولادیمیر وی. پوتین، رئیس‌جمهور روسیه ــ به‌خاطر کمک به این توافق تمجید کرد و
+آقای نتانیاهو را به‌دلیل انجام حملاتی که نزدیک بود توافق نهایی را از مسیر خارج کند، به‌شدت مورد حمله قرار داد.
+آقای ترامپ درباره نخست‌وزیر اسرائیل گفت: «او آدم بسیار دشواری است، و صادقانه بگویم باید بابت این کار از ما بسیار سپاسگزار باشد. چون اگر ایران سلاح هسته‌ای داشت، اسرائیل دو ساعت هم دوام نمی‌آورد.»
+با اینکه متن توافق هنوز منتشر نشده است، به نظر می‌رسید آقای ترامپ در حال توصیف امتیازهایی از سوی ایران است که این کشور هنوز نداده، یا به مذاکرات بعدی موکول شده است. برای مثال، تفاهم‌نامه فقط عوارض عبور از تنگه را به مدت ۶۰ روز تعلیق می‌کند و سپس وعده گفت‌وگوی منطقه‌ای درباره آینده را می‌دهد.
+ایران پیش از جنگ هرگز عوارضی دریافت نمی‌کرد، بنابراین آقای ترامپ در اصل در حال جشن گرفتن بازگشت به وضعیت پیش از جنگ است.
+آقای ترامپ بارها تفاهم‌نامه جدید خود را با توافق سال ۲۰۱۵ میان باراک اوباما، رئیس‌جمهور وقت، و رهبری ایران مقایسه کرد و گفت توافق او تضمین خواهد کرد که ایران «نتواند سلاح هسته‌ای تولید یا خریداری کند». ایران زمانی که در سال ۱۹۷۰ پیمان منع گسترش سلاح‌های هسته‌ای را تصویب کرد، با این موضوع موافقت کرده بود و در صفحه نخست توافق دوران اوباما نیز دوباره بر آن تأکید کرد.
+در سه ماه گذشته مذاکرات، که به رهبری استیو ویتکاف، فرستاده ویژه رئیس‌جمهور، و جرد کوشنر، داماد او، انجام شد، ایرانی‌ها اصرار داشتند که هرگز از حق خود برای غنی‌سازی اورانیوم تحت آن پیمان دست نخواهند کشید.
+آقای ترامپ گفت هنوز بر سر این موضوع مذاکره می‌کنند که آیا ایران غنی‌سازی خود را برای ۲۰ سال تعلیق خواهد کرد یا نه ــ ترامپ تلویحاً گفت شاید به تعلیق ۱۵ ساله رضایت دهد ــ اما گفت ایران برای همیشه به غنی‌سازی در سطوح پایین محدود خواهد شد؛ سطوحی که «هرگز نمی‌تواند از سوی ارتش استفاده شود».
+توافق دولت اوباما نیز همین شرط را داشت، اما پس از آنکه آقای ترامپ در سال ۲۰۱۸ آن توافق را کنار گذاشت، ایران غنی‌سازی در سطوح بسیار بالاتر را آغاز کرد؛ از جمله اورانیوم نزدیک به سطح مورد نیاز برای بمب، با غنای ۶۰ درصد.
+در جریان این گفت‌وگو، رئیس‌جمهور حال‌وهوایی شادمانه داشت و درباره رویداد آتی «یو‌اف‌سی» که قرار است در محوطه جنوبی کاخ سفید برگزار شود و احتمال اینکه باران آن را مختل کند، صحبت کرد. او گفت: «در زمان جنگ چنین چیزهایی پیش می‌آید.»
+nytimes
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76360)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 03:36:01
+
+
+
+قالیباف پیش از چنج‌رژیم: مذاکره با قاتل سلیمانی شرافتمندانه نیست
+همزمان با انتشار خبر توافق میان واشنگتن و تهران، ویدیویی از اظهارات محمدباقر قالیباف، رئیس مجلس شورای اسلامی، در روز شنبه ۲۰ بهمن‌ماه ۱۴۰۳ بار دیگر در شبکه‌های اجتماعی بازنشر شده است.
+قالیباف در ششمین همایش ویژه فرماندهان و کارکنان ستاد فرماندهی سپاه، در پاسخ به پرسشی درباره تفاوت کامالا هریس و دونالد ترامپ گفته بود: «حتما فرق دارد، ترامپ قاتل شهید سلیمانی است. مگر ما می‌توانیم بی‌تفاوت باشیم؟ پس حتما برای ما فرق می‌کند.»
+او همچنین با اشاره به مواضع علی خامنه‌ای درباره مذاکره با آمریکا گفته بود: حضرت آقا می‌فرمایند شرافتمندانه نیست، خب شرافتمندانه نیست.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76359)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 03:36:01
+
+<img src="https://cdn1.telesco.pe/file/Aee_C1xWbFTD_QI-xzRKA0ZgxOKqsQOvbXLia0eKR5d65oH2YEAIwfPB7y4KC45aPEwZuFHZhWOL1r_18yzLPvbguZgkKMr853N2qAVUKh24qEhcSuqPzm-Gjo_UQAkvBfTSnS2Sl1RBbp59EugpXvq_YvOmghMIY6roqiUzEWDaNuEc7oF56fWLPmXPKUab6HprU9wUyGhxFC3iFCOgna5gG0YDjY8Rxe-LHIDyEns485VNEaWTqwkuaMng3FqMtVKWv401I-pR47okRc8x3VYeWDClVyV6ffQ3MpvcSwj13xHqE1VqiHvGARGSwIrvF3o7qJbMYsySRzk8VSmFcw.jpg" width="400"><br>
+
+کی‌یر استارمر، نخست‌وزیر بریتانیا، اعلام کرد که از توافق اعلام‌شده میان آمریکا و حکومت ایران «به گرمی استقبال می‌کند» و آن را «گامی بسیار مهم رو به جلو برای پایان دادن به جنگ، تضمین ثبات منطقه و بازگشایی تنگه هرمز» توصیف کرد.
+استارمر در بیانیه‌ای که روز یکشنبه در شبکه‌های اجتماعی منتشر کرد، افزود: «ما آماده‌ایم از گفت‌وگوهای فنی که اکنون آغاز خواهد شد حمایت کنیم. اولویت ما این است که این توافق به صلحی پایدار و ماندگار تبدیل شود و برای تحقق این هدف با شرکای بین‌المللی همکاری خواهیم کرد.»
+او گفت حمایت بریتانیا می‌تواند، در صورت نیاز، شامل «راه‌اندازی ماموریت دفاعی، مستقل و چندجانبه‌ای باشد که بریتانیا و فرانسه تاکنون نقش پیشرو در برنامه‌ریزی آن داشته‌اند؛ به‌ویژه برای ارائه کمک در زمینه پاکسازی مین‌ها» در تنگه هرمز.
+نخست‌وزیر بریتانیا همچنین تاکید کرد: «موضع قاطع و دیرینه بریتانیا همچنان این است که ایران هرگز نباید به سلاح هسته‌ای دست یابد.»
+@
+VahidOOnLine
+امانوئل مکرون، رئیس‌جمهوری فرانسه، بامداد دوشنبه ۲۵ خردادماه در پیامی در شبکه اجتماعی اکس از توافق حاصل‌شده میان واشنگتن وتهران استقبال کرد و خواستار اجرای سریع و کامل آن از سوی همه طرف‌های درگیر شد.
+مکرون گفت این توافق باید زمینه بازگشایی فوری و بدون قید و شرط تنگه هرمز را فراهم کند. او افزود ماموریت بین‌المللی ایجادشده با همکاری بریتانیا آماده پشتیبانی از این روند است و ازسرگیری تردد دریایی بدون محدودیت و عوارض، برای ثبات منطقه‌ای و اقتصاد جهانی ضروری است.
+رئیس‌جمهوری فرانسه همچنین گفت این توافق می‌تواند راه را برای مذاکراتی گسترده‌تر درباره برنامه هسته‌ای و موشکی ایران و مسائل امنیتی خاورمیانه هموار کند. او تاکید کرد فرانسه آماده است در کنار شرکای خود برای دستیابی به صلحی پایدار در منطقه نقش‌آفرینی کند.
+مکرون در بخش دیگری از پیام خود بر حمایت فرانسه از تلاش‌های دولت لبنان برای بازگرداندن حاکمیت کامل این کشور تاکید کرد و گفت برقراری آتش‌بسی پایدار برای تحقق این هدف ضروری است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76357)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 03:36:01
+
+<img src="https://cdn1.telesco.pe/file/TsutBVda9pJ6pU2p25NrM4gR3tQEptdMr4mEesScHIP0j2c0ZmyMViEvkXQ3994rUu4D_GYIsnIjB7BuEMkwa1fzNuGspXWlYLFl4NKL99LUP-_DA3idVOgfX-4vBj1BHoGH6RsEtpviawszt9gsYc8hssl81qjzVcCjwxHKEWLWhrMDAGhv11JSBd1FQV5CyWRjsmYJ2_K-UZ4oF625TN869RHB5YgXikLIwO7odZWm1CigWxgCTgTuVzljdETi0cLb8qoPut8tZKyHflv-CYylQLQqDtrJEjp03Q0k4TbHI1gew3-oDVuHt5xlXT53vqXvb_eaNIgnWtwsaKdIkA.jpg" width="400"><br>
+
+روزنامه معاریو به نقل از منابع اسرائیلی گزارش داد بنیامین نتانیاهو، نخست‌وزیر این کشور، در گفت‌وگو با دونالد ترامپ، رییس‌جمهوری آمریکا، به صراحت اعلام کرد که اسرائیل خود را به بند مربوط به لبنان در توافق میان آمریکا و حکومت ایران متعهد نمی‌داند.
+بر اساس این گزارش، نتانیاهو گفت که ارتش اسرائیل از لبنان عقب‌نشینی نخواهد کرد، در مواضع فعلی خود باقی خواهد ماند و به اقدامات خود برای خنثی کردن تهدیدهای حزب‌الله، از جمله نابودی زیرساخت‌های تروریستی و پاسخ به هرگونه حمله علیه اسرائیل، ادامه خواهد داد.
+به نوشته معاریو، برداشت منابع اسرائیلی آن است که «توافق احتمالی ایالات متحده با ایران، دست اسرائیل را در عرصه لبنان نخواهد بست. پیام اصلی این است: اسرائیل منافع امنیتی-راهبردی مستقلی در لبنان دارد و قصد دارد بر آن پافشاری کند.»
+این روزنامه نوشت: «اکنون باید دید این شفاف‌سازی‌ها — فراتر از تماس تلفنی نتانیاهو و ترامپ — در بوته واقعیت چگونه عمل خواهد کرد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76356)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 03:36:01
+
+
+
+بیانیه دبیرخانه شورای عالی امنیت ملی:
+متن یادداشت تفاهم پایان جنگ پس از چند ماه مذاکره فشرده نهایی شده است
+جنگ در تمامی جبهه‌ها از جمله لبنان از امشب به صورت فوری و دائمی پایان می‌یابد
+متنی که در خبرگزارهای حکومتی منتشر شده:
+بیانیه دبیرخانه شورای عالی امنیت ملی درباره توافق پایان جنگ
+میان ایران و آمریکا
+بسم الله الرحمن الرحیم
+به اطلاع ملت شریف ایران می رساند:
+▪️
+جمهوری اسلامی ایران در پرتو راهبری رهبر شهید خویش، تفوق خود در برابر دشمن امریکایی صهیونی را تکمیل کرده و ذیل تدابیر رهبری عالی قدر نظام (حفظه الله تعالی)، حمایت های آحاد مردم و تلاش مجاهدانه رزمندگان اسلام، به دنبال یک دوره مذاکرات دشوار و فشرده چند ماهه، و بر اساس مصوبه شورایعالی امنیت ملی، متن یادداشت تفاهم در خصوص مذاکرات پایان جنگ (مذاکرات اسلام آباد) را میان ایران و امریکا در شامگاه 24 خرداد ماه، نهایی کرد.
+▪️
+بر اساس توافقات انجام شده، جنگ و عملیات نظامی در تمامی جبهه ها از جمله لبنان از امشب به صورت فوری و دائمی پایان یافته و به علاوه، محاصره دریایی علیه ایران بلافاصله و به طور کامل خاتمه می‌یابد.
+▪️
+امضای این یادداشت تفاهم در روز جمعه 29 خرداد به طور رسمی انجام خواهد شد.
+▪️
+مذاکرات برای توافق نهایی، به پس از اجرای تعهدات طرف مقابل وفق یادداشت تفاهم موکول خواهد شد. جمهوری اسلامی ایران از تلاش های جمهوری اسلامی پاکستان و دولت قطر قدردانی می کند.
+والسلام علیکم و رحمت الله و برکاته
+دبیرخانه شورای عالی امنیت ملی
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76355)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 
 
@@ -43,7 +165,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 <img src="https://cdn1.telesco.pe/file/Sxj1xbwr8YbEFTCgywhbCrBBWRLiU6BpdlYPw82TzuC_D0Lv2u63ry-wfSnj-35BrXl7k1qBmZfAHiaGqlZG6LT-fU8QgNklcYoTAOTZdfne009YcIqyQ9KD-7VgIYjthQVQS6nUSQt1OHcGuCnh3-suJGTJQkqiwAarGUrouzKdFZnLc7JNqQNxDOcKkes4u4fK1V1K_dC3F4YpngLgwjy9NPmLR0WpD5d44uONgo9gE4dl_SOs4z05D_Id0cWdNgN4VJ_4raPILMJa8qY69Z7JRNreoYRdkBeBstvhxjek3KLwtzaU1PKZUhm3ynTMcuM0bf-tiGvLw2s5Btevsg.jpg" width="400"><br>
 
@@ -63,7 +185,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 
 
@@ -89,7 +211,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 
 
@@ -103,7 +225,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 <img src="https://cdn1.telesco.pe/file/hVYnMHpxc9i9pbpOiYCFUqYHZzVoHP8OjFo5vM0iGmFAH5rdHTYNLUXuIJSs8UuK8JdNxdBIiaAcTFms1ewy99vlxKJneSad5hdIsPUdvlhFjUAzz8tO3UM5gwibSWtk79pt58hN-1u2fSCSSCBqlzM3tSBIOvyDcwaRNK_FMM_ru3tiCQrwXm143hRq8ZZ24QBv8HCve8HoQE6sxufBI0re9Rusb943f-idv5h5ZDNLTrjrapphyA89p-E-mr4w7QKqeDkYHGJgsAd26AgXYJ79eQhjfxchfFJvz35NQcg7KLH9Ue37xAjKd6DA6rC6UDX9gF4q-KJeBRudBavnjA.jpg" width="400"><br>
 
@@ -124,7 +246,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 <img src="https://cdn1.telesco.pe/file/LWqbBZOBNzLrUunFEo6gzDQh4mJVfrYrXvbAJ_wFbMaznC__g_tFJz4W0hYuKqTgFv2jU-T58BpGnmfeau_oT6GrQhP7ryZCT0iTzntyNklgl72CSCGp7QYBdeDxGhZnQP_RgTDrYhUtjpK2RshOEDRLv45dAwN-YOCPkZ8wNIaNdu29wsnGG_hgdhVTeJR7IfOPup-uqctZxNi5jS-X0uKA-SZcpCpUbW46Eqz2XchRDoM7A0blaHRtg5S4Ls7fg1EZ7N7firEabSoDQ9L-DD55Q3-FYaxscdo-8V5j5MrDiqFBmbh56MhxYBVdOJ7cn2wzG1PyUNUnMhuqOQdgDg.jpg" width="400"><br>
 
@@ -139,7 +261,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 <img src="https://cdn1.telesco.pe/file/I0MoJ7Hra9UEnXQKfh_a5NAaTGjyK4mCb2mHNAwkSRzmctSU4DSGgpkpukdmIl8zZK__azZRdoMLFUbgNVQkchTmBjoPSwbeMBb2IG0WGbjh09DSbBEPD-LwPJb-p-vXS061H8L9RNWkkBbVCu3ADqfuGoiPgd8FLmNWNAXJ_W9S-f-aO9pDOVh49UNVAICqLpPsE6p_3QAKwuz21IGThmRTbEvpGd6X-G6FiBD82lQ-apbGCP6R02jgG6UgiDpxVGJEfMc2uidK_c0ZScHRnQLtJsUBMjkRdjj6YhzmVw1I9GL5Ut3_pACoDaJmpMWrg9X6osaXKEaB3lgd3HM2ag.jpg" width="400"><br>
 
@@ -160,7 +282,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 
 
@@ -176,7 +298,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 <img src="https://cdn1.telesco.pe/file/KGcuIsXtvcRVCdjgJpHppRhNn3ocCdFsALRrU52JHOMBfgJeWWXT_fG8jVX9cJx0S7m12sxTN-vZSl412Z13Io1MqX5hLVlLLIwxexcluqQ_SAd-pJJtt5_2KGKHoK9SeHtUm2M3JxeHkKxGPfSKovyRSDi1RsriLCBPej7PnVdgKuGqBhXWookC-oZiuxOcdXR5vbj35xXFWOD4vp1RzWysMWGMq-nVJ1W6wQWYdqHLtqYbRWKXEHCVLlNGKldLIQ-wkNIKpWcuhSROgZ3jkqYffFrpeEXuEhU0UQSCoqIUINToM85Tqc3K6G3Wuz-fONLnTl3VcCSwncQ6J5KR6Q.jpg" width="400"><br>
 
@@ -221,7 +343,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 <img src="https://cdn1.telesco.pe/file/k23bYUIstp4ZdKnNQGO_WI3SGgN8-pq6mtUTd6XGtYT7wi8wpcjaxqCo3KwaGk31jOpBBPAwhJXMoaNzu5H4xbr9F0HNrUjx5j7-uyQhxbpckZDb4CVMp-Gig-m1IMERM4PAnVj34tlE5W0lwtKbDuagluKwpTafTB7Rz84ZSpwxGruoR6ZzWmaSEOggLCf3IR9zjf8aDm_r0Tvq0Qy_Ny_A6-m6OHF4GG6XTUfteSGMkNEC99IlX0qTktUEXh0e2ZdzAS8wwxPIFFWJEwK3z-vrvtU4_9sGD8ViAGrGbY5-8buutY55GGjMH96sNdj3Ih5ZsnV5a8UJTLCYRL-tRw.jpg" width="400"><br>
 
@@ -238,7 +360,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 
 
@@ -263,7 +385,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 <img src="https://cdn1.telesco.pe/file/iMPr40c5cY0SsWJAcNWCgYPf9R_KKqJv3IsimHFQai6FFpJ_OpOolPMMYKC6OVhuOQp3EqwL0ol4qxcyht4P1xH9reY5EosA23DnHd2m6CMm1-lSji8uxUmdRIN4utjNlRO51DidQc3wCbe4j8OWO4iBlsqXyBus-xrU877b6Q9ywZp7jpWwoStjyXGWd4TAs_hyrUfOnDdE2O3bgbqahLUCjLSfd2ATes6yHoGV8VRdeGHfByJXZ-ckNu_13cWp8mh3vxMT116fjsPEhXKWbKXEtRYz-hg60yrJsKCfqR8VhkDo3Z9gl54Am6tAmxAGX0Crvcjc4VXyzo8agi68wA.jpg" width="400"><br>
 
@@ -282,7 +404,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 <img src="https://cdn1.telesco.pe/file/nXWFyMoCq1qNG2MUK8Dgr1CRLapyS6spy0edIlxc962CeuyQiCwPuIF3ke78IU_mmdJ5dybH67ByyK_uN3DdrCVC8bK5NeJIaI8ZUFd44EXenlBN-TWB0z28mFYHHNtpR6TUalyIPKnDQwl1jqxyZWLjPGGYBqq1ns_GVnk_diF9E6tS8SZA1ZR7UpU0HKYN9EjEHgMYkB2Raqx_0OXZLMGR1Pux23GSpChw51a5jsa-hLoZv7J2z0Oh9yQm6xMOtN4a8pu7Hj88xWrO4SCJa-SNtepTvfCymgHWWvudzGw8xyOz3sAgCPbqQ_WDfCdGqJmyG9v9k02bN62XiBf0nQ.jpg" width="400"><br>
 
@@ -305,7 +427,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 02:26:01
+###### 🔵 Updated at: 2026-06-15 03:36:01
 
 
 
@@ -316,118 +438,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76341)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 02:26:01
-
-<img src="https://cdn1.telesco.pe/file/gPDuAIbqu6NfzoUQc3mjoOlidUTB-nbTO68_hXRUpqDUbhMbSJ8BQVxNJOu8YBjWyoqwYNTpu7AwqXEivpurPegE1HJ0eKbdmxuvAfcZzeVDfpRlyA9sWhi62JFsT43epUj53spK5-od3DF-VRPQMTwpovZmJg4uHAswtOLbnP5rRsvW2zhMzqwwQcs0X5mT8CaClnyTGjUnDaGRFxyIHgcm5x3eFF2lKZRc66xySuF9M-yvV5Q6NWMpGaukvH_MDVX0aywEvBHZBbKCNuQrQr0Fly2E9pRr5YHQzFDGypNY4duwKuRw6zusVE7JBjtjBQCei4F11FnKePIskcHW3w.jpg" width="400"><br>
-
-"‏پاسخ رزمندگان اسلام در پیش است."
-محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی در جمهوری اسلامی
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76340)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 02:26:01
-
-<img src="https://cdn1.telesco.pe/file/MP81C9seSRtE2lP8_hw1jyHmFN4FkPYKbstXaS116gL0kdz8FG7aMULvJ40JKul1gLE8loio-bSFt5k4HgLgREypG8xHi5LwV3pM4_C5GxYfJFeC8jsn1v9r8QVmS4sWeDibmGhQef-stGCPzqdDABLQuKhpyX5Dx0SbhRTRPw9NnllGC9hDcGDOYmN2_MgYeKMzz1pbacyyYmjcScMApG8XGj4NS95oMD8BA1HwRQrbejuVwhTkzp7fuu_dWD9jDunMZYQAytXa4IYqGTFyGhr7BWqDUtB3tuM6wH5Xc6a_7fBbZdLwzoF_IjD_TgobniAqEvh34FRR4qbuvsOAew.jpg" width="400"><br>
-
-نصب تصاویر #مجتبی خامنه‌ای و آدولف #هیتلر با هم عکس جعلی چهره رهبر جدید جمهوری اسلامی (دستکاری شده با هوش مصنوعی) رو با استناد و افتخار به سخنان جعلی و چرندیات هرگز گفته نشده آن جنایتکار دیگر منتشر می‌کنند. عکس دریافتی از بابلسر، سه‌شنبه ۴ فروردین Vahid
-📡
-…
-
-[View Post](https://t.me/VahidOnline/76339)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 02:26:01
-
-<img src="https://cdn4.telesco.pe/file/XXbYBQjctftdS5TNR1BVRNKOaWDNliAxDByoLQGwrbe5wYyWg-8FjFbelgAQpv4Ryma93uD6IfTUoAztOGqJzgWk39tZ30fY16QGWpq7FwiqqbaADa4IiUHn3jC6KIVS0tjxrZ_aNrRzdxDCos_uVK8rKNbZDF6N5SDiLWL0bDkdmi3uLHsJj9rSU79rWyc63oioYUJVteg1OpR7jFp8LFYIPDH2cJtIHety77pTARlWR92sdWp72ezumaeyLX-76qeJP5BzHe6qjgJNs_V8KwV6cHn4i2IUGj-3DcUW1v-ebt2DzGYGQjxjXdVlLmsuHKZPvJ2QI5TgNeSSmcU13w.jpg" width="400"><br>
-
-مسعود پزشکیان، رئیس‌جمهور ایران، در پی انتقادات برخی حامیان حکومت از محتوای توافق احتمالی با آمریکا، روز یکشنبه گفت که روند مذاکرات بر اساس مصوبات شورای عالی امنیت ملی و دیدگاه‌های رهبر جمهوری اسلامی پیش می‌رود.
-او در دیدار با مدیران رسانه‌های داخلی افزود: «تصمیمات راهبردی کشور باید در چارچوب سازوکارهای قانونی اتخاذ شود و همه جریان‌ها و گروه‌ها نیز خود را ملزم به تبعیت از این تصمیمات بدانند.»
-در آستانهٔ امضای تفاهم‌نامهٔ ایران و آمریکا برای پایان جنگ، اعتراض‌ در میان حامیان تندروی حکومت به متنی که به‌عنوان تفاهم‌نامه در برخی رسانه‌ها منتشر شد بالا گرفته و تجمعاتی نیز توسط گروهی از طرفداران جمهوری اسلامی علیه این تفاهم و مذاکره‌کنندگان برگزار شده است.
-در یکی از این تجمعات در تهران، تجمع‌کنندگان علیه عباس عراقچی، وزیر خارجه، و محمدباقر قالیباف، رئیس مجلس شورای اسلامی، شعارهایی سر دادند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76338)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 02:26:01
-
-
-
-ترامپ: به نتانیاهو گفتم داری چه غلطی می‌کنی؟
-ظرف دو سه ساعت آینده یک توافق بزرگ امضا خواهد شد
-به ویدیوی بالا با هوش مصنوعی زیرنویس فارسی اضافه شده، متن دو دقیقه اولش:
-«بله کوین، عصر بخیر. همین الان با رئیس‌جمهور ترامپ صحبت کردم. او به فاکس‌نیوز گفت که معتقد است یک توافق بزرگ با ایران ظرف دو تا سه ساعت آینده امضا خواهد شد.
-از او درباره حملات امروز اسرائیل علیه حزب‌الله در پایتخت لبنان، بیروت، پرسیدم. او گفت با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تلفنی صحبت کرده و از او پرسیده: “داری چه غلطی می‌کنی؟” ترامپ گفت به نخست‌وزیر گفته بود این حملات علیه حزب‌الله را انجام ندهد تا بر پیشبرد این توافق اثر نگذارد.
-اکنون اسرائیلی‌ها، به گفته ارتش اسرائیل، خود را برای احتمال شلیک موشک‌های بالستیک ورودی از سوی ایران آماده می‌کنند. رئیس‌جمهور ترامپ به فاکس‌نیوز گفت از ایران خواهد خواست با شلیک موشک به سوی اسرائیل پاسخ ندهد، چون این توافق در آستانه امضا قرار دارد و انتظار می‌رود امشب امضا شود.
-همه اینها در پس‌زمینه تازه‌ترین گفت‌وگوها برای رساندن این توافق نهایی به خط پایان رخ می‌دهد. رئیس‌جمهور درباره حملات میانه هفته گذشته هم صحبت کرد؛ زمانی که آمریکا بسیاری از مواضع ایران را زیر ضربه می‌برد و ایرانی‌ها را به میز مذاکره برمی‌گرداند.
-شاید یادتان باشد، کوین، من با رئیس‌جمهور تلفنی صحبت می‌کردم، در حالی که او در اتاق وضعیت بود، و ایرانی‌ها با او تماس گرفتند و از او خواستند بمباران را متوقف کند. رئیس‌جمهور معتقد است همان لحظه توانست معادله را تغییر دهد و دوباره ایرانی‌ها را وادار کند این امتیازها را بدهند.
-رئیس‌جمهور ترامپ گفت اگر آنها امشب توافق را امضا کنند، او فوراً دستور خواهد داد محاصره بنادر ایران برداشته شود و سپس وارد گفت‌وگوهای جزئی‌تر درباره برنامه هسته‌ای ایران خواهند شد.
-اما دوباره، مهم‌ترین خبرهایی که اکنون می‌دانیم این است:
-رئیس‌جمهور ترامپ به فاکس‌نیوز گفته معتقد است توافق با ایران ظرف دو تا سه ساعت آینده امضا خواهد شد. به گفته رئیس‌جمهور، این امضا به‌صورت الکترونیکی انجام می‌شود و حدود یک هفته بعد انتظار می‌رود مراسم امضای حضوری، احتمالاً در جایی در اروپا، برگزار شود.
-باز هم تأکید می‌کنم: رئیس‌جمهور پس از حملات امروز اسرائیل به پایتخت لبنان، بیروت، واکنش نشان داد. اسرائیلی‌ها در پاسخ به آتش پهپادی این هفته از آن سوی مرز به سمت شمال اسرائیل، مواضع حزب‌الله را هدف قرار دادند. و رئیس‌جمهور می‌گوید از نخست‌وزیر اسرائیل پرسیده: “داری چه غلطی می‌کنی؟”»
-TreyYingst
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76337)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 02:26:01
-
-<img src="https://cdn1.telesco.pe/file/MCw1RhOoAAUxxJ6_BTNUYKnvU9SRhTbczjQLqCkjX9nCS860_raSgNyfsAxIABuaTTsfBcHmOFwn_U7xgN4MMNoEPTbEiOfxfYdIhnlOwo-SYgIx7u1TcrGIPkrbWB-lfti_-375wq3k1U7jiuIgITrM5HBrkdwVQ1m8Te_YuHUZGu46yW-LhRBscWPAW_2HyDkpX6YTXTkbyAFmabG8cLNekJsD5XAUq0B4wkUuCSuPR-1bTy-BDpTF4haiRZJFDB0T67peJWRvd3UP3hfNaFRCDT9C4wVkUanlJ9WBeE3ZmeN7SJKz2VlNUrf-Z7nzL1kngOBRnaUkqIM09oS5RQ.jpg" width="400"><br>
-
-مجید موسوی، فرمانده نیروی هوافضای سپاه پاسداران، در پیامی از حامیان جمهوری اسلامی خواست در مسیر تحقق آرمان‌های نظام، از مجتبی خامنه‌ای تبعیت کنند.
-او نوشت: «ملت بصیر و غیور که در خونخواهی علی خامنه‌ای مبعوث شدید و در راه تحقق آرمان‌های بلند انقلاب اسلامی با مجتبی خامنه‌ای عهدی تازه بستید، هوشیار باشید که از شئون متعهد بودن، تبعیت کردن است.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76336)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 02:26:01
-
-<img src="https://cdn1.telesco.pe/file/FmhaNtnAdrp3rBycerby8GQRQh6k34hnEHMN-r7McjLgZZJfWN64gUIYviYyputDM16zoByhdx-PNurEGWxG-tnVYwzUzASUm-_e9RcBb2SPbLcidyidXMx7JzpJyvxeOiq4KxG5pAyNpTmCczmKjGPGacbc58BBt_l3dCGlIBElmD2n7bxgRbIPjqTktbiPfyDKU8GGD-SN_KT5em3E6VXHovgAJpt_AFm7DdARSuhFpYpCo2TaXLYfl3ckpJXMX9PhrZEsKpJ5NHLvQK3D-S6cfLBUHbOsAQIpOwkB5R-S2Fot0iu4YdAdFQRNVK81XnyAXMpw4UZ-nIPHWwMvAw.jpg" width="400"><br>
-
-ترامپ: بیایید خرابش نکنیم!‍
-پست ترامپ، ترجمه ماشین:
-حمله صبح امروز به بیروت نباید اتفاق می‌افتاد؛ به‌ویژه در روزی خاص که ما تا این اندازه به توافق صلح با ایران نزدیک هستیم. اسرائیل حق دارد از خود در برابر تهدیدها دفاع کند، اما حمله‌ای که در پاسخ به آن انجام شد بسیار کوچک و بی‌اهمیت بود؛ هیچ‌کس آسیبی ندید، زخمی نشد یا کشته نشد، و نباید این روند مهم را مختل کند.
-ما به توافقی بسیار نزدیک هستیم که صلح را به منطقه، از جمله لبنان، خواهد آورد و همه طرف‌ها باید عقب‌نشینی کنند. دیگر نباید هیچ حمله‌ای از سوی اسرائیل در هیچ نقطه‌ای از لبنان انجام شود، اما همچنین نباید هیچ حمله‌ای از سوی هیچ طرف دیگری، از جمله حزب‌الله، علیه اسرائیل صورت گیرد.
-این می‌تواند آغاز یک صلح طولانی و زیبا باشد — بیایید خرابش نکنیم!
-از توجه شما به این موضوع سپاسگزارم.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76335)
 
 ---
 
