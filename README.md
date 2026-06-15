@@ -3,7 +3,168 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-15 19:58:17
+###### 🔵 Updated at: 2026-06-15 23:32:05
+
+<img src="https://cdn1.telesco.pe/file/vy8j3SOV46k1mgJeCsaQyRlyQnie5xzWM7F7v5lux7k_Sf7RhaOxsmbvlYplh2vAhaza9CVYdiE7QjRQf8-vmQqVCat1yO07WilYkEjhpfceMmRJGhhLkrT9if41OuFbfMkoHmBC39xbbpd3SUowd4GC1BQCbXOZB9VmTNiuh3CJOkfEC2_29qpyhkbaROBj0dOuf9sXJLjL7muDDwMoigm4xsYk0p75T1IEh3y6pV0TOEsxdQVYJpfhobsxLxdY1uT0NHYVQ1wJXqWWNy-7n8R7Tl5DkRA0ByE5hvo2bD3HSxlUz0JoGzRvHvCx6HYNcQrbLxVBeQPCsbq9YMVajQ.jpg" width="400"><br>
+
+پایگاه نیروی هوایی ادواردز آمریکا اعلام کرد یک بمب‌افکن بی-۵۲ روز دوشنبه ۲۵ خردادماه در ایالت کالیفرنیا سقوط کرده است.
+بر اساس بیانیه منتشرشده از سوی این پایگاه، هواپیما «اندکی پس از برخاستن» از باند فرودگاه پایگاه ادواردز و در ساعت ۱۱:۲۰ صبح به وقت محلی دچار سانحه شد.
+در این بیانیه آمده است: «تیم‌های امدادی بلافاصله به محل حادثه اعزام شدند و عملیات امداد و بررسی همچنان ادامه دارد.»
+مقام‌های آمریکایی تاکنون جزئیاتی درباره علت سقوط، سرنوشت خدمه یا میزان خسارات احتمالی منتشر نکرده‌اند.
+«بی-۵۲ استراتوفورترس» یکی از مهم‌ترین بمب‌افکن‌های دوربرد نیروی هوایی آمریکا است که از دهه ۱۹۵۰ در خدمت ارتش این کشور قرار دارد و توانایی حمل تسلیحات متعارف و هسته‌ای را دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76396)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 23:32:05
+
+
+
+"خون آقامون رو چند فروختید؟"
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76395)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 23:32:05
+
+
+
+عراقچی:
+قرار است روز جمعه در کشور سوئیس که محل دقیق آن مشخص خواهد شد، یک دیداری بین هیئت‌های دوطرف انجام شود، که در آن روسای هیئت‌های دو طرف ابتدا این یادداشت تفاهم را امضا کنند و پس از آن اولین دور مذاکرات بعدی را داشته باشیم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76394)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 23:32:05
+
+
+
+جی‌دی ونس، معاون رئیس‌جمهور آمریکا، در گفتگو با شبکه سی‌بی‌اس اعلام کرد ایران در صورت پایبندی به تعهدات خود ممکن است به صندوقی برای بازسازی دسترسی پیدا کند که از سوی کشورهای حاشیه خلیج فارس تأمین مالی خواهد شد.
+ونس با اشاره به مزایای احتمالی توافق برای تهران گفت ایران «ممکن است» حدود ۳۰۰ میلیارد دلار منابع مالی برای بازسازی از کشورهای خلیج فارس دریافت کند، اما تحقق این امر را منوط به اجرای کامل تعهدات جمهوری اسلامی دانست.
+او افزود آمریکا با سرمایه‌گذاری کشورهای حاشیه خلیج فارس برای بازسازی ایران موافق است، اما این اتفاق تنها زمانی رخ خواهد داد که ایران به برنامه هسته‌ای خود پایان دهد، فعالیت‌های مربوط به مواد غنی‌شده را متوقف کند و با یک نظام بازرسی و نظارت گسترده موافقت کند.
+معاون رئیس‌جمهور آمریکا همچنین تاکید کرد رسانه‌های نزدیک به حکومت ایران بر مزایای توافق تمرکز خواهند کرد، اما از امتیازاتی که تهران باید در مقابل واگذار کند کمتر سخن خواهند گفت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76392)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 23:32:05
+
+<img src="https://cdn1.telesco.pe/file/PqUe-DkQkZQZf1ZqB8v9Rc5cus2VO8-ptIlcKlsPA9jtol0PqEPLiGOYpGW5pJo8NODZmbQ7QqfGpW1XvKLnE6M7mYVjfOek0BDd4klHt3kA5EXoKegwTAGHIN_a6Orc3Svz7dqWnNxJ7UAW83JtDI9PVszmY5uGrSNuXhPHfnmwNjHrgdTevZl5CflR7pfi2JAEXmEDa04b4xcSKazs9Kkiu-qYFDW44p31b8-98Jg3NG5CSofTuaj9jnM15hkklgfE0iSdkAkaNF7VvKWnmtDlJ3uQESe1dRrlBKfVZVRd8BM3yxWkou3LUdLbZ_EA4aJ2RKM2IUUmOrBVtjV2TA.jpg" width="400"><br>
+
+❌
+ویدیوی قدیمی منتسب به تیراندازی به هواداران حکومت در تجمع شبانه
+🔹
+ویدیویی در شبکه‌های اجتماعی منتشر شده که ادعا می‌کند صحنه تیراندازی به مخالفان توافق با آمریکا در تجمعات شبانه هواداران حکومت ایران را نشان می‌دهد.
+🔹
+این ویدیو قدیمی است و ارتباطی به تجمعات شبانه هواداران حکومت در ایران ندارد.
+🔹
+ویدیو مربوط به دهم اسفند ۱۴۰۴ و برخورد پلیس عراق با هواداران جمهوری اسلامی است که سعی داشتند به سفارت آمریکا در بغداد نزدیک شوند.
+🔹
+گزارش‌هایی از تجمع مخالفان توافق جمهوری اسلامی با آمریکا منتشر شده اما خبر تیراندازی به آنها در هیچ منبع رسمی منتشر نشده است.
+🔹
+این ویدیو پیش‌تر نیز با ادعای نادرست دیگری به اعتراضات دی ۱۴۰۴ منتسب شده بود.
+🔹
+بنابراین فکت‌نامه به ادعای مطرح‌شده درباره این ویدیو نشان
+«نادرست»
+می‌دهد.
+👈
+در فکت‌نامه بخوانید
+🌐
+@Factnameh
+
+[View Post](https://t.me/VahidOnline/76390)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 23:32:05
+
+
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، اعلام کرد نیروهای اسرائیلی در آنچه «مناطق امنیتی» در غزه، لبنان و سوریه خواند، تا زمانی که برای تأمین امنیت اسرائیل ضروری باشد، باقی خواهند ماند.
+بنیامین نتانیاهو، نخست وزیر اسرائیل، روز دوشنبه در یک کنفرانس خبری تأکید کرد که به‌رغم امضای تفاهم‌نامه میان ایران و آمریکا، چالش کشور اسرائیل به پایان نرسیده و «ما باید گوش به‌زنگ بمانیم و در مواقع لزوم از خود دفاع کنیم».
+به گفته دولت آمریکا، جمهوری اسلامی در قالب تفاهم‌نامه‌ای که روز یک‌شنبه امضا شد تعهد داده است که هرگز به دنبال سلاح هسته‌ای نرود.
+نخست وزیر اسرائیل در ادامه سخنان خود تأکید کرد که «با یا بدون توافق، ایران هرگز به سلاح هسته‌ای دست نخواهد یافت».
+نتانیاهو در نشست خبری خود همچنین گفت که حملات مشترک در کنار آمریکا به ایران خساراتی سنگین وارد کرده و به گفته او «بعضی معتقدند که خسارت اقتصادی به ایران یک تریلیون دلار بوده است».
+او در ادامه گفت:
+ما به مردم ایران قول دادیم که شرایطی را فراهم آوریم که رژیم آیت‌الله سرنگون شود، نمی‌دانم چه زمانی این اتفاق خواهد افتاد، ولی خواهد افتاد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76389)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 23:32:05
+
+
+
+'
+#آتش‌سوزی
+در  شهرک امید
+#تهران
+'
+تصاویر دریافتی از شهروندان،‌ دوشنبه ۲۵ خرداد، حدود ساعت ۲۱
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76386)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 23:32:05
+
+
+
+ویدیوی دریافتی از
+#آتش‌سوزی
+چیزی به اسم "موکب"
+منابع حکومتی به نقل از سخنگوی آتش‌نشانی تهران: آتش گرفتن گاز پیک‌نیک در یک موکب مستقر در میدان تجریش
+#تهران
+باعث سرایت آتش آن به چادر شده و دود بلندی در منطقه  ایجاد کرده است. بازار تجریش از این آتش آسیبی ندیده و آتش به سرعت خاموش
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76385)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-15 23:32:05
 
 <img src="https://cdn1.telesco.pe/file/sfDFAFFPc1-HriSePaKoR9OX99iQ4NKh49NnlhMqak_okUKptFWBgWZvrEgw8N4dnKtr5dBMw_SXpkHY583J_4RjvzEMEaKQucYb5_F3Axik6gSW-OiMeUkO0ea4omgqDc8_agnFNsK3ZqZNlb9XMyEBG_UGDaVBVkd8RhoF01mi3vmuyT9j9_CwbckgAjelGzA8YjVWeZIARuqZWQj-fbjwhn7UdTj2MbkxBe_2mblMZbwd5x1yDSCyp_ITsdho3ATyfQmIoVl9Yy5m75aRucXg1Wh-v1HvuIh9GxxruPoEle-LZbpbA3AueWTdcVcTrZK7_c-4KcjHGOAQ-TCd_Q.jpg" width="400"><br>
 
@@ -23,13 +184,17 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 19:58:17
+###### 🔵 Updated at: 2026-06-15 23:32:05
 
-<img src="https://cdn1.telesco.pe/file/HJSSxntE3X11PwzYZa4JJfkJyYEN6nXELrMBNptVKhbJ4eQXAvmsFbqcjLbgITtnVIAhbjhJUyVb-qtDXDFo9eW5B3mtQ_PxX0viwrMb33CnNd2ZAAzSidC04eBQAwDWNW2ExOLe3o1MEbQPW4ZYmqQDgnacr0vAfdUBfRuvyj9VuSi0n1NDJUp8K7mIM2z8bnPIY3-Vj5MGyuTfiOS6ihvfdq-0rvb6FBsA9mS22vvWYX0_JO8M7-dC8PWxQTOX67UY5xC64E-o4QXg53CtDkxoXX8dKKkoAk-gHQR0hWMHb3qRv54Bm4LvFiEKW7qO2zMfJzIRW4WQWRvSD9jQbQ.jpg" width="400"><br>
 
-دونالد ترامپ، رییس‌جمهوری آمریکا، گفت توافق با جمهوری اسلامی به‌طور کامل امضا شده و تنگه هرمز باز شده است.
-او افزود ایران سلاح هسته‌ای نخواهد داشت، نظارت و کنترل بسیار قوی اعمال خواهد شد و ابراز امیدواری کرد روابط خوبی میان دو طرف شکل بگیرد.
-او افزود: «مهم است که قیمت نفت به‌شدت در حال کاهش و بازارهای سهام در حال افزایش هستند.»
+
+رییس‌جمهوری ایالات متحده دوشنبه اعلام کرد که توافق با ایران امضا شده و متن توافق حاصل شده با ایران پس از مراسم امضای رسمی در جمعه منتشر خواهد شد.
+دونالد ترامپ که در هنگام ورود به اویان در فرانسه، برای شرکت در نشست گروه هفت صحبت می‌کرد، همچنین گفت تنگه هرمز تا جمعه به‌طور کامل باز خواهد شد.
+ترامپ در کنار امانوئل مکرون، رییس‌جمهور فرانسه، گفت مشخص نیست آیا در مراسم روز جمعه که قرار است در ژنو برگزار شود شرکت خواهد کرد یا نه، اما معاون رییس‌جمهور آمریکا، جی‌دی ونس، در آن حضور خواهد داشت.
+او گفت: «توافق کاملا امضا شده است. و همان‌طور که می‌دانید تنگه اکنون تا حدی باز شده است. روز جمعه کاملا باز خواهد شد.»
+ونس پیش‌تر گفته بود این توافق یکشنبه به‌صورت دیجیتالی امضا شده و هیچ‌گونه بودجه‌ای آزاد نشده است.
+در پاسخ به این سؤال که متن یادداشت تفاهم چه زمانی منتشر خواهد شد، ترامپ گفت: «احتمالا خیلی زود. بعد از جمعه... فکر می‌کنم در آینده بسیار نزدیک.»
+ترامپ همچنین گفت هرگونه کاهش تحریم‌ها علیه تهران «به رفتار ایران بستگی دارد. اگر آن‌ها کاری را که باید انجام دهند انجام دهند، این روند آغاز خواهد شد.»
 @
 VahidOOnLine
 📡
@@ -41,7 +206,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 19:58:17
+###### 🔵 Updated at: 2026-06-15 23:32:05
 
 
 
@@ -58,7 +223,7 @@ USABehFarsi
 
 
 
-###### 🔵 Updated at: 2026-06-15 19:58:17
+###### 🔵 Updated at: 2026-06-15 23:32:05
 
 <img src="https://cdn1.telesco.pe/file/SJGJDUZXm7HbukYM5nuwFnZ2JNsLw7N6FzMBkyTR6IYPOJ_nLfMshWKzAZmcbu3w4vIJ8LgLN0e3nZMa_q26vRhwFdmU7pr_kaScppQ_-1xTPnZ4gZ-PwbDGb4qYJiiNSRn36vjpwOGxsv_tnyoKiC1FQABAqb74YJVaWuuY8OyK7lU5Aj7tgb9NixNa6kzIb-FlEuDRF1dTezmeprx9rFUlOcs6H9qM3wVxNPU4PCbxmw0I3c1r1RH9c-_jLGnVchHOtuJt7WOO9jTMUNTVPw8Bj3gpy2sOfK22H6TI4zmZ2W7XCEIWPK54lB4Axgz2ZePdZzJsivmAsIJX8Miy6g.jpg" width="400"><br>
 
@@ -73,7 +238,7 @@ USABehFarsi
 
 
 
-###### 🔵 Updated at: 2026-06-15 19:58:17
+###### 🔵 Updated at: 2026-06-15 23:32:05
 
 <img src="https://cdn4.telesco.pe/file/B6yUNKnhYGEk_Uhot7p1eP-Ms7ZulXexEQLFev77Z6dZmJoczVvZMDp3r94kyJHlFydS_gvft0m7aQyuOdW2CSBN0hSAlMxeIOgKLio_M44z3KHBUReTBZ5VhLoD8jFRAjYoqSDpiT0E2bog2FOfOilWMzqt0Ang-kR9IruJ4SNfQBj7v-tAyEKdvG-cewI1ldM25tpd9_gd8czNrQsBEHjEhqLDhGdVnHtQho61IN_PIP0aAnSMiPFeST-SJkdqwtAP74TgZkQVfSLxqvMD8rnljlfOY123bUJpIUsWXzxdj5x045P3mEhZ8rZeaQNXNSnsGWm21GtxlTHR6G2nmA.jpg" width="400"><br>
 
@@ -85,199 +250,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76378)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn1.telesco.pe/file/Fa0OMc3rRSIBOafYM7e_RnctrDhUgVbvLG7co0XDRV1DD9jw-1nNjS05NLlaF7aADCZrrsINkjLw5tdSqABuZMXfYxUAn5kjjVHpMCx2N10Yr2R7h-ZYMNMWbsjcgEvelQyK63BPckJVxuJ4gPJfuiVM9hK0EC57ARhhuz9Y0QJ9Jl0YgzyySa_BZblYmnVjJL2NsvCaaGR9bdyYE0VfneqLUOwVdYQ-XgYhP03W0jF7zsClGdGZtg_8uYgjwJW3rRMLogdXDs-sM9oha6cBZTDYunFyHKiPKenFON8zrkHHWZExW8sQZfa92R-JK_sTVIPMxo_rmZdsZViVrVB0-A.jpg" width="400"><br>
-
-تصاویر دریافتی از دود یک آتش‌سوزی 'در میدان تجریش
-#تهران
-دوشنبه ۲۵ خرداد، الان'
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76374)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn4.telesco.pe/file/AOBQDT46DZ3jeQvgZq8LD-YVpVpjmu63XCF5yo5IMA1kjjR6UfNqMDRzdO-kimuZTO6P55BnFMHV_kKVtqjabsaSftWlCKJsTNRCzntnKwf9ftDJo1P18HMGEMbb4OJIvJkliQMr0-9z1afkDgIL1MMVD9mvlwyb1bSsJHL5nhkLv7vMFZony4LhcEKgI8lcHtx9tKOTgMZpgLhAJ8E5NCqyBmH0Mju1nlqRNPFQhpuXagpTcq2a83J1aOL72B0BK6riRkASEQxsyRL3NJ-v7vz7GlMC5dov4mrdgUyFBMu4nS4LYOrIoubcOwhfdJdli49dcA_bxDFRHjnKQa5uQw.jpg" width="400"><br>
-
-خبرگزاری رویترز به نقل از منابع امنیتی لبنان و رسانه‌های دولتی این کشور گزارش داد یک حمله پهپادی اسرائیل خودرویی را در جنوب لبنان هدف قرار داد و راننده آن کشته شد.
-این نخستین حمله مرگبار گزارش‌شده اسرائیل در لبنان از زمان اعلام توافق میان آمریکا و جمهوری اسلامی است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76373)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn4.telesco.pe/file/afFCY8TFoP_8C6hZ5dmdhwgsOcVJEOPqiDJCG1NT4RzOpjq5Hbst-N6QihI6sHvSyL7J8LXqqhjodNPRZeLIGaH475p4GEGrPRP71BaPOv8-Dz5bTH0MbJdBaQWoyHe8rWWWKi7Llf6TgDO3f_9hcllq5Pq5yf6NGkydkVFPQIGKmywWEVXlcTwnhgeRjbcAS3t4HppfrtwgDt7vWYQ0DZZ4eFvXEw9V0pymWeNOBRMN_pTbKe9SbFv_V5FPoBzYXYq5oie6HE05LVAkzAfuInzZHmXGUOwUpULqmoZHFVXONU-DThpN-6Vme5_vZnpmpwDOER6q6l9981rrpUdT1w.jpg" width="400"><br>
-
-جی‌دی ونس، معاون رئیس‌جمهور آمریکا، روز دوشنبه ۲۵ خردادماه اعلام کرد آمریکا و ایران پیش از مراسم رسمی امضای توافق، روز یکشنبه (به وقت آمریکا) آن را به‌صورت دیجیتال امضاء کرده‌اند.
-ونس در گفتگو با شبکه ای‌بی‌سی گفت توافق روز یکشنبه «به‌صورت دیجیتال» امضاء شده و قرار است مراسم رسمی امضای آن روز جمعه در ژنو برگزار شود.
-در همین حال، مسعود پزشکیان، رئیس جمهوری ایران نیز، روز یکشنبه در مراسمی دولتی با اعلام همین خبر گفته بود، توافق روز جمعه و حضوری امضاء می‌شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76372)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn4.telesco.pe/file/oanGifGf0JXYtRKKo7OXCQDNuNt5Lb7sPT1xDuOwayrONG2CNagFZZLFJ6fXKFfSeynft4ddb5Gji1wnsIfQzBDyAbdEnTN4bryK3wlgudj1EMi0vdcoIqrCWksTjZ8asVtfqq4jLQzUeL93E-auvJIgd_VLnxeFQYSYlBgT6qBRe8ZYTNlVsyb87LNLz6lVGfg4lUs07DUOMIZ2BiMY1_Bic2JbOJ1ISbhE69o__GpyDZP-5CCqQIC4c2Gg0u0gQ1ceEDLLH2D8wxsh1bE4RH0fwFdPaZUlgx7TRXM6jpVetntt0KvztlpG0UOKAbRoJvd-iDlw9e6lO-P3GV2Gfw.jpg" width="400"><br>
-
-با وجود اعلام مقام‌های بانکی درباره رفع اختلال در خدمات بانک‌های ملی، تجارت، صادرات و توسعه صادرات، خبرگزاری فارس وابسته به سپاه اعلام کرد که بخشی از خدمات غیرحضوری و اینترنتی این بانک‌ها همچنان با اختلال مواجه است.
-پیش‌تر این بانک‌ها در اطلاعیه‌های جداگانه اعلام کرده بودند که تمامی خدمات کارتی و سامانه‌های اینترنتی و موبایل‌بانک به حالت عادی بازگشته است.
-فارس گزارش داد در حال حاضر خدمات مبتنی بر کارت در پایانه‌های فروشگاهی و دستگاه‌های خودپرداز این بانک‌ها فعال می باشد، اما بخشی از خدمات اینترنتی و غیرحضوری همچنان دچار اختلال است.
-شورای هماهنگی بانک‌ها، وابسته به ساختار بانکی جمهوری اسلامی، روز شنبه ۲۴ خرداد حمله سایبری به سامانه‌های چهار بانک ملی، تجارت، صادرات و توسعه صادرات را تأیید کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76371)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn4.telesco.pe/file/HdawQ7JOYmrzwUjySCB2GID-ICZMP9RUgC64RKANKZ_sxkGMt1mrflroeBcACTp_KxjfCi4C6r_1_m9k5ews6n8m70iURQIw-ozM1exQPKI9QQJFaxXcGoh1J9b35oUw-bLiKhvJfWWQbbkEIA6kUaS71e1icE1NQa2yNRZLYtHNDv5yJ7RVRcRIWAvqj31wh2FuSanDAmdaMi7Pp5EMSbcA6Xv6J0VNUNluBnREmIiKRN-k58BSKweSoyIXp8OTFQQCGFznNyD7sttE5QLGX1hue_wIjgEJ2uMwioI1UxnBglWc7A2FdQ5TozigHSp_RkOdqg-hJDsWFepdAuy--w.jpg" width="400"><br>
-
-روز دوشنبه، به دنبال اعلام توافق ایران و آمریکا بر سر امضای تفاهم‌نامۀ پایان جنگ، قیمت ارزهای خارجی و سکه طلا در بازار آزاد ایران کاهش قابل توجهی یافت.
-وب‌سایت‌های اعلام نرخ آزاد ارز و طلا، بعدازظهر روز دوشنبه قیمت هر دلار آمریکا را کمتر از ۱۶۲ هزار تومان اعلام کردند که نشان‌دهنده کاهشی در حدود ده هزار تومان از زمان اعلام توافق موقت است.
-قیمت هر دلار آمریکا در روزهای گذشته بیش از ۱۷۱ هزار تومان گزارش می‌شد.
-قیمت سایر ارزهای خارجی هم در بازار آزاد ایران کاهش مشابهی داشت.
-همزمان قیمت هر سکه طلا در حدود ۱۶۷ میلیون تومان اعلام شد که نسبت به روز قبل کاهشی پنج میلیون تومانی را نشان می‌داد. این میزان کاهش در حالی رخ داد که قیمت طلا در بازارهای جهانی پس از اعلام توافق ایران و آمریکا افزایش یافته بود.
-قیمت دلار و طلا در بازار ایران از زمان وقوع جنگ در ایران افزایش یافته و در روزهایی هر دلار آمریکا تا مرز ۱۹۰ هزار تومان هم معامله شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76370)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn4.telesco.pe/file/Evfx38TiQ31WCxvv8eBQJLBD2nQvD-E6QOdhBZHsUV-bGNBsejg-_y9r5Yah31D-fAqKnfbC5gS99mDbyZUgC5IDPEQfDqtcfGfLjShRLVbpuuwamtPi_5QOm0A9YKqoe0Nr9dPyWB7O2Ln_eV2UsljHT5w_8mqWaN8zATyGcbz_0y9TF2_6oWJXte51aEdoZyzradmPFL4L-UvzsrhXEI94rnrBCZOcXr3FDvUQNvSuIgWXNXpkr5f4x1MwTeYPdTrrGb_543D0ONwVF5g_ySrR4wXq8ths1lVHOY0bqwk5qJncOXb1bmp_mCupqRB7uA5qo5kK5-B-ONtZywLCew.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهور آمریکا، روز دوشنبه ۲۵ خردادماه در پیامی در شبکه اجتماعی تروث سوشال اعلام کرد کشتی‌ها، از جمله نفتکش‌های حامل نفت، حرکت از تنگه هرمز را آغاز کرده‌اند.
-ترامپ نوشت: «کشتی‌ها در حال حرکت هستند؛ بسیاری از آن‌ها با نفت بارگیری شده‌اند و از تنگه هرمز خارج می‌شوند. آن‌ها از مسیر جنوبی حرکت می‌کنند؛ مسیری که کاملا امن، مطمئن و پاک است.»
-رئیس‌جمهور آمریکا همچنین افزود: «مسیرهای دیگری نیز برای تردد وجود دارد.»
-پیام ترامپ در حالی منتشر می‌شود که صدا و سیمای جمهوری اسلامی ایران، روز دوشنبه در گزارشی تصویری اعلام کرده بود: «بیش از ۹۶ ساعت است که نیروی دریایی سپاه هیچ مجوز عبوری صادر نکرده است.»
-پیشتر رویترز گزارش داده بود، نخستین نفتکش حامل گاز طبیعی مایع پس از اعلام پایان جنگ جمهوری اسلامی ایران و آمریکا، صبح دوشنبه از تنگه هرمز عبور کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76369)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn4.telesco.pe/file/uoim7zSu013YFdCTLD-XydoAPn0_7ryt8ihhQ4ZXMeDisI_OS-MN4VCtYdpzKBQaU8FY9PgNx-RSZasEIGvROeTMnmp7FoTxZL27LaoEZS7Jnlk1k6TCWUaCloTHllo-roNFEWkCwYSgbcqrpuKHYMCoiY1NCZm5XzofjW6gOx74WekMbv8NPYmF_BotgbcnuQVOqU9bYrVibNydQYkUqbQlMpV89P-uCe-88-ltc7YJWT_S5t5CfFLKVCjYuI_cHFBkJM5r-4l6dupEnTfdaJ69WGsz_D_KAuwPqb4Y7f54uIAWGjtU_whxtuL1f2KOXqTc6EhR78ribWc76Vpl8Q.jpg" width="400"><br>
-
-معاون رئیس‌جمهور آمریکا می‌گوید تفاهم‌نامه ایران و آمریکا روز جمعه در حضور عباس عراقچی و محمد‌باقر قالیباف در سوئیس امضا خواهد شد.
-جی‌دی ونس گفت که «جزئیات زیادی از توافق هنوز حل‌و‌فصل نشده است» اما آمریکا انتظار دارد که تنگه هرمز «در درازمدت بدون عوارض باز باشد.»
-سخنگوی وزارت خارجه جمهوری اسلامی اما گفته است که هنوز مشخص نیست که چه کسی از جانب ایران تفاهمنامه را امضا می‌کند.
-اسماعیل بقایی همچنین تاکید کرد که ایران «به‌دنبال گرفتن عوارض نیست» اما «هزینه ارائه خدمات» را دریافت خواهد کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76368)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn4.telesco.pe/file/RQdU1ddz_LxbkF7WzWIy6IfvwyubuIDgAQt5_jKOAzzuSuK6JOVe1w_OfdI9H7yL-MCI-wT-yTxRS1c81JDznPDowtkneDTGGWaHT8YpY7qOpkB_6zKkKlaNRkGvK2le31ixG4kWxzuZ2HliRzv0Pwd3P7RSQtTUg1VmqW38VLu1ufqt81hHu33kRNnMzhrOIm2RAHXlWkbwSASKbbcjJxllw1cLsZf0zr07Mt89BWHuKrkWDdYPEu-3dTj0B9fbAb8mukurpxsYJnrYgbEBAhf2lNBTgi9VepOwhZe1ziHi0-GNtv5wbuo0fCp5YEyljX5pYwjTGZAghi9K_YuBYw.jpg" width="400"><br>
-
-«نوید عالم‌چهره» ۴۴ ساله، ساکن ملک‌شهر اصفهان و پدر دو دختر، روز جمعه ۱۹ دی‌ماه ۱۴۰۴ هدف شلیک گلوله جنگی قرار گرفت و جان خود را از دست داد.
-به گفته منابع آگاه، گلوله جنگی از پشت به پهلوی او اصابت کرده بود.
-خانواده می‌گویند نوید عالم‌چهره هنگام مجروح شدن هنوز هوشیار بود و توسط اعضای خانواده به بیمارستان غرضی اصفهان منتقل شد.
-به گفته آنان، کادر درمان پس از تحویل گرفتن او اعلام کردند که برای عمل جراحی به اتاق عمل منتقل خواهد شد.
-نزدیکان نوید می‌گویند تا صبح مقابل بیمارستان منتظر ماندند، اما با باز شدن درهای بیمارستان و مراجعه برای پیگیری وضعیت او، دیگر اثری از نوید پیدا نکردند. به گفته نزدیکان، پس از دو روز جست‌وجو و مراجعه به مراکز مختلف، سرانجام پیکر او را در سردخانه باغ رضوان اصفهان پیدا کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76367)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn4.telesco.pe/file/p00VBNMhzRHCzCYDgTwjsQHNcx6zz341Lyz28MF1VTXX6d81-dbxxeMRPAzkA8o-XYm0F51NgTOt8vA0b440pyeDJZu-b2qKiaFlUnmqIhwB-2d3IsWem2TT81ibJ4TKQtbnKJgvORRC2UNVEUvibUgFwcUUK4C7iE0xCXUpJ_UvPTaavfBAmdYCfP2couaRVDtXgtmwrCCRY40f2vSSa0l2vUDc4rOx88SvXtBQJoJ0eJUXQzaxxbRvHTA_UPJoZ5NZqbDVK4IlgNKziKSKX7ssoTZifqixzubFvrtYDJw-cY_d2heirVPTBlPq8CqpgtoksQxM6U7lPCh98_kMxw.jpg" width="400"><br>
-
-کمیسر عالی حقوق بشر سازمان ملل اعلام کرد که از آغاز سال جاری میلادی تاکنون، دست‌کم ۴۰ نفر در ایران به اتهام‌های مرتبط با «امنیت ملی» اعدام شده‌اند که در میان آن‌ها ۱۸ معترض نیز دیده می‌شود.
-ولکر تورک روز دوشنبه ۲۵ خرداد افزود: «مقامات دست به سرکوب شدید زده‌اند، هزاران نفر را بازداشت کرده و محدودیت‌های بیشتری بر فضای مدنی اعمال کرده‌اند».
-او در بخش دیگری از اظهاراتش از اعلام توافق صلح میان ایالات متحده و ایران استقبال کرد و از همه طرف‌ها در منطقه خواست حداکثر خویشتنداری را رعایت کنند.
-تورک گفت: «از اعلام این‌که ایالات متحده و ایران بر سر یک توافق صلح به تفاهم رسیده‌اند که شامل آتش‌بسی فوری و دائمی، بازگشایی تنگه هرمز و چارچوبی برای ادامه مذاکرات است، استقبال می‌کنم».
-او افزود: «در این مقطع حساس، روشن است که همه طرف‌ها باید حداکثر خویشتنداری را به خرج دهند و برای اجرای سریع و با حسن نیت توافق حاصل‌شده تلاش کنند».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76366)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 19:58:17
-
-<img src="https://cdn1.telesco.pe/file/CO9Lwf-bbqFneJafEdInngWPjskjUBbTvtp4KdCQl-vZ7givZrpA1lSXDaOvtWBw-9UJPLxCQnH50vIRJfJcmxLuDWJMJEOe_lHV5Ss5HWFb_is5epXSSxvuhgqyDplGv2S7UgZ_Q1iLzmeKKnDdYlsIf5u0xIF9MrCKqVOlN6cVZAg2F7UPf2LoyjZxsMf6tNczb0udGpXelME_lGEtYEYMfBpifKXExRcDmd1gmUutG9hP89HEKrysvMwVgNHycWfarMtUY99uhV5mq-eYedTxSUluMVyLYvY7VmEJ85oNOwhx8i44Ylulxcp8mEkdeB8fkkrQZoB4UQxZu93aiA.jpg" width="400"><br>
-
-بهروز رضوی، گوینده محبوب علی خامنه‌ای، درگذشت.
-FattahiFarzad
-بهروز رضوی، گوینده، صداپیشه، ترانه‌سرا و بازیگر، پس از دوره‌ای بیماری در ۷۸ سالگی درگذشت.
-او فعالیت حرفه‌ای را از سال ۱۳۴۷ با گویندگی در رادیو آغاز کرد و طی بیش از پنج دهه فعالیت، به یکی از شناخته‌شده‌ترین صداهای رسانه‌ای ایران بدل شد. روایت مجموعه مستند «ایران» از جمله ماندگارترین آثار او به شمار می‌رود.
-بهروز رضوی علاوه بر فعالیت در رادیو و تلویزیون، در سینما و دوبله نیز حضور داشت و در آثاری چون «گناه فرشته»، «سفر به چزابه» و «نجات‌یافتگان» ایفای نقش کرده بود.
-او همچنین شاعر ترانه‌های «کویر دل» و «گمشده» با صدای مرجان بود.
-این هنرمند متولد یزد از سال ۱۳۷۴ در کرج زندگی می‌کرد و برادر عاطفه رضوی، بازیگر و چهره‌پرداز، است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76362)
 
 ---
 
