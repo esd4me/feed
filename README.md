@@ -3,7 +3,89 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
+
+<img src="https://cdn1.telesco.pe/file/luSoKwqbBJDLFfKOQU_CrHhmlyHkYZmnY4eDfaJSKm0qymV96G15juJh_LYfep7lmiOwPWr-NlS6p3rKakkC2V3IwxTOZTUneh_lFnwRSiwGmDt6PgxZn-ppB50k8ujLKlW40gppHymUgTUD3IeaPdSIFhxuimCp_vIaGsPtMgSNKsEY1bXIxBZYAy16tYJFH1mZRTBd8UyzeU1u-EE-CGSgP01UO0Nt_XZCxBdrobUlODEBgNI7elyFcyvdvdfgyBTHgK2xb3Jn16iGQEf28E_Ta8pAJ48h5U3gIJGjYlQ95WMHtpYYl6cQQ6h25wGAXRnD1pMAZdTbi4TKceCPrw.jpg" width="400"><br>
+
+جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، روز دوشنبه در گفتگو با «سی‌ان‌ان» اعلام کرد که یادداشت تفاهم میان آمریکا و ایران سندی بسیار کلی و در حدود «یک صفحه و نیم» است.
+ونس با اشاره به اینکه این متن تنها یک چارچوب کلان را تعیین می‌کند، تاکید کرد که جزئیات مربوط به موضوعات مختلف باید در طول مرحله مذاکرات فنی آینده مشخص و حل‌وفصل شوند.
+به گفته او، این تفاهم‌نامه ساختاری را ایجاد می‌کند که بر اساس آن، ایرانی‌ها در صورت پایبندی به تعهدات خود، از مزایای این توافق بهره‌مند خواهند شد.
+معاون رئیس‌جمهوری آمریکا در بخش دیگری از این مصاحبه گفت که در همان «بند اول» این سند، انتظار واشنگتن مبنی بر تعهد ایران به «صلح و ثبات منطقه‌ای» به صراحت مطرح شده است.
+او تصریح کرد که بر اساس این بند، همان‌طور که ایالات متحده به صلح متعهد است، تهران نیز متعهد می‌شود که تامین مالی سازمان‌های تروریستی خشن و دامن زدن به بی‌ثباتی در منطقه را به طور کامل متوقف کند.
+@
+VahidOOnLine
+جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، در گفتگو با «سی‌ان‌ان» ضمن تکذیب گزارش‌های مربوط به آزادسازی زودهنگام اموال ایران گفت: «تا این لحظه حتی یک دلار از دارایی‌های مسدود شده ایران آزاد نشده و هیچ‌گونه کاهش تحریمی از سوی ایالات متحده یا شرکای ما در خلیج‌فارس صورت نگرفته است.»
+ونس با اشاره به گزارش‌های نادرست در این زمینه افزود: «تندروها و برخی عناصر در داخل ساختار سیاسی ایران، برای متقاعد کردن افکار عمومی خود، دستاوردهای تهران از این توافق را بزرگ‌نمایی می‌کنند، بدون اینکه به تعهداتی که ایران برای کسب این امتیازات باید به آن‌ها تن بدهد، اشاره‌ای کنند.»
+معاون رئیس‌جمهوری آمریکا با تاکید بر اینکه این توافق در صورت اجرا شامل یک بسته کاهش تحریمی بسیار بزرگ برای مردم ایران خواهد بود، تصریح کرد: «این تفاهم‌نامه نحوه تعامل ایران با جهان و منطقه را به طور اساسی تغییر می‌دهد، اما تهران تنها زمانی از این مزایا بهره‌مند خواهد شد که به تمامی تعهدات خود عمل کند.»
+او در پایان به مخاطبان توصیه کرد که نسبت به بیانیه‌های تبلیغاتی و پروپاگاندای حکومت ایران بدبین باشند و تاکید کرد که بهره‌مندی از این فرصت بزرگ، کاملا به پایبندی عملی ایران به وعده‌هایش بستگی دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76403)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 01:56:12
+
+<img src="https://cdn1.telesco.pe/file/vX1Is9UlzfVOILsfMb1bZLzhJiBoosXUVcJq353CGecX1uw0C1Fn0TSwx4AQVUA466Ijyasyw6uP10QCFq68raKWRRvn5WuCDnmUnR7gRgqy3_d1FcnmzykRbX_fnlQiDXt_UmDVWJt54vKeskdbeGzAZC_JHk05Sef8A_Xs0oecJDxVceQZKnzvqGwhWjW25FLkU1DvRhGy8DERPE3zJNdXb7WiJORyERJZVJ7ify9X6gi5h9xTM0WQHn_4ZKwE43Gr5DSjxQ5sQ6YguY4WxYR7JYP7e67-mIMQOV5PJSrj3fzNjWjQTQuo1s8P0KYQh0uvBKZ11ZXI0pIcMbXRqQ.jpg" width="400"><br>
+
+خبرگزاری مهر:  منابع محلی از شنیده شدن صدای انفجارهایی در مناطق جنوبی جزیره قشم و تنگه هرمز خبر می‌دهند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76402)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 01:56:12
+
+<img src="https://cdn1.telesco.pe/file/OMVVGf5fymJHrOlPl7J6YerdAHEIMM56G0bkK4JexeDX6A19cs7quUNx6zHC7wHFHXhuq55z0gUWBbiD46pJAd46YyQnDFCMFPlQMaFWYHp0N4TlhVDUvAZCVBmuB6bIQZPPn0Rvfk3L59cinTB3pyWZcC6s4pFvXxWUGQBzPGWczvonx1KOcSQGHkDp0S4bmUkxGIP9N5joWcDyNikSJdsC4Zv-Y4JFvEhtjmnESQ1NhgLtJ-jqm-IeRxQ5ZHPyedy3BttV6quK_yAIgzVJMP0Ae-UWselEhBcmpjjuXP2Kn-ytuFAhG9GJnBNOJCe6p6CFIWEHJWGwn2DMhqw3VQ.jpg" width="400"><br>
+
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، نوشت: رفع محاصره دریایی عملیاتی شد و ۳ نفتکش و ۲ کشتی حامل کالای اساسی جمهوری اسلامی از محاصره دریایی عبور کردند.
+پیش‌تر ‌‌ارتش آمریکا در یک یادداشت هشدار اعلام کرد که محاصره بنادر ایران تا زمان تکمیل یک توافق آتش‌بس با این کشور که برای ۱۹ ژوئن (۲۹ خرداد) برنامه‌ریزی شده است، همچنان برقرار است.
+@
+VahidOOnLine
+بر اساس گزارش فارس، دیگر خبرگزاری وابسته به سپاه، یک نفتکش غول‌پیکر ایرانی (VLCC) به همراه یک کشتی حامل نهاده‌های دامی با گذر از منطقه محاصره در آب‌های آزاد به سمت بنادر ایران حرکت کرده‌اند؛ هم‌زمان یک نفتکش دیگر نیز با عبور از دریای عمان و خط محاصره، مسیر خود را به سمت مقصد صادراتی پیش گرفته است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76400)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 01:56:12
+
+
+
+پیام‌های دریافتی نیم‌ساعت پیش:
+صدای انفجار سیریک ولی با فاصله تقریبا دور
+سلام وحید
+۲۳:۵۷ دوشنبه ۲۵ خرداد قشم
+خودم یه انفجار و موج رو حس کردم، اما بچه‌ها میگفتن دوتا بوده و قبلش هم حس شده، جایی که من هستم نزدیک تنگه است، شاید از روی دریا بوده
+۰۰:۰۴ سه‌شنبه ۲۶ خرداد
+مجدد دوبار احساس شد
+سلام وحید خوبی
+ساعت ۱۲ و ۵ دقیقه سمت سیریک صدای انفجار از سمت دریا اومد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76399)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 <img src="https://cdn1.telesco.pe/file/vy8j3SOV46k1mgJeCsaQyRlyQnie5xzWM7F7v5lux7k_Sf7RhaOxsmbvlYplh2vAhaza9CVYdiE7QjRQf8-vmQqVCat1yO07WilYkEjhpfceMmRJGhhLkrT9if41OuFbfMkoHmBC39xbbpd3SUowd4GC1BQCbXOZB9VmTNiuh3CJOkfEC2_29qpyhkbaROBj0dOuf9sXJLjL7muDDwMoigm4xsYk0p75T1IEh3y6pV0TOEsxdQVYJpfhobsxLxdY1uT0NHYVQ1wJXqWWNy-7n8R7Tl5DkRA0ByE5hvo2bD3HSxlUz0JoGzRvHvCx6HYNcQrbLxVBeQPCsbq9YMVajQ.jpg" width="400"><br>
 
@@ -23,7 +105,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 
 
@@ -37,7 +119,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 
 
@@ -52,7 +134,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 
 
@@ -71,7 +153,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 <img src="https://cdn1.telesco.pe/file/PqUe-DkQkZQZf1ZqB8v9Rc5cus2VO8-ptIlcKlsPA9jtol0PqEPLiGOYpGW5pJo8NODZmbQ7QqfGpW1XvKLnE6M7mYVjfOek0BDd4klHt3kA5EXoKegwTAGHIN_a6Orc3Svz7dqWnNxJ7UAW83JtDI9PVszmY5uGrSNuXhPHfnmwNjHrgdTevZl5CflR7pfi2JAEXmEDa04b4xcSKazs9Kkiu-qYFDW44p31b8-98Jg3NG5CSofTuaj9jnM15hkklgfE0iSdkAkaNF7VvKWnmtDlJ3uQESe1dRrlBKfVZVRd8BM3yxWkou3LUdLbZ_EA4aJ2RKM2IUUmOrBVtjV2TA.jpg" width="400"><br>
 
@@ -102,7 +184,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 
 
@@ -124,7 +206,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 
 
@@ -144,7 +226,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 
 
@@ -164,7 +246,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-06-15 23:32:05
+###### 🔵 Updated at: 2026-06-16 01:56:12
 
 <img src="https://cdn1.telesco.pe/file/sfDFAFFPc1-HriSePaKoR9OX99iQ4NKh49NnlhMqak_okUKptFWBgWZvrEgw8N4dnKtr5dBMw_SXpkHY583J_4RjvzEMEaKQucYb5_F3Axik6gSW-OiMeUkO0ea4omgqDc8_agnFNsK3ZqZNlb9XMyEBG_UGDaVBVkd8RhoF01mi3vmuyT9j9_CwbckgAjelGzA8YjVWeZIARuqZWQj-fbjwhn7UdTj2MbkxBe_2mblMZbwd5x1yDSCyp_ITsdho3ATyfQmIoVl9Yy5m75aRucXg1Wh-v1HvuIh9GxxruPoEle-LZbpbA3AueWTdcVcTrZK7_c-4KcjHGOAQ-TCd_Q.jpg" width="400"><br>
 
@@ -179,77 +261,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76384)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 23:32:05
-
-
-
-رییس‌جمهوری ایالات متحده دوشنبه اعلام کرد که توافق با ایران امضا شده و متن توافق حاصل شده با ایران پس از مراسم امضای رسمی در جمعه منتشر خواهد شد.
-دونالد ترامپ که در هنگام ورود به اویان در فرانسه، برای شرکت در نشست گروه هفت صحبت می‌کرد، همچنین گفت تنگه هرمز تا جمعه به‌طور کامل باز خواهد شد.
-ترامپ در کنار امانوئل مکرون، رییس‌جمهور فرانسه، گفت مشخص نیست آیا در مراسم روز جمعه که قرار است در ژنو برگزار شود شرکت خواهد کرد یا نه، اما معاون رییس‌جمهور آمریکا، جی‌دی ونس، در آن حضور خواهد داشت.
-او گفت: «توافق کاملا امضا شده است. و همان‌طور که می‌دانید تنگه اکنون تا حدی باز شده است. روز جمعه کاملا باز خواهد شد.»
-ونس پیش‌تر گفته بود این توافق یکشنبه به‌صورت دیجیتالی امضا شده و هیچ‌گونه بودجه‌ای آزاد نشده است.
-در پاسخ به این سؤال که متن یادداشت تفاهم چه زمانی منتشر خواهد شد، ترامپ گفت: «احتمالا خیلی زود. بعد از جمعه... فکر می‌کنم در آینده بسیار نزدیک.»
-ترامپ همچنین گفت هرگونه کاهش تحریم‌ها علیه تهران «به رفتار ایران بستگی دارد. اگر آن‌ها کاری را که باید انجام دهند انجام دهند، این روند آغاز خواهد شد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76383)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 23:32:05
-
-
-
-اکانت فارسی وزارت خارجه آمریکا با انتشار ویدیوی بالا نوشت:
-جی. دی. ونس، معاون رئیس‌جمهور ایالات متحده: توافق با ایران، «مبتنی بر عملکرد» است.
-«باید به خاطر داشته باشیم که اقتصاد آنها اساساً نابود شده است. برنامه هسته‌ای آنها اساساً نابود شده است. اگر آنها [در چارچوب این توافق] اقدامات درست را انجام ندهند، از همان ابتدا هرگز پولی در اختیار نخواهند داشت که بتوانند برنامه هسته‌ای خود را بازسازی کنند.
-USABehFarsi
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76382)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 23:32:05
-
-<img src="https://cdn1.telesco.pe/file/SJGJDUZXm7HbukYM5nuwFnZ2JNsLw7N6FzMBkyTR6IYPOJ_nLfMshWKzAZmcbu3w4vIJ8LgLN0e3nZMa_q26vRhwFdmU7pr_kaScppQ_-1xTPnZ4gZ-PwbDGb4qYJiiNSRn36vjpwOGxsv_tnyoKiC1FQABAqb74YJVaWuuY8OyK7lU5Aj7tgb9NixNa6kzIb-FlEuDRF1dTezmeprx9rFUlOcs6H9qM3wVxNPU4PCbxmw0I3c1r1RH9c-_jLGnVchHOtuJt7WOO9jTMUNTVPw8Bj3gpy2sOfK22H6TI4zmZ2W7XCEIWPK54lB4Axgz2ZePdZzJsivmAsIJX8Miy6g.jpg" width="400"><br>
-
-منابع حکومتی با انتشار تصاویر بالا نوشتند:
-کلاهک ۵۰۰ کیلویی موشک تاماهاوک سقوط کرده در اطراف ورامین خنثی شد
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76379)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-15 23:32:05
-
-<img src="https://cdn4.telesco.pe/file/B6yUNKnhYGEk_Uhot7p1eP-Ms7ZulXexEQLFev77Z6dZmJoczVvZMDp3r94kyJHlFydS_gvft0m7aQyuOdW2CSBN0hSAlMxeIOgKLio_M44z3KHBUReTBZ5VhLoD8jFRAjYoqSDpiT0E2bog2FOfOilWMzqt0Ang-kR9IruJ4SNfQBj7v-tAyEKdvG-cewI1ldM25tpd9_gd8czNrQsBEHjEhqLDhGdVnHtQho61IN_PIP0aAnSMiPFeST-SJkdqwtAP74TgZkQVfSLxqvMD8rnljlfOY123bUJpIUsWXzxdj5x045P3mEhZ8rZeaQNXNSnsGWm21GtxlTHR6G2nmA.jpg" width="400"><br>
-
-پلیس اطلاعات تهران، روز دوشنبه ۲۵ خرداد ۱۴۰۵ از بازداشت سه شهروند به اتهام انتشار مطالبی در شبکه‌های اجتماعی خبر داد.
-خبرگزاری مهر به نقل از پلیس اطلاعات تهران بزرگ گزارش داد که این افراد در پی رصد فعالیت‌های فضای مجازی شناسایی و بازداشت شده‌اند. به گفته پلیس، بازداشت‌شدگان متهم هستند با انتشار مطالبی در شبکه‌های اجتماعی به مقدسات و آنچه «مدافعان وطن» خوانده شده، توهین کرده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76378)
 
 ---
 
