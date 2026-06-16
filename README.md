@@ -3,7 +3,53 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
+
+<img src="https://cdn1.telesco.pe/file/Ef6Em01JhumiRMKDA_xTvEklKgVzWKDjkNzL3fP5hAR4gI-HOzm4Yl5uHeAxnlOfWEupDIOzhiEGen2Fp4IdHHN2Q0UOGJ8lfCCmuva2dEv6vpyppqF7jn3VXPFCm3M3eZaFt-mUb8TYjjk80wPbo1TKlotw7mdHQ_0jiZ34d3MYzlE6rBaGabrTR3GYu8C9C63K391AJw-ITkQa3LudD8xG_fk8KtLeYvgLrXDPFtslsS___0SASAG3drw3_FXA4IWU3eARGb69kPS_tOSKWKZWmBjttyCY6vJTJSnuuEqMLwH3TLJYBgmT32cTPhJKyUEeWsU2oHqHRjfDsVy7ug.jpg" width="400"><br>
+
+پست ترامپ، ترجمه و توضیح ماشین:
+ایران موافقت کرده است که هرگز سلاح هسته‌ای نداشته باشد! همچنین، داستانی که می‌گوید آمریکا ۳۰۰ میلیون دلار به ایران پرداخت می‌کند، خبر جعلی است که دموکرات‌های احمق منتشر کرده‌اند!!!
+رئیس‌جمهور دی‌جی‌تی
+(عبارت «Dumocrats» ترکیبی تحقیرآمیز از
+Dumb
+و
+Democrats
+است؛ یعنی چیزی مثل «دموکرات‌های احمق»)
+realDonaldTrump
+البته حرف از سیصد «میلیارد» دلار بود نه میلیون. ترامپ پرداخت از سوی آمریکا رو تکذیب کرده.
+ونس هم نگفته بود که آمریکا قراره بپردازه
+.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76406)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 03:42:02
+
+<img src="https://cdn4.telesco.pe/file/Vx77_MFz5TGOdoRSZTvQWgtpNSWaYym_3CzBXdqs9YXUij3PMcskL6pc3IdnTi4YvQqe5Nw6xVpsu3tjrBfO7oAjW74dN3dKBY0LgXY_tZp95owoj3HNoOuF4hpqUsvkPYsxXp2JXOlA2mJDDGX2NUs3xGDvbg5MeKuiIuT7hO31rFpSdNS-BfcUoLHfXBbNWbLcXgsXd-yKOdHjd3PFBu0HPUKzBBH4D0O5kODtPW-cd4k353sF0HSRgDPWeTivTUI3WdL-g7ZIwkq9BZlT3XikT7aYKiWwjctwWz-E5JsJ0rGfwmzWGUzTv55NHLHEHG_K9rDiOwnwtbEXb5UnyQ.jpg" width="400"><br>
+
+سه منبع مطلع که با خبرنگار اکسیوس گفتگو کرده‌اند، می‌گویند: جان رتکلیف، رئیس سازمان اطلاعات مرکزی آمریکا (سیا)، به دونالد ترامپ و دیگر مقام‌های ارشد دولت گفته است اطلاعاتی که چند نهاد اطلاعاتی آمریکا جمع‌آوری کرده‌اند، درباره آمادگی ایران برای ارایه امتیازهایی که واشینگتن در یک توافق نهایی هسته‌ای میان دو کشور خواستار آن است، تردید‌های جدی ایجاد کرده است.
+براساس این گزارش، رتکلیف تنها فردی نیست که در تیم ترامپ دچار تردید است. مارکو روبیو، وزیر خارجه آمریکا، و پیت هگست، وزیر جنگ، نیز در نشست‌های داخلی نگرانی‌ها و پرسش‌هایی درباره این توافق مطرح کرده‌اند.
+در مقابل، جی‌دی ونس، معاون رئیس‌جمهوری، و استیو ویتکاف و جرد کوشنر، نمایندگان آمریکا، از توافق حمایت کرده‌اند.
+به گفته دو منبع، ترامپ و تیمش اطلاعاتی را بررسی کردند که چند نهاد اطلاعاتی آمریکا جمع‌آوری کرده بودند و نشان می‌داد شیوه‌ای که مقام‌های جمهوری اسلامی در گفت‌وگوهای داخلی خود درباره توافق صحبت می‌کنند، با آنچه به میانجی‌ها و آمریکا گفته‌اند، همخوانی ندارد.
+به گفته دو منبع، رتکلیف و روبیو اعلام کردند که بر اساس همین اطلاعات، نسبت به این‌که حکومت ایران با اقدام‌های هسته‌ای مورد نظر آمریکا موافقت کند، تردید دارند.
+یکی از منابع مطلع گفت: «اطلاعات موجود نشان می‌دهد نیت‌های ایران با تعهداتی که در چارچوب توافق پذیرفته، همخوانی ندارد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76405)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 <img src="https://cdn1.telesco.pe/file/luSoKwqbBJDLFfKOQU_CrHhmlyHkYZmnY4eDfaJSKm0qymV96G15juJh_LYfep7lmiOwPWr-NlS6p3rKakkC2V3IwxTOZTUneh_lFnwRSiwGmDt6PgxZn-ppB50k8ujLKlW40gppHymUgTUD3IeaPdSIFhxuimCp_vIaGsPtMgSNKsEY1bXIxBZYAy16tYJFH1mZRTBd8UyzeU1u-EE-CGSgP01UO0Nt_XZCxBdrobUlODEBgNI7elyFcyvdvdfgyBTHgK2xb3Jn16iGQEf28E_Ta8pAJ48h5U3gIJGjYlQ95WMHtpYYl6cQQ6h25wGAXRnD1pMAZdTbi4TKceCPrw.jpg" width="400"><br>
 
@@ -29,7 +75,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 <img src="https://cdn1.telesco.pe/file/vX1Is9UlzfVOILsfMb1bZLzhJiBoosXUVcJq353CGecX1uw0C1Fn0TSwx4AQVUA466Ijyasyw6uP10QCFq68raKWRRvn5WuCDnmUnR7gRgqy3_d1FcnmzykRbX_fnlQiDXt_UmDVWJt54vKeskdbeGzAZC_JHk05Sef8A_Xs0oecJDxVceQZKnzvqGwhWjW25FLkU1DvRhGy8DERPE3zJNdXb7WiJORyERJZVJ7ify9X6gi5h9xTM0WQHn_4ZKwE43Gr5DSjxQ5sQ6YguY4WxYR7JYP7e67-mIMQOV5PJSrj3fzNjWjQTQuo1s8P0KYQh0uvBKZ11ZXI0pIcMbXRqQ.jpg" width="400"><br>
 
@@ -43,7 +89,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 <img src="https://cdn1.telesco.pe/file/OMVVGf5fymJHrOlPl7J6YerdAHEIMM56G0bkK4JexeDX6A19cs7quUNx6zHC7wHFHXhuq55z0gUWBbiD46pJAd46YyQnDFCMFPlQMaFWYHp0N4TlhVDUvAZCVBmuB6bIQZPPn0Rvfk3L59cinTB3pyWZcC6s4pFvXxWUGQBzPGWczvonx1KOcSQGHkDp0S4bmUkxGIP9N5joWcDyNikSJdsC4Zv-Y4JFvEhtjmnESQ1NhgLtJ-jqm-IeRxQ5ZHPyedy3BttV6quK_yAIgzVJMP0Ae-UWselEhBcmpjjuXP2Kn-ytuFAhG9GJnBNOJCe6p6CFIWEHJWGwn2DMhqw3VQ.jpg" width="400"><br>
 
@@ -63,7 +109,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 
 
@@ -85,9 +131,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
-<img src="https://cdn1.telesco.pe/file/vy8j3SOV46k1mgJeCsaQyRlyQnie5xzWM7F7v5lux7k_Sf7RhaOxsmbvlYplh2vAhaza9CVYdiE7QjRQf8-vmQqVCat1yO07WilYkEjhpfceMmRJGhhLkrT9if41OuFbfMkoHmBC39xbbpd3SUowd4GC1BQCbXOZB9VmTNiuh3CJOkfEC2_29qpyhkbaROBj0dOuf9sXJLjL7muDDwMoigm4xsYk0p75T1IEh3y6pV0TOEsxdQVYJpfhobsxLxdY1uT0NHYVQ1wJXqWWNy-7n8R7Tl5DkRA0ByE5hvo2bD3HSxlUz0JoGzRvHvCx6HYNcQrbLxVBeQPCsbq9YMVajQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/C1Xni97PgKBKXMUWdmXLSgl6g2mKnwvxEwRAXcXaiZtuUVKbc_hIws5fxdL3SNeJg-QVNTxKYzKG_NaP-M9p-VQ7guPwXZZK4tn9OAoZPsoyljvE5Dp0N6LGGwperFkC2ujnqB-nuNvQtM_UN7i5Rs-MZMJD9qZNlJnaKPaU6CY-84eq3BsO-ad6UVzppIjms7Wts7C2Y1OOmPzB3uoYM8wzk-mBWuQI89lW0S48nRkFQW6FVpK1KKGsDNp6GzMi-2qDC9FC22zVOssj3s00MF1vcoeSo6womEGXe4xwzQhOUxJJ8MP-yMLc9qJpuzqDPbOZz2g74nuCqKnh1YeqPg.jpg" width="400"><br>
 
 پایگاه نیروی هوایی ادواردز آمریکا اعلام کرد یک بمب‌افکن بی-۵۲ روز دوشنبه ۲۵ خردادماه در ایالت کالیفرنیا سقوط کرده است.
 بر اساس بیانیه منتشرشده از سوی این پایگاه، هواپیما «اندکی پس از برخاستن» از باند فرودگاه پایگاه ادواردز و در ساعت ۱۱:۲۰ صبح به وقت محلی دچار سانحه شد.
@@ -105,7 +151,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 
 
@@ -119,12 +165,15 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 
 
 عراقچی:
 قرار است روز جمعه در کشور سوئیس که محل دقیق آن مشخص خواهد شد، یک دیداری بین هیئت‌های دوطرف انجام شود، که در آن روسای هیئت‌های دو طرف ابتدا این یادداشت تفاهم را امضا کنند و پس از آن اولین دور مذاکرات بعدی را داشته باشیم.
+محمدباقر قالیباف، رئیس مجلس شورای اسلامی نیز در واکنش به امضای تفاهم‌نامه توقف مخاصمه خطاب به مردم این کشور گفته است: «با مقاومت تاریخی شما و رشادت نیروهای مسلح دربرابر آنان که قصد جان این ملت و نابودی و تسلیم این مملکت را کرده بودند، ایران گامی بلند به سوی پیروزی نهایی برداشت. می‌خواستند و نتوانستند.»
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -134,7 +183,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 
 
@@ -153,7 +202,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 <img src="https://cdn1.telesco.pe/file/PqUe-DkQkZQZf1ZqB8v9Rc5cus2VO8-ptIlcKlsPA9jtol0PqEPLiGOYpGW5pJo8NODZmbQ7QqfGpW1XvKLnE6M7mYVjfOek0BDd4klHt3kA5EXoKegwTAGHIN_a6Orc3Svz7dqWnNxJ7UAW83JtDI9PVszmY5uGrSNuXhPHfnmwNjHrgdTevZl5CflR7pfi2JAEXmEDa04b4xcSKazs9Kkiu-qYFDW44p31b8-98Jg3NG5CSofTuaj9jnM15hkklgfE0iSdkAkaNF7VvKWnmtDlJ3uQESe1dRrlBKfVZVRd8BM3yxWkou3LUdLbZ_EA4aJ2RKM2IUUmOrBVtjV2TA.jpg" width="400"><br>
 
@@ -184,7 +233,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 
 
@@ -206,7 +255,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-16 01:56:12
+###### 🔵 Updated at: 2026-06-16 03:42:02
 
 
 
@@ -221,46 +270,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76386)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 01:56:12
-
-
-
-ویدیوی دریافتی از
-#آتش‌سوزی
-چیزی به اسم "موکب"
-منابع حکومتی به نقل از سخنگوی آتش‌نشانی تهران: آتش گرفتن گاز پیک‌نیک در یک موکب مستقر در میدان تجریش
-#تهران
-باعث سرایت آتش آن به چادر شده و دود بلندی در منطقه  ایجاد کرده است. بازار تجریش از این آتش آسیبی ندیده و آتش به سرعت خاموش
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76385)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 01:56:12
-
-<img src="https://cdn1.telesco.pe/file/sfDFAFFPc1-HriSePaKoR9OX99iQ4NKh49NnlhMqak_okUKptFWBgWZvrEgw8N4dnKtr5dBMw_SXpkHY583J_4RjvzEMEaKQucYb5_F3Axik6gSW-OiMeUkO0ea4omgqDc8_agnFNsK3ZqZNlb9XMyEBG_UGDaVBVkd8RhoF01mi3vmuyT9j9_CwbckgAjelGzA8YjVWeZIARuqZWQj-fbjwhn7UdTj2MbkxBe_2mblMZbwd5x1yDSCyp_ITsdho3ATyfQmIoVl9Yy5m75aRucXg1Wh-v1HvuIh9GxxruPoEle-LZbpbA3AueWTdcVcTrZK7_c-4KcjHGOAQ-TCd_Q.jpg" width="400"><br>
-
-یک مقام ارشد آمریکایی روز دوشنبه اعلام کرد تفاهم‌نامه میان آمریکا و جمهوری اسلامی به امضای دونالد ترامپ، رییس‌جمهوری آمریکا، جی‌دی ونس، معاون رییس‌جمهوری آمریکا، و محمدباقر قالیباف، رییس مجلس جمهوری اسلامی، رسیده است.
-او گفت در مرحله بعدی مذاکرات، آرایش فعلی نیروهای نظامی آمریکا حفظ خواهد شد، اما در صورت دستیابی به توافق نهایی، کاهش نیروهای نظامی در نظر گرفته شده است.
-این مقام همچنین گفت مذاکرات فنی از اواخر این هفته آغاز می‌شود و جزییات توافق طی ۲۴ تا ۴۸ ساعت آینده منتشر خواهد شد.
-او افزود آزادسازی دارایی‌های مسدودشده و کاهش تحریم‌ها به اجرای تعهدات وابسته است.
-این مقام ارشد آمریکایی همچنین گفت: «از عملکرد عمانی‌ها در مذاکرات پیش از جنگ رضایت نداشتیم.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76384)
 
 ---
 
