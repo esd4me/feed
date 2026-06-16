@@ -3,7 +3,98 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-16 18:58:34
+###### 🔵 Updated at: 2026-06-16 22:32:39
+
+<img src="https://cdn1.telesco.pe/file/PEa3McX-bih1L6WRnAsXDP8BoyPl112yUuYBqTru-8DaCzYG-3LE4NotDO3wWEfzDb_U5plyaw-FnFK4EmiOART18yu8EjK2VfOw6uokDQQl_dpl5yQKyTd7ZPN8YuVOLFtFECNx7MAMxk_KGiEOjEOmAPzimb6NUs-DK0Jxw3bkYIFSS6-yyucIZbN702ak-RXCt6tQMEl_VOb3zL6Nn49jSdbZ1_rhiJHvfcEc0HRfXjaN66gPNw0_X2GYAhgOSz_tFWU3QBcbA1E7cs86byGYLgySFrPkfVkHHsLoM2lMkA4sCNTovTAaxFspbAgijhfYWuWSDjYmCP7YK-j1KA.jpg" width="400"><br>
+
+اختصاصی رویترز: منبع آگاه می‌گوید توافق ایران شامل یک صندوق ۳۰۰ میلیارد دلاری است که بیش از نیمی از آن تاکنون تعهد شده است.
+ترجمه ماشین:
+دبی، ۱۶ ژوئن، رویترز — یک منبع آگاه مستقیم از جزئیات توافق به رویترز گفت در توافق چارچوبی آمریکا و ایران، یک صندوق خصوصی ۳۰۰ میلیارد دلاری برای تحریک سرمایه‌گذاری در ایران پیش‌بینی شده و بیش از نیمی از این مبلغ نیز هم‌اکنون تعهد شده است.
+این منبع که به دلیل اعلام‌نشدن رسمی این طرح، در حالی که واشنگتن و تهران آماده امضا در روز جمعه می‌شوند، به شرط ناشناس‌ماندن سخن می‌گفت، گفت هدف این صندوق آن است که برای هر دو طرف انگیزه اقتصادی ایجاد کند تا به یک توافق نهایی برسند.
+مقام‌های آمریکایی و ایرانی روز یکشنبه گفتند که بر سر چارچوبی برای پایان‌دادن به جنگ خود به توافق رسیده‌اند؛ جنگی که از ۲۸ فوریه، زمانی که نیروهای آمریکا و اسرائیل به ایران حمله کردند، آغاز شد. این چارچوب همچنین شامل توقف محاصره ایران از سوی آمریکا و بازگشایی تنگه هرمز، مسیر کلیدی تأمین نفت و گاز جهان، است.
+این منبع گفت صندوق جدید، یک ابزار سرمایه‌گذاری خصوصی است، نه برنامه‌ای برای بازسازی یا پرداخت غرامت، و هیچ پول یا کمک بلاعوض دولتی در آن وجود نخواهد داشت. او افزود شرکت‌هایی مستقر در آمریکا، کشورهای عربی خلیج فارس، آسیا، آمریکای جنوبی و آفریقا با تأمین مالی آن موافقت کرده‌اند.
+به گفته این منبع، سرمایه‌گذاری‌های تعهدشده حوزه‌هایی از جمله انرژی، لجستیک، تولید صنعتی و حمل‌ونقل را در بر می‌گیرد.
+یک منبع ارشد ایرانی به رویترز گفت تهران در ابتدا خواستار ۴۰۰ میلیارد دلار غرامت بابت خسارت‌های جنگی از آمریکا شده بود، اما واشنگتن گفته بود چنین مبلغی را پرداخت نخواهد کرد.
+پس از آن، ایده این صندوق که قرار است «صندوق بازسازی و توسعه» نامیده شود، مطرح شد.
+منبع ایرانی گفت سازوکار پیش‌بینی‌شده شامل مشارکت کشورهای منطقه به شیوه‌های مختلف است. این شیوه‌ها شامل تضمین وام‌ها، ایجاد خطوط اعتباری یا تأمین مالی مستقیم بازسازی مکان‌های آسیب‌دیده در جنگ، از جمله تأسیساتی مانند مجتمع فولاد مبارکه، پالایشگاه‌ها، فرودگاه‌ها و به‌طور گسترده‌تر زیرساخت‌های آسیب‌دیده از درگیری، می‌شود.
+ایران، به‌عنوان یکی از بزرگ‌ترین اقتصادهای خاورمیانه، در چهار دهه گذشته تقریباً هیچ سرمایه‌گذاری مستقیم خارجی قابل توجهی جذب نکرده و به دلیل موج‌های پیاپی تحریم‌های آمریکا و تحریم‌های بین‌المللی، از بازارهای جهانی سرمایه کنار گذاشته شده است.
+این کشور دومین ذخایر اثبات‌شده بزرگ گاز طبیعی جهان و چهارمین ذخایر اثبات‌شده بزرگ نفت جهان را در اختیار دارد.
+ایران همچنین جمعیتی جوان و تحصیل‌کرده با بیش از ۹۲ میلیون نفر، پایه صنعتی متنوع و ظرفیت‌های بکر قابل توجهی در بخش‌هایی از پتروشیمی و معدن گرفته تا گردشگری و کشاورزی دارد.
+این منبع گفت صندوق سرمایه‌گذاری کاملاً جدا از مسیر موازی مذاکرات درباره رفع تحریم‌های آمریکا و آزادسازی دارایی‌های حاکمیتی ایران است که در خارج از کشور مسدود شده‌اند. او این دو را سازوکارهای مالی متمایز با اهداف و جدول زمانی متفاوت توصیف کرد.
+این صندوق تا زمانی که یک توافق نهایی و رضایت‌بخش حاصل نشود، ایجاد نخواهد شد و عملیاتی هم نخواهد شد. تفاهم‌نامه، پس از امضا، قرار است روند را طی ۶۰ روز آینده ساختاربندی کند.
+این منبع گفت: «این صندوق فقط زمانی ایجاد می‌شود که توافق نهایی امضا شده باشد. در طول این ۶۰ روز، مدیران صندوق با ایرانی‌ها و سرمایه‌گذاران کار خواهند کرد تا پروژه‌ها را برنامه‌ریزی و محدوده آنها را مشخص کنند.»
+وزارت خارجه ایران و وزارت خارجه پاکستان، که به میانجی‌گری در توافق مربوط به صندوق سرمایه‌گذاری کمک کرده بود، بلافاصله به درخواست‌ها برای اظهار نظر پاسخ ندادند.
+یک سخنگوی کاخ سفید به مصاحبه روز دوشنبه جی‌دی ونس، معاون رئیس‌جمهور، با شبکه سی‌بی‌اس اشاره کرد که در آن گفته بود ایران در صورت پایبندی به توافق با واشنگتن، از جمله برچیدن برنامه هسته‌ای خود، حذف ذخایر مواد غنی‌شده و پذیرش یک رژیم سخت‌گیرانه بازرسی و اجرای تعهدات، می‌تواند به یک صندوق بازسازی ۳۰۰ میلیارد دلاری با حمایت کشورهای خلیج فارس دسترسی پیدا کند.
+این منبع نگفت که صندوق چگونه یا توسط چه کسی اداره خواهد شد و یادآور شد که جزئیات کلیدی هنوز باید نهایی شود.
+این منبع از شرکت‌هایی از کره جنوبی، ژاپن، سنگاپور، مالزی و آمریکا به‌عنوان شرکت‌هایی نام برد که تعهداتی داده‌اند، اما از ارائه فهرست کامل خودداری کرد.
+تفاهم‌نامه ۶۰ روزه یک چارچوب است، نه توافق نهایی، و انتظار می‌رود مذاکره‌کنندگان آمریکایی و ایرانی در این دوره روی مسیرهای متعددی کار کنند که مسائل هسته‌ای، تحریم‌ها و امنیت منطقه‌ای را در بر می‌گیرد.
+reuters
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76430)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 22:32:39
+
+
+
+قرارگاه مرکزی خاتم‌الانبیا در اطلاعیه‌ای اعلام کرد که ارتش اسرائیل، طی دو روز گذشته پس از اعلام پایان جنگ از سوی ترامپ، «۸۴ بار آتش‌بس در جنوب لبنان را نقض کرده است.»
+قرارگاه خاتم‌الانبیا در ادامه این اطلاعیه هشدار داده چنانچه ارتش اسرائیل به حملات به جنوب لبنان پایان ندهد، باید «منتظر پاسخ سخت نیروهای مسلح جمهوری اسلامی» باشد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76429)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 22:32:39
+
+<img src="https://cdn4.telesco.pe/file/pDykJAPMZ2laKTl1ALSQXaCHNDZVbnM0GfpotzyLLb-DXqyR2QYB_0iOkYBvjoXeUk61766KF6UiNy5AXWXAhZHjuOsGcoCPW9aGDGtWDxGKm28dVvZ8iuUu0D7GnpkwaEo2ZrRj8FwK32hQba3jX7H_tpAd7T1cqb9MQxJi66rL0OjTtYRYnlvCoC5TwruvsLNkaXd6oJVN0B-8pDfkI64__blbIfXzTwfzuERvNyKOAVpumWnoZYu7g1HX-LgBMIWtYjwpPwjn5YuQx1Unyu6iuRTR_U-Vdj6psBuW6D5ULG-PflxYoJ5odqk-E6-Vh3kmTlEAs3pXEAPbqezphw.jpg" width="400"><br>
+
+طیبه نظری مکی آبادی، مادر دادخواه مریم آروین و از بازداشت‌شدگان مراسم هفتم خسرو علیکردی در مشهد، از سوی دادگاه انقلاب این شهر به پنج سال زندان محکوم شد.
+بر اساس حکمی که در تاریخ ۲۳ خرداد از سوی شعبه اول دادگاه انقلاب مشهد به ریاست قاضی غلامرضا اکبری مقدم صادر و به این شهروند ابلاغ شده، او بابت اتهام «اجتماع و تبانی علیه امنیت کشور» به چهار سال حبس و به اتهام «تبلیغ علیه نظام» به یک سال حبس محکوم شده است.
+طیبه نظری، مادر وکیل جوان، مریم آروین است که در جریان اعتراضات «زن، زندگی، آزادی» در سال ۱۴۰۱ در سیرجان به دلیل دفاع حقوقی از بازداشت‌شدگان دستگیر و مدتی پس از آزادی موقت، به طرز مشکوکی جان باخت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76428)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 22:32:39
+
+<img src="https://cdn4.telesco.pe/file/S7Ax0wv2yc2ixnaJJQ1t4ZWB0VFfeaIclWtZsCGSuvZ5wV4jjOLqTB3zdwcb5Qc4gEDadrodfVLeorty7Amn3dqKRpfpGFHHohJXOvotHXN0JUZbA7F0q7y68TZAhY7f-7uKjMpYtqOKOs2pEz9Q1H_Nwg8GGwQ3d0fO7sSEE5UyskMbhSz7a7RdM-Yytmg1Fqx5F8OelafCA9HTfcj8JhC7LFJrNfenKooHG0d_nztBvKYxtvaxwWygVtWWYfrCj2hnXLeoVFt9CqfkU9fm12Rw0nN-JWzbNMToA77VAUbnej-JWMX8XXV4ki7eIDqnhAKuXs66_xVQkuBTaP-bfg.jpg" width="400"><br>
+
+روزنامه وال‌استریت جورنال و خبرگزاری رویترز روز سه‌شنبه به شکل جداگانه و به نقل از منابع آگاه گزارش دادند که یادداشت تفاهمی که ایران و آمریکا به آن دست یافته‌اند، به ایران اجازه خواهد داد «بلافاصله» فروش نفت و دیگر فرآورده‌های نفتی خود را آغاز کند.
+منابع این دو رسانه گفته‌اند مفاد مربوط به لغو تحریم‌های فروش نفت ایران پس از امضای توافق در همین هفته اجرایی خواهد شد و خدماتی از جمله بانکداری، حمل‌ونقل و بیمه را که برای تسهیل این فروش‌ها لازم هستند، در بر می‌گیرد.
+وال‌استریت جورنال به نقل از این افراد گزارش داد که با اجرایی شدن این یادداشت تفاهم، موانع ناشی از تحریم‌ها بر صادرات نفت ایران و خدمات پشتیبان مرتبط با آن برداشته خواهد شد تا امکان انجام این معاملات فراهم شود.
+یک مقام آمریکایی نیز در گفت‌وگو با رویترز تأکید کرد که این توافق دارای شروطی مشخص است.
+او که به شرط ناشناس ماندن صحبت می‌کرد، گفت: «این یک توافق مبتنی بر عملکرد است. ایران تنها در صورتی می‌تواند از مزایای این یادداشت تفاهم بهره‌مند شود که به تمامی بندهایی که با آن‌ها موافقت کرده پایبند بماند؛ از جمله نداشتن سلاح هسته‌ای، خنثی‌سازی مواد غنی‌شده خود و عدم مداخله در جریان آزاد کشتیرانی در تنگه هرمز.»
+یادداشت تفاهم ایران و آمریکا که ۲۴ خرداد به صورت الکترونیکی امضا شد، قرار است روز ۲۹ خرداد در سوئیس با حضور مقام‌های ارشد دو کشور به شکل حضوری نیز امضا شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76427)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 22:32:39
 
 <img src="https://cdn4.telesco.pe/file/A7cMEwmd2cVKqiAhcmNeNamEdXJ3dZur_-ESYwbwiNAD-Ci4UTZiX2chGQI3RGXi9hna5I-sygvRWTruUwhJ1BwRgQPrBqHPVoYFTVFoRnzpxMhd3Vg0e9ANv6DB4PyDEoxzumegJsRGShP8e70H7r9ZqM9cp5mywkQDOb_LkRJ6CPGmKwFL1GjziWZEuKUzuNkhd0B0aLEzD0VgRFXnSvjDYrtg9qbExM7tJh8grYv1D3tQX0EOADQMhwaLAbCY_ERmxVWhpuzA5pn_PeOIv6GHgG_ts2XAQ_Irs4XMadh9tdyF4SJ86TGtmPMxaiUrqrKvJbNgTPaQMmSUNWJ5Vg.jpg" width="400"><br>
 
@@ -25,7 +116,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 18:58:34
+###### 🔵 Updated at: 2026-06-16 22:32:39
 
 <img src="https://cdn4.telesco.pe/file/Ix3AlqYI9_TxAsj9ycTkeWWqFWDRgkl7_UvvH6323IulcXGb6e4ISQ-ynDiLE02nXVzdh70AfG_1jfMdx4A-TQ2kihDQ13zGg1Vev71xlYPjpRL7yH9aL-LGrDiIaevtNL378AfE0jLOOlyqmoPvXK4vCg8Jyk8hLSJkH7IZhf-Gpq5XCCpz-Q0mjdwbUYjMB1Aoj9-Dau3KXSv9e4rOh9jcHgtNNETywr-XJ3AWSvYgjuuZ6jSkq9xxEBbjo1CF5wFn4HIq8juRY7DA9VhqT4D53ojC3hXKN9bGsaWjITDvrNAuhqg0hgKi7ete5cjNYliBALqbeeYtRW-WKip4WQ.jpg" width="400"><br>
 
@@ -39,7 +130,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 18:58:34
+###### 🔵 Updated at: 2026-06-16 22:32:39
 
 <img src="https://cdn4.telesco.pe/file/l_XJfkfvvGxZW2td20wTRDh-t5NwUIz4DVsJCwwCHcLRqL3NKWYwBt5Wif6NYIGJ5lta3kKDALzfGalzLnR-G4YdwcXJqnYgnRHG9EcBOztPLhAHY9lacPFcpJ-mVL7AqRvyWjIzZ6W4fFpmcs8TBcdvyPz2AIyVTNbpZ9RDcuv7mvalxCx1rP0ajvgcjVC0xd4BkKKAvyNtAyZIqJMvyr1SD7O0vsjvnSp0DGk1b57VTxhVpdUqwdEeeL2Lo-BYb6wqXQFGXQSQFWumcobhAHpFt2p7nVjGTYbLDcuoFcl0fL8KQqWJucZDOpxy2XDcqmeOjzQemEqAGwwYDZE7YA.jpg" width="400"><br>
 
@@ -55,7 +146,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 18:58:34
+###### 🔵 Updated at: 2026-06-16 22:32:39
 
 
 
@@ -74,7 +165,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 18:58:34
+###### 🔵 Updated at: 2026-06-16 22:32:39
 
 <img src="https://cdn4.telesco.pe/file/WphnJBdYa_C6BIgepgrpbhA2oWNOmNIqIfJ7bU3pqJNA8OWI2xSdId7AjBjAR2LXdIsrVpFdgkPDjfLKQzflXeUFeRpyBesCmtUvVeYVUh5iyzP6z1cIaUo1GX2GqcVHTpXshNJyujEiGcqQO-6SlLsb7cRi1JFvfmdmNntgr-kkJpEfy9ljZSlnYS6gsTGFOmyazFAOeI8lqhq-1r3mKB0wYDKPv6yhzAMFH3sAr-B7eSgjxCiHlnvmMd76wJ760MQLMA0aKyJdUqpsJFTedxGaZ54BrFD7FmowDMLdJSSsrGfFT6VodVcIrE7m-hyJ6CPMQGXtT7zlqzLIV9vBPQ.jpg" width="400"><br>
 
@@ -96,7 +187,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 18:58:34
+###### 🔵 Updated at: 2026-06-16 22:32:39
 
 <img src="https://cdn1.telesco.pe/file/fr23_bTjd7kkHtnzRj_zcGSOY3rvVq4agW4w10rW9dn68LPGNBRef-3ocXK_QJHPsgo5dolaCV78saNDZ-4dHUF59AMqYG5TF2SqNH4UN0P2JijyrHARagfCQ8-n8E4UpejKQrDfQ2bQ4d7P3tgWDFA363r6N4FfvBeTsCgKTU1zqyC76nmI3Hw_pqnu24RCsjUXQBHxGR81YTzBRqargw1cOfiR8PYUeYDNC23DT7bS5gaaeiyMrS8QFIgOuMlW46bSXHH1Kv8nK1wEconx58m-zCEZZkMY3rK9wC75dfqlbl9IqCqf73BGQkXTyHmUJ3ViB03vn3idxNgpION0Hw.jpg" width="400"><br>
 
@@ -110,7 +201,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-16 18:58:34
+###### 🔵 Updated at: 2026-06-16 22:32:39
 
 <img src="https://cdn4.telesco.pe/file/t4cA7U2LhbFNBpvubJvazzDaGkaiIeMD-B6syqrf6jpe-5ztv5LMeYuSfzK5T_k3UiQvT7YfSR2AStRAbjswEoynYCTOFzoYdRFF0x-7Hvmz-RK9UTAqVNqd1vCfRC9owOqB2ZF3w9U5rSGPzSLUuup6-pDWoV8gh2J08c7WU5Uee1YYjau0EeyVynjTTBaMyv4C6JIC9gT93rexikC8JKHeg3KttVwZhNibF2Xbb_0xk9H0HJC-q6aPqoAiMX313CX1Gvj0Er1hmjCLTgYEvzWfUpmQiyCmwATTOgjp6Ibek9pFpt54sn0wD9QwqbksSXFX5VgWsO2zcV6bLRmqkA.jpg" width="400"><br>
 
@@ -130,58 +221,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76411)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 18:58:34
-
-<img src="https://cdn1.telesco.pe/file/BgjpBR5FPNslkpso2PXePYXO4JblN4DysYp0obFR2sIDheUQShSE5ig-_aj6pDiXpKr11BoG3BSAgES_TA7VJTTiFtXQKsO0PfELahxlFKDbdzaQgtQCchZbCgFtqJhlpu9QLIyveqIovCxfIUxeq4-rUPhU9zlIfwhBVa4c3Y1w7EfehnGyXtY_Kmx6veqBzo4aAc-RsSre4eH1ZL8mhIJOpxwdzStPxyFbA8EFa1gMedpIYqi9PnwwT7aib9JwEMOPO2xTqKNPEV5vwX-itYx1OaTU4DICUusqqDPbNJZdlkDt4r1I-2r8UH0s4jp-95HFBIFA0balGZj9Ei9PAQ.jpg" width="400"><br>
-
-قوه قضائیه جمهوری اسلامی اعلام کرد که روز سه‌شنبه ۲۶ خرداد دو نفر دیگر از معترضان دی‌ماه پارسال در شاهرود اعدام شدند.
-خبرگزاری میزان، اسامی افراد اعدام‌شده را جواد زمانی و ابوالفضل ساعدی اعلام و گفته است که آن‌ها به اتهام «محاربه» و «افساد فی‌الارض» اعدام شدند.
-این نخستین مورد از اعدام معترضان در ایران پس از اعلام توافق تهران و واشینگتن برای پایان دادن به جنگ ۴۰ روزه است.
-در بیانیه رسمی قوه قضائیه، از قول محمدصادق اکبری رئیس دادگستری استان سمنان ادعا شده است که افراد اعدام‌شده «اقدام به تخریب و آتش‌زدن اموال عمومی و خصوصی، حمل و استفاده از سلاح سرد و گرم و اخلال در نظم و امنیت عمومی، اجتماع و تبانی علیه امنیت کشور و سایر اقدامات مجرمانه» در شهر شاهرود کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76410)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 18:58:34
-
-<img src="https://cdn1.telesco.pe/file/na4-mC3FoEv45PChInOVfH7pMt-72IfWrxC4LMB8JPwJUAyu923qisr8q4KDyZvTYYGnTZQ_1o4hyqRZB6hPmwAUJHI_WMeX0TbLlowqMw7IBBxRpD3AEVytyia0IncXV5cOJM4Zw64WkmsUCq7hCIwcu3RfJ-fEj61_K6XxPTzhQHYVi8v_d1Hd2rMRzjP5j71VA2-CiIouH80fju7oikDNltg_lqVwPciIHwSd5eQGTo6tskhnf9scIRSIGZ4vlJq5IEt26DCrjAvOAop863gB8zsyKLXxlwSIFrGANWdKwkgjqfen5M9o-HPMKRsRw4Yo8F0TpB-MqIDKdgvGyA.jpg" width="400"><br>
-
-مسابقه نخست تیم ایران در جام جهانی ۲۰۲۶ مقابل تیم نیوزیلند با نتیجه ۲-۲ پایان یافت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76408)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 18:58:34
-
-
-
-جی دی ونس معاون رئیس‌جمهور آمریکا ویدیویی منتشر کرده:
-رئیس جمهور از روز اول صریحاً گفته است: ایران هرگز سلاح هسته‌ای نخواهد داشت.
-بار دیگر، تلاش‌های رئیس جمهور ترامپ برای برقراری صلح، علیرغم تلاش‌های بی‌شمار افرادی که از آمریکا و رئیس جمهور ترامپ متنفرند، برای مردم آمریکا نتیجه داده است.
-JDVance
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76407)
 
 ---
 
