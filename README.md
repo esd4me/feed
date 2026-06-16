@@ -3,7 +3,158 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-16 13:59:30
+###### 🔵 Updated at: 2026-06-16 18:58:34
+
+<img src="https://cdn4.telesco.pe/file/A7cMEwmd2cVKqiAhcmNeNamEdXJ3dZur_-ESYwbwiNAD-Ci4UTZiX2chGQI3RGXi9hna5I-sygvRWTruUwhJ1BwRgQPrBqHPVoYFTVFoRnzpxMhd3Vg0e9ANv6DB4PyDEoxzumegJsRGShP8e70H7r9ZqM9cp5mywkQDOb_LkRJ6CPGmKwFL1GjziWZEuKUzuNkhd0B0aLEzD0VgRFXnSvjDYrtg9qbExM7tJh8grYv1D3tQX0EOADQMhwaLAbCY_ERmxVWhpuzA5pn_PeOIv6GHgG_ts2XAQ_Irs4XMadh9tdyF4SJ86TGtmPMxaiUrqrKvJbNgTPaQMmSUNWJ5Vg.jpg" width="400"><br>
+
+در پی
+آن گفته ترامپ
+:
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در شبکه ایکس نوشت گسترش توافق‌های ابراهیم و ایجاد ثبات و رفاه در خاورمیانه یکی از مهم‌ترین اهداف دونالد ترامپ است و این هدف زمانی محقق می‌شود که جمهوری اسلامی تضعیف شود یا رفتار خود را تغییر دهد.
+او افزود که امیدوار است مذاکرات پیش رو برای پایان دادن به برنامه هسته‌ای ایران موفق باشد.
+لیندزی گراهام اضافه کرد: «جمهوری اسلامی و نیروهای نیابتی آن به‌شدت تضعیف شده‌اند و توانایی آن‌ها برای رقم زدن رخدادی مشابه هفتم اکتبر دیگر وجود ندارد.»
+او ادامه داد: «اگر درگیری با جمهوری اسلامی به گسترش توافق‌های ابراهیم، همگرایی منطقه‌ای و صلح پایدار منجر شود، این نتیجه یکی از موفق‌ترین عملیات‌های نظامی در تاریخ آمریکا خواهد بود.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76426)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 18:58:34
+
+<img src="https://cdn4.telesco.pe/file/Ix3AlqYI9_TxAsj9ycTkeWWqFWDRgkl7_UvvH6323IulcXGb6e4ISQ-ynDiLE02nXVzdh70AfG_1jfMdx4A-TQ2kihDQ13zGg1Vev71xlYPjpRL7yH9aL-LGrDiIaevtNL378AfE0jLOOlyqmoPvXK4vCg8Jyk8hLSJkH7IZhf-Gpq5XCCpz-Q0mjdwbUYjMB1Aoj9-Dau3KXSv9e4rOh9jcHgtNNETywr-XJ3AWSvYgjuuZ6jSkq9xxEBbjo1CF5wFn4HIq8juRY7DA9VhqT4D53ojC3hXKN9bGsaWjITDvrNAuhqg0hgKi7ete5cjNYliBALqbeeYtRW-WKip4WQ.jpg" width="400"><br>
+
+پهلوان سازش ناپذیر
+@mananey
+مانا نیستانی
+
+[View Post](https://t.me/VahidOnline/76424)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 18:58:34
+
+<img src="https://cdn4.telesco.pe/file/l_XJfkfvvGxZW2td20wTRDh-t5NwUIz4DVsJCwwCHcLRqL3NKWYwBt5Wif6NYIGJ5lta3kKDALzfGalzLnR-G4YdwcXJqnYgnRHG9EcBOztPLhAHY9lacPFcpJ-mVL7AqRvyWjIzZ6W4fFpmcs8TBcdvyPz2AIyVTNbpZ9RDcuv7mvalxCx1rP0ajvgcjVC0xd4BkKKAvyNtAyZIqJMvyr1SD7O0vsjvnSp0DGk1b57VTxhVpdUqwdEeeL2Lo-BYb6wqXQFGXQSQFWumcobhAHpFt2p7nVjGTYbLDcuoFcl0fL8KQqWJucZDOpxy2XDcqmeOjzQemEqAGwwYDZE7YA.jpg" width="400"><br>
+
+ترامپ که پیش‌تر در پیام‌هایی خطاب به ایرانیان از «کمک در راه است» سخن گفته بود، اکنون در گفت‌وگو با مقام‌های قطر، کشته‌شدن معترضان را عمدتا به «گروه‌های قبلی» در جمهوری اسلامی نسبت می‌دهد و میان بخش‌های مختلف رژیم مرزبندی تازه‌ای می‌سازد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76416)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 18:58:34
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در حاشیه نشست سران گروه هفت (G7) در اویان فرانسه و در دیدار با امیر قطر، از رویکرد نظامی بنیامین نتانیاهو در قبال لبنان انتقاد کرد.
+ترامپ با اشاره به حمله هوایی اسرائیل به بیروت، درست دو ساعت پیش از امضای توافق آتش‌بس با جمهوری اسلامی ایران، آن را «کور و بی‌هدف» خواند و گفت: «به آن‌ها فهماندم که اصلا از این کار راضی نیستم. برای کشتن یک نفر لازم نیست یک آپارتمان را با خاک یکسان کنید؛ آدم‌های زیادی آنجا هستند که همه‌شان حزب‌الله نیستند.»
+رئیس‌جمهوری آمریکا با بیان اینکه اسرائیل زمان زیادی است که با حزب‌الله می‌جنگد و افراد زیادی کشته می‌شوند، پیشنهاد داد که کنترل این گروه به سوریه واگذار شود.
+ترامپ با تمجید از عملکرد احمد الشرع، رئیس‌جمهوری سوریه در ساماندهی سریع این کشور گفت: «او با مشارکت من و اردوغان روی کار آمد. او از حزب‌الله خوشش نمی‌آید و این کار را بهتر انجام می‌دهد؛ اگر اسرائیل نمی‌تواند بدون کشتن دیگران کار را تمام کند، سوریه این کار را خواهد کرد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76415)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 18:58:34
+
+<img src="https://cdn4.telesco.pe/file/WphnJBdYa_C6BIgepgrpbhA2oWNOmNIqIfJ7bU3pqJNA8OWI2xSdId7AjBjAR2LXdIsrVpFdgkPDjfLKQzflXeUFeRpyBesCmtUvVeYVUh5iyzP6z1cIaUo1GX2GqcVHTpXshNJyujEiGcqQO-6SlLsb7cRi1JFvfmdmNntgr-kkJpEfy9ljZSlnYS6gsTGFOmyazFAOeI8lqhq-1r3mKB0wYDKPv6yhzAMFH3sAr-B7eSgjxCiHlnvmMd76wJ760MQLMA0aKyJdUqpsJFTedxGaZ54BrFD7FmowDMLdJSSsrGfFT6VodVcIrE7m-hyJ6CPMQGXtT7zlqzLIV9vBPQ.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، در پاسخ به پرسشی درباره متحدان او که نسبت به چارچوب تفاهم با جمهوری اسلامی تردید دارند، از جمله لیندزی گراهام، سناتور جمهوری‌خواه، با لحنی طنزآمیز گفت: «لیندزی تردید دارد؟ باید با او صحبت کنم؛ دچار دردسر بزرگی می‌شود.»
+ترامپ سپس تلاش کرد نگرانی‌ها در میان هم‌حزبی‌های خود را کم‌اهمیت جلوه دهد و گفت گراهام «آدم خوبی» است و مشکلی با این توافق ندارد.
+او افزود: «این توافق یک موضوع مهم را به‌خوبی پوشش می‌دهد. ما بابت آن هیچ پولی پرداخت نمی‌کنیم.»
+رییس‌جمهوری آمریکا ادامه داد: «بازارها اکنون نسبت به زمانی که کار را آغاز کردیم در سطح بالاتری قرار دارند.»
+ترامپ گفت: «اختلاف فقط بر سر یک موضوع است؛ این‌که ایران هرگز سلاح هسته‌ای نخواهد داشت؛ هرگز، هرگز و هرگز.» او افزود: «بقیه مسائل اهمیتی ندارند.»
+@
+VahidOOnLine
+آپدیت:
+توییت گراهام
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76414)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 18:58:34
+
+<img src="https://cdn1.telesco.pe/file/fr23_bTjd7kkHtnzRj_zcGSOY3rvVq4agW4w10rW9dn68LPGNBRef-3ocXK_QJHPsgo5dolaCV78saNDZ-4dHUF59AMqYG5TF2SqNH4UN0P2JijyrHARagfCQ8-n8E4UpejKQrDfQ2bQ4d7P3tgWDFA363r6N4FfvBeTsCgKTU1zqyC76nmI3Hw_pqnu24RCsjUXQBHxGR81YTzBRqargw1cOfiR8PYUeYDNC23DT7bS5gaaeiyMrS8QFIgOuMlW46bSXHH1Kv8nK1wEconx58m-zCEZZkMY3rK9wC75dfqlbl9IqCqf73BGQkXTyHmUJ3ViB03vn3idxNgpION0Hw.jpg" width="400"><br>
+
+پیام‌های دریافتی درباره دو پست قبلی
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76412)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 18:58:34
+
+<img src="https://cdn4.telesco.pe/file/t4cA7U2LhbFNBpvubJvazzDaGkaiIeMD-B6syqrf6jpe-5ztv5LMeYuSfzK5T_k3UiQvT7YfSR2AStRAbjswEoynYCTOFzoYdRFF0x-7Hvmz-RK9UTAqVNqd1vCfRC9owOqB2ZF3w9U5rSGPzSLUuup6-pDWoV8gh2J08c7WU5Uee1YYjau0EeyVynjTTBaMyv4C6JIC9gT93rexikC8JKHeg3KttVwZhNibF2Xbb_0xk9H0HJC-q6aPqoAiMX313CX1Gvj0Er1hmjCLTgYEvzWfUpmQiyCmwATTOgjp6Ibek9pFpt54sn0wD9QwqbksSXFX5VgWsO2zcV6bLRmqkA.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهور ایالات متحده، روز سه‌شنبه اعلام کرد توافق صلح با ایران را برای «بررسی» به کنگره آمریکا می‌فرستد.
+او در جریان دیدار با محمد بن زاید آل نهیان، رئیس امارات متحده عربی، در حاشیه نشست گروه ۷ در فرانسه به خبرنگاران گفت: «هرگز به فرستادن آن فکر نکرده بودم، حتی یک بار هم به آن فکر نکرده بودم، اما این کار را خواهم کرد. آن را به کنگره می‌فرستم. از این ایده خوشم می‌آید.»
+برخی قانون‌گذاران جمهوری‌خواه پیش‌تر خواستار بررسی متن این توافق شده بودند.
+آقای ترامپ همچنین وعده داد که متن توافق با ایران را «ظرف یکی دو روز آینده» به‌صورت عمومی منتشر خواهد کرد و حتی این احتمال را مطرح کرد که کل سند را در برابر دوربین‌ها قرائت کند.
+او گفت که منتظر فراهم شدن یک «فضای رسمی» برای انتشار عمومی این متن است.
+رئیس‌جمهور آمریکا اعلام کرد: «دوست دارم ابتدا یک چارچوب رسمی برای این کار فراهم شود، اما هیچ مشکلی با انتشار آن ندارم؛ این یک سند عالی است.»
+او در ادامه افزود: «محتوای آن این است: ایران هرگز سلاح هسته‌ای نخواهد داشت.»
+ترامپ درباره مرحله بعدی مذاکرات با ایران که برای آن مهلتی ۶۰ روزه تعیین شده است، گفت: «فکر می‌کنم این روند خیلی سریع پیش خواهد رفت.»
+او افزود: «ایران می‌خواهد این موضوع را نهایی کند. آن‌ها باید به فعالیت‌های عادی خود بازگردند و روابط اکنون عادی‌سازی شده است؛ بنابراین فکر می‌کنم این روند خیلی سریع پیش خواهد رفت.»
+ترامپ در ادامه گفت: «ممکن است سریع‌تر پیش برود، ممکن است هم زمان بیشتری طول بکشد، اما می‌تواند خیلی سریع انجام شود.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76411)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 18:58:34
+
+<img src="https://cdn1.telesco.pe/file/BgjpBR5FPNslkpso2PXePYXO4JblN4DysYp0obFR2sIDheUQShSE5ig-_aj6pDiXpKr11BoG3BSAgES_TA7VJTTiFtXQKsO0PfELahxlFKDbdzaQgtQCchZbCgFtqJhlpu9QLIyveqIovCxfIUxeq4-rUPhU9zlIfwhBVa4c3Y1w7EfehnGyXtY_Kmx6veqBzo4aAc-RsSre4eH1ZL8mhIJOpxwdzStPxyFbA8EFa1gMedpIYqi9PnwwT7aib9JwEMOPO2xTqKNPEV5vwX-itYx1OaTU4DICUusqqDPbNJZdlkDt4r1I-2r8UH0s4jp-95HFBIFA0balGZj9Ei9PAQ.jpg" width="400"><br>
+
+قوه قضائیه جمهوری اسلامی اعلام کرد که روز سه‌شنبه ۲۶ خرداد دو نفر دیگر از معترضان دی‌ماه پارسال در شاهرود اعدام شدند.
+خبرگزاری میزان، اسامی افراد اعدام‌شده را جواد زمانی و ابوالفضل ساعدی اعلام و گفته است که آن‌ها به اتهام «محاربه» و «افساد فی‌الارض» اعدام شدند.
+این نخستین مورد از اعدام معترضان در ایران پس از اعلام توافق تهران و واشینگتن برای پایان دادن به جنگ ۴۰ روزه است.
+در بیانیه رسمی قوه قضائیه، از قول محمدصادق اکبری رئیس دادگستری استان سمنان ادعا شده است که افراد اعدام‌شده «اقدام به تخریب و آتش‌زدن اموال عمومی و خصوصی، حمل و استفاده از سلاح سرد و گرم و اخلال در نظم و امنیت عمومی، اجتماع و تبانی علیه امنیت کشور و سایر اقدامات مجرمانه» در شهر شاهرود کردند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76410)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-16 18:58:34
 
 <img src="https://cdn1.telesco.pe/file/na4-mC3FoEv45PChInOVfH7pMt-72IfWrxC4LMB8JPwJUAyu923qisr8q4KDyZvTYYGnTZQ_1o4hyqRZB6hPmwAUJHI_WMeX0TbLlowqMw7IBBxRpD3AEVytyia0IncXV5cOJM4Zw64WkmsUCq7hCIwcu3RfJ-fEj61_K6XxPTzhQHYVi8v_d1Hd2rMRzjP5j71VA2-CiIouH80fju7oikDNltg_lqVwPciIHwSd5eQGTo6tskhnf9scIRSIGZ4vlJq5IEt26DCrjAvOAop863gB8zsyKLXxlwSIFrGANWdKwkgjqfen5M9o-HPMKRsRw4Yo8F0TpB-MqIDKdgvGyA.jpg" width="400"><br>
 
@@ -19,7 +170,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-16 13:59:30
+###### 🔵 Updated at: 2026-06-16 18:58:34
 
 
 
@@ -31,262 +182,6 @@ JDVance
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76407)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-<img src="https://cdn1.telesco.pe/file/Ef6Em01JhumiRMKDA_xTvEklKgVzWKDjkNzL3fP5hAR4gI-HOzm4Yl5uHeAxnlOfWEupDIOzhiEGen2Fp4IdHHN2Q0UOGJ8lfCCmuva2dEv6vpyppqF7jn3VXPFCm3M3eZaFt-mUb8TYjjk80wPbo1TKlotw7mdHQ_0jiZ34d3MYzlE6rBaGabrTR3GYu8C9C63K391AJw-ITkQa3LudD8xG_fk8KtLeYvgLrXDPFtslsS___0SASAG3drw3_FXA4IWU3eARGb69kPS_tOSKWKZWmBjttyCY6vJTJSnuuEqMLwH3TLJYBgmT32cTPhJKyUEeWsU2oHqHRjfDsVy7ug.jpg" width="400"><br>
-
-پست ترامپ، ترجمه و توضیح ماشین:
-ایران موافقت کرده است که هرگز سلاح هسته‌ای نداشته باشد! همچنین، داستانی که می‌گوید آمریکا ۳۰۰ میلیون دلار به ایران پرداخت می‌کند، خبر جعلی است که دموکرات‌های احمق منتشر کرده‌اند!!!
-رئیس‌جمهور دی‌جی‌تی
-(عبارت «Dumocrats» ترکیبی تحقیرآمیز از
-Dumb
-و
-Democrats
-است؛ یعنی چیزی مثل «دموکرات‌های احمق»)
-realDonaldTrump
-البته حرف از سیصد «میلیارد» دلار بود نه میلیون. ترامپ هم پرداخت از سوی آمریکا رو تکذیب کرده ولی
-ونس هم نگفته بود که آمریکا قراره بپردازه
-.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76406)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-<img src="https://cdn4.telesco.pe/file/Vx77_MFz5TGOdoRSZTvQWgtpNSWaYym_3CzBXdqs9YXUij3PMcskL6pc3IdnTi4YvQqe5Nw6xVpsu3tjrBfO7oAjW74dN3dKBY0LgXY_tZp95owoj3HNoOuF4hpqUsvkPYsxXp2JXOlA2mJDDGX2NUs3xGDvbg5MeKuiIuT7hO31rFpSdNS-BfcUoLHfXBbNWbLcXgsXd-yKOdHjd3PFBu0HPUKzBBH4D0O5kODtPW-cd4k353sF0HSRgDPWeTivTUI3WdL-g7ZIwkq9BZlT3XikT7aYKiWwjctwWz-E5JsJ0rGfwmzWGUzTv55NHLHEHG_K9rDiOwnwtbEXb5UnyQ.jpg" width="400"><br>
-
-سه منبع مطلع که با خبرنگار اکسیوس گفتگو کرده‌اند، می‌گویند: جان رتکلیف، رئیس سازمان اطلاعات مرکزی آمریکا (سیا)، به دونالد ترامپ و دیگر مقام‌های ارشد دولت گفته است اطلاعاتی که چند نهاد اطلاعاتی آمریکا جمع‌آوری کرده‌اند، درباره آمادگی ایران برای ارایه امتیازهایی که واشینگتن در یک توافق نهایی هسته‌ای میان دو کشور خواستار آن است، تردید‌های جدی ایجاد کرده است.
-براساس این گزارش، رتکلیف تنها فردی نیست که در تیم ترامپ دچار تردید است. مارکو روبیو، وزیر خارجه آمریکا، و پیت هگست، وزیر جنگ، نیز در نشست‌های داخلی نگرانی‌ها و پرسش‌هایی درباره این توافق مطرح کرده‌اند.
-در مقابل، جی‌دی ونس، معاون رئیس‌جمهوری، و استیو ویتکاف و جرد کوشنر، نمایندگان آمریکا، از توافق حمایت کرده‌اند.
-به گفته دو منبع، ترامپ و تیمش اطلاعاتی را بررسی کردند که چند نهاد اطلاعاتی آمریکا جمع‌آوری کرده بودند و نشان می‌داد شیوه‌ای که مقام‌های جمهوری اسلامی در گفت‌وگوهای داخلی خود درباره توافق صحبت می‌کنند، با آنچه به میانجی‌ها و آمریکا گفته‌اند، همخوانی ندارد.
-به گفته دو منبع، رتکلیف و روبیو اعلام کردند که بر اساس همین اطلاعات، نسبت به این‌که حکومت ایران با اقدام‌های هسته‌ای مورد نظر آمریکا موافقت کند، تردید دارند.
-یکی از منابع مطلع گفت: «اطلاعات موجود نشان می‌دهد نیت‌های ایران با تعهداتی که در چارچوب توافق پذیرفته، همخوانی ندارد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76405)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-<img src="https://cdn1.telesco.pe/file/luSoKwqbBJDLFfKOQU_CrHhmlyHkYZmnY4eDfaJSKm0qymV96G15juJh_LYfep7lmiOwPWr-NlS6p3rKakkC2V3IwxTOZTUneh_lFnwRSiwGmDt6PgxZn-ppB50k8ujLKlW40gppHymUgTUD3IeaPdSIFhxuimCp_vIaGsPtMgSNKsEY1bXIxBZYAy16tYJFH1mZRTBd8UyzeU1u-EE-CGSgP01UO0Nt_XZCxBdrobUlODEBgNI7elyFcyvdvdfgyBTHgK2xb3Jn16iGQEf28E_Ta8pAJ48h5U3gIJGjYlQ95WMHtpYYl6cQQ6h25wGAXRnD1pMAZdTbi4TKceCPrw.jpg" width="400"><br>
-
-جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، روز دوشنبه در گفتگو با «سی‌ان‌ان» اعلام کرد که یادداشت تفاهم میان آمریکا و ایران سندی بسیار کلی و در حدود «یک صفحه و نیم» است.
-ونس با اشاره به اینکه این متن تنها یک چارچوب کلان را تعیین می‌کند، تاکید کرد که جزئیات مربوط به موضوعات مختلف باید در طول مرحله مذاکرات فنی آینده مشخص و حل‌وفصل شوند.
-به گفته او، این تفاهم‌نامه ساختاری را ایجاد می‌کند که بر اساس آن، ایرانی‌ها در صورت پایبندی به تعهدات خود، از مزایای این توافق بهره‌مند خواهند شد.
-معاون رئیس‌جمهوری آمریکا در بخش دیگری از این مصاحبه گفت که در همان «بند اول» این سند، انتظار واشنگتن مبنی بر تعهد ایران به «صلح و ثبات منطقه‌ای» به صراحت مطرح شده است.
-او تصریح کرد که بر اساس این بند، همان‌طور که ایالات متحده به صلح متعهد است، تهران نیز متعهد می‌شود که تامین مالی سازمان‌های تروریستی خشن و دامن زدن به بی‌ثباتی در منطقه را به طور کامل متوقف کند.
-@
-VahidOOnLine
-جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، در گفتگو با «سی‌ان‌ان» ضمن تکذیب گزارش‌های مربوط به آزادسازی زودهنگام اموال ایران گفت: «تا این لحظه حتی یک دلار از دارایی‌های مسدود شده ایران آزاد نشده و هیچ‌گونه کاهش تحریمی از سوی ایالات متحده یا شرکای ما در خلیج‌فارس صورت نگرفته است.»
-ونس با اشاره به گزارش‌های نادرست در این زمینه افزود: «تندروها و برخی عناصر در داخل ساختار سیاسی ایران، برای متقاعد کردن افکار عمومی خود، دستاوردهای تهران از این توافق را بزرگ‌نمایی می‌کنند، بدون اینکه به تعهداتی که ایران برای کسب این امتیازات باید به آن‌ها تن بدهد، اشاره‌ای کنند.»
-معاون رئیس‌جمهوری آمریکا با تاکید بر اینکه این توافق در صورت اجرا شامل یک بسته کاهش تحریمی بسیار بزرگ برای مردم ایران خواهد بود، تصریح کرد: «این تفاهم‌نامه نحوه تعامل ایران با جهان و منطقه را به طور اساسی تغییر می‌دهد، اما تهران تنها زمانی از این مزایا بهره‌مند خواهد شد که به تمامی تعهدات خود عمل کند.»
-او در پایان به مخاطبان توصیه کرد که نسبت به بیانیه‌های تبلیغاتی و پروپاگاندای حکومت ایران بدبین باشند و تاکید کرد که بهره‌مندی از این فرصت بزرگ، کاملا به پایبندی عملی ایران به وعده‌هایش بستگی دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76403)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-<img src="https://cdn1.telesco.pe/file/Za3NNrJU9RP12LEBpz54KV4R-a0ibQiB6B1HHiR_HgyRUD9ptljlpLZhmmdFDtDBkJVK46BqHEe3ZDeP6M2H2o6Im_i_mw0EcsYBptL1j6JWnEgm2wZbg4b2NQ1fdWbe5St3kBzJmkck5ynE0nGLmVWuSugQK7jjS_bxt3ui8JN5LX_cXevsJI9X8hD81DRJ7WN61sJj-uxfHhlMbM2GFvtHDYoBptS-W449xuaaQ30BuEGG02IQzcXv3VIJyaM-3YObu-_KriEY4xEjN6klKrUXfeyUOSxB6TuoqtKPbJd9pZ8YcCK5DOcSMkkb0mF_BAhryj6eJQxrHKWfuu00-g.jpg" width="400"><br>
-
-خبرگزاری مهر:  منابع محلی از شنیده شدن صدای انفجارهایی در مناطق جنوبی جزیره قشم و تنگه هرمز خبر می‌دهند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76402)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-<img src="https://cdn1.telesco.pe/file/OMVVGf5fymJHrOlPl7J6YerdAHEIMM56G0bkK4JexeDX6A19cs7quUNx6zHC7wHFHXhuq55z0gUWBbiD46pJAd46YyQnDFCMFPlQMaFWYHp0N4TlhVDUvAZCVBmuB6bIQZPPn0Rvfk3L59cinTB3pyWZcC6s4pFvXxWUGQBzPGWczvonx1KOcSQGHkDp0S4bmUkxGIP9N5joWcDyNikSJdsC4Zv-Y4JFvEhtjmnESQ1NhgLtJ-jqm-IeRxQ5ZHPyedy3BttV6quK_yAIgzVJMP0Ae-UWselEhBcmpjjuXP2Kn-ytuFAhG9GJnBNOJCe6p6CFIWEHJWGwn2DMhqw3VQ.jpg" width="400"><br>
-
-خبرگزاری تسنیم، وابسته به سپاه پاسداران، نوشت: رفع محاصره دریایی عملیاتی شد و ۳ نفتکش و ۲ کشتی حامل کالای اساسی جمهوری اسلامی از محاصره دریایی عبور کردند.
-پیش‌تر ‌‌ارتش آمریکا در یک یادداشت هشدار اعلام کرد که محاصره بنادر ایران تا زمان تکمیل یک توافق آتش‌بس با این کشور که برای ۱۹ ژوئن (۲۹ خرداد) برنامه‌ریزی شده است، همچنان برقرار است.
-@
-VahidOOnLine
-بر اساس گزارش فارس، دیگر خبرگزاری وابسته به سپاه، یک نفتکش غول‌پیکر ایرانی (VLCC) به همراه یک کشتی حامل نهاده‌های دامی با گذر از منطقه محاصره در آب‌های آزاد به سمت بنادر ایران حرکت کرده‌اند؛ هم‌زمان یک نفتکش دیگر نیز با عبور از دریای عمان و خط محاصره، مسیر خود را به سمت مقصد صادراتی پیش گرفته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76400)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-
-
-پیام‌های دریافتی نیم‌ساعت پیش:
-صدای انفجار سیریک ولی با فاصله تقریبا دور
-سلام وحید
-۲۳:۵۷ دوشنبه ۲۵ خرداد قشم
-خودم یه انفجار و موج رو حس کردم، اما بچه‌ها میگفتن دوتا بوده و قبلش هم حس شده، جایی که من هستم نزدیک تنگه است، شاید از روی دریا بوده
-۰۰:۰۴ سه‌شنبه ۲۶ خرداد
-مجدد دوبار احساس شد
-سلام وحید خوبی
-ساعت ۱۲ و ۵ دقیقه سمت سیریک صدای انفجار از سمت دریا اومد
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76399)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-<img src="https://cdn1.telesco.pe/file/HntGbkvcHHjD7eRDd-Z3JQprMS7KX7DgF5CKmevhAe9kZDicP3YUVcfmLTCiusQnV0MKnO1lrSeRS8lX3T8nnDcjc--vn2hDzG4Fb-B6Tyi2rXe5mDgZXIXuWYVd4RVSsXJqjSxrwWxFl23EwQdXBugbDrZgBQarfuLGSaYlG8CqLTE_aPu63z6viEKCmK6QZqUyC0ZRTL-EhBNYurJ2eEZKXPavqSrKJMqVQVVNrx_wxptsVo0QLbMrMm67YKQqmRaaaqxdtX5ualO0w7sAeoJgoYhzXUWINYiRBkxGOQENIOVF8G96a5EN693eJ-XzhAjoNbbC4Blp-FqwdROXfQ.jpg" width="400"><br>
-
-پایگاه نیروی هوایی ادواردز آمریکا اعلام کرد یک بمب‌افکن بی-۵۲ روز دوشنبه ۲۵ خردادماه در ایالت کالیفرنیا سقوط کرده است.
-بر اساس بیانیه منتشرشده از سوی این پایگاه، هواپیما «اندکی پس از برخاستن» از باند فرودگاه پایگاه ادواردز و در ساعت ۱۱:۲۰ صبح به وقت محلی دچار سانحه شد.
-در این بیانیه آمده است: «تیم‌های امدادی بلافاصله به محل حادثه اعزام شدند و عملیات امداد و بررسی همچنان ادامه دارد.»
-مقام‌های آمریکایی تاکنون جزئیاتی درباره علت سقوط، سرنوشت خدمه یا میزان خسارات احتمالی منتشر نکرده‌اند.
-«بی-۵۲ استراتوفورترس» یکی از مهم‌ترین بمب‌افکن‌های دوربرد نیروی هوایی آمریکا است که از دهه ۱۹۵۰ در خدمت ارتش این کشور قرار دارد و توانایی حمل تسلیحات متعارف و هسته‌ای را دارد.
-@
-VahidOOnLine
-آپدیت:
-هر هشت سرنشین آن جان باختند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76396)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-
-
-"خون آقامون رو چند فروختید؟"
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76395)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-
-
-عراقچی:
-قرار است روز جمعه در کشور سوئیس که محل دقیق آن مشخص خواهد شد، یک دیداری بین هیئت‌های دوطرف انجام شود، که در آن روسای هیئت‌های دو طرف ابتدا این یادداشت تفاهم را امضا کنند و پس از آن اولین دور مذاکرات بعدی را داشته باشیم.
-محمدباقر قالیباف، رئیس مجلس شورای اسلامی نیز در واکنش به امضای تفاهم‌نامه توقف مخاصمه خطاب به مردم این کشور گفته است: «با مقاومت تاریخی شما و رشادت نیروهای مسلح دربرابر آنان که قصد جان این ملت و نابودی و تسلیم این مملکت را کرده بودند، ایران گامی بلند به سوی پیروزی نهایی برداشت. می‌خواستند و نتوانستند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76394)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-
-
-جی‌دی ونس، معاون رئیس‌جمهور آمریکا، در گفتگو با شبکه سی‌بی‌اس اعلام کرد ایران در صورت پایبندی به تعهدات خود ممکن است به صندوقی برای بازسازی دسترسی پیدا کند که از سوی کشورهای حاشیه خلیج فارس تأمین مالی خواهد شد.
-ونس با اشاره به مزایای احتمالی توافق برای تهران گفت ایران «ممکن است» حدود ۳۰۰ میلیارد دلار منابع مالی برای بازسازی از کشورهای خلیج فارس دریافت کند، اما تحقق این امر را منوط به اجرای کامل تعهدات جمهوری اسلامی دانست.
-او افزود آمریکا با سرمایه‌گذاری کشورهای حاشیه خلیج فارس برای بازسازی ایران موافق است، اما این اتفاق تنها زمانی رخ خواهد داد که ایران به برنامه هسته‌ای خود پایان دهد، فعالیت‌های مربوط به مواد غنی‌شده را متوقف کند و با یک نظام بازرسی و نظارت گسترده موافقت کند.
-معاون رئیس‌جمهور آمریکا همچنین تاکید کرد رسانه‌های نزدیک به حکومت ایران بر مزایای توافق تمرکز خواهند کرد، اما از امتیازاتی که تهران باید در مقابل واگذار کند کمتر سخن خواهند گفت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76392)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-<img src="https://cdn1.telesco.pe/file/PqUe-DkQkZQZf1ZqB8v9Rc5cus2VO8-ptIlcKlsPA9jtol0PqEPLiGOYpGW5pJo8NODZmbQ7QqfGpW1XvKLnE6M7mYVjfOek0BDd4klHt3kA5EXoKegwTAGHIN_a6Orc3Svz7dqWnNxJ7UAW83JtDI9PVszmY5uGrSNuXhPHfnmwNjHrgdTevZl5CflR7pfi2JAEXmEDa04b4xcSKazs9Kkiu-qYFDW44p31b8-98Jg3NG5CSofTuaj9jnM15hkklgfE0iSdkAkaNF7VvKWnmtDlJ3uQESe1dRrlBKfVZVRd8BM3yxWkou3LUdLbZ_EA4aJ2RKM2IUUmOrBVtjV2TA.jpg" width="400"><br>
-
-❌
-ویدیوی قدیمی منتسب به تیراندازی به هواداران حکومت در تجمع شبانه
-🔹
-ویدیویی در شبکه‌های اجتماعی منتشر شده که ادعا می‌کند صحنه تیراندازی به مخالفان توافق با آمریکا در تجمعات شبانه هواداران حکومت ایران را نشان می‌دهد.
-🔹
-این ویدیو قدیمی است و ارتباطی به تجمعات شبانه هواداران حکومت در ایران ندارد.
-🔹
-ویدیو مربوط به دهم اسفند ۱۴۰۴ و برخورد پلیس عراق با هواداران جمهوری اسلامی است که سعی داشتند به سفارت آمریکا در بغداد نزدیک شوند.
-🔹
-گزارش‌هایی از تجمع مخالفان توافق جمهوری اسلامی با آمریکا منتشر شده اما خبر تیراندازی به آنها در هیچ منبع رسمی منتشر نشده است.
-🔹
-این ویدیو پیش‌تر نیز با ادعای نادرست دیگری به اعتراضات دی ۱۴۰۴ منتسب شده بود.
-🔹
-بنابراین فکت‌نامه به ادعای مطرح‌شده درباره این ویدیو نشان
-«نادرست»
-می‌دهد.
-👈
-در فکت‌نامه بخوانید
-🌐
-@Factnameh
-
-[View Post](https://t.me/VahidOnline/76390)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-16 13:59:30
-
-
-
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، اعلام کرد نیروهای اسرائیلی در آنچه «مناطق امنیتی» در غزه، لبنان و سوریه خواند، تا زمانی که برای تأمین امنیت اسرائیل ضروری باشد، باقی خواهند ماند.
-بنیامین نتانیاهو، نخست وزیر اسرائیل، روز دوشنبه در یک کنفرانس خبری تأکید کرد که به‌رغم امضای تفاهم‌نامه میان ایران و آمریکا، چالش کشور اسرائیل به پایان نرسیده و «ما باید گوش به‌زنگ بمانیم و در مواقع لزوم از خود دفاع کنیم».
-به گفته دولت آمریکا، جمهوری اسلامی در قالب تفاهم‌نامه‌ای که روز یک‌شنبه امضا شد تعهد داده است که هرگز به دنبال سلاح هسته‌ای نرود.
-نخست وزیر اسرائیل در ادامه سخنان خود تأکید کرد که «با یا بدون توافق، ایران هرگز به سلاح هسته‌ای دست نخواهد یافت».
-نتانیاهو در نشست خبری خود همچنین گفت که حملات مشترک در کنار آمریکا به ایران خساراتی سنگین وارد کرده و به گفته او «بعضی معتقدند که خسارت اقتصادی به ایران یک تریلیون دلار بوده است».
-او در ادامه گفت:
-ما به مردم ایران قول دادیم که شرایطی را فراهم آوریم که رژیم آیت‌الله سرنگون شود، نمی‌دانم چه زمانی این اتفاق خواهد افتاد، ولی خواهد افتاد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76389)
 
 ---
 
