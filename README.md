@@ -3,11 +3,13 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn1.telesco.pe/file/M5oTiLT7gODXXphERZI1zO5aHI1hVkWaT31DSe9sOB5n0ZpPW74QMjKlJccdC61Mw--PFQsxb_9wCFq8X7UvrLR1ToULFuza6dfd7VGSZDEZX10s7UUcDahae0ikFjXlw0SHGCWJAXx1a3KVwsevcZVnyaDLd88KyuFJ0NUClmzI5SOuXTTpNaxKB6ySfr6zP5Bp6uRwAMiG6LDlMzFsIXEDsEOk6f9GoouxZu4yJPO9tpIJJIvSBq50Irtu_Ki5NQ40DHmvhD-ZQMN8brik5e3LYPjODVA1NaERLn9kH-GZZ1zP7TN73cvqT1LOjbB7fR01GFzVeHBIei5lVHeQkQ.jpg" width="400"><br>
 
-دارا خسروشاهی، مدیرعامل ایرانی‌-آمریکایی شرکت اوبر، در استادیوم سوفای لس‌آنجلس در جریان دیدار تیم‌های ایران و نیوزیلند در جام جهانی ۲۰۲۶
+تصویری که در شبکه‌های اجتماعی
+منتشر
+شد، دارا خسروشاهی، مدیرعامل ایرانی‌-آمریکایی شرکت اوبر، را در استادیوم سوفای لس‌آنجلس و در جریان دیدار تیم‌های ایران و نیوزیلند در جام جهانی ۲۰۲۶ نشان می‌دهد.
 @
 VahidOOnLine
 📡
@@ -19,7 +21,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn1.telesco.pe/file/axa053L9llE_BEkbP5hocbW3a1FogKyqTyLLi6EqS6NgEKN19iPHy65xTqB4wZ0hkFSbYS4pJFYwRte8XMkm729Pm47VISz17RzPxIu9tvYkERHRzB0_-ACmaZLc62p3CGmuIr7dHu9pkdL-Uo9LwUx4e6xyddK4bBk1quBzhNLA4F_Z5y2DaY-jPvHhk1ghOR6JLZKTKg9BMDiEpF5NsKa5p29mzvHNfyMpQZB0zfXohJYDdTM8Rn3oNwV_c-LNzDnzQPWV6nOVaMDBFVtYWiWBTWC0jmJNTbfL8Bm_okGJ1-NmkMXcURSRXpiMoZjEvBPXT7DdqmPCyE7KtcIRHw.jpg" width="400"><br>
 
@@ -44,7 +46,7 @@ srfnews
 
 
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn1.telesco.pe/file/PEa3McX-bih1L6WRnAsXDP8BoyPl112yUuYBqTru-8DaCzYG-3LE4NotDO3wWEfzDb_U5plyaw-FnFK4EmiOART18yu8EjK2VfOw6uokDQQl_dpl5yQKyTd7ZPN8YuVOLFtFECNx7MAMxk_KGiEOjEOmAPzimb6NUs-DK0Jxw3bkYIFSS6-yyucIZbN702ak-RXCt6tQMEl_VOb3zL6Nn49jSdbZ1_rhiJHvfcEc0HRfXjaN66gPNw0_X2GYAhgOSz_tFWU3QBcbA1E7cs86byGYLgySFrPkfVkHHsLoM2lMkA4sCNTovTAaxFspbAgijhfYWuWSDjYmCP7YK-j1KA.jpg" width="400"><br>
 
@@ -79,7 +81,7 @@ reuters
 
 
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn1.telesco.pe/file/V4wjPH8Omsz8Zf2PwfFHeZs7B0H2N-4-JsnT9kD4hFfVarEOUctuKsZvtqAwr2lGEIbMhoAGADTYcdcX9mbknfiAUei94E36O00H3GXFaVbnYHeCTB7RGOLKetU6-kXrItnQ4pm2AgO86KQ-YpDLmt2OEURQO84CTUTPJotg75hjMLta4m2SEX0ghQNc1UykzVsbJKgJMIgWBjeRABRGORyuJkYRJj2XhIuM0GjAvIrRkO-M_ccaWipISib_ExBXKju2ah3M58z61roP21MDsh6z2wOkjZSJPHFJP4X5lR_HlXJ_MgZSobAZsPLipTEIdf7x7iDM7jh6z5VVP9IDPA.jpg" width="400"><br>
 
@@ -101,7 +103,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn4.telesco.pe/file/pDykJAPMZ2laKTl1ALSQXaCHNDZVbnM0GfpotzyLLb-DXqyR2QYB_0iOkYBvjoXeUk61766KF6UiNy5AXWXAhZHjuOsGcoCPW9aGDGtWDxGKm28dVvZ8iuUu0D7GnpkwaEo2ZrRj8FwK32hQba3jX7H_tpAd7T1cqb9MQxJi66rL0OjTtYRYnlvCoC5TwruvsLNkaXd6oJVN0B-8pDfkI64__blbIfXzTwfzuERvNyKOAVpumWnoZYu7g1HX-LgBMIWtYjwpPwjn5YuQx1Unyu6iuRTR_U-Vdj6psBuW6D5ULG-PflxYoJ5odqk-E6-Vh3kmTlEAs3pXEAPbqezphw.jpg" width="400"><br>
 
@@ -119,7 +121,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn4.telesco.pe/file/S7Ax0wv2yc2ixnaJJQ1t4ZWB0VFfeaIclWtZsCGSuvZ5wV4jjOLqTB3zdwcb5Qc4gEDadrodfVLeorty7Amn3dqKRpfpGFHHohJXOvotHXN0JUZbA7F0q7y68TZAhY7f-7uKjMpYtqOKOs2pEz9Q1H_Nwg8GGwQ3d0fO7sSEE5UyskMbhSz7a7RdM-Yytmg1Fqx5F8OelafCA9HTfcj8JhC7LFJrNfenKooHG0d_nztBvKYxtvaxwWygVtWWYfrCj2hnXLeoVFt9CqfkU9fm12Rw0nN-JWzbNMToA77VAUbnej-JWMX8XXV4ki7eIDqnhAKuXs66_xVQkuBTaP-bfg.jpg" width="400"><br>
 
@@ -140,7 +142,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn4.telesco.pe/file/A7cMEwmd2cVKqiAhcmNeNamEdXJ3dZur_-ESYwbwiNAD-Ci4UTZiX2chGQI3RGXi9hna5I-sygvRWTruUwhJ1BwRgQPrBqHPVoYFTVFoRnzpxMhd3Vg0e9ANv6DB4PyDEoxzumegJsRGShP8e70H7r9ZqM9cp5mywkQDOb_LkRJ6CPGmKwFL1GjziWZEuKUzuNkhd0B0aLEzD0VgRFXnSvjDYrtg9qbExM7tJh8grYv1D3tQX0EOADQMhwaLAbCY_ERmxVWhpuzA5pn_PeOIv6GHgG_ts2XAQ_Irs4XMadh9tdyF4SJ86TGtmPMxaiUrqrKvJbNgTPaQMmSUNWJ5Vg.jpg" width="400"><br>
 
@@ -162,7 +164,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn4.telesco.pe/file/Ix3AlqYI9_TxAsj9ycTkeWWqFWDRgkl7_UvvH6323IulcXGb6e4ISQ-ynDiLE02nXVzdh70AfG_1jfMdx4A-TQ2kihDQ13zGg1Vev71xlYPjpRL7yH9aL-LGrDiIaevtNL378AfE0jLOOlyqmoPvXK4vCg8Jyk8hLSJkH7IZhf-Gpq5XCCpz-Q0mjdwbUYjMB1Aoj9-Dau3KXSv9e4rOh9jcHgtNNETywr-XJ3AWSvYgjuuZ6jSkq9xxEBbjo1CF5wFn4HIq8juRY7DA9VhqT4D53ojC3hXKN9bGsaWjITDvrNAuhqg0hgKi7ete5cjNYliBALqbeeYtRW-WKip4WQ.jpg" width="400"><br>
 
@@ -176,7 +178,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-17 01:15:57
+###### 🔵 Updated at: 2026-06-17 02:44:20
 
 <img src="https://cdn4.telesco.pe/file/l_XJfkfvvGxZW2td20wTRDh-t5NwUIz4DVsJCwwCHcLRqL3NKWYwBt5Wif6NYIGJ5lta3kKDALzfGalzLnR-G4YdwcXJqnYgnRHG9EcBOztPLhAHY9lacPFcpJ-mVL7AqRvyWjIzZ6W4fFpmcs8TBcdvyPz2AIyVTNbpZ9RDcuv7mvalxCx1rP0ajvgcjVC0xd4BkKKAvyNtAyZIqJMvyr1SD7O0vsjvnSp0DGk1b57VTxhVpdUqwdEeeL2Lo-BYb6wqXQFGXQSQFWumcobhAHpFt2p7nVjGTYbLDcuoFcl0fL8KQqWJucZDOpxy2XDcqmeOjzQemEqAGwwYDZE7YA.jpg" width="400"><br>
 
