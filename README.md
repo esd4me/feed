@@ -3,7 +3,42 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
+
+
+
+"متن کامل یادداشت تفاهم اسلام‌آباد بین جمهوری اسلامی ایران و ایالات متحده آمریکا"
+به نقل از منابع حکومتی:
+https://telegra.ph/mou-06-17-2
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76458)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-17 23:19:23
+
+<img src="https://cdn4.telesco.pe/file/m41zDE-9CfWXx_zTCJvkSA2DzT-eBj5ubHeSSXS0ZB0h16EU4hMcrcbvypSbvEvKB8qvuIZcsrtjqy0wOcn1Sebz-UBkUYN2ID-fW2jSY7vgBPVt0ANNfEXxLdc6Sh8fgyqDX8OEcYDXBwg8ixnG9fLZvaeDe2FtQAZDJ99nRFZeJri4JsmNwDosbx3vpF5qPTyzgz7VIqDauSqk5y2n7yEoqVy40L-Jg2hNMUTDOzonzQEQw5eGoTDzs6G-7gPtwPCPTWTOdUEH9dx6373iMHRCTeIazAZVJw8jZraz4rKH7oM5bfseYjS983Ai82N70Rz2lHcrAcSASRmFEFVCMg.jpg" width="400"><br>
+
+سخنگوی وزارت خارجه جمهوری اسلامی روز چهارشنبه از احتمال امضای توافق پایان جنگ توسط روسای جمهوری ایران و آمریکا خبر داد و گفت این مسئله «در حالی بررسی است».
+به گزارش رسانه‌های نزدیک به حکومت ایران، اسماعیل بقائی درباره احتمال امضای یادداشت تفاهم از سوی مسعود پزشکیان و دونالد ترامپ اعلام کرد: «این ایده مطرح است و همچنان در حال بررسی است.»
+پیش از این طرف‌های ایرانی و آمریکایی خبر داده بودند جی‌دی ونس، معاون رئیس‌جمهور آمریکا، و محمدباقر قالیباف، رئیس مجلس شورای اسلامی، در سوئیس این تفاهم‌نامه را امضا خواهند کرد.
+دولت سوئیس تأیید کرد مراسم امضای این تفاهم در اقامتگاه کوهستانی بورگن‌اشتوک برگزار خواهد شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76456)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 
 
@@ -117,7 +152,7 @@
 بله، من این ایده را دوست دارم. فکر می‌کنم ایده خوبی است.
 📡
 @VahidOnline
-بخش‌های بالا رو من انتخاب نکردم. هم‌زمان با حرف‌هاش از منابع خارجی با ترجمه ماشین گذاشتم. تلاش می‌کنم ویدیوی کاملش رو با زیرنویس فارسی بگذارم.
+بخش‌های بالا رو من انتخاب نکردم. هم‌زمان با حرف‌هاش از منابع خارجی با ترجمه ماشین گذاشتم.
 
 [View Post](https://t.me/VahidOnline/76455)
 
@@ -125,7 +160,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn4.telesco.pe/file/U4qr1TB_eZ3XVabcm-00QywaYCDvZZU_xzxMt9qMWKKC6kAM7EqSW0QKrc0JIvgMWc14pfotDkESHsCwDDYTT5P2yOpq0cFypAOF2nKNDuVB63NJWXewShrQgJNH9kLQQD40kbcTfikSp1cE8OXaG9Y9_K0zB-1lppa6y1OxHsJcuYzuJ_-bTSYyBuJ-05mIhHSJ3j8pmg0_EAyZbKDT1pkop75R_zrUJtcOXqh4C2NEdnX_vFco_Dw72jzVxOwJd2hGdIVIfZ_6qAx5WIbjzqZsIduzhSIjcCWvcCdwpwJFhUEZiE9FkI7cKi15WM76Auqyy-7F1GRcRm3OovE9bg.jpg" width="400"><br>
 
@@ -145,7 +180,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn1.telesco.pe/file/eIQ-7DF2bDE6Tk2gRkl-r3zKqMzo2cQt4gyCFw1okrzuTwZzG-GrUVOpBEAz4t13cCzicYvTpUnIATGWxu7HmVIWOVj1zt7Zf9w0BJ21Nho9SjqKtMfGvRxp8s3iffuy7ck19ke42duH8UPsy47ktL9K9nVL-mKaCKUnrGJahGA4VtDZkYaVEPKKDtd9OtP-qLbeF26FvrAWYgLBTL3P0PtHrICaHdSR_5yApDDMJm2I8CD66W4akAPzHX2KkR_KpGwLAauhP0-Up-C2h91q3gE9UI29ZiB1dUrjMGdYZZTbOvzWVq9Hp1c47r-GMjBgt4EeyAbGpEpqSzU2gcBpNg.jpg" width="400"><br>
 
@@ -175,7 +210,7 @@ axios.com
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 
 
@@ -201,7 +236,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn1.telesco.pe/file/RSHQXGvqaC5SlqamT_G7kqqMr2AstMdgFg_7FzLGwcQQWTEo2E7EFa_e1uZSe1D57gghfIgok6Np5RynYySIuVymVGmKTJNhXu6d8G03iEK7VPRdEtzwdC9Dd97Qhnjq-6je4r_dxW5_rZ0vR-bsbF2LENKfFIxqB3aFIs4gFSwo7PGhXsEJTd3rBMd7OKMhQf5oxoFSsDr2kzNNNDVMmRI3BOdVG6GebLO_FxW4iIE74TG8EF_iemonoPxxH7I7Sc2Vn_brcm1Hofg55XDNR4iC_ENOORzSAfxmDyDhBBizuNQeOWtVOvvYr17I-qRt8PWlx6lSg3aF_wzzg2VPhg.jpg" width="400"><br>
 
@@ -220,7 +255,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn4.telesco.pe/file/Sm5xA379S8Gs__i9wdjQNTiUMjffd569JYl__HiAqJGRIlT9RSI3ffPolN65NzXPN4nSLWka4d0l-bHdGctv2XoG2dUooX8BpeDiPMaV7Sj2iQxubd35mr123CzXhV58p2qZqzyaOIjkxSrbBL_-eQYii1WdSPXXLWyKTjzNqaEwjZLFX8i2Qf6pcRyWJZMljWtGdqk8yZGcH7OBXFMmvgmoaeGgeCd0jhwc0feO1HvYIHfvvequWsKxaQWqtWRcGw2q4s4htreeRvYCYmQ2NQcfkl_vrcolIPfSNzLhtDEX-Yhedy49UhwdsDr-6R2_jKAKyfebZsDxvafY42pt-w.jpg" width="400"><br>
 
@@ -238,47 +273,11 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
-<img src="https://cdn1.telesco.pe/file/V6R9kJO19kavBSniaF-aPAbBNne0j2gIT0CvcPrKPhQzbTBPzCG6SnmjPL6JngmnlAK0OdzvKcLEO9ZCZxo0B5-Sj96V_IM6Xdw3IZB8jHk9t7yULT63l9sZl6_jalt0rEN-hnpB3CD6giAswTfnPI_t0xe6T_2YSbuUQl37K1XvMQmigel5-4br1XTcS50gSTcxoiWch2rg85w3YJXW9UZEUBxnOi57Nb0kDHcIxnix8DW3Z9CLtHLEhh_7Rl8EDoLz5979CttZKp91_rQJ6uNLw9QxDHFEzBzU04CKyO6oYwK6ag9rqdHgHcvcxJJ31H3QH4ye5s6RlbtvEB7NqQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/WagzUcbYigO7WVjtr04zD6K68iOB_0mHIrz23NNLWAtCfxiorQ7X_yvYmbsV9qxESKVxMZyyPsvdav9I0bQR9fj-fGaiUK6fr36ZpqH7Xv-YE1UuZWKt0QKlG21u8p8mrdiPoRlJf3jRYVMgVr8dZpxvHl0Jqqi6tNz0I0OD1mHMtsMLdfOHII5wRTxMGnD77t5EIyEooqpqwDJVR1zHIyKaz6pKEnZXucMs2raa8pv2IA2v-m8bvVzvjy5bkV3MT4JOuTwe393fQDjQNi_5dVch7c27gEux2OrHRQpNv5ImJd8AewGn8mdObImYrTo_MGh5n_IXxJe_ENXeWDwgEw.jpg" width="400"><br>
 
-....
-مقام آمریکایی گفت این متن بازتاب‌دهنده توافقی است که روز یکشنبه به صورت دیجیتال از سوی دونالد ترامپ  جی‌دی ونس  و محمدباقر قالیباف امضا شده است:
-1️⃣
-جمهوری اسلامی ایران و ایالات متحده، همراه با متحدان خود در جنگ جاری، با امضای این تفاهم‌نامه، پایان فوری و دائمی جنگ در همه جبهه‌ها، از جمله لبنان، را اعلام می‌کنند و متعهد می‌شوند که از این پس هیچ اقدام خصمانه‌ای علیه یکدیگر آغاز نکنند و از تهدید یا استفاده از زور علیه یکدیگر خودداری کنند. توافق نهایی مفاد این ماده و مواد باقی‌مانده را تأیید خواهد کرد.
-2️⃣
-جمهوری اسلامی ایران و ایالات متحده متعهد می‌شوند به حاکمیت و تمامیت ارضی یکدیگر احترام بگذارند و از مداخله در امور داخلی یکدیگر خودداری کنند.
-3️⃣
-جمهوری اسلامی ایران و ایالات متحده متعهد می‌شوند ظرف حداکثر ۶۰ روز، که با رضایت متقابل قابل تمدید است، مذاکره کرده و به توافق نهایی برسند.
-4️⃣
-بلافاصله پس از امضای این تفاهم‌نامه، ایالات متحده محاصره دریایی را لغو می‌کند، از هرگونه مداخله یا مانع‌تراشی علیه جمهوری اسلامی ایران جلوگیری می‌کند و ظرف حداکثر ۳۰ روز، تردد را به ظرفیت کامل خود بازمی‌گرداند؛ تردد کشتی‌ها باید متناسب با حجم تردد جمهوری اسلامی ایران در دوره پیش از جنگ باشد. ایالات متحده همچنین متعهد می‌شود ظرف ۳۰ روز پس از توافق نهایی، نیروهای خود را از مناطق اطراف خارج کند.
-5️⃣
-با امضای این تفاهم‌نامه، جمهوری اسلامی ایران فوراً اقداماتی را انجام خواهد داد تا حرکت کشتی‌های تجاری از خلیج فارس به دریای عمان و بالعکس، با در نظر گرفتن نیاز به رفع موانع فنی و خنثی‌سازی مین‌ها از سوی ایران، ظرف ۳۰ روز به حجم پیش از جنگ بازگردد.
-6️⃣
-ایالات متحده متعهد می‌شود همراه با شرکای منطقه‌ای خود، طرحی جامع و مورد توافق دو طرف برای بازسازی و توسعه اقتصادی جمهوری اسلامی ایران ایجاد کند و در عین حال تأمین مالی دست‌کم ۳۰۰ میلیارد دلار را تضمین کند. سازوکار اجرای این طرح، به عنوان بخشی از توافق نهایی، ظرف ۶۰ روز تدوین خواهد شد.
-7️⃣
-ایالات متحده متعهد می‌شود طبق برنامه زمانی‌ای که به عنوان بخشی از توافق نهایی بر سر آن توافق خواهد شد، همه انواع تحریم‌هایی را که جمهوری اسلامی ایران در حال حاضر با آن روبه‌رو است پایان دهد؛ از جمله قطعنامه‌های شورای امنیت سازمان ملل متحد و شورای حکام آژانس بین‌المللی انرژی اتمی، و همه تحریم‌های یک‌جانبه آمریکا، اعم از اولیه و ثانویه.
-8️⃣
-جمهوری اسلامی ایران بار دیگر تأکید می‌کند که هرگز سلاح هسته‌ای تولید نخواهد کرد. جمهوری اسلامی ایران و ایالات متحده توافق کرده‌اند که سرنوشت مواد غنی‌شده و سرنوشت همه مسائل دیگر مرتبط با برنامه هسته‌ای که مورد توافق متقابل قرار می‌گیرند، از جمله نیازهای هسته‌ای ایران، در توافق نهایی به شکلی مناسب مورد رسیدگی قرار گیرد؛ توافق نهایی مفاد این ماده را تأیید خواهد کرد.
-9️⃣
-جمهوری اسلامی ایران و ایالات متحده توافق می‌کنند که تا زمان دستیابی به توافق نهایی، وضع موجود را حفظ کنند: ایران وضع موجود برنامه هسته‌ای خود را حفظ خواهد کرد و ایالات متحده تحریم‌های جدیدی علیه ایران وضع نخواهد کرد یا نیروهای خود را در منطقه تقویت نخواهد کرد.
-🔟
-ایالات متحده متعهد می‌شود بلافاصله پس از امضای این تفاهم‌نامه و تا تاریخ لغو تحریم‌ها، وزارت خزانه‌داری آمریکا معافیت‌هایی برای صادرات نفت خام ایران، محصولات پتروشیمی و مشتقات آن‌ها، و همه خدمات مرتبط، از جمله خدمات بانکی، بیمه، حمل‌ونقل و موارد مشابه صادر کند.
-1️⃣
-1️⃣
-ایالات متحده متعهد می‌شود با توجه به پیشرفت مذاکرات به سوی توافق نهایی، وجوه و دارایی‌های مسدود یا محدودشده جمهوری اسلامی ایران آزاد و به طور کامل در دسترس قرار گیرد. این وجوه، چه در حساب اصلی نگهداری شوند و چه منتقل شده باشند، برای هرگونه پرداخت به ذی‌نفع نهایی که بانک مرکزی جمهوری اسلامی ایران تعیین کند استفاده خواهند شد و به طور کامل برای استفاده در دسترس خواهند بود. ایالات متحده متعهد می‌شود همه مجوزها و پروانه‌های لازم را بر این اساس صادر کند.
-2️⃣
-1️⃣
-جمهوری اسلامی ایران و ایالات متحده توافق می‌کنند که سازوکاری اجرایی برای نظارت بر اجرای موفق توافق نهایی و پایبندی آینده به آن ایجاد شود.
-3️⃣
-1️⃣
-پس از امضای این تفاهم‌نامه، و پس از دریافت تضمین‌هایی درباره آغاز اجرای مواد ۴، ۵، ۱۰ و ۱۱ این تفاهم‌نامه و ادامه اجرای این اقدامات، جمهوری اسلامی ایران و ایالات متحده وارد مذاکرات برای توافق نهایی خواهند شد، آن هم صرفاً درباره مواد باقی‌مانده.
-4️⃣
-1️⃣
-توافق نهایی از طریق یک قطعنامه الزام‌آور شورای امنیت سازمان ملل متحد تصویب خواهد شد.
-CNN
-📡
-@VahidOnline
+.
 
 [View Post](https://t.me/VahidOnline/76449)
 
@@ -286,7 +285,7 @@ CNN
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 
 
@@ -305,7 +304,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 
 
@@ -324,7 +323,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn1.telesco.pe/file/vqLmb_Azbo-wOPSX1EuFNgzzkE5QJtvpxuq1oZ_VuLjDE-riTjOekzkM2E2gIUuhTtZplkCKU-CEPJkFNkUTan2iNqh_-uVskyJLdB-y7y7By-xsJjyp5c9KZBgYdlZYLubfd0AUmiZJ_B8q5qMlIMLP7xV9aBdvNgj-uhEo6dN4mdVdo24dtEcY7Ivbo3xh2YjyqzT1ZBqOlgEjsvxCBHzkbvLwOTwOlWLnGYArgZNx-iEfN11_pyb5F8fPeMBzWLmSz-Iv2-zYjBDDfXo7SFQSaAJognhw4v6dnq3juht1tQ79eIHFG2lucSMoant9RziJGhDG2REwRl-h69K0ng.jpg" width="400"><br>
 
@@ -345,7 +344,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn1.telesco.pe/file/AXpPgiRH7SMPEncwLMUMHsohTIQJkM6TWHg5QoVUqvJTZzv6Ao9w_kdX9svH1I6fQfS_70knNecdLS4dF7qA-Q16ef6qdVSy0_xDCi7p12EN1QimojRQaDh7zbshtA22XKwv4uhyPzH8SN5ccUKdvZJFsbLd1x2a1A4ZTiiSVZcE9mpRXtzLKfDK26j8B1A2bJk0dPp60gawltf9vI8Qjnv7_a3Sex1IKhLu1FiHgnP_d3tOMbfmjV4gWiazaSYr-JYv6BFiJMOH4q4RfBRIdj75Z5mHqHyT8XX63TnfKXmZJ6mQly5-Dzoohp1x18TfQBr3m3qHG6b0XMBPm4JzIQ.jpg" width="400"><br>
 
@@ -364,7 +363,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn4.telesco.pe/file/N0N5Zn4Dm4V3Mlia-2-xbylKWV4lOd9f27qNuBYvXehB5uAYAuontuc1DPRT961v-WpqJ3EzkbVp_DUTr_naNy1Rg0iaIcjyEkQkaQEnQB10SDZ5SaEJvlUAOD0yR4YRy0aoLz0UF2ino4xdyOaoHszkzjgZmy6b98tWIvefFMNq-xN1LQTvaKedZWDf_cnei4S0XlwYaeoNgTAL-_Hi_8qF1L5pllURl5_r6Oayp7Q5__hkLFTQrbnLNyGLGZOD8syQWVHbMnjUzSMhqZuak_1E3f0C4yr71fbL1mBvMw9_Y2snlBOCWP9oZQt1wTrnx3_tIMlbFuU748SEfSMqxQ.jpg" width="400"><br>
 
@@ -383,7 +382,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn4.telesco.pe/file/Ro6qNOGZxaUboo1T4FM8jfE6Mr0o9MpiruWYlciufH2hhaydDnDYeT0vbDbQbzoEB5UgfQpm_o_kUzlzTEdlCVkBbwzC707swogm40WfbFoeUImrrp7IQbu9GLeXH6tYdqBCzNty8A-C1-jeXTUBswGjy8y0onTO1dq6gh_TasbDVOYUWQxY3EqmNkuhZeHDuvMDbF2lg1qRW9tSzgR7BW-HzcywkIKhN4YzKuJU9FvEdp9U-vX9wE6bnk4gJC_YxV757416XXOp1G09IWk_GQm6utxNRfTrc3WdFzTyEUd2g9m5oKpIiq5rwdpmTz5-fpdE1zF-V0UlMuQrRzFm8w.jpg" width="400"><br>
 
@@ -401,7 +400,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn1.telesco.pe/file/BrVAfSqI72F9jK-kGEIhMgbhVrz6AYJZRcH25wtAUrXI6MWzhfGmOP1DiBr5nMf5sD7y-xqW9na7S6S_A4VYEStrNoGbS_saPZl2-X74HyZXzy0tOETYy82QpEYZuQE7qW27pJqB8360OgmI_eKN5B5c3AgDT-iZwN5qoOkcv45xWYeiwt6eWInhMVi7IA4MBR93SaOWKZxysp6TrlzqKB8JI2s_Rumqw8E4gWEgGlMmH2JQRZDj8WLT7ukdzkCcOKQ8V9b6OBM4Hvk_rQx_1s4XpXMWRhypBtzTphXQJ9QXZDkfp2JQCKSQHMBrnUYDrupIKxoodBs7HviYKVvdAQ.jpg" width="400"><br>
 
@@ -422,7 +421,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn4.telesco.pe/file/PhNFnWZKv8xB1toHU2_Nfsbl3VS_kTkl_X_ovmzZ1Y4VrP-Kbr_XPyK04BGb-CNTkooDPj1dnZxTrwE52D8-LEhD-_2rNHjkeX6-TTU-QxB9nNPyMzN9kunGZ8vrnVXunRLJKAXLfQOWcyub0GElI3Ebc2R1m4SrdnNA8ipWy167YWxALE9cjMhxmRzy9GBIHEZ8JYmsAr5KO4iA16FU2xq_GyU1kO8sV-httRCZQU4F6Y08gAWR7tXIYSDUMNTCgG0XA44a_VbbkTDhgxxvFyBL3ToGnQLpOtZ2CitSmpDifXu6NhUdtd7t32MOZgMiO7X2UF7AJQgWUJ8X2W8MEQ.jpg" width="400"><br>
 
@@ -446,7 +445,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 
 
@@ -463,7 +462,7 @@ AZ_Intel_
 
 
 
-###### 🔵 Updated at: 2026-06-17 21:06:54
+###### 🔵 Updated at: 2026-06-17 23:19:23
 
 <img src="https://cdn4.telesco.pe/file/kPNAvhmB2x4A8-fmVp99yv3P4pdwPhcHHL8CCYwC19nQJf5nSXwbrCVqL6rncPPra-e9RSDW98Fg7pwyEpVdu8j6Wu10u_dNvMAQjGMpGXBFmm2BnZRHed6Xmaz5xzB6sCbBZnNcQdmbt9tYsIvvPHg1mhmN3oihAAUoIeN2MSfS8bis2okxXaL0QKDPLoZGSb3-lQa2UYLb1NOwraB4ZA9cAK_ut2aJYhoCIGRMTxgs_6T2bUQr5WnY6D_R-abwmbPZPzSM_-Wa7weUyNEWL4Z8cvGOGflx7MrhmPYTHHgbgOcymCltfoMrOgpafnY0gSMhjXX7IheEkJkbYdNjSA.jpg" width="400"><br>
 
@@ -475,43 +474,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76438)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-17 21:06:54
-
-<img src="https://cdn4.telesco.pe/file/kQt6Mglg4irw3WDXH9mJbcVX1JhakC1qVek00PEIPYnT6KlyrbkmvHPTAuk6B2BA33-uRQiPdFDoxNNV-Dn-z4eZKPBugbhzacL5ttXCjGKmL5nZzwFWIIqIktZmdlW8Ee_w4DFLaRzH1eIZl_S3PqawOaAVXCH7OBPj1obKfJ_FXuSG3IGIdTRjV3wqdxmtpZh66I0kAa7-gXDGRb2p6QE883kSfNPCuR1udOvfek6pgrRYjdizG-goQ5FsEDOiHy8NabEI0Qmj2LMzhraWKwKT9c2WvrRK2C0UCEuEpm0r950vlyniOIxuVGkUnrTiN4VN3sYhYC2FYigurCF8zA.jpg" width="400"><br>
-
-به گزارش ان‌بی‌سی، حکومت ایران پس از اعلام یادداشت تفاهم با آمریکا، همچنان تعداد «زیادی» پهپاد به سمت شناورهای تجاری در تنگه هرمز پرتاب کرده است.
-شبکه ان‌بی‌سی به نقل از یک مقام آمریکایی گزارش داده که سپاه پاسداران پهپادهایی پرتاب کرده که آمریکا توانسته آنها را پیش از آنکه تهدیدی برای شناورهای تجاری، کشتی‌های نظامی و خدمه حاضر در منطقه ایجاد کنند، رهگیری کند.
-بر اساس این گزارش، سپاه پاسداران از زمان امضای «الکترونیکی» یادداشت تفاهم در روز یکشنبه، هر شب اقدام به پرتاب پهپاد کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76437)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-17 21:06:54
-
-
-
-جی‌دی ونس، معاون دونالد ترامپ که روز جمعه در سوئیس تفاهم‌نامه پایان جنگ با ایران را امضاء خواهد کرد، گفته مفاد این توافق اولیه در یک جمله چنین خلاصه می‌شود که اگر ایران به تعهدات خود در چارچوب این توافق عمل کند ایالات متحده آماده فراهم کردن زمینه برای بازگشت این کشور به صحنه اقتصاد جهانی است.
-آقای ونس روز سه‌شنبه در گفت‌و‌گو شبکه رادیویی سیروس ایکس‌ام گفت: «دونالد ترامپ هرگز نگفت که هدف اقدامات او به قدرت رساندن رضا پهلوی در ایران است. آنچه گفت این بود که اگر مردم ایران بپا خواسته‌اند و مقابل حکومت خود ایستاده‌اند، خیلی هم خوب است اما آنچه او می‌خواهد اطمینان یافتن از فعالیت‌های هسته‌ای ایران است چه از طریق دیپلماتیک و چه از طریق جنگ که خب در نهایت راه دوم روی داد». 06:21
-معاون رئیس جمهور آمریکا همچنین تصریح کرد که خواسته منتقدان آقای ترامپ مبنی بر ادامه جنگ با ایران با آن چه دونالد ترامپ به مردم آمریکا همیشه وعده داده و قصد اجرای آن را دارد، «همسو نبوده و نیست.»
-آقای ونس در این مصاحبه چند بار تاکید کرد که آنچه به لحاظ اقتصادی ایران از آن منتفع خواهد شد «به هیچ وجه» از منابع و دارایی‌های آمریکا پرداخت نخواهد شد بلکه در صورت همکاری ایران و اجرای همه مفاد توافق، آمریکا با رفع تحریم‌ها به سرمایه‌گذاری در ایران «فرصت» خواهد داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76436)
 
 ---
 
