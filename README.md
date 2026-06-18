@@ -3,7 +3,147 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
+
+<img src="https://cdn4.telesco.pe/file/nV06vF0_fspZIE0iFE7yQCK3k9AmedtKmOQz2Ce2es-78wzgjDuG2gA4nBOrsyNuTMslnlBqvhmMuvrl4k-lpUrJIu0qDdaKbWApa0KCH25FCmS4sUTf204qrVy7uBSt8DAzWzYhueZ2hURr3bHxiEgoHWkoNDETc-lqYHdLlakIQ0cUH2ueqcAyPDXbXhWd5rIufPCMr30uMg5g7ooMYplmsRbfY0u4k_5LlDWusRtLuC4NVh5GPyefuPtQjbtURxS8CnfCL-YpVNU29LYkmVvYjN5nhS057sIFv4lBIhoC9YxO0HGMEASjGXDuM4N1fdM1bgsrrY8Q3Kk0JDB0RA.jpg" width="400"><br>
+
+المیادین به نقل از یک منبع آگاه گزارش داد هیات مذاکره‌کننده جمهوری اسلامی به دلیل ادامه حملات اسرائیل به جنوب لبنان، سفر خود به سوئیس برای آغاز نخستین دور مذاکرات ۶۰ روزه را به حالت تعلیق درآورده است.
+المیادین افزود: تهران پیش‌تر به آمریکا و میانجی‌ها اطلاع داده بود که پرونده لبنان در ادامه یا توقف مذاکرات نقشی محوری دارد و هشدار داده است حملات اسرائیل تا عمق ۱۰ کیلومتری خاک لبنان نقض یادداشت تفاهم و توافق چارچوب است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76496)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 23:24:45
+
+<img src="https://cdn1.telesco.pe/file/kc3Y5QakLwdyxaC-Aui6mAO6HPgUp8IosqP4XGC-Ld6pNaGhKcCksSs7R9d1LsTNqL1baVJ1eNSzQEJ19hd3USRa2N1gpgN13gq7xquS3UHd1qbiVDLQQGzUbgZDr44VnVH0KdlMUpwf6GIlMlLzgl7QGuh5yXvxPxgW-dHDO-4mdO84JUUwCzvEkZhrkkdkjvaBWTDCtFLG04w169nMclyFAqBa4zFpmbUHbs4eHjdR66YRNDqNPflea3x0WDWKs9U10fwGYkOUXmNp1j-qDVG0SUB2_9tvNTBOrjo3R7jVTnlM5SMopmzadjgNxgnks7bXxVku92pu9Wr1RYWUVA.jpg" width="400"><br>
+
+توییت کاخ سفید:
+رئیس‌جمهور دونالد ج. ترامپ تهدیدی را حل کرد که واشنگتن چهل سال صرف مدیریت آن کرده بود: ایران هرگز سلاح هسته‌ای نخواهد داشت.
+یک پیروزی برای آمریکا.
+🇺🇸
+WhiteHouse
+ترجمه با هوش مصنوعی به تصویر اضافه شده.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76495)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 23:24:45
+
+<img src="https://cdn1.telesco.pe/file/B2y3Ij6sxjDixVR6sTfQ0mdn-FpPtvcRy315hJhMbM2uyW2NBqt9XOwzS-9otLPKbhEqamttk3eANdrikbZwqr8iGiPLLpWsqmpzY-5GsM6sMG5cn1DiBC1C5llAIZSQlaqJEbyD3EzmQ8ErnrWzG9cBEydgvXUutZfCH5SZWdRTp2ChHCuA8KQDHzd6LX1CdN_x4WpH8sdGY0utwIONPolio6AddacA0DqVqu4Gs49PRlFY21fI3Wr8ex3BxD-EIgqzQizuXNKgFUE_sFZabft2182dWa_rzfVObVPBdTipqSta7EJ7iM5Rd7Q0ksB_NKbi0FlTkyN4wlWSS-UwMg.jpg" width="400"><br>
+
+'
+بیانیه شورای عالی امنیت ملی
+'
+منابع حکومتی:
+🔹
+در اجرای بند ۵ یادداشت تفاهم اسلام‌آباد، کشتی‌های تجاری متقاضی عبور از تنگه هرمز باید درخواست خود را به مدیریت آبراه خلیج فارس (PGSA .ir) ارسال نمایند.
+🔹
+به موجب یادداشت تفاهم اسلام‌آباد، به مدت شصت روز، هیچ‌گونه هزینه‌ای از متقاضیان اخذ نخواهد شد و این هزینه‌ها توسط دولت جمهوری اسلامی ایران تأمین می‌گردد.
+🔹
+بر این اساس به مدیریت آبراه خلیج فارس دستور داده شده است، در جهت تحقق اهداف تفاهم‌نامه درخواست‌ها را با سرعت و اولویت رسیدگی و پاسخ دهد.
+🔹
+با توجه به شرایط خاص و وجود برخی مخاطرات ایمنی در مسیر عبور و به دلیل لزوم حصول اطمینان از تردد ایمن و جلوگیری از حوادث دریایی، لازم است کشتی‌ها در مسیر و زمان اعلامی به آنها عبور نمایند تا به تدریج، امکان تردد افزایش یابد.
+🔹
+ترتیبات اجرایی و جزییات فنی عبور از تنگه هرمز از طریق مدیریت آبراه خلیج فارس اعلام می‌گردد.
+🔹
+در خصوص سایر موضوعات، از جمله مین‌زدایی، اقدامات لازم مطابق بند ۵ یادداشت تفاهم اسلام‌آباد انجام خواهد شد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76494)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 23:24:45
+
+<img src="https://cdn1.telesco.pe/file/cZPTXDRa-op4XQWhoAo-aSzbtnM5rY2wAKnfB6zROMH6hAymg1ijkzkK6mn8acJC9U4dy6efqAOfB2pktjTaypZV1VF0Yaz1_TBNxVrNPivHe_WVeFxyefqIBNTkzUKH4k3knK3j_tIxN9KgciDGQX-xT8ummJaQRxkObHYbj5IpPy3V7MHKKo_fQoNAy28M8QBH25rgtrX9ZTmC9P1IbakqU7LqFHSH1GlLFQZG-RnT-MVH0H_qFiUTv4cA5jBar1YlqcmPqJu4w8Hpg1jR1V_U0uCiIDc2BizbueJ90x5WfUMJPX584Hcg3qjuv0RwuOjlrbodUIHsoLz0hQ4lbw.jpg" width="400"><br>
+
+ترامپ: انتظار آتش‌بس کامل در همه جبهه‌ها از جمله لبنان را دارم
+ترجمه ماشین:
+ایالات متحده به صلح متعهد است و ما همه در منطقه خاورمیانه را تشویق می‌کنیم که به تعهد خود برای فراهم کردن امکان پیشرفت زیبای مذاکرات ما پایبند بمانند.
+بازارها از آنچه در حال رخ دادن است استقبال می‌کنند: قیمت نفت به‌شدت پایین آمده و سهام به‌شدت بالا رفته است.
+ما انتظار آتش‌بس کامل در همه جبهه‌ها، از جمله لبنان، حزب‌الله و اسرائیل را داریم.
+از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد ج. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76493)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 23:24:45
+
+
+
+« پیام منتسب به مجتبی خامنه‌ای در واقع نوعی فاصله‌گذاری حساب‌شده با تفاهم ایران و آمریکا است. مجتبی خامنه‌ای رهبر جمهوری اسلامی اجازه امضا را داده، اما مسئولیت سیاسی و اجرایی آن را بر دوش پزشکیان و شورای عالی امنیت ملی گذاشته است.
+پیام همزمان رو به داخل و بیرون نوشته شده است. در داخل می‌گوید رهبر با رضایت کامل وارد این مسیر نشده و دولت باید پاسخگوی نتیجه باشد. در برابر آمریکا هم این سیگنال را می‌فرستد که تفاهم، زیر فشار ترامپ و دولت او به‌معنای عقب‌نشینی قطعی نیست؛ بلکه مشروط است و اگر شروط ایران محقق نشود، موافقت نهایی رهبر با توافق نهایی هم تضمین‌شده نخواهد بود.
+در واقع متن، بیش از آن‌که اعلام رضایت از توافق باشد، تلاشی برای حفظ دست بالا در مرحله بعدی است: هم مسیر مذاکره باز می‌گذارد، هم امکان عقب‌نشینی تبلیغاتی حفظ می‌شود, هم به واشینگتن گفته می‌شود که فشار بیشتر ضرورتا به انعطاف بیشتر ایران منجر نخواهد شد»
+@pourostadv
+
+[View Post](https://t.me/VahidOnline/76492)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 23:24:45
+
+<img src="https://cdn1.telesco.pe/file/qLbL4cGf8ud8Z9sRjh8Iaqq_PA18YetVJy2iPpvpUwL3ntXeAWRIqlQX0I09SDLZcdUiXsOxkx52QcHFnAOLhpdT-rMt8oySBA_2S5AzKM4XnwfnBOCDIPpXgTpP73iK1D-6T0SME0x1VKbyy_p3z7lQkPe6msqKiwvGe7-xLGB1L8mLuWc6oFrhQGApvIlXpZLMYhIHWxG7ocZ4f2_e0iK22fS-3sJoSXjheBspGGWDh39zSw8gB83iqHAAUuXk1-qq_wG3fmzGHj7Spa8On8eEk6aRUwZ3MCPlg0l4e9S6LFIp4Q5GqxQedDusqsXMB2FrTznrD9tui-BOoBwewQ.jpg" width="400"><br>
+
+مسئول
+گردن‌نگیر
+جوان شد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76491)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 23:24:45
+
+<img src="https://cdn1.telesco.pe/file/bQsdIvwu7tUDNcLQbBw6OeUy3mGwrS0c8c6q-cuG14QL3yRfcI84z4j5Xtnv4tu8hLm06a3axymeLExsUjFeFo-IBhzy8y0P-vCxVoSuJr5MvhSgFZv8eNcHDfm3EP9WpPhRKKYUdbss_ATA-R1QYvflCataX1OMW0G3fTM6SIYGBwJnePLWNfJwoljXhZAGnC64k_2MERA-GYlNXLnuNjbcUHZo9-78qheSICyud03Ll3HaPoDxGLeWgJ7v2VcZ0W4JbN8MYopnBIJR1eVJIuWcui403onjpJnT0-41PhjHAdHsUn3uwnxfRYA_PjyceDa2kdaullmWCO5ipAeOTA.jpg" width="400"><br>
+
+رسانه‌های ایران پنج‌شنبه شب متن پیام مکتوبی منسوب به مجتبی خامنه‌ای را منتشر کردند که در آن رهبر جمهوری اسلامی درباره امضای تفاهم‌نامه میان ایران و آمریکا گفته است که «نظر دیگری» داشته و مسئولیت آن را بر عهده مسعود پزشکیان، رئیس شورای عالی امنیت ملی، و دیگر اعضای این شورا دانسته است.
+در این پیام درباره توافق با ایالات متحده آمده است:
+«بنده علی‌الاصول، نظر دیگری داشتم ولی از باب تعهدی که رئیس‌جمهور محترم به‌عنوان رئیس شورای عالی امنیت ملی از طرف خود و سایر اعضا در پاسداشت حقوق ملت ایران و جبهه مقاومت به بنده دادند و تصریح به قبول مسئولیت آن نمودند، اجازه آن را صادر نمودم‌.»
+در این پیام به تفاهمنامه اخیر به عنوان «تفاهم‌نامه‌ای بین رئیس‌جمهوران ایران و آمریکا» اشاره و گفته شده است که رهبر جمهوری اسلامی و مردم از این لحظه «منتظر تحقق شروط گفته ‌شده» خواهند بود.
+در این پیام آمده که مذاکرات حضوری آینده «به معنی پذیرش نظر دشمن نخواهد بود.»
+VahidOOnLine
+در تیتر و متن نامه و خبرهایی که درباره‌اش تولید میشه بسیار تاکید دارند که این تفاهم‌نامه‌ای بین پزشکیان و ترامپه و نمی‌گن بین ایران و آمریکا
+در واکنش‌ها از تقلیل نقش
+قالیباف
+یا محافظت ازش با سپر کردن پزشکیان هم میگن.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76490)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn1.telesco.pe/file/Zmwr4MxxcrS4mqzb9oqtxO25wr4LDqRFadDYKWybjfjRwYDo4djGCZ4YWq0pPR5WHI3kQAxJFncYT1p9hFx-mQqXUM0AYbSmL0yGJiBkWQx0hNT9t9MGXKKCF57VuQQtWiEI22fqVmTNTuCK7IV65ioFSWGxXyhzVQnTu0yjFACaAuCeE70U-OxYxxPJYjmkkmMYxS-4fJsZ8Z_NunNGepvq4AAAmdBZn8cquG6aZBaHQlioQZcKfTIFRMwegOyH3x8-gNwICBMevFcgm5bT-a3NGBWrKUxe-2s9o_2uw3C6j4kuZqT6NgfqZ7LGXuqcgyXJidWqOfX2IgJDsNBXUA.jpg" width="400"><br>
 
@@ -25,7 +165,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn1.telesco.pe/file/FXQi0cAoN9P5qGyxXbH5gUw98SZqooVGtFb6rSMCngNBPrXtCpWJympTzFeBBWo9sGu0LTLRjCtKz2OoGOwAVzddP3beXy0CxQtUtOHarhA8z54d4fzA8ByeZKA7j-YsK17hiKJD_L1cEomHjwTjNPXB9kku4LJb5GYuWdd_t054bPvc5Pf3kGtlPy_mdm4ZopXmjDQfJAiYz91S4t9JVPdg32A76-05UQYuck3jUduMXcvcU0opQ3Ur-JDl6yqWYkcvbFeXPQ7VluSozMyaH6iIJZUXWjys2lrU5DIF8r2TjOUFT5D2tkiYLEB-ArAhwGi7TVOeQyRh-T3Lo5DdYQ.jpg" width="400"><br>
 
@@ -46,7 +186,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn1.telesco.pe/file/IGYJ2KETS3MZAE8iCSwt6rBifT62XhA_JRaqNqVP4ZHx2uiWrdYdMyy4_vzMUfqT3R7TEoVYdgG0_hm2NT7LmkeU-q0R9D1cviPHL_4Tjz-OHS6FiGCIkzVG_0oKnq8xwepM4UWG9UIr-DxI-qzMkIX5SmzkYOAeoTJZSaj9f7hUXI1hQXLTm46pHs3EjbSel0Sr-orvAkXJEVaCWC6DZUFp5TZsMBcP3oF3GmX-vy2OcdJcSG5oqKBT18qB87fIdBenT2fHD86ScIDyI1_imUrv5RtdwQZMviuXWuUbU0-B82VN2CBwyZIvehUbch_x48jBAnGnOjnJGiLSJOY-qQ.jpg" width="400"><br>
 
@@ -60,7 +200,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 
 
@@ -82,7 +222,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn4.telesco.pe/file/v0wmglo2wLqA2xkIeBQfABGkM2sDPp5vilcv0Cdtx1qzqnfOstFEGsKMPpZxbX_TQxnkVDrnb5AGec2HWsEZqk-LsfM1f8PFskl5iYYTNjUtHk96Rq7NMUVtUJ0n-Lkc7kf-tGFB-6FnvWPTsxhHv_Tn4ga6DJJQZpHpr_0VbPc_OcSEEba9DYbmLU9ere_hVji5iEz_1IK1OVxIPrpL7bwafvTsPN_EOKzD-nwM7VbzysCbNE25E8_xOWOjnbU-u1mJ1_QD76jsAo17eG_IydG4mli7F5qCWgmZI1fCxZzjU46v3e1q0UipaoacMHUaRYEC6y1CsIBrJ7jJmLC9uA.jpg" width="400"><br>
 
@@ -103,7 +243,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 
 
@@ -225,7 +365,7 @@ c-span
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn4.telesco.pe/file/BTu26V8cU7QhHovqKXIpVkYKjo_P2J9Vyd8YQtDjdMiHdu6lmq2gJOS37UQl71pyEaITW0elclg3K_Q83wl90480BOmKuT2Du2jZ-me43iyO-0_5V7HipHZwOOozJxLYaf1gaFHtXkeohpgEB7ekXQEA8KMf46GM5pys1dHFuRCQ2kcHoBSQOljzGbT14M8RAj14dsv9_tABP--BwXw9Syvha3joj7dir7PilZJqrBSnQmrG4kr9EEgU_qvMqM8MeRVSjeqeOjxlMmr3fXIsUvhGUw7NlFHpzVJQUUyLZikw3GOEuwf8QiNd6FJm4MGBOlrBJvP45Gq8c37z7_JJdA.jpg" width="400"><br>
 
@@ -243,7 +383,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn1.telesco.pe/file/lJJXCRb7SAV7jLCZ6PYaGOcECXj06AM3kayRp87vs8d6KSTSKvJFEBtgadt4uk7_G_L02YxzAb41LtwmsCOqaB7XWvJ1yFrs6S4beztzRzc95RViE7q-XI2Cz5l9V8X7C3WsBeiru9HGS5lQawkS73xSDXV9NvEDvyv2jQqvVTChfGGQv7Z4jrJPwZWwypFvcnbrOkKuFvPVO2Eh3XDRvffdOtOZfygtY4kabddbF59ydw5JOurf8f6GJap4XUSf-pcmXJ-RbHYhoAQEJUqgiNIE2PVgZGwIrY1NGWxcEdvcBBUur30PZ4-IGdhvF2TZhXS5Zav21265K2Vm25JENQ.jpg" width="400"><br>
 
@@ -260,7 +400,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn1.telesco.pe/file/u32BKjKf27bwbFSfjFEBR-U0aN0uHW7gozPoqR-n3dn5AdfHj-w2hd8IxCAPubMUBavH7JghLJlPMiMd0Nchu86LZ6GLRpO--HJuFZn5ll8kmRpZomAAqmHrl1pPiqzJadPpeGDoAcgM4pTBaVSecTGcJImNdjS4N5nyb_S9srOK2qs7g51gBiFI58fw7RROOkvdTxKWznsGtlPCOk4Wn_fcRypv7ni7GqiJYezEiD0YXEy477TOIPCQ46NeTjGsAbefyYUojb6sI3TEJoUx1sir7gdnkuUQQRj0cybvmN5aw480OB0fS3VtkBvkyodTCSl80RHQBWe5BdJk-uF5Jg.jpg" width="400"><br>
 
@@ -276,7 +416,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn1.telesco.pe/file/K6CtZUKjLtXyMPHI7ixXn4EiP5FiVQ79L1J_ejLJMyQxgnM76-tFuh_nkeMCgIarTH2aPfnk5YaCjW-Q6kDFqWsoHemanGh4Fce8nX5gwQZLRzycTxLis7aPu4lpq-LZ5Bx2Kka4NCYYqgj-kJpMdRrrYJbNAfKfbQBLXUj3UYhIyvA107ZRD6jntwCtdtKdb0NJ6KgC3xX--MBxBbwbMGIxaekzNzjfjEbjcnti5HWliY7LnxLNyVbQ0kJXiT5HgJGbCv7Orkx-auiaEeq_eZ0VaevY8196FaqAm0IuZEaFYywoECG_AttM8YQNJXZ2uX4uxkC8zdoPQhj1TlcvGw.jpg" width="400"><br>
 
@@ -291,7 +431,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn1.telesco.pe/file/bVmnJB5JP1zGHKGGvnhKGhJGjRqIX7Fcw1rfFfvRUURK2S9pHPVplaH3VltJSVjgyTeu49yB_rCxM4mXlfjylPPSdJPFvHxkp1yMBTUj-bVNUzKOeyqggTm4EjiIRf3wOTOsMXI_VbbfbeG_brDymr9ty511k3OZhR_bAqsYEhmrMrriFy80ZsTOAnYk9tAec0ynyQ4586_TDdAWIbohFNaoGOFhlvoLL6zXMOjozEu9FfUDx6VVNR70wcpRmJtAuMg0XkBKQPArXZudrYEW1qLLGo9TC49_c2aGbDVyHlmquCWZQz3COSwk2-wu_siSBrZ5bidy6YObMlFDYDGYWA.jpg" width="400"><br>
 
@@ -309,7 +449,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-18 21:04:40
+###### 🔵 Updated at: 2026-06-18 23:24:45
 
 <img src="https://cdn1.telesco.pe/file/v49e6Sm5v6kGMlZwt6iwTapAQYGr4Wn-KMFE5hzKSYIQHusngl9U1PAMwRwEkRBf2nslkiUhWuA9LcJu8zgTJhpxLTsXQFd0FXArGwR1xOkxCWqYc41ZQKO8gf9ZLZg1RIFwwfayihVqGgGdguy2J39dBgLy4DyeXesejfVmH2kLzRZjZTIZ8_SgRa7iC7MHtJ6z4TlzIPE3lDN1w7KCjh5_o5CwGMOJqNdEtAe-GDSQ24CO2PZKVHN8sMm-u3mMR4snv8Z3O1n8ItzbgYZs8iSD-8Af_d3MrLYavdeBD6uUVXrl-cA4KE6NejmyuzhYLRHEp2JPN5k9cd5cid90fg.jpg" width="400"><br>
 
@@ -329,88 +469,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76477)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 21:04:40
-
-<img src="https://cdn4.telesco.pe/file/ly5U_mxRmWrvCjfPe6tJH7bbxxWgAvHoOSlfj5OUSqjLBj1Hz7By7WjHSxmO-bGZWonHxyaL7ggPIRRek0OA4RKMmD8_2mq4apJALOFEKkpjGuWNvLgnbEoz_lSTMUpPoRd8SQhsyiqFPUiEswvE3A2p-UFRi1s40u6S2u6qbT8IITK8V6JIcO7qlGDy-8FiBX8d2BqivhefCyf78NoeE36WxDtO7d3FPY1Su-fFizmCWZqHe8TMA-73KgsgaK43xjBIwswgQAyOj0WZSvidvtfubiU2G3BBFHSKq-rrU6O8Uu3sUeGMExzDXBmjNHCImz5k_fD6u1aGJ4watlowgw.jpg" width="400"><br>
-
-دادگاه کیفری استان قم، پرستو احمدی، خواننده، و هشت نفر دیگر از دست‌اندرکاران و نوازندگان «کنسرت کاروانسرا» را به‌طور جداگانه به ۷۴ ضربه شلاق تعزیری، دو سال ممنوع‌الخروجی و دو سال ممنوعیت از فعالیت هنری محکوم کرد.
-اتهام این هنرمندان در این حکم قضایی جریحه‌دار کردن عفت عمومی از طریق تولید و انتشار محتوای مبتذل و خلاف اخلاق در بستر فضای مجازی» عنوان شده است.
-پرستو احمدی ۲۱ آذر سال ۱۴۰۳، به همراه گروهی از نوازندگان مَرد شامل احسان بیرقدار، سهیل فقیه‌نصیری، امین طاهری و امیرعلی پیرنیا، در کانال یوتیوب خود ویدئویی بدون حجاب اجباری، از «کنسرت کاروانسرا» یا «کنسرت فرضی» را منتشر کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76476)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 21:04:40
-
-<img src="https://cdn1.telesco.pe/file/Z7yvfqsAaFR586Nwg5kag4hAxw-zoSkMMD3GnieKFp3BuS6MV8OtbvSKLUFhqSDx1gx15BgO0EdltHR2conugbKSRsdWkXLkRM0r0q0EDWy-A0mOne1GEK1J-N5UylqJzFG4weY9XKzlIp6uSTCObbFaRFDAPDYRB-XpXbfe9hIdJSUDRzBor9O-QrVd55TfnPC0BYsjE0DhlXdxb9A5KQlBK8h8abTxpPJKlFvVP8Y9fBpxfUemwoz1c1-UvgvregWub3Cp-ieHMrGPwvc2D4DshMnBcrOdEGo8vjLz8PFpg0aG88VqfjEthAsGO3cRWmFeF-grRXWfU0KJxwBdBA.jpg" width="400"><br>
-
-این توییت ۹ سال پیش ترامپ داره توجه می‌گیره:
-ایران به آخر خط رسیده بود و آماده فروپاشی بود، تا این‌که آمریکا از راه رسید  و در قالب «توافق ایران» به آن یک طناب نجات داد: ۱۵۰ میلیارد دلار.
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76475)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 21:04:40
-
-<img src="https://cdn1.telesco.pe/file/JH13bf3XNn73ub8equbj2ooEyEmRsrLBw7FdzJ070IGJCbc2uqQTzge-aIJvOacqgsHA0MlFbcayMJ4g6dQ2ogAGcwPwjPjXp7H38W4WP_2oVnBumUxBhKNOeJ_tn4oT8ttvMhCQY9acRWFJZYFIHNqXnBKaJxTlRrJb3mfv-ra9jNgXRPNv5PObo5baZuEh3ODDqMuYcPz-Th1Dcf2Nh8p9s_TqaC5_m_WSlghzvTd9PxZPjJNi8z9HltbS8l-fWikcvL4MIG1jiwJlSA98Q8GcItRshoPkAJCPhE2IgzZhg1Adg4C7R-kGaIUjrE8Kmp1OT7TEa-jOQcYB0j4DOQ.jpg" width="400"><br>
-
-درستش کردم
-MahvashJebeli
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76474)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 21:04:40
-
-<img src="https://cdn1.telesco.pe/file/TvBEF3Q3I_kUbA5_Z8-m-Of3z_0fOY83EIdSWJFyEXKkem3DhP0TAR0rrHD2B9XYAhy2tKfPm-tJinLh_IwPGNiKGZUFg54Lyy_XcJrFyB46TOwLkjH75xlTeho0LVDDdzOTbK0m3F6dpWyMb8DrnkD6aE0FsNInzQmLXvswxTg-04HIlp0bQGBSPpPh1_AH4BeM685I3eQ-dA3Ua4SDhiBQu-8Oj1j7UVFH5qDNxM7iq5BEOVFW98Nne3aIov4Z56RuD5Xy8fC7qddtRB6bdh0kd6Mnlwv5osJqZFQuzWfMgMzLdbyCp7XMWDoS7rSSqMKNB-WOyZuyEjVWJIAEKQ.jpg" width="400"><br>
-
-امضای پزشکیان پس از
-امضای ترامپ
-تصاویر منتشر شده از سوی ایرنا
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76471)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 21:04:40
-
-
-
-لحظه امضای یادداشت تفاهم از سوی ترامپ
-دونالد ترامپ، رئیس جمهور آمریکا که چهارشنبه شب در کاخ الیزه میهمان ضیافت شام با امانوئل مکرون بود نسخه نهایی و منتشر شده تفاهم‌نامه با جمهوری اسلامی ایران را امضاء کرده است. مسعود پزشکیان نیز این سند را امضاء کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76470)
 
 ---
 
