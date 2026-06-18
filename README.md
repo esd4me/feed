@@ -3,7 +3,116 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
+
+<img src="https://cdn1.telesco.pe/file/lJJXCRb7SAV7jLCZ6PYaGOcECXj06AM3kayRp87vs8d6KSTSKvJFEBtgadt4uk7_G_L02YxzAb41LtwmsCOqaB7XWvJ1yFrs6S4beztzRzc95RViE7q-XI2Cz5l9V8X7C3WsBeiru9HGS5lQawkS73xSDXV9NvEDvyv2jQqvVTChfGGQv7Z4jrJPwZWwypFvcnbrOkKuFvPVO2Eh3XDRvffdOtOZfygtY4kabddbF59ydw5JOurf8f6GJap4XUSf-pcmXJ-RbHYhoAQEJUqgiNIE2PVgZGwIrY1NGWxcEdvcBBUur30PZ4-IGdhvF2TZhXS5Zav21265K2Vm25JENQ.jpg" width="400"><br>
+
+ایرنا: به پاکستان گفته شده "نیازی به برگزاری نشست حضوری در سوئیس نیست"
+ننوشتند کی گفته:
+منابع دیپلماتیک پاکستان گفتند که سفر برنامه ریزی شده شهباز شریف نخست وزیر این کشور به سوئیس لغو شده است.
+این منابع مدعی شدند که از آنجایی که یادداشت تفاهم اسلام‌آباد از سوی رئیس جمهوری اسلامی ایران و رئیس دولت ایالات متحده به امضا رسیده است، به طرف پاکستانی اعلام شد ‌که اکنون نیازی به برگزاری نشست حضوری در سوئیس نیست.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76481)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 17:49:19
+
+
+
+پست ترامپ ترجمه ماشین:
+«نفت در جریان است، ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد، جهان امن خواهد بود! بازارهای سهام غرش‌کنان پیش می‌روند، مشاغل در سطح رکورد هستند، و قیمت‌ها در حال کاهش‌اند؛ مقرون‌به‌صرفه شدن! کشور ما مثل هیچ‌وقتِ دیگر قدرتمند، امن و محترم است. «خواهش می‌کنم!» رئیس‌جمهور دی‌جی‌تی»
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76480)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 17:49:19
+
+<img src="https://cdn1.telesco.pe/file/K6CtZUKjLtXyMPHI7ixXn4EiP5FiVQ79L1J_ejLJMyQxgnM76-tFuh_nkeMCgIarTH2aPfnk5YaCjW-Q6kDFqWsoHemanGh4Fce8nX5gwQZLRzycTxLis7aPu4lpq-LZ5Bx2Kka4NCYYqgj-kJpMdRrrYJbNAfKfbQBLXUj3UYhIyvA107ZRD6jntwCtdtKdb0NJ6KgC3xX--MBxBbwbMGIxaekzNzjfjEbjcnti5HWliY7LnxLNyVbQ0kJXiT5HgJGbCv7Orkx-auiaEeq_eZ0VaevY8196FaqAm0IuZEaFYywoECG_AttM8YQNJXZ2uX4uxkC8zdoPQhj1TlcvGw.jpg" width="400"><br>
+
+پست چند دقیقه پیش ترامپ: "پاپ لئو از توافق صلح آمریکا و ایران تمجید کرد."
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76479)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 17:49:19
+
+<img src="https://cdn1.telesco.pe/file/bVmnJB5JP1zGHKGGvnhKGhJGjRqIX7Fcw1rfFfvRUURK2S9pHPVplaH3VltJSVjgyTeu49yB_rCxM4mXlfjylPPSdJPFvHxkp1yMBTUj-bVNUzKOeyqggTm4EjiIRf3wOTOsMXI_VbbfbeG_brDymr9ty511k3OZhR_bAqsYEhmrMrriFy80ZsTOAnYk9tAec0ynyQ4586_TDdAWIbohFNaoGOFhlvoLL6zXMOjozEu9FfUDx6VVNR70wcpRmJtAuMg0XkBKQPArXZudrYEW1qLLGo9TC49_c2aGbDVyHlmquCWZQz3COSwk2-wu_siSBrZ5bidy6YObMlFDYDGYWA.jpg" width="400"><br>
+
+پست چند ساعت پیش ترامپ:
+این احمق‌ها که فکر می‌کنند من در قبال ایران به اندازه کافی سخت‌گیر نبوده‌ام، در حالی که بازار سهام همین الان به رکوردی تاریخی رسیده و قیمت نفت هم دارد «سقوط» می‌کند، یا حسودند، یا آدم‌های بدی هستند، یا احمق‌اند.
+آمریکا را دوباره عظیم کنیم!!!
+رئیس‌جمهور دی‌جی‌تی
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76478)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 17:49:19
+
+<img src="https://cdn1.telesco.pe/file/v49e6Sm5v6kGMlZwt6iwTapAQYGr4Wn-KMFE5hzKSYIQHusngl9U1PAMwRwEkRBf2nslkiUhWuA9LcJu8zgTJhpxLTsXQFd0FXArGwR1xOkxCWqYc41ZQKO8gf9ZLZg1RIFwwfayihVqGgGdguy2J39dBgLy4DyeXesejfVmH2kLzRZjZTIZ8_SgRa7iC7MHtJ6z4TlzIPE3lDN1w7KCjh5_o5CwGMOJqNdEtAe-GDSQ24CO2PZKVHN8sMm-u3mMR4snv8Z3O1n8ItzbgYZs8iSD-8Af_d3MrLYavdeBD6uUVXrl-cA4KE6NejmyuzhYLRHEp2JPN5k9cd5cid90fg.jpg" width="400"><br>
+
+پیت هگست، وزیر دفاع آمریکا، روز پنج‌شنبه ۲۸ خرداد در یک موضع‌گیری درباره تفاهم‌نامه اسلام‌آباد تأکید کرد که ارتش آمریکا قرار است «چماق بزرگ پشت مذاکرات» باشد.
+او همچنین تأکید کرد که هر گونه تغییر در اندازه حضور نظامی آمریکا در خاورمیانه «بسته به شرایط» خواهد بود.
+این نخستین اظهار نظر هگست در پی امضای تفاهم‌نامه اسلام‌آباد میان تهران و واشینگتن است که بامداد پنج‌شنبه توسط رئیس جمهور ایران هم امضا شد و رسمیت یافت. دونالد ترامپ ساعتی پیش از مسعود پزشکیان سند را امضا کرده بود.
+متن تفاهم‌نامه‌ای که دولت آمریکا به امضایش رضایت داد حتی از چند روز پیش از امضا شدن هم انتقادهایی در پی داشت، انتقادهایی که با انتشار متن کامل آن افزایش یافت.
+به نظر می‌رسد که سخنان وزیر دفاع آمریکا هم تا اندازه‌ای پاسخ به همین انتقادها باشد.
+به گفته پیت هگست،‌ آمریکا «از موضع قدرت به توافق با ایران رسید».
+@
+VahidHeadline
+وزیر دفاع آمریکا همچنین گفت که برخی کشورهای اروپایی آماده‌اند در عملیات پاکسازی مین‌ها در تنگه هرمز مشارکت کنند.
+هگست در عین حال از بریتانیا خواست نقش گسترده‌تری ایفا کند و گفت که این کشور باید «گام بیشتری بردارد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76477)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 17:49:19
+
+<img src="https://cdn4.telesco.pe/file/ly5U_mxRmWrvCjfPe6tJH7bbxxWgAvHoOSlfj5OUSqjLBj1Hz7By7WjHSxmO-bGZWonHxyaL7ggPIRRek0OA4RKMmD8_2mq4apJALOFEKkpjGuWNvLgnbEoz_lSTMUpPoRd8SQhsyiqFPUiEswvE3A2p-UFRi1s40u6S2u6qbT8IITK8V6JIcO7qlGDy-8FiBX8d2BqivhefCyf78NoeE36WxDtO7d3FPY1Su-fFizmCWZqHe8TMA-73KgsgaK43xjBIwswgQAyOj0WZSvidvtfubiU2G3BBFHSKq-rrU6O8Uu3sUeGMExzDXBmjNHCImz5k_fD6u1aGJ4watlowgw.jpg" width="400"><br>
+
+دادگاه کیفری استان قم، پرستو احمدی، خواننده، و هشت نفر دیگر از دست‌اندرکاران و نوازندگان «کنسرت کاروانسرا» را به‌طور جداگانه به ۷۴ ضربه شلاق تعزیری، دو سال ممنوع‌الخروجی و دو سال ممنوعیت از فعالیت هنری محکوم کرد.
+اتهام این هنرمندان در این حکم قضایی جریحه‌دار کردن عفت عمومی از طریق تولید و انتشار محتوای مبتذل و خلاف اخلاق در بستر فضای مجازی» عنوان شده است.
+پرستو احمدی ۲۱ آذر سال ۱۴۰۳، به همراه گروهی از نوازندگان مَرد شامل احسان بیرقدار، سهیل فقیه‌نصیری، امین طاهری و امیرعلی پیرنیا، در کانال یوتیوب خود ویدئویی بدون حجاب اجباری، از «کنسرت کاروانسرا» یا «کنسرت فرضی» را منتشر کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76476)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 <img src="https://cdn1.telesco.pe/file/Z7yvfqsAaFR586Nwg5kag4hAxw-zoSkMMD3GnieKFp3BuS6MV8OtbvSKLUFhqSDx1gx15BgO0EdltHR2conugbKSRsdWkXLkRM0r0q0EDWy-A0mOne1GEK1J-N5UylqJzFG4weY9XKzlIp6uSTCObbFaRFDAPDYRB-XpXbfe9hIdJSUDRzBor9O-QrVd55TfnPC0BYsjE0DhlXdxb9A5KQlBK8h8abTxpPJKlFvVP8Y9fBpxfUemwoz1c1-UvgvregWub3Cp-ieHMrGPwvc2D4DshMnBcrOdEGo8vjLz8PFpg0aG88VqfjEthAsGO3cRWmFeF-grRXWfU0KJxwBdBA.jpg" width="400"><br>
 
@@ -19,7 +128,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 <img src="https://cdn1.telesco.pe/file/JH13bf3XNn73ub8equbj2ooEyEmRsrLBw7FdzJ070IGJCbc2uqQTzge-aIJvOacqgsHA0MlFbcayMJ4g6dQ2ogAGcwPwjPjXp7H38W4WP_2oVnBumUxBhKNOeJ_tn4oT8ttvMhCQY9acRWFJZYFIHNqXnBKaJxTlRrJb3mfv-ra9jNgXRPNv5PObo5baZuEh3ODDqMuYcPz-Th1Dcf2Nh8p9s_TqaC5_m_WSlghzvTd9PxZPjJNi8z9HltbS8l-fWikcvL4MIG1jiwJlSA98Q8GcItRshoPkAJCPhE2IgzZhg1Adg4C7R-kGaIUjrE8Kmp1OT7TEa-jOQcYB0j4DOQ.jpg" width="400"><br>
 
@@ -34,7 +143,7 @@ MahvashJebeli
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 <img src="https://cdn1.telesco.pe/file/TvBEF3Q3I_kUbA5_Z8-m-Of3z_0fOY83EIdSWJFyEXKkem3DhP0TAR0rrHD2B9XYAhy2tKfPm-tJinLh_IwPGNiKGZUFg54Lyy_XcJrFyB46TOwLkjH75xlTeho0LVDDdzOTbK0m3F6dpWyMb8DrnkD6aE0FsNInzQmLXvswxTg-04HIlp0bQGBSPpPh1_AH4BeM685I3eQ-dA3Ua4SDhiBQu-8Oj1j7UVFH5qDNxM7iq5BEOVFW98Nne3aIov4Z56RuD5Xy8fC7qddtRB6bdh0kd6Mnlwv5osJqZFQuzWfMgMzLdbyCp7XMWDoS7rSSqMKNB-WOyZuyEjVWJIAEKQ.jpg" width="400"><br>
 
@@ -50,7 +159,7 @@ MahvashJebeli
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 
 
@@ -67,7 +176,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 
 
@@ -99,7 +208,7 @@ CMShehbaz
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 
 
@@ -127,7 +236,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 <img src="https://cdn4.telesco.pe/file/m41zDE-9CfWXx_zTCJvkSA2DzT-eBj5ubHeSSXS0ZB0h16EU4hMcrcbvypSbvEvKB8qvuIZcsrtjqy0wOcn1Sebz-UBkUYN2ID-fW2jSY7vgBPVt0ANNfEXxLdc6Sh8fgyqDX8OEcYDXBwg8ixnG9fLZvaeDe2FtQAZDJ99nRFZeJri4JsmNwDosbx3vpF5qPTyzgz7VIqDauSqk5y2n7yEoqVy40L-Jg2hNMUTDOzonzQEQw5eGoTDzs6G-7gPtwPCPTWTOdUEH9dx6373iMHRCTeIazAZVJw8jZraz4rKH7oM5bfseYjS983Ai82N70Rz2lHcrAcSASRmFEFVCMg.jpg" width="400"><br>
 
@@ -146,7 +255,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 
 
@@ -268,7 +377,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 <img src="https://cdn4.telesco.pe/file/U4qr1TB_eZ3XVabcm-00QywaYCDvZZU_xzxMt9qMWKKC6kAM7EqSW0QKrc0JIvgMWc14pfotDkESHsCwDDYTT5P2yOpq0cFypAOF2nKNDuVB63NJWXewShrQgJNH9kLQQD40kbcTfikSp1cE8OXaG9Y9_K0zB-1lppa6y1OxHsJcuYzuJ_-bTSYyBuJ-05mIhHSJ3j8pmg0_EAyZbKDT1pkop75R_zrUJtcOXqh4C2NEdnX_vFco_Dw72jzVxOwJd2hGdIVIfZ_6qAx5WIbjzqZsIduzhSIjcCWvcCdwpwJFhUEZiE9FkI7cKi15WM76Auqyy-7F1GRcRm3OovE9bg.jpg" width="400"><br>
 
@@ -288,7 +397,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 <img src="https://cdn1.telesco.pe/file/eIQ-7DF2bDE6Tk2gRkl-r3zKqMzo2cQt4gyCFw1okrzuTwZzG-GrUVOpBEAz4t13cCzicYvTpUnIATGWxu7HmVIWOVj1zt7Zf9w0BJ21Nho9SjqKtMfGvRxp8s3iffuy7ck19ke42duH8UPsy47ktL9K9nVL-mKaCKUnrGJahGA4VtDZkYaVEPKKDtd9OtP-qLbeF26FvrAWYgLBTL3P0PtHrICaHdSR_5yApDDMJm2I8CD66W4akAPzHX2KkR_KpGwLAauhP0-Up-C2h91q3gE9UI29ZiB1dUrjMGdYZZTbOvzWVq9Hp1c47r-GMjBgt4EeyAbGpEpqSzU2gcBpNg.jpg" width="400"><br>
 
@@ -318,7 +427,7 @@ axios.com
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
 
 
@@ -344,9 +453,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-18 14:30:47
+###### 🔵 Updated at: 2026-06-18 17:49:19
 
-<img src="https://cdn1.telesco.pe/file/RSHQXGvqaC5SlqamT_G7kqqMr2AstMdgFg_7FzLGwcQQWTEo2E7EFa_e1uZSe1D57gghfIgok6Np5RynYySIuVymVGmKTJNhXu6d8G03iEK7VPRdEtzwdC9Dd97Qhnjq-6je4r_dxW5_rZ0vR-bsbF2LENKfFIxqB3aFIs4gFSwo7PGhXsEJTd3rBMd7OKMhQf5oxoFSsDr2kzNNNDVMmRI3BOdVG6GebLO_FxW4iIE74TG8EF_iemonoPxxH7I7Sc2Vn_brcm1Hofg55XDNR4iC_ENOORzSAfxmDyDhBBizuNQeOWtVOvvYr17I-qRt8PWlx6lSg3aF_wzzg2VPhg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/tdnLnKmBJ_iL-6dR1O5RqJaki7be3w4RaGbF4LpxZqMskToNFtqttNn3RIxD7c1ZtGNF0DqpTXgY-gvtIHvqodHIrXjEPmdF5dX_2_xsF6h5gTi0jH-zU1J7s3-awfxpPkXDBKmNhIuv03J3DdSBLuB_KevW6TxX6cOV_xxbTyuwh--nKwTZqnGWhpDceEN957F4-xOaHZZL90UrI3WTfVN6EzgvgMPPVsB4kmHLO1yGYJcbNglJDIich_9VA5lOXAU4jw03vtqgYAG_TsUq2pOgJFKc6drU_gi4LSxC0o-yORoCeLa9yO-RcBzoaRr0UVfCvTY9R6MGMrJgAdOm7w.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 من ۴۵ دقیقه دیگر از فرانسه یک کنفرانس خبری برگزار خواهم کرد. سپس برای شام با رهبران فرانسه و دیگر رهبران اروپایی به ورسای می‌روم و امشب به خانه بازمی‌گردم!
@@ -358,95 +467,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76451)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 14:30:47
-
-<img src="https://cdn4.telesco.pe/file/Sm5xA379S8Gs__i9wdjQNTiUMjffd569JYl__HiAqJGRIlT9RSI3ffPolN65NzXPN4nSLWka4d0l-bHdGctv2XoG2dUooX8BpeDiPMaV7Sj2iQxubd35mr123CzXhV58p2qZqzyaOIjkxSrbBL_-eQYii1WdSPXXLWyKTjzNqaEwjZLFX8i2Qf6pcRyWJZMljWtGdqk8yZGcH7OBXFMmvgmoaeGgeCd0jhwc0feO1HvYIHfvvequWsKxaQWqtWRcGw2q4s4htreeRvYCYmQ2NQcfkl_vrcolIPfSNzLhtDEX-Yhedy49UhwdsDr-6R2_jKAKyfebZsDxvafY42pt-w.jpg" width="400"><br>
-
-جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در گفتگو با برنامه صبحگاهی شبکه سی‌بی‌اس (CBS)، از سیاست‌های دولت دونالد ترامپ در قبال جمهوری اسلامی ایران دفاع کرد و به انتقاد از کسانی پرداخت که به گفته او، صرفا به دنبال تداوم درگیری نظامی هستند.
-ونس با تفکیک میان «ابزار» و «هدف» در سیاست خارجی واشنگتن گفت: «رئیس‌جمهوری از دیپلماسی، اهرم‌های اقتصادی و فشار نظامی استفاده کرد تا مطمئن شود ایران به سلاح هسته‌ای دست پیدا نمی‌کند؛ هدف اصلی همواره همین بوده است». او با انتقاد از تندروها افزود: «بعضی‌ها فقط می‌خواهند بمباران‌ها ادامه داشته باشد، بدون اینکه توجه کنند آیا این کار اصلا دستاوردی برای مردم آمریکا دارد یا خیر».
-معاون رئیس‌جمهوری آمریکا در پایان تاکید کرد که هدف ترامپ ایجاد بدبختی و رنج برای مردم ایران نیست، بلکه تمرکز اصلی دولت او، مهار برنامه‌های تسلیحاتی و جلوگیری از دستیابی تهران به سلاح هسته‌ای است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76450)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 14:30:47
-
-<img src="https://cdn1.telesco.pe/file/WagzUcbYigO7WVjtr04zD6K68iOB_0mHIrz23NNLWAtCfxiorQ7X_yvYmbsV9qxESKVxMZyyPsvdav9I0bQR9fj-fGaiUK6fr36ZpqH7Xv-YE1UuZWKt0QKlG21u8p8mrdiPoRlJf3jRYVMgVr8dZpxvHl0Jqqi6tNz0I0OD1mHMtsMLdfOHII5wRTxMGnD77t5EIyEooqpqwDJVR1zHIyKaz6pKEnZXucMs2raa8pv2IA2v-m8bvVzvjy5bkV3MT4JOuTwe393fQDjQNi_5dVch7c27gEux2OrHRQpNv5ImJd8AewGn8mdObImYrTo_MGh5n_IXxJe_ENXeWDwgEw.jpg" width="400"><br>
-
-.
-
-[View Post](https://t.me/VahidOnline/76449)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 14:30:47
-
-
-
-زاکانی: خامنه‌ای در «عراق» هم تشییع می‌شود
-علیرضا زاکانی، شهردار تهران روز چهارشنبه ۲۷ خردادماه برای نخستین بار و برخلاف گفته‌های پیشین مقام‌های جمهوری اسلامی اعلام کرد که مراسم تشییع علی خامنه‌ای در عراق هم برگزار می‌شود.
-زاکانی به خبرنگاران گفت پس از دو روز مراسم وداع، جسد علی خامنه‌ای در روز ۱۵ تیر در تهران، ۱۶ تیر در قم و ۱۷ تیر در عراق تشییع خواهد شد.
-مقام‌های جمهوری اسلامی پیش از این اعلام کرده بودند که رهبر پیشین  در مشهد دفن خواهد شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76448)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 14:30:47
-
-
-
-محمدباقر قالیباف، رییس مجلس جمهوری اسلامی و رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، درباره اهمیت روابط اقتصادی با چین گفت جمهوری اسلامی باید از مرحله تقابل عبور کند و بر توسعه اقتصادی متمرکز شود.
-قالیباف در نشست همفکری نماینده ویژه در امور چین با اتاق بازرگانی ایران گفت: «باید سنگر را از بچه‌های لانچر تحویل بگیریم، مردم را از زیر فشار اقتصادی دربیاوریم و کشور را بسازیم.»
-او با توصیف جایگاه چین به‌عنوان کشوری «منحصربه‌فرد» برای جمهوری اسلامی در حوزه تجارت، افزود پکن باید باور کند که تهران «شریکی به تمام معنا» برای چین است.
-رییس مجلس جمهوری اسلامی گفت هر بلوکی که با حضور کشورهای ساحلی خلیج فارس شکل بگیرد، محوریت آن «حتما چین و جمهوری اسلامی» خواهد بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76447)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 14:30:47
-
-<img src="https://cdn1.telesco.pe/file/vqLmb_Azbo-wOPSX1EuFNgzzkE5QJtvpxuq1oZ_VuLjDE-riTjOekzkM2E2gIUuhTtZplkCKU-CEPJkFNkUTan2iNqh_-uVskyJLdB-y7y7By-xsJjyp5c9KZBgYdlZYLubfd0AUmiZJ_B8q5qMlIMLP7xV9aBdvNgj-uhEo6dN4mdVdo24dtEcY7Ivbo3xh2YjyqzT1ZBqOlgEjsvxCBHzkbvLwOTwOlWLnGYArgZNx-iEfN11_pyb5F8fPeMBzWLmSz-Iv2-zYjBDDfXo7SFQSaAJognhw4v6dnq3juht1tQ79eIHFG2lucSMoant9RziJGhDG2REwRl-h69K0ng.jpg" width="400"><br>
-
-دونالد ترامپ می‌گوید اگر از توافق رضایت نداشته باشد و ایران رفتارش را اصلاح نکند، بار دیگر ایران را بمباران خواهد کرد.
-رئیس‌جمهور آمریکا که روز چهارشنبه در نشستی خبری همراه با عبدالفتاح السیسی، رئیس‌جمهور مصر، در حاشیه نشست رهبران گروه ۷ در فرانسه صحبت می‌کرد، گفت: «این فقط یک یادداشت تفاهم است. اگر از آن راضی نباشم و رفتارشان را اصلاح نکنند، دوباره به سمت آن‌ها شلیک می‌کنیم و روی سرشان بمب می‌اندازیم.»
-دونالد ترامپ همچنین گزارش‌ها دربارهٔ سرمایه‌گذاری ۳۰۰ میلیارد دلاری این کشور در ایران بر اساس تفاهم‌نامه را نادرست خواند، اما گفت که آمریکا مانع سرمایه‌گذاری دیگر کشورها در ایران نخواهد شد.
-متن تفاهم‌نامه هنوز  منتشر نشده، اما بر اساس یکی از بندهای متنی که برخی رسانه‌های آمریکایی منتشر کرده‌اند، چنین ذکر شده که «ایالات متحده متعهد می‌شود همراه با شرکای منطقه‌ای خود، طرحی جامع و مورد توافق دو طرف برای بازسازی و توسعه اقتصادی جمهوری اسلامی تدوین کند و تأمین مالی دست‌کم ۳۰۰ میلیارد دلار را تضمین نماید. سازوکار اجرای این طرح، به عنوان بخشی از توافق نهایی، ظرف ۶۰ روز تدوین خواهد شد».
-رئیس‌جمهور آمریکا همچنین گفت در متن تفاهم‌نامه گفته نشده است که آمریکا پولی به ایران پرداخت می‌کند و وجود بندی دربارهٔ رفع فوری تحریم‌های ایران در متن تفاهم‌نامه را نیز رد کرد.
-در متن منتشرشده در رسانه‌های آمریکایی، که صحت آن هنوز مورد تأیید قرار نگرفته، آمده است که «ایالات متحده متعهد می‌شود بر اساس جدول زمانی مورد توافق در توافق نهایی، همهٔ انواع تحریم‌های اعمال‌شده علیه جمهوری اسلامی ایران را لغو کند؛ از جمله قطعنامه‌های شورای امنیت سازمان ملل و شورای حکام آژانس بین‌المللی انرژی اتمی و همچنین تمامی تحریم‌های یکجانبه آمریکا، اعم از اولیه و ثانویه».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76445)
 
 ---
 
