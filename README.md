@@ -3,9 +3,25 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
-<img src="https://cdn1.telesco.pe/file/MKfhlW6ceXHJqiTiXzMAzdtI4cwid7WJeNZpH5DPhNfVVu-X5Td_C_Mo6LmTqrsVnbQzlyGC3rcGoxWvhp99siXKeVRc7mletXx4dtwxeg-qKy7F3PfHa5fxqykZNfiia3fKkZrZ58402y_JekKRfdIy2Gdff8n_5witAQg6RTyGBoC5s5egQ760d4tylFr7Mo1jWzTVZWYdL4irLWlXoGZ7_13E81Fg5LGRU_ys21awUcVzsIDT15xZ4j1f_rfmd-qKy3wgYOSAm3OIzhUoRjDBAeOgJIg6BR7qiX0JKjywhLcXBTrajQkMgLHsm4gmlJF6zxytp9RcmB9Wxru5rQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Z7yvfqsAaFR586Nwg5kag4hAxw-zoSkMMD3GnieKFp3BuS6MV8OtbvSKLUFhqSDx1gx15BgO0EdltHR2conugbKSRsdWkXLkRM0r0q0EDWy-A0mOne1GEK1J-N5UylqJzFG4weY9XKzlIp6uSTCObbFaRFDAPDYRB-XpXbfe9hIdJSUDRzBor9O-QrVd55TfnPC0BYsjE0DhlXdxb9A5KQlBK8h8abTxpPJKlFvVP8Y9fBpxfUemwoz1c1-UvgvregWub3Cp-ieHMrGPwvc2D4DshMnBcrOdEGo8vjLz8PFpg0aG88VqfjEthAsGO3cRWmFeF-grRXWfU0KJxwBdBA.jpg" width="400"><br>
+
+این توییت ۹ سال پیش ترامپ داره توجه می‌گیره:
+ایران به آخر خط رسیده بود و آماده فروپاشی بود، تا این‌که آمریکا از راه رسید  و در قالب «توافق ایران» به آن یک طناب نجات داد: ۱۵۰ میلیارد دلار.
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76475)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-18 10:11:20
+
+<img src="https://cdn1.telesco.pe/file/JH13bf3XNn73ub8equbj2ooEyEmRsrLBw7FdzJ070IGJCbc2uqQTzge-aIJvOacqgsHA0MlFbcayMJ4g6dQ2ogAGcwPwjPjXp7H38W4WP_2oVnBumUxBhKNOeJ_tn4oT8ttvMhCQY9acRWFJZYFIHNqXnBKaJxTlRrJb3mfv-ra9jNgXRPNv5PObo5baZuEh3ODDqMuYcPz-Th1Dcf2Nh8p9s_TqaC5_m_WSlghzvTd9PxZPjJNi8z9HltbS8l-fWikcvL4MIG1jiwJlSA98Q8GcItRshoPkAJCPhE2IgzZhg1Adg4C7R-kGaIUjrE8Kmp1OT7TEa-jOQcYB0j4DOQ.jpg" width="400"><br>
 
 درستش کردم
 MahvashJebeli
@@ -18,11 +34,13 @@ MahvashJebeli
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 <img src="https://cdn1.telesco.pe/file/TvBEF3Q3I_kUbA5_Z8-m-Of3z_0fOY83EIdSWJFyEXKkem3DhP0TAR0rrHD2B9XYAhy2tKfPm-tJinLh_IwPGNiKGZUFg54Lyy_XcJrFyB46TOwLkjH75xlTeho0LVDDdzOTbK0m3F6dpWyMb8DrnkD6aE0FsNInzQmLXvswxTg-04HIlp0bQGBSPpPh1_AH4BeM685I3eQ-dA3Ua4SDhiBQu-8Oj1j7UVFH5qDNxM7iq5BEOVFW98Nne3aIov4Z56RuD5Xy8fC7qddtRB6bdh0kd6Mnlwv5osJqZFQuzWfMgMzLdbyCp7XMWDoS7rSSqMKNB-WOyZuyEjVWJIAEKQ.jpg" width="400"><br>
 
-امضای پزشکیان
+امضای پزشکیان پس از
+امضای ترامپ
+تصاویر منتشر شده از سوی ایرنا
 📡
 @VahidOnline
 
@@ -32,7 +50,7 @@ MahvashJebeli
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 
 
@@ -49,7 +67,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 
 
@@ -81,7 +99,7 @@ CMShehbaz
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 
 
@@ -109,7 +127,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 <img src="https://cdn4.telesco.pe/file/m41zDE-9CfWXx_zTCJvkSA2DzT-eBj5ubHeSSXS0ZB0h16EU4hMcrcbvypSbvEvKB8qvuIZcsrtjqy0wOcn1Sebz-UBkUYN2ID-fW2jSY7vgBPVt0ANNfEXxLdc6Sh8fgyqDX8OEcYDXBwg8ixnG9fLZvaeDe2FtQAZDJ99nRFZeJri4JsmNwDosbx3vpF5qPTyzgz7VIqDauSqk5y2n7yEoqVy40L-Jg2hNMUTDOzonzQEQw5eGoTDzs6G-7gPtwPCPTWTOdUEH9dx6373iMHRCTeIazAZVJw8jZraz4rKH7oM5bfseYjS983Ai82N70Rz2lHcrAcSASRmFEFVCMg.jpg" width="400"><br>
 
@@ -128,7 +146,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 
 
@@ -250,7 +268,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 <img src="https://cdn4.telesco.pe/file/U4qr1TB_eZ3XVabcm-00QywaYCDvZZU_xzxMt9qMWKKC6kAM7EqSW0QKrc0JIvgMWc14pfotDkESHsCwDDYTT5P2yOpq0cFypAOF2nKNDuVB63NJWXewShrQgJNH9kLQQD40kbcTfikSp1cE8OXaG9Y9_K0zB-1lppa6y1OxHsJcuYzuJ_-bTSYyBuJ-05mIhHSJ3j8pmg0_EAyZbKDT1pkop75R_zrUJtcOXqh4C2NEdnX_vFco_Dw72jzVxOwJd2hGdIVIfZ_6qAx5WIbjzqZsIduzhSIjcCWvcCdwpwJFhUEZiE9FkI7cKi15WM76Auqyy-7F1GRcRm3OovE9bg.jpg" width="400"><br>
 
@@ -270,7 +288,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 <img src="https://cdn1.telesco.pe/file/eIQ-7DF2bDE6Tk2gRkl-r3zKqMzo2cQt4gyCFw1okrzuTwZzG-GrUVOpBEAz4t13cCzicYvTpUnIATGWxu7HmVIWOVj1zt7Zf9w0BJ21Nho9SjqKtMfGvRxp8s3iffuy7ck19ke42duH8UPsy47ktL9K9nVL-mKaCKUnrGJahGA4VtDZkYaVEPKKDtd9OtP-qLbeF26FvrAWYgLBTL3P0PtHrICaHdSR_5yApDDMJm2I8CD66W4akAPzHX2KkR_KpGwLAauhP0-Up-C2h91q3gE9UI29ZiB1dUrjMGdYZZTbOvzWVq9Hp1c47r-GMjBgt4EeyAbGpEpqSzU2gcBpNg.jpg" width="400"><br>
 
@@ -300,7 +318,7 @@ axios.com
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 
 
@@ -326,7 +344,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 <img src="https://cdn1.telesco.pe/file/RSHQXGvqaC5SlqamT_G7kqqMr2AstMdgFg_7FzLGwcQQWTEo2E7EFa_e1uZSe1D57gghfIgok6Np5RynYySIuVymVGmKTJNhXu6d8G03iEK7VPRdEtzwdC9Dd97Qhnjq-6je4r_dxW5_rZ0vR-bsbF2LENKfFIxqB3aFIs4gFSwo7PGhXsEJTd3rBMd7OKMhQf5oxoFSsDr2kzNNNDVMmRI3BOdVG6GebLO_FxW4iIE74TG8EF_iemonoPxxH7I7Sc2Vn_brcm1Hofg55XDNR4iC_ENOORzSAfxmDyDhBBizuNQeOWtVOvvYr17I-qRt8PWlx6lSg3aF_wzzg2VPhg.jpg" width="400"><br>
 
@@ -345,7 +363,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 <img src="https://cdn4.telesco.pe/file/Sm5xA379S8Gs__i9wdjQNTiUMjffd569JYl__HiAqJGRIlT9RSI3ffPolN65NzXPN4nSLWka4d0l-bHdGctv2XoG2dUooX8BpeDiPMaV7Sj2iQxubd35mr123CzXhV58p2qZqzyaOIjkxSrbBL_-eQYii1WdSPXXLWyKTjzNqaEwjZLFX8i2Qf6pcRyWJZMljWtGdqk8yZGcH7OBXFMmvgmoaeGgeCd0jhwc0feO1HvYIHfvvequWsKxaQWqtWRcGw2q4s4htreeRvYCYmQ2NQcfkl_vrcolIPfSNzLhtDEX-Yhedy49UhwdsDr-6R2_jKAKyfebZsDxvafY42pt-w.jpg" width="400"><br>
 
@@ -363,7 +381,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 <img src="https://cdn1.telesco.pe/file/WagzUcbYigO7WVjtr04zD6K68iOB_0mHIrz23NNLWAtCfxiorQ7X_yvYmbsV9qxESKVxMZyyPsvdav9I0bQR9fj-fGaiUK6fr36ZpqH7Xv-YE1UuZWKt0QKlG21u8p8mrdiPoRlJf3jRYVMgVr8dZpxvHl0Jqqi6tNz0I0OD1mHMtsMLdfOHII5wRTxMGnD77t5EIyEooqpqwDJVR1zHIyKaz6pKEnZXucMs2raa8pv2IA2v-m8bvVzvjy5bkV3MT4JOuTwe393fQDjQNi_5dVch7c27gEux2OrHRQpNv5ImJd8AewGn8mdObImYrTo_MGh5n_IXxJe_ENXeWDwgEw.jpg" width="400"><br>
 
@@ -375,7 +393,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 
 
@@ -394,7 +412,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 
 
@@ -413,7 +431,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-18 05:14:48
+###### 🔵 Updated at: 2026-06-18 10:11:20
 
 <img src="https://cdn1.telesco.pe/file/vqLmb_Azbo-wOPSX1EuFNgzzkE5QJtvpxuq1oZ_VuLjDE-riTjOekzkM2E2gIUuhTtZplkCKU-CEPJkFNkUTan2iNqh_-uVskyJLdB-y7y7By-xsJjyp5c9KZBgYdlZYLubfd0AUmiZJ_B8q5qMlIMLP7xV9aBdvNgj-uhEo6dN4mdVdo24dtEcY7Ivbo3xh2YjyqzT1ZBqOlgEjsvxCBHzkbvLwOTwOlWLnGYArgZNx-iEfN11_pyb5F8fPeMBzWLmSz-Iv2-zYjBDDfXo7SFQSaAJognhw4v6dnq3juht1tQ79eIHFG2lucSMoant9RziJGhDG2REwRl-h69K0ng.jpg" width="400"><br>
 
@@ -429,25 +447,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76445)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-18 05:14:48
-
-<img src="https://cdn1.telesco.pe/file/AXpPgiRH7SMPEncwLMUMHsohTIQJkM6TWHg5QoVUqvJTZzv6Ao9w_kdX9svH1I6fQfS_70knNecdLS4dF7qA-Q16ef6qdVSy0_xDCi7p12EN1QimojRQaDh7zbshtA22XKwv4uhyPzH8SN5ccUKdvZJFsbLd1x2a1A4ZTiiSVZcE9mpRXtzLKfDK26j8B1A2bJk0dPp60gawltf9vI8Qjnv7_a3Sex1IKhLu1FiHgnP_d3tOMbfmjV4gWiazaSYr-JYv6BFiJMOH4q4RfBRIdj75Z5mHqHyT8XX63TnfKXmZJ6mQly5-Dzoohp1x18TfQBr3m3qHG6b0XMBPm4JzIQ.jpg" width="400"><br>
-
-ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس جمهوری اسلامی، با انتقاد از یادداشت تفاهم میان جمهوری اسلامی و آمریکا، این توافق را «نامتوازن» توصیف کرد و گفت همه خطوط قرمز جمهوری اسلامی در آن رعایت نشد.
-رضایی در یک گفت‌وگوی تلویزیونی افزود جنگ پایان نیافته و نباید تصور کرد شرایط از وضعیت تقابل خارج شده است. او گفت: «ما در یک جنگ ترکیبی تمام‌عیار هستیم و باید از فرصت ایجادشده برای قوی‌تر شدن استفاده کنیم.»
-سخنگوی کمیسیون امنیت ملی مجلس جمهوری اسلامی همچنین از منتقدان یادداشت تفاهم دفاع کرد و گفت نباید مخالفان تفاهم را «تندرو» خواند. او افزود: «اگر این افراد نبودند، الان سربازان آمریکایی بالای سر ما بودند.»
-رضایی پیش‌تر نیز در شبکه اجتماعی ایکس نسبت به نحوه دفاع حامیان توافق از این تفاهم‌نامه انتقاد کرد. او از مقام‌های جمهوری اسلامی خواست از منابع عمومی برای تبلیغ «توافق» استفاده نکنند، منتقدان را تحمل کنند و برای توجیه تصمیم‌گیری‌ها از رهبر جمهوری اسلامی هزینه نکنند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76444)
 
 ---
 
