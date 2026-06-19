@@ -3,7 +3,26 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
+
+<img src="https://cdn1.telesco.pe/file/eIo4Vhi2jQAPKOcWtty-Hkxm0VfxPZ45zBt20UABQO4Za-dsnwCKcNO-U9MLhwuWmX9lSp2R5LY2rIpH0FltWF_YD4zei3fgQI5lqhvFKk0Su6gWXCMaTihZDz6dxjR2HWkb0YdGDIqSfZxIhwhJgoTOYmhOjvLm4AB5UB6QDV-2acXnS_QkWOlr1xhVAribmgDjPaUt7jjHvYOh_WBxCUH2MJTuZHMY71zkpNvJwEk41j56jbvI6kUzeipNW7zUR0JfnbUTPyECqFvYlKYeXhljvclkb1gix2u3KSDOTO51-fIeNbGh0opuh3RNNTf86e1ggKBaxB8IgVibYNC2BA.jpg" width="400"><br>
+
+نعیم قاسم، دبیرکل حزب‌الله لبنان، گفت: «تا زمانی که توان ایستادگی داریم، چرا باید تسلیم شویم؟.»
+او تحویل سلاح‌های حزب‌الله را رد کرد و افزود این سلاح‌ها برای مقابله با اسرائیل هستند.
+نعیم قاسم همچنین گفت که ما تصمیمی «به سبک کربلا» گرفتیم و این تصمیم همچنان به قوت خود باقی است.
+دبیرکل حزب‌الله لبنان ادامه داد: «ما وحدت نیروهای مقاومت را حفظ کرده‌ایم و وحدت جنبش امل، حزب‌الله و سایر نیروها همچنان در کنار ما برقرار است.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76522)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/SX3ZKCO-9pFR-azgfXzLcnD6yOB-PrMa6mDqZPsW61oQNmmcTwbVCzc0B5olSKGxtSeUgGXr2NSSzuzSJoHLUmO6QN9Zso45UM7iEHSjlCYMOukc9L7DiQUoR4ikUp96Ae7F_YnwsigSpfTukEfLxD6596xFbSulPn3p8yqdPRMrlMtHoQV7ngkZOH_g4orWZGejG8Wn0Uxvsr3run_TWl1xd2hzNhjN22M3T7Zcy30hA2bMw3pLL7RvbTf9Uj7FbUKAT44x5NoJ1Sb1EtN5af14cenLf9rEyqsQPzr_Z0pHp7UaMKHf5C9pbgOQmqCUYVyJoWvuEjKkIlShVnJJ1g.jpg" width="400"><br>
 
@@ -25,7 +44,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/Rvwn0cq-so5ecbxrtB-CNTXAVIc_ydcRohHjiSTUpp_x60Tqo0W6Zf8Yc5HWCQyPPJvNYifT2DU-7HQW22DzjqSUApZKtpeZO5AcHIvscbCWrELz648Ncu5XvcIX1fit1puEbfGHK-S6rmfQKDrucxnIAh7qkleHQuKuJiQlntPsPC5EwRHcd0K8Ii-6mAcAyLJj04uIvjDT-TJpvO-3P7EwzRgQ90lNssgu2jQjkDEhVRaaqhJDeFJcuco1kCn8QqsUrU5Rx_0d81tbNGHGZYjpbDOso6GUVvq6OfX_uMFpZ9Zh0A19XUUNUREsArjgsDGMFsYjGP7VxvqL33Apww.jpg" width="400"><br>
 
@@ -45,7 +64,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn1.telesco.pe/file/R_DbgQvx34mq1YhsBIGuT87fqxB7LFgfiQoW31oTgAmff1wZaVx2oD6xwS3-wHqK_zBJtfMLBn5Q-cVyrrS8jabIvkl-xn435sCsJkyqrJpoogxtm8QGgBNG6aubq1vHGAm_NZtbzmaxXAnvWGHUjYoXA6xcE8Y1qeUt5gkEyS6ObktsfcTgt1EDUO4pj7n99sZ_A70jhVcbJG8p_lE4dasYhqwanlw9KHCMJuVHoILO0Mp6eJ81rd5VR3FV5rRvlJXzLhrv9jI4vl8Y7FYePQRD9FzDXVxEx2rAXpmxT5nIwkrl1fHOIzBv5RvN21YN9eGNtIMKkkRHgsPiVlBDYw.jpg" width="400"><br>
 
@@ -70,7 +89,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/bgYEkkPXkA6RwIJ7Gs6joLZo2ppOwNA_3_AWs-Ijr36yfI-MoDF80amstjanfq3Ulik5nRigA8HkkhuZAzQoVqmgSCPrmFhIWcDQcCoqrFK-8IYmL47uLVtzjna-G1vYmD2WbI58FTfblvxR12qTt5cLXTwCKzFWwsfjtUDqpdYaC0PRmP6T7eG6YLjmIDCqmTjTO-2Qbo9evhyQuA4hHxHqQNxyRj6TqkAuVJoT_340lbYY07KZu_M-JVAeZKD_hCnH2DIc9Qr_m-mg35j2mjAk1dK0dzq7M7nzZd9S7Co_Ctk5lNNjdyEZmhXwWYPtJCJPLSltSk4gQANz1As1kw.jpg" width="400"><br>
 
@@ -91,7 +110,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/dSYhSkpsBtyi80V9Eglhk-YATwih_bJJm-ip14EtN0kHMKlsuT68dYef7yph9m7WcMtOvZmvNdWaoWWuWkodiO9vjh-24wtxEQSew41naNrGW6MS_ndIy4VdCk-XH1xM7eG0YK5B3lXMawwNr-RfFgwDvtUksXe9A294_7utN-1e4aWd-Vl-70sBlP8qXQYxiKTWyHLK_fUBg6UaYxVH40RDyOKwbDxWQ_07_6gXDf6uuD2YOiC4uD-ZFgYLQpuZ1TDqXkmxitc60102rtkEh85Kxu6p6DxdUP-WS9qU7lhJfIoErgXFdDsiaYSnKQhsMlI_hKb5lLJGA1GRitUzAQ.jpg" width="400"><br>
 
@@ -112,7 +131,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn1.telesco.pe/file/P_VduYcEbjwHvtE52U5DiGav7OBBal_J9I41usaeBfUHFUFoTiEyA8CZVbKpElrOCmslgAnJy24LLrVW_JCyskr8oBz2bKpPrBG4Kh2-YwibViok2ax22inJdfLHH8t26NrNfuHgz17wMaXoru9T0h1WbqKSp72rH7CR7nnXulcaCR5KY0WOuuM918jqg8Sj5ywnJH1LdLGi39_2AzfPzPvXNxN8TUl9hVOaUTZEfEgVeDS76S1kNZuy5L0YcHo9zrrnosIMLxm5YnKZ3ATB94MHsLGuRM72XvY29kRqBHWLA-GZQHIsN6zKXuL9DIgtwQnLxsjpW4GI-7E5yBfDJg.jpg" width="400"><br>
 
@@ -130,7 +149,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn1.telesco.pe/file/lM5Erqfax9nx26WsAR_865OtRq3RWuG375rypNubW61goI2JgkPqtcZvZdg19vN6ttLNziQ3ZUE4jVF5dVXs_iAer4b1jKRwtMZHcGoqT_y9YtBVHSa4OKxsrGbfDHKH2ymNeepyzYi8K5SinLyBp6fCyrGHnLf4ieSutLd8MleCQW9ho0Gym7ZP_rS4b_Cuf4PX3QMtGH0ucMKzyXIadE6V1sr5LbTlsfqG4bBqFe2EV6yFBLkG6qvUXkahukon759tlLYx3A6-mM7ye3GcdR1hLYhzLJ9hObG3pN0WQmg-2QlMF_6uxtkRBJGchQ4hFGm5sYilMgmtfvrwOE9cfA.jpg" width="400"><br>
 
@@ -159,7 +178,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/iZoeW53iBL0ROeIEaMt8BSCPpSzsjruz7gZV6pizcpShFv3HezbtIJzrUAwV38mWFjg5JIy0N7SSatiN7E-CwK89jGmW4rIZbqNIsWu7sWceVivgEbSfXu7D33yswikkyGpLBqiKnHJM5V1FvdWs6SRevqGDl8wZHQ2e9qzla6KPoZe06QwDYbAuFD3uhu1mLyx1zGDJwcyqf7XH-HGWZl8icKYYDYJStC8km_31w-Hb9uHYUUAlZDSpWbTGLc2R8Ex_jxKnIpGcX20bipNz8qzN9yYpmz6yNP2AdhdaDmzcPJNKyzjCB62-W1j2JEOTLadELxnGuaQu82O7dmLkuQ.jpg" width="400"><br>
 
@@ -178,7 +197,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/r4P250CZDMqX3GPUadbYrW6-l7GNygNmH7Jw9I-jgnWVhzKUzY4SDwvf2nttspg0yeT0h3YsbQKkOYA_vx7F2Pa4FAI-jaTOooyHz2vNijsXt8McuOFkC22ePWW7G5YbEry53cbk77-suNFpOAERhoKXJCyeOuAUSUQfJKuXg2TE-xQxmDskVn-Lo545VpcsbeRufOVTeokySSz0cpQciE-ZI7wUY08W7PZhqzB99PcibVkK2DGo3oGodRwReEqG-RYeoj8HOZuRsgHfiKJVzhHc-a4qgbiWBSyfJolrl-YClNW7oTxqwZF8SmV1mXwnWng64iPigvJW84lPqASl_Q.jpg" width="400"><br>
 
@@ -197,7 +216,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn1.telesco.pe/file/IM0ePqrFxrHudhTzuFLilMzL1C5dRhGWe5qsUBynsEj-wS9jLL_jAXfPETGq271JRfVqouZiIgBMYAGKE60MEnq0TC4DZJRXVegd1LS27AmciA9l8jDTl_H5d4im_rNC4U9dgeqCpPwySx3u4qVTP46reH8EIRko1JczOq6Sa9AwmLriAU_eiPRfHX3IgdJHTc-_3IL5MlqW9TGfN9DefeOWC2VaQUt7T1-Y5mWSFtVnv2q2HWsnxDYv-QeXqvib_vvn4iJYF1FQUaPSS6zGoZyERF1-xWpIH-nuZnNUiOb0M--X07tdCJAfGwBAIqF8ij19h-1Zgd05WP70yTHV6Q.jpg" width="400"><br>
 
@@ -216,7 +235,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn1.telesco.pe/file/XtHpLkcK2-DXWHMcIzPpz1qI-3Yl87hxxA18qOpR1HIY3sPIGnFh_GJ7zCMjEP1MXGq0Gndm1xYTcQtOvsoUgWs374Vx2HISG5hGdOmYQMPBwwCnE5s8bf6IV5MXwDC49yh4Q3E4Xqkt5pebsfso0V-gJVxV8jsRqIvS-UIZ3deet1NKtVfJnNoVM8907F4f8TGZ0dnpJKTg4f3bbPw4voQ3o-NL-eTviSkICHM79CkePuMj_dfIbqIVebZpdM36q3VVVvMTO6S0Myks9VXBlfX8HXg1Lg0aWLVr5hpbUllZUQ0QFB4R1yg3DBZ_s_rV1jW_gjQ1LMLFrNyeZlGuIA.jpg" width="400"><br>
 
@@ -241,7 +260,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/nAKvC-8XkyFmqV8SdmdWnKrNgUGj-VDk4g36H4xvk-kplluPE8v8lbPkbxnSorhOBar_Mp4eB9V0yFg7T2nvH_mZuunntRSiWL4jaVpPUiqkzUbYp06D4tdoC0ZlBsbjQw4l9Z1FUWxAJJv8i767jXnNhLBTwwgcLTMMnWGs46sxWv09kOcOGQTkkLvg9NzBbBHpS2Ekyhm-v6JZXT_dtF7VHPLojkpBeIHddMn5bs0y2V_m6HJ0UK1YLcZGGSHNFsKCGKk_YOk0VVo2SNJCT5DTJablMNjW8P4ng0mXiuzpwvOX8WtNGm05sRaMQYQhAXmvNnOXWP0L6grwM4o3gQ.jpg" width="400"><br>
 
@@ -258,7 +277,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/eIJQ_XSbWXxEcv9MJuLAnHbzr1g28bJYWrFv46_xxKASFUkw6enkEu0WxtdYA5auwRSS8AGyeCu4Wst0-cdXEFk7W1jG_ed0CCFv5IC6iPqPQzBPC3P1Qxhs-Rzhvl5TKsW0QAOGmv_PT1rY6ijODnYWZ0_kbMWUFobiHAmnOsrfYJB-xG0mW_hrOy5vK59Rv6cgGyN_PvC6Q-SfKwTDbP7KhWQfImBa0-IY1IGNTcAMQXPUJ1ud-RwOjdwK3iD1jcWO6JC2F7bMZU9ivsXzDCy3Qz10gaRDdl0nOgzuqBynblHEWha3te2r4jhUAZWd7S-pH3igUS44Cjztm_WFjw.jpg" width="400"><br>
 
@@ -283,7 +302,7 @@ https://www.iranrights.org/fa/memorial/story/61687/ali-hassanpur
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/lrX9U9gaIQ3Eg2Ukq38vSX7QZaluj191y4nZkU4mIaJfTKaZ0Hpv6OZVQuPv-kwLOVCdt6msB-HKZAUUx4TwfWE9RwqD4izBmFcOKM7PobJjhoZG5o98t3t_1PaCoYHwNPa1RyuHnD3_PkrGyVOMTBIo9pAvluNt36VXHRcP7cUaBxEWf93fmoIoVvZ4UvGDcS5visCzEHK0xJfrS9JjzMeik5Tb3mDOYTiisXeZXhjMJ7auFphFkCQbiNFYplOxiEr_l15nuxdE5A1pDeqKo-p8PYao1XipU_puR4Gxr8yfv-ZzjnQeWxNo_GXmGn3CElYhYIYnmRHKP0irk4c9QA.jpg" width="400"><br>
 
@@ -300,7 +319,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-19 19:40:09
+###### 🔵 Updated at: 2026-06-19 21:35:57
 
 <img src="https://cdn4.telesco.pe/file/Xxe9ao1UnvQBPqj754jUEKYjPoB0wt2VwJX6O5lvlrGGU0QfeoG1ERTa2BTNTYGrXNUziT0wguMULEZiVQY0RZDhlVD4cm48h39P_SmEI5vDV8SvREFw-HLMwgkFn8ob-I7Dq6aWJ6lRvSvim74BED8U-dmdwQtTYZCv1KQovGYuvxF4fngOsPO5WFE6EiKAWYrvJmUop0ZfIE1Au4s3hmaJB__muZNVVYwQ1_F-AVnF947BEQpJAeA1zARUz_R2LHJlVFfin520xKW579_U4aL0IbtmZ77apCobIO39u4-_P3QeBY-FdiSE_--50NCxWwcC-p9ocxnJVPnLsy0u1w.jpg" width="400"><br>
 
@@ -314,27 +333,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76503)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-19 19:40:09
-
-<img src="https://cdn1.telesco.pe/file/cEu90BI0WCXS5_WSeTPVFQkgGzPm7tAKHfLFy1UiP4LaFYq44mS-2kvOXwCsZN4JPUB-mADUAe9MBCrXQWvcf387RmsCBvxAALQyMPksSJBi_KjRoqBLXh0CqPFVfiSs9r0AaCGlalthVoHOseu2KETJvXImA8sWHtYzeDc108zdzz5Mh4fxyyp2uXwu22uJ1fXouTKXauWCCFgfMMA5vTHzMYTrO61HfTsnUhMZNjAd3kU6I2XprDgKUYnMaplocfJJ7MP91GeKoNsGdjXGzIFUbM_DJYW9D0pThhd9gc4iyeki8eataONh8hHqelBjUhYzQgWaDuD6j4nE1ZeOiQ.jpg" width="400"><br>
-
-محمود قنبری‌راد، متخصص امنیت شبکه و از کارکنان یکی از شرکت‌های تهران، با اتهاماتی از جمله «اجتماع و تبانی علیه امنیت ملی»، «جمع‌آوری اطلاعات طبقه‌بندی‌شده» و «ارائه اطلاعات به اسرائیل» روبه‌رو شده است.
-بر اساس گزارش‌ها، محمود قنبری‌راد، شهروندی ۴۰ ساله و متأهل، اردیبهشت‌ماه سال جاری در منزل شخصی خود بازداشت شده است.
-یک منبع مطلع به دویچه‌وله گفته بود که او هیچ سابقه فعالیت سیاسی یا مدنی نداشته و به‌عنوان متخصص امنیت شبکه مشغول به کار بوده است.
-گزارش‌ها حاکی است که او در تماس تلفنی از زندان، پرونده خود را «ساختگی» توصیف کرده و گفته است که برای پذیرش اتهامات تحت فشار قرار دارد. همچنین اعلام شده که وی از زمان بازداشت تاکنون از دسترسی به وکیل محروم بوده است.
-بر اساس اطلاعات منتشرشده، محمود قنبری‌راد ابتدا حدود یک ماه در زندان اوین نگهداری شده و سپس به زندان فشافویه منتقل شده است.
-همچنین گفته شده که او از نوعی اختلال عصبی رنج می‌برد و خانواده‌اش نسبت به وضعیت جسمی و حقوقی او ابراز نگرانی کرده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76502)
 
 ---
 
