@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/Skpd1uFa5Tc5j7hEtON5W29k14gvEKlLIFYwfJ2MVR-8CzSEqUMUNzaS0OQ3uIG75pn3exggtUS0HUVjOw6tZ8v6ukajmRMWvk4PRxJor9i2AZKUYevNaOekskJam4-O1xJOFGEdVENjpHWr2O4VR2Ecnw1WMNk5N4VTif4rkVHhWoz8ZgsRnG6ZuWjFz_-CwTIGjhHI4YzlnQXZ96-q6Ja86NQSVXNWBiH5oBH5aUc3a70X7cJqo7bxQaEzZ_mlLDPAiNFSp-VYqWIzlorF9OOTEG20Lb_3r7rPhw43hertZjk3nNZych-9D_q39-Oov9-IO5C7scJEP92OXxRHiQ.jpg" width="400"><br>
 
@@ -22,7 +22,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/UWgk4x8EwIukcgcBfAx0K8coWjIY_rNd1BWcJDU5q-m5znUmqPxRQlElNclpac2OeMwrp4rh8XcYtBJkpEgdcJVjLUi23v_CRz-oQrAqs0rnmaMb4iern_FNaRdH3SqhEMs-yCcSYkX68pe2eO4ZCcIpTitY0XbGcfCz6Tvu9_u3m4-nlQZyfTGS-H0Qokrha32owTId6IV_zDkmjZXozll69Zo5dUJNg29V4QVse_7Zk5TnDwZN1GpQejNPyn6N1WJPa48oixC5fBpWNEt3EcEwErCIB1czkemn5FgJTmLGqq4TJTGYjeoyxe884yAVKQKt45h4rR_Oi-2XyhgSoQ.jpg" width="400"><br>
 
@@ -42,7 +42,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn4.telesco.pe/file/VBBn_Ptc8iRMGg1kdps1xWmv5vlo7B94pOfV0IOcg9Nz8senZX_2boO_-bzYmO1w8WB1r0bnKm9dqx243mY9XYyiPKYlOWIZqrv387l7zb7-0ll9oOck2V7CVCcq5ki0PTFahyjbwScF4ZEn5XqvOip4Gn9I9toHOiDGcBun5sX5dwPP6S-WQMb2jEIEX1Gd8HXuCpOZRHz7eNwOYASCLE7Tf6Jpu61SBGMA1XZJAQGhQpmibTJCMHL0Hz9R_T2UaEu5_XCN2bA5zATGuLzIRe9BHOhLEZQD-NF7-ceiRk6z7e2KaKmkbqJaHehfPqyNVf83a7mQtb5lGNpavNOcrw.jpg" width="400"><br>
 
@@ -59,7 +59,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/BP8Vh3IY8lLpyggUMo36eD8W8wQeqYJ5v9Zm2THUJ4N2Iew7-_eMWAnF6lscJzcxpQ6_4GR5r661cjkG80hewHkUDS3rRnIP4h_r6qatTX423zayaHZyHsLkhuubNombzIbYXvZsMf834Zn1DI6MfRKPc3Nhj_LXW0Kf6KK2uwXxlXEfeoMt4WOSsssKcOaiTJ6DRU9VKMX13E2sjFygsyQEnZXLKywzfuvNJTV5Za6TLNjobgXylrbbCgesK9hWLdUcWC4deUq_SuaAKN2dEdUnNiR1NwvwLPyJ05j3QKpnr_9Dhr24VhMnnGTN-qLO2t4_S_rTiRezAMUOZ-3Bng.jpg" width="400"><br>
 
@@ -76,7 +76,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn4.telesco.pe/file/siuihYPvKoPrBLFObLqodneyFgvS9rP4wkVkwnZd5CGmhFeSE5rSwYaYaDltI3nA9aTVnZR2KdtGVicvRvKnzCP_AEkDZCsegSR5UUUhT1sHNcu-4MKLn6jPJK4g902j35mjFL0BnEDsbz3a8-7X-scqcU8dnUer5vtdrMNoMf2rMmti0hxxNWhEhKWwqZ_BoUyovp4CfsduX3AOLjXGqVZUmhAY4Max1HqooMJp0c89Oe3eDl-hGmaKotrPZh6gWv2wipBy5O06hq5fRkYLTjsR3bSlYLpCHSm7fjJ1IjaD5AL8XLwFAuj89Ig3-Hm7zKNOLdRE97Dv7JNnf7Tulw.jpg" width="400"><br>
 
@@ -94,7 +94,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn4.telesco.pe/file/nV06vF0_fspZIE0iFE7yQCK3k9AmedtKmOQz2Ce2es-78wzgjDuG2gA4nBOrsyNuTMslnlBqvhmMuvrl4k-lpUrJIu0qDdaKbWApa0KCH25FCmS4sUTf204qrVy7uBSt8DAzWzYhueZ2hURr3bHxiEgoHWkoNDETc-lqYHdLlakIQ0cUH2ueqcAyPDXbXhWd5rIufPCMr30uMg5g7ooMYplmsRbfY0u4k_5LlDWusRtLuC4NVh5GPyefuPtQjbtURxS8CnfCL-YpVNU29LYkmVvYjN5nhS057sIFv4lBIhoC9YxO0HGMEASjGXDuM4N1fdM1bgsrrY8Q3Kk0JDB0RA.jpg" width="400"><br>
 
@@ -111,7 +111,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/kc3Y5QakLwdyxaC-Aui6mAO6HPgUp8IosqP4XGC-Ld6pNaGhKcCksSs7R9d1LsTNqL1baVJ1eNSzQEJ19hd3USRa2N1gpgN13gq7xquS3UHd1qbiVDLQQGzUbgZDr44VnVH0KdlMUpwf6GIlMlLzgl7QGuh5yXvxPxgW-dHDO-4mdO84JUUwCzvEkZhrkkdkjvaBWTDCtFLG04w169nMclyFAqBa4zFpmbUHbs4eHjdR66YRNDqNPflea3x0WDWKs9U10fwGYkOUXmNp1j-qDVG0SUB2_9tvNTBOrjo3R7jVTnlM5SMopmzadjgNxgnks7bXxVku92pu9Wr1RYWUVA.jpg" width="400"><br>
 
@@ -130,7 +130,7 @@ WhiteHouse
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/B2y3Ij6sxjDixVR6sTfQ0mdn-FpPtvcRy315hJhMbM2uyW2NBqt9XOwzS-9otLPKbhEqamttk3eANdrikbZwqr8iGiPLLpWsqmpzY-5GsM6sMG5cn1DiBC1C5llAIZSQlaqJEbyD3EzmQ8ErnrWzG9cBEydgvXUutZfCH5SZWdRTp2ChHCuA8KQDHzd6LX1CdN_x4WpH8sdGY0utwIONPolio6AddacA0DqVqu4Gs49PRlFY21fI3Wr8ex3BxD-EIgqzQizuXNKgFUE_sFZabft2182dWa_rzfVObVPBdTipqSta7EJ7iM5Rd7Q0ksB_NKbi0FlTkyN4wlWSS-UwMg.jpg" width="400"><br>
 
@@ -159,7 +159,7 @@ WhiteHouse
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/cZPTXDRa-op4XQWhoAo-aSzbtnM5rY2wAKnfB6zROMH6hAymg1ijkzkK6mn8acJC9U4dy6efqAOfB2pktjTaypZV1VF0Yaz1_TBNxVrNPivHe_WVeFxyefqIBNTkzUKH4k3knK3j_tIxN9KgciDGQX-xT8ummJaQRxkObHYbj5IpPy3V7MHKKo_fQoNAy28M8QBH25rgtrX9ZTmC9P1IbakqU7LqFHSH1GlLFQZG-RnT-MVH0H_qFiUTv4cA5jBar1YlqcmPqJu4w8Hpg1jR1V_U0uCiIDc2BizbueJ90x5WfUMJPX584Hcg3qjuv0RwuOjlrbodUIHsoLz0hQ4lbw.jpg" width="400"><br>
 
@@ -180,7 +180,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 
 
@@ -195,7 +195,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/qLbL4cGf8ud8Z9sRjh8Iaqq_PA18YetVJy2iPpvpUwL3ntXeAWRIqlQX0I09SDLZcdUiXsOxkx52QcHFnAOLhpdT-rMt8oySBA_2S5AzKM4XnwfnBOCDIPpXgTpP73iK1D-6T0SME0x1VKbyy_p3z7lQkPe6msqKiwvGe7-xLGB1L8mLuWc6oFrhQGApvIlXpZLMYhIHWxG7ocZ4f2_e0iK22fS-3sJoSXjheBspGGWDh39zSw8gB83iqHAAUuXk1-qq_wG3fmzGHj7Spa8On8eEk6aRUwZ3MCPlg0l4e9S6LFIp4Q5GqxQedDusqsXMB2FrTznrD9tui-BOoBwewQ.jpg" width="400"><br>
 
@@ -211,7 +211,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/bQsdIvwu7tUDNcLQbBw6OeUy3mGwrS0c8c6q-cuG14QL3yRfcI84z4j5Xtnv4tu8hLm06a3axymeLExsUjFeFo-IBhzy8y0P-vCxVoSuJr5MvhSgFZv8eNcHDfm3EP9WpPhRKKYUdbss_ATA-R1QYvflCataX1OMW0G3fTM6SIYGBwJnePLWNfJwoljXhZAGnC64k_2MERA-GYlNXLnuNjbcUHZo9-78qheSICyud03Ll3HaPoDxGLeWgJ7v2VcZ0W4JbN8MYopnBIJR1eVJIuWcui403onjpJnT0-41PhjHAdHsUn3uwnxfRYA_PjyceDa2kdaullmWCO5ipAeOTA.jpg" width="400"><br>
 
@@ -234,7 +234,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/Zmwr4MxxcrS4mqzb9oqtxO25wr4LDqRFadDYKWybjfjRwYDo4djGCZ4YWq0pPR5WHI3kQAxJFncYT1p9hFx-mQqXUM0AYbSmL0yGJiBkWQx0hNT9t9MGXKKCF57VuQQtWiEI22fqVmTNTuCK7IV65ioFSWGxXyhzVQnTu0yjFACaAuCeE70U-OxYxxPJYjmkkmMYxS-4fJsZ8Z_NunNGepvq4AAAmdBZn8cquG6aZBaHQlioQZcKfTIFRMwegOyH3x8-gNwICBMevFcgm5bT-a3NGBWrKUxe-2s9o_2uw3C6j4kuZqT6NgfqZ7LGXuqcgyXJidWqOfX2IgJDsNBXUA.jpg" width="400"><br>
 
@@ -256,7 +256,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/FXQi0cAoN9P5qGyxXbH5gUw98SZqooVGtFb6rSMCngNBPrXtCpWJympTzFeBBWo9sGu0LTLRjCtKz2OoGOwAVzddP3beXy0CxQtUtOHarhA8z54d4fzA8ByeZKA7j-YsK17hiKJD_L1cEomHjwTjNPXB9kku4LJb5GYuWdd_t054bPvc5Pf3kGtlPy_mdm4ZopXmjDQfJAiYz91S4t9JVPdg32A76-05UQYuck3jUduMXcvcU0opQ3Ur-JDl6yqWYkcvbFeXPQ7VluSozMyaH6iIJZUXWjys2lrU5DIF8r2TjOUFT5D2tkiYLEB-ArAhwGi7TVOeQyRh-T3Lo5DdYQ.jpg" width="400"><br>
 
@@ -281,7 +281,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn1.telesco.pe/file/IGYJ2KETS3MZAE8iCSwt6rBifT62XhA_JRaqNqVP4ZHx2uiWrdYdMyy4_vzMUfqT3R7TEoVYdgG0_hm2NT7LmkeU-q0R9D1cviPHL_4Tjz-OHS6FiGCIkzVG_0oKnq8xwepM4UWG9UIr-DxI-qzMkIX5SmzkYOAeoTJZSaj9f7hUXI1hQXLTm46pHs3EjbSel0Sr-orvAkXJEVaCWC6DZUFp5TZsMBcP3oF3GmX-vy2OcdJcSG5oqKBT18qB87fIdBenT2fHD86ScIDyI1_imUrv5RtdwQZMviuXWuUbU0-B82VN2CBwyZIvehUbch_x48jBAnGnOjnJGiLSJOY-qQ.jpg" width="400"><br>
 
@@ -295,7 +295,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 
 
@@ -317,7 +317,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn4.telesco.pe/file/v0wmglo2wLqA2xkIeBQfABGkM2sDPp5vilcv0Cdtx1qzqnfOstFEGsKMPpZxbX_TQxnkVDrnb5AGec2HWsEZqk-LsfM1f8PFskl5iYYTNjUtHk96Rq7NMUVtUJ0n-Lkc7kf-tGFB-6FnvWPTsxhHv_Tn4ga6DJJQZpHpr_0VbPc_OcSEEba9DYbmLU9ere_hVji5iEz_1IK1OVxIPrpL7bwafvTsPN_EOKzD-nwM7VbzysCbNE25E8_xOWOjnbU-u1mJ1_QD76jsAo17eG_IydG4mli7F5qCWgmZI1fCxZzjU46v3e1q0UipaoacMHUaRYEC6y1CsIBrJ7jJmLC9uA.jpg" width="400"><br>
 
@@ -338,7 +338,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 
 
@@ -461,7 +461,7 @@ c-span
 
 
 
-###### 🔵 Updated at: 2026-06-19 08:16:00
+###### 🔵 Updated at: 2026-06-19 12:52:46
 
 <img src="https://cdn4.telesco.pe/file/BTu26V8cU7QhHovqKXIpVkYKjo_P2J9Vyd8YQtDjdMiHdu6lmq2gJOS37UQl71pyEaITW0elclg3K_Q83wl90480BOmKuT2Du2jZ-me43iyO-0_5V7HipHZwOOozJxLYaf1gaFHtXkeohpgEB7ekXQEA8KMf46GM5pys1dHFuRCQ2kcHoBSQOljzGbT14M8RAj14dsv9_tABP--BwXw9Syvha3joj7dir7PilZJqrBSnQmrG4kr9EEgU_qvMqM8MeRVSjeqeOjxlMmr3fXIsUvhGUw7NlFHpzVJQUUyLZikw3GOEuwf8QiNd6FJm4MGBOlrBJvP45Gq8c37z7_JJdA.jpg" width="400"><br>
 
