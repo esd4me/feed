@@ -3,7 +3,31 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
+
+<img src="https://cdn1.telesco.pe/file/iEJoiJGPoUka9ggEfdGMg1T4DmMpgyHip6INYsWX0nrmtdu4BRXzftMaojSrsSBrcs18nf-LWgzWWgG_4e17CKv5OmYVGy4MqjgN-a6OxKD8T1Pmymsh4nHvNRywPAgYTMJKWswIVwltUsrrKJJUApMqVP3tMNAXGi3ye-COqFnc2rR-ZzYfoGqVFzXZ7ehWqY4NNSKULmBqy0LdbZ6xbOnaCqZrExKOeohoeyoQzYZLZQaSMK-KAEPvTxVBSDMVMyXLi9vAU921n4ivHppzN_xWr06kx-IYF3fX4uCQhpBbp0gf1rOBpNhh7qdE0hIbj-tJEqfNYp4KLOiiChciAQ.jpg" width="400"><br>
+
+ترامپ در تروث سوشال نوشت: محبوبیت ملونی در ایتالیا به شدت کاهش یافته، شاید به این دلیل که او و ناتو در جریان ماموریت جلوگیری از دستیابی ایران به سلاح هسته‌ای، به ایالات متحده پشت کردند.
+ایتالیا حتی اجازه استفاده از باندهای پروازی خود را به ما نداد که یک مانع لوجستیکی بزرگ بود؛ آن هم در حالی که آمریکا سالانه صدها میلیارد دلار برای محافظت از ایتالیا و دیگر متحدان ناتو هزینه می‌کند.
+رئیس‌جمهوری آمریکا در پایان با لحنی تحقیرآمیز تاکید کرد: اکنون که ایالات متحده ایران را از نظر نظامی شکست داده، او می‌خواهد برای بالا بردن آمار محبوبیتش دوباره با ما رفیق شود؛ اما نه، ممنون!
+@
+VahidOOnLine
+جورجیا ملونی، نخست‌وزیر ایتالیا، با انتشار بیانیه‌ای تند در صفحه اینستاگرام خود، به هجمه‌های اخیر دونالد ترامپ پاسخ داد و حملات کلامی رئیس‌جمهوری آمریکا را «بی‌دلیل و بی‌معنی» خواند.
+ملونی در این پیام خطاب به ترامپ نوشت: «محبوبیت من به هیچ‌وجه به رابطه با شما بستگی ندارد و دوستی با شما نیز کمکی به آن نکرده است. محبوبیت من حاصل توانایی‌ام در دفاع از منافع ملی ایتالیاست؛ یعنی همان کاری که همواره انجام داده‌ام.»
+نخست‌وزیر ایتالیا همچنین با دفاع از تصمیم خود در جریان جنگ اخیر و عدم اجازه به آمریکا برای استفاده از پایگاه‌های نظامی این کشور، افزود: «نحوه استفاده از پایگاه‌های نظامی آمریکا در خاک ما، تابع توافق‌نامه‌های متقابلی است که ما همیشه به آن‌ها احترام گذاشته‌ایم. تا زمانی که من نخست‌وزیر هستم، این توافقات نباید نقض شوند؛ چرا که ایتالیا یک کشور مستقل و دارای حق حاکمیت باقی می‌ماند.»
+ملونی در پایان نوشت: «در هر صورت، میزان محبوبیت من اصلا به شما مربوط نیست. پیشنهاد می‌کنم شما روی محبوبیت خودتان تمرکز کنید.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76552)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn1.telesco.pe/file/jSXfcR4THfHqT49DM-yuVtyjHfiK45zlWFLGdRVM6pD9UKQBTsoo70Un74kPYD6w2LLGzffyIz5NzeRl6fobIArId1Gzti-e_dih0xu3If84CoDKESh1ijmEfv328bHcMQRINvl3aYx-t3cMSH1P4VSafdpsAWdU52JrXMTliYGE4wvQJTxRznbHzpfkxAmrtp1PPO2Mii-1V__o60fxwPtfYlLQ1Kg6sKD560KStUANvnqBNlnQSXrnzZF2deq1nhi1szaIxiofGgnzijVn7JVCzz3R-uxSfWNRCvlJhtiHigS5tV2f4n_QkUfhEejjPygbIth__SezBeWlczDQUQ.jpg" width="400"><br>
 
@@ -22,12 +46,13 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
-<img src="https://cdn1.telesco.pe/file/YvikhuBluVmnC6Q1VwqqTMngrOWFFGluVxJs-crJO6NlV0eb-7Iz5K5ERoZgrwTGkNLareqjLLO1Niqoksa9NFwoMX7qYCvgg9YTTLFM_n0FqPJAvFofFsizZdGuO3GhVChydrg2NMfWzPNsSbrO0xmCfWbBAeOMft3N_WrmWO8rlboHmxF-ztTqOCkCR2o9bgcnuZAU0gT8nKrmqKpFr-O-yq9_dJej0OO4DjvLSfUZzZQjOUeT6zHQDJiCY5iTmdEjHQezFyDdaAu0N0Bui6aJYkKPdKM0FejXe29KEDxk0GlQE7AG4jKaxVkeko_6Ney10zXJ7kSEny40pWAcAg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/lWd6aur0Wgjj03Y1LetsFXwrs1UtrZADLihqiyAObYjtBm3j1pCwmy-aCYD2l1kxH734BANjhmXDjvqOXkdLab4NZ78UXHOreOMSLIS3Oz2-RwzvzwfhYaJGP4zdttB8A3x1CuT7Hd4U5XUA5iALSL4Ew965uhIyAq9wt94UBglxDSlpjbQkI09s9MRM6IgUZHVz48VPbfwROkDQpGADBe4KWY_OBq-MAM6KpHH1OadoK_z6r6flMgfbNeiX2cYT4dxe_KUNfuTWQ7OSb1HBcGngRXnnm5qgqJqAuE9TnfsQaIw8mpAI45_-SceDd0b6g1qWcuDyVzSwt-tIx9KSfQ.jpg" width="400"><br>
 
 سنتکام: تنگه هرمز باز است
-پست اکانت فرماندهی مرکزی ایالات متحده، ترجمه ماشین:
+پست اکانت فرماندهی مرکزی ایالات متحده،
+ترجمه ماشین:
 عبور کشتی‌های تجاری از تنگه باز هرمز
 تامپا، فلوریدا — تردد کشتی‌های تجاری در تنگه هرمز در ۲۰ ژوئن افزایش یافت؛ همزمان نیروهای آمریکایی به عملیات خود در منطقه کلی ادامه دادند تا از آزادی کشتیرانی حمایت کنند.
 امروز عبور امن از این آبراه بین‌المللی همچنان برقرار بود و ۵۵ کشتی تجاری از آن عبور کردند؛ کشتی‌هایی که حجم زیادی بار و بیش از ۱۷ میلیون بشکه نفت را به بازارهای جهانی منتقل کردند.
@@ -44,7 +69,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 
 
@@ -62,7 +87,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn1.telesco.pe/file/Ew294wI_hUoj2etym1kyJ7BqNp6Lfsi_HMR_IMlXTr01EJv9Oi90g2aqWjUoVaMTxM39VcAE4DHtcW_6oSFKsZX0EFhw7djjVvpKsBFJD6Pqwh0RKL9DU8hXpwp8WjAsCzjEnt7z6zU_WuZ8eYjFa7wEtiQm5_R3biiVCMlG3GB1kJ6NIFrBTgogkqMjMGM-Q8vdhUC6lg1IqQBM0nt2E7XfjyO8SA0IsnkphEHcmjPaMIpGyqtCTPQKj1ulMtNqPpsbIX94tX1yUjYy-8NWR0PXff5APQGODKDkkEs2QbYTVh256lnGNJCUgtEK7z4UKNAPtS0ZACPXRgHIJ0jUhg.jpg" width="400"><br>
 
@@ -83,7 +108,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn1.telesco.pe/file/r_B4qF1gqxWjB6lY4RPLmll8aWmkP7JEVRMDiuhi_kyhVg_U_PpN5eGf0qdqUsPwALZO4_fCaa3TY1jtAS_M6uNcz6o09un42IiNcG20W0lw3mvGU726oP7j7D9yAblofxs4PZCbej7GjMunZ9CJCb0fUCIvJkuTdIiXTNwYE8lhwyzYQT9uOVJLX12umyk309zb6YKdTEcLI9vXacRM5fdDNpPrKSBxIxf7lEKiIigTsnSd9G5AqG-CzgJ9cMEXVzwBAMRguqE1B2mLwPWmeJYnESil9fFIAE5J1UPSFjSnYHWQtOqz-jgAa6GOSG_JIGpOhqys1e9Px6kRFXGaIg.jpg" width="400"><br>
 
@@ -101,7 +126,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn4.telesco.pe/file/OwOUAjxnianhFwvPI7FGyWDBjDTDJEOzujvPPuNTIaIusMZ8fWKeDjT10Xb6wvlLt-GJzsKGnagCZ3pDU4198DQYWb_eG5QbJ4CW6vFrZgc9x8k4ViRYhpkk15xJkwnuquTDm1EikLbDKEzFWQGc0ujPl-V2buXJbIbfFJEvmekNDwMuxPqeYdcZ6wRzMiSMwqBN3GGCSYnA0DWEn3ERHzibCJcnRO44Rmk4L3FKBiegdzcBZ-BE-lqIcllQakSjtJ46YFTU2-8bizyu-1JMBQxXWRPxiiJ-xJGQ2MUnilNbuoKjliRrsTyNy59U7Q5rd11dRVFOF_6qMPuIt0MmNA.jpg" width="400"><br>
 
@@ -118,7 +143,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn1.telesco.pe/file/mo01mssCP_oOk5BQ3jKu5Sf875FCvF60BO7gepuEZVYt6tm5YPZutlftu-PFNGBwglb3Ju2GIhO7ATTzpbGpcnDnaGUAK0P18y2iAxeOAEzkYYWdHIqGOmzBBHNj_yfL8VVd0c9baAJVzRp1yY-5RGc5NBNzz--kicJUPvvHea1sPQrxYSiEWag2H6elTf6_GDjpOmtaLIOKDt9QkwS83BHpAJwrkJtLCvB9G2VIZqD_ECDq80qXJ6Xt_1K9ooYNq-NAcdK-lArkgvpqQUbTBYygCB-q9Hi2_ZTk3Xqt-fQ5QN8rfLci6coKUTQePpLzMVCCBgX958bw1ahCDzyvuw.jpg" width="400"><br>
 
@@ -143,7 +168,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn1.telesco.pe/file/Pk2R3nFOu5_041Q2zUrhbs5jE4cxUceFEiznAnm3J8pRYiEFn1uS1LpsvgC2AsidcXb9QypKKerLYRxyaSDMHFXasXXh7nUmiNDzUUI7j1qLoq8yBIzldcB8--_NP8CbgwbxVAReIuHG61EavIuYIXfe8rUE9js0slGo1sI9TY8eCABJVS1mL6dzs8BP0VY29O3YsY2ZWn9tya9GlSIPlkifeiVGaxEBFKw1dP5BRa105Ko4rVyhqdf82bGvdpat669i2vfSPPxkTft3-aEKP77VXY3su3F1zp1YyDJVt5f-LVgnvz5Vmmq54mY9nIGcLrhutkMLsVBl6pq5jnxdpw.jpg" width="400"><br>
 
@@ -161,7 +186,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn4.telesco.pe/file/RS2tOkVYFbLEZuEZoImAkqaTYMVdHDMzaF1XtTWgyQTE4n4oPFqRzW2w-drcnR2kceDoAVxfK7zkkLd7vvGKa52sqlQBQAR4tBfaDzlg2H7RhiW3HZjXZHQmthxvkFmA3LNwd_cAQKT9mokfyE9imknkKe7AYJgT0SGqnLKjtkJSGxgtFP4TUimcV603J6KLsqsvNWDgAdbeuPrvYKIhQUaTmQ2SvWwpK-Iz2T7iJQKUcXQmJdD_dlRPUGx-4Q0AJ_jG1EjaLBUDCBRd1rNdIHL-bP6gz9JpopGQ-cVvEcuRtMV1KNg9JWw3_1VOx9SRuGAnHdbY8kN4HMEMlmTwbw.jpg" width="400"><br>
 
@@ -179,7 +204,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn4.telesco.pe/file/sBINmQe3JqdTmTmK78YpR0P7vaNgl3MX4FmzKOh6Y23TBSYeDeXQQEQ27piCG4vhrN3C0U3bxrvKI5OZIv1ptJKZC_hgUrFdABad_UONNRN3fzT85uec7X0UBbsEQyOz15jaqKFJRb8C6poKjYYZgJvq0_TIJ4q_FEs8QL-ofEUNftkpNGzks4juAdJmy5D_kvmwHSaBGnheB40NKO6o-zOHfYszrvESgZOBQIUq4j1715ek_2pV8GuddD8P3Ot-e6TGwZpg11LN4PKnYGHwPUeibS-NR7XCnI-UBIxcga_mRB9qBxhEmD6FbsZSyeEEg2y56lmNDvCOeehT4QCozw.jpg" width="400"><br>
 
@@ -197,7 +222,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 
 
@@ -217,7 +242,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 <img src="https://cdn1.telesco.pe/file/LUBWtA855mRywBUhHk2WLOJJs9FsX5CnH4OLIdbhDkPRROu2StogQ1DPwTlzxv76ZBd7ymfLmCtvw0GURBPvGfzWqAGOJsNUA2MoG5HtPVH9-H_BYCsNj0Yr0OZHqH-RuI9re-8317C64_M58EDXOqhx7mcOAFX7z2cJFZHsjeJ-o4cJIYBi4qt_vMipwSwXBVQcGMXN7Npw6d2zA19hdfhu4UIrdZo39dPGeDF0VJFOWjs0bfNVza9hjSEybxvZZp7E72KqkNqFwgehLQUVYsIEAxZU8txPfodkNoNMC0-WJMoVtXwrqg3Qk4WFQ4dlxE9HRx8whRNMz2xTFrD-Xw.jpg" width="400"><br>
 
@@ -239,7 +264,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-20 18:40:24
+###### 🔵 Updated at: 2026-06-20 20:18:54
 
 
 
@@ -261,62 +286,6 @@ https://telegra.ph/trump-06-19
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76534)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-20 18:40:24
-
-<img src="https://cdn4.telesco.pe/file/QzxrrJ1ucf19rL96DS1ikS3CWbAESec3ZuxLUmfUuSA7eyohhrqdkc9vXVidbKen00Y1B5dmleQTp9OZ2x51BT_4GXMOJiCVrwfqbvB6i9CBK7-2TEH5cG77SKEJn1tL6FLCAJrIMrC3muziTGbev1Fg4eipdhIVw_HQztC0jMBME6y_B13W-FrTXUKkk53AgquQJFz1Nx1I3is8zlzOrlYPN_k1OsH6l_vnI6dN3sk_M7OFfGTA2gfp_oFetdZ_9dx7jwXfGRqaCWkXUV3GUtk2YMAl44KnNWEFxng3jYCvHd4bN65UeBLarAorrQRbZLl5ZY1iF7ll6PA-GmTihg.jpg" width="400"><br>
-
-♦️
-دونالد ترامپ، رئیس‌جمهوری آمریکا، در مصاحبه‌ای با برنامه «آکسیوس شو» با دفاع از تصمیم خود برای شروع عملیات نظامی در ایران، مقام‌های جمهوری اسلامی را «بسیار باهوش» و «نابغه‌های بدوی» توصیف کرد و هشدار داد که آن‌ها در عین حال بسیار غیرقابل‌پیش‌بینی هستند.
-ترامپ با اشاره به مداخله نظامی اخیر ایالات متحده گفت: «من مجبور به اقدام شدم تا جلوی آن‌ها را بگیرم؛ چون اگر سلاح هسته‌ای داشتند، حتما از آن استفاده می‌کردند و با منفجر کردن چند شهر، از جمله در اسرائیل، هرج‌ومرجی واقعی به راه می‌انداختند.»
-او با تاکید بر اینکه اگر اقدام او در لغو برجام نبود، اسرائیل سال‌ها پیش نابود شده بود، توافق دوران اوباما را مسیری هموار برای دستیابی جمهوری اسلامی ایران به بمب اتم دانست. ترامپ همچنین با ابراز شگفتی از زمان‌بندی تقابل با ایران افزود: «چیزی که مرا غافلگیر کرد این بود که آن‌ها این‌قدر منتظر ماندند. آن‌ها صبر کردند تا من به قدرت بازگردم؛ البته این کارشان عمدی نبود. هیچ‌کس، حتی با وجود سلاح‌سازی ساختار حکومتی علیه من، فکر نمی‌کرد بازگردم، اما من با خروشی بزرگ‌تر از قبل بازگشتم.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76533)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-20 18:40:24
-
-<img src="https://cdn4.telesco.pe/file/JzkE-K9d-BprIyTkREwYhaVt2MA3nDtRXi4xMLgca8Lij3-t1A-OqZP22wHUMEaTiH5mefy6wkdw0KLhpfoi_6y-m732H2vaiXZ1Jr_WHMvAMISLiZb5Bso247ftQRY6YNQZJkEi6aBw7YKIkoh68v4d6c6-sZo7nmzTb4NIXZ89gsOA1tfhTX6YrRW_UF2zIa9xxmMFncVbzF-Qi8bzWLIL-ThlKFHSYpS7R-ORyq-qQJnksDsvNaakbzNI30p8kvUrZrKZTXb_0eDVHTolGLW2sImJ9AKtJl9gwbIgAICBvu_w-gzzviHxCU8Rdc5q_VU0NaNgaBOfnBCZD0kAdw.jpg" width="400"><br>
-
-⭕️
-صدور حکم اخراج برای هفت دانشجوی دانشگاه شریف؛ صدور حکم غیابی برای یکی از دانشجویان بازداشتی؟
-🔻
-بر اساس گزارش‌های رسیده به دانشجویان متحد، کمیته انضباطی دانشگاه شریف، برای هفت دانشجوی این دانشگاه حکم بدوی اخراج صادر شده است. اسامی دانشجویان به شرح زیر است:
-🔻
-رضا دالمن، ورودی کارشناسی ارشد ۱۴۰۳ مهندسی کامپیوتر: اخراج و چهار سال محرومیت از تحصیل
-🔻
-فاطمه خاکپور، ورودی کارشناسی ۱۴۰۳ شیمی: اخراج
-🔻
-حسین شادمان، ورودی کارشناسی ارشد ۱۴۰۴ مهندسی صنایع: اخراج
-🔻
-سپنتا سعیدی، ورودی کارشناسی ۱۴۰۴ مهندسی کامپیوتر: اخراج و پنج سال محرومیت از تحصیل
-🔻
-مسیحا باقری، ورودی کارشناسی ۱۴۰۲ مهندسی کامپیوتر: اخراج
-🔻
-فریبرز کهن‌زاد، ورودی کارشناسی ۱۴۰۰ مهندسی برق(تغییر رشته به مهندسی صنایع): اخراج و پنج سال محرومیت از تحصیل
-🔻
-پرنیان خدابخشی، ورودی کارشناسی ۱۴۰۲ مهندسی و علم مواد: اخراج و پنج سال محرومیت از تحصیل
-🔻
-همچنین در برخی رسانه‌ها خبر صدور حکم اخراج برای «آریانا کوچکی»، ورودی کارشناسی ۱۴۰۰ مهندسی صنایع، نیز منتشر شده است. هر چند بر اساس گزارش‌هایی که به دست ما رسیده، ایشان در حال حاضر بازداشت هستند و خبری در مورد برگزاری کمیته بدوی ایشان نداریم. هر چند صدور حکم غیابی برای دانشجویان بازداشتی در جمهوری اسلامی، پدیده تازه‌ای نیست.
-🔻
-لازم به ذکر است از میان هفت نفر یاد شده، کمیته سه تن(سپنتا سعیدی، حسین شادمان، مسیحا باقری) با محوریت فعالیت در شبکه‌های اجتماعی و کمیته چهار تن دیگر با محوریت اعتراضات اسفندماه برگزار شده است.
-ارتباط با ما:
-@Public_anjmotahed
-🆔
-@anjmotahed
-
-[View Post](https://t.me/VahidOnline/76525)
 
 ---
 
