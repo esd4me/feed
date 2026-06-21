@@ -3,7 +3,42 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-21 23:36:45
+###### 🔵 Updated at: 2026-06-22 01:09:26
+
+<img src="https://cdn1.telesco.pe/file/mERHYS7adol1gbfVPw5is0fTBgC-Q6yWa25OLyuwZw1UTo6E81U_1j43SGT_kUaXIhq5JBzFM5MxBqprdZLSUofv5SyLIUYnwqcWT0S3to01uX4I4TxgkmjKtdao9C9LWhNqi6tYFp1GJYA_XogGIoSpauGcVWfYQCE2X3Cv7GHSWcA2d_laLiQcAHU9lJnhM4ha50KKNCwocDQEtDZmol9Flra5rlmDaMsSsQwIzFrIcVUv0q4ZQa2wjefRxRH3KXqSEIAn6VzmF2l7S2Um5-e_ilyZ4xehOrQiKTLiEwQvk3NOSeycsA8pouuRFgpI_9wX4gtxlepYuEh5ZdqMIg.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+تیتر نیویورک‌تایمزِ فاسد و رو به سقوط این است: «بعد از تقریباً چهار ماه جنگ چه چیزی تغییر کرده؟ تحلیلگران می‌گویند نه چندان زیاد.»
+واقعاً؟ ارتش آن‌ها از کار افتاده، نیروی دریایی‌شان از بین رفته، نیروی هوایی‌شان از بین رفته، سکوهای پرتاب، موشک‌ها، پهپادها و تولید آن‌ها تقریباً نابود شده، دو رده بالای رهبرانشان از میان رفته‌اند، تورمشان به ۲۵۰ درصد رسیده، اقتصادشان درهم شکسته، به سربازانشان حقوق پرداخت نمی‌شود، تنگه هرمز باز است، نفت با شدت در جریان است، و بازار سهام و اشتغال در آمریکا به بالاترین رکوردهای خود رسیده‌اند. این‌هاست آنچه تغییر کرده، ای ترسوهای فاسد و بی‌اخلاق، و حتی بیشتر از این‌ها!!!
+رئیس‌جمهور دی‌جی‌تی
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76581)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-22 01:09:26
+
+<img src="https://cdn1.telesco.pe/file/lY5UrNh_53CroSXdxZ7YaPofagOY1aaqfhuGs7iDrQQ5GSCDnBMFhOOm6YtYmiu5CjW6_rmUkh96syuIPO-EHWjhzGunnvNr4BK6GU-qtomxlYRXOaooLScq4ADePdxiLujOlKQ4YAMOlhCeLypH9iuVrJXnE09up2ufCT5EJ3JiS6vm1HH0w_G6VMVSobHOXwS3NY2mtTg7ger0626TS-4ef-qZZTtPpUNNSAZ-WsjVRA8B1i4pPcdTHx64IdtT0iH4DQFY2pFQQYBtEoXzSc1lftHy2K83INE8k5gtR9Cjj9aLkwvDluxXwdlZL4i8h6_c5kv3TM8ai60YXyt_eg.jpg" width="400"><br>
+
+تیم فوتبال ایران در دومین دیدار خود در مرحله گروهی جام جهانی ۲۰۲۶، با ارائه یک نمایش دفاعی، در ورزشگاه سوفای لس‌آنجلس مقابل بلژیک به تساوی بدون گل دست یافت.
+مدافع بلژیک در دقیقه ۶۶ از زمین اخراج شد و این تیم ۱۰ نفره به بازی ادامه داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76571)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-22 01:09:26
 
 <img src="https://cdn1.telesco.pe/file/IQ2f2mm53dHYgGpGVgb27cLiaeSNFaT93_BB3vT3eaf6nTKW7KQo968SreMKUxUYIzzOfOrtQP7vu4m4KoCUFbyyb3mEIv2PWMd7g-7i-RLvITugGR_qo_dpdNwSVF5wr8690xkrogLxgUrhJOsi_Zo6bS7M4ptbqyVglIxduWhdM6GuUfAx2qiCzGONpIK3zi7fZhKKC6kjpCX_zKzcUs3LvUtLz0VS0ri7TGFAfwJTUFZAVUKyNxzPTGvm098PzOfGWZi4lr1m2esHySxCYvCU83MzDh0DQ7qtuRaAjH7EHj3ZqLEf8l-ONxVodyB-4HNZk8ZPUDd7KIInj6h8Yw.jpg" width="400"><br>
 
@@ -20,7 +55,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-21 23:36:45
+###### 🔵 Updated at: 2026-06-22 01:09:26
 
 <img src="https://cdn1.telesco.pe/file/ip_YOJMk9gGtN9PUie5bselRiOvI9W8h78HYeFNzBVcZPWc8DR_bAnH-GLdRmVX2BqVSNOFAPc0IaG3GpcuhUwFq_urd9cRObwHfzsIC_etP0Ernaiw0GhmKg9FykenbzwHyNinTVaKxKAitJlhMyg-Du7afv-juJ4HcXql39aNPmFysu-gl56r346epr_7SueYFYyCvaoeerXfxEjVjA8zX_isrtaSdQgs5u-qB8xsWcEhqloLZSsS4sT0UdaeGkpU0zxwlf5XfRWwafwWO5uOB41qu9SmBg7jdEfNeunHce4F42xzhOfXSpkkH3xM0D2y-2KbYidPAcZBK1tMHog.jpg" width="400"><br>
 
@@ -42,7 +77,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 23:36:45
+###### 🔵 Updated at: 2026-06-22 01:09:26
 
 <img src="https://cdn1.telesco.pe/file/pFQ8weGC-A5UfxBn6usT22t-p3SRL0qbnAL9HyvM_3csSVM7lDWnD7Zl52-5LJc0jhNkSogLXzz5ipOxpQS1fe6XnJU7W69IoRuC048Pfv3NEeStLcEg4kTkw2fy6HU_D6gKUujcUAfvZWwXHvLHRyokY2v8KOZqQEopRatu8ZUvm55xsnKNxDVco5tuKLoWmCrgojwfsuGJFPSiBopNMCBc877EEy9ijpIw6ZYLLmNfndCGoPIu6t23fV-mqWGgU680QqtCDfKp7_yCIZsod_bdO0OllvXhuiD6fk9X0nPMWsWsluDgwBDe_JNhv2nvkGZtcj7j9wf7ImAsFf3m6A.jpg" width="400"><br>
 
@@ -64,7 +99,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 23:36:45
+###### 🔵 Updated at: 2026-06-22 01:09:26
 
 <img src="https://cdn1.telesco.pe/file/PmGn_NaDB_xHDySDP5R2nvgFxM73fEFQ1OusJzmLWS0lo4tM5KTBNufWKSP2QXizFJKfzm8QyMtFYfhNyVUSq9146Oqf3INpVeQ3A2RmVTIo2ztKPg6JlL1HB0bwUrXeWl2oZKUCWFoTFb-z2ePQ-YfV3MLtw9T5jmrkqslcO1x6ZVonOnkNjo3iTRIYYfIkl2bfosiv_GRw8I6qwdRroR5MmZJ1Wlxa8dDBRxHO1IKwKi-KBrNWTZLyMBK0fv3RqZ8J1GDtIiT1SD3UCUaHFMg6vlGlHJs-e1kmRiQ7zz3OU44SV3QwjinDVQ22bnV_bcWT1RSYZnD2B4qJkQhL7A.jpg" width="400"><br>
 
@@ -82,7 +117,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 23:36:45
+###### 🔵 Updated at: 2026-06-22 01:09:26
 
 <img src="https://cdn1.telesco.pe/file/WVf_WynWNqDKYNO-v16_slJCRcEj_Wa2pdabMMt3teKklDHL7vFNn8RVrJIRCbvK-4OW3k5KjLpA9vtWuB4bdVWY9V-qI8jtsLlMk-mdia5k5bweK1z9lkIuwz49BrNAwACZ6sNd2WXiTbztKPG2JbULO0fQOKo7qjDHOt1c8aD56RPwIL_wbOzSeRAMAx9V9E9UxyYLjyphFnR-ehcB4ljka2aLpw_-hrfRbK473OsoAATLUBfrlFG-BnO7_gWOK8ku76YIK_KL1NgiFEgJHVolBoATnkn-VEKBxprakJiuGbBd3R3JNz-yAqU-cwfjg3WA-dN4QKSi9QRo_jZTLQ.jpg" width="400"><br>
 
@@ -100,7 +135,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 23:36:45
+###### 🔵 Updated at: 2026-06-22 01:09:26
 
 <img src="https://cdn1.telesco.pe/file/RtdRK7DagCtKV699JSUwW_bO77WJsaReAtG-V3WT4Fq6xW2YavJUc5OmBFWv2K3w6LvLHwUV5iReR8TZU1hKXED5Ux9rBSTy5yLtu1w_8KgDG8lBtRW4SERGZd5Ii90MnbOsTDeh16wlGzHvmY7WFk32EFnWnqFVKy_DSZMDrET4nGIczafJSxRIJmgGAAXzGETWaPd00thuXBxR0qRKC6aWQDQl5wypPRGwgPiTGw9S9t4168DAPreW08yX4whRYXxpRvxNc6zxx9Cz-4d6Z3Ah5avDQ6db6OoJUiYUUWOHrMpSKf1w2IUnSFttbIPvfHQxbEpxWja7qXOKulBAmg.jpg" width="400"><br>
 
@@ -118,7 +153,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-21 23:36:45
+###### 🔵 Updated at: 2026-06-22 01:09:26
 
 
 
@@ -154,7 +189,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 23:36:45
+###### 🔵 Updated at: 2026-06-22 01:09:26
 
 
 
@@ -189,183 +224,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76562)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 23:36:45
-
-<img src="https://cdn4.telesco.pe/file/Yup6IdXgiMw4oqsTUNlkazCN4P4bRyM9Sj-9Dx_AfcvdNtIid7wwa1c-kzKhYLyoug8QfObhtBgZUdwHZft-tW-On_qFDJnMSA18Skje0OcyKo5i023-T7fbcOQXqsXTsz3mYmq6ab6Mhb1J6Yibe_SDHBm6IhMX2AOsz_Y02yY_7X4IacpKsSn2EGhA-W0sFCuynX-VkF9e9GlZ-7_O5jfVXWhK3v7oIb_p4co7iSFjWJZimnrUxZzUu7DIzHuq8rWJr5ghEcWB4mQoh9zVHr9gTBTw21if-W5oPIBhlSTAFvhSnpKwoL6rRvhKa7P_a229_klI59Vq4xxugyi3ag.jpg" width="400"><br>
-
-اکسیوس به نقل از دو منبع منطقه‌ای آگاه گزارش داده است که آمریکا می‌خواهد نخستین دور گفت‌وگوها با ایران با دعوت تهران از بازرسان سازمان ملل برای بازدید از تاسیسات هسته‌ای ایران پایان یابد.
-به گفته این منابع، این تاسیسات پیش‌تر هدف حملات آمریکا و اسرائیل قرار گرفته‌اند و آخرین بازدید بازرسان از آنها پیش از جنگ قبلی، در ژوئن ۲۰۲۵، انجام شده بود.
-اکسیوس می‌گوید: «آمریکا در مقابل آماده است به ایران اجازه دهد به بخشی از دارایی‌های مسدودشده خود دسترسی پیدا کند؛ از جمله حسابی به ارزش شش میلیارد دلار در قطر.»
-بر اساس این گزارش، ایران می‌تواند از این پول برای خرید کالاهای بشردوستانه استفاده کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76561)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 23:36:45
-
-<img src="https://cdn4.telesco.pe/file/lIg8gRf1FiPSsIO4ydyO-4tfLQdaL-7zxtddJbdLnWqM_1RHPi9SOGR21I_3ZFb5lugsQpNQdESqwaZVN8qfS4yMfiZI2OH-umGYZQGio4Tb_WaJs7nMmcqHu3tnLJgQc_gttvXRz4jMJoEY-eWSw6a756wnF70u-3xyGHQU9VgJSCwpPQKzpLd9E-PnllPya_IlN_4WNpCZYMumViRGHmuidfOWtw6if5ylE2YI8ZwuRCiLelHQy_cm2zsNIDD0YmKT82R4pMN_hCx0TLS6EuSFoq0F0ugfhNSRV-e25aW8E1DVMISAmy2Ts_5_OD6B_ysDldKjigg-yEBGhwZzCA.jpg" width="400"><br>
-
-مقام‌های بهداشتی در غزه می‌گویند که دست‌کم ۱۰ فلسطینی در حملات هوایی و تیراندازی نیروهای اسرائیلی در چند حمله جداگانه کشته شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76560)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 23:36:45
-
-<img src="https://cdn4.telesco.pe/file/Nm3GPqyv_RsBgc_lE1O1vyk1GIHXd37f-JTXZwjGVyn2ijc3gJzy_tyLvSxlo2QfMl07KDI7nqOeYdt_vLhbfP5X9vnzGGuFTtOFbPth23MUFDmUXoqNIOHy7lyIhBe2DyJx64S5uWFPjepJzeRHcLhaXkHQRRxqxBT48WG7uXhpp9116LwVuv-JvPogh10Gj-SsorhzUfbZKVXSF36XqRrVMSXZLboTnGu5kysAgBI253KOQ-kewINVlXjbZTE8OqZZQZX57qJsR4FACfRxNr7-9ZYzrI5fupfNVZCK1S5l2dGJYcO9DDsXdZnrWvG2ta7SwGxc03Ae8aFjODFxkA.jpg" width="400"><br>
-
-بیش از هزار دانشجو و فارغ‌التحصیل دانشگاه صنعتی شریف با امضای نامه‌ای سرگشاده خطاب به محمدرضا تجریشی، رییس این دانشگاه، نسبت به آنچه «تشدید فضای امنیتی» و گسترش برخوردهای انضباطی با دانشجویان خوانده‌اند اعتراض کردند و خواستار پاسخگویی مدیریت دانشگاه شدند.
-انجمن اسلامی دانشجویان دانشگاه صنعتی شریف تاکید کرد که بیش از هزار نفر این نامه را امضا کرده‌اند. انتشار این نامه یک روز پس از رسانه‌ای شدن صدور احکام اخراج برای شماری از دانشجویان شریف صورت گرفت.
-امضاکنندگان در این نامه نوشته‌اند که در ماه‌های اخیر دست‌کم ۳۰ پرونده در کمیته انضباطی دانشگاه تشکیل شده و ۱۳ دانشجو با احکام بدوی تعلیق یا اخراج مواجه شده‌اند. به گفته آنان، احکام سه دانشجو نیز در مرحله تجدیدنظر تایید شده است.
-نویسندگان نامه تأکید کرده‌اند که آنچه در دانشگاه می‌گذرد، ادامه «روندی نگران‌کننده» است که به دلیل نبود واکنش مؤثر از سوی مدیریت دانشگاه، هر روز ابعاد گسترده‌تری پیدا می‌کند. آنها همچنین نسبت به افزایش سرخوردگی دانشجویان، گسترش بی‌اعتمادی در فضای دانشگاه و آسیب دیدن اعتبار علمی دانشگاه صنعتی شریف هشدار داده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76559)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 23:36:45
-
-<img src="https://cdn4.telesco.pe/file/JzGnthAIU_4fa03gP5YmPfFdH0YoZpuxXeb-bQWTEG4AyNieraebXRkt4jqHNsxPrRdYSPRLCKDCW-qg1IA-EKfw6bsRotV7LTl2RiPUf_6RulIwdFsNJgUe4yNQic-Cf2RvTSf2n2DxS8BcLfcSG6nRzFGL_Z-L-W5DL9XXovpyg0J3Mz21ln6esMCors4IcT2h_H6kAd8TbG8Y67pRr6bs3cA74Ctyu3camVIgkKvYhoVFmwf0bCV4a1XjiLa3HAggBpL2I-wLAHwRhsjzxvvuaOEwQ7cRzjJOrgEvPZAB98SKRt_tTPiI_r9EEFVUclXMFObujECC0yHCyxT9OA.jpg" width="400"><br>
-
-🔴
-جواد علیکردی، وکیل دادگستری زندانی، توسط شعبه اول دادگاه انقلاب مشهد به ۱۸ سال حبس، انفصال دائم از حرفه وکالت، دو سال تبعید به سراوان و دو سال منع خروج از کشور محکوم شد. جلسه رسیدگی به اتهامات او در ۲۰ خرداد ۱۴۰۵ برگزار شده بود.
-🔸
-به گزارش خبرگزاری هرانا، آقای علیکردی از بابت اتهام «اجتماع و تبانی برای اقدام علیه امنیت ملی» به پنج سال حبس و از بابت اتهام «فعالیت تبلیغی برخلاف امنیت ملی» به ۱۳ سال حبس محکوم شده است. پرونده او پیش‌تر در شعبه ۹۰۲ دادسرای مشهد مورد رسیدگی قرار گرفته و پس از صدور کیفرخواست به دادگاه انقلاب ارجاع شده بود.
-🔸
-جواد علیکردی در ۲۱ آذر ۱۴۰۴ توسط نیروهای امنیتی در مشهد بازداشت شد. او ابتدا به یکی از بازداشتگاه‌های امنیتی منتقل و سپس به زندان وکیل‌آباد مشهد انتقال یافت.
-🔸
-آقای علیکردی برادر خسرو علیکردی، وکیل دادگستری و مدافع حقوق بشر است که در آذر ۱۴۰۴ به شکل مشکوکی درگذشت. وی پیش‌تر نیز در پرونده‌ای جداگانه با اتهامات سیاسی و امنیتی محکوم شده بود که اجرای بخشی از احکام صادره
-علیه او به حالت تعلیق درآمده بود.
-@IranRights
-
-[View Post](https://t.me/VahidOnline/76556)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 23:36:45
-
-<img src="https://cdn1.telesco.pe/file/ZLhSnIxRFi6BILHg8GBbLuqSmg8iVPnVOo-h-7VPu1asGD_Gahn54j-IAHAogpGJFVgnDc_jYM1SUFe4OFAmnbbtTZqUJ_kR8AUF_ykqg9c34V0EDawHSe92uVXIMmGsNZEOIpgTuc7fHA9Se-sU8OtUoynhUoUkZKPZ1ngm-2uAfAaIl7iF5u2-LlPmGpIxzGaqczvVOTRpGzfUiMZVuUfjiD0Iyja89iGWjra9BXkVPWZxc0bAsyJ-tRNI36a1wU-vlfqeG69LiQUCxumk-hY-Z9U2un8V_snxHIg6s79J51LyzvNCwksY_lrU7SROFGrTKlgvsxqb7w1l4Q-U2A.jpg" width="400"><br>
-
-ترامپ: هیچ‌گونه عوارضی در تنگه هرمز وجود نخواهد داشت مگر به نفع آمریکا
-ترجمه ماشین:
-در دوره ۶۰ روزه آتش‌بس، در تنگه هرمز
-هیچ عوارضی در کار نخواهد بود
-،
-و پس از پایان دوره ۶۰ روزه نیز
-هیچ عوارضی پرداخت نخواهد شد
-؛
-مگر آن‌که، در صورت تکمیل نشدن توافق، این عوارض
-از سوی ایالات متحده و به نفع آمریکا
-وضع شود؛
-آن هم بابت خدماتی که این کشور به عنوان «فرشته نگهبان» کشورهای خاورمیانه ارائه داده، برای جبران هزینه‌های گذشته، حال و آینده.
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76555)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 23:36:45
-
-
-
-نبویان: مجتبی خامنه‌ای نامه داده بود که چرا شروط من رو در مذاکره رعایت نکردید؟
-07:20
-صدا و سیما: افشای مکاتبات مجتبی خامنه‌ای از سوی نبویان در شبکه خبر پیگیرد قضایی دارد
-صداوسیمای جمهوری اسلامی ایران اظهارات محمود نبویان، نایب‌رئیس کمیسیون امنیت ملی مجلس، در شبکه خبر پیرامون مذاکرات پیش رو بین ایران و آمریکا را «مصداق تخلف قانونی و مستوجب پیگرد قضایی» عنوان و اعلام کرد «مدیرکل مربوطهٔ این شبکه استعفا کرده است».
-محمود نبویان، که به جناح تندرو موسوم به «پایداری» تعلق دارد، روز شنبه ۳۰ خرداد با خواندن بخش‌هایی از متن‌هایی که گفت مکاتبات مجتبی خامنه‌ای با هیئت مذاکره‌کننده است، مدعی شد رهبر جمهوری اسلامی در مراحل مختلف با روند مذاکرات و بندهای متن‌های گوناگون مرتبط با مذاکرات مخالف بوده است.
-این گفت‌وگو پیش از آن‌که نبویان به متن نهایی تفاهم‌نامه برسد، قطع شد و موجی از واکنش‌ها را در میان دیگر چهره‌ها و فعالان رسانه‌ای جمهوری اسلامی در پی داشت.
-صداوسیما در بیانیهٔ خود اعلام کرد نبویان در اظهاراتش «اشارهٔ ناقص و مخدوش به برخی اسناد دارای طبقه‌بندی» داشته و سعید آجورلو، عضو تیم رسانه‌ای هیئت مذاکره‌کننده و از چهره‌های نزدیک محمدباقر قالیباف، نیز او را به «تحریف عمدی متون» با هدف «فرار از پاسخگویی درباره ادعاهای نادرست قبلی» متهم کرد.
-محمود نبویان، ۲۳ خرداد ماه، در آستانهٔ امضای تفاهم‌نامهٔ ایران و آمریکا، در یک برنامهٔ زنده در یک خبرگزاری نزدیک به سپاه، متنی را که مدعی بود تفاهم‌نامهٔ ایران و آمریکا است، روخوانی و از برخی بندهای آن به‌شدت انتقاد کرده بود.
-نبویان یکی از اعضای گروهی بود که پس از اعلام آتش‌بس جنگ ۴۰ روزه، همراه هیئت مذاکره‌کنندهٔ با آمریکا به اسلام‌آباد رفته بود.
-مجتبی خامنه‌ای، که پس از اعلام رهبری هنوز هیچ صدا و تصویری از او منتشر نشده، پس از امضای تفاهم‌نامه توسط رؤسای جمهور ایران و آمریکا در پیامی مکتوب اعلام کرد «نظر دیگری» داشته اما «با تعهدی» که پزشکیان به او داده، مسئولیت آن را بر عهده مسعود پزشکیان، رئیس شورای عالی امنیت ملی، و دیگر اعضای این شورا گذاشته است.
-@
-VahidHeadline
-حمید رسایی با انتشار ویدیوی بالا نوشت:
-نبویان در آنتن زنده شبکه خبر، در حال تشریح جزئیات نامه‌های رد و بدل‌شده میان رهبر معظم انقلاب و شورای عالی امنیت ملی بود که پخش برنامه به بهانه میان‌برنامه به صورت کامل متوقف شد!
-ما که از یادداشت‌های آن امام شهید در این باره اطلاع پیدا نکردیم ولی گوشه‌ای از یادداشت‌های امام حاضر توسط آقای نبویان در حال پخش از سیما بود مانع آن شدند!
-صدا و سیما:
-🔹
-روابط عمومی معاونت سیاسی صداوسیما: به استحضار مخاطبان محترم شبکه خبر می‌رساند اظهارات یک نماینده مجلس دعوت‌شده به برنامه امروز زنده این شبکه و اشاره ناقص و مخدوش وی به برخی اسناد دارای طبقه‌بندی و مکاتبات مسئولان عالی کشور، مصداق تخلف قانونی و مستوجب پیگرد قضایی است و سازمان صداوسیما پیگیری‌های لازم را در این خصوص در دستور کار قرار می‌دهد.
-🔹
-شبکه خبر ضمن ابراز تاسف بابت بی‌توجهی مهمان مذکور به قواعد اخلاقی و الزامات آنتن زنده، به اطلاع می‌رساند مدیریت این شبکه ضمن پذیرش استعفای مدیرکل مربوطه، برخوردهای انضباطی لازم را به دلیل بی‌توجهی به الزامات برنامه‌های زنده و سهل‌انگاری در مدیریت حرفه‌ای به عمل خواهد آورد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76554)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 23:36:45
-
-<img src="https://cdn1.telesco.pe/file/BaVEL-SitB_QhZQWshYzWravzWPsQh3YWuIALLweH0l0Rjm47-FGUx_gM9qs1oABlnHC9G_oA-mDs-6Rm2Raz5kGG5vphiHbCLHEod00NN4LvDW8Rmq6OaJoeVdhOXxf56RckOWI43AWhU8XHb68022hcyDbe6st0btmfqplcHb6SsYkHMrC4Wq9wh-gQKs6lk9sKUwuie1IoqvE-OegdsnCUpWbt7iEkL32HustoTuphQruA7L9TxeE1eBZ6zu6jxvrtAXNPAK4Qxph9PMZkl5F192XJCImsXlqsE3y79MOd_0vp6fu-IgHCKT4M-JQv2O1g8Y-H2sAIucdWHNB7Q.jpg" width="400"><br>
-
-ترامپ در تروث سوشال نوشت: محبوبیت ملونی در ایتالیا به شدت کاهش یافته، شاید به این دلیل که او و ناتو در جریان ماموریت جلوگیری از دستیابی ایران به سلاح هسته‌ای، به ایالات متحده پشت کردند.
-ایتالیا حتی اجازه استفاده از باندهای پروازی خود را به ما نداد که یک مانع لوجستیکی بزرگ بود؛ آن هم در حالی که آمریکا سالانه صدها میلیارد دلار برای محافظت از ایتالیا و دیگر متحدان ناتو هزینه می‌کند.
-رئیس‌جمهوری آمریکا در پایان با لحنی تحقیرآمیز تاکید کرد: اکنون که ایالات متحده ایران را از نظر نظامی شکست داده، او می‌خواهد برای بالا بردن آمار محبوبیتش دوباره با ما رفیق شود؛ اما نه، ممنون!
-@
-VahidOOnLine
-جورجیا ملونی، نخست‌وزیر ایتالیا، با انتشار بیانیه‌ای تند در صفحه اینستاگرام خود، به هجمه‌های اخیر دونالد ترامپ پاسخ داد و حملات کلامی رئیس‌جمهوری آمریکا را «بی‌دلیل و بی‌معنی» خواند.
-ملونی در این پیام خطاب به ترامپ نوشت: «محبوبیت من به هیچ‌وجه به رابطه با شما بستگی ندارد و دوستی با شما نیز کمکی به آن نکرده است. محبوبیت من حاصل توانایی‌ام در دفاع از منافع ملی ایتالیاست؛ یعنی همان کاری که همواره انجام داده‌ام.»
-نخست‌وزیر ایتالیا همچنین با دفاع از تصمیم خود در جریان جنگ اخیر و عدم اجازه به آمریکا برای استفاده از پایگاه‌های نظامی این کشور، افزود: «نحوه استفاده از پایگاه‌های نظامی آمریکا در خاک ما، تابع توافق‌نامه‌های متقابلی است که ما همیشه به آن‌ها احترام گذاشته‌ایم. تا زمانی که من نخست‌وزیر هستم، این توافقات نباید نقض شوند؛ چرا که ایتالیا یک کشور مستقل و دارای حق حاکمیت باقی می‌ماند.»
-ملونی در پایان نوشت: «در هر صورت، میزان محبوبیت من اصلا به شما مربوط نیست. پیشنهاد می‌کنم شما روی محبوبیت خودتان تمرکز کنید.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76552)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 23:36:45
-
-<img src="https://cdn1.telesco.pe/file/XVpPssYmtuKU_GE-SGJmpt_aeuI0OEi2NXethoes51mg3LmfysM7zh9PZsh3kEaMESt2ga0Waff-sTfHdxgWEE-AwCovM6zBPQuDzvfSFGq4PxgOjPPBz35aecCmT9pa3bQqV_7NE5g4CopYKmcHPryn4c_pfoWBU-9wfups1ZKrwkVU6V5NUwsrYQ6kSiASFI2CgDJSYqfmSevebMcQ5kZj9IwvOoe2y5fW1YyDSosKnzQDP_X4DFWxNFr5Bit1roRXiNLbtVXKhBMLQ2vgZBIV-163BPaTORYiL95TSXY7W2r97g-RMOsA59Y6iIhosjHLu28k6IGJtT-ZE9BZyA.jpg" width="400"><br>
-
-رسانه‌های ایران گزارش دادند که هیات مذاکره‌کننده جمهوری اسلامی به ریاست محمدباقر قالیباف و با حضور عباس عراقچی، عازم سوئیس شده است.
-بر اساس این گزارش، عبدالناصر همتی، رییس کل بانک مرکزی و علی باقری کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی نیز در این سفر حضور خواهند داشت.
-همچنین کاظم غریب‌آبادی، معاون و اسماعیل بقائی، سخنگوری وزارت خارجه و حمید بورد، معاون وزیر نفت نیز این افراد را همراهی می‌کنند.
-پیش‌تر وزارت خارجه پاستان اعلام کرد که مذاکرات فنی میان جمهوری اسلامی و آمریکا، یکشنبه در سوئیس آغاز خواهد شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76551)
 
 ---
 
