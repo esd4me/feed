@@ -3,7 +3,29 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
+
+<img src="https://cdn1.telesco.pe/file/Nu6MZSuIGeLB3furiB6osVJuydTRbxHzCxnm1A1ytxDKlwTNkZyFe-18rd1QIZ7JSsXGf5Pp8xYcMP-J3wBwnsjxumusPxIxFYpBFLVhn1U4pyjs7oYf8ccjQfElwbtaXxxNvQkK9Wk6DEJjx8f0mXK-HR_JPfpW700zXRqhMhdrj0Og-Ykd9ZmIyOuh3S6Nn2GmwG4fERYlR2j0D0CRJe6XBVPhgFjH6QusMxak1CAeXNj3D3WZ9x_2RgVx8BWvzRUuYTRcbqWZH2gB19aHLX9gSBknH6_iEySYlnMGzyZ8qaT4fs2Se8yqOhRc0Ch9pdfr2w8w-SdN-Xz8Vd7ghg.jpg" width="400"><br>
+
+یک منبع دیپلماتیک شامگاه یکشنبه ۳۱ خرداد و پس از گزارش رسانه‌های ایرانی مبنی بر ترک محل مذاکرات از سوی هیئت ایرانی، این خبر را تکذیب کرد.
+باراک داوید، خبرنگار آکسیوس و کانال ۱۲ اسرائیل با انتشار این خبر در اکس نوشت: «یک دیپلمات حاضر در مذاکرات سوئیس ادعا می‌کند که هیئت ایرانی آنجا را ترک نکرده و مذاکرات بین ایالات متحده و ایران همچنان ادامه دارد.»
+@
+VahidOOnLine
+خبرگزاری ایرنا، رسانه دولت جمهوری اسلامی، گزارش داد هیات جمهوری اسلامی پس از دیدار با هیات قطری، ساختمان محل مذاکرات در سوئیس را ترک کرده است.
+هم‌زمان، یک منبع نزدیک به هیات مذاکره‌کننده جمهوری اسلامی به شبکه سی‌ان‌ان گفت گفت‌وگوهای میان جمهوری اسلامی و آمریکا در سوئیس متوقف شده است، اما پایان نیافته است.
+به گفته این منبع، گفت‌وگوهای غیرعلنی همچنان ادامه دارد تا طرف‌ها به میز گفت‌وگو بازگردند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76569)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn1.telesco.pe/file/pFQ8weGC-A5UfxBn6usT22t-p3SRL0qbnAL9HyvM_3csSVM7lDWnD7Zl52-5LJc0jhNkSogLXzz5ipOxpQS1fe6XnJU7W69IoRuC048Pfv3NEeStLcEg4kTkw2fy6HU_D6gKUujcUAfvZWwXHvLHRyokY2v8KOZqQEopRatu8ZUvm55xsnKNxDVco5tuKLoWmCrgojwfsuGJFPSiBopNMCBc877EEy9ijpIw6ZYLLmNfndCGoPIu6t23fV-mqWGgU680QqtCDfKp7_yCIZsod_bdO0OllvXhuiD6fk9X0nPMWsWsluDgwBDe_JNhv2nvkGZtcj7j9wf7ImAsFf3m6A.jpg" width="400"><br>
 
@@ -25,7 +47,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn1.telesco.pe/file/PmGn_NaDB_xHDySDP5R2nvgFxM73fEFQ1OusJzmLWS0lo4tM5KTBNufWKSP2QXizFJKfzm8QyMtFYfhNyVUSq9146Oqf3INpVeQ3A2RmVTIo2ztKPg6JlL1HB0bwUrXeWl2oZKUCWFoTFb-z2ePQ-YfV3MLtw9T5jmrkqslcO1x6ZVonOnkNjo3iTRIYYfIkl2bfosiv_GRw8I6qwdRroR5MmZJ1Wlxa8dDBRxHO1IKwKi-KBrNWTZLyMBK0fv3RqZ8J1GDtIiT1SD3UCUaHFMg6vlGlHJs-e1kmRiQ7zz3OU44SV3QwjinDVQ22bnV_bcWT1RSYZnD2B4qJkQhL7A.jpg" width="400"><br>
 
@@ -43,7 +65,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn1.telesco.pe/file/WVf_WynWNqDKYNO-v16_slJCRcEj_Wa2pdabMMt3teKklDHL7vFNn8RVrJIRCbvK-4OW3k5KjLpA9vtWuB4bdVWY9V-qI8jtsLlMk-mdia5k5bweK1z9lkIuwz49BrNAwACZ6sNd2WXiTbztKPG2JbULO0fQOKo7qjDHOt1c8aD56RPwIL_wbOzSeRAMAx9V9E9UxyYLjyphFnR-ehcB4ljka2aLpw_-hrfRbK473OsoAATLUBfrlFG-BnO7_gWOK8ku76YIK_KL1NgiFEgJHVolBoATnkn-VEKBxprakJiuGbBd3R3JNz-yAqU-cwfjg3WA-dN4QKSi9QRo_jZTLQ.jpg" width="400"><br>
 
@@ -61,7 +83,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn1.telesco.pe/file/RtdRK7DagCtKV699JSUwW_bO77WJsaReAtG-V3WT4Fq6xW2YavJUc5OmBFWv2K3w6LvLHwUV5iReR8TZU1hKXED5Ux9rBSTy5yLtu1w_8KgDG8lBtRW4SERGZd5Ii90MnbOsTDeh16wlGzHvmY7WFk32EFnWnqFVKy_DSZMDrET4nGIczafJSxRIJmgGAAXzGETWaPd00thuXBxR0qRKC6aWQDQl5wypPRGwgPiTGw9S9t4168DAPreW08yX4whRYXxpRvxNc6zxx9Cz-4d6Z3Ah5avDQ6db6OoJUiYUUWOHrMpSKf1w2IUnSFttbIPvfHQxbEpxWja7qXOKulBAmg.jpg" width="400"><br>
 
@@ -79,12 +101,18 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 
 
 جی‌دی ونس و عراقچی در یک قاب
 اولین تصاویر از فرستادگان جمهوری اسلامی و قاتلان رهبرشون در یک اتاق
+خبرگزاری تسنیم به نقل از یک منبع نزدیک به تیم مذاکره‌کننده جمهوری اسلامی گزارش داد که هیات آمریکایی و برگزارکنندگان نشست ژنو قصد داشتند پیش از آغاز مذاکرات چندجانبه، مراسم عکس مشترک و صحنه دست دادن میان هیات‌های جمهوری اسلامی و آمریکا برگزار شود اما محمدباقر قالیباف مخالف کرده است.
+به گفته این منبع، محمدباقر قالیباف، رییس مجلس جمهوری اسلامی، با این تشریفات مخالفت کرد و اعلام کرد اعضای هیات جمهوری اسلامی در مراسم عکس مشترک با هیات آمریکایی حضور نخواهند داشت.
+این منبع افزود در پی مخالفت هیات جمهوری اسلامی و خودداری آن از حضور در این مراسم، پخش مستقیم و برنامه عکس مشترک لغو شد و پس از آن هیات جمهوری اسلامی وارد محل برگزاری مذاکرات شد.
+به گفته این منبع، هیات آمریکایی از هیات جمهوری اسلامی پنج دقیقه فرصت خواست تا خبرنگاران محل مذاکرات را ترک کنند. او افزود مراسم پیش از آغاز مذاکرات، بدون حضور هیات جمهوری اسلامی برگزار شد.
+@
+VahidOOnLine
 جی‌دی ونس، معاون رئیس‌جمهور آمریکا، روز یکشنبه در آغاز مذاکرات ایالات متحده و ایران در سوئیس، این گفت‌وگوها را «تاریخی» خواند و تأکید کرد ایالات متحده آماده است روابط خود با ایران را به شکل بنیادین متحول کند.
 ونس در حالی که در کنار نخست‌وزیران پاکستان و قطر ایستاده بود، در اقامتگاه بورگن‌اشتوک در کنار دریاچه لوتسرن گفت: «این یک دیدار تاریخی است. پیش از این هیچوقت رهبران ایران و آمریکا در چنین سطح بالایی با یکدیگر دیدار نکرده‌اند.»
 تصاویر و ویدئوهای منتشر شده از محل نشست نشان می‌دهد هنگام حضور معاون رئیس‌جمهور آمریکا در اتاق محل مذاکرات، عباس عراقچی، وزیر خارجه ایران، نیز حضور دارد.
@@ -109,7 +137,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 
 
@@ -149,7 +177,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn4.telesco.pe/file/Yup6IdXgiMw4oqsTUNlkazCN4P4bRyM9Sj-9Dx_AfcvdNtIid7wwa1c-kzKhYLyoug8QfObhtBgZUdwHZft-tW-On_qFDJnMSA18Skje0OcyKo5i023-T7fbcOQXqsXTsz3mYmq6ab6Mhb1J6Yibe_SDHBm6IhMX2AOsz_Y02yY_7X4IacpKsSn2EGhA-W0sFCuynX-VkF9e9GlZ-7_O5jfVXWhK3v7oIb_p4co7iSFjWJZimnrUxZzUu7DIzHuq8rWJr5ghEcWB4mQoh9zVHr9gTBTw21if-W5oPIBhlSTAFvhSnpKwoL6rRvhKa7P_a229_klI59Vq4xxugyi3ag.jpg" width="400"><br>
 
@@ -168,7 +196,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn4.telesco.pe/file/lIg8gRf1FiPSsIO4ydyO-4tfLQdaL-7zxtddJbdLnWqM_1RHPi9SOGR21I_3ZFb5lugsQpNQdESqwaZVN8qfS4yMfiZI2OH-umGYZQGio4Tb_WaJs7nMmcqHu3tnLJgQc_gttvXRz4jMJoEY-eWSw6a756wnF70u-3xyGHQU9VgJSCwpPQKzpLd9E-PnllPya_IlN_4WNpCZYMumViRGHmuidfOWtw6if5ylE2YI8ZwuRCiLelHQy_cm2zsNIDD0YmKT82R4pMN_hCx0TLS6EuSFoq0F0ugfhNSRV-e25aW8E1DVMISAmy2Ts_5_OD6B_ysDldKjigg-yEBGhwZzCA.jpg" width="400"><br>
 
@@ -184,7 +212,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn4.telesco.pe/file/Nm3GPqyv_RsBgc_lE1O1vyk1GIHXd37f-JTXZwjGVyn2ijc3gJzy_tyLvSxlo2QfMl07KDI7nqOeYdt_vLhbfP5X9vnzGGuFTtOFbPth23MUFDmUXoqNIOHy7lyIhBe2DyJx64S5uWFPjepJzeRHcLhaXkHQRRxqxBT48WG7uXhpp9116LwVuv-JvPogh10Gj-SsorhzUfbZKVXSF36XqRrVMSXZLboTnGu5kysAgBI253KOQ-kewINVlXjbZTE8OqZZQZX57qJsR4FACfRxNr7-9ZYzrI5fupfNVZCK1S5l2dGJYcO9DDsXdZnrWvG2ta7SwGxc03Ae8aFjODFxkA.jpg" width="400"><br>
 
@@ -203,7 +231,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn4.telesco.pe/file/JzGnthAIU_4fa03gP5YmPfFdH0YoZpuxXeb-bQWTEG4AyNieraebXRkt4jqHNsxPrRdYSPRLCKDCW-qg1IA-EKfw6bsRotV7LTl2RiPUf_6RulIwdFsNJgUe4yNQic-Cf2RvTSf2n2DxS8BcLfcSG6nRzFGL_Z-L-W5DL9XXovpyg0J3Mz21ln6esMCors4IcT2h_H6kAd8TbG8Y67pRr6bs3cA74Ctyu3camVIgkKvYhoVFmwf0bCV4a1XjiLa3HAggBpL2I-wLAHwRhsjzxvvuaOEwQ7cRzjJOrgEvPZAB98SKRt_tTPiI_r9EEFVUclXMFObujECC0yHCyxT9OA.jpg" width="400"><br>
 
@@ -224,7 +252,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn1.telesco.pe/file/kvEKEJBfkiUpOrGCm8dsC6NBFkhtj9caNem1RbZQ-ZL4jm82rRAduPIKziYccuimwUq0vPMPC1dmXx1GqT44PWqKoJvHx_DG8nN42i7ZjiZ0Qjzao4kwGUL_zs5fTW7zDLlV-5e5vmYIIPRHrc6Aho-or8wy2GlX63e2iwBF-wTE94cFo-NrOkkADLs2Htj3Z03v1eJ6LVMRY76VWUeFRSpxG0hPBCRxvQdHFPWVFxASnx6uENHTl6siBca-DQXE9ukFDQVD206U-aZ4aTrkONtu7xIKX-fPk82D8YVQK6QN7og3T4EBru_4v-bdWPdv5fjEQNs_hCabKWO6XtZn2g.jpg" width="400"><br>
 
@@ -250,7 +278,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 
 
@@ -283,7 +311,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn1.telesco.pe/file/BaVEL-SitB_QhZQWshYzWravzWPsQh3YWuIALLweH0l0Rjm47-FGUx_gM9qs1oABlnHC9G_oA-mDs-6Rm2Raz5kGG5vphiHbCLHEod00NN4LvDW8Rmq6OaJoeVdhOXxf56RckOWI43AWhU8XHb68022hcyDbe6st0btmfqplcHb6SsYkHMrC4Wq9wh-gQKs6lk9sKUwuie1IoqvE-OegdsnCUpWbt7iEkL32HustoTuphQruA7L9TxeE1eBZ6zu6jxvrtAXNPAK4Qxph9PMZkl5F192XJCImsXlqsE3y79MOd_0vp6fu-IgHCKT4M-JQv2O1g8Y-H2sAIucdWHNB7Q.jpg" width="400"><br>
 
@@ -307,7 +335,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn1.telesco.pe/file/XVpPssYmtuKU_GE-SGJmpt_aeuI0OEi2NXethoes51mg3LmfysM7zh9PZsh3kEaMESt2ga0Waff-sTfHdxgWEE-AwCovM6zBPQuDzvfSFGq4PxgOjPPBz35aecCmT9pa3bQqV_7NE5g4CopYKmcHPryn4c_pfoWBU-9wfups1ZKrwkVU6V5NUwsrYQ6kSiASFI2CgDJSYqfmSevebMcQ5kZj9IwvOoe2y5fW1YyDSosKnzQDP_X4DFWxNFr5Bit1roRXiNLbtVXKhBMLQ2vgZBIV-163BPaTORYiL95TSXY7W2r97g-RMOsA59Y6iIhosjHLu28k6IGJtT-ZE9BZyA.jpg" width="400"><br>
 
@@ -326,7 +354,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-21 20:14:25
+###### 🔵 Updated at: 2026-06-21 21:42:00
 
 <img src="https://cdn1.telesco.pe/file/VKSupl3iFAYx5eh8PloUn9fjejHgq-67Jvejnc-dGUWTEmpBAYkRvdSrhN0FKYL048PvloDTUqgGEjYifnsxf4whqQWXvhCvayNAfoxzB6LzzVwx_Ca_UuSAnvAbt7DtmztM3beB9Wx3QgytUDimvkh1vUE-88MOqrceNwhai3gOg5Ik2lTVDrv74LEA117pm4dLQCn3tSLY5uac7Lnr8-41NHAOXExgs_JMdI5cHWq-rx4yHZM7W2G_3Uzr4QgGOKa4xkuymyzdrDFMUBw-ziHCVyNtqOBb4z0duxhcDbH7hTcSSisUjW3LUzalwX9AoGEDqCSEor5AZgJzDntPOg.jpg" width="400"><br>
 
@@ -344,24 +372,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76550)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-21 20:14:25
-
-
-
-ویدئویی در شبکه‌های اجتماعی پربازدید شده که مادر مانی صفرپور، جوان کشته‌شده در اعتراضات دی‌ماه، را در حال سوگواری برای فرزندش در کنار یک دستۀ عزاداری نشان می‌دهد.
-عکس پسرش را بالای دست گرفته و می‌گوید «پسرم، پسرم».
-مانی صفر‌پور، جوان ۱۸ سالۀ لاهیجانی، ۱۸ دی‌ماه ۱۴۰۴ با شلیک نیروهای حکومتی در محلۀ سلسبیل تهران کشته شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76548)
 
 ---
 
