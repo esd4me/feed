@@ -3,13 +3,53 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
-<img src="https://cdn1.telesco.pe/file/mERHYS7adol1gbfVPw5is0fTBgC-Q6yWa25OLyuwZw1UTo6E81U_1j43SGT_kUaXIhq5JBzFM5MxBqprdZLSUofv5SyLIUYnwqcWT0S3to01uX4I4TxgkmjKtdao9C9LWhNqi6tYFp1GJYA_XogGIoSpauGcVWfYQCE2X3Cv7GHSWcA2d_laLiQcAHU9lJnhM4ha50KKNCwocDQEtDZmol9Flra5rlmDaMsSsQwIzFrIcVUv0q4ZQa2wjefRxRH3KXqSEIAn6VzmF2l7S2Um5-e_ilyZ4xehOrQiKTLiEwQvk3NOSeycsA8pouuRFgpI_9wX4gtxlepYuEh5ZdqMIg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Qhmi2w2UWVsSgz3VzE2pY-7hTumlt6TJmxihk9IwTEhKVUCHlBjza3zKF0NG1p6z7ekeNEYS7eawE5KHjbpI0xR1m0o4kAA1awthxIqKClacyFdBOZMHpBuhFVRwX-RZNufF7YKFF7zmsNjfzdGzRYwLlEqr0UHQoIDapuHVM1u8HURpg5sqtPNj30LlpN5IHjX3_gzCbnobDg8dGcWhUcF-UQjf7vm1Kp_dT3oNJn9i5RiaXS7Vt-tm9yW-WqUHdfOiSxFMGNIW8cQCbh8_n8T_GQDre0uikzmeQlTu1zWNWDKKGevRRKVy1JCTVADFPKJGPVd7UEupsSyYOt99Og.jpg" width="400"><br>
 
-پست ترامپ، ترجمه ماشین:
+وزارت خارجه آمریکا اعلام کرد مارکو روبیو، وزیر خارجه این کشور، از دو روز دیگر، یعنی ۲۳ ژوئن (دوم تیر) در سفری دو روزه به خاورمیانه به امارات متحده عربی، کویت و بحرین سفر خواهد کرد.
+در این سفر، آقای روبیو درباره مجموعه‌ای از اولویت‌های منطقه‌ای گفت‌وگو خواهد کرد؛ از جمله:
+تفاهم‌نامه میان آمریکا و ایران
+تلاش‌ها برای تضمین عبور کامل، آزاد و ایمن کشتی‌ها از تنگه هرمز
+اهمیت حفظ صلح و ثبات در منطقه
+وزیر خارجه آمریکا همچنین در بحرین با اعضای شورای همکاری خلیج فارس دیدار خواهد کرد تا درباره اولویت‌های مشترک کشورهای منطقه گفت‌وگو کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76583)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-22 02:17:11
+
+<img src="https://cdn1.telesco.pe/file/cu-y1GBYz5EiruEvPSIXpjG7yCiLiHAFlyyfnb-pY34e_ViiA77-zZAZTfZxBQ4fo3sihFAyD_0FR_GKMDVARmRWXB3PwNdfx6EKdrZPdY0bBT4E62MudEvS1FWB6Sv-c0P0maUZ7dMxEv_M-VCGsLPpILpwUOUs2QyzY-RJMnRnBDVfQ4tWzg7Lu1nfsAurdVA6cEdLNcq9yTZsJt7J7VyVt-6Me48YDu899OlNUkY2KrECTGgxjKaaJ6t-6S6fTFXaMg_mq01ENzP2JdgmlvWIU9ZWJuw0wm0klRXRaDg5enyf6Dnu3vF79HatTp8zGrzuVWtlQdIKjX_aG1KYVQ.jpg" width="400"><br>
+
+پست قالیباف، ترجمه ماشین:
+ما این‌طور از سرزمین‌مان محافظت می‌کنیم.
+mb_ghalibaf
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76582)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-22 02:17:11
+
+<img src="https://cdn1.telesco.pe/file/WQbwcGDye6zlRmMj0UwoQBXDhy-vwpFXiwlse20smzLlwQ6VsI14KutOfWVKMuG9SR0FTFnUW_gq1XB1d8PnWcEtdU75SQEau2OpQkg14j_-ZuozN_OaJvmkox7NA1Nk-fYNAw2jMQz5hAG5D4Jmb3Lt1BotQXMRgnC9LwoKwH7lIuTMLrvifLEY1JTYUZ6Suzgy3aVJ--HSYgbz2EiIaEk6Ow_0sB59m9sedFuI6yQg8TdvXjsM0a7M8tLmBEz6Rj2apwmTGqJVQBmHkY-PBZJNF1mGRkSN7Z6OCkVRDbwdVJE0G5QnKvHheifM5oDGapMejT1Ob2E3zGorXn1EFg.jpg" width="400"><br>
+
+دو پست ترامپ علیه نیویورک‌تایمز درباره اخبار جنگ:
 تیتر نیویورک‌تایمزِ فاسد و رو به سقوط این است: «بعد از تقریباً چهار ماه جنگ چه چیزی تغییر کرده؟ تحلیلگران می‌گویند نه چندان زیاد.»
 واقعاً؟ ارتش آن‌ها از کار افتاده، نیروی دریایی‌شان از بین رفته، نیروی هوایی‌شان از بین رفته، سکوهای پرتاب، موشک‌ها، پهپادها و تولید آن‌ها تقریباً نابود شده، دو رده بالای رهبرانشان از میان رفته‌اند، تورمشان به ۲۵۰ درصد رسیده، اقتصادشان درهم شکسته، به سربازانشان حقوق پرداخت نمی‌شود، تنگه هرمز باز است، نفت با شدت در جریان است، و بازار سهام و اشتغال در آمریکا به بالاترین رکوردهای خود رسیده‌اند. این‌هاست آنچه تغییر کرده، ای ترسوهای فاسد و بی‌اخلاق، و حتی بیشتر از این‌ها!!!
+رئیس‌جمهور دی‌جی‌تی
+realDonaldTrump
+نحوه پوشش خبرها درباره ایرانِ بسیار ضربه‌خورده و آسیب‌دیده از سوی نیویورک‌تایمزِ فاسد و رو به افول، از طریق «واقعیت‌های» جعلی و ساختگی، به نظر من «خیانت‌آمیز» است. من همه گزارش‌های دروغین و مضحک آن‌ها را به شکایت چندمیلیارددلاری‌ام علیهشان اضافه خواهم کرد. آن‌ها مجرم‌اند!
 رئیس‌جمهور دی‌جی‌تی
 realDonaldTrump
 📡
@@ -21,7 +61,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
 <img src="https://cdn1.telesco.pe/file/lY5UrNh_53CroSXdxZ7YaPofagOY1aaqfhuGs7iDrQQ5GSCDnBMFhOOm6YtYmiu5CjW6_rmUkh96syuIPO-EHWjhzGunnvNr4BK6GU-qtomxlYRXOaooLScq4ADePdxiLujOlKQ4YAMOlhCeLypH9iuVrJXnE09up2ufCT5EJ3JiS6vm1HH0w_G6VMVSobHOXwS3NY2mtTg7ger0626TS-4ef-qZZTtPpUNNSAZ-WsjVRA8B1i4pPcdTHx64IdtT0iH4DQFY2pFQQYBtEoXzSc1lftHy2K83INE8k5gtR9Cjj9aLkwvDluxXwdlZL4i8h6_c5kv3TM8ai60YXyt_eg.jpg" width="400"><br>
 
@@ -38,7 +78,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
 <img src="https://cdn1.telesco.pe/file/IQ2f2mm53dHYgGpGVgb27cLiaeSNFaT93_BB3vT3eaf6nTKW7KQo968SreMKUxUYIzzOfOrtQP7vu4m4KoCUFbyyb3mEIv2PWMd7g-7i-RLvITugGR_qo_dpdNwSVF5wr8690xkrogLxgUrhJOsi_Zo6bS7M4ptbqyVglIxduWhdM6GuUfAx2qiCzGONpIK3zi7fZhKKC6kjpCX_zKzcUs3LvUtLz0VS0ri7TGFAfwJTUFZAVUKyNxzPTGvm098PzOfGWZi4lr1m2esHySxCYvCU83MzDh0DQ7qtuRaAjH7EHj3ZqLEf8l-ONxVodyB-4HNZk8ZPUDd7KIInj6h8Yw.jpg" width="400"><br>
 
@@ -55,7 +95,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
 <img src="https://cdn1.telesco.pe/file/ip_YOJMk9gGtN9PUie5bselRiOvI9W8h78HYeFNzBVcZPWc8DR_bAnH-GLdRmVX2BqVSNOFAPc0IaG3GpcuhUwFq_urd9cRObwHfzsIC_etP0Ernaiw0GhmKg9FykenbzwHyNinTVaKxKAitJlhMyg-Du7afv-juJ4HcXql39aNPmFysu-gl56r346epr_7SueYFYyCvaoeerXfxEjVjA8zX_isrtaSdQgs5u-qB8xsWcEhqloLZSsS4sT0UdaeGkpU0zxwlf5XfRWwafwWO5uOB41qu9SmBg7jdEfNeunHce4F42xzhOfXSpkkH3xM0D2y-2KbYidPAcZBK1tMHog.jpg" width="400"><br>
 
@@ -77,7 +117,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
 <img src="https://cdn1.telesco.pe/file/pFQ8weGC-A5UfxBn6usT22t-p3SRL0qbnAL9HyvM_3csSVM7lDWnD7Zl52-5LJc0jhNkSogLXzz5ipOxpQS1fe6XnJU7W69IoRuC048Pfv3NEeStLcEg4kTkw2fy6HU_D6gKUujcUAfvZWwXHvLHRyokY2v8KOZqQEopRatu8ZUvm55xsnKNxDVco5tuKLoWmCrgojwfsuGJFPSiBopNMCBc877EEy9ijpIw6ZYLLmNfndCGoPIu6t23fV-mqWGgU680QqtCDfKp7_yCIZsod_bdO0OllvXhuiD6fk9X0nPMWsWsluDgwBDe_JNhv2nvkGZtcj7j9wf7ImAsFf3m6A.jpg" width="400"><br>
 
@@ -99,7 +139,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
 <img src="https://cdn1.telesco.pe/file/PmGn_NaDB_xHDySDP5R2nvgFxM73fEFQ1OusJzmLWS0lo4tM5KTBNufWKSP2QXizFJKfzm8QyMtFYfhNyVUSq9146Oqf3INpVeQ3A2RmVTIo2ztKPg6JlL1HB0bwUrXeWl2oZKUCWFoTFb-z2ePQ-YfV3MLtw9T5jmrkqslcO1x6ZVonOnkNjo3iTRIYYfIkl2bfosiv_GRw8I6qwdRroR5MmZJ1Wlxa8dDBRxHO1IKwKi-KBrNWTZLyMBK0fv3RqZ8J1GDtIiT1SD3UCUaHFMg6vlGlHJs-e1kmRiQ7zz3OU44SV3QwjinDVQ22bnV_bcWT1RSYZnD2B4qJkQhL7A.jpg" width="400"><br>
 
@@ -117,7 +157,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
 <img src="https://cdn1.telesco.pe/file/WVf_WynWNqDKYNO-v16_slJCRcEj_Wa2pdabMMt3teKklDHL7vFNn8RVrJIRCbvK-4OW3k5KjLpA9vtWuB4bdVWY9V-qI8jtsLlMk-mdia5k5bweK1z9lkIuwz49BrNAwACZ6sNd2WXiTbztKPG2JbULO0fQOKo7qjDHOt1c8aD56RPwIL_wbOzSeRAMAx9V9E9UxyYLjyphFnR-ehcB4ljka2aLpw_-hrfRbK473OsoAATLUBfrlFG-BnO7_gWOK8ku76YIK_KL1NgiFEgJHVolBoATnkn-VEKBxprakJiuGbBd3R3JNz-yAqU-cwfjg3WA-dN4QKSi9QRo_jZTLQ.jpg" width="400"><br>
 
@@ -135,7 +175,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
 <img src="https://cdn1.telesco.pe/file/RtdRK7DagCtKV699JSUwW_bO77WJsaReAtG-V3WT4Fq6xW2YavJUc5OmBFWv2K3w6LvLHwUV5iReR8TZU1hKXED5Ux9rBSTy5yLtu1w_8KgDG8lBtRW4SERGZd5Ii90MnbOsTDeh16wlGzHvmY7WFk32EFnWnqFVKy_DSZMDrET4nGIczafJSxRIJmgGAAXzGETWaPd00thuXBxR0qRKC6aWQDQl5wypPRGwgPiTGw9S9t4168DAPreW08yX4whRYXxpRvxNc6zxx9Cz-4d6Z3Ah5avDQ6db6OoJUiYUUWOHrMpSKf1w2IUnSFttbIPvfHQxbEpxWja7qXOKulBAmg.jpg" width="400"><br>
 
@@ -153,7 +193,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-22 01:09:26
+###### 🔵 Updated at: 2026-06-22 02:17:11
 
 
 
@@ -184,46 +224,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76564)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-22 01:09:26
-
-
-
-مسعود پزشکیان، رئیس‌جمهور ایران، همزمان با برگزاری مذاکرات مستقیم میان ایران و آمریکا در سوئیس، گفت همه نظامیان در شورای امنیت ملی موافق مذاکره بوده‌اند.
-او در جلسه‌ای به مناسبت تشکیل بسیج اساتید در دانشگاه تهران، در میان صدای اعتراض عده‌ای از حاضران گفت: «همه امضا کرده‌اند که این راه را باید برویم. حالا هر کسی می‌خواهد تفرقه ایجاد کند، این گوی و این میدان.»
-او با اشاره به نظر فرماندهان نظامی در شورای امنیت ملی گفت: «فرمانده قرارگاه [خاتم الانبیاء]، فرمانده ارتش و سپاه، و نهادهای امنیتی همه بودند و همه یک حرف زدند و همه متحد بودند و همه آن چیزی را که می‌خواستیم عمل کنیم را امضا کردند.»
-این سخنان پزشکیان در پی افزایش انتقاد اصولگرایان تندرو از دولت در پی انتشار نامه منسوب به مجتبی خامنه‌ای صورت می‌گیرد.
-آقای پزشکیان همچنین با تاکید بر نقش دولت در حمایت از نظامیان در دوران جنگ گفت: «۲۰ میلیون بشکه نفت که مال دولت بود را به هوافضای سپاه دادیم. ارزهایی که داشتیم را به این عزیزان دادیم.»
-@
-VahidHeadline
-مسعود پزشکیان، رییس‌ دولت جمهوری اسلامی، گفت نگرانی اصلی او این است که دولت نتواند رضایت مردم را جلب کند و نارضایتی‌ها به اعتراض‌های خیابانی منجر شود.
-پزشکیان گفت: «از آنچه می‌ترسم این است که نتوانیم به مردم به درستی خدمت بدهیم، ناراضی شوند و به خیابان بیایند و اعتراض کنند. آن وقت ابهت ما فرو می‌ریزد.»
-او افزود مهم‌ترین قدرت جمهوری اسلامی، وحدت مردم است و مسئولان نباید اجازه دهند کمبودها، کسری‌ها و نواقص باعث نارضایتی مردم شود. به گفته پزشکیان، بروز چنین وضعیتی موجب «خوشحالی دشمنان» خواهد شد.
-@
-VahidOOnLine
-بعضی از جملات پزشکیان به انتخاب خبرگزاری دانشجو، وابسته بسیج:
-🔸
-اظهارات عجیب پزشکیان: من از این میترسم که نتوانیم مردم راضی کنیم و به خیابان بیایند اعتراض کنند
-🔸
-تمام مفاد تفاهم‌نامه امضا شده بین ایران و آمریکا به نفع ماست و دستاوردهای این گفت‌وگو و مذاکره عیان خواهد بود.
-🔸
-ترامپی که ما را از انجام بسیاری از کارها منع ‌می‌کرد، در سخنرانی اخیر خود تمام آن‌ها را حق مردم و ملت دانست.
-🔸
-۶ میلیارد دلار پول ما در قطر برخواهد گشت.نتانیاهو اولین ناراضی از مذاکرات است.
-🔸
-تنها نکته آمریکا این است که ما بمب اتم نداشته باشیم، این موردی است که رهبر شهید هم بارها فرمودند ما بمب اتم نمی‌خواهیم. آمریکا گفت همین را بنویس و امضا کن، ما هم امضا کردیم.
-🔸
-شورای عالی امنیت ملی در وحدت و انسجام تصمیم گرفت؛ همه یک حرف زدند و متحد بودند
-🔸
-مواضع ترامپ ۱۸۰ درجه نسبت به گذشته عوض شده/ آنها پذیرفتند که حق ملت ایران را نمی‌توانند نادیده بگیرند/ قاعده عوض شده است
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76562)
 
 ---
 
