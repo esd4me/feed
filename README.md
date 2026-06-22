@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn4.telesco.pe/file/Qhmi2w2UWVsSgz3VzE2pY-7hTumlt6TJmxihk9IwTEhKVUCHlBjza3zKF0NG1p6z7ekeNEYS7eawE5KHjbpI0xR1m0o4kAA1awthxIqKClacyFdBOZMHpBuhFVRwX-RZNufF7YKFF7zmsNjfzdGzRYwLlEqr0UHQoIDapuHVM1u8HURpg5sqtPNj30LlpN5IHjX3_gzCbnobDg8dGcWhUcF-UQjf7vm1Kp_dT3oNJn9i5RiaXS7Vt-tm9yW-WqUHdfOiSxFMGNIW8cQCbh8_n8T_GQDre0uikzmeQlTu1zWNWDKKGevRRKVy1JCTVADFPKJGPVd7UEupsSyYOt99Og.jpg" width="400"><br>
 
@@ -24,7 +24,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn1.telesco.pe/file/cu-y1GBYz5EiruEvPSIXpjG7yCiLiHAFlyyfnb-pY34e_ViiA77-zZAZTfZxBQ4fo3sihFAyD_0FR_GKMDVARmRWXB3PwNdfx6EKdrZPdY0bBT4E62MudEvS1FWB6Sv-c0P0maUZ7dMxEv_M-VCGsLPpILpwUOUs2QyzY-RJMnRnBDVfQ4tWzg7Lu1nfsAurdVA6cEdLNcq9yTZsJt7J7VyVt-6Me48YDu899OlNUkY2KrECTGgxjKaaJ6t-6S6fTFXaMg_mq01ENzP2JdgmlvWIU9ZWJuw0wm0klRXRaDg5enyf6Dnu3vF79HatTp8zGrzuVWtlQdIKjX_aG1KYVQ.jpg" width="400"><br>
 
@@ -40,7 +40,7 @@ mb_ghalibaf
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn1.telesco.pe/file/WQbwcGDye6zlRmMj0UwoQBXDhy-vwpFXiwlse20smzLlwQ6VsI14KutOfWVKMuG9SR0FTFnUW_gq1XB1d8PnWcEtdU75SQEau2OpQkg14j_-ZuozN_OaJvmkox7NA1Nk-fYNAw2jMQz5hAG5D4Jmb3Lt1BotQXMRgnC9LwoKwH7lIuTMLrvifLEY1JTYUZ6Suzgy3aVJ--HSYgbz2EiIaEk6Ow_0sB59m9sedFuI6yQg8TdvXjsM0a7M8tLmBEz6Rj2apwmTGqJVQBmHkY-PBZJNF1mGRkSN7Z6OCkVRDbwdVJE0G5QnKvHheifM5oDGapMejT1Ob2E3zGorXn1EFg.jpg" width="400"><br>
 
@@ -61,9 +61,9 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
-<img src="https://cdn1.telesco.pe/file/lY5UrNh_53CroSXdxZ7YaPofagOY1aaqfhuGs7iDrQQ5GSCDnBMFhOOm6YtYmiu5CjW6_rmUkh96syuIPO-EHWjhzGunnvNr4BK6GU-qtomxlYRXOaooLScq4ADePdxiLujOlKQ4YAMOlhCeLypH9iuVrJXnE09up2ufCT5EJ3JiS6vm1HH0w_G6VMVSobHOXwS3NY2mtTg7ger0626TS-4ef-qZZTtPpUNNSAZ-WsjVRA8B1i4pPcdTHx64IdtT0iH4DQFY2pFQQYBtEoXzSc1lftHy2K83INE8k5gtR9Cjj9aLkwvDluxXwdlZL4i8h6_c5kv3TM8ai60YXyt_eg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/fRlDQEMJ7t5ikgYhmaFl-jW1ety__a4AeTU_iTBRb8sKwJDdwAkOTpV8QZNiT2K77egdli4UomB3Jaso037kNsOEJ50LyJymtF0L5IfqSOX6d6ooXqgbUnxi6FuFylKprhqiGT0Gvuf9IiuQSaioC1DwsNSZHKvxkdqqYmwmCaqKEtWmI-F5E0-Il7pShTmWJy3fMfWsti9_BqilOl3gWgrDaBCWTOwHWstVuBPJ1ZoNA5L08uvgtiaXrYvx0H-JuNgK-s9TbzCAqNrIzEqIn8xK3dU4_JOJhBnFmHZorqZBSqMlrMDxtRf7NcK8OzgMOTZTW5xoEr2Vhk0WzwCDcg.jpg" width="400"><br>
 
 تیم فوتبال ایران در دومین دیدار خود در مرحله گروهی جام جهانی ۲۰۲۶، با ارائه یک نمایش دفاعی، در ورزشگاه سوفای لس‌آنجلس مقابل بلژیک به تساوی بدون گل دست یافت.
 مدافع بلژیک در دقیقه ۶۶ از زمین اخراج شد و این تیم ۱۰ نفره به بازی ادامه داد.
@@ -78,7 +78,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn1.telesco.pe/file/IQ2f2mm53dHYgGpGVgb27cLiaeSNFaT93_BB3vT3eaf6nTKW7KQo968SreMKUxUYIzzOfOrtQP7vu4m4KoCUFbyyb3mEIv2PWMd7g-7i-RLvITugGR_qo_dpdNwSVF5wr8690xkrogLxgUrhJOsi_Zo6bS7M4ptbqyVglIxduWhdM6GuUfAx2qiCzGONpIK3zi7fZhKKC6kjpCX_zKzcUs3LvUtLz0VS0ri7TGFAfwJTUFZAVUKyNxzPTGvm098PzOfGWZi4lr1m2esHySxCYvCU83MzDh0DQ7qtuRaAjH7EHj3ZqLEf8l-ONxVodyB-4HNZk8ZPUDd7KIInj6h8Yw.jpg" width="400"><br>
 
@@ -95,7 +95,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn1.telesco.pe/file/ip_YOJMk9gGtN9PUie5bselRiOvI9W8h78HYeFNzBVcZPWc8DR_bAnH-GLdRmVX2BqVSNOFAPc0IaG3GpcuhUwFq_urd9cRObwHfzsIC_etP0Ernaiw0GhmKg9FykenbzwHyNinTVaKxKAitJlhMyg-Du7afv-juJ4HcXql39aNPmFysu-gl56r346epr_7SueYFYyCvaoeerXfxEjVjA8zX_isrtaSdQgs5u-qB8xsWcEhqloLZSsS4sT0UdaeGkpU0zxwlf5XfRWwafwWO5uOB41qu9SmBg7jdEfNeunHce4F42xzhOfXSpkkH3xM0D2y-2KbYidPAcZBK1tMHog.jpg" width="400"><br>
 
@@ -117,7 +117,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn1.telesco.pe/file/pFQ8weGC-A5UfxBn6usT22t-p3SRL0qbnAL9HyvM_3csSVM7lDWnD7Zl52-5LJc0jhNkSogLXzz5ipOxpQS1fe6XnJU7W69IoRuC048Pfv3NEeStLcEg4kTkw2fy6HU_D6gKUujcUAfvZWwXHvLHRyokY2v8KOZqQEopRatu8ZUvm55xsnKNxDVco5tuKLoWmCrgojwfsuGJFPSiBopNMCBc877EEy9ijpIw6ZYLLmNfndCGoPIu6t23fV-mqWGgU680QqtCDfKp7_yCIZsod_bdO0OllvXhuiD6fk9X0nPMWsWsluDgwBDe_JNhv2nvkGZtcj7j9wf7ImAsFf3m6A.jpg" width="400"><br>
 
@@ -139,7 +139,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn1.telesco.pe/file/PmGn_NaDB_xHDySDP5R2nvgFxM73fEFQ1OusJzmLWS0lo4tM5KTBNufWKSP2QXizFJKfzm8QyMtFYfhNyVUSq9146Oqf3INpVeQ3A2RmVTIo2ztKPg6JlL1HB0bwUrXeWl2oZKUCWFoTFb-z2ePQ-YfV3MLtw9T5jmrkqslcO1x6ZVonOnkNjo3iTRIYYfIkl2bfosiv_GRw8I6qwdRroR5MmZJ1Wlxa8dDBRxHO1IKwKi-KBrNWTZLyMBK0fv3RqZ8J1GDtIiT1SD3UCUaHFMg6vlGlHJs-e1kmRiQ7zz3OU44SV3QwjinDVQ22bnV_bcWT1RSYZnD2B4qJkQhL7A.jpg" width="400"><br>
 
@@ -157,7 +157,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn1.telesco.pe/file/WVf_WynWNqDKYNO-v16_slJCRcEj_Wa2pdabMMt3teKklDHL7vFNn8RVrJIRCbvK-4OW3k5KjLpA9vtWuB4bdVWY9V-qI8jtsLlMk-mdia5k5bweK1z9lkIuwz49BrNAwACZ6sNd2WXiTbztKPG2JbULO0fQOKo7qjDHOt1c8aD56RPwIL_wbOzSeRAMAx9V9E9UxyYLjyphFnR-ehcB4ljka2aLpw_-hrfRbK473OsoAATLUBfrlFG-BnO7_gWOK8ku76YIK_KL1NgiFEgJHVolBoATnkn-VEKBxprakJiuGbBd3R3JNz-yAqU-cwfjg3WA-dN4QKSi9QRo_jZTLQ.jpg" width="400"><br>
 
@@ -175,7 +175,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 <img src="https://cdn1.telesco.pe/file/RtdRK7DagCtKV699JSUwW_bO77WJsaReAtG-V3WT4Fq6xW2YavJUc5OmBFWv2K3w6LvLHwUV5iReR8TZU1hKXED5Ux9rBSTy5yLtu1w_8KgDG8lBtRW4SERGZd5Ii90MnbOsTDeh16wlGzHvmY7WFk32EFnWnqFVKy_DSZMDrET4nGIczafJSxRIJmgGAAXzGETWaPd00thuXBxR0qRKC6aWQDQl5wypPRGwgPiTGw9S9t4168DAPreW08yX4whRYXxpRvxNc6zxx9Cz-4d6Z3Ah5avDQ6db6OoJUiYUUWOHrMpSKf1w2IUnSFttbIPvfHQxbEpxWja7qXOKulBAmg.jpg" width="400"><br>
 
@@ -193,12 +193,11 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-22 02:17:11
+###### 🔵 Updated at: 2026-06-22 03:30:07
 
 
 
 جی‌دی ونس و عراقچی در یک قاب
-اولین تصاویر از فرستادگان جمهوری اسلامی و قاتلان رهبرشون در یک اتاق
 خبرگزاری تسنیم به نقل از یک منبع نزدیک به تیم مذاکره‌کننده جمهوری اسلامی گزارش داد که هیات آمریکایی و برگزارکنندگان نشست ژنو قصد داشتند پیش از آغاز مذاکرات چندجانبه، مراسم عکس مشترک و صحنه دست دادن میان هیات‌های جمهوری اسلامی و آمریکا برگزار شود اما محمدباقر قالیباف مخالف کرده است.
 به گفته این منبع، محمدباقر قالیباف، رییس مجلس جمهوری اسلامی، با این تشریفات مخالفت کرد و اعلام کرد اعضای هیات جمهوری اسلامی در مراسم عکس مشترک با هیات آمریکایی حضور نخواهند داشت.
 این منبع افزود در پی مخالفت هیات جمهوری اسلامی و خودداری آن از حضور در این مراسم، پخش مستقیم و برنامه عکس مشترک لغو شد و پس از آن هیات جمهوری اسلامی وارد محل برگزاری مذاکرات شد.
