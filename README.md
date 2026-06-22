@@ -3,7 +3,39 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
+
+<img src="https://cdn1.telesco.pe/file/YzbVp-AXifei49CNPkRZMxhYmjlp87yW66S1Bjtf2r0f-UI_sLVfDyC3oPvM1i2VJb8gDIz9S_oDkrc-Y7KFP8sbdGZc-xJ4pR68gN502sRdaRqhC9DgO3MTu5MempbAhN4w9n7uq_hJZ27xPK8Zq3wB7yCPLKDHkf8vDpXshq3HWKvL02PQqbGEzfI9jBTJ9G6EmT2Q8sb_s353DPYkkfF0wNjTOEKfhW58Y6FT9WGGsoYNTLmIA9dQ9A1N90bPjIlWYWm5FhpQL8NE1ZZ823dM1edPiK357erYke9Lmo1uMGC7jZenYXOeWdyWBSclr7DjY3pE5-0oVP1kvyf0Xw.jpg" width="400"><br>
+
+تصاویری که ترامپ پشت سر هم پست کرد
+تصاویری است با عناوین نظرسنجی‌ها درباره توافق + ترجمه ماشینی
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76603)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 02:37:47
+
+<img src="https://cdn4.telesco.pe/file/WavEG0ZwnLSuuKPxMbC2Fp561OSY3EBz-Gn71zMQurS0qrLZDZ3ZVpyv9kOXW-w3UBLhuklvO_ZehZkyBnxQ7aetUS1DpNmKpnOInsx3okQS165Vm10G1ihUZSNfsq5TnrT4HAKl7pAD7JKDxwAG5TSO2Gi2nQgjXtkSeOtDITiwBCClC70u0qSZzPlW9TfPwoTxN4bRDt8vtWCKPa_S_N2mYCoTwyai57KjP-hr6LrmfIX3iwlufVUFlcVOB13ujNlAzRsDk27yRmQHN1TjwMWstCcKYu7J0B3LywKg3ZTf683N2H-ik0wPax7MiZhhYvxoQ2J2WwuMr_YEXABYGw.jpg" width="400"><br>
+
+محمدباقر قالیباف، سرپرست تیم مذاکره‌کننده جمهوری اسلامی ایران، در واکنش به صحبت یکی از مجری‌های صداوسیما با انتشار پیامی در اکس نوشت: «در یکی از برنامه‌های صداوسیما دیدم که گفتند کاش فرودگاه مهرآباد را می‌بستند تا تیم مذاکره‌کننده به سوئیس نرود. به آن عزیزان می‌گویم اگر به سوئیس نمی‌رفتیم، هر لحظه خون بیشتری از مسلمانان و شیعیان لبنان ریخته می‌شد.»
+پیش از این، روز شنبه، یکی از مجری‌های صداوسیما گفته بود: «در کنار بستن تنگه هرمز باید فرودگاه مهرآباد را هم می‌بستیم تا مسئولان برای مذاکره نروند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76602)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 
 
@@ -33,7 +65,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 
 
@@ -69,7 +101,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 <img src="https://cdn1.telesco.pe/file/rOtyuF9GKCIMUVraOndW5osMJnFfjB3Wb2iaJfcDO5j2Tfrw2q7-FCWMd18OxVo1E6FIWHfIh4frnhr6WtsZJ0EHkv9pYQVfZwkotqQgUKRyIWQoz73hoITf5Fpb0l2x3Vp-Sej4JFQkIZxJz3MmGmnk3o6i_9evtbZhp1a2ZsIy6oLF_dkhuy-ql1-PTNf06LEQ_cJwQI1k_Pc_k8mN_9e9A3xFDsPplSAm3oyRv5TxQFEHx1qB-AlRO4q9dhxcoInNUoJ6LY99xsWXhbrgB8-STSX7nQs5DYegR3wi0Dz9KGZF4v5I_FcF5Zy7VtZDZbEdb3yvqyktfz26uE8XSw.jpg" width="400"><br>
 
@@ -86,7 +118,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 <img src="https://cdn4.telesco.pe/file/J9m-Z5WtF6KQJVshfDlcBbW8QjIs1L57vI7Taw0pdVYmvbgwNLg3CJh3O5Gf5_iU57eRvjtta0syMzk3aKVq87ajm7FMagGwlXZIlddO2gDEhSHlP0XxsZlanq7BUvuTP3S8tSmRoHFvrxmh_Isey_L5_ODeRAWBfp29ZVuXKKZeXivevzPSxSuC0yJoiQOUIHkDATY0yGBix55K5NPBqm33_nShxbaipBSVrbgvrfgJmaCgHtCYviMsNgAxHyBLa_YaBtUWqAqCyAURJfKljXGrtWKoxbgNO3feXbREy6PNNYKqFHmBk5BLAhN6e-I6ciD59sWcpzdA2vx76UvHdg.jpg" width="400"><br>
 
@@ -103,7 +135,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 <img src="https://cdn1.telesco.pe/file/sKH2yLwUfGJV_B_LxnTf6h-vEN6czN5K5XhnuTq825RQqg6UMr3WzCpyCDRtldDLr379g4fa1fmku0DQ0bHlnTrBu-NhhWo7J6oM0yLVhKxaakTnoXmmeHGt6cxPFsiTm1QClwL1te1x2okbwwOcsvknuTlZ3pWK8l0Ca6Xy2GCzOwe0B1jS4j_c2eFIZ-K2wLA8as5zcXosZGouqLgcaf4XLLbd1MhCJI1VVAiVaKTc1WsqadaMya1-I401vQUhEz0RADWfMfwRssR2JYJEjm-d6-q7PCVJX5QaLuq0rTU-a7yuV1oqAAIKdYBKPT5bt9ObV55dHrtxdC1eJCy7pA.jpg" width="400"><br>
 
@@ -119,7 +151,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 
 
@@ -140,7 +172,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 <img src="https://cdn1.telesco.pe/file/ofjh4mn3zTW9P8YUG6ropWoTL-v0G1SBASfnS7fXaCRRP7dPVwbZt02mzwHMttBHa03y9-Rg0lKJjzJm7v2epYp9JILvXyExKIEYfRPW6a9ocCAmlCdCTkkEUz-Uy0N3Wc5MfoOnNXauko8L7XMDrBSwQJ1yfd-NaVKrzPQTP_EiiRMXejVppQ2OqQQBUWdPuHoEYht6oCXbRzCMOeJ4PomrQ9jSsLz3G1LChc6Z8je7oQZAs-XbGHcHqZFzKnBVj2Z8bnpnF0FuMuV3PoSeltPhcUCoqdbNPflPVKw4NkaqprJUDRq4PL8Vh-1ymH4MVNdaMVOrm3XXD34ri8hZ0Q.jpg" width="400"><br>
 
@@ -158,7 +190,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 <img src="https://cdn1.telesco.pe/file/r8Zl_LS5GIRO-1zaNkh1yGsY5trn5YWH4mSEpCBpcmakpcBSppcSU8CtLvj8g6MLGviB-PxJQa9vOZeJQUgLSADDKkTiPLrPTlG4Q_haJt9cFHVUkY4jyBOCgZ6MribWrCtvVhLKZVr-Na3EUrRM6pvhXiKf-3eJnFq7U2GJ7OLOiRNLElCEctkG9MxUHhemVQH6wHZVkq3XpOZyIwmi7-m38upn8Xo73DPmeVaS-FT75-BkQjrW5pXgGHS5ZOtPydP1xq-kQqs_LMAIXhdqStQ24QFeuSzqkKCgTAqCdSjN00VDkZI1CBbvZO30l_cW-uQQ7uYElJf_KlwSTIoajw.jpg" width="400"><br>
 
@@ -175,7 +207,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 01:17:42
+###### 🔵 Updated at: 2026-06-23 02:37:47
 
 <img src="https://cdn1.telesco.pe/file/AP8fWNaOnwld9y1qzF-tF2KELPwV_NtUL-zvIWj4LO-j_OoWgD4ZTlkANdrnfuQjnVmNd6DGmuiU1AXR7g1TqDNN1Ij51x5ZnZiawh57Sf3bDG_nHfKvPZbPD5B-kr7CR3qGMGlNgfYeoCF07TW02fAxvntfxI8TAiU9owmEP0V4psyHpMgLjhQIincGGqRxdaPiWH9icdSHF6Js16S3osI0bzpLEH8Ha7e_-b83DL55B_n_Z5UVggGfz6EDysHip90S-X_Kdivonzv8FTDHFW28A9r3CMeMfEJ1dUR8AviCY_pKfyb7UQQYICDtZXXqrWbLsAwJZNdHGeoDDWzocQ.jpg" width="400"><br>
 
@@ -207,106 +239,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76588)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 01:17:42
-
-<img src="https://cdn1.telesco.pe/file/lishfZbftEvV65F-gpgsKCOGDjQLVC4nZEFjudpyo9X8HpXu4MDLMLmwQZzJbEj8FMf4ivTovv-HJCm2pLXirvU3_UqroAsNERJb2lLWM_u_HYa9WRm9G0v-JjHfinNeyNSQ7Y4BPhLZGSodzTslfEZtDMkfOwEre0bMSezNonlT3R0LzqKkT3J059Y9-kQl_TgCToFHNoiPqsWx1vdj3-DfKm_rxdlA40JLIfQH4H1fSur1grYhFjJQ-wblUPOCtjvS_-e7P7JZ7MBfSlXDl_2wNtAFFsYqxp-cBP5c8F27LmfSH9p9JKmAEHiq-uT6yIZNfnWYTW4JVvYQv1Qg9w.jpg" width="400"><br>
-
-میانجی‌ها اعلام کردند ایران و ایالات متحده روز دوشنبه اول تیرماه توافق کردند خطوط ارتباطی مستقیمی برای باز نگه داشتن تنگه راهبردی هرمز و پایان دادن به درگیری‌ها در لبنان ایجاد کنند.
-بنا بر گزارش‌ها دو طرف از طریق تشکیل یک کمیته عالی مذاکرات، بر سر یک نقشه راه برای دستیابی به توافق نهایی ظرف ۶۰ روز به توافق رسیدند  همچنین قرار شد گفت‌وگوهای فنی از همین هفته در بورگن‌اشتوک درباره همه موضوعات ادامه یابد.
-در بیانیه مشترک دو کشور میانجی یعنی پاکستان و قطر آمده است که: «طرف‌ها با تشکیل یک کمیته عالی موافقت کردند که مسئول نظارت سیاسی بر روند میانجی‌گری خواهد بود. مذاکره‌کنندگان ارشد به‌طور منظم به این کمیته گزارش خواهند داد و گروه‌های کاری مسئول موضوعات هسته‌ای، تحریم‌ها و نیز گروه نظارت و حل‌وفصل اختلافات را هدایت خواهند کرد تا اجرای مؤثر تفاهم‌نامه و دیگر مسائل تضمین شود. کمیته عالی بر سر یک نقشه راه برای دستیابی به توافق نهایی ظرف ۶۰ روز به توافق رسیده است؛ نقشه‌ای که زمینه را برای آغاز فوری گفت‌وگوهای فنی بیشتر فراهم می‌کند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76587)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 01:17:42
-
-<img src="https://cdn1.telesco.pe/file/GRXbHmTBhDUg92jobpU7SauByid7W1uTff1XjGhfOWgt0KvdNg7_JD4BF6iV0TdcX1lIJbjql2-m5vsKGYWGjy559qgh2kQ3sI5ayqYgatPbuS7Yl9TGJZNL_eg1Q62zfItNfmgyl9HS3J843tqJGlyw6exlD5r94VErbWGDNeEHV4H4v8ckVWCOZmmJDliL2aixlWHGRN02vGaqXrigxIGGlchy7MaIQoYt1bUzyiQ3iYqYddAaKip93OWsDU2z1hscSBA9yrlYkWMhb6G1yL13SlwkVv3EiO9bniJideK7_rk84lQmkw-MtqvCFl764bW6LjjsF0rb8eH9D-bw9Q.jpg" width="400"><br>
-
-پست قالیباف با فوتبال، ترجمه ماشین: ما این‌طور از سرزمین‌مان محافظت می‌کنیم. mb_ghalibaf
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76586)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 01:17:42
-
-<img src="https://cdn1.telesco.pe/file/qFm0gpfIC6INR-dYbpYnlVrr0wjO6Hf2--HFl34PH0UDwoBIU-DuCRN5031QhVfXfuD2FZXdaU7z3Bfk1YRltEW1frcWDFpnFReCJfTzppZxsqWjZDaaWUoPLd-qQ8YXIinMCyJnhRWI1xM91-wzWn9tBl3OKxbhv9tqMFV3gVcz3F7W6c_Jq9F_9hRH1MDcEZ9XA5wS7HYR7NABoe4lMvatDZZkioZhTFRPofLNi5PuV5ht11S5gUtGsQut1Jx8b6Hvdc8_F35aNQ45aGCJBLRHkVsmEIN-mpcbhpLIwIcn8sRWmCvPQuvw4nCzETqmpz_rjultnUk4crg5HMu-OA.jpg" width="400"><br>
-
-اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، اعلام کرد مذاکرات سوئیس با «پیشرفت‌های خوبی» همراه بوده و گفت‌وگوهایی درباره پایان جنگ در همه جبهه‌ها از جمله لبنان، فروش نفت ایران، آزادسازی دارایی‌های مسدودشده و سازوکار عبور کشتی‌ها از تنگه هرمز انجام شده است.
-او گفت درباره صدور مجوزهای لازم برای فروش نفت و آزادسازی دارایی‌ها پیشرفت حاصل شده و قرار است سازوکاری برای موضوع تنگه هرمز نیز تدوین شود.
-بقایی همچنین تایید کرد هیات جمهوری اسلامی پس از انتشار آنچه «اظهارنظر تهدیدآمیز آمریکا» خواند، از ادامه نشست چهارجانبه خودداری کرد و مذاکرات از طریق میانجی‌های قطری و پاکستانی ادامه یافت.
-به گفته او، تهران بر اجرای تعهدات طرف مقابل، به‌ویژه در زمینه آتش‌بس و تعهدات اقتصادی، تاکید کرده است.
-بقایی افزود گروه‌های فنی دوشنبه مذاکرات خود را برای بررسی جزییات اجرای تفاهم‌نامه ادامه می‌دهند و قطر و پاکستان نیز متنی را به‌عنوان جمع‌بندی توافقات حاصل‌شده در جریان ۱۸ ساعت مذاکره منتشر خواهند کرد.
-@
-VahidOOnLine
-تسنیم به نقل از بیانیه مشترک قطر و پاکستان گزارش داد که نخستین جلسه مذاکرات نمایندگان جمهوری اسلامی و آمریکا در بورگن اشتوک سوئیس و با میانجی‌گری پاکستان و قطر به پایان رسیده است.
-در این بیانیه فضای مذاکرات «سازنده» و روند پیشرفت «دلگرم‌کننده» عنوان شده است.
-به گزارش تسنیم، طرفین با ایجاد یک کمیته عالی رتبه موافقت کرده‌اند که نظارت سیاسی بر میانجیگری را بر عهده خواهد داشت.
-براساس این گزارش، «مذاکره‌کنندگان ارشد به طور منظم به کمیته عالی رتبه گزارش می‌دهند و گروه‌های کاری متمرکز بر هسته‌ای، تحریم‌ها و یک گروه نظارت و حل اختلاف را برای اطمینان از اجرای مؤثر تفاهم‌نامه و سایر موارد رهبری می‌کنند.
-کمیته عالی رتبه بر سر نقشه راهی برای دستیابی به توافق نهایی ظرف ۶۰ روز توافق کرده است که زمینه را برای آغاز فوری مذاکرات فنی بیشتر فراهم می‌کند.»
-تسنیم می‌افزاید: علاوه بر این، یک خط ارتباطی بین طرفین برای مدت ذکر شده در بند ۵ تفاهم‌نامه ایجاد شده است تا از حوادث و سوءتفاهم‌ها با هدف عبور ایمن کشتی‌های تجاری از تنگه هرمز جلوگیری شود.
-@
-VahidOOnLine
-عباس عراقچی بامداد دوشنبه، با انتشار پیامی در اکس از پیشرفت‌های حاصل‌شده برای پایان دادن به جنگ لبنان در پی میانجی‌گری خستگی‌ناپذیر پاکستان و قطر خبر داد. وزیر خارجه جمهوری اسلامی نوشت: «صادرات نفت و پتروشیمی معاف شده، محاصره برداشته شده، برخی از دارایی‌های مسدود شده آزاد شده و طرح بزرگ بازسازی و توسعه برای ایران آغاز شده است». عراقچی با این حال تاکید کرد که اولین آزمون واقعی و جدی این دستاوردها، عملکرد «سلول مدیریت منازعه لبنان» خواهد بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76584)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 01:17:42
-
-<img src="https://cdn4.telesco.pe/file/Qhmi2w2UWVsSgz3VzE2pY-7hTumlt6TJmxihk9IwTEhKVUCHlBjza3zKF0NG1p6z7ekeNEYS7eawE5KHjbpI0xR1m0o4kAA1awthxIqKClacyFdBOZMHpBuhFVRwX-RZNufF7YKFF7zmsNjfzdGzRYwLlEqr0UHQoIDapuHVM1u8HURpg5sqtPNj30LlpN5IHjX3_gzCbnobDg8dGcWhUcF-UQjf7vm1Kp_dT3oNJn9i5RiaXS7Vt-tm9yW-WqUHdfOiSxFMGNIW8cQCbh8_n8T_GQDre0uikzmeQlTu1zWNWDKKGevRRKVy1JCTVADFPKJGPVd7UEupsSyYOt99Og.jpg" width="400"><br>
-
-وزارت خارجه آمریکا اعلام کرد مارکو روبیو، وزیر خارجه این کشور، از دو روز دیگر، یعنی ۲۳ ژوئن (دوم تیر) در سفری دو روزه به خاورمیانه به امارات متحده عربی، کویت و بحرین سفر خواهد کرد.
-در این سفر، آقای روبیو درباره مجموعه‌ای از اولویت‌های منطقه‌ای گفت‌وگو خواهد کرد؛ از جمله:
-تفاهم‌نامه میان آمریکا و ایران
-تلاش‌ها برای تضمین عبور کامل، آزاد و ایمن کشتی‌ها از تنگه هرمز
-اهمیت حفظ صلح و ثبات در منطقه
-وزیر خارجه آمریکا همچنین در بحرین با اعضای شورای همکاری خلیج فارس دیدار خواهد کرد تا درباره اولویت‌های مشترک کشورهای منطقه گفت‌وگو کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76583)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 01:17:42
-
-<img src="https://cdn1.telesco.pe/file/cu-y1GBYz5EiruEvPSIXpjG7yCiLiHAFlyyfnb-pY34e_ViiA77-zZAZTfZxBQ4fo3sihFAyD_0FR_GKMDVARmRWXB3PwNdfx6EKdrZPdY0bBT4E62MudEvS1FWB6Sv-c0P0maUZ7dMxEv_M-VCGsLPpILpwUOUs2QyzY-RJMnRnBDVfQ4tWzg7Lu1nfsAurdVA6cEdLNcq9yTZsJt7J7VyVt-6Me48YDu899OlNUkY2KrECTGgxjKaaJ6t-6S6fTFXaMg_mq01ENzP2JdgmlvWIU9ZWJuw0wm0klRXRaDg5enyf6Dnu3vF79HatTp8zGrzuVWtlQdIKjX_aG1KYVQ.jpg" width="400"><br>
-
-پست قالیباف با فوتبال، ترجمه ماشین:
-ما این‌طور از سرزمین‌مان محافظت می‌کنیم.
-mb_ghalibaf
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76582)
 
 ---
 
