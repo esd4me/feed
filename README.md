@@ -3,7 +3,37 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
+
+
+
+ترامپ: اوضاع ما  ‏در مورد تنگه هرمز خیلی خوب است.
+‏دیروز نفت بیشتری از هر زمان دیگری از تنگه عبور کرد؛ بیش از   ‏هر مقداری که تاکنون از تنگه عبور کرده است.
+‏احتمالاً این را می‌بینید.   ‏ما با یک فوران نفت روبه‌رو هستیم.
+‏تنگه کاملاً باز است.   ‏این را می‌دانید.
+‏خواهیم دید همه این‌ها چطور پیش می‌رود.
+‏اما ما دو چیز داریم.
+‏ما یک تنگه باز داریم و کشوری داریم که   ‏هرگز سلاح هسته‌ای نخواهد داشت.
+‏هیچ‌وقت، هرگز، سلاح هسته‌ای نخواهد داشت.
+ترامپ در پاسخ به سوالی در مورد تنش‌های احتمالی در تنگه هرمز گفت
+تا زمانی که ایران به ما احترام بگذارد، نمی‌خواهم بگویم از ما بترسند، تا زمانی که احترام بگذارند اوضاع خوب خواهد بود.
+@
+VahidHeadline
+دونالد ترامپ، رئیس‌جمهوری آمریکا، دوشنبه عصر گفت اگر جمهوری اسلامی «به توافق خود عمل نکند یا اگر رفتار مناسبی نداشته باشد، من کاری را که باید انجام دهم انجام خواهم داد.»
+او گفت جمهوری اسلامی اهرم فشاری ندارد چرا که «نیروی دریایی آن‌ها از بین رفته است. نیروی هوایی آن‌ها از بین رفته است. رهبرانشان همگی مرده‌اند. کل کشورشان به هم ریخته است. اقتصادشان نابود شده است.»
+ترامپ: نیویورک تایمز جعلی گفت، اوه، وضعیت تقریباً همان چیزی است که چهار ماه پیش بود. نه، چهار ماه پیش، آنها یک نیروی دریایی داشتند، دقیقاً ۱۵۹ کشتی. آن از بین رفته است. کل نیروی دریایی از بین رفته است. آنها ۲۵۰ هواپیما داشتند، همه از بین رفته‌اند. ضدهوایی آن‌ها از بین رفته است. رادار آنها از بین رفته است... همه چیز از بین رفته است. رهبران آنها از بین رفته‌اند. کل کشورشان از بین رفته است...»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76601)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 
 
@@ -39,7 +69,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/rOtyuF9GKCIMUVraOndW5osMJnFfjB3Wb2iaJfcDO5j2Tfrw2q7-FCWMd18OxVo1E6FIWHfIh4frnhr6WtsZJ0EHkv9pYQVfZwkotqQgUKRyIWQoz73hoITf5Fpb0l2x3Vp-Sej4JFQkIZxJz3MmGmnk3o6i_9evtbZhp1a2ZsIy6oLF_dkhuy-ql1-PTNf06LEQ_cJwQI1k_Pc_k8mN_9e9A3xFDsPplSAm3oyRv5TxQFEHx1qB-AlRO4q9dhxcoInNUoJ6LY99xsWXhbrgB8-STSX7nQs5DYegR3wi0Dz9KGZF4v5I_FcF5Zy7VtZDZbEdb3yvqyktfz26uE8XSw.jpg" width="400"><br>
 
@@ -56,7 +86,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn4.telesco.pe/file/J9m-Z5WtF6KQJVshfDlcBbW8QjIs1L57vI7Taw0pdVYmvbgwNLg3CJh3O5Gf5_iU57eRvjtta0syMzk3aKVq87ajm7FMagGwlXZIlddO2gDEhSHlP0XxsZlanq7BUvuTP3S8tSmRoHFvrxmh_Isey_L5_ODeRAWBfp29ZVuXKKZeXivevzPSxSuC0yJoiQOUIHkDATY0yGBix55K5NPBqm33_nShxbaipBSVrbgvrfgJmaCgHtCYviMsNgAxHyBLa_YaBtUWqAqCyAURJfKljXGrtWKoxbgNO3feXbREy6PNNYKqFHmBk5BLAhN6e-I6ciD59sWcpzdA2vx76UvHdg.jpg" width="400"><br>
 
@@ -73,7 +103,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/sKH2yLwUfGJV_B_LxnTf6h-vEN6czN5K5XhnuTq825RQqg6UMr3WzCpyCDRtldDLr379g4fa1fmku0DQ0bHlnTrBu-NhhWo7J6oM0yLVhKxaakTnoXmmeHGt6cxPFsiTm1QClwL1te1x2okbwwOcsvknuTlZ3pWK8l0Ca6Xy2GCzOwe0B1jS4j_c2eFIZ-K2wLA8as5zcXosZGouqLgcaf4XLLbd1MhCJI1VVAiVaKTc1WsqadaMya1-I401vQUhEz0RADWfMfwRssR2JYJEjm-d6-q7PCVJX5QaLuq0rTU-a7yuV1oqAAIKdYBKPT5bt9ObV55dHrtxdC1eJCy7pA.jpg" width="400"><br>
 
@@ -89,7 +119,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 
 
@@ -110,7 +140,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/ofjh4mn3zTW9P8YUG6ropWoTL-v0G1SBASfnS7fXaCRRP7dPVwbZt02mzwHMttBHa03y9-Rg0lKJjzJm7v2epYp9JILvXyExKIEYfRPW6a9ocCAmlCdCTkkEUz-Uy0N3Wc5MfoOnNXauko8L7XMDrBSwQJ1yfd-NaVKrzPQTP_EiiRMXejVppQ2OqQQBUWdPuHoEYht6oCXbRzCMOeJ4PomrQ9jSsLz3G1LChc6Z8je7oQZAs-XbGHcHqZFzKnBVj2Z8bnpnF0FuMuV3PoSeltPhcUCoqdbNPflPVKw4NkaqprJUDRq4PL8Vh-1ymH4MVNdaMVOrm3XXD34ri8hZ0Q.jpg" width="400"><br>
 
@@ -128,7 +158,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/r8Zl_LS5GIRO-1zaNkh1yGsY5trn5YWH4mSEpCBpcmakpcBSppcSU8CtLvj8g6MLGviB-PxJQa9vOZeJQUgLSADDKkTiPLrPTlG4Q_haJt9cFHVUkY4jyBOCgZ6MribWrCtvVhLKZVr-Na3EUrRM6pvhXiKf-3eJnFq7U2GJ7OLOiRNLElCEctkG9MxUHhemVQH6wHZVkq3XpOZyIwmi7-m38upn8Xo73DPmeVaS-FT75-BkQjrW5pXgGHS5ZOtPydP1xq-kQqs_LMAIXhdqStQ24QFeuSzqkKCgTAqCdSjN00VDkZI1CBbvZO30l_cW-uQQ7uYElJf_KlwSTIoajw.jpg" width="400"><br>
 
@@ -145,7 +175,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/AP8fWNaOnwld9y1qzF-tF2KELPwV_NtUL-zvIWj4LO-j_OoWgD4ZTlkANdrnfuQjnVmNd6DGmuiU1AXR7g1TqDNN1Ij51x5ZnZiawh57Sf3bDG_nHfKvPZbPD5B-kr7CR3qGMGlNgfYeoCF07TW02fAxvntfxI8TAiU9owmEP0V4psyHpMgLjhQIincGGqRxdaPiWH9icdSHF6Js16S3osI0bzpLEH8Ha7e_-b83DL55B_n_Z5UVggGfz6EDysHip90S-X_Kdivonzv8FTDHFW28A9r3CMeMfEJ1dUR8AviCY_pKfyb7UQQYICDtZXXqrWbLsAwJZNdHGeoDDWzocQ.jpg" width="400"><br>
 
@@ -182,7 +212,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/lishfZbftEvV65F-gpgsKCOGDjQLVC4nZEFjudpyo9X8HpXu4MDLMLmwQZzJbEj8FMf4ivTovv-HJCm2pLXirvU3_UqroAsNERJb2lLWM_u_HYa9WRm9G0v-JjHfinNeyNSQ7Y4BPhLZGSodzTslfEZtDMkfOwEre0bMSezNonlT3R0LzqKkT3J059Y9-kQl_TgCToFHNoiPqsWx1vdj3-DfKm_rxdlA40JLIfQH4H1fSur1grYhFjJQ-wblUPOCtjvS_-e7P7JZ7MBfSlXDl_2wNtAFFsYqxp-cBP5c8F27LmfSH9p9JKmAEHiq-uT6yIZNfnWYTW4JVvYQv1Qg9w.jpg" width="400"><br>
 
@@ -200,7 +230,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/GRXbHmTBhDUg92jobpU7SauByid7W1uTff1XjGhfOWgt0KvdNg7_JD4BF6iV0TdcX1lIJbjql2-m5vsKGYWGjy559qgh2kQ3sI5ayqYgatPbuS7Yl9TGJZNL_eg1Q62zfItNfmgyl9HS3J843tqJGlyw6exlD5r94VErbWGDNeEHV4H4v8ckVWCOZmmJDliL2aixlWHGRN02vGaqXrigxIGGlchy7MaIQoYt1bUzyiQ3iYqYddAaKip93OWsDU2z1hscSBA9yrlYkWMhb6G1yL13SlwkVv3EiO9bniJideK7_rk84lQmkw-MtqvCFl764bW6LjjsF0rb8eH9D-bw9Q.jpg" width="400"><br>
 
@@ -214,7 +244,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/qFm0gpfIC6INR-dYbpYnlVrr0wjO6Hf2--HFl34PH0UDwoBIU-DuCRN5031QhVfXfuD2FZXdaU7z3Bfk1YRltEW1frcWDFpnFReCJfTzppZxsqWjZDaaWUoPLd-qQ8YXIinMCyJnhRWI1xM91-wzWn9tBl3OKxbhv9tqMFV3gVcz3F7W6c_Jq9F_9hRH1MDcEZ9XA5wS7HYR7NABoe4lMvatDZZkioZhTFRPofLNi5PuV5ht11S5gUtGsQut1Jx8b6Hvdc8_F35aNQ45aGCJBLRHkVsmEIN-mpcbhpLIwIcn8sRWmCvPQuvw4nCzETqmpz_rjultnUk4crg5HMu-OA.jpg" width="400"><br>
 
@@ -245,7 +275,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn4.telesco.pe/file/Qhmi2w2UWVsSgz3VzE2pY-7hTumlt6TJmxihk9IwTEhKVUCHlBjza3zKF0NG1p6z7ekeNEYS7eawE5KHjbpI0xR1m0o4kAA1awthxIqKClacyFdBOZMHpBuhFVRwX-RZNufF7YKFF7zmsNjfzdGzRYwLlEqr0UHQoIDapuHVM1u8HURpg5sqtPNj30LlpN5IHjX3_gzCbnobDg8dGcWhUcF-UQjf7vm1Kp_dT3oNJn9i5RiaXS7Vt-tm9yW-WqUHdfOiSxFMGNIW8cQCbh8_n8T_GQDre0uikzmeQlTu1zWNWDKKGevRRKVy1JCTVADFPKJGPVd7UEupsSyYOt99Og.jpg" width="400"><br>
 
@@ -266,7 +296,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 23:05:43
+###### 🔵 Updated at: 2026-06-23 01:17:42
 
 <img src="https://cdn1.telesco.pe/file/cu-y1GBYz5EiruEvPSIXpjG7yCiLiHAFlyyfnb-pY34e_ViiA77-zZAZTfZxBQ4fo3sihFAyD_0FR_GKMDVARmRWXB3PwNdfx6EKdrZPdY0bBT4E62MudEvS1FWB6Sv-c0P0maUZ7dMxEv_M-VCGsLPpILpwUOUs2QyzY-RJMnRnBDVfQ4tWzg7Lu1nfsAurdVA6cEdLNcq9yTZsJt7J7VyVt-6Me48YDu899OlNUkY2KrECTGgxjKaaJ6t-6S6fTFXaMg_mq01ENzP2JdgmlvWIU9ZWJuw0wm0klRXRaDg5enyf6Dnu3vF79HatTp8zGrzuVWtlQdIKjX_aG1KYVQ.jpg" width="400"><br>
 
@@ -277,27 +307,6 @@ mb_ghalibaf
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76582)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-22 23:05:43
-
-<img src="https://cdn1.telesco.pe/file/WQbwcGDye6zlRmMj0UwoQBXDhy-vwpFXiwlse20smzLlwQ6VsI14KutOfWVKMuG9SR0FTFnUW_gq1XB1d8PnWcEtdU75SQEau2OpQkg14j_-ZuozN_OaJvmkox7NA1Nk-fYNAw2jMQz5hAG5D4Jmb3Lt1BotQXMRgnC9LwoKwH7lIuTMLrvifLEY1JTYUZ6Suzgy3aVJ--HSYgbz2EiIaEk6Ow_0sB59m9sedFuI6yQg8TdvXjsM0a7M8tLmBEz6Rj2apwmTGqJVQBmHkY-PBZJNF1mGRkSN7Z6OCkVRDbwdVJE0G5QnKvHheifM5oDGapMejT1Ob2E3zGorXn1EFg.jpg" width="400"><br>
-
-دو پست ترامپ علیه نیویورک‌تایمز درباره اخبار جنگ:
-تیتر نیویورک‌تایمزِ فاسد و رو به سقوط این است: «بعد از تقریباً چهار ماه جنگ چه چیزی تغییر کرده؟ تحلیلگران می‌گویند نه چندان زیاد.»
-واقعاً؟ ارتش آن‌ها از کار افتاده، نیروی دریایی‌شان از بین رفته، نیروی هوایی‌شان از بین رفته، سکوهای پرتاب، موشک‌ها، پهپادها و تولید آن‌ها تقریباً نابود شده، دو رده بالای رهبرانشان از میان رفته‌اند، تورمشان به ۲۵۰ درصد رسیده، اقتصادشان درهم شکسته، به سربازانشان حقوق پرداخت نمی‌شود، تنگه هرمز باز است، نفت با شدت در جریان است، و بازار سهام و اشتغال در آمریکا به بالاترین رکوردهای خود رسیده‌اند. این‌هاست آنچه تغییر کرده، ای ترسوهای فاسد و بی‌اخلاق، و حتی بیشتر از این‌ها!!!
-رئیس‌جمهور دی‌جی‌تی
-realDonaldTrump
-نحوه پوشش خبرها درباره ایرانِ بسیار ضربه‌خورده و آسیب‌دیده از سوی نیویورک‌تایمزِ فاسد و رو به افول، از طریق «واقعیت‌های» جعلی و ساختگی، به نظر من «خیانت‌آمیز» است. من همه گزارش‌های دروغین و مضحک آن‌ها را به شکایت چندمیلیارددلاری‌ام علیهشان اضافه خواهم کرد. آن‌ها مجرم‌اند!
-رئیس‌جمهور دی‌جی‌تی
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76581)
 
 ---
 
