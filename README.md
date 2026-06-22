@@ -3,7 +3,100 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-22 14:39:03
+###### 🔵 Updated at: 2026-06-22 19:29:29
+
+
+
+نتانیاهو: تا وقتی که لازم باشد در جنوب لبنان خواهیم ماند
+بنیامین نتانیاهو اعلام کرد که موضع و دستورش به وزیر دفاع اسرائیل تغییر نکرده است.
+نخست‌وزیر اسرائیل نوشت: «نیروهای ما در جنوب لبنان آزادی عمل کامل برای خنثی کردن هرگونه تهدید مستقیم علیه خود یا ساکنان شمال را دارند.»
+او تاکید کرد که ارتش اسرائیل «هیچ محدودیتی در این زمینه ندارد.»
+نتانیاهو بار دیگر تکرار کرد که ارتش اسرائیل «تا زمانی که لازم باشد در منطقه امنیتی جنوب لبنان خواهد ماند.»
+در مذاکرات ایران و آمریکا در سوئیس، هر دو کشور تاکید کردند که حفظ آتش‌بس در لبنان از موضوعات محوری است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76596)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-22 19:29:29
+
+<img src="https://cdn1.telesco.pe/file/ofjh4mn3zTW9P8YUG6ropWoTL-v0G1SBASfnS7fXaCRRP7dPVwbZt02mzwHMttBHa03y9-Rg0lKJjzJm7v2epYp9JILvXyExKIEYfRPW6a9ocCAmlCdCTkkEUz-Uy0N3Wc5MfoOnNXauko8L7XMDrBSwQJ1yfd-NaVKrzPQTP_EiiRMXejVppQ2OqQQBUWdPuHoEYht6oCXbRzCMOeJ4PomrQ9jSsLz3G1LChc6Z8je7oQZAs-XbGHcHqZFzKnBVj2Z8bnpnF0FuMuV3PoSeltPhcUCoqdbNPflPVKw4NkaqprJUDRq4PL8Vh-1ymH4MVNdaMVOrm3XXD34ri8hZ0Q.jpg" width="400"><br>
+
+وزارت خزانه‌داری آمریکا با صدور مجوز عمومی، تولید، فروش، حمل و تخلیه نفت خام، محصولات پتروشیمی و فرآورده‌های نفتی با منشا ایران را تا ۳۰ مرداد مجاز اعلام کرد.
+بر اساس این مجوز، تمامی معاملات و خدماتی که برای تولید، فروش و انتقال این محصولات ضروری هستند، از جمله بیمه، مدیریت کشتی، تامین خدمه، سوخت‌رسانی، ثبت و پرچم‌گذاری کشتی‌ها و عملیات نجات دریایی، مجاز خواهند بود. این مجوز همچنین شامل کشتی‌هایی می‌شود که پیشتر تحت تحریم‌های مرتبط با جمهوری اسلامی قرار گرفته بودند.
+در متن مجوز آمده است که واردات نفت خام، محصولات پتروشیمی و فرآورده‌های نفتی با منشا ایران به آمریکا نیز، در صورتی که بخشی از فرایند فروش، تحویل یا تخلیه مجاز باشد، امکان‌پذیر خواهد بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76595)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-22 19:29:29
+
+<img src="https://cdn1.telesco.pe/file/r8Zl_LS5GIRO-1zaNkh1yGsY5trn5YWH4mSEpCBpcmakpcBSppcSU8CtLvj8g6MLGviB-PxJQa9vOZeJQUgLSADDKkTiPLrPTlG4Q_haJt9cFHVUkY4jyBOCgZ6MribWrCtvVhLKZVr-Na3EUrRM6pvhXiKf-3eJnFq7U2GJ7OLOiRNLElCEctkG9MxUHhemVQH6wHZVkq3XpOZyIwmi7-m38upn8Xo73DPmeVaS-FT75-BkQjrW5pXgGHS5ZOtPydP1xq-kQqs_LMAIXhdqStQ24QFeuSzqkKCgTAqCdSjN00VDkZI1CBbvZO30l_cW-uQQ7uYElJf_KlwSTIoajw.jpg" width="400"><br>
+
+براساس گزارش هرانا  در خردادماه ۱۲۷ حکم اعدام اجرا شده، ۱۹ نفر به اعدام محکوم شده‌اند و حکم اعدام ۱۲ نفر نیز تایید شده است.
+هرانا همچنین از ثبت ۸۰۹ مورد بازداشت در حوزه آزادی بیان و صدور مجموعا ۴۹۳۳ ماه حبس، ۷۶۶ ضربه شلاق و ۵۱ میلیون تومان جزای نقدی برای ۸۰ شهروند خبر داده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76594)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-22 19:29:29
+
+<img src="https://cdn1.telesco.pe/file/AP8fWNaOnwld9y1qzF-tF2KELPwV_NtUL-zvIWj4LO-j_OoWgD4ZTlkANdrnfuQjnVmNd6DGmuiU1AXR7g1TqDNN1Ij51x5ZnZiawh57Sf3bDG_nHfKvPZbPD5B-kr7CR3qGMGlNgfYeoCF07TW02fAxvntfxI8TAiU9owmEP0V4psyHpMgLjhQIincGGqRxdaPiWH9icdSHF6Js16S3osI0bzpLEH8Ha7e_-b83DL55B_n_Z5UVggGfz6EDysHip90S-X_Kdivonzv8FTDHFW28A9r3CMeMfEJ1dUR8AviCY_pKfyb7UQQYICDtZXXqrWbLsAwJZNdHGeoDDWzocQ.jpg" width="400"><br>
+
+وزیر خارجه جمهوری اسلامی گزارش داد «تحریم صادرات نفت و پتروشیمی تعلیق و محاصره دریایی برداشته شد.»
+علاوه بر این، عباس عراقچی اعلام کرد برخی از دارایی‌های مسدود شده آزاد و طرح بزرگ بازسازی و پیشرفت اقتصادی ایران اجرایی شد.»
+آقای عراقچی این موارد را در پستی در حساب کاربری خود در شبکه اجتماعی ایکس اعلام کرده است.
+@
+VahidHeadline
+معاون رئیس‌جمهوری آمریکا اعلام کرد که در گفت‌وگوها با حکومت ایران پیشرفت حاصل شده و جمهوری اسلامی با ورود بازرسان هسته‌ای به این کشور موافقت کرده است.
+جِی‌دی ونس، روز دوشنبه در سوئیس گفت که گفت‌وگوها درباره بازرسی‌ها ممکن است از همین هفته آغاز شود. ونس درباره زمان آغاز کار بازرسان هسته‌ای در ایران تأکید کرد: «احتمالاً همین هفته، شاید از امروز.»
+معاون رئیس‌جمهوری آمریکا افزود: «ما پایه بسیار خوبی برای یک توافق نهایی موفق گذاشتیم. گفت‌وگوهای فنی در هفته‌ها و روزهای آینده ادامه خواهد یافت».
+@
+VahidHeadline
+معاون رییس‌جمهوری آمریکا، گفت یکی از اهداف واشینگتن در مذاکرات، ایجاد سازوکاری برای نحوه استفاده از دارایی‌های مسدودشده ایران در صورت آزادسازی آنها بوده است.
+او گفت هدف این سازوکار آن است که اطمینان حاصل شود منابع مالی آزادشده به مردم ایران کمک می‌کند و صرف حمایت از فعالیت‌های «تروریستی» نمی‌شود.
+ونس افزود جرد کوشنر با همکاری مقام‌های قطری طرحی را ارائه کرده است که بر اساس آن، در صورت آزادسازی دارایی‌های مسدودشده ایران، ایالات متحده و قطر بر نحوه مصرف این منابع نظارت خواهند داشت و باید آن را تایید کنند.
+به گفته معاون رییس‌جمهوری آمریکا، این منابع مالی برای خرید محصولات کشاورزی آمریکایی از جمله سویا، ذرت و گندم اختصاص خواهد یافت تا در اختیار مردم ایران قرار گیرد.
+@
+VahidOOnLine
+جی‌دی ونس، معاون رییس‌جمهوری ایالات متحده، در پاسخ به سوالی درباره تهدید تیم مذاکره‌کننده جمهوری اسلامی به ترک میز مذاکره، گفت: «آن‌ها تهدید کردند که مذاکرات را ترک خواهند کرد، یا دست‌کم در شبکه‌های اجتماعی چنین تهدیدهایی مطرح شد. اما ما دیروز تا مدت‌ها بعد از ساعت یک بامداد در حال مذاکره بودیم، بنابراین آن‌ها جلسه را ترک نکردند.»
+@
+VahidOOnLine
+گزارش‌ها از سوئیس حاکی از ادامۀ مذاکرات فنی ایران و ایالات متحده، به ریاست کاظم غریب آبادی، معاون وزیر خارجه ایران، است.
+رسانه‌های جمهوری اسلامی نوشته‌اند که قرار است دوطرف روز دوشنبه اول تیرماه در مورد سازوکارهای اجرای یادداشت تفاهم اسلام‌آباد و تشکیل گروه‌های فنی مربوطه با یکدیگر گفت‌و‌گو کنند.
+با این حال تیم اصلی مذاکره‌کننده ایران به ریاست محمدباقر قالیباف، رئیس مجلس شورای اسلامی، سوئیس را به مقصد تهران ترک کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76588)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-22 19:29:29
 
 <img src="https://cdn1.telesco.pe/file/lishfZbftEvV65F-gpgsKCOGDjQLVC4nZEFjudpyo9X8HpXu4MDLMLmwQZzJbEj8FMf4ivTovv-HJCm2pLXirvU3_UqroAsNERJb2lLWM_u_HYa9WRm9G0v-JjHfinNeyNSQ7Y4BPhLZGSodzTslfEZtDMkfOwEre0bMSezNonlT3R0LzqKkT3J059Y9-kQl_TgCToFHNoiPqsWx1vdj3-DfKm_rxdlA40JLIfQH4H1fSur1grYhFjJQ-wblUPOCtjvS_-e7P7JZ7MBfSlXDl_2wNtAFFsYqxp-cBP5c8F27LmfSH9p9JKmAEHiq-uT6yIZNfnWYTW4JVvYQv1Qg9w.jpg" width="400"><br>
 
@@ -21,7 +114,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 14:39:03
+###### 🔵 Updated at: 2026-06-22 19:29:29
 
 <img src="https://cdn1.telesco.pe/file/GRXbHmTBhDUg92jobpU7SauByid7W1uTff1XjGhfOWgt0KvdNg7_JD4BF6iV0TdcX1lIJbjql2-m5vsKGYWGjy559qgh2kQ3sI5ayqYgatPbuS7Yl9TGJZNL_eg1Q62zfItNfmgyl9HS3J843tqJGlyw6exlD5r94VErbWGDNeEHV4H4v8ckVWCOZmmJDliL2aixlWHGRN02vGaqXrigxIGGlchy7MaIQoYt1bUzyiQ3iYqYddAaKip93OWsDU2z1hscSBA9yrlYkWMhb6G1yL13SlwkVv3EiO9bniJideK7_rk84lQmkw-MtqvCFl764bW6LjjsF0rb8eH9D-bw9Q.jpg" width="400"><br>
 
@@ -35,7 +128,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 14:39:03
+###### 🔵 Updated at: 2026-06-22 19:29:29
 
 <img src="https://cdn1.telesco.pe/file/qFm0gpfIC6INR-dYbpYnlVrr0wjO6Hf2--HFl34PH0UDwoBIU-DuCRN5031QhVfXfuD2FZXdaU7z3Bfk1YRltEW1frcWDFpnFReCJfTzppZxsqWjZDaaWUoPLd-qQ8YXIinMCyJnhRWI1xM91-wzWn9tBl3OKxbhv9tqMFV3gVcz3F7W6c_Jq9F_9hRH1MDcEZ9XA5wS7HYR7NABoe4lMvatDZZkioZhTFRPofLNi5PuV5ht11S5gUtGsQut1Jx8b6Hvdc8_F35aNQ45aGCJBLRHkVsmEIN-mpcbhpLIwIcn8sRWmCvPQuvw4nCzETqmpz_rjultnUk4crg5HMu-OA.jpg" width="400"><br>
 
@@ -66,7 +159,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-22 14:39:03
+###### 🔵 Updated at: 2026-06-22 19:29:29
 
 <img src="https://cdn4.telesco.pe/file/Qhmi2w2UWVsSgz3VzE2pY-7hTumlt6TJmxihk9IwTEhKVUCHlBjza3zKF0NG1p6z7ekeNEYS7eawE5KHjbpI0xR1m0o4kAA1awthxIqKClacyFdBOZMHpBuhFVRwX-RZNufF7YKFF7zmsNjfzdGzRYwLlEqr0UHQoIDapuHVM1u8HURpg5sqtPNj30LlpN5IHjX3_gzCbnobDg8dGcWhUcF-UQjf7vm1Kp_dT3oNJn9i5RiaXS7Vt-tm9yW-WqUHdfOiSxFMGNIW8cQCbh8_n8T_GQDre0uikzmeQlTu1zWNWDKKGevRRKVy1JCTVADFPKJGPVd7UEupsSyYOt99Og.jpg" width="400"><br>
 
@@ -87,7 +180,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-22 14:39:03
+###### 🔵 Updated at: 2026-06-22 19:29:29
 
 <img src="https://cdn1.telesco.pe/file/cu-y1GBYz5EiruEvPSIXpjG7yCiLiHAFlyyfnb-pY34e_ViiA77-zZAZTfZxBQ4fo3sihFAyD_0FR_GKMDVARmRWXB3PwNdfx6EKdrZPdY0bBT4E62MudEvS1FWB6Sv-c0P0maUZ7dMxEv_M-VCGsLPpILpwUOUs2QyzY-RJMnRnBDVfQ4tWzg7Lu1nfsAurdVA6cEdLNcq9yTZsJt7J7VyVt-6Me48YDu899OlNUkY2KrECTGgxjKaaJ6t-6S6fTFXaMg_mq01ENzP2JdgmlvWIU9ZWJuw0wm0klRXRaDg5enyf6Dnu3vF79HatTp8zGrzuVWtlQdIKjX_aG1KYVQ.jpg" width="400"><br>
 
@@ -103,7 +196,7 @@ mb_ghalibaf
 
 
 
-###### 🔵 Updated at: 2026-06-22 14:39:03
+###### 🔵 Updated at: 2026-06-22 19:29:29
 
 <img src="https://cdn1.telesco.pe/file/WQbwcGDye6zlRmMj0UwoQBXDhy-vwpFXiwlse20smzLlwQ6VsI14KutOfWVKMuG9SR0FTFnUW_gq1XB1d8PnWcEtdU75SQEau2OpQkg14j_-ZuozN_OaJvmkox7NA1Nk-fYNAw2jMQz5hAG5D4Jmb3Lt1BotQXMRgnC9LwoKwH7lIuTMLrvifLEY1JTYUZ6Suzgy3aVJ--HSYgbz2EiIaEk6Ow_0sB59m9sedFuI6yQg8TdvXjsM0a7M8tLmBEz6Rj2apwmTGqJVQBmHkY-PBZJNF1mGRkSN7Z6OCkVRDbwdVJE0G5QnKvHheifM5oDGapMejT1Ob2E3zGorXn1EFg.jpg" width="400"><br>
 
@@ -124,7 +217,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-22 14:39:03
+###### 🔵 Updated at: 2026-06-22 19:29:29
 
 <img src="https://cdn1.telesco.pe/file/fRlDQEMJ7t5ikgYhmaFl-jW1ety__a4AeTU_iTBRb8sKwJDdwAkOTpV8QZNiT2K77egdli4UomB3Jaso037kNsOEJ50LyJymtF0L5IfqSOX6d6ooXqgbUnxi6FuFylKprhqiGT0Gvuf9IiuQSaioC1DwsNSZHKvxkdqqYmwmCaqKEtWmI-F5E0-Il7pShTmWJy3fMfWsti9_BqilOl3gWgrDaBCWTOwHWstVuBPJ1ZoNA5L08uvgtiaXrYvx0H-JuNgK-s9TbzCAqNrIzEqIn8xK3dU4_JOJhBnFmHZorqZBSqMlrMDxtRf7NcK8OzgMOTZTW5xoEr2Vhk0WzwCDcg.jpg" width="400"><br>
 
@@ -136,67 +229,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76571)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-22 14:39:03
-
-<img src="https://cdn1.telesco.pe/file/IQ2f2mm53dHYgGpGVgb27cLiaeSNFaT93_BB3vT3eaf6nTKW7KQo968SreMKUxUYIzzOfOrtQP7vu4m4KoCUFbyyb3mEIv2PWMd7g-7i-RLvITugGR_qo_dpdNwSVF5wr8690xkrogLxgUrhJOsi_Zo6bS7M4ptbqyVglIxduWhdM6GuUfAx2qiCzGONpIK3zi7fZhKKC6kjpCX_zKzcUs3LvUtLz0VS0ri7TGFAfwJTUFZAVUKyNxzPTGvm098PzOfGWZi4lr1m2esHySxCYvCU83MzDh0DQ7qtuRaAjH7EHj3ZqLEf8l-ONxVodyB-4HNZk8ZPUDd7KIInj6h8Yw.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-بعد از آن‌که تریلیون‌ها دلار خرج ناتو کردیم، ایتالیا و نخست‌وزیرش حتی فکرِ درگیر شدن با جمهوری اسلامی ایران و تهدید هسته‌ای بسیار جدی آن را هم نمی‌کنند. دهه‌هاست که ما از آن‌ها دفاع می‌کنیم، اما وقتی پای آزمون به میان می‌آید، آن‌ها برای دفاع از ما و بقیه جهان حاضر نیستند. خوب نیست!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76570)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-22 14:39:03
-
-<img src="https://cdn1.telesco.pe/file/ip_YOJMk9gGtN9PUie5bselRiOvI9W8h78HYeFNzBVcZPWc8DR_bAnH-GLdRmVX2BqVSNOFAPc0IaG3GpcuhUwFq_urd9cRObwHfzsIC_etP0Ernaiw0GhmKg9FykenbzwHyNinTVaKxKAitJlhMyg-Du7afv-juJ4HcXql39aNPmFysu-gl56r346epr_7SueYFYyCvaoeerXfxEjVjA8zX_isrtaSdQgs5u-qB8xsWcEhqloLZSsS4sT0UdaeGkpU0zxwlf5XfRWwafwWO5uOB41qu9SmBg7jdEfNeunHce4F42xzhOfXSpkkH3xM0D2y-2KbYidPAcZBK1tMHog.jpg" width="400"><br>
-
-ک مقام ایرانی یکشنبه شب ۳۱ خردادماه به خبرگزاری رویترز گفت مذاکرات میان ایران و آمریکا در بورگن‌اشتوک سوئیس متوقف شده، اما پایان نیافته است. این مقام جزئیات بیشتری درباره علت توقف گفت‌وگوها یا زمان از سرگیری آن ارائه نکرد.
-این اظهارات در حالی مطرح می‌شود که گزارش‌های متناقضی درباره وضعیت مذاکرات منتشر شده است. پیش‌تر باراک داوید، خبرنگار آکسیوس و کانال ۱۲ اسرائیل، در شبکه اجتماعی اکس به نقل از یک دیپلمات حاضر در مذاکرات نوشت که هیئت ایرانی محل مذاکرات را ترک نکرده و گفت‌وگوها همچنان ادامه دارد. با این حال، خبرگزاری ایرنا دقایقی بعد به نقل از یک مقام هیئت مذاکره‌کننده جمهوری اسلامی گزارش داد که مقام‌های ایرانی پس از دومین دیدار با هیئت قطری، محل مذاکرات را ترک کرده‌اند.
-@
-VahidOOnLine
-خبرگزاری ایرنا، رسانه دولت جمهوری اسلامی، گزارش داد هیات جمهوری اسلامی پس از دیدار با هیات قطری، ساختمان محل مذاکرات در سوئیس را ترک کرده است.
-هم‌زمان، یک منبع نزدیک به هیات مذاکره‌کننده جمهوری اسلامی به شبکه سی‌ان‌ان گفت گفت‌وگوهای میان جمهوری اسلامی و آمریکا در سوئیس متوقف شده است، اما پایان نیافته است.
-به گفته این منبع، گفت‌وگوهای غیرعلنی همچنان ادامه دارد تا طرف‌ها به میز گفت‌وگو بازگردند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76569)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-22 14:39:03
-
-<img src="https://cdn1.telesco.pe/file/pFQ8weGC-A5UfxBn6usT22t-p3SRL0qbnAL9HyvM_3csSVM7lDWnD7Zl52-5LJc0jhNkSogLXzz5ipOxpQS1fe6XnJU7W69IoRuC048Pfv3NEeStLcEg4kTkw2fy6HU_D6gKUujcUAfvZWwXHvLHRyokY2v8KOZqQEopRatu8ZUvm55xsnKNxDVco5tuKLoWmCrgojwfsuGJFPSiBopNMCBc877EEy9ijpIw6ZYLLmNfndCGoPIu6t23fV-mqWGgU680QqtCDfKp7_yCIZsod_bdO0OllvXhuiD6fk9X0nPMWsWsluDgwBDe_JNhv2nvkGZtcj7j9wf7ImAsFf3m6A.jpg" width="400"><br>
-
-"
-هیئت مذاکره‌کنندهٔ ایرانی در اعتراض به تهدیدهای ترامپ محل مذاکره را ترک کرد.
-"
-ادعای فارس و تسنیم به نقل از "یک منبع نزدیک به تیم مذاکره‌کننده"
-پیش‌تر در
-اکانت قالیباف
-همچین توییتی منتشر شده بود:
-با خودشان فکر نمی‌کنند که اگر تهدیدهایشان نتیجه‌ای داشت، به استیصال امروز نمی‌رسیدند؟ ما تهدیدهای آمریکایی‌ها را به جایی حساب نمی‌کنیم.
-بهتر است مراقب اظهارنظرهای خود باشند، نیروهای مسلح ما آماده‌اند تا به نحوی دیگر پاسخشان را بدهند. هر چه حرف بزنند، این ماییم که عمل می‌کنیم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76568)
 
 ---
 
