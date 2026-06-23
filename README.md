@@ -3,7 +3,115 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-23 17:31:44
+###### 🔵 Updated at: 2026-06-23 20:07:47
+
+<img src="https://cdn1.telesco.pe/file/b1Uy1ZDHhx7jn0yPS9Lntk3mR_jpGMmNaghq5LDTJTcP6khMLc9PonpGTkpkLRUGYlTJ_m03A6yIFdBGc-sohHr4JdvwdePOR_yuIZfE8lgCDr7_tRSRQfEo827WXzxUK0rOyBxREbKuEjaeZZDol3Nq9b1k1Zr-LnzJerI2K_0Lr246yOJpM9T4mL-L4n64odpJAhevBfmwpUJG7khYOke7LqdpAwg01tGbd9AWhq9mjxhtK1w2VDxp78vFYFI6hKyr47qKj3qvNIN-wuAeUW46XGFCHWUntzf6n1E38IN44UAYP74PFy85CP2VfnKD8zzcQShPHmw98lJaXGViNA.jpg" width="400"><br>
+
+فرماندهی مرکزی ایالات متحده،
+سنتکام
+، با انتشار تصویری از ناو هواپیمابر «یواس‌اس جورج اچ. دبلیو. بوش»، در شبکه ایکس نوشت که این ناو در
+دریای عرب
+در حال فعالیت است.
+سنتکام افزود دو ناو هواپیمابر آمریکا همچنان در خاورمیانه مستقر هستند و نیروهای آمریکایی حضور خود را حفظ کرده و در حالت آماده‌باش و مراقبت کامل قرار دارند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76629)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 20:07:47
+
+<img src="https://cdn1.telesco.pe/file/UdTWayI1k7kALijTCLAULhL3JLVw-CulDSnOPJTyJxQAn0dOuIGJe8ZNRbQdwzQxTww5TkzYwufAjX-FkhUzZ9Hs1HZqGaG-uh6roh3A1SWh6ZQtE9moTX2QWjWQY9lrSCGCwJ6qoj2dzRb_XbRRHCuezozCN30Y0WEO0GtkVley9TMBqMCNB4VAP4Rz7n10klOJSYPMsFvCyvHFu_v1GiXYewhRixYwil6vtZHUzHeeqatUmIzyh2v9kfe3Dl3eijWr-YIWP3f2gaZrGeTWDPiLGYvwAHs5IDbt0MuNIORdI-H9jzwSd_Xp7MuiqUm-D7aBeD4Lvh_fVwgd6P8ehw.jpg" width="400"><br>
+
+نخست‌وزیر پاکستان روز سه‌شنبه دوم تیرماه گفت که در مورد موشک‌های بالستیک نباید استاندارد دوگانه‌ای وجود داشته باشد و تأکید کرد ایران همان حقی را برای در اختیار داشتن آن‌ها دارد که سایر کشورها دارند.
+شهباز شریف همچنین به خبرنگاران گفت که در تفاهم‌نامه مورد توافق میان ایران و ایالات متحده هیچ اشاره‌ای به موشک‌های بالستیک نشده، زیرا این موضوع اساساً در آن مذاکرات مطرح نبوده است.
+پیشتر برخی رسانه‌ها از قول نخست‌وزیر پاکستان مدعی شده بودند که او گفته است موضوع موشک‌های بالستیک تهران از جمله محورهای مذاکره بین ایران و آمریکا است.
+در واکنش به این ادعا، خبرگزاری فارس نزدیک به سپاه پاسداران نوشت که اظهارات نخست‌وزیر پاکستان، «کاملاً اشتباه و احتمالا ناشی از بی‌اطلاعی است».
+به نوشته این خبرگزاری، پاکستان در حال حاضر نقش چندانی در میانجی‌گری این مذاکرات ندارد و اظهارات شهباز شریف بیشتر برای پررنگ‌نمایی نقش واسطه‌گری این کشور مطرح شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76628)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 20:07:47
+
+<img src="https://cdn4.telesco.pe/file/i5_r044ELHUkDAcz2zJNWFGI7V5V_QsNL5PU-hJsK5fgA5dPoIrTgcwAUqrRbogjSXR8GOdMlNkhry4qJsbLjiwurjChblqTnn5q8OiJ7yp7aoaQeYImT3JBrnk12T9yyzSd9LyBBUyciAYvY7KcgGoDCqp5dX68eeOiDWp3fM41ZJO0AmknC_fozKptTrfO2ftrCpBqAL5xInvu7EliDxKc3nmH9gEYFLDnm5qOUyibKv6V_JTVIr92HcmG0aXYHW3QCaEIyhjXwW5TgKdSbRzuOhbGOAj89swftHk2M3oNIuKbqj1gx0b9-3r1gjaHFknkiOwotVA3ZmB26P7-5Q.jpg" width="400"><br>
+
+ثریا طالبی، مادر امیرحسین موسوی، فعال فضای مجازی مشهور به «جیمز بی‌دین» که از آذرماه ۱۴۰۳ در بازداشت به‌سر می‌برد، می‌گوید پس از پخش گزارش تلویزیونی از فرزندش در جریان جنگ ۱۲ روزه، اتهام «همکاری با دول متخاصم» به پرونده او افزوده شده است. مهر ۱۴۰۴ صداوسیما با پخش ویدئویی از اعترافات اجباری امیرحسین موسوی، او را به «جاسوسی و همکاری اطلاعاتی و امنیتی با اسرائیل» متهم کرد.
+پس از آن امیرحسین موسوی که با نام کاربری «جیمز بی‌دین» در شبکه‌های اجتماعی فعالیت می‌کرد، با انتشار نامه‌ای سرگشاده از زندان اوین اعلام کرده که تمام اتهامات مطرح‌شده علیه او «نادرست و تحریف‌شده» است. آقای موسوی نوشته که پس از ۱۴۸ روز انفرادی، بازداشت همسرش و تهدید به تکرار شکنجه‌ها، وادار به انجام مصاحبه‌ای اجباری شده است.
+ثریا طالبی، مادر امیرحسین موسوی، در گفت‌وگو با «امتداد» با اشاره به وضعیت پرونده فرزندش گفت که امیرحسین موسوی از ۲۸ آذر ۱۴۰۳ در بازداشت است و خانواده او همچنان در «بلاتکلیفی کامل» به سر می‌برند.
+به گفته او، فرزندش هنگام سفر به کیش در فرودگاه مهرآباد بازداشت شد و خانواده تا مدت‌ها از محل نگهداری و نهاد بازداشت‌کننده او اطلاعی نداشتند.
+مادر این فعال توییتری همچنین گفت امیرحسین موسوی حدود شش ماه در سلول انفرادی نگهداری شده و پس از انتقال به بند عمومی، از او مصاحبه تصویری گرفته شده است. او مدعی شد به فرزندش گفته بودند این ویدئو صرفاً برای آرشیو ضبط می‌شود و در صورت همکاری، طی چند روز با وثیقه آزاد خواهد شد.
+به گفته طالبی، در زمان تشکیل پرونده، اتهام‌های «اجتماع و تبانی علیه امنیت کشور»، «فعالیت تبلیغی علیه نظام» و «توهین به مقدسات» علیه فرزندش مطرح شده بود.
+او افزود پس از جنگ ۱۲ روزه و پخش بخشی از این مصاحبه در بخش خبری ۲۰:۳۰ صداوسیما، اتهام «همکاری با دولت متخاصم» نیز به پرونده اضافه شده است.
+طالبی با انتقاد از نحوه انتشار این ویدئو گفت: «فیلم به‌صورت تقطیع‌شده پخش شد؛ به شکلی که این تصور ایجاد می‌شد که امیرحسین در زمان جنگ اطلاعاتی را در اختیار دشمن قرار داده است، در حالی که او در همان زمان در زندان بود.»
+او همچنین از شکایت خانواده علیه برنامه ۲۰:۳۰ و رسانه‌هایی که این ویدئو را بازنشر کرده‌اند خبر داد و گفت این شکایت در حال رسیدگی است.
+مادر امیرحسین موسوی با رد اتهام‌های مطرح‌شده علیه فرزندش تاکید کرد: «انگ وطن‌فروشی به امیرحسین نمی‌چسبد. او یک فعال توییتری بوده و اگر کسی با ادعای ارتباط با اسرائیل برایش پیام فرستاده، بلافاصله آن حساب را مسدود کرده است.»
+بر اساس اعلام وکیل پرونده، جلسه رسیدگی به اتهامات امیرحسین موسوی روز ۱۳ تیرماه در شعبه ۱۵ دادگاه انقلاب به ریاست قاضی ابوالقاسم صلواتی برگزار خواهد شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76627)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 20:07:47
+
+<img src="https://cdn1.telesco.pe/file/bQDskjYqEcxnk7j0qSDxOgJS1wEuXQjyB75BD0zOeYaw-UTRnvOSQNWa2aqOFet_OukPyhvZLDCCSe8eoiqdNl5ARd0NMT8HFm484G2BKJAcycNkovSn85DyeXs8BxzvvorlprWz_J2BTL33o4naMXWfEnhHFn74FxB3GH0yiuryg-e7EsBbY-8xUxvh0QJthmmPYTujwm_j29uXld-nIK1Lz3q_hHPts24QsTU0AmdOqxw6GkILWXtyIMBPKbLAbRzk_y_v6Q5kFi4UKr_2r_mpTn0NXNXaieuvxg_s-lh0h6YE4965o9eRXQSzBoCSz1yS_H_eL9NlHQSYUU0-Lw.jpg" width="400"><br>
+
+Gerduo
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76626)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 20:07:47
+
+<img src="https://cdn1.telesco.pe/file/Ja7m_jAkmLgNcoi0VpuFZAxG8JFXpI2U3TZWQEm1dRIm3tZt8ipQv3ywg8ax1NlmCGOol2FTKBtqhZ1Gv9Tq9ngD5OCDCrNPYFxilRRY9jEfL35z_7ma1a8Pfy2PRr_Jbdu_mGRESDpjhxxDzCfvlLNW3b5YtsdRYrtIl7nsEfH9ZR4AJL3ifoXcUTm_bu6Gb2crPBcxoSB-AZ0T50FnLjo0yJJra05C8JGg-Xf5xNTfQ7r2YKXZWP6cODZAyg32RsZQr_RZE8pp-Fo2ISE609MSEMxP65PBSE2ZYJkXKUDgz3hEqxN5iwQFDTImUyMN1nTKpLlwx1OB6gU6tbx_xQ.jpg" width="400"><br>
+
+گزارش‌های کاربران از بروز اختلال شدید و قطعی در سامانه‌های آنلاین و پایانه‌های فروشگاهی (POS) برخی بانک‌های کشور از جمله بلوبانک، بانک کشاورزی، بانک ملت و بانک رفاه حکایت دارد. این اختلال‌ها موجب شده مشتریان در انجام تراکنش‌های مالی، خریدهای روزمره و استفاده از خدمات غیرحضوری با مشکل جدی مواجه شوند.
+@
+VahidHeadline
+گزارش‌های مختلف کاربران در شبکه‌های اجتماعی حاکی از اختلال گسترده در خدمات بانکی چند بانک بزرگ ایران در روز سه‌شنبه، دوم تیر است.
+بر اساس این گزارش‌ها، پرداخت الکترونیک و انتقال وجوه در چند بانک بزرگ مانند ملی، تجارت، صادرات و ملت با اختلال همراه است.
+خبرگزاری‌های فارس و تسنیم، نزدیک به سپاه پاسداران با تأیید این اختلال‌ها از احتمال حمله سایبری به مرکز خدمات پشتیبان خبر داده‌اند.
+در همین رابطه شرکت خدمات انفورماتیک با انتشار بیانیه‌ای، با تأیید انجام حملات سایبری، گفته است که «شرکت خدمات انفورماتیک به‌منظور پیشگیری از هرگونه دسترسی غیرمجاز و صیانت از امنیت داده‌ها و دارایی‌های مشتریان، در حال حاضر ارائه خدمات مبتنی بر کارت را به صورت موقت از دسترس خارج کرده است.»
+این برای دومین بار طی دو هفته گذشته است که خدمات بانکی در ایران دچار احتلال می‌شود.
+چندین بانک ایران اواسط خردادماه هم با قطع ارتباط و خدمات روبرو شدند که به گفته مسئولان دولتی به دلیل حملات سایبری به زیر ساخت‌های خدماتی بانک‌ها بود.
+تاکنون گزارشی از عامل این حملات سایبری منتشر نشده است.
+@
+VahidHeadline
+آپدیت:
+پیام‌های مختلفی دریافت می‌کنم با نظریه‌های توطئه که فکر می‌کنند بازار ارز و طلا و...  قراره نوسان داشته باشند و نمی‌خوان کسی بتونه خرید و فروش کنه و...
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76622)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 20:07:47
 
 <img src="https://cdn4.telesco.pe/file/YP-pg3NvJtBzECsN9jI2iTUiUZ1KCu--TEff-BYcK57jjpdQYy1KGCjucXhyZf0e5rGId8FK7lAPY1kIR6zBp2ze620ECSd8fauQH3dyiEoX9piaGtPe_lEtRLQNFfpKWu8jFStbCPVfhuBCdmzHjEv9bxOWIRkeeFiLgIJ1qPxuJwon6CVJNCf_hFOObBzxfGK0P2HMDK-7z9Cul9EEsg6j_SBsanF0n5ZVACZUmC6V-OHFXZ2tkBbcwb5SUaw7RsIWm8UD0c_Zv36d-xlz2pemfVZTmXQkk8Gs3OaThxgIWUb5_00GWptuYX_nZ6sbunspuvG4TsDbX-Uuo1G0hQ.jpg" width="400"><br>
 
@@ -22,7 +130,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 17:31:44
+###### 🔵 Updated at: 2026-06-23 20:07:47
 
 <img src="https://cdn1.telesco.pe/file/LYB3pXLkXO3ZcKd9UUDqzUprq-PJCSub0uHAXogsOBVd7UnobHyqr_gy12czqTv85agL3uj0EP6qA2ShZvD6M1gAGSA4zFql0H02PxIHNWuB1ra19Q7apWBm_kN3qt7am1aR8dG3ELWT5dcFwFqhNWPJFVU8Iteipf2j7iRJ7L-liDQe-ma6Icynud9c9FqNVyeHTL9egRkxndQnzJ0Zo1ZuAofPwd5wp4-siGJmfuXO1-a6IyA6HVZwz4-LanrEqri9rE80lL4nIlhRczEh0poquOubz3KxtjMidj_cHYSe-jeBPtJVSQkOSKxmF1MkArzfuE3DGUJ2VDeyqMLrcg.jpg" width="400"><br>
 
@@ -43,7 +151,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 17:31:44
+###### 🔵 Updated at: 2026-06-23 20:07:47
 
 <img src="https://cdn4.telesco.pe/file/F17QZvxP9UgBTWo2kE_ZMu-0Tm7OYRSq7egcjXGWprmIVfX9OHvYLFfz1wtOiJ4toDuVNOLhdWg9bXlxvHiGif6juh6jD5d9NMiimY_25xXRl-AD4SGUsRgTHnYULVnb2WqkgaQMdEg-mW6KuUTdJU9sgatmCV2ajlmyzhuvkca7c3iy0AJtjQ5OO7kPgm1RfWgZ4aCU-x2ByLGIA8ptAAiYRS1DpIyiadxHC_ADg81U5HmrooTfcpu7G78-45vqOjVbEEKJ56j_fGF2VWboj4STKO5gQuX8op7mXeyxYA-_9PrjayoqBaLGmLl636Tz-78vyy6CPzgrPcTlxe0g7w.jpg" width="400"><br>
 
@@ -61,7 +169,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 17:31:44
+###### 🔵 Updated at: 2026-06-23 20:07:47
 
 <img src="https://cdn1.telesco.pe/file/IvSvj1vxa-EETvMOvCN-Mxo-Z5DahfWmGJ1r2ZnHOcbraI_130Xey8ki-g7PDAHEuDZqhPmWk5sQRe45kv5jnAJdC0deE3IPg4tNmwd6kHXZ_2iUpmG6zZLcpUDryBFiU3t1c3QD5XZsdPgX9dMHPVNX2c-PWYi0SYj_MU3AfcRJOfbQ6pxQfsqVnyLNNjP9QycUwzydbKYEwbkDmTzv4ONp40MU6sr9HW3dlR48esPX9nWdtZGZobRBwmb4aQ8ww9Xy0lyWdgf_NVH6JyCyzpj08ELE_C5aHRjQaWXU8NiXxrAEVGvwHkGXEvjLN2L1zuDfSPfhAp2sJXMCmAIvSA.jpg" width="400"><br>
 
@@ -72,6 +180,19 @@ VahidHeadline
 با این حال، مقام‌های جمهوری اسلامی بویژه سخنگوی وزارت خارجه ایران هرگونه بازرسی آژانس از تأسیسات هسته‌ای را رد کرده‌اند.
 @
 VahidHeadline
+پست‌های ترامپ، ترجمه ماشین:
+با وجود اعتراض‌ها و اظهارات دروغین آن‌ها در خلاف این موضوع، همراه با هیاهوی مداوم اخبار جعلی، که هر کاری می‌کند تا پیروزی آمریکا را تا حد ممکن کوچک و بی‌اهمیت جلوه دهد، ایران به‌طور کامل و تمام‌وکمال با بالاترین سطح بازرسی‌های هسته‌ای برای مدت بسیار طولانی در آینده، یعنی تا ابد، موافقت کرده است!!!
+این کار «صداقت هسته‌ای» را تضمین خواهد کرد. اگر آن‌ها با این موضوع موافقت نکرده بودند، هیچ مذاکره بیشتری در کار نبود!
+بر اساس این موضوع و سایر امتیازهای بزرگی که ایران در حال دادن آن‌هاست، من موافقت کرده‌ام اجازه بدهم تنگه هرمز باز بماند، بدون هیچ محاصره دریاییِ دیگری. با این حال، همه کشتی‌ها در جای خود باقی می‌مانند تا اگر لازم شد، محاصره دوباره برقرار شود؛ چیزی که در حال حاضر بسیار بعید به نظر می‌رسد.
+پول و/یا تحریم‌هایی که وزارت خزانه‌داری آمریکا آزاد می‌کند، به حساب امانی منتقل می‌شود که تحت کنترل ایالات متحده آمریکاست و صرفاً برای خرید غذا و تجهیزات پزشکی از ایالات متحده استفاده خواهد شد، از جمله ذرت، گندم و سویا از کشاورزان بزرگ آمریکایی ما.
+این‌ها چیزهایی هستند که ایران به‌شدت به آن‌ها نیاز دارد. این یک بحران انسانی است و من احساس می‌کنم لازم است همین حالا، پیش از آنکه خیلی دیر شود، کمک کنیم.
+گفت‌وگوها به‌خوبی پیش می‌رود!
+از توجه شما به این موضوع سپاسگزارم.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+دیروز ۱۹ میلیون بشکه نفت از تنگه هرمز عبور کرد؛ رکوردی بی‌سابقه در تمام دوران. قیمت نفت به‌شدت در حال سقوط است و جهان جای بسیار امن‌تری شده است!!!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
 📡
 @VahidOnline
 
@@ -81,7 +202,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 17:31:44
+###### 🔵 Updated at: 2026-06-23 20:07:47
 
 <img src="https://cdn1.telesco.pe/file/ojApWp5xtJEwTsQbZH6hQMaXM2VmbZVCoGf9EXOo9DJCm815gdWmrmXWWmb5HpYy6kmf9T9ZZSI1B3k_YVInL6cFua8ZpMb3xEFIGDBGWedvYDMlCa04CzQp68dMzkJ8Cky4VEnH0GFzTFwauewjf9ZPTWDShtHlQ9jZ8fRU9RNFv-fcK0XdvUavvABFJ0hiyjxHshAliDYAUkGoD0dUGBgypdXbJ0i4bTOtgtkEndo41bkSXqaltKLJRlFSK6Li5sRifb9vTcaKjN7cUu6h-KvlOyCzXMWnQ4rZ6ZMSU7IMKioZCrxkmXpHlM6G73e0_iN8MYGZxhKl6AiXLxfWww.jpg" width="400"><br>
 
@@ -105,7 +226,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-23 17:31:44
+###### 🔵 Updated at: 2026-06-23 20:07:47
 
 <img src="https://cdn1.telesco.pe/file/IxIMmR_6BgbUJSOaxWvZgmYsH2ZfXfs1mV8Dg46kKa1BpnQ9lI3b92zaaHh1y5ktxE7ikrQtCxvmChecjAxXQA34m7cvswd5_9ea5kxN0ZpkbLFVIOWUHtzwf9hqhqvK8iPvPRkfZprfZHGtqglzx0obxWKpC-87keTin11dJ_FsJ-ZIOcZHoTHO3W59taQSZEhwZyIwh4ecNJ9T8FB6h6wK1Uab9mylKT6ZmF3w2Q6155JMBopSWQqVd7h7INSoFqU14KShUZJgdsyVG2tuMdQOx69J3DpW3Kxril4rorPw0LbapBFgbmJlwyC88DZ4XWtSwjb1Ag-2eQo3O0Um5Q.jpg" width="400"><br>
 
@@ -122,7 +243,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 17:31:44
+###### 🔵 Updated at: 2026-06-23 20:07:47
 
 <img src="https://cdn1.telesco.pe/file/YzbVp-AXifei49CNPkRZMxhYmjlp87yW66S1Bjtf2r0f-UI_sLVfDyC3oPvM1i2VJb8gDIz9S_oDkrc-Y7KFP8sbdGZc-xJ4pR68gN502sRdaRqhC9DgO3MTu5MempbAhN4w9n7uq_hJZ27xPK8Zq3wB7yCPLKDHkf8vDpXshq3HWKvL02PQqbGEzfI9jBTJ9G6EmT2Q8sb_s353DPYkkfF0wNjTOEKfhW58Y6FT9WGGsoYNTLmIA9dQ9A1N90bPjIlWYWm5FhpQL8NE1ZZ823dM1edPiK357erYke9Lmo1uMGC7jZenYXOeWdyWBSclr7DjY3pE5-0oVP1kvyf0Xw.jpg" width="400"><br>
 
@@ -137,23 +258,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76603)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 17:31:44
-
-<img src="https://cdn4.telesco.pe/file/WavEG0ZwnLSuuKPxMbC2Fp561OSY3EBz-Gn71zMQurS0qrLZDZ3ZVpyv9kOXW-w3UBLhuklvO_ZehZkyBnxQ7aetUS1DpNmKpnOInsx3okQS165Vm10G1ihUZSNfsq5TnrT4HAKl7pAD7JKDxwAG5TSO2Gi2nQgjXtkSeOtDITiwBCClC70u0qSZzPlW9TfPwoTxN4bRDt8vtWCKPa_S_N2mYCoTwyai57KjP-hr6LrmfIX3iwlufVUFlcVOB13ujNlAzRsDk27yRmQHN1TjwMWstCcKYu7J0B3LywKg3ZTf683N2H-ik0wPax7MiZhhYvxoQ2J2WwuMr_YEXABYGw.jpg" width="400"><br>
-
-محمدباقر قالیباف، سرپرست تیم مذاکره‌کننده جمهوری اسلامی ایران، در واکنش به صحبت یکی از مجری‌های صداوسیما با انتشار پیامی در اکس نوشت: «در یکی از برنامه‌های صداوسیما دیدم که گفتند کاش فرودگاه مهرآباد را می‌بستند تا تیم مذاکره‌کننده به سوئیس نرود. به آن عزیزان می‌گویم اگر به سوئیس نمی‌رفتیم، هر لحظه خون بیشتری از مسلمانان و شیعیان لبنان ریخته می‌شد.»
-پیش از این، روز شنبه، یکی از مجری‌های صداوسیما گفته بود: «در کنار بستن تنگه هرمز باید فرودگاه مهرآباد را هم می‌بستیم تا مسئولان برای مذاکره نروند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76602)
 
 ---
 
