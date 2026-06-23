@@ -3,7 +3,126 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-23 15:03:02
+###### 🔵 Updated at: 2026-06-23 17:31:44
+
+<img src="https://cdn4.telesco.pe/file/YP-pg3NvJtBzECsN9jI2iTUiUZ1KCu--TEff-BYcK57jjpdQYy1KGCjucXhyZf0e5rGId8FK7lAPY1kIR6zBp2ze620ECSd8fauQH3dyiEoX9piaGtPe_lEtRLQNFfpKWu8jFStbCPVfhuBCdmzHjEv9bxOWIRkeeFiLgIJ1qPxuJwon6CVJNCf_hFOObBzxfGK0P2HMDK-7z9Cul9EEsg6j_SBsanF0n5ZVACZUmC6V-OHFXZ2tkBbcwb5SUaw7RsIWm8UD0c_Zv36d-xlz2pemfVZTmXQkk8Gs3OaThxgIWUb5_00GWptuYX_nZ6sbunspuvG4TsDbX-Uuo1G0hQ.jpg" width="400"><br>
+
+عمان و ایران روز سه‌شنبه دوم تیرماه توافق کردند گفت‌وگوها درباره نحوه اداره آینده کشتیرانی در تنگهٔ هرمز، از جمله خدمات دریایی در این آبراه راهبردی و هزینه‌های مرتبط با آن، را ادامه دهند.
+به گزارش خبرگزاری رویترز، در بیانیه‌ مشترکی که پس از مذاکرات مسقط منتشر شد، دو کشور اعلام کردند یک کارگروه مشترک با مشارکت وزارتخانه‌های خارجه تشکیل خواهد شد تا این گفت‌وگوها را پیگیری کند و همچنین با دیگر کشورهای ساحلی و طرف‌های مرتبط رایزنی خواهند کرد.
+این اقدام به نظر می‌رسد اجرای بندی از تفاهم‌نامه‌ای باشد که هفته گذشته بین ایران و آمریکا امضا شد و بر اساس آن، ایران موظف است با عمان و دیگر کشورهای ساحلی خلیج فارس درباره مدیریت آینده کشتیرانی و خدمات دریایی در این تنگه، که مسیر حیاتی برای انتقال نفت جهان است، گفت‌وگو کند.
+این توافق پس از سفر محمدباقر قالیباف، رئیس مجلس شورای اسلامی، و عباس عراقچی، وزیر خارجه ایران، به عمان اعلام شد. این دو مقام ایرانی با سلطان هیثم بن طارق، پادشاه عمان، دیدار کردند و با وزیر خارجه این کشور، سید بدر البوسعیدی، نیز گفت‌وگو داشتند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76621)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 17:31:44
+
+<img src="https://cdn1.telesco.pe/file/LYB3pXLkXO3ZcKd9UUDqzUprq-PJCSub0uHAXogsOBVd7UnobHyqr_gy12czqTv85agL3uj0EP6qA2ShZvD6M1gAGSA4zFql0H02PxIHNWuB1ra19Q7apWBm_kN3qt7am1aR8dG3ELWT5dcFwFqhNWPJFVU8Iteipf2j7iRJ7L-liDQe-ma6Icynud9c9FqNVyeHTL9egRkxndQnzJ0Zo1ZuAofPwd5wp4-siGJmfuXO1-a6IyA6HVZwz4-LanrEqri9rE80lL4nIlhRczEh0poquOubz3KxtjMidj_cHYSe-jeBPtJVSQkOSKxmF1MkArzfuE3DGUJ2VDeyqMLrcg.jpg" width="400"><br>
+
+کامران غضنفری، نماینده مجلس شورای اسلامی، در شبکه اجتماعی ایکس از برنامه شماری از نمایندگان برای «تحصن» مقابل ساختمان این نهاد در اعتراض به ادامه تعطیلی آن خبر داد.
+او نوشت که «چنان‌چه مجلس بسته باشد، تا باز شدن مجلس، در همان‌جا تحصن خواهیم کرد.»
+شماری از نمایندگان مجلس به تعطیلی این نهاد طی ماه‌های بعد از حملات اسرائیل و آمریکا به ایران در نهم اسفند ۱۴۰۴، اعتراض دارند.
+حمید رسایی، یکی دیگر از نمایندگان مجلس شورای اسلامی، یکشنبه ۳۱ خرداد با انتقاد از ادامه تعطیلی مجلس گفته بود در صورت ادامه تعطیلی، همراه برخی نمایندگان مقابل ساختمان مجلس جلسه برگزار خواهد کرد.
+حسین صمصامی، دیگر نماینده مجلس شورای اسلامی، نیز در پیامی جداگانه در شبکه ایکس، نسبت به ادامه تعطیلی صحن علنی اعتراض کرده و نوشته است: «بیش از ۱۰۰ روز از تعطیلی صحن مجلس می‌گذرد و نکتۀ تاسف‌بار آن است که در سامانه قانونگذاری، امکان ثبت استیضاح وزیر و صدور بیانیه مسدود شده است.»
+انتقادها در این زمینه به خصوص از سوی نمایندگان نزدیک به جبهه پایداری با پررنگ‌شدن نقش محمدباقر قالیباف در مذاکرات با آمریکا، افزایش یافته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76619)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 17:31:44
+
+<img src="https://cdn4.telesco.pe/file/F17QZvxP9UgBTWo2kE_ZMu-0Tm7OYRSq7egcjXGWprmIVfX9OHvYLFfz1wtOiJ4toDuVNOLhdWg9bXlxvHiGif6juh6jD5d9NMiimY_25xXRl-AD4SGUsRgTHnYULVnb2WqkgaQMdEg-mW6KuUTdJU9sgatmCV2ajlmyzhuvkca7c3iy0AJtjQ5OO7kPgm1RfWgZ4aCU-x2ByLGIA8ptAAiYRS1DpIyiadxHC_ADg81U5HmrooTfcpu7G78-45vqOjVbEEKJ56j_fGF2VWboj4STKO5gQuX8op7mXeyxYA-_9PrjayoqBaLGmLl636Tz-78vyy6CPzgrPcTlxe0g7w.jpg" width="400"><br>
+
+کانون فیلمسازان مستقل ایران، ایفما، در بیانیه‌ای نسبت به احتمال اعدام علی صفری، بازیگر تئاتر و دانشجوی دانشگاه فرهنگ و هنر هشدار داد.
+این کانون با ابراز نگرانی از طرح اتهام «محاربه» علیه او، از مراکز سینمایی و نهادهای بین‌المللی خواست تا برای نجات این هنرمند و سایر هنرمندان در بند، «فشارها بر رژیم ایران و قوه قضائیه آن را بیشتر کنند».
+به نوشته این نهاد، علی صفری، بازیگر جوان و ۲۳ ساله تئاتر و دانشجوی دانشگاه فرهنگ و هنر در جریان اعتراضات سراسری ایران در تاریخ ۱۸ دی ماه ۱۴۰۴در شهر کرج بازداشت شد و «تاکنون اطلاعات روشنی درباره‌ی روند پرونده‌ و وضعیت این بازیگر منتشر نشده است، اما اتهام «محاربه» در تاریخ ۹ بهمن ۱۴۰۴ به طور رسمی به او تفهیم شد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76618)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 17:31:44
+
+<img src="https://cdn1.telesco.pe/file/IvSvj1vxa-EETvMOvCN-Mxo-Z5DahfWmGJ1r2ZnHOcbraI_130Xey8ki-g7PDAHEuDZqhPmWk5sQRe45kv5jnAJdC0deE3IPg4tNmwd6kHXZ_2iUpmG6zZLcpUDryBFiU3t1c3QD5XZsdPgX9dMHPVNX2c-PWYi0SYj_MU3AfcRJOfbQ6pxQfsqVnyLNNjP9QycUwzydbKYEwbkDmTzv4ONp40MU6sr9HW3dlR48esPX9nWdtZGZobRBwmb4aQ8ww9Xy0lyWdgf_NVH6JyCyzpj08ELE_C5aHRjQaWXU8NiXxrAEVGvwHkGXEvjLN2L1zuDfSPfhAp2sJXMCmAIvSA.jpg" width="400"><br>
+
+رئیس‌جمهور ایالات متحده روز سه‌شنبه دوم تیرماه بار دیگر تکرار کرد که ایران با بالاترین سطح بازرسی‌های هسته‌ای از تأسیسات خود موافقت کرده و این بازرسی‌ها «تا ابد» است.
+دونالد ترامپ در پستی در شبکهٔ اجتماعی خود، تروث سوشال، نوشت که با وجود اعتراض‌ها و «ادعاهای نادرست» ایران، و «هم‌زمان با جار و جنجال رسانه‌های جعلی که هر کاری می‌کنند تا پیروزی آمریکا را تا حد ممکن کوچک و بی‌اهمیت جلوه دهند»، ایران «به‌طور کامل و تمام‌عیار با بالاترین سطح بازرسی‌های هسته‌ای برای مدت طولانی در آینده (تا ابد!!!) موافقت کرده است».
+به گفتهٔ او، این امر «صداقت هسته‌ای» را تضمین خواهد کرد. «اگر با این موضوع موافقت نمی‌کردند، دیگر هیچ مذاکره‌ای ادامه پیدا نمی‌کرد!»
+نخستین بار، جی‌دی ونس معاون رئیس‌جمهور آمریکا بود که روز اول تیرماه خبر داد ایران با بازرسی از تأسیسات هسته‌ایش موافقت کرده و این امر ممکن است در هفته جاری رخ دهد.
+با این حال، مقام‌های جمهوری اسلامی بویژه سخنگوی وزارت خارجه ایران هرگونه بازرسی آژانس از تأسیسات هسته‌ای را رد کرده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76616)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 17:31:44
+
+<img src="https://cdn1.telesco.pe/file/ojApWp5xtJEwTsQbZH6hQMaXM2VmbZVCoGf9EXOo9DJCm815gdWmrmXWWmb5HpYy6kmf9T9ZZSI1B3k_YVInL6cFua8ZpMb3xEFIGDBGWedvYDMlCa04CzQp68dMzkJ8Cky4VEnH0GFzTFwauewjf9ZPTWDShtHlQ9jZ8fRU9RNFv-fcK0XdvUavvABFJ0hiyjxHshAliDYAUkGoD0dUGBgypdXbJ0i4bTOtgtkEndo41bkSXqaltKLJRlFSK6Li5sRifb9vTcaKjN7cUu6h-KvlOyCzXMWnQ4rZ6ZMSU7IMKioZCrxkmXpHlM6G73e0_iN8MYGZxhKl6AiXLxfWww.jpg" width="400"><br>
+
+خبرگزاری مهر سه‌شنبه دوم تیرماه گزارش داد قیمت انواع نان در تهران و ورامین افزایش یافته و در برخی موارد به حدود دو برابر نرخ‌های پیشین رسیده است.
+بر اساس این گزارش، قیمت‌های جدید از سوی استانداری ابلاغ شده و از امروز روی دستگاه‌های نانینو در نانوایی‌ها اعمال شده است.
+بر اساس نرخ‌های تازه، قیمت نان لواش به دو هزار و ۷۰۰ تومان، بربری به ۱۰ هزار تومان و سنگک به ۱۵ هزار و ۵۰۰ تومان رسیده است.
+محمدجواد کرمی، رئیس کارگروه آرد و نان اتاق اصناف ایران، نیز افزایش قیمت نان را تایید کرده است.
+در ورامین نیز رئیس اتحادیه نانوایان از افزایش ۹۰ تا ۱۰۰ درصدی قیمت نان خبر داد.
+بر این اساس، قیمت نان لواش از هزار و ۴۰۰ تومان به دو هزار و ۷۰۰ تومان، تافتون از دو هزار و ۳۰۰ تومان به چهار هزار و ۵۰۰ تومان، بربری از پنج هزار و ۳۰۰ تومان به ۱۰ هزار تومان و سنگک از هفت هزار و ۴۰۰ تومان به ۱۵ هزار و ۵۰۰ تومان افزایش یافته است.
+مسئولان صنفی افزایش هزینه‌های تولید، از جمله دستمزد کارگران، خمیرمایه، حمل‌ونقل و اجاره‌بها را دلیل این افزایش قیمت عنوان کرده‌اند.
+رئیس اتحادیه نانوایان ورامین نیز گفته است اصلاح قیمت‌ها با هدف ادامه فعالیت نانوایی‌ها و حفظ روند تولید و عرضه نان انجام شده است.
+این افزایش قیمت در حالی اعمال شده است که نان از مهم‌ترین کالاهای مصرفی خانوارهای ایرانی محسوب می‌شود و در برخی اقلام، نرخ‌های جدید نسبت به قیمت‌های قبلی نزدیک به دو برابر شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76615)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 17:31:44
+
+<img src="https://cdn1.telesco.pe/file/IxIMmR_6BgbUJSOaxWvZgmYsH2ZfXfs1mV8Dg46kKa1BpnQ9lI3b92zaaHh1y5ktxE7ikrQtCxvmChecjAxXQA34m7cvswd5_9ea5kxN0ZpkbLFVIOWUHtzwf9hqhqvK8iPvPRkfZprfZHGtqglzx0obxWKpC-87keTin11dJ_FsJ-ZIOcZHoTHO3W59taQSZEhwZyIwh4ecNJ9T8FB6h6wK1Uab9mylKT6ZmF3w2Q6155JMBopSWQqVd7h7INSoFqU14KShUZJgdsyVG2tuMdQOx69J3DpW3Kxril4rorPw0LbapBFgbmJlwyC88DZ4XWtSwjb1Ag-2eQo3O0Um5Q.jpg" width="400"><br>
+
+«امیرمحمد هموله» ۲۴ ساله، ساکن شهرک صدف شهریار، روز پنج‌شنبه ۱۸ دی‌ماه ۱۴۰۴ بر اثر اصابت گلوله به ناحیه سر به شدت مجروح شد.
+او پس از تیراندازی به بیمارستان نور شهریار منتقل شد و حدود ۵۰ روز در کما تحت درمان بود، اما سرانجام در روز هشتم اسفندماه ۱۴۰۴ بر اثر شدت جراحات جان خود را از دست داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76611)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-23 17:31:44
 
 <img src="https://cdn1.telesco.pe/file/YzbVp-AXifei49CNPkRZMxhYmjlp87yW66S1Bjtf2r0f-UI_sLVfDyC3oPvM1i2VJb8gDIz9S_oDkrc-Y7KFP8sbdGZc-xJ4pR68gN502sRdaRqhC9DgO3MTu5MempbAhN4w9n7uq_hJZ27xPK8Zq3wB7yCPLKDHkf8vDpXshq3HWKvL02PQqbGEzfI9jBTJ9G6EmT2Q8sb_s353DPYkkfF0wNjTOEKfhW58Y6FT9WGGsoYNTLmIA9dQ9A1N90bPjIlWYWm5FhpQL8NE1ZZ823dM1edPiK357erYke9Lmo1uMGC7jZenYXOeWdyWBSclr7DjY3pE5-0oVP1kvyf0Xw.jpg" width="400"><br>
 
@@ -23,7 +142,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 15:03:02
+###### 🔵 Updated at: 2026-06-23 17:31:44
 
 <img src="https://cdn4.telesco.pe/file/WavEG0ZwnLSuuKPxMbC2Fp561OSY3EBz-Gn71zMQurS0qrLZDZ3ZVpyv9kOXW-w3UBLhuklvO_ZehZkyBnxQ7aetUS1DpNmKpnOInsx3okQS165Vm10G1ihUZSNfsq5TnrT4HAKl7pAD7JKDxwAG5TSO2Gi2nQgjXtkSeOtDITiwBCClC70u0qSZzPlW9TfPwoTxN4bRDt8vtWCKPa_S_N2mYCoTwyai57KjP-hr6LrmfIX3iwlufVUFlcVOB13ujNlAzRsDk27yRmQHN1TjwMWstCcKYu7J0B3LywKg3ZTf683N2H-ik0wPax7MiZhhYvxoQ2J2WwuMr_YEXABYGw.jpg" width="400"><br>
 
@@ -35,218 +154,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76602)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-
-
-ترامپ: اوضاع ما  ‏در مورد تنگه هرمز خیلی خوب است.
-‏دیروز نفت بیشتری از هر زمان دیگری از تنگه عبور کرد؛ بیش از   ‏هر مقداری که تاکنون از تنگه عبور کرده است.
-‏احتمالاً این را می‌بینید.  ‏ما با یک فوران نفت روبه‌رو هستیم.
-‏تنگه کاملاً باز است.   ‏این را می‌دانید.
-‏خواهیم دید همه این‌ها چطور پیش می‌رود.
-‏اما ما دو چیز داریم.
-‏ما یک تنگه باز داریم و کشوری داریم که   ‏هرگز سلاح هسته‌ای نخواهد داشت.
-‏هیچ‌وقت، هرگز، سلاح هسته‌ای نخواهد داشت.
-ویدیوی بالا:
-به تشخیص ماشین، حدود ۱۱ دقیقه از نشست خبری ارتباط مستقیم با ایران داشت.
-متن فارسی اون دقایق
-ترامپ در پاسخ به سوالی در مورد تنش‌های احتمالی در تنگه هرمز گفت
-تا زمانی که ایران به ما احترام بگذارد، نمی‌خواهم بگویم از ما بترسند، تا زمانی که احترام بگذارند اوضاع خوب خواهد بود. 8:15
-@
-VahidHeadline
-دونالد ترامپ، رئیس‌جمهوری آمریکا، دوشنبه عصر گفت اگر جمهوری اسلامی «به توافق خود عمل نکند یا اگر رفتار مناسبی نداشته باشد، من کاری را که باید انجام دهم انجام خواهم داد.»
-5:00
-ترامپ: نیویورک تایمز جعلی گفت، اوه، وضعیت تقریباً همان چیزی است که چهار ماه پیش بود. نه، چهار ماه پیش، آنها یک نیروی دریایی داشتند، دقیقاً ۱۵۹ کشتی. آن از بین رفته است. کل نیروی دریایی از بین رفته است. آنها ۲۵۰ هواپیما داشتند، همه از بین رفته‌اند. ضدهوایی آن‌ها از بین رفته است. رادار آنها از بین رفته است... همه چیز از بین رفته است. رهبران آنها از بین رفته‌اند. کل کشورشان از بین رفته است...»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76601)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-
-
-جی دی ونس، ونس هنگام ترک سوئیس، ترجمه ماشین:
-🔸
-سازوکاری ایجاد کردیم تا مطمئن شویم نه‌تنها تنگه هرمز باز است، بلکه باز خواهد ماند.
-🔸
-قیمت بنزین همچنان کاهش خواهد یافت.
-🔸
-سازوکار درستی ایجاد کردیم تا آتش‌بس منطقه‌ای تضمین شود و درگیری‌های اجتناب‌ناپذیری که پیش می‌آید مدیریت شود.
-🔸
-ایرانی‌ها اجازه داده‌اند بازرسان تسلیحاتی، بازرسان هسته‌ای، پس از مدت‌ها وارد کشورشان شوند.روشن است که ما این رژیم بازرسی را تقویت خواهیم کرد تا مطمئن شویم آنها هرگز به سلاح هسته‌ای دست پیدا نمی‌کنند.
-🔸
-بخش زیادی از تیممان را آنجا گذاشتیم. ایرانی‌ها هم بخش زیادی از تیمشان را در آن اقامتگاه گذاشتند تا کار را ادامه دهند.
-🔸
-این دارد بنیانی می‌گذارد برای چیزی که می‌تواند خاورمیانه‌ای واقعاً دگرگون‌شده باشد.
-...
-خبرنگار: آقا، خیلی سریع؛ دیروز لحظه‌ای بود که عراقچی وارد اتاق شد و به شما سلام نکرد. شما دست ندادید و بعد او از اتاق خارج شد. آیا احساس کردید به شما بی‌اعتنایی شده؟ آیا فکر کردید این کار از طرف آنها عمدی بود؟ شما آن اتفاق را چطور تفسیر کردید؟
-باور کنید، در چند ماه گذشته زمان زیادی را با ایرانی‌ها سروکار داشته‌ام. گاهی آنها را به‌عنوان مذاکره‌کننده‌هایی بسیار گیج‌کننده می‌بینم.
-اما ببینید، ما یک نشست خبری کوچک داشتیم.
-آنها آشکارا در ایران از همان حمایت‌های
-متمم اول قانون اساسی
-که ما در ایالات متحده آمریکا داریم برخوردار نیستند.
-ما با شما صحبت کردیم و بعد چند جلسه واقعاً خوب داشتیم. چیزی که برایم کمی خنده‌دار بود این بود که بعد از آن جلسه اولیه، نوعی توفان در شبکه‌های اجتماعی شکل گرفت که همه می‌گفتند ایرانی‌ها می‌خواهند بروند. و بعد ما حدود ۹ ساعت دیگر با آنها صحبت کردیم.
-بنابراین فقط به رسانه‌ها توصیه می‌کنم کمی به آنچه از شبکه‌های اجتماعی ایرانی می‌بینید بی‌اعتماد باشند.
-آنها می‌توانند مذاکره‌کننده‌های گیج‌کننده‌ای باشند، اما احساس می‌کنیم در حال پیشرفت هستیم. ممنون از شما.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76600)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-<img src="https://cdn1.telesco.pe/file/rOtyuF9GKCIMUVraOndW5osMJnFfjB3Wb2iaJfcDO5j2Tfrw2q7-FCWMd18OxVo1E6FIWHfIh4frnhr6WtsZJ0EHkv9pYQVfZwkotqQgUKRyIWQoz73hoITf5Fpb0l2x3Vp-Sej4JFQkIZxJz3MmGmnk3o6i_9evtbZhp1a2ZsIy6oLF_dkhuy-ql1-PTNf06LEQ_cJwQI1k_Pc_k8mN_9e9A3xFDsPplSAm3oyRv5TxQFEHx1qB-AlRO4q9dhxcoInNUoJ6LY99xsWXhbrgB8-STSX7nQs5DYegR3wi0Dz9KGZF4v5I_FcF5Zy7VtZDZbEdb3yvqyktfz26uE8XSw.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-همه کاملا آگاه‌اند که ایران موافقت خواهد کرد که برای تضمین «صداقت هسته‌ای» در بلندمدت، بازرسی‌های گسترده تسلیحاتی انجام شود.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76599)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-<img src="https://cdn4.telesco.pe/file/J9m-Z5WtF6KQJVshfDlcBbW8QjIs1L57vI7Taw0pdVYmvbgwNLg3CJh3O5Gf5_iU57eRvjtta0syMzk3aKVq87ajm7FMagGwlXZIlddO2gDEhSHlP0XxsZlanq7BUvuTP3S8tSmRoHFvrxmh_Isey_L5_ODeRAWBfp29ZVuXKKZeXivevzPSxSuC0yJoiQOUIHkDATY0yGBix55K5NPBqm33_nShxbaipBSVrbgvrfgJmaCgHtCYviMsNgAxHyBLa_YaBtUWqAqCyAURJfKljXGrtWKoxbgNO3feXbREy6PNNYKqFHmBk5BLAhN6e-I6ciD59sWcpzdA2vx76UvHdg.jpg" width="400"><br>
-
-روز دوشنبه، رسانه‌ها خبر دادند که محمدباقر قالیباف، رئیس مجلس و رئیس هیئت مذاکره ایران، که تازه از سوئیس به تهران بازگشته بود بلافاصله برای دیداری دیگر به مسقط، پایتخت عمان، رفته است.
-به نوشته روزنامه هم‌میهن، قالیباف در سفر به عمان به همراه عباس عراقچی،‌ وزیر خارجه، قرار است با هیثم بن طارق، سلطان عمان دیدار کرده و در زمینه ارتقای همکاری‌های دوجانبه و تشریک مساعی «برای تثبیت ترتیبات ایرانی»‌ برای اداره تنگه هرمز گفت‌وگو کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76598)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-<img src="https://cdn1.telesco.pe/file/sKH2yLwUfGJV_B_LxnTf6h-vEN6czN5K5XhnuTq825RQqg6UMr3WzCpyCDRtldDLr379g4fa1fmku0DQ0bHlnTrBu-NhhWo7J6oM0yLVhKxaakTnoXmmeHGt6cxPFsiTm1QClwL1te1x2okbwwOcsvknuTlZ3pWK8l0Ca6Xy2GCzOwe0B1jS4j_c2eFIZ-K2wLA8as5zcXosZGouqLgcaf4XLLbd1MhCJI1VVAiVaKTc1WsqadaMya1-I401vQUhEz0RADWfMfwRssR2JYJEjm-d6-q7PCVJX5QaLuq0rTU-a7yuV1oqAAIKdYBKPT5bt9ObV55dHrtxdC1eJCy7pA.jpg" width="400"><br>
-
-خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه نوشت اظهارات جی‌دی ونس، معاون رییس‌جمهوری آمریکا، درباره بازگشت بازرسان آژانس به ایران کذب است و در مذاکرات سوئیس هیچ صحبتی درباره حضور بازرسان در کشور نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76597)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-
-
-نتانیاهو: تا وقتی که لازم باشد در جنوب لبنان خواهیم ماند
-بنیامین نتانیاهو اعلام کرد که موضع و دستورش به وزیر دفاع اسرائیل تغییر نکرده است.
-نخست‌وزیر اسرائیل نوشت: «نیروهای ما در جنوب لبنان آزادی عمل کامل برای خنثی کردن هرگونه تهدید مستقیم علیه خود یا ساکنان شمال را دارند.»
-او تاکید کرد که ارتش اسرائیل «هیچ محدودیتی در این زمینه ندارد.»
-نتانیاهو بار دیگر تکرار کرد که ارتش اسرائیل «تا زمانی که لازم باشد در منطقه امنیتی جنوب لبنان خواهد ماند.»
-در مذاکرات ایران و آمریکا در سوئیس، هر دو کشور تاکید کردند که حفظ آتش‌بس در لبنان از موضوعات محوری است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76596)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-<img src="https://cdn1.telesco.pe/file/ofjh4mn3zTW9P8YUG6ropWoTL-v0G1SBASfnS7fXaCRRP7dPVwbZt02mzwHMttBHa03y9-Rg0lKJjzJm7v2epYp9JILvXyExKIEYfRPW6a9ocCAmlCdCTkkEUz-Uy0N3Wc5MfoOnNXauko8L7XMDrBSwQJ1yfd-NaVKrzPQTP_EiiRMXejVppQ2OqQQBUWdPuHoEYht6oCXbRzCMOeJ4PomrQ9jSsLz3G1LChc6Z8je7oQZAs-XbGHcHqZFzKnBVj2Z8bnpnF0FuMuV3PoSeltPhcUCoqdbNPflPVKw4NkaqprJUDRq4PL8Vh-1ymH4MVNdaMVOrm3XXD34ri8hZ0Q.jpg" width="400"><br>
-
-وزارت خزانه‌داری آمریکا با صدور مجوز عمومی، تولید، فروش، حمل و تخلیه نفت خام، محصولات پتروشیمی و فرآورده‌های نفتی با منشا ایران را تا ۳۰ مرداد مجاز اعلام کرد.
-بر اساس این مجوز، تمامی معاملات و خدماتی که برای تولید، فروش و انتقال این محصولات ضروری هستند، از جمله بیمه، مدیریت کشتی، تامین خدمه، سوخت‌رسانی، ثبت و پرچم‌گذاری کشتی‌ها و عملیات نجات دریایی، مجاز خواهند بود. این مجوز همچنین شامل کشتی‌هایی می‌شود که پیشتر تحت تحریم‌های مرتبط با جمهوری اسلامی قرار گرفته بودند.
-در متن مجوز آمده است که واردات نفت خام، محصولات پتروشیمی و فرآورده‌های نفتی با منشا ایران به آمریکا نیز، در صورتی که بخشی از فرایند فروش، تحویل یا تخلیه مجاز باشد، امکان‌پذیر خواهد بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76595)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-<img src="https://cdn1.telesco.pe/file/r8Zl_LS5GIRO-1zaNkh1yGsY5trn5YWH4mSEpCBpcmakpcBSppcSU8CtLvj8g6MLGviB-PxJQa9vOZeJQUgLSADDKkTiPLrPTlG4Q_haJt9cFHVUkY4jyBOCgZ6MribWrCtvVhLKZVr-Na3EUrRM6pvhXiKf-3eJnFq7U2GJ7OLOiRNLElCEctkG9MxUHhemVQH6wHZVkq3XpOZyIwmi7-m38upn8Xo73DPmeVaS-FT75-BkQjrW5pXgGHS5ZOtPydP1xq-kQqs_LMAIXhdqStQ24QFeuSzqkKCgTAqCdSjN00VDkZI1CBbvZO30l_cW-uQQ7uYElJf_KlwSTIoajw.jpg" width="400"><br>
-
-براساس گزارش هرانا  در خردادماه ۱۲۷ حکم اعدام اجرا شده، ۱۹ نفر به اعدام محکوم شده‌اند و حکم اعدام ۱۲ نفر نیز تایید شده است.
-هرانا همچنین از ثبت ۸۰۹ مورد بازداشت در حوزه آزادی بیان و صدور مجموعا ۴۹۳۳ ماه حبس، ۷۶۶ ضربه شلاق و ۵۱ میلیون تومان جزای نقدی برای ۸۰ شهروند خبر داده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76594)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-23 15:03:02
-
-<img src="https://cdn1.telesco.pe/file/AP8fWNaOnwld9y1qzF-tF2KELPwV_NtUL-zvIWj4LO-j_OoWgD4ZTlkANdrnfuQjnVmNd6DGmuiU1AXR7g1TqDNN1Ij51x5ZnZiawh57Sf3bDG_nHfKvPZbPD5B-kr7CR3qGMGlNgfYeoCF07TW02fAxvntfxI8TAiU9owmEP0V4psyHpMgLjhQIincGGqRxdaPiWH9icdSHF6Js16S3osI0bzpLEH8Ha7e_-b83DL55B_n_Z5UVggGfz6EDysHip90S-X_Kdivonzv8FTDHFW28A9r3CMeMfEJ1dUR8AviCY_pKfyb7UQQYICDtZXXqrWbLsAwJZNdHGeoDDWzocQ.jpg" width="400"><br>
-
-وزیر خارجه جمهوری اسلامی گزارش داد «تحریم صادرات نفت و پتروشیمی تعلیق و محاصره دریایی برداشته شد.»
-علاوه بر این، عباس عراقچی اعلام کرد برخی از دارایی‌های مسدود شده آزاد و طرح بزرگ بازسازی و پیشرفت اقتصادی ایران اجرایی شد.»
-آقای عراقچی این موارد را در پستی در حساب کاربری خود در شبکه اجتماعی ایکس اعلام کرده است.
-@
-VahidHeadline
-معاون رئیس‌جمهوری آمریکا اعلام کرد که در گفت‌وگوها با حکومت ایران پیشرفت حاصل شده و جمهوری اسلامی با ورود بازرسان هسته‌ای به این کشور موافقت کرده است.
-جِی‌دی ونس، روز دوشنبه در سوئیس گفت که گفت‌وگوها درباره بازرسی‌ها ممکن است از همین هفته آغاز شود. ونس درباره زمان آغاز کار بازرسان هسته‌ای در ایران تأکید کرد: «احتمالاً همین هفته، شاید از امروز.»
-معاون رئیس‌جمهوری آمریکا افزود: «ما پایه بسیار خوبی برای یک توافق نهایی موفق گذاشتیم. گفت‌وگوهای فنی در هفته‌ها و روزهای آینده ادامه خواهد یافت».
-@
-VahidHeadline
-معاون رییس‌جمهوری آمریکا، گفت یکی از اهداف واشینگتن در مذاکرات، ایجاد سازوکاری برای نحوه استفاده از دارایی‌های مسدودشده ایران در صورت آزادسازی آنها بوده است.
-او گفت هدف این سازوکار آن است که اطمینان حاصل شود منابع مالی آزادشده به مردم ایران کمک می‌کند و صرف حمایت از فعالیت‌های «تروریستی» نمی‌شود.
-ونس افزود جرد کوشنر با همکاری مقام‌های قطری طرحی را ارائه کرده است که بر اساس آن، در صورت آزادسازی دارایی‌های مسدودشده ایران، ایالات متحده و قطر بر نحوه مصرف این منابع نظارت خواهند داشت و باید آن را تایید کنند.
-به گفته معاون رییس‌جمهوری آمریکا، این منابع مالی برای خرید محصولات کشاورزی آمریکایی از جمله سویا، ذرت و گندم اختصاص خواهد یافت تا در اختیار مردم ایران قرار گیرد.
-@
-VahidOOnLine
-جی‌دی ونس، معاون رییس‌جمهوری ایالات متحده، در پاسخ به سوالی درباره تهدید تیم مذاکره‌کننده جمهوری اسلامی به ترک میز مذاکره، گفت: «آن‌ها تهدید کردند که مذاکرات را ترک خواهند کرد، یا دست‌کم در شبکه‌های اجتماعی چنین تهدیدهایی مطرح شد. اما ما دیروز تا مدت‌ها بعد از ساعت یک بامداد در حال مذاکره بودیم، بنابراین آن‌ها جلسه را ترک نکردند.»
-@
-VahidOOnLine
-گزارش‌ها از سوئیس حاکی از ادامۀ مذاکرات فنی ایران و ایالات متحده، به ریاست کاظم غریب آبادی، معاون وزیر خارجه ایران، است.
-رسانه‌های جمهوری اسلامی نوشته‌اند که قرار است دوطرف روز دوشنبه اول تیرماه در مورد سازوکارهای اجرای یادداشت تفاهم اسلام‌آباد و تشکیل گروه‌های فنی مربوطه با یکدیگر گفت‌و‌گو کنند.
-با این حال تیم اصلی مذاکره‌کننده ایران به ریاست محمدباقر قالیباف، رئیس مجلس شورای اسلامی، سوئیس را به مقصد تهران ترک کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76588)
 
 ---
 
