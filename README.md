@@ -3,12 +3,17 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 <img src="https://cdn1.telesco.pe/file/YzbVp-AXifei49CNPkRZMxhYmjlp87yW66S1Bjtf2r0f-UI_sLVfDyC3oPvM1i2VJb8gDIz9S_oDkrc-Y7KFP8sbdGZc-xJ4pR68gN502sRdaRqhC9DgO3MTu5MempbAhN4w9n7uq_hJZ27xPK8Zq3wB7yCPLKDHkf8vDpXshq3HWKvL02PQqbGEzfI9jBTJ9G6EmT2Q8sb_s353DPYkkfF0wNjTOEKfhW58Y6FT9WGGsoYNTLmIA9dQ9A1N90bPjIlWYWm5FhpQL8NE1ZZ823dM1edPiK357erYke9Lmo1uMGC7jZenYXOeWdyWBSclr7DjY3pE5-0oVP1kvyf0Xw.jpg" width="400"><br>
 
-تصاویری که ترامپ پشت سر هم پست کرد
-تصاویری است با عناوین نظرسنجی‌ها درباره توافق + ترجمه ماشینی
+تصاویری که ترامپ پشت سر هم پست کرد + ترجمه ماشینی
+دونالد ترامپ، رئیس جمهوری آمریکا، دوشنبه عصر نتایج چندین نظرسنجی مختلف درباره توافق با جمهوری اسلامی را منتشر کرد.
+از جمله یک نظرسنجی مشترک «سی‌بی‌اس نیوز» و «شرکت یوگاو» می‌گوید که به عقیده ۸۰درصد جمهوری‌خواهان، این تفاهم‌نامه «بهتر» برای آمریکا، و یا «خوب» برای هر دو کشور، است.
+در یک نظرسنجی دیگر، ۶۷ درصد می‌گویند از تفاهم‌نامه اخیر صلح میان دو دولت حمایت می‌کنند.
+در نظرسنجی دیگری نیز ۴۷درصد گفته‌اند که این تفاهم‌نامه اثر مثبتی روی نرخ تورم و توانایی مالی خرید مردم آمریکا خواهد داشت.
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -18,7 +23,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 <img src="https://cdn4.telesco.pe/file/WavEG0ZwnLSuuKPxMbC2Fp561OSY3EBz-Gn71zMQurS0qrLZDZ3ZVpyv9kOXW-w3UBLhuklvO_ZehZkyBnxQ7aetUS1DpNmKpnOInsx3okQS165Vm10G1ihUZSNfsq5TnrT4HAKl7pAD7JKDxwAG5TSO2Gi2nQgjXtkSeOtDITiwBCClC70u0qSZzPlW9TfPwoTxN4bRDt8vtWCKPa_S_N2mYCoTwyai57KjP-hr6LrmfIX3iwlufVUFlcVOB13ujNlAzRsDk27yRmQHN1TjwMWstCcKYu7J0B3LywKg3ZTf683N2H-ik0wPax7MiZhhYvxoQ2J2WwuMr_YEXABYGw.jpg" width="400"><br>
 
@@ -35,24 +40,26 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 
 
 ترامپ: اوضاع ما  ‏در مورد تنگه هرمز خیلی خوب است.
 ‏دیروز نفت بیشتری از هر زمان دیگری از تنگه عبور کرد؛ بیش از   ‏هر مقداری که تاکنون از تنگه عبور کرده است.
-‏احتمالاً این را می‌بینید.   ‏ما با یک فوران نفت روبه‌رو هستیم.
+‏احتمالاً این را می‌بینید.  ‏ما با یک فوران نفت روبه‌رو هستیم.
 ‏تنگه کاملاً باز است.   ‏این را می‌دانید.
 ‏خواهیم دید همه این‌ها چطور پیش می‌رود.
 ‏اما ما دو چیز داریم.
 ‏ما یک تنگه باز داریم و کشوری داریم که   ‏هرگز سلاح هسته‌ای نخواهد داشت.
 ‏هیچ‌وقت، هرگز، سلاح هسته‌ای نخواهد داشت.
+ویدیوی بالا:
+به تشخیص ماشین، حدود ۱۱ دقیقه از نشست خبری ارتباط مستقیم با ایران داشت.
+متن فارسی اون دقایق
 ترامپ در پاسخ به سوالی در مورد تنش‌های احتمالی در تنگه هرمز گفت
 تا زمانی که ایران به ما احترام بگذارد، نمی‌خواهم بگویم از ما بترسند، تا زمانی که احترام بگذارند اوضاع خوب خواهد بود.
 @
 VahidHeadline
 دونالد ترامپ، رئیس‌جمهوری آمریکا، دوشنبه عصر گفت اگر جمهوری اسلامی «به توافق خود عمل نکند یا اگر رفتار مناسبی نداشته باشد، من کاری را که باید انجام دهم انجام خواهم داد.»
-او گفت جمهوری اسلامی اهرم فشاری ندارد چرا که «نیروی دریایی آن‌ها از بین رفته است. نیروی هوایی آن‌ها از بین رفته است. رهبرانشان همگی مرده‌اند. کل کشورشان به هم ریخته است. اقتصادشان نابود شده است.»
 ترامپ: نیویورک تایمز جعلی گفت، اوه، وضعیت تقریباً همان چیزی است که چهار ماه پیش بود. نه، چهار ماه پیش، آنها یک نیروی دریایی داشتند، دقیقاً ۱۵۹ کشتی. آن از بین رفته است. کل نیروی دریایی از بین رفته است. آنها ۲۵۰ هواپیما داشتند، همه از بین رفته‌اند. ضدهوایی آن‌ها از بین رفته است. رادار آنها از بین رفته است... همه چیز از بین رفته است. رهبران آنها از بین رفته‌اند. کل کشورشان از بین رفته است...»
 @
 VahidHeadline
@@ -65,7 +72,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 
 
@@ -101,7 +108,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 <img src="https://cdn1.telesco.pe/file/rOtyuF9GKCIMUVraOndW5osMJnFfjB3Wb2iaJfcDO5j2Tfrw2q7-FCWMd18OxVo1E6FIWHfIh4frnhr6WtsZJ0EHkv9pYQVfZwkotqQgUKRyIWQoz73hoITf5Fpb0l2x3Vp-Sej4JFQkIZxJz3MmGmnk3o6i_9evtbZhp1a2ZsIy6oLF_dkhuy-ql1-PTNf06LEQ_cJwQI1k_Pc_k8mN_9e9A3xFDsPplSAm3oyRv5TxQFEHx1qB-AlRO4q9dhxcoInNUoJ6LY99xsWXhbrgB8-STSX7nQs5DYegR3wi0Dz9KGZF4v5I_FcF5Zy7VtZDZbEdb3yvqyktfz26uE8XSw.jpg" width="400"><br>
 
@@ -118,7 +125,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 <img src="https://cdn4.telesco.pe/file/J9m-Z5WtF6KQJVshfDlcBbW8QjIs1L57vI7Taw0pdVYmvbgwNLg3CJh3O5Gf5_iU57eRvjtta0syMzk3aKVq87ajm7FMagGwlXZIlddO2gDEhSHlP0XxsZlanq7BUvuTP3S8tSmRoHFvrxmh_Isey_L5_ODeRAWBfp29ZVuXKKZeXivevzPSxSuC0yJoiQOUIHkDATY0yGBix55K5NPBqm33_nShxbaipBSVrbgvrfgJmaCgHtCYviMsNgAxHyBLa_YaBtUWqAqCyAURJfKljXGrtWKoxbgNO3feXbREy6PNNYKqFHmBk5BLAhN6e-I6ciD59sWcpzdA2vx76UvHdg.jpg" width="400"><br>
 
@@ -135,7 +142,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 <img src="https://cdn1.telesco.pe/file/sKH2yLwUfGJV_B_LxnTf6h-vEN6czN5K5XhnuTq825RQqg6UMr3WzCpyCDRtldDLr379g4fa1fmku0DQ0bHlnTrBu-NhhWo7J6oM0yLVhKxaakTnoXmmeHGt6cxPFsiTm1QClwL1te1x2okbwwOcsvknuTlZ3pWK8l0Ca6Xy2GCzOwe0B1jS4j_c2eFIZ-K2wLA8as5zcXosZGouqLgcaf4XLLbd1MhCJI1VVAiVaKTc1WsqadaMya1-I401vQUhEz0RADWfMfwRssR2JYJEjm-d6-q7PCVJX5QaLuq0rTU-a7yuV1oqAAIKdYBKPT5bt9ObV55dHrtxdC1eJCy7pA.jpg" width="400"><br>
 
@@ -151,7 +158,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 
 
@@ -172,7 +179,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 <img src="https://cdn1.telesco.pe/file/ofjh4mn3zTW9P8YUG6ropWoTL-v0G1SBASfnS7fXaCRRP7dPVwbZt02mzwHMttBHa03y9-Rg0lKJjzJm7v2epYp9JILvXyExKIEYfRPW6a9ocCAmlCdCTkkEUz-Uy0N3Wc5MfoOnNXauko8L7XMDrBSwQJ1yfd-NaVKrzPQTP_EiiRMXejVppQ2OqQQBUWdPuHoEYht6oCXbRzCMOeJ4PomrQ9jSsLz3G1LChc6Z8je7oQZAs-XbGHcHqZFzKnBVj2Z8bnpnF0FuMuV3PoSeltPhcUCoqdbNPflPVKw4NkaqprJUDRq4PL8Vh-1ymH4MVNdaMVOrm3XXD34ri8hZ0Q.jpg" width="400"><br>
 
@@ -190,7 +197,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 <img src="https://cdn1.telesco.pe/file/r8Zl_LS5GIRO-1zaNkh1yGsY5trn5YWH4mSEpCBpcmakpcBSppcSU8CtLvj8g6MLGviB-PxJQa9vOZeJQUgLSADDKkTiPLrPTlG4Q_haJt9cFHVUkY4jyBOCgZ6MribWrCtvVhLKZVr-Na3EUrRM6pvhXiKf-3eJnFq7U2GJ7OLOiRNLElCEctkG9MxUHhemVQH6wHZVkq3XpOZyIwmi7-m38upn8Xo73DPmeVaS-FT75-BkQjrW5pXgGHS5ZOtPydP1xq-kQqs_LMAIXhdqStQ24QFeuSzqkKCgTAqCdSjN00VDkZI1CBbvZO30l_cW-uQQ7uYElJf_KlwSTIoajw.jpg" width="400"><br>
 
@@ -207,7 +214,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 02:37:47
+###### 🔵 Updated at: 2026-06-23 03:48:25
 
 <img src="https://cdn1.telesco.pe/file/AP8fWNaOnwld9y1qzF-tF2KELPwV_NtUL-zvIWj4LO-j_OoWgD4ZTlkANdrnfuQjnVmNd6DGmuiU1AXR7g1TqDNN1Ij51x5ZnZiawh57Sf3bDG_nHfKvPZbPD5B-kr7CR3qGMGlNgfYeoCF07TW02fAxvntfxI8TAiU9owmEP0V4psyHpMgLjhQIincGGqRxdaPiWH9icdSHF6Js16S3osI0bzpLEH8Ha7e_-b83DL55B_n_Z5UVggGfz6EDysHip90S-X_Kdivonzv8FTDHFW28A9r3CMeMfEJ1dUR8AviCY_pKfyb7UQQYICDtZXXqrWbLsAwJZNdHGeoDDWzocQ.jpg" width="400"><br>
 
