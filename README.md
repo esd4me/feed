@@ -3,10 +3,18 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
-<img src="https://cdn1.telesco.pe/file/b1Uy1ZDHhx7jn0yPS9Lntk3mR_jpGMmNaghq5LDTJTcP6khMLc9PonpGTkpkLRUGYlTJ_m03A6yIFdBGc-sohHr4JdvwdePOR_yuIZfE8lgCDr7_tRSRQfEo827WXzxUK0rOyBxREbKuEjaeZZDol3Nq9b1k1Zr-LnzJerI2K_0Lr246yOJpM9T4mL-L4n64odpJAhevBfmwpUJG7khYOke7LqdpAwg01tGbd9AWhq9mjxhtK1w2VDxp78vFYFI6hKyr47qKj3qvNIN-wuAeUW46XGFCHWUntzf6n1E38IN44UAYP74PFy85CP2VfnKD8zzcQShPHmw98lJaXGViNA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Q-HsdfJkXlJ-7-9bzLHjsaixdOdtUP8VxQBDjhZRKnDFNgvPJK3oxD0QLadUlLDT_9CEuxcYUEvYlZbsH43mQCJJIj7Z9dgm2V9kY9B9dFvBeF9Re196ioh7dkt1ikselsfzdJHni3wcy6br4wYDToVFX6RT6fmkiPj47gEu94AweHLwmqzV6ZIegMmVvAA3BMM9gEfwsnlKxYnJPvIy7pGAhij4VN4ZuLIDPZuOua1lD40ebNGqtrhnkn9HiMBUQwxEmNoUjlXJTwZ9UPETYdPk8vAC7B4gKY6VJ-YReEND6hNfJKOpCjkGfbKJvKx8SOqQbTDnKDBkuQ0LPGac7g.jpg" width="400"><br>
 
+وزیر خارجه آمریکا می‌گوید تا زمانی که گروه‌های نیابتی مورد حمایت ایران به حملات موشکی ادامه دهند، دستیابی به صلح پایدار در منطقه غیرممکن است.
+مارکو روبیو که به امارات متحده عربی سفر کرده است، روز سه‌شنبه دوم تیرماه افزود این موضوع «در زمان مناسب» مورد رسیدگی قرار خواهد گرفت.
+او همچنین تأکید کرد هیچ کشوری حق ندارد بر تنگه هرمز عوارض یا هزینه‌ای تحمیل کند، چرا که این آبراه یک مسیر بین‌المللی است و بر اساس قوانین موجود بین‌المللی حفاظت می‌شود.
+تنگهٔ هرمز از زمان آغاز حملات آمریکا و اسرائیل به ایران در ۹ اسفند پارسال، از سوی سپاه پاسداران مسدود شده بود و تنها هفته گذشته پس از توافق اولیه بین تهران و واشینگتن برای پایان دادن به جنگ تا حدودی بازگشایی شد.
+وزیر خارجه آمریکا در مورد لبنان که برقراری آتش‌بس در این کشور بخشی از توافق بین تهران و واشینگتن است، گفت که ما قرار است مستقیماً با دولت لبنان به توافق برسیم.
+روبیو تصریح کرد که «آینده لبنان را مردم لبنان تعیین می‌کنند و پرونده لبنان از هرگونه توافق با ایران جداست».
+@
+VahidHeadline
 فرماندهی مرکزی ایالات متحده،
 سنتکام
 ، با انتشار تصویری از ناو هواپیمابر «یواس‌اس جورج اچ. دبلیو. بوش»، در شبکه ایکس نوشت که این ناو در
@@ -24,9 +32,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
-<img src="https://cdn1.telesco.pe/file/UdTWayI1k7kALijTCLAULhL3JLVw-CulDSnOPJTyJxQAn0dOuIGJe8ZNRbQdwzQxTww5TkzYwufAjX-FkhUzZ9Hs1HZqGaG-uh6roh3A1SWh6ZQtE9moTX2QWjWQY9lrSCGCwJ6qoj2dzRb_XbRRHCuezozCN30Y0WEO0GtkVley9TMBqMCNB4VAP4Rz7n10klOJSYPMsFvCyvHFu_v1GiXYewhRixYwil6vtZHUzHeeqatUmIzyh2v9kfe3Dl3eijWr-YIWP3f2gaZrGeTWDPiLGYvwAHs5IDbt0MuNIORdI-H9jzwSd_Xp7MuiqUm-D7aBeD4Lvh_fVwgd6P8ehw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Pw9XvsNzaAWFAXPOTMzRvqrWyu4ESc0__sJjAKnXl_i5CMFbmTOEYf54bglzpV2wf8iU4yBAYILic4jh01Ba19sAhc-StdVMV73145IOjM4iZRRixUZ7G4qPkvux6hVHHSfxmyGs9sD3LwEKso34FaFNVR0rT9zwBXVlZ9owzvzxObwfLqRM1oT_hRsDUYW69p4kZfAEiDJBaiNYedN_Wn-e7ZflLURKuCI71o-ZLtJnDNLf6V3yDOyM1IsBAqgy0r-gBb6YfeMG2MICvkcHUla41gZOIQZAjQpTjMHTQPQbUTt5m_otXYQlFmrCiLA7-BrcAYoKWArlQOKQ33gcug.jpg" width="400"><br>
 
 نخست‌وزیر پاکستان روز سه‌شنبه دوم تیرماه گفت که در مورد موشک‌های بالستیک نباید استاندارد دوگانه‌ای وجود داشته باشد و تأکید کرد ایران همان حقی را برای در اختیار داشتن آن‌ها دارد که سایر کشورها دارند.
 شهباز شریف همچنین به خبرنگاران گفت که در تفاهم‌نامه مورد توافق میان ایران و ایالات متحده هیچ اشاره‌ای به موشک‌های بالستیک نشده، زیرا این موضوع اساساً در آن مذاکرات مطرح نبوده است.
@@ -44,7 +52,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn4.telesco.pe/file/i5_r044ELHUkDAcz2zJNWFGI7V5V_QsNL5PU-hJsK5fgA5dPoIrTgcwAUqrRbogjSXR8GOdMlNkhry4qJsbLjiwurjChblqTnn5q8OiJ7yp7aoaQeYImT3JBrnk12T9yyzSd9LyBBUyciAYvY7KcgGoDCqp5dX68eeOiDWp3fM41ZJO0AmknC_fozKptTrfO2ftrCpBqAL5xInvu7EliDxKc3nmH9gEYFLDnm5qOUyibKv6V_JTVIr92HcmG0aXYHW3QCaEIyhjXwW5TgKdSbRzuOhbGOAj89swftHk2M3oNIuKbqj1gx0b9-3r1gjaHFknkiOwotVA3ZmB26P7-5Q.jpg" width="400"><br>
 
@@ -70,7 +78,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn1.telesco.pe/file/bQDskjYqEcxnk7j0qSDxOgJS1wEuXQjyB75BD0zOeYaw-UTRnvOSQNWa2aqOFet_OukPyhvZLDCCSe8eoiqdNl5ARd0NMT8HFm484G2BKJAcycNkovSn85DyeXs8BxzvvorlprWz_J2BTL33o4naMXWfEnhHFn74FxB3GH0yiuryg-e7EsBbY-8xUxvh0QJthmmPYTujwm_j29uXld-nIK1Lz3q_hHPts24QsTU0AmdOqxw6GkILWXtyIMBPKbLAbRzk_y_v6Q5kFi4UKr_2r_mpTn0NXNXaieuvxg_s-lh0h6YE4965o9eRXQSzBoCSz1yS_H_eL9NlHQSYUU0-Lw.jpg" width="400"><br>
 
@@ -84,7 +92,7 @@ Gerduo
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn1.telesco.pe/file/Ja7m_jAkmLgNcoi0VpuFZAxG8JFXpI2U3TZWQEm1dRIm3tZt8ipQv3ywg8ax1NlmCGOol2FTKBtqhZ1Gv9Tq9ngD5OCDCrNPYFxilRRY9jEfL35z_7ma1a8Pfy2PRr_Jbdu_mGRESDpjhxxDzCfvlLNW3b5YtsdRYrtIl7nsEfH9ZR4AJL3ifoXcUTm_bu6Gb2crPBcxoSB-AZ0T50FnLjo0yJJra05C8JGg-Xf5xNTfQ7r2YKXZWP6cODZAyg32RsZQr_RZE8pp-Fo2ISE609MSEMxP65PBSE2ZYJkXKUDgz3hEqxN5iwQFDTImUyMN1nTKpLlwx1OB6gU6tbx_xQ.jpg" width="400"><br>
 
@@ -111,7 +119,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn4.telesco.pe/file/YP-pg3NvJtBzECsN9jI2iTUiUZ1KCu--TEff-BYcK57jjpdQYy1KGCjucXhyZf0e5rGId8FK7lAPY1kIR6zBp2ze620ECSd8fauQH3dyiEoX9piaGtPe_lEtRLQNFfpKWu8jFStbCPVfhuBCdmzHjEv9bxOWIRkeeFiLgIJ1qPxuJwon6CVJNCf_hFOObBzxfGK0P2HMDK-7z9Cul9EEsg6j_SBsanF0n5ZVACZUmC6V-OHFXZ2tkBbcwb5SUaw7RsIWm8UD0c_Zv36d-xlz2pemfVZTmXQkk8Gs3OaThxgIWUb5_00GWptuYX_nZ6sbunspuvG4TsDbX-Uuo1G0hQ.jpg" width="400"><br>
 
@@ -130,7 +138,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn1.telesco.pe/file/LYB3pXLkXO3ZcKd9UUDqzUprq-PJCSub0uHAXogsOBVd7UnobHyqr_gy12czqTv85agL3uj0EP6qA2ShZvD6M1gAGSA4zFql0H02PxIHNWuB1ra19Q7apWBm_kN3qt7am1aR8dG3ELWT5dcFwFqhNWPJFVU8Iteipf2j7iRJ7L-liDQe-ma6Icynud9c9FqNVyeHTL9egRkxndQnzJ0Zo1ZuAofPwd5wp4-siGJmfuXO1-a6IyA6HVZwz4-LanrEqri9rE80lL4nIlhRczEh0poquOubz3KxtjMidj_cHYSe-jeBPtJVSQkOSKxmF1MkArzfuE3DGUJ2VDeyqMLrcg.jpg" width="400"><br>
 
@@ -151,7 +159,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn4.telesco.pe/file/F17QZvxP9UgBTWo2kE_ZMu-0Tm7OYRSq7egcjXGWprmIVfX9OHvYLFfz1wtOiJ4toDuVNOLhdWg9bXlxvHiGif6juh6jD5d9NMiimY_25xXRl-AD4SGUsRgTHnYULVnb2WqkgaQMdEg-mW6KuUTdJU9sgatmCV2ajlmyzhuvkca7c3iy0AJtjQ5OO7kPgm1RfWgZ4aCU-x2ByLGIA8ptAAiYRS1DpIyiadxHC_ADg81U5HmrooTfcpu7G78-45vqOjVbEEKJ56j_fGF2VWboj4STKO5gQuX8op7mXeyxYA-_9PrjayoqBaLGmLl636Tz-78vyy6CPzgrPcTlxe0g7w.jpg" width="400"><br>
 
@@ -169,7 +177,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn1.telesco.pe/file/IvSvj1vxa-EETvMOvCN-Mxo-Z5DahfWmGJ1r2ZnHOcbraI_130Xey8ki-g7PDAHEuDZqhPmWk5sQRe45kv5jnAJdC0deE3IPg4tNmwd6kHXZ_2iUpmG6zZLcpUDryBFiU3t1c3QD5XZsdPgX9dMHPVNX2c-PWYi0SYj_MU3AfcRJOfbQ6pxQfsqVnyLNNjP9QycUwzydbKYEwbkDmTzv4ONp40MU6sr9HW3dlR48esPX9nWdtZGZobRBwmb4aQ8ww9Xy0lyWdgf_NVH6JyCyzpj08ELE_C5aHRjQaWXU8NiXxrAEVGvwHkGXEvjLN2L1zuDfSPfhAp2sJXMCmAIvSA.jpg" width="400"><br>
 
@@ -202,7 +210,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn1.telesco.pe/file/ojApWp5xtJEwTsQbZH6hQMaXM2VmbZVCoGf9EXOo9DJCm815gdWmrmXWWmb5HpYy6kmf9T9ZZSI1B3k_YVInL6cFua8ZpMb3xEFIGDBGWedvYDMlCa04CzQp68dMzkJ8Cky4VEnH0GFzTFwauewjf9ZPTWDShtHlQ9jZ8fRU9RNFv-fcK0XdvUavvABFJ0hiyjxHshAliDYAUkGoD0dUGBgypdXbJ0i4bTOtgtkEndo41bkSXqaltKLJRlFSK6Li5sRifb9vTcaKjN7cUu6h-KvlOyCzXMWnQ4rZ6ZMSU7IMKioZCrxkmXpHlM6G73e0_iN8MYGZxhKl6AiXLxfWww.jpg" width="400"><br>
 
@@ -226,7 +234,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn1.telesco.pe/file/IxIMmR_6BgbUJSOaxWvZgmYsH2ZfXfs1mV8Dg46kKa1BpnQ9lI3b92zaaHh1y5ktxE7ikrQtCxvmChecjAxXQA34m7cvswd5_9ea5kxN0ZpkbLFVIOWUHtzwf9hqhqvK8iPvPRkfZprfZHGtqglzx0obxWKpC-87keTin11dJ_FsJ-ZIOcZHoTHO3W59taQSZEhwZyIwh4ecNJ9T8FB6h6wK1Uab9mylKT6ZmF3w2Q6155JMBopSWQqVd7h7INSoFqU14KShUZJgdsyVG2tuMdQOx69J3DpW3Kxril4rorPw0LbapBFgbmJlwyC88DZ4XWtSwjb1Ag-2eQo3O0Um5Q.jpg" width="400"><br>
 
@@ -243,7 +251,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-23 20:07:47
+###### 🔵 Updated at: 2026-06-23 21:59:05
 
 <img src="https://cdn1.telesco.pe/file/YzbVp-AXifei49CNPkRZMxhYmjlp87yW66S1Bjtf2r0f-UI_sLVfDyC3oPvM1i2VJb8gDIz9S_oDkrc-Y7KFP8sbdGZc-xJ4pR68gN502sRdaRqhC9DgO3MTu5MempbAhN4w9n7uq_hJZ27xPK8Zq3wB7yCPLKDHkf8vDpXshq3HWKvL02PQqbGEzfI9jBTJ9G6EmT2Q8sb_s353DPYkkfF0wNjTOEKfhW58Y6FT9WGGsoYNTLmIA9dQ9A1N90bPjIlWYWm5FhpQL8NE1ZZ823dM1edPiK357erYke9Lmo1uMGC7jZenYXOeWdyWBSclr7DjY3pE5-0oVP1kvyf0Xw.jpg" width="400"><br>
 
