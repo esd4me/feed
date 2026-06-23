@@ -3,7 +3,36 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
+
+<img src="https://cdn1.telesco.pe/file/cTCJIrF9wK7X5NS8ybHCv-JLTbBhJAdwayCjaXgRn5dxGSg3n19xWrDHOM5q-yc78AFTbA7a2BLFeJLdxoPRiIROdo9fdaFS2HCIWXN5sugbqW6ttOwikLQ6B34ow6xRWISqLG9tBqbyrhV-G3Xp8Q8qzf9BsHJXaKZ18C4uni9KVEWIrosHQjUfwNZV27abC-tORZrt2G5-pgIbRZ4uxeXTNz7FTh_bEIoSO783HBTAufu5IHCTGhFhL56EW38kGz99qcwyMWNlEKRmTCFp3IjDgjdfCC7JVVYoeZHUzuFn-kJEvJzSFWxepg8cTUwhrR4B87aPyEDXjn1eA76GGg.jpg" width="400"><br>
+
+سخنرانی ترامپ در پنسیلوانیا
+جملات مرتبط با ایران به تشخیص ماشین:
+ما به یک توافق صلح تاریخی با ایران دست پیدا کردیم تا درگیری در تنگه هرمز را پایان دهیم.
+راستی، دیروز ۱۹ میلیون بشکه نفت از تنگه هرمز عبور کرد. جای بسیار زیبایی است. این بیشترین مقدار نفت در تاریخ این تنگه است. هرگز چنین چیزی ندیده‌اید. به آن می‌گویند فوران نفت.
+مهم‌تر از همه، داریم یک چیز بسیار مهم را تضمین می‌کنیم؛ چون دلیل انجام این کار همین بود. من به همین دلیل این کار را کردم. ۹۹ درصدش برای همین بود: ایران هرگز سلاح هسته‌ای نخواهد داشت.
+اما یادتان باشد، این آسان نبود. ما ۴۷ سال رئیس‌جمهور و افراد دیگر داشتیم؛ کشورهای دیگر هم بودند. ما تنها کسانی نیستیم که هیچ کاری نکردند. آنها قلدر خاورمیانه بودند. حالا داریم ایران را بدون نیروی دریایی، بدون نیروی هوایی، بدون پدافند ضدهوایی، بدون توان موشکی، و بدون برنامه هسته‌ای باقی می‌گذاریم.
+ما آنها را بدون هیچ ظرفیت هسته‌ای باقی می‌گذاریم، و آنها با این موافقت کرده‌اند. و رابطه‌مان هم خیلی خوب پیش می‌رود، هرچند اگر اخبار جعلی را بخوانید، هیچ‌وقت نمی‌فهمید. فکرش را بکنید، اخبار جعلی.
+آنها ارتش ندارند، نیروی دریایی ندارند، نیروی هوایی ندارند، پدافند ضدهوایی ندارند. ما می‌توانیم هر وقت بخواهیم بر فراز تهران پرواز کنیم. هیچ‌کس کاری به ما نخواهد کرد. بعد اخبار جعلی را می‌خوانم که می‌گویند اوضاع آنها خیلی خوب است. اوضاعشان خیلی خوب نیست.
+اما اقتصاد ایران خرد شده و پایه صنعتی دفاعی‌شان چنان به‌شدت آسیب دیده که بازسازی آن سال‌های زیادی طول خواهد کشید. سال‌های بسیار زیاد. حالا ما داریم تلاش می‌کنیم به توافقی برسیم که منصفانه باشد.
+یادتان باشد، ما مجبور شدیم این مسیر انحرافی را برویم. مجبور شدیم سراغ ایران برویم. نمی‌شود اجازه داد آنها خاورمیانه و ما را منفجر کنند؛ اگر چنین چیزی ممکن باشد. ما زودتر به آنجا می‌رسیدیم، اما آنها اسرائیل را منفجر می‌کردند، کل خاورمیانه را منفجر می‌کردند. اگر می‌خواهید اقتصاد بد ببینید، آن اقتصاد بد است.
+یادتان باشد، نفت ما، در میانه این درگیری، از دوران جو خواب‌آلود بایدن هم ارزان‌تر بود. و ما داریم یک آتش را خاموش می‌کنیم. بایدن، کلینتون، بوش، همه‌شان، باراک حسین اوباما ـ اسمش را شنیده‌اید؟ اسم باراک حسین اوباما را شنیده‌اید؟ ـ هیچ‌کدامشان کاری نکردند.
+اوباما به آنها ۱.۷ میلیارد دلار پول نقد سبز داد، یادتان هست؟ با یک ۷۴۷. آنها انبوهی از پول نقد را با هواپیما بردند. ۱.۷ میلیارد دلار. صدها میلیارد دلار به آنها دادند و فکر کردند می‌توانند با رشوه آنها را به صلح بکشانند.
+تنها چیزی که آنها می‌فهمند همان چیزی است که این آقایان ردیف جلو می‌فهمند: چکش. چون اگر نگاه کنید به کاری که آنها کردند ـ به کاری که ما با ظرفیت هسته‌ای‌شان با آن بمب‌افکن‌های B-2 کردیم ـ آن یک چکش بود. در واقع اسمش را هم گذاشتیم چکش. عملیات چکش.
+دمبوکرات‌ها به نفع داشتن سلاح هسته‌ای توسط ایران رأی دادند. و علیه بودجه نظامی رأی دادند. اما من آن را دور زدم.
+ایران، ما آنها را از پا درآوردیم. در یک هفته، اساساً از نظر نظامی تمام شده بود. کشوری بسیار بزرگ‌تر، و با ایدئولوژی‌ای بسیار متفاوت. ایدئولوژی مسلمانان کمی با ایدئولوژی کاتولیک‌ها فرق دارد. ما کاتولیک‌ها و مسلمانان را داریم؛ کمی متفاوت‌اند.
+... ونزوئلا عالی بوده و ایران هم عالی بوده/خواهد بود، اگر عاقل باشند. وگرنه مجبور می‌شویم کار را تمام کنیم، که کمتر از یک هفته طول خواهد کشید. اما فکر می‌کنم آنها مشکلی نخواهند داشت. آنها کاری را که باید انجام دهند انجام خواهند داد، چون ما باید این کار را تمام‌شده ببینیم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76635)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 
 
@@ -23,7 +52,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 
 
@@ -38,7 +67,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn4.telesco.pe/file/ZU6HGrxDmNFeRCzW6scH7xwt-g-L1wObB0TseqmFoXRP3rCQUUEgpSYfltEEoKHAR-HTrVfAr2g-3keJtkhu0pwCXFDYna5dmKBed8l_vlSr9yQxUpVlGsWY0QyKzY10CU5rN10pcnYs4T20svX0I_xtik1QxlOtTSmf_J4hThzGInQaErBHakLmMqFBP4KbZoSix726Y3tvRhw0LRMRItbONAXI3XYgdtfKWQgocva5U0LrTH41AhuX6S6Up8z0FO8cWExw6XYeuLCG4VOZzcOP28kd-ZoPeHuoAdFq_7bay1CT5WsZ0_bdd8l_pm6SE0FbAyQOioewc-8UmN-kaw.jpg" width="400"><br>
 
@@ -57,7 +86,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 
 
@@ -99,7 +128,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn4.telesco.pe/file/AT2OlF8MVZmrcAuEzUGiBam3SLzpZId0e-2Gel7cxwnCPUrpDUFlH8tTVcvPrDSMh6-KwvFw2EtZsOyKNtdxhWAoUemLCwajmxFew73xUsiCsafYMXo64NpHNz4hL6DtkzvdmHIpnTxOFZnZQHJFJHKb1HEpcbHKZ2chZpQDNjXgoBkCyx67hB3raCPr2w_a1qIycblK5Uocl0x2X8VsZ6soERsC5zaGkAwgG0AEWXDWpaTdPgf7EkcbGZN5tfF0szTxgLRpT1br9ZjJT2uBYtkw3q0F7sbcuSK013GGwb7bmHx-VU6SngWZS7aui650SJIT_RX205dD3yteXr5PQw.jpg" width="400"><br>
 
@@ -118,7 +147,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn1.telesco.pe/file/Q-HsdfJkXlJ-7-9bzLHjsaixdOdtUP8VxQBDjhZRKnDFNgvPJK3oxD0QLadUlLDT_9CEuxcYUEvYlZbsH43mQCJJIj7Z9dgm2V9kY9B9dFvBeF9Re196ioh7dkt1ikselsfzdJHni3wcy6br4wYDToVFX6RT6fmkiPj47gEu94AweHLwmqzV6ZIegMmVvAA3BMM9gEfwsnlKxYnJPvIy7pGAhij4VN4ZuLIDPZuOua1lD40ebNGqtrhnkn9HiMBUQwxEmNoUjlXJTwZ9UPETYdPk8vAC7B4gKY6VJ-YReEND6hNfJKOpCjkGfbKJvKx8SOqQbTDnKDBkuQ0LPGac7g.jpg" width="400"><br>
 
@@ -147,7 +176,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn1.telesco.pe/file/Pw9XvsNzaAWFAXPOTMzRvqrWyu4ESc0__sJjAKnXl_i5CMFbmTOEYf54bglzpV2wf8iU4yBAYILic4jh01Ba19sAhc-StdVMV73145IOjM4iZRRixUZ7G4qPkvux6hVHHSfxmyGs9sD3LwEKso34FaFNVR0rT9zwBXVlZ9owzvzxObwfLqRM1oT_hRsDUYW69p4kZfAEiDJBaiNYedN_Wn-e7ZflLURKuCI71o-ZLtJnDNLf6V3yDOyM1IsBAqgy0r-gBb6YfeMG2MICvkcHUla41gZOIQZAjQpTjMHTQPQbUTt5m_otXYQlFmrCiLA7-BrcAYoKWArlQOKQ33gcug.jpg" width="400"><br>
 
@@ -167,7 +196,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn4.telesco.pe/file/i5_r044ELHUkDAcz2zJNWFGI7V5V_QsNL5PU-hJsK5fgA5dPoIrTgcwAUqrRbogjSXR8GOdMlNkhry4qJsbLjiwurjChblqTnn5q8OiJ7yp7aoaQeYImT3JBrnk12T9yyzSd9LyBBUyciAYvY7KcgGoDCqp5dX68eeOiDWp3fM41ZJO0AmknC_fozKptTrfO2ftrCpBqAL5xInvu7EliDxKc3nmH9gEYFLDnm5qOUyibKv6V_JTVIr92HcmG0aXYHW3QCaEIyhjXwW5TgKdSbRzuOhbGOAj89swftHk2M3oNIuKbqj1gx0b9-3r1gjaHFknkiOwotVA3ZmB26P7-5Q.jpg" width="400"><br>
 
@@ -193,7 +222,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn1.telesco.pe/file/bQDskjYqEcxnk7j0qSDxOgJS1wEuXQjyB75BD0zOeYaw-UTRnvOSQNWa2aqOFet_OukPyhvZLDCCSe8eoiqdNl5ARd0NMT8HFm484G2BKJAcycNkovSn85DyeXs8BxzvvorlprWz_J2BTL33o4naMXWfEnhHFn74FxB3GH0yiuryg-e7EsBbY-8xUxvh0QJthmmPYTujwm_j29uXld-nIK1Lz3q_hHPts24QsTU0AmdOqxw6GkILWXtyIMBPKbLAbRzk_y_v6Q5kFi4UKr_2r_mpTn0NXNXaieuvxg_s-lh0h6YE4965o9eRXQSzBoCSz1yS_H_eL9NlHQSYUU0-Lw.jpg" width="400"><br>
 
@@ -207,7 +236,7 @@ Gerduo
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn1.telesco.pe/file/Ja7m_jAkmLgNcoi0VpuFZAxG8JFXpI2U3TZWQEm1dRIm3tZt8ipQv3ywg8ax1NlmCGOol2FTKBtqhZ1Gv9Tq9ngD5OCDCrNPYFxilRRY9jEfL35z_7ma1a8Pfy2PRr_Jbdu_mGRESDpjhxxDzCfvlLNW3b5YtsdRYrtIl7nsEfH9ZR4AJL3ifoXcUTm_bu6Gb2crPBcxoSB-AZ0T50FnLjo0yJJra05C8JGg-Xf5xNTfQ7r2YKXZWP6cODZAyg32RsZQr_RZE8pp-Fo2ISE609MSEMxP65PBSE2ZYJkXKUDgz3hEqxN5iwQFDTImUyMN1nTKpLlwx1OB6gU6tbx_xQ.jpg" width="400"><br>
 
@@ -234,7 +263,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn4.telesco.pe/file/YP-pg3NvJtBzECsN9jI2iTUiUZ1KCu--TEff-BYcK57jjpdQYy1KGCjucXhyZf0e5rGId8FK7lAPY1kIR6zBp2ze620ECSd8fauQH3dyiEoX9piaGtPe_lEtRLQNFfpKWu8jFStbCPVfhuBCdmzHjEv9bxOWIRkeeFiLgIJ1qPxuJwon6CVJNCf_hFOObBzxfGK0P2HMDK-7z9Cul9EEsg6j_SBsanF0n5ZVACZUmC6V-OHFXZ2tkBbcwb5SUaw7RsIWm8UD0c_Zv36d-xlz2pemfVZTmXQkk8Gs3OaThxgIWUb5_00GWptuYX_nZ6sbunspuvG4TsDbX-Uuo1G0hQ.jpg" width="400"><br>
 
@@ -253,7 +282,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn1.telesco.pe/file/LYB3pXLkXO3ZcKd9UUDqzUprq-PJCSub0uHAXogsOBVd7UnobHyqr_gy12czqTv85agL3uj0EP6qA2ShZvD6M1gAGSA4zFql0H02PxIHNWuB1ra19Q7apWBm_kN3qt7am1aR8dG3ELWT5dcFwFqhNWPJFVU8Iteipf2j7iRJ7L-liDQe-ma6Icynud9c9FqNVyeHTL9egRkxndQnzJ0Zo1ZuAofPwd5wp4-siGJmfuXO1-a6IyA6HVZwz4-LanrEqri9rE80lL4nIlhRczEh0poquOubz3KxtjMidj_cHYSe-jeBPtJVSQkOSKxmF1MkArzfuE3DGUJ2VDeyqMLrcg.jpg" width="400"><br>
 
@@ -274,7 +303,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn4.telesco.pe/file/F17QZvxP9UgBTWo2kE_ZMu-0Tm7OYRSq7egcjXGWprmIVfX9OHvYLFfz1wtOiJ4toDuVNOLhdWg9bXlxvHiGif6juh6jD5d9NMiimY_25xXRl-AD4SGUsRgTHnYULVnb2WqkgaQMdEg-mW6KuUTdJU9sgatmCV2ajlmyzhuvkca7c3iy0AJtjQ5OO7kPgm1RfWgZ4aCU-x2ByLGIA8ptAAiYRS1DpIyiadxHC_ADg81U5HmrooTfcpu7G78-45vqOjVbEEKJ56j_fGF2VWboj4STKO5gQuX8op7mXeyxYA-_9PrjayoqBaLGmLl636Tz-78vyy6CPzgrPcTlxe0g7w.jpg" width="400"><br>
 
@@ -292,7 +321,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 00:04:23
+###### 🔵 Updated at: 2026-06-24 01:33:13
 
 <img src="https://cdn1.telesco.pe/file/IvSvj1vxa-EETvMOvCN-Mxo-Z5DahfWmGJ1r2ZnHOcbraI_130Xey8ki-g7PDAHEuDZqhPmWk5sQRe45kv5jnAJdC0deE3IPg4tNmwd6kHXZ_2iUpmG6zZLcpUDryBFiU3t1c3QD5XZsdPgX9dMHPVNX2c-PWYi0SYj_MU3AfcRJOfbQ6pxQfsqVnyLNNjP9QycUwzydbKYEwbkDmTzv4ONp40MU6sr9HW3dlR48esPX9nWdtZGZobRBwmb4aQ8ww9Xy0lyWdgf_NVH6JyCyzpj08ELE_C5aHRjQaWXU8NiXxrAEVGvwHkGXEvjLN2L1zuDfSPfhAp2sJXMCmAIvSA.jpg" width="400"><br>
 
@@ -320,30 +349,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76616)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-24 00:04:23
-
-<img src="https://cdn1.telesco.pe/file/ojApWp5xtJEwTsQbZH6hQMaXM2VmbZVCoGf9EXOo9DJCm815gdWmrmXWWmb5HpYy6kmf9T9ZZSI1B3k_YVInL6cFua8ZpMb3xEFIGDBGWedvYDMlCa04CzQp68dMzkJ8Cky4VEnH0GFzTFwauewjf9ZPTWDShtHlQ9jZ8fRU9RNFv-fcK0XdvUavvABFJ0hiyjxHshAliDYAUkGoD0dUGBgypdXbJ0i4bTOtgtkEndo41bkSXqaltKLJRlFSK6Li5sRifb9vTcaKjN7cUu6h-KvlOyCzXMWnQ4rZ6ZMSU7IMKioZCrxkmXpHlM6G73e0_iN8MYGZxhKl6AiXLxfWww.jpg" width="400"><br>
-
-خبرگزاری مهر سه‌شنبه دوم تیرماه گزارش داد قیمت انواع نان در تهران و ورامین افزایش یافته و در برخی موارد به حدود دو برابر نرخ‌های پیشین رسیده است.
-بر اساس این گزارش، قیمت‌های جدید از سوی استانداری ابلاغ شده و از امروز روی دستگاه‌های نانینو در نانوایی‌ها اعمال شده است.
-بر اساس نرخ‌های تازه، قیمت نان لواش به دو هزار و ۷۰۰ تومان، بربری به ۱۰ هزار تومان و سنگک به ۱۵ هزار و ۵۰۰ تومان رسیده است.
-محمدجواد کرمی، رئیس کارگروه آرد و نان اتاق اصناف ایران، نیز افزایش قیمت نان را تایید کرده است.
-در ورامین نیز رئیس اتحادیه نانوایان از افزایش ۹۰ تا ۱۰۰ درصدی قیمت نان خبر داد.
-بر این اساس، قیمت نان لواش از هزار و ۴۰۰ تومان به دو هزار و ۷۰۰ تومان، تافتون از دو هزار و ۳۰۰ تومان به چهار هزار و ۵۰۰ تومان، بربری از پنج هزار و ۳۰۰ تومان به ۱۰ هزار تومان و سنگک از هفت هزار و ۴۰۰ تومان به ۱۵ هزار و ۵۰۰ تومان افزایش یافته است.
-مسئولان صنفی افزایش هزینه‌های تولید، از جمله دستمزد کارگران، خمیرمایه، حمل‌ونقل و اجاره‌بها را دلیل این افزایش قیمت عنوان کرده‌اند.
-رئیس اتحادیه نانوایان ورامین نیز گفته است اصلاح قیمت‌ها با هدف ادامه فعالیت نانوایی‌ها و حفظ روند تولید و عرضه نان انجام شده است.
-این افزایش قیمت در حالی اعمال شده است که نان از مهم‌ترین کالاهای مصرفی خانوارهای ایرانی محسوب می‌شود و در برخی اقلام، نرخ‌های جدید نسبت به قیمت‌های قبلی نزدیک به دو برابر شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76615)
 
 ---
 
