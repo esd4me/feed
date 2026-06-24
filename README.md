@@ -3,11 +3,24 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
-<img src="https://cdn1.telesco.pe/file/gUrakz-VmyDgxzbcg4kpaIGZX2ukxQVsF7EhIw674qeNsoamcS1ysiiVFGXcJtfGRX4KJc5ZIX6H0uLrsrzQlmJwsN4zo1F4QXg8f5-hqlw6q_zkE5IIfy_FER_1ZRNrNN_QBGL5HZW0jRYEvYKqAs5PmP6LZFZmgokkZNUpZ1U3MWVjo1LPOEKGxKMmf9si0lmsYG56ih3F48i6fIrPbZoZRrmYfCTQpvitOfHL2_roMC3s4JUDOr7juw4pXNodDtNKMFFKdi3OPCN_nuToS8LOyKcG_QMYlHHvyeMYR3OonUKp14rQjMzMT_npfYq4Fu0VaaVbvInbaqSmXLGvKg.jpg" width="400"><br>
 
-پست ترامپ  در واکنش به تصویب طرح توقف جنگ در سنا
+
+ویدیویی که ترامپ پست کرده
+متن صدایی که ازش شنیده میشه به تشخیص ماشین:
+از سال ۱۹۷۹، زمان می‌گذرد.
+ایران در ۴۷ سال گذشته هر سال آمریکایی‌ها را کشته است.
+۱۶۰ گروگان کشته شده‌اند.
+۱۸۰ حمله از سوی ایران به آمریکایی‌ها.
+رؤسای جمهور پیشین با سازش با ایران، ۱.۷ میلیارد دلار نقد به آن پرداخت کردند و در حالی که ایران به دنبال سلاح هسته‌ای بود، از اعمال تحریم‌ها خودداری کردند.
+این می‌تواند ۱۱ بمب هسته‌ای یا موشکی بسازد که به زودی ممکن است به خاک آمریکا برسد.
+تولید قریب‌الوقوع یک سلاح هسته‌ای آن‌قدر نزدیک است که آرامش‌بخش نیست.
+ایران چه زمانی به سلاح هسته‌ای دست خواهد یافت؟
+هرگز.
+متشکریم، رئیس‌جمهور ترامپ.
+realDonaldTrump
+پست دیگری که در واکنش به تصویب طرح توقف جنگ در سنا نوشته:
 ترجمه ماشین: بنابراین، من ایران را در گوشه رینگ گیر انداخته‌ام، آماده زمین خوردن، حاضر است عملاً هر چیزی به ما بدهد، و برای نخستین بار در دهه‌ها، حسابی برای ایالات متحده و رئیس‌جمهورش، یعنی من، احترام قائل شده؛ آن‌وقت سنای آمریکا تصمیم می‌گیرد رأی‌گیری بدزمان‌بندی‌شده و بی‌معنایی درباره قانون اختیارات جنگی برگزار کند و به حامی شماره یک تروریسم در جهان بگوید که ایالات متحده کاری را که من با آن‌ها می‌کنم دوست ندارد و من باید متوقف شوم، و با این کار به دشمن کمک و آسایش رسانده است.
 چهار بازنده جمهوری‌خواه همراه با دموکرات‌های احمق رأی دادند، و ایران از افراد من پرسید: «همه این‌ها یعنی چه؟»
 این سناتورها همین حالا کار مرا دشوارتر کرده‌اند، اما من آن را انجام خواهم داد، به هر طریق ممکن، چون من همیشه کار را انجام می‌دهم!
@@ -28,7 +41,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn1.telesco.pe/file/uy1PRZF35la-ISWsfmOcatoS2Rpf1ZbmlPtdPtOIMl485EFQV9UjVu4-ZvKTOkfECxwun5GPfKxRgfqNmh4T_pyga05TXrM9rZCHf9hzLNPyQw4fss4488oyA3zaGh2J_0KE4bp0rhzFaaYr7HubQqZQetOL_kvLY30kNlxd1B6jZtspXVXbr6jZywquDGgkZRPjcLaO1kInfE1-3W2IVaKkmmuVj9lv59EGjKf9lA9PWhTejmEXSsvdB5_eS8oSlft52yEwEI8vJkYJ5vXSqDh5uyBLNFeKhMJl7MJgW8U9STSe_hzpvmEpJvpCIMAvwU_IIpcHnT4Tegtysm_Bng.jpg" width="400"><br>
 
@@ -42,7 +55,7 @@ ProtesterCrow
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn1.telesco.pe/file/cTCJIrF9wK7X5NS8ybHCv-JLTbBhJAdwayCjaXgRn5dxGSg3n19xWrDHOM5q-yc78AFTbA7a2BLFeJLdxoPRiIROdo9fdaFS2HCIWXN5sugbqW6ttOwikLQ6B34ow6xRWISqLG9tBqbyrhV-G3Xp8Q8qzf9BsHJXaKZ18C4uni9KVEWIrosHQjUfwNZV27abC-tORZrt2G5-pgIbRZ4uxeXTNz7FTh_bEIoSO783HBTAufu5IHCTGhFhL56EW38kGz99qcwyMWNlEKRmTCFp3IjDgjdfCC7JVVYoeZHUzuFn-kJEvJzSFWxepg8cTUwhrR4B87aPyEDXjn1eA76GGg.jpg" width="400"><br>
 
@@ -71,7 +84,7 @@ ProtesterCrow
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 
 
@@ -91,7 +104,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 
 
@@ -106,7 +119,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn4.telesco.pe/file/ZU6HGrxDmNFeRCzW6scH7xwt-g-L1wObB0TseqmFoXRP3rCQUUEgpSYfltEEoKHAR-HTrVfAr2g-3keJtkhu0pwCXFDYna5dmKBed8l_vlSr9yQxUpVlGsWY0QyKzY10CU5rN10pcnYs4T20svX0I_xtik1QxlOtTSmf_J4hThzGInQaErBHakLmMqFBP4KbZoSix726Y3tvRhw0LRMRItbONAXI3XYgdtfKWQgocva5U0LrTH41AhuX6S6Up8z0FO8cWExw6XYeuLCG4VOZzcOP28kd-ZoPeHuoAdFq_7bay1CT5WsZ0_bdd8l_pm6SE0FbAyQOioewc-8UmN-kaw.jpg" width="400"><br>
 
@@ -125,7 +138,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 
 
@@ -167,7 +180,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn4.telesco.pe/file/AT2OlF8MVZmrcAuEzUGiBam3SLzpZId0e-2Gel7cxwnCPUrpDUFlH8tTVcvPrDSMh6-KwvFw2EtZsOyKNtdxhWAoUemLCwajmxFew73xUsiCsafYMXo64NpHNz4hL6DtkzvdmHIpnTxOFZnZQHJFJHKb1HEpcbHKZ2chZpQDNjXgoBkCyx67hB3raCPr2w_a1qIycblK5Uocl0x2X8VsZ6soERsC5zaGkAwgG0AEWXDWpaTdPgf7EkcbGZN5tfF0szTxgLRpT1br9ZjJT2uBYtkw3q0F7sbcuSK013GGwb7bmHx-VU6SngWZS7aui650SJIT_RX205dD3yteXr5PQw.jpg" width="400"><br>
 
@@ -186,7 +199,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn1.telesco.pe/file/Q-HsdfJkXlJ-7-9bzLHjsaixdOdtUP8VxQBDjhZRKnDFNgvPJK3oxD0QLadUlLDT_9CEuxcYUEvYlZbsH43mQCJJIj7Z9dgm2V9kY9B9dFvBeF9Re196ioh7dkt1ikselsfzdJHni3wcy6br4wYDToVFX6RT6fmkiPj47gEu94AweHLwmqzV6ZIegMmVvAA3BMM9gEfwsnlKxYnJPvIy7pGAhij4VN4ZuLIDPZuOua1lD40ebNGqtrhnkn9HiMBUQwxEmNoUjlXJTwZ9UPETYdPk8vAC7B4gKY6VJ-YReEND6hNfJKOpCjkGfbKJvKx8SOqQbTDnKDBkuQ0LPGac7g.jpg" width="400"><br>
 
@@ -215,7 +228,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 
 
@@ -234,7 +247,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn4.telesco.pe/file/i5_r044ELHUkDAcz2zJNWFGI7V5V_QsNL5PU-hJsK5fgA5dPoIrTgcwAUqrRbogjSXR8GOdMlNkhry4qJsbLjiwurjChblqTnn5q8OiJ7yp7aoaQeYImT3JBrnk12T9yyzSd9LyBBUyciAYvY7KcgGoDCqp5dX68eeOiDWp3fM41ZJO0AmknC_fozKptTrfO2ftrCpBqAL5xInvu7EliDxKc3nmH9gEYFLDnm5qOUyibKv6V_JTVIr92HcmG0aXYHW3QCaEIyhjXwW5TgKdSbRzuOhbGOAj89swftHk2M3oNIuKbqj1gx0b9-3r1gjaHFknkiOwotVA3ZmB26P7-5Q.jpg" width="400"><br>
 
@@ -260,7 +273,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn1.telesco.pe/file/bQDskjYqEcxnk7j0qSDxOgJS1wEuXQjyB75BD0zOeYaw-UTRnvOSQNWa2aqOFet_OukPyhvZLDCCSe8eoiqdNl5ARd0NMT8HFm484G2BKJAcycNkovSn85DyeXs8BxzvvorlprWz_J2BTL33o4naMXWfEnhHFn74FxB3GH0yiuryg-e7EsBbY-8xUxvh0QJthmmPYTujwm_j29uXld-nIK1Lz3q_hHPts24QsTU0AmdOqxw6GkILWXtyIMBPKbLAbRzk_y_v6Q5kFi4UKr_2r_mpTn0NXNXaieuvxg_s-lh0h6YE4965o9eRXQSzBoCSz1yS_H_eL9NlHQSYUU0-Lw.jpg" width="400"><br>
 
@@ -274,7 +287,7 @@ Gerduo
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn1.telesco.pe/file/Ja7m_jAkmLgNcoi0VpuFZAxG8JFXpI2U3TZWQEm1dRIm3tZt8ipQv3ywg8ax1NlmCGOol2FTKBtqhZ1Gv9Tq9ngD5OCDCrNPYFxilRRY9jEfL35z_7ma1a8Pfy2PRr_Jbdu_mGRESDpjhxxDzCfvlLNW3b5YtsdRYrtIl7nsEfH9ZR4AJL3ifoXcUTm_bu6Gb2crPBcxoSB-AZ0T50FnLjo0yJJra05C8JGg-Xf5xNTfQ7r2YKXZWP6cODZAyg32RsZQr_RZE8pp-Fo2ISE609MSEMxP65PBSE2ZYJkXKUDgz3hEqxN5iwQFDTImUyMN1nTKpLlwx1OB6gU6tbx_xQ.jpg" width="400"><br>
 
@@ -301,7 +314,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn4.telesco.pe/file/YP-pg3NvJtBzECsN9jI2iTUiUZ1KCu--TEff-BYcK57jjpdQYy1KGCjucXhyZf0e5rGId8FK7lAPY1kIR6zBp2ze620ECSd8fauQH3dyiEoX9piaGtPe_lEtRLQNFfpKWu8jFStbCPVfhuBCdmzHjEv9bxOWIRkeeFiLgIJ1qPxuJwon6CVJNCf_hFOObBzxfGK0P2HMDK-7z9Cul9EEsg6j_SBsanF0n5ZVACZUmC6V-OHFXZ2tkBbcwb5SUaw7RsIWm8UD0c_Zv36d-xlz2pemfVZTmXQkk8Gs3OaThxgIWUb5_00GWptuYX_nZ6sbunspuvG4TsDbX-Uuo1G0hQ.jpg" width="400"><br>
 
@@ -320,7 +333,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn1.telesco.pe/file/LYB3pXLkXO3ZcKd9UUDqzUprq-PJCSub0uHAXogsOBVd7UnobHyqr_gy12czqTv85agL3uj0EP6qA2ShZvD6M1gAGSA4zFql0H02PxIHNWuB1ra19Q7apWBm_kN3qt7am1aR8dG3ELWT5dcFwFqhNWPJFVU8Iteipf2j7iRJ7L-liDQe-ma6Icynud9c9FqNVyeHTL9egRkxndQnzJ0Zo1ZuAofPwd5wp4-siGJmfuXO1-a6IyA6HVZwz4-LanrEqri9rE80lL4nIlhRczEh0poquOubz3KxtjMidj_cHYSe-jeBPtJVSQkOSKxmF1MkArzfuE3DGUJ2VDeyqMLrcg.jpg" width="400"><br>
 
@@ -341,7 +354,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 08:10:37
+###### 🔵 Updated at: 2026-06-24 11:33:25
 
 <img src="https://cdn4.telesco.pe/file/F17QZvxP9UgBTWo2kE_ZMu-0Tm7OYRSq7egcjXGWprmIVfX9OHvYLFfz1wtOiJ4toDuVNOLhdWg9bXlxvHiGif6juh6jD5d9NMiimY_25xXRl-AD4SGUsRgTHnYULVnb2WqkgaQMdEg-mW6KuUTdJU9sgatmCV2ajlmyzhuvkca7c3iy0AJtjQ5OO7kPgm1RfWgZ4aCU-x2ByLGIA8ptAAiYRS1DpIyiadxHC_ADg81U5HmrooTfcpu7G78-45vqOjVbEEKJ56j_fGF2VWboj4STKO5gQuX8op7mXeyxYA-_9PrjayoqBaLGmLl636Tz-78vyy6CPzgrPcTlxe0g7w.jpg" width="400"><br>
 
