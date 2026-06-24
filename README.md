@@ -3,7 +3,82 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-24 21:17:27
+###### 🔵 Updated at: 2026-06-24 22:50:56
+
+<img src="https://cdn4.telesco.pe/file/vKz2-78gLyAnZBwN1w9tpHqb7j3JQPISY22IuwbtGaqqJYiWahkfHkxVQZ6IdGKU9uwE0J90zmgHePNjez6ccbDCJWHpo99CbmUmS4AUYfNY_Wm2z26F6DKYGh2RZ4_TTUumqVRCwZb-uxsfXBRPSn_3lpuE4qacdUQHReTfcyXU4hBCKDzV0AMOOREwCd-lvSdB8Ooo36W8pVsqG3ex-XSBUI4gX7Uv9gwpdruBOmgJrp2D6ZIxaAkzvH_macnGp9O07ObmitzaUkhmv2IZ3xYtsvUkkmTfJqQsZt2sMwEc9z03SFDAgysm_s1R-XAtIi2rSQkLS-ExK4B1HjuRpg.jpg" width="400"><br>
+
+به گزارش رویترز دولت دونالد ترامپ، رئیس‌جمهور آمریکا، قصد دارد طرح فروش ده‌ها موتور جت به ارزش صدها میلیون دلار به ترکیه را پیش ببرد.
+چهار منبع آگاه به رویترز گفتند که این کار با وجود مخالفت‌ کنگره صورت می‌گیرد. خرید این موتورهای جت تحولی مهم برای آنکارا پیش از نشست ناتو در ماه آینده است.
+این موتورها که تولید جنرال الکتریک هستند، نیروی محرکه قاآن، اولین هواپیمای جنگنده ترکیه، را تأمین خواهند کرد.
+ترکیه به عنوان عضو ناتو این پروژه بزرگ را در سال ۲۰۱۶ برای خودکفایی دفاعی بیشتر آغاز کرد.
+یکی از این منابع گفته است که این قرارداد بیش از ۷۰۰ میلیون دلار ارزش خواهد داشت و قرار است ظرف چند روز آینده نهایی شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76658)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-24 22:50:56
+
+
+
+مارکو روبیو، وزیر امور خارجه آمریکا:
+«هر زمان که وارد یک مذاکره می‌شوید، با یک روند بده‌بستان و امتیازگیری متقابل روبه‌رو هستید. این یک اقدام موقتی است؛ فقط برای ۶۰ روز در نظر گرفته شده است.
+در نتیجه آن، ما انتظار داریم آن‌ها به تعهداتی که در سوئیس پذیرفته‌اند عمل کنند. اگر به آن تعهدات پایبند نباشند، رئیس‌جمهور گزینه‌های زیادی در اختیار دارد.»
+USABehFarsi
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76657)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-24 22:50:56
+
+
+
+لحظه آزادی ملیکا ملک‌محمدی
+این نویسنده و دستیار کارگردان تئاتر نیمه‌شب ۲۵ دی ١۴٠۴ در پی اعتراضات مردمی، با یورش خشونت‌بار ماموران امنیتی به منزلش در تهران بازداشت شده بود.
+FattahiFarzad
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76656)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-24 22:50:56
+
+
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، روز چهارشنبه درباره روند مذاکرات با ایران اعلام کرد که تهران امتیازهای زیادی می‌دهد.
+او گفت: «ایران در حال دادن امتیازات بسیار زیادی است و ما با اختلاف زیادی در حال پیروزی هستیم.»
+او بدون بیان جزئیات بیشتر خطاب به خبرنگاران گفت خواهیم دید چه اتفاقی می‌افتد.
+دونالد ترامپ ساعتی پیش از این اظهارات در گفت‌وگو با شبکه خبری فاکس نیوز گفته بود بازرسان آمریکایی هم با بازرسان آژانس بین‌المللی انرژی اتمی از تاسیسات هسته‌ای ایران بازدید خواهند کرد.
+او در واکنش به اظهارات مقام‌های ایران در رد اجازه بازرسی به آژانس گفت: «آنها توافق می‌کنند، آن را کتبی می‌کنند، سپس می‌روند و می‌گویند که این درست نیست.»
+رئیس جمهور آمریکا بار دیگر تاکید کرد که جمهوری اسلامی با بازدید بازرسان آژانس موافقت کرده است.
+مقام‌های جمهوری اسلامی از زمان حمله آمریکا و اسرائیل به تاسیسات هسته‌ای فردو، نطنز و اصفهان مانع از بازرسی آژانس از این تاسیسات شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76655)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-24 22:50:56
 
 
 
@@ -23,7 +98,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 21:17:27
+###### 🔵 Updated at: 2026-06-24 22:50:56
 
 <img src="https://cdn4.telesco.pe/file/qQfGnVA4wzod2qFLvT-OUdVPO3KDmxxTj7n5FS3reDZVmGf0pCyZvD4LnknLpleVO5qrC9JOOSzjuiUb5anjK61iM2YWANd1Q8aBo1TOfk4D6NhvALNJc4-SxAnTeFTmzn2Oxd98OxbQDDSJRvPlkdwMM2OpHlltSiQD9aDQtSU-TRCoAd0MWuBBJTN2nh3igVFFYA4Avs5wK9QsrJr7ex_hpraSdnXvmkSx30htM6YK7NhvParBIpXaIct-Rdg3ZvCEzqZ0pKfKaxTFbPJP0u1fxoguWsF8XDGKF5tB5bO8bPHpTSY5xbeGw1d70TJsG624m7ttyjQWwv7B7kf9cw.jpg" width="400"><br>
 
@@ -42,7 +117,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 21:17:27
+###### 🔵 Updated at: 2026-06-24 22:50:56
 
 <img src="https://cdn4.telesco.pe/file/h9yvLlSBxY1QRrq8p-fDWVJB5-rwtbWXBkVLgOK3sE2568NHkgZfp16K2cZ88dX7AtpIuDv4fROvTIzlYFYo8P_n0u8d2c28mRKQJxyPQj0y5LG3F0n9tOxMSzEbMxwG0ulZvitcmX1_3bbTPRRFcrxB34uhjNTJw0h-M6tejhOxkqvg6FuAbk34Dy-2Zx6v1lcOHtf2_rG3Q2BkpBQeuFm8azRge9OsyP6-_GEe41AiYrE9E5k035fmrp25Fc3WBLgAyZOzgLAHQNHgaxnW3foLJMuGYC1uUjy5KcGMNDpuQ99CTf7_28sZtFKYvZRfdvVKmrTAv3Q1cfdrrS6lPQ.jpg" width="400"><br>
 
@@ -61,7 +136,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 21:17:27
+###### 🔵 Updated at: 2026-06-24 22:50:56
 
 <img src="https://cdn4.telesco.pe/file/aeeFagyyGtTyB1ikNWlrwxA5AQ-tlTBiwzdBF5I3YjC9YzpEQIxoXWfFU48PdCyNYWzQ0J8DdkczIlLwm36uhws3uTPuX9xueQUZxG8-U9rwp2z3LaUIoMGiBNvyl2_r9rbY6__eJqLpl-RKCv9H8qEHZFxGjY0MHdsNG-bYVdWOUq_Drrsl77YwHoAlHxVTOrxQFfewua38BJOFY69y27NIWo-_qyGBIbI0i3ARuuYmdB4YAL5tf61eRaX6nkOF38VZBU_u6gSuB4HVvgiL6DVYwedb3KZEWo6zhQ109BCIHd8_Xe6SbFWcIL15VCTkbe6YHGGx90qnnVc1wUzaqw.jpg" width="400"><br>
 
@@ -78,7 +153,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-24 21:17:27
+###### 🔵 Updated at: 2026-06-24 22:50:56
 
 <img src="https://cdn4.telesco.pe/file/ccVZqv7TX7COrys4NqnvU8YbG7VB44NWJ7hb5KN5DxQLvIGEolrfkvwOlXVoEYFSX_2mqYUFYgyOShZbcaWm2WfzHKLcMcNe37rqW4_SIBZ3uX4GafF2-YM-omYEDDKLvdVP8OgTLpWvhJPRX3ml3_lI4aoXoi_gl_-podlQAqnkH2kylbcNl6bWXIVrblWav2r3RXa2FFUsGil8nNfp5G_TbGtlQZiTDCJ5WY3YMMnlX7xbMiyydAbDxS4Acv_HzFktY5sZ6mo5z_mWRCdfIk6PZaHpyGHlwipZZJgoaUjLvgmf5SPU8j0ehSbcq4QGm6WSyzz0PpBCvNhNB5ql2g.jpg" width="400"><br>
 
@@ -96,7 +171,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-24 21:17:27
+###### 🔵 Updated at: 2026-06-24 22:50:56
 
 <img src="https://cdn1.telesco.pe/file/tm4Kq6pTj8J4I-KhNSu_JDv6KhKMpq35Sxw0doNWXoxgrJeAkvjuoH6spe2CqZQ362YhaEkto_AlChXjHCCnO8O9AMC8VCtSRWusDiqG6_JPB611941hwBuItB9QFAyVWMqqy0fKFRUPrVoGaibWoXVO6oIiu6Tg4CwtELdr6XwwmIrNXOfLhjrfXcUbApCEyycE_vXBAgoY2BI3WM7UCrWdvtgoTqvAauh4ycRoyNJLWHJDfJi2w9Q2WgRc4WtZnb-jQPdelTZWKaIehaDbOCslmZPZcjTYVeTLI_xpLJCpcIEojWGuGlz_p8tzdmsGKPRzCnWZgwwpHMSnW9rHwg.jpg" width="400"><br>
 
@@ -118,7 +193,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-24 21:17:27
+###### 🔵 Updated at: 2026-06-24 22:50:56
 
 <img src="https://cdn4.telesco.pe/file/BJxuK0lq1nNxLlR4DEjIBdKIF9Ijdidd8hTN3jYmLSJPR_38EIFWOAhBi2DI126q_z2D92B50vgCii7XNOuUUhgjXDVaXPG1MtWUmE-ypB4jNaoMAA3sXtF-a5TXGWKh6-n0px11PCh853s-M2tvRxuPBqd7nC3vdlqH7PxhIiymDuWDoHMvcLyJg_jmIQAcE8JJ51X1VwQvX6G-D3JkfmgRmKFFgY2xjPln6Z9kjfTJSPdHScAsYcNQjW4RlXtNiVPoLxtN6wyxTyGd5bMkLCkLCveiQC00x42hCNZF2kei63xL4GE_laUXPM8aFCHxVxkqX3ycL6TEEVCdca2nPw.jpg" width="400"><br>
 
@@ -132,107 +207,6 @@ https://www.iranrights.org/projects/protestmap/fa/
 @IranRights
 
 [View Post](https://t.me/VahidOnline/76638)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-24 21:17:27
-
-
-
-ویدیویی که ترامپ پست کرده
-متن صدایی که ازش شنیده میشه به تشخیص ماشین:
-از سال ۱۹۷۹، زمان می‌گذرد.
-ایران در ۴۷ سال گذشته هر سال آمریکایی‌ها را کشته است.
-۱۶۰ گروگان کشته شده‌اند.
-۱۸۰ حمله از سوی ایران به آمریکایی‌ها.
-رؤسای جمهور پیشین با سازش با ایران، ۱.۷ میلیارد دلار نقد به آن پرداخت کردند و در حالی که ایران به دنبال سلاح هسته‌ای بود، از اعمال تحریم‌ها خودداری کردند.
-این می‌تواند ۱۱ بمب هسته‌ای یا موشکی بسازد که به زودی ممکن است به خاک آمریکا برسد.
-تولید قریب‌الوقوع یک سلاح هسته‌ای آن‌قدر نزدیک است که آرامش‌بخش نیست.
-ایران چه زمانی به سلاح هسته‌ای دست خواهد یافت؟
-هرگز.
-متشکریم، رئیس‌جمهور ترامپ.
-realDonaldTrump
-پست دیگری که در واکنش به تصویب طرح توقف جنگ در سنا نوشته:
-ترجمه ماشین: بنابراین، من ایران را در گوشه رینگ گیر انداخته‌ام، آماده زمین خوردن، حاضر است عملاً هر چیزی به ما بدهد، و برای نخستین بار در دهه‌ها، حسابی برای ایالات متحده و رئیس‌جمهورش، یعنی من، احترام قائل شده؛ آن‌وقت سنای آمریکا تصمیم می‌گیرد رأی‌گیری بدزمان‌بندی‌شده و بی‌معنایی درباره قانون اختیارات جنگی برگزار کند و به حامی شماره یک تروریسم در جهان بگوید که ایالات متحده کاری را که من با آن‌ها می‌کنم دوست ندارد و من باید متوقف شوم، و با این کار به دشمن کمک و آسایش رسانده است.
-چهار بازنده جمهوری‌خواه همراه با دموکرات‌های احمق رأی دادند، و ایران از افراد من پرسید: «همه این‌ها یعنی چه؟»
-این سناتورها همین حالا کار مرا دشوارتر کرده‌اند، اما من آن را انجام خواهم داد، به هر طریق ممکن، چون من همیشه کار را انجام می‌دهم!
-رئیس‌جمهور DJT
-realDonaldTrump
-در واکنش به:
-سنای آمریکا که در اختیار جمهوری‌خواهان است، روز سه‌شنبه از طرحی قانونی برای توقف اقدام نظامی آمریکا علیه ایران حمایت کرد.
-سنا با ۵۰ رای موافق در برابر ۴۸ رای مخالف به این قطعنامه مشترک رای داد.
-این طرح پیشتر در اوایل ماه جاری در مجلس نمایندگان آمریکا نیز تصویب شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76637)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-24 21:17:27
-
-<img src="https://cdn1.telesco.pe/file/uy1PRZF35la-ISWsfmOcatoS2Rpf1ZbmlPtdPtOIMl485EFQV9UjVu4-ZvKTOkfECxwun5GPfKxRgfqNmh4T_pyga05TXrM9rZCHf9hzLNPyQw4fss4488oyA3zaGh2J_0KE4bp0rhzFaaYr7HubQqZQetOL_kvLY30kNlxd1B6jZtspXVXbr6jZywquDGgkZRPjcLaO1kInfE1-3W2IVaKkmmuVj9lv59EGjKf9lA9PWhTejmEXSsvdB5_eS8oSlft52yEwEI8vJkYJ5vXSqDh5uyBLNFeKhMJl7MJgW8U9STSe_hzpvmEpJvpCIMAvwU_IIpcHnT4Tegtysm_Bng.jpg" width="400"><br>
-
-ProtesterCrow
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76636)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-24 21:17:27
-
-<img src="https://cdn1.telesco.pe/file/cTCJIrF9wK7X5NS8ybHCv-JLTbBhJAdwayCjaXgRn5dxGSg3n19xWrDHOM5q-yc78AFTbA7a2BLFeJLdxoPRiIROdo9fdaFS2HCIWXN5sugbqW6ttOwikLQ6B34ow6xRWISqLG9tBqbyrhV-G3Xp8Q8qzf9BsHJXaKZ18C4uni9KVEWIrosHQjUfwNZV27abC-tORZrt2G5-pgIbRZ4uxeXTNz7FTh_bEIoSO783HBTAufu5IHCTGhFhL56EW38kGz99qcwyMWNlEKRmTCFp3IjDgjdfCC7JVVYoeZHUzuFn-kJEvJzSFWxepg8cTUwhrR4B87aPyEDXjn1eA76GGg.jpg" width="400"><br>
-
-سخنرانی ترامپ در پنسیلوانیا
-جملات مرتبط با ایران به تشخیص ماشین:
-ما به یک توافق صلح تاریخی با ایران دست پیدا کردیم تا درگیری در تنگه هرمز را پایان دهیم.
-راستی، دیروز ۱۹ میلیون بشکه نفت از تنگه هرمز عبور کرد. جای بسیار زیبایی است. این بیشترین مقدار نفت در تاریخ این تنگه است. هرگز چنین چیزی ندیده‌اید. به آن می‌گویند فوران نفت.
-مهم‌تر از همه، داریم یک چیز بسیار مهم را تضمین می‌کنیم؛ چون دلیل انجام این کار همین بود. من به همین دلیل این کار را کردم. ۹۹ درصدش برای همین بود: ایران هرگز سلاح هسته‌ای نخواهد داشت.
-اما یادتان باشد، این آسان نبود. ما ۴۷ سال رئیس‌جمهور و افراد دیگر داشتیم؛ کشورهای دیگر هم بودند. ما تنها کسانی نیستیم که هیچ کاری نکردند. آنها قلدر خاورمیانه بودند. حالا داریم ایران را بدون نیروی دریایی، بدون نیروی هوایی، بدون پدافند ضدهوایی، بدون توان موشکی، و بدون برنامه هسته‌ای باقی می‌گذاریم.
-ما آنها را بدون هیچ ظرفیت هسته‌ای باقی می‌گذاریم، و آنها با این موافقت کرده‌اند. و رابطه‌مان هم خیلی خوب پیش می‌رود، هرچند اگر اخبار جعلی را بخوانید، هیچ‌وقت نمی‌فهمید. فکرش را بکنید، اخبار جعلی.
-آنها ارتش ندارند، نیروی دریایی ندارند، نیروی هوایی ندارند، پدافند ضدهوایی ندارند. ما می‌توانیم هر وقت بخواهیم بر فراز تهران پرواز کنیم. هیچ‌کس کاری به ما نخواهد کرد. بعد اخبار جعلی را می‌خوانم که می‌گویند اوضاع آنها خیلی خوب است. اوضاعشان خیلی خوب نیست.
-اما اقتصاد ایران خرد شده و پایه صنعتی دفاعی‌شان چنان به‌شدت آسیب دیده که بازسازی آن سال‌های زیادی طول خواهد کشید. سال‌های بسیار زیاد. حالا ما داریم تلاش می‌کنیم به توافقی برسیم که منصفانه باشد.
-یادتان باشد، ما مجبور شدیم این مسیر انحرافی را برویم. مجبور شدیم سراغ ایران برویم. نمی‌شود اجازه داد آنها خاورمیانه و ما را منفجر کنند؛ اگر چنین چیزی ممکن باشد. ما زودتر به آنجا می‌رسیدیم، اما آنها اسرائیل را منفجر می‌کردند، کل خاورمیانه را منفجر می‌کردند. اگر می‌خواهید اقتصاد بد ببینید، آن اقتصاد بد است.
-یادتان باشد، نفت ما، در میانه این درگیری، از دوران جو خواب‌آلود بایدن هم ارزان‌تر بود. و ما داریم یک آتش را خاموش می‌کنیم. بایدن، کلینتون، بوش، همه‌شان، باراک حسین اوباما ـ اسمش را شنیده‌اید؟ اسم باراک حسین اوباما را شنیده‌اید؟ ـ هیچ‌کدامشان کاری نکردند.
-اوباما به آنها ۱.۷ میلیارد دلار پول نقد سبز داد، یادتان هست؟ با یک ۷۴۷. آنها انبوهی از پول نقد را با هواپیما بردند. ۱.۷ میلیارد دلار. صدها میلیارد دلار به آنها دادند و فکر کردند می‌توانند با رشوه آنها را به صلح بکشانند.
-تنها چیزی که آنها می‌فهمند همان چیزی است که این آقایان ردیف جلو می‌فهمند: چکش. چون اگر نگاه کنید به کاری که آنها کردند ـ به کاری که ما با ظرفیت هسته‌ای‌شان با آن بمب‌افکن‌های B-2 کردیم ـ آن یک چکش بود. در واقع اسمش را هم گذاشتیم چکش. عملیات چکش.
-دمبوکرات‌ها به نفع داشتن سلاح هسته‌ای توسط ایران رأی دادند. و علیه بودجه نظامی رأی دادند. اما من آن را دور زدم.
-ایران، ما آنها را از پا درآوردیم. در یک هفته، اساساً از نظر نظامی تمام شده بود. کشوری بسیار بزرگ‌تر، و با ایدئولوژی‌ای بسیار متفاوت. ایدئولوژی مسلمانان کمی با ایدئولوژی کاتولیک‌ها فرق دارد. ما کاتولیک‌ها و مسلمانان را داریم؛ کمی متفاوت‌اند.
-... ونزوئلا عالی بوده و ایران هم عالی بوده/خواهد بود، اگر عاقل باشند. وگرنه مجبور می‌شویم کار را تمام کنیم، که کمتر از یک هفته طول خواهد کشید. اما فکر می‌کنم آنها مشکلی نخواهند داشت. آنها کاری را که باید انجام دهند انجام خواهند داد، چون ما باید این کار را تمام‌شده ببینیم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76635)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-24 21:17:27
-
-
-
-آذر عظیما، خواننده پیشکسوت موسیقی ایران و از نخستین خوانندگان برنامه «گل‌ها»، در ۹۹ سالگی در اصفهان درگذشت.
-آذرمیدخت عظیما سراج‌پور که بیشتر با نام آذر عظیما شناخته می‌شد، متولد ۱۳۰۶ در اصفهان بود و فعالیت هنری خود را از سال ۱۳۳۳ با رادیو ایران آغاز کرد.
-نخستین اثر او ساخته‌ای از ابوالحسن صبا با شعری از ابوالحسن ورزی بود. او همچنین از نخستین هنرمندانی بود که در مجموعه برنامه‌های ماندگار «گل‌ها» حضور یافت و نخستین برنامه «یک شاخه گل» را با همراهی ویولن ابوالحسن صبا و سنتور فرامرز پایور اجرا کرد.
-آذر عظیما در طول فعالیت هنری خود آثار متعددی را در برنامه‌های «گلهای صحرایی» و دیگر برنامه‌های رادیویی اجرا کرد. قطعه «راه شیراز» از شناخته‌شده‌ترین آثار اوست که با ارکستر فارابی به رهبری همسرش، زنده‌یاد مرتضی حنانه، آهنگساز و رهبر ارکستر، اجرا شد.
-از آذر عظیما به عنوان نخستین بانوی آوازخوان اصفهان نیز یاد می‌شود. او روز دوم تیر ۱۴۰۵ در ۹۹ سالگی درگذشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76634)
 
 ---
 
