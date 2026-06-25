@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
 <img src="https://cdn1.telesco.pe/file/rfQSzeSaQabevMZLx3Rz_O4kqnPuNrmwMvgMZza8TxdykBShLdAO1ad6cn12OSSokWfuTmObzz_VPyGEVcdxPO0cDYKe1bAE4Njly_PvpXKneXNLQ63s3K53s03YCGmo1Y0DsM4DPy2GbezZKzRWapaNn6wSeqJbmes6J_ZAOOnKch7aCwLMr5okQFyJ5jj7YwQDekau4kpjZJIOMjrpzDwbvSIZlSI_UyZn407Fi7jC2afCk-hkNCfHaSzmbQA7IiDQ4NSPJcOCjP4ABGFhrMAlv6GTRLNDQGM8el4EOywSl7RHlxfYz3yiTJ_aZOko9wmdzBkb4wf58P2zQoz4ZA.jpg" width="400"><br>
 
@@ -32,7 +32,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
 
 
@@ -84,7 +84,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
 <img src="https://cdn4.telesco.pe/file/vKz2-78gLyAnZBwN1w9tpHqb7j3JQPISY22IuwbtGaqqJYiWahkfHkxVQZ6IdGKU9uwE0J90zmgHePNjez6ccbDCJWHpo99CbmUmS4AUYfNY_Wm2z26F6DKYGh2RZ4_TTUumqVRCwZb-uxsfXBRPSn_3lpuE4qacdUQHReTfcyXU4hBCKDzV0AMOOREwCd-lvSdB8Ooo36W8pVsqG3ex-XSBUI4gX7Uv9gwpdruBOmgJrp2D6ZIxaAkzvH_macnGp9O07ObmitzaUkhmv2IZ3xYtsvUkkmTfJqQsZt2sMwEc9z03SFDAgysm_s1R-XAtIi2rSQkLS-ExK4B1HjuRpg.jpg" width="400"><br>
 
@@ -104,7 +104,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
 
 
@@ -121,7 +121,7 @@ USABehFarsi
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
 
 
@@ -137,7 +137,7 @@ FattahiFarzad
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
 
 
@@ -159,7 +159,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
 
 
@@ -179,9 +179,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
-<img src="https://cdn4.telesco.pe/file/qQfGnVA4wzod2qFLvT-OUdVPO3KDmxxTj7n5FS3reDZVmGf0pCyZvD4LnknLpleVO5qrC9JOOSzjuiUb5anjK61iM2YWANd1Q8aBo1TOfk4D6NhvALNJc4-SxAnTeFTmzn2Oxd98OxbQDDSJRvPlkdwMM2OpHlltSiQD9aDQtSU-TRCoAd0MWuBBJTN2nh3igVFFYA4Avs5wK9QsrJr7ex_hpraSdnXvmkSx30htM6YK7NhvParBIpXaIct-Rdg3ZvCEzqZ0pKfKaxTFbPJP0u1fxoguWsF8XDGKF5tB5bO8bPHpTSY5xbeGw1d70TJsG624m7ttyjQWwv7B7kf9cw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/sNxVLDTnIx7tkjrRUtRtWWzASNqmXbWziJ-kFqaw78boGyAiz2e-s18-mruDdbfo1pIKv-gh0-mpFD-BEiJyf_KXY9pU4y163Rvx4s97VYBY5TH9sNNFdd1e7UJMlP_JHuvY9AE-e2JIcP711qw_FGcCf-_xYjqvBdnZqYTRtd_-ymlr61YcEhvuJb-COsgG0CqP7H8qhvHuDTIGm36Ir3PejyCI4yEMTYzQdgNkaZAv7FCK-jp6pQ5iLcXYYbRYQ0zeKd9KYQWrzlx2QRBgRCRnTpQX3-_uuLkWdrZFemMeDn5ZkF23lHFMfy74ZRsZfTjDA8MOJTg7pPFbW7e-PA.jpg" width="400"><br>
 
 وزیر خزانه‌داری ایالات متحده روز چهارشنبه گفت واشینگتن بر نحوه مصرف دارایی‌های آزاد شده ایران نظارت خواهد کرد و به همین منظور دفتری در دوحه، پایتخت قطر، برای نظارت بر این وجوه تشکیل خواهد شد.
 اسکات بسنت در گفت‌وگویی با شبکه خبری سی‌ان‌بی‌سی، تأکید کرد که درصد زیادی از دارایی‌های آزاد شده ایران برای خرید مواد غذایی و دارویی از آمریکا استفاده خواهد شد، حتی اگر ایران گفته باشد که نحوه مصرف این منابع را خودش تعیین خواهد کرد.
@@ -198,9 +198,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
-<img src="https://cdn4.telesco.pe/file/h9yvLlSBxY1QRrq8p-fDWVJB5-rwtbWXBkVLgOK3sE2568NHkgZfp16K2cZ88dX7AtpIuDv4fROvTIzlYFYo8P_n0u8d2c28mRKQJxyPQj0y5LG3F0n9tOxMSzEbMxwG0ulZvitcmX1_3bbTPRRFcrxB34uhjNTJw0h-M6tejhOxkqvg6FuAbk34Dy-2Zx6v1lcOHtf2_rG3Q2BkpBQeuFm8azRge9OsyP6-_GEe41AiYrE9E5k035fmrp25Fc3WBLgAyZOzgLAHQNHgaxnW3foLJMuGYC1uUjy5KcGMNDpuQ99CTf7_28sZtFKYvZRfdvVKmrTAv3Q1cfdrrS6lPQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BgzrSJYlJnjxyc3mRvS2GbYNGMrZDxQmfYJTyvI0EudDguZVLj_o1nw13yBBJGfldqdKWuDx0qqkq8iZ1HH71ezLNE876PcZFtI4UZW-4L6iM_Amxx1hhlJq-wERAgP21rQo-CqiriFL2yhQ4_oaGLfBR22diD47HXG5_ptTRJ3D3ND4ZZJ1IsxnQrR7SQqEdFhea0oIZFXmyWm9gi9Xfq4CnOL9y68XiJyWhvN5xEWonW_p_bMF1jJtlyobO2OCVWu0fuDt8xQATb2KxxwuH2XWSnT_ujMzwI2AzYcaMjAdmJpPjv775yb9VQhheuVktC-h41KkV_TxJVj4fSoddQ.jpg" width="400"><br>
 
 معاون وزیر خارجه جمهوری اسلامی اعلام کرد که دسترسی به تاسیسات مورد حمله واقع شده و مواد هسته‌ای صرفا در چارچوب توافق نهایی با آمریکا ممکن خواهد بود.
 کاظم غریب‌آبادی روز چهارشنبه در شبکه اجتماعی ایکس با اعلام این که در سوییس هیچ نشستی با رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی «علیرغم درخواست او»، برگزار نشد، نوشت: «هیچ برنامه‌ای نیز برای دسترسی به تاسیساتِ مورد حمله واقع شده و مواد هسته‌ای وجود ندارد.»
@@ -217,9 +217,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
-<img src="https://cdn4.telesco.pe/file/aeeFagyyGtTyB1ikNWlrwxA5AQ-tlTBiwzdBF5I3YjC9YzpEQIxoXWfFU48PdCyNYWzQ0J8DdkczIlLwm36uhws3uTPuX9xueQUZxG8-U9rwp2z3LaUIoMGiBNvyl2_r9rbY6__eJqLpl-RKCv9H8qEHZFxGjY0MHdsNG-bYVdWOUq_Drrsl77YwHoAlHxVTOrxQFfewua38BJOFY69y27NIWo-_qyGBIbI0i3ARuuYmdB4YAL5tf61eRaX6nkOF38VZBU_u6gSuB4HVvgiL6DVYwedb3KZEWo6zhQ109BCIHd8_Xe6SbFWcIL15VCTkbe6YHGGx90qnnVc1wUzaqw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/pLWfbmAarCj0Nuf253vgF7GVBivjUHsECqQQ7ephP9FYyJG_aIMN7lJDd6E53OFL2EoWLw_hsZokY5nN2fUxsdT309UZejLQIw65xTJ4wgpnRP95dbVAhVKN__cZOdOMPgYj6Nug1C1TvCP_XILDkGRJZtO6-x1f2m0g1IoRkma17MxM40YF9PD1qoKM717_aQKi8RpcicBMIrb7XlxfWpgpoKX5fd-659Nl5wew6uWToBpgeLikOsDuAlOVNsu_AKRxmNZYXyirW96s95tD7kM9sKpFIKCv9wJRHxR4PVEoTouqOPwOLwFsHKG7C-msmaydqVyaaFTH2DMwU7mXuA.jpg" width="400"><br>
 
 مارکو روبیو، وزیر امور خارجه آمریکا، روز چهارشنبه در دیدار با رئیس امارات متحده عربی در ابوظبی درباره تفاهم‌نامه ایالات متحده با ایران گفت‌وگو کرد.
 در بیانیه سخنگوی وزات خارجه آمریکا آمده که روبیو در دیدار با محمد بن زاند آل نهیان و دیگر مقام‌های ارشد اماراتی «درباره یادداشت تفاهم رئیس‌جمهور ترامپ با ایران، تلاش‌ها برای تضمین عبور کامل و ایمن کشتی‌ها از ‌تنگه هرمز و اهمیت صلح و ثبات در منطقه» گفت‌وگو کرد.
@@ -234,9 +234,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
-<img src="https://cdn4.telesco.pe/file/ccVZqv7TX7COrys4NqnvU8YbG7VB44NWJ7hb5KN5DxQLvIGEolrfkvwOlXVoEYFSX_2mqYUFYgyOShZbcaWm2WfzHKLcMcNe37rqW4_SIBZ3uX4GafF2-YM-omYEDDKLvdVP8OgTLpWvhJPRX3ml3_lI4aoXoi_gl_-podlQAqnkH2kylbcNl6bWXIVrblWav2r3RXa2FFUsGil8nNfp5G_TbGtlQZiTDCJ5WY3YMMnlX7xbMiyydAbDxS4Acv_HzFktY5sZ6mo5z_mWRCdfIk6PZaHpyGHlwipZZJgoaUjLvgmf5SPU8j0ehSbcq4QGm6WSyzz0PpBCvNhNB5ql2g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/vP5lPKOb2VioddVInMn2XV8-BHCPH2MnSLHOB-Cxh2Mr3dewvXp1WkKDS3C2WVTcjjJfmIJ-c8gYJBZzFNkpxSwrpaUkZFKjNteeCZzwLxm62EtMMIWKBv65BknKOv2s459Kq713uL3ELUW0o7gW3oHahMDJIGLY_k-qcpbKWgjMo46rC-SeaEEtd7cuPjInHx9G9Gcj3FmaTtUGNm720d7Upm0skJZ8wKZyVg-gBxT-v8avUSdJML_NQZ3b6dCU5MNX9TfJKnmtr8ISqhCok89oTU9NcFvpuNuUNnMjlIDNKvCWsEOzPDMjqjWOi0LDKTOxGgKT-wd_s-_QaY0x6w.jpg" width="400"><br>
 
 کامران غضنفری، نماینده تهران در مجلس، ضمن انتقاد از تداوم تعطیلی صحن علنی، به خبرگزاری ایلنا گفت که قالیباف طی چهار ماه گذشته بدون هیچ مبنای قانونی از برگزاری جلسات علنی جلوگیری کرده است.
 این نماینده مجلس، وجود مصوبه شورای عالی امنیت ملی برای تعطیلی مجلس را «دروغ» خواند و گفت تعطیلی صحن با هدف جلوگیری از مخالفت نمایندگان با روند مذاکرات و پذیرش آتش‌بس صورت گرفته است.
@@ -252,9 +252,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
-<img src="https://cdn1.telesco.pe/file/tm4Kq6pTj8J4I-KhNSu_JDv6KhKMpq35Sxw0doNWXoxgrJeAkvjuoH6spe2CqZQ362YhaEkto_AlChXjHCCnO8O9AMC8VCtSRWusDiqG6_JPB611941hwBuItB9QFAyVWMqqy0fKFRUPrVoGaibWoXVO6oIiu6Tg4CwtELdr6XwwmIrNXOfLhjrfXcUbApCEyycE_vXBAgoY2BI3WM7UCrWdvtgoTqvAauh4ycRoyNJLWHJDfJi2w9Q2WgRc4WtZnb-jQPdelTZWKaIehaDbOCslmZPZcjTYVeTLI_xpLJCpcIEojWGuGlz_p8tzdmsGKPRzCnWZgwwpHMSnW9rHwg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Lx_gLOdYjSFu3aMUIHNpaRpqIe5ct7zWkP6HCFZPaaq66Dmxh45pLTeenDY08e6Lv56gBPgNy1CM9TXtdVb8vI4vvqP661ZOg6LI0iIZlrbO3Uxx2lzuUkIIGNgvIGIpRxCh9grY9yW2qK18OSJ739kVEyVAQyer8O0xMIbrY0zivwtWhMlpOkHYUUrXFmzGK4_v_X9oeA5GK_lqqatu3YO7bEU8NeVFoAimF1wFELpjC2MinvT5nBuP6bHDeWC1eJPsUIwszaZnqeQBVZtoVWdH5RBNqHrWfmRMzJJuSAhXNuopnNMr-3mo50FivX2VNQMQme9DGpd6wY6c9Hzajw.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 ایران به آمریکا اطلاع داده است که، برخلاف گزارش‌های دردسرساز فیک‌نیوز، «هیچ عوارضی، هیچ هزینه بیمه‌ای، و هیچ نوع هزینه دیگری از هیچ‌گونه‌ای از سوی ایران برای کشتی‌هایی که از تنگه هرمز عبور می‌کنند مطالبه یا دریافت نمی‌شود.
@@ -274,9 +274,9 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-25 14:59:15
+###### 🔵 Updated at: 2026-06-25 17:07:38
 
-<img src="https://cdn4.telesco.pe/file/BJxuK0lq1nNxLlR4DEjIBdKIF9Ijdidd8hTN3jYmLSJPR_38EIFWOAhBi2DI126q_z2D92B50vgCii7XNOuUUhgjXDVaXPG1MtWUmE-ypB4jNaoMAA3sXtF-a5TXGWKh6-n0px11PCh853s-M2tvRxuPBqd7nC3vdlqH7PxhIiymDuWDoHMvcLyJg_jmIQAcE8JJ51X1VwQvX6G-D3JkfmgRmKFFgY2xjPln6Z9kjfTJSPdHScAsYcNQjW4RlXtNiVPoLxtN6wyxTyGd5bMkLCkLCveiQC00x42hCNZF2kei63xL4GE_laUXPM8aFCHxVxkqX3ycL6TEEVCdca2nPw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/dZamD-p2H5kCVPuy84_5g0d_tPAzZOGmlkCasRc1HLFyPLiGIPI7juQqP8PlMHACWGsU0xcNb8YiBdiDAWmzB-euln6eBKgnXcbtFRkZ3fdwNQs-YMLdqMzSx-e3ske-OyresxcvUDEJiJMIHl1qfkUs4UaTKGwZmSscCLx9nfB6KUThALGvONcwF28FmttigUYen1jRNYiNqPOiz6UmsITTG9C_KIvbiNTD6vgcMv2dhfSD3VCQy3H1GF_myWozUiGOORKrmBzGsagj8KQoNQqLDopPCUDGq2jUHqxqX7Cmd3zOfrl_1coVCfG5KotJNAKNqZUY0KDD1_R0R4JcTA.jpg" width="400"><br>
 
 ‏
 🔴
