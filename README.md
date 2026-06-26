@@ -3,7 +3,26 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
+
+
+
+مذاکره‌کنندگان ایالات متحده، اسرائیل و لبنان پس از پنجمین دور از گفتگوهای دیپلماتیک، روز جمعه پنجم تیرماه، یک چارچوب سه‌جانبه را امضا کردند.
+این مذاکرات شامل بررسی پیشنهادی با حمایت آمریکا بود که بر اساس آن، نیروهای اسرائیلی بخشی از قلمرو تحت اشغال خود را به ارتش لبنان واگذار کنند.
+پیش از آغاز این دور از گفتگوها، لبنان خواهان خروج کامل نیروهای اسرائیلی از خاک این کشور بود؛ در حالی که برای اسرائیل، شرط اصلی هرگونه عقب‌نشینی، خلع سلاح کامل حزب‌الله و دریافت تضمین برای بازنگشتن نظامی این گروه به مناطق مرزی است.
+روبیو در مراسم امضای این توافق‌نامه گفت: «این آغازِ آغاز است. کارهای زیادی در پیش داریم. امروز اولین قدم است و گاهی اوقات، اولین قدم سخت‌ترین قدم است.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76694)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 
 
@@ -15,9 +34,7 @@
 @
 VahidHeadline
 هم‌زمانی این زلزله با بازی برزیل و اسکاتلند در جام جهانی خیلی‌ها رو یاد فاجعه ۰۰:۳۰ بامداد پنج‌شنبه ۳۱ خرداد ۶۹ در استان گیلان انداخت که همزمان با بازی همون دو تیم در جام‌جهانی ۹۰ ایتالیا اتفاق افتاده بود.
-زمین‌‌لرزه‌ای که حدود ۴۰ هزار نفر رو کشت از جمله خیلی‌ها رو در فاصله چند متری
-من
-.
+زمین‌‌لرزه‌ای که حدود ۴۰ هزار نفر رو کشت.
 📡
 @VahidOnline
 
@@ -27,7 +44,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn4.telesco.pe/file/D8qihro49aoK1z5CB0KzsFUDsexOqAbgeHDuG57g0l8Gep9Vw2TDW91vaEaugSPYi2iUCeV6pW2SL9ixMpXU7omTEb4Om6UD4fBKQ__fVROcQ_u2O5eyEczbYuPtd1zvcfHIf-NMNp36zM3IGoKzTvc_WOQS8S-L_qSf8M2EMIwGhAV46Z5BGQm3cAd6jSbMTpXLXJ--yZuIWsyM87Y5HzuU0otkR8HKjrM5eWqhpohOUV1pgmzLoCL8tsfBo26RWJnjNrryyaIZAQm-dDsIyNuUwWbx3kZX2kCdi-vB8-CmsrK3yJeS5m9nPQgI2Ylm5iXvWKqWQaX9FNpAx6G2YQ.jpg" width="400"><br>
 
@@ -46,7 +63,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn1.telesco.pe/file/QhIB_yHg41cYSQ9Xfa9XCFJFq5iPPkqJ5jy43Ax95FIiJ5iEPdT4KaoiiKi4sCumkHMfPzfU3ddxkuPYvKkZWzKzYHc_M0-uuex7aKcLOcrVwoBSLNfd_JCKUPlt_wjSkuF0d-u1OGVetGJtD4-VKNOg1PuAmru637t9Xu_u0ob3E0gTElo0RqJUGoh_eZql1Rp8yRzmEJLZodubDojHyadvKsFFPxVNmuJSpmcRVr3ra97rmU7ndsDJvSHpZPw0Oj0OZUmFgnzuaAsemhmdriT59SJ_cPoc07k0cc5lBD2PUnCeOYww3pnEz881pNAugiwX7p-FlJNtAElUWSHrmA.jpg" width="400"><br>
 
@@ -66,7 +83,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn4.telesco.pe/file/jKsQ9KD0rZMlk9JVfVQPqbkxCdgJCalkMA1_bPrCz1uSrW96LZmsoHk8mEiUP493EV6j8b5NteFN79AseyOzp75l00vLDfDsyJom7heGyTPwmxiRLwJpFDn1nLrJ_I5rWl8vTuRLmXS4WDdiqz44R_tcerSfioWqgPsdv0fhKMatB8xZqHmBMF8Rs0ubpL4UkogD_z4T-aMuHv7WPZJxBMLCsmSfocJsQCG7hEPkE6Oq5Lm-7bECTnnWfzzJSD1kDqRGL1li_MBHGGIbzKPPiOQ9njI6jDEQ_K0zRWZxHZTYh0HZxr6GK_iesJidlTlSBZX3YG_w9_Xb3Eklh8e0KA.jpg" width="400"><br>
 
@@ -85,7 +102,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn1.telesco.pe/file/iwkZj25bdwDmGy9ifDAAbnOIQMlltiyxmCwtOjvkUNlCpPVdZ9o_A09UUmQVFybE9yl9m2jI5Bt7A8dfdIMtcF7iQ_g9ghE3NBTZK71YQrGIwnUciluk5IOHATzpCjSH6QBPkDhQgfKZCE9m8JyAqtan8XQEqse2e4qi6if2kLf4Hw0674qUFy9r_Dt8j69pfjTtqaxq_CeNA-ckjeA90FDZVe47Gthsvpr5eSn6dZvRV2QIU9Yz0fBcEvELp9thngJlpdRwNniRhp_192iPpu0s61Ia5_eiK_3B3KAjUz--fu-kL9i1gPHNwIY1YIqe_j-PJg_ZDEYr9rrrLENgsg.jpg" width="400"><br>
 
@@ -109,7 +126,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn1.telesco.pe/file/Tbgx3OKqAHi5mLDnCb53LeuNYfHxVoGFe7WkN_aIwUSGA2E4wwoyYZREWJ1-WxpvC-4LvjmS0ZXlLXcLNpN0NQSDJ1kqdI5KjJSedUP8Vx7NQFCr35WwiiVSU_8Zdr52AA8prvX9TW6Dc9B9Q27_JcMfNtiHkSmtNaq-v0gH7eub9doWBawtjeMB7t6M3cVOzd6Wtk-d1IkLoD81RFOPyy66irSBv43sQuE36IlAbwSEn8LVANa4GhYY0HEjwbZjxjd-cd7E5mf8gr_ZLMAGdyi-Tbn6REYNOd43gYxQBU-orHB3ecPeQ67PT0LRCUAbs8seRyL7O38ZvaWKEz7uiw.jpg" width="400"><br>
 
@@ -133,7 +150,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn1.telesco.pe/file/Dri4-dFt9TiBab3k2DLPPPBlRoMT6HhTJPtLERi4ToUS5gsOVxysno8PwbTVgmt8KxptJL21xBsnukVxVyXJzjUka1PoLDDJh2S_DO-xjp--u-Vb3SJ6iqHnh2qKgVWaf-cBiufajAoLrX_ccLuzG8_jDqSQCeWiAytlCsVFMABDLEqbw9n9c60JrqvsS2tM47rltWtPMZiJJaCX8mSiiDOEEZzIOw1x3EF3rBogOvvFSoaytHMCOpmy-9Ke2KOeOUoCnW4OI4PVFoMFAkOg9HjWzgfYplrhfKOSpKyXmWs7VhsPUooHfqgyi6IajKQziNoxJMrLjsJXtxVsQ88IHQ.jpg" width="400"><br>
 
@@ -154,7 +171,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn4.telesco.pe/file/aapOBHnNC8ilb2F59TYAtxvCiHto4kLxg-T5XwfGYMQjIlj-oC9mS7Ace_vreJRvRGB5tB7RcEnF_Fa30DVj_WyHR3nPF1qfwP89WTdMjzgZlRqFJ8xsNxXT6HdKn-m2ygr2y-FfhAnFep-YskDl4BqSe-7pekH6k5gt4Sy17pTq7wl2TASOoySGKMITjE3vplhdaIcdtyh1zaUbo0J_N8cz8tcKZJ_O-cg-KM5L1HqpfO3V3H41h7TlLD9Wa693GurLzDIMiJ_bPxmGCbTc9lj8Ckw1bcsMNaAlntUZ_Ghh0gLTH6cnFM9frf9SKJvfhIsg3O-Fqns1uQ0E0vZ_CQ.jpg" width="400"><br>
 
@@ -173,7 +190,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn4.telesco.pe/file/NpPGOFYT3Fu23WnBXZT3DdmO3FSF1OS4FF2kGD3X70TbORTBceHScXntc9gs90FOJcBj1ayKFHEpObHUiq2Lyl2rqaFittLI1sOrXau-42eHBWJioWljoiV7GvhSxkxeF-j0uFwwICd5W9zK0HJAXpkTm4txfugdfEBYOcV0g1TDYXhEtT_SOAPFdetq49JNq5viBlQuuIL47chVoL3BNKyJ67KTDMQWKrNShdLPIzIVUKYEX52exuCXc3eX4BLANf1neVpThZtFos1j8whIL3KsoM7fGeBJrxssFnNdLV_RjZTyB6etIDhX0Ah1sS13MM6zgCTuGOokd5hg5_Botw.jpg" width="400"><br>
 
@@ -193,7 +210,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 
 
@@ -205,7 +222,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 20:03:02
+###### 🔵 Updated at: 2026-06-26 21:42:45
 
 <img src="https://cdn1.telesco.pe/file/cDDct-XtLP3GTXUYFXOnt8yj3N4Uc7KLFkzxh4tWnHSzT-RqicfUjkLRnwKVeP88lMD_tLAAPaq79i44KrkQ3Lq54WoHt5B7SD1MmZj0aNW6161DKWRXAb55GKULoOdGpYpCS7DEEAdwd3j_SCJOZ8gEpL3cXcu8fltMsvnCgCDHqpQx3wNbDNMWVHnCXjlF9hFe4rdX0m7WkcHKTKTWRXGj7BerkFWQnEvMnlwiWE0gSpE-u9z7h-w4gcxx9WyTvl9r3ngao-ey0cE0Y-od55041ocT8UFjnF2hZswDZ_3SniBmnPN76ukexJBwfewbelDMVjXHyV0mNEp2bbL9Cg.jpg" width="400"><br>
 
