@@ -3,7 +3,26 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
+
+
+
+یک روز پیش از دیدار تیم‌های فوتبال ایران و مصر در مرحله گروهی جام جهانی ۲۰۲۶، فیفا روز پنجشنبه چهارم تیرماه اعلام کرد تماشاگران می‌توانند پرچم‌های رنگین‌کمان را به ورزشگاه محل برگزاری این مسابقه در سیاتل وارد کنند.
+پیش‌تر، فدراسیون فوتبال ایران از فیفا خواسته بود از برگزاری هرگونه مراسم یا فعالیت تبلیغاتی مرتبط با گرایش جنسی و هویت جنسیتی در دیدار ایران و مصر جلوگیری کند. این درخواست پس از آن مطرح شد که کمیته محلی برگزاری جام جهانی در سیاتل این مسابقه را «بازی افتخار» (Pride Match) نام‌گذاری کرد چون هم‌زمان با «هفته افتخار» (Pride Week) برگزار می‌شود.
+ایران و مصر پس از قرعه‌کشی با این عنوان مخالفت کرده بودند. همجنس‌گرایی در هر دو کشور جرم‌انگاری شده و قوانین کیفری برای آن وجود دارد.
+فیفا در بیانیه‌ای اعلام کرد جام جهانی رویدادی فراگیر است و پرچم‌های رنگین‌کمان و دیگر نمادهای مرتبط با گرایش جنسی و هویت جنسیتی، به‌عنوان نمادهای حقوق بشر، اجازه ورود به ورزشگاه‌ها را دارند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76670)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn1.telesco.pe/file/sGUQIMxXTUMqnmt2EpcahKQGAFdE_Jbd3Ne-l7ojiq7C8Lv8SCjThH3NICZhEYCCSKrSqHJ6uKW6wwtf7_mAq_GbwdYrW_O7aqF7K1aspJn4xK3xy3WfZXOg8ThZB_E-JXUgL4VP4EK7JGY6dsafCPuZ8VGN5Y18xzxWmDIuG_fd07LjnyjBCkfqTq6y-3l3b1usbW8dCZVN_45zjSq61W4Q0sDcoxl9aNECJ_kf5T0K3Zz-zmdK-DJh5kgJwhXtGLGBJemaEY1L-hbgA-ucVRh1l9lsc2PW4UZffNlVMi3-xhSZ0dv0jIDZbzugldrCXFSZDCIIyUx0gsJx9d55AA.jpg" width="400"><br>
 
@@ -12,7 +31,7 @@
 ترجمه ماشین: یک مقام آمریکایی به CNN گفت یک کشتی باری روز پنج‌شنبه در تنگه هرمز هدف حمله پهپادی ایران قرار گرفت؛ حمله‌ای که باعث توقف عملیات تخلیه هزاران دریانورد از کشتی‌هایی شد که از زمان آغاز جنگ در خلیج فارس گیر افتاده‌اند.
 این مقام آمریکایی جزئیات بیشتری درباره این حمله ارائه نکرد. ایران مسئولیت آن را بر عهده نگرفته است.
 سازمان عملیات تجارت دریایی بریتانیا روز پنج‌شنبه اعلام کرد که یک کشتی باری از سمت راست خود با یک پرتابه ناشناس مورد اصابت قرار گرفته و پل فرماندهی آن آسیب دیده است. بر اساس این اطلاعیه، ناخدای کشتی گزارش داده که هیچ تلفات جانی و هیچ پیامد زیست‌محیطی در پی نداشته است. مقام‌ها در حال بررسی هستند و به کشتی‌ها توصیه شده با احتیاط عبور کنند و هرگونه فعالیت مشکوک را گزارش دهند.
-CNN برای دریافت نظر با کاخ سفید تماس گرفته است.
+‏CNN برای دریافت نظر با کاخ سفید تماس گرفته است.
 توقف عملیات تخلیه چند روز پس از آن صورت می‌گیرد که سازمان بین‌المللی دریانوردی (IMO) اعلام کرد توافقی میان ایالات متحده و ایران راه را برای تخلیه بیش از ۱۱ هزار دریانورد گرفتار در منطقه خلیج فارس باز کرده است.
 آرسنیو دومینگز، دبیرکل IMO، در بیانیه‌ای گفت: «پس از آغاز طرح تخلیه IMO، که طی آن چندین کشتی تاکنون با موفقیت تخلیه شده‌اند، تصمیم گرفته‌ام اجرای آن را موقتاً متوقف کنم تا دوباره اطمینان حاصل شود که تضمین‌های ایمنی لازم همچنان برای کشتی‌های موجود در فهرست تخلیه ما و همه کشتی‌های حاضر در منطقه برقرار است.»
 او گفت از حمله‌ای در روز پنج‌شنبه در دریای عمان به یک کشتی که از تنگه هرمز عبور کرده بود مطلع شده است و افزود که آن کشتی تحت چارچوب تخلیه IMO فعالیت نمی‌کرده است.
@@ -33,7 +52,7 @@ cnn
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 
 
@@ -57,7 +76,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn4.telesco.pe/file/NR-EOjyiuv9uB8zu5-FCZiEUf_WchAWBK6S74J5tE6257va03ijFvqmzWsOPhNU_-w6jS2qjZKhOhS-8tUpleIBkgh1gAyEphawqDKv9ExeaZZ7vvLFv7kh2wC9NkIq18-NtDjdK8ttTy0DJlaxLnmoOWSviGknVL86U5MEJs3AfkBYYk50y85fuvxWLrKddU5T6Ruo-Go6efIMFS93y9yyMJ7p_L3PugItqSHMoHeeGH2vZpLVYr9Hi9YXDxl24d0wFZ6qJzYQ8Z2gTeEIhOZWpBXJglvPlPtNQ-EdrLLfWn44SgVBFDEHBjbW800BMRlfTW3wy2GaJmC4C2u3mPQ.jpg" width="400"><br>
 
@@ -74,7 +93,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn1.telesco.pe/file/KB2t251ILoC3Wc3cK-3gOwnin4VfFsnNJHA-em9Qq1W9YggxrWfVPN0rv8c5Dw23nfEk5QAv7cEEqajSHf2CAg1_UbGg8XJu_tbsQ_G2Yy-YZc6foqbJtohCfBKj1ZoODntp8m4u8qduHZR3YIuwVmhkq9lGBXY1ffUwkyM8SRYJMPlqpNHQTdrvHZAnhdWuOk-8Yvji4ciKpTq64xwtxQxn2PMmEam0aOpk5rtdcaF57wEkNdSd5CoEmv20yXgzPcQJ2SU2ZVWyy0Z8smpg502BGfer1qvIbABa03Ujal-b0XRpjqRlXdv6kisuPx-vIE71sIWUbsvZcoSdld7CkQ.jpg" width="400"><br>
 
@@ -92,7 +111,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn4.telesco.pe/file/K8srkHCOK55tJkIal2pRh_dcg2zQEEAVfIaeCnQ41i8hT9kN_uljxApPailh2jT4ntrBf7Ts7rfXRKpITHz-c2WKORGeuvAE2vmofL24hlfb9e7Gh24-2Q7b59GjY7P2OC7t1gMMcQDNc1DnJQfCdAnNemlL2kGaUKnZ7F8HNmLd0qz-g2LXpBYNowZSIQ6hFdIAf-fiA6k8nmFS5RfATdKo6ZTa9Igg4RdNpu73i9A8Ne_6IQ1OH-vOFc0R4fH_nyKcgWuak1pNQkmSKMCz8b0KJys48QovQfWgDVByfHYnhqC45toXLX5V3yVuAg2XcwvMg3r6BY-1JfmLmDpCdg.jpg" width="400"><br>
 
@@ -111,7 +130,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 
 
@@ -136,7 +155,7 @@ https://telegra.ph/Rubio-06-25-4
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn4.telesco.pe/file/LllBxdqlaqbOD7lBHNwRVG3kfQbJD0N_DcsOk7_H954qDrxs5Iu4OoLfO-APmtSSS6yyCRG369yB73J3ZvFEInsDU1U0A-inV5yIROzT0WW5HnuIQha0sQTxGxQgih1Q_wCPMnTWPh0fBpHgUijqgUON5SNMh0Nt5zdaxrvAOvU6vwJeMp52EyDUKgxEZRCj0lDSfKy1UVXteqEGRG_47jiBzcIRCudcKjnzgJiTM3DEB1LNwtFmSONyWIkngkrKbDiSXcKFuqiPls3IiPutwOtP1hnQhOvLBYOfE2qyHpPd_ASIiweo7TW0-ueFl6yqLsLDfKGbaIX1t6f44nW7TQ.jpg" width="400"><br>
 
@@ -160,7 +179,7 @@ https://telegra.ph/Rubio-06-25-4
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 
 
@@ -180,9 +199,9 @@ sepideqoliyan
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
-<img src="https://cdn1.telesco.pe/file/rfQSzeSaQabevMZLx3Rz_O4kqnPuNrmwMvgMZza8TxdykBShLdAO1ad6cn12OSSokWfuTmObzz_VPyGEVcdxPO0cDYKe1bAE4Njly_PvpXKneXNLQ63s3K53s03YCGmo1Y0DsM4DPy2GbezZKzRWapaNn6wSeqJbmes6J_ZAOOnKch7aCwLMr5okQFyJ5jj7YwQDekau4kpjZJIOMjrpzDwbvSIZlSI_UyZn407Fi7jC2afCk-hkNCfHaSzmbQA7IiDQ4NSPJcOCjP4ABGFhrMAlv6GTRLNDQGM8el4EOywSl7RHlxfYz3yiTJ_aZOko9wmdzBkb4wf58P2zQoz4ZA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/kXg61VZ74acftTDlpcm9QFElmk8lQAgm4Dbcg7n4-DYuJ2P0Y3beiJLtE544vJoUggOJ8MFZQmSaz111XEVVPStg7pRoe-L0a_kL0Q2jkkvA5znCCFevANrDuG28mJLpdU4eqUx3jBUOODkvVa4MdGwE3Q-WWtFmVW4wykHAnU1-OVFRahhna0pq0mJULp6fBrIj9By6LlfiujBH4u3uo6xtOXfkcB6XpDDhufB9UwirvmL1O_O9CneiCnc-r7Rb9MdyytIu6lTrMStyKoVM1w2_PwjeyneViZtmTECPfFsIjV9ghFPZkUz0ojYF8m43PJoG6hq81Hlh694W6T-s_g.jpg" width="400"><br>
 
 سنای آمریکا با آغاز بررسی «قطعنامه اختیارات جنگی ایران» مخالفت کرد.
 ترامپ، پس از تغییر نتیجه رای‌گیری در سنای آمریکا درباره قطعنامه اختیارات جنگی ایران، از چند سناتور جمهوری‌خواه قدردانی کرد.
@@ -209,7 +228,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 
 
@@ -261,7 +280,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn4.telesco.pe/file/H3okoglNWK6mwTcNxx4WLTumrIFDHxaQnPqDsKF0lblWHlQZ5U-W32GRL7HwtNvXCgu_Qq-UW-g-6YS81fgHYHEk9xDmYIK5jisSjHPyQAY6jPEOqAONL3cOqFh1NXQ9F4O0PWx2Q2jhtRIwfpPpL71S9XrL1GWoY8Crulu4zutA93DOY7J7viob4pCMF2ZlS7n7gLD9zS8e-lTovoVxZ_bkPjOOsaTxPgkDw8snbeR5A6_SkGaX_Ov9yYVIcBxnUWKXO4Baryuy2otmEE1-BD4c_uSSygUL8BbHUkoL_gAgNXnL_Tu1ML-cRtDH1SlSGtgckSbkEt6qkBTUVerTvg.jpg" width="400"><br>
 
@@ -281,7 +300,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 
 
@@ -298,7 +317,7 @@ USABehFarsi
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 
 
@@ -314,7 +333,7 @@ FattahiFarzad
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 
 
@@ -336,7 +355,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 
 
@@ -356,7 +375,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn4.telesco.pe/file/sNxVLDTnIx7tkjrRUtRtWWzASNqmXbWziJ-kFqaw78boGyAiz2e-s18-mruDdbfo1pIKv-gh0-mpFD-BEiJyf_KXY9pU4y163Rvx4s97VYBY5TH9sNNFdd1e7UJMlP_JHuvY9AE-e2JIcP711qw_FGcCf-_xYjqvBdnZqYTRtd_-ymlr61YcEhvuJb-COsgG0CqP7H8qhvHuDTIGm36Ir3PejyCI4yEMTYzQdgNkaZAv7FCK-jp6pQ5iLcXYYbRYQ0zeKd9KYQWrzlx2QRBgRCRnTpQX3-_uuLkWdrZFemMeDn5ZkF23lHFMfy74ZRsZfTjDA8MOJTg7pPFbW7e-PA.jpg" width="400"><br>
 
@@ -375,7 +394,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn4.telesco.pe/file/BgzrSJYlJnjxyc3mRvS2GbYNGMrZDxQmfYJTyvI0EudDguZVLj_o1nw13yBBJGfldqdKWuDx0qqkq8iZ1HH71ezLNE876PcZFtI4UZW-4L6iM_Amxx1hhlJq-wERAgP21rQo-CqiriFL2yhQ4_oaGLfBR22diD47HXG5_ptTRJ3D3ND4ZZJ1IsxnQrR7SQqEdFhea0oIZFXmyWm9gi9Xfq4CnOL9y68XiJyWhvN5xEWonW_p_bMF1jJtlyobO2OCVWu0fuDt8xQATb2KxxwuH2XWSnT_ujMzwI2AzYcaMjAdmJpPjv775yb9VQhheuVktC-h41KkV_TxJVj4fSoddQ.jpg" width="400"><br>
 
@@ -394,7 +413,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 05:21:58
+###### 🔵 Updated at: 2026-06-26 09:27:10
 
 <img src="https://cdn4.telesco.pe/file/pLWfbmAarCj0Nuf253vgF7GVBivjUHsECqQQ7ephP9FYyJG_aIMN7lJDd6E53OFL2EoWLw_hsZokY5nN2fUxsdT309UZejLQIw65xTJ4wgpnRP95dbVAhVKN__cZOdOMPgYj6Nug1C1TvCP_XILDkGRJZtO6-x1f2m0g1IoRkma17MxM40YF9PD1qoKM717_aQKi8RpcicBMIrb7XlxfWpgpoKX5fd-659Nl5wew6uWToBpgeLikOsDuAlOVNsu_AKRxmNZYXyirW96s95tD7kM9sKpFIKCv9wJRHxR4PVEoTouqOPwOLwFsHKG7C-msmaydqVyaaFTH2DMwU7mXuA.jpg" width="400"><br>
 
@@ -406,24 +425,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76650)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-26 05:21:58
-
-<img src="https://cdn4.telesco.pe/file/vP5lPKOb2VioddVInMn2XV8-BHCPH2MnSLHOB-Cxh2Mr3dewvXp1WkKDS3C2WVTcjjJfmIJ-c8gYJBZzFNkpxSwrpaUkZFKjNteeCZzwLxm62EtMMIWKBv65BknKOv2s459Kq713uL3ELUW0o7gW3oHahMDJIGLY_k-qcpbKWgjMo46rC-SeaEEtd7cuPjInHx9G9Gcj3FmaTtUGNm720d7Upm0skJZ8wKZyVg-gBxT-v8avUSdJML_NQZ3b6dCU5MNX9TfJKnmtr8ISqhCok89oTU9NcFvpuNuUNnMjlIDNKvCWsEOzPDMjqjWOi0LDKTOxGgKT-wd_s-_QaY0x6w.jpg" width="400"><br>
-
-کامران غضنفری، نماینده تهران در مجلس، ضمن انتقاد از تداوم تعطیلی صحن علنی، به خبرگزاری ایلنا گفت که قالیباف طی چهار ماه گذشته بدون هیچ مبنای قانونی از برگزاری جلسات علنی جلوگیری کرده است.
-این نماینده مجلس، وجود مصوبه شورای عالی امنیت ملی برای تعطیلی مجلس را «دروغ» خواند و گفت تعطیلی صحن با هدف جلوگیری از مخالفت نمایندگان با روند مذاکرات و پذیرش آتش‌بس صورت گرفته است.
-او ادامه داد: «نمایندگان هم از یکی دو ماه پیش از قالیباف خواسته‌اند که اگر چنین مصوبه‌ای وجود دارد، آن را به ما نشان دهید، اما او هیچ چیزی نشان نداده است. بنابراین، این ادعا کاملا کذب و دروغ است.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76649)
 
 ---
 
