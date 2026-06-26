@@ -3,7 +3,59 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
+
+<img src="https://cdn1.telesco.pe/file/cDDct-XtLP3GTXUYFXOnt8yj3N4Uc7KLFkzxh4tWnHSzT-RqicfUjkLRnwKVeP88lMD_tLAAPaq79i44KrkQ3Lq54WoHt5B7SD1MmZj0aNW6161DKWRXAb55GKULoOdGpYpCS7DEEAdwd3j_SCJOZ8gEpL3cXcu8fltMsvnCgCDHqpQx3wNbDNMWVHnCXjlF9hFe4rdX0m7WkcHKTKTWRXGj7BerkFWQnEvMnlwiWE0gSpE-u9z7h-w4gcxx9WyTvl9r3ngao-ey0cE0Y-od55041ocT8UFjnF2hZswDZ_3SniBmnPN76ukexJBwfewbelDMVjXHyV0mNEp2bbL9Cg.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+خود امارات الان مسیج زد که اشتباه سیستمی بوده
+هشدار دبی اشتباه بوده
+دبی ساعت ۵:۱۸ به مدت ۲ دقیقه آژیر زدن ولی گویا تست بوده
+اره فکنم دستشون خورده
+احتمالا تست پدافند بوده
+الرت دبی اشتباه بوده الان مسیج اومد برامون
+وحید جان دبی گفت آژیر قبلی رو نادیده بگیرید
+🤣
+دستشون اشتباه خورده بود
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76673)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-26 18:02:53
+
+<img src="https://cdn1.telesco.pe/file/a0mesFfMsbj_MFvRtSlOw0s-5g-TmYvG9oaVYQfqYaXDI8S0BZkCe9eEjokIvk4-sxyHn7iBTezGO0jO9lEyF5B9H0HLkvpqBoLXaURQNt0wWOS4ziX_6q6LcwFe4CocSI_wQLwqEp40FX7VRUqK536_P3pFhjBKCtm71OfV9Q4pBAylZ7-vWyPwjAZijTaRRdsqbC4o3JYvdG14_MDXzjVG_eyPcb_Hmihqgl7sJDFClwCLc0mtdgZhhWYWxfcc3bZiXikAsIOAK78yOPtOYNCShioTb0MDtzoLfS2qaG4m1iy76zssvvoZRnnbnv_BwcubTENi02sFo9aRbi1BMQ.jpg" width="400"><br>
+
+پیام‌های دریافتی الان:
+سلام وحید جان
+الان دبی برای ما آلارم موشک اومد
+سلام اقا وحید
+همین الان باز اژیر زدن
+نمیدونم کجای دبی رو زدند
+وحید جان همبن الان دبی آلرت موشک دادن
+ما امارات هستیم
+هشدار حمله موشکی بهمون دادن
+الان امارات دبی دوباره صدا آژیر اومد
+🫠
+البته خیلی کوتاه بود، و سریع گفتن اکیه
+وحید جان همین الان توی دبی برای همه آلارم حمله موشکی اومد
+منطقه جمیرا ۲، کایت بیچ ۲ بار صدای انفجار شدید از آسمون اومد
+احتمالا رهگیری بوده
+📡
+@VahidOnline
+آپدیت در پست بعدی
+
+[View Post](https://t.me/VahidOnline/76671)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 
 
@@ -22,7 +74,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 <img src="https://cdn1.telesco.pe/file/sGUQIMxXTUMqnmt2EpcahKQGAFdE_Jbd3Ne-l7ojiq7C8Lv8SCjThH3NICZhEYCCSKrSqHJ6uKW6wwtf7_mAq_GbwdYrW_O7aqF7K1aspJn4xK3xy3WfZXOg8ThZB_E-JXUgL4VP4EK7JGY6dsafCPuZ8VGN5Y18xzxWmDIuG_fd07LjnyjBCkfqTq6y-3l3b1usbW8dCZVN_45zjSq61W4Q0sDcoxl9aNECJ_kf5T0K3Zz-zmdK-DJh5kgJwhXtGLGBJemaEY1L-hbgA-ucVRh1l9lsc2PW4UZffNlVMi3-xhSZ0dv0jIDZbzugldrCXFSZDCIIyUx0gsJx9d55AA.jpg" width="400"><br>
 
@@ -52,7 +104,7 @@ cnn
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 
 
@@ -76,7 +128,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 <img src="https://cdn4.telesco.pe/file/NR-EOjyiuv9uB8zu5-FCZiEUf_WchAWBK6S74J5tE6257va03ijFvqmzWsOPhNU_-w6jS2qjZKhOhS-8tUpleIBkgh1gAyEphawqDKv9ExeaZZ7vvLFv7kh2wC9NkIq18-NtDjdK8ttTy0DJlaxLnmoOWSviGknVL86U5MEJs3AfkBYYk50y85fuvxWLrKddU5T6Ruo-Go6efIMFS93y9yyMJ7p_L3PugItqSHMoHeeGH2vZpLVYr9Hi9YXDxl24d0wFZ6qJzYQ8Z2gTeEIhOZWpBXJglvPlPtNQ-EdrLLfWn44SgVBFDEHBjbW800BMRlfTW3wy2GaJmC4C2u3mPQ.jpg" width="400"><br>
 
@@ -93,7 +145,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 <img src="https://cdn1.telesco.pe/file/KB2t251ILoC3Wc3cK-3gOwnin4VfFsnNJHA-em9Qq1W9YggxrWfVPN0rv8c5Dw23nfEk5QAv7cEEqajSHf2CAg1_UbGg8XJu_tbsQ_G2Yy-YZc6foqbJtohCfBKj1ZoODntp8m4u8qduHZR3YIuwVmhkq9lGBXY1ffUwkyM8SRYJMPlqpNHQTdrvHZAnhdWuOk-8Yvji4ciKpTq64xwtxQxn2PMmEam0aOpk5rtdcaF57wEkNdSd5CoEmv20yXgzPcQJ2SU2ZVWyy0Z8smpg502BGfer1qvIbABa03Ujal-b0XRpjqRlXdv6kisuPx-vIE71sIWUbsvZcoSdld7CkQ.jpg" width="400"><br>
 
@@ -111,7 +163,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 <img src="https://cdn4.telesco.pe/file/K8srkHCOK55tJkIal2pRh_dcg2zQEEAVfIaeCnQ41i8hT9kN_uljxApPailh2jT4ntrBf7Ts7rfXRKpITHz-c2WKORGeuvAE2vmofL24hlfb9e7Gh24-2Q7b59GjY7P2OC7t1gMMcQDNc1DnJQfCdAnNemlL2kGaUKnZ7F8HNmLd0qz-g2LXpBYNowZSIQ6hFdIAf-fiA6k8nmFS5RfATdKo6ZTa9Igg4RdNpu73i9A8Ne_6IQ1OH-vOFc0R4fH_nyKcgWuak1pNQkmSKMCz8b0KJys48QovQfWgDVByfHYnhqC45toXLX5V3yVuAg2XcwvMg3r6BY-1JfmLmDpCdg.jpg" width="400"><br>
 
@@ -130,7 +182,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 
 
@@ -155,7 +207,7 @@ https://telegra.ph/Rubio-06-25-4
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 <img src="https://cdn4.telesco.pe/file/LllBxdqlaqbOD7lBHNwRVG3kfQbJD0N_DcsOk7_H954qDrxs5Iu4OoLfO-APmtSSS6yyCRG369yB73J3ZvFEInsDU1U0A-inV5yIROzT0WW5HnuIQha0sQTxGxQgih1Q_wCPMnTWPh0fBpHgUijqgUON5SNMh0Nt5zdaxrvAOvU6vwJeMp52EyDUKgxEZRCj0lDSfKy1UVXteqEGRG_47jiBzcIRCudcKjnzgJiTM3DEB1LNwtFmSONyWIkngkrKbDiSXcKFuqiPls3IiPutwOtP1hnQhOvLBYOfE2qyHpPd_ASIiweo7TW0-ueFl6yqLsLDfKGbaIX1t6f44nW7TQ.jpg" width="400"><br>
 
@@ -179,7 +231,7 @@ https://telegra.ph/Rubio-06-25-4
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 
 
@@ -199,7 +251,7 @@ sepideqoliyan
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 <img src="https://cdn1.telesco.pe/file/kXg61VZ74acftTDlpcm9QFElmk8lQAgm4Dbcg7n4-DYuJ2P0Y3beiJLtE544vJoUggOJ8MFZQmSaz111XEVVPStg7pRoe-L0a_kL0Q2jkkvA5znCCFevANrDuG28mJLpdU4eqUx3jBUOODkvVa4MdGwE3Q-WWtFmVW4wykHAnU1-OVFRahhna0pq0mJULp6fBrIj9By6LlfiujBH4u3uo6xtOXfkcB6XpDDhufB9UwirvmL1O_O9CneiCnc-r7Rb9MdyytIu6lTrMStyKoVM1w2_PwjeyneViZtmTECPfFsIjV9ghFPZkUz0ojYF8m43PJoG6hq81Hlh694W6T-s_g.jpg" width="400"><br>
 
@@ -228,7 +280,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 
 
@@ -280,7 +332,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 <img src="https://cdn4.telesco.pe/file/H3okoglNWK6mwTcNxx4WLTumrIFDHxaQnPqDsKF0lblWHlQZ5U-W32GRL7HwtNvXCgu_Qq-UW-g-6YS81fgHYHEk9xDmYIK5jisSjHPyQAY6jPEOqAONL3cOqFh1NXQ9F4O0PWx2Q2jhtRIwfpPpL71S9XrL1GWoY8Crulu4zutA93DOY7J7viob4pCMF2ZlS7n7gLD9zS8e-lTovoVxZ_bkPjOOsaTxPgkDw8snbeR5A6_SkGaX_Ov9yYVIcBxnUWKXO4Baryuy2otmEE1-BD4c_uSSygUL8BbHUkoL_gAgNXnL_Tu1ML-cRtDH1SlSGtgckSbkEt6qkBTUVerTvg.jpg" width="400"><br>
 
@@ -300,7 +352,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-26 15:28:37
+###### 🔵 Updated at: 2026-06-26 18:02:53
 
 
 
@@ -312,119 +364,6 @@ USABehFarsi
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76657)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-26 15:28:37
-
-
-
-لحظه آزادی ملیکا ملک‌محمدی
-این نویسنده و دستیار کارگردان تئاتر نیمه‌شب ۲۵ دی ١۴٠۴ در پی اعتراضات مردمی، با یورش خشونت‌بار ماموران امنیتی به منزلش در تهران بازداشت شده بود.
-FattahiFarzad
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76656)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-26 15:28:37
-
-
-
-دونالد ترامپ، رئیس‌جمهور آمریکا، روز چهارشنبه درباره روند مذاکرات با ایران اعلام کرد که تهران امتیازهای زیادی می‌دهد.
-او گفت: «ایران در حال دادن امتیازات بسیار زیادی است و ما با اختلاف زیادی در حال پیروزی هستیم.»
-او بدون بیان جزئیات بیشتر خطاب به خبرنگاران گفت خواهیم دید چه اتفاقی می‌افتد.
-دونالد ترامپ ساعتی پیش از این اظهارات در گفت‌وگو با شبکه خبری فاکس نیوز گفته بود بازرسان آمریکایی هم با بازرسان آژانس بین‌المللی انرژی اتمی از تاسیسات هسته‌ای ایران بازدید خواهند کرد.
-او در واکنش به اظهارات مقام‌های ایران در رد اجازه بازرسی به آژانس گفت: «آنها توافق می‌کنند، آن را کتبی می‌کنند، سپس می‌روند و می‌گویند که این درست نیست.»
-رئیس جمهور آمریکا بار دیگر تاکید کرد که جمهوری اسلامی با بازدید بازرسان آژانس موافقت کرده است.
-مقام‌های جمهوری اسلامی از زمان حمله آمریکا و اسرائیل به تاسیسات هسته‌ای فردو، نطنز و اصفهان مانع از بازرسی آژانس از این تاسیسات شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76655)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-26 15:28:37
-
-
-
-به  پزشکیان دوباره بیل دادند، اگه شهباز شریف جلوش رو نمی‌گرفت فکر کنم تمام اسلام‌آباد رو درخت می‌کاشت.
-NR2OH
-مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، در جریان سفر خود به اسلام‌آباد به همراه شهباز شریف، نخست‌وزیر پاکستان، در مراسم نمادین کاشت نهال دوستی ایران و پاکستان شرکت کرد.
-ویدیوی منتشرشده از این مراسم نشان می‌دهد پزشکیان پس از قرار دادن نهال در محل کاشت، همچنان به بیل زدن و ریختن خاک اطراف آن ادامه می‌دهد؛ در حالی که شهباز شریف چندین بار با اشاره دست تلاش می‌کند پایان مراسم را اعلام کند.
-در این میان، لبخندهای شهباز شریف و ادامه بیل زدن پزشکیان توجه کاربران شبکه‌های اجتماعی را جلب کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76653)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-26 15:28:37
-
-<img src="https://cdn4.telesco.pe/file/sNxVLDTnIx7tkjrRUtRtWWzASNqmXbWziJ-kFqaw78boGyAiz2e-s18-mruDdbfo1pIKv-gh0-mpFD-BEiJyf_KXY9pU4y163Rvx4s97VYBY5TH9sNNFdd1e7UJMlP_JHuvY9AE-e2JIcP711qw_FGcCf-_xYjqvBdnZqYTRtd_-ymlr61YcEhvuJb-COsgG0CqP7H8qhvHuDTIGm36Ir3PejyCI4yEMTYzQdgNkaZAv7FCK-jp6pQ5iLcXYYbRYQ0zeKd9KYQWrzlx2QRBgRCRnTpQX3-_uuLkWdrZFemMeDn5ZkF23lHFMfy74ZRsZfTjDA8MOJTg7pPFbW7e-PA.jpg" width="400"><br>
-
-وزیر خزانه‌داری ایالات متحده روز چهارشنبه گفت واشینگتن بر نحوه مصرف دارایی‌های آزاد شده ایران نظارت خواهد کرد و به همین منظور دفتری در دوحه، پایتخت قطر، برای نظارت بر این وجوه تشکیل خواهد شد.
-اسکات بسنت در گفت‌وگویی با شبکه خبری سی‌ان‌بی‌سی، تأکید کرد که درصد زیادی از دارایی‌های آزاد شده ایران برای خرید مواد غذایی و دارویی از آمریکا استفاده خواهد شد، حتی اگر ایران گفته باشد که نحوه مصرف این منابع را خودش تعیین خواهد کرد.
-او بدون ارائه جزئیات درباره سازوکار نظارت بر مصرف این منابع گفت این وجوه توسط وزارت خزانه‌داری آمریکا در خاورمیانه نظارت خواهد شد.
-مفام‌های جمهوری اسلامی در روزهای اخیر با رد اظهارات مسئولان آمریکایی گفته‌اند نحوه استفاده از منابع آزاد شده در اختیار تهران است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76652)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-26 15:28:37
-
-<img src="https://cdn4.telesco.pe/file/BgzrSJYlJnjxyc3mRvS2GbYNGMrZDxQmfYJTyvI0EudDguZVLj_o1nw13yBBJGfldqdKWuDx0qqkq8iZ1HH71ezLNE876PcZFtI4UZW-4L6iM_Amxx1hhlJq-wERAgP21rQo-CqiriFL2yhQ4_oaGLfBR22diD47HXG5_ptTRJ3D3ND4ZZJ1IsxnQrR7SQqEdFhea0oIZFXmyWm9gi9Xfq4CnOL9y68XiJyWhvN5xEWonW_p_bMF1jJtlyobO2OCVWu0fuDt8xQATb2KxxwuH2XWSnT_ujMzwI2AzYcaMjAdmJpPjv775yb9VQhheuVktC-h41KkV_TxJVj4fSoddQ.jpg" width="400"><br>
-
-معاون وزیر خارجه جمهوری اسلامی اعلام کرد که دسترسی به تاسیسات مورد حمله واقع شده و مواد هسته‌ای صرفا در چارچوب توافق نهایی با آمریکا ممکن خواهد بود.
-کاظم غریب‌آبادی روز چهارشنبه در شبکه اجتماعی ایکس با اعلام این که در سوییس هیچ نشستی با رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی «علیرغم درخواست او»، برگزار نشد، نوشت: «هیچ برنامه‌ای نیز برای دسترسی به تاسیساتِ مورد حمله واقع شده و مواد هسته‌ای وجود ندارد.»
-او افزود: «این مباحث صرفا در چارچوب توافق نهایی و در نتیجه اقدام عملی طرف مقابل در خاتمه تمامی تحریم‌ها و... بررسی و تعیین تکلیف خواهند شد.»
-پیشتر گروسی اعلام کرده بود که سایت‌های غنی‌سازی هسته‌ای جمهوری اسلامی توسط بازرسان آژانس مورد بازدید قرار خواهند گرفت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76651)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-26 15:28:37
-
-<img src="https://cdn4.telesco.pe/file/pLWfbmAarCj0Nuf253vgF7GVBivjUHsECqQQ7ephP9FYyJG_aIMN7lJDd6E53OFL2EoWLw_hsZokY5nN2fUxsdT309UZejLQIw65xTJ4wgpnRP95dbVAhVKN__cZOdOMPgYj6Nug1C1TvCP_XILDkGRJZtO6-x1f2m0g1IoRkma17MxM40YF9PD1qoKM717_aQKi8RpcicBMIrb7XlxfWpgpoKX5fd-659Nl5wew6uWToBpgeLikOsDuAlOVNsu_AKRxmNZYXyirW96s95tD7kM9sKpFIKCv9wJRHxR4PVEoTouqOPwOLwFsHKG7C-msmaydqVyaaFTH2DMwU7mXuA.jpg" width="400"><br>
-
-مارکو روبیو، وزیر امور خارجه آمریکا، روز چهارشنبه در دیدار با رئیس امارات متحده عربی در ابوظبی درباره تفاهم‌نامه ایالات متحده با ایران گفت‌وگو کرد.
-در بیانیه سخنگوی وزات خارجه آمریکا آمده که روبیو در دیدار با محمد بن زاند آل نهیان و دیگر مقام‌های ارشد اماراتی «درباره یادداشت تفاهم رئیس‌جمهور ترامپ با ایران، تلاش‌ها برای تضمین عبور کامل و ایمن کشتی‌ها از ‌تنگه هرمز و اهمیت صلح و ثبات در منطقه» گفت‌وگو کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76650)
 
 ---
 
