@@ -3,7 +3,21 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
+
+
+
+یارو در «رسانه ملی» جمهوری اسلامی داره میگه چون کشتی‌ها قصد عبور از مسیر «ناایمن» رو داشتند سپاه اون‌ها رو هدف قرار داده بوده.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76717)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/clliK9aq4RFSRLPZfep2poqqfhz7aajEFz5m8zfTD-efl8y-8_33UQ8Q5q1XW368Y5H4_OkdXlt4BUIQqYmrH3-7OU91IanaGPVBFNaTIoCQ752TGnjc4LOWfoJo0MHz0YUxIPPNPbO0M6b4JZjE50xKWv4n1Treox69l7IXCLEFGrB6M_DVE_uKkzJrUUOPjh1gGICEVt5cgEClZRQ6goh7LXzYdHFIfdYheE3j7SDRrCWpOh5GL1EyDrIHwh3fJdcZSqOnK1UQr7mtb4Gb34nMEhubZy4Xf1Xw2L0NGGvkI2YKBch5ItEB_ZZJgZLHNLYbqaznPjWGvdU_AcBKYA.jpg" width="400"><br>
 
@@ -25,7 +39,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/HO3TIcG4J5Xn_4g0X3SO86HI-ULX2qFNDIhmQiXBYJFhBJlSxfKgG8DTR0UgMUiDa25s5PJptuM7_JVHyXuQ4iIvfd-REhkHB9fDenEB-GJFlQRfcbCg8LhkZSTU7rTKYI3NebdrbYxI4of_qAvYzGPjgV4aALThQX7at-EuAfsXgOVsdqG76g96EMe11C-fQe2XWk_d75QyzM7y5pa3GQ5-eogRVr6T1SUudOukCtzJOSwf21qIYHENC05ecBWwzzmW-vQxgGO-v7Rp0zfraOY__-Sj27koIysuJnW71SiGCd7-rbIvPeiLZzuoAtyxnQTb9qQiEQWF99hr0xnW-g.jpg" width="400"><br>
 
@@ -50,15 +64,19 @@ VahidOOnLine
 در اولین ساعات بامداد یکشنبه  صدای انفجارهایی در سیریک شنیده شده است.
 برخی منابع مدعی شده‌اند که صدای انفجار در بندر طاهرویه بوده، اما هنوز هیچ منبع رسمی آن را تأیید نکرده است.
 🔄
-آپدیت:
+آپدیت ۱:۰۲
 خبرنگار صداوسیما در سیریک به نقل از یک منبع آگاه نظامی: صدای انفجارهای شنیده شده مربوط به اصابت چند پرتابه به دکل مخابراتی در محدوده روستای طاهرویی سیریک است
 💥
-خبرنگار اکسیوس:
-یک مقام آمریکایی می‌گوید ارتش ایالات متحده در تلافی حمله ایران در صبح امروز به یک نفتکش تجاری، در حال انجام حملاتی علیه اهداف ایرانی در محدوده تنگه هرمز است.
-صدا و سیما:
+آپدیت ۱:۰۶
+خبرنگار اکسیوس: یک مقام آمریکایی می‌گوید ارتش ایالات متحده در تلافی حمله ایران در صبح امروز به یک نفتکش تجاری، در حال انجام حملاتی علیه اهداف ایرانی در محدوده تنگه هرمز است.
+آپدیت ۱:۱۲
 خبرنگار صداوسیما در قشم به نقل از یک منبع آگاه: چند پرتابه در محدوده روستای مسن شهرستان قشم اصابت کرده است
+آپدیت ۱:۱۷
+صدا و سیما شنیده‌شدن دو صدای انفجار دیگر در شهرستان سیریک، منشاء صدا مشخص نیست.
+آپدیت ۱:۴۱
 صدا و سیما:
-شنیده‌شدن دو صدای انفجار دیگر در شهرستان سیریک، منشاء صدا مشخص نیست.
+برخی منابع از شنیده شدن صدای چندین انفجار در بندرلنگه و بندر کنگ خبر می‌دهند
+خبرگزاری صدا و سیما هنوز قادر به تایید قطعی این انفجارها نیست.
 📡
 @VahidOnline
 
@@ -68,7 +86,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/Up7O-uxOzergf33zCbeDxQjpYvKyXabdKyTZHVAau3eHF3p7kR_nGy4zQixu2oNF7Nj_kFKjvsWomsJHOqgUXeSIsYSqhkjBhHDwm92y7qFnGmCETj9R_xtDKn6dmHuXPIjNeMv_Xp4vUGVxmvUwhBwN44h_H31TyKutu4VotyrMUtp8Y5WiTdUP6P9QJfC8Qc6EOk72JyY1Uw_AuOxqvkzJCd5JKXmNp5HPDqeM3yoTa4F3A4c28sdQCIxE3D_uw08hfsmMKJ3eH3OwyA-0qRll5-OIwm_oaw-UiydQHGz1lhMapK8lz2_1g2kmr6ai2iacVc4f3qWq6SrbV0bgdQ.jpg" width="400"><br>
 
@@ -89,7 +107,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 
 
@@ -110,7 +128,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/pa2hXd6GTLn7T4kzyYS7J5ESTntMkUAbNsoqpily2k_ZpF2TKVphrJYmL2UhrxKwZObj2TkM0ngB9hbG3D8as8ckVqihuI7S96N_SNK_Fwt86bhbfRjo-QioPqPcKZg0jd7EH_9wUsyvwoyGlmn7Xnd1CEdfTy6_1_Y6k5Y0w_9peP5hJ-MbEUDJ3iOrDTO_E5qag0YRjNZFy1qsdacIJs_qKlJ-KQT-hGVL0oltCa1vdE2SIkGDvpmorAIJAK5OAn0k4qmnMQjmiZBxPftFRgIgNlu-x9KhsqrOinu2pmJl_xJOQuRxGt6PHk2z-YNRHKekyThciOImzR3ZjyflmA.jpg" width="400"><br>
 
@@ -188,7 +206,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn4.telesco.pe/file/BUxJ5NSONGkVCfCwvJ3XEndA_hOMqc4ZJd_u2cITANvfksKO5rtShdhR3m1QvxMHEZDw3VrpcYfgE_RktPjeQzKrMHtiqei_45CkcAEAl8apTb8u9Gu_UlzQaiKiDhLemv6B2m-yFrdVGIlisbBR39ApBHt_tMFZfTLjqxnkFGUJ-Qy0xUMZj8UiI88Qta_iDVdRr7HdeKs42Za2DPBO4NR5-dhGblDHCi224KYm4MXee2xAV4Qks-ds2SZ-BNF5AJ8AAbEhFMR6bCLp67mW7qJemDHtn5dzl-VMOapjl7Fm6qNf_lg0p_jpOmQzUZQrF7WmGNJWrBJFryItQin0Iw.jpg" width="400"><br>
 
@@ -208,7 +226,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn4.telesco.pe/file/dDmykcD3JBBz-QRuAWOFF6OFIUIKf7aeR0DdQfOsb35FIw5gulA_p2ECkJeWCDi4eLTzPUzhUDlC1W3cMDLr08XxTfm4NbFBfypgDQ1j2Z2KXxdwnaYO6w9dzkQINdi17wz0ywd5ItLb3sAkSxgkKSNi7NNzIRhOhR_udXx4VEgHzsLXVtce1Nf4RMr-LKHbOU8MPjqfMoSpxP0uWBoBGTN2k5AyU7gGTuIyB0FDSJAqajMlq2ws-3LeI6pviVclokL8eTMGYnhy6Y2H2MtfsWzI7Y9t4tczn7Crr7b92zQHIJwJBZQe-SnUJkhbwNfnhFLfPHp3NpeGIvBz30PAQA.jpg" width="400"><br>
 
@@ -228,7 +246,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn4.telesco.pe/file/ckQCCVMuwng-XF388QmIlHM4inBnt411SFdYMzri1ER01QaU1UXunKGIq5QthfJ7UnURWaBj0HEeFj8IzxOGEqiKWZw0O-NfXgy2r8zzEcU6P-CJv-uboWI_WmamgPQlYfRMpQeQxwAdLVRD0TD7CSb1LUvEsSL8WNmrPxc1RDmRiyBNNATGw2jiM-mRAmhroemPuREvSH5x4PiBp-AFv9-NgBx_GQ2vRba4L_0iFZTQYzbSM7Dol2bKcC3uB48E6-umft5tfhmM84iBf5tev9akoNkPH0JQMssu3WVmmmp9EHKVpe0kPpkhNZTyyaTykyz0zX0EKbZ3ZD9UTQDoAg.jpg" width="400"><br>
 
@@ -244,7 +262,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/U_vcM0ijmYGEH4sonxiHbnXruk54ZBt7LC5LSKygAw2rolBW_AZpzVTVAZydT5bnYOL_e6MSh8eOd7TT6I6DFgCMVIaKFryncyZHfJzZbV4FsmOz2MD_rwJGA7RJrrFrDHY1fYmAgQOLZhoLdLA6MJ2y-xfkGq54QFeEeK9AMvsBz-PeB8yxQ2vPn1bI7PradQkN5zoM3EYA7b4E8PTZR-qGwNbixlANXFDLDONzVzxYbz4GTOZYDNJ__IKQczQ3Vl1rE-4eiif2d_eMrEZSLtxRNtQ6OLduaugbQdFlwnHhPnM0SI6Hprupu5ii4QGrmc_-7klxkvf6Qbsk5TpQQQ.jpg" width="400"><br>
 
@@ -275,7 +293,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/FmrR0Zoog4nWrWebI8KpRp5y9yBis5WMHh7lJPbU2QRmH_rGLkKJoEZ0t7jCu0jjhBNM2CqetaL9kJN3e0pnupyTglzyYy4cqRuNXSxYBQS7A-LBxOmh90eT1Y25WJtyrLxxP6nZg-W6gijGprTloT5tgjIVGq8vYC1b-JEySudSd59I6UiaZp-X6g6QRJ4KsByz17ETV6wBZYVsq8_qh1k_atGXi7CPTm4ZIkzDZV8_NJDZJD3oyuWIuntQBiJzKEYNZGebA77m-meeJArWzPMLFlZpXhE6Igk5dfeaV5s2vN_PhWIdw4vvx3FoQbkWgINQDlr2cdswwuAFgDeJzg.jpg" width="400"><br>
 
@@ -297,7 +315,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/MrqnM4sXaqNY5vH3xTmjhZ92CX1Drb0Xjym7tMbBuB_WUvVHMUE4qbPvNQ1AUIBQ6-eUe3S4ASMA-f8_spOAXwLUXcyTfjy0E_QqEHO7wSGuLq4jyNGKwRHc2_Dj6SPB65v7_aCgcoOSSXneo9e0oOxfYXW95neJxiRur2U5bPgZ_pMw4_pM3ps0ef6iBkS70OvJ8ZlKtOr-mx9Tjy9DwQuP0ZnRuIt7uDzQJPEmwCfLm2lA0hWszBF8WevUEewr6eWrkima7VCatYet7oXRgC2ouhTcy1vA7GUo6G896nWN3U96bFsMIi7OAFaeRECX-iNhag1vikXfCbklWjZ48w.jpg" width="400"><br>
 
@@ -315,7 +333,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/r7XgV-Xfl_MduIaIeTAtc_aLdQZ0SzJobSKLcuF_UYhfz-xh_CR01SzFO78VoDsdTpq2SUHyjiG-1okfjieUIVwSFLPo1ZDmi9PDMhO6dYLClXi-y-_whFmtebnKRijpMPB-VLWJ0oQcPUiaqSS77Vzu2IShzw5mHo8QG_618-Iuh8FKqLuRQjoBsro8X78aHSecsjbMh7Zxn0NCVEtX7mnbNKV6SllFwvfTzvf5PbBzZS9rA2WJ4dkxOUGlMzce-kweWKwa7qTGYY1D5rjj-8Jim4UTAqmgxxVnIJwuXWfWRePNx98NfVYn3RoSL4lMU_KVnd5v2xwYA9lpiOXDOg.jpg" width="400"><br>
 
@@ -333,7 +351,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 
 
@@ -345,7 +363,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn4.telesco.pe/file/DR0Hjp0i50Q-1wr4d1JiAPrxRopA2Ixp4gngzEq7ZhegflO80wE9YNgAheNwC7nXOFbb8qMsPhinFOvZfPhDdiWXTjZCPNLRxrvO3-vkRTIvuKi0CGcEyKnUndQ63o95v4QzjIv6MHhrtLmSi_gr1LMn3x9_K_twum_51lsseBg5a_Olv1jhFPWs65_vRzXnGwqxLGG5UVqcIAgqcI-uAAkNMclmtuxYXX7pkbYllXNTod4euIXVxay3ESwg0PzdKXVKMbaRqAcyr7RBjoZ_HpoqbKXsBwdDKkdypHKRaml5rxBlHaOKOJu5VnXTBa5_AIbNW_KQrs63oqulfAwvSg.jpg" width="400"><br>
 
@@ -365,7 +383,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/WRjhv1AAexRkZedNxa-LegsDMf9Vful4VgTq4E10ph54bDZ5KGglVj3RoaL_MEldj2k-jalZylwVivPjnoP5rktsuZS8bq1cwuLZ_7ORuf-IxPxEy6QlrocqiivvtvCIdwr5h2tSTYOruSvhaBwTrEx8ayjh3ssiJQ0hR0xUK--o5QY3N-9oiKSjvXGmKale_J_jcF3iEjhNbY3WNb-pD6LKtG6rgnRevvSCZhdWY7PwnhH8txIH3P476uZGldJD95pVDdrQjrRpO1K9_oqV72aM9FSj_-D6pU64ADQuIDv49pi8XUrlf5_lA_14W0YaKpRuEeRmWJebWMC_50uklQ.jpg" width="400"><br>
 
@@ -382,7 +400,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/EspN4YELIqw-gJkW2ooO7TuTZgJX0ZZlPcvX_jVDfT2S_V8SSThFO_OaRnIuTmMwHOc6GD5AeGn7qyKbw62wpk2CFVoMdmpSuXPH2zqPjKs55lrXEcoU06za_O2c4B4qyY8HzSp-azzPyr3O9-9Gq1OZBIFEXBzhZJ4FIuAVTfmTz0Q6W04CTqtRPtzDfj-FGhXdAiR9t5-V0ERTi45pMGtkIkAu0fR7aDMKbA3l8vl20WikACzQMybZTbpjXUkA-hZjiZm2ireoceDwT2UFqviy1bsGebpW3-AH8r2FsVQW0qwWRRtU8qX5GUSt0dgLroi4N_EMmnEUnTyK6GVtWw.jpg" width="400"><br>
 
@@ -405,7 +423,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 <img src="https://cdn1.telesco.pe/file/NQEW3zZ_wM99zFC6GHivARUCjQJIRsqwbZjPMkF3kogsem15PHW3KNrizbtUsx4ZXJw43JNoGGKcwXxJ4VQbrV7fRHsxXjR9Qb_HN6f_JcrTMen_iDWyal_31KqiGy7avPcLafYz8Rh1g9nyayc76o1roDdaEOEBlrUp-FAVSnbKopHpCTNDJhhX8EAaVjAE4-ziluRppagbAgIEo3PaUpiSzcnXDqdIm1B-XlE0D_6qm-KEchEe_Flls10iX2k3Rvxq381ehtvEcdBGsY2pjo5cz3hXSiumIkvBwzod-wiG1NzkhOIFb6qt7znCakCJwGP0aLhrmUhAvF2O4PaFlg.jpg" width="400"><br>
 
@@ -436,7 +454,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 01:36:49
+###### 🔵 Updated at: 2026-06-28 02:45:31
 
 
 
@@ -457,24 +475,6 @@ https://telegra.ph/trump-06-26-4
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76698)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-28 01:36:49
-
-<img src="https://cdn1.telesco.pe/file/qtXXRiBxXVnDBtTAcG1M1fMSri-ulBck5oj2Vrqk1xIRwJyuVvvEdx99rSxj4ICuEQEPpObubXcMt4S8xglzKH5Ewsf-kAfLf2NnCLtIvxTwaQZ52GhWxmGZeW7Cu42e3_ZOjwpLIZfRH5QMdZVSReJlJn89l2RH6GuWuyajxQOdrt1qUxtMkcpkcRlJBAmavXCuYFFfvFo0dgUbZSdaJ7wQza2rXslI1JvLRsFOOy5-GtIMs51Rk5Mum59cI5bsmkCDYvsiRth2_zylawqzOgg-tyQEWVff-SwP-ChoLXq9A0QkZlDfzZDQEaGD1-IjBxYZsJUEiNZNjnLMEQdHKw.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، پس از امضای توافق اسرائیل و لبنان در واشینگتن در بیانیه‌ای اعلام کرد: «این توافق دستاورد بزرگی برای اسرائیل است و مذاکرات طولانی در واشنگتن به نتیجه رسیده است. مهم‌ترین نکته این است که اسرائیل در منطقه امنیتی باقی می‌ماند و تا زمانی که حزب‌الله خلع سلاح نشود این وضعیت ادامه خواهد داشت.»
-او افزود: «این توافق ضربه بزرگی به جمهوری اسلامی است و تهران تلاش می‌کند اسرائیل را به عقب‌نشینی وادار کند اما اسرائیل، لبنان و آمریکا تاکید کرده‌اند که جمهوری اسلامی و حزب‌الله در این روند نقشی ندارند.»
-نتانیاهو تاکید کرد: «اسرائیل در منطقه امنیتی باقی خواهد ماند و اجازه ورود حزب‌الله یا غیرنظامیان به این گروه داده نخواهد شد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76696)
 
 ---
 
