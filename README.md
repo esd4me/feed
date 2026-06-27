@@ -3,11 +3,11 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/pa2hXd6GTLn7T4kzyYS7J5ESTntMkUAbNsoqpily2k_ZpF2TKVphrJYmL2UhrxKwZObj2TkM0ngB9hbG3D8as8ckVqihuI7S96N_SNK_Fwt86bhbfRjo-QioPqPcKZg0jd7EH_9wUsyvwoyGlmn7Xnd1CEdfTy6_1_Y6k5Y0w_9peP5hJ-MbEUDJ3iOrDTO_E5qag0YRjNZFy1qsdacIJs_qKlJ-KQT-hGVL0oltCa1vdE2SIkGDvpmorAIJAK5OAn0k4qmnMQjmiZBxPftFRgIgNlu-x9KhsqrOinu2pmJl_xJOQuRxGt6PHk2z-YNRHKekyThciOImzR3ZjyflmA.jpg" width="400"><br>
 
-پیام‌های دریافتی:
+پیام‌های دریافتی درباره قطع شدن برق در مناطق مختلف شرق تهران:
 سلام وحید جان
 به طور بی سابقه ای کل برق پیروزی و بلوار ابوذر رفته کلا خاموشه محله های این طرفا
 توی قطعی برقیا هیچوقت اینجوری سابقه نداشته کل محله ها با هم بره کلا شرق خاموشه
@@ -40,6 +40,34 @@
 تهرانپارس فلکه اول
 ما برق داریم ولی دارم نگاه میکنم ی سریا ندارن!
 برق خیایان شیخ بهایی شمالی رفت
+انتهای تهران نو سمت اشتیانی و فلکه اطلاعات برق نداریم.
+ما نیروهوایی هستیم برقا تا جایی که میبینیم قطعه
+آقا برق وصله چرا الکی میگن شما هم میزارین مردم همه حالشون بده ترو خدا استرس بیخود ندین
+برق خیابون مدنی،  نظام آباد همچنان قعطه
+نارمک ۴۶ متری غربی برق رفته بود دو سه دقیقه هست که برگشته
+نارمک جنوبی، حوالی میدان شقایق هم برق رفت.
+سلامت میدان ۷۰ و سمنگان هم رفته بود.
+الان بعد ۲۵ دقیقه اومد
+وحید جان سبلان شمالی برق قطعه
+سلام، زرکش وحیدیه برق قطعه
+وحید جان سلام پیروزی چهارراه کوکاکولا برق داره اما کل خیابان نیروی هوایی برق رفته به طوری چشم چشم رو نمیبینه مردم با نور موبایل راه میرن
+برق نظام‌آباد اومد
+ندیدم مجیدیه رو بگند که برق رفته. اینجام نیست
+منتها زنگ زدم و محله بقلی خواجه عبدالله برق هست.
+سلام وحیدجان ما پیروزی سمت خیابون شیوا هستیم برق داریم
+برق مجیدیه و خیابان کرمان از ۸.۲۰ دقیقه کامل قطع شده . تا چشم میبینه برق اطراف قطع شده
+الان. نظام اباد محدوده شرقی امام علی خاموش بود همین الان اومد.
+داداش برقا اومد فک کنم یه بانکی چیزی خالی کردن رفتن دیگه
+🤣
+وحید یرق پیروزی بلوارابوذر اومد
+آپدیت: پیام‌هایی از وصل شدن برق در بعضی از مناطق داره میاد.
+همز‌مان خبرگزاری فارس:
+قطع برق تعدادی از مناطق تهران؛ دلیل مشخص شد
+تعدادی از مناطق تهران از ساعاتی پیش با قطعی برق مواجه شدند.
+پیگیری فارس از توانیر مشخص کرد، مشکل فنی در یکی از پست‌های ۲۳٠ شرق تهران علت قطعی برق است.
+هم‌اکنون تیم‌های عملیاتی و فنی برای رفع مشکل در محل پست حاضر و درحال حل مسئله هستند.
+آپدیت:
+همچنان که خیلی‌ها پیام میدن که برق ما وصل نشده یک عده که برقشون وصل شده بود هم دارند پیام میدن که دوباره قطع شد. شاید به خاطر همون تعمیراته.
 📡
 @VahidOnline
 
@@ -49,7 +77,7 @@
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn4.telesco.pe/file/BUxJ5NSONGkVCfCwvJ3XEndA_hOMqc4ZJd_u2cITANvfksKO5rtShdhR3m1QvxMHEZDw3VrpcYfgE_RktPjeQzKrMHtiqei_45CkcAEAl8apTb8u9Gu_UlzQaiKiDhLemv6B2m-yFrdVGIlisbBR39ApBHt_tMFZfTLjqxnkFGUJ-Qy0xUMZj8UiI88Qta_iDVdRr7HdeKs42Za2DPBO4NR5-dhGblDHCi224KYm4MXee2xAV4Qks-ds2SZ-BNF5AJ8AAbEhFMR6bCLp67mW7qJemDHtn5dzl-VMOapjl7Fm6qNf_lg0p_jpOmQzUZQrF7WmGNJWrBJFryItQin0Iw.jpg" width="400"><br>
 
@@ -69,7 +97,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn4.telesco.pe/file/dDmykcD3JBBz-QRuAWOFF6OFIUIKf7aeR0DdQfOsb35FIw5gulA_p2ECkJeWCDi4eLTzPUzhUDlC1W3cMDLr08XxTfm4NbFBfypgDQ1j2Z2KXxdwnaYO6w9dzkQINdi17wz0ywd5ItLb3sAkSxgkKSNi7NNzIRhOhR_udXx4VEgHzsLXVtce1Nf4RMr-LKHbOU8MPjqfMoSpxP0uWBoBGTN2k5AyU7gGTuIyB0FDSJAqajMlq2ws-3LeI6pviVclokL8eTMGYnhy6Y2H2MtfsWzI7Y9t4tczn7Crr7b92zQHIJwJBZQe-SnUJkhbwNfnhFLfPHp3NpeGIvBz30PAQA.jpg" width="400"><br>
 
@@ -89,7 +117,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn4.telesco.pe/file/ckQCCVMuwng-XF388QmIlHM4inBnt411SFdYMzri1ER01QaU1UXunKGIq5QthfJ7UnURWaBj0HEeFj8IzxOGEqiKWZw0O-NfXgy2r8zzEcU6P-CJv-uboWI_WmamgPQlYfRMpQeQxwAdLVRD0TD7CSb1LUvEsSL8WNmrPxc1RDmRiyBNNATGw2jiM-mRAmhroemPuREvSH5x4PiBp-AFv9-NgBx_GQ2vRba4L_0iFZTQYzbSM7Dol2bKcC3uB48E6-umft5tfhmM84iBf5tev9akoNkPH0JQMssu3WVmmmp9EHKVpe0kPpkhNZTyyaTykyz0zX0EKbZ3ZD9UTQDoAg.jpg" width="400"><br>
 
@@ -105,7 +133,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/U_vcM0ijmYGEH4sonxiHbnXruk54ZBt7LC5LSKygAw2rolBW_AZpzVTVAZydT5bnYOL_e6MSh8eOd7TT6I6DFgCMVIaKFryncyZHfJzZbV4FsmOz2MD_rwJGA7RJrrFrDHY1fYmAgQOLZhoLdLA6MJ2y-xfkGq54QFeEeK9AMvsBz-PeB8yxQ2vPn1bI7PradQkN5zoM3EYA7b4E8PTZR-qGwNbixlANXFDLDONzVzxYbz4GTOZYDNJ__IKQczQ3Vl1rE-4eiif2d_eMrEZSLtxRNtQ6OLduaugbQdFlwnHhPnM0SI6Hprupu5ii4QGrmc_-7klxkvf6Qbsk5TpQQQ.jpg" width="400"><br>
 
@@ -136,7 +164,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/FmrR0Zoog4nWrWebI8KpRp5y9yBis5WMHh7lJPbU2QRmH_rGLkKJoEZ0t7jCu0jjhBNM2CqetaL9kJN3e0pnupyTglzyYy4cqRuNXSxYBQS7A-LBxOmh90eT1Y25WJtyrLxxP6nZg-W6gijGprTloT5tgjIVGq8vYC1b-JEySudSd59I6UiaZp-X6g6QRJ4KsByz17ETV6wBZYVsq8_qh1k_atGXi7CPTm4ZIkzDZV8_NJDZJD3oyuWIuntQBiJzKEYNZGebA77m-meeJArWzPMLFlZpXhE6Igk5dfeaV5s2vN_PhWIdw4vvx3FoQbkWgINQDlr2cdswwuAFgDeJzg.jpg" width="400"><br>
 
@@ -158,7 +186,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/MrqnM4sXaqNY5vH3xTmjhZ92CX1Drb0Xjym7tMbBuB_WUvVHMUE4qbPvNQ1AUIBQ6-eUe3S4ASMA-f8_spOAXwLUXcyTfjy0E_QqEHO7wSGuLq4jyNGKwRHc2_Dj6SPB65v7_aCgcoOSSXneo9e0oOxfYXW95neJxiRur2U5bPgZ_pMw4_pM3ps0ef6iBkS70OvJ8ZlKtOr-mx9Tjy9DwQuP0ZnRuIt7uDzQJPEmwCfLm2lA0hWszBF8WevUEewr6eWrkima7VCatYet7oXRgC2ouhTcy1vA7GUo6G896nWN3U96bFsMIi7OAFaeRECX-iNhag1vikXfCbklWjZ48w.jpg" width="400"><br>
 
@@ -176,7 +204,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/r7XgV-Xfl_MduIaIeTAtc_aLdQZ0SzJobSKLcuF_UYhfz-xh_CR01SzFO78VoDsdTpq2SUHyjiG-1okfjieUIVwSFLPo1ZDmi9PDMhO6dYLClXi-y-_whFmtebnKRijpMPB-VLWJ0oQcPUiaqSS77Vzu2IShzw5mHo8QG_618-Iuh8FKqLuRQjoBsro8X78aHSecsjbMh7Zxn0NCVEtX7mnbNKV6SllFwvfTzvf5PbBzZS9rA2WJ4dkxOUGlMzce-kweWKwa7qTGYY1D5rjj-8Jim4UTAqmgxxVnIJwuXWfWRePNx98NfVYn3RoSL4lMU_KVnd5v2xwYA9lpiOXDOg.jpg" width="400"><br>
 
@@ -194,7 +222,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 
 
@@ -206,7 +234,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn4.telesco.pe/file/DR0Hjp0i50Q-1wr4d1JiAPrxRopA2Ixp4gngzEq7ZhegflO80wE9YNgAheNwC7nXOFbb8qMsPhinFOvZfPhDdiWXTjZCPNLRxrvO3-vkRTIvuKi0CGcEyKnUndQ63o95v4QzjIv6MHhrtLmSi_gr1LMn3x9_K_twum_51lsseBg5a_Olv1jhFPWs65_vRzXnGwqxLGG5UVqcIAgqcI-uAAkNMclmtuxYXX7pkbYllXNTod4euIXVxay3ESwg0PzdKXVKMbaRqAcyr7RBjoZ_HpoqbKXsBwdDKkdypHKRaml5rxBlHaOKOJu5VnXTBa5_AIbNW_KQrs63oqulfAwvSg.jpg" width="400"><br>
 
@@ -226,7 +254,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/Z0baDs_PGvHxoUqO3Mn75mGyVtCdk6Fl3baeNgPkr0yYaA8lsHRCuxcbwC64pWU1A6wrmHlG4vSeD0vf0GvVfdvd3BmJVtHiAQ2Yd6dJr0WmB1kt5gL8fvrLgWVoTgIljWiA06vm_oFtwQFcX1obJO-hgNwN0ydKcqM5nq56A2CRBIP-CJCfUAD5HSYzT7w3mWh31f6VjcqS5vehSaYjmqnLL1Elvvh3XKP5KsW699VvzcJkXankZhyV1aW3ucP3L_L6NKLfQAEyD6UztqDUo-kJwgLF5JcBAoYftXdF6uNAQT2F3nzShJGMXMIwHPmWCO800mMZXTnHO-NPRGeLAQ.jpg" width="400"><br>
 
@@ -243,7 +271,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/hwxO1XK9wPN-psG4lEDK58G_F-OrmVHaj8njYVusmcaWqyjLEmzaF-eRj5NW-qpvo8qxQychrjM7baGZqYXmS2LL4h-7y1a3mbwEYnQ74fN_ZO_fnFayHWjrreiwJpTxl2JMxpR0agq4ima1nCjLHiz3h_Kn1I4IwS_av0b_pHDF9W3MuqPUcxxat6sgEkmMZbRnzE3rBFeKy2NQr9YlZaUeoyn3LTtTkfGFz15lDVci_m4PYvj7zd37ghuBsXaCnhjsNbsUgpuOyaygz91DGZdSXa-qnVqhDbhFE1S3aJBTjasF_CkzqpcRXLagWjil8SsXEChSn2APveEITQPIbQ.jpg" width="400"><br>
 
@@ -266,7 +294,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/SWMCAPbwQUmQUlNQPlomtF-7oeU1NoZC7iLNwmESaTSIRZobueYEzkFhYhIAZYZtf6b0r20jmbICcA9u9TJdRMgJaaep3Rpq58ThqLUn_ZH18EonLDTbDB6DK1zLvA6mUyuJCkDovNoBmVTvYkhQyrakeBu_prS3L5tap12g95q6lzrnxpI3RXctrZeptWGaBEwbvQL1arVf33CQhjcfJXgbuhWoYf7vElHYos7VJlaH47jLyn3woIDIbT1Rc67U46wm4dCwMt7lTIvKpMtPw-9i4b9NaTZts5aYjUzvdIuke8n_8VEMH667jXLNrPDwcO8qgbJhcALM3m-_hHw_ZQ.jpg" width="400"><br>
 
@@ -297,7 +325,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 
 
@@ -323,7 +351,7 @@ https://telegra.ph/trump-06-26-4
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 <img src="https://cdn1.telesco.pe/file/tAKg3DYmClkoRR8UzAj7CdlJdvb5bYLEvBFUCpI2MqCgJPdBnXkyb7rLrmRsu6xs_43vG9TzxguxX6yG3BF_l0m-t5kgNg_kxsMs2Jj5ojHw5Hfm8jdTsGy9JzHfQ2JstCCNAq9K3Koy4EylUg1N6TCK1aMPk6HlHbmBy5a7NfQEZkZcnzKoC-SLhKXs35C8x5YxHcEubxlvkMHWHNiijKe7vJqicneWl9HXdEGYbQ4qY0YPgUF7hjjCNAcFw-wDsQRJz7wd3aIcSkVcCnYGc9Rf00Ck_FYf6rzGFr3YnCJrCL93MuQsQUD3M6PRB5H-uCHjBzoQQjhOgd-5CPWMsQ.jpg" width="400"><br>
 
@@ -341,7 +369,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 
 
@@ -375,7 +403,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 
 
@@ -394,7 +422,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-27 20:50:26
+###### 🔵 Updated at: 2026-06-27 22:08:25
 
 
 
