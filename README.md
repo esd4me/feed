@@ -3,7 +3,64 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
+
+<img src="https://cdn1.telesco.pe/file/RfcLZ1JlWdVbJYrvk6bSLr71RgjR3sJH0MTW_A_TjpKh-4AFWMazW9_IzRtKKZ3a05fwdGHhXb1Q__fWLgEGinb23kVMgRUUxsMjZ3fKXUKczkohW0dDYd9xlV9vPyP7e9nVN5YsQqZFTmGJWjVt7BWlJt_QG2YeHjk904foeD8j915nqku7ak2WvXH_b8_QzMkCS0Z3Kq98pnQpGPAQNtJ98ySAjcOmU9k_GK3Vuv7IlS9w5i6hJ0gMgD2LF0z-oRLKBMUCXQcbrkiNxeQgbaK16i5d16ViquBmYSLnBaX_YUnAYd7JEOXVeb5SMr4m4Muq0KIlFpySd9w5OWKYGg.jpg" width="400"><br>
+
+دیدار الجزایر و اتریش در مرحله گروهی جام جهانی فوتبال با تساوی سه بر سه پایان یافت؛
+نتیجه‌ای که آخرین شانس تیم ایران برای صعود به مرحله حذفی را در آخرین ثانیه‌های مرحله گروهی از بین برد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76723)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-28 08:25:21
+
+<img src="https://cdn1.telesco.pe/file/VUsDThUj9MXLgT78QPv677ygLEANDFJ4U_u-gRwU2NSrEMICAwav1Cqoh-9g7GS_e7u54QbfH4hT_Gh98YoQEKxVVWEj0Ncqlg-2rQcoK1PyrAUo-ymUwOXxUis1h3yxgmV5c5uyy_VSgwjJR8LCLuqx1G1y7TsD21STp5sSl1nQAWBfwnrw3vPpZVWhtYvfMtLBUzuNbwLQUHaVwE2QohwIUMhi8sVmK18I9sYkkRf0E_4vKqaNSiqUN__wdvAIOP8oTziA3qf9UB954pR6wOnHytqIwR39R4xcmes_4MVvn3VrbPGNyQwELe1FcpQYW8xxZc_IRmCBXkU1pdQs4A.jpg" width="400"><br>
+
+روابط عمومی سپاه پاسداران، با انتشار بیانیه‌ای از حمله مشترک موشکی و پهپادی به مواضع ارتش ایالات متحده در منطقه خبر داد.
+بر اساس این بیانیه، نیروهای دریایی و هوافضای سپاه در ساعت ۲ تا ۳ بامداد یکشنبه، ۷ تیرماه، هشت زیرساخت کلیدی ارتش آمریکا را در پایگاه «علی‌السالم» کویت و ناوگان پنجم دریایی در بندر «سلمان» بحرین هدف قرار داده‌اند.
+سپاه این عملیات را «پاسخی قاطع» به حملات هوایی بامداد یکشنبه آمریکا به پنج پست ساحلی ایران در جنوب کشور دانسته و واشنگتن را به «نقض عهد» متهم کرده است.
+در بخش دیگری از این بیانیه، با اشاره به اینکه کنترل ترتیبات عبور و مرور در تنگه هرمز بر اساس «تفاهم‌نامه اسلام‌آباد» بر عهده جمهوری اسلامی است، تاکید شده که از این پس با کشتی‌های متخلف قوی‌تر از گذشته برخورد خواهد شد.
+سپاه پاسداران با هشدار به ایالات متحده اعلام کرده است که هرگونه تجاوز احتمالی بعدی، حتی اگر علیه اهداف کم‌اهمیت باشد، با پاسخی «خردکننده» مواجه می‌شود.
+@
+VahidOOnLine
+متن خبر منابع حکومتی:
+🔸
+سپاه پاسداران خبر داد: عملیات قاطع موشکی و پهپادی در پاسخ به تجاوزهای آمریکا/ با کشتی های متخلف قوی‌تر از گذشته برخورد خواهد شد
+🔹
+روابط عمومی سپاه پاسداران انقلاب اسلامی بامداد یکشنبه با صدور بیانیه ای از پاسخ قاطع نیروهای دریایی و هوا فضای سپاه به تجاوزهای اخیر آمریکا خبر داد و تاکید کرد: من‌بعد با کشتی های متخلف قوی‌تر از گذشته برخورد خواهد شد و برخورد با تجاوز احتمالی دشمن به هر بهانه‌ای که باشد ولو مانند دیشب و امشب تجاوزها به اهداف کم اهمیت باشد، پاسخی خرد کننده خواهد داشت. دشمن بداند نقض آتش‌بس خلاف بند یکم تفاهم نامه اسلام آباد است و توقف کلی روندها را در پی خواهد داشت.
+در ادامه این بیانیه خطاب به مردم عزیز و شرافتمند ایران اسلامی آمده است:
+فرزندان غیرتمند شما در نیروهای دریایی و هوا فضای سپاه طی عملیات مشترک موشکی و پهپادی در ساعت ۲ الی ۳ بامداد امروز یکشنبه هفتم تیر ماه، با پرتاب موشک های بالستیک و پهپاد به سوی هشت زیرساخت مهم ارتش کودک‌کش آمریکا در پایگاه علی السالم کویت و ناوگان پنجم دریایی در بندر سلمان بحرین آنها را منهدم کردند و تجاوزهای اخیر آمریکا را با قاطعیت پاسخ دادند.
+دشمن متجاوز که نقض عهد و پیمان شکنی در ذات او است، به بهانه مقابله نیروی دریایی سپاه با کشتی متخلف، اوایل بامداد امروز، به پنج پست ساحلی جمهوری اسلامی حمله کرده بود.
+بر اساس تفاهم نامه اسلام آباد ترتیبات کنترل عبور و مرور در تنگه هرمز با جمهوری اسلامی است و من‌بعد با کشتی های متخلف قوی تر از گذشته برخورد خواهد شد و برخورد با تجاوز احتمالی دشمن به هر بهانه ای که باشد ولو مانند دیشب و امشب تجاوزها به اهداف کم اهمیت باشد، پاسخی خرد کننده خواهد داشت.
+دشمن بداند نقض آتش بس خلاف بند یکم تفاهم نامه اسلام آباد است و توقف کلی روندها را در پی خواهد داشت.
+🔹
+و ما النصر الا من عند الله العزیز الحکیم
+در خبری دیگر:
+نیروی دریایی سپاه پاسداران بامداد یکشنبه هفتم تیرماه، با انتشار بیانیه‌ای در واکنش به حملات اخیر آمریکا اعلام کرد «شلیک‌های کور آمریکا به سیریک» معمای اشراف این نیرو بر تنگه هرمز را حل نخواهد کرد.
+در این بیانیه آمده است شلیک به «متخلفان» راه عبور را به دیگر شناورها یادآوری می‌کند. همچنین با تهدید پایگاه‌های آمریکایی در منطقه تاکید شده است: «حساب پایگاه‌های آمریکایی منطقه جداست. جهنم را در این روزها تجربه خواهند کرد.»
+@
+VahidOOnLine
+رویترز به نقل از یک مقام آمریکایی گزارش داد در پی حمله‌های موشکی و پهپادی جمهوری اسلامی به کویت و بحرین، هیچ گزارشی از تلفات نیروهای آمریکایی یا وارد آمدن خسارت یا آسیب عمده به تاسیسات آمریکا در خاورمیانه دریافت نشده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76722)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 
 
@@ -23,13 +80,19 @@
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/hruE5TqlVCrbcaAFuaN2tlRsJobuvOupi_kE03cYbtxcgdcE9_PXshcovUUK8btnt5JzBsTQxssh3m4398ktSMMly2yr0FNaAPpmzi2cwXlrC3g-r_LzYY9CbSivli-OkStI_amBiOdGdYmunGsDq9SLEt27wzp6azIf8mQ0ELpp13_jiRPg1heo0TCHN0iabMHHICDk1RAXUpWD4wwXm-I6abiKxxjArValBZEd8NeNyfehaQMQhLQnomQckUu-WySD_gIDVguBHj3k4GCrKL7hrw4CWZmhQA-o9K_fWNfK5OSCY10WPfEucCacleiiOv0Hj1AV30lxbuCegZ7EIw.jpg" width="400"><br>
 
 'آژیر در كويت'
 تصاویر دریافتی
-دقایقی پیش‌تر پیام مشابهی درباره بحرین دریافت کرده بودم.
+ارتش کویت دقایقی پیش اعلام کرد که پدافند هوایی این کشور در حال حاضر «با حملات موشکی و پهپادی خصمانه» مقابله می‌کند.
+@
+VahidHeadline
+دقایقی پیش‌تر پیام مشابهی درباره بحرین دریافت کرده بودم. الان:
+وزارت کشور بحرین، بامداد یکشنبه، با انتشار اطلاعیه‌ای از به صدا درآمدن آژیرهای هشدار خبر داد و از تمامی مردم و ساکنان این کشور خواست تا ضمن حفظ آرامش، فورا به نزدیک‌ترین مکان امن پناه ببرند.
+@
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -39,12 +102,11 @@
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/megbstfNZw6UBRCri-TwjWHlnWravmCREW9enruJpQFwoWnIzr6YtZfmT--LevzKlrwThHJcQpmuPt2TjmE8t18KxLjIYWcOQD3HfFaLISYEPE6r5VuYdrvOnsb-hCcacjG8xeYzMpSJE8QEd78CcO8fvvM5dxL2EmSel1xJSgzP48x_n5CYaz4sA6vYU6Dgj65MHT1vGypLAWN_qFvo0udS0klvD0fG_z7KHyKoOwft9DpW6ij1mvaChyQoBh02qUIcMDNViD1kIYNmyICYT3b1lmviewUHFmAarxwP7DtdM3H_nwI1wLd6W1mUfHDuRfubqskiUjBYMrVRJa0Odg.jpg" width="400"><br>
 
-☄️
-ترامپ: در صورت ادامه نقض آتش‌بس جمهوری اسلامی ایران دیگر وجود نخواهد داشت
+ترامپ: در صورت ادامه نقض آتش‌بس، جمهوری اسلامی ایران دیگر وجود نخواهد داشت
 ترجمه ماشین:
 هواپیماهای ایالات متحده همین حالا محل‌های نگهداری موشک و پهپاد ایران و سایت‌های راداری ساحلی را هدف قرار دادند، چون بار دیگر توافق آتش‌بس را نقض کردند!
 بسیار محتمل است که آن‌ها هرگز درس نگیرند!
@@ -61,7 +123,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 
 
@@ -75,9 +137,9 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
-<img src="https://cdn1.telesco.pe/file/clliK9aq4RFSRLPZfep2poqqfhz7aajEFz5m8zfTD-efl8y-8_33UQ8Q5q1XW368Y5H4_OkdXlt4BUIQqYmrH3-7OU91IanaGPVBFNaTIoCQ752TGnjc4LOWfoJo0MHz0YUxIPPNPbO0M6b4JZjE50xKWv4n1Treox69l7IXCLEFGrB6M_DVE_uKkzJrUUOPjh1gGICEVt5cgEClZRQ6goh7LXzYdHFIfdYheE3j7SDRrCWpOh5GL1EyDrIHwh3fJdcZSqOnK1UQr7mtb4Gb34nMEhubZy4Xf1Xw2L0NGGvkI2YKBch5ItEB_ZZJgZLHNLYbqaznPjWGvdU_AcBKYA.jpg" width="400"><br>
+
 
 پست سنتکام، ترجمه ماشین:
 نیروهای آمریکا پس از تازه‌ترین حمله ایران به کشتی تجاری، حملات بیشتری انجام دادند
@@ -88,6 +150,9 @@ realDonaldTrump
 نیروهای سنتکام امروز در پاسخ مستقیم به ادامه تعرض ایران علیه کشتیرانی تجاری، حملاتی انجام دادند. هواپیماهای نظامی آمریکا زیرساخت‌های نظارت نظامی ایران، سامانه‌های ارتباطی، سایت‌های پدافند هوایی، تأسیسات نگهداری پهپاد، و توانمندی‌های مین‌گذاری را هدف قرار دادند.
 عبور کشتی‌های تجاری از تنگه هرمز ادامه دارد. نیروهای آمریکا همچنان هوشیار، مرگبار و آماده هستند.
 CENTCOM
+آپدیت:
+بعدا ویدیوی بالا رو درباره این حمله منتشر کردند
+CENTCOM
 📡
 @VahidOnline
 
@@ -97,7 +162,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/HO3TIcG4J5Xn_4g0X3SO86HI-ULX2qFNDIhmQiXBYJFhBJlSxfKgG8DTR0UgMUiDa25s5PJptuM7_JVHyXuQ4iIvfd-REhkHB9fDenEB-GJFlQRfcbCg8LhkZSTU7rTKYI3NebdrbYxI4of_qAvYzGPjgV4aALThQX7at-EuAfsXgOVsdqG76g96EMe11C-fQe2XWk_d75QyzM7y5pa3GQ5-eogRVr6T1SUudOukCtzJOSwf21qIYHENC05ecBWwzzmW-vQxgGO-v7Rp0zfraOY__-Sj27koIysuJnW71SiGCd7-rbIvPeiLZzuoAtyxnQTb9qQiEQWF99hr0xnW-g.jpg" width="400"><br>
 
@@ -144,7 +209,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/Up7O-uxOzergf33zCbeDxQjpYvKyXabdKyTZHVAau3eHF3p7kR_nGy4zQixu2oNF7Nj_kFKjvsWomsJHOqgUXeSIsYSqhkjBhHDwm92y7qFnGmCETj9R_xtDKn6dmHuXPIjNeMv_Xp4vUGVxmvUwhBwN44h_H31TyKutu4VotyrMUtp8Y5WiTdUP6P9QJfC8Qc6EOk72JyY1Uw_AuOxqvkzJCd5JKXmNp5HPDqeM3yoTa4F3A4c28sdQCIxE3D_uw08hfsmMKJ3eH3OwyA-0qRll5-OIwm_oaw-UiydQHGz1lhMapK8lz2_1g2kmr6ai2iacVc4f3qWq6SrbV0bgdQ.jpg" width="400"><br>
 
@@ -165,7 +230,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 
 
@@ -186,7 +251,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/pa2hXd6GTLn7T4kzyYS7J5ESTntMkUAbNsoqpily2k_ZpF2TKVphrJYmL2UhrxKwZObj2TkM0ngB9hbG3D8as8ckVqihuI7S96N_SNK_Fwt86bhbfRjo-QioPqPcKZg0jd7EH_9wUsyvwoyGlmn7Xnd1CEdfTy6_1_Y6k5Y0w_9peP5hJ-MbEUDJ3iOrDTO_E5qag0YRjNZFy1qsdacIJs_qKlJ-KQT-hGVL0oltCa1vdE2SIkGDvpmorAIJAK5OAn0k4qmnMQjmiZBxPftFRgIgNlu-x9KhsqrOinu2pmJl_xJOQuRxGt6PHk2z-YNRHKekyThciOImzR3ZjyflmA.jpg" width="400"><br>
 
@@ -264,7 +329,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn4.telesco.pe/file/BUxJ5NSONGkVCfCwvJ3XEndA_hOMqc4ZJd_u2cITANvfksKO5rtShdhR3m1QvxMHEZDw3VrpcYfgE_RktPjeQzKrMHtiqei_45CkcAEAl8apTb8u9Gu_UlzQaiKiDhLemv6B2m-yFrdVGIlisbBR39ApBHt_tMFZfTLjqxnkFGUJ-Qy0xUMZj8UiI88Qta_iDVdRr7HdeKs42Za2DPBO4NR5-dhGblDHCi224KYm4MXee2xAV4Qks-ds2SZ-BNF5AJ8AAbEhFMR6bCLp67mW7qJemDHtn5dzl-VMOapjl7Fm6qNf_lg0p_jpOmQzUZQrF7WmGNJWrBJFryItQin0Iw.jpg" width="400"><br>
 
@@ -284,7 +349,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn4.telesco.pe/file/dDmykcD3JBBz-QRuAWOFF6OFIUIKf7aeR0DdQfOsb35FIw5gulA_p2ECkJeWCDi4eLTzPUzhUDlC1W3cMDLr08XxTfm4NbFBfypgDQ1j2Z2KXxdwnaYO6w9dzkQINdi17wz0ywd5ItLb3sAkSxgkKSNi7NNzIRhOhR_udXx4VEgHzsLXVtce1Nf4RMr-LKHbOU8MPjqfMoSpxP0uWBoBGTN2k5AyU7gGTuIyB0FDSJAqajMlq2ws-3LeI6pviVclokL8eTMGYnhy6Y2H2MtfsWzI7Y9t4tczn7Crr7b92zQHIJwJBZQe-SnUJkhbwNfnhFLfPHp3NpeGIvBz30PAQA.jpg" width="400"><br>
 
@@ -304,7 +369,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn4.telesco.pe/file/ckQCCVMuwng-XF388QmIlHM4inBnt411SFdYMzri1ER01QaU1UXunKGIq5QthfJ7UnURWaBj0HEeFj8IzxOGEqiKWZw0O-NfXgy2r8zzEcU6P-CJv-uboWI_WmamgPQlYfRMpQeQxwAdLVRD0TD7CSb1LUvEsSL8WNmrPxc1RDmRiyBNNATGw2jiM-mRAmhroemPuREvSH5x4PiBp-AFv9-NgBx_GQ2vRba4L_0iFZTQYzbSM7Dol2bKcC3uB48E6-umft5tfhmM84iBf5tev9akoNkPH0JQMssu3WVmmmp9EHKVpe0kPpkhNZTyyaTykyz0zX0EKbZ3ZD9UTQDoAg.jpg" width="400"><br>
 
@@ -320,7 +385,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/U_vcM0ijmYGEH4sonxiHbnXruk54ZBt7LC5LSKygAw2rolBW_AZpzVTVAZydT5bnYOL_e6MSh8eOd7TT6I6DFgCMVIaKFryncyZHfJzZbV4FsmOz2MD_rwJGA7RJrrFrDHY1fYmAgQOLZhoLdLA6MJ2y-xfkGq54QFeEeK9AMvsBz-PeB8yxQ2vPn1bI7PradQkN5zoM3EYA7b4E8PTZR-qGwNbixlANXFDLDONzVzxYbz4GTOZYDNJ__IKQczQ3Vl1rE-4eiif2d_eMrEZSLtxRNtQ6OLduaugbQdFlwnHhPnM0SI6Hprupu5ii4QGrmc_-7klxkvf6Qbsk5TpQQQ.jpg" width="400"><br>
 
@@ -351,7 +416,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/FmrR0Zoog4nWrWebI8KpRp5y9yBis5WMHh7lJPbU2QRmH_rGLkKJoEZ0t7jCu0jjhBNM2CqetaL9kJN3e0pnupyTglzyYy4cqRuNXSxYBQS7A-LBxOmh90eT1Y25WJtyrLxxP6nZg-W6gijGprTloT5tgjIVGq8vYC1b-JEySudSd59I6UiaZp-X6g6QRJ4KsByz17ETV6wBZYVsq8_qh1k_atGXi7CPTm4ZIkzDZV8_NJDZJD3oyuWIuntQBiJzKEYNZGebA77m-meeJArWzPMLFlZpXhE6Igk5dfeaV5s2vN_PhWIdw4vvx3FoQbkWgINQDlr2cdswwuAFgDeJzg.jpg" width="400"><br>
 
@@ -373,7 +438,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/MrqnM4sXaqNY5vH3xTmjhZ92CX1Drb0Xjym7tMbBuB_WUvVHMUE4qbPvNQ1AUIBQ6-eUe3S4ASMA-f8_spOAXwLUXcyTfjy0E_QqEHO7wSGuLq4jyNGKwRHc2_Dj6SPB65v7_aCgcoOSSXneo9e0oOxfYXW95neJxiRur2U5bPgZ_pMw4_pM3ps0ef6iBkS70OvJ8ZlKtOr-mx9Tjy9DwQuP0ZnRuIt7uDzQJPEmwCfLm2lA0hWszBF8WevUEewr6eWrkima7VCatYet7oXRgC2ouhTcy1vA7GUo6G896nWN3U96bFsMIi7OAFaeRECX-iNhag1vikXfCbklWjZ48w.jpg" width="400"><br>
 
@@ -391,7 +456,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 03:47:29
+###### 🔵 Updated at: 2026-06-28 08:25:21
 
 <img src="https://cdn1.telesco.pe/file/r7XgV-Xfl_MduIaIeTAtc_aLdQZ0SzJobSKLcuF_UYhfz-xh_CR01SzFO78VoDsdTpq2SUHyjiG-1okfjieUIVwSFLPo1ZDmi9PDMhO6dYLClXi-y-_whFmtebnKRijpMPB-VLWJ0oQcPUiaqSS77Vzu2IShzw5mHo8QG_618-Iuh8FKqLuRQjoBsro8X78aHSecsjbMh7Zxn0NCVEtX7mnbNKV6SllFwvfTzvf5PbBzZS9rA2WJ4dkxOUGlMzce-kweWKwa7qTGYY1D5rjj-8Jim4UTAqmgxxVnIJwuXWfWRePNx98NfVYn3RoSL4lMU_KVnd5v2xwYA9lpiOXDOg.jpg" width="400"><br>
 
@@ -404,38 +469,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76704)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-28 03:47:29
-
-
-
-سنتکام: انبارهای موشک و پهپاد ایران و سایت‌های راداری ساحلی را هدف قرار دادیم  ترجمه ماشین: حملات آمریکا به ایران در پاسخ به حمله به کشتی تجاری  تامپا، فلوریدا — نیروهای فرماندهی مرکزی آمریکا (CENTCOM) در ۲۶ ژوئن، در واکنشی قدرتمند به حمله دیروز به یک کشتی…
-
-[View Post](https://t.me/VahidOnline/76703)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-28 03:47:29
-
-<img src="https://cdn4.telesco.pe/file/db2iytxJkVfyr_Ht17PgINx5WNEVLBqFY8m4C8XVh9jHP32gSU6fSxoKXSVxXrTltUGkvwBrcXAZG9UCw_nUVjjkLqSAwHTODHDqG_2AUvM3eB0yPrfoutgU9c2OCBPf2utqOeitfMBEzzMbsrNU8YXarga1hLEJdmD1hovuEzQVcj1I9tdias-XqA51bLuguiDVgUqimNlvlc1oezyVHQgy9pC8Z7zqC5dpNkSTU5YSbft9E9d8nXXdvjsvUl8uCEPQ9XczzUTrR6_UWIt1w-N-6zR7BFafheAq7J_-loKS-0slalSHjqUM_WiTrQSe3Qs8T-0qsBKi3AXPlFos7g.jpg" width="400"><br>
-
-‌سپاه پاسداران اعلام کرد که نیروی دریایی این نهاد در واکنش به حملات آمریکا به سواحل ایران، مواضع ارتش آمریکا در منطقه را هدف قرار داده است.
-در بیانیه روابط عمومی سپاه آمده است که آمریکا پس از حمله به یک کشتی تجاری در تنگه هرمز، به بهانه عبور این کشتی از مسیری که ایران آن را «غیرمجاز» می‌داند، حملاتی هوایی به سواحل ایران انجام داده است.
-سپاه این حملات را نقض آتش‌بس و تعهدات آمریکا خواند و مدعی شد در پاسخ، «نقاط استقرار ارتش آمریکا در منطقه» هدف قرار گرفته‌اند. جزئیاتی درباره محل این اهداف، نوع حمله یا خسارات احتمالی منتشر نشده است.
-در این بیانیه همچنین گفته شده است که بر اساس بند پنجم تفاهم‌نامه اسلام‌آباد، کنترل عبور و مرور در تنگه هرمز بر عهده ایران است.
-سپاه هشدار داد که در صورت تکرار حملات آمریکا، پاسخ ایران گسترده‌تر خواهد بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76702)
 
 ---
 
