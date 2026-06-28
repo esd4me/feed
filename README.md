@@ -3,7 +3,27 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
+
+<img src="https://cdn4.telesco.pe/file/Qkr9BZo9npzdE6zmliRTf0TkgTpdbOxnDBKpM493pcHFOeIl--dTScRRt6R7xryIGoYela7ZEWuEfSczEYL7eh3I5Bat2D7fMlYV4-ZhkQ3nrwHacgS50OtFEzBOTQZJ1ZelPGASRExyHk1Lhj_Uy7xZ_Ue5C9CAuP962vo-TYrUWgJT5cl1UlYgQ0mHD3f3FJQW72k3ifIf1b1qJrh79NuFlpUP6cLKkHzuMVs46goLcie_vkKQatd-GSo4EtTPwCLg6DWQZwlY9VVFIfG6Gg1y9cNKfgJssgVDKGDgPsV9SgCi5IrfQpziJJrrBc4Yrg75ck8FdzFfgUurn0Hdvw.jpg" width="400"><br>
+
+بحرین گفت که یک ساختمان مسکونی در استان محرق هدف پهپاد ایران قرار گرفته است اما مجروح یا مصدومی گزارش نشده است.
+تصاویری که دفتر رسانه‌ای پلیس بحرین منتشر کرده است خساراتی را به طبقه فوقانی یک مجتمع آپارتمانی نشان می‌دهد.
+ایران بامداد یکشنبه اعلام کرد که به تلافی حملات آمریکا، پایگاه‌های آن کشور در بحرین و کویت را هدف قرار داده است.
+بحرین و کویت این حملات را محکوم کردند.
+بحرین همچنین خواستار جلسه فوری شورای امنیت برای پاسخگو کردن ایران شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76730)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn4.telesco.pe/file/uQa3LjSr4Im4JMHce5tg4H0sFqZu3g0hr6zql-PmUkfcPwHcMKVae1gdKDaTWQm2oDKxk4w_nuYl0-EXQs08_Uhz_McXDv_g5JrA_xOqxyi7Z9ZucHRPxWBZkQ0pXxP6eTtAMhQSOgBqvYeJyt_SAOe98Fb25baZVf1smSseOIVdK25LLlLN-K0SlH4XU_Lqm0A3Oo_mCnUwC6sVKCEj4QVccXH6rSSflYLxjj3X_N0N-qJiSKahyvkjh1f-9rcmvV9QGhHv31S0P10EkTkMPV8KyKCOsIgs2WvJt2vil_P9zg-cZQgxoGxtCaR5oJ-7TtpV4VlI6BlZmJal4Usuig.jpg" width="400"><br>
 
@@ -23,13 +43,13 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn4.telesco.pe/file/BGTRxgValmvHMu66nVO2SEV3PZNMgzKL9-fcdG2swzWiicZZeEXPD0F5oF-ZznAzCVDbRx_FIQDG5clAmsmloAwPdU7-xmYoYqBC_tX7SG7iFWCpoMDvMAk5T6WFqwoLkPbtKImbg32NPcKjVakoisuozjQh8b8eEbblWrHAtFMVi0pFoKokbCmZZcinEIJk9MLJm7no0CPCL-K27PJymUJwy0dB8VwsCcTVVTMBOzA-96i_qP7TSAUYy7PfcvcnFwVDbeB6PhnH8hBNDWk5cCwnTPoERmnnAoAW6AnPwlwf2cV4D1hbWNcbjc2rl3o-6sYsm8bLl-lvTBEd8NZjbw.jpg" width="400"><br>
 
 مجتبی خامنه‌ای، سومین رهبر [اعلام شده] جمهوری اسلامی، در پیامی مکتوب به مناسبت هفته قوه قضاییه، از دستگاه قضایی خواست پرونده‌های مربوط به آنچه «جنایات آمریکا و اسرائیل» در جنگ‌های سال‌های ۱۴۰۴ و ۱۴۰۵ خواند را با جدیت در محاکم داخلی و بین‌المللی پیگیری کند.
 او در این پیام که به مناسبت سالگرد هفتم تیر و هفته قوه قضاییه منتشر شد از قوه قضاییه خواست رسیدگی به پرونده‌های مربوط به جنگ را تا صدور و اجرای احکام ادامه دهد و مدعی شد چنین روندی می‌تواند از تکرار این‌گونه اقدامات جلوگیری کند.
-مجتبی خامنه‌ای از زمان [اعلام] انتصاب به مقام رهبری جمهوری اسلامی تاکنون در هیچ مراسم عمومی، سخنرانی یا برنامه رسمی حاضر نشده [هیچ صدا و تصویری از اون منتشر نشده] است. سایر مقام‌های حکومت تاکنون توضیحی درباره این موضوع ارائه نکرده‌اند.
+مجتبی خامنه‌ای از زمان [اعلام] انتصاب به مقام رهبری جمهوری اسلامی تاکنون در هیچ مراسم عمومی، سخنرانی یا برنامه رسمی حاضر نشده [و صدا و تصویری هم از اون منتشر نشده] است. سایر مقام‌های حکومت تاکنون توضیحی درباره این موضوع ارائه نکرده‌اند.
 @
 VahidHeadline
 📡
@@ -41,7 +61,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 
 
@@ -60,7 +80,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn4.telesco.pe/file/b7lAbN--qcfrejHXuBe0d2xz1VGNbtfGjQn0RLUCfzDpPNOBEH5eM1YZqF9DmBZy7ljd-NvjfD1f2WDV7dDmtKxTwJYa0wTUBY76ethNaA7gEw5P4qo5fl0Zgwt68aiFRtRTkzkiDLO1MLc6r0bdb2TrHQ4uvmOHCYMA57ktbTVQ8ds12gMlVygEDxdgSEnwUpcoSmXFG5u4zMjMRjeSo2o0NmFuRjcNYu_IIUiPreJpAG4eHSLrEthCihFTfROEaqnOEJUDKUC1d1PFsw9_-oa3XTPX6qnxXBbETEGZb5dAbSZ1IryVRrvmlvIvLjQ1tgjmfANy11noBYCeNbQY0g.jpg" width="400"><br>
 
@@ -78,7 +98,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 
 
@@ -95,7 +115,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn1.telesco.pe/file/M0yCj674nDe34YW7fyUdNBq7l4uAsnlWNGuFaep6-Yux3t6CUhDE6p4yRBBaqFtnSHXoaagXbVXO4SG8hlTXp9jsCZWlTbB--bVT6nxoH6B0imIeSDx73afzDqiFU6wH_tJHC6eDLW4HM5RKzUtG6moQjjens-9JjGA8Oxl3RLf7wrxV7FumhQOM-fwmK1FPwNTTKQ3GeoXYuGSldEg1I7zjEg9CiCVfb7emr7Su2Ogq90G588xQGx-AAtzjWFgfK_jjuq49Dhidek0LYfbqmjkS3neNdwRW-0M8T5DmolGcJ5SL-Gt6eHN7rnZtIogmwSRJynp8l8_yxWGo1Q3KjQ.jpg" width="400"><br>
 
@@ -112,7 +132,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn1.telesco.pe/file/VUsDThUj9MXLgT78QPv677ygLEANDFJ4U_u-gRwU2NSrEMICAwav1Cqoh-9g7GS_e7u54QbfH4hT_Gh98YoQEKxVVWEj0Ncqlg-2rQcoK1PyrAUo-ymUwOXxUis1h3yxgmV5c5uyy_VSgwjJR8LCLuqx1G1y7TsD21STp5sSl1nQAWBfwnrw3vPpZVWhtYvfMtLBUzuNbwLQUHaVwE2QohwIUMhi8sVmK18I9sYkkRf0E_4vKqaNSiqUN__wdvAIOP8oTziA3qf9UB954pR6wOnHytqIwR39R4xcmes_4MVvn3VrbPGNyQwELe1FcpQYW8xxZc_IRmCBXkU1pdQs4A.jpg" width="400"><br>
 
@@ -152,7 +172,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 
 
@@ -172,7 +192,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn1.telesco.pe/file/hruE5TqlVCrbcaAFuaN2tlRsJobuvOupi_kE03cYbtxcgdcE9_PXshcovUUK8btnt5JzBsTQxssh3m4398ktSMMly2yr0FNaAPpmzi2cwXlrC3g-r_LzYY9CbSivli-OkStI_amBiOdGdYmunGsDq9SLEt27wzp6azIf8mQ0ELpp13_jiRPg1heo0TCHN0iabMHHICDk1RAXUpWD4wwXm-I6abiKxxjArValBZEd8NeNyfehaQMQhLQnomQckUu-WySD_gIDVguBHj3k4GCrKL7hrw4CWZmhQA-o9K_fWNfK5OSCY10WPfEucCacleiiOv0Hj1AV30lxbuCegZ7EIw.jpg" width="400"><br>
 
@@ -194,7 +214,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn1.telesco.pe/file/megbstfNZw6UBRCri-TwjWHlnWravmCREW9enruJpQFwoWnIzr6YtZfmT--LevzKlrwThHJcQpmuPt2TjmE8t18KxLjIYWcOQD3HfFaLISYEPE6r5VuYdrvOnsb-hCcacjG8xeYzMpSJE8QEd78CcO8fvvM5dxL2EmSel1xJSgzP48x_n5CYaz4sA6vYU6Dgj65MHT1vGypLAWN_qFvo0udS0klvD0fG_z7KHyKoOwft9DpW6ij1mvaChyQoBh02qUIcMDNViD1kIYNmyICYT3b1lmviewUHFmAarxwP7DtdM3H_nwI1wLd6W1mUfHDuRfubqskiUjBYMrVRJa0Odg.jpg" width="400"><br>
 
@@ -215,7 +235,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 
 
@@ -229,7 +249,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 
 
@@ -254,7 +274,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn1.telesco.pe/file/HO3TIcG4J5Xn_4g0X3SO86HI-ULX2qFNDIhmQiXBYJFhBJlSxfKgG8DTR0UgMUiDa25s5PJptuM7_JVHyXuQ4iIvfd-REhkHB9fDenEB-GJFlQRfcbCg8LhkZSTU7rTKYI3NebdrbYxI4of_qAvYzGPjgV4aALThQX7at-EuAfsXgOVsdqG76g96EMe11C-fQe2XWk_d75QyzM7y5pa3GQ5-eogRVr6T1SUudOukCtzJOSwf21qIYHENC05ecBWwzzmW-vQxgGO-v7Rp0zfraOY__-Sj27koIysuJnW71SiGCd7-rbIvPeiLZzuoAtyxnQTb9qQiEQWF99hr0xnW-g.jpg" width="400"><br>
 
@@ -301,7 +321,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 <img src="https://cdn1.telesco.pe/file/Up7O-uxOzergf33zCbeDxQjpYvKyXabdKyTZHVAau3eHF3p7kR_nGy4zQixu2oNF7Nj_kFKjvsWomsJHOqgUXeSIsYSqhkjBhHDwm92y7qFnGmCETj9R_xtDKn6dmHuXPIjNeMv_Xp4vUGVxmvUwhBwN44h_H31TyKutu4VotyrMUtp8Y5WiTdUP6P9QJfC8Qc6EOk72JyY1Uw_AuOxqvkzJCd5JKXmNp5HPDqeM3yoTa4F3A4c28sdQCIxE3D_uw08hfsmMKJ3eH3OwyA-0qRll5-OIwm_oaw-UiydQHGz1lhMapK8lz2_1g2kmr6ai2iacVc4f3qWq6SrbV0bgdQ.jpg" width="400"><br>
 
@@ -322,7 +342,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-28 19:13:10
+###### 🔵 Updated at: 2026-06-28 20:18:07
 
 
 
@@ -338,124 +358,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76712)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-28 19:13:10
-
-<img src="https://cdn1.telesco.pe/file/pa2hXd6GTLn7T4kzyYS7J5ESTntMkUAbNsoqpily2k_ZpF2TKVphrJYmL2UhrxKwZObj2TkM0ngB9hbG3D8as8ckVqihuI7S96N_SNK_Fwt86bhbfRjo-QioPqPcKZg0jd7EH_9wUsyvwoyGlmn7Xnd1CEdfTy6_1_Y6k5Y0w_9peP5hJ-MbEUDJ3iOrDTO_E5qag0YRjNZFy1qsdacIJs_qKlJ-KQT-hGVL0oltCa1vdE2SIkGDvpmorAIJAK5OAn0k4qmnMQjmiZBxPftFRgIgNlu-x9KhsqrOinu2pmJl_xJOQuRxGt6PHk2z-YNRHKekyThciOImzR3ZjyflmA.jpg" width="400"><br>
-
-پیام‌های دریافتی درباره قطع شدن برق در مناطق مختلف شرق تهران:
-سلام وحید جان
-به طور بی سابقه ای کل برق پیروزی و بلوار ابوذر رفته کلا خاموشه محله های این طرفا
-توی قطعی برقیا هیچوقت اینجوری سابقه نداشته کل محله ها با هم بره کلا شرق خاموشه
-سلام وحید
-ما محله نیروی هوایی ، منطقه ۱۳ تهران هستیم. برقا رفته. و اینجور که از دوستان پرسیدم تا  خیلی جاها برق نداره، حتی برق  چراغ راهنمایی  رانندگی هم قطع شده.
-مثل یه سری که توی جنگ برق ها قطع شد و حمله کرده بودن شده، چشم چشم رو نمیبینه
-سلام وحید جان برق شرق تهران محدوده پیروزی کامل قطع شده
-وحید برق  نارمک هم رفته
-😐
-😑
-نارمکاز پشت بوم دیدم تا جایی که افق دید اجازه میده کلا شرق تو تاریکیه
-برق سمت نظام آبادم کامل رفته همه جا تاریکه
-داداش برق سبلان و نظام آباد و اینام رفته
-سلام برق سبلان هم‌رفته
-سلام، من میدون رسالت تهرانم، تا چشمم میبینه همه جا تاریکه
-بجز مناطق خیلی دورتر
-کل نارمک جنوبی بی برقیم
-سلام ما نارمکیم ولی برق داریم
-نارمک پایین هفت حوض برق هست
-سمت رسالت و سرسبز رفته
-سلام برق جنوب نارمک هم قطع شده فکر کنم پست دوشان تپه مشکل دار شده
-وحیدجان ما نظام آبادیم ولی برق داریم
-البته به بیمارستان امام حسین نزدیکیم
-وحیدجان برق شهید کلاهدوز هم رفت همی الان
-داداش ما کلاهدوزیم دو دقیقه پیش رفت
-همه جا تاریکه
-سلام وحید جان
-محدوده شیخ بهایی تهران خیابان شیراز شمالی هم برق رفت
-سلام وحید جان
-تهرانپارس فلکه اول
-ما برق داریم ولی دارم نگاه میکنم ی سریا ندارن!
-برق خیایان شیخ بهایی شمالی رفت
-انتهای تهران نو سمت اشتیانی و فلکه اطلاعات برق نداریم.
-ما نیروهوایی هستیم برقا تا جایی که میبینیم قطعه
-آقا برق وصله چرا الکی میگن شما هم میزارین مردم همه حالشون بده ترو خدا استرس بیخود ندین
-برق خیابون مدنی،  نظام آباد همچنان قعطه
-نارمک ۴۶ متری غربی برق رفته بود دو سه دقیقه هست که برگشته
-نارمک جنوبی، حوالی میدان شقایق هم برق رفت.
-سلامت میدان ۷۰ و سمنگان هم رفته بود.
-الان بعد ۲۵ دقیقه اومد
-وحید جان سبلان شمالی برق قطعه
-سلام، زرکش وحیدیه برق قطعه
-وحید جان سلام پیروزی چهارراه کوکاکولا برق داره اما کل خیابان نیروی هوایی برق رفته به طوری چشم چشم رو نمیبینه مردم با نور موبایل راه میرن
-برق نظام‌آباد اومد
-ندیدم مجیدیه رو بگند که برق رفته. اینجام نیست
-منتها زنگ زدم و محله بقلی خواجه عبدالله برق هست.
-سلام وحیدجان ما پیروزی سمت خیابون شیوا هستیم برق داریم
-برق مجیدیه و خیابان کرمان از ۸.۲۰ دقیقه کامل قطع شده . تا چشم میبینه برق اطراف قطع شده
-الان. نظام اباد محدوده شرقی امام علی خاموش بود همین الان اومد.
-داداش برقا اومد فک کنم یه بانکی چیزی خالی کردن رفتن دیگه
-🤣
-وحید یرق پیروزی بلوارابوذر اومد
-آپدیت: پیام‌هایی از وصل شدن برق در بعضی از مناطق داره میاد.
-همز‌مان خبرگزاری فارس:
-قطع برق تعدادی از مناطق تهران؛ دلیل مشخص شد
-تعدادی از مناطق تهران از ساعاتی پیش با قطعی برق مواجه شدند.
-پیگیری فارس از توانیر مشخص کرد، مشکل فنی در یکی از پست‌های ۲۳٠ شرق تهران علت قطعی برق است.
-هم‌اکنون تیم‌های عملیاتی و فنی برای رفع مشکل در محل پست حاضر و درحال حل مسئله هستند.
-آپدیت:
-همچنان که خیلی‌ها پیام میدن که برق ما وصل نشده یک عده که برقشون وصل شده بود هم دارند پیام میدن که دوباره قطع شد. شاید به خاطر همون تعمیراته.
-آپدیت ۰۰:۴۰ بامداد یکشنبه:
-خبرگزاری تسنیم:
-برق شرق تهران وصل شد
-رجبی‌مشهدی، معاون وزیر نیرو از رفع خاموشی‌های شرق تهران خبر داد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76711)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-28 19:13:10
-
-<img src="https://cdn4.telesco.pe/file/vrxzm8MVvEL7JdjT5ivij7rtspvv6u1AMxVBcxtK3mFEN6BNfJ9cbNmcAWrq9lVALW6odrLj1sDE2nWEiuZNJtYiNxknMYEAwIoqbdwfU1sqCYI6pysLOPOiUwGiC0A1BdzKg8ybZ9ciqzfccOatnS-6b_lgsgyiSfZF6_jkfaSt-W_uxIocRFt00Yhwi2kp5PCFpoD-m1c0VIgq-Hqg_lysCMV85Yh5jMLWHjg_KMocKwT39sRWtiKwguep9lTxQSYX7weQzhgU-fKNOXFm4Vb-gu0lSIVHzvH8spvSx06yMR6XSdiyUIKpO8A57ul4UUIxemitXOVoVMU_HeeGfA.jpg" width="400"><br>
-
-به گزارش رسانه‌های ایران ارائه خدمات بعضی از بانک‌ها از صبح امروز (شنبه، ۶ تیر ۱۴۰۵) دوباره مختل شده است؛ خبرگزاری ایسنا به بانک‌های ملی و صادرات در این زمینه اشاره کرده است.
-شرکت خدمات انفورماتیک این اختلال را مرتبط با حمله سایبری دانسته است. در اطلاعیه این شرکت آمده است:
-بررسی‌های فنی نشان می‌دهد این اختلال در امتداد آثار حمله سایبری پیشین بر زیرساخت‌های فنی و سامانه‌های متمرکز بانکی پدید آمده است.
-هفته گذشته اعلام شد تمامی اختلال‌های پیش آمده در بانک‌های تجارت، ملی و صادرات برطرف شده است.
-اختلال هفته پیش باعث شده بود که در بعضی موارد، حتی انجام عملیات خرید با کارت‌های بانکی هم امکان‌پذیر نباشد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76710)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-28 19:13:10
-
-<img src="https://cdn4.telesco.pe/file/RQoQMO7P77aiT06gExdQSzoYS2AHbpXFQ276u6wDmYsPoWdSW0XPAQEvIqyzGMC5j0Zz-B8zbco1urpx4CBp11zdMgwgGUx9W-U31Yk5550BmRoL7lmVokCVpVtTU70IAyUSXmM01GYHq7X1DrwCp6kILXlxdTJvHfSXEinrE8Lv6CkN-oBIotkBE905_hxJhiU-uLX8LwA5EhXd7FS99VWdOG8R7UI4d7qHhCi2h0RdIY1dutzGebdu565_X1UeAsfHk2NiVrnl4OVGxyg795EHBml0M8HtoN1dEpR5co8tGARLTiKvMTSS4GOTm8xQJba1-oiPGHnKchaAE0IX-A.jpg" width="400"><br>
-
-بهنام گلخنی، پدر احمد گلخنی، از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴، روز چهارشنبه ۴ تیرماه در باغباد‌ران از توابع استان اصفهان بازداشت شده و با وجود وعده آزادی، همچنان در بازداشت به سر می‌برد.
-کمیته پیگیری خبر داد آقای گلخنی پس از آن بازداشت شد که
-در استوری اینستاگرام خود از مردم دعوت کرده بود تا ظهر عاشورا بر سر مزار جان‌باختگان اعتراضات حضور پیدا کنند.
-بنابر این خبر قرار بود او روز شنبه ۶ تیرماه آزاد شود، اما با گذشت این موعد، همچنان در بازداشت است و اطلاعی از وضعیت پرونده یا اتهام‌های احتمالی او منتشر نشده است.
-احمدرضا (احمد) گلخنی، شهروند ۳۷ تا ۳۹ ساله اهل باغبادران، در جریان اعتراضات دی‌ماه ۱۴۰۴ جان باخت. او مقابل کلانتری باغبادران هدف شلیک مستقیم قرار گرفته بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76709)
 
 ---
 
