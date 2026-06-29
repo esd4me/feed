@@ -3,17 +3,19 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 
 
 (
 ⚠️
-صدای بسیار بلند)
+صدای بلند)
 ویدیوی دریافتی با شرح کلی: "جنوب کشور، جنگ اخیر"
 انفجارهای مهیبی در یک اسکله رو نشون میده.
 از زمان و مکانش اطلاعات بیشتری ندارم، لینک یک صفحه اینستاگرام رو فرستادند که نسخه اصلی این ویدیو رو دیروز بعد از ظهر بدون هیچ توضیحی منتشر کرده و پست دیگری هم نداره.
 Vahid
+آپدیت:
+در پیام‌ها میگن خرمشهره.
 📡
 @VahidOnline
 
@@ -23,7 +25,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn1.telesco.pe/file/TY9zl9n0YPQeZyGBnZBTCPqGMFyKS1v2TzMDCOKvuyLo7RcA_7g9eFLR7bblhb_s5KWwcdAhDYtIf8PNMbS71Kj_llKAj2C5E2c-tiluz8D0lpz3ubVETdYUTWAF7wDoBJ8NzBEyEEowptS5zvR3SjwqYL26akt12x84bxE8kOUgBV_CAJJhezUFbP1K3GqEpw-kFaE8xyUMM6newef8yib5kMpt7buonLJJfg0Q_KmWxHUu3ASHdlNZQj_MyafnkJcMeVKfvKHgkSImMs5yg0jnIdK1Y8rHJ8K4pBiRcYSPf04GhLNvA0SxoKFg0NOXkvmPl4BSiL0YzVx9mVOM1g.jpg" width="400"><br>
 
@@ -43,16 +45,14 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
-<img src="https://cdn1.telesco.pe/file/KwYUk42wOTn_BCnw5TbkGncUtzrXbzzGzwHqOZF5UrOZ8qkvoqqXuWtiOpHw_np-er96r8ajdrQauaX3uWDSobDtMy_KLY9ZU_2piT_XjztlKxVEyQD386FgZ4FXTCBIQYj_XOX0_aHUl70oKY2gdOc2eYu0-ZnPASJBWoT5xtc1WFqQY3dh0Is7IZKrBWjdEH7wIk5JnEiq80PLcqJGO0ixyaNNhyITUFDBUopBpZ23z74kybILr3riBbu9_fC2yKpgt0c6f4g3bd05D_jWoLE5PCArMV4CNjtOpq1IfeYz4uIuviUH9QsJ2ykX5Gbiid6IAqQ4eau1-PSEoNN1yA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/B8346g5u7zlwdiJxBCz7Ay5j93NpZC_syj8Z1abTPi-zFdN4tDHtexErXOkeR7AOiDZQZ3svLW8JQ7_YMi5297TcJ6pT_nSaqp2UXp_POF0XzP5ir8lo_jh_-wAgXrjUGHfhscxA6PiCGYMGe8pqHdvHydtPBlYsDv2rQPWWKCRNo-XIOvBgLkR6mWXZnofS1zCRpkcNCq7GVbH4tr6S5o1yY2dooKLmaubEdcFOTDELx0GD8FIKPpd4bZYObAU07T5HJ93aGCvGDPcRIvSjPLdzmOcWjIKM28X_PU2dHf0wYb2fT_DzeCpJ5Ax2vfk0AMMvRPMwak5gkv59jD8m5g.jpg" width="400"><br>
 
-روزنامه وال‌استریت ژورنال به نقل از منابع آگاه گزارش داد که گفت‌وگوهای آمریکا و جمهوری اسلامی که قرار بود آخر هفته در سوئیس از سر گرفته شود، در پی از سرگیری حملات طرفین به تعویق افتاده است.
-@
-VahidOOnLine
-مهدی فضائلی، عضو دفتر حفظ و نشر آثار رهبر جمهوری اسلامی، اعلام کرد که جمهوری اسلامی در مذاکرات فنی برنامه‌ریزی شده با آمریکا شرکت نکرده و این گفتگوها لغو شده است.
-او شامگاه یکشنبه در گفت‌وگو با صداوسیما گفت قرار بود امروز مذاکرات فنی برگزار شود، اما ایران به دلیل درگیری‌های چند شب گذشته از حضور در این نشست خودداری کرد.
-به گفته فضائلی، دلیل دیگر این تصمیم، انتظار تهران برای روشن شدن اجرای برخی شروط از سوی طرف مقابل، از جمله امکان دسترسی و برداشت از پول‌های بلوکه شده ایران بود.
+پس از آن که روز شنبه - ششم تیر - نزدیک به سه‌چهارم اعضای مجلس ۸۸ نفره خبرگان رهبری در ایران، در بیانیه‌ای شبیه «فتوا» خواستار گرفتن انتقام کشته شدن علی خامنه‌ای، رهبر پیشین جمهوری اسلامی از دونالد ترامپ،‌ رئیس‌جمهور آمریکا و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شدند، دبیرخانه این مجلس روز یکشنبه - هفتم تیر - در اطلاعیه‌ای، این بیانیه را «نامرسوم» خواند و درباره آن توضیحاتی داد.
+در بیانیه روز شنبه که ۶۳ عضو مجلس خبرگان آن را امضاء کرده‌اند، آمده بود که اگر «مسلمانان متدین» به این رهبران آمریکا و اسرائیل دسترسی پیدا کنند، کشتن آن‌ها «وظیفه شرعی» آنان است.
+اما در اطلاعیه روز یکشنبه دبیرخانه مجلس خبرگان آمده که هیئت رئیسه این مجلس مفاد منتشرشده را «غیرمعمول و نامرسوم» توصیف کرده و اعلام کرده است که محتوای آن به بررسی و بحث بیشتر نیازمند است.
+به نظر می‌رسد،‌ اطلاعیه دبیرخانه مجلس از اختلاف نظر و شکاف میان هیئت رئیسه و بخش مهمی از اعضای این مجلس حکایت دارد.
 @
 VahidHeadline
 📡
@@ -64,7 +64,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn4.telesco.pe/file/Qkr9BZo9npzdE6zmliRTf0TkgTpdbOxnDBKpM493pcHFOeIl--dTScRRt6R7xryIGoYela7ZEWuEfSczEYL7eh3I5Bat2D7fMlYV4-ZhkQ3nrwHacgS50OtFEzBOTQZJ1ZelPGASRExyHk1Lhj_Uy7xZ_Ue5C9CAuP962vo-TYrUWgJT5cl1UlYgQ0mHD3f3FJQW72k3ifIf1b1qJrh79NuFlpUP6cLKkHzuMVs46goLcie_vkKQatd-GSo4EtTPwCLg6DWQZwlY9VVFIfG6Gg1y9cNKfgJssgVDKGDgPsV9SgCi5IrfQpziJJrrBc4Yrg75ck8FdzFfgUurn0Hdvw.jpg" width="400"><br>
 
@@ -84,7 +84,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn4.telesco.pe/file/uQa3LjSr4Im4JMHce5tg4H0sFqZu3g0hr6zql-PmUkfcPwHcMKVae1gdKDaTWQm2oDKxk4w_nuYl0-EXQs08_Uhz_McXDv_g5JrA_xOqxyi7Z9ZucHRPxWBZkQ0pXxP6eTtAMhQSOgBqvYeJyt_SAOe98Fb25baZVf1smSseOIVdK25LLlLN-K0SlH4XU_Lqm0A3Oo_mCnUwC6sVKCEj4QVccXH6rSSflYLxjj3X_N0N-qJiSKahyvkjh1f-9rcmvV9QGhHv31S0P10EkTkMPV8KyKCOsIgs2WvJt2vil_P9zg-cZQgxoGxtCaR5oJ-7TtpV4VlI6BlZmJal4Usuig.jpg" width="400"><br>
 
@@ -104,7 +104,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn4.telesco.pe/file/BGTRxgValmvHMu66nVO2SEV3PZNMgzKL9-fcdG2swzWiicZZeEXPD0F5oF-ZznAzCVDbRx_FIQDG5clAmsmloAwPdU7-xmYoYqBC_tX7SG7iFWCpoMDvMAk5T6WFqwoLkPbtKImbg32NPcKjVakoisuozjQh8b8eEbblWrHAtFMVi0pFoKokbCmZZcinEIJk9MLJm7no0CPCL-K27PJymUJwy0dB8VwsCcTVVTMBOzA-96i_qP7TSAUYy7PfcvcnFwVDbeB6PhnH8hBNDWk5cCwnTPoERmnnAoAW6AnPwlwf2cV4D1hbWNcbjc2rl3o-6sYsm8bLl-lvTBEd8NZjbw.jpg" width="400"><br>
 
@@ -122,7 +122,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 
 
@@ -141,7 +141,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn4.telesco.pe/file/b7lAbN--qcfrejHXuBe0d2xz1VGNbtfGjQn0RLUCfzDpPNOBEH5eM1YZqF9DmBZy7ljd-NvjfD1f2WDV7dDmtKxTwJYa0wTUBY76ethNaA7gEw5P4qo5fl0Zgwt68aiFRtRTkzkiDLO1MLc6r0bdb2TrHQ4uvmOHCYMA57ktbTVQ8ds12gMlVygEDxdgSEnwUpcoSmXFG5u4zMjMRjeSo2o0NmFuRjcNYu_IIUiPreJpAG4eHSLrEthCihFTfROEaqnOEJUDKUC1d1PFsw9_-oa3XTPX6qnxXBbETEGZb5dAbSZ1IryVRrvmlvIvLjQ1tgjmfANy11noBYCeNbQY0g.jpg" width="400"><br>
 
@@ -159,7 +159,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 
 
@@ -176,7 +176,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn1.telesco.pe/file/nM3CTewg0mA2lDxO6eK_ts-IzKHREjPDdGFg2bkDd-M7yifFaRgCmU1EtssSOYQ83nJ3xA7b8h2Nv2mAE-hmdAOuOzWIy7rdl-aBGtMn1KkXXVeLndnF0o8dXb6bke8gpo1Uv_urLUcpMOD1wETwYAAOEPXArUdk_mLj6OJRpot2OL6mnjRsebJ9xbGPXSGGI5Rs81Mb0VUFZTxkmAV1gja5c3QI4CGuoMMlZHpyltf7i22SIFI2OXX4Xm-u-Cv-I0ic9jLAXFXxOuoK0KJB3_HCMAAH8veQoiWBhqO2uZqHAstoLVZmR7xtHcJWVQhHrGOQJ4qulOeI4rvxzN6LMw.jpg" width="400"><br>
 
@@ -193,9 +193,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
-<img src="https://cdn1.telesco.pe/file/VUsDThUj9MXLgT78QPv677ygLEANDFJ4U_u-gRwU2NSrEMICAwav1Cqoh-9g7GS_e7u54QbfH4hT_Gh98YoQEKxVVWEj0Ncqlg-2rQcoK1PyrAUo-ymUwOXxUis1h3yxgmV5c5uyy_VSgwjJR8LCLuqx1G1y7TsD21STp5sSl1nQAWBfwnrw3vPpZVWhtYvfMtLBUzuNbwLQUHaVwE2QohwIUMhi8sVmK18I9sYkkRf0E_4vKqaNSiqUN__wdvAIOP8oTziA3qf9UB954pR6wOnHytqIwR39R4xcmes_4MVvn3VrbPGNyQwELe1FcpQYW8xxZc_IRmCBXkU1pdQs4A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NukO8K57APis5I28uf8yAZjgUUxWNGaNJ6GHlo8LaDwBlttbMYdR2lwqiWZV_RT6FkmlPpsgmXQvCiON8MhCzvMPqrNkO7lJv2YkxCYzaY0hgRX0No4fFT4AkUUk-HJrGLzlJiGFdoKkyZAr_BAJ6N8kACIosOfyb5tZOoeIKgRD1vxDZ9HzLufXnf87dhpskidtDGDN3V767-ZBWSIHrQF_oeDFnFqqxT_wQNSUAYfGkCQtPhPj1E3XkQyFaBMGjUI8RZL_z74oA8gUEyMY91wdkMQOXHewu-GooZKO14U3y-PqSXZN12aIa-KkoW_MvbpT0GHZFDm1lq6nSFrHBA.jpg" width="400"><br>
 
 روابط عمومی سپاه پاسداران، با انتشار بیانیه‌ای از حمله مشترک موشکی و پهپادی به مواضع ارتش ایالات متحده در منطقه خبر داد.
 بر اساس این بیانیه، نیروهای دریایی و هوافضای سپاه در ساعت ۲ تا ۳ بامداد یکشنبه، ۷ تیرماه، هشت زیرساخت کلیدی ارتش آمریکا را در پایگاه «علی‌السالم» کویت و ناوگان پنجم دریایی در بندر «سلمان» بحرین هدف قرار داده‌اند.
@@ -233,7 +233,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 
 
@@ -253,7 +253,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn1.telesco.pe/file/IMyhEqS5NQby67X6gA4U-FecbQMQ2WYNbpMx9V7Kdgf_LWzKZ4ub3t6n5KhgWLK0wAhL5Nvgbg2CmqZrSErOJpNpahiiWGQlsFzlQGVgqCeGpWg8RDsf_f3eWFZ7sHuFNEAxUXL8T9MMPdpM8KXhOCqOmvbfcTGDA12fdtSecVBJOaomptxKHbVkkhuYp4GXLNn3j-dgj1wEVYXgH1krzAu7Q22xR9y_y-X18QHeT8vwL_e7_DLtPUPNKrSRewJPr-toiZtPEk1A2SZwz7nmUj3I-O6JefALW84FiHaqjgTmwn99UMoT09-hl5unHsVnAtNYbJazN5Y8o7-Ct-mS1Q.jpg" width="400"><br>
 
@@ -275,7 +275,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn1.telesco.pe/file/oAuw_4lxHZbCTT2tOQc8onYIfyeKPqp61VwwP-9nQY1YNQgwXvP0TbpQTnMKA2UqbiccZM8N4kBbmBY6S558NzRcci0eqFFmp6mrTScsW2y7Ar3T7HRpzRpKLroutEogX5bqOT2IViM_41FqRWu_DWkv0XbHi54KiWqzQGFUeEIU9mgW35ESheOb7Elh964sabS8dHDxZMOEteex8ttPN0yqc7xiVdVAM_qbBIT5oG80uASXi5aU15yTb3zdf_G9KCVMrJy28z-c2p4TxzGYYGXX4qgymALCRXVxhC7oh8ILBh3BcdenTGmeZJDnrP8Q11jema0aiBqAVxxPizyjLA.jpg" width="400"><br>
 
@@ -296,7 +296,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 
 
@@ -310,7 +310,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 
 
@@ -335,7 +335,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-29 05:29:34
+###### 🔵 Updated at: 2026-06-29 10:27:02
 
 <img src="https://cdn1.telesco.pe/file/kMbinelVDVnGijmnpG6O2L-EQ52qq8Fv1AKRAo8IBgZvKf7gv1dqqG5oXoLXoknKrQsBIRWpBw3_75gOrSuuCRVaHotNWSpSwE0ZTk9VVFc96OrgoAmiCxxMUa8GDPfuyrruiLpenB0jkt2LFXDnmAXdpzzhLugmVrbbEs05FA3wAcfRHn0FwkFRcLXSVAXjquoxfBc3LWUD6HliHQhelzDVBOd2Os_OuFJhmWLp6BfV8kDa8vQuQTRYYEan-0s9bIRf71lTWy02Cb4Aa0n22qRZeAL2gJhfxAHxq4VxA0tCaOW-Ley2nogmQ7Ly96kK91NDHqf7MaVNYhbjYumdWA.jpg" width="400"><br>
 
