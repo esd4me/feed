@@ -3,7 +3,27 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
+
+
+
+(
+⚠️
+صدای بسیار بلند)
+ویدیوی دریافتی با شرح کلی: "جنوب کشور، جنگ اخیر"
+انفجارهای مهیبی در یک اسکله رو نشون میده.
+از زمان و مکانش اطلاعات بیشتری ندارم، لینک یک صفحه اینستاگرام رو فرستادند که نسخه اصلی این ویدیو رو دیروز بعد از ظهر بدون هیچ توضیحی منتشر کرده و پست دیگری هم نداره.
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76735)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn1.telesco.pe/file/TY9zl9n0YPQeZyGBnZBTCPqGMFyKS1v2TzMDCOKvuyLo7RcA_7g9eFLR7bblhb_s5KWwcdAhDYtIf8PNMbS71Kj_llKAj2C5E2c-tiluz8D0lpz3ubVETdYUTWAF7wDoBJ8NzBEyEEowptS5zvR3SjwqYL26akt12x84bxE8kOUgBV_CAJJhezUFbP1K3GqEpw-kFaE8xyUMM6newef8yib5kMpt7buonLJJfg0Q_KmWxHUu3ASHdlNZQj_MyafnkJcMeVKfvKHgkSImMs5yg0jnIdK1Y8rHJ8K4pBiRcYSPf04GhLNvA0SxoKFg0NOXkvmPl4BSiL0YzVx9mVOM1g.jpg" width="400"><br>
 
@@ -23,7 +43,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn1.telesco.pe/file/KwYUk42wOTn_BCnw5TbkGncUtzrXbzzGzwHqOZF5UrOZ8qkvoqqXuWtiOpHw_np-er96r8ajdrQauaX3uWDSobDtMy_KLY9ZU_2piT_XjztlKxVEyQD386FgZ4FXTCBIQYj_XOX0_aHUl70oKY2gdOc2eYu0-ZnPASJBWoT5xtc1WFqQY3dh0Is7IZKrBWjdEH7wIk5JnEiq80PLcqJGO0ixyaNNhyITUFDBUopBpZ23z74kybILr3riBbu9_fC2yKpgt0c6f4g3bd05D_jWoLE5PCArMV4CNjtOpq1IfeYz4uIuviUH9QsJ2ykX5Gbiid6IAqQ4eau1-PSEoNN1yA.jpg" width="400"><br>
 
@@ -44,7 +64,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn4.telesco.pe/file/Qkr9BZo9npzdE6zmliRTf0TkgTpdbOxnDBKpM493pcHFOeIl--dTScRRt6R7xryIGoYela7ZEWuEfSczEYL7eh3I5Bat2D7fMlYV4-ZhkQ3nrwHacgS50OtFEzBOTQZJ1ZelPGASRExyHk1Lhj_Uy7xZ_Ue5C9CAuP962vo-TYrUWgJT5cl1UlYgQ0mHD3f3FJQW72k3ifIf1b1qJrh79NuFlpUP6cLKkHzuMVs46goLcie_vkKQatd-GSo4EtTPwCLg6DWQZwlY9VVFIfG6Gg1y9cNKfgJssgVDKGDgPsV9SgCi5IrfQpziJJrrBc4Yrg75ck8FdzFfgUurn0Hdvw.jpg" width="400"><br>
 
@@ -64,7 +84,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn4.telesco.pe/file/uQa3LjSr4Im4JMHce5tg4H0sFqZu3g0hr6zql-PmUkfcPwHcMKVae1gdKDaTWQm2oDKxk4w_nuYl0-EXQs08_Uhz_McXDv_g5JrA_xOqxyi7Z9ZucHRPxWBZkQ0pXxP6eTtAMhQSOgBqvYeJyt_SAOe98Fb25baZVf1smSseOIVdK25LLlLN-K0SlH4XU_Lqm0A3Oo_mCnUwC6sVKCEj4QVccXH6rSSflYLxjj3X_N0N-qJiSKahyvkjh1f-9rcmvV9QGhHv31S0P10EkTkMPV8KyKCOsIgs2WvJt2vil_P9zg-cZQgxoGxtCaR5oJ-7TtpV4VlI6BlZmJal4Usuig.jpg" width="400"><br>
 
@@ -84,7 +104,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn4.telesco.pe/file/BGTRxgValmvHMu66nVO2SEV3PZNMgzKL9-fcdG2swzWiicZZeEXPD0F5oF-ZznAzCVDbRx_FIQDG5clAmsmloAwPdU7-xmYoYqBC_tX7SG7iFWCpoMDvMAk5T6WFqwoLkPbtKImbg32NPcKjVakoisuozjQh8b8eEbblWrHAtFMVi0pFoKokbCmZZcinEIJk9MLJm7no0CPCL-K27PJymUJwy0dB8VwsCcTVVTMBOzA-96i_qP7TSAUYy7PfcvcnFwVDbeB6PhnH8hBNDWk5cCwnTPoERmnnAoAW6AnPwlwf2cV4D1hbWNcbjc2rl3o-6sYsm8bLl-lvTBEd8NZjbw.jpg" width="400"><br>
 
@@ -102,7 +122,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 
 
@@ -121,7 +141,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn4.telesco.pe/file/b7lAbN--qcfrejHXuBe0d2xz1VGNbtfGjQn0RLUCfzDpPNOBEH5eM1YZqF9DmBZy7ljd-NvjfD1f2WDV7dDmtKxTwJYa0wTUBY76ethNaA7gEw5P4qo5fl0Zgwt68aiFRtRTkzkiDLO1MLc6r0bdb2TrHQ4uvmOHCYMA57ktbTVQ8ds12gMlVygEDxdgSEnwUpcoSmXFG5u4zMjMRjeSo2o0NmFuRjcNYu_IIUiPreJpAG4eHSLrEthCihFTfROEaqnOEJUDKUC1d1PFsw9_-oa3XTPX6qnxXBbETEGZb5dAbSZ1IryVRrvmlvIvLjQ1tgjmfANy11noBYCeNbQY0g.jpg" width="400"><br>
 
@@ -139,7 +159,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 
 
@@ -156,7 +176,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn1.telesco.pe/file/nM3CTewg0mA2lDxO6eK_ts-IzKHREjPDdGFg2bkDd-M7yifFaRgCmU1EtssSOYQ83nJ3xA7b8h2Nv2mAE-hmdAOuOzWIy7rdl-aBGtMn1KkXXVeLndnF0o8dXb6bke8gpo1Uv_urLUcpMOD1wETwYAAOEPXArUdk_mLj6OJRpot2OL6mnjRsebJ9xbGPXSGGI5Rs81Mb0VUFZTxkmAV1gja5c3QI4CGuoMMlZHpyltf7i22SIFI2OXX4Xm-u-Cv-I0ic9jLAXFXxOuoK0KJB3_HCMAAH8veQoiWBhqO2uZqHAstoLVZmR7xtHcJWVQhHrGOQJ4qulOeI4rvxzN6LMw.jpg" width="400"><br>
 
@@ -173,7 +193,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn1.telesco.pe/file/VUsDThUj9MXLgT78QPv677ygLEANDFJ4U_u-gRwU2NSrEMICAwav1Cqoh-9g7GS_e7u54QbfH4hT_Gh98YoQEKxVVWEj0Ncqlg-2rQcoK1PyrAUo-ymUwOXxUis1h3yxgmV5c5uyy_VSgwjJR8LCLuqx1G1y7TsD21STp5sSl1nQAWBfwnrw3vPpZVWhtYvfMtLBUzuNbwLQUHaVwE2QohwIUMhi8sVmK18I9sYkkRf0E_4vKqaNSiqUN__wdvAIOP8oTziA3qf9UB954pR6wOnHytqIwR39R4xcmes_4MVvn3VrbPGNyQwELe1FcpQYW8xxZc_IRmCBXkU1pdQs4A.jpg" width="400"><br>
 
@@ -213,7 +233,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 
 
@@ -233,9 +253,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
-<img src="https://cdn1.telesco.pe/file/hruE5TqlVCrbcaAFuaN2tlRsJobuvOupi_kE03cYbtxcgdcE9_PXshcovUUK8btnt5JzBsTQxssh3m4398ktSMMly2yr0FNaAPpmzi2cwXlrC3g-r_LzYY9CbSivli-OkStI_amBiOdGdYmunGsDq9SLEt27wzp6azIf8mQ0ELpp13_jiRPg1heo0TCHN0iabMHHICDk1RAXUpWD4wwXm-I6abiKxxjArValBZEd8NeNyfehaQMQhLQnomQckUu-WySD_gIDVguBHj3k4GCrKL7hrw4CWZmhQA-o9K_fWNfK5OSCY10WPfEucCacleiiOv0Hj1AV30lxbuCegZ7EIw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IMyhEqS5NQby67X6gA4U-FecbQMQ2WYNbpMx9V7Kdgf_LWzKZ4ub3t6n5KhgWLK0wAhL5Nvgbg2CmqZrSErOJpNpahiiWGQlsFzlQGVgqCeGpWg8RDsf_f3eWFZ7sHuFNEAxUXL8T9MMPdpM8KXhOCqOmvbfcTGDA12fdtSecVBJOaomptxKHbVkkhuYp4GXLNn3j-dgj1wEVYXgH1krzAu7Q22xR9y_y-X18QHeT8vwL_e7_DLtPUPNKrSRewJPr-toiZtPEk1A2SZwz7nmUj3I-O6JefALW84FiHaqjgTmwn99UMoT09-hl5unHsVnAtNYbJazN5Y8o7-Ct-mS1Q.jpg" width="400"><br>
 
 اعلام هشدار در کویت
 تصاویر دریافتی
@@ -255,7 +275,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn1.telesco.pe/file/oAuw_4lxHZbCTT2tOQc8onYIfyeKPqp61VwwP-9nQY1YNQgwXvP0TbpQTnMKA2UqbiccZM8N4kBbmBY6S558NzRcci0eqFFmp6mrTScsW2y7Ar3T7HRpzRpKLroutEogX5bqOT2IViM_41FqRWu_DWkv0XbHi54KiWqzQGFUeEIU9mgW35ESheOb7Elh964sabS8dHDxZMOEteex8ttPN0yqc7xiVdVAM_qbBIT5oG80uASXi5aU15yTb3zdf_G9KCVMrJy28z-c2p4TxzGYYGXX4qgymALCRXVxhC7oh8ILBh3BcdenTGmeZJDnrP8Q11jema0aiBqAVxxPizyjLA.jpg" width="400"><br>
 
@@ -276,7 +296,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 
 
@@ -290,7 +310,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 
 
@@ -315,7 +335,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-06-29 03:17:01
+###### 🔵 Updated at: 2026-06-29 05:29:34
 
 <img src="https://cdn1.telesco.pe/file/kMbinelVDVnGijmnpG6O2L-EQ52qq8Fv1AKRAo8IBgZvKf7gv1dqqG5oXoLXoknKrQsBIRWpBw3_75gOrSuuCRVaHotNWSpSwE0ZTk9VVFc96OrgoAmiCxxMUa8GDPfuyrruiLpenB0jkt2LFXDnmAXdpzzhLugmVrbbEs05FA3wAcfRHn0FwkFRcLXSVAXjquoxfBc3LWUD6HliHQhelzDVBOd2Os_OuFJhmWLp6BfV8kDa8vQuQTRYYEan-0s9bIRf71lTWy02Cb4Aa0n22qRZeAL2gJhfxAHxq4VxA0tCaOW-Ley2nogmQ7Ly96kK91NDHqf7MaVNYhbjYumdWA.jpg" width="400"><br>
 
@@ -357,27 +377,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76715)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-29 03:17:01
-
-<img src="https://cdn1.telesco.pe/file/qTWRO83ckvuQbvarf28-nEhKmbbB14lgq1ZPfekmmaRqLilE4uHNKmfw_8wD4yWY1oUBMi78_nvZdLCkA7EydyqdwQWylmG0PD6cdqg2zQ3D_dyqT4TGQUCmKdBz77u8azjenrK2z41TGGhD2PO2M7mCInZbSb4yPRM-KMeIc2rLLTGIPoq0gRHdWHtNQMq-wJXaiFMTe_KLjjhrt_suaYO09Aj7B8sNkX5a3Tlsz_ZzhSjqjFvnwxcdUej3Edn795sB333XO5CcytGPWhzds4XWO2vDVCI4beEZtgnYzmfxsUay6vo3i9c6N6PkYgBwrjuBnstTXjfnQL1a0B6JFw.jpg" width="400"><br>
-
-رسانه‌های ایران بیانیه‌ای با امضای جمعی از اعضای مجلس خبرگان را منتشر کردند که در آن می‌گویند بازگشایی تنگه هرمز «خلاف تعهدات مسئولان است و خطایی راهبردی شمرده می‌شود».
-بر اساس این بیانیه که خبرگزاری‌های تسنیم و فارس، نزدیک به سپاه، آن را منتشر کرده‌اند، ۶۳ نفر از اعضای مجلس خبرگان تداوم حملات اسرائیل در لبنان و «عدم عقب‌نشینی»‌ ارتش این کشور از مناطق جنوبی لبنان را «نقض آشکار» تفاهم‌نامه ایران و آمریکا خوانده و نوشته‌اند بر این اساس بازگشایی تنگه هرمز «خلاف تعهد مسئولان است».
-در بخش دیگری از این بیانیه نیز آمده است «بر هر ملکفی» که به دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، «دسترسی پیدا کند، واجب است آن‌ها را به درک واصل کند».
-این گروه از اعضای مجلس خبرگان همچنین «تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه» را از مطالبات رهبر جمهوری اسلامی برشمرده و هشدار داده‌اند که «هرگونه سهل انگاری در این زمینه» با واکنش مواجه خواهد شد.
-این بیانیه در حالی منتشر می‌شود که اختلاف‌ها در درون طیف‌های سیاسی طرفدار حکومت بر سر تفاهم‌نامه در روزهای اخیر بالا گرفته تا جایی که روز شنبه، نمایندهٔ رهبر جمهوری اسلامی در سپاه، از منتقدان این توافق خواست با «ایجاد اختلاف و لغزش» باعث «سوءاستفادهٔ دشمن» نشوند.
-تفاهم‌نامه ایران و آمریکا به‌گفتهٔ مسعود پزشکیان، رئیس‌جمور ایران، با رأی «بیش از ۹۰ درصد» اعضای شورای عالی امنیت ملی کشور شامل شماری از فرماندهان ارشد سپاه پاسداران تأیید و تصویب شده و مذاکرات برای اجرای آن آغاز شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76713)
 
 ---
 
