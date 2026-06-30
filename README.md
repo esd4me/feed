@@ -3,7 +3,106 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
+
+<img src="https://cdn1.telesco.pe/file/lUHWPsO6H30dhHRXUSozz8ZNqg1TYVBezDdpxRFtHSpRPDlOs8sXpqJ8IO7flsLHGJWeSa9CGdudfK84SHbiUadMW0oj_LqzMsZsHT94DYlIO5hzG_jZMaEoDQ7NK39w6WPZOQNfIogaeUZIsvIPrNDSdS7Z5DbfYasvrPcZ_hHbq8P06prjl3feWPuOdV5l5mkNOPF1VWIPeYVJyO6yCOQXOkeHg3rx24tN2NIcr8zE8doF1HXbNUbYdDeDH6S9UkhVYTkQlrEIhtezJBPJAB7Zew6dlCA0sZ_Lk-zGHcWS1mQ3ryPBsaNZ6wdr9TiZ1FOqLN4uvxI8Nnzg2Y0xAQ.jpg" width="400"><br>
+
+معاون اجرایی مسعود پزشکیان تأیید کرد که فرماندهان نظامی عضو شورای عالی امنیت ملی ایران و دو نمایندهٔ رهبر جمهوری اسلامی در این شورا نیز به تفاهم‌نامهٔ ایران و آمریکا رأی مثبت داده‌اند.
+محمدجعفر قائم‌پناه روز سه‌شنبه نهم تیرماه اعلام کرد در جلسهٔ‌ شعام برای بررسی این تفاهم‌نامه، رئیس‌جمهور، رؤسای مجلس و قوه قضائیه، جانشین رئیس ستاد کل نیروهای مسلح، وزیر کشور، رئیس سازمان برنامه و بودجه، وزیر خارجه، فرمانده کل سپاه پاسداران، فرمانده ارتش، و دو نماینده رهبر جمهوری اسلامی در شورا،
+یعنی سعید جلیلی و محمدباقر ذوالقدر، به این توافق رأی مثبت دادند.
+او این را هم تأیید کرد که مجتبی خامنه‌ای، رهبر جمهوری اسلامی، دستور داده بود جلسهٔ شورای عالی امنیت ملی با حضور فرماندهان ارشد نظامی برگزار شود و در صورت رأی موافق سه‌چهارم اعضا تفاهم‌نامه پذیرفته شود.
+اظهارات معاون اجرایی رئیس‌جمهور در حالی مطرح می‌شود که در روزهای گذشته، پس از انتشار پیام مکتوب مجتبی خامنه‌ای دربارهٔ تفاهم‌نامه، برخی چهره‌های مخالف مذاکرات از سعید جلیلی به‌عنوان «تنها مخالف» تفاهم‌نامه نام برده بودند.
+@
+VahidHeadline
+به گفته معاون اجرایی رییس‌جمهوری، اعضای موافق این تفاهم عبارت بودند از: مسعود پزشکیان، رییس‌جمهوری، محمدباقر قالیباف، رییس مجلس، غلامحسین محسنی اژه‌ای، رییس قوه قضاییه، رییس ستاد کل نیروهای مسلح (که نام او پس از کشته شدن عبدالرحیم موسوی هنوز به‌طور رسمی اعلام نشده است)، اسکندر مومنی، وزیر کشور، حمید پورمحمدی، رییس سازمان برنامه و بودجه، عباس عراقچی، وزیر امور خارجه، فرمانده کل سپاه پاسداران (که نام او نیز تاکنون به‌طور رسمی اعلام نشده)، امیر حاتمی، فرمانده کل ارتش و دو نماینده رهبر جمهوری اسلامی در شورای عالی امنیت ملی.
+قائم‌پناه همچنین از منتقدان داخلی تفاهم‌نامه انتقاد کرد و گفت کسانی که به این توافق رای مثبت داده‌اند، «کمتر از فرماندهان شهید نیستند» و نباید جایگاه یا صلاحیت آنان زیر سؤال برود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76754)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-30 17:00:23
+
+<img src="https://cdn4.telesco.pe/file/eDS17GFTNa9kJDPuzxWdhxmt7H6X1bH4bPl_0TmLGYqW51XQt63p38gabi6Exzl0rKovFBDirlrvS3kW03_sZZ6LnFw2IbJDeIG1T79-1L9o_KeGmBmQBzWETEPD7kAehQZQhbhhzbmbZzscXWhcn2hH-EfrJbgn1LLYhGjLUwfVomPREX4PA_GVfegy1BxLfxdzxl8AasF26gBwqUY35zocXRVPDqb9GMLxVXFkTRRjIiVZ9BIjlQ3gP02eCCBm2CQQ_kIkkw0C3RJqJzw34pN2EQsaW-tKH46u46rgNfeaNKbUreeX6TxlPJCtF78Gb65q-dD75KA-9bEdjxLZng.jpg" width="400"><br>
+
+در این تصویر، محمدرضا شاه پهلوی در جریان بازدید از بانک ملی ایران، با یوسف خوش‌کیش، رئیس وقت بانک ملی، گفت‌وگو می‌کند.
+خوش‌کیش بعدها ریاست بانک مرکزی ایران را عهده‌دار شد و آخرین رئیس‌کل بانک مرکزی پیش از انقلاب ۱۳۵۷ بود.
+پس از انقلاب، خوش کیش بازداشت شد و تنها طی سه روز محاکمه، با اتهاماتی از جمله «ثابت نگه داشتن ارزش ریال در برابر دلار آمریکا به مدت پنج سال»، به اعدام محکوم شد و بامداد ۲۴ مرداد ۱۳۵۹ تیرباران گردید.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76753)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-30 17:00:23
+
+<img src="https://cdn4.telesco.pe/file/boowmKyPq7LzHi6AHDBWrvFppB5JzCq8lZEStKIc059c3HiWqQYQJMzvjPDh5rb4mRH_Qbjgz4UHrvZBZUA_Vc6vtUKjNPZS6_uD6ht4l1-TP7NM24rQyQ7_NEutccnPWivddWrP0s014SGjFGTQr6qzq_H5c25FPckPSHEr_R4Rzm_JSXLucV-HNLi_5BdedL5s1_0z3g5G0_I6Yr4ZrsDPOzAxxlheYXmAJCGHJUeN_E_1LxkfnwuOke4Va_mdMBH3F6MoZVy1Hapr73Npxh7b3My0T2T7LSVESZEKUXTwlT_RycGazc2A5XJRiibEryDwu4JXiZPGBvQvYPrXHg.jpg" width="400"><br>
+
+مسعود پزشکیان مخالفان داخلی تفاهم‌نامهٔ ایران و آمریکا را به «همسویی با عملیات رسانه‌های معاند» متهم کرد و گفت «تمامی مراحل مذاکرات» با «هماهنگی کامل و مستمر» با رهبر جمهوری اسلامی انجام شده است.
+رئیس‌جمهور ایران که روز سه‌شنبه ۹ تیر در دیدار با اعضای جامعه مدرسین حوزه علمیه قم همچنین گفت: «با وجود محدودیت‌ها و ملاحظات امنیتی موجود، متن نهایی توافق پس از بررسی‌های کارشناسی و امنیتی در مراجع ذی‌صلاح مورد ارزیابی قرار گرفت و در شورای عالی امنیت ملی نیز از حمایت قاطع اعضا برخوردار شد.»
+این در حالی است که در روزهای اخیر مخالفت برخی طیف‌های سیاسی طرفدار حکومت با تفاهم‌نامه بالا گرفته و می‌گویند دولت، محمدباقر قالیباف، رئیس هیئت مذاکره‌کنندگان، و حتی برخی فرماندهان ارشد سپاه برخلاف نظر مجتبی خامنه‌ای این تفاهم‌نامه را تصویب کرده و پیش برده‌اند.
+مسعود پزشکیان این دسته از مخالفان «جریان‌های همسو با عملیات روانی رسانه‌ّای معاند» خواند و گفت: «این‌ها تلاش می‌کنند با تخریب تیم مذاکره‌کننده و زیر سؤال بردن تصمیمات ملی، زمینهٔ تضعیف این دستاورد را فراهم کنند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76752)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-30 17:00:23
+
+<img src="https://cdn4.telesco.pe/file/afWLdBc8NRuBGnRrRd5LPx9xt_sx2eDAKBOO7FwP1ftOJwiL_ZJsurZReEKIW87t-v2CIy0cxgPbhsRWw2MJJKzDGPzljSb1wWvLbaBV_SbD1CZcR2Rye37E4JFp3_25aUJmtZWo0tjDwFPW1Yn32uC_3LhZpNKSc63Wf7PAT35co7fpCmP-uzDJyykBpJWaHsSARBxcwS_x2_eNSdr7f_qawcERpwOL5BaggvA-Dkp16ov3AX4Z4j3L6uwcdWs6wcTUJwOBqxs3zgNIc9kroKhGIhdiGXiy-95ZuuVihm2xaQfSaebk3jCWRQQlTxv77feUQZX1SaNYb7Iel7UaGA.jpg" width="400"><br>
+
+بیش از ۱۴ روز از آغاز اختلال در شبکه خدمات برخی از بانک‌های کشور از جمله بانک‌های صادرات، تجارت، ملی و توسعه صادرات می‌گذرد؛ اختلالی که همچنان به‌طور کامل برطرف نشده و ارائه خدمات بانکی را با مشکل مواجه کرده است.
+در این مدت، گزارش‌های مردمی از تداوم کندی، قطعی و ناپایداری سامانه‌های بانکی حکایت دارد؛ این در حالی است که مسئولان بانکی در روزهای گذشته بارها از رفع یا در آستانه رفع بودن مشکل خبر داده بودند.
+ادامه این وضعیت موجب بروز اختلال در انجام تراکنش‌های روزمره از جمله انتقال وجه، دریافت حقوق و پرداخت اقساط برای بسیاری از شهروندان شده است.
+هم‌زمان، کسب‌وکارهای خرد و متوسط نیز با مشکلاتی در دریافت مطالبات و انجام پرداخت‌ها مواجه شده‌اند؛ موضوعی که به گفته فعالان اقتصادی، بر روند فعالیت روزانه آن‌ها تأثیر گذاشته است.
+در همین ارتباط، محمدرضا عارف، معاون اول رییس جمهوری، در جلسه‌ای با مدیران بانکی با اشاره به اختلال‌های اخیر گفت: «آنچه در بانک‌ها رخ داد نتیجه سهل‌انگاری در حوزه امنیت سایبری است و این موضوع قابل پیش‌بینی بود.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76751)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-30 17:00:23
+
+<img src="https://cdn1.telesco.pe/file/NcB5UIF7hx6RMlCafRcZhRuu9g2VpopIxAJ_g1e9rdN9162HA5MfhxlLn2TE9eTpXLxsICmuM3EbvmPMPHngvF50MqIR8SlBJU0QUhVaur79gB0lHi4p6WakFMFflSiigSfIJqxMTqzvzBQC7eUddobB60qbesfQ7EIYbimHD4MuvKVHt2EUQ6_99dmamXQ0rHLU_-MroKuuNu1-cz-x4QWAJdm9oVhKJ3unhqWiA2SxLoByX37Lk4PAm2neJxb4J7XX2xMaXUNaMKb0FVJy3x65mdFX-GvKuqXJLvDf6eHtERrdC3nu4yANxun2sHzG-UbQ2-meuqudVHnEoOicJA.jpg" width="400"><br>
+
+رضوانه احمدخان‌بیگی، فعال مدنی، جهت تحمل ادامه دوران محکومیت حبس، به همراه فرزند خردسال خود راهی زندان اوین شد.
+براساس اطلاعات دریافتی هرانا، رضوانه احمدخان‌ بیگی، دوشنبه ۸ تیرماه، به همراه دختر خردسالش، مهفر لاله‌زاری که زیر دو سال سن دارد، برای تحمل ادامه دوران محکومیت حبس خود راهی زندان اوین شد.
+این زندانی سیاسی در تاریخ ۲۸ شهریور ۱۴۰۳ جهت زایمان از زندان اوین به مرخصی اعزام شده بود.
+رضوانه احمدخان بیگی و همسرش بهفر لاله زاری در دی ماه ۱۴۰۲ به اتهام اجتماع و تبانی علیه امنیت داخلی و تبلیغ علیه نظام به ۱۰ سال زندان محکوم شدند. این حکم در اسفندماه همان سال تأیید شد و بعد از پذیرش اعاده دادرسی و رسیدگی در شعبه هم عرض به ۲۱ ماه حبس کاهش یافت.
+hra_news
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76750)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
 <img src="https://cdn4.telesco.pe/file/XnmE9dVdi78doB6kX4j9QvSpdKylQO9Mq0fEBqICLlOJx55LHsmX2VYrcuFfauTxXqqGPuq0wGVVoOIOOG_QTumCz8SHtofkJl1xrCsyF6llvMjEUMARFIZuXDyIkynNnhZo4tPwN0FyUQiHXM_XUCRUP1bZUq1qm_sc9KUCzFgX8Ks-iwQlFGw7Fwbd8ds4GmZKT5QxndvC6vJITyie-2p-ORpOTzAVUm-rCfUsMwFRJqDTfTteQm2vBKbVbcI-SeRjP-CcYf1380qODO38u0UWnMytEIdlivagnsYJgSOWJbz89iWxhRY7MFbgegD-t99kOVxZm9CFG960OEZ_Vg.jpg" width="400"><br>
 
@@ -22,7 +121,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
 <img src="https://cdn4.telesco.pe/file/HbWkrSjHNZL-6hhJvyRac_JVgYbKZEzY_6GnPY8ItrPDEkqmhfhSFeXEbMOfMXsEd23YrZbk56WpE6Ur042tRuR34AThfvRfoIvUeQwRLJkO07c3FNIN2gyYq0SRHofQyIF3E831s1McBY_UeF0MzChtWY6dLbLVi6f-Gki-oazy0NMFD8KSZgDkeYidC8BeZMH9n9AL6LNnGD55ipOaUh6fSkyqWy_7GYgxQj9MOCz-rVv1ME2GMk6iEaN_i8zgOFMayrTAVuQBp53VyaQn6r-4kZLQeWalIz9PlyDcjawVC5oWlUcLDVIBYjgiXf2h1U3BYPOtma11mI0Cq2QVXg.jpg" width="400"><br>
 
@@ -42,7 +141,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
 <img src="https://cdn1.telesco.pe/file/hhV5YykCQt4Ec4afsKB3-CpkTaawlLQMvIRZM_fzD65BC-0vv3lLF3pX53N-XDeat1y8I5JdYsrV3ni8nV3hYu4w1x-aycMMbIoLYMeLXa_qXL6zomrf_peIttVA_LyjmXkW3nEJIwJlEeilbtGndsoFsaj1sTqMcTLPJYZ2BlvuxKoYAli0lgZsLDvkY4rzLwGb3YhE4MB4toHTdMkLnjK0VbXLhroL6P5vyhL3wOXrhIrqcO5XjhsYYAF--5G9ghpj16ZKS6GMmF6nKbkOAPMIKQ40CBPaWwBiRP5bw4ND6q0KJ_kIIliOSzd-vhGEu2uRZ4UH0RRrF-xHuZ1jQQ.jpg" width="400"><br>
 
@@ -60,7 +159,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
 <img src="https://cdn4.telesco.pe/file/L8thB-H5TYNNu7Dt21rI6zLRpAmmsbn7hkud3lt8hO8r7qam4tw9Iur5fs1tA32c1CLTCxQE-GoIwvydtFMSJ_JpCG-9mn9IPLw3SEJeDW86uw_bSDRVicMXQ3Ljye7EQeKB6-CqNUKNnB53gGZXYBv1tOj1eh8B4l1w1XyuXhhZBOlyMTjTjiKvqMRoOls8WdAEjU-5EvvjD_k0SMFTO8hNB-053ZXToah35lyOTccc52qoUogPluk7-IEI8PZpJCc1grr2FT9nNqqZ_1iu0iocqXIpmpF8zGxlchX0ARPYQpI61hv21sCh4clLR47LqI1yLiLqkZLzfLxua9HFQQ.jpg" width="400"><br>
 
@@ -79,7 +178,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
 <img src="https://cdn1.telesco.pe/file/Az7brEX0nNzt3N1-r_sf_3kvyxeaZTdNgtF7ncNJR2oazrxb-iPKtduAgphuXwX0vIyx9gpIjhpBMDW5357lRJvindmM4xBQL6EJ9jzbZyq70Y_zeLsQ3PcB_TghZjpgk14L4VbQ9laUr2Tk1WGaz3Elq99FJ6CeipFCR2kI-KuTuC2mEQjDCeV1g7S7P1Zs6gq9pM6lMq9WUTxhUkZacW_1u-4Tfgv_yguwC3D_hHbK0BslLdDkRHx4b7eH8JjQ_KlgMbJJgtn7SVCO-zbnSbhBcpLENS9ObRyqNLtGPt1mTtvzYUslx8R5a7ETdeE5Z9u3Vl9OiM-kL4eYISUsxg.jpg" width="400"><br>
 
@@ -97,9 +196,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
-<img src="https://cdn1.telesco.pe/file/W44LC14yc9y8HRnkIU-XtXIZL671QGXuLwdrK1o7OEEfN0qdAlGrV3soPj-VTxOfDad0vZkQe7g-dxmlH9rqhsIggnkqqdd86VOFJIOj-8Mg-AtvIBe5LiiAv9LS6wMiOEmrYhMzTWNP_oFIeI45Zc4q34Wp7iKaCTGt6nexTJd8sIPYl3vSbz5o59u8Z57c6XM0XMn9PT0C4mKYAKW1MPXumRihW8p97NViHW0DzSSY1EvH1Ozr4_cQxUtHiaRBFrFNdxd88IUPTSFJFQk0hpmUZY13gawD-byZYodT9NwwvVBA2eqPnZaCaKql8YyL8NkzX7RvJytVj5EWMC_g5g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jdK7fMo3lJRKMSW_lRBUK-4XOMCOxil9kS6zAdU3cCVSsRPUJXWD1Guxf7k0yBEl-hnqQIFu3b0dnF9cqQQ4DMlI4Dzbs9qkb2P2bPIf0BQc33ul2Sq0LbIDlOkCTo74pmp8aSrIjvTKiQJZxcI_HC1-GS_qiJhQotx0sOnRvf28Vw7uvhbryh7gp4OneZnN5m5t5OeauWQr_LuR972OignN-njH51O4VXoU3ZiQ8APB1RlRwfZWa5x7T_faI4wSf7WYAyGMO-cFHGKitsP9Wmy_VsKut9W0wp1kMv1FAu4izYvaSu9_ya3iC4BE5z6avctR3BW3Ov6OYHFowIt6qg.jpg" width="400"><br>
 
 پست عراقچی با فوتبال، ترجمه ماشین: از زمین فوتبال تا میز مذاکره و تا میدان نبرد، هر گامی که ما ایرانیان برمی‌داریم، بخشی از مبارزه‌ای بزرگ‌تر است: دفاع از شرافت و کرامت مردم عزیزمان. araghchi
 📡
@@ -111,9 +210,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
-<img src="https://cdn1.telesco.pe/file/jFLYVj9n7Kua9T0viJX9W9Jk3oMsVByexLhturDXzRdhpYSt6PYLuYJCHG22qt2rzvQacvVZ3xhIdeWMOn64zqeGTEJg-uPt-PNLuJZ8TF-H2la1ViVk3CcOvpiMxEgmaKY21B2pSjQb6e2m6sJ14MANKc-5-FqjIjpb1Brj-Jn5VqejBXw3djBa-PA_NqGSY2fLWMXUVyVijUWRuK3zlRhDYEoC0jtloR8XE2xbEfFQzWAvLPziYYIPApi6xdCEVeKJMqbI413yAeoX3WCs5p9nXK8ic5BAGTOxachUTZZRL8kRflSi3giouRyZZUKzsmSXi2jQwXs1Sh7cV36Okg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/av7CfGSVycMYyogotulbmz6vJSXpSPFoHDLumY7wYxw4FkXdjzrkqt_w5GC-8GgK1E4sXPg4EtpaB2p6uvjWHTSlURvF-qIXG-ytS-0Yyv85VbXkb_XWs482AkF3CVhHx4GBebYsxYGMV_ezuEpM1YFySoW7KjsfEcpuXnlEKjJptDZnkmGY8O5z3pV9WTk4s9gD6qnvNrDX_Fq8b62fYwd6JpajR3IcrstobMBz64rycr7crdW11PIjaQuat4vZlHunMg2EMCk1PUog3Fh052TRrzGEQv8x7QWsovrEZm1FVi3ascGFQKqGqrbOiHi3wdx5OvvkkB455Xu0mE1kuA.jpg" width="400"><br>
 
 دونالد ترامپ در پستی نوشت: «ایران درخواست دیدار کرده است. (این دیدار) فردا در دوحه خواهد بود.»
 پیشتر کاظم غریب‌آبادی، مسئول تیم فنی مذاکره‌کننده جمهوری اسلامی، گزارش برخی رسانه‌ها مبنی بر برنامه تهران و واشنگتن برای مذاکره در روز سه‌شنبه را تکذیب کرده بود.
@@ -141,9 +240,9 @@ BarakRavid
 
 
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
-<img src="https://cdn4.telesco.pe/file/sUCnjvC4-WCzpvkkBDjr7HRi3ItMNU_bzBMlm8N6YDroMW9-BN33dopvcfU6GW4PEk1PAPmHdI6QnNkPnWs-59oGwz__MCr-Q1S3dJjpHESsPWJ_vV6Tt1b98zLpGlHveJnXIvh7F7CZi3Hh2-CR8TrNm0-223kmqOr_VpObhg0b9MciAULct0HPK-ogvAOM21CpUjV5KdC3GSbFj5vvfv2oR--vuEbYr-IfMKYpo3Qrzkx3P8dej5G7xNC_wZZsopHm-PGPV_yokdhx2W479pA_oK7SbTmHYEmsWeNxPAfRNSRaJHyyytqhl_jATf0n43L8p39x6M5Z7T_LwsEU0w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ssznjuKv-z3rh6C87L7bPK1kFc60shdX1FJXLDaIBSD4IYspXn8fvcOAtO2AHCOYcRwKb9Dr-PIpH1BRXBgtF5-W_ZlKHsvFXL2PbJjj8VXRAJrI3gDwrtRkgww-OQhHEigbcHdq27Bc9ODXNN-gTB4s0bJ6f8Fs5Nbm8s9DlyWQFQuhHpy2fSSnWsdwOg8H-RhJSOgguz3rBDJ0OYjtU0gmyLAEsRVOQq27lWdDtt5KvtEngNoMW6Buby_l-vqpZHiCqkrMeYd6GNYzWCxSYJ163ITJzS3HgA7DBxVxzdXDBFvJtXniWPXK9fuJM9A9jS6Ne7_9e1m_of8tDCsb_w.jpg" width="400"><br>
 
 رئیس‌جمهوری اسلامی ایران روز دوشنبه هشتم تیرماه گفت: «براساس برنامه‌ریزی‌های انجام‌شده، شش میلیارد دلار از مجموع ۱۲ میلیارد دلار منابع ایران در قطر آزاد و به کشور بازگردانده خواهد شد».
 مسعود پزشکیان در دیدار با شبیری زنجانی از مراجع تقلید شیعیان در قم گفت: «برای بازگشت بخش باقی‌مانده این منابع نیز پیگیری‌های لازم در حال انجام است».
@@ -159,9 +258,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 15:17:29
+###### 🔵 Updated at: 2026-06-30 17:00:23
 
-<img src="https://cdn4.telesco.pe/file/TkVpeCwIIcxlbrEOosAtiCXwklpMEV5H3ph3DnNyEmgFNUUfoaHY9zQ02tEsaJb1cTvT2fbz4-SjiQPgts3qQepzZNU-8Vl0uGOsVctlzx1W0CcxgxjQSnzHnTp2b7NLsTn7jFq9VwIVY_eFoGHEUTfS7LA_2mJLHciJlTbvOnl-K9fWDFxk5TEfdRFTBvHB8JwNWhkk-O-nPDvySkuxNIhRaX7nYKkZSISjNQRXVMGAK1kMnQTeZtljegrL0q_PYVJ2x2RVJ1Jd9JQRnKR9ksypIyXGDpUv9r4FDAUYYGAn6YA06Q0VWO1uj5Or-owvPbYRFD6c2OjisqxQlBIXew.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/lJX8JoCbKdaPKChRg96eKc0b2WS4HEsyI45-x7VhHF4XMfAMHMTOd2HnrqRIhfJ3whMHPYhoC9fYPO65GNBj1Nq6TDmiX_q-z5xWqRlSF8j6qCCHwQEAFyffwspmd55c4LSl-ePv1PCC4MSCsIlPJyWvzPJFcTu3fh1VTVKFhS-GUBhEFjIc3yiiUsNbgTbNBBi2Y2adTCg-nue26AK-9oJQCevbFdYzBITM5pxY_QNkeqT4j801X0rU5lEkMaUA9kvyCUp5IGEHPULIcyFOIM41D-ay-BgCSF6cCi2m2kG5GTbzMjbFtCeCvN5FtihRH8oeggqYvr2n623w8oKMUQ.jpg" width="400"><br>
 
 🔴
 مبین یعقوب‌زاده یک سال بود که مادرش را از دست داده بود، زمانی که  تنها ۱۷ سال داشت، در ۱۷ دی ۱۴۰۴، در اعتراضات خشکبیجار رشت، با شلیک نیروهای امنیتی کشته شد.
@@ -171,87 +270,6 @@ https://www.iranrights.org/fa/memorial/story/-9117/mobin-yaqubzadeh
 @IranRights
 
 [View Post](https://t.me/VahidOnline/76736)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-30 15:17:29
-
-
-
-(
-⚠️
-صدای بلند)
-ویدیوی دریافتی با شرح کلی: "جنوب کشور، جنگ اخیر"
-انفجارهای مهیبی در یک اسکله رو نشون میده.
-از زمان و مکانش اطلاعات بیشتری ندارم، لینک یک صفحه اینستاگرام رو فرستادند که نسخه اصلی این ویدیو رو دیروز بعد از ظهر بدون هیچ توضیحی منتشر کرده و پست دیگری هم نداره.
-Vahid
-آپدیت:
-در پیام‌ها میگن خرمشهره.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76735)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-30 15:17:29
-
-<img src="https://cdn1.telesco.pe/file/pQyM-z216Fc9vnAkqVpw5TGxU7X-xMpdCyI2lBvpBVmMYiuz6xyNDO1dowvrnylPXP88n3YjDtMZLif1rvdqlHYbbdsIAGusnVZx-QRRWJbKo47-0JMnqHs_PKyhe0Bw6pJbSffr_g02-zZhGOhNWEVF51MX_5ae_fnzJVUj6n8dltEFGbk3inliAaG3ms_TrFVw6a0HiJ71QHsyMxvPQFoFs98Mhb3qWDLRRohkxxfBr7AGEmmUAT2L5e5XyjA9LRvjq7udJzsu8yyNWUFrgUjgwYbt6d9kNU2NeZTdCVYMMFOdfGz2pv4GF7oCsO2usT8B4R0Fa2KoRIiwCkSobw.jpg" width="400"><br>
-
-آکسیوس در نخستین ساعت بامداد دوشنبه هشتم تیرماه به وقت تهران (عصر یکشنبه به وقت آمریکا) به نقل از یک مقام ارشد آمریکایی گزارش کرد که ایالات متحده و ایران موافقت کرده‌اند که حملات علیه یکدیگر را متوقف کنند.
-براساس این گزارش دو طرف قصد دارند روز سه‌شنبه در پایتخت قطر دیدار کنند تا به اختلافات خود در مورد تنگه هرمز رسیدگی کنند.
-براساس گزارش باراک راوید یک مقام ارشد آمریکایی گفت: «ما تصمیم گرفتیم تمام فعالیت‌های «رزمی» (جنبشی/kinetic) را متوقف کنیم».
-همزمان یک مقام دیگر آمریکایی هم به آکسیوس گفت که هر دو طرف «فعلا» عقب‌نشینی خواهند کرد و «شناورها می‌توانند آزادانه حرکت کنند» چرا که قرار است گفتگوهای فنی ادامه یابد.
-هر دو مقام آمریکایی و یک منبع سوم آگاه، دیدار برنامه‌ریزی‌شده برای روز سه‌شنبه را تایید کردند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76734)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-30 15:17:29
-
-<img src="https://cdn1.telesco.pe/file/INzDVW4kwOGgdOuLhJB_ddz3oUx6LlIIcSLh6f0FX0wHhtCaVaBD4PVX3Ujd566Izg5eZALyNs9f5Ui8AKswpm5PfvOkmULRdMXj4WsYFKp0DNx_6WqN5-nlRhlqJPLE2B1tXm5YyS4qNIaBpLZ2QzZ1NZJE8ag0Aw8uIxc6Vgyy0ZFVDhc0Kd52dY3PUtbk-oqm80SAD80zCpewdf10fZxHTK9YNYQqOBmGZaUu7Q_OXTs8zV-ajuqmrgy0_HM0UDXAJ87MLnuvmK0i18PIrTLTjCjIAQp4X_BsjgBe6NWkBoZtJj8hlSJ8NASR9TEy-zgbPxjbYNWPZajSE5vJhQ.jpg" width="400"><br>
-
-پس از آن که روز شنبه - ششم تیر - نزدیک به سه‌چهارم اعضای مجلس ۸۸ نفره خبرگان رهبری در ایران، در بیانیه‌ای شبیه «فتوا» خواستار گرفتن انتقام کشته شدن علی خامنه‌ای، رهبر پیشین جمهوری اسلامی از دونالد ترامپ،‌ رئیس‌جمهور آمریکا و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شدند، دبیرخانه این مجلس روز یکشنبه - هفتم تیر - در اطلاعیه‌ای، این بیانیه را «نامرسوم» خواند و درباره آن توضیحاتی داد.
-در بیانیه روز شنبه که ۶۳ عضو مجلس خبرگان آن را امضاء کرده‌اند، آمده بود که اگر «مسلمانان متدین» به این رهبران آمریکا و اسرائیل دسترسی پیدا کنند، کشتن آن‌ها «وظیفه شرعی» آنان است.
-اما در اطلاعیه روز یکشنبه دبیرخانه مجلس خبرگان آمده که هیئت رئیسه این مجلس مفاد منتشرشده را «غیرمعمول و نامرسوم» توصیف کرده و اعلام کرده است که محتوای آن به بررسی و بحث بیشتر نیازمند است.
-به نظر می‌رسد،‌ اطلاعیه دبیرخانه مجلس از اختلاف نظر و شکاف میان هیئت رئیسه و بخش مهمی از اعضای این مجلس حکایت دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76733)
-
----
-
-
-
-###### 🔵 Updated at: 2026-06-30 15:17:29
-
-<img src="https://cdn4.telesco.pe/file/lVhplFC9ksCcRg7sg8ElqGArTUKxnxXw5Y1F9iyOqI9yBoHnglqIYiFB7h83Qi_8jBSRwugAyCk3uvRXhiaG9j9DmCRvXIo13nPkZpdQCWa4iCdImgZdogBjc4-F6oKgs0wic7vlunYP39QXdxzNmqPrkbsZ75skPWOZ3Oy_htJYj77O6OUBoNRZMVnF9G4Wl2iDvb-tVxd_4tzE00YPxXPmXoPdh7cp9r4foFjLVX9pkSpKkdVT61ACEmmR-af4Afmesag1oeRDWFSJl9Nd2mPmBf7AnGB9misSDixp91bKjwzdlQLrA9KN88F42ooNzhXqRuklDrXXkXy0ETWwew.jpg" width="400"><br>
-
-بحرین گفت که یک ساختمان مسکونی در استان محرق هدف پهپاد ایران قرار گرفته است اما مجروح یا مصدومی گزارش نشده است.
-تصاویری که دفتر رسانه‌ای پلیس بحرین منتشر کرده است خساراتی را به طبقه فوقانی یک مجتمع آپارتمانی نشان می‌دهد.
-ایران بامداد یکشنبه اعلام کرد که به تلافی حملات آمریکا، پایگاه‌های آن کشور در بحرین و کویت را هدف قرار داده است.
-بحرین و کویت این حملات را محکوم کردند.
-بحرین همچنین خواستار جلسه فوری شورای امنیت برای پاسخگو کردن ایران شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76730)
 
 ---
 
