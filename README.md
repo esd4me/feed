@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/UGl7sxf08mD_kZTQzbhSia6kFd6urwJNg6jOfoYC96G2JZfXPCc5wtJ2TEMoJ9W4Z0wn89sKLuvlgqbM4BlZdmIoaU9DrgpEllrJpjV5XOP8Ckp7ohg2wuZQeGdQfF6Mzc2m9gPKkyW0CovsPAelkPDsCq-XW5g7U7zag8mYLZpIWqSa-E2G61SRbxBjQjpDHu7tR3A9qa7zf3jsSCq4vX_4RvCfn-DgPEeyaX4XT44KvVbOrUOpw7wYyhZ46I2zBWRVFZqDxDnfI-0X4gGa4K_yMbEK09P99Y1mJ4GQgDf4XnBn2Vv1w8CCrKf5oxXX_SJVMttydnzp3k6RGYkIAg.jpg" width="400"><br>
 
@@ -21,7 +21,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/NVfLrX75Bj57hbhWkfv9yH-9ENGrNeM6WGnxD779UM-rSvH9iRXACOPktLbRUlDu0RltyWKyKw3U5A_P7S4RkWXkXgdCAV0lf24wkCFY2EDx9vHytviUuiod5pw6kiwsytMn-56qkwFPI8DvjjYMt3oIeSsMbVfVX5DjAnIKmxMdZYJTKwUm7VWzCQF4vt1xv-uJShjS3Adhho3Tez_eqmLPwlM_BUgK8R2RWuuHRtPdRKGS8H_5HOy0TclcIwqUzYdb_RJzxnC8FBAZaaS1s3mio7f7kEocvoXrZ2DUPGUcplmYbxgsPiha0GCcrJQKDW77uHrSmZhd1WskYxj10w.jpg" width="400"><br>
 
@@ -39,7 +39,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn1.telesco.pe/file/lUHWPsO6H30dhHRXUSozz8ZNqg1TYVBezDdpxRFtHSpRPDlOs8sXpqJ8IO7flsLHGJWeSa9CGdudfK84SHbiUadMW0oj_LqzMsZsHT94DYlIO5hzG_jZMaEoDQ7NK39w6WPZOQNfIogaeUZIsvIPrNDSdS7Z5DbfYasvrPcZ_hHbq8P06prjl3feWPuOdV5l5mkNOPF1VWIPeYVJyO6yCOQXOkeHg3rx24tN2NIcr8zE8doF1HXbNUbYdDeDH6S9UkhVYTkQlrEIhtezJBPJAB7Zew6dlCA0sZ_Lk-zGHcWS1mQ3ryPBsaNZ6wdr9TiZ1FOqLN4uvxI8Nnzg2Y0xAQ.jpg" width="400"><br>
 
@@ -63,7 +63,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/eDS17GFTNa9kJDPuzxWdhxmt7H6X1bH4bPl_0TmLGYqW51XQt63p38gabi6Exzl0rKovFBDirlrvS3kW03_sZZ6LnFw2IbJDeIG1T79-1L9o_KeGmBmQBzWETEPD7kAehQZQhbhhzbmbZzscXWhcn2hH-EfrJbgn1LLYhGjLUwfVomPREX4PA_GVfegy1BxLfxdzxl8AasF26gBwqUY35zocXRVPDqb9GMLxVXFkTRRjIiVZ9BIjlQ3gP02eCCBm2CQQ_kIkkw0C3RJqJzw34pN2EQsaW-tKH46u46rgNfeaNKbUreeX6TxlPJCtF78Gb65q-dD75KA-9bEdjxLZng.jpg" width="400"><br>
 
@@ -81,7 +81,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/boowmKyPq7LzHi6AHDBWrvFppB5JzCq8lZEStKIc059c3HiWqQYQJMzvjPDh5rb4mRH_Qbjgz4UHrvZBZUA_Vc6vtUKjNPZS6_uD6ht4l1-TP7NM24rQyQ7_NEutccnPWivddWrP0s014SGjFGTQr6qzq_H5c25FPckPSHEr_R4Rzm_JSXLucV-HNLi_5BdedL5s1_0z3g5G0_I6Yr4ZrsDPOzAxxlheYXmAJCGHJUeN_E_1LxkfnwuOke4Va_mdMBH3F6MoZVy1Hapr73Npxh7b3My0T2T7LSVESZEKUXTwlT_RycGazc2A5XJRiibEryDwu4JXiZPGBvQvYPrXHg.jpg" width="400"><br>
 
@@ -100,7 +100,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/afWLdBc8NRuBGnRrRd5LPx9xt_sx2eDAKBOO7FwP1ftOJwiL_ZJsurZReEKIW87t-v2CIy0cxgPbhsRWw2MJJKzDGPzljSb1wWvLbaBV_SbD1CZcR2Rye37E4JFp3_25aUJmtZWo0tjDwFPW1Yn32uC_3LhZpNKSc63Wf7PAT35co7fpCmP-uzDJyykBpJWaHsSARBxcwS_x2_eNSdr7f_qawcERpwOL5BaggvA-Dkp16ov3AX4Z4j3L6uwcdWs6wcTUJwOBqxs3zgNIc9kroKhGIhdiGXiy-95ZuuVihm2xaQfSaebk3jCWRQQlTxv77feUQZX1SaNYb7Iel7UaGA.jpg" width="400"><br>
 
@@ -120,7 +120,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn1.telesco.pe/file/NcB5UIF7hx6RMlCafRcZhRuu9g2VpopIxAJ_g1e9rdN9162HA5MfhxlLn2TE9eTpXLxsICmuM3EbvmPMPHngvF50MqIR8SlBJU0QUhVaur79gB0lHi4p6WakFMFflSiigSfIJqxMTqzvzBQC7eUddobB60qbesfQ7EIYbimHD4MuvKVHt2EUQ6_99dmamXQ0rHLU_-MroKuuNu1-cz-x4QWAJdm9oVhKJ3unhqWiA2SxLoByX37Lk4PAm2neJxb4J7XX2xMaXUNaMKb0FVJy3x65mdFX-GvKuqXJLvDf6eHtERrdC3nu4yANxun2sHzG-UbQ2-meuqudVHnEoOicJA.jpg" width="400"><br>
 
@@ -141,7 +141,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/XnmE9dVdi78doB6kX4j9QvSpdKylQO9Mq0fEBqICLlOJx55LHsmX2VYrcuFfauTxXqqGPuq0wGVVoOIOOG_QTumCz8SHtofkJl1xrCsyF6llvMjEUMARFIZuXDyIkynNnhZo4tPwN0FyUQiHXM_XUCRUP1bZUq1qm_sc9KUCzFgX8Ks-iwQlFGw7Fwbd8ds4GmZKT5QxndvC6vJITyie-2p-ORpOTzAVUm-rCfUsMwFRJqDTfTteQm2vBKbVbcI-SeRjP-CcYf1380qODO38u0UWnMytEIdlivagnsYJgSOWJbz89iWxhRY7MFbgegD-t99kOVxZm9CFG960OEZ_Vg.jpg" width="400"><br>
 
@@ -160,9 +160,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
-<img src="https://cdn4.telesco.pe/file/HbWkrSjHNZL-6hhJvyRac_JVgYbKZEzY_6GnPY8ItrPDEkqmhfhSFeXEbMOfMXsEd23YrZbk56WpE6Ur042tRuR34AThfvRfoIvUeQwRLJkO07c3FNIN2gyYq0SRHofQyIF3E831s1McBY_UeF0MzChtWY6dLbLVi6f-Gki-oazy0NMFD8KSZgDkeYidC8BeZMH9n9AL6LNnGD55ipOaUh6fSkyqWy_7GYgxQj9MOCz-rVv1ME2GMk6iEaN_i8zgOFMayrTAVuQBp53VyaQn6r-4kZLQeWalIz9PlyDcjawVC5oWlUcLDVIBYjgiXf2h1U3BYPOtma11mI0Cq2QVXg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PRQ5eL0OmABFTIm25cePvpSaxBFaRqJBicK32xao4YdTi_NZkz2yQ4F_qggeLiGh44Bnc1Hieb85CI6gxkGACLLNhXssdd5u0GXZVcccEx0kxiE38_FAQr8e7bQs_0jwd-y18C7vv2YvrAPwizdsxAwo6clsJ6k0kK2SWs1nUKXVP_rIS9nln1gKka6hxb9K6YhxzNxx2FFn8kQTJN6CQ_BWPQxdD181SMRtVvuI-Vv-WM_cc4wn2Vh0nn3M5WuRhs1bXYEzTFraL2JAh-mZTgPYhm6QZ1sOEl1DxwEI2PL6nL8awwj3j0akV1q6uWJeiKbeebYAdPhLJHwMOif8_w.jpg" width="400"><br>
 
 اسماعیل بقائی، سخنگوی وزارت امور خارجه جمهوری اسلامی، روز دوشنبه انجام مذاکره با آمریکا در دوحه را رد کرد و گفت در روزهای آینده هیچ مذاکره‌ای انجام نمی‌شود.
 این در حالی است که دونالد ترامپ، رئیس‌جمهور آمریکا، از درخواست ایران برای انجام مذاکره در قطر در روز سه‌شنبه خبر داده و سخنگوی کاخ سفید اعلام کرده استیو ویتکاف و جرد کوشنر به عنوان نمایندگان ایالات متحده عازم قطر می‌شوند.
@@ -180,9 +180,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
-<img src="https://cdn1.telesco.pe/file/hhV5YykCQt4Ec4afsKB3-CpkTaawlLQMvIRZM_fzD65BC-0vv3lLF3pX53N-XDeat1y8I5JdYsrV3ni8nV3hYu4w1x-aycMMbIoLYMeLXa_qXL6zomrf_peIttVA_LyjmXkW3nEJIwJlEeilbtGndsoFsaj1sTqMcTLPJYZ2BlvuxKoYAli0lgZsLDvkY4rzLwGb3YhE4MB4toHTdMkLnjK0VbXLhroL6P5vyhL3wOXrhIrqcO5XjhsYYAF--5G9ghpj16ZKS6GMmF6nKbkOAPMIKQ40CBPaWwBiRP5bw4ND6q0KJ_kIIliOSzd-vhGEu2uRZ4UH0RRrF-xHuZ1jQQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qtzNX__sAlqpL2ViZnfF7pSC6Uo3LlXByEKVz29kBFkbw_lU-vgpCv8Fji82EWBRvZ8bJ1Ol2Vx7NhiY3HPwi3Bz14dPjaexTT2-d4UF6LaSXfNCjCNsr6Y0q24bXbsSh3awcZYJEKgvPQLvzd4Kep21h2C6tKtmN-nWvrPXhfVsg5-C0t9iweU7kx20PZKRI3s2JPCU-ZERw5c_WmiaTHAinwSgdruTOwYjfdjFM7ISm3ufWdt5ZSw4czZvDTrj9N3NoUhM0ZA6GCpKbMnCUMu8B_gFgEGcQB2z2v6TBA-Lf4ggNOioCrLs9KKBqNJYVXeK-IXXBeftJnCoQw4lgQ.jpg" width="400"><br>
 
 خبرگزاری فارس، وابسته به سپاه پاسداران، گزارش داد محمد اکبرزاده، معاون سیاسی نیروی دریایی سپاه پاسداران، در یک «سانحه رانندگی بر اثر واژگونی خودرو» در یکی از محورهای استان کرمان کشته شد.
 فارس نوشت پس از وقوع حادثه، نیروهای پلیس و اورژانس در محل حاضر شدند و اکبرزاده به مرکز درمانی منتقل شد، اما به دلیل شدت جراحات جان باخت.
@@ -198,7 +198,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/EcwVX7VohRahHvxbam9DEUJUj5XPsqYUkoetJplJzQHqvAjFy_jN_-ZrzYOV8Ec781Q9gmeoX3ImehAd9VfcTL98LluubnFz9-kAtLQngQSnWlosmlf6CHQderYMCJKiSQ_XwQD_uOSuKzVlFg8gs1A3Kfn6wsuLBMchwm4AJeHIQGP3xg2n0K4g7gYLmu8NjhfWNJqcXJZBkFMSIQwC0Vq4TON7gvVnFMgyKzOPWNSWTt7f4kME4XsrC3FH8OE7TkSYvDb6qTpLltQTkQ2bPqKC-Rmzzp_PAUgiERnQya0Bo6MGNM2t9bLOrbxEUVW4SwJjQnuQDJ2jO4dov3QU8A.jpg" width="400"><br>
 
@@ -217,7 +217,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn1.telesco.pe/file/DoflQ4EVB8Na4bSxc8Xh8st0BMUcBNEmSkpEOTxoyoHdoT83JPIh8lV1W-S0TjUz0s14GPWyQ-iY0lyCrnfT7wi52ud9RaI5ds_NIQzs8cjsBY8VL1aiQjEwkiJgk7E8imf6jvdJXiXlqiwC99Zv1Yw-dpCn6Abjq5nstgvpVn57JSoQU0pPLX-MxKPs1374g0rugGUP_pVTSkTPpVJQ9gWTwR-pyr29K9_RU8Ix23a-IQFfbjkWa0b7A_E6LXpx5-T0EwMCyL51E4DYhBBMQMd2HGfcgSj5NAtze6UAX7tBOpl77y5LhQ38fgCi6JV4dXFMuJKQgbYsMVyzKvuVEQ.jpg" width="400"><br>
 
@@ -235,7 +235,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn1.telesco.pe/file/jdK7fMo3lJRKMSW_lRBUK-4XOMCOxil9kS6zAdU3cCVSsRPUJXWD1Guxf7k0yBEl-hnqQIFu3b0dnF9cqQQ4DMlI4Dzbs9qkb2P2bPIf0BQc33ul2Sq0LbIDlOkCTo74pmp8aSrIjvTKiQJZxcI_HC1-GS_qiJhQotx0sOnRvf28Vw7uvhbryh7gp4OneZnN5m5t5OeauWQr_LuR972OignN-njH51O4VXoU3ZiQ8APB1RlRwfZWa5x7T_faI4wSf7WYAyGMO-cFHGKitsP9Wmy_VsKut9W0wp1kMv1FAu4izYvaSu9_ya3iC4BE5z6avctR3BW3Ov6OYHFowIt6qg.jpg" width="400"><br>
 
@@ -249,7 +249,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn1.telesco.pe/file/av7CfGSVycMYyogotulbmz6vJSXpSPFoHDLumY7wYxw4FkXdjzrkqt_w5GC-8GgK1E4sXPg4EtpaB2p6uvjWHTSlURvF-qIXG-ytS-0Yyv85VbXkb_XWs482AkF3CVhHx4GBebYsxYGMV_ezuEpM1YFySoW7KjsfEcpuXnlEKjJptDZnkmGY8O5z3pV9WTk4s9gD6qnvNrDX_Fq8b62fYwd6JpajR3IcrstobMBz64rycr7crdW11PIjaQuat4vZlHunMg2EMCk1PUog3Fh052TRrzGEQv8x7QWsovrEZm1FVi3ascGFQKqGqrbOiHi3wdx5OvvkkB455Xu0mE1kuA.jpg" width="400"><br>
 
@@ -279,7 +279,7 @@ BarakRavid
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/ssznjuKv-z3rh6C87L7bPK1kFc60shdX1FJXLDaIBSD4IYspXn8fvcOAtO2AHCOYcRwKb9Dr-PIpH1BRXBgtF5-W_ZlKHsvFXL2PbJjj8VXRAJrI3gDwrtRkgww-OQhHEigbcHdq27Bc9ODXNN-gTB4s0bJ6f8Fs5Nbm8s9DlyWQFQuhHpy2fSSnWsdwOg8H-RhJSOgguz3rBDJ0OYjtU0gmyLAEsRVOQq27lWdDtt5KvtEngNoMW6Buby_l-vqpZHiCqkrMeYd6GNYzWCxSYJ163ITJzS3HgA7DBxVxzdXDBFvJtXniWPXK9fuJM9A9jS6Ne7_9e1m_of8tDCsb_w.jpg" width="400"><br>
 
@@ -297,7 +297,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-06-30 19:38:12
+###### 🔵 Updated at: 2026-06-30 21:40:56
 
 <img src="https://cdn4.telesco.pe/file/lJX8JoCbKdaPKChRg96eKc0b2WS4HEsyI45-x7VhHF4XMfAMHMTOd2HnrqRIhfJ3whMHPYhoC9fYPO65GNBj1Nq6TDmiX_q-z5xWqRlSF8j6qCCHwQEAFyffwspmd55c4LSl-ePv1PCC4MSCsIlPJyWvzPJFcTu3fh1VTVKFhS-GUBhEFjIc3yiiUsNbgTbNBBi2Y2adTCg-nue26AK-9oJQCevbFdYzBITM5pxY_QNkeqT4j801X0rU5lEkMaUA9kvyCUp5IGEHPULIcyFOIM41D-ay-BgCSF6cCi2m2kG5GTbzMjbFtCeCvN5FtihRH8oeggqYvr2n623w8oKMUQ.jpg" width="400"><br>
 
