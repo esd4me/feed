@@ -3,7 +3,95 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
+
+
+
+غلامرضا نوری قزلجه،‌ ؛وزیر جهاد کشاورزی"، با تایید سخنان محمدباقر قالیباف دربارۀ خرید محصولات کشاورزی از شرکت‌های آمریکایی  در دوران ریاست‌جمهوری ابراهیم رئیسی گفت: برخی از قراردادهای کشاورزی از طریق منابع ارزی بلوکه شده ناشی از تحریم‌ها بود و آن‌ها نیز به شرکت‌های آمریکایی مجوز می‌دادند و از آن‌ها خرید می‌شد.
+محمدباقر قالیباف شامگاه سه‌شنبه در یک گفت‌وگوی تلویزیونی به خرید محصولات کشاورزی از شرکت‌های آمریکایی در دولت ابراهیم رئیسی اشاره کرده بود. پخش سخنان مذاکره‌کننده ارشد جمهوری اسلامی در همین زمان از سوی تلویزیون حکومتی متوقف شد.
+رئیس‌جمهور آمریکا روز دوشنبه اول تیرماه در گفت‌وگو با خبرنگاران در کاخ سفید در مورد آزادسازی دارایی‌های ایران که در تفاهمنامه جدید به آن اشاره شده، گفته بود:
+پولی که آزاد می‌شود قرار است برای خرید مواد غذایی استفاده شود... آن هم صرفاً از طریق ایالات متحده و از کشاورزان ما.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76767)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-01 19:56:16
+
+<img src="https://cdn1.telesco.pe/file/LC3NLMhyND90IFtHc2XLVzsAYog_5I_qVaouOT4t5WbIndUkN_Jl02h_P2XiPZyL0kxZKCNkzsCyyCO7P-UW_n9sjm0bhXMVcQjnz3vnU9bm3-hie0u9bRrWdiBniwT_VGlDN5cK6rZ57gNX_cHeduiKj0D6vQUlPNJgiFKEG-RBL5ES9d3BD1nWyQCYv93GONyI9hkwQ834mEmRT5wlWdL9a2xZlSCUuYza63OkNJYEebGaYXcoDLGIWvZg-9CnDmUntMTaNgEkD0PaSd3F82Khb_XVmbZqHIMQze1iH0vcWEANAKndAhK3DPo2g9C7kEa25P2MbbxdLda7MuWTaA.jpg" width="400"><br>
+
+رئیس‌جمهور آمریکا روز چهارشنبه ۱۰ تیرماه از روند مذاکرات ابراز رضایت کرد و گفت این روند «بسیار خوب» پیش می‌رود.
+دونالد ترامپ که در واشینگتن با خبرنگاران صحبت می‌کرد، افزود که آمریکا چند روز پیش حملات شدیدی به ایران انجام داد، اما نشست‌های اخیر دو طرف در قطر به‌خوبی برگزار شده است.
+او همچنین اعلام کرد: «روند خلع‌سلاح هسته‌ای ایران به‌خوبی در حال پیشرفت است».
+ترامپ افزود: «آن‌ها نشست‌های بسیار خوبی داشته‌اند و باید ببینیم چه خواهد شد».
+این اظهارنظر ساعاتی پس از آن بود که رسانه‌ها از برگزاری «مذاکرات فنی» غیرمستقیم ایران و آمریکا در روز چهارشنبه در دوحه، پایتخت قطر، خبر دادند.
+این مذاکرات با میانجی‌گری پاکستان و قطر برای اجرای تفاهم‌نامهٔ اخیر میان ایران و آمریکا انجام می‌شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76765)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-01 19:56:16
+
+<img src="https://cdn1.telesco.pe/file/aGBmWFlYsw_ghzH1TRpI5DaKV2VdzJPTZhzFhBPqZk3vPZN-9G4sANwzfsaSxG9mDxwWPJVKjlQ3CXw95sZ-EQ-fDLjflmuqly0TaAqxJdks5xyFATGsvXaMf9ksaDJSKzIzbD-VI77IT5Uh7F-CvHtH5JveZFYuBKr1ahC7HIGid7s-j4JLMWfdgjvHf9XA4Jbvx6sSecA0ooO2hZGPadT_RokgMO-UabNKOSxH5sevDrSdL91lDWEDJDpiIw7Fab3w9QhodQ8lZuXX3rPVwQOnAkvKU9YNUUbKjTzurBlmrzO3yhgd1LM9OWutXCgqJo0_NI-OpqDvpCTbtfPBPA.jpg" width="400"><br>
+
+معاون وزیر خارجه جمهوری اسلامی که برای شرکت در نشست‌های مرتبط با اجرای تفاهم‌نامه ایران و آمریکا به دوحه سفر کرده است، اعلام کرد کارگروه‌های پیگیری اجرای تفاهم‌نامه و نیز مذاکره برای دستیابی به توافق نهایی تشکیل شده‌ اما هنوز مذاکرات در این قالب آغاز نشده است.
+کاظم غریب‌آبادی بعدازظهر چهارشنبه دهم تیرماه، پس از دیدار با شیخ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر، به خبرنگاران گفت رایزنی‌ها برای تعیین زمان و محل آغاز مذاکرات از طریق میانجی‌‌ها ادامه دارد و در صورت فراهم شدن شرایط لازم، این گفت‌وگوها آغاز خواهد شد.
+به گزارش خبرگزاری ایسنا، پس از این دیدار نیز نشست سه‌جانبهٔ مذاکره‌کنندگان ارشد ایران، قطر و پاکستان برای بررسی روند اجرای تفاهم‌نامه برگزار شد.
+@
+VahidHeadline
+دیوان امیری قطر چهارشنبه در بیانیه‌ای اعلام کرد تمیم بن حمد آل ثانی، امیر قطر، در کاخ لوسیل با استیو ویتکاف و جرد کوشنر، فرستادگان آمریکا، دیدار کرد.
+در این دیدار، آخرین تحولات منطقه، به‌ویژه روند مذاکرات میان آمریکا و جمهوری اسلامی در چارچوب یادداشت تفاهم دو طرف، و همچنین وضعیت لبنان بررسی شد. دو طرف بر اهمیت تثبیت آتش‌بس به‌گونه‌ای که وحدت، حاکمیت و ثبات لبنان حفظ شود، تاکید کردند.
+در این بیانیه آمده است که امیر قطر بر ادامه تلاش‌های میانجی‌گرانه این کشور با مشارکت پاکستان و حمایت از همه مسیرهای گفت‌وگوهای ناشی از یادداشت تفاهم تا دستیابی به توافقی جامع و پایدار که امنیت منطقه و صلح بین‌المللی را تقویت کند، تاکید کرد.
+دو فرستاده آمریکایی نیز از نقش قطر و پاکستان در پیشبرد مذاکرات و نزدیک کردن دیدگاه‌ها قدردانی کردند و بر تعهد آمریکا به ادامه روند مذاکرات و تلاش‌های دیپلماتیک برای دستیابی به توافقی جامع تاکید کردند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76763)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-01 19:56:16
+
+<img src="https://cdn1.telesco.pe/file/eYDANetlR4U0elQo5u_WamHzKsgL7gE1sVjrX9IlhO-8i6J51kMTTpgPEwmXCGuHtUDRGznn_ctYpxqj028JjahuMDzZpnbQPsMp02egQZVGusjrlF3A4EDSKXL4FWu9Nrh0yhdezYo5g6pugQSPLgigD0W5cRweWZuGEZXjrWrJTHZYKuF3HTwSMjy55B6Jt21jGlNfwuEiiWN1MR0REUqNZcMbnjo1vvh-e4sxidyWkj-DahCEOYKNEPgoAmHKR8UXX8ee0r4EuGEQCR5j6OVsBIl8WPYwUY76ZZWoyzgSNtdOtYDqH6AF3pLDYAH6LwkIPHzz0nPMWi4SYyultg.jpg" width="400"><br>
+
+هم‌زمان با ادامه برخوردهای قضایی و امنیتی با فعالان صنفی فرهنگیان، سه معلم  با احکام زندان و مجازات‌های تکمیلی روبه‌رو شدند و یک فعال صنفی دیگر نیز در استان فارس بازداشت شد.
+بر اساس گزارش شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران، احمد علیزاده، معلم بازنشسته و فعال مدنی اهل آبدانان، از سوی دادگاه انقلاب ایلام به دو سال حبس تعزیری، یک سال ممنوعیت خروج از کشور، ابطال گذرنامه و یک‌هزار و ۸۰ ساعت خدمات عمومی رایگان محکوم شده است.
+هم‌زمان، آزاده سالکی، معلم شاغل در شهرستان خواف و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، به پنج سال حبس محکوم شده است. بر اساس خبر منتشر شده، حکم اولیه او ۱۰ سال زندان بود که در مرحله تجدیدنظر به پنج سال کاهش یافت.
+آزاده سالکی پس از بازداشت در دی‌ماه ۱۴۰۴، حدود یک ماه در بازداشت به سر برد و سپس با تودیع وثیقه سه میلیارد تومانی به‌طور موقت آزاد شد. گزارش‌ها همچنین حاکی است اجرای این حکم می‌تواند به اخراج او از آموزش و پرورش منجر شود.
+این معلم پیش‌تر نیز در سال ۱۴۰۱، زمانی که در شهرستان تربت حیدریه مشغول تدریس بود، به دلیل فعالیت‌های صنفی و اظهاراتش در کلاس درس، به مدت یک ماه از کار تعلیق و سپس به شهرستان خواف منتقل شده بود.
+همچنین جان‌محمد احمدی، معلم بازنشسته و رییس انجمن صنفی معلمان نورآباد ممسنی، روز سه‌شنبه ۹ تیرماه توسط نیروهای امنیتی بازداشت شد. تاکنون اطلاعاتی درباره محل نگهداری، نهاد بازداشت‌کننده یا اتهام‌های منتسب به او منتشر نشده است.
+آریا نورانی، معلم رسمی آموزش و پرورش در شهرستان مانه خراسان شمالی، نیز در ارتباط با اعتراضات دی‌ماه ۱۴۰۴ به ۱۴ ماه حبس محکوم شد.
+شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران با محکوم کردن این اقدامات، خواستار آزادی بازداشت‌شدگان، لغو احکام صادرشده و پایان دادن به برخوردهای قضایی و امنیتی با فعالان صنفی شده است.
+در ماه‌های اخیر نیز روند برخورد با فعالان صنفی معلمان تشدید شده است. پیش‌تر شعبه سوم دادگاه انقلاب اهواز پنج فعال صنفی فرهنگی و کارگری خوزستان را به سه سال حبس تعلیقی و دو سال ممنوع‌الخروجی محکوم کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76762)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn1.telesco.pe/file/Xqn00Dv5SdVtfx8jdAm7gaYXZ0DEuXobt56_1291czz1wK2mTvaPNBxbreVQkkBqsr8DonopfN_nqEe3q7nypKd3I1i5v5QuY0LGkw2UN1yCb-NYQRmjQXuUv9O3MHlqDWeRmZpq0z69Q5kvvvX4UWPkQJxIAMv_VM3ag75CTb3rE7ZU5oQM3W9fwayT2F1FTypq-t9C5FXBV_FVMr6k7qPuyHt9QcVPph9pcpfs09cvRuMoDkmmsjMXbQkoJR5rOXarKx-JwzAbcDUO2VgGx113d4Ro5p-e7Orr3-FOKD9WeZF07zoom0xXxHVQFXwZ7HqiCudGi-48DS9VDY-jVQ.jpg" width="400"><br>
 
@@ -12,6 +100,12 @@
 او در بخش دیگری از اظهاراتش گفت: «یکی از چیزهایی که درباره ایرانی‌ها برایم هم جالب و هم آزاردهنده است این است که می‌گویند نه، هیچ گفت‌وگوی صلحی در جریان نیست، اما در همان حال مذاکرات فنی میان واشینگتن و تهران درباره توافق صلح در حال انجام است. این یک تاکتیک مذاکره یا شگرد ایرانی است که من آن را درک نمی‌کنم.»
 @
 VahidOOnLine
+جی‌دی ونس، معاون اول رئیس‌جمهور آمریکا در مصاحبه‌ای با شبکه خبری فاکس گفته است «ایالات متحده در رابطه با ایران در موقعیت بسیار خوبی قرار دارد.»
+او گفت: «ایرانی‌ها در هفته‌های گذشته، هیچ نفت‌کشی را هدف قرار ندادند و جریان نفت در تنگه هرمز برقرار است؛ بخشی از آن به این دلیل که رئیس‌جمهور(ترامپ) تصریح کرد که اگر ایرانی‌ها به کشتی‌ها حمله کنند ما مقابله به مثل می‌کنیم.»
+آقای ونس همچنین گفت: «اگر مذاکرات موفقیت‌آمیز باشد که ما می‌خواهیم موفقیت‌آمیز باشد، شما ایرانی را خواهید دید که بطور دائمی متحول شده؛ تروریسم منطقه‌ای و بی‌ثباتی را تامین مالی نمی‌کند و جاه‌طلبی‌های هسته‌ای را بطور دائمی کنار می‌گذارد و درنتیجه اقتصاد جهانی دوباره از آن استقبال می‌کند. این نتیجه خوبی برای مردم آمریکا و کل منطقه است.»
+او همچنین گفت:«از سوی دیگر اگر آنها رفتار مناسبی نداشته باشند و امتیازاتی را که ما می‌خواهیم ببینیم ندهند، هنوز برنامه هسته‌ای آنها نابود شده، توان متعارف نظامی نابود شده و آمریکا در مقایسه با آنها در وضعیت قوی‌تریست.»
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -21,7 +115,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 
 
@@ -49,7 +143,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn4.telesco.pe/file/rVlaiPCQTF4HfcAGmIMmKjNGbLM8TXv7ZSiCrwuoh9BQKC2w7MYaFGYgqS5TDN1WFacNG5pjnhjroK145ctMoJL7rQG-bQ-HZ0pBQuWHpffksXB5-e3o3tEdbWzEb3GoFIs5s4-QnTS7ul6qZh7Bn4U6o38fAnP06-1aUD1prSFULuYay171ue6qWTkZryD0EdjBU0hbDSaaYfWtwGy-r-f-vfrHlpv39ewDd_mVheg6iKxNPjpf8mKVyQlVwdxYLdfg8OsZPf-NOgzZuYhBblkfF5-0NI6r8cx6TyA43JX8FOpfNwDbtslJDmwGYT0rvdr0sKoyFaZHo7BKDqeLVA.jpg" width="400"><br>
 
@@ -68,9 +162,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
-<img src="https://cdn4.telesco.pe/file/UGl7sxf08mD_kZTQzbhSia6kFd6urwJNg6jOfoYC96G2JZfXPCc5wtJ2TEMoJ9W4Z0wn89sKLuvlgqbM4BlZdmIoaU9DrgpEllrJpjV5XOP8Ckp7ohg2wuZQeGdQfF6Mzc2m9gPKkyW0CovsPAelkPDsCq-XW5g7U7zag8mYLZpIWqSa-E2G61SRbxBjQjpDHu7tR3A9qa7zf3jsSCq4vX_4RvCfn-DgPEeyaX4XT44KvVbOrUOpw7wYyhZ46I2zBWRVFZqDxDnfI-0X4gGa4K_yMbEK09P99Y1mJ4GQgDf4XnBn2Vv1w8CCrKf5oxXX_SJVMttydnzp3k6RGYkIAg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NPHjzyu9JNBit9Q_E2NR4hljpT8muCSIcqj3UsjssroTjNiCCL_s3-VeP0aYl8wy-pcvJtXngFy2A2elyHFF4ZZ9X5_ILhjkc0h1D_Ypks93z4jL7LoGjhLw8lMSp_DV1w2R5v1j7KKC8lLIouZox62coYwu8XlF7aCk5uWomxEF3dxOnwtxwpPviJsywcYunyQn93ZPUmw7tGySQZN58r7jxwqyDwFksmW2c1-25BARH7arZJ-pxdaMCkvcL2diGJ4ttPODR2Q6fo1oovsNFX_eCZAWuF_Xsvj1O0cwV-juOb7YKcU9FxMQrnKbdHdbatmCDSjOhRos-leBSF-w5w.jpg" width="400"><br>
 
 وزارت خارجه قطر، اعلام کرد استیو ویتکاف، فرستاده ویژه دونالد ترامپ در امور خاورمیانه، و جرد کوشنر، مشاور ارشد و داماد رییس‌جمهور آمریکا، روز سه‌شنبه برای گفت‌وگو با مقام‌ها و میانجی‌های قطری وارد دوحه شده‌اند.
 ماجد الانصاری، سخنگوی وزارت خارجه قطر، گفت این دیدارها با هدف بررسی «تمامی مسائل منطقه‌ای» انجام می‌شود و موضوعاتی از جمله روند مذاکرات با ایران و همچنین لبنان را در بر می‌گیرد.
@@ -86,9 +180,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
-<img src="https://cdn4.telesco.pe/file/NVfLrX75Bj57hbhWkfv9yH-9ENGrNeM6WGnxD779UM-rSvH9iRXACOPktLbRUlDu0RltyWKyKw3U5A_P7S4RkWXkXgdCAV0lf24wkCFY2EDx9vHytviUuiod5pw6kiwsytMn-56qkwFPI8DvjjYMt3oIeSsMbVfVX5DjAnIKmxMdZYJTKwUm7VWzCQF4vt1xv-uJShjS3Adhho3Tez_eqmLPwlM_BUgK8R2RWuuHRtPdRKGS8H_5HOy0TclcIwqUzYdb_RJzxnC8FBAZaaS1s3mio7f7kEocvoXrZ2DUPGUcplmYbxgsPiha0GCcrJQKDW77uHrSmZhd1WskYxj10w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/MiyxnPHVHUhJFCBeJDHPvcQ0KU4Wd2AIW2NI1FxZiOsARkqnXD1NFsjPoPeI_nj_xLYMReTSlUJ4YqTeL62Mxmp3yKNwGXV_p5LDFTndFxTGQA9kVp91ZuxpTTYOUXz3P61Q1JhuitSuPjl2xOacPhwzj9zFwxpNHgQx-32k87qj34OwrIP7RrN8B8qnGMwnVYSPbXLPMJ_TVQ3CbYIdP_usOl3zaYz8Rn1_-8vc0K361oqp3jy6r6D1BhdfTx_WWcBPwHs34ist6TvM6CkVp5nbymD8cIRDs-bzFGjPsP2U3RZn32ywqZGQSenFPWsxMYcZEO4t3hgvvDJGQ9bcEQ.jpg" width="400"><br>
 
 العربیه به نقل از چند منبع گزارش داد جمهوری اسلامی تا پایان هفته ۳ میلیارد دلار از دارایی‌های مسدودشده خود را دریافت خواهد کرد.
 پیش‌تر سخنگوی وزارت خارجه قطر گفت تاکنون ۶ میلیارد دلار از دارایی‌های مسدودشده جمهوری اسلامی به ایران منتقل نشده است.
@@ -104,7 +198,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn1.telesco.pe/file/tNFBkCngyHLqfHmCoWGMyROhL2q3TmGFAApEAfQMgNKloBDnaZs7EUeulAbqx7dF658NgsxZPNMCiv1Zu6MBDDIyTEpsvkWXFq6WFd2tq34A85vZTABaGhjLTDTnqQudfnjBKmpkGNhUaAlNSwGb3xEEex9xeNsKW_3aFlyu5AcG-FskD42qAbVbxUc0M2lt4RAI12oVA7oImMzIvz2GBQcPgU47WRe78ps2kj2T7rFuNhcfJ5sUeyjqFPfr6am0wRiWH_DDrMmEMc0XZq8zhbGPC2rVk1Y0hLnRVnP09I4L0LAljpYjYSfcfhndUlIGSGUv4Hd6GYHqkcZKVrlJFQ.jpg" width="400"><br>
 
@@ -128,7 +222,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn4.telesco.pe/file/Whjt8qDuUOubEl0AOHSYTr7qJj171XMq2G3QWjwnky_LG0rCWlX4O7OgOZ3_MQHoldvYhCx7dHGm6KOWmqv93wn0bHYYu8FpvsgKEcZS8qv7ngRVWmph4p45EHXidsvHCinq7NNagjyJM3wlfcfbIVRtVS-hNKRisjeR0kGEupl3dx0AT6vt-V79RO1awNP5onlMNiNHsKmMJPJUN1X0Q2nAuELFsl2Jgy0oR7QX1nNcsMftpivVx9LxCeehG7lnyJBiXHw8xl6QsaGjBptO5Q2Vf114hRtXOFewD8EXiQqkh19GeWsnAduSbmbVVpwjNdH1-RIt_hPN5jnFCsni0Q.jpg" width="400"><br>
 
@@ -146,7 +240,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn4.telesco.pe/file/l2O7Zjq_jOzOKFw0sEwVbCdkWkJTOxFMdUh7QfDXPe8QgTINd_hvif4Dmm3P2fozSasZ5zqJHay0W9Fav-U3nvssEPcAMOlcy6GXpul8Avk3xysuJvpDTlSc-FN5KVac3t1me6f3BBaZ0AIQQ4UI_Xc8cu0JLux6JRpzMIuxovgHLSHrk22YY3q7UK7LvJbh2aeBkkDfSPIzfGFdhlvyWn6CLhn5SelOkWZ8dUDd5nrDCg6somaTSquRMW3eSev9vrIHYdwoU86suk1H5CUkeUi9MvhA-qicQj3C3ZCoYGWl2uMPt0NZHu4halPBg9rdWnkujS5DDCNwlk_uFDvAuA.jpg" width="400"><br>
 
@@ -165,7 +259,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn4.telesco.pe/file/W6y_p2HmDNhVB4fP9mIGr2ARVYPgRNU3Tlq_WW5f0VB9s1k7K9hQ3OQ6lEsqxda-1Z334vqy7TXj4K93DPLdbz7ZcpCtczrVdiy_AX8vnTd_93_f6GmYFdWXW4jHI8W9pICxjP_1_ZbhLeWjeY44ijGMrtca-SrLz26cM0efp03zMxsIAAFNdKxXSABQBczgXD8ec7LtaznpWEXL9Wkzx-JfyhZEmwDFOZLKmmBLoaNmIlql9TimML83fZ2mw3XbZznlGN_MnILN3BhWCId6dZqIfxhu3J4WUhpSaHIHMIf2WVdrkKTY-90pOKg1DLHD0F4datCtjuEqzOoiL6lU5g.jpg" width="400"><br>
 
@@ -185,7 +279,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn1.telesco.pe/file/kNjUcM7cen5gp2XgRTYIiFQYb5JYXVGm-_7OvAIqeOEQvmrDp2f8YafrUjbOwvXymoJEW4xT0LJx4wKWUHmaYP3FJVv_VDtpZyMTQK1ibRnTdbUVcvvt16KVWp3cbumrsV1AfzmmYx9oJJtnUh0Bn0IsEweFRZftz3Qz3vsSSrR1BL_yH-lJT5EUfGzwb_pnsMxMzuDI3f1CGdmOXCEOHmwgVmKRg4Z9JXz-z_9hu9p-jQAvTmWO0WpevFVaXJ0BkrwQWx_jGzqxzyjXEIPxFKwpKwvvD34uDGeixMiTZEEH9kBNsWkijRmJPFHKH8_Wk1EdpYAScpg7YNPCdh3YUg.jpg" width="400"><br>
 
@@ -206,7 +300,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn4.telesco.pe/file/IjLHVbN1NTKa6O13_fomdGY8HZmJhw_iX9G4CwNZ-BptkSaCjA6qtrzoZRRgmomEg1MqfKxPe9J9vRvSZcXXXZqAxjk1Kn2Ia31XnMYpN36v7gRRJe2pCkSAbBALa72a13oGRa0eWBj6aDqtDH3tcz_Tzlhg86_4x37A4jh8gL-TrMLDI0KJeA1LT_9zfIgS9_HxU8bwgTBzw92ffK27cBNorbWfx0rcVAA7E7MNmExBZ1ediTmsUPALXvYFhMMJSaDO4g_eBHw2HOoLkOuCjk44HqBpmFCWAPLEgFFx2hVQ5UAOp3QqQYPbK-Naub2uofYo0YNGiuH-al8wYPQESA.jpg" width="400"><br>
 
@@ -225,7 +319,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-01 17:26:58
+###### 🔵 Updated at: 2026-07-01 19:56:16
 
 <img src="https://cdn4.telesco.pe/file/PRQ5eL0OmABFTIm25cePvpSaxBFaRqJBicK32xao4YdTi_NZkz2yQ4F_qggeLiGh44Bnc1Hieb85CI6gxkGACLLNhXssdd5u0GXZVcccEx0kxiE38_FAQr8e7bQs_0jwd-y18C7vv2YvrAPwizdsxAwo6clsJ6k0kK2SWs1nUKXVP_rIS9nln1gKka6hxb9K6YhxzNxx2FFn8kQTJN6CQ_BWPQxdD181SMRtVvuI-Vv-WM_cc4wn2Vh0nn3M5WuRhs1bXYEzTFraL2JAh-mZTgPYhm6QZ1sOEl1DxwEI2PL6nL8awwj3j0akV1q6uWJeiKbeebYAdPhLJHwMOif8_w.jpg" width="400"><br>
 
@@ -240,105 +334,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76748)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-01 17:26:58
-
-<img src="https://cdn1.telesco.pe/file/qtzNX__sAlqpL2ViZnfF7pSC6Uo3LlXByEKVz29kBFkbw_lU-vgpCv8Fji82EWBRvZ8bJ1Ol2Vx7NhiY3HPwi3Bz14dPjaexTT2-d4UF6LaSXfNCjCNsr6Y0q24bXbsSh3awcZYJEKgvPQLvzd4Kep21h2C6tKtmN-nWvrPXhfVsg5-C0t9iweU7kx20PZKRI3s2JPCU-ZERw5c_WmiaTHAinwSgdruTOwYjfdjFM7ISm3ufWdt5ZSw4czZvDTrj9N3NoUhM0ZA6GCpKbMnCUMu8B_gFgEGcQB2z2v6TBA-Lf4ggNOioCrLs9KKBqNJYVXeK-IXXBeftJnCoQw4lgQ.jpg" width="400"><br>
-
-خبرگزاری فارس، وابسته به سپاه پاسداران، گزارش داد محمد اکبرزاده، معاون سیاسی نیروی دریایی سپاه پاسداران، در یک «سانحه رانندگی بر اثر واژگونی خودرو» در یکی از محورهای استان کرمان کشته شد.
-فارس نوشت پس از وقوع حادثه، نیروهای پلیس و اورژانس در محل حاضر شدند و اکبرزاده به مرکز درمانی منتقل شد، اما به دلیل شدت جراحات جان باخت.
-این رسانه وابسته به سپاه افزود بررسی علت و جزئیات این سانحه از سوی مراجع ذی‌ربط آغاز شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76747)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-01 17:26:58
-
-<img src="https://cdn4.telesco.pe/file/dHDY5JjVgQCr3zvDBdjL2M7zKlxl-s9_NK3yHOwINoarlVgPJtMKd5LVj7QnEX11-DCRRyhjxje7KNz7NvshBObszPnadiKt9stu2NjELtzY7arj6INY9sahg0j4qtqFCCEum2Pp8vyxRVDBczqxwhLqNf4FNH9hgxUdfcNr5ACp0XCVflvBlNhwFK3t-KBn84ruW2cDcLKJCTbx1-XBXA-XSXWQpMfdaLIUUPG8Hk9RYrzhweQeweyppPVIO_weBu6HhMvVmp5exZW1nU3CIfowNEubbFDeq6wT6H2Uotzbqar5JBe6r9md3chiVvvaR6oZ4y-sniynojiTGWfF4w.jpg" width="400"><br>
-
-یوسف میری، ۱۷ ساله شب چهارشنبه سوری در خیابان حافظ اصفهان با اصابت گلوله بسیج به سرش کشته شد.
-یوسف میری سه‌شنبه ۲۶ اسفند ۱۴۰۴ هنگامی که در راه بازگشت به خانه بود با مادرش تماس گرفت تا برایش غذا گرم کند اما پیش از آن که به خانه برسد با شلیک گلوله به پشت سرش کشته شد.
-یکی از دوستان یوسف به ایران‌وایر می‌گوید: به مادرش گفتند به اشتباه به پسرت شلیک شده و اگر جنازه‌اش را می‌خواهی بهتر است سکوت کنی تا جنازه را تحویل بدهیم.
-دوست یوسف همچنین توضیح می‌دهد: مادرش مرتب یک جمله را تکرار می‌کند که بچه‌ام گرسنه و تشنه بود می‌خواست بیاید خانه شام بخورد ولی آن بی‌رحم‌ها نگذاشتند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76746)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-01 17:26:58
-
-<img src="https://cdn1.telesco.pe/file/rR1kD25YSv45_fPMdpJU_TKJIgno24dqsLAyIAm7p-RTd2uXqUwlCMyHcBmRXe_MzM_nr4dwKhst_IDI3gjaPOaNwCRZDCDcEI4Vjp0XWTfdj_L9IxaaaW9NpS7Mr9m76ZqnIpQuvHMc2iQKMZ780eUNIFN9-rp1kGR6hEKfL0JmN4BLxg3r6cXj_klZXiJCI4GAUy_8pxOu2wHueb24TI_PYZmuBfFGPoNOx1Ic8RHP2oSrCypftTmjelcr37iHjEnxzQAZwWqHc0ZAzaEnvhv-iE5E4AlQngTGPjnQwEfp9J7mup3ApY1qNEkTCk2edz3QKB0aPY8cCnwhGU7rvA.jpg" width="400"><br>
-
-بدر البوسعیدی، وزیر امور خارجه عمان، روز دوشنبه در گفتگو با رادیو مونته‌کارلو بین‌المللی اعلام کرد که این کشور به آزادی عبور و مرور در تنگه هرمز و اعمال نکردن هرگونه «عوارض تردد» متعهد است. او تاکید کرد که اعمال چنین هزینه‌هایی به‌طور بین‌المللی ممنوع است و عمان به این مقررات پایبند باقی می‌ماند.
-این اظهارات در حالی مطرح می‌شود که ایران نیز از برگزاری جلساتی میان مقامات تهران و مسقط برای بحث در مورد مدیریت آینده این آبراه، طبق مفاد یادداشت تفاهم ایران و آمریکا خبر داده است. با این حال، گزارش‌ها حاکی از آن است که دو کشور تاکنون پیام‌های متناقضی در خصوص عوارض و مسیرهای تردد در این گذرگاه حیاتی ارسال کرده‌اند.
-وزیر امور خارجه عمان همچنین تاکید کرد که مسئولیت اصلی تضمین امنیت تنگه هرمز و پاکسازی مسیرهای کشتیرانی بین‌المللی از هرگونه خطر مین‌گذاری، بر عهده جمهوری اسلامی ایران است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76745)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-01 17:26:58
-
-<img src="https://cdn1.telesco.pe/file/atyqGIVNst7WUpA8dAXXSyqHdyjrycVFdjEtLRnlraObM8LPYIcNKfY3i0lKCMZ1Au6blvQpq-X4emoV1V8cModdeNWJ74lbieu-pJ_jzV5tnN3UMHgEVNMOrnlanDvzGJUKzw0AmDsI0yJTqOjdcYQDzoN6BWaYlt00pSr1p7fMPoHzSyd_vOeAwGWJjZknGy5k2Sl18vgk56b_6YhmeZiy4STFpbHYZtLw5HrQpgNUYohNX8tDvN09H8moIXMq6axzL3NPW57JzZfeuvlV4t-YvoD4SM3xQYYb-ukovUQcpUsVV5PQVIFmbbaE-AVTwdN5L3HmWZq1ruB6ozw0Gw.jpg" width="400"><br>
-
-پست عراقچی با فوتبال، ترجمه ماشین: از زمین فوتبال تا میز مذاکره و تا میدان نبرد، هر گامی که ما ایرانیان برمی‌داریم، بخشی از مبارزه‌ای بزرگ‌تر است: دفاع از شرافت و کرامت مردم عزیزمان. araghchi
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76743)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-01 17:26:58
-
-<img src="https://cdn1.telesco.pe/file/r2OLk9PJA0XwQtl1JBpqzQ2sbv9rWFaUayUkzXEpJ4SsQmDOl_nw2aYPSlTOO1aIjzMH67Wz_XRcmwIHZQcIkOQkdBRW5kqyPxJxQNr47CXHF-X33HJabYDzDN-NSnG1a_Qps4LlSluMlBSSCK1eomijCFbdWmelUxeW7gkcLF-Xj6HePjbyUo1crgNnOogFFdtx69DVPHC04tkYjYXQBCG-rcK4RJY-BRCAk2yAKABdpTB6-ZKFr7o6WBnzNUqqOvfEwzJjdT9G-auyJ_M9nn24i5F_0etQvR4PdmD-xnB5lQqJT388sXFmpcFx-HaSOx2gkR5EbD2O6dSXJS53OA.jpg" width="400"><br>
-
-دونالد ترامپ در پستی نوشت: «ایران درخواست دیدار کرده است. (این دیدار) فردا در دوحه خواهد بود.»
-پیشتر کاظم غریب‌آبادی، مسئول تیم فنی مذاکره‌کننده جمهوری اسلامی، گزارش برخی رسانه‌ها مبنی بر برنامه تهران و واشنگتن برای مذاکره در روز سه‌شنبه را تکذیب کرده بود.
-کاظم غریب‌آبادی، مسئول تیم فنی مذاکره‌کننده ایران، امروز گفت: «هرچند رایزنی‌ها با قطر از جمله در خصوص پیگیری اجرای تعهدات طرف مقابل، طبق روال، در جریان است اما خبر برخی رسانه‌ها مبنی بر برگزاری گفتگوهای فنی کارگروه‌ها در دوحه تایید نمی‌شود.»
-او در ادامه گفت که «اولین دور گفتگوهای فنی در چارچوب کارگروه‌های تعیین شده، با فراهم شدن شرایط و پس از توافق در خصوص تاریخ و محل آن، برگزار خواهد شد و رایزنی‌ها در این خصوص از طریق کشورهای میانجی ادامه دارد.»
-@
-VahidHeadline
-«کارولین لیویت»، سخنگوی کاخ سفید اعلام کرد «استیو ویتکاف»، نماینده ویژه رییس‌جمهور آمریکا در امور خاورمیانه، و «جرد کوشنر»، مشاور ارشد پیشین کاخ سفید و مشاور غیررسمی «دونالد ترامپ» در امور خاورمیانه، روز سه‌شنبه در نشست دوحه با نمایندگان جمهوری اسلامی شرکت خواهند کرد.
-@
-VahidHeadline
-ترامپ در پستی دیگر نوشت قیمت نفت خام وست‌تگزاس اینترمدیت به ۶۹ دلار رسیده و رو به کاهش است.
-ترامپ در این پیام نوشت این قیمت از سطح پیش از آغاز «خلع سلاح هسته‌ای ایران» پایین‌تر آمده است.
-@
-VahidOOnLine
-🔄
-توییت خبرنگار اکسیوس:
-به‌روزرسانی: یک مقام کاخ سفید می‌گوید فرستاده ویژه، ویتکاف، و جرد کوشنر امروز به دوحه سفر می‌کنند و روز سه‌شنبه با نخست‌وزیر قطر و دیگر مقام‌ها برای گفت‌وگو درباره توافق ایران دیدار خواهند کرد. روز چهارشنبه، تیم‌های فنی آمریکا و ایران به‌طور جداگانه با میانجی‌های قطری و پاکستانی دیدار خواهند کرد.
-BarakRavid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76741)
 
 ---
 
