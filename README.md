@@ -3,7 +3,116 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
+
+<img src="https://cdn1.telesco.pe/file/iO6hgUDfkRU1dmgMQqWJrQUAzrjcLToaj3Z8ogXFuj72PqDZWQwjCCDdhDnU7iNtMKhSlSD559Tjw3kuPQ-bPa5WnknZF5lcycZmkVCgTEwtG6tk__W3pYSed-s5_1WSjAW9r7Gwklfi1tc4RGzZqqirLsz3yhHbek5bPzu6ObyxAX-jLIt23YAzcVFGM3hRohNG6mcK6pfVetSrWxBI2SpPELtuxH4umUVVoGFVMB2YmO8cls0bYH_616KBgTutAJBWq_qhnQjYl1_AlmCQp0SqmO7aVnakWDTx9fUXvj7FNF0FmWkhh3mPA2Z0UYDiV2vLcvE3GK76Gm3-xjL3aw.jpg" width="400"><br>
+
+"دارم خواب می‌بینم؟ سلام دنیای جدید!" ویدیو دریافتی از 'شادی جوانان شهر #گله‌دار در شهرستان مُهر استان فارس، یکشنبه ۱۰ اسفند' Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76773)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-02 16:40:48
+
+<img src="https://cdn1.telesco.pe/file/Ba1IHviZDXsJt_ZBMK3eXey3hOIh5OaCc1piPQjBDgLK7i_f8nTxG8uYByA5dLI8YsZJ-ZEyLnx4Z_6SfuIb6_Bbwi7gbK-ppXhaGWm1mdLuoUtPuUjjjEi3HfYaZCGXUXMa_RqJ_9SEqFw64HWcJY0yP7vBwiXbXpIxljVp0IPhmwwuvoZxiK8m-FsZZhSgNxeeV3zD9GFTJmV-UKljp9ZPMOEKu2hlYIsy6MZw17rVSM8JZmmwUbiL6YM5e_2kMknkdqLnSZEEv5y7vfm1JJPCY8DpnksYlPAz5wBZYqTvfQYrN6nxjZJAcBkKRIQKVK9bSTSuz9oZ-FXM05RtSg.jpg" width="400"><br>
+
+مجتبی کرابی (برسام) شامگاه ۲۱ دی‌ماه ۱۴۰۴ در منطقه سلسبیل تهران هدف شلیک مستقیم قرار گرفت و به کما رفت.
+این جوان ۳۰ ساله که متولد سبزوار بود، بر اثر اصابت گلوله دچار مرگ مغزی شد و پس از یک هفته، در ۲۹ دی‌ماه ۱۴۰۴، در بیمارستان امام حسین تهران جان باخت.
+پیکر او برای خاکسپاری به سبزوار منتقل شد.
+ایران‌وایر مطلع شده است که به دلیل نقش بستن عنوان «جاویدنام» بر سنگ مزار او، مسئولان بنیاد شهید خانواده‌اش را تحت فشار قرار دادند تا این عنوان را به «شهید» تغییر دهند.
+پس از آن‌که خانواده از پذیرش این خواسته خودداری کردند، سنگ مزار مجتبی کرابی (برسام) شکسته شد.
+خانواده او نیز تصمیم گرفتند تا «روز آزادی» سنگی بر مزار این جوان کشته‌شده نگذارند.
+مجتبی کرابی مربی بدنسازی، ورزشکار رشته فیتنس و داور رسمی پاورلیفتینگ بود.
+یک منبع نزدیک به خانواده او به ایران‌وایر گفت: «مجتبی چند سال در کنار دایی‌اش، روح‌الله نصیری، از ورزشکاران نام‌آشنای خراسان رضوی، به‌صورت تجربی و آکادمیک آموزش دید و با تلاش و پشتکار توانست به‌عنوان مربی و داور رسمی پاورلیفتینگ، با مدرک معتبر، فعالیت حرفه‌ای خود را آغاز کند.»
+او از هواداران تیم پرسپولیس بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76772)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-02 16:40:48
+
+
+
+رئیس مجلس شورای اسلامی می‌گوید گزارش‌های منتشره دربارۀ موافقت با دسترسی بازرسان آژانس بین‌المللی انرژی اتمی به سایت‌های هسته‌ای آسیب‌دیده «کذب است».
+محمد باقر قالیباف در گفت‌وگویی تلویزیونی، که بخش دوم آن، شامگاه چهارشنبه ۱۰ تیر از تلویزیون رسمی جمهوری اسلامی پخش شد، با اشاره به قانون مصوب مجلس و مصوبۀ شورای عالی امنیت ملی جمهوری اسلامی، تأکید کرد که بر اساس قانون، «به هیچ عنوان دسترسی به سایت‌هایی که بمباران شده و آسیب دیده‌اند، داده نمی‌شود».
+به گفتۀ مذاکره‌کنندۀ ارشد جمهوری اسلامی تعیین سطح دسترسی‌ها بر عهدۀ شورای عالی امنیت ملی‌ است و فراتر از آن، «هیچ امتیازی داده نخواهد شد».
+محمدباقر قالیباف گفت بر اساس مصوبۀ شورای عالی امنیت ملی،‌ دسترسی بازرسان آژانس در حال حاضر به دو مورد نیروگاه هسته‌ای بوشهر و رآکتور تهران محدود است و به سایت دیگری دسترسی ندارند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76771)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-02 16:40:48
+
+<img src="https://cdn1.telesco.pe/file/r56sa0lOUdOZ1IdU0MQZ7H5HmngKnNywJnUDRtw4lKGRJxWgRDHCZ3syGJ8QfvYKWyeRk4dRDwG0sOKBi4GU4Z8H20tr1MHipdt-OdYrPDuQgMr6t_3Wb8q3V7d3hPweCjD4PzCaHU0SNhfocGbysb09yU-n5OsO_EFpSGX2UD-hLgDOgT-VUCBNczS9SXmPw2h85D4rElhx9afRZF1IcQXMYxITTG7IWHFFHZlezMcXMq10zdS2lNktikU7rzYFtCg0MPadnFAhFpKzYITsrC8449G_SaTJln0jFiQemFd5axoMZFMyCg8ydvUMOeN9yxI-OZcMievlccjfRSj2Xg.jpg" width="400"><br>
+
+منابع امنیتی عراق از وقوع یک حملۀ پهپادی به اردوگاه گروه‌های کرد مخالف جمهوری اسلامی در منطقۀ کوی‌سنجاق در شرق اربیل خبر می‌دهند.
+هنوز جزئیاتی از این حادثه منتشر نشده، اما طی روزهای اخیر چند عضو سپاه پاسداران و نیروی انتظامی جمهوری اسلامی در استان‌های غربی ایران از جمله کردستان هدف حملاتی قرار گرفته و کشته یا زخمی شده بوده‌اند. یک گروه مسلح کرد هم مسئولیت برخی از این حملات را بر عهده گرفته بود.
+مقام‌های امنیتی جمهوری اسلامی طی روزهای اخیر، بار دیگر از مقام‌های عراق و اقلیم کردستان خواسته بودند که به حضور گروه‌های کرد مسلح مخالف جمهوری اسلامی در خاک اقلیم کردستان پایان دهند.
+سپاه پاسداران طی ماه‌های اخیر بارها با موشک و پهپاد به پایگاه‌های گروه‌های کرد در اقلیم کردستان و عمدتاً در اطراف اربیل حمله کرده است.
+در همین حال خبرگزاری فارس به نقل از «منابع محلی» از وقوع چندین انفجار در اربیل و سلیمانیه، و از جمله هدف قرار گرفتن مقر «حزب آزادی» با موشک بالستیک خبر داده است.
+@
+VahidHeadline
+درگیری‌های مسلحانه میان نیروهای سپاه پاسداران و گروه‌های مسلح مخالف جمهوری اسلامی در اطراف شهرهای سردشت و پیرانشهر، شامگاه چهارشنبه ۱۰ تیر و بامداد پنج‌شنبه ۱۱ تیر، ادامه یافت و به کشته شدن چندین نفر انجامید.
+سازمان‌ حقوق بشری هانا اعلام کرد این درگیری‌ها در مناطق مرزی آذربایجان غربی رخ داده است.
+رسانه‌های نزدیک به حزب دموکرات کردستان ایران نیز اعلام کردند در جریان درگیری عصر چهارشنبه در نزدیکی روستای «قزقاپان» در اطراف پیرانشهر، پنج عضو این حزب کشته شدند.
+خبرگزاری فارس، نزدیک به سپاه پاسداران، بدون ارائه جزئیات اعلام کرد شش عضو حزب دموکرات کردستان ایران در این درگیری‌ها کشته شده‌اند.
+کانال تلگرامی صابرین‌نیوز، نزدیک به نهادهای امنیتی جمهوری اسلامی، نیز مدعی شد در دو درگیری جداگانه، ۱۱ نفر از اعضای گروه‌های مسلح مخالف جمهوری اسلامی کشته شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76769)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-02 16:40:48
+
+<img src="https://cdn1.telesco.pe/file/pR7E7Jz-A46QIX4xtkyOEaXvdYphnZqB6N43Khsiq0ZcbnsKH1ES9Q6n71Fzw2r2PkXzCJbZ87AKZmbba00-2cTSK4ir0jJEj8bhZUkZn87C_AyHgcj_n-REPrEbW6R0HlmaWRLi0ox-Q9XHWoCkkVitaLUgDzHN5lYxJ_MSSyf_yJwBqDO0lMtQPsI3bufzEDUBtweSM77vIolOb4y1jsiyxfBP7b04__ZYliT_JYgftVg-ke5FwI3-hX5RiWBmdd9XnHzUjL87-6vAWy-L1kqe2ahFJkLRPg5OQ7NmfULQY2PUFFmCN-0SWDeZIWD8mzA7621vcQ461vW8anhXpg.jpg" width="400"><br>
+
+حجت کرمانی، وکیل دادگستری، از بازداشت دوبارهٔ سپیده کاشانی و هومن جوکار، دو فعال محیط زیست که پیشتر سال‌ها در زندان بودند، خبر داد.
+آقای کرمانی به وب‌سایت «امتداد» گفت مأموران امنیتی عصر روز چهارشنبه دهم تیرماه با حضور در منزل این زوج، ضمن ضبط تمام وسایل الکترونیکی، آن‌ها را بازداشت کردند.
+به گفته این وکیل دادگستری، نیروهای امنیتی همچنین سیما کاشانی، خواهر سپیده کاشانی را نیز بازداشت کرده‌اند.
+او افزود تاکنون مشخص نیست این افراد توسط کدام نهاد امنیتی بازداشت شده‌اند و با توجه به تعطیلات پیش‌رو و بسته بودن مراکز قضایی، نگرانی خانواده‌های آن‌ها افزایش یافته است.
+از دلایل بازداشت این زوج گزارشی منتشر نشده است.
+سپیده کاشانی و هومن جوکار از اعضای مؤسسه «حیات وحش پارسیان» هستند که به همراه چند فعال دیگر محیط زیست زمستان سال ۱۳۹۶ توسط اطلاعات سپاه بازداشت شدند.
+کاووس سیدامامی از بازداشت شدگان این پرونده که تابعیت کانادا را هم داشت، چند روز پس از بازداشت، به طرزی مشکوک در زندان اوین جان خود را از دست داد و مدتی بعد سازمان اطلاعات سپاه پاسداران دیگر فعالان محیط زیست بازداشت شده را به «جاسوسی» و «همکاری با دول متخاصم» متهم کرد.
+سپیده کاشانی در طی سال‌های زندان در نامه‌هایی اعلام کرد که در دوره بازداشت تحت «شدیدترین شکنجه‌های روحی و روانی، تهدید به شکنجه فیزیکی و تهدیدهای جنسی» و «تهدید به مرگ» قرار گرفته‌اند.
+او در نامه خود نوشته بود که بازجویان این پرونده «ویدئوی جسد» کاووس سید امامی را برای شکنجه به او نشان داده‌اند، و همسرش، هومن جوکار، را برای تهدید و شکنجه به پای چوبه دار ساختگی بردند.
+سپیده کاشانی و هومن جوکار پس از سال‌ها زندان، در فروردین ۱۴۰۳ در پی عفو از زندان آزاد شده بودند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76768)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 
 
@@ -22,7 +131,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 <img src="https://cdn1.telesco.pe/file/LC3NLMhyND90IFtHc2XLVzsAYog_5I_qVaouOT4t5WbIndUkN_Jl02h_P2XiPZyL0kxZKCNkzsCyyCO7P-UW_n9sjm0bhXMVcQjnz3vnU9bm3-hie0u9bRrWdiBniwT_VGlDN5cK6rZ57gNX_cHeduiKj0D6vQUlPNJgiFKEG-RBL5ES9d3BD1nWyQCYv93GONyI9hkwQ834mEmRT5wlWdL9a2xZlSCUuYza63OkNJYEebGaYXcoDLGIWvZg-9CnDmUntMTaNgEkD0PaSd3F82Khb_XVmbZqHIMQze1iH0vcWEANAKndAhK3DPo2g9C7kEa25P2MbbxdLda7MuWTaA.jpg" width="400"><br>
 
@@ -43,7 +152,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 <img src="https://cdn1.telesco.pe/file/aGBmWFlYsw_ghzH1TRpI5DaKV2VdzJPTZhzFhBPqZk3vPZN-9G4sANwzfsaSxG9mDxwWPJVKjlQ3CXw95sZ-EQ-fDLjflmuqly0TaAqxJdks5xyFATGsvXaMf9ksaDJSKzIzbD-VI77IT5Uh7F-CvHtH5JveZFYuBKr1ahC7HIGid7s-j4JLMWfdgjvHf9XA4Jbvx6sSecA0ooO2hZGPadT_RokgMO-UabNKOSxH5sevDrSdL91lDWEDJDpiIw7Fab3w9QhodQ8lZuXX3rPVwQOnAkvKU9YNUUbKjTzurBlmrzO3yhgd1LM9OWutXCgqJo0_NI-OpqDvpCTbtfPBPA.jpg" width="400"><br>
 
@@ -67,7 +176,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 <img src="https://cdn1.telesco.pe/file/eYDANetlR4U0elQo5u_WamHzKsgL7gE1sVjrX9IlhO-8i6J51kMTTpgPEwmXCGuHtUDRGznn_ctYpxqj028JjahuMDzZpnbQPsMp02egQZVGusjrlF3A4EDSKXL4FWu9Nrh0yhdezYo5g6pugQSPLgigD0W5cRweWZuGEZXjrWrJTHZYKuF3HTwSMjy55B6Jt21jGlNfwuEiiWN1MR0REUqNZcMbnjo1vvh-e4sxidyWkj-DahCEOYKNEPgoAmHKR8UXX8ee0r4EuGEQCR5j6OVsBIl8WPYwUY76ZZWoyzgSNtdOtYDqH6AF3pLDYAH6LwkIPHzz0nPMWi4SYyultg.jpg" width="400"><br>
 
@@ -91,7 +200,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 <img src="https://cdn1.telesco.pe/file/o_ygFBkQY-w_tYWBq9M3dGccCYZd2d_Xt_MZ5PmRt7hArBb--VnwYZKQBytc7TaE1k9A_PbUCeLSbptMsRinVpvCrEokK7PCqJ9Db-e7Bi6Q8S5FSuk5dvj6AnuwyQYphiXk4VjEr4BwTsgYzlxHH0jqJg0StLKJcea5nyGPmnCHCl3fiqZDP-BmLTZC6NObYPwBqU25vvh1oQ37N6GARiJbYKeoHPV1zBEk8924uSJ2-YHHAYD41Vdc77By5rQufrkFFSp_q5v8fbzwivq-_ur9TbJq_g1vW8uWr9uC7OSRvowmfLYTx1Bkhj6cR-Q4inlRkRAoYdx3elwCyyDO3A.jpg" width="400"><br>
 
@@ -115,7 +224,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 
 
@@ -143,7 +252,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 <img src="https://cdn4.telesco.pe/file/aoP-s1ERF5Bu1TBKJO9u2g0KFsjNFDxfFUe2ZwDu5zbiRIyLJ8y2HRFoYityIqMpJhrLlCrVILpJEAyXHxlreff2vF0IDfwsm29Kp3Q0KqWSdjzBEiLJz17xyxOP9XrCcZzWNiKX-zkt7huYRgerpFDxi0wwKu5SnAwF7_3-qDttpLVlskDE2pWjAsAzTytBw3E2zbs7KUnR-emzqciWM3P136UMbLUzJ1BtdBwpoJ8cNXilo-7XQHLBUfKFBYMCcrMrT5lVcLiAdR1fAOf2zTK011xkoweP1CPt9MlRAgnlNGGK8_EKC5Qn-IbBCQITgL2RTpLy0H_tZxfT0-aRAg.jpg" width="400"><br>
 
@@ -162,7 +271,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 <img src="https://cdn4.telesco.pe/file/NPHjzyu9JNBit9Q_E2NR4hljpT8muCSIcqj3UsjssroTjNiCCL_s3-VeP0aYl8wy-pcvJtXngFy2A2elyHFF4ZZ9X5_ILhjkc0h1D_Ypks93z4jL7LoGjhLw8lMSp_DV1w2R5v1j7KKC8lLIouZox62coYwu8XlF7aCk5uWomxEF3dxOnwtxwpPviJsywcYunyQn93ZPUmw7tGySQZN58r7jxwqyDwFksmW2c1-25BARH7arZJ-pxdaMCkvcL2diGJ4ttPODR2Q6fo1oovsNFX_eCZAWuF_Xsvj1O0cwV-juOb7YKcU9FxMQrnKbdHdbatmCDSjOhRos-leBSF-w5w.jpg" width="400"><br>
 
@@ -180,7 +289,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
 <img src="https://cdn4.telesco.pe/file/MiyxnPHVHUhJFCBeJDHPvcQ0KU4Wd2AIW2NI1FxZiOsARkqnXD1NFsjPoPeI_nj_xLYMReTSlUJ4YqTeL62Mxmp3yKNwGXV_p5LDFTndFxTGQA9kVp91ZuxpTTYOUXz3P61Q1JhuitSuPjl2xOacPhwzj9zFwxpNHgQx-32k87qj34OwrIP7RrN8B8qnGMwnVYSPbXLPMJ_TVQ3CbYIdP_usOl3zaYz8Rn1_-8vc0K361oqp3jy6r6D1BhdfTx_WWcBPwHs34ist6TvM6CkVp5nbymD8cIRDs-bzFGjPsP2U3RZn32ywqZGQSenFPWsxMYcZEO4t3hgvvDJGQ9bcEQ.jpg" width="400"><br>
 
@@ -198,9 +307,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-02 14:42:40
+###### 🔵 Updated at: 2026-07-02 16:40:48
 
-<img src="https://cdn1.telesco.pe/file/tNFBkCngyHLqfHmCoWGMyROhL2q3TmGFAApEAfQMgNKloBDnaZs7EUeulAbqx7dF658NgsxZPNMCiv1Zu6MBDDIyTEpsvkWXFq6WFd2tq34A85vZTABaGhjLTDTnqQudfnjBKmpkGNhUaAlNSwGb3xEEex9xeNsKW_3aFlyu5AcG-FskD42qAbVbxUc0M2lt4RAI12oVA7oImMzIvz2GBQcPgU47WRe78ps2kj2T7rFuNhcfJ5sUeyjqFPfr6am0wRiWH_DDrMmEMc0XZq8zhbGPC2rVk1Y0hLnRVnP09I4L0LAljpYjYSfcfhndUlIGSGUv4Hd6GYHqkcZKVrlJFQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/SOLJw4TI6j3YwEyhQqihEOwyUs0aaqQSorglqSEFqtJAGRAwUsQO42Be50md2MvbxuQbC8DiOehbaAy6AX2zwInkQO56WfD0aFAT5vcsHppIUovU85tV5cue0x4R6TvdpZplLRMxNpesVFBjoHNhMz0v80aGhAZHf6VdZvxNeIxpYqeh_tBFDVVn9HEO_RS_5JAZLEeNKl-y_AVknvTZsbprojl4alS9_u83S6M6DgjLtqRYzzpzd6472235Pq4XuEHrYsN5zpfJ0hqAiycvZIm7_3Yk_ZgyOpzaADFtymfm-GSEjtPeWxX9wAWpu_yUf1LIKuEm_zC816l9QfoFpA.jpg" width="400"><br>
 
 معاون اجرایی مسعود پزشکیان تأیید کرد که فرماندهان نظامی عضو شورای عالی امنیت ملی ایران و دو نمایندهٔ رهبر جمهوری اسلامی در این شورا نیز به تفاهم‌نامهٔ ایران و آمریکا رأی مثبت داده‌اند.
 محمدجعفر قائم‌پناه روز سه‌شنبه نهم تیرماه اعلام کرد در جلسهٔ‌ شعام برای بررسی این تفاهم‌نامه، رئیس‌جمهور، رؤسای مجلس و قوه قضائیه، جانشین رئیس ستاد کل نیروهای مسلح، وزیر کشور، رئیس سازمان برنامه و بودجه، وزیر خارجه، فرمانده کل سپاه پاسداران، فرمانده ارتش، و دو نماینده رهبر جمهوری اسلامی در شورا،
@@ -217,123 +326,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76754)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-02 14:42:40
-
-<img src="https://cdn4.telesco.pe/file/Whjt8qDuUOubEl0AOHSYTr7qJj171XMq2G3QWjwnky_LG0rCWlX4O7OgOZ3_MQHoldvYhCx7dHGm6KOWmqv93wn0bHYYu8FpvsgKEcZS8qv7ngRVWmph4p45EHXidsvHCinq7NNagjyJM3wlfcfbIVRtVS-hNKRisjeR0kGEupl3dx0AT6vt-V79RO1awNP5onlMNiNHsKmMJPJUN1X0Q2nAuELFsl2Jgy0oR7QX1nNcsMftpivVx9LxCeehG7lnyJBiXHw8xl6QsaGjBptO5Q2Vf114hRtXOFewD8EXiQqkh19GeWsnAduSbmbVVpwjNdH1-RIt_hPN5jnFCsni0Q.jpg" width="400"><br>
-
-در این تصویر، محمدرضا شاه پهلوی در جریان بازدید از بانک ملی ایران، با یوسف خوش‌کیش، رئیس وقت بانک ملی، گفت‌وگو می‌کند.
-خوش‌کیش بعدها ریاست بانک مرکزی ایران را عهده‌دار شد و آخرین رئیس‌کل بانک مرکزی پیش از انقلاب ۱۳۵۷ بود.
-پس از انقلاب، خوش کیش بازداشت شد و تنها طی سه روز محاکمه، با اتهاماتی از جمله «ثابت نگه داشتن ارزش ریال در برابر دلار آمریکا به مدت پنج سال»، به اعدام محکوم شد و بامداد ۲۴ مرداد ۱۳۵۹ تیرباران گردید.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76753)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-02 14:42:40
-
-<img src="https://cdn4.telesco.pe/file/l2O7Zjq_jOzOKFw0sEwVbCdkWkJTOxFMdUh7QfDXPe8QgTINd_hvif4Dmm3P2fozSasZ5zqJHay0W9Fav-U3nvssEPcAMOlcy6GXpul8Avk3xysuJvpDTlSc-FN5KVac3t1me6f3BBaZ0AIQQ4UI_Xc8cu0JLux6JRpzMIuxovgHLSHrk22YY3q7UK7LvJbh2aeBkkDfSPIzfGFdhlvyWn6CLhn5SelOkWZ8dUDd5nrDCg6somaTSquRMW3eSev9vrIHYdwoU86suk1H5CUkeUi9MvhA-qicQj3C3ZCoYGWl2uMPt0NZHu4halPBg9rdWnkujS5DDCNwlk_uFDvAuA.jpg" width="400"><br>
-
-مسعود پزشکیان مخالفان داخلی تفاهم‌نامهٔ ایران و آمریکا را به «همسویی با عملیات رسانه‌های معاند» متهم کرد و گفت «تمامی مراحل مذاکرات» با «هماهنگی کامل و مستمر» با رهبر جمهوری اسلامی انجام شده است.
-رئیس‌جمهور ایران که روز سه‌شنبه ۹ تیر در دیدار با اعضای جامعه مدرسین حوزه علمیه قم همچنین گفت: «با وجود محدودیت‌ها و ملاحظات امنیتی موجود، متن نهایی توافق پس از بررسی‌های کارشناسی و امنیتی در مراجع ذی‌صلاح مورد ارزیابی قرار گرفت و در شورای عالی امنیت ملی نیز از حمایت قاطع اعضا برخوردار شد.»
-این در حالی است که در روزهای اخیر مخالفت برخی طیف‌های سیاسی طرفدار حکومت با تفاهم‌نامه بالا گرفته و می‌گویند دولت، محمدباقر قالیباف، رئیس هیئت مذاکره‌کنندگان، و حتی برخی فرماندهان ارشد سپاه برخلاف نظر مجتبی خامنه‌ای این تفاهم‌نامه را تصویب کرده و پیش برده‌اند.
-مسعود پزشکیان این دسته از مخالفان «جریان‌های همسو با عملیات روانی رسانه‌ّای معاند» خواند و گفت: «این‌ها تلاش می‌کنند با تخریب تیم مذاکره‌کننده و زیر سؤال بردن تصمیمات ملی، زمینهٔ تضعیف این دستاورد را فراهم کنند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76752)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-02 14:42:40
-
-<img src="https://cdn4.telesco.pe/file/W6y_p2HmDNhVB4fP9mIGr2ARVYPgRNU3Tlq_WW5f0VB9s1k7K9hQ3OQ6lEsqxda-1Z334vqy7TXj4K93DPLdbz7ZcpCtczrVdiy_AX8vnTd_93_f6GmYFdWXW4jHI8W9pICxjP_1_ZbhLeWjeY44ijGMrtca-SrLz26cM0efp03zMxsIAAFNdKxXSABQBczgXD8ec7LtaznpWEXL9Wkzx-JfyhZEmwDFOZLKmmBLoaNmIlql9TimML83fZ2mw3XbZznlGN_MnILN3BhWCId6dZqIfxhu3J4WUhpSaHIHMIf2WVdrkKTY-90pOKg1DLHD0F4datCtjuEqzOoiL6lU5g.jpg" width="400"><br>
-
-بیش از ۱۴ روز از آغاز اختلال در شبکه خدمات برخی از بانک‌های کشور از جمله بانک‌های صادرات، تجارت، ملی و توسعه صادرات می‌گذرد؛ اختلالی که همچنان به‌طور کامل برطرف نشده و ارائه خدمات بانکی را با مشکل مواجه کرده است.
-در این مدت، گزارش‌های مردمی از تداوم کندی، قطعی و ناپایداری سامانه‌های بانکی حکایت دارد؛ این در حالی است که مسئولان بانکی در روزهای گذشته بارها از رفع یا در آستانه رفع بودن مشکل خبر داده بودند.
-ادامه این وضعیت موجب بروز اختلال در انجام تراکنش‌های روزمره از جمله انتقال وجه، دریافت حقوق و پرداخت اقساط برای بسیاری از شهروندان شده است.
-هم‌زمان، کسب‌وکارهای خرد و متوسط نیز با مشکلاتی در دریافت مطالبات و انجام پرداخت‌ها مواجه شده‌اند؛ موضوعی که به گفته فعالان اقتصادی، بر روند فعالیت روزانه آن‌ها تأثیر گذاشته است.
-در همین ارتباط، محمدرضا عارف، معاون اول رییس جمهوری، در جلسه‌ای با مدیران بانکی با اشاره به اختلال‌های اخیر گفت: «آنچه در بانک‌ها رخ داد نتیجه سهل‌انگاری در حوزه امنیت سایبری است و این موضوع قابل پیش‌بینی بود.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76751)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-02 14:42:40
-
-<img src="https://cdn1.telesco.pe/file/kNjUcM7cen5gp2XgRTYIiFQYb5JYXVGm-_7OvAIqeOEQvmrDp2f8YafrUjbOwvXymoJEW4xT0LJx4wKWUHmaYP3FJVv_VDtpZyMTQK1ibRnTdbUVcvvt16KVWp3cbumrsV1AfzmmYx9oJJtnUh0Bn0IsEweFRZftz3Qz3vsSSrR1BL_yH-lJT5EUfGzwb_pnsMxMzuDI3f1CGdmOXCEOHmwgVmKRg4Z9JXz-z_9hu9p-jQAvTmWO0WpevFVaXJ0BkrwQWx_jGzqxzyjXEIPxFKwpKwvvD34uDGeixMiTZEEH9kBNsWkijRmJPFHKH8_Wk1EdpYAScpg7YNPCdh3YUg.jpg" width="400"><br>
-
-رضوانه احمدخان‌بیگی، فعال مدنی، جهت تحمل ادامه دوران محکومیت حبس، به همراه فرزند خردسال خود راهی زندان اوین شد.
-براساس اطلاعات دریافتی هرانا، رضوانه احمدخان‌ بیگی، دوشنبه ۸ تیرماه، به همراه دختر خردسالش، مهفر لاله‌زاری که زیر دو سال سن دارد، برای تحمل ادامه دوران محکومیت حبس خود راهی زندان اوین شد.
-این زندانی سیاسی در تاریخ ۲۸ شهریور ۱۴۰۳ جهت زایمان از زندان اوین به مرخصی اعزام شده بود.
-رضوانه احمدخان بیگی و همسرش بهفر لاله زاری در دی ماه ۱۴۰۲ به اتهام اجتماع و تبانی علیه امنیت داخلی و تبلیغ علیه نظام به ۱۰ سال زندان محکوم شدند. این حکم در اسفندماه همان سال تأیید شد و بعد از پذیرش اعاده دادرسی و رسیدگی در شعبه هم عرض به ۲۱ ماه حبس کاهش یافت.
-hra_news
-فرحناز نیکخو، نیره بهنود، میترا برمچ و زهرا (هانا) غلامی، چهار زندانی سیاسی، پس از پایان دوران مرخصی خود به زندان اوین بازگشتند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76750)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-02 14:42:40
-
-<img src="https://cdn4.telesco.pe/file/ZuCrLMzO4oci9W0Vw-IhM2jlEr9ENutJGQZvP-5PNUSJCvAt3yCUK9FxYGsg4XG1p6P9kHUtwZJca1U_cYQCTg9O7o1piO-wrLxIhM1fgGyNtHrNLqTOps3AHbmEmWZ6NvFSoT12szFv3ps037d-wZ4jIswraBbeBD7BlqqGgqivLLF0oGLNCIb_H9p4CTOg9fbv6aJGesf3ZRqcapQwd5nid8VjH9rhrVO0RPyxCG81v1Fr1owtacVymAbb70DM-m6LmYeGl7MUj-QLg_CVSBj_hky6pwY41BAdbGiUgUAKiieBEU_XVtij92bP5R48MEmfsSkI3BxpLhwWkrz00g.jpg" width="400"><br>
-
-روابط عمومی سپاه استان کرمانشاه اعلام کرد دو تن از نیروهای بومی سپاه در شهرستان پاوه شامگاه دوشنبه در پی تیراندازی افراد مسلح «به درِ منزل‌هایشان» کشته و دو نفر دیگر زخمی شدند.
-بر اساس گزارش خبرگزاری مهر به نقل از روابط عمومی سپاه استان کرمانشاه، این حمله مقابل منزل دو تن از نیروهای سپاه در پاوه رخ داده است. در این گزارش، عاملان حمله «افراد مسلح تروریست» معرفی شده‌اند.
-منابع رسمی هویت دو عضو کشته‌شده سپاه را برهان کریسانی و خالد خالدی اعلام کرده‌اند.
-همزمان، سازمان حقوق بشری هه‌نگاو گزارش داد که این حمله را گروهی تازه‌تأسیس به نام «خوری هیوا» (خورشید امید) بر عهده گرفته است. هه‌نگاو نیز نام دو کشته‌شده را خالد خالدی و برهان کریسانی اعلام کرده و نوشته است دو عضو دیگر سپاه در این حمله به‌شدت زخمی شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76749)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-02 14:42:40
-
-<img src="https://cdn4.telesco.pe/file/bxCAOmyyZ1NxFAMPYnxGuETaArIz-Fy6XfcNDxjDZx2-UF1qritviMObe1wW5EYdBvZAkjesm1FUtboKPzlTymXN5Obxl_LbveV5Id9OUgzy3dDbBbPNRJKo1yFt72ltShQwYMvPor4HAZ8fTtXfxSME5t0Io82pasSXC7iSwa4FftJ_XWLVMs9LRuSWXvWoppSzfB7P37MoqCzNihmFEKYbNg4e1cbRR4nzDBLoeTclbT3Hg_iCZh-TU9DOOa_qfrg2x4wJiRiCg8p6NdR565a-lcNjAeU-au7CfLxzl2irhHRT9UTDPgwwwDHaF4Nc6YB3VNw8qAbmbssYYEWRTg.jpg" width="400"><br>
-
-اسماعیل بقائی، سخنگوی وزارت امور خارجه جمهوری اسلامی، روز دوشنبه انجام مذاکره با آمریکا در دوحه را رد کرد و گفت در روزهای آینده هیچ مذاکره‌ای انجام نمی‌شود.
-این در حالی است که دونالد ترامپ، رئیس‌جمهور آمریکا، از درخواست ایران برای انجام مذاکره در قطر در روز سه‌شنبه خبر داده و سخنگوی کاخ سفید اعلام کرده استیو ویتکاف و جرد کوشنر به عنوان نمایندگان ایالات متحده عازم قطر می‌شوند.
-بقائی در این باره اعلام کرد: «طی روزهای آتی هیچ نشست مذاکراتی در هیچ سطحی با طرف آمریکایی نداریم و این‌که نمایندگان آمریکا به قطر سفر می‌کنند، ارتباطی با سفر هیات ایرانی که برای پیگیری اجرای مفاد یادداشت تفاهم از جمله بند ۱۱ انجام می‌شود ندارد.»
-او در ادامه توضیح داد «هیئت کارشناسی» جمهوری اسلامی این هفته برای پیگیری آزادشدن دارایی‌های مسدودشده ایران بر اساس بند ۱۱ تفاهم‌نامه امضا شده میان ایران و آمریکا به قطر می‌‌رود.
-ساعاتی پیش مسعود پزشکیان اعلام کرد که «شش میلیارد دلار از مجموع ۱۲ میلیارد دلار منابع ایران در قطر آزاد و به کشور بازگردانده خواهد شد»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76748)
 
 ---
 
