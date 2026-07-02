@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn1.telesco.pe/file/iO6hgUDfkRU1dmgMQqWJrQUAzrjcLToaj3Z8ogXFuj72PqDZWQwjCCDdhDnU7iNtMKhSlSD559Tjw3kuPQ-bPa5WnknZF5lcycZmkVCgTEwtG6tk__W3pYSed-s5_1WSjAW9r7Gwklfi1tc4RGzZqqirLsz3yhHbek5bPzu6ObyxAX-jLIt23YAzcVFGM3hRohNG6mcK6pfVetSrWxBI2SpPELtuxH4umUVVoGFVMB2YmO8cls0bYH_616KBgTutAJBWq_qhnQjYl1_AlmCQp0SqmO7aVnakWDTx9fUXvj7FNF0FmWkhh3mPA2Z0UYDiV2vLcvE3GK76Gm3-xjL3aw.jpg" width="400"><br>
 
@@ -17,7 +17,7 @@
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn1.telesco.pe/file/Ba1IHviZDXsJt_ZBMK3eXey3hOIh5OaCc1piPQjBDgLK7i_f8nTxG8uYByA5dLI8YsZJ-ZEyLnx4Z_6SfuIb6_Bbwi7gbK-ppXhaGWm1mdLuoUtPuUjjjEi3HfYaZCGXUXMa_RqJ_9SEqFw64HWcJY0yP7vBwiXbXpIxljVp0IPhmwwuvoZxiK8m-FsZZhSgNxeeV3zD9GFTJmV-UKljp9ZPMOEKu2hlYIsy6MZw17rVSM8JZmmwUbiL6YM5e_2kMknkdqLnSZEEv5y7vfm1JJPCY8DpnksYlPAz5wBZYqTvfQYrN6nxjZJAcBkKRIQKVK9bSTSuz9oZ-FXM05RtSg.jpg" width="400"><br>
 
@@ -41,7 +41,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 
 
@@ -60,7 +60,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn1.telesco.pe/file/r56sa0lOUdOZ1IdU0MQZ7H5HmngKnNywJnUDRtw4lKGRJxWgRDHCZ3syGJ8QfvYKWyeRk4dRDwG0sOKBi4GU4Z8H20tr1MHipdt-OdYrPDuQgMr6t_3Wb8q3V7d3hPweCjD4PzCaHU0SNhfocGbysb09yU-n5OsO_EFpSGX2UD-hLgDOgT-VUCBNczS9SXmPw2h85D4rElhx9afRZF1IcQXMYxITTG7IWHFFHZlezMcXMq10zdS2lNktikU7rzYFtCg0MPadnFAhFpKzYITsrC8449G_SaTJln0jFiQemFd5axoMZFMyCg8ydvUMOeN9yxI-OZcMievlccjfRSj2Xg.jpg" width="400"><br>
 
@@ -87,7 +87,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn1.telesco.pe/file/pR7E7Jz-A46QIX4xtkyOEaXvdYphnZqB6N43Khsiq0ZcbnsKH1ES9Q6n71Fzw2r2PkXzCJbZ87AKZmbba00-2cTSK4ir0jJEj8bhZUkZn87C_AyHgcj_n-REPrEbW6R0HlmaWRLi0ox-Q9XHWoCkkVitaLUgDzHN5lYxJ_MSSyf_yJwBqDO0lMtQPsI3bufzEDUBtweSM77vIolOb4y1jsiyxfBP7b04__ZYliT_JYgftVg-ke5FwI3-hX5RiWBmdd9XnHzUjL87-6vAWy-L1kqe2ahFJkLRPg5OQ7NmfULQY2PUFFmCN-0SWDeZIWD8mzA7621vcQ461vW8anhXpg.jpg" width="400"><br>
 
@@ -112,7 +112,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 
 
@@ -131,9 +131,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
-<img src="https://cdn1.telesco.pe/file/LC3NLMhyND90IFtHc2XLVzsAYog_5I_qVaouOT4t5WbIndUkN_Jl02h_P2XiPZyL0kxZKCNkzsCyyCO7P-UW_n9sjm0bhXMVcQjnz3vnU9bm3-hie0u9bRrWdiBniwT_VGlDN5cK6rZ57gNX_cHeduiKj0D6vQUlPNJgiFKEG-RBL5ES9d3BD1nWyQCYv93GONyI9hkwQ834mEmRT5wlWdL9a2xZlSCUuYza63OkNJYEebGaYXcoDLGIWvZg-9CnDmUntMTaNgEkD0PaSd3F82Khb_XVmbZqHIMQze1iH0vcWEANAKndAhK3DPo2g9C7kEa25P2MbbxdLda7MuWTaA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GLk59rmpDlVj_yLVe9TKzoDW3wRoAdymCGGVGvIISXDv56jQOSt6pHsy3kH3GcVjujwm-i78qn_j8__RkOOdIt6vtfunT5bWtMR2d6_O4hgpzs1CrAAUZP68JjAbX7T8koUzaCksXqNxfM_cmTKL63YEFctpcxMJD5Y_zE2AEr8VDegnPxysK7TFDdtoB98b3HtzhAvKFF_j22BFDwr_bdzxoHNBF1UD1gvXoBZ5tv_jyug586o2Uz_lL5CtKoxf3fVNHqDEvZ55MPNX3EW30JUKjs7VBlqAyiJ2dPfMX5n3VgDxGsc7H1RyCR8AOHbPdTGpwoBSR_Bs7hS-4U57hg.jpg" width="400"><br>
 
 رئیس‌جمهور آمریکا روز چهارشنبه ۱۰ تیرماه از روند مذاکرات ابراز رضایت کرد و گفت این روند «بسیار خوب» پیش می‌رود.
 دونالد ترامپ که در واشینگتن با خبرنگاران صحبت می‌کرد، افزود که آمریکا چند روز پیش حملات شدیدی به ایران انجام داد، اما نشست‌های اخیر دو طرف در قطر به‌خوبی برگزار شده است.
@@ -152,9 +152,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
-<img src="https://cdn1.telesco.pe/file/aGBmWFlYsw_ghzH1TRpI5DaKV2VdzJPTZhzFhBPqZk3vPZN-9G4sANwzfsaSxG9mDxwWPJVKjlQ3CXw95sZ-EQ-fDLjflmuqly0TaAqxJdks5xyFATGsvXaMf9ksaDJSKzIzbD-VI77IT5Uh7F-CvHtH5JveZFYuBKr1ahC7HIGid7s-j4JLMWfdgjvHf9XA4Jbvx6sSecA0ooO2hZGPadT_RokgMO-UabNKOSxH5sevDrSdL91lDWEDJDpiIw7Fab3w9QhodQ8lZuXX3rPVwQOnAkvKU9YNUUbKjTzurBlmrzO3yhgd1LM9OWutXCgqJo0_NI-OpqDvpCTbtfPBPA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/SkKYxzUR8fkLiUBb8aWKJs705X9EBkR8NgSwiOXTAgmbJG3okJujiFh2rNnByxaYJSQtUxGbzBwfvLW4p0oMUV_FFL4gbjzZSK7f6pLZ_iCFuHl-JI7iXK2skqXvORFUShZFonvC5bI6g72WoG3-KoH1tTc1BlyL8kphHLL59whT3do_to8QzMec0I9UJp0kHmveo1ncVWyRTukiS3-UM7g2orYUkFXuU9dmUotJxzw12dRAUppIcjV4s-xDsYIezP0MJHIjWVEJiqYVeakfh8T_7-YxxuiZYfvwDOwjkIqGHjk3INTZWSUs5hCtildNshkKJ24B-BoAY-wlbURkjQ.jpg" width="400"><br>
 
 معاون وزیر خارجه جمهوری اسلامی که برای شرکت در نشست‌های مرتبط با اجرای تفاهم‌نامه ایران و آمریکا به دوحه سفر کرده است، اعلام کرد کارگروه‌های پیگیری اجرای تفاهم‌نامه و نیز مذاکره برای دستیابی به توافق نهایی تشکیل شده‌ اما هنوز مذاکرات در این قالب آغاز نشده است.
 کاظم غریب‌آبادی بعدازظهر چهارشنبه دهم تیرماه، پس از دیدار با شیخ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر، به خبرنگاران گفت رایزنی‌ها برای تعیین زمان و محل آغاز مذاکرات از طریق میانجی‌‌ها ادامه دارد و در صورت فراهم شدن شرایط لازم، این گفت‌وگوها آغاز خواهد شد.
@@ -176,9 +176,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
-<img src="https://cdn1.telesco.pe/file/eYDANetlR4U0elQo5u_WamHzKsgL7gE1sVjrX9IlhO-8i6J51kMTTpgPEwmXCGuHtUDRGznn_ctYpxqj028JjahuMDzZpnbQPsMp02egQZVGusjrlF3A4EDSKXL4FWu9Nrh0yhdezYo5g6pugQSPLgigD0W5cRweWZuGEZXjrWrJTHZYKuF3HTwSMjy55B6Jt21jGlNfwuEiiWN1MR0REUqNZcMbnjo1vvh-e4sxidyWkj-DahCEOYKNEPgoAmHKR8UXX8ee0r4EuGEQCR5j6OVsBIl8WPYwUY76ZZWoyzgSNtdOtYDqH6AF3pLDYAH6LwkIPHzz0nPMWi4SYyultg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pb0fpsBgkRao98D3IIE_hoMj5eJ7mzVbGO_nciJ7-u-Dqkiyeen5ZOyLsrUILeHz9rq9HLscXF-DNwQQODtOxecyLY1r1_SPsXOYP6eTDnehPtgZl83PFXeaInVPZw9EdwOkmZ7O1weV7_H02NV2SFIEvNWWeVtCkC6MfpWA4g-HqiMjZ9uUZo2VepWbevcn7cpmE8pwDi_aCOLdoxRCT4ivmn-s1No4UaebSWOlMSkMfJoJMVoJVWvefWOtjqhfsoh4Ilz90MQed9xJBRC3DVnMkJhznyVMjtHqAHIhgHKfoj-C-7QWJmlLMvwe2FzgWo4x0GWic06S1DBE6l1QHw.jpg" width="400"><br>
 
 هم‌زمان با ادامه برخوردهای قضایی و امنیتی با فعالان صنفی فرهنگیان، سه معلم  با احکام زندان و مجازات‌های تکمیلی روبه‌رو شدند و یک فعال صنفی دیگر نیز در استان فارس بازداشت شد.
 بر اساس گزارش شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران، احمد علیزاده، معلم بازنشسته و فعال مدنی اهل آبدانان، از سوی دادگاه انقلاب ایلام به دو سال حبس تعزیری، یک سال ممنوعیت خروج از کشور، ابطال گذرنامه و یک‌هزار و ۸۰ ساعت خدمات عمومی رایگان محکوم شده است.
@@ -200,7 +200,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn1.telesco.pe/file/o_ygFBkQY-w_tYWBq9M3dGccCYZd2d_Xt_MZ5PmRt7hArBb--VnwYZKQBytc7TaE1k9A_PbUCeLSbptMsRinVpvCrEokK7PCqJ9Db-e7Bi6Q8S5FSuk5dvj6AnuwyQYphiXk4VjEr4BwTsgYzlxHH0jqJg0StLKJcea5nyGPmnCHCl3fiqZDP-BmLTZC6NObYPwBqU25vvh1oQ37N6GARiJbYKeoHPV1zBEk8924uSJ2-YHHAYD41Vdc77By5rQufrkFFSp_q5v8fbzwivq-_ur9TbJq_g1vW8uWr9uC7OSRvowmfLYTx1Bkhj6cR-Q4inlRkRAoYdx3elwCyyDO3A.jpg" width="400"><br>
 
@@ -224,7 +224,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 
 
@@ -252,7 +252,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn4.telesco.pe/file/aoP-s1ERF5Bu1TBKJO9u2g0KFsjNFDxfFUe2ZwDu5zbiRIyLJ8y2HRFoYityIqMpJhrLlCrVILpJEAyXHxlreff2vF0IDfwsm29Kp3Q0KqWSdjzBEiLJz17xyxOP9XrCcZzWNiKX-zkt7huYRgerpFDxi0wwKu5SnAwF7_3-qDttpLVlskDE2pWjAsAzTytBw3E2zbs7KUnR-emzqciWM3P136UMbLUzJ1BtdBwpoJ8cNXilo-7XQHLBUfKFBYMCcrMrT5lVcLiAdR1fAOf2zTK011xkoweP1CPt9MlRAgnlNGGK8_EKC5Qn-IbBCQITgL2RTpLy0H_tZxfT0-aRAg.jpg" width="400"><br>
 
@@ -271,7 +271,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn4.telesco.pe/file/NPHjzyu9JNBit9Q_E2NR4hljpT8muCSIcqj3UsjssroTjNiCCL_s3-VeP0aYl8wy-pcvJtXngFy2A2elyHFF4ZZ9X5_ILhjkc0h1D_Ypks93z4jL7LoGjhLw8lMSp_DV1w2R5v1j7KKC8lLIouZox62coYwu8XlF7aCk5uWomxEF3dxOnwtxwpPviJsywcYunyQn93ZPUmw7tGySQZN58r7jxwqyDwFksmW2c1-25BARH7arZJ-pxdaMCkvcL2diGJ4ttPODR2Q6fo1oovsNFX_eCZAWuF_Xsvj1O0cwV-juOb7YKcU9FxMQrnKbdHdbatmCDSjOhRos-leBSF-w5w.jpg" width="400"><br>
 
@@ -289,7 +289,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn4.telesco.pe/file/MiyxnPHVHUhJFCBeJDHPvcQ0KU4Wd2AIW2NI1FxZiOsARkqnXD1NFsjPoPeI_nj_xLYMReTSlUJ4YqTeL62Mxmp3yKNwGXV_p5LDFTndFxTGQA9kVp91ZuxpTTYOUXz3P61Q1JhuitSuPjl2xOacPhwzj9zFwxpNHgQx-32k87qj34OwrIP7RrN8B8qnGMwnVYSPbXLPMJ_TVQ3CbYIdP_usOl3zaYz8Rn1_-8vc0K361oqp3jy6r6D1BhdfTx_WWcBPwHs34ist6TvM6CkVp5nbymD8cIRDs-bzFGjPsP2U3RZn32ywqZGQSenFPWsxMYcZEO4t3hgvvDJGQ9bcEQ.jpg" width="400"><br>
 
@@ -307,7 +307,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-02 16:40:48
+###### 🔵 Updated at: 2026-07-02 18:59:36
 
 <img src="https://cdn1.telesco.pe/file/SOLJw4TI6j3YwEyhQqihEOwyUs0aaqQSorglqSEFqtJAGRAwUsQO42Be50md2MvbxuQbC8DiOehbaAy6AX2zwInkQO56WfD0aFAT5vcsHppIUovU85tV5cue0x4R6TvdpZplLRMxNpesVFBjoHNhMz0v80aGhAZHf6VdZvxNeIxpYqeh_tBFDVVn9HEO_RS_5JAZLEeNKl-y_AVknvTZsbprojl4alS9_u83S6M6DgjLtqRYzzpzd6472235Pq4XuEHrYsN5zpfJ0hqAiycvZIm7_3Yk_ZgyOpzaADFtymfm-GSEjtPeWxX9wAWpu_yUf1LIKuEm_zC816l9QfoFpA.jpg" width="400"><br>
 
