@@ -3,7 +3,63 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:20
+
+
+
+مراسم ادای احترام به پیکر علی خامنه‌ای با حضور مقامات ارشد جمهوری اسلامی همراه با فرماندهان نیروهای مسلح روز جمعه ۱۱تیر۱۴۰۵ در مصلای تهران برگزار شد.
+تصاویر منتشر شده از این مراسم در رسانه‌های ایران نشان می‌دهد مقامات در گروه‌های چند نفری در مقابل جایگاهی که تابوت‌های علی خامنه‌ای و تعدادی از اعضای خانواده کشته‌شده‌اش دیده می‌شوند، حاضر می‌شوند.
+در این مراسم شماری از مقامات کشورهای همسایه ایران حضور دارند اما مقامات کشورهایی مانند چین، روسیه و ترکیه به عنوان حامیان جمهوری اسلامی ایران در این مراسم غایب بودند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76777)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-03 18:53:20
+
+<img src="https://cdn1.telesco.pe/file/CuItH6D1tdVJqU9gLf9pZIRe6tJIa0SbRe9_bqUHVe8V7izOma5MLquF-fu2QJMwP-_LZ6MmgkfNzlQBBaLSZMrpDcGqkVqZKwhB9NNPID-K-zAuSEEqxWI_ckrJjqhhwu8MPiRn7PCoMbP_kmV_OXQHU4H2kRnbB6hXR7OEurSes_I4q-VUDjO4vpQeId0K28TkXacU_PxfdhCp-i00QpOAKMv4rtrIFbAKGlVC8UdtX6LkBWQSWXCIsPN3DciFaYrgesilC0FM4LJtH4fr9Ofmttna9Zu-jNyYSfErWzkWuKo_SnBHWnHlSnrU-b9DzBR0q98S06PxBunkbV9b6Q.jpg" width="400"><br>
+
+به گزارش سایت هرانا الهام زراعت‌پیشه، وکیل دادگستری، از سوی شعبه اول دادگاه انقلاب شیراز به شش سال حبس، دو سال ممنوعیت خروج از کشور و ابطال گذرنامه محکوم شده است.
+بر اساس این گزارش، شعبه اول دادگاه انقلاب شیراز الهام زراعت‌پیشه را به اتهام «اجتماع و تبانی علیه امنیت ملی» به پنج سال حبس و به اتهام «تبلیغ علیه نظام» به یک سال حبس محکوم کرده است.
+این دادگاه همچنین او را به مدت دو سال از خروج از کشور منع و گذرنامه‌اش را باطل کرده است.
+الهام زراعت‌پیشه ۱۴ اردیبهشت ۱۴۰۵ در محدوده دادسرای اجرای احکام شیراز بازداشت شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76776)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-03 18:53:20
+
+<img src="https://cdn4.telesco.pe/file/WDcFzfHid2kQ4MeLaLiN1_XXKF1LT4-dOwgqL9HVbQpL8L_Kxv2nxxeNLI-HkzuXO11Cjge_NNsD0eeWuWdKnyub-gh8UuAMSwNACd_7iIgZnD3wrKyNfUC7hpMR5fjcqjxuE7sbWWSfLjjDiFdh3i6CdwstfrDWVxalWsWRwgOGhlAbhJ7yly44xrE1dM_hJj3VQ75ohL4Q-FDvveKEqqoVGKaEF2P0bo7oYRRm4o83gj0zTJ1ACt-Tgyw8uNFQeZ0yXa_29NZEW6yvaDb--uokZQIUyaRSrmm4lQP3kYTfR53WN7X11nNyO_y-ewmL-hOo7azJ9mQGVRtnMUHl5Q.jpg" width="400"><br>
+
+ارغوان فلاحی، زندانی سیاسی ۲۴ ساله محبوس در زندان اوین، از سوی شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی، به اتهام «بغی» به اعدام محکوم شده است.
+خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، با اعلام این خبر نوشت حکم اعدام فلاحی بر اساس ماده ۲۸۷ قانون مجازات اسلامی و با استناد به اتهام «بغی از طریق عضویت در گروه‌های مخالف نظام و اقدام مسلحانه» صادر شده است.
+ارغوان فلاحی در جریان پرونده‌ای بازداشت شد که چند متهم سیاسی دیگر نیز در آن حضور دارند. نهادهای امنیتی جمهوری اسلامی او را به عضویت در گروه‌های مخالف حکومت متهم کرده‌اند.
+منابع حقوق بشری می‌گویند او این اتهام‌ها را رد کرده و روند رسیدگی به پرونده‌اش با محدودیت در دسترسی به وکیل و برگزاری جلسات غیرعلنی دادگاه همراه بوده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76775)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-03 18:53:20
 
 <img src="https://cdn1.telesco.pe/file/CXI4j-CVON1pdaNGmgfm4KKTO-JDTiZE7NEPXpDkBLNapEP1vIZcg2a8RPuHJQsNq9ICUFGDqwihIKg40IdKP_dcLgu7BBNxmTKQfJ2Ja31VnktLjGvzUSjfxK99dlZsyYVK5Og2HHp-osp1LSmZzELhbHnmv8o9YhkxDDu32zSMMru_avd6MYjbw50YrM2bZZzaZgASxkXU7N-PzNkxaV2nGPg8DpUXjm7xB8Lwsadk7G9n9quUfjDSciU0J4pMuCY33ggcPC7d4fMXEE3utizs2IikD0gY_26lm1zE4Thtw_Sd1HeCw_EOtPyf9s22Nnthu4deP7nj-ZkCWcnrzg.jpg" width="400"><br>
 
@@ -23,7 +79,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:20
 
 <img src="https://cdn1.telesco.pe/file/uNOcAwZnGqBZ6rMbUDKxmKaE-fhsNTy2E66b7msqdy3Crw_6Cjkj28VHWyYSFZGAR6fAHWfMplojYwXBuBOpGeop7FXwLecB1lzTmYLl7Z1a1680ixnurUU--h9skvMjdT_WOcmlNFs_OI7IXWWKf5l23J1fA_woMOALc_aCxD8dOSvdfmZ0FLsT9NGuLO6YJc9LpbWP4V415zYngIA1vbkEzDWZ6NVwveq2lm1djVRAdw94do5cd6ji_vqbtD6F6rasMp50Rm5MOBPb5LMfeLhsbOpxp_LLm10Xz8oR4NqQ2pnPvmAyrUcqtQyZus4OK2Za6HYgHHoiX_biNTUgFQ.jpg" width="400"><br>
 
@@ -37,7 +93,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:20
 
 <img src="https://cdn1.telesco.pe/file/nOKJJDhKDH7H9HgHySV8uTCFR-Y82Fq0aNC7oLKYFBL009VVJadWS7OWaWnbYSC72LX9UvyepvAgdu564Zhuco8OmFsu-7MuO7EBBJT8kPIXHVr1EUEDMor7HKdatBrgCB7RV3-7QHntcTfYJ-_ICwRn0yfJFLMaleaCxTAjPjVoaBqL3iK8PR8zw3evQGPCZbXksT1-9H0XJ1Htmf3bVYNxBH8FrKThNrWVIG2NrVNZ1zVhB3Sfo42vcCVqD6gBC-FWwHsodPcquTke5IRuDe9RN9Q5vZEbqMYq4yqT0Z5ZA-rKdggl-DFo6Ad0u1qflqrbNzpKI3XNiE0EqC5dkg.jpg" width="400"><br>
 
@@ -61,7 +117,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:20
 
 
 
@@ -80,7 +136,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:20
 
 <img src="https://cdn1.telesco.pe/file/OBop2-HMRVtCPaH5h8YiJiOOPAnaHsQ1BPInWgKYBDN_jvxM5Mlydw3qUeckKiU3DFU6ao5y6qlNuCCRAThgWA0ceXXwNvMrsxbPRLk-kMJh_wCGWBXt5J_ZXgot-X9xmQssyn5Ap0LkeqIHsWIyBN-cufqxy0Hr841uSH14IVBOa3jPRWspMBfRAmJjLGmcrv9NcQ7cNDbRsQcSPHw8sH4lojRIkwgD-YZjTa9qawbuf1IOyJgz9dAUgvr-gi1fJ0n57WlPViq2q5DCrV85OU-_sGqibsPrq_FRd3-XFwg6SzGLz-DfCC4M9qY3RvZanN0e6SsFgCyR9FLYYBibnA.jpg" width="400"><br>
 
@@ -107,7 +163,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:20
 
 <img src="https://cdn1.telesco.pe/file/VLYpxDo2ZSbBIRclg5ZrmXliYjgnJLdQQ_SoJjlR4iBIBPccsdzRFa-JqIToCIU7Q64XL1voy6lbt54nMAZX7-OwRRVk3AD_CMLibXp4uWxgPsaFcKfWkd_1iqC8-D6z1AoZxLrFdM10aw-Q-LgclAwUwdNjUbhdsRX_0268WtmJ8f0GF2qsd8JiJbeaSasJXTPLRbUBvnuGnmdAn_AmjbO4LH_Dzx46L-oScf88AtOYolkn7f0_IOVr3OwEJpju3wctLou8wfAOjJBqdN8r9Sto9rhhGUm7J3eoQVetRM6P9yS51AgwqAlkxKQR-gBo3YzW9G3esFkU3Be1QWcQ_A.jpg" width="400"><br>
 
@@ -132,7 +188,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:21
 
 
 
@@ -151,9 +207,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:21
 
-<img src="https://cdn1.telesco.pe/file/GLk59rmpDlVj_yLVe9TKzoDW3wRoAdymCGGVGvIISXDv56jQOSt6pHsy3kH3GcVjujwm-i78qn_j8__RkOOdIt6vtfunT5bWtMR2d6_O4hgpzs1CrAAUZP68JjAbX7T8koUzaCksXqNxfM_cmTKL63YEFctpcxMJD5Y_zE2AEr8VDegnPxysK7TFDdtoB98b3HtzhAvKFF_j22BFDwr_bdzxoHNBF1UD1gvXoBZ5tv_jyug586o2Uz_lL5CtKoxf3fVNHqDEvZ55MPNX3EW30JUKjs7VBlqAyiJ2dPfMX5n3VgDxGsc7H1RyCR8AOHbPdTGpwoBSR_Bs7hS-4U57hg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/AOUc0-epupBYV0rMQh7_V2CbRYQShk92H0C2bWpCjVZyACmMXxcCzQEAS-5dmLsMOSholrY9UY_aIIG8mzgWJmD9GvzCuKkTYm3ltIpw1B_uqw280Ya3pPB1yC_Gz0FuB47evQ0I4_i6OJKEYEi3BS3A-dN7XF6wt6qQ3C1nqTAayazHZUDT7gy9oQ9VsXb6UslXxzlioZGvS85xOf1k_0j90E4FEEcTbODwp70J1H-aU2XNzm1rqfL9QfANz8bCWxxKOPAS0zGFrn5iIMp3FFn-AXn9Y8TynNH6SlgInDOnB4GCeJ708YjYtaPWXqdKRu2NMUn0fwz-jPPKsp9rPA.jpg" width="400"><br>
 
 رئیس‌جمهور آمریکا روز چهارشنبه ۱۰ تیرماه از روند مذاکرات ابراز رضایت کرد و گفت این روند «بسیار خوب» پیش می‌رود.
 دونالد ترامپ که در واشینگتن با خبرنگاران صحبت می‌کرد، افزود که آمریکا چند روز پیش حملات شدیدی به ایران انجام داد، اما نشست‌های اخیر دو طرف در قطر به‌خوبی برگزار شده است.
@@ -172,9 +228,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:21
 
-<img src="https://cdn1.telesco.pe/file/SkKYxzUR8fkLiUBb8aWKJs705X9EBkR8NgSwiOXTAgmbJG3okJujiFh2rNnByxaYJSQtUxGbzBwfvLW4p0oMUV_FFL4gbjzZSK7f6pLZ_iCFuHl-JI7iXK2skqXvORFUShZFonvC5bI6g72WoG3-KoH1tTc1BlyL8kphHLL59whT3do_to8QzMec0I9UJp0kHmveo1ncVWyRTukiS3-UM7g2orYUkFXuU9dmUotJxzw12dRAUppIcjV4s-xDsYIezP0MJHIjWVEJiqYVeakfh8T_7-YxxuiZYfvwDOwjkIqGHjk3INTZWSUs5hCtildNshkKJ24B-BoAY-wlbURkjQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/t3Q2GwWRcf9oTLFIBR5DVUKZHD1fvykvg5-KCLGut9acO8nqJKjdqild1sofY0RyktYwwB5wya4dO6bfyxSBk2mbs8F9nlSnU9homEtBhpaLKdP1DY3zDShZ2U4sjwkv8MHLWh97GSwvl2pxte9mlETR-jYXv7TGrYCLWwlIO-l9xgPQaeflInly5ToAzkOORPbWTkEEfW6ViVtCPnVdK9q_7GxXUqJ1mmGbALeHeWFQmrKNVHjoPhINkIoL-ZW8hGBnukv56AYlOmgvZTWESGQwolMBS_v3TM3QoOV6Tt_YoC-pUJQZVmbOwN2U1mZUseA2PDNn2YfZ1z8RL5uhCA.jpg" width="400"><br>
 
 معاون وزیر خارجه جمهوری اسلامی که برای شرکت در نشست‌های مرتبط با اجرای تفاهم‌نامه ایران و آمریکا به دوحه سفر کرده است، اعلام کرد کارگروه‌های پیگیری اجرای تفاهم‌نامه و نیز مذاکره برای دستیابی به توافق نهایی تشکیل شده‌ اما هنوز مذاکرات در این قالب آغاز نشده است.
 کاظم غریب‌آبادی بعدازظهر چهارشنبه دهم تیرماه، پس از دیدار با شیخ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر، به خبرنگاران گفت رایزنی‌ها برای تعیین زمان و محل آغاز مذاکرات از طریق میانجی‌‌ها ادامه دارد و در صورت فراهم شدن شرایط لازم، این گفت‌وگوها آغاز خواهد شد.
@@ -196,9 +252,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:21
 
-<img src="https://cdn1.telesco.pe/file/pb0fpsBgkRao98D3IIE_hoMj5eJ7mzVbGO_nciJ7-u-Dqkiyeen5ZOyLsrUILeHz9rq9HLscXF-DNwQQODtOxecyLY1r1_SPsXOYP6eTDnehPtgZl83PFXeaInVPZw9EdwOkmZ7O1weV7_H02NV2SFIEvNWWeVtCkC6MfpWA4g-HqiMjZ9uUZo2VepWbevcn7cpmE8pwDi_aCOLdoxRCT4ivmn-s1No4UaebSWOlMSkMfJoJMVoJVWvefWOtjqhfsoh4Ilz90MQed9xJBRC3DVnMkJhznyVMjtHqAHIhgHKfoj-C-7QWJmlLMvwe2FzgWo4x0GWic06S1DBE6l1QHw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/moaVea2if616G1l4APVMZisL8Qb24g11o0_48eR6ql-BxJErJajdrNWrSCZcl9ODS0iU0-W6FmYfQqKSdn6MVMPGlmjdGbI7HNEhzwoIQVnGFPIPTcH2OInxIpbDL_RMabG3ycIyZVQIKJ4-sMAbPh8uLigiHI0-WTYgpdSIShnJ9qS6c42-2bKPspC8nLI9CN2lg57WZtGi_a44gIdm-a2q10S4jbtk1Ns580G60oyN9bK4bVddOCtch4cv3yyTF1_o5is3nLA0zhUJjvhhC6oAsQC3LNbOZyywKaT0i_bl9Wq25T7z2YMtBXzLUp14KwH9NeslgxzQYT7ELq1LzA.jpg" width="400"><br>
 
 هم‌زمان با ادامه برخوردهای قضایی و امنیتی با فعالان صنفی فرهنگیان، سه معلم  با احکام زندان و مجازات‌های تکمیلی روبه‌رو شدند و یک فعال صنفی دیگر نیز در استان فارس بازداشت شد.
 بر اساس گزارش شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران، احمد علیزاده، معلم بازنشسته و فعال مدنی اهل آبدانان، از سوی دادگاه انقلاب ایلام به دو سال حبس تعزیری، یک سال ممنوعیت خروج از کشور، ابطال گذرنامه و یک‌هزار و ۸۰ ساعت خدمات عمومی رایگان محکوم شده است.
@@ -220,7 +276,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:21
 
 <img src="https://cdn1.telesco.pe/file/bX4jvYNpr13tv1O9-4eCmfet33vVF-yr6CRD8wwnfqOBinghwExdRJdviN4cZEf_EtueoHOa0qVAF_FDAuUpFQAiYb2aY92Ad-QxBy5cqrjSjnF8OIm8xhuq4eSpCyqSYR9lBxhRhkfy3EDtNPWs4ImiEbIQ_xr0SnJgL2Q7V59DB7jxNzAukVU9lzhjsrHJKUa2HAlww6KvezygHYyoN77V8KUnFzF04XyHV7E-2ugYyn_DR9jF5oswynFMdEw6lPmLPecUVoLskC8v8p3cBOLPfASqKyATPfxCpjqTEIibe0ZKvg2Ib1-34LC13Zv2_w2vXcnJJYoprC9ggMu1bQ.jpg" width="400"><br>
 
@@ -244,7 +300,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:21
 
 
 
@@ -272,7 +328,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-03 16:37:56
+###### 🔵 Updated at: 2026-07-03 18:53:21
 
 <img src="https://cdn4.telesco.pe/file/kn1vTb7Opy7kCAbTRUc8DSt4KtnUZEg8G92UK7uJp6nfWnFd121dRj6IS1zQqIpZlv7wiNYqkPU7KD8OPjeeeD7X2-s9OZf5xg-Oxlsle941BsXmZInQmA79Eb0MN8co8mjo9D6qctDGXrZWtre4BxEFFlJe5J6qNKd46E8jGMpXIQQNdMMW0ho4zDh7IBWBuqGtnndBzeVEgysVWW0S4wzMrSiuFzVXIeR7u_LNBXutvj7HAYmHDKzwufcUHnpo2RHjcYamyJ4POlQb_6METgxsZ-MGhG4UjD6y0CB4xDK8BkufN8Ds-juCnnwIc5mbOpLzWppxjNveth7JGJ5ZKg.jpg" width="400"><br>
 
@@ -286,66 +342,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76758)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-03 16:37:56
-
-<img src="https://cdn4.telesco.pe/file/OzHTJcqoCVgO20cbQViX-YFpsZ6iCODQ3_fvgt9UN2Kl-kFvKeLNT2LliSrdtMfJJX_T_jIcly_lOqAN7qcZSe6X-OUAnGjQqC6ZwYWOLgRZFEjm3EHJRJ7gZUphhRN3ZM8cr_t41ltScNHj8H_NDPUMTbd8Lxu18fcyRWZQupLHGMAdrKxC2qD4p7jL_J8YueQWsGLDdlDSG1T9iwmw-K9nMB8YmEAExx2Q1tIn9-l1MckRVUMMIXyrmt1WHUKs-wRj47nvTnX1WHw_hWPIHI1nez_Bj8iBk8yIk4FUmoCBUcbF7XCegWT5JMnzkqPFG_L4aVJIr7Etx9H5sfxjZw.jpg" width="400"><br>
-
-وزارت خارجه قطر، اعلام کرد استیو ویتکاف، فرستاده ویژه دونالد ترامپ در امور خاورمیانه، و جرد کوشنر، مشاور ارشد و داماد رییس‌جمهور آمریکا، روز سه‌شنبه برای گفت‌وگو با مقام‌ها و میانجی‌های قطری وارد دوحه شده‌اند.
-ماجد الانصاری، سخنگوی وزارت خارجه قطر، گفت این دیدارها با هدف بررسی «تمامی مسائل منطقه‌ای» انجام می‌شود و موضوعاتی از جمله روند مذاکرات با ایران و همچنین لبنان را در بر می‌گیرد.
-او با این حال تاکید کرد که ویتکاف و کوشنر برای مذاکره با هیات ایرانی به دوحه سفر نکرده‌اند و برنامه‌ای برای دیدار با نمایندگان تهران ندارند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76757)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-03 16:37:56
-
-<img src="https://cdn4.telesco.pe/file/tR84kqrrQSdGsMf50F7jAxsuM51MTL0UA32Hv6N0PKzoEG7dUWcEmVHav3MQQSemnycmnphHcFXJu6z4Bm7Q0lFTrKqbnpzkHGs9hlR8FB5jQ_3z1fsPIknxMoKXNbspe5e02PY9kobRujv_GVoQgqu7QVI_567vQXX1GkLSojUFDSwIdAyOlhslNyjAfx7wg9I_8XA398no4zVY_yXiYDhIpPwVhaUcyB8aGDo-UInAPeeA-dib7b0yokyKzLKTD8jC7gi4dTlE_pLB9wRkejAqTb7gBqSauIB-9YRpF3OYH7ZS92RJ5rRSidcupUcG_rQaa1RvI3dQDz8eQxlYcQ.jpg" width="400"><br>
-
-العربیه به نقل از چند منبع گزارش داد جمهوری اسلامی تا پایان هفته ۳ میلیارد دلار از دارایی‌های مسدودشده خود را دریافت خواهد کرد.
-پیش‌تر سخنگوی وزارت خارجه قطر گفت تاکنون ۶ میلیارد دلار از دارایی‌های مسدودشده جمهوری اسلامی به ایران منتقل نشده است.
-محمدجعفر قائم‌پناه، معاون اجرایی مسعود پزشکیان، نیز با اشاره به متن تفاهم‌نامه با آمریکا، گفت که چند میلیارد دلار به حساب جمهوری اسلامی در یکی از کشورهای خلیج فارس نشسته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76756)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-03 16:37:56
-
-<img src="https://cdn1.telesco.pe/file/K1sUs4kSl4UtTie1wLon6MRV0is1BJJ2ic4_9DRMgOj4E2XcOYR3JDv-Ddyr6Xtsa9HNDqEqXvkKFYj-S4kr6ymWtNuvAQrBtV8zOagUeIR4JzbAPihSXxn3CjstWbebXS2lZMYHIQwNHpKjpwtrlu7kllta4SCqiPpr5oAuS24vDDlmkbsRxoLWnvfwhu7ARGPsle6iqEleEzbFzf0WRrpjcOhdeO495XbKyXf8HfpyuD4AOsUXLkfDXA0EpmEz-ezUsGlK1ge1qMY5523qdbcUnuhrfoM1uarLeGFX6Cz3CTgiwWO5ZFa-CC1_CAI4gdFu74B1BKH2jbN3ZIFcEA.jpg" width="400"><br>
-
-معاون اجرایی مسعود پزشکیان تأیید کرد که فرماندهان نظامی عضو شورای عالی امنیت ملی ایران و دو نمایندهٔ رهبر جمهوری اسلامی در این شورا نیز به تفاهم‌نامهٔ ایران و آمریکا رأی مثبت داده‌اند.
-محمدجعفر قائم‌پناه روز سه‌شنبه نهم تیرماه اعلام کرد در جلسهٔ‌ شعام برای بررسی این تفاهم‌نامه، رئیس‌جمهور، رؤسای مجلس و قوه قضائیه، جانشین رئیس ستاد کل نیروهای مسلح، وزیر کشور، رئیس سازمان برنامه و بودجه، وزیر خارجه، فرمانده کل سپاه پاسداران، فرمانده ارتش، و دو نماینده رهبر جمهوری اسلامی در شورا،
-یعنی سعید جلیلی و محمدباقر ذوالقدر، به این توافق رأی مثبت دادند.
-او این را هم تأیید کرد که مجتبی خامنه‌ای، رهبر جمهوری اسلامی، دستور داده بود جلسهٔ شورای عالی امنیت ملی با حضور فرماندهان ارشد نظامی برگزار شود و در صورت رأی موافق سه‌چهارم اعضا تفاهم‌نامه پذیرفته شود.
-اظهارات معاون اجرایی رئیس‌جمهور در حالی مطرح می‌شود که در روزهای گذشته، پس از انتشار پیام مکتوب مجتبی خامنه‌ای دربارهٔ تفاهم‌نامه، برخی چهره‌های مخالف مذاکرات از سعید جلیلی به‌عنوان «تنها مخالف» تفاهم‌نامه نام برده بودند.
-@
-VahidHeadline
-به گفته معاون اجرایی رییس‌جمهوری، اعضای موافق این تفاهم عبارت بودند از: مسعود پزشکیان، رییس‌جمهوری، محمدباقر قالیباف، رییس مجلس، غلامحسین محسنی اژه‌ای، رییس قوه قضاییه، رییس ستاد کل نیروهای مسلح (که نام او پس از کشته شدن عبدالرحیم موسوی هنوز به‌طور رسمی اعلام نشده است)، اسکندر مومنی، وزیر کشور، حمید پورمحمدی، رییس سازمان برنامه و بودجه، عباس عراقچی، وزیر امور خارجه، فرمانده کل سپاه پاسداران (که نام او نیز تاکنون به‌طور رسمی اعلام نشده)، امیر حاتمی، فرمانده کل ارتش و دو نماینده رهبر جمهوری اسلامی در شورای عالی امنیت ملی.
-قائم‌پناه همچنین از منتقدان داخلی تفاهم‌نامه انتقاد کرد و گفت کسانی که به این توافق رای مثبت داده‌اند، «کمتر از فرماندهان شهید نیستند» و نباید جایگاه یا صلاحیت آنان زیر سؤال برود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76754)
 
 ---
 
