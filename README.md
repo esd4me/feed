@@ -3,7 +3,62 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
+
+
+
+رحیم صفوی: این یک جنگ موجودیتی است و مطمئنم که اسرائیل از بین خواهد رفت
+یحیی رحیم‌صفوی، از فرماندهان پیشین سپاه پاسداران و مشاور مجتبی خامنه‌ای در حاشیه مراسم تشییع علی خامنه‌ای، با اشاره به درگیری میان جمهوری اسلامی و اسرائیل، آن را یک «جنگ موجودیتی» خواند و گفت دو طرف در نبردی قرار دارند که تنها یکی از آن‌ها می‌تواند در منطقه باقی بماند. او افزود: «من مطمئن هستم آنچه باقی خواهد ماند ایران است و آنچه از بین خواهد رفت اسرائیل است.»
+او همچنین با مقایسه کشته شدن علی خامنه‌ای با واقعه عاشورا، مدعی شد کشته شدن او، «حرارتی» در میان مردم ایران، شیعیان و جهان اسلام ایجاد خواهد کرد.
+رحیم‌صفوی در بخش دیگری از سخنانش ابراز امیدواری کرد که مجتبی خامنه‌ای راه پدرش را در حفظ «ایران قوی»، دور نگه داشتن سایه جنگ از کشور و پیشبرد توسعه ادامه دهد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76784)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-04 17:49:40
+
+<img src="https://cdn4.telesco.pe/file/nhP-eNWPFkISKyKQVO6wLbwxL_NUAHKfa7lTF0A5vY53rlwrfC1qdNVh23fQEkEdh-AyIeU2tXnLBvcAFrhW5BqZICIk610T-1WHCM1hQSCCItobAU3CTF-usTxKR5g-9RQtt3BloWMM7bASqlmSQQV3MerhttX7PSzfa6zf1V2wYcyY10nPwdQSSWVQ_VU0rVJFt_qvF5Yt45ifSJvURFHZFgYT8yTd0oEjm7IDczIoKJuzDJZpVyCAW0U0bR267XvWOlQd4utpylKamFY7ghWpzRcq412_o4fHlceBaaDW816FHn_pflltxht7Z58qub2VY5jv_efFmHS6IsI0SQ.jpg" width="400"><br>
+
+دونالد ترامپ اعلام کرد به‌دلیل مراسم تشییع جنازهٔ علی خامنه‌ای، رهبر کشته‌شدهٔ جمهوری اسلامی، «یک هفته» به مقامات تهران فرصت داده است.
+رئیس‌جمهور آمریکا در سخنرانی خود در مراسم دویست‌وپنجاهمین سالگرد استقلال آمریکا که شامگاه جمعه ۱۲ تیر به وقت تهران برگزار شد، گفت: «ایران را به‌شدت در هم کوبیدیم. آن‌ها برای توافق بی‌تاب‌اند. به‌شدت می‌خواهند به توافق برسند. ما به‌خاطر مراسم تشییع، یک هفته به آنها فرصت دادیم، چون آدم‌های خوبی هستیم.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76783)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-04 17:49:40
+
+<img src="https://cdn4.telesco.pe/file/aA6V4lVt9HoFEltXUzGSUdc_7AR54-h67T1dpc-5tdjp7XrvuION-3pGEQHo06FpXktgREqGufkWTZsI2pg5P3Jalnxp-Yb_35QA7t8D31OsH1V2e_9wtT21wf_MV7_giTSX75UhkzdYtijOzYz2gAn0JkI3QjLl-A3co0y-mWi2F0o38qgp4e0d5_6ryhon1oDJ8NPycTFpA6_6FGoHzynixnGmLNsb61Rt8i6eZaiJ89p1Yk1mQVYyYhxUiDkc7ktGzs_uWIb1_rsE5bF0iEzAcroRC-8QlRbLB7YCime-VgJxUVJ21K90xlbRIv2jrtTEAdXGhw_uxVaWiGkYog.jpg" width="400"><br>
+
+نگین کیانی، عکاس مستند اجتماعی و مدرس عکاسی، از سوی دادگاه انقلاب بابل به یک سال حبس محکوم شد.
+رسانه‌های حقوق بشری گزارش گزارش داده‌اند، شعبه اول دادگاه انقلاب بابل خانم کیانی را به اتهام «تبلیغ علیه نظام» به یک سال زندان محکوم کرده است. این حکم روز ششم تیرماه صادر و به او ابلاغ شده است.
+نگین کیانی ۱۹ فروردین امسال در منزل پدری‌اش در بابل توسط نیروهای امنیتی بازداشت و یک روز بعد با قرار وثیقه آزاد شده بود.
+این عکاس ۳۷ ساله پیشتر نیز به دلیل فعالیت‌های مدنی خود چندین بار احضار شده و با برخوردهای قضایی روبه‌رو بوده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76782)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 <img src="https://cdn4.telesco.pe/file/Ls0oOnTRlwImGQs_ycmcemX9Y8OjFddTRh3WWWDrOiVif15M6ZKUUo6gF3eaEdrczv2UtRAFjMlh8JD51j7ryvdiHKDFcug9b8Pwxwu56vgfUD_4x5M5b8MbVRPybpgp2vFCOSuDrM2jLiCUmISkwmPLTkuZ5qQi3gMeaC1WR91guy1Zm4cxrhuBNMAYf7Cu_-EsL_XpRDDGq9NJbQdLJdlOLWFsOoeDwKg5e3g3DdayTEjV_Dxs28_6LhiSDH7C3X5V_20Pa3e9gkbA96zWRDHOi6ZV_cI261S99oat17OQaGIg5bC5HQIKkBk5lcUcPhrhc08hJSZhb__5Kh_Jyw.jpg" width="400"><br>
 
@@ -25,7 +80,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 <img src="https://cdn1.telesco.pe/file/cmmxlR7a6h9hrUCb7VdYAhCDWNgcp389J9uzIzVE1mvZakxx5UJfWzG3H_218Xq0AWZ9sywOjXKeG057U5-czYYWZJWa79Mp16egTG7Z-u_Lxd4_Bf73zW3oN-1isvnBZGG5xhR-poKePikLOAP620QC_Hv7fFfIGBXK4OHtcOa_-se__2VjQicAEJqOLsO4dH0O9X7a9zChXs7MQoxZtj9P4HWZw3Kz11GCrtzzQlxpJiTk0qHC_tx3zBWTvAs4e9jdy6ZIYxnXo9-W_09Jkh-lhxMQFNCOneEkMYd5674jdfH-8S5pvoZKDvfTb9QdD23OLT_ZZmHtY6BDr4iuiQ.jpg" width="400"><br>
 
@@ -38,7 +93,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 
 
@@ -57,7 +112,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 <img src="https://cdn1.telesco.pe/file/CuItH6D1tdVJqU9gLf9pZIRe6tJIa0SbRe9_bqUHVe8V7izOma5MLquF-fu2QJMwP-_LZ6MmgkfNzlQBBaLSZMrpDcGqkVqZKwhB9NNPID-K-zAuSEEqxWI_ckrJjqhhwu8MPiRn7PCoMbP_kmV_OXQHU4H2kRnbB6hXR7OEurSes_I4q-VUDjO4vpQeId0K28TkXacU_PxfdhCp-i00QpOAKMv4rtrIFbAKGlVC8UdtX6LkBWQSWXCIsPN3DciFaYrgesilC0FM4LJtH4fr9Ofmttna9Zu-jNyYSfErWzkWuKo_SnBHWnHlSnrU-b9DzBR0q98S06PxBunkbV9b6Q.jpg" width="400"><br>
 
@@ -76,9 +131,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
-<img src="https://cdn4.telesco.pe/file/WDcFzfHid2kQ4MeLaLiN1_XXKF1LT4-dOwgqL9HVbQpL8L_Kxv2nxxeNLI-HkzuXO11Cjge_NNsD0eeWuWdKnyub-gh8UuAMSwNACd_7iIgZnD3wrKyNfUC7hpMR5fjcqjxuE7sbWWSfLjjDiFdh3i6CdwstfrDWVxalWsWRwgOGhlAbhJ7yly44xrE1dM_hJj3VQ75ohL4Q-FDvveKEqqoVGKaEF2P0bo7oYRRm4o83gj0zTJ1ACt-Tgyw8uNFQeZ0yXa_29NZEW6yvaDb--uokZQIUyaRSrmm4lQP3kYTfR53WN7X11nNyO_y-ewmL-hOo7azJ9mQGVRtnMUHl5Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XdCf65lDd88StcLoVarT_bv1DFltDkhlgJhLOr5p2r7y8Sx2ZCEHZWgMkOoSKSQU0oB8asZ-dxfYagvj6zDz4gzTfC0ahd0oEZsDxCXLSw0cDxTdOlOmrE9eP-EtOTFOCwrtA4dYsbdZJ2V-BYFVECdh3nQ77aKPlr6JCpIxPM9Ytxx5RX_CoxmRhR7KQTlBk-8EBCOqUheVa19EjjM0Gd3YEwvoawtB7g4-D5TNnHx44QP8GCjvgyFsTYvN4OqcXpWJcNVGJcUYA9TYrYoEqUdOoligF_pZ6YVaO3uto-ban86nhuB3vu-ve6z3brrm_7Cf4DY0JYLAG4PwDobNPQ.jpg" width="400"><br>
 
 ارغوان فلاحی، زندانی سیاسی ۲۴ ساله محبوس در زندان اوین، از سوی شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی، به اتهام «بغی» به اعدام محکوم شده است.
 خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، با اعلام این خبر نوشت حکم اعدام فلاحی بر اساس ماده ۲۸۷ قانون مجازات اسلامی و با استناد به اتهام «بغی از طریق عضویت در گروه‌های مخالف نظام و اقدام مسلحانه» صادر شده است.
@@ -95,7 +150,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 <img src="https://cdn1.telesco.pe/file/kCE5QZnUIsikTyK5z67kBc8AF9s9oytECBmlzuM0vVOvdY-j0tRyIVyiZTG7Alp3g5TIA0rIahzsKjthOWtkFqNLI_vFY7KuIxsmzWvGJwj6pmAh3kQ033GtkbatUrrqo0eYDIo9nd-9AfXJv9VhGHcUVJt8_483pBA6XOFHimcJBeUWtop1uRwPE-HHYG8UyDgVPorn3HiYI-dy98o1m4acU2zWHjZE_ecwYcxTjON2raUANm8bUJiVmc_xr4Zwjgnd_iGJMQdJzylc__IyjsOFsgBEyuUqStiegw8JwUU7QWewHIdCvK3Vwp7a7oSyOzZbDPsmdJtBj1iKnvLtPg.jpg" width="400"><br>
 
@@ -115,7 +170,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 <img src="https://cdn1.telesco.pe/file/vxs6WUMIiGWehxIOFT1xdFcce4H4EwvDOBuqgs3yR-mG1hxn7fEM360By1wZFoZXmh8ghUEXbHRNC8Yi25TySdIyNc4yAF1HYMD2v_EwBNLTRmyr0NNn-9iRafs_BX9YboQx8HWvgwnNaTjj8JNxagKRZTUFLr4fTjPSbBr7C8lUEbYOaFcg8inZ0inTEsBjAk6iE3CcF4nu4qrk9IYmRZLacU-wps-Gn8khdtAA6UhyTICPb7Z9ibUaJii8Lto5R3w0m6zu6p6BgLjbq4b8lgYq9_ZJp3P-0f3ODCEezWMXRFajwsiMY9BVX8yNmcPM3yEwAKfUzzQJ0GY1yUGTBQ.jpg" width="400"><br>
 
@@ -129,7 +184,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 <img src="https://cdn1.telesco.pe/file/PrzK-aVoF2VvpkM0G9Ucry4nywZG-SbqcClcxDYsCy76_2TcBHnFUBhdhf6ly9BbEstNOvh4yMrcifvRt25ApRHt4FJVMKb10xRroqmwIyQiTJnI65d4Mz3AZ1WBtoSCqv6OjpT6g9OPwtzeehyQOEqh52S368izsmwmS7sFyVYU-Pc1nYk1qnFM2GYeunuuvWDbBVKbs9XAzrlaitH489U5bDRtKwPbfUiXDCanoYWgxyFoUI8Uvpry48_8HamMo1ID_3OhXC7GIU_dMpv4lodeXpCq6iJSJQKkBA3Du-OOeDkudhgtJLb3sOEcggcrid6StlaBPhtzKaLoRIpA1g.jpg" width="400"><br>
 
@@ -153,7 +208,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 
 
@@ -172,7 +227,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 <img src="https://cdn1.telesco.pe/file/o5sa9xFSYBE5vwgRxlS627MuDfU8o3uXVB1p5OGoFRDvFTDLzRuIos4xhfcMGDQeIMgvRAexgAiUS8RSKWVUSsM1tbG1U7XcEkZuoFvUWoACKqPjcdFsl9SQ02nB82Z-o9PEzXOh_F92RiT_5CHndjOuWgsjLGzmYjUHzlfs00IzQuqJLOnxOLP6XJgiPAcNcOOF1im7fc3j1I3bSn4oxNJB5NE9lRsUkwz71XXvq6C0ss0Xveb44WwXSzv7kYo4UTVjPXJjuPAHs66oWWiDYh3nFiT55dtxP31Id41KpmXJGOzDQuQjE0M5snIy7UTHgOEhqA79TMsbEI18_dpgSw.jpg" width="400"><br>
 
@@ -199,7 +254,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 <img src="https://cdn1.telesco.pe/file/N3n_Vi-zozKii62i7VAHBXYd6NsEI9w-WuuH2NTlcJC8s0VV5rIIrUvn3L-5ws-3rnRQh5tkoBYyax68gGzHngUIiCVwc441mPBWV_K6olphlzAZpaDnEBZT9a4kRfCA9xYoO5EBIAkWhqQWIWuu1oLLiJgB0oU8LToi6FKC8PKQyBqIRS6w-Rg4MWJWzFdVkFiZzBTnmqfu9ZJumlzfcS9VAZcDNZxcB29Zr5DhxC9Z2dNjyBBeNeoQ-uPPqpnSo9qWBUYW-N-KmC9IZoUQUBWoBvYo1YuMG9oRYuvazIgxBYxm6WBWyXsHDDOj2N27B4pWmYATtJdWqZBG-82u7w.jpg" width="400"><br>
 
@@ -224,7 +279,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
 
 
@@ -243,9 +298,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-04 16:14:45
+###### 🔵 Updated at: 2026-07-04 17:49:40
 
-<img src="https://cdn1.telesco.pe/file/AOUc0-epupBYV0rMQh7_V2CbRYQShk92H0C2bWpCjVZyACmMXxcCzQEAS-5dmLsMOSholrY9UY_aIIG8mzgWJmD9GvzCuKkTYm3ltIpw1B_uqw280Ya3pPB1yC_Gz0FuB47evQ0I4_i6OJKEYEi3BS3A-dN7XF6wt6qQ3C1nqTAayazHZUDT7gy9oQ9VsXb6UslXxzlioZGvS85xOf1k_0j90E4FEEcTbODwp70J1H-aU2XNzm1rqfL9QfANz8bCWxxKOPAS0zGFrn5iIMp3FFn-AXn9Y8TynNH6SlgInDOnB4GCeJ708YjYtaPWXqdKRu2NMUn0fwz-jPPKsp9rPA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NIHKdfTaGsSyLFg1MS_XZw2tD-Bdhs9NmbkvS_UiBtQVRl2vMtc24IUz2Cr_xVbq59TnfYnXMjXVXPC3du8Zr-Bnj7HWX2w5S9e-ORHcYLf8ovR9scgcEsaVFWpNNgszJ9TYnFfqKLmt9CeGcAcqArcFOJrO9h4AYekKetGXe8TJmgWLyXKco6e1qLxfZW-cBC5arM4lfUMXhEOlPi6US8cFdgdrtkM9AaqtXlh5JvGrUSXNzBBGDmmP_e4gpNQClgurYkoEOfpHXarMFKDOeZQ1FDxhStMzmJtj6cflvlBOpSJF0KgBz3n_3nH1zVRHvgyY2XBRQo1YQX95wjdn5w.jpg" width="400"><br>
 
 رئیس‌جمهور آمریکا روز چهارشنبه ۱۰ تیرماه از روند مذاکرات ابراز رضایت کرد و گفت این روند «بسیار خوب» پیش می‌رود.
 دونالد ترامپ که در واشینگتن با خبرنگاران صحبت می‌کرد، افزود که آمریکا چند روز پیش حملات شدیدی به ایران انجام داد، اما نشست‌های اخیر دو طرف در قطر به‌خوبی برگزار شده است.
@@ -259,54 +314,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76765)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-04 16:14:45
-
-<img src="https://cdn1.telesco.pe/file/t3Q2GwWRcf9oTLFIBR5DVUKZHD1fvykvg5-KCLGut9acO8nqJKjdqild1sofY0RyktYwwB5wya4dO6bfyxSBk2mbs8F9nlSnU9homEtBhpaLKdP1DY3zDShZ2U4sjwkv8MHLWh97GSwvl2pxte9mlETR-jYXv7TGrYCLWwlIO-l9xgPQaeflInly5ToAzkOORPbWTkEEfW6ViVtCPnVdK9q_7GxXUqJ1mmGbALeHeWFQmrKNVHjoPhINkIoL-ZW8hGBnukv56AYlOmgvZTWESGQwolMBS_v3TM3QoOV6Tt_YoC-pUJQZVmbOwN2U1mZUseA2PDNn2YfZ1z8RL5uhCA.jpg" width="400"><br>
-
-معاون وزیر خارجه جمهوری اسلامی که برای شرکت در نشست‌های مرتبط با اجرای تفاهم‌نامه ایران و آمریکا به دوحه سفر کرده است، اعلام کرد کارگروه‌های پیگیری اجرای تفاهم‌نامه و نیز مذاکره برای دستیابی به توافق نهایی تشکیل شده‌ اما هنوز مذاکرات در این قالب آغاز نشده است.
-کاظم غریب‌آبادی بعدازظهر چهارشنبه دهم تیرماه، پس از دیدار با شیخ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر، به خبرنگاران گفت رایزنی‌ها برای تعیین زمان و محل آغاز مذاکرات از طریق میانجی‌‌ها ادامه دارد و در صورت فراهم شدن شرایط لازم، این گفت‌وگوها آغاز خواهد شد.
-به گزارش خبرگزاری ایسنا، پس از این دیدار نیز نشست سه‌جانبهٔ مذاکره‌کنندگان ارشد ایران، قطر و پاکستان برای بررسی روند اجرای تفاهم‌نامه برگزار شد.
-@
-VahidHeadline
-دیوان امیری قطر چهارشنبه در بیانیه‌ای اعلام کرد تمیم بن حمد آل ثانی، امیر قطر، در کاخ لوسیل با استیو ویتکاف و جرد کوشنر، فرستادگان آمریکا، دیدار کرد.
-در این دیدار، آخرین تحولات منطقه، به‌ویژه روند مذاکرات میان آمریکا و جمهوری اسلامی در چارچوب یادداشت تفاهم دو طرف، و همچنین وضعیت لبنان بررسی شد. دو طرف بر اهمیت تثبیت آتش‌بس به‌گونه‌ای که وحدت، حاکمیت و ثبات لبنان حفظ شود، تاکید کردند.
-در این بیانیه آمده است که امیر قطر بر ادامه تلاش‌های میانجی‌گرانه این کشور با مشارکت پاکستان و حمایت از همه مسیرهای گفت‌وگوهای ناشی از یادداشت تفاهم تا دستیابی به توافقی جامع و پایدار که امنیت منطقه و صلح بین‌المللی را تقویت کند، تاکید کرد.
-دو فرستاده آمریکایی نیز از نقش قطر و پاکستان در پیشبرد مذاکرات و نزدیک کردن دیدگاه‌ها قدردانی کردند و بر تعهد آمریکا به ادامه روند مذاکرات و تلاش‌های دیپلماتیک برای دستیابی به توافقی جامع تاکید کردند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76763)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-04 16:14:45
-
-<img src="https://cdn1.telesco.pe/file/moaVea2if616G1l4APVMZisL8Qb24g11o0_48eR6ql-BxJErJajdrNWrSCZcl9ODS0iU0-W6FmYfQqKSdn6MVMPGlmjdGbI7HNEhzwoIQVnGFPIPTcH2OInxIpbDL_RMabG3ycIyZVQIKJ4-sMAbPh8uLigiHI0-WTYgpdSIShnJ9qS6c42-2bKPspC8nLI9CN2lg57WZtGi_a44gIdm-a2q10S4jbtk1Ns580G60oyN9bK4bVddOCtch4cv3yyTF1_o5is3nLA0zhUJjvhhC6oAsQC3LNbOZyywKaT0i_bl9Wq25T7z2YMtBXzLUp14KwH9NeslgxzQYT7ELq1LzA.jpg" width="400"><br>
-
-هم‌زمان با ادامه برخوردهای قضایی و امنیتی با فعالان صنفی فرهنگیان، سه معلم  با احکام زندان و مجازات‌های تکمیلی روبه‌رو شدند و یک فعال صنفی دیگر نیز در استان فارس بازداشت شد.
-بر اساس گزارش شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران، احمد علیزاده، معلم بازنشسته و فعال مدنی اهل آبدانان، از سوی دادگاه انقلاب ایلام به دو سال حبس تعزیری، یک سال ممنوعیت خروج از کشور، ابطال گذرنامه و یک‌هزار و ۸۰ ساعت خدمات عمومی رایگان محکوم شده است.
-هم‌زمان، آزاده سالکی، معلم شاغل در شهرستان خواف و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، به پنج سال حبس محکوم شده است. بر اساس خبر منتشر شده، حکم اولیه او ۱۰ سال زندان بود که در مرحله تجدیدنظر به پنج سال کاهش یافت.
-آزاده سالکی پس از بازداشت در دی‌ماه ۱۴۰۴، حدود یک ماه در بازداشت به سر برد و سپس با تودیع وثیقه سه میلیارد تومانی به‌طور موقت آزاد شد. گزارش‌ها همچنین حاکی است اجرای این حکم می‌تواند به اخراج او از آموزش و پرورش منجر شود.
-این معلم پیش‌تر نیز در سال ۱۴۰۱، زمانی که در شهرستان تربت حیدریه مشغول تدریس بود، به دلیل فعالیت‌های صنفی و اظهاراتش در کلاس درس، به مدت یک ماه از کار تعلیق و سپس به شهرستان خواف منتقل شده بود.
-همچنین جان‌محمد احمدی، معلم بازنشسته و رییس انجمن صنفی معلمان نورآباد ممسنی، روز سه‌شنبه ۹ تیرماه توسط نیروهای امنیتی بازداشت شد. تاکنون اطلاعاتی درباره محل نگهداری، نهاد بازداشت‌کننده یا اتهام‌های منتسب به او منتشر نشده است.
-آریا نورانی، معلم رسمی آموزش و پرورش در شهرستان مانه خراسان شمالی، نیز در ارتباط با اعتراضات دی‌ماه ۱۴۰۴ به ۱۴ ماه حبس محکوم شد.
-شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران با محکوم کردن این اقدامات، خواستار آزادی بازداشت‌شدگان، لغو احکام صادرشده و پایان دادن به برخوردهای قضایی و امنیتی با فعالان صنفی شده است.
-در ماه‌های اخیر نیز روند برخورد با فعالان صنفی معلمان تشدید شده است. پیش‌تر شعبه سوم دادگاه انقلاب اهواز پنج فعال صنفی فرهنگی و کارگری خوزستان را به سه سال حبس تعلیقی و دو سال ممنوع‌الخروجی محکوم کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76762)
 
 ---
 
