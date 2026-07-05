@@ -3,7 +3,27 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
+
+<img src="https://cdn1.telesco.pe/file/RE7FDO174D8sz736pAshmsdIVW5FX36n0W8G_oWoSIUpNWnvNz_A9MgCwPP7cq4sjM18dgzA-131lqlSse9HMBzRqcpuT3s5m0N-DzEORe77KyHWrmN9YlNp6fSp6KwrMtWWXEAXDjEacns_kfw6vxACF-BaXCcqtCvWZRSpOdrx04F54epJdfebzsnW5j5-vCUZISEjWevicxNx8ZrEI5-VVivIdJMdhfGV--wBHsDP3FjvM6hKNURMsZXKNwCkLL-dXIt-0LYUyxzSAQxhCSy87aUv7a4zHWmX__zi-Y4qdA2sOmWLsT_xCsR6SriKxcC1_qw52k4aswmOytqLxQ.jpg" width="400"><br>
+
+نماز میت بر جنازه علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، روز یک‌شنبه، ۱۴ تیر رأس ساعت هشت صبح، توسط "آیت‌الله جعفر سبحانی" اقامه شد.
+مراسم تشییع او بیش از چهار ماه پس از مرگش در حال برگزاری است.
+اما نکته قابل توجه در این مراسم غیبت مجتبی خامنه‌ای است که از او به عنوان آیت‌الله یاد می‌شود و کمتر از ده روز پس از مرگ پدرش به عنوان رهبر تازه جمهوری اسلامی معرفی شد، اما در این مراسم حضور ندارد تا نماز میت را برای پدرش اقامه کند.
+در این مدت طولانی از مجتبی خامنه‌ای نه فایلی صوتی منتشر شده و نه ویدئویی که نشان دهد او توانایی رهبری حکومت را دارد.
+با این حال سه پسر دیگر علی خامنه‌ای، مصطفی و مسعود و میثم، که از روز ۹ اسفندماه سال گذشته یعنی آغاز جنگ تاکنون خبری از آنها نبود روز یک‌شنبه بر سر تابوت پدر خود حاضر شدند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76788)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn4.telesco.pe/file/vsMzyt8UXBgX0yTcgwZuQNNhxtvOuzfP7plO58RNaZ9sYVOqB9yEDS-5NgAHOgkOJIRU8WO6BMx-pMlA5t_u1nWxsPqCsKkC1mfYkI6aVnAks6Sboklkp1F4hjQTTr3nqotYiI9UUKOc4NvbcJ9r86QQuegznClZ39YELWXDiEibiZeR3sa1q-TZ4UiBSFbD1PEg5tBgZklwLgQMvADwd_fhNRzYAg0LW9neiUMJOSmYD850-nvvteIoDKUYTjIpSy8Nc9Hv6FxokS1PMHT8jZlsIVmLIpBqT-AnNDE2oysW-pZ23mLIOxYf9DA21r2ES0ZK-j-NlILTvkqWVP-oXQ.jpg" width="400"><br>
 
@@ -22,7 +42,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 
 
@@ -34,7 +54,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 
 
@@ -53,7 +73,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn4.telesco.pe/file/nhP-eNWPFkISKyKQVO6wLbwxL_NUAHKfa7lTF0A5vY53rlwrfC1qdNVh23fQEkEdh-AyIeU2tXnLBvcAFrhW5BqZICIk610T-1WHCM1hQSCCItobAU3CTF-usTxKR5g-9RQtt3BloWMM7bASqlmSQQV3MerhttX7PSzfa6zf1V2wYcyY10nPwdQSSWVQ_VU0rVJFt_qvF5Yt45ifSJvURFHZFgYT8yTd0oEjm7IDczIoKJuzDJZpVyCAW0U0bR267XvWOlQd4utpylKamFY7ghWpzRcq412_o4fHlceBaaDW816FHn_pflltxht7Z58qub2VY5jv_efFmHS6IsI0SQ.jpg" width="400"><br>
 
@@ -70,7 +90,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn4.telesco.pe/file/aA6V4lVt9HoFEltXUzGSUdc_7AR54-h67T1dpc-5tdjp7XrvuION-3pGEQHo06FpXktgREqGufkWTZsI2pg5P3Jalnxp-Yb_35QA7t8D31OsH1V2e_9wtT21wf_MV7_giTSX75UhkzdYtijOzYz2gAn0JkI3QjLl-A3co0y-mWi2F0o38qgp4e0d5_6ryhon1oDJ8NPycTFpA6_6FGoHzynixnGmLNsb61Rt8i6eZaiJ89p1Yk1mQVYyYhxUiDkc7ktGzs_uWIb1_rsE5bF0iEzAcroRC-8QlRbLB7YCime-VgJxUVJ21K90xlbRIv2jrtTEAdXGhw_uxVaWiGkYog.jpg" width="400"><br>
 
@@ -89,7 +109,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn4.telesco.pe/file/hJA_iUsSMwAyS2U4aPVgDI4_4OGvHL2zfXGrhscR2qDfvan062xW8AItx_zMJ8oLhnI-nSQ2q5X9cBl4yTyjC9c5tqMuC1PHqZas7_cEwzK4WtmKuEAU94aAUdPnhlwTdjg2pFnsDHIV7A-UMEr8Fsbax6Zz7J9mBci-GFYxa6hWjdnCbYk-2S4OsGT9uFPgQcAciQja4hx2CRoFtVPKTgFXt1lanNwNj986MV7AoerLAf5zSwh1rVBYC_3nNOJhs8zqVscemmNKR3LVAgC7a5Bqmkw8xvJs-yrGQUg2_iXgSoLJ4hzLHc3lvRNvzyy84ECcTdsn0Vb5QgrOau0ScA.jpg" width="400"><br>
 
@@ -111,7 +131,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn1.telesco.pe/file/K_LMdNiEbmdAHT_1a-6WQ4anR0if3ztf3aEOPpH0WLCHEv49hyYwsRkMj011RX8IR6IdoSKVcZ3n7IOzBXZqCuX70Z5Xfup6dUAXzf-jD4NHFOFoEMe2iNQqNj6u9Gvx0Xiezp5H-wPEY-nAvlyTRpL_NwPe78qthMZYu4zCeZXFABpcXEOpELis3E4fDhXpxG4mal_Qua-TBU9rpcPuEXGqK65S3QrqKz0OOhZpjSU5Ur8dNipBSXGVOxfRfDMgw4L1q1spBpfVC2xmFxkCbsuNg6sGYY9Sc5ouHn-wSPestAOuTUBWFgEdIEo61wl8XFyj4q-_79tTJInphUVKTw.jpg" width="400"><br>
 
@@ -124,7 +144,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 
 
@@ -143,7 +163,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn1.telesco.pe/file/NSvShkbDkcJAlxvlFhN75enyZ69vRtOCP4yKQjJPEThyYPYmHtVQo4-ALV1SOVjx4ncz7OLY9LV5H0dB0JrkuXPzrZbzYLKFl7Qt78yfijqJtIdahCsZg0jPeQfPgOmvmF6voN4b7zwt0c6jCJf_dyWCbWyf1PdR8WUloWHV_2oF2PI-uGOPjayREgMALxrJeKfSxKUyJ-dRnckzQWMMvWSczp4hfIf69Gm-XuVipGr0jQpkqzmyPJBAxBgVyRqkIVrvLOfFCMfgyI6t9E46_CKPojRNyskhjoqqhkFpSWpTWEWV4g6W0wu-TjYHh4N_0azTzRpN02trScy9IWWcig.jpg" width="400"><br>
 
@@ -162,7 +182,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn4.telesco.pe/file/XdCf65lDd88StcLoVarT_bv1DFltDkhlgJhLOr5p2r7y8Sx2ZCEHZWgMkOoSKSQU0oB8asZ-dxfYagvj6zDz4gzTfC0ahd0oEZsDxCXLSw0cDxTdOlOmrE9eP-EtOTFOCwrtA4dYsbdZJ2V-BYFVECdh3nQ77aKPlr6JCpIxPM9Ytxx5RX_CoxmRhR7KQTlBk-8EBCOqUheVa19EjjM0Gd3YEwvoawtB7g4-D5TNnHx44QP8GCjvgyFsTYvN4OqcXpWJcNVGJcUYA9TYrYoEqUdOoligF_pZ6YVaO3uto-ban86nhuB3vu-ve6z3brrm_7Cf4DY0JYLAG4PwDobNPQ.jpg" width="400"><br>
 
@@ -181,7 +201,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn1.telesco.pe/file/tX44j5UoNuUQfO743i0_GU70dIjTtw3-vRkixDffOQPqKf_Gj4XjrEz7bBkUs_1YXYXhwthSqeOMDez8UOb7bcOEBKPEG6sLjDhzGfc2Gt0OLNRkzrI-HpRXL5pDRKmCdoVX9kJDtJO47SqIoWsUNbcJQ0zI3DX8b3bx8FFjXW9RWQD7O_bBudFKJhJh_PLMc4qGplW-oN1SabUOcIiZRYIM6j3Udys_WmVsejBg9_itFJgk9bDGSwsNcP05wcDB7odZDH8Itka3XuQx1r7vO-AbKkO-dQhZPct6AXRbrLL4DQdnJZhCUiR7zvk2doW_ODPDLhzQZ8SJgCxOw7iqng.jpg" width="400"><br>
 
@@ -201,7 +221,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn1.telesco.pe/file/vxs6WUMIiGWehxIOFT1xdFcce4H4EwvDOBuqgs3yR-mG1hxn7fEM360By1wZFoZXmh8ghUEXbHRNC8Yi25TySdIyNc4yAF1HYMD2v_EwBNLTRmyr0NNn-9iRafs_BX9YboQx8HWvgwnNaTjj8JNxagKRZTUFLr4fTjPSbBr7C8lUEbYOaFcg8inZ0inTEsBjAk6iE3CcF4nu4qrk9IYmRZLacU-wps-Gn8khdtAA6UhyTICPb7Z9ibUaJii8Lto5R3w0m6zu6p6BgLjbq4b8lgYq9_ZJp3P-0f3ODCEezWMXRFajwsiMY9BVX8yNmcPM3yEwAKfUzzQJ0GY1yUGTBQ.jpg" width="400"><br>
 
@@ -215,7 +235,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn1.telesco.pe/file/PrzK-aVoF2VvpkM0G9Ucry4nywZG-SbqcClcxDYsCy76_2TcBHnFUBhdhf6ly9BbEstNOvh4yMrcifvRt25ApRHt4FJVMKb10xRroqmwIyQiTJnI65d4Mz3AZ1WBtoSCqv6OjpT6g9OPwtzeehyQOEqh52S368izsmwmS7sFyVYU-Pc1nYk1qnFM2GYeunuuvWDbBVKbs9XAzrlaitH489U5bDRtKwPbfUiXDCanoYWgxyFoUI8Uvpry48_8HamMo1ID_3OhXC7GIU_dMpv4lodeXpCq6iJSJQKkBA3Du-OOeDkudhgtJLb3sOEcggcrid6StlaBPhtzKaLoRIpA1g.jpg" width="400"><br>
 
@@ -239,7 +259,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 
 
@@ -258,7 +278,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 09:09:31
+###### 🔵 Updated at: 2026-07-05 11:59:34
 
 <img src="https://cdn1.telesco.pe/file/o5sa9xFSYBE5vwgRxlS627MuDfU8o3uXVB1p5OGoFRDvFTDLzRuIos4xhfcMGDQeIMgvRAexgAiUS8RSKWVUSsM1tbG1U7XcEkZuoFvUWoACKqPjcdFsl9SQ02nB82Z-o9PEzXOh_F92RiT_5CHndjOuWgsjLGzmYjUHzlfs00IzQuqJLOnxOLP6XJgiPAcNcOOF1im7fc3j1I3bSn4oxNJB5NE9lRsUkwz71XXvq6C0ss0Xveb44WwXSzv7kYo4UTVjPXJjuPAHs66oWWiDYh3nFiT55dtxP31Id41KpmXJGOzDQuQjE0M5snIy7UTHgOEhqA79TMsbEI18_dpgSw.jpg" width="400"><br>
 
@@ -280,50 +300,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76769)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-05 09:09:31
-
-<img src="https://cdn1.telesco.pe/file/N3n_Vi-zozKii62i7VAHBXYd6NsEI9w-WuuH2NTlcJC8s0VV5rIIrUvn3L-5ws-3rnRQh5tkoBYyax68gGzHngUIiCVwc441mPBWV_K6olphlzAZpaDnEBZT9a4kRfCA9xYoO5EBIAkWhqQWIWuu1oLLiJgB0oU8LToi6FKC8PKQyBqIRS6w-Rg4MWJWzFdVkFiZzBTnmqfu9ZJumlzfcS9VAZcDNZxcB29Zr5DhxC9Z2dNjyBBeNeoQ-uPPqpnSo9qWBUYW-N-KmC9IZoUQUBWoBvYo1YuMG9oRYuvazIgxBYxm6WBWyXsHDDOj2N27B4pWmYATtJdWqZBG-82u7w.jpg" width="400"><br>
-
-حجت کرمانی، وکیل دادگستری، از بازداشت دوبارهٔ سپیده کاشانی و هومن جوکار، دو فعال محیط زیست که پیشتر سال‌ها در زندان بودند، خبر داد.
-آقای کرمانی به وب‌سایت «امتداد» گفت مأموران امنیتی عصر روز چهارشنبه دهم تیرماه با حضور در منزل این زوج، ضمن ضبط تمام وسایل الکترونیکی، آن‌ها را بازداشت کردند.
-به گفته این وکیل دادگستری، نیروهای امنیتی همچنین سیما کاشانی، خواهر سپیده کاشانی را نیز بازداشت کرده‌اند.
-او افزود تاکنون مشخص نیست این افراد توسط کدام نهاد امنیتی بازداشت شده‌اند و با توجه به تعطیلات پیش‌رو و بسته بودن مراکز قضایی، نگرانی خانواده‌های آن‌ها افزایش یافته است.
-از دلایل بازداشت این زوج گزارشی منتشر نشده است.
-سپیده کاشانی و هومن جوکار از اعضای مؤسسه «حیات وحش پارسیان» هستند که به همراه چند فعال دیگر محیط زیست زمستان سال ۱۳۹۶ توسط اطلاعات سپاه بازداشت شدند.
-کاووس سیدامامی از بازداشت شدگان این پرونده که تابعیت کانادا را هم داشت، چند روز پس از بازداشت، به طرزی مشکوک در زندان اوین جان خود را از دست داد و مدتی بعد سازمان اطلاعات سپاه پاسداران دیگر فعالان محیط زیست بازداشت شده را به «جاسوسی» و «همکاری با دول متخاصم» متهم کرد.
-سپیده کاشانی در طی سال‌های زندان در نامه‌هایی اعلام کرد که در دوره بازداشت تحت «شدیدترین شکنجه‌های روحی و روانی، تهدید به شکنجه فیزیکی و تهدیدهای جنسی» و «تهدید به مرگ» قرار گرفته‌اند.
-او در نامه خود نوشته بود که بازجویان این پرونده «ویدئوی جسد» کاووس سید امامی را برای شکنجه به او نشان داده‌اند، و همسرش، هومن جوکار، را برای تهدید و شکنجه به پای چوبه دار ساختگی بردند.
-سپیده کاشانی و هومن جوکار پس از سال‌ها زندان، در فروردین ۱۴۰۳ در پی عفو از زندان آزاد شده بودند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76768)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-05 09:09:31
-
-
-
-غلامرضا نوری قزلجه،‌ ؛وزیر جهاد کشاورزی"، با تایید سخنان محمدباقر قالیباف دربارۀ خرید محصولات کشاورزی از شرکت‌های آمریکایی  در دوران ریاست‌جمهوری ابراهیم رئیسی گفت: برخی از قراردادهای کشاورزی از طریق منابع ارزی بلوکه شده ناشی از تحریم‌ها بود و آن‌ها نیز به شرکت‌های آمریکایی مجوز می‌دادند و از آن‌ها خرید می‌شد.
-محمدباقر قالیباف شامگاه سه‌شنبه در یک گفت‌وگوی تلویزیونی به خرید محصولات کشاورزی از شرکت‌های آمریکایی در دولت ابراهیم رئیسی اشاره کرده بود. پخش سخنان مذاکره‌کننده ارشد جمهوری اسلامی در همین زمان از سوی تلویزیون حکومتی متوقف شد.
-رئیس‌جمهور آمریکا روز دوشنبه اول تیرماه در گفت‌وگو با خبرنگاران در کاخ سفید در مورد آزادسازی دارایی‌های ایران که در تفاهمنامه جدید به آن اشاره شده، گفته بود:
-پولی که آزاد می‌شود قرار است برای خرید مواد غذایی استفاده شود... آن هم صرفاً از طریق ایالات متحده و از کشاورزان ما.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76767)
 
 ---
 
