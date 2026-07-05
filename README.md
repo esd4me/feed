@@ -3,9 +3,9 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
-<img src="https://cdn1.telesco.pe/file/RE7FDO174D8sz736pAshmsdIVW5FX36n0W8G_oWoSIUpNWnvNz_A9MgCwPP7cq4sjM18dgzA-131lqlSse9HMBzRqcpuT3s5m0N-DzEORe77KyHWrmN9YlNp6fSp6KwrMtWWXEAXDjEacns_kfw6vxACF-BaXCcqtCvWZRSpOdrx04F54epJdfebzsnW5j5-vCUZISEjWevicxNx8ZrEI5-VVivIdJMdhfGV--wBHsDP3FjvM6hKNURMsZXKNwCkLL-dXIt-0LYUyxzSAQxhCSy87aUv7a4zHWmX__zi-Y4qdA2sOmWLsT_xCsR6SriKxcC1_qw52k4aswmOytqLxQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vVlPFgi1dUPNCOFa9Bhc7C_Vxc2YUr9-lRKSOdwAAmSdaMZNuohFnjpCYc4qohk6ff_7YuyvNc9XjMLBAxsOgSAG13rpasB2LCnqw6GD-u8kyTxJpopWByPxwLAZ2SM4lDlqn21ubdgW7VODDKmRr0JmPBlwRXXJURPRyl9SLK-fe-cm44apNXIjpDtFwkypvZhlpxmakn9VoDVEM58zJfhBp3VHquP6eh6S49NsNhKcEiqkWCrBxLIhGMWjY791msyf1B6S-tD3NGf4eSJLeZ44QnCna5SA8lZo49f3eFLncm7KzXJHSNnPvRf7fCgYR1hTZyG9sSKB1hkjk0YndQ.jpg" width="400"><br>
 
 نماز میت بر جنازه علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، روز یک‌شنبه، ۱۴ تیر رأس ساعت هشت صبح، توسط "آیت‌الله جعفر سبحانی" اقامه شد.
 مراسم تشییع او بیش از چهار ماه پس از مرگش در حال برگزاری است.
@@ -23,7 +23,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 <img src="https://cdn4.telesco.pe/file/vsMzyt8UXBgX0yTcgwZuQNNhxtvOuzfP7plO58RNaZ9sYVOqB9yEDS-5NgAHOgkOJIRU8WO6BMx-pMlA5t_u1nWxsPqCsKkC1mfYkI6aVnAks6Sboklkp1F4hjQTTr3nqotYiI9UUKOc4NvbcJ9r86QQuegznClZ39YELWXDiEibiZeR3sa1q-TZ4UiBSFbD1PEg5tBgZklwLgQMvADwd_fhNRzYAg0LW9neiUMJOSmYD850-nvvteIoDKUYTjIpSy8Nc9Hv6FxokS1PMHT8jZlsIVmLIpBqT-AnNDE2oysW-pZ23mLIOxYf9DA21r2ES0ZK-j-NlILTvkqWVP-oXQ.jpg" width="400"><br>
 
@@ -42,7 +42,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 
 
@@ -54,7 +54,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 
 
@@ -73,9 +73,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
-<img src="https://cdn4.telesco.pe/file/nhP-eNWPFkISKyKQVO6wLbwxL_NUAHKfa7lTF0A5vY53rlwrfC1qdNVh23fQEkEdh-AyIeU2tXnLBvcAFrhW5BqZICIk610T-1WHCM1hQSCCItobAU3CTF-usTxKR5g-9RQtt3BloWMM7bASqlmSQQV3MerhttX7PSzfa6zf1V2wYcyY10nPwdQSSWVQ_VU0rVJFt_qvF5Yt45ifSJvURFHZFgYT8yTd0oEjm7IDczIoKJuzDJZpVyCAW0U0bR267XvWOlQd4utpylKamFY7ghWpzRcq412_o4fHlceBaaDW816FHn_pflltxht7Z58qub2VY5jv_efFmHS6IsI0SQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/TJJ4ZRcpOxMwDZC7euPelEoJizclgvnOGw7sIvL5WfmLHz3ASXZIcnzViwFgXuW8Mr1unPDFhJdw8ZFKo709PURz3WTseAuZe4Sdu5IzjHTL67oXNXdIcpNVQGQ7anMmZ6ZLqu01jJFpRWDoXFpygt24qIujGsOK3mg9i2p3k_XJuWOJQi_5VbDd_R0vUu1Ik7PokZq1RFK0tnIOguira2cJLmGB-raf7JsfDDT3KWe81n4ktik5Rs2mLxfxPePw0qUDsZMq0fDEgwcOw58hvAmuyeS7NoQGxIcbGWQ8-Rm3oItO3ZQqQ6VaUVJ4x89u4NaNxkhcM_82ncJZ4rqiWw.jpg" width="400"><br>
 
 دونالد ترامپ اعلام کرد به‌دلیل مراسم تشییع جنازهٔ علی خامنه‌ای، رهبر کشته‌شدهٔ جمهوری اسلامی، «یک هفته» به مقامات تهران فرصت داده است.
 رئیس‌جمهور آمریکا در سخنرانی خود در مراسم دویست‌وپنجاهمین سالگرد استقلال آمریکا که شامگاه جمعه ۱۲ تیر به وقت تهران برگزار شد، گفت: «ایران را به‌شدت در هم کوبیدیم. آن‌ها برای توافق بی‌تاب‌اند. به‌شدت می‌خواهند به توافق برسند. ما به‌خاطر مراسم تشییع، یک هفته به آنها فرصت دادیم، چون آدم‌های خوبی هستیم.»
@@ -90,9 +90,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
-<img src="https://cdn4.telesco.pe/file/aA6V4lVt9HoFEltXUzGSUdc_7AR54-h67T1dpc-5tdjp7XrvuION-3pGEQHo06FpXktgREqGufkWTZsI2pg5P3Jalnxp-Yb_35QA7t8D31OsH1V2e_9wtT21wf_MV7_giTSX75UhkzdYtijOzYz2gAn0JkI3QjLl-A3co0y-mWi2F0o38qgp4e0d5_6ryhon1oDJ8NPycTFpA6_6FGoHzynixnGmLNsb61Rt8i6eZaiJ89p1Yk1mQVYyYhxUiDkc7ktGzs_uWIb1_rsE5bF0iEzAcroRC-8QlRbLB7YCime-VgJxUVJ21K90xlbRIv2jrtTEAdXGhw_uxVaWiGkYog.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/dXFH9k1UoOChT8Lt8YFEnrZYagYN5Xkkf_9fPQygi12uF1rRpqrxwgu9wQFPKOS-DOQPtxci1_7jqhomRsjgrYSLpGeln6ouo_iZrgiDdnSrvVTO6FucXpqP01ZArYlz4-_KFZ3T-ZqvLd1ykgqAz1jWHyYi4fhTgb5iWuNS9B1QZ2JMaeivk0kTVTc75hgBkRUpFvZcInMFrDjDCVvCNPph-EAm1VLruDz2UNU2A2TWwQBkwyU73p-7oSypwpNvi_hMcorOmYGedBGFNZAz_NAPrcrSB5QQ8f703NE0si8Df20mPv97uRGytbqSkxPPAUChbW6xW0puQyJHPFEWWg.jpg" width="400"><br>
 
 نگین کیانی، عکاس مستند اجتماعی و مدرس عکاسی، از سوی دادگاه انقلاب بابل به یک سال حبس محکوم شد.
 رسانه‌های حقوق بشری گزارش گزارش داده‌اند، شعبه اول دادگاه انقلاب بابل خانم کیانی را به اتهام «تبلیغ علیه نظام» به یک سال زندان محکوم کرده است. این حکم روز ششم تیرماه صادر و به او ابلاغ شده است.
@@ -109,7 +109,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 <img src="https://cdn4.telesco.pe/file/hJA_iUsSMwAyS2U4aPVgDI4_4OGvHL2zfXGrhscR2qDfvan062xW8AItx_zMJ8oLhnI-nSQ2q5X9cBl4yTyjC9c5tqMuC1PHqZas7_cEwzK4WtmKuEAU94aAUdPnhlwTdjg2pFnsDHIV7A-UMEr8Fsbax6Zz7J9mBci-GFYxa6hWjdnCbYk-2S4OsGT9uFPgQcAciQja4hx2CRoFtVPKTgFXt1lanNwNj986MV7AoerLAf5zSwh1rVBYC_3nNOJhs8zqVscemmNKR3LVAgC7a5Bqmkw8xvJs-yrGQUg2_iXgSoLJ4hzLHc3lvRNvzyy84ECcTdsn0Vb5QgrOau0ScA.jpg" width="400"><br>
 
@@ -131,7 +131,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 <img src="https://cdn1.telesco.pe/file/K_LMdNiEbmdAHT_1a-6WQ4anR0if3ztf3aEOPpH0WLCHEv49hyYwsRkMj011RX8IR6IdoSKVcZ3n7IOzBXZqCuX70Z5Xfup6dUAXzf-jD4NHFOFoEMe2iNQqNj6u9Gvx0Xiezp5H-wPEY-nAvlyTRpL_NwPe78qthMZYu4zCeZXFABpcXEOpELis3E4fDhXpxG4mal_Qua-TBU9rpcPuEXGqK65S3QrqKz0OOhZpjSU5Ur8dNipBSXGVOxfRfDMgw4L1q1spBpfVC2xmFxkCbsuNg6sGYY9Sc5ouHn-wSPestAOuTUBWFgEdIEo61wl8XFyj4q-_79tTJInphUVKTw.jpg" width="400"><br>
 
@@ -144,7 +144,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 
 
@@ -163,7 +163,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 <img src="https://cdn1.telesco.pe/file/NSvShkbDkcJAlxvlFhN75enyZ69vRtOCP4yKQjJPEThyYPYmHtVQo4-ALV1SOVjx4ncz7OLY9LV5H0dB0JrkuXPzrZbzYLKFl7Qt78yfijqJtIdahCsZg0jPeQfPgOmvmF6voN4b7zwt0c6jCJf_dyWCbWyf1PdR8WUloWHV_2oF2PI-uGOPjayREgMALxrJeKfSxKUyJ-dRnckzQWMMvWSczp4hfIf69Gm-XuVipGr0jQpkqzmyPJBAxBgVyRqkIVrvLOfFCMfgyI6t9E46_CKPojRNyskhjoqqhkFpSWpTWEWV4g6W0wu-TjYHh4N_0azTzRpN02trScy9IWWcig.jpg" width="400"><br>
 
@@ -182,9 +182,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
-<img src="https://cdn4.telesco.pe/file/XdCf65lDd88StcLoVarT_bv1DFltDkhlgJhLOr5p2r7y8Sx2ZCEHZWgMkOoSKSQU0oB8asZ-dxfYagvj6zDz4gzTfC0ahd0oEZsDxCXLSw0cDxTdOlOmrE9eP-EtOTFOCwrtA4dYsbdZJ2V-BYFVECdh3nQ77aKPlr6JCpIxPM9Ytxx5RX_CoxmRhR7KQTlBk-8EBCOqUheVa19EjjM0Gd3YEwvoawtB7g4-D5TNnHx44QP8GCjvgyFsTYvN4OqcXpWJcNVGJcUYA9TYrYoEqUdOoligF_pZ6YVaO3uto-ban86nhuB3vu-ve6z3brrm_7Cf4DY0JYLAG4PwDobNPQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Mi7rcPThB814LXaWLBISpyCNIWXPI6VlZhc-Zm2YoJVv49EjESF36O-hIb3jVae6acMc4Bg7750pNgBtpSNFACRsfG49R4hKaH7BaUBfDAvITpvDgQt566hFbMxb1OmeBIt6pm0ARjJ0FWkgDvlG0rqSQ6bUBxX6bPtEAg-lSYotjNTPQiLShrQy33Cq6425XR5CMXbvlH-P31O3E-AgZ23mO76PINAzufMJpeDIdNc4N0BUtt3_dBM3x4POsze7pI8QGVU1u3tlXIxuhj8FBvvTdrZvz5WIuHv4TO8WFskbBYsgo34t9A7qTjrSNj3dgybbALXdgTU3_8vM-vEhvA.jpg" width="400"><br>
 
 ارغوان فلاحی، زندانی سیاسی ۲۴ ساله محبوس در زندان اوین، از سوی شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی، به اتهام «بغی» به اعدام محکوم شده است.
 خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، با اعلام این خبر نوشت حکم اعدام فلاحی بر اساس ماده ۲۸۷ قانون مجازات اسلامی و با استناد به اتهام «بغی از طریق عضویت در گروه‌های مخالف نظام و اقدام مسلحانه» صادر شده است.
@@ -201,7 +201,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 <img src="https://cdn1.telesco.pe/file/tX44j5UoNuUQfO743i0_GU70dIjTtw3-vRkixDffOQPqKf_Gj4XjrEz7bBkUs_1YXYXhwthSqeOMDez8UOb7bcOEBKPEG6sLjDhzGfc2Gt0OLNRkzrI-HpRXL5pDRKmCdoVX9kJDtJO47SqIoWsUNbcJQ0zI3DX8b3bx8FFjXW9RWQD7O_bBudFKJhJh_PLMc4qGplW-oN1SabUOcIiZRYIM6j3Udys_WmVsejBg9_itFJgk9bDGSwsNcP05wcDB7odZDH8Itka3XuQx1r7vO-AbKkO-dQhZPct6AXRbrLL4DQdnJZhCUiR7zvk2doW_ODPDLhzQZ8SJgCxOw7iqng.jpg" width="400"><br>
 
@@ -221,9 +221,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
-<img src="https://cdn1.telesco.pe/file/vxs6WUMIiGWehxIOFT1xdFcce4H4EwvDOBuqgs3yR-mG1hxn7fEM360By1wZFoZXmh8ghUEXbHRNC8Yi25TySdIyNc4yAF1HYMD2v_EwBNLTRmyr0NNn-9iRafs_BX9YboQx8HWvgwnNaTjj8JNxagKRZTUFLr4fTjPSbBr7C8lUEbYOaFcg8inZ0inTEsBjAk6iE3CcF4nu4qrk9IYmRZLacU-wps-Gn8khdtAA6UhyTICPb7Z9ibUaJii8Lto5R3w0m6zu6p6BgLjbq4b8lgYq9_ZJp3P-0f3ODCEezWMXRFajwsiMY9BVX8yNmcPM3yEwAKfUzzQJ0GY1yUGTBQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/piFUP2gB9C9Puq1u_4P1xcwt8-ZtPl947wVbLhbwVtYo4A3J8ns4Tori1EQuvkbeN_W08ggM2qWlMV1uttJftZY_ycjlTswhV9gSKOoYGyxRzbpMw93d98hoB8nKQH6l_2ubHP4sjww-NVW2HFpv-MEoqAM_DcnHD71sjPMFpO3EDA5H9wXjZEG8zogjHh_DpaXH4uKjXL72KDZqFZ7cQHPCbJ8wJa6QP_ZVxtIIEsv4slAoNLyiPo8CaFqEKrlAxnYuTqHgRrI1JIZwWlDZxa7omwQNaFUaj4kFx743hOgZho5n0YWT4ulK31ltJ_3L3n6LHZ5y-8JX9r3zZSsBfA.jpg" width="400"><br>
 
 "دارم خواب می‌بینم؟ سلام دنیای جدید!" ویدیو دریافتی از 'شادی جوانان شهر #گله‌دار در شهرستان مُهر استان فارس، یکشنبه ۱۰ اسفند' Vahid
 📡
@@ -235,9 +235,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
-<img src="https://cdn1.telesco.pe/file/PrzK-aVoF2VvpkM0G9Ucry4nywZG-SbqcClcxDYsCy76_2TcBHnFUBhdhf6ly9BbEstNOvh4yMrcifvRt25ApRHt4FJVMKb10xRroqmwIyQiTJnI65d4Mz3AZ1WBtoSCqv6OjpT6g9OPwtzeehyQOEqh52S368izsmwmS7sFyVYU-Pc1nYk1qnFM2GYeunuuvWDbBVKbs9XAzrlaitH489U5bDRtKwPbfUiXDCanoYWgxyFoUI8Uvpry48_8HamMo1ID_3OhXC7GIU_dMpv4lodeXpCq6iJSJQKkBA3Du-OOeDkudhgtJLb3sOEcggcrid6StlaBPhtzKaLoRIpA1g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/m_xSB1TbxGcbEtzH1fkuWqC4XZL4sEcXCmrt0_M7QlK0ggFMsPEHHBl__f47FvDQxx9N7P4-1l9JiekKfyNMafnP-igCpHcEDlYsiyghAZM4zMq8RS91K7ERfYVcDEuKdjPn-oJ87LWpIt0Pg_AuihNXaD29wEzyQMBKE3FQWbs_JUK2jDn6551c8UDk-1chTx__BY9GOby7W8S1rTosTg1mMzhqLp0yEXYkjKrTfAUBOfZwoGzVMVbLgSgW93fhiwmRFJqDMSgIeuZx_h7N_zeBhWdD0Lsd_kFZuncN-WtLZCap7zBW8HpLnll_eTAAzKfv_dzyEZR-ZKlJKH3mgQ.jpg" width="400"><br>
 
 مجتبی کرابی (برسام) شامگاه ۲۱ دی‌ماه ۱۴۰۴ در منطقه سلسبیل تهران هدف شلیک مستقیم قرار گرفت و به کما رفت.
 این جوان ۳۰ ساله که متولد سبزوار بود، بر اثر اصابت گلوله دچار مرگ مغزی شد و پس از یک هفته، در ۲۹ دی‌ماه ۱۴۰۴، در بیمارستان امام حسین تهران جان باخت.
@@ -259,7 +259,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 
 
@@ -278,7 +278,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-05 15:32:57
+###### 🔵 Updated at: 2026-07-05 17:33:38
 
 <img src="https://cdn1.telesco.pe/file/BJ-3tYBpv0tyECMqo4O4nfwYqgLio4wJYH9HLaeT2-CWFDwdzJJBo2Qyhsvrty3BOpxyL-LLReLR0VG5aa7ovlCvAhwOys6d9hy69CZTwKjo7WQybRn_xuLPonKZseW-EbxCvmP4b9_BhuvK5-3vybaMBCJVMC5btPHKK4UnEsbxw0UJcKDWVHI3O51i60fdaT5VdD15S4f3HNhmK-RUBqYBDSNIjWJmVQ1UVxuJMAWyX3wd9SsOJSdPNeBFjByGzoWWLlXcdFUIBw2LxZgJNyq3UrMRv2-5tMgEmI1Z4r_CBESo4_vn8QSWBhe-EoZ9HQ_mAMguyUdTlmA-IvMD4Q.jpg" width="400"><br>
 
