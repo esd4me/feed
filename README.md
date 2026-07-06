@@ -3,7 +3,41 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
+
+<img src="https://cdn1.telesco.pe/file/qlm1-xaCItOLmNcCWUnAKTWWryr4Gtcd2LagvBQmryTRP9B9KBYuPJHS4_Hq4O8GauSDOeF893_38Dy_RNUmBdsyruju53oIKSQVTejG5z3rWVhiBqCsmkjLsCgh-7TLBycVLht-vG5jmAo6tGe73IOAzCruHl2rOJSqmOAtz5GZzHnkSxkdobgIYnzBCA93QYsy08DHKWlhkQc1DD3TY-6w-K1MxveJgR5R-nfj7NJxNtecQpltRMNuq_BcZ98ozZj3iRjKW69kZFlyRxmuucfxXUKMy2XC2WNX-wr44BB8MKMAH6JozQj9nPRZxMPGmDrXItBHQoB54MemPRVL1A.jpg" width="400"><br>
+
+صداوسیمای جمهوری اسلامی روز دوشنبه ۱۵ تیرماه تصاویری از حضور احمد جنتی، دبیر شورای نگهبان در مراسم تشییع پیکر علی خامنه‌ای منتشر کرد.
+رسانه‌ها روز دوشنبه همچنین تصویری از محمود احمدی‌نژاد را در مراسم مرگ رهبر سابق جمهوری اسلامی منتشر کردند.
+خبرگزاری فرانسه روز دوشنبه گزارش داد در حالی که مقام‌های جمهوری اسلامی تلاش کرده‌اند تصویری از وحدت در صفوف حکومت ارائه دهند، تاکنون هیچ‌یک از روسای جمهوری پیشین جمهوری اسلامی، که روابطشان با خامنه‌ای دچار تنش بود، در این مراسم‌ها دیده نشده‌اند.
+مراسم تشییع جنازه علی خامنه‌ای پس از دو روز قرار گرفتن پیکر او در مصلای تهران از ساعت شش صبح دوشنبه ۱۵ تیرماه آغاز شد.
+روز ۹ اسفندماه ۱۴۰۴، در موج اول حملات اسرائیل به تهران بیت علی خامنه‌ای به‌شدت بمباران شد،‌ به شکلی که تمام ساختمان‌های محوطه بیت با خاک یکسان شده بود و همین احتمال سالم ماندن جسد رهبر سابق جمهوری اسلامی را بسیار کم می‌کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76792)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-06 16:58:34
+
+<img src="https://cdn4.telesco.pe/file/L5u5VPlyz2rmoZaMFAeDmKqHMBTolnk7yZKt_8iDh5Hc4FR22Iz_FNzf3wk_A-MOFMh6cs7ghT4-iIpr8FG1mRO6QtN9O9I90qEaZWXmDDt5kcZzR1rmPjxAy5GiVywEICDrzmQS_PXn-5hb0kdy0a5oszR1ivQQUe9dfyNzOrfRLExzghbXX9IgdW5HDcIt3LU0JAR0EkYfWgFkbSRzuyMzTFIBTWk3Q_mXVH06PUQ0GzTJzpiUN0aetw2Vroi881BysL9_Ch8YdC6cf9Hmb7dzuWXc0hgONLFqYrXPfzPFSJ0LLLR9OQJnIrMRYaoyHeXqOHNRX7iS_-71n7Btog.jpg" width="400"><br>
+
+🔴
+شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی، آقای مهدی ناظر و خانم مهناز چاردولی، نامزد او، را به اعدام و ۱۰ سال حبس محکوم کرده است. همچنین خانم عاطفه ناظر، خواهر آقای مهدی ناظر، به ۱۰ سال حبس محکوم شده است. این سه نفر در تاریخ ۲۱ دی‌ماه ۱۴۰۴ در تهران بازداشت شدند.
+@IranRights
+
+[View Post](https://t.me/VahidOnline/76791)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 <img src="https://cdn1.telesco.pe/file/oX6k6eACS-I3TH9Nvc4fefLPbI7muMEmUaZLeSdVC_sizFMNxsinwkQa9aYDV3XvQ0hX1cxyzQuBQKonCWE6URZrHSZyPdXhTE_R8wXq43GM9ah2p-vdu_YEDCQi-3ZsKKGlpiqAkgTj0g2OkuZIyFM8dHa4RiZIeHEFLkR4SFnRGLzJrvK1hKT58OfZcAcNmiit9yNLt1NzflB_BNskl8nzNaexuyYSzJFFf67MhL-aw_M8uSdZN5yhe1dWQDdVWWEd8lYCAglhnVPByxNkWhzdhNThOGNtkyzsQzL099jlhVIGV5KF7uo-2r8jFUotgviOJ56EjvjaAlEigh5GVg.jpg" width="400"><br>
 
@@ -20,9 +54,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
-<img src="https://cdn1.telesco.pe/file/vVlPFgi1dUPNCOFa9Bhc7C_Vxc2YUr9-lRKSOdwAAmSdaMZNuohFnjpCYc4qohk6ff_7YuyvNc9XjMLBAxsOgSAG13rpasB2LCnqw6GD-u8kyTxJpopWByPxwLAZ2SM4lDlqn21ubdgW7VODDKmRr0JmPBlwRXXJURPRyl9SLK-fe-cm44apNXIjpDtFwkypvZhlpxmakn9VoDVEM58zJfhBp3VHquP6eh6S49NsNhKcEiqkWCrBxLIhGMWjY791msyf1B6S-tD3NGf4eSJLeZ44QnCna5SA8lZo49f3eFLncm7KzXJHSNnPvRf7fCgYR1hTZyG9sSKB1hkjk0YndQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aVMqzumkT9WLeSVb8O_-ibCBun-SR0Yy8M5Nr8mDYmECYcE2eVtevGyJdwmSIbnAtGH4ZDooPMbdge8HaYXZPrQ7VfMh79HasYFPdS7Cao2beG51OA_XaIlWWOkMgiv4pChXrmXjfP7pAKpOVrY2wBdAaG_l4rUXZTceAmueRmFrCYtvQsFb_TBY4XursgY83CQyVlEe_Sd-fZT4Vd9gxz5gzspKst3hn51h1Z6c3wC5FMfUzqeoGSkLhDDSD9GrrvRHJjS14WrrqivWjUhM6sG1Kfual8wvODOpclHB9JEVypbXdfFVnmqRTbJzD43tx7ktsM-oFXve1-q7N0vfRA.jpg" width="400"><br>
 
 نماز میت بر جنازه علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، روز یک‌شنبه، ۱۴ تیر رأس ساعت هشت صبح، توسط "آیت‌الله جعفر سبحانی" اقامه شد.
 مراسم تشییع او بیش از چهار ماه پس از مرگش در حال برگزاری است.
@@ -40,7 +74,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 <img src="https://cdn4.telesco.pe/file/G4iYaHBinXKLCbLieTSlCjrQQw8DmNNV0zmpbxSM9Hqxb15_1PA_JayWDtpecwGmI02rZLgljv7TGR_ZoP4RsvgRiBXFn64PQmyP4iqscodYnZc1uT_DsWII10dGN6zFOEzk0hzArFSyI5CSSWs8XvB-GxkCz9gVb21XLUxRQMaxsKpx99jqG0ao7JPJha91-I4so04At3PNuULU1loVaMxFTUHrgSNNbUPvUcl0chG1GJQ-VrsjOYHseWlrh2v4c8NQYsJCLy7fmRYEInkC1WNq9N3a0lEWoJPGhmP-uSYTaaS90uCFtRcC7MJHUg7eB855oLHylDpZMXOJjvSIFA.jpg" width="400"><br>
 
@@ -59,7 +93,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 
 
@@ -71,7 +105,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 
 
@@ -90,9 +124,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
-<img src="https://cdn4.telesco.pe/file/TJJ4ZRcpOxMwDZC7euPelEoJizclgvnOGw7sIvL5WfmLHz3ASXZIcnzViwFgXuW8Mr1unPDFhJdw8ZFKo709PURz3WTseAuZe4Sdu5IzjHTL67oXNXdIcpNVQGQ7anMmZ6ZLqu01jJFpRWDoXFpygt24qIujGsOK3mg9i2p3k_XJuWOJQi_5VbDd_R0vUu1Ik7PokZq1RFK0tnIOguira2cJLmGB-raf7JsfDDT3KWe81n4ktik5Rs2mLxfxPePw0qUDsZMq0fDEgwcOw58hvAmuyeS7NoQGxIcbGWQ8-Rm3oItO3ZQqQ6VaUVJ4x89u4NaNxkhcM_82ncJZ4rqiWw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/RnRlXrk0-48af-AR2OkXp34r6SowVTo-hn836zvNMIQYSmWoKZI19Mc9-MIiBSFzoDQS5WbJzWEsgJrb3saI0iPhxTQLWB1bhsn_yxqMD24dirZXgLb-zzhmBGLEM8AXvfKJ47OqkhTx2PxxKukrhjhRzoqUKkYzh2nnLCWJoPmKIEVdHwoOB20mR3gvPF1TFf5u_TCNydf-GjXaLQMX-PbjkPzrJ9BATJFLiW7ImcusB9FvbSCltzyxbkb0MaYNfsbomluHg0R6VGTnN94w0zjN-InxFH1lULiDR3wH85bB40wk7-2GKSiszPrE2CRueGCF-zYrZyuQ7sAuFzZkng.jpg" width="400"><br>
 
 دونالد ترامپ اعلام کرد به‌دلیل مراسم تشییع جنازهٔ علی خامنه‌ای، رهبر کشته‌شدهٔ جمهوری اسلامی، «یک هفته» به مقامات تهران فرصت داده است.
 رئیس‌جمهور آمریکا در سخنرانی خود در مراسم دویست‌وپنجاهمین سالگرد استقلال آمریکا که شامگاه جمعه ۱۲ تیر به وقت تهران برگزار شد، گفت: «ایران را به‌شدت در هم کوبیدیم. آن‌ها برای توافق بی‌تاب‌اند. به‌شدت می‌خواهند به توافق برسند. ما به‌خاطر مراسم تشییع، یک هفته به آنها فرصت دادیم، چون آدم‌های خوبی هستیم.»
@@ -107,9 +141,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
-<img src="https://cdn4.telesco.pe/file/dXFH9k1UoOChT8Lt8YFEnrZYagYN5Xkkf_9fPQygi12uF1rRpqrxwgu9wQFPKOS-DOQPtxci1_7jqhomRsjgrYSLpGeln6ouo_iZrgiDdnSrvVTO6FucXpqP01ZArYlz4-_KFZ3T-ZqvLd1ykgqAz1jWHyYi4fhTgb5iWuNS9B1QZ2JMaeivk0kTVTc75hgBkRUpFvZcInMFrDjDCVvCNPph-EAm1VLruDz2UNU2A2TWwQBkwyU73p-7oSypwpNvi_hMcorOmYGedBGFNZAz_NAPrcrSB5QQ8f703NE0si8Df20mPv97uRGytbqSkxPPAUChbW6xW0puQyJHPFEWWg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/V2tK0F6DSsxiB9bL9-Y-1LO9wPGz1pBAEZQPr-NuT7q5IQq7PrJY4rBbrxZ-RczcUeVQEzzdPvhjhmPybaqxHKeXdPABryuxYGeCi0aAxo-VauQqm6WBVsQfE8RltByM_RTdsf17ZhV0wNxAOns_21m8KZvsHHKcqCz1tbMO_SKuF4pNX5TBkzaqwVWNNLw1Ng0_smmZUXrwDPJOi2ZWJBA355QfhEgf55nRBeBZPjGnipHyMDy_jqZ365zg_ryNtTN-Uojrt2dDV6Lda1GFfOB1QLVjNjNAR-u2D_-Reg9wUjRDnVXkuYVTdom5xQvRMBhUBxcoh2dQj2EqeKUf0w.jpg" width="400"><br>
 
 نگین کیانی، عکاس مستند اجتماعی و مدرس عکاسی، از سوی دادگاه انقلاب بابل به یک سال حبس محکوم شد.
 رسانه‌های حقوق بشری گزارش گزارش داده‌اند، شعبه اول دادگاه انقلاب بابل خانم کیانی را به اتهام «تبلیغ علیه نظام» به یک سال زندان محکوم کرده است. این حکم روز ششم تیرماه صادر و به او ابلاغ شده است.
@@ -126,7 +160,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 <img src="https://cdn4.telesco.pe/file/fy6Di8lBV4bnDZMhMe_I2W1tw593P4zUHEVa8ZjbAfOMKW_I0kd4zJEnP8ucIAGdGGTKu9iCks6J9CL-ZjQhFyjjBGTXx_cmqc-ZncMlN8vkzFZXzbnsRpsQ0--RkJniEI2Wi7qMHINqhRXDnUJatbqRPvPhDS4eFE-FQDQb4S0uTd_i1y2m__HiHO5JTYGA_AGSK9XrC9OK2bj7x0mvJGkLy4geleUm9ro0aAmMXpcJ-oicmdQXla02ybztl8YVHWraUeB0qFpMn4xa2f8QD2gKbG0ZHwvHsNNTT9JctluXvihizYJu2VYLnVjRQiCaRVvCqBRxR0NWrLXc_0S0Dw.jpg" width="400"><br>
 
@@ -148,7 +182,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 <img src="https://cdn1.telesco.pe/file/Xiq8vh1O9Ye4ihbERVH5Nbh4bOybNMzCamzRBN_3TYiZBZz8ePfV_o7HpaohOrPPYBU7dpJzopKe11sAckHesXuROF44gLOydQVZlZmAsoqn3IiLefYD41l4azW2qGUIaOB5N-9coBz2ap8CcpSCqbpQwxKRqy7cGVLQizEA-LJHAzrAmOa7vXMSDPLoh5wTfwPbQ49RTqS8vz6YDLJxTcs94NKjRkW_yBBzMPiw5gbI5_QO8uF7IaL7yTAIcVVOEUqoSzURz9DTHHA5qf3dRM4NDSp6vQaUNfqicglBiiFFYf1WkyppKEYRct1uYAH4KtpXEuAPpBBPcEEc5HnoDQ.jpg" width="400"><br>
 
@@ -161,7 +195,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 
 
@@ -180,7 +214,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 <img src="https://cdn1.telesco.pe/file/uEi-Lbvn02ikYlSVsMLt4NBe59XXDBg4cJCM5H1kETAYyPR_uwCE0EaaqQiykRwuqFf1-hOpclAqMIutWIRAjUtl-_H9-BzyI2FokT3RKi7C5k67UeG3qmVboFhtIcH7kxf8KLR56YHYlUtvCqaID-NWfzmRu9nVRzu6Vu4LRnAJf07ixsgmNBC9JXLR06G3pi2ujPckTE_LVBoWRm2OqDOwTvvqpFZ8DQxJIZ3XeN94_qEOO3DyvYseOgMc374mAI8cIFtPji5RnDM_U4QkeyXCVUpILVzf3AtLw2yNSBh6CGtHU2n_cA3CBvyP_rm3SRdKx2FcJCYYHhK9ZueNfA.jpg" width="400"><br>
 
@@ -199,7 +233,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 <img src="https://cdn4.telesco.pe/file/Mi7rcPThB814LXaWLBISpyCNIWXPI6VlZhc-Zm2YoJVv49EjESF36O-hIb3jVae6acMc4Bg7750pNgBtpSNFACRsfG49R4hKaH7BaUBfDAvITpvDgQt566hFbMxb1OmeBIt6pm0ARjJ0FWkgDvlG0rqSQ6bUBxX6bPtEAg-lSYotjNTPQiLShrQy33Cq6425XR5CMXbvlH-P31O3E-AgZ23mO76PINAzufMJpeDIdNc4N0BUtt3_dBM3x4POsze7pI8QGVU1u3tlXIxuhj8FBvvTdrZvz5WIuHv4TO8WFskbBYsgo34t9A7qTjrSNj3dgybbALXdgTU3_8vM-vEhvA.jpg" width="400"><br>
 
@@ -218,7 +252,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
 <img src="https://cdn1.telesco.pe/file/A3b_H3KEdiIeyMwQSchWrX9RBjJk95du9Pnk5fk7wOE02-3RvANWrQwvSfnmSU9FL0ZVZ70Y1TIHykK1NH1As18MyUeANMNDlH44EHmsfbm7hL4QNFiPsE747RleX2Ul3yfz0-vUcsALVi2XB4p_D7bzxOTRcZcbPBlAEMWeWuoJxshQigjFgzxONsMVDEtG6H5XKnVzy0-uCWiJitpKiGJfo1mXofdGEUdenbrZQDbmM1f0mnT0lsgUqWvi3s4ga_LqIpNEvpx5IyTGlLeb9xCagCsg6cuVJmG41GO3B_iqeNL5IV4qo_Qq5NSpMPDxaXJIU7oh49V9kcRlK3pOSg.jpg" width="400"><br>
 
@@ -238,85 +272,15 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 13:10:49
+###### 🔵 Updated at: 2026-07-06 16:58:34
 
-<img src="https://cdn1.telesco.pe/file/piFUP2gB9C9Puq1u_4P1xcwt8-ZtPl947wVbLhbwVtYo4A3J8ns4Tori1EQuvkbeN_W08ggM2qWlMV1uttJftZY_ycjlTswhV9gSKOoYGyxRzbpMw93d98hoB8nKQH6l_2ubHP4sjww-NVW2HFpv-MEoqAM_DcnHD71sjPMFpO3EDA5H9wXjZEG8zogjHh_DpaXH4uKjXL72KDZqFZ7cQHPCbJ8wJa6QP_ZVxtIIEsv4slAoNLyiPo8CaFqEKrlAxnYuTqHgRrI1JIZwWlDZxa7omwQNaFUaj4kFx743hOgZho5n0YWT4ulK31ltJ_3L3n6LHZ5y-8JX9r3zZSsBfA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/TOkhzmbLamEB4nLda9HRgWF4M3Vm7VBAnynJh6XBfdGzD0elwhb2wPmsKAiaXYpsx2mf5JXxcEPsN98rm2tmwoIIHSvVmVjV_191QC-MY-JcGLLlwKhY46Ryy0zfqXw85VRPRvvBFzl4Cl3ZPqfDbpo3ALA3U-5JSVkuo4zF51CdnSIT9hTCOur2QanKmkf1UASWy8fdou_re4Llpk0frp9i0uiXS3Hr5xPmm2S8Hy4J3UgCfKNYKqVAlRu_gJciHivdrYIv7GsRAGk3ZcDnHXNqn8ktzEB5CsEioDuWDZ3t89qP_OimmfC5Cn0JaePM8xDoFqGiksozwLjacwOqjg.jpg" width="400"><br>
 
 "دارم خواب می‌بینم؟ سلام دنیای جدید!" ویدیو دریافتی از 'شادی جوانان شهر #گله‌دار در شهرستان مُهر استان فارس، یکشنبه ۱۰ اسفند' Vahid
 📡
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76773)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-06 13:10:49
-
-<img src="https://cdn1.telesco.pe/file/m_xSB1TbxGcbEtzH1fkuWqC4XZL4sEcXCmrt0_M7QlK0ggFMsPEHHBl__f47FvDQxx9N7P4-1l9JiekKfyNMafnP-igCpHcEDlYsiyghAZM4zMq8RS91K7ERfYVcDEuKdjPn-oJ87LWpIt0Pg_AuihNXaD29wEzyQMBKE3FQWbs_JUK2jDn6551c8UDk-1chTx__BY9GOby7W8S1rTosTg1mMzhqLp0yEXYkjKrTfAUBOfZwoGzVMVbLgSgW93fhiwmRFJqDMSgIeuZx_h7N_zeBhWdD0Lsd_kFZuncN-WtLZCap7zBW8HpLnll_eTAAzKfv_dzyEZR-ZKlJKH3mgQ.jpg" width="400"><br>
-
-مجتبی کرابی (برسام) شامگاه ۲۱ دی‌ماه ۱۴۰۴ در منطقه سلسبیل تهران هدف شلیک مستقیم قرار گرفت و به کما رفت.
-این جوان ۳۰ ساله که متولد سبزوار بود، بر اثر اصابت گلوله دچار مرگ مغزی شد و پس از یک هفته، در ۲۹ دی‌ماه ۱۴۰۴، در بیمارستان امام حسین تهران جان باخت.
-پیکر او برای خاکسپاری به سبزوار منتقل شد.
-ایران‌وایر مطلع شده است که به دلیل نقش بستن عنوان «جاویدنام» بر سنگ مزار او، مسئولان بنیاد شهید خانواده‌اش را تحت فشار قرار دادند تا این عنوان را به «شهید» تغییر دهند.
-پس از آن‌که خانواده از پذیرش این خواسته خودداری کردند، سنگ مزار مجتبی کرابی (برسام) شکسته شد.
-خانواده او نیز تصمیم گرفتند تا «روز آزادی» سنگی بر مزار این جوان کشته‌شده نگذارند.
-مجتبی کرابی مربی بدنسازی، ورزشکار رشته فیتنس و داور رسمی پاورلیفتینگ بود.
-یک منبع نزدیک به خانواده او به ایران‌وایر گفت: «مجتبی چند سال در کنار دایی‌اش، روح‌الله نصیری، از ورزشکاران نام‌آشنای خراسان رضوی، به‌صورت تجربی و آکادمیک آموزش دید و با تلاش و پشتکار توانست به‌عنوان مربی و داور رسمی پاورلیفتینگ، با مدرک معتبر، فعالیت حرفه‌ای خود را آغاز کند.»
-او از هواداران تیم پرسپولیس بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76772)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-06 13:10:49
-
-
-
-رئیس مجلس شورای اسلامی می‌گوید گزارش‌های منتشره دربارۀ موافقت با دسترسی بازرسان آژانس بین‌المللی انرژی اتمی به سایت‌های هسته‌ای آسیب‌دیده «کذب است».
-محمد باقر قالیباف در گفت‌وگویی تلویزیونی، که بخش دوم آن، شامگاه چهارشنبه ۱۰ تیر از تلویزیون رسمی جمهوری اسلامی پخش شد، با اشاره به قانون مصوب مجلس و مصوبۀ شورای عالی امنیت ملی جمهوری اسلامی، تأکید کرد که بر اساس قانون، «به هیچ عنوان دسترسی به سایت‌هایی که بمباران شده و آسیب دیده‌اند، داده نمی‌شود».
-به گفتۀ مذاکره‌کنندۀ ارشد جمهوری اسلامی تعیین سطح دسترسی‌ها بر عهدۀ شورای عالی امنیت ملی‌ است و فراتر از آن، «هیچ امتیازی داده نخواهد شد».
-محمدباقر قالیباف گفت بر اساس مصوبۀ شورای عالی امنیت ملی،‌ دسترسی بازرسان آژانس در حال حاضر به دو مورد نیروگاه هسته‌ای بوشهر و رآکتور تهران محدود است و به سایت دیگری دسترسی ندارند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76771)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-06 13:10:49
-
-<img src="https://cdn1.telesco.pe/file/BJ-3tYBpv0tyECMqo4O4nfwYqgLio4wJYH9HLaeT2-CWFDwdzJJBo2Qyhsvrty3BOpxyL-LLReLR0VG5aa7ovlCvAhwOys6d9hy69CZTwKjo7WQybRn_xuLPonKZseW-EbxCvmP4b9_BhuvK5-3vybaMBCJVMC5btPHKK4UnEsbxw0UJcKDWVHI3O51i60fdaT5VdD15S4f3HNhmK-RUBqYBDSNIjWJmVQ1UVxuJMAWyX3wd9SsOJSdPNeBFjByGzoWWLlXcdFUIBw2LxZgJNyq3UrMRv2-5tMgEmI1Z4r_CBESo4_vn8QSWBhe-EoZ9HQ_mAMguyUdTlmA-IvMD4Q.jpg" width="400"><br>
-
-منابع امنیتی عراق از وقوع یک حملۀ پهپادی به اردوگاه گروه‌های کرد مخالف جمهوری اسلامی در منطقۀ کوی‌سنجاق در شرق اربیل خبر می‌دهند.
-هنوز جزئیاتی از این حادثه منتشر نشده، اما طی روزهای اخیر چند عضو سپاه پاسداران و نیروی انتظامی جمهوری اسلامی در استان‌های غربی ایران از جمله کردستان هدف حملاتی قرار گرفته و کشته یا زخمی شده بوده‌اند. یک گروه مسلح کرد هم مسئولیت برخی از این حملات را بر عهده گرفته بود.
-مقام‌های امنیتی جمهوری اسلامی طی روزهای اخیر، بار دیگر از مقام‌های عراق و اقلیم کردستان خواسته بودند که به حضور گروه‌های کرد مسلح مخالف جمهوری اسلامی در خاک اقلیم کردستان پایان دهند.
-سپاه پاسداران طی ماه‌های اخیر بارها با موشک و پهپاد به پایگاه‌های گروه‌های کرد در اقلیم کردستان و عمدتاً در اطراف اربیل حمله کرده است.
-در همین حال خبرگزاری فارس به نقل از «منابع محلی» از وقوع چندین انفجار در اربیل و سلیمانیه، و از جمله هدف قرار گرفتن مقر «حزب آزادی» با موشک بالستیک خبر داده است.
-@
-VahidHeadline
-درگیری‌های مسلحانه میان نیروهای سپاه پاسداران و گروه‌های مسلح مخالف جمهوری اسلامی در اطراف شهرهای سردشت و پیرانشهر، شامگاه چهارشنبه ۱۰ تیر و بامداد پنج‌شنبه ۱۱ تیر، ادامه یافت و به کشته شدن چندین نفر انجامید.
-سازمان‌ حقوق بشری هانا اعلام کرد این درگیری‌ها در مناطق مرزی آذربایجان غربی رخ داده است.
-رسانه‌های نزدیک به حزب دموکرات کردستان ایران نیز اعلام کردند در جریان درگیری عصر چهارشنبه در نزدیکی روستای «قزقاپان» در اطراف پیرانشهر، پنج عضو این حزب کشته شدند.
-خبرگزاری فارس، نزدیک به سپاه پاسداران، بدون ارائه جزئیات اعلام کرد شش عضو حزب دموکرات کردستان ایران در این درگیری‌ها کشته شده‌اند.
-کانال تلگرامی صابرین‌نیوز، نزدیک به نهادهای امنیتی جمهوری اسلامی، نیز مدعی شد در دو درگیری جداگانه، ۱۱ نفر از اعضای گروه‌های مسلح مخالف جمهوری اسلامی کشته شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76769)
 
 ---
 
