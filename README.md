@@ -3,7 +3,34 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
+
+
+
+🔻
+دونالد ترامپ، رئیس‌جمهور آمریکا، گفت که از جانی اینفانتینو، رئیس فیفا، خواسته است اخراج فولارین بالوگون، مهاجم تیم ملی آمریکا، را بازبینی کند، زیرا به اعتقاد او خطایی که منجر به کارت قرمز شد، عادلانه نبوده است.
+آقای ترامپ در جمع خبرنگاران در دفتر بیضی کاخ سفید گفت: «تنها کاری که کردم این بود که درخواست بازبینی دادم، چون فکر نمی‌کردم آن صحنه خطا باشد.»
+او همچنین داوری را که این کارت قرمز را نشان داده بود، «افتضاح» توصیف کرد.
+این اقدام بی‌سابقه، روند رسیدگی انضباطی فیفا را در کانون توجه جهانی قرار داده و با واکنش خشمگینانه بلژیک، رقیب آمریکا در دیدار روز دوشنبه برای کسب جواز حضور در مرحله یک‌چهارم نهایی، روبه‌رو شده است.
+اتحادیه فوتبال اروپا، یوفا، هم به‌شدت از این تصمیم غیرمنتظره فیفا انتقاد کرده و آن را «بی‌سابقه، غیرقابل‌درک و توجیه» توصیف کرده است.
+@
+VahidHeadline
+در ادامه واکنش‌های گسترده جهانی به رفع محرومت فولارین بالوگون، مهاجم تیم‌ ملی آمریکا، فدراسیون فوتبال بلژیک روز دوشنبه ۱۵ تیرماه اعلام کرد تصمیم فیفا برای صدور مجوز این بازیکن در رقابت مرحله یک‌هشتم نهایی جام جهانی را به چالش می‌کشد.
+فدراسیون فوتبال بلژیک در بیانیه‌ای گفت از روند طی‌شده برای این تصمیم «عمیقا نگران» است و برای دفاع از «اصول بنیادین اخلاق، رقابت عادلانه و منافع فوتبال» به پیگیری این پرونده ادامه خواهد داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76795)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 
 
@@ -29,7 +56,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn1.telesco.pe/file/qlm1-xaCItOLmNcCWUnAKTWWryr4Gtcd2LagvBQmryTRP9B9KBYuPJHS4_Hq4O8GauSDOeF893_38Dy_RNUmBdsyruju53oIKSQVTejG5z3rWVhiBqCsmkjLsCgh-7TLBycVLht-vG5jmAo6tGe73IOAzCruHl2rOJSqmOAtz5GZzHnkSxkdobgIYnzBCA93QYsy08DHKWlhkQc1DD3TY-6w-K1MxveJgR5R-nfj7NJxNtecQpltRMNuq_BcZ98ozZj3iRjKW69kZFlyRxmuucfxXUKMy2XC2WNX-wr44BB8MKMAH6JozQj9nPRZxMPGmDrXItBHQoB54MemPRVL1A.jpg" width="400"><br>
 
@@ -49,7 +76,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn4.telesco.pe/file/L5u5VPlyz2rmoZaMFAeDmKqHMBTolnk7yZKt_8iDh5Hc4FR22Iz_FNzf3wk_A-MOFMh6cs7ghT4-iIpr8FG1mRO6QtN9O9I90qEaZWXmDDt5kcZzR1rmPjxAy5GiVywEICDrzmQS_PXn-5hb0kdy0a5oszR1ivQQUe9dfyNzOrfRLExzghbXX9IgdW5HDcIt3LU0JAR0EkYfWgFkbSRzuyMzTFIBTWk3Q_mXVH06PUQ0GzTJzpiUN0aetw2Vroi881BysL9_Ch8YdC6cf9Hmb7dzuWXc0hgONLFqYrXPfzPFSJ0LLLR9OQJnIrMRYaoyHeXqOHNRX7iS_-71n7Btog.jpg" width="400"><br>
 
@@ -63,7 +90,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn1.telesco.pe/file/PSAaHbEjTI006Pd-Z6YAggNXDnPfF_6MGkxLF6Yi8X6emp1dyJPK54vOOfLGze2IO3Clf2E8f0M56Z4Q84U56OkIypQ56M_jzLd_YMEJdqdrYKAkPrI2vSd6igQMSnsV-AuOzjTTH9K2uXxQHTVEaCZLEmScSAZjh-3HXymHTFOWwJEgSoMJd-NJXkOlXLip4_WJTv5NOMzYG3Jpj-JrcwA-NcldlYAnzIWL_mgk-d1SM3mOOpv7U6seKyuQ6La3r6PT_Yid4947vx_ktkmu0QnmR47jFM1EyLnUjqhrSTNN07D1Mr8zuOh3iivpMcPNwE4wY7jFtru8K7GHRB4tQA.jpg" width="400"><br>
 
@@ -80,7 +107,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn1.telesco.pe/file/aVMqzumkT9WLeSVb8O_-ibCBun-SR0Yy8M5Nr8mDYmECYcE2eVtevGyJdwmSIbnAtGH4ZDooPMbdge8HaYXZPrQ7VfMh79HasYFPdS7Cao2beG51OA_XaIlWWOkMgiv4pChXrmXjfP7pAKpOVrY2wBdAaG_l4rUXZTceAmueRmFrCYtvQsFb_TBY4XursgY83CQyVlEe_Sd-fZT4Vd9gxz5gzspKst3hn51h1Z6c3wC5FMfUzqeoGSkLhDDSD9GrrvRHJjS14WrrqivWjUhM6sG1Kfual8wvODOpclHB9JEVypbXdfFVnmqRTbJzD43tx7ktsM-oFXve1-q7N0vfRA.jpg" width="400"><br>
 
@@ -100,9 +127,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
-<img src="https://cdn4.telesco.pe/file/G4iYaHBinXKLCbLieTSlCjrQQw8DmNNV0zmpbxSM9Hqxb15_1PA_JayWDtpecwGmI02rZLgljv7TGR_ZoP4RsvgRiBXFn64PQmyP4iqscodYnZc1uT_DsWII10dGN6zFOEzk0hzArFSyI5CSSWs8XvB-GxkCz9gVb21XLUxRQMaxsKpx99jqG0ao7JPJha91-I4so04At3PNuULU1loVaMxFTUHrgSNNbUPvUcl0chG1GJQ-VrsjOYHseWlrh2v4c8NQYsJCLy7fmRYEInkC1WNq9N3a0lEWoJPGhmP-uSYTaaS90uCFtRcC7MJHUg7eB855oLHylDpZMXOJjvSIFA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NO66YeFGAIzC5UkZGi8BNwTyUqA5U-CF4E4FU-2XP-tiakGo7XvOfxCXEQcokxflXWPgBTMqlIc4fBrYYtTnjGZ8ajYT5LF1Rgfpz99quc6r5_XGpuT5r7Lk-Qsp3_unGNskUOooWezsDyjq22151vTVJZ3LUMs1RAS2BxqYZgg1z5-99ohlE7abZNKpY5yb7aD4ESxN0eltMaNbyn74OyKVLX2grhqyZeHw9EXut2iOhCrFqqXX_4bd2iS8eW1KIMzHU4JL-Jp20xpJQgityA3mTQQziEfVZxiOJ0b6SpGB2o3VKjqCesKlpTWWH-gR_IwyqsQ3YOdDZP8oNdC3kA.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا روز شنبه ۱۳ تیر، در گفتگو با وبسایت خبری آکسیوس، اشاره کرد که تصاویر مربوط به مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی را مشاهده کرده و از دیدن گریه افراد، متعجب شده است. او گفت:
 از دیدن برخی ایرانیان که در مراسم تشییع گریه می‌کردند متعجب شدم چون گمان می‌کردم مردم از او متنفرند. شاید این اشک‌ها ساختگی باشد.
@@ -119,7 +146,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 
 
@@ -131,7 +158,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 
 
@@ -150,7 +177,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn4.telesco.pe/file/RnRlXrk0-48af-AR2OkXp34r6SowVTo-hn836zvNMIQYSmWoKZI19Mc9-MIiBSFzoDQS5WbJzWEsgJrb3saI0iPhxTQLWB1bhsn_yxqMD24dirZXgLb-zzhmBGLEM8AXvfKJ47OqkhTx2PxxKukrhjhRzoqUKkYzh2nnLCWJoPmKIEVdHwoOB20mR3gvPF1TFf5u_TCNydf-GjXaLQMX-PbjkPzrJ9BATJFLiW7ImcusB9FvbSCltzyxbkb0MaYNfsbomluHg0R6VGTnN94w0zjN-InxFH1lULiDR3wH85bB40wk7-2GKSiszPrE2CRueGCF-zYrZyuQ7sAuFzZkng.jpg" width="400"><br>
 
@@ -167,7 +194,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn4.telesco.pe/file/V2tK0F6DSsxiB9bL9-Y-1LO9wPGz1pBAEZQPr-NuT7q5IQq7PrJY4rBbrxZ-RczcUeVQEzzdPvhjhmPybaqxHKeXdPABryuxYGeCi0aAxo-VauQqm6WBVsQfE8RltByM_RTdsf17ZhV0wNxAOns_21m8KZvsHHKcqCz1tbMO_SKuF4pNX5TBkzaqwVWNNLw1Ng0_smmZUXrwDPJOi2ZWJBA355QfhEgf55nRBeBZPjGnipHyMDy_jqZ365zg_ryNtTN-Uojrt2dDV6Lda1GFfOB1QLVjNjNAR-u2D_-Reg9wUjRDnVXkuYVTdom5xQvRMBhUBxcoh2dQj2EqeKUf0w.jpg" width="400"><br>
 
@@ -186,7 +213,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn4.telesco.pe/file/fy6Di8lBV4bnDZMhMe_I2W1tw593P4zUHEVa8ZjbAfOMKW_I0kd4zJEnP8ucIAGdGGTKu9iCks6J9CL-ZjQhFyjjBGTXx_cmqc-ZncMlN8vkzFZXzbnsRpsQ0--RkJniEI2Wi7qMHINqhRXDnUJatbqRPvPhDS4eFE-FQDQb4S0uTd_i1y2m__HiHO5JTYGA_AGSK9XrC9OK2bj7x0mvJGkLy4geleUm9ro0aAmMXpcJ-oicmdQXla02ybztl8YVHWraUeB0qFpMn4xa2f8QD2gKbG0ZHwvHsNNTT9JctluXvihizYJu2VYLnVjRQiCaRVvCqBRxR0NWrLXc_0S0Dw.jpg" width="400"><br>
 
@@ -208,7 +235,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn1.telesco.pe/file/kRqRFv57dNfn0sLpChOwGX9RtCfY44WR8unSCS1eqZtNXeDQTzc4MExefijBVQ39AFSo05Nue_FI-0WtP0shvIOBQOOeUIc2Mlh-I-cmZBaIKJGZskYvhATH5xrapJ0zYbUhZ7qDrZNg1kYYKc9yrn1AhNcQZZ3I_j9nEF9_mcNgy7ILQXxylcse0s6I3NHjEjGY-3Y3RuoRByCIHVQOwo19kBC9a4FdZwkmyBCbY-AZi7GRSGaSf0wMYXrb9Nonf6v20sXc56gYLW9VKocGUkvnF8h1ggxLAkXA70hgRvnVIkbXVTW5061vUjCLA0PyvbwQI3TL55D3nc9x0GDXdQ.jpg" width="400"><br>
 
@@ -221,7 +248,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 
 
@@ -240,7 +267,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn1.telesco.pe/file/esUp9cKtq0azTLZS5dwuAuhhwbAp3NAVGDF6-XVuqN4hucrqTS3G_0OrK0HL6uU5fqQhtOLWWyKXwbjxO28iRQlFUuNRm3bB13lZ16A5O4GnAfxwVv67Lg8ITmQbI6ywD4CQ4ylisSEcXj4KEbHJivROd5lz6w0J6LdCOxKGldwjEjXPZ4t4Oioo1DgUjbqCtya_YvnMyt__jjAZb6ICyzV-1g-nDohOPzHKv7dtTc8eE1ueYBN4zdh-ke467yeDRBLGeQSVivdPZFCCRzH_OOOEaWvzOHTSLWrNCi70ocgRJjWpYgnTU8bUdJsPW0-_sEtxri9lztsF_7HwONj63A.jpg" width="400"><br>
 
@@ -259,7 +286,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-06 21:59:51
+###### 🔵 Updated at: 2026-07-06 23:57:30
 
 <img src="https://cdn4.telesco.pe/file/FlrSvnEuaZcp7OqD8qKFLHKA8YHBN7gsCOuf650tT4pDqK64-5h6TDqIULvtqpcRREdC2Q7jbUMdJdzbh1tMSLh-V9gxWLPfUVmD2_p2gEKFsHC8w8BJC-xGDYma_rpjSlEp7_PsTBh8IC3iPtBV6yCO_fZTNDDk9r1tdcLZGP7ZhCLKpf-Ns5C2IpcB9Jh7YmvU-d4uut1jNPebCh7R3WYCOT_zHCf7Wfa5o7XuBVhUqg8KQRWVWanxZBj01FZK8mdbBO6r2FE7s8wqYvzn2R-GVLWNwdFH_zvCWSrQpamYrX-WWkKU9Z8TB0Q3dMUWVdgeNShOzU71ODVWdVrShg.jpg" width="400"><br>
 
@@ -273,26 +300,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76775)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-06 21:59:51
-
-<img src="https://cdn1.telesco.pe/file/A3b_H3KEdiIeyMwQSchWrX9RBjJk95du9Pnk5fk7wOE02-3RvANWrQwvSfnmSU9FL0ZVZ70Y1TIHykK1NH1As18MyUeANMNDlH44EHmsfbm7hL4QNFiPsE747RleX2Ul3yfz0-vUcsALVi2XB4p_D7bzxOTRcZcbPBlAEMWeWuoJxshQigjFgzxONsMVDEtG6H5XKnVzy0-uCWiJitpKiGJfo1mXofdGEUdenbrZQDbmM1f0mnT0lsgUqWvi3s4ga_LqIpNEvpx5IyTGlLeb9xCagCsg6cuVJmG41GO3B_iqeNL5IV4qo_Qq5NSpMPDxaXJIU7oh49V9kcRlK3pOSg.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد جمعه ۱۲ تیرماه در گفتگو با شبکه سی‌ان‌بی‌سی گفت جمهوری اسلامی از نظر نظامی «کاملا شکست خورده» و مذاکرات میان تهران و واشینگتن ادامه دارد. او افزود: «فکر می‌کنم آن‌ها تقریبا با همه چیزهایی که ما نیاز داریم موافقت کرده‌اند» و ابراز امیدواری کرد این مذاکرات به نتیجه برسد.
-ترامپ با مقایسه وضعیت کنونی با جنگ‌های گذشته آمریکا گفت برخلاف جنگ ویتنام، افغانستان و کره که سال‌ها ادامه داشتند، در چهار ماه نخست دولتش توانسته جمهوری اسلامی را از نظر نظامی شکست دهد. او گفت: «آن‌ها کاملا از نظر نظامی شکست خورده‌اند. هنوز چند موشک برایشان باقی مانده، اما اگر لازم باشد آن‌ها را هم از بین می‌بریم.»
-رئیس‌جمهوری آمریکا همچنین گفت هفته گذشته پس از آنکه جمهوری اسلامی یک پهپاد را به سمت یک کشتی فرستاد، نیروهای آمریکایی سه بار مواضع آن را هدف قرار دادند و هفته پیش از آن نیز دو شب پیاپی حملات مشابهی انجام دادند. او افزود این عملیات‌ها هم‌زمان با ادامه مذاکرات انجام شده است.
-ترامپ در بخش دیگری از سخنانش گفت آمریکا با استفاده از نیروی دریایی خود «دیوار فولادی» در اطراف ایران ایجاد کرده و «حتی یک کشتی هم نتوانست به ایران برسد.» او ادامه داد حکومت ایران با تورم ۳۰۰ درصدی، کاهش شدید درآمد و کمبود مواد غذایی روبه‌رو است و در صورت دستیابی به توافق، آمریکا می‌تواند گندم، ذرت و سویا را از طریق کشاورزان آمریکایی در اختیار ایران قرار دهد.
-رئیس‌جمهوری آمریکا همچنین گفت «قدرت و جسارت» جمهوری اسلامی از بین رفته و با انتقاد از گزارشی در روزنامه نیویورک تایمز که نوشته بود ایران نسبت به چهار ماه قبل در موقعیت بهتری قرار دارد، افزود: «توان نظامی آن‌ها از بین رفته، رهبرانشان از میان برداشته شده‌اند، فرماندهان رده دوم و حتی برخی فرماندهان رده سوم از بین رفته‌اند، بنابراین نمی‌توان گفت امروز در وضعیت بهتری قرار دارند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76774)
 
 ---
 
