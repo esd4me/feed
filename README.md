@@ -3,7 +3,69 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
+
+
+
+ویدیوهای منتشر شده در شبکه‌های اجتماعی نشان می‌دهد، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، و مسعود پزشکیان، رئیس‌جمهوری، دوشنبه ۱۵ تیرماه، در جریان مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، در قم، با شعارهای «بی‌شرف» و «مرگ بر سازشگر» از سوی گروهی از تندرو های حامی حکومت، مواجه شدند.
+بر اساس این ویدیوها، عراقچی و پزشکیان پس از سر داده شدن این شعارها، محل حضور خود را ترک کردند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76799)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 16:56:03
+
+<img src="https://cdn4.telesco.pe/file/oZ36Wri3HuxdMnRdRrnKim5KHPBlKWE9bd0jbXeAN7nvoeJB6Eh00OEZFDxwxwB3DIQR700aK4Gee5c8DVpkPP125JBVxT6bpvBKMd0CDiDHq6AgQ_nj_JWNbA432HVCj7wxktjsxM06_1cKtFa928FtnrYBY3w3JqaQia7VyleNNovHpX9EIrCO3jdWi0QaWYV6vG4KiZHER_Z937S3sHlFyv9IKaaBVpSAwA_i7XDm7xJKK3MrinzsZzRcbWXFMD5dZWGFip4rFBWdq9bRyS6o_zvj99VfDM252Xr4CJEOEB25RSqBSgzYzE6_engc-cy2cZ-eDp2MRKiLzlgLbw.jpg" width="400"><br>
+
+هم‌زمان با نزدیک شدن زمان انتقال تابوت علی خامنه‌ای به عراق برای اجرای مرحله تازه‌ای از مراسم تشییع رهبر پیشین جمهوری اسلامی، محمدرضا سیستانی، فرزند ارشد علی سیستانی، مرجع عالی‌قدر شیعیان در نجف، به دفتر علی خامنه‌ای اطلاع داده است که پدرش بر تابوت او نماز نخواهد خواند.
+در همین حال، جواد شهرستانی، داماد و نماینده علی سیستانی در ایران، نیز در مراسم تشییع و نماز میت علی خامنه‌ای در تهران حضور نداشت.
+پیش‌تر محمدکاظم آل‌صادق، سفیر جمهوری اسلامی در عراق، اعلام کرده بود که مراسم استقبال رسمی از پیکر علی خامنه‌ای شامگاه سه‌شنبه در شهر نجف برگزار خواهد شد و آیین تشییع عمومی نیز از ساعت ۶ صبح روز چهارشنبه در شهرهای نجف و کربلا ادامه خواهد یافت.
+خودداری علی سیستانی از اقامه نماز میت بر پیکر علی خامنه‌ای در حالی صورت می‌گیرد که جمهوری اسلامی از زمان کشته شدن رهبر دوم خود، مجموعه‌ای از مراسم تشییع و وداع را در چند شهر ایران برنامه‌ریزی کرده و اکنون نیز در تلاش است این آیین را با برگزاری مراسم در شهرهای مذهبی عراق ادامه دهد.
+غیبت مهم‌ترین مرجع شیعیان عراق در این بخش از مراسم، یکی از مهم‌ترین حاشیه‌های مرحله عراقی تشییع علی خامنه‌ای به شمار می‌رود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76798)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 16:56:03
+
+<img src="https://cdn1.telesco.pe/file/mTsVUP1Ig3rq5ZJ2mOWxpFHWL8uZ2lvjAHcnFlMNb0PM0ZY-_BVoa55fo1S1RXcGZ1_hDAgGsezBIKey_U798UaaIEYhYIIHf4bRuwi9ehgcpfPOcDtItmZt6yji-_OcVW5H8YslpGOKy2Haoi04ER-q-jtt-FmI6L_frnKnBCi7a5_J1stuKmtfcQdOlRSDa3N5EkOQ8Q-1Cy2cZ1Bjy9LtDdonf6lRO7L-k6It8L4XplTbu8Mo2da30Qp4nQj9DkCKnuyb2tmd7Oh8HASQXjyeCrhuJXJV09-X6ll1E20BEcTZJfWxcWZjD7zAOH0tx2RFaUDJbc8TF3sM3I3Dcw.jpg" width="400"><br>
+
+وب‌سایت اکسیوس به نقل از دو مقام آمریکایی گزارش داد که سپاه پاسداران روز دوشنبه دست‌کم دو موشک به سوی کشتی‌های تجاری در حال عبور از تنگه هرمز شلیک کرده است.
+بر اساس این گزارش، دو کشتی در پی این حمله آسیب قابل توجهی دیده‌اند، اما هیچ تلفات جانی گزارش نشده است.
+حمله گزارش‌شده پس از آن رخ می‌دهد که مهلت توافق یک‌هفته‌ای میان ایالات متحده و ایران برای توقف حملات در تنگه هرمز به پایان رسید.
+اکسیوس می‌نویسد که ازسرگیری حملات ایران، تفاهم‌نامه‌ای را که کمتر از سه هفته پیش امضا شده بود، در معرض فروپاشی قرار داده است.
+این منبع خبری می‌افزاید که
+احتمال می‌رود ایالات متحده در واکنش، اهدافی در ایران را هدف حملات نظامی قرار دهد.
+@
+VahidHeadline
+صداوسیمای جمهوری اسلامی به نقل از «برخی منابع» گزارش داد که «نفتکش الرقایات» متعلق به قطر، قصد داشت «با حمایت نیروی دریایی آمریکا» از مسیر عمانی تنگه هرمز عبور کند، اما «پس از بی‌توجهی به هشدارهای مکرر، هدف حمله قرار گرفته است.»
+این گزارش تلویزیون حکومتی جمهوری اسلامی این‌گونه القا می‌کند که تهران این حمله را انجام داده است. با این حال، جمهوری اسلامی تاکنون به‌طور رسمی مسئولیت این حمله را بر عهده نگرفته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76797)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 <img src="https://cdn4.telesco.pe/file/WVokYKzJK7O2S3s4esaNUH299xRxICnHptJGsmSTaylyeTc9QoAn3srkpB-mbBocNs20jbvR2E1hCeVRvLihbZlGfn8JS4thZkjDMNx2XK9uvdy6MCB-SweBgx-_SUjgRP2hLZwwi6gs0X9P02zBfYZxV0bhIa2m8C5ryx0BMTxf_ibtJmYpZmOfWVfER1XOzQVmfP899PE-gKE39mZZP0Sd0ZM-aAmfOUzVII_DjULvOsnDM8g_MN0fZDAsOERRL4IHHKQxc1HZqiJ3_KIhhvtUwzfvPcLM2YXTHqNmXRuBnymxPMeHV1vO8EWFppNJrnF5YtiUej2oR0H0i6x4fw.jpg" width="400"><br>
 
@@ -21,7 +83,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 
 
@@ -29,7 +91,7 @@ VahidOOnLine
 آقای ترامپ در جمع خبرنگاران در دفتر بیضی کاخ سفید گفت: «تنها کاری که کردم این بود که درخواست بازبینی دادم، چون فکر نمی‌کردم آن صحنه خطا باشد.»
 او همچنین داوری را که این کارت قرمز را نشان داده بود، «افتضاح» توصیف کرد.
 این اقدام بی‌سابقه، روند رسیدگی انضباطی فیفا را در کانون توجه جهانی قرار داده و با واکنش خشمگینانه بلژیک، رقیب آمریکا در دیدار روز دوشنبه برای کسب جواز حضور در مرحله یک‌چهارم نهایی، روبه‌رو شده است.
-اتحادیه فوتبال اروپا، یوفا، هم به‌شدت از این تصمیم غیرمنتظره فیفا انتقاد کرده و آن را «بی‌سابقه، غیرقابل‌درک و توجیه» توصیف کرده است.
+اتحادیه فوتبال اروپا، یوفا، هم به‌شدت از این تصمیم غیرمنتظره فیفا انتقاد کرده و آن را «بی‌سابقه، غیرقابل درک و توجیه» توصیف کرده است.
 @
 VahidHeadline
 در ادامه واکنش‌های گسترده جهانی به رفع محرومت فولارین بالوگون، مهاجم تیم‌ ملی آمریکا، فدراسیون فوتبال بلژیک روز دوشنبه ۱۵ تیرماه اعلام کرد تصمیم فیفا برای صدور مجوز این بازیکن در رقابت مرحله یک‌هشتم نهایی جام جهانی را به چالش می‌کشد.
@@ -45,7 +107,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 
 
@@ -71,9 +133,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
-<img src="https://cdn1.telesco.pe/file/qlm1-xaCItOLmNcCWUnAKTWWryr4Gtcd2LagvBQmryTRP9B9KBYuPJHS4_Hq4O8GauSDOeF893_38Dy_RNUmBdsyruju53oIKSQVTejG5z3rWVhiBqCsmkjLsCgh-7TLBycVLht-vG5jmAo6tGe73IOAzCruHl2rOJSqmOAtz5GZzHnkSxkdobgIYnzBCA93QYsy08DHKWlhkQc1DD3TY-6w-K1MxveJgR5R-nfj7NJxNtecQpltRMNuq_BcZ98ozZj3iRjKW69kZFlyRxmuucfxXUKMy2XC2WNX-wr44BB8MKMAH6JozQj9nPRZxMPGmDrXItBHQoB54MemPRVL1A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vN2Rp9vsRwmf5ug9l50hUSp-C5VkJmivOG3tYQDo39jReCj7PjANLugc1TsDX01dxVYeVboYK6dyBEWQtf-7MkzwCY8k0I_28tRkbhsZkEpcCmLMEJvLbX7oXnRhBFKM5-2yCPSSK0CaiTrxePlJNgpNRqXzMRH0gOzZZ-GXXBRJPKkY59D1ohs5x0tgGDcvI26XhwHQpPLyrzGvzoX-zCu9xeb6Tt36nelI_rF5gwfTy_f7laRQows2rR_fRvyPebqxGPvD3hG0OXCaOC0UmR8RkJ_lojtgxJ0CSJqPUAuBrlS9g6MwXJJTL_0EEJ2IsZN1r8R6FOdPwd_teDjdow.jpg" width="400"><br>
 
 صداوسیمای جمهوری اسلامی روز دوشنبه ۱۵ تیرماه تصاویری از حضور احمد جنتی، دبیر شورای نگهبان در مراسم تشییع پیکر علی خامنه‌ای منتشر کرد.
 رسانه‌ها روز دوشنبه همچنین تصویری از محمود احمدی‌نژاد را در مراسم مرگ رهبر سابق جمهوری اسلامی منتشر کردند.
@@ -91,9 +153,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
-<img src="https://cdn4.telesco.pe/file/L5u5VPlyz2rmoZaMFAeDmKqHMBTolnk7yZKt_8iDh5Hc4FR22Iz_FNzf3wk_A-MOFMh6cs7ghT4-iIpr8FG1mRO6QtN9O9I90qEaZWXmDDt5kcZzR1rmPjxAy5GiVywEICDrzmQS_PXn-5hb0kdy0a5oszR1ivQQUe9dfyNzOrfRLExzghbXX9IgdW5HDcIt3LU0JAR0EkYfWgFkbSRzuyMzTFIBTWk3Q_mXVH06PUQ0GzTJzpiUN0aetw2Vroi881BysL9_Ch8YdC6cf9Hmb7dzuWXc0hgONLFqYrXPfzPFSJ0LLLR9OQJnIrMRYaoyHeXqOHNRX7iS_-71n7Btog.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/e8v9nGCz5DrFy8puCzb1MgP7tAYWRdtogm7DLZBSelejV5f-2j95INeLpGqJeSWt9pnTD2IVmo53HEWhbQKNUJvg-iyP2-b397FgeyUyzqUQX-zkF2mpS0fDpD3EJE7xNbkEtZqw5BdrBXPqIHW5jbt93UQyWsec3bOnyFQQEF6cwsibKcTrNFHwquOnUG5Fq9sJCtQoELn3ZDbKDckf2GB0-lasfzAzBd4ol11plp1ipPm7ZkPD1sJsBPHj16gySyWNEJWQ6LGRIfrIXx95Rl0_Qddd5IMeNk6GFTlfMW9EEU1j2MmEmbni_L-_zlMrfkxe83Oh672UyDOZqUzwmA.jpg" width="400"><br>
 
 🔴
 شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی، آقای مهدی ناظر و خانم مهناز چاردولی، نامزد او، را به اعدام و ۱۰ سال حبس محکوم کرده است. همچنین خانم عاطفه ناظر، خواهر آقای مهدی ناظر، به ۱۰ سال حبس محکوم شده است. این سه نفر در تاریخ ۲۱ دی‌ماه ۱۴۰۴ در تهران بازداشت شدند.
@@ -105,7 +167,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 <img src="https://cdn1.telesco.pe/file/PSAaHbEjTI006Pd-Z6YAggNXDnPfF_6MGkxLF6Yi8X6emp1dyJPK54vOOfLGze2IO3Clf2E8f0M56Z4Q84U56OkIypQ56M_jzLd_YMEJdqdrYKAkPrI2vSd6igQMSnsV-AuOzjTTH9K2uXxQHTVEaCZLEmScSAZjh-3HXymHTFOWwJEgSoMJd-NJXkOlXLip4_WJTv5NOMzYG3Jpj-JrcwA-NcldlYAnzIWL_mgk-d1SM3mOOpv7U6seKyuQ6La3r6PT_Yid4947vx_ktkmu0QnmR47jFM1EyLnUjqhrSTNN07D1Mr8zuOh3iivpMcPNwE4wY7jFtru8K7GHRB4tQA.jpg" width="400"><br>
 
@@ -122,9 +184,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
-<img src="https://cdn1.telesco.pe/file/aVMqzumkT9WLeSVb8O_-ibCBun-SR0Yy8M5Nr8mDYmECYcE2eVtevGyJdwmSIbnAtGH4ZDooPMbdge8HaYXZPrQ7VfMh79HasYFPdS7Cao2beG51OA_XaIlWWOkMgiv4pChXrmXjfP7pAKpOVrY2wBdAaG_l4rUXZTceAmueRmFrCYtvQsFb_TBY4XursgY83CQyVlEe_Sd-fZT4Vd9gxz5gzspKst3hn51h1Z6c3wC5FMfUzqeoGSkLhDDSD9GrrvRHJjS14WrrqivWjUhM6sG1Kfual8wvODOpclHB9JEVypbXdfFVnmqRTbJzD43tx7ktsM-oFXve1-q7N0vfRA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/RbMuGQ74ZyLE1sYCDZcxrhrFeeQWAWXzv6T1j9CKDd833hWX5VW8vuyerEHot8bEw_FaJrI7OCEnj0hb4tp22uYzKXcczJN6Br05nLs722bsWft3DMV1NdJ5gOOl3F-7BfSyZ1nFN8h5-kJEGS5IGSnN0nS3RIsbPT7bsTQi47BwV8r0njVW9EdTeramtUKrqMmGzVp_LF5Ef3TzdjRD3hLF8n0Ym65i8oPwrt419DlJQ-xgenV18Dug-RPHvhiqr2Vcv_aR-LJ353IuC2i52Wct2hshIIPkEnHhVKqi-5T4BKOJn38klw06WQji-p_lehVWL6KeZ3rOwEBmjLjFug.jpg" width="400"><br>
 
 نماز میت بر جنازه علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، روز یک‌شنبه، ۱۴ تیر رأس ساعت هشت صبح، توسط "آیت‌الله جعفر سبحانی" اقامه شد.
 مراسم تشییع او بیش از چهار ماه پس از مرگش در حال برگزاری است.
@@ -142,7 +204,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 <img src="https://cdn4.telesco.pe/file/NO66YeFGAIzC5UkZGi8BNwTyUqA5U-CF4E4FU-2XP-tiakGo7XvOfxCXEQcokxflXWPgBTMqlIc4fBrYYtTnjGZ8ajYT5LF1Rgfpz99quc6r5_XGpuT5r7Lk-Qsp3_unGNskUOooWezsDyjq22151vTVJZ3LUMs1RAS2BxqYZgg1z5-99ohlE7abZNKpY5yb7aD4ESxN0eltMaNbyn74OyKVLX2grhqyZeHw9EXut2iOhCrFqqXX_4bd2iS8eW1KIMzHU4JL-Jp20xpJQgityA3mTQQziEfVZxiOJ0b6SpGB2o3VKjqCesKlpTWWH-gR_IwyqsQ3YOdDZP8oNdC3kA.jpg" width="400"><br>
 
@@ -161,7 +223,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 
 
@@ -173,7 +235,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 
 
@@ -192,9 +254,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
-<img src="https://cdn4.telesco.pe/file/RnRlXrk0-48af-AR2OkXp34r6SowVTo-hn836zvNMIQYSmWoKZI19Mc9-MIiBSFzoDQS5WbJzWEsgJrb3saI0iPhxTQLWB1bhsn_yxqMD24dirZXgLb-zzhmBGLEM8AXvfKJ47OqkhTx2PxxKukrhjhRzoqUKkYzh2nnLCWJoPmKIEVdHwoOB20mR3gvPF1TFf5u_TCNydf-GjXaLQMX-PbjkPzrJ9BATJFLiW7ImcusB9FvbSCltzyxbkb0MaYNfsbomluHg0R6VGTnN94w0zjN-InxFH1lULiDR3wH85bB40wk7-2GKSiszPrE2CRueGCF-zYrZyuQ7sAuFzZkng.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/On2HcU1UV_JfZ5MPszBBHkkAzjiy-0l_2zurE3a18i_OmqMjZVAspX1TkyZaxRzT7DakVCTR4CYLA2TVRkKoo7adCPyQM1YYmX3eT1AjhDtMV23eBFYxR_4POssaey-TiJ_MIuyKxn-nEz5CAbgRv598Aq0-MRQiyIT7F06rLSiAD5Odz2w6SAPL7W27JaYurNaGnvdVSnjx_1L7X4ni4aO52a1l9HcixJl40P1O6x_kumuxNnrEKFo-oxNW1-rPkrcSKG0v-igidBEi9aMOb0p3u5tY5eTPAFKbMTl_8Xg6QiblkDGrlGoxdO1USoHC_2c34t6MDsfDAv3LwcZrBg.jpg" width="400"><br>
 
 دونالد ترامپ اعلام کرد به‌دلیل مراسم تشییع جنازهٔ علی خامنه‌ای، رهبر کشته‌شدهٔ جمهوری اسلامی، «یک هفته» به مقامات تهران فرصت داده است.
 رئیس‌جمهور آمریکا در سخنرانی خود در مراسم دویست‌وپنجاهمین سالگرد استقلال آمریکا که شامگاه جمعه ۱۲ تیر به وقت تهران برگزار شد، گفت: «ایران را به‌شدت در هم کوبیدیم. آن‌ها برای توافق بی‌تاب‌اند. به‌شدت می‌خواهند به توافق برسند. ما به‌خاطر مراسم تشییع، یک هفته به آنها فرصت دادیم، چون آدم‌های خوبی هستیم.»
@@ -209,9 +271,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
-<img src="https://cdn4.telesco.pe/file/V2tK0F6DSsxiB9bL9-Y-1LO9wPGz1pBAEZQPr-NuT7q5IQq7PrJY4rBbrxZ-RczcUeVQEzzdPvhjhmPybaqxHKeXdPABryuxYGeCi0aAxo-VauQqm6WBVsQfE8RltByM_RTdsf17ZhV0wNxAOns_21m8KZvsHHKcqCz1tbMO_SKuF4pNX5TBkzaqwVWNNLw1Ng0_smmZUXrwDPJOi2ZWJBA355QfhEgf55nRBeBZPjGnipHyMDy_jqZ365zg_ryNtTN-Uojrt2dDV6Lda1GFfOB1QLVjNjNAR-u2D_-Reg9wUjRDnVXkuYVTdom5xQvRMBhUBxcoh2dQj2EqeKUf0w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/P_Z-75oWf7uZw4al0Oo3VGBSRloLeNxqLEWMz4JjY7-ew2la6OEFGVi1XuRfNghntiT4iHHA2-2LvbPE6EoSD1WctLk2hhRnrWwpN8_hjsoqd4OgjYUKKDCy76wP5aDgYeMdU1rm3SyvGwx3BQN0uxkqSVBTmXN305yIv5PyuQM9Ul1DQk_Y0QXmel8WbIenIlj3cYM9ePB48ROcYnUrNo4W2jMrnCq0phiVtVRIWIIc8mwWs7ayAmvqlEOtqCOz_OCX8Mf1zE_NX4-fORO1lxZl4aeaipyo4LO1nBSk9GeyBN_-racV5i9gOTi2uBetEdqSXlQHfhNlg4jK_Nos4A.jpg" width="400"><br>
 
 نگین کیانی، عکاس مستند اجتماعی و مدرس عکاسی، از سوی دادگاه انقلاب بابل به یک سال حبس محکوم شد.
 رسانه‌های حقوق بشری گزارش گزارش داده‌اند، شعبه اول دادگاه انقلاب بابل خانم کیانی را به اتهام «تبلیغ علیه نظام» به یک سال زندان محکوم کرده است. این حکم روز ششم تیرماه صادر و به او ابلاغ شده است.
@@ -228,7 +290,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 <img src="https://cdn4.telesco.pe/file/E0Nko0NfvX8dsGBb-PCL4rf3cFVnCKWRUtQUBQ2wmUXaxVYzIGn4E8x3nSegzIC5DA38izPQAGsBdiW4sNIsdv_Oeh6sJzgP_E_QXnYZuQAUyEAixXcMAxQ3Ukz0CCv2h16JwIFxVX4sto-bWbDx-sTCNn7obOwvxvr07TtnaSakARC7bIkthbIBX1DA5upaqlS5l4XBFR7tAJ77d1AGJEaGX_TRgSse71CggoQbY_nlij3FNKoFGztHSsCktCGk-vO2yeb7JNdQdoMRGC9YIhx90os5cZZhbKNNYm611HskHEcQc639INS3UjnOVOzUOUuzGxkSakvh6eGGAVBhBA.jpg" width="400"><br>
 
@@ -250,7 +312,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 14:40:45
+###### 🔵 Updated at: 2026-07-07 16:56:03
 
 <img src="https://cdn1.telesco.pe/file/kRqRFv57dNfn0sLpChOwGX9RtCfY44WR8unSCS1eqZtNXeDQTzc4MExefijBVQ39AFSo05Nue_FI-0WtP0shvIOBQOOeUIc2Mlh-I-cmZBaIKJGZskYvhATH5xrapJ0zYbUhZ7qDrZNg1kYYKc9yrn1AhNcQZZ3I_j9nEF9_mcNgy7ILQXxylcse0s6I3NHjEjGY-3Y3RuoRByCIHVQOwo19kBC9a4FdZwkmyBCbY-AZi7GRSGaSf0wMYXrb9Nonf6v20sXc56gYLW9VKocGUkvnF8h1ggxLAkXA70hgRvnVIkbXVTW5061vUjCLA0PyvbwQI3TL55D3nc9x0GDXdQ.jpg" width="400"><br>
 
@@ -258,44 +320,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76778)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 14:40:45
-
-
-
-[بنا بر تصاویر رسانه‌ها، مقام‌های مختلف در گروه‌های چند نفری در مقابل جعبه‌هایی که گفته می‌شود بقایای علی خامنه‌ای و تعدادی از اعضای خانواده‌اش در آن‌ها قرار دارند حاضر می‌شوند.]
-رهبر ترکمنستان، روسای جمهور عراق، تاجیکستان، گرجستان، نخست وزیران پاکستان، ارمنستان، روسای مجلس جمهوری آذربایجان، عمان، قطر، عراق، ازبکستان، قرقیزستان، بنگلادش، مصر، وزراری خارجه نیکاراگوئه و کنگو و معاون رئیس شورای امنیت روسیه، رئیس اقلیم کردستان عراق، به همراه هیئتی از طالبان افغانستان و شبه‌نظامیان مورد حمایت ایران در عراق، یمن و لبنان و همچنین دبیرکل جهاد اسلامی فلسطین در مراسم ادای احترام شرکت کردند.
-از نکات قابل توجه عدم حضور مقام بلندمرتبه‌ای از کشورهایی مانند چین، روسیه و ترکیه به عنوان حامیان جمهوری اسلامی ایران در این مراسم بود.
-تاکنون تصویری از اعضای خانواده علی خامنه‌ای به جز هادی خامنه‌ای، یکی از برادرانش، در این مراسم منتشر نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76777)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 14:40:45
-
-<img src="https://cdn1.telesco.pe/file/esUp9cKtq0azTLZS5dwuAuhhwbAp3NAVGDF6-XVuqN4hucrqTS3G_0OrK0HL6uU5fqQhtOLWWyKXwbjxO28iRQlFUuNRm3bB13lZ16A5O4GnAfxwVv67Lg8ITmQbI6ywD4CQ4ylisSEcXj4KEbHJivROd5lz6w0J6LdCOxKGldwjEjXPZ4t4Oioo1DgUjbqCtya_YvnMyt__jjAZb6ICyzV-1g-nDohOPzHKv7dtTc8eE1ueYBN4zdh-ke467yeDRBLGeQSVivdPZFCCRzH_OOOEaWvzOHTSLWrNCi70ocgRJjWpYgnTU8bUdJsPW0-_sEtxri9lztsF_7HwONj63A.jpg" width="400"><br>
-
-به گزارش سایت هرانا الهام زراعت‌پیشه، وکیل دادگستری، از سوی شعبه اول دادگاه انقلاب شیراز به شش سال حبس، دو سال ممنوعیت خروج از کشور و ابطال گذرنامه محکوم شده است.
-بر اساس این گزارش، شعبه اول دادگاه انقلاب شیراز الهام زراعت‌پیشه را به اتهام «اجتماع و تبانی علیه امنیت ملی» به پنج سال حبس و به اتهام «تبلیغ علیه نظام» به یک سال حبس محکوم کرده است.
-این دادگاه همچنین او را به مدت دو سال از خروج از کشور منع و گذرنامه‌اش را باطل کرده است.
-الهام زراعت‌پیشه ۱۴ اردیبهشت ۱۴۰۵ در محدوده دادسرای اجرای احکام شیراز بازداشت شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76776)
 
 ---
 
