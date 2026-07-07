@@ -3,7 +3,68 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
+
+<img src="https://cdn1.telesco.pe/file/F8FZKJX6_47O6zwHPWQ2G2YLBzsnuFvXvqAmswyHqX9I6vI_0w1cO0FMJqLblHphl1qGNCTvpXxNqdeX654NiaWDaVJCDiQQ-QwbTThKwxy89b3fDs9oMYRjeLiv6J-IBOYumniwLxk65I7t5dcR6cPjk0kYguhtLSfS_EYJ_G84k1bHjAtzdtxo3fd-zoXUGOcNZERJeRSA8_QvQ9I0rUhoRWxCeMKvvS1EWMKU9oCe7ZyIsE9x5R1NYeiNYRC0hV0xOCbCg-ZOms-dpA2pfm1vjCqPM37mlPqwiEr9JDAjHVjqTGIT39XV4v5_6GkW7ViPSyghIjeF4qXv_bOoJQ.jpg" width="400"><br>
+
+ایالات متحده روز سه‌شنبه ۱۶ تیر مجوز عمومی مربوط به فروش نفت، محصولات نفتی، و پتروشیمی رژیم ایران را لغو کرد، و اعلام کرد اقدامات تهران در تنگه هرمز «کاملاً غیرقابل قبول» است و با پیامد روبه‌رو خواهد شد.
+این تصمیم پس از آن اعلام شد که چند نفتکش در روزهای اخیر در نزدیکی این آبراه راهبردی هدف پرتابه قرار گرفتند. مقام‌های آمریکایی می‌گویند نشانه‌های اولیه حاکی از نقش رژیم ایران در این حملات است.
+هم‌زمان، واشنگتن تأکید کرده است مذاکرات برای دستیابی به توافق نهایی با تهران همچنان ادامه دارد.
+@
+VahidHeadline
+وزارت خزانه‌داری آمریکا مجوزی را که ۳۱ خرداد برای تولید، تحویل و فروش نفت خام، محصولات پتروشیمی و فرآورده‌های نفتی با منشا ایران صادر کرده بود، لغو و از روز سه‌شنبه مجوز عمومی جدیدی را جایگزین آن کرد.
+وزارت خزانه‌داری آمریکا اعلام کرد مجوز عمومی X به طور کامل لغو شده و مجوز عمومی X1 جایگزین آن شده است.
+بر اساس مجوز جدید، شرکت‌ها تا ۲۶ تیرماه فرصت دارند معاملات مجاز بر اساس معافیت ۳۱ خرداد را خاتمه دهند، اما
+از ۱۶ تیر خرید جدید یا بارگیری نفت خام، محصولات پتروشیمی و فرآورده‌های نفتی با منشا ایران ممنوع است.
+اوفک همچنین اعلام کرد هرگونه پرداخت به اشخاص یا نهادهای تحریم‌شده باید به حسابی مسدود و دارای سود در ایالات متحده واریز شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76808)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 23:47:31
+
+<img src="https://cdn4.telesco.pe/file/Ga2W_Nt1OD6B8m-2C5Q9C_03RITn4Kh84mZ6Bj4Ewdb5e9gUEmUs3wfx-Wr-Io9d6oU6LfJwgf63uJLh1_S9C4U-tRwGViynvFOT8UZS9yeuTpfQG31gF2di8_F4NvidbNfSEiDwh0uDIK4g8fug_JIaoUAC_7PtYcxqUs6i2CEieclMz6rnFr8yegHlKiguxW-bzlMSx8zlV6ccA4JI2CHadHbgQDsvRDHFumdAeto2ZnoPzxHE38Xq_jnZBGTdbjF4qJxNCFfaCNDkawk-mNYdT6L61935fDV7M572o5-rX_Z2Bkp3goooLvuaSAebPL14OfimTzq04Nx3k_5bUg.jpg" width="400"><br>
+
+دولت قطر اعلام کرده است که در پی هدف قرار گرفتن نفتکش قطری در هنگام عبور از نزدیکی تنگه هرمز، کاردار ایران را به وزارت خارجه احضار کرده است.
+در بیانیه وزارت خارجه قطر آمده است که این کشور حمله به کشتی خود را به‌شدت محکوم و آن را «نقض جدی ایمنی کشتیرانی بین‌المللی، تهدیدی مستقیم علیه امنیت عرضه جهانی انرژی و تخلف آشکار و صریح از قواعد حقوق بین‌الملل» می‌داند.
+اعتراض قطر به ایران در قالب یادداشت اعتراض رسمی به محسن محمد قانع، کاردار سفارت ایران در دوحه و در محل وزارت خارجه قطر به او تحویل داده شده است.
+وزارت خارجه قطر اعلام کرده که در این یادداشت از ایران خواسته است درباره این هدف‌گیری توضیحات فوری ارائه کند، اقدامات لازم برای جلوگیری از تکرار چنین حوادثی را بلافاصله انجام دهد و به‌طور کامل به قواعد مرتبط حقوق بین‌الملل پایبند باشد.
+قطر همچنین اعلام کرد که این کشور تمامی حقوق خود را برای اتخاذ هرگونه تدبیر مناسب، مطابق با حقوق بین‌الملل، به‌منظور حفاظت از منافع و توانمندی‌های خود محفوظ می‌داند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76807)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 23:47:31
+
+<img src="https://cdn4.telesco.pe/file/pTc7PTBk5DGCtWo2mOBE6NF0znaq0lRXjwF2PEBVmg-MLqHZ8orNSz7tyhdZQjUxmgssM7e12NmjnQJR2MTCChmC-b0qAwnjCA0CPm7B-Q2j8oKMvkj8j0rXv0jibOY81g7ldDuDLyVZgLn1rhPoTHR3aG5ByTAt9za9JiebfucZaCspzTiYF7hgmAvRx2jnvmxoazGXn2AyArfsK-yEFJaqM84gdRmi87ySddS0FsP7RMOo1TK01cUXBty7aJFww980q013K_tO9iMSC-GZGPa29pQcw4m3cNaG1jL-iXvmd6LkeeMDCBkEbYnDxYg5vhgAxrPHGmKW4RY0E9sNyw.jpg" width="400"><br>
+
+حمید رسایی، نماینده مجلس جمهوری اسلامی، در شبکه اجتماعی «ویراستی» نوشت: حالا که دونالد ترامپ در تیررس ماست و برای اجلاس ناتو به ترکیه آمده است، رسما و بدون تعارف، محل استقرار او را در ترکیه با موشک هدف بگیریم.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76806)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn4.telesco.pe/file/oP6G5SD-zxAY6y0btqKsS-x8lMgxq0jix3Lv-VywtFii7AeXvjkRf8pZuOM3D_AcTn_zDCo99UWpIfZwdj1N4XcTHW0Kgam8cx0ehdcrIck0bi8lvYCydH2QqR_6Am214G51hdSQVpngU0vwVc8nT6mcYegL4-F2XeuTG1DDf82NeOBnbtg5E9z7ZUC1X3qoHDS8xQ8Jg1VsYIl4iiFexBeJi3iK_ac_KVKmnIq142Qo0gFbRcKqUWGPSVSiOUeZhFpUZNgcW6Tcq5mt7E492T3k1ZMmI05n_Oxe7qNRfo_irhpvbnpRVimf5Y8LC8raqML_tUsO-4V-SuFBEwO6Yw.jpg" width="400"><br>
 
@@ -22,7 +83,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn1.telesco.pe/file/lHH_LFvhuX52GYn3bbM0E-7gd05DtjF-A4fF9DI6UtrCR9OwdpSJ98V4n6LBC2lnI_RozbwCj1UakXs2vjPZfzW1DA0i68yslmlj8Lh3bgdaJkVpjWKy-laHNVAxp1pmgtAw8-D0CnBbdtfHUudh3WckyQf21Ir1nkQZEx63hSTCZAM_H-rVMdRanxQ6HU1OoEw08cpJC3CaInJV6GEez2OAr3nZSfRuJPMwNHoxgcN5nGSHQFmefimCrvyqzvOV_9ozzz-u9CLXiRP9Q8a5Fj87KU9tEKIDN92K0YVEuHP42sNz2MoEoEoDSQrMjXsLJKiaXXDDXcll5LrDvyeiLw.jpg" width="400"><br>
 
@@ -40,7 +101,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn1.telesco.pe/file/RYTUZqYHmmqPeZQzT4Ggu2OK-9-z54pMB2Se_WjFEye_qyNLlSeS3XkpJf0R_SZNxkRiAxF-fmX5b2iC5IB2PkGal7bzXU6Zd8EDWU8_PzYWGiPwwFx5RU_ylMuTy3fM5k8I73TSv8b2A6uE9Itu0qxU4hJ1L42XWaQwJwSS3J3xwErXU_HVAUsuY3lbcNUXR_3M1aPTk3GayZhZ_L0jVqrOm_YI09rpmfyzY2MiuI_0jwddTdIYt8rXDN7mx_3f5xezScCsIz3Kv0S-D1QOiQPMrJcrbjI9dzlVrsje1GG9dMnEiLlMu_tkPEd3GlLYBqj6fcm7UcvQDUjsfXdxig.jpg" width="400"><br>
 
@@ -68,7 +129,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 
 
@@ -85,7 +146,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn4.telesco.pe/file/KX_E1IEFKXhhIw-2JMXRRBMTuUwUUa12lH5bseBvJD2YffUrr1bzyXhcr5ZBTr-uHLE_P6T1H8xEutcqmBFVKnvohe3_le_DVk64rtOB1bvP5qMNUD65LB2MVs7gK34OL4PEqZ5luY3ZSR6TjdMirHB2U3jVnhCPH5FPot3qcD_NXqg_T5TnDZ_I2_Wk6qJVxVqn5wF2v5MHwJBpg5i9hyXSYHf-NGTMvtg40PZ9mIax8--9vqSFL0xEz-98ebg7ITD_tDppCsEFGzAdyxfjFKs1rNrzKTP8v0hrPgKjfp_9Tfar36SHnab2-aMz6Jy-gnynFiC0ETP7e2layOGIEw.jpg" width="400"><br>
 
@@ -106,7 +167,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 
 
@@ -123,7 +184,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn4.telesco.pe/file/oZ36Wri3HuxdMnRdRrnKim5KHPBlKWE9bd0jbXeAN7nvoeJB6Eh00OEZFDxwxwB3DIQR700aK4Gee5c8DVpkPP125JBVxT6bpvBKMd0CDiDHq6AgQ_nj_JWNbA432HVCj7wxktjsxM06_1cKtFa928FtnrYBY3w3JqaQia7VyleNNovHpX9EIrCO3jdWi0QaWYV6vG4KiZHER_Z937S3sHlFyv9IKaaBVpSAwA_i7XDm7xJKK3MrinzsZzRcbWXFMD5dZWGFip4rFBWdq9bRyS6o_zvj99VfDM252Xr4CJEOEB25RSqBSgzYzE6_engc-cy2cZ-eDp2MRKiLzlgLbw.jpg" width="400"><br>
 
@@ -143,7 +204,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn1.telesco.pe/file/mTsVUP1Ig3rq5ZJ2mOWxpFHWL8uZ2lvjAHcnFlMNb0PM0ZY-_BVoa55fo1S1RXcGZ1_hDAgGsezBIKey_U798UaaIEYhYIIHf4bRuwi9ehgcpfPOcDtItmZt6yji-_OcVW5H8YslpGOKy2Haoi04ER-q-jtt-FmI6L_frnKnBCi7a5_J1stuKmtfcQdOlRSDa3N5EkOQ8Q-1Cy2cZ1Bjy9LtDdonf6lRO7L-k6It8L4XplTbu8Mo2da30Qp4nQj9DkCKnuyb2tmd7Oh8HASQXjyeCrhuJXJV09-X6ll1E20BEcTZJfWxcWZjD7zAOH0tx2RFaUDJbc8TF3sM3I3Dcw.jpg" width="400"><br>
 
@@ -168,7 +229,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn4.telesco.pe/file/WVokYKzJK7O2S3s4esaNUH299xRxICnHptJGsmSTaylyeTc9QoAn3srkpB-mbBocNs20jbvR2E1hCeVRvLihbZlGfn8JS4thZkjDMNx2XK9uvdy6MCB-SweBgx-_SUjgRP2hLZwwi6gs0X9P02zBfYZxV0bhIa2m8C5ryx0BMTxf_ibtJmYpZmOfWVfER1XOzQVmfP899PE-gKE39mZZP0Sd0ZM-aAmfOUzVII_DjULvOsnDM8g_MN0fZDAsOERRL4IHHKQxc1HZqiJ3_KIhhvtUwzfvPcLM2YXTHqNmXRuBnymxPMeHV1vO8EWFppNJrnF5YtiUej2oR0H0i6x4fw.jpg" width="400"><br>
 
@@ -186,7 +247,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 
 
@@ -210,7 +271,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 
 
@@ -236,7 +297,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn1.telesco.pe/file/vN2Rp9vsRwmf5ug9l50hUSp-C5VkJmivOG3tYQDo39jReCj7PjANLugc1TsDX01dxVYeVboYK6dyBEWQtf-7MkzwCY8k0I_28tRkbhsZkEpcCmLMEJvLbX7oXnRhBFKM5-2yCPSSK0CaiTrxePlJNgpNRqXzMRH0gOzZZ-GXXBRJPKkY59D1ohs5x0tgGDcvI26XhwHQpPLyrzGvzoX-zCu9xeb6Tt36nelI_rF5gwfTy_f7laRQows2rR_fRvyPebqxGPvD3hG0OXCaOC0UmR8RkJ_lojtgxJ0CSJqPUAuBrlS9g6MwXJJTL_0EEJ2IsZN1r8R6FOdPwd_teDjdow.jpg" width="400"><br>
 
@@ -256,7 +317,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn4.telesco.pe/file/e8v9nGCz5DrFy8puCzb1MgP7tAYWRdtogm7DLZBSelejV5f-2j95INeLpGqJeSWt9pnTD2IVmo53HEWhbQKNUJvg-iyP2-b397FgeyUyzqUQX-zkF2mpS0fDpD3EJE7xNbkEtZqw5BdrBXPqIHW5jbt93UQyWsec3bOnyFQQEF6cwsibKcTrNFHwquOnUG5Fq9sJCtQoELn3ZDbKDckf2GB0-lasfzAzBd4ol11plp1ipPm7ZkPD1sJsBPHj16gySyWNEJWQ6LGRIfrIXx95Rl0_Qddd5IMeNk6GFTlfMW9EEU1j2MmEmbni_L-_zlMrfkxe83Oh672UyDOZqUzwmA.jpg" width="400"><br>
 
@@ -270,7 +331,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn1.telesco.pe/file/neM0GnIlkPe8k5yz94bUTm8fnmWQDyBRL_7t_WjjF3hCykD6dxvqFFak40rlNK118kghUb892wMsJEthvpGjdzraHvNP0y5oSHbLMDArQleFkWnSNuZWZjrBffawwGChCHJVAHOryJcGl5Pz6xFUsGiEVCnl7XzTEZZvRfgVusaMMdHnrPkYT7UwVwBxUj2H-VpE-_3UlKkg1SjjviEehpskYmIcujdyg69sCgrA8kqj-MRT11hY_htYF9XzAkCE8sONUt3Uy6ATZ-KVkIm6SKwdkmi-Bev6P9WO4GhWg4XHhalwLvRYQ9jrgRROUcdJ_7MbXmnyGVyFaoFmKA1_3A.jpg" width="400"><br>
 
@@ -287,7 +348,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 21:44:40
+###### 🔵 Updated at: 2026-07-07 23:47:31
 
 <img src="https://cdn1.telesco.pe/file/RbMuGQ74ZyLE1sYCDZcxrhrFeeQWAWXzv6T1j9CKDd833hWX5VW8vuyerEHot8bEw_FaJrI7OCEnj0hb4tp22uYzKXcczJN6Br05nLs722bsWft3DMV1NdJ5gOOl3F-7BfSyZ1nFN8h5-kJEGS5IGSnN0nS3RIsbPT7bsTQi47BwV8r0njVW9EdTeramtUKrqMmGzVp_LF5Ef3TzdjRD3hLF8n0Ym65i8oPwrt419DlJQ-xgenV18Dug-RPHvhiqr2Vcv_aR-LJ353IuC2i52Wct2hshIIPkEnHhVKqi-5T4BKOJn38klw06WQji-p_lehVWL6KeZ3rOwEBmjLjFug.jpg" width="400"><br>
 
@@ -302,37 +363,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76788)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 21:44:40
-
-<img src="https://cdn4.telesco.pe/file/NO66YeFGAIzC5UkZGi8BNwTyUqA5U-CF4E4FU-2XP-tiakGo7XvOfxCXEQcokxflXWPgBTMqlIc4fBrYYtTnjGZ8ajYT5LF1Rgfpz99quc6r5_XGpuT5r7Lk-Qsp3_unGNskUOooWezsDyjq22151vTVJZ3LUMs1RAS2BxqYZgg1z5-99ohlE7abZNKpY5yb7aD4ESxN0eltMaNbyn74OyKVLX2grhqyZeHw9EXut2iOhCrFqqXX_4bd2iS8eW1KIMzHU4JL-Jp20xpJQgityA3mTQQziEfVZxiOJ0b6SpGB2o3VKjqCesKlpTWWH-gR_IwyqsQ3YOdDZP8oNdC3kA.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا روز شنبه ۱۳ تیر، در گفتگو با وبسایت خبری آکسیوس، اشاره کرد که تصاویر مربوط به مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی را مشاهده کرده و از دیدن گریه افراد، متعجب شده است. او گفت:
-از دیدن برخی ایرانیان که در مراسم تشییع گریه می‌کردند متعجب شدم چون گمان می‌کردم مردم از او متنفرند. شاید این اشک‌ها ساختگی باشد.
-ترامپ پیش‌تر اعلام کرده بود که مذاکرات جاری میان تهران و واشنگتن، به‌دلیل برگزاری این مراسم یک هفته متوقف شده است. او در بخش دیگری از این گفتگو با اشاره به حضور اغلب چهره‌های سیاسی و نظامی جمهوری اسلامی در این مراسم گفت:
-آن‌ها همه آن‌جا جمع شده‌اند. کار یک شلیک است! اما این کار را نمی‌کنم چون در آن صورت کسی برای مذاکره باقی نمی‌ماند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76787)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 21:44:40
-
-
-
-این مجله ۹ ماه قبل از سرنگونی حکومت صدام‌حسین در عراق و سپس اعدام او نیز عکس صدام حسین را روی جلد برده بود. معمر قذافی نیز از دیگر رهبران منطقه بود که ۶ ماه قبل از کشته شدن به دست معترضان، عکس او روی جلد تایم رفت.
-
-[View Post](https://t.me/VahidOnline/76786)
 
 ---
 
