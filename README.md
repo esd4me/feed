@@ -3,13 +3,108 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
+
+<img src="https://cdn1.telesco.pe/file/sho7ptQ-4aUbCrZcYk7Di0bkyat1uZ7aDzlQt5JT5BBSGIXbXQ-0cAhMBsIjAsCPHaSzL0wnKXGg3kpQZu6e8n1o4wBH_Hzsii7pnBrnPiBVVnE4UX-ItEIuoSPJjt69YRbbSgHK3D0aFjcSCpgxxuTSIhjxSZHqSJYny234yTO1g4Fix27Ae9TsgvLcXaE8IQiKaKGHJOO3RF0CTFoVf22GFWAL9I7XYQfVQNgGNytQHiGbSHKvaczRgxwTl-_M1BADM-V1cFqs0D1kCnYP-q21qBj911wkT7DZJGJRPATrkz_BKH2-b9gf_uMgNIIt8BwBpO1XUTVmbjKcgVLhvw.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+نیروهای فرماندهی مرکزی ایالات متحده آغاز به اجرای سلسله‌ای از حملات قدرتمند علیه ایران کرده‌اند تا به‌خاطر هدف قرار دادن و حمله به کشتی‌های تجاری با خدمه‌ای از غیرنظامیان بی‌گناه در یک آبراه بین‌المللی، هزینه‌های سنگینی تحمیل کنند. حملات آمریکا در پاسخ به حملات ایران به سه کشتی تجاری است که در حال عبور از تنگه هرمز بودند. تجاوز آشکار ایران بی‌دلیل، خطرناک و نقض روشن آتش‌بس بود.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76810)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 01:15:06
+
+
+
+پیام‌های دریافتی تاییدنشده:
+سیریک، صدای چندین انفجار پیاپی.
+جزیره هنگام الان صدای چندتا انفجار بزرگ اومد تعدادش ۱۰ تا بیشتر بود
+صدای انفجار درگهان (جزیره قشم) میاد ولی صداش کمه انگار دوره به اینجا
+سلام وحید جان بندرعباس صدای انفجار
+قشم صدای چندین انفجار اومد
+نفهمیدیم از کجاست
+قبلش صدایی شبیه صدای هواپیما میومد
+صدای دو انفجار ۱۲:۳۵ بندرعباس
+سلام وحید جان
+ساعت ۰۰:۳۲
+ما روستای سوزا تو قشم هستیم
+اول صدای جنگنده اومد
+و بعدم صدای ۵-۶ تا انفجار اومد.
+سلام ساعت 12:35 بندرعباس صدای انفجار اومد 4 تا.
+سلام کشتی سازی بندرعباس خیلی صدا وحشتناک اومد
+سلام بندرعباس ۴ تا صدای انفجار تا الان
+آپدیت:
+صدا و سیما:
+شنیده شدن ۶ انفجار در روستایی حوالی شهرستان قشم
+دقایقی پیش صدای ۷ انفجار در محدوده روستای طاهرویی شهرستان سیریک شنیده شد.
+فارس:
+دقایقی پیش مردم در حوالی سیریک و قشم صدای چند انفجار شنیدند.
+هنوز محل دقیق و منشأ این انفجارها مشخص نیست.
+🔄
+آپدیت:
+بندرعباس ۴ تا انفجار دیگه
+دوباره ۴تا تا الان
+شد ۸ تا ۹ تا ۱۰ تا
+من مرکز شهرم خیلی بده
+سلام وحید جان
+ساعت 12.30 صدای 5 انفجار شدید ذوالفقار قشم شیب‌دراز  نزدیک جزیره هنگام
+سمت پایگاه هوایی بندرعباس انفجار شدید همین الان
+وحید جان سلام همین الان ساعت ۱۲:۴۷ بندرعباس چندین صدای انفجار پشت سر هم اومد لرزید
+الان بندر عباس سه چهارتا انفجار بزرگ
+درود بندرعباس ۱۲:۴۵ چندین انفجار پشت سر هم
+همین الان کلی صدای انفجار اومد بندرعباس 00:48
+سلام خوبی، همین الان بندرعباس صدای ۳ تا انفجار قوی اومد ساعت ۰:۴۵
+بندرعباس چندین‌تا صدای انفجار پشت سر هم اومد
+00/48 قشم پنج شش تا انفجار قوی
+00.48 بندرعباس چند صدای انفجار پیاپی
+🔄
+صدای انفجار پشت سرهم بندرعباس 12:50
+هنوز ادامه داره
+یک سر دارن میزنن ۰۰:۵۰
+مجموعا بالای ۱۵ انفجار
+۰۰:۵۰ صدای ۹ انفجار دیگه هم با صدای شدید از سمت پایگاه هوایی داره میاد
+بندرعباس ساعت.همین الان چند تا صدای انفجار پشت سرهم اومد۴۸دقیقه بامداد چهارشنبه۱۷تیر
+سلام همین الان صدای انفجار پیاپی و نور نارنجی بندرعباس
+بندرعباس رو همچنان دارن میزنن
+👀
+صدای انفجار و پدافند پی در پی بندرعباس همچنان ادامه داره
+همین الان بندرعباس
+صدای انفجارهای شدید، پنج تا شش انفجار
+کشتی سازی بندرعباس، اطراف بستانو رو زدن
+سلام صدای انفجار بندرعباس بیشتر سمت اسکله ساعت۱۲:۵۰چهار صدا سمت شرق اینجا صدا نمیاد سمت غرب بندر اینجا صدا میادسمت اسکله
+🔄
+ساعت 12:57 انفجار دوباره بندرعباس
+بندرعباس ۱۲:۵۸ همین الان صدای خیلیییییی شدیدی اومد
+خیلی تو شهر بود انگار
+اقا وحید بندرعباس یجوری زد شهر لرزید
+پیا پی اسکله باهنر داره میزنه پشت سر هم صدا میاد
+ساعت 57 : 0 صدای شدید انفجار در بندرعباس
+00:58 دو تا سنگین تر زدن
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76809)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/F8FZKJX6_47O6zwHPWQ2G2YLBzsnuFvXvqAmswyHqX9I6vI_0w1cO0FMJqLblHphl1qGNCTvpXxNqdeX654NiaWDaVJCDiQQ-QwbTThKwxy89b3fDs9oMYRjeLiv6J-IBOYumniwLxk65I7t5dcR6cPjk0kYguhtLSfS_EYJ_G84k1bHjAtzdtxo3fd-zoXUGOcNZERJeRSA8_QvQ9I0rUhoRWxCeMKvvS1EWMKU9oCe7ZyIsE9x5R1NYeiNYRC0hV0xOCbCg-ZOms-dpA2pfm1vjCqPM37mlPqwiEr9JDAjHVjqTGIT39XV4v5_6GkW7ViPSyghIjeF4qXv_bOoJQ.jpg" width="400"><br>
 
-ایالات متحده روز سه‌شنبه ۱۶ تیر مجوز عمومی مربوط به فروش نفت، محصولات نفتی، و پتروشیمی رژیم ایران را لغو کرد، و اعلام کرد اقدامات تهران در تنگه هرمز «کاملاً غیرقابل قبول» است و با پیامد روبه‌رو خواهد شد.
-این تصمیم پس از آن اعلام شد که چند نفتکش در روزهای اخیر در نزدیکی این آبراه راهبردی هدف پرتابه قرار گرفتند. مقام‌های آمریکایی می‌گویند نشانه‌های اولیه حاکی از نقش رژیم ایران در این حملات است.
-هم‌زمان، واشنگتن تأکید کرده است مذاکرات برای دستیابی به توافق نهایی با تهران همچنان ادامه دارد.
+آمریکا معافیتی را که به‌طور موقت تحریم‌های نفتی علیه ایران را تعلیق کرده بود، لغو کرد و اقدامات جمهوری اسلامی ایران در تنگه هرمز را «کاملاً غیرقابل قبول» خواند.
+یک مقام آمریکایی به خبرگزاری فرانسه گفت: «اقدامات ایران در تنگه هرمز برای ایالات متحده کاملا غیرقابل قبول بود و با عواقبی روبه‌رو خواهد شد.»
+این مقام آمریکایی گفت تفاهم‌نامه واشنگتن و تهران «کاملا مبتنی بر عملکرد طرف‌ها است» و هشدار داد که ایران تنها در صورتی از مزایا برخوردار خواهد شد که «رفتار مناسبی» نشان دهد.
+مجوز معافیت از تحریم‌ها که حدود سه هفته پیش اعلام شده بود، در ابتدا به جمهوری اسلامی ایران اجازه می‌داد به مدت دو ماه نفت خام و محصولات نفتی و پتروشیمی را صادر کند، تحویل مشتریان دهد و درآمد حاصل از آن را به صورت ارزی از راه بانک مرکزی وارد ایران کند.
+اقدام آمریکا پس از آن صورت گرفت که بنا بر اعلام ناظران دریایی و دولت قطر و عربستان، در فاصله چند ساعت سه نفتکش، از جمله یک کشتی حمل گاز طبیعی مایع (ال‌ان‌جی) متعلق به قطر، در تنگه هرمز هدف حمله قرار گرفتند.
 @
 VahidHeadline
 وزارت خزانه‌داری آمریکا مجوزی را که ۳۱ خرداد برای تولید، تحویل و فروش نفت خام، محصولات پتروشیمی و فرآورده‌های نفتی با منشا ایران صادر کرده بود، لغو و از روز سه‌شنبه مجوز عمومی جدیدی را جایگزین آن کرد.
@@ -28,7 +123,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn4.telesco.pe/file/Ga2W_Nt1OD6B8m-2C5Q9C_03RITn4Kh84mZ6Bj4Ewdb5e9gUEmUs3wfx-Wr-Io9d6oU6LfJwgf63uJLh1_S9C4U-tRwGViynvFOT8UZS9yeuTpfQG31gF2di8_F4NvidbNfSEiDwh0uDIK4g8fug_JIaoUAC_7PtYcxqUs6i2CEieclMz6rnFr8yegHlKiguxW-bzlMSx8zlV6ccA4JI2CHadHbgQDsvRDHFumdAeto2ZnoPzxHE38Xq_jnZBGTdbjF4qJxNCFfaCNDkawk-mNYdT6L61935fDV7M572o5-rX_Z2Bkp3goooLvuaSAebPL14OfimTzq04Nx3k_5bUg.jpg" width="400"><br>
 
@@ -48,7 +143,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn4.telesco.pe/file/pTc7PTBk5DGCtWo2mOBE6NF0znaq0lRXjwF2PEBVmg-MLqHZ8orNSz7tyhdZQjUxmgssM7e12NmjnQJR2MTCChmC-b0qAwnjCA0CPm7B-Q2j8oKMvkj8j0rXv0jibOY81g7ldDuDLyVZgLn1rhPoTHR3aG5ByTAt9za9JiebfucZaCspzTiYF7hgmAvRx2jnvmxoazGXn2AyArfsK-yEFJaqM84gdRmi87ySddS0FsP7RMOo1TK01cUXBty7aJFww980q013K_tO9iMSC-GZGPa29pQcw4m3cNaG1jL-iXvmd6LkeeMDCBkEbYnDxYg5vhgAxrPHGmKW4RY0E9sNyw.jpg" width="400"><br>
 
@@ -64,7 +159,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn4.telesco.pe/file/oP6G5SD-zxAY6y0btqKsS-x8lMgxq0jix3Lv-VywtFii7AeXvjkRf8pZuOM3D_AcTn_zDCo99UWpIfZwdj1N4XcTHW0Kgam8cx0ehdcrIck0bi8lvYCydH2QqR_6Am214G51hdSQVpngU0vwVc8nT6mcYegL4-F2XeuTG1DDf82NeOBnbtg5E9z7ZUC1X3qoHDS8xQ8Jg1VsYIl4iiFexBeJi3iK_ac_KVKmnIq142Qo0gFbRcKqUWGPSVSiOUeZhFpUZNgcW6Tcq5mt7E492T3k1ZMmI05n_Oxe7qNRfo_irhpvbnpRVimf5Y8LC8raqML_tUsO-4V-SuFBEwO6Yw.jpg" width="400"><br>
 
@@ -83,7 +178,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/lHH_LFvhuX52GYn3bbM0E-7gd05DtjF-A4fF9DI6UtrCR9OwdpSJ98V4n6LBC2lnI_RozbwCj1UakXs2vjPZfzW1DA0i68yslmlj8Lh3bgdaJkVpjWKy-laHNVAxp1pmgtAw8-D0CnBbdtfHUudh3WckyQf21Ir1nkQZEx63hSTCZAM_H-rVMdRanxQ6HU1OoEw08cpJC3CaInJV6GEez2OAr3nZSfRuJPMwNHoxgcN5nGSHQFmefimCrvyqzvOV_9ozzz-u9CLXiRP9Q8a5Fj87KU9tEKIDN92K0YVEuHP42sNz2MoEoEoDSQrMjXsLJKiaXXDDXcll5LrDvyeiLw.jpg" width="400"><br>
 
@@ -101,7 +196,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/RYTUZqYHmmqPeZQzT4Ggu2OK-9-z54pMB2Se_WjFEye_qyNLlSeS3XkpJf0R_SZNxkRiAxF-fmX5b2iC5IB2PkGal7bzXU6Zd8EDWU8_PzYWGiPwwFx5RU_ylMuTy3fM5k8I73TSv8b2A6uE9Itu0qxU4hJ1L42XWaQwJwSS3J3xwErXU_HVAUsuY3lbcNUXR_3M1aPTk3GayZhZ_L0jVqrOm_YI09rpmfyzY2MiuI_0jwddTdIYt8rXDN7mx_3f5xezScCsIz3Kv0S-D1QOiQPMrJcrbjI9dzlVrsje1GG9dMnEiLlMu_tkPEd3GlLYBqj6fcm7UcvQDUjsfXdxig.jpg" width="400"><br>
 
@@ -129,7 +224,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 
 
@@ -146,7 +241,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn4.telesco.pe/file/KX_E1IEFKXhhIw-2JMXRRBMTuUwUUa12lH5bseBvJD2YffUrr1bzyXhcr5ZBTr-uHLE_P6T1H8xEutcqmBFVKnvohe3_le_DVk64rtOB1bvP5qMNUD65LB2MVs7gK34OL4PEqZ5luY3ZSR6TjdMirHB2U3jVnhCPH5FPot3qcD_NXqg_T5TnDZ_I2_Wk6qJVxVqn5wF2v5MHwJBpg5i9hyXSYHf-NGTMvtg40PZ9mIax8--9vqSFL0xEz-98ebg7ITD_tDppCsEFGzAdyxfjFKs1rNrzKTP8v0hrPgKjfp_9Tfar36SHnab2-aMz6Jy-gnynFiC0ETP7e2layOGIEw.jpg" width="400"><br>
 
@@ -167,7 +262,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 
 
@@ -184,7 +279,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn4.telesco.pe/file/oZ36Wri3HuxdMnRdRrnKim5KHPBlKWE9bd0jbXeAN7nvoeJB6Eh00OEZFDxwxwB3DIQR700aK4Gee5c8DVpkPP125JBVxT6bpvBKMd0CDiDHq6AgQ_nj_JWNbA432HVCj7wxktjsxM06_1cKtFa928FtnrYBY3w3JqaQia7VyleNNovHpX9EIrCO3jdWi0QaWYV6vG4KiZHER_Z937S3sHlFyv9IKaaBVpSAwA_i7XDm7xJKK3MrinzsZzRcbWXFMD5dZWGFip4rFBWdq9bRyS6o_zvj99VfDM252Xr4CJEOEB25RSqBSgzYzE6_engc-cy2cZ-eDp2MRKiLzlgLbw.jpg" width="400"><br>
 
@@ -204,7 +299,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/mTsVUP1Ig3rq5ZJ2mOWxpFHWL8uZ2lvjAHcnFlMNb0PM0ZY-_BVoa55fo1S1RXcGZ1_hDAgGsezBIKey_U798UaaIEYhYIIHf4bRuwi9ehgcpfPOcDtItmZt6yji-_OcVW5H8YslpGOKy2Haoi04ER-q-jtt-FmI6L_frnKnBCi7a5_J1stuKmtfcQdOlRSDa3N5EkOQ8Q-1Cy2cZ1Bjy9LtDdonf6lRO7L-k6It8L4XplTbu8Mo2da30Qp4nQj9DkCKnuyb2tmd7Oh8HASQXjyeCrhuJXJV09-X6ll1E20BEcTZJfWxcWZjD7zAOH0tx2RFaUDJbc8TF3sM3I3Dcw.jpg" width="400"><br>
 
@@ -229,7 +324,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn4.telesco.pe/file/WVokYKzJK7O2S3s4esaNUH299xRxICnHptJGsmSTaylyeTc9QoAn3srkpB-mbBocNs20jbvR2E1hCeVRvLihbZlGfn8JS4thZkjDMNx2XK9uvdy6MCB-SweBgx-_SUjgRP2hLZwwi6gs0X9P02zBfYZxV0bhIa2m8C5ryx0BMTxf_ibtJmYpZmOfWVfER1XOzQVmfP899PE-gKE39mZZP0Sd0ZM-aAmfOUzVII_DjULvOsnDM8g_MN0fZDAsOERRL4IHHKQxc1HZqiJ3_KIhhvtUwzfvPcLM2YXTHqNmXRuBnymxPMeHV1vO8EWFppNJrnF5YtiUej2oR0H0i6x4fw.jpg" width="400"><br>
 
@@ -247,7 +342,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 
 
@@ -271,7 +366,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 
 
@@ -297,7 +392,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn1.telesco.pe/file/vN2Rp9vsRwmf5ug9l50hUSp-C5VkJmivOG3tYQDo39jReCj7PjANLugc1TsDX01dxVYeVboYK6dyBEWQtf-7MkzwCY8k0I_28tRkbhsZkEpcCmLMEJvLbX7oXnRhBFKM5-2yCPSSK0CaiTrxePlJNgpNRqXzMRH0gOzZZ-GXXBRJPKkY59D1ohs5x0tgGDcvI26XhwHQpPLyrzGvzoX-zCu9xeb6Tt36nelI_rF5gwfTy_f7laRQows2rR_fRvyPebqxGPvD3hG0OXCaOC0UmR8RkJ_lojtgxJ0CSJqPUAuBrlS9g6MwXJJTL_0EEJ2IsZN1r8R6FOdPwd_teDjdow.jpg" width="400"><br>
 
@@ -317,7 +412,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 23:47:31
+###### 🔵 Updated at: 2026-07-08 01:15:06
 
 <img src="https://cdn4.telesco.pe/file/e8v9nGCz5DrFy8puCzb1MgP7tAYWRdtogm7DLZBSelejV5f-2j95INeLpGqJeSWt9pnTD2IVmo53HEWhbQKNUJvg-iyP2-b397FgeyUyzqUQX-zkF2mpS0fDpD3EJE7xNbkEtZqw5BdrBXPqIHW5jbt93UQyWsec3bOnyFQQEF6cwsibKcTrNFHwquOnUG5Fq9sJCtQoELn3ZDbKDckf2GB0-lasfzAzBd4ol11plp1ipPm7ZkPD1sJsBPHj16gySyWNEJWQ6LGRIfrIXx95Rl0_Qddd5IMeNk6GFTlfMW9EEU1j2MmEmbni_L-_zlMrfkxe83Oh672UyDOZqUzwmA.jpg" width="400"><br>
 
@@ -326,43 +421,6 @@ VahidHeadline
 @IranRights
 
 [View Post](https://t.me/VahidOnline/76791)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 23:47:31
-
-<img src="https://cdn1.telesco.pe/file/neM0GnIlkPe8k5yz94bUTm8fnmWQDyBRL_7t_WjjF3hCykD6dxvqFFak40rlNK118kghUb892wMsJEthvpGjdzraHvNP0y5oSHbLMDArQleFkWnSNuZWZjrBffawwGChCHJVAHOryJcGl5Pz6xFUsGiEVCnl7XzTEZZvRfgVusaMMdHnrPkYT7UwVwBxUj2H-VpE-_3UlKkg1SjjviEehpskYmIcujdyg69sCgrA8kqj-MRT11hY_htYF9XzAkCE8sONUt3Uy6ATZ-KVkIm6SKwdkmi-Bev6P9WO4GhWg4XHhalwLvRYQ9jrgRROUcdJ_7MbXmnyGVyFaoFmKA1_3A.jpg" width="400"><br>
-
-قوه قضائیه روز یکشنبه ۱۴ تیر متن حکمی را منتشر کرد که در آن مجتبی خامنه‌ای، رهبر جمهوری اسلامی، غلامحسین محسنی اژه‌ای را برای یک دوره جدید پنج ساله به عنوان رئیس قوه قضائیه ابقا کرده است.
-محسنی اژه‌ای از دهم تیر سال ۱۴۰۰ با حکم علی خامنه‌ای به این سمت منصوب شده بود و مدت پنج سال ریاست او بر قوه قضائیه به پایان رسیده بود. حکم رهبر جدید جمهوری اسلامی با امضا در تاریخ ۱۳ تیر منتشر شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76790)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 23:47:31
-
-<img src="https://cdn1.telesco.pe/file/RbMuGQ74ZyLE1sYCDZcxrhrFeeQWAWXzv6T1j9CKDd833hWX5VW8vuyerEHot8bEw_FaJrI7OCEnj0hb4tp22uYzKXcczJN6Br05nLs722bsWft3DMV1NdJ5gOOl3F-7BfSyZ1nFN8h5-kJEGS5IGSnN0nS3RIsbPT7bsTQi47BwV8r0njVW9EdTeramtUKrqMmGzVp_LF5Ef3TzdjRD3hLF8n0Ym65i8oPwrt419DlJQ-xgenV18Dug-RPHvhiqr2Vcv_aR-LJ353IuC2i52Wct2hshIIPkEnHhVKqi-5T4BKOJn38klw06WQji-p_lehVWL6KeZ3rOwEBmjLjFug.jpg" width="400"><br>
-
-نماز میت بر جنازه علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، روز یک‌شنبه، ۱۴ تیر رأس ساعت هشت صبح، توسط "آیت‌الله جعفر سبحانی" اقامه شد.
-مراسم تشییع او بیش از چهار ماه پس از مرگش در حال برگزاری است.
-اما نکته قابل توجه در این مراسم غیبت مجتبی خامنه‌ای است که از او به عنوان آیت‌الله یاد می‌شود و کمتر از ده روز پس از مرگ پدرش به عنوان رهبر تازه جمهوری اسلامی معرفی شد، اما در این مراسم حضور ندارد تا نماز میت را برای پدرش اقامه کند.
-در این مدت طولانی از مجتبی خامنه‌ای نه فایلی صوتی منتشر شده و نه ویدئویی که نشان دهد او توانایی رهبری حکومت را دارد.
-با این حال سه پسر دیگر علی خامنه‌ای، مصطفی و مسعود و میثم، که از روز ۹ اسفندماه سال گذشته یعنی آغاز جنگ تاکنون خبری از آنها نبود روز یک‌شنبه بر سر تابوت پدر خود حاضر شدند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76788)
 
 ---
 
