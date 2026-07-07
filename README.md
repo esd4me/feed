@@ -3,14 +3,80 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
+
+<img src="https://cdn1.telesco.pe/file/RYTUZqYHmmqPeZQzT4Ggu2OK-9-z54pMB2Se_WjFEye_qyNLlSeS3XkpJf0R_SZNxkRiAxF-fmX5b2iC5IB2PkGal7bzXU6Zd8EDWU8_PzYWGiPwwFx5RU_ylMuTy3fM5k8I73TSv8b2A6uE9Itu0qxU4hJ1L42XWaQwJwSS3J3xwErXU_HVAUsuY3lbcNUXR_3M1aPTk3GayZhZ_L0jVqrOm_YI09rpmfyzY2MiuI_0jwddTdIYt8rXDN7mx_3f5xezScCsIz3Kv0S-D1QOiQPMrJcrbjI9dzlVrsje1GG9dMnEiLlMu_tkPEd3GlLYBqj6fcm7UcvQDUjsfXdxig.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز سه‌شنبه ۱۶ تیرماه در جریان سفر به آنکارا برای شرکت در نشست سالانه ناتو، در کنار رجب طیب اردوغان، رییس‌جمهوری ترکیه، بار دیگر از عملیات نظامی آمریکا و اسراییل علیه جمهوری اسلامی دفاع کرد و گفت این اقدام را نباید «جنگ» نامید، بلکه هدف آن «خلع سلاح هسته‌ای ایران» بود.
+ترامپ با اشاره به نقش ترکیه در تحولات خاورمیانه گفت این کشور جمهوری اسلامی را «به‌خوبی می‌شناسد» و همراه با چند کشور دیگر، در تلاش‌ها برای پایان دادن به درگیری‌ها نقش مهمی ایفا کرده است.
+او گفت اطمینان دارد رجب طیب اردوغان نیز خواهان دستیابی جمهوری اسلامی به سلاح هسته‌ای نیست.
+رییس‌جمهوری آمریکا در ادامه با اشاره به روابط واشینگتن و آنکارا گفت: «این حتی جنگ هم نیست، یک عملیات نظامی است؛ خلع سلاح هسته‌ای ایران است.»
+او همچنین با تمجید از توان نظامی ترکیه گفت این کشور می‌توانست وارد درگیری شود، اما چنین تصمیمی نگرفت.
+ترامپ در بخش دیگری از سخنانش از عملکرد متحدان اروپایی آمریکا در ناتو انتقاد کرد و گفت از نبود حمایت آنها در جریان درگیری با جمهوری اسلامی «بسیار ناامید» شده است.
+او اظهار داشت اگر نشست امسال ناتو در ترکیه برگزار نمی‌شد، شاید اصلا در آن شرکت نمی‌کرد و با اشاره به اردوغان، او را «دوست» و «رهبر بسیار قدرتمند» توصیف کرد.
+رییس‌جمهوری آمریکا همچنین گفت ایالات متحده برای دفاع از اروپا در برابر روسیه هزینه‌های هنگفتی پرداخت کرده، اما در مقابل حمایت متقابلی دریافت نکرده است. به گفته او، در جریان تحولات اخیر عمدا واکنش متحدان را زیر نظر داشته تا مشخص شود آیا آنها نیز در مواقع لازم در کنار آمریکا خواهند ایستاد یا خیر.
+ترامپ در این زمینه از بریتانیا، فرانسه، آلمان و ایتالیا نام برد و گفت مدت‌هاست این پرسش را مطرح می‌کند که آیا این کشورها نیز در صورت نیاز از آمریکا حمایت خواهند کرد یا نه.
+@
+VahidHeadline
+رئیس‌جمهور آمریکا در عین حال تأکید کرد «ما به هیچ‌کس دیگری نیاز نداریم»، اما این پرسش را مطرح کرد که چرا آمریکا «تریلیون‌ها دلار در ناتو سرمایه‌گذاری کرده» تا از اروپا در برابر روسیه محافظت کند، بدون آن‌که چیزی در مقابل دریافت کند.
+ترامپ گفت: «به نوعی داشتم دیگران را آزمایش می‌کردم تا ببینم آیا کنار ما خواهند بود یا نه، چون مدت‌هاست می‌گویم ما به آن‌ها کمک می‌کنیم، اما مطمئن نیستم آن‌ها برای ما چنین کنند».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76802)
+
+---
 
 
 
-ویدیوهای منتشر شده در شبکه‌های اجتماعی نشان می‌دهد، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، و مسعود پزشکیان، رئیس‌جمهوری، دوشنبه ۱۵ تیرماه، در جریان مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، در قم، با شعارهای «بی‌شرف» و «مرگ بر سازشگر» از سوی گروهی از تندرو های حامی حکومت، مواجه شدند.
-بر اساس این ویدیوها، عراقچی و پزشکیان پس از سر داده شدن این شعارها، محل حضور خود را ترک کردند.
+###### 🔵 Updated at: 2026-07-07 19:32:17
+
+
+
+رجب طیب اردوغان، رئیس‌جمهوری ترکیه روز سه‌شنبه ۱۶ تیر، در نشست خبری مشترک با دونالد ترامپ، رئیس‌جمهوری آمریکا به مذاکرات جاری میان تهران و واشنگتن اشاره کرد و گفت که او و دولتش در تلاش‌اند که روابط آمریکا و ایران را به سطحی باثبات برسانند.
+اردوغان در این نشست که در حاشیه اجلاس سران ناتو برگزار شد، تاکید کرد که این تلاش‌ها در راستای برقراری صلح جهانی خواهد بود.
 @
 VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76801)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 19:32:17
+
+<img src="https://cdn4.telesco.pe/file/KX_E1IEFKXhhIw-2JMXRRBMTuUwUUa12lH5bseBvJD2YffUrr1bzyXhcr5ZBTr-uHLE_P6T1H8xEutcqmBFVKnvohe3_le_DVk64rtOB1bvP5qMNUD65LB2MVs7gK34OL4PEqZ5luY3ZSR6TjdMirHB2U3jVnhCPH5FPot3qcD_NXqg_T5TnDZ_I2_Wk6qJVxVqn5wF2v5MHwJBpg5i9hyXSYHf-NGTMvtg40PZ9mIax8--9vqSFL0xEz-98ebg7ITD_tDppCsEFGzAdyxfjFKs1rNrzKTP8v0hrPgKjfp_9Tfar36SHnab2-aMz6Jy-gnynFiC0ETP7e2layOGIEw.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش روز سه‌شنبه ۱۶ تیرماه هنگام عبور از تنگهٔ هرمز با یک پرتابهٔ ناشناس هدف حمله قرار گرفت.
+این نهاد اعلام کرد نفتکش بر اثر این حمله دچار «آسیب سازه‌ای» شده، اما هیچ تلفات جانی یا آلودگی زیست‌محیطی گزارش نشده است.
+این حادثه یک روز پس از حمله به دو نفتکش، یکی حامل نفت خام عربستان سعودی و دیگری حامل گاز طبیعی مایع قطر، رخ داده است.
+خبرگزاری رویترز حمله به آن دو کشتی را تأیید کرده و وب‌سایت اکسیوس به نقل از دو مقام آمریکایی گزارش داده بود که سپاه پاسداران دست‌کم دو موشک به سوی آن‌ها شلیک کرده است؛ ادعایی که جمهوری اسلامی تاکنون به آن واکنشی نشان نداده است.
+سخنگوی وزارت خارجه قطر روز سه‌شنبه اعلام کرد هدف قرار دادن نفتکش قطری «الرکیات» در نزدیکی تنگه هرمز، حمله‌ای غیرقابل قبول به امنیت کشتیرانی بین‌المللی و تأمین جهانی انرژی است و ایران را مسئول حمله به آن دانست.
+هنوز هیچ گروه یا کشوری مسئولیت حملات تازه به نفتکش‌ها در تنگه هرمز را بر عهده نگرفته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76800)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 19:32:17
+
+
+
+تصاویری که در شبکه‌های اجتماعی منتشر شده گروهی از شرکت‌کنندگان در مراسم تشییع جنازۀ علی خامنه‌ای را نشان می‌دهد که به عباس عراقچی ، وزیر خارجۀ جمهوری اسلامی ایران، حمله کرده و او را «بی‌شرف» خطاب می‌کنند.
+گروهی از هواداران نظام جمهوری اسلامی که با مذاکره و توافق با آمریکا مخالف هستند، اعضای تیم مذاکره‌کننده را به «سازشکاری» متهم می‌کنند. روز گذشته نیز تصاویری مشابه از حمله به مسعود پزشکیان در حاشیۀ تشییع جنازۀ علی خامنه‌ای منتشر شده بود.
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -20,7 +86,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 <img src="https://cdn4.telesco.pe/file/oZ36Wri3HuxdMnRdRrnKim5KHPBlKWE9bd0jbXeAN7nvoeJB6Eh00OEZFDxwxwB3DIQR700aK4Gee5c8DVpkPP125JBVxT6bpvBKMd0CDiDHq6AgQ_nj_JWNbA432HVCj7wxktjsxM06_1cKtFa928FtnrYBY3w3JqaQia7VyleNNovHpX9EIrCO3jdWi0QaWYV6vG4KiZHER_Z937S3sHlFyv9IKaaBVpSAwA_i7XDm7xJKK3MrinzsZzRcbWXFMD5dZWGFip4rFBWdq9bRyS6o_zvj99VfDM252Xr4CJEOEB25RSqBSgzYzE6_engc-cy2cZ-eDp2MRKiLzlgLbw.jpg" width="400"><br>
 
@@ -40,7 +106,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 <img src="https://cdn1.telesco.pe/file/mTsVUP1Ig3rq5ZJ2mOWxpFHWL8uZ2lvjAHcnFlMNb0PM0ZY-_BVoa55fo1S1RXcGZ1_hDAgGsezBIKey_U798UaaIEYhYIIHf4bRuwi9ehgcpfPOcDtItmZt6yji-_OcVW5H8YslpGOKy2Haoi04ER-q-jtt-FmI6L_frnKnBCi7a5_J1stuKmtfcQdOlRSDa3N5EkOQ8Q-1Cy2cZ1Bjy9LtDdonf6lRO7L-k6It8L4XplTbu8Mo2da30Qp4nQj9DkCKnuyb2tmd7Oh8HASQXjyeCrhuJXJV09-X6ll1E20BEcTZJfWxcWZjD7zAOH0tx2RFaUDJbc8TF3sM3I3Dcw.jpg" width="400"><br>
 
@@ -65,7 +131,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 <img src="https://cdn4.telesco.pe/file/WVokYKzJK7O2S3s4esaNUH299xRxICnHptJGsmSTaylyeTc9QoAn3srkpB-mbBocNs20jbvR2E1hCeVRvLihbZlGfn8JS4thZkjDMNx2XK9uvdy6MCB-SweBgx-_SUjgRP2hLZwwi6gs0X9P02zBfYZxV0bhIa2m8C5ryx0BMTxf_ibtJmYpZmOfWVfER1XOzQVmfP899PE-gKE39mZZP0Sd0ZM-aAmfOUzVII_DjULvOsnDM8g_MN0fZDAsOERRL4IHHKQxc1HZqiJ3_KIhhvtUwzfvPcLM2YXTHqNmXRuBnymxPMeHV1vO8EWFppNJrnF5YtiUej2oR0H0i6x4fw.jpg" width="400"><br>
 
@@ -83,7 +149,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 
 
@@ -107,7 +173,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 
 
@@ -133,7 +199,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 <img src="https://cdn1.telesco.pe/file/vN2Rp9vsRwmf5ug9l50hUSp-C5VkJmivOG3tYQDo39jReCj7PjANLugc1TsDX01dxVYeVboYK6dyBEWQtf-7MkzwCY8k0I_28tRkbhsZkEpcCmLMEJvLbX7oXnRhBFKM5-2yCPSSK0CaiTrxePlJNgpNRqXzMRH0gOzZZ-GXXBRJPKkY59D1ohs5x0tgGDcvI26XhwHQpPLyrzGvzoX-zCu9xeb6Tt36nelI_rF5gwfTy_f7laRQows2rR_fRvyPebqxGPvD3hG0OXCaOC0UmR8RkJ_lojtgxJ0CSJqPUAuBrlS9g6MwXJJTL_0EEJ2IsZN1r8R6FOdPwd_teDjdow.jpg" width="400"><br>
 
@@ -153,7 +219,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 <img src="https://cdn4.telesco.pe/file/e8v9nGCz5DrFy8puCzb1MgP7tAYWRdtogm7DLZBSelejV5f-2j95INeLpGqJeSWt9pnTD2IVmo53HEWhbQKNUJvg-iyP2-b397FgeyUyzqUQX-zkF2mpS0fDpD3EJE7xNbkEtZqw5BdrBXPqIHW5jbt93UQyWsec3bOnyFQQEF6cwsibKcTrNFHwquOnUG5Fq9sJCtQoELn3ZDbKDckf2GB0-lasfzAzBd4ol11plp1ipPm7ZkPD1sJsBPHj16gySyWNEJWQ6LGRIfrIXx95Rl0_Qddd5IMeNk6GFTlfMW9EEU1j2MmEmbni_L-_zlMrfkxe83Oh672UyDOZqUzwmA.jpg" width="400"><br>
 
@@ -167,9 +233,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
-<img src="https://cdn1.telesco.pe/file/PSAaHbEjTI006Pd-Z6YAggNXDnPfF_6MGkxLF6Yi8X6emp1dyJPK54vOOfLGze2IO3Clf2E8f0M56Z4Q84U56OkIypQ56M_jzLd_YMEJdqdrYKAkPrI2vSd6igQMSnsV-AuOzjTTH9K2uXxQHTVEaCZLEmScSAZjh-3HXymHTFOWwJEgSoMJd-NJXkOlXLip4_WJTv5NOMzYG3Jpj-JrcwA-NcldlYAnzIWL_mgk-d1SM3mOOpv7U6seKyuQ6La3r6PT_Yid4947vx_ktkmu0QnmR47jFM1EyLnUjqhrSTNN07D1Mr8zuOh3iivpMcPNwE4wY7jFtru8K7GHRB4tQA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/neM0GnIlkPe8k5yz94bUTm8fnmWQDyBRL_7t_WjjF3hCykD6dxvqFFak40rlNK118kghUb892wMsJEthvpGjdzraHvNP0y5oSHbLMDArQleFkWnSNuZWZjrBffawwGChCHJVAHOryJcGl5Pz6xFUsGiEVCnl7XzTEZZvRfgVusaMMdHnrPkYT7UwVwBxUj2H-VpE-_3UlKkg1SjjviEehpskYmIcujdyg69sCgrA8kqj-MRT11hY_htYF9XzAkCE8sONUt3Uy6ATZ-KVkIm6SKwdkmi-Bev6P9WO4GhWg4XHhalwLvRYQ9jrgRROUcdJ_7MbXmnyGVyFaoFmKA1_3A.jpg" width="400"><br>
 
 قوه قضائیه روز یکشنبه ۱۴ تیر متن حکمی را منتشر کرد که در آن مجتبی خامنه‌ای، رهبر جمهوری اسلامی، غلامحسین محسنی اژه‌ای را برای یک دوره جدید پنج ساله به عنوان رئیس قوه قضائیه ابقا کرده است.
 محسنی اژه‌ای از دهم تیر سال ۱۴۰۰ با حکم علی خامنه‌ای به این سمت منصوب شده بود و مدت پنج سال ریاست او بر قوه قضائیه به پایان رسیده بود. حکم رهبر جدید جمهوری اسلامی با امضا در تاریخ ۱۳ تیر منتشر شده است.
@@ -184,7 +250,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 <img src="https://cdn1.telesco.pe/file/RbMuGQ74ZyLE1sYCDZcxrhrFeeQWAWXzv6T1j9CKDd833hWX5VW8vuyerEHot8bEw_FaJrI7OCEnj0hb4tp22uYzKXcczJN6Br05nLs722bsWft3DMV1NdJ5gOOl3F-7BfSyZ1nFN8h5-kJEGS5IGSnN0nS3RIsbPT7bsTQi47BwV8r0njVW9EdTeramtUKrqMmGzVp_LF5Ef3TzdjRD3hLF8n0Ym65i8oPwrt419DlJQ-xgenV18Dug-RPHvhiqr2Vcv_aR-LJ353IuC2i52Wct2hshIIPkEnHhVKqi-5T4BKOJn38klw06WQji-p_lehVWL6KeZ3rOwEBmjLjFug.jpg" width="400"><br>
 
@@ -204,7 +270,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 <img src="https://cdn4.telesco.pe/file/NO66YeFGAIzC5UkZGi8BNwTyUqA5U-CF4E4FU-2XP-tiakGo7XvOfxCXEQcokxflXWPgBTMqlIc4fBrYYtTnjGZ8ajYT5LF1Rgfpz99quc6r5_XGpuT5r7Lk-Qsp3_unGNskUOooWezsDyjq22151vTVJZ3LUMs1RAS2BxqYZgg1z5-99ohlE7abZNKpY5yb7aD4ESxN0eltMaNbyn74OyKVLX2grhqyZeHw9EXut2iOhCrFqqXX_4bd2iS8eW1KIMzHU4JL-Jp20xpJQgityA3mTQQziEfVZxiOJ0b6SpGB2o3VKjqCesKlpTWWH-gR_IwyqsQ3YOdDZP8oNdC3kA.jpg" width="400"><br>
 
@@ -223,7 +289,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 
 
@@ -235,7 +301,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 
 
@@ -254,7 +320,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 16:56:03
+###### 🔵 Updated at: 2026-07-07 19:32:17
 
 <img src="https://cdn4.telesco.pe/file/On2HcU1UV_JfZ5MPszBBHkkAzjiy-0l_2zurE3a18i_OmqMjZVAspX1TkyZaxRzT7DakVCTR4CYLA2TVRkKoo7adCPyQM1YYmX3eT1AjhDtMV23eBFYxR_4POssaey-TiJ_MIuyKxn-nEz5CAbgRv598Aq0-MRQiyIT7F06rLSiAD5Odz2w6SAPL7W27JaYurNaGnvdVSnjx_1L7X4ni4aO52a1l9HcixJl40P1O6x_kumuxNnrEKFo-oxNW1-rPkrcSKG0v-igidBEi9aMOb0p3u5tY5eTPAFKbMTl_8Xg6QiblkDGrlGoxdO1USoHC_2c34t6MDsfDAv3LwcZrBg.jpg" width="400"><br>
 
@@ -266,60 +332,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76783)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 16:56:03
-
-<img src="https://cdn4.telesco.pe/file/P_Z-75oWf7uZw4al0Oo3VGBSRloLeNxqLEWMz4JjY7-ew2la6OEFGVi1XuRfNghntiT4iHHA2-2LvbPE6EoSD1WctLk2hhRnrWwpN8_hjsoqd4OgjYUKKDCy76wP5aDgYeMdU1rm3SyvGwx3BQN0uxkqSVBTmXN305yIv5PyuQM9Ul1DQk_Y0QXmel8WbIenIlj3cYM9ePB48ROcYnUrNo4W2jMrnCq0phiVtVRIWIIc8mwWs7ayAmvqlEOtqCOz_OCX8Mf1zE_NX4-fORO1lxZl4aeaipyo4LO1nBSk9GeyBN_-racV5i9gOTi2uBetEdqSXlQHfhNlg4jK_Nos4A.jpg" width="400"><br>
-
-نگین کیانی، عکاس مستند اجتماعی و مدرس عکاسی، از سوی دادگاه انقلاب بابل به یک سال حبس محکوم شد.
-رسانه‌های حقوق بشری گزارش گزارش داده‌اند، شعبه اول دادگاه انقلاب بابل خانم کیانی را به اتهام «تبلیغ علیه نظام» به یک سال زندان محکوم کرده است. این حکم روز ششم تیرماه صادر و به او ابلاغ شده است.
-نگین کیانی ۱۹ فروردین امسال در منزل پدری‌اش در بابل توسط نیروهای امنیتی بازداشت و یک روز بعد با قرار وثیقه آزاد شده بود.
-این عکاس ۳۷ ساله پیشتر نیز به دلیل فعالیت‌های مدنی خود چندین بار احضار شده و با برخوردهای قضایی روبه‌رو بوده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76782)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 16:56:03
-
-<img src="https://cdn4.telesco.pe/file/E0Nko0NfvX8dsGBb-PCL4rf3cFVnCKWRUtQUBQ2wmUXaxVYzIGn4E8x3nSegzIC5DA38izPQAGsBdiW4sNIsdv_Oeh6sJzgP_E_QXnYZuQAUyEAixXcMAxQ3Ukz0CCv2h16JwIFxVX4sto-bWbDx-sTCNn7obOwvxvr07TtnaSakARC7bIkthbIBX1DA5upaqlS5l4XBFR7tAJ77d1AGJEaGX_TRgSse71CggoQbY_nlij3FNKoFGztHSsCktCGk-vO2yeb7JNdQdoMRGC9YIhx90os5cZZhbKNNYm611HskHEcQc639INS3UjnOVOzUOUuzGxkSakvh6eGGAVBhBA.jpg" width="400"><br>
-
-شهرنوش پارسی‌پور، نویسنده، مترجم، تهیه‌کننده و فعال اجتماعی ایرانی، امروز در بیمارستانی در حومه سانفرانسیسکو درگذشت.
-خانم پارسی‌پور که از دهه ۷۰ خورشیدی در شمال کالیفرنیا زندگی می‌کرد، از هفته گذشته به علت سکته قلبی در بیمارستان بستری شده بود.
-او در سال ۱۳۲۴ در تهران به دنیا آمد و اوایل دهه ۵۰ خورشیدی از دانشکده علوم اجتماعی دانشگاه تهران فارغ‌التحصیل شد. نخستین داستان بلندش، «سگ و زمستان بلند»، را نیز در تهران منتشر کرد.
-خانم پارسی‌پور در دهه ۵۰ برای مدتی در تلویزیون ملی ایران کار کرد و سپس برای ادامه تحصیل ایران را ترک کرد، اما در سال ۱۳۵۹ به ایران بازگشت.
-او مدت کوتاهی پس از بازگشت به ایران بازداشت شد و چهار سال را در زندان گذراند. پس از آزادی به ترجمه و کتابفروشی پرداخت، اما فشارها ادامه یافت و سرانجام به آمریکا مهاجرت کرد.
-خانم پارسی‌پور در سال‌های اقامت در آمریکا نیز چند داستان بلند و ترجمه منتشر کرد.
-شناخته‌شده‌ترین آثار او در ایران «طوبا و معنای شب» و در خارج از ایران «زنان بدون مردان» است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76781)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 16:56:03
-
-<img src="https://cdn1.telesco.pe/file/kRqRFv57dNfn0sLpChOwGX9RtCfY44WR8unSCS1eqZtNXeDQTzc4MExefijBVQ39AFSo05Nue_FI-0WtP0shvIOBQOOeUIc2Mlh-I-cmZBaIKJGZskYvhATH5xrapJ0zYbUhZ7qDrZNg1kYYKc9yrn1AhNcQZZ3I_j9nEF9_mcNgy7ILQXxylcse0s6I3NHjEjGY-3Y3RuoRByCIHVQOwo19kBC9a4FdZwkmyBCbY-AZi7GRSGaSf0wMYXrb9Nonf6v20sXc56gYLW9VKocGUkvnF8h1ggxLAkXA70hgRvnVIkbXVTW5061vUjCLA0PyvbwQI3TL55D3nc9x0GDXdQ.jpg" width="400"><br>
-
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76778)
 
 ---
 
