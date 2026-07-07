@@ -3,7 +3,44 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
+
+<img src="https://cdn4.telesco.pe/file/oP6G5SD-zxAY6y0btqKsS-x8lMgxq0jix3Lv-VywtFii7AeXvjkRf8pZuOM3D_AcTn_zDCo99UWpIfZwdj1N4XcTHW0Kgam8cx0ehdcrIck0bi8lvYCydH2QqR_6Am214G51hdSQVpngU0vwVc8nT6mcYegL4-F2XeuTG1DDf82NeOBnbtg5E9z7ZUC1X3qoHDS8xQ8Jg1VsYIl4iiFexBeJi3iK_ac_KVKmnIq142Qo0gFbRcKqUWGPSVSiOUeZhFpUZNgcW6Tcq5mt7E492T3k1ZMmI05n_Oxe7qNRfo_irhpvbnpRVimf5Y8LC8raqML_tUsO-4V-SuFBEwO6Yw.jpg" width="400"><br>
+
+نخست‌وزیر اسرائیل روز سه‌شنبه ۱۶ تیرماه در گفت‌وگو با شبکه سی‌ان‌ان گفت که با وجود اختلاف‌نظرهای گاه‌به‌گاه با دونالد ترامپ، رئیس‌جمهور آمریکا، درباره ایران، آن‌ها در مسائل کلان مربوط به نحوهٔ برخورد با تهران «هم‌نظر» هستند.
+بنیامین نتانیاهو افزود که هنوز زود است درباره آنچه پس از امضای یک توافق صلح موقت میان واشینگتن و تهران رخ خواهد داد، اظهار نظر کرد.
+او اظهار داشت: «رئیس‌جمهور معتقد است که می‌تواند برنامه هسته‌ای ایران را متوقف کند»، اما افزود که در این باره تردیدهایی دارد.
+نخست‌وزیر اسرائیل می‌گوید: «در مسائل بزرگ هم‌نظر هستیم و گاهی هم اختلاف داریم، اما متحدان واقعی هستیم».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76805)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 21:44:40
+
+<img src="https://cdn1.telesco.pe/file/lHH_LFvhuX52GYn3bbM0E-7gd05DtjF-A4fF9DI6UtrCR9OwdpSJ98V4n6LBC2lnI_RozbwCj1UakXs2vjPZfzW1DA0i68yslmlj8Lh3bgdaJkVpjWKy-laHNVAxp1pmgtAw8-D0CnBbdtfHUudh3WckyQf21Ir1nkQZEx63hSTCZAM_H-rVMdRanxQ6HU1OoEw08cpJC3CaInJV6GEez2OAr3nZSfRuJPMwNHoxgcN5nGSHQFmefimCrvyqzvOV_9ozzz-u9CLXiRP9Q8a5Fj87KU9tEKIDN92K0YVEuHP42sNz2MoEoEoDSQrMjXsLJKiaXXDDXcll5LrDvyeiLw.jpg" width="400"><br>
+
+یک مقام آمریکایی، روز سه‌شنبه ۱۶ تیرماه، به ان‌بی‌سی نیوز گفت حملات جمهوری اسلامی ایران در ۱۲ ساعت گذشته «تهاجمی» بوده و «نقض مستقیم یادداشت تفاهم» به شمار می‌رود.
+به گفته این مقام، ارتش آمریکا امروز چندین پهپاد شلیک‌شده از سوی ایران را سرنگون کرده است. او همچنین با اشاره به حملات شب گذشته به دو نفتکش در محدوده تنگه هرمز، گفت که جمهوری اسلامی در این حملات از دو موشک کوتاه‌برد استفاده کرده است.
+این مقام آمریکایی جزئیات بیشتری درباره محل وقوع این حملات یا میزان خسارت احتمالی بیان نکرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76804)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn1.telesco.pe/file/RYTUZqYHmmqPeZQzT4Ggu2OK-9-z54pMB2Se_WjFEye_qyNLlSeS3XkpJf0R_SZNxkRiAxF-fmX5b2iC5IB2PkGal7bzXU6Zd8EDWU8_PzYWGiPwwFx5RU_ylMuTy3fM5k8I73TSv8b2A6uE9Itu0qxU4hJ1L42XWaQwJwSS3J3xwErXU_HVAUsuY3lbcNUXR_3M1aPTk3GayZhZ_L0jVqrOm_YI09rpmfyzY2MiuI_0jwddTdIYt8rXDN7mx_3f5xezScCsIz3Kv0S-D1QOiQPMrJcrbjI9dzlVrsje1GG9dMnEiLlMu_tkPEd3GlLYBqj6fcm7UcvQDUjsfXdxig.jpg" width="400"><br>
 
@@ -31,7 +68,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 
 
@@ -48,7 +85,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn4.telesco.pe/file/KX_E1IEFKXhhIw-2JMXRRBMTuUwUUa12lH5bseBvJD2YffUrr1bzyXhcr5ZBTr-uHLE_P6T1H8xEutcqmBFVKnvohe3_le_DVk64rtOB1bvP5qMNUD65LB2MVs7gK34OL4PEqZ5luY3ZSR6TjdMirHB2U3jVnhCPH5FPot3qcD_NXqg_T5TnDZ_I2_Wk6qJVxVqn5wF2v5MHwJBpg5i9hyXSYHf-NGTMvtg40PZ9mIax8--9vqSFL0xEz-98ebg7ITD_tDppCsEFGzAdyxfjFKs1rNrzKTP8v0hrPgKjfp_9Tfar36SHnab2-aMz6Jy-gnynFiC0ETP7e2layOGIEw.jpg" width="400"><br>
 
@@ -69,7 +106,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 
 
@@ -86,7 +123,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn4.telesco.pe/file/oZ36Wri3HuxdMnRdRrnKim5KHPBlKWE9bd0jbXeAN7nvoeJB6Eh00OEZFDxwxwB3DIQR700aK4Gee5c8DVpkPP125JBVxT6bpvBKMd0CDiDHq6AgQ_nj_JWNbA432HVCj7wxktjsxM06_1cKtFa928FtnrYBY3w3JqaQia7VyleNNovHpX9EIrCO3jdWi0QaWYV6vG4KiZHER_Z937S3sHlFyv9IKaaBVpSAwA_i7XDm7xJKK3MrinzsZzRcbWXFMD5dZWGFip4rFBWdq9bRyS6o_zvj99VfDM252Xr4CJEOEB25RSqBSgzYzE6_engc-cy2cZ-eDp2MRKiLzlgLbw.jpg" width="400"><br>
 
@@ -106,7 +143,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn1.telesco.pe/file/mTsVUP1Ig3rq5ZJ2mOWxpFHWL8uZ2lvjAHcnFlMNb0PM0ZY-_BVoa55fo1S1RXcGZ1_hDAgGsezBIKey_U798UaaIEYhYIIHf4bRuwi9ehgcpfPOcDtItmZt6yji-_OcVW5H8YslpGOKy2Haoi04ER-q-jtt-FmI6L_frnKnBCi7a5_J1stuKmtfcQdOlRSDa3N5EkOQ8Q-1Cy2cZ1Bjy9LtDdonf6lRO7L-k6It8L4XplTbu8Mo2da30Qp4nQj9DkCKnuyb2tmd7Oh8HASQXjyeCrhuJXJV09-X6ll1E20BEcTZJfWxcWZjD7zAOH0tx2RFaUDJbc8TF3sM3I3Dcw.jpg" width="400"><br>
 
@@ -131,7 +168,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn4.telesco.pe/file/WVokYKzJK7O2S3s4esaNUH299xRxICnHptJGsmSTaylyeTc9QoAn3srkpB-mbBocNs20jbvR2E1hCeVRvLihbZlGfn8JS4thZkjDMNx2XK9uvdy6MCB-SweBgx-_SUjgRP2hLZwwi6gs0X9P02zBfYZxV0bhIa2m8C5ryx0BMTxf_ibtJmYpZmOfWVfER1XOzQVmfP899PE-gKE39mZZP0Sd0ZM-aAmfOUzVII_DjULvOsnDM8g_MN0fZDAsOERRL4IHHKQxc1HZqiJ3_KIhhvtUwzfvPcLM2YXTHqNmXRuBnymxPMeHV1vO8EWFppNJrnF5YtiUej2oR0H0i6x4fw.jpg" width="400"><br>
 
@@ -149,7 +186,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 
 
@@ -173,7 +210,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 
 
@@ -199,7 +236,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn1.telesco.pe/file/vN2Rp9vsRwmf5ug9l50hUSp-C5VkJmivOG3tYQDo39jReCj7PjANLugc1TsDX01dxVYeVboYK6dyBEWQtf-7MkzwCY8k0I_28tRkbhsZkEpcCmLMEJvLbX7oXnRhBFKM5-2yCPSSK0CaiTrxePlJNgpNRqXzMRH0gOzZZ-GXXBRJPKkY59D1ohs5x0tgGDcvI26XhwHQpPLyrzGvzoX-zCu9xeb6Tt36nelI_rF5gwfTy_f7laRQows2rR_fRvyPebqxGPvD3hG0OXCaOC0UmR8RkJ_lojtgxJ0CSJqPUAuBrlS9g6MwXJJTL_0EEJ2IsZN1r8R6FOdPwd_teDjdow.jpg" width="400"><br>
 
@@ -219,7 +256,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn4.telesco.pe/file/e8v9nGCz5DrFy8puCzb1MgP7tAYWRdtogm7DLZBSelejV5f-2j95INeLpGqJeSWt9pnTD2IVmo53HEWhbQKNUJvg-iyP2-b397FgeyUyzqUQX-zkF2mpS0fDpD3EJE7xNbkEtZqw5BdrBXPqIHW5jbt93UQyWsec3bOnyFQQEF6cwsibKcTrNFHwquOnUG5Fq9sJCtQoELn3ZDbKDckf2GB0-lasfzAzBd4ol11plp1ipPm7ZkPD1sJsBPHj16gySyWNEJWQ6LGRIfrIXx95Rl0_Qddd5IMeNk6GFTlfMW9EEU1j2MmEmbni_L-_zlMrfkxe83Oh672UyDOZqUzwmA.jpg" width="400"><br>
 
@@ -233,7 +270,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn1.telesco.pe/file/neM0GnIlkPe8k5yz94bUTm8fnmWQDyBRL_7t_WjjF3hCykD6dxvqFFak40rlNK118kghUb892wMsJEthvpGjdzraHvNP0y5oSHbLMDArQleFkWnSNuZWZjrBffawwGChCHJVAHOryJcGl5Pz6xFUsGiEVCnl7XzTEZZvRfgVusaMMdHnrPkYT7UwVwBxUj2H-VpE-_3UlKkg1SjjviEehpskYmIcujdyg69sCgrA8kqj-MRT11hY_htYF9XzAkCE8sONUt3Uy6ATZ-KVkIm6SKwdkmi-Bev6P9WO4GhWg4XHhalwLvRYQ9jrgRROUcdJ_7MbXmnyGVyFaoFmKA1_3A.jpg" width="400"><br>
 
@@ -250,7 +287,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn1.telesco.pe/file/RbMuGQ74ZyLE1sYCDZcxrhrFeeQWAWXzv6T1j9CKDd833hWX5VW8vuyerEHot8bEw_FaJrI7OCEnj0hb4tp22uYzKXcczJN6Br05nLs722bsWft3DMV1NdJ5gOOl3F-7BfSyZ1nFN8h5-kJEGS5IGSnN0nS3RIsbPT7bsTQi47BwV8r0njVW9EdTeramtUKrqMmGzVp_LF5Ef3TzdjRD3hLF8n0Ym65i8oPwrt419DlJQ-xgenV18Dug-RPHvhiqr2Vcv_aR-LJ353IuC2i52Wct2hshIIPkEnHhVKqi-5T4BKOJn38klw06WQji-p_lehVWL6KeZ3rOwEBmjLjFug.jpg" width="400"><br>
 
@@ -270,7 +307,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 <img src="https://cdn4.telesco.pe/file/NO66YeFGAIzC5UkZGi8BNwTyUqA5U-CF4E4FU-2XP-tiakGo7XvOfxCXEQcokxflXWPgBTMqlIc4fBrYYtTnjGZ8ajYT5LF1Rgfpz99quc6r5_XGpuT5r7Lk-Qsp3_unGNskUOooWezsDyjq22151vTVJZ3LUMs1RAS2BxqYZgg1z5-99ohlE7abZNKpY5yb7aD4ESxN0eltMaNbyn74OyKVLX2grhqyZeHw9EXut2iOhCrFqqXX_4bd2iS8eW1KIMzHU4JL-Jp20xpJQgityA3mTQQziEfVZxiOJ0b6SpGB2o3VKjqCesKlpTWWH-gR_IwyqsQ3YOdDZP8oNdC3kA.jpg" width="400"><br>
 
@@ -289,49 +326,13 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-07 19:32:17
+###### 🔵 Updated at: 2026-07-07 21:44:40
 
 
 
 این مجله ۹ ماه قبل از سرنگونی حکومت صدام‌حسین در عراق و سپس اعدام او نیز عکس صدام حسین را روی جلد برده بود. معمر قذافی نیز از دیگر رهبران منطقه بود که ۶ ماه قبل از کشته شدن به دست معترضان، عکس او روی جلد تایم رفت.
 
 [View Post](https://t.me/VahidOnline/76786)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 19:32:17
-
-
-
-رحیم صفوی: این یک جنگ موجودیتی است و مطمئنم که اسرائیل از بین خواهد رفت
-یحیی رحیم‌صفوی، از فرماندهان پیشین سپاه پاسداران و مشاور مجتبی خامنه‌ای در حاشیه مراسم تشییع علی خامنه‌ای، با اشاره به درگیری میان جمهوری اسلامی و اسرائیل، آن را یک «جنگ موجودیتی» خواند و گفت دو طرف در نبردی قرار دارند که تنها یکی از آن‌ها می‌تواند در منطقه باقی بماند. او افزود: «من مطمئن هستم آنچه باقی خواهد ماند ایران است و آنچه از بین خواهد رفت اسرائیل است.»
-او همچنین با مقایسه کشته شدن علی خامنه‌ای با واقعه عاشورا، مدعی شد کشته شدن او، «حرارتی» در میان مردم ایران، شیعیان و جهان اسلام ایجاد خواهد کرد.
-رحیم‌صفوی در بخش دیگری از سخنانش ابراز امیدواری کرد که مجتبی خامنه‌ای راه پدرش را در حفظ «ایران قوی»، دور نگه داشتن سایه جنگ از کشور و پیشبرد توسعه ادامه دهد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76784)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-07 19:32:17
-
-<img src="https://cdn4.telesco.pe/file/On2HcU1UV_JfZ5MPszBBHkkAzjiy-0l_2zurE3a18i_OmqMjZVAspX1TkyZaxRzT7DakVCTR4CYLA2TVRkKoo7adCPyQM1YYmX3eT1AjhDtMV23eBFYxR_4POssaey-TiJ_MIuyKxn-nEz5CAbgRv598Aq0-MRQiyIT7F06rLSiAD5Odz2w6SAPL7W27JaYurNaGnvdVSnjx_1L7X4ni4aO52a1l9HcixJl40P1O6x_kumuxNnrEKFo-oxNW1-rPkrcSKG0v-igidBEi9aMOb0p3u5tY5eTPAFKbMTl_8Xg6QiblkDGrlGoxdO1USoHC_2c34t6MDsfDAv3LwcZrBg.jpg" width="400"><br>
-
-دونالد ترامپ اعلام کرد به‌دلیل مراسم تشییع جنازهٔ علی خامنه‌ای، رهبر کشته‌شدهٔ جمهوری اسلامی، «یک هفته» به مقامات تهران فرصت داده است.
-رئیس‌جمهور آمریکا در سخنرانی خود در مراسم دویست‌وپنجاهمین سالگرد استقلال آمریکا که شامگاه جمعه ۱۲ تیر به وقت تهران برگزار شد، گفت: «ایران را به‌شدت در هم کوبیدیم. آن‌ها برای توافق بی‌تاب‌اند. به‌شدت می‌خواهند به توافق برسند. ما به‌خاطر مراسم تشییع، یک هفته به آنها فرصت دادیم، چون آدم‌های خوبی هستیم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76783)
 
 ---
 
