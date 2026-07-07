@@ -3,7 +3,60 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-08 01:15:06
+###### 🔵 Updated at: 2026-07-08 02:16:53
+
+<img src="https://cdn1.telesco.pe/file/QEVFu8U0952TleyuRU8yRkt3ztLLd16lPDnnp2A0k1i1_56-N17pL7BjZhN2ufZxV-m0EKIuqtJdmGcVDZE-sk6BOrotfT6e1NKTMxhEpcjwhk72UDjzylFHkYDJ9pFUX2GDR5hD26P4rZ1hM_va6R1zh7C_iriBkj7abrpZtqqQTnTaAw83-4uBbwjPbvYOV5-M7DHJpjTOqyZ9L_syhaw3eKqEx3mmTR_mi6_AqizKG1JKy5HPZo0rBTT3GfbNYQktWvQeHCPtTI4mP2XSEY2mj-xd2RhhUyekz7xyx8DTgRmdElQS-l5CmT9tOBQkZyzIM6gpxMwhA_xmx5U7GQ.jpg" width="400"><br>
+
+اسکان نیوز تصویری از یک انفجار بزرگ در بندرعباس و ویدیویی از انفجار در سیریک، در پی حمله هوایی آمریکا را منتشر کرد.
+@
+VahidOOnLine
++ تصاویر دیگری که با شرح امشب پخش شده‌اند و من از درستی همه‌شون مطمئن نیستم.
+اسکان نیوز گزارش داد که ستون دود از سمت پایگاه هوایی بندرعباس مشاهده شده است.
+منابع حکومتی:
+مدیر بنادر و دریانوردی شهید باهنر و شرق هرمزگان: دود سیاه در پشت بازار ماهی‌فروشان بندرعباس ناشی از اصابت پرتابه‌های دشمن به اسکله صیادی بندرعباس و آتش گرفتن تعدادی از قایق‌های صیادی مردمی است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76813)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 02:16:53
+
+<img src="https://cdn1.telesco.pe/file/bQL_NpNEZz5yJFpJwIdJe3_kvKZ380mtPZSMZyC58oQnNDQXhnorqFfDhzFrar3N7q94MpBS29k7eIxI__fKtiXF9BAcpcSaoFi2PBGYIRmFs9KjszNRLiz262su8ZPeS7h32auvv1bhASi3HoRWxNEmXGRmLNJjaZOhXKDX4ogHI9vRKuB3kxgV8T-mEkEeYHpvzEcEvTn4bWSKWC7OALdB-QFLMSTGLP46e1Z5gYnC2gi1dLKtI_hXov1Oe7SJnaBk6fxNQldwKvPgBWeIMHFqzDR-4alvTW-vy-nz0ETLSrXJdYqTpIKBNI8nynMitUyH1YzwK8zLApVmB-Z89A.jpg" width="400"><br>
+
+اکسیوس به نقل از یک مقام آمریکایی گزارش داد اهداف حمله‌های جدید آمریکا به ایران شامل سامانه‌های پدافند هوایی، سامانه‌های پایش ساحلی، موشک‌های زمین‌به‌هوا، پایگاه‌های موشک‌های کروز ضدکشتی، محل‌های پرتاب پهپاد و تاسیسات بندری بوده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76812)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 02:16:53
+
+<img src="https://cdn1.telesco.pe/file/gKpaXn-yK3Xd2HKBDe1kQDC_hdcfZbKXxXzIY1Hplb-H-dDLhNBpxC0_dICQRQMdaw_aY9SL_wtYeUUS21Ghi53Ain_7_qRgh1Fc7IR-wHr8WYA_5W-VO-5Zy-sCoXGBSRfY_5XYw8ClqiGfx96Ll9aRrhu1JLmkhKAxRoz_QtGmZZ63GQAi1VNaOox7bnRbfHWUfH0ZM1tkW_EqNLTqFUCmI6tztcfLhsXj_1-ZlrzvFKgYBb9PJhF9ycan40OXX_BE_puq3ga9mjjVl5Tk8ynWwzWEyb91x-ykD-iiIUBsnH7e34-lELtNT2tEeaypKaTLCowe9o9to3jb4RUMDA.jpg" width="400"><br>
+
+وزارت امور خارجه جمهوری اسلامی این که آمریکا اجازه نمی‌ده نفت بفروشند رو نقض تفاهم‌نامه خونده.
+پیش‌تر آمریکا هم
+گفته بود
+چون به کشتی‌ها حمله کردند، لیاقت اجازه‌ای که به صورت موقت بهشون داده بودیم رو ندارند تا رفتار مناسبی مطابق تفاهم‌نامه نشون بدن.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76811)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 02:16:53
 
 <img src="https://cdn1.telesco.pe/file/sho7ptQ-4aUbCrZcYk7Di0bkyat1uZ7aDzlQt5JT5BBSGIXbXQ-0cAhMBsIjAsCPHaSzL0wnKXGg3kpQZu6e8n1o4wBH_Hzsii7pnBrnPiBVVnE4UX-ItEIuoSPJjt69YRbbSgHK3D0aFjcSCpgxxuTSIhjxSZHqSJYny234yTO1g4Fix27Ae9TsgvLcXaE8IQiKaKGHJOO3RF0CTFoVf22GFWAL9I7XYQfVQNgGNytQHiGbSHKvaczRgxwTl-_M1BADM-V1cFqs0D1kCnYP-q21qBj911wkT7DZJGJRPATrkz_BKH2-b9gf_uMgNIIt8BwBpO1XUTVmbjKcgVLhvw.jpg" width="400"><br>
 
@@ -19,7 +72,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-08 01:15:06
+###### 🔵 Updated at: 2026-07-08 02:16:53
 
 
 
@@ -96,7 +149,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-08 01:15:06
+###### 🔵 Updated at: 2026-07-08 02:16:53
 
 <img src="https://cdn1.telesco.pe/file/F8FZKJX6_47O6zwHPWQ2G2YLBzsnuFvXvqAmswyHqX9I6vI_0w1cO0FMJqLblHphl1qGNCTvpXxNqdeX654NiaWDaVJCDiQQ-QwbTThKwxy89b3fDs9oMYRjeLiv6J-IBOYumniwLxk65I7t5dcR6cPjk0kYguhtLSfS_EYJ_G84k1bHjAtzdtxo3fd-zoXUGOcNZERJeRSA8_QvQ9I0rUhoRWxCeMKvvS1EWMKU9oCe7ZyIsE9x5R1NYeiNYRC0hV0xOCbCg-ZOms-dpA2pfm1vjCqPM37mlPqwiEr9JDAjHVjqTGIT39XV4v5_6GkW7ViPSyghIjeF4qXv_bOoJQ.jpg" width="400"><br>
 
@@ -123,7 +176,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 01:15:06
+###### 🔵 Updated at: 2026-07-08 02:16:53
 
 <img src="https://cdn4.telesco.pe/file/Ga2W_Nt1OD6B8m-2C5Q9C_03RITn4Kh84mZ6Bj4Ewdb5e9gUEmUs3wfx-Wr-Io9d6oU6LfJwgf63uJLh1_S9C4U-tRwGViynvFOT8UZS9yeuTpfQG31gF2di8_F4NvidbNfSEiDwh0uDIK4g8fug_JIaoUAC_7PtYcxqUs6i2CEieclMz6rnFr8yegHlKiguxW-bzlMSx8zlV6ccA4JI2CHadHbgQDsvRDHFumdAeto2ZnoPzxHE38Xq_jnZBGTdbjF4qJxNCFfaCNDkawk-mNYdT6L61935fDV7M572o5-rX_Z2Bkp3goooLvuaSAebPL14OfimTzq04Nx3k_5bUg.jpg" width="400"><br>
 
@@ -143,7 +196,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-08 01:15:06
+###### 🔵 Updated at: 2026-07-08 02:16:53
 
 <img src="https://cdn4.telesco.pe/file/pTc7PTBk5DGCtWo2mOBE6NF0znaq0lRXjwF2PEBVmg-MLqHZ8orNSz7tyhdZQjUxmgssM7e12NmjnQJR2MTCChmC-b0qAwnjCA0CPm7B-Q2j8oKMvkj8j0rXv0jibOY81g7ldDuDLyVZgLn1rhPoTHR3aG5ByTAt9za9JiebfucZaCspzTiYF7hgmAvRx2jnvmxoazGXn2AyArfsK-yEFJaqM84gdRmi87ySddS0FsP7RMOo1TK01cUXBty7aJFww980q013K_tO9iMSC-GZGPa29pQcw4m3cNaG1jL-iXvmd6LkeeMDCBkEbYnDxYg5vhgAxrPHGmKW4RY0E9sNyw.jpg" width="400"><br>
 
@@ -159,7 +212,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 01:15:06
+###### 🔵 Updated at: 2026-07-08 02:16:53
 
 <img src="https://cdn4.telesco.pe/file/oP6G5SD-zxAY6y0btqKsS-x8lMgxq0jix3Lv-VywtFii7AeXvjkRf8pZuOM3D_AcTn_zDCo99UWpIfZwdj1N4XcTHW0Kgam8cx0ehdcrIck0bi8lvYCydH2QqR_6Am214G51hdSQVpngU0vwVc8nT6mcYegL4-F2XeuTG1DDf82NeOBnbtg5E9z7ZUC1X3qoHDS8xQ8Jg1VsYIl4iiFexBeJi3iK_ac_KVKmnIq142Qo0gFbRcKqUWGPSVSiOUeZhFpUZNgcW6Tcq5mt7E492T3k1ZMmI05n_Oxe7qNRfo_irhpvbnpRVimf5Y8LC8raqML_tUsO-4V-SuFBEwO6Yw.jpg" width="400"><br>
 
@@ -178,7 +231,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-08 01:15:06
+###### 🔵 Updated at: 2026-07-08 02:16:53
 
 <img src="https://cdn1.telesco.pe/file/lHH_LFvhuX52GYn3bbM0E-7gd05DtjF-A4fF9DI6UtrCR9OwdpSJ98V4n6LBC2lnI_RozbwCj1UakXs2vjPZfzW1DA0i68yslmlj8Lh3bgdaJkVpjWKy-laHNVAxp1pmgtAw8-D0CnBbdtfHUudh3WckyQf21Ir1nkQZEx63hSTCZAM_H-rVMdRanxQ6HU1OoEw08cpJC3CaInJV6GEez2OAr3nZSfRuJPMwNHoxgcN5nGSHQFmefimCrvyqzvOV_9ozzz-u9CLXiRP9Q8a5Fj87KU9tEKIDN92K0YVEuHP42sNz2MoEoEoDSQrMjXsLJKiaXXDDXcll5LrDvyeiLw.jpg" width="400"><br>
 
@@ -196,7 +249,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 01:15:06
+###### 🔵 Updated at: 2026-07-08 02:16:53
 
 <img src="https://cdn1.telesco.pe/file/RYTUZqYHmmqPeZQzT4Ggu2OK-9-z54pMB2Se_WjFEye_qyNLlSeS3XkpJf0R_SZNxkRiAxF-fmX5b2iC5IB2PkGal7bzXU6Zd8EDWU8_PzYWGiPwwFx5RU_ylMuTy3fM5k8I73TSv8b2A6uE9Itu0qxU4hJ1L42XWaQwJwSS3J3xwErXU_HVAUsuY3lbcNUXR_3M1aPTk3GayZhZ_L0jVqrOm_YI09rpmfyzY2MiuI_0jwddTdIYt8rXDN7mx_3f5xezScCsIz3Kv0S-D1QOiQPMrJcrbjI9dzlVrsje1GG9dMnEiLlMu_tkPEd3GlLYBqj6fcm7UcvQDUjsfXdxig.jpg" width="400"><br>
 
@@ -219,208 +272,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76802)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-
-
-رجب طیب اردوغان، رئیس‌جمهوری ترکیه روز سه‌شنبه ۱۶ تیر، در نشست خبری مشترک با دونالد ترامپ، رئیس‌جمهوری آمریکا به مذاکرات جاری میان تهران و واشنگتن اشاره کرد و گفت که او و دولتش در تلاش‌اند که روابط آمریکا و ایران را به سطحی باثبات برسانند.
-اردوغان در این نشست که در حاشیه اجلاس سران ناتو برگزار شد، تاکید کرد که این تلاش‌ها در راستای برقراری صلح جهانی خواهد بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76801)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-<img src="https://cdn4.telesco.pe/file/KX_E1IEFKXhhIw-2JMXRRBMTuUwUUa12lH5bseBvJD2YffUrr1bzyXhcr5ZBTr-uHLE_P6T1H8xEutcqmBFVKnvohe3_le_DVk64rtOB1bvP5qMNUD65LB2MVs7gK34OL4PEqZ5luY3ZSR6TjdMirHB2U3jVnhCPH5FPot3qcD_NXqg_T5TnDZ_I2_Wk6qJVxVqn5wF2v5MHwJBpg5i9hyXSYHf-NGTMvtg40PZ9mIax8--9vqSFL0xEz-98ebg7ITD_tDppCsEFGzAdyxfjFKs1rNrzKTP8v0hrPgKjfp_9Tfar36SHnab2-aMz6Jy-gnynFiC0ETP7e2layOGIEw.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش روز سه‌شنبه ۱۶ تیرماه هنگام عبور از تنگهٔ هرمز با یک پرتابهٔ ناشناس هدف حمله قرار گرفت.
-این نهاد اعلام کرد نفتکش بر اثر این حمله دچار «آسیب سازه‌ای» شده، اما هیچ تلفات جانی یا آلودگی زیست‌محیطی گزارش نشده است.
-این حادثه یک روز پس از حمله به دو نفتکش، یکی حامل نفت خام عربستان سعودی و دیگری حامل گاز طبیعی مایع قطر، رخ داده است.
-خبرگزاری رویترز حمله به آن دو کشتی را تأیید کرده و وب‌سایت اکسیوس به نقل از دو مقام آمریکایی گزارش داده بود که سپاه پاسداران دست‌کم دو موشک به سوی آن‌ها شلیک کرده است؛ ادعایی که جمهوری اسلامی تاکنون به آن واکنشی نشان نداده است.
-سخنگوی وزارت خارجه قطر روز سه‌شنبه اعلام کرد هدف قرار دادن نفتکش قطری «الرکیات» در نزدیکی تنگه هرمز، حمله‌ای غیرقابل قبول به امنیت کشتیرانی بین‌المللی و تأمین جهانی انرژی است و ایران را مسئول حمله به آن دانست.
-هنوز هیچ گروه یا کشوری مسئولیت حملات تازه به نفتکش‌ها در تنگه هرمز را بر عهده نگرفته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76800)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-
-
-تصاویری که در شبکه‌های اجتماعی منتشر شده گروهی از شرکت‌کنندگان در مراسم تشییع جنازۀ علی خامنه‌ای را نشان می‌دهد که به عباس عراقچی ، وزیر خارجۀ جمهوری اسلامی ایران، حمله کرده و او را «بی‌شرف» خطاب می‌کنند.
-گروهی از هواداران نظام جمهوری اسلامی که با مذاکره و توافق با آمریکا مخالف هستند، اعضای تیم مذاکره‌کننده را به «سازشکاری» متهم می‌کنند. روز گذشته نیز تصاویری مشابه از حمله به مسعود پزشکیان در حاشیۀ تشییع جنازۀ علی خامنه‌ای منتشر شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76799)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-<img src="https://cdn4.telesco.pe/file/oZ36Wri3HuxdMnRdRrnKim5KHPBlKWE9bd0jbXeAN7nvoeJB6Eh00OEZFDxwxwB3DIQR700aK4Gee5c8DVpkPP125JBVxT6bpvBKMd0CDiDHq6AgQ_nj_JWNbA432HVCj7wxktjsxM06_1cKtFa928FtnrYBY3w3JqaQia7VyleNNovHpX9EIrCO3jdWi0QaWYV6vG4KiZHER_Z937S3sHlFyv9IKaaBVpSAwA_i7XDm7xJKK3MrinzsZzRcbWXFMD5dZWGFip4rFBWdq9bRyS6o_zvj99VfDM252Xr4CJEOEB25RSqBSgzYzE6_engc-cy2cZ-eDp2MRKiLzlgLbw.jpg" width="400"><br>
-
-هم‌زمان با نزدیک شدن زمان انتقال تابوت علی خامنه‌ای به عراق برای اجرای مرحله تازه‌ای از مراسم تشییع رهبر پیشین جمهوری اسلامی، محمدرضا سیستانی، فرزند ارشد علی سیستانی، مرجع عالی‌قدر شیعیان در نجف، به دفتر علی خامنه‌ای اطلاع داده است که پدرش بر تابوت او نماز نخواهد خواند.
-در همین حال، جواد شهرستانی، داماد و نماینده علی سیستانی در ایران، نیز در مراسم تشییع و نماز میت علی خامنه‌ای در تهران حضور نداشت.
-پیش‌تر محمدکاظم آل‌صادق، سفیر جمهوری اسلامی در عراق، اعلام کرده بود که مراسم استقبال رسمی از پیکر علی خامنه‌ای شامگاه سه‌شنبه در شهر نجف برگزار خواهد شد و آیین تشییع عمومی نیز از ساعت ۶ صبح روز چهارشنبه در شهرهای نجف و کربلا ادامه خواهد یافت.
-خودداری علی سیستانی از اقامه نماز میت بر پیکر علی خامنه‌ای در حالی صورت می‌گیرد که جمهوری اسلامی از زمان کشته شدن رهبر دوم خود، مجموعه‌ای از مراسم تشییع و وداع را در چند شهر ایران برنامه‌ریزی کرده و اکنون نیز در تلاش است این آیین را با برگزاری مراسم در شهرهای مذهبی عراق ادامه دهد.
-غیبت مهم‌ترین مرجع شیعیان عراق در این بخش از مراسم، یکی از مهم‌ترین حاشیه‌های مرحله عراقی تشییع علی خامنه‌ای به شمار می‌رود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76798)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-<img src="https://cdn1.telesco.pe/file/mTsVUP1Ig3rq5ZJ2mOWxpFHWL8uZ2lvjAHcnFlMNb0PM0ZY-_BVoa55fo1S1RXcGZ1_hDAgGsezBIKey_U798UaaIEYhYIIHf4bRuwi9ehgcpfPOcDtItmZt6yji-_OcVW5H8YslpGOKy2Haoi04ER-q-jtt-FmI6L_frnKnBCi7a5_J1stuKmtfcQdOlRSDa3N5EkOQ8Q-1Cy2cZ1Bjy9LtDdonf6lRO7L-k6It8L4XplTbu8Mo2da30Qp4nQj9DkCKnuyb2tmd7Oh8HASQXjyeCrhuJXJV09-X6ll1E20BEcTZJfWxcWZjD7zAOH0tx2RFaUDJbc8TF3sM3I3Dcw.jpg" width="400"><br>
-
-وب‌سایت اکسیوس به نقل از دو مقام آمریکایی گزارش داد که سپاه پاسداران روز دوشنبه دست‌کم دو موشک به سوی کشتی‌های تجاری در حال عبور از تنگه هرمز شلیک کرده است.
-بر اساس این گزارش، دو کشتی در پی این حمله آسیب قابل توجهی دیده‌اند، اما هیچ تلفات جانی گزارش نشده است.
-حمله گزارش‌شده پس از آن رخ می‌دهد که مهلت توافق یک‌هفته‌ای میان ایالات متحده و ایران برای توقف حملات در تنگه هرمز به پایان رسید.
-اکسیوس می‌نویسد که ازسرگیری حملات ایران، تفاهم‌نامه‌ای را که کمتر از سه هفته پیش امضا شده بود، در معرض فروپاشی قرار داده است.
-این منبع خبری می‌افزاید که
-احتمال می‌رود ایالات متحده در واکنش، اهدافی در ایران را هدف حملات نظامی قرار دهد.
-@
-VahidHeadline
-صداوسیمای جمهوری اسلامی به نقل از «برخی منابع» گزارش داد که «نفتکش الرقایات» متعلق به قطر، قصد داشت «با حمایت نیروی دریایی آمریکا» از مسیر عمانی تنگه هرمز عبور کند، اما «پس از بی‌توجهی به هشدارهای مکرر، هدف حمله قرار گرفته است.»
-این گزارش تلویزیون حکومتی جمهوری اسلامی این‌گونه القا می‌کند که تهران این حمله را انجام داده است. با این حال، جمهوری اسلامی تاکنون به‌طور رسمی مسئولیت این حمله را بر عهده نگرفته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76797)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-<img src="https://cdn4.telesco.pe/file/WVokYKzJK7O2S3s4esaNUH299xRxICnHptJGsmSTaylyeTc9QoAn3srkpB-mbBocNs20jbvR2E1hCeVRvLihbZlGfn8JS4thZkjDMNx2XK9uvdy6MCB-SweBgx-_SUjgRP2hLZwwi6gs0X9P02zBfYZxV0bhIa2m8C5ryx0BMTxf_ibtJmYpZmOfWVfER1XOzQVmfP899PE-gKE39mZZP0Sd0ZM-aAmfOUzVII_DjULvOsnDM8g_MN0fZDAsOERRL4IHHKQxc1HZqiJ3_KIhhvtUwzfvPcLM2YXTHqNmXRuBnymxPMeHV1vO8EWFppNJrnF5YtiUej2oR0H0i6x4fw.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا (UKMTO)، بامداد سه‌شنبه ۱۶ تیرماه، اعلام کرد یک نفتکش در حدود ۱۵ کیلومتری شرق لیما (Limah) در سواحل عمان، هنگام حرکت به سمت جنوب، از سمت چپ بدنه هدف یک پرتابه ناشناس قرار گرفت.
-به گفته این سازمان، این حادثه باعث آتش‌سوزی در نفتکش شد، اما تاکنون هیچ تلفات جانی یا آلودگی زیست‌محیطی گزارش نشده است.
-سازمان عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد مقام‌های مسئول در حال بررسی این حادثه هستند و به همه شناورها توصیه کرد هنگام عبور از این منطقه با احتیاط تردد کرده و هرگونه فعالیت مشکوک را به این سازمان گزارش دهند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76796)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-
-
-دونالد ترامپ، رئیس‌جمهور آمریکا، گفت که از جانی اینفانتینو، رئیس فیفا، خواسته است اخراج فولارین بالوگون، مهاجم تیم ملی آمریکا، را بازبینی کند، زیرا به اعتقاد او خطایی که منجر به کارت قرمز شد، عادلانه نبوده است.
-آقای ترامپ در جمع خبرنگاران در دفتر بیضی کاخ سفید گفت: «تنها کاری که کردم این بود که درخواست بازبینی دادم، چون فکر نمی‌کردم آن صحنه خطا باشد.»
-او همچنین داوری را که این کارت قرمز را نشان داده بود، «افتضاح» توصیف کرد.
-این اقدام بی‌سابقه، روند رسیدگی انضباطی فیفا را در کانون توجه جهانی قرار داده و با واکنش خشمگینانه بلژیک، رقیب آمریکا در دیدار روز دوشنبه برای کسب جواز حضور در مرحله یک‌چهارم نهایی، روبه‌رو شده است.
-اتحادیه فوتبال اروپا، یوفا، هم به‌شدت از این تصمیم غیرمنتظره فیفا انتقاد کرده و آن را «بی‌سابقه، غیرقابل درک و توجیه» توصیف کرده است.
-@
-VahidHeadline
-در ادامه واکنش‌های گسترده جهانی به رفع محرومت فولارین بالوگون، مهاجم تیم‌ ملی آمریکا، فدراسیون فوتبال بلژیک روز دوشنبه ۱۵ تیرماه اعلام کرد تصمیم فیفا برای صدور مجوز این بازیکن در رقابت مرحله یک‌هشتم نهایی جام جهانی را به چالش می‌کشد.
-فدراسیون فوتبال بلژیک در بیانیه‌ای گفت از روند طی‌شده برای این تصمیم «عمیقا نگران» است و برای دفاع از «اصول بنیادین اخلاق، رقابت عادلانه و منافع فوتبال» به پیگیری این پرونده ادامه خواهد داد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76795)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-
-
-دونالد ترامپ، رئیس‌جمهور آمریکا، روز دوشنبه بار دیگر گفت: من به دنبال تغییر حکومت در ایران نیستم، هرچند این تغییر حکومت اتفاق افتاده است.
-ترامپ افزود: حکومت اول از بین رفت، حکومت دوم از بین رفت. حکومت سوم معقول‌تر است. خواهیم فهمید.
-@
-VahidHeadline
-دونالد ترامپ گفت آمریکا یا با ایران به توافق خواهد رسید یا «کار را تمام خواهد کرد.»
-رئیس‌جمهور آمریکا در یک گفت‌وگوی تلویزیونی گفت قیمت نفت با وجود بسته شدن تنگه هرمز چندان بالا نرفت «آنقدر که ما نفت از آنها گرفتیم. مردم اصلا خبر نداشتند و همه اینها فقط در عرض یک ماه و نیم اتفاق افتاد.»
-رئیس‌جمهور آمریکا بار دیگر تکرار کرد که کشتی‌های نیروی دریایی و تمام هواپیماهای نیروی هوایی ایران را از بین برده است: «در نهایت فهمیدند که دیگر رادار ندارند، چون سامانه‌های راداریشان نابود شده بود. بنابراین، آخر شب و در تاریکی آنها را هدف قرار دادیم.»
-او همچنین گفت: «نیروی دریایی قدرتمند ما بزرگ‌ترین محاصره‌ای را که کسی ندیده اعمال کرد و در طول دو ماه حتی یک کشتی هم نتوانست از محاصره عبور کند. بعد نزدیک شدیم به اینکه شاید بتوانیم به توافقی برسیم پس محاصره را کاهش دادیم. نمی‌دانم، شاید هم به توافق برسیم.»
-آقای ترامپ تاکید کرد که «به هر حال پیروز خواهیم شد. یا به توافق می‌رسیم، یا کار را تمام می‌کنیم.»
-او گفت تمام کردن کار ایران کار آسانی است: «تمام کردن کار دشوار نخواهد بود. البته من ترجیح می‌دهم توافق شود، چون نمی‌خواهم ۹۱ میلیون نفر تحت تأثیر قرار بگیرند.»
-«ما می‌توانیم ظرف یک ساعت پل‌هایشان را ویران کنیم. می‌توانیم شبکه تأمین انرژی را از کار بیندازیم. همه آن نیروگاه‌های بزرگ، زیبا و مدرنی را که ساخته‌اند. آنها پول زیادی داشتند اما حالا دیگر پولی ندارند. ما هیچ پولی به آنها نداده‌ایم اما می‌توانیم برق و نیروگاه‌های تولید برقشان را از کار بیندازیم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76794)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-<img src="https://cdn1.telesco.pe/file/vN2Rp9vsRwmf5ug9l50hUSp-C5VkJmivOG3tYQDo39jReCj7PjANLugc1TsDX01dxVYeVboYK6dyBEWQtf-7MkzwCY8k0I_28tRkbhsZkEpcCmLMEJvLbX7oXnRhBFKM5-2yCPSSK0CaiTrxePlJNgpNRqXzMRH0gOzZZ-GXXBRJPKkY59D1ohs5x0tgGDcvI26XhwHQpPLyrzGvzoX-zCu9xeb6Tt36nelI_rF5gwfTy_f7laRQows2rR_fRvyPebqxGPvD3hG0OXCaOC0UmR8RkJ_lojtgxJ0CSJqPUAuBrlS9g6MwXJJTL_0EEJ2IsZN1r8R6FOdPwd_teDjdow.jpg" width="400"><br>
-
-صداوسیمای جمهوری اسلامی روز دوشنبه ۱۵ تیرماه تصاویری از حضور احمد جنتی، دبیر شورای نگهبان در مراسم تشییع پیکر علی خامنه‌ای منتشر کرد.
-رسانه‌ها روز دوشنبه همچنین تصویری از محمود احمدی‌نژاد را در مراسم مرگ رهبر سابق جمهوری اسلامی منتشر کردند.
-خبرگزاری فرانسه روز دوشنبه گزارش داده بود در حالی که مقام‌های جمهوری اسلامی تلاش کرده‌اند تصویری از وحدت در صفوف حکومت ارائه دهند، تاکنون هیچ‌یک از روسای جمهوری پیشین جمهوری اسلامی، که روابطشان با خامنه‌ای دچار تنش بود، در این مراسم‌ها دیده نشده‌اند.
-مراسم تشییع جنازه علی خامنه‌ای پس از دو روز قرار گرفتن پیکر او در مصلای تهران از ساعت شش صبح دوشنبه ۱۵ تیرماه آغاز شد.
-روز ۹ اسفندماه ۱۴۰۴، در موج اول حملات اسرائیل به تهران بیت علی خامنه‌ای به‌شدت بمباران شد،‌ به شکلی که تمام ساختمان‌های محوطه بیت با خاک یکسان شده بود و همین احتمال سالم ماندن جسد رهبر سابق جمهوری اسلامی را بسیار کم می‌کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76792)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 01:15:06
-
-<img src="https://cdn4.telesco.pe/file/e8v9nGCz5DrFy8puCzb1MgP7tAYWRdtogm7DLZBSelejV5f-2j95INeLpGqJeSWt9pnTD2IVmo53HEWhbQKNUJvg-iyP2-b397FgeyUyzqUQX-zkF2mpS0fDpD3EJE7xNbkEtZqw5BdrBXPqIHW5jbt93UQyWsec3bOnyFQQEF6cwsibKcTrNFHwquOnUG5Fq9sJCtQoELn3ZDbKDckf2GB0-lasfzAzBd4ol11plp1ipPm7ZkPD1sJsBPHj16gySyWNEJWQ6LGRIfrIXx95Rl0_Qddd5IMeNk6GFTlfMW9EEU1j2MmEmbni_L-_zlMrfkxe83Oh672UyDOZqUzwmA.jpg" width="400"><br>
-
-🔴
-شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی، آقای مهدی ناظر و خانم مهناز چاردولی، نامزد او، را به اعدام و ۱۰ سال حبس محکوم کرده است. همچنین خانم عاطفه ناظر، خواهر آقای مهدی ناظر، به ۱۰ سال حبس محکوم شده است. این سه نفر در تاریخ ۲۱ دی‌ماه ۱۴۰۴ در تهران بازداشت شدند.
-@IranRights
-
-[View Post](https://t.me/VahidOnline/76791)
 
 ---
 
