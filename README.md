@@ -3,7 +3,61 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
+
+<img src="https://cdn1.telesco.pe/file/YLeXGlM-v5uYJzAY4u6D7RF0vKvjz2WijmuJvt31MJ0363pcF6uFWibfvQ5pgFZMIlegV7Ekb1EOWcOQSNKhNFCSkPOdnOBIpPF6X8eXLrP1yW_qcfglh_uvN0za0GYZRnAe7PAnd0fJ2T614YstMXNsZP3oVeGokDnlAtO3qDF7EE5m61z3ZKMcIueivQX4_eWiCSwvXgB9hSZevLvQZrsfzBGpP6UiLBA36A5ijsuIlKTUH8x9OA9rDqN58O6GqU-QyCmKj4UFHp-hDcHp5-cVtOXqQ902chHWS4X21wCmpNXDL7ycKiKwj_axRwvronwJZPDRiN4nLPJwQNB6Ng.jpg" width="400"><br>
+
+ترامپ نوشته "این در تلافی بمباران دیروز کشتی‌ها توسط ایران است. اگر دوباره اتفاق بیفتد، خیلی بدتر خواهد شد!"
+هر چی عکس و فیلم از حمله امشب منتشر شده بود رو داره پست می‌کنه. حتی اون‌هایی که بعضی منابع اشتباهی پخش کرده بودند:
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76867)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 01:58:18
+
+
+
+ویدیوی دریافتی با شرح: 'همین الان پایگاه نظامی بین چغادک و
+#بوشهر
+'
+پنج‌شنبه ۱۸ تیر
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76866)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 01:58:18
+
+<img src="https://cdn1.telesco.pe/file/BoKwzxW0dGxSXBZSHh2sHCJFa5fX6_kNyyJKXfYmVeaj5frxEsv0ivwxj4Peo0Rz7dyewsvlN0YBpXSgRqMaLr24ytR5Dvlss_PvcWMsGA57ivdUuxrBg_M0rIPxkWtzZ67A70FKIsf_iXWwqJe-3uWbfsO_ITxY1wFUjMxCUkhIo4OzU0IVZZoAf0g08jSyDAn_NzlR54zfKQ4DiP42oWv3USxONZB9K4-C-Gcq_cJPAjJGbK2fVtM93LhF-wE3yKBp5G9Em8wzk3KdPYIXsIYRMvvMpwmxwUOuByrL6-ZHbIUu7kDNW7yrtlV_MdpZ0G-zleecSD-NX-P2jnMylQ.jpg" width="400"><br>
+
+تصاویر بالا با شرح 'برج دریایی اسکله بهشتی در چابهار' پخش شده‌اند.
+در خبری دیگر:
+خبرگزاری تسنیم گزارش داده است که جنگنده‌های آمریکایی پایگاه امام علی ندسا در چابهار را بمباران کردند.
+تسنیم اضافه کرده که تاکنون صدای حدود ده انفجار در چابهار و کنارک شنیده شده است.
+برق قسمتی از شهر چابهار نیز قطع شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76862)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 
 
@@ -21,7 +75,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 
 
@@ -40,7 +94,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 <img src="https://cdn1.telesco.pe/file/Aw29LaRjMMLlDXCNcnphB12Y8nCODGUKTFbzms4jIRRFRPkEOvxGzofQvZdSYBMCb1ZcNsZIpNwkXctF4O3ta-qYHo-E_7_tfmRwsSZpCBGnXt_d2w6mHPbDmI7Avg9e7kzlgIJMTMSeKAUTDNjuhmPApmEUUGs_Pv7RxUAlFnBKJpJNJvxlyRvIIH2bFf92RQlmQM2Boco-z9jT4hLc9gPJ0bFj8UCRExI4WkAaeq4D5SVFaF5P7AKMfwl426yIzJ9dcDzI1cHQFlLGM0RXMaiFW-XPTN0FT4tEOY6YLnVR9LiugZ8u1ytEKklb4NyKR2ONgpZO-yeBDOwXgOcEHQ.jpg" width="400"><br>
 
@@ -58,7 +112,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 
 
@@ -75,7 +129,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 <img src="https://cdn1.telesco.pe/file/bF_oyzT718RBciBZOsyhgTT6MsgX1kLaKnxPHbCT1y7VXx3drNl7ZcixnDawSv93A4XOjh5-yC5bOBkprxs9rdCukHvSpFxkuwgJSyV3Vx6BcZkHd-YLIL17VYNNsVljSWqFrhWEd2m5CpXpS5unOoA54zGka55aaKYIHOK6CSjQDQbKQHhSLsgeg3x4V-kMARO20VGbSO8imwJYoOkoYpgXI2MU3SmeALgKqkVHN7k8t66yZlawVDtRqLdWWNT78iITtycuWTlHYziXD7vrD7GI4ORre2hWM2v3zRsWtLoX25irDLHLadJ4bPksPK2ygHSLOIgBc8fCpINCAZvN4Q.jpg" width="400"><br>
 
@@ -93,7 +147,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 
 
@@ -111,7 +165,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 
 
@@ -131,7 +185,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 
 
@@ -166,7 +220,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 <img src="https://cdn1.telesco.pe/file/DmiAQ2b8LmW7aPW1oHlXoKgJGWczQ9Ck5MUtq2fYL7y3vDnR2hTQ5QdnoxJC_hqLQizJybAm2a5Vp4ez_vPedGTx6xsULfU1HdCaq__bUdsb_wQOHWXhAEN0O_ByaIDK2i-b81rjWIgw60peAVdgfUPytT3ytVRvQzttah_G51nFmvy6Agw4vQE8g2kYY0Is06xPfI6zG_QWScmL3i2wCofxXzbyeCXKa0BCoKn2qwBnMX0kLVPO7D9tL-Omb2NWmc93UHgJlYh2s5KsSpTDQHEVpy3jZcRQz4_V2anvWO9niPRSIeRw8FCLKR20oMy5uRQnpcu1Z9Xzx2zIRX3uVw.jpg" width="400"><br>
 
@@ -182,7 +236,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 
 
@@ -215,7 +269,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-09 00:51:01
+###### 🔵 Updated at: 2026-07-09 01:58:18
 
 <img src="https://cdn1.telesco.pe/file/MshS_zd5QTbFh_GN9gSXib_ZrGeAmrKqLSTaFNOxniKIGrmx059gLOI4p-rtAZ4iQ-2fdfHj7phiYthjt7JRM-B0CBZGdjMWfrrxFhcRfH0ooJQJZGZroy778dYoPh14Z9CwLA5ryNcxIdwOW2R9S0J90S3RQmfmkBDSUzeSR08hhdHgjCzjh_mfJWwZKgC7dmXlbNLphS8OQA4illoXjMu044EPdM2UlNd5AWGhV5ffhNC3z0c3Is4gCyTUJWwqH-f6QlAi1IPBZtYXDz9a_s-YraPL0wuPu81H6eJBnI_QKAbt6i-WP0Lw7d0BlZaj2IkioYPRl-0GS_7btJ-qXQ.jpg" width="400"><br>
 
@@ -227,122 +281,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76847)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 00:51:01
-
-
-
-(
-⚠️
-۴۰ دقیقه، ۸۰ مگابایت)
-کل سخنرانی ترامپ در نشست خبری اجلاس ناتو با زیرنویس فارسی ماشین
-دونالد ترامپ، رییس‌جمهور آمریکا، با اشاره به رهبران جدید جمهوری اسلامی گفت «ممکن است آن‌ها هم از بین بروند». او هم‌زمان تاکید کرد که درگیری با ایران طولانی نخواهد شد، اما واشینگتن در صورت لزوم به حملات خود ادامه می‌دهد.
-ترامپ روز چهارشنبه پس از پایان نشست سران ناتو در آنکارا، در کنفرانس خبری خود از نحوه مدیریت جنگ با ایران دفاع کرد و درباره رهبران جمهوری اسلامی گفت: «آن‌ها رهبرانی داشتند؛ دیگر نیستند. حالا مجموعه دیگری از رهبران را دارند. ممکن است آن‌ها هم از بین بروند.»
-او افزود: «ممکن است من هم کشته شوم، چون من هدف شماره یک آن‌ها هستم.»
-رییس‌جمهور آمریکا در بخش دیگری از سخنانش با اشاره به تشدید تنش‌ها میان تهران و واشنگتن گفت: «فکر نمی‌کنم جنگ دوباره آغاز شود. آن‌ها چند کشتی را هدف قرار دادند و ما خیلی شدیدتر پاسخ دادیم.»
-ترامپ تاکید کرد هرگونه درگیری احتمالی «خیلی سریع» پایان خواهد یافت و افزود: «هر اتفاقی که رخ دهد، خیلی سریع تمام می‌شود و فقط اوضاع را امن‌تر خواهد کرد، از جمله برای نفت. ما به دنبال یک درگیری طولانی‌مدت نیستیم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76846)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 00:51:01
-
-<img src="https://cdn4.telesco.pe/file/eojGcYoar86uIP5smGfT6haun-HTm0KVgQiv5w3GAPW7EKW7oPYsz5Dy41FTrwfm0dsiFT537guyJDIg6nmjQuCUV5fPjjoDDq41Ax__QrvXmBSqt6mrYq8cbkYfmyFGbmLQLXUxDDoo6lXNlomNq0RDRgu5QQMaJokBdmgmThTTj1OFzzB3ezIHyrjT16P8iyyDvJmnZy4j0ywOFfsq4qNGsYWTN2lhe4xO4FE3rsbZoH6v8jRlEwpxybL6OfreIhbYMPs8BiI2J1qvqICzYm92rRKB8W0t-ZR3Tvqmy0eT0bRqR2pI5sDBKR4oxdJCZoVW7sN411tAi-d8gAxj0A.jpg" width="400"><br>
-
-روابط عمومی ارتش جمهوری اسلامی با انتشار بیانیه‌ای اعلام کرد که در پی حملات آمریکا به مناطقی در جنوب ایران، هشت تن از نیروهای هوایی و دریایی ارتش در بندرعباس و بوشهر کشته شدند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76845)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 00:51:01
-
-<img src="https://cdn1.telesco.pe/file/lS9GYh5L54v3JOXfbjF5a1MCYspUivelXbqK9HLmcfAgmScqwacS2AHW6KPbxV9XgYLzeYr9JD41An4te53VG1BRyLXSmRB6kO3NZOKDSKVxlkNfidy6tGP_ooaeEqEvmP2qCKVvRJJopbLN1z0iKE0hPhcAs2gMSkPBF4qWs4NE9ioB586PdyX9f2B6OqmODi8F5Z3q8IJBRDDshlmoEUNpPRQ9-19tR0MDWTI1xbUf6Z3tW1IhLwPbvGVhjXj5ons3tB4iOrCeMQ6TCuU54dRM6YyuIX_Nv6baETU-gnYm9UJIl4l4oXu5QJ0mX5DwoJcRHtF9C_GbEt-zLLOMYA.jpg" width="400"><br>
-
-رییس‌جمهوری فرانسه، چهارشنبه در حاشیه نشست ناتو در پاسخ به خبرنگاران گفت حملات جمهوری اسلامی به پایگاه‌های آمریکا در خلیج فارس، توافق موقت را نقض کرده و تهران در انجام این حملات اشتباه کرده است.
-امانوئل مکرون در عین حال گفت انتظار دارد نشست‌ها در چارچوب آتش‌بس ۶۰ روزه میان آمریکا و جمهوری اسلامی ادامه یابد.
-@
-VahidOOnLine
-فریدریش مرتس، صدراعظم آلمان، نیز در حاشیه این نشست گفت: «ما به دونالد ترامپ گفته‌ایم که باید یک توافق پایدار با ایران حاصل شود، اما این ایران است که مسئول آخرین نقض توافق موقت آتش‌بس است.»
-@
-VahidOOnLine
-دبیرکل ناتو، حملات تازه آمریکا به مواضع جمهوری اسلامی را «کاملاً ضروری» خواند.
-مارک روته، پیش از نشست سران ناتو در آنکارا به خبرنگاران گفت وقتی آتش‌بس برقرار است و جمهوری اسلامی «عملاً آن را نقض می‌کند»، واکنش قاطع آمریکا اهمیت حیاتی دارد.
-روته روز سه‌شنبه نیز گفته بود هرچند جمهوری اسلامی در حوزه موشکی و هسته‌ای تضعیف شده، ناتو همچنان باید نسبت به تهدیدهای آن هوشیار بماند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76843)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 00:51:01
-
-<img src="https://cdn1.telesco.pe/file/Apc-suF6wfbgBVJAt2oHd47hvzBLkwXiFSDoD9uTbo_vMYQCQnlJ7OVFCAJ1x5quJmRi5iAvJ1myjlMcnFy7TdUjx6dztRjtPJfkAH6UnEtrtouup5wYd7BXInuazodu21XrZCSSKA-FcTPdt5F-zBY65uWfWb-9mayJeIiAaAWlxQsTTTM9Uv3cOpap1HDeA0ZGBwKbCVpdRvxUEM-5j1ijdZk92MCgZpAasJ6urcZCi9tfEq8TbAbbTFzhPOA_UwrqoB1FZ-LrLGX4nLn_tLitdPtyG_5HkiPAbfyQYkrZdkprf4YhnbA3HMKul37HILiMHLa56Jg8NwH8MWaKHw.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، گفت ارتش این کشور احتمالا امشب دور تازه‌ای از حملات علیه اهدافی در ایران انجام خواهد داد.
-ترامپ پیش از دیدار با ولودیمیر زلنسکی، رییس‌جمهوری اوکراین، با اشاره به حملات جمهوری اسلامی به شناورها در تنگه هرمز گفت: «آن‌ها چند پهپاد و یک موشک به سمت شناورها شلیک کردند، در حالی که این شناورها حق داشتند در تنگه هرمز حضور داشته باشند. به همین دلیل دیشب بسیار سخت به آن‌ها حمله کردیم.»
-او افزود: «احتمالا امشب هم بار دیگر حمله بسیار شدیدی انجام خواهیم داد. فقط کمی از قبل به آن‌ها هشدار می‌دهم.اما باید ببینیم در نهایت اوضاع چگونه پیش می‌رود.
-@
-VahidOOnLine
-دونالد ترامپ، رییس‌جمهوری آمریکا، با تاکید بر نقض مداوم آتش‌بس از سوی جمهوری اسلامی، گفت: «آن‌ها هرگز تحت توافق ما به سلاح هسته‌ای دست نخواهند یافت. اما نمی‌دانم اصلا توافقی در کار خواهد بود یا نه؛ شاید این مسئله را بدون توافق حل کنیم.»
-ترامپ گفت جمهوری اسلامی «هر روز» آتش‌بس با آمریکا را نقض می‌کند.
-او افزود: «آن‌ها دروغ می‌گویند، تقلب می‌کنند و آدم می‌کشند.»
-ترامپ بار دیگر از توافق هسته‌ای دوران ریاست‌جمهوری باراک اوباما انتقاد کرد و آن را «یکی از بدترین فاجعه‌ها» خواند.
-او گفت: «توافق ما دیواری در برابر دستیابی به سلاح هسته‌ای است، اما توافق او [باراک اوباما] جاده‌ای به سوی سلاح هسته‌ای بود.»
-@
-VahidOOnLine
-رئیس‌جمهور آمریکا با انتقاد شدید از مقام‌های جمهوری اسلامی آنها را «بیمار» خواند و گفت ما به آنها گفتیم بروید و مراسم تشییع جنازه خود را انجام دهید. آنها به جای آن، دیروز شروع به شلیک موشک به کشتی‌ها کردند.»
-دونالد ترامپ که در کنار مارک روته، دبیرکل پیمان آتلانتیک شمالی، ناتو، در آنکارا با خبرنگاران صحبت می‌کرد با اشاره به حملات هوایی شب گذشته اضافه کرد: «ما هم دیشب ضربه سختی به آنها ضربه زدیم، خیلی سخت.»
-@
-VahidHeadline
-ترامپ گفت: «آن‌ها درخواست یک وقفه کردند. می‌خواستند برای مراسم تشییع جنازه خامنه‌ای بروند. من گفتم این فرصت را به آن‌ها بدهید. و آن‌ها دو موشک شلیک کردند. منظورم این است که این دیوانه‌وارترین کار بود.»
-رییس‌جمهوری آمریکا افزود: «ما می‌توانستیم آن‌ها را بکشیم؛ بنابراین فکر می‌کنم باید از این زاویه هم به موضوع نگاه کرد.»
-او همچنین گفت جمهوری اسلامی درخواست کرده بود که آمریکا آن‌ها را نکشد و افزود: «ما گفتیم قرار نیست شما را بکشیم. هیچ کاری نکردیم. در واقع، ما امنیت آن‌ها را هم تامین کردیم.»
-@
-VahidOOnLine
-ترامپ در جریان نشست خبری در آنکارا، جمهوری اسلامی ایران را به اشتباه جمهوری اسلامی «ژاپن» خواند. او بار دیگر اشاره کرد که در جریان جنگ، جمهوری اسلامی ۱۱۱ موشک به سمت ناوهای هواپیمابر آمریکایی مستقر در منطقه شلیک کرده است. فرماندهی مرکزی ارتش آمریکا، سنتکام، پیش از این اعلام کرده بود که این موشک‌ها رهیابی شده یا به هدف نرسیده‌اند.
-@
-VahidOOnLine
-ترامپ گفت که حملات اخیر ایالات متحده به ایران «تاثیر فوق‌العاده‌ای» داشته است. او گفت که در این حملات، سامانه‌های راداری که تهران در حال بازسازی آن‌ها بود، منهدم شده است.
-ترامپ هشدار داد که آمریکا می‌تواند تنش‌ها را بیش از پیش افزایش دهد. او گفت: «تاسیسات تولید برق، نیروگاه‌های برق... اگر مجبور شویم، آن‌ها را از کار می‌اندازیم» و افزود: «تاسیسات آب‌شیرین‌کن... اگر لازم باشد آن‌ها را هم هدف قرار می‌دهیم. دلم نمی‌خواهد این کار را انجام دهم.»
-او همچنین اظهار داشت که ایالات متحده می‌تواند جزیره خارگ، جزیره‌ای با اهمیت استراتژیک در سواحل ایران را «تصرف» کند و گفت که در آن صورت، ایران «هیچ کاری» نمی‌تواند در برابر آن انجام دهد.
-@
-VahidOOnLine
-ترامپ گفت جمهوری اسلامی «هر روز توافق را نقض می‌کند» و به همین دلیل آمریکا «چاره‌ای جز ادامه حملات» علیه ایران ندارد.
-ترامپ با اشاره به توافق آتش‌بس، گفت: «آن‌ها هر روز توافق را نقض می‌کنند. دروغ می‌گویند. تقلب می‌کنند. مردم را می‌کشند.»
-رئیس‌جمهوری آمریکا همچنین با انتقاد از دولت‌های پیشین ایالات متحده افزود: «در ۴۷ سال گذشته هیچ رئیس‌جمهوری کاری در برابر آن‌ها انجام نداد.»
-@
-VahidOOnLine
-ترامپ بار دیگر تاکید کرد که ذخیره اورانیوم با غنای بالای ایران، تنها به‌وسیله تجهیزات آمریکایی قابل استخراج است. ترامپ با اشاره به حملات تابستان سال گذشته، یادآوری کرد که این مواد زیر آوار تاسیسات و زیر کوه باقی مانده است.
-رئیس‌جمهوری آمریکا، با تاکید بر این‌که نیازی به اعزام نیروی زمینی به ایران نمی‌بیند، گفت: «وقتی که آن‌ها کاملا از بین رفته باشند یا توافقی حاصل شده باشد، برای خارج کردن مواد هسته‌ای می‌رویم.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76833)
 
 ---
 
