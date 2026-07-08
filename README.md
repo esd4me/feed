@@ -3,7 +3,77 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-08 22:10:23
+###### 🔵 Updated at: 2026-07-08 23:38:00
+
+
+
+پیام‌های دریافتی تایید نشده:
+صدای انفجار چابهار
+فک کنم کنارک بود
+چندین صدای وحشتناک  10تا بمب زدن
+۵ تا صدای انفجار شدید اومد
+چابهار
+داداش الان چابهار رو هم زدن
+7 و 8 تا صدا اومد
+ما تو روستای رمین هستیم برقا رفت و صداش اومد خونه لرزید
+سلام کنارک وحشتناک صدای انفجار اومد
+چابهار زدن چند تا انفجار شدید
+ما کمب هستیم واقعا درهای خونه ما بشدت لرزید
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76848)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 23:38:00
+
+<img src="https://cdn1.telesco.pe/file/LfxqV6HKF6Jp9tp0Jww8CDuK8M7Ss3REJW_hKKl_ruTLETtjMxDe41Vnf8I2eDCpi9zPR0FF4jyz3Yk-P-Yl-bx-RamS0HXHdFxWJap95emvsQAF90f0ML0swrVso3O_Qp5PDXqIFj5ipiwsOLdcY3uHSlfgYDQpQNY9-TiU28jlERku31r7SLro-oHxslfnln2NrEZx56mlziX96ayUZ7oa4uY7yd3IGNyCrBgA2z2OMmIgHr6nBzuHdzwjuQ611bdT2c1b55CGN2mp7GTp4u6coGeDnTXu70VRFuGNloscWsmf1siyN2dfJq1G0xRKRdFKDBilmdYnb8Z-zDCKNw.jpg" width="400"><br>
+
+رسانه‌های حکومتی ایران از شنیده شدن صدای چند انفجار در بندرعباس و سیریک در جنوب کشور خبر دادند.
+خبرگزاری‌های فارس و مهر شامگاه چهارشنبه ۱۷ تیر گزارش دادند که حوالی ساعت ۱۱:۱۵ شب صدای چند انفجار در بندرعباس و شهرستان سیریک شنیده شده است.
+بر اساس این گزارش‌ها، شماری از این انفجارها از سمت دریا و در محدوده ساحل غربی سیریک به گوش رسیده است.
+@
+VahidHeadline
+پیش‌تر دونالد ترامپ در حاشیه نشست ناتو گفته بود ارتش آمریکا احتمالا امشب دور تازه‌ای از حملات علیه اهدافی در ایران انجام خواهد داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76847)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 23:38:00
+
+
+
+(
+⚠️
+۴۰ دقیقه، ۸۰ مگابایت)
+کل سخنرانی ترامپ در نشست خبری اجلاس ناتو با زیرنویس فارسی ماشین
+دونالد ترامپ، رییس‌جمهور آمریکا، با اشاره به رهبران جدید جمهوری اسلامی گفت «ممکن است آن‌ها هم از بین بروند». او هم‌زمان تاکید کرد که درگیری با ایران طولانی نخواهد شد، اما واشینگتن در صورت لزوم به حملات خود ادامه می‌دهد.
+ترامپ روز چهارشنبه پس از پایان نشست سران ناتو در آنکارا، در کنفرانس خبری خود از نحوه مدیریت جنگ با ایران دفاع کرد و درباره رهبران جمهوری اسلامی گفت: «آن‌ها رهبرانی داشتند؛ دیگر نیستند. حالا مجموعه دیگری از رهبران را دارند. ممکن است آن‌ها هم از بین بروند.»
+او افزود: «ممکن است من هم کشته شوم، چون من هدف شماره یک آن‌ها هستم.»
+رییس‌جمهور آمریکا در بخش دیگری از سخنانش با اشاره به تشدید تنش‌ها میان تهران و واشنگتن گفت: «فکر نمی‌کنم جنگ دوباره آغاز شود. آن‌ها چند کشتی را هدف قرار دادند و ما خیلی شدیدتر پاسخ دادیم.»
+ترامپ تاکید کرد هرگونه درگیری احتمالی «خیلی سریع» پایان خواهد یافت و افزود: «هر اتفاقی که رخ دهد، خیلی سریع تمام می‌شود و فقط اوضاع را امن‌تر خواهد کرد، از جمله برای نفت. ما به دنبال یک درگیری طولانی‌مدت نیستیم.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76846)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 23:38:00
 
 <img src="https://cdn4.telesco.pe/file/eojGcYoar86uIP5smGfT6haun-HTm0KVgQiv5w3GAPW7EKW7oPYsz5Dy41FTrwfm0dsiFT537guyJDIg6nmjQuCUV5fPjjoDDq41Ax__QrvXmBSqt6mrYq8cbkYfmyFGbmLQLXUxDDoo6lXNlomNq0RDRgu5QQMaJokBdmgmThTTj1OFzzB3ezIHyrjT16P8iyyDvJmnZy4j0ywOFfsq4qNGsYWTN2lhe4xO4FE3rsbZoH6v8jRlEwpxybL6OfreIhbYMPs8BiI2J1qvqICzYm92rRKB8W0t-ZR3Tvqmy0eT0bRqR2pI5sDBKR4oxdJCZoVW7sN411tAi-d8gAxj0A.jpg" width="400"><br>
 
@@ -19,9 +89,9 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-08 22:10:23
+###### 🔵 Updated at: 2026-07-08 23:38:00
 
-<img src="https://cdn1.telesco.pe/file/HQNIf_VCUcNM-v6GfhjqF3AqwvzfGd-QaFZfTh1RyP0ndILy3IwxNBq8wE6a7B0jVapDcgIxOUA1RPUJ1kpADus2h7gBNPGHPeH4rslFcarUYTpSggrDTCXznx4UgkpSiR2RQgolZQ4U8jrY6z0qxCNI3jQjevMTPuzIfn83fr9yVWEk2B_rXNuCml2fqZLTkte0Vhvtv9ubmr9H2aIahLR5Qi6ngnmNeAEpG8HXeYi1779IpyJJvtNREjVZqwKh-fppi15-LttLDJ8HNi4MvVaLNq7TEC6rEBI5XLLcmZXmF0Hq7VOlgyllfkHt-ISRbJCLOhSbelnpBPUs54JQaw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/lS9GYh5L54v3JOXfbjF5a1MCYspUivelXbqK9HLmcfAgmScqwacS2AHW6KPbxV9XgYLzeYr9JD41An4te53VG1BRyLXSmRB6kO3NZOKDSKVxlkNfidy6tGP_ooaeEqEvmP2qCKVvRJJopbLN1z0iKE0hPhcAs2gMSkPBF4qWs4NE9ioB586PdyX9f2B6OqmODi8F5Z3q8IJBRDDshlmoEUNpPRQ9-19tR0MDWTI1xbUf6Z3tW1IhLwPbvGVhjXj5ons3tB4iOrCeMQ6TCuU54dRM6YyuIX_Nv6baETU-gnYm9UJIl4l4oXu5QJ0mX5DwoJcRHtF9C_GbEt-zLLOMYA.jpg" width="400"><br>
 
 رییس‌جمهوری فرانسه، چهارشنبه در حاشیه نشست ناتو در پاسخ به خبرنگاران گفت حملات جمهوری اسلامی به پایگاه‌های آمریکا در خلیج فارس، توافق موقت را نقض کرده و تهران در انجام این حملات اشتباه کرده است.
 امانوئل مکرون در عین حال گفت انتظار دارد نشست‌ها در چارچوب آتش‌بس ۶۰ روزه میان آمریکا و جمهوری اسلامی ادامه یابد.
@@ -44,7 +114,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-08 22:10:23
+###### 🔵 Updated at: 2026-07-08 23:38:00
 
 <img src="https://cdn1.telesco.pe/file/Apc-suF6wfbgBVJAt2oHd47hvzBLkwXiFSDoD9uTbo_vMYQCQnlJ7OVFCAJ1x5quJmRi5iAvJ1myjlMcnFy7TdUjx6dztRjtPJfkAH6UnEtrtouup5wYd7BXInuazodu21XrZCSSKA-FcTPdt5F-zBY65uWfWb-9mayJeIiAaAWlxQsTTTM9Uv3cOpap1HDeA0ZGBwKbCVpdRvxUEM-5j1ijdZk92MCgZpAasJ6urcZCi9tfEq8TbAbbTFzhPOA_UwrqoB1FZ-LrLGX4nLn_tLitdPtyG_5HkiPAbfyQYkrZdkprf4YhnbA3HMKul37HILiMHLa56Jg8NwH8MWaKHw.jpg" width="400"><br>
 
@@ -95,7 +165,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 22:10:23
+###### 🔵 Updated at: 2026-07-08 23:38:00
 
 <img src="https://cdn1.telesco.pe/file/v-USQ9zqrM_4HpDfcKrPyknm6cBYxSTBNDn_uRvUQw8qMXZV3Y7yZCVDCHeXl9oXT_zblLMDl-wsT8dxSv9_nhsCxMgPLMT60X7CN825C78xSNAF7FWeQcfYBZughwDyd5i4_CpY6Ceh4oalWYwSTu1jqNk5Ks61lQ5uIW4JdI62f1UBMYeOrcCCVnRTflYkquJEgCY52d1c1JQ4yiVb-MgOIXP8QusJ1iFxNdJe4XSAJmT3eO4KQsKpAkUyQKbGk8FE-s-to97qQUeLKjEvhx_mgsCyZyFehjNdmXDGCVybhF_g6pQdAj4FK23u1t_z9okPZZkMZZpMiYm-jjeVHg.jpg" width="400"><br>
 
@@ -119,7 +189,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-08 22:10:23
+###### 🔵 Updated at: 2026-07-08 23:38:00
 
 <img src="https://cdn1.telesco.pe/file/jnlX9Iw2zeOKeTl0WecACeUFC-6I9tZfMT98E2rp2IDTX113woevjpVGWG0TGxoNzEotF5mkkQthFjlFhfwrDV-jpc6gvVL6yI3dyhigqq_mYTHfrPtkiB3hR0okRmHq_-6rUigvFYpxDNzqtzNKV2IIVE9t39tmSuice3Sf3OcBONwFNymKchOb5BrSl0NrNAsHLllyH4vZKPSSyNdUyldM5KqSldoR6Z3Cy9uTS-ydk0T7fLeQa-w-YXvEIGpYtYpuJXol9BxuQAsaDWkL1XX5vJkSiNsqMz_iFg42xIPsCjhUI9rHVvCXuMKbLfiMxvG1aojcgSov2hIEgQgK2Q.jpg" width="400"><br>
 
@@ -144,7 +214,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 22:10:23
+###### 🔵 Updated at: 2026-07-08 23:38:00
 
 
 
@@ -164,71 +234,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76829)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 22:10:23
-
-<img src="https://cdn1.telesco.pe/file/uZ0CAfJazpcU3dTxntUPCbxG02WYrgKgL1_f1e1HEL-YGUhRrlg50qPpDxSxenxxT4PUDdBxr5XDx3HofbI1auYYduw72HPIjlNX99HSO3Y9ch2OgoQIsHPblDnNqRHY0wzwpKJteALZzfx4UGtx_lCheVzsKsYIpgX5fatrJeZekDdFR8gT3uNXLav1PFaBM0oziGLMpJezmVWaURZ_qsHjnhuyRQYSW8ElZGmMfXn_su-zrjujV2YsSgaIgcN2R6ak0vGS-b3pEQ3pGjcD2J6z3mTHmreWEXaMm65uYqzWxNxhHlDwewRWGa6PVdMeJv4Ywzz9VsX4Hk7NgzoSxw.jpg" width="400"><br>
-
-پست پزشکیان، ترجمه ماشین:
-رفتار دولت آمریکا به‌عنوان میزبان جام جهانی همان سیاست خارجی آشنای آن را دنبال می‌کند: دستکاری قواعد، زورگویی به رقبا، مانع‌تراشی و تقلب. این همان دستور کار MAGA آنهاست. ایران چنین بازی‌هایی را رد می‌کند. ما قاطعانه پای حقوق خود ایستاده‌ایم.
-drpezeshkian
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76828)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 22:10:23
-
-
-
-پیام‌های دریافتی تایید نشده:
-‌
-الان زد بوشهر رو ۱۰:۴۱
-سلام وحید جان ساعت ۱۰۴۰ صدای انفجار شدید در بوشهر
-سلام وحید همین الان ساعت ۱۰:۴۰ دقیقه صدای دوتا انفجار شدیدی توی بوشهر شنیدیم
-سلام وحید الان بوشهر رو زدن فکر کنم پایگاه هوایی بود دوبار صدا اومد
-بوشهر پنج تا شش تا صدای انفجار سمت پایگاه هوایی و دریایی ارتش
-بوشهرو الان دوباره زدن
-بوشهر یه بار حدود ۱۰:۳۰ دوبار زدن یه بار هم حدود ۱۰:۴۰، بار دوم نزدیک‌تر بود
-ما پایگاه هوایی بوشهر هستیم
-حدود ساعت ۱۰.۴۰   دو تا صدای انفجار اومد
-دو سه دقیقه پیش هم دوبار
-به نسبت انفجارهای روزهای جنگ معمولی تر بود
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76827)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 22:10:23
-
-<img src="https://cdn1.telesco.pe/file/K7sfRLD-SLB3loHTawE0L7L54zbtkVlJqa6rcUdIelsxQvP5khBld77RuXByT5T2DCNiyJZW_Ks93ELg7nwMERM8S0JVS2zkfhwBbL8yjrg5LRIYmkTuGj74PSc7FZ3pw_OWyHQmvaz_xbUrULjL30MPHyO9QnvZ1T_kdQvUc8HIQpAFLJEoGHL_DOnYTrJMhaTOpCrO0UasZpbxtzSM7B_0O0U5Owu0XjJt-8TLn_FkVjJQEMygjEw-dmGG2NsPjBHQlxuvSMsbDEc9w45WqCUbUrQ9gUH3iQRcMkGt0fOfmCy9RF32YhW1RZAPCkx3E0_ktK4fGxbffi9srFuzKg.jpg" width="400"><br>
-
-سپاه: پاسخ دادیم
-منابع حکومتی:
-پاسخ اولیه به تجاوز آمریکا با هدف قرار دادن ۸۵ نقطه از تاسیسات مهم نظامی آمریکا
-اطلاعیه روابط عمومی سپاه پاسداران انقلاب اسلامی:
-بسم الله قاصم الجبارین
-🔹
-به دنبال حماسه سازی ملت بزرگ ایران در تشییع دشمن شکن و پرشکوه بی سابقه یگانه دوران و قائد شهید امت اسلام، رژیم متجاوز آمریکا که روز به روز ابعاد شکستش بیشتر آشکار می شود و بازتاب جهانی خیزش عظیم و میلیونی ملت سرافراز عراق در بدرقه تاریخ ساز رهبر مجاهد شهید را شکست بزرگتری برای خود میداند، بار دیگر عادت پیمان شکنی خود را تکرار کرد و وحشت‌زده برای تحت شعاع قرار دادن این رویداد تاریخی، ارتش کودک کش و تروریست آمریکا در ساعات اولیه بامداد امروز با تهاجم هوایی به تعدادی از پایگاه‌های ساحلی و ایستگاه‌های غیر نظامی در سواحل استان هرمزگان و ماهشهر به طور آشکار آتش بس را نقض کرد و تفاهم اسلام آباد را زیر پا گذاشت.
-🔹
-در پاسخ اولیه به این تجاوز نیروهای دریایی و هوافضای سپاه پاسداران انقلاب اسلامی طی عملیات مشترک موشکی و پهپادی، ۸۵ نقطه از تاسیسات مهم نظامی آمریکا در بندر سلمان، منطقه پنجم دریایی بحرین و پایگاه هوایی علی السالم کویت را در هم کوبیدند و یک پهپاد MQ9 دشمن که قصد دخالت در عملیات را داشت، سرنگون کردند.
-و ما النصر الا من عندالله العزیز الحکیم
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76826)
 
 ---
 
