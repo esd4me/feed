@@ -3,7 +3,110 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-08 04:40:34
+###### 🔵 Updated at: 2026-07-08 08:00:37
+
+<img src="https://cdn1.telesco.pe/file/PK7vVKToe8IH-waQHbrJxq_CR1xOtUBqK6IAtOg2zkcywF1WgSNYGx6T3LrJM5ThGZ4bXTl9RhaL8lS_IYkcroNxvpsaj-IB1nk2ZumHCP9FYfn_APXGy4QpkOiO7ZWqHRJ6wgJsG181orwEo3sq1xVR1fUy9E0T0Yx6bLR32LtwfgMcYEsBO1pSPLCY0ndE-TP7BipfFTqd-7aJIH9_uPwSzRuP19yNk-dl21XisXLEM5s6whcNwkCF6HYnet7heK0wobpYFo1WXuzLLbwpIvHKtCwQaMYsgu3Gg_OrVZVBaOZtOtfVTva5aScCWF5s81fL-P6TvxYKNX-Dsxzylg.jpg" width="400"><br>
+
+سپاه: پاسخ دادیم
+منابع حکومتی:
+پاسخ اولیه به تجاوز آمریکا با هدف قرار دادن ۸۵ نقطه از تاسیسات مهم نظامی آمریکا
+اطلاعیه روابط عمومی سپاه پاسداران انقلاب اسلامی:
+بسم الله قاصم الجبارین
+🔹
+به دنبال حماسه سازی ملت بزرگ ایران در تشییع دشمن شکن و پرشکوه بی سابقه یگانه دوران و قائد شهید امت اسلام، رژیم متجاوز آمریکا که روز به روز ابعاد شکستش بیشتر آشکار می شود و بازتاب جهانی خیزش عظیم و میلیونی ملت سرافراز عراق در بدرقه تاریخ ساز رهبر مجاهد شهید را شکست بزرگتری برای خود میداند، بار دیگر عادت پیمان شکنی خود را تکرار کرد و وحشت‌زده برای تحت شعاع قرار دادن این رویداد تاریخی، ارتش کودک کش و تروریست آمریکا در ساعات اولیه بامداد امروز با تهاجم هوایی به تعدادی از پایگاه‌های ساحلی و ایستگاه‌های غیر نظامی در سواحل استان هرمزگان و ماهشهر به طور آشکار آتش بس را نقض کرد و تفاهم اسلام آباد را زیر پا گذاشت.
+🔹
+در پاسخ اولیه به این تجاوز نیروهای دریایی و هوافضای سپاه پاسداران انقلاب اسلامی طی عملیات مشترک موشکی و پهپادی، ۸۵ نقطه از تاسیسات مهم نظامی آمریکا در بندر سلمان، منطقه پنجم دریایی بحرین و پایگاه هوایی علی السالم کویت را در هم کوبیدند و یک پهپاد MQ9 دشمن که قصد دخالت در عملیات را داشت، سرنگون کردند.
+و ما النصر الا من عندالله العزیز الحکیم
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76826)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 08:00:37
+
+<img src="https://cdn4.telesco.pe/file/FIukIwSq0lQnuBghGnoCICgqip5WoONu75I9tzH3KFn_waknW6t1HKDM_UBoIEuugXbjd0_HCf2JXHctq3xGvtk9r0x-s3d8dGMJcMp82_HSr1Nq1eiruX9AumnddBjMOWHsxO9cyHotjrpi1x3Iw1rMEovBhdttT6uXqqigzQ2We_EphIhwBkyyziXyYCOUVbTBaLOu7la1AgcomnBlqhqhhDQ-TfL44fe4JKO3eeTzpuoou9MMIPAGrT4CTPJ4fObjwKHa52jR3aHN3GF8Z9iT65HK-6gCQBNv2hnAQIE6oDWXmIKpLezcrv5HSZ_oGg2AqgAtzg1zABv1sBCj3A.jpg" width="400"><br>
+
+محمدباقر قالیباف، رئیس مجلس شوری اسلامی پس از حمله‌های بامداد چهارشنبه آمریکا به اهدافی در جنوب ایران در واکنش به حمله‌های دو روز گذشته سپاه به سه کشتی در نزدیکی تنگه هرمز در پیامی به زبان انگلیسی در اکس نوشت: کلیدی‌ترین موارد نقض تفاهم‌نامه ۱۴ بندی توسط آمریکا:
+۱ - نقض ترتیبات ایرانی در تنگه هرمز
+۲- تهدیدهای مداوم به حملات نظامی بیشتر
+۳- حمله به مناطق جنوبی ایران
+۴- بازگرداندن تحریم‌های نفتی
+۵- استمرار حمله‌های اسرائیل به لبنان
+او در ادامه این پیام نوشت: «دوره قلدری و باج‌گیری تمام شده است، راه به جایی نمی‌برید، ما اهل کوتاه آمدن و عقب کشیدن نیستیم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76825)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 08:00:37
+
+<img src="https://cdn1.telesco.pe/file/UPhJT2QdAApAwRxR0zRU4qz3k85wUGHcajZIbfLenBsn2pQgWsH5qXabMquLV5KZHnKqgIBC2i27QglwOZ3ncg10qzqZGuw2z7FSP4g1OrudzbpWTNhpZvAsFRlK5Q3N6ZAzO7xDGtatBj5UEYfrgD2nmXN0dgTUuy8RDXScQe47yg343D7LGGYMzSOOA-fQyLEyYXlvfuwRCtF_unxWz7rsVfNCbaiCSVoE1sfwRkByiL9hE1vSdW6qXNLHfnFaa7I5J_QkDL_LYSIBSj2FOtGAXskPis9vC1dm55JNYSvWgfgtmCbxhPvFE43NENH4tDJWgMdN3NLntQfA6TU2qQ.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+همین الان ساعت ۶:۲۷ چهارتاموشک [استان فارس] شلیک شد وحید
+موشک پرانی همین الان [استان] فارس
+هم‌زمان پیام دریافتی درباره آژیر در بحرین:
+Sirens again in Bahrain for the 2nd time just now
+ارتش کویت: پدافند هوایی در حال مقابله با حملات موشکی و پهپادی است
+آپدیت:
+ستاد کل نیروهای مسلح کویت بامداد چهارشنبه اعلام کرد سامانه‌های پدافند هوایی این کشور در حال مقابله با حملات موشکی و پهپادی دشمن هستند.
+در بیانیه ستاد کل ارتش کویت آمده است: «اگر صدای انفجار شنیده شود، ناشی از رهگیری حملات دشمن توسط سامانه‌های پدافند هوایی است.»
+ارتش کویت از شهروندان و ساکنان این کشور خواسته است دستورالعمل‌های امنیتی و ایمنی صادرشده از سوی نهادهای مسئول را رعایت کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76824)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 08:00:37
+
+
+
+سنتکام: بیش از ۸۰ هدف نظامی را با مهمات هدایت‌شونده هدف قرار دادیم
+ترجمه ماشین:
+تامپا، فلوریدا — نیروهای فرماندهی مرکزی ایالات متحده آمریکا (CENTCOM) روز ۷ ژوئیه دور تازه‌ای از حملات تهاجمی علیه ایران را تکمیل کردند و در واکنشی فوری به تازه‌ترین حملات ایران به کشتی‌های تجاری در حال عبور از تنگه هرمز، بیش از ۸۰ هدف را با مهمات هدایت‌شونده دقیق هدف قرار دادند.
+نیروهای آمریکا سامانه‌های پدافند هوایی ایران، شبکه‌های فرماندهی و کنترل، سایت‌های رادار ساحلی، توانمندی‌های موشکی ضدکشتی، و بیش از ۶۰ قایق کوچک سپاه پاسداران انقلاب اسلامی را در تنگه و اطراف آن هدف قرار دادند تا توانایی ایران برای ادامه حمله به تجارت بین‌المللی در این گذرگاه تجاری بین‌المللی را تضعیف کنند.
+ایران اخیراً به سه کشتی تجاری در حال عبور از تنگه حمله کرده است؛ از جمله M/T Al Rekayyat با پرچم جزایر مارشال، M/T Wedyan با پرچم عربستان سعودی، و M/T Cyprus Prosperity با پرچم لیبریا. این تجاوز بی‌دلیل از سوی نیروهای ایرانی نقضی آشکار و خطرناک از آتش‌بس است و آزادی کشتیرانی را تضعیف می‌کند.
+نیروهای سنتکام در موضع آمادگی باقی مانده‌اند و آماده‌اند هر زمان که توافق رعایت یا اجرا نشود، ایران را پاسخگو کنند.
+CENTCOM
+قرارگاه خاتم‌الانبیا: پاسخ کوبنده می‌دیم
+خبرگزاری رسمی جمهوری اسلامی، ایرنا:
+قرارگاه خاتم‌الانبیا: نیروهای مسلح جمهوری اسلامی ایران به تجاوز و اقدام تروریستی آمریکا پاسخ کوبنده‌ای می‌دهند
+🔹
+تحت هیچ شرایطی اجازه دخالت در امور تنگه هرمز و مدیریت آن را نخواهیم داد.
+🔹
+بی‌سابقه‌ترین رویداد و حضور مردمی در تشییع و بدرقه قائد شهید امت اسلامی، شکست خفت باری را بر استکبار جهانی و آمریکای جنایتکار وارد نمود.
+🔹
+ارتش تروریست آمریکا بدون هیچ گونه پایبندی بر تعهدات خود و در شرایطی که پیکر مطهر رهبر شهید مسلمانان و آزادگان جهان میهمان مسئولان و مردم سلحشور عراق می باشد در تجاوزی آشکار برخی از نقاط جنوب کشور عزیزمان ایران را مورد هدف قرار داد.
+🔹
+نیروهای مسلح جمهوری اسلامی ایران به تجاوز و اقدام تروریستی آمریکا پاسخ کوبنده‌ای می‌دهند و تحت هیچ شرایطی اجازه دخالت در امور تنگه هرمز و مدیریت آن را به آنها نخواهند داد.
+🔹
+مجددا اعلام می‌گردد تنها معبر ایمن برای عبور و مرور کشتی‌های تجاری و نفتکش در تنگه هرمز، مسیری است که جمهوری اسلامی ایران آن را تعیین کرده است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76823)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-08 08:00:37
 
 <img src="https://cdn1.telesco.pe/file/QEVFu8U0952TleyuRU8yRkt3ztLLd16lPDnnp2A0k1i1_56-N17pL7BjZhN2ufZxV-m0EKIuqtJdmGcVDZE-sk6BOrotfT6e1NKTMxhEpcjwhk72UDjzylFHkYDJ9pFUX2GDR5hD26P4rZ1hM_va6R1zh7C_iriBkj7abrpZtqqQTnTaAw83-4uBbwjPbvYOV5-M7DHJpjTOqyZ9L_syhaw3eKqEx3mmTR_mi6_AqizKG1JKy5HPZo0rBTT3GfbNYQktWvQeHCPtTI4mP2XSEY2mj-xd2RhhUyekz7xyx8DTgRmdElQS-l5CmT9tOBQkZyzIM6gpxMwhA_xmx5U7GQ.jpg" width="400"><br>
 
@@ -28,7 +131,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 04:40:34
+###### 🔵 Updated at: 2026-07-08 08:00:37
 
 <img src="https://cdn1.telesco.pe/file/ke789N7kvYr1jweNfvgBiz5p4ZYSkHN1EAgaAzBTyas96e329cuocnGa62zst0D0nz-iq11-3ZCG8mIY_4taKZM3ds2VZn40VdXFqFwGx8bVedOGLOVSSeWi07aw4vxOaTn97nFmKsVIYf8y9gEvKZyG5yvwdFmG7u7IWjkQxDOcAQpUa34n4sFvsGw4NEp0t8MVomWepXpcU9GX8vywfVC02BItGy-z6e2LdBBTDO45ptVV45GuJOua9qjw9Oizo8jjRuy7u3Nmb43AAlx5h0AWmwaM4klenx3dx99C3ffB7vx-vHx8K7xIlB8JQ8UthRL3ZNB8UZeuvcXtMceGrA.jpg" width="400"><br>
 
@@ -46,14 +149,14 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 04:40:34
+###### 🔵 Updated at: 2026-07-08 08:00:37
 
 <img src="https://cdn1.telesco.pe/file/gKpaXn-yK3Xd2HKBDe1kQDC_hdcfZbKXxXzIY1Hplb-H-dDLhNBpxC0_dICQRQMdaw_aY9SL_wtYeUUS21Ghi53Ain_7_qRgh1Fc7IR-wHr8WYA_5W-VO-5Zy-sCoXGBSRfY_5XYw8ClqiGfx96Ll9aRrhu1JLmkhKAxRoz_QtGmZZ63GQAi1VNaOox7bnRbfHWUfH0ZM1tkW_EqNLTqFUCmI6tztcfLhsXj_1-ZlrzvFKgYBb9PJhF9ycan40OXX_BE_puq3ga9mjjVl5Tk8ynWwzWEyb91x-ykD-iiIUBsnH7e34-lELtNT2tEeaypKaTLCowe9o9to3jb4RUMDA.jpg" width="400"><br>
 
 وزارت امور خارجه جمهوری اسلامی، در بیانیه‌ای، این که آمریکا اجازه نمی‌ده نفت بفروشند رو نقض تفاهم‌نامه خونده.
-پیش‌تر آمریکا هم
+پیش‌تر امریکا هم
 گفته بود
-چون به کشتی‌ها حمله کردند، لیاقت اجازه‌ای که به صورت موقت بهشون داده بودیم رو ندارند تا رفتار مناسبی مطابق تفاهم‌نامه نشون بدن.
+چون به کشتی‌ها حمله کردند، شایسته مجوز موقتی که صادر کرده بودیم نیستند تا رفتار مناسبی مطابق تفاهم‌نامه نشون بدن.
 📡
 @VahidOnline
 
@@ -63,7 +166,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 04:40:34
+###### 🔵 Updated at: 2026-07-08 08:00:37
 
 <img src="https://cdn1.telesco.pe/file/sho7ptQ-4aUbCrZcYk7Di0bkyat1uZ7aDzlQt5JT5BBSGIXbXQ-0cAhMBsIjAsCPHaSzL0wnKXGg3kpQZu6e8n1o4wBH_Hzsii7pnBrnPiBVVnE4UX-ItEIuoSPJjt69YRbbSgHK3D0aFjcSCpgxxuTSIhjxSZHqSJYny234yTO1g4Fix27Ae9TsgvLcXaE8IQiKaKGHJOO3RF0CTFoVf22GFWAL9I7XYQfVQNgGNytQHiGbSHKvaczRgxwTl-_M1BADM-V1cFqs0D1kCnYP-q21qBj911wkT7DZJGJRPATrkz_BKH2-b9gf_uMgNIIt8BwBpO1XUTVmbjKcgVLhvw.jpg" width="400"><br>
 
@@ -79,7 +182,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-08 04:40:34
+###### 🔵 Updated at: 2026-07-08 08:00:37
 
 
 
@@ -156,7 +259,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-08 04:40:34
+###### 🔵 Updated at: 2026-07-08 08:00:37
 
 <img src="https://cdn1.telesco.pe/file/F8FZKJX6_47O6zwHPWQ2G2YLBzsnuFvXvqAmswyHqX9I6vI_0w1cO0FMJqLblHphl1qGNCTvpXxNqdeX654NiaWDaVJCDiQQ-QwbTThKwxy89b3fDs9oMYRjeLiv6J-IBOYumniwLxk65I7t5dcR6cPjk0kYguhtLSfS_EYJ_G84k1bHjAtzdtxo3fd-zoXUGOcNZERJeRSA8_QvQ9I0rUhoRWxCeMKvvS1EWMKU9oCe7ZyIsE9x5R1NYeiNYRC0hV0xOCbCg-ZOms-dpA2pfm1vjCqPM37mlPqwiEr9JDAjHVjqTGIT39XV4v5_6GkW7ViPSyghIjeF4qXv_bOoJQ.jpg" width="400"><br>
 
@@ -183,7 +286,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 04:40:34
+###### 🔵 Updated at: 2026-07-08 08:00:37
 
 <img src="https://cdn4.telesco.pe/file/Ga2W_Nt1OD6B8m-2C5Q9C_03RITn4Kh84mZ6Bj4Ewdb5e9gUEmUs3wfx-Wr-Io9d6oU6LfJwgf63uJLh1_S9C4U-tRwGViynvFOT8UZS9yeuTpfQG31gF2di8_F4NvidbNfSEiDwh0uDIK4g8fug_JIaoUAC_7PtYcxqUs6i2CEieclMz6rnFr8yegHlKiguxW-bzlMSx8zlV6ccA4JI2CHadHbgQDsvRDHFumdAeto2ZnoPzxHE38Xq_jnZBGTdbjF4qJxNCFfaCNDkawk-mNYdT6L61935fDV7M572o5-rX_Z2Bkp3goooLvuaSAebPL14OfimTzq04Nx3k_5bUg.jpg" width="400"><br>
 
@@ -198,87 +301,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76807)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 04:40:34
-
-<img src="https://cdn4.telesco.pe/file/pTc7PTBk5DGCtWo2mOBE6NF0znaq0lRXjwF2PEBVmg-MLqHZ8orNSz7tyhdZQjUxmgssM7e12NmjnQJR2MTCChmC-b0qAwnjCA0CPm7B-Q2j8oKMvkj8j0rXv0jibOY81g7ldDuDLyVZgLn1rhPoTHR3aG5ByTAt9za9JiebfucZaCspzTiYF7hgmAvRx2jnvmxoazGXn2AyArfsK-yEFJaqM84gdRmi87ySddS0FsP7RMOo1TK01cUXBty7aJFww980q013K_tO9iMSC-GZGPa29pQcw4m3cNaG1jL-iXvmd6LkeeMDCBkEbYnDxYg5vhgAxrPHGmKW4RY0E9sNyw.jpg" width="400"><br>
-
-حمید رسایی، نماینده مجلس جمهوری اسلامی، در شبکه اجتماعی «ویراستی» نوشت: حالا که دونالد ترامپ در تیررس ماست و برای اجلاس ناتو به ترکیه آمده است، رسما و بدون تعارف، محل استقرار او را در ترکیه با موشک هدف بگیریم.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76806)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 04:40:34
-
-<img src="https://cdn4.telesco.pe/file/oP6G5SD-zxAY6y0btqKsS-x8lMgxq0jix3Lv-VywtFii7AeXvjkRf8pZuOM3D_AcTn_zDCo99UWpIfZwdj1N4XcTHW0Kgam8cx0ehdcrIck0bi8lvYCydH2QqR_6Am214G51hdSQVpngU0vwVc8nT6mcYegL4-F2XeuTG1DDf82NeOBnbtg5E9z7ZUC1X3qoHDS8xQ8Jg1VsYIl4iiFexBeJi3iK_ac_KVKmnIq142Qo0gFbRcKqUWGPSVSiOUeZhFpUZNgcW6Tcq5mt7E492T3k1ZMmI05n_Oxe7qNRfo_irhpvbnpRVimf5Y8LC8raqML_tUsO-4V-SuFBEwO6Yw.jpg" width="400"><br>
-
-نخست‌وزیر اسرائیل روز سه‌شنبه ۱۶ تیرماه در گفت‌وگو با شبکه سی‌ان‌ان گفت که با وجود اختلاف‌نظرهای گاه‌به‌گاه با دونالد ترامپ، رئیس‌جمهور آمریکا، درباره ایران، آن‌ها در مسائل کلان مربوط به نحوهٔ برخورد با تهران «هم‌نظر» هستند.
-بنیامین نتانیاهو افزود که هنوز زود است درباره آنچه پس از امضای یک توافق صلح موقت میان واشینگتن و تهران رخ خواهد داد، اظهار نظر کرد.
-او اظهار داشت: «رئیس‌جمهور معتقد است که می‌تواند برنامه هسته‌ای ایران را متوقف کند»، اما افزود که در این باره تردیدهایی دارد.
-نخست‌وزیر اسرائیل می‌گوید: «در مسائل بزرگ هم‌نظر هستیم و گاهی هم اختلاف داریم، اما متحدان واقعی هستیم».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76805)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 04:40:34
-
-<img src="https://cdn1.telesco.pe/file/lHH_LFvhuX52GYn3bbM0E-7gd05DtjF-A4fF9DI6UtrCR9OwdpSJ98V4n6LBC2lnI_RozbwCj1UakXs2vjPZfzW1DA0i68yslmlj8Lh3bgdaJkVpjWKy-laHNVAxp1pmgtAw8-D0CnBbdtfHUudh3WckyQf21Ir1nkQZEx63hSTCZAM_H-rVMdRanxQ6HU1OoEw08cpJC3CaInJV6GEez2OAr3nZSfRuJPMwNHoxgcN5nGSHQFmefimCrvyqzvOV_9ozzz-u9CLXiRP9Q8a5Fj87KU9tEKIDN92K0YVEuHP42sNz2MoEoEoDSQrMjXsLJKiaXXDDXcll5LrDvyeiLw.jpg" width="400"><br>
-
-یک مقام آمریکایی، روز سه‌شنبه ۱۶ تیرماه، به ان‌بی‌سی نیوز گفت حملات جمهوری اسلامی ایران در ۱۲ ساعت گذشته «تهاجمی» بوده و «نقض مستقیم یادداشت تفاهم» به شمار می‌رود.
-به گفته این مقام، ارتش آمریکا امروز چندین پهپاد شلیک‌شده از سوی ایران را سرنگون کرده است. او همچنین با اشاره به حملات شب گذشته به دو نفتکش در محدوده تنگه هرمز، گفت که جمهوری اسلامی در این حملات از دو موشک کوتاه‌برد استفاده کرده است.
-این مقام آمریکایی جزئیات بیشتری درباره محل وقوع این حملات یا میزان خسارت احتمالی بیان نکرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76804)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 04:40:34
-
-<img src="https://cdn1.telesco.pe/file/RYTUZqYHmmqPeZQzT4Ggu2OK-9-z54pMB2Se_WjFEye_qyNLlSeS3XkpJf0R_SZNxkRiAxF-fmX5b2iC5IB2PkGal7bzXU6Zd8EDWU8_PzYWGiPwwFx5RU_ylMuTy3fM5k8I73TSv8b2A6uE9Itu0qxU4hJ1L42XWaQwJwSS3J3xwErXU_HVAUsuY3lbcNUXR_3M1aPTk3GayZhZ_L0jVqrOm_YI09rpmfyzY2MiuI_0jwddTdIYt8rXDN7mx_3f5xezScCsIz3Kv0S-D1QOiQPMrJcrbjI9dzlVrsje1GG9dMnEiLlMu_tkPEd3GlLYBqj6fcm7UcvQDUjsfXdxig.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، روز سه‌شنبه ۱۶ تیرماه در جریان سفر به آنکارا برای شرکت در نشست سالانه ناتو، در کنار رجب طیب اردوغان، رییس‌جمهوری ترکیه، بار دیگر از عملیات نظامی آمریکا و اسراییل علیه جمهوری اسلامی دفاع کرد و گفت این اقدام را نباید «جنگ» نامید، بلکه هدف آن «خلع سلاح هسته‌ای ایران» بود.
-ترامپ با اشاره به نقش ترکیه در تحولات خاورمیانه گفت این کشور جمهوری اسلامی را «به‌خوبی می‌شناسد» و همراه با چند کشور دیگر، در تلاش‌ها برای پایان دادن به درگیری‌ها نقش مهمی ایفا کرده است.
-او گفت اطمینان دارد رجب طیب اردوغان نیز خواهان دستیابی جمهوری اسلامی به سلاح هسته‌ای نیست.
-رییس‌جمهوری آمریکا در ادامه با اشاره به روابط واشینگتن و آنکارا گفت: «این حتی جنگ هم نیست، یک عملیات نظامی است؛ خلع سلاح هسته‌ای ایران است.»
-او همچنین با تمجید از توان نظامی ترکیه گفت این کشور می‌توانست وارد درگیری شود، اما چنین تصمیمی نگرفت.
-ترامپ در بخش دیگری از سخنانش از عملکرد متحدان اروپایی آمریکا در ناتو انتقاد کرد و گفت از نبود حمایت آنها در جریان درگیری با جمهوری اسلامی «بسیار ناامید» شده است.
-او اظهار داشت اگر نشست امسال ناتو در ترکیه برگزار نمی‌شد، شاید اصلا در آن شرکت نمی‌کرد و با اشاره به اردوغان، او را «دوست» و «رهبر بسیار قدرتمند» توصیف کرد.
-رییس‌جمهوری آمریکا همچنین گفت ایالات متحده برای دفاع از اروپا در برابر روسیه هزینه‌های هنگفتی پرداخت کرده، اما در مقابل حمایت متقابلی دریافت نکرده است. به گفته او، در جریان تحولات اخیر عمدا واکنش متحدان را زیر نظر داشته تا مشخص شود آیا آنها نیز در مواقع لازم در کنار آمریکا خواهند ایستاد یا خیر.
-ترامپ در این زمینه از بریتانیا، فرانسه، آلمان و ایتالیا نام برد و گفت مدت‌هاست این پرسش را مطرح می‌کند که آیا این کشورها نیز در صورت نیاز از آمریکا حمایت خواهند کرد یا نه.
-@
-VahidHeadline
-رئیس‌جمهور آمریکا در عین حال تأکید کرد «ما به هیچ‌کس دیگری نیاز نداریم»، اما این پرسش را مطرح کرد که چرا آمریکا «تریلیون‌ها دلار در ناتو سرمایه‌گذاری کرده» تا از اروپا در برابر روسیه محافظت کند، بدون آن‌که چیزی در مقابل دریافت کند.
-ترامپ گفت: «به نوعی داشتم دیگران را آزمایش می‌کردم تا ببینم آیا کنار ما خواهند بود یا نه، چون مدت‌هاست می‌گویم ما به آن‌ها کمک می‌کنیم، اما مطمئن نیستم آن‌ها برای ما چنین کنند».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76802)
 
 ---
 
