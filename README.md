@@ -3,13 +3,192 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-08 23:38:00
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+
+
+'
+#چابهار
+، انفجارهای حمله ۲۳:۳۰ چهارشنبه ۱۷ تیر'
+تصاویر دریافتی از شهروندان
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76860)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+
+
+پیام‌های دریافتی:
+چغادک بوشهر رو همین الان زدن چند تا انفجار خیلی شدید
+سلام ساعت 00:28 دقیقه چندین صدای انفجار در بوشهر شنیده شد
+00:30 هوا فضای چغادک 15 تا صدای انفجار
+همین حالا بوشهر زدن
+حدود پنج تا شش بار خونه لرزید
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76859)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+<img src="https://cdn1.telesco.pe/file/Aw29LaRjMMLlDXCNcnphB12Y8nCODGUKTFbzms4jIRRFRPkEOvxGzofQvZdSYBMCb1ZcNsZIpNwkXctF4O3ta-qYHo-E_7_tfmRwsSZpCBGnXt_d2w6mHPbDmI7Avg9e7kzlgIJMTMSeKAUTDNjuhmPApmEUUGs_Pv7RxUAlFnBKJpJNJvxlyRvIIH2bFf92RQlmQM2Boco-z9jT4hLc9gPJ0bFj8UCRExI4WkAaeq4D5SVFaF5P7AKMfwl426yIzJ9dcDzI1cHQFlLGM0RXMaiFW-XPTN0FT4tEOY6YLnVR9LiugZ8u1ytEKklb4NyKR2ONgpZO-yeBDOwXgOcEHQ.jpg" width="400"><br>
+
+جی‌دی ونس، معاون ریاست جمهوری آمریکا درباره درگیری‌های تازه میان ایران و ایالات متحده، با تشبیه تفاهم آتش‌بس میان دو کشور به یک «معامله» گفت:‌ «توافق اولیه‌ای که ما امضا کردیم این بود که اگر آنها از شلیک به کشتی‌ها دست بردارند، محاصره [تنگه هرمز] را لغو خواهیم کرد، اما ۲۴ ساعت پیش چه اتفاقی افتاد؟ آنها شروع به شلیک دوباره به کشتی‌ها کردند.»
+آقای ونس با تاکید بر اینکه در صورت ادامه شلیک به کشتی‌ها در تنگه هرمز آمریکا ایران را نابود خواهد کرد گفت: «حالا، رئیس‌جمهور ما گزینه‌های زیادی را در نظر دارد. بدیهی است که من نمی‌توانم بگویم امشب چه اتفاقی خواهد افتاد، اما رئیس‌جمهور خیلی ساده به آنها گفته است، تنگه هرمز باز خواهد شد. این بدان معناست که نفت و گاز به سمت مردم آمریکا جریان خواهد یافت. به همین دلیل است که می‌بینیم قیمت نفت و بنزین شروع به کاهش کرده است.»
+او گفت که تاکید ریاست جمهوری آمریکا بر باز ماندن شریان حیاتی مهمی در حمل انرژی جهان است و «این چیزی است که ایرانی‌ها باید بدانند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76857)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+
+
+پیام‌های دریافتی:
+همین الان شش انفجار در بندر جاسک
+ساعت ۰۰:۲۴
+سلام وحید جان جاسک رو زد دوبار
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76856)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+<img src="https://cdn1.telesco.pe/file/bF_oyzT718RBciBZOsyhgTT6MsgX1kLaKnxPHbCT1y7VXx3drNl7ZcixnDawSv93A4XOjh5-yC5bOBkprxs9rdCukHvSpFxkuwgJSyV3Vx6BcZkHd-YLIL17VYNNsVljSWqFrhWEd2m5CpXpS5unOoA54zGka55aaKYIHOK6CSjQDQbKQHhSLsgeg3x4V-kMARO20VGbSO8imwJYoOkoYpgXI2MU3SmeALgKqkVHN7k8t66yZlawVDtRqLdWWNT78iITtycuWTlHYziXD7vrD7GI4ORre2hWM2v3zRsWtLoX25irDLHLadJ4bPksPK2ygHSLOIgBc8fCpINCAZvN4Q.jpg" width="400"><br>
+
+'
+#بوشهر
+، چهارشنبه ۱۷ تیر حدود ساعت ۲۳:۴۵'
+تصاویر دریافتی از شهروندان
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76853)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+
+
+ویدیوی دریافتی: '
+#چابهار
+، چهارشنبه ۱۷ تیر حدود ساعت ۲۳:۳۰'
+لحظاتی پس از حمله آمریکا
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76852)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+
+
+پیام‌های دریافتی:
+همین الان بوشهر ساعت ۱۱:۴۸ دقیقه بد زدن
+بوشهر ۲۳.۴۸ یک بار انفجار
+سلام وحید جان
+بوشهر ساعت ۲۳:۴۸ صدای دو انفجار اومد که از صداهای صبح شدتش بیشتر بود
+سلام بوشهر الان صدای انفجار اومد
+اقا وحید بوشهر همین الان زدن
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76851)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+
+
+پیام‌های دریافتی:
+صدای انفجار بندرعباس
+باهنر
+بد داره میزنه
+بندر دوتا صدای انفجار امد
+بندرعباس منطقه ۴ انفجار های شدید و پشت سر هم
+بندرعباس ۳ تا انفجار پشت هم 23:45
+سلام الان ١١:٤٦ دو انقجار با موج بلند در بندرعباس
+بمبارون بندرعباس شروع شد وحید جان
+ساعت ۲۳:۴۷
+اقا وحيد الان بندر عباس صدّا چند انفجار شديد كه پنجره ها لرزيدن
+ساعت 11:45
+چند صدای انفجار بندرعباس ساعت 23:46
+سلام صدای سه چهار تا انفجار شدید بندرعباس اومد
+بندرعباس الان چندین صدای انفجار پشت سر هم اومد
+سلام
+23:47
+صدای 6.7 انفجار از دور
+قشم
+سلام بندرعباس صدای انفجار مهیبی اومد
+بندرعباس سه تا انفجار پیاپی و مهیب
+صدای بیشتر از ۸ تا انفجار این سمت باهنر و اسکله اومد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76850)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
+
+<img src="https://cdn1.telesco.pe/file/DmiAQ2b8LmW7aPW1oHlXoKgJGWczQ9Ck5MUtq2fYL7y3vDnR2hTQ5QdnoxJC_hqLQizJybAm2a5Vp4ez_vPedGTx6xsULfU1HdCaq__bUdsb_wQOHWXhAEN0O_ByaIDK2i-b81rjWIgw60peAVdgfUPytT3ytVRvQzttah_G51nFmvy6Agw4vQE8g2kYY0Is06xPfI6zG_QWScmL3i2wCofxXzbyeCXKa0BCoKn2qwBnMX0kLVPO7D9tL-Omb2NWmc93UHgJlYh2s5KsSpTDQHEVpy3jZcRQz4_V2anvWO9niPRSIeRw8FCLKR20oMy5uRQnpcu1Z9Xzx2zIRX3uVw.jpg" width="400"><br>
+
+پست سنتکام ترجمه ماشین:
+به دستور فرمانده کل قوا، نیروهای فرماندهی مرکزی آمریکا اجرای حملات تکمیلی علیه ایران را آغاز کرده‌اند تا توانایی این کشور برای تهدید آزادی کشتیرانی در تنگه هرمز را بیش از پیش تضعیف کنند. ایالات متحده ایران را بابت تعرض بی‌دلیل اخیر علیه کشتیرانی تجاری و خدمه‌های غیرنظامی که آزادانه در یک آبراه حیاتی بین‌المللی تردد می‌کنند، پاسخگو می‌کند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76849)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 00:51:01
 
 
 
 پیام‌های دریافتی تایید نشده:
 صدای انفجار چابهار
-فک کنم کنارک بود
+فکر کنم کنارک بود
 چندین صدای وحشتناک  10تا بمب زدن
 ۵ تا صدای انفجار شدید اومد
 چابهار
@@ -19,6 +198,14 @@
 سلام کنارک وحشتناک صدای انفجار اومد
 چابهار زدن چند تا انفجار شدید
 ما کمب هستیم واقعا درهای خونه ما بشدت لرزید
+صدای انفجار از زمان جنگ هم بلندتر اومد
+دود غلیظی بلند شده که تو شب هم کامل معلومه
+از سمتی میاد که پایگاه سپاه اونجاست
+البته ممکنه نقطه زنی باشه
+الان 3 4 بار دیگه صدا اومد
+جدا از اون اولیه
+مجدد زدن با جنگنده
+فک کنم اسکله سپاه بود چابهار بود صدا نزدیک
 📡
 @VahidOnline
 
@@ -28,18 +215,14 @@
 
 
 
-###### 🔵 Updated at: 2026-07-08 23:38:00
+###### 🔵 Updated at: 2026-07-09 00:51:01
 
-<img src="https://cdn1.telesco.pe/file/LfxqV6HKF6Jp9tp0Jww8CDuK8M7Ss3REJW_hKKl_ruTLETtjMxDe41Vnf8I2eDCpi9zPR0FF4jyz3Yk-P-Yl-bx-RamS0HXHdFxWJap95emvsQAF90f0ML0swrVso3O_Qp5PDXqIFj5ipiwsOLdcY3uHSlfgYDQpQNY9-TiU28jlERku31r7SLro-oHxslfnln2NrEZx56mlziX96ayUZ7oa4uY7yd3IGNyCrBgA2z2OMmIgHr6nBzuHdzwjuQ611bdT2c1b55CGN2mp7GTp4u6coGeDnTXu70VRFuGNloscWsmf1siyN2dfJq1G0xRKRdFKDBilmdYnb8Z-zDCKNw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MshS_zd5QTbFh_GN9gSXib_ZrGeAmrKqLSTaFNOxniKIGrmx059gLOI4p-rtAZ4iQ-2fdfHj7phiYthjt7JRM-B0CBZGdjMWfrrxFhcRfH0ooJQJZGZroy778dYoPh14Z9CwLA5ryNcxIdwOW2R9S0J90S3RQmfmkBDSUzeSR08hhdHgjCzjh_mfJWwZKgC7dmXlbNLphS8OQA4illoXjMu044EPdM2UlNd5AWGhV5ffhNC3z0c3Is4gCyTUJWwqH-f6QlAi1IPBZtYXDz9a_s-YraPL0wuPu81H6eJBnI_QKAbt6i-WP0Lw7d0BlZaj2IkioYPRl-0GS_7btJ-qXQ.jpg" width="400"><br>
 
-رسانه‌های حکومتی ایران از شنیده شدن صدای چند انفجار در بندرعباس و سیریک در جنوب کشور خبر دادند.
 خبرگزاری‌های فارس و مهر شامگاه چهارشنبه ۱۷ تیر گزارش دادند که حوالی ساعت ۱۱:۱۵ شب صدای چند انفجار در بندرعباس و شهرستان سیریک شنیده شده است.
 بر اساس این گزارش‌ها، شماری از این انفجارها از سمت دریا و در محدوده ساحل غربی سیریک به گوش رسیده است.
 @
 VahidHeadline
-پیش‌تر دونالد ترامپ در حاشیه نشست ناتو گفته بود ارتش آمریکا احتمالا امشب دور تازه‌ای از حملات علیه اهدافی در ایران انجام خواهد داد.
-@
-VahidOOnLine
 📡
 @VahidOnline
 
@@ -49,7 +232,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-08 23:38:00
+###### 🔵 Updated at: 2026-07-09 00:51:01
 
 
 
@@ -73,7 +256,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-08 23:38:00
+###### 🔵 Updated at: 2026-07-09 00:51:01
 
 <img src="https://cdn4.telesco.pe/file/eojGcYoar86uIP5smGfT6haun-HTm0KVgQiv5w3GAPW7EKW7oPYsz5Dy41FTrwfm0dsiFT537guyJDIg6nmjQuCUV5fPjjoDDq41Ax__QrvXmBSqt6mrYq8cbkYfmyFGbmLQLXUxDDoo6lXNlomNq0RDRgu5QQMaJokBdmgmThTTj1OFzzB3ezIHyrjT16P8iyyDvJmnZy4j0ywOFfsq4qNGsYWTN2lhe4xO4FE3rsbZoH6v8jRlEwpxybL6OfreIhbYMPs8BiI2J1qvqICzYm92rRKB8W0t-ZR3Tvqmy0eT0bRqR2pI5sDBKR4oxdJCZoVW7sN411tAi-d8gAxj0A.jpg" width="400"><br>
 
@@ -89,7 +272,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-08 23:38:00
+###### 🔵 Updated at: 2026-07-09 00:51:01
 
 <img src="https://cdn1.telesco.pe/file/lS9GYh5L54v3JOXfbjF5a1MCYspUivelXbqK9HLmcfAgmScqwacS2AHW6KPbxV9XgYLzeYr9JD41An4te53VG1BRyLXSmRB6kO3NZOKDSKVxlkNfidy6tGP_ooaeEqEvmP2qCKVvRJJopbLN1z0iKE0hPhcAs2gMSkPBF4qWs4NE9ioB586PdyX9f2B6OqmODi8F5Z3q8IJBRDDshlmoEUNpPRQ9-19tR0MDWTI1xbUf6Z3tW1IhLwPbvGVhjXj5ons3tB4iOrCeMQ6TCuU54dRM6YyuIX_Nv6baETU-gnYm9UJIl4l4oXu5QJ0mX5DwoJcRHtF9C_GbEt-zLLOMYA.jpg" width="400"><br>
 
@@ -114,7 +297,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-08 23:38:00
+###### 🔵 Updated at: 2026-07-09 00:51:01
 
 <img src="https://cdn1.telesco.pe/file/Apc-suF6wfbgBVJAt2oHd47hvzBLkwXiFSDoD9uTbo_vMYQCQnlJ7OVFCAJ1x5quJmRi5iAvJ1myjlMcnFy7TdUjx6dztRjtPJfkAH6UnEtrtouup5wYd7BXInuazodu21XrZCSSKA-FcTPdt5F-zBY65uWfWb-9mayJeIiAaAWlxQsTTTM9Uv3cOpap1HDeA0ZGBwKbCVpdRvxUEM-5j1ijdZk92MCgZpAasJ6urcZCi9tfEq8TbAbbTFzhPOA_UwrqoB1FZ-LrLGX4nLn_tLitdPtyG_5HkiPAbfyQYkrZdkprf4YhnbA3HMKul37HILiMHLa56Jg8NwH8MWaKHw.jpg" width="400"><br>
 
@@ -160,80 +343,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76833)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 23:38:00
-
-<img src="https://cdn1.telesco.pe/file/v-USQ9zqrM_4HpDfcKrPyknm6cBYxSTBNDn_uRvUQw8qMXZV3Y7yZCVDCHeXl9oXT_zblLMDl-wsT8dxSv9_nhsCxMgPLMT60X7CN825C78xSNAF7FWeQcfYBZughwDyd5i4_CpY6Ceh4oalWYwSTu1jqNk5Ks61lQ5uIW4JdI62f1UBMYeOrcCCVnRTflYkquJEgCY52d1c1JQ4yiVb-MgOIXP8QusJ1iFxNdJe4XSAJmT3eO4KQsKpAkUyQKbGk8FE-s-to97qQUeLKjEvhx_mgsCyZyFehjNdmXDGCVybhF_g6pQdAj4FK23u1t_z9okPZZkMZZpMiYm-jjeVHg.jpg" width="400"><br>
-
-سازمان عفو بین‌الملل هم‌زمان با گذشت شش ماه از سرکوب خونین اعتراضات سراسری دی‌ماه ۱۴۰۴ در ایران اعلام کرد با توجه به این‌که در ایران «هیچ چشم‌اندازی برای تحقق عدالت وجود ندارد»، دادخواهی قربانیان این سرکوب باید از مسیرهای عدالت کیفری بین‌المللی «به‌عنوان اولویتی فوری و غیرقابل مذاکره» دنبال شود.
-دیانا الطحاوی، معاون مدیر منطقه‌ای خاورمیانه و شمال آفریقای عفو بین‌الملل، در بیانیه‌ای که این سازمان روز چهارشنبه ۱۷ تیرمنتشر کرد، گفت: «با گذشت شش ماه از زمانی که نیروهای امنیتی ایران طی دو روز، هزاران زن، مرد و کودک را به‌طور غیرقانونی در سراسر کشور کشتند، ناتوانی جامعه جهانی در برداشتن گام‌های مؤثر برای پیگیری عدالت بین‌المللی غیرقابل توجیه است.»
-الطحاوی افزود: «این بی‌عملی به تداوم چرخهٔ سرکوب مرگبار کمک می‌کند؛ چرخه‌ای که در آن بازماندگان و خانواده‌های قربانیان از عدالت محروم می‌شوند و زمینه برای وقوع جنایت‌های بیشتر فراهم می‌شود.»
-این مقام عفو بین‌الملل همچنین بار دیگر هشدار داد که تلاش‌های دیپلماتیک برای دستیابی به توافقی میان آمریکا و ایران نباید باعث نادیده گرفتن نقض گستردهٔ حقوق بشر در ایران شود.
-به‌گفتۀ الطحاوی، مقام‌های جمهوری اسلامی تاکنون هیچ هزینه‌ای بابت استفادهٔ گسترده و غیرقانونی از نیروی مرگبار علیه معترضان نپرداخته‌اند و همین مصونیت از مجازات، آن‌ها را در تهدید به سرکوب‌های خونین بیشتر جسورتر کرده است.
-به‌گفتهٔ سازمان عفو بین‌الملل، «با توجه به این‌که در ایران، به‌دلیل بحران ساختاری مصونیت از مجازات، هیچ چشم‌اندازی برای تحقق عدالت وجود ندارد، باید مسیرهای عدالت کیفری بین‌المللی به‌عنوان اولویتی فوری و غیرقابل مذاکره دنبال شود».
-سازمان عفو بین‌الملل در بیانیه‌اش بار دیگر از جامعه جهانی و کشورهای عضو سازمان ملل خواسته است بحران حقوق بشر و مصونیت از مجازات در ایران را در صدر دستور کار خود قرار دهند، از ایجاد یک سازوکار مستقل بین‌المللی برای تحقق عدالت در مورد ایران حمایت کنند و از شورای امنیت سازمان ملل بخواهند وضعیت ایران را به دیوان کیفری بین‌المللی ارجاع دهد.
-ماه گذشته، رئیس سازمان عفو بین‌الملل نیز نسبت به تداوم سرکوب داخلی در ایران ابراز نگرانی کرده و هشدار داده بود توافقی که صرفاً به‌طور موقت جنگ را متوقف کند اما حقوق بشر را نادیده بگیرد، خطر آن را دارد که به پوششی برای تداوم مصونیت از مجازات، اشغالگری و سرکوب تبدیل شود.
-عفو بین‌الملل می‌گوید توافق ایران و آمریکا، موسوم به «تفاهم‌نامهٔ اسلام‌آباد»، تنها در صورتی می‌تواند به صلحی پایدار منجر شود که حفاظت از حقوق بشر، پاسخگویی عاملان نقض حقوق بین‌الملل، جبران خسارت قربانیان و تضمین عدم تکرار این نقض‌ها نیز در کانون توجه قرار گیرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76832)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 23:38:00
-
-<img src="https://cdn1.telesco.pe/file/jnlX9Iw2zeOKeTl0WecACeUFC-6I9tZfMT98E2rp2IDTX113woevjpVGWG0TGxoNzEotF5mkkQthFjlFhfwrDV-jpc6gvVL6yI3dyhigqq_mYTHfrPtkiB3hR0okRmHq_-6rUigvFYpxDNzqtzNKV2IIVE9t39tmSuice3Sf3OcBONwFNymKchOb5BrSl0NrNAsHLllyH4vZKPSSyNdUyldM5KqSldoR6Z3Cy9uTS-ydk0T7fLeQa-w-YXvEIGpYtYpuJXol9BxuQAsaDWkL1XX5vJkSiNsqMz_iFg42xIPsCjhUI9rHVvCXuMKbLfiMxvG1aojcgSov2hIEgQgK2Q.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، با اشاره به مراسم دفن علی خامنه‌ای، گفت جمهوری اسلامی به جای حرکت به سمت کاهش تنش، حملات موشکی به شناورها را آغاز کرد و آمریکا نیز در پاسخ، حمله‌ای گسترده علیه جمهوری اسلامی انجام داد.
-ترامپ که در دیدار با مارک روته، دبیرکل ناتو، در آنکارا سخن می‌گفت، اظهار داشت: «ما گفتیم بروید مراسم تشییع خود را برگزار کنید، اما آن‌ها به جای آن، دیروز شروع به شلیک موشک به سمت شناورها کردند. به همین دلیل، دیشب بسیار سخت به آن‌ها حمله کردیم.»
-رییس‌جمهوری آمریکا همچنین جمهوری اسلامی را «بیمار» توصیف کرد و گفت: «آن‌ها بیمارند. یک مشکلی دارند.»
-ترامپ افزود حملات آمریکا «۲۰ برابر شدیدتر» از حملات تلافی‌جویانه ایران بوده است و گفت: «باید سرطان را از بین برد.»
-@
-VahidOOnLine
-مارک روته، دبیرکل ناتو، در نشست خبری مشترک با دونالد ترامپ، رییس‌جمهوری آمریکا، در آنکارا، از حملات شبانه آمریکا به جمهوری اسلامی حمایت کرد و گفت این حملات «کاملا ضروری» بوده است.
-روته با اشاره به حملات آمریکا افزود: «این یک پاسخ بسیار قوی بود و من در این موضوع با شما هم‌نظر هستم.»
-دبیرکل ناتو همچنین از مواضع کشورهای اروپایی از عملیات نظامی آمریکا علیه جمهوری اسلامی دفاع کرد. او این اظهارات را در واکنش به انتقادهای ترامپ از برخی اعضای ناتو، از جمله بریتانیا و اسپانیا، به دلیل محدود کردن همکاری نظامی با آمریکا مطرح کرد.
-روته گفت: «می‌دانم که شما درباره ایران ناامید شده‌اید، اما به نظر من این‌ها مواردی استثنایی هستند.» او افزود: «پنج هزار هواپیما از فرودگاه‌های اروپا در حمایت از عملیات «اپیک فیوری» به پرواز درآمدند و اروپا به سکویی بزرگ برای نمایش و اعمال قدرت آمریکا تبدیل شد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76830)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-08 23:38:00
-
-
-
-ترامپ درباره مقامات ج.ا: یک مشت آشغال هستند!
-نقل زیرنویس، ترجمه ماشین:
-سؤالی دارید؟
-ـ آقای رئیس‌جمهور، آیا آتش‌بس تمام شده؟ آیا آتش‌بس پایان یافته؟ آیا تفاهم‌نامه مرده است؟
-سؤال بسیار جالبی است.
-از نظر من، فکر می‌کنم [تفاهم‌نامه و آتش‌بس] تمام شده. دیگر نمی‌خواهم با آنها سر و کار داشته باشم. آنها تفاله‌اند. می‌دانید تفاله یعنی چه؟ آنها تفاله‌اند. آنها آدم‌های مریضی هستند. رهبرانشان آدم‌های مریضی هستند و آدم‌هایی شرور و خشن‌اند.
-دروغگو هستند؛ ما توافق می‌کنیم. و اگر من با او توافق کنم، یعنی توافق داریم. و او بیرون می‌رود، حرف می‌زند. ما توافق می‌کنیم. همه موافقت کرده‌اند: هیچ سلاح هسته‌ای. ما توافق می‌کنیم. آنها بیرون می‌روند و با رسانه‌ها حرف می‌زنند. می‌گویند ما حتی هرگز درباره‌اش حرف نزدیم. یک جای کارشان ایراد دارد. آنها دیوانه‌اند.
-آنها دروغگو و متقلب‌اند؛ مریض‌اند. آنها به مردم خودشان آسیب زده‌اند. تا همین حالا ۵۴ هزار نفر از معترضان را کشته‌اند.
-می‌دانید وقتی مردم می‌گویند چرا آنها حکومت را سرنگون نکرده‌اند، نمی‌توانند سرنگون کنند، چون مرده‌اند؛ آنها را کشته‌اند. کسی سرنگونشان نمی‌کند.
-آنها اسلحه ندارند و طرف مقابل مسلسل دارد و آنها را می‌کشد. رسانه‌ها این را گزارش نکرده‌اند.
-اما آنها آدم‌های بدی هستند؛ آدم‌های بدی هستند. و صادقانه بگویم، نمی‌خواهم وقتم را با آنها تلف کنم.
-حالا می‌گذارم مذاکره‌کنندگان فوق‌العاده‌مان اگر بخواهند به گفت‌وگو ادامه دهند، اما من چنین چیزی نمی‌بینم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76829)
 
 ---
 
