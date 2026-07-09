@@ -3,7 +3,70 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
+
+<img src="https://cdn1.telesco.pe/file/t08IYorK51UDtuk2hcSfTa-ewV2q7SSWY2n1JJ1TF3SYmSGq4Ou3fDvYqBLNDaGGRoNpflWGYyERazymMIgHXMRCzLIFiPrGX6HEEHng2bJgqXKQb4t-v2iPegV_zzmaIEteod17u95ucgM8F71dsbr0OUU1W-5dgTfHJSC_dnheqkZhQooyfm_v_kcmqFHrLcc2P8e0jO3Fl-7q66BpUrFxbFKokESIRvYgfaXVmOsHZPaxMUmxczDzFYO0IenqyiCpOznPM1w6u_fPV-c-GKj8WPl7EBRsDzIHML0YY0Xwu54VJ7U1xWLyeez6p_cux-q6ENsfy_RX92T6Fp8hsg.jpg" width="400"><br>
+
+نیویورک‌تایمز به نقل از فرماندهی مرکزی ایالات متحده (سنتکام)، نیروهای آمریکایی در طول دو روز گذشته بیش از ۱۷۰ هدف نظامی را در امتداد سواحل ایران در نزدیکی تنگه هرمز هدف قرار داده‌اند. این اهداف شامل سامانه‌های پدافند هوایی، انبارهای پهپاد و موشک، قایق‌های تندروی نظامی و زیرساخت‌های لجستیکی بوده است.
+سنتکام اعلام کرد که هدف از این عملیات، کاهش توانایی ایران برای حمله به کشتی‌های تجاری در تنگه هرمز بوده است. این روزنامه آمریکایی افزود که تعداد این حملات، حدود ۱۴ برابر تعداد اهدافی است که واشنگتن در آخرین دور تشدید تنش‌ها در ماه ژوئن مورد اصابت قرار داده بود.
+@
+VahidOOnLine
+سپاه پاسداران انقلاب اسلامی روز پنجشنبه ۱۸ تیر اعلام کرد که حملات نظامی ایالات متحده نه‌تنها «پاسخ کوبنده» ایران را در پی خواهد داشت، بلکه ترافیک دریایی حیاتی در تنگه هرمز را نیز با اختلال مواجه می‌کند.
+سپاه در بیانیه‌ای اعلام کرد که تردد دریایی به ۵۰ درصد سطح پیش از جنگ بازگشته بود، اما «ماجراجویی و دخالت‌های» واشنگتن در تعیین مسیرهای تردد، عامل اختلالات فعلی است. با این‌وجود سپاه مدعی است که جمهوری اسلامی در تلاش است ظرفیت عبور شناورهایی که مطابق با «ضوابط امنیتی» از سپاه «کسب مجوز» کنند را افزایش دهد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76899)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 20:15:21
+
+<img src="https://cdn1.telesco.pe/file/ZhCQkyxRkYxNIxu1aVKjvPsJNvjcqf3g_1r5Q2LjA5KAL9G-xpDsUHPNnshCR55Zd85p8a_qf3YT_HNYeWHjHzkG84D-n-7JSaNPWkv10gjy6WReCk4206rfH2zkfBsAzZYj9LU-HriT4_FB3aI6lgPRL2rcBPmLKeaW8JcM2zVmZx94eOQdnq14pDAf7eyij5y6be-LnaKibWC68kT55epmtlrk7EOjPEd6NRlU6XvYeHEtxV727-1hpcuwr5lzGyKK8F2X31Zn9JWYO3SD3R99YUfdzHjsL7d75L6NQwwliRYtCHwWDys555Iwn2w1VOw-c7xuTSNjeoKGNm_1mA.jpg" width="400"><br>
+
+هم‌زمان با ادامه درگیری‌های نظامی میان جمهوری اسلامی و ایالات متحده، روز پنج‌شنبه ۱۸ تیر نیز حملات متقابل دو طرف ادامه یافت؛ حملاتی که از جنوب ایران تا عراق، کویت و آسمان اردن را دربر گرفت.
+رسانه‌های داخلی ایران از شنیده شدن چندین انفجار در استان بوشهر خبر دادند.
+خبرگزاری فارس گزارش داد که صبح پنج‌شنبه مناطقی در استان بوشهر هدف حملات آمریکا قرار گرفته‌اند.
+معاون سیاسی استانداری بوشهر نیز به خبرگزاری ایرنا گفت چند نقطه در این استان، از جمله حریم پیرامونی نیروگاه اتمی بوشهر، هدف پرتابه‌های آمریکا قرار گرفته است.
+ساعاتی بعد، صداوسیمای جمهوری اسلامی به نقل از منابع محلی از شنیده شدن صدای چند انفجار در شهر چغادک، در نزدیکی بوشهر، خبر داد.
+در همین حال، فرماندار عسلویه اعلام کرد بر اثر اصابت دو پرتابه به اسکله صیادی بنود، ۱۰ قایق صیادی دچار آتش‌سوزی شده‌اند. گزارشی درباره تلفات احتمالی این حمله منتشر نشده است.
+هم‌زمان، رسانه‌های عراقی از به صدا درآمدن آژیر خطر در پایگاه نظامی «حریر» محل استقرار نیروهای آمریکایی در استان اربیل خبر دادند. همچنین گزارش‌هایی از فعال شدن آژیر‌های هشدار در پایگاه «ویکتوری» آمریکا در بغداد منتشر شده است.
+در کویت نیز رسانه‌های محلی از وقوع انفجار در نزدیکی پایگاه هوایی «علی السالم» و منطقه بندری این کشور خبر دادند. وزارت دفاع کویت اعلام کرد در حملات تازه جمهوری اسلامی، دست‌کم یک نفر زخمی شده و وضعیت او پایدار است.
+هم‌زمان، سامانه‌های هشدار در اردن از مشاهده چند موشک، پهپاد یا راکت در حریم هوایی این کشور خبر دادند و از شهروندان خواسته شد برای حفظ ایمنی، در پناهگاه‌ها یا داخل ساختمان‌ها بمانند و دستورالعمل‌های مقام‌های محلی را دنبال کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76894)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 20:15:21
+
+<img src="https://cdn1.telesco.pe/file/v6bUafNSK1-HSzGpueZWFu33VIFRnqpAM3dbHCWMrNARA2RzzEQ0nhkE3whSTaPdXS-46_FqkGoRpF7HUcoZujj3-ED9ha1zu4j4MH97lH112llJXS1H3Hsj1E0hU1gZoKn49gxvMXiVA0E4yUGYpQRVcozd_lW2O78sw4NRY0t-EGIQazTYyWsfkubDfRBA49ODMbZxQEPBksqgL2JNdAto4bgo5HDdbg4ZGfQR7u0_0PhdAq5lV7dzPf9YhPY-xsBAp-Il1ChVUdXYP6NUIypEeefKa-ZmDcWmVAU54yvNAMClLwcEsjCfTlro2flkacFlu51540YBAokhvaWmVw.jpg" width="400"><br>
+
+مهران رئوف، زندانی سیاسی، فعال کارگری و شهروند دوتابعیتی ایرانی-بریتانیایی که در آستانه ۷۰ سالگی قرار دارد، عصر چهارشنبه پس از حدود شش سال حبس، با پابند الکترونیکی از زندان اوین آزاد شد.
+این فعال کارگری در شرایطی آزاد شد که همچنان مشمول محدودیت‌های ناشی از اجرای پابند الکترونیکی است و وکیل و خانواده‌اش ابراز امیدواری کرده‌اند با توجه به شرایط سنی و جسمانی او، زمینه آزادی کامل از طریق استفاده از ظرفیت‌های قانونی، از جمله آزادی مشروط، فراهم شود.
+مهران رئوف در مهرماه ۱۳۹۹ همراه با ناهید تقوی و شماری دیگر از فعالان مدنی و سیاسی بازداشت شد. با آزادی یا پایان محکومیت سایر متهمان این پرونده، او آخرین زندانی باقی‌مانده از این پرونده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76893)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 <img src="https://cdn1.telesco.pe/file/iYSfGBJ9o7c0ApeunYf4B5QXwv2cIFXEVEvOto5R_-y8bSkw3cBHhR4joOZvpqxTVN0NVRsImtAxh6eMckEHsGlIofikerq24xqRJ2LzUilUFFH0vVpVnn5hjKL9d-hItm8GSAQY_gflVanlTcHfOz2dY-tR3Ft-TEjaYbQBbzCKQzV6aNo5lrUTgFWUBcxximTRUCiDZVzDB_0G-c9hoxMlb_h5aE3KIojL-P9GK0u8FsggqjikXt8m7KCB11fXXL-IHP5lxXolw_O0VYow2qCh__2kEWAoFonw4bINE5-l41puQ1Dz5oDxT5eT3qSfSW4OpQy1TnV1YYTRvRQP0g.jpg" width="400"><br>
 
@@ -25,7 +88,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 
 
@@ -43,7 +106,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 
 
@@ -64,7 +127,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 
 
@@ -110,7 +173,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 <img src="https://cdn1.telesco.pe/file/bRzpc8hvuOHqq0NSMw-GAhpZtm9fkIMDK1ZNxUHW2rv8kTv68H0PnQzpwyzuGkzBy1ByIvcQWsPfzOJ6ZC0bT2UDTLpFvSFKf9ab0BueZGiuWjKj5RQF-pYqe4wVrPdfMQck_nrW1BAQMu50lVCHpt5PXctAqGIdO8luYuKDCCbVjV2MVi8IF1P8RUeTnFbty7zj0kbCHs97xIlSW4f-17UHyNJV13FsivvW9XcalwTUITIJSrAQ_1ZUFSw8548OJXQXq9UnrT8mzS4B23osATo2zZs456GE-R4P1uAQsfsQjUMrYibWFdGny6huN99IV--qDjgppgjAlzQAndf22A.jpg" width="400"><br>
 
@@ -143,7 +206,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 <img src="https://cdn1.telesco.pe/file/GlLxWQg96JhzS4BShKT9MJ8BVlKRD8JAWWOxILBailWywfc4oDRgYtS3e9SOvQy70H6SW747qgIvDk61Aq9-Xm3eMlmKJ63HITj0YWeutRKzfrlmGE_lzQDDrIaM1CFjKucPFLFZVFZXZTbXeYOvii2V5J-FbQbDWZHvxzujVkEpQkNyTWMBlT_b4LDPDttBRj4p_PwJnZupAiX0A4-jcrNiH7jO1L5aCe-DP6NzY6jQ4UsgwX2tea2N003tJ6Wgpp4byWHFiHI9gfm5rGCITIgjBTc7Ngcb850zaLIn7dueuHG68PSKuvQm5chlPMSdvp9EIdZHYUYx20sv6MsS5g.jpg" width="400"><br>
 
@@ -165,7 +228,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 
 
@@ -187,7 +250,7 @@ mb_ghalibaf
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 
 
@@ -203,7 +266,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 
 
@@ -218,7 +281,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 <img src="https://cdn1.telesco.pe/file/oY4uUbiOwG-3-ZyBVfQ-YQNy7v2Q3hTPC8rgQHuDLBhqeIVo1IBAo9gx_cCnGFTpIZssju17OR6u0AOpHnUeoW_C1OsGLLcQUtH6oaZyk_rPOtB-OZzqdYyuaqgu-KcgAp_wVcU7ibfWmdmlAEUKiRsRkGPe9NTC-Pj0e5JbV_FlRFYBxEapXM6GkoeSpBaGWK09a6XkLVbL0miI-VZqiBdM7ggYb400gGz98rRy8zHKexJ22bKr_A9kut4emvzJQcdAUy4UwNWMj0ilWEdRpz8AWLBaRwcY81teW47h5RmJK9b16Fvsc36NWSI1Fw-Ioo3mFHbVU6IwXTLkQ_kHzQ.jpg" width="400"><br>
 
@@ -238,7 +301,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 17:44:02
+###### 🔵 Updated at: 2026-07-09 20:15:21
 
 
 
@@ -248,98 +311,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76879)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 17:44:02
-
-<img src="https://cdn1.telesco.pe/file/Wg4DL_lzaSE91tvJxBfq4oC1u4Pq9SHXIMNVPU5a4Gf54EUqm2Aox89HFzi41WpsDokpYnRgn5YmFg1Gm-F7ExncD6qwMS6tzIobFYpiHEda3bwwzhHH_9OgzdveLQ1XwFEaAXNIyHGU2anivriB4NorxbCxhOHZVyIwNuPvKX7lnqe1uL3IHVSwt7jbaVIzCyTezWEKiIMIDe-Yp4BxJTU4NXdT6sgFkmEqvLzOv-jppJEHg9THhn5WxVlvx8ms7D-7yBv-kJQSpZarK8HEbdKHV474pnGEAFX6P9HGljnF75UC88euOfHfNmlsgz-cn236JSdukbRudxoFjeK2GA.jpg" width="400"><br>
-
-تصاویر دریافتی با شرح: 'شلیک چند موشک از جم در
-#بوشهر
-پنج‌شنبه ۱۸ تیر'
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76877)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 17:44:02
-
-
-
-صدای ویدیو: هوافضا ی چغادک بوشهر رو زدند
-ویدیوی دریافتی، نخستین ساعت 'پنج‌شنبه ۱۸ تیر'
-Vahid
-📍
-گویا اینجاست:
-GoogleMaps
-via
-Mitch_Ulrich
-🔄
-آپدیت:
-پیام‌های دریافتی الان دوباره ساعت ۳:۳۵
-بوشهر دوباره زدن…
-همین الان پنج تا انفجار بوشهر
-سلام وحید جان ۳:۳۸ صدای چندین انفجار، بوشهر.
-سلام آقا وحید بوشهر سه دیقه پیش صدا انفجار اومد
-🔄
-آپدیت:
-بوشهر رو خیلی بد زدن.
-ناحیه‌ی بهمنی، چهارراه ریشهر.
-ساعت ۳:۵۵
-سلام
-بوشهر همین الان بازم زدن سه چهارتا پشت سر هم صداش خیلی بلند تر از قبلی ها بود
-۳:۵۶
-وحیدجان الان ساعت 3:55 صدای 5یا 6 انفجار پشت سر هم اومد، احتمالا از پایگاه هوایی بوده
-سلام وحید جان بوشهر الان ساعت ۳:۵۵ خیلی شدید زدن پایگاه هوایی رو
-دوباره صدای انفجار اومد بوشهر ساعت 3:55
-ساعت ۳:۵۶ دقیقه صدای حداقل سه انفجار در بوشهر شنیده شد.
-بوشهر از ساعت ۳:۲۰ تا الان ۳:۵۵ کلی صدای انفجار میاد، ۳-۴تاش خیلی صدای وحشتناکی داشت!
-الان بوشهر ضداى انفجار ٤ ٥ تا
-ساعت ۳:۵۶ دقیقه صدای حداقل سه انفجار در بوشهر شنیده شد.
-چند انفجار هم بعدش شنیده شد که بنظر دور تر میومد
-🔄
-آپدیت:
-بوشهر ساعت ۵:۲۲
-صدای دوتا انفجار پشت سر هم اومد
-۵:۲۲ بوشهر رو همچنان دارن میزنن، احتمالاً پایگاه هوایی
-سلام بوشهرو زدن
-الانم صدای فعالیت پدافند و توپ سنگین میاد
-وحید نیم ساعت پیش صدا انفجار داخل بوشهر اومد نمیدونم دقیقا کجا بود ولی خیلی بد بود صداش
-🔄
-آپدیت:
-دوباره الان صدا اومد ساعت ۵:۵۶
-اطراف محله بهمنی بوشهر ساعت 6:01 صدای دو انفجار مهیب شنیده شد
-ساعت ۰۶:۰۰ صدای انفجار مهیب در شهر بوشهر
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76876)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 17:44:02
-
-<img src="https://cdn1.telesco.pe/file/i_4tDcU_kXtTCKHui1wlRvmtRKXZ-POPmy1Ge9nVJgoUPexaNFQHmKlkjWVYuShzk9G4-Kr5Dmmi9JryuV_BQ5JA4x41sdLdJAiTOgc1qRSCuA9C6S1RGjqADINlyACH7D1xvmvxoQV40XkHPkC_v9H5hlQq7vtcdpEPfgQ3eDFHoWda4TOQh9dPAYNDEbeQ5znRBnMC8dnG078CYZRdLaTktnaFnbrC10ExIiAtUdQmUOfh8IWBZpQtkSltqrgKmXakTy_aNye17PWRo7J5muAqhNZg14bPamcAzAHThW4h8j7JheTITVHVT6AOVwhOjLIccHjSjMrlfCmZEuYP7g.jpg" width="400"><br>
-
-این تصاویر با شرح پل راه‌آهن در نزدیکی آق‌قلا در استان گلستان دارند دست به دست میشن.
-آپدیت:
-منابع حکومتی:
-براساس گزارشات منابع محلی اصابت چندین پرتابۀ دشمن به پل آق‌تکه‌خان در مسیر ریل قطار در محدودۀ غربی شهر آق‌قلا در استان گلستان گزارش شده است.
-براین اساس حدود ساعت ۱:۳۰ بامداد هفت پرتابه شلیک شده که دو مورد منجر به انفجار بر روی ریل راه آهن  شده است
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76872)
 
 ---
 
