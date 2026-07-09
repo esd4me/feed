@@ -3,11 +3,108 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-09 03:06:42
+###### 🔵 Updated at: 2026-07-09 04:43:58
+
+<img src="https://cdn1.telesco.pe/file/oY4uUbiOwG-3-ZyBVfQ-YQNy7v2Q3hTPC8rgQHuDLBhqeIVo1IBAo9gx_cCnGFTpIZssju17OR6u0AOpHnUeoW_C1OsGLLcQUtH6oaZyk_rPOtB-OZzqdYyuaqgu-KcgAp_wVcU7ibfWmdmlAEUKiRsRkGPe9NTC-Pj0e5JbV_FlRFYBxEapXM6GkoeSpBaGWK09a6XkLVbL0miI-VZqiBdM7ggYb400gGz98rRy8zHKexJ22bKr_A9kut4emvzJQcdAUy4UwNWMj0ilWEdRpz8AWLBaRwcY81teW47h5RmJK9b16Fvsc36NWSI1Fw-Ioo3mFHbVU6IwXTLkQ_kHzQ.jpg" width="400"><br>
+
+کلی پیام درباره شلیک موشک از اهواز و امیدیه در خوزستان
+و هم‌زمان درباره اعلام هشدار در کویت و بحرین
+در خبری دیگر:
+برای  نخستین بار در نزدیک به سه ماه گذشته چنین پیام‌هایی برای ساکنان قطر نیز ارسال شد.
+قطر همزمان از میانجی‌های مذاکرات تهران و واشینگتن است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76882)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 04:43:58
+
+
+
+ویدیوهای دریافتی و تصاویر منتشر شده با شرح 'انفجارهای حمله به آق‌قلا در استان گلستان'
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76879)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 04:43:58
+
+<img src="https://cdn1.telesco.pe/file/Wg4DL_lzaSE91tvJxBfq4oC1u4Pq9SHXIMNVPU5a4Gf54EUqm2Aox89HFzi41WpsDokpYnRgn5YmFg1Gm-F7ExncD6qwMS6tzIobFYpiHEda3bwwzhHH_9OgzdveLQ1XwFEaAXNIyHGU2anivriB4NorxbCxhOHZVyIwNuPvKX7lnqe1uL3IHVSwt7jbaVIzCyTezWEKiIMIDe-Yp4BxJTU4NXdT6sgFkmEqvLzOv-jppJEHg9THhn5WxVlvx8ms7D-7yBv-kJQSpZarK8HEbdKHV474pnGEAFX6P9HGljnF75UC88euOfHfNmlsgz-cn236JSdukbRudxoFjeK2GA.jpg" width="400"><br>
+
+تصاویر دریافتی با شرح: 'شلیک چند موشک از جم در
+#بوشهر
+پنج‌شنبه ۱۸ تیر'
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76877)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 04:43:58
+
+
+
+صدای ویدیو: هوافضا ی چغادک بوشهر رو زدند
+00:25
+ویدیوی دریافتی، نخستین ساعت 'پنج‌شنبه ۱۸ تیر'
+Vahid
+🔄
+آپدیت:
+پیام‌های دریافتی الان دوباره ساعت ۳:۳۵
+بوشهر دوباره زدن…
+همین الان پنج تا انفجار بوشهر
+سلام وحید جان ۳:۳۸ صدای چندین انفجار، بوشهر.
+سلام آقا وحید بوشهر سه دیقه پیش صدا انفجار اومد
+🔄
+آپدیت: ممکنه به پست بعدی مربوط باشه
+آپدیت:
+بوشهر رو خیلی بد زدن.
+ناحیه‌ی بهمنی، چهارراه ریشهر.
+ساعت ۳:۵۵
+سلام
+بوشهر همین الان بازم زدن سه چهارتا پشت سر هم صداش خیلی بلند تر از قبلی ها بود
+۳:۵۶
+وحیدجان الان ساعت 3:55 صدای 5یا 6 انفجار پشت سر هم اومد، احتمالا از پایگاه هوایی بوده
+سلام وحید جان بوشهر الان ساعت ۳:۵۵ خیلی شدید زدن پایگاه هوایی رو
+دوباره صدای انفجار اومد بوشهر ساعت 3:55
+ساعت ۳:۵۶ دقیقه صدای حداقل سه انفجار در بوشهر شنیده شد.
+بوشهر از ساعت ۳:۲۰ تا الان ۳:۵۵ کلی صدای انفجار میاد، ۳-۴تاش خیلی صدای وحشتناکی داشت!
+الان بوشهر ضداى انفجار ٤ ٥ تا
+ساعت ۳:۵۶ دقیقه صدای حداقل سه انفجار در بوشهر شنیده شد.
+چند انفجار هم بعدش شنیده شد که بنظر دور تر میومد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76876)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 04:43:58
 
 <img src="https://cdn1.telesco.pe/file/i_4tDcU_kXtTCKHui1wlRvmtRKXZ-POPmy1Ge9nVJgoUPexaNFQHmKlkjWVYuShzk9G4-Kr5Dmmi9JryuV_BQ5JA4x41sdLdJAiTOgc1qRSCuA9C6S1RGjqADINlyACH7D1xvmvxoQV40XkHPkC_v9H5hlQq7vtcdpEPfgQ3eDFHoWda4TOQh9dPAYNDEbeQ5znRBnMC8dnG078CYZRdLaTktnaFnbrC10ExIiAtUdQmUOfh8IWBZpQtkSltqrgKmXakTy_aNye17PWRo7J5muAqhNZg14bPamcAzAHThW4h8j7JheTITVHVT6AOVwhOjLIccHjSjMrlfCmZEuYP7g.jpg" width="400"><br>
 
 این تصاویر با شرح پل راه‌آهن در نزدیکی آق‌قلا در استان گلستان دارند دست به دست میشن.
+آپدیت:
+منابع حکومتی:
+براساس گزارشات منابع محلی اصابت چندین پرتابۀ دشمن به پل آق‌تکه‌خان در مسیر ریل قطار در محدودۀ غربی شهر آق‌قلا در استان گلستان گزارش شده است.
+براین اساس حدود ساعت ۱:۳۰ بامداد هفت پرتابه شلیک شده که دو مورد منجر به انفجار بر روی ریل راه آهن  شده است
 📡
 @VahidOnline
 
@@ -17,7 +114,7 @@
 
 
 
-###### 🔵 Updated at: 2026-07-09 03:06:42
+###### 🔵 Updated at: 2026-07-09 04:43:58
 
 <img src="https://cdn1.telesco.pe/file/EOPgPidcnZSNpasRvM-XorYK5klLBtF6mNihQ-0MNsvwxtCSd5wk3KauJq9VudW-lhmrplxz6mMIty4_GVgmBI5BxypqoxSGvQQnRscl9kPDA_JFEcm8lum3J8EBzJnFmigdy-OTA-Qq0Lg_LRSQYit8TKq37XsPOCFi9fRNp_p4DmhpzuGv-eoluWwQ829Sf3cDB9DjqOsiJkaEcW9jtI4w1wgXCE6LTDxzzRZWBe5sMfyJhEwSNQuKpEANwn8p42YiN7svnUqWnszGc4CPmITga76t-EeuA_6Pi6CvV06xaIKd66A9ZNj9HgzAawwqvK2kp176EIG14TQQOY57gA.jpg" width="400"><br>
 
@@ -35,7 +132,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 03:06:42
+###### 🔵 Updated at: 2026-07-09 04:43:58
 
 
 
@@ -62,7 +159,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 03:06:42
+###### 🔵 Updated at: 2026-07-09 04:43:58
 
 <img src="https://cdn1.telesco.pe/file/LI3yJMdWhnVVNnNgAUMnplRw89gF67iEPJdJ9DFzKuQMTgX3bKAwf9ooGdpTAEdQwexYsSd9BpSayXnTwbICKrU22avsyvPaCPiFrEEHrEBr9NtVCfTamd-BY-0UCbuu52rQRtPUhM1w7VgmparqDZvjrDeiwYssYrXWJ4M6SGI1QD1H7i3yVW4PUFSfSuNaTP3XbXuBNNUSUd-gFO_D7ms_1paP1OR_85FSn9Al16P35b9gGs3NJPeZ9hjFdd8j7ZHR-RP0pTBglvJdIPiMwjckKBpMPngymjZiQY6MVBlVtu7RfoZz5gdnX4MjzMvOm4rh82Q7mpajvLddZU7_AQ.jpg" width="400"><br>
 
@@ -88,7 +185,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 03:06:42
+###### 🔵 Updated at: 2026-07-09 04:43:58
 
 <img src="https://cdn1.telesco.pe/file/YLeXGlM-v5uYJzAY4u6D7RF0vKvjz2WijmuJvt31MJ0363pcF6uFWibfvQ5pgFZMIlegV7Ekb1EOWcOQSNKhNFCSkPOdnOBIpPF6X8eXLrP1yW_qcfglh_uvN0za0GYZRnAe7PAnd0fJ2T614YstMXNsZP3oVeGokDnlAtO3qDF7EE5m61z3ZKMcIueivQX4_eWiCSwvXgB9hSZevLvQZrsfzBGpP6UiLBA36A5ijsuIlKTUH8x9OA9rDqN58O6GqU-QyCmKj4UFHp-hDcHp5-cVtOXqQ902chHWS4X21wCmpNXDL7ycKiKwj_axRwvronwJZPDRiN4nLPJwQNB6Ng.jpg" width="400"><br>
 
@@ -104,7 +201,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-09 03:06:42
+###### 🔵 Updated at: 2026-07-09 04:43:58
 
 
 
@@ -122,11 +219,13 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 03:06:42
+###### 🔵 Updated at: 2026-07-09 04:43:58
 
 <img src="https://cdn1.telesco.pe/file/BoKwzxW0dGxSXBZSHh2sHCJFa5fX6_kNyyJKXfYmVeaj5frxEsv0ivwxj4Peo0Rz7dyewsvlN0YBpXSgRqMaLr24ytR5Dvlss_PvcWMsGA57ivdUuxrBg_M0rIPxkWtzZ67A70FKIsf_iXWwqJe-3uWbfsO_ITxY1wFUjMxCUkhIo4OzU0IVZZoAf0g08jSyDAn_NzlR54zfKQ4DiP42oWv3USxONZB9K4-C-Gcq_cJPAjJGbK2fVtM93LhF-wE3yKBp5G9Em8wzk3KdPYIXsIYRMvvMpwmxwUOuByrL6-ZHbIUu7kDNW7yrtlV_MdpZ0G-zleecSD-NX-P2jnMylQ.jpg" width="400"><br>
 
-تصاویر بالا با شرح 'برج دریایی اسکله بهشتی در چابهار' پخش شده‌اند.
+تصاویر بالا با شرح
+#چابهار
+پخش شده‌اند.
 در خبری دیگر:
 خبرگزاری تسنیم گزارش داده است که جنگنده‌های آمریکایی پایگاه امام علی ندسا در چابهار را بمباران کردند.
 تسنیم اضافه کرده که تاکنون صدای حدود ده انفجار در چابهار و کنارک شنیده شده است.
@@ -137,96 +236,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76862)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 03:06:42
-
-
-
-'
-#چابهار
-، انفجارهای حمله ۲۳:۳۰ چهارشنبه ۱۷ تیر'
-تصاویر دریافتی از شهروندان
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76860)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 03:06:42
-
-
-
-پیام‌های دریافتی:
-چغادک بوشهر رو همین الان زدن چند تا انفجار خیلی شدید
-سلام ساعت 00:28 دقیقه چندین صدای انفجار در بوشهر شنیده شد
-00:30 هوا فضای چغادک 15 تا صدای انفجار
-همین حالا بوشهر زدن
-حدود پنج تا شش بار خونه لرزید
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76859)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 03:06:42
-
-<img src="https://cdn1.telesco.pe/file/Aw29LaRjMMLlDXCNcnphB12Y8nCODGUKTFbzms4jIRRFRPkEOvxGzofQvZdSYBMCb1ZcNsZIpNwkXctF4O3ta-qYHo-E_7_tfmRwsSZpCBGnXt_d2w6mHPbDmI7Avg9e7kzlgIJMTMSeKAUTDNjuhmPApmEUUGs_Pv7RxUAlFnBKJpJNJvxlyRvIIH2bFf92RQlmQM2Boco-z9jT4hLc9gPJ0bFj8UCRExI4WkAaeq4D5SVFaF5P7AKMfwl426yIzJ9dcDzI1cHQFlLGM0RXMaiFW-XPTN0FT4tEOY6YLnVR9LiugZ8u1ytEKklb4NyKR2ONgpZO-yeBDOwXgOcEHQ.jpg" width="400"><br>
-
-جی‌دی ونس، معاون ریاست جمهوری آمریکا درباره درگیری‌های تازه میان ایران و ایالات متحده، با تشبیه تفاهم آتش‌بس میان دو کشور به یک «معامله» گفت:‌ «توافق اولیه‌ای که ما امضا کردیم این بود که اگر آنها از شلیک به کشتی‌ها دست بردارند، محاصره [تنگه هرمز] را لغو خواهیم کرد، اما ۲۴ ساعت پیش چه اتفاقی افتاد؟ آنها شروع به شلیک دوباره به کشتی‌ها کردند.»
-آقای ونس با تاکید بر اینکه در صورت ادامه شلیک به کشتی‌ها در تنگه هرمز آمریکا ایران را نابود خواهد کرد گفت: «حالا، رئیس‌جمهور ما گزینه‌های زیادی را در نظر دارد. بدیهی است که من نمی‌توانم بگویم امشب چه اتفاقی خواهد افتاد، اما رئیس‌جمهور خیلی ساده به آنها گفته است، تنگه هرمز باز خواهد شد. این بدان معناست که نفت و گاز به سمت مردم آمریکا جریان خواهد یافت. به همین دلیل است که می‌بینیم قیمت نفت و بنزین شروع به کاهش کرده است.»
-او گفت که تاکید ریاست جمهوری آمریکا بر باز ماندن شریان حیاتی مهمی در حمل انرژی جهان است و «این چیزی است که ایرانی‌ها باید بدانند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76857)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 03:06:42
-
-
-
-پیام‌های دریافتی:
-همین الان شش انفجار در بندر جاسک
-ساعت ۰۰:۲۴
-سلام وحید جان جاسک رو زد دوبار
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76856)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 03:06:42
-
-<img src="https://cdn1.telesco.pe/file/bF_oyzT718RBciBZOsyhgTT6MsgX1kLaKnxPHbCT1y7VXx3drNl7ZcixnDawSv93A4XOjh5-yC5bOBkprxs9rdCukHvSpFxkuwgJSyV3Vx6BcZkHd-YLIL17VYNNsVljSWqFrhWEd2m5CpXpS5unOoA54zGka55aaKYIHOK6CSjQDQbKQHhSLsgeg3x4V-kMARO20VGbSO8imwJYoOkoYpgXI2MU3SmeALgKqkVHN7k8t66yZlawVDtRqLdWWNT78iITtycuWTlHYziXD7vrD7GI4ORre2hWM2v3zRsWtLoX25irDLHLadJ4bPksPK2ygHSLOIgBc8fCpINCAZvN4Q.jpg" width="400"><br>
-
-'
-#بوشهر
-، چهارشنبه ۱۷ تیر حدود ساعت ۲۳:۴۵'
-تصاویر دریافتی از شهروندان
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76853)
 
 ---
 
