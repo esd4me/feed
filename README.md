@@ -3,7 +3,62 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
+
+<img src="https://cdn4.telesco.pe/file/Gk6p0U7p4aPX912APu98WsPAiY0JuN4YYcHNyX7eguHyh8-gULK4KrXPJJjMvLkQe2tZ0GxREHaPoPNwNl_wLEOnR3cjzR1bzDrJXYpGuEDp8lnwrfxLpyO8HaWCmOWPrzerEEvEgtM-bK-7tSIscVSILjhs1-S0XP9NsGBi_zGi08wygHAbDlzcku2vALiOQulsHdmfEPaiqYYVHZSHBsbEvQU_RyIDe3638kQ7ujZJ1_uhhM0wVBQnolPGosq03gkPoT33fPXEeZrsOeaKpeF_bQ0rBM4Rbk_2n-i21xVz0Y1dX_YWTCKCgiR0pqPrd73C76i-B7wAQ18CgeFl6w.jpg" width="400"><br>
+
+تصاویر صدا و سیمای جمهوری اسلامی ایران نشان می‌دهد که اقامه نماز میت علی خامنه‌ای، رهبر سابق جمهوری اسلامی، توسط مصطفی خامنه‌ای، پسر ارشد او، برگزار شده است.
+پیشتر تلویزیون دولتی ایران اعلام کرده بود که مراسم تشییع علی خامنه‌ای، در مشهد با نماز میت به امامت آیت‌الله حسین نوری همدانی، به پایان خواهد رسید. دلیلی برای عدم حضور آقای نوری همدانی اعلام نشد.
+خواندن نماز میت از سوی پس بزرگ علی خامنه‌ای، بار دیگر نبود مجتبی خامنه‌ای را در مراسم تشییع پدرش مطرح می‌کند.
+مجتبی خامنه‌ای از زمان انتخاب به جانشینی پدرش، نه تنها در انظار عمومی ظاهر نشده بلکه پیام صوتی هم از او منتشر نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76903)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 22:13:20
+
+<img src="https://cdn1.telesco.pe/file/Qpm9fT_09MyC498mhsU5lMnkO_5l-foN1xirNlYoJiP1MhaHz7_Jt8e9UKznFIvsyZN9FU-8mvUj45RxOJkRP-vMtUXAhe_4fZGjG-_kplT3wfJ5n2NtgUbrg17BpkD9nBMuuRENCvOuJfROKEW3j9CuxAw1k95Pn4xG4jbbVo4SySEiRWV_vxiiX7Dqm03XUadIb7CjfQYS7JZqMGMnhKSS2fGTtdn7u4arvQCHdF-Yoaa7du7GUw4yns6eLCuC8DOaQ8cLoepzdvj_bqHrvR_jgNNxTqjhIviQ5xghTKmHmQy--hqosqtPYOi9DtOm827SJedP63kV3fPS6Bg4dw.jpg" width="400"><br>
+
+خبرگزاری مهر شامگاه پنج‌شنبه از شنیده‌شدن سه انفجار در کنارک استان سیستان و بلوچستان، خبر داد و نوشت: «از جزئیات و میزان خسارات احتمالی هنوز اطلاعاتی در دست نیست.»
+خبرگزاری مهر افزود صدای دو انفجار در اطراف بوشهر و در نزدیکی شهر چغادک شنیده شده است.
+@
+VahidOOnLine
+من از چابهار گزارش ویدیویی از فعالیت پدافند داشتم ولی از کنارک نه.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76902)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 22:13:20
+
+<img src="https://cdn4.telesco.pe/file/W5vnGgTnZbxdVauakF11vE3bsgqqJxSGgppEUQqoCyRVNe-F337h2mYnsncvpBzY7mlx2Dte7c6n8DNZwGykYwjksg_Tyqm9a67iQgdgf3197DSch4GVgzqRkdGb0i4YR3Iw233ITVos-UxSodufldhmSJBIalrOFvJwdYNIOE_XRAASumFZfMoZYf65wdnpvaVuE3T0PV7IPjDvhcy0X2bbvZ3CBcCLdg4Ilj-zMjQYtM1qkURieNrsymP9SfR9Y08O_X8Mnzu670Rx_YgU1Prsx11jaOIqXdgZ7TNXOZ88V6Vfiz4XBapXlZ1X6ftNu9mEQXb65lLAsLuBlwqWNQ.jpg" width="400"><br>
+
+خبرگزاری بلومبرگ روز پنج‌شنبه خبر داد که عمان رسما مخالفت خود با دریافت عوارض بابت عبور و مرور از تنگه هرمز را به سازمان ملل اعلام کرده است.
+از آغاز جنگ تاکنون حکومت ایران بارها تأکید کرده است که مدیریت تنگه هرمز درنهایت با دو کشور ایران و عمان در شمال و جنوب این آبراه خواهد بود و آنها درباره نحوه مدیریت و دریافت هزینه عبور و مرور تصمیم خواهند گرفت.
+حال عمان به سازمان زیرمجموعه سازمان ملل یعنی سازمان جهانی دریانوردی اعلام کرده است که با دریافت هزینه در تنگه هرمز مخالف است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76901)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 <img src="https://cdn1.telesco.pe/file/t08IYorK51UDtuk2hcSfTa-ewV2q7SSWY2n1JJ1TF3SYmSGq4Ou3fDvYqBLNDaGGRoNpflWGYyERazymMIgHXMRCzLIFiPrGX6HEEHng2bJgqXKQb4t-v2iPegV_zzmaIEteod17u95ucgM8F71dsbr0OUU1W-5dgTfHJSC_dnheqkZhQooyfm_v_kcmqFHrLcc2P8e0jO3Fl-7q66BpUrFxbFKokESIRvYgfaXVmOsHZPaxMUmxczDzFYO0IenqyiCpOznPM1w6u_fPV-c-GKj8WPl7EBRsDzIHML0YY0Xwu54VJ7U1xWLyeez6p_cux-q6ENsfy_RX92T6Fp8hsg.jpg" width="400"><br>
 
@@ -24,7 +79,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 <img src="https://cdn1.telesco.pe/file/ZhCQkyxRkYxNIxu1aVKjvPsJNvjcqf3g_1r5Q2LjA5KAL9G-xpDsUHPNnshCR55Zd85p8a_qf3YT_HNYeWHjHzkG84D-n-7JSaNPWkv10gjy6WReCk4206rfH2zkfBsAzZYj9LU-HriT4_FB3aI6lgPRL2rcBPmLKeaW8JcM2zVmZx94eOQdnq14pDAf7eyij5y6be-LnaKibWC68kT55epmtlrk7EOjPEd6NRlU6XvYeHEtxV727-1hpcuwr5lzGyKK8F2X31Zn9JWYO3SD3R99YUfdzHjsL7d75L6NQwwliRYtCHwWDys555Iwn2w1VOw-c7xuTSNjeoKGNm_1mA.jpg" width="400"><br>
 
@@ -48,7 +103,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 <img src="https://cdn1.telesco.pe/file/v6bUafNSK1-HSzGpueZWFu33VIFRnqpAM3dbHCWMrNARA2RzzEQ0nhkE3whSTaPdXS-46_FqkGoRpF7HUcoZujj3-ED9ha1zu4j4MH97lH112llJXS1H3Hsj1E0hU1gZoKn49gxvMXiVA0E4yUGYpQRVcozd_lW2O78sw4NRY0t-EGIQazTYyWsfkubDfRBA49ODMbZxQEPBksqgL2JNdAto4bgo5HDdbg4ZGfQR7u0_0PhdAq5lV7dzPf9YhPY-xsBAp-Il1ChVUdXYP6NUIypEeefKa-ZmDcWmVAU54yvNAMClLwcEsjCfTlro2flkacFlu51540YBAokhvaWmVw.jpg" width="400"><br>
 
@@ -66,7 +121,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 <img src="https://cdn1.telesco.pe/file/iYSfGBJ9o7c0ApeunYf4B5QXwv2cIFXEVEvOto5R_-y8bSkw3cBHhR4joOZvpqxTVN0NVRsImtAxh6eMckEHsGlIofikerq24xqRJ2LzUilUFFH0vVpVnn5hjKL9d-hItm8GSAQY_gflVanlTcHfOz2dY-tR3Ft-TEjaYbQBbzCKQzV6aNo5lrUTgFWUBcxximTRUCiDZVzDB_0G-c9hoxMlb_h5aE3KIojL-P9GK0u8FsggqjikXt8m7KCB11fXXL-IHP5lxXolw_O0VYow2qCh__2kEWAoFonw4bINE5-l41puQ1Dz5oDxT5eT3qSfSW4OpQy1TnV1YYTRvRQP0g.jpg" width="400"><br>
 
@@ -88,7 +143,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 
 
@@ -106,7 +161,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 
 
@@ -127,7 +182,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 
 
@@ -173,7 +228,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 <img src="https://cdn1.telesco.pe/file/bRzpc8hvuOHqq0NSMw-GAhpZtm9fkIMDK1ZNxUHW2rv8kTv68H0PnQzpwyzuGkzBy1ByIvcQWsPfzOJ6ZC0bT2UDTLpFvSFKf9ab0BueZGiuWjKj5RQF-pYqe4wVrPdfMQck_nrW1BAQMu50lVCHpt5PXctAqGIdO8luYuKDCCbVjV2MVi8IF1P8RUeTnFbty7zj0kbCHs97xIlSW4f-17UHyNJV13FsivvW9XcalwTUITIJSrAQ_1ZUFSw8548OJXQXq9UnrT8mzS4B23osATo2zZs456GE-R4P1uAQsfsQjUMrYibWFdGny6huN99IV--qDjgppgjAlzQAndf22A.jpg" width="400"><br>
 
@@ -206,7 +261,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 <img src="https://cdn1.telesco.pe/file/GlLxWQg96JhzS4BShKT9MJ8BVlKRD8JAWWOxILBailWywfc4oDRgYtS3e9SOvQy70H6SW747qgIvDk61Aq9-Xm3eMlmKJ63HITj0YWeutRKzfrlmGE_lzQDDrIaM1CFjKucPFLFZVFZXZTbXeYOvii2V5J-FbQbDWZHvxzujVkEpQkNyTWMBlT_b4LDPDttBRj4p_PwJnZupAiX0A4-jcrNiH7jO1L5aCe-DP6NzY6jQ4UsgwX2tea2N003tJ6Wgpp4byWHFiHI9gfm5rGCITIgjBTc7Ngcb850zaLIn7dueuHG68PSKuvQm5chlPMSdvp9EIdZHYUYx20sv6MsS5g.jpg" width="400"><br>
 
@@ -228,7 +283,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 
 
@@ -250,7 +305,7 @@ mb_ghalibaf
 
 
 
-###### 🔵 Updated at: 2026-07-09 20:15:21
+###### 🔵 Updated at: 2026-07-09 22:13:20
 
 
 
@@ -261,56 +316,6 @@ axios
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76884)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 20:15:21
-
-
-
-ویدیوی پخش شده با شرح: 'بوشهر آخرین دقایق چهارشنبه ۱۷ تیر'
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76883)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 20:15:21
-
-<img src="https://cdn1.telesco.pe/file/oY4uUbiOwG-3-ZyBVfQ-YQNy7v2Q3hTPC8rgQHuDLBhqeIVo1IBAo9gx_cCnGFTpIZssju17OR6u0AOpHnUeoW_C1OsGLLcQUtH6oaZyk_rPOtB-OZzqdYyuaqgu-KcgAp_wVcU7ibfWmdmlAEUKiRsRkGPe9NTC-Pj0e5JbV_FlRFYBxEapXM6GkoeSpBaGWK09a6XkLVbL0miI-VZqiBdM7ggYb400gGz98rRy8zHKexJ22bKr_A9kut4emvzJQcdAUy4UwNWMj0ilWEdRpz8AWLBaRwcY81teW47h5RmJK9b16Fvsc36NWSI1Fw-Ioo3mFHbVU6IwXTLkQ_kHzQ.jpg" width="400"><br>
-
-کلی پیام درباره شلیک موشک از اهواز و امیدیه در خوزستان
-و هم‌زمان درباره اعلام هشدار در کویت و بحرین
-در خبری دیگر:
-برای  نخستین بار در نزدیک به سه ماه گذشته چنین پیام‌هایی برای ساکنان قطر نیز ارسال شد.
-قطر همزمان از میانجی‌های مذاکرات تهران و واشینگتن است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76882)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 20:15:21
-
-
-
-ویدیوهای دریافتی و تصاویر منتشر شده با شرح 'انفجارهای حمله به آق‌قلا در استان گلستان'
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76879)
 
 ---
 
