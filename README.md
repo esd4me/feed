@@ -3,9 +3,52 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
-<img src="https://cdn4.telesco.pe/file/Gk6p0U7p4aPX912APu98WsPAiY0JuN4YYcHNyX7eguHyh8-gULK4KrXPJJjMvLkQe2tZ0GxREHaPoPNwNl_wLEOnR3cjzR1bzDrJXYpGuEDp8lnwrfxLpyO8HaWCmOWPrzerEEvEgtM-bK-7tSIscVSILjhs1-S0XP9NsGBi_zGi08wygHAbDlzcku2vALiOQulsHdmfEPaiqYYVHZSHBsbEvQU_RyIDe3638kQ7ujZJ1_uhhM0wVBQnolPGosq03gkPoT33fPXEeZrsOeaKpeF_bQ0rBM4Rbk_2n-i21xVz0Y1dX_YWTCKCgiR0pqPrd73C76i-B7wAQ18CgeFl6w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/BWtxgNE22EBhin8Q4Gshycnu9KM0RozuqCnxcBh4rKAvnZfYtulyJ4FzidKbUiW7-gQR22JQrughrHt9Jimh7DPe-r8GHC8WfKhn0Yz-b5Gx-bazm8rryadVtyHJDFYpDMgQQlmtZBltoeOBdmgYPydHyzsI2_faYEAq5d0rQ7R6Q-knYhmvCZ7ZU8z7R7JD5zjjvdUaKwLURnyO2H--Hn8QIQL-wKODoepjZrIHhnTG7nrZoJ13xQlgvTWb4EUD7faZ6VFe37w_EV7EEJYllVB6QHaAD7Z1C9RpSIcYZS3J8aO4XEdCuQAqxcCTEqJ-fK3fnjcFbpZU4wulFn2fpQ.jpg" width="400"><br>
+
+در ایرنا به زبان فارسی سخت تیتری درباره صدای فعالیت پدافند نوشتند، می‌ری توی متن خبر می‌بینی نوشته:
+"لحظاتی قبل یک مقر نظامی در حاشیه شهر بوشهر مورد تجاوز و اصابت پرتابه دشمن آمریکایی- صهیونی قرار گرفت."
+irna
+به نظر می‌رسه از روی صدای انفجار برخورد پرتابه، مدعی تشخیص کشور پرتاب‌کننده هم شدند.
+احسان جهانیان، معاون سیاسی و امنیتی استاندار بوشهر، شامگاه پنج‌شنبه اعلام کرد یک مقر نظامی در حاشیه شهر بوشهر مورد اصابت پرتابه قرار گرفته است.
+همزمان صداوسیمای جمهوری اسلامی خبر داد تا این لحظه هیچ انفجاری در بندرعباس، قشم، سیریک و جاسک گزارش نشده است.
+پیش‌تر رسانه‌های ایران از شنیده‌شدن صدای انفجار در شهرهایی از جمله بندرعباس، بوشهر، اهواز، کنارک و چغادک خبر داده بودند.
+یک مقام آمریکایی شامگاه پنج‌شنبه به سی‌ان‌ان گفت: «ارتش آمریکا در حال حاضر حمله‌ای انجام نمی‌دهد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76905)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 23:58:31
+
+<img src="https://cdn1.telesco.pe/file/iHziPtXQRH4X_Ij7lrqN3LU4p161NtJpcIMZKh3iMBgk4cyLc1k7O5SaWJ_d_GpA7ySXcjDe0T3Q3IGcDIJoT8c3EF442zoRcHKSdnUfEgtLF1KnqP-n0gn3e50K_gjrlHuqMgZnDXATZZCQO6Au2LnAYowBga8_GIRX_jYVcrVPCb0hBPFc3SeEarg1GQ_rgQJCJfxU-ThnYJzFdOZJrmgzZMTZtyljQH5ul-L9itXcYkROqs_d3SP4mrHxzqcQPLpYdefJMGIHz1A7S0gYV5Igr39IuIukjIqL0sUiEkkOevYe4XVt9vShJ_-0Z4Tl5x0u9c7VzaXN-fVtSVIPmg.jpg" width="400"><br>
+
+یک مقام آمریکایی شامگاه پنج‌شنبه به سی‌ان‌ان گفت: «ارتش آمریکا در حال حاضر حمله‌ای انجام نمی‌دهد.»
+پیش‌تر رسانه‌های ایران از شنیده‌شدن صدای انفجار در شهرهایی از جمله بندرعباس، بوشهر، اهواز، کنارک و چغادک خبر داده بودند.
+همزمان آتش‌نشانی اهواز اعلام کرد انفجار شامگاه پنج‌شنبه ناشی از «نشت گاز» در یک ساختمان مسکونی در منطقه حصیرآباد بوده است.
+@
+VahidOOnLine
+صدا و سیما بعد از تکذیب آمریکا:
+برخلاف برخی خبرهای منتشر شده در  فضای مجازی، تا این لحظه هیچ انفجاری در بندرعباس، قشم، سیریک و جاسک گزارش نشده است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76904)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-09 23:58:31
+
+<img src="https://cdn1.telesco.pe/file/a4okmdtmWnkQXcThbba_8ueqzkD2dQJW4k7THLSwCX6qeqP9pE50hPekZBhzeWcs0q-ambWU9h_uPP753iMch_NOs0xeK-uFhZnHAaqozX2dORuyKmncTE-DA84PT5___nC7ylUcFtpsHj_OVUf8d3nBaxjLwNu073Jdh5QnsNMZK3rb5EQKtyz27Xw-UYVt41JAZ3mHq2sjKuM7jyxTHv6WgztkRtY4Y4LlfufTtEl7lAVW1tms3bhSd1ymgD5hyGIwT3vIESC-mTXby-6CRQ8MDhdB4GIdGnuF4eWjfUV_DhWgzVARNvh0DrQd4KU7a1ZpPxWJgo0exeVWIHQliw.jpg" width="400"><br>
 
 تصاویر صدا و سیمای جمهوری اسلامی ایران نشان می‌دهد که اقامه نماز میت علی خامنه‌ای، رهبر سابق جمهوری اسلامی، توسط مصطفی خامنه‌ای، پسر ارشد او، برگزار شده است.
 پیشتر تلویزیون دولتی ایران اعلام کرده بود که مراسم تشییع علی خامنه‌ای، در مشهد با نماز میت به امامت آیت‌الله حسین نوری همدانی، به پایان خواهد رسید. دلیلی برای عدم حضور آقای نوری همدانی اعلام نشد.
@@ -22,7 +65,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 <img src="https://cdn1.telesco.pe/file/Qpm9fT_09MyC498mhsU5lMnkO_5l-foN1xirNlYoJiP1MhaHz7_Jt8e9UKznFIvsyZN9FU-8mvUj45RxOJkRP-vMtUXAhe_4fZGjG-_kplT3wfJ5n2NtgUbrg17BpkD9nBMuuRENCvOuJfROKEW3j9CuxAw1k95Pn4xG4jbbVo4SySEiRWV_vxiiX7Dqm03XUadIb7CjfQYS7JZqMGMnhKSS2fGTtdn7u4arvQCHdF-Yoaa7du7GUw4yns6eLCuC8DOaQ8cLoepzdvj_bqHrvR_jgNNxTqjhIviQ5xghTKmHmQy--hqosqtPYOi9DtOm827SJedP63kV3fPS6Bg4dw.jpg" width="400"><br>
 
@@ -30,7 +73,7 @@ VahidHeadline
 خبرگزاری مهر افزود صدای دو انفجار در اطراف بوشهر و در نزدیکی شهر چغادک شنیده شده است.
 @
 VahidOOnLine
-من از چابهار گزارش ویدیویی از فعالیت پدافند داشتم ولی از کنارک نه.
+من از چابهار گزارش از فعالیت پدافند داشتم ولی از کنارک نه.
 📡
 @VahidOnline
 
@@ -40,7 +83,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 <img src="https://cdn4.telesco.pe/file/W5vnGgTnZbxdVauakF11vE3bsgqqJxSGgppEUQqoCyRVNe-F337h2mYnsncvpBzY7mlx2Dte7c6n8DNZwGykYwjksg_Tyqm9a67iQgdgf3197DSch4GVgzqRkdGb0i4YR3Iw233ITVos-UxSodufldhmSJBIalrOFvJwdYNIOE_XRAASumFZfMoZYf65wdnpvaVuE3T0PV7IPjDvhcy0X2bbvZ3CBcCLdg4Ilj-zMjQYtM1qkURieNrsymP9SfR9Y08O_X8Mnzu670Rx_YgU1Prsx11jaOIqXdgZ7TNXOZ88V6Vfiz4XBapXlZ1X6ftNu9mEQXb65lLAsLuBlwqWNQ.jpg" width="400"><br>
 
@@ -58,7 +101,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 <img src="https://cdn1.telesco.pe/file/t08IYorK51UDtuk2hcSfTa-ewV2q7SSWY2n1JJ1TF3SYmSGq4Ou3fDvYqBLNDaGGRoNpflWGYyERazymMIgHXMRCzLIFiPrGX6HEEHng2bJgqXKQb4t-v2iPegV_zzmaIEteod17u95ucgM8F71dsbr0OUU1W-5dgTfHJSC_dnheqkZhQooyfm_v_kcmqFHrLcc2P8e0jO3Fl-7q66BpUrFxbFKokESIRvYgfaXVmOsHZPaxMUmxczDzFYO0IenqyiCpOznPM1w6u_fPV-c-GKj8WPl7EBRsDzIHML0YY0Xwu54VJ7U1xWLyeez6p_cux-q6ENsfy_RX92T6Fp8hsg.jpg" width="400"><br>
 
@@ -79,7 +122,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 <img src="https://cdn1.telesco.pe/file/ZhCQkyxRkYxNIxu1aVKjvPsJNvjcqf3g_1r5Q2LjA5KAL9G-xpDsUHPNnshCR55Zd85p8a_qf3YT_HNYeWHjHzkG84D-n-7JSaNPWkv10gjy6WReCk4206rfH2zkfBsAzZYj9LU-HriT4_FB3aI6lgPRL2rcBPmLKeaW8JcM2zVmZx94eOQdnq14pDAf7eyij5y6be-LnaKibWC68kT55epmtlrk7EOjPEd6NRlU6XvYeHEtxV727-1hpcuwr5lzGyKK8F2X31Zn9JWYO3SD3R99YUfdzHjsL7d75L6NQwwliRYtCHwWDys555Iwn2w1VOw-c7xuTSNjeoKGNm_1mA.jpg" width="400"><br>
 
@@ -103,7 +146,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 <img src="https://cdn1.telesco.pe/file/v6bUafNSK1-HSzGpueZWFu33VIFRnqpAM3dbHCWMrNARA2RzzEQ0nhkE3whSTaPdXS-46_FqkGoRpF7HUcoZujj3-ED9ha1zu4j4MH97lH112llJXS1H3Hsj1E0hU1gZoKn49gxvMXiVA0E4yUGYpQRVcozd_lW2O78sw4NRY0t-EGIQazTYyWsfkubDfRBA49ODMbZxQEPBksqgL2JNdAto4bgo5HDdbg4ZGfQR7u0_0PhdAq5lV7dzPf9YhPY-xsBAp-Il1ChVUdXYP6NUIypEeefKa-ZmDcWmVAU54yvNAMClLwcEsjCfTlro2flkacFlu51540YBAokhvaWmVw.jpg" width="400"><br>
 
@@ -121,7 +164,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 <img src="https://cdn1.telesco.pe/file/iYSfGBJ9o7c0ApeunYf4B5QXwv2cIFXEVEvOto5R_-y8bSkw3cBHhR4joOZvpqxTVN0NVRsImtAxh6eMckEHsGlIofikerq24xqRJ2LzUilUFFH0vVpVnn5hjKL9d-hItm8GSAQY_gflVanlTcHfOz2dY-tR3Ft-TEjaYbQBbzCKQzV6aNo5lrUTgFWUBcxximTRUCiDZVzDB_0G-c9hoxMlb_h5aE3KIojL-P9GK0u8FsggqjikXt8m7KCB11fXXL-IHP5lxXolw_O0VYow2qCh__2kEWAoFonw4bINE5-l41puQ1Dz5oDxT5eT3qSfSW4OpQy1TnV1YYTRvRQP0g.jpg" width="400"><br>
 
@@ -143,7 +186,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 
 
@@ -161,7 +204,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 
 
@@ -182,7 +225,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 
 
@@ -228,7 +271,7 @@ axios
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 <img src="https://cdn1.telesco.pe/file/bRzpc8hvuOHqq0NSMw-GAhpZtm9fkIMDK1ZNxUHW2rv8kTv68H0PnQzpwyzuGkzBy1ByIvcQWsPfzOJ6ZC0bT2UDTLpFvSFKf9ab0BueZGiuWjKj5RQF-pYqe4wVrPdfMQck_nrW1BAQMu50lVCHpt5PXctAqGIdO8luYuKDCCbVjV2MVi8IF1P8RUeTnFbty7zj0kbCHs97xIlSW4f-17UHyNJV13FsivvW9XcalwTUITIJSrAQ_1ZUFSw8548OJXQXq9UnrT8mzS4B23osATo2zZs456GE-R4P1uAQsfsQjUMrYibWFdGny6huN99IV--qDjgppgjAlzQAndf22A.jpg" width="400"><br>
 
@@ -261,7 +304,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-09 22:13:20
+###### 🔵 Updated at: 2026-07-09 23:58:31
 
 <img src="https://cdn1.telesco.pe/file/GlLxWQg96JhzS4BShKT9MJ8BVlKRD8JAWWOxILBailWywfc4oDRgYtS3e9SOvQy70H6SW747qgIvDk61Aq9-Xm3eMlmKJ63HITj0YWeutRKzfrlmGE_lzQDDrIaM1CFjKucPFLFZVFZXZTbXeYOvii2V5J-FbQbDWZHvxzujVkEpQkNyTWMBlT_b4LDPDttBRj4p_PwJnZupAiX0A4-jcrNiH7jO1L5aCe-DP6NzY6jQ4UsgwX2tea2N003tJ6Wgpp4byWHFiHI9gfm5rGCITIgjBTc7Ngcb850zaLIn7dueuHG68PSKuvQm5chlPMSdvp9EIdZHYUYx20sv6MsS5g.jpg" width="400"><br>
 
@@ -278,44 +321,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76886)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 22:13:20
-
-
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۱۸ تیرماه، در مسیر بازگشت از نشست سران ناتو در آنکارا و در هواپیمای ریاست‌جمهوری «ایر فورس وان» گفت آمریکا در برابر حملات ایران رویکرد «۲۰ به یک» را دنبال خواهد کرد.
-ترامپ گفت: «همین حالا ضربه بسیار سختی به آن‌ها زدیم. هر بار که آن‌ها به ما حمله کنند، ما ۲۰ برابر پاسخ خواهیم داد.»
-او افزود تهران سه کشتی را هدف قرار داد و تاکید کرد هر زمان حکومت ایران حمله کند، آمریکا «بسیار شدیدتر» پاسخ خواهد داد.
-@
-VahidOOnLine
-پست قالیباف:
-آمریکا هنوز یاد نگرفته است که زورگویی و بدعهدی دیگر بی‌هزینه نیست. شفاف بگویم: بزنید، می‌خورید.
-دست و پای بیهوده نزنید که بیشتر فرو خواهید رفت: تنگه هرمز، فقط با «ترتیبات ایرانی» باز می‌شود نه با تهدیدات آمریکایی.
-mb_ghalibaf
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76885)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-09 22:13:20
-
-
-
-اکسیوس:
-یک مقام آمریکایی گفت ارتش آمریکا در چارچوب حملات روز چهارشنبه، دو پل راه‌آهن را در شمال‌شرق ایران با موشک‌های کروز هدف قرار داد.
-axios
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76884)
 
 ---
 
