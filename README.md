@@ -3,7 +3,59 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
+
+<img src="https://cdn1.telesco.pe/file/bR72hgIElh89mX2ST2nFoiwagpVqLfASwCdWUR5PFQFjXtQAQj5R0zmHKRRjuky_wg0_LbByOf9hQg2Ve03Qgh996SAPk8MRS1yRIghzHh8y4WTTeXWk56rK0VRMoOO46AZB798Wowvqib7fFzN5InPGqTn2QhShYHoOfW8y1vbtlUBoA0SHXVuREeqTToiu6r6YXuQFk1VkWhyML_ib5GyNbokMmUpfYalyE0Ep9Lss6heHr35E5HpXhyDGgLW4IrCYpRaahWj50OFo1M3CaekkjjT3C7uaFgkiPfYf12tiey7zqqpOKmeqCs9tATg8hNlqZRdsgG37UmhoFymf6w.jpg" width="400"><br>
+
+درخواست افتخاری برای حذف صدای خود از آلبوم "بدرقه" [بدرقه خامنه‌ای]
+علیرضا افتخاری با انتشار ویدئویی علت این درخواست را ضعف فنی اثر عنوان کرد.
+این آلبوم با صدای هفت خواننده از جمله محمد معتمدی، پرواز همای و ... به مناسبت تشییع پیکر رهبر جمهوری اسلامی ایران، توسط شهرداری تهران منتشر شده است.
+Koronmusic
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76921)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-10 21:16:44
+
+
+
+PapiTrumpo
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76920)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-10 21:16:44
+
+<img src="https://cdn4.telesco.pe/file/NA-hX6u7jfgv1sZangmAg5ODO1DhZEUl8__hYyv0a-UUytWp6lUqf0jj5WF71pbV3GdSuU1Z1-FvAt9qu3Cakymu-0qx-AuzBEeAV98XVL668TmOfnKafkS2h_fiawnd8fqL5PK45kiq4w4TKJO0ilethS4wnoLG7hz7J83CZWUSi_d_B_Z8WcsNGwkkwcaeXaJ_nuWTDXFk861oYqc3Zg4jSTCCFKkxoMmOuyBQ9a4XeIhwLY0157g0qHnLOb0CllQRTxmwU-LMeCzSEBtBmGlhlQpfJgouCPUKDu9ucaeRryqYavse8DFxfyvY52jgIXCvSzLg8hXEvRoX3yu_GQ.jpg" width="400"><br>
+
+اکسیوس به نقل از یک منبع آگاه نوشت که دور جدیدی از مذاکرات میان واشینگتن و تهران، احتمالا هفته آینده و شاید در سوئیس برگزار شود.
+مقام‌های جمهوری اسلامی تاکنون در این خصوص اظهار نظری نکرده‌اند.
+همزمان دونالد ترامپ، رییس‌جمهوری ایالات متحده، در تروث سوشال نوشت که با درخواست تهران برای ادامه مذاکره موافقت کرده اما به آن‌ها گفته آتش‌بس پایان یافته است.
+@
+VahidOOnLine
+🔄
+خبرگزاری فارس:
+درپی انتشار اخباری از سوی العربیه و فاکس‌نیوز درباره برگزاری دور جدید مذاکرات ایران و آمریکا در هفته آینده، پیگیری‌های خبرنگار فارس از یک منبع آگاه نزدیک به تیم مذاکره‌کننده ایرانی بیانگر این است که این ادعاها صحت ندارد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76919)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn4.telesco.pe/file/uc_svdB_2U3A3--f2kGZVGTMfmM6S3TNVLWVpr8tG92Lcz1nHMjsDTDuqvLZk86rsifT3_1JDS88exLo5iDpGb4dEBZcltMx5bgUQd0YcIzAT-mRN0er0oKE07gxx_PCpZWISqj1WVhHO54e6gBvcLf_2akzq7Omv2mbjrQNIaW3lcbzaqtpiJyZpPbcB-c6FU6PyVypM-a9eoOTD8k_mdRCXtS43xQZl6o_U3uuc4mSyyhFRNNmtfp7oAK127VBzJcY2JX0fkljghqf90hb6vPI1H5GC7jYBVXKf9lK6FAFTV8ODdpupku5oP2fjfOzpwlTYwTmoK2jDs5d9kkcAg.jpg" width="400"><br>
 
@@ -21,7 +73,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn4.telesco.pe/file/aVc2KbkrVkcAYIx8VvjAudOVQIOPZdj-NMjrIgTbUM5vSfjt2K_7JBffispv5AesiBXbFmFI3QHH9vn2FRpKgUVJMAp1bL95uhgG6Diuj9ue-P0sMXni9yDl34Pw89gnHrcOQ-sPxMuXyPEs6PvlmuuXoYE_0WbdO00T_w2LJwEL5TZKNyhn6QmCWHT4AAHzlQMbUrmT3sgpsQJuK0-E_Ck3bSEI8j17v7lqlk0aXQUYgHjh3meRWzjhoYPhWehpRhMGQs_924NKXe69U3OXlWycuB4UKpuI0GbjXEcRcAL5YeA4-E17U-M6UVfwan6G0LpF3OVSxHjHSs92vbyUrQ.jpg" width="400"><br>
 
@@ -38,7 +90,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn4.telesco.pe/file/HTnMiIc99CkiOKlkJ5vVsW4QmiV3nztaP0p3eDfBLyDD2OHDbUYjjD6owTB2glP9i21CfYBmQ5dGFBCSVwzA1R5_a49_JrpJ-9EEyqfLUtDDpbbcExIpQfeykaxGM_nT355_oHCatr5g5cgIQMitqVrnKwKZqEOKaa-02mO2HFoJoXfGDPSUP4gbRVJmKlge-0yvjwIZdWc_IF6-DjKdvpkDMnh2s9_Kb75CulrhGqePWVQ0I6yaURCRH3GllRY-8n5MTxFkw4yCBtk3kKu5F5t1DyNDi6eU_1TmcL2NuKK83D0BF8i5_ztcUWP1LuWHIYF6JgHz7HtCUCQ9xf93IQ.jpg" width="400"><br>
 
@@ -50,7 +102,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn1.telesco.pe/file/Ds5FDw1JJmqEF4-uW2YyPICAkv92eSSN5QAFtsbwJfE_cB5oXzxi90x0mUQomBiK-Qp809zvF75WLAgPOI7Q9BamtLOqjvxnDtwzD8BT8omKByY9FbCZlItpf7lwOrmrBn_X0tHda95fstTrEzDS1S3dMudkat0fGC_G1SovGG0V3jri9vLPVUrovWGHJJqc7zC3R2_idiMyogezD-ykhR0L7ydaCwZQFE9F_HDpB4zFXRg0vX5RQChlIIhtBPBspYD45LkfBNvktMvvtvE5wsxSMVglMn9kvbKmNPslgBE2lpYu2oViINmOQ3auolp7ujMwkALvOzVFOtm-ctACqg.jpg" width="400"><br>
 
@@ -69,7 +121,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn1.telesco.pe/file/aveqdCBTb6vrFo7lGSQDErHHXh5qp6FxPXGlbJvuAtTltOchVwBEat04hSG8R5hwAPU6cywNdzZWzmxJeApJp3Rlks4G1Av3IgV2E_1k7g4HPvIB6HdP_SAMqtHa04s6NZS3JpVeGGBzwpwqxoYj9QC41OaylqEd961pi7W-t3U7TTpZKcydQANR0PZ_DlyP6OSR8Vvcp52wpmtKhON_D5nngJwGY3ZSrs7HPtKtkmzXiQhKeVPYzf4tIU2oi2-Lsm7RkahdhRYUGzhWm1krE9_1P2lw0qptXsU66eE8R5Vi5wH4xQLou-3ZMYr4wRgLncNPjmLa66lK7U4BuEjgCg.jpg" width="400"><br>
 
@@ -94,13 +146,15 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn1.telesco.pe/file/fX-VwZCakJE3342nxRHNK3XdhNf3fKqgUiuRhMBA9U-5eJKDgOR5cXmvDcqgaWRSc3m6dC6atuCzMZPMqYJ1xrZH1f2hem65dbnTjEf3YwWFgbez6u5e2KeJR6mhrj5yLSGRpMRIwNZWXL_-shFYLQ6ATmAHg0hXxQlUz15jeQByrBfUfS1ZKbiugmtoCzrJJ5G7ELi9U2uheoFYFfaRyLByUbqS11vMRe9iNA3PYLA7DLeDWS0NiqmA8UQiCQ9v0rLFcxi4oDs5uFKAxz6PWYaa_MBSLRR2yyslC9wdmvN07pOjh35liUONYbQpSPjQCjc14uTAqHTQtsaxUsInSA.jpg" width="400"><br>
 
-بر اساس گزارش
-شبکه حقوق بشر کردستان
-یک کودک ۱۵ساله به نام «سام حسنی» با شلیک مستقیم نیروهای هنگ مرزی مستقر در روستای «درکی» شهرستان سروآباد کشته شده است.
+به گزارش منابع حقوق بشری، نیروهای مرزبانی جمهوری اسلامی ایران با شلیک مستقیم به خودروی یک خانواده در روستای درکی از توابع شهرستان سروآباد، یک کودک ۱۵ ساله را کشتند و پدر او را به شدت مجروح کردند.
+به گزارش هه‌نگاو، غروب پنج‌شنبه ۱۸ تیر ۱۴۰۵ (۹ ژوئیه ۲۰۲۶)، نیروهای هنگ مرزی مستقر در روستای درکی، بدون هیچ‌گونه اخطار قبلی، خودروی شخصی یک خانواده اهل این روستا را که پس از پایان کار روزانه در باغ گیلاس خود در حال بازگشت به محل سکونتشان بودند، هدف شلیک مستقیم قرار دادند.
+هه‌نگاو گزارش داد که در نتیجه این تیراندازی، سام حسنی، کودک ۱۵ ساله، بر اثر اصابت گلوله به سر در دم جان باخت و پدرش، احسن حسنی، از ناحیه ران به شدت مجروح شد. به گفته این نهاد، پیکر سام حسنی به سردخانه بیمارستان بوعلی مریوان منتقل شده و احسن حسنی نیز در همین بیمارستان تحت درمان است.
+شبکه حقوق بشر کردستان نیز با تأیید این رویداد از تشدید فضای امنیتی در مناطق مرزی مریوان، پاوه، بانه و سردشت خبر داده و به نقل از منابع محلی نوشته است که نیروهای مرزبانی و سپاه پاسداران در برخی از این مناطق، ضمن افزایش حضور نظامی، محدودیت‌های بیشتری بر رفت‌وآمد روستاییان اعمال کرده و در مواردی از دسترسی ساکنان به باغ‌ها و مراتع شخصی‌شان جلوگیری کرده‌اند.
+تیراندازی نیروهای نظامی جمهوری اسلامی به سوی غیرنظامیان، در سال‌های اخیر بارها به کشته و زخمی شدن شهروندان، از جمله کودکان، منجر شده است. کیان پیرفلک، کودک ۹ ساله اهل ایذه، در حالی که شامگاه ۲۵ آبان ۱۴۰۱ همراه با خانواده‌اش در ماشین در حال گذر از خیابانی در این شهر استان خوزستان بود، هدف شلیک نیروهای جمهوری اسلامی قرار گرفت و کشته شد. در این واقعه پدر او میثم پیرفلک نیز به‌شدت زخمی شد.
 @
 VahidHeadline
 📡
@@ -112,7 +166,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn1.telesco.pe/file/pUQ7It0PPRrxo8lxIrR2DuB0VpHL2M2SPFgKYHpf-dJQI3rKzOsUhjbEA6KLB1unNfFGwESnZX8fxmOEC5SEnASgPXjSDappphz7l8Q_H1zz5WsJxaz58A9oWcnUn1S7mkpSjOsfF8gJbRm4ZDaMimU_tyjEDGU-pF8I7qXWqcTdtvACr-Gse_vQ5Q2tAr_lCo_DsSzDNTlBDGa3lhNI1c3E-QiLBVQk0reLJv-Ynx4buL8tn_PS7tDRU9ng_jzGOCLr5a7YsGeOCPB8JLUb_nRyezPlq8OeF8u-gqIyh0dbg7l5CJxtr7aFPW_tbnQlPuZIWRbhG3jl-2kcmItb6g.jpg" width="400"><br>
 
@@ -134,7 +188,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn4.telesco.pe/file/NbTHdzegxh7dk8DFvlXCGZ83eA4vv3PpuCPL4rOYTYyeYNDuG-C0uJVmwubDIFMLQW0x8hnEHBNIbK5jO3wrJe_kbj5BBEUd7Eekd8mVsdq4qMh70Bjjf74R60Im7g5_lFv3V2pCfYanu2GgJBXOuaIVrzoj_QszvNJgpEpOnTRLk_zbbluzXuYo2zKkaFUc2L8zVSQnRtsT-qn46qUXZUTD0JW_5XV_L8nAVOYUoYPXSFReFRyxuq_tqZ2PTzu-HzHh-7TBG5a5ibjJ2MMF6RqDmsuGVEFA6bJtqZ7jfK08448wwb3IKrBK0j7WaJfRElxo_lmhW2VsXa_iHgY__Q.jpg" width="400"><br>
 
@@ -150,7 +204,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn1.telesco.pe/file/t3bdAjNRZekUQtnqmOnM_cK9AywuXFe5T7vJs8t5XXp3w3pE9aBbdgIKNs5nBbI6IQrPo4VgyXryLF6MSvLnyjTgRToj9KoTpQLNRKnDM3efRskJ59y29-0yoKmPilXI-jM9PpoGkQjBVsVkfJxomL8bvvgVhLLxLMKpRWvACoSA1iSuUxbkisiF1jQbNCZ9lCU7L2nO8krqqwEV_qeFgfld73CAYkxEBhPyBS6JOuMmZEIisqVEq2-LD7M0rJS5QVBUgyIn2OvDEpCZAzvhdz4AjLBpvW7ELsqKvk1MiCUMA4ucCcb2OJ7tybtf-Oz6t6BJSmG7S3IVnMqydp7tEA.jpg" width="400"><br>
 
@@ -172,7 +226,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn4.telesco.pe/file/evigr6Y-cKEVZ1d9FXeHYZe5ZM_g_HfqnJA8em60nyzzAvV1qGgLzyjVOPHxmYUCiGxoat4EQofcpMOwt26cbNm5ROmQfLMsqb1d6ZQqKShPbD-yO02pzSVN-k6wkFKKTn0UH-N3AOu5hCLXqeqTLkYsVKcMXNm9YEQopN9dBOI0olfHnVvhbiFcY0dsYXWNr92mcxRcMnAGo8_BK6ewLYrPvtsc9LkvEMbz5W25KiCztzZyje_vVulmiL2M0lLiGO47b5ZymVI_QDMFNC4iz4pHNYuxdQBvqUeb5dwvPcNQ0iSWmaptkI2qC8Zps43dD_RWum5N49qIM73cNZi8xw.jpg" width="400"><br>
 
@@ -195,7 +249,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn1.telesco.pe/file/BWtxgNE22EBhin8Q4Gshycnu9KM0RozuqCnxcBh4rKAvnZfYtulyJ4FzidKbUiW7-gQR22JQrughrHt9Jimh7DPe-r8GHC8WfKhn0Yz-b5Gx-bazm8rryadVtyHJDFYpDMgQQlmtZBltoeOBdmgYPydHyzsI2_faYEAq5d0rQ7R6Q-knYhmvCZ7ZU8z7R7JD5zjjvdUaKwLURnyO2H--Hn8QIQL-wKODoepjZrIHhnTG7nrZoJ13xQlgvTWb4EUD7faZ6VFe37w_EV7EEJYllVB6QHaAD7Z1C9RpSIcYZS3J8aO4XEdCuQAqxcCTEqJ-fK3fnjcFbpZU4wulFn2fpQ.jpg" width="400"><br>
 
@@ -218,7 +272,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn1.telesco.pe/file/iHziPtXQRH4X_Ij7lrqN3LU4p161NtJpcIMZKh3iMBgk4cyLc1k7O5SaWJ_d_GpA7ySXcjDe0T3Q3IGcDIJoT8c3EF442zoRcHKSdnUfEgtLF1KnqP-n0gn3e50K_gjrlHuqMgZnDXATZZCQO6Au2LnAYowBga8_GIRX_jYVcrVPCb0hBPFc3SeEarg1GQ_rgQJCJfxU-ThnYJzFdOZJrmgzZMTZtyljQH5ul-L9itXcYkROqs_d3SP4mrHxzqcQPLpYdefJMGIHz1A7S0gYV5Igr39IuIukjIqL0sUiEkkOevYe4XVt9vShJ_-0Z4Tl5x0u9c7VzaXN-fVtSVIPmg.jpg" width="400"><br>
 
@@ -238,7 +292,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 19:26:53
+###### 🔵 Updated at: 2026-07-10 21:16:44
 
 <img src="https://cdn1.telesco.pe/file/a4okmdtmWnkQXcThbba_8ueqzkD2dQJW4k7THLSwCX6qeqP9pE50hPekZBhzeWcs0q-ambWU9h_uPP753iMch_NOs0xeK-uFhZnHAaqozX2dORuyKmncTE-DA84PT5___nC7ylUcFtpsHj_OVUf8d3nBaxjLwNu073Jdh5QnsNMZK3rb5EQKtyz27Xw-UYVt41JAZ3mHq2sjKuM7jyxTHv6WgztkRtY4Y4LlfufTtEl7lAVW1tms3bhSd1ymgD5hyGIwT3vIESC-mTXby-6CRQ8MDhdB4GIdGnuF4eWjfUV_DhWgzVARNvh0DrQd4KU7a1ZpPxWJgo0exeVWIHQliw.jpg" width="400"><br>
 
@@ -252,63 +306,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76903)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-10 19:26:53
-
-<img src="https://cdn1.telesco.pe/file/Qpm9fT_09MyC498mhsU5lMnkO_5l-foN1xirNlYoJiP1MhaHz7_Jt8e9UKznFIvsyZN9FU-8mvUj45RxOJkRP-vMtUXAhe_4fZGjG-_kplT3wfJ5n2NtgUbrg17BpkD9nBMuuRENCvOuJfROKEW3j9CuxAw1k95Pn4xG4jbbVo4SySEiRWV_vxiiX7Dqm03XUadIb7CjfQYS7JZqMGMnhKSS2fGTtdn7u4arvQCHdF-Yoaa7du7GUw4yns6eLCuC8DOaQ8cLoepzdvj_bqHrvR_jgNNxTqjhIviQ5xghTKmHmQy--hqosqtPYOi9DtOm827SJedP63kV3fPS6Bg4dw.jpg" width="400"><br>
-
-خبرگزاری مهر شامگاه پنج‌شنبه از شنیده‌شدن سه انفجار در کنارک استان سیستان و بلوچستان، خبر داد و نوشت: «از جزئیات و میزان خسارات احتمالی هنوز اطلاعاتی در دست نیست.»
-خبرگزاری مهر افزود صدای دو انفجار در اطراف بوشهر و در نزدیکی شهر چغادک شنیده شده است.
-@
-VahidOOnLine
-من از چابهار گزارش از فعالیت پدافند داشتم ولی از کنارک نه.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76902)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-10 19:26:53
-
-<img src="https://cdn4.telesco.pe/file/W5vnGgTnZbxdVauakF11vE3bsgqqJxSGgppEUQqoCyRVNe-F337h2mYnsncvpBzY7mlx2Dte7c6n8DNZwGykYwjksg_Tyqm9a67iQgdgf3197DSch4GVgzqRkdGb0i4YR3Iw233ITVos-UxSodufldhmSJBIalrOFvJwdYNIOE_XRAASumFZfMoZYf65wdnpvaVuE3T0PV7IPjDvhcy0X2bbvZ3CBcCLdg4Ilj-zMjQYtM1qkURieNrsymP9SfR9Y08O_X8Mnzu670Rx_YgU1Prsx11jaOIqXdgZ7TNXOZ88V6Vfiz4XBapXlZ1X6ftNu9mEQXb65lLAsLuBlwqWNQ.jpg" width="400"><br>
-
-خبرگزاری بلومبرگ روز پنج‌شنبه خبر داد که عمان رسما مخالفت خود با دریافت عوارض بابت عبور و مرور از تنگه هرمز را به سازمان ملل اعلام کرده است.
-از آغاز جنگ تاکنون حکومت ایران بارها تأکید کرده است که مدیریت تنگه هرمز درنهایت با دو کشور ایران و عمان در شمال و جنوب این آبراه خواهد بود و آنها درباره نحوه مدیریت و دریافت هزینه عبور و مرور تصمیم خواهند گرفت.
-حال عمان به سازمان زیرمجموعه سازمان ملل یعنی سازمان جهانی دریانوردی اعلام کرده است که با دریافت هزینه در تنگه هرمز مخالف است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76901)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-10 19:26:53
-
-<img src="https://cdn1.telesco.pe/file/Ch35xmWMfzT4IHzKuS9-n7GaJnm2feoHJp_urFeKNlk_GRMabZD5s04nUqiOs1aE2u6Mz2VqeDh0wZw2r19fOqeHhY9VM8Rs_wv_dXSIIQJfBsvXPOLFMzTp4o062MP1qTAbDSIUKMV3dXnw5wFlq5hkm04Oad2GBEnsdFsG5tnjb9xg-461aLyGAc6iB60IhEyhDXA5qQP4evHnYvyyNk5ttyzvvOAsyv4Z8gG-CATKVl0Xt-TWPtdut-4w0upJseCy67fjc46qwHIPpPUPPCOq2GbqX9fhb0yg8SIChmOrHooz65NHyk-yW14KHiLVQJgO6UlVrk-G57ZWfrd7IA.jpg" width="400"><br>
-
-نیویورک‌تایمز به نقل از فرماندهی مرکزی ایالات متحده (سنتکام)، نیروهای آمریکایی در طول دو روز گذشته بیش از ۱۷۰ هدف نظامی را در امتداد سواحل ایران در نزدیکی تنگه هرمز هدف قرار داده‌اند. این اهداف شامل سامانه‌های پدافند هوایی، انبارهای پهپاد و موشک، قایق‌های تندروی نظامی و زیرساخت‌های لجستیکی بوده است.
-سنتکام اعلام کرد که هدف از این عملیات، کاهش توانایی ایران برای حمله به کشتی‌های تجاری در تنگه هرمز بوده است. این روزنامه آمریکایی افزود که تعداد این حملات، حدود ۱۴ برابر تعداد اهدافی است که واشنگتن در آخرین دور تشدید تنش‌ها در ماه ژوئن مورد اصابت قرار داده بود.
-@
-VahidOOnLine
-سپاه پاسداران انقلاب اسلامی روز پنجشنبه ۱۸ تیر اعلام کرد که حملات نظامی ایالات متحده نه‌تنها «پاسخ کوبنده» ایران را در پی خواهد داشت، بلکه ترافیک دریایی حیاتی در تنگه هرمز را نیز با اختلال مواجه می‌کند.
-سپاه در بیانیه‌ای اعلام کرد که تردد دریایی به ۵۰ درصد سطح پیش از جنگ بازگشته بود، اما «ماجراجویی و دخالت‌های» واشنگتن در تعیین مسیرهای تردد، عامل اختلالات فعلی است. با این‌وجود سپاه مدعی است که جمهوری اسلامی در تلاش است ظرفیت عبور شناورهایی که مطابق با «ضوابط امنیتی» از سپاه «کسب مجوز» کنند را افزایش دهد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76899)
 
 ---
 
