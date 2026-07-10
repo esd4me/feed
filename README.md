@@ -3,7 +3,44 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
+
+<img src="https://cdn1.telesco.pe/file/i04kwknu4HM2aTa9wYp3yjaeJFwuUsWfWP2vzE4sEAOActG4Aw6TnelqfU0aiy72AJfDEW41zDmcqKTa9I1lrStABGAysCQnk7gpmshYuXKV2BN_83EFwzWLSbr7n0WsWnmUXoNdY0CQObzXEKfFzkAopQE3Oqpb_B9DTZLclbkrIowvHkmBSkm1c0Pxn9gRdtFetxVDAnUeG6ThsClDxSKpo4NlbXhSsebJmVvxnwzL-RB8dPvtF2BZadhPrpr_0ENl6OYEwvGS838_ONYinVzKEoKuTZX72hTHNibe7B6yh9I9ESzn86PLOVJpGP1cP8tFKMpJeVo0tN1XlpUtLw.jpg" width="400"><br>
+
+دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا اعلام کرد علی انصاری، شهروند ایرانی مقیم امارات متحده عربی، به اتهام ارتباط با سپاه پاسداران و مجتبی خامنه‌ای در فهرست تحریم‌ها قرار گرفته است.
+همچنین محمد دربانی، شکوفه رستم‌آبادی، محسن خندان، علی‌اصغر خندان، احمد و امیر نوایی لواسانی و زهرا سرشاری از افراد مرتبط با شرکت‌های صرافی و تبادل ارز در ایران، در فهرست تحریم‌ها قرار گرفته‌اند.
+شرکت تضامنی لواسانی و شرکا، شرکت تضامنی صرافی محمد دربانی و شرکا، شرکت تضامنی محسن خندان و شرکا، شرکت سی‌دی‌ام تریدینگ لیمیتد در هنگ‌کنگ، شرکت نابا الزکی تجارت مواد اولیه با مسئولیت محدود در امارات متحده عربی و شرکت اسمارت گلوبال لیمیتد (با نام دیگر زیبا لیزر لیمیتد) نهادهایی هستند که در فهرست تحریم‌ها قرار گرفتند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76924)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-10 22:39:41
+
+
+
+به گزارش رسانه‌های دولتی چین، ‌این کشور برای نخستین بار با موفقیت یک موشک با قابلیت استفاده مجدد را فرود آورد که این امر پیشرفت بزرگی برای برنامه فضایی این کشور محسوب می‌شود.
+پیش از این، قابلیت استفاده مجدد موشک‌ها در انحصار شرکت‌های اسپیس‌ایکس ایلان ماسک و بلو اوریجین، متعلق به جف بزوس، بنیانگذار آمازون بود. حالا چین با انجام این آزمایش موفقیت‌آمیز می‌تواند برتری آمریکا در زمینه موشک‌های قابل استفاده مجدد را به چالش بکشد.
+شرکت فضایی اسپیس ایکس در دسامبر ۲۰۱۵، برای نخستین بار یک موشک فالکون ۹ قابل استفاده مجدد را فرود آورد و پس از آن در نوامبر ۲۰۲۵، موشک نیو گلن شرکت بلو اوریجین به زمین نشست.
+فالکون ۹ حالا حدود ۱۵۰ بار در سال با پیشرانه‌هایی پرتاب می‌شود که قابلیت ده‌ها بار استفاده مجدد را دارند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76923)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn1.telesco.pe/file/bR72hgIElh89mX2ST2nFoiwagpVqLfASwCdWUR5PFQFjXtQAQj5R0zmHKRRjuky_wg0_LbByOf9hQg2Ve03Qgh996SAPk8MRS1yRIghzHh8y4WTTeXWk56rK0VRMoOO46AZB798Wowvqib7fFzN5InPGqTn2QhShYHoOfW8y1vbtlUBoA0SHXVuREeqTToiu6r6YXuQFk1VkWhyML_ib5GyNbokMmUpfYalyE0Ep9Lss6heHr35E5HpXhyDGgLW4IrCYpRaahWj50OFo1M3CaekkjjT3C7uaFgkiPfYf12tiey7zqqpOKmeqCs9tATg8hNlqZRdsgG37UmhoFymf6w.jpg" width="400"><br>
 
@@ -20,7 +57,7 @@ Koronmusic
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 
 
@@ -34,9 +71,9 @@ PapiTrumpo
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
-<img src="https://cdn4.telesco.pe/file/NA-hX6u7jfgv1sZangmAg5ODO1DhZEUl8__hYyv0a-UUytWp6lUqf0jj5WF71pbV3GdSuU1Z1-FvAt9qu3Cakymu-0qx-AuzBEeAV98XVL668TmOfnKafkS2h_fiawnd8fqL5PK45kiq4w4TKJO0ilethS4wnoLG7hz7J83CZWUSi_d_B_Z8WcsNGwkkwcaeXaJ_nuWTDXFk861oYqc3Zg4jSTCCFKkxoMmOuyBQ9a4XeIhwLY0157g0qHnLOb0CllQRTxmwU-LMeCzSEBtBmGlhlQpfJgouCPUKDu9ucaeRryqYavse8DFxfyvY52jgIXCvSzLg8hXEvRoX3yu_GQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LswCZPNIzYavuvWkQq15XqsZ2_YLxrtLKE958JgBVrtq8dosZ7h4B6NUY58Uj-S0w8u_9N9fdjdHGhTC1jc_JikGwWX8_pph71bZD-jQqvf5FvBNFS9MiP2LLjgZCZ9rAwutfNj1fXm0nAssS37kl7EOMuyeIYAaD2kf_EqKmQ_k12zAIQ9nj55omyn4KBpxR90M4x1DpgKyCBx6J_O_nghixIoUFnvLVDIHy7HEIkeg5QJsl9ijy01FaMh0ybNg02CAmHoVal3wXDY6Blds03ChDeuMGM6W6VkM8YigAhdO7skbSm0HLVF4yqq4N5-5qYB0uRt-a9z0Onk2lSIOIw.jpg" width="400"><br>
 
 اکسیوس به نقل از یک منبع آگاه نوشت که دور جدیدی از مذاکرات میان واشینگتن و تهران، احتمالا هفته آینده و شاید در سوئیس برگزار شود.
 مقام‌های جمهوری اسلامی تاکنون در این خصوص اظهار نظری نکرده‌اند.
@@ -55,7 +92,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn4.telesco.pe/file/uc_svdB_2U3A3--f2kGZVGTMfmM6S3TNVLWVpr8tG92Lcz1nHMjsDTDuqvLZk86rsifT3_1JDS88exLo5iDpGb4dEBZcltMx5bgUQd0YcIzAT-mRN0er0oKE07gxx_PCpZWISqj1WVhHO54e6gBvcLf_2akzq7Omv2mbjrQNIaW3lcbzaqtpiJyZpPbcB-c6FU6PyVypM-a9eoOTD8k_mdRCXtS43xQZl6o_U3uuc4mSyyhFRNNmtfp7oAK127VBzJcY2JX0fkljghqf90hb6vPI1H5GC7jYBVXKf9lK6FAFTV8ODdpupku5oP2fjfOzpwlTYwTmoK2jDs5d9kkcAg.jpg" width="400"><br>
 
@@ -73,7 +110,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn4.telesco.pe/file/aVc2KbkrVkcAYIx8VvjAudOVQIOPZdj-NMjrIgTbUM5vSfjt2K_7JBffispv5AesiBXbFmFI3QHH9vn2FRpKgUVJMAp1bL95uhgG6Diuj9ue-P0sMXni9yDl34Pw89gnHrcOQ-sPxMuXyPEs6PvlmuuXoYE_0WbdO00T_w2LJwEL5TZKNyhn6QmCWHT4AAHzlQMbUrmT3sgpsQJuK0-E_Ck3bSEI8j17v7lqlk0aXQUYgHjh3meRWzjhoYPhWehpRhMGQs_924NKXe69U3OXlWycuB4UKpuI0GbjXEcRcAL5YeA4-E17U-M6UVfwan6G0LpF3OVSxHjHSs92vbyUrQ.jpg" width="400"><br>
 
@@ -90,7 +127,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn4.telesco.pe/file/HTnMiIc99CkiOKlkJ5vVsW4QmiV3nztaP0p3eDfBLyDD2OHDbUYjjD6owTB2glP9i21CfYBmQ5dGFBCSVwzA1R5_a49_JrpJ-9EEyqfLUtDDpbbcExIpQfeykaxGM_nT355_oHCatr5g5cgIQMitqVrnKwKZqEOKaa-02mO2HFoJoXfGDPSUP4gbRVJmKlge-0yvjwIZdWc_IF6-DjKdvpkDMnh2s9_Kb75CulrhGqePWVQ0I6yaURCRH3GllRY-8n5MTxFkw4yCBtk3kKu5F5t1DyNDi6eU_1TmcL2NuKK83D0BF8i5_ztcUWP1LuWHIYF6JgHz7HtCUCQ9xf93IQ.jpg" width="400"><br>
 
@@ -102,7 +139,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn1.telesco.pe/file/Ds5FDw1JJmqEF4-uW2YyPICAkv92eSSN5QAFtsbwJfE_cB5oXzxi90x0mUQomBiK-Qp809zvF75WLAgPOI7Q9BamtLOqjvxnDtwzD8BT8omKByY9FbCZlItpf7lwOrmrBn_X0tHda95fstTrEzDS1S3dMudkat0fGC_G1SovGG0V3jri9vLPVUrovWGHJJqc7zC3R2_idiMyogezD-ykhR0L7ydaCwZQFE9F_HDpB4zFXRg0vX5RQChlIIhtBPBspYD45LkfBNvktMvvtvE5wsxSMVglMn9kvbKmNPslgBE2lpYu2oViINmOQ3auolp7ujMwkALvOzVFOtm-ctACqg.jpg" width="400"><br>
 
@@ -121,7 +158,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn1.telesco.pe/file/aveqdCBTb6vrFo7lGSQDErHHXh5qp6FxPXGlbJvuAtTltOchVwBEat04hSG8R5hwAPU6cywNdzZWzmxJeApJp3Rlks4G1Av3IgV2E_1k7g4HPvIB6HdP_SAMqtHa04s6NZS3JpVeGGBzwpwqxoYj9QC41OaylqEd961pi7W-t3U7TTpZKcydQANR0PZ_DlyP6OSR8Vvcp52wpmtKhON_D5nngJwGY3ZSrs7HPtKtkmzXiQhKeVPYzf4tIU2oi2-Lsm7RkahdhRYUGzhWm1krE9_1P2lw0qptXsU66eE8R5Vi5wH4xQLou-3ZMYr4wRgLncNPjmLa66lK7U4BuEjgCg.jpg" width="400"><br>
 
@@ -146,7 +183,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn1.telesco.pe/file/fX-VwZCakJE3342nxRHNK3XdhNf3fKqgUiuRhMBA9U-5eJKDgOR5cXmvDcqgaWRSc3m6dC6atuCzMZPMqYJ1xrZH1f2hem65dbnTjEf3YwWFgbez6u5e2KeJR6mhrj5yLSGRpMRIwNZWXL_-shFYLQ6ATmAHg0hXxQlUz15jeQByrBfUfS1ZKbiugmtoCzrJJ5G7ELi9U2uheoFYFfaRyLByUbqS11vMRe9iNA3PYLA7DLeDWS0NiqmA8UQiCQ9v0rLFcxi4oDs5uFKAxz6PWYaa_MBSLRR2yyslC9wdmvN07pOjh35liUONYbQpSPjQCjc14uTAqHTQtsaxUsInSA.jpg" width="400"><br>
 
@@ -166,7 +203,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn1.telesco.pe/file/pUQ7It0PPRrxo8lxIrR2DuB0VpHL2M2SPFgKYHpf-dJQI3rKzOsUhjbEA6KLB1unNfFGwESnZX8fxmOEC5SEnASgPXjSDappphz7l8Q_H1zz5WsJxaz58A9oWcnUn1S7mkpSjOsfF8gJbRm4ZDaMimU_tyjEDGU-pF8I7qXWqcTdtvACr-Gse_vQ5Q2tAr_lCo_DsSzDNTlBDGa3lhNI1c3E-QiLBVQk0reLJv-Ynx4buL8tn_PS7tDRU9ng_jzGOCLr5a7YsGeOCPB8JLUb_nRyezPlq8OeF8u-gqIyh0dbg7l5CJxtr7aFPW_tbnQlPuZIWRbhG3jl-2kcmItb6g.jpg" width="400"><br>
 
@@ -188,7 +225,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn4.telesco.pe/file/NbTHdzegxh7dk8DFvlXCGZ83eA4vv3PpuCPL4rOYTYyeYNDuG-C0uJVmwubDIFMLQW0x8hnEHBNIbK5jO3wrJe_kbj5BBEUd7Eekd8mVsdq4qMh70Bjjf74R60Im7g5_lFv3V2pCfYanu2GgJBXOuaIVrzoj_QszvNJgpEpOnTRLk_zbbluzXuYo2zKkaFUc2L8zVSQnRtsT-qn46qUXZUTD0JW_5XV_L8nAVOYUoYPXSFReFRyxuq_tqZ2PTzu-HzHh-7TBG5a5ibjJ2MMF6RqDmsuGVEFA6bJtqZ7jfK08448wwb3IKrBK0j7WaJfRElxo_lmhW2VsXa_iHgY__Q.jpg" width="400"><br>
 
@@ -204,7 +241,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn1.telesco.pe/file/t3bdAjNRZekUQtnqmOnM_cK9AywuXFe5T7vJs8t5XXp3w3pE9aBbdgIKNs5nBbI6IQrPo4VgyXryLF6MSvLnyjTgRToj9KoTpQLNRKnDM3efRskJ59y29-0yoKmPilXI-jM9PpoGkQjBVsVkfJxomL8bvvgVhLLxLMKpRWvACoSA1iSuUxbkisiF1jQbNCZ9lCU7L2nO8krqqwEV_qeFgfld73CAYkxEBhPyBS6JOuMmZEIisqVEq2-LD7M0rJS5QVBUgyIn2OvDEpCZAzvhdz4AjLBpvW7ELsqKvk1MiCUMA4ucCcb2OJ7tybtf-Oz6t6BJSmG7S3IVnMqydp7tEA.jpg" width="400"><br>
 
@@ -226,7 +263,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn4.telesco.pe/file/evigr6Y-cKEVZ1d9FXeHYZe5ZM_g_HfqnJA8em60nyzzAvV1qGgLzyjVOPHxmYUCiGxoat4EQofcpMOwt26cbNm5ROmQfLMsqb1d6ZQqKShPbD-yO02pzSVN-k6wkFKKTn0UH-N3AOu5hCLXqeqTLkYsVKcMXNm9YEQopN9dBOI0olfHnVvhbiFcY0dsYXWNr92mcxRcMnAGo8_BK6ewLYrPvtsc9LkvEMbz5W25KiCztzZyje_vVulmiL2M0lLiGO47b5ZymVI_QDMFNC4iz4pHNYuxdQBvqUeb5dwvPcNQ0iSWmaptkI2qC8Zps43dD_RWum5N49qIM73cNZi8xw.jpg" width="400"><br>
 
@@ -249,7 +286,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-10 21:16:44
+###### 🔵 Updated at: 2026-07-10 22:39:41
 
 <img src="https://cdn1.telesco.pe/file/BWtxgNE22EBhin8Q4Gshycnu9KM0RozuqCnxcBh4rKAvnZfYtulyJ4FzidKbUiW7-gQR22JQrughrHt9Jimh7DPe-r8GHC8WfKhn0Yz-b5Gx-bazm8rryadVtyHJDFYpDMgQQlmtZBltoeOBdmgYPydHyzsI2_faYEAq5d0rQ7R6Q-knYhmvCZ7ZU8z7R7JD5zjjvdUaKwLURnyO2H--Hn8QIQL-wKODoepjZrIHhnTG7nrZoJ13xQlgvTWb4EUD7faZ6VFe37w_EV7EEJYllVB6QHaAD7Z1C9RpSIcYZS3J8aO4XEdCuQAqxcCTEqJ-fK3fnjcFbpZU4wulFn2fpQ.jpg" width="400"><br>
 
@@ -267,45 +304,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76905)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-10 21:16:44
-
-<img src="https://cdn1.telesco.pe/file/iHziPtXQRH4X_Ij7lrqN3LU4p161NtJpcIMZKh3iMBgk4cyLc1k7O5SaWJ_d_GpA7ySXcjDe0T3Q3IGcDIJoT8c3EF442zoRcHKSdnUfEgtLF1KnqP-n0gn3e50K_gjrlHuqMgZnDXATZZCQO6Au2LnAYowBga8_GIRX_jYVcrVPCb0hBPFc3SeEarg1GQ_rgQJCJfxU-ThnYJzFdOZJrmgzZMTZtyljQH5ul-L9itXcYkROqs_d3SP4mrHxzqcQPLpYdefJMGIHz1A7S0gYV5Igr39IuIukjIqL0sUiEkkOevYe4XVt9vShJ_-0Z4Tl5x0u9c7VzaXN-fVtSVIPmg.jpg" width="400"><br>
-
-یک مقام آمریکایی شامگاه پنج‌شنبه به سی‌ان‌ان گفت: «ارتش آمریکا در حال حاضر حمله‌ای انجام نمی‌دهد.»
-پیش‌تر رسانه‌های ایران از شنیده‌شدن صدای انفجار در شهرهایی از جمله بندرعباس، بوشهر، اهواز، کنارک و چغادک خبر داده بودند.
-همزمان آتش‌نشانی اهواز اعلام کرد انفجار شامگاه پنج‌شنبه ناشی از «نشت گاز» در یک ساختمان مسکونی در منطقه حصیرآباد بوده است.
-@
-VahidOOnLine
-صدا و سیما بعد از تکذیب آمریکا:
-برخلاف برخی خبرهای منتشر شده در  فضای مجازی، تا این لحظه هیچ انفجاری در بندرعباس، قشم، سیریک و جاسک گزارش نشده است.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76904)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-10 21:16:44
-
-<img src="https://cdn1.telesco.pe/file/a4okmdtmWnkQXcThbba_8ueqzkD2dQJW4k7THLSwCX6qeqP9pE50hPekZBhzeWcs0q-ambWU9h_uPP753iMch_NOs0xeK-uFhZnHAaqozX2dORuyKmncTE-DA84PT5___nC7ylUcFtpsHj_OVUf8d3nBaxjLwNu073Jdh5QnsNMZK3rb5EQKtyz27Xw-UYVt41JAZ3mHq2sjKuM7jyxTHv6WgztkRtY4Y4LlfufTtEl7lAVW1tms3bhSd1ymgD5hyGIwT3vIESC-mTXby-6CRQ8MDhdB4GIdGnuF4eWjfUV_DhWgzVARNvh0DrQd4KU7a1ZpPxWJgo0exeVWIHQliw.jpg" width="400"><br>
-
-تصاویر صدا و سیمای جمهوری اسلامی ایران نشان می‌دهد که اقامه نماز میت علی خامنه‌ای، رهبر سابق جمهوری اسلامی، توسط مصطفی خامنه‌ای، پسر ارشد او، برگزار شده است.
-پیشتر تلویزیون دولتی ایران اعلام کرده بود که مراسم تشییع علی خامنه‌ای، در مشهد با نماز میت به امامت آیت‌الله حسین نوری همدانی، به پایان خواهد رسید. دلیلی برای عدم حضور آقای نوری همدانی اعلام نشد.
-خواندن نماز میت از سوی پس بزرگ علی خامنه‌ای، بار دیگر نبود مجتبی خامنه‌ای را در مراسم تشییع پدرش مطرح می‌کند.
-مجتبی خامنه‌ای از زمان انتخاب به جانشینی پدرش، نه تنها در انظار عمومی ظاهر نشده بلکه پیام صوتی هم از او منتشر نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76903)
 
 ---
 
