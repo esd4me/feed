@@ -3,13 +3,54 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
-<img src="https://cdn1.telesco.pe/file/i04kwknu4HM2aTa9wYp3yjaeJFwuUsWfWP2vzE4sEAOActG4Aw6TnelqfU0aiy72AJfDEW41zDmcqKTa9I1lrStABGAysCQnk7gpmshYuXKV2BN_83EFwzWLSbr7n0WsWnmUXoNdY0CQObzXEKfFzkAopQE3Oqpb_B9DTZLclbkrIowvHkmBSkm1c0Pxn9gRdtFetxVDAnUeG6ThsClDxSKpo4NlbXhSsebJmVvxnwzL-RB8dPvtF2BZadhPrpr_0ENl6OYEwvGS838_ONYinVzKEoKuTZX72hTHNibe7B6yh9I9ESzn86PLOVJpGP1cP8tFKMpJeVo0tN1XlpUtLw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/f2IMOuuzK40eV65iWNQWb5ACXK7BZQId-91BhLBRCKZaNn2-bkGFeIxp-VuO9d7rXkMHfuSi7ocnCzXKAXVKsWNLRcSv5gNDKpe_ZxjBfkWJR3FkV1DryGWtJbKC0fc9XKqkTpfkzVOQNzpuqudXD5FLjCFUnvqxFyE_PGybUTwTaYcsA58AysuyaH9prFPe-OQM6HzyOToYXNq7J5rIpTnsGXccPZVUuVxYdt1q_P2Ym0-LhoprfoMfDos1IXrL5yVYDLf_1I8p1r0EKjTR3huhLQhU1QuXrdVFSCUDARxRyBqR5DaVV5aKSC6NjAiztFYRnSknMU9znlOeE9kNJg.jpg" width="400"><br>
 
-دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا اعلام کرد علی انصاری، شهروند ایرانی مقیم امارات متحده عربی، به اتهام ارتباط با سپاه پاسداران و مجتبی خامنه‌ای در فهرست تحریم‌ها قرار گرفته است.
-همچنین محمد دربانی، شکوفه رستم‌آبادی، محسن خندان، علی‌اصغر خندان، احمد و امیر نوایی لواسانی و زهرا سرشاری از افراد مرتبط با شرکت‌های صرافی و تبادل ارز در ایران، در فهرست تحریم‌ها قرار گرفته‌اند.
-شرکت تضامنی لواسانی و شرکا، شرکت تضامنی صرافی محمد دربانی و شرکا، شرکت تضامنی محسن خندان و شرکا، شرکت سی‌دی‌ام تریدینگ لیمیتد در هنگ‌کنگ، شرکت نابا الزکی تجارت مواد اولیه با مسئولیت محدود در امارات متحده عربی و شرکت اسمارت گلوبال لیمیتد (با نام دیگر زیبا لیزر لیمیتد) نهادهایی هستند که در فهرست تحریم‌ها قرار گرفتند.
+آمریکا از ایران خواسته است ظرف ۲۴ ساعت علناً متعهد شود که شلیک به سوی شناورها در تنگه هرمز را متوقف خواهد کرد
+خبرنگار اکسیوس،  ترجمه ماشین:
+سه مقام ارشد آمریکایی روز جمعه در جلسه‌ای توجیهی با خبرنگاران گفتند ایالات متحده، هم به‌طور مستقیم و هم از طریق میانجی‌های منطقه‌ای، از ایران خواسته است امروز، شنبه، بیانیه‌ای علنی منتشر کند که در آن روشن شود تنگه هرمز باز است و ایران متعهد شود به سوی کشتی‌های تجاری عبوری از این منطقه شلیک نکند.
+چرا اهمیت دارد:
+ایران با چندین بار شلیک به سوی کشتی‌های تجاری در تنگه هرمز، یادداشت تفاهمی را که سه هفته پیش با ایالات متحده امضا کرده بود، نقض کرد.
+این اقدام به چند دور تبادل آتش انجامید و توافق را در معرض فروپاشی قرار داد.
+مقامات آمریکایی می‌گویند اگر ایران به چنین تعهد روشن و صریحی پایبند نباشد، این موضوع تردیدهای جدی درباره اجرای یک توافق هسته‌ای ایجاد می‌کند؛ توافقی که بسیار پیچیده‌تر و حساس‌تر است.
+محور خبر:
+قرار است عباس عراقچی، وزیر امور خارجه ایران، و بدر البوسعیدی، وزیر امور خارجه عمان، روز شنبه در مسقط دیدار کنند تا درباره وضعیت تنگه هرمز گفت‌وگو کنند.
+عمان در هفته‌های اخیر، حتی پیش از امضای یادداشت تفاهم، با ایالات متحده و متحدانش در خلیج فارس همسو شد و یک مسیر کشتیرانی جنوبی در نزدیکی سواحل خود گشود که کشتی‌ها می‌توانند از طریق آن از تنگه عبور کنند.
+ایرانی‌ها که معتقد بودند این اقدام اهرم فشارشان در مذاکرات با ایالات متحده را تضعیف کرده است، خشمگین شدند.
+مقامات آمریکایی می‌گویند اعضای تیم مذاکره‌کننده ایران به آن‌ها گفته‌اند عناصر تندرو در داخل حکومت تصمیم گرفتند برای بازگرداندن این اهرم فشار، شلیک به سوی کشتی‌ها را آغاز کنند.
+در مواضع علنی، تیم مذاکره‌کننده ایران، فرماندهان سپاه پاسداران انقلاب اسلامی و دیگر مقامات ارشد، همگی موضع واحدی دارند و خواستار کنترل ایران بر تنگه در آینده هستند.
+پشت پرده:
+یک مقام ارشد آمریکایی مدعی شد که پس از دو روز درگیری در اطراف تنگه در اوایل این هفته، ایرانی‌ها «دوباره به سراغ ما آمدند و خواستار گفت‌وگوهای بیشتری شدند تا برای حل برخی مسائل تلاش کنند.»
+این مقام آمریکایی گفت: «آن‌ها به ما گفتند: “گند زدیم. اشتباه کردیم. بیایید به گفت‌وگو ادامه دهیم.”»
+به گفته او، در داخل حکومت ایران بر سر اجرای یادداشت تفاهم و مرحله بعدی مذاکرات با دولت ترامپ، جنگ قدرتی در جریان است.
+یکی از مقامات ارشد آمریکایی گفت: «افرادی در داخل نظام آن‌ها هستند که می‌خواهند به توافق برسند، اما ما نمی‌توانیم به‌جای آن‌ها تصمیم بگیریم. خودشان باید اوضاع را تحت کنترل بگیرند.»
+چه می‌گویند:
+مقامات آمریکایی گفتند انتظار دارند ایرانی‌ها پس از نشست روز شنبه در عمان بیانیه‌ای منتشر کنند.
+یکی از مقامات ارشد آمریکایی گفت: «ما می‌خواهیم آن‌ها علناً بگویند که شلیک به سوی کشتی‌ها را متوقف خواهند کرد و به‌صراحت یا دست‌کم به‌طور ضمنی بپذیرند که گند زده‌اند.
+در حال حاضر روی همین موضوع کار می‌کنیم. انتظار داریم ایرانی‌ها بگویند همه مسیرهای کشتیرانی در تنگه باز خواهند بود و هیچ عوارض عبوری دریافت نخواهد شد.»
+یک مقام ارشد آمریکایی دیگر گفت اگر ایرانی‌ها از انجام این کار خودداری کنند، پیامدهای سنگینی در انتظارشان خواهد بود. او گفت: «اگر فردا موضع آن‌ها این نباشد، روز خوبی برایشان نخواهد بود.»
+BarakRavid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76925)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-11 01:10:54
+
+<img src="https://cdn1.telesco.pe/file/UeQk49GnUgNO9jckQ3hdcDNpLdCOW1CGdTwDjnItWphu6Fz8RROaMMfvoJ1hUGtLQdJQQtJvluqKK166e1XYjjyaJRDhxZb86V4en7kxCJfmP6-qiSKcBGRwy3JlXdmchGXxYcGaibEN1VK27z7_tx763wjyangQUiEZAPMyg4glg1-_NWulO8RyYKhhVJGRo40dYafdlDeH86CbsibS5We6xIf5_vm6GW3oJHwGXtJ4o2mcm0OwblGmH4-w4zeItkRjAmqTYleXN9HcqH9FJ8iSILeuGCrzRZtQDIGf5GeMP-q8hg91xBLV9_vT62MrYokuPVtWY0GL3iIYe5xY2w.jpg" width="400"><br>
+
+آمریکا در اقدامی که از بی‌اثر شدن تفاهم اخیر میان تهران و واشینگتن حکایت دارد، تحریم‌های تازه‌ای علیه جمهوری اسلامی و شبکه مالی آن وضع کرد. در فهرست تحریم‌های جدید نام علی انصاری، از چهره‌های نزدیک به مجتبی خامنه‌ای و متهم به فساد اقتصادی، دیده می‌شود.
+وزارت خزانه‌داری آمریکا جمعه ۱۹ تیر اعلام کرد این تحریم‌ها در واکنش به حملات جمهوری اسلامی به کشتی‌های تجاری در تنگه هرمز اعمال شده است.
+این وزارتخانه علی انصاری را «تسهیل‌گر مالی» جمهوری اسلامی معرفی کرد و نوشت او بر شبکه‌ای گسترده از دارایی‌های جهانی به سود مجتبی خامنه‌ای و دیگر مقام‌های حکومت نظارت دارد.
+بر اساس بیانیه وزارت خزانه‌داری، انصاری با نهادینه کردن اختلاس در ساختار جمهوری اسلامی و انتقال ثروت‌های عمومی به مجموعه‌ای از املاک و دارایی‌های تجاری در خارج از کشور، خود، مقام‌های حکومت و مسئولان ارشد دفتر رهبر جمهوری اسلامی و سپاه پاسداران را ثروتمند کرده است.
+وزارت خزانه‌داری آمریکا همچنین شماری از صرافی‌های کلیدی وابسته به حکومت ایران را تحریم کرد؛ نهادهایی که سالانه میلیاردها دلار را به نمایندگی از بانک‌های تحریم‌شده ایران جابه‌جا می‌کنند و با استفاده از شبکه‌ای از شرکت‌های پوششی، فعالیت‌های مالی حکومت را پنهان می‌سازند.
+اسکات بسنت، وزیر خزانه‌داری آمریکا، پس از وضع تحریم‌های جدید گفت مجتبی خامنه‌ای «در حالی در انزوا پنهان شده که حکومتش در حال فروپاشی است».
+او ادامه داد: «وزارت خزانه‌داری همچنان از همه ابزارهای خود برای جدا کردن او و دیگر مقام‌های ارشد حکومت از نظام مالی جهانی بهره خواهد گرفت. ما این دارایی‌ها را برای مردم ایران حفظ خواهیم کرد.»
 @
 VahidOOnLine
 📡
@@ -21,7 +62,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 
 
@@ -40,7 +81,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn1.telesco.pe/file/bR72hgIElh89mX2ST2nFoiwagpVqLfASwCdWUR5PFQFjXtQAQj5R0zmHKRRjuky_wg0_LbByOf9hQg2Ve03Qgh996SAPk8MRS1yRIghzHh8y4WTTeXWk56rK0VRMoOO46AZB798Wowvqib7fFzN5InPGqTn2QhShYHoOfW8y1vbtlUBoA0SHXVuREeqTToiu6r6YXuQFk1VkWhyML_ib5GyNbokMmUpfYalyE0Ep9Lss6heHr35E5HpXhyDGgLW4IrCYpRaahWj50OFo1M3CaekkjjT3C7uaFgkiPfYf12tiey7zqqpOKmeqCs9tATg8hNlqZRdsgG37UmhoFymf6w.jpg" width="400"><br>
 
@@ -57,7 +98,7 @@ Koronmusic
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 
 
@@ -71,7 +112,7 @@ PapiTrumpo
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn1.telesco.pe/file/LswCZPNIzYavuvWkQq15XqsZ2_YLxrtLKE958JgBVrtq8dosZ7h4B6NUY58Uj-S0w8u_9N9fdjdHGhTC1jc_JikGwWX8_pph71bZD-jQqvf5FvBNFS9MiP2LLjgZCZ9rAwutfNj1fXm0nAssS37kl7EOMuyeIYAaD2kf_EqKmQ_k12zAIQ9nj55omyn4KBpxR90M4x1DpgKyCBx6J_O_nghixIoUFnvLVDIHy7HEIkeg5QJsl9ijy01FaMh0ybNg02CAmHoVal3wXDY6Blds03ChDeuMGM6W6VkM8YigAhdO7skbSm0HLVF4yqq4N5-5qYB0uRt-a9z0Onk2lSIOIw.jpg" width="400"><br>
 
@@ -92,7 +133,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn4.telesco.pe/file/uc_svdB_2U3A3--f2kGZVGTMfmM6S3TNVLWVpr8tG92Lcz1nHMjsDTDuqvLZk86rsifT3_1JDS88exLo5iDpGb4dEBZcltMx5bgUQd0YcIzAT-mRN0er0oKE07gxx_PCpZWISqj1WVhHO54e6gBvcLf_2akzq7Omv2mbjrQNIaW3lcbzaqtpiJyZpPbcB-c6FU6PyVypM-a9eoOTD8k_mdRCXtS43xQZl6o_U3uuc4mSyyhFRNNmtfp7oAK127VBzJcY2JX0fkljghqf90hb6vPI1H5GC7jYBVXKf9lK6FAFTV8ODdpupku5oP2fjfOzpwlTYwTmoK2jDs5d9kkcAg.jpg" width="400"><br>
 
@@ -110,7 +151,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn4.telesco.pe/file/aVc2KbkrVkcAYIx8VvjAudOVQIOPZdj-NMjrIgTbUM5vSfjt2K_7JBffispv5AesiBXbFmFI3QHH9vn2FRpKgUVJMAp1bL95uhgG6Diuj9ue-P0sMXni9yDl34Pw89gnHrcOQ-sPxMuXyPEs6PvlmuuXoYE_0WbdO00T_w2LJwEL5TZKNyhn6QmCWHT4AAHzlQMbUrmT3sgpsQJuK0-E_Ck3bSEI8j17v7lqlk0aXQUYgHjh3meRWzjhoYPhWehpRhMGQs_924NKXe69U3OXlWycuB4UKpuI0GbjXEcRcAL5YeA4-E17U-M6UVfwan6G0LpF3OVSxHjHSs92vbyUrQ.jpg" width="400"><br>
 
@@ -127,7 +168,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn4.telesco.pe/file/HTnMiIc99CkiOKlkJ5vVsW4QmiV3nztaP0p3eDfBLyDD2OHDbUYjjD6owTB2glP9i21CfYBmQ5dGFBCSVwzA1R5_a49_JrpJ-9EEyqfLUtDDpbbcExIpQfeykaxGM_nT355_oHCatr5g5cgIQMitqVrnKwKZqEOKaa-02mO2HFoJoXfGDPSUP4gbRVJmKlge-0yvjwIZdWc_IF6-DjKdvpkDMnh2s9_Kb75CulrhGqePWVQ0I6yaURCRH3GllRY-8n5MTxFkw4yCBtk3kKu5F5t1DyNDi6eU_1TmcL2NuKK83D0BF8i5_ztcUWP1LuWHIYF6JgHz7HtCUCQ9xf93IQ.jpg" width="400"><br>
 
@@ -139,7 +180,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn1.telesco.pe/file/Ds5FDw1JJmqEF4-uW2YyPICAkv92eSSN5QAFtsbwJfE_cB5oXzxi90x0mUQomBiK-Qp809zvF75WLAgPOI7Q9BamtLOqjvxnDtwzD8BT8omKByY9FbCZlItpf7lwOrmrBn_X0tHda95fstTrEzDS1S3dMudkat0fGC_G1SovGG0V3jri9vLPVUrovWGHJJqc7zC3R2_idiMyogezD-ykhR0L7ydaCwZQFE9F_HDpB4zFXRg0vX5RQChlIIhtBPBspYD45LkfBNvktMvvtvE5wsxSMVglMn9kvbKmNPslgBE2lpYu2oViINmOQ3auolp7ujMwkALvOzVFOtm-ctACqg.jpg" width="400"><br>
 
@@ -158,7 +199,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn1.telesco.pe/file/aveqdCBTb6vrFo7lGSQDErHHXh5qp6FxPXGlbJvuAtTltOchVwBEat04hSG8R5hwAPU6cywNdzZWzmxJeApJp3Rlks4G1Av3IgV2E_1k7g4HPvIB6HdP_SAMqtHa04s6NZS3JpVeGGBzwpwqxoYj9QC41OaylqEd961pi7W-t3U7TTpZKcydQANR0PZ_DlyP6OSR8Vvcp52wpmtKhON_D5nngJwGY3ZSrs7HPtKtkmzXiQhKeVPYzf4tIU2oi2-Lsm7RkahdhRYUGzhWm1krE9_1P2lw0qptXsU66eE8R5Vi5wH4xQLou-3ZMYr4wRgLncNPjmLa66lK7U4BuEjgCg.jpg" width="400"><br>
 
@@ -183,7 +224,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn1.telesco.pe/file/fX-VwZCakJE3342nxRHNK3XdhNf3fKqgUiuRhMBA9U-5eJKDgOR5cXmvDcqgaWRSc3m6dC6atuCzMZPMqYJ1xrZH1f2hem65dbnTjEf3YwWFgbez6u5e2KeJR6mhrj5yLSGRpMRIwNZWXL_-shFYLQ6ATmAHg0hXxQlUz15jeQByrBfUfS1ZKbiugmtoCzrJJ5G7ELi9U2uheoFYFfaRyLByUbqS11vMRe9iNA3PYLA7DLeDWS0NiqmA8UQiCQ9v0rLFcxi4oDs5uFKAxz6PWYaa_MBSLRR2yyslC9wdmvN07pOjh35liUONYbQpSPjQCjc14uTAqHTQtsaxUsInSA.jpg" width="400"><br>
 
@@ -203,7 +244,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn1.telesco.pe/file/pUQ7It0PPRrxo8lxIrR2DuB0VpHL2M2SPFgKYHpf-dJQI3rKzOsUhjbEA6KLB1unNfFGwESnZX8fxmOEC5SEnASgPXjSDappphz7l8Q_H1zz5WsJxaz58A9oWcnUn1S7mkpSjOsfF8gJbRm4ZDaMimU_tyjEDGU-pF8I7qXWqcTdtvACr-Gse_vQ5Q2tAr_lCo_DsSzDNTlBDGa3lhNI1c3E-QiLBVQk0reLJv-Ynx4buL8tn_PS7tDRU9ng_jzGOCLr5a7YsGeOCPB8JLUb_nRyezPlq8OeF8u-gqIyh0dbg7l5CJxtr7aFPW_tbnQlPuZIWRbhG3jl-2kcmItb6g.jpg" width="400"><br>
 
@@ -225,7 +266,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn4.telesco.pe/file/NbTHdzegxh7dk8DFvlXCGZ83eA4vv3PpuCPL4rOYTYyeYNDuG-C0uJVmwubDIFMLQW0x8hnEHBNIbK5jO3wrJe_kbj5BBEUd7Eekd8mVsdq4qMh70Bjjf74R60Im7g5_lFv3V2pCfYanu2GgJBXOuaIVrzoj_QszvNJgpEpOnTRLk_zbbluzXuYo2zKkaFUc2L8zVSQnRtsT-qn46qUXZUTD0JW_5XV_L8nAVOYUoYPXSFReFRyxuq_tqZ2PTzu-HzHh-7TBG5a5ibjJ2MMF6RqDmsuGVEFA6bJtqZ7jfK08448wwb3IKrBK0j7WaJfRElxo_lmhW2VsXa_iHgY__Q.jpg" width="400"><br>
 
@@ -241,9 +282,9 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
-<img src="https://cdn1.telesco.pe/file/t3bdAjNRZekUQtnqmOnM_cK9AywuXFe5T7vJs8t5XXp3w3pE9aBbdgIKNs5nBbI6IQrPo4VgyXryLF6MSvLnyjTgRToj9KoTpQLNRKnDM3efRskJ59y29-0yoKmPilXI-jM9PpoGkQjBVsVkfJxomL8bvvgVhLLxLMKpRWvACoSA1iSuUxbkisiF1jQbNCZ9lCU7L2nO8krqqwEV_qeFgfld73CAYkxEBhPyBS6JOuMmZEIisqVEq2-LD7M0rJS5QVBUgyIn2OvDEpCZAzvhdz4AjLBpvW7ELsqKvk1MiCUMA4ucCcb2OJ7tybtf-Oz6t6BJSmG7S3IVnMqydp7tEA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/isB01sitYlB0q2DktZ-k54H5t2ZDkc1S6y8Twg3T9NF_zqfvAoDHzy8_JsVmheab3vJF1tp6uzcdvZxfdB9PNdmNvRCODUItj9e3NU5C1B4fCQW8t5LdgBLoDOaG9N87i9OzmJ0B6jvIpUIaXUiT8T1l09vpAjukiMBEY83IylQrC7UaxtdLQrfvGcMnadoVwyoqZCDslPAXGYukN0q2XMxXXXjSkMYaZ7QJrknFtZEqiFNoQHaKVzKrsqWe0EUbo1WwhyzH027qW5EkAzAr8UdDir8u7F8kGnJqzHGeW2X0ai8oBMtu4VjvoyQZp2Pmneer9vWxa2rTZIy22LiUcw.jpg" width="400"><br>
 
 به گزارش خبرگزاری جمهوری اسلامی، ایرنا، معاون امنیتی استاندار خراسان رضوی وقوع تیراندازی در منطقه بلوار سرافرازان در غرب مشهد و کشته شدن دو نفر را تایید کرده است.
 ایرنا گزارش کرده که امیرالله شمقدری گفته است این رویداد تروریستی نبوده و انگیزه اصلی وقوع این درگیری در دست بررسی است.
@@ -263,7 +304,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 00:10:56
+###### 🔵 Updated at: 2026-07-11 01:10:54
 
 <img src="https://cdn4.telesco.pe/file/fWvYVhf7TJy1LSX6Cpst-rXpWHCz2Mmt4E982Cq2QqsqH_1qU7lqSnQuaC_IG6iX9o_2gwwfuomOWQ37KJia5s_ETEY18yumnvWIYb46W3OuAKvLwuubCa_EAzfN2hSNknUZA9rD_5RUNOCAkCXL0N7W_zTful3Ztup-8LeXhWcagTcvPMqvHlXlR6Mum6uH-T4OnoGPJ3Mp8B7qkRkvlrhMuai2Bj9SFs-OMbbG1G_plq-JKULkv3422bdwXbNAwIeqNfJ_hMHcS6Ux3dEyGKltkYHmCw32feaasjqkuriyxzr0OHb8CF7yXlKI7Hz_kkxYOz2zqjtPPW4KJj1zZg.jpg" width="400"><br>
 
@@ -281,29 +322,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76906)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-11 00:10:56
-
-<img src="https://cdn1.telesco.pe/file/F46lbebbSfPnGFdu2vRhL9iXsY6Ug8YDEbNsfcPkGoS3DZ_d9eF11WH7VLiouMwHrQG_5f8MqeSni4HDXP0rQfwxBNWYJn4CC463deNTu86RQuq1JCCRseGyRa-2uHTMe5MQZZhis29m-PPgtcNK55I26B0DSscV3Z4KTVcwSE_ugn_wz6hxchDXJewG4_86sMxY6crgwkN6T4YRvO1NcrGtya4seCPP-Sbp6mexDwsUehLHUvp5KtPPkAd8tgBv969Jm-KwAGJq2XHYuq5mxKXscRlcZMiF0_LXb3QdQ91Jr9eHJ23GPLs8xzt0dw6xSMK7VNHvL72bOM8_7XaDlg.jpg" width="400"><br>
-
-در ایرنا به زبان فارسی سخت تیتری درباره صدای فعالیت پدافند نوشتند، می‌ری توی متن خبر می‌بینی نوشته:
-"لحظاتی قبل یک مقر نظامی در حاشیه شهر بوشهر مورد تجاوز و اصابت پرتابه دشمن آمریکایی- صهیونی قرار گرفت."
-irna
-به نظر می‌رسه از روی صدای انفجار برخورد پرتابه، مدعی تشخیص کشور پرتاب‌کننده هم شدند.
-احسان جهانیان، معاون سیاسی و امنیتی استاندار بوشهر، شامگاه پنج‌شنبه اعلام کرد یک مقر نظامی در حاشیه شهر بوشهر مورد اصابت پرتابه قرار گرفته است.
-همزمان صداوسیمای جمهوری اسلامی خبر داد تا این لحظه هیچ انفجاری در بندرعباس، قشم، سیریک و جاسک گزارش نشده است.
-پیش‌تر رسانه‌های ایران از شنیده‌شدن صدای انفجار در شهرهایی از جمله بندرعباس، بوشهر، اهواز، کنارک و چغادک خبر داده بودند.
-یک مقام آمریکایی شامگاه پنج‌شنبه به سی‌ان‌ان گفت: «ارتش آمریکا در حال حاضر حمله‌ای انجام نمی‌دهد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76905)
 
 ---
 
