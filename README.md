@@ -3,7 +3,105 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
+
+<img src="https://cdn1.telesco.pe/file/t0MzmtkzPL4WzaWjtC1rx9N0mE3jamMhMXDruxCPUZ-tvdzykiPA9ONl0Tj2E-0f5nVatypp5PwUJU05Vykk0g1uLYJgnKnI0rcb4hH7D4xGomQ2qGoEiOkH0F8EW3Vy6F15PzCMvI6cAzHFU3rqpf23HGL7Sr50tlybR6tdlFqhCXnQs7XURJt-uENSH0tjQ2MfGA3vJWaAhORvvFEhAJjNIALepz79x3YZjW3s9KyrESwmiFlJkoiXZ_fISb0zKHLyBi2WnhExO8UfwJgvaWI3iCxWA49j1rlaUu5VYvoIhARAr1lhObXQMVQ5vslKLeKk_U0Z5CF5KsZUYYS5Cg.jpg" width="400"><br>
+
+شنیده شدن صدای انفجار حوالی پارچین، پاکدشت و قیامدشت در جنوب شرق تهران و دیده شدن دود
+شنبه ۲۰ تیر
+Vahid
+ادعای خبرگزاری فارس:
+پیگیری‌های خبرنگار فارس از منابع نظامی نشان می‌دهد این صدا ناشی از عملیات برنامه‌ریزی‌شده امحای بمب‌ها و مهمات منفجرنشده باقی‌مانده از دوران جنگ بوده و هیچ‌گونه تهدید امنیتی برای شهروندان در پی نداشته است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76929)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-11 10:06:11
+
+<img src="https://cdn1.telesco.pe/file/ODnJRrvChDlHx1MIvu1sxxdrqnaR1n_ip1Xe9J5JQtNz5xqtf9eJzXUMsSRBWJ3fK7gbXei_RayNVKJj0kpU1JZwFVdoPagVPutij7wUf1t7qnvoyU5YLHGfJAcqxrrPWz9Gyl9kQeMMTIvZPOds4nZy6v_hdVeVuGpmR9x7CLe0ypw77-c8J8YmQc18VSn4UqpRi2sV-g2aqfgMNN8J-su3qR3BttasycsgXEbmxF-u79vABB6GOtTShxZzaf7uaROO_XFEBGqg9gsLhr98e2DXeagq1Q9BBeJ8zShyhJjVxAUfKfQEahhR2uy2I_Z6DJ1cwvUkn2iKWT90mf92TA.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+صدای انفجار در پاکدشت پارچین
+سلام وحید جان
+پارچین همین الان صدای یه انفجار شدید ۹:۳۱
+صدای وحشتناک قرچک. مغازه لرزید
+کل قرچک صدا رو شنیدن
+معلوم نیست هیچی
+ساعت ۹:۳۰ صدای انفجار شدید سمت پارچین
+دودش مشخصه
+قیامدشت کلا لرزید
+شهرک صنعتی خاوران
+شیشه های مغازه لرزید ۹:۳۰
+سلام ما خاور شهریم صدای انفجار شدید اومد شیشه ها لرزید
+صدای انفجاری محیب از قیامدشت به گوش رسید
+به حدی مهیب بود خونه لرزید
+سمت شهرری هم لرزید حتی
+درود ، عزیز پاکدشت صدای انفجار اومده دقیق ساعت 9:28
+سلام ماهم صدای انفجار پاکدشتو حس کردیم از خواب پریدیم و ترسیدیم ولی یک انفجار بود
+سلام اقا وحید ما تو قیامدشت چنان حس کردیم که انگار کارخونه خودمون منفجر شد
+کل قیامدشت و چهلقز شیشه ها و خونه ها لرزید
+سلام وحید جان ،پارچین انفجار شدید بود،ما قیامدشتیم،موجش تا اینجا اومد
+سلام قرچک صدای انفجار اومد شیشها لرزید ولی دود دیده نمیشه
+سلام ما محله ی ارکیده های پاکدشت زندگی می‌کنیم
+و انقد انفجار شدید بود ساختمان ها لرزیدن
+سلام پردیس  شنبه ۲۰ تیر حدود ساعت ۹،۳۰ یه صدای بلند اومد
+ما پارچین هستیم همین الان صدای انفجار اومد تقریبا ده دقیقه قبل ،الان دودش هم میاد
+وحید جان پارچین یه انفجار شد ستون دودش معلوم بود. پشت تپه های پارچین
+تموم خونه ها شدید لرزیدن
+سلام. نارمک ما صدارو شنیدیم تا قبل پیامها فکر کردیم توهم بوده
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76928)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-11 10:06:11
+
+<img src="https://cdn1.telesco.pe/file/YSBvk3z8T6YOjmeG6FA6Etk8wT3WlJlZZnMzYyUZLvOYEzmQru4jMCwlJlPkIJe1LUt1i6Ev5HOmwLlhv109mJPciUQ60z5ueyR88TYR-uy5hBndrgAYFrYGbcAbvw1kBqTGPg0fbHq2eF-QjoF_4WVB9N3nOM0v7o7VUt19Oot04QBijDoNL5iOu4BW7ZFd-1k63apL0AOMYQKY7X0HQZVJflG6fB8udn-0hivSrkszxTbUpbU4XxSQV8sZd63XE7rhKXbL7RLb6UGtWLx607rWniwI1kzRWLZeRF_d-8YE5hL2VQGAgKgGCKG9Ub95zJvBmmGpcFB-dfdU4ddjjg.jpg" width="400"><br>
+
+ترامپ: اگر تهران برای ترور من تلاش کند، هزاران موشک دیگر شلیک خواهند شد
+ترجمه ماشین:
+هزار موشک در حالت آماده شلیک قرار گرفته و جمهوری اسلامی ایران را هدف گرفته‌اند و در صورتی که دولت ایران تهدید خود را ــ که در بسیاری از نقاط جهان اعلام کرده ــ برای ترور یا تلاش برای ترور رئیس‌جمهور مستقر ایالات متحده آمریکا، که در این مورد شخص من هستم، عملی کند، بلافاصله هزاران موشک دیگر نیز به دنبال آن‌ها شلیک خواهند شد!
+دستورها از پیش صادر شده‌اند و ارتش آمریکا آماده، مایل و قادر است برای مدت یک سال ــ که قابل تمدید است ــ تمام مناطق ایران را به‌طور کامل درهم بکوبد و نابود کند — ستایش از آنِ الله باد!
+رئیس‌جمهور دونالد جی. ترامپ
+1000 Missiles are Locked and Loaded and aimed at the Islamic Republic of Iran, with thousands of more to immediately follow, should the Iranian Government act on its threat, pronounced in many corners of the Globe, to assassinate, or attempt to assassinate, the sitting President of the United States of America, in this case, ME! Orders have already been given, and the U.S. Military is ready, willing, and able, for a one year period of time, subject to extension, to completely decimate and destroy all areas of Iran - PRAISE BE TO ALLAH! President DONALD J. TRUMP
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76927)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-11 10:06:11
+
+<img src="https://cdn1.telesco.pe/file/Q2ZouTBdPTF1W98SGbV2ilxF7LpEK0YG_07vm92ylfLTHm8E1e-R5louvcNOyg4tyMdVZ293jR19OMsPZ-VH7F1ODuWYRcgGVJsrqIuIMbgH9RKZfr7U-jQKk1bO4iR6dFyI6nT5t4w3ZHlA_5wU2ntQqe5gl909k2Ji5DID8zUBkKqw8KsbjrfLalmFoLnUmdrNO9qsRrxp2yI0a5cJzPm6EreZTFBz_xRnWdSHkJn7J3-gb8ay4zcKISHGPH-_qW5-vFHm3bWG4YoyI-hNRUghdgOsBMKylpjme4_byW80-YYoZS7Y52mpSMKuPhvQD5fCpA4x-KUXlgGzOhlEEQ.jpg" width="400"><br>
+
+به گزارش «سی‌بی‌اس نیوز»، مقامات ارشد آمریکایی روز جمعه فاش کردند که مقامات ایران در پیامی محرمانه به مشاوران دونالد ترامپ اعتراف کرده‌اند که شلیک به کشتی‌های تجاری در تنگه هرمز یک «اشتباه» بوده و این حملات توسط یک جریان «خودسر» از تندروها با هدف تخریب مذاکرات انجام شده است.
+با این حال، کاخ سفید این اقدام را نقض صریح آتش‌بس دانسته و خواستار اعتراف علنی تهران به این اشتباه شده است.
+براساس این گزارش، تیمی ارشد از سوی ترامپ، شامل جی‌دی ونس، معاون رئیس‌جمهوری، جارد کوشنر، داماد ترامپ، استیو ویتکاف، فرستاده ویژه کاخ سفید و مارکو روبیو، وزیر خارجه، مامور شده‌اند تا گفتگوها را روز شنبه در عمان ادامه دهند. در حالی که واشنگتن انتظار دارد ایران پس از این نشست تعهد خود را به باز بودن کامل تنگه اعلام کند، مقامات آمریکایی هشدار داده‌اند که اگر ایران نتواند به این ساده‌ترین بخش توافق پایبند بماند، امیدی به حل مسائل پیچیده‌تر نظیر تسلیم ذخایر اورانیوم غنی‌شده نخواهد بود و در صورت ادامه اقدامات خصمانه، با پاسخ سخت نظامی و اقتصادی مواجه خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76926)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn1.telesco.pe/file/f2IMOuuzK40eV65iWNQWb5ACXK7BZQId-91BhLBRCKZaNn2-bkGFeIxp-VuO9d7rXkMHfuSi7ocnCzXKAXVKsWNLRcSv5gNDKpe_ZxjBfkWJR3FkV1DryGWtJbKC0fc9XKqkTpfkzVOQNzpuqudXD5FLjCFUnvqxFyE_PGybUTwTaYcsA58AysuyaH9prFPe-OQM6HzyOToYXNq7J5rIpTnsGXccPZVUuVxYdt1q_P2Ym0-LhoprfoMfDos1IXrL5yVYDLf_1I8p1r0EKjTR3huhLQhU1QuXrdVFSCUDARxRyBqR5DaVV5aKSC6NjAiztFYRnSknMU9znlOeE9kNJg.jpg" width="400"><br>
 
@@ -40,7 +138,7 @@ BarakRavid
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn1.telesco.pe/file/UeQk49GnUgNO9jckQ3hdcDNpLdCOW1CGdTwDjnItWphu6Fz8RROaMMfvoJ1hUGtLQdJQQtJvluqKK166e1XYjjyaJRDhxZb86V4en7kxCJfmP6-qiSKcBGRwy3JlXdmchGXxYcGaibEN1VK27z7_tx763wjyangQUiEZAPMyg4glg1-_NWulO8RyYKhhVJGRo40dYafdlDeH86CbsibS5We6xIf5_vm6GW3oJHwGXtJ4o2mcm0OwblGmH4-w4zeItkRjAmqTYleXN9HcqH9FJ8iSILeuGCrzRZtQDIGf5GeMP-q8hg91xBLV9_vT62MrYokuPVtWY0GL3iIYe5xY2w.jpg" width="400"><br>
 
@@ -62,7 +160,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 
 
@@ -81,7 +179,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn1.telesco.pe/file/bR72hgIElh89mX2ST2nFoiwagpVqLfASwCdWUR5PFQFjXtQAQj5R0zmHKRRjuky_wg0_LbByOf9hQg2Ve03Qgh996SAPk8MRS1yRIghzHh8y4WTTeXWk56rK0VRMoOO46AZB798Wowvqib7fFzN5InPGqTn2QhShYHoOfW8y1vbtlUBoA0SHXVuREeqTToiu6r6YXuQFk1VkWhyML_ib5GyNbokMmUpfYalyE0Ep9Lss6heHr35E5HpXhyDGgLW4IrCYpRaahWj50OFo1M3CaekkjjT3C7uaFgkiPfYf12tiey7zqqpOKmeqCs9tATg8hNlqZRdsgG37UmhoFymf6w.jpg" width="400"><br>
 
@@ -98,7 +196,7 @@ Koronmusic
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 
 
@@ -112,7 +210,7 @@ PapiTrumpo
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn1.telesco.pe/file/LswCZPNIzYavuvWkQq15XqsZ2_YLxrtLKE958JgBVrtq8dosZ7h4B6NUY58Uj-S0w8u_9N9fdjdHGhTC1jc_JikGwWX8_pph71bZD-jQqvf5FvBNFS9MiP2LLjgZCZ9rAwutfNj1fXm0nAssS37kl7EOMuyeIYAaD2kf_EqKmQ_k12zAIQ9nj55omyn4KBpxR90M4x1DpgKyCBx6J_O_nghixIoUFnvLVDIHy7HEIkeg5QJsl9ijy01FaMh0ybNg02CAmHoVal3wXDY6Blds03ChDeuMGM6W6VkM8YigAhdO7skbSm0HLVF4yqq4N5-5qYB0uRt-a9z0Onk2lSIOIw.jpg" width="400"><br>
 
@@ -133,7 +231,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn4.telesco.pe/file/uc_svdB_2U3A3--f2kGZVGTMfmM6S3TNVLWVpr8tG92Lcz1nHMjsDTDuqvLZk86rsifT3_1JDS88exLo5iDpGb4dEBZcltMx5bgUQd0YcIzAT-mRN0er0oKE07gxx_PCpZWISqj1WVhHO54e6gBvcLf_2akzq7Omv2mbjrQNIaW3lcbzaqtpiJyZpPbcB-c6FU6PyVypM-a9eoOTD8k_mdRCXtS43xQZl6o_U3uuc4mSyyhFRNNmtfp7oAK127VBzJcY2JX0fkljghqf90hb6vPI1H5GC7jYBVXKf9lK6FAFTV8ODdpupku5oP2fjfOzpwlTYwTmoK2jDs5d9kkcAg.jpg" width="400"><br>
 
@@ -151,7 +249,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn4.telesco.pe/file/aVc2KbkrVkcAYIx8VvjAudOVQIOPZdj-NMjrIgTbUM5vSfjt2K_7JBffispv5AesiBXbFmFI3QHH9vn2FRpKgUVJMAp1bL95uhgG6Diuj9ue-P0sMXni9yDl34Pw89gnHrcOQ-sPxMuXyPEs6PvlmuuXoYE_0WbdO00T_w2LJwEL5TZKNyhn6QmCWHT4AAHzlQMbUrmT3sgpsQJuK0-E_Ck3bSEI8j17v7lqlk0aXQUYgHjh3meRWzjhoYPhWehpRhMGQs_924NKXe69U3OXlWycuB4UKpuI0GbjXEcRcAL5YeA4-E17U-M6UVfwan6G0LpF3OVSxHjHSs92vbyUrQ.jpg" width="400"><br>
 
@@ -168,7 +266,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn4.telesco.pe/file/HTnMiIc99CkiOKlkJ5vVsW4QmiV3nztaP0p3eDfBLyDD2OHDbUYjjD6owTB2glP9i21CfYBmQ5dGFBCSVwzA1R5_a49_JrpJ-9EEyqfLUtDDpbbcExIpQfeykaxGM_nT355_oHCatr5g5cgIQMitqVrnKwKZqEOKaa-02mO2HFoJoXfGDPSUP4gbRVJmKlge-0yvjwIZdWc_IF6-DjKdvpkDMnh2s9_Kb75CulrhGqePWVQ0I6yaURCRH3GllRY-8n5MTxFkw4yCBtk3kKu5F5t1DyNDi6eU_1TmcL2NuKK83D0BF8i5_ztcUWP1LuWHIYF6JgHz7HtCUCQ9xf93IQ.jpg" width="400"><br>
 
@@ -180,7 +278,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn1.telesco.pe/file/Ds5FDw1JJmqEF4-uW2YyPICAkv92eSSN5QAFtsbwJfE_cB5oXzxi90x0mUQomBiK-Qp809zvF75WLAgPOI7Q9BamtLOqjvxnDtwzD8BT8omKByY9FbCZlItpf7lwOrmrBn_X0tHda95fstTrEzDS1S3dMudkat0fGC_G1SovGG0V3jri9vLPVUrovWGHJJqc7zC3R2_idiMyogezD-ykhR0L7ydaCwZQFE9F_HDpB4zFXRg0vX5RQChlIIhtBPBspYD45LkfBNvktMvvtvE5wsxSMVglMn9kvbKmNPslgBE2lpYu2oViINmOQ3auolp7ujMwkALvOzVFOtm-ctACqg.jpg" width="400"><br>
 
@@ -199,7 +297,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn1.telesco.pe/file/aveqdCBTb6vrFo7lGSQDErHHXh5qp6FxPXGlbJvuAtTltOchVwBEat04hSG8R5hwAPU6cywNdzZWzmxJeApJp3Rlks4G1Av3IgV2E_1k7g4HPvIB6HdP_SAMqtHa04s6NZS3JpVeGGBzwpwqxoYj9QC41OaylqEd961pi7W-t3U7TTpZKcydQANR0PZ_DlyP6OSR8Vvcp52wpmtKhON_D5nngJwGY3ZSrs7HPtKtkmzXiQhKeVPYzf4tIU2oi2-Lsm7RkahdhRYUGzhWm1krE9_1P2lw0qptXsU66eE8R5Vi5wH4xQLou-3ZMYr4wRgLncNPjmLa66lK7U4BuEjgCg.jpg" width="400"><br>
 
@@ -224,7 +322,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-11 07:53:46
+###### 🔵 Updated at: 2026-07-11 10:06:11
 
 <img src="https://cdn1.telesco.pe/file/fX-VwZCakJE3342nxRHNK3XdhNf3fKqgUiuRhMBA9U-5eJKDgOR5cXmvDcqgaWRSc3m6dC6atuCzMZPMqYJ1xrZH1f2hem65dbnTjEf3YwWFgbez6u5e2KeJR6mhrj5yLSGRpMRIwNZWXL_-shFYLQ6ATmAHg0hXxQlUz15jeQByrBfUfS1ZKbiugmtoCzrJJ5G7ELi9U2uheoFYFfaRyLByUbqS11vMRe9iNA3PYLA7DLeDWS0NiqmA8UQiCQ9v0rLFcxi4oDs5uFKAxz6PWYaa_MBSLRR2yyslC9wdmvN07pOjh35liUONYbQpSPjQCjc14uTAqHTQtsaxUsInSA.jpg" width="400"><br>
 
@@ -239,89 +337,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76912)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-11 07:53:46
-
-<img src="https://cdn1.telesco.pe/file/HJKF50z73tKSwb9SLYgpTX9Wu0Nr5EQMuaFxG10ZLosnMYLAcJaHhKCWMP_3fLQqsMN8za8yaTVQKgyhHq-xNaNAnpbmUn4xbFaPtqI0p9XEVXLBc-YnI6YSsP-yQlAVFdBZIkszHEURdk7aECISVQJNfAXhHmCk7QrmGQqs5FjTaXgt_SXjzxFMY4vmVsMzhKlWv5vOKynWNRsyRTJb5dnlBTsXSxdgclXCrBKUL5Bhoox170lsZOxmq0QlusFYB0Ecn8u7Bg0e0P13S601duItzRViUJG_RYaOL4otI0LT_mK8Wy7jGBX0KsmEQcUavn3cDI6XL0i7Vlisr3MaOQ.jpg" width="400"><br>
-
-سی‌ان‌ان به نقل از دو منبع آگاه گزارش داد اسرائیل این هفته اطلاعاتی را در اختیار آمریکا قرار داده که نشان می‌دهد جمهوری اسلامی به‌تازگی طرح مشخصی برای ترور دونالد ترامپ تهیه کرده است؛ گزارشی که هم‌زمان با تشدید تنش‌ها میان تهران و واشینگتن منتشر شده است.
-به گزارش سی‌ان‌ان، یکی از منابع آگاه گفته است هشدار اسرائیل در هفته جاری به مقام‌های آمریکایی منتقل شده است. منبع دیگری نیز گفته نهادهای اطلاعاتی آمریکا در هفته‌های اخیر به‌طور مداوم اطلاعاتی درباره احتمال تلاش برای ترور ترامپ دریافت کرده بودند، اما اطلاعات ارائه‌شده از سوی اسرائیل جدید بوده و به یک طرح مشخص مربوط می‌شده است.
-سی‌ان‌ان نوشت جزئیات این طرح هنوز روشن نیست و همچنین مشخص نشده که آیا دستگاه‌های اطلاعاتی آمریکا نیز به‌طور مستقل این طرح را شناسایی کرده بودند یا تنها از طریق هشدار اسرائیل از آن مطلع شده‌اند.
-کاخ سفید در پاسخ به درخواست این شبکه برای اظهار نظر درباره این گزارش، که نخستین بار روزنامه وال‌استریت ژورنال منتشر کرده بود، به اظهارات اخیر دونالد ترامپ اشاره کرد.
-ترامپ روز چهارشنبه ۱۷ تیر به خبرنگاران گفت: «آنها می‌خواهند رهبر آمریکا، یعنی من، را از میان بردارند. من در همه فهرست‌های آنها هستم. امروز صبح دیدم که در تک‌تک فهرست‌هایشان قرار دارم. تا اینجا کمی خوش‌شانس بوده‌ام، اما شاید این خوش‌شانسی خیلی دوام نیاورد. اینها آدم‌های شرور و بیماری هستند و باید این سرطان را ریشه‌کن کنیم. سرطان را باید از همان ابتدا از بدن خارج کرد.»
-سی‌ان‌ان همچنین گزارش داد تنش‌ها میان آمریکا و جمهوری اسلامی در روزهای اخیر، هم‌زمان با فروپاشی آتش‌بس ۶۰ روزه، افزایش یافته و دو طرف تهدیدها و حملات متقابلی را علیه یکدیگر انجام داده‌اند. با این حال، به گفته یک مقام آمریکایی، تلاش‌های دیپلماتیک همچنان پشت پرده ادامه دارد.
-به گفته چند مقام آمریکایی، برای انجام حملات احتمالی در شامگاه پنج‌شنبه آماده‌سازی‌هایی انجام شده بود، اما مقام‌های آمریکایی در نهایت ترجیح دادند فعلاً به جای اقدام نظامی، مسیر دیپلماسی را دنبال کنند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76911)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-11 07:53:46
-
-<img src="https://cdn4.telesco.pe/file/jMWL_miGBerqziXSyyHAuzbjTi5aQzFRRVRLXeuSJqtKeCufdD5Xcw7bNOgNIvA16CajNKvbuOrypSrjS1rBiTJ7olMrDQFM6hhtaTEBbtNqDN3rSbERU9oiePnTVPoHcryw7-BW9e69eDqjSx_QjebYZ1gHLmLDbbqUeCGvbk4ruTssOvLeVhCNMe518I-TBGmghscTNPwcIoc5DCscILAM1BrTrhAEBkhqEM61XhiLNAWlv3oiTCeGaCmGzA5vWWmD_iqPGZX_NXPePq4toKMZyEip3rDi5EZ_qK4eNjFbIGXNXsUz_IHOAxJSaGTz1_FJs53ue1zYzJxe-14lVA.jpg" width="400"><br>
-
-علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی،  پس از ۱۳۱ روز بالاخره در بامداد جمعه ۱۹ تیر در حرم امام هشتم شیعیان دفن شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76910)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-11 07:53:46
-
-<img src="https://cdn1.telesco.pe/file/isB01sitYlB0q2DktZ-k54H5t2ZDkc1S6y8Twg3T9NF_zqfvAoDHzy8_JsVmheab3vJF1tp6uzcdvZxfdB9PNdmNvRCODUItj9e3NU5C1B4fCQW8t5LdgBLoDOaG9N87i9OzmJ0B6jvIpUIaXUiT8T1l09vpAjukiMBEY83IylQrC7UaxtdLQrfvGcMnadoVwyoqZCDslPAXGYukN0q2XMxXXXjSkMYaZ7QJrknFtZEqiFNoQHaKVzKrsqWe0EUbo1WwhyzH027qW5EkAzAr8UdDir8u7F8kGnJqzHGeW2X0ai8oBMtu4VjvoyQZp2Pmneer9vWxa2rTZIy22LiUcw.jpg" width="400"><br>
-
-به گزارش خبرگزاری جمهوری اسلامی، ایرنا، معاون امنیتی استاندار خراسان رضوی وقوع تیراندازی در منطقه بلوار سرافرازان در غرب مشهد و کشته شدن دو نفر را تایید کرده است.
-ایرنا گزارش کرده که امیرالله شمقدری گفته است این رویداد تروریستی نبوده و انگیزه اصلی وقوع این درگیری در دست بررسی است.
-معاون امنیتی استاندار خراسان رضوی به ایرنا گفته است: «براساس بررسی‌های اولیه ابتدا ۲ نفر با انگیزه شخصی با هم درگیر شده‌اند که یک نفر از آنها کشته می‌شود و با دخالت نفر سوم، نفر دوم نیز جان می‌بازد، هر دو نفر با سلاح گرم کشته شده‌اند.»
-آقای شمقدری تاکید کرده است که حادثه در منطقه سرافرازان مشهد روی داده است.
-او وقوع هر گونه حادثه تیراندازی و یا رخداد امنیتی در محدوده بافت مرکزی مشهد و اطراف حرم امام رضا در روز پنجشنبه را تکذیب کرده است.
-ایرنا اضافه کرده که بلوار سرافرازان که تیراندازی در آن رخ داده، در غرب مشهد واقع شده است و حدود ۱۷ کیلومتر تا حرم فاصله دارد.
-@
-VahidHeadline
-تصاویر هم در همون منابع غیررسمی که پیش‌تر این خبر رو اعلام کرده بودند منتشر شده بود. از درستی‌شون اطلاع ندارم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76907)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-11 07:53:46
-
-<img src="https://cdn4.telesco.pe/file/fWvYVhf7TJy1LSX6Cpst-rXpWHCz2Mmt4E982Cq2QqsqH_1qU7lqSnQuaC_IG6iX9o_2gwwfuomOWQ37KJia5s_ETEY18yumnvWIYb46W3OuAKvLwuubCa_EAzfN2hSNknUZA9rD_5RUNOCAkCXL0N7W_zTful3Ztup-8LeXhWcagTcvPMqvHlXlR6Mum6uH-T4OnoGPJ3Mp8B7qkRkvlrhMuai2Bj9SFs-OMbbG1G_plq-JKULkv3422bdwXbNAwIeqNfJ_hMHcS6Ux3dEyGKltkYHmCw32feaasjqkuriyxzr0OHb8CF7yXlKI7Hz_kkxYOz2zqjtPPW4KJj1zZg.jpg" width="400"><br>
-
-🔸
-فرماندار کنارک اعلام کرد یک منطقه نظامی متعلق به نیروی دریایی در این شهرستان شامگاه پنجشنبه در دو مرحله هدف حمله قرار گرفته است.
-🔸
-محمدیونس حقانی به خبرگزاری ایرنا گفت این حمله توسط «جنگنده‌های دشمن» انجام شده و نیروهای امدادی، امنیتی و دستگاه‌های مسئول در حال بررسی ابعاد حادثه هستند.
-🔸
-ساعاتی پیش از این نیز معاون سیاسی و امنیتی استاندار بوشهر از حمله به یک مقر نظامی در حاشیه شهر بوشهر خبر داده و گفته بود صدای انفجار شنیده‌شده در این شهر ناشی از فعالیت پدافند هوایی بوده است.
-🔸
-این در حالی است که صداوسیمای جمهوری اسلامی پیش‌تر گزارش‌های مربوط به وقوع انفجار در شهرهای جنوب ایران را رد کرده و اعلام کرده بود «تاکنون هیچ انفجاری در جنوب کشور رخ نداده است.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76906)
 
 ---
 
