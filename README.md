@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 
 
@@ -34,7 +34,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/dkuvIlHfOqgld0B-fBtdf4aL_rp-NXgYGr5XhigJkMNO4xGY0xP2X3Q-94VGiwJl5EBsMxV1Cz_h1Fct-FxInjgD_uNt-2ZUnjp-cmdcPJAM9RbBpOFN_TSDyApd-v_keZJv-Phm9TsOqmTuGgKEGLpAK-F14fhbRcmErCWO0BPStW5bUIZVhRbOnvGfXGqXjCGAiYlj7Q122zx0UdVusYoKHVbFrTl9xyu7fszgC8tX0RN0UfbuPls0ElTvyt-u-8K2CMO2m0kTld1CjDLPnuOlppYpCApfyBK51M2oMTeydrWEEnpD_AhCSx251SvQKysuNXGlvJFZO4ap2PIyfA.jpg" width="400"><br>
 
@@ -52,7 +52,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 
 
@@ -82,7 +82,7 @@ sirens in bahrain
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/PI5s6oOyA8l0ILG2iltMK5ZwMx3PxxAzqJxLW4yY6OYFRsGVb6O77JJ1ztlZ_Gs-CbGSMyVgVk3njkSTRh6xtFKwxRy-gI5BDJWihdD-lWOY7bKKPz3Y_rjJPFUq-W8knNTAOE3aFPTcjWQKhQOthfk4ooG-3LYU1gOx_sOPAEHQsrF7dF0YjL7Go8sRN-GfyGayURq8JoHIFliIwC9-GKKIdn8Og2FfavcRV_ipm8p-D6VdlMUvft08237glPeFoOXduR257N7T_2XCmHumhYwa3NKMgOcQ7q7m9FG4Fd3o04vBXCgB6WCWA1KR7S9YpXc_-vCznj3qelU3pR-grQ.jpg" width="400"><br>
 
@@ -99,7 +99,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/BcgpQp86re-oYKkHy8FFE_HK09PJjrWYx0wUQb43H2R_bo4gb_4EJR3klA8DaqdHjXy5yjh7Iy7L0f7TUQ5zRk1oliPluWs9OF-3O4gKnEI8U9Fa0MuA3p4h9iFITAQ5KI-7G3xnY3k5FGMC1V4FVs9MM-b4E2O3RpI7tc2XlE837J2bYkiPjUb2OTbyG7KQ3774g6_THHi5cIKwND-xDG4j0u0rsmjDqLv5bOZM6E6ZGksho637USPMTdImLydKuhzID25ogwVtALBcmfltosFXslmXOLRuwNY1IveG0MNNxtvWLe64SPwckhaKXhm7TWtvqcohQQKJmbLhWOxlYg.jpg" width="400"><br>
 
@@ -137,7 +137,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/VUS1DVErAuWWFJWPWkNbr1FLQqzDFIfJzJ5V6zy19yc1WZMq_6Rbbox4WuUIv5gCq9r_ryvd4PsFzpF7wTRF4WyTc6RoO5k_nDStB9i9Qh67k-_HMCjsXBAweIIu8ismx_sQNSzt0hqfZhnqrPvINAYUMr1JP95VxyTXbNoArUPgBkHgBcmtN9ilvn37Z9Q36Xr-iSycsWqCfCaOyEChnXaTz1nOKeRvBFcXyYTbr4xIuxIzljQtQM7yiGYWLClI5IPkXVeFEWoxiCSjFmxHiRJ1iFAVhTcxoE0vnfJtTgfqFAE2Lug2TtlhnKr4uWl-vOxzlmYBEg1623A167LgNA.jpg" width="400"><br>
 
@@ -153,7 +153,7 @@ PeteHegseth
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 
 
@@ -172,7 +172,7 @@ PeteHegseth
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 
 
@@ -192,7 +192,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/aUclG4Y-f5rh6pAXcLxeY-XnG3BdRy0QhOF_cx5-ZChQd6Js9RFy8-5Ob273r0yCQpweuTkCOmDcDoWcbApbQxhd1j2eR2ctQd0u1X31Z3c3MdqqEkV1zc091mymKRHYs1GeygcYSY4cK_cqSQV7AcQ4CnkM2zjvb5W9v6VLQdSgLd5xfESFeY0Ctb9nzcuiC3feugv6roPYpi6BEJDJY4mTWWitR3EWp0XdyCOKKelPRsFMSAuNSQah9MIxyl82IrYUo24d00lIFOjD6-3IJjW_Nupac0kNHDP91CN_2SAqHB1204vNGJHmDMwnZo-lQTQQXouMoG7Mc_ZmH20m2w.jpg" width="400"><br>
 
@@ -257,7 +257,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/vQxulJH0yw4TqsALqk0C8A0D0IGib48nWqAX2p_x9XnWfOvaMM3EU9A5PvA3iB-_WoU7usa3a4k3xj-OdV2fX1IGrnRDPu-I0Yj-IKR-vnWfQ2XCF1eLPagt7s8w3TeboUWEWqgw8W6hkrul68XGZMAnNJIrbrhwpBheDIs4VO-nic8IQrQzG9rqxjrASSyBT_ILFcc-TNcDvDE41gp4W81WUbEQ_jNogFjgHlLHx5UF4V_plrQrjaTinrQXsjMHDAtbHq85RRHxFZm9vbc4t85XW08CgjAKHNZaZqB249xDbT0BqzEbzxm7D2M14vy1xYkdAj4NdOcG-v6MZUTTaQ.jpg" width="400"><br>
 
@@ -274,7 +274,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/Ve5tMQB7jntfPx4yyzfzfkhqz_UJuOzcQO-NgNxHOyYQMRa_-7mQotAhQPXPYlq3tlL2uQXmyAPYHE8s18C7vuY5Qrh_oq6A4IpoMTZ-7pqaCCVZ6edmjzOgWQvAZ_QFGTMDzDBG9kWmze4cFQLgj2uSY-04TbXD1cFO6ym8RwaH5ytNCEQ9EteJKB3nLO6HlZotitdRXevJJhwR23pVvezeB2hUehtXQGsoq57UNEyDZEvx_1h1is1_aUw2-3xLS-EJYGju8s8_pQLkT0HCacOcBN9cPvLyfZ0BspOSEEgptbKIaCUk9DADjof-xPt8jJJQ3QG-_qbgjdVbsI-AAw.jpg" width="400"><br>
 
@@ -303,7 +303,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 
 
@@ -338,7 +338,7 @@ CNN
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/ScYm5r_GqrANkZkctaZc9F5dxGK3g_VD2Jh0_E29G_UBW-DloL_E5x3iXoVywnJnui4kePwETkuUUg9_4ZocNzfGTlkrzz7QTebbO9ZN5MGHo8WCisrsGdgaxBCxfuhlHEcKu24yhX8mYiP9hdFRE0DkLFqS0PV3hBWQomWzlLfdxlP-GxVjJ-COg3U6sjQsFbxVhdstZwxBGR37GCATewRMC7Lxeht8LKjRB0uhfQnMtKH_vxoqQ6uA2flEWq97ooLxsum4J49AYh2e8I4PzuXrH5k9g6UpQQYEaJUjviy2S6HZRmGBhU-p8akg2NFd9Jra0s2bpAjUuIRp3EWAqQ.jpg" width="400"><br>
 
@@ -355,7 +355,7 @@ isna.ir
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/N2Rdcf-rKPWAhBVZEzAHOh2kTe5WugPDlUp7tylJN6nPRezKqbd_7IuEdtrCHN88MFcXHVNr-rOfjSlUeDcZSeZVV93ZdCLg8FvdD_aRIdycnr_kKUojgKTz8HrhGhQFE49n3Nft0lhECZd_OQR3BnA_Xqi8os5-kylxA0Hx1jAXqvkeUUv-v5fAD7REkwX2Ap3hmQ5Tv8Q7fXgKoeXYcgaYC_NfVQACzRgkgAHhEpQpnNbKcx6dWpUYcv5Uen-X1G2sBrufRIqJf9Gdntig44FGAyQjygdGEmvnNZg0eD9WpHHDazIr2tulDUjmHdO585ehID6os96oaBCjsIsrCA.jpg" width="400"><br>
 
@@ -380,7 +380,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/VH0QraIrCx0vtibOkmrkRQ-G8tcdwhR_UhgzHJIDSM5d-wnLB9dN0VdQZtMoYUnhNNXcTU7YvHgf-Jx1jnB3xfl3DfYPyXBAqX4QoFK1vv_WshMeP9DfWI6b_ytQZ2guPT-OWSeRLaxlYtvvyBwxdYiGtq1BgbwbYXU_PBNRmPKXRbc1fLG2i3lOfX2VTKfzqQFWDyUyZkFV3g3Uo7JXSJfIwSlHVZNmzJBgGCUFQSgufezMSuWjN14WcAHL7blNv_entzyk6h1oAoQTWkg69Bf__U2obDblaB7U8sBEYHkwEhC8iLaWrWNEi3d-DBfj3tJITprDyozkvOk8byHQag.jpg" width="400"><br>
 
@@ -405,7 +405,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn4.telesco.pe/file/SIeKTmwcwzApqQdPH4lWVuhgK6GGhmBr3S4pMIaGrG8gmCoIPeQwK-7gUnIg6KT4gIAGMWfk3-JUYVvm41j71N5uA5umjCqK8ae5sRdJhGjUe1kBC1xtxJof9q9DSZj-y-Dw3V8rnH61N74qStfUsF_2D1vqZ_QCC78a8rXECaQVr0ZhK3jLChCZK9TseirkqLQb42xqn4kFMC5yjOOVHL_96DOltaR2gOc4ji-Skp2JaZpvdVHcIWsNrs7xGoVsp3gxsV8CAN8v0JTaqcadptZwwTIwmaDjMWbl4OiJF6KpzH9EplyDScBbA0gKmcrktWBiR4YrLsznDtc7ZqUi0A.jpg" width="400"><br>
 
@@ -423,7 +423,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn4.telesco.pe/file/vCJnvabSSNZTUqqz7Skfy0NoP8A7nioasi4lI-cacjAmmp_61Wzk2lqHDz0JMIMLXUzW0m1YNsX1IE8r9SgB6eG1-STQ6QkKm0SuwnuUVizOmpQT3iGjuCNPFvKVVMpjylxjcsLBdouhcWGUew44Ak-SVN6s_CeVPlRrrjbBXlVhgRqHFu-TVLNSjgNVqhw9mtYdriYxqhOqgX6lFXDB-sswIX-zHAKJwe3nRRKIJwU6XJdObIylCatUbL8052VgekTKkG8sSB0_5MTjs6D2G90OZhtvF46L2E1yxJa0xwKR6CHYavaQxh030v7XadfxNCa6M8wwQiE3kvTaBg1jUA.jpg" width="400"><br>
 
@@ -442,7 +442,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 10:44:06
+###### 🔵 Updated at: 2026-07-12 12:49:32
 
 <img src="https://cdn1.telesco.pe/file/psNXqiUTWRGhpi-0ShMqOzwxw9nqsMJbVGG0BxlLWDbKvBMbWeV1WsQsNjQH6tfS86SVHAlD-ygNIxQyrQgSCxTqsmkYqeV9CB8zh4a0eoqu5FsFgfU8kaGHtzDZBng93dVV0Odu0Yu-5QK6kM4Ql2qfDNH0laGlp6Rhhz_Z_0OieZI2M3iCdxO6xUY5hiNeK-I9AHes0d1ujFg1klXaCap9FGlJUxCcgKlb5tK-Ka9AGJ3UGMks7HJ6bAUg2EpUbQpb3pKpnyN6_n_uDQj1hROP2y8EN7udSHTtF4nM7OregekAO8ITAn0cer0C8pKC68AUeYVnYBcghT_KuvhohQ.jpg" width="400"><br>
 
