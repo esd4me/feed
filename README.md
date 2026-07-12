@@ -3,7 +3,87 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
+
+<img src="https://cdn1.telesco.pe/file/WRFjvEWNF5urDLBZdZAltarhyWf4gjKemV4x36qUogKkBYfh6LNzXpveWweUPRzLMcOjwfT4mLVxqWoFyJJy69xU5R6MkxsG7jun7LNpBycp9211vr-IKP50KlD2bAjjwsGy0dYX8f9XxJ0O37wy_0E3onrkmEJ0f_USmi5pn7JNBus82tXRNv6YTMF9d84FaP3JsLqy4ebU2bNfG-sLtVGWOLSNEUVsjOJM9d7AHcxnEeiXhdBNaBk8dqdOCM0dgdcU4bt4y7QyP8frWg3aUruh-gVf8ppwa6CV5Mxv8pYIi7s-tr7WSH6JbI3Hlj6KsLfyQIPoj14_q7CEHb6-IA.jpg" width="400"><br>
+
+پست اکانت سنتکام:
+ساعت ۵ عصر امروز به وقت شرق آمریکا، نیروهای فرماندهی مرکزی ایالات متحده حملات بیشتری را علیه ایران آغاز کردند تا به تضعیف توانایی این کشور برای حمله به دریانوردان غیرنظامی و کشتی‌های تجاری که آزادانه از تنگه هرمز عبور می‌کنند، ادامه دهند.
+فرمانده کل قوا دستور این حملات را برای پاسخگو کردن نیروهای ایرانی صادر کرده است.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76976)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 00:56:32
+
+
+
+پیام‌های دریافتی:
+00:38 صدای چندین انفجار در بندرعباس
+همین الان انفجار پیاپی بندرعباس ۰۰:۳۹
+بندرعباس ساعت ۱۲:۳۸ صدای انفجار چنتا اومد
+باز هم داره صدا میاد
+بندرعباس همین الان چهار پنج صدای انفجار پشت سر هم اومد
+😭
+صدای سه انفجار بندرعباس ساعت ٣٨ دقیقه بامداد
+00:39 بندرعباس سه چهارتا صدا اومد
+قشم الان صدای انفجار اومد
+ولی از خود جزیره نبود، بندرعباس سیریک یا روی دریا بود
+سلام وحید از بند عباس خبر میدم صدا ۳ تا انفجار شنیدم شدید بود شیشه ها لرزید
+🔄
+جنگنده الان بالای شهر جاسک
+۴ تا صدا انفجار اومد
+دوباره جاسک داره میزنه
+همین الان
+سه انفجار درجاسک
+همین الان دوتا انفجار جاسک
+صدای جنگنده هم خیلی زیاده
+صدا و سیما:
+🔺
+دقایقی پیش؛ شنیده شدن صدای چندین انفجار در اطراف روسنای طاهرویی سیریک
+🔺
+صدای سه انفجار در جاسک شنیده شد
+🔺
+صدای چند انفجار در قشم شنیده شد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76975)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 00:56:32
+
+<img src="https://cdn4.telesco.pe/file/vXfhTa8f_7WKlopYIUb0tJTrt7es0VeD0QJVGHNcSZQN64f9yMeALvBS7eotgz6-ZGQNzYGaFEXD3RCH7rSu2No6F3zzTVa3cDoaUsAPwNCrFVGHQB-xJPQ9V2h6QyseTKwAA4XByPtZgd31p7YDOhMg085lXHIdUAKWWW-v7iUZHadn8HnahkH-cv6DyONq0ywslnArHE_B429CjSAYckuyNqFmZP7vugoKEamnZE1KGCjaY2s-6czLbFMbKALmkp33gDKbaetQtvIug2CE8odAU-gE5oN_fH0MTFbmrHlQ8NGbWor2ajrwwLmTKrwYFJN9xdxwhfRWwrmrAMqa5A.jpg" width="400"><br>
+
+فرماندهی مرکزی آمریکا (سنتکام) شامگاه یکشنبه ۲۱ تیر، ادعای رسانه‌های وابسته به جمهوری اسلامی درباره کشته شدن نظامیان آمریکایی در کویت را رد کرد.
+سنتکام
+نوشت
+:
+🚫
+ادعا: تبلیغات ایران امروز مدعی شد که سه نظامی آمریکایی در کویت بر اثر حملات ایران کشته شده‌اند. نادرست.
+✅
+حقیقت: هیچ گزارشی از کشته یا زخمی شدن نیروهای نظامی آمریکا در منطقه وجود ندارد. وضعیت همه نیروها مشخص و تأیید شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76974)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 
 
@@ -22,7 +102,7 @@
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 <img src="https://cdn1.telesco.pe/file/Z5mIE3ZgkI9eXiFu5RyVonNu1_DqwSwkXO_d8PF0Jc-xwOdHj8J8gmWbh68GNdSDmv6hISdpEil9W6VP-JOivRbaGxRHT9gY_vsuxFpB6z9TOB_D0bw9D5FFgQzh91v0x6ZSxkBUE6KEaf_ti-GU44BP-NJOTYI5q4S44XzIyVXTRp-efWC5AU6XfEuyLbIOuEeFc-7j9_A9OI34H6jNRmycbsLZNUv_3ofry45EKYVSucSfctMhk9ws4tP49-Oho4bt8n_EgaEwvQ7uEuA0AJSZxu_rEQcNEhacPD4z0CGZyJhuOdq6fW6jQazoeIhdMcjKunW59NK1iOLMTN3H1g.jpg" width="400"><br>
 
@@ -60,7 +140,7 @@
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 
 
@@ -78,7 +158,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 <img src="https://cdn4.telesco.pe/file/d4ddjD7p3hQiCOWm85cLmU4Q8wFY9dNiK1uw_iRcSurhKEcaq54h2GCvyPAUk_X4myj3SRhHQeDekI7UGlMgVKKQLy9eIOKsNWMgC0uCsLWsN5P9YxzFd3VFBJQiuZGF4Wu0bTY94wk7lagKb6zYUK59kKmQx3O8Qz7FBtEs3P04SpjnhD7VNXhhLVdM_k2j6FDjk170CiZasAJBD-cCZ9baZtFDqNPYixu5CQjAEDn-eK6xMfUnJop5HWxq0TFhEpWEBE3u9oQbuMphuwg9M_xT8B1Po0JGbfE6v4jYXREvs0xKE1MNa3ln3Dgu33iiO53nsMxjRmWWydAOg2xeCA.jpg" width="400"><br>
 
@@ -95,7 +175,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 
 
@@ -123,7 +203,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 
 
@@ -146,7 +226,7 @@ NBC
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 
 
@@ -187,7 +267,7 @@ CNN
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 <img src="https://cdn1.telesco.pe/file/GxO6IGYK05IF6DNxsRpGWYZTcDeaf2XB5SP8hBbfzsxoXY7UbeCjqNw3HAnUMmD0RgPtD4kC86f9v0eUzm03V2RNjXBuDr1AM32xwvF9tax4XGsQG8FkcR6dcN3VYXTo0QJoVHBaCQXZ08IktuAbcS_Cyu4kMBSwl7xxAtpqQBJpASywBgCHXRxwrII1LFjfL0jADkas9HKMhYZg1r8-fyXvGRyZJ3MnloGxgyLOUQqd0pJxc9wW6jbggFO5G4_AjYupctvjLyQ9TCgIbkunt0vLE7mqRgLrjaBhtrnEfrlT9j9rYzwiJlktzd61sfq7XFnBVsnECQFIjTPBsC0jTw.jpg" width="400"><br>
 
@@ -210,7 +290,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 <img src="https://cdn1.telesco.pe/file/fcwrn0GUjHaZPWcgCyfRh9JDLC4RGslhcu19fnZzaBVyETWNn1n8mwMb0-UDDIE0wSTCHcdbigRqr9ii2hcArh7TZ5Q7-42Dw3YxxeA7x8tuMj2Bag7zz2D-qpPeAlUvmyuY8uOP8iAHSmFIzhS-uBQ2i3evwXp5OAg0R6lzJPEgCqNDQFsMXBuu_75M5SPpCQZ5SNpvNOdS8oapsafCRUSVkT3bDc5nV1pChnrSTAhgRnXQZHwVRie7PbortWvUeaAddFuG_ZyAmZ2mDdaGkt6M9_OpSmK2AZ0O3KUB1W6NUgOZS9bxFIi9JV40mH7LPW38Up6T6KgmaS7Zx08J0A.jpg" width="400"><br>
 
@@ -227,7 +307,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 00:01:39
+###### 🔵 Updated at: 2026-07-13 00:56:32
 
 <img src="https://cdn1.telesco.pe/file/gW7oZrZ6hXWK0GlGOXkbUcq3384y_dpuF_8guq3RTXihJYE4QwMyJOKa1VSpd_ZbY7n_y3apU8MmvQbDb7vB6XEztCmG4UpRHq7c0oc25xgMRh9dpI_uFamXW7EbvGcydQo7VeLerEGJtWui4CrvVubxu_uDuRcocFELuAmSicMreFPgP8K9MKqeQRIr8eZnRZEFCnjD9Y2P2l-1vcPwvTPUItDMhhfbeU6_s76okzOje4_rbQg5R6OK7zIkAv_oCeQU3n2mloL0pkQ_w67lQu0YHPvxeiNdbYWTNH8IwyRbPVNJPGrqGx5x8I2UrX7SXe7iUOUGXguWzxH4r4vfIA.jpg" width="400"><br>
 
@@ -252,29 +332,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76956)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 00:01:39
-
-<img src="https://cdn1.telesco.pe/file/v96TusR6Fi8o3xfr-G6jV3lpD-8ptoirkXpDvHRz5zgX7EZGim5dO1Dw-gB82xVN36UKYS8xtdx0upZnnBH89lwQcx_ehzfN5gmYOncmMLCCbTA02DRF0t57AHAN8xhwSRHTRJgsQJ_pAXJd6cqux1nnhM__3JeUQR4Iybt3P-02bTRVL-RlluucQ09Io4LVQN3K2PKJUPZsffPqN1b1Mdqg0B504tEEX3X8V_rtcUy8MAAt8LEKb_JnbPvWExcTs4lb-eIEmsc_ZZzywq4A4oYp9CBWjaC6VWlpr1R1JgWQ9cMgiOblc-adafoS2kjR29hZckDzlY8m1nCVlHFxrA.jpg" width="400"><br>
-
-معاون امنیتی و انتظامی استاندار کرمان روز یکشنبه ۲۱ تیر اعلام کرد ارتش آمریکا یک دکل ارتباطی در ارتفاعات جنوب این استان را هدف قرار داده است.
-به گزارش خبرگزاری مهر، بر اثر این حمله دو نفر مجروج و با هلی‌کوپتر به مراکز درکانی منتقل شدند.
-@
-VahidOOnLine
-معاون سیاسی، امنیتی و اجتماعی استاندار لرستان، اعلام کرد شهر ویسیان از توابع شهرستان چگنی در استان لرستان، صبح یکشنبه ۲۱ تیرماه، دو بار هدف حمله هوایی قرار گرفته است.
-سعید پورعلی گفت این حمله تلفات جانی نداشته و شرایط در این شهر هم‌اکنون عادی است.
-پیشتر و در پی حملات نیروهای آمریکایی به استان‌های جنوبی ایران، معاون امنیتی استانداری خوزستان، از اصابت «پرتابه‌های دشمن» به مناطقی در شهرستان‌های هندیجان، ماهشهر و آبادان خبر داده بود.
-شنیده شدن صدای انفجارهایی در بوشهر، بندرعباس، سیریک، عسلویه، کنگان و بندر نیز از گزارش‌های مربوط به تحرکات جنگی بامداد یکشنبه بوده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76954)
 
 ---
 
