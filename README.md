@@ -3,7 +3,7 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 
 
@@ -45,8 +45,42 @@
 صدای انفجار شدید
 بندر ماهشهر صدا اومد.
 اهواز ما سمت کیان آبادیم و واقعا صدای انفجار زیاد بود
+🔄
+همچنان خوزستان:
 انفجار شدید ماهشهر"همین الان"
 دوباره الان ماهشهرو زد،1:51
+شش انفجار 1/52 قشم-طولا شنیده شد
+سلام ماهشهر هم صدای انفجار اومد
+دوتا تا این لحظه 1:52
+سلام وحید جان اطراف بهبهان تا الان صدای ۶ انفجار اومد
+همینطور دارن میزنن
+سلام قشم همین الان صدای چند انفجار
+صدای از دور از سمت غرب جزیره
+همین الان صدای انفجار زیاد بالای ۵ تا داخل قشم شنیده شد
+بهبهان ساعت 1:52 بامداد صدای چهار انفجار شدید
+سلام وحید ما نزدیک فرودگاه ساکنیم حدود ساعت حدود یک و نیم دوتاصدای انفجار اومد همه همسایه ها ریختن بیرون معلوم نیست کجارو زدن
+قشم ساعت ۱:۵۰ زدن ، چندین انفجار شدید
+بهبهان‌رو الان چند بار زدن
+روشمهر پایگاه موشکی ساجد
+بهبهان خوزستان/ ۱:۳۲ ... صدای ۲ انفجار.
+مجددا ۱/۴۵ تا ۱/۵۰ بهبهان خوزستان صدای ۴ انفجار
+سلام وحید جان
+امیدیه صدای بسیار خفیف انفجار
+مشخصاً درون شهر مورد هدف قرار نگرفته
+احتمالا دقایقی بوده
+همین الان خوزستان بهبهان ۴ بار پشت سر هم زدن
+نمی‌دونم کجا بود
+🔄
+ساعت ۲:۱۵ دقیقه دزفول رو زدن
+در و پنجره ها لرزید
+دزفول خوزستان
+همین الان زدن
+سلام وحید
+دزفول رو دارن میزنن
+۰۲:۱۵ دقیقه
+سلام دزفول رو دوبار پشت هم زدن
+🔄
+موج بعدی پیام‌ها از دزفول درباره شنیدن شدن صدای انفجار در ساعت ۲:۱۹ و ۲:۲۵
 📡
 @VahidOnline
 
@@ -56,11 +90,11 @@
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 <img src="https://cdn1.telesco.pe/file/H6ImycqV23u-4MXMf-ZttpJnUcP-PO9Z2vwMjeWFWZoiCAMvM5cvf5ncepidRNR7R9aBMvXDk8Ai023uB4F1ZJiORH6ulx6P7n3SEKdlIVZb0OnAd5R0-7JylFdlEkF_Pk6gdcIdXJy1z6Jj4r83tf6raVTxJbXFdOmXi8VdZV_FISSBuX28tGZtCzN5HEqQnYoTlq7twJFJeadm-gLZtQxPQpBBIRNAxd8mMHl_ruzzAuTSKFAlsBIcfZi8rX5Q8eLT6N1d5mGcOe7IOKhlVzgUiXYvViF2CqsNSZiTEJuxwF-0hUnAcG-iJOiQDnSoJ7y_Tr_a8d5ggia0MDauxg.jpg" width="400"><br>
 
-تصاویر دریافتی: 'بندرعباس، ساعت ۰۰:۴۳ بامداد یکشنبه ۲۱ تیر'
+تصاویر دریافتی: 'بندرعباس، ساعت ۰۰:۴۳ بامداد دوشنبه ۲۲ تیر'
 Vahid
 صدا و سیما:
 بر اساس گزارش‌های اولیه، حمله امشب به دکل مخابراتی اطراف روستای طاهرویی سیریک بوده ، همون جایی که در حملات قبلی هم مورد اصابت قرار گرفته بود
@@ -73,7 +107,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 <img src="https://cdn1.telesco.pe/file/WRFjvEWNF5urDLBZdZAltarhyWf4gjKemV4x36qUogKkBYfh6LNzXpveWweUPRzLMcOjwfT4mLVxqWoFyJJy69xU5R6MkxsG7jun7LNpBycp9211vr-IKP50KlD2bAjjwsGy0dYX8f9XxJ0O37wy_0E3onrkmEJ0f_USmi5pn7JNBus82tXRNv6YTMF9d84FaP3JsLqy4ebU2bNfG-sLtVGWOLSNEUVsjOJM9d7AHcxnEeiXhdBNaBk8dqdOCM0dgdcU4bt4y7QyP8frWg3aUruh-gVf8ppwa6CV5Mxv8pYIi7s-tr7WSH6JbI3Hlj6KsLfyQIPoj14_q7CEHb6-IA.jpg" width="400"><br>
 
@@ -90,7 +124,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 
 
@@ -136,7 +170,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 <img src="https://cdn4.telesco.pe/file/vXfhTa8f_7WKlopYIUb0tJTrt7es0VeD0QJVGHNcSZQN64f9yMeALvBS7eotgz6-ZGQNzYGaFEXD3RCH7rSu2No6F3zzTVa3cDoaUsAPwNCrFVGHQB-xJPQ9V2h6QyseTKwAA4XByPtZgd31p7YDOhMg085lXHIdUAKWWW-v7iUZHadn8HnahkH-cv6DyONq0ywslnArHE_B429CjSAYckuyNqFmZP7vugoKEamnZE1KGCjaY2s-6czLbFMbKALmkp33gDKbaetQtvIug2CE8odAU-gE5oN_fH0MTFbmrHlQ8NGbWor2ajrwwLmTKrwYFJN9xdxwhfRWwrmrAMqa5A.jpg" width="400"><br>
 
@@ -159,7 +193,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 
 
@@ -178,7 +212,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 <img src="https://cdn1.telesco.pe/file/Z5mIE3ZgkI9eXiFu5RyVonNu1_DqwSwkXO_d8PF0Jc-xwOdHj8J8gmWbh68GNdSDmv6hISdpEil9W6VP-JOivRbaGxRHT9gY_vsuxFpB6z9TOB_D0bw9D5FFgQzh91v0x6ZSxkBUE6KEaf_ti-GU44BP-NJOTYI5q4S44XzIyVXTRp-efWC5AU6XfEuyLbIOuEeFc-7j9_A9OI34H6jNRmycbsLZNUv_3ofry45EKYVSucSfctMhk9ws4tP49-Oho4bt8n_EgaEwvQ7uEuA0AJSZxu_rEQcNEhacPD4z0CGZyJhuOdq6fW6jQazoeIhdMcjKunW59NK1iOLMTN3H1g.jpg" width="400"><br>
 
@@ -216,7 +250,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 
 
@@ -234,7 +268,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 <img src="https://cdn4.telesco.pe/file/d4ddjD7p3hQiCOWm85cLmU4Q8wFY9dNiK1uw_iRcSurhKEcaq54h2GCvyPAUk_X4myj3SRhHQeDekI7UGlMgVKKQLy9eIOKsNWMgC0uCsLWsN5P9YxzFd3VFBJQiuZGF4Wu0bTY94wk7lagKb6zYUK59kKmQx3O8Qz7FBtEs3P04SpjnhD7VNXhhLVdM_k2j6FDjk170CiZasAJBD-cCZ9baZtFDqNPYixu5CQjAEDn-eK6xMfUnJop5HWxq0TFhEpWEBE3u9oQbuMphuwg9M_xT8B1Po0JGbfE6v4jYXREvs0xKE1MNa3ln3Dgu33iiO53nsMxjRmWWydAOg2xeCA.jpg" width="400"><br>
 
@@ -251,7 +285,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 
 
@@ -279,7 +313,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 
 
@@ -302,7 +336,7 @@ NBC
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 
 
@@ -343,7 +377,7 @@ CNN
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 <img src="https://cdn1.telesco.pe/file/GxO6IGYK05IF6DNxsRpGWYZTcDeaf2XB5SP8hBbfzsxoXY7UbeCjqNw3HAnUMmD0RgPtD4kC86f9v0eUzm03V2RNjXBuDr1AM32xwvF9tax4XGsQG8FkcR6dcN3VYXTo0QJoVHBaCQXZ08IktuAbcS_Cyu4kMBSwl7xxAtpqQBJpASywBgCHXRxwrII1LFjfL0jADkas9HKMhYZg1r8-fyXvGRyZJ3MnloGxgyLOUQqd0pJxc9wW6jbggFO5G4_AjYupctvjLyQ9TCgIbkunt0vLE7mqRgLrjaBhtrnEfrlT9j9rYzwiJlktzd61sfq7XFnBVsnECQFIjTPBsC0jTw.jpg" width="400"><br>
 
@@ -366,7 +400,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 <img src="https://cdn1.telesco.pe/file/fcwrn0GUjHaZPWcgCyfRh9JDLC4RGslhcu19fnZzaBVyETWNn1n8mwMb0-UDDIE0wSTCHcdbigRqr9ii2hcArh7TZ5Q7-42Dw3YxxeA7x8tuMj2Bag7zz2D-qpPeAlUvmyuY8uOP8iAHSmFIzhS-uBQ2i3evwXp5OAg0R6lzJPEgCqNDQFsMXBuu_75M5SPpCQZ5SNpvNOdS8oapsafCRUSVkT3bDc5nV1pChnrSTAhgRnXQZHwVRie7PbortWvUeaAddFuG_ZyAmZ2mDdaGkt6M9_OpSmK2AZ0O3KUB1W6NUgOZS9bxFIi9JV40mH7LPW38Up6T6KgmaS7Zx08J0A.jpg" width="400"><br>
 
@@ -383,7 +417,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 01:54:03
+###### 🔵 Updated at: 2026-07-13 02:57:16
 
 <img src="https://cdn1.telesco.pe/file/gW7oZrZ6hXWK0GlGOXkbUcq3384y_dpuF_8guq3RTXihJYE4QwMyJOKa1VSpd_ZbY7n_y3apU8MmvQbDb7vB6XEztCmG4UpRHq7c0oc25xgMRh9dpI_uFamXW7EbvGcydQo7VeLerEGJtWui4CrvVubxu_uDuRcocFELuAmSicMreFPgP8K9MKqeQRIr8eZnRZEFCnjD9Y2P2l-1vcPwvTPUItDMhhfbeU6_s76okzOje4_rbQg5R6OK7zIkAv_oCeQU3n2mloL0pkQ_w67lQu0YHPvxeiNdbYWTNH8IwyRbPVNJPGrqGx5x8I2UrX7SXe7iUOUGXguWzxH4r4vfIA.jpg" width="400"><br>
 
