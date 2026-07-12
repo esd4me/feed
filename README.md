@@ -3,7 +3,35 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
+
+
+
+خبرگزاری فارس:
+شنیده‌شدن صدای چند انفجار در بندرعباس و قشم
+دقایقی پیش صدای چند انفجار از سمت شرق بندرعباس و محدودهٔ دریایی قشم شنیده شد.
+همچنین اهالی منطقهٔ مسن در جنوب جزیرهٔ قشم نیز صدای چند انفجار را شنیده‌اند.
+ماهیت انفجارها هنوز مشخص نیست و اخبار تکمیلی متعاقبا اعلام می‌شود.
+پیش‌تر نیز برخی رسانه‌ها از وقوع انفجارهایی در کویت خبر داده بودند.
+@
+VahidOOnLine
+🔄
+ایرنا:
+اصابت پرتابه در جزیزه قشم
+🔹
+فرماندار قشم از اصابت 10 تا 11 پرتابه دشمن از عصر امروز یکشنبه در جزیره قشم خبر داد.
+🔹
+حسین امیر تیموری در گفت و گو با ایرنا افزود: تمامی اهداف نظامی بوده است. خوشبختانه این حملات هیچ تلفاتی نداشته است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76967)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 
 
@@ -26,7 +54,7 @@ NBC
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 
 
@@ -67,7 +95,7 @@ CNN
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 <img src="https://cdn1.telesco.pe/file/GxO6IGYK05IF6DNxsRpGWYZTcDeaf2XB5SP8hBbfzsxoXY7UbeCjqNw3HAnUMmD0RgPtD4kC86f9v0eUzm03V2RNjXBuDr1AM32xwvF9tax4XGsQG8FkcR6dcN3VYXTo0QJoVHBaCQXZ08IktuAbcS_Cyu4kMBSwl7xxAtpqQBJpASywBgCHXRxwrII1LFjfL0jADkas9HKMhYZg1r8-fyXvGRyZJ3MnloGxgyLOUQqd0pJxc9wW6jbggFO5G4_AjYupctvjLyQ9TCgIbkunt0vLE7mqRgLrjaBhtrnEfrlT9j9rYzwiJlktzd61sfq7XFnBVsnECQFIjTPBsC0jTw.jpg" width="400"><br>
 
@@ -90,7 +118,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 <img src="https://cdn1.telesco.pe/file/fcwrn0GUjHaZPWcgCyfRh9JDLC4RGslhcu19fnZzaBVyETWNn1n8mwMb0-UDDIE0wSTCHcdbigRqr9ii2hcArh7TZ5Q7-42Dw3YxxeA7x8tuMj2Bag7zz2D-qpPeAlUvmyuY8uOP8iAHSmFIzhS-uBQ2i3evwXp5OAg0R6lzJPEgCqNDQFsMXBuu_75M5SPpCQZ5SNpvNOdS8oapsafCRUSVkT3bDc5nV1pChnrSTAhgRnXQZHwVRie7PbortWvUeaAddFuG_ZyAmZ2mDdaGkt6M9_OpSmK2AZ0O3KUB1W6NUgOZS9bxFIi9JV40mH7LPW38Up6T6KgmaS7Zx08J0A.jpg" width="400"><br>
 
@@ -107,7 +135,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 <img src="https://cdn1.telesco.pe/file/gW7oZrZ6hXWK0GlGOXkbUcq3384y_dpuF_8guq3RTXihJYE4QwMyJOKa1VSpd_ZbY7n_y3apU8MmvQbDb7vB6XEztCmG4UpRHq7c0oc25xgMRh9dpI_uFamXW7EbvGcydQo7VeLerEGJtWui4CrvVubxu_uDuRcocFELuAmSicMreFPgP8K9MKqeQRIr8eZnRZEFCnjD9Y2P2l-1vcPwvTPUItDMhhfbeU6_s76okzOje4_rbQg5R6OK7zIkAv_oCeQU3n2mloL0pkQ_w67lQu0YHPvxeiNdbYWTNH8IwyRbPVNJPGrqGx5x8I2UrX7SXe7iUOUGXguWzxH4r4vfIA.jpg" width="400"><br>
 
@@ -137,7 +165,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 <img src="https://cdn1.telesco.pe/file/v96TusR6Fi8o3xfr-G6jV3lpD-8ptoirkXpDvHRz5zgX7EZGim5dO1Dw-gB82xVN36UKYS8xtdx0upZnnBH89lwQcx_ehzfN5gmYOncmMLCCbTA02DRF0t57AHAN8xhwSRHTRJgsQJ_pAXJd6cqux1nnhM__3JeUQR4Iybt3P-02bTRVL-RlluucQ09Io4LVQN3K2PKJUPZsffPqN1b1Mdqg0B504tEEX3X8V_rtcUy8MAAt8LEKb_JnbPvWExcTs4lb-eIEmsc_ZZzywq4A4oYp9CBWjaC6VWlpr1R1JgWQ9cMgiOblc-adafoS2kjR29hZckDzlY8m1nCVlHFxrA.jpg" width="400"><br>
 
@@ -160,7 +188,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 <img src="https://cdn4.telesco.pe/file/IuOQQWQw578xUIpLgcHlvNS_o0Zjh_vIvQR0ucxXkZkEwSyNsoLo-Td3CufAiHsSw0-6MSfrReEO815Z22azZ4tN3X7FKCDLJSj6ezmAfClsLanAXL_VUN3XjfJdmPlbHbAgD1D5qy4rq2nf6CAaUnor28NtVkZUrOr-thyG8whLvPxgQbRGSQMzcs0wnVwe5VB-E508rOsxSJ7yok9Eh5Hpdvdkqyevr-kjqa3QGF9ML2Zkuc0H7R3xLTIKQkc7QN-JFK_MiEwkKDENcs9I42ppbcoIhR2Tf7opMIgAvL6KjrDSMpU7mqn9pQ_siF24wmE5pXsWubvjAoT2laSeAw.jpg" width="400"><br>
 
@@ -179,7 +207,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 <img src="https://cdn1.telesco.pe/file/uLKIJDqTa0glWKTTDQfylGXrOAaUsSjdN2J-QOq4GfB0xGwoCoANaQY61h67HajVj5TW_8TJ-aGJXXPgp4sXcdD4gkkiaEJAjo56H3PhFpVrFHNdOdiGixe9oHoHPWoh8ytBe2FbCMcEXgqbGZLX38-KROeCDEk7-2EFuak-F0rKvcbqOY_ieapoN84-eEjvGuWxkMyetOn2qbaEPuMWDTRpkciqn9tnjFV0zrOjWXadEUPjskliZVoDvlOFuGkhDK0keUkrf9lyPIJ7pEfdv19iLKIGsigO5ljIqojN8Hevq-FzaZlKTZa9Ou7p_xmflBQqoWxnRlnTM4It2w1Q8w.jpg" width="400"><br>
 
@@ -222,7 +250,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 
 
@@ -253,7 +281,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 <img src="https://cdn1.telesco.pe/file/dkuvIlHfOqgld0B-fBtdf4aL_rp-NXgYGr5XhigJkMNO4xGY0xP2X3Q-94VGiwJl5EBsMxV1Cz_h1Fct-FxInjgD_uNt-2ZUnjp-cmdcPJAM9RbBpOFN_TSDyApd-v_keZJv-Phm9TsOqmTuGgKEGLpAK-F14fhbRcmErCWO0BPStW5bUIZVhRbOnvGfXGqXjCGAiYlj7Q122zx0UdVusYoKHVbFrTl9xyu7fszgC8tX0RN0UfbuPls0ElTvyt-u-8K2CMO2m0kTld1CjDLPnuOlppYpCApfyBK51M2oMTeydrWEEnpD_AhCSx251SvQKysuNXGlvJFZO4ap2PIyfA.jpg" width="400"><br>
 
@@ -271,7 +299,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 
 
@@ -301,7 +329,7 @@ sirens in bahrain
 
 
 
-###### 🔵 Updated at: 2026-07-12 18:57:13
+###### 🔵 Updated at: 2026-07-12 19:58:04
 
 <img src="https://cdn1.telesco.pe/file/PI5s6oOyA8l0ILG2iltMK5ZwMx3PxxAzqJxLW4yY6OYFRsGVb6O77JJ1ztlZ_Gs-CbGSMyVgVk3njkSTRh6xtFKwxRy-gI5BDJWihdD-lWOY7bKKPz3Y_rjJPFUq-W8knNTAOE3aFPTcjWQKhQOthfk4ooG-3LYU1gOx_sOPAEHQsrF7dF0YjL7Go8sRN-GfyGayURq8JoHIFliIwC9-GKKIdn8Og2FfavcRV_ipm8p-D6VdlMUvft08237glPeFoOXduR257N7T_2XCmHumhYwa3NKMgOcQ7q7m9FG4Fd3o04vBXCgB6WCWA1KR7S9YpXc_-vCznj3qelU3pR-grQ.jpg" width="400"><br>
 
@@ -313,44 +341,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76946)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 18:57:13
-
-<img src="https://cdn1.telesco.pe/file/BcgpQp86re-oYKkHy8FFE_HK09PJjrWYx0wUQb43H2R_bo4gb_4EJR3klA8DaqdHjXy5yjh7Iy7L0f7TUQ5zRk1oliPluWs9OF-3O4gKnEI8U9Fa0MuA3p4h9iFITAQ5KI-7G3xnY3k5FGMC1V4FVs9MM-b4E2O3RpI7tc2XlE837J2bYkiPjUb2OTbyG7KQ3774g6_THHi5cIKwND-xDG4j0u0rsmjDqLv5bOZM6E6ZGksho637USPMTdImLydKuhzID25ogwVtALBcmfltosFXslmXOLRuwNY1IveG0MNNxtvWLe64SPwckhaKXhm7TWtvqcohQQKJmbLhWOxlYg.jpg" width="400"><br>
-
-تصاویر و پیام‌های دریافتی تایید نشده:
-سلام باز بوشهرو زدن ۳:۴۶
-سلام وحید جان بوشهر سمت سرتل رادار زدن
-بوشهر همین الان 3:48 دقیقه دو بار لرزید
-سلام وحید جان ۳:۴۷ دقیقه بوشهر سه تا انفجار شدید شنیدیم
-اقای وحید ساعت ۳ وربع صدای انفجار شدید اومد عسلویه از خواب پریدم
-صدای دوتا انفجار  الان اومد  پایگاه هوایی بوشهر
-۵ تا زد سایت موشکی چغادک-بوشهر،۰۳:۴۵
-سلام وحید جان
-ساعت 03:47
-بوشهر سه چاربار صدای انفجار اومد
-سلام وحید جان الان 3:45 دقیقه بهمنی بوشهر صدا اومد دو سه تا که خونه لرزید
-🔄
-جاسک
-وحید ۳:۵۰ جاسک رو زد ۳ بار
-سلام وحید جان همین الان دو انفجار وحشتناک در جاسک
-منطقه نیرو دریایی جاسک
-3:50 صدای جنگنده و چندین انفجار از بندر جاسک
-سلام وحید صدای چند انفجار شدید در بندر جاسک
-🔄
-جاسک
-خدایا بازم داره میزنه
-دوتا دقیقا همون نقطه قبلی زد
-ساعت ۵ جاسک
-۲ انفجار دیگه جاسک
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76945)
 
 ---
 
