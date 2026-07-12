@@ -3,9 +3,51 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
-<img src="https://cdn1.telesco.pe/file/rnl_NJRWPwEEpB_Sp-bqiG78tyolr50OBlliVNp_waWdcKESdjShaIJgcbwDgolE6B4G171sggM-dotH_EA1S2U7rWI4W4wu1GvU2HEyRKr7RTBVYgVGZ4L2-sVF9da4o8JJro_mxF8L3S1uiV80toctCv_fs4c6OMUGxfLw2IlUO6rnwJvOaLW9ARw9Oy4P-tEu_32lTNMUQB34rBhOLXsk8qG9mpwX50dtJ1mFHMPjOEgV_ePQkcFYO6wpHG8RrUDmvR4c6140yENoRpDl7tdcv2vmNfsspGnMw1R2Woe9zLofzlIDXToF6vYFQGFh_BpmFizEBBIvqxExyE2Auw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Z4Vce4NNWNuu_dxPjWJYMuJ24GY5Dz0aJnNCgK_9atBf63iu7h-679z12z1q9LbtXLtvXYD3KqeKrtYR30ptT7juGTJHRWdyr2myUx2iOuXxEqGowahtKJuU9mrObcY-kjIltEF09slr0zkjoeIm2AX6XvH5ttCUrBXdbc9MBL1CZVg_UJBk3Xqip7zHm6UrICtOQisN-c_CV_5oBGsBZxraDzZb4BCVjFhTArF0Bw9RsnrsCDb1njnDadYmr49DlfJ7v8cJBrdTSUpFDe0GPlr8-nxWQZDOgwVcso2dQ0JMv0ET7WL4cNMuJSAUYPYhEpxnNoj0gzPnmYPMMLkgkw.jpg" width="400"><br>
+
+دونالد ترامپ یک‌شنبه در مصاحبه با ان‌بی‌سی تاکید کرد که «تنگه هرمز باز است»
+پیش‌تر نیز ‌فرماندهی مرکزی آمریکا (سنتکام) اعلام کرد جمهوری اسلامی کنترل تنگه هرمز را در اختیار ندارد و تردد کشتی‌ها در این آبراه ادامه دارد.
+سنتکام افزود تنگه هرمز برای همه شناورهایی که به‌صورت قانونی از این آبراه عبور می‌کنند، باز است و نیروهای آمریکا برای حفظ آزادی کشتیرانی، با وجود اقدامات تهاجمی و خودسرانه جمهوری اسلامی، در موقعیت مناسب مستقر و آماده هستند.
+این در حالی است که سپاه پاسداران شنبه پس از حمله به یک کشتی باری تجاری در مسیر جنوبی تنگه هرمز، اعلام کرده بود: «این آبراه تا اطلاع ثانوی و تا پایان مداخلات آمریکا در منطقه بسته شده و هیچ شناوری اجازه تردد نخواهد داشت.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76965)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-12 17:45:03
+
+<img src="https://cdn1.telesco.pe/file/GxO6IGYK05IF6DNxsRpGWYZTcDeaf2XB5SP8hBbfzsxoXY7UbeCjqNw3HAnUMmD0RgPtD4kC86f9v0eUzm03V2RNjXBuDr1AM32xwvF9tax4XGsQG8FkcR6dcN3VYXTo0QJoVHBaCQXZ08IktuAbcS_Cyu4kMBSwl7xxAtpqQBJpASywBgCHXRxwrII1LFjfL0jADkas9HKMhYZg1r8-fyXvGRyZJ3MnloGxgyLOUQqd0pJxc9wW6jbggFO5G4_AjYupctvjLyQ9TCgIbkunt0vLE7mqRgLrjaBhtrnEfrlT9j9rYzwiJlktzd61sfq7XFnBVsnECQFIjTPBsC0jTw.jpg" width="400"><br>
+
+نهاد مدیریت آبراه خلیج فارس، نهادی که به‌تازگی برای اعمال مدیریت جمهوری اسلامی ایران بر تنگه هرمز تاسیس شده است، یکشنبه ۲۱ تیرماه با انتشار بیانیه‌ای اعلام کرد تردد از این آبراه در حال حاضر امکان‌پذیر نیست.
+در این بیانیه، آنچه «تحرکات غیرقانونی اخیر نیروهای نظامی ایالات متحده در منطقه» خوانده شد، علت توقف تردد عنوان شده است. این نهاد افزود پس از برقراری ثبات و آرامش، درخواست‌ها بر اساس زمان ثبت بررسی و مجوزهای لازم صادر خواهد شد.
+@
+VahidOOnLine
+پست سنتکام، ترجمه ماشین:
+🚫
+ادعا: فرمانده نیروی دریایی سپاه پاسداران انقلاب اسلامی اخیراً در رسانه دولتی گفته است هیچ شناور خارجی‌ای نمی‌تواند بدون شناسایی، ردیابی و نظارت نیروهای ایرانی از تنگه هرمز عبور کند.
+✅
+واقعیت: ایران تنگه هرمز را کنترل نمی‌کند. این تنگه همچنان یک آبراه بین‌المللی است. نیروهای ایالات متحده مستقر و آماده‌اند تا همین وضعیت را حفظ کنند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76964)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-12 17:45:03
+
+<img src="https://cdn1.telesco.pe/file/fcwrn0GUjHaZPWcgCyfRh9JDLC4RGslhcu19fnZzaBVyETWNn1n8mwMb0-UDDIE0wSTCHcdbigRqr9ii2hcArh7TZ5Q7-42Dw3YxxeA7x8tuMj2Bag7zz2D-qpPeAlUvmyuY8uOP8iAHSmFIzhS-uBQ2i3evwXp5OAg0R6lzJPEgCqNDQFsMXBuu_75M5SPpCQZ5SNpvNOdS8oapsafCRUSVkT3bDc5nV1pChnrSTAhgRnXQZHwVRie7PbortWvUeaAddFuG_ZyAmZ2mDdaGkt6M9_OpSmK2AZ0O3KUB1W6NUgOZS9bxFIi9JV40mH7LPW38Up6T6KgmaS7Zx08J0A.jpg" width="400"><br>
 
 سنتکام: تنگه هرمز باز است
 پست اکانت فرماندهی نظامی آمریکا، ترجمه ماشین:
@@ -20,7 +62,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 <img src="https://cdn1.telesco.pe/file/gW7oZrZ6hXWK0GlGOXkbUcq3384y_dpuF_8guq3RTXihJYE4QwMyJOKa1VSpd_ZbY7n_y3apU8MmvQbDb7vB6XEztCmG4UpRHq7c0oc25xgMRh9dpI_uFamXW7EbvGcydQo7VeLerEGJtWui4CrvVubxu_uDuRcocFELuAmSicMreFPgP8K9MKqeQRIr8eZnRZEFCnjD9Y2P2l-1vcPwvTPUItDMhhfbeU6_s76okzOje4_rbQg5R6OK7zIkAv_oCeQU3n2mloL0pkQ_w67lQu0YHPvxeiNdbYWTNH8IwyRbPVNJPGrqGx5x8I2UrX7SXe7iUOUGXguWzxH4r4vfIA.jpg" width="400"><br>
 
@@ -50,7 +92,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 <img src="https://cdn1.telesco.pe/file/v96TusR6Fi8o3xfr-G6jV3lpD-8ptoirkXpDvHRz5zgX7EZGim5dO1Dw-gB82xVN36UKYS8xtdx0upZnnBH89lwQcx_ehzfN5gmYOncmMLCCbTA02DRF0t57AHAN8xhwSRHTRJgsQJ_pAXJd6cqux1nnhM__3JeUQR4Iybt3P-02bTRVL-RlluucQ09Io4LVQN3K2PKJUPZsffPqN1b1Mdqg0B504tEEX3X8V_rtcUy8MAAt8LEKb_JnbPvWExcTs4lb-eIEmsc_ZZzywq4A4oYp9CBWjaC6VWlpr1R1JgWQ9cMgiOblc-adafoS2kjR29hZckDzlY8m1nCVlHFxrA.jpg" width="400"><br>
 
@@ -73,7 +115,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 <img src="https://cdn4.telesco.pe/file/IuOQQWQw578xUIpLgcHlvNS_o0Zjh_vIvQR0ucxXkZkEwSyNsoLo-Td3CufAiHsSw0-6MSfrReEO815Z22azZ4tN3X7FKCDLJSj6ezmAfClsLanAXL_VUN3XjfJdmPlbHbAgD1D5qy4rq2nf6CAaUnor28NtVkZUrOr-thyG8whLvPxgQbRGSQMzcs0wnVwe5VB-E508rOsxSJ7yok9Eh5Hpdvdkqyevr-kjqa3QGF9ML2Zkuc0H7R3xLTIKQkc7QN-JFK_MiEwkKDENcs9I42ppbcoIhR2Tf7opMIgAvL6KjrDSMpU7mqn9pQ_siF24wmE5pXsWubvjAoT2laSeAw.jpg" width="400"><br>
 
@@ -92,7 +134,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 <img src="https://cdn1.telesco.pe/file/uLKIJDqTa0glWKTTDQfylGXrOAaUsSjdN2J-QOq4GfB0xGwoCoANaQY61h67HajVj5TW_8TJ-aGJXXPgp4sXcdD4gkkiaEJAjo56H3PhFpVrFHNdOdiGixe9oHoHPWoh8ytBe2FbCMcEXgqbGZLX38-KROeCDEk7-2EFuak-F0rKvcbqOY_ieapoN84-eEjvGuWxkMyetOn2qbaEPuMWDTRpkciqn9tnjFV0zrOjWXadEUPjskliZVoDvlOFuGkhDK0keUkrf9lyPIJ7pEfdv19iLKIGsigO5ljIqojN8Hevq-FzaZlKTZa9Ou7p_xmflBQqoWxnRlnTM4It2w1Q8w.jpg" width="400"><br>
 
@@ -135,7 +177,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 
 
@@ -166,7 +208,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 <img src="https://cdn1.telesco.pe/file/dkuvIlHfOqgld0B-fBtdf4aL_rp-NXgYGr5XhigJkMNO4xGY0xP2X3Q-94VGiwJl5EBsMxV1Cz_h1Fct-FxInjgD_uNt-2ZUnjp-cmdcPJAM9RbBpOFN_TSDyApd-v_keZJv-Phm9TsOqmTuGgKEGLpAK-F14fhbRcmErCWO0BPStW5bUIZVhRbOnvGfXGqXjCGAiYlj7Q122zx0UdVusYoKHVbFrTl9xyu7fszgC8tX0RN0UfbuPls0ElTvyt-u-8K2CMO2m0kTld1CjDLPnuOlppYpCApfyBK51M2oMTeydrWEEnpD_AhCSx251SvQKysuNXGlvJFZO4ap2PIyfA.jpg" width="400"><br>
 
@@ -184,7 +226,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 
 
@@ -214,7 +256,7 @@ sirens in bahrain
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 <img src="https://cdn1.telesco.pe/file/PI5s6oOyA8l0ILG2iltMK5ZwMx3PxxAzqJxLW4yY6OYFRsGVb6O77JJ1ztlZ_Gs-CbGSMyVgVk3njkSTRh6xtFKwxRy-gI5BDJWihdD-lWOY7bKKPz3Y_rjJPFUq-W8knNTAOE3aFPTcjWQKhQOthfk4ooG-3LYU1gOx_sOPAEHQsrF7dF0YjL7Go8sRN-GfyGayURq8JoHIFliIwC9-GKKIdn8Og2FfavcRV_ipm8p-D6VdlMUvft08237glPeFoOXduR257N7T_2XCmHumhYwa3NKMgOcQ7q7m9FG4Fd3o04vBXCgB6WCWA1KR7S9YpXc_-vCznj3qelU3pR-grQ.jpg" width="400"><br>
 
@@ -231,7 +273,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 <img src="https://cdn1.telesco.pe/file/BcgpQp86re-oYKkHy8FFE_HK09PJjrWYx0wUQb43H2R_bo4gb_4EJR3klA8DaqdHjXy5yjh7Iy7L0f7TUQ5zRk1oliPluWs9OF-3O4gKnEI8U9Fa0MuA3p4h9iFITAQ5KI-7G3xnY3k5FGMC1V4FVs9MM-b4E2O3RpI7tc2XlE837J2bYkiPjUb2OTbyG7KQ3774g6_THHi5cIKwND-xDG4j0u0rsmjDqLv5bOZM6E6ZGksho637USPMTdImLydKuhzID25ogwVtALBcmfltosFXslmXOLRuwNY1IveG0MNNxtvWLe64SPwckhaKXhm7TWtvqcohQQKJmbLhWOxlYg.jpg" width="400"><br>
 
@@ -269,7 +311,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 16:12:57
+###### 🔵 Updated at: 2026-07-12 17:45:03
 
 <img src="https://cdn1.telesco.pe/file/VUS1DVErAuWWFJWPWkNbr1FLQqzDFIfJzJ5V6zy19yc1WZMq_6Rbbox4WuUIv5gCq9r_ryvd4PsFzpF7wTRF4WyTc6RoO5k_nDStB9i9Qh67k-_HMCjsXBAweIIu8ismx_sQNSzt0hqfZhnqrPvINAYUMr1JP95VxyTXbNoArUPgBkHgBcmtN9ilvn37Z9Q36Xr-iSycsWqCfCaOyEChnXaTz1nOKeRvBFcXyYTbr4xIuxIzljQtQM7yiGYWLClI5IPkXVeFEWoxiCSjFmxHiRJ1iFAVhTcxoE0vnfJtTgfqFAE2Lug2TtlhnKr4uWl-vOxzlmYBEg1623A167LgNA.jpg" width="400"><br>
 
@@ -280,45 +322,6 @@ PeteHegseth
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76944)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 16:12:57
-
-
-
-پیام‌‌های دریافتی:
-دوتا سنگین زد کنارک همین الان  ۳:۱۸
-چابهار الان دو دفعه صدای انفجار اومد
-سلام وحید جان چابهار همین الان دو تا انفجار مهیب
-ساعت ۳:۱۸ دقیقه دو انفجار با صدای بلند در کنارک
-همین الان ساعت 3:30 دو انفجار شدید در جابهار و یکی هم صداش خیلی دور بود شاید اطراف فرودگاه کنارک. ولی دو انفجار چابهار واقعا شدید بود
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76943)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 16:12:57
-
-
-
-سنتکام: سومین دور حملات این هفته علیه ایران را آغاز کردیم
-ترجمه ماشین:
-امروز ساعت ۷:۱۵ عصر به وقت شرق آمریکا، [۲:۱۵ بامداد شنبه تهران] نیروهای فرماندهی مرکزی ایالات متحده پس از آنکه نیروهای سپاه پاسداران انقلاب اسلامی به‌طور آشکار به کشتی کانتینری «M/V GFS Galaxy» با پرچم قبرس در حال عبور از تنگه هرمز حمله کردند، سومین دور حملات این هفته علیه ایران را آغاز کردند.
-یکی از اعضای غیرنظامی خدمه مفقود شده و کشتی به‌دلیل آتش‌سوزی در داخل و وارد آمدن خسارت قابل‌توجه به موتورخانه، قادر به ادامه سفر نیست.
-پس از آنکه ایران به‌دلیل حملات پیشین به کشتی‌های تجاری پاسخگو شناخته شد، بار دیگر فرصتی به این کشور داده شد تا پایبندی خود به تفاهم‌نامه را نشان دهد، اما بار دیگر ناکام ماند.
-در پاسخ، ایالات متحده با ادامه تضعیف توانایی ایران برای حمله به دریانوردان غیرنظامی و کشتی‌های تجاری که آزادانه از تنگه عبور می‌کنند، هزینه سنگینی به این کشور تحمیل می‌کند. این حملات به دستور فرمانده کل قوا انجام می‌شوند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76942)
 
 ---
 
