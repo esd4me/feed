@@ -3,16 +3,61 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
-<img src="https://cdn4.telesco.pe/file/Z4Vce4NNWNuu_dxPjWJYMuJ24GY5Dz0aJnNCgK_9atBf63iu7h-679z12z1q9LbtXLtvXYD3KqeKrtYR30ptT7juGTJHRWdyr2myUx2iOuXxEqGowahtKJuU9mrObcY-kjIltEF09slr0zkjoeIm2AX6XvH5ttCUrBXdbc9MBL1CZVg_UJBk3Xqip7zHm6UrICtOQisN-c_CV_5oBGsBZxraDzZb4BCVjFhTArF0Bw9RsnrsCDb1njnDadYmr49DlfJ7v8cJBrdTSUpFDe0GPlr8-nxWQZDOgwVcso2dQ0JMv0ET7WL4cNMuJSAUYPYhEpxnNoj0gzPnmYPMMLkgkw.jpg" width="400"><br>
 
-دونالد ترامپ یک‌شنبه در مصاحبه با ان‌بی‌سی تاکید کرد که «تنگه هرمز باز است»
-پیش‌تر نیز ‌فرماندهی مرکزی آمریکا (سنتکام) اعلام کرد جمهوری اسلامی کنترل تنگه هرمز را در اختیار ندارد و تردد کشتی‌ها در این آبراه ادامه دارد.
-سنتکام افزود تنگه هرمز برای همه شناورهایی که به‌صورت قانونی از این آبراه عبور می‌کنند، باز است و نیروهای آمریکا برای حفظ آزادی کشتیرانی، با وجود اقدامات تهاجمی و خودسرانه جمهوری اسلامی، در موقعیت مناسب مستقر و آماده هستند.
-این در حالی است که سپاه پاسداران شنبه پس از حمله به یک کشتی باری تجاری در مسیر جنوبی تنگه هرمز، اعلام کرده بود: «این آبراه تا اطلاع ثانوی و تا پایان مداخلات آمریکا در منطقه بسته شده و هیچ شناوری اجازه تردد نخواهد داشت.»
-@
-VahidOOnLine
+
+ترجمه ماشین:
+خبرنگار:
+شما آشکارا دور تازه‌ای از حملات را آغاز کردید؛ آن هم شبانه. ایران شب گذشته گفت تنگه هرمز بسته است. سنتکام صبح امروز اعلام کرد تنگه هرمز باز است. کدام درست است، آقای رئیس‌جمهور؟
+ترامپ:
+نمی‌خواهم درباره‌اش صحبت کنم، چون می‌خواهم به زندگی لیندسی گراهام ادای احترام کنم. بنابراین نمی‌خواهم درباره‌اش حرف بزنم. پیش از تماس هم این را به شما گفتم.
+بله، تنگه باز است. دیشب حسابی بمبارانشان کردیم. آن‌ها آدم‌های بسیار، بسیار شرور و بیماری هستند.
+تمام روز گذشته با آن‌ها جلسه داشتیم. دیروز با یک توافق عالی برای ما موافقت کردند: نه برنامه هسته‌ای، نه این و نه آن، هیچ‌چیز. از همه‌چیز دست کشیدند و بعد از آن اتاق را ترک کردند و سپس، ظرف یک ساعت، پهپادی به‌سوی یک کشتی پرتاب کردند.
+گفتم: «شما بیمارید؛ آدم‌های بیماری هستید.»
+بنابراین ماجرا از همین قرار است. نمی‌خواهم درباره‌اش صحبت کنم.  می‌خواهم امروز درباره یک نفر صحبت کنم: لیندسی گراهام.
+NBC
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76966)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-12 18:57:13
+
+
+
+ترجمه ماشین:
+مجری:
+ایران اعلام کرده تنگه هرمز را بسته است. آیا این درست است، آقای رئیس‌جمهور؟
+دونالد ترامپ:
+تا جایی که به ما مربوط است، باز است. درباره‌اش صحبت نکن. درباره موضوعی صحبت کن که به خاطرش از من خواستی حرف بزنم.
+مجری:
+باشه. از وقتی که در اختیار ما گذاشتید ممنونیم، قربان. پیش از اینکه اجازه بدهم بروید، آیا حرف پایانی دیگری هست که می‌خواهید مردم آمریکا درباره لیندسی گراهام بدانند؟
+ترامپ:
+نه، فکر می‌کنم بهترین لحظه‌اش دفاع او از برت کاوانا بود؛ مرد فوق‌العاده‌ای که دموکرات‌ها با او بسیار، بسیار ناعادلانه رفتار کردند.
+هرگز چیزی شبیه آن ندیده‌ام. شاید بدترین رفتاری بود که تا به حال با کسی دیده‌ام. من را هم شامل می‌شود. البته، شاید نه من، اما تقریباً همه را شامل می‌شود.
+با او به‌شدت ناعادلانه رفتار شد و لیندسی، همان‌طور که یادت هست، آن لحظه را رقم زد. و می‌دانی، باید به تو بگویم، جیک، فکر می‌کنم یکی از ده لحظه برتر، شاید یکی از پنج لحظه برتر تاریخ سنا بود.
+نمایشی باورنکردنی بود. و آن را از ته دل انجام داد. نسبت به برت احساس عمیقی داشت و آن را از ته دل انجام داد و کل ماجرا را برگرداند.
+واقعاً شگفت‌انگیز بود. آن یکی را باید دوباره پخش کنند.
+مجری:
+خب، می‌دانم که از روی احترام به لیندسی گراهام نمی‌خواهید درباره هیچ موضوع دیگری صحبت کنید، اما ما دوست داریم زمانی دوباره شما را داشته باشیم، چون واقعاً پرسش‌های بسیار دیگری از شما دارم، قربان.
+ترامپ:
+حتماً. این کار را می‌کنیم. این کار را می‌کنیم.
+مجری:
+از اینکه تلفنی با ما همراه شدید متشکرم.
+ترامپ:
+می‌خواهیم CNN را در مسیری عادی قرار دهیم و این کار را خواهیم کرد.
+مجری:
+خب، من همین‌جا در مسیر عادی هستم، قربان، و از وقتی که در اختیار ما گذاشتید سپاسگزارم و ممنون که تماس گرفتید.
+ترامپ:
+باشه. خیلی ممنون.
+مجری:
+بسیار متشکرم. بعد از این وقفه کوتاه برمی‌گردیم.
+CNN
 📡
 @VahidOnline
 
@@ -22,7 +67,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn1.telesco.pe/file/GxO6IGYK05IF6DNxsRpGWYZTcDeaf2XB5SP8hBbfzsxoXY7UbeCjqNw3HAnUMmD0RgPtD4kC86f9v0eUzm03V2RNjXBuDr1AM32xwvF9tax4XGsQG8FkcR6dcN3VYXTo0QJoVHBaCQXZ08IktuAbcS_Cyu4kMBSwl7xxAtpqQBJpASywBgCHXRxwrII1LFjfL0jADkas9HKMhYZg1r8-fyXvGRyZJ3MnloGxgyLOUQqd0pJxc9wW6jbggFO5G4_AjYupctvjLyQ9TCgIbkunt0vLE7mqRgLrjaBhtrnEfrlT9j9rYzwiJlktzd61sfq7XFnBVsnECQFIjTPBsC0jTw.jpg" width="400"><br>
 
@@ -45,7 +90,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn1.telesco.pe/file/fcwrn0GUjHaZPWcgCyfRh9JDLC4RGslhcu19fnZzaBVyETWNn1n8mwMb0-UDDIE0wSTCHcdbigRqr9ii2hcArh7TZ5Q7-42Dw3YxxeA7x8tuMj2Bag7zz2D-qpPeAlUvmyuY8uOP8iAHSmFIzhS-uBQ2i3evwXp5OAg0R6lzJPEgCqNDQFsMXBuu_75M5SPpCQZ5SNpvNOdS8oapsafCRUSVkT3bDc5nV1pChnrSTAhgRnXQZHwVRie7PbortWvUeaAddFuG_ZyAmZ2mDdaGkt6M9_OpSmK2AZ0O3KUB1W6NUgOZS9bxFIi9JV40mH7LPW38Up6T6KgmaS7Zx08J0A.jpg" width="400"><br>
 
@@ -62,7 +107,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn1.telesco.pe/file/gW7oZrZ6hXWK0GlGOXkbUcq3384y_dpuF_8guq3RTXihJYE4QwMyJOKa1VSpd_ZbY7n_y3apU8MmvQbDb7vB6XEztCmG4UpRHq7c0oc25xgMRh9dpI_uFamXW7EbvGcydQo7VeLerEGJtWui4CrvVubxu_uDuRcocFELuAmSicMreFPgP8K9MKqeQRIr8eZnRZEFCnjD9Y2P2l-1vcPwvTPUItDMhhfbeU6_s76okzOje4_rbQg5R6OK7zIkAv_oCeQU3n2mloL0pkQ_w67lQu0YHPvxeiNdbYWTNH8IwyRbPVNJPGrqGx5x8I2UrX7SXe7iUOUGXguWzxH4r4vfIA.jpg" width="400"><br>
 
@@ -92,7 +137,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn1.telesco.pe/file/v96TusR6Fi8o3xfr-G6jV3lpD-8ptoirkXpDvHRz5zgX7EZGim5dO1Dw-gB82xVN36UKYS8xtdx0upZnnBH89lwQcx_ehzfN5gmYOncmMLCCbTA02DRF0t57AHAN8xhwSRHTRJgsQJ_pAXJd6cqux1nnhM__3JeUQR4Iybt3P-02bTRVL-RlluucQ09Io4LVQN3K2PKJUPZsffPqN1b1Mdqg0B504tEEX3X8V_rtcUy8MAAt8LEKb_JnbPvWExcTs4lb-eIEmsc_ZZzywq4A4oYp9CBWjaC6VWlpr1R1JgWQ9cMgiOblc-adafoS2kjR29hZckDzlY8m1nCVlHFxrA.jpg" width="400"><br>
 
@@ -115,7 +160,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn4.telesco.pe/file/IuOQQWQw578xUIpLgcHlvNS_o0Zjh_vIvQR0ucxXkZkEwSyNsoLo-Td3CufAiHsSw0-6MSfrReEO815Z22azZ4tN3X7FKCDLJSj6ezmAfClsLanAXL_VUN3XjfJdmPlbHbAgD1D5qy4rq2nf6CAaUnor28NtVkZUrOr-thyG8whLvPxgQbRGSQMzcs0wnVwe5VB-E508rOsxSJ7yok9Eh5Hpdvdkqyevr-kjqa3QGF9ML2Zkuc0H7R3xLTIKQkc7QN-JFK_MiEwkKDENcs9I42ppbcoIhR2Tf7opMIgAvL6KjrDSMpU7mqn9pQ_siF24wmE5pXsWubvjAoT2laSeAw.jpg" width="400"><br>
 
@@ -134,7 +179,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn1.telesco.pe/file/uLKIJDqTa0glWKTTDQfylGXrOAaUsSjdN2J-QOq4GfB0xGwoCoANaQY61h67HajVj5TW_8TJ-aGJXXPgp4sXcdD4gkkiaEJAjo56H3PhFpVrFHNdOdiGixe9oHoHPWoh8ytBe2FbCMcEXgqbGZLX38-KROeCDEk7-2EFuak-F0rKvcbqOY_ieapoN84-eEjvGuWxkMyetOn2qbaEPuMWDTRpkciqn9tnjFV0zrOjWXadEUPjskliZVoDvlOFuGkhDK0keUkrf9lyPIJ7pEfdv19iLKIGsigO5ljIqojN8Hevq-FzaZlKTZa9Ou7p_xmflBQqoWxnRlnTM4It2w1Q8w.jpg" width="400"><br>
 
@@ -177,7 +222,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 
 
@@ -208,7 +253,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn1.telesco.pe/file/dkuvIlHfOqgld0B-fBtdf4aL_rp-NXgYGr5XhigJkMNO4xGY0xP2X3Q-94VGiwJl5EBsMxV1Cz_h1Fct-FxInjgD_uNt-2ZUnjp-cmdcPJAM9RbBpOFN_TSDyApd-v_keZJv-Phm9TsOqmTuGgKEGLpAK-F14fhbRcmErCWO0BPStW5bUIZVhRbOnvGfXGqXjCGAiYlj7Q122zx0UdVusYoKHVbFrTl9xyu7fszgC8tX0RN0UfbuPls0ElTvyt-u-8K2CMO2m0kTld1CjDLPnuOlppYpCApfyBK51M2oMTeydrWEEnpD_AhCSx251SvQKysuNXGlvJFZO4ap2PIyfA.jpg" width="400"><br>
 
@@ -226,7 +271,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 
 
@@ -256,7 +301,7 @@ sirens in bahrain
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn1.telesco.pe/file/PI5s6oOyA8l0ILG2iltMK5ZwMx3PxxAzqJxLW4yY6OYFRsGVb6O77JJ1ztlZ_Gs-CbGSMyVgVk3njkSTRh6xtFKwxRy-gI5BDJWihdD-lWOY7bKKPz3Y_rjJPFUq-W8knNTAOE3aFPTcjWQKhQOthfk4ooG-3LYU1gOx_sOPAEHQsrF7dF0YjL7Go8sRN-GfyGayURq8JoHIFliIwC9-GKKIdn8Og2FfavcRV_ipm8p-D6VdlMUvft08237glPeFoOXduR257N7T_2XCmHumhYwa3NKMgOcQ7q7m9FG4Fd3o04vBXCgB6WCWA1KR7S9YpXc_-vCznj3qelU3pR-grQ.jpg" width="400"><br>
 
@@ -273,7 +318,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 17:45:03
+###### 🔵 Updated at: 2026-07-12 18:57:13
 
 <img src="https://cdn1.telesco.pe/file/BcgpQp86re-oYKkHy8FFE_HK09PJjrWYx0wUQb43H2R_bo4gb_4EJR3klA8DaqdHjXy5yjh7Iy7L0f7TUQ5zRk1oliPluWs9OF-3O4gKnEI8U9Fa0MuA3p4h9iFITAQ5KI-7G3xnY3k5FGMC1V4FVs9MM-b4E2O3RpI7tc2XlE837J2bYkiPjUb2OTbyG7KQ3774g6_THHi5cIKwND-xDG4j0u0rsmjDqLv5bOZM6E6ZGksho637USPMTdImLydKuhzID25ogwVtALBcmfltosFXslmXOLRuwNY1IveG0MNNxtvWLe64SPwckhaKXhm7TWtvqcohQQKJmbLhWOxlYg.jpg" width="400"><br>
 
@@ -306,22 +351,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76945)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 17:45:03
-
-<img src="https://cdn1.telesco.pe/file/VUS1DVErAuWWFJWPWkNbr1FLQqzDFIfJzJ5V6zy19yc1WZMq_6Rbbox4WuUIv5gCq9r_ryvd4PsFzpF7wTRF4WyTc6RoO5k_nDStB9i9Qh67k-_HMCjsXBAweIIu8ismx_sQNSzt0hqfZhnqrPvINAYUMr1JP95VxyTXbNoArUPgBkHgBcmtN9ilvn37Z9Q36Xr-iSycsWqCfCaOyEChnXaTz1nOKeRvBFcXyYTbr4xIuxIzljQtQM7yiGYWLClI5IPkXVeFEWoxiCSjFmxHiRJ1iFAVhTcxoE0vnfJtTgfqFAE2Lug2TtlhnKr4uWl-vOxzlmYBEg1623A167LgNA.jpg" width="400"><br>
-
-پیت هگست، وزیر جنگ آمریکا:
-"ایران انتخاب بدی کرد. حالا تاوانش را می‌دهد."
-PeteHegseth
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76944)
 
 ---
 
