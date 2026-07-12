@@ -3,7 +3,54 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
+
+<img src="https://cdn1.telesco.pe/file/rnl_NJRWPwEEpB_Sp-bqiG78tyolr50OBlliVNp_waWdcKESdjShaIJgcbwDgolE6B4G171sggM-dotH_EA1S2U7rWI4W4wu1GvU2HEyRKr7RTBVYgVGZ4L2-sVF9da4o8JJro_mxF8L3S1uiV80toctCv_fs4c6OMUGxfLw2IlUO6rnwJvOaLW9ARw9Oy4P-tEu_32lTNMUQB34rBhOLXsk8qG9mpwX50dtJ1mFHMPjOEgV_ePQkcFYO6wpHG8RrUDmvR4c6140yENoRpDl7tdcv2vmNfsspGnMw1R2Woe9zLofzlIDXToF6vYFQGFh_BpmFizEBBIvqxExyE2Auw.jpg" width="400"><br>
+
+سنتکام: تنگه هرمز باز است
+پست اکانت فرماندهی نظامی آمریکا، ترجمه ماشین:
+تنگه هرمز به روی همه شناورهایی که قصد عبور قانونی از این آبراه بین‌المللی را دارند، باز است. نیروهای ایالات متحده مستقر و آماده‌اند تا اطمینان حاصل کنند که آزادی کشتیرانی، با وجود تجاوزگری بی‌دلیل، آزار و اذیت، تهدیدها و اعلامیه‌های خودسرانه ایران، همچنان برقرار می‌ماند. ایران کنترل تنگه را در دست ندارد. تردد در جریان است.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76963)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-12 16:12:57
+
+<img src="https://cdn1.telesco.pe/file/gW7oZrZ6hXWK0GlGOXkbUcq3384y_dpuF_8guq3RTXihJYE4QwMyJOKa1VSpd_ZbY7n_y3apU8MmvQbDb7vB6XEztCmG4UpRHq7c0oc25xgMRh9dpI_uFamXW7EbvGcydQo7VeLerEGJtWui4CrvVubxu_uDuRcocFELuAmSicMreFPgP8K9MKqeQRIr8eZnRZEFCnjD9Y2P2l-1vcPwvTPUItDMhhfbeU6_s76okzOje4_rbQg5R6OK7zIkAv_oCeQU3n2mloL0pkQ_w67lQu0YHPvxeiNdbYWTNH8IwyRbPVNJPGrqGx5x8I2UrX7SXe7iUOUGXguWzxH4r4vfIA.jpg" width="400"><br>
+
+سپاه پاسداران و ارتش جمهوری اسلامی بامداد یک‌شنبه ۲۱ تیر۱۴۰۵، از گسترش دامنه حملات خود به پایگاه‌ها و تاسیسات نظامی آمریکا در منطقه خبر دادند و مدعی شدند هم‌زمان اهدافی در عمان، قطر، اردن، کویت و بحرین را هدف قرار داده‌اند.
+هم‌زمان گزارش‌هایی از فعال شدن سامانه‌های پدافندی، به صدا درآمدن آژیر های خطر و شنیده شدن صدای انفجار در چند کشور منطقه منتشر شد.
+این حملات در حالی رخ داده که عمان و قطر طی هفته‌های گذشته نقش اصلی میانجی‌گری میان جمهوری اسلامی و آمریکا را بر عهده داشته‌اند.
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، یک روز پیش از این حملات در مسقط با بدر البو سعیدی، وزیر خارجه عمان، درباره کاهش تنش‌ها و سازوکار عبور امن کشتی‌ها از تنگه هرمز گفت‌وگو کرده بود. عمان همچنین پیشنهادهایی برای حفظ امنیت کشتیرانی و اجرای تفاهم‌های مربوط به تنگه هرمز ارائه داده بود.
+قطر نیز در کنار پاکستان از میانجی‌های اصلی گفت‌وگوهای تهران و واشنگتن در چارچوب تفاهم‌نامه اسلام‌آباد محسوب می‌شود. با این حال، سپاه پاسداران هم‌زمان با تأکید مقام‌های جمهوری اسلامی بر ادامه مسیر دیپلماسی، بار دیگر مدعی حمله به پایگاه العدید در قطر شد و اکنون نیز از حمله به اهدافی در خاک دو کشور میانجی، عمان و قطر، خبر داده است.
+@
+VahidHeadline
+فرماندار درود در استان لرستان روز یکشنبه ۲۱ تیرماه از برخورد بوستر (پیشران) یک موشک به یک منزل مسکونی در محله بلوار تختی این شهر خبر داد.
+به گفته این مقام محلی یک واحد مسکونی و پارکینگ بر اثر این اصابت دچار خسارت شدند اما کسی بر اثر این سانحه کشته یا مجروح نشده است.
+@
+VahidOOnLine
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه ۲۱ تیرماه با انتشار پیامی در شبکه اجتماعی ایکس، درگذشت شیخ حمد بن خلیفه آل ثانی، امیر پیشین قطر، را تسلیت گفت.
+عراقچی در این پیام به زبان عربی نوشت: « صمیمانه‌ترین مراتب تسلیت و همدردی خود را به امیر شیخ تمیم بن حمد آل ثانی، خاندان ارجمند آل ثانی و ملت برادر قطر ابراز می‌داریم.»
+این پیام عراقچی در حالی منتشر می‌شود که بامداد روز یکشنبه، نیروهای مسلح جمهوری اسلامی، مناطقی در قطر را هدف حملات موشکی و پهپادی قرار داده بودند.
+قطر یکی از میانجی‌گران کلیدی در جریان مذاکرات جمهوری اسلامی ایران با آمریکا به شمار می‌رود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76956)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 <img src="https://cdn1.telesco.pe/file/v96TusR6Fi8o3xfr-G6jV3lpD-8ptoirkXpDvHRz5zgX7EZGim5dO1Dw-gB82xVN36UKYS8xtdx0upZnnBH89lwQcx_ehzfN5gmYOncmMLCCbTA02DRF0t57AHAN8xhwSRHTRJgsQJ_pAXJd6cqux1nnhM__3JeUQR4Iybt3P-02bTRVL-RlluucQ09Io4LVQN3K2PKJUPZsffPqN1b1Mdqg0B504tEEX3X8V_rtcUy8MAAt8LEKb_JnbPvWExcTs4lb-eIEmsc_ZZzywq4A4oYp9CBWjaC6VWlpr1R1JgWQ9cMgiOblc-adafoS2kjR29hZckDzlY8m1nCVlHFxrA.jpg" width="400"><br>
 
@@ -26,7 +73,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 <img src="https://cdn4.telesco.pe/file/IuOQQWQw578xUIpLgcHlvNS_o0Zjh_vIvQR0ucxXkZkEwSyNsoLo-Td3CufAiHsSw0-6MSfrReEO815Z22azZ4tN3X7FKCDLJSj6ezmAfClsLanAXL_VUN3XjfJdmPlbHbAgD1D5qy4rq2nf6CAaUnor28NtVkZUrOr-thyG8whLvPxgQbRGSQMzcs0wnVwe5VB-E508rOsxSJ7yok9Eh5Hpdvdkqyevr-kjqa3QGF9ML2Zkuc0H7R3xLTIKQkc7QN-JFK_MiEwkKDENcs9I42ppbcoIhR2Tf7opMIgAvL6KjrDSMpU7mqn9pQ_siF24wmE5pXsWubvjAoT2laSeAw.jpg" width="400"><br>
 
@@ -45,7 +92,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 <img src="https://cdn1.telesco.pe/file/uLKIJDqTa0glWKTTDQfylGXrOAaUsSjdN2J-QOq4GfB0xGwoCoANaQY61h67HajVj5TW_8TJ-aGJXXPgp4sXcdD4gkkiaEJAjo56H3PhFpVrFHNdOdiGixe9oHoHPWoh8ytBe2FbCMcEXgqbGZLX38-KROeCDEk7-2EFuak-F0rKvcbqOY_ieapoN84-eEjvGuWxkMyetOn2qbaEPuMWDTRpkciqn9tnjFV0zrOjWXadEUPjskliZVoDvlOFuGkhDK0keUkrf9lyPIJ7pEfdv19iLKIGsigO5ljIqojN8Hevq-FzaZlKTZa9Ou7p_xmflBQqoWxnRlnTM4It2w1Q8w.jpg" width="400"><br>
 
@@ -88,7 +135,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 
 
@@ -119,7 +166,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 <img src="https://cdn1.telesco.pe/file/dkuvIlHfOqgld0B-fBtdf4aL_rp-NXgYGr5XhigJkMNO4xGY0xP2X3Q-94VGiwJl5EBsMxV1Cz_h1Fct-FxInjgD_uNt-2ZUnjp-cmdcPJAM9RbBpOFN_TSDyApd-v_keZJv-Phm9TsOqmTuGgKEGLpAK-F14fhbRcmErCWO0BPStW5bUIZVhRbOnvGfXGqXjCGAiYlj7Q122zx0UdVusYoKHVbFrTl9xyu7fszgC8tX0RN0UfbuPls0ElTvyt-u-8K2CMO2m0kTld1CjDLPnuOlppYpCApfyBK51M2oMTeydrWEEnpD_AhCSx251SvQKysuNXGlvJFZO4ap2PIyfA.jpg" width="400"><br>
 
@@ -137,7 +184,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 
 
@@ -167,7 +214,7 @@ sirens in bahrain
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 <img src="https://cdn1.telesco.pe/file/PI5s6oOyA8l0ILG2iltMK5ZwMx3PxxAzqJxLW4yY6OYFRsGVb6O77JJ1ztlZ_Gs-CbGSMyVgVk3njkSTRh6xtFKwxRy-gI5BDJWihdD-lWOY7bKKPz3Y_rjJPFUq-W8knNTAOE3aFPTcjWQKhQOthfk4ooG-3LYU1gOx_sOPAEHQsrF7dF0YjL7Go8sRN-GfyGayURq8JoHIFliIwC9-GKKIdn8Og2FfavcRV_ipm8p-D6VdlMUvft08237glPeFoOXduR257N7T_2XCmHumhYwa3NKMgOcQ7q7m9FG4Fd3o04vBXCgB6WCWA1KR7S9YpXc_-vCznj3qelU3pR-grQ.jpg" width="400"><br>
 
@@ -184,7 +231,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 <img src="https://cdn1.telesco.pe/file/BcgpQp86re-oYKkHy8FFE_HK09PJjrWYx0wUQb43H2R_bo4gb_4EJR3klA8DaqdHjXy5yjh7Iy7L0f7TUQ5zRk1oliPluWs9OF-3O4gKnEI8U9Fa0MuA3p4h9iFITAQ5KI-7G3xnY3k5FGMC1V4FVs9MM-b4E2O3RpI7tc2XlE837J2bYkiPjUb2OTbyG7KQ3774g6_THHi5cIKwND-xDG4j0u0rsmjDqLv5bOZM6E6ZGksho637USPMTdImLydKuhzID25ogwVtALBcmfltosFXslmXOLRuwNY1IveG0MNNxtvWLe64SPwckhaKXhm7TWtvqcohQQKJmbLhWOxlYg.jpg" width="400"><br>
 
@@ -222,7 +269,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 <img src="https://cdn1.telesco.pe/file/VUS1DVErAuWWFJWPWkNbr1FLQqzDFIfJzJ5V6zy19yc1WZMq_6Rbbox4WuUIv5gCq9r_ryvd4PsFzpF7wTRF4WyTc6RoO5k_nDStB9i9Qh67k-_HMCjsXBAweIIu8ismx_sQNSzt0hqfZhnqrPvINAYUMr1JP95VxyTXbNoArUPgBkHgBcmtN9ilvn37Z9Q36Xr-iSycsWqCfCaOyEChnXaTz1nOKeRvBFcXyYTbr4xIuxIzljQtQM7yiGYWLClI5IPkXVeFEWoxiCSjFmxHiRJ1iFAVhTcxoE0vnfJtTgfqFAE2Lug2TtlhnKr4uWl-vOxzlmYBEg1623A167LgNA.jpg" width="400"><br>
 
@@ -238,7 +285,7 @@ PeteHegseth
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 
 
@@ -257,7 +304,7 @@ PeteHegseth
 
 
 
-###### 🔵 Updated at: 2026-07-12 15:17:16
+###### 🔵 Updated at: 2026-07-12 16:12:57
 
 
 
@@ -272,237 +319,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76942)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 15:17:16
-
-<img src="https://cdn1.telesco.pe/file/aUclG4Y-f5rh6pAXcLxeY-XnG3BdRy0QhOF_cx5-ZChQd6Js9RFy8-5Ob273r0yCQpweuTkCOmDcDoWcbApbQxhd1j2eR2ctQd0u1X31Z3c3MdqqEkV1zc091mymKRHYs1GeygcYSY4cK_cqSQV7AcQ4CnkM2zjvb5W9v6VLQdSgLd5xfESFeY0Ctb9nzcuiC3feugv6roPYpi6BEJDJY4mTWWitR3EWp0XdyCOKKelPRsFMSAuNSQah9MIxyl82IrYUo24d00lIFOjD6-3IJjW_Nupac0kNHDP91CN_2SAqHB1204vNGJHmDMwnZo-lQTQQXouMoG7Mc_ZmH20m2w.jpg" width="400"><br>
-
-پیام‌های دریافتی:
-‌
-بوشهر صدای چند انفجار لرزش زمین احساس شد زیرپام
-صدای دو تا انفجار بندر دیر ساعت ۲:۴۶
-۲۱ تیر
-سلام
-ساعت ۲:۴۰ شنيده شدن چهار تا پنج انفجار در کنگان و حوالی آن
-وحیدجان
-الان حدود دو و چهل و پنج دقیقه صدای چهار پنج انفجار بزرگ توی بوشهر
-شبشه های خونه لرزید
-وحیدجان سمت نیروگاهه
-من تنگک هستم الان دود و نور قرمز از اون سمت می بینم
-سلام اقا وحید ساعت ۲:۴۵ بندر کنگان چهارتا صدای انفجار اومد
-سلام ساعت ۲ و ۵۰ دقیقه بوشهر صدای چندین انفجار
-۲:۵۰ بوشهر صدا انفجار
-صدای چند انفجار اومد در بندرکنگان
-سلام.ساعت ۲/۴۵ دقیقه شهرستان دیر استان بوشهر.صدای دو انفجار مهیب با فاصله یک دقیقه از هم شنیده شد.موجش شدید بود
-سلام وحید
-بندر دیر رو زدن ساعت ۲:۴۶
-تو جنک هم ۱۰ ۱۲ باری زد یا بیشتر یادم نیست الان
-اسکله نیرو دریایی زدن
-🔄
-همین الان ستا انفجار دیگهههههه.
-بندر دیر.
-وحید جان الان ساعت ۲:۵۶ باز دوتا بمب دیگه بندر دیر رو زدن
-۲:۵۵ بازم زدن بندر دیر رو
-دو بار دیگه ۲:۵۶ زدن
-کنگان همین الان دوتا صدای بزرگ انفجار اومد۲:۵۶
-کنگان رو دوباره زدن
-🔄
-تایید نشده:
-صدای انفجار شدید بندرعباس
-همین الان قشم صدای یه انفجار مهیب اومد
-دقیقا ساعت ۳
-ساعت ۳:۱ بندرعباس صدای دو انفجار پشت هم اومد
-صدای انفجار، سیریک.
-🔄
-استان بوشهر
-سلام وحید جان بندر بوالخیر  رو زدن
-سلام اقا وحید بندر بوالخیرو زدن
-🔄
-عسلویه بوشهر
-یکی که در واکنش به خبر  قبلی درباره عسلویه پیام داده بود: "ببین ۱۰ دیقه پیش صدا اومد ولی نزدیک نبود" الان پیام داده که:
-وحید اینجارو دارن میزنن
-همین الان صدا و لرزش خونه ۱۰ تا انفجار
-عسلویه
-پیامی دیگر:
-عسلویه
-حدود یک ساعته نه یا ده صدای انفجار اومد که دوتای اخری خیلی شدیدتر بود
-ولی منطقه پتروشیمی و پالایشگاه خداروشکر خبری نیست
-همه‌ی صداها از  سمت ساحل حاله و ساحل بنود یا بندر تین هستن
-تقریباً بین۱۰تا ۲۰ کیلومتر با عسلویه فاصله دارن
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76941)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 15:17:16
-
-<img src="https://cdn1.telesco.pe/file/vQxulJH0yw4TqsALqk0C8A0D0IGib48nWqAX2p_x9XnWfOvaMM3EU9A5PvA3iB-_WoU7usa3a4k3xj-OdV2fX1IGrnRDPu-I0Yj-IKR-vnWfQ2XCF1eLPagt7s8w3TeboUWEWqgw8W6hkrul68XGZMAnNJIrbrhwpBheDIs4VO-nic8IQrQzG9rqxjrASSyBT_ILFcc-TNcDvDE41gp4W81WUbEQ_jNogFjgHlLHx5UF4V_plrQrjaTinrQXsjMHDAtbHq85RRHxFZm9vbc4t85XW08CgjAKHNZaZqB249xDbT0BqzEbzxm7D2M14vy1xYkdAj4NdOcG-v6MZUTTaQ.jpg" width="400"><br>
-
-همزمان با بیانیه سپاه پاسداران مبنی بر «بسته بودن تنگه هرمز تا اطلاع ثانوی و پایان مداخلات آمریکا»، یک مقام آمریکایی در گفتگو با خبرنگار آکسیوس اعلام کرد که سپاه یک موشک به سمت یک کشتی باری تجاری که قصد عبور از تنگه هرمز را داشت، شلیک کرده است.
-به گفته این مقام، کشتی مذکور مورد اصابت قرار گرفته و دچار خسارت شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76940)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 15:17:16
-
-<img src="https://cdn1.telesco.pe/file/Ve5tMQB7jntfPx4yyzfzfkhqz_UJuOzcQO-NgNxHOyYQMRa_-7mQotAhQPXPYlq3tlL2uQXmyAPYHE8s18C7vuY5Qrh_oq6A4IpoMTZ-7pqaCCVZ6edmjzOgWQvAZ_QFGTMDzDBG9kWmze4cFQLgj2uSY-04TbXD1cFO6ym8RwaH5ytNCEQ9EteJKB3nLO6HlZotitdRXevJJhwR23pVvezeB2hUehtXQGsoq57UNEyDZEvx_1h1is1_aUw2-3xLS-EJYGju8s8_pQLkT0HCacOcBN9cPvLyfZ0BspOSEEgptbKIaCUk9DADjof-xPt8jJJQ3QG-_qbgjdVbsI-AAw.jpg" width="400"><br>
-
-سپاه: یک کشتی را هدف قرار دادیم / تنگه هرمز تا اطلاع ثانوی بسته شد
-ایرنا:
-نیروی دریایی سپاه پاسداران انقلاب اسلامی:
-🔹
-بسم الله قاصم الجبارین
-در اطلاعیه قبلی گفته بودیم مداخلات بیگانگان و تعیین مسیر غیرقانونی حرکت کشتی ها در تنگه هرمز، برخورد قاطع ما را به دنبال خواهد داشت و روند افزایش ترددها در تنگه را با اخلال مواجه خواهد کرد.
-🔹
-ساعاتی قبل، این تذکرات نادیده گرفته شد و با تحریک بیگانگان چند کشتی تلاش کردند از مسیر غیرمصوب حرکت کنند و به اخطارها و تذکرات ما در اصلاح مسیر و حرکت در مسیر مصوب بی اعتنایی کردند.
-🔹
-به ناچار یک فروند کشتی‌ که با خاموش کردن سامانه‌های خود امنیت دریایی را به مخاطره افکنده بود؛ مورد اصابت شلیک‌اخطار واقع و متوقف شد.
-🔹
-به دنبال این حادثه، اولا با توجه به بروز این ناامنی به سبب مداخله غیرقانونی بیگانگان، تنگه هرمز تا اطلاع ثانوی و تا پایان مداخلات آمریکا در این منطقه بسته و هیچ شناوری اجازه تردد نخواهد داشت، ثانیا اگر دشمن متجاوز به بهانه این حادثه که خود، مسبب آن بوده است، خطایی کند و تجاوز جدیدی علیه ما داشته باشد با شدت پاسخ داده خواهد شد و پایگاه های جدیدی از دشمن در منطقه مورد هدف قرار خواهد گرفت.
-🔹
-عواقب چنین مداخله‌ای بر عهده دشمن آمریکایی - صهیونی و کشورهایی است که خاک خود را برای این تهدیدات در اختیار پایگاه دشمن گذاشته‌اند.
-و ما النصر الا من عند الله العزیز الحکیم
-نیروی دریایی سپاه پاسداران انقلاب اسلامی
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76939)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 15:17:16
-
-
-
-خبرنگار اکسیوس:
-‏
-🇴🇲
-🇮🇷
-یک دیپلمات که در جریان مذاکرات قرار گرفته است گفت عمان در گفت‌وگوهای امروز مسقط پیشنهاد کرد که مسیر جنوبی در آب‌های عمان و مسیر شمالی در آب‌های ایران، هر دو به‌طور کامل فعال باشند.
-‏
-🇴🇲
-🇮🇷
-این دیپلمات گفت طبق پیشنهاد عمان، مسیر جنوبی بدون هیچ‌گونه الزام برای دریافت مجوز باز خواهد بود؛ همان‌طور که پیش از جنگ بود.
-‏
-🇮🇷
-🇴🇲
-این دیپلمات گفت ایرانی‌ها نتوانستند این پیشنهاد را در جلسه به تصویب برسانند و ناچار شدند آن را برای گفت‌وگوهای داخلی به تهران ببرند.
-BarakRavid
-سی‌ان‌ان:
-یک منبع آگاه از مذاکرات به سی‌ان‌ان گفت عمان پیشنهادی را برای مدیریت تردد در تنگه هرمز از طریق دو مسیر با کنترل جداگانه تدوین کرده است.
-بر اساس این توافق که هنوز نهایی نشده است، هر دو کریدور باز خواهند ماند. کریدور جنوبی که از آب‌های سرزمینی عمان عبور می‌کند، امکان کشتیرانی آزاد را مطابق شرایط پیش از جنگ فراهم خواهد کرد.
-کشتی‌هایی که از کریدور شمالی، در آب‌های سرزمینی ایران، عبور می‌کنند، باید از ایران مجوز قبلی دریافت کنند؛ با این حال، طبق این توافق هیچ عوارضی از آن‌ها دریافت نخواهد شد.
-CNN
-علی قلهکی
-:
-قرار بود سفرِ عراقچی به عمان منجر به صدور بیانیه مشترک درباره مسیرِ شمال و جنوبِ تنگه هرمز گردد و در ادامه نیز «قالیباف» و «ونس» به مذاکره اضافه شوند که با بازگشت عراقچی، گمانه‌زنی‌ها درباره به بُن‌بست رسیدن دیپلماسی در مورد «بند ۵ تفاهم‌نامه»، بیش از همیشه تقویت شده است.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76938)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 15:17:16
-
-<img src="https://cdn1.telesco.pe/file/ScYm5r_GqrANkZkctaZc9F5dxGK3g_VD2Jh0_E29G_UBW-DloL_E5x3iXoVywnJnui4kePwETkuUUg9_4ZocNzfGTlkrzz7QTebbO9ZN5MGHo8WCisrsGdgaxBCxfuhlHEcKu24yhX8mYiP9hdFRE0DkLFqS0PV3hBWQomWzlLfdxlP-GxVjJ-COg3U6sjQsFbxVhdstZwxBGR37GCATewRMC7Lxeht8LKjRB0uhfQnMtKH_vxoqQ6uA2flEWq97ooLxsum4J49AYh2e8I4PzuXrH5k9g6UpQQYEaJUjviy2S6HZRmGBhU-p8akg2NFd9Jra0s2bpAjUuIRp3EWAqQ.jpg" width="400"><br>
-
-به گزارش ایسنا، طی روزهای گذشته پیش بینی شده بود گرمای هوا تا هفته منتهی به دوم مردادماه با میانگین دمای بالاتر از ۳۹.۷ درجه تداوم خواهد داشت، از این رو تمامی سناریوهای بهره‌برداری شبکه بر مبنای نیاز مصرف ۷۵ هزار و ۵۰۰ مگاوات طراحی شده و مرکز ملی راهبری شبکه برق کشور و واحدهای عملیاتی صنعت برق در آماده‌باش کامل قرار دارند با این وجود بنا به گفته مسوولان شرکت توانیر  هیچ محدودیتی در تامین برق بخش خانگی اعمال نخواهد شد.
-اما امروز  ۲۰ تیرماه برخی کاربران ایسنا [و بسیاری از دنبال‌کنندگان اینجا] طی تماسی عنوان کردند که در برخی مناطق  همچون محدوده ولیعصر، مطهری و قائم‌مقام فراهانی [و مناطقی دیگر و شهرهایی دیگر] با قطعی برق چهار ساعته مواجه شدند و با وجود پیگیری‌های ایسنا از شرکت توزیع نیروی برق تهران بزرگ تاکنون علت این خاموشی‌ها اعلام نشده است.
-به گفته مشترکان همزمان، حجم بالای تماس‌های شهروندان با سامانه فوریت‌های برق ۱۲۱ موجب شده زمان انتظار برای ارتباط با اپراتور در برخی موارد به حدود نیم ساعت برسد.
-isna.ir
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76937)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 15:17:16
-
-<img src="https://cdn1.telesco.pe/file/N2Rdcf-rKPWAhBVZEzAHOh2kTe5WugPDlUp7tylJN6nPRezKqbd_7IuEdtrCHN88MFcXHVNr-rOfjSlUeDcZSeZVV93ZdCLg8FvdD_aRIdycnr_kKUojgKTz8HrhGhQFE49n3Nft0lhECZd_OQR3BnA_Xqi8os5-kylxA0Hx1jAXqvkeUUv-v5fAD7REkwX2Ap3hmQ5Tv8Q7fXgKoeXYcgaYC_NfVQACzRgkgAHhEpQpnNbKcx6dWpUYcv5Uen-X1G2sBrufRIqJf9Gdntig44FGAyQjygdGEmvnNZg0eD9WpHHDazIr2tulDUjmHdO585ehID6os96oaBCjsIsrCA.jpg" width="400"><br>
-
-روابط عمومی سپاه امام رضا اعلام کرد دو نیروی بسیجی به نام‌های «سید سجاد علوی» و «مهدی هنرمند» در حوالی میدان سرافرازان مشهد هدف تیراندازی قرار گرفتند و کشته شدند.
-بر اساس اطلاعیه سپاه، این دو بسیجی در زمان وقوع حادثه در حال گشت‌زنی در محدوده بلوار سرافرازان، در فاصله حدود ۱۵ کیلومتری حرم امام رضا، بودند. این حادثه همزمان با برگزاری مراسم تشییع و تدفین علی خامنه‌ای در مشهد رخ داد.
-سپاه امام رضا اعلام کرده است که این نیروها در چارچوب مأموریت‌های تأمین امنیت مراسم تشییع و خاکسپاری علی خامنه‌ای در منطقه حضور داشتند.
-در این حادثه همچنین یک عابر پیاده مجروح شد و به بیمارستان انتقال یافت.
-اعلام کشته شدن این دو بسیجی در حالی صورت می‌گیرد که امیرالله شمقدری، معاون امنیتی [دروغگوی] استانداری خراسان رضوی، جمعه ۱۹ تیرماه
-گفته بود
-تیراندازی در بلوار سرافرازان مشهد «اقدامی تروریستی» نبوده و ریشه در یک «درگیری شخصی» داشته است.
-خبر این درگیری مسلحانه همزمان با تدفین علی خامنه‌ای در شامگاه ۱۹ تیر منتشر شده بود. آن‌زمان اما جزئيات آن منتشر نشده بود. اگرچه ساعتی پس از این درگیری سازمان هواپیمایی کشوری از اجرای «مجموعه‌ای از تمهیدات ویژه» در مشهد خبر داده بود. همچنین گزارش‌ها حاکی از آن است که برای ساعاتی، مسیرهای خروجی شهر مشهد بسته شد و تدابیر امنیتی در این شهر به‌طور چشمگیری افزایش یافت.
-این حادثه در شرایطی رخ داد که مشهد میزبان آخرین مرحله از مراسم تشییع و خاکسپاری علی خامنه‌ای بود و هزاران نفر برای شرکت در این مراسم به این شهر سفر کرده و امنیت شهر در بالاترین سطح خود بود.
-@
-VahidHeadline
-شخص همون معاونی که اون طور صریح دروغ گفته بود امروز آمار هم اعلام کرده درباره تشییع‌کنندکان مشهد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76936)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 15:17:16
-
-<img src="https://cdn1.telesco.pe/file/VH0QraIrCx0vtibOkmrkRQ-G8tcdwhR_UhgzHJIDSM5d-wnLB9dN0VdQZtMoYUnhNNXcTU7YvHgf-Jx1jnB3xfl3DfYPyXBAqX4QoFK1vv_WshMeP9DfWI6b_ytQZ2guPT-OWSeRLaxlYtvvyBwxdYiGtq1BgbwbYXU_PBNRmPKXRbc1fLG2i3lOfX2VTKfzqQFWDyUyZkFV3g3Uo7JXSJfIwSlHVZNmzJBgGCUFQSgufezMSuWjN14WcAHL7blNv_entzyk6h1oAoQTWkg69Bf__U2obDblaB7U8sBEYHkwEhC8iLaWrWNEi3d-DBfj3tJITprDyozkvOk8byHQag.jpg" width="400"><br>
-
-مجتبی خامنه‌ای، رهبر جمهوری اسلامی، در پیام مکتوبی منسوب به او که روز شنبه ۲۰ تیرماه منتشر شد اما تاریخ آن مربوط به دو روز پیش است، اعلام کرد انتقام خون پدرش علی خامنه‌ای «به‌طور حتمی باید صورت بگیرد».
-خامنه‌ای در این پیام همچنین به «قاتلین» پدرش هشدار داد که «این جنایتکاران که فهرستی از صدر تا ذیل‌شان موجود است، آرزوی مرگ آرام و در بستر را با خود به گور خواهند برد».
-او در عین حال تأکید کرد که انتقام «متوقف بر وجود شخص من یا سایر مسئولان نیست. ما باشیم یا نباشیم، این مطلب محقق خواهد شد و به‌زودی آحادِ آزادگان در سراسر دنیا هر یک بخشی از این مأموریت الهی را انجام خواهند داد».
-مجتبی خامنه‌ای در این پیام نامی از کسی نبرد، بخش‌های دیگر پیام خود را نیز به تشکر از تشییع‌کنندگان رهبر کشته‌شدهٔ جمهوری اسلامی اختصاص داد و به درگیری‌های اخیر ایران و آمریکا بر سر آتش‌بس، تفاهم‌نامه و تنگه هرمز نیز هیچ اشاره‌ای نکرد.
-دونالد ترامپ، رئیس‌جمهور آمریکا، بامداد شنبه نوشت در صورت هرگونه اقدام یا تلاش برای ترور او، «هزار موشک آمادهٔ شلیک» به سوی ایران هدف‌گیری شده و ارتش آمریکا برای یک دورهٔ یک‌ساله، با امکان تمدید، آماده است «تمام مناطق ایران را به‌طور کامل نابود کند».
-پیام عمومی مکتوب قبلی منسوب به مجتبی خامنه‌ای ۱۱ روز پیش به‌مناسبت هفتهٔ قوه قضاییه منتشر شده بود.
-مجتبی خامنه‌ای در عین حال غایب بزرگ مراسم تشییع علی خامنه‌ای بود که بیش از چهار ماه پس از کشته‌ شدنش در اولین موج از حملات آمریکا و اسرائیل طی چندین روز با سازماندهی حکومت برگزار شد و نهایتاً ۱۸ تیرماه در مشهد به پایان رسید.
-در جریان تشییع جنازهٔ یک‌هفته‌ای علی خامنه‌ای، بسیاری از شرکت‌کنندگان در این مراسم خواستار «خون‌خواهی» و «عدم سازش» شدند و گروهی نیز پارچه‌نوشتهٔ بسیار بزرگی با مضمون درخواست برای «قتل دونالد ترامپ» همراه داشتند.
-مجتبی خامنه‌ای بود که کمتر از ۱۰ روز پس از کشته شدن پدرش در نهم اسفند ۱۴۰۴ به‌عنوان رهبر تازه جمهوری اسلامی معرفی شد، در هیچ بخشی از این مراسم حضور نداشت. در این مدت طولانی هیچ فایلی صوتی یا ویدئویی نیز از او که نشان دهد در چه وضعیتی است، منتشر نشده است.
-این در حالی است که در مراسم تشییع جنازه علی خامنه‌ای تقریباً تمامی مقام‌های ارشد جمهوری اسلامی حضور داشتند، از سران سه قوه تا فرماندهان سپاه پاسداران و حتی سه پسر دیگر علی خامنه‌ای، مصطفی و مسعود و میثم، که از ۹ اسفندماه پارسال یعنی آغاز جنگ تاکنون خبری از آن‌ها نبود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76935)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-12 15:17:16
-
-<img src="https://cdn4.telesco.pe/file/SIeKTmwcwzApqQdPH4lWVuhgK6GGhmBr3S4pMIaGrG8gmCoIPeQwK-7gUnIg6KT4gIAGMWfk3-JUYVvm41j71N5uA5umjCqK8ae5sRdJhGjUe1kBC1xtxJof9q9DSZj-y-Dw3V8rnH61N74qStfUsF_2D1vqZ_QCC78a8rXECaQVr0ZhK3jLChCZK9TseirkqLQb42xqn4kFMC5yjOOVHL_96DOltaR2gOc4ji-Skp2JaZpvdVHcIWsNrs7xGoVsp3gxsV8CAN8v0JTaqcadptZwwTIwmaDjMWbl4OiJF6KpzH9EplyDScBbA0gKmcrktWBiR4YrLsznDtc7ZqUi0A.jpg" width="400"><br>
-
-شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران، از صدور حکم حبس برای یک فعال صنفی معلمان خبر داد.
-این شورا روز شنبه ۲۰ تیر اعلام کرد شعبه ۱۰۳ دادگاه کیفری ممسنی شکرالله احمدی، بازرس این شورا و عضو هیئت‌مدیره انجمن صنفی معلمان فارس، را در مجموع به سه سال و هفت ماه و ۱۵ روز حبس محکوم کرده است.
-آقای احمدی به «اجتماع و تبانی برای ارتکاب جرم علیه امنیت داخلی و خارجی» و «فعالیت تبلیغی علیه نظام جمهوری اسلامی» محکوم شده است. او ۲۰ دی ۱۴۰۴ در خانه‌اش بازداشت و چند روز بعد آزاد شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76934)
 
 ---
 
