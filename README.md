@@ -3,14 +3,115 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
+
+<img src="https://cdn1.telesco.pe/file/pJ7ATvIoOHKQXR5o1JusBvJd6BQhfUiuvCyesg3sd35rGD--k9ZkJckEMAyt0UAXtu2ycdmTFoVDoOoUTkGJuWborig9iZtYIH6Go44TwqMhaBZYiTnBQ99jTtXzEsHfirHM1P8gkybxhKvJpONk5FfMpmF7PWLlnxxv1gKZNpyckPdIkVqzymBLTvWtRxaVx5eGoztwD02FoZcUgoa7JiklMlFCjPYBcIvtHnUZPd1LJ-eXLIkqhQl-HZuFLM45PHwNacSVzKmQx95Ht5o0ZoAcvzuna7CgOU1mSExElgUPF1SqXiJu4Izh5JbcItvK0NY6LWbTzYzSVUtKHLSe5g.jpg" width="400"><br>
+
+نیویورک‌تایمز گزارش داد دونالد ترامپ، رییس‌جمهوری آمریکا، به‌طور رسمی کنگره را در جریان ازسرگیری درگیری‌ها با ایران قرار داده است.
+بر اساس نامه‌ای که جمعه برای رهبران کنگره ارسال شده و نیویورک‌تایمز به آن دست یافته، ترامپ نوشته است نیروهای آمریکایی ۱۶ تیر «حملات دفاعی علیه اهدافی در داخل ایران» انجام داده‌اند.
+به نوشته نیویورک‌تایمز، این نامه بار دیگر اختلاف میان کاخ سفید و کنگره بر سر اختیار رییس‌جمهوری برای ادامه جنگ با جمهوری اسلامی بدون مجوز کنگره را تشدید کرده است.
+هر دو مجلس پیش‌تر به طرحی رای داده بودند که ترامپ را ملزم می‌کرد جنگ را پایان دهد یا برای ادامه آن از کنگره مجوز بگیرد، اما کاخ سفید همچنان تاکید دارد که ترامپ در چارچوب اختیارات قانون اساسی خود به‌عنوان فرمانده کل قوا عمل می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77011)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 22:35:58
+
+
+
+پیام‌های دریافتی:
+ساعت 10:09 دقیقه حدودا سه انفجار در کنارک
+سلام کنارک دارن میزنن
+سه تا پشت سر هم زدن
+۴ تا زد همین الان کنارک 12: 10
+ایرنا:
+🔹
+خبرنگار ایرنا در استان هرمزگان از شنیده شدن صدای چهار انفجار در شرق بندرعباس خبر داد.
+تسنیم:
+منابع محلی از شنیده شدن صدای چند انفجار از بندرعباس خبر می‌دهند. این در حالی است که به گفته منابع محلی حملات موشکی و هوایی به مناطقی از لارک و کنارک هدف حمله دشمن بوده است به طوری که گزارش از ۴ انفجار سنگین در کنارک حکایت دارد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77010)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 22:35:58
+
+
+
+پست سنتکام: نیروهای آمریکایی محاصره دریایی ایران را از سر می‌گیرند
+ترجمه ماشین:
+تامپا، فلوریدا — بنا به دستور فرمانده کل قوا، نیروهای فرماندهی مرکزی ایالات متحده (سنتکام) از ساعت ۴ بعدازظهر روز ۱۴ ژوئیه به وقت شرق آمریکا [ساعت ۲۳:۳۰ فردا سه‌شنبه به وقت تهران]، محاصره تردد دریایی ورودی به بنادر ایران و خروجی از آن‌ها را از سر خواهند گرفت.
+نیروهای سنتکام این محاصره را علیه شناورهایی که به مقصد بنادر و مناطق ساحلی ایران یا از مبدأ آن‌ها در حرکت‌اند، اعمال خواهند کرد. ارتش ایالات متحده همچنان از جریان تردد در آب‌های منطقه برای تمام شناورهایی که محاصره را نقض نمی‌کنند، پشتیبانی خواهد کرد.
+ازسرگیری محاصره ایران از سوی آمریکا پس از اجرای اولیه آن از ۱۳ آوریل تا ۱۸ ژوئن صورت می‌گیرد. نیروهای سنتکام در این دوره دوماهه، مسیر بیش از ۱۴۰ شناورِ تابع مقررات را تغییر دادند، ۹ کشتیِ متخلف را از کار انداختند و به بیش از ۵۰ کشتی تجاری حامل کمک‌های بشردوستانه اجازه دادند از محدوده محاصره عبور کنند.
+به همه دریانوردان توصیه می‌شود هنگام فعالیت در دریای عمان و مسیرهای ورودی تنگه هرمز، پیام‌های «اطلاعیه به دریانوردان» را دنبال کنند و از طریق کانال ۱۶ ارتباط پل‌به‌پل با نیروهای دریایی ایالات متحده تماس بگیرند.
+اطلاعات تکمیلی از طریق یک اطلاعیه رسمی در اختیار دریانوردان تجاری قرار خواهد گرفت.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77009)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 22:35:58
+
+<img src="https://cdn4.telesco.pe/file/qb1Mwq682EdcWq0GSrlYV8AEpsHdhlSHathS21RWbskvqFVIYEWGAVVVYjy7Lz4TN_uGcvCsm0Im5In0GvmQ8eFU6xvE42pXpimFPlM8XrXSGd9q34Jtw9viLdZq_caPYw6YdTXYJh2E95QBjixaszEEyiIcgUxndibTAjejTkO7ZzUECGQ1cofaHh4UndYlelkBnJV2WAh7KScR4fnx3aDCYiZUV6spGH3KFaVwhPL3G_J0UX2nT2zgxef5qLttHZ18nXLCAzoHoXp7_RSdkC880v86VwyFS-W33DyuuUPl4R298jTsoZDMBwiPWz5pasj50wDueJx5hpS_WV8UTw.jpg" width="400"><br>
+
+روز دوشنبه ۲۲ تیرماه و دقایقی پس از اعلام تعطیلی سراسری دو روزه در هرمزگان، استاندارای‌های خوزستان و بوشهر نیز از تعطیلی و محدودیت ساعات کاری این دو استان جنوبی در روزهای سه‌شنبه و چهارشنبه ۲۳ و ۲۴ تیرماه خبر دادند.
+خبرگزاری‌های دولتی ایران، دلیل این تعطیلی را «افزایش بی‌سابقه دمای هوا و به منظور حفظ پایداری شبکه برق کشور» اعلام کرده‌اند.
+بر اساس اطلاعیه استانداری بوشهر، تمامی ادارات و دستگاه‌های اجرایی این استان در روز چهارشنبه به طور کامل تعطیل خواهند بود و ساعت کاری آن‌ها در روز سه‌شنبه نیز تا ساعت ۱۱ کاهش یافته است.
+هم‌زمان، استانداری خوزستان نیز اعلام کرد با توجه به شدت گرما، ادارات این استان در روز چهارشنبه به صورت دورکار فعالیت خواهند کرد و روز سه‌شنبه نیز همانند استان همسایه، تا ساعت ۱۱ دایر خواهند بود.
+تعطیلی در استان‌های جنوبی در حالی اعلام می‌شود که در پی افزایش تنش‌ها در تنگه هرمز، ارتش آمریکا در پنج روز گذشته حملات گسترده‌ای را به شهرهای مختلف به این استان‌ها انجام داده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77008)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 22:35:58
+
+<img src="https://cdn1.telesco.pe/file/be__PIz3ekLLuaUlb-K2xIckxgx5ghgghycFgYxPBsi2lw3CQrvo5x7KR_m8zctlnBgqkI-RPmaZrs88HS7fFPx8gSbncvzeQsxnRQU57u6vMK9GZY5gvqUZ3dS1IkN0pylhdrRnCz_vsN9xZaTsWYqgYNeoov4LxgpYFqpRo2GbMUg-Tw50jqBAtiVBxgGXhuX_r5eYNGb0j4-yDtyb3HbiN0IkXTDHqOkqZxB5ah1JFmRc3L18U-OLLzg2xY6hFw8O042S-hcQd7OqCv-i-8hC6_ENrMYwiDG8WUmizFpT5PLf4Ts6RCrOiJ0X-7SFFGn_hz8HjFTH9w4Cs_tRjg.jpg" width="400"><br>
+
+عباس عراقچی، ترجمه ماشین:
+رئیس‌جمهور آمریکا کاملاً درست می‌گوید. هر کسی که عبور امن و بی‌خطر کشتی‌های تجاری از تنگه هرمز را تأمین می‌کند، باید بابت این خدمت غرامت دریافت کند.
+ایران همیشه «نگهبان» تنگه بوده و تا ابد نیز خواهد ماند.
+البته ۲۰ درصد بیش از حد زیاد است. ما منصف خواهیم بود.
+araghchi
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77006)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 <img src="https://cdn4.telesco.pe/file/RxaGIH3dse4vhJ1b9X92opur9k_VkglPvtz6Fo3Ont949MbL3TQ-602uBEjnAKjHdlfMLXFGGkty_zum88SgtrXx2pYvW2luO-0qdGDislErQfG7U-jSE9eXhtGP5hhWRJYr-rcFb-zQNSXQbpTnrnwioOVvJlWioXJmpaEO_ixmv1r3MDGN6VjOfjwfrFHFnBXBcYmKyiOT-u6U8wRQidsOeugAekY4hdh3vE0FSuWu0057PtWozEA7ccv4nefxTmrmct7sKW6_2jEKKnSDbjCRLu1s71B4RM3jvFYol_x0z09D09EpgoV8hcQlGt4oxI-VQvAZ-GLe65p9UYSk_A.jpg" width="400"><br>
 
-♦️
 محمدرضا پاکروان، معاون استاندار هرمزگان، روز دوشنبه ۲۲ تیرماه، از تعطیلی تمامی دستگاه‌های اجرایی، ادارات، بانک‌ها، مراکز آموزشی و دانشگاه‌های این استان در روزهای سه‌شنبه ۲۳ و چهارشنبه ۲۴ تیرماه خبر داد.
 این مقام استانداری هرمزگان در گفتگو با خبرگزاری مهر اعلام کرد: «این تصمیم با توجه به بررسی‌های کارشناسی، موافقت استاندار و مصوبه کارگروه انرژی استان به دلیل افزایش شدید دمای هوا اتخاذ شده است.»
-به گزارش مهر، مراکز خدمات‌رسان، درمانی، امدادی، امنیتی و انتظامی برای ارائه خدمات دایر خواهند بود و امتحانات نهایی دانش‌آموزان و دانشجویان نیز طبق برنامه قبلی برگزار می‌شود.
+به گزارش مهر، مراکز خدمات‌رسان، درمانی، امدادی، امنیتی و انتظامی برای ارائه خدمات دایر خواهند بود و
+امتحانات نهایی دانش‌آموزان و دانشجویان طبق برنامه قبلی برگزار می‌شود.
 این خبر در حالی منتشر می‌شود که در پی اقزایش تنش‌ها در تنگه هرمز، ارتش آمریکا از بامداد ۱۷ تیرماه حملات گسترده‌ای را به شهرهای مختلف این استان ساحلی انجام داده است.
 @
 VahidOOnLine
@@ -23,7 +124,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 <img src="https://cdn1.telesco.pe/file/U9RS2qF0pOh4GSoKAKMyW_d9-r4dPJXzWyqhBemmZdlpobJ3YQ8pGVxgaVAv18w81WIfXwAwSW-bB1WX8lbcU_0ytsYoMfztprUUv5iEh0yPGDmBDVL2dD1w0jC_lHzp4rDixMVTHHi-ErNRM1HQ21wol-19lNDd4eRSfmFOTMgowsQDa4a8ZuT8I75oTk5P_zybBvU_Ttsfyym2yck03jKOH_bH-kUkE1njwD9io5FNiOTp8gLUZrCDzZmhliQviQZDNAoh7YNYZFp1e23RSEGaQ3UbZ_J9t2PabYz6SEz9Y09l3khRgE0TtX8UWpm0CJ6ZCBPhxjC2VBqn1NHi7Q.jpg" width="400"><br>
 
@@ -41,7 +142,7 @@ SenTomCotton
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 <img src="https://cdn4.telesco.pe/file/Z5ObQLwmV8jY3dHaf9g0VF6TG4SL5pK9Hqn3o8-SLW5rDs8ggmI4mvmiAuZXBSoemtNtkW9g_LKsBZzbUcdjYGk7XU3Dzm9q0fnifpNzeukqqFRFU96fxWnQKQfVO_y29TiWeVOLKpcPpFr6Yhcmi981rAzIYn3Qthpdk-rWinceeVssDF2MOZNxnkgb8CWwPljO8lfJyZyvDzv1wK74G_HP8lOTjg-7AHks4UbZ0H54sreNu8NU_yaZDnPdEasvsVdBAW6QQv9gQgIOi8_18gerfVGmIHqtgJmpy1amDjQ4fi4e3NzNV2kQ0Psb9r0j0zMjkPXawrvaGiS-7KZKAw.jpg" width="400"><br>
 
@@ -61,7 +162,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 <img src="https://cdn1.telesco.pe/file/urgJqQ_Nhbw7TMB4Gn9APT0tnBw88-ZXi2oBoQNLMw7syE_Kg6Iei9_36LCnyQnufKE2fn5CXsOgbC_sB_C_wTNFcf5s8Lw6Tx15a7iK2YtZpBk0a0nCsCxjv5_PvcfNaEREsy4XrM80UzkyOOjKREaxG3NYk0x1IfGvfRrWBaNtB4Cn7c8tH6Oc8g8qsmWYfcdS9ANXohtIuN--txw8rDNrkmQESTjRcEBQPRYV_bWKA2TI-UQEXmz-vg8Ow2LZ_XPmwsEpKwKcSZ1NwbSDC6JcfYsafiJxAkweqtqRcGkOWRWE1w7g9odCZjmQtf1bY_qXumJY7RVva5erVeSIWg.jpg" width="400"><br>
 
@@ -77,6 +178,8 @@ VahidHeadline
 ...
 متن کامل:
 telegra.ph/ahmadinejad-07-13-2
+هم‌زمان گزارش مشابه دیگری از هاآرتص: @
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -86,7 +189,7 @@ telegra.ph/ahmadinejad-07-13-2
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 
 
@@ -103,7 +206,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 <img src="https://cdn1.telesco.pe/file/FQY-7hRXIAQ8E1FJexRb14bBtzJiGczBKFCSf4_rR8x8ef3XI4VUToD6_djQoAlvewpTaK79eVuJAB6MgV5jiaxfo3NuaYRBL6msRd8NdIXWjdYReaJPEeTMdF5jlg5CLnLT2dvE_4RN0yEFPJzKMoXPOYoAuujp86rdfvGJOG4mjqyeGvsavzdEx1JKpydGXqY3oNUWw5UaMelM-f18A04-pCwdrrmNXCU4_l4-6T7dW3t9ig3QepkpfSPHoq0SX3EQUghhxskoL8H7SuhGCpffgD7VV7-WnFE6lCOJblmaVh_qviR-nQL6ZHK3GlWD8okpH_E7_r7cgNMEWlg6rA.jpg" width="400"><br>
 
@@ -124,7 +227,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 
 
@@ -148,7 +251,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 <img src="https://cdn4.telesco.pe/file/Y8qAKqT7mYcrk7Y7tmeFMh7Sd3ASqgQczQN0y1h5FxoK8aJP-qVnDtlkUyizCJ30Rm1WJWUpsCiW3YGWzETlmKWWaZ0t20X044XSu--F4-fkmzBk9EHgCZ_UJ-tuJSl9looNE298GYuPG2eiqgrwYoWbGQu0bi2r8IfdixZBcaRdms0FmZPBE9odCquHdkaLYBU9YuWKXxNs_A1DwoqRlPfgDMphBsiiY1_7_g9JoSiSwHt9LWo91WPjC9iiIz3_Xfkptl0lCmT2RJar0OogRBTNBYHhkI-u-ia5mvwYGTFV3rUjz7UaOTn87ZHfv8tvcjCJoUB2pyHNnqnPcB4heQ.jpg" width="400"><br>
 
@@ -167,7 +270,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 <img src="https://cdn4.telesco.pe/file/u6AWuo4_e5QImAzSWUv3Y6JFkO69jqnm0u4aWqqFwbe2HASmKfW3c9vR2wOGfKKRa55oPeh-UaXzOZB6Mx_jc_1SUDLG26Dt956Zl7hDurdnDlpPdcWZCnxmWzOwbiZn3TTdMyij5orHlFRlNR8fNisNSflStz6nZ1Kkcb9X9K3pv5bxkBIXxu5Y3C76Tt0un3JLPibGglJH8W6lTMDM_k1OpxoMNY76AO4Rr7Q3yN3ucpSYMQjToJhkPktDsy-TmSVzHNXt34lzl8ozP05lWaLFlYeLTYd6w7FQMEEPadqo7BrcM9icLisqdleDZRgDHWjghXxDHkQA6gERYCvVFw.jpg" width="400"><br>
 
@@ -186,7 +289,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 
 
@@ -206,7 +309,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 
 
@@ -237,7 +340,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 
 
@@ -278,7 +381,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 
 
@@ -371,7 +474,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 21:15:54
+###### 🔵 Updated at: 2026-07-13 22:35:58
 
 <img src="https://cdn1.telesco.pe/file/cFDn-0-Q3stux-1hOnLmJ91jSzrvLjXmJGxZ0DcCYiDk-ckHrkt8rf4E2z-J89pBOZpGmAQf5IYm0rxMrULHS3Plaskzrb9esEE70mDCaUCc2vJED0KRBeaXOB8vZAQ0obShloIqioUaGduaudfFgXmclq-4IQa7_fNLNcpZZFSqV7BHkJtS8WtgT3qZnhlKGXT4We-Wa-d9cOV-lDgVxjyffLcGSHW9HOITFS06WOBB8Py5dX8PCJS4TuuORauNLsilX_WPRfGm1bNbRh2houn3ziuQISOHD3R8GWwZ7qpKC3pbvK4GqFrDv36JCCqkuGRdCHF1ZfvxsWu33cicug.jpg" width="400"><br>
 
@@ -396,51 +499,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76988)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 21:15:54
-
-<img src="https://cdn1.telesco.pe/file/FU9wQNlNIuu2BgyIGTViqCz9Dwaytaa_kup8Nh3jAIf47xapwEX6giKgxVnp9aaWDFtzYtqbSIt3clDCZI5Z7xcCSL59lppf45Eb0x_-DylBMuqKUjJy1gM0q5UGMT3UJSr5gTyHuXAWBMu_S3oNhCogWXxPY3CacmCXH5Dpdo8BPV6H-Q_4u5w6HXu2bscfNRpB-o_XgFp9Uu4iIA8hotL9gkMuMwtDieqYAy1GsVk3iUWjmJW321nhMC6-e0mVl58Zgvn351mbq-q55oqI71j1hSzRnmMGlfytmsl7vjIJpO1GaiiCD4UUMjKJs7IyZ4JMY3GvfxR1FzAwvVYAGg.jpg" width="400"><br>
-
-دونالد ترامپ در
-تروث سوشال
-عکسی از لیندزی گراهام منتشر کرده است با کلاه
-Make Iran Great Again
-سناتوری گراهام در این تصویر کلاهی بر سر دارد که روی آن نوشته شده است «ایران را دوباره با عظمت کن» و عکسی بزرگ از صفحه دونالد ترامپ در دانشنامه ویکی‌پدیا را بدست گرفته است.
-دونالد ترامپ در این پیام غمگینی عمیق خود را از درگذشت سناتور لیندزی گراهام ابراز کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76987)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 21:15:54
-
-<img src="https://cdn1.telesco.pe/file/ce9a9iPUoJISI1qVcCX0B8oUztAKPJvhINeznDVzvS9AE8OKs3JJld2K-K69J9DHJs2ss8b2w7q_So1ApL4KS-TQ_XumoJfH8TdSKSp8kqeDl7bT8HRAe8kd2cSGf7nZxUMJa4BBbKDHNRa9sOIHsJto6b8SoeyP7NbpY5OCP8N8aHMAbvBdbbF1j5XUpgQzI5cRumCZTcgqH-TiWQt4P5o429iADeEcCd6JCNyN114qXLp3QzQtMI3MO1OKwsoYEfREswQaDWCluhDSoaL6E6-CavWPfse8EKTmYq7DbRTX0wCAqMl-_EQCKRqkD10f_jvCjHueGQ9O0czzFpZ65A.jpg" width="400"><br>
-
-پیام‌های دریافتی:
-سلام وحید جان دوباره ساعت۴:۲۸ دوتا موشک از خمین زدن
-شلیک دو موشک از خمین
-درود ساعت 29 4  الیگودرز دو شلیک موشک
-خمین الان دوتا موشک
-وحید از سمت خمین و الیگودرز دوتا شلیک کردن ۴:۳۰
-همین الان صدای انفجارزیادامد
-من حوالی شهراراکم سمت خمین بود
-خمین ساعت ۴و۲۷ دقیقه موشک پرتاب شد
-+
-از زنجان و ازنا هم پیام‌هایی دریافت کردم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76985)
 
 ---
 
