@@ -51,14 +51,24 @@ for msg in messages[-20:][::-1]:
     link_tag = msg.find("a", class_="tgme_widget_message_date")
 
     post_link = ""
+    post_time = ""
     if link_tag:
         post_link = link_tag["href"]
+        time_tag = link_tag.find("time")
+        if time_tag and time_tag.has_attr("datetime"):
+            utc_dt = datetime.fromisoformat(time_tag["datetime"])
+            tehran_dt = utc_dt.astimezone(ZoneInfo("Asia/Tehran"))
+            post_time = tehran_dt.strftime("%Y-%m-%d %H:%M:%S")
 
     iran_time = datetime.now(ZoneInfo("Asia/Tehran"))
     formatted = iran_time.strftime("%Y-%m-%d %H:%M:%S")
+
+
+
+    
     
     post_html = f"""
-###### 🔵 Updated at: {formatted}
+###### 🔵 Updated at: {formatted}, Post time: {post_time}
 
 {image_html}
 
