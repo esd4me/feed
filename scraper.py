@@ -6,7 +6,8 @@ import re
 
 CHANNEL = "VahidOnline"
 
-url = f"https://t.me/s/{CHANNEL}?before=0"
+#url = f"https://t.me/s/{CHANNEL}?before=0"
+url = f"https://telegram.me/s/{CHANNEL}?before=0"
 
 headers = {
     "User-Agent": "Mozilla/5.0"
