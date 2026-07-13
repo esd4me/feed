@@ -3,7 +3,88 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-13 14:15:25
+###### 🔵 Updated at: 2026-07-13 16:39:33
+
+<img src="https://cdn4.telesco.pe/file/u6AWuo4_e5QImAzSWUv3Y6JFkO69jqnm0u4aWqqFwbe2HASmKfW3c9vR2wOGfKKRa55oPeh-UaXzOZB6Mx_jc_1SUDLG26Dt956Zl7hDurdnDlpPdcWZCnxmWzOwbiZn3TTdMyij5orHlFRlNR8fNisNSflStz6nZ1Kkcb9X9K3pv5bxkBIXxu5Y3C76Tt0un3JLPibGglJH8W6lTMDM_k1OpxoMNY76AO4Rr7Q3yN3ucpSYMQjToJhkPktDsy-TmSVzHNXt34lzl8ozP05lWaLFlYeLTYd6w7FQMEEPadqo7BrcM9icLisqdleDZRgDHWjghXxDHkQA6gERYCvVFw.jpg" width="400"><br>
+
+دولت بریتانیا سپاه پاسداران انقلاب اسلامی را در فهرست سازمان‌های تروریستی قرار داد که بر اساس آن، عضویت در این نهاد، شرکت در نشست‌های آن و حمل نماد آن در انظار عمومی جرم کیفری خواهد بود.
+سپاه پاسداران پیش‌تر به‌طور کامل مشمول تحریم‌های بریتانیا بود، اما دولت‌های مختلف در بریتانیا از اعلام آن به‌عنوان سازمان تروریستی خودداری کرده بودند.
+لندن سال‌ها زیر فشار پارلمان و نهادهای امنیتی برای این اقدام بود. سازمان اطلاعات داخلی بریتانیا، ام‌آی‌فایو، اعلام کرده بود بیش از ۲۰ توطئه بالقوه مرگبار مرتبط با جمهوری اسلامی را خنثی کرده است.
+دولت در ژانویه گفته بود سازوکار موجود برای ممنوع‌کردن نهاد وابسته به یک دولت خارجی مناسب نیست و در حال تدوین اختیارات قانونی تازه‌ای برای این کار بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76997)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 16:39:33
+
+<img src="https://cdn1.telesco.pe/file/uEqC5-6mw9jPisw501WwuW4BpL1GEVtESoIKEMUt5TzcsW_HWVG8mQ4HjxiqZRVvLpQOgSHPalO5lbj5qtoSpqlqCipqk19BonP2EeFT6ugRxcZGaNv4906Ch7brOjsQUFmGp_drm-Wunwv_rSO8KR58N0J6-ghjAnyzCKQT01kpZhXerDbMP8l_NhiVg_-1sywFgHHkaxpLNeMVGPyZjPpz3vaijifCjIYP-MqKRRb64rvgRhXAJVCYzszdUMAe3cb7RRrr4d_hBQelgqeGtVHAWkRwZqkSe-b_u-s2xofyquQiqVC1RvUZSouW91MwoyQ6ZISBtm53uqra-CKpJg.jpg" width="400"><br>
+
+شبکه المسیره، وابسته به حوثی‌های یمن، بعدازظهر دوشنبه ۲۲ تیر نیز گزارش داد عربستان سعودی فرودگاه بین‌المللی صنعا را با چند حمله هوایی هدف قرار داده است.
+هم‌زمان با این گزارش، خبرگزاری رویترز نیز از چند حمله هوایی در نزدیکی فرودگاه بین‌المللی صنعا خبر داد.
+برخی رسانه‌ها و حساب‌های یمنی، حملات به فرودگاه صنعا را با تنش بر سر ورود یک هواپیمای ایرانی به این فرودگاه مرتبط دانستند، اما این خبر مستقلا از سوی رسانه‌های وابسته به جمهوری اسلامی تایید نشده است.
+@
+VahidOOnLine
+چند رسانه ایرانی نزدیک به سپاه پاسداران، ازجمله صابرین نیوز، می‌گویند این حمله همزمان با نزدیک شدن یک هواپیمای «مسافربری ماهان» به فرودگاه صنعا انجام شده است.
+@
+VahidOOnLine
+🔄
+وزارت دفاع یمن اعلام کرد که حمله به باند فرودگاه بین‌المللی صنعا برای جلوگیری از فرود هواپیمای ایرانی انجام شده است.
+وزارت دفاع یمن اعلام کرد که نیروهای مسلح این کشور باند فرودگاه صنعا را هدف قرار دادند تا از فرود یک هواپیمای ایرانی جلوگیری کنند.
+صنعا در کنترل حوثی‌ها است و دولت در شهر عدن در جنوب این کشور فعالیت می‌کند.
+@
+VahidOOnLine
+خبرگزاری فارس، وابسته به سپاه پاسداران، بعدازظهر دوشنبه ۲۲ تیر گزارش داد یک هواپیمای ایرانی که به مقصد صنعا در حرکت بود، پس از حمله عربستان سعودی به فرودگاه بین‌المللی این شهر، مسیر خود را تغییر داد و در فرودگاه الحدیده در غرب یمن فرود آمد.
+روزنامه هم‌میهن نیز نوشت این هواپیما پس از تغییر مسیر به سوی شهر ساحلی الحدیده، سامانه ردیابی خود را خاموش کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76996)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 16:39:33
+
+
+
+پیام‌های دریافتی یک ساعت و نیم پیش:
+‌
+درود بندرعباس ساعت ۱۲:۳۱ دقیقه انفجار شد
+بندرعباس انفجار ۱۲:۳۱
+بندرعباس دو انفجار شدید
+پایگاه هوایی 12:31
+سلام بندرعباس ۱۲:۳۰ صدا انفجار اومد پایگاه هوایی فکر کنم زدن
+سلام دارن بندرعباسو میزنن خداحافظ
+آبادان بریم صدا اومد 13:19
+صداش هم با لرزش بود ینی احتمالا درست شنیدم
+صدای انفجار اومد تو ابادان
+کجا بود و نمیدونم
+هرچی بود اطراف پالایشگاه بود احتمالا باز پدافند الفی یا جزیره مینو
+سلام وحید جان، صدای انفجار در آبادان
+سه بار شنیدیم
+ساعت ۱۳:۲۷
+بندرعباس
+ساعت ۱۲:۳۰ ظهر امروز دو تا انفجار بزرگ تو پایگاه هوایی رخ داد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76995)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 16:39:33
 
 
 
@@ -44,7 +125,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 14:15:25
+###### 🔵 Updated at: 2026-07-13 16:39:33
 
 
 
@@ -137,7 +218,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 14:15:25
+###### 🔵 Updated at: 2026-07-13 16:39:33
 
 <img src="https://cdn1.telesco.pe/file/cFDn-0-Q3stux-1hOnLmJ91jSzrvLjXmJGxZ0DcCYiDk-ckHrkt8rf4E2z-J89pBOZpGmAQf5IYm0rxMrULHS3Plaskzrb9esEE70mDCaUCc2vJED0KRBeaXOB8vZAQ0obShloIqioUaGduaudfFgXmclq-4IQa7_fNLNcpZZFSqV7BHkJtS8WtgT3qZnhlKGXT4We-Wa-d9cOV-lDgVxjyffLcGSHW9HOITFS06WOBB8Py5dX8PCJS4TuuORauNLsilX_WPRfGm1bNbRh2houn3ziuQISOHD3R8GWwZ7qpKC3pbvK4GqFrDv36JCCqkuGRdCHF1ZfvxsWu33cicug.jpg" width="400"><br>
 
@@ -167,7 +248,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 14:15:25
+###### 🔵 Updated at: 2026-07-13 16:39:33
 
 <img src="https://cdn1.telesco.pe/file/FU9wQNlNIuu2BgyIGTViqCz9Dwaytaa_kup8Nh3jAIf47xapwEX6giKgxVnp9aaWDFtzYtqbSIt3clDCZI5Z7xcCSL59lppf45Eb0x_-DylBMuqKUjJy1gM0q5UGMT3UJSr5gTyHuXAWBMu_S3oNhCogWXxPY3CacmCXH5Dpdo8BPV6H-Q_4u5w6HXu2bscfNRpB-o_XgFp9Uu4iIA8hotL9gkMuMwtDieqYAy1GsVk3iUWjmJW321nhMC6-e0mVl58Zgvn351mbq-q55oqI71j1hSzRnmMGlfytmsl7vjIJpO1GaiiCD4UUMjKJs7IyZ4JMY3GvfxR1FzAwvVYAGg.jpg" width="400"><br>
 
@@ -188,7 +269,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 14:15:25
+###### 🔵 Updated at: 2026-07-13 16:39:33
 
 <img src="https://cdn1.telesco.pe/file/ce9a9iPUoJISI1qVcCX0B8oUztAKPJvhINeznDVzvS9AE8OKs3JJld2K-K69J9DHJs2ss8b2w7q_So1ApL4KS-TQ_XumoJfH8TdSKSp8kqeDl7bT8HRAe8kd2cSGf7nZxUMJa4BBbKDHNRa9sOIHsJto6b8SoeyP7NbpY5OCP8N8aHMAbvBdbbF1j5XUpgQzI5cRumCZTcgqH-TiWQt4P5o429iADeEcCd6JCNyN114qXLp3QzQtMI3MO1OKwsoYEfREswQaDWCluhDSoaL6E6-CavWPfse8EKTmYq7DbRTX0wCAqMl-_EQCKRqkD10f_jvCjHueGQ9O0czzFpZ65A.jpg" width="400"><br>
 
@@ -212,7 +293,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 14:15:25
+###### 🔵 Updated at: 2026-07-13 16:39:33
 
 <img src="https://cdn1.telesco.pe/file/VSeSNEwm9ExvmwlIXIrL50mYGmBT0TDQHnUpWB4ry56cksBj-GfbGviu0VJKL18S9TPw5nJ5vIJv7BI7x5PVoatZnXlPTHBrC8Ko7Vr7jVBO_HG4IyTfV0sO-wU0Ie8Oc94BHFO_ZfTUpsvk9SXTtAHRKODob6-x1bhZqyeda7s33JA2YKxtgQcK5-j5h3eppixRXfmXWTXg6xCCGEIS28yRcqaXNYrkq9pHKK7BaLX99Qj6gCnMPKnfMpHnpKeq2MCCPjn2EZOIN-TNgyX8BWSL3jPP93gwJxH2CxPog06dmMbwFvfPEu8JB6ou6BknjQ449L_QopkoMCXMmX-keQ.jpg" width="400"><br>
 
@@ -230,7 +311,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-13 14:15:25
+###### 🔵 Updated at: 2026-07-13 16:39:33
 
 
 
@@ -327,7 +408,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-13 14:15:25
+###### 🔵 Updated at: 2026-07-13 16:39:33
 
 <img src="https://cdn1.telesco.pe/file/H6ImycqV23u-4MXMf-ZttpJnUcP-PO9Z2vwMjeWFWZoiCAMvM5cvf5ncepidRNR7R9aBMvXDk8Ai023uB4F1ZJiORH6ulx6P7n3SEKdlIVZb0OnAd5R0-7JylFdlEkF_Pk6gdcIdXJy1z6Jj4r83tf6raVTxJbXFdOmXi8VdZV_FISSBuX28tGZtCzN5HEqQnYoTlq7twJFJeadm-gLZtQxPQpBBIRNAxd8mMHl_ruzzAuTSKFAlsBIcfZi8rX5Q8eLT6N1d5mGcOe7IOKhlVzgUiXYvViF2CqsNSZiTEJuxwF-0hUnAcG-iJOiQDnSoJ7y_Tr_a8d5ggia0MDauxg.jpg" width="400"><br>
 
@@ -339,92 +420,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76977)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 14:15:25
-
-<img src="https://cdn1.telesco.pe/file/WRFjvEWNF5urDLBZdZAltarhyWf4gjKemV4x36qUogKkBYfh6LNzXpveWweUPRzLMcOjwfT4mLVxqWoFyJJy69xU5R6MkxsG7jun7LNpBycp9211vr-IKP50KlD2bAjjwsGy0dYX8f9XxJ0O37wy_0E3onrkmEJ0f_USmi5pn7JNBus82tXRNv6YTMF9d84FaP3JsLqy4ebU2bNfG-sLtVGWOLSNEUVsjOJM9d7AHcxnEeiXhdBNaBk8dqdOCM0dgdcU4bt4y7QyP8frWg3aUruh-gVf8ppwa6CV5Mxv8pYIi7s-tr7WSH6JbI3Hlj6KsLfyQIPoj14_q7CEHb6-IA.jpg" width="400"><br>
-
-پست اکانت سنتکام:
-ساعت ۵ عصر امروز به وقت شرق آمریکا، نیروهای فرماندهی مرکزی ایالات متحده حملات بیشتری را علیه ایران آغاز کردند تا به تضعیف توانایی این کشور برای حمله به دریانوردان غیرنظامی و کشتی‌های تجاری که آزادانه از تنگه هرمز عبور می‌کنند، ادامه دهند.
-فرمانده کل قوا دستور این حملات را برای پاسخگو کردن نیروهای ایرانی صادر کرده است.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76976)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 14:15:25
-
-
-
-پیام‌های دریافتی:
-00:38 صدای چندین انفجار در بندرعباس
-همین الان انفجار پیاپی بندرعباس ۰۰:۳۹
-بندرعباس ساعت ۱۲:۳۸ صدای انفجار چنتا اومد
-باز هم داره صدا میاد
-بندرعباس همین الان چهار پنج صدای انفجار پشت سر هم اومد
-😭
-صدای سه انفجار بندرعباس ساعت ٣٨ دقیقه بامداد
-00:39 بندرعباس سه چهارتا صدا اومد
-قشم الان صدای انفجار اومد
-ولی از خود جزیره نبود، بندرعباس سیریک یا روی دریا بود
-سلام وحید از بند عباس خبر میدم صدا ۳ تا انفجار شنیدم شدید بود شیشه ها لرزید
-🔄
-جنگنده الان بالای شهر جاسک
-۴ تا صدا انفجار اومد
-دوباره جاسک داره میزنه
-همین الان
-سه انفجار درجاسک
-همین الان دوتا انفجار جاسک
-صدای جنگنده هم خیلی زیاده
-صدا و سیما:
-🔺
-دقایقی پیش؛ شنیده شدن صدای چندین انفجار در اطراف روسنای طاهرویی سیریک
-🔺
-صدای سه انفجار در جاسک شنیده شد
-🔺
-صدای چند انفجار در قشم شنیده شد
-🔄
-خنداب در استان مرکزی:
-سلام وحید جان. همین الان سمت ساعت  یک بامداد صدای جنگنده شنیده شد.
-خنداب.
-همین الان صدای انفجاررر
-سلام ۳ دیقه پیش خنداب رو زدن
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76975)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 14:15:25
-
-<img src="https://cdn4.telesco.pe/file/vXfhTa8f_7WKlopYIUb0tJTrt7es0VeD0QJVGHNcSZQN64f9yMeALvBS7eotgz6-ZGQNzYGaFEXD3RCH7rSu2No6F3zzTVa3cDoaUsAPwNCrFVGHQB-xJPQ9V2h6QyseTKwAA4XByPtZgd31p7YDOhMg085lXHIdUAKWWW-v7iUZHadn8HnahkH-cv6DyONq0ywslnArHE_B429CjSAYckuyNqFmZP7vugoKEamnZE1KGCjaY2s-6czLbFMbKALmkp33gDKbaetQtvIug2CE8odAU-gE5oN_fH0MTFbmrHlQ8NGbWor2ajrwwLmTKrwYFJN9xdxwhfRWwrmrAMqa5A.jpg" width="400"><br>
-
-فرماندهی مرکزی آمریکا (سنتکام) شامگاه یکشنبه ۲۱ تیر، ادعای رسانه‌های وابسته به جمهوری اسلامی درباره کشته شدن نظامیان آمریکایی در کویت را رد کرد.
-سنتکام
-نوشت
-:
-🚫
-ادعا: تبلیغات ایران امروز مدعی شد که سه نظامی آمریکایی در کویت بر اثر حملات ایران کشته شده‌اند. نادرست.
-✅
-حقیقت: هیچ گزارشی از کشته یا زخمی شدن نیروهای نظامی آمریکا در منطقه وجود ندارد. وضعیت همه نیروها مشخص و تأیید شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76974)
 
 ---
 
