@@ -24,6 +24,17 @@ messages = soup.find_all("div", class_="tgme_widget_message_wrap")
 
 posts_html = []
 
+iran_time = datetime.now(ZoneInfo("Asia/Tehran"))
+update_time_formatted = iran_time.strftime("%Y-%m-%d %H:%M:%S")
+
+update_time_html = f"""
+##### 🟢 Updated at: {update_time_formatted}
+
+
+"""
+
+posts_html.append(update_time_html)
+
 for msg in messages[-20:][::-1]:
 
     # TEXT
@@ -60,15 +71,9 @@ for msg in messages[-20:][::-1]:
             tehran_dt = utc_dt.astimezone(ZoneInfo("Asia/Tehran"))
             post_time = tehran_dt.strftime("%Y-%m-%d %H:%M:%S")
 
-    iran_time = datetime.now(ZoneInfo("Asia/Tehran"))
-    formatted = iran_time.strftime("%Y-%m-%d %H:%M:%S")
-
-
-
-    
     
     post_html = f"""
-###### 🔵 Updated at: {formatted}, Post time: {post_time}
+###### 🔵 Post time: {post_time}
 
 {image_html}
 
