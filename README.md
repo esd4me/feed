@@ -3,26 +3,80 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
-<img src="https://cdn1.telesco.pe/file/lp025kdtQQNciv8VAb0GSC_0q2i5B8DcUqgKVRNHMqvMA_00JqhzMr3V8bYvrm-13uLqwkEddeMCho_zkPDxY6-a3KEqwBVkGki4fVCZcEG96uQigvgldIJ4WnZAzw2PEKcKOBcHSubuNXc8qaPga4lVjVrbcxxSViPKojZX-Kob-QXu8MVRfxB2vBxaaC_dL4C6woH528YY7wQdxWe67_GnFP3jlX8KTvGmy_Ku8sjCmBcubGlPpy88PtBySeojb1hVkEn-r9kw7zXBkWHmFQneptJTONf1DegocxBwtOhnrwzIcBBX0ZpBS2BpRpd1CfpWFKJjNFo2-RjD_JTc_w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/RxaGIH3dse4vhJ1b9X92opur9k_VkglPvtz6Fo3Ont949MbL3TQ-602uBEjnAKjHdlfMLXFGGkty_zum88SgtrXx2pYvW2luO-0qdGDislErQfG7U-jSE9eXhtGP5hhWRJYr-rcFb-zQNSXQbpTnrnwioOVvJlWioXJmpaEO_ixmv1r3MDGN6VjOfjwfrFHFnBXBcYmKyiOT-u6U8wRQidsOeugAekY4hdh3vE0FSuWu0057PtWozEA7ccv4nefxTmrmct7sKW6_2jEKKnSDbjCRLu1s71B4RM3jvFYol_x0z09D09EpgoV8hcQlGt4oxI-VQvAZ-GLe65p9UYSk_A.jpg" width="400"><br>
 
-روزنامه هاآرتص در گزارشی تحقیقی نوشت موساد در چارچوب پروژه‌ای برای تغییر حکومت در ایران، محمود احمدی‌نژاد، رییس‌جمهوری پیشین جمهوری اسلامی، را به همکاری جلب کرده و او را به‌عنوان گزینه‌ای برای رهبری ایران پس از سرنگونی حکومت در نظر گرفته بود.
-بر اساس این گزارش، ارتباط میان موساد و احمدی‌نژاد از حدود یک سال پیش از حمله هفتم اکتبر ۲۰۲۳ حماس به اسرائیل شکل گرفت.
-هاآرتص نوشت اطلاعات جمع‌آوری‌شده از سوی موساد نشان می‌داد دیدگاه‌های احمدی‌نژاد پس از پایان دوران ریاست‌جمهوری‌اش در سال ۲۰۱۳ تغییر کرده و او به یکی از منتقدان برجسته حکومت جمهوری اسلامی تبدیل شده است.
-به نوشته این روزنامه، مقام‌های اسرائیلی به‌ویژه به دیدگاه احمدی‌نژاد درباره تحریم‌ها و برنامه هسته‌ای ایران توجه داشتند. احمدی‌نژاد معتقد بود ایران نمی‌تواند تحت تحریم‌ها به وضعیت موجود ادامه دهد و برنامه هسته‌ای، به‌جای یک مزیت، به باری برای کشور تبدیل شده است.
-هاآرتص نوشت افرادی که روند ارتباط با احمدی‌نژاد را دنبال می‌کردند، به این نتیجه رسیدند که مخالفت او با حکومت به اندازه‌ای شدت گرفته که ممکن است حاضر به همکاری با موساد و سپردن سرنوشت خود به این سازمان باشد.
-بر اساس این گزارش، گروهی از ماموران موساد روز هفتم اکتبر ۲۰۲۳ پس از فرود در فرودگاهی در کشوری دیگر، از حمله حماس و کشته شدن صدها نفر در جنوب اسرائیل مطلع شدند، اما ماموریت خود برای جلب همکاری احمدی‌نژاد را ادامه دادند.
-هاآرتص نوشت با ورود این ارتباط به مرحله‌ای تازه، دیوید بارنئا، رییس وقت موساد، شخصا بر عملیات نظارت کرد و حتی برای پیگیری تحولات مربوط به احمدی‌نژاد، از شرکت در یک نشست امنیتی با بنیامین نتانیاهو خودداری کرد.
-به نوشته این روزنامه، ارتباط با احمدی‌نژاد در ماه‌های بعد نتایجی به همراه داشت و در اوایل سال ۲۰۲۶، هم‌زمان با تبدیل شدن ایران به جبهه اصلی، او به یکی از مهم‌ترین دارایی‌های اطلاعاتی اسرائیل تبدیل شد.
-هاآرتص گزارش داد پس از تصمیم اسرائیل برای اجرای عملیاتی با هدف سرنگونی جمهوری اسلامی، احمدی‌نژاد برای در دست گرفتن زمام امور در دوره پس از تغییر حکومت انتخاب شد.
-بر اساس این طرح، انتظار می‌رفت احمدی‌نژاد ایران را در مسیری هدایت کند که از تلاش برای دستیابی به سلاح هسته‌ای صرف‌نظر کند و تصویری متفاوت از این کشور به جهان ارائه دهد.
-این روزنامه نوشت احمدی‌نژاد تنها بخش علنی پروژه تغییر حکومت بود و در پشت این طرح، عملیات نفوذ در داخل ایران، برنامه مسلح‌سازی و آموزش نیروهای کرد در عراق، تلاش برای بسیج اقلیت‌های قومی با هدف بی‌ثبات کردن حکومت و برنامه‌های نیروی هوایی اسرائیل برای ایجاد یک کریدور زمینی جهت جابه‌جایی شبه‌نظامیان قرار داشت.
-بر اساس گزارش هاآرتص، سه روز پیش از زمان تعیین‌شده برای آغاز عملیات، اختلاف‌ها به اوج رسید و ایال زمیر، رییس ستاد ارتش اسرائیل، دستور توقف همه اقدامات را صادر کرد، اما بنیامین نتانیاهو تصمیم گرفت عملیات ادامه یابد.
-این روزنامه نوشت طرح نتانیاهو و بارنئا پیش از آن‌که نیروهای کرد حتی یک گلوله شلیک کنند، فروپاشید.
-هاآرتص برای تهیه این گزارش با بیش از ۳۰ مقام ارشد سیاسی، امنیتی، دیپلمات و منبع خارجی گفت‌وگو کرده است.
+♦️
+محمدرضا پاکروان، معاون استاندار هرمزگان، روز دوشنبه ۲۲ تیرماه، از تعطیلی تمامی دستگاه‌های اجرایی، ادارات، بانک‌ها، مراکز آموزشی و دانشگاه‌های این استان در روزهای سه‌شنبه ۲۳ و چهارشنبه ۲۴ تیرماه خبر داد.
+این مقام استانداری هرمزگان در گفتگو با خبرگزاری مهر اعلام کرد: «این تصمیم با توجه به بررسی‌های کارشناسی، موافقت استاندار و مصوبه کارگروه انرژی استان به دلیل افزایش شدید دمای هوا اتخاذ شده است.»
+به گزارش مهر، مراکز خدمات‌رسان، درمانی، امدادی، امنیتی و انتظامی برای ارائه خدمات دایر خواهند بود و امتحانات نهایی دانش‌آموزان و دانشجویان نیز طبق برنامه قبلی برگزار می‌شود.
+این خبر در حالی منتشر می‌شود که در پی اقزایش تنش‌ها در تنگه هرمز، ارتش آمریکا از بامداد ۱۷ تیرماه حملات گسترده‌ای را به شهرهای مختلف این استان ساحلی انجام داده است.
 @
 VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77005)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 21:15:54
+
+<img src="https://cdn1.telesco.pe/file/U9RS2qF0pOh4GSoKAKMyW_d9-r4dPJXzWyqhBemmZdlpobJ3YQ8pGVxgaVAv18w81WIfXwAwSW-bB1WX8lbcU_0ytsYoMfztprUUv5iEh0yPGDmBDVL2dD1w0jC_lHzp4rDixMVTHHi-ErNRM1HQ21wol-19lNDd4eRSfmFOTMgowsQDa4a8ZuT8I75oTk5P_zybBvU_Ttsfyym2yck03jKOH_bH-kUkE1njwD9io5FNiOTp8gLUZrCDzZmhliQviQZDNAoh7YNYZFp1e23RSEGaQ3UbZ_J9t2PabYz6SEz9Y09l3khRgE0TtX8UWpm0CJ6ZCBPhxjC2VBqn1NHi7Q.jpg" width="400"><br>
+
+تام کاتن، سناتور، ترجمه ماشین:
+رئیس‌جمهور ترامپ حق دارد که به‌دلیل زیر پا گذاشتن قول از سوی رژیم ایران، هزینه‌های سنگینی بر آن تحمیل کند.
+در برابر حملات تروریستی ایران علیه همسایگانش و در تنگه هرمز نباید هیچ‌گونه مماشاتی صورت گیرد.
+برقراری دوباره محاصره، رژیم را بیش از پیش فلج خواهد کرد و اجازه خواهد داد نفت برای متحدان و دوستان ما از طریق تنگه جریان یابد.
+SenTomCotton
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77004)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 21:15:54
+
+<img src="https://cdn4.telesco.pe/file/Z5ObQLwmV8jY3dHaf9g0VF6TG4SL5pK9Hqn3o8-SLW5rDs8ggmI4mvmiAuZXBSoemtNtkW9g_LKsBZzbUcdjYGk7XU3Dzm9q0fnifpNzeukqqFRFU96fxWnQKQfVO_y29TiWeVOLKpcPpFr6Yhcmi981rAzIYn3Qthpdk-rWinceeVssDF2MOZNxnkgb8CWwPljO8lfJyZyvDzv1wK74G_HP8lOTjg-7AHks4UbZ0H54sreNu8NU_yaZDnPdEasvsVdBAW6QQv9gQgIOi8_18gerfVGmIHqtgJmpy1amDjQ4fi4e3NzNV2kQ0Psb9r0j0zMjkPXawrvaGiS-7KZKAw.jpg" width="400"><br>
+
+وبسایت اکسیوس روز دوشنبه گزارش داد که اعمال دوباره محاصرهٔ دریایی ایران هنوز اجرایی نشده است، زیرا طبق الزامات قانونی باید ۲۴ ساعت پیش از آن به مالکان کشتی‌ها اطلاع داده شود.
+یک مقام آمریکایی به این وبسایت گفته که فرماندهی مرکزی آمریکا، سنتکام، زمان دقیق اجرا را اواخر روز دوشنبه اعلام خواهد کرد.
+یک منبع ارشد در خلیج فارس به آکسیوس گفت ایالات متحده موضوع دریافت عوارض احتمالی برای تأمین امنیت تنگه هرمز را با متحدان خود در منطقه مطرح نکرده است.
+دونالد ترامپ رئیس‌جمهوری ایالات متحده روز دوشنبه اعلام کرد که محاصره دریایی ایران بار دیگر برقرار می‌شود.
+او همچنین تصریح کرد که آمریکا به‌عنوان «نگهبان تنگهٔ هرمز» شناخته خواهد شد، اما ۲۰ درصد از ارزش همهٔ محموله‌های عبوری را به‌عنوان هزینه دریافت می‌کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77003)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 21:15:54
+
+<img src="https://cdn1.telesco.pe/file/urgJqQ_Nhbw7TMB4Gn9APT0tnBw88-ZXi2oBoQNLMw7syE_Kg6Iei9_36LCnyQnufKE2fn5CXsOgbC_sB_C_wTNFcf5s8Lw6Tx15a7iK2YtZpBk0a0nCsCxjv5_PvcfNaEREsy4XrM80UzkyOOjKREaxG3NYk0x1IfGvfRrWBaNtB4Cn7c8tH6Oc8g8qsmWYfcdS9ANXohtIuN--txw8rDNrkmQESTjRcEBQPRYV_bWKA2TI-UQEXmz-vg8Ow2LZ_XPmwsEpKwKcSZ1NwbSDC6JcfYsafiJxAkweqtqRcGkOWRWE1w7g9odCZjmQtf1bY_qXumJY7RVva5erVeSIWg.jpg" width="400"><br>
+
+روزنامه آمریکایی نیویورک‌تایمز در گزارشی اختصاصی که روز ۲۲ تیر ۱۴۰۵ منتشر کرد، از تلاش چندساله سرویس اطلاعاتی اسراییل برای جذب محمود احمدی‌نژاد، رییس‌جمهور پیشین ایران، به‌عنوان یک عامل اطلاعاتی خبر داد؛ طرحی که هدف نهایی آن، به گفته این روزنامه، نصب او در راس نظام سیاسی ایران پس از سرنگونی حکومت فعلی بود.
+بر اساس این گزارش که به نقل از منابع آگاه آمریکایی و ایرانی تهیه شده، ماموران موساد طی چند سال گذشته در سفرهای خارجی احمدی‌نژاد با او دیدار کرده و حتی هزینه‌های مسکن و رفت‌وآمد او را تامین کرده‌اند. «دیوید بارنیا»، رییس پیشین موساد که پنج سال این نهاد را اداره می‌کرد، شخصا برای دیدار با احمدی‌نژاد به بوداپست سفر کرده و به گفته مقام‌های سابق آمریکایی، موساد، موضوع تماس با احمدی‌نژاد را به‌طور رسمی به سازمان سیا اطلاع داده بود.
+...
+بر اساس این گزارش، در ۹ اسفند یک حمله هوایی اسراییل به محل اقامت احمدی‌نژاد صورت گرفت که ساختمان محافظان و خودروی زرهی او را هدف قرار داد.
+به گفته چهار مقام ارشد ایرانی، پس از این حمله یک خودروی پژو مشکی‌رنگ در صحنه حاضر شده و احمدی‌نژاد را با سرعت از محل خارج کرده بود.
+منابع آمریکایی و ایرانی آگاه از این عملیات گفته‌اند راننده این خودرو از ماموران موساد بوده و احمدی‌نژاد را به یک خانه امن در داخل ایران منتقل کرده است.
+اما طبق این گزارش، این طرح در نهایت ناکام ماند. احمدی‌نژاد از شیوه اجرای این عملیات نجات ناراضی بوده و به گفته افراد آگاه از جریان ماجرا، نسبت به برنامه اسراییل برای بازگرداندن او به قدرت دچار دلسردی شده بود. او سرانجام خانه امن را ترک کرد، هرچند شرایط دقیق این خروج همچنان نامعلوم است.
+احمدی‌نژاد از آن زمان تا دوشنبه هفته گذشته، که برای لحظاتی کوتاه در مراسم تشییع پیکر آیت‌الله علی خامنه‌ای، رهبر فقید ایران، ظاهر شد، در هیچ رویداد عمومی دیده نشده بود. در تصاویر منتشرشده از این مراسم، او با وجود گرمای هوا ژاکتی ضخیم بر تن داشت و ماسک جراحی را تا زیر چانه پایین کشیده بود؛ در حالی که سرش به زیر افتاده و از هر سو افرادی که به‌نظر محافظ می‌رسیدند او را احاطه کرده بودند. حسن روحانی و محمد خاتمی، دو رییس‌جمهور پیشین دیگر ایران، به این مراسم دعوت نشده و در هیچ‌یک از تشریفات مربوط به تشییع حضور نداشتند.
+به گفته چهار مقام ارشد ایرانی، احمدی‌نژاد اکنون در بازداشت واحد اطلاعات سپاه پاسداران به‌سر می‌برد، پس از آنکه نهادهای اطلاعاتی ایران بخش عمده‌ای از ارتباطات او با اسراییل را کشف کردند.
+...
+متن کامل:
+telegra.ph/ahmadinejad-07-13-2
 📡
 @VahidOnline
 
@@ -32,7 +86,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 
 
@@ -49,7 +103,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 <img src="https://cdn1.telesco.pe/file/FQY-7hRXIAQ8E1FJexRb14bBtzJiGczBKFCSf4_rR8x8ef3XI4VUToD6_djQoAlvewpTaK79eVuJAB6MgV5jiaxfo3NuaYRBL6msRd8NdIXWjdYReaJPEeTMdF5jlg5CLnLT2dvE_4RN0yEFPJzKMoXPOYoAuujp86rdfvGJOG4mjqyeGvsavzdEx1JKpydGXqY3oNUWw5UaMelM-f18A04-pCwdrrmNXCU4_l4-6T7dW3t9ig3QepkpfSPHoq0SX3EQUghhxskoL8H7SuhGCpffgD7VV7-WnFE6lCOJblmaVh_qviR-nQL6ZHK3GlWD8okpH_E7_r7cgNMEWlg6rA.jpg" width="400"><br>
 
@@ -70,18 +124,21 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 
 
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه ۲۲ تیر ماه در گفتگو با شبکه خبری فاکس اعلام کرد چیزی از توان نظامی جمهوری اسلامی باقی نمانده است.
-او در این گفتگوی تلفنی تاکید کرد: «آنها هیچی ندارند. نه نیروی دریایی دارند، نه نیروی هوایی، همه‌چیز از بین رفته است. پدافند ضد هوایی‌شان نابود شده، رهبران‌شان همگی کشته شدند. بهترین رهبران‌شان کشته شدند. آنها دیگر نیستند.»
-ترامپ در ادامه این مصاحبه با اشاره به وضعیت داخلی جمهوری اسلامی افزود: «خمینی [خامنه‌ای] از بین رفته است،
-۹۰ درصد از پسرش هم بین رفته است.
-آن وقت نیویورک تایمز مقاله‌ای می‌نویسد که «وضعیت آنها امروز بهتر شده» تازه آنها تورم ۳۵۰ درصدی هم دارند.»
-این سخنان دونالد ترامپ در حالی مطرح می‌شود که طی پنج روز گذشته، با افزایش تنش‌ها در تنگه هرمز، فرماندهی ارتش آمریکا (سنتکام) حملات گسترده‌ای علیه مواضع نظامی جمهوری اسلامی در ساحل و استان‌های جنوبی ایران انجام داده است.
+ترامپ به شبکه فاکس‌نیوز گفت: خامنه‌ای مرده، پسرش ۹۰ درصد مرده است.
+از زمان جنگ از مجتبی خامنه‌ای عکس، صدا یا تصویری منتشر نشده است و در انظار دیده نشده است.
+دو روز پیش عکسی جدید در وبسایت رهبر جمهوری اسلامی منتشر شد اما نشانه‌ای از اخیر بودن در آن دیده نمی‌شد.
+رئیس‌جمهور آمریکا بار دیگر تاکید کرد که نیروی دریایی، نیروی هوایی و پدافند ایران از بین رفته و رهبرانشان هم کشته شده‌اند.
+او در این مصاحبه همچنین گفت دیروز پس از یک «جلسه ۱۱ ساعته» بر سر «همه چیز توافق شد» که اشاره‌اش به ایران بود.
+او به جزئیات این جلسه اشاره نکرد.
+او افزود: «کار اینها همیشه ۱۱ ساعت طول می‌کشد درحالی‌که باید یک دقیقه باشد... اما از اتاق که بیرون رفتند، دوباره تماس گرفتند و گفتند باید چند تغییر اعمال شود.»
+دونالد ترامپ سپس افزود: «همیشه تغییراتی در کار است. می‌دانید، آنها مذاکره‌کنندگان حرفه‌ای هستند، کارشان همین است. البته من حتی نمی‌گویم در این کار مهارت دارند... آنها هیچ چیزی از من به دست نیاوردند.»
+آقای ترامپ چند روز پیش هم گفته بود با ایران بر سر همه چیز توافق شده بود اما ساعاتی بعد آنها به یک کشتی تجاری در تنگه هرکز حمله کردند.
 @
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -91,7 +148,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 <img src="https://cdn4.telesco.pe/file/Y8qAKqT7mYcrk7Y7tmeFMh7Sd3ASqgQczQN0y1h5FxoK8aJP-qVnDtlkUyizCJ30Rm1WJWUpsCiW3YGWzETlmKWWaZ0t20X044XSu--F4-fkmzBk9EHgCZ_UJ-tuJSl9looNE298GYuPG2eiqgrwYoWbGQu0bi2r8IfdixZBcaRdms0FmZPBE9odCquHdkaLYBU9YuWKXxNs_A1DwoqRlPfgDMphBsiiY1_7_g9JoSiSwHt9LWo91WPjC9iiIz3_Xfkptl0lCmT2RJar0OogRBTNBYHhkI-u-ia5mvwYGTFV3rUjz7UaOTn87ZHfv8tvcjCJoUB2pyHNnqnPcB4heQ.jpg" width="400"><br>
 
@@ -110,7 +167,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 <img src="https://cdn4.telesco.pe/file/u6AWuo4_e5QImAzSWUv3Y6JFkO69jqnm0u4aWqqFwbe2HASmKfW3c9vR2wOGfKKRa55oPeh-UaXzOZB6Mx_jc_1SUDLG26Dt956Zl7hDurdnDlpPdcWZCnxmWzOwbiZn3TTdMyij5orHlFRlNR8fNisNSflStz6nZ1Kkcb9X9K3pv5bxkBIXxu5Y3C76Tt0un3JLPibGglJH8W6lTMDM_k1OpxoMNY76AO4Rr7Q3yN3ucpSYMQjToJhkPktDsy-TmSVzHNXt34lzl8ozP05lWaLFlYeLTYd6w7FQMEEPadqo7BrcM9icLisqdleDZRgDHWjghXxDHkQA6gERYCvVFw.jpg" width="400"><br>
 
@@ -129,28 +186,17 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
-<img src="https://cdn1.telesco.pe/file/uEqC5-6mw9jPisw501WwuW4BpL1GEVtESoIKEMUt5TzcsW_HWVG8mQ4HjxiqZRVvLpQOgSHPalO5lbj5qtoSpqlqCipqk19BonP2EeFT6ugRxcZGaNv4906Ch7brOjsQUFmGp_drm-Wunwv_rSO8KR58N0J6-ghjAnyzCKQT01kpZhXerDbMP8l_NhiVg_-1sywFgHHkaxpLNeMVGPyZjPpz3vaijifCjIYP-MqKRRb64rvgRhXAJVCYzszdUMAe3cb7RRrr4d_hBQelgqeGtVHAWkRwZqkSe-b_u-s2xofyquQiqVC1RvUZSouW91MwoyQ6ZISBtm53uqra-CKpJg.jpg" width="400"><br>
 
-شبکه المسیره، وابسته به حوثی‌های یمن، بعدازظهر دوشنبه ۲۲ تیر نیز گزارش داد عربستان سعودی فرودگاه بین‌المللی صنعا را با چند حمله هوایی هدف قرار داده است.
-هم‌زمان با این گزارش، خبرگزاری رویترز نیز از چند حمله هوایی در نزدیکی فرودگاه بین‌المللی صنعا خبر داد.
-برخی رسانه‌ها و حساب‌های یمنی، حملات به فرودگاه صنعا را با تنش بر سر ورود یک هواپیمای ایرانی به این فرودگاه مرتبط دانستند، اما این خبر مستقلا از سوی رسانه‌های وابسته به جمهوری اسلامی تایید نشده است.
+
+تصاویری از حملات متعدد به باند فرودگاه صنعا امروز ۲۲ تیر منتشر شده است.
+وزارت دفاع دولت یمن، که از حمایت عربستان برخوردار است، اعلام کرد که باند فرودگاه بین‌المللی صنعا را هدف قرار داده‌اند تا از فرود یک هواپیمای ایرانی جلوگیری کنند.
+حوثی‌ها، که متحد [حکومت] ایران هستند و کنترل فرودگاه بین‌المللی صنعا را در دست دارند، عربستان را متهم کردند و گفتند به ان پاسخ خواهند داد.
+بعد از حمله به فرودگاه صنعا گزارش شد که یک هواپیمای ماهان ایر در فرودگاه حدیده به زمین نشسته است. ویدیوهای منتشر شده نشان می‌دهد مسافران این هواپیما پیاده شده‌اند. خبرگزاری فارس اعلام کرد هیئت رسمی یمن به سلامت در حدیده از هواپیما پیاده شدند.
+پبش از این هم یک پرواز شرکت هوایی ماهان ۱۳ تیر به صنعا رفته و ساعاتی بعد به تهران بازگشت. این پرواز ساعاتی پس از آن انجام شد که گفته شد «توافقنامه حمل و نقل هوایی میان اداره کل حمل و نقل هوایی یمن و شرکت هواپیمایی ماهان ایر» ایران امضا شده است که بر اساس آن «۱۴ سفر هوایی در هفته از سوی ایران و یمن می‌تواند انجام شود.»
 @
-VahidOOnLine
-چند رسانه ایرانی نزدیک به سپاه پاسداران، ازجمله صابرین نیوز، می‌گویند این حمله همزمان با نزدیک شدن یک هواپیمای «مسافربری ماهان» به فرودگاه صنعا انجام شده است.
-@
-VahidOOnLine
-🔄
-وزارت دفاع یمن اعلام کرد که حمله به باند فرودگاه بین‌المللی صنعا برای جلوگیری از فرود هواپیمای ایرانی انجام شده است.
-وزارت دفاع یمن اعلام کرد که نیروهای مسلح این کشور باند فرودگاه صنعا را هدف قرار دادند تا از فرود یک هواپیمای ایرانی جلوگیری کنند.
-صنعا در کنترل حوثی‌ها است و دولت در شهر عدن در جنوب این کشور فعالیت می‌کند.
-@
-VahidOOnLine
-خبرگزاری فارس، وابسته به سپاه پاسداران، بعدازظهر دوشنبه ۲۲ تیر گزارش داد یک هواپیمای ایرانی که به مقصد صنعا در حرکت بود، پس از حمله عربستان سعودی به فرودگاه بین‌المللی این شهر، مسیر خود را تغییر داد و در فرودگاه الحدیده در غرب یمن فرود آمد.
-روزنامه هم‌میهن نیز نوشت این هواپیما پس از تغییر مسیر به سوی شهر ساحلی الحدیده، سامانه ردیابی خود را خاموش کرد.
-@
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -160,7 +206,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 
 
@@ -191,7 +237,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 
 
@@ -232,7 +278,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 
 
@@ -325,7 +371,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 <img src="https://cdn1.telesco.pe/file/cFDn-0-Q3stux-1hOnLmJ91jSzrvLjXmJGxZ0DcCYiDk-ckHrkt8rf4E2z-J89pBOZpGmAQf5IYm0rxMrULHS3Plaskzrb9esEE70mDCaUCc2vJED0KRBeaXOB8vZAQ0obShloIqioUaGduaudfFgXmclq-4IQa7_fNLNcpZZFSqV7BHkJtS8WtgT3qZnhlKGXT4We-Wa-d9cOV-lDgVxjyffLcGSHW9HOITFS06WOBB8Py5dX8PCJS4TuuORauNLsilX_WPRfGm1bNbRh2houn3ziuQISOHD3R8GWwZ7qpKC3pbvK4GqFrDv36JCCqkuGRdCHF1ZfvxsWu33cicug.jpg" width="400"><br>
 
@@ -355,7 +401,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 <img src="https://cdn1.telesco.pe/file/FU9wQNlNIuu2BgyIGTViqCz9Dwaytaa_kup8Nh3jAIf47xapwEX6giKgxVnp9aaWDFtzYtqbSIt3clDCZI5Z7xcCSL59lppf45Eb0x_-DylBMuqKUjJy1gM0q5UGMT3UJSr5gTyHuXAWBMu_S3oNhCogWXxPY3CacmCXH5Dpdo8BPV6H-Q_4u5w6HXu2bscfNRpB-o_XgFp9Uu4iIA8hotL9gkMuMwtDieqYAy1GsVk3iUWjmJW321nhMC6-e0mVl58Zgvn351mbq-q55oqI71j1hSzRnmMGlfytmsl7vjIJpO1GaiiCD4UUMjKJs7IyZ4JMY3GvfxR1FzAwvVYAGg.jpg" width="400"><br>
 
@@ -376,7 +422,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 19:20:30
+###### 🔵 Updated at: 2026-07-13 21:15:54
 
 <img src="https://cdn1.telesco.pe/file/ce9a9iPUoJISI1qVcCX0B8oUztAKPJvhINeznDVzvS9AE8OKs3JJld2K-K69J9DHJs2ss8b2w7q_So1ApL4KS-TQ_XumoJfH8TdSKSp8kqeDl7bT8HRAe8kd2cSGf7nZxUMJa4BBbKDHNRa9sOIHsJto6b8SoeyP7NbpY5OCP8N8aHMAbvBdbbF1j5XUpgQzI5cRumCZTcgqH-TiWQt4P5o429iADeEcCd6JCNyN114qXLp3QzQtMI3MO1OKwsoYEfREswQaDWCluhDSoaL6E6-CavWPfse8EKTmYq7DbRTX0wCAqMl-_EQCKRqkD10f_jvCjHueGQ9O0czzFpZ65A.jpg" width="400"><br>
 
@@ -395,24 +441,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76985)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 19:20:30
-
-<img src="https://cdn1.telesco.pe/file/VSeSNEwm9ExvmwlIXIrL50mYGmBT0TDQHnUpWB4ry56cksBj-GfbGviu0VJKL18S9TPw5nJ5vIJv7BI7x5PVoatZnXlPTHBrC8Ko7Vr7jVBO_HG4IyTfV0sO-wU0Ie8Oc94BHFO_ZfTUpsvk9SXTtAHRKODob6-x1bhZqyeda7s33JA2YKxtgQcK5-j5h3eppixRXfmXWTXg6xCCGEIS28yRcqaXNYrkq9pHKK7BaLX99Qj6gCnMPKnfMpHnpKeq2MCCPjn2EZOIN-TNgyX8BWSL3jPP93gwJxH2CxPog06dmMbwFvfPEu8JB6ou6BknjQ449L_QopkoMCXMmX-keQ.jpg" width="400"><br>
-
-تصاویر دریافتی با شرح: 'انفجار و آتش‌سوزی [سمت] فرودگاه
-#امیدیه
-در خوزستان
-دوشنبه ۲۲ تیر حدود ساعت ۳ بامداد'
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76980)
 
 ---
 
