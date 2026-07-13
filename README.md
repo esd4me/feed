@@ -2,7 +2,32 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 01:34:23
+
+
+
+پیام‌های دریافتی:
+حدود ساعت ۱:۳۰ چابهار یه صدای انفجار اومد
+سلام وحید جان همین الان ساعت یک و نیم صدای پنح انفجار در چابهار شنیده شد
+سلام وحيد جان ، چابهار صدای انفجار اومد 1:34 بامداد
+#چابهار
+: فقط باید تهرانی باشیم کسی به فکر ما باشه؟
+صدای انفجار ضعیف کنارک
+انگار فاصله زیاد بود
+[این بار به چابهار نزدیک‌تر بود]
+وحید الان چابهار رگباری زدن نزدیک 10.15تا
+سلام ساعت ۱:۳۳ چابهارو دارن بد میزنن
+کنارک همین الان نزدیک ۱۰ تا زد 1 : 34
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77029)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 01:15:48
 
 <img src="https://cdn1.telesco.pe/file/Aal6HeJ2uO8WX1w6oDMVuoIUek66ToQUzJVu18BdSPgI0gDtHMOZ3YC5zr7jN0JusSeky_dxSsgVklvC6eK_yBuKsuOLa5CgPalnatVQhAg7EsNViPHy4KZg_e9BbhOA65c38cYlHBg8wx6FEtGob9kKdj_OM4Tje-_mG4SmzZppaIK8tpgJMtM10pZeoL7NdDIyGsLPFrFYMGyiYZkx7Uw37p5n8CSvFDoappBpgiLLEl20twQ8XI_cg_kzrZg_7OW8DTfs1aGhmpv2j-ZN_p6QC9yVlbjch9ih8FFf2SHKer7-f5aFRFkngllaOGH8GFB-ofvIfbnMm99Pc-pauQ.jpg" width="400"><br>
 
@@ -20,7 +45,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 01:07:41
 
 
 
@@ -51,7 +76,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 00:58:35
 
 
 
@@ -68,7 +93,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 00:49:50
 
 <img src="https://cdn1.telesco.pe/file/nt5CNzuSp8Asfhj6Y8DUM16JC-NTk3_ZKhhX-u8PIfisO_cN7E5L6ImaZ5eHuZwtUqqLsUcxOl47meCyhIK023-2MnVF6xNjtCAmNjSgPk3Bs99Gy6C5ZKaLftSQhOCs1J6jC6p97K8rFZNo2vUuA4Cq5AMX6eT73vLatGdcnIkXMpiUCxKbqgpwXrG9Lm4gfMUvP_9U46aEVfW1IqClS6J_mw2mH6EyToa6xtLYWyuEp_GVRCmDp_mRf28A71Liwp3P1EcVg50tK5OjZWtxKEySTLGM3o7awj1uyUTcC_6-EhK04XYe5TYudCC9prr0oGGs-xcr_fRn8FHhhGDkoA.jpg" width="400"><br>
 
@@ -84,7 +109,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 00:42:15
 
 
 
@@ -109,7 +134,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 00:41:21
 
 
 
@@ -142,7 +167,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 00:37:36
 
 
 
@@ -184,7 +209,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 00:35:54
 
 
 
@@ -209,7 +234,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-14 00:23:59
 
 
 
@@ -268,7 +293,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 23:40:00
 
 <img src="https://cdn4.telesco.pe/file/E6v-8mKUN5DHoQwIjSF1Iy1EXN7XvPgAaLLd8-CgS0OmsDraVbyaBxsRlsv1eL3s7-dGNhlSMbC_MkyQGwMX6D3vcGI5M3o0kfCBAiCkBLZaw9Fuxwz0K9hEIqjR2wKlX6Jse2EpKJUWMAVFCBcc84s9ueXqDn1Wnumws1xGo0GK2YyN54Zw1uukbi3MheHlUPF89VtOCg7ajqEP0_qyM86n1yCuX6Ox7QP8Zx6SBBB-kV6QcqzJKitDaEFfBUkuGg4VIXyvIoONEz0iWWqpM1hFmPtW7sGvQi6OzEKuD0dLVGBMCByipLvAXbhyF5QEQfJaBRv5badE4PcfmD6vUQ.jpg" width="400"><br>
 
@@ -285,7 +310,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 23:19:50
 
 
 
@@ -300,7 +325,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 22:47:46
 
 <img src="https://cdn1.telesco.pe/file/B2sUSoq6QCqSNLIbju2AhxllPG-BwBAiPJWKYYzGzaBCeqFrYpfNJLlSDT1hn4xIJXjTYyips071FfIG4HF1BZgrzCwWqUP3Ofh-sVfVx9KVgfvRGhQ1Ve_XnOUOkXMNsk8SMYi0lkp_PFayxJUdh15c0npIkCGjPet9u8L7i_C8dtQJFo8RR80damXsSQU7UQck_lSzPGGpp6bZjJPBRBfysWPdF5YWAP1OqX2dg8dzAyPBxxyXnggwlvxXd8m35WNcYNBLV1oAAuaiK85CVsX3hEKdXL3d3Ht3EC8buXKosWHlxU08dOWE4BFKXOLVg197-6wmqH96cHIYWThOtw.jpg" width="400"><br>
 
@@ -317,7 +342,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 22:42:36
 
 
 
@@ -344,7 +369,7 @@ realDonaldTrump
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 22:37:40
 
 
 
@@ -364,7 +389,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 22:22:32
 
 <img src="https://cdn1.telesco.pe/file/pJ7ATvIoOHKQXR5o1JusBvJd6BQhfUiuvCyesg3sd35rGD--k9ZkJckEMAyt0UAXtu2ycdmTFoVDoOoUTkGJuWborig9iZtYIH6Go44TwqMhaBZYiTnBQ99jTtXzEsHfirHM1P8gkybxhKvJpONk5FfMpmF7PWLlnxxv1gKZNpyckPdIkVqzymBLTvWtRxaVx5eGoztwD02FoZcUgoa7JiklMlFCjPYBcIvtHnUZPd1LJ-eXLIkqhQl-HZuFLM45PHwNacSVzKmQx95Ht5o0ZoAcvzuna7CgOU1mSExElgUPF1SqXiJu4Izh5JbcItvK0NY6LWbTzYzSVUtKHLSe5g.jpg" width="400"><br>
 
@@ -383,7 +408,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 22:11:18
 
 
 
@@ -410,7 +435,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 21:48:11
 
 
 
@@ -431,7 +456,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-14 01:23:06
+###### 🔵 Updated at: 2026-07-14 01:37:59, Post time: 2026-07-13 21:41:14
 
 <img src="https://cdn4.telesco.pe/file/qb1Mwq682EdcWq0GSrlYV8AEpsHdhlSHathS21RWbskvqFVIYEWGAVVVYjy7Lz4TN_uGcvCsm0Im5In0GvmQ8eFU6xvE42pXpimFPlM8XrXSGd9q34Jtw9viLdZq_caPYw6YdTXYJh2E95QBjixaszEEyiIcgUxndibTAjejTkO7ZzUECGQ1cofaHh4UndYlelkBnJV2WAh7KScR4fnx3aDCYiZUV6spGH3KFaVwhPL3G_J0UX2nT2zgxef5qLttHZ18nXLCAzoHoXp7_RSdkC880v86VwyFS-W33DyuuUPl4R298jTsoZDMBwiPWz5pasj50wDueJx5hpS_WV8UTw.jpg" width="400"><br>
 
@@ -446,24 +471,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77008)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-14 01:23:06
-
-<img src="https://cdn1.telesco.pe/file/be__PIz3ekLLuaUlb-K2xIckxgx5ghgghycFgYxPBsi2lw3CQrvo5x7KR_m8zctlnBgqkI-RPmaZrs88HS7fFPx8gSbncvzeQsxnRQU57u6vMK9GZY5gvqUZ3dS1IkN0pylhdrRnCz_vsN9xZaTsWYqgYNeoov4LxgpYFqpRo2GbMUg-Tw50jqBAtiVBxgGXhuX_r5eYNGb0j4-yDtyb3HbiN0IkXTDHqOkqZxB5ah1JFmRc3L18U-OLLzg2xY6hFw8O042S-hcQd7OqCv-i-8hC6_ENrMYwiDG8WUmizFpT5PLf4Ts6RCrOiJ0X-7SFFGn_hz8HjFTH9w4Cs_tRjg.jpg" width="400"><br>
-
-عباس عراقچی، ترجمه ماشین:
-رئیس‌جمهور آمریکا کاملاً درست می‌گوید. هر کسی که عبور امن و بی‌خطر کشتی‌های تجاری از تنگه هرمز را تأمین می‌کند، باید بابت این خدمت غرامت دریافت کند.
-ایران همیشه «نگهبان» تنگه بوده و تا ابد نیز خواهد ماند.
-البته ۲۰ درصد بیش از حد زیاد است. ما منصف خواهیم بود.
-araghchi
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77006)
 
 ---
 
