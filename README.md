@@ -3,11 +3,52 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
+
+<img src="https://cdn1.telesco.pe/file/u05xKQgJPEwn3_RDEQSkBlzwtxVTIx6E_2Vzwt_5jFIkKiNGESYcV561BFAQ5KPqEdE0VsMTX9mGSOOzkcv-yqttcbFtfdfEraRbRsNeSvqxeCCrY5Ek2BfjIWiQKAkaBnKn2VX__8LMpZOex0lo_xlW7yHCCdpWpjA4ayZVx-mj6meiokQLL-bBHTtRCI9D8T2w7o4tu3sCV1B-HeVt5juHtrGbQSQqJ-0y5ZUdo928_MZZhaK2dxGW6UUIHlE_I5mOVY1hvyvdLKjj3Qg73v9z4GffYXLMDByunzOnIOwdj9vvh1alWlJJbt-OmfluCghU3PRcmMD177VYgqlJww.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+سلام وحید جان دوباره ساعت۴:۲۸ دوتا موشک از خمین زدن
+شلیک دو موشک از خمین
+درود ساعت 29 4  الیگودرز دو شلیک موشک
+خمین الان دوتا موشک
+وحید از سمت خمین و الیگودرز دوتا شلیک کردن ۴:۳۰
+همین الان صدای انفجارزیادامد
+من حوالی شهراراکم سمت خمین بود
+خمین ساعت ۴و۲۷ دقیقه موشک پرتاب شد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76985)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 04:34:54
+
+<img src="https://cdn1.telesco.pe/file/VSeSNEwm9ExvmwlIXIrL50mYGmBT0TDQHnUpWB4ry56cksBj-GfbGviu0VJKL18S9TPw5nJ5vIJv7BI7x5PVoatZnXlPTHBrC8Ko7Vr7jVBO_HG4IyTfV0sO-wU0Ie8Oc94BHFO_ZfTUpsvk9SXTtAHRKODob6-x1bhZqyeda7s33JA2YKxtgQcK5-j5h3eppixRXfmXWTXg6xCCGEIS28yRcqaXNYrkq9pHKK7BaLX99Qj6gCnMPKnfMpHnpKeq2MCCPjn2EZOIN-TNgyX8BWSL3jPP93gwJxH2CxPog06dmMbwFvfPEu8JB6ou6BknjQ449L_QopkoMCXMmX-keQ.jpg" width="400"><br>
+
+تصاویر دریافتی با شرح: 'انفجار و آتش‌سوزی [سمت] فرودگاه
+#امیدیه
+در خوزستان
+دوشنبه ۲۲ تیر حدود ساعت ۳ بامداد'
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76980)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 
 
 پیام‌های دریافتی:
+‌
 اهواز صدای خیلی شدید اومد
 همین الان انفجار شدید اهواز
 درود وحید جان ، همین الان اهواز صدای انفجار شدید اومد ساعت 1:31
@@ -81,6 +122,15 @@
 سلام دزفول رو دوبار پشت هم زدن
 🔄
 موج بعدی پیام‌ها از دزفول درباره شنیدن شدن صدای انفجار در ساعت ۲:۱۹ و ۲:۲۵
+🔄
+امیدیه ساعت ۳:۰۲
+درود امیدیه خوزستان همین الان صدای چندتا انفجار پست سر هم اومد
+امیدیه خوزستان چند دقیقه پیش ۴ تا پشت هم زدن کل شهر لرزید
+ساعت 3:02 دقیقه
+صدای بشدت وحشتناک توی امیدیه اونقد که شیشه ها لرزید
+پازنون هم زدن
+صدای چند انفجار  در امیدیه شنیده شد
+حدود ساعت 3 بامداد
 📡
 @VahidOnline
 
@@ -90,7 +140,7 @@
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 <img src="https://cdn1.telesco.pe/file/H6ImycqV23u-4MXMf-ZttpJnUcP-PO9Z2vwMjeWFWZoiCAMvM5cvf5ncepidRNR7R9aBMvXDk8Ai023uB4F1ZJiORH6ulx6P7n3SEKdlIVZb0OnAd5R0-7JylFdlEkF_Pk6gdcIdXJy1z6Jj4r83tf6raVTxJbXFdOmXi8VdZV_FISSBuX28tGZtCzN5HEqQnYoTlq7twJFJeadm-gLZtQxPQpBBIRNAxd8mMHl_ruzzAuTSKFAlsBIcfZi8rX5Q8eLT6N1d5mGcOe7IOKhlVzgUiXYvViF2CqsNSZiTEJuxwF-0hUnAcG-iJOiQDnSoJ7y_Tr_a8d5ggia0MDauxg.jpg" width="400"><br>
 
@@ -107,7 +157,7 @@ Vahid
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 <img src="https://cdn1.telesco.pe/file/WRFjvEWNF5urDLBZdZAltarhyWf4gjKemV4x36qUogKkBYfh6LNzXpveWweUPRzLMcOjwfT4mLVxqWoFyJJy69xU5R6MkxsG7jun7LNpBycp9211vr-IKP50KlD2bAjjwsGy0dYX8f9XxJ0O37wy_0E3onrkmEJ0f_USmi5pn7JNBus82tXRNv6YTMF9d84FaP3JsLqy4ebU2bNfG-sLtVGWOLSNEUVsjOJM9d7AHcxnEeiXhdBNaBk8dqdOCM0dgdcU4bt4y7QyP8frWg3aUruh-gVf8ppwa6CV5Mxv8pYIi7s-tr7WSH6JbI3Hlj6KsLfyQIPoj14_q7CEHb6-IA.jpg" width="400"><br>
 
@@ -124,7 +174,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 
 
@@ -170,7 +220,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 <img src="https://cdn4.telesco.pe/file/vXfhTa8f_7WKlopYIUb0tJTrt7es0VeD0QJVGHNcSZQN64f9yMeALvBS7eotgz6-ZGQNzYGaFEXD3RCH7rSu2No6F3zzTVa3cDoaUsAPwNCrFVGHQB-xJPQ9V2h6QyseTKwAA4XByPtZgd31p7YDOhMg085lXHIdUAKWWW-v7iUZHadn8HnahkH-cv6DyONq0ywslnArHE_B429CjSAYckuyNqFmZP7vugoKEamnZE1KGCjaY2s-6czLbFMbKALmkp33gDKbaetQtvIug2CE8odAU-gE5oN_fH0MTFbmrHlQ8NGbWor2ajrwwLmTKrwYFJN9xdxwhfRWwrmrAMqa5A.jpg" width="400"><br>
 
@@ -193,7 +243,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 
 
@@ -212,7 +262,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 <img src="https://cdn1.telesco.pe/file/Z5mIE3ZgkI9eXiFu5RyVonNu1_DqwSwkXO_d8PF0Jc-xwOdHj8J8gmWbh68GNdSDmv6hISdpEil9W6VP-JOivRbaGxRHT9gY_vsuxFpB6z9TOB_D0bw9D5FFgQzh91v0x6ZSxkBUE6KEaf_ti-GU44BP-NJOTYI5q4S44XzIyVXTRp-efWC5AU6XfEuyLbIOuEeFc-7j9_A9OI34H6jNRmycbsLZNUv_3ofry45EKYVSucSfctMhk9ws4tP49-Oho4bt8n_EgaEwvQ7uEuA0AJSZxu_rEQcNEhacPD4z0CGZyJhuOdq6fW6jQazoeIhdMcjKunW59NK1iOLMTN3H1g.jpg" width="400"><br>
 
@@ -250,7 +300,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 
 
@@ -268,7 +318,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 <img src="https://cdn4.telesco.pe/file/d4ddjD7p3hQiCOWm85cLmU4Q8wFY9dNiK1uw_iRcSurhKEcaq54h2GCvyPAUk_X4myj3SRhHQeDekI7UGlMgVKKQLy9eIOKsNWMgC0uCsLWsN5P9YxzFd3VFBJQiuZGF4Wu0bTY94wk7lagKb6zYUK59kKmQx3O8Qz7FBtEs3P04SpjnhD7VNXhhLVdM_k2j6FDjk170CiZasAJBD-cCZ9baZtFDqNPYixu5CQjAEDn-eK6xMfUnJop5HWxq0TFhEpWEBE3u9oQbuMphuwg9M_xT8B1Po0JGbfE6v4jYXREvs0xKE1MNa3ln3Dgu33iiO53nsMxjRmWWydAOg2xeCA.jpg" width="400"><br>
 
@@ -285,7 +335,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 02:57:16
+###### 🔵 Updated at: 2026-07-13 04:34:54
 
 
 
@@ -308,140 +358,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76967)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 02:57:16
-
-
-
-ترجمه ماشین:
-خبرنگار:
-شما آشکارا دور تازه‌ای از حملات را آغاز کردید؛ آن هم شبانه. ایران شب گذشته گفت تنگه هرمز بسته است. سنتکام صبح امروز اعلام کرد تنگه هرمز باز است. کدام درست است، آقای رئیس‌جمهور؟
-ترامپ:
-نمی‌خواهم درباره‌اش صحبت کنم، چون می‌خواهم به زندگی لیندسی گراهام ادای احترام کنم. بنابراین نمی‌خواهم درباره‌اش حرف بزنم. پیش از تماس هم این را به شما گفتم.
-بله، تنگه باز است. دیشب حسابی بمبارانشان کردیم. آن‌ها آدم‌های بسیار، بسیار شرور و بیماری هستند.
-تمام روز گذشته با آن‌ها جلسه داشتیم. دیروز با یک توافق عالی برای ما موافقت کردند: نه برنامه هسته‌ای، نه این و نه آن، هیچ‌چیز. از همه‌چیز دست کشیدند و بعد از آن اتاق را ترک کردند و سپس، ظرف یک ساعت، پهپادی به‌سوی یک کشتی پرتاب کردند.
-گفتم: «شما بیمارید؛ آدم‌های بیماری هستید.»
-بنابراین ماجرا از همین قرار است. نمی‌خواهم درباره‌اش صحبت کنم.  می‌خواهم امروز درباره یک نفر صحبت کنم: لیندسی گراهام.
-NBC
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76966)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 02:57:16
-
-
-
-ترجمه ماشین:
-مجری:
-ایران اعلام کرده تنگه هرمز را بسته است. آیا این درست است، آقای رئیس‌جمهور؟
-دونالد ترامپ:
-تا جایی که به ما مربوط است، باز است. درباره‌اش صحبت نکن. درباره موضوعی صحبت کن که به خاطرش از من خواستی حرف بزنم.
-مجری:
-باشه. از وقتی که در اختیار ما گذاشتید ممنونیم، قربان. پیش از اینکه اجازه بدهم بروید، آیا حرف پایانی دیگری هست که می‌خواهید مردم آمریکا درباره لیندسی گراهام بدانند؟
-ترامپ:
-نه، فکر می‌کنم بهترین لحظه‌اش دفاع او از برت کاوانا بود؛ مرد فوق‌العاده‌ای که دموکرات‌ها با او بسیار، بسیار ناعادلانه رفتار کردند.
-هرگز چیزی شبیه آن ندیده‌ام. شاید بدترین رفتاری بود که تا به حال با کسی دیده‌ام. من را هم شامل می‌شود. البته، شاید نه من، اما تقریباً همه را شامل می‌شود.
-با او به‌شدت ناعادلانه رفتار شد و لیندسی، همان‌طور که یادت هست، آن لحظه را رقم زد. و می‌دانی، باید به تو بگویم، جیک، فکر می‌کنم یکی از ده لحظه برتر، شاید یکی از پنج لحظه برتر تاریخ سنا بود.
-نمایشی باورنکردنی بود. و آن را از ته دل انجام داد. نسبت به برت احساس عمیقی داشت و آن را از ته دل انجام داد و کل ماجرا را برگرداند.
-واقعاً شگفت‌انگیز بود. آن یکی را باید دوباره پخش کنند.
-مجری:
-خب، می‌دانم که از روی احترام به لیندسی گراهام نمی‌خواهید درباره هیچ موضوع دیگری صحبت کنید، اما ما دوست داریم زمانی دوباره شما را داشته باشیم، چون واقعاً پرسش‌های بسیار دیگری از شما دارم، قربان.
-ترامپ:
-حتماً. این کار را می‌کنیم. این کار را می‌کنیم.
-مجری:
-از اینکه تلفنی با ما همراه شدید متشکرم.
-ترامپ:
-می‌خواهیم CNN را در مسیری عادی قرار دهیم و این کار را خواهیم کرد.
-مجری:
-خب، من همین‌جا در مسیر عادی هستم، قربان، و از وقتی که در اختیار ما گذاشتید سپاسگزارم و ممنون که تماس گرفتید.
-ترامپ:
-باشه. خیلی ممنون.
-مجری:
-بسیار متشکرم. بعد از این وقفه کوتاه برمی‌گردیم.
-CNN
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76965)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 02:57:16
-
-<img src="https://cdn1.telesco.pe/file/GxO6IGYK05IF6DNxsRpGWYZTcDeaf2XB5SP8hBbfzsxoXY7UbeCjqNw3HAnUMmD0RgPtD4kC86f9v0eUzm03V2RNjXBuDr1AM32xwvF9tax4XGsQG8FkcR6dcN3VYXTo0QJoVHBaCQXZ08IktuAbcS_Cyu4kMBSwl7xxAtpqQBJpASywBgCHXRxwrII1LFjfL0jADkas9HKMhYZg1r8-fyXvGRyZJ3MnloGxgyLOUQqd0pJxc9wW6jbggFO5G4_AjYupctvjLyQ9TCgIbkunt0vLE7mqRgLrjaBhtrnEfrlT9j9rYzwiJlktzd61sfq7XFnBVsnECQFIjTPBsC0jTw.jpg" width="400"><br>
-
-نهاد مدیریت آبراه خلیج فارس، نهادی که به‌تازگی برای اعمال مدیریت جمهوری اسلامی ایران بر تنگه هرمز تاسیس شده است، یکشنبه ۲۱ تیرماه با انتشار بیانیه‌ای اعلام کرد تردد از این آبراه در حال حاضر امکان‌پذیر نیست.
-در این بیانیه، آنچه «تحرکات غیرقانونی اخیر نیروهای نظامی ایالات متحده در منطقه» خوانده شد، علت توقف تردد عنوان شده است. این نهاد افزود پس از برقراری ثبات و آرامش، درخواست‌ها بر اساس زمان ثبت بررسی و مجوزهای لازم صادر خواهد شد.
-@
-VahidOOnLine
-پست سنتکام، ترجمه ماشین:
-🚫
-ادعا: فرمانده نیروی دریایی سپاه پاسداران انقلاب اسلامی اخیراً در رسانه دولتی گفته است هیچ شناور خارجی‌ای نمی‌تواند بدون شناسایی، ردیابی و نظارت نیروهای ایرانی از تنگه هرمز عبور کند.
-✅
-واقعیت: ایران تنگه هرمز را کنترل نمی‌کند. این تنگه همچنان یک آبراه بین‌المللی است. نیروهای ایالات متحده مستقر و آماده‌اند تا همین وضعیت را حفظ کنند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76964)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 02:57:16
-
-<img src="https://cdn1.telesco.pe/file/fcwrn0GUjHaZPWcgCyfRh9JDLC4RGslhcu19fnZzaBVyETWNn1n8mwMb0-UDDIE0wSTCHcdbigRqr9ii2hcArh7TZ5Q7-42Dw3YxxeA7x8tuMj2Bag7zz2D-qpPeAlUvmyuY8uOP8iAHSmFIzhS-uBQ2i3evwXp5OAg0R6lzJPEgCqNDQFsMXBuu_75M5SPpCQZ5SNpvNOdS8oapsafCRUSVkT3bDc5nV1pChnrSTAhgRnXQZHwVRie7PbortWvUeaAddFuG_ZyAmZ2mDdaGkt6M9_OpSmK2AZ0O3KUB1W6NUgOZS9bxFIi9JV40mH7LPW38Up6T6KgmaS7Zx08J0A.jpg" width="400"><br>
-
-سنتکام: تنگه هرمز باز است
-پست اکانت فرماندهی نظامی آمریکا، ترجمه ماشین:
-تنگه هرمز به روی همه شناورهایی که قصد عبور قانونی از این آبراه بین‌المللی را دارند، باز است. نیروهای ایالات متحده مستقر و آماده‌اند تا اطمینان حاصل کنند که آزادی کشتیرانی، با وجود تجاوزگری بی‌دلیل، آزار و اذیت، تهدیدها و اعلامیه‌های خودسرانه ایران، همچنان برقرار می‌ماند. ایران کنترل تنگه را در دست ندارد. تردد در جریان است.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76963)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 02:57:16
-
-<img src="https://cdn1.telesco.pe/file/gW7oZrZ6hXWK0GlGOXkbUcq3384y_dpuF_8guq3RTXihJYE4QwMyJOKa1VSpd_ZbY7n_y3apU8MmvQbDb7vB6XEztCmG4UpRHq7c0oc25xgMRh9dpI_uFamXW7EbvGcydQo7VeLerEGJtWui4CrvVubxu_uDuRcocFELuAmSicMreFPgP8K9MKqeQRIr8eZnRZEFCnjD9Y2P2l-1vcPwvTPUItDMhhfbeU6_s76okzOje4_rbQg5R6OK7zIkAv_oCeQU3n2mloL0pkQ_w67lQu0YHPvxeiNdbYWTNH8IwyRbPVNJPGrqGx5x8I2UrX7SXe7iUOUGXguWzxH4r4vfIA.jpg" width="400"><br>
-
-سپاه پاسداران و ارتش جمهوری اسلامی بامداد یک‌شنبه ۲۱ تیر۱۴۰۵، از گسترش دامنه حملات خود به پایگاه‌ها و تاسیسات نظامی آمریکا در منطقه خبر دادند و مدعی شدند هم‌زمان اهدافی در عمان، قطر، اردن، کویت و بحرین را هدف قرار داده‌اند.
-هم‌زمان گزارش‌هایی از فعال شدن سامانه‌های پدافندی، به صدا درآمدن آژیر های خطر و شنیده شدن صدای انفجار در چند کشور منطقه منتشر شد.
-این حملات در حالی رخ داده که عمان و قطر طی هفته‌های گذشته نقش اصلی میانجی‌گری میان جمهوری اسلامی و آمریکا را بر عهده داشته‌اند.
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، یک روز پیش از این حملات در مسقط با بدر البو سعیدی، وزیر خارجه عمان، درباره کاهش تنش‌ها و سازوکار عبور امن کشتی‌ها از تنگه هرمز گفت‌وگو کرده بود. عمان همچنین پیشنهادهایی برای حفظ امنیت کشتیرانی و اجرای تفاهم‌های مربوط به تنگه هرمز ارائه داده بود.
-قطر نیز در کنار پاکستان از میانجی‌های اصلی گفت‌وگوهای تهران و واشنگتن در چارچوب تفاهم‌نامه اسلام‌آباد محسوب می‌شود. با این حال، سپاه پاسداران هم‌زمان با تأکید مقام‌های جمهوری اسلامی بر ادامه مسیر دیپلماسی، بار دیگر مدعی حمله به پایگاه العدید در قطر شد و اکنون نیز از حمله به اهدافی در خاک دو کشور میانجی، عمان و قطر، خبر داده است.
-@
-VahidHeadline
-فرماندار درود در استان لرستان روز یکشنبه ۲۱ تیرماه از برخورد بوستر (پیشران) یک موشک به یک منزل مسکونی در محله بلوار تختی این شهر خبر داد.
-به گفته این مقام محلی یک واحد مسکونی و پارکینگ بر اثر این اصابت دچار خسارت شدند اما کسی بر اثر این سانحه کشته یا مجروح نشده است.
-@
-VahidOOnLine
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه ۲۱ تیرماه با انتشار پیامی در شبکه اجتماعی ایکس، درگذشت شیخ حمد بن خلیفه آل ثانی، امیر پیشین قطر، را تسلیت گفت.
-عراقچی در این پیام به زبان عربی نوشت: « صمیمانه‌ترین مراتب تسلیت و همدردی خود را به امیر شیخ تمیم بن حمد آل ثانی، خاندان ارجمند آل ثانی و ملت برادر قطر ابراز می‌داریم.»
-این پیام عراقچی در حالی منتشر می‌شود که بامداد روز یکشنبه، نیروهای مسلح جمهوری اسلامی، مناطقی در قطر را هدف حملات موشکی و پهپادی قرار داده بودند.
-قطر یکی از میانجی‌گران کلیدی در جریان مذاکرات جمهوری اسلامی ایران با آمریکا به شمار می‌رود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76956)
 
 ---
 
