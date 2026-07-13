@@ -29,7 +29,7 @@ update_time_formatted = iran_time.strftime("%Y-%m-%d %H:%M:%S")
 
 update_time_html = f"""
 <div align="center">
-##### 🟢 Updated at: {update_time_formatted}
+<h5> 🟢 Updated at: {update_time_formatted} </h5>
 </div>
 """
 
