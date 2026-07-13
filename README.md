@@ -3,7 +3,114 @@
 
 <!-- POSTS_START -->
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
+
+<img src="https://cdn1.telesco.pe/file/lp025kdtQQNciv8VAb0GSC_0q2i5B8DcUqgKVRNHMqvMA_00JqhzMr3V8bYvrm-13uLqwkEddeMCho_zkPDxY6-a3KEqwBVkGki4fVCZcEG96uQigvgldIJ4WnZAzw2PEKcKOBcHSubuNXc8qaPga4lVjVrbcxxSViPKojZX-Kob-QXu8MVRfxB2vBxaaC_dL4C6woH528YY7wQdxWe67_GnFP3jlX8KTvGmy_Ku8sjCmBcubGlPpy88PtBySeojb1hVkEn-r9kw7zXBkWHmFQneptJTONf1DegocxBwtOhnrwzIcBBX0ZpBS2BpRpd1CfpWFKJjNFo2-RjD_JTc_w.jpg" width="400"><br>
+
+روزنامه هاآرتص در گزارشی تحقیقی نوشت موساد در چارچوب پروژه‌ای برای تغییر حکومت در ایران، محمود احمدی‌نژاد، رییس‌جمهوری پیشین جمهوری اسلامی، را به همکاری جلب کرده و او را به‌عنوان گزینه‌ای برای رهبری ایران پس از سرنگونی حکومت در نظر گرفته بود.
+بر اساس این گزارش، ارتباط میان موساد و احمدی‌نژاد از حدود یک سال پیش از حمله هفتم اکتبر ۲۰۲۳ حماس به اسرائیل شکل گرفت.
+هاآرتص نوشت اطلاعات جمع‌آوری‌شده از سوی موساد نشان می‌داد دیدگاه‌های احمدی‌نژاد پس از پایان دوران ریاست‌جمهوری‌اش در سال ۲۰۱۳ تغییر کرده و او به یکی از منتقدان برجسته حکومت جمهوری اسلامی تبدیل شده است.
+به نوشته این روزنامه، مقام‌های اسرائیلی به‌ویژه به دیدگاه احمدی‌نژاد درباره تحریم‌ها و برنامه هسته‌ای ایران توجه داشتند. احمدی‌نژاد معتقد بود ایران نمی‌تواند تحت تحریم‌ها به وضعیت موجود ادامه دهد و برنامه هسته‌ای، به‌جای یک مزیت، به باری برای کشور تبدیل شده است.
+هاآرتص نوشت افرادی که روند ارتباط با احمدی‌نژاد را دنبال می‌کردند، به این نتیجه رسیدند که مخالفت او با حکومت به اندازه‌ای شدت گرفته که ممکن است حاضر به همکاری با موساد و سپردن سرنوشت خود به این سازمان باشد.
+بر اساس این گزارش، گروهی از ماموران موساد روز هفتم اکتبر ۲۰۲۳ پس از فرود در فرودگاهی در کشوری دیگر، از حمله حماس و کشته شدن صدها نفر در جنوب اسرائیل مطلع شدند، اما ماموریت خود برای جلب همکاری احمدی‌نژاد را ادامه دادند.
+هاآرتص نوشت با ورود این ارتباط به مرحله‌ای تازه، دیوید بارنئا، رییس وقت موساد، شخصا بر عملیات نظارت کرد و حتی برای پیگیری تحولات مربوط به احمدی‌نژاد، از شرکت در یک نشست امنیتی با بنیامین نتانیاهو خودداری کرد.
+به نوشته این روزنامه، ارتباط با احمدی‌نژاد در ماه‌های بعد نتایجی به همراه داشت و در اوایل سال ۲۰۲۶، هم‌زمان با تبدیل شدن ایران به جبهه اصلی، او به یکی از مهم‌ترین دارایی‌های اطلاعاتی اسرائیل تبدیل شد.
+هاآرتص گزارش داد پس از تصمیم اسرائیل برای اجرای عملیاتی با هدف سرنگونی جمهوری اسلامی، احمدی‌نژاد برای در دست گرفتن زمام امور در دوره پس از تغییر حکومت انتخاب شد.
+بر اساس این طرح، انتظار می‌رفت احمدی‌نژاد ایران را در مسیری هدایت کند که از تلاش برای دستیابی به سلاح هسته‌ای صرف‌نظر کند و تصویری متفاوت از این کشور به جهان ارائه دهد.
+این روزنامه نوشت احمدی‌نژاد تنها بخش علنی پروژه تغییر حکومت بود و در پشت این طرح، عملیات نفوذ در داخل ایران، برنامه مسلح‌سازی و آموزش نیروهای کرد در عراق، تلاش برای بسیج اقلیت‌های قومی با هدف بی‌ثبات کردن حکومت و برنامه‌های نیروی هوایی اسرائیل برای ایجاد یک کریدور زمینی جهت جابه‌جایی شبه‌نظامیان قرار داشت.
+بر اساس گزارش هاآرتص، سه روز پیش از زمان تعیین‌شده برای آغاز عملیات، اختلاف‌ها به اوج رسید و ایال زمیر، رییس ستاد ارتش اسرائیل، دستور توقف همه اقدامات را صادر کرد، اما بنیامین نتانیاهو تصمیم گرفت عملیات ادامه یابد.
+این روزنامه نوشت طرح نتانیاهو و بارنئا پیش از آن‌که نیروهای کرد حتی یک گلوله شلیک کنند، فروپاشید.
+هاآرتص برای تهیه این گزارش با بیش از ۳۰ مقام ارشد سیاسی، امنیتی، دیپلمات و منبع خارجی گفت‌وگو کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77002)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 19:20:30
+
+
+
+فرماندهی مرکزی ایالات متحده (سنتکام): یک تأسیسات نگهداری زیردریایی و کشتی در ایران برای نخستین‌بار با استفاده از شهپاد هدف قرار گرفتند
+ترجمه ماشین:
+دیروز، نیروهای سنتکام با استفاده از چندین شناور سطحی تهاجمی یک‌طرفه، با موفقیت یک زیردریایی و یک تأسیسات تعمیر و نگهداری کشتی در ایران را هدف قرار دادند. سه شناور سطحی بدون سرنشین «کورسِر» به بندر پایگاه دریایی بندرعباس اصابت کردند؛ رویدادی که نخستین استفاده نیروهای آمریکایی از پهپادهای دریایی در عملیات رزمی را رقم زد. حملات شب گذشته توانایی ایران برای ادامه حمله به کشتیرانی تجاری را کاهش داد.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77001)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 19:20:30
+
+<img src="https://cdn1.telesco.pe/file/FQY-7hRXIAQ8E1FJexRb14bBtzJiGczBKFCSf4_rR8x8ef3XI4VUToD6_djQoAlvewpTaK79eVuJAB6MgV5jiaxfo3NuaYRBL6msRd8NdIXWjdYReaJPEeTMdF5jlg5CLnLT2dvE_4RN0yEFPJzKMoXPOYoAuujp86rdfvGJOG4mjqyeGvsavzdEx1JKpydGXqY3oNUWw5UaMelM-f18A04-pCwdrrmNXCU4_l4-6T7dW3t9ig3QepkpfSPHoq0SX3EQUghhxskoL8H7SuhGCpffgD7VV7-WnFE6lCOJblmaVh_qviR-nQL6ZHK3GlWD8okpH_E7_r7cgNMEWlg6rA.jpg" width="400"><br>
+
+ترامپ: محاصره دریایی ایران را دوباره برقرار  می‌کنیم
+ترجمه ماشین:
+تنگه هرمز باز است و با ایران یا بدون ایران، باز خواهد ماند.
+ما «محاصره ایران» را دوباره برقرار می‌کنیم؛ این نام به این دلیل انتخاب شده که این محاصره فقط مانع ورود یا خروج کشتی‌ها یا مشتریان ایران می‌شود. همه کشورهای دیگر امکان استفاده آزادانه و منصفانه از تنگه را خواهند داشت.
+از این پس، ایالات متحده آمریکا با عنوان «نگهبان تنگه هرمز» شناخته خواهد شد؛ اما در مقام چنین نقشی و از سر انصاف، بابت تمامی هزینه‌های لازم برای تأمین ایمنی و امنیت این بخش بسیار پرتنش جهان، معادل ۲۰ درصد ارزش تمام محموله‌های حمل‌شده را دریافت خواهد کرد.
+روند اجرا و تشکیل این سازوکار بلافاصله آغاز خواهد شد. از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77000)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 19:20:30
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه ۲۲ تیر ماه در گفتگو با شبکه خبری فاکس اعلام کرد چیزی از توان نظامی جمهوری اسلامی باقی نمانده است.
+او در این گفتگوی تلفنی تاکید کرد: «آنها هیچی ندارند. نه نیروی دریایی دارند، نه نیروی هوایی، همه‌چیز از بین رفته است. پدافند ضد هوایی‌شان نابود شده، رهبران‌شان همگی کشته شدند. بهترین رهبران‌شان کشته شدند. آنها دیگر نیستند.»
+ترامپ در ادامه این مصاحبه با اشاره به وضعیت داخلی جمهوری اسلامی افزود: «خمینی [خامنه‌ای] از بین رفته است،
+۹۰ درصد از پسرش هم بین رفته است.
+آن وقت نیویورک تایمز مقاله‌ای می‌نویسد که «وضعیت آنها امروز بهتر شده» تازه آنها تورم ۳۵۰ درصدی هم دارند.»
+این سخنان دونالد ترامپ در حالی مطرح می‌شود که طی پنج روز گذشته، با افزایش تنش‌ها در تنگه هرمز، فرماندهی ارتش آمریکا (سنتکام) حملات گسترده‌ای علیه مواضع نظامی جمهوری اسلامی در ساحل و استان‌های جنوبی ایران انجام داده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76999)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 19:20:30
+
+<img src="https://cdn4.telesco.pe/file/Y8qAKqT7mYcrk7Y7tmeFMh7Sd3ASqgQczQN0y1h5FxoK8aJP-qVnDtlkUyizCJ30Rm1WJWUpsCiW3YGWzETlmKWWaZ0t20X044XSu--F4-fkmzBk9EHgCZ_UJ-tuJSl9looNE298GYuPG2eiqgrwYoWbGQu0bi2r8IfdixZBcaRdms0FmZPBE9odCquHdkaLYBU9YuWKXxNs_A1DwoqRlPfgDMphBsiiY1_7_g9JoSiSwHt9LWo91WPjC9iiIz3_Xfkptl0lCmT2RJar0OogRBTNBYHhkI-u-ia5mvwYGTFV3rUjz7UaOTn87ZHfv8tvcjCJoUB2pyHNnqnPcB4heQ.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با شبکه فاکس‌نیوز با اشاره به تحولات مربوط به ایران و تنگه هرمز گفت: «کنترل تنگه هرمز را به دست خواهیم گرفت.»
+او افزود: «ما به یک توافق رسیده بودیم، اما آن‌ها آن را نقض کردند.»
+ترامپ گفت ایالات متحده مسئولیت حفاظت از تنگه هرمز را بر عهده خواهد گرفت و افزود: «باید هزینه این کار به ما پرداخت شود. ما بابت حفاظت از این تنگه، پول دریافت خواهیم کرد.»
+رییس‌جمهوری آمریکا همچنین درباره مقام‌های جمهوری اسلامی گفت: «آن‌ها گروهی بد هستند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/76998)
+
+---
+
+
+
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 <img src="https://cdn4.telesco.pe/file/u6AWuo4_e5QImAzSWUv3Y6JFkO69jqnm0u4aWqqFwbe2HASmKfW3c9vR2wOGfKKRa55oPeh-UaXzOZB6Mx_jc_1SUDLG26Dt956Zl7hDurdnDlpPdcWZCnxmWzOwbiZn3TTdMyij5orHlFRlNR8fNisNSflStz6nZ1Kkcb9X9K3pv5bxkBIXxu5Y3C76Tt0un3JLPibGglJH8W6lTMDM_k1OpxoMNY76AO4Rr7Q3yN3ucpSYMQjToJhkPktDsy-TmSVzHNXt34lzl8ozP05lWaLFlYeLTYd6w7FQMEEPadqo7BrcM9icLisqdleDZRgDHWjghXxDHkQA6gERYCvVFw.jpg" width="400"><br>
 
@@ -22,7 +129,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 <img src="https://cdn1.telesco.pe/file/uEqC5-6mw9jPisw501WwuW4BpL1GEVtESoIKEMUt5TzcsW_HWVG8mQ4HjxiqZRVvLpQOgSHPalO5lbj5qtoSpqlqCipqk19BonP2EeFT6ugRxcZGaNv4906Ch7brOjsQUFmGp_drm-Wunwv_rSO8KR58N0J6-ghjAnyzCKQT01kpZhXerDbMP8l_NhiVg_-1sywFgHHkaxpLNeMVGPyZjPpz3vaijifCjIYP-MqKRRb64rvgRhXAJVCYzszdUMAe3cb7RRrr4d_hBQelgqeGtVHAWkRwZqkSe-b_u-s2xofyquQiqVC1RvUZSouW91MwoyQ6ZISBtm53uqra-CKpJg.jpg" width="400"><br>
 
@@ -53,7 +160,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 
 
@@ -84,7 +191,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 
 
@@ -125,7 +232,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 
 
@@ -218,7 +325,7 @@ CENTCOM
 
 
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 <img src="https://cdn1.telesco.pe/file/cFDn-0-Q3stux-1hOnLmJ91jSzrvLjXmJGxZ0DcCYiDk-ckHrkt8rf4E2z-J89pBOZpGmAQf5IYm0rxMrULHS3Plaskzrb9esEE70mDCaUCc2vJED0KRBeaXOB8vZAQ0obShloIqioUaGduaudfFgXmclq-4IQa7_fNLNcpZZFSqV7BHkJtS8WtgT3qZnhlKGXT4We-Wa-d9cOV-lDgVxjyffLcGSHW9HOITFS06WOBB8Py5dX8PCJS4TuuORauNLsilX_WPRfGm1bNbRh2houn3ziuQISOHD3R8GWwZ7qpKC3pbvK4GqFrDv36JCCqkuGRdCHF1ZfvxsWu33cicug.jpg" width="400"><br>
 
@@ -248,7 +355,7 @@ VahidOOnLine
 
 
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 <img src="https://cdn1.telesco.pe/file/FU9wQNlNIuu2BgyIGTViqCz9Dwaytaa_kup8Nh3jAIf47xapwEX6giKgxVnp9aaWDFtzYtqbSIt3clDCZI5Z7xcCSL59lppf45Eb0x_-DylBMuqKUjJy1gM0q5UGMT3UJSr5gTyHuXAWBMu_S3oNhCogWXxPY3CacmCXH5Dpdo8BPV6H-Q_4u5w6HXu2bscfNRpB-o_XgFp9Uu4iIA8hotL9gkMuMwtDieqYAy1GsVk3iUWjmJW321nhMC6-e0mVl58Zgvn351mbq-q55oqI71j1hSzRnmMGlfytmsl7vjIJpO1GaiiCD4UUMjKJs7IyZ4JMY3GvfxR1FzAwvVYAGg.jpg" width="400"><br>
 
@@ -269,7 +376,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 <img src="https://cdn1.telesco.pe/file/ce9a9iPUoJISI1qVcCX0B8oUztAKPJvhINeznDVzvS9AE8OKs3JJld2K-K69J9DHJs2ss8b2w7q_So1ApL4KS-TQ_XumoJfH8TdSKSp8kqeDl7bT8HRAe8kd2cSGf7nZxUMJa4BBbKDHNRa9sOIHsJto6b8SoeyP7NbpY5OCP8N8aHMAbvBdbbF1j5XUpgQzI5cRumCZTcgqH-TiWQt4P5o429iADeEcCd6JCNyN114qXLp3QzQtMI3MO1OKwsoYEfREswQaDWCluhDSoaL6E6-CavWPfse8EKTmYq7DbRTX0wCAqMl-_EQCKRqkD10f_jvCjHueGQ9O0czzFpZ65A.jpg" width="400"><br>
 
@@ -293,7 +400,7 @@ VahidHeadline
 
 
 
-###### 🔵 Updated at: 2026-07-13 16:39:33
+###### 🔵 Updated at: 2026-07-13 19:20:30
 
 <img src="https://cdn1.telesco.pe/file/VSeSNEwm9ExvmwlIXIrL50mYGmBT0TDQHnUpWB4ry56cksBj-GfbGviu0VJKL18S9TPw5nJ5vIJv7BI7x5PVoatZnXlPTHBrC8Ko7Vr7jVBO_HG4IyTfV0sO-wU0Ie8Oc94BHFO_ZfTUpsvk9SXTtAHRKODob6-x1bhZqyeda7s33JA2YKxtgQcK5-j5h3eppixRXfmXWTXg6xCCGEIS28yRcqaXNYrkq9pHKK7BaLX99Qj6gCnMPKnfMpHnpKeq2MCCPjn2EZOIN-TNgyX8BWSL3jPP93gwJxH2CxPog06dmMbwFvfPEu8JB6ou6BknjQ449L_QopkoMCXMmX-keQ.jpg" width="400"><br>
 
@@ -306,120 +413,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/76980)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 16:39:33
-
-
-
-پیام‌های دریافتی:
-‌
-اهواز صدای خیلی شدید اومد
-همین الان انفجار شدید اهواز
-درود وحید جان ، همین الان اهواز صدای انفجار شدید اومد ساعت 1:31
-اهواز ساعت 1:31 بامداد صدای انفجار
-اهواز ساعت ۱:۳۰ صدای ۳ تا انفجار
-هواز همین الان زدن ۰۱:۳۲
-سه تا موج انفجار پشت‌سر هم ، شدید تر از دوران جنگ  بود ، من مرکز شهر ساکن هستم
-سلام دارن اهواز و میزنن ساعت 1/28دقیقه
-سلام وحید ساعت ۱:۳۰ سمت فرودگاه و گلف رو زدن خیلی وحشتناک بود
-😭
-😭
-😭
-سلام  آقا وحید. اهواز ساعت ۱:۳۰ دو تا انفجار پشت هم
-وحید همین الان ساعت ۱:۳۰ اهواز رو زدن، کیانپارس خیلی شدید حس کردیم
-اهواز دو تا محکم زد
-ساعت ۱:۲۹
-اهواز و‌همین الان زدن صدای سه انفجار اومد نزدیک سیصددستگاه/سپیدار
-اهواز صدای انفجار
-سلام الان ساعت ۱:۳۲اهواز سه صدا انفجار اومد
-اهواز همین الان دو صدا همراه با لرزش ساعت ۱:۳۰
-وحید جان همین الان ساعت  ۱:۳۰ اهواز صدای انفجار اومد.
-وحید جان اهواز صدای انفجار شدید
-وحید انفجار به شدت قوی تو اهواز خونه لرزید ۱:۳۰
-سلام وحید جان ساعت ۱:۳۰ اهواز صدا دوتا انفجار اومد منطقه کیانپارس یک مقدار ضعیف بود صداش
-سلام وحید
-ساعت ۰۱:۳۱ اهواز صدای انفجار اومد
-فکر کردم خیالاتی شدم، اومدم بیرون دیدم همسایه ها هم ریختن بیرون
-وحید جان
-اهواز ساعت 01:31  دو تا یا سه تا صدای شدید اومد
-اهواز لرزش شدید و صدای انفجار
-دقیقا نمیدونم کجا، اما زاویه‌‌ی صدا از سمت چهارشیر بود به نظرم فکر کنم سپاه چهارشیر
-صدا انفجار ماهشهر
-ماهشهر همین الان
-ما اهوازیم کوی باهنر
-صدای انفجار شدید
-بندر ماهشهر صدا اومد.
-اهواز ما سمت کیان آبادیم و واقعا صدای انفجار زیاد بود
-🔄
-همچنان خوزستان:
-انفجار شدید ماهشهر"همین الان"
-دوباره الان ماهشهرو زد،1:51
-شش انفجار 1/52 قشم-طولا شنیده شد
-سلام ماهشهر هم صدای انفجار اومد
-دوتا تا این لحظه 1:52
-سلام وحید جان اطراف بهبهان تا الان صدای ۶ انفجار اومد
-همینطور دارن میزنن
-سلام قشم همین الان صدای چند انفجار
-صدای از دور از سمت غرب جزیره
-همین الان صدای انفجار زیاد بالای ۵ تا داخل قشم شنیده شد
-بهبهان ساعت 1:52 بامداد صدای چهار انفجار شدید
-سلام وحید ما نزدیک فرودگاه ساکنیم حدود ساعت حدود یک و نیم دوتاصدای انفجار اومد همه همسایه ها ریختن بیرون معلوم نیست کجارو زدن
-قشم ساعت ۱:۵۰ زدن ، چندین انفجار شدید
-بهبهان‌رو الان چند بار زدن
-روشمهر پایگاه موشکی ساجد
-بهبهان خوزستان/ ۱:۳۲ ... صدای ۲ انفجار.
-مجددا ۱/۴۵ تا ۱/۵۰ بهبهان خوزستان صدای ۴ انفجار
-سلام وحید جان
-امیدیه صدای بسیار خفیف انفجار
-مشخصاً درون شهر مورد هدف قرار نگرفته
-احتمالا دقایقی بوده
-همین الان خوزستان بهبهان ۴ بار پشت سر هم زدن
-نمی‌دونم کجا بود
-🔄
-ساعت ۲:۱۵ دقیقه دزفول رو زدن
-در و پنجره ها لرزید
-دزفول خوزستان
-همین الان زدن
-سلام وحید
-دزفول رو دارن میزنن
-۰۲:۱۵ دقیقه
-سلام دزفول رو دوبار پشت هم زدن
-🔄
-موج بعدی پیام‌ها از دزفول درباره شنیدن شدن صدای انفجار در ساعت ۲:۱۹ و ۲:۲۵
-🔄
-امیدیه ساعت ۳:۰۲
-درود امیدیه خوزستان همین الان صدای چندتا انفجار پست سر هم اومد
-امیدیه خوزستان چند دقیقه پیش ۴ تا پشت هم زدن کل شهر لرزید
-ساعت 3:02 دقیقه
-صدای بشدت وحشتناک توی امیدیه اونقد که شیشه ها لرزید
-پازنون هم زدن
-صدای چند انفجار  در امیدیه شنیده شد
-حدود ساعت 3 بامداد
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76979)
-
----
-
-
-
-###### 🔵 Updated at: 2026-07-13 16:39:33
-
-<img src="https://cdn1.telesco.pe/file/H6ImycqV23u-4MXMf-ZttpJnUcP-PO9Z2vwMjeWFWZoiCAMvM5cvf5ncepidRNR7R9aBMvXDk8Ai023uB4F1ZJiORH6ulx6P7n3SEKdlIVZb0OnAd5R0-7JylFdlEkF_Pk6gdcIdXJy1z6Jj4r83tf6raVTxJbXFdOmXi8VdZV_FISSBuX28tGZtCzN5HEqQnYoTlq7twJFJeadm-gLZtQxPQpBBIRNAxd8mMHl_ruzzAuTSKFAlsBIcfZi8rX5Q8eLT6N1d5mGcOe7IOKhlVzgUiXYvViF2CqsNSZiTEJuxwF-0hUnAcG-iJOiQDnSoJ7y_Tr_a8d5ggia0MDauxg.jpg" width="400"><br>
-
-تصاویر دریافتی: 'بندرعباس، ساعت ۰۰:۴۳ بامداد دوشنبه ۲۲ تیر'
-Vahid
-صدا و سیما:
-بر اساس گزارش‌های اولیه، حمله امشب به دکل مخابراتی اطراف روستای طاهرویی سیریک بوده، همون جایی که در حملات قبلی هم مورد اصابت قرار گرفته بود
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/76977)
 
 ---
 
