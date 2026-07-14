@@ -3,8 +3,49 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-14 16:41:13 </h5>
+<h5> 🟢 Updated at: 2026-07-14 18:47:18 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-14 17:50:57
+
+
+
+نخست‌وزیر اسرائیل روز سه‌شنبه ۲۳ تیرماه هشدار داد که اگر تهران حملهٔ جدیدی به کشورش انجام دهد، اسرائیل با تمام قدرت به ایران ضربه خواهد زد.
+@
+VahidOOnLine
+ویدیویی که دفتر نتانیاهو منتشر کرده، ترجمه ماشین:
+ما برای هر سناریویی آماده‌ایم. فقط یک چیز می‌توانم به شما بگویم... نه، این را به رهبران ایران می‌گویم:
+اگر به ما حمله کنید، روی آرامش حساب نکنید. تصور نکنید آنچه در گذشته رخ داد، دوباره به همان شکل تکرار خواهد شد؛ زیرا این بار، تکرار گذشته نخواهد بود.
+حمله قبلی به‌اندازه کافی قدرتمند بود؛ حمله بعدی بسیار قدرتمندتر خواهد بود.
+دورانی که کسی به ما ضربه بزند و ما با ضربه‌ای چند برابر پاسخ ندهیم، به پایان رسیده است. این کار را در برابر محور شرارتِ ایران انجام دادیم و در برابر هر کسی که به ما ضربه بزند نیز به همین مسیر ادامه خواهیم داد.
+روش ما همین است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77066)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-14 16:42:28
+
+<img src="https://cdn4.telesco.pe/file/PWY7cCTMRyszN-bOuSvGwtI3jCIPu3rhmq1Qu-x0MCcsHBQzcEUFQWu3BNRvDaA4ic3JWn5W_vO7thBWBjf8k6zXrgAJ-9M1SNE02UM86nv6omlxQgig7sqR3RQbVe0ki8gMeYlgHysJMOtLffSKiXtMU_hCZoLOlXiebiBJX8RjYC_I5DfhNExmqGj0lAh_L8GbDHKGXXZuK4AIWtByjlJu2S5B7_i5vkq4hm4zbLu4LS8AmSkewzCDKswLvYAsvLNl5ZGHK1d538QgjWgN0JwWt_jj7ndmJ4apPsAzQ3ljmKhrKG324B0ZuDvdpTuj0cX002NFtfQoR_ZNJX0pdQ.jpg" width="400"><br>
+
+سی‌ان‌ان به نقل از یک منبع ارشد در تهران گزارش داد که اگر دونالد ترامپ تهدید خود برای حمله به تأسیسات زیرزمینی موسوم به «کوه کلنگ» را عملی کند، جمهوری اسلامی «پاسخی ویرانگر» خواهد داد. این تهدید در حالی مطرح شده که کوه کلنگ طی سال‌های اخیر به یکی از مهم‌ترین و امن‌ترین مراکز هسته‌ای ایران تبدیل شده است.
+دونالد ترامپ، رییس‌ جمهوری آمریکا، روز گذشته در گفت‌وگویی رسانه‌ای اعلام کرد که واشینگتن یک مجموعه زیرزمینی عمیق در ایران را به‌دقت زیر نظر دارد. او مدعی شد هرچند در حال حاضر نشانه‌ای از فعالیت آشکار در این مجموعه دیده نمی‌شود، اما آمریکا ممکن است به‌زودی «ضربه‌ای سخت» به دهانه ورودی این مجتمع وارد کند.
+کوه کلنگ گزلا که در رسانه‌های غربی با نام Pickaxe Mountain شناخته می‌شود، در استان اصفهان و در فاصله حدود یک‌ونیم کیلومتری از تاسیسات غنی‌سازی نطنز قرار دارد. به گفته کارشناسان، این مجموعه به دلیل عمق زیاد و استقرار در دل سنگ‌های سخت گرانیتی، یکی از مقاوم‌ترین تاسیسات زیرزمینی ایران به شمار می‌رود.
+برآوردهای فنی نشان می‌دهد سالن‌های زیرزمینی این مجتمع در عمقی بین ۸۰ تا ۱۰۰ متر و در برخی نقاط تا حدود ۶۰۰ متر حفر شده‌اند؛ ویژگی‌ای که آن را حتی از سایت غنی‌سازی فردو نیز عمیق‌تر می‌کند. به همین دلیل، برخی تحلیلگران غربی از این مجموعه به‌عنوان «دژ هسته‌ای» ایران یاد می‌کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77065)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-14 16:28:40
@@ -22,7 +63,7 @@ VahidHeadline
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77063)
+[View Post](https://t.me/VahidOnline/77063)
 
 ---
 
@@ -34,7 +75,7 @@ VahidHeadline
 
 روزنامه آمریکایی نیویورک‌تایمز در گزارشی اختصاصی که روز ۲۲ تیر ۱۴۰۵ منتشر کرد، از تلاش چندساله سرویس اطلاعاتی اسراییل برای جذب محمود احمدی‌نژاد، رییس‌جمهور پیشین ایران، به‌عنوان یک عامل اطلاعاتی خبر داد؛ طرحی که هدف نهایی آن، به گفته این روزنامه، نصب او در…
 
-[View Post](https://telegram.me/VahidOnline/77061)
+[View Post](https://t.me/VahidOnline/77061)
 
 ---
 
@@ -52,7 +93,7 @@ VahidHeadline
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77060)
+[View Post](https://t.me/VahidOnline/77060)
 
 ---
 
@@ -67,7 +108,7 @@ VahidHeadline
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77059)
+[View Post](https://t.me/VahidOnline/77059)
 
 ---
 
@@ -82,7 +123,7 @@ Vahid
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77058)
+[View Post](https://t.me/VahidOnline/77058)
 
 ---
 
@@ -125,7 +166,7 @@ Vahid
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77054)
+[View Post](https://t.me/VahidOnline/77054)
 
 ---
 
@@ -148,7 +189,7 @@ Vahid
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77053)
+[View Post](https://t.me/VahidOnline/77053)
 
 ---
 
@@ -169,7 +210,7 @@ CENTCOM
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77052)
+[View Post](https://t.me/VahidOnline/77052)
 
 ---
 
@@ -184,7 +225,7 @@ haalvsh
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77051)
+[View Post](https://t.me/VahidOnline/77051)
 
 ---
 
@@ -202,7 +243,7 @@ haalvsh
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77050)
+[View Post](https://t.me/VahidOnline/77050)
 
 ---
 
@@ -228,7 +269,7 @@ haalvsh
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77049)
+[View Post](https://t.me/VahidOnline/77049)
 
 ---
 
@@ -249,7 +290,7 @@ VahidHeadline
 📡
 @VahidOnline
 
-[View Post](https://telegram.me/VahidOnline/77043)
+[View Post](https://t.me/VahidOnline/77043)
 
 ---
 
