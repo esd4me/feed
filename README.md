@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-14 10:34:30 </h5>
+<h5> 🟢 Updated at: 2026-07-14 13:18:13 </h5>
 </div>
 
 
@@ -24,7 +24,7 @@
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77053)
+[View Post](https://telegram.me/VahidOnline/77053)
 
 ---
 
@@ -45,7 +45,7 @@ CENTCOM
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77052)
+[View Post](https://telegram.me/VahidOnline/77052)
 
 ---
 
@@ -60,7 +60,7 @@ haalvsh
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77051)
+[View Post](https://telegram.me/VahidOnline/77051)
 
 ---
 
@@ -78,7 +78,7 @@ haalvsh
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77050)
+[View Post](https://telegram.me/VahidOnline/77050)
 
 ---
 
@@ -104,7 +104,7 @@ haalvsh
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77049)
+[View Post](https://telegram.me/VahidOnline/77049)
 
 ---
 
@@ -125,7 +125,7 @@ VahidHeadline
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77043)
+[View Post](https://telegram.me/VahidOnline/77043)
 
 ---
 
@@ -142,7 +142,7 @@ VahidOOnLine
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77042)
+[View Post](https://telegram.me/VahidOnline/77042)
 
 ---
 
@@ -165,7 +165,7 @@ VahidHeadline
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77041)
+[View Post](https://telegram.me/VahidOnline/77041)
 
 ---
 
@@ -180,7 +180,7 @@ VahidHeadline
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77039)
+[View Post](https://telegram.me/VahidOnline/77039)
 
 ---
 
@@ -205,7 +205,7 @@ VahidHeadline
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77038)
+[View Post](https://telegram.me/VahidOnline/77038)
 
 ---
 
@@ -221,7 +221,7 @@ GoogleMaps
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77037)
+[View Post](https://telegram.me/VahidOnline/77037)
 
 ---
 
@@ -269,7 +269,7 @@ GoogleMaps
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77036)
+[View Post](https://telegram.me/VahidOnline/77036)
 
 ---
 
@@ -298,7 +298,7 @@ GoogleMaps
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77035)
+[View Post](https://telegram.me/VahidOnline/77035)
 
 ---
 
@@ -331,7 +331,7 @@ GoogleMaps
 📡
 @VahidOnline
 
-[View Post](https://t.me/VahidOnline/77034)
+[View Post](https://telegram.me/VahidOnline/77034)
 
 ---
 
