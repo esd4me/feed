@@ -3,8 +3,132 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-14 14:48:47 </h5>
+<h5> 🟢 Updated at: 2026-07-14 16:41:13 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-14 16:28:40
+
+<img src="https://cdn1.telesco.pe/file/OZI3d-YuF_33csnXziO6TL-NKFLNrCZz-vvDsVG_3oIYI7fo51_3Mj9amB9E5ZtBgbxKBRgKETSSP27PUkx9y-cr4dyhqEgENUdfsg4cyEW3wK7kcmGriKEX_X9NynGgcqmSl5cH8fTb9WS7Y1-pDYvQDqhH_uj7ZSu0Py6d7EzF9pmAYH2yPoNDr4qV3yJURmvUvrwk1s7pcjuiYj3hzTo2Bff2lAgjURRYeEaP7L8wlS4EjOCmIYFQYAwlhX35ffFSHwRFAmbNFzpC4wEzKRDMQf07_G6EvZjg2QMNrMKmbUq_URxxXejEXNLQkSLvTqycVJel_2UpdfOd9iBguA.jpg" width="400"><br>
+
+قیمت نفت در بازارهای جهانی روز سه‌شنبه ۲۳ تیرماه و همزمان با تشدید درگیری‌ها میان جمهوری اسلامی ایران و ایالات متحده آمریکا در تنگه هرمز از ۸۵ دلار گذشت.
+@
+VahidOOnLine
+قیمت ارزهای خارجی در ایران در روز سه‌شنبه ۲۳ تیرماه افزایش قابل توجهی پیدا کرد و نرخ برابری دلار آمریکا به ۱۸۴ هزار تومان رسید.
+قیمت سایر ارزهای خارجی هم افزایش یافتند و قیمت یورو به حدود ۲۱۰ هزار تومان رسید.
+در کنار ارزهای خارجی، قیمت سکه طلا هم به ۱۸۰ میلیون تومان رسید.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://telegram.me/VahidOnline/77063)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-14 16:25:04
+
+<img src="https://cdn1.telesco.pe/file/j71vt8d4FHFJzslQVuc82j22ad72SCp3SNJTwOf7JYscQLG8hWycw7DpNJcpSTK5M8rQRBX4Z1sUBc4qdrnkrpgg5AyLnL7xdk3UhSUKQtTwpzTy8-dGPXFcE40I8NVv3jzoThn_YO3W-funi5ev5vexcV7mx-eVSGyJblZS8sOtHMX8lAuDj2Z1YuDDac6m4ftZXCt7jZzDX73m1kmHXsW1mFojZekepN4N_RqgfuWjVWkLoBFp8MYT3bQPqBwykdruvwol52HZ7fxp0OjhOww_GpkI---z2ow08LjVnlUAfaRLTbzXFpsBfdaD5cbnNA3yK8_k0hY7C9mrMJM01A.jpg" width="400"><br>
+
+روزنامه آمریکایی نیویورک‌تایمز در گزارشی اختصاصی که روز ۲۲ تیر ۱۴۰۵ منتشر کرد، از تلاش چندساله سرویس اطلاعاتی اسراییل برای جذب محمود احمدی‌نژاد، رییس‌جمهور پیشین ایران، به‌عنوان یک عامل اطلاعاتی خبر داد؛ طرحی که هدف نهایی آن، به گفته این روزنامه، نصب او در…
+
+[View Post](https://telegram.me/VahidOnline/77061)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-14 16:13:31
+
+<img src="https://cdn4.telesco.pe/file/mtB9NHMNOUa8LVsAzF3crPXRL0XoMw9y3e9GBPNHLOA5JAJPdfkHT-LAIoIl4G7tzIi0sNgV35HVOV94uQdZj8qKecujDs4asqBI0N6cWtS4cbZWdlr1kkYcG0mA8OT1Lyb7OeojlBe74I9L43AdnQ7fgSL-grrQ7SdrftOIOS_r0AlI89u82YVTkPYHplkjjy5RrVeDr7DfjVjgPvUYUbNEiFgBLjp59BTQhoDV3c9qJw9s4TxanidcnwJPB_aVt0NdOjIsYzeYr3Ju0os-ntvlaEgyCc4JVQoWv6NeI5mK_Q-HndpMygbPRZFZT3EWvo2Njmv3sZmqE30YaDVyNA.jpg" width="400"><br>
+
+دستگاه قضایی جمهوری اسلامی صبح سه‌شنبه ۲۳ تیر از اعدام دو نفر به اتهام «بغی و قیام مسلحانه علیه نظام جمهوری اسلامی»، خبر داد و و آن‌ها را که آن‌ها را از اعضای گروه داعش معرفی کرد.
+قوه قضاییه نام این دو را محی‌الدین عبداللهی و حسین پالانی اعلام کرده و می‌گوید آن‌ها اعضای یک «هستهٔ وابسته به داعش» بوده‌اند که در ارتفاعات بمو در نوار مرزی ایران و عراق و پس از یک درگیری که به کشته شدن سه عضو سپاه نیز انجامید، بازداشت و محاکمه شدند.
+جزئیاتی از روند این محاکمه منتشر نشده و شرایط برگزاری دادگاه و دسترسی آن‌ها به وکیل و دادرسی عادلانه نیز مشخص نیست.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://telegram.me/VahidOnline/77060)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-14 16:12:48
+
+
+
+منتشر شده در منابع حکومتی:
+'حمله هوایی آمریکا به ساختمان سازمان تنظیم مقررات و ارتباطات رادیویی در بندرعباس'
+📡
+@VahidOnline
+
+[View Post](https://telegram.me/VahidOnline/77059)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-14 15:34:42
+
+<img src="https://cdn1.telesco.pe/file/bMLq8AoXD9xxRj5-DlJwmhuVPvfN86WsR22taWcUaFtS7oSQM48-MJ6XLvdM2splLyLD7cn4Kl8670zi8GY19tg2rPtlQnIhdMR5qfaW7WQKeYDtvSBP9-D1S26ih-07TeXhwu2ZkJ66kMdbAoLvsB67ndO6wcsPHU1Y48BnnD444B00DAMfcthIHfO79jxF9maDG6VWfj_KgReJJElUWX1Bec3EFfv49aCGccVtXC-o6ieHzcPEIZ5OUKRtNy1O1ow5lGbqNkMXGSiVt5dXXbObSspZN6C7xo5pMgDesrxfOMV0ad69cVsnYRreel8n2LLFAZEYNEYLuqPzbS-qUw.jpg" width="400"><br>
+
+عکس دریافتی با شرح: 'مرکز آماد و پشتیبانی دریابانی نیروی انتظامی بوشهر محله بهمنی، سه‌شنبه ۲۳ تیر'
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://telegram.me/VahidOnline/77058)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-14 15:21:42
+
+<img src="https://cdn1.telesco.pe/file/sLjxFJv_y6YCD-ekL9Sn4W-xGWB5xH0Wi8Tpm4FMqi6IC-cjZbueHk4c_M2qLvtPPWgtCDqjqD8fZDwXEKKcwS9AL1p5BAVgAhjh87TvyQd5Q1EKN2UJVwjpkY7wYFYe2min8BjTj9Ws1x3RR6CEUOhL_kJYeLq5KvCr15QlNFdHkj2HdV7M3x-_KmeAFv_Ov-5kaSO-uR9mT6BX2SBDI2Xzgihkd19UJ2w9640mbqnybfguW_B0nLj1sDSPikQz4-48yzdxJ4hPXiPOgb4zmqHCEQYcVouvicMqESGEEIwWE-Wyw0X0NGXlbDqtedF9OFTbSnAzBolNoOv0SCw3Og.jpg" width="400"><br>
+
+بنا برگزارش شهروندان از حدود ساعت ۱۲:۴۵ بار دیگر به نقاطی در
+#بوشهر
+حمله شده و بیش از ۱۰ انفجار رخ داده.
+تصاویر دریافتی، سه‌شنبه ۲۳ تیر
+#Iran
+Vahid
+از بوشهر پیام میدم
+ساعت ۱۲ و ۴۴ دقیقه صدای انفجار امد اما کم بود
+سلام وحید جان
+ساعت 12:45 دوباره بوشهر رو زدن
+بوشهر ساعت ۱۲:۴۵ ظهر منطقه بهمنی صدای انفجار خیلی نزدیک بود. خونه لرزید
+همین الان ساعت ۱۲.۴۲ بوشهر منطقه بهمنی رو زدند(احتمالا پایگاه هوایی ارتش یا پایگاه دریایی سپاه ریشهر) زدند. صدای دو بمب شنیده شد.
+سلام بوشهر ۱۲:۴۷ شدیددد صدای انفجار میاد.
+درود وحید جان ،بوشهر الان دوتا محکم زدن
+الان بوشهر و زد ۱۲:۴۴
+به نسبت اخیر صداش نزدیک بود پس میشه حدس زد فرودگاه بوده دوباره زد ۱۲:۴۷
+الان زد باز ۶/۷ تا انفجار بزرگگگ کارخانه جاته چون خیلی نزدیکه ۱۲:۵۴
+۱۲:۴۷ بوشهر حدود ۴، ۵ صدای انفجار اومد. نسبتا شدید بود.
+۱۲:۵۳ دوباره دارن میزنن.  حدود ۷، ۸ تایی زدن الان.
+سلام   بازم بوشهر داره صدا میاد از ۱۲و ۵۲ دقیقه چندین صدای انفجار اومده
+ساعت ۱۲:۵۳ دقیقه حداقل ۱۰ تا موشک به بوشهر زدن
+از ۱۲:۴۰ دقیقه نزدیک به هفت هشت بار دارن میزنن بوشهر رو. خونه می‌لرزه!
+وحید جان بوشهر رو ده دقیقه یک ربعه دارن همینجوری رگباری میزنن…
+خیلی میزدن انفجارا همش دنباله دار بود مشخص نیست چنتا بود
+حدود ۱۰-۲۰ ثانیه یه کوب صدا انفجار قطع نمیشد
+وحید جان  رگباری باز بوشهر منطقه ریشهر رو زدن وحشتناک بود
+ساعت ۱۲۵۸ دقیقه اسکله والفجر بوشهر را با ۸،بمب زدن، انفجار شدید
+سلام ساعت ۱ ظهر صدای انفجار مداوم بوشهر
+از ساعت 12:30 تا 13:15
+بیش از 15 بار صدای انفجار مهیب توی بوشهر شنیده شده و موج خیلی زیادی داشته
+📡
+@VahidOnline
+
+[View Post](https://telegram.me/VahidOnline/77054)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-14 06:09:28
@@ -126,212 +250,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://telegram.me/VahidOnline/77043)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 04:30:41
-
-<img src="https://cdn4.telesco.pe/file/DYFqBHIM0y99Hb9VI-2ZZMXU2NN1aBFOVWU5dHTEyMiPDqUYpkhN78iSpymfJYFnc_wOIDnSYsEqe3-ga96_bDXzGDeGm6JIebAu_Xs8ObR47as4zZcbuUJ9j0DhdUkyDu-tI2Bgh8qYyQzoiMBR7QdW2O_BG7PQGS_XWNnXH1sNnk2UUz5ErGiwcpPknxalC1HshKULOcnzzVYncyAC7I5kzJMCpkzCHsM5ofBkTP-KFXKAdE2uvfTNKQiQLoQsO9HSY1cK1JyCm-mKbQ7xx3ImfM5Xpy_8IXexdl6F_iGXoB0P-9eeNh0YGqq0sIuq3nNZdGvT1ACwErzRRu6P2g.jpg" width="400"><br>
-
-معاون امنیتی و انتظامی استانداری خوزستان گفت: در ساعت ۲:۱۰ بامداد سه‌شنبه، نقاطی از شهرستان امیدیه مورد اصابت پرتابه‌ها قرار گرفت.
-به گزارش مهر، ولی‌الله حیاتی گفت: بر اساس ارزیابی‌های اولیه از وضعیت مناطق هدف قرار گرفته، تاکنون چهار نفر در این حادثه دچار مجروحیت شده‌اند که اقدامات امدادی در حال انجام است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://telegram.me/VahidOnline/77042)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 04:21:25
-
-<img src="https://cdn1.telesco.pe/file/WklZ8ZO5nGH61qKnvktmoKrpGiHXsDwP8gVEmP6JBSjHO9jjTLT5XaUKQYLZJRBEL8vuR0B39vYt5WHnk1cgMXpngNlvZkeTlcep5SuMNBxPR9NPhhRs9X_-BCC7aaJ45quo6JW2cuNpk_TSS2p3kbyOtMoyjlHZJUSz-Wm3veuyvd3TPM6a7Wbt4egH7gPMhQqRgwFQAB_roSq-oMjYTbuK73BihbuE2gIzO3ATpYHkD4qhq_l2cAmfMwWkeWjymXOi7JGht42S-3bIaGK62aJTr5PArFk18k4MLT9Sp8qofr0jUZxXRt_Bel72RH6D3SUmSVxt-VnurvsVqDIHSg.jpg" width="400"><br>
-
-وزارت دفاع امارات متحده عربی اعلام کرد که جمهوری اسلامی ایران به دو نفتکش در نزدیکی سواحل عمان حمله کرده است. به گزارش آسوشیتدپرس، در این حمله یک نفر کشته و هشت نفر دیگر زخمی شده‌اند.
-@
-VahidHeadline
-" اطلاعیه روابط عمومی سپاه پاسداران انقلاب اسلامی"، ایرنا:
-بسم الله قاصم الجبارین
-قَاتِلُوهُمْ یُعَذِّبْهُمُ اللَّهُ بِأَیْدِیکُمْ وَیُخْزِهِمْ وَیَنْصُرْکُمْ عَلَیْهِمْ وَیَشْفِ صُدُورَ قَوْمٍ مُؤْمِنِینَ
-ملت قهرمان و مومن ایران عزیز؛فرزندان شما در نیروی دریایی سپاه بر عهد خود در حفظ حقوق ملت ایران در تنگه هرمز تمام قد ایستاده‌اند.
-ساعاتی پیش ارتش کودککش آمریکا که از شکست های مکرر عبرت نگرفته است، با تحریک شناورها تلاش کرد تعدادی از آنها را از مسیر غیر قانونی عبور دهد. دو فروند سوپر نفت کش متخلف که فریب آمریکا را خوردند و با خاموش کردن سامانه های ناوبری و بی توجهی به اخطارهای مکرر مرکز کنترل امنیت تنگه هرمز کشتی رانی در این مسیر را به مخاطره افکنده و عبور از مسیر مین‌گذاری شده را ترجیح دادند، مورد اصابت واقع شده و از کار افتادند.
-نیروی دریایی سپاه به همگان اعلام می کند همکاری با دشمن متجاوز که از هزاران کیلومتر دورتر آمده تا حقوق مردم منطقه را تضییع کند و عبور از مسیر مین‌گذاری شده جز پشیمانی، خسارت و تاخیر در بازگشایی تنگه هرمز و ایجاد بحران انرژی در جهان نتیجه ای ندارد.
-و ما النصر اِلا من عندالله العزیز الحکیم
-📡
-@VahidOnline
-
-[View Post](https://telegram.me/VahidOnline/77041)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 04:18:24
-
-<img src="https://cdn1.telesco.pe/file/T1J3oki6BQSWQDibmRAtpPCq4HpgCgR3b9hXZVI0-XIYbmlA3AkUY8fz3OjuLvtWoWx2SMfjqdiN3fiHpLuaBx3ogy9bHA0_2LxQd7pD6zlSLnHs8oC3sWv5fchvZHU37U43gGe8XSn6eOeuiaj725gmXgH-ovFuecPKB0jMLgO8-bBwly-i7IkAK_TYliN2iza1kiQC1gzvkkRBLerFjit4aRasb0OdH4J8GHL7mpdDlWDKJxs5Ln1oKFloKdppWRX8hgbo2HKdXDx7ReyIJylw38uKdnmYnanTvu-svsfHHEybihmtR2vCy7Ef5OvvbM0J86MxK2-UZXQGW8o7Gw.jpg" width="400"><br>
-
-تصاویر دریافتی با شرح: کرمانشاه ۲ تا موشک شلیک کردن ساعت ۴
-آپدیت: ممکنه تصاویر مربوط به پرتاب از تبریز باشند.
-📡
-@VahidOnline
-
-[View Post](https://telegram.me/VahidOnline/77039)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 04:05:26
-
-
-
-پیام‌های دریافتی:
-همین الان تبریز
-از سمت شمال شهر  دوتا پرتابه با نور شدید قرمز به سمت جنوب غربی دیده شد
-سلام وحید جان، تبریز صدای جنگتده میاد [احتمالا صدای شلیک موشکه]
-سلام اقا وخید همین الان صدای دوتا انفجار کرمانشاه
-سلام
-صدای دو انفجار در کرمانشاه
-ساعت ۴ و دو دقیقه
-ساعت ۴:۲ نردیکی هرسین تو استان کرمانشاه صدای ۲ انفجار سنگین اومد
-سلام ساعت ۴:۰۳ کرمانشاه دوبار صدا اومد احتمالا شلیک موشک.
-سلام وحید کرمانشاه شهرستان هرسین دوتا صدای وحشتناک مهیب
-سلام کرمانشاه ساعت ۴:۰۲ دقیقه صدای انفجار از سمت تنگه کنشت
-📡
-@VahidOnline
-
-[View Post](https://telegram.me/VahidOnline/77038)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 03:43:27
-
-
-
-ویدیوی منتشرشده با شرح: سراوان سه‌شنبه ۲۳ تیر
-پیام دریافتی: اینجاست
-GoogleMaps
-📡
-@VahidOnline
-
-[View Post](https://telegram.me/VahidOnline/77037)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 03:30:01
-
-<img src="https://cdn1.telesco.pe/file/pqz80W_pfLAR6Hc1Kr2Mw6mSiupXTQ9NYuFqIlZhgJdJyUlW-rUxD6kE-5NMpCG7pwoDegVsofrp6NhH_IG1JOjQkntvbT20oprwEqcHxmgnwas8F9LZ9UW2utPgNfWkKkpUq8Y2vORNAOw5dpxnChQGJvhuVWuMld73s_WuTfMr9SIeh2L1-Li_-UOfwiSQToJzkIitTD3hM89Nzb88tZmM-TvwNB6r8RIi2m5PB-OUPoAqTQRExBf06nmgAaetHehkHfCjca55mWrJiYtR70ECrP4Sum30Gx15YT6Wu1CHOPbpgHKgr1fy_gW455xtbjTGmbT6Q21gPpYylF58Rw.jpg" width="400"><br>
-
-پیام‌های دریافتی:
-ساعت ۳:۳۰ بوشهر دوتا انفجار خیلی شدید صدا توی بهمنی اومد
-بوشهر 3:28 مجدد صدای انفجار
-بهمنی زدن 2 بار سنگین بود ساعت 3 نیم دوباره زدن
-وحید جان دوباره صدای انفجار اومد بوشهر ۳:۲۹
-سلام همین الان بوشهر رو دو تا پشت سر هم زدن فکرکنم انبار مهمات یا همچین چیزی بود
-دوتا انفجار مهیب پشت سر هم شهر بوشهر ساعت ۰۳:۲۹
-سلام دوباره زدن با صدای انفجار بدتر
-بوشهر تا الان ۴بار زدن
-چهار تا صدای ترکیدن دیگه ۳:۲۹
-پایگاه هوایی بوشهر ۳.۲۸ سه انفجار
-سلام وحید بوشهر همین الان سه تا انفجار خیلی شدید پشت سر هم
-بوشهر رو زدن ۳:۲۸ نزدیک به اسکله جلالی گمونم، پایگاه هوایی
-سه تا تا حالا
-الان بوشهر صدای بلند انفجار ۳:۳۰
-3 تا انفجار سنگین
-بوشهر ساعت ۰۳:۲۹ صدای انفجارهای خیلی شدید و نزدیک میاد
-بوشهر ۳:۲۸ ۳:۳۰ هردو انفجار بلند خونه ها داره میلرزه سمت بهمنی
-بوشهر صدای ۳ انفجار همین الان بهمنی
-بوشهر همین الان ۳:۲۸ تا ۳:۳۰ ۵تا انفجار شدید ! خونه میلرزه
-سه تا دیگه زدن
-تو پایگاه هوایی
-سلام دوباره زدن با صدای انفجار بدتر
-بوشهر همین الان باز زدن
-دو سه دقیقه پیش هم زده بودن
-بازم زدن سه تای دیگه
-بوشهر رو دارن میزنن
-انبار مهمات اینا نیست فرودگاه دارن میزنن
-و پایگاه هوایی ششم شکاری
-و موشک های تام هاواک هستش ک صداش بلنده
-یعنی جنگنده نیست مثل سری های قبل
-بوشهر خیلی بد دارن میزنن تو این چند وقته اینجوری نبوده باز خونه هامون لرزید چهارتا پشت سرهم زدن
-بوشهر - اولین انفجار پایگاه هوایی بود ۳:۱۳
-انفجار های بعدی شامل دو انفجار در همون حوالی
-دو انفجار مهیب دیگر در اطراف شهر بوشهر بود. احتمالا چغادک. حوالی ۳:۳۰ تا ۳:۳۲.
-📡
-@VahidOnline
-
-[View Post](https://telegram.me/VahidOnline/77036)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 03:23:03
-
-
-
-پیام‌های دریافتی:
-سربندر همین الان دوتا پشت سر هم
-یکی دیگه
-همین الان بندر امام خمینی‌ رو زدن سه بار
-ماهشهر ساعت ۳:۲۳ صدای ۲ تا انفجار پشت هم
-[احتمالا همون انفجارهای پیام‌های بالایی]
-سلام ماهشهر تا الان سه بار صدا اومد
-وحید جان ماهشهر ۳ تا پتروشیمی سر کارم لرزیدیم
-سه انفجار پیاپی در ماهشهر داشتیم
-😔
-بچه ها صبح امتحان نهایی دارن
-😭
-سلام ماهشهر زدن 3:24 دقیقه
-شیشه اتاقم لرزید
-همین الان ساعت ۳:۳۰دقیقه
-بندر امام خمینی سایت موشکی رو زدن چهار بار
-📡
-@VahidOnline
-
-[View Post](https://telegram.me/VahidOnline/77035)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 03:06:37
-
-
-
-پیام‌های دریافتی:
-بوشهر 3:06 صدای انفجار
-سلام ساعت ۳:۰۵ بوشهر صدای انفجار
-ناحیه بهمنی
-سلام وحید جان ساعت ۳:۰۶ بوشهر صدای انفجار اومد
-الان بوشهر و زدن ما پایگاه هوایی هستیم خیلی بد بود
-ساعت ۰۳:۰۶ دقیقا انفجار مهیب شهر بوشهر
-سلام . همین الان بوشهر رو زدن . صدا خیلی مهیب بود
-سلام وحید جان ساعت 3:05 دقیقه بوشهر رو زدن پایگاه هوایی بود فکر کنم
-بوشهر زد ساعت ۳:۰۵دیق شب
-همین الان وحید جان زدن بوشهر رو ، لرزش و صدا خیلی خیلی بیشتر از روزای قبل
-ترس و لرز وجودم فرا گرفت برعکس شبای قبل
-واقعا ترسناک بود این یکی
-سلام
-پایگاه هوایی رو زدن الان
-صداش وحشتناک بود
-تمام بدنم داره میلدزهه
-همین الان بوشهر نزدیک فرودگاه صدای انفجار بسیار مهیب
-سلام بوشهر بهمنی زدن ساعت 3:06
-سید جان ۳:۰۶ بوشهر صدای انفجار (فکر کنم پایگاه نیرو دریایی بود)
-📡
-@VahidOnline
-
-[View Post](https://telegram.me/VahidOnline/77034)
 
 ---
 
