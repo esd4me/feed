@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-15 08:12:30 </h5>
+<h5> 🟢 Updated at: 2026-07-15 10:37:19 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-15 08:29:41
+
+
+
+ویدیوی دریافتی: '
+#چابهار
+، چهارشنبه ۲۴ تیر، ساعت ۵:۳۰'
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77098)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-15 06:06:22
@@ -336,26 +353,6 @@ GoogleMaps
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77079)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-14 23:45:27
-
-<img src="https://cdn4.telesco.pe/file/NmFjaEn-4GpzAHgfCFFmGS56paLMw5AtR4QYkfIfjdyftXuGajtxZ0k91G-1TGVmgNCNcxiDkte7CqBhI1YWMk-59ztNQQqsp8MpcazbhdHDK0moABXKTIFT-dUJM6BaonRk8nTTQ58wUdHbXPqpwC2kDtOyMbfGdIJbpOxR70T9YlpIdQa_ZL9YHwVTtbibVH6Y6Fi1Ru8GqChX1LKBWRILrF1r-_V0tosti7vGf667FEuzeui-hfIKZgrQ1jZwDO83_vOdBbqgPwoTo_TTCcCZnoiqei8ZAftXH7UfJkz4CfVoNjExyYfXRTUDVjPa6pJfAezkqLd8L-Z73ld6RA.jpg" width="400"><br>
-
-ستاد فرماندهی مرکزی آمریکا، سنتکام، [
-در پستی تازه
-] اعلام کرد نیروهای آمریکایی از ساعت ۴ بعدازظهر به وقت شرق آمریکا [یعنی دقایقی پیش]، محاصره دریایی کشتی‌های در حال تردد به بنادر و مناطق ساحلی ایران را از سر گرفته‌اند.
-سنتکام در پیامی در شبکه اجتماعی ایکس، این اقدام را پاسخی به آنچه «حملات اخیر و غیرموجه ایران به کشتی‌های تجاری و خدمه غیرنظامی» خواند، توصیف کرد و افزود آمریکا جمهوری اسلامی را مسئول این حملات می‌داند.
-بر اساس این بیانیه، در حال حاضر بیش از ۲۰ ناو جنگی نیروی دریایی آمریکا و صدها هواپیمای نظامی در سراسر خاورمیانه مستقر هستند و نیروهای آمریکایی «هوشیار، آماده و دارای توان رزمی» باقی خواهند ماند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77078)
 
 ---
 
