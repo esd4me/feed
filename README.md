@@ -3,13 +3,89 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-15 16:45:19 </h5>
+<h5> 🟢 Updated at: 2026-07-15 18:49:11 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-15 18:27:49
+
+<img src="https://cdn1.telesco.pe/file/BYVwaqfZgfWcu2diIiFuPanQll9Csku6H8rXOkI00LV4173sSiijokDaEvFuPOuumM5eVIyU59-TzSZ3CWR_p8kmeIvEBPnv8LnfnLxl7NAkOC0V4y5qWLNy3yxQY469MAqpE81hggKIjo-J1zXmlgfUQoDoBuJQoEAYVqcTlMEmM_RX_fHz1G2PPd3vKjgifVHD1MXcUYzvZix5j1k8bZVhT8kwWeyElTIkb27UtRUT4zUTgKPqtZS4mXtZd7FHke2MSh3IdLDN81iyG5gZcdeMQJ5cjId4-tVIIM1KT6VKnSmhZCrH0zSuxWegmu0T0jpwlH648z69TrwG5-Xz-A.jpg" width="400"><br>
+
+ویدیوی بالا رو پدر سام حسنی از محل واقعه منتشر کرده.
+کودکی که در میان جعبه‌های گیلاس کشته شد.
+پنج‌شنبه ۱۸ تیر:
+نیروهای هنگ مرزی مستقر در روستای درکی، بدون هیچ‌گونه اخطار قبلی، خودروی شخصی یک خانواده اهل این روستا را که پس از پایان کار روزانه در باغ گیلاس خود در حال بازگشت به محل سکونتشان بودند، هدف شلیک مستقیم قرار دادند.
+@
+VahidOnline
+در جریان این تیراندازی، گلوله به کودکی که در قسمت بار خودرو حضور داشت اصابت کرد. او بر اثر شدت جراحات جان خود را از دست داد.
+@
+VahidOnline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77114)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-15 18:08:26
+
+
+
+پیام‌های دریافتی:
+ساعت ۱۷:۳۸
+[جزیره] هنگام، الان صدای ۲ تا انفجار بزرگ اومد سمت وسط جزیره
+جزیره هنگام رو همین چند دقیقه پیش دوبار زدن
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77113)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-15 17:34:36
+
+<img src="https://cdn1.telesco.pe/file/a0AEOyvTIfZBpr9wTfoM4ci7GAMOqsiDbptduEaOTL_0d0H93unLKQnQlRhttOb7JfiofdTK8GmAZ1FajpvhuMuzBUahtVJMVlLTAJZgwZ6_t2dBtvqdaEAHrKQSW4fcjB0jyu4qtWXdve8mA6b6fNcKMtcn-YTBjYTC58RgiS1WOYN59xQO-jy6utX5afLAqWI9CqZ6TecFrTbX68-MrH0ILuCAm0GF5IYojMvmjwAeIGW04eud4F-jQYCTPbUmla_XHdSKVcknFA1Nc-aC3UBY6xHbN85-v-2e2Js8XVbYrK6lQL3zLUJRtTGkCdhFkNdgTgPKbVyWyNbRmQfxPA.jpg" width="400"><br>
+
+در بیانیه فرماندهی مرکزی ایالات متحده (سنتکام) آمده است: از زمان ازسرگیری محاصره دریایی بنادر ایران، ۱۷ ساعت پیش، نیروهای ایالات متحده مسیر حرکت دو کشتی تجاری را که قصد عبور از این محاصره را داشتند، تغییر داده‌اند.
+@
+VahidHeadline
+صدا و سیما چهارشنبه ۲۴ تیرماه گزارش داد که در ۲۴ ساعت گذشته دست‌کم دو کشتی که به گفته این رسانه قصد داشتند بدون هماهنگی با ایران و به‌صورت غیرقانونی از تنگه هرمز عبور کنند، پس از بی‌توجهی به هشدارهای اولیه، با شلیک اخطار نیروی دریایی سپاه پاسداران متوقف شدند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77111)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-15 16:58:50
+
+<img src="https://cdn4.telesco.pe/file/t1ECT7pD7AcWyBVABi4ARfZk9TYjonuDjFW9lv8xglfowqgAMEyndDSvhElWTMFYifUvJ6MfWiagoqGJDpMlhQaFR0lullylKpN4e9HcNSra17BhvpDUFYZA_r44ImZOipEEBpIWIVkV7XGV4frYvFWJfUs5oWJJXlwbngtVSmKpl9ki5n7mgvNQqXnQlcc_Am12fZnxBR0TqsW_qJ9CDaVOnCOKhZvP3f7c1Lz0qdccx6kYJsHu52mJzYSgePaOIqIxHnUMKX-PIY66rgPwSEZNR3EnsfdKmtHiVLwU5ROo_-_zHQkVM7tRi1-3lRjdbeJNcr24PvqfdgIR6DVLHQ.jpg" width="400"><br>
+
+خانواده کریگ فورمن، شهروند بریتانیایی زندانی در ایران، روز چهارشنبه ۲۴ تیر اعلام کردند که او در زندان اوین به دلیل انجام مصاحبه با رسانه‌های خارجی، به دو سال حبس اضافی محکوم شده است.
+کریگ فورمن و همسرش، لیندزی فورمن، در جریان سفر زمینی با موتورسیکلت از اروپا به استرالیا، در ایران بازداشت شدند. این زوج اسفندماه سال گذشته از سوی دادگاه انقلاب به اتهام جاسوسی هر کدام به ۱۰ سال زندان محکوم شدند؛ اتهامی که همواره آن را رد کرده‌اند. مقام‌های جمهوری اسلامی نیز تاکنون هیچ مدرکی برای اثبات این اتهام به‌صورت عمومی منتشر نکرده‌اند.
+پیش‌تر وب‌سایت حقوق بشری هرانا گزارش داده بود که  این زوج ۵۳ ساله در اعتراض به رد درخواست تبرئه و جلوگیری از آزادی و بازگشت به بریتانیا، اعتصاب غذا کرده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77110)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-15 15:58:21
 
-<img src="https://cdn1.telesco.pe/file/HKg2YP5fLkQtt9qjf9VSbvhyraP4_mbH4Ll-T4kpdozr2zlfrL2vuUEG9WDIM2Y8JPKRuJxAl2yWVHga8KQBiySpxSFkeD8w79bItePcfJQOcfpTegJHP-nquwARXfIBHVpA-y4rMgmlB58OrvmE3dR5hequfZIkQsuQEbNAqZt3QvZLrxqoCXbU7eo4kSvrCSo6161BuWInJMNF-G3gFz8ExtpGCAZjClmDLr5s6KJruDmi0dvnYdiN2NPBCoy6BH3FFyqvvw6T_6HvXI-shHI2xi34fICh5dvxhmyOcO40eMLoU2kUc68tz6118BpQtpaOxAheQ3AjgL3iOPmYdw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mfjGOSFXoIsnFn8BkloqwehwSU0u-N36Ih9ohWefvo82FlqvtXcscQDp25g6lBfjp1Ai6Lp2clk2RfPJ1bKodxBXt8lBE-AqEzb1hNEyWuZIMHwpTpSPoDffsnWExvQqOK_dRoU040fJRAo1hYWhgoX0QTgfILFBEysaNotF8E6PPo7NBqnHzqynOKDWEzOQEMDBOWzGju4CU5lYtNLO6yqAhX68MULt4V3FZ7ovSv59XFq5rFO8quwSbLqSXpzbHN6Iv8Rv4j46W7ox00AmJW-IK-ofmfWBJ4hvGmOrDW-ltw9-koJyiPGaOVMEEbiT9GcuFGTKnHRrPcRpUNABvQ.jpg" width="400"><br>
 
 وب‌سایت دولت:
 اطلاعیه ستاد عالی آزمون‌ها در خصوص برگزاری امتحانات نهایی در استان‌های هرمزگان، بوشهر، خوزستان و سیستان و بلوچستان
@@ -284,49 +360,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77092)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-15 05:35:40
-
-<img src="https://cdn1.telesco.pe/file/G17H0vdf5TRtRAgfLakCOmVvkDqM8oMzw_EqZjTcUm569h-wEk44K6Rr7ST5k3UGPvVSgARBudTnPnQrCiRJsRvVGsgs1Ufgp3slTiUAi5b0ueGo2RjgIix0FnpolpkxwwFELMdPH4Fu8JKZ4ByjLprVUYTPy4QcuglDM2pKAEfNAbW-9IoxD4oMV-ZxTRQ05JuNp5koO525H9cloUXSaSthEsfzlYAMS417yyPn4uiBy4qo-x4kHpD0hAo9Oax3XjzH1NWcYl1OOkdScseSPqToKp6Orve_h4t20DahwdG1QvcvpKHaS1eMxDrOnsK_mvSW64UvcZC2fxTEuxWQUw.jpg" width="400"><br>
-
-پیام‌های دریافتی از سیستان و بلوچستان:
-چابهار پایگاه مستقل امام علی همین الان دوتا زد
-سلام کنارک الان دو تا زد
-سلام همین الان صدای چهار انفجار در کنارک
-۵:۳۰ دقیقه چابهار سمت دریا کوچیک فکر کنم زدن. صدای جنگنده ها میومد.
-ساعت ۵:۲۰ صبح جنگنده وارد حریم چابهار شد پایگاه امام علی و کنارک زد
-کنارک دوباره یکی زدن
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77091)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-15 05:02:00
-
-
-
-پیام‌های دریافتی دوباره هم‌زمان از سربندر و ماهشهر:
-همین الان بندر امام خمینی‌ رو زدن سه بار
-یا خدا سه تا انفجار وحشتناک سربندر
-بعدی
-وحید جان سلام ماهشهر صدای چندین انفجار متوالی
-سلام ماهشهر الان زد نسبت به قبلیا موجش بیشتر بود
-همین الان صدای شدید ماهشهر، نمیدونم کجا رو زدن
-سلام اقا وحید سربندرو همین‌الان‌چهار بار زدن
-ماهشهر الان ۴تا زدن
-۵تا شد
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77090)
 
 ---
 
