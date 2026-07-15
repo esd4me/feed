@@ -3,8 +3,43 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-15 18:49:11 </h5>
+<h5> 🟢 Updated at: 2026-07-15 20:36:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-15 20:31:59
+
+<img src="https://cdn1.telesco.pe/file/h8K57T34QV3RbQ5ZYLPGLbl5-p87W0y65Yp4zh8o49bbsmNI3F6ct2_ySdZmJIMWsTAZ863kEWUWXVtg8kgBm-cvojWlnqkZUFOTts9j7p2rB5JPYD_1hC1I-M0lpyOKhAo9WLYLK0J48I14PYWNp66ezKMP2Ffvg4Cgco8hFa1C0Ltz4f6AW7aTvFmI3BESBPy_C69XukUkVP4CuoM0qKQNAjY6pnJ6E_KImoehcC5OtX2A24TOdFYt5YhPTBBz5JFzUMkPG7WfsKNJ2A4Y0LmvauaigaRsnbK96OVOdjClBqz3IvvZ_6c58flPqxcF9fbUJ-ATxihdZOzt050cDQ.jpg" width="400"><br>
+
+خبرگزاری فارس با انتشار تصاویر بالا مدعی شد:
+انهدام پهپاد آمریکایی لوکاس در بندرعباس توسط رزمندگان سپاه
+این پهپاد متجاوز ساعتی قبل با رهگیری و شلیک موفق سامانۀ پدافندی رزمندگان سپاه در بندرعباس منهدم شد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77117)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-15 19:27:54
+
+<img src="https://cdn1.telesco.pe/file/YGCo4bjZx-MRHuD-Frxf4xzhrrymcAYFxdIM2C-Jq_lJEFzzF5hO1HusL_TaN3beCccXvoHHLk82_Q2uZJJXowOXJwV_i4izBZWRTJ9WyZqSaPucQh7t8xkoQoCDFiGLFFpY7Z_hTq_NvPYa7M2kk05Odm3nf9tlnEcEb9espPm8Xtyc8u2QwBVaUcBhOCRGTzqpc1f0xL8e16SoYcpf7IIVl4IDGQbyGb9k69GVGClTUeXVD-DrQJR3hA8G7c65KpkYf-t0ZV68qkEODoA4T9VTwH-as7rcrlGHxDUJFNKbauUB1pLtioY-gMaJ54rAvu1FC-fawvIhH7g-SCtxuQ.jpg" width="400"><br>
+
+سنتکام، ترجمه ماشین:
+🚫
+ادعا: رسانه‌های دولتی ایران مدعی شده‌اند که نیروهای آمریکایی در ۱۴ ژوئیه یک تأسیسات غیرنظامی ذخیره‌سازی گندم در هویزه را هدف قرار داده‌اند. این ادعا نادرست است.
+✅
+واقعیت: نیروهای آمریکایی در ۱۴ ژوئیه اهداف نظامی ایران را در بندرعباس، خورموج، اهواز، قشم، تنب، بوشهر و کوه استک هدف قرار دادند تا توانایی ایران برای حمله به کشتی‌های تجاری در تنگه هرمز را تضعیف کنند. هم‌زمان، ایران غیرنظامیان بی‌گناهِ در حال عبور از تنگه و همچنین غیرنظامیان در کشورهای همسایه خلیج فارس را هدف قرار داده است.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77116)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-15 18:27:49
@@ -39,6 +74,9 @@ VahidOnline
 جزیره هنگام رو همین چند دقیقه پیش دوبار زدن
 📡
 @VahidOnline
+🔄
+ساعت ۱۸:۳۹ خبرگزاری مهر
+:
 
 [View Post](https://t.me/VahidOnline/77113)
 
@@ -284,82 +322,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77100)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-15 15:22:11
-
-<img src="https://cdn4.telesco.pe/file/oGaSLAi4SfgfI3CpVcS5Hl1Gx1y5frn3oNn6mCT1uhIAcPD7Kc7FVOWIE9NfE7w0xhyVFIzJiNTGGdnHJIDwoAAJ7aIACpv-9lavuEQtFSJrx6TAMJxXTncAiWLW4MkYdGlQAym7j06Q1Sv-nsujCD9xTVjQ334i8lsK-sqBVUsCyW3-RZU3IGhF0aXijUXVm6Ih7jgQFHB9jWzEsQiilQNzX3tRTX5Ij6eT9vJbg3zpZ1Krudd_0OQmxExjbYlfsLgv8Ceg7rGMrL-iaJhAgg3xekLnREYBNN9MeWFh9G-25-vdZEUy2P7USFsBV7I8Nq5-xQYlR3aud_lpYPQ3dw.jpg" width="400"><br>
-
-قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام محمد امینی دهاقانی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، خبر داد. مقام‌های قضایی او را به آتش‌زدن فرمانداری و کلانتری مرکزی شهرستان دهاقان در استان اصفهان متهم کرده‌اند؛ از روند بازداشت، بازجویی و جلسات دادگاه و … محمد امینی دهاقانی خبری منتشر نشده.
-براساس اطلاعیه منتشر شده در خبرگزاری میزان، ارگان رسانه‌ای قوه قضاییه، حکم اعدام محمد امینی دهاقانی پس از تایید در دیوان عالی کشور، بامداد امروز ۲۴ تیر ۱۴۰۵ اجرا شده است.
-در این اطلاعیه آمده است که امینی دهاقانی روز ۱۹ دی ۱۴۰۴ با پرتاب کوکتل مولوتف به ساختمان فرمانداری دهاقان باعث آتش‌سوزی شده و سپس یک کوکتل مولوتف دیگر نیز به سمت کلانتری این شهرستان پرتاب کرده است. مقام‌های قضایی همچنین مدعی شده‌اند او در تحریک معترضان برای حمله به کلانتری نقش داشته است.
-دستگاه قضایی جمهوری اسلامی بخش عمده پرونده را بر اعترافات متهم استوار کرده است. در اطلاعیه رسمی ادعا شده که او در بازجویی‌ها پرتاب کوکتل مولوتف به سمت فرمانداری و کلانتری را پذیرفته و همچنین گفته است قصد داشته از یک قبضه سلاح کلاشینکف، که به ادعای مقام‌های امنیتی از ماموران گرفته شده بود، استفاده کند.
-محمد امینی دهاقانی همچنین به «بازنشر و ارسال محتوای تبلیغی علیه جمهوری اسلامی، تشویش اذهان عمومی و برهم زدن امنیت روانی جامعه» متهم شده است.
-او همچنین به «درخواست ارتباط‌گیری با حساب‌های کاربری» مخالفان جمهوری اسلامی و «درخواست ارتباط‌گیری» با صفحات مجازی مرتبط با خاندان پهلوی هم متهم شده است.
-مقام‌های قضایی هیچ اطلاعاتی درباره نحوه دسترسی متهم به وکیل مستقل، شرایط بازجویی یا روند برگزاری دادگاه منتشر نکرده‌اند. همچنین مشخص نیست اعترافات منتشر شده در چه شرایطی اخذ شده و آیا متهم امکان رد یا اعتراض به آن‌ها را داشته است.
-اعدام محمد امینی دهاقانی در حالی انجام شده است که نهادهای حقوق بشری بارها نسبت به افزایش صدور و اجرای احکام اعدام برای معترضان و متهمان پرونده‌های امنیتی در جمهوری اسلامی هشدار داده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77099)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-15 08:29:41
-
-
-
-ویدیوی دریافتی: '
-#چابهار
-، چهارشنبه ۲۴ تیر، ساعت ۵:۳۰'
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77098)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-15 06:06:22
-
-
-
-سنتکام: ده‌ها موضع نظامی را در نزدیکی تنگه هرمز و مناطق ساحلی ایران هدف قرار دادیم
-ترجمه ماشین:
-تامپا، فلوریدا — فرماندهی مرکزی ایالات متحده (سنتکام) در ساعت ۱۰ شب به وقت شرق آمریکا در ۱۴ ژوئیه، دور دیگری از حملات علیه ایران را به پایان رساند و ده‌ها موضع نظامی را در نزدیکی تنگه هرمز و مناطق ساحلی ایران هدف قرار داد.
-جنگنده‌ها، پهپادها و شناورهای نیروی دریایی آمریکا در جریان این موج حملات هفت‌ساعته، مهمات هدایت‌شونده دقیق را علیه سایت‌های موشکی و پهپادی ایران، توانمندی‌های دریایی و سامانه‌های دفاع ساحلی به‌کار گرفتند تا توانایی ایران برای تهدید کشتی‌رانی تجاری و خدمه غیرنظامی را بیش از پیش تضعیف کنند.
-این حملات در همان روزی انجام شد که نیروهای آمریکایی محاصره دریایی علیه شناورهای در حال تردد به مقصد یا از مبدأ بنادر و مناطق ساحلی ایران را از سر گرفتند. این محاصره امروز از ساعت ۴ بعدازظهر به وقت شرق آمریکا به اجرا درآمد.
-نیروهای آمریکایی همچنان هوشیار، مرگبار و آماده اجرای عملیات‌هایی هستند که فرمانده کل قوا دستور دهد.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77097)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-15 06:04:19
-
-<img src="https://cdn1.telesco.pe/file/JKTqmP8p1QVNMSfgcq0qxY283PcqUfMfclHK2Lk2KpyBaJJRzCi0tRVzyGQdU7YkPjAjoAUHVgtJr5IxGWBlUcDNuDxoQoh2Au3XR6eu2rcn6e_wxNy3j6-dZCo8d4ATX7pxPiI4ZVrAUCPAtEi-K179Ub61EXR_D2kDuXgHata9wWtQSHGtcazpIEwp23QHQVfhJ6DXoLj8dRaVLaqRLDqgCnozqJjufar8pJXL_gTCtwqm4-Bnv69s93PHNKtOyYhV4l5r-rSDl_d5z1T8FmmYq9sasilplXBmmcjSC7XDGP8RVjQ8OmXjqaS_cxVk-U3HgbF380SsSro62QMjyw.jpg" width="400"><br>
-
-تصاویر دریافتی با شرح:  انفجار حمله به چابهار حدود ساعت ۵:۳۰
-چهارشنبه ۲۴ تیر
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77092)
 
 ---
 
