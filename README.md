@@ -3,8 +3,160 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-16 23:32:38 </h5>
+<h5> 🟢 Updated at: 2026-07-17 01:27:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-17 01:02:47
+
+
+
+پست سنتکام، ترجمه ماشین (درباره حملات هوایی امشب نیست.):
+فرماندهی مرکزی ایالات متحده تفنگداران دریایی آمریکا از یگان اعزامی یازدهم تفنگداران دریایی، ۱۶ ژوئیه در خلیج عمان برای راستی‌آزمایی، سوار نفتکش «وِن یائو» شدند.
+تا امروز، نیروهای آمریکایی مسیر ۳ کشتی تجاری را که تلاش داشتند محاصره را بشکنند تغییر داده‌اند، ۱ کشتی را که از دستورات تبعیت نکرد از کار انداخته‌اند و برای اطمینان از اجرای کامل محاصره دریایی جاری آمریکا علیه ایران، وارد ۱ کشتی شده‌اند.
+تنگه هرمز و آب‌های اطراف آن همچنان آزاد و باز است، به‌جز برای کشتی‌هایی که تلاش می‌کنند «دیوار فولادین» محاصره آمریکا را نقض کنند.
+🇺🇸
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77169)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 00:56:11
+
+
+
+۴ تا افنجار شدید بوشهر
+بوشهر ۴ انفجار پشت سر هم ۰۰:۵۵
+بوشهر سنگین دارن میزنن
+وحید جان همین الان بوشهر سه تا انفجار
+سلام وحید عزیز بوشهر همین الان پنج تا انفجار رخ داد
+بوشهر 00:55 صدای 4 انفجار
+بوووشهررر همین حالا زدنن و دارن میزنن
+همین الان بوشهر رو زدن ۲-۳تا شدید
+مجدد ۴-۵تا
+خیلی شد
+حاجی رگبار بستن
+سلام بیشتر از ده تا صدای انفجار بوشهر هنوزم دارن می‌زنن
+بوشهر ۴ انفجار پشت سر هم ۰۰:۵۵
+۶ تا دیگه پشت سر هم ۰۰:۵۶
+بوشهر ۰۰:۵۵ بالای ۱۰ بار پشت سر هم زدن
+سلام آقا وحید همین الان ۱۲.۵۵ دقیقه به بوشهر حمله ی  شدیدی شد منطقه بهمنی و من بسیار در خود ترسیده ام.‌
+بوشهر صدای خیلی مهیب
+۱۰انجار بوشهر الان
+۵۶دقیقه
+بوشهر
+۱۲ تا انفجار شمردم
+ساعت ۱۲.۵۵ تا ۱۲.۵۷
+سلام وحید جان بوشهر ۶ بار زد خونه لرزید
+بوشهر ۱۲:۵۷ چند انفجار خیلی مهیب
+بوووشهررر همین حالا زدنن و دارن میزنن
+بیش از هشت انفجار
+همینجور پشت سر هم دارن میزنن نزدیک ۱۰ تا بود پایگاه دریایی دودش پیداست
+بوشهر داره پشت هم میزنه
+😭
+😭
+😭
+😭
+بوشهر خیلی صدای بدی اومد انفجار شدید بود همراه با لرزش چندین تا انفجار پشت سر هم بود
+سلام وحید
+حداقل ۱۲ تا انفجار پشت سر هم بوشهر
+سمت پایگاه دریایی
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77168)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 00:27:53
+
+<img src="https://cdn1.telesco.pe/file/Jww8PCV7b4_Bf0AIck5W3QCNOrpkg9p8EhqRi4q_gCNA8PXYM5IxbISgBcukNyntqv5fUayTgmG-B3_4QI0G0dVZGEVY1hDvre5PV7-FKKAA5993tj4CgV1i_IfhSZykRME48-XTFta0UmF5I9GlO24gH3TQzMv5Q1BOUaWbcItpxnkGMpPe016fhhT6YwBsoR5AO-WvdiuwSrUKpfrevtFL5z7_UImfOlAoLsjlICuKGSYIcpMlUkG62nb7Gy0gw5Sd8IdG1ZGjoNLBJKjrBSJlQOGOJy_VJujB7v817twVhvcdEgfNe4JBQ8BGyXf3byAiQBKOBY6eDKCDK0NUVw.jpg" width="400"><br>
+
+عکس دریافتی: 'پل کهورستان در شهرستان خمیر استان هرمزگان'
+که گفته میشه با حمله هوایی آمریکا تخریب شده.
+پنج‌شنبه ۲۵ تیر
+Vahid
+فارس به نقل از استانداری هرمزگان:
+علاوه بر پل کهورستان، پل گریوه نیز در محورهای ارتباطی استان، مورد اصابت قرار گرفته است. ۲ نفر کشته و ۴ نفر زخمی شدند.
+تسنیم:
+در شهرستان خمیر به سه پل حمله شده که مهم ترین پل، متصل کننده بندرعباس به لار در استان فارس در محدوده بخش کهورستان است.
+صدا و سیما:
+استانداری هرمزگان اعلام کرد محور بندرعباس - خمیر - لار و محور کشار - کهورستان نیز مسدود شده است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77167)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 00:19:56
+
+<img src="https://cdn1.telesco.pe/file/pyGhk8OH8xyKssGLIX72IifSfoYHRKelkQDBDm36Jo85Fqx91HEFANUHHgWFC_ym11Iylri-KPdX_PenvgDbafqAVXff5t9E9rJDssW7n21MVPsVGA35XZR0ifSa2g-KYg4_Rw75rw0bd1fijDqFGHe8J7GSdVgLIpBRqfIjYWgKLe89AJUqrDPFx8naXKbR-zyYbY-O3NLTcmlzC4xWGtkJGuidmVsWb8OxucTB7AlBimoMT86Nq8B_ezUfclQYj4iqhc6OuR3SeTerWZoaku_DVgXNN1ZE5kKCExFdlF_PygH4i5Gi1sRv0fRxG0EZoKNLpUDGsVx_hclqTq4Xuw.jpg" width="400"><br>
+
+صدا و سیما:
+دقایقی پیش ایستگاه انشعاب راه آهن بندرعباس از سوی دشمن آمریکایی هدف قرار گرفته شده و ۲ هموطن مصدوم شدند
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77166)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-16 23:54:19
+
+
+
+ویدیوی دریافتی با شرح: یکی از پل‌های کهورستان شهرستان خمیر
+منابع محلی: محور رفت و برگشت
+#بندرعباس
+به لار مسدود شد.
+پنج‌شنبه ۲۵ تیر
+Vahid
+یک خودرو دیده میشه که احتمالا از روی پل سقوط کرده.
+آپدیت:
+محتوای ویدیوها به نقل از شاهدان عینی صدا و سیما!
+تجاوز هوایی به دو پل در بندر خمیر
+🔹
+به گفته شاهدان عینی دو  پل حوالی روستای کهورستان و رودخانه شور شهرستان بندرخمیر مورد اصابت قرار گرفته است.
+🔹
+راننده یک خودرو شخصی، روی یکی از پل‌ها شهید شده است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77165)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-16 23:40:19
+
+
+
+ویدیوی دریافتی با شرح: در کهورستان
+#بندرعباس
+یک پل هدف گرفته شده.
+صدای ویدیو: موشک خورد به وسط پل، تانکر سوخت نابود شد، راننده مرد، یک تیکه از پل نیست، کسی این طرفی نیاد...
+پنج‌شنبه ۲۵ تیر
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77164)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-16 23:31:30
@@ -54,7 +206,7 @@
 
 ###### 🔵 Post time: 2026-07-16 23:13:01
 
-
+<img src="https://cdn1.telesco.pe/file/Go3j8cB4oT19tccVLSwdiW7rmFmztPQvWnTKJ6lJvdJ2qNAoSbro5aXpeCL6OuDucgFy_u2DqUSOtWlvBcYcWeJR64joWNnl0fNotRWb8mNxFdxCrPdHIPHF25inxidzvteKlaov14XlYlN2mtJINNXzEyjTTOCBogVOHSTUouANIGgtHHCCMMjsrw8Wg1z6rt3_E7zEKsxvxFZfIDKbatSRGBWtAbyxIb4PnzKHGvo2eOvSox7p0DrG47RECrHD_Tw1BnpDq_rToLPXJyWCYIPRkpQvV24DonTKDoP5gmAWmjXvn5O69q4q9l5xuOlY93Rcy3brqVvnyG4Q_lvBew.jpg" width="400"><br>
 
 تسنیم:
 مصدومیت ۷ نفر در حمله دشمن آمریکایی به بندرعباس
@@ -78,6 +230,7 @@
 
 
 پیام‌های دریافتی:
+‌
 بندرعباس صدای انفجار شدید ۴ بار
 ساعت ۱۱ شب
 همین الان صدای انفجار شدید مرکز شهر بندرعباس اومد
@@ -256,100 +409,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77149)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 18:09:42
-
-
-
-(
-⚠️
-خون در ۲ ثانیه اول)
-صدای ویدیو: "اتوبوس ترمز برید، هرچی موتوری بود رو زیر گرفت رفت. خیابون ولی‌عصر"
-به خودروهای پلیس هم برخورد کرد.
-Vahid
-تهران، پنج‌شنبه ۲۵ تیر
-via @
-iliaen
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77148)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 18:02:26
-
-
-
-محمدباقر قالیباف، تیر ۱۴۰۳:
-ما غنی‌سازی را ۲۰ درصد کردیم جنگ شد؟ ۶۰ درصد کردیم جنگ شد؟
-hafezeh_tarikhi
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77147)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 18:01:30
-
-<img src="https://cdn1.telesco.pe/file/ZH9kab-8OOudL843QQodBBrykpsQujcgSRLMXsC-sdkaJhOhMNLbQ2QZRdHkwwnAa49NC6SSFo66O4cmVdARuSanEHymCxPjC8rVRq_KdeFcjHjpW_6xYjQWCMNx4RITC-ztG5Mrnui3oRMS93l5MBaX-WiNZ97kfa_PVDlWSX4ajSfF3DE3K1ic8LZGZvaVfEJdzdBCiaDd_VxC3zhPWSaYJBRrIEifZ9Dtc9IKrZdU4p9bmGyWTOW_wzNuzUPZOoRyhQofNenBsUTFRWgMiUFmrLq3dWmsn7TQTr3hDKnZ9mioAnpkont7AvHKYJV5cSaakXEsk8iEhiQFRrZrcg.jpg" width="400"><br>
-
-یک مقام استانداری سمنان:‌ در حملات بامداد پنج‌شنبه فرودگاه سمنان نیز هدف حمله هوایی قرار گرفته است.
-محمود قدرتی، مدیرکل امنیتی و انتظامی استانداری سمنان، ادعا کرده که در این حمله یک سوله جانبی در محوطه فرودگاه هدف اصابت موشک قرار گرفت و بخشی از شیشه‌های ساختمان اصلی ترمینال نیز آسیب دید.
-به گفته او، این حمله در ساعات اولیه بامداد رخ داد و تلفات جانی نداشته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77146)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 16:21:47
-
-<img src="https://cdn4.telesco.pe/file/vToNloZ3_74tjYethKfqoT_BrFPqNdRBaC7NbRtDb43brKo0ZeKZWMwOdyYo6Nir0s4aU_8TykTGQ-TEh2ScmYjjRXNsvB4vNGo-1yXPcxS7Df8qf2KMpjQXxgQfL6wcs8u2d2nUnR8he1j0l3i4o00GFKfreezJhxE34bz-1FqORGd9vFqsq9jM9jjErVkoE9D0_GIDW_Gg2djSgZt43d2ZYnUUiE24ZyGRT2zmxkvvnP5XLOsrqtU33iidyHGoD--bxKsW49-Qde9KWSlCCC9lPp6kCxyBgYicoGsQ9Ac1lNnfTknVLymZwDFxx2sf3H6uonjLN2j4CzkhQ_NgPg.jpg" width="400"><br>
-
-یک مقام امنیتی به خبرگزاری فرانسه گفت که روز پنج‌شنبه ۲۵ تیرماه پهپادی به یک کشتی «حامل خودروهای آمریکایی» در نزدیکی یک ترمینال نفتی برخورد کرد. گزارش شده این کشتی از امارات متحده عربی آمده بود.
-همزمان چهار منبع نفتی و امنیتی عراق به خبرگزاری رویترز گفتند که روز پنج‌شنبه بارگیری نفت خام در تمام پایانه‌های عراق پس از برخورد یک پهپاد با یک نفتکش در پایانه بصره متوقف شد.
-در واکنش به این گزارش‌، سخنگوی وزارت نفت عراق با اعلام این‌که بارگیری نفت خام در پایانه‌های جنوبی عراق همچنان ادامه دارد گفت که در حال بررسی گزارش‌های مربوط به سقوط یک «شیء» نامشخص بر روی یک نفتکش هستند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77145)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 16:21:04
-
-<img src="https://cdn4.telesco.pe/file/oJNAlO123lg9e9VVIrAD0U0V_Un-eCgbObdad-zIQ2JnyvgC87l6WTfhxnt3ROpBSCluSTQ2aGLUSt1AVqDsaRix83e5uNkLYSkCUy8x28beyyiPrZPKMJ0hYylWfFXBT9ctyv1VFD7PGdQjuWeB-zxHQGtGLvBb7ledkEM2comHsPWYcq9nc5bESfznsUXPjZDfl61TeZbJqAUghg1lk_cadK0a7cd-kt_nM4ndHUKqa3nOEu6NCrS3X8RyOuvXPnsnJammhUTdl1MU57FA9z93CG7l-MIeeoxPtZd_USxPK62uHax8UdjalxhEZSbS9HS9go8Dhix284u9RQK5sw.jpg" width="400"><br>
-
-یوسف رجی، وزیر خارجه لبنان، می‌گوید تصمیم برای پایان‌دادن به نقش نظامی حزب‌الله در این کشور یک تصمیم حاکمیتی و مستقل لبنان بوده و پیش از توافق اصولی اخیر با اسرائیل اتخاذ شده است.
-آقای رجی روز پنجنشبه ۲۵ تیر گفت که این تصمیم زمینه را برای توافقی فراهم کرد که ماه گذشته با میانجی‌گری آمریکا میان لبنان و اسرائیل حاصل شد.
-او با تأکید بر این‌که لبنان «تصمیم خود را گرفته است»، گفت دیگر بازگشتی به «دوگانگی حاکمیت» وجود نخواهد داشت و جایی برای سلاح خارج از چارچوب مشروعیت دولت یا تصمیم‌گیری خارج از نهادهای رسمی کشور نیست.
-رجی همچنین گفت استقرار ارتش لبنان در سراسر خاک این کشور، موضوعی جدایی‌ناپذیر از خروج کامل نیروهای اسرائیلی از همهٔ مناطق اشغالی لبنان است.
-حزب‌الله که تحت حمایت جمهوری اسلامی ایران است، از سوی آمریکا یک سازمان تروریستی شناخته شده اما اتحادیه اروپا تنها شاخهٔ نظامی آن را تروریستی می‌داند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77144)
 
 ---
 
