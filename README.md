@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-17 20:31:29 </h5>
+<h5> 🟢 Updated at: 2026-07-17 22:24:09 </h5>
 </div>
 
 
@@ -25,12 +25,18 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-17 19:54:12
 
-<img src="https://cdn1.telesco.pe/file/eYjoOVtyhY6A5qNkicoh2t_hsu6RHSS9M80obxen7Ckc-SAX8p-eu83IlSZbkwqzuOOX3dTOOZzsLPkhK7S2Rs7JwHLXevbvNmNtU9lq9WQ3g1TRdtnNVK3Hon0qSGPkSn9z2um6EQthP2MYfdQQQW6zYZdSa0qZADCEuoy_umJaVfb_b6NM47aeOy4clGxXUWv_ZmvVEwm6SSiJedMSmBgiEYc2vmJ_7m8Lad42T5v-Z2tSsj1V_Z0vlkTMKfJ0U9uPFyIDS6NtPcFImCNHzwidNyGFpKNT5TAhvy5Gc3anWPB4DJYkT_VO4Jynbn7-eeImPciTOwVf_1r6RYjEbA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QrFlU9n5vxU0-UvDYl3QGZnQTNsiK3XmWxaoEYJ18PhEFb0Y3-lCxx8LoTtU5HpkkeNwlGAlJvUFpGSO5vQZRSXJ8bYDX549UfPBx959TFN7d597ZpHeVUmTl8MRK1OFpQ_-mOvk3Vmj-skd1OT4_JXuK8c7GBxC-889UmeMmGGKAVe5zGbmaupS5hcUw8DoFRvSgli7EERBqJwKKGDN94QHNUzCRyzA5lsZg0LUa-vwwf_CeEZA8HG7iE9mkKBRZ9gtCZTusg2D-5y_2szWp3yGB3-A-SXZ_uMV5E75S7jnyun9Mq8wcArnxNp9bsSPzLGOukTItQSxBuMVeYslBQ.jpg" width="400"><br>
 
-به گزارش اکسیوس، سه مقام آمریکایی و اسرائیلی اعلام کردند دولت آمریکا به اسرائیل اطلاع داده است که در آستانه احتمال گسترش عملیات نظامی علیه جمهوری اسلامی، ده‌ها هواپیمای سوخت‌رسان دیگر به این کشور اعزام خواهد کرد.
-به گفته مقام‌های اسرائیلی، ارتش آمریکا ترجیح می‌دهد این هواپیماها را از فرودگاه بن‌گوریون به پرواز درآورد، زیرا دیگر پایگاه‌های هوایی منطقه بیشتر در معرض حملات جمهوری اسلامی قرار دارند و برای هواپیماهای آمریکایی امنیت کمتری دارند.
+وب‌سایت اکسیوس روز جمعه به نقل از سه مقام آمریکایی و اسرائیلی خبر داد دولت دونالد ترامپ به اسرائیل اطلاع داده که در آستانه احتمال گسترش عملیات نظامی علیه ایران، ده‌ها فروند دیگر هواپیمای سوخت‌رسان را به این کشور اعزام می‌کند.
+بر اساس این گزارش، سه‌شنبه این هفته در نشست «اتاق وضعیت» کاخ سفید، چندین طرح جدید نظامی به رئیس‌جمهور آمریکا، ارائه شد و او در حال بررسی اجرای یک «حمله گسترده» علیه ایران است؛ حمله‌ای که دامنه آن از حملات کنونی در اطراف تنگه هرمز «فراتر» خواهد رفت.
+اکسیوس می‌گوید «زیرساخت‌های ایران مانند نیروگاه‌های برق، انجام حملات بیشتر به تأسیسات هسته‌ای ایران با هدف دفن هرچه عمیق‌تر ذخایر اورانیوم غنی‌شده، و همچنین بمباران سایت زیرزمینی کوه کلنگ‌گزلا که گمان می‌رود یک تأسیسات هسته‌ای در حال ساخت باشد»، ازجمله گزینه‌های در حال بررسی در دولت آمریکا است.
+دونالد ترامپ روز ۲۲ تیر در یک مصاحبه گفته بود که ارتش آمریکا احتمالاً به زودی به کوه کلنگ حمله خواهد کرد.
+گزارش اکسیوس در عین حال یادآوری می‌کند که ترامپ هنوز تصمیم نهایی را نگرفته است، اما به نظر می‌رسد آماده تشدید جنگ باشد تا خسارتی در حدی به ایران وارد شود تا جمهوری اسلامی تنگه هرمز را باز کند و خواسته‌های او دربارهٔ برنامه هسته‌ای ایران را بپذیرد.
+در حال حاضر، ایالات متحده حدود ۳۰ فروند هواپیمای سوخت‌رسان نظامی در فرودگاه بین‌المللی بن‌گوریون در نزدیکی تل‌آویو و تقریباً همین تعداد نیز در فرودگاه رامون در جنوب اسرائیل مستقر کرده است.
+مقام‌های اسرائیلی به اکسیوس گفته‌اند آمریکا قصد دارد طی روزهای آینده چند ده فروند هواپیمای سوخت‌رسان دیگر نیز به اسرائیل اعزام کند تا شمار این هواپیماها به سطحی برسد که در آغاز جنگ ۴۰ روزه وجود داشت.
+به گفته این مقام‌ها، ارتش آمریکا ترجیح می‌دهد هواپیماهای سوخت‌رسان خود را از فرودگاه بن‌گوریون به پرواز درآورد، زیرا سایر پایگاه‌های هوایی منطقه در برابر حملات ایران آسیب‌پذیرتر هستند و امنیت کمتری برای هواپیماهای آمریکایی دارند.
 @
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -111,21 +117,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77193)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 17:36:47
-
-<img src="https://cdn1.telesco.pe/file/lT0qrPPzR7QSvrkEXwiDKo34-B8_mHxN09yZdDaB-bCxvg09i8q-XgNIjtjZ_RAS6YLrACw-SENOFiTOdNV1bd8lDJx4bIxmLjcUbcll54-z7lwodyQbm44aEBVqkSobsw_RVL1Zq8vBzK4lJhPlU9JIpgb-WkRbhc3I4u17m1mNdlQ9uVRlwgOczlso6W26wEpttGgnzzPFXGGv6RS4s-4xAKzSh49koTv_QoOj9p5mxdk-hxAvhvD7BYvBjdW_b1jAE0IdJy4cjwEn3hFyTZpoXz9bo0CiyO1RffmMiBrgjvhJGfE43m0wXJWmrLWe3U3-fVrCGKqept5KbIG8LQ.jpg" width="400"><br>
-
-در پیام‌ها می‌پرسند چرا فراجا باید همچین پیامکی برای مردم ایران بفرسته که در عراق فلان‌چیز فلان‌طوره.
-در این پیام به هیچ سفری اشاره نشده که معلوم نشه درباره چه کسانی است و فقط هم برای جماعتی که به یک مناسکی علاقه‌‌مند هستند ارسال نشده.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77192)
 
 ---
 
@@ -226,6 +217,24 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77187)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 05:35:40
+
+<img src="https://cdn1.telesco.pe/file/BLABhykJ5wFV6yqvXF6c6IbhMYoR_lU0vd-THbXbxE7pE0o0PYAca74vZnVJmbnNs3TiOu0BSAOOdTYa5vaJM5qPOwPDXxMPs-0eMFKbh5JOMfc-Br3cPelcsjmjqqOyUXAjrPjq4ZbM6XMmZ1cPQmzHuFqjkRbSEJ2GJ2WZShu9Qu6PFcIqlrOOtOxzQiEXMw3t765inpoKXsWptGpJP9RRjcQWErOvEJ3BCU-iJYOsT8YFPdml25Umrp1yz7IAnpfbEN7DRtO3OJNO0VPwsVZlxBr3tDB1vhyNndEBc9aZ4BkhYHhXV8WMig7hvgJx_DXZEDJFxOhWCF7NUwc7Wg.jpg" width="400"><br>
+
+تصاویر دریافتی از 'پهپاد دیده شده در آسمان
+#چابهار
+'
+جمعه ۲۶ تیر
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77185)
 
 ---
 
