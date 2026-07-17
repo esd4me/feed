@@ -3,8 +3,151 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-17 16:37:06 </h5>
+<h5> 🟢 Updated at: 2026-07-17 18:36:26 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-17 18:07:21
+
+
+
+آمریکا: برج مراقبت چابهار را منهدم کردیم
+پست سنتکام ترجمه ماشین:
+در ۱۶ ژوئیه، نیروهای آمریکایی برج مراقبت بندر شهید کلانتری چابهار را با موفقیت منهدم کردند. این برج بخشی از شبکه نظارت دریایی در امتداد سواحل ایران در دریای عمان بود که سپاه پاسداران انقلاب اسلامی دهه‌ها از آن برای ردیابی و هدف قرار دادن کشتی‌های تجاری عبوری از تنگه هرمز استفاده می‌کرد.
+انهدام این برج مستقیماً توانایی سپاه پاسداران برای هماهنگی حملات علیه خدمه غیرنظامی بی‌گناه را تضعیف می‌کند. افزون بر این، این حمله از آزادی کشتیرانی در آب‌های منطقه برای همه شناورها محافظت می‌کند، به‌جز کشتی‌هایی که در تلاش‌اند محاصره دریایی جاری آمریکا علیه ایران را نقض کنند.
+CENTCOM
+پیش‌تر وزیر جنگ آمریکا
+این عکس دریافتی
+رو بدون هیچ توضیحی
+توییت کرده بود
+.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77204)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 18:00:04
+
+<img src="https://cdn1.telesco.pe/file/WvtNZhWK7Qy_2p03pg0EW4bwWeGmVk7nmpy32nBd-30yf4O4M6lGNfvIQyV_ZQbX5CpCkwFfPa5CHx0unTgIqN0Qfn--fWuy1Q4-Nf_moCEVNv8shN1JyiKTiUNg9pR6beuulNytWKgvkbBsI8A7hQ6iOSOGAP43x_vk9WTrx2v3Wpn7cFMQxWKEHebJSTJXUn733_ZVM0soCdinBOWX_WYo9eyrOmvrDQuF8CiaYi6W2x-Y0y68gw2Xeqa0SGWnvZT85HRs5mgo4Z6aAGpGoaAPgL8KV6HmAYFk4PW5ITYtX0nYTiPNKvWCwnOxCqSzvRU1LWojGvKsFPPNHHoCww.jpg" width="400"><br>
+
+عکس دریافتی با شرح: "پل و خط تخریب شده دیشب ایستگاه انشعاب راه‌آهن
+#بندرعباس
+"
+هم‌زمان با حملات آمریکا در بامداد جمعه ۲۶ تیر
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77203)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 17:55:31
+
+<img src="https://cdn1.telesco.pe/file/hEDpK10SCGmeAoq5OXiIB_oVaR66lY2DQG67talDMxRAUqCHPwArzmZKu43sMcEKdAJhqBXjj4yn6-En9Quhl1oUpKniAmwOodewfd7h0gbBvClwRp70EZws9ZATa4X4UHcw4zbasYTqlQDreUJv0wZRxPidXxI9Iuv7cpldSYFn_39jNEKnGo9XQO-NSV41p8TgGoGrlj2WtYkC8CsiP7d5I3DLkLUwcfIn1-TZmaJfR9lr9-dgiTA5wSUx6aX-mJfvRqXpJJwk5XVrxTPGSmOPrDSQ1UfpQZ94gug7AOKWY_U7tWtGP-celLPyDyZGwXtRww8t5wpt19HF22v5oQ.jpg" width="400"><br>
+
+تصاویر منتشر شده در منابع حکومتی با شرح:
+تصاویر هوایی از حمله آمریکا‌ به پل‌های بندرخمیر
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77194)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 17:46:12
+
+
+
+پست سنتکام، ترجمه ماشین:
+🚫
+ادعا: نیروهای ایرانی مدعی‌اند که به پادگان التنف در سوریه حمله کرده و در جریان آن، نیروهای آمریکایی را کشته یا اسیر کرده‌اند. نادرست است.
+✅
+واقعیت: اخیراً هیچ‌یک از نیروهای آمریکایی در منطقه کشته یا اسیر نشده‌اند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77193)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 17:36:47
+
+<img src="https://cdn1.telesco.pe/file/lT0qrPPzR7QSvrkEXwiDKo34-B8_mHxN09yZdDaB-bCxvg09i8q-XgNIjtjZ_RAS6YLrACw-SENOFiTOdNV1bd8lDJx4bIxmLjcUbcll54-z7lwodyQbm44aEBVqkSobsw_RVL1Zq8vBzK4lJhPlU9JIpgb-WkRbhc3I4u17m1mNdlQ9uVRlwgOczlso6W26wEpttGgnzzPFXGGv6RS4s-4xAKzSh49koTv_QoOj9p5mxdk-hxAvhvD7BYvBjdW_b1jAE0IdJy4cjwEn3hFyTZpoXz9bo0CiyO1RffmMiBrgjvhJGfE43m0wXJWmrLWe3U3-fVrCGKqept5KbIG8LQ.jpg" width="400"><br>
+
+در پیام‌ها می‌پرسند چرا فراجا باید همچین پیامکی برای مردم ایران بفرسته که در عراق فلان‌چیز فلان‌طوره.
+در این پیام به هیچ سفری اشاره نشده که معلوم نشه درباره چه کسانی است و فقط هم برای جماعتی که به یک مناسکی علاقه‌‌مند هستند ارسال نشده.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77192)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 17:26:42
+
+<img src="https://cdn4.telesco.pe/file/GApIkbrR2wqgQTY2EQscQEndCHOIPWLTylVbKhcB3Sc9QRyqc5rWM1HIZ3Ct_S0XcGaemhDc5XPAXbin849KazN8jK1rpg2HDoDueZTIlX9zTgKqh5Sm9_n9vWvmmJSGs06Tr4H2Nii8__MzE7q094FaR95MpQaok0O9g9yIx-jlftjGkdm4NocpaJpM6OUrDRK1z282pN8sZisnFXDnpu0GhNLyQGfeGno-gx1KJusHWBIhPYZaY5wqNeuzQLlxDsq39JKPaV-j8KuoR86IheVPLPMjtFNf3r8zdUoUtaVq74me3Le-lSFtgdBlEIgJKcBvfN0MoYYAkP62PEm9Vg.jpg" width="400"><br>
+
+هم‌زمان با ادامه دور تازه درگیری‌های نظامی بین ایران و آمریکا در خاورمیانه، روز جمعه ۲۶ تیر قیمت ارزهای خارجی در بازار آزاد ایران بالاتر رفت و نرخ دلار به ۱۹۱ هزار تومان رسید.
+وب‌سایت‌های اعلام نرخ ارز همچنین قیمت یورو را بیش از ۲۱۸ هزار تومان نشان می‌دهند و بهای پوند انگلیس نیز از ۲۵۶ هزار تومان گذشته است.
+از سوی دیگر، قیمت سکه بهار آزادی در روز جمعه ۱۸۰ میلیون تومان و سکه «طرح امامی» به ۱۸۵ میلیون تومان رسیده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77191)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 17:26:20
+
+<img src="https://cdn4.telesco.pe/file/HPheN0SjPI6wtGNXppviBN1Gsaa_PpHdKnr7E9nZ1aCHTVUCYouHV24wowPpNP73XGyYL0GLY3la8vuWhEE-3hsRIcVJxN4E4NjQqxjLqZpzoFSUi1o0NXGN31QboB3OZLZJhSqDE_GFmsSbspsbYcoSEYFR0dt8C4MwkktRCkZ4Qw_Je2Uuc5N702_AGmETZGApXFGe46rSVfVqcuMn0BpcmEq2WmN1ul3X5nsG_8qDPNHR3BAzt-KXFrjdTg77dI3PuqnmdLGJNZN4GOxK9y765CFN-8n17cWD1i9BlTLxZsx-xJh36Sn6WTW1XmrBN9yWMjx5aY_Keu4XJoyO5w.jpg" width="400"><br>
+
+وزارت برق، آب و انرژی‌های تجدیدپذیر کویت اعلام کرد در جریان حملات جمهوری اسلامی به این کشور، یکی از نیروگاه‌های تولید برق و تاسیسات آب‌شیرین‌کن هدف قرار گرفت و در پی آن آتش‌سوزی رخ داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77190)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 17:25:55
+
+<img src="https://cdn4.telesco.pe/file/mFTs2lqBmd19vbnyjEbc0YieH_BAMHIIeqsXXf4s4GiYDiKCZ_Ti8mL_p4KPFZDojKkcSo0jH9JyquZmlKVYGkTY1c65qHuor8YMAybORXE9Nqe4rX4zLsg3Hw5wvkdN7Dzb8OJaQr2Dg8AemZ0HXcqGXCuhDYZXrj9XVTNh9kif4aTF293pz8FBbaGST54nzUwl697u4AwhnYIje2UpHxVzGBBsNc01TiidOloWNxo8WD6pBMF7fYV1p0kb3RxtjaZsZtLvLmKbY6B_rJJMOY-STlZ_YvvQwzrVlJq4BHeAvDN-Yn98HaSYFxHfdDbtqm8pCD_n_fwsZMHnEYlblw.jpg" width="400"><br>
+
+معاون سیاسی و امنیتی استانداری هرمزگان می‌گوید که از شب گذشته تاکنون، هشت نفر در حملات آمریکا کشته و ۱۹ نفر زخمی شده‌اند.
+پیشتر وزارت بهداشت ایران اعلام کرده بود که تاکنون ۳۸ نفر در ایران در حملات آمریکا در تیرماه کشته شدند.
+بنابر این آمار، در همین مدت بیش از ۴۰۰ نفر هم مجروح شدند.
+دور جدید حملات آمریکا به ایران از ۱۶ تیرماه و در واکنش به هدف قرار گرفتن چند کشتی در تنگه هرمز آغاز شد؛ از آن زمان، ایران هم حملات تلافی‌جویانه‌ای را انجام داده است که می‌گوید هدفش منافع و پایگاه‌های آمریکا در کشورهای منطقه است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77189)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-17 08:30:25
@@ -67,252 +210,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77185)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 05:17:12
-
-
-
-پست سنتکام، ترجمه ماشین:
-آمریکا حملات جدید در ایران را با موفقیت به پایان رساند
-تامپا، فلوریدا — فرماندهی مرکزی ایالات متحده (سنتکام) امروز ساعت ۹:۴۰ شب به وقت شرق آمریکا، تازه‌ترین موج گسترده حملات خود علیه ایران را به پایان رساند.
-نیروهای آمریکایی، از جمله جنگنده‌ها، پهپادهای رزمی و ناوهای جنگی، با استفاده از مهمات هدایت‌شونده دقیق، ده‌ها موضع نظامی ایران، از جمله تأسیسات پایش ساحلی و پدافند هوایی، زیرساخت‌های لجستیکی نظامی و توانمندی‌های دریایی را مورد اصابت قرار دادند. این ششمین شب متوالی حملات آمریکا علیه ایران بود.
-سنتکام به دستور فرمانده کل قوا، به تضعیف بیشتر توانمندی‌های نظامی ایران ادامه می‌دهد و این کشور را در قبال حملات اخیر به کشتی‌رانی تجاری پاسخ‌گو می‌کند.
-بیش از ۵۰ هزار نیروی نظامی آمریکا در سراسر خاورمیانه در حال فعالیت‌اند و همچنان هوشیار، مرگبار و آماده باقی مانده‌اند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77184)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 05:16:45
-
-<img src="https://cdn1.telesco.pe/file/KFdGG8BMu96FY0-DYrreqGZwU3pSIKeclQ_k-a7IyjpXcE9qRFKcy_dCTg4axgnVIV_jFg1KTC-tGJ4elftzwvOKaj8TWKjjCTYmP_QRjSKn_-fGJy4Bc0s8Pqnk-lsGCjyBUV14PdWiHiYPeLwl2ntri62CAK96E4Lx9LVALfnkzyno8A2gP9JJu5EF9eUlAmPz20P8qgoCT9MNKCOLEJqoDGRh-AlOtuMH9gdW_Ul5jlMvC21ywDbgu4ruqtzxtT_dT7bX1uLzctbvc811zSUHaaklr0Z4BKuo5pOoddaHL3TC8TYwb3H_clSpEpv6IdKHnB-WO7_Kw_jnSD5b3A.jpg" width="400"><br>
-
-تصویر دریافتی: 'لحظه انهدام برج مراقبت دریایی چابهار'
-جمعه ۲۶ تیر
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77183)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 05:07:40
-
-<img src="https://cdn1.telesco.pe/file/VIx290ycA-eMHhCSii4-hdRoLKHepqDI2cl48kiTyDULI9kTyOvWtfk_4D7oviPBnpHBxeQEdZ2mCCT2zrrNb-sd3QCctp19Vn2zyGgQORwiBniYUZ2o8vS4vUaGwsbHVL6utq8gKAry0vrjetvdDYmoFL3uDWgDaKLlNocb0d2JXm9GziEYizUS2Rpht6RQUxtP-y5KFswh1pHe0hKPTcqAQ98iLpeE2HG6TFuy7jX0XX5OB1x0S--_qh7Pm-EuY_hHW01itzQATObzJfDQpNSqibSCxkjfDmq1rCQR1wMnpgCuLRRWHUfYbTdle7oAXBSZs_mvyvpKEKqHZDETVw.jpg" width="400"><br>
-
-عکس و پیام‌های دریافتی: در حمله اخیر آمریکا به چابهار باقی‌مانده ساختمان برج مراقبت دریایی فرو ریخت.
-جمعه ۲۶ تیر
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77182)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 04:51:17
-
-<img src="https://cdn1.telesco.pe/file/WrbJylEgn8Z9n1zuhnDF3pirfl-KI1vJDLXc2N3E-ZvKSo45DGxEuFhSLPc3K4osRqmP9v5hDIeoRc1X2CE12aurSN3qYYEpZDdRBXZgeL0T_7aMpmFZHYMyYpNAe_2LRhZ7-zfV_dg4SuuZTAyvnKq3ckCi6YUfglCw7nUZ1unSjL9gqWvTjmWRY66TeiQX2flTL-S0MSjUBnH87nmqeR-E7FFdxMW2pjhMvfqbfcDglZljawMVVv5A19JpqjwyQYS9hg0_vxaGbuBB4XjTQDXdrIgZwJzTjIMUh-r0E8rBQmS7eeWw5x6Rk23V2gvEUbedsNi4oYWwxqbQvgBciA.jpg" width="400"><br>
-
-تصاویر دریافتی: دود انفجار حمله به مکانی در چابهار
-جمعه ۲۶ تیر
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77178)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 04:43:51
-
-<img src="https://cdn1.telesco.pe/file/nml3qS2P7cCiFrb7bvdHlwqndqVtN5zF6pDIQrv2mgr_xTtopHM09-TlV9OWB7rIVHYWp5Vu3RoXBkvI533E7hH0DomHpzVcQIAurY9DMxMFrWa4olBVHHGr53JINhSbt8LTRKlZ64AqVBwHH-S-ybalb_snkahjBT7s7wlvMlihNBCAIJcx6MWX3-TBj9nHcQReiDpqlh6S3DeURBABkdjL9iuScRSo4oWpNLphSm1ZUlt3QMJ_JF1NURB-hW98k-UmEtJDnnwDonCcFUiIM4xOQtr7NiSKN1foXGp3kBbvV2D8nkhd1z3r7J2Zo1dY5drH1MxI3mwEnVLGv0jfXQ.jpg" width="400"><br>
-
-استانداری هرمزگان اعلام کرده حمله به پل‌های گریوه و کهورستان در بندر خمیر ۷ کشته و ۹ زخمی برجا گذاشته است.
-خبرگزاری تسنیم گزارش داده که پل‌های گریوه و کهورستان که بخشی از مسیر اصلی ارتباطی بندرعباس به شیراز محسوب می‌شوند، هدف قرار گرفته‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77177)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 04:43:43
-
-<img src="https://cdn4.telesco.pe/file/rRSK6FzBZBFCyvKqKxI2F6S_11ltrWOvdN-9_3LbIekqFBmLBKUA3kM29ElmRRy0t0GPbRJ96Rm4R2791A0aoVLGvLdqJkQDfwEhRDIosrIrQizibC42d0RPTF-V-zFVbhXqfHktm658nVccKT5F1OHm7OWFsMyqyJzepdgru_oJI9kexULqT6sUBNvfWbw6Y1LujWH-Iigov9CeJ7uUWCTFwaMMp6w20bDE-lLXq9Vn_kWzyAb3ROjC68YrQwstBAQmhEsfRsixjK6uR1OjTqZLoxOJ6bvkTb-OuTmFUao9FI7XUjwUYtmK0Bm5t2HIttE1MV8fGCXPh6Y0Xk63lQ.jpg" width="400"><br>
-
-جی‌دی ونس، معاون رییس‌جمهوری آمریکا، گزارش‌ها درباره دریافت پیامی از جمهوری اسلامی که در آن استیو ویتکاف و جرد کوشنر به سوءاستفاده از مذاکرات و کسب سود از اطلاعات محرمانه متهم شده بودند را تکذیب کرد و گفت هرگز چنین پیامی دریافت نکرده است.
-این واکنش پس از انتشار گزارشی مطرح شد که مدعی بود جمهوری اسلامی در پی مذاکرات سوئیس، ویتکاف و کوشنر را متهم کرده بود از نوسانات بازار ۹ میلیارد دلار سود برده‌اند و خواستار اختصاص نیمی از این مبلغ، معادل ۴.۵ میلیارد دلار، به حکومت ایران شده است.
-ونس این ادعاها را «کاملا بی‌اساس» خواند و گفت ویتکاف و کوشنر از اعضای مورد اعتماد تیم دونالد ترامپ، رییس‌جمهوری آمریکا، هستند و ادعای سوءاستفاده آن‌ها از اطلاعات محرمانه «مضحک» است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77176)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 04:39:23
-
-
-
-پیام‌های دریافتی:
-درود وحید جان چابهار سه چهارتا موج و صدای انفجار و صدای جنگنده
-۴:۳۷ دقیقه
-۴:۳۸ دیقه چابهارو زد
-چابهار زد
-سلام وحید جان صدای دو انفجار ساعت ۴:۳۷ دقیقه در چابهار شنیده شد
-چابهار ۴:۳۸ پایگاه سپاه امام علی و اسکله سپاه توسط جنگنده ای که خیلی پایین پرواز میکرد بمباران شد.
-🔄
-باز هم زد
-دوباره زد الان ۴:۴۰
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77175)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 04:20:59
-
-
-
-پیام دریافتی 'از قطر':
-ده دقیقه پیش صدا انفجار و پدافند، دوحه.
-Still no threat cleared message.
-آپدیت ۴:۲۳:
-Security threat eliminated.
-هم‌زمان از تبریز پیام‌هایی درباره شنیده شدن صدای پرتاب موشک دریافت می‌کنم. قبلش هم از شهرهای دیگری پیام مشابه فرستادند
-.‌
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77174)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 03:49:45
-
-
-
-ویدیوی منابع حکومتی از
-محل حمله آمریکا به پل جاده دسترسی بندرعباس – بندر خمیر و جنوب استان فارس
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77173)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 03:19:19
-
-<img src="https://cdn1.telesco.pe/file/LGEcemF7T9mgO0a_TYl1nwn9yFbVo0J04XeZqm-W3zkZrkkpT8HAzdmgOfy6k6UDa_CozycfDTgFEHWZbLSt08ekLXUijkSOtTdzlpAJrpbir95Ks79qkOuGytb0v5jd-0jMKTQ2CPqzixMRMjfzssDAGNhY9yLFOgR2TDTpr6BA4Jpz8YUibyEIlLpnE4C7WRW0QyA2FTMK9EFdj83TfexUscs9-52kYQSSYQhby6rztjg-DBDQZa07OJIkemdq3pKRPpPaOhM5vvoVOqF02F0InaZKirIC8O0mE5BP1pZiFZj4iVAdIdFmd_W-bEXJhMYlCVSy0qMk8uxec-2Dbg.jpg" width="400"><br>
-
-یک مقام ارشد آمریکایی به روزنامه وال‌استریت ژورنال گفت ارتش ایالات متحده چندین پل در ایران را هدف قرار داد تا مسیرهای تدارکاتی منتهی به بندرعباس و پایگاه دریایی واقع در تنگه هرمز را قطع کند.
-آمریکا می‌گوید جمهوری اسلامی از آن پایگاه دریایی برای حمله به کشتی‌ها و نمایش قدرت استفاده می‌کند.
-تلویزیون حکومتی ایران نیز گزارش داد که چندین حمله به پل‌هایی در بندرعباس و مناطق اطراف آن انجام شده و بزرگراه‌های منتهی به بندرعباس از استان‌های همجوار مسدود اعلام شده‌اند.
-رئیس‌جمهوری آمریکا، سه‌شنبه ۲۳ تیر در مصاحبه‌ با شبکه فاکس‌نیوز گفته بود دامنه حملات آمریکا به جمهوری اسلامی در روزهای آینده گسترش خواهد یافت. دونالد ترامپ افزود حملات سنگین ادامه خواهد داشت و اگر جمهوری اسلامی وارد مذاکره نشود، هفته آینده نیروگاه‌های برق و پل‌های آن هدف قرار خواهند گرفت. او تصریح کرد: «تمام نیروگاه‌های برق و تمام پل‌های آن‌ها را از کار خواهیم انداخت، مگر اینکه پای میز مذاکره بیایند.»
-ترامپ در آن مصاحبه همچنین تاکید کرد عملیات نظامی آمریکا علیه جمهوری اسلامی ادامه دارد و این حملات «تا زمانی که خودم بگویم کافی است» متوقف نخواهد شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77172)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 02:57:57
-
-
-
-پیام‌های دریافتی:
-سلام موشک از شهرستان جم استان بوشهر فرستادن
-سلام همین الان از جم موشک بلند شد(۲:۵۶)
-۵عدد موشک از جم به سمت خلیج ۲/۵۷
-سلام وحید جان از جم موشک بلند شد
-سلام همین الان پرتاب موشک از جم 2:57
-سلام وحیدجان الان ساعت ۲:۵۷ از جم موشک بلند شد نمیدونم به سمت کجا
-همین الان ساعت ۲ و ۵۷ دقیقه موشک از جم بلند کردن
-ستاد کل ارتش کویت اعلام کرد سامانه‌های پدافند هوایی این کشور در حال مقابله با حملات موشکی و پهپادی جمهوری اسلامی هستند.
-ارتش کویت همچنین اعلام کرد صدای انفجارهای شنیده‌شده ناشی از رهگیری اهداف مهاجم توسط سامانه‌های پدافندی است و از شهروندان خواست دستورالعمل‌های ایمنی صادرشده از سوی مقام‌های ذی‌ربط را رعایت کنند.
-@
-VahidOOnLine
-پیش‌تر:
-وزارت کشور بحرین اعلام کرد آژیرهای هشدار در این کشور به صدا درآمده و از شهروندان و ساکنان خواست آرامش خود را حفظ کرده و به نزدیک‌ترین محل امن بروند.
-این هشدار در حالی صادر شد که پیش‌تر جمهوری اسلامی اعلام کرده بود پایگاه ناوگان پنجم آمریکا در بحرین را هدف حمله قرار داده است. مقام‌های بحرینی تاکنون درباره علت به صدا درآمدن آژیرها یا وقوع هرگونه حمله جزییات بیشتری منتشر نکرده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77171)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 02:02:25
-
-<img src="https://cdn4.telesco.pe/file/ZjLZfW4ZRMBRWDdPypoVkipcR50AhBB7DSppeRueQcIBtlB4rGoQA-OLQ2qUkrKqzM85hsExtIfjRAjjVoow4ISq6hoKLeYCbcvL0U3W-n2u5XClllVpDLsxQB--nCJUKHqMFsJGLakEqyiHiJDtLqxi9v_F6Gtl9VsmdxzUb0NqMkWO2wdSRwHZDnrFVshr7KgrTViI7_pjbvLn4MperWZiuP87oU--RZMA2seL5lxRsS6iIvCUzF-8MiGdas0WsLrvcgzAK6cTrM0P_FdlNbEPS91EPH7HxXfnL6TuP8mEgFMTLzmfAdmz1sRy4HF5cmhD03ktBzVoTloUQ1OjhQ.jpg" width="400"><br>
-
-منابع حکومتی به نقل از استانداری هرمزگان:
-در ساعت ۰۱:۳۰ نقاطی در حوالی بندرلنگه مورد حمله آمریکا قرار گرفت.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77170)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 01:02:47
-
-
-
-پست سنتکام، ترجمه ماشین:
-فرماندهی مرکزی ایالات متحده تفنگداران دریایی آمریکا از یگان اعزامی یازدهم تفنگداران دریایی، ۱۶ ژوئیه در خلیج عمان برای راستی‌آزمایی، سوار نفتکش «وِن یائو» شدند.
-تا امروز، نیروهای آمریکایی مسیر ۳ کشتی تجاری را که تلاش داشتند محاصره را بشکنند تغییر داده‌اند، ۱ کشتی را که از دستورات تبعیت نکرد از کار انداخته‌اند و برای اطمینان از اجرای کامل محاصره دریایی جاری آمریکا علیه ایران، وارد ۱ کشتی شده‌اند.
-تنگه هرمز و آب‌های اطراف آن همچنان آزاد و باز است، به‌جز برای کشتی‌هایی که تلاش می‌کنند «دیوار فولادین» محاصره آمریکا را نقض کنند.
-🇺🇸
-CENTCOM
-ویدیوی دیگری رو هم توییت کردند. میشه از ثانیه 00:20 ویدیوی بالا
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77169)
 
 ---
 
