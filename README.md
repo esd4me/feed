@@ -3,21 +3,55 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-17 18:36:26 </h5>
+<h5> 🟢 Updated at: 2026-07-17 20:31:29 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-17 20:29:21
+
+
+
+انتشار ویدئویی‌هایی از قرارگاه سپاه پاسداران در راسک نشان می‌دهد که در پی حمله هوایی آمریکا، سقف یک سوله بزرگ در این مجموعه به شدت آسیب دیده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77206)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 19:54:12
+
+<img src="https://cdn1.telesco.pe/file/eYjoOVtyhY6A5qNkicoh2t_hsu6RHSS9M80obxen7Ckc-SAX8p-eu83IlSZbkwqzuOOX3dTOOZzsLPkhK7S2Rs7JwHLXevbvNmNtU9lq9WQ3g1TRdtnNVK3Hon0qSGPkSn9z2um6EQthP2MYfdQQQW6zYZdSa0qZADCEuoy_umJaVfb_b6NM47aeOy4clGxXUWv_ZmvVEwm6SSiJedMSmBgiEYc2vmJ_7m8Lad42T5v-Z2tSsj1V_Z0vlkTMKfJ0U9uPFyIDS6NtPcFImCNHzwidNyGFpKNT5TAhvy5Gc3anWPB4DJYkT_VO4Jynbn7-eeImPciTOwVf_1r6RYjEbA.jpg" width="400"><br>
+
+به گزارش اکسیوس، سه مقام آمریکایی و اسرائیلی اعلام کردند دولت آمریکا به اسرائیل اطلاع داده است که در آستانه احتمال گسترش عملیات نظامی علیه جمهوری اسلامی، ده‌ها هواپیمای سوخت‌رسان دیگر به این کشور اعزام خواهد کرد.
+به گفته مقام‌های اسرائیلی، ارتش آمریکا ترجیح می‌دهد این هواپیماها را از فرودگاه بن‌گوریون به پرواز درآورد، زیرا دیگر پایگاه‌های هوایی منطقه بیشتر در معرض حملات جمهوری اسلامی قرار دارند و برای هواپیماهای آمریکایی امنیت کمتری دارند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77205)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-17 18:07:21
 
 
 
-آمریکا: برج مراقبت چابهار را منهدم کردیم
+آمریکا: برج مراقبت چابهار را منهدم کردیم چون سپاه
+...
 پست سنتکام ترجمه ماشین:
 در ۱۶ ژوئیه، نیروهای آمریکایی برج مراقبت بندر شهید کلانتری چابهار را با موفقیت منهدم کردند. این برج بخشی از شبکه نظارت دریایی در امتداد سواحل ایران در دریای عمان بود که سپاه پاسداران انقلاب اسلامی دهه‌ها از آن برای ردیابی و هدف قرار دادن کشتی‌های تجاری عبوری از تنگه هرمز استفاده می‌کرد.
 انهدام این برج مستقیماً توانایی سپاه پاسداران برای هماهنگی حملات علیه خدمه غیرنظامی بی‌گناه را تضعیف می‌کند. افزون بر این، این حمله از آزادی کشتیرانی در آب‌های منطقه برای همه شناورها محافظت می‌کند، به‌جز کشتی‌هایی که در تلاش‌اند محاصره دریایی جاری آمریکا علیه ایران را نقض کنند.
 CENTCOM
-پیش‌تر وزیر جنگ آمریکا
-این عکس دریافتی
+پیش‌تر پیت هگست، وزیر جنگ آمریکا،
+این تصویر دریافتی
 رو بدون هیچ توضیحی
 توییت کرده بود
 .
@@ -192,24 +226,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77187)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 05:35:40
-
-<img src="https://cdn1.telesco.pe/file/BLABhykJ5wFV6yqvXF6c6IbhMYoR_lU0vd-THbXbxE7pE0o0PYAca74vZnVJmbnNs3TiOu0BSAOOdTYa5vaJM5qPOwPDXxMPs-0eMFKbh5JOMfc-Br3cPelcsjmjqqOyUXAjrPjq4ZbM6XMmZ1cPQmzHuFqjkRbSEJ2GJ2WZShu9Qu6PFcIqlrOOtOxzQiEXMw3t765inpoKXsWptGpJP9RRjcQWErOvEJ3BCU-iJYOsT8YFPdml25Umrp1yz7IAnpfbEN7DRtO3OJNO0VPwsVZlxBr3tDB1vhyNndEBc9aZ4BkhYHhXV8WMig7hvgJx_DXZEDJFxOhWCF7NUwc7Wg.jpg" width="400"><br>
-
-تصاویر دریافتی از 'پهپاد دیده شده در آسمان
-#چابهار
-'
-جمعه ۲۶ تیر
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77185)
 
 ---
 
