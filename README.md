@@ -3,8 +3,62 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-17 23:29:41 </h5>
+<h5> 🟢 Updated at: 2026-07-18 00:31:58 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-18 00:24:20
+
+
+
+ویدیوی دریافتی با شرح: 'حمله به سایت موشکی در جاده گراش
+#لار
+'
+جمعه ۲۶ تیر
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77211)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-18 00:14:50
+
+
+
+پیام‌های دریافتی تایید نشده:
+‌
+پیام ساعت ۰۰:۰۷: لار داره پشت سر هم صدای انفجار میاد
+سمت جاده گراش
+حدود ۱۴ تا صدای انفجار
+سلام اقا وحید الان لار دوبار صدای وحشتناکی اومد فک کنم سایت موشکی رو زدن
+سایت موشکی لار [رو ] ‌بیشتر از ۱۰بار زدن
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77210)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 23:30:12
+
+
+
+پست سنتکام ترجمه ماشین:
+سنتکام امروز ساعت ۳ بعدازظهر به وقت شرق آمریکا [۲۲:۳۰ به وقت تهران]، برای هفتمین شب متوالی دور تازه‌ای از حملات علیه ایران را آغاز کرد. این حملات به دستور فرمانده کل قوا و با هدف ادامه تضعیف توانمندی‌های نظامی ایران انجام می‌شود.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77209)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-17 23:16:22
@@ -172,57 +226,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77191)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 17:26:20
-
-<img src="https://cdn4.telesco.pe/file/HPheN0SjPI6wtGNXppviBN1Gsaa_PpHdKnr7E9nZ1aCHTVUCYouHV24wowPpNP73XGyYL0GLY3la8vuWhEE-3hsRIcVJxN4E4NjQqxjLqZpzoFSUi1o0NXGN31QboB3OZLZJhSqDE_GFmsSbspsbYcoSEYFR0dt8C4MwkktRCkZ4Qw_Je2Uuc5N702_AGmETZGApXFGe46rSVfVqcuMn0BpcmEq2WmN1ul3X5nsG_8qDPNHR3BAzt-KXFrjdTg77dI3PuqnmdLGJNZN4GOxK9y765CFN-8n17cWD1i9BlTLxZsx-xJh36Sn6WTW1XmrBN9yWMjx5aY_Keu4XJoyO5w.jpg" width="400"><br>
-
-وزارت برق، آب و انرژی‌های تجدیدپذیر کویت اعلام کرد در جریان حملات جمهوری اسلامی به این کشور، یکی از نیروگاه‌های تولید برق و تاسیسات آب‌شیرین‌کن هدف قرار گرفت و در پی آن آتش‌سوزی رخ داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77190)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 17:25:55
-
-<img src="https://cdn4.telesco.pe/file/mFTs2lqBmd19vbnyjEbc0YieH_BAMHIIeqsXXf4s4GiYDiKCZ_Ti8mL_p4KPFZDojKkcSo0jH9JyquZmlKVYGkTY1c65qHuor8YMAybORXE9Nqe4rX4zLsg3Hw5wvkdN7Dzb8OJaQr2Dg8AemZ0HXcqGXCuhDYZXrj9XVTNh9kif4aTF293pz8FBbaGST54nzUwl697u4AwhnYIje2UpHxVzGBBsNc01TiidOloWNxo8WD6pBMF7fYV1p0kb3RxtjaZsZtLvLmKbY6B_rJJMOY-STlZ_YvvQwzrVlJq4BHeAvDN-Yn98HaSYFxHfdDbtqm8pCD_n_fwsZMHnEYlblw.jpg" width="400"><br>
-
-معاون سیاسی و امنیتی استانداری هرمزگان می‌گوید که از شب گذشته تاکنون، هشت نفر در حملات آمریکا کشته و ۱۹ نفر زخمی شده‌اند.
-پیشتر وزارت بهداشت ایران اعلام کرده بود که تاکنون ۳۸ نفر در ایران در حملات آمریکا در تیرماه کشته شدند.
-بنابر این آمار، در همین مدت بیش از ۴۰۰ نفر هم مجروح شدند.
-دور جدید حملات آمریکا به ایران از ۱۶ تیرماه و در واکنش به هدف قرار گرفتن چند کشتی در تنگه هرمز آغاز شد؛ از آن زمان، ایران هم حملات تلافی‌جویانه‌ای را انجام داده است که می‌گوید هدفش منافع و پایگاه‌های آمریکا در کشورهای منطقه است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77189)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-17 08:30:25
-
-
-
-ویدیوی دریافتی: پل تخریب شده در کهورستان شهرستان خمیر استان هرمزگان
-بنا بر گزارش‌ها شب گذشته، پنج‌شنبه ۲۵ تیر، در حمله هوایی آمریکا هدف گرفته شده.
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77188)
 
 ---
 
