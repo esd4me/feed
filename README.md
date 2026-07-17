@@ -3,8 +3,169 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-17 03:24:56 </h5>
+<h5> 🟢 Updated at: 2026-07-17 05:30:37 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-17 05:17:12
+
+
+
+پست سنتکام، ترجمه ماشین:
+آمریکا حملات جدید در ایران را با موفقیت به پایان رساند
+تامپا، فلوریدا — فرماندهی مرکزی ایالات متحده (سنتکام) امروز ساعت ۹:۴۰ شب به وقت شرق آمریکا، تازه‌ترین موج گسترده حملات خود علیه ایران را به پایان رساند.
+نیروهای آمریکایی، از جمله جنگنده‌ها، پهپادهای رزمی و ناوهای جنگی، با استفاده از مهمات هدایت‌شونده دقیق، ده‌ها موضع نظامی ایران، از جمله تأسیسات پایش ساحلی و پدافند هوایی، زیرساخت‌های لجستیکی نظامی و توانمندی‌های دریایی را مورد اصابت قرار دادند. این ششمین شب متوالی حملات آمریکا علیه ایران بود.
+سنتکام به دستور فرمانده کل قوا، به تضعیف بیشتر توانمندی‌های نظامی ایران ادامه می‌دهد و این کشور را در قبال حملات اخیر به کشتی‌رانی تجاری پاسخ‌گو می‌کند.
+بیش از ۵۰ هزار نیروی نظامی آمریکا در سراسر خاورمیانه در حال فعالیت‌اند و همچنان هوشیار، مرگبار و آماده باقی مانده‌اند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77184)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 05:16:45
+
+<img src="https://cdn1.telesco.pe/file/KFdGG8BMu96FY0-DYrreqGZwU3pSIKeclQ_k-a7IyjpXcE9qRFKcy_dCTg4axgnVIV_jFg1KTC-tGJ4elftzwvOKaj8TWKjjCTYmP_QRjSKn_-fGJy4Bc0s8Pqnk-lsGCjyBUV14PdWiHiYPeLwl2ntri62CAK96E4Lx9LVALfnkzyno8A2gP9JJu5EF9eUlAmPz20P8qgoCT9MNKCOLEJqoDGRh-AlOtuMH9gdW_Ul5jlMvC21ywDbgu4ruqtzxtT_dT7bX1uLzctbvc811zSUHaaklr0Z4BKuo5pOoddaHL3TC8TYwb3H_clSpEpv6IdKHnB-WO7_Kw_jnSD5b3A.jpg" width="400"><br>
+
+تصویر دریافتی: 'لحظه انهدام برج مراقبت دریایی چابهار'
+جمعه ۲۶ تیر
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77183)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 05:07:40
+
+<img src="https://cdn1.telesco.pe/file/VIx290ycA-eMHhCSii4-hdRoLKHepqDI2cl48kiTyDULI9kTyOvWtfk_4D7oviPBnpHBxeQEdZ2mCCT2zrrNb-sd3QCctp19Vn2zyGgQORwiBniYUZ2o8vS4vUaGwsbHVL6utq8gKAry0vrjetvdDYmoFL3uDWgDaKLlNocb0d2JXm9GziEYizUS2Rpht6RQUxtP-y5KFswh1pHe0hKPTcqAQ98iLpeE2HG6TFuy7jX0XX5OB1x0S--_qh7Pm-EuY_hHW01itzQATObzJfDQpNSqibSCxkjfDmq1rCQR1wMnpgCuLRRWHUfYbTdle7oAXBSZs_mvyvpKEKqHZDETVw.jpg" width="400"><br>
+
+عکس و پیام‌های دریافتی: در حمله اخیر آمریکا به چابهار باقی‌مانده ساختمان برج مراقبت دریایی فرو ریخت.
+جمعه ۲۶ تیر
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77182)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 04:51:17
+
+<img src="https://cdn1.telesco.pe/file/WrbJylEgn8Z9n1zuhnDF3pirfl-KI1vJDLXc2N3E-ZvKSo45DGxEuFhSLPc3K4osRqmP9v5hDIeoRc1X2CE12aurSN3qYYEpZDdRBXZgeL0T_7aMpmFZHYMyYpNAe_2LRhZ7-zfV_dg4SuuZTAyvnKq3ckCi6YUfglCw7nUZ1unSjL9gqWvTjmWRY66TeiQX2flTL-S0MSjUBnH87nmqeR-E7FFdxMW2pjhMvfqbfcDglZljawMVVv5A19JpqjwyQYS9hg0_vxaGbuBB4XjTQDXdrIgZwJzTjIMUh-r0E8rBQmS7eeWw5x6Rk23V2gvEUbedsNi4oYWwxqbQvgBciA.jpg" width="400"><br>
+
+تصاویر دریافتی: دود انفجار حمله به مکانی در چابهار
+جمعه ۲۶ تیر
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77178)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 04:43:51
+
+<img src="https://cdn1.telesco.pe/file/nml3qS2P7cCiFrb7bvdHlwqndqVtN5zF6pDIQrv2mgr_xTtopHM09-TlV9OWB7rIVHYWp5Vu3RoXBkvI533E7hH0DomHpzVcQIAurY9DMxMFrWa4olBVHHGr53JINhSbt8LTRKlZ64AqVBwHH-S-ybalb_snkahjBT7s7wlvMlihNBCAIJcx6MWX3-TBj9nHcQReiDpqlh6S3DeURBABkdjL9iuScRSo4oWpNLphSm1ZUlt3QMJ_JF1NURB-hW98k-UmEtJDnnwDonCcFUiIM4xOQtr7NiSKN1foXGp3kBbvV2D8nkhd1z3r7J2Zo1dY5drH1MxI3mwEnVLGv0jfXQ.jpg" width="400"><br>
+
+استانداری هرمزگان اعلام کرده حمله به پل‌های گریوه و کهورستان در بندر خمیر ۷ کشته و ۹ زخمی برجا گذاشته است.
+خبرگزاری تسنیم گزارش داده که پل‌های گریوه و کهورستان که بخشی از مسیر اصلی ارتباطی بندرعباس به شیراز محسوب می‌شوند، هدف قرار گرفته‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77177)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 04:43:43
+
+<img src="https://cdn4.telesco.pe/file/rRSK6FzBZBFCyvKqKxI2F6S_11ltrWOvdN-9_3LbIekqFBmLBKUA3kM29ElmRRy0t0GPbRJ96Rm4R2791A0aoVLGvLdqJkQDfwEhRDIosrIrQizibC42d0RPTF-V-zFVbhXqfHktm658nVccKT5F1OHm7OWFsMyqyJzepdgru_oJI9kexULqT6sUBNvfWbw6Y1LujWH-Iigov9CeJ7uUWCTFwaMMp6w20bDE-lLXq9Vn_kWzyAb3ROjC68YrQwstBAQmhEsfRsixjK6uR1OjTqZLoxOJ6bvkTb-OuTmFUao9FI7XUjwUYtmK0Bm5t2HIttE1MV8fGCXPh6Y0Xk63lQ.jpg" width="400"><br>
+
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، گزارش‌ها درباره دریافت پیامی از جمهوری اسلامی که در آن استیو ویتکاف و جرد کوشنر به سوءاستفاده از مذاکرات و کسب سود از اطلاعات محرمانه متهم شده بودند را تکذیب کرد و گفت هرگز چنین پیامی دریافت نکرده است.
+این واکنش پس از انتشار گزارشی مطرح شد که مدعی بود جمهوری اسلامی در پی مذاکرات سوئیس، ویتکاف و کوشنر را متهم کرده بود از نوسانات بازار ۹ میلیارد دلار سود برده‌اند و خواستار اختصاص نیمی از این مبلغ، معادل ۴.۵ میلیارد دلار، به حکومت ایران شده است.
+ونس این ادعاها را «کاملا بی‌اساس» خواند و گفت ویتکاف و کوشنر از اعضای مورد اعتماد تیم دونالد ترامپ، رییس‌جمهوری آمریکا، هستند و ادعای سوءاستفاده آن‌ها از اطلاعات محرمانه «مضحک» است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77176)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 04:39:23
+
+
+
+پیام‌های دریافتی:
+درود وحید جان چابهار سه چهارتا موج و صدای انفجار و صدای جنگنده
+۴:۳۷ دقیقه
+۴:۳۸ دیقه چابهارو زد
+چابهار زد
+سلام وحید جان صدای دو انفجار ساعت ۴:۳۷ دقیقه در چابهار شنیده شد
+چابهار ۴:۳۸ پایگاه سپاه امام علی و اسکله سپاه توسط جنگنده ای که خیلی پایین پرواز میکرد بمباران شد.
+🔄
+باز هم زد
+دوباره زد الان ۴:۴۰
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77175)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 04:20:59
+
+
+
+پیام دریافتی 'از قطر':
+ده دقیقه پیش صدا انفجار و پدافند، دوحه.
+Still no threat cleared message.
+آپدیت ۴:۲۳:
+Security threat eliminated.
+هم‌زمان از تبریز پیام‌هایی درباره شنیده شدن صدای پرتاب موشک دریافت می‌کنم. قبلش هم از شهرهای دیگری پیام مشابه فرستادند.
+‌
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77174)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-17 03:49:45
+
+
+
+ویدیوی منابع حکومتی از
+محل حمله آمریکا به پل جاده دسترسی بندرعباس – بندر خمیر و جنوب استان فارس
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77173)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-17 03:19:19
@@ -211,263 +372,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77165)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 23:40:19
-
-
-
-ویدیوی دریافتی با شرح: در کهورستان
-#بندرعباس
-یک پل هدف گرفته شده.
-صدای ویدیو: موشک خورد به وسط پل، تانکر سوخت نابود شد، راننده مرد، یک تیکه از پل نیست، کسی این طرفی نیاد...
-پنج‌شنبه ۲۵ تیر
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77164)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 23:31:30
-
-
-
-ویدیوی دریافتی با شرح: کهورستان بندرعباس پل زدند
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77163)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 23:30:09
-
-<img src="https://cdn1.telesco.pe/file/VJCE4wjMJo-hMuloZ9r6arUiiO3hJM0D34xsfwTIvUVpb4h_k92BSS00YzsTbfPGydNBEUUoUVIv9JDwwZgJFWkGGusYqHSSQnQ_SX2bjn7gLfDhxoFYQkM-ZA_QdiDg9Q6wsMA4Kfy6CIJFO2u6HUUw65-GFK3NQ7Yg7uPUamvVEJ02RH-0GB-Mb-n6Es9Kn9eRvVT11IBNYTzZlzgVYfsF8gF3jhZ1y5GqcZELIw8pSlRJ9xZa7U4VkcPUnjZjjUOqbIl6ljLiwF6d28ucXzKMMcILhy-uIChPgDtkEg3bJ7wooQRbV20PEmfNMGgVNwDco4by5YI-UzKQv93Y7A.jpg" width="400"><br>
-
-تصاویر دریافتی با شرح: حمله به فرودگاه ایرانشهر در سیستان و بلوچستان
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77160)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 23:21:12
-
-
-
-پیام‌های دریافتی:
-سلام داش ایرانشهر فرودگاهشو دوباره زدن ساعت ۲۳:۰۱
-پنج دقیقه پیش دوباره فرودگاه ایرانشهرو زدن
-سلام  ده دقیقه پیش فرودگاه ایرانشهر رو زدن
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77159)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 23:13:01
-
-<img src="https://cdn1.telesco.pe/file/Go3j8cB4oT19tccVLSwdiW7rmFmztPQvWnTKJ6lJvdJ2qNAoSbro5aXpeCL6OuDucgFy_u2DqUSOtWlvBcYcWeJR64joWNnl0fNotRWb8mNxFdxCrPdHIPHF25inxidzvteKlaov14XlYlN2mtJINNXzEyjTTOCBogVOHSTUouANIGgtHHCCMMjsrw8Wg1z6rt3_E7zEKsxvxFZfIDKbatSRGBWtAbyxIb4PnzKHGvo2eOvSox7p0DrG47RECrHD_Tw1BnpDq_rToLPXJyWCYIPRkpQvV24DonTKDoP5gmAWmjXvn5O69q4q9l5xuOlY93Rcy3brqVvnyG4Q_lvBew.jpg" width="400"><br>
-
-تسنیم:
-مصدومیت ۷ نفر در حمله دشمن آمریکایی به بندرعباس
-🔹
-به گزارش خبرنگار خبرگزاری تسنیم: در پی حمله دقایق پیش نیروهای متجاوز آمریکایی به محله مسکونی تپه الله اکبر در شهر بندرعباس، متأسفانه تاکنون ۷ نفر از هموطنان مجروح شده‌اند .
-🔹
-بلافاصله پس از وقوع این حادثه، کلیه نیروهای امدادی و درمانی دانشگاه علوم پزشکی هرمزگان در حالت آماده‌باش کامل قرار گرفته و اقدامات درمانی لازم برای مداوای مصدومین در حال انجام است.
-🔹
-روابط عمومی دانشگاه علوم پزشکی هرمزگان ضمن محکومیت شدید این اقدام تجاوزکارانه، از عموم مردم شریف بندرعباس می‌خواهد ضمن حفظ آرامش، اخبار را تنها از طریق مراجع رسمی و معتبر دنبال کرده و از هرگونه شایعه‌پراکنی خودداری فرمایند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77158)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 23:04:02
-
-
-
-پیام‌های دریافتی:
-‌
-بندرعباس صدای انفجار شدید ۴ بار
-ساعت ۱۱ شب
-همین الان صدای انفجار شدید مرکز شهر بندرعباس اومد
-سلاام وحید جان
-بندرعباس دوتا انفجارر
-شرق بندرعباس پایگاه هوایی ۲۳:۰۰ دارن میزنن
-الان دو تا صدای انفجار بد آمد بندرعباس
-بندرعباس دو تا انفجار صدای دومی مهیب بود ساعت ۲۳
-سمت شرق بود
-بندرعباس همین الان صدای انفجار
-چند دقیقه قبل تر هم یه صدای انفجار اومد
-بندر الان اینقدر شدید بود پنجره‌های اتاقم لرزید ۱۱:۰۱
-سلام الان ۴ بار با فاصله چند ثانیه خیلی با شدت بندرعباس رو زدن (ما نزدیکای فرودگاهیم)
-وحید جان سلام الان ساعت ۱۱ شب قشم هم صدای جنگنده اومد هم ۴.۵تا انفجار که خونرو لرزوند جنگنده تو اسمون میچرخه
-باز هم بندرعباس صدای جنگنده خیلی واضح داره میاد دوتا صدای انفجار اومد بلافاصله برق قطع شدد صدای جنگنده اصلا قطع نمیشه
-بندرعباس ساعت ۱۱ فکر کنم سمت پایگاه هوایی باشه.
-وحید جان سلام ، قشم سمت دهخدا ۳ تا صدای نسبتا شدید شنیدیم.
-بندر عباس همچنان داره میزنههه
-صدای زیاد و لرزش
-برق هم داره نوسان میده
-ی مناطقی هم قطع شده
-ساعت یازده شب صدای سه انفجار بندرعباس
-الآن سه تا صدای انفجار بندرعباس اومد
-بندر عباس تو فاصله چند دقیقه ۴، ۵ تا صدای خیلی بلند خونه لرزید ، آخریش ۱۱:۰۲ دقیقه اینا بود
-سلام وحید بندرعباس اول برق اتصالی کرد بعد صدای انفجار شدید
-وحید سلام دقیقا ساعت ۲۳:۰۰ صدای انفجار بندرعباس
-بندرعباس ساعت ۲۳:۰۰ صدای ۴ انفجار خیلی شدید و سهمگین اومد
-بندر دوباره زد. بزرگ ولی نه به بزرگی یکی دو ساعت پیش
-انفجارهای امشب تو بندرعباس از شب های قبل خیلی بیشتره
-واقعا ترسناک بود
-به مرکز شهر و نزدیک گلشهر صداش اومد
-بندر رو چند بار زد و برق هم قطع و وصل شد
-وحید برق نه تنها بندر نوسان داشت بلکه چندتا از روستاهای بندر هم همینجوری نوسان و قطعی داره
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77157)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 22:31:42
-
-
-
-پیام‌های دریافتی:
-سلام وحید جان
-الان اهواز صدای دو تا انفجار اومد  ۱۰:۳۰
-اهواز انفجار دوباره همون ۲۲:۳۱
-اهواز ساعت ۱۰:۳۱ دقیقه دوتا صدای انفجار مهیب اومد
-وحید جون 10:30 دو انفجار پشت هم اهواز
-الان ۲۲ و۳۰ دقه صدای انفجار اومد اهواز
-اهواز ساعت ۱۰:۳۰ صدای سه انفجار اومد.
-اهواز طبق روال روز های قبل ساعت ۲۲:۳۰ صدای انفجار میاد
-صدای سه انفجار شدید
-دقت كردين همش سر يه تايمه
-😭
-😭
-😭
-😭
-دیشب هم دقیقا همین ساعت ۲۲:۳۱ زدن
-اهواز ساعت 10:30 زدن سه تا بود
-همین الان 22:30 صدای دو انفجار مهیب در اهواز
-بازم مثل دیروز راس ساعت 10.31 دقیقه اهواز رو زدن
-اهواز ۲۲:۳۰، زدشون از قطعی برق هم آن‌تایم تره
-اهواز صدای ۲انفجار ساعت۲۲/۳۱
-همین الان اهواز صدای انفجار اومد
-ساعت ۱۰/۳۰ شروع شد مثل هرشب
-سلام آقا وحید دو انفجار پی در پی اهواز ساعت ۲۲:۳۱
-اهواز صدای انفجار دو بار ساعت ۲۲:۳۰
-سلام داش وحید اهواز ۲تا انفجار شدید الان
-اهواز ساعت ۲۲:۳۱ صدای دو انفجار اومد
-دیشب هم دقیقا همین ساعت شروع شد
-هر شب راس ساعت ۱۰:۳۰ اهواز میزنن
-امشب باز ساعت ۱۰ و نیم و دو تا انفجار شدید سمت زیتون کارمندی اهواز.
-سر ساعت، برنامه زمانبندی خاموشی هم اینقدر دقیق نیست وحید.
-🔄
-دوبااااررره
-وای وحید دوباره دوتا
-۲۲:۳۴ دو بار
-اهواز ۲۲:۳۴ انفجار مجدد شدید
-دوباره دو تا صدا پشت سر هم اهواز ۱۰:۳۵
-انفجار ساعت ۲۲:۳۵ اهواز
-یه انفجار دیگه 22:34 این یکی شدیدتررر بود.‌یکی دیگه هم دورتر
-دوباره الان زدن ۲۲:۳۵ اهواز
-اینبار شدیدتر
-خیلی وحشتناک بود
-سومی و چهارمی الان ساعت ۲۲:۳۵ اهواز باز روی لرزه‌ست
-وحید دوتا همین الان اهواز، ساعت ۲۲:۳۵ خیلی صدا بلند بود
-اهواز بعد از اون دوتای اول یکی دیگه الان زد ۲۲:۳۵
-۱۰:۳۵ یه انفجار مهیب و بزرگ توی اهواز
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77156)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 22:10:56
-
-<img src="https://cdn1.telesco.pe/file/Lh75unzC88Wbl1G3s60b8QkrheXDq3NDm-YlW3ycMMSlKb5kovfENnKKgMM5FcyjW1U7abJNlX5XUgGLAep4C2dxmgWtehzGZso6g5Cx2KiPFvZrp1RwFwhXJ3vxt6VPDAG_xUA3634ZHbWCLS96KF_0SD459rF8yVV1NDFp4xL8Mz_eeQ-ExqFRD-zLPt8zXl6KwuJ7KKMZXpv1VngCnARqThcyCmXky9crvgVj4e9P3nXDuIBE86INR-rmn34BTKPi9DZyqXVRQ3QaJ7_82oZMLrkNnT0vHeu1H-JrhprT0p-AykYUCesd61xRBaVB1svxFRhtUJO8ZPlxjxvpfA.jpg" width="400"><br>
-
-سنتکام:
-ساعت ۲ بعدازظهر امروز به وقت شرق آمریکا [۲۱:۳۰ به وقت تهران]، نیروهای ایالات متحده برای پنجمین شب پیاپی اجرای موج تازه‌ای از حملات علیه ایران را آغاز کردند تا توانمندی‌های نظامی ایران را بیش‌ازپیش تضعیف کنند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77155)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 21:44:34
-
-
-
-ویدئویی که گفته می‌شود از حملات امشب به بندرعباس است. @
-farahmand_alipour
-پیام‌های دریافتی:
-سلام وحید بندرعباس ۲۱:۴۴ صدای میاد نمیدونم پدافنده یا انفجار
-سلام وحید جان سه تا انفجار خیلی خیلی وحشتناک همین الان ساعت ۲۱:۴۲ بندرعباس
-بندرعباسم
-دارن میزنننننننن پشت هم
-۹:۴۲ چندتا انفجار شدید بندرعباس
-ساعت ۹ و۴۵
-بندرعباس ۳ تا انفجار وحشناکک
-جلوی خونمون بود
-سلام وحید جان، همین الان ساعت ۲۱.۴۲ سه تا انفجار پشت سر هم بندر عباس
-سلام بندرعباس ساعت 21:43‌چهارتا انفجار
-بندرعباس همین الان چندتا انفجار وحشتناک رخ داد
-سلام آقا وحید غرب بندرعباس منطقه ۴ ترکید ۵ تا انفجار فوق العاده شدید
-3 تاانفجاربندرعباس
-نیروی دریایی ارتش غرب بندرعباس
-و ایستگاه رادیویی بندرعباس
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77154)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-16 19:39:26
-
-<img src="https://cdn4.telesco.pe/file/c9KuofcqRbNEgfTbYy8Y-jAoofG8yMSs0H9dXTZSSnSH4jsE6NAtDRtcbgQ2Oywc0uI5fnaCmhwvEmz2EbxxB-AdpyzAlhEmIWPYqsikGkk1doYoVcIXxD5f2nbsGSGhuv3dKJ_K8GBqbAbXQuSf_D0wvDQ107xD_dpARdn8vSNW3TIT8S0vTwbE7zhCEdAm2zOOj21tJqd6t1ndqVGeze5EQZ91fOa8WeS4lVXcj57hIAS-sqHftYxAtetjLprIES4PH5dQXVuqbN5Ds9xJ0R75kaVT_S8QNIHU7epjUyXiFyCcQa2HojeaNZ1mI2mrxzxRtaZqxDyI875pMYUW2g.jpg" width="400"><br>
-
-خبرگزاری فارس:
-🔹
-استانداری هرمزگان: در ساعت ۱۸:۱۰ نقطاتی در حوالی قشم مورد اصابت موشک‌های آمریکایی قرار گرفت.
-بندرعباس:
-استانداری هرمزگان: در ساعت ۱۸:۲۰ و ۱۸:۴۰ نقاطی در حوالی بندر عباس مورد اصابت موشک‌های دشمن آمریکایی قرار گرفت.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77153)
 
 ---
 
