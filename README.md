@@ -3,8 +3,67 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-19 01:18:53 </h5>
+<h5> 🟢 Updated at: 2026-07-19 02:09:27 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-19 01:55:54
+
+<img src="https://cdn1.telesco.pe/file/iPMK1ZpAeyHr4mXpsCTGZDonk7L2wb7bHEGZCHXFAREmCRYaONHFkW7MiZmF1124_O5aENsB4Lc46h7vSQVnqqtyF3SfIO6YxuMsiQjlElwb8HISeTEFuRlJsXpjCqtm778LadTvcfwvpR9EP2rBIltGbmz2dKzrQX_FF2m6VDAY0ZkQwddxO0wXU5mEE-0I9LapsgIm0Tj1UHtLripclU4xusmLTEGQy68uxRqNPyqvIH_FELcYYL4rRWIS8r-osGPDfpgdVUumTxIyogh4lpXMIWkpXdHHRBoumZgTpsXvAAKzpq2lWxdhtvBMiKKjv5XO-Y2NjRlpgX3SBLIrQw.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+امروز ساعت ۶ عصر به وقت شرق آمریکا [۱:۳۰ بامداد یکشنبه به وقت تهران]، نیروهای ایالات متحده به دستور فرمانده کل قوا دور تازه‌ای از حملات هوایی علیه ایران را آغاز کردند.
+این حملات با هدف تضعیف بیشتر توانایی ایران برای تهدید کشتیرانی تجاری در تنگه هرمز و مجازات سریع نیروهای سپاه پاسداران انقلاب اسلامی انجام می‌شود که شب گذشته به نظامیان آمریکایی در اردن حمله کردند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77254)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-19 01:45:10
+
+<img src="https://cdn1.telesco.pe/file/Uj1_ZRVsLm0Q2ImLhOEtD9ihKZRdEu1Z-aCFDbeSP7JDa98_8m0W7LiROm-7fAJiGDksus11ey2FA0I9yFXcMkwc8z4M56eEyk4M1EZPnNBmnyc5HSSs_KJWfqn7GmiL675Is3xmzeIWH_7TPg1rh70-HSCJEwNGjQx-4Fkmn0ArOCIcA5Dc-EoCNFZdnN_FhEfz9Plgdy8b0A21cU_3AU2cUeGfQb_unJ4BWnR2NIUO-jM0W-jb-4uyB-YrfT1mYxJd-ct1u5riz3ObwosuHvx7gzlia2mS9A9GZphCxYFPH_uR2yV1YDmy3EIH_TRMznd2hTdsDgVhbdUNLPD1vg.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، در واکنش به کشته شدن دو سرباز آمریکایی در اردن به شبکه «نیوزنیشن» گفت: «بسیار غم‌انگیز است، واقعا رویداد بسیار غم‌انگیزی است. ما از دیدن چنین چیزی متنفر هستیم. آنها در راه خدمت به کشورمان جان خود را از دست دادند.»
+@
+VahidOOnLine
+ترامپ در بخش دیگری از این مصاحبه با مواضعی قاطع، بار دیگر تأکید کرد که «ایران نمی‌تواند و نباید سلاح هسته‌ای داشته باشد.»
+او همچنین در واکنش به اظهارات مقامات جمهوری اسلامی مبنی بر تعلیق تعهدات تهران در قبال توافق موقت یک ماه پیش، با بی‌اعتنایی کامل اعلام کرد که اهمیتی به این تصمیم ایران نمی‌دهد.
+پیش از این، کاظم غریب‌آبادی، معاون حقوقی و بین‌الملل وزارت امور خارجه جمهوری اسلامی، شنبه ۲۷ تیر، گفت آمریکا همه تعهدات خود ذیل تفاهمنامه اسلام‌آباد را نقض کرده و ایران نیز اجرای تعهداتش را متوقف کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77252)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-19 01:22:14
+
+<img src="https://cdn4.telesco.pe/file/CMUFBn7sZKKZiAThI_WDVVWZVJMa3qqlV12iy-A7_UZWKHE5jyV880QJbxTj3rJZp1XrRiwxyPSyg-xTX6dv_flg32284AdZCWqYNa8SD30x7VEVDR3bfpwwzv7r-TL5yNpEdjRZNym-rZpLw09eP9uoq9GnGfuI_T8nBhFevzJqMcRiutzhGkeeVgSAxnQ3v3R8ElG4UK6QZhMOX7aGEtxYNTZ7fHmiP_sIrdaFnX-zD-JxVbHD5fruaS1PcoluTjQ_n9wbZhspuyjvHelLDUFbBxNMxh2aFdcpAJ4ozG9pA8zl7zf1zb_yzFBDXi05RTXvaHS3qpXDllf7a4OcwA.jpg" width="400"><br>
+
+روزنامه نیویورک تایمز به نقل از چند مقام آمریکایی نوشت حمله جمهوری اسلامی به اردن که جمعه به کشته شدن دو سرباز آمریکایی و مفقود شدن یک سرباز انجامید، چهارمین حمله به نیروهای آمریکایی در این کشور طی پنج روز گذشته بود.
+به گفته این مقام‌ها، این حملات در مجموع ده‌ها سرباز آمریکایی را زخمی کرده و به تعدادی بالگرد بلک هاوک آسیب رسانده است.
+این مقام‌ها گفتند حملات و خسارات ناشی از آنها نشان می‌دهد نیروهای جمهوری اسلامی همچنان ذخایر موشکی قابل توجهی دارند و در عبور از سامانه‌های دفاع هوایی آمریکا نیز ماهرتر شده‌اند.
+نیویورک تایمز نوشت اهمیت اردن برای عملیات آمریکا افزایش یافته است، زیرا پنتاگون پیش و در روزهای نخست جنگ، بخشی از نیروهای خود را از بحرین، امارات متحده عربی و قطر به اردن و اسرائیل منتقل کرد.
+به گفته مقام‌های آمریکایی، محدودیت‌های اعمال‌شده از سوی برخی متحدان منطقه‌ای آمریکا برای استقرار نیروها و پرواز هواپیماهای آمریکایی بر فراز خاکشان نیز نقش اردن در عملیات واشینگتن را افزایش داده است.
+پنتاگون از اظهارنظر در این‌باره خودداری کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77251)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-19 00:53:15
@@ -99,7 +158,7 @@ VahidOOnLine
 مجتبی خامنه‌ای همچنین، آمریکا را به «جنگ‌افروزی» متهم کرد و نوشت: «اکنون که دشمن امریکایی به دنبال جنگ‌افروزی و تحمل هزینه‌های سنگین‌تر و بی‌آبروئی بیشتر است، بداند که ملت عزیز ایران و جبهه مقاومت، درس‌های فراموش‌نشدنی برای او دارد.»
 @
 VahidOOnLine
-از فایل PDF منتشرشده در منابع حکومتی:
+متن پیام بنا بر فایل PDF منتشرشده در منابع حکومتی:
 پیام رهبر معظم انقلاب درباره‌ی حماسه عظیم بدرقه آقای شهید ایران و تبیین مسائل مهم کشور
 بسم الله الرحمن الرحیم
 ملت عظیم‌الشأن و شگفتی‌ساز ایران!
@@ -211,40 +270,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77232)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-18 19:05:37
-
-<img src="https://cdn1.telesco.pe/file/ui7zhNUqcOA6CtDDUUc83qVieIHj1MmOxrV00_GXb-jqp-_lnj_JjjC4XWlsemCjA9eYV-NTdFgmundQNmweMDlYUXtUXtUX2JcFh-_p4h0V7RXZrx3X4Iw5d5QstHiPphK8blnZjdGtQGQGpaye3qPlUuCtIa4JsPbSe-zQbTmrNpykSUFA2pWHmzWxUf79968KR0iPGw2PwmtQvcyH_txxOHdXAgKdYZUQrY_kloml2RPMEgQJjzpEcGss3Z73Blc2q6Ew648IHkdA6SBfCe_RSzB0M58GumIVcotMqAseiC0-IzuvgVkJSxM7vhP8-VO2FxHPD47MKBhFUrj0Sg.jpg" width="400"><br>
-
-وزارت آموزش و پرورش اعلام کرد آزمون‌های نهایی پایه‌های یازدهم و دوازدهم در روزهای یکشنبه و دوشنبه، ۲۸ و ۲۹ تیر، در استان‌های هرمزگان، بوشهر، خوزستان و سیستان و بلوچستان برگزار نخواهد شد.
-این وزارتخانه روز شنبه ۲۷ تیر دلیل این تصمیم را «استمرار شرایط ناپایدار در جنوب کشور» عنوان کرد و گفت زمان جدید برگزاری این آزمون‌ها متعاقباً اعلام خواهد شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77231)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-18 06:36:57
-
-<img src="https://cdn1.telesco.pe/file/nWH6__kCB1eihD6VP0ErOsDYglCr2fXz-0ArmbkOb-gPiIqtrHZtq9iqsC7hzJ2dVUjomXzY2EwsEwUA7tFVugO24el-uOxgK8Gh8oUtRNx3KRaDh_8Qr8j6PI9APSJYED4XmcwUhWtoBmVRyMdA6k1O6a_N-NUhhAJTqP6tFdRqDWiUyfbn5o8qo96m0Jl879CKHLVLWpgfg3VfHyvDSxOABVNv7CsGv0Ib3hn16Q-a4ZAtFXZmilB_UoTiYgsQvpKX5YVWz23IkrzKTSX0gWgOaUBp4aCjpIW-j8OSLqIy8YKDetjDVtuSNaMSMnRePfcNdI-xeT_AoB3O1oFp4w.jpg" width="400"><br>
-
-عکس دریافتی: پرتاب چند موشک از استان بوشهر
-شنبه ۲۷ تیر حدود ساعت ۶:۳۵
-Vahid
-آپدیت: ساعتی بعد هم کلی پیام و تصویر از امیدیه اومده بود.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77230)
 
 ---
 
