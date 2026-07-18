@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-19 00:26:41 </h5>
+<h5> 🟢 Updated at: 2026-07-19 01:18:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-19 00:53:15
+
+<img src="https://cdn4.telesco.pe/file/VeDjQirylhoaoHUdFSGUe9TdBZZcA0oMkcRTNnqxnPvSgBsfHNioN01nj_8XcDeMw9lDFCbos5KWLx9sCRFc0PfPWK8VRzuJHymVanPmSGV-RcGxZMriqi1_xeA9ttWx-_q2eoWpC4lDj5fDf28bG3opVGAR64sC1XVbzjxQKzq2dEle5QUohwVGgejTzpy43_-VYmWeh87c3oJK5LMEcwX_4Hqw8pi3OuH9J50StMtsYBfSATNP0N73hioV0zRxjuVzZ2GyzGaNp6X8hkOMPU-BtBtHbtmkVwoMJWcdcg4ZEUMncof9bXdGWunVzQ8KA6hCNWbjqet8kSudKnqaxw.jpg" width="400"><br>
+
+به گزارش خبرگزاری مهر، بامداد یکشنبه، ۲۸ تیرماه، زمین‌لرزه‌ای به بزرگی ۳.۷ حوالی سرگز در هرمزگان را لرزاند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77250)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-18 22:23:24
@@ -229,23 +245,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77230)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-18 06:31:27
-
-
-
-خبرگزاری تسنیم با انتشار ویدیویی از محل حادثه گزارش داده است که دو پل در محور بندرعباس–رودان هدف حمله آمریکا قرار گرفته و این مسیر آسیب دیده است.
-این خبرگزاری می‌گوید که در این حمله شماری کشته و تعدادی نیز زخمی شده‌اند، اما آمار دقیق تلفات و میزان خسارت هنوز اعلام نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77229)
 
 ---
 
