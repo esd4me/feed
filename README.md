@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-19 11:31:19 </h5>
+<h5> 🟢 Updated at: 2026-07-19 13:49:05 </h5>
 </div>
 
 
@@ -88,7 +88,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-19 07:28:39
 
-<img src="https://cdn4.telesco.pe/file/eDoUIcpNL5nWnU8XHXeg3gA3a9yK1Ob9cdMOIJpLZwtO5EvLbijJlZDLpINscGLpwA66RLopgJPeq6X2JBSiw2FsCFJ4rHVkFkfZV-LMcnd-cTZ-oYER3e5JnBlRL4m5hnoQkICP4BLyNuQuEepAzKSGbpT2BPGIZDMaHWSo36bNjy5y40AhKAvtohBZCR96Lim4fnab3xqEmr2LQOUHyCTlG_JgHLZHoU_3b4L9vxWPSPHK7Z1psIRXQNLTAz0_F75rgBd_uAPE6I31ACA7S2AnqwWJdXthI3xrrUcUOdKAaYY8bNxqsnzNtbfC8zA_3FtNhKAHU-7wZq08Iez5zw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Xj8qZVOnhx_nPxJRrGXBoKkBFTO_ppsFwJFO_6jxeW9cLFvHJ_gEG-KuT5s_pUnIukWSPOiVFEFQiqFf1uH77mKYuXeT1lXbVD5kUstMD-eqmFn5YFcOFstV9dIbtI0wCRqKGKrnN7BRRDmHrgCC2AWAa5Vjkz3qEeGg3vp0Y08zQ7m_-pR1He45KZ5DrIW0BbsCUMbiOb82GJ1sD4i02tVkgqP3wbgpHKRx98dDzKRkgZEH7Vyn6YhcwSOMMqET_HEPtYKtLs64WJZRlMIyCULnBon3Oa7hCxQsxccstZYh01m0WHTEO_Xa8qQlWzz95Qe_SjMPNsou0eFO9fTQBg.jpg" width="400"><br>
 
 همزمان با ادامه سقوط ارزش ریال، قیمت ارز، طلا و سکه در بازار ایران به سطوح تازه‌ای رسیده است.
 براساس نرخ‌های ثبت‌شده در روز ۲۷ تیر، قیمت هر دلار در بازار آزاد به حدود یک میلیون و ۹۴۵ هزار ریال، معادل ۱۹۴ هزار و ۵۰۰ تومان رسیده است. یورو نیز حدود ۲۲۳ هزار تومان و پوند بریتانیا بیش از ۲۶۲ هزار تومان قیمت‌گذاری شده‌اند.
