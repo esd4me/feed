@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-19 22:22:38 </h5>
+<h5> 🟢 Updated at: 2026-07-19 23:33:11 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-19 23:28:49
+
+<img src="https://cdn4.telesco.pe/file/LSVnFN_D3yQbcPuC6492X_t8yd-gvU5eAx7zsj_EtN3PgcyTlLzuKNegwfRJsXvu22Lb-kvij81rICiKfK4IiUFAKmRJ6h-GIAeBOxG1Ld4C4Z-EGeD6dML1-2ZodVa_DGEkUXD8dQTScxK2Le9Ww5nFT6rHyyMOZ4uOAaO88-d5Xf382wZvkiXtIrbdPy0N0J6O78Z816M9TCV-Hinfup-HA4mKhnS8DQnseSeWoR6BIAySy_Yf0t9xdzCVN9aY-yGWkCgS7-_MI6eFrceUp2JUFknlEXL1KCD6KRFV1dWhlV4SCy5JJXqUVWRcW8EIP3qtZsGNY8VDnow7fcMZkQ.jpg" width="400"><br>
+
+ستاد فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرد که یک نظامی آمریکایی روز شنبه در جریان «انفجار کنترل‌شده یک مهمات عمل‌نکرده» در شمال عراق کشته شد.
+سنتکام در بیانیه‌ای که روز یکشنبه منتشر شد، اعلام کرد این مهمات عمل‌نکرده متعلق به «یک پهپاد انتحاری ایرانی سرنگون‌شده» بوده است.
+این ستاد که روز شنبه از کشته شدن دو نظامی آمریکایی و مفقود شدن یک نیروی دیگر در اردن خبر داده بود، اعلام کرد که پس از انجام یک جست‌وجوی گسترده، نیروهای ارتش آمریکا امروز بقایای انسانی شناسایی‌نشده‌ای را در محل حادثه پیدا کرده‌اند.
+این فرماندهی افزود که روند بررسی و شناسایی این بقایا همچنان ادامه دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77281)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-19 20:12:31
@@ -313,25 +332,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77262)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-19 07:28:39
-
-<img src="https://cdn4.telesco.pe/file/Xj8qZVOnhx_nPxJRrGXBoKkBFTO_ppsFwJFO_6jxeW9cLFvHJ_gEG-KuT5s_pUnIukWSPOiVFEFQiqFf1uH77mKYuXeT1lXbVD5kUstMD-eqmFn5YFcOFstV9dIbtI0wCRqKGKrnN7BRRDmHrgCC2AWAa5Vjkz3qEeGg3vp0Y08zQ7m_-pR1He45KZ5DrIW0BbsCUMbiOb82GJ1sD4i02tVkgqP3wbgpHKRx98dDzKRkgZEH7Vyn6YhcwSOMMqET_HEPtYKtLs64WJZRlMIyCULnBon3Oa7hCxQsxccstZYh01m0WHTEO_Xa8qQlWzz95Qe_SjMPNsou0eFO9fTQBg.jpg" width="400"><br>
-
-همزمان با ادامه سقوط ارزش ریال، قیمت ارز، طلا و سکه در بازار ایران به سطوح تازه‌ای رسیده است.
-براساس نرخ‌های ثبت‌شده در روز ۲۷ تیر، قیمت هر دلار در بازار آزاد به حدود یک میلیون و ۹۴۵ هزار ریال، معادل ۱۹۴ هزار و ۵۰۰ تومان رسیده است. یورو نیز حدود ۲۲۳ هزار تومان و پوند بریتانیا بیش از ۲۶۲ هزار تومان قیمت‌گذاری شده‌اند.
-در بازار طلا، قیمت هر گرم طلای ۱۸ عیار به حدود ۱۹ میلیون و ۱۳۸ هزار تومان و هر مثقال طلا به حدود ۸۲ میلیون و ۸۹۵ هزار تومان رسیده است.
-قیمت سکه نیز یک میلیارد و ۹۰۰ میلیون و ۵۰ هزار ریال ثبت شده که معادل بیش از ۱۹۰ میلیون تومان است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77261)
 
 ---
 
