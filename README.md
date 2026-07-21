@@ -3,8 +3,84 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-21 18:26:55 </h5>
+<h5> 🟢 Updated at: 2026-07-21 19:52:03 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-21 18:32:17
+
+
+
+مسعود پزشکیان، رئیس‌جمهور ایران، روز سه‌شنبه ۳۰ تیرماه در یک مراسم عمومی با بیان این‌که «سطح دسترسی» به مجتبی خامنه‌ای افزایش یافته، گفت تمام اقدامات مربوط به مذاکره «بر اساس رهنمودهای» رهبر جمهوری اسلامی انجام شده و از «اظهارنظرهای نادرست و بی‌توجه به ابعاد مختلف» در این باره انتقاد کرد.
+مجتبی خامنه‌ای حدود ۱۰ روز پس از کشته شدن پدرش در نهم اسفند ۱۴۰۴ به‌عنوان رهبر جمهوری اسلامی معرفی شد، اما از آن زمان نه تنها هیچ فایل تصویری که هیچ فایل صوتی هم از او منتشر نشده است.
+عباس عراقچی، وزیر خارجه ایران، به‌تازگی اعلام کرده که «هیچ‌وقت» مجتبی خامنه‌ای را از نزدیک ندیده و در دورهٔ رهبری او نیز جز معدودی او را ندیده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77359)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-21 18:28:18
+
+<img src="https://cdn4.telesco.pe/file/dVqVjkeSp5k6uKnI_vhbWz70BIeFlOg7D27z1TUj5_I8jOq0IAYx0qupvq9RaA-YE6kigFf1321LfSYzgkJVAHUQXV1N6NI2-un1RGrHqedkiXVdW-zqaVMQdODjKNHhHikd3DDsF6wHbAHDinwRaKlaYEPYAfXJgoRJlk-4dvtEfb0yxydtc-ppDHMXxcFXlJswS3Nww4Jn1hlx4E7FarSlGMC5tb17uaarKA-RaNg7yjgDpnLtJAGMTuTxQaZrJJ4kQfpdPqrPQQ3VLer4hY_xEq1qscNLuzq4qtYo5diAInt_aDnXBRza38SIh477dhCQXb4IYZlPeXg9S1o5Zg.jpg" width="400"><br>
+
+شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی، «شیده توکلی»، شهروند بهایی ساکن تهران، را به ۱۱ سال حبس تعزیری، جریمه نقدی، محرومیت دائم از اشتغال در خدمات عمومی و دولتی و مصادره بخشی از اموالش محکوم کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77358)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-21 18:28:05
+
+
+
+🔴
+بنیاد عبدالرحمن برومند  از ابتدای سال ۲۰۲۶ تاکنون اعدام دست‌کم ۸۵۱ نفر در ایران مستند کرده است که ۳۲ مورد آن تنها در ماه ژوئیه انجام شده است.
+🔸
+بر اساس قوانین بین‌المللی، مجازات اعدام تنها به «شدیدترین جرایم» — که به معنای قتل عمد تفسیر می‌شود — محدود شده است؛ با این حال در ایران، جرایم غیر خشن مرتبط با مواد مخدر، بیشترین سهم را در آمارهای اعدام با این‌گونه اتهامات دارند.
+🔸
+طبق داده‌های گردآوری‌شده توسط بنیاد عبدالرحمن برومند، نزدیک به ۴۵ درصد (۲,۹۴۶ مورد) از کل اعدام‌های ثبت‌شده در بازه ۱۰ ساله ۲۰۱۶ تا ۲۰۲۵، مربوط به اتهامات منتسب به مواد مخدر بوده است.
+🔸
+سوءاستفاده حکومت ایران از مجازات اعدام به حدی وخیم شده که زندانیان واحد دو زندان قزل‌حصار ، بزرگ‌ترین زندان دولتی ایران برای دومین بار در سال جاری دست به اعتصاب غذا زده‌اند و حتی برخی از آن‌ها لب‌های خود را دوخته‌اند. با گذشت هشت روز از آغاز این اعتصاب، هیچ‌یک از مسئولان پاسخگوی وضعیت آنان نبوده و به خواسته‌های اعتصاب آنها توجه نکرده‌اند.
+#نه_به_اعدام
+@IranRights
+
+[View Post](https://t.me/VahidOnline/77357)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-21 18:27:29
+
+<img src="https://cdn1.telesco.pe/file/hx6oZ5kK3ssk5OgsTvTcM9F5s9mfwA5Mz7jvi1AazBEJkjeLPkhx3fXWTialu2QVLs91ZYSibqRvb9avGDQ6HIqqCv6-88nOZG8K2Kagkjb5j87mpGd_Apu6BB6MfLqrJkuLpZFvYLjGKcjVg7wzgZ1_3Aa6SWOsTYNzEKbmsO-l1Lh5yjRjXTqxQcQWpqJHw49bcfGBkVHGp9jrgfvjJW7T4muz5XYAAn8nHwuiHQq6RiMm5hjQuckh-MHQ7Xh8f38AynPYpB_jyUZpzmpt84ltglaeCUcBWVks72dJwTxmYR1oXZR2tXTA_a60c4ucKp9KJ9x8HcdIruwFroJ_sw.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز سه‌شنبه ۳۰ تیر با انتشار و بازنشر چندین مطلب در شبکه اجتماعی تروث سوشال، به اعدام معترضان بازداشت‌شده در اعتراضات دی‌ماه واکنش نشان داد.
+ترامپ با بازنشر پستی درباره گل‌محمد محمدی، معترضی که در جریان اعتراضات دی‌ماه بازداشت و ۲۸ تیر اعدام شد، نوشت: «این تازه‌ترین مورد از بیش از ۵۲ هزار معترض بی‌گناه است. دموکرات‌ها چه زمانی بیدار خواهند شد؟؟؟»
+او همچنین برای دومین بار تصویر عرفان اسفندیاری، جوان ۱۹ ساله‌ای را که در اعتراضات دی‌ماه بازداشت و ۲۸ تیر اعدام شد، در صفحه تروث سوشال خود منتشر کرد.
+رییس‌جمهوری آمریکا در ادامه، تصویری از یک زن ایرانی را نیز به اشتراک گذاشت که برگه‌ای با نوشته «ما را نکشید» در دست داشت.
+ترامپ یک روز پیش از این نیز پستی از مسیح علینژاد درباره اعدام عرفان اسفندیاری را در تروث سوشال بازنشر کرده بود.
+علینژاد در آن پست نوشته بود عرفان اسفندیاری، ۱۹ ساله و تنها فرزند خانواده‌اش، روز دوشنبه اعدام شد. به گفته او، اسفندیاری نه مرتکب قتل شده بود و نه سلاحی در اختیار داشت و تنها به دلیل باز کردن در خانه خود و پناه دادن به معترضانی که از نیروهای امنیتی می‌گریختند، به اعدام محکوم شده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77353)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-21 09:41:18
@@ -345,41 +421,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77340)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-21 01:05:36
-
-<img src="https://cdn1.telesco.pe/file/fj9-HXlVRZ4uET2fMpUpx_WaJK98DWp1wSzBObPni73U44_GKT4MqvciNmeLz6Q0RGeqruenwu1FnIDHGNC3641D0vBkaPPwH9-JitQosPBVOtwd-UlNo64ftEy0xhxA2MMTXhI1JTD5V5VQHv3KluouFi0Xp3I10zzEAyx4bc8ZmEkkxP4dsqn7flqzuWzdMOvy396EvnmE5Nzm-vZmxyLvXHJbT9O1d0DIIttzU6KtBffVjgTV9K4cDDkg8cel8XdqqVEyzDc1ILbEdzyjcpOw1Gc9IjphQZseGu8N0Vfu-pHUo9-LzCXOOZJMd1gY-vp-0azyBOdAqRVLLaajGA.jpg" width="400"><br>
-
-Vahid
-'هدف قرار گرفتن نقطه‌ای در کوه دراک شیراز'
-تصاویر دریافتی از شهروندان با شرح بالا، سه‌شنبه ۳۰ تیر حدود ساعت ۰۰:۴۰ بامداد
-Vahid
-📍
-میگن
-اینجاهاست:
-GoogleMaps
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77335)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-21 00:54:30
-
-<img src="https://cdn1.telesco.pe/file/N6iRSAvjQ19wzHOn4RZFGvWP7ZPkfNSF6QSDuufnKckFigCy30_VF7twLPHzvSXoQ_71p0QSHkSADCjYIALy3y8n9YYZ6_vn2ssLSV9ycOld5n-QRmG2x9HDdBOFs3OgXF469y_eX0JJuJirGrk-4oy_J7UmzKCnnif4AGSYhagCwc4zQ8ZZd5NwjN1Inmh7IdVz2IB85QxpgWt-Nj5APmCgp1FcGkM_UyLUkNA-mJJ1lxlPSRNAmx6F-v_zHJ_YxXvvlkXTBsbhdkrxTXgmrDUVBsJq4ENsTCck4UaeHIAEYhr80mnm-PLqbPVSsAh0i_Yl-xByMRBVKRIPC1osJw.jpg" width="400"><br>
-
-تصاویر دریافتی درباره صدور هشدار در کویت
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77329)
 
 ---
 
