@@ -3,8 +3,52 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-22 01:26:27 </h5>
+<h5> 🟢 Updated at: 2026-07-22 02:23:31 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-22 02:04:57
+
+
+
+در بخشی از نارمک تهران صدایی شنیده شده که معلوم نیست مربوط به چی بوده.
+پیام‌های دریافتی خیلی کم:
+سلام شرق نارمک صدای خیلی بلند مثل انفجار
+من سمت نارمکم الان یه صدایی شبیه به انفجار پهپاد شنیدم
+شرق تهران نارمک شیشه ها لرزید و صدای انفجار
+تهران الان صدا اومد فکر کنم زدن
+ساعت 02:01
+سمت نارمک ساعت ۲بامداد صدای انفجار اومد
+سمت نارمک صدایی شبیه به انفجار  بود ساعت ۲:۰۰
+ما هم شنیدیم ولی انفجار نبود یه صدایی مثل زمانی که پدافند می زدن
+آپدیت:
+پیامی دریافت کردم که نوشته انفجار گاز بوده
+پیام دیگری هم دریافت کردم که نوشته:
+انفجار نشنیدم اما ده دقیقه پیش صدای آتش‌نشانی اومد تعداد زیاد
+نزدیک نارمکیم، گلبرگ
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77374)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-22 01:36:22
+
+<img src="https://cdn4.telesco.pe/file/Mi_00YA6S9tlvJyiM8PedtHllxQqDhEqS5oi6byw1DkExEzNs_FV2xPz3vOBt9Nsv66aC5r9eMltDKtwFgU9nv9JqBfFb71EriIAs8iG7smxGTpX_lgA5Na2lqQgn9i96aGRx_ApL6YnenL0h758XLvlL4VVclwVIzR2xo5OS0C56rbvzqQzMg4tfclEUXraHh-9veTcKqp3pjF-7judzeT8RwR_ap7H_3Q3ep6a9L6GXPfU3tufOe7y-jMJ2BZtCEts4PZ5ooYyukGFqrgZPrwmwG42Ubl32duyhBe9KovVamJ7m3I1RPg1oGN16NuUSMdqi1jV6qY5CiaUpJlAJg.jpg" width="400"><br>
+
+ستاد کل ارتش کویت، بامداد چهارشنبه، با صدور بیانیه‌ای اعلام کرد که پدافند هوایی این کشور در حال حاضر در حال مقابله با حملات پهپادهای متخاصم در پی «تجاوز گستاخانه ایران» است و تصریح کرد صدای انفجارهای شنیده‌شده ناشی از رهگیری این اهداف توسط سامانه‌های دفاع جوی است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77373)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-22 00:50:54
