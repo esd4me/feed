@@ -3,8 +3,45 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-23 01:28:28 </h5>
+<h5> 🟢 Updated at: 2026-07-23 02:35:56 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-23 02:26:12
+
+<img src="https://cdn1.telesco.pe/file/WzhDVgmcc6mctYbkBpKLV6YJX2kFHpRLICXGlZCPqi7ETl2L1XHyvXKpenBLUbUAxi5AyipN2L9JMBkr__1-KY4zEwClfnSKjZF2oQRLWZCkEsRLNlvuOVjG4ayErXUIzpqClwSyeV2SOZpOTs7FOVt4Bl-2b8Dla_j3A5FNtuiJnFRdAo2Dci7Vs7T9P42cU9EYnWKa1F_7HmgzLIEDn1SbZqLyCs4-RLfSoVsXYT298mn9UncDS4kMopxt0GcUZSNja9C0YHzigxbM7CaNQIBz38YOoGuQJYCj_lQvQaGYpBPL1H482PsAZpgYf1ftq3fN9SuJyka7sGxK3Q9HTQ.jpg" width="400"><br>
+
+♦️
+ستاد کل ارتش کویت، بامداد پنجشنبه اول مردادماه، با صدور بیانیه‌ای اعلام کرد سامانه‌های پدافند هوایی این کشور در حال مقابله با حملات پهپادهای «متخاصم» هستند.
+در این بیانیه، این حملات تاکید شده است که صداهای انفجار احتمالی، ناشی از رهگیری و انهدام این اهداف توسط سامانه‌های دفاعی کویت در پی حملات «تجاوزکارانه ایران» است.
+ارتش کویت همچنین از شهروندان خواست ضمن حفظ آرامش، دستورالعمل‌های امنیتی و ایمنی صادرشده از سوی نهادهای مسئول را رعایت کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77408)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-23 01:41:09
+
+<img src="https://cdn1.telesco.pe/file/MJEguQ-Z2UjmOgCf5bhsAMFeZtBzGBye63fEh52r8I-LvFkq1Q3CsOczE6Y1lcOmmGQ8e7TnrX81IfpHuzNu-5u18FDCnE8hSjDpW8F3OEZZ8T2RXJHAdYUrhkaWuiJfxGezS29MNuB1QJON9BFQ8BFkY4YeNVrJIKo13p0xrA1FUaO6e-7uBre5Zq0tedrdLJqcerLzLUumS7R3XL_RUxgwu5dzuy0LR9S3y9CjVv3g9tiHC-rP9sZHKmON1hzzHxUwqjvJEmnwcvzKNsbhTPtvV7PEiNXKJfRIqagmhoikhhYswAPw3tHNisxRdQxlm8czOevB6TF2UcCo1idVoA.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+امروز ساعت ۵:۳۰ بعدازظهر به وقت شرق آمریکا [ساعت ۱:۰۰ بامداد پنج‌شنبه به وقت تهران]، نیروهای ایالات متحده به دستور فرمانده کل قوا دور تازه‌ای از حملات علیه اهداف نظامی ایران را آغاز کردند. این عملیات ادامه خواهد یافت تا توانایی ایران برای تهدید دریانوردان غیرنظامی و کشتی‌های تجاری در حال تردد در آب‌های منطقه بیش از پیش تضعیف شود.
+CENTCOM
+نکته قابل توجه این که همه گزارش‌های امشب درباره صدای انفجارها مربوط به پیش از ساعت یک بامداد بودند!
+حالا یا ساعت رو درست نوشتند یا اون حملات کار آمریکا نبوده.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77407)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-23 01:09:09
