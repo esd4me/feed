@@ -3,8 +3,29 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-24 00:21:49 </h5>
+<h5> 🟢 Updated at: 2026-07-24 01:27:39 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-24 01:03:57
+
+<img src="https://cdn1.telesco.pe/file/mtNvWBgHEDGTY1SZDt4HP0hVm-qzEWKbLR6RcHXnwx1Sxxy3fFCjiQr0d1HXl6xXqNo3jkQnoruT2_DkTfd45ukgJKWs5BnFi0imIcPuEimFPVdIBo7Lmf-6TAOSDlEi-KLglywU2tpLMo4X-5rEv6iQZvoaJym4fPENLv3A60cyyWlVxAlYuiEiivtmTYvr3n71aMkmmdS-SKgG4_xeOHp3BK44l7cYQn0azJ9S5NC4Bf8nE3FdeC8nKsAvg3a7eUo0ytxDYbnFee77a8jdmus032Fnp9NNWcqnMLul1M12OY08a0U9qoaOnoADd0VrXgavu3WgnuJBa7ewHu_-NQ.jpg" width="400"><br>
+
+تسنیم: اصابت ۲ موشک آمریکایی به محدوده روستای مسن قشم
+گزارش خبرنگار تسنیم:
+🔹
+ساعت ۲۳:۵۰ دو فروند موشک در جریان حمله دشمن آمریکایی به محدوده روستای مسن در جزیره قشم اصابت کرد.
+براساس اطلاعات اولیه، این حمله در محدوده روستای مسن رخ داده و دستگاه‌های مسئول در حال بررسی ابعاد حادثه و ارزیابی خسارات احتمالی هستند.
+من یک پیام داشتم ولی اون رو هم ساعت ۲۳:۳۳ دریافت کرده بودم:
+سلام وحید جان
+ساعت 23.30 صدای دو انفجار شدید  ذوالفقار قشم
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77444)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-24 00:15:48
@@ -431,26 +452,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77425)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-23 17:21:26
-
-<img src="https://cdn4.telesco.pe/file/EA7izafkC9qOf-cRyrO1GLxBsC6ZgB43uYTrYU69EC-XN43_kTighkgiac5-8zKRBcqcGysZGyESeM0mBab7vvBdBI2Dz8omvZLfJ_U-P47nxX5SjCuQfIVYCHsA0aQIFY-CPf8VBn6lQn1CrcusFlZwLyI3aVZT74YhTIQo4NnDhb_CWhsd65E1o46B8y5TNFZmwNfOAXFGsRQGVmfT9jRVQTAvZsvKzBEyxp1GZebKOQxeJU_GjiWrTf--Hudfbl5uUzVYlSaWsLW156rnRDMwAD8_eKlA1ISMvDfCA4DzeSGBLZ_hHVtH-e9diY8-6zGv3pccddaKaZauV-2u8Q.jpg" width="400"><br>
-
-دستگاه قضایی جمهوری اسلامی برای دو نفر از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ احکام سنگینی صادر کرد؛ مهنام نواب‌صفوی به اعدام محکوم و حکم ۱۰ سال زندان علی صانعی نیز در دادگاه تجدیدنظر تایید شده است.
-مهنام نواب‌صفوی، محبوس در زندان دستگرد اصفهان، از سوی شعبه پنجم دادگاه انقلاب اصفهان به ریاست قاضی همتی‌نژاد با اتهام «محاربه» به اعدام محکوم شده است.
-در پرونده او اتهام‌هایی از جمله «محاربه از طریق مشارکت در تخریب اموال عمومی»، «تبلیغ علیه نظام»، «اجتماع و تبانی علیه امنیت کشور» و «تشویق مردم به کشتار یکدیگر» مطرح شده است.
-هم‌زمان، حکم ۱۰ سال حبس علی صانعی، دانشجوی ۲۲ ساله رشته کامپیوتر، در دادگاه تجدیدنظر تایید شد.
-صانعی اسفندماه ۱۴۰۴ در ملارد بازداشت و به زندان تهران بزرگ منتقل شد. شعبه ۲۸ دادگاه انقلاب تهران به ریاست قاضی عموزاد او را با اتهام‌هایی از جمله «توهین به رهبری»، «اجتماع و تبانی علیه امنیت کشور»، «تبلیغ علیه نظام» و «همکاری با اسرائیل» به ۱۰ سال حبس محکوم کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77424)
 
 ---
 
