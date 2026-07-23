@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-23 08:52:37 </h5>
+<h5> 🟢 Updated at: 2026-07-23 11:43:14 </h5>
 </div>
 
 
@@ -85,7 +85,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-07-23 05:19:17
 
-
+<img src="https://cdn1.telesco.pe/file/cwUCZH1f-Ebw70ZyMEowSB_f1NZyutAUflkb1NBps4WF1aC0hTZ3dPQAu223AVR7hsdvEyWrwVKoA528WQ41NZsUIXJo-cy6RW_upC70dIJT2Up2gNqOADK61cuxG8zzFotVV5r4RoN6eFTiW7kJLHz6ZgdHdKq5MMgBCLsagX4sG7iV5hs1v5orFRxxDAxhAlkATURhEQ2AnCSG43Zfzgeek5dIy8jwFIS7-2n2QaQinwon3GnJ2MCja6eXPuAp7UbYc0PB_UxZW2j3yFMINFmjgVPuCNwDH1ZU384qbmnU-n-Sa7wKc_ca-Zs6vKCq4quQIV-ESnE5Iujjd2EKoA.jpg" width="400"><br>
 
 سه پیام دریافتی از ساعت ۵:۱۳:
 دوتا انفجار سنگین پایگاه دریایی ارتش جاسک
