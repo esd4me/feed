@@ -3,8 +3,120 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-24 02:27:00 </h5>
+<h5> 🟢 Updated at: 2026-07-24 03:29:35 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-24 03:24:52
+
+<img src="https://cdn4.telesco.pe/file/rs2r6eibGRTEbPH15OU-CfMU5i5OqQbmHJUSzWV9-7VwXncLU0pOF5-AKbY4l9FMGT5WifVjsUYOCqIyZHyVxBmks35I6_hBZhO4Ux2b6nbygdwc6VI2M8o5OHTnne7FXoBDoNPBnMq_eF9ktwJsV13V24CXwMH6RO-tHSPs4v2d8DyxOtzQUh1BQlwlTTjHMnai3-eex3cwHQ4KWu7Icnhxqk_4sAkjmjjKfh1NiX-GmJaHbJscNXu7bYdwTGruzThF9ctEoFQojxxRzghKaPQ7uWViywfyyDsUbKUhh6L1lfoaOGi-uAXJxxtwhN4Q0f4ucocj2YGREy0-7BsO6g.jpg" width="400"><br>
+
+♦️
+به گزارش تسنیم، معاون امنیتی و انتظامی استاندار خوزستان اعلام کرد که ساعت ۲:۵۰ بامداد جمعه، نقاطی در اطراف شهرهای اندیمشک و امیدیه هدف حمله موشکی آمریکا قرار گرفت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77453)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-24 03:20:17
+
+
+
+پیام‌های دریافتی:
+خرم‌آباد ساعت 3:19 دقیقه صدای انفجار شدید.
+خرم آباد الان انفجار شدید
+همین الان صدای انفجار خرم اباد ۳:۲۰
+سلام خرم آباد همین الان ساعت 3:19 دو انفجار شدید
+سلام خرم اباد وحشتناک پنجره لرزید
+خرم آباد زدن یه حالت لرزش هم داشت
+خرم اباد وحشتناک شیشه هامون لرزید
+سلام همین الان از خرم اباد موشک پرتاپ شد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77452)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-24 02:59:47
+
+
+
+ویدیوی پخش شده در منابع غیررسمی حکومتی با شرح: انفجارهای حمله به اهواز
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77449)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-24 02:45:06
+
+<img src="https://cdn1.telesco.pe/file/gPyD4-w42je2L1Xdr3uEfrJG3IE2Q--xMCdIQoJ53AvbFlusLribAHVX5LEEutG4q6HhoxegSmom1jUp-6bC4Ppv4em1Xp0yRqF7VWbvP1vjyP05PKDsfWa0la0x4n6IMh8tRlBxEvxHOKFt55MOQVbAnq9RbgIz2idpZY1GQBDVfRF5gkm7alETTz_H-p4J1DUVyr3APS07w3RMIeuWDGgVii6z917GsV25uXXxn1qRaDOZPhHalsCNOKwIt_uukHvgf9U-qTUKD5t7U0mFBueKMqYHJZxFcleixj9XwLlb2UmPjz4Gm-RyyDTfwAPwJRTxa4ocf4LZaXAjEJybog.jpg" width="400"><br>
+
+سنتکام: سیزدهمین شب حمله را آغاز کردیم
+ترجمه ماشین:
+نیروهای آمریکایی امروز ساعت ۶:۴۵ عصر به وقت شرق آمریکا [۲:۱۵ به وقت تهران]، دور دیگری از حملات شبانه به اهداف نظامی ایران را آغاز کردند.
+این سیزدهمین شب متوالی حملات است که با هدف پاسخگو کردن ایران و کاهش تهدیدهای سپاه پاسداران انقلاب اسلامی علیه کشتیرانی تجاری انجام می‌شود.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77448)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-24 02:42:13
+
+
+
+پیام‌های دریافتی:
+داداش
+بندر
+زد
+همین الان
+بندرعباس
+سلام بندرعباس همین الان صدای چندتا انفجار پشت هم اومد
+ساعت ۲:۴۱ دقیقه صدای انفجار بندرعباس
+سلام بندرعباس انفجار های شدید پیایی غرب منطقه ۴
+بندرعباس 2 انفجار
+سلام وحید بندرعباسو زدن 2:41
+بندرعباس ٠٢:٤١ يه صداي انفجار خيلي بلند كه مركز شهر  قشنگ حس شد
+سلام بندرعباس همین الان چندتا زدن خیلی بدد برق قطع شد صدای انفجار بد بود
+🔄
+بندرعباس صدای انفجار بلند ۲:۴۱
+2.42 چند انفجار بندرعباس پشت سر هم سنگین
+3تا دیگه
+٠٢:٤٢ سه تا ديگه پشت سرهم
+صدا و موج زيادي داره
+سلام وحید بندرعباس انفجار وحشتناک
+دوباره داره میزنه خیلی بد میزنه
+بندرعباس ۲:۴۲ صدای انفجار دی در پی
+دوتا دیگه پشت سرهم زدن
+۵ تا انفجار شدید  بندرعباس مجدد منطقه ۴ ۲:۴۳
+سلام یه صداهایی میاد بندرعباس فکر کنم صدای انفجاره اما دوره
+وحید بندرعباس ۲:۴۲ صدای انفجار بدجور میزنه
+ساعت ۲:۴۱ در خونه دوبار لرزید
+غرب جزیره قشم
+بندرعباس همین الان هفت تا هشت انفجار خیلی قوی داشت
+آقا وحید بندر خیلی شدید بود بیش از ۵ تا بیشتر.
+
+[View Post](https://t.me/VahidOnline/77447)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-24 02:21:00
@@ -50,6 +162,13 @@
 اهواز رو پشت سرهم دارن میزنن
 درود وحیدجان، ۴ ۵ تا انفجار عجیب در اهواز رخ داد، انفجارهاش با همیشه فرق دارن، با اینکه دورن و صدای کمی دارن ولی زمین و شیشه‌ها رو میلرزونن به یه صورت دلهره‌آوری
 سلام اهواز ساعت ۲:۲۴ دیقه فرهنگ شهریم صداش اومد هرچند کم بود صداش ولی مشخص بود بمبه
+انفجار ها توی اهواز همچنان ادامه داره
+خیلی شدتش بیشتر از روزای قبله
+کل خونه و پنجره ها دارن میلرزن
+اهواز زاغه مهمات انفجارات پی در پی
+اصلا تمومی نداره
+۲:۳۲
+۲:۳۳
 📡
 @VahidOnline
 
@@ -405,83 +524,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77432)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-23 17:29:08
-
-<img src="https://cdn4.telesco.pe/file/JTGS-FtD9qb9PdGtyGXgXZH-k6gtCCZxqrzrKrvSElxkb7t9XlsYB0ohEIEfHCQVQiSsT2Yi_CZygAbELG9BY0LINTb_C524z4RhweghDvGPiXUEmsXX6zEooH_soekyNQ_cisYD68VRM3Tjcjz7MAVNFA7zoP7LkmY8iktWWMdBNM1qhu5_3UjrVvq-l7qRKVHocu7aOPae0Rqi0xAscVJcZds7WhW00ULboMv-BZM-pT-86m5jgmTUfb1uX9_2SP2MZyj_eLCxW7GxDPnlb_S6hAAamNb1Ni19ItQ6TO47LEQw5sTC56KE7-6xPI-wLH68mQJhNQ1hGH7p11PqrA.jpg" width="400"><br>
-
-سایت هرانا گزارش داد امیرحسن اکبری‌منفرد، زندانی سیاسی ۲۷ ساله محبوس در زندان اوین، با حکم شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی، از بابت اتهام «بغی» از طریق عضویت در سازمان مجاهدین خلق ایران به اعدام محکوم شده است. بر اساس این گزارش، حکم دو روز پیش به او ابلاغ شده است.
-هرانا همچنین گزارش داد امیرحسن اکبری‌منفرد زمستان ۱۴۰۳ همراه با پدر، برادر و خواهرش در کرج بازداشت شده بود و سه عضو دیگر خانواده بعدا با تودیع وثیقه آزاد شدند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77431)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-23 17:28:51
-
-<img src="https://cdn1.telesco.pe/file/lf7c732FASWPw9r3whDJVfcB9pZCn58XKL9YSpwPOo5XUmIvlVC6071U3gb_7yAFR--l8nHs2LMrB8pkKp_x8ghoJ8rLio5s1yQ3EnzlF_RFuVWsd5S-7yqS6_tt4pao2PBLqQhCmU-AbA41CTKZytoRcgqIRhrUgbV5WIzNPR6OeDXx8908wKAy3oRenZ46Ebvt-AxV6tc7kXNYmb7jctnPY7OMw-MSEh3nd5af1k569sFn2I6sG3chdlYGQlLsUzlrw2OB8r_f5c447d56hkDyRWJaiDQzmIkl_z0HhDtjHL_G88TV_hl0zJs64HP26sOu4XseS9EmLNmrK8F6NA.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه اول مرداد ماه، در پیامی در شبکه اجتماعی ایکس اعلام کرد توافق هسته‌ای غیرنظامی میان وزارت انرژی آمریکا و عربستان سعودی تصویب خواهد شد، اما این توافق مشروط به پیوستن ریاض به توافق‌های ابراهیم است.
-ترامپ در این پیام با اشاره ناگهانی به «غیرنظامی» بودن برنامه هسته‌ای ایران نوشت: «توافق هسته‌ای غیرنظامی که میان وزارت انرژی ایالات متحده و عربستان سعودی در حال انجام است، تنها به استفاده‌های غیرنظامی، مانند برنامه‌هایی که ایران، امارات متحده عربی و دیگر کشورها دارند، مربوط می‌شود. اما این توافق کاملا مشروط به پیوستن عربستان سعودی به توافق‌های ابراهیم است.»
-رئیس جمهوری آمریکا کرد در این توافق «هیچ غنی‌سازی مواد [هسته‌ای] وجود نخواهد داشت» و آمریکا با تاسیسات هسته‌ای غیرنظامی و بدون غنی‌سازی مخالف نیست
-@
-VahidOOnLine
-دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل پنج‌شنبه اعلام کرد پیوستن عربستان سعودی به توافق‌های ابراهیم، تحولی تاریخی در مسیر صلح در خاورمیانه خواهد بود.
-دفتر نخست‌وزیر اسرائیل افزود اقدام نظامی مشترک آمریکا و اسرائیل علیه جمهوری اسلامی و تضعیف محور «تروریستی» تهران، زمینه را برای گسترش دایره صلح فراهم کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77429)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-23 17:27:08
-
-<img src="https://cdn4.telesco.pe/file/eVPG4D3wQNgFQdK85ZzV4d1FulfdhbmhGA56eLONmlXSsK3D8ag__9isXvUvbt1QWcGMY9mrmQHHiGxpwpb-yGW8iY489zZVyE-LdxGqIhSyoV82U3gDVJM-vrRV38PFktpn06h6WxeBKktbEOu6Rz7W_z-JYqA4OvFJV7gqyelrYx5_Lwf7ti1cKgJhEh_aSmEN_v1VHE1oajYn6_t8A0Tg3uaQhgZM5q389_GnMQFF6K_q-agbNsekKMQlkqr-byK43CIvGNjlupsIBBXUv9ctdwWiJwNbpO7WtyP7-eFaaztG1we7Yg2yu6d5AaBk7A1dmeHYvGR8nGAnXBJitg.jpg" width="400"><br>
-
-خبرگزاری ایلنا در گزارشی از ادامهٔ بحران کم‌آبی در زاهدان و برخی مناطق استان سیستان و بلوچستان خبر داده و نوشته است که شماری از شهروندان در برخی محله‌های این شهر با قطع آب تا سه یا چهار روز متوالی روبه‌رو هستند.
-بر اساس این گزارش که روز پنج‌شنبه یکم مرداد منتشر شد، بسیاری از خانواده‌ها برای تأمین آب ناچار به خرید آب از تانکرهای خصوصی هستند و برای هر بار پر کردن مخزن خانه بین یک تا یک‌ونیم میلیون تومان پرداخت می‌کنند.
-ایلنا همچنین به نقل از شهروندان گزارش داده است که برخی خانواده‌ها به دلیل ناتوانی در پرداخت هزینهٔ خرید آب از تانکرهای خصوصی، ناچارند چند روز را تنها با چند دبه آب سپری کنند.
-محمدرضا کوچک‌زایی، عضو شورای اسلامی شهر زاهدان، نیز در گفت‌وگو با ایلنا با تأیید بحران کم‌آبی گفته است این شهر با کمبود حدود هزار لیتر آب در ثانیه، معادل نزدیک به یک‌سوم نیاز آبی خود، روبه‌رو است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77428)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-23 17:24:48
-
-<img src="https://cdn4.telesco.pe/file/dDzX3zz_sOgRCyy6QEy15Wsg_evlKy3jWLaRnJZVDMnizK5fnvEgI2sdOhoCEHW3Q4fVF9tKNjLXeoDI3Dt_Cd-g2oOdpbZJar6tk4iinWP_ZgVauFplzs6Fd_cwRFd04-7RVNC8Pha-7aKmgrpVSJ4V2PlSiPySRM5TjIbYyYYl75YI9-VOqILPF5gfQ9wBhd8hz7WJPklul7KQIDfvyee5v1RbHyTX4UaQ2OPCmPKQJeu58qPVV6tGEEXkT5E0nkkoNCSPakON8TlSIQSFsMzoje2qUe6q__vSLstA3v_hF-_d3yDBGbpn4W869qQfA9JLW5beLrVj9OpFTgzMng.jpg" width="400"><br>
-
-صدا و سیما و خبرگزاری تسنیم، روز پنجشنبه یکم مرداد ماه از شنیده شدن صدای چند انفجار در شهرستان کنارک در استان سیستان و بلوچستان خبر داده‌اند.
-خبرنگار صدا و سیما در گزارش زنده اعلام کرد، صدای پرواز جنگنده‌ها نیز در این منطقه شنیده شده است. به گفته این منبع خبری،َ انفجارهای روز پنجشنبه، اولین حملات آمریکا در طی ۲۴ ساعت گذشته به این شهرستان بوده است.
-@
-VahidOOnLine
-من هم حدود ساعت ۱۰ صبح پیام‌ها و عکس‌های مختلفی درباره کنارک دریافت کرده بودم + کلی پیام از چند شهر دیگر درباره پرتاب موشک
-پیام‌های زیادی هم از دزفول و اندیمشک داشتم که در اون مورد پیش‌تر اعلام شده بود قراره  مهماتی کنترل‌شده منفجر بشن.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77427)
 
 ---
 
