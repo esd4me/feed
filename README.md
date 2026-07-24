@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-24 06:50:11 </h5>
+<h5> 🟢 Updated at: 2026-07-24 09:49:22 </h5>
 </div>
 
 
@@ -11,9 +11,9 @@
 
 <img src="https://cdn1.telesco.pe/file/U2OSwxsphK6JWXfb3N-p2AaTELOGm7CJs6KnuDUKpOfOsX8j9dmLg2U95YzhP2WDGug8yZCy_GFbalIABOkKbMS0O9nroC4G7hOb1zixzfIhXsQBAV_D72xfMbgwU6zJN62T84Ldgaz0gam6tBjCFWxzGkl-F2MEJm0k4Q4J_o9tRRO2CrPIgSoIVOAjLDSPYw1-emaNObTt7r05OAOGO8FvQvUaZ3ZDY6jOQaPo9rcB0S1b7TbPB2WesU3L-bTsvKJwzP5gprrD63S83GWB7mg39PNUhTB7zI3lue4M3afk5RE9_AJUoKrULopesBAFUJeBTHBZCKcsfSFLo3xwww.jpg" width="400"><br>
 
-پست عراقچی، در واکنش به
-پست ترامپ
-، ترجمه ماشین:
+ترامپ نوشته بود:
+از این پس  خسارات حمله به کشتی‌ها از پول‌های بلوکه شده ایران پرداخت خواهد شد
+واکنش عراقچی، ترجمه ماشین:
 مصادره دارایی‌های یک کشور دیگر برای پرداخت مطالبات نامرتبطِ آینده، بدعتی آتش‌افروزانه است.
 کسانی که از چنین منابعی استقبال می‌کنند یا از آن سود می‌برند، باید به یاد داشته باشند: وقتی دولت‌ها مصادره را به امری عادی تبدیل کنند، دیگر دارایی هیچ‌کس در امان نخواهد بود. هرج‌ومرجِ متعاقب آن نه زیبا خواهد بود و نه مسالمت‌آمیز.
 araghchi
