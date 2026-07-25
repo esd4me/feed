@@ -3,8 +3,20 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-25 22:24:07 </h5>
+<h5> 🟢 Updated at: 2026-07-25 23:36:48 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-25 22:54:34
+
+<img src="https://cdn1.telesco.pe/file/ttXa1IcdI01tqJAP8RL_JBBA8_DzPWc8T1J7eb82MupRlTdylQqVLfE0-a1EsqjcxjTEzu_THUEaChKdujystg1Bg-OLLriSrsh8-6OqfHwwiMcIQslGxY7SIP0vcd3ls2lGmOBpBmXmPhyo7dG5uA7Z3LQMrnZ0cK5TFVZvmzDEl7zSsU92yjQtKm-Pt5MabCWy93UDz05bfnyyKrHpWV2LoJUJ1TwwOE0ndxZA-nH6NUSKdGW-6y3P5KEN9TBdStT-hQclFwmx_qlmoCd3h0vM45OX3kN0bzFE-732thSHQFSQ217l_8BHxHpqYwnfUSjCBAKqUAQRnOkwXYCupQ.jpg" width="400"><br>
+
+ولودیمیر زلنسکی، رییس‌جمهور اوکراین، اعلام کرد نیروهای کشورش یک ناو جنگی روسیه و همچنین کشتی‌هایی را که به گفته او برای جابه‌جایی محموله‌های نظامی مرتبط با ایران به کار می‌رفتند، در دریای خزر مورد هدف قرار داده‌اند.  زلنسکی روز شنبه، سوم مرداد، در پیامی در…
+
+[View Post](https://t.me/VahidOnline/77497)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-25 22:00:59
@@ -412,26 +424,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77478)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-24 17:29:34
-
-<img src="https://cdn4.telesco.pe/file/Z-mMQ3TSp1AGWlvrI9HWJ5LuOReHGdZ81ngWfOXaK-nrQ1qTPpwivOXa5U0QWV36amAR7g6MfUnb8FuxrHLGRk_mZpxcdtZoyeZ4nU8P5P01lr1ndF0OCHFucB1g0jtk5NUM01Nmx-dikhJPdlWLAajKPR8F9hoN0Xig0_kHILhqMdUrgJeG3hZSYshZbPVs2qvUbCU9H_JqrMRyj_v3tkXB82eklTJhtQG7_kYj-j9AlGwbhWDtqGKYugThvThsUu8d9DXi30ftYZp80yrD7QatounCmCuMGB7KeqcYlOy0fXYpVHG-Pd4j5ziNsWuqUZ9eGLfA5YEGi5TJthjKvw.jpg" width="400"><br>
-
-دولت بریتانیا اعلام کرد نیروهای مسلح آن برای حفاظت از کشور در برابر هر حمله‌ای آماده‌اند.
-این موضع پس از آن بیان شد که سپاه پاسداران انقلاب اسلامی هشدار داد نباید به بمب‌افکن‌های آمریکایی اجازه داده شود از پایگاه‌های بریتانیایی استفاده کنند.
-سپاه در بیانیه‌ای در روز پنجشنبه اعلام کرد آمریکا از پایگاه فرفورد در جنوب‌غربی انگلیس برای انجام مأموریت‌های بمباران علیه ایران استفاده کرده و افزود هر پایگاهی که برای چنین حملاتی به کار گرفته شود، هدفی مشروع خواهد بود.
-اندی برنهام، نخست‌وزیر جدید بریتانیا، هفته گذشته در جریان این خبر قرار گرفت که لندن بار دیگر به توافقی با آمریکا برای استفاده از پایگاه‌های بریتانیا در چارچوب آنچه «دفاع جمعی از منطقه» خوانده می‌شود، رسیده است.
-یک سخنگوی دولت بریتانیا گفت: «نیروهای مسلح ما آماده‌اند از بریتانیا در برابر هرگونه حمله‌ای، چه در داخل خاک کشور و چه خارج، محافظت کنند».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77477)
 
 ---
 
