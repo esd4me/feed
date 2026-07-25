@@ -3,8 +3,50 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-25 18:25:34 </h5>
+<h5> 🟢 Updated at: 2026-07-25 19:29:52 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-25 19:03:37
+
+
+
+سخنگوی دولت: تغییر در قیمت یا سهمیه بنزین قطعی است
+سخنگوی دولت مسعود پزشکیان اعلام کرد که تغییر در قیمت یا سهمیه بنزین قطعی است و دولت برای مدیریت مصرف این سوخت ناچار به اتخاذ راهکارهای جدید خواهد بود.
+فاطمه مهاجرانی گفت دولت همچنان برای بنزین یارانه پرداخت می‌کند، اما با توجه به ضرورت ایجاد تعادل در مصرف، تصمیم‌گیری درباره نحوه عرضه این سوخت اجتناب‌ناپذیر است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77494)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-25 18:46:10
+
+<img src="https://cdn4.telesco.pe/file/aP-K3s2qC2ZmJ51F4fYfWxXDXdTCQAAwBjX5Gjf3tSVjzUzSxoxeM_rq7gL8Uqe-NZvYyaosnbJNcUYz6oFl3Sg7PaLhWID5QI_02TDqdEbPvq-oWnDjyL3RN8BYXPh_Ps4uCyghjuWSzjnV8nmtrFYma4TKQ-QttoKgV889tjJm5NHO3OOwwLo0au_kcJ56P-HGviprcxHDEIDN-0hdtptfshmsq2m_4SmfOHmNdUdXVVzfuoxUNaFxb-5BsnKCfttcsslLcF9PmghqkSwPVbsIvBjhvVpZWS2TU5a9jyZB0m5pDGNOuYpKGaGYT4E7wSJP9V4N4RvsjGfURC8hmw.jpg" width="400"><br>
+
+وبسایت خبری وای‌نت گزارش داد مقام‌های اسرائیلی برآورد کرده بودند حمله گسترده آمریکا به ایران، که دونالد ترامپ، رییس‌جمهوری آمریکا، گفته بود در حال بررسی آن است، شب جمعه تا بامداد شنبه آغاز شود، اما با پایان روز جمعه به این نتیجه رسیدند که ترامپ فعلا حمله را متوقف کرده و فرصت دیگری به تهران داده است.
+بر اساس این گزارش، در پشت صحنه، قطر و عمان فشار قابل‌توجهی بر جمهوری اسلامی وارد کردند تا مواضع خود را نرم‌تر کند و از وقوع آنچه یک عملیات گسترده و تقریبا قطعی آمریکا به نظر می‌رسید، جلوگیری شود.
+این گزارش افزود مقام‌های اسرائیلی همچنان معتقدند تفاهم میان تهران و واشینگتن عملا از بین رفته و احتمال دستیابی به توافقی دائمی که حکومت ایران را وادار به پذیرش خواسته‌های آمریکا کند، نزدیک به صفر است.
+بر اساس این گزارش، از نگاه اسرائیل، فرصت تازه‌ای که ترامپ در اختیار تهران قرار داده، تنها به جمهوری اسلامی امکان می‌دهد برای مدت کوتاهی زمان بخرد و تغییری در ارزیابی کلی اسرائیل ایجاد نمی‌کند.
+@
+VahidOOnLine
+🔄
+باراک راوید:
+آمریکایی‌ها دیروز برای عملیاتی گسترده‌تر در ایران آماده نشدند، بلکه برای حمله‌ای دقیقاً هم‌اندازه حملاتی آماده شدند که طی دو هفته گذشته هر شب انجام می‌شد.
+BarakRavid
+رسانه‌های جمهوری اسلامی درباره این توییت نوشتند اکسیوس خبر «رسانه‌های عبری» رو رد کرد ولی باراک راوید خودش هم اسرائیلیه و علاوه بر اکسیوس خبرنگارواشنگتن شبکه ۱۲ اسرائیله.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77493)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-25 18:13:25
@@ -242,7 +284,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-24 19:26:04
 
-<img src="https://cdn1.telesco.pe/file/oXtHMJUYMrct7b7wzv6pRj0uGMotXlrPWaa-59yhTx26O2sJyYTPKdvIvlajXphIM8nx7R_H49TaOBVW5o63jKUHI4YPzh2u9cHg6_-Jz6bftPBSssoemsl_J_-6OMHLsJBvVNB0i4lNOOHripTpkx-SPMAbFUE7KJA53r8f3pc5wkm4obScWgJmnk3uVjo1rIcFNSRSMEY5_emtMFKUNhbYHYe1LBOtPbq12dbYbG0dSfkpaLXJv6YooevAgMipC6guq8vV6vzfCgySL44b1ID_WiXIArVzmJWyfQF1sVIOSASKHJv6TCW2y_aI3mZ-6skfBlgRe2NoY8eBvTswKA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XemLeVzU6l6P0yR71wpFhphxPRvuwlpnEdW4ejs2UNalMeaENiIxT4_xaSyx_iRhM26lSE0epJqHLw3dizo0xVrTavice0fFTX6ejGBDWQMR9Tfpb_JZXGC-unfZU7rd8wtdS_2vggW0qST-mHMlPjQs0ahyeSMscOTyMyZ4pitKvGqcdqpbaiwz5JUk2Xf_-9iTuIvz71k2FE6cn7mcCi0B8kKNVxcBT5lIq-VWQcNJlD9JJ33Yftmf-nTwo81OvyE5s5XmbRK2AJ15-JmFn1pWpQj26o_QoS9FGKPYSbxDsTjpWa7TKaOW-jeGthERlwK-WjGqMiJHVoskfeyBdw.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 رئیس‌جمهور شی، در دیدار اخیرمان در پکنِ چین، به من گفت که تحت هیچ شرایطی به جمهوری اسلامی ایران سلاح نخواهد داد یا نخواهد فروخت — و این اظهارات شامل شرکت‌های چینی نیز می‌شد. با توجه به روابطمان، حرف او را باور می‌کنم و علاوه بر این، من نیز لطف‌های بسیار بزرگی در حق او انجام می‌دهم.
@@ -369,28 +411,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77474)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-24 17:25:26
-
-
-
-معاون سیاسی و امنیتی استاندار گیلان از حمله موشکی آمریکا به مقر نیروی دریایی سپاه پاسداران در زیباکنار، در صبح جمعه دوم مرداد خبر داد.
-باقری گفت: «حدود ساعت ۷ و ۳۰ دقیقه صبح جمعه، بخشی از تجهیزات مستقر در این مجموعه در حمله موشکی آسیب دید.»
-معاون سیاسی و امنیتی استاندار گیلان همچنین افزود بر اساس بررسی‌های اولیه، تاکنون «هیچ‌گونه گزارشی از تلفات انسانی» دریافت نشده است.
-@
-VahidOOnLine
-مدیرکل مدیریت بحران آذربایجان‌غربی اعلام کرد حوالی ساعت ۹ صبح جمعه ۲ مردادماه، یک نقطه در شهرستان پیرانشهر هدف حمله هوایی آمریکا قرار گرفت.
-پیشتر اخباری از حملات هوایی و موشکی آمریکا به اهواز، قشم، بندرعباس، تهران، امیدیه، اندیمشک، خرم‌آباد، خنداب در استان مرکزی، نایین در استان اصفهان، تفت و شیرکوه در استان یزد، فیروزآباد در استان فارس، کنارک و زیباکنار منتشر شده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77473)
 
 ---
 
