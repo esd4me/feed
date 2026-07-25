@@ -3,13 +3,52 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-25 23:36:48 </h5>
+<h5> 🟢 Updated at: 2026-07-26 01:14:30 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-26 01:06:06
+
+
+
+پست سنتکام، ترجمه ماشین: 00:32
+محاصره دریایی آمریکا علیه ایران همچنان به‌طور کامل برقرار است. تا ۲۵ ژوئیه، سنتکام مسیر ۱۲ کشتی تجاری را که قصد شکستن محاصره داشتند تغییر داده، ۲ کشتی را که از دستورات تبعیت نکردند از کار انداخته و برای اطمینان از تبعیت کامل، وارد ۲ کشتی شده است.
+صبح امروز، نیروهای آمریکایی عملیات ورود و بازرسی برای راستی‌آزمایی را در نفتکش M/T Charminar با پرچم کومور، در دریای عرب، به پایان رساندند و این نفتکش اکنون به مسیر خود ادامه می‌دهد.
+نیروهای سنتکام روز ۲۴ ژوئیه، نفتکش M/T Lavine با پرچم موزامبیک را در دریای عمان از کار انداختند؛ پس از آنکه خدمه آن چندین بار تلاش کردند محاصره را نقض کنند و هشدارهای مکرر را نادیده گرفتند. این کشتی دیگر به‌سوی ایران در حرکت نیست.
+نیروهای آمریکایی
+🇺🇸
+همچنان کاملاً هوشیار، متمرکز، مرگبار و آماده‌اند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77499)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-25 23:43:56
+
+<img src="https://cdn4.telesco.pe/file/B1zRNinGvBSPuBuvx83CUvD0B8_FvoYaHWSWmBdyAuDO0jXwF4pAdYemTni_upBLyjS8OkWtyxfQfdM0waBDY0C5KSCaYsBrjk67lP92QQgdbbNyRnqjY8-OvlhwOVuLs_8yszaZd2bKG5wGla4MeI9E4Dfy6wrIldrcLew0VXOydFY0izY7m_MDaG1FBCKXFx6ceujiDkRBYJBTNPfTadE3qxeB5FN9OQaSgb2lQZ-2E-_rsyQ3XpSznetQkUfPBhDCR7AwNNWYnylcyfGDuEOxVi66qsMa2xeCkbpl0YtR21rnXx4iWOmBqr9YXoqNHvXZBxL5_G4QCqznnUQkAA.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، روز شنبه هشدار داد که اگر دولتش به چیزی که در مذاکرات با ایران می‌خواهد نرسد، قطعا حملات گسترده به این کشور را از سرمی‌گیرد.
+خبرنگار شبکه فرانسوی ال‌سی‌آی در شبکه ایکس نوشت که در گفت‌وگوی تلفنی با ترامپ از او سوال کرده که آیا در حال بررسی ازسرگیری یک جنگ گسترده علیه ایران است یا نه.
+رئیس‌جمهور ایالات متحده در پاسخ گفته است: «اگر به صد درصد آنچه می‌خواهیم نرسیم، قطعاً.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77498)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-25 22:54:34
 
-<img src="https://cdn1.telesco.pe/file/ttXa1IcdI01tqJAP8RL_JBBA8_DzPWc8T1J7eb82MupRlTdylQqVLfE0-a1EsqjcxjTEzu_THUEaChKdujystg1Bg-OLLriSrsh8-6OqfHwwiMcIQslGxY7SIP0vcd3ls2lGmOBpBmXmPhyo7dG5uA7Z3LQMrnZ0cK5TFVZvmzDEl7zSsU92yjQtKm-Pt5MabCWy93UDz05bfnyyKrHpWV2LoJUJ1TwwOE0ndxZA-nH6NUSKdGW-6y3P5KEN9TBdStT-hQclFwmx_qlmoCd3h0vM45OX3kN0bzFE-732thSHQFSQ217l_8BHxHpqYwnfUSjCBAKqUAQRnOkwXYCupQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/a2HdcTYAFz50cs-QGsbh9iDV6wrmJDR-RIGhWOvabtJ03n6qim-ScVNFqFNFnLmG6lVRqHQ0nVmC6oe8lF7MuSOfO-CYF2_9QyPO8bJ_GwPr4hCsFM8zEvo0RFZeMK3ngYKmn5k3ZCr7F0eId697oujxWQ7bEBFABXuWI9i600NAl1FBJweok6q4nTFWJzGknr0X3NsxkJjf4y5IQLljlcWajSJZu3ytxjK9GMX3jMH-F7mgY06v2SARWBY9XW5YGcltmkcODppUsCnJVwa8zVH-rI3a9mEtmLfJeslpsXJP7i4rP2P6Nli4VqaQ9DC3V_sNZj9mN5-FG_K0kkD48A.jpg" width="400"><br>
 
 ولودیمیر زلنسکی، رییس‌جمهور اوکراین، اعلام کرد نیروهای کشورش یک ناو جنگی روسیه و همچنین کشتی‌هایی را که به گفته او برای جابه‌جایی محموله‌های نظامی مرتبط با ایران به کار می‌رفتند، در دریای خزر مورد هدف قرار داده‌اند.  زلنسکی روز شنبه، سوم مرداد، در پیامی در…
 
@@ -72,6 +111,9 @@ VahidOOnLine
 ▪️
 پس از آن، رئیس‌جمهوری ترامپ باید تصمیم بگیرد که آیا توافق پیشنهادی را می‌پذیرد یا نه.
 axios
+:باراک راوید
+تصمیم ترامپ هم نشان‌دهنده تمایل او به دادن فرصت بیشتر به دیپلماسی است و هم حاکی از این درک که — مگر با بازگشت به عملیات رزمی گسترده — سطح کنونی حملات آمریکا به نهایت اثربخشی خود رسیده است.
+BarakRavid
 📡
 @VahidOnline
 
@@ -309,7 +351,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-25 01:08:50
 
-<img src="https://cdn1.telesco.pe/file/TndcvBTzPEleCaIA5_BZZl188mv66F01aL2rTH76BKXPtpTr8CS00EtJpJVnnvG4BugOz-9zp4ZFOcQuxbVkxSOq3ev_tdpOx7ZZfgnjyTvMiouEcHC9EAMRXI968QRKC8SPuVkWZbAn7mgSvNfmgOPKVix2siCm4MGHmyAunqGcQ8WjzTbKNmNq06DCg5oxMfAhKO3UOSPT4Ls6DN_-ZQ0Ac6iJutc-y5-xWsMwF51D8KmUfIhmvjaHIBG1WQQiwkZTKYltJVjZO98wMlGhvvlqqJW6JBN8kHe-1iEKr7jqOhqL0K1iOIYJajP4HVSkW2cH2-vtvYi3au3K6lrnRg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/D4U9khUg0MZZJ4QrufnN7ewuYNLVGx1nXKcPjQx47c0zLNNucs2m46YU_UHpW5mgACEiCABjh_KM1JfwQhl-n0ideG4EITh4OJkmo4_82r_pVk4UCZAz8x3WNiGUJ3sxtGL341JZWUA4o3PkhK9wbHh4qqJjZqfjqFBzBqEYE1O0O-vKIGaWzJEIEeYqHp17N8sSqdJPZojwNrNx1-Ymhhp7zrudp4JIASyDaWaf5sdHWHDViSt7cyWBZ96doIKisR9xuutsECZEqdxAdTU3Q1KQtn7wNJYUIaizF2j_PmqN-a5DE-4ouApOSmDwXpLC4CEnx-odN48vxaQwAnSCTg.jpg" width="400"><br>
 
 اکبر عبدی، بازیگر سینما و تلویزیون روز جمعه دوم مرداد در ۶۶ سالگی درگذشت.
 @
@@ -389,41 +431,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77480)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-24 17:32:12
-
-<img src="https://cdn1.telesco.pe/file/OH9-1Rg-_cwYdrkXEgR7ohvQ3zhky4f6qbOnLykmDxGTp0Yiz7gpsLzNIL7d_xjk--h5LQ5D0Cw7NhpK8vCEJvum4xgm4Kao3evsewpkWJuPFA40RLrC70Br6mxUlYAaY_zVijwraK8lKDwS7VvaCtLpMXudmbeXTUznufCp_r152l0ofE5kP4o-e19RdFxBblJuvlNFfQJJYlMa9NnjmCj6Moll_EcABVig3sJMRubdK_PIVfgn0xOgUkc_1Wpcy-tk41jjMh0He7AIjXrGeNOZ_eRoA74NZ6AIPTY71H1Rb_Jy7JhleOlDnSPyR4tdNqq9XFwHIhCrUZcDehAEkg.jpg" width="400"><br>
-
-حسین (شاهان) علیزاده آذر، زندانی سیاسی، با اتهامات سنگینی مانند «توهین به رهبری»، «تبلیغ علیه نظام» و «سب‌النبی» به دلیل «توهین به آدم و حوا» روبه‌رو شده است. او دی سال گذشته نیز بازداشت و به «تبلیغ علیه نظام» متهم شده بود.
-این شهروند ۳۸ ساله و مهندس نقشه‌بردار، با قرار وثیقه آزاد شده بود اما بار دیگر در ۱۳ تیرماه مقابل منزل خود در اسلامشهر به دست نیروهای امنیتی بازداشت و به زندان تهران بزرگ منتقل شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77479)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-24 17:30:12
-
-<img src="https://cdn4.telesco.pe/file/vAOsT2AagMB49HRPC0OCOTueH_roPXdpmetpgU4qI6by3f4KB5nM2YkCrxj7Sc3fg5l0G-LZUMcvJZc0iAgGyyUqzFVqbB0yyQ2rgm2miFPPeELqENBZz_WpS_e0wygh4Yv0eWtC8kesHKonR7NQxg6RPeQCUb9CRz_iFZRh3wIXZLs1Q2ry1YpTJsrcdWiTuJ6IauOLnz4zLkK9IiIq5iMfxivIHW3s3y02ItOTmkOD9z8NmEODE0qo3UKotZP2E4MM8GdWqlbtFBAmmf6tMK2kzeY-SuQjTPGqq88kUgImodHXmq7-H4OHfPlDSdzEa1d8XA7G2tkqVKa_r39Jbg.jpg" width="400"><br>
-
-روزنامه آمریکایی وال‌استریت جورنال روز جمعه دوم مرداد به نقل از «منابع آگاه» نوشت که دونالد ترامپ، رئیس‌جمهور ایالات متحده، در روزهای اخیر نسبت به این‌که مذاکرات با ایران بتواند به صلحی پایدار منجر شود، بدبین‌تر شده است.
-یک مقام ارشد دولت آمریکا به این روزنامه گفته که «ترامپ معتقد است تنها چیزی که ایران می‌فهمد، فشار نظامی است» و افزود او در برابر تهران در «حال و هوای انتقام» قرار دارد.
-این مقام همچنین گفت رئیس‌جمهور گزینه‌های مطلوب چندانی جز ادامه حملات نمی‌بیند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77478)
 
 ---
 
