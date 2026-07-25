@@ -3,8 +3,70 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-25 20:36:50 </h5>
+<h5> 🟢 Updated at: 2026-07-25 22:24:07 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-25 22:00:59
+
+<img src="https://cdn4.telesco.pe/file/AOCytFAc7w4E5VaGiucz2TLC9RkObqFThaAlZgR6664SR-_K6SXCTbkriCoUhrZnvkWjQBd-9zVvQS0CQdTl3wOeC_ff3E8Vhs6vHkOiK6QqljjFKM3sesldSXOrJtJTAPCjUw-r-vCRtO8l5-4O0HDih10M9IUkUOszd8fcbzeOXZPn7EnPjTpJtJblM2BGex_Dd74HHZ1nixrQn9WCCEvYLVobaBi8I-5ZJxWfoI4TDaxmeLbljVdJtfAvDg0P95AKz2HVF1iQwNvM77sYZfxZotlm0T3wlOR67aT1DvboYNiNI92xxt3r-luEQ1swZX-6CVJvrkK5H811XqE96g.jpg" width="400"><br>
+
+کیتی پری، خواننده آمریکایی، از استفاده کاخ سفید از آهنگ «Firework» (آتش‌بازی) در ویدیویی از حمله آمریکا به اهدافی در ایران انتقاد کرد و گفت این استفاده بدون اطلاع و رضایت او انجام شده است. او افزود که از این اقدام عمیقا شوکه و خشمگین شده است.
+کاخ سفید روز پنج‌شنبه ویدیویی در حساب رسمی خود در تیک‌تاک منتشر کرد که در آن بخش «boom, boom, boom» آهنگ «Firework» با تصاویری از حملات آمریکا به اهدافی در جنوب ایران هم‌زمان شده است. کاخ سفید در توضیح این ویدیو نوشت: «به ایران هشدار داده شده است.»
+کیتی پری روز شنبه در شبکه ایکس نوشت: «از اینکه آهنگ "Firework" به‌عنوان موسیقی پس‌زمینه ویدیوی حملات نظامی در حساب کاربری تیک‌تاک کاخ سفید استفاده شده، عمیقا شوکه و خشمگین هستم. من این استفاده را تایید نکردم، از من اجازه‌ای خواسته نشد و به هیچ وجه آن را تایید یا حمایت نمی‌کنم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77496)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-25 20:45:50
+
+<img src="https://cdn1.telesco.pe/file/LG4YQflxTblybXIMzz9uGDAQ7hzyQRihpRFyBGmWzeRdcoGbdae2bYSmhIhUgY8zA9I1DtrEqLIc8X8cj84ChmgmGOU_P7HlqdpA2AB1oWu-XA-_SQs__TG8czLswreNI3Az2rr1og2itmZvsx-FCSxr3amxpSLzMVKouNQQOyx9EehtrOiptW4H9CwBfyz_5nuHV4tk1K8OhEHPQ-HMX08Tr3glnd5dpGS5J5T3MbNmDN9GgwHsG1-9bujauiLsQ8NNhFo-L8X51S0Gpeaxw1Vi3b4HP1X9i5v2FZYyCsmZVQqaktL8cHgoRBNfR2bkHnItPQF43jsbp3LoXxt8rQ.jpg" width="400"><br>
+
+اکسیوس: ترامپ دستور داد ارتش روز جمعه در ایران حمله‌ای انجام ندهد
+ترجمه ماشین:
+دو منبع مطلع از این تصمیم گفتند دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه به ارتش این کشور دستور داد حملات جدیدی در ایران انجام ندهد؛ دستوری که به رشته‌ای نزدیک به دو هفته از حملات روزانه پایان داد.
+چرا مهم است:
+دستور رئیس‌جمهوری پس از آن صادر شد که او طی ۱۳ روز گذشته، هر روز حملات را تأیید کرده بود. هنوز مشخص نیست که دستور روز جمعه ترامپ تصمیمی یک‌باره بوده یا این وقفه ادامه خواهد یافت.
+▪️
+تصمیم ترامپ هم نشان‌دهنده تمایل او به فراهم‌کردن فضای بیشتر برای دیپلماسی است و هم حاکی از این ارزیابی که سطح کنونی حملات آمریکا ــ مگر با بازگشت به عملیات رزمی گسترده ــ به مرز اثربخشی خود رسیده است.
+▪️
+اگر ترامپ دستور ازسرگیری حملات را صادر کند، ارتش آمریکا می‌تواند در مدت نسبتاً کوتاهی برای انجام آن‌ها آماده شود.
+▪️
+به گفته منابع، ارتش آمریکا همچنان در حال تهیه طرح‌هایی برای بازگشت احتمالی به عملیات رزمی گسترده است، اما ترامپ هنوز دستوری برای حرکت در این مسیر صادر نکرده است.
+▪️
+کاخ سفید به درخواست اظهارنظر پاسخ نداد.
+آنچه خبر را رقم زد: ترامپ طی دو هفته گذشته، هر بعدازظهر طرح‌های حمله ارائه‌شده از سوی ارتش را تأیید کرده و این حملات ظرف چند ساعت اجرا شده‌اند.
+▪️
+روز جمعه نیز طرح مشابهی در اختیار ترامپ قرار گرفت، اما او با آن موافقت نکرد. در عوض، به گفته منابع، به ارتش دستور داد حمله‌ای انجام ندهد.
+▪️
+اندکی پس از صدور این دستور در روز جمعه، ترامپ به خبرنگاران در کاخ سفید گفت که می‌تواند حملات را ادامه دهد یا حتی آن‌ها را تشدید کند؛ از جمله با «نابود کردن هرچه آن‌ها دارند».
+▪️
+اما او روشن کرد که به نظرش «راهبرد هوشمندانه‌تر» این است که با ایران «به توافق برسد».
+▪️
+ترامپ گفت: «همین حالا با [ایرانی‌ها] در حال گفت‌وگو هستیم. فکر می‌کنم با گذشت هر روز، جدی‌تر و جدی‌تر می‌شوند. ما کاملاً مسلح و آماده‌ایم، اما در حال گفت‌وگو با آن‌ها هستیم.»
+▪️
+ترامپ بعدتر در روز جمعه، در سخنانش در شام انجمن خبرنگاران کاخ سفید، گفت تصور نمی‌کند ایران در حال حاضر آماده توافق باشد، «اما من آماده‌ام گوش کنم».
+وضعیت کنونی:
+دستور ترامپ برای توقف حملات، چند ساعت پس از آن صادر شد که یک هیئت عمانی روز جمعه برای گفت‌وگو درباره ترتیبات جدیدی به‌منظور بازگشایی تنگه هرمز وارد تهران شد.
+▪️
+دو منبع منطقه‌ای مطلع از مذاکرات گفتند در گفت‌وگوها پیشرفت حاصل شده و ممکن است توافقی میان عمان و ایران در تعطیلات آخر هفته به دست آید.
+▪️
+پس از آن، رئیس‌جمهوری ترامپ باید تصمیم بگیرد که آیا توافق پیشنهادی را می‌پذیرد یا نه.
+axios
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77495)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-25 19:03:37
@@ -251,7 +313,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-24 21:00:18
 
-<img src="https://cdn1.telesco.pe/file/aMYvyPFFxR2WQ7sIoxvBcJJqKN3-1_JsQ2sjyqE5Msgy_jBYEMS1EtbMo1_paGH8Ur9bJcenK_luRG1RwBrx5CrY9ugkALIJZ84J8q0q-9IgjKt3l4kwCmL97HolJ20KHPeAUQ-VN-338jJdEMLXtCx-b6vI2O8Jykji9_3031XFH8-OdBqzM72pjDTjgfsfz77jo8NLhTyPojDnTsPB6Bv4bOyn_LFe3cpzhAukfj_TFm9IiXtBKmsxrK3ltFZpG2VE1LMmlTyihKoHdONiYn-UjH_yzgNl_gKxgr1RQ882TK9Bzrq5nQwg8YPUbLiOGzqapQdRsie2I7E0YzxYMA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OOrJUYfmDCvcOpi-DFc55ClCm_UjRl2i_uZNsNU6_wy3_wxIVlJDWQje79Q_XhNCTfuBbA3mBBodiZpMyvaioA9klFLWPbP8HKGrCUBCY9-NEFNS3Ml0UuQeJ0eELZqPvutdssrzUSO0VGSdj9xc_47g_8-63pCWPRY9nqW_to_hDA4iArymT0PR75VpvuhHGFUbw78zKPij9y5Mstho7oVMoONzO2IqLuVAOlBww1Fh9EFtBX7AXLoxkY9jlvSR0-9zQp0Sz9QFGUfa9rfjdRL96uEvDgSDI5FxFy6DE6ChuqpmVF5-1Dn_-m04Z6gbN9OpsgIQpwr9TU8aP75gyg.jpg" width="400"><br>
 
 وزارت خزانه‌داری ایالات متحده روز جمعه دوم مرداد، از اعمال تحریم‌های جدید علیه ۹ شرکت و ۴ فرد مرتبط با بابک زنجانی به اتهام دور زدن تحریم‌ها خبر داد.
 بر اساس بیانیه دفتر کنترل دارایی‌های خارجی (OFAC)، این تحریم‌ها فعالیت‌های وابسته به هولدینگ «دات وان» (Dot One) زنجانی در ایران و چند شرکت پشتیبان صرافی‌های ارز دیجیتال او در ترکیه و امارات را هدف قرار داده است. خزانه‌داری آمریکا اعلام کرد که زنجانی با بهره‌گیری از سبد سرمایه‌گذاری متنوع شامل خدمات مالی، تجارت دارایی‌های دیجیتال، طلا و پروژه‌های زیرساختی، اقدام به پول‌شویی و انتقال مخفیانه وجوه برای ایران کرده است.
@@ -370,47 +432,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77477)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-24 17:29:01
-
-<img src="https://cdn4.telesco.pe/file/Oi2RI9VeAG1nDlbQMoiXcTyYWh3vjQ-OIuxos3d4adjDzBQmAvwiLZYLdHtqptW0FJEo0xOUIViO45Zj0C6kII_Q8glJATe-DJpfkCdf1x3s6TP7aRH_O66SR7mz_rEayZYWMBDWr3hKqTiQWLH2_ib_T8Hf5j3V9TUUvmNffRFcKgM790akF8c3km74BdqYboDJByxdCzOMokLW1CyRR99ip3mGUG0XTNW1mX7Ek14ARY-83HsnC97diFi6VgC7qjTJt_3lgkHZaBsYVZvub3Tv5adxzd14A1lsjMNmxPHetWQQsHaV-8JkBBChLMHwdojL1j1zQdyXHPBLlL0Mvg.jpg" width="400"><br>
-
-روابط عمومی سپاه پاسداران روز جمعه ۲مرداد۱۴۰۵ با انتشار بیانیه‌ای مدعی شد در جریان عملیات موسوم به «نصر ۲»، ساختمان باقی‌مانده مرکز داده‌های شرکت آمازون در بحرین را هدف قرار داده و منهدم کرده است.
-سپاه در این بیانیه ادعا کرد مرکز داده آمازون نقش اصلی در تکمیل اطلاعات ارتش آمریکا را بر عهده داشته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77476)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-24 17:27:42
-
-<img src="https://cdn1.telesco.pe/file/NLuCynHBoeNun6NDn8EYzdsbiUaoyOB5YFsVuvEGzCHmjGzf15Y8Xf6rcxd1aDqjHpS4kKQ_rYPZUi5Szv8XvJYHElP2kM2HA-Ou_lsSWTGvmS2IdBoO5CylZpaqh5ZxLirxH477T2ALfewo8mpQX5FOlg1lXwvsxkqHFMD55pcq4IeYISRs9GhskWzwmnhRgCcBMPqLWSnuSDKyOqVzv3P43JH7XpoLZQ_ReZwVWPSAxy38cuTs06OT5iZpVHQcDYf0mGYicB3VrOi8i4g6QldoEt1c9kpij6a0TaKOqk-U4QOeBeb588fKbW0sYmmqZfya3pRDxR1VjJjqdTVLjQ.jpg" width="400"><br>
-
-روزنامه نیویورک‌تایمز به نقل از چند مقام ایرانی و عراقی گزارش داد که جمهوری اسلامی ایران پیشنهاد آتش‌بس از سوی دونالد ترامپ، رئیس‌جمهور آمریکا را رد کرده است.
-بر اساس این گزارش، پیشنهاد یادشده در جریان سفر علی الزیدی، نخست‌وزیر عراق، به تهران به مقام‌های ایرانی داده شده بود.
-آقای زیدی در جریان سفرش به ایران از جمله با مسعود پزشکیان، رئیس‌جمهور و محمدباقر قالیباف، رئیس مجلس شورای اسلامی دیدار کرده بود.
-جزئیات این پیشنهاد آتش‌بس مشخص نیست اما مقامات ایرانی به نیویورک‌تایمز گفته‌اند که این تنها پیشنهادِ روی میز است و آن‌ها علاقه‌ای به توافق موقتی که مسئله کنترل تنگهٔ هرمز را حل‌نشده باقی بگذارد، ندارند.
-@
-VahidHeadline
-دفتر نخست‌وزیر عراق گزارش روزنامه نیویورک‌تایمز مبنی بر انتقال پیشنهاد آتش‌بس آمریکا به ایران از سوی علی الزیدی، نخست‌وزیر این کشور، را تکذیب کرد.
-دفتر رسانه‌ای نخست‌وزیر عراق روز جمعه دوم مرداد در بیانیه‌ای اعلام کرد ادعای مطرح‌شده در گزارش نیویورک‌تایمز «کاملاً بی‌اساس است و هیچ ارتباطی با واقعیت ندارد».
-دفتر نخست‌وزیر عراق در بیانیهٔ خود مشخصاً گزارش مربوط به انتقال این پیشنهاد از سوی آقای الزیدی را رد کرده و درباره وجود یا عدم وجود پیشنهاد آتش‌بس آمریکا به ایران توضیح بیشتری نداده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77474)
 
 ---
 
