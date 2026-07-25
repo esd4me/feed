@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-25 16:33:24 </h5>
+<h5> 🟢 Updated at: 2026-07-25 18:25:34 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-25 18:13:25
+
+<img src="https://cdn4.telesco.pe/file/buOlArk00II_Y_iVGFWZNw20WloS3FLE2pf3nmLgJfnBCdwIGEBZCNKwBXlydJfZMKuOyGRwEt1FDbzAroAfI282suzPm3Ch9dCzKtVwJOQRX6YGRBIf69RlGUB2CI0JwknA6Z_1xz2jxk0LzVn0YlPDrjK__2aC-IZIF5FjO-truCbbr04Gs6KXEa7OZGiSK2BYKgwluX_-g1CWF7hQo8LvxxGYbvmZUwaRNmS3yXOIaDNs9N6tCueyEGnUV3Tb-SboQQ_UFGVXU0DRwVMoaQUXQM3zsma5qBSl__5HGIrxm-oRcyyIqpNm-B69RR5lZDck1thjUQ0uqnM0r_UpVA.jpg" width="400"><br>
+
+ولودیمیر زلنسکی، رییس‌جمهور اوکراین، اعلام کرد نیروهای کشورش یک ناو جنگی روسیه و همچنین کشتی‌هایی را که به گفته او برای جابه‌جایی محموله‌های نظامی مرتبط با ایران به کار می‌رفتند، در دریای خزر مورد هدف قرار داده‌اند.
+زلنسکی روز شنبه، سوم مرداد، در پیامی در شبکه ایکس نوشت که اوکراین در حملات دوربرد شب گذشته در دریای خزر به نتایجی «بسیار خوب» رسیده است. به گفته او، در میان اهداف این عملیات، کشتی‌هایی نیز بوده‌اند که «با مشارکت ایران» برای انتقال محموله‌های نظامی استفاده می‌شدند. رییس‌جمهور اوکراین اطلاعات دقیق‌تری درباره هویت ناو جنگی یا کشتی‌های هدف قرارگرفته منتشر نکرد.
+سرویس امنیتی اوکراین (اس‌بی‌یو) نیز همان روز گزارش داد پهپادهای اوکراینی سکوی نفتی «فیلانوفسکی»، متعلق به شرکت روسی لوک‌اویل واقع در دریای خزر، را هدف گرفته‌اند. بر اساس اعلام این نهاد، دو کشتی باری با نام‌های «پورت اولیا ۲» و «بگی» نیز در همین عملیات مورد اصابت قرار گرفتند؛ کشتی‌هایی که به گفته سرویس امنیتی اوکراین در انتقال محموله‌های نظامی میان روسیه و ایران نقش داشته‌اند.
+تا کنون نه مسکو و نه تهران واکنشی به این ادعاها نشان نداده‌اند و گزارش‌های اوکراین نیز به صورت مستقل تایید نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77492)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-25 06:32:23
@@ -243,7 +262,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-07-24 17:33:01
 
-<img src="https://cdn4.telesco.pe/file/fUofpEChwS5RwFBkkU92sdd02CMcuJiFbhhsUOjCFpE1Dq3at_rDGREsN1yrU2zs39sHu8g9zpiUSHjPY6joA6zwTjTF7ZbktRJ2DHvQbED502hq8lo5fKlT1hoQu4SVTP8nykjs_lak0xiVxHhyhZI3hgPW7Qh0CtVHb2QL6NOnDbXKKC9CQrNn5EVsCCwW3POMcWUQ9TCTKxEZ-moWLpS6v4XjDNdLRS_V5SGccUv4tXJZ7diWGdyH6tmxIELiqoMPlGmO0_4llYcQ8gc7v6XDEilLRC4e0MlxV8Qfk_g-StfM4T7BQQ5N-12C-5lBvpYsONkmlN6ND8chZ5XRzg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/JqBRarszWtZGiZftXoWb80zDfYrUDi9ZKmX6sYngCxwdIUQrTA_NrWgfLtxWqWM5AQnxlq-1u-WpAEEjpkfuGBoBfw6HpEJIGKGqhVPI1Eg_kB9v376daKAWa_E8mq9mwuCVskPJ5GpbMuoVYNTa9PEVtXyk-yQ3VSOnzhdJg24mAo2Nmm9_J34CXu2pE-XqRU4S9lAC0SWGNUdI2XA_uns_ewTsvDdbp-CyNJwl85F7GYoB-CYFxpz5x140KH-v5g2VnVDTHJEzxX1YLF_cQIEV2q7aC-_gp8kNzRuCv7ivampvHgiEsloJU6dsd-1834GykF4vi6TjnSEJADZufg.jpg" width="400"><br>
 
 شورای اطلاع‌رسانی دولت روز جمعه دوم مرداد، با صدور بیانیه‌ای از اقدام سازمان صداوسیما در سانسور بخشی از سخنرانی مسعود پزشکیان در روز ملی صنعت و معدن، درباره اجازه رهبر پیشین جمهوری اسلامی پیرامون مذاکرات، به‌شدت انتقاد کرد.
 در این بیانیه با اشاره به سوابق مشابه، از جمله پخش نیمه‌کاره مصاحبه رئیس مجلس شورای اسلامی، سانسور سخنان رئیس قوه قضائیه و پخش نشدن مصاحبه‌های وزیر امور خارجه در طول جنگ، رفتارهای صداوسیما «گزینشی و مبتنی بر سلایق سیاسی یک جریان خاص» توصیف شده است.
@@ -261,7 +280,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-24 17:32:12
 
-<img src="https://cdn1.telesco.pe/file/Bon5_c7cdI529RPGXdkk5SJ3wvry7NOGW82jEMgcdunlaLTaKMeHkBPtC5PCllF_bn9cHVnZmNlKjkxtQMyDJGktSu1TcozpWH28DMIWwGn9pfMF9TAiietZwRDB330O1G0NzDAGT5xoKtjKo1-Tvn59TzXhTC6-UlAspAucfGbPDOtEbmj3Hr-6ryjjG-s4_aDyWjbvg8Yf7iAW2viMgC4k9vdGJ0MZn2iwTa7NDy7jHMS5gSi7gSilw87FdzzeSI-XcNd1c8SvZsYJXIBbIqoiPXNGRzg148ofE7Q0G-kn_fmk-HtyorrxRAzaBLtV6dB3dpPoo7P3rZa-8EYJMQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OH9-1Rg-_cwYdrkXEgR7ohvQ3zhky4f6qbOnLykmDxGTp0Yiz7gpsLzNIL7d_xjk--h5LQ5D0Cw7NhpK8vCEJvum4xgm4Kao3evsewpkWJuPFA40RLrC70Br6mxUlYAaY_zVijwraK8lKDwS7VvaCtLpMXudmbeXTUznufCp_r152l0ofE5kP4o-e19RdFxBblJuvlNFfQJJYlMa9NnjmCj6Moll_EcABVig3sJMRubdK_PIVfgn0xOgUkc_1Wpcy-tk41jjMh0He7AIjXrGeNOZ_eRoA74NZ6AIPTY71H1Rb_Jy7JhleOlDnSPyR4tdNqq9XFwHIhCrUZcDehAEkg.jpg" width="400"><br>
 
 حسین (شاهان) علیزاده آذر، زندانی سیاسی، با اتهامات سنگینی مانند «توهین به رهبری»، «تبلیغ علیه نظام» و «سب‌النبی» به دلیل «توهین به آدم و حوا» روبه‌رو شده است. او دی سال گذشته نیز بازداشت و به «تبلیغ علیه نظام» متهم شده بود.
 این شهروند ۳۸ ساله و مهندس نقشه‌بردار، با قرار وثیقه آزاد شده بود اما بار دیگر در ۱۳ تیرماه مقابل منزل خود در اسلامشهر به دست نیروهای امنیتی بازداشت و به زندان تهران بزرگ منتقل شد.
@@ -278,7 +297,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-24 17:30:12
 
-<img src="https://cdn4.telesco.pe/file/LwFRJdkAEcIs_36O6WzxF3LNgNRXwHTtZ62xG-msamWaQZdm0MWrXmhNaEhMG47_8qeLkqczhyvR2i69bHCStDNoNjafUTSHnw-AlKiYeVNyfDGi9HKooZviVgQyEhmZt5oG12LcRis5gAu-QpqgU-Xbm5hO1BEXUje67tGVO9lUdKFx-WCRFGrspbKka60Zm4yHmjq8ChcHOUyJfqmWE4gYAXcsH2wdN3kXKFlE4e8RdQygAhx2-QekTPEoypSwqB3rAJxIgUQ5qPe4y1rMiIVFk5o3fhe0ijELlFpnm38hWjeVqVNc3JfYJBt76AmMZjtLqH51Mqh8eRViBodkFw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/vAOsT2AagMB49HRPC0OCOTueH_roPXdpmetpgU4qI6by3f4KB5nM2YkCrxj7Sc3fg5l0G-LZUMcvJZc0iAgGyyUqzFVqbB0yyQ2rgm2miFPPeELqENBZz_WpS_e0wygh4Yv0eWtC8kesHKonR7NQxg6RPeQCUb9CRz_iFZRh3wIXZLs1Q2ry1YpTJsrcdWiTuJ6IauOLnz4zLkK9IiIq5iMfxivIHW3s3y02ItOTmkOD9z8NmEODE0qo3UKotZP2E4MM8GdWqlbtFBAmmf6tMK2kzeY-SuQjTPGqq88kUgImodHXmq7-H4OHfPlDSdzEa1d8XA7G2tkqVKa_r39Jbg.jpg" width="400"><br>
 
 روزنامه آمریکایی وال‌استریت جورنال روز جمعه دوم مرداد به نقل از «منابع آگاه» نوشت که دونالد ترامپ، رئیس‌جمهور ایالات متحده، در روزهای اخیر نسبت به این‌که مذاکرات با ایران بتواند به صلحی پایدار منجر شود، بدبین‌تر شده است.
 یک مقام ارشد دولت آمریکا به این روزنامه گفته که «ترامپ معتقد است تنها چیزی که ایران می‌فهمد، فشار نظامی است» و افزود او در برابر تهران در «حال و هوای انتقام» قرار دارد.
@@ -296,7 +315,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-24 17:29:34
 
-<img src="https://cdn4.telesco.pe/file/SLP4mPTfVy1kSVy0ACdgt4bhpYV_oHm24Ci0JcQCVe1buKIH10TLx4Sv35vgcMtp-RWrqw9LKV3DALCfXa6eVl2ZCjwzizCgViekR4poAMRLjZyx5tinrlp9-tm5Cq2oN8bCPQPV1MNsSw78n7Prg2_5WGukOYSoe_nkTNwiZuJF6Nix_A-5SmL9LUJ7LlY-etDag_jRvX6KtuF2LBS6SAndClOTYyeM5XoOAVkC1VkV5dsmQkPG2x2UkaW1SwODN91wmR0Tcz3YH2O4rU-0dYO8ysH6zN8xbwz_K6CoN09BzXKxC3-V7Xj2rXdG1rfJ9c-VsT7iUUBa7F_lAOGKkA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Z-mMQ3TSp1AGWlvrI9HWJ5LuOReHGdZ81ngWfOXaK-nrQ1qTPpwivOXa5U0QWV36amAR7g6MfUnb8FuxrHLGRk_mZpxcdtZoyeZ4nU8P5P01lr1ndF0OCHFucB1g0jtk5NUM01Nmx-dikhJPdlWLAajKPR8F9hoN0Xig0_kHILhqMdUrgJeG3hZSYshZbPVs2qvUbCU9H_JqrMRyj_v3tkXB82eklTJhtQG7_kYj-j9AlGwbhWDtqGKYugThvThsUu8d9DXi30ftYZp80yrD7QatounCmCuMGB7KeqcYlOy0fXYpVHG-Pd4j5ziNsWuqUZ9eGLfA5YEGi5TJthjKvw.jpg" width="400"><br>
 
 دولت بریتانیا اعلام کرد نیروهای مسلح آن برای حفاظت از کشور در برابر هر حمله‌ای آماده‌اند.
 این موضع پس از آن بیان شد که سپاه پاسداران انقلاب اسلامی هشدار داد نباید به بمب‌افکن‌های آمریکایی اجازه داده شود از پایگاه‌های بریتانیایی استفاده کنند.
@@ -316,7 +335,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-24 17:29:01
 
-<img src="https://cdn4.telesco.pe/file/htegh97GqUGNUjLTFMccmgqQLcLvcsWgD00-dEW8jdwhVh7v238GPBvG0xJ3SwKFMjHhDIWbbprTj1k9k6wXAdBhqFm8OI51fSjx8jPcam4L0zFGuQ9Bmoksby4GLDdeXumBI4WTnynCSBLi0zXc0J85IK4dm1ODsvV0wXWSyapeV46lpRs758fgCMqHSV9XTanEO_P5qpZnaxgsKu9a4BSTtFfJT2NGTvGERQSH_qs7XJezjEBm7Q40qzRhWPq3nX7rL9S3IWwH2RHzW1Tz7RXI_RoDdb1NADfgT6JFFXgi2ArF21hXyEBgL66DSzX1dheZMndsOHUqlTD64pv8Eg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Oi2RI9VeAG1nDlbQMoiXcTyYWh3vjQ-OIuxos3d4adjDzBQmAvwiLZYLdHtqptW0FJEo0xOUIViO45Zj0C6kII_Q8glJATe-DJpfkCdf1x3s6TP7aRH_O66SR7mz_rEayZYWMBDWr3hKqTiQWLH2_ib_T8Hf5j3V9TUUvmNffRFcKgM790akF8c3km74BdqYboDJByxdCzOMokLW1CyRR99ip3mGUG0XTNW1mX7Ek14ARY-83HsnC97diFi6VgC7qjTJt_3lgkHZaBsYVZvub3Tv5adxzd14A1lsjMNmxPHetWQQsHaV-8JkBBChLMHwdojL1j1zQdyXHPBLlL0Mvg.jpg" width="400"><br>
 
 روابط عمومی سپاه پاسداران روز جمعه ۲مرداد۱۴۰۵ با انتشار بیانیه‌ای مدعی شد در جریان عملیات موسوم به «نصر ۲»، ساختمان باقی‌مانده مرکز داده‌های شرکت آمازون در بحرین را هدف قرار داده و منهدم کرده است.
 سپاه در این بیانیه ادعا کرد مرکز داده آمازون نقش اصلی در تکمیل اطلاعات ارتش آمریکا را بر عهده داشته است.
@@ -333,7 +352,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-24 17:27:42
 
-<img src="https://cdn1.telesco.pe/file/XDD__vS-ljQEF63meh8yb7J7YYaj4w0550-kv178irJTWDk382Vu_CH82Np5C9qW_J-wh2Mca0mdU-qITZ7ZOGuH-q3KwuXNJC2TJ3WpwEq5UVk1is7UCgt4A5GtUSkhh6vySg-WFaS_i6n8-8pfxVrIytt3bX_ThtlIGdqWnStDE1tY1_vdh8I5wbm0jHhrnvSY8Oz6eHDZgQSx87BdRdkIYy4lT5lU_76qt9B1Kp3bnuPU4NLLI1SDKmN4thNq0yZeC2tGZfG2rtf64UtdLA7PuNdPhP7RjTFIkvaopB6bhpvAiCE-hbSxC2k9pMPRfedSwsyOuGx9dpLlA9yPUg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NLuCynHBoeNun6NDn8EYzdsbiUaoyOB5YFsVuvEGzCHmjGzf15Y8Xf6rcxd1aDqjHpS4kKQ_rYPZUi5Szv8XvJYHElP2kM2HA-Ou_lsSWTGvmS2IdBoO5CylZpaqh5ZxLirxH477T2ALfewo8mpQX5FOlg1lXwvsxkqHFMD55pcq4IeYISRs9GhskWzwmnhRgCcBMPqLWSnuSDKyOqVzv3P43JH7XpoLZQ_ReZwVWPSAxy38cuTs06OT5iZpVHQcDYf0mGYicB3VrOi8i4g6QldoEt1c9kpij6a0TaKOqk-U4QOeBeb588fKbW0sYmmqZfya3pRDxR1VjJjqdTVLjQ.jpg" width="400"><br>
 
 روزنامه نیویورک‌تایمز به نقل از چند مقام ایرانی و عراقی گزارش داد که جمهوری اسلامی ایران پیشنهاد آتش‌بس از سوی دونالد ترامپ، رئیس‌جمهور آمریکا را رد کرده است.
 بر اساس این گزارش، پیشنهاد یادشده در جریان سفر علی الزیدی، نخست‌وزیر عراق، به تهران به مقام‌های ایرانی داده شده بود.
@@ -372,27 +391,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77473)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-24 17:24:30
-
-<img src="https://cdn4.telesco.pe/file/uqwKXg5h_uk3RHIeTyILqG-RF0grxt3AZ4oT9njOltR8MQlpHe4i80CDiqwdn0_1NpGRwLYYaKW5K4RvMq5Q2OBIacd_RIzDwY_MlcS5DqjV3CLUzOnRYDsP3fKKOSLfGA5BQdhWtMGh61FA-TQ54UEC2uGZteBqr0novrZF4lqAvNR5-Lgby4eo1u7XuDJ1WPHFZQ9g0aoXvFuoGVwKt-Uq7mIk7_nrgtA5cCKZpaIWvkGWO0clYh4G15yljTWS4x1UgQ2iTr6Rn_DHsk5HPrk6S-0HZnNgp6-K0zeyJih5bbKIQRceRwqbe9083BuRZZqMus8EY_21B6kyNygH4g.jpg" width="400"><br>
-
-عفو بین‌الملل روز جمعه دوم مرداد از مقام‌های جمهوری اسلامی خواست که فوراً هرگونه برنامه برای اجرای حکم اعدام بنیامین نقدی، ورزشکار، را متوقف کنند.
-بنیامین نقدی ۱۳ دی‌ ۱۴۰۴ در شیراز در ارتباط با اعتراضات سراسری بازداشت و به‌مدت ۵۳ روز به‌طور قهری ناپدید شد.
-رسانه‌های دولتی ایران یک روز پس از بازداشت و پیش از برگزاری دادگاه، «اعترافات» اجباری او را پخش کردند.
-این ورزشکار بعداً در ۲۲ اردیبهشت امسال به اتهام «افساد فی‌الارض» به اعدام محکوم شد، با این ادعا که از کپسول آتش‌نشانی علیه نیروهای امنیتی استفاده کرده است.
-عفو بین‌الملل می‌گوید که حکم اعدام برای بنیامین نقدی پس از «محاکمه‌ای به‌شدت ناعادلانه» صادر شده است.
-این نهاد حقوق بشری با استناد به الگوهای پیشین مقام‌های جمهوری اسلامی ایرانی در گرفتن اعترافات اجباری «تحت شکنجه و سایر بدرفتاری‌ها»، ابراز نگرانی کرده که «اعترافات» بنیامین نقدی تحت اجبار گرفته شده باشد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77471)
 
 ---
 
