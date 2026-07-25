@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-26 01:14:30 </h5>
+<h5> 🟢 Updated at: 2026-07-26 02:14:29 </h5>
 </div>
 
 
@@ -252,7 +252,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-25 02:27:38
 
-<img src="https://cdn1.telesco.pe/file/H5Ul-TP-j4WM6dWJ-9WnkxKkmrN98I4iCvXbLfwFyuHzK4mrK8jIQPc3yAxniwhu04Nslb_jdO4fiVA2vU_EcT1fj0cG2jU4BFoHMfBBISl8vTHtl77I9zKWtk5blsoYEqcvrWYucn0ADJohaazsMmAi0BxCE9smY265lpI6Ia-I-RSpF71zjWFBjXX6LJ8fqqtzbo16EL8OJy-ifsLFBONF_3rqmdK0DJqTLvCtaqLWtgQOQg8gNTy6rBpO3wR9GXcbmkIINl_22-B6MSVLu1_CXHoF08C06FicZ8aK4PlnS7oLnDDnjEzjm7q8jFbN5CmW-qQU33ECEs2XLK1Oag.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JOP7vst8COVSHgKYhP3bFikyhblrbu0s8F9ZO0MSeCo-3x-sL_zgwyhoTsLAKabyRj41w6a1kLevfNGAMc1N6pF_xcqnNa2Uxc9fbRmM8tQyEJg5SIkJvINF2Q1r-RjDOVRei6CzXY6LTDz-fQSHpjANxLRWWT9NKwhsYoT6d77N0xedz1b4EXCzazha9lwUubiq1lbRVgXRK8NnCBBghPo-0THNPa710TF6CKOgJKyeWxw6bzscZpLgWoaIXRjI48c5a-p_J4lWE_AepDGS7A1xQ2RHJlswgDmMcVV0DYBkefBIR0F4IFLhunfdLV1HGMoMvDWc9lF0hYRSbLmXew.jpg" width="400"><br>
 
 کریم خان، دادستان ارشد دیوان کیفری بین‌المللی، در پی تحقیقات دربارهٔ اتهام «سوءرفتار جنسی» از سمت خود تعلیق شد.
 نهاد ناظر بر دیوان کیفری بین‌المللی شامگاه دوشنبه ۱۸ خرداد ضمن اعلام این خبر افزود تصمیم به تعلیق کریم خان پس از آن اتخاذ شد که روند رسیدگی انضباطی به اتهام «سوءرفتار جنسی» در پروندهٔ او به مرحلهٔ نتیجه‌گیری رسید.
@@ -284,7 +284,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-25 01:55:41
 
-<img src="https://cdn1.telesco.pe/file/dpqKnpbhnnrBcdS-NYA2gPX3Vq8OINzLoav5CQi-AVlIiDRfzpkvGjwjVvw_e_zWsZ_vgYTQFodpmkuok6pCKraTwCjpM2w6uAqFz5jSAqPSU1E9zH7XAC-nc2LiIw6fQZbk-LrYE3A91u_W3Q2XcUGWRZarsCs-AKMfJWOEUCqCU0z8K8ww0ngJUGJCsyot3Y-by9sovgPlDPYSiKT9Hy6iiJqs9qUAs4H5gucJYIm2ehotAl5uZUMPcYf9X2SakFXXyIXrtb2gMFIDochQuIno-48Rji_yEIzoM9kEl6826dbBF5VJIoMudgXMNoARSwHNGV_5A03EWdfkjrNFVQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/cxGE4bBlbs0SqLTIVHdZW_JNniv9CO2Gn0fj4LLbRzAAATb40qWai4NO5EtEjImqNjZKXHttEFzYf1XRVslA8Iq5EwoIVFcAzgrmYnmhIf-wCVaVJuQk-z_OHkT29PCVBO-iHMCZErfTOvMPo7r0xninE8Ihq9I23lGjuHs77FcGzkqoEibHnqY114QoVEtXexk8zPWwTH0bgj1v1GAIWYBNJSN2GAssHCfHR9iQu3C510oFtyhwPcTGC5hfrVbANQ9_KVmsYqnKSz5qEhMh7Pgvhzp1Uz6appwF-Gj7z_qItFayh5hQR0zNPUzp4t44GO4yaZDu--hUC6VPwYRYRA.jpg" width="400"><br>
 
 فرماندهی مشترک نیروهای ائتلاف، جمعه‌شب، با انتشار بیانیه‌ای اعلام کرد که در پاسخ به اقدامات «بزدلانه و شتاب‌زده» شبه‌نظامیان حوثی در هدف قرار دادن کشتی‌های تجاری در دریای سرخ، عملیات نظامی متناسبی را علیه اهداف نظامی مشروع این گروه در استان الحدیده اجرا کرده است.
 ترکی المالکی، سخنگوی رسمی ائتلاف، با تاکید بر اینکه عملیات پاسخ نظامی طبق قوانین بین‌المللی و با تحقق کامل اهداف عملیاتی به پایان رسیده، تصریح کرد: «بندر الحدیده هدف قرار نگرفته و تمامی بنادر یمن از جمله الحدیده، راس‌عیسی و الصلیف برای کشتیرانی، ورود کمک‌های غذایی و سوخت باز هستند.»
@@ -302,7 +302,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-25 01:51:14
 
-<img src="https://cdn1.telesco.pe/file/HWsw86BZjW2Pqd2oXndpVUSlLmUtbh6u5fX7OxDA2c9dOYFYX07aH6ydjW5Q-TDDHZHCz7ACXx-rttvOHw3pmgkWMRMOa5WqD9AEIYd-WWvhoVXhFBEi-mskx3AYKgLMAgr8ppRbCJQil_iF_67RixjtvaMQaLvFFk27PTCP_uvOHiIyqS6pkYOJIE2jdGLSjKhl6ZsfqqLSokNHrhAv9aAiH55pk214CWE9AypgQYcdreA1UDxAGyiORCft70zOji4B2-ow9o34BTqEL7tLNRApTBesPPBrVF958deEoWP0S28rpvG3MhKhIINwQwhMYSrLVtiVHtZI0EeuU6ZfJQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/plbCH9f31OkqyckbuluKDIq_OdMG10F8b1JVYXba4RCmX7yLOLMJvO5Ap2llLfJJ_p99cb19y_EcZGyN2lFjYIRloHhrfXJQef_pSyo2FVgk7owDX8FYfbYqzx_PcTXQIDMBypNo1qCBuE-SRGIoamGDMyaQzc-QfNQftTW-ePWjFJ-yF979j3R6rzjqRocSQkI20wKtBszP2m2Cro8_VtcJWc2WAssVF-hwrKGMyMHtM_Vgbr28ywcW7uaWmKd8N1DTpP_11JDj3JKZ7vZuEzwy-WlhDq5BT6jEQi1QF0G8hjLTxelR_B7U0w7V7-w1kjM1sD8yDJjusu32JmBXAQ.jpg" width="400"><br>
 
 ترجمه ماشین:
 اربیل، عراق (خبرگزاری آسوشیتدپرس) - ارتش آمریکا روز جمعه اعلام کرد که به یک کشتی تجاری دیگر که سعی در نقض محاصره بنادر ایران داشت، شلیک کرده است....
