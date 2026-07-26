@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-26 22:27:59 </h5>
+<h5> 🟢 Updated at: 2026-07-26 23:40:17 </h5>
 </div>
 
 
@@ -271,7 +271,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-07-25 23:43:56
 
-<img src="https://cdn4.telesco.pe/file/B1zRNinGvBSPuBuvx83CUvD0B8_FvoYaHWSWmBdyAuDO0jXwF4pAdYemTni_upBLyjS8OkWtyxfQfdM0waBDY0C5KSCaYsBrjk67lP92QQgdbbNyRnqjY8-OvlhwOVuLs_8yszaZd2bKG5wGla4MeI9E4Dfy6wrIldrcLew0VXOydFY0izY7m_MDaG1FBCKXFx6ceujiDkRBYJBTNPfTadE3qxeB5FN9OQaSgb2lQZ-2E-_rsyQ3XpSznetQkUfPBhDCR7AwNNWYnylcyfGDuEOxVi66qsMa2xeCkbpl0YtR21rnXx4iWOmBqr9YXoqNHvXZBxL5_G4QCqznnUQkAA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/m1KSJkEmIBbOa4uHr5LZv09kywHc_jlp_kVYb0lUgp5lFFWFZZHhlrbTsadT9uDM7p_SB93vKgOwZRZRlKyeQfvfphdYVeGOKSHCKEvWZicEJmDPbauehS8H60qWzroCBD55MwznZcW5IxsFbwnH-aYFNhuE3-J6njMay-rAzGbw6bB4JWkUxeZw26KQiRahm81Xa29NKQWlbxmPxuQenYB-n7UalsnvqmoC_e5XmSK90jGkDNGBIke3lgm12MmNeY7LNQ0qTeq2wXogFLgbwhnbwnL66LE2mMbYxf7G7dTOR4D2LQZH5sf2poOvREaVPKlMrGiSlI64PMDmRVXotQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهور آمریکا، روز شنبه هشدار داد که اگر دولتش به چیزی که در مذاکرات با ایران می‌خواهد نرسد، قطعا حملات گسترده به این کشور را از سرمی‌گیرد.
 خبرنگار شبکه فرانسوی ال‌سی‌آی در شبکه ایکس نوشت که در گفت‌وگوی تلفنی با ترامپ از او سوال کرده که آیا در حال بررسی ازسرگیری یک جنگ گسترده علیه ایران است یا نه.
