@@ -3,8 +3,49 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-26 19:29:51 </h5>
+<h5> 🟢 Updated at: 2026-07-26 20:39:03 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-26 19:57:07
+
+<img src="https://cdn4.telesco.pe/file/opWiAgFA37eqJe8YJyMJY2CgI-Rxz2r0-9aqcJXWd9unmKLGzH7U5pccWbizQvsZkHIBHQsuwYY-aJM4KHs3yhq8t2Ytr5rDua6lRFvzsIDaMre40TqWSOJqpFD8-dKAG6xHlXNjDPr7HbYoOJAbrtSdDq_lrYRvfxkcyrWQNQHfR-w-MCe9hl-c6QzWDKCA7k5bzueate0OYGP6dF5nMe1YDd-bwyfeRov_g7OkZXraEFN3y3cuwml4yrcdTcrkB_0hXUjdHLeYgjWSS0F09T9G433iIDnE46aG_ct9fwPANYMDySWjdOtz6YKs5C7NTw-24wY_hMM_Af1PUYNqcw.jpg" width="400"><br>
+
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران با انتشار پیامی در شبکه اجتماعی اکس، حمله اوکراین به یک شناور «تجاری» ایرانی در دریای خزر را «نقض آشکار منشور سازمان ملل متحد» خواند و اعلام کرد این اقدام «نمی‌تواند بی‌پاسخ بماند.»
+عراقچی در این پیام نوشت که ولودیمیر زلنسکی، رئیس‌جمهوری اوکراین، با حمله به یک کشتی «تجاری» ایران که به کشته شدن یک ملوان ایرانی انجامید، به گفته او «به خواست اسرائیل» تلاش کرده است اروپا را وارد جنگ کند. وزیر خارجه اسلامی افزود که در گفتگوهای تلفنی خود با کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا و سرگئی لاوروف، وزیر خارجه روسیه، تاکید کرده است که این اقدام نباید بدون پاسخ باقی بماند.
+ولودیمیر زلنسکی پیش‌تر اعلام کرده بود که نیروهای اوکراینی در عملیات‌های دوربرد در دریای خزر، کشتی‌هایی را هدف قرار داده‌اند که به گفته او برای انتقال محموله‌های نظامی مرتبط با ایران مورد استفاده قرار می‌گرفتند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77510)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-26 19:56:17
+
+<img src="https://cdn4.telesco.pe/file/iWOnm0fw0pPilaJD_ps0LwmixbTegm2JtSVhA93evQ5mMP15P88U7LrVGxAQiCIBvseqLMqkR7AKkq9GXCn-DHNFvgWW6UPxC1dbyzRa1OPcPsbaGb-zRo2lNEb6frxh3LGXqvd8AEX9ee0dCERP-uvs5YF0muLz0pUn8xi6L3ACVXoTAtqSDBvvO4dMSJSI2mPaurct5-iPSZmqqiUZl9GbA018Us9o4atpSPJtqfl5SRJCcGRnod9YCThocM0WyQCiR3jsx9XuZxGWg0eyitiqC_1PdkbWY3utbjCC5xWZuTmEHrwTjgckbueCvrC-glKtVgq7rrpWah_iEh9JyA.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسراییل، گفت درگیری با ایران زمانی پایان خواهد یافت که حکومت جمهوری اسلامی سقوط کند یا آن‌قدر تضعیف شود که برنامه هسته‌ای خود را متوقف کند.
+او در گفت‌وگو با شبکه فاکس نیوز مدعی شد جمهوری اسلامی باید به این نتیجه برسد که ادامه ایجاد «آشوب اقتصادی در جهان، کشتن هزاران شهروند خود و حمله به دیگران» هزینه سنگینی دارد. نتانیاهو تاکید کرد که برنامه هسته‌ای ایران «چه با توافق و چه بدون توافق» باید پایان یابد.
+نخست‌وزیر اسراییل همچنین هشدار داد اگر ایران یا گروه‌های هم‌پیمانش به اسراییل حمله کنند، با پاسخی «بسیار قاطع» روبه‌رو خواهند شد و افزود تهران در صورت انجام چنین اقدامی «اشتباه بزرگی» مرتکب خواهد شد.
+نتانیاهو درباره سفر پیش روی خود به واشینگتن و دیدار با دونالد ترامپ، رییس‌جمهوری آمریکا، گفت قصد ندارد اطلاعات تازه‌ای ارایه کند، زیرا به گفته او، همکاری اطلاعاتی میان دو کشور بسیار نزدیک است. او افزود مشتاق است دیدگاه ترامپ را درباره آینده درگیری با ایران بشنود و گفت: «در بسیاری از جنبه‌ها، این تصمیم اوست.»
+او همچنین اعلام کرد که «قطعا» برای شرکت در نشست مجمع عمومی سازمان ملل در ماه سپتامبر به نیویورک خواهد رفت و گفت قصد دارد از تریبون این سازمان درباره اسراییل و ایتلاف اسراییل و آمریکا سخنرانی کند.
+نتانیاهو در ادامه از زهران ممدانی، شهردار نیویورک، انتقاد کرد و او را به دامن زدن به نفرت علیه یهودیان و حمایت از حماس متهم کرد.
+او همچنین گفت از کاهش حمایت حزب دموکرات از اسراییل «بسیار نگران» است و مدعی شد شماری از چهره‌های اصلی این حزب تحت فشار فعالان سیاسی به مواضع جریان‌های ضد اسراییلی نزدیک شده‌اند.
+نخست‌وزیر اسراییل در بخش دیگری از سخنانش از موضع دونالد ترامپ درباره عربستان سعودی حمایت کرد و گفت ترامپ به درستی تاکید کرده که در صورت عادی‌سازی روابط ریاض با اسراییل، تنها باید با یک برنامه هسته‌ای «غیرنظامی» برای عربستان موافقت شود. او افزود آخرین چیزی که اسراییل و آمریکا خواهان آن هستند، شکل‌گیری یک برنامه هسته‌ای نظامی در عربستان سعودی است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77509)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-26 17:46:25
@@ -260,7 +301,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-25 20:45:50
 
-<img src="https://cdn1.telesco.pe/file/LG4YQflxTblybXIMzz9uGDAQ7hzyQRihpRFyBGmWzeRdcoGbdae2bYSmhIhUgY8zA9I1DtrEqLIc8X8cj84ChmgmGOU_P7HlqdpA2AB1oWu-XA-_SQs__TG8czLswreNI3Az2rr1og2itmZvsx-FCSxr3amxpSLzMVKouNQQOyx9EehtrOiptW4H9CwBfyz_5nuHV4tk1K8OhEHPQ-HMX08Tr3glnd5dpGS5J5T3MbNmDN9GgwHsG1-9bujauiLsQ8NNhFo-L8X51S0Gpeaxw1Vi3b4HP1X9i5v2FZYyCsmZVQqaktL8cHgoRBNfR2bkHnItPQF43jsbp3LoXxt8rQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/PrzdZZg5gP67T9ccIJRI1PsF-5Wr2ijlqLwKjJli51bzadt_ZVAHkPqwkvlr2HJvE-uqV2lBAPFQL0I9aAxVuU4zRkrbLrCGTodc-5tspMzvL6RsslNSRqyt1gxh-qWx-kFRRprjOSNLnmRNeWOcRvMPaVaP-voA78TDmfvLyamvcPoFLpL4Po-KYTY1aZXP2-WBLDqagN6vQNfZZIwt15d0AwPBXw-zGVJ6TOl2M1ioD91nPRjUy5LERDvMx4U7uOfoFmkIP6LGC7liFB-SY2QhOPQQlwUMtuRO5tqtR4CtF8Q5dmNfoh_XRZXmRY4b3qvH-F8fuhajh4RxZd1v8w.jpg" width="400"><br>
 
 اکسیوس: ترامپ دستور داد ارتش روز جمعه در ایران حمله‌ای انجام ندهد
 ترجمه ماشین:
@@ -390,43 +431,6 @@ The White House
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77491)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-25 05:34:58
-
-
-
-تیم شی‌هی، سناتور آمریکایی [و افسر سابق یگان ویژه نیروی دریایی]، با انتقاد شدید از اقدامات جمهوری اسلامی، حکومت ایران را «گروهی افراطی و تروریست» خواند که ۴۷ سال است کشور را تصرف کرده و ایدئولوژی نفرت‌انگیز خود را گسترش می‌دهند.
-او گفت: این رژیمی که با آن می‌جنگیم، اهمیتی به سیاست‌های حزبی یا اینکه به چه کسی رای داده‌اید نمی‌دهد. آنها می‌خواهند همه ما را بکشند. ما این جنگ را شروع نکردیم، اما تمامش خواهیم کرد.
-این سناتور آمریکایی در ادامه تصریح کرد که حملات موشکی پراکنده یا تحرکات قایق‌ها در تنگه هرمز نشانه قدرت نظامی نیست، بلکه «دست‌وپازدن‌های یک امپراتوری در حال سقوط» است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77490)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-25 03:45:07
-
-<img src="https://cdn1.telesco.pe/file/uJD5GKQYX8t88wUL9mmK2r21NkNKaJhXRj-0tYE5jPrwksG5fz6E0BU1Bu06rbJ_GOHV_PVCzFaQ6HC-mtngSDLNC-D7IioG5qKNaAKLTgnhJx2z0tlfzLO1_Gg0xiY1cDWsxdmoal2bgh_1X2fpvvC3gQu0wgMJyfNB3INGxQNXBI-6ujpqoXtd_SzNBUR4qOmwoOoloRL9NS9GhZbW6rC8DRSu21V8fHtksWFgaVCeYdJQ_UwWkOKbgUc2T41YMK_OntmNet6aEfTTcztA-n1W-Yz9HqMO4SDbiEB-n-1HqQCsJAlBqrSvs_J-Nw1xsx3Ti_N90DFbxje3DlpcRA.jpg" width="400"><br>
-
-سفارت فرانسه در تهران با انتشار پیامی در حساب ایکس ادعای روزنامه انگلیسی‌زبان «تهران‌تایمز» مبنی بر برگزاری جلسه محرمانه دیپلمات‌های اروپایی و آسیایی در اقامتگاه سفیر فرانسه را به‌شدت تکذیب کرد و آن را کنایه‌آمیز پاسخ داد.
-تهران‌تایمز پیش‌تر مدعی شده بود که در ۲۰ ژوئیه، نشستی با حضور سفرای چند کشور اروپایی، ژاپن، کره جنوبی و نیوزیلند در اقامتگاه سفیر فرانسه برگزار شده که در آن موضوع خروج دیپلمات‌های بریتانیایی و هماهنگی برای فشار سیاسی بر ایران مطرح شده است؛ اما سفارت فرانسه با رد کامل این ادعا خطاب به «خبرنگاران تهران‌تایمز» نوشت:
-"به خبرنگاران محترم روزنامه تهران تایمز، دفعه بعد، لطفاً اطلاعات خود را با دوستان‌تان در سرویس‌های اطلاعاتی ایران که حدود ده دوربین برای نظارت بر سفارت فرانسه دارند، بررسی کنید. متاسفانه، هیچ مراسمی در سفارت ما در تاریخ ۲۰ جولای برگزار نشد !"
-FranceenIran
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77489)
 
 ---
 
