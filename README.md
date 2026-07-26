@@ -3,8 +3,143 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-26 16:39:55 </h5>
+<h5> 🟢 Updated at: 2026-07-26 18:26:58 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-26 17:46:25
+
+<img src="https://cdn4.telesco.pe/file/k1x12IRZqMGr3nkrww-AVGPKH5mVyscrMUmJrRg8gNm8cByh0nZzCgot6j4tXtpc6-A3VsQZdWfdrbCqo5zwdNWBcsAHVhIESrX_8Cc2csN35uF03Ky7t-VPihl7oDuA7psjX0YPO2xiHuvY-OtjMcKpsYX-Kvxea_Wxu-0muFfha8Az5-W46AY0TvRtmnqaP3crN8YGr94LHg8_4Frqt0sR4_k8kIAERrT_ARLTlizpBi_zk64TeEQORNBUkGcwbCfL6bQbWobOUsj9jwHtqji9wVKtAZI9zMt2eMK4LWLFN-IPDzOPKPsDavlMOxHQ-WlICBbG4OVPH4bxgXVTtA.jpg" width="400"><br>
+
+مایک والتز، سفیر ایالات متحده در سازمان ملل، اعلام کرد که دونالد ترامپ، رئیس‌جمهور آمریکا، حملات علیه ایران را به‌طور موقت متوقف کرده تا فرصت بیشتری برای پیشبرد دیپلماسی فراهم شود.
+والتز روز یکشنبه در گفت‌وگو با شبکه فاکس نیوز گفت: «او دارد به مذاکرات فرصت می‌دهد؛ کمی فضا برای پیش رفتن گفت‌وگوها فراهم کرده است.»
+سخنگوی ارتش جمهوری اسلامی نیز گفته که در پی توقف حملات آمریکا، ایران نیز حمله به متحدان واشینگتن در خاورمیانه را متوقف کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77508)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-26 17:00:28
+
+<img src="https://cdn4.telesco.pe/file/OEyKao7SQkfTeSGEFu2oyUds-gJli5dbSoX2C4xF4fjg83kqD0I-DELdJXpNmtbcx-MO4KMfsKQ5xm0fvfY_zoipkufUvA_Okfr0Y-krjuV-NPAPB24pRse-V726Ovo3KAKHoe_U6eKzz2BId3o497fnnnKDDHAAcQ8tYpse7K54HRsQpbn9zd_OQBxPe8GJcVEk91glP3RCq2WbEUlWjJKxH3GoNMYWcvCZ3VG935mXINUAvpaGWuVZCMfDgUKXAhGB0ROgIy9qk5g4hTjMRwpkE2a_g4E0FAWsfidkUBeL5Su5r9xBF9gwsJLXEXb5heOnugCd4L3kJ9dKKWw_Vg.jpg" width="400"><br>
+
+خبرگزاری تسنیم، نزدیک به سپاه پاسداران، روز یکشنبه مدعی شد که یک نفتکش در تنگه هرمز پس از برخورد با یک مین دریایی منفجر شده است.
+بنابر گزارش تسنیم، این نفتکش پس از خروج از مسیر دریانوردی مشخص‌شده از سوی ایران در این آبراه راهبردی، با مین دریایی برخورد کرده است.
+بر اساس بند پنجم تفاهم‌نامه اسلام‌آباد که اواخر خرداد بین ایران و آمریکا برای تمدید آتش‌بس امضا شد، ایران متعهد شده بود طی ۳۰ روز در تنگه هرمز مین‌روبی کند تا تردد کشتی‌ها آزاد شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77507)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-26 16:59:36
+
+<img src="https://cdn1.telesco.pe/file/bw1boaHOvqKqcpTF9pkYj8S-rawNuwel6rhZIr9LcykaIHn-LIVQ-szUW-wnq5V2H_gY7poV2qRnR1B7QrgZD6DLB-zgn1RUDaLNTVrFI_h2-cQk0CkyzNn88NR8j9chRpP9TGhaJneoeJljuL8UfpP3nya0Yvk0UMHnb6xmHcSrEKjTN959EhaW6KJzfVdlhl75PwlUdvedNrs6lR-YRpd2lBFBFhslPK3Mwr_-rBpuvZli4t8O9z-b15d34AggpbeAyOIH13eNVa3zTEh_xPmiEm8hCwC64JnQGznH6hBCa_oHxyGBBRa2Gm2pGuFUBVX88gi5YOXO9XqZs92Fhw.jpg" width="400"><br>
+
+شبکه خبری العربیه، روز یکشنبه چهارم مرداد ماه گزارش کرد ایالات متحده آمریکا و جمهوری اسلامی ایران پاسخ‌ خود به پیشنهاد مشترک پاکستان و قطر را که با هدف ازسرگیری مذاکرات میان دو کشور ارائه شده بود، تحویل دادند.
+بر اساس این گزارش، منابع آگاه در گفتگو با العربیه تایید کرده‌اند که کشورهای قطر، مصر، پاکستان و دیگر میانجی‌گران منطقه‌ای طرح جدیدی برای برقراری یک آتش‌بس ۱۰ روزه به واشنگتن و تهران ارائه داده‌اند. این طرح با هدف ایجاد فضای مناسب جهت حل بحران در تنگه هرمز و احیای توافقات پیشین تنظیم شده است.
+العربیه نوشت، این پیشنهاد دو شرط اصلی برای بازگرداندن دو طرف به مسیر گفتگو دارد که شامل توقف فوری اقدامات خصمانه و بازگشایی کامل و ایمن تنگه هرمز به روی رفت‌وآمد کشتیرانی بین‌المللی است.
+بر اساس جزئیات این طرح، مقرر شده است که مسیر جنوبی دریانوردی از طریق آب‌های عمان از حملات نیروهای مسلح جمهوری اسلامی در امان بماند و مسیر شمالی از طریق آب‌های ایران نیز از محاصره دریایی آمریکا خارج شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77506)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-26 16:57:43
+
+<img src="https://cdn1.telesco.pe/file/JtovlGTAuvNTsP3OwLEnxdEissCKsMYLyJPosgCcuLuU8YsUCsB5fBMJTg7-ClGql6HpOQeDQNHBT4OeuOEzAun6yVnDW1zp7Mc4xGtPAUVivmFoKl2yY1WVhJPIJPxp8tagHR5c-DpkJsPvDVV8R4flVk74dhk8qy_silXjPZXL5aHMUYPtvOA_Stmk9hKBxBSL4R6Hterm8bNugOlNVYL2Fh4GYjePEi06w_YUlZqbUoy85bpR2Qj3ERl9zw-yIEE23-hwcTPJ_URv8HBbkmyPQq_5KtEL5lNVXQJrWnOZO5BWP5M2TEiAIuRbTjXcXEMXcVWGG9ifIdUW8SC7eA.jpg" width="400"><br>
+
+شایان اویس‌قَرَن، پژوهشگر ایرانی علوم رایانه و استاد دانشگاه واشینگتن، مدال آباکوس سال ۲۰۲۶ اتحادیه بین‌المللی ریاضیات را دریافت کرده است؛ جایزه‌ای که به دستاوردهای برجسته پژوهشگران جوان در بخش‌های ریاضی علوم رایانه تعلق می‌گیرد.
+کمیته این جایزه می‌گوید اویس‌قرن با وارد کردن ابزارهایی از شاخه‌هایی چون هندسه چندجمله‌ای‌ها، نظریه احتمال و نظریه طیفی گراف‌ها، شیوه تحلیل الگوریتم‌ها را گسترش داده و برای حل چند مسئله قدیمی علوم رایانه راه‌های تازه‌ای گشوده است.
+پژوهش‌های او به‌ویژه در دو زمینه مورد توجه قرار گرفته‌اند: یافتن مسیرهای نزدیک به بهینه و نمونه‌گیری تصادفی از مجموعه‌های بسیار بزرگ و پیچیده.
+مدال آباکوس هر چهار سال یک‌بار اهدا می‌شود و ادامه جایزه‌ای است که تا سال ۲۰۱۸ به نام رولف نوانلینا شناخته می‌شد. نامزد دریافت آن باید در آغاز سال برگزاری کنگره جهانی ریاضی‌دانان هنوز به ۴۰ سالگی نرسیده باشد. این جایزه از مهم‌ترین افتخارات بین‌المللی در علوم رایانه نظری به شمار می‌رود.
+اما اهمیت کار اویس‌قرن تنها با فهرست کردن اصطلاح‌های تخصصی روشن نمی‌شود. بخش مهمی از مسیر علمی او به یکی از مشهورترین پرسش‌های علوم رایانه بازمی‌گردد: چگونه می‌توان کوتاه‌ترین مسیر ممکن را برای سفر میان چندین شهر پیدا کرد و در پایان به نقطه آغاز بازگشت؟
+این پرسش که «مسئله فروشنده دوره‌گرد» نام دارد، در ظاهر ساده است. یک فروشنده، راننده یا مأمور توزیع باید از چند شهر یا مقصد عبور کند، هر کدام را یک بار ببیند و به نقطه نخست بازگردد. با افزایش شمار مقصدها، تعداد مسیرهای ممکن چنان سریع زیاد می‌شود که بررسی همه آنها عملاً ممکن نیست.
+در چنین مواردی، پژوهشگران به جای یافتن پاسخ دقیق، الگوریتمی می‌خواهند که در مدت معقول مسیری نزدیک به بهترین مسیر را پیدا کند و بتوان تضمین کرد که نتیجه آن از حد معینی بدتر نخواهد بود.
+...
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77505)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-26 16:54:06
+
+<img src="https://cdn4.telesco.pe/file/cPJAq--8Fe-FRJbDeKuJEgN_lmziE_1JHCWpQf901nYjBLB6sqonYC9pkPgaU43FMQ8dV_AfaPxe90zlXF5A-UNPBtD0PpwFn_w3pO3B8sjM5B7Xvjh46DUpCISrtr2DOAJo88Od751kG76PtCSOBtPDqaeb-eQFqoj-oBT5_pwOj0rfc42lcGUr4em8cY7YqOe--Z0GlqH0loJEIhySGn6lUnCOGjYD7FsSH2qE3QmKZTDRWd1T1bYaOzMus92vv7GxY7a94yMeFn-hLLbA_RZWqj-TtXv3wZFMviUBIBQW8Y0SE5gMuOz-u5Ik8ErpNiPkZOeXlP8UfeQ93wf6og.jpg" width="400"><br>
+
+کاخ سفید
+گزارش نیویورک‌تایمز
+درباره کنارگذاشتن طرح تشدید عملیات نظامی علیه جمهوری اسلامی را رد کرد.
+استیون چانگ، مدیر ارتباطات کاخ سفید گفت دونالد ترامپ، رئیس‌جمهوری آمریکا، همواره گفته است راه‌حل دیپلماتیک را ترجیح می‌دهد، اما اگر جمهوری اسلامی به اقدامات تروریستی در تنگه هرمز یا علیه متحدان ادامه دهد، همه گزینه‌ها را حفظ می‌کند.
+چانگ افزود پس از تحریم‌هایی که اقتصاد جمهوری اسلامی را فلج کرده و سیزده روز پیاپی حمله به اهداف نظامی، عاقلانه است که این حکومت به سمت توافق حرکت کند. او گفت در غیر این صورت، طرف مقابل می‌داند چه اتفاقی خواهد افتاد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77504)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-26 16:53:39
+
+<img src="https://cdn1.telesco.pe/file/dEcu-YqvXMJqG-MItDNUUBYnb_RIj1OKvU2g4uQCiFILJv3GGVLeRg3iYzitiq6dzUytI4tBW5ayQeF5YQCMr_Xm5iuA5krQcTG8riNsRzqQCsATC3AuuMNrzhHNxDynt0fXqa-o2OqHXVVnIU3Nz2ejweyYB5l_1w-Toy6Dcez1m1fcNqidcQcOoYYHlYyCzcwCNZ0b23Du7C4OpMTGktzLh9D-RBx9Q6xaor-9oM0aElt8osFMt9plk59nKNPM77eKqnbX1z0Bour-ie97cAwaj9lKH4bH5KL_GMpPHl8OUL_ng2qzkWlAYoakKupTxgzAu6Mt3yPEJf2hiKXRKw.jpg" width="400"><br>
+
+اسماعیل بقایی، سخنگوی وزارت امور خارجه ایران، روز یک‌شنبه چهارم مرداد بدون اشاره به جزئیات از «پیشرفت‌هایی» در مذاکرات و تبادل نظر تهران و مسقط خبر داد.
+این مقام جمهوری اسلامی پس از آن در این باره اظهار نظر کرده است که یک هیئت عمانی که برای گفت‌وگو درباره مدیریت تنگه هرمز به تهران آمده بود شنبه عصر ایران را ترک کرد.
+بقایی درباره این مذاکرات این طور توضیح داد: «روزهای جمعه و شنبه چند دور گفت‌وگو بین ایران و عمان در سطح معاونان وزرای امور خارجه در تهران برگزار شد که طی آن دو طرف در مورد اصول مشترک و سازوکارهای عملیاتی برای مدیریت تردد ایمن کشتیرانی در تنگه هرمز با رعایت حقوق حاکمیتی دو دولت ساحلی تبادل نظر کردند.»
+مقام وزارت خارجه در ادامه اضافه کرده است که «در حال حاضر تغییری در وضعیت تردد در تنگه ایجاد نشده است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77503)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-26 16:41:55
+
+<img src="https://cdn1.telesco.pe/file/iFFnYi-8FOW1hf86LJ5W8n0C-VVpMcTn2PrCvlxz8KB0oix2bGpNTHBBU9MhpoG8w7aSK_cT6SZeXtxmrt3HQfKwP_Z2N4NHfUCx9YXSlPBF8DOwKiE3-t4CisquWi1EH7VVGeQFnBhson2CEAmOTbRje2lvYxJ8EJEYYgtWGXyA6ARuagL_JTmktosVkHOQKyKo_09ji9elGTDzPZgjJsgTfTCUAxM-j2AgkF99cpICvBrbvYBDJyg1hrGA_0_uqyTUAPfsrUUCB0pncqeuM5DvYAKEIF_gZun8n8wVpfeEOorfIMkeST4cmiQ4_sP-telVeUMdKp7oBdoBaUqX2w.jpg" width="400"><br>
+
+مردی که سال گذشته دختر ۱۷ ساله خود به نام فاطمه سلطانی را مقابل آرایشگاه محل کارش در اسلامشهر با ضربات چاقو به
+#قتل
+رسانده بود، با حکم دادگاه کیفری تهران به هشت سال حبس و پرداخت دیه محکوم شد.
+در قوانین جمهوری اسلامی ایران، مقرراتی وجود دارد که پدرانی را که مرتکب قتل فرزند خود می‌شوند، از مجازات‌های سنگین معاف می‌کند.
+hra_news
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77502)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-26 06:47:28
@@ -214,7 +349,7 @@ BarakRavid
 
 ###### 🔵 Post time: 2026-07-25 18:13:25
 
-<img src="https://cdn4.telesco.pe/file/buOlArk00II_Y_iVGFWZNw20WloS3FLE2pf3nmLgJfnBCdwIGEBZCNKwBXlydJfZMKuOyGRwEt1FDbzAroAfI282suzPm3Ch9dCzKtVwJOQRX6YGRBIf69RlGUB2CI0JwknA6Z_1xz2jxk0LzVn0YlPDrjK__2aC-IZIF5FjO-truCbbr04Gs6KXEa7OZGiSK2BYKgwluX_-g1CWF7hQo8LvxxGYbvmZUwaRNmS3yXOIaDNs9N6tCueyEGnUV3Tb-SboQQ_UFGVXU0DRwVMoaQUXQM3zsma5qBSl__5HGIrxm-oRcyyIqpNm-B69RR5lZDck1thjUQ0uqnM0r_UpVA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/drgJsY5egZusU9gvqtL4prfedK1hNVgFJcZOVw-No9UGSjuZOdJMoltL-J3D_LW0osdo7VPkXy8560HcbjxehPrjat7jitpw1xGwH0m_lPnt5kD3c7SDG5VdtX3oCb0fDyDhuirlQNsuTN61T2GFNClOpF2X0NMg9Lb5xk5ehvv68opc1XUuNPuDvPvEYOgGmA4_aDaNgH1G20hg7zHVGFWq1e4mWs8KOGznphnJc2rCtmuW0GE2y3Oj65oXcHSNZ3WtkQHZ7oSehJbQZLUoCP4T7BfmVywtwUo5t5enNdeYwdoXbaQgK5r_W419FgCPlhK_2A3YNmNVcwpoCBaimQ.jpg" width="400"><br>
 
 ولودیمیر زلنسکی، رییس‌جمهور اوکراین، اعلام کرد نیروهای کشورش یک ناو جنگی روسیه و همچنین کشتی‌هایی را که به گفته او برای جابه‌جایی محموله‌های نظامی مرتبط با ایران به کار می‌رفتند، در دریای خزر مورد هدف قرار داده‌اند.
 زلنسکی روز شنبه، سوم مرداد، در پیامی در شبکه ایکس نوشت که اوکراین در حملات دوربرد شب گذشته در دریای خزر به نتایجی «بسیار خوب» رسیده است. به گفته او، در میان اهداف این عملیات، کشتی‌هایی نیز بوده‌اند که «با مشارکت ایران» برای انتقال محموله‌های نظامی استفاده می‌شدند. رییس‌جمهور اوکراین اطلاعات دقیق‌تری درباره هویت ناو جنگی یا کشتی‌های هدف قرارگرفته منتشر نکرد.
@@ -292,155 +427,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77489)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-25 02:27:38
-
-<img src="https://cdn1.telesco.pe/file/JOP7vst8COVSHgKYhP3bFikyhblrbu0s8F9ZO0MSeCo-3x-sL_zgwyhoTsLAKabyRj41w6a1kLevfNGAMc1N6pF_xcqnNa2Uxc9fbRmM8tQyEJg5SIkJvINF2Q1r-RjDOVRei6CzXY6LTDz-fQSHpjANxLRWWT9NKwhsYoT6d77N0xedz1b4EXCzazha9lwUubiq1lbRVgXRK8NnCBBghPo-0THNPa710TF6CKOgJKyeWxw6bzscZpLgWoaIXRjI48c5a-p_J4lWE_AepDGS7A1xQ2RHJlswgDmMcVV0DYBkefBIR0F4IFLhunfdLV1HGMoMvDWc9lF0hYRSbLmXew.jpg" width="400"><br>
-
-کریم خان، دادستان ارشد دیوان کیفری بین‌المللی، در پی تحقیقات دربارهٔ اتهام «سوءرفتار جنسی» از سمت خود تعلیق شد.
-نهاد ناظر بر دیوان کیفری بین‌المللی شامگاه دوشنبه ۱۸ خرداد ضمن اعلام این خبر افزود تصمیم به تعلیق کریم خان پس از آن اتخاذ شد که روند رسیدگی انضباطی به اتهام «سوءرفتار جنسی» در پروندهٔ او به مرحلهٔ نتیجه‌گیری رسید.
-کریم خان، وکیل برجسته بریتانیایی، بارها این اتهام‌ها را که نخستین‌بار در سال ۲۰۲۴ مطرح شد، رد کرده است.
-نهاد ناظر بر دیوان کیفری بین‌المللی می‌گوید کمیتهٔ اجرایی این نهاد رأی داده است پرونده خان به نشست ویژه کشورهای عضو ارجاع شود تا آن‌ها دربارهٔ آینده حرفه‌ای او تصمیم‌گیری کنند.
-کمیتهٔ متشکل از نمایندگان ۲۱ کشور عضو دیوان با اکثریت لازم به این نتیجه رسیده که خان در ارتباط با اتهام‌های سوءرفتار جنسی مرتکب «تخلف جدی» شده است.
-این اتهام‌ها از سوی زنی مطرح شده که در مقر دیوان در شهر لاهه برای خان کار می‌کرد.
-طرح این ادعاها در سال ۲۰۲۴ باعث آشفتگی و بحران در دورهٔ مدیریت او بر بخش دادستانی دیوان شد.
-تصمیم ارجاع پرونده به ۱۲۵ کشور عضو دیوان اقدامی بی‌سابقه در تاریخ این نهاد قضایی بین‌المللی محسوب می‌شود و می‌تواند در نهایت به رأی‌گیری دربارهٔ برکناری دادستان از سمتش منجر شود.
-نهاد حاکم بر دیوان در بیانیه‌ای تأکید کرد که تعلیق کریم خان «به معنای تعیین نتیجهٔ نهایی پرونده نیست».
-خان پیش‌تر نیز به‌طور موقت از مدیریت بخشی از دیوان که مسئول تحقیق و پیگرد افراد متهم به جنایات بین‌المللی است، کنار رفته بود.
-در این بیانیه آمده است که کمیتهٔ اجرایی تصمیم خود را بر اساس گزارش یک نهاد نظارتی سازمان ملل، نظر هیئتی از کارشناسان قضایی و همچنین لوایح کتبی ارائه‌شده از سوی خان و فرد شاکی اتخاذ کرده است.
-این رأی تازه‌ترین تحول در روندی است که نزدیک به دو سال دیوان کیفری بین‌المللی را درگیر کرده است.
-@
-VahidHeadline
-کریم خان ۵۶ ساله که به دنبال بازداشت بنیامین نتانیاهو، نخست وزیر اسرائيل بود، به سوءرفتار جنسی با یک دستیار زن متهم شده است.
-پیشتر آسوشیتدپرس در مجموعه‌ای از گزارش‌ها به اتهامات جنسی علیه کریم خان پرداخته بود، اتهاماتی که خان آن‌ها را رد کرده است.
-طبق اسنادی که آسوشیتدپرس دیده است، خان با دستیارش وارد رابطه جنسی شد و سپس تلاش کرد مانع پیگیری ادعاهای حقوقی او شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77488)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-25 01:55:41
-
-<img src="https://cdn1.telesco.pe/file/cxGE4bBlbs0SqLTIVHdZW_JNniv9CO2Gn0fj4LLbRzAAATb40qWai4NO5EtEjImqNjZKXHttEFzYf1XRVslA8Iq5EwoIVFcAzgrmYnmhIf-wCVaVJuQk-z_OHkT29PCVBO-iHMCZErfTOvMPo7r0xninE8Ihq9I23lGjuHs77FcGzkqoEibHnqY114QoVEtXexk8zPWwTH0bgj1v1GAIWYBNJSN2GAssHCfHR9iQu3C510oFtyhwPcTGC5hfrVbANQ9_KVmsYqnKSz5qEhMh7Pgvhzp1Uz6appwF-Gj7z_qItFayh5hQR0zNPUzp4t44GO4yaZDu--hUC6VPwYRYRA.jpg" width="400"><br>
-
-فرماندهی مشترک نیروهای ائتلاف، جمعه‌شب، با انتشار بیانیه‌ای اعلام کرد که در پاسخ به اقدامات «بزدلانه و شتاب‌زده» شبه‌نظامیان حوثی در هدف قرار دادن کشتی‌های تجاری در دریای سرخ، عملیات نظامی متناسبی را علیه اهداف نظامی مشروع این گروه در استان الحدیده اجرا کرده است.
-ترکی المالکی، سخنگوی رسمی ائتلاف، با تاکید بر اینکه عملیات پاسخ نظامی طبق قوانین بین‌المللی و با تحقق کامل اهداف عملیاتی به پایان رسیده، تصریح کرد: «بندر الحدیده هدف قرار نگرفته و تمامی بنادر یمن از جمله الحدیده، راس‌عیسی و الصلیف برای کشتیرانی، ورود کمک‌های غذایی و سوخت باز هستند.»
-او همچنین افزود عربستان سعودی همواره در کنار ملت و دولت یمن باقی خواهد ماند و هشدار داد که در صورت تداوم اقدامات خصمانه حوثی‌ها، فرماندهی ائتلاف برای حفاظت از کشتی‌ها و منافع ملی «بدون هیچ‌گونه اغماضی» مجددا دست به اقدام خواهد زد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77487)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-25 01:51:14
-
-<img src="https://cdn1.telesco.pe/file/plbCH9f31OkqyckbuluKDIq_OdMG10F8b1JVYXba4RCmX7yLOLMJvO5Ap2llLfJJ_p99cb19y_EcZGyN2lFjYIRloHhrfXJQef_pSyo2FVgk7owDX8FYfbYqzx_PcTXQIDMBypNo1qCBuE-SRGIoamGDMyaQzc-QfNQftTW-ePWjFJ-yF979j3R6rzjqRocSQkI20wKtBszP2m2Cro8_VtcJWc2WAssVF-hwrKGMyMHtM_Vgbr28ywcW7uaWmKd8N1DTpP_11JDj3JKZ7vZuEzwy-WlhDq5BT6jEQi1QF0G8hjLTxelR_B7U0w7V7-w1kjM1sD8yDJjusu32JmBXAQ.jpg" width="400"><br>
-
-ترجمه ماشین:
-اربیل، عراق (خبرگزاری آسوشیتدپرس) - ارتش آمریکا روز جمعه اعلام کرد که به یک کشتی تجاری دیگر که سعی در نقض محاصره بنادر ایران داشت، شلیک کرده است....
-...
-کاپیتان تیم هاوکینز، سخنگوی فرماندهی مرکزی ایالات متحده، به خبرگزاری آسوشیتدپرس گفت که نیروهای آمریکایی کشتی M/T Lavine را در خلیج عمان پس از آنکه کشتی حداقل چهار بار تلاش کرد از محاصره عبور کند، از کار انداختند.
-هاوکینز تأکید کرد که به خدمه کشتی هشدار داده شده بود و آنها از دستورات پیروی نکردند.
-سپس ارتش به موتورخانه آن شلیک کرد.
-این دومین کشتی تجاری است که از زمان اعمال مجدد محاصره توسط ارتش از کار افتاده است.
-فرماندهی مرکزی ایالات متحده اعلام کرد که 12 کشتی را نیز تغییر مسیر داده است.
-....
-apnews
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77486)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-25 01:09:58
-
-
-
-سخنرانی ترامپ، بخش‌هایی مربوط به ایران، ترجمه ماشین
-متن زیرنویس ویدیوی بالا
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه دوم مردادماه در کاخ سفید به خبرنگاران گفت به‌نظر او جمهوری اسلامی ایران در جریان مذاکرات با واشنگتن «هر روز جدی‌تر» می‌شود، هرچند تاکید کرد نتیجه این گفتگوها هنوز قطعی نیست.
-او با اشاره به اینکه مسیر مذاکره را ترجیح می‌دهد افزود: «دو راه وجود دارد؛ یکی را عاقلانه‌تر می‌دانم، اما راه دیگر احتمالا ساده‌تر است.»
-رئیس‌جمهوری آمریکا با اشاره به حضور مقام‌هایی چون جی‌دی ونس و مارکو روبیو در روند مذاکرات، گفت موضوع اصلی «پیچیده نیست» و تأکید کرد که ایران «نباید به سلاح هسته‌ای دست پیدا کند.»
-ترامپ همچنین مدعی شد در صورت شکست مذاکرات، آمریکا می‌تواند اقدامات خود را «به سطح بسیار بالاتری» برساند و افزود تهران در شرایطی قرار دارد که «عملاً مجبور به توافق» است.
-او در عین حال گفت عجله‌ای برای رسیدن به نتیجه ندارد و تأکید کرد که باید این روند «به‌درستی» پیش برود.
-@
-VahidOOnLine
-گفت که به سخنان شی جین‌پینگ، رئیس‌جمهوری چین، و ولادیمیر پوتین، رئیس‌جمهوری روسیه، مبنی بر ارائه نکردن کمک و فروش سلاح به ایران اعتماد دارد.
-این اظهارات در حالی مطرح شد که پیش‌تر پیت هگست، وزیر جنگ آمریکا، در نشست پرسش‌وپاسخ سنا گفته بود چین و روسیه در سطوح مختلف در حال «تسهیل» اقدامات جمهوری اسلامی هستند. با این حال، ترامپ به خبرنگاران اعلام کرد که رهبران هر دو کشور به او قول داده‌اند در این موضوع دخالتی نداشته باشند و افزود: «فکر می‌کنم به آن‌ها اعتماد دارم. آن‌ها نمی‌خواهند باعث ناامیدی من شوند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77485)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-25 01:08:50
-
-<img src="https://cdn1.telesco.pe/file/D4U9khUg0MZZJ4QrufnN7ewuYNLVGx1nXKcPjQx47c0zLNNucs2m46YU_UHpW5mgACEiCABjh_KM1JfwQhl-n0ideG4EITh4OJkmo4_82r_pVk4UCZAz8x3WNiGUJ3sxtGL341JZWUA4o3PkhK9wbHh4qqJjZqfjqFBzBqEYE1O0O-vKIGaWzJEIEeYqHp17N8sSqdJPZojwNrNx1-Ymhhp7zrudp4JIASyDaWaf5sdHWHDViSt7cyWBZ96doIKisR9xuutsECZEqdxAdTU3Q1KQtn7wNJYUIaizF2j_PmqN-a5DE-4ouApOSmDwXpLC4CEnx-odN48vxaQwAnSCTg.jpg" width="400"><br>
-
-اکبر عبدی، بازیگر سینما و تلویزیون روز جمعه دوم مرداد در ۶۶ سالگی درگذشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77484)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-24 21:00:18
-
-<img src="https://cdn1.telesco.pe/file/OOrJUYfmDCvcOpi-DFc55ClCm_UjRl2i_uZNsNU6_wy3_wxIVlJDWQje79Q_XhNCTfuBbA3mBBodiZpMyvaioA9klFLWPbP8HKGrCUBCY9-NEFNS3Ml0UuQeJ0eELZqPvutdssrzUSO0VGSdj9xc_47g_8-63pCWPRY9nqW_to_hDA4iArymT0PR75VpvuhHGFUbw78zKPij9y5Mstho7oVMoONzO2IqLuVAOlBww1Fh9EFtBX7AXLoxkY9jlvSR0-9zQp0Sz9QFGUfa9rfjdRL96uEvDgSDI5FxFy6DE6ChuqpmVF5-1Dn_-m04Z6gbN9OpsgIQpwr9TU8aP75gyg.jpg" width="400"><br>
-
-وزارت خزانه‌داری ایالات متحده روز جمعه دوم مرداد، از اعمال تحریم‌های جدید علیه ۹ شرکت و ۴ فرد مرتبط با بابک زنجانی به اتهام دور زدن تحریم‌ها خبر داد.
-بر اساس بیانیه دفتر کنترل دارایی‌های خارجی (OFAC)، این تحریم‌ها فعالیت‌های وابسته به هولدینگ «دات وان» (Dot One) زنجانی در ایران و چند شرکت پشتیبان صرافی‌های ارز دیجیتال او در ترکیه و امارات را هدف قرار داده است. خزانه‌داری آمریکا اعلام کرد که زنجانی با بهره‌گیری از سبد سرمایه‌گذاری متنوع شامل خدمات مالی، تجارت دارایی‌های دیجیتال، طلا و پروژه‌های زیرساختی، اقدام به پول‌شویی و انتقال مخفیانه وجوه برای ایران کرده است.
-@
-VahidOOnLine
-تبلیغاتی که در کانال‌های تلگرام نمایش داده میشن به خود تلگرام سفارش داده میشن و صاحبان کانال‌ها ازش بی‌خبر هستند.
-دیروز ده‌ها بار
-تصاویری
-رو دریافت کرده بودم که نشون می‌دادند مجرمان تازه‌ای حتی از آوتار خودم برای نمایش تبلیغ‌شون در اینجا سوءاستفاده کردند. ولی من امکان جلوگیری از نمایش اون رو هم ندارم.
-تبلیغات مجرمانه رو میشه با کلیک روی اون سه‌نقطه عمودی که زیر علامت ضربدر در گوشه کادر تبلیغ دیده میشه به خود تلگرام ریپورت کرد.
-فقط کانالی که تا سطح پنجاه Boost شده باشه می‌تونه نمایش تبلیغات رو متوقف کنه. چیزی
-نزدیک به غیرممکن
-.
-بوست‌های این کانال در
-سطح صفر
-هستند. حتی نمی‌تونم رنگ لینک‌های اینجا رو عوض کنم چه برسه به استفاده از ایموجی‌های اختصاصی.
-باید هزاران نفر با اکانت پرمیوم کانال رو Boost کنند که برسه به سطح یک و بعد هزاران نفر بیشتر از افراد قبلی دوباره کانال رو بوست کنند و....
-این رتبه‌بندی ربطی به تعداد دنبال‌کننده و میزان بازدیدکننده و آمارهای اینجوری نداره و فقط باید هر روز از بقیه التماس کنی که کانالت رو بوست کنند.
-یعنی حتی اگر به سطح یک هم برسم باز برمی‌گردم پایین چون باید هر روز بخواهی دوباره بوست کنند.
-با روحیه من سازگار نیست.
-خیلی زور بزنم، برای درخواست ریپورت سوءاستفاده تبلیغاتی از عکسم می‌نویسم: ریپورت هم میشه کرد.
-از این رو محکوم به سرنوشت مشخصی در این زمینه هستم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77482)
 
 ---
 
