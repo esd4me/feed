@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-26 18:26:58 </h5>
+<h5> 🟢 Updated at: 2026-07-26 19:29:51 </h5>
 </div>
 
 
@@ -325,7 +325,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-25 18:46:10
 
-<img src="https://cdn4.telesco.pe/file/aP-K3s2qC2ZmJ51F4fYfWxXDXdTCQAAwBjX5Gjf3tSVjzUzSxoxeM_rq7gL8Uqe-NZvYyaosnbJNcUYz6oFl3Sg7PaLhWID5QI_02TDqdEbPvq-oWnDjyL3RN8BYXPh_Ps4uCyghjuWSzjnV8nmtrFYma4TKQ-QttoKgV889tjJm5NHO3OOwwLo0au_kcJ56P-HGviprcxHDEIDN-0hdtptfshmsq2m_4SmfOHmNdUdXVVzfuoxUNaFxb-5BsnKCfttcsslLcF9PmghqkSwPVbsIvBjhvVpZWS2TU5a9jyZB0m5pDGNOuYpKGaGYT4E7wSJP9V4N4RvsjGfURC8hmw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/uURZZofmsBUC1T9yuPbA8lYVn6mxsQGP4EdtG67AWdpkl-Mbifzce-4cimk8jkuoefqHo_UBPg8iautA8YsTq-d6o6DjRrWneYtquSKkhOGW7jQL5LWX_7HL8JWrcJebHaF3INuSbYEyS7KDI_6mE6SpouJMm8cf2DucgfRr1asc4Grn1dRfGDlJy46PnvCoO3OWBglfaKGPwYE7wDePJPr4RD3t4ZOuxFv3_zZh9S8-CIiI8SJD0x0G6XztATgIfzp9vBP1jKfn4OmBX801GwDq8DnARVSUYg4E2h8LaD2gh-xcs6gyiwU679AwmD2nzigjNFEkr-V-xAKPMiqOKA.jpg" width="400"><br>
 
 وبسایت خبری وای‌نت گزارش داد مقام‌های اسرائیلی برآورد کرده بودند حمله گسترده آمریکا به ایران، که دونالد ترامپ، رییس‌جمهوری آمریکا، گفته بود در حال بررسی آن است، شب جمعه تا بامداد شنبه آغاز شود، اما با پایان روز جمعه به این نتیجه رسیدند که ترامپ فعلا حمله را متوقف کرده و فرصت دیگری به تهران داده است.
 بر اساس این گزارش، در پشت صحنه، قطر و عمان فشار قابل‌توجهی بر جمهوری اسلامی وارد کردند تا مواضع خود را نرم‌تر کند و از وقوع آنچه یک عملیات گسترده و تقریبا قطعی آمریکا به نظر می‌رسید، جلوگیری شود.
