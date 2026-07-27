@@ -3,8 +3,121 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-27 14:02:55 </h5>
+<h5> 🟢 Updated at: 2026-07-27 17:02:47 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-27 17:01:50
+
+<img src="https://cdn4.telesco.pe/file/pmnM8kfmTfBb6UWvsLlFhXwnDAVuvN5DdjGyQfmSZF3vVxdJgd1ANWEuJ93chZukp54Zn3T6LYnuKrYV0M-5tjg9V_2Z5vu6KGTqaCE6vFrdfi2aQMfBO1hQJjb_6VA55qj5lI1bi3B11DfUm7SZrSWon1abqxrXdEiDywEJeiawGaXIKiSJNfzq55Vlb1th45TFHOV88wFoXuSnhmWDMrx8H40dkh0MDVuP9s3gf3HHFE_YE6r0eZ1Ju7R4jV0fc8gzkGCudpqUTYINAtA5bY3p2KS0CKuCDvks6Nb9lq9ODuM6TzN1hn1JMBI-cyTKOtl5NMknNPF-3v6aQVaUBA.jpg" width="400"><br>
+
+«اسماعیل بقایی»، سخنگوی وزارت امور خارجه جمهوری اسلامی، دوشنبه ۵مرداد۱۴۰۵ در نشست هفتگی خود با خبرنگاران، گزارش‌ها درباره درخواست ایران برای مذاکره مستقیم با آمریکا را رد کرد و گفت: «درخواست مذاکرات مستقیم با آمریکا اصلا با ژن ما همخوانی ندارد.»
+او تاکید کرد که در حال حاضر هیچ مذاکره‌ای میان تهران و واشنگتن جریان ندارد و خبرهای مربوط به درخواست ایران برای مذاکره، «خبرسازی» طرف‌های مقابل است.
+بقایی با بیان اینکه جمهوری اسلامی هرگز از دیپلماسی برای صیانت از منافع ملی خود گریزان نبوده، گفت در شرایطی که آمریکا به گفته او همچنان به اقدامات «ایذایی و تجاوز» علیه ایران ادامه می‌دهد، تمرکز جمهوری اسلامی بر دفاع است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77533)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-27 16:55:03
+
+<img src="https://cdn4.telesco.pe/file/rpQPEWzpYnEQV6m9N6oDE6LNRYC2YaIdwEwcv4IV5avdzA4nZ-cT9Z29KWS9foBcxtTaA2bJlp6g9tvBypmF0omor2EL22uH9sSZW-3NLSPeuc6CHYpswnTv4NRvDdFmQmqpUr2d6DPesAx_XgeOTC80JWs6UhoSgdnpt4N-NJb8sCt9pgRI7Tst-h5c78hNMozHaCHNuYorud7nky5K6YSi5YBbiydihH8z1ZODIA7KQUjFoSWNpCQgK2RnNUWslewJLVw34I2mh7-Tblokm2PyP0nPWAqY8pwVpjKygAuFJD2drJ-nB65MCkvqAqr32dxCgLLKqh_TD5ESvZ9mYQ.jpg" width="400"><br>
+
+تلویزیون حکومتی ایران روز دوشنبه پنجم مرداد خبر داد که سپاه پاسداران در بامداد همین روز مانع عبور شش کشتی از تنگه هرمز به قصد خروج از خلیج فارس شده است.
+خبرگزاری صداوسیما در کانال تلگرام خود نوشت: «در ساعات اولیه بامداد امروز دوشنبه ۵ مردادماه، ۶ فروند کشتی متخلف با خاموش نمودن سامانه های ناوبری و موقعیت‌یاب خود... قصد عبور از مسیر غیرقانونی و نا ایمن جنوب تنگه هرمز را داشتند.»
+اشاره این خبر به بخش جنوبی تنگه هرمز نزدیک به سواحل کشور عمان است که اعلام کرده تابع قوانین بین‌المللی برای استفاده از آبراه‌هاست. ایران در مقابل اصرار دارد که کشتی‌ها باید از مسیری که سپاه تعیین می‌کند عبور و مرور کنند.
+خبرگزاری صداوسیما همچنین نوشته است که یکی از این شش کشتی‌ «دچار حادثه شده» است، اما تاکنون هیچ منبع دیگری این خبر را تأیید نکرده است.
+روز یک‌شنبه هم خبرگزاری تسنیم، نزدیک به سپاه پاسداران، مدعی شده بود که یک نفتکش در تنگه هرمز پس از برخورد با یک مین دریایی منفجر شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77532)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-27 16:54:19
+
+<img src="https://cdn4.telesco.pe/file/jxftTUR3V4e8td0Ryo_btWTHbMtNJcugvY231SQvq7T2HgO6qz_MUHfRD34tPH9jLVIHF_MHpacbNL5dXcaQcc8Ju4SOB0Yp2_bz9R1Kp8SDyN1vKQKhxHgrcjNzLYiYzHBZZRObX2imZT5jftCezagNeik1UjhXols2f2L-b-y3Iclf3enRUNC-DotvTEmgqCZHseLHp31f2iOZrKpqup67IgzGBnF-NMOJtGIbtwm6m1399GCJu_7JhUw1PSC7DsGZTz1h7Q5nxm0ZMd_UhX8SRtsgMXp-HRwRYjLl0pGCXWjBlI50t-hB6iwdhMeQSbSxCbCe5dMkqHpI4MxTuQ.jpg" width="400"><br>
+
+وب‌سایت امتداد گزارش داد حکم محکومیت پژمان جمشیدی به تحمل ۹۹ ضربه شلاق به اتهام «رابطه نامشروع» پس از رسیدگی در دیوان عالی کشور به طور قطعی تایید شده است.
+الهه محمدی، خبرنگار امتداد، به نقل از ملیکا پارسا دوست، شاکی این پرونده، نوشت شعبه نهم دادگاه کیفری یک تهران این حکم را صادر کرده و پس از اعتراض و فرجام‌خواهی، شعبه ۲۹ دیوان عالی کشور نیز رای صادره را عینا تایید کرده است.
+ملیکا پارسادوست با اشاره به قطعی شدن این حکم گفت صدور رای نهایی نشان می‌دهد «فضاسازی‌های دروغین» درباره این پرونده، پایه و اساسی نداشته است.
+او همچنین تاکید کرد اجازه نخواهد داد آنچه بر او گذشته با روایت‌های دیگر بازتعریف شود و گفت از ابتدا این اتفاق را «خشونت جنسی» توصیف کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77531)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-27 16:45:26
+
+<img src="https://cdn4.telesco.pe/file/CMyT1UwBD7omhpcKNB1jUpVrcx7RcUHOkmesw-hG7NUZ53xEL373WwTdVKKXZdZyjuW-pDfZw9J55r-GcFsGdosmxCE1CYnAf8PNL_xBZAnAqLntPp5ATlaaN2TjXr7w8I1LSkE7qi_X95CYW9mm9b0NlEyp851omcQ6j3NIV1wt43yHBySLzHi19cPBjy3B1Nwse4JbPTCEeth4lV5S6QoFJx6R6McNYy8pNwllHO8wOXp78SE_8uH_WiiPFNvANSAkbMDyRrYdYkUPRePy-Ky2uKr7AgpkzTG-HVPnaZB4tXDqli-UrbC7VarWtiPfQBCCD2v6fmP0CK76BNKfnA.jpg" width="400"><br>
+
+براساس گزارش خبرگزاری «رویترز»، همزمان با ادامه وقفه در درگیری‌های مستقیم میان ایران و آمریکا، بازارهای جهانی روز دوشنبه با «کاهش قیمت نفت»، «افت ارزش دلار» و «رشد محتاطانه بازارهای سهام» واکنش نشان دادند؛ در حالی که داده‌های حمل‌ونقل دریایی از ادامه اختلال در مسیرهای کشتیرانی منطقه حکایت دارد.
+بهای نفت خام برنت بیش از چهار درصد کاهش یافت و به حدود ۹۲ دلار در هر بشکه رسید. نفت خام وست تگزاس اینترمدیت آمریکا نیز بیش از پنج درصد افت کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77530)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-27 16:41:58
+
+<img src="https://cdn1.telesco.pe/file/HtzlpP369ELuEHr3SNl_0aI8bCAL4L65SN3HZONA0UEYJy_-Nl-HHdO7Fwsp_GDnGM-Ppr4lncT4KN2vIDzfCNJcCOw1GTUoC3B5u_ImBX7r921MK6zkWknzfkz0E7jczuW8GeAKcHyxq7gN41HjL_twVdTR9VETWOL-o8ReSWf2kHNhzcTzo2Mbt1JgcwzAo-8tpR9Gk9Z8Kp_B5vtwmeC5fMzTeh-B-9VlZ9T16LaChe-p8OjhiYJD83R5Lh86YIG460dQF_2dT3P56u4ZatSWq2QAiZYwCJEEEok_UNHy49LhLFELjYBBOng2l8GDycYOEkDQ6xjdZbCqn1nYSg.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در بیانیه‌ای که به روزنامه وال‌استریت جورنال فرستاده، گزارش‌ها درباره کاهش ذخایر مهمات این کشور را رد کرد و گفت ایالات متحده «بسیار بیشتر از هر کشور دیگری» مهمات در اختیار دارد و میزان آن نیز «بسیار فراتر» از نیازهایش است.
+بنابر گزارش‌های دو روز اخیر، ژنرال دن کین، رئیس ستاد مشترک نیروهای مسلح آمریکا، کاخ سفید را در جریان کاهش ذخایر موشک‌های رهگیر پدافند هوایی قرار داده است. این موضوع برای او نگران‌کننده است، هرچند معتقد است پایین بودن ذخایر مانع ازسرگیری عملیات رزمی گسترده علیه ایران نخواهد شد، اما خطرات آن را افزایش می‌دهد.
+چند مقام آمریکایی نیز به وال‌استریت جورنال گفتند دریاسالار برد کوپر، فرمانده سنتکام، معتقد است آمریکا می‌تواند با محدودیت ذخایر پاتریوت و دیگر رهگیرهای پدافند هوایی کنار بیاید، زیرا در صورت تأیید ترامپ، افزایش حملات آمریکا توان ایران برای شلیک شمار زیادی موشک را کاهش خواهد داد.
+کارولین لویت، سخنگوی کاخ سفید، و شان پارنل، سخنگوی ارشد پنتاگون، تأکید کرده‌اند ارتش آمریکا برای اجرای هر مأموریتی که ترامپ انتخاب کند، تمام امکانات لازم را در اختیار دارد.
+وزارت دفاع آمریکا شامگاه جمعه کارزار تازه خود در بمباران مواضع در ایران را پس از ۱۳ روز حملات هوایی شدید متوقف کرد و تا امروز، بامداد دوشنبه حمله‌ای از سوی آمریکا گزارش نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77529)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-27 16:34:54
+
+<img src="https://cdn4.telesco.pe/file/S2CdvtUsUq1DSwZHnEtM_zgjYZ8u37-nYZeKaQ2VRf1X_EU9zdNfcCnFWoWVVWgBqOameY7Dur6Zkb-3gewlo_FaODLsAuWg17HJrVoBIR0VnqoetN_tniAqmDGBitWIO3wGot8tJDx7cBKOHc0gFDFBFTk4A2MhCUyrRjSIde57-HHdkB-f5MtGg3mWVP0hHz0ih2guzMcz02AE_sc1Oh1ojDvhnkqwrS2v7fqaDml5S0Tu11y-9QQsDTA-ZkzVrC5iU5Ermb7IDyMwJJ3xD76JzBZvoEPGCWEdysypMYK_rbmVsjUXE_2BCrKb8QonOAlFqywR13A1t7yAKuRX4A.jpg" width="400"><br>
+
+خطر اجرای قریب‌الوقوع حکم اعدام دست‌کم دو نفر از محکومان پرونده اعتراضات دی‌ماه ۱۴۰۴ اصفهان افزایش یافته است.
+«علیرضا سپاهی» و «ابوالفضل سپاهی»، دو پسرعمو که در این پرونده به اعدام محکوم شده‌اند، برای «آخرین ملاقات با خانواده» آماده شده‌اند و احتمال اجرای حکم آن‌ها در صبح سه‌شنبه ۶مرداد۱۴۰۵ بسیار جدی است.
+همچنین به ایران‌وایر گفته شده است که «سمیه افشار»، مادر علیرضا سپاهی و مادر همسر ابوالفضل سپاهی، در همین پرونده به پنج سال حبس محکوم شده و هم‌اکنون دوران محکومیت خود را در زندان سپری می‌کند.
+اطلاعات موجود در حال حاضر تنها درباره وضعیت این دو محکوم تایید شده است. با این حال، از آنجا که چند متهم دیگر این پرونده نیز با حکم اعدام روبه‌رو هستند، این احتمال وجود دارد که افراد دیگری نیز برای آخرین ملاقات فراخوانده شده و در معرض اجرای حکم قرار گرفته باشند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77528)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-27 01:05:06
@@ -38,120 +151,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77514)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-26 21:50:57
-
-<img src="https://cdn4.telesco.pe/file/s_pm8z-w1khRiPd84w0r7Xm-qPsbeU3dAv11iybWhc_7mWP4fa8Mo5hBeqQ2_NrQJTgHzCn7Udgw1YxYL5VRHzw26Zuj1r7Fiqa2I0y7FlIoxT3Eea_y4OnSo7fiIETz6ur-uxkcQHleB_BggeclAx5Oql641XK3DiMSh8z0h5PR8Wxkm6alNizZnjF5D90QiGqRzABpa5_oHu3eSRYv3dq_mlXaGlGjKU33aTfNk25zl6RHdUJMrh1FWRCH5KBxOvWSbrWIP8cCoMbBLS8GVHg5PDKrSq8TIX9aoAPKn5PTUu-5JzTnx7qfZoA_SIk11hubfrXa2If7uXX7wQ9N0Q.jpg" width="400"><br>
-
-اکسیوس به نقل از منابع آگاه گزارش داد برد کوپر، فرمانده فرماندهی مرکزی ارتش آمریکا (سنتکام)، به دولت دونالد ترامپ توصیه کرده است کارزار بمباران در اطراف تنگه هرمز متوقف شود، زیرا به اعتقاد او این عملیات به سقف اثربخشی خود رسیده است.
-به گفته این منابع، کوپر ارزیابی کرده است حملات دو هفته گذشته توانایی جمهوری اسلامی برای هدف قرار دادن کشتی‌ها در منطقه تنگه هرمز را به میزان قابل توجهی کاهش داده و بیشتر اهداف تعیین‌شده برای حملات هوایی نیز از بین رفته‌اند.
-منابع آگاه افزودند کوپر به مقام‌های آمریکایی گفته است در صورت تصمیم برای از سرگیری عملیات گسترده نظامی، آمریکا می‌تواند ۲۰ درصد از اهدافی را که در عملیات «خشم حماسی» هدف قرار نگرفتند، مورد حمله قرار دهد. با این حال، او تاکید کرده است اگر تصمیمی برای بازگشت به عملیات گسترده گرفته نشود، ادامه کارزار بمباران دو هفته گذشته توجیهی نخواهد داشت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77511)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-26 19:57:07
-
-<img src="https://cdn4.telesco.pe/file/opWiAgFA37eqJe8YJyMJY2CgI-Rxz2r0-9aqcJXWd9unmKLGzH7U5pccWbizQvsZkHIBHQsuwYY-aJM4KHs3yhq8t2Ytr5rDua6lRFvzsIDaMre40TqWSOJqpFD8-dKAG6xHlXNjDPr7HbYoOJAbrtSdDq_lrYRvfxkcyrWQNQHfR-w-MCe9hl-c6QzWDKCA7k5bzueate0OYGP6dF5nMe1YDd-bwyfeRov_g7OkZXraEFN3y3cuwml4yrcdTcrkB_0hXUjdHLeYgjWSS0F09T9G433iIDnE46aG_ct9fwPANYMDySWjdOtz6YKs5C7NTw-24wY_hMM_Af1PUYNqcw.jpg" width="400"><br>
-
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران با انتشار پیامی در شبکه اجتماعی اکس، حمله اوکراین به یک شناور «تجاری» ایرانی در دریای خزر را «نقض آشکار منشور سازمان ملل متحد» خواند و اعلام کرد این اقدام «نمی‌تواند بی‌پاسخ بماند.»
-عراقچی در این پیام نوشت که ولودیمیر زلنسکی، رئیس‌جمهوری اوکراین، با حمله به یک کشتی «تجاری» ایران که به کشته شدن یک ملوان ایرانی انجامید، به گفته او «به خواست اسرائیل» تلاش کرده است اروپا را وارد جنگ کند. وزیر خارجه اسلامی افزود که در گفتگوهای تلفنی خود با کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا و سرگئی لاوروف، وزیر خارجه روسیه، تاکید کرده است که این اقدام نباید بدون پاسخ باقی بماند.
-ولودیمیر زلنسکی پیش‌تر اعلام کرده بود که نیروهای اوکراینی در عملیات‌های دوربرد در دریای خزر، کشتی‌هایی را هدف قرار داده‌اند که به گفته او برای انتقال محموله‌های نظامی مرتبط با ایران مورد استفاده قرار می‌گرفتند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77510)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-26 19:56:17
-
-<img src="https://cdn4.telesco.pe/file/iWOnm0fw0pPilaJD_ps0LwmixbTegm2JtSVhA93evQ5mMP15P88U7LrVGxAQiCIBvseqLMqkR7AKkq9GXCn-DHNFvgWW6UPxC1dbyzRa1OPcPsbaGb-zRo2lNEb6frxh3LGXqvd8AEX9ee0dCERP-uvs5YF0muLz0pUn8xi6L3ACVXoTAtqSDBvvO4dMSJSI2mPaurct5-iPSZmqqiUZl9GbA018Us9o4atpSPJtqfl5SRJCcGRnod9YCThocM0WyQCiR3jsx9XuZxGWg0eyitiqC_1PdkbWY3utbjCC5xWZuTmEHrwTjgckbueCvrC-glKtVgq7rrpWah_iEh9JyA.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست‌وزیر اسراییل، گفت درگیری با ایران زمانی پایان خواهد یافت که حکومت جمهوری اسلامی سقوط کند یا آن‌قدر تضعیف شود که برنامه هسته‌ای خود را متوقف کند.
-او در گفت‌وگو با شبکه فاکس نیوز مدعی شد جمهوری اسلامی باید به این نتیجه برسد که ادامه ایجاد «آشوب اقتصادی در جهان، کشتن هزاران شهروند خود و حمله به دیگران» هزینه سنگینی دارد. نتانیاهو تاکید کرد که برنامه هسته‌ای ایران «چه با توافق و چه بدون توافق» باید پایان یابد.
-نخست‌وزیر اسراییل همچنین هشدار داد اگر ایران یا گروه‌های هم‌پیمانش به اسراییل حمله کنند، با پاسخی «بسیار قاطع» روبه‌رو خواهند شد و افزود تهران در صورت انجام چنین اقدامی «اشتباه بزرگی» مرتکب خواهد شد.
-نتانیاهو درباره سفر پیش روی خود به واشینگتن و دیدار با دونالد ترامپ، رییس‌جمهوری آمریکا، گفت قصد ندارد اطلاعات تازه‌ای ارایه کند، زیرا به گفته او، همکاری اطلاعاتی میان دو کشور بسیار نزدیک است. او افزود مشتاق است دیدگاه ترامپ را درباره آینده درگیری با ایران بشنود و گفت: «در بسیاری از جنبه‌ها، این تصمیم اوست.»
-او همچنین اعلام کرد که «قطعا» برای شرکت در نشست مجمع عمومی سازمان ملل در ماه سپتامبر به نیویورک خواهد رفت و گفت قصد دارد از تریبون این سازمان درباره اسراییل و ایتلاف اسراییل و آمریکا سخنرانی کند.
-نتانیاهو در ادامه از زهران ممدانی، شهردار نیویورک، انتقاد کرد و او را به دامن زدن به نفرت علیه یهودیان و حمایت از حماس متهم کرد.
-او همچنین گفت از کاهش حمایت حزب دموکرات از اسراییل «بسیار نگران» است و مدعی شد شماری از چهره‌های اصلی این حزب تحت فشار فعالان سیاسی به مواضع جریان‌های ضد اسراییلی نزدیک شده‌اند.
-نخست‌وزیر اسراییل در بخش دیگری از سخنانش از موضع دونالد ترامپ درباره عربستان سعودی حمایت کرد و گفت ترامپ به درستی تاکید کرده که در صورت عادی‌سازی روابط ریاض با اسراییل، تنها باید با یک برنامه هسته‌ای «غیرنظامی» برای عربستان موافقت شود. او افزود آخرین چیزی که اسراییل و آمریکا خواهان آن هستند، شکل‌گیری یک برنامه هسته‌ای نظامی در عربستان سعودی است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77509)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-26 17:46:25
-
-<img src="https://cdn4.telesco.pe/file/k1x12IRZqMGr3nkrww-AVGPKH5mVyscrMUmJrRg8gNm8cByh0nZzCgot6j4tXtpc6-A3VsQZdWfdrbCqo5zwdNWBcsAHVhIESrX_8Cc2csN35uF03Ky7t-VPihl7oDuA7psjX0YPO2xiHuvY-OtjMcKpsYX-Kvxea_Wxu-0muFfha8Az5-W46AY0TvRtmnqaP3crN8YGr94LHg8_4Frqt0sR4_k8kIAERrT_ARLTlizpBi_zk64TeEQORNBUkGcwbCfL6bQbWobOUsj9jwHtqji9wVKtAZI9zMt2eMK4LWLFN-IPDzOPKPsDavlMOxHQ-WlICBbG4OVPH4bxgXVTtA.jpg" width="400"><br>
-
-مایک والتز، سفیر ایالات متحده در سازمان ملل، اعلام کرد که دونالد ترامپ، رئیس‌جمهور آمریکا، حملات علیه ایران را به‌طور موقت متوقف کرده تا فرصت بیشتری برای پیشبرد دیپلماسی فراهم شود.
-والتز روز یکشنبه در گفت‌وگو با شبکه فاکس نیوز گفت: «او دارد به مذاکرات فرصت می‌دهد؛ کمی فضا برای پیش رفتن گفت‌وگوها فراهم کرده است.»
-سخنگوی ارتش جمهوری اسلامی نیز گفته که در پی توقف حملات آمریکا، ایران نیز حمله به متحدان واشینگتن در خاورمیانه را متوقف کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77508)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-26 17:00:28
-
-<img src="https://cdn4.telesco.pe/file/OEyKao7SQkfTeSGEFu2oyUds-gJli5dbSoX2C4xF4fjg83kqD0I-DELdJXpNmtbcx-MO4KMfsKQ5xm0fvfY_zoipkufUvA_Okfr0Y-krjuV-NPAPB24pRse-V726Ovo3KAKHoe_U6eKzz2BId3o497fnnnKDDHAAcQ8tYpse7K54HRsQpbn9zd_OQBxPe8GJcVEk91glP3RCq2WbEUlWjJKxH3GoNMYWcvCZ3VG935mXINUAvpaGWuVZCMfDgUKXAhGB0ROgIy9qk5g4hTjMRwpkE2a_g4E0FAWsfidkUBeL5Su5r9xBF9gwsJLXEXb5heOnugCd4L3kJ9dKKWw_Vg.jpg" width="400"><br>
-
-خبرگزاری تسنیم، نزدیک به سپاه پاسداران، روز یکشنبه مدعی شد که یک نفتکش در تنگه هرمز پس از برخورد با یک مین دریایی منفجر شده است.
-بنابر گزارش تسنیم، این نفتکش پس از خروج از مسیر دریانوردی مشخص‌شده از سوی ایران در این آبراه راهبردی، با مین دریایی برخورد کرده است.
-بر اساس بند پنجم تفاهم‌نامه اسلام‌آباد که اواخر خرداد بین ایران و آمریکا برای تمدید آتش‌بس امضا شد، ایران متعهد شده بود طی ۳۰ روز در تنگه هرمز مین‌روبی کند تا تردد کشتی‌ها آزاد شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77507)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-26 16:59:36
-
-<img src="https://cdn1.telesco.pe/file/bw1boaHOvqKqcpTF9pkYj8S-rawNuwel6rhZIr9LcykaIHn-LIVQ-szUW-wnq5V2H_gY7poV2qRnR1B7QrgZD6DLB-zgn1RUDaLNTVrFI_h2-cQk0CkyzNn88NR8j9chRpP9TGhaJneoeJljuL8UfpP3nya0Yvk0UMHnb6xmHcSrEKjTN959EhaW6KJzfVdlhl75PwlUdvedNrs6lR-YRpd2lBFBFhslPK3Mwr_-rBpuvZli4t8O9z-b15d34AggpbeAyOIH13eNVa3zTEh_xPmiEm8hCwC64JnQGznH6hBCa_oHxyGBBRa2Gm2pGuFUBVX88gi5YOXO9XqZs92Fhw.jpg" width="400"><br>
-
-شبکه خبری العربیه، روز یکشنبه چهارم مرداد ماه گزارش کرد ایالات متحده آمریکا و جمهوری اسلامی ایران پاسخ‌ خود به پیشنهاد مشترک پاکستان و قطر را که با هدف ازسرگیری مذاکرات میان دو کشور ارائه شده بود، تحویل دادند.
-بر اساس این گزارش، منابع آگاه در گفتگو با العربیه تایید کرده‌اند که کشورهای قطر، مصر، پاکستان و دیگر میانجی‌گران منطقه‌ای طرح جدیدی برای برقراری یک آتش‌بس ۱۰ روزه به واشنگتن و تهران ارائه داده‌اند. این طرح با هدف ایجاد فضای مناسب جهت حل بحران در تنگه هرمز و احیای توافقات پیشین تنظیم شده است.
-العربیه نوشت، این پیشنهاد دو شرط اصلی برای بازگرداندن دو طرف به مسیر گفتگو دارد که شامل توقف فوری اقدامات خصمانه و بازگشایی کامل و ایمن تنگه هرمز به روی رفت‌وآمد کشتیرانی بین‌المللی است.
-بر اساس جزئیات این طرح، مقرر شده است که مسیر جنوبی دریانوردی از طریق آب‌های عمان از حملات نیروهای مسلح جمهوری اسلامی در امان بماند و مسیر شمالی از طریق آب‌های ایران نیز از محاصره دریایی آمریکا خارج شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77506)
 
 ---
 
