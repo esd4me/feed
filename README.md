@@ -3,8 +3,28 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-28 05:15:27 </h5>
+<h5> 🟢 Updated at: 2026-07-28 08:25:54 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-28 05:16:07
+
+<img src="https://cdn1.telesco.pe/file/cIq8k6MicziPrhMT6UJvBBvxVF5V80rvfggsFba8HuIG4VYByU4RgPAi1SqCt1jd6O6HcAWnB_qnl0sPiDtpNdVZ3ivl27hy5FSlE2CJzeSeIlKLcU2OcLZLLZ3Jqfc88dCMckgXtBW0Feqe0pvTEYY2WSqh53WpQw_QqoroEEMfFRva80MI8KFdGH00gUf9mxP3kUwf8xpqcFAy7GT3aZOu_PFnJG8FDJwrZVVTBKRlcJGKRdCMQ2VvWny2qwoGLLDdvKOZ4SHTP02zibpo5ghzEiNvNxfKIfWlCd7jMClkZl73IuLYYP_mj9XqGU1vgcWVS8iqlEJ_GwvZtn2tPw.jpg" width="400"><br>
+
+منابع حکومتی بدون نام بردن از کسی نوشتند سه نفر از پرونده ملک شهر اصفهان اعدام شدند.
+آپدیت:
+بعدا ویرایش کردند نوشتند: دو نفر
+آپدیت:
+قوه قضاییه جمهوری اسلامی اعلام کرد بامداد سه‌شنبه حکم اعدام ابوالفضل سپاهی بادجانی و امیرحسین صفری حسین‌آبادی، دو معترض بازداشت شده در اعتراضات دی‌ماه در اصفهان، اجرا شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77559)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-28 05:11:30
@@ -13,7 +33,8 @@
 
 اخبار منتشر شده در شبکه‌های اجتماعی حاکی از آن است که خانواده‌های زندانیان سیاسی محکوم به اعدام و شهروندان در میدان علیخانی اصفهان تجمع کرده‌اند و گزارش‌هایی نیز از درگیری یگان ویژه جمهوری اسلامی با معترضان منتشر شده است
 این گزارش‌ها می‌گویند نیروهای یگان ویژه جمهوری اسلامی با موتور، خودروهای زرهی و سلاح‌های سنگین در محدوده محل اجرای اعدام مستقر شده‌اند و اینترنت در اصفهان دچار اختلال شده است.
-IranIntlbrk
+@
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -271,25 +292,6 @@ andrii_sybiha
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77540)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-27 17:10:27
-
-<img src="https://cdn4.telesco.pe/file/R5HFL5c-Uct-ugkiWspb5hqxeL8eOx1L-HQlWBxJfwbxupFZo3xkI1VyO-rHdST13LhGsp7ZA-30o4L3ed_9cl2IPepcx3NMx14J6Eryy999WGdEd9lzd6aKaJ2cvH1K_ILJ1OI1_1grnBiXrE6iMCNolnYBTXPlNthVTkTrN1hBFqmlOjFshfAswITLAxn-X_83v9b4xOMWlfmmbbbGhyQNu-yKa5qCtPBNGpdM76t-U9nofhSxox1eFJYE9JeFjl2xsO3to87auxr-CZUnXf83q9gqDKNb_9M1LcyMvcsgkblMsq81Pq1tJb1gRpjFXbGWIrPCpVQd1P775QPkzA.jpg" width="400"><br>
-
-وزارت دفاع عربستان سعودی روز دوشنبه اعلام کرد که سامانه‌های پدافند هوایی این کشور، پهپادهایی را که از عراق به‌سوی تأسیسات نفتی در استان شرقی عربستان و همچنین شهر ریاض پرتاب شده بودند، رهگیری و منهدم کرده‌اند.
-این وزارتخانه اعلام کرد که این پهپادها توسط گروه‌های شبه‌نظامی مورد حمایت ایران در عراق به پرواز درآمده بودند.
-وزارت امور خارجه عربستان نیز این حمله را محکوم کرد و بار دیگر بر حق این کشور برای پاسخ به منشأ «تجاوز» و بازدارندگی در برابر عاملان آن تأکید کرد.
-این وزارتخانه همچنین از دولت عراق خواست تمامی اقدامات لازم را برای جلوگیری از استفاده از خاک این کشور به‌عنوان سکوی پرتاب حملات علیه عربستان سعودی انجام دهد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77539)
 
 ---
 
