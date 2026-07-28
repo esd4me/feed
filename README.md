@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-28 02:31:34 </h5>
+<h5> 🟢 Updated at: 2026-07-28 05:15:27 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-28 05:11:30
+
+
+
+اخبار منتشر شده در شبکه‌های اجتماعی حاکی از آن است که خانواده‌های زندانیان سیاسی محکوم به اعدام و شهروندان در میدان علیخانی اصفهان تجمع کرده‌اند و گزارش‌هایی نیز از درگیری یگان ویژه جمهوری اسلامی با معترضان منتشر شده است
+این گزارش‌ها می‌گویند نیروهای یگان ویژه جمهوری اسلامی با موتور، خودروهای زرهی و سلاح‌های سنگین در محدوده محل اجرای اعدام مستقر شده‌اند و اینترنت در اصفهان دچار اختلال شده است.
+IranIntlbrk
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77552)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-28 02:11:10
@@ -274,132 +290,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77539)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-27 17:09:50
-
-<img src="https://cdn1.telesco.pe/file/UwCZvWhKDIuTeknagEVVSQmFNslHgZWofW5dACYIk4fK7RvzzJtkbcQuc-4qS7_W5-VYRCKIjpNs05yK6rOGh5hZuilXXejt5csA3I2p6ECSA82CGcSWi-0J2aQUTSxiI8NncpED5Uwfm4Kw3A4lsdcqYwzmGpAACs0yoafvbMdkEdphDNPeEPIstoqmK4flqlYJuec06dIwf0SdJ_A5XxaFKdLEXmdGdIzVIwbjxlnIGQZJKerU3sYtdW2FhvTRnDFEggQVuHEdq-oq7UOnB3B0t62z1E10ppYQ_sbs8i6IIoO0_WIr5d4_389U9n8Al8c5GhAMqbzVKPCIa7bh7w.jpg" width="400"><br>
-
-نیروهای مسلح اردن اعلام کردند که صبح دوشنبه دو پهپاد را رهگیری و سرنگون کرده‌اند.
-این بیانیه مشخص نکرده است که چه کسی این پهپادها را به پرواز درآورده است.
-کمی پیشتر، تایمز اسرائیل گزارش داد که ارتش این کشور دو پهپاد مشکوک را بر فراز مرز اردن رهگیری کرده است.
-در آن گزارش نیز درباره منشا شلیک این پهپادها و زمان دقیق رهگیری آنها توضیحی داده نشده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77538)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-27 17:05:54
-
-<img src="https://cdn4.telesco.pe/file/OOyLI1ervmMdNyAd2teH-VyfvcOmmec_Lha4604PXoPB2Ej6OP0q4xUzAdojNCESRDtpokglLxncPNryuntGzMnjAQzaAuOPx_YluGVFhomd57zvrlxgY_sNfk1U3un6MTUOGw858fPRi4HYz2Bq3a12TZ43GxHLIwhAF0YSsF8Kj2uGVTiHgAwfnNs_dk4S8D0M0agSrXNxpccb9ZMe8F9bHxCSr4D2aIQowg_oAfWjFuwO7HfaCH76vUowIq_mB5A0RMbe0_J34BDLB5MjYM1jO2TGTfKu1l90-GOKPS337_fpYY9gr7TVkDMk6tXm05ky8xj5doKA1OXezNV_Bg.jpg" width="400"><br>
-
-«احمد الشرع»، رییس‌جمهور سوریه، روز دوشنبه ۵مرداد۱۴۰۵ در گفت‌وگو با شبکه «الجزیره» اعلام کرد دمشق با مشارکت چند کشور در حال تلاش برای دستیابی به یک توافق امنیتی با اسراییل است.
-الشرع ابراز امیدواری کرده که چنین توافقی بتواند زمینه را برای دستیابی به «صلحی فراگیر» فراهم کند، بدون آنکه «حق سوریه بر بلندی‌های جولان» نادیده گرفته شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77537)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-27 17:05:10
-
-<img src="https://cdn4.telesco.pe/file/GZf3rskBzCB4OSC6PKorH4jWXj2KfW9S4Xn0e6wO0-bqlNyvVkROga1C_vlJQ_eLN6sJ9spZshQYvPDiFEzo0fdnwQs2tHlsBNsJQQhVWYqDZ5ExLZJA6DgkNsn-M1hqKzctIt0z4hpiXtVfCg_ubXXnG_WTwb2_9O6SK95Ue6f1xiruAKh67wpNuRrogD3wOqx1weESL40aGiwoUHzwUPpB14U9qOldJPCJwJaSrdJfO5Ss1VwKx5jRcWBZ7cE2gsFbf4befsLmYx78lOuXV4Fu-XMumbnE5nwgGTl0nmtQ2pc0JLGBQxngJGVsvfsGOMLAg0speTeVDPLt1YJDuQ.jpg" width="400"><br>
-
-نفتالی بنت، نخست‌وزیر پیشین اسرائیل، می‌گوید هرگاه دوباره به نخست‌وزیری برسد، «فورا» قطر را کشوری «متخاصم» اعلام خواهد کرد.
-آقای بنت در شبکه ایکس، دولت قطر را «خشن» و «سرطان یهودستیز» توصیف کرد که «شاخک‌هایش را در سرتاسر غرب و حتی در دفتر نخست‌وزیری اسرائیل دراز کرده است.»
-او همچنین مدعی شد که در دوران نخست‌وزیریش، اطلاعاتی را دیده است که نشان می‌دهد قطر به سپاه پاسداران کمک مالی می‌کرده است.
-این سیاستمدار راست افراطی که از چهره‌های اصلی اپوزیسیون اسرائیل است، قطر را متهم کرد به‌دنبال «نابودی» اسرائیل است.
-آقای بنت نوشت که قطر «کشور پیچیده‌ای نیست، میلیاردها دلار در یک شبکه نفوذ قدرتمند جهانی سرمایه‌گذاری کرده است که صدمه زیادی به اسرائیل وارد می‌کند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77536)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-27 17:04:52
-
-<img src="https://cdn4.telesco.pe/file/Iki6E22Zb9WwkN_9PEFsuqDP8jRRAnXd3g1_JiZW2wZWBLOER3TqVCqOEjOaFp1kNzrGhIk05IRIqQjbTRy9aNpqwSw7osRI9u-fICeR7VG4wut-Och2-mJ1Wq34ojVmBLXJDC-su8HyQAsF_9IczhOBYej2dt1WuY-kJQJAZ2R1OyNBj-w3nHmbm8vioZfLPGCxGgpuVBW9Z1j41NPEJ6tmkPUxNmFUlmRlYpPyyOxrelVMAAL_YZIkLpEGU7-BYzNRhy7A6V9UnPfzFhMEEoE4pegSJ9Tj5eOvrMpgU6OqWH-WbRJQP8SSDcg3dQ4ah-oQfiCUIKt0i9k-BNW17A.jpg" width="400"><br>
-
-وزیر دفاع بریتانیا گفت کشورش از اقدام تهاجمی در برابر جمهوری اسلامی حمایت نکرده و نخواهد کرد.
-وس استریتینگ در مصاحبه با شبکه اسکای‌نیوز افزود این موضع را در نخستین هفته کاری خود صریحاً به پیت هگست، همتای آمریکایی‌اش، گفته است.
-استریتینگ روز ۲۹ تیر و در جریان تشکیل کابینه اندی برنهام، نخست‌وزیر جدید بریتانیا، این سمت را بر عهده گرفت. او در همان هفته با هگست درباره امنیت دریایی در تنگه هرمز و تعهدات ناتو گفت‌وگو کرد.
-او گفت با وجود این، زمینه‌های فراوانی برای همکاری دو کشور از تأمین امنیت تنگه هرمز و جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای تا سرمایه‌گذاری در توان نظامی بریتانیا و ناتو وجود دارد.
-استریتینگ همچنین گفت اروپا روزی از دونالد ترامپ، رئیس‌جمهوری آمریکا، سپاسگزار خواهد بود که قاره را از رخوت بیرون کشید و متحدان ناتو را وادار کرد مسئولیت امنیت خود را بپذیرند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77535)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-27 17:04:21
-
-<img src="https://cdn1.telesco.pe/file/vPhUMRzA_uhkOuPD11Kii7nfzrnrUCG1gaXMKGVJO7hDG_u3oEJpsS7mKjSydLMuZbRYbWz5TbszK0iBzNGdbH6gFHnAbfO4xavnRQzZqvRMmBvfz6YYMei4nGvlmRIU5yzZsEhzsbUNoat9NzS5OlB9p7FqDbV6qrRyQkDFkpiJDD_8jeCPf6RnRYbD7z6143yzElHolXhXUuZbQ492NyncwY-u9WODY-QIE7b2VNLAkU9vHZXXDgxD5n_4KYfr5XH6rrR9XwnDR9fflOdf4isFoLRUWl4wZszDtoS2Laa8pdh1q2_8qjucvgFn0-RZ-UahK1D-drAvwObguXqkzg.jpg" width="400"><br>
-
-ولودیمیر زلنسکی، رییس‌جمهور اوکراین، اعلام کرد نیروهای کشورش یک ناو جنگی روسیه و همچنین کشتی‌هایی را که به گفته او برای جابه‌جایی محموله‌های نظامی مرتبط با ایران به کار می‌رفتند، در دریای خزر مورد هدف قرار داده‌اند.  زلنسکی روز شنبه، سوم مرداد، در پیامی در…
-
-[View Post](https://t.me/VahidOnline/77534)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-27 17:01:50
-
-<img src="https://cdn4.telesco.pe/file/pmnM8kfmTfBb6UWvsLlFhXwnDAVuvN5DdjGyQfmSZF3vVxdJgd1ANWEuJ93chZukp54Zn3T6LYnuKrYV0M-5tjg9V_2Z5vu6KGTqaCE6vFrdfi2aQMfBO1hQJjb_6VA55qj5lI1bi3B11DfUm7SZrSWon1abqxrXdEiDywEJeiawGaXIKiSJNfzq55Vlb1th45TFHOV88wFoXuSnhmWDMrx8H40dkh0MDVuP9s3gf3HHFE_YE6r0eZ1Ju7R4jV0fc8gzkGCudpqUTYINAtA5bY3p2KS0CKuCDvks6Nb9lq9ODuM6TzN1hn1JMBI-cyTKOtl5NMknNPF-3v6aQVaUBA.jpg" width="400"><br>
-
-«اسماعیل بقایی»، سخنگوی وزارت امور خارجه جمهوری اسلامی، دوشنبه ۵مرداد۱۴۰۵ در نشست هفتگی خود با خبرنگاران، گزارش‌ها درباره درخواست ایران برای مذاکره مستقیم با آمریکا را رد کرد و گفت: «درخواست مذاکرات مستقیم با آمریکا اصلا با ژن ما همخوانی ندارد.»
-او تاکید کرد که در حال حاضر هیچ مذاکره‌ای میان تهران و واشنگتن جریان ندارد و خبرهای مربوط به درخواست ایران برای مذاکره، «خبرسازی» طرف‌های مقابل است.
-بقایی با بیان اینکه جمهوری اسلامی هرگز از دیپلماسی برای صیانت از منافع ملی خود گریزان نبوده، گفت در شرایطی که آمریکا به گفته او همچنان به اقدامات «ایذایی و تجاوز» علیه ایران ادامه می‌دهد، تمرکز جمهوری اسلامی بر دفاع است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77533)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-27 16:55:03
-
-<img src="https://cdn4.telesco.pe/file/rpQPEWzpYnEQV6m9N6oDE6LNRYC2YaIdwEwcv4IV5avdzA4nZ-cT9Z29KWS9foBcxtTaA2bJlp6g9tvBypmF0omor2EL22uH9sSZW-3NLSPeuc6CHYpswnTv4NRvDdFmQmqpUr2d6DPesAx_XgeOTC80JWs6UhoSgdnpt4N-NJb8sCt9pgRI7Tst-h5c78hNMozHaCHNuYorud7nky5K6YSi5YBbiydihH8z1ZODIA7KQUjFoSWNpCQgK2RnNUWslewJLVw34I2mh7-Tblokm2PyP0nPWAqY8pwVpjKygAuFJD2drJ-nB65MCkvqAqr32dxCgLLKqh_TD5ESvZ9mYQ.jpg" width="400"><br>
-
-تلویزیون حکومتی ایران روز دوشنبه پنجم مرداد خبر داد که سپاه پاسداران در بامداد همین روز مانع عبور شش کشتی از تنگه هرمز به قصد خروج از خلیج فارس شده است.
-خبرگزاری صداوسیما در کانال تلگرام خود نوشت: «در ساعات اولیه بامداد امروز دوشنبه ۵ مردادماه، ۶ فروند کشتی متخلف با خاموش نمودن سامانه های ناوبری و موقعیت‌یاب خود... قصد عبور از مسیر غیرقانونی و نا ایمن جنوب تنگه هرمز را داشتند.»
-اشاره این خبر به بخش جنوبی تنگه هرمز نزدیک به سواحل کشور عمان است که اعلام کرده تابع قوانین بین‌المللی برای استفاده از آبراه‌هاست. ایران در مقابل اصرار دارد که کشتی‌ها باید از مسیری که سپاه تعیین می‌کند عبور و مرور کنند.
-خبرگزاری صداوسیما همچنین نوشته است که یکی از این شش کشتی‌ «دچار حادثه شده» است، اما تاکنون هیچ منبع دیگری این خبر را تأیید نکرده است.
-روز یک‌شنبه هم خبرگزاری تسنیم، نزدیک به سپاه پاسداران، مدعی شده بود که یک نفتکش در تنگه هرمز پس از برخورد با یک مین دریایی منفجر شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77532)
 
 ---
 
