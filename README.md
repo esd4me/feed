@@ -3,8 +3,57 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-29 00:29:51 </h5>
+<h5> 🟢 Updated at: 2026-07-29 01:41:11 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-29 01:23:07
+
+<img src="https://cdn1.telesco.pe/file/eQuqu7tvzuXnDkiT-vUnlZyio1UmBCWFKG9U9O6T_2odLDJ18HI8Qugu1J8bjp54iL2xMI2ss6pJyJ-C3rNwvQpSANHfoN8bNd26QRZgwQH9CYnsYhPtyHqiyPc54_hw8cT5_Ag41GlUn4ckace4guxUrPjvAZVK-F90fMMQfw2f157vemlbtob61zLix19wUBOIBCBWGYkEdpZt0uyqV3wac-9S1EE3ZIZkdc9KueNUXdXv3wGT1HMofNO-RWZwNhcZWLTjWQGsjlRTugCQMq_eIqeXqfnXntB4O-hFI7F2MiJBrX8oBFrcpfnueMeivtkMQtTKNBGGQMtaKqPTpw.jpg" width="400"><br>
+
+'پرتاب شدن چند موشک از
+#خمین
+'
+تصاویر دریافتی از شهروندان با شرح بالا
+چهارشنبه ۷ مرداد حدود ساعت ۱:۱۰ بامداد
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77595)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-29 01:10:27
+
+<img src="https://cdn1.telesco.pe/file/hwIt1A9526N3MTmSXfsrR3m8PK1JcTUABGnE7lT8xvA9HMGSz_ojqlUbZdf-uqFP662sP050wGjD7rUViTXXldWSyxEKOEBaKvp4BIR0iQTn3phfhGU8NYIebvc9f-K96_BG-0AOs3VkP5u4rW_hOfmNImUJfyt3rcsqFh1FSDWTZiNZxN-5VmacNe8F7EhpK2R9Exww8wYkgP-TgL9OBQDshcLdWXDBd31GPPEU6dVZtRB2zagTr0wgwLqNgf_nuHhIK6TmDwTrc1V2trCmvheUUWQxFVOVN8dRd1q-YW120qX9iu_rNGRB2dk5D_lJzTKEOFN7_fGeDaiEy2bcrA.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+از خمین موشک بلند شد
+سه تا صدای انفجار
+همین الان از خمین ۶تا موشک زدن
+۳تاشون صدا نداشت فقط نور قرمز بود
+سلام همین الان یک موشک از خمین رفت.
+داداش
+خمین موشک زد
+ساعت ۱ و ده دقیقه
+وحید داداش ۴ تا موشک از خمین زدن همین الان
+از خمین موشک زدن
+سلام،الیگودرزم،،صدا ۳ شلیک موشک اومد صدا دور بود احتمالا ازخمین بود
+پرتاب سه موشک خمین
+سلام وحید جان
+سه تا موشک تو آسمون لرستان از سمت اراک دیده شد
+صدای انفجار تو آسمون لرستان میاد
+من ستا موشک بین نهاوند و بروجرد دیدم خمین نبود فک کنم نتکنستم عکس بگیرم
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77594)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-29 00:23:58
@@ -131,30 +180,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77576)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-28 17:47:12
-
-<img src="https://cdn1.telesco.pe/file/RMnAVc1emMfqHl5JBKAg-NC2Wpf6moc3tYYJz9LVFeTPI8AAJl1__F2RKumopTNYIr_kBLiTQMjccGGwMsgTfAbmihQzHlTJw1YtJ5c7EmEt-cLmoIEQtnpk5v49Gh_ndJB8AdiSpdOd83sdyfI5KmGQoMOSxTzLfZ_DVJnrmSnxVAujW7cj2ceibebMjNmjVSFH8Z0b5MmQJfs5oaYEtdVwLoy7iqBUMBHC1M9oqWwNeCuOe-d-nDOVfaYmf9BpoGMgos2XqbmcsKH6-ySrQsy_6RlqVJzDnnPtYbu3BMH5gPDweu70vXFSKH9LJ51kukE14sbZ1EjZUSeAvOAUiA.jpg" width="400"><br>
-
-تصاویر دریافتی در ۲۵ تیر با شرح: ترمینال مسافربری فرودگاه بوشهر و باقی‌مانده‌های یک هواپیما
-سخنگوی دولت، امروز: فرودگاه بوشهر دیگر قابل استفاده نیست و باید از نو ساخته شود. از یک هواپیما که تازه خریده بودیم فقط دم آن باقی مانده است.
-Vahid
-سخنگوی دولت جمهوری اسلامی می‌گوید فرودگاه بوشهر در حملات اخیر آمریکا کاملا تخریب شده و دیگر قابل استفاده نیست و «حتما باید از اول ساخته شود.»
-فاطمه مهاجرانی روز سه‌شنبه، ۶ مرداد، در نشست خبری هفتگی‌اش با خبرنگاران گفت در بازدید از فرودگاه بوشهر «بقایای هواپیمای نوی به تازگی خریداری شده» را دیده که بر اثر اصابت مستقیم موشک، جز بخش کوچکی از دُم آن، تمام بدنه آن نابود شده بود.
-این نخستین بار است که یک مقام حکومت ایران از تخریب کامل فرودگاه بوشهر بر اثر حملات به ایران خبر می‌دهد.
-@
-VahidHeadline
-یک توییت به همراه اسکرین‌شات‌هایی درباره اطلاعات یک ایرباس ۳۱۹:
-عمر این هواپیما 24 سال بوده! سال 2019 هم خریداری شده بوده.
-iranimerican
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77571)
 
 ---
 
