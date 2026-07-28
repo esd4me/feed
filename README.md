@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-29 01:41:11 </h5>
+<h5> 🟢 Updated at: 2026-07-29 03:22:15 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-29 01:43:53
+
+<img src="https://cdn1.telesco.pe/file/Ixw43iYC-Di85sbMazGAqMfEqbOe6WCmIeLxNxMHEo0C5jgpplkJeAQ-vjnH8SAUJ6MpJjtl2uzuWTANFozPggsMiMjO3OI8cvY5tdclnS9qh5wMfnlSoZSXEuf76Yy5uZaX1FiGIQb6i9XFB5D4A5Lk_1Ks91oZz1fQIppLBvSnVMqLg3zTnTZwNaVRpYJ8x3M4Q9bE3UsfaRJ62YEL9K2VJ_YLMRevZR68F75JQ7lzgb3vgu9QOlr2ErHJk1pObA7Dd3XhXAkQzyhxus5TOsgCUWHpiFM3LCFujE6_cz6jynGaVUpAT_8R3kMcJrGP3DhJIWGRKWeo3qVoETjrVw.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+امروز ساعت ۵:۴۵ بعدازظهر به وقت شرق آمریکا [۱:۱۵ چهارشنبه به وقت تهران]، نیروهای سپاه پاسداران انقلاب اسلامی چندین موشک بالستیک را از ایران، در تلاشی برای انجام حمله‌ای غافلگیرانه به نیروهای آمریکایی مستقر در خاورمیانه، شلیک کردند.
+همه موشک‌های ایران با موفقیت رهگیری شدند.
+نیروهای آمریکایی همچنان هوشیار و در بالاترین سطح آمادگی قرار دارند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77599)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-29 01:23:07
