@@ -3,8 +3,28 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-28 20:49:24 </h5>
+<h5> 🟢 Updated at: 2026-07-28 22:39:40 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-28 21:42:48
+
+<img src="https://cdn1.telesco.pe/file/czcM7G6T72tHwQP-9abkaB_nZh_okNcCByM2qH-pT2Myv7qxKdWvqfrRCcgXjDHhAtUYiE27lTHXxgIi-uFiyzmgH5vhFiDYWJKJIwNd3FLf-oh6iVUmFwiyOnLLti1RA4p3VqoKf1J1tzFLdZ-ezVereRioA0nFjdBUNNF44eymLz09ZvNFTdYh7LaL0A-nM0JTkMKxryB2_fsQNFvf08aE-QZhOazAvCWTSGLtXt36UBVrCbzeRytA76DQML_i5cd1Ma4nHTMWhZCYiUuvr6UjQZMssRCol5AAf426uG3EGeO4N0t1xl6QSIkTJylsKWcC0qiYhBQXHWnxfAI74w.jpg" width="400"><br>
+
+پست وزیر خارجه اوکراین، ترجمه ماشین:
+برای گفت‌وگویی صریح با وزیر امور خارجه ایران، @‌araghchi، تماس گرفتم. دیپلماسی یعنی گفت‌وگوی مستقیم، حتی زمانی که دشوار باشد. تأکید کردم که هدف ما جلوگیری از تشدید غیرضروری تنش‌هاست.
+بار دیگر تأکید کردم که تمام اقدامات اوکراین صرفاً با هدف دفاع از کشورمان در برابر تجاوز روسیه انجام می‌شود و هرگز قصد هدف قرار دادن شناورها یا افراد غیرنظامی را نداشته است.
+این موضوع درباره اظهارات ایران در مورد تبعه این کشور که جان باخته و نیز یک شناور غیرنظامی که در حادثه‌ای اخیر هدف قرار گرفته است نیز صدق می‌کند. هدف ما مقابله با تجاوز روسیه است که ریشه اصلی همه این حوادث است؛ و این روسیه است که مسئولیت کامل همه تحریک‌ها و تلفات را بر عهده دارد.
+بر ضرورت خودداری از هرگونه اقدام تنش‌زا و همچنین پایان دادن به هرگونه حمایت از جنگ روسیه علیه اوکراین تأکید کردم. این جنگ غیرقانونی است و باید پایان یابد.
+موضع ما بدون تغییر باقی مانده است: اروپا و خاورمیانه شایسته ثبات، امنیت و صلح هستند.
+andrii_sybiha
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77584)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-28 20:37:44
@@ -127,27 +147,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77565)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-28 17:15:41
-
-<img src="https://cdn4.telesco.pe/file/rFExAu33eTzsm1jAT8RJl13A58QDIcyV4PUFR1Q4L5BZgb-6rUdsFc4_MzXCEYp4lsDcWE0bI9URax_5SVvHSAz5ST2w9ASLOQIRkWjL6zePrMWdv5ItGiF3el2YYlLd9Bguuo1MGd5-eTkNi37BES8JZfNn8RraL4y4g3g7enuwOcNfh3oAsaXXmbX2UzUoJ2YciLlAp2nDWJRxYGHhNBiCuicaF7q6obqduPmgiqMAZL_weR2uLX4-pM5GESxX_GBNUf7QNWXP4soNkILbZJlEifdBvPmGZTe-pqfwK1JVI6lvvl0yjfeSwVhK5R3usy8Yp_6ZxVCKaJj-A-OElQ.jpg" width="400"><br>
-
-بر اساس برنامه‌های اعلام شده از سوی کاخ سفید، دونالد ترامپ، رئیس جمهوری ایالات متحده، روز سه‌شنبه ششم مردادماه، با رئیس‌جمهوری اوکراین و سپس با نخست‌وزیر اسرائیل دیدار خواهد کرد.
-دیدار ترامپ با ولودیمیر زلنسکی ساعت ۹:۳۰ و دیدار با بنیامین نتانیاهو ساعت ۱۱ صبح به وقت محلی برگزار می‌شود. برنامه روزانه کاخ سفید نشان می‌دهد که این دیدارها بدون حضور خبرنگاران برگزار خواهد شد.
-با این حال انتظار می‌رود که پرزیدنت ترامپ، در لحظه آخر اجازه حضور خبرنگاران را صادر کند.
-برنامه بعدی ترامپ پس از دیدار با نتانیاهو، حضور در مراسم یادبود لیندسی گراهام، سناتور جمهوری‌خواه فقید است و نخست‌ وزیر اسرائیل نیز در این مراسم حضور خواهد یافت.
-پیشتر نتانیاهو اعلام کرده بود که موضوع ایران در صدر گفت‌وگوهایش با پرزیدنت ترامپ قرار دارد.
-دیدار ترامپ و زلنسکی نیز پس از آن برگزار می‌شود که شامگاه شنبه سوم مردادماه، نیروهای اوکراین شناورهایی حامل محموله‌های نظامی جمهوری اسلامی به روسیه را در دریای خزر هدف قرار دادند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77564)
 
 ---
 
