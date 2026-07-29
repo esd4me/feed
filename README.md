@@ -3,8 +3,66 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-29 03:22:15 </h5>
+<h5> 🟢 Updated at: 2026-07-29 05:17:09 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-29 05:05:51
+
+<img src="https://cdn4.telesco.pe/file/HbqNApVMjfF0OJN9WCosC5P1olCM3z84agVw_Xqtru1NJu2WDJQZHDZ9z-CVwPJaIn6u-K7C63dUsmr4-rpmVsgDrMBtJ9YOE6NNALAFRtrXapAeNAK_9tla7GQbXZkFlRVej9vBJlM7JUf6MSioibR0NZmDJHtX47_vm4_nZ1qjJo7YtGV2mtSX4gW9ZeQstWmMSHXWLBcpsTreVzeBXnO9-IxFO9OrJPOTOZxanPHX-y_ezK7dQyN1QRQ8fGQODEO8VjunSh_VC7MlM8Zf4CJZHVHABnrVCAf_XvO-XZ88IqnMqfPkotkGSGTcKWrcKmPPX9m93jDkUrHW67MVMQ.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار تصاویری در «تروث سوشال» از دیدارهای جداگانه خود با رهبران اسرائیل و اوکراین، درباره دیدار با بنیامین نتانیاهو نوشت:
+«نخست‌وزیر بی‌بی نتانیاهو از اسرائیل، همراه با من و نمایندگان، نشست بسیار خوبی داشتیم. بدیهی است که موضوعات مهم متعددی مورد بحث قرار گرفت.»
+ترامپ همچنین با ابراز خرسندی از دیدار با ولودیمیر زلنسکی افزود: «دیدار با زلنسکی از اوکراین افتخار بزرگی بود. موارد زیادی بررسی شد و این نشست بسیار خوب پیش رفت.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77602)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-29 04:15:06
+
+<img src="https://cdn1.telesco.pe/file/UjUtbngdEC9A_NFtx5Va7dGI8H7r4vnWRKOGdVm11x1WzdpHj4M2oGSlwcpsYk-k-s3qnsD1WGiPnp7mkUrKZzjj_y7Wbp2ezp0deo-T_COjuK5e3wn9p2VPIfUuJoq4-B7STmjJ2gDkON0EbDuvcpNWOLaZC7beS6fjlGYdfhEt6C7xHlZHj4cGatXN7NCzGDr_yH6HM73X8d0ODnH96XDOqxwYjpEfIG8TJCijundOlykKxHBB8gzJzFR1Y-dNF3DNYMNmEE0g8B667_OyIYhfntyq03iVnMVc7gkW-7HsFzazYjStZvBeAdmlKaToXt2o4IEhu4-WGrbVxn3W9w.jpg" width="400"><br>
+
+تصویر پست شده در اکانت سنتکام
+متن پست، ترجمه ماشین:
+نیروهای آمریکا و عربستان مواضع تروریستی مورد حمایت ایران در عراق را هدف قرار دادند
+تامپا، فلوریدا — فرماندهی مرکزی ایالات متحده و نیروهای مسلح عربستان سعودی روز ۲۸ ژوئیه حملات دقیقی را در عراق علیه تروریست‌های همسو با ایران انجام دادند؛ عناصری که سپاه پاسداران انقلاب اسلامی آن‌ها را برای حمله به نیروهای آمریکایی و زیرساخت‌های انرژی عربستان هدایت کرده بود.
+جنگنده‌های آمریکایی و سعودی در پاسخی قاطع به بیش از ۳۰ حمله پهپادی هوایی که طی ۷۲ ساعت گذشته به دستور سپاه پاسداران انجام شده بود، چندین مرکز لجستیکی و انبار تسلیحاتی تروریست‌ها را در سراسر شرق عراق هدف قرار دادند.
+حملات ناموجه علیه نیروهای آمریکایی موفقیت‌آمیز نبود.
+از فوریه تا آوریل ۲۰۲۶، شبه‌نظامیان تروریست همسو با ایران در عراق بیش از ۶۰۰ بار تلاش کردند به شهروندان و تأسیسات آمریکایی حمله کنند.
+سپاه پاسداران و نیروهای نیابتی تروریستی آن باید برای جلوگیری از واکنش نظامی بیشتر ایالات متحده، این حملات را متوقف کنند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77601)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-29 04:07:55
+
+<img src="https://cdn4.telesco.pe/file/DfxtDZt0O3TTVEDlGMazw22EDdpcnOhCM6LvxykLmrAQCt47EYR1CswfWaeivrHoiiK8okdhEyOycATubzn7WAQx8EhFi4SWzWuwRPL6kfGlSseXbuu9x_deRatSvibqV9o17SCx228uexKzhrV_FCqnftL3PL97Olyweme85mmKOSb5CYsY5oXNUA02w6P8X1Oqdk-9xgWKEm5pqArHqtaKNZFEIsuQAEZAdBKGXV4d6_822xCLKJvFOPL_yHuMt55yOr19QuUF9wi7jcmja4RyIMrOpRmzgwF1hHN4GJBacv1rgmBxXM3s1Pa26IQpmcUJL7ThFDWxNxTAtSSmdQ.jpg" width="400"><br>
+
+وزارت دفاع عربستان سعودی اعلام کرد پدافند هوایی این کشور چند پهپاد را که تأسیسات نفتی در استان شرقیهٔ این کشور را هدف گرفته بودند، رهگیری و منهدم کرده است.
+ترکی المالکی، سخنگوی وزارت دفاع عربستان، روز سه‌شنبه در شبکه اجتماعی ایکس گفت این پهپادها از خاک عراق و به دست گروه‌هایی که او «شبه‌نظامیان تروریستی مورد حمایت ایران» خواند، پرتاب شده بودند.
+او افزود عربستان سعودی حق مشروع دفاع از خود و تأسیسات حیاتی‌اش را محفوظ می‌داند و «در زمان و مکان مناسب» به این حملات پاسخ خواهد داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77600)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-29 01:43:53
