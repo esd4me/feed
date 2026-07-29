@@ -3,20 +3,40 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-29 20:35:14 </h5>
+<h5> 🟢 Updated at: 2026-07-29 22:29:07 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-29 20:35:25
+
+
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با انتشار ویدیویی، جزئیاتی از گفتگو و تبادل نظر خود با پیت هگست، وزیر جنگ ایالات متحده که روز چهارشنبه هفتم مردادماه در واشنگتن انجام شد را به اشتراک گذاشت.
+نتانیاهو گفت: «هگست در این گفتگو به من گفت وقتی به وضعیت جهان نگاه می‌کنیم، کشورهایی هستند که اراده مبارزه در کنار ایالات متحده را دارند، اما توانایی لازم را ندارند. در مقابل، کشورهایی هم هستند که از توانایی برخوردارند، اما اراده جنگیدن ندارند.»
+نخست‌وزیر اسرائیل در ادامه افزود که وزیر جنگ آمریکا تاکید کرده است: «تنها در اسرائیل است که ما هم‌زمان شاهد وجود اراده و توانایی مبارزه هستیم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77622)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-29 20:12:31
 
-<img src="https://cdn4.telesco.pe/file/iwBfrIW23zQ4NczojvVd8iSsppElzI5Ek_rNu2_NhjQh35mVJGavBki1rAN1DJOhmeLG3x-igkMXsGXuMrXsdV6KwW5XKm1_wrpmbKdWC2IziCJdkHDL5BxNS-dTZulYNhCRqONts0wbd4SlBHf6aJPglwhAElat35lgBNSs1sJdomgpP5DNi5Yno1WZl8nDg7TB15SWiQeDE6sD_8qomgWpuHiBNso77mvK1yYbTXkrS8I_TJga28Ljl-4Q1HQczoGiRJYB3D1s6R--AJ0x3hTNb-KO-TN5Wg16i72He7sQw7yDpOiTuf27V1Sfida78jsx_txS3I-rCs4zgMincA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GlYgjS5JyrnLysnvBCGmYg8momGLVG3X_I-3dqBZyWSnyVBDD2r5x7FO-Hmk9ICNwmq8-EX_St-lY-hGEtfLsGsdbEJXTDWggu-z505XXfmZOjSU_Cue-lnYJSNhiAqKPtcgo8dzEWOtd2LL6UJCHgVgr6mb8hXyySU1ggvVzsuBIQewope8MYlRAibnB-1ipfSaZxCVJLP3inS_5zVpyRiEEUgiW39C8zJ5LSaV29A8qBqdk0TqLM8cNnrELVcOxTNz7aF5xvKa6dW02C-N2PXxTPHKdR1Vvfd1_8PU-RB8Iy2ssWp6R86Z110FdnsmkutWIb3GZbpDCYA37Ka-bQ.jpg" width="400"><br>
 
-بر اساس گزارش شرکت امنیت دریایی «امبری»، یک پهپاد به یک شناور حامل گاز متعلق به آمریکا در بندر «دمیات» مصر در سواحل مدیترانه اصابت کرده است.
-همزمان، شرکت خدمات بندری «اینچ‌کیپ» از وقوع انفجار در ترمینال گاز طبیعی مایع (LNG) هنگام عملیات تخلیه بار و آتش‌سوزی در دو نفتکش خبر داد.
-اینچ‌کیپ در بیانیه‌ای اعلام کرد که مقامات محلی بلافاصله به این حادثه واکنش نشان داده و در حال حاضر وضعیت «تحت کنترل» است. بر اساس این گزارش، کشتی‌های حادثه‌دیده برای ایمنی بیشتر به خارج از محوطه بندر منتقل شده‌اند.
-با وجود این حادثه، مسئولان بندری انتظار دارند عملیات در سایر اسکله‌ها و ترمینال‌های بندر دمیات از ساعات پایانی شب از سر گرفته شود. هنوز هیچ گروهی مسئولیت این حمله پهپادی را بر عهده نگرفته است.
+رسانه‌ها از وقوع انفجار در پایانه گاز طبیعی مایع بندر دمیاط مصر هنگام تخلیه محموله خبر دادند.
+همزمان، شرکت امنیت دریایی امبری و منابع امنیتی اعلام کردند یک پهپاد به یک شناور ذخیره‌سازی گاز متعلق به آمریکا برخورد کرده است؛ حادثه‌ای که به آتش‌سوزی دو کشتی منجر شد، اما تاکنون گزارشی از تلفات جانی منتشر نشده است.
+بر اساس گزارش‌ها، این انفجار هنگام تخلیه محموله در پایانه گاز طبیعی مایع بندر دمیاط رخ داد.
+شرکت امنیت دریایی امبری اعلام کرد یک پهپاد به یک شناور ذخیره‌سازی شناور گاز که تحت مالکیت آمریکا است، برخورد کرده است. به گفته این شرکت، در پی این برخورد آتش‌سوزی ایجاد شد و سپس به کشتی دیگری نیز سرایت کرد.
+شرکت خدمات بندری اینچ‌کیپ نیز در گزارشی جداگانه اعلام کرد دو کشتی حامل گاز در بندر دمیاط دچار آتش‌سوزی شده‌اند.
+امبری اعلام کرد خدمه هر دو شناور تخلیه شده‌اند و آتش تحت کنترل درآمده است. این شرکت افزود تاکنون هیچ گروهی مسوولیت این حمله را بر عهده نگرفته است.
 @
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -384,24 +404,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77603)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-29 05:05:51
-
-<img src="https://cdn4.telesco.pe/file/HbqNApVMjfF0OJN9WCosC5P1olCM3z84agVw_Xqtru1NJu2WDJQZHDZ9z-CVwPJaIn6u-K7C63dUsmr4-rpmVsgDrMBtJ9YOE6NNALAFRtrXapAeNAK_9tla7GQbXZkFlRVej9vBJlM7JUf6MSioibR0NZmDJHtX47_vm4_nZ1qjJo7YtGV2mtSX4gW9ZeQstWmMSHXWLBcpsTreVzeBXnO9-IxFO9OrJPOTOZxanPHX-y_ezK7dQyN1QRQ8fGQODEO8VjunSh_VC7MlM8Zf4CJZHVHABnrVCAf_XvO-XZ88IqnMqfPkotkGSGTcKWrcKmPPX9m93jDkUrHW67MVMQ.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار تصاویری در «تروث سوشال» از دیدارهای جداگانه خود با رهبران اسرائیل و اوکراین، درباره دیدار با بنیامین نتانیاهو نوشت:
-«نخست‌وزیر بی‌بی نتانیاهو از اسرائیل، همراه با من و نمایندگان، نشست بسیار خوبی داشتیم. بدیهی است که موضوعات مهم متعددی مورد بحث قرار گرفت.»
-ترامپ همچنین با ابراز خرسندی از دیدار با ولودیمیر زلنسکی افزود: «دیدار با زلنسکی از اوکراین افتخار بزرگی بود. موارد زیادی بررسی شد و این نشست بسیار خوب پیش رفت.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77602)
 
 ---
 
