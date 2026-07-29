@@ -3,8 +3,46 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-29 17:17:39 </h5>
+<h5> 🟢 Updated at: 2026-07-29 19:14:39 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-29 19:13:27
+
+<img src="https://cdn1.telesco.pe/file/HnIrfuYOa8H0UdP8M6yoRo0egk9eTNNxXya5Lg4TSMHRWhVh0jmC4SD9CtL082S4TElVttYMLwKioqlqldys8KtBkzSQ11qEeld0fjoy-7ZYBFIIcmbxoHpPUnj00cr-xmrBxXhenqOWxpuJyfVSRqSwCciM5ulsPBdVBB8L32-UsQJ9qyFdKvVeGJbNHNhlGcZhJigg0WdKyNypcXvzvskgiMjjs29pJ7qXkDJDaVsvJrtUUihevUzQ9R4vc0nd1plioE9nIfLGrROowvL2xeREBO0mNmNb_JMcYGzQn_e9vZcL4LAOg1-fZJOmkJYU6IqgrhcbRzHkf3_Bv0tiXA.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+🚫
+ادعا: پس از تهدیدهای اخیر و تلاش برای حمله به کشتی‌های تجاری و دریانوردان بی‌گناه در حال عبور از تنگه هرمز، سپاه پاسداران انقلاب اسلامی ایران همچنان ادعا می‌کند که دریانوردان بین‌المللی باید فقط از مسیرهای مورد ترجیح سپاه استفاده کنند.
+✅
+واقعیت: تنگه هرمز یک آبراه بین‌المللی است. سپاه هیچ اختیاری برای تعیین مسیر حرکت آزاد و بدون مانع ندارد. کشتی‌های تجاری با حمایت نظامی آمریکا همچنان از این تنگه عبور می‌کنند. از اوایل ماه مه، نیروهای سنتکام به عبور حدود ۱٬۰۰۰ کشتی و ۵۰۰ میلیون بشکه نفت خام از این آبراه باریک کمک کرده‌اند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77620)
+
+---
+
+
+
+###### 🔵 Post time: 2026-07-29 18:49:19
+
+<img src="https://cdn4.telesco.pe/file/HKpA1X59klDJZIX7n-3jleR1Lr_Fn8xm98lyGNCqvPF5LzE-2zU3MXbqqPZ0Eg9gWM65Z3mFjZrhUniHDzJUdmg0MOClYnbm6T6QXRk8WP6wb6WSGDGLw8hlk4EIYeqN2P6RVXnY6jiRUb-z1vZ1EfjEHL7fVNtgRDInX5Hp4ttaq4HjRpS7eg3t0xR6s-3dc1NGOeoa4xso2eWAFX9UpvQNLhhQeIHRFNmhjvySc-BudlomZZZFdruMFYO5HiGelKmkE31ej6q7SGSue1-eEUCOUYvI1NZBT2Mjay362-KSPQ6JbXEOGYWKPg2y-Arv5AAHQkjPTJYrHsQDVYmQ3Q.jpg" width="400"><br>
+
+به گزارش تسنیم، نیروی دریایی سپاه پاسداران انقلاب اسلامی روز چهارشنبه هفتم مردادماه، اعلام کرد سه نفتکش را در تنگه هرمز به دلیل بی‌توجهی به هشدارها «هدف قرار داده و توقیف کرده است».
+در این گزارش به نام این شناورها، مالکیت، محل دقیق حادثه و جزئیات تخلفات ادعایی آن‌ها در این آبراه اشاره‌ای نشده است، اما تهران مسیر جایگزین جنوبی در امتداد سواحل عمان را رد کرده است.
+بر اساس بیانیه‌ای که تسنیم منتشر کرده، سپاه پاسداران تاکید کرده است که «مداخله‌ها و دستورات غیرقانونی» ایالات متحده از سوی شناورهای حاضر در منطقه «بی‌پاسخ نخواهد ماند».
+مرکز عملیات تجارت دریایی بریتانیا، هنوز وقوع چنین حملاتی را تایید و گزارش نکرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77619)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-29 17:12:20
@@ -91,6 +129,14 @@ VahidHeadline
 این طرح که به نام لیندزی گراهام، سناتور جمهوری‌خواه درگذشته، نام‌گذاری شده است، هنوز باید در رأی‌گیری نهایی سنا تصویب و سپس در مجلس نمایندگان بررسی شود.
 @
 VahidHeadline
+و  در خبری دیگر:
+دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا (OFAC) اعلام کرد ۱۰ شرکت و هشت نفتکش را به فهرست تحریم‌های خود افزود.
+این تحریم‌ها بر اساس فرمان اجرایی ۱۳۹۰۲ و در ارتباط با جمهوری اسلامی اعمال شده‌اند.
+در میان نهادهای تحریم‌شده، «اداره خدمات دریایی هرمزسیف» و «شرکت بیمه دریایی خلیج فارس» در ایران نیز قرار دارند.
+وزارت خزانه‌داری آمریکا همچنین اعلام کرد این دو نهاد مشمول تحریم‌های ثانویه هستند.
+شرکت‌های تحریم‌شده در هنگ‌کنگ، جزایر مارشال و چین ثبت شده‌اند و نفتکش‌های تحریم‌شده نیز با پرچم کشورهای مختلف فعالیت می‌کنند. این نفتکش‌ها به شرکت‌های تازه تحریم‌شده مرتبط معرفی شده‌اند.
+@
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -148,7 +194,7 @@ VahidHeadline
 این بیانیه در شرایطی منتشر شده که از آغاز جنگ ۴۰ روزه، سپاه پاسداران بارها مواضع احزاب کُرد در اقلیم کُردستان عراق را هدف قرار داده است. هم‌زمان، فرماندهی مرکزی ارتش آمریکا (سنتکام) بامداد چهارشنبه هفتم مرداد اعلام کرد نیروهای آمریکایی و عربستان سعودی در یک عملیات مشترک، مواضع گروه‌های مسلح همسو با جمهوری اسلامی در عراق را هدف قرار داده‌اند.
 @
 VahidHeadline
-مقتدی صدر در بیانیه‌اش به جای خلیج فارس از کلمه دیگری استفاده کرد.
+مقتدی صدر در بیانیه‌اش به جای خلیج فارس از عبارت دیگری استفاده کرده:
 Mu_AlSadr
 📡
 @VahidOnline
@@ -359,48 +405,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77601)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-29 04:07:55
-
-<img src="https://cdn4.telesco.pe/file/DfxtDZt0O3TTVEDlGMazw22EDdpcnOhCM6LvxykLmrAQCt47EYR1CswfWaeivrHoiiK8okdhEyOycATubzn7WAQx8EhFi4SWzWuwRPL6kfGlSseXbuu9x_deRatSvibqV9o17SCx228uexKzhrV_FCqnftL3PL97Olyweme85mmKOSb5CYsY5oXNUA02w6P8X1Oqdk-9xgWKEm5pqArHqtaKNZFEIsuQAEZAdBKGXV4d6_822xCLKJvFOPL_yHuMt55yOr19QuUF9wi7jcmja4RyIMrOpRmzgwF1hHN4GJBacv1rgmBxXM3s1Pa26IQpmcUJL7ThFDWxNxTAtSSmdQ.jpg" width="400"><br>
-
-وزارت دفاع عربستان سعودی اعلام کرد پدافند هوایی این کشور چند پهپاد را که تأسیسات نفتی در استان شرقیهٔ این کشور را هدف گرفته بودند، رهگیری و منهدم کرده است.
-ترکی المالکی، سخنگوی وزارت دفاع عربستان، روز سه‌شنبه در شبکه اجتماعی ایکس گفت این پهپادها از خاک عراق و به دست گروه‌هایی که او «شبه‌نظامیان تروریستی مورد حمایت ایران» خواند، پرتاب شده بودند.
-او افزود عربستان سعودی حق مشروع دفاع از خود و تأسیسات حیاتی‌اش را محفوظ می‌داند و «در زمان و مکان مناسب» به این حملات پاسخ خواهد داد.
-@
-VahidHeadline
-خبرگزاری صدا و سیما می‌گوید که یک »مقام آگاه نظامی» در ایران، در واکنش به اظهارات وزیر دفاع عربستان سعودی، هرگونه ارتباط جمهوری اسلامی با پرتابه‌های شلیک‌شده از خاک دیگر کشورها به سوی اهدافی در عربستان را «قویاً» تکذیب کرده است.
-این مقام که نام او اعلام نشده است، به این خبرگزاری گفت نسبت دادن هرگونه اقدام علیه منافع آمریکا در منطقه به جمهوری اسلامی ایران، «خطای بزرگ محاسباتی» و ناشی از «کم‌اطلاعی از اوضاع منطقه» است.
-@
-VahidHeadline
-📡
-@VahidOnline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77600)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-29 01:43:53
-
-<img src="https://cdn1.telesco.pe/file/alYgGVhBIsxPno2Sm6dL3E9xYWr5YEF9ZRFExaukTHfdXKmkpu2b3XA3gw6jwA-kXViLiJgEAaNb5jEqztP_M9_87KvmXMgaglKX4-y_e_xpfhIpDhcqnJ4djW7663w2Tya3VCGQersn9iaobnM_e2hPxTwP08z6D-zbMdJGbsRl-90_V9uBmtvzNAZXqwCyDT4fkV36MsNxiQAZxazWriWRTUnbRLa2xtOPYHJ0sn1NKdIEIM6NOJ6VZc7zLAbUbWl9WHHUa-vUuX5wd8mpCIkDa_xIv0Hrtk4Nx55F7_nhTtHsHNey64AhpOhb8JJ36jVbd5MffJylQsMNgLPTVg.jpg" width="400"><br>
-
-پست سنتکام، ترجمه ماشین:
-امروز ساعت ۵:۴۵ بعدازظهر به وقت شرق آمریکا [۱:۱۵ چهارشنبه به وقت تهران]، نیروهای سپاه پاسداران انقلاب اسلامی چندین موشک بالستیک را از ایران، در تلاشی برای انجام حمله‌ای غافلگیرانه به نیروهای آمریکایی مستقر در خاورمیانه، شلیک کردند.
-همه موشک‌های ایران با موفقیت رهگیری شدند.
-نیروهای آمریکایی همچنان هوشیار و در بالاترین سطح آمادگی قرار دارند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77599)
 
 ---
 
