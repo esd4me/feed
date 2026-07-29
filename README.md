@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-29 19:14:39 </h5>
+<h5> 🟢 Updated at: 2026-07-29 20:35:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-29 20:12:31
+
+<img src="https://cdn4.telesco.pe/file/iwBfrIW23zQ4NczojvVd8iSsppElzI5Ek_rNu2_NhjQh35mVJGavBki1rAN1DJOhmeLG3x-igkMXsGXuMrXsdV6KwW5XKm1_wrpmbKdWC2IziCJdkHDL5BxNS-dTZulYNhCRqONts0wbd4SlBHf6aJPglwhAElat35lgBNSs1sJdomgpP5DNi5Yno1WZl8nDg7TB15SWiQeDE6sD_8qomgWpuHiBNso77mvK1yYbTXkrS8I_TJga28Ljl-4Q1HQczoGiRJYB3D1s6R--AJ0x3hTNb-KO-TN5Wg16i72He7sQw7yDpOiTuf27V1Sfida78jsx_txS3I-rCs4zgMincA.jpg" width="400"><br>
+
+بر اساس گزارش شرکت امنیت دریایی «امبری»، یک پهپاد به یک شناور حامل گاز متعلق به آمریکا در بندر «دمیات» مصر در سواحل مدیترانه اصابت کرده است.
+همزمان، شرکت خدمات بندری «اینچ‌کیپ» از وقوع انفجار در ترمینال گاز طبیعی مایع (LNG) هنگام عملیات تخلیه بار و آتش‌سوزی در دو نفتکش خبر داد.
+اینچ‌کیپ در بیانیه‌ای اعلام کرد که مقامات محلی بلافاصله به این حادثه واکنش نشان داده و در حال حاضر وضعیت «تحت کنترل» است. بر اساس این گزارش، کشتی‌های حادثه‌دیده برای ایمنی بیشتر به خارج از محوطه بندر منتقل شده‌اند.
+با وجود این حادثه، مسئولان بندری انتظار دارند عملیات در سایر اسکله‌ها و ترمینال‌های بندر دمیات از ساعات پایانی شب از سر گرفته شود. هنوز هیچ گروهی مسئولیت این حمله پهپادی را بر عهده نگرفته است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77621)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-29 19:13:27
@@ -383,28 +402,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77602)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-29 04:15:06
-
-<img src="https://cdn1.telesco.pe/file/UjUtbngdEC9A_NFtx5Va7dGI8H7r4vnWRKOGdVm11x1WzdpHj4M2oGSlwcpsYk-k-s3qnsD1WGiPnp7mkUrKZzjj_y7Wbp2ezp0deo-T_COjuK5e3wn9p2VPIfUuJoq4-B7STmjJ2gDkON0EbDuvcpNWOLaZC7beS6fjlGYdfhEt6C7xHlZHj4cGatXN7NCzGDr_yH6HM73X8d0ODnH96XDOqxwYjpEfIG8TJCijundOlykKxHBB8gzJzFR1Y-dNF3DNYMNmEE0g8B667_OyIYhfntyq03iVnMVc7gkW-7HsFzazYjStZvBeAdmlKaToXt2o4IEhu4-WGrbVxn3W9w.jpg" width="400"><br>
-
-تصویر پست شده در اکانت سنتکام
-متن پست، ترجمه ماشین:
-نیروهای آمریکا و عربستان مواضع تروریستی مورد حمایت ایران در عراق را هدف قرار دادند
-تامپا، فلوریدا — فرماندهی مرکزی ایالات متحده و نیروهای مسلح عربستان سعودی روز ۲۸ ژوئیه حملات دقیقی را در عراق علیه تروریست‌های همسو با ایران انجام دادند؛ عناصری که سپاه پاسداران انقلاب اسلامی آن‌ها را برای حمله به نیروهای آمریکایی و زیرساخت‌های انرژی عربستان هدایت کرده بود.
-جنگنده‌های آمریکایی و سعودی در پاسخی قاطع به بیش از ۳۰ حمله پهپادی هوایی که طی ۷۲ ساعت گذشته به دستور سپاه پاسداران انجام شده بود، چندین مرکز لجستیکی و انبار تسلیحاتی تروریست‌ها را در سراسر شرق عراق هدف قرار دادند.
-حملات ناموجه علیه نیروهای آمریکایی موفقیت‌آمیز نبود.
-از فوریه تا آوریل ۲۰۲۶، شبه‌نظامیان تروریست همسو با ایران در عراق بیش از ۶۰۰ بار تلاش کردند به شهروندان و تأسیسات آمریکایی حمله کنند.
-سپاه پاسداران و نیروهای نیابتی تروریستی آن باید برای جلوگیری از واکنش نظامی بیشتر ایالات متحده، این حملات را متوقف کنند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77601)
 
 ---
 
