@@ -3,8 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-30 22:41:05 </h5>
+<h5> 🟢 Updated at: 2026-07-31 00:27:26 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-07-30 23:41:33
+
+
+
+پست عراقچی، ترجمه ماشین:
+مصر دوست و شریکی مهم برای ما در منطقه است و امنیت آن برای ما از بالاترین اهمیت برخوردار است.
+همه ما باید در برابر توطئه‌های اسرائیل و عملیات‌های پرچم دروغین که برای تضعیف صلح منطقه‌ای طراحی شده‌اند، هوشیار باشیم.
+تهدید روشن و مشترک است و از همبستگی مسلمانان هراس دارد.
+araghchi
+پست قالیباف:
+ایالات متحده هر روز دست خود را به جنایت جدیدی آلوده می‌کند؛ حملهٔ تروریستی به منازل مسکونی غیرنظامیان در جزیرهٔ قشم، ادامهٔ جنایات در میناب و لامرد است.
+امریکایی‌ها عادت کرده‌اند که سیلی‌هایی را که در میدان نبرد می‌خورند با ریختن خون بی‌گناهان جبران کنند. تاوان‌ خواهند داد.
+mb_ghalibaf
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77659)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-07-30 22:24:36
@@ -328,27 +350,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77640)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-30 07:22:51
-
-<img src="https://cdn1.telesco.pe/file/pNkqAnm_jVWLNn3GCmkS9ufDCNhwBFLt3gXZkyzivkskv7PnZmrLUlWB7tnfIDJhHSZL7Sf4mO6ubEd4CPrOY7M5sC5PC9LH2bjdsnI1ZdE7p7IdUsYTG7gAZQBmcrO_cLBZnu4A-vbkCxZ_02uSX8BSTxjj8AawvGeLulVOeSnIiD-i9f80_BloF-YOpuN2XoEmOCd8nZCRlvn8TrNz6Q-Z8QeFVn-VErArZOWfPa_GCiGmB29SKQ-mQYyO6F05r7iwEGKzliI1G39zuJ8EKQ9thhy7fWIpuBWiACgPZfaPcRTfRs_Nk3sblr2LA8j6u-2VkKnLAY2fv_fWGf9pRA.jpg" width="400"><br>
-
-پیام‌های دریافتی درباره پرتاب موشک از یزد
-سلام وحید از سمت یزد دارن موشک میزنن
-از یزد موشک زدن
-سلام ساعت ۷:۲۱ صدای ارسال موشک داره میاد،
-سلام از یزد موشک بلند شد ۷:۲۲
-الان یزد 7:21 دقیقه  موشک فرستادن
-سلام وحید. جان ساعت ۷و۲۰دقیقه از یزد موشک شلیک شد
-وحید جان از یزد موشک بلند شد
-۷:۲۱ پرتاب موشک از یزد
-همین الان از یزد موشک زدن
-
-[View Post](https://t.me/VahidOnline/77639)
 
 ---
 
