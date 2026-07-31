@@ -3,13 +3,13 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-31 03:24:46 </h5>
+<h5> 🟢 Updated at: 2026-07-31 05:33:13 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-07-31 02:38:37
 
-
+<img src="https://cdn1.telesco.pe/file/Upxem_yIpEm4le6uyrIMF-QJ41Z7vuq1_cr-7E3FYtKKaqKC7dJa1CSikCiYpCn84jZTrYranHxZ7G8T6rq_9pkskv01HzRcK718U4h9C-KfEbtS3JnuUJr4YQteVUnx4z5dK4TU579bk4X81A4skCBrH_TYX_nQJsaT59r6Fb1wOqWE_tvZov6VVTyT07tDnlZGK1VOtDOgjcRyRQz7AviuPfKEkWq2otSUVgb2ebmfLv-gmv9GV_8eIm-8xN1SKGyq6Wbc34fuKnOgCQqKsNNZBholgD5hEmmmoyc5Pi97TeGxe0JQ0fqwxkcwmGEr42Br2HTMwnGv7BfS0S5e-w.jpg" width="400"><br>
 
 پست ترامپ ترجمه ماشین:
 امروز، «هیئت صلح» به توافقی تاریخی برای خلع سلاح کامل حماس و همه گروه‌های مسلح دیگر در غزه دست یافت. این گامی عظیم به‌سوی صلح و امنیت پایدار است.
