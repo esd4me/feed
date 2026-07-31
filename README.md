@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-07-31 09:26:45 </h5>
+<h5> 🟢 Updated at: 2026-07-31 12:16:52 </h5>
 </div>
 
 
@@ -438,7 +438,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-30 10:20:44
 
-<img src="https://cdn1.telesco.pe/file/eL0JfetPv9oJTLhOEl9X02swtMHWNeH2aCjbCqTxRXh-dPdfZy7RkJvC7jBbs1Wo2Rq4yOveidSiWOmE4fDqbsQLK-KtnjS9Jg4exlv59BzXsvJTS8lPfZ3IlhhwFFgq04nJSbnrkA3Toc9hmeIW0KOOuL6lNAdUmwJpaJHMW99UdmMSUxPEIYQaftD-n6LntsnDp9uFv-Qkg9jb5UQrpCWLedEFIhrcG8z_SCC6H6PkTpRNFsmExMuerr6yjTxSOuOTT73aXf7wXjlM5sDN1NfXRvzVs--rLZXRPKyraBhPdmOdsPmYUVtgDHxbGzMHuTdJwyVMgfdI4rI6ui0YCQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rtFqnQbcaCmmN9vW0xdxUf7ebbJVtYvqQxBSSwIsYrSgjEOJ0ubBZtoS_HxlxYYQ-3dtDHJGdlKyTqmiaEfAmkZX76hvYiRyFpxUKPk6tRvdqb4l4D0OdfdN5LuIWe-4oSghKGZ-rtQO0oW4vZoL992uG1QZ70F329S8aHCeFL_KvvQ0UdlrcI_oUYMjGjMyOkncQGCK3ODFBVr9VbJGdoZVp8LUUQODry9vTtUYZ1YaMOsgt2-B-AxcxbE_YPJf5oBEPWiC3CnfWvUPGDI-h4pZgwY_OJmV0lpkzhnVDJNVHU2S8xzcoHwPKBtZDzwZ5NnBi9s0qk5tpN5ENybpGw.jpg" width="400"><br>
 
 عکس دریافتی: آتش‌سوزی پس از حملات آمریکا به نقاطی در
 #اهواز
