@@ -3,13 +3,67 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-01 08:59:24 </h5>
+<h5> 🟢 Updated at: 2026-08-01 11:35:22 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-01 10:04:33
+
+<img src="https://cdn1.telesco.pe/file/JM_kwUsoFiCAVlhA6vC5NL3OZ-_BSX5PDgiCYAlqTDu-p-0DXDZfLG93k02v1WcoFlqtV9atvhja6guJaIA-jO0j9PLgf1Mwnuv1r2pqIjl5aYlV1KzjRmA9aa1sMkruu3iugu8GHWsmgHqxNajNRAh1YJRI45BlK2hTEp4ci1SZUCRU8FosSKkBlVSCOgNiTZi-VbAp8Ly0sqMICCbve6_--E2xsANaBzfmLhfjApZ-4nUkdV1BWvkgoawIP-aChAEjgMqUNIt8Y7Xfz5q5338RNm9D4VwYRnUtS0q-rBePGhq4GWg7WXJ3rvouJrJqdjtw_sm9o9C9CYNlMYoZ_w.jpg" width="400"><br>
+
+اکانت ارتش کویت، ترجمه ماشین:
+سامانه‌های پدافند هوایی کویت در حال مقابله با حملات پهپادهای متخاصم، در پی تجاوز جنایتکارانه ایران، هستند.
+ستاد کل ارتش اعلام می‌کند که اگر صدای انفجارهایی شنیده شود، ناشی از رهگیری حملات متخاصم توسط سامانه‌های پدافند هوایی است.
+از همگان درخواست می‌شود دستورالعمل‌های امنیتی و ایمنی صادرشده از سوی نهادهای ذی‌صلاح را رعایت کنند.
+KuwaitArmyGHQ
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77695)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-01 09:57:37
+
+<img src="https://cdn1.telesco.pe/file/JnFl5oI27DZ58QsNBSIAUinufW9RIQa9EkvU83dsy7ydML2Z5axniQFq8kR3okgH2ZSRMqLj7LQGTXuZYrEXkNMK8wUOUlPocvP7GAQ9nLkdB5Xbv8d1d0sM6uPO-ep8fnQFRXSaBUU8GbVs_K_MnWYy8tTELzAdMi5iRU1YvWO7mGSYsRGUDbX-J_wn8a3lKoAHdKKcn_lSn0xIXmoTRzMIi-_4Q8jEKtVSyYExMTECrrNSjnyzLnL4FC2SDmodjgr_tX2VV7qQIm-Im37UaBMuZx8wkj7-l7OrPwRwNLxnVhRhk2LyuA_lhsIaCEkQiSxXHj9CLg0ouvTVAjlcfg.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا از وقوع یک حادثه دریایی در شمال شرق خصب عمان، در نزدیکی یک نفتکش گزارش داد.
+ساعاتی پیش نیز گزارش شد یک نفتکش در ۱۱ مایل دریایی شمال شرقی لیما، در مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77694)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-01 09:56:16
+
+<img src="https://cdn1.telesco.pe/file/Ryp-35HT_g64F7pgHDtIzXVwMUHNUsfn-fG3noQvEGWWysCMHFyVr6UX65PWrdG_oSafFNjttK_jRTr88spmqPgt8i2dZxWPTQnBQHLFV1HuRRe09y0vhNtrJdhY8Tn8AgdAU_txY0x__19fhgKducX4W9mOnpr-K78Ruxq4NdUGpVo2zTt-vTkqSrT_rUtvYol44i_jIEpR9733YHLjMcSyDMBE8KHlHrjMWQSi2_CxNd06WrEyZG9Gd7mymaQm4dwIZ1y11Flv3wAIlgsIsg4mDuxBt47U0QJ9LPHa_6GE2R0LIqIdAqmQ717ntkz-lFouL2AiMss0WKLyPyeQJQ.jpg" width="400"><br>
+
+محمدباقر قالیباف، رییس مجلس گفت: در روز اول جنگ در ۹ اسفند، ما یک‌ساعت بعد از بمباران فهمیدیم که رهبرمان کشته شده است.
+او ادامه داد: تا ما توانستیم سران قوه را جمع کنیم و لاریجانی هم بیاید، ساعت هشت شب شد، آن جا تصمیم گرفتیم اعلام خبر مرگ رهبری صبح فردایش باشد. بعد این جلسه هم سریع پراکنده شدیم.
+او اضافه کرد: بعدتر تصمیم گرفتیم همان سحرگاه خبر مرگ رهبری را اعلام کنیم و به مردم بگوییم به خیابان بیایید.
+قالیباف در حالی می‌گوید که همان ساعت اول از مرگ خامنه‌ای مطمئن شده که مقام‌های جمهوری اسلامی تا بامداد روز بعد خبر مرگ خامنه‌ای را تکذیب کرده و اعلام می‌کردند او در اتاق فرماندهی حضور داشته و مشغول راهبری جنگ است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77693)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-01 07:02:39
 
-<img src="https://cdn4.telesco.pe/file/vCnSuE_iad8tF3Mqgm4XGlepmOLSTZJllvnb4nI4ley4qE5kgLSmdjh4r8EXrjCEt0IoYfvpnCvxhaf2IiligPlX4hmhErEbi7yRaB-eVlhY1JVG0Yd2eq5UEg9dHYwQA3LTl4_08snolRjUsmm1WkRtfSFU6-18r1ihAFftVYB8b66U2F2wr4BjUUd3iqbsydaAbpeAzFZcgmtjNMiRxvBluRhroDBl2dMwdxmCcQu5Y3leRY0WHTf15H8WrDLGxp-tCtVL72MFf5O3XDViHYOGMwTyKkWuueOBl1VN0myJN_0gbukqRcWGZTyn_G7cvhXJoS4QHJl-J5YAqUgWhQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/lbxn7IddwtWdRLxHfh76Febx1BpzLik394M4H83D3_F7tWpZ3IYHyS7RzYf6Ld_uCKdyolhgr9veMA8sVzvgCBGrpM0822KP3TP4LQtBOxXTVPvFlQa4oGJOMcHM55GKR4OhnONyCqu5Y0SPmFZq71vD1JqdtgqGU0pXPUiE1dJESyd-zrqLmEK-DKk_P75O3szddD88eT_phY4NurRFWwdGD_henRm-p0_b9AuBRp5-AI7oYEHt1dHTiZAvEv1s9Si8NKazkCP_OV57641FoNz2kLsHgB4UCfz_UpW883cqoeIXPznWjBs2cshK5VM0DPODj-dhBfzdXr9AKenGFA.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در حدود ۱۱ مایل دریایی (بیش از ۲۰ کیلومتری) شمال شرقی لیما، در استان مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
 @
@@ -393,65 +447,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77674)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-31 15:14:35
-
-<img src="https://cdn4.telesco.pe/file/PJoHy-ulePTFZrxRXUZ4SZi97A46pyj0L70dkleqmae8ZkCJj7XJEer-LnlLUdLrpI5zOQbsRFASFYI2uAww7RR8fjHK3iewPUqPxqdz6uyrW28WSbTdcUfEv1VCaU5tatPbgOXOeEepQ_3744ORfohh3Ev_pexO9ewTdVDSvdliI1TJKQe-ebn-ESUnFxzJ29qLp7I_JMhh_my6AUih8Ac3pLuKY2gJtsom-AfIHVyNLfpsCIF9Ko6TjAT_m1x9l2-aQTGD-5WPflVGlkZnMC2xP61Z0qpkeghWl8hzAO3QUKU9dIzGeDgQyPu5S4PP3VXWD-XEbVQW_7fa2zIa_w.jpg" width="400"><br>
-
-رئیس‌جمهوری آمریکا روز جاری و در میانه تشدید تنش‌های خاورمیانه، نشست کابینه خود را در اقامتگاه کمپ دیوید برگزار می‌کند.
-این نشست در شرایطی برگزار می‌شود که دونالد ترامپ در تلاش است راهی برای پایان دادن به جنگ با ایران پیدا کند و همزمان قیمت بنزین را که به تهدیدی برای جمهوری‌خواهان در انتخابات میان‌دوره‌ای نوامبر تبدیل شده، کاهش دهد.
-انتظار می‌رود سیاست خارجی و موضوع جمهوری اسلامی بخش عمده دستور کار این نشست را تشکیل دهد. ترامپ درگیر حملات متقابل علیه اهداف نظامی در ایران است.
-ترامپ برخلاف برخی رؤسای جمهوری پیشین، در دوره ریاست‌جمهوری خود کمتر به این اقامتگاه کوهستانی ریاست‌جمهوری در غرب ایالت مریلند رفته، و این سومین سفر او به کمپ دیوید در دوره دوم ریاست‌جمهوری‌اش خواهد بود.
-@
-VahidHeadline
-چون جمعه هم هست و بازارهای مالی تعطیل میشن باعث توجه بیشتر هم شده. دیشب، توییتر:
-فردا ترامپ قبل از رفتن به باشگاه گلفش در بدمینستر، توقفی در کمپ دیوید داره. در هر دو باری که به کمپ دیوید رفته اتفاق خاصی افتاده. اولینش حمله بمب‌افکن‌های B-2 به نطنز بهمراه داشت، دومیش هم توافق با رژیم...
-J74wabx
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77673)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-31 14:46:16
-
-<img src="https://cdn4.telesco.pe/file/csUFr0p1KJFT17JGyCzv-jrO8k3oOhkIgfZBM0u5SdRn_Pi3C_4dg_tRqoXVs7rNB1AaPnUUbYjMynngp9sBuOCH14gIBLwGJx9bfIz4idDd1KFmx6bW6YqVdTIFR2IcA5isMS3zST02rdnUpKr8Q4jDVP9LLSDDYKwSTMbDWxA2riMw0kPOGvHncABGLbI8rhrn8PEzjm2bp38ZdpV81Jm3YT8RgSMzTRQzM0XkvZneQwt47Kbe4oNkjel0uXgwyveJn3ca3yxtn02ekMoWSPX56YmF_EVDBforS366uagKbRoeb0YLJuSirlzdCvMo1-PLMc4HWDgwNFFwdey8Bg.jpg" width="400"><br>
-
-سخنگوی رسمی وزارت دفاع کویت اعلام کرد نیروهای مسلح این کشور، بامداد روز جمعه نهم مرداد ماه، چند پهپاد متخاصم را در حریم هوایی کویت شناسایی کرده و آنها را منهدم کرده‌اند.
-سعود عبدالعزیز العتیبی در بیانیه‌ای در شبکه اجتماعی ایکس نوشت: «تجاوز گناه‌آلود ایران تعدادی از تاسیسات حیاتی و نظامی را هدف قرار داد که اهداف متخاصم رهگیری و منهدم شدند.»
-او افزود: «در نتیجه سقوط ترکش‌ها، خسارت‌های مادی وارد شد، اما هیچ تلفات انسانی ثبت نشده است.»
-پیش از این بیانیه، ارتش جمهوری اسلامی با انتشار اطلاعیه‌ای از حمله به پایگاه احمد الجابر، محل استقرار ارتش آمریکا با «پهپادهای انهدامی» خبر داده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77672)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-31 14:36:47
-
-<img src="https://cdn4.telesco.pe/file/NiZFfAhv6nwR0OIc5dmRiqqy7Nnw_sDlTkXvg3C0s5drhAI8w_T2KGItEUqWdaB-6ZqoYYyGf3PuE8BPn_LxOyPLZGjQA7WNNfi635FHa5idf4QDelQzwhsO4xAObT1Ni_x2_ZG3axX82wdS80YsIuRmMCME8dO34zGPXWsXBogA9aQ_MVy6hj0iHgGXa1ckd2o76sd2rrkk-SrWWH2Xf_ycAQjirUtzMSDzFXwK8wKWg_VTZn-lizJNh2naZMKvF8WJb89sTbqIoikq0uNH553VnCaDY6PEvTe3dhG3eNGtEbafRSP8ayco8b9x1zc63t7JcnH3PtNTelVg7N-Ahw.jpg" width="400"><br>
-
-سپاه پاسداران انقلاب اسلامی، در پی اعلام فرماندهی مرکزی ارتش آمریکا مبنی بر تکذیب ادعای سپاه دربارهٔ بسته بودن تنگه هرمز، با انتشار بیانیه‌ای دیگر با پافشاری بر ادعاهای قبلی‌اش گفت به دو نفتکش دیگر حمله و آن‌ها را متوقف کرده است.
-سپاه در کنار این بیانیه که روز جمعه نهم مرداد منتشر شد، همچنین تصاویری از یک نفتکش را که در میان شعله‌های آتش در تاریکی می‌سوزد منتشر و تاریخ آن را روز جمعه اعلام کرد.
-سنتکام بعدازظهر پنج‌شنبه سه ادعای مطرح‌شده از سوی سپاه پاسداران و رسانه‌های نزدیک به آن دربارهٔ بسته بودن تنگه هرمز، انهدام سه جنگنده اف-۳۵ و عبور یک نفتکش ایرانی از محاصره دریایی آمریکا را را «نادرست» خوانده و گفته بود این ادعاها با واقعیت مطابقت ندارند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77671)
 
 ---
 
