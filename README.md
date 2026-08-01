@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-01 18:22:30 </h5>
+<h5> 🟢 Updated at: 2026-08-01 19:23:30 </h5>
 </div>
 
 
@@ -420,7 +420,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-31 19:36:39
 
-<img src="https://cdn1.telesco.pe/file/ltv7ZH-y-AQj3GdFAY4bC64c_cYiW0xIv1El2XBxzE-4dg4FyJZ-WNewIbaqAp6Rs0m2sM5k_jkDGpFxdO44dyyeaRXMwexpwgLBHz97iADx0xAdGfJzt3oywxfpJ8ckfQAKzL9zU4lsMAiJJFzGdVPUwHbRkFTCTbYSRaonSqPm28MjtPXd3LQ6SogFQw-0M0EGnPb4wh6Vm2wN_QmcwmTMwY_uw6ZfhNYEqmCnMsSyVYW5GIUjnDeOBt8sa_c-uuRPdUiTG1cj7aRtpnhUljVijlyOaypXKHRxHjBEmIlGFoV6_1ogl9bZkOY4uL_27HE2o9m9cpWSZMfpWo-bpg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Q_lyqfzRcpz0N8cbjVy9rrKxVzoUQrcUHEjq7o0boXaKAHpOAb_OrHUnrf_mxgIJc0i9tYDNxs-VnLNv-oxFovsZiBbo7nvRLeDMIZgf98j5rROXPbI7r8lLAeS_NRmd9iEpKLb1xaai7BaVLfGOHQwHxHcCpoCi5QfoKY4V0zb28HDt5dUmbcydacSd7vzopA4Fykb2gPyayuebQGPx_CMV2R2OdoPXGBzJME60CNzqdFoYpMtopFfHMHE0PpTPT19kvMHt7XFZcnwIotfHGDIT8NwRrsJnDbnI88Nnc0Rn290GNMzSpKs1yG16VeZiKrrGgVDkL1fp0mRArb0Lug.jpg" width="400"><br>
 
 پست سنتکام، ترجمه ماشین:
 🚫
