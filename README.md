@@ -3,8 +3,47 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-01 16:44:52 </h5>
+<h5> 🟢 Updated at: 2026-08-01 18:22:30 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-01 18:13:48
+
+<img src="https://cdn4.telesco.pe/file/Jx_YeDQSeadx_TQ9aSZderJ8JOj5bwqmh_-dYL-b_6sljuShghkYGKrYCgtzaEIcPvYU4E6RiyAPDv4NS91MrnOfTQLOdYI6SdUIqicbvWOjh1Gy6eyN-35o3KhGlBpvoR-X_Tqi9P5E9HO179Em1mnK61sRiATiXJcHJNcuI7xe0qoVCy2TeQWFx8KiJD26ixtKApthqcK0CfSSEzDkOiilZ7tDZDZC1Ze675TLfDRrMLZOrh9hMh_65D0XC-h_Kpz85urBv5R1JKcytrp_rfSYPs9ITfzmKyGwP4p27-476ibxLGGlw80ydl09oOC0jbToSPMSBxZKoTw45Wd0cA.jpg" width="400"><br>
+
+سحرگاه روز شنبه ۱۰ مرداد ۱۴۰۵، حکم اعدام آروین خیرخواهان، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در زندان شاهرود به اجرا درآمد. این جوان معترض، پیش‌تر از سوی شعبه یک دادگاه انقلاب شاهرود با اتهام «محاربه» به اعدام محکوم شده بود.
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، حکم اعدام آروین خیرخواهان حوالی ساعت چهار بامداد امروز اجرا شد.
+یک منبع نزدیک به خانواده این زندانی با تایید این خبر به هرانا گفت که مسوولان زندان تاکنون پیکر او را به بستگانش تحویل نداده‌اند. به گفته این منبع، به خانواده اعلام شده است که ساعت سه بامداد فردا برای تحویل پیکر مراجعه کنند و مراسم خاکسپاری نیز باید ساعت پنج بامداد برگزار شود.
+آروین خیرخواهان در جریان اعتراضات دی‌ماه ۱۴۰۴ بازداشت و سپس از سوی شعبه یک دادگاه انقلاب شاهرود با اتهام «محاربه» به اعدام محکوم شد. این حکم پس از اعتراض، در دادگاه تجدیدنظر و دیوان عالی کشور نیز بدون تغییر تایید شد.
+تاکنون جزییات دقیقی درباره زمان و نحوه بازداشت، مصادیق اتهامی، روند بازجویی، دسترسی این زندانی به وکیل انتخابی و مستندات مورد استناد دادگاه برای صدور حکم اعدام منتشر نشده است.
+هرانا نوشته است، آروین خیرخواهان هنگام اجرای حکم اعدام ۱۹ سال و شش ماه سن داشت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77698)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-01 17:44:52
+
+
+
+مادر علی منوچهرآبادی، از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴، با انتشار ویدئویی در اینستاگرام، تولد خود را کنار مزار فرزندش جشن گرفت و یاد او را گرامی داشت.
+علی منوچهرآبادی، شهروند ۲۵ ساله کُرد اهل کرمانشاه، در جریان اعتراضات دی‌ماه ۱۴۰۴ در محدوده فلکه سوم تهرانپارس با شلیک گلوله جان باخت.
+او پسرخاله میثم کُرانیان، از دیگر جان‌باختگان اعتراضات مردمی در کرمانشاه، بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77696)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-01 10:04:33
@@ -393,60 +432,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77677)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-31 19:35:17
-
-<img src="https://cdn1.telesco.pe/file/CIsCEQASLDwqojxtOwER9OmOOWdwpMg-mZDEk5iJ1sZXLbT6dlWzS4pAYaUSFdrWDA2sS5qckhJVlszPsSqzW6qxEAxV0RCUNNmOO7gqPL-baH04aY0WyHKevpvXFlRxsjkgIJijd1wopdZwFWgmyskUa9lejRasXMMHgHXOQzStiuRxWtHc0qfyJv7vO5pVw8plV9JtHv2mJr6bc0MwGM-4nlgdx21bcuoWIprq2csB96HGfE-XIEGL4IlLAzPKwvmvCZDqbBHZCizwFnf_hFJYuG832P0bvywOHMmV6RtaMkwkgi3Oiy4dUn9k3_tl-XG1bND0PC7-wiDo4PJlYg.jpg" width="400"><br>
-
-پاول دوروف، بنیان‌گذار تلگرام، یک روز پس از آنکه اعلام کرد روسیه او را به دلیل مخالفت با درخواست‌های این کشور برای اعمال سانسور و نظارت گسترده بر کاربران، در فهرست «تروریست‌ها» قرار داده است، با انتشار تصویری از ملاقات مقام‌های طالبان با سرگئی لاوروف، وزیر خارجه روسیه، به این اقدام واکنش نشان داد.
-دوروف در این تصویر که در شبکه اجتماعی ایکس به اشتراک گذاشت، عکس خود را با برچسب تروریست، کنار تصویری از دیدار مقام‌های روسیه با مقام‌های طالبان قرار داد و زیر عکس دوم نوشت: «شرکای مورداحترام» و برای عنوان این تصویر از عبارت «گیج نشوید» استفاده کرد.
-دوروف پیش‌تر در ایکس خبر داده بود که روسیه به دلیل خودداری او از اجرای خواسته‌های این کشور برای نظارت گسترده و سانسور در تلگرام، نامش را در فهرست «تروریست‌ها» قرار داده است.
-او همچنین به کنایه نوشت که بر اساس قوانین روسیه از «انتشار اطلاعات در اینترنت» منع شده است و افزود: «به نظر می‌رسد مقام‌های روسیه درباره اینکه چه کسی می‌تواند چه کسی را از اینترنت محروم کند، دچار سردرگمی شده‌اند.»
-روسیه تنها کشور جهان است که رژیم طالبان را به رسمیت شناخته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77676)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-31 19:34:46
-
-<img src="https://cdn4.telesco.pe/file/b2mNr-DQtpUsKhPi8IwII-X7A5LOR4q_JjDmaB571GH0EgbE9hLZdpOdHUTKNFYtBbicNpuQJFs5A9Etl1dO9e4GycC2BJ2xHnaoS1VwjtDPAbTE0JDJK4ywOIk3pty-Jan1K9900QciuaFzB9pRaBJ-NTKL_lBjzBUyi_DVPQxCKLK-WPVCTtJ5oogvLgk5ev9KfO76O0Qyb5dJFvqL9hYt7iTWv7rwE7Gz9BfikvC6dmBlBpNljTtTqPpx9zse984cYrPJBF062TqlEZD8SD0EGfdBAwPgerMdQoKr-yS7VwO0UTvDhr5Jnyf3TgUSK8s4gKuI6KOc3uSIr2xPug.jpg" width="400"><br>
-
-حسن عاملی، امام جمعه اردبیل، در خطبه‌های نماز جمعه این شهر گفت: «نتانیاهو در دیدار با ترامپ گفته قدر مرا بدان، من جلوی موشکهای جمهوری اسلامی را گرفته‌ام. ایران موشک هشت هزار کیلومتری دارد و به راحتی می‌تواند خانه تو را با موشک بزند. من جلوی ایران را گرفته‌ام.»
-او ادامه داد: «ترامپ همیشه از نتانیاهو گول خورده و حالا محل بحث است که آیا این بار هم گول خواهد خورد یا نه.»
-امام جمعه اردبیل افزود: «ترامپ پهلوان رسانه‌ای است، عملیات ما کمر او را شکست. او هر وقت شکست می‌خورد به جنگ رسانه‌ای پناه می‌برد و خود را پیروز میدان نشان می‌دهد. اگر این کار را نکند دق می‌کند و می‌میرد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77675)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-31 19:34:02
-
-<img src="https://cdn4.telesco.pe/file/Pe8gGgNhXe1dUOkj6j0DPe-POLOHv_1dvi2qCk_rqHC8EaX-oE8UgxanP0f4pkHIt6P0013eJxF4OhdPBU_u6uX8Rl65HYZjdYfT1xQbizQ1Qk6n66ztQNJJ4D0yo1oAgFNTWwleaxhiQzSMomUkf40xoJTIwjJL2v2cGl4MQSWXv6YnYHCHDsecHKAOVz_14O3kEjUMtXhaZc57DKN42JvO6q4_RN-M3SBFY_O91EY3YwxWLSk2QFajbxuvuAe_uaBBBMi58w2fIHfBr8tx471jrsIXy-82iOYSfzFRMJXa1n-2vnPeBqPoeMYMZz6BPcbPqG2avBP9yJQJA1AR8w.jpg" width="400"><br>
-
-رییس‌جمهور آمریکا، روز جمعه ۹مرداد۱۴۰۵ در گفتگو با شبکه «فاکس‌نیوز» گفت درگیری با ایران «به‌خوبی پیش می‌رود» و با اشاره به حملات ارتش ایالات متحده اعلام کرد که ایران در نهایت چاره ای جز عقب‌نشینی و تسلیم نخواهد داشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77674)
 
 ---
 
