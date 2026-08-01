@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-01 23:37:54 </h5>
+<h5> 🟢 Updated at: 2026-08-02 01:14:41 </h5>
 </div>
 
 
@@ -11,7 +11,8 @@
 
 <img src="https://cdn1.telesco.pe/file/kW14Noma7hCTi1c6St3i4e19mb_G51hyjBjo47ro9TGfEDWA-3nMRO_ueSnoHQ21zj8_g6holFp64D54wROnFKzqvhd6HSKK3vwYFgnoSqTtfCG5tqYXZcxFvOdw9Lz6rD1lgGSY5XFoP2NsX4Q1mZZ70hMYGI4dtHQi9NwTPDvNcrvhqObEO_iqLXBO1lxOWSKM_r7MITAIKserUKHfRIhRT0XccyCkZSD8wCy_u3Y3ElREihRc5rODeFbBz23t7R19BAUnDHhTojjKCCaXsVrOXXWTBGbvkMeFfpEUSgYWXINIYywI_HPUzlMf1QowjfUY9tmEQE_yZFPR-Gacrw.jpg" width="400"><br>
 
-ترامپ: در حال نابود کردن ارزش پول ایران هستم
+تصویر پست ترامپ:
+ترامپ در حال نابود کردن ارزش پول ایران است
 هم‌زمان با افزایش تنش‌ها در منطقه و انتشار گزارش‌هایی درباره احتمال از سرگیری حملات آمریکا علیه جمهوری اسلامی، دونالد ترامپ، رییس‌جمهوری آمریکا، تصویری را در تروث سوشال
 منتشر کرد
 که به کاهش ارزش ریال و افزایش تورم در ایران اشاره دارد.
@@ -203,7 +204,7 @@ axios
 
 ###### 🔵 Post time: 2026-08-01 00:38:36
 
-<img src="https://cdn1.telesco.pe/file/EcYyU7HUvSoC4fnh9xm7XSpwFLUNmCBWs9x1ORfFZK-y0Eoomc4zXaJTm8CL5CJ9cfZbg96OLiZAFkkb4A--MH9NdbDy7Z9ZM6gdXYm1RHSHgO6U2DHkAOVf4M6ety3h04S9H0IrFL3gMJDEKDzeikgzVH4MsTiHrBpdp4WRlnJCYjDYlOHf12zc7JeMg0CMX7cdYJmjKNhmgVE02nMeOYhid0LmPf30xKx_Y3JiymeeFUjep2Bk8HHuTZ0HClxcjPVPC5r4Z892mOdhm_B2dljuMXefhZv7ugV2XcNr-GpSMA9YqxnneAhTFllB2D8we_F-6ah84OusYfpCDfO9Jw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JORDOa16YZKTV_y4IXC5oqTpYKn4MFliq-CBD17Whd-LtFVTGjCI9VCFCMTRTzDy4EmxomcHEKd0zE2oVWZSLK8naBEdPKemamAz8StyDSc3GLO9i3xzIETBAsQFAi8L4JWbjucvfFlVx6hxEo-yMhT7xtTcCcReCeL1HJCC6Tld5IwjoNLIVFLBVi1kY-gsy14tQ4D6T39yZ8IGUSU93XO3wzY5XXlUwsF6WbgtPNen9UiOP1bTiQzLJmBASAeT9YAfN8tl71SUy3cVJG6jzRo5Ml_9zwk2gOlB0diVgrwZ8Lqb9_YiO2o6Djx_oo3iK2kdT9FHcdPme7j3b00UvQ.jpg" width="400"><br>
 
 "
 آمریکا و اسرائیل برای بمباران اهداف مرتبط با انرژی در ایران آماده می‌شوند
