@@ -3,16 +3,23 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-01 21:23:39 </h5>
+<h5> 🟢 Updated at: 2026-08-01 22:25:58 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-08-01 21:20:25
 
-<img src="https://cdn1.telesco.pe/file/vIZo2kYSMZunYBh0cGhR_TLkAt46DrPYk--BcIIVM_PeIZE5XlE44dSdCKwKYBcf2FTEqRa7WycMEMIbQvnAWw6Et25N63qZowveSZ6yL9nJz2-IIZw7JmFK7met_F-87px91G72ID7MFeU-kIP_ZMgBwS59A9TD2DLz-aSDo-Kl5vOUmFVu-8QqZKNzJxwM0QtAotlQZXSVb6J46AkODdSWoKBpYvWxquKQZWjBtgZr-X4nwzMsM3OxnttKe47iBA9GhomyzoSbqzX2dGsU44j5XHHcn9ZZs7VT2iCUb_FCSxMBBFoanDNU2eJtpOasBBk6spsA9vmYwXKEX2idiw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/YtqGE0MYZL2Ch6YjqhF_1RfpGcUX7qbyozVTkXKMBSJU6ztzQ95Z2HZR_c2mTZcmhcckWiNE-9J0PQQNguB2PzVglCkUOlEzvoZrlAc1VYGY7HcxvbNAmlxui8i_9UaV2y9LsfUqCuuwpOfgdyG91RWk-GKDRfwXpWIhWCVj-cnlfC4HR5qmB1ps4DwVeyg5I0-fJ0P_BwWoD-3OX4ImGVKC-LVB7qG-Iknl5-IDwvCnpiySzl2g9zbtPmcPJrzn4jvvIg3pA1-gJfLFjS3vgdTNkTGLlF9wGVVdza676RqGv3E2w8aN_z6w9D7PrREUcckMMy2KISZ4EM0GVEoFWA.jpg" width="400"><br>
 
-پست بدون متن ترامپ
-realDonaldTrump
+ترامپ: در حال نابود کردن ارزش پول ایران هستم
+هم‌زمان با افزایش تنش‌ها در منطقه و انتشار گزارش‌هایی درباره احتمال از سرگیری حملات آمریکا علیه جمهوری اسلامی، دونالد ترامپ، رییس‌جمهوری آمریکا، تصویری را در تروث سوشال
+منتشر کرد
+که به کاهش ارزش ریال و افزایش تورم در ایران اشاره دارد.
+در این تصویر با عنوان «ترامپ در حال نابود کردن ارزش پول ایران است» نوشته است که ایران با تورم شدید روبه‌رو است و ارزش هر دلار از حدود ۹۰ هزار تومان به ۱۹۰ هزار تومان افزایش یافته است.
+ترامپ توضیح یا اظهارنظر دیگری درباره این تصویر منتشر نکرد.
+@
+VahidOOnLine
+بیشتر از ۳۰ تا پست پشت سر هم منتشر کرده که بیشتر تصویر بدون متن هستند و چندتاش به ایران مرتبط هستند. مثلا تصویر ساخته شده با هوش مصنوعی درباره کشتی‌های غرق شده.
 📡
 @VahidOnline
 
@@ -239,7 +246,7 @@ cbsnews
 
 ###### 🔵 Post time: 2026-07-31 22:36:16
 
-<img src="https://cdn4.telesco.pe/file/Bc5klE3kZqrPXhqRhs9RykW_HIwmfxkvf0AeKviNeiY5PYyQ_BEpXuprtI6ymxnHdSasju3kmHZAZ-_B2bmVyqDHZ1YJo0LwDnJlpV-GDaBpugKUV57w9pBz_jR0iXncg6_k5dP84PjY2eX8pCahcExjb-KRzwuJaUUbFcK2Kpe4uetP7iHGigSVJjbJgJ58r61CmxVaCLUIW0u-esKbQmmu6z7G-_VWBZX2skBzxuxVLZ0I2Pfn4x19ZNLNVr7qfvzGvsawqUNWjuOhcnP_Q_GRhg4EfdIkmu6DT_CTcS4Fry9FcRlL-uVWJH2jNLh14ToQy9nzKw9MHLKKe9qVyw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/CrE74ry6pDPhcYd84NpTmu252IZ_2mdeLV2ImlFfr8i1VwKbKsE21HhCTaMJ1o9VJNH59cFT7EGONeqGzgCuSud_1CEbZ7XltljvGvL3BjbkYURHvW5l3fn3VdaKDl09I8SxaB-HU0x6lkesMLiQG915T7oEKJ1Vq4DvQDVNugfzgo81wOTpVjLbAYJoYT6QAh49M7RZgGDlk_U8_4btg6cZ-NdX6-5wy832-aX1Go9M5UNLp2ZnsG6uNueFsmqI9WwBgixUg8kHlXVsLJhTZG3pjBKeUiKpgl2Z0bi6NDiTGcqhm1DHsG78bo8HemHlH4LJIuCjiV93-EmE93SooQ.jpg" width="400"><br>
 
 خبرگزاری رویترز روز جمعه ۹مرداد۱۴۰۵
 گزارشی تحقیقی
@@ -267,7 +274,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-07-31 22:00:07
 
-<img src="https://cdn1.telesco.pe/file/cMBR_HCxcqt4tI7TfA3KTctUQmRNJrHuk4TJZ9JbnRVn0A06YKmu6ekDODeSyPQB1ZLg1qg4r0UaqfafqSZDWgZnnIvp0peOL8Jm3uYjzm_ylMPUgSXRV-QlCPRFY_1uicvc2km3wWmr6VAVqxTG5KHrEbs_1Gy0FHtR-VXLFxWikBDkneIEb_SmCAg9XhoQBT1DnElG5UzueOMNt1U6k6H_HA_2rPzoG-MiKjSkXsMYpMz7yOT1uCGzRVmNHONYhFzOM4Qa_Yjo2-0O_0o7KQLRP46cr8wzsbE5BSnaqsCgelU_N5UZ-T1BQnZTjna_UKEURTQqN91UObin2FmGgg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OFyddEswqq63yYJhhF-kqBQYwbX7WC6zcAGYEo9gCspJlJQ74eGzOSLoL_HqBr3j9bu-dfhl52S9tKJoyNhMJfBnbf4sBP0NVGs_kI6NwT52smeQ5hTJbOxI_brLJ3enS1kFV78CbhvO-Z290zIMwBFzdiDJVMIwrwjAe6cevlDKuZWuC3CeJhsuhGayMb0v6kEWymG5Ubkw9T7n_ET9drfilys6gh1oJ1TqlsUB0_oCBy_SuRgnBfQAYTURvAtmy56ZrKnFsloKnsA5_VOvN4IOHxe0-39RxZyWo_GtJcl7IcrtbSp_WuoTgS8yyhOm7vVsOfLtLScpRK5bbQodfw.jpg" width="400"><br>
 
 ایتالیا پس از بحران مهاجران در سبته، اجرای نظام تردد آزاد در منطقه شنگن با اسپانیا را به‌طور موقت تعلیق کرد.
 این اقدام پس از آن انجام شد که مقام‌های اسپانیا روز جمعه اعلام کردند بیش از ۶۰ هزار نفر طی ۲۴ ساعت از طریق زمین و دریا وارد سبته شده‌اند. به گفته مقام‌های اسپانیا، پس از این موج ورود مهاجران، حدود ۳۷ هزار و ۵۰۰ نفر به‌صورت داوطلبانه به مراکش بازگشته‌اند.
