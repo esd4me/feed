@@ -3,13 +3,13 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-01 19:23:30 </h5>
+<h5> 🟢 Updated at: 2026-08-01 20:20:55 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-08-01 18:13:48
 
-<img src="https://cdn4.telesco.pe/file/Jx_YeDQSeadx_TQ9aSZderJ8JOj5bwqmh_-dYL-b_6sljuShghkYGKrYCgtzaEIcPvYU4E6RiyAPDv4NS91MrnOfTQLOdYI6SdUIqicbvWOjh1Gy6eyN-35o3KhGlBpvoR-X_Tqi9P5E9HO179Em1mnK61sRiATiXJcHJNcuI7xe0qoVCy2TeQWFx8KiJD26ixtKApthqcK0CfSSEzDkOiilZ7tDZDZC1Ze675TLfDRrMLZOrh9hMh_65D0XC-h_Kpz85urBv5R1JKcytrp_rfSYPs9ITfzmKyGwP4p27-476ibxLGGlw80ydl09oOC0jbToSPMSBxZKoTw45Wd0cA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/H0plL8q_gmZ2qV_6cpgkRLkYP94MVTc6aSeB3M0jEb4cjJyrfGuUyrhZxis2jbbhSvkWocWEXCgTDtcXdJquCWW8ig8DjWfvtbwlNY73j3uhNk4NEryLCbrFVkWAVhX0QCXcD3UN1hUjA-VBenKODjTnay8-N97rr_Wp96Jjy0WKWphZXVIDTHA3P8LJPTQb_jotCzSwvCU9OXh3R5blCeFbmBXZqa7CBzac4mW9-dD6jjcv5QmTXa8Xsh_tDnUPfw2jl1QdGXRlOWx0eBs3C_wYQpaoftAtUhFkXFFy1DcHldlm_wvsFatZd24dhEtBZN04axluY6EaZsihKKPzIg.jpg" width="400"><br>
 
 سحرگاه روز شنبه ۱۰ مرداد ۱۴۰۵، حکم اعدام آروین خیرخواهان، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در زندان شاهرود به اجرا درآمد. این جوان معترض، پیش‌تر از سوی شعبه یک دادگاه انقلاب شاهرود با اتهام «محاربه» به اعدام محکوم شده بود.
 به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، حکم اعدام آروین خیرخواهان حوالی ساعت چهار بامداد امروز اجرا شد.
@@ -48,7 +48,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-01 10:04:33
 
-<img src="https://cdn1.telesco.pe/file/JM_kwUsoFiCAVlhA6vC5NL3OZ-_BSX5PDgiCYAlqTDu-p-0DXDZfLG93k02v1WcoFlqtV9atvhja6guJaIA-jO0j9PLgf1Mwnuv1r2pqIjl5aYlV1KzjRmA9aa1sMkruu3iugu8GHWsmgHqxNajNRAh1YJRI45BlK2hTEp4ci1SZUCRU8FosSKkBlVSCOgNiTZi-VbAp8Ly0sqMICCbve6_--E2xsANaBzfmLhfjApZ-4nUkdV1BWvkgoawIP-aChAEjgMqUNIt8Y7Xfz5q5338RNm9D4VwYRnUtS0q-rBePGhq4GWg7WXJ3rvouJrJqdjtw_sm9o9C9CYNlMYoZ_w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/c4i0TyoN50dmz8QujqNfm32cH17QtU1DCv1Iq18BXaPOtgEpTVM2InZMONSeAVrDw2vi78lNqd9W5_v4ujMIjeWO4U86YxgtY4fJV2NlAdJZ-QtW7Qok60aWvUouVAyBy5Sl9jXOnv7mRf2JNh7UcgBbRZc81N_zRHHFFVxw8ZD-iqaxYGKq3D_L0Zxavb9X2vz2ZqyyR7EF5wu_-TnLU7-qfePkQhpND-gV9INFpVGPH1myUS0qKqxsXQeMkNiy352nNrEq78ngUTBIqUSiMxgnilVQcPSj7x-TygThQS8gg3rF9f1t_w-Cn8rx451bzWGWA33vC8VKPFxP9FR-nA.jpg" width="400"><br>
 
 اکانت ارتش کویت، ترجمه ماشین:
 سامانه‌های پدافند هوایی کویت در حال مقابله با حملات پهپادهای متخاصم، در پی تجاوز جنایتکارانه ایران، هستند.
@@ -66,7 +66,7 @@ KuwaitArmyGHQ
 
 ###### 🔵 Post time: 2026-08-01 09:57:37
 
-<img src="https://cdn1.telesco.pe/file/JnFl5oI27DZ58QsNBSIAUinufW9RIQa9EkvU83dsy7ydML2Z5axniQFq8kR3okgH2ZSRMqLj7LQGTXuZYrEXkNMK8wUOUlPocvP7GAQ9nLkdB5Xbv8d1d0sM6uPO-ep8fnQFRXSaBUU8GbVs_K_MnWYy8tTELzAdMi5iRU1YvWO7mGSYsRGUDbX-J_wn8a3lKoAHdKKcn_lSn0xIXmoTRzMIi-_4Q8jEKtVSyYExMTECrrNSjnyzLnL4FC2SDmodjgr_tX2VV7qQIm-Im37UaBMuZx8wkj7-l7OrPwRwNLxnVhRhk2LyuA_lhsIaCEkQiSxXHj9CLg0ouvTVAjlcfg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/INa_DjIZysslTWcgLn7UBm3k7Js_zJYX7IrPh-9RFVQ8eQFwnQu6Vb703mgkQEtBLgfqg_bP8aAtS-Oqy3u9hOujt5eGVnMbDc_NO5x_wRWiqANAL720eB3VO6Mi2djuG2-OqOhl-DLP433otVouDPT-XVY5s0qozpHPq246RGNqwsT-lRavNuNdlLMcH4TbkCqgiF99R6VnP5aVb-C370JXFi2-acX42blq8SciM8w_cVGVSA5kazFpzS4U07IaX0VSFbeg6_dprAt3jeNYh_aKUs_oY63EIanOwiTh0dMi0INf2SZXWwmVIHpPiTDkh20JZSWPqf-qU8yqildx6w.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا از وقوع یک حادثه دریایی در شمال شرق خصب عمان، در نزدیکی یک نفتکش گزارش داد.
 ساعاتی پیش نیز گزارش شد یک نفتکش در ۱۱ مایل دریایی شمال شرقی لیما، در مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
@@ -118,7 +118,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 03:06:09
 
-<img src="https://cdn1.telesco.pe/file/Dw9e7Z6dZGHMiRemvEA4R4mwdrr-gmaJ6kwYxnoP8W1ueGhXpJJYS4q7iv_uiLU6nTfpooQb7Qk5JAUhGKgfqKIM_d_mCFu6JJhCTe32zqKu73iypFyIi3cV2R3w2nGyDsRFROOSZw1DJg8h_QGEXdplxn6ZNpbRl-wq551P43REBUddkFqUVC1Y89r8prprJIPy1TQmMLkod0SG1l3Xgy8_3hi8d348Zw5rsw7zb-RcK5549ncoO5NM-ToWkyznHPelNBYw9mlNY-2xTinAzVJmvEBEuE9DGkJqfF829e1-IuWEj9tF8-HjcIjN1HvRwGsqJ76-Aaj04t1JSh5qfg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nOat_5GNwPwDM6tPXWKvPM5nif06dkoJ_5bpa2SSZe7Ys38TVsGF4a9Fr-Jzy-yxP32nsZWpGzcfMLWwNa0b3z0wdET6P6s0mJkeMVEZkhURRyHOPGa9VkuzlId_gyQTrdf0IOJfftij70x0A5bsCKInm-CGl8KWPLghzGUtnZu9fE0Q2h6v9nkRgfPhDI37ZN_EMZ2SvA43NZX6Gt3E4ceQvMEdQvGH62zvb6-KWnFJExxcarkHId76InWLPiSN-iYO-0qI3bR2CILDSyRHJZa_VJl4fX3d0ittGaYArdzV-jr-OfWCUaTKazIaZnCvmlMLNMKd4warWWavkk-wiA.jpg" width="400"><br>
 
 ♦️
 مقامات آمریکایی و اروپایی آگاه به «ان‌بی‌سی» گفتند که روسیه در حال به اشتراک‌گذاری اطلاعات ارزشمند الکترونیکی و ماهواره‌ای با ایران است که به تهران در جنگ جاری با ایالات متحده کمک می‌کند. به گفته این مقامات، ردیابی ماهواره‌ای و اطلاعات سیگنالی روسیه احتمالا ایران را قادر می‌سازد تا نیروهای آمریکایی را در حملات هوایی با دقت بیشتری هدف قرار دهد، دفاع هوایی خود را در برابر حملات ایالات متحده تقویت کند و در عملکرد تسلیحات ساخت آمریکا اختلال ایجاد نماید.
@@ -135,7 +135,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 01:02:50
 
-<img src="https://cdn1.telesco.pe/file/Wf8xUov8AVZnz8CKCEYIa8-DXj9CgimUpityJGQJYlQ4ywPgCg6UcMUeMaBru0BDC5fZxah2mcCc8bMO1CW6ZoPOZ0aVlXkj8WAdYR5c1U3t-1f8VsPN3L2NYltdjT12w3319fBTAsBKDQyrasuObiNRbcpBo50RdN2TcAo5dC4BXwCKpIXTd9MHvGx48V1TagY3vq9DKHGFRfKX-MzRLxcAC9eqxVp4VjrvCqOc7m79tA3AEx5DJYXOJRCgFg-B9l3IvRYsttq7g5LDfkN0kEMC0R84Wkd4U3JHEvZti8phejUbkcJVmb4sRBxBtmqcXwh6ahRVGAWuGNA7Dk5w2A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/v5Lo66P31BC4I7DNFX2CKo8Dd5ML3K6_z4yCvotb-hyxmP-kJUEXL2nuHR_Ilh_HdaN7QFaHAYPjRQWH_icdzHlz3AMcrYpmoSVn0VsUiganVgfWx4_dNLA8JGZRIF-Ds8BGenkZ5JgvQx0gruqR5Ik1MaZHA9mbb1AePfOz63HPiyWUn75Lr36uX1a-YtQZ35kEIxhPjd-IwBBSDC3W6HImPqY0pJCf3VF9OScaE26k4L7sONo_US5j6hXTSYmdLCnBjF74pBSJtXpvBzU0EF5r4Dqy-mfXhBU1Bqsp_3W00B5Yo3F_wJ-8UvDxfYBD7pxb_zYQsN-FOysgFRnAhA.jpg" width="400"><br>
 
 "
 ترامپ دستور حمله‌ای تازه به ایران را صادر کرد
@@ -212,7 +212,7 @@ cbsnews
 
 ###### 🔵 Post time: 2026-08-01 00:30:43
 
-<img src="https://cdn1.telesco.pe/file/kYNT11sfpBm2fMxUs9d2GBOgECiB9IzRs8NKcWPtYSSf17_7WspVCHNhoeA5EZBtSYC7GYp7-A_zEFVH2HCT8gGtwtesiXP7osUZLspt-1dXXPwe49JsxP-jD8qS6SbX9tOiwA6r8bUkQaaYDDQ1CVEJhu60DQJPydVjtXiNTegprRPyZrSs4ISufgMOrTj4_KDRaPzSXhqXZzwIFAUO7lQD2yFFy3GHtVxN7UuJqu2AsDlmj-HnGgFdlrsJOrmMsrgtFahhTqKmsJATIpssgpS-yO6Fy2RuV7tkFr1aSrIIEjZ5rVM1yK4534qx1OaZHArVSvaWnDG-fmxgvsk5fw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/gUvsDpH39WHUyhYo0WB03xEwxriQgcDUjYGN5lvtVPAKgaXLO8nBesgdzCNlg3QME6amU3ALmpf8jpC8Bk2EK17yjnwEdCUWmXdwNm4rfzXKegr00-KRbfHKtPw0fOVehkZH85nwt2_EwImGqFG4ONON726t7gtxBeiECUZuael69Pcuhu_5ldKoneG8bhwH3Ee_DhlTrRTNROMVJRlGaWrkIRWy2DZ7bFSDLLUybTW0rwItS_EhqbAxHNsuKLPBNh_Kj142FXuRrC3cZZfK-gP_AHcsZQ9Av4iv8b3QEYA_KH0uC5cMXgLzESb-aPFt3Eii9xqff9nSF9vpcPXgTw.jpg" width="400"><br>
 
 ایتالیا پس از بحران مهاجران در سبته، اجرای نظام تردد آزاد در منطقه شنگن با اسپانیا را به‌طور موقت تعلیق کرد. این اقدام پس از آن انجام شد که مقام‌های اسپانیا روز جمعه اعلام کردند بیش از ۶۰ هزار نفر طی ۲۴ ساعت از طریق زمین و دریا وارد سبته شده‌اند. به گفته مقام‌های…
 
@@ -420,7 +420,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-07-31 19:36:39
 
-<img src="https://cdn1.telesco.pe/file/Q_lyqfzRcpz0N8cbjVy9rrKxVzoUQrcUHEjq7o0boXaKAHpOAb_OrHUnrf_mxgIJc0i9tYDNxs-VnLNv-oxFovsZiBbo7nvRLeDMIZgf98j5rROXPbI7r8lLAeS_NRmd9iEpKLb1xaai7BaVLfGOHQwHxHcCpoCi5QfoKY4V0zb28HDt5dUmbcydacSd7vzopA4Fykb2gPyayuebQGPx_CMV2R2OdoPXGBzJME60CNzqdFoYpMtopFfHMHE0PpTPT19kvMHt7XFZcnwIotfHGDIT8NwRrsJnDbnI88Nnc0Rn290GNMzSpKs1yG16VeZiKrrGgVDkL1fp0mRArb0Lug.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/J0s3aGFGJXmnhhmYDTa82-W6_j-WvTEpwb_bRL7irRi-V78g-rAg0_C2XmDRNtpVOrMM2QKop3mt4PI5m7dvbxaAHgxw2UARghE3euHgbD0GMke7Fd1XKc6iBaMM8HW_l0tSgRRTktH-9YMMSbLn_qNyhFpROCIzkAH8crhOu-m3X4dDcV66GuHht42uNI8XzK6LToL7Gg5vc1gsiCMMu7Pxpweqk2t_tL-jnfagL-FOnDMLHSxb9y7pi3t5Lk3u5A-0RF1HgEF5OGgHYT5UmBymf1jfLL41kHsa2x7-x0J-CiBK3_hLoeBpOpLCcBzRPH_ONDj0_TFz69crnlSDTQ.jpg" width="400"><br>
 
 پست سنتکام، ترجمه ماشین:
 🚫
