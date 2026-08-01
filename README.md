@@ -3,13 +3,13 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-01 22:25:58 </h5>
+<h5> 🟢 Updated at: 2026-08-01 23:37:54 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-08-01 21:20:25
 
-<img src="https://cdn1.telesco.pe/file/YtqGE0MYZL2Ch6YjqhF_1RfpGcUX7qbyozVTkXKMBSJU6ztzQ95Z2HZR_c2mTZcmhcckWiNE-9J0PQQNguB2PzVglCkUOlEzvoZrlAc1VYGY7HcxvbNAmlxui8i_9UaV2y9LsfUqCuuwpOfgdyG91RWk-GKDRfwXpWIhWCVj-cnlfC4HR5qmB1ps4DwVeyg5I0-fJ0P_BwWoD-3OX4ImGVKC-LVB7qG-Iknl5-IDwvCnpiySzl2g9zbtPmcPJrzn4jvvIg3pA1-gJfLFjS3vgdTNkTGLlF9wGVVdza676RqGv3E2w8aN_z6w9D7PrREUcckMMy2KISZ4EM0GVEoFWA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/kW14Noma7hCTi1c6St3i4e19mb_G51hyjBjo47ro9TGfEDWA-3nMRO_ueSnoHQ21zj8_g6holFp64D54wROnFKzqvhd6HSKK3vwYFgnoSqTtfCG5tqYXZcxFvOdw9Lz6rD1lgGSY5XFoP2NsX4Q1mZZ70hMYGI4dtHQi9NwTPDvNcrvhqObEO_iqLXBO1lxOWSKM_r7MITAIKserUKHfRIhRT0XccyCkZSD8wCy_u3Y3ElREihRc5rODeFbBz23t7R19BAUnDHhTojjKCCaXsVrOXXWTBGbvkMeFfpEUSgYWXINIYywI_HPUzlMf1QowjfUY9tmEQE_yZFPR-Gacrw.jpg" width="400"><br>
 
 ترامپ: در حال نابود کردن ارزش پول ایران هستم
 هم‌زمان با افزایش تنش‌ها در منطقه و انتشار گزارش‌هایی درباره احتمال از سرگیری حملات آمریکا علیه جمهوری اسلامی، دونالد ترامپ، رییس‌جمهوری آمریکا، تصویری را در تروث سوشال
@@ -19,7 +19,13 @@
 ترامپ توضیح یا اظهارنظر دیگری درباره این تصویر منتشر نکرد.
 @
 VahidOOnLine
-بیشتر از ۳۰ تا پست پشت سر هم منتشر کرده که بیشتر تصویر بدون متن هستند و چندتاش به ایران مرتبط هستند. مثلا تصویر ساخته شده با هوش مصنوعی درباره کشتی‌های غرق شده.
+دونالد ترامپ، رئیس جمهوری آمریکا، شامگاه شنبه دهم مرداد ماه، تصاویر ساخته با هوش مصنوعی را در شبکه تروث سوشال منتشر کرد که او را در لباس رزم جنگ استقلال آمریکا نشان می‌دهد. در مطلب دیگری، تصویری از ناوگان دریایی غرق شده جمهوری اسلامی در زمان ریاست جمهوری او دیده می‌شود.
+در یکی از این تصاویر ساختگی، ترامپ با پوشیدن لباس فرماندهان جنگ استقلال آمریکا و در میان دود و آتش نبرد به تصویر کشیده شده است. در تصویری دیگر تحت عنوان «۱۵۹ کشتی ایرانی»، شناورهای نظامی ایران در دوره رییسان جمهوری سابق آمریکا روی آب نشان داده شده‌اند، در حالی که در به دوره ترامپ، تمامی این شناورها در قعر دریا غرق  شده‌اند.
+این تصاویر در حالی منتشر می‌شوند که رسانه‌های مختلف از جمله
+شبکه ۱۲ تلویزیون اسرائیل
+از احتمال حمله گسترده ارتش آمریکا به ایران خبر داده‌اند.
+@
+VahidOOnLine
 📡
 @VahidOnline
 
