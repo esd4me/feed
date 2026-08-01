@@ -3,8 +3,23 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-01 20:20:55 </h5>
+<h5> 🟢 Updated at: 2026-08-01 21:23:39 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-01 21:20:25
+
+<img src="https://cdn1.telesco.pe/file/vIZo2kYSMZunYBh0cGhR_TLkAt46DrPYk--BcIIVM_PeIZE5XlE44dSdCKwKYBcf2FTEqRa7WycMEMIbQvnAWw6Et25N63qZowveSZ6yL9nJz2-IIZw7JmFK7met_F-87px91G72ID7MFeU-kIP_ZMgBwS59A9TD2DLz-aSDo-Kl5vOUmFVu-8QqZKNzJxwM0QtAotlQZXSVb6J46AkODdSWoKBpYvWxquKQZWjBtgZr-X4nwzMsM3OxnttKe47iBA9GhomyzoSbqzX2dGsU44j5XHHcn9ZZs7VT2iCUb_FCSxMBBFoanDNU2eJtpOasBBk6spsA9vmYwXKEX2idiw.jpg" width="400"><br>
+
+پست بدون متن ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77699)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-01 18:13:48
@@ -413,25 +428,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77678)
-
----
-
-
-
-###### 🔵 Post time: 2026-07-31 19:36:39
-
-<img src="https://cdn1.telesco.pe/file/J0s3aGFGJXmnhhmYDTa82-W6_j-WvTEpwb_bRL7irRi-V78g-rAg0_C2XmDRNtpVOrMM2QKop3mt4PI5m7dvbxaAHgxw2UARghE3euHgbD0GMke7Fd1XKc6iBaMM8HW_l0tSgRRTktH-9YMMSbLn_qNyhFpROCIzkAH8crhOu-m3X4dDcV66GuHht42uNI8XzK6LToL7Gg5vc1gsiCMMu7Pxpweqk2t_tL-jnfagL-FOnDMLHSxb9y7pi3t5Lk3u5A-0RF1HgEF5OGgHYT5UmBymf1jfLL41kHsa2x7-x0J-CiBK3_hLoeBpOpLCcBzRPH_ONDj0_TFz69crnlSDTQ.jpg" width="400"><br>
-
-پست سنتکام، ترجمه ماشین:
-🚫
-ادعا: دولت ایران بار دیگر مدعی شده است که تنگه هرمز را بسته است. این ادعا نادرست است.
-✅
-واقعیت: تنگه هرمز همچنان برای عبور کشتی‌های تجاری باز است. ایران کنترلی بر آن ندارد. طی چهار ماه گذشته، هزاران کشتی از این آبراه بین‌المللی عبور کرده‌اند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77677)
 
 ---
 
