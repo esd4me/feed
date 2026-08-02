@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-02 18:24:14 </h5>
+<h5> 🟢 Updated at: 2026-08-02 19:24:01 </h5>
 </div>
 
 
@@ -192,7 +192,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 18:13:48
 
-<img src="https://cdn4.telesco.pe/file/H0plL8q_gmZ2qV_6cpgkRLkYP94MVTc6aSeB3M0jEb4cjJyrfGuUyrhZxis2jbbhSvkWocWEXCgTDtcXdJquCWW8ig8DjWfvtbwlNY73j3uhNk4NEryLCbrFVkWAVhX0QCXcD3UN1hUjA-VBenKODjTnay8-N97rr_Wp96Jjy0WKWphZXVIDTHA3P8LJPTQb_jotCzSwvCU9OXh3R5blCeFbmBXZqa7CBzac4mW9-dD6jjcv5QmTXa8Xsh_tDnUPfw2jl1QdGXRlOWx0eBs3C_wYQpaoftAtUhFkXFFy1DcHldlm_wvsFatZd24dhEtBZN04axluY6EaZsihKKPzIg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/MI0TpF3zzRTycaWbizDNotCGJx_J15Xt-tns9u6OjWxRyEYTyAd-aIp5DN7KN8vSKuKjG7cj57GJ4JDvHJhyB2kKP1UPbszVSmvkuOTCeqSGNzLB0E8reS5LuhMLyGySV2zxeehIY7Fk0IcNa1zmgz4w870pSWncw9YMkQmXatXNaDDtOFJdew_9tfn0i0jzqegwuyMp4BxMkeV82djwuyCz8CKM7H9mGTosb0NX8Web3aUQ-jph_kjWvlkw_i-exSu_TF1EBCHVdG2eayoSgDD0IwRqXLGUkkic8sTxc2rxSXUEPq9qE6WyzJBv7IPdDfQHU36Qbd9W-vt9A6YZ5Q.jpg" width="400"><br>
 
 سحرگاه روز شنبه ۱۰ مرداد ۱۴۰۵، حکم اعدام آروین خیرخواهان، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در زندان شاهرود به اجرا درآمد. این جوان معترض، پیش‌تر از سوی شعبه یک دادگاه انقلاب شاهرود با اتهام «محاربه» به اعدام محکوم شده بود.
 به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، حکم اعدام آروین خیرخواهان حوالی ساعت چهار بامداد امروز اجرا شد.
@@ -231,7 +231,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-01 10:04:33
 
-<img src="https://cdn1.telesco.pe/file/c4i0TyoN50dmz8QujqNfm32cH17QtU1DCv1Iq18BXaPOtgEpTVM2InZMONSeAVrDw2vi78lNqd9W5_v4ujMIjeWO4U86YxgtY4fJV2NlAdJZ-QtW7Qok60aWvUouVAyBy5Sl9jXOnv7mRf2JNh7UcgBbRZc81N_zRHHFFVxw8ZD-iqaxYGKq3D_L0Zxavb9X2vz2ZqyyR7EF5wu_-TnLU7-qfePkQhpND-gV9INFpVGPH1myUS0qKqxsXQeMkNiy352nNrEq78ngUTBIqUSiMxgnilVQcPSj7x-TygThQS8gg3rF9f1t_w-Cn8rx451bzWGWA33vC8VKPFxP9FR-nA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/TqKhDK5NlJd6E51IY3QZMEpXZWhU8CGbjRxyaTR4qEvaXvycDjTIYITTOnXTbt4t_O2TNtwctP1QDgp72GW8EOSDShm7HtFTl5__EtoEGQHkeN86NKlG-_BVZ5QebQs7CH-q6AcEGSUxIiufkamBieErKSOz8rcmaEkIDCaxIrrBLn5ny6r7LDhnOjdsesyJG1LlDvFPKzBEDLM-WiS_AE_TuP-V6JJLVZvw72jpAOa0uce6RrIv8FyBG29gfrnDpDLjd3LovW29GjFoF2-ob7uOY88Exr0RV15zfnrnCWR3-6rTe76Z38aEUWpT7j7cjcD6AUIkIv-irGcyHf7p3A.jpg" width="400"><br>
 
 اکانت ارتش کویت، ترجمه ماشین:
 سامانه‌های پدافند هوایی کویت در حال مقابله با حملات پهپادهای متخاصم، در پی تجاوز جنایتکارانه ایران، هستند.
@@ -301,7 +301,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 03:06:09
 
-<img src="https://cdn1.telesco.pe/file/nOat_5GNwPwDM6tPXWKvPM5nif06dkoJ_5bpa2SSZe7Ys38TVsGF4a9Fr-Jzy-yxP32nsZWpGzcfMLWwNa0b3z0wdET6P6s0mJkeMVEZkhURRyHOPGa9VkuzlId_gyQTrdf0IOJfftij70x0A5bsCKInm-CGl8KWPLghzGUtnZu9fE0Q2h6v9nkRgfPhDI37ZN_EMZ2SvA43NZX6Gt3E4ceQvMEdQvGH62zvb6-KWnFJExxcarkHId76InWLPiSN-iYO-0qI3bR2CILDSyRHJZa_VJl4fX3d0ittGaYArdzV-jr-OfWCUaTKazIaZnCvmlMLNMKd4warWWavkk-wiA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/UkmdkZq7YOCyrjXcXS7E8lWM2dRvJgLzpKMUhaOcy-FU9DOh9DBhVW0wyVCD6bJjrLwuC0J__s-FrT0SmUuTjtlFrv79cJqrD285pB_8Hb9Brse3JMwiBr4cIY9Y8CFiwEEtABcocNiJDFI5egE0Tc9rsfICzkCGMBG_xAqAfrxHjOnLqpDd8GXdbuYTjmZ0ekTB-5eo_Rfcxqc7kdsf2JNDg2xD_tLUxjwmd4xNpedZR4CjOlZfrsYS2NtTCnG3xhTmbLKxOImLerNyI35Pc4cA6aLQ6LQWKwjMA6-a0nPkLcT0CHPWidCuQQ5DU7ZWIsM7cGX9im1c7jyRSP_YYw.jpg" width="400"><br>
 
 ♦️
 مقامات آمریکایی و اروپایی آگاه به «ان‌بی‌سی» گفتند که روسیه در حال به اشتراک‌گذاری اطلاعات ارزشمند الکترونیکی و ماهواره‌ای با ایران است که به تهران در جنگ جاری با ایالات متحده کمک می‌کند. به گفته این مقامات، ردیابی ماهواره‌ای و اطلاعات سیگنالی روسیه احتمالا ایران را قادر می‌سازد تا نیروهای آمریکایی را در حملات هوایی با دقت بیشتری هدف قرار دهد، دفاع هوایی خود را در برابر حملات ایالات متحده تقویت کند و در عملکرد تسلیحات ساخت آمریکا اختلال ایجاد نماید.
