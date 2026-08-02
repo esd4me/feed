@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-02 19:24:01 </h5>
+<h5> 🟢 Updated at: 2026-08-02 20:18:42 </h5>
 </div>
 
 
@@ -249,7 +249,7 @@ KuwaitArmyGHQ
 
 ###### 🔵 Post time: 2026-08-01 09:57:37
 
-<img src="https://cdn1.telesco.pe/file/INa_DjIZysslTWcgLn7UBm3k7Js_zJYX7IrPh-9RFVQ8eQFwnQu6Vb703mgkQEtBLgfqg_bP8aAtS-Oqy3u9hOujt5eGVnMbDc_NO5x_wRWiqANAL720eB3VO6Mi2djuG2-OqOhl-DLP433otVouDPT-XVY5s0qozpHPq246RGNqwsT-lRavNuNdlLMcH4TbkCqgiF99R6VnP5aVb-C370JXFi2-acX42blq8SciM8w_cVGVSA5kazFpzS4U07IaX0VSFbeg6_dprAt3jeNYh_aKUs_oY63EIanOwiTh0dMi0INf2SZXWwmVIHpPiTDkh20JZSWPqf-qU8yqildx6w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZF9zpYFSotVlZl2XRXzHF45fUgdCQm6voouJzI-aYjYMdzbglXOJ12-GIjl0w5h9bYd0yAAe8eczOv2_YeFTuYZfoMgW6DcC3yaPslg5v2qL7tYgWFbCj5K4BiqaVR-Us9zONY99gimjAm-IH0EC7lzQCUmc3nrIJMjvejX8ItrURvHd2YKWlN5vxO_vSTPrW2R42Wec_N8b5PinPFaciBh8QkTjys8hz-wUDTRoTLn5kXc_yP2Yee3xV26Tq-q0vrnaHULt0R6UENXzoNhx99nEBSs8KAXFQ4kuBQmrDKOU8KwGLRUZgYr9A6jNQrcNj86S0x0c6ZyrHHzPxUSUYQ.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا از وقوع یک حادثه دریایی در شمال شرق خصب عمان، در نزدیکی یک نفتکش گزارش داد.
 ساعاتی پیش نیز گزارش شد یک نفتکش در ۱۱ مایل دریایی شمال شرقی لیما، در مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
@@ -318,7 +318,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 01:02:50
 
-<img src="https://cdn1.telesco.pe/file/v5Lo66P31BC4I7DNFX2CKo8Dd5ML3K6_z4yCvotb-hyxmP-kJUEXL2nuHR_Ilh_HdaN7QFaHAYPjRQWH_icdzHlz3AMcrYpmoSVn0VsUiganVgfWx4_dNLA8JGZRIF-Ds8BGenkZ5JgvQx0gruqR5Ik1MaZHA9mbb1AePfOz63HPiyWUn75Lr36uX1a-YtQZ35kEIxhPjd-IwBBSDC3W6HImPqY0pJCf3VF9OScaE26k4L7sONo_US5j6hXTSYmdLCnBjF74pBSJtXpvBzU0EF5r4Dqy-mfXhBU1Bqsp_3W00B5Yo3F_wJ-8UvDxfYBD7pxb_zYQsN-FOysgFRnAhA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/N237jlvKnuqjFyHAUAJhpsaBsb0N8X_BcW3CqE3LEiAABY4aCwRPVy_mqQO4XaVW86AK6S4Dz2TtFqcnQM0aI5vDojxZnZEmUdIuqqC__RW7NM77SO2U1MzhYHSxh7z5Iekno-6Fv2OwR9pnaTTtUCsjO4UCCZOYk30qNAb3G8QKVhfazB9Snv2BUNv5n3QNSNDJC1AAdxs2_7cCdAZjBZPUjN2PpHl0zv9XlQE-Hd6O6B-NQYG-XJ4tgaOOTOzZnQboryry4tftE6Pyz5tjLcEurpiGq5lrPcqtk2dc7wDZ9TRNPh7uFHFajvZmOaVv30vtoTtV65yULHewK46wjg.jpg" width="400"><br>
 
 "
 ترامپ دستور حمله‌ای تازه به ایران را صادر کرد
@@ -395,7 +395,7 @@ cbsnews
 
 ###### 🔵 Post time: 2026-08-01 00:30:43
 
-<img src="https://cdn1.telesco.pe/file/gUvsDpH39WHUyhYo0WB03xEwxriQgcDUjYGN5lvtVPAKgaXLO8nBesgdzCNlg3QME6amU3ALmpf8jpC8Bk2EK17yjnwEdCUWmXdwNm4rfzXKegr00-KRbfHKtPw0fOVehkZH85nwt2_EwImGqFG4ONON726t7gtxBeiECUZuael69Pcuhu_5ldKoneG8bhwH3Ee_DhlTrRTNROMVJRlGaWrkIRWy2DZ7bFSDLLUybTW0rwItS_EhqbAxHNsuKLPBNh_Kj142FXuRrC3cZZfK-gP_AHcsZQ9Av4iv8b3QEYA_KH0uC5cMXgLzESb-aPFt3Eii9xqff9nSF9vpcPXgTw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZDa6LxJiKOTsrRR1bJuzTDQqDUDOzknGdwYShTqi54qYgE0Ju5ojuKbJkp57x_g-n9qAjLFoNuUNH6WnFTDZkAGHDvqrbxxvVen5BwBxVQ3IT1ZHLmF4jLzKETchRd2h-VFUgbH58apfDBg0gheJv67HjddblFmPHcKl1ry75EH9LMW9yc4j1aIzBEEX54VdU8wsGfq2HOEPiZoNAqjucfAHtJKawnOgiV5GSlQbxjZxZaGLZUAqBvrkdRm6PriED9SNkRrs2IYkUjzj8ExUFeVQaey0Vt_SB5ilImkH1LXuUhpNI6HqVVU21piNRsCy9qc1oGjLmySYXIS2IziDhw.jpg" width="400"><br>
 
 ایتالیا پس از بحران مهاجران در سبته، اجرای نظام تردد آزاد در منطقه شنگن با اسپانیا را به‌طور موقت تعلیق کرد. این اقدام پس از آن انجام شد که مقام‌های اسپانیا روز جمعه اعلام کردند بیش از ۶۰ هزار نفر طی ۲۴ ساعت از طریق زمین و دریا وارد سبته شده‌اند. به گفته مقام‌های…
 
