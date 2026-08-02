@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-02 08:49:01 </h5>
+<h5> 🟢 Updated at: 2026-08-02 11:36:54 </h5>
 </div>
 
 
@@ -206,7 +206,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 09:56:16
 
-<img src="https://cdn1.telesco.pe/file/Ryp-35HT_g64F7pgHDtIzXVwMUHNUsfn-fG3noQvEGWWysCMHFyVr6UX65PWrdG_oSafFNjttK_jRTr88spmqPgt8i2dZxWPTQnBQHLFV1HuRRe09y0vhNtrJdhY8Tn8AgdAU_txY0x__19fhgKducX4W9mOnpr-K78Ruxq4NdUGpVo2zTt-vTkqSrT_rUtvYol44i_jIEpR9733YHLjMcSyDMBE8KHlHrjMWQSi2_CxNd06WrEyZG9Gd7mymaQm4dwIZ1y11Flv3wAIlgsIsg4mDuxBt47U0QJ9LPHa_6GE2R0LIqIdAqmQ717ntkz-lFouL2AiMss0WKLyPyeQJQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/PSWd0dBp1HhPyNEVRNZzLwK3XHKpSP-2g4-i_0EmeX5cm4kvp94B6Q_eQXwqF2bvQzEu9MZ_YLp2_gWcihcuB3Mlz5rfhuCqGywLiJrr4RUzjeAnSgQrckKk7eRIeYlc6tEd7kLYzu5SH6Q0MEt_W4FFY3Z4OF759gY9Iqd43NDwYQeCbujc4gnSds3ddFvrDwBSZbbcsMQrM4rjqBQzH7q5ZrRos_ZnPUqyQIh_-nWHEmaxZMK6ovACTisjvGyq7AqI9iLd9a2ofyCIvZHFig74Z7Sa0rZL9obfVylAKSEkwUmPps92EWBO5n8LDXEfQoBVjFBocZmQQ7iHbvOI6w.jpg" width="400"><br>
 
 محمدباقر قالیباف، رییس مجلس گفت: در روز اول جنگ در ۹ اسفند، ما یک‌ساعت بعد از بمباران فهمیدیم که رهبرمان کشته شده است.
 او ادامه داد: تا ما توانستیم سران قوه را جمع کنیم و لاریجانی هم بیاید، ساعت هشت شب شد، آن جا تصمیم گرفتیم اعلام خبر مرگ رهبری صبح فردایش باشد. بعد این جلسه هم سریع پراکنده شدیم.
@@ -225,7 +225,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 07:02:39
 
-<img src="https://cdn1.telesco.pe/file/lbxn7IddwtWdRLxHfh76Febx1BpzLik394M4H83D3_F7tWpZ3IYHyS7RzYf6Ld_uCKdyolhgr9veMA8sVzvgCBGrpM0822KP3TP4LQtBOxXTVPvFlQa4oGJOMcHM55GKR4OhnONyCqu5Y0SPmFZq71vD1JqdtgqGU0pXPUiE1dJESyd-zrqLmEK-DKk_P75O3szddD88eT_phY4NurRFWwdGD_henRm-p0_b9AuBRp5-AI7oYEHt1dHTiZAvEv1s9Si8NKazkCP_OV57641FoNz2kLsHgB4UCfz_UpW883cqoeIXPznWjBs2cshK5VM0DPODj-dhBfzdXr9AKenGFA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/D1TZPjDf2Py3ETIRdZ5S2OZvnI0UzjJH4-2bFSohfaHuwvcZOsy4tvpiEvWNnOsKbWILBeQLrj9HoNtrqjEMI4OMCZX-6sV3d_pAtip0gGxUhGfJFRA7KRfDv7PDU4y42U2012MKImdzwaTuCtuNrm-4DDc0dI4n1qiCCBcgyXIznFtVGuGzXzdoju11HvQett5H8J9aMm144iPIoGCZGsyqd-lvI6HcVd-n_p14kPlhPsfnbWxxXeW0r86RTvMJOLsQvTtSdy3CTvuZtpKGI7oeKVYDE_7lBur__tAvpIbb-rs1ZMqQLgECdFZKEL1SQW2jKvJtPdrIwWSPE6LPmg.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در حدود ۱۱ مایل دریایی (بیش از ۲۰ کیلومتری) شمال شرقی لیما، در استان مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
 @
