@@ -3,8 +3,32 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-02 05:24:17 </h5>
+<h5> 🟢 Updated at: 2026-08-02 08:49:01 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-02 05:50:13
+
+<img src="https://cdn1.telesco.pe/file/XTQW-N4x7FP_bmC7uA-Gg6T61rAWT9Fp6lnoqnkNDNmOTFa7TnRDdwN2jk2AOfP7nYBYfiWS0fEd4RUJwWVox_GlDRjHRwvd9p0vEf45yUvF2XbZR9_yassbbwxsNLwBfFLAtXpHyA2rRC2g8KL2caan3sGfBGET-rZ8-IHS9KbgHhjpRVmEcdd9HGL4EnNs3JvgT71L3T_hGXg7Ft9W9m3skVufTebgN78nB5bE_6jV3WukAcd84a3k7oqXwtv9-8OaoUDj5SW2-gHmR3DX6UFfZXTfiT3CcOCC5mHe0BK7OyhaSbDn1sz0Ms6P2mR-pSwLtpI6q00gv4Jg8svYVw.jpg" width="400"><br>
+
+ترامپ: به درخواست ایران و کشورهای منطقه، حمله را برای فراهم شدن زمینه توافق، متوقف کردم
+ترجمه ماشین:
+ایالات متحده کاملاً مسلح و آماده است تا با جمهوری اسلامی ایران مقابله کند؛ با سطحی از رعب نظامی، توان و قدرت که از زمان جنگ جهانی دوم تاکنون دیده نشده است.
+با وجود این، ایران و دیگر کشورهای خاورمیانه همین حالا از ما خواسته‌اند که از هرگونه حمله دست نگه داریم، زیرا بر سر چارچوب‌های یک توافق تفاهم حاصل شده است.
+این توافق شامل بازگشایی فوری، کامل و تمام‌عیار تنگه هرمز و پایان دادن به تهدید هسته‌ای ایران خواهد بود.
+بر اساس این درخواست، برای منافع آینده جهان و همچنین بقای ایرانی موفق و مرفه، موافقت کرده‌ام که حمله را لغو کنم، مشروط بر اینکه بتوانیم به‌سرعت به یک توافق دست پیدا کنیم.
+کشور اسرائیل نیز در این تعهد با من همراه است.
+همه دست‌به‌کار شوید و کار را تمام کنید. از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+The U.S.A. is locked and loaded and ready to go against the Islamic Republic of Iran, at levels of Military Terror, Strength, and Power not seen since World War II. Despite this, we have just been asked by Iran, and other Middle Eastern Countries, to hold off any attack in that the perimeters of a deal has been agreed to. This would include the Immediate, Complete, and Total OPENING OF THE HORMUZ STRAIT, and an end to Iran’s  nuclear threat. Based on this request, I have agreed, for the future benefit of the WORLD and, likewise, the survival of a successful and prosperous Iran, to cancel the attack, subject to being able to rapidly make a DEAL. The Country of Israel joins me in this commitment. Get to work, everybody, and get it DONE. Thank you for your attention to this matter! President DONALD J. TRUMP
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77702)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-02 03:28:17
