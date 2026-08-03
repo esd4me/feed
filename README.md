@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-03 05:26:47 </h5>
+<h5> 🟢 Updated at: 2026-08-03 09:10:45 </h5>
 </div>
 
 
@@ -202,7 +202,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-02 05:50:13
 
-<img src="https://cdn1.telesco.pe/file/XTQW-N4x7FP_bmC7uA-Gg6T61rAWT9Fp6lnoqnkNDNmOTFa7TnRDdwN2jk2AOfP7nYBYfiWS0fEd4RUJwWVox_GlDRjHRwvd9p0vEf45yUvF2XbZR9_yassbbwxsNLwBfFLAtXpHyA2rRC2g8KL2caan3sGfBGET-rZ8-IHS9KbgHhjpRVmEcdd9HGL4EnNs3JvgT71L3T_hGXg7Ft9W9m3skVufTebgN78nB5bE_6jV3WukAcd84a3k7oqXwtv9-8OaoUDj5SW2-gHmR3DX6UFfZXTfiT3CcOCC5mHe0BK7OyhaSbDn1sz0Ms6P2mR-pSwLtpI6q00gv4Jg8svYVw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Arvee4Ie3jW38snOCHJuygD5tgcI0CiIsBDbAU52xUG0IX9tBZRZDJG0PU_hgsd5yB3ml7I5Yq_SxbrsgaXwzv3Ch62XAox41mczzvOytuxV0OWMfUKNc0-IL3yJenMpUgExqYpeEWufXYeDPeaTXFX6-S6PQn3MeSh_SxtKhF6EAFbz97ztq20cfN1bmZRNeS0SkEbQgNEZnsC8Riwl3LPwdTnrsYKuLQ6flJ2yHEuL1AZ3LbZPx8anlQZjb-7XObcwZUtizHTTsQUZ5pj4FZYNLPFARBthuOlUKbKn0ZZVYWpfthrWVh0kf5kgf2ueU5gatiEOWDKFwewM5rLhmw.jpg" width="400"><br>
 
 ترامپ: به درخواست ایران و کشورهای منطقه، حمله را برای فراهم شدن زمینه توافق، متوقف کردم
 ترجمه ماشین:
@@ -296,7 +296,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 21:20:25
 
-<img src="https://cdn1.telesco.pe/file/GLBTEoVFxsNrIupd8nUmX1Lkw8fc0zjCi1Dz0B9xD9nk3U9ugLEAPyEOdpB-r0WQE95YV6aktlaUvqn862QbwMxOFEzah5yb9gmtuzWYFCYWueyfy3yHIDjtzo4XagZbNmD67qM8vsDo0qZtjS4oA7PSqLg0vESzNsSg0WuxiGB2K_CaBanzpPW-BDbwYdUTzGXtuQwyRcnbLRXMTyzTdGHlcPK6rol3o4B3La_tdlEHwOmpx2_SPVsyh_wZmp29fRfxxLW9nQdCdcyeCQ6dFNGs72FJSUvlT2dDmHXJ6kH8BFdD0P6qyWwRtgRWlhnD2A6NyxiCa-mN18h_Fn21Lg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JhJOhWzcR26Aw4rgcuas6jnmIRCJ51w0sV3BAjBT0Fo6uJC11-1e24hm-DiJbraO0xzFXEq4yVrWDtzKwcJyo1Uj4e2Yg0ek1BzMhBqlAqhS5Dtm1Kdh73YJbJfqmH9jrmbtSqa_0kJOhQOslVMQ0x_NJNDQZgzvyi97J9tO2YK5nKJMF5ATI7lKahjHzmutp7OS_utoAXflrq3yBjAKzqzVfthxV8qk2-jniswF88yY5nsfTMsRYaNbp9YnrXSw9GzR1FFtf9l2ElTrINvBL6tLqYhLJfEw8oDEQjjAbx-aJBjvCPsqFFyHIaQdH04TJqI1Aul544_oPsbuZaOOZg.jpg" width="400"><br>
 
 تصویر پست ترامپ:
 ترامپ در حال نابود کردن ارزش پول ایران است
