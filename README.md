@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-03 09:10:45 </h5>
+<h5> 🟢 Updated at: 2026-08-03 12:54:07 </h5>
 </div>
 
 
@@ -164,7 +164,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-02 17:16:10
 
-<img src="https://cdn1.telesco.pe/file/JHwVBg1eUY_b6nngltfkEudkZuRlrQpyOUCGXcUsyWWcc5gUuS7V62vONgjxochJxMIcpjVfKisOCHQLJKyK9iUJnTnC2R9tBCu0cLgh9WKUMHik8d2zkpUa1KLbxc1Y_hfFs55pV3i0BA6m6CC-X47YWF4bt3e7WbTLVJddFFDQ7j6w9DOvsLXZBYBeVt3NbBeFnMQakuikLa2fsMdE6g4PS0dhc_vGNxfVd1kewVnWM6Y9xb-fdN7nvQ99hZGd9bCciD_fB45FznhieOT0reirwP05GkeHnTAgg0mY2dE02VJTxJXYkfTZ544zfYQtezIhT4RrkYnpVl_Lfi3Ivw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/KK0bwzGAUZAmfuxBmpsIOWHzwiEBN_J2pEeShkHYaYc8DcAfDjNw_lresqc83XwMTd-5A99pF1xA99YGcrUlkKKRXG6wJk-ZhLcFfLfAtAKNcW-A_BegAvaQRyECucxvivtkUxrZYKXX7nWCNM0GK4XAq8VRNfVxCedmIIK-QZyrQZZ_w7CV9AP6HODRNT8Wn8vgrfvCqFFKK8EhCuemTcYZjXP4ZIyZGt7hYcV1iL-CMjSZEUL7_Zu4efbIHHMv6sCCHZGq_D8BVOuQhliXH9CQBE6uc-HBwm5anL_zn8rAAKy3mKXI90DF4pF-lHN8E73K-COCybGUv76ekMyMjQ.jpg" width="400"><br>
 
 مارکو روبیو، وزیر خارجه آمریکا، در مصاحبه‌ای با فاکس نیوز که لارا ترامپ، عروس رئیس‌جمهور آمریکا، انجام داد، گفت حتی اگر در تهران به‌طور رسمی «تغییر رژیم» رخ ندهد، حکومت ایران «باید» روش خود را تغییر دهد.
 وقتی از روبیو پرسیده شد آیا واشینگتن می‌تواند بدون تغییر رژیم در تهران، ایران را «هسته‌ای‌زدایی» کند، او گفت:
@@ -399,7 +399,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 09:56:16
 
-<img src="https://cdn1.telesco.pe/file/PSWd0dBp1HhPyNEVRNZzLwK3XHKpSP-2g4-i_0EmeX5cm4kvp94B6Q_eQXwqF2bvQzEu9MZ_YLp2_gWcihcuB3Mlz5rfhuCqGywLiJrr4RUzjeAnSgQrckKk7eRIeYlc6tEd7kLYzu5SH6Q0MEt_W4FFY3Z4OF759gY9Iqd43NDwYQeCbujc4gnSds3ddFvrDwBSZbbcsMQrM4rjqBQzH7q5ZrRos_ZnPUqyQIh_-nWHEmaxZMK6ovACTisjvGyq7AqI9iLd9a2ofyCIvZHFig74Z7Sa0rZL9obfVylAKSEkwUmPps92EWBO5n8LDXEfQoBVjFBocZmQQ7iHbvOI6w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/lvQiDLrKubh6MNWXNg6Ke5omiPT9-GlWS2me3wtPbTvP3zFmu1hsIXqaaHBeRGM52PGyNIffH4Dn8AeMP_YSwfwFnchBE60VBdWqK01h8L_oO7mi7jzXfenQE214K7dliGQSqpRZlX--TgA5iAxYEbEbKB58SmhF6-3cRPadgwamroSoW9znnJWRxHPutnlUEDUqIwCkISBXIIannDD4DbGR4rQYBFyGDDAmdBs4kPn9xeBCCIa8WqkTczejulRBPqO7q7-ncjDcxrWr4ssmWnzXFNDFkXTfz1HsiE93G_vt50V7mCXFCNZgMMU93Lp9KQul-kkb75qz3DChk2cudg.jpg" width="400"><br>
 
 محمدباقر قالیباف، رییس مجلس گفت: در روز اول جنگ در ۹ اسفند، ما یک‌ساعت بعد از بمباران فهمیدیم که رهبرمان کشته شده است.
 او ادامه داد: تا ما توانستیم سران قوه را جمع کنیم و لاریجانی هم بیاید، ساعت هشت شب شد، آن جا تصمیم گرفتیم اعلام خبر مرگ رهبری صبح فردایش باشد. بعد این جلسه هم سریع پراکنده شدیم.
@@ -418,7 +418,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-01 07:02:39
 
-<img src="https://cdn1.telesco.pe/file/D1TZPjDf2Py3ETIRdZ5S2OZvnI0UzjJH4-2bFSohfaHuwvcZOsy4tvpiEvWNnOsKbWILBeQLrj9HoNtrqjEMI4OMCZX-6sV3d_pAtip0gGxUhGfJFRA7KRfDv7PDU4y42U2012MKImdzwaTuCtuNrm-4DDc0dI4n1qiCCBcgyXIznFtVGuGzXzdoju11HvQett5H8J9aMm144iPIoGCZGsyqd-lvI6HcVd-n_p14kPlhPsfnbWxxXeW0r86RTvMJOLsQvTtSdy3CTvuZtpKGI7oeKVYDE_7lBur__tAvpIbb-rs1ZMqQLgECdFZKEL1SQW2jKvJtPdrIwWSPE6LPmg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/inlOdJl-tzRUS5LmzT8-CdWn_PY3ySEiWkqlRQSj8MLivc4cyATJUe2xyBFfEn-HbX7o7Lt8EOKpF1vJs_-4kSKMA4GqvXVLW0sBE_IsT16rf710PJKJRu8Iv1Bqy94dr245RLJa6xEZ2umd4DVWOYBp-0s49KgtzO6SiKsre5StcYnGGSE1WnZRGK7Wgxq9Xn566oLeTpDTW0pQcXN70Ri2efg8ZV8QCGn9tSekBIpeC3EiYFmf-NP9yKfq0EaJ47IQj2LHIVYd-1F8wElyHDsTFMESmU0uMzGSvCARFPNn515ABqgBspZJzLxu7Pe_j-yHBU1HlgIDG0wdzPXnTA.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در حدود ۱۱ مایل دریایی (بیش از ۲۰ کیلومتری) شمال شرقی لیما، در استان مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
 @
