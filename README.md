@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-03 03:21:30 </h5>
+<h5> 🟢 Updated at: 2026-08-03 05:26:47 </h5>
 </div>
 
 
@@ -226,7 +226,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-02 03:28:17
 
-<img src="https://cdn1.telesco.pe/file/HiKbshyHzvJAs57mHRUvRJVndNuCsZ7xaHrLTo8H5GFMZLngocIG0fSAVMgI8NI2oLhDcHNmJQwih4lkCnCyDPjbnbk-QBUhu1s2fVOpZudDufWcQOMFe2L5XKs3VlxeWhu0i78auSaDW-8-UAKYRwnXKP3OizMNDdOVXFpAEAAPRg6ciFY6ezDOxhOd0gqUejoMKJWwhLBg_uHl374GiM3AnIkOdgpn8vuviS5vJNpJ83Oftw3j3kwWV4AigofO5ZnAt-LBTIdf4T9km2-X7zdr0agTIucfx9qnpbZa2Rrhedfo-wwnw4-tuGwWqrSbo8Nxhc1XHc6mdEwvvxt-Rw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/sopmPNKFf1vMwp5ZsSWj5iChq1RqaQJKZcpl5IRduwikfN5bJ-CZqIkC8Pe3WSa5YT3D9hZD56NJEjzMiK70FKOPw1ASrZZ42lV0wQJd6ddd-0-ZTXGEDbPxeNfuRV0Y2byEL1OXocBh2t638wKvcWVlw3V3_RSXkc_F622LHA6kOS7Fd_9BbJA-BpgZ0y0OxuHOKtceW6bl0FguyzqgFJlYb50e96XYZpyle_K87LaGM7qmFu479HKmXlf-AisCSZV4Ag-vlsv2fmFdqnfAchuekYa0FrpNbjXge47_EdKa0vjwaMPFSqabI7obzMN9w5i43E8gYXZAJdlFXLhilA.jpg" width="400"><br>
 
 محمد بن سلمان درباره برنامه‌های ترامپ برای حملات گسترده به ایران ابراز نگرانی کرد
 اختصاصی
