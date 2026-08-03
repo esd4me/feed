@@ -3,8 +3,143 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-03 16:20:47 </h5>
+<h5> 🟢 Updated at: 2026-08-03 19:08:25 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-03 17:22:14
+
+<img src="https://cdn4.telesco.pe/file/UfxVCSqJ8yWo2_FH2xJGM0VAyqBKGVPTUhZBBYxer2HTGUcQQG6jTHqLZ0mZPxhDbsUOg9JfdVpd5v8mHLEcA9RrgDKvaqYxLkOpdckglqu_86EhMA4lk6QoNZbdwxjVKA9AKbYKYEAMj_1wjLShwFtAQ1XVc66rzwEX84wOyM5SduX4BWcxiEpFy-386Kpa72liGJcqRke7peNYJFbWpmZ0RzERf_CNYlgk9k5FPAXU_ZHDm_VfSP4vww1lsNAhyWp5v-MpuI3ypHRJFTnnDmVsAAzdMYw6sdC2gHYCN6tBZ1PBhx548g1ayDDD_3XEhTKEYySdcvV6NrCQ4hsmoA.jpg" width="400"><br>
+
+علی‌رغم افزایش امیدها برای دستیابی به پایان درگیری‌ها میان اسرائیل و گروه‌های فلسطینی، مقامات امدادی غزه اعلام کردند حملات هوایی اسرائیل برای دومین روز پیاپی به مناطق مختلف این منطقه در روز یکشنبه یازدهم مرداد، جان دست‌کم ۱۸ فلسطینی را گرفت.
+به گفته مقام‌های بهداشتی فلسطینی، از بامداد یکشنبه، جنگنده‌های اسرائیلی شهر غزه در شمال، شهر دیرالبلح در مرکز و منطقه خان‌یونس در جنوب نوار غزه را هدف قرار دادند که بیشترین شمار تلفات روزانه در چند هفته اخیر را بر جا گذاشت.
+این در حالی است که دونالد ترامپ، رئیس‌جمهور آمریکا، از دستیابی به یک پیشرفت در تلاش‌ها برای اجرای توافق آتش‌بس سال گذشته خبر داده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77719)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-03 17:20:43
+
+<img src="https://cdn4.telesco.pe/file/ZqhT9Y1jrYE6jdNph7mNRJAs1T1665juOcrnnNw9Jjq2vCWiRoeS8wilIoBsqmEtVsXdI4mjKUy0YHebIEQlehm44eoA8t10CkCPoNB8TCdwPKMBzSC5FJbItoIsOL9TxpxoEKuzb_IvMaPKgnhpPQWT170Ox_Fzicqz4I5MEWXrBpy5Sl73TZVOWKd9lVo8zknw8hK6Mtmlk0BLUSS4Ck6s5t2ZJ-hNzbELjfqa1JfY0JgKwVT3VF34UlVi8lCbK2DNuXjBM9q53IupAW0FUotKVjeyRQo_jSoXQehsB78XDvjzfyIOXQorbpwP_BN2dYCG4MKAY1HbXrln5B0ZcQ.jpg" width="400"><br>
+
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، روز دوشنبه ۱۲ مردادماه گزارش کرد که «سامانه نوین پدافند پیشرفته نیروی هوافضای سپاه» یک پهپاد ام‌کیو۹ را در آسمان تنگه هرمز رهگیری کرده و «مورد اصابت» قرار داده است.
+این خبر در حالی اعلام می‌شود که دونالد ترامپ، رئیس جمهوری آمریکا از توقف طرح یک حمله بزرگ به ایران به شرط توافق برای بازگشایی تنگه هرمز و اطمینان از دست نیافتن ایران به سلاح هسته‌ای خبر داده بود.
+مرکز فرماندهی ایالات متحده (سنتکام) هنوز واکنشی به این خبر نشان نداده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77718)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-03 17:19:35
+
+<img src="https://cdn1.telesco.pe/file/KK-QELJPhR657AfEXruYUabD-IYklbLFsxNBYP3chCurcx7MzYcX0X3opPP6-i-2JIrTxxrc9W6ejQ5ZTKpRpFfcsOKLfo851ovrwCrTugo5o22_hhb4EcmwfJ6lNfq9Tl7qdYSmfXePHluxFt7CqoAe2UCN5DOGCULyQ0bLz7SDXvsGvVlOheRE67gac3dISjEXd8_qEQz0iU8j0oHdS2Ie0lqtwxuSZ1G4LH4g3p9dsUk2lIN9Wug7RzGvdtdUXSzJ7gY7MUo4FeAnsBwrUhlegW_BwJUl53vYOZ8KdVzck-N4nphj131rJwLsb1l0CIhnSAr5uM3TyQf3jX9McA.jpg" width="400"><br>
+
+سخنگوی وزارت خارجه جمهوری اسلامی، می‌گوید در حال حاضر مذاکره‌ای بین ایران و آمریکا در جریان نیست.
+اسماعیل بقائی در نشست هفتگی خود با خبرنگاران در روز دوشنبه ۱۲ مرداد، افزود آنچه در حال حاضر در جریان است، مذاکرات دو جانبه و بین دو دولت ساحلی ایران و عمان است.
+او  می‌گوید که «حضور دیگران در این مذاکرات می‌تواند سازنده یا مخرب باشد اما موضوع بین ایران و عمان است.»
+اظهارات او در شرایطی بیان می‌شود که دونالد ترامپ، رئیس‌جمهور آمریکا، اعلام کرده که مذاکرات با ایران بعدازظهر دوشنبه ۱۲ مرداد آغاز خواهد شد.
+با این حال او روز یکشنبه، هنگام بازگشت از تعطیلات آخر هفته در نیوجرسی به واشینگتن، به خبرنگاران توضیح نداد این مذاکرات در کجا برگزار می‌شود یا چه کسانی در آن شرکت خواهند کرد.
+@
+VahidHeadline
+سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس می‌گوید در حال حاضر «هیچ بحثی» برای مذاکره با آمریکا در دستور کار قرار ندارد.
+حسن قشقاوی در گفت‌و‌گویی که خبرگزاری دانشجو منتشر کرده، افزوده که حکومت ایران به‌ویژه در پرونده هسته‌ای، با واشینگتن مذاکره نمی‌کند.
+او بدون اشاره به جزئیات افزود: «حتی در مسیر‌های احتمالی دیگر نیز بحث هسته‌ای مطرح نبوده و آینده این پرونده در متون مربوطه کاملاً روشن است».
+این نماینده مجلس، اولویت فعلی جمهوری اسلامی را «لغو تحریم‌های اولیه و ثانویه در کنگره و بازگرداندن اموال بلوکه‌شده ایران» عنوان کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77716)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-03 17:18:39
+
+<img src="https://cdn4.telesco.pe/file/V8TK-JvHxfui-8-Dxl7IMCg9vdFixAI2BtQwVszFM7h5EO8u9qg-hmSroW1zrBd0lptbVWYK4MmdHWxsIbOrQmZUK0uRW_PGkXt2rJJz9oz2UvTyuANFwkbByHM3tERrSxcL6Pt9E_0i82elyr3257bQ7w0oB6vN1iZMdqy3WXBwTH9bh6Qtb5-wEPIQMuIuGSeMAqhR83DqMwnxfrMdO3CkL3CRJKfFptxcZRc0ldngehba7AphGlPwm68BBTLVGKlSywIAscNcZQxJuHkK211Qb4jjqvzB7aJ8eGQVmf0uq-uMhwPXbgT_uI7hQuKfb_rTDYYVcS2ii-rOyt8xyQ.jpg" width="400"><br>
+
+وزیر جنگ آمریکا، روز یکشنبه ۱۲ مردا گفت نیروهای این کشور همچنان در آماده‌باش هستند و آمادگی اقدام دارند؛ اظهاراتی که نشان می‌دهد تصمیم دونالد ترامپ، رئیس‌جمهوری آمریکا، برای به‌تعویق انداختن حمله به ایران، تأثیری بر آمادگی نظامی نگذاشته است.
+پیت هگست در شبکه اجتماعی ایکس و در کنار انتشار ویدئویی از رئیس‌جمهوری آمریکا نوشت: «وزارت جنگ آماده اقدام بود و همچنان در سطحی که از زمان جنگ جهانی دوم دیده نشده، آماده است.» هگست سپس گفت ارتش «کاملاً مسلح و آماده شلیک» است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77715)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-03 17:15:40
+
+<img src="https://cdn4.telesco.pe/file/mYp73IBRojTSfW7MD2ByBdP_gJaSUGTlHbZu6xOP0NapkLZM1jtAG5zM6NFAfQObdMrWZqaC5EU5KPYAtRlcotG8KI_c4jhxCGlCdn0JRbfwxrwuuttrLLoPhpRoGD7bqdWxxrX00f3M9N6BIeTcKnvf9-HotcYOLRdVGmUujMsdaTJOr_X0kWmCdIADUoGrFVxbyz-E9mnb3obqC5HGZq1DWk7ZHl8OaO5xCprGmUJob62Qee_SsUd6Yv_d_QdjjjlIetvNKvxMs9OtuEN-AH2qT84QptDq2ppdkWuDpyJt6kIKxKlO4jYwsmNnZDxyl1MOiNRadrRFy-PjJP0q-w.jpg" width="400"><br>
+
+‌
+خبرگزاری فارس از کشف یک خط لوله ۹۰۰ متری غیرمجاز انتقال نفت در استان بوشهر خبر داده و نوشته این لوله نفت سرقت شده را به مخزنی زیرزمینی منتقل می‌کرده است.
+به گزارش فارس، فرماندۀ انتظامی استان بوشهر گفته است: «انشعابی با لولۀ ۴۲ اینچی به طول ۹۰۰ متر، و مخزن زیرزمینی ذخیرۀ نفت در شهرستان دشتی استان بوشهر شناسایی» شده است.
+این مقام محلی به فارس گفت که «تاکنون بیش از ۵۰ هزار لیتر نفت خام به ارزش ۵۰ میلیارد ریال کشف و تجهیزات» مرتبط با این خط لوله غیرمجاز توقیف شده است.
+در این گزارش به مشخصات فرد یا گروهی که در احداث و بهره‌برداری از این خط لوله غیرمجاز نقش داشته‌اند اشاره‌ای نشده است و معلوم نیست آیا آنها شناسایی و تحت تعقیب قرار گرفته‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77714)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-03 17:14:54
+
+<img src="https://cdn4.telesco.pe/file/L7hbIL2ioXBuVT-K_rvczwJaRtLop5hsmUeBxe89Q3l33DQoWaU1j6hWTqKDp9iTARUe6HCrMmYjqRTL72yK4hbHQlNNPbrLB5WvkJL93MvvwrlNP7imy4T2uf3cehkBvIvyUJ10LsTMvI_GsYXsmilK4Cje9aQneJPsBat5C6Whp90A9gwuYI_6zm89iC9m7Z9_dQvpMZBacO446o7xDnNhxOYh-GYxf7V1dXNUYdoBfPO6fDM5ZWlTu3lbf5TxbCg4j6nPzNU9AzDV4j2VTbZtIsNtrWM_xR7WDSTt1S0qR9iZ72by_859BNw4v3lWueGapCpq-Rx10no0dQalIw.jpg" width="400"><br>
+
+قیمت جهانی نفت دوشنبه ۱۲مرداد۱۴۰۵ پس از اعلام «دونالد ترامپ» مبنی بر توقف حمله نظامی آمریکا به ایران و آغاز دور تازه مذاکرات میان دو کشور، بیش از پنج درصد کاهش یافت.
+خبرگزاری «رویترز» گزارش داده که بازارهای جهانی، کاهش احتمال درگیری نظامی در خاورمیانه و افزایش امید به دستیابی به توافق میان تهران و واشنگتن را مهم‌ترین عامل افت قیمت نفت می‌دانند. به نوشته این خبرگزاری، نگرانی معامله گران از اختلال در عرضه نفت و بسته شدن احتمالی تنگه هرمز، پس از اظهارات ترامپ کاهش یافته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77713)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-03 17:13:41
+
+<img src="https://cdn1.telesco.pe/file/bkrMkAENiGT_EbeqkdcQfm0h_NRv9ph0WmzT1SGmENrmIE7Jl17kQPc-_tPOIq7Fn4qBh8Yn9EZ8bctrB6SoR31RXFmodgfXQw4Pny6sFkWFBmL1LCLKctj8fjbAqmB7AB8V4j6fABTRMDAl21O4leC5vJIZxwt-exWJRAr2x2ezL7cscw91ZUYRF-z4re-UBgrdG3qNW-I6gOaQhPMh2z_m_qfpX_vZbx_T7YhZzos2A7DZRzd-qH-zGhyLo1476HmYhgZgep2QmKV0V1SVnQCYcPyoBr4SV1KRl7Hflw0EwZ4_RwRvJDjjzyE4IMRy9abyuPqh9ruj3qHam7ltjQ.jpg" width="400"><br>
+
+خبرگزاری «میزان» رسانه وابسته به قوه قضاییه جمهوری اسلامی از اعدام دو زندانی به نام‌های «امید بهزاد» و «پوریا صفوت» به اتهام «جاسوسی» و «همکاری اطلاعاتی» با اسراییل از طریق «ارسال تصاویر مراکز امنیتی و نظامی» جمهوری اسلامی خبر داد.
+خبرگزاری میزان، ارگان رسمی قوه قضاییه، اعلام کرد این دو زندانی بامداد دوشنبه ۱۲مرداد اعدام شدند.
+به ادعای این نهاد، «بررسی‌های فنی» انجام‌شده روی تلفن همراه امید بهزاد این موارد را تایید کرده و او نیز «در جریان تحقیقات» به آنها اعتراف کرده بود. با این حال، مشخص نیست این اعترافات در چه شرایطی از او گرفته شده است. جمهوری اسلامی طی بیش از ۴ دهه حکومت خود، بارها اقدام به اخذ اعترافات اجباری کرده است.
+در گزارش میزان، پوریا صفوت نیز بدون ارائه هیچ‌گونه سند یا جزییاتی، به همکاری «مستقیم با موساد» متهم شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77712)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-03 01:21:53
@@ -318,132 +453,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77699)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-01 18:13:48
-
-<img src="https://cdn4.telesco.pe/file/MI0TpF3zzRTycaWbizDNotCGJx_J15Xt-tns9u6OjWxRyEYTyAd-aIp5DN7KN8vSKuKjG7cj57GJ4JDvHJhyB2kKP1UPbszVSmvkuOTCeqSGNzLB0E8reS5LuhMLyGySV2zxeehIY7Fk0IcNa1zmgz4w870pSWncw9YMkQmXatXNaDDtOFJdew_9tfn0i0jzqegwuyMp4BxMkeV82djwuyCz8CKM7H9mGTosb0NX8Web3aUQ-jph_kjWvlkw_i-exSu_TF1EBCHVdG2eayoSgDD0IwRqXLGUkkic8sTxc2rxSXUEPq9qE6WyzJBv7IPdDfQHU36Qbd9W-vt9A6YZ5Q.jpg" width="400"><br>
-
-سحرگاه روز شنبه ۱۰ مرداد ۱۴۰۵، حکم اعدام آروین خیرخواهان، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در زندان شاهرود به اجرا درآمد. این جوان معترض، پیش‌تر از سوی شعبه یک دادگاه انقلاب شاهرود با اتهام «محاربه» به اعدام محکوم شده بود.
-به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، حکم اعدام آروین خیرخواهان حوالی ساعت چهار بامداد امروز اجرا شد.
-یک منبع نزدیک به خانواده این زندانی با تایید این خبر به هرانا گفت که مسوولان زندان تاکنون پیکر او را به بستگانش تحویل نداده‌اند. به گفته این منبع، به خانواده اعلام شده است که ساعت سه بامداد فردا برای تحویل پیکر مراجعه کنند و مراسم خاکسپاری نیز باید ساعت پنج بامداد برگزار شود.
-آروین خیرخواهان در جریان اعتراضات دی‌ماه ۱۴۰۴ بازداشت و سپس از سوی شعبه یک دادگاه انقلاب شاهرود با اتهام «محاربه» به اعدام محکوم شد. این حکم پس از اعتراض، در دادگاه تجدیدنظر و دیوان عالی کشور نیز بدون تغییر تایید شد.
-تاکنون جزییات دقیقی درباره زمان و نحوه بازداشت، مصادیق اتهامی، روند بازجویی، دسترسی این زندانی به وکیل انتخابی و مستندات مورد استناد دادگاه برای صدور حکم اعدام منتشر نشده است.
-هرانا نوشته است، آروین خیرخواهان هنگام اجرای حکم اعدام ۱۹ سال و شش ماه سن داشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77698)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-01 17:44:52
-
-
-
-مادر علی منوچهرآبادی، از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴، با انتشار ویدئویی در اینستاگرام، تولد خود را کنار مزار فرزندش جشن گرفت و یاد او را گرامی داشت.
-علی منوچهرآبادی، شهروند ۲۵ ساله کُرد اهل کرمانشاه، در جریان اعتراضات دی‌ماه ۱۴۰۴ در محدوده فلکه سوم تهرانپارس با شلیک گلوله جان باخت.
-او پسرخاله میثم کُرانیان، از دیگر جان‌باختگان اعتراضات مردمی در کرمانشاه، بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77696)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-01 10:04:33
-
-<img src="https://cdn1.telesco.pe/file/TqKhDK5NlJd6E51IY3QZMEpXZWhU8CGbjRxyaTR4qEvaXvycDjTIYITTOnXTbt4t_O2TNtwctP1QDgp72GW8EOSDShm7HtFTl5__EtoEGQHkeN86NKlG-_BVZ5QebQs7CH-q6AcEGSUxIiufkamBieErKSOz8rcmaEkIDCaxIrrBLn5ny6r7LDhnOjdsesyJG1LlDvFPKzBEDLM-WiS_AE_TuP-V6JJLVZvw72jpAOa0uce6RrIv8FyBG29gfrnDpDLjd3LovW29GjFoF2-ob7uOY88Exr0RV15zfnrnCWR3-6rTe76Z38aEUWpT7j7cjcD6AUIkIv-irGcyHf7p3A.jpg" width="400"><br>
-
-اکانت ارتش کویت، ترجمه ماشین:
-سامانه‌های پدافند هوایی کویت در حال مقابله با حملات پهپادهای متخاصم، در پی تجاوز جنایتکارانه ایران، هستند.
-ستاد کل ارتش اعلام می‌کند که اگر صدای انفجارهایی شنیده شود، ناشی از رهگیری حملات متخاصم توسط سامانه‌های پدافند هوایی است.
-از همگان درخواست می‌شود دستورالعمل‌های امنیتی و ایمنی صادرشده از سوی نهادهای ذی‌صلاح را رعایت کنند.
-KuwaitArmyGHQ
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77695)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-01 09:57:37
-
-<img src="https://cdn1.telesco.pe/file/ZF9zpYFSotVlZl2XRXzHF45fUgdCQm6voouJzI-aYjYMdzbglXOJ12-GIjl0w5h9bYd0yAAe8eczOv2_YeFTuYZfoMgW6DcC3yaPslg5v2qL7tYgWFbCj5K4BiqaVR-Us9zONY99gimjAm-IH0EC7lzQCUmc3nrIJMjvejX8ItrURvHd2YKWlN5vxO_vSTPrW2R42Wec_N8b5PinPFaciBh8QkTjys8hz-wUDTRoTLn5kXc_yP2Yee3xV26Tq-q0vrnaHULt0R6UENXzoNhx99nEBSs8KAXFQ4kuBQmrDKOU8KwGLRUZgYr9A6jNQrcNj86S0x0c6ZyrHHzPxUSUYQ.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا از وقوع یک حادثه دریایی در شمال شرق خصب عمان، در نزدیکی یک نفتکش گزارش داد.
-ساعاتی پیش نیز گزارش شد یک نفتکش در ۱۱ مایل دریایی شمال شرقی لیما، در مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77694)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-01 09:56:16
-
-<img src="https://cdn1.telesco.pe/file/lvQiDLrKubh6MNWXNg6Ke5omiPT9-GlWS2me3wtPbTvP3zFmu1hsIXqaaHBeRGM52PGyNIffH4Dn8AeMP_YSwfwFnchBE60VBdWqK01h8L_oO7mi7jzXfenQE214K7dliGQSqpRZlX--TgA5iAxYEbEbKB58SmhF6-3cRPadgwamroSoW9znnJWRxHPutnlUEDUqIwCkISBXIIannDD4DbGR4rQYBFyGDDAmdBs4kPn9xeBCCIa8WqkTczejulRBPqO7q7-ncjDcxrWr4ssmWnzXFNDFkXTfz1HsiE93G_vt50V7mCXFCNZgMMU93Lp9KQul-kkb75qz3DChk2cudg.jpg" width="400"><br>
-
-محمدباقر قالیباف، رییس مجلس گفت: در روز اول جنگ در ۹ اسفند، ما یک‌ساعت بعد از بمباران فهمیدیم که رهبرمان کشته شده است.
-او ادامه داد: تا ما توانستیم سران قوه را جمع کنیم و لاریجانی هم بیاید، ساعت هشت شب شد، آن جا تصمیم گرفتیم اعلام خبر مرگ رهبری صبح فردایش باشد. بعد این جلسه هم سریع پراکنده شدیم.
-او اضافه کرد: بعدتر تصمیم گرفتیم همان سحرگاه خبر مرگ رهبری را اعلام کنیم و به مردم بگوییم به خیابان بیایید.
-قالیباف در حالی می‌گوید که همان ساعت اول از مرگ خامنه‌ای مطمئن شده که مقام‌های جمهوری اسلامی تا بامداد روز بعد خبر مرگ خامنه‌ای را تکذیب کرده و اعلام می‌کردند او در اتاق فرماندهی حضور داشته و مشغول راهبری جنگ است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77693)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-01 07:02:39
-
-<img src="https://cdn1.telesco.pe/file/inlOdJl-tzRUS5LmzT8-CdWn_PY3ySEiWkqlRQSj8MLivc4cyATJUe2xyBFfEn-HbX7o7Lt8EOKpF1vJs_-4kSKMA4GqvXVLW0sBE_IsT16rf710PJKJRu8Iv1Bqy94dr245RLJa6xEZ2umd4DVWOYBp-0s49KgtzO6SiKsre5StcYnGGSE1WnZRGK7Wgxq9Xn566oLeTpDTW0pQcXN70Ri2efg8ZV8QCGn9tSekBIpeC3EiYFmf-NP9yKfq0EaJ47IQj2LHIVYd-1F8wElyHDsTFMESmU0uMzGSvCARFPNn515ABqgBspZJzLxu7Pe_j-yHBU1HlgIDG0wdzPXnTA.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در حدود ۱۱ مایل دریایی (بیش از ۲۰ کیلومتری) شمال شرقی لیما، در استان مسندم عمان، هدف اصابت یک پرتابه ناشناس قرار گرفت و پس از آسیب دیدن موتورخانه، از کنترل خارج شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77692)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-01 03:06:09
-
-<img src="https://cdn1.telesco.pe/file/UkmdkZq7YOCyrjXcXS7E8lWM2dRvJgLzpKMUhaOcy-FU9DOh9DBhVW0wyVCD6bJjrLwuC0J__s-FrT0SmUuTjtlFrv79cJqrD285pB_8Hb9Brse3JMwiBr4cIY9Y8CFiwEEtABcocNiJDFI5egE0Tc9rsfICzkCGMBG_xAqAfrxHjOnLqpDd8GXdbuYTjmZ0ekTB-5eo_Rfcxqc7kdsf2JNDg2xD_tLUxjwmd4xNpedZR4CjOlZfrsYS2NtTCnG3xhTmbLKxOImLerNyI35Pc4cA6aLQ6LQWKwjMA6-a0nPkLcT0CHPWidCuQQ5DU7ZWIsM7cGX9im1c7jyRSP_YYw.jpg" width="400"><br>
-
-♦️
-مقامات آمریکایی و اروپایی آگاه به «ان‌بی‌سی» گفتند که روسیه در حال به اشتراک‌گذاری اطلاعات ارزشمند الکترونیکی و ماهواره‌ای با ایران است که به تهران در جنگ جاری با ایالات متحده کمک می‌کند. به گفته این مقامات، ردیابی ماهواره‌ای و اطلاعات سیگنالی روسیه احتمالا ایران را قادر می‌سازد تا نیروهای آمریکایی را در حملات هوایی با دقت بیشتری هدف قرار دهد، دفاع هوایی خود را در برابر حملات ایالات متحده تقویت کند و در عملکرد تسلیحات ساخت آمریکا اختلال ایجاد نماید.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77691)
 
 ---
 
