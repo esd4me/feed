@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-03 12:54:07 </h5>
+<h5> 🟢 Updated at: 2026-08-03 16:20:47 </h5>
 </div>
 
 
@@ -142,7 +142,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-02 17:16:46
 
-<img src="https://cdn1.telesco.pe/file/o6j3kdSkVwM-re7-z4sabOiSTDh7Tqpi7koLAXN2aUyiioymNynTxQpwNiKtE8KiwSmO-7fxh69cnlc_qRZ4dOCFNv4sMGSQ0KlEn_-kH-OcecNhXQMTxiPAmA5S4WqrnCpW9ky-edfvgKtc872RG3ynrtV20QkUK6nBek6YzbQ3HjZoarc9kIUlg7KFURI2OMynZuPw_PKw-jTDVjXgBKPE2qzqWJlPtdXE0s-qdJOMiTn9orNi6lfG8KBdmTYh63vSiB_yc23hmejWlKuVcl2N6giiA7aguDW3yk5tOYGjiw73PEbisUC2c3hmvpFMmZBXFCvKoh8ux7V3_Ixc-w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/X4px1dhN_KLPKLuXfiBkGPNhUbk8vQnGQLhcTtU9BFRjTWdQMTqoiw2A9DycnrXu0ZdO_gM23CsboUqWBUcBDXLgNFQX_xZalJ0JbukMb-L0RfmWej-nHZTn6CprQwp-BTnE2KlMxBUxilDooorvHMeXuQBnp5U_9soQkYN1c4-wfzyHtVYnIO-Y2YwqpTvcZPmYcogalhCrT9dPLzsBs7mEWDsH5SMKM0LC8fC9sIb8qvodL1Samz4T79zOOXOEYXXeo9ehOgS7xRqC0OxoCMPXojT0x-Am1AkIwtzwITKEmHk14CGLFCtTARoedPfejnc1eeMebGqXKxDJGrICKg.jpg" width="400"><br>
 
 کانال ۱۲ اسرائیل یک‌شنبه ۱۱ مرداد گزارش داد عباس عراقچی، وزیر خارجه جمهوری اسلامی، شب گذشته با پیشنهاد مصالحه‌ای که میانجی‌های قطری و آمریکا درباره سازوکار بازگشایی تنگه هرمز تدوین کرده بودند، موافقت کرده است.
 این شبکه به نقل از دو دیپلمات آگاه از جزئیات مذاکرات گزارش داد پاسخ مثبت عراقچی یکی از دلایلی بود که دونالد ترامپ، رییس‌جمهوری آمریکا، با لغو حمله به ایران موافقت کرد.
