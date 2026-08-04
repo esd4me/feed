@@ -3,8 +3,53 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-04 03:30:15 </h5>
+<h5> 🟢 Updated at: 2026-08-04 07:28:16 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-04 05:02:00
+
+<img src="https://cdn1.telesco.pe/file/QBTEXic92ypVXEM0mUu_SNcuTV6e4yJ4xVr2bch0KX98-0bvPjDq5WnjA6Y1m6q_4oCRtaEStSXlY_QZUUkxKKLeae5ivqjj4CI2BrE9tvBmjBgbi5oSqNw3Fi6fsHAG1cpo76bdTHzYq5uW3ndZddO4pllKRaeF6jzfg6LyuR39AnSc25GcErXOdyf3JBVzsz3Gb7DFI4Zmc7B6jPoDm4-Gnfkw0OEYXHZv0-mroT0-KMBRcUguirpp1WOGTasKpXtfC_SDKazycsIDGc6cbRwvip7oXMoJFpOj47U0FuyzNi7hxAK-LDCGGDbv0RNJhdfBuqGH93mKuFeJx5OtIA.jpg" width="400"><br>
+
+🔄
+آپدیت: برگشت
+پیش از آپدیت:
+نرم‌افزار پیام‌رسان «تلگرام»، روز دوشنبه، به‌طور ناگهانی از فروشگاه «اپ‌استور» شرکت اپل در سراسر جهان حذف شد.
+بر اساس اعلام کاربران شبکه‌های اجتماعی، جست‌وجوی نام تلگرام در اپ‌استور با هیچ نتیجه‌ای همراه نیست و
+صفحات رسمی دانلود
+این برنامه با «خطای ۴۰۴» مواجه می‌شوند.
+اگرچه این پیام‌رسان روی دستگاه‌هایی که از قبل آن را نصب داشته‌اند کماکان بدون مشکل کار می‌کند، اما امکان
+دانلود تازه
+یا نصب مجدد آن روی آیفون و آیپد فعلا وجود ندارد.
+تاکنون هیچ‌یک از شرکت‌های اپل یا تلگرام بیانیه رسمی درباره دلایل این تصمیم صادر نکرده‌اند و مشخص نیست که این اقدام دائم است یا موقت و آیا ناشی از بررسی‌های قانونی و محتوایی است یا یک نقص فنی.
+پیش از این نیز در سال ۲۰۱۸ اپل برای مدتی کوتاه تلگرام را به دلیل «نگرانی از انتشار برخی محتواهای خلاف قوانین» از اپ‌استور خارج کرده بود که پس از اعمال اصلاحات لازم، این برنامه مجددا بازگشت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77726)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-04 03:30:33
+
+<img src="https://cdn1.telesco.pe/file/HRxdKQxuXSSWHFjc1sOSfbP-MPtlY_OaTbarGXdgOemZXJvIhuZ37GFoqkewYZOz6mJeXtYAubIF-tTRzTIOm121N5PxAUavSglzShW8WcoMYQBKgTBHyrmsag9dEOTVDYhlMyqnTZp0ytBKoEEE-P0WefLN0QNHJVF2ln-cqNm8mcxhDd-2oglahZXcBNu2WTVzHb8jahiXS5_ZGbT5Fk6jTJg9ZNVPXWRZm-K0u2YzlbYbgFLsxV_fmgn1VtWLkfJ7ZtkrZ88L7Kph0BY3dU4gDrHhKlbBFPwfULVqhEH2UwtV_j7mPRNwEMgLABbiqFXgVLj7vR3k3jsNVJufeA.jpg" width="400"><br>
+
+UKMTO:
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO)  گزارشی درباره وقوع یک حادثه در ۲۰ مایل دریایی شمال‌شرق الخصب در عمان دریافت کرده است.
+یک کشتی باری از طریق کانال ۱۶ بی‌سیم VHF اعلام کرده است که با یک پرتابه ناشناس مورد اصابت قرار گرفته است.
+مقامات در حال بررسی هستند.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77725)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-03 23:08:22
@@ -404,44 +449,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77707)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-02 17:16:10
-
-<img src="https://cdn1.telesco.pe/file/KK0bwzGAUZAmfuxBmpsIOWHzwiEBN_J2pEeShkHYaYc8DcAfDjNw_lresqc83XwMTd-5A99pF1xA99YGcrUlkKKRXG6wJk-ZhLcFfLfAtAKNcW-A_BegAvaQRyECucxvivtkUxrZYKXX7nWCNM0GK4XAq8VRNfVxCedmIIK-QZyrQZZ_w7CV9AP6HODRNT8Wn8vgrfvCqFFKK8EhCuemTcYZjXP4ZIyZGt7hYcV1iL-CMjSZEUL7_Zu4efbIHHMv6sCCHZGq_D8BVOuQhliXH9CQBE6uc-HBwm5anL_zn8rAAKy3mKXI90DF4pF-lHN8E73K-COCybGUv76ekMyMjQ.jpg" width="400"><br>
-
-مارکو روبیو، وزیر خارجه آمریکا، در مصاحبه‌ای با فاکس نیوز که لارا ترامپ، عروس رئیس‌جمهور آمریکا، انجام داد، گفت حتی اگر در تهران به‌طور رسمی «تغییر رژیم» رخ ندهد، حکومت ایران «باید» روش خود را تغییر دهد.
-وقتی از روبیو پرسیده شد آیا واشینگتن می‌تواند بدون تغییر رژیم در تهران، ایران را «هسته‌ای‌زدایی» کند، او گفت:
-«فکر می‌کنم آنچه باید رخ دهد این است که حکومت باید تغییر کند. ممکن است تغییر رژیم نداشته باشید، اما حکومت باید تغییر کند.»
-او افزود: «حکومت ایران به‌طور سنتی رویکردی توسعه‌طلبانه در خارج از مرزهایش داشته است. در اصل، دیدگاه آنها این است که نمی‌خواهند فقط بر ایران حکومت کنند؛ می‌خواهند بر منطقه حکومت کنند. آنها می‌خواهند انقلاب را صادر کنند.»
-روبیو ادامه داد: «این رویکرد باید تغییر کند و تنها راه تغییر دادن آن این است که هزینه‌اش را آن‌قدر برایشان بالا ببرید که دیگر قادر به پرداخت آن نباشند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77706)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-02 17:14:29
-
-
-
-ویدیوهای منتشر شده در رسانه‌های اجتماعی نشان می‌دهد بامداد روز یک‌شنبه ۱۱مرداد۱۴۰۵ پیکر آروین خیرخواهان معترضی که در جریان اعتراضات دی‌ماه۱۴۰۴ بازداشت و ۱۰مرداد در شاهرود اعدام شد به خاک سپرده شده است.
-خاکسپاری در سکوت و تنها با حضور اعضای نزدیک خانواده او انجام شده است.
-بازداشت، محاکمه، صدور حکم و اجرای آن برای این شهروند معترض ۲۰ساله در سکوت خبری رخ داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77704)
 
 ---
 
