@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-04 15:26:58 </h5>
+<h5> 🟢 Updated at: 2026-08-04 17:37:02 </h5>
 </div>
 
 
@@ -166,7 +166,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-03 17:22:14
 
-<img src="https://cdn4.telesco.pe/file/UfxVCSqJ8yWo2_FH2xJGM0VAyqBKGVPTUhZBBYxer2HTGUcQQG6jTHqLZ0mZPxhDbsUOg9JfdVpd5v8mHLEcA9RrgDKvaqYxLkOpdckglqu_86EhMA4lk6QoNZbdwxjVKA9AKbYKYEAMj_1wjLShwFtAQ1XVc66rzwEX84wOyM5SduX4BWcxiEpFy-386Kpa72liGJcqRke7peNYJFbWpmZ0RzERf_CNYlgk9k5FPAXU_ZHDm_VfSP4vww1lsNAhyWp5v-MpuI3ypHRJFTnnDmVsAAzdMYw6sdC2gHYCN6tBZ1PBhx548g1ayDDD_3XEhTKEYySdcvV6NrCQ4hsmoA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/VpuF10byMGEwYHqZWDYfuYLmMGgacKpTd-4XsiTpiaBzmrG7W5kdXOuLxdZDm5gVUU6GrsDvYJME_lBFUTAXljBaPSIHIQjPdl6_4tSIpiqGxjgZPquLd--__SwIosiwpGhJ6BdDOsxgMH2D0rJqhwPdJIRvy-WsNfBSaHOOvTqnb-5zKcubOs_JhlyoxXzEYBby6EY-iGIm13pSG7xtRJJAByHFmqMw2Q-jtMCa6OXpBXIAzCSJoCwBMBNV6ckVnq3cEqUbyOFBlsijxrct4qugAVko80aIjCnk__H9nnMZoz-ox-p4Oalo14p3VEwpojrf5-PofC333KontlfflA.jpg" width="400"><br>
 
 علی‌رغم افزایش امیدها برای دستیابی به پایان درگیری‌ها میان اسرائیل و گروه‌های فلسطینی، مقامات امدادی غزه اعلام کردند حملات هوایی اسرائیل برای دومین روز پیاپی به مناطق مختلف این منطقه در روز یکشنبه یازدهم مرداد، جان دست‌کم ۱۸ فلسطینی را گرفت.
 به گفته مقام‌های بهداشتی فلسطینی، از بامداد یکشنبه، جنگنده‌های اسرائیلی شهر غزه در شمال، شهر دیرالبلح در مرکز و منطقه خان‌یونس در جنوب نوار غزه را هدف قرار دادند که بیشترین شمار تلفات روزانه در چند هفته اخیر را بر جا گذاشت.
@@ -184,7 +184,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-03 17:20:43
 
-<img src="https://cdn4.telesco.pe/file/ZqhT9Y1jrYE6jdNph7mNRJAs1T1665juOcrnnNw9Jjq2vCWiRoeS8wilIoBsqmEtVsXdI4mjKUy0YHebIEQlehm44eoA8t10CkCPoNB8TCdwPKMBzSC5FJbItoIsOL9TxpxoEKuzb_IvMaPKgnhpPQWT170Ox_Fzicqz4I5MEWXrBpy5Sl73TZVOWKd9lVo8zknw8hK6Mtmlk0BLUSS4Ck6s5t2ZJ-hNzbELjfqa1JfY0JgKwVT3VF34UlVi8lCbK2DNuXjBM9q53IupAW0FUotKVjeyRQo_jSoXQehsB78XDvjzfyIOXQorbpwP_BN2dYCG4MKAY1HbXrln5B0ZcQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/eRdrYPBQpdpLjIqcwGP2ckFFfft6qmqiufQsXP6IyAPYQZavtXK-mCsyn0MO1kpXB0HKi3auTHGAJljuWDpdgjq6SkIMFeQE3Ly984A6gPHUFyb4ksRZ31k-jPdVqOqdqxpytFOFMKM7NKmc3cA9WblVrR_cuTFZGPIaTqucBLMRSv40_IYHOxFoHuPJaU9jtC4eF1rCvQKJsN0HCi5QcGaL1SCghPpfj6ZeRN23cWOCtqEQFbINfBa3Jv2vrfQsQZI39PtDgZWJeiZOAe5s1Nucr_Eo2bAAx-WPL4nshg03twmW6Z1dVTTJtyckCt9u7vhr5jd7ZVEzYdYb5--Q9g.jpg" width="400"><br>
 
 خبرگزاری تسنیم، وابسته به سپاه پاسداران، روز دوشنبه ۱۲ مردادماه گزارش کرد که «سامانه نوین پدافند پیشرفته نیروی هوافضای سپاه» یک پهپاد ام‌کیو۹ را در آسمان تنگه هرمز رهگیری کرده و «مورد اصابت» قرار داده است.
 این خبر در حالی اعلام می‌شود که دونالد ترامپ، رئیس جمهوری آمریکا از توقف طرح یک حمله بزرگ به ایران به شرط توافق برای بازگشایی تنگه هرمز و اطمینان از دست نیافتن ایران به سلاح هسته‌ای خبر داده بود.
@@ -202,7 +202,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-03 17:19:35
 
-<img src="https://cdn1.telesco.pe/file/KK-QELJPhR657AfEXruYUabD-IYklbLFsxNBYP3chCurcx7MzYcX0X3opPP6-i-2JIrTxxrc9W6ejQ5ZTKpRpFfcsOKLfo851ovrwCrTugo5o22_hhb4EcmwfJ6lNfq9Tl7qdYSmfXePHluxFt7CqoAe2UCN5DOGCULyQ0bLz7SDXvsGvVlOheRE67gac3dISjEXd8_qEQz0iU8j0oHdS2Ie0lqtwxuSZ1G4LH4g3p9dsUk2lIN9Wug7RzGvdtdUXSzJ7gY7MUo4FeAnsBwrUhlegW_BwJUl53vYOZ8KdVzck-N4nphj131rJwLsb1l0CIhnSAr5uM3TyQf3jX9McA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/U9DJqVoripoeT1NCO0hVlN486V5bhq9Fi70tf1wupnYZ6vl74jh_J2fakFvurYnn4qSypaF0TGyrBYjIyUUDvvN60FRycmyBH98ng-JFFLAXOo3H85RcXC-Rm0myGBsE9T0IoKMXrCWXOwVroZ09A50vpHdFE2auHI_KVGQ3PSkyL8DMpceChrDgmPVM1ADL0kFYgngioIBgSgbtc5Zj0dmZr6e3iQY_ctERip6x0MfAge5cZxatXQX_-GHB8m0vqOhRl-68oDqbkHml1N9Yq6ISVVRwmd85lIg60xkEFwoF2frx-F5wwi-tUq70rPGn2Kve_viwbRuoWPwwJC1E6w.jpg" width="400"><br>
 
 سخنگوی وزارت خارجه جمهوری اسلامی، می‌گوید در حال حاضر مذاکره‌ای بین ایران و آمریکا در جریان نیست.
 اسماعیل بقائی در نشست هفتگی خود با خبرنگاران در روز دوشنبه ۱۲ مرداد، افزود آنچه در حال حاضر در جریان است، مذاکرات دو جانبه و بین دو دولت ساحلی ایران و عمان است.
@@ -228,7 +228,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-03 17:18:39
 
-<img src="https://cdn4.telesco.pe/file/V8TK-JvHxfui-8-Dxl7IMCg9vdFixAI2BtQwVszFM7h5EO8u9qg-hmSroW1zrBd0lptbVWYK4MmdHWxsIbOrQmZUK0uRW_PGkXt2rJJz9oz2UvTyuANFwkbByHM3tERrSxcL6Pt9E_0i82elyr3257bQ7w0oB6vN1iZMdqy3WXBwTH9bh6Qtb5-wEPIQMuIuGSeMAqhR83DqMwnxfrMdO3CkL3CRJKfFptxcZRc0ldngehba7AphGlPwm68BBTLVGKlSywIAscNcZQxJuHkK211Qb4jjqvzB7aJ8eGQVmf0uq-uMhwPXbgT_uI7hQuKfb_rTDYYVcS2ii-rOyt8xyQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/EjALTC_rIvOWeHT9q63OhfhJ-IlBfO0qj9w6Q18wynQigK84TffkR1COzOaljQ6Ra8v3pdGUFrI0Qg4VfHMiAeji9ScNvxdjvPdd_-XQZW0bMKgln9VJt1Sba5aIsfEhwkET6BQD5QXvsRAH9IpAqJJY2QV9h6c59WCf-rLWKvfY0b08ZF6qc08JVSrsY1yFkhJcVXZYxwyYuahX0nx_KDJRZZ4TBZWjeL_7VbUpWMTXkQQ1JIJvEurLkAg0sB06P-uiPXjFylA6tHq-G4aNtZ835aVCF0bLLiMJewpyWoPs5QkLXF2Hb5U79o5bYrloZcVKw1XiNQuNOhkWVDZ0yg.jpg" width="400"><br>
 
 وزیر جنگ آمریکا، روز یکشنبه ۱۲ مردا گفت نیروهای این کشور همچنان در آماده‌باش هستند و آمادگی اقدام دارند؛ اظهاراتی که نشان می‌دهد تصمیم دونالد ترامپ، رئیس‌جمهوری آمریکا، برای به‌تعویق انداختن حمله به ایران، تأثیری بر آمادگی نظامی نگذاشته است.
 پیت هگست در شبکه اجتماعی ایکس و در کنار انتشار ویدئویی از رئیس‌جمهوری آمریکا نوشت: «وزارت جنگ آماده اقدام بود و همچنان در سطحی که از زمان جنگ جهانی دوم دیده نشده، آماده است.» هگست سپس گفت ارتش «کاملاً مسلح و آماده شلیک» است.
@@ -245,7 +245,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-03 17:15:40
 
-<img src="https://cdn4.telesco.pe/file/mYp73IBRojTSfW7MD2ByBdP_gJaSUGTlHbZu6xOP0NapkLZM1jtAG5zM6NFAfQObdMrWZqaC5EU5KPYAtRlcotG8KI_c4jhxCGlCdn0JRbfwxrwuuttrLLoPhpRoGD7bqdWxxrX00f3M9N6BIeTcKnvf9-HotcYOLRdVGmUujMsdaTJOr_X0kWmCdIADUoGrFVxbyz-E9mnb3obqC5HGZq1DWk7ZHl8OaO5xCprGmUJob62Qee_SsUd6Yv_d_QdjjjlIetvNKvxMs9OtuEN-AH2qT84QptDq2ppdkWuDpyJt6kIKxKlO4jYwsmNnZDxyl1MOiNRadrRFy-PjJP0q-w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/kgiUPOCjfDqEGbGr51M1XvDlwubwrORYvGZiwtDPwg20IPVoG8LBdhPsU-o1cIbi6-__gcstFHlxRolX0UIFRyXY47Uhm4Hsgs3pFo_RGJJCAt2gDcG0zz7Aix3KKRiZDk95_V_g8g-TxS4G34Tyc4licHjQBUe_GSglKvvp2pQCJRQFhHcntJphZF03rgU1jkbDtzDqhkxOsD9VlceT7ajEl1XkYLEb5qwBsrMwgn0bMRRQZElupVj83jqkdRsn6AOpSxbIGZ-GDWwCQ_lHPBwrSJxGr83SDEJh5zOwDK52rjyLKO2D8Q5JJlPOXbjp3TwkX44rLziECUFCKiVwQg.jpg" width="400"><br>
 
 ‌
 خبرگزاری فارس از کشف یک خط لوله ۹۰۰ متری غیرمجاز انتقال نفت در استان بوشهر خبر داده و نوشته این لوله نفت سرقت شده را به مخزنی زیرزمینی منتقل می‌کرده است.
@@ -265,7 +265,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-03 17:14:54
 
-<img src="https://cdn4.telesco.pe/file/L7hbIL2ioXBuVT-K_rvczwJaRtLop5hsmUeBxe89Q3l33DQoWaU1j6hWTqKDp9iTARUe6HCrMmYjqRTL72yK4hbHQlNNPbrLB5WvkJL93MvvwrlNP7imy4T2uf3cehkBvIvyUJ10LsTMvI_GsYXsmilK4Cje9aQneJPsBat5C6Whp90A9gwuYI_6zm89iC9m7Z9_dQvpMZBacO446o7xDnNhxOYh-GYxf7V1dXNUYdoBfPO6fDM5ZWlTu3lbf5TxbCg4j6nPzNU9AzDV4j2VTbZtIsNtrWM_xR7WDSTt1S0qR9iZ72by_859BNw4v3lWueGapCpq-Rx10no0dQalIw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/eIpvChLDE5yQX7QGnB1ji77dzMX1HfAcg0KviddpTMVBlAydw1W0x-4If41eJbKmWKjwMj9KKg386PJjVb0_F037IwbeJdp2pSDcsF7Uey6CuQvwJHc_tI-I21XdTnsx7pE6dTOm3l1c5YJmjDxrf5mXL6u9nHDXTGPC6kXbc0QgjdFCGsFGyhSAHlDEmqqRNRpVN8xs2i_xJwVZSzZ6xHzPwZcJAc3gHS_vG_cBVrauryEXWGrJ8_TIHVNgeWb9h7fSn_dHyXBWByQmxFwo6LIRJ_lQUBSZt0EDROxDNCoDxkGSq936lTMeTTb1ayqdpL1jJkwka9OQBvfntjWH5A.jpg" width="400"><br>
 
 قیمت جهانی نفت دوشنبه ۱۲مرداد۱۴۰۵ پس از اعلام «دونالد ترامپ» مبنی بر توقف حمله نظامی آمریکا به ایران و آغاز دور تازه مذاکرات میان دو کشور، بیش از پنج درصد کاهش یافت.
 خبرگزاری «رویترز» گزارش داده که بازارهای جهانی، کاهش احتمال درگیری نظامی در خاورمیانه و افزایش امید به دستیابی به توافق میان تهران و واشنگتن را مهم‌ترین عامل افت قیمت نفت می‌دانند. به نوشته این خبرگزاری، نگرانی معامله گران از اختلال در عرضه نفت و بسته شدن احتمالی تنگه هرمز، پس از اظهارات ترامپ کاهش یافته است.
@@ -282,7 +282,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-03 17:13:41
 
-<img src="https://cdn1.telesco.pe/file/bkrMkAENiGT_EbeqkdcQfm0h_NRv9ph0WmzT1SGmENrmIE7Jl17kQPc-_tPOIq7Fn4qBh8Yn9EZ8bctrB6SoR31RXFmodgfXQw4Pny6sFkWFBmL1LCLKctj8fjbAqmB7AB8V4j6fABTRMDAl21O4leC5vJIZxwt-exWJRAr2x2ezL7cscw91ZUYRF-z4re-UBgrdG3qNW-I6gOaQhPMh2z_m_qfpX_vZbx_T7YhZzos2A7DZRzd-qH-zGhyLo1476HmYhgZgep2QmKV0V1SVnQCYcPyoBr4SV1KRl7Hflw0EwZ4_RwRvJDjjzyE4IMRy9abyuPqh9ruj3qHam7ltjQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Yl48lhf72rEKXqJpQhgHdrvNn8MJopzjkF_40YEfaaygjeCIYEqSe3yeZLJoooGa3LeN-m5v-DsptxjFF8YiX0jruPRWKS4krMBSlOFeefLbnBjeAPRYBOAA3IAM3hUR2UbeHWMcqa2v3MbgWig65dXSUz7xt3kgnIYEMtg1yVR77FORzLpFReGwijlv4Xt3AVHuzSqFkW-Npfds-vymYydIlAXuCrr2eU5-rzdn-qanCxmWXu5trhf4u2gqZ_9MAZ4h6PgnwHDq9epTE_Y10n9rD84_D-HuMprfqmO2I5z-00LKOksLGjd28RI8B3fUKxcaMRGCvS51au6r-O8g4g.jpg" width="400"><br>
 
 خبرگزاری «میزان» رسانه وابسته به قوه قضاییه جمهوری اسلامی از اعدام دو زندانی به نام‌های «امید بهزاد» و «پوریا صفوت» به اتهام «جاسوسی» و «همکاری اطلاعاتی» با اسراییل از طریق «ارسال تصاویر مراکز امنیتی و نظامی» جمهوری اسلامی خبر داد.
 خبرگزاری میزان، ارگان رسمی قوه قضاییه، اعلام کرد این دو زندانی بامداد دوشنبه ۱۲مرداد اعدام شدند.
@@ -434,7 +434,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-02 17:16:46
 
-<img src="https://cdn1.telesco.pe/file/X4px1dhN_KLPKLuXfiBkGPNhUbk8vQnGQLhcTtU9BFRjTWdQMTqoiw2A9DycnrXu0ZdO_gM23CsboUqWBUcBDXLgNFQX_xZalJ0JbukMb-L0RfmWej-nHZTn6CprQwp-BTnE2KlMxBUxilDooorvHMeXuQBnp5U_9soQkYN1c4-wfzyHtVYnIO-Y2YwqpTvcZPmYcogalhCrT9dPLzsBs7mEWDsH5SMKM0LC8fC9sIb8qvodL1Samz4T79zOOXOEYXXeo9ehOgS7xRqC0OxoCMPXojT0x-Am1AkIwtzwITKEmHk14CGLFCtTARoedPfejnc1eeMebGqXKxDJGrICKg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/oFJD7GW0TtN3LTbrcHaI-WI_fvG07evVrA3qZO59F7Kysw5eM6E_f_BoYEBDnLrKI_ANYOrhL8aPsTPsuhAlw392Yr_WZYCjTYTZeYmKflQt6xOQL6XZoPtdIbPkOYVQIDLxg-yoIip7NSyjAVA9wa5Q7adTHEpJDu6INSMQB_NpSs_8taBHBC2HtCSMDZ1hjjgHcxz-7yRT5IQn3vYV8KJaFo3qstcXTIkR2Azh7PHNEVgHsPN-vGUhcYqNrMIi9e64RcM_L5sodPoTPXw-qTQ3qXEoTqBqYuXqngNQHIxIfm1IfSzl5iOef-HQL_qVupQ1ymxJCfZUDB2Q6lmFZw.jpg" width="400"><br>
 
 کانال ۱۲ اسرائیل یک‌شنبه ۱۱ مرداد گزارش داد عباس عراقچی، وزیر خارجه جمهوری اسلامی، شب گذشته با پیشنهاد مصالحه‌ای که میانجی‌های قطری و آمریکا درباره سازوکار بازگشایی تنگه هرمز تدوین کرده بودند، موافقت کرده است.
 این شبکه به نقل از دو دیپلمات آگاه از جزئیات مذاکرات گزارش داد پاسخ مثبت عراقچی یکی از دلایلی بود که دونالد ترامپ، رییس‌جمهوری آمریکا، با لغو حمله به ایران موافقت کرد.
