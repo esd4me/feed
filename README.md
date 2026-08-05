@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-05 20:52:53 </h5>
+<h5> 🟢 Updated at: 2026-08-05 22:46:02 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-05 21:17:18
+
+<img src="https://cdn4.telesco.pe/file/W8sTi_N3Kncp7220QgkrlAmc2tTtqzQDlmal4RCPBSXU0fnyVj_y2k9DPsakO-dH9Sy9tv4jeV2i5hSEBacyQN7g9Zvp5KTwtXbEp9Ut5f25dMGTHveZ5Lo06TJpfBJipkTYZYZaq6evborUCwzszdUZiCu0pXCyYGnAkhGiN-3AtK1OmaLy2NLgsB-mAQpsl9FMm1xlcgHgQp86vfzWPHsvynw0q7QeeMimp6NslMfB4o6aPyHnlwzui0GbMBghp3Aad8PCA-8WOWZssgMYjr-Bxml2JaEUu2G_glwP5qeCzZV2wl591HcX8w_4txbFCPCDpX93Z6TjqzLS7uNdnw.jpg" width="400"><br>
+
+ارتش اسرائیل روز چهارشنبه ۱۴ مرداد، حملات جدیدی را به جنوب لبنان آغاز کرد و دلیل آن را «نقض آشکار آتش‌بس» از سوی گروه حزب‌الله دانست. این حملات که با صدور نخستین هشدار تخلیه پس از هفته‌ها برای ساکنان شهرک «منصوری» همراه بود، دست‌کم یک کشته و ۱۱ زخمی بر جا گذاشت.
+این رویارویی‌های جدید در حالی رخ داد که نمایندگان لبنان و اسرائیل با میانجی‌گری آمریکا در رم مشغول گفتگو برای پایان دادن به درگیری‌ها و عقب‌نشینی مرحله‌ای اسرائیل از جنوب لبنان بودند.
+یک منبع آگاه از روند مذاکرات به خبرگزاری فرانسه گفت هیات اسرائیلی، سه ساعت زودتر از موعد مقرر خواستار پایان جلسه شد. به گفته این منبع، یحیئل لایتر، سفیر اسرائیل در آمریکا و رئیس هیات مذاکره این کشور، درز «اطلاعات گمراه‌کننده» از سوی طرف لبنانی را علت این تصمیم عنوان کرده است.
+با این حال، انتظار می‌رود این مذاکرات روز پنجشنبه در سومین و آخرین روز خود استمرار یابد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77759)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-05 19:49:17
@@ -31,6 +50,17 @@ VahidHeadline
 بنیامین نتانیاهو، نخست وزیر اسرائیل روز چهارشنبه ۱۴ مردادماه با انتشار پیامی ویدیویی اعلام کرد این کشور با طرح پیشنهادی آمریکا برای خلع سلاح حماس و مدیریت غزه موافق نیست.
 نتانیاهو در این پیام گفت: ««رئیس جمهوری ترامپ و تیمش فکر می‌کنند می‌توانند حماس را به خلع سلاح و غیرنظامی کردن غزه وادار کنند. ما در حال بررسی این موضوع هستیم. آنها پیش‌نویسی برای ما فرستادند، ما موافق نبودیم، این پیش‌نویس ما نیست؛ ما نظرات خود را ارسال کردیم.»
 حماس هفته گذشته اعلام کرد به شرط خروج اسرائیل از نوار غزه، خود را خلع سلاح می‌کند. با وجود واکنش مثبت ترامپ، اسرائیل همچنان با این پیشنهاد حماس مخالف است و چند وزیر کابینه ائتلافی، پیشاپیش تاکید کرده‌اند که ارتش این کشور از غزه خارج نخواهد شد.
+@
+VahidOOnLine
+نخست‌وزیر اسرائیل در سخنرانی خود در خاکسپاری رسمی پدربزرگ و مادربزرگ تئودور هرتسل، با اشاره به تحولات جاری تاکید کرد که این کشور در میان رویدادهای حساس نظامی و سیاسی قرار دارد.
+بنیامین نتانیاهو با تمجید از رئیس‌جمهوری آمریکا گفت: «می‌خواهم این موضوع را روشن کنم؛ رئیس‌جمهوری ترامپ بزرگ‌ترین دوست ما و بزرگ‌ترین دوستی است که تا کنون در کاخ سفید داشته‌ایم و ایالات متحده نیز بزرگ‌ترین متحد ماست.»
+با این حال، نخست‌وزیر اسرائیل با تاکید بر حفظ منافع بنیادین تل‌آویو افزود: «اما موجودیت اسرائیل — چه با توافق و چه بدون توافق — قابل مذاکره نیست. من مصمم هستم که هر آنچه برای تضمین امنیت و آینده‌مان لازم است را انجام دهیم.»
+اسرائیل در حال حاضر در میانه گفتگوها برای دو توافق قرار دارد: توافق با لبنان برای خروج تدریجی نیروهایش از جنوب این کشور و توافق صلح غزه برای واگذاری مدیریت این مناطق به هیات صلح مطابق طرح ترامپ.
+@
+VahidOOnLine
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز چهارشنبه ۱۴ مرداد، در جریان بازدید از مرکز جذب سربازان جدید با تاکید بر اتحاد داخلی این کشور پس از حوادث هفتم اکتبر، تصریح کرد که تل‌آویو اجازه تشکیل کشور مستقل فلسطینی را نخواهد داد.
+نتانیاهو با اشاره به این موضوع گفت: «ما در اینجا یک دولت تروریستی فلسطینی تاسیس نخواهیم کرد؛ دولتی که می‌دانیم قصد نابودی کشور-ملت یهود را دارد.»
+نخست‌وزیر اسرائیل در ادامه افزود طرف مقابل در پی نابودی اسرائیل است، چرا که این کشور ترویج‌کننده ارزش‌های پیشرفت، دموکراسی و آزادی است؛ ارزش‌هایی که به گفته او، مورد نفرت «دشمنان بربر» قرار دارد.
 @
 VahidOOnLine
 📡
@@ -111,7 +141,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-05 17:36:39
 
-<img src="https://cdn1.telesco.pe/file/BXpXVxADZTvQXIlJaxdwjDq6_oKR1UD3FEO6TAmVE40Y6PIqV7JxPzyd_H2Q2F1LClnjRUW-A6V1oUqXyY-t3mutZSH9g7u-WZZepAbuAdenqt9mJMr6e_ZkNpYZ4gz1RAQX2NEp4HBMd8H4XsXX9_b4qAwjjnPWCIh08Xz7jJCM3gCYHqY-OBxgGEL2yzlOR0qWiH4Plo1uWEwCkTjNiHYe6zz0RQ-yKfEbZtHyC4rrpDLWD0Zh56eyowUSSw8gd0g9P_2wx89U3e6UFLCWx4hUySl4sv01ovLij06UoREEm1QEE07nhX8HbBLVJWKmt3D5YdCEHdok0keDo74jSA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/dv3DPCLsnwgsJbiRcyYFrUST4MgCt5Xj7XooT8781zhQ9QiE5rGkxCoFXCWklJFSsv-g8VfJEeNEB-Kxq8KeIbgV-uyfWX6JAceeJcBoKSHKcRBloRAT6Qi8j18aJSokHXg5pS2-P9-31HHcTO7fevei_RLMHuiF_FmgPq90rppFErkQAfh6nUbY9SjnjhSRLw3UqD5k9mkScWdRfnZrFQnUGQ5gMpbjQ4OpPYm_RFqCx9u_fEuRl83XmIsvgnU1RGtTm0G3WfP7i3edSVaJAqvbHGCNWbTU1Bj5Aks6mUlqKQ6xSqUpkxfSykJx6Va7olpsLG8NwNYLNtq4I9oDXA.jpg" width="400"><br>
 
 مصطفی قاسمی حسنوند، شاعر، زندانی سیاسی سابق و شهروند اهل شهرستان الشتر، روز یکشنبه ۱۱ مرداد ۱۴۰۵ پس از اقدام به پایان دادن به زندگی خود مقابل دفتر سازمان ملل در اربیل جان باخت.
 منابع آگاه به ایران‌وایر می‌گویند او پس از آزادی از زندان با مشکلات روحی و فشارهای ناشی از پرونده قضایی خود روبه‌رو بود.
@@ -271,7 +301,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-04 22:28:05
 
-<img src="https://cdn4.telesco.pe/file/UDhRu5Mu9RErdU23SZLbKSC7CHbtvveGcOp_uBSTMak-M4Rt-zQe7yJOcoWVgj0Kyi_Zj8BSI3b3ppVXwEKZMFmCL-W3_zcqPAlFuEVunB0pye2yeHlsytjFox10F1IBxY7L9yHet20Fr8g_owkMpOF5hrYZYKxL8berawTE2vq2DeKoY_ib-JEgqffA4ZGO-Oz2loZMnhxUUNOAm5rZLSly1SbJgS0PNu_PwNZZ_9eJu2GWM5ga-0K_XgvXZQNUgWG5klhNjekF87HMfZtxZw-NNBv2ZmmJWPjsuqnuWCbrljvXQtkvHRt2sNrp-Ma6j3Fod426tfMeE_2bZU67AQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/iZ75FkpZJYlxXf2sx5BrqN5LiNQq7ddK93wTj6Jj_nitzw3k2KT0ksJJZE-Ufu-D54QBFanhj9tiIsBzFa_gW0JqC0N1OZqBJp1QP4LZlqaSkvfgXIZzAQqltK324stmOC0ZIuUqzg5Zn2hPYhc2hQ1AzA46bR-zo0juFi_ryz7okSUzBeJwVmKkTCL_ee2GindljEWmfOiOBwtvkYpucAD3as_T6fnHAJcFZMqrz8notG_pEfVsvVxBdOxcSQbysBOcseQPq9pU1e7YviVYYmLGa45Kol09U9MnXq8V7d2ngbB_-jfrK3OU5q3MSEONlNKo99MXf7JklAuIJ_nmhA.jpg" width="400"><br>
 
 خبرگزاری دولتی قطر گزارش داد تمیم بن حمد آل ثانی، امیر قطر، روز سه‌شنبه در تماس تلفنی با دونالد ترامپ، رییس‌جمهوری آمریکا، آخرین تحولات منطقه، به‌ویژه تلاش‌ها برای کاهش تنش میان آمریکا و جمهوری اسلامی و نزدیک کردن دیدگاه‌های دو طرف را بررسی کرد.
 بر اساس این گزارش، ترامپ از نقش قطر در حمایت از تلاش‌های دیپلماتیک و تسهیل گفت‌وگو میان طرف‌ها برای تقویت امنیت و ثبات منطقه قدردانی کرد.
@@ -290,7 +320,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-04 22:27:21
 
-<img src="https://cdn4.telesco.pe/file/eZg_bHyBTFpUvzpNNIbrOImbIYASBBDyAOh_3R7eLVnIOj9I4GAQ6kwyEUUiLy0ykpJ1DwrocXCjFHsOsunjtS8c-t4Klubk06e7wFhtMxmefsn-7ShfdBanqO60YB_3XUsUaeMISCHgAW2rBqMOoProeJ2eq0r3wEthW3ncIg5Fkx_AUO6NL5QCetikN-pNASKtz76qcAbPN0ZQ8o-8ITSB0-mFQLkeHKpoq9-KJEt4n20ROM0Vpjg0PMv6LF6ygmwtlprDVnX01R_Ufl6e2KgMo8I5M_UCpWSrRwxcXLhbiqeWdC7eVtGF629M1gMqMwsenr3sZiKzHvmKzfURHQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/tgQBZISCR4abwYooZos-l90Nrc7u7nXJ6Xqm0OcDIbVSzCwL0LiH4DQ91N8J8ppQPgtwBMnW32yU7SeB8waixGK_CtRdZ9t-pI6LLfU-W4VCbXfkdmkzeX6OiBBh7310ZMSwxMxvd5YaA99oVbi_griO8PDZ1FNMeu7YkxEb15pCLxNiheOihmejs7izPG3AzCRDE_EsStF7iwQyB8mXDe7gBlLRk-vqfUux2xCC3vYZFU0TZkqDAUG_00trRvsF7qVISB77nxRxR5AXbbOkRcx8anF2ltauZt0KhDLDH57vgbBLWyFhQJfHNLBtabB5cemE9jGxsaEFTCty81bzkw.jpg" width="400"><br>
 
 وزیر کشتیرانی هند روز سه‌شنبه ۱۳ مرداد اعلام کرد که یک پرتابه به یک کشتی با پرچم هند در نزدیکی یمن اصابت کرد که باعث واژگونی و غرق شدن آن شد.
 ساربانا‌ندا سونووال در پیامی در شبکهٔ ایکس نوشت که اما هر ۱۴ ملوان حاضر در کشتی، از جمله ۱۳ تبعهٔ هند، توسط گارد ساحلی یمن نجات یافته و به بندر مخا منتقل شدند.
@@ -343,30 +373,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77740)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-04 18:30:18
-
-<img src="https://cdn1.telesco.pe/file/C4QQiF-GzLQfgR_SmWyxuW8SOEmxnODUGzvmfrYW9Kjsz1sywOLBahpYheIoGsGw1KA7yNUwfZlo0PhOQQv7Ci-5QJ9CEB-KOxyrYHCiHDA9HYfjUWcyRKxMBjZJeh0FseApNhOGT39-XKjESsgtYjEUhYHe7Hs2jaGy3_g9UXIB1eBcQq4w5Ws4B2DBHmbBf8K2bqqvhCJ1oNnVWS9s8cBrd2t2JQ-zDOQPGlcAgIxWNXayoyviKJpJuniytovNEcvlS-1NmfmlYkLf2EjL3hcm5kWQhf-s8qHV8BHsvBBGDjGGdQ79VxHnTQhMUrwkJp8nMJhw5LwqbScO3D3juA.jpg" width="400"><br>
-
-ویدیوها از کانال‌های غیررسمی حکومتی
-درگیری میان حامیان جمهوری اسلامی و مقلدان صادق شیرازی، از مراجع تقلید منتقد جمهوری اسلامی، در جریان مراسم اربعین در کربلا به بازداشت ۱۴۰ نفر و مجروح شدن ۵۴ نفر انجامید.
-شبکه تلویزیونی «اشعائر» عراق، رسانه نزدیک به "آیت‌الله صادق شیرازی"، صبح دوشنبه ۱۲ مرداد ویدیویی از این درگیری منتشر کرد.
-بر اساس گزارش این رسانه، گروهی با در دست داشتن تصاویر علی و مجتبی خامنه‌ای و پرچم‌های «یا لثارات الحسین» و «یا لثارات الخامنه‌ای» مقابل دفتر آیت‌الله صادق شیرازی در کربلا تجمع کردند و علیه او شعار سر دادند.
-این رسانه می‌گوید حامیان علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، و فرزندش مجتبی خامنه‌ای هنگام عبور از مقابل دفتر صادق شیرازی این شعارها را سر دادند که با واکنش هواداران و مقلدان این مرجع تقلید روبه‌رو شد.
-به گفته کاربران شبکه‌های اجتماعی، این درگیری ابتدا با مداخله پلیس عراق متوقف شد، اما در ادامه میان حامیان جمهوری اسلامی و نیروهای امنیتی عراق نیز تنش و درگیری رخ داد و پلیس عراق در نهایت با استفاده از قوه قهریه به آن پایان داد.
-بر اساس گزارش‌های منتشر شده، در جریان درگیری مقابل موکب منتسب به آیت‌الله صادق شیرازی، ۱۴۰ نفر بازداشت و ۵۴ نفر مجروح شدند. این آمار تاکنون به‌طور مستقل تأیید نشده است.
-همچنین در برخی گزارش‌ها ادعا شده است که حسین ستوده، مداح حکومتی، از چهره‌های حاضر در این تجمع بوده و تلاش داشته این مراسم را به موضوعات سیاسی پیوند بزند.
-"آیت‌الله صادق شیرازی" از منتقدان نظریه ولایت فقیه است و رسانه‌های جمهوری اسلامی او و جریان منتسب به وی را با عنوان «شیعه انگلیسی» معرفی می‌کنند. او ولایت فقیه را محدود به امر قضاوت می‌داند و با تفسیرهای جدید از اسلام و مذهب تشیع مخالفت کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77735)
 
 ---
 
