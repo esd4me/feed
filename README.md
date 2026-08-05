@@ -3,8 +3,110 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-05 17:14:55 </h5>
+<h5> 🟢 Updated at: 2026-08-05 19:24:35 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-05 17:47:58
+
+
+
+بنیامین نتانیاهو، نخست وزیر اسرائیل روز چهارشنبه ۱۴ مردادماه با انتشار پیامی ویدیویی اعلام کرد این کشور با طرح پیشنهادی آمریکا برای خلع سلاح حماس و مدیریت غزه موافق نیست.
+نتانیاهو در این پیام گفت: ««رئیس جمهوری ترامپ و تیمش فکر می‌کنند می‌توانند حماس را به خلع سلاح و غیرنظامی کردن غزه وادار کنند. ما در حال بررسی این موضوع هستیم. آنها پیش‌نویسی برای ما فرستادند، ما موافق نبودیم، این پیش‌نویس ما نیست؛ ما نظرات خود را ارسال کردیم.»
+حماس هفته گذشته اعلام کرد به شرط خروج اسرائیل از نوار غزه، خود را خلع سلاخ می‌کند. با وجود واکنش مثبت ترامپ، اسرائیل همچنان با این پیشنهاد حماس مخالف است و چند وزیر کابینه ائتلافی، پیشاپیش تاکید کرده‌اند که ارتش این کشور از غزه خارج نخواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77757)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-05 17:45:14
+
+<img src="https://cdn4.telesco.pe/file/Z9RVYot_mYY84Djb62faj5oWLvBnB7bP0MwyxNX28xGx-PVHpyMqyUXyXgUuor27PsFphTw9PjGwHhhoTs1LXY-KZi4IrNBFi26fT3fVvw75x1lCXV_5cXoC9EVJagkoHhSTxA9DksS8F5bPkSxYzDI7vSfzJxBoSx1-C_LE6veH9jwgw7Au4E048thL_kEhQ4DywryDQVFyl_keEe_Oh5jU7AC4H8Ir3WR8dWe3LiOZsziPAJwDb_ZTqxW42cgXhZvqILbdKsCdyL9lFYkOxkImdWF3v19F8I2bX1pz3P2ROnrJTTz0JyPL-Og3uAI16jdtk2Fu8KiyhHqBBhHcDg.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا می‌گوید یک گزارش باتاخیر از یک کشتی در فاصله ۹ مایل دریایی (تقریبا ۱۶ کیلومتر) از بندر «مخا» در یمن دریافت کرده است.
+بنابر این گزارش، یک شهپاد به این کشتی در دریای سرخ برخورد کرد و باعث آتش‌سوزی شد اما خدمه و کارکنان همگی سالم هستند و نجات یافته‌اند.
+به گفته این سازمان این کشتی اکنون غرق شده است.
+جزئیات بیشتری منتشر نشده است. ساعاتی پیش حوثی‌های یمن که همسو با ایران هستند، اعلام کردند که با موشک بالستیک به یک نفتکش سعودی در دریای سرخ حمله کرده‌اند.
+این هشتمین شناوری بود که از زمان آغاز محاصره دریایی علیه عربستان سعودی هدف قرار گرفته است.
+سخنگوی نظامی حوثی‌ها به زمان حمله اشاره نکرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77756)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-05 17:43:05
+
+<img src="https://cdn4.telesco.pe/file/E94WEvBLfRskcDNBF8vP5-sS0Sg43JWAf6vd_6hacrBEBad4_FXx2gf36NjyZnCAzdhrLOOVSNw6P_PQ1db-ndBr879tX57Mg5pC7Wxq8vEYTVY9PcqBIbr05KOm-sHAiHLufvTwCGvsFX3XM8e0fjgaWmaxdqh557NkV84ufpMEotM3MEWOlqrN-i7iAxTwE_uukJi75s6sojGG2Ji3cz9iu42fXaFZU3izaxt-fLa5bCnAccqvsp8ALv3Mf4cxpGLOXB4qCptv5tzLG_XwY7iW68pv1oYvTC3PNohcJ1OWRPhCwPflXv7eh5jIQBz2tIN3H0nwAWCFOTqSVWqsZA.jpg" width="400"><br>
+
+محمدباقر خرازی، دبیرکل «حزب‌الله ایران»، در واکنشی دوپهلو به تکذیب دفتر مجتبی خامنه‌ای، اعلام کرد این تکذیبیه را می‌پذیرد، اما ابراز امیدواری کرد پس از «تغییرات مهم آینده» این دفتر نیز همچنان پابرجا بماند.
+این واکنش شامگاه سه‌شنبه ۱۳مرداد۱۴۰۵، در صفحه اینستاگرام دفتر خرازی منتشر شد.
+در بیانیه دفتر او آمده است: «گرچه به احترام قائد شهید و نیز رهبر معظم حاضر، تکذیبیه روابط عمومی و دفتر نشر آثار را حدوثاً می‌پذیریم، ولی امیدواریم پس از تغییرات مهم آینده در حوزه دفاتر فوق، این تکذیبیه همچنان باقی بماند.»
+در ادامه بیانیه آمده است: «خداوند ما را در صورت استقامت و صبر در راه اهل‌بیت و ولایت معظم فقیه یاری خواهد فرمود.»
+فرستاده است.
+دفتر مجتبی خامنه‌ای ساعاتی پیش از انتشار پاسخ خرازی، ادعای او درباره هشدار رهبر جمهوری اسلامی به مسعود پزشکیان بر سر استعفا را تکذیب کرده بود.
+در بیانیه این دفتر، بدون نام‌بردن از خرازی، آمده بود: «مطلب منتشرشده در فضای مجازی که در آن فردی، ادعایی را درباره واکنش رهبر انقلاب اسلامی به نامه رییس‌جمهوری محترم مطرح کرده، از اساس کذب و خلاف واقع است.»
+دفتر مجتبی خامنه‌ای انتشار این ادعا را «زمینه‌ساز تشویش اذهان عمومی و ایجاد انشقاق و اختلاف در جامعه» توصیف کرده بود.
+یک روز پیش از انتشار این تکذیبیه، ویدیویی از سخنان خرازی در شبکه‌های اجتماعی منتشر شده بود. او در این ویدیو مدعی شده بود مسعود پزشکیان تاکنون ۲۸ بار استعفا داده یا تهدید به کناره‌گیری کرده است.
+خرازی همچنین گفته بود مجتبی خامنه‌ای در واکنش به این موضوع نوشته است: «یک بار دیگر پزشکیان استعفا کند، استعفایش را می‌پذیریم.»
+او مدعی شده بود پس از این هشدار، پزشکیان و دیگر مقام‌های دولت از مطرح‌کردن دوباره استعفا عقب‌نشینی کرده‌اند.
+@
+VahidHeadline
+درباره
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77755)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-05 17:39:20
+
+<img src="https://cdn4.telesco.pe/file/Fp-0eCUHLj2pMH6g035WmDkHj74irGmXoZj-Le_YPasC1bwwJQsJ1j-AeZGKe-SSzQwULtmWZA8A3gpN_IZZ2KvlHpcwntjjR2MzEoJ7ox1ijz84dmILx4ye6nXkquxp6LuC0_R71TKikxux0WcpsvxHF6akqDO8uI_pfHnh-NP1qwmXru2U8RVLDF-IPHGDE7Cnqsw9tbK7YI6QZLBWL5Tp9e0u3_h8odTD5ZG8VltFb_-ySWnhTOvafqauxO-c1xPC-Zzhul95l2kHJw77TghSVRzirgTzwCEMiMElty4xn2I4LveP-3-hxDS_49MwIrPDNK1wWKQHJIWbhWIRfw.jpg" width="400"><br>
+
+کمیسر عالی حقوق بشر سازمان ملل متحد، اعلام کرد که از ۲۹ اسفند ۱۴۰۴ تاکنون، دست‌کم ۵۶ نفر در ایران با اتهام‌های امنیتی اعدام شده‌اند.
+ولکر تورک با صدور بیانیه‌ای یادآور شد که از این تعداد ۲۷ نفر از معترضانی هستند که در تجمعات اعتراضی دستگیر شده‌اند.
+او اعلام کرد که در این مدت روند صدور و اجرای احکام اعدام در ایران افزایش یافته است.
+کمیسر عالی حقوق بشر سازمان ملل متحد از مقام‌های جمهوری اسلامی خواست تا همه اعدام‌ها را متوقف کنند و در مسیر لغو مجازات اعدام گام بردارند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77754)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-05 17:36:39
+
+<img src="https://cdn1.telesco.pe/file/BXpXVxADZTvQXIlJaxdwjDq6_oKR1UD3FEO6TAmVE40Y6PIqV7JxPzyd_H2Q2F1LClnjRUW-A6V1oUqXyY-t3mutZSH9g7u-WZZepAbuAdenqt9mJMr6e_ZkNpYZ4gz1RAQX2NEp4HBMd8H4XsXX9_b4qAwjjnPWCIh08Xz7jJCM3gCYHqY-OBxgGEL2yzlOR0qWiH4Plo1uWEwCkTjNiHYe6zz0RQ-yKfEbZtHyC4rrpDLWD0Zh56eyowUSSw8gd0g9P_2wx89U3e6UFLCWx4hUySl4sv01ovLij06UoREEm1QEE07nhX8HbBLVJWKmt3D5YdCEHdok0keDo74jSA.jpg" width="400"><br>
+
+مصطفی قاسمی حسنوند، شاعر، زندانی سیاسی سابق و شهروند اهل شهرستان الشتر، روز یکشنبه ۱۱ مرداد ۱۴۰۵ پس از اقدام به پایان دادن به زندگی خود مقابل دفتر سازمان ملل در اربیل جان باخت.
+منابع آگاه به ایران‌وایر می‌گویند او پس از آزادی از زندان با مشکلات روحی و فشارهای ناشی از پرونده قضایی خود روبه‌رو بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77753)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-05 08:56:01
@@ -191,7 +293,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-04 18:51:38
 
-<img src="https://cdn1.telesco.pe/file/CSEUEyX4Kn5GnC6XuhjX_sLEHU0G55gsgYG-2veKCEU8d114znvOTcYEwWOLWOuDJu1TiBcZdKKp6fw5FIaWlNLinhqKYgUAkTIZAyNCPlqyj-kRepw67M_XWxfMLU-XS1XkpSgvHKDTKlDqNQxGgodWWXbNuSla1rt8_VKk1OeLUDapIZ-Hwzz6otsgUQhIBO0P1H4EW2qaTnTh817g_RJNkQ6ZYLudxtlWWNeLF3XflPNyyhOycmukO0T7XmwyHHj2X81qHd5fzW9CdKSOIElWM3Dk6B63RY6-8eat5nb31Y0DKK__7dkV0hDlmpsqfAW6HO3Kh3gs5g1a2jqDmA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/SacsVaqvBA-TdquoVpWg0zEETEpmDZqUAGBh32xUQb0h-PrqsJ2s9UZUVcSE7yd5pAEY-m0ekFHSYQH1z-OAhLp8XSiUhQE95DwEOYrn-v1xDxA-ZPCs5JjVHvhSAWLK6shvifzovzkjqwwW45knGf1WwhzIxC1ZQEm0iQZ98F1rvhSP03eWmQRj5xHCtF6Kl9embrsdXqXzo9OqoGz3iF7YaHrgvL8UWC14a_wtcPuGk152OmRbLKkwsaIm0aTEWFpXiqCz4vGe0YqUJzniwPd0fwSBv-t24iWbC-QQQMR6FJGzxkRmwEQuhc2T60ler-xRb97ks5etS-_IF-B21g.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا، گفت ایالات متحده ممکن است تا روز چهارشنبه برای بازگشایی تنگه هرمز با ایران به توافق برسد؛ توافقی که به گفته او می‌تواند قیمت انرژی را تثبیت کند.
 او روز سه‌شنبه در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت: «ما با ایرانی‌ها در حال مذاکره هستیم و فکر می‌کنم این احتمال وجود دارد که امروز یا فردا برای بازگشایی تنگه و حرکت به سوی وضعیتی عادی‌تر در این درگیری به توافق برسیم.»
@@ -231,7 +333,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-04 18:30:18
 
-<img src="https://cdn1.telesco.pe/file/jOID2-zoYrK7dy9pH52DQHM61n-4LgRZRPrND7-BFx_lG0elEL8s3rIVcGcbdHVbk7Riyix-mkg8q3TCY2bHtKJBQDU80dpj3WW_-BRHUA61hgkeWAcPBjxz-sGjY8b-zYdfBdJMeBUzSV4_fIbJmnPiUpS6kFFpTS8Do7XsrppwZH6YB-iaoCBubn_Whbc31bhgOMov8t2iM0VOngbxQfYGft4A57z5xZPgObHy7No8Q8XCLhuLWTtC5ZJ2tPE0j2DdPr-cVFJfPqLjvhAx255TTQOh4Y42TKZWntJYkKv8N0OAjN2_nOYLc4hSvMVHffI1M0oc1rXwPsMBDHO4Aw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/C4QQiF-GzLQfgR_SmWyxuW8SOEmxnODUGzvmfrYW9Kjsz1sywOLBahpYheIoGsGw1KA7yNUwfZlo0PhOQQv7Ci-5QJ9CEB-KOxyrYHCiHDA9HYfjUWcyRKxMBjZJeh0FseApNhOGT39-XKjESsgtYjEUhYHe7Hs2jaGy3_g9UXIB1eBcQq4w5Ws4B2DBHmbBf8K2bqqvhCJ1oNnVWS9s8cBrd2t2JQ-zDOQPGlcAgIxWNXayoyviKJpJuniytovNEcvlS-1NmfmlYkLf2EjL3hcm5kWQhf-s8qHV8BHsvBBGDjGGdQ79VxHnTQhMUrwkJp8nMJhw5LwqbScO3D3juA.jpg" width="400"><br>
 
 ویدیوها از کانال‌های غیررسمی حکومتی
 درگیری میان حامیان جمهوری اسلامی و مقلدان صادق شیرازی، از مراجع تقلید منتقد جمهوری اسلامی، در جریان مراسم اربعین در کربلا به بازداشت ۱۴۰ نفر و مجروح شدن ۵۴ نفر انجامید.
@@ -248,29 +350,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77735)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-04 18:23:43
-
-<img src="https://cdn1.telesco.pe/file/TcyhPrgFQxjlAQJexFNagQ6dGvEQ8jUmglOxBKKUtshoTMPUmhde8nEpXCBQfhBxZoLtdZ523-lkGtP5RlnVY-YW5A65V_8wZ4zGNm5fmtzF-7VHJHO_9oOMj4wIIA76PNAVfNml7ObnaqDu0unYDnBtCj3kvSAnK29JaCH2ELtAeik-9p-gxU24uGa0k-FMAZy0FYb66jHk5PtVFXxjiXtMsjhOzVqV0Diro9UIQnw0OuVZ6uxuKvjrqLeI2lRVR5MoNPCtizzASS-t8-fSNPlNzpfHBU5aCx6AtnzAyt2g7hVmSM0P2Ys2dmGcNXeZR5RJCiXqwDzrfP4auRF71A.jpg" width="400"><br>
-
-شرکت نفتی آرامکوی عربستان سعودی روز سه‌شنبه اعلام کرد سود خالص این شرکت در سه‌ماهه دوم سال جاری، هم‌زمان با افزایش قیمت انرژی بر اثر جنگ خاورمیانه، ۴۴ درصد رشد کرده است.
-بر اساس گزارش مالی آرامکو، سود خالص این شرکت از آوریل تا ژوئن به ۱۲۲ میلیارد و ۶۰۰ میلیون ریال سعودی، معادل ۳۲ میلیارد و ۷۰۰ میلیون دلار، رسید؛ در حالی که این رقم در دوره مشابه سال گذشته ۸۵ میلیارد ریال بود.
-امین ناصر، مدیرعامل آرامکو، گفت این شرکت با وجود اختلال بی‌سابقه در عرضه نفت از مسیر تنگه هرمز، توانسته است با استفاده از خط لوله شرق به غرب، ظرفیت‌های ذخیره‌سازی و پایانه‌های صادراتی، فعالیت خود را ادامه دهد.
-اعلام افزایش سود آرامکو هم‌زمان با انتقاد دونالد ترامپ، رئیس‌جمهور آمریکا، از سود بالای شرکت‌های نفتی صورت گرفت. او گفت این شرکت‌ها به‌دلیل کمبود نفت ناشی از جنگ «بیش از حد پول درمی‌آورند».
-@
-VahidHeadline
-شرکت بزرگ انرژی بریتانیا، بی‌پی (از بزرگ‌ترین شرکت‌های نفت و گاز جهان)، اعلام کرد سود خالص این شرکت در سه‌ماهه دوم سال ۲۰۲۶، هم‌زمان با افزایش قیمت انرژی در پی جنگ آمریکا و جمهوری اسلامی، بیش از دو برابر شده و به سه میلیارد و ۹۱۰ میلیون دلار رسیده است.
-سی‌بی‌اس به نقل از خبرگزاری فرانسه نوشت پنج شرکت بزرگ انرژی غربی، شامل بی‌پی، شورون، اکسون‌موبیل، شل و توتال‌انرژیز، در مجموع نزدیک به ۴۷ میلیارد دلار سود خالص در سه‌ماهه دوم سال ثبت کرده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77733)
 
 ---
 
