@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-06 13:59:11 </h5>
+<h5> 🟢 Updated at: 2026-08-06 16:21:12 </h5>
 </div>
 
 
@@ -203,7 +203,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-05 17:39:20
 
-<img src="https://cdn4.telesco.pe/file/Fp-0eCUHLj2pMH6g035WmDkHj74irGmXoZj-Le_YPasC1bwwJQsJ1j-AeZGKe-SSzQwULtmWZA8A3gpN_IZZ2KvlHpcwntjjR2MzEoJ7ox1ijz84dmILx4ye6nXkquxp6LuC0_R71TKikxux0WcpsvxHF6akqDO8uI_pfHnh-NP1qwmXru2U8RVLDF-IPHGDE7Cnqsw9tbK7YI6QZLBWL5Tp9e0u3_h8odTD5ZG8VltFb_-ySWnhTOvafqauxO-c1xPC-Zzhul95l2kHJw77TghSVRzirgTzwCEMiMElty4xn2I4LveP-3-hxDS_49MwIrPDNK1wWKQHJIWbhWIRfw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/CzNQhokto_X7ugaZpXnyY-iqDGiY0whY2FgG2GcMCu5NW5gkM5-NxcamnyqOG3ruuR7v5RKQn-6XmJc43PFD5r-GVSmTP_66R8jR0Eh85knWWwiHBfobBtQSg6fJwKyt5UPdMwJUmw3LaUIFFlzgKntPB4u-0CoEegxVZbKgLIszoJQDeupkjEtspUnq-uUbpwxO3Nt0mn81C4ehrjV8yYsvi1x1AGKLa0MAXJw8SRc8RcruolrLiLIqIbD9Qe7DkrVkjEqF_OABhtUk87DD733xZlLq7Vvg4Efh-2NH7zO75Zjb9MTIUm6gBGkiMtFBGEYftQc3hQx3JZonr7EIgA.jpg" width="400"><br>
 
 کمیسر عالی حقوق بشر سازمان ملل متحد، اعلام کرد که از ۲۹ اسفند ۱۴۰۴ تاکنون، دست‌کم ۵۶ نفر در ایران با اتهام‌های امنیتی اعدام شده‌اند.
 ولکر تورک با صدور بیانیه‌ای یادآور شد که از این تعداد ۲۷ نفر از معترضانی هستند که در تجمعات اعتراضی دستگیر شده‌اند.
@@ -421,7 +421,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-04 18:51:38
 
-<img src="https://cdn1.telesco.pe/file/SacsVaqvBA-TdquoVpWg0zEETEpmDZqUAGBh32xUQb0h-PrqsJ2s9UZUVcSE7yd5pAEY-m0ekFHSYQH1z-OAhLp8XSiUhQE95DwEOYrn-v1xDxA-ZPCs5JjVHvhSAWLK6shvifzovzkjqwwW45knGf1WwhzIxC1ZQEm0iQZ98F1rvhSP03eWmQRj5xHCtF6Kl9embrsdXqXzo9OqoGz3iF7YaHrgvL8UWC14a_wtcPuGk152OmRbLKkwsaIm0aTEWFpXiqCz4vGe0YqUJzniwPd0fwSBv-t24iWbC-QQQMR6FJGzxkRmwEQuhc2T60ler-xRb97ks5etS-_IF-B21g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/et5Ejp_Gy4NclHaBmNtcxWrPqdC_SQrYvn7NzF48G6aKpM8AH-YTDvJKoLsfqYuG42_KpnVZuPH83jRx_4IFermPZVn1Vk_3q_YAOcBxQIb3GT7p6sfLllW08lAKhSAUD7Oy22PCrsTZnG-MRvQCgKC5--09sklMNny8LtwN5R0e0YyyH9RhHRIgzVNOQiluV20MuDkNC7FArmP6Xa43ceHquRqqTlnXzTuvoyPVS_szvzHv3q4zpdtFFz31iVp6XFuwOiKqitPsjyOMzzV8UtnA_gL5NFFRQLBqkhU80JtyTplU66enhV0k9v8y2iVzr0a7o3KBpYyh6L7lK7YsRg.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا، گفت ایالات متحده ممکن است تا روز چهارشنبه برای بازگشایی تنگه هرمز با ایران به توافق برسد؛ توافقی که به گفته او می‌تواند قیمت انرژی را تثبیت کند.
 او روز سه‌شنبه در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت: «ما با ایرانی‌ها در حال مذاکره هستیم و فکر می‌کنم این احتمال وجود دارد که امروز یا فردا برای بازگشایی تنگه و حرکت به سوی وضعیتی عادی‌تر در این درگیری به توافق برسیم.»
