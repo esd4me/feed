@@ -3,8 +3,142 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-06 18:37:09 </h5>
+<h5> 🟢 Updated at: 2026-08-07 03:20:42 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-07 01:06:58
+
+
+
+گفت‌وگوی ترامپ با خبرنگاران
+بخش‌های مرتبط با ایران به تشخیص و ترجمه ماشین:
+🔺
+خبرنگار:
+و آقای رئیس‌جمهور، جمهوری‌خواهان اکنون بحث زیادی درباره قدرت خرید و هزینه‌های زندگی دارند. پیام شما درباره این موضوع در آستانه انتخابات میان‌دوره‌ای چیست؟
+🔻
+ترامپ:
+سؤال خوبی است، اما پاسخ آن تا حدی ساده است. من بالاترین قیمت‌های تاریخ را به ارث بردم. بدترین تورم تاریخ کشورمان را به ارث بردم و ما کار فوق‌العاده‌ای انجام داده‌ایم.
+قیمت نفت اکنون به‌سرعت در حال کاهش است. اگر به اوضاع نگاه کنید، تا ۷۵ پایین آمده است.
+وقتی آن اقدام بسیار مهم را در جمهوری اسلامی ایران آغاز کردم، اقدام بسیار مهمی بود؛ چون آن‌ها نمی‌توانند سلاح هسته‌ای داشته باشند. در غیر این صورت، تمام جهان منفجر می‌شد. ما اجازه نمی‌دهیم چنین اتفاقی بیفتد. مسئله فقط ما یا خاورمیانه نبود؛ برای تمام جهان فاجعه‌بار می‌شد. چاره دیگری نداشتیم.
+قیمت بنزین در بسیاری از نقاط، مانند آیووا، به کمتر از دو دلار رسیده بود؛ قیمت‌هایی که مردم سال‌ها ندیده بودند: یک دلار و ۸۵ سنت، یک دلار و ۹۵ سنت. سه‌شنبه در یکی از توقف‌هایم در آیووا، در یک محل قیمت ۱٫۹۵ دلار و در محل دیگری ۱٫۸۵ دلار برای هر گالن بود.
+بر اساس هرچه می‌بینم، به‌محض پایان جنگ، خیلی زود دوباره آن روزها را خواهیم دید. فکر می‌کنم جنگ به‌زودی پایان پیدا کند. تصور نمی‌کنم آن‌ها بتوانند مدت خیلی بیشتری ادامه بدهند. بله، بفرمایید.
+🔺
+خبرنگار:
+آیا برای بازگشایی تنگه هرمز توافقی حاصل شده است؟
+🔻
+ترامپ:
+نمی‌خواهم بگویم که توافق حاصل شده است. تنگه در حال حاضر تا حدودی باز است. می‌دانید، چیزی داریم که «محاصره» نامیده می‌شود و نیروی دریایی آمریکا آن را هدایت می‌کند؛ ما آن را کنترل می‌کنیم.
+اکنون کنترل آن با ماست، اما آن‌ها همیشه می‌توانند به چیزی شلیک کنند یا مینی در آب بیندازند. حتی اگر فقط یک مین آن بیرون باشد، اوضاع را به هم می‌ریزد؛ چون مردم نمی‌خواهند کشتی‌های میلیارددلاری خود را وارد منطقه کنند و تصادفاً با مین برخورد کنند.
+اما فکر می‌کنم عملکردمان بسیار خوب است. خودم در مذاکرات دخیل هستم و فکر می‌کنم اوضاع خوب پیش می‌رود. ممکن است توافق حاصل شود؛ ممکن است به‌زودی باشد. بله.
+🔺
+خبرنگار:
+آقای رئیس‌جمهور، درباره مهمات؛ شما شب گذشته نوشتید که آمریکا مقدار عظیمی مهمات دارد و وجود هرگونه کمبود را رد کردید. در عین حال، یک درخواست بودجه تکمیلی ۲۱ میلیارد دلاری برای پرکردن مجدد ذخایر وجود دارد. اگر کمبودی نیست، چرا این درخواست همچنان مطرح است؟
+🔻
+ترامپ:
+چون همیشه به مقدار بیشتری نیاز داریم. منظورم این است که مهمات بیشتری لازم داریم.
+ببینید، دولت بایدن مقدار بسیار زیادی به اوکراین داد؛ رایگان، بدون دریافت هیچ پولی. میلیاردها و صدها میلیارد دلار.
+خوشبختانه من در دوره خودم ذخایر بسیار زیادی ایجاد کرده بودم. نیروهای نظامی را بازسازی کردم و مقدار زیادی تجهیزات و مهمات نیز در اختیارشان گذاشتم.
+از بعضی انواع مهمات بسیار قدرتمند، ذخیره‌ای نامحدود یا تقریباً نامحدود داریم. در مورد بعضی انواع دیگر، وضعیت کمی محدودتر است و هر روز محموله‌های تازه دریافت می‌کنیم.
+همان‌طور که می‌دانید، شرکت‌های دفاعی ما اکنون بیش از هر زمان دیگری در تاریخ کارخانه می‌سازند. برای موشک‌های پاتریوت، تاماهاوک و همه‌چیز کارخانه می‌سازند.
+در عین حال، انواعی از مهمات داریم که ممکن است به آن اندازه دقیق نباشند یا در آن سطح ممتاز قرار نگیرند. نمونه‌های ممتاز را هم داریم و این موضوع را بسیار دقیق زیر نظر گرفته‌ایم. اما بعضی از انواع مهمات ما بسیار قدرتمند و بسیار خوب‌اند و ذخیره‌ای نامحدود از آن‌ها داریم.
+بنابراین در وضعیت بسیار خوبی هستیم. بااین‌حال، همیشه مهمات بیشتری می‌خواهیم و باید مقدار بیشتری داشته باشیم. ممکن است مسائل دیگری پیش بیاید و ممکن است هم پیش نیاید. امیدوارم هیچ مسئله دیگری پیش نیاید، اما ما در وضعیت بسیار خوبی قرار داریم. واقعاً مقادیر عظیمی مهمات داریم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77767)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-06 23:05:24
+
+<img src="https://cdn1.telesco.pe/file/KPLheKG_Fl5TQthO9djGPEZUNV9DK1VFYdVdULsouqRM_4OQ9mYqE4CvV9BLWSklsHWCpnL3JCwSKhOkJbFv2F8wznpEKCBghsKgmpvvnOgHw52SGFsO_4K3uVj2VwbVbt6LHF5quWBCpMVLbOzBP_N6ivfsUICmzQydqITpyzmAqFNjDz0N412tr66qnVmC03orsZGI6g1l0n7QnUWlVVZGC5zqquRA2qZcngv5kAuXWJVtK1dJT9XvkhM9cXkrSUzOEDJSPswFBUNilhaIzqTHwzxH6N4ixwYKYqkuiet1v1sgmNtJVGAEzPT9xdCBEaVy3RDKBAocDpZcsx4wAA.jpg" width="400"><br>
+
+پیام‌های دریافتی: سلام وحید جان  همین الان دو صدای بد انفجار شنیده شد قشم  سلام ساعت ۲۱ و ۴۳ قشم دو انفجار نزدیک شهر   سلام وحید جان الان قشم صدای دو انفجار بد اومد صدا از شرق جزیره احتمالا یا کشتی زدن یا تو آسمون چیزی زدن  وحید قشم رو زدنننننننن [لطفا صداها…
+
+[View Post](https://t.me/VahidOnline/77766)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-06 22:05:50
+
+<img src="https://cdn1.telesco.pe/file/CNm_Erjs950NJors80LeEqOZXlHgCBjK8Vi9DrJj78mhACg6Bd15Wk2eCU3xUnRDK0WPeFTm_ToKMCz6u-3imu-iqiTAGaX6j9BzpOsN1Qr0_QrSimDT2UbNljsx9l-ptiv5ePO0fNzTQJ48wQWs1xdqsgHtzhxGRosDxlUC7v6ZVDpeqAdlBnuVnhwoRwyDnRU14k8a01gZeSzpaJnhRSm77lmidZeD4BKRcGU2EwYFwTX8OGLe96Hi6RhdcxHmaoHBRVoIMmjrt8EbUB285QVwshKybilEDPhKxNU_eV6tTRsF-ZqTIrjK3cHJbB_Cq50knt_muIBIHuPgdSi1DA.jpg" width="400"><br>
+
+پست قالیباف، ترجمه ماشین:
+«حمله‌ای عظیم در راه است... صبر کنید، بی‌خیال؛ آنها می‌خواهند مذاکره کنند.»
+این همان نمایش دیپلماسی است که مدام تکرار می‌شود.
+استفاده از زورگویی، وعده‌های نقض‌شده و اخبار جعلی به‌عنوان اهرم فشار، راهبردی شکست‌خورده است.
+واقعیت‌ها را بپذیرید و به تعهدات خود عمل کنید. ما به نمایش‌های بیشتری نیاز نداریم.
+mb_ghalibaf
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77765)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-06 21:44:52
+
+
+
+پیام‌های دریافتی:
+سلام وحید جان
+همین الان دو صدای بد انفجار شنیده شد قشم
+سلام ساعت ۲۱ و ۴۳
+قشم دو انفجار نزدیک شهر
+سلام وحید جان الان قشم صدای دو انفجار بد اومد
+صدا از شرق جزیره احتمالا یا کشتی زدن یا تو آسمون چیزی زدن
+وحید قشم رو زدنننننننن [لطفا صداها رو تفسیر نکنید]
+۴ تا انفجاررررر
+قشم هم اکننون سه انفجار
+ساعت ۲۱:۴۱ قشم
+دوتا انفجار یکیش خیلی قوی تر بود، اسکله بهمن بود یا کشتی‌های نزدیک اسکله
+بندرعباس ۲۱:۴۳ دو سه تا صدای انفجار [که لابد همون قشم بوده.]
+همین الان صدای ۴ تا انفجار اومد قشم
+دوتاش خیلی شدیدو نزدیک بود
+دوتاش خیلی دور بود
+سلام وحید جان ساعت ۹ و ۴۲ دقیقه قشم دوبار صدای انفجار اومد ،نمی‌دونم چی بود ،خونه لرزید
+ساعت ۲۱:۴۰ صدای ۲ انفجار شدید شهر قشم درب و پنجره ها لرزید
+سلام وحید جان صدا سه تا انفجار تو قشم اومد دوتا شدید بود یکی انگاری دور بود
+🔄
+منابع حکومتی:
+🔹
+معاون امنیتی استانداری هرمزگان،: تاکنون هیچ‌گونه اصابت یا حادثه‌ای در جزیرۀ قشم و شهر بندرعباس گزارش نشده است.
+🔹
+بررسی‌های لازم توسط دستگاه‌های مسئول برای شناسایی منشأ صدای شنیده‌شده درحال انجام است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77764)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-06 20:31:36
+
+<img src="https://cdn1.telesco.pe/file/LSASqngXsXXe9joyJ5jlmviJ1jNcmzxgELWKYN-yeF503Q1ndjDS1SNfNa8mnGvz_ZTXSzXzNneB0rdmx5mqy5xeH6UPWX-8pPonj4s0hLcZCX6gJmMK57iXlmYe1kAy0GBpxMY5Q4-ECcsB4g7d-ik81oLDOW3wQ6xG86kD1Cll6mFLENsJMc-mH-Zz1guH0Gd5VUDAzhVTHR0WCffHik_N2MzRdJZn23e1__rBeynzeu-vHIl6i90_WXijdK4WhwaJTHptEpdPva8kP0CJN4U1xWxh_wS4cznFz8r4fXAMDeZU-fzoTU2NiPU8KCCkGSLQLV2hvYoTLnlk4aG0EQ.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+اخبار جعلی، طبق معمول، در حال انتشار شایعاتی دروغین و کاملاً بی‌اساس است. من از عملکرد پیت هگست به‌شدت راضی هستم. همه‌چیز فوق‌العاده بوده است؛ از جمله حمله ما به ونزوئلا که نتیجه آن در کمتر از یک روز حاصل شد و به ما امکان داد نیکلاس مادورو، یکی از بدترین جنایتکاران در سراسر جهان، را به دست عدالت بسپاریم!
+همین‌طور اوضاع ایران، که برای هرگز اجازه ندادن به آن برای دستیابی به سلاح هسته‌ای به‌شدت درهم کوبیده شده، بسیار خوب پیش می‌رود! پیت در میان نیروهای نظامی از احترام بسیار بالایی برخوردار است و اصلاحات عظیمی انجام داده؛ از جمله برچیدن سیاست‌های تنوع، برابری و شمول (DEI) و افزایش جذب نیرو به سطوحی تاریخی.
+این شایعه را «واشنگتن کام‌پوست» ــ یکی از بدترین رسانه‌های این حرفه ــ به راه انداخت، آن هم با وجود اینکه به آن‌ها گفته بودیم گزارششان کاملاً دروغ است. در واقع، من واقعاً معتقدم این «گزارش‌گری» جعلی آن‌ها خیانت‌آمیز است!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+درباره
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77763)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-06 09:10:03
@@ -90,7 +224,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-05 21:17:18
 
-<img src="https://cdn4.telesco.pe/file/W8sTi_N3Kncp7220QgkrlAmc2tTtqzQDlmal4RCPBSXU0fnyVj_y2k9DPsakO-dH9Sy9tv4jeV2i5hSEBacyQN7g9Zvp5KTwtXbEp9Ut5f25dMGTHveZ5Lo06TJpfBJipkTYZYZaq6evborUCwzszdUZiCu0pXCyYGnAkhGiN-3AtK1OmaLy2NLgsB-mAQpsl9FMm1xlcgHgQp86vfzWPHsvynw0q7QeeMimp6NslMfB4o6aPyHnlwzui0GbMBghp3Aad8PCA-8WOWZssgMYjr-Bxml2JaEUu2G_glwP5qeCzZV2wl591HcX8w_4txbFCPCDpX93Z6TjqzLS7uNdnw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Iw0Qx1kxjYtkTl8LawDmgVCXPt49GDHK59lnoHLhTpT18bo0LOApvgxp-4Ib-4OevYUTb6ERZk8-fZ9Uxp3f_CwiLUG1EFDabCtLa9RrVCGD8qt7dxgmj5cBDZrSa0rnxNYnWwNXiDMD2WWqGNxSju02wIKeV90us2URSg4n1NNs4XRqAij0L5_XZqebqQHpECSGO7tg9HotvxC_kDVkxs6LxvCLnh-Nwc6HCa2pMtpmfk0wQAlMr20ZVAa6GAOJdLxYbYL24dfTsvjvF8R1zRHQ464pl6jPs42MwVuNURHoR2HLKvp8ioWKPHPmrQDr8buLamWOfvPiY1AiEKm9hQ.jpg" width="400"><br>
 
 ارتش اسرائیل روز چهارشنبه ۱۴ مرداد، حملات جدیدی را به جنوب لبنان آغاز کرد و دلیل آن را «نقض آشکار آتش‌بس» از سوی گروه حزب‌الله دانست. این حملات که با صدور نخستین هشدار تخلیه پس از هفته‌ها برای ساکنان شهرک «منصوری» همراه بود، دست‌کم یک کشته و ۱۱ زخمی بر جا گذاشت.
 این رویارویی‌های جدید در حالی رخ داد که نمایندگان لبنان و اسرائیل با میانجی‌گری آمریکا در رم مشغول گفتگو برای پایان دادن به درگیری‌ها و عقب‌نشینی مرحله‌ای اسرائیل از جنوب لبنان بودند.
@@ -109,7 +243,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-05 19:49:17
 
-<img src="https://cdn4.telesco.pe/file/lXaL-JS4_HY5-GbyVA7jLtn2Qj_A42z2DZHQqk9HoBcm3gyI0mPxP3KZkeQPxYVL6PAryIWLEBbJGvzvsU7SSzJNo8wcbmsNg69yv7D4MLahTgSyVE-fsiMoC3fkkKJpTX9B3eSAC4On3xxLI1CS4jxva80A_tSaoJzcESoQ2d1bI3U8NWKufibh6EkzPkkDqOL2AtgM_La-OHwlODYZCeDpV7CRoaAFAeoExfAPdpn0e5Szpu6mV0alGHbipgQAC-EwF5o9DkmiB1O6dz8kBHAydhYIzzTWU6tXt5ks_YBoEVJ18VbTVQTbEpfzaBGEOrRWAtxnvBOrTG0A0F7MVw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/uFzFbhB47z58rpkEirGBUVSCkssT0UlciLzHCDLP6ZR1KNEl7z5XcoDp4Q3cf2OR63eOUVLZgYraMK5JqTfjKW80kpGBa9GLRs4-S4-n6tzrelwOH8wFmCRVR5GtU8MOjNg7l70JIira7kR8wRnUfww6qLXM9yOsIS-Y5pLHPS_qBmw8ZyMSMcWz2bC9kHf-x5CeftJMQtusre72PpvdJFQtpvzIKdKBS4nnN_yn1F5SFiHoFNZnogsyD0nAPxzaAvrUMGWHSfeNbwjcq9LOy0ER7ofv5j3T7V2zzZP2JQe8T7zImtiQSniLpvoZvXQomfpYTXFfkUqnqpVqoeUHZw.jpg" width="400"><br>
 
 ایالات متحده روز چهارشنبه ۱۴ مرداد تحریم‌های اعمال‌شده علیه شرکت هواپیمایی عراقی «فلای بغداد» را که پیش‌تر به اتهام همکاری با نیروی قدس سپاه پاسداران در فهرست تحریم‌ها قرار گرفته بود، لغو کرد.
 ا این حال، تحریم‌های بشیر عبدالقاظم علوان الشبانی، مالک معرفی‌شده این شرکت، همچنان به قوت خود باقی مانده است.
@@ -222,7 +356,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-05 17:36:39
 
-<img src="https://cdn1.telesco.pe/file/dv3DPCLsnwgsJbiRcyYFrUST4MgCt5Xj7XooT8781zhQ9QiE5rGkxCoFXCWklJFSsv-g8VfJEeNEB-Kxq8KeIbgV-uyfWX6JAceeJcBoKSHKcRBloRAT6Qi8j18aJSokHXg5pS2-P9-31HHcTO7fevei_RLMHuiF_FmgPq90rppFErkQAfh6nUbY9SjnjhSRLw3UqD5k9mkScWdRfnZrFQnUGQ5gMpbjQ4OpPYm_RFqCx9u_fEuRl83XmIsvgnU1RGtTm0G3WfP7i3edSVaJAqvbHGCNWbTU1Bj5Aks6mUlqKQ6xSqUpkxfSykJx6Va7olpsLG8NwNYLNtq4I9oDXA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NeqcWDLrEU6vfqp9YnIXx9FGvXZNFVF94QQZhCIK7YL9Q2WeF-rH7ZY_C3c5NQDJDgClFliNEnvsQBS4cosy_7vtGe0rb6LjQ2FHswL_rwxXfPuII9dYZImmAKEh8ppswuYoOWED8_GiRC7QKW7v9YyS5EISrZdINZWqMK2LyCDio38iryHC1NxV-adej2TGk_xx2D_9_ILjG-zgoQXsaomQiMBA2GTsVe9QKHR31qvbk5HT2KPYgRMsW3_TdwRO-tiIG5Tke8U7TC3BvqNyN2O8DFkkVbqd1od3qYdQl8kO7S15EBNdGcdNGY9DMWPAsRcAczT6H6IaDIZMNPUaQw.jpg" width="400"><br>
 
 مصطفی قاسمی حسنوند، شاعر، زندانی سیاسی سابق و شهروند اهل شهرستان الشتر، روز یکشنبه ۱۱ مرداد ۱۴۰۵ پس از اقدام به پایان دادن به زندگی خود مقابل دفتر سازمان ملل در اربیل جان باخت.
 منابع آگاه به ایران‌وایر می‌گویند او پس از آزادی از زندان با مشکلات روحی و فشارهای ناشی از پرونده قضایی خود روبه‌رو بود.
@@ -329,7 +463,7 @@ axios
 
 ###### 🔵 Post time: 2026-08-05 01:02:21
 
-<img src="https://cdn4.telesco.pe/file/Vi190pEEi7vxDnToSXxrVgnOVNWQaAB1K5RnXASl65h3DdwaQ8tPi4cNV1NvdPFtyvBqoImL_PMaSqGq0g6bi8woU6LhT0OA6MYzZY4Q5W9M2bddYkXlG99gRRTgjd0blgkcvt_0a3p6aardZS1ORrg998tw-yu-fS6O4sbj08r4XcsaOwHN9qGOhKSMkPKuqm-ppBfY5_u1zecv4LjEcbx2uIA9sY0itDHbHDOPcHu1lZy3knJ3HpaFwU0Z1x506qUds_cxq6Zt36_Clw9_A3xTQT_RDQ8Mh3FX_js4LE6Bo9SaKJMa2sXtk_8tE60j73halpttWfgNyM6eD2qxbQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/UIfTWYgAYsbvT5AXYmVT2CoUBO6FbOkOyBc8xTpdulz-QEOpSP6pJ5IvLYlrS6fHzR_es1Gm0_UyBa9MmPqqQ4b_kuAWlgsw-hcg24nqsgadomgSttKBDTyBpOaY71VzPasIaFKOHMH5E6fYMoOiAr2bDqncAEvTKMkGtuIvhMEzPAtWS_SP0xnCAogigr6L-9fnM-AihetkAaP7lFJ9t96nrwNY7ZyNN8TUUS7xNmvWqmPnpDV5nM9A8hZMRbIYYfo7sEumXkf7q1ytLTvBV3hyWxywyGGiVFpOJKyrzcAwzlBB-k_W4oVeNRWeuR9voo6zciDEgBfgbs-0kUXqvw.jpg" width="400"><br>
 
 پست سنتکام، ترجمه ماشین:
 مسیر جنوبی عبور از تنگه هرمز همچنان برای همه کشتی‌های تجاری که قصد گذر از این آبراه بین‌المللی را دارند، آزاد و باز است.
@@ -375,85 +509,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77748)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-04 22:28:05
-
-<img src="https://cdn4.telesco.pe/file/iZ75FkpZJYlxXf2sx5BrqN5LiNQq7ddK93wTj6Jj_nitzw3k2KT0ksJJZE-Ufu-D54QBFanhj9tiIsBzFa_gW0JqC0N1OZqBJp1QP4LZlqaSkvfgXIZzAQqltK324stmOC0ZIuUqzg5Zn2hPYhc2hQ1AzA46bR-zo0juFi_ryz7okSUzBeJwVmKkTCL_ee2GindljEWmfOiOBwtvkYpucAD3as_T6fnHAJcFZMqrz8notG_pEfVsvVxBdOxcSQbysBOcseQPq9pU1e7YviVYYmLGa45Kol09U9MnXq8V7d2ngbB_-jfrK3OU5q3MSEONlNKo99MXf7JklAuIJ_nmhA.jpg" width="400"><br>
-
-خبرگزاری دولتی قطر گزارش داد تمیم بن حمد آل ثانی، امیر قطر، روز سه‌شنبه در تماس تلفنی با دونالد ترامپ، رییس‌جمهوری آمریکا، آخرین تحولات منطقه، به‌ویژه تلاش‌ها برای کاهش تنش میان آمریکا و جمهوری اسلامی و نزدیک کردن دیدگاه‌های دو طرف را بررسی کرد.
-بر اساس این گزارش، ترامپ از نقش قطر در حمایت از تلاش‌های دیپلماتیک و تسهیل گفت‌وگو میان طرف‌ها برای تقویت امنیت و ثبات منطقه قدردانی کرد.
-امیر قطر نیز بر اهمیت ادامه گفت‌وگو، استفاده از راه‌حل‌های دیپلماتیک و پایبندی همه طرف‌ها به مفاد یادداشت تفاهم میان تهران و واشینگتن تاکید کرد. او همچنین خواستار حمایت از ابتکارهای بین‌المللی برای مهار تنش‌ها شد.
-دو طرف همچنین درباره شماری از موضوعات مورد علاقه مشترک گفت‌وگو و بر ادامه هماهنگی و رایزنی درباره تحولات منطقه‌ای و بین‌المللی تاکید کردند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77747)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-04 22:27:21
-
-<img src="https://cdn4.telesco.pe/file/tgQBZISCR4abwYooZos-l90Nrc7u7nXJ6Xqm0OcDIbVSzCwL0LiH4DQ91N8J8ppQPgtwBMnW32yU7SeB8waixGK_CtRdZ9t-pI6LLfU-W4VCbXfkdmkzeX6OiBBh7310ZMSwxMxvd5YaA99oVbi_griO8PDZ1FNMeu7YkxEb15pCLxNiheOihmejs7izPG3AzCRDE_EsStF7iwQyB8mXDe7gBlLRk-vqfUux2xCC3vYZFU0TZkqDAUG_00trRvsF7qVISB77nxRxR5AXbbOkRcx8anF2ltauZt0KhDLDH57vgbBLWyFhQJfHNLBtabB5cemE9jGxsaEFTCty81bzkw.jpg" width="400"><br>
-
-وزیر کشتیرانی هند روز سه‌شنبه ۱۳ مرداد اعلام کرد که یک پرتابه به یک کشتی با پرچم هند در نزدیکی یمن اصابت کرد که باعث واژگونی و غرق شدن آن شد.
-ساربانا‌ندا سونووال در پیامی در شبکهٔ ایکس نوشت که اما هر ۱۴ ملوان حاضر در کشتی، از جمله ۱۳ تبعهٔ هند، توسط گارد ساحلی یمن نجات یافته و به بندر مخا منتقل شدند.
-وزارت خارجه هند نیز اعلام کرد که این کشتی تجاری به نام «ام‌اس‌وی فیض نور علیا» روز ۱۳ مرداد در دریای سرخ و در سواحل یمن غرق شده و این وزارتخانه در حال هماهنگی با مقام‌های یمنی دربارهٔ این حادثه است.
-پالایشگاه‌های هند از زمان حملات حوثی‌ها به چند نفتکش سعودی، به دریافت محموله‌های نفتی خاورمیانه به‌صورت تحویلی روی آورده‌اند.
-تردد در دریای سرخ در نزدیکی سواحل یمن به‌دلیل اقدامات حوثی‌های همسو با تهران مختل شده است. حوثی‌ها با ایجاد اختلال در صادرات نفت عربستان، دامنه درگیری میان آمریکا و ایران را گسترش داده‌اند. پیش‌تر نیز عرضه نفت از طریق تنگه هرمز مختل شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77746)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-04 18:51:38
-
-<img src="https://cdn1.telesco.pe/file/et5Ejp_Gy4NclHaBmNtcxWrPqdC_SQrYvn7NzF48G6aKpM8AH-YTDvJKoLsfqYuG42_KpnVZuPH83jRx_4IFermPZVn1Vk_3q_YAOcBxQIb3GT7p6sfLllW08lAKhSAUD7Oy22PCrsTZnG-MRvQCgKC5--09sklMNny8LtwN5R0e0YyyH9RhHRIgzVNOQiluV20MuDkNC7FArmP6Xa43ceHquRqqTlnXzTuvoyPVS_szvzHv3q4zpdtFFz31iVp6XFuwOiKqitPsjyOMzzV8UtnA_gL5NFFRQLBqkhU80JtyTplU66enhV0k9v8y2iVzr0a7o3KBpYyh6L7lK7YsRg.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری آمریکا، گفت ایالات متحده ممکن است تا روز چهارشنبه برای بازگشایی تنگه هرمز با ایران به توافق برسد؛ توافقی که به گفته او می‌تواند قیمت انرژی را تثبیت کند.
-او روز سه‌شنبه در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت: «ما با ایرانی‌ها در حال مذاکره هستیم و فکر می‌کنم این احتمال وجود دارد که امروز یا فردا برای بازگشایی تنگه و حرکت به سوی وضعیتی عادی‌تر در این درگیری به توافق برسیم.»
-بسنت در پاسخ به این پرسش که آیا چنین توافقی به ایران اجازه خواهد داد از کشتی‌های عبوری عوارض دریافت کند، گفت: «فکر می‌کنم منظور، آزادی رفت‌وآمد خواهد بود.»
-@
-VahidHeadline
-مارکو روبیو، وزیر امور خارجه آمریکا، روز سه‌شنبه ۱۳ مردادماه اعلام کرد هدف نهایی مذاکرات با ایران، دستیابی به توافقی برای خلع سلاح هسته‌ای این کشور است و گفت توافق کنونی که تمرکز اصلی بر آن قرار دارد، به تضمین عبور امن کشتی‌ها از تنگه مربوط می‌شود.
-روبیو با اشاره به ادامه تردد کشتی‌ها و انتقال نفت از تنگه گفت: «همین حالا کشتی‌ها از تنگه عبور می‌کنند و صادرات نفت ادامه دارد. تنگه باز است.»
-او افزود: «خلع سلاح هسته‌ای ایران توافق نهایی است. توافق فوری، که اکنون بیشترین تمرکز بر آن قرار دارد، مربوط به تنگه است.»
-روبیو همچنین گفت مذاکراتی میان عمان و ایران درباره فراهم کردن امکان عبور امن کشتی‌های بیشتر از تنگه در کوتاه‌مدت در جریان است که آمریکا نیز در آن دخیل است. به گفته او، این مذاکرات پیشرفت کرده، اما هنوز به نتیجه نهایی نرسیده و واشنگتن امیدوار است به‌زودی به جمع‌بندی برسد.
-@
-VahidOOnLine
-قطر اعلام کرد تلاش‌ها برای دستیابی به راه‌حلی دیپلماتیک میان ایران و ایالات متحده ادامه دارد، اما هنوز توافقی حاصل نشده و هیچ مذاکره مستقیمی میان دو طرف برنامه‌ریزی نشده است.
-ماجد الانصاری، سخنگوی وزارت خارجه قطر، روز سه‌شنبه ۱۳ مرداد ۱۴۰۵ به خبرنگاران گفت رایزنی‌های دوحه با ایران و آمریکا همچنان ادامه دارد. به گفته او، این رایزنی‌ها بر دستیابی به «راه‌حلی کوتاه‌مدت» متمرکز است تا زمینه ازسرگیری گفت‌وگوها و احیای کامل روند میانجی‌گری فراهم شود.
-اظهارات سخنگوی وزارت خارجه قطر یک روز پس از آن مطرح شد که دونالد ترامپ، رییس‌جمهوری آمریکا، گفته بود مذاکرات با تهران در جریان است و ایران با «آخرین فرصت» برای دستیابی به توافق روبه‌روست.
-ترامپ گفته بود این مذاکرات به درخواست ایران، عربستان سعودی، امارات متحده عربی و قطر انجام می‌شود و افزوده بود: «این آخرین فرصت آن‌ها برای امضای یک توافق خوب است.»
-در مقابل، مقام‌های جمهوری اسلامی تأکید کرده‌اند که هیچ مذاکره‌ای با آمریکا در جریان نیست و گفت‌وگوهای کنونی ایران تنها با عمان و درباره تنگه هرمز انجام می‌شود. تهران همچنین اعلام کرده است که این هفته هیچ نشست مهمی برنامه‌ریزی نشده است.
-@
-VahidHeadline
-قیمت نفت روز سه‌شنبه ۱۳ مرداد پس از اظهارات مقامات قطر و وزیر خزانه‌داری آمریکا که امیدها را برای حل دیپلماتیک مناقشه خاورمیانه و بهبود عبور نفتکش‌ها از تنگه هرمز افزایش داد، حدود ۴ درصد کاهش یافت و به پایین‌ترین سطح خود در سه هفته اخیر رسید.
-@
-VahidOOnLine
-—-
-ترامپ هم دوباره چندین پست پشت هم منتشر کرد که یکیش لینکی است مربوط به مطلب ۲ روز پیش
-breitbart
-با تیتر:
-ترامپ: «توافق قریب‌الوقوع است»؛ مذاکرات با ایران درباره خلع سلاح هسته‌ای و هرمز دوشنبه از سر گرفته می‌شود
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77740)
 
 ---
 
