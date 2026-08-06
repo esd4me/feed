@@ -3,8 +3,31 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-06 05:15:36 </h5>
+<h5> 🟢 Updated at: 2026-08-06 08:27:36 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-06 08:25:42
+
+<img src="https://cdn1.telesco.pe/file/H-aAJJaOE4ox77xSgkm16tOfI3NYckY3drLDSqbGJ8rJYP5eC4nveXR7iqUToCZfqfc4v6-C_iHArf5d-auEPextYpJ3n6jx8lDN6N8wyi9BkZO5HCGIim2oKrAuuzSMy4TOhnxPFbt-3hRFDZY8PDPNGn8ePrrGlzgB0fOADDtF_R0F0d-cz-NBkPGDtKf8g5FXMIOs-4isUe0zWFyhCjsBdbdvbJPuQjamU5w2VJ9tPX0ITFr35zc5JcTacak0upQ9qHXoVuXyAvDNNOmubRZg92gO-nfTKRieLpcapgb-wIv0NlFW6IDfnRgZPtcMm6tVV5dWm-ddAYASUOZGgQ.jpg" width="400"><br>
+
+واشنگتن‌پست:
+درگیری ترامپ و هگست در کمپ دیوید بر سر نگرانی‌ها از کاهش ذخایر موشکی ایران
+ترجمه ماشین:
+در نشست این آخر هفته در کمپ دیوید، رئیس‌جمهور ترامپ از پیت هگست، وزیر دفاع، درباره کمبود شدید مهمات توضیح خواست.
+به گفته دو فرد آگاه از این گفت‌وگو به روزنامه واشنگتن‌پست، سرخوردگی دونالد ترامپ، رئیس‌جمهور آمریکا، از جنگ ایران هفته گذشته در کمپ دیوید فوران کرد؛ جایی که او از پیت هگست، وزیر دفاع، خواست توضیح دهد چرا ظاهراً درباره کمبود شدید مهمات ــ که اکنون گزینه‌های نظامی در برابر ایران را محدود می‌کند ــ گمراه شده است.
+این رویارویی روز جمعه و در حاشیه نشست کابینه ترامپ در کمپ دیوید رخ داد. به گفته هر دو فرد آگاه از گفت‌وگو، ترامپ با عصبانیت به هگست گفت تصور می‌کرده مشکل مهمات «حل شده است». این افراد نیز مانند دیگران، به‌دلیل ترس از تلافی‌جویی، به شرط ناشناس‌ماندن صحبت کردند.
+به گفته یکی از منابع، کمبودها، به‌ویژه در زمینه موشک‌های هدایت‌شونده دوربرد و موشک‌های رهگیر پدافند هوایی، از دلایلی بوده است که ترامپ در روزهای اخیر از اجرای حملات گسترده‌تر علیه ایران عقب‌نشینی کرده است.
+کارولین لیویت، سخنگوی کاخ سفید، در پاسخ به پرسش‌های واشنگتن‌پست گفت: «این خبر صددرصد جعلی است. واقعاً هرگز چنین اتفاقی نیفتاده است. رئیس‌جمهور ترامپ نیز نهایت اعتماد را به وزیر هگست دارد.»
+متن کامل فارسی:
+telegra.ph/hegseth-08-06
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77761)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-06 01:40:28
@@ -236,7 +259,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-05 06:09:17
 
-<img src="https://cdn1.telesco.pe/file/SdeMzvCy4ixK_JEbyNKWKLbh8cbPQU59U0sGO9XZC0Ag9ufcsfYR-TJ1nUxCg_FtR5DVHUkfEx6xeC4uVRcDzrjNYMDluhyKl7gX8a4gWbNarZOT0l719jHSOx75YcvNDAPpnPtCMk2bxqFRh4gRLDN0rq2s4y_6_7McTjhHMVVjGj4G-ZPntUN4Whhb-ZVrepT_N2grSpPtaMuHPiyUmCOgfrfFy573ryO35yHw0rLdPkQsE-3bolsz8pQDZeRzn7I3yA-hmp6sNYhOc8F_DpLXNFjEitoqGqCwXCMgMyWhXUNjOSfxm1zwRQZamL4Qqol521bfYUhmMudGgB33Mg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QwNSMrWPH0KGB1skGReszmVYAhh-A3ch-XXSrf1jQnxSh-1SU2w6wEA8PcSrxl79JQo-lNR6uWRPhYDHSIiAHt7IIFOr0EkSL4ZX3p5M5XC0W3OE9SzzRbbx7ARiuZM6jC3chy9EZywS-mJMWG1ouhTL0zPAkaAYbdx2C14qgQMEpOwE4A7IW9YXdy6lSID7XeLk8_UbGy54e5nczi0aPAakb32QG3oYaT9Bz5W52hPeMovCaaAiGYymVxXBxwBlHk8YNvlepJyjvEmJWwBUI1_lxKz2VzMK9S6NUZAubkWgKpxmoy3AFFoExJ3L72jBTMIEKBrvFoteZ1lZsDNuqg.jpg" width="400"><br>
 
 "آمریکا به توافق درباره هرمز نزدیک شده و به‌دنبال اعلام آن در روز چهارشنبه است"
 اکسیوس، ترجمه ماشین:
