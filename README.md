@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-06 16:21:12 </h5>
+<h5> 🟢 Updated at: 2026-08-06 18:37:09 </h5>
 </div>
 
 
@@ -155,7 +155,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-05 17:45:14
 
-<img src="https://cdn4.telesco.pe/file/Z9RVYot_mYY84Djb62faj5oWLvBnB7bP0MwyxNX28xGx-PVHpyMqyUXyXgUuor27PsFphTw9PjGwHhhoTs1LXY-KZi4IrNBFi26fT3fVvw75x1lCXV_5cXoC9EVJagkoHhSTxA9DksS8F5bPkSxYzDI7vSfzJxBoSx1-C_LE6veH9jwgw7Au4E048thL_kEhQ4DywryDQVFyl_keEe_Oh5jU7AC4H8Ir3WR8dWe3LiOZsziPAJwDb_ZTqxW42cgXhZvqILbdKsCdyL9lFYkOxkImdWF3v19F8I2bX1pz3P2ROnrJTTz0JyPL-Og3uAI16jdtk2Fu8KiyhHqBBhHcDg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/U73VHTss84dbJtJzIjHyxGkq6MxCAPZosmzcgmOIdVhbZCjVYD0BMUaTzzpIiVRUD3CTKepyH_Eenb_pUpuaCxtEElztajdY101JlE7ib2Rbab43RX46esEGex3EBTmUBKje0mLD0HBMLLrBo4SvTeaACoOkIHdOzKDlwyQqw66w6VkulUE-zxKi5x6qHKQ-mRaKlfGE5a7ge9VpD-mKkWKhHItkNvTsTjI0ewlhwoDkD-9Bk3pqBHVY9OKlzL3SADfEFpT_PrpqylMGlgvFidPGDPwxCKBx6ckfUsPDD-tcq97_hkm5LwADGVh1c6ZRhZojNthv89jNb6PdOyIW0g.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا می‌گوید یک گزارش باتاخیر از یک کشتی در فاصله ۹ مایل دریایی (تقریبا ۱۶ کیلومتر) از بندر «مخا» در یمن دریافت کرده است.
 بنابر این گزارش، یک شهپاد به این کشتی در دریای سرخ برخورد کرد و باعث آتش‌سوزی شد اما خدمه و کارکنان همگی سالم هستند و نجات یافته‌اند.
@@ -176,7 +176,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-05 17:43:05
 
-<img src="https://cdn4.telesco.pe/file/E94WEvBLfRskcDNBF8vP5-sS0Sg43JWAf6vd_6hacrBEBad4_FXx2gf36NjyZnCAzdhrLOOVSNw6P_PQ1db-ndBr879tX57Mg5pC7Wxq8vEYTVY9PcqBIbr05KOm-sHAiHLufvTwCGvsFX3XM8e0fjgaWmaxdqh557NkV84ufpMEotM3MEWOlqrN-i7iAxTwE_uukJi75s6sojGG2Ji3cz9iu42fXaFZU3izaxt-fLa5bCnAccqvsp8ALv3Mf4cxpGLOXB4qCptv5tzLG_XwY7iW68pv1oYvTC3PNohcJ1OWRPhCwPflXv7eh5jIQBz2tIN3H0nwAWCFOTqSVWqsZA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XfCLFwA5GdABDKadPT8cft_G9lbXO6L6m6_1WaFhaFRmJB89Ng9ffdwtv66WmnOVQp96ElNtNwNJS4xAvrErRTjzcQ-KvBwD58qvHp5o4tqo6OPBCeUwIPnWBZp0NZdNFFFxcMDvMC_1dAbpZDgO4xCpWtIKPw5tZjmmd9w3gkZpV5sOogAkDCVH5SYX_tpEhEyN6TMEwGHh3qKnbp8OwQio6YgXExkaheGYVar2_wl5ijDXpenYnJ1Ue-ONPRV5FDoa_FY5VNX5w8sb1N50OiPow8T49t7ky45Ew4yTIwRut-7px7jKQXXXFek132YD57lPUnY37uDfBNh0msmQug.jpg" width="400"><br>
 
 محمدباقر خرازی، دبیرکل «حزب‌الله ایران»، در واکنشی دوپهلو به تکذیب دفتر مجتبی خامنه‌ای، اعلام کرد این تکذیبیه را می‌پذیرد، اما ابراز امیدواری کرد پس از «تغییرات مهم آینده» این دفتر نیز همچنان پابرجا بماند.
 این واکنش شامگاه سه‌شنبه ۱۳مرداد۱۴۰۵، در صفحه اینستاگرام دفتر خرازی منتشر شد.
