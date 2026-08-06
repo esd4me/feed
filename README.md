@@ -3,24 +3,45 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-06 08:27:36 </h5>
+<h5> 🟢 Updated at: 2026-08-06 11:09:28 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-06 09:10:03
+
+<img src="https://cdn1.telesco.pe/file/ttGbhtXBKaocDVgwfFX2mPq2-wfdZ6lbswp-YmRE2uA6EfkxlO2Vgz3O_NYyP19-w6Vw-hFFcYqlL5DOd2s6JcJvAE8Ug78O2t4Z4T9p4oscKUcvRdmzhbowOvVpFtAeGssAZvrfz9RTSgjK_eveKX5SnWob3wJtMkFQgIbaalLv8NjmbCbAFWnvFGSz6fY0tKkkJTFBAuKJjozXiW-wWd-u2L4eLzT5eIvx-GfOUaXuRMEQujX1a6vqMtzWk9-rtJ62ls2DbE2v7C267tluH4PaT63CiENlyZ3nxIUWlI2J4DktzpfzPTwBxsqGie4gButDjzxz3ccNzZkWLIb5FQ.jpg" width="400"><br>
+
+پست ترامپ ترجمه ماشین:
+ایالات متحده مقادیر عظیمی «مهمات»، به‌ویژه از برخی انواع خاص، در اختیار دارد.
+افزون بر این، هر مقدار که نیاز باشد، حجم زیادی مهمات تولید و به ایالات متحده ارسال می‌شود.
+شرکت‌های دفاعی در حال ساخت بیشترین تعداد کارخانه و تأسیسات تولیدی در تاریخ کشور ما هستند.
+کسانی که این اظهارات خیانت‌بار را درز داده‌اند، تحت تعقیب قرار دارند.
+برای آن‌ها درخواست محکومیت‌های طولانی‌مدت زندان خواهد شد!
+رئیس‌جمهور دی‌جی‌تی
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77762)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-06 08:25:42
 
 <img src="https://cdn1.telesco.pe/file/H-aAJJaOE4ox77xSgkm16tOfI3NYckY3drLDSqbGJ8rJYP5eC4nveXR7iqUToCZfqfc4v6-C_iHArf5d-auEPextYpJ3n6jx8lDN6N8wyi9BkZO5HCGIim2oKrAuuzSMy4TOhnxPFbt-3hRFDZY8PDPNGn8ePrrGlzgB0fOADDtF_R0F0d-cz-NBkPGDtKf8g5FXMIOs-4isUe0zWFyhCjsBdbdvbJPuQjamU5w2VJ9tPX0ITFr35zc5JcTacak0upQ9qHXoVuXyAvDNNOmubRZg92gO-nfTKRieLpcapgb-wIv0NlFW6IDfnRgZPtcMm6tVV5dWm-ddAYASUOZGgQ.jpg" width="400"><br>
 
-واشنگتن‌پست:
-درگیری ترامپ و هگست در کمپ دیوید بر سر نگرانی‌ها از کاهش ذخایر موشکی ایران
+واشینگتن پست
+:
+درگیری ترامپ و هگست در کمپ دیوید بر سر نگرانی‌ها از کاهش ذخایر موشکی در جنگ ایران
 ترجمه ماشین:
 در نشست این آخر هفته در کمپ دیوید، رئیس‌جمهور ترامپ از پیت هگست، وزیر دفاع، درباره کمبود شدید مهمات توضیح خواست.
 به گفته دو فرد آگاه از این گفت‌وگو به روزنامه واشنگتن‌پست، سرخوردگی دونالد ترامپ، رئیس‌جمهور آمریکا، از جنگ ایران هفته گذشته در کمپ دیوید فوران کرد؛ جایی که او از پیت هگست، وزیر دفاع، خواست توضیح دهد چرا ظاهراً درباره کمبود شدید مهمات ــ که اکنون گزینه‌های نظامی در برابر ایران را محدود می‌کند ــ گمراه شده است.
 این رویارویی روز جمعه و در حاشیه نشست کابینه ترامپ در کمپ دیوید رخ داد. به گفته هر دو فرد آگاه از گفت‌وگو، ترامپ با عصبانیت به هگست گفت تصور می‌کرده مشکل مهمات «حل شده است». این افراد نیز مانند دیگران، به‌دلیل ترس از تلافی‌جویی، به شرط ناشناس‌ماندن صحبت کردند.
 به گفته یکی از منابع، کمبودها، به‌ویژه در زمینه موشک‌های هدایت‌شونده دوربرد و موشک‌های رهگیر پدافند هوایی، از دلایلی بوده است که ترامپ در روزهای اخیر از اجرای حملات گسترده‌تر علیه ایران عقب‌نشینی کرده است.
 کارولین لیویت، سخنگوی کاخ سفید، در پاسخ به پرسش‌های واشنگتن‌پست گفت: «این خبر صددرصد جعلی است. واقعاً هرگز چنین اتفاقی نیفتاده است. رئیس‌جمهور ترامپ نیز نهایت اعتماد را به وزیر هگست دارد.»
-متن کامل فارسی:
-telegra.ph/hegseth-08-06
+متن کامل فارسی
 📡
 @VahidOnline
 
