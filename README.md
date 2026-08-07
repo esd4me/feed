@@ -3,8 +3,42 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-07 21:10:45 </h5>
+<h5> 🟢 Updated at: 2026-08-07 22:11:05 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-07 21:44:57
+
+
+
+پست عراقچی، ترجمه ماشین:
+نیروهای مسلح قدرتمند ایران آمادگی، توانایی و اقتدار خود را در برابر گران‌قیمت‌ترین ارتش جهان به نمایش گذاشته‌اند.
+وقتی مسلمانان در کنار یکدیگر بایستند، می‌توانیم با هر چالشی که از سوی بیگانگان بدخواه ایجاد می‌شود، رودررو مقابله کنیم.
+وقت آن است که فقط به خودمان تکیه کنیم و برادری واقعی را در آغوش بگیریم.
+araghchi
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77772)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-07 21:17:54
+
+
+
+خبرنگار اکسیوس:
+یک دیپلمات از یکی از کشورهای میانجی به من گفت که تیم مذاکره‌کننده ایرانی در انتظار تأییدهای نهایی شورای عالی امنیت ملی ایران درباره توافق با عمان و ایالات متحده است. این دیپلمات گفت: «انتظار داریم این تأیید به‌زودی صادر شود.»
+BarakRavid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77771)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-07 19:28:04
@@ -37,7 +71,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-07 18:49:57
 
-<img src="https://cdn1.telesco.pe/file/CjI1RdkSFrm5ZhKAoo4DOyemzsBru288Uk4KXkJNMXl7QzQmD3pGFM5UU5QbUIUN7kwquRJ_5EDpa3MEQLVWK1pg9bAPWENe32xegDWTifJKP11HMyBK6oOnLnLbr2YLt-_Z8N08bpuFBV-g0TPP3Jq13neEDNOFa7EFXaSl1EBVAGJEKEDIav-p6ukkp5NITU6Hl8m3ouSnLiJdPURWLDCMSy4th98gGx4K_cL77YxhfiJWiCo7Kqwkn_wVoo7X9qsTjvWNkEUhIm9_MMtjQ4Y3Am6R-OULNxHDzBCcsTI79m5UjMQi-b6ViAij1_HyER5J5vPfONrCRfvhoCUt7Q.jpg" width="400"><br>
+
 
 #توافق_مکه
 :
@@ -123,7 +157,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-06 22:05:50
 
-<img src="https://cdn1.telesco.pe/file/CNm_Erjs950NJors80LeEqOZXlHgCBjK8Vi9DrJj78mhACg6Bd15Wk2eCU3xUnRDK0WPeFTm_ToKMCz6u-3imu-iqiTAGaX6j9BzpOsN1Qr0_QrSimDT2UbNljsx9l-ptiv5ePO0fNzTQJ48wQWs1xdqsgHtzhxGRosDxlUC7v6ZVDpeqAdlBnuVnhwoRwyDnRU14k8a01gZeSzpaJnhRSm77lmidZeD4BKRcGU2EwYFwTX8OGLe96Hi6RhdcxHmaoHBRVoIMmjrt8EbUB285QVwshKybilEDPhKxNU_eV6tTRsF-ZqTIrjK3cHJbB_Cq50knt_muIBIHuPgdSi1DA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qjMuvtfyG45WbDVsr_ZQ9FafaIK4cEGufgOnUrVAy5NPBhDnZiGPlOyXdBlKpilQFlLU3s7NDfGvIxPISgrvkcSH2qx-hKIscp98mBCxfGYQVc6ALsICamYL8xm4qr9MyMGb1fkBddNR4-EblIIIr6_3T9YC1WKnVuZpv4MwCZNgemCCkdEzIHBdOua_tpM1ifLz496MUx9pvMsbOmW6mxpGcEnREZt_EoS8LvirLjEhodufnoMno87H7sNWEKECozUrVm4nCVUHvjTEMUe_o90k-tsnbHmlIPgMevgxrX86oBLWD9pQgUseqw5kwFXJMInD5VxXDhERmurDf3ad9g.jpg" width="400"><br>
 
 پست قالیباف، ترجمه ماشین:
 «حمله‌ای عظیم در راه است... صبر کنید، بی‌خیال؛ آنها می‌خواهند مذاکره کنند.»
@@ -464,55 +498,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77752)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-05 06:09:17
-
-<img src="https://cdn1.telesco.pe/file/nBPcKqHnFtlKpREOKeO8Rxidd8XxAPForJUtvDWg0ZQAUY8AIAxsNE5-LISMbjdpZ8OAYK6jxyIIv0A1Bg0leSzJ2FCCChsB60oHx-8pIiR5VYUnG8J8G_QjMVLSaXb2D91qQ85afUsI9xbMYNB4AGzCjiVfbcp56GA9eonXdrYymAAFRLi9Rfq48tP93Kvzksc_lXwiYYsFeakQjZgDJq2Z8_P3MVCpLCPdhOLlK4NJbw5iQPsNKQNPZzI6a8p-9h6sfrPlZmVkylpo-MZDhjFFR4d0Nj-A_GQxx1zZMdVjAw2P2iKv1MZc02ON-Amf4HiGEdSp0xkWgkPL4kyTTQ.jpg" width="400"><br>
-
-"آمریکا به توافق درباره هرمز نزدیک شده و به‌دنبال اعلام آن در روز چهارشنبه است"
-اکسیوس، ترجمه ماشین:
-به گفته دو منبع منطقه‌ای و یک مقام آمریکایی، آمریکا، ایران و عمان به دستیابی به یک توافق موقت برای بازگشایی تنگه هرمز نزدیک شده‌اند و آمریکا قصد دارد این توافق روز چهارشنبه اعلام شود.
-🔻
-چرا اهمیت دارد:
-هدف از این توافق که چند هفته است درباره آن مذاکره می‌شود، ازسرگیری آتش‌بس میان آمریکا و ایران و آغاز دوباره مذاکرات بر سر یک توافق هسته‌ای است.
-▪️
-رئیس‌جمهوری ترامپ روز شنبه تصمیم گرفت تهدیدهای خود برای آغاز یک کارزار بمباران گسترده را عملی نکند تا فرصت بیشتری برای دیپلماسی فراهم شود. با این حال، اگر به‌زودی توافقی حاصل نشود، ترامپ ممکن است با حملات بزرگ موافقت کند.
-▪️
-توافق در حال شکل‌گیری برخی از خواسته‌های ایران برای کنترل بیشتر بر رفت‌وآمد در تنگه هرمز را تأمین خواهد کرد؛ کنترلی که ایران پیش از جنگ در اختیار نداشت.
-🔻
-اصل خبر:
-به گفته دو منبع منطقه‌ای، توافق مورد بحث یک سازوکار موقت ۶۰روزه میان عمان و ایران در تنگه هرمز ایجاد می‌کند که امکان تمدید آن نیز وجود دارد.
-▪️
-همه کشتی‌هایی که از طریق تنگه وارد خلیج فارس می‌شوند، از یک مسیر شمالی در آب‌های ایران عبور خواهند کرد.
-▪️
-همه کشتی‌هایی که از تنگه خارج می‌شوند و به دریای عرب می‌روند، با هماهنگی ایران از یک مسیر جنوبی در آب‌های عمان عبور خواهند کرد.
-▪️
-در دوره ۶۰روزه هیچ‌گونه عوارض یا هزینه‌ای دریافت نخواهد شد.
-▪️
-طرف‌ها تلاش خواهند کرد ظرف ۳۰ روز مین‌های دریایی را از مسیر میانی تنگه پاک‌سازی کنند.
-▪️
-پس از پاک‌سازی مسیر میانی، این مسیر بر اساس مفاد یک سازوکار دائمی که قرار است میان عمان و ایران درباره آن مذاکره شود، برای رفت‌وآمد کشتی‌ها در هر دو جهت مورد استفاده قرار خواهد گرفت.
-🔻
-بله، اما:
-کاخ سفید، عمان و میانجی‌های منطقه‌ای سه هفته پیش تصور می‌کردند با ایران به توافق رسیده‌اند، اما ایران حملات به کشتی‌ها را از سر گرفت. این موضوع به دو هفته درگیری و وضعیتی نزدیک به جنگی تمام‌عیار منجر شد.
-🔻
-پشت‌پرده:
-به گفته منابع منطقه‌ای، علاوه بر مذاکرات میان عمان و ایران، مقام‌هایی از قطر، پاکستان و عربستان سعودی نیز در تلاش‌های میانجی‌گرانه مشارکت داشتند.
-▪️
-منابع منطقه‌ای گفتند کاخ سفید به‌طور فعال در مذاکرات حضور داشت. در روزهای اخیر چندین تماس میان استیو ویتکاف، فرستاده ترامپ، عباس عراقچی، وزیر امور خارجه ایران، و بدر البوسعیدی، وزیر امور خارجه عمان، انجام شد.
-▪️
-دو منبع منطقه‌ای گفتند عراقچی در پایان هفته گذشته در اصل با توافق موافقت کرد، اما همچنان به تأیید مجتبی خامنه‌ای، رهبر جمهوری اسلامی ایران، و شورای عالی امنیت ملی نیاز داشت.
-▪️
-یک مقام آمریکایی و یک منبع منطقه‌ای گفتند رهبری ایران روز سه‌شنبه روند تأیید توافق را تکمیل کرد.
-axios
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77751)
 
 ---
 
