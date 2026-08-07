@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-07 05:39:54 </h5>
+<h5> 🟢 Updated at: 2026-08-07 08:18:34 </h5>
 </div>
 
 
@@ -164,7 +164,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-06 08:25:42
 
-<img src="https://cdn1.telesco.pe/file/H-aAJJaOE4ox77xSgkm16tOfI3NYckY3drLDSqbGJ8rJYP5eC4nveXR7iqUToCZfqfc4v6-C_iHArf5d-auEPextYpJ3n6jx8lDN6N8wyi9BkZO5HCGIim2oKrAuuzSMy4TOhnxPFbt-3hRFDZY8PDPNGn8ePrrGlzgB0fOADDtF_R0F0d-cz-NBkPGDtKf8g5FXMIOs-4isUe0zWFyhCjsBdbdvbJPuQjamU5w2VJ9tPX0ITFr35zc5JcTacak0upQ9qHXoVuXyAvDNNOmubRZg92gO-nfTKRieLpcapgb-wIv0NlFW6IDfnRgZPtcMm6tVV5dWm-ddAYASUOZGgQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/obMlosvKTsk3M-Xu-PCar8zf5UFkcmSGFGtYgmrcj5HmEXiq4DHfhVa3weuEXhvtZAt3WDA0FpGtgGj7QUbirNAZJC4R8Bc2Mdytn0hsGQQGHE6ggy-6xL-EM9WxtkmxMkYPNsNtcZfbJKOzabFUujE4Cil_pcONSss_oPxK8WGV4D4oDim5KCOeANvcAPVGVHzhZUy6smRoWX2CyAymgdSmgmaYSrcjA2t4SoR3t0Q4biATqO1BhKc7rbQIgEvESQaKMFh84E9NgF1b8C27rNORWaHUa1C_A-Yxzi2KgOjTxWsM-odgCVAGFb7eA-I9OtdoGwfxXg-kiM_vU9pa5w.jpg" width="400"><br>
 
 واشینگتن پست
 :
