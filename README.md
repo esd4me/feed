@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-07 08:18:34 </h5>
+<h5> 🟢 Updated at: 2026-08-07 09:34:52 </h5>
 </div>
 
 
@@ -143,7 +143,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-06 09:10:03
 
-<img src="https://cdn1.telesco.pe/file/ttGbhtXBKaocDVgwfFX2mPq2-wfdZ6lbswp-YmRE2uA6EfkxlO2Vgz3O_NYyP19-w6Vw-hFFcYqlL5DOd2s6JcJvAE8Ug78O2t4Z4T9p4oscKUcvRdmzhbowOvVpFtAeGssAZvrfz9RTSgjK_eveKX5SnWob3wJtMkFQgIbaalLv8NjmbCbAFWnvFGSz6fY0tKkkJTFBAuKJjozXiW-wWd-u2L4eLzT5eIvx-GfOUaXuRMEQujX1a6vqMtzWk9-rtJ62ls2DbE2v7C267tluH4PaT63CiENlyZ3nxIUWlI2J4DktzpfzPTwBxsqGie4gButDjzxz3ccNzZkWLIb5FQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/dmpG_lCqNbAUWD-i8bijM_-GkVt8l97PShr6B0AHJcBOfHbpfZpkhhCwrnH4k0kJuYHNqtON4BGXlDzIJDozPfv6BKAjL5nYaWiTibFOIdTNkqVq_EX9lvwikxDYHdFFXU97t0u44UObsqxzzH-lMYh9GgwtS_9JMjZguqVbkMO11C400D5rRfdxp6JB6VP4v2LGAVys8-4DAegbKw2yEFgbix5T73A6-F6nduA4N3jF1Ck_jsV5CbIzbfKGCaG3dIv7Mv5y2XuNsN0CVp4lAqbhyZyrnQUVMhRxleTAGV36KxDZisgElBHx8l8D_Decl-B65blAT2TaDkoWIwaomQ.jpg" width="400"><br>
 
 پست ترامپ ترجمه ماشین:
 ایالات متحده مقادیر عظیمی «مهمات»، به‌ویژه از برخی انواع خاص، در اختیار دارد.
