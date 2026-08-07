@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-07 19:14:53 </h5>
+<h5> 🟢 Updated at: 2026-08-07 20:12:29 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-07 19:28:04
+
+<img src="https://cdn4.telesco.pe/file/v6LSoe2Bq3gNkzM3174eHgLOn0_oQzTfmRZOknb-O-9UlcVSYrSZn9iC5omyflw6qkmS1fCWN8ww2tHwUJEu2e7do-X-b4n-iHZUeW8WW0D4nPAPRd0mIqPy-S42GPCHLVGuOTIUgJs2meEL92F4ubMs4QreV_bcEtMrMYctmOGykS5po49furLEM-UTJbUf7dh5UD0GIJxbu3dRUGGbOcGg-TMH9tuQxdPlimzCNiNf1zElZ_o5e3Slwyr-jcG85E6imof4npbg5c3pR9Gk_aaLW1llRDN63bCfbS33amBspLn0PdgjJ-uMlBuUQpOmB0lIsChjGVb7iPmCrGXl8Q.jpg" width="400"><br>
+
+وزیر خرانه‌داری آمریکا روز جمعه گفت که ممکن است «امروز یا فردا» توافقی با ایران برای آتش‌بس و باز شدن تنگه هرمز منعقد شود.
+اسکات بسنت در گفت‌وگو با شبکه «۱۲ نیوز» با اشاره به وضعیت وخیم اقتصادی در ایران گفت: «فکر می‌کنم به‌زودی، شاید حتی امروز یا فردا، شاهد توافقی برای برقراری یک آتش‌بس ۳۰ تا ۶۰ روزه خواهیم بود و تنگه [هرمز] باز خواهد شد. قیمت انرژی هم باید کاهش پیدا کند.»
+او با تأکید بر این که ایالات متحده هرگز اجازه نخواهد داد ایران به سلاح هسته‌ای دست یابد، گفت تحت تاثیر عملیات نظامی آمریکا و اعمال تحریم‌های شدید علیه تهران، «آنها با تورم ۱۵۰ تا ۱۸۰ درصدی مواد غذایی مواجه‌اند و دیگر توان پرداخت حقوق نیروهای نظامی‌شان را ندارند».
+بسنت همچنین درباره وضعیت زیرساخت‌های نظامی ایران گفت: «نیروی هوایی نابود شد، نیروی دریایی نابود شد و بخش بزرگی از موشک‌ها و مهم‌تر از آن، توان تولید موشک آنها از بین رفت.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77770)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-07 18:49:57
@@ -272,7 +291,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-05 19:49:17
 
-<img src="https://cdn4.telesco.pe/file/uFzFbhB47z58rpkEirGBUVSCkssT0UlciLzHCDLP6ZR1KNEl7z5XcoDp4Q3cf2OR63eOUVLZgYraMK5JqTfjKW80kpGBa9GLRs4-S4-n6tzrelwOH8wFmCRVR5GtU8MOjNg7l70JIira7kR8wRnUfww6qLXM9yOsIS-Y5pLHPS_qBmw8ZyMSMcWz2bC9kHf-x5CeftJMQtusre72PpvdJFQtpvzIKdKBS4nnN_yn1F5SFiHoFNZnogsyD0nAPxzaAvrUMGWHSfeNbwjcq9LOy0ER7ofv5j3T7V2zzZP2JQe8T7zImtiQSniLpvoZvXQomfpYTXFfkUqnqpVqoeUHZw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/sEOzy7FO_9O0RN_3DL6eDvvMsunvm0o_LB7xnQRwKrpxF2hRJxfj0IPQtiJ_ob7sZE4qRxMi6oO6HhiiIZttWO0QfQStbES2TsbfjmUO69ISwjU6UOAxdVh5C3p-aKC6FI1ecw7PSMli3xGb2YALKz_BavKr4TDz3zEq9rmLfcAshSh2KDRHjXXUsnv_qTcutf55iIkvDX93dbmMH_YSv1Fcj4RhVBxl76zV9vgCkmegJArFArdvYB_khvC2EbqW5CPfAly8O9opGIRBWx9CKRW-cZEPPw_dihMogv7TQhy1f_YMZcTaCpBnuFJ5uUYcShlG8ik9i9r8doYl84iY-w.jpg" width="400"><br>
 
 ایالات متحده روز چهارشنبه ۱۴ مرداد تحریم‌های اعمال‌شده علیه شرکت هواپیمایی عراقی «فلای بغداد» را که پیش‌تر به اتهام همکاری با نیروی قدس سپاه پاسداران در فهرست تحریم‌ها قرار گرفته بود، لغو کرد.
 ا این حال، تحریم‌های بشیر عبدالقاظم علوان الشبانی، مالک معرفی‌شده این شرکت، همچنان به قوت خود باقی مانده است.
@@ -485,23 +504,6 @@ axios
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77751)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-05 01:02:21
-
-<img src="https://cdn4.telesco.pe/file/UIfTWYgAYsbvT5AXYmVT2CoUBO6FbOkOyBc8xTpdulz-QEOpSP6pJ5IvLYlrS6fHzR_es1Gm0_UyBa9MmPqqQ4b_kuAWlgsw-hcg24nqsgadomgSttKBDTyBpOaY71VzPasIaFKOHMH5E6fYMoOiAr2bDqncAEvTKMkGtuIvhMEzPAtWS_SP0xnCAogigr6L-9fnM-AihetkAaP7lFJ9t96nrwNY7ZyNN8TUUS7xNmvWqmPnpDV5nM9A8hZMRbIYYfo7sEumXkf7q1ytLTvBV3hyWxywyGGiVFpOJKyrzcAwzlBB-k_W4oVeNRWeuR9voo6zciDEgBfgbs-0kUXqvw.jpg" width="400"><br>
-
-پست سنتکام، ترجمه ماشین:
-مسیر جنوبی عبور از تنگه هرمز همچنان برای همه کشتی‌های تجاری که قصد گذر از این آبراه بین‌المللی را دارند، آزاد و باز است.
-طی سه ماه گذشته، نیروهای آمریکایی با وجود تجاوز بی‌دلیل ایران، به بیش از ۱۰۰۰ کشتی کمک کرده‌اند تا با موفقیت از این تنگه عبور کنند و این ترددها امروز نیز ادامه دارد.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77750)
 
 ---
 
