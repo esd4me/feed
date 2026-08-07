@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-07 03:20:42 </h5>
+<h5> 🟢 Updated at: 2026-08-07 05:39:54 </h5>
 </div>
 
 
@@ -414,7 +414,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-05 06:09:17
 
-<img src="https://cdn1.telesco.pe/file/QwNSMrWPH0KGB1skGReszmVYAhh-A3ch-XXSrf1jQnxSh-1SU2w6wEA8PcSrxl79JQo-lNR6uWRPhYDHSIiAHt7IIFOr0EkSL4ZX3p5M5XC0W3OE9SzzRbbx7ARiuZM6jC3chy9EZywS-mJMWG1ouhTL0zPAkaAYbdx2C14qgQMEpOwE4A7IW9YXdy6lSID7XeLk8_UbGy54e5nczi0aPAakb32QG3oYaT9Bz5W52hPeMovCaaAiGYymVxXBxwBlHk8YNvlepJyjvEmJWwBUI1_lxKz2VzMK9S6NUZAubkWgKpxmoy3AFFoExJ3L72jBTMIEKBrvFoteZ1lZsDNuqg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nBPcKqHnFtlKpREOKeO8Rxidd8XxAPForJUtvDWg0ZQAUY8AIAxsNE5-LISMbjdpZ8OAYK6jxyIIv0A1Bg0leSzJ2FCCChsB60oHx-8pIiR5VYUnG8J8G_QjMVLSaXb2D91qQ85afUsI9xbMYNB4AGzCjiVfbcp56GA9eonXdrYymAAFRLi9Rfq48tP93Kvzksc_lXwiYYsFeakQjZgDJq2Z8_P3MVCpLCPdhOLlK4NJbw5iQPsNKQNPZzI6a8p-9h6sfrPlZmVkylpo-MZDhjFFR4d0Nj-A_GQxx1zZMdVjAw2P2iKv1MZc02ON-Amf4HiGEdSp0xkWgkPL4kyTTQ.jpg" width="400"><br>
 
 "آمریکا به توافق درباره هرمز نزدیک شده و به‌دنبال اعلام آن در روز چهارشنبه است"
 اکسیوس، ترجمه ماشین:
