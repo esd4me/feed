@@ -3,14 +3,23 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-07 20:12:29 </h5>
+<h5> 🟢 Updated at: 2026-08-07 21:10:45 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-08-07 19:28:04
 
-<img src="https://cdn4.telesco.pe/file/v6LSoe2Bq3gNkzM3174eHgLOn0_oQzTfmRZOknb-O-9UlcVSYrSZn9iC5omyflw6qkmS1fCWN8ww2tHwUJEu2e7do-X-b4n-iHZUeW8WW0D4nPAPRd0mIqPy-S42GPCHLVGuOTIUgJs2meEL92F4ubMs4QreV_bcEtMrMYctmOGykS5po49furLEM-UTJbUf7dh5UD0GIJxbu3dRUGGbOcGg-TMH9tuQxdPlimzCNiNf1zElZ_o5e3Slwyr-jcG85E6imof4npbg5c3pR9Gk_aaLW1llRDN63bCfbS33amBspLn0PdgjJ-uMlBuUQpOmB0lIsChjGVb7iPmCrGXl8Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mM_ZXbflRmjXV84AZQV2Lzze39_HOxSHVPO8qi2WSYsV8Jmzn2cclj2vvnOJviFcI2vzySLGeExttUT_H4Qzf0tWHnpRSKqvekxn5NOlYe5SseghFKlBjiruZeNHBRZoFB0nt-XdzA1FSZHCyZ_cSxA5ITrLbz909-3LlDizbBgYSlTrASYrWuKURb0fj2ampmCVyKp90nfUo_6iWyKQ13gS8I3jOmyK-uuXqrmqv3IxJojspWEYlxaneGvabhR33baTeVMZm2R9W7Sj9EK8k58Eit_KP9VVUp1Q6KRgAqcwoiO9B87KdP8824wqzFNEnZjPmqoCCmXqFrxW6qMVlg.jpg" width="400"><br>
 
+وزارت خارجه ایالات متحده آمریکا در گزارشی که روز جمعه ۱۶مرداد۱۴۰۵ منتشر شد اعلام کرد که «شبکه‌ای از صرافی‌ها و شرکت‌های پوششی مرتبط با جمهوری اسلامی» را هدف قرار داده است.
+در بیانیه منتشر شده از سوی این وزارتخانه تاکید شده است که ایالات متحده در حال اخذ تصمیمات قاطع با هدف «قطع شریان‌های مالی» است که حاکمیت جمهوری اسلامی ایران را سر پا نگه می‌دارند.
+این وزارتخانه در بیانیه خود نوشته است که این اقدامات با هدف برچیدن شبکه‌ای از صرافی‌ها و شرکت‌های صوری انجام خواهد شد که به ایران کمک می‌کردند صدها میلیون دلار را به‌طور مخفیانه از طریق نظام مالی بین‌المللی جابه‌جا کند.
+در بخشی از بیانیه وزارت خارجه ایالات متحده آمده است که «تهران از طریق این شبکه‌ها به درآمدهای نفتی دسترسی پیدا می‌کرد، تحریم‌هایی را که با هدف مهار فعالیت‌های بی‌ثبات‌کننده‌اش وضع شده‌اند دور می‌زد و با استفاده از شرکت‌های پوششی، منابع مالی خود را پول‌شویی می‌کرد.»
+هدف قرار دادن بانک‌ها، صرافی‌ها و افرادی که این شبکه غیرقانونی را اداره و تسهیل می‌کنند از سوی آمریکا چنانچه در بیانیه منتشر شده آمده راهی روشن برای اعلام آن است که «هر کس به ایران برای دور زدن تحریم‌ها کمک کند، با پیامدهای جدی روبه‌رو خواهد شد.»
+وزارت خارجه آمریکا اقدامات انجام شده از سوی وزارت خزانه‌داری این کشور را نشانی بر تداوم سیاست «فشار حداکثری» دولت «دونالد ترامپ» علیه ایران دانست. سیاستی که بر «قطع منابع مالی مورد استفاده حکومت برای تهدید ثبات منطقه، حمایت از تروریسم و تقویت توانمندی‌های نظامی‌اش» تاکید می‌کند.
+@
+VahidHeadline
+پیش‌تر:
 وزیر خرانه‌داری آمریکا روز جمعه گفت که ممکن است «امروز یا فردا» توافقی با ایران برای آتش‌بس و باز شدن تنگه هرمز منعقد شود.
 اسکات بسنت در گفت‌وگو با شبکه «۱۲ نیوز» با اشاره به وضعیت وخیم اقتصادی در ایران گفت: «فکر می‌کنم به‌زودی، شاید حتی امروز یا فردا، شاهد توافقی برای برقراری یک آتش‌بس ۳۰ تا ۶۰ روزه خواهیم بود و تنگه [هرمز] باز خواهد شد. قیمت انرژی هم باید کاهش پیدا کند.»
 او با تأکید بر این که ایالات متحده هرگز اجازه نخواهد داد ایران به سلاح هسته‌ای دست یابد، گفت تحت تاثیر عملیات نظامی آمریکا و اعمال تحریم‌های شدید علیه تهران، «آنها با تورم ۱۵۰ تا ۱۸۰ درصدی مواد غذایی مواجه‌اند و دیگر توان پرداخت حقوق نیروهای نظامی‌شان را ندارند».
@@ -171,7 +180,7 @@ mb_ghalibaf
 
 ###### 🔵 Post time: 2026-08-06 20:31:36
 
-<img src="https://cdn1.telesco.pe/file/LSASqngXsXXe9joyJ5jlmviJ1jNcmzxgELWKYN-yeF503Q1ndjDS1SNfNa8mnGvz_ZTXSzXzNneB0rdmx5mqy5xeH6UPWX-8pPonj4s0hLcZCX6gJmMK57iXlmYe1kAy0GBpxMY5Q4-ECcsB4g7d-ik81oLDOW3wQ6xG86kD1Cll6mFLENsJMc-mH-Zz1guH0Gd5VUDAzhVTHR0WCffHik_N2MzRdJZn23e1__rBeynzeu-vHIl6i90_WXijdK4WhwaJTHptEpdPva8kP0CJN4U1xWxh_wS4cznFz8r4fXAMDeZU-fzoTU2NiPU8KCCkGSLQLV2hvYoTLnlk4aG0EQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/DM525Yxjie653noWJx_vyEPZ8ngaXHJYVjcactbNMELaxz0Jvg7W877XsTAJarX6lQk3aORjtSNg2mArlXOgJI95DiUeCLPnPfg4cnbI7M5Sr4VnWZ6TRhUaJFFvowLoJkIunT_VJuVRl-cIsoa8JBhjQJ-ZLQmV1aJK7JMdkaj-d1ldwd3o_iaTqc78nTZpCXX51J3FRTGZ2JKItVyZMZb75M-6yUis-agKY382DBmdblZ5DbgRiCm2KSCLih3WGkYQDhmPAuh-8YHLUb47PyAxjGch9KaV4XnJJRvmbNMWRpeEvfd6slyUKgTsxM_k26f9YMsRmVZgWpRNbjeo3A.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 اخبار جعلی، طبق معمول، در حال انتشار شایعاتی دروغین و کاملاً بی‌اساس است. من از عملکرد پیت هگست به‌شدت راضی هستم. همه‌چیز فوق‌العاده بوده است؛ از جمله حمله ما به ونزوئلا که نتیجه آن در کمتر از یک روز حاصل شد و به ما امکان داد نیکلاس مادورو، یکی از بدترین جنایتکاران در سراسر جهان، را به دست عدالت بسپاریم!
@@ -272,7 +281,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-05 21:17:18
 
-<img src="https://cdn4.telesco.pe/file/Iw0Qx1kxjYtkTl8LawDmgVCXPt49GDHK59lnoHLhTpT18bo0LOApvgxp-4Ib-4OevYUTb6ERZk8-fZ9Uxp3f_CwiLUG1EFDabCtLa9RrVCGD8qt7dxgmj5cBDZrSa0rnxNYnWwNXiDMD2WWqGNxSju02wIKeV90us2URSg4n1NNs4XRqAij0L5_XZqebqQHpECSGO7tg9HotvxC_kDVkxs6LxvCLnh-Nwc6HCa2pMtpmfk0wQAlMr20ZVAa6GAOJdLxYbYL24dfTsvjvF8R1zRHQ464pl6jPs42MwVuNURHoR2HLKvp8ioWKPHPmrQDr8buLamWOfvPiY1AiEKm9hQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Cx0bI1XT5mUZAP-nNGqq5oGuHYerSN72VTirqJA_GBZnJnnJRTqdw3vLb55J3gvwxAW9BFqiG3A7NX8Jr9hwhk85aBbIu1eCc8xeFLVNYmNYigPCMsFTXfFg3jy_AJ_wxUX3x5gMNaw2Y4Kb3FRYoL6rjTeWr3UzXfIJMMCAXMFstIi0w-APJCSmJZjvH8ev7Zbh4V-5D7_1Ix5blABbiiGdAJHD7SmG2nj5rRnhGyGUzMDF-RVdF6Omyw5-m9Z02D7ra0bE-X-o8pPPusmToKV1PBCMzSOeM0rSq3Pcc3aBmw1OLhTpsp1u3oQHnUzHDfrp1wrIkBZEnzNocPA-Kg.jpg" width="400"><br>
 
 ارتش اسرائیل روز چهارشنبه ۱۴ مرداد، حملات جدیدی را به جنوب لبنان آغاز کرد و دلیل آن را «نقض آشکار آتش‌بس» از سوی گروه حزب‌الله دانست. این حملات که با صدور نخستین هشدار تخلیه پس از هفته‌ها برای ساکنان شهرک «منصوری» همراه بود، دست‌کم یک کشته و ۱۱ زخمی بر جا گذاشت.
 این رویارویی‌های جدید در حالی رخ داد که نمایندگان لبنان و اسرائیل با میانجی‌گری آمریکا در رم مشغول گفتگو برای پایان دادن به درگیری‌ها و عقب‌نشینی مرحله‌ای اسرائیل از جنوب لبنان بودند.
@@ -404,7 +413,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-05 17:36:39
 
-<img src="https://cdn1.telesco.pe/file/NeqcWDLrEU6vfqp9YnIXx9FGvXZNFVF94QQZhCIK7YL9Q2WeF-rH7ZY_C3c5NQDJDgClFliNEnvsQBS4cosy_7vtGe0rb6LjQ2FHswL_rwxXfPuII9dYZImmAKEh8ppswuYoOWED8_GiRC7QKW7v9YyS5EISrZdINZWqMK2LyCDio38iryHC1NxV-adej2TGk_xx2D_9_ILjG-zgoQXsaomQiMBA2GTsVe9QKHR31qvbk5HT2KPYgRMsW3_TdwRO-tiIG5Tke8U7TC3BvqNyN2O8DFkkVbqd1od3qYdQl8kO7S15EBNdGcdNGY9DMWPAsRcAczT6H6IaDIZMNPUaQw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vkTdudWQYRC_gK4iS5n8CLvZXUTR_h1YaPDpTT_vZlJPOPghTrz5PrTmsNGDq9guHjEOzBXwBtst_LQg9S-Nhmjv1hZOQiF45jRAh5ecD_MX97JpBpVqSXmFhVJkVAx5BuH6Gk2ASvNPvhSwbn90XM7fJvHXz2TpNjuIl-iTH4yhzAYtvTX6yauXujgBG7Zo2Z2ye-yxcLqM91AJ9T26mTTQJYZyEAduMO7QR4GgtoG63VUvKMQyZVdqPTAtQvLfTnZ-Z2szXQqlocdnh9J9Tj4bRHnNcmcXxqyMkzK8OfkW_qOVJqSG51KAT2Swz3EBZXhSDBGmdhXHW6bgZ3if7g.jpg" width="400"><br>
 
 مصطفی قاسمی حسنوند، شاعر، زندانی سیاسی سابق و شهروند اهل شهرستان الشتر، روز یکشنبه ۱۱ مرداد ۱۴۰۵ پس از اقدام به پایان دادن به زندگی خود مقابل دفتر سازمان ملل در اربیل جان باخت.
 منابع آگاه به ایران‌وایر می‌گویند او پس از آزادی از زندان با مشکلات روحی و فشارهای ناشی از پرونده قضایی خود روبه‌رو بود.
