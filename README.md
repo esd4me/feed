@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-08 07:35:14 </h5>
+<h5> 🟢 Updated at: 2026-08-08 09:05:51 </h5>
 </div>
 
 
@@ -257,7 +257,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-06 09:10:03
 
-<img src="https://cdn1.telesco.pe/file/dmpG_lCqNbAUWD-i8bijM_-GkVt8l97PShr6B0AHJcBOfHbpfZpkhhCwrnH4k0kJuYHNqtON4BGXlDzIJDozPfv6BKAjL5nYaWiTibFOIdTNkqVq_EX9lvwikxDYHdFFXU97t0u44UObsqxzzH-lMYh9GgwtS_9JMjZguqVbkMO11C400D5rRfdxp6JB6VP4v2LGAVys8-4DAegbKw2yEFgbix5T73A6-F6nduA4N3jF1Ck_jsV5CbIzbfKGCaG3dIv7Mv5y2XuNsN0CVp4lAqbhyZyrnQUVMhRxleTAGV36KxDZisgElBHx8l8D_Decl-B65blAT2TaDkoWIwaomQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Cwdmfbf55w1MDi1DV4E35s93QXQlwfu6qLQabWwQ9V-Y8VrcRmUD-1R-FDD6KcxwqT25aNTtO2VHD750bJj_IdJpkiR_oS0sQfhswfnp31POWk5dPiGLNc6g_bQq-TRgvuiWklV7vwK-JuGh7vYusRU5_Av_83K6BGgXWDRGKxFul7w7ryTbSgfvtGVOIr9VjmaWfG5UG-HgME61I5yqBFayB_NeyYfHhOXvTP6oevz-o5WGCQfUOuCzGf1ScqOo2FRuG1UpKfhlgExwCv1M0ajfDIDqsUhlCegLxhIt8FweIpo595DUeTpd6MKhnGYyfeZ5PH9popyWprVLs2K-Dg.jpg" width="400"><br>
 
 پست ترامپ ترجمه ماشین:
 ایالات متحده مقادیر عظیمی «مهمات»، به‌ویژه از برخی انواع خاص، در اختیار دارد.
@@ -278,7 +278,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-06 08:25:42
 
-<img src="https://cdn1.telesco.pe/file/obMlosvKTsk3M-Xu-PCar8zf5UFkcmSGFGtYgmrcj5HmEXiq4DHfhVa3weuEXhvtZAt3WDA0FpGtgGj7QUbirNAZJC4R8Bc2Mdytn0hsGQQGHE6ggy-6xL-EM9WxtkmxMkYPNsNtcZfbJKOzabFUujE4Cil_pcONSss_oPxK8WGV4D4oDim5KCOeANvcAPVGVHzhZUy6smRoWX2CyAymgdSmgmaYSrcjA2t4SoR3t0Q4biATqO1BhKc7rbQIgEvESQaKMFh84E9NgF1b8C27rNORWaHUa1C_A-Yxzi2KgOjTxWsM-odgCVAGFb7eA-I9OtdoGwfxXg-kiM_vU9pa5w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vsNqJcjaERs5STf1GSiptx7XMf3OWjPuHbVmHR03pHxuIIE81gOr1WVj-yLM0uHE3QoF-5tsnSSaSyKRRsqPUyxb_MfacvAETVo7FPLczXX62exmb9p00uBCox8b3CN1xKqtBwWHxAxwn_FX39EItvUl_NGWG61s5NnbWQwIPMBh8ZFtQYj1OtuSQQOpiecmdWhJ2X5ZkK9HlY9EK5d25ERsHQZ7V4reTDJ4LZSM4f9vwUN6DPxF6rmDd7BAj2Mjsa-qOgI9soSQFLygTen0GHNm-lwhZT_lIxdvdDYs0pUJcyXvl0oCrWK9gvdsiLrleXXC8RVqlOd0--VrWedm8g.jpg" width="400"><br>
 
 واشینگتن پست
 :
