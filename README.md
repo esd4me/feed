@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-10 00:52:24 </h5>
+<h5> 🟢 Updated at: 2026-08-10 01:50:16 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-10 00:56:01
+
+<img src="https://cdn1.telesco.pe/file/nw2qJQOg3OBx23BczwJtiD-X2q0QqHaZ5HdZsbUU3qlzZKtU8suPNLL2ZY3whFrU7GNkWmvFxHEBkEZS6RVUXc9LYHUdyOcUbVMTgFs6dQb5QD8EduoJ1aurkakDk1O6mAmKrKBWlwVoQmBosELv_VS142TH-sJGWpCLaBscfTTuMeEcb026b-wsMTFl2p__ID_iCheH4YkKzolVS7JUxtlCWExEKFI4tniiPPS7hAqZiEMBTdJvoKUIThi93Hx8AQ5g0CrIMzTj_U5ct7uTzKWWlaNMQW7rXhurAxpyxAA9fxlG1o6tk_eLpiMvxOokcCssu0S3TdM_ZZoSzm2ahg.jpg" width="400"><br>
+
+ترامپ نموداری منتشر کرده روش نوشته شده: ایران هیچ پولی ندارد.
+و در شرح تصویر نوشته: ۵۱ سال رفتار بد!
+realDonaldTrump
+۵۱ سال یعنی از سال ۱۳۵۴
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77798)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-09 21:14:40
