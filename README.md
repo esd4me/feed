@@ -3,13 +3,65 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-09 20:52:05 </h5>
+<h5> 🟢 Updated at: 2026-08-09 21:55:55 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-09 21:14:40
+
+<img src="https://cdn1.telesco.pe/file/La7nCqbAo_9784gu6Me-9WrpwS00-_3JyjeZEQpc5cgZPZCj0az6IEJHH3taCgq4fadvz2ygb-CLpX1RJHUxKWrkByVcCtYwnyEtBJSYU0y9aqNEkW73zXOoWosezujJh1l52nAjklSsq9LFFqcBuu-VBwjqk1jZJd7mJnYtM-S8G-WCnF4pVUfKbwOJoMezWLeTNgjMYCuLRS5NdX_e0olW3tCIl16jfLjTXzAsjO0_xGCUNRpEUDZxchyakMPw5XDi09oXSROt9xTw_ujU9VtTfX02eLrQUU1iW48hvYdJqvnQ27f6Bh1gJaUFPg5e5WIlawEO3keVtMLoFZNSmg.jpg" width="400"><br>
+
+در بحبوحه گمانه‌زنی‌ها درباره استعفای محمدباقر ذوالقدر از دبیری شورای عالی امنیت ملی، روز یکشنبه ۱۸ مرداد ماه، پیامی منتسب به مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی، در خبرگزاری حکومتی تسنیم منتشر شد که در آن محسن رضایی به عنوان «نماینده رهبر» در «شعام» (شورای عالی امنیت ملی) معرفی شده است.
+در ادامه این پیام مکتوب، بدون اشاره به استعفا، از محمدباقر ذوالقدر «تشکر» شد.
+این خبر در حالی منتشر می‌شود که از دو روز پیش اخبار غیررسمی درباره استعفای محمدباقر ذوالقدر از مقام دبیری «شعام» و جانشینی محسن رضایی،‌ منتشر شده بود.
+خبر انتصاب رضایی در شعام، صبح یکشنبه در خبرگزاری‌های رسمی ایران منتشر و کمی بعد در بسیاری از آنها
+حذف شد
+.
+آخرین گزارش‌ها از فعالیت ذوالقدر به عنوان دبیر شعام، مربوط به پیامی منتشر شده در روز شنبه است که بازگشایی تنگه هرمز را به پذیرش ۶ شرط جمهوری اسلامی از سوی آمریکا منوط کرده بود. پیامی که بازتاب گسترده‌ای در رسانه‌های بین‌المللی داشت و تلاش‌ها برای بازگشایی تنگه هرمز را با ابهام‌هایی مواجه کرده بود.
+@
+VahidOOnLine
+رجا نیوز نوشته:
+در اعلام بدون تاریخ این حکم نشانه‌هایی است برای اهل اندیشه...
+🔄
+آپدیت:
+کانال خامنه‌ای نوشته به ذوالقدر پست مشاور سیاسی  رهبر جمهوری اسلامی داده شده:
+📝
+انتصاب دکتر ذوالقدر به عنوان مشاور سیاسی رهبر معظم انقلاب
+💬
+رهبر انقلاب اسلامی در حکمی آقای دکتر ذوالقدر را به‌عنوان مشاور سیاسی خود منصوب کردند.
+🔻
+متن حکم حضرت آیت‌الله سیدمجتبی حسینی خامنه‌ای بدین شرح است:
+✏️
+بسم الله الرحمن الرحیم
+برادر گرامی جناب آقای دکتر محمدباقر ذوالقدر
+باتوجّه به تجارب ارزشمندتان بدین‌وسیله جناب‌عالی را به‌عنوان مشاور سیاسی خود منصوب می‌کنم. امیدوارم در انجام این مسئولیت و در پیشبرد آرمان‌های انقلاب اسلامی، تحت توجّهات سرورمان حضرت بقیة‌الله‌الاعظم عجل‌الله‌تعالی‌فرجه‌الشریف موفّق و مویّد باشید.
+✍️
+سیّدمجتبی خامنه‌ای
+🔄
+و در نهایت حکم دبیری رضایی صادر شد:
+معاون ارتباطات ریاست جمهوری:
+محسن رضایی دبیر شورای عالی امنیت ملی شد
+🔥
+:
+اما بخش جذاب ماجرا
+محمدباقر خرازی
+است.
+او پیشاپیش گفته بود ذوالقدر می‌رود و محسن رضایی جایش را می‌گیرد.
+درست درآمدن خبری چنین مشخص، همه ادعاهای خرازی را ثابت نمی‌کند؛ اما حالا دیگر دشوارتر می‌توان گفت او از پشت پرده قدرت هیچ خبری ندارد،حتی اگر خودش مدعی باشد کلیپ‌های جنجالی‌اش را هوش مصنوعی ساخته است.
+@
+pourostadv
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77795)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-09 20:51:08
 
-
+<img src="https://cdn1.telesco.pe/file/rqWJtEyBWJk-_yPPt7yl3LvJoD4diP36G0EYdMUqw22DZmOxFBaFaMRGSbtc_CKa9i_h3Fz_CNDVxvR4LUOAD0kgL1Z8XVK-ZsqeDGpGlHVPEMFPBlAVASFVgthkRNtwxQyZAC5052cHY-CVtQaXI3fGZUwKPemBUOitPRHzcxRyFF1XqHeCR5OqtZ7cnvEEtyXk6ziq5NlD67Y7E5Az2dd8eg8XwI3hmWmQi78wwu_Ecd3_hVmQUX7X5N12Yr1DpZmkVswF6bBYbWkRWrHJ2rerljqS0YQHFT5nf3fbxZUsdBQcX1nvu6Xp9F4QJdLhjPY6mqOi3mtGWVhypYD1xg.jpg" width="400"><br>
 
 ترامپ به اکسیوس: درباره ایران «داریم قضیه را کم‌سروصدا پیش می‌بریم»
 ترجمه ماشین:
@@ -110,16 +162,18 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-09 18:36:22
 
-<img src="https://cdn1.telesco.pe/file/VAVRpgBPVAc1yU6ZhwMLOuDZ2O44vhREE8X2bdvBHD1qzrQms_tQOWYp2Hakd4C5pEm9KJbKqebqmm_DmNo-kx7xs_DsA8bwmd_xi-dZF48BJVCMmuArCXymc2n10ck9r4h2tFYTMDCV_SKv8JPQjg6M5SCZDqXEchxWUorBMeRGEsw4f1f1kgJ58JI6YS6r1CRjzMuar60wbxKaoiUdSfDGilS6m6Pp9pucQ0J3-k1PccvPYE3Jj0kwMfMGjbX-1CW9ExKTXk4tbb-HHYZdbqCg5LdKvqS4cy7XuqjDYrpkUYf_v8QlBJq4ig3DFd-_Yf8RU1qNunemSEOwWvkdng.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nYKW01zgMcwZcAk1AY8Yoygq7j-C5wsF1lC2EmGEG9AHxfk1dIGUAEWJPar-5deDXxlFJSNuF7yo0RBn9RUjLOseE7oD97HN5BaEIh2_MZoKo58wBwJ_njuFqFrACKd3_xKL86TUtilrq6Xldhop73HDTUjVITyAKUcE-GKkSlRx-l6iJgN7KBM34Vvn5k4f-TFXUTbK8ihgKzirMLsjeZy6SEIJExAwC19LDOsWgU0dSr68ZO4F09OdQT01gv1u01vCzA0whF2kKQZpHDnquw4nxiO32sET25XZ4pJQlQVA5L_YFZQio3c3GYk2S0XbPmeAJPgKgEMi6NwmzXR6Sg.jpg" width="400"><br>
 
-آپدیت: شش ساعت پس از حذف خبر، دوباره همون خبر در منابع حکومتی منتشر شد به همراه تصویر بالا
-پیش از آپدیت:
 شماری از رسانه‌های حکومتی یکشنبه ۱۸ مرداد از انتصاب محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، رهبر جمهوری اسلامی، به‌عنوان نماینده او در شورای عالی امنیت ملی خبر دادند، اما دقایقی بعد این خبر را حذف کردند.
 خبرگزاری تسنیم، وابسته به سپاه پاسداران، به نقل از «شنیده‌ها» نوشت که با این انتصاب، محسن رضایی و سعید جلیلی دو نماینده مجتبی خامنه‌ای در شورای عالی امنیت ملی خواهند بود. تسنیم پس از چند دقیقه این مطلب را از کانال تلگرامی خود حذف کرد.
 رسانه‌های مهر، ایسنا و جماران نیز خبر انتصاب رضایی را منتشر کردند و اندکی بعد مطالب خود را برداشتند.
 انتشار و حذف این خبر در شرایطی صورت گرفت که در روزهای اخیر اختلاف‌ها در ساختار جمهوری اسلامی بر سر روند گفت‌وگوها با آمریکا، از جمله پرونده هسته‌ای و چشم‌انداز تنگه هرمز، افزایش یافته است.
 @
 VahidOOnLine
+🔄
+آپدیت: خبر شش ساعت بعد از حذف دوباره
+منتشر شد
+.
 📡
 @VahidOnline
 
