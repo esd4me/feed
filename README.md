@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-09 17:11:26 </h5>
+<h5> 🟢 Updated at: 2026-08-09 17:55:19 </h5>
 </div>
 
 
@@ -146,7 +146,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-08 18:07:25
 
-<img src="https://cdn4.telesco.pe/file/Tu6CQqRWkrlxdxUGeGJUoo43WlBvW5YlLerQFkuJTy8HtkUk2xBp6dtUFmLWsP6CUFfJ4EM15SyY0pdDkX_7TbfqygAPaFS6PTFol1lZCklCrO0K1ZBBfFkbHPzXQs_rXwjUO2reBROFEikMPYncy1yIgR-50r62IfeE4JQSlIwxgC9a_GeVNDthvML7x32a6vsvLlYdPRoTFN_kx-0hQLY5rqAgHEdd7V_56utfe3xnS0M-0bkOeaoKTb7VOvhnhNKf24K5_WcnFbeJGL14s3AgRnW4pmyL5S-m_lsy68R1kelS22ddMwVIMEER0vXWar26VDxm-Tq3lPrGANmXWw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Mf0sWUGrC6lmvIWMHwlQyRCbbsWZWa-_vaG27jDvvp9iQTgGSpvlqNhh3g0eZHx4yTwnPQkWSSvtBfgAvFV2sxHwaxT-PXWQt0NOmaxb6iUJd5pXzibE3cuaU8Oj-AtJ6CuwHpR87QgBo-nfzw1WACwZQCPjPXoYUhPlV4NlnOJZTQqmENa8JicQu0G67o15D8-MqDMZFmYc9inmisZzDIgthdjweiliXRTyHM6MTMAFWOgGgdXEukjmiHZtHmKqveMFbjO19tuoPamAYLd6N8z5P3Na-mV4WB_AC1Uq9AOiDQXgLzKNi8No1RdQ3o0MaO-hIoRFW6JdVm0anTIiqw.jpg" width="400"><br>
 
 خبرگزاری تسنیم روز شنبه ۱۷ مرداد از ربایش و قتل حمیدرضا رجب‌زاده، از مداحان حکومتی، خبر داد.
 تسنیم به نقل از یک «منبع آگاه» گزارش داده است که رجب‌زاده چند روز پیش ناپدید شده بود و پس از آن، ویدیویی از لحظه قتل او برای خانواده‌اش ارسال شده است.
