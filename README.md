@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-10 01:50:16 </h5>
+<h5> 🟢 Updated at: 2026-08-10 02:51:28 </h5>
 </div>
 
 
@@ -11,10 +11,11 @@
 
 <img src="https://cdn1.telesco.pe/file/nw2qJQOg3OBx23BczwJtiD-X2q0QqHaZ5HdZsbUU3qlzZKtU8suPNLL2ZY3whFrU7GNkWmvFxHEBkEZS6RVUXc9LYHUdyOcUbVMTgFs6dQb5QD8EduoJ1aurkakDk1O6mAmKrKBWlwVoQmBosELv_VS142TH-sJGWpCLaBscfTTuMeEcb026b-wsMTFl2p__ID_iCheH4YkKzolVS7JUxtlCWExEKFI4tniiPPS7hAqZiEMBTdJvoKUIThi93Hx8AQ5g0CrIMzTj_U5ct7uTzKWWlaNMQW7rXhurAxpyxAA9fxlG1o6tk_eLpiMvxOokcCssu0S3TdM_ZZoSzm2ahg.jpg" width="400"><br>
 
-ترامپ نموداری منتشر کرده روش نوشته شده: ایران هیچ پولی ندارد.
-و در شرح تصویر نوشته: ۵۱ سال رفتار بد!
+دونالد ترامپ، رییس‌جمهوری آمریکا، یکشنبه بعد از ظهر به وقت شرق آمریکا با انتشار نموداری در شبکه اجتماعی تروث سوشال، به کاهش ارزش پول ایران واکنش نشان داد و نوشت: «۵۱ سال رفتار بد!»
 realDonaldTrump
-۵۱ سال یعنی از سال ۱۳۵۴
+در تصویر منتشر‌شده، با عبارت «ایران هیچ پولی ندارد» تاکید شده است ارزش یک میلیون ریال از حدود یک دلار و ۱۱ سنت در سال ۲۰۲۵ به نزدیک ۵۳ سنت در سال ۲۰۲۶ کاهش یافته است. ترامپ توضیح دیگری درباره منبع آمار این نمودار ارائه نکرد.
+@
+VahidOOnLine
 📡
 @VahidOnline
 
