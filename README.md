@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-11 01:02:39 </h5>
+<h5> 🟢 Updated at: 2026-08-11 01:57:17 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-11 01:04:01
+
+<img src="https://cdn4.telesco.pe/file/vqkcc1J7H17JSXT03sKI2e9D_Y3R0Xt7qt-WTKZbYpykt7ngAmqLwiAutcQt0wHvIOwUNP4aG2sYZbZ51ew1B_ZJkPwwwH2rlYHTRD17zSUeUv0QGcote4owltqjOywvaZvAiJckN_wu5RzWJVV-z-GczUCNctire_WAMiNHjsfugTSJzbFH3ptYRgLGaY4TNSWJd9xwoq_25nkkXGlfBuHggM4al-7oP90dCuTxiac0nHRs4jaHSD7UX-VOMiKH73g78bpLNHdiajhse6FCUouT5-gea8eN6SwuzUONJWc_LlcdnwzJVpXdFznFP3C9hFTJk2ObGdvEhdWS3g47NA.jpg" width="400"><br>
+
+به گزارش «آکسیوس»، آژانس بین‌المللی انرژی اتمی به‌زودی مواد هسته‌ای باقی‌مانده در یک سایت مخفی در سوریه موسوم به «سایت ۹۹» را پس از توافق‌های محرمانه دولت ترامپ با اسرائیل و سوریه، از این کشور خارج خواهد کرد. این مرکز که در زمان رژیم بشار اسد برای نگهداری کیک زرد و بقایای رآکتور هسته‌ای «الکبر» استفاده می‌شد، پس از سقوط اسد به شدت تحت نظر اسرائیل قرار داشت و حتی ارتش اسرائیل برای جلوگیری از دسترسی به آن، ورودی‌های سایت را بمباران کرده بود. اگرچه این مواد برای ساخت سلاح هسته‌ای کافی نیستند، اما مقامات آمریکایی و اسرائیلی بیم آن را داشتند که در ساخت «بمب کثیف» و آلوده‌سازی منطقه‌ای مورد استفاده قرار گیرند.
+براساس این گزارش، در ماه‌های اخیر و پس از مشکوک شدن اسرائیل به تحرکات حکومت جدید سوریه و احتمال مداخله ترکیه، تل‌آویو تهدید به حمله مجدد کرد، اما دولت ترامپ با مداخله به موقع و وارد کردن آژانس بین‌المللی انرژی اتمی به ماجرا، مانع از تشدید تنش و بروز بحران نظامی جدید شد. در نهایت، سه هفته پیش توافقی میان دمشق و آژانس به امضا رسید تا این مواد خطرناک به صورت ایمن بارگیری و منتقل شوند. مقامات واشنگتن این موفقیت دیپلماتیک را نشان‌دهنده رویکرد موثر دولت ترامپ در تعامل با حکومت جدید سوریه و حل‌وفصل بحران‌های پیچیده مانده از دوران اسد می‌دانند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77808)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-11 00:04:00
@@ -444,23 +461,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77788)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-09 17:57:55
-
-<img src="https://cdn4.telesco.pe/file/oF0mKbFSTbkx_ZzKscZ1zdABar3sJyl6_yylMIzy3HCenvDs-0WY3mVCijX99WouHBcfw3YOPKUFtWcq_RUtokBqXp_K6DBTDBsRxmNpBNW5eTDkobGWTrE-d3C-h6asregWaucU_QW6aQ6GjpujnRb-LJ-yFWQ42gnPAdNICWSw5Nm8RrNbsRgcvuoKvsYt3diRE19ovjD3cCvWfsiqzu-c9QG9eVQ_cxVD3NCrzr_ryOx0G7ih4IrIKjgWaYI9ya6WFWYT6KK1-ujvaaJwavvDkOhlmjEY4mV-AdmPZ-qEI2VMMeStdls0ISxspuZEObmZQ0ZyrYNHrkYZjZW9Gw.jpg" width="400"><br>
-
-حکم اعدام رسول رضایی، شهروند ۲۸ ساله اهل فریمان و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در دیوان عالی کشور تایید شده است. او پیش‌تر از سوی دادگاه انقلاب مشهد به اتهام «محاربه» به اعدام محکوم شده بود.
-خبرگزاری هرانا، روز یکشنبه ۱۸مرداد ۱۴۰۵، گزارش داد، رسول رضایی که در حال حاضر در زندان وکیل‌آباد مشهد محبوس است، پس از تایید حکم اعدام در دیوان عالی کشور در معرض اجرای این حکم قرار دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77787)
 
 ---
 
