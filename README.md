@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-10 16:16:31 </h5>
+<h5> 🟢 Updated at: 2026-08-10 17:44:07 </h5>
 </div>
 
 
@@ -285,7 +285,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-09 17:57:55
 
-<img src="https://cdn4.telesco.pe/file/DBE7_JrtM6K-N-g4MwZT3LwT5Ri0P-7BZE4jPDpViUK1AGgznM0h5dyaZTE5nyefKZP_aLKHg77Wtz4deg3k0puVbIeSgUJ9qjbG3xAIahFgDyGMDB0dqGQ19KOPPe9COE0AHdvX4jsrl2473KTIcQ2qrQjw1XH6zUTnY566KtFKxCZySX0spys7MyoGTX6BAMosH8_bIy7mCFk7h7P2uT55EABq8gqqkgq8Yl-3sJGvBtkUdtHRO4y7ulPOrYNtDj1lN7VvrK3W19fiXt_YNHXTQfzUupIYM9cU60ih-6G6hoaZJmHaDaKG8CjL9RJ8OkRvIWwPIaf3g4w2fDrKGg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/oF0mKbFSTbkx_ZzKscZ1zdABar3sJyl6_yylMIzy3HCenvDs-0WY3mVCijX99WouHBcfw3YOPKUFtWcq_RUtokBqXp_K6DBTDBsRxmNpBNW5eTDkobGWTrE-d3C-h6asregWaucU_QW6aQ6GjpujnRb-LJ-yFWQ42gnPAdNICWSw5Nm8RrNbsRgcvuoKvsYt3diRE19ovjD3cCvWfsiqzu-c9QG9eVQ_cxVD3NCrzr_ryOx0G7ih4IrIKjgWaYI9ya6WFWYT6KK1-ujvaaJwavvDkOhlmjEY4mV-AdmPZ-qEI2VMMeStdls0ISxspuZEObmZQ0ZyrYNHrkYZjZW9Gw.jpg" width="400"><br>
 
 حکم اعدام رسول رضایی، شهروند ۲۸ ساله اهل فریمان و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در دیوان عالی کشور تایید شده است. او پیش‌تر از سوی دادگاه انقلاب مشهد به اتهام «محاربه» به اعدام محکوم شده بود.
 خبرگزاری هرانا، روز یکشنبه ۱۸مرداد ۱۴۰۵، گزارش داد، رسول رضایی که در حال حاضر در زندان وکیل‌آباد مشهد محبوس است، پس از تایید حکم اعدام در دیوان عالی کشور در معرض اجرای این حکم قرار دارد.
@@ -375,7 +375,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-08 18:12:57
 
-<img src="https://cdn4.telesco.pe/file/okEV4MmEbk5py9H9a8VBV3fsz8SCuvzJKO9myUHwodu22xnIJkjr3nUsALr7VnBzV8NSf15ZyfFtYqS9sg3Z4EstIlUUyEq3Ppje3lQXg_yx3_2vFOhG2--avy-CXCg44mHZePs8e3orBqsRiQ8eld8eH-yyZ7XA7ZQI4rc5r5wmLdBHU8FdUjt6od837SwxXkJSaUNGgbGIxPIVoOYhIKOspYJmLPsC5EmZVq3ewSJG-O7F3h-GUlbxbkqKVTwgAaPipoDrMdO-QlV5WLxnmzY_xrQUvbLwnhTTYCvCNe-COSDauHnaZcRfDWVY_kP_QOw75X5JX3KUKw6A7PdF2A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/g6DzwyOXTIppEh5VHTRbvKVZkiW-Ka6LPEy5hMvjAskY-RPLQ-we5Xl7hoBkOpnfXg9JMz_Fh_dpLgX_2mvIoQckZ8ejJ8WdQgCeh_mRAL04t2gj8HfC7SZ0XoeBqcV27NY6VHjWsPr1X-3Vc-kvHzSHottQAaemaP-lYwSbPNd0OuWI7nJs_TXJC26R27UgPefhAYFmzL9Qje41hRNI8NciTP6KW06Y3xMW80Ld_fOuZj00SMUeEVLz4yxAdrLkHtrvEI8BvxU4-l-szvfK54BV8ZOQkBibS6zqf0gkbbpRxkl3jhCzs0vHjo1gf6PLgeuBGak5u6sHvna5SWnxrA.jpg" width="400"><br>
 
 روزنامه سازندگی روز شنبه به نقل از یک منبع آگاه اعلام کرد که مسعود پزشکیان، رئیس‌جمهور ایران، با استعفای محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، مخالفت کرده است.
 در روزهای اخیر برخی رسانه‌ها از کناره‌گیری ذوالقدر و انتصاب محسن رضایی به عنوان دبیر جدید شورای عالی امنیت ملی خبر داده بودند.
