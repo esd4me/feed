@@ -3,8 +3,32 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-10 20:13:23 </h5>
+<h5> 🟢 Updated at: 2026-08-10 21:13:46 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-10 20:19:53
+
+<img src="https://cdn1.telesco.pe/file/UajX7J0wszZoz_HD4327mT5uqZR0H9PZCpYtV_Wn5xVxLpDcmbHD4aIlXCpCUWWKLMHpm2wiKa7mKGOGW36gjs7rXmCJEvY4CR7Ob1W0g-b9rh44ftTuQInWmaZpYVh-GlyXlfYnYV_-yfYY01sPaZxOxoQDrrNtwKz3F-T6wh5i5Wgsovi0DV5DCxp1Jifu_Nf3-BPj15ASvZYoOvQIZ9aBoVHcHA9iqfQiifGZgXZn_0uxH_JQiHYw2baXZAPqYMIktaHZNQQsMJ6tsDEOVM891vNfoDcjgIHMcCZLX5n_VplHj-LS6XkaAWBlWClwUuHQeck7nESSB9YQVqgxvw.jpg" width="400"><br>
+
+ترامپ: در مذاکرات موضوع پرداخت غرامت به ایران مطرح نشده، جمهوری اسلامی به خانوده‌های کشته‌شدگان غرامت بدهد
+ترجمه ماشین:
+می‌بینم که نمایندگان جمهوری اسلامی ایران خواستار دریافت غرامت بابت خسارت‌هایی شده‌اند که در جریان درگیری نظامی پنج‌ماهه اخیر به آن‌ها وارد شده است (درگیری‌ای که به این دلیل آغاز شد که، آن‌ها
+سلاح هسته‌ای نخواهند داشت
+)؛ با اینکه این موضوع هرگز در هیچ‌یک از مذاکرات یا دیدارهای ما مطرح نشده بود!
+اما ایده جالبی است، چون حالا من نیز به همین ترتیب از ایران غرامت مطالبه می‌کنم؛ بابت همه افرادی که با بمب‌های کنار جاده‌ای و در درگیری‌های متعدد ــ که به آن‌ها شهرت دارند ــ کشته یا به‌شدت زخمی کرده‌اند؛ اقداماتی که در ابتدا تحت رهبری ژنرال سلیمانی انجام می‌شد، از جمله بابت خانواده‌های کسانی که در ناو «یواس‌اس کول» کشته شدند، و هزاران نفر دیگری که در نبرد جان باختند.
+علاوه بر این، باید به خانواده‌های صدها هزار معترض بی‌گناهی که ایران طی ۵۰ سال گذشته کشته است نیز غرامت پرداخت شود؛ چه رسد به ۵۲ هزار نفری که در پنج ماه گذشته کشته شده‌اند.
+به نمایندگانم دستور داده‌ام که این موضوع را قاطعانه در تک‌تک مذاکرات آینده مطرح کنند.
+از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77804)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-10 19:08:51
@@ -102,7 +126,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-09 21:14:40
 
-<img src="https://cdn1.telesco.pe/file/La7nCqbAo_9784gu6Me-9WrpwS00-_3JyjeZEQpc5cgZPZCj0az6IEJHH3taCgq4fadvz2ygb-CLpX1RJHUxKWrkByVcCtYwnyEtBJSYU0y9aqNEkW73zXOoWosezujJh1l52nAjklSsq9LFFqcBuu-VBwjqk1jZJd7mJnYtM-S8G-WCnF4pVUfKbwOJoMezWLeTNgjMYCuLRS5NdX_e0olW3tCIl16jfLjTXzAsjO0_xGCUNRpEUDZxchyakMPw5XDi09oXSROt9xTw_ujU9VtTfX02eLrQUU1iW48hvYdJqvnQ27f6Bh1gJaUFPg5e5WIlawEO3keVtMLoFZNSmg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/a5e0fLN_rR1bgbMrGU_9-_PbpGHr2E4N1LCXiixVYUeZuN8yChoCuw7Ez381O9pTG_0otg5oThgm_4UuT7pKBiDhgwr4ZAGnxoB_OHrV0I8mj9l_c0ki3OxxzR5kurS9tkt2Hk0o78FTVEVGs2mysYf7wwvyQKgltWXlU1jjTKofz_PB4E_3P4S714mwOb8aDFrPO3DlwDGY9hZPkIlND607H7Muf3d-1hzSckNs-ysz4Ki4eqSrXXxI5a5wFDjNmVAm-MshGtKGV190oGyjkzEAyyacZK6sVBFapGhI_-q_wYN2uj6fykNVlSnPEhwIf9Innoagk1EvdXSlcPaSeQ.jpg" width="400"><br>
 
 در بحبوحه گمانه‌زنی‌ها درباره استعفای محمدباقر ذوالقدر از دبیری شورای عالی امنیت ملی، روز یکشنبه ۱۸ مرداد ماه، پیامی منتسب به مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی، در خبرگزاری حکومتی تسنیم منتشر شد که در آن محسن رضایی به عنوان «نماینده رهبر» در «شعام» (شورای عالی امنیت ملی) معرفی شده است.
 در ادامه این پیام مکتوب، بدون اشاره به استعفا، از محمدباقر ذوالقدر «تشکر» شد.
@@ -161,7 +185,7 @@ pourostadv
 
 ###### 🔵 Post time: 2026-08-09 20:51:08
 
-<img src="https://cdn1.telesco.pe/file/rqWJtEyBWJk-_yPPt7yl3LvJoD4diP36G0EYdMUqw22DZmOxFBaFaMRGSbtc_CKa9i_h3Fz_CNDVxvR4LUOAD0kgL1Z8XVK-ZsqeDGpGlHVPEMFPBlAVASFVgthkRNtwxQyZAC5052cHY-CVtQaXI3fGZUwKPemBUOitPRHzcxRyFF1XqHeCR5OqtZ7cnvEEtyXk6ziq5NlD67Y7E5Az2dd8eg8XwI3hmWmQi78wwu_Ecd3_hVmQUX7X5N12Yr1DpZmkVswF6bBYbWkRWrHJ2rerljqS0YQHFT5nf3fbxZUsdBQcX1nvu6Xp9F4QJdLhjPY6mqOi3mtGWVhypYD1xg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/EwheuoxWcpxbQ5o62yMVSYNBSVgxngorNvpHbfysM2ObtPmHdE3fm2o3uvVt37i9JdIfZqX9oozRkMxCTSIFYqithGp6LVabmloEMbzq68ttOKIoXpnRMfKdeVw4xyDreDv-8t-sMrR4cXSHJlGqCb2sum37iOZWvGYI0x8k3MNWtsvQDWNJ9iUnu_za4dPLiCnrPI16uZa4oqLSuggZiKs0TX6yJ4Kod-o44b5_SnbeveYsAwLC0H_PS6hOwiBVrT5ZKJxE5gq7dE6q8ZUgx_CP4peM-FpcH-lmOnRMBN8sw9YkqVaTvmKIJToQ1UoNsn61QO7djVNJbL_9Y3-9pg.jpg" width="400"><br>
 
 ترامپ به اکسیوس: درباره ایران «داریم قضیه را کم‌سروصدا پیش می‌بریم»
 ترجمه ماشین:
@@ -262,7 +286,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-09 18:36:22
 
-<img src="https://cdn1.telesco.pe/file/nYKW01zgMcwZcAk1AY8Yoygq7j-C5wsF1lC2EmGEG9AHxfk1dIGUAEWJPar-5deDXxlFJSNuF7yo0RBn9RUjLOseE7oD97HN5BaEIh2_MZoKo58wBwJ_njuFqFrACKd3_xKL86TUtilrq6Xldhop73HDTUjVITyAKUcE-GKkSlRx-l6iJgN7KBM34Vvn5k4f-TFXUTbK8ihgKzirMLsjeZy6SEIJExAwC19LDOsWgU0dSr68ZO4F09OdQT01gv1u01vCzA0whF2kKQZpHDnquw4nxiO32sET25XZ4pJQlQVA5L_YFZQio3c3GYk2S0XbPmeAJPgKgEMi6NwmzXR6Sg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rMN0jyZ1PJNTPQxSjd7IhqMOkr2veTUgaxqwLLoSbCifAy8ELl8GUBngY8pAQJBZYJdiDXUIDvWoAv622zive39Az8LGzB-lXixtggsf3Q_jE-En-nPIex8rv9eOYAyLNrKBR2Rh2nBuA3qABYnunQpH7kh3sFRcrXVydNZfmDX9opfoQ520vhrD6GdKX8EyyaZ7u_Eqa-fIs3mVkDlWb9k6s28Dc_BYKbW-_OVHh819NfJw41YTF8_wJhkYtgG0B85fDPZky1jq12rKZkHUYXj2y0iNnFfbBSTiGbY_RxSzq5bdBsNpCFoVaE-Lek2SbRNQZWDPyM9ef-diXGp_aQ.jpg" width="400"><br>
 
 شماری از رسانه‌های حکومتی یکشنبه ۱۸ مرداد از انتصاب محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، رهبر جمهوری اسلامی، به‌عنوان نماینده او در شورای عالی امنیت ملی خبر دادند، اما دقایقی بعد این خبر را حذف کردند.
 خبرگزاری تسنیم، وابسته به سپاه پاسداران، به نقل از «شنیده‌ها» نوشت که با این انتصاب، محسن رضایی و سعید جلیلی دو نماینده مجتبی خامنه‌ای در شورای عالی امنیت ملی خواهند بود. تسنیم پس از چند دقیقه این مطلب را از کانال تلگرامی خود حذف کرد.
@@ -443,27 +467,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77784)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-08 18:12:57
-
-<img src="https://cdn4.telesco.pe/file/g6DzwyOXTIppEh5VHTRbvKVZkiW-Ka6LPEy5hMvjAskY-RPLQ-we5Xl7hoBkOpnfXg9JMz_Fh_dpLgX_2mvIoQckZ8ejJ8WdQgCeh_mRAL04t2gj8HfC7SZ0XoeBqcV27NY6VHjWsPr1X-3Vc-kvHzSHottQAaemaP-lYwSbPNd0OuWI7nJs_TXJC26R27UgPefhAYFmzL9Qje41hRNI8NciTP6KW06Y3xMW80Ld_fOuZj00SMUeEVLz4yxAdrLkHtrvEI8BvxU4-l-szvfK54BV8ZOQkBibS6zqf0gkbbpRxkl3jhCzs0vHjo1gf6PLgeuBGak5u6sHvna5SWnxrA.jpg" width="400"><br>
-
-روزنامه سازندگی روز شنبه به نقل از یک منبع آگاه اعلام کرد که مسعود پزشکیان، رئیس‌جمهور ایران، با استعفای محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، مخالفت کرده است.
-در روزهای اخیر برخی رسانه‌ها از کناره‌گیری ذوالقدر و انتصاب محسن رضایی به عنوان دبیر جدید شورای عالی امنیت ملی خبر داده بودند.
-این روزنامه که ارگان رسانه‌ای حزب کارگزارن سازندگی است، در گزارش خود به نقل از منبع آگاه نوشته خبر استعفای دبیر این شورا «صحت ندارد» و پزشکیان به او گفته است که با «قوت و قدرت» به کارش ادامه دهد.
-با این حال سازندگی تأیید کرده که ذوالقدر پیش‌تر استعفای خود را ارائه کرده بود «اما این استعفا با مخالفت مسعود پزشکیان روبه‌رو شد و در نتیجه او همچنان در سمت خود باقی ماند».
-محمدباقر ذوالقدر در پی کشته شدن علی لاریجانی در اسفند ماه گذشته در جریان حملات آمریکا و اسرائیل، به عنوان دبیر شورای عالی امنیت ملی منصوب شده بود.
-علاوه بر برخی رسانه‌ها، محمدباقر خرازی، روحانی تندرو نزدیک به بیت علی خامنه‌ای، نیز هفته گذشته در یک سخنرانی خبر استعفای ذوالقدر و جایگزین شدن محسن رضایی را اعلام کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77783)
 
 ---
 
