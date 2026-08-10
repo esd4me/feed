@@ -3,8 +3,83 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-10 17:44:07 </h5>
+<h5> 🟢 Updated at: 2026-08-10 19:21:30 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-10 19:08:51
+
+<img src="https://cdn1.telesco.pe/file/iSTwHXhc1wXQvSlXQg39q8ZvvPt39SvSFKBuQWscsYN2pZTgec-XKEGxcXL7MAeysAX2FPvRxrDPFx5TalYiBsCboddOFDI2sK0x6Ej1ORPrjh-Xt6QuqL5PZFHeAUM1-1xvK7ibPX3eHBuSDUCU0Vk0A-e3VqKgVCcYGJ3iYQR5jErdHngZrlKawlTmsN-69bv5-Z_Om14VfvT5NoVh8ex00zF8asN82su2IfttZ5wryQLiE4Cb0D8Rkqo0_ATAdvxmbwLFikOYqE37KnCiLRzf7EgYUzBm9O5KOEDBRdaZUHT_TnHPzM3026gP2FAgM5evd7aFRrSuV8CdLlbd6w.jpg" width="400"><br>
+
+وحیدی فرمانده کل سپاه شد و طائب به قدرت بازگشت:
+کانال مجتبی خامنه‌ای:
+▪️
+سردار سرلشکر خلبان پاسدار علی عبداللهی به عنوان رئیس ستاد کل نیروهای مسلح و امیر سرتیپ کیومرث حیدری به عنوان جانشین رئیس ستاد کل نیروهای مسلح تعیین شدند.
+▪️
+همچنین سردار سرتیپ پاسدار احمد وحیدی با اعطای درجه سرلشکری عهده‌دار فرماندهی کل سپاه پاسداران انقلاب اسلامی شد و سردار سرلشکر پاسدار مصطفی ایزدی مسئولیت جانشینی فرماندهی کل سپاه را بر عهده گرفت.
+▪️
+در ادامه این احکام، مسئولیت فرماندهی نیروی دریایی سپاه به سردار دریادار پاسدار علی عظمایی و ریاست سازمان بسیج مستضعفین به حجت‌الاسلام والمسلمین حسین طائب محول شد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77803)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-10 18:32:52
+
+
+
+Vahid Online وحید آنلاین
+pinned «
+⚠️
+تبلیغات خطرناک فیلترشکن
+⚠️
+من  فیلترشکن و VPN تبلیغ نمی‌کنم. کلا هیچ تبلیغاتی انجام نمی‌دم. تبلیغاتی که اینجا دیده میشن به خود تلگرام سفارش داده میشن و من ازشون بی‌خبر هستم.  به نظر میاد همه تبلیغات هم کلاهبرداری باشند به ویژه اگر درباره فیلترشکن و فعالیت…
+»
+
+[View Post](https://t.me/VahidOnline/77802)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-10 17:49:01
+
+
+
+رئیس دولت در ایران روز دوشنبه ۱۹ مرداد اعلام کرد دیدار اخیرش با مجتبی خامنه‌ای، رهبر جمهوری اسلامی، «حدود هفت ساعت» طول کشیده و به گفته او «از هر دری گفتیم».
+مسعود پزشکیان در گفت‌وگو با تلویزیون حکومتی ایران گفت: «تقریباً حدود هفت ساعت خدمت ایشان بودیم و دربارهٔ تمام مسائل کشور توانستیم گفت‌وگو کنیم».
+از این دیدار عکس یا صوتی منتشر نشده است.
+پزشکیان در ادامه درباره وضعیت جسمانی مجتبی خامنه‌ای اعلام کرد: «از نظر وضعیت سلامت کاملاً سالم بودند. کسی که می‌تواند هفت تا هشت ساعت بنشیند و بحث کند، نمی‌تواند از نظر سلامت مشکلی داشته باشد. بسیار راحت حرف‌های ما را گوش می‌دادند و بحث می‌کردند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77800)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-10 17:47:05
+
+<img src="https://cdn4.telesco.pe/file/u-785rfv1eyAYeUXNQdQqrgFdm0Voy0x7f-7eD4dIpVr8JbquJutH-NtSoQ1y60uwB3d620U17DNWaoGtxQtsx5afCYxbLoGTtcQ620h5xQllNbsfu47Pw2bZNoXCq1A3EiSLQjNZTAOoAU985DLdhh6Q3h7nwAqYsuyILVJEFXko3OpVlfj5yY1V9KOy836cJt4HCAnC4YD394kv5nppSOqQ0nrZgqwjQq9XTevYlMsi4VYV0YXrbVv3-X7ha5xX-qgPEZlTGApvGBokQxREr0O3ONaFleiPtia4ixrBuaykmhMjIhhl9_YePJ8ExUqFp7h75jyUQsas9SRK8OTTA.jpg" width="400"><br>
+
+طبق گزارش‌ها، یک کولبر ۲۵ ساله بامداد دوشنبه۱۹مرداد۱۴۰۵، در پی تیراندازی نیروهای نظامی جمهوری اسلامی در منطقه مرزی «هنگه‌ژال» شهرستان بانه جان خود را از دست داد.
+خبرگزاری هرانا به نقل از کردپا، هویت این کولبر را «محمد توحیدپنا»، ۲۵ ساله، فرزند عثمان و اهل روستای «وزمله» از توابع بخش سرشیو شهرستان سقز اعلام کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77799)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-10 00:56:01
@@ -169,7 +244,7 @@ pinned «
 
 ###### 🔵 Post time: 2026-08-09 18:48:31
 
-<img src="https://cdn4.telesco.pe/file/HX0d3kwbWWy4NwzD06ZNFihqiKdJbLpWxoYJtO4Py81AZIUbfeCYk1TCx7gmJgZp0lpwZf_sSMVHN9I704zVjY7RlDLkfOWltwKVcxM9jJPg7UYZ4N13Ud5rS8KSE9YOuhAeUr1iXo__95yvDhFpQ3DMRKKbHgdToMwS2BjE9LsKIK6AWGZs4LkelDPbzeN_PcG9BqrUCjfenvCWBdINu5oMsEiTIFHZknLgDm1lJiI_omzB-stFdu8jEANOrxQvi1zeme7RBhZbCkhH2v_IuyqO7n9FTm-9gx1ixfizY7ANDAjY828wn_SWhqDJlk67phsNoA-GtvsSeAvicdGUyQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/u_0paE5sBCG_7RKyKEnUcQZWilvN2eIT-oNdcIPnFhGbc-ERwkfpWnk3c2r7XTafGZU-UjP00doF5sBNWkrbbTUBynmh3uw9Otdb-nfOw_nxI_b0Ks3awuCeYxuCrqlgVefCniZAX3o23R5V6k51Od8g35yk-DzSh36VwjWJtsEtM3CBCe6wN_FbTw9OGEQt0NJedFtef1Dw37F-2zZYJVmSyRTsvSak6eQRmHW67WC_vuRxK6M6Lkd1uP0rrGgGR3crL3l-kZ3zCBGe-_C8wnhhSmjY7Wg5zvVPb63hAQqqvkortwrrRwit6M94ax_guX-bUQ_6CWLxs6G2ukz4gQ.jpg" width="400"><br>
 
 پایگاه اطلاع‌رسانی دفتر رهبر جمهوری اسلامی روز یک‌شنبه ۱۸ مرداد ۱۴۰۵ اعلام کرد پزشکیان هم‌زمان با آغاز سومین سال ریاست‌جمهوری خود با مجتبی خامنه‌ای «دیدار و گفت‌وگو» کرده است. خبرگزاری مهر و ایرنا و دیگر رسانه‌های حکومتی نیز این خبر را بازنشر کردند.
 بااین‌حال، از این دیدار نیز هیچ عکس، فایل صوتی یا ویدیویی منتشر نشده است.
@@ -229,7 +304,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-09 18:23:09
 
-<img src="https://cdn1.telesco.pe/file/OQhGVIIDJgrRtcgAvFgCQlDLg64iXB7j3KYcO8ayeT9iIShxlQ58xKasVS3rLd0EGHdF1o6nyA_zKV13EIzRn6U9lZZ6oErhMzn68lzrUpK2OSEM2rttRbz8vlcbrWnxNv0ND4i5O6h_IezRQ4jLIWLcXkiFvcnLjwlLHfvOFWdJvasN7W2hti1qmNh1_hA5XOptB4aJMcz_hnI--fkqaQRlHF7xCx3F4Fao0qU1edJGdI03rt5h8blO0sfzF1OkrBSLBDLnC0-cw3hGl6ieuhBTberuBMD-O5bGg0pUzmKHLpBJ_yyC1prAxkdMDJ3i4P2Ve0i9OU57GzES3ClVGw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OIfjEuL0i4nUXsjld1e62bLkKR4WZHJRbA9svf4TwNqOt3h2nBQkM27Culkz8-d9O3gG92asSiO0sLqwhKPRxjBW5yU9crVgjDn8pgJmWxIFP9o6r21cc3vYF4KDV8cRy603MgcyUDcs885ZtmdXO85dX1DZIxlHT6hA_5CW2De_Z6OoauB-EmuT33a16ubkWjQv6tZtGNC34RaOBKumUppAVPTujw4RVgmlEpogPT36ywoVzWbhJ7fSRIYnKLnowau2ymb6IZCETeezDCr1Eb1RCi9gFurbSYz_XxXB8Y51h6pDvLpInY0d-hasmVcotKOPJleN0tujHPW-fyWo1g.jpg" width="400"><br>
 
 داستان امروز منابع حکومتی درباره قتل مداحی که ۶ ماه به بهانه "دعوت به حجاب" مزاحم یک "دختر بلاگر" شده بود تا رفت سر قرار باهاش:
 حمیدرضا رجب‌زاده حدود ۱۵ روز پیش ناپدید شده بود اما ۴ روز پیش ویدیویی از پیکر آسیب دیدهٔ این فرد در یک کانال ضدانقلاب منتشر و در فضای مجازی دست به دست شد.
@@ -253,7 +328,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-09 18:02:32
 
-<img src="https://cdn1.telesco.pe/file/hFKZZm3Z0Gg700QQP4A81ugqG-zm5fOGQEn-NlFC8z3lB8gBVrIcpcN83SW0qnDbYWO_R0Fhr0Mxy_yDvr2Cw2CYaD2DM5Xu9RmZa0NBmcueqL7o3W0YRdWxOBCcp5c49X1P0RFv7SRCqZSH4mH19UNdSSby8SE1JQncEC6atMkrQrcvqwXNCRfW3biYT5QsLfMd6U99iTfVJojeh0tRbjppK4e3mHP9P96n9gZD1FpIWFmvN5V730Np8qG4uMjpYZT68x1o7oz74SEmX7e4qskLfIdsuYc5RBjV7Q7vaEOaAoIY4NRH1-Q4wYAD0LYpxlqGk_iwP0EJJx06OfKBow.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/UNwy8fu59tDRWLOsz0WN282h5uRuM6n7WER2ICHDPOVKVMpxm_Oe1xgZ0kNNkW0ZsKD6XtLN64T1ydyDpKHWRC6ujC_DI9K5ju75gnJJzjDgRo6_xKKy9q_UuZZSWmU0qfQBzPDTT5iRvBv3f7d1224fQ-_rvP-QdfQs0GyXkPD07Olt-y_JvnmTNp3cniwA-zwRk6U4OK37cilW0XmnzfIket9FCPYcadu31tI8UMw3sJS8g1XjQSlRggeKBJZJZ0-e7BaRqTOzj5ox2asJmCoXYPqdBkPEQNqzhgor6Xxv3m9z7QZ_0i50rFpsRouPseEUIZsW4HnOkCpnlV3ZSw.jpg" width="400"><br>
 
 مقامات حکومت ایران در عین اعلام پیشرفت در مذاکرات ایران و عمان درباره تعیین مسیر کشتی‌ها در تنگه هرمز روز شنبه، ۱۷ مردادماه، شرط‌های تازه و گسترده‌ای را برای باز شدن این آبراه مطرح کردند.
 محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، روز شنبه گفت تا زمانی که آمریکا به گفتۀ او «رفتارش را تصحیح نکند، تنگه هرمز باز نخواهد شد» و تأکید کرد این شورا «چه در جنگ و چه در مذاکره» از این موضع کوتاه نخواهد آمد.
@@ -341,7 +416,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-08 18:14:45
 
-<img src="https://cdn4.telesco.pe/file/i2S2_Ej9lbquBAKu5PN-AoaM6UY05NCIF8-Tr_oG88RH24ChQI8O2pa2QodPhYqsuEEiKZV5_p72E730sridIl0ITB86qN0kiQjBGyAHDPGQ59oNdsPyw7v3Tbjm5tO9j9ik-OPad1zFtQFJhoVZO-Er5rDV3qwLrszPTfxdfyg3w6YMhFlXNxYQs7XDqUdMJIfAYDaNdI4TMiD8J5mD_KRABDt1u3r4UJLrOI_bZft3se7bUfhl2tTL94L7s789AY47rVfB6A23AAs1fmp4K9-iQ-t6oFHHSR1pqfFtj9HQKcvwtndaaZShmfDWWrTDVlbg8Zckx5cskF52guRVHQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/HNpsdyJ84tIjLYf9QkilYdHe1y_QySJBcTUg_z6yHzvHpjx9OtSa4z40pE6Sn0IlvwdYG_vYvfCi6Br-ug2twH864YlTLvomCDJMyBMwu40eOVFuQwu_I8C0nnfJ20Q1kIopqBS2CwDEkxcnXFBhfRT85Y7-kXYDi4n9_JaXFb6SZgxiszMdLm1SlKzAzatVUadKY_z_d5rq0ps5cMnwrMcNtN6ZfaOrGAj9Ui7bqBVrSWTY83rKeQeJ4CMvOR0w6jfUwUqmeIFAye7_gMFg7V8Hp_vJ189-TY0Csq4flmT9jF9jev9UCEqBv-DIy_OlehygthbVD4Oo103IS9E2Mw.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا (UKMTO) از هدف قرار گرفتن یک شناور در تنگه هرمز، در فاصله حدود ۱۸ مایل دریایی شرق خصب در عمان، خبر داد. هم‌زمان، امارات متحده عربی اعلام کرد یک نفتکش متعلق به شرکت ملی نفت ابوظبی، ادنوک، هنگام عبور از تنگه هرمز هدف حمله موشکی قرار گرفته است.
 @
@@ -357,7 +432,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-08 18:14:07
 
-<img src="https://cdn4.telesco.pe/file/AGlUCqw8Q5LMXzx5IgNI6k4LlzdNupz59Y2zNJsFHak87AB36PzGoGSWmm5VN_H9NZjjDcT79L9FCnC79Ueq14Mch3q2cDtxZqL_GRiNudQ5Rzq87IOct4i6dYQfbsUuoltSq1yhxgeAXco-etiu5yzZPOaOF5Uk6vEkxP9rbj7njRyqEnjTSALdpwU9MjDr8iVeyKRS9D8E3b5DquAuVbb_7Ex-guuR7ScO5VmeJ1lNsy8kQ74tngF4gGMei5lOsnPHQD-51-lF03AasB88XE-1-2yq53cFYBiflplCmXajm0pOGaZIJf883SHU-2BuLwQ5vNtwApzTTsiAZtTwdw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/AzKIf8ijvbjrBA77A1tjOcHJOdwBjl5AkTzmBFrnwPmFWiBI5yfvTs81hF6VQrf9xUpcjHxLxTn9FRjVsaUOARxTWk-ntEfWb5pMlj8oNqMR45koxkWhI0w1HAQraNWPkkFvyflyRKSKk_DOsKWLXOQxNDJLqHnx0VIwE2URWANcCGy6sJZoGlDJS4QmR24rUGJSisdi0-dv0SV_PO6JS_iF_g7e5KnsA3zOXG9nGQDuJonGLVnGDeh2zaHlZg0aO3R1dFv_IVGIUOWCBwYoIEGTx634p6fQ7panXbS5HzNaipxi1lKXTb7pjSgPCPOcZ2dFEm70fd9bc4_0NTO1dg.jpg" width="400"><br>
 
 محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، روز شنبه ۱۷ مردا ماه، با انتشار پیامی با تشریح شروط جمهوری اسلامی برای بازگشایی تنگه هرمز، تاکید کرد تا زمانی که ایالات متحده آمریکا رفتار خود را تصحیح نکند، این آبراه راهبردی مسدود خواهد ماند.
 دبیر شورای عالی امنیت ملی تصحیح رفتار آمریکا را مشروط به تحقق ۶ بند اصلی دانست و اعلام کرد آمریکا باید تهاجم و جنگ علیه ایران و متحدانش در منطقه از جمله لبنان، فلسطین، یمن و عراق را متوقف کند، محاصره دریایی را برچیده و نیروهای نظامی خود را از اطراف ایران خارج کند.
@@ -389,49 +464,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77783)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-08 18:12:06
-
-<img src="https://cdn4.telesco.pe/file/JZEtt37TXL2-wxGbhA88dPolWibDel0VAQ-7oOMvZvM4a622S__fjT1oNLZBO_nkt6YEm11JsVHKxBp4SW_aVEGuuTqBFlPWJ22kLygexHxAzuclUMWqLVbtg75gVtmZMUYYyBqOVdhedyMttGNdE5qb-grjprKOtzw_SqoaAP_IwmPTNPno-WcnG4LbiK7V_-QTV4NEflNq57Li2DUQsq-74Fsu_snPfPnp5BMFjXEdsigokhQ7GughFhBBCiL-YqS1nXXXNta0yl7yCV7jdQy7PklKKlCAPz0kD9J1ejWeKp9KS9upZ3fJ97cp8cqWOezuJ7s1EM--2f-ivKfBJw.jpg" width="400"><br>
-
-در پی انتشار گزارش‌ها در مورد حمله موشکی روز شنبه نیروهای مسلح جمهوری اسلامی به نفتکش اماراتی در خلیج فارس، وزارت خارجه امارات متحده عربی با انتشار بیانیه‌ای ضمن محکوم کردن شدید این حمله اعلام کرد، این حمله تلفات جانی نداشته است.
-وزارت خارجه امارات، روز شنبه ۱۷ مرداد ماه، در بیانیه‌ای این حمله را نقض آشکار قطعنامه ۲۸۱۷ شورای امنیت سازمان ملل متحد دانست؛ قطعنامه‌ای که بر آزادی کشتیرانی و مخالفت با هدف قرار دادن کشتی‌های تجاری یا ایجاد اختلال در مسیرهای دریایی بین‌المللی تاکید دارد.
-وزارت خارجه امارات همچنین اعلام کرد هدف قرار دادن کشتیرانی تجاری و استفاده از تنگه هرمز به‌عنوان ابزاری برای فشار یا باج‌گیری اقتصادی، «اقدامات دزدی دریایی» از سوی سپاه پاسداران محسوب می‌شود و تهدیدی مستقیم برای ثبات منطقه، مردم آن و امنیت انرژی جهان است.
-امارات از مقامات تهران خواست این حملات را متوقف کند و به‌طور کامل به توقف تمامی اقدامات خصمانه پایبند باشد. ابوظبی همچنین خواستار بازگشایی کامل و بدون قید و شرط تنگه هرمز برای تضمین امنیت منطقه و ثبات اقتصاد و تجارت جهانی شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77782)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-08 18:08:37
-
-<img src="https://cdn1.telesco.pe/file/eFNx1ouhHRuzgQYV2bVZ61IJotmhGa5Y1aWC1SbN2xP5kRJY2XlWvLanIw2gTnuwZQIIoPKucuarWEMVYkbS6E8ueXGGGa5kaP84-CXZ-LLEshYotcP1BWHBczTe0tflg3pvHkQVKBcVvccbpMN82nN2zDgkR2x3IzfpflHPUdThQPqqz4qPO23GVz54_eMYFmFTAslE182G_JMhKizHi2wbV-GOndU0Hp8Notv5BncV-kSIM4z4cWk-l1P1L_vaHmDU85ae-D-Z4R_LI9dRs8_D8xB15zahaw8EXuKc59u8XXwPlIDOLxlCzK82R2Y3-t0iUN3pgpInKM0eQPu68A.jpg" width="400"><br>
-
-سخنگوی
-قوه قضاییه روز شنبه اعلام کرد محمدباقر خرازی، دبیرکل «حزب‌الله ایران»، در پی اظهارات اخیرش به دادگاه ویژه روحانیت احضار شده و تحت تعقیب کیفری قرار گرفته است.
-به گفته سخنگوی قوه قضاییه، با توجه به روحانی‌بودن محمدباقر خرازی، رسیدگی به اتهامات احتمالی او در صلاحیت دادگاه ویژه روحانیت است. او همچنین گفت خرازی «می‌تواند اتهامات متعدد امنیتی» داشته باشد و در صورت حاضر نشدن در دادگاه، برای او حکم جلب صادر خواهد شد.
-@
-VahidHeadline
-در حاشیه ساختار قدرت در جمهوری اسلامی، همواره ردی از «خودی‌های دردسرسازی» پیدا می‌شود که مقام و جایگاه رسمی ندارند، اما آن‌قدر به حلقه‌های قدرت نزدیک‌اند که نمی‌توان حرف‌هایشان را نادیده گرفت.
-نسبت خانوادگی، لباس روحانیت یا وابستگی به یک تشکل حتی کم‌نام‌ونشان، به آن‌ها امکان می‌دهد از تصمیم‌های پشت پرده خبر بدهند، مقام‌های حکومتی را متهم یا تهدید کنند و سخنانی بگویند که واکنش و تکذیب بالاترین سطوح قدرت را برانگیزد، اما خود در حاشیه امن قدرت باقی بمانند و پس از مدتی با ادعایی تازه برگردند.
-محمدباقر خرازی بسیاری از این ویژگی‌ها را دارد.
-روحانی بدون منصب حکومتی، دبیرکل تشکلی به نام «حزب‌الله ایران» که وزن و جایگاه واقعی آن در فضای سیاست ایران چندان روشن نیست، و عضوی از خانواده‌ای که با حوزه علمیه، دستگاه دیپلماسی و خاندان خامنه‌ای پیوند دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77775)
 
 ---
 
