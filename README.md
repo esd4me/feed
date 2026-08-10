@@ -3,13 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-10 21:13:46 </h5>
+<h5> 🟢 Updated at: 2026-08-10 22:13:15 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-10 21:22:22
+
+<img src="https://cdn1.telesco.pe/file/fjyqbtB31OqY7smMVrH4MhhWzm9j4-ZcTFpStGkJhDEEgQM6mDvAXPQK8pKpH8coN7eLAas4D2Mqy6kFY_UVKdL--DAcMwX7Qyn0T5fAtPNsRpkK3Bk3b-MZa1XhI_GvNXwz00IMuBhThd_mu8Fth133KNat7rvu7nu4IRk--WmHC1EismN-sdYjZEiVfZWqWDZfQfvuACKT7VpTYhq-O2XyOS8QM_MTOJsMmYSkkLXzIQuDlbSDOE3Sc6TLMEqPy7fZgOyRjvRuzQoACLx1qU6osMAkHsdJrBUoQ8a83q-vj1-CuXLyh1-LYmSjpXsEY4tAQGfwaTeyxqHhhl_edA.jpg" width="400"><br>
+
+پست تازه ترامپ در ادامه متن یک ساعت پیش:
+همچنین، در ارتباط با مذاکرات با ایران، ایران باید مسئول خسارت‌ها و مرگ‌ومیرهایی باشد که برای مردم لبنان، سوریه، یمن و غزه به بار آورده است!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77805)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-10 20:19:53
 
-<img src="https://cdn1.telesco.pe/file/UajX7J0wszZoz_HD4327mT5uqZR0H9PZCpYtV_Wn5xVxLpDcmbHD4aIlXCpCUWWKLMHpm2wiKa7mKGOGW36gjs7rXmCJEvY4CR7Ob1W0g-b9rh44ftTuQInWmaZpYVh-GlyXlfYnYV_-yfYY01sPaZxOxoQDrrNtwKz3F-T6wh5i5Wgsovi0DV5DCxp1Jifu_Nf3-BPj15ASvZYoOvQIZ9aBoVHcHA9iqfQiifGZgXZn_0uxH_JQiHYw2baXZAPqYMIktaHZNQQsMJ6tsDEOVM891vNfoDcjgIHMcCZLX5n_VplHj-LS6XkaAWBlWClwUuHQeck7nESSB9YQVqgxvw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/d9yBDKMuwYfwKdEa-JaQGVfr7SeA73co0J4cBnllbG3haXSWK_Rn5ye1tI060FBeZGHIUopzqLSwfg4pinpaOJUph7DzuYddrnFVVcsZci89mC46H0rSIuBgZ4IgZt0Gdi0Dt-OpRFw490_hAq99sIdi8beVzdABERNBSfZ03H9v-BtCGFg71VihDRSpfHsE7a2M764kyrbFk3tb2vTI8vuDnR38JHpJqW5S7isPUhGcnq6yrfFIpZy6WsWNIgeMw0J_r4mQLt8ACTyOUv9wD3XoibvpWgy2_pru5QjUnS_nCsODCqEjM-2a4gbF4GLrUCG9LZ-7cfDwq2fJMmkPNA.jpg" width="400"><br>
 
 ترامپ: در مذاکرات موضوع پرداخت غرامت به ایران مطرح نشده، جمهوری اسلامی به خانوده‌های کشته‌شدگان غرامت بدهد
 ترجمه ماشین:
@@ -449,24 +466,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77785)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-08 18:14:07
-
-<img src="https://cdn4.telesco.pe/file/AzKIf8ijvbjrBA77A1tjOcHJOdwBjl5AkTzmBFrnwPmFWiBI5yfvTs81hF6VQrf9xUpcjHxLxTn9FRjVsaUOARxTWk-ntEfWb5pMlj8oNqMR45koxkWhI0w1HAQraNWPkkFvyflyRKSKk_DOsKWLXOQxNDJLqHnx0VIwE2URWANcCGy6sJZoGlDJS4QmR24rUGJSisdi0-dv0SV_PO6JS_iF_g7e5KnsA3zOXG9nGQDuJonGLVnGDeh2zaHlZg0aO3R1dFv_IVGIUOWCBwYoIEGTx634p6fQ7panXbS5HzNaipxi1lKXTb7pjSgPCPOcZ2dFEm70fd9bc4_0NTO1dg.jpg" width="400"><br>
-
-محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، روز شنبه ۱۷ مردا ماه، با انتشار پیامی با تشریح شروط جمهوری اسلامی برای بازگشایی تنگه هرمز، تاکید کرد تا زمانی که ایالات متحده آمریکا رفتار خود را تصحیح نکند، این آبراه راهبردی مسدود خواهد ماند.
-دبیر شورای عالی امنیت ملی تصحیح رفتار آمریکا را مشروط به تحقق ۶ بند اصلی دانست و اعلام کرد آمریکا باید تهاجم و جنگ علیه ایران و متحدانش در منطقه از جمله لبنان، فلسطین، یمن و عراق را متوقف کند، محاصره دریایی را برچیده و نیروهای نظامی خود را از اطراف ایران خارج کند.
-او همچنین پرداخت کامل خسارات جنگ‌های تجاوزکارانه، لغو تمامی تحریم‌های غیرقانونی، آزادسازی بی‌قید و شرط دارایی‌های مسدودشده و پایان دادن به تهدیدها و توهین‌ها علیه ملت ایران را از دیگر شروط اساسی ایران برشمرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77784)
 
 ---
 
