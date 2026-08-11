@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-11 16:13:01 </h5>
+<h5> 🟢 Updated at: 2026-08-11 17:43:13 </h5>
 </div>
 
 
@@ -213,7 +213,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-10 17:47:05
 
-<img src="https://cdn4.telesco.pe/file/u-785rfv1eyAYeUXNQdQqrgFdm0Voy0x7f-7eD4dIpVr8JbquJutH-NtSoQ1y60uwB3d620U17DNWaoGtxQtsx5afCYxbLoGTtcQ620h5xQllNbsfu47Pw2bZNoXCq1A3EiSLQjNZTAOoAU985DLdhh6Q3h7nwAqYsuyILVJEFXko3OpVlfj5yY1V9KOy836cJt4HCAnC4YD394kv5nppSOqQ0nrZgqwjQq9XTevYlMsi4VYV0YXrbVv3-X7ha5xX-qgPEZlTGApvGBokQxREr0O3ONaFleiPtia4ixrBuaykmhMjIhhl9_YePJ8ExUqFp7h75jyUQsas9SRK8OTTA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/oAwHxINNstIUp-F2W4aJdAqFxTj57hWbcap8jjzk0uAbCTtzemKJs7g6MqF_8yZzHYjBygGxU0noJS2r_FfQK-olTwtbvau_YBADY_vF3U3HkNATKbXCi48crh2N6MZhqjnEFafZ0UyzVjdbpJhZvYhSUra_5M9GZY-MDzHnJPJ1giObmlBQDEC9Uua3uVRqOJIJuExRXZ8Wi1iBhw7ptPk4Zi2F6VfEsWTYGndmf8JKNKcyACbXL5a-qzHTqzX9wa8DD_Yu47I59vN4deYwGAwcJibax158wulDSY6Mrz6aYTpNxgpc9T5GXvuZChEstU16G8nolazcZVlJCo_m4g.jpg" width="400"><br>
 
 طبق گزارش‌ها، یک کولبر ۲۵ ساله بامداد دوشنبه۱۹مرداد۱۴۰۵، در پی تیراندازی نیروهای نظامی جمهوری اسلامی در منطقه مرزی «هنگه‌ژال» شهرستان بانه جان خود را از دست داد.
 خبرگزاری هرانا به نقل از کردپا، هویت این کولبر را «محمد توحیدپنا»، ۲۵ ساله، فرزند عثمان و اهل روستای «وزمله» از توابع بخش سرشیو شهرستان سقز اعلام کرده است.
