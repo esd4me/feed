@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-11 20:18:08 </h5>
+<h5> 🟢 Updated at: 2026-08-11 21:20:06 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-11 21:15:59
+
+
+
+خبرگزاری‌های ایران تصاویری از «آلودگی نفتی» در بخش‌هایی از سواحل قشم منتشر کرده‌اند.
+به گزارش این منابع دادستان قشم دستور شناسایی منشا آلودگی، مهار، جمع‌آوری و پاکسازی نوار ساحلی را صادر کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77823)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-11 20:14:42
@@ -321,7 +338,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-10 21:22:22
 
-<img src="https://cdn1.telesco.pe/file/fjyqbtB31OqY7smMVrH4MhhWzm9j4-ZcTFpStGkJhDEEgQM6mDvAXPQK8pKpH8coN7eLAas4D2Mqy6kFY_UVKdL--DAcMwX7Qyn0T5fAtPNsRpkK3Bk3b-MZa1XhI_GvNXwz00IMuBhThd_mu8Fth133KNat7rvu7nu4IRk--WmHC1EismN-sdYjZEiVfZWqWDZfQfvuACKT7VpTYhq-O2XyOS8QM_MTOJsMmYSkkLXzIQuDlbSDOE3Sc6TLMEqPy7fZgOyRjvRuzQoACLx1qU6osMAkHsdJrBUoQ8a83q-vj1-CuXLyh1-LYmSjpXsEY4tAQGfwaTeyxqHhhl_edA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/FcMao1FWd-hmGLywgeWTcpEoHa-n2AdEJudyQfAwtr8cBSbYKn4jVAL2Ic8y_X1JivT69zAmwcvhAuaxjvDfdYTTCzVCB6edrpOmND01uznXf1a_cRc_iQ7jahksIPqReRGFhHCtJ7K0dMyaTp5jqQLTDLBjEIG7jlTEcZ6KM2Gqgx5Wuw5mOkkDNQ1ySq4HByyPpp1azWfH5B1mbuCBzMb2kLq_vnOkstuvgzkj_IimHqQn7gyLanrgevxzcBy9GCiHym86Dzma5nZ2Yptox76Nu9RM0A9SHA9Vf67tcTlUaAMxZSAHm10lnqZTw8J1n1EwBn5G_xvZVRRTmN9U0A.jpg" width="400"><br>
 
 پست تازه ترامپ در ادامه متن یک ساعت پیش:
 همچنین، در ارتباط با مذاکرات با ایران، ایران باید مسئول خسارت‌ها و مرگ‌ومیرهایی باشد که برای مردم لبنان، سوریه، یمن و غزه به بار آورده است!
@@ -338,7 +355,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-10 20:19:53
 
-<img src="https://cdn1.telesco.pe/file/d9yBDKMuwYfwKdEa-JaQGVfr7SeA73co0J4cBnllbG3haXSWK_Rn5ye1tI060FBeZGHIUopzqLSwfg4pinpaOJUph7DzuYddrnFVVcsZci89mC46H0rSIuBgZ4IgZt0Gdi0Dt-OpRFw490_hAq99sIdi8beVzdABERNBSfZ03H9v-BtCGFg71VihDRSpfHsE7a2M764kyrbFk3tb2vTI8vuDnR38JHpJqW5S7isPUhGcnq6yrfFIpZy6WsWNIgeMw0J_r4mQLt8ACTyOUv9wD3XoibvpWgy2_pru5QjUnS_nCsODCqEjM-2a4gbF4GLrUCG9LZ-7cfDwq2fJMmkPNA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VUanenaJocriIisy0E7NOAGcccMZt6jqc5i4ahPtaZwV_XI73hhdPj_5-1MoAUmRYGEzo2fzHOnd1bA_fKzcumubhJFefwDDnuA5U7gSJZJyzrK-dnRdJU-9gsurQwJGx1cI4sFz_YhLmBd8T2rirzzZkMoIrfafuyNVZmukcxh0PunUaZAkrm6NStc6Nppt7RHjPOOXviDJc8yNV42H8dinSRrn66YdzCN6uF8popc9no332ZfNIL0uUNiuNsBheW9ht3qehSYa8beuoY80A4qyZEVHWCh5RWS-PkIMiV1Ztx0Tk-Mp_iUPbeM4dXdoISVCu4HGzt-5v5xgVg9vHg.jpg" width="400"><br>
 
 ترامپ: در مذاکرات موضوع پرداخت غرامت به ایران مطرح نشده، جمهوری اسلامی به خانوده‌های کشته‌شدگان غرامت بدهد
 ترجمه ماشین:
@@ -355,39 +372,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77804)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-10 19:08:51
-
-<img src="https://cdn1.telesco.pe/file/Iw26J-CFVoNLDwS7lEifEMCgNc9khuEpPz7r2drQrNq-WDdoJPmjzrMyU3fny_kGEgKC0NNc6HuX_335wzNBCZPWicTAMruYUl1_4x2IL5qRo7YobglldtNr4komIQEiRvmxj4ErBhM-SlAnoRa-CyxNWF2JUuIo8NiMAyna4Mxdq2Ewr0_0efA2tz8HNVqAIXkvpmrDwkpi3SkJUtlAqxvhD48qXIPbU67DDsSDkht0o0myyuGi6y4pQKnSDddJKDc2oahTdMltd-yrMz_oHJATHf1bX9eI_FxUvY4ix1dhWftJif36nbvYmiY2HK8f00ti3TxUSAiatDwB5SpK-w.jpg" width="400"><br>
-
-احکام منسوب به مجتبی خامنه‌ای برای انتصاب شش فرمانده ارشد نظامی؛
-بازگشت رسمی حسین طائب به قدرت
-دفتر رهبر جمهوری اسلامی روز دوشنبه ۱۹ مرداد خبر داد که مجتبی خامنه‌ای احکام انتصاب شش فرمانده ارشد نیروهای مسلح را صادر کرده و خواستار آمادگی برای «عملیات تهاجمی پرقدرت» علیه آمریکا و اسرائیل شده است.
-بر اساس احکام‌ منسوب به مجتبی خامنه‌ای، علی عبداللهی که فرمانده قرارگاه مرکزی خاتم‌الانبیا بود، به عنوان رئیس ستاد کل نیروهای مسلح و کیومرث حیدری به عنوان جانشین رئیس این ستاد معرفی شده است.
-رئیس قبلی این ستاد عبدالرحیم موسوی بود که ۹ اسفند سال گذشته در نخستین دقایق حملات آمریکا و اسرائیل کشته شد و ستاد کل نیروهای مسلح ایران در حدود پنج ماه گذشته بدون رئیس به کار خود ادامه می‌داد.
-موسوی تابستان سال گذشته جایگزین محمد باقری، رئیس پیشین این ستاد، شده بود؛ باقری خرداد سال گذشته در حملات اسرائیل در ابتدای جنگ ۱۲ روزه همراه با شمار دیگری از فرماندهان ارشد نظامی جمهوری اسلامی کشته شد.
-مجتبی خامنه‌ای در حکم صادر شده برای عبداللهی خواستار «تکمیل روند ادغام ستاد کل نیروهای مسلح و قرارگاه مرکزی خاتم الانبیا» شده که به گفته او «تدبیر» آن در زمان رهبری پدرش آغاز شده بود.
-او همزمان با انتصاب عبداللهی در سمت ستادکل نیروهای مسلح برای فرمانده جدید قرارگاه خاتم‌الانبیا حکمی صادر نکرده است.
-احمد وحیدی که از آغاز جنگ و در پی کشته شدن محمد پاکپور، فرمانده‌ کل سپاه پاسداران شده بود، روز دوشنبه بر اساس حکم رهبر جمهوری اسلامی درجهٔ سرلشکری و حکم فرماندهی این نهاد قدرتمند نظامی، امنیتی و اقتصادی را دریافت کرد. او پیش از آغاز جنگ ۴۰ روزه، جانشین فرمانده‌کل سپاه بود.
-احمد وحیدی از اعضای ارشد و تندرو سپاه پاسداران سابقه فرماندهی نیروی قدس سپاه پاسداران را دارد و به اتهام دست داشتن در انفجار مرکز یهودیان، آمیا، در آرژانتین از سوی اینترپل تحت تعقیب است.
-او به جز مناصب نظامی، در دولت ابراهیم رئیسی، رئیس‌جمهور سابق ایران، به مدت سه سال وزیر کشور بود.
-در حکمی که به نام مجتبی خامنه‌ای برای احمد وحیدی صادر شده است، رهبر جمهوری اسلامی خواستار «ارتقاء مستمر و همه‌جانبه‌ توانمندی‌ها به منظور بازدارنگی حداکثری، و آمادگی هوشمندانه برای اجرای عملیات تهاجمی پرقدرت علیه دشمن» شده است.
-بر اساس حکمی جداگانه، مصطفی ایزدی نیز مسئولیت جانشینی فرماندهی کل سپاه را بر عهده گرفته است.
-مجتبی خامنه‌ای در حکم دیگری علی عظمایی را به عنوان فرمانده نیروی دریایی سپاه منصوب کرده و او جانشین علیرضا تنگسیری شده که فروردین ماه در جریان جنگ ۴۰ روزه کشته شد.
-مجتبی خامنه‌ای حسین طائب، رئیس پیشین سازمان اطلاعات سپاه، را نیز به عنوان فرمانده سازمان بسیج معرفی کرده است.
-از طائب که کار امنیتی را از وزارت اطلاعات آغاز کرد و سپس کنار گذاشته شد و سپس در سپاه پاسداران نهاد اطلاعاتی موازی ایجاد کرد، به عنوان یکی از اعضای حلقهٔ امنیتی و سیاسی قدیمی اطراف مجتبی خامنه‌ای یاد می‌شود؛ حلقه‌ای که سابقهٔ آن به بیش از دو دهه پیش باز می‌گردد.
-محمد سرافراز، رئیس اسبق صداوسیما، دربارهٔ نقش پشت‌پردهٔ مجتبی خامنه‌ای در تصمیم‌سازی‌های سیاسیِ مقام‌ها، سخن گفته است. او که خود در مقطعی عضو این حلقه بوده، از ارتباط مستقیم مجتبی خامنه‌ای با حسین طائب یاد کرده و گفته او به گزارش‌های امنیتی طائب علاقه‌مند بود.
-او در تیرماه ۱۴۰۱ از سازمان اطلاعات سپاه کنار گذاشته شد، اما بر اساس گزارش‌ها یکی از چهره‌های مهم و نزدیک به مجتبی خامنه‌ای به‌شمار می‌رود.
-مجتبی خامنه‌ای در حکم خود برای حسین طائب گفته چند مورد را «مورد انتظار» خود خوانده که یکی از آنها «تقویت شبکه‌ی اطلاعات مردمی، افزایش مهارت‌ها و آموزش‌های لازم توأم با بصیرت‌افزایی و بهره‌گیری از فناوری‌های نوین برای مقابله‌ی مردم‌پایه با تهدیدات دشمن» شده است.
-او همچنین خواستار تحقق شعار «هر ایرانی، یک بسیجی» با استفاده از ظرفیت حامیان جمهوری اسلامی که از ابتدای جنگ ۴۰ روزه در تجمع‌های خیابانی حکومتی شرکت می‌کردند برای «حفاظت از انقلاب اسلامی» شده است.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77803)
 
 ---
 
