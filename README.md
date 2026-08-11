@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-11 21:20:06 </h5>
+<h5> 🟢 Updated at: 2026-08-11 22:18:28 </h5>
 </div>
 
 
@@ -46,10 +46,9 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-11 20:14:04
 
-
+<img src="https://cdn1.telesco.pe/file/n1HHIuzugroPcFVzSz0ptnLb2b_Ty5rCTDQKugivfgqnT_RKqpXrjW0AELE-FQSDEnq1F6S9b48VyE0jJwJP93INZygXAAE1Uhs7OigLW5kCUIHibZomZLG86_5gkTpa1yoBrEMkhjgWfHI1jo-6KEGYIH4K9Lnynh-QTupXcHIge6-NYX7-7jDF0kaNrytek1BsyiNA1bWRIIQN8ejp1ay3-HeqAPF1jiazpzhPQqBPaorAl8PUx1LbwyoCrInXeqF4R2kZdenLbV-21tDOUaNCkj-hVScJNJPWq42nkuF4VAVw_nKwN1NMw5x5WT-DXjQ91AR_cJAABc8xAJUIew.jpg" width="400"><br>
 
 ترامپ: اگر مانع دستیابی آن‌ها به سلاح هسته‌ای نشده بودم دیگران ناچار بودند رهبران جمهوری اسلامی را «آقا» خطاب کنند.
-در گفت‌وگو با وین الین روت در شبکه «صدای آمریکای واقعی»
 @
 VahidHeadline
 📡
