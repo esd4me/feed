@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-11 22:18:28 </h5>
+<h5> 🟢 Updated at: 2026-08-11 23:25:01 </h5>
 </div>
 
 
@@ -108,13 +108,31 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-08-11 18:22:23
 
-<img src="https://cdn1.telesco.pe/file/J88GmNv7QeKoE5v6RQaCChbi8OAGviUu77F4-U6_s32w38-1xIlrRV3swuLNsrMrkOfck0fKNkvyJ7BxTpsOQktYYMi-MWoL25PeDa4C87vKSkoC5pFahObQP4AOaNaw7UwH4oZoR376MXsqUYqwcBARTKTiezp7nj4P7wf-A0osNTp-90-zyaL0it3K4ujObCW7CkMyjAIe7aD52YKHY9vPdsc4Ys978OHhcM-d32I-F7T2GeAPn2htvVDAUJt8ZVlZV18CQ6IfeVYfaXCBRjcwCUFmpnoV1Q3VCqJQ5wOlOUSiZH4t8cFjo76bVth7VaUbgySQGbUnPHqpfTj8wQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vho3c-ekD-3vUoii3wo3YMGjxxbR9kgjRuclQJ3SoB06_1Ui0IDNvy7q3GZNOvrka8-myqyZyFqhuS_cR_PpeOd2y7tmLLBnFUdJ3CD4xl1Npq955ZV0g7ddhL2u-jANqnuT6wlwYsqN-jmVnb-3q_ownfx7NN_zNbmLQkaJmG861d4JaM92ZFZ8Fd_sOCA6j9iC6my4pdeRbATtfqxNVDrVyvE_KqEjDF7eCB3TA-S1unGuztMvJ-CsMzEb7CiV64cT3FEl1smBEE2hBwWEF4ZKp715XeyAWhOmi-JNckOHSgU8-fqTr4lXWm0S5n_iVmRjQHDmf1hUmCdZAh5Icg.jpg" width="400"><br>
 
 یک مقام آمریکایی و منابع امنیت دریایی از هدف قرار گرفتن یک کشتی کانتینربر با پرچم پاناما در دریای عمان خبر داده‌اند؛ یک مقام آمریکایی می‌گوید این کشتی به هشدارها برای توقف توجه نکرده و در تلاش برای شکستن محاصره دریایی بنادر ایران بوده است.
 همزمان، روزنامه وال‌استریت جورنال به نقل از یک مقام آمریکایی گزارش داد که یک بالگرد نظامی ایالات متحده پس از آن‌که خدمه کشتی هشدار نیروهای مأمور اجرای محاصره بنادر ایران را نادیده گرفتند، به سکان این کشتی شلیک کرد.
-بر اساس این گزارش، هنوز گزارشی از تلفات احتمالی منتشر نشده و خدمه کشتی پس از حمله ظاهراً تلاش کرده‌اند به یک شناور غیرنظامی دیگر منتقل شوند.
 @
 VahidHeadline
+آپدیت:
+پست سنتکام ترجمه ماشین:
+اوایل امروز، نیروهای سنتکام تجهیزات هدایت کشتی
+M/V Vela Nova
+با پرچم پاناما را از کار انداختند؛ این کشتی باری در حالی که می‌کوشید از خلیج عمان عبور کند و با حرکت به‌سوی یکی از بنادر ایران، محاصره آمریکا علیه ایران را نقض کند.
+پس از آنکه خدمه غیرنظامی کشتی هشدارهای مکرر نیروهای آمریکایی را نادیده گرفتند، یک بالگرد
+MH-60
+نیروی دریایی آمریکا دو موشک هلفایر به موتورخانه
+Vela Nova
+شلیک کرد. این کشتی دیگر برخلاف محاصره آمریکا در حال حرکت به‌سوی ایران نیست؛ محاصره‌ای که همچنان به‌طور کامل برقرار است.
+تا ۱۱ اوت، سنتکام مسیر
+۵۵ کشتی تجاری
+را که می‌کوشیدند محاصره را بشکنند تغییر داده،
+۳ کشتی
+را که از دستورات تبعیت نکرده بودند از کار انداخته و وارد
+۲ کشتی
+شده است.
+نیروهای آمریکا که در خاورمیانه فعالیت می‌کنند، به‌شدت هوشیار، مرگبار و آماده‌اند.
+CENTCOM
 📡
 @VahidOnline
 
@@ -317,7 +335,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-10 22:58:34
 
-<img src="https://cdn4.telesco.pe/file/ESFJSgu5QLx1n-TC309GbW-uOQrAbDgrPHrHwYhtZ5Rl_tQjzxQV00aHCdhDTVH8bxFzMqq_0FkzK6mrf8jas_RUuU3zPXiQBxMMUWbK_nagE-mXYZG_yfMqmYMpJhU5xzQ6rPuZHhQvZd922YCzh80zLbiTwvwB0KOEWizBzlb9A3Mx3SBzGu1BdJnUSilcfYBXYykRGDsqodF_XFbeqWbA6kV4mvMltPjAHFuSSnSy4HL09ztu5XvgpL4O3okJEf3URGFC9GogxN_DcUTF2daSXp5nLoeHlU2aW_ajQtykZn3rd-QhC_pkCjvnIivKhmSuvCmd7cvxMP8nj73sJA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/X97SfD64y51ghkDewL3HwVLo1v6pC77S_6BawShIPz25DFKMztUm-8fVnPygL9uB-r4W5O78uFsvz9QUg0Jd9tXx3gA2sTPVP_K9fg2j6yQjuEKjWH40rFay8xhnXi0SkvhNm1OE02mmuZ_PyBiy-S-acWqm-tN7y5Q52Y8BWbOynwv-VKHvOHFWLt2JiTOp_xJy0igl6FVxbqu8zNisb_MyQInug0F2pobEGZ2OHmOsLCrOlhN425I9iL7_4jZ6uW0Luu6UXXFklMwylotTq8uW_7utdwSDUqJyFDUn4eaE2NJIzjAAWBu6Jj4x7sPskrPl8VnaKIqHLid3ApN3Hg.jpg" width="400"><br>
 
 قیمت نفت روز دوشنبه ۱۹ مرداد و پس از مطرح شدن موضوع پرداخت غرامت بین ایران و آمریکا و کمرنگ شدن امیدها برای بازگشایی تنگه هرمز حدود ۵ درصد افزایش یافت.
 ایران اعلام کرده که آمریکا باید تحریم‌های اعمال‌شده علیه تهران را لغو کند و برای بازگشایی این آبراه حیاتی، چند شرط دیگر را نیز بپذیرد. در مقابل، دونالد ترامپ، رئیس‌جمهوری آمریکا، گفت ایران باید بابت «تمام افرادی که کشته یا به‌شدت مجروح کرده است» غرامت بپردازد.
