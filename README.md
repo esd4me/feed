@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-12 00:06:26 </h5>
+<h5> 🟢 Updated at: 2026-08-12 01:06:06 </h5>
 </div>
 
 
@@ -300,7 +300,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-11 01:04:01
 
-<img src="https://cdn4.telesco.pe/file/vqkcc1J7H17JSXT03sKI2e9D_Y3R0Xt7qt-WTKZbYpykt7ngAmqLwiAutcQt0wHvIOwUNP4aG2sYZbZ51ew1B_ZJkPwwwH2rlYHTRD17zSUeUv0QGcote4owltqjOywvaZvAiJckN_wu5RzWJVV-z-GczUCNctire_WAMiNHjsfugTSJzbFH3ptYRgLGaY4TNSWJd9xwoq_25nkkXGlfBuHggM4al-7oP90dCuTxiac0nHRs4jaHSD7UX-VOMiKH73g78bpLNHdiajhse6FCUouT5-gea8eN6SwuzUONJWc_LlcdnwzJVpXdFznFP3C9hFTJk2ObGdvEhdWS3g47NA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Ni-1vhKS_cOohztN_DdOShHQen3l5So7d3PHpwYuoaiDyuAhNN6oZYofRisbWICV9mqGUwTWzW1F-stbfte6psgBp_x-X4mIqEvRt7af9dkkjyvkhm2N3HDCvtNsRfn4aK5oHOWIjUkgNujiiJCwZuZlBc53jwxkIU7b9mWRtFL3HQPh713UTUwwpBRqNMx62lOacWvxA93kbML4fZ4TxXqmYu4rqbWeBC5DM8-6ODy9GcnUxPEv47WQs1cGBKRWo5EH7EjjAmQ_ip6jcuIoDYfQhmgvNawYAEc2NvGK3SKUKwe2bYOjEWfzLwpGj1Z5Ws3gJwgrUJozWs7Vbz-slQ.jpg" width="400"><br>
 
 به گزارش «آکسیوس»، آژانس بین‌المللی انرژی اتمی به‌زودی مواد هسته‌ای باقی‌مانده در یک سایت مخفی در سوریه موسوم به «سایت ۹۹» را پس از توافق‌های محرمانه دولت ترامپ با اسرائیل و سوریه، از این کشور خارج خواهد کرد. این مرکز که در زمان رژیم بشار اسد برای نگهداری کیک زرد و بقایای رآکتور هسته‌ای «الکبر» استفاده می‌شد، پس از سقوط اسد به شدت تحت نظر اسرائیل قرار داشت و حتی ارتش اسرائیل برای جلوگیری از دسترسی به آن، ورودی‌های سایت را بمباران کرده بود. اگرچه این مواد برای ساخت سلاح هسته‌ای کافی نیستند، اما مقامات آمریکایی و اسرائیلی بیم آن را داشتند که در ساخت «بمب کثیف» و آلوده‌سازی منطقه‌ای مورد استفاده قرار گیرند.
 براساس این گزارش، در ماه‌های اخیر و پس از مشکوک شدن اسرائیل به تحرکات حکومت جدید سوریه و احتمال مداخله ترکیه، تل‌آویو تهدید به حمله مجدد کرد، اما دولت ترامپ با مداخله به موقع و وارد کردن آژانس بین‌المللی انرژی اتمی به ماجرا، مانع از تشدید تنش و بروز بحران نظامی جدید شد. در نهایت، سه هفته پیش توافقی میان دمشق و آژانس به امضا رسید تا این مواد خطرناک به صورت ایمن بارگیری و منتقل شوند. مقامات واشنگتن این موفقیت دیپلماتیک را نشان‌دهنده رویکرد موثر دولت ترامپ در تعامل با حکومت جدید سوریه و حل‌وفصل بحران‌های پیچیده مانده از دوران اسد می‌دانند.
