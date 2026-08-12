@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-12 19:21:29 </h5>
+<h5> 🟢 Updated at: 2026-08-12 20:17:27 </h5>
 </div>
 
 
@@ -178,7 +178,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-11 20:14:42
 
-<img src="https://cdn4.telesco.pe/file/PO_iCj2w_Bl2K-WWaPVqbwZVK31M7uuadVMiRDWEzDA3nGTJziCsYSEKkVcLE6EXOfecryvtHPViUObYDzfhRjETuzMIIPDGqNkfn4Go3Gs0jQSKRYDr94sXwQ8zp-rd50mcyMWTuznmwnDe0N6SF_rI25SWiYFe12zTwF_361RSvXL3am-G07Nly11ENqvvHv-u91JPsNVOVLpPJ8wU5sLVqycNjeCWmGMhlnASxA9FCBRzB0IJ3GlqzOURIHQLKkClCvj_mVGtY4-SqTH7OvBFJcoOwdkNGz529TP2_P1CIW3aVfoVKqJsrGnlzu4XJE-r0ErUwPvc7zYMiDeGjA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/bPocSw__VZ5qPVMqu7WQ_h9so69V0MFwT5X28e6DyoDr0GF4aDMqRMzNLh6NvM-gddtgApHx2N1h5mNepRtnjVkcbCqULhT-KbwTz0ElKb21jWXBN4CWV9YLyrCTKVydd3exP3R8tFKjX3EhQ4RZrnkHlnqLN-0QLCSxjZpjNzMm_HZAZEI-2zoaJO2VU4bocPNSFhFoWYS62APAi4B54R15g1Xj6U_RiKSDw-Q1tedRuvMobcj9o7t-XxB9r3z1qMSBptsLfhXrwyORh6Qs2fDorwbi9IQw9uH3AepxnyQnz6uRLblOCWkdDVT2g8yYKm0H_s4_7JylIDOIU93wEw.jpg" width="400"><br>
 
 محسن رضایی، دبیر جدید شورای عالی امنیت ملی جمهوری اسلامی، در نخستین موضع‌گیری پس از انتصاب به این سمت اعلام کرد برای باز شدن تنگه هرمز، آمریکا باید جنگ را پایان دهد و پول‌های مسدود شده ایران را بپردازد.
 به گزارش رسانه‌های ایران، او در دیدار با سفیر چین در تهران گفت تا زمانی که آمریکا «رفتار خود را تغییر ندهد و شروط ایران را نپذیرد» ایران اقدام به باز کردن تنگه هرمز نخواهد کرد. او پایان جنگ و آزاد کردن پول‌های مسدود شده ایران را دو عنوان از شرط‌های ایران برشمرد.
@@ -214,7 +214,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-11 20:04:52
 
-<img src="https://cdn1.telesco.pe/file/hdAIJB02PTd8XIROaZ86umddPvueOl0yP6ZpK9HjpJBsmHre2m9b7wV8CDT_fgIor4avG48mTuokWjuKLBFLb6TOog7ciBYj5SjrtZdmhSNQRiS3vvzcMJfyINgAHdZgzHChqXdiTMaglKqetkPqdPpBYulwqiLWdzxNmzoMZQXJimu_lsJ-N5THoSqSfHgL8bIGLO7GGw1-Bi43j814KnN50bMd_PTF44IeC9rVyu3oa5HMs5L41tkBadE4Aq4dQ6JrUBmdvwlekZUmDOnDAY-mpDIe4HCtbiZW-_hnKIo5SFsg5km5v56l9X8o5w_lr2ogWHBPDna21KWCOLI88Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/imLFn13gRZvl3m1PCRFeck_-KljOBXuu0QHmnXWNnBbMKKQuMMw8w50CWZY7qhqJcOKNwMM52xfsnhkXQv3_qpw_M-pYErdOXOQew98MKYiPKtov0N5_oR0Q4Z-A39Y-sf1ciJF9pWPavrTlcL6df1q5sT-NnK65umiRuougFsNaR-_lxwZseWhE7SjcW-RS7ptxRnnZ0KfLMeCNj-zi9_i0uzz-DygMCwIhYdCkKb5gbtZB5kjMzdW7SQZApgHKA5BkFqr6tG-hW2SFoSkHcZl9h2fYGy07IITCLh2i_XbajmCTUO9y1G9SOapi_RHKBdQ7Ki5Abm_ZKmSaop_2Fw.jpg" width="400"><br>
 
 یوسی کوهن، مدیر پیشین موساد، گفت ماموران این سازمان در گذشته چندین بار از تاسیسات غنی‌سازی اورانیوم فردو بازدید کرده بودند تا اطلاعات بیشتری درباره این مرکز هسته‌ای به‌دست آورند.
 به گزارش تایمز اسراییل، کوهن، روز سه‌شنبه ۲۰مرداد ۱۴۰۵، در نشست «مجمع جلیل» در شهر صفد، گفت: «ما بارها از سایت هسته‌ای فردو بازدید کردیم تا این سایت را درک کنیم.» او درباره زمان این بازدیدها و این‌که چه افرادی از سوی موساد در این بازدیدها حضور داشتند، توضیح بیشتری نداد.
