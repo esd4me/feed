@@ -3,8 +3,37 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-12 07:26:34 </h5>
+<h5> 🟢 Updated at: 2026-08-12 08:59:26 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-12 08:02:18
+
+<img src="https://cdn1.telesco.pe/file/RJCs5206ggbDN6xotl_gzkiJ8Y3xsv4ES5Wn7urVB15KB1tHs2mfJgjNvb9yDIvjTC5l-RvW0IvCCYSQ__A7P-oZnUZzP1ZBbZNojSXpKe3DHiYnTbTE7R0ejESIRdSgdcA9gkB9C7Wod0K9VNhJpUjNcCKX0Eus-yfVsqZ3VhPGBwYuqvD4EObB109NU1m2fbsVvIy9KKh2gQERvG0qmv_1EQb2ePxoDlgO8NJHiQ-kSypldpOgTPYfkzHDOka_d_LtV4vj8WiQfcd86PdVjskQVYjqV1GX6rnoEpIBU-_dcoVl8nMhOpOgJ8UUhAToZa97b5OgdYYKSYPt-d2Nnw.jpg" width="400"><br>
+
+اظهارات علنی متناقض؛ ترامپ در پی تهدید ایران، مخفیانه با پروازی دیگر از ترکیه خارج شد  ترجمه ماشین: واشنگتن‌پست دریافته است که تهدید ایران به ترور دونالد ترامپ، رئیس‌جمهور آمریکا، ماه گذشته باعث اجرای عملیاتی فوق‌العاده شد که طی آن ترامپ به‌طور مخفیانه با…
+
+[View Post](https://t.me/VahidOnline/77825)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-12 07:57:13
+
+
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در گفتگو با خبرنگاران گفت به ایران اعتماد ندارد و افزود: «من آخرین کسی هستم که به ایران اعتماد می‌کند. آنها پیوسته به من دروغ گفته‌اند.»
+ترامپ همچنین گفت ایالات متحده در حال حاضر «کنترل کامل» تنگه هرمز را در اختیار دارد و افزود: «آنها کنترلی ندارند. ما کنترل کامل داریم. اختیار آن دست ماست.» رئیس‌جمهوری آمریکا در ادامه گفت ایران دیگر «قلدر خاورمیانه» نیست
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77824)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-11 21:15:59
@@ -328,67 +357,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77807)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-10 22:58:34
-
-<img src="https://cdn4.telesco.pe/file/X97SfD64y51ghkDewL3HwVLo1v6pC77S_6BawShIPz25DFKMztUm-8fVnPygL9uB-r4W5O78uFsvz9QUg0Jd9tXx3gA2sTPVP_K9fg2j6yQjuEKjWH40rFay8xhnXi0SkvhNm1OE02mmuZ_PyBiy-S-acWqm-tN7y5Q52Y8BWbOynwv-VKHvOHFWLt2JiTOp_xJy0igl6FVxbqu8zNisb_MyQInug0F2pobEGZ2OHmOsLCrOlhN425I9iL7_4jZ6uW0Luu6UXXFklMwylotTq8uW_7utdwSDUqJyFDUn4eaE2NJIzjAAWBu6Jj4x7sPskrPl8VnaKIqHLid3ApN3Hg.jpg" width="400"><br>
-
-قیمت نفت روز دوشنبه ۱۹ مرداد و پس از مطرح شدن موضوع پرداخت غرامت بین ایران و آمریکا و کمرنگ شدن امیدها برای بازگشایی تنگه هرمز حدود ۵ درصد افزایش یافت.
-ایران اعلام کرده که آمریکا باید تحریم‌های اعمال‌شده علیه تهران را لغو کند و برای بازگشایی این آبراه حیاتی، چند شرط دیگر را نیز بپذیرد. در مقابل، دونالد ترامپ، رئیس‌جمهوری آمریکا، گفت ایران باید بابت «تمام افرادی که کشته یا به‌شدت مجروح کرده است» غرامت بپردازد.
-قیمت هر بشکه نفت خام برنت در پایان معاملات با ۴ دلار و ۱۷ سنت، معادل ۴.۹۹ درصد افزایش به ۸۷ دلار و ۷۲ سنت رسید. نفت خام وست تگزاس اینترمدیت آمریکا نیز با ۳ دلار و ۹۵ سنت، معادل ۵.۰۵ درصد افزایش، در قیمت ۸۲ دلار و ۱۳ سنت در هر بشکه بسته شد.
-درصد افزایش قیمت هر دو شاخص نفتی، بالاترین میزان از هفتم مرداد بود.
-هر دو شاخص نفتی هفته گذشته بیش از ۷ درصد کاهش یافته بودند؛ زیرا امیدها به نزدیک بودن ایران و عمان به توافقی که می‌توانست به بازگشایی تنگه هرمز منجر شود، افزایش یافته بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77806)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-10 21:22:22
-
-<img src="https://cdn1.telesco.pe/file/FcMao1FWd-hmGLywgeWTcpEoHa-n2AdEJudyQfAwtr8cBSbYKn4jVAL2Ic8y_X1JivT69zAmwcvhAuaxjvDfdYTTCzVCB6edrpOmND01uznXf1a_cRc_iQ7jahksIPqReRGFhHCtJ7K0dMyaTp5jqQLTDLBjEIG7jlTEcZ6KM2Gqgx5Wuw5mOkkDNQ1ySq4HByyPpp1azWfH5B1mbuCBzMb2kLq_vnOkstuvgzkj_IimHqQn7gyLanrgevxzcBy9GCiHym86Dzma5nZ2Yptox76Nu9RM0A9SHA9Vf67tcTlUaAMxZSAHm10lnqZTw8J1n1EwBn5G_xvZVRRTmN9U0A.jpg" width="400"><br>
-
-پست تازه ترامپ در ادامه متن یک ساعت پیش:
-همچنین، در ارتباط با مذاکرات با ایران، ایران باید مسئول خسارت‌ها و مرگ‌ومیرهایی باشد که برای مردم لبنان، سوریه، یمن و غزه به بار آورده است!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77805)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-10 20:19:53
-
-<img src="https://cdn1.telesco.pe/file/VUanenaJocriIisy0E7NOAGcccMZt6jqc5i4ahPtaZwV_XI73hhdPj_5-1MoAUmRYGEzo2fzHOnd1bA_fKzcumubhJFefwDDnuA5U7gSJZJyzrK-dnRdJU-9gsurQwJGx1cI4sFz_YhLmBd8T2rirzzZkMoIrfafuyNVZmukcxh0PunUaZAkrm6NStc6Nppt7RHjPOOXviDJc8yNV42H8dinSRrn66YdzCN6uF8popc9no332ZfNIL0uUNiuNsBheW9ht3qehSYa8beuoY80A4qyZEVHWCh5RWS-PkIMiV1Ztx0Tk-Mp_iUPbeM4dXdoISVCu4HGzt-5v5xgVg9vHg.jpg" width="400"><br>
-
-ترامپ: در مذاکرات موضوع پرداخت غرامت به ایران مطرح نشده، جمهوری اسلامی به خانوده‌های کشته‌شدگان غرامت بدهد
-ترجمه ماشین:
-می‌بینم که نمایندگان جمهوری اسلامی ایران خواستار دریافت غرامت بابت خسارت‌هایی شده‌اند که در جریان درگیری نظامی پنج‌ماهه اخیر به آن‌ها وارد شده است (درگیری‌ای که به این دلیل آغاز شد که، آن‌ها
-سلاح هسته‌ای نخواهند داشت
-)؛ با اینکه این موضوع هرگز در هیچ‌یک از مذاکرات یا دیدارهای ما مطرح نشده بود!
-اما ایده جالبی است، چون حالا من نیز به همین ترتیب از ایران غرامت مطالبه می‌کنم؛ بابت همه افرادی که با بمب‌های کنار جاده‌ای و در درگیری‌های متعدد ــ که به آن‌ها شهرت دارند ــ کشته یا به‌شدت زخمی کرده‌اند؛ اقداماتی که در ابتدا تحت رهبری ژنرال سلیمانی انجام می‌شد، از جمله بابت خانواده‌های کسانی که در ناو «یواس‌اس کول» کشته شدند، و هزاران نفر دیگری که در نبرد جان باختند.
-علاوه بر این، باید به خانواده‌های صدها هزار معترض بی‌گناهی که ایران طی ۵۰ سال گذشته کشته است نیز غرامت پرداخت شود؛ چه رسد به ۵۲ هزار نفری که در پنج ماه گذشته کشته شده‌اند.
-به نمایندگانم دستور داده‌ام که این موضوع را قاطعانه در تک‌تک مذاکرات آینده مطرح کنند.
-از توجه شما به این موضوع سپاسگزارم!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77804)
 
 ---
 
