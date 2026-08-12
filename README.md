@@ -3,8 +3,31 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-12 20:17:27 </h5>
+<h5> 🟢 Updated at: 2026-08-12 21:22:05 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-12 20:20:40
+
+<img src="https://cdn1.telesco.pe/file/dDs1AAwGL6Vyb-5DLjsyhZ2BttyOYD1aVJiTIpuqlEDY0MUJ_B7idEsGbbIbZB8MKlHY1R_FftCa1glRwHeZwTcunMUQj2wFBQbpUL1z3sk9IBOPZzd_8C1Le_Qc_VehzR2eh5k4ITGfw7dBCH6eL0JQwJ1KT097uq-vJ4pUANbRBPNTFl6RHencX69U9DzVlfcY3mIkNYyqh0ihdgNUBSFd-_0u3KuWcg0c4vICvzsmevamcsE2wBFELIiowz3LNfGjpU6SxkuMf9W9wOI0vxiIPmbdDF0m3KUaVcfdHBsRtKVWpx-KwnhWMakWrCwkP1-kF6puT2_rn6u74pI14w.jpg" width="400"><br>
+
+اتحادیه اروپا و شماری از کشورها، از جمله کانادا، بریتانیا و استرالیا در بیانیه‌ای مشترک، با شدیدترین لحن ادامه اعدام معترضان در ایران و سرکوب افرادی را که برای عدالت و کرامت انسانی اعتراض کرده‌اند، محکوم کرده و خواستار توقف فوری اعدام‌ها و آزادی تمامی بازداشت‌شدگان اعتراضات شدند.
+در این بیانیه که روز چهارشنبه ۲۱ مرداد منتشر شد، آمده است که استفاده از مجازات اعدام برای خاموش کردن مخالفان، ایجاد ترس در جوامع و مجازات افرادی که از حقوق بنیادین خود استفاده می‌کنند، به هیچ‌وجه قابل توجیه نیست.
+کشورهای امضا کننده تاکید کردند مردم ایران باید بتوانند بدون ترس از آزادی بیان و آزادی تجمع مسالمت‌آمیز خود استفاده کنند و از جمهوری اسلامی خواستند فورا به استفاده از مجازات اعدام پایان دهد و تمامی افرادی را که به‌صورت خودسرانه بازداشت شده‌اند آزاد کند.
+فرانسه، کانادا، آلبانی، آلمان، استرالیا، اتریش، بلژیک، قبرس، دانمارک، اسپانیا، استونی، فنلاند، ایسلند، لتونی، لیتوانی، مقدونیه شمالی، مونته‌نگرو، نیوزیلند، هلند، پرتغال، جمهوری چک، رومانی، اسلواکی، اسلوونی، سوید و بریتانیا از جمله امضاکنندگان این بیانیه هستند. نماینده عالی اتحادیه اروپا نیز به این بیانیه پیوسته است.
+در ادامه بیانیه آمده است: «مردم ایران باید آزاد باشند تا حقوق خود برای آزادی بیان و آزادی تجمع مسالمت‌آمیز را بدون ترس اعمال کنند.»
+کشورهای امضاکننده همچنین از جمهوری اسلامی خواستند صدای مردم ایران را که خواهان تغییر هستند بشنود و برای تضمین رعایت حقوق بشر، اقدامات عملی انجام دهد.
+ژان نوئل بارو، وزیر خارجه فرانسه، نیز با انتشار این بیانیه در شبکه اجتماعی ایکس نوشت که هفت ماه پس از «جنایت‌های گسترده» علیه مردم ایران که برای عدالت و کرامت انسانی به خیابان‌ها آمده بودند، حکومت ایران با افزایش اعدام‌ها به «ریختن خون» مردم ادامه می‌دهد.
+بارو این سرکوب را «غیرقابل‌تحمل و غیرانسانی» خواند و خواستار پاسخگو شدن عاملان آن و آزادی زندانیان سیاسی شد. او همچنین تاکید کرد مردم ایران باید بتوانند آزادانه آینده خود را تعیین کنند و حقوق بنیادین آنان محترم شمرده شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77838)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-12 18:25:53
@@ -198,7 +221,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-11 20:14:04
 
-<img src="https://cdn1.telesco.pe/file/n1HHIuzugroPcFVzSz0ptnLb2b_Ty5rCTDQKugivfgqnT_RKqpXrjW0AELE-FQSDEnq1F6S9b48VyE0jJwJP93INZygXAAE1Uhs7OigLW5kCUIHibZomZLG86_5gkTpa1yoBrEMkhjgWfHI1jo-6KEGYIH4K9Lnynh-QTupXcHIge6-NYX7-7jDF0kaNrytek1BsyiNA1bWRIIQN8ejp1ay3-HeqAPF1jiazpzhPQqBPaorAl8PUx1LbwyoCrInXeqF4R2kZdenLbV-21tDOUaNCkj-hVScJNJPWq42nkuF4VAVw_nKwN1NMw5x5WT-DXjQ91AR_cJAABc8xAJUIew.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/HQRGuP0y3FHK2TM0dAX-4K1qTSncN0dHO5KAw6-yqT6W9CTDbf5TRkPRJK9uefjgB1mgSLCkXnFNxQh8L8JjvlFVWsR6aYymBM6YwY2oDAFl9TDspW7akqJzsMGTAuqisytWPAOjvvtpudlfA5ixayQRnJYZfKlGQJWFrIsBx_PISC2uEwD5csKMlPPm0uSn02Fa5LfBZemMt7Dv36KRt_4nmn22pLyd1uNAL1wN6NI4Tsm_Yp_XTaZYV6TsLNaVTPMBrzAHuUazmy1JyC_nmztrlhM1kCW3rIaZ0ilMeCjxjMYoL6xjWa7kEifPzXM2mTsCjqz8eS1KYt2-XCryFQ.jpg" width="400"><br>
 
 ترامپ: اگر مانع دستیابی آن‌ها به سلاح هسته‌ای نشده بودم دیگران ناچار بودند رهبران جمهوری اسلامی را «آقا» خطاب کنند.
 @
@@ -231,64 +254,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77820)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-11 18:24:19
-
-<img src="https://cdn1.telesco.pe/file/DKrFbbkUdDaIJsAVZiWqeW5PFvhuV9iBssWhbWYgips7jrVGizVhitG9nGhkDSCzUhLVyryW_nqcRXRHnDCJcMzYe7DepDzeF2DhHOlZ-gjZ4PyydMCtn0oKb5VvKBjXJEKieXnPkDmIt5wpjX3zi7E5Dqej3T3HD8x7Fhk_qt7Hy3rwG7eIagRw7g4kMhwQ0S4lqij5GA6z6Ecyp5wPIBVX0AkwBlNZ4ZQEckmvr1IMQN9OeiKXzmmyQwsOytjU7YM_sPOrdWAEoyFOtttgAjP-cHOODxXTdAKpyfEYnwvuzALvvCePE3zoVOfyTkmtW1OpwzxoUwewr-S_exlY4Q.jpg" width="400"><br>
-
-خبرنگار شبکه‌های تلویزیونی العربیه و الحدث عربستان سعودی روز سه‌شنبه، ۲۰ مردادماه، گزارش داد که در پی اصابت یک موشک بالستیک  حوثی‌ها به یک کشتی تجاری در تنگه باب‌المندب، سه نفر از اعضای خدمه این کشتی کشته شدند.
-بر اساس این گزارش، قربانیان دو پاکستانی و یک تبعه اندونزی بودند. الحدث گزارش کرد این موشک از شرق استان تعز شلیک شده و کشتی تجاری را هنگام عبور از باب‌المندب هدف قرار داده است.
-این حمله در شرایطی رخ داده که تهدید علیه کشتی‌های تجاری و مسیرهای کشتیرانی در دریای سرخ و تنگه باب‌المندب همچنان ادامه دارد. باب‌المندب یکی از مهم‌ترین گذرگاه‌های دریایی جهان برای تجارت و انتقال انرژی میان دریای سرخ و اقیانوس هند است.
-همزمان، درگیری‌ها در چند جبهه یمن نیز ادامه داشته است. بر اساس گزارش «العربیه» و «الحدث»، نیروهای دولتی یمن مواضع و تجهیزات حوثی‌ها را در چندین جبهه هدف قرار داده‌اند.
-@
-VahidOOnLine
-شمار کشته‌شدگان حمله حوثی‌ها به کشتی تجاری در باب‌المندب به ۴ نفر افزایش یافت
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77819)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-11 18:22:23
-
-<img src="https://cdn1.telesco.pe/file/vho3c-ekD-3vUoii3wo3YMGjxxbR9kgjRuclQJ3SoB06_1Ui0IDNvy7q3GZNOvrka8-myqyZyFqhuS_cR_PpeOd2y7tmLLBnFUdJ3CD4xl1Npq955ZV0g7ddhL2u-jANqnuT6wlwYsqN-jmVnb-3q_ownfx7NN_zNbmLQkaJmG861d4JaM92ZFZ8Fd_sOCA6j9iC6my4pdeRbATtfqxNVDrVyvE_KqEjDF7eCB3TA-S1unGuztMvJ-CsMzEb7CiV64cT3FEl1smBEE2hBwWEF4ZKp715XeyAWhOmi-JNckOHSgU8-fqTr4lXWm0S5n_iVmRjQHDmf1hUmCdZAh5Icg.jpg" width="400"><br>
-
-یک مقام آمریکایی و منابع امنیت دریایی از هدف قرار گرفتن یک کشتی کانتینربر با پرچم پاناما در دریای عمان خبر داده‌اند؛ یک مقام آمریکایی می‌گوید این کشتی به هشدارها برای توقف توجه نکرده و در تلاش برای شکستن محاصره دریایی بنادر ایران بوده است.
-همزمان، روزنامه وال‌استریت جورنال به نقل از یک مقام آمریکایی گزارش داد که یک بالگرد نظامی ایالات متحده پس از آن‌که خدمه کشتی هشدار نیروهای مأمور اجرای محاصره بنادر ایران را نادیده گرفتند، به سکان این کشتی شلیک کرد.
-@
-VahidHeadline
-آپدیت:
-پست سنتکام ترجمه ماشین:
-اوایل امروز، نیروهای سنتکام تجهیزات هدایت کشتی
-M/V Vela Nova
-با پرچم پاناما را از کار انداختند؛ این کشتی باری در حالی که می‌کوشید از خلیج عمان عبور کند و با حرکت به‌سوی یکی از بنادر ایران، محاصره آمریکا علیه ایران را نقض کند.
-پس از آنکه خدمه غیرنظامی کشتی هشدارهای مکرر نیروهای آمریکایی را نادیده گرفتند، یک بالگرد
-MH-60
-نیروی دریایی آمریکا دو موشک هلفایر به موتورخانه
-Vela Nova
-شلیک کرد. این کشتی دیگر برخلاف محاصره آمریکا در حال حرکت به‌سوی ایران نیست؛ محاصره‌ای که همچنان به‌طور کامل برقرار است.
-تا ۱۱ اوت، سنتکام مسیر
-۵۵ کشتی تجاری
-را که می‌کوشیدند محاصره را بشکنند تغییر داده،
-۳ کشتی
-را که از دستورات تبعیت نکرده بودند از کار انداخته و وارد
-۲ کشتی
-شده است.
-نیروهای آمریکا که در خاورمیانه فعالیت می‌کنند، به‌شدت هوشیار، مرگبار و آماده‌اند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77818)
 
 ---
 
