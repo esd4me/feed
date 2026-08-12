@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-13 00:08:39 </h5>
+<h5> 🟢 Updated at: 2026-08-13 01:05:54 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-13 00:56:27
+
+
+
+خبرگزاری صدا و سیما:
+«توقف اجرای طرح عرضه بنزین با نرخ پالایشگاهی در کرمان»
+مدیر شرکت پخش فراورده های نفتی کرمان:
+🔹
+پیرو مذاکرات امشب استاندار کرمان با مقامات کشوری و نیاز به بررسی بیشتر در خصوص طرح مدیریت مصرف سوخت و مقابله با قاچاق، عرضه بنزین با نرخ آزاد پالایشگاهی در استان کرمان متوقف شد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77841)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-12 23:53:12
@@ -15,6 +33,10 @@
 به گزارش ایسنا، علی‌اصغر ذاکری‌هرندی اعلام کرد که عرضه بنزین بدون یارانه از ساعت ۲۴ چهارشنبه ۲۱ مرداد، بامداد پنجشنبه، در جایگاه‌های سوخت استان کرمان آغاز می‌شود.
 @
 VahidHeadline
+🔄
+آپدیت:
+پیش از اجرا متوقف شد
+.
 📡
 @VahidOnline
 
@@ -231,22 +253,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77822)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-11 20:14:04
-
-<img src="https://cdn1.telesco.pe/file/HQRGuP0y3FHK2TM0dAX-4K1qTSncN0dHO5KAw6-yqT6W9CTDbf5TRkPRJK9uefjgB1mgSLCkXnFNxQh8L8JjvlFVWsR6aYymBM6YwY2oDAFl9TDspW7akqJzsMGTAuqisytWPAOjvvtpudlfA5ixayQRnJYZfKlGQJWFrIsBx_PISC2uEwD5csKMlPPm0uSn02Fa5LfBZemMt7Dv36KRt_4nmn22pLyd1uNAL1wN6NI4Tsm_Yp_XTaZYV6TsLNaVTPMBrzAHuUazmy1JyC_nmztrlhM1kCW3rIaZ0ilMeCjxjMYoL6xjWa7kEifPzXM2mTsCjqz8eS1KYt2-XCryFQ.jpg" width="400"><br>
-
-ترامپ: اگر مانع دستیابی آن‌ها به سلاح هسته‌ای نشده بودم دیگران ناچار بودند رهبران جمهوری اسلامی را «آقا» خطاب کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77821)
 
 ---
 
