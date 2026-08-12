@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-12 12:32:43 </h5>
+<h5> 🟢 Updated at: 2026-08-12 14:22:23 </h5>
 </div>
 
 
@@ -223,7 +223,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-11 18:09:49
 
-<img src="https://cdn1.telesco.pe/file/vKjN3t1lA1IwgXAHSk-Om6aDvLbG0i7HP5BuVWaK3PjuwZ7kxJscD3oSldEaVEaWbjaBcBCJufXt-wBWJe1wKgCH2qqzwYs6YciAcjWGzllV5EBZM-p58Rln0uw8bjMzkubZs1u8kI6Prg4xF2zc2nitH4r4NOgRgJKQI0542VLb_NeThhwhpk8T7hfH9o-nt0f-IJbWR7i8svjMRFVGiZxtqh8H34FXq7NhmxQVcCD0HmiA3gQV4s--Wx4Xpomx_YgynJBfvKzOfkxTkm6Q98kwsma864TpXoEd7uGxP7fcixs9tyEZ83Jhn-nPruma3Gwb4vaPn4pgXnZDO3AMPQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Vbbs6fXoUTNovGevoQg9DZXylG8GdAvcgFa2oKA69uGDvmSqiZyAgPH8TYlK4h6XvsYkeRrwsk7Kzur3ETX_T69CV-B1V0zawLbaa6KX5MBBjNmFvIz41kRscDI_8mtr2YXl8Zpnq_pq7-Zxa2WVBe_eI-Oo677Y-S1pOpR0CuT3UowSfYkGoxTWJ0NFRm0Gg4TzBVOlk07UXkpWY3-yOKYv-cPTYJE__hcS-9qa1wVFtLKvSlIwUFThQBifztMlpaf4KSKa0Qh_oFQCi8E-FGbGmE0-lA4TWVOfKASD81M9xjTOVaDa3Hnch4US67ycyeltjmoIUNDrlEvVQQQerA.jpg" width="400"><br>
 
 پارلمان لبنان روز سه‌شنبه مجازات اعدام را لغو کرد و این کشور نخستین کشور جهان عرب شد که این مجازات را با حبس ابد همراه با اعمال شاقه جایگزین می‌کند.
 اکثریت نمایندگان پارلمان ۱۲۸ نفره لبنان به لغو اعدام رأی دادند.
