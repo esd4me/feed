@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-12 03:00:34 </h5>
+<h5> 🟢 Updated at: 2026-08-12 04:38:54 </h5>
 </div>
 
 
@@ -284,7 +284,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-11 04:10:45
 
-<img src="https://cdn1.telesco.pe/file/scmVS5lo5NbOjWO6f_dCHchtWKXRLe3R1l1u9ZuZk4OlXW8_ADxD7uRwSySeAw3KRm8Li-I2apvadq_JGrpmxqQEmXj7kI-WXBsHRGT5FReKS82pDHSa5wlkfmsiKR797JnKUtCAl49h8M9NnbCDlpl-nuXLvM8F7qdW1DfBVXwBLD4yh7NJ7cEjbY53TGDX7cyMpvjkIlYiLoN7pDDDmvKdxcos-1Hftxh0ZjOBTpg4b4SztJmjrgN0wbO-DPkTaHtnnaejdzyHX9Jjfq1oBcasodFcEy0mIyEleoRrkIG75v6Lcdzt9f01OUbdAGvK6e_F0ewywX5KDPlkqSCKuw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Fm0gQSiHGfQG0-6OROFhDOPBYI-sQZzrmR6FGIRcU-pWk-twzFZTWNoOzswhv0ZqlzLgQF7X_uLaUtqoe2XRpwKqLbVZWhq_bCddSuf1C-IJMWPx7zrf_RAMI86eNHDOSuKwrQBoPXi3QCJhXEEKype_zYtl_KtqDwyJWrjhLUfgY2N5eNO8WaqIAMRvpg5_PCkz0Ji7x5E2URsd-xXkVr_knztg5BPDcH6U7A0epWLIESPu_JtcKKBUomS-pgot9DlqOqBTpkQZeCynCC9I5WzbrqswcC4rueoMcVU_pXOmveIC_I1Y16DsmsCvQkEnwWOAJm49FayPryTJ5s1ZxQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا بار دیگر نموداری را که نشان می‌دهد ارزش ریال در ایران در دوره دوم ریاست جمهوری او سقوط کرده ‌است، منتشر کرد. این نمودار نشان می‌دهد که ارزش یک میلیون ریال از یک دلار و یازده سنت آمریکا به ۵۳ سنت کاهش یافته و به «داخل زباله» رفته است.
 @
