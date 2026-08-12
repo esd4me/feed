@@ -3,8 +3,29 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-12 17:44:44 </h5>
+<h5> 🟢 Updated at: 2026-08-12 19:21:29 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-12 18:25:53
+
+<img src="https://cdn1.telesco.pe/file/f7kll4cxYjrZCnikxBzZ7kr4LBypkMHZMzxcQdlzyAWDjWHmljINlb4nRPDaPKrGOoXasCHxgIL18YC5cmkW8mInazpZ7ITVGrxPb7SB0endUocxBgfSQAPwLIxTzfyh2aNoc-FZhHCnHt7HIWPunRqifCayvX_9-IxFXZKDUL9Wg6zbmc8idzRH2diQlm1qU8qQz-Nsvdn02SO2cbaDkcXPBZDiH2s2rKhQ4Q6diy2-8bfPNysN10r2vuoz-ZXjtJAGqfeje0H_7E5T8OfqqVYfSx7Muj6DE4eHefcapZ3KB8I8TBtwm12-Raz7EBZ7eHYSem1IfKZzncDUTlBXDA.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+ایالات متحده آمریکا کنترل کامل تنگه هرمز را در دست دارد. فکر می‌کنم آن را حفظ خواهیم کرد!
+محاصره دریایی ما را همه «دیوار فولادین» می‌نامند و ایران هیچ کاری نمی‌تواند در برابر آن انجام دهد. آنها نیروی دریایی ندارند، نیروی هوایی ندارند، سربازان باقی‌مانده‌شان حقوق نگرفته‌اند، سپاه پاسداران به‌شدت تضعیف شده و در حال فرار است، و «رهبری» آنها، در بهترین حالت، نامطمئن است!
+آنها هیچ پولی ندارند — کشورشان «از پا درآمده» است. تنها چیزی که دارند اخبار جعلی و تورم ۳۰۰ درصدی است، که دارد بدتر هم می‌شود!
+ایران فقط حرف می‌زند و هیچ اقدامی نمی‌کند؛ دیگر قلدر خاورمیانه نیست. الحمدالله!
+رئیس‌جمهور دونالد جی. ترامپ
+The U.S.A. has total control over the Strait of Hormuz. I THINK WE WILL KEEP IT! Our Naval Blockade is being called, by everyone, “A WALL OF STEEL,” and there is nothing Iran can do about it. They have no Navy, they have no Air Force, their remaining soldiers are unpaid, the IRGC is decimated and fleeing, and their “Leadership” is uncertain, at best! They have No Money - Their country is “shot.” All they have is FAKE NEWS and 300% INFLATION, and getting worse! Iran is all talk and no action, the Bully of the Middle East No Longer. Praise be to Allah! President DONALD J. TRUMP
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77837)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-12 16:50:46
@@ -217,7 +238,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-11 18:24:19
 
-<img src="https://cdn1.telesco.pe/file/oiii3bCreJSf_SOaGho4VFzfpfSbiZGhEvt0Jg6pQlamebKkMRTyhfLMNz2He1nEs0852sdY70VZkU9pEkZwLgV2dOoDrG25Tr1_LP3Gm4pfis7iNdzTgsnM55TSCWwUswBx8D72ucAvVAxhUJtIDQ8n5K_F24ZxBWTj8aadyOjrGWJGTcqxcC9DqHBwlmZijTZwuGDGklzcTtL4l9CYoch5CBmZrdbbBSEWQZwTIFlhCxMLoy7-eZbIuWNi1JP3PdIrBjnU24L0Jh_H5xVFbxtXc79Ymny2R02EmOYgsbbcTnnCu_rW4pY6Fc3ltUZ7_ZeXfb1Sk10RAd6Kj8eP0Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/DKrFbbkUdDaIJsAVZiWqeW5PFvhuV9iBssWhbWYgips7jrVGizVhitG9nGhkDSCzUhLVyryW_nqcRXRHnDCJcMzYe7DepDzeF2DhHOlZ-gjZ4PyydMCtn0oKb5VvKBjXJEKieXnPkDmIt5wpjX3zi7E5Dqej3T3HD8x7Fhk_qt7Hy3rwG7eIagRw7g4kMhwQ0S4lqij5GA6z6Ecyp5wPIBVX0AkwBlNZ4ZQEckmvr1IMQN9OeiKXzmmyQwsOytjU7YM_sPOrdWAEoyFOtttgAjP-cHOODxXTdAKpyfEYnwvuzALvvCePE3zoVOfyTkmtW1OpwzxoUwewr-S_exlY4Q.jpg" width="400"><br>
 
 خبرنگار شبکه‌های تلویزیونی العربیه و الحدث عربستان سعودی روز سه‌شنبه، ۲۰ مردادماه، گزارش داد که در پی اصابت یک موشک بالستیک  حوثی‌ها به یک کشتی تجاری در تنگه باب‌المندب، سه نفر از اعضای خدمه این کشتی کشته شدند.
 بر اساس این گزارش، قربانیان دو پاکستانی و یک تبعه اندونزی بودند. الحدث گزارش کرد این موشک از شرق استان تعز شلیک شده و کشتی تجاری را هنگام عبور از باب‌المندب هدف قرار داده است.
@@ -268,33 +289,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77818)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-11 18:19:24
-
-<img src="https://cdn1.telesco.pe/file/fY24RNnv5j7H-r1Rj39XIy6VkFRLFPU97ji-d4NAwcx9HfFBgVmhmCFkdtdklDtoDSCyfo-I8OMB0rObqMcuPrQ8qTTiAjR9O_vXTxfJwcAtT16r_ahJNxiVC8trwRrRuZNHAl6tB7D3yAIq9-GKKheNZhv1Js_Q7RU7eX1SBRNIlHYeasWs8zlLYgtzklB8PVOGhy83sgll6bl5ELx6R58su-byh-kLnsFiDUS96FY_gdGtKu1ktyEo0F5K8pxkxCfQS8WwzC_gqBqdtML4WFC-8lPxMaFCXYSe4UiGCsEOkyeRqicy83KRxuzfteUok6v5Vztk4El5Q53ndAaGpA.jpg" width="400"><br>
-
-محسن نقوی وزیر کشور پاکستان، پس از ورود به تهران در عصر سه‌شنبه ۲۰ مرداد ماه با عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران دیدار کرد. محسن نقوی پیش از دیدار با عراقچی، در تهران مورد استقبال اسکندر مومنی، وزیر کشور قرار گرفته بود.
-@
-VahidOOnLine
-وزیر دفاع پاکستان می‌گوید ایران و ایالات متحده به «شکلی از توافق» نزدیک شده‌‌اند.
-خواجه محمد آصف این موضوع را در قالب گفت‌وگویی با بلومبرگ، که روز سه‌شنبه ۲۰ مردادماه منتشر شد، عنوان کرد.
-این مقام بلندپایۀ پاکستانی گفت: «روند تحولات جاری، بار دیگر به سمت‌وسوی یک توافق یا تفاهم صلح شکل گرفته است».
-وزیر دفاع پاکستان تأکید کرد که «نشانه‌های مشاهده‌شده طی دو، سه روز اخیر حاکی از نزدیک‌شدن به نوعی توافق هستند».
-هم‌زمان خبرگزاری ایسنا می‌نویسد که محسن نقوی، وزیر کشور پاکستان، «در چارچوب تعاملات دو جانبه و میزبانی اسکندر مومنی وزیر کشور» عصر سه‌شنبه وارد تهران شده است.
-@
-VahidHeadline
-همزمان با ادامه تنش‌ها در تنگه هرمز، سخنگوی وزارت امور خارجه قطر روز سه‌شنبه ۲۰ مردادماه اعلام کرد که مذاکرات میان تهران و مسقط برای آینده کشتیرانی در این آبراه راهبردی بین‌المللی، به مرحله «پیشرفته» رسیده است.
-به گزارش العربیه، سخنگوی وزارت خارجه قطر با اعلام این خبر گفت پاسخ‌های مثبتی از تهران دریافت شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77816)
 
 ---
 
