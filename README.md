@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-13 23:21:25 </h5>
+<h5> 🟢 Updated at: 2026-08-14 00:01:43 </h5>
 </div>
 
 
@@ -126,7 +126,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-12 23:53:12
 
-<img src="https://cdn1.telesco.pe/file/sI-SCDey-3unSSPSJ-r3ZAoebRuFU2lfQXLK-KX096CNn0cbFbQ4s01UZwnv7XCaulrraTcP4CISQgmu2EKPWlyAM40IZ7ZLiHc3C7akBHYcOJTTAGWGX_bX02pW6gW_LLy4SA_j5vJ9b8zFwgx1yr1bcYromVI5MgBK00lXhmQvfK0jQM4c_779aU30gz-21KqbeUwdCID8RDQgSUCSHIZq5jMksCubs9ug1L9FiTZ1VB5dwb69OJ_POImDUL1U6zPVPeBQWc_aTF3PazFVvTbl7m1ZjQtT_dA4SjteL0ZL6sCD8XQhlD-OBK3WnJjgo8uZlPCtF0qCMRkBDTaswQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/STRO8bAVf5l0CWpbE5ffFmgMseQxK2l76zE9kXaPGZQ4h-CTAqexc2GdPpKRD7Hb_X9EG-yq19BDqTq1pMmipx8pAYswtD9-ylRfiXd6XXVPwm7Qg6uymLGgk5hjczq7BKr9cBeCm1SCpYPAOu5o65f-ugbTk7roTTRD7vKY_DC6jNGbxIUyaGaDrbwR7uxdMtczG4HMW4GcrQqKfCu2wzWY5STOvtrk_-A_D4rYyV65HULhvVw-hfZWcDvwsD0_j3iIlaihznotNX4n9eF77Q7lprNQwD1WKsl_NkrKVv0SfVkBmVLKT4pJfVjaTVTN5vSg648sCwA3Day_J0M9hg.jpg" width="400"><br>
 
 معاون هماهنگی امور عمرانی استاندار کرمان از آغاز عرضه بنزین با نرخ تمام‌شده پالایشگاهی، هر لیتر ۸۷ هزار و ۲۰۰ تومان، در ۲۰۴ جایگاه سوخت این استان خبر داد.
 به گزارش ایسنا، علی‌اصغر ذاکری‌هرندی اعلام کرد که عرضه بنزین بدون یارانه از ساعت ۲۴ چهارشنبه ۲۱ مرداد، بامداد پنجشنبه، در جایگاه‌های سوخت استان کرمان آغاز می‌شود.
