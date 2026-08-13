@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-13 16:18:03 </h5>
+<h5> 🟢 Updated at: 2026-08-13 17:46:24 </h5>
 </div>
 
 
@@ -110,7 +110,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-12 16:41:02
 
-<img src="https://cdn1.telesco.pe/file/Ry1XmvwqybXnFpK2cl7JrY1q_F2S-T2gTwSixCG6xJNqnM4jZsADOoZxgXKAozkTjmaalNC8IeMYHfBocmD4TVbgLOwrx8V86k3oddvCKz_fVOtnRQdmRh8hsGE7qYkLeZan2i50aU05KQY9VVWY-iHufQIsItQXkduvq3k0i5d-9h-8ryot-W91IFjDcYwyOMa-NxiqBw-yZ4xIz_A8cjJWRpv8JH2_MxZ0yW5E9Zf-eNYGtZfm7tchmQz1b0MB4FpS8W6MnbbBC_BOpOPVRjRiqHZ3Yz-bJVzBSpV3u7pwa2BrRjYvI5xL63tQGvrG4kdweW6WMg3geKKw1XQJyg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/cHYzDyubFOGLd9dhDnKNEbxSNl9vqdEmBDChKTPwR9n8Pu953BXVw-5mrMdEvVb6W3hc6TltZ6TxJBMbqsa4iYA1KSbgXNcY_FKyqsSEgem6_A57wGzAMYBa6TvVkhFnbLdijFPvGD07EPC18vshxnvKC-ilahOZ6QAVQSogpe1NTYdneCe2HbBL115t7EBtjbSu5D8VrZVQvRR0ncmpizWXJ5f6GvffWpA5-64YruqQNF_XecherWBYxSbkftyRO79PCW18XFSIaFQdA79n9dHGxWlUaBr7sPS2W7o83PTl_Bd41YeLM351dKlKNpAtXFwPh7hiXodUduYbVvFaOw.jpg" width="400"><br>
 
 وزیر بهداشت جمهوری اسلامی می‌گوید هند در واکنش به انسداد تنگه هرمز توسط جمهوری اسلامی، حتی در طول جنگ یک کشتی مواد اولیه تولید دارو نیز به ایران ارسال نکرد.
 محمدرضا ظفرقندی در ادامه تصریح کرد هند ارسال مواد دارویی به ایران را مشروط به عبور کشتی‌های مرتبط با هند از تنگه هرمز کرده بود.
@@ -127,7 +127,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-12 16:39:55
 
-<img src="https://cdn1.telesco.pe/file/daGO0Dek0SnFx0X1cEQRPC62EEoB0hX6gOKOA76iIylSRKGkD4BxWuadnomSGHB_ves_84juMk4gfBvga9CtskvWfZepMXy255xEjgDBbiHm3GGG8BSAW5wHCBkSkOHUeBcchBlqQm1b3MiHdt3LVncoiTSsIDUbdXC5RLlThyY1Em5OWCA_IZKNJVICmKA9VvjShUUd6IXVhEMHwawH4eSNGcRExE7kHfrI86Y0D8sUpy8vF84JxZCcY2dKprj45MeQsLtKuMGIKLnx15hIACi48jRGwTt9kzqY8F7D95W9hONOPs5A239ib0Dm2xx-LPYhmGAhDJF1nNFU8iwrcA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XQGj7RWPkwioYsk2K3XH64rfw15ne6bnHcQr5WY1zQYNJIuRYeThFctlVaYFVXVa3Yg-fGn7Lws-Fn_MPQRigrKCXsuapRSdal41Dwrg99bHK-qkH-OYLrn0SIBFjm-8CENKPMDy_-EavHDypJ0tU54L2iHg5Tbc3fvY30Q-0sVBaI502Pmyq8rVVitfz78VhTDN4YYyIFWO0HQRXzdY--w_P1-ZJZS4A1XmhSHxerhs34t3ZmMKquKjjkZ5mOPUtflOeaJcDXmexthCwHa8NdWmsjSy6OtzQFiqWotYE95-q4wVM39zdzWkGvqPgCgDWWEDPIBtVA4OPlkcOJ3WZw.jpg" width="400"><br>
 
 یک هواپیمای مسافربری پهن‌پیکر چینی، قرار است روز چهارشنبه ۲۱ مرداد اولین پرواز تجاری بین‌المللی خود را انجام دهد.
 این جت جدید که به عنوان پاسخ چین به هواپیماهای مسافربری بزرگ بوئینگ یا ایرباس معرفی شده است، کوماک سی‌ - ۹۱۹ نام دارد.
@@ -148,7 +148,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-12 16:38:53
 
-<img src="https://cdn1.telesco.pe/file/sJTofWgA3cmGxSxkUxxRzNTWG86y8pbohqeN21lnHm1orEAqdoatyqdz3prd1-XZuesO0CwUh99KFi5Us-MOXhhM7VdDH9sekfatDBQ17qR2ZhNU3GIzGvwSkBOm3yFi-2M01kxF1NZ23G3nmge25jFlNzJy3gqyzN8xZkhjAf3yKtCcH4fJWjM7R2EJQdmC78vCPQZOTgPGPbh8HOPULY7UDdpeLMPAZVnAmqXqWRLVkK5cmlQgw98sKECBOZFYhHPBgAMu_yEYADQB17sU0OWWhV8LCj1ODEmTw2AHu45EHrHF_yBZqoP8aeobWzofT35YvmbnHd1H-LeDh_q-jA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/A3Mu-aungiOcCnLYxkB7PLo0ZjGnZLrXDtOLlEVT9aftmiOhYMOUQT8IJn3tW7cVccuLdrb-nNDAaDwcSUyrLXBU1tZpZdeLhBPyV3AAH2eWLV3hRSurzAj5lfVHgXIJGr0gXGhFtlB3VQSiP8uGxnf6YoVud6hWeD2AieJRfTgtK2G3RXkq1KAWMKLH2jzyKV_Bc7U12TWSRTD_J1dkL5UZ1c7_iB7XgZDxFeFmFRMyrgJSL0rIx9-LboWzTxWUEPYjVqkO6ZguDdvNsZb3bsIFXZ5n5FO6rH6z1h-cVObAl_jmCr9OEil3WZS6GbEeF8dUF3pW4sPLMAR3qnuBAg.jpg" width="400"><br>
 
 آلودگی نفتی مشاهده‌شده در سواحل جنوبی جزیره قشم به محدوده جنگل‌های حرای روستای «نقاشه» گسترش یافته است.
 خبرگزاری ایرنا روز چهارشنبه ۲۱ مرداد گزارش داد بخشی از لکه‌های نفتی وارد محدوده این جنگل‌ها شده و عملیات پایش و پاک‌سازی با هدف جلوگیری از گسترش بیشتر آلودگی آغاز شده است.
@@ -175,7 +175,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-12 16:38:14
 
-<img src="https://cdn4.telesco.pe/file/hA4j1qjvNaaC-s2UoeUhFOs4AOsxFEXFrl514gjqzmPIwZhHUWldgWuWZU_RFrseVzzQAiIdBPxZ4lU7M-bye6AtRqyg1XyT4HwJQgpl5L6riPDGlFe435wy61JvZ2YYDNF6v0W5ov2tV6S7ngzn_fq8hCeqlQiUvjB9zLyooHAij9m3PnDNQT8uwIw3wlMRAOR14fw0aLuuqGRAPpgB0av296FPqGQXgCmepTgKCdj99MWBi7q00QwwPuq2LOS3D5bfUKUl91gzadx72077Rv_VnMLU5-LZ5V0CHoMRBGW2JYizTsfbNrZZjRWlYE-x_2z1Kzrg4NQkiGorAiWWUg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/uPMjpnmvQxxd1Oe9gMawYjL7h3DRi_jchb4QbCInwevwJh7KAuPHUVSzUGFXS3KSfuN-DtnW3Pa_OgddQuSTD87sJFcPPiKZBwIoL0nbApshxY8lMx7Rxh9TtGlbyklv0CnJFqffmvAfaJQgIGWTSNQImW86uTfusQsppWOj7HglboIM06tPDHKMED2sBkFqJj-yFHdZCXd5oz_aFhEFJW9foxwDTk4tzVApReTU6iroHceVO6b5-bs7Su2icSB5oOn6StsQPQg2-bwlA_TAVEw_blrKO3cP1XIH6LxkwPBtmJoEnTEK9UEFQsnvFIPpmQXHU8vu8dEZH4wEtBAU3Q.jpg" width="400"><br>
 
 🔴
 جمهوری اسلامی ایران از ابتدای سال ۲۰۲۶ تاکنون دست‌کم ۹۱۶ حکم اعدام را به اجرا درآورده که از این تعداد، ۱۵ مورد در ماه اوت رخ داده است. شمار واقعی اعدام‌ها احتمالاً به‌مراتب بیشتر است؛ چرا که حکومت ایران برای جلوگیری از افشاگری، نظارت بین‌المللی و واکنش افکار عمومی، آمار واقعی اجرای اعدام‌ها را پنهان می‌کند.
