@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-14 02:02:01 </h5>
+<h5> 🟢 Updated at: 2026-08-14 03:01:53 </h5>
 </div>
 
 
@@ -128,7 +128,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-13 00:56:27
 
-<img src="https://cdn1.telesco.pe/file/syaTOdCbX9V3a3BGL05An-KQCFqZqMpgmZQDRXOhMo-b7l_B_CFnPmDmJYQnSAAXJdoB8HzjrpMW4bym9-8F23MjfUWmeR549bdLHJ3dSkp58ZaE0X0muk5fBLXn0970qDNy4hgui-t2PPF5Qc47HJo53Z8okXnQkbL7aFgtjEoTXKYeclqR6l7XQXk4638210dY3HKUH-H9z_uuQSfjoP_jb4vzXICUXWg_TJzGtNQjYg2fcLp1W1LIGncUz0gSO0uzIviDM1SdMls_AKljVkZS1bD-YBmkA9uCcbeL5v8iOK4QNdSozna5jvr4mUy2XQUZ0Bv-bmU8QZF5uUwf9A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/t-AXrr2TMQ6Yn1eR0Bynocfhuimk9pgjp2sNmQK4cf2WfaVSh8jmU453cunnPJlINr3Rf4u7zQMr4ht3ilRVg1LdAxbMUxqpDopK4ygc8X-nUt5RTSKFxXtubmdf4F9TvhiXrZ6kcAQl1GwL3Ng13BAcal3w0yamC1AmGDSgXN4zlqxG6IutgAmtd_c6Xyfncebg00UOdkC2ub_xxD3GEtEeznivGpTnu0p7nBCfdH5mDtYZwKfG2XVQST_CLadMoXCZXKKqAaDgacrxwiVR-3Xm6A3FByaadf3jnDVxl8hfa7ca_dBFJQO5zDiupdrxq2D7VxNzYVFIiLnaRaXpig.jpg" width="400"><br>
 
 خبرگزاری صدا و سیما:
 «توقف اجرای طرح عرضه بنزین با نرخ پالایشگاهی در کرمان»
