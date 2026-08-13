@@ -3,15 +3,21 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-14 01:05:18 </h5>
+<h5> 🟢 Updated at: 2026-08-14 02:02:01 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-08-14 00:56:38
 
-
+<img src="https://cdn1.telesco.pe/file/vCyhu06emU3YTQ8Gz-bkQBdMj_soXj6P79SJRfvUvwwSkiD5HFUzzjJu1pwlLovAVm1QeHeRd5mNlCffeUvixX6sg1iJ2MyRk9Mw7VncXn72fuXF3OAtdVcnR3yl7PwycXnusdY385QjIRGWaWMyn4QX2BfN9CjRex_KsbUIAYo2-viakvCMQl7TDM25jIqgv0s4J0RzH3IL7e0tjKy7XXz0DOn0nt0WwQRTggThHr84y6rhNA6kcUJmricuGwe2QX6DYFW4yS3RE6IwBHUcuYBlmiDekI-_h-cABdloWk51Mo7u8Nn2xGZS_V2UpcpcZANPrWk4q1a3Mxp8I57P6g.jpg" width="400"><br>
 
 در پیام‌ها از زمین‌لرزه حوالی اندیمشک و دزفول در شمال استان خوزستان خبر می‌دن.
+آپدیت:
+تصویر و پیام دریافتی:
+بزرگی زلزله: ۴.۵
+حسينيه، خوزستان
+عمق: ۸ کیلومتر
+زمان زلزله: ۱۴۰۵/۰۵/۲۳ ۰۰:۵۳:۴۷.۹
 📡
 @VahidOnline
 
