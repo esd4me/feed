@@ -3,8 +3,22 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-14 00:01:43 </h5>
+<h5> 🟢 Updated at: 2026-08-14 01:05:18 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-14 00:56:38
+
+
+
+در پیام‌ها از زمین‌لرزه حوالی اندیمشک و دزفول در شمال استان خوزستان خبر می‌دن.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77855)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-13 21:44:15
@@ -202,23 +216,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77836)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-12 16:41:02
-
-<img src="https://cdn1.telesco.pe/file/cHYzDyubFOGLd9dhDnKNEbxSNl9vqdEmBDChKTPwR9n8Pu953BXVw-5mrMdEvVb6W3hc6TltZ6TxJBMbqsa4iYA1KSbgXNcY_FKyqsSEgem6_A57wGzAMYBa6TvVkhFnbLdijFPvGD07EPC18vshxnvKC-ilahOZ6QAVQSogpe1NTYdneCe2HbBL115t7EBtjbSu5D8VrZVQvRR0ncmpizWXJ5f6GvffWpA5-64YruqQNF_XecherWBYxSbkftyRO79PCW18XFSIaFQdA79n9dHGxWlUaBr7sPS2W7o83PTl_Bd41YeLM351dKlKNpAtXFwPh7hiXodUduYbVvFaOw.jpg" width="400"><br>
-
-وزیر بهداشت جمهوری اسلامی می‌گوید هند در واکنش به انسداد تنگه هرمز توسط جمهوری اسلامی، حتی در طول جنگ یک کشتی مواد اولیه تولید دارو نیز به ایران ارسال نکرد.
-محمدرضا ظفرقندی در ادامه تصریح کرد هند ارسال مواد دارویی به ایران را مشروط به عبور کشتی‌های مرتبط با هند از تنگه هرمز کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77835)
 
 ---
 
