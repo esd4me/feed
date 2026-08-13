@@ -3,8 +3,29 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-13 19:21:09 </h5>
+<h5> 🟢 Updated at: 2026-08-13 20:15:40 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-13 19:26:25
+
+<img src="https://cdn1.telesco.pe/file/d6GxdomVZF3FUq8Fn8xvSJtGisKwKe-TGmWaAvXb49U_VFCFU4V_oN4xrSelb300-6zpgG4miFS4gufEzBQsH209yqiIRCroIhLaEyenv9ZNr_fg8OlV2vFZk8tWYvHpYZli0tecA_D5MoSEwBeiLpQvQXe9sLnAznN6hNBYnwzp3IGO4Fty1CJfDwKdUSum7kdaeDESw2MG0iXkJP0zrSRZUbeWzJBGx8Uw2IKpSaiQ3r-q_gO11B6-05hhrP0MZWmzRd1Hou7MYIlovz3WLhwBYsZgT6LqwSqPqG3J0ULz02Up0S7-kfeGqMWA7_9IUX1FfLf1EqajJlQvxHH24Q.jpg" width="400"><br>
+
+وزیر جنگ آمریکا، روز پنج‌شنبه گفت ارتش آمریکا می‌تواند محاصره بنادر ایران را تا هر زمان که لازم باشد حفظ کند.
+پیت هگست به خبرنگاران گفت: «نیروی دریایی آمریکا می‌تواند چنین محاصره‌ای را برای مدت نامحدود حفظ کند، زیرا همان‌طور که تاکنون انجام داده‌ایم، کشتی‌ها را به‌صورت چرخشی جایگزین خواهیم کرد و به این کار ادامه خواهیم داد.»
+همزمان وال‌استریت ژورنال نیز گزارش داد آمریکا یک ناو هواپیمابر دیگر به خاورمیانه اعزام می‌کند.
+@
+VahidOOnLine
+گذر ناوگروه جورج واشنگتن از تنگه سنگاپور به سمت غرب و ورود به اقیانوس هند که احتمال جایگزینی ناوگروه آبراهام لینکلن مستقر در خاورمیانه را با این ناوگروه بالا می برد.
+رزمناو کلاس تایکندروگای Robert Smalls و ناوشکن کلاس آرلی برک Shoup اعضای دیگر این ناوگروه هستند.
+mhmiranusa
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77851)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-13 18:23:22
@@ -83,7 +104,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-12 20:20:40
 
-<img src="https://cdn1.telesco.pe/file/dDs1AAwGL6Vyb-5DLjsyhZ2BttyOYD1aVJiTIpuqlEDY0MUJ_B7idEsGbbIbZB8MKlHY1R_FftCa1glRwHeZwTcunMUQj2wFBQbpUL1z3sk9IBOPZzd_8C1Le_Qc_VehzR2eh5k4ITGfw7dBCH6eL0JQwJ1KT097uq-vJ4pUANbRBPNTFl6RHencX69U9DzVlfcY3mIkNYyqh0ihdgNUBSFd-_0u3KuWcg0c4vICvzsmevamcsE2wBFELIiowz3LNfGjpU6SxkuMf9W9wOI0vxiIPmbdDF0m3KUaVcfdHBsRtKVWpx-KwnhWMakWrCwkP1-kF6puT2_rn6u74pI14w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jGsoKS8h4O5ySsqzglMLFWdbK-OXj3VThCdxG0Sotgc_5fDU57ithg9CR1iGNkEFHaG_EJ8aagoWtbSMwjUoi34206fCDFI7fK4F-T6gfD9Yi8FUrUBt3uG_vv_Gqc5Zgd3LUTsEhAakLl1YzlCXbAJBIiSV7fmE4D3LT4Ozt0nH4nIqGCAjGemgndkgo0iW267-XBFMuM7eFJQBIpbqICMG5pUjLYxvADGjOPpQId2PsFBYos9219pS2Y3rU28Jfl9UBVzkHZtlfDvHzSx3CM5hqA-J8aKKAOknnX_YS24wp-3dal1iEDznW8kMwTVoqf-wvgg7UND540vOAItEPQ.jpg" width="400"><br>
 
 اتحادیه اروپا و شماری از کشورها، از جمله کانادا، بریتانیا و استرالیا در بیانیه‌ای مشترک، با شدیدترین لحن ادامه اعدام معترضان در ایران و سرکوب افرادی را که برای عدالت و کرامت انسانی اعتراض کرده‌اند، محکوم کرده و خواستار توقف فوری اعدام‌ها و آزادی تمامی بازداشت‌شدگان اعتراضات شدند.
 در این بیانیه که روز چهارشنبه ۲۱ مرداد منتشر شد، آمده است که استفاده از مجازات اعدام برای خاموش کردن مخالفان، ایجاد ترس در جوامع و مجازات افرادی که از حقوق بنیادین خود استفاده می‌کنند، به هیچ‌وجه قابل توجیه نیست.
