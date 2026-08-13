@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-13 07:31:11 </h5>
+<h5> 🟢 Updated at: 2026-08-13 09:39:41 </h5>
 </div>
 
 
@@ -194,7 +194,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-12 08:02:18
 
-<img src="https://cdn1.telesco.pe/file/RJCs5206ggbDN6xotl_gzkiJ8Y3xsv4ES5Wn7urVB15KB1tHs2mfJgjNvb9yDIvjTC5l-RvW0IvCCYSQ__A7P-oZnUZzP1ZBbZNojSXpKe3DHiYnTbTE7R0ejESIRdSgdcA9gkB9C7Wod0K9VNhJpUjNcCKX0Eus-yfVsqZ3VhPGBwYuqvD4EObB109NU1m2fbsVvIy9KKh2gQERvG0qmv_1EQb2ePxoDlgO8NJHiQ-kSypldpOgTPYfkzHDOka_d_LtV4vj8WiQfcd86PdVjskQVYjqV1GX6rnoEpIBU-_dcoVl8nMhOpOgJ8UUhAToZa97b5OgdYYKSYPt-d2Nnw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mMW9OO1g1fA67q9h2wzReE19XbWcO1gOLnRoxJ-zXAAQ_3QPj7yFbxtK4sz7MUTeWSdj4US_d39aXU9dxQWdUGQKrb4ac-dN2VpOgn4Gp2zjuQLIcrFUXYRzpBVPB7A_PB20awpHB8FCtWhW26CMJ53UvF4nqtAaZsWqEvw8lQg7gG5MfWSc7g-BJviF5kc0nOUY93aY4FIyBbqg79FaMJWWS3PfLJml5riPNq3i4zbMeYAkka2s7OuS7VTrunCmoXo-nFjevXfedVtpObDZs11zbRb7dEZljdDEjAZW6FB4bZOHSq5rE-zqhXmlgbV-4RNVQHYlXknI1AjT1ZCOpw.jpg" width="400"><br>
 
 اظهارات علنی متناقض؛ ترامپ در پی تهدید ایران، مخفیانه با پروازی دیگر از ترکیه خارج شد  ترجمه ماشین: واشنگتن‌پست دریافته است که تهدید ایران به ترور دونالد ترامپ، رئیس‌جمهور آمریکا، ماه گذشته باعث اجرای عملیاتی فوق‌العاده شد که طی آن ترامپ به‌طور مخفیانه با…
 
