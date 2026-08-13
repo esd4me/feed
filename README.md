@@ -3,8 +3,43 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-13 17:46:24 </h5>
+<h5> 🟢 Updated at: 2026-08-13 19:21:09 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-13 18:23:22
+
+<img src="https://cdn1.telesco.pe/file/T93uf9-cWYxG2uLGws8sljc6Jd7G_4PPWwKJpYY7n-5fZfaK07oOb9ljBykuKHGLVBoS47vaW54azcoboJ6vqdKJAEizox6gRRh4PrjymVqCVN0KIyKj0H5NswquKu5tZdiw1WTd4a8sQOY5521EbJlQf4ojMkNmQ7QuWesKYyezKdT4ZEIe6GtSpObBfMVS1L1syUJnluGEI-LGyW5cmibA3BCh1Wxlm2KxOBHPd03JYD0yaHUFmhQGa7qBdIIoX4JT8Ua6fQeKTbgHjTO4ckNmLkYogJkH7xMxg7tBAqV-6GzmQBoFU4lFWx5GWPDYkolHBx3mqGcdRO4T2TPwRw.jpg" width="400"><br>
+
+محمد مخبر، مشاور مجتبی خامنه‌ای، روز پنجشنبه ۲۲ مردادماه در شبکه اجتماعی ایکس نوشت که «راهبرد قطعی رهبری» در صورت تحقق نیافتن شرایط ایران، تهاجمی شدن جنگ است و این راهبرد «معادلات قدرت را در جهان دگرگون می‌کند».
+مشاور رهبر جمهوری اسلامی در ادامه ادعا کرد آمریکا در محافظت از متحدانش در خلیج فارس ناتوان بوده است. او اجرای «سازوکار اقتصادی-امنیتی هرمز» مستقل از تضمین نظامی واشینگتن را پایدارترین راه برای ایجاد نظم جدید در منطقه دانست.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77850)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-13 18:23:07
+
+<img src="https://cdn4.telesco.pe/file/CDB32kKkbRoBPY9FPau0iQ-1baFPf2eJ9hHqnVeWFzP1hfd9616itih0qYfC07JXq7QcaIu2U-tq9Zfx-v2a5OOYjL6RIiOC0If6ojJSBNrrFNUz-dJ6hqpf3aq0IuOsRsHxR9OYcm7kHehKD1bl7NxBBsjFeGSaIlk1NZReRcUjL9lde987RwLwplpBbaHuf4wlV05s48BHFEwSmoqSrcB35zTx2dTr2V-5gp8qEyBQMIMJiX0wOuUeZdgh6UB5FOaIpYGQkDX9_9zgur-JF9jhAPYJjFaz90fnvwBII9DZ5iJbvESmAQmy9P-wgVmd0YJyPR3QwWexbOQ_jOGGWw.jpg" width="400"><br>
+
+🔴
+شلاق مجازاتی بی‌رحمانه، غیرانسانی و تحقیرآمیز است که طبق قوانین بین‌المللی به‌طور قاطع ممنوع شده است. با این حال، جمهوری اسلامی سال‌هاست از شلاق استفاده می‌کند؛ نه‌تنها برای جرایم عادی، بلکه به‌عنوان ابزاری قضایی برای سرکوب معترضان، زندانیان سیاسی، زنان، هنرمندان و مدافعان حقوق بشر؛ ابزاری که هدف آن نه‌فقط وارد کردن درد جسمانی، بلکه تحقیر، ساکت کردن و بازداشتن افراد از مخالفت و اعتراض در آینده است.
+🔸
+بنیاد برومند پس از اعتراضات «زن، زندگی، آزادی» دست‌کم ۱۷۳ مورد مجازات شلاق مرتبط با اعتراضات را ثبت کرده است و در پی اعتراضات دی ماه ۱۴۰۴ نیز در حال مستندسازی همین الگوست.
+🔸
+از آنجا که روند رسیدگی قضایی شفاف نیست و بسیاری از قربانیان و بازماندگان تمایلی به گزارش چنین مجازات عمیقاً تحقیرآمیزی ندارند، مستندسازی ابعاد واقعی استفاده دستگاه قضایی از شلاق همچنان دشوار است. با این حال، این کار برای آشکار کردن الگوهای سرکوب حکومت، حفظ شواهد برای پاسخ‌گو کردن عاملان و به چالش کشیدن استفاده جمهوری اسلامی از شکنجه، اهمیت حیاتی دارد.
+@IranRights
+
+[View Post](https://t.me/VahidOnline/77842)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-13 00:56:27
@@ -71,7 +106,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-12 18:25:53
 
-<img src="https://cdn1.telesco.pe/file/f7kll4cxYjrZCnikxBzZ7kr4LBypkMHZMzxcQdlzyAWDjWHmljINlb4nRPDaPKrGOoXasCHxgIL18YC5cmkW8mInazpZ7ITVGrxPb7SB0endUocxBgfSQAPwLIxTzfyh2aNoc-FZhHCnHt7HIWPunRqifCayvX_9-IxFXZKDUL9Wg6zbmc8idzRH2diQlm1qU8qQz-Nsvdn02SO2cbaDkcXPBZDiH2s2rKhQ4Q6diy2-8bfPNysN10r2vuoz-ZXjtJAGqfeje0H_7E5T8OfqqVYfSx7Muj6DE4eHefcapZ3KB8I8TBtwm12-Raz7EBZ7eHYSem1IfKZzncDUTlBXDA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/uxrb-mhEl4_tv-wpVB99vzDJcUHRwpVjuc8d30dWFpxmygnPIpikOJ1ovl_M5q0LZi9VKecze8aVh5bdlkV4Ub4pe_3jKTJrwy-hXv7k2G6g0tdV7ccFiblWhURXyVyaofQ4LOuz1598Ml_KCBBsaoXZ1_sJGkxLMb4fDZdAy_iJK7PpfCyFhyNIsCndF_HflNphPmH4Mku7woPKg0Dz7n0SSrT0OaUn3U3l-JMoidZLSZDMeq-_XoaaXN8fDx-zO9sIwv-iyu1TKWb0CmT1whLCYFYzj8k9mIychtinFFoJUuUEGsFNmPF7NZk_BQbpSgVliPU8OlfOaeYQyaUIZA.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 ایالات متحده آمریکا کنترل کامل تنگه هرمز را در دست دارد. فکر می‌کنم آن را حفظ خواهیم کرد!
@@ -168,91 +203,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77828)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-12 16:38:14
-
-<img src="https://cdn4.telesco.pe/file/uPMjpnmvQxxd1Oe9gMawYjL7h3DRi_jchb4QbCInwevwJh7KAuPHUVSzUGFXS3KSfuN-DtnW3Pa_OgddQuSTD87sJFcPPiKZBwIoL0nbApshxY8lMx7Rxh9TtGlbyklv0CnJFqffmvAfaJQgIGWTSNQImW86uTfusQsppWOj7HglboIM06tPDHKMED2sBkFqJj-yFHdZCXd5oz_aFhEFJW9foxwDTk4tzVApReTU6iroHceVO6b5-bs7Su2icSB5oOn6StsQPQg2-bwlA_TAVEw_blrKO3cP1XIH6LxkwPBtmJoEnTEK9UEFQsnvFIPpmQXHU8vu8dEZH4wEtBAU3Q.jpg" width="400"><br>
-
-🔴
-جمهوری اسلامی ایران از ابتدای سال ۲۰۲۶ تاکنون دست‌کم ۹۱۶ حکم اعدام را به اجرا درآورده که از این تعداد، ۱۵ مورد در ماه اوت رخ داده است. شمار واقعی اعدام‌ها احتمالاً به‌مراتب بیشتر است؛ چرا که حکومت ایران برای جلوگیری از افشاگری، نظارت بین‌المللی و واکنش افکار عمومی، آمار واقعی اجرای اعدام‌ها را پنهان می‌کند.
-🔸
-هم‌اکنون شمار زیادی از معترضان با اتهامات سنگین و خطر جدی اجرای حکم اعدام مواجه هستند. روند صدور این احکام بسیار شتاب‌زده، ناعادلانه و بدون رعایت آیین دادرسی منصفانه بوده است.
-🔸
-جمهوری اسلامی از صدور و اجرای احکام اعدام به‌عنوان ابزاری برای ارعاب جامعه و پیشگیری از شکل‌گیری اعتراضات جدید استفاده می‌کند.
-#نه_به_اعدام
-@IranRights
-
-[View Post](https://t.me/VahidOnline/77827)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-12 08:02:18
-
-<img src="https://cdn1.telesco.pe/file/mMW9OO1g1fA67q9h2wzReE19XbWcO1gOLnRoxJ-zXAAQ_3QPj7yFbxtK4sz7MUTeWSdj4US_d39aXU9dxQWdUGQKrb4ac-dN2VpOgn4Gp2zjuQLIcrFUXYRzpBVPB7A_PB20awpHB8FCtWhW26CMJ53UvF4nqtAaZsWqEvw8lQg7gG5MfWSc7g-BJviF5kc0nOUY93aY4FIyBbqg79FaMJWWS3PfLJml5riPNq3i4zbMeYAkka2s7OuS7VTrunCmoXo-nFjevXfedVtpObDZs11zbRb7dEZljdDEjAZW6FB4bZOHSq5rE-zqhXmlgbV-4RNVQHYlXknI1AjT1ZCOpw.jpg" width="400"><br>
-
-اظهارات علنی متناقض؛ ترامپ در پی تهدید ایران، مخفیانه با پروازی دیگر از ترکیه خارج شد  ترجمه ماشین: واشنگتن‌پست دریافته است که تهدید ایران به ترور دونالد ترامپ، رئیس‌جمهور آمریکا، ماه گذشته باعث اجرای عملیاتی فوق‌العاده شد که طی آن ترامپ به‌طور مخفیانه با…
-
-[View Post](https://t.me/VahidOnline/77825)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-12 07:57:13
-
-
-
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در گفتگو با خبرنگاران گفت به ایران اعتماد ندارد و افزود: «من آخرین کسی هستم که به ایران اعتماد می‌کند. آنها پیوسته به من دروغ گفته‌اند.»
-ترامپ همچنین گفت ایالات متحده در حال حاضر «کنترل کامل» تنگه هرمز را در اختیار دارد و افزود: «آنها کنترلی ندارند. ما کنترل کامل داریم. اختیار آن دست ماست.» رئیس‌جمهوری آمریکا در ادامه گفت ایران دیگر «قلدر خاورمیانه» نیست
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77824)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-11 21:15:59
-
-
-
-خبرگزاری‌های ایران تصاویری از «آلودگی نفتی» در بخش‌هایی از سواحل قشم منتشر کرده‌اند.
-به گزارش این منابع دادستان قشم دستور شناسایی منشا آلودگی، مهار، جمع‌آوری و پاکسازی نوار ساحلی را صادر کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77823)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-11 20:14:42
-
-<img src="https://cdn4.telesco.pe/file/bPocSw__VZ5qPVMqu7WQ_h9so69V0MFwT5X28e6DyoDr0GF4aDMqRMzNLh6NvM-gddtgApHx2N1h5mNepRtnjVkcbCqULhT-KbwTz0ElKb21jWXBN4CWV9YLyrCTKVydd3exP3R8tFKjX3EhQ4RZrnkHlnqLN-0QLCSxjZpjNzMm_HZAZEI-2zoaJO2VU4bocPNSFhFoWYS62APAi4B54R15g1Xj6U_RiKSDw-Q1tedRuvMobcj9o7t-XxB9r3z1qMSBptsLfhXrwyORh6Qs2fDorwbi9IQw9uH3AepxnyQnz6uRLblOCWkdDVT2g8yYKm0H_s4_7JylIDOIU93wEw.jpg" width="400"><br>
-
-محسن رضایی، دبیر جدید شورای عالی امنیت ملی جمهوری اسلامی، در نخستین موضع‌گیری پس از انتصاب به این سمت اعلام کرد برای باز شدن تنگه هرمز، آمریکا باید جنگ را پایان دهد و پول‌های مسدود شده ایران را بپردازد.
-به گزارش رسانه‌های ایران، او در دیدار با سفیر چین در تهران گفت تا زمانی که آمریکا «رفتار خود را تغییر ندهد و شروط ایران را نپذیرد» ایران اقدام به باز کردن تنگه هرمز نخواهد کرد. او پایان جنگ و آزاد کردن پول‌های مسدود شده ایران را دو عنوان از شرط‌های ایران برشمرد.
-این در حالی است که دونالد ترامپ، رئیس‌جمهور آمریکا، روز دوشنبه در کاخ سفید به خبرنگاران گفت ایالات متحده کل تنگه هرمز را «مین‌روبی» کرده و کنترل کامل آن را در دست دارد.
-محمدباقر ذوالقدر، دبیر سابق شورای عالی امنیت ملی، که رضایی جایگزین او شده است، هفته گذشته شروط مشابهی مطرح کرده بود.
-محسن رضایی درباره مذاکرات جمهوری اسلامی با سلطنت عمان درباره عبور و مرور در تنگه هرمز که طی هفته‌های اخیر در جریان است، نیز گفت اگر بین دو کشور توافقی در این زمینه حاصل شود، «این توافق موضوعی جدا از انسداد تنگه هرمز خواهد بود».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77822)
 
 ---
 
