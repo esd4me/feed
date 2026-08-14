@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-14 21:14:44 </h5>
+<h5> 🟢 Updated at: 2026-08-14 22:11:39 </h5>
 </div>
 
 
@@ -307,7 +307,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-13 21:44:15
 
-<img src="https://cdn1.telesco.pe/file/PT5-f2UuZZ2lXyoZ9QdOLybrRl6SiekVZDsGHY6i0eGbbmpsDGsrkpyPXqrbZTlSFF5dAbqwmrk4iU_JvkMfNihYL8xtqewckRrWRyKbsPKr2ejBFNe8CenIBHkH2xrR_oQJUPxqe-sIjfeNaI-nuqS0xvkKDKYjtiK0XWpPEqtFFSLnn6y5jgekdO7MZGAg_e7XFDNxxfA9JDM0ClTOv-itcHjC3JhWk69ATyAbg-x8XwDlqFoAxbkKmivQU5OxDVyblHXo1zYGdJsz8IOx46fJup6Kq0BPSzkRK1zEqCsyF6kXk6MCVN7u2VbMK4B15uLeXLyjpH3TENcFxrrm7w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vmz9klRf9cgeDhMqBujRb3__3Vsp3ZlsTS50vSbNysfbfUnGirdZYa8hQ9o2UM5zE3TTgaQ7MuzSt0HWspilzYKFeMCOP1i1t-rm_DXW-e8Z0dOAgptYG0DEk7cVJ9erEsk2-utmmBeEjYHEfsLWRZ7OpMIk7fIFMHUN5dixlf4WSWBWAL3it_ORPDdg0G1tFUUWeXVMkbssOnHbRj7vpDinv8wOqPUgMRyN3vg-jLPj5Zt9lADZ3tUSjedGU3LByLE8MzB1yiSWBVBO1j-9pYPzrtv_CGrSTMV0JgAPh94X0alL3MODba1qzPpp6U1MH_XMgecFl0Oo3YUbEf1oJg.jpg" width="400"><br>
 
 فرماندهی مرکزی ایالات متحده، سنتکام، روز پنج‌شنبه ۲۲ مرداد از آغاز روند تشکیل نخستین یگان چندملیتی و چندحوزه‌ای پهپادهای تهاجمی خبر داد.
 این یگان با نام «نیروی ویژه فالکون استرایک» از پهپادهای یک‌طرفه تهاجمی و سامانه‌های بدون سرنشین هوایی، سطحی و زیرسطحی دریایی استفاده خواهد کرد و نیروهایی از آمریکا و شرکای منطقه‌ای در آن مشارکت خواهند داشت.
@@ -326,7 +326,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-13 21:43:31
 
-<img src="https://cdn1.telesco.pe/file/scnZLdw9x-fDdhfjhZB3IT0HzSKJz30tONRQYETqKrS2zcjDHF220MCaGZggVWSCGzSi98JQpYCFKXHKYSyDxycpIRoZ6_51L9urU7ZWZqF0kEaxyrqlC_JeNmhDHJWtqGn9lD5lGDdbU3GaoqlJfDmmN1KDYNzAGTlkIHzoJ9iQBnHcBxY0cmMU_MVsb5sBZ-f0hP2Wjopmmn_tOgxT3BhgEEc7I5GGKfUjQFDP4hilg9v6v23DleJrBXFGhCquEQNUt8I2o6F6U41_zDfMuKCAWJv8DHtVV76eiCv2dXr71JFlEAukWA3q7RBsj62KXGlFdeOPW7ybbkCP1Dko8w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/CQyy2gnVIlhsJqNdEyqeMIhORFMMED9brAkCtQE7oF3in4FFm1H7vpx9rBtW5JsqLH3BaxhLxSR8wJu8wIr6VYv1UAgmkNIV0pu1yqdJnabrIQPaPTghYp25uca-O2HCd-zCUtNGiX7l1k0T24t_ZmunQWgx0Cvp0GzrvnCrc5QSwIU0YBrjYcLO8eewPBVC0jKiaoEo7l6GW8JueAK2fjV5Qh0vLX1Lg3anDsTVM6gASUR-IFD7QjgsRVWpk92r3HmvMiiM6zu_ZyLovWBSQRYwqYspsRMDViDdrk9wNFiGp4IwY8-ePootEK5J5tJBR8OtAWceAU7ey53It-rzkA.jpg" width="400"><br>
 
 تنها چهار روز پس از یک حمله پهپادی به بندر جیزان در عربستان سعودی، خبرگزاری وابسته به حوثی‌های شیعه یمن روز پنج‌شنبه از حمله‌ای دیگر به پالایشگاه آرامکوی مستقر در این بندر خبر داد.
 در حالی که هنوز منابع خبری سعودی در این باره اطلاع‌رسانی نکرده‌اند، خبرگزاری سبای یمن نوشته است که این پالایشگاه «با دو پهپاد» هدف گرفته شده است.
