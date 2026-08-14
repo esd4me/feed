@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-14 23:12:12 </h5>
+<h5> 🟢 Updated at: 2026-08-14 23:52:18 </h5>
 </div>
 
 
@@ -307,7 +307,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-13 21:44:15
 
-<img src="https://cdn1.telesco.pe/file/vmz9klRf9cgeDhMqBujRb3__3Vsp3ZlsTS50vSbNysfbfUnGirdZYa8hQ9o2UM5zE3TTgaQ7MuzSt0HWspilzYKFeMCOP1i1t-rm_DXW-e8Z0dOAgptYG0DEk7cVJ9erEsk2-utmmBeEjYHEfsLWRZ7OpMIk7fIFMHUN5dixlf4WSWBWAL3it_ORPDdg0G1tFUUWeXVMkbssOnHbRj7vpDinv8wOqPUgMRyN3vg-jLPj5Zt9lADZ3tUSjedGU3LByLE8MzB1yiSWBVBO1j-9pYPzrtv_CGrSTMV0JgAPh94X0alL3MODba1qzPpp6U1MH_XMgecFl0Oo3YUbEf1oJg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/PmxL9JdbI-Cgt2qa820lFUb7yqcOxKPq4zuUNegYHqCRKYc3cxeqA7vXaFNT5WpFlwSKqUscoGuUm8CUUEeRzfXDJ0pUwmjKWYeMPXrGuouIh0u_d5Fsy-MOe67Vo8gjWmRCniJrjHIcqj2m4xD1WyoucN8IRqg5tl2TpMQ3h5bUj82JDyeUSFBYsjTTcfIuG8CQlLxiw5EbPNhokgkBAYezZadaJLlC19qwpOVTgAn1S8CM5VCTbu0nX0BIJqHUH7Ysa7HCWrUOHst2DDynHeuulTYemG7hzL8RdMOf7C4dG2VA_1_hXefNe2OvC9KuFAeDMJ1a7pMLCeRWNVKzcg.jpg" width="400"><br>
 
 فرماندهی مرکزی ایالات متحده، سنتکام، روز پنج‌شنبه ۲۲ مرداد از آغاز روند تشکیل نخستین یگان چندملیتی و چندحوزه‌ای پهپادهای تهاجمی خبر داد.
 این یگان با نام «نیروی ویژه فالکون استرایک» از پهپادهای یک‌طرفه تهاجمی و سامانه‌های بدون سرنشین هوایی، سطحی و زیرسطحی دریایی استفاده خواهد کرد و نیروهایی از آمریکا و شرکای منطقه‌ای در آن مشارکت خواهند داشت.
