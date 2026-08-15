@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-15 16:53:12 </h5>
+<h5> 🟢 Updated at: 2026-08-15 17:43:11 </h5>
 </div>
 
 
@@ -98,7 +98,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 17:14:03
 
-<img src="https://cdn1.telesco.pe/file/m13rwHChHndWPvbsTBeODKRKdXzhWScfcz7lsSVPA_-D_Ws1FZVXqbMVKOkjzkb5P9NHKKLsmkaGzPFjudzCMmevKyJGjCpFT9UB_nC90VLdXZweeh7fd1VAqhpvJE67iI6J99M6srYYdtbUWPsFlIMwk8A0uKk7JY0y-5FhRSPegrsySbYX1zOLHxt_ufvG00upiBE0pu6lMvyewvfv6ncFPuu2fJtkSqYTGkOqwoCZQMRQfbjcfapqY-KQETjj_zqBqvcqSt5sgQovP5hs5YKMP0PRdSd-U6TW7c1602nqvILFOo5KVxgvRGKrtMAbNe4I6endLI1b8ldP03lYEw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/StHLhtaoFCBwYPTRVhmlKSFvZGbxbunYKYtcUPEDphWvLHsTiv_prv46UUMRe4txn4vPROZEtTaQXqT_vyWRN1VlQT4PfVgdPeyQqomee3Pa54-6B8SL76HsmRpycsO-AgBx4MmJWdownIMM6JszlK5VqSacYyqKYNiU2uA4Z48tlkNiS_31SOGLcB1ji5aAfIYoKScM0BqzjVpRMsTLyYXm9FEXecqwZxO0uZrEDlobIRczjt9TsCz5ijeP5zdSc7co_ZTSbRoXVYP64iZyJgT-udunz1EDpFOTcX09EJlRrsshuW3LC207XsCjV3PG9ESwzXu-MSZ0m1oKgBsm2A.jpg" width="400"><br>
 
 مریم طهماسبی، عروس معصومه ابتکار، از گروگانگیران سفارت آمریکا در تهران، که به همراه همسر و فرزندش بازداشت و هم اکنون در مرکز پردازش اداره مهاجرت آمریکا در تگزاس نگهداری و منتظر اخراج از آمریکا هستند، نامه‌ای خطاب به مردم آمریکا در نشریه «نیشن» به همراه عکس بی حجاب خود منتشر کرده و از عمق علاقه خود به آمریکا صحبت کرده است.
 وی در این نامه گفته است که او و همسرش عیسی هاشمی، «معلم و استاد دانشگاه از طبقه کارگر هستند» و پسرشان، فقط انگلیسی صحبت می‌کند و از دوران پیش‌دبستانی در نظام آموزشی کالیفرنیا پرورش یافته است.
@@ -120,7 +120,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 17:11:36
 
-<img src="https://cdn1.telesco.pe/file/PV_snfaqvZkhTVU-OvqV4QU3YFWmKAHHLziNukLvQF-EcXx-c3o4D4I5mcBq3EdvXRWh2ghVwPUWRuOvEWkVIxLl0MEjOE9vsRMmSFmmMD6-n7bFZrwQw4ePF9kw7CPZ2C_DDxi-q-z3j39GJf_TYMN9Z-_-2sp3_fALTquUrA9RV52WwGXUdT8W-5XFCBMP7jNmO4ofUb0_bmOPaLihDM7470CVHP5djGkGpa1vUBVisK3NmDp2hjMnuISphGhyEcTNF-ikeirkvDHRvpkCrbpuVvvL7fc7frLPElK-ek3Yv-jPW_SVea_thcs6qDUbUcYOB-IkgTpbXdnLzsWUtg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LQ40SbkkS9LcZg46SDPLlKmDA1fbxvhubAJ9D3Rdvk8zD3O9DMICIKzg6M7Er7HCTSab0eWAhj2Yge65orija5LPZQOG9RsGeFfFLhCMvsc8XRvSrNwWa2yEUI0V1xAnlnjg5NM37qRIakLZlzZlPmEJhZnSLoMl_ovS3NXJW5t2ijCSHtpyeaCG1Rg4K7BuEpEBERcahhKfzqFPmSgTpLQ5tMnNiKDr2RWRWDPRJ-0e74PDEgs4z3cFCtgIDO9maPa6uucY-KqwWDgD7FNARd5iYiadkhwGnYEhVsplxN7pAfrXoII1Jf8cnxjZl_watXlCku9NLr-Lo2GXpfvfIQ.jpg" width="400"><br>
 
 در جریان یک درگیری میان عزاداران در صحن حرم امام هشتم شیعیان در مشهد، دست‌کم دو نفر زخمی شدند.
 به گزارش تسنیم، این درگیری پنجشنبه ۲۲ مرداد حدود ۱۰ و ۳۰ دقیقه شب رخ داده است.
