@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-15 04:11:58 </h5>
+<h5> 🟢 Updated at: 2026-08-15 05:38:39 </h5>
 </div>
 
 
@@ -245,7 +245,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 05:24:39
 
-<img src="https://cdn1.telesco.pe/file/FBLI5oe941kVaiXfj0DFFxA0oaYPrH3QgjQAi8SaSW_g7sfZU9UuWlIF6wpJcsgheljBIk8INNwJJYGc7-fq62ekYK6_tQcTqe7d4BJDKKWC-ZkkRkzArwR5Ev4o9NmZZUoreDIB5Iz9EnRfh64l4cj_aw0L6SVI82LuKbamnWDgxiWtv8Ge1iIFNkGsNG_QRscOo7lIP9DFDYbC5zii-vbLsQAXJPXHJFJOXJKBglMR3E9wiVlJA8UdV1wnRylo10JYYGck-SUs2dEw9GU3133ED81voaiHHMDv1kxHCY0Vp6ibpodkAHiHqOLTQa15v4ndO-VSjF4QJn_Qt86ZKw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/trF-HncNgZsFDBL0fjwjQ_hx7KgSVWPNmt-vw_EYnXzybS0LTabznE3sQLffS7VDmKQKit1e3zt19U-AtysKJy607YWhqCxZh8au99-_L2wes26FV5QgMU9YFS4mrln5FH3LFp82PF7vV_MK9mqm4LAUXzJvffd-5-CNuvwWm3DhPwx5Qvg8hQQ21XTLdFRk9r93Plxr18u4Gxya74NCMQC8nHlBan2OXJ1eyZSYf9OZMwzgi0LGCPAfBhEEvthalNKhczw3S8IqVqk7W0AZWmUMyxc-5nLihQiyVrGYgEjdIAdFCPFWwN54hG3mE59iYeGIG3B1f3Ew75I1506QTw.jpg" width="400"><br>
 
 واشینگتن‌پست در سرمقاله‌ای نوشت توافق با جمهوری اسلامی و تزریق منابع مالی بیشتر به تهران، به رفتارهای «مخرب» این حکومت پاداش می‌دهد و زمینه‌ساز دور تازه‌ای از بی‌ثباتی خواهد شد. این روزنامه از دونالد ترامپ خواست مذاکرات را متوقف کرده و سیاست مهار جمهوری اسلامی را ادامه دهد.
 هیات تحریریه واشینگتن‌پست جنگ آمریکا علیه جمهوری اسلامی را از نظر راهبردی ناموفق توصیف کرد و نوشت این درگیری نه به تغییر حکومت انجامید و نه توان موشکی و فعالیت نیروهای نیابتی تهران را متوقف کرد. به نوشته این روزنامه، هرچند حملات برنامه هسته‌ای ایران را به عقب انداخت، اما انگیزه تهران برای دستیابی به سلاح هسته‌ای را نیز افزایش داد.
@@ -268,7 +268,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 05:21:50
 
-<img src="https://cdn1.telesco.pe/file/QDY7v2491Qln3Cpw5E8E-QanXBU_EAk4KuvntVDNt-VLOdJbvZyNM5WIsogEP3p1H_koiTUVqBEAw7tiUM_jNq0e_pTUJaVItslwZxKg3XHVkP3PjvPcnHydD6VrdMq_iDqeqEKt6DPvAwS0MwIkwghvWeoqyjRbafLraS-6EehGuqLICPpaVAHN1-d42YJhlHfdV-qc1tHsyjA7Zj_royHhAVdr3BBJA4-xbcmryzTyuhWMTpm5b8UPZhbsSw-rNRIuGZLxBiPuUvioRxoZMjW2gJurNiqwx4PK7pgNGtWvNVZGpKDgBqyXQAVkFw2QRopQ6E23Xn_9rmd8kV2oKA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/TSuMFtJC2Ss4uFivLoO4yo7WHdyxVtcTwqCuoS4WArFiHakmMcxp8QTfy7lOiqi2bpCUTLinBAu3bzRJNd3t-1MVV_0FlVJK1BSGEKjoQ3PTODN51YrOjcQ8zzp4ZyrqkEYS895IzaZIO5jn939G0YUe0HUJ8WUnoEVWeUhpICCrtuEEF8vQcioyAqd-ERaFL537TypNqGE-dMgN1U7VGdoKmiyr5KF8hPea9xXw4QY6PRwHVoNyAUWN4Ma9wtwViVYc-6Ohm5Qx4TDc1jMaewmMfEFwLI-HU6pkVADFeBpavs2QwvjgP3k-J94ST50Jygm0vmGka9uLRdq7bKdvpA.jpg" width="400"><br>
 
 خبرگزاری رسمی عربستان سعودی (واس) گزارش داد شاهزاده محمد بن سلمان، ولیعهد و نخست‌وزیر این کشور، جمعه ۲۳ مرداد با دریاسالار برد کوپر، فرمانده ستاد فرماندهی مرکزی ایالات متحده، سنتکام، در جده دیدار کرد.
 بر اساس گزارش واس،  شاهزاده محمد بن سلمان و برد کوپر در این دیدار درباره همکاری‌های دفاعی عربستان سعودی و ایالات متحده گفتگو کردند و آخرین تحولات منطقه را مورد بررسی قرار دادند. دو طرف همچنین درباره تلاش‌ها برای کاهش تنش‌های منطقه‌ای و تقویت امنیت و ثبات گفتگو کردند.
