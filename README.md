@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-15 15:48:47 </h5>
+<h5> 🟢 Updated at: 2026-08-15 16:53:12 </h5>
 </div>
 
 
@@ -142,7 +142,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 17:03:50
 
-<img src="https://cdn1.telesco.pe/file/YKLVIHMyBjCn350dFTBLR1zhy5lukzN1VM6IXRtKOYc-0fCYXZRt0bX1x-BK7m90LvPyAgbxAD8mAMxx_zz8c3FmsKZLTS-gjcnCos1MFSc4dmoUJO8ZFww-DdkQEDdfSC-Z5XGxphubIixltn5Sz_vmuTGZP8lDv4v-VjjWiNv6kq-9bweENx16OzC3FL_NYMqlAHhjq_TllAOb4D6-X-UKppNlA_jfbCPGpzfvDdzo-pYzBCKrFiwNueA7dfa13hqZhaMF3qxkgGNXheVFy-Z7ipelWuWRhOnrvbDuQfNNpi1DlMjayHYjLQUR2iHsr_Hk0ev84WVO16Ef10rGbw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/lZUvsNdtkEc5OGA-ep-PkLEOPXsvKYTiw6B0aSiiuNXXjzODW3VjGUg9wa5uZ81k9awPnRrKbyL3E8ncQlXLJZ1QsihjlPPHLQb4F7tb1v14liKMr43Z7bNT63DYTUTOi30VBVTofHTDGiXSazNllovZoTCcuY44ZrrC-M0ALsC6G3XHEbPyryymJpnCooTYZ_9IdXjyBDjQeLuWZ8Dz7F_V1NbeUMr67atT3sBG6eZMH6BdaOpFhLoTjhnfNrwu0ZKg9TM6SHbHCYaHExpdrDqICX82b_JAbRRR-HRpHCE5wPFCM8kJTrFh1O4spfpaPuH2va3pcafcxHAll3ikJQ.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، با بازنشر گفت‌وگوی اسکات بسنت، وزیر خزانه‌داری آمریکا، با شبکه نیوزمکس در تروت سوشال، بر برنامه دولتش برای تشدید فشار اقتصادی بر جمهوری اسلامی و رساندن «انزوای اقتصادی ایران به سطحی بی‌سابقه» تاکید کرد.
 بسنت در این مصاحبه از اعلام اقدامات جدید علیه جمهوری اسلامی در هفته آینده خبر داد. او افزود واشینگتن قصد دارد سیاستی شامل انزوای شدید اقتصادی جمهوری اسلامی و ادامه محاصره در تنگه هرمز اجرا کند.
@@ -168,7 +168,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-14 16:57:31
 
-<img src="https://cdn1.telesco.pe/file/TekeoN2T7SA1jQCfdo7qMutiUSZ0ergc40vR23XRmNb3oG0jp-9WsJcjj1FUbFadLCAWZzfFmZ3kKKYdWwg3KC-0hygmIOHxHRjW2x1Gj_jtVqsoYFMx3hi2jg_4iD14J7pJfp4p_STz32HNaiuL8OlugeDLxveVqecnHwriKuzdcC63ZwynLHwSGtth4ZFAAHkF1Pk_K4xoUwFpUffLJTo48kr_CraQ57PkFX7GYTDqb9NJKrSLbl45SD_8yx-k3ZPKwMnmhi-kDU11of4ODpU9uJ2Vy2p0t4wsDEZPKnoMbGGQ6VR2bQx_ZoW_ROZuqyJ0D48pixmhS-YawwQXLw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ixFmcZdIaPc1-F-DKMLBEWFYfFCT2acp35SgOqrYwydKhMb_uGe2DwhLRHbiI2LKW0OhN5PGRO6E1p1yiidl35nR-HxPt8hKGFQhzHPRjSJuWeWdxHuI2XAaF9V9slzJKgXjfog78QzjlRTWRUVD5kUhGG7v1iJdS9KUIvz0Sa7UjLT7NSVSGCX6m5rrzKa0gRgn0UuBA26GZUEukWnuk8Le6vhBu3w187rGdmKXIoEJ337DZi3tylnsVyJ6nf6XZXUsc0Cp8Y3EqQ04ZpcNvG6-YLSmbuwAwK9jEtSIYDMtPh_AXOB6IaxtoScOdMRPLoSrdv1KCoMup9my-9EGwA.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در یک پادکست رادیو ارتش اسرائیل، با انتقاد از مواضع اخیر بریتانیا در قبال اسرائیل، با لحنی کنایه‌آمیز گفت اولین «جمهوری اسلامی» مجهز به سلاح هسته‌ای، «جمهوری اسلامی بریتانیا» خواهد بود.
 نتانیاهو روز پنجشنبه ۲۲ مرداد، در این گفت‌وگو با اشاره به تغییر رویکرد دولت بریتانیا در قبال اسرائیل گفت: چیزی شبیه به جمهوری اسلامی را امروز می‌توان در بریتانیا دید. چیزی که من به آن می گویم جمهوری اسلامی بریتانیا.
@@ -195,7 +195,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-14 16:56:51
 
-<img src="https://cdn1.telesco.pe/file/HYimo9sX7Py2Mpd2kb0VUSX6d1BkxAbi-u1qijSVBX5YfaZ-r0ye7p9TtKbdnwg8yVQef-C4ZgJtxP_0DvfMqR8Cr3V6rEskKaguXxNlzokriSejtN30_FZvdlCb9y16TPh21kN1FOPif33gdDeIM1Z_HtoeA5VSCI1Akc34RX6sRKXaBIq0aR0HuvKQrO3E6r6rUN55jT5EqxS507XQXTSuKGerULIyPPM0n577gu1EBaMx2lAkQwsYLaSlhBb8Kq3homvk2nIpLGZgX8kSCW1YVr2jAmoETX4W99KW1B1Xg84pMRtP53tn0wC8ODmS0dTQHkQGvBFjtWNKxBwOlQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LTec3tdffdDQvuMSUxHaG8WYK2cu4Etf0oVcilw1XgMbNNZXC2L7YN_byL9PA9YMrkfrYUJVs0kf_8zixYWKk7X8RnyrEs5Yj7RE9PQLdCjxh-m-MYcnlm17wQo4tZavXCNSi2Snt0yxHuLXMOnNYtBxLNUr5r2GkhTt0DXs765ClrKr9dSwpOY64MXsUIgNIQqkbZLyFOyN8AqmFzjZ3lTAGxtG8AfuMtQ_GWWg2NXwAi1jgSlnoJNfsJWdm2tyoQYJF-p1RJ_0lEj5xr015_kjnbCQbLgTWFiNcR4crr_Q980-PkruZuRceyTGDwh6H-GWydHJPdAWSrHECdEqYQ.jpg" width="400"><br>
 
 وزارت امور خارجه امارات متحده عربی بامداد جمعه ۲۳ مردادماه با انتشار بیانیه‌ای، حمله به دو نفتکش وابسته به شرکت ملی نفت ابوظبی (ADNOC) هنگام عبور از تنگه هرمز را به‌شدت محکوم کرد.
 در این بیانیه آمده است که این حمله بدون بر جای گذاشتن تلفات یا مصدوم، دو نفتکش وابسته به «ادنوک» را هدف قرار داده است.
@@ -227,7 +227,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 16:47:37
 
-<img src="https://cdn1.telesco.pe/file/ibL_UKHDnP-QE57nWA3Q2ghdHvAqd9fvsJ7UzYX6Fi9L3cHVcgIDo5mTEa35nMPEpZ0Ji4Sz4-kcrG_ucw7bgazkY4J_y_pNCWNvRz8TUgoEzmECuKP5Ozstd7P1wfVac97i_4BveSocR07LawKmWL1KqtvdRkcBtBBTm50ksRXkPaHC9RwoTjrriNrNXdm2I3PAzv-uzogOOO2f3JhEZNffOpQNP68PdwsGThUUEeIzfY5y3_mXCkzubSXh8gHWWo4gWwXXyYwcQbRyaItT3w1YcXlYtnMwSK26QyOuQYXlHMTv5TVhyJtaXn5xy0iBZngfvfOWj6NYDd9ugHdwGA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/tclzHT8o6QAtdW9-HuWH0eflvaoBTy0NQyMVP9TUm5WGuzGEMtldzwi1lE9_CZPlaPkoRWSE_dIfR6JAv7wNpzODq90lr2ph4p0dfgx5XZ5SNbFJxk3DKO5gqyC4dgnb6ZroOACm-5ZQVnjyZamq1Z2vPWYFGM2mW6gqpZQyZ9EfRhkngoeS11qFoT8waQMjIMjSc4b5rg_Ryp39ZV9Ka7yYQitjweDEdIkIrbxvaLi6_EAbk1blu1pD8GE3BtTBm5-frg2-foTMdg4WMGKzO_lzGCF1SjE9sDcbg8AegU5TCIKS3ZntNzs4cYcFHlFAjImTFZuPq-pPXpGjK7tAWw.jpg" width="400"><br>
 
 صداوسیمای جمهوری اسلامی به نقل از شبکه العربیه گزارش داد که مواضع نیروهای آمریکایی در نزدیکی فرودگاه اربیل، مرکز اقلیم کردستان عراق، هدف حمله پهپادی قرار گرفته است.
 بر اساس این گزارش، چندین پهپاد به سمت مواضع نیروهای آمریکایی شلیک شده‌اند و به گفته منابع محلی، یکی از آن‌ها به‌طور مستقیم به یکی از این مواضع اصابت کرده است.
@@ -246,7 +246,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 16:46:50
 
-<img src="https://cdn1.telesco.pe/file/P0gpC3jrZI7gAChTB-B4R5CN5bLoo039O1n2_I-ylm2fzQsOp_VRaGGjtnBjBX2Rg5hV5yztI0Y6DUsCG_Ywxf1O0tSDRJsTBy2hxUYDk_gTps8MigKCw4ILAlJ792OYf_JwaSdgbiB08bRiJbXz5BAfoQnp7chyQU3cIUIeoj1pFEpI55tqU5aedkPLWRz1owgqtZ6YseI-P1Y-jnGRB9mN212SE9hrxnoLo44yTeDlfgKbBnXmnLFnhEbUQ4WDVMFzUDmIprc1YrbXqUsW89S5qX6HdsZa9kO0CTnXBsjDK6AeMuaC31S1hFCaIHK3RvmEu76gaP8kww4KdfoQbg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qIKFhweSzvB17ldKwgGtioynzAfpaNzxixKGyYRw04HLCTEARyLMrEIfb36bdi_-06ra8IIpWItPC3ALgvY_uey9GtXKma3EfvOUpdHb643M3YpYl5lX8U7ASglPKf_k8fQf212tTM2KlS_5NVNdEdEt8Kj1QQWcRGoDZ1K_S9mTpqc7ByfKmhG5If7k-b89DCrD_LYaQibcIWm05o7OGf_kKL-u_8O9wp5OCO5T9WLLC5lXdUK-6uUR21rpUjxciJayq6dbuRYCBS14YE5hadFJjVR_v854iX0HYJfha5fofmAZEdKLMg5m1igYvZI7Yo7GYl_3r2yfw7fV17CF7w.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد یک نفتکش هنگام خروج از تنگه هرمز هدف حمله پهپادی قرار گرفته و در این حادثه خسارات جزئی به کشتی وارد شده است.
 بر اساس اطلاعیه این مرکز که روز جمعه ۲۳ مرداد منتشر شد، در این حمله همه اعضای خدمه نفتکش در سلامت هستند و گزارشی از آلودگی یا خسارت زیست‌محیطی در پی این حادثه منتشر نشده است.
@@ -263,7 +263,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-14 16:41:43
 
-<img src="https://cdn1.telesco.pe/file/Jr2uGoye05-ELsWrFy3GVSL5VCqHkd7mgej0-CRchNvm7thyWiCFRbmz98KKkkwBXk3KP8L3l8z1JToMj-5JQ6nwbCdfWF-UQWCGZfRrqIURD7bRtZv2aE3MLH3Rm3dpy09t58NAmTpTEHc-fYX9VYLAWdIQT0aKCjjTIucJPvWON5k-r9aBhQvfiQIQ_8QIU0kVmv3sD0pBDDlj1r1XJEukyfznC0mif2hR9J0HjmmTPYyTw9ueRMTgFiwbcbDDyMGJagVEDsy4llRhi7ARlXkbnzTV__8nNyg0M42c_pdragZPBamVizw_D9aT2rsn6F3-35aF7gRit5VYPxTP9g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Hg2I7MOYmYezff3Tb7p2UDCnnH6SlXJde_X4gjNxcAExYBrbfZMKcD0VMmN1fh9MyEilvC-V-6-UBmT6wo0T66MdABE6wmdita7IDIzR3C6SninT3_tXLFIKoZGJT8eWmKwlZX4gFVDETtMw6Hk_L4mnnRytMtQTmOUUx_wp2WRi1f8p0SL4k9dnkZNy_VAc6qKDb8Bh6PG50ilCWKp4dEGU0Z80sfmtk_4L2KLPrdlOBDnAlIEANZaedJJobZSD2rBfhnESgyuWozQXF5MK48mTmCMIbbc_oaoZYtyeRRhOJIaCRIA7HTRFYqij0ctFU-ddaca2RUNPI9qf7fvavA.jpg" width="400"><br>
 
 سایت هرانا گزارش داد تکتم رمضانی، زندانی ۳۷ ساله که بابت اتهامات مرتبط با مواد مخدر بازداشت شده بود و دوران محکومیت خود را در بند دو زندان وکیل‌آباد مشهد سپری می‌کرد، سه‌شنبه ۲۰ مرداد در پی پارگی کیسه صفرا و تعلل در رسیدگی پزشکی و اعزام به بیمارستان جان باخت.
 بر اساس این گزارش، رمضانی در چهار روز پیش از مرگ از درد شدید در ناحیه کیسه صفرا رنج می‌برد و با وجود پیگیری‌های مکرر برای دریافت خدمات درمانی، به بیمارستان اعزام نشد و از رسیدگی پزشکی مناسب محروم ماند. او در زندان به‌عنوان کارگر در بخش جمع‌آوری زباله فعالیت داشت.
