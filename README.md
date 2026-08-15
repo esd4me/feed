@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-15 18:41:34 </h5>
+<h5> 🟢 Updated at: 2026-08-15 19:43:17 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-15 18:44:53
+
+<img src="https://cdn1.telesco.pe/file/FvrHkyYU-xx84FHC648J5WGgmLKcxiyLYtQir0FR1okAkwAYI15luNdHl7dgq4zSdEqqcarYGbqqekigiNzceYHWrIL7qFieSR4ojJB9kd37nyFa-KLnUJPDdJfeD0vqRsZZUNXCv8oXfSnRWc3DSqx3Q5acnr6mmeFN_0lYuupMX7KXBTim24VXgb39JyTpQBFy8umarvCqufwFo28XbgwU1uD5e2khFMhsjOBi8g0SUIQGDdCnr9w8VhgurWwqtdiqtVo1i2yNdixpJbFCuB8Tp0UmgYTbhIL2gdHoB0s4Mkem4wyncDoJpCYlLFH0o7cGXJ5TMHyz_zZeAvTTjA.jpg" width="400"><br>
+
+محمد باقرزاده، فرمانده کمیته جست‌وجوی مفقودین ستاد کل نیروهای مسلح جمهوری اسلامی، در نامه‌ای اعلام کرد سه خلبان ارتش جمهوری اسلامی که جنگنده‌های سوخو-۲۴ آنها در جریان حملات اسفندماه سقوط کرده بود، زنده به اسارت نیروهای قطری درآمده‌اند.
+خبرگزاری فارس، وابسته به سپاه پاسداران، این نامه را که خطاب به رییس کمیته بین‌المللی صلیب سرخ نوشته شده، منتشر کرده است.
+بر اساس این نامه، جواد صالحی، عبدالمجید دشتیان و عمران به‌روشیان حدود شش ماه است در بازداشت نیروهای قطری به سر می‌برند. باقرزاده گفت دولت قطر تاکنون اجازه دیدار، مصاحبه یا تماس این سه خلبان با خانواده‌هایشان و مسئولان پیگیری‌کننده را نداده است.
+پیش‌تر مقام‌های جمهوری اسلامی گفته بودند به جز مجید کاظمی که پیکرش پس از حمله به قطر به ایران بازگردانده شد، وضعیت سه خلبان دیگر این عملیات به‌طور دقیق مشخص نیست و اطلاعات موجود درباره سرنوشت آنها ناقص است.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77878)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-15 18:39:17
