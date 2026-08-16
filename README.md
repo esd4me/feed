@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-16 15:50:38 </h5>
+<h5> 🟢 Updated at: 2026-08-16 16:54:06 </h5>
 </div>
 
 
@@ -224,7 +224,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 17:14:03
 
-<img src="https://cdn1.telesco.pe/file/StHLhtaoFCBwYPTRVhmlKSFvZGbxbunYKYtcUPEDphWvLHsTiv_prv46UUMRe4txn4vPROZEtTaQXqT_vyWRN1VlQT4PfVgdPeyQqomee3Pa54-6B8SL76HsmRpycsO-AgBx4MmJWdownIMM6JszlK5VqSacYyqKYNiU2uA4Z48tlkNiS_31SOGLcB1ji5aAfIYoKScM0BqzjVpRMsTLyYXm9FEXecqwZxO0uZrEDlobIRczjt9TsCz5ijeP5zdSc7co_ZTSbRoXVYP64iZyJgT-udunz1EDpFOTcX09EJlRrsshuW3LC207XsCjV3PG9ESwzXu-MSZ0m1oKgBsm2A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ao0DwutWdaD6MRhSnp6qKa8lGo9BcwzLONBVjcVpd1LnHzPGuYH-_PydpvCtkl8d-kbNmV5gEb8m6hykAo35YrGS9k2gW9aVmt5ZdI3Xf9Bh7L-aWSdYiOWtIYlNyuBk9Z44x4SUYVM-DMPV08bxgp6aam7NYYrOznq4r1i5Q3iDVmSPSjh5w11-PeZ2j1FKiv_ZoJIVS62HaJ8GKBP3EBsM5BtD83ILP2uOLVMiZa7yXWmU7ZcIFSTSb_ESzQf6z3qO5QWvRq-yj_icXj2OwUUFHU5l9GojEYfJIk0iuUH45OYm2g1YkN0A4VNlphcSttyZoV4qJsShBW22n5lkgA.jpg" width="400"><br>
 
 مریم طهماسبی، عروس معصومه ابتکار، از گروگانگیران سفارت آمریکا در تهران، که به همراه همسر و فرزندش بازداشت و هم اکنون در مرکز پردازش اداره مهاجرت آمریکا در تگزاس نگهداری و منتظر اخراج از آمریکا هستند، نامه‌ای خطاب به مردم آمریکا در نشریه «نیشن» به همراه عکس بی حجاب خود منتشر کرده و از عمق علاقه خود به آمریکا صحبت کرده است.
 وی در این نامه گفته است که او و همسرش عیسی هاشمی، «معلم و استاد دانشگاه از طبقه کارگر هستند» و پسرشان، فقط انگلیسی صحبت می‌کند و از دوران پیش‌دبستانی در نظام آموزشی کالیفرنیا پرورش یافته است.
@@ -246,7 +246,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 17:11:36
 
-<img src="https://cdn1.telesco.pe/file/LQ40SbkkS9LcZg46SDPLlKmDA1fbxvhubAJ9D3Rdvk8zD3O9DMICIKzg6M7Er7HCTSab0eWAhj2Yge65orija5LPZQOG9RsGeFfFLhCMvsc8XRvSrNwWa2yEUI0V1xAnlnjg5NM37qRIakLZlzZlPmEJhZnSLoMl_ovS3NXJW5t2ijCSHtpyeaCG1Rg4K7BuEpEBERcahhKfzqFPmSgTpLQ5tMnNiKDr2RWRWDPRJ-0e74PDEgs4z3cFCtgIDO9maPa6uucY-KqwWDgD7FNARd5iYiadkhwGnYEhVsplxN7pAfrXoII1Jf8cnxjZl_watXlCku9NLr-Lo2GXpfvfIQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/HVpNasuOR8D_tENE6fIavLthDeYna_H76wltRmmfKGv_HvA-aAHOnbbNyc4KwDtMrjlLodRtNXGi7CMBW63CrbtLQvyWIRbBeBeKqV42aBC8F2cXh2kS5w0wOHPkHqVWwQYSOvHm9_agPTLyoMnNaig_uf--p9IaTXoNovcFqmaGkwOMkWttC6amNq0aiSzJZnD8WoEbdkX_R3iGD-UsJtmNg8F6gnd1Rql9X604elQ7VIOxp5ILk1oru7hjburJLQ2td2EfHfG4NV43V80osbkEAzRgHawgo3J9ZOYans2T4BTnhFiPPIeifKLqFEnHdVMeNSzxj_1JzT3m3wwAUA.jpg" width="400"><br>
 
 در جریان یک درگیری میان عزاداران در صحن حرم امام هشتم شیعیان در مشهد، دست‌کم دو نفر زخمی شدند.
 به گزارش تسنیم، این درگیری پنجشنبه ۲۲ مرداد حدود ۱۰ و ۳۰ دقیقه شب رخ داده است.
@@ -268,7 +268,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 17:03:50
 
-<img src="https://cdn1.telesco.pe/file/lZUvsNdtkEc5OGA-ep-PkLEOPXsvKYTiw6B0aSiiuNXXjzODW3VjGUg9wa5uZ81k9awPnRrKbyL3E8ncQlXLJZ1QsihjlPPHLQb4F7tb1v14liKMr43Z7bNT63DYTUTOi30VBVTofHTDGiXSazNllovZoTCcuY44ZrrC-M0ALsC6G3XHEbPyryymJpnCooTYZ_9IdXjyBDjQeLuWZ8Dz7F_V1NbeUMr67atT3sBG6eZMH6BdaOpFhLoTjhnfNrwu0ZKg9TM6SHbHCYaHExpdrDqICX82b_JAbRRR-HRpHCE5wPFCM8kJTrFh1O4spfpaPuH2va3pcafcxHAll3ikJQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/UNVqAfDKAT8bBaoctwGzX8EaP03xehfDdU_xWb7OFsL6STSOAoc09dkYF_zqWUapjx6hweVgm28wRNVJUe0n07Oorzk6hMV4f1dhlHgJkWQ-yH5ND422vpEiKx5Qxoraqc7i7auAkideBiezoZYq748Dy2BSv4pz3EApzz2M6nunAX-ul0StGDdmlRQELPCM6d78o0QsMQA1IwpBl70hsdKls2vbdl641JEIpsPbeWWGtTZu89hGV8E_JeXMGzKE2rlbiLCN_SsTIbawnPflsVjInYcL2Zemjp7KHvVdBEVIn_wAeC_Gzj5AKT1eUGTffUcAuIb0-Gj4zmeu4G65YQ.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، با بازنشر گفت‌وگوی اسکات بسنت، وزیر خزانه‌داری آمریکا، با شبکه نیوزمکس در تروت سوشال، بر برنامه دولتش برای تشدید فشار اقتصادی بر جمهوری اسلامی و رساندن «انزوای اقتصادی ایران به سطحی بی‌سابقه» تاکید کرد.
 بسنت در این مصاحبه از اعلام اقدامات جدید علیه جمهوری اسلامی در هفته آینده خبر داد. او افزود واشینگتن قصد دارد سیاستی شامل انزوای شدید اقتصادی جمهوری اسلامی و ادامه محاصره در تنگه هرمز اجرا کند.
@@ -294,7 +294,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-14 16:57:31
 
-<img src="https://cdn1.telesco.pe/file/ixFmcZdIaPc1-F-DKMLBEWFYfFCT2acp35SgOqrYwydKhMb_uGe2DwhLRHbiI2LKW0OhN5PGRO6E1p1yiidl35nR-HxPt8hKGFQhzHPRjSJuWeWdxHuI2XAaF9V9slzJKgXjfog78QzjlRTWRUVD5kUhGG7v1iJdS9KUIvz0Sa7UjLT7NSVSGCX6m5rrzKa0gRgn0UuBA26GZUEukWnuk8Le6vhBu3w187rGdmKXIoEJ337DZi3tylnsVyJ6nf6XZXUsc0Cp8Y3EqQ04ZpcNvG6-YLSmbuwAwK9jEtSIYDMtPh_AXOB6IaxtoScOdMRPLoSrdv1KCoMup9my-9EGwA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/sUVuzAStdB6YEQER63YHpZm-P2HG7rDhw0EScwajqb6NHHZqS7nl4S5lzA6LxO3mp3HDB2OE4sbdP9KtpoBkUZCX7Y8ASown_3oz1DiubTpXUaezIdWPmgrEbu4DTgxYR4yIX_rFEE7oG34fi1rpIm5EGH03jVJve_tT1y5aKuy-oP_sXClbcPnFcmGdqE511Y51GlmXe0MEH-UP7j4c1s0asRvxjY3LGCBG3wR-vZEv5JbtSnZBlK24aXQ8lLJQ1J1oKxHZZBu7BmF3po4vgPAM79Owwcmq5wgRIKEuYvhkVdC9XTDz5Cqlubk1wq766p9Nd2qs8TCwwsYthqbEtQ.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در یک پادکست رادیو ارتش اسرائیل، با انتقاد از مواضع اخیر بریتانیا در قبال اسرائیل، با لحنی کنایه‌آمیز گفت اولین «جمهوری اسلامی» مجهز به سلاح هسته‌ای، «جمهوری اسلامی بریتانیا» خواهد بود.
 نتانیاهو روز پنجشنبه ۲۲ مرداد، در این گفت‌وگو با اشاره به تغییر رویکرد دولت بریتانیا در قبال اسرائیل گفت: چیزی شبیه به جمهوری اسلامی را امروز می‌توان در بریتانیا دید. چیزی که من به آن می گویم جمهوری اسلامی بریتانیا.
@@ -321,7 +321,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-14 16:56:51
 
-<img src="https://cdn1.telesco.pe/file/LTec3tdffdDQvuMSUxHaG8WYK2cu4Etf0oVcilw1XgMbNNZXC2L7YN_byL9PA9YMrkfrYUJVs0kf_8zixYWKk7X8RnyrEs5Yj7RE9PQLdCjxh-m-MYcnlm17wQo4tZavXCNSi2Snt0yxHuLXMOnNYtBxLNUr5r2GkhTt0DXs765ClrKr9dSwpOY64MXsUIgNIQqkbZLyFOyN8AqmFzjZ3lTAGxtG8AfuMtQ_GWWg2NXwAi1jgSlnoJNfsJWdm2tyoQYJF-p1RJ_0lEj5xr015_kjnbCQbLgTWFiNcR4crr_Q980-PkruZuRceyTGDwh6H-GWydHJPdAWSrHECdEqYQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/r0L2JpL58_E8C6dHcwsZhTXyBiYrj9CW3lNHHJEoPSaDayBDqrXaMQGts-Jj_PY2svnHu2jagQFRAlEBLOP0XWyE9h_JPg97sGXViVmtixos3sFkrwk2Y0LvwvmKYGh7P0R2ZxbewHD1Y7yw-9Co4KJ0P9VMKhTpOlJygiEsRdYsI7aKtIuyjX7H78NLs3sNFtP1yUZfbn_PayqMhvr71g2jmNRtHE-v0lg0noVKR1z5CPgTAc86E2E07kfPF4eiDdl5rAETXtjdeQe7Cj4yFjLmFsOwvdtwdh_9Qz1YKN1qCM06gst6IEShHdjR1XzeIpbDHyjrjWhKydIRY0J3rQ.jpg" width="400"><br>
 
 وزارت امور خارجه امارات متحده عربی بامداد جمعه ۲۳ مردادماه با انتشار بیانیه‌ای، حمله به دو نفتکش وابسته به شرکت ملی نفت ابوظبی (ADNOC) هنگام عبور از تنگه هرمز را به‌شدت محکوم کرد.
 در این بیانیه آمده است که این حمله بدون بر جای گذاشتن تلفات یا مصدوم، دو نفتکش وابسته به «ادنوک» را هدف قرار داده است.
@@ -353,7 +353,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 16:47:37
 
-<img src="https://cdn1.telesco.pe/file/tclzHT8o6QAtdW9-HuWH0eflvaoBTy0NQyMVP9TUm5WGuzGEMtldzwi1lE9_CZPlaPkoRWSE_dIfR6JAv7wNpzODq90lr2ph4p0dfgx5XZ5SNbFJxk3DKO5gqyC4dgnb6ZroOACm-5ZQVnjyZamq1Z2vPWYFGM2mW6gqpZQyZ9EfRhkngoeS11qFoT8waQMjIMjSc4b5rg_Ryp39ZV9Ka7yYQitjweDEdIkIrbxvaLi6_EAbk1blu1pD8GE3BtTBm5-frg2-foTMdg4WMGKzO_lzGCF1SjE9sDcbg8AegU5TCIKS3ZntNzs4cYcFHlFAjImTFZuPq-pPXpGjK7tAWw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/KAjm6MUIakzrInL3hN4quG0qpVf1iPczycP1-kV2b_SWshiFKrrN8DN1X_i5yZJK3fpbV2_CdXNG7PM8HI571xgXgDefR_j95VTxKWEd4zgNTpJeogem2BB9VPNgR3xi0bHviNmNdzV3DKG3YJzBWOJPlK3wqilo4L9GgtWiFfsZqRGb2wCKS1n59YLNhZ6tJibERhENPfh5r-42qOjsBffGXeV9QgR0C0Ssujd8Kei-sKx9sZKlaoLfYQyHUKY8WQzLvS3eqYhVA-puH6cEbbmRv4JGckym4yPpYtahpZqWJlWpegfeFuYaiUbSWQvSz8N6XLHIhN38RwuCvBpxVQ.jpg" width="400"><br>
 
 صداوسیمای جمهوری اسلامی به نقل از شبکه العربیه گزارش داد که مواضع نیروهای آمریکایی در نزدیکی فرودگاه اربیل، مرکز اقلیم کردستان عراق، هدف حمله پهپادی قرار گرفته است.
 بر اساس این گزارش، چندین پهپاد به سمت مواضع نیروهای آمریکایی شلیک شده‌اند و به گفته منابع محلی، یکی از آن‌ها به‌طور مستقیم به یکی از این مواضع اصابت کرده است.
@@ -372,7 +372,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-14 16:46:50
 
-<img src="https://cdn1.telesco.pe/file/qIKFhweSzvB17ldKwgGtioynzAfpaNzxixKGyYRw04HLCTEARyLMrEIfb36bdi_-06ra8IIpWItPC3ALgvY_uey9GtXKma3EfvOUpdHb643M3YpYl5lX8U7ASglPKf_k8fQf212tTM2KlS_5NVNdEdEt8Kj1QQWcRGoDZ1K_S9mTpqc7ByfKmhG5If7k-b89DCrD_LYaQibcIWm05o7OGf_kKL-u_8O9wp5OCO5T9WLLC5lXdUK-6uUR21rpUjxciJayq6dbuRYCBS14YE5hadFJjVR_v854iX0HYJfha5fofmAZEdKLMg5m1igYvZI7Yo7GYl_3r2yfw7fV17CF7w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VocjoPiyQy7iNo67ALwSWKm6qdGEJuvv3biIaupDKcNBBY4A83XpjGBa0T4huUYHA2i7WMwsgLyHDjcn9JbFsEI0rhPBI1kTzPuiau1MtL0PgltL6LT4Zg9eZapn68agB9GASpAkmp9pUsmanWMF_6mdk1Cl93uQpF1cF1cEVw5l0OF2fD6sgf_lXfZGZoPSke1ixWEMkjzVW7PX_RoYIC1dE7MpZ-5n9KJYPoEJJ5Ex3Uf4i7OTVKa1ZwHFkhxQt7x_BrXTlFmWfbo1Pfp0DDHMaXDIy_el_BGzXy8AyZRilaCUhfAmQoW-WGlitKkvjHo4R0EomJe0xBCk5gkqjA.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد یک نفتکش هنگام خروج از تنگه هرمز هدف حمله پهپادی قرار گرفته و در این حادثه خسارات جزئی به کشتی وارد شده است.
 بر اساس اطلاعیه این مرکز که روز جمعه ۲۳ مرداد منتشر شد، در این حمله همه اعضای خدمه نفتکش در سلامت هستند و گزارشی از آلودگی یا خسارت زیست‌محیطی در پی این حادثه منتشر نشده است.
