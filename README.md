@@ -3,8 +3,32 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-16 17:43:57 </h5>
+<h5> 🟢 Updated at: 2026-08-16 18:42:24 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-16 18:31:36
+
+<img src="https://cdn1.telesco.pe/file/JUQry_cA4hwwmAN8hxKMDLGX1-YEAiCjRAKr1kK-nLwv0zbpfcDGRirycNl5WkZzlJGcvOLZDsr5IqMKpNomczg1cTJgSx1KLcKkiNhrxvdogeCCRI4wVJIa4O0Aq71Ji8jznVOxbFHH9Im_ewSlJhw2sGniwXBSmzED4oa14fA-6FPoOM6WEUABkR89sCTwY4PFFrxeqk-oxsMf9EvdWeJ6pmWCy9m6IWRRhjEKcw0fbFeM040E3u_eEhTkRKPFMTKNTT1XvMFlOO6vkvGk-Vw5TZ26ZtwP1wqT4zgidpzBGueGXfjcRrSdhIKKe6YSYVXFpl5nHjHqVENfUjasAQ.jpg" width="400"><br>
+
+احمد آریایی‌نژاد، نماینده ملایر در مجلس ایران، در یک مناظره تلویزیونی، کشته‌شدن مهسا (ژینا) امینی را با عبارتی توهین‌آمیز توصیف کرد و اعتراضات پس از مرگ او را «هشت ماه اغتشاش» خواند.
+این اظهارات در رسانه شهرداری تهران (همشهری) مطرح شده است.
+پدر و مادر مهسا امینی در استوری‌های مشترکی در شبکه‌های اجتماعی،سخنان این نماینده مجلس را «توهین‌آمیز» خواندند و گفتند چنین اظهاراتی از ارزش و جایگاه دخترشان نمی‌کاهد.
+@
+VahidHeadline
+امجد امینی نوشته: «مطلع شدم احمد آریایی‌نژاد، نماینده ملایر در مجلس، با لفظی چنان‌که سزاوار و شایسته خود و اسلاف ایشان است و با کلماتی که در هیچ آیین، مرام و معرفتی جای ندارد، به دختر ما، خانواده ما و تمام مردم کردستان و ایران توهین کرده است.»
+پدر ژینا امینی همچنین با اشاره به وضعیت اقتصادی و اجتماعی ایران، خطاب به این نماینده مجلس نوشته است: «عجیب است در شرایطی که مردم این مملکت به‌خاطر تصمیمات امثال آقای نماینده در اوج فقر و فلاکت هستند و هزاران دختر و پسر هم‌سن‌وسال ژینا در افسوس آینده‌ای که ایشان به آتش کشیده‌اند می‌سوزند، باز هم سراغ دختر ما رفته‌اند.»
+او در بخش دیگری از نوشته خود آورده است: «می‌گویید فرشته نازنین ما به درک واصل شد؛ بریده باد زبان شما که یک مملکت را به درک واصل کردید و نه‌تنها از عقل و خرد، بلکه از سر سوزنی شرم نصیبی نبرده‌اید.»
+پدر مهسا امینی در پایان نوشته است: «نام دخترمان در کنار هزاران انسان بی‌گناه دیگر تا ابد در تاریخ این کشور جاودان است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77881)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-16 08:57:19
@@ -57,7 +81,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-15 18:44:53
 
-<img src="https://cdn1.telesco.pe/file/FvrHkyYU-xx84FHC648J5WGgmLKcxiyLYtQir0FR1okAkwAYI15luNdHl7dgq4zSdEqqcarYGbqqekigiNzceYHWrIL7qFieSR4ojJB9kd37nyFa-KLnUJPDdJfeD0vqRsZZUNXCv8oXfSnRWc3DSqx3Q5acnr6mmeFN_0lYuupMX7KXBTim24VXgb39JyTpQBFy8umarvCqufwFo28XbgwU1uD5e2khFMhsjOBi8g0SUIQGDdCnr9w8VhgurWwqtdiqtVo1i2yNdixpJbFCuB8Tp0UmgYTbhIL2gdHoB0s4Mkem4wyncDoJpCYlLFH0o7cGXJ5TMHyz_zZeAvTTjA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/WWeukwtV2THckZC4kLgQ1UAWCSP1d9Mm69eIO6TC18eRTimgY95n4fkP3_paXNKZ6ealCYnCqRnR-jESer8SXfxy0Pl5hJsXOAI3-qIhRGaXcPiZ4eUdAGZmBxkCH_dfTfLfrB8QyvknhEUC7dYQJ3SA0C8gJWx7GKv3tIQXsktT5NTzYnbTPKPD1SL91j_SykVaupBdG-gIFLQ_D3CYFRxh4DmtJEsaJDKAo0cVRwFfmNn7e2YlkOwF2HQfxDRiTnh9qka_Hd8upf85l-uIDXTbR2_YIevJspqZBK4bKGvMMNKSKJ4Mr-P08fOojlzQJq7squN2gG32X8wG76Ym7A.jpg" width="400"><br>
 
 محمد باقرزاده، فرمانده کمیته جست‌وجوی مفقودین ستاد کل نیروهای مسلح جمهوری اسلامی، در نامه‌ای اعلام کرد سه خلبان ارتش جمهوری اسلامی که جنگنده‌های سوخو-۲۴ آنها در جریان حملات اسفندماه سقوط کرده بود، زنده به اسارت نیروهای قطری درآمده‌اند.
 خبرگزاری فارس، وابسته به سپاه پاسداران، این نامه را که خطاب به رییس کمیته بین‌المللی صلیب سرخ نوشته شده، منتشر کرده است.
@@ -116,7 +140,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-15 18:30:29
 
-<img src="https://cdn4.telesco.pe/file/SrV9DupgDhxNoedu79_AnVoXtPHfpq8oeiyk1E9mvu5dPvkcKjFqoouQSgx3ak7fMSmUQrlDbNEebN2fBPNCPkYAWSfFDrFLzbBboo5Rt_5NjkZE48tmZb9bZf-mODKrx42LZpJ8Fy2783oEIdvPjLjXQsX6tWE3_aSz0KbdWs0zzkPCO79XRE9lFd4OKqb_NFyIJesImKiCeljkz3TMb8ouW28Yrm-MU9ZcYeokqTdodeiQDB5wgXIKPXVP06yAZjxyhKr3Zi7ZOOaL_kvm4932mgfkhDN0ZUl-0LRzSadfUfPAtebB2cPBfACOQmFKc-dA1IBCsyhapwbb6u7S9A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/GwOzLbgl9sgnUAQ40sPL_YTYsodp7EryHqjc_99xQZx46QwiL-0-4nrEeeDa_qi9rs_1LGPFNkvzZXsJQpKn_th9BB81yQWyVO-DYbxr3q2Go_op2H9SUQ-twCmo9reGqt3Gj42fcPi2anF3fdsEpiOZawNlYpz-J1Cf8Wb66E18XTHBI-ZSrgQuDzeVNv4oqpl8q5XGtyLwKinpzvNrs7hd6Yiettj3mtSM47zM5EAZrw98w_BRNZnRoQtBQZkitMme9h0j-7jeILm82KII3pTaQErtgKP7-7Sxwhkh1vbm1YEiSnRg4ZOJriFJMbLsoqOgFunEbjIsFaoo6vquyg.jpg" width="400"><br>
 
 🔴
 سپهر امیرزاده، از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ در اصفهان، از سوی دادگاه انقلاب به اتهام «محاربه» به اعدام محکوم شده است. پرونده او هم‌اکنون برای بررسی در دیوان عالی کشور قرار دارد.
@@ -287,101 +311,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77865)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-14 16:57:31
-
-<img src="https://cdn1.telesco.pe/file/sUVuzAStdB6YEQER63YHpZm-P2HG7rDhw0EScwajqb6NHHZqS7nl4S5lzA6LxO3mp3HDB2OE4sbdP9KtpoBkUZCX7Y8ASown_3oz1DiubTpXUaezIdWPmgrEbu4DTgxYR4yIX_rFEE7oG34fi1rpIm5EGH03jVJve_tT1y5aKuy-oP_sXClbcPnFcmGdqE511Y51GlmXe0MEH-UP7j4c1s0asRvxjY3LGCBG3wR-vZEv5JbtSnZBlK24aXQ8lLJQ1J1oKxHZZBu7BmF3po4vgPAM79Owwcmq5wgRIKEuYvhkVdC9XTDz5Cqlubk1wq766p9Nd2qs8TCwwsYthqbEtQ.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در یک پادکست رادیو ارتش اسرائیل، با انتقاد از مواضع اخیر بریتانیا در قبال اسرائیل، با لحنی کنایه‌آمیز گفت اولین «جمهوری اسلامی» مجهز به سلاح هسته‌ای، «جمهوری اسلامی بریتانیا» خواهد بود.
-نتانیاهو روز پنجشنبه ۲۲ مرداد، در این گفت‌وگو با اشاره به تغییر رویکرد دولت بریتانیا در قبال اسرائیل گفت: چیزی شبیه به جمهوری اسلامی را امروز می‌توان در بریتانیا دید. چیزی که من به آن می گویم جمهوری اسلامی بریتانیا.
-نخست‌وزیر اسرائیل در این پادکست همچنین از مواضع بریتانیا درباره جنگ غزه و سیاست این کشور در قبال اسرائیل انتقاد کرد و گفت اسرائیل در شرایطی قرار دارد که باید در برابر تهدیدهای منطقه‌ای از خود دفاع کند.
-اظهارات نتانیاهو در شرایطی مطرح شده که روابط اسرائیل و بریتانیا طی ماه‌های اخیر بر سر جنگ غزه، وضعیت انسانی در این منطقه و سیاست دولت بریتانیا در قبال اسرائیل پرتنش‌تر شده است. دولت بریتانیا در ماه‌های گذشته فشارهای بیشتری بر اسرائیل وارد کرده و درباره وضعیت غیرنظامیان فلسطینی و ادامه عملیات نظامی اسرائیل در غزه ابراز نگرانی کرده است.
-نتانیاهو در حالی از بریتانیا با عنوان «جمهوری اسلامی» یاد کرده که این کشور متحد دیرینه اسرائیل و یکی از قدرت‌های اصلی غربی است. استفاده از چنین تعبیری از سوی نخست‌وزیر اسرائیل، واکنشی به تغییر موضع لندن در قبال دولت اسرائیل و جنگ غزه محسوب می‌شود.
-این اظهارات همچنین در شرایطی بیان شده که دولت اسرائیل همچنان جمهوری اسلامی ایران را یکی از اصلی‌ترین تهدیدهای امنیتی علیه خود می‌داند. نتانیاهو در این گفت‌وگو بار دیگر بر تلاش اسرائیل برای جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای تأکید کرد.
-اظهارات نخست‌وزیر اسرائیل با واکنش‌هایی در بریتانیا روبه‌رو شده و برخی منتقدان آن را توهین‌آمیز و بی‌سابقه توصیف کرده‌اند. این اظهارات بار دیگر شکاف میان دولت اسرائیل و دولت بریتانیا درباره نحوه برخورد با جنگ غزه و آینده روابط دو کشور را برجسته کرده است.
-@
-VahidHeadline
-سخنگوی نخست‌وزیر اسرائیل از اظهارات بنیامین نتانیاهو درباره بریتانیا و توصیف این کشور به عنوان یک «جمهوری اسلامی» دفاع کرده است.
-روابط بریتانیا و اسرائیل که متحدین دیرینه هستند، از زمان جنگ غزه به شکل محسوسی پرتنش‌تر شده است.
-دولت بریتانیا تاکنون واکنشی به این اظهارات نشان نداده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77864)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-14 16:56:51
-
-<img src="https://cdn1.telesco.pe/file/r0L2JpL58_E8C6dHcwsZhTXyBiYrj9CW3lNHHJEoPSaDayBDqrXaMQGts-Jj_PY2svnHu2jagQFRAlEBLOP0XWyE9h_JPg97sGXViVmtixos3sFkrwk2Y0LvwvmKYGh7P0R2ZxbewHD1Y7yw-9Co4KJ0P9VMKhTpOlJygiEsRdYsI7aKtIuyjX7H78NLs3sNFtP1yUZfbn_PayqMhvr71g2jmNRtHE-v0lg0noVKR1z5CPgTAc86E2E07kfPF4eiDdl5rAETXtjdeQe7Cj4yFjLmFsOwvdtwdh_9Qz1YKN1qCM06gst6IEShHdjR1XzeIpbDHyjrjWhKydIRY0J3rQ.jpg" width="400"><br>
-
-وزارت امور خارجه امارات متحده عربی بامداد جمعه ۲۳ مردادماه با انتشار بیانیه‌ای، حمله به دو نفتکش وابسته به شرکت ملی نفت ابوظبی (ADNOC) هنگام عبور از تنگه هرمز را به‌شدت محکوم کرد.
-در این بیانیه آمده است که این حمله بدون بر جای گذاشتن تلفات یا مصدوم، دو نفتکش وابسته به «ادنوک» را هدف قرار داده است.
-وزارت امور خارجه امارات این اقدام را نقض آشکار قطعنامه ۲۸۱۷ شورای امنیت سازمان ملل دانست و تاکید کرد که هدف قرار دادن کشتی‌های تجاری یا مختل کردن مسیرهای بین‌المللی دریانوردی، مغایر با اصل آزادی کشتیرانی است.
-در این بیانیه همچنین آمده است که هدف قرار دادن کشتی‌های تجاری و استفاده از تنگه هرمز به‌عنوان ابزار فشار یا اخاذی اقتصادی، از سوی امارات اقدامی «دزدی دریایی» از جانب سپاه پاسداران ایران تلقی می‌شود و تهدیدی مستقیم برای ثبات منطقه، امنیت کشتیرانی و امنیت انرژی جهان به شمار می‌رود.
-وزارت امور خارجه امارات از ایران خواست این حملات را متوقف کند، تمامی اقدامات خصمانه را پایان دهد و امکان بازگشایی کامل و بدون قید و شرط تنگه هرمز را فراهم کند تا امنیت منطقه و ثبات تجارت و اقتصاد جهانی حفظ شود.
-@
-VahidOOnLine
-عربستان سعودی نیز با انتشار بیانیه‌ای هدف قرار گرفتن این دو نفتکش ناوگان انرژی امارات را «با شدیدترین عبارات» محکوم کرد.
-به گزارش العربیه، ریاض در این بیانیه با تاکید بر مخالفتش با حملات ایران به «کشتی‌ها و نفتکش‌های تجاری» در خلیج فارس، تهران را مسئول پیامدهای ادامه این حملات دانست.
-پادشاهی سعودی در ادامه با اقداماتی که امارات «برای حفظ حاکمیت، امنیت و منابع خود»  اتخاذ می‌کند، اعلام همبستگی کرد.
-@
-VahidOOnLine
-وزارت امور خارجه بحرین هدف قرار دادن دو نفتکش شرکت ملی نفت ابوظبی (ادنوک) در تنگه هرمز را به شدت محکوم و آن را «باج‌گیری اقتصادی» جمهوری اسلامی ایران از کشورهای منطقه توصیف کرد.
-بحرین در این بیانیه در حمایت از امارات متحده عربی افزود، امنیت در تنگه هرمز را برای «حفظ امنیت انرژی، ثبات عرضه مواد غذایی و دارویی و تضمین جریان تجارت جهانی» ضروری دانست و خواستار آن شد ایران از آن برای «اعمال فشار یا باج‌گیری اقتصادی» استفاده نکند.
-@
-VahidOOnLine
-وزارت خارجه مصر نیز در بیانیه‌ای خواستار توقف همه اقداماتی شد که امنیت کشتیرانی بین‌المللی را تهدید می‌کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77863)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-14 16:47:37
-
-<img src="https://cdn1.telesco.pe/file/KAjm6MUIakzrInL3hN4quG0qpVf1iPczycP1-kV2b_SWshiFKrrN8DN1X_i5yZJK3fpbV2_CdXNG7PM8HI571xgXgDefR_j95VTxKWEd4zgNTpJeogem2BB9VPNgR3xi0bHviNmNdzV3DKG3YJzBWOJPlK3wqilo4L9GgtWiFfsZqRGb2wCKS1n59YLNhZ6tJibERhENPfh5r-42qOjsBffGXeV9QgR0C0Ssujd8Kei-sKx9sZKlaoLfYQyHUKY8WQzLvS3eqYhVA-puH6cEbbmRv4JGckym4yPpYtahpZqWJlWpegfeFuYaiUbSWQvSz8N6XLHIhN38RwuCvBpxVQ.jpg" width="400"><br>
-
-صداوسیمای جمهوری اسلامی به نقل از شبکه العربیه گزارش داد که مواضع نیروهای آمریکایی در نزدیکی فرودگاه اربیل، مرکز اقلیم کردستان عراق، هدف حمله پهپادی قرار گرفته است.
-بر اساس این گزارش، چندین پهپاد به سمت مواضع نیروهای آمریکایی شلیک شده‌اند و به گفته منابع محلی، یکی از آن‌ها به‌طور مستقیم به یکی از این مواضع اصابت کرده است.
-العربیه همچنین گزارش داد که در جریان این حمله، سامانه‌های پدافندی آمریکا فعال نشده‌اند و تنها جنگنده‌های آمریکایی برای رهگیری پهپادها وارد عمل شده‌اند.
-در پی این حمله، فرودگاه اربیل به‌طور موقت بسته شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77862)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-14 16:46:50
-
-<img src="https://cdn1.telesco.pe/file/VocjoPiyQy7iNo67ALwSWKm6qdGEJuvv3biIaupDKcNBBY4A83XpjGBa0T4huUYHA2i7WMwsgLyHDjcn9JbFsEI0rhPBI1kTzPuiau1MtL0PgltL6LT4Zg9eZapn68agB9GASpAkmp9pUsmanWMF_6mdk1Cl93uQpF1cF1cEVw5l0OF2fD6sgf_lXfZGZoPSke1ixWEMkjzVW7PX_RoYIC1dE7MpZ-5n9KJYPoEJJ5Ex3Uf4i7OTVKa1ZwHFkhxQt7x_BrXTlFmWfbo1Pfp0DDHMaXDIy_el_BGzXy8AyZRilaCUhfAmQoW-WGlitKkvjHo4R0EomJe0xBCk5gkqjA.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد یک نفتکش هنگام خروج از تنگه هرمز هدف حمله پهپادی قرار گرفته و در این حادثه خسارات جزئی به کشتی وارد شده است.
-بر اساس اطلاعیه این مرکز که روز جمعه ۲۳ مرداد منتشر شد، در این حمله همه اعضای خدمه نفتکش در سلامت هستند و گزارشی از آلودگی یا خسارت زیست‌محیطی در پی این حادثه منتشر نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77861)
 
 ---
 
