@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-16 10:53:10 </h5>
+<h5> 🟢 Updated at: 2026-08-16 11:47:39 </h5>
 </div>
 
 
@@ -135,7 +135,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-15 11:37:23
 
-<img src="https://cdn1.telesco.pe/file/roOZQzz4i8_zjQvrw6P_LAZAVI-a69kQ2BTqPRDgo6De5UlvR3brAopXYRsq9ELtQzH2zMeukRhaNHLtUPMtMGNp4iMylYbjcWAxsRVuoXFD4chtuE2ESIIkcz5a9d0ayOn-ajiCgzGgcv6DJXqFWcOV66XJEo1PJi9r6Xkx2nuPf-rqZOYcm_NI52lPhpcPdaeFjdQevh1grud6-hm_NjPpfFy5ZksyvB5R8Wfpu525CvlcDJRWSyqoCYaGXzLQ77edMn0zhUSQ8Q5prF9T7wRKXKRcwbJX80OGDmh230NAs5PvW_ANpm6w1sxlwUhakPtxqVGk4WTlU5jqyFTYpw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Ryx8H-h4pigP5KjVSH5-w2rBtukg33FRnTJhZ2H_j3jjvIfK7rVLDhw7rzY-HN3w0GnR0sRzUbaa_KNWjUmIbfhVQObO0No3tV9LgVyVVAYtuLa7zltVfArHnHmmZffiAXUo5fzx1MDLjqPCkKElsaXOl7Dvfpyfvgo7LTX3O61NrBQ0lZ4c6G0lzHgHoe3i1EQK43ARI5WABWTou6CCzZ-O0TbQSW8p_SH4CZzHq7ZybFsyf894Ndzcj167zY3Do_V0iF_ptzleDUwrGmydqiL6jVDFvqA74wiy2zAnlRITv9wmBbbOK_sQdOkvYJ1nh66aj22zhWtyU6vmvLIr_Q.jpg" width="400"><br>
 
 ترامپ روز جمعه در نیویورک با اشاره به حملات آمریکا و اسرائیل به ایران گفت: «آن‌ها دیگر رهبری ندارند. رده اول آن‌ها از بین رفته، رده دوم از بین رفته و نیمی از رده سوم هم از بین رفته است.»
 او افزود که این وضعیت، مذاکره با جمهوری اسلامی را نیز دشوار کرده است: «یکی از مشکلات من این است که کسی برای مذاکره وجود ندارد.»
