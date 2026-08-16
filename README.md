@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-16 22:44:50 </h5>
+<h5> 🟢 Updated at: 2026-08-16 23:41:48 </h5>
 </div>
 
 
@@ -174,7 +174,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-15 23:28:11
 
-<img src="https://cdn1.telesco.pe/file/BgSe4Vkh52KcJ5-uj0dQxV0wE2TwuCiKpcnXaaXmJFK-QIKewEXQlPJ8dE3NLyazQPmieq5RdDqPv8RRrP9_MBXn72ppW0aVSF8d1-ov6zCzdS5yVfFjcmwy55Mazcc0-kP2dwwarmch4NUdXje2aKde6zFtSfJF8j9diWAVGCrFIERmuQKCcVCZRHuRf1NSxxz5M_HeTjK_ZBXCQLML_XcUQAn9FcjWYpdKLWd3rWh28HUkyAgoItNVHRiJ4algKd8rVrmwPM37UfFFvbplmd__TokktAo6je4UgDx0UvJaRljnZwMy2JXhbVZhgAq3ZqRP11ZpR2cTaQxN6XRZKA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pgqW3k4pAiAj_FAbsWjgRP0zEMj_530AbmKmYIzO-iuAqCw-PWsAkez-tFs98vkQ6RqIbnhFiLAWC9fr4lhue2FxCUILeCi4XDbyzwdasnMnAIofmWst18aYi7T2nuNvVKv8V0u_bx86AcC5y-bA09bGZK0ekYq_H2o4atsMGRTmpd6XHGrOyFOtSZt0ZgG0m2zF-ujJ60clIcgbIa5n7T2AGmR1qdkZ7QpGKSJqIUfaP8qH4ToORJ6HTqQHaaedwlEXwdDPdHjx8DbWbVL_gUtJ5-8GiaSD_ITz1JiIs8REvbNjmIHXJToGXWhqarKrqReJOGyofPoKbFK9gBvZRQ.jpg" width="400"><br>
 
 ماجد محمد الانصاری، سخنگوی وزارت خارجه قطر، ادعای جمهوری اسلامی درباره بازداشت سه خلبان ایرانی را رد کرد و گفت نیروهای قطری پس از جست‌وجوی محل سقوط جنگنده‌ها، پیکر یکی از خلبانان را پیدا کرده‌اند.
 الانصاری روز شنبه ۲۴ مرداد در شبکه ایکس نوشت ادعاهای مطرح‌شده درباره بازداشت خلبانان ایرانی «به‌طور قاطع» نادرست است و از انتشار این اظهارات، به‌ویژه در شرایطی که تلاش‌های دیپلماتیک برای کاهش تنش در منطقه ادامه دارد، ابراز تعجب کرد.
