@@ -3,19 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-17 20:48:26 </h5>
+<h5> 🟢 Updated at: 2026-08-17 21:54:12 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-17 21:13:19
+
+<img src="https://cdn1.telesco.pe/file/OFYAFkCZHMb_MtARZRUBzjUUPz5BtFUSFtxrzUo5PB3hDVCB45HHd_Iunt6bI_-du3t6MY_anUCbrb1G63Wmr0Dypz3I7IgpH76j6wMBkcwwMs4rfczSzvBb-koCUJoGJ7U3mScWes4SqzGQlmfNprqlURYA2Mn2GJlLXqQGg4Jq3UJ09jPUBbYRO9P85Zyh2EzIcPK2cMBIpOS30sxwKfF-5qDgbxDyak2bxplRCQTmcQ7fxTq9nzMgu7xeWxeaF6KBdJajw8PQSo02JzssMKvkhTY1WPpA6tJ3SnTe2IE22K4EXYgpeP0xI5HvkaRHpO2XjmSB9-DHttrW2gYxoQ.jpg" width="400"><br>
+
+تصاویر دریافتی: آتش‌سوزی بزرگ در میدان شهرداری گرگان
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77922)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-17 20:40:25
 
 <img src="https://cdn1.telesco.pe/file/mPHpK8OsvBLjJ2FHb_-QgGI-YQ8W4mM12x4VFrQCyamj3j49L26usxLzgI4Fn9LtNyfa9RndMcu_OXJiRRk4t7kITyrUtV82oZ2qX4gCl_9wRBfCCcumYJWp_3kZEk8L57s9kj_EwlH-qDw0szDSXf_C6B7Yu6BfXxhbuj-D0ebs9V2BiRS_bg5C-AHcnghbbCDqLrAWgJEEzwHJGtJWTkMvRrAegabBQjYB4b5k0pyS_D1t_U4r20Rj9omqcrKM--DZQb7RKBAmSfKa9G6KlKpP9JXREgVFfzCWhiSrECkeMf92YH3DJITR2i-PS4552vHrLX1hQ7HoKuD859zBNA.jpg" width="400"><br>
 
-'
-#آتش‌سوزی
-مغازه‌های دور میدان شهرداری
-#گرگان
-'
+آتش‌سوزی بزرگ در مغازه‌های دور میدان شهرداری گرگان
 تصاویر دریافتی: 'ساعت ۱۹:۳۰ دوشنبه ۲۶ مرداد'
 Vahid
 📡
@@ -193,25 +204,6 @@ ManotoTV
 @VahidOOnLine
 
 [View Post](https://t.me/VahidOnline/77902)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-17 16:50:32
-
-<img src="https://cdn4.telesco.pe/file/j6VTyulJMENeLplDNYL8IrOssTZqtTwc1P0tqi-8b4tuIZH7jc01LQdL0nVSDo9MTQZcIa8whZTFMZ75CZgbKqJrUzCbz13BLqcMv3c-xnagEr_5dOohMeazwQOSGsu-4YcNdh5mgqa0g8PMVqywXOv8zb6-HZJcyVP_tO0CbK1kD04i44Xkc9HVzxMVdZumG65jmp553q57TiI5xSawbPAmSIC2rhqpzFjDZwRmaLzgBBurbZmSuvM1HB2jWOVF9G9Lg3Bk0M7--7uhW54TiaCi49gupN1sPPEa6GR5blBn_y8GYp3O6UFQ6FO8OY7vNruVXt-w5jeq_hllwW5nOA.jpg" width="400"><br>
-
-🔴
-شاید کمتر کسی بداند در سال ۱۳۸۳، در چنین روزی یک دختر ۱۶ ساله به دلیل «رابطه جنسی خارج از ازدواج» در ملاعام اعدام شد.
-عاطفه سهاله با استشهاد محلی و شکایت پدربزرگش دستگیر شده بود. او قبل از آن هم به همین اتهام در مجموع بیش از ۳۰۰ ضربه شلاق خورده بود.
-‏
-🔸
-نگاهی کوتاه به این واقعه:
-https://www.iranrights.org/fa/memorial/story/-3134/atefeh-sahaleh-rajabi
-@IranRights
-
-[View Post](https://t.me/VahidOnline/77899)
 
 ---
 
