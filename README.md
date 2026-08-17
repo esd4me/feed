@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-17 08:02:45 </h5>
+<h5> 🟢 Updated at: 2026-08-17 08:56:48 </h5>
 </div>
 
 
@@ -148,7 +148,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-16 08:57:19
 
-<img src="https://cdn1.telesco.pe/file/R13CIuKk5BksXKSX-cnFTl9dnKJGzWx3TRyZsXLmdUpa_Ep-QdF_OSp1lOYMSFiA7iVAQZOdVxPncdldTScKiurU52DG1xi4avpxPMrWG__kJPEPLF6dNEow_JThfXUWBs4DK7VtZVJ8wnSPeId4xwxm0rCq717z8OaZoCVSCTww8Z_pLCyBfSWOqxSNwzglvKfhjg27SJden62OocfDMR2Xxoai4vFdq8FMAhe5qUxK8G5PuMl_bQbhwtX6vNeG6y-is2So_ugMTKZbzWFLpqfmH2OKYyLmqtvKvkJ6D0Pq2nOTCShJ_t3N1ZAkwo9fWQO3SXSdcZj9r2erW83fnw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/iBb5vofG3VWIXsIaZ3zR7cOts9yK8MggAGF5_DWJfYropI3KnqkS6pvabWwgDOgSj5R3KAFcgDYkSfNWI6Spq0oWSh2NbaC3KX6JBb28H9j7PU4fNpY7Ghvk11asHQN-7eisF5kgkgr2epD564Z-r90aHu_fhqGBKX5kGUuanSSh5q_Q3Y7kHmXQLe3zUa5TxMgQ5kXnBUxO-6mJzLvWuXQgSk4A0raMNhiuA3vzswJjBFu1hRVtnftlk3tNzwQnOKgALphWs3uhXWs6MtEWrQoVnq-i_-seIIpgAJlHzycqbdfkU-FfNX5NYi8JKV8wMwZ4nuBOI9D6QlNNcah2Jw.jpg" width="400"><br>
 
 خبرگزاری میزان، وابسته به قوه قضاییه جمهوری اسلامی، گزارش داد حکم اعدام شهرام صادقی، از معترضان خیزش دی‌ماه، بامداد یک‌شنبه ۲۵ مرداد به اجرا درآمد.
 به گزارش این رسانه حکومتی، دادگاه انقلاب کرج صادقی را به اتهام «اقدام عملیاتی به نفع اسرائیل، آمریکا و گروه‌های متخاصم» به اعدام محکوم کرده بود.
