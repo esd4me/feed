@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-18 21:53:52 </h5>
+<h5> 🟢 Updated at: 2026-08-18 22:51:10 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-18 22:19:41
+
+<img src="https://cdn1.telesco.pe/file/u_Ms4OZP2pxlhgDffY4GjANEjfiZkdqb1Ga_hYuc2xg9fAPZd9Y2ECIogDbs-lbNKnKIJXTcOIpvhCcWoYOqKONQdM21OcAYMd8E_nDSvPnZnVlmfQkX6qeNc75IjD7ZYb2uV--i9-OB2Wf6VxSDxck-xOpjLpte3xpwtjtgdROKhei5s7yaWRBeImiHeu1zPcX3O9ZmLHxkbAlkoFZZOxJxtYfgtakvsiyUXJBr-eOpuLYuiwn4_1rkPvTeqGmP5mmSu2s-ZdAxKDJItpTdUF0IJslUy9whyQ-HhFBEuT8OOBNQmRyyZ1OVfHJuIv6-hBgOUHYqwKTkpYE3JiNI3g.jpg" width="400"><br>
+
+وزیر خارجه فرانسه: دو دپیلمات ایرانی اخراج می‌شوند
+ژان نوئل بارو:
+مردم ایران، مردمی بزرگ، قربانی اصلی این دوره از تنش شدید در خاورمیانه‌اند؛ مردمی که میان سرکوب خونین اعتراضات ژانویه ۲۰۲۶ و بمباران‌ها در تنگنا گرفتار شده‌اند.
+دقیقاً به این دلیل که فرانسه در کنار مردم ایران ایستاده و از هنرمندان، دانشمندان و پژوهشگران آن حمایت می‌کند، دو دیپلمات فرانسوی در ۱۹ ژوئیه گذشته به‌طرزی رسوایی‌آمیز و عامدانه مورد حمله قرار گرفتند.
+من اعلام کرده بودم که این اقدام غیرقابل‌تحمل پیامدهایی خواهد داشت. این کار انجام شده است. دو دیپلمات ایرانی در فرانسه در همین چند روز آینده اخراج خواهند شد.
+jnbarrot
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77944)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-18 21:03:05
