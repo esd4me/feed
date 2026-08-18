@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 01:42:38 </h5>
+<h5> 🟢 Updated at: 2026-08-19 02:43:08 </h5>
 </div>
 
 
@@ -29,7 +29,7 @@ mofauae
 
 ###### 🔵 Post time: 2026-08-18 22:19:41
 
-<img src="https://cdn1.telesco.pe/file/u_Ms4OZP2pxlhgDffY4GjANEjfiZkdqb1Ga_hYuc2xg9fAPZd9Y2ECIogDbs-lbNKnKIJXTcOIpvhCcWoYOqKONQdM21OcAYMd8E_nDSvPnZnVlmfQkX6qeNc75IjD7ZYb2uV--i9-OB2Wf6VxSDxck-xOpjLpte3xpwtjtgdROKhei5s7yaWRBeImiHeu1zPcX3O9ZmLHxkbAlkoFZZOxJxtYfgtakvsiyUXJBr-eOpuLYuiwn4_1rkPvTeqGmP5mmSu2s-ZdAxKDJItpTdUF0IJslUy9whyQ-HhFBEuT8OOBNQmRyyZ1OVfHJuIv6-hBgOUHYqwKTkpYE3JiNI3g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Af8TxWUsIRwj8ArEAtEE9bh5YJhDWAOm3lhXkheHxHJpdggTz7QRIP9osdtHsEmaCXnieU_S06WcB6IBpo0EhKNuTfYTj5mXpk21cdE5emv1ooWgK94p0auefwwJ8rBIus7g6fpMzZddDz0JXDQ4BeC2lTLbsfZKY0kH6fvQDyRy-Mf8X0taN36V7OpGYpBqYNvKItWVuZswXBIViH1lxC5YTNk0bf93czDVJuUcT8SfBH1QFc9XuX6943o7pU2ejbK8-e-xs8d6vaHuAqun_beYJvNTK-rByjYqI8hpVv1Q7Ivx5AalkLTDS5bWrGU7aIWtkM0AdkVhF8V3EUhLqg.jpg" width="400"><br>
 
 وزیر خارجه فرانسه: دو دپیلمات ایرانی اخراج می‌شوند
 ژان نوئل بارو:
