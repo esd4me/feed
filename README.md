@@ -3,8 +3,36 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-18 20:48:43 </h5>
+<h5> 🟢 Updated at: 2026-08-18 21:53:52 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-18 21:03:05
+
+<img src="https://cdn1.telesco.pe/file/TlwoG_Al22gIId6HudCRyDG3uwzQ24i1t_vxuECYOF6BlVjS0B3UWPPFWPHIIN-hq-XRr4j07A5w6TtvgsDzSWLxzUD0Pf-uL_HYDsGyEUSMPPG5mc1bSpTGvFt4ZJngkq14n-q9r2ku41I5WBil_KvwazXTbTKncqq46hYRk4wOgj_OAzfLVyIQdGzECaIvAEqcwwZ_LjZGro9Z3LdfivE3MJQ8vd07Yufbs011Iv9uQvdaLT6cpGfjNXVgXYgiBIVMZ8XmDTntZKBR-3n7QheWjzDrW62UcrFqg0CGXEVjFZSTLV5q7qIDYk2dxPzAoK_Olp9ASYoZRLMdXkV50Q.jpg" width="400"><br>
+
+قالیباف:
+آمریکایی‌ها فکر می‌کنند اگر فشار بیشتری بر ایران وارد کنند، می‌توانند امتیازهایی بگیرند که اصلاً جزو توافق نبود. بسنت و هگست واقعاً در حد و اندازه این کار نیستند. دیگر منتظر نباشید این دارودسته دلقک‌ها از کلاهشان خرگوش بیرون بیاورند؛ خودتان افتضاحی را که به بار آورده‌اید جمع کنید.
+mb_ghalibaf
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77943)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-18 20:50:22
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/77942)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-18 18:30:52
@@ -319,7 +347,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-17 21:13:19
 
-<img src="https://cdn1.telesco.pe/file/OFYAFkCZHMb_MtARZRUBzjUUPz5BtFUSFtxrzUo5PB3hDVCB45HHd_Iunt6bI_-du3t6MY_anUCbrb1G63Wmr0Dypz3I7IgpH76j6wMBkcwwMs4rfczSzvBb-koCUJoGJ7U3mScWes4SqzGQlmfNprqlURYA2Mn2GJlLXqQGg4Jq3UJ09jPUBbYRO9P85Zyh2EzIcPK2cMBIpOS30sxwKfF-5qDgbxDyak2bxplRCQTmcQ7fxTq9nzMgu7xeWxeaF6KBdJajw8PQSo02JzssMKvkhTY1WPpA6tJ3SnTe2IE22K4EXYgpeP0xI5HvkaRHpO2XjmSB9-DHttrW2gYxoQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QjtdtGvC8RFtjW0gFSaJS8APCTYLWanzJGxnDhVUEPRL78AQm04r1XGui-ejjt_f8dTyPjhYnmClJ_D8T36GGYza4U0rj7HMiDWiRdsH9gapaBukeMHV_lsgauqnfra8VKj_sbov8dVcBjv8y6sHoQ_LpeGm5ZO4SvZogpEi0YJUmPybcJDXHH_pH1yu3Jqk-qwhdv4mFXX8XcV_xd8zcNJxK6WOiM2kiTEYb8mQpH87YcJ9ZTsre5elQhFwx_w6lXtI1Slvcx3TlTLecRheUCPtoJmfuGPBP0Vu6eJeSlN_ZvTyALDDIlzm2Kfgo6IWj8D2bKuCL1xdgPVWFVO_SA.jpg" width="400"><br>
 
 تصاویر دریافتی: آتش‌سوزی بزرگ در میدان شهرداری گرگان
 Vahid
@@ -327,22 +355,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77922)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-17 20:40:25
-
-<img src="https://cdn1.telesco.pe/file/PtiQOKnZtHKD1eQv40A5EJ1J5SzkqhGG6WPYd_QIrjBl0-bvd2XlZJ7cLcb2uRzRxa0cds1gZeEQpZ95B4r34UaJmqWTlQoV_KFYRqKBimJIpDlEZBhWCGqvpHZRtYMfWYZvbQj9cVvG4Sa4OAnp14dwT55rx3K-chA8VOfl91dNesezDPlxHDj9ueKk8SEHXkEuOL8pNpPHyiiWhU7IaGHjKmrkfAYX9yi7JpKCA23haZLiG8Yru7chYXnR6A90ZN8ntpa3-bay1CdPjkh-tt5JaXBNC6Ufk-RcjqTtldA-G5FTfN9C_Z8U-uTTfTwotoeKE5WSUA-d4suLU94ssg.jpg" width="400"><br>
-
-آتش‌سوزی بزرگ در مغازه‌های دور میدان شهرداری گرگان
-تصاویر دریافتی: 'ساعت ۱۹:۳۰ دوشنبه ۲۶ مرداد'
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77920)
 
 ---
 
