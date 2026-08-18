@@ -3,8 +3,28 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-18 23:43:07 </h5>
+<h5> 🟢 Updated at: 2026-08-19 00:44:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-18 23:53:50
+
+<img src="https://cdn1.telesco.pe/file/pG1Jz4Mz90q2wxPSSoUZsmcX2zEmWBr6H_W5PwEFPEGW4PDi015lmmHTsElSBYYqjf6yhy0_gVBxx_YbafRMxTOka34j6a8R9wNmpelUaI6eYwzXmTLzs1BflqpP8Nn9HbSIPXLEZlQALtHPxAIVlzQFWlGV3Pj1S0GWkdD8Hz4FgAjyrbF_AbJAN1IvCwkmrSrbI3ViHZksZiimlD9ed7tP1sr2qjbs2c17I_lz_rcZK_3WM8IYJxvbf4bQ7U42z0UhvZqaKsIH7SO-vtPAeNJkVNobCbrmYiFdu8r5VME_97RgvuGglxPFzPzqaOvOrpOrTIeDCCDfze4j66vE9g.jpg" width="400"><br>
+
+امارات:  تمام مبادلات تجاری و تراکنش‌های مالی با ایران تا اطلاع ثانوی متوقف شد
+مدیر اداره ارتباطات راهبردی وزارت امور خارجه:
+افرا الحاملی، مدیر اداره ارتباطات راهبردی وزارت امور خارجه، همه ادعاها درباره وضعیت روابط اقتصادی میان امارات متحده عربی و جمهوری اسلامی ایران را رد کرد.
+الحاملی بار دیگر بر تعهد راسخ امارات به گفت‌وگو، همکاری و همگرایی منطقه‌ای به‌عنوان ابزارهای اساسی برای پیشبرد صلح، ثبات و رفاه در منطقه تأکید کرد.
+الحاملی تصریح کرد که با توجه به تشدید تنش‌های منطقه‌ای که صلح و امنیت منطقه‌ای و بین‌المللی را تضعیف می‌کند، تمام تجارت، مبادلات تجاری و تراکنش‌های مالی با ایران تا اطلاع ثانوی متوقف شده است.
+الحاملی تأکید کرد که امارات همچنان قویاً به حفظ سلامت نظام مالی بین‌المللی، مطابق با حقوق بین‌الملل و بالاترین استانداردهای جهانی، متعهد است.
+mofauae
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77945)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-18 22:19:41
