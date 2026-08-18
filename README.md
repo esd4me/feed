@@ -3,8 +3,65 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-18 17:53:07 </h5>
+<h5> 🟢 Updated at: 2026-08-18 18:51:50 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-18 18:30:52
+
+<img src="https://cdn1.telesco.pe/file/YNIC_Lk-FF8uyn0QQlPCOTvrz_GiE54OLbu3IriAs_0JuL6MFqspVly_NTTBz8kIEIknt0Ss7kiR78PRvOQcrgXmUWeBuwmUbaMHKSghkaBF11mEvBj7V5eOVTCNAR-yJ1s3V5P_2dI4IDwFTLFkLEEijewEnvMkrASJpV0Qjx6sRon6362ZUPRqeB5G8-vqUKwm3J7jg63aVlqh0tMSpK1HTJnbVETmpR1_GEoP-4U7Tmdzz1yQ0BA8tjiU9pD2pXNIBpGaee1NH5D-vRgoUXWQU6kx_MxRE5OPx5XVnW5L8VXVsU5i9dRAu6vQcwDOlkprBMozcXsqdTVpy9w-bQ.jpg" width="400"><br>
+
+سازمان ملی مدیریت شرایط اضطراری، بحران‌ها و بلایای امارات:
+سامانه‌های پدافند هوایی امارات متحده عربی یک تهدید موشکی را که این کشور را هدف قرار داده بود، شناسایی کردند. لطفاً در مکانی امن بمانید و هشدارها و به‌روزرسانی‌های منتشرشده از طریق کانال‌های رسمی را دنبال کنید.
+NCEMAUAE
+آپدیت:
+پایان وضعیت اضطراری
+پیامک جدیدی که برای شهروندان در دبی ارسال شده:
+از همکاری شما سپاسگزاریم. به شما اطمینان می‌دهیم که وضعیت در حال حاضر امن است. می‌توانید فعالیت‌های عادی خود را از سر بگیرید، اما همچنان احتیاط کنید، اقدامات پیشگیرانه لازم را رعایت کنید و دستورالعمل‌های رسمی را دنبال کنید.
+-وزارت کشور [امارات]
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77941)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-18 18:25:15
+
+<img src="https://cdn1.telesco.pe/file/oDpHsMY9tvrFQ9tLIOfzcZT5ySXYJSSkRXfNR8v5XF2ruZykhDL9MkU1lJxK0rE33tK-DZ_jmkBkZpySas4zfi0ULfq47QPwxm4QoSdkPVjSGJdP-MNGbGPPlhp00Y9uaDjC7mNdDTvsvbqwvaN2yHu_52DfaYJEj2zK72jNO7ZQQ7ifRGf_FYz1ENW4Bq-Q1SSPnqYaikWes4SNUq3dIfAVpi4JoLNGxeR2cJWaOhLXqYGO3f-W1IouiqodqGWM-42ZAAl5z_C5-RZz0DZdn9ZEOLxnUtkM9S4eT_54CUmHFHfKGFjFIU0My--IybvJv3GrAm0vID6Qb-qF5K1RGA.jpg" width="400"><br>
+
+وحید همین الان دبی آلرت موشک ۱۸:۵۲ وقت محلی
+پیام و تصویر از دو شهروند مختلف
+آپدیت: پیام‌ها و تصویرهای مشابه دیگری هم دریافت کردم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77940)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-18 18:05:30
+
+<img src="https://cdn1.telesco.pe/file/svIrnI7F-4bXMZgMhdcGQsTt2y1PzXrBZw6DQ7Q59ZgtDhx5Em0Vkq73BZY10oXqIdHqWSnfyRPXyZz7Jk31vUdbJTOz0JvyERsNPBOHhw8RIszTDJAU_VCRtmkCVJwbrzuX9gZPUAtGuZ8iczHEtloB8SMH1CjoD6FSzQ5wmDGbuRnpihM1fTcMkzGyVH68LOAHtzf5JvdHuXtoCJPtLe3pHNtpcopkyt4ur37uC2uBwqSyRHlmKrYAFO8w-KVHT_oT8-bkMVkUF58B1RKZTus0ELojhctoVTwCRHnuxDnSnhLPpfpn4WQT9-P6VV7_jQ5i9z5UFwaeFi5Eq-X5-Q.jpg" width="400"><br>
+
+UKMTO:
+مرکز عملیات تجارت دریایی بریتانیا با تأخیر گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
+یک طرف ثالث گزارش داده که یک کشتی فله‌بر هنگام عبور از تنگه هرمز با یک پرتابه ناشناس مورد اصابت قرار گرفته است.
+این اصابت به سمت راست کشتی آسیب وارد کرده و موجب آسیب‌دیدگی یکی از خدمه شده است.
+گزارشی از پیامد زیست‌محیطی این حادثه وجود ندارد.
+مقام‌ها در حال تحقیق هستند.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77939)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-18 17:03:29
@@ -151,7 +208,7 @@ VahidOOnLine
 <img src="https://cdn1.telesco.pe/file/QZ7zqFleOZKXFNpnBFUgcgL0JDmBpNKu7uSOqYtw7ywQPrxTLDx7Y2YPfx2HxYz_S7gzruczTXXALhwlQtWl09GhLix8hmv5f2JwoSPS-cYI9mZ1YxuQsa3H5Q5WEgMPOEso7FSea30I18EpCYlYwNLN5CLKdIxp-mezSHj28W9rlbC_kEgSSmUvDGgBb-hneQRrgwx_Pz6XQ-Wa4p3sWLo1TmjdL7A9Qi12e6BXwKx48cXpTuRm31UuVNFMNlFRudnt954TyX1qb-xijPW3zO4zJiEw_hzhnu4CfmbuupMxV-CO6O63W36_VwqhLe21XszsK_Zx14Tn4gu2nmP7ag.jpg" width="400"><br>
 
 UKMTO:
-مرکز عملیات تجارت دریایی بریتانی گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
+مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
 افسر امنیتی شرکت گزارش داده که یک شناور هنگام عبور به سمت خارج از تنگه هرمز، با پرتابه‌ای ناشناس مورد اصابت قرار گرفته است.
 این برخورد به موتورخانه آسیب وارد کرده و باعث مصدومیت یکی از خدمه شده است.
 در حال حاضر، گارد ساحلی عمان در حال کمک‌رسانی به سایر خدمه است.
@@ -286,30 +343,6 @@ Vahid
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77920)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-17 17:44:43
-
-<img src="https://cdn1.telesco.pe/file/Xb4f2_PE7uQ_-gXUMnO4MrIsbBZuJwMUZglGirUvOx0UZ9rl7nCJHiV1QJ_pscPYyVNkXJLA2017u7Y_ohv420JDILMPSoaQ7pkSqFiJBLjzMCxPiwT1_uILVu1EPJDx_ktFp5hAT0VeafZU6s9hIsR18ygr6LFHSjHdO7yz3jYMuGuHDtXCukq3M6xcXz9_aEGpdIAp_2N7DmkJh2li5YeVqCi1g6yBxjlaJsvCZwtJVJqn56LzwldpdTwM4cIyoqfJpTEezPU-PeRmmjJWM2kBfp41TJAxsQAKD998rqGWjNtUymyMJ54I6sooY3g9ATfBNGWpcY21QaBqrGorpQ.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس جمهور آمریکا، روز دوشنبه گفت که در مورد پرونده ایران عجله‌ای ندارد و به «کانال‌های ارتباطی پنهانی با سپاه پاسداران ایران» اشاره کرد. او افزود: «ما به صورت مستقیم با مقامات سپاه پاسداران ایران صحبت می‌کنیم».
-او به فاکس نیوز گفت که «ایران باید پرچم سفید تسلیم را بالا ببرد» و خاطرنشان کرد که «محاصره دریایی آمریکا همچنان فشار اقتصادی جدیدی را بر رژیم ایران اعمال می‌کند».
-او افزود: «آنها در پوکر فوق‌العاده‌اند... اما دارند می‌میرند.»
-پیش از این، رئیس جمهور آمریکا تاکید کرده بود که «ایران تحت هیچ شرایطی نمی‌تواند سلاح هسته‌ای داشته باشد.» این اظهارات در آخرین روز از مهلت ۶۰ روزه تفاهم‌نامه اسلام‌آباد برای دستیابی به توافق صلح دائم و فقدان پیشرفت در تلاش‌های دیپلماتیک برای پایان دادن به مناقشه بین واشنگتن و تهران مطرح می‌شود.
-@
-VahidOOnLine
-سخنگوی سپاه پاسداران، ادعای «دونالد ترامپ»، رییس‌جمهوری آمریکا، درباره وجود کانال ارتباطی مستقیم و پشت‌پرده میان دولت ایالات متحده و مقام‌های سپاه را تکذیب کرد.
-براساس گزارش خبرگزاری «تسنیم»، حسین محبی گفت: «هیچ گفت‌وگویی میان مقامات سپاه با آمریکایی‌ها در جریان نیست.»
-او اظهارات ترامپ را «فانتزی‌هایی» ناشی از «توهمات و کابوس‌های ناشی از شکست و استیصال در جنگ» توصیف کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77918)
 
 ---
 
