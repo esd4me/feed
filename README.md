@@ -3,8 +3,68 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-18 07:06:32 </h5>
+<h5> 🟢 Updated at: 2026-08-18 07:56:04 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-18 07:31:04
+
+<img src="https://cdn1.telesco.pe/file/QZ7zqFleOZKXFNpnBFUgcgL0JDmBpNKu7uSOqYtw7ywQPrxTLDx7Y2YPfx2HxYz_S7gzruczTXXALhwlQtWl09GhLix8hmv5f2JwoSPS-cYI9mZ1YxuQsa3H5Q5WEgMPOEso7FSea30I18EpCYlYwNLN5CLKdIxp-mezSHj28W9rlbC_kEgSSmUvDGgBb-hneQRrgwx_Pz6XQ-Wa4p3sWLo1TmjdL7A9Qi12e6BXwKx48cXpTuRm31UuVNFMNlFRudnt954TyX1qb-xijPW3zO4zJiEw_hzhnu4CfmbuupMxV-CO6O63W36_VwqhLe21XszsK_Zx14Tn4gu2nmP7ag.jpg" width="400"><br>
+
+UKMTO:
+مرکز عملیات تجارت دریایی بریتانی گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
+افسر امنیتی شرکت گزارش داده که یک شناور هنگام عبور به سمت خارج از تنگه هرمز، با پرتابه‌ای ناشناس مورد اصابت قرار گرفته است.
+این برخورد به موتورخانه آسیب وارد کرده و باعث مصدومیت یکی از خدمه شده است.
+در حال حاضر، گارد ساحلی عمان در حال کمک‌رسانی به سایر خدمه است.
+تاکنون هیچ پیامد زیست‌محیطی گزارش نشده است.
+مقام‌ها در حال بررسی این حادثه هستند.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77930)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-18 07:29:02
+
+<img src="https://cdn1.telesco.pe/file/rpXXIeu6C1wXj5Ns7CiBTLrdyd5-UAtVSEWwEBBEpaPbx0wtuBRbYgIJgzf7DhzY6YkY6fi53GMi8Vm8ZduxwpP2-KsmYbFqTh2M88Vb9Glwkz4B7-o5giaPJftynuWXRc4PZNmM1fOOLPBmtTDixVXBNYtxzs5VqQlUz6Bn-14s-ZFo6IdjfpISB23Z2k-4jHvDl4UujEiwSfPiJ_fK5k7LQEk9_sqGlPGiJdW3vDsQdBUg1d0Skby4emnPqeE-q5Lma7WzeF2Bprg39IffaFdoeS2ProxMHl_JW5rbfSpr5gXUXecGIBHUXNSP1uqGL8qG_9iQrfI6gqBIyLcbSw.jpg" width="400"><br>
+
+دادگاه فدرال کانادا در حکم نهایی خود درخواست سلمان سامانی، معاون و سخنگوی پیشین وزارت کشور جمهوری اسلامی در زمان سرکوب اعتراضات سراسری آبان ۱۳۹۸، برای توقف روند اخراجش از این کشور را رد کرد. بر این اساس، اداره مرزبانی کانادا موظف است حکم اخراج او را اجرا کند.
+سامانی پس از استعفا از سمت خود با ویزای توریستی وارد کانادا شده بود. این در حالی است که بر اساس قوانین کانادا، مقام‌های ارشد حکومت‌های ناقض حقوق بشر حق حضور در این کشور را ندارند.
+سامانی در درخواست خود مدعی شده بود در صورت بازگشت به ایران با «خطر شکنجه، اعدام یا خودکشی» روبه‌رو خواهد شد.
+بر اساس حکم دادگاه، قاضی این ادعا را رد و اعلام کرد سامانی در مصاحبه‌های خود از عملکرد وزارت کشور در آبان ۱۳۹۸ دفاع کرده و هیچ مدرکی وجود ندارد که نشان دهد حکومت ایران او را «خائن» می‌داند.
+قاضی همچنین تاکید کرد منافع عمومی کانادا در جلوگیری از تبدیل شدن این کشور به «پناهگاه امن سرکوبگران»، بر ادعاهای سامانی ارجحیت دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77929)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-18 07:28:30
+
+<img src="https://cdn1.telesco.pe/file/Tu6cJfd1YeR9wecHre23pzjT_r8sQXhVJ1iCv1uFNDCGOk9ksZCnxxRno1iwPeIp3MRunG5c1KF6azd-7wmIs6-8-fDeIy35k6P_j5k8Gi_NCiMYb1aXI3ovSUhBprKqysL9weTKkx1m5_wohyT5savjcQW8eKzC2Ojg0lboQbClxLlUnXZU4v4ry9nsL-okh_uA96Tk54NxnLbuii62Mkny-s0oS6VAptcqLXuzeY5rmS8rh_jjhhKn7os-o7WdfHb3eIZ0JUUBUps5QZ8RuIYRzd0KMxYvEWzAPOMv33UJjLBeEluW2EAnx8Gtw_LqjaQGZMB7_q3Hnb1GBYElxw.jpg" width="400"><br>
+
+رجب طیب اردوغان، رئیس‌جمهور ترکیه، در گفتگو با دونالد ترامپ، رئیس‌جمهوری آمریکا گفت که ادامه گفتگوها با ایران برای بهره‌گیری از دیپلماسی حائز اهمیت است و ترکیه آماده مشارکت در این زمینه است.
+دفتر ریاست‌جمهوری ترکیه اعلام کرد که در این گفتگوی تلفنی رجب طیب اردوغان، آمادگی آنکارا را برای حمایت از تلاش‌های صلح ابراز کرد.
+پیش از این جرد کوشنر، فرستاده دونالد ترامپ، رئیس جمهور آمریکا، گفته بود که گفت‌وگوهای ایران و آمریکا جدی و فشرده است، اما دو طرف هنوز به تفاهم نرسیده‌اند.
+آقای کوشنر که داماد دونالد ترامپ هم هست، به فاکس نیوز گفت که مذاکرات آمریکا و نهادهای مختلف حکومت ایران احتمالاً قوی‌تر از همیشه است، اما دو طرف هنوز به نتیجه نهایی نرسیده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77928)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-17 23:24:43
@@ -243,21 +303,6 @@ VahidOOnLine
 احمد آریایی‌نژاد، نماینده ملایر در مجلس ایران، در یک مناظره تلویزیونی، کشته‌شدن مهسا (ژینا) امینی را با عبارتی توهین‌آمیز توصیف کرد و اعتراضات پس از مرگ او را «هشت ماه اغتشاش» خواند.  این اظهارات در رسانه شهرداری تهران (همشهری) مطرح شده است.  پدر و مادر مهسا…
 
 [View Post](https://t.me/VahidOnline/77910)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-17 16:51:41
-
-<img src="https://cdn4.telesco.pe/file/inC3xf_cYQgvamQ9a-6oZTOlcbhp1EkqZ7wFHJ8re7YcQBukgoXm6BfHN8zv8I7TMIoLtRhH10FAB7GJJ1dSoxO6eUrGldzmGYELCTAptCQCyc8VlJVA0hIwuKZDJaLmYve430s5FDRIET6vuZaP3l9kSkoTpzfgM0iKjyGKRo4uE5wf87QI9ab8ul1eLQfnUDnaxaGR-KBj8P-wiCKmmKlT5SJT4zluVEVMxNlslqGKDOmZmxlWmwkCM3-DsJj68e7O-MgT8RlA0NokVJGgFPWIYNNkRnzCkAyPZJ9shZlrGZqGq_pkG7xR7mgRoJQelvJNb67BE0zq_kT5p5OlGQ.jpg" width="400"><br>
-
-ایران از نگاه جهان: مهم‌ترین اخبار و تحلیل‌های دوشنبه ۲۶ مرداد ۱۴۰۵
-ManotoTV
-🤖
-@VahidOOnLine
-
-[View Post](https://t.me/VahidOnline/77902)
 
 ---
 
