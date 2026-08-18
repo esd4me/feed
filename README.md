@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-18 19:50:37 </h5>
+<h5> 🟢 Updated at: 2026-08-18 20:48:43 </h5>
 </div>
 
 
@@ -334,7 +334,7 @@ Vahid
 
 ###### 🔵 Post time: 2026-08-17 20:40:25
 
-<img src="https://cdn1.telesco.pe/file/mPHpK8OsvBLjJ2FHb_-QgGI-YQ8W4mM12x4VFrQCyamj3j49L26usxLzgI4Fn9LtNyfa9RndMcu_OXJiRRk4t7kITyrUtV82oZ2qX4gCl_9wRBfCCcumYJWp_3kZEk8L57s9kj_EwlH-qDw0szDSXf_C6B7Yu6BfXxhbuj-D0ebs9V2BiRS_bg5C-AHcnghbbCDqLrAWgJEEzwHJGtJWTkMvRrAegabBQjYB4b5k0pyS_D1t_U4r20Rj9omqcrKM--DZQb7RKBAmSfKa9G6KlKpP9JXREgVFfzCWhiSrECkeMf92YH3DJITR2i-PS4552vHrLX1hQ7HoKuD859zBNA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/PtiQOKnZtHKD1eQv40A5EJ1J5SzkqhGG6WPYd_QIrjBl0-bvd2XlZJ7cLcb2uRzRxa0cds1gZeEQpZ95B4r34UaJmqWTlQoV_KFYRqKBimJIpDlEZBhWCGqvpHZRtYMfWYZvbQj9cVvG4Sa4OAnp14dwT55rx3K-chA8VOfl91dNesezDPlxHDj9ueKk8SEHXkEuOL8pNpPHyiiWhU7IaGHjKmrkfAYX9yi7JpKCA23haZLiG8Yru7chYXnR6A90ZN8ntpa3-bay1CdPjkh-tt5JaXBNC6Ufk-RcjqTtldA-G5FTfN9C_Z8U-uTTfTwotoeKE5WSUA-d4suLU94ssg.jpg" width="400"><br>
 
 آتش‌سوزی بزرگ در مغازه‌های دور میدان شهرداری گرگان
 تصاویر دریافتی: 'ساعت ۱۹:۳۰ دوشنبه ۲۶ مرداد'
