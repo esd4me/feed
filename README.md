@@ -3,16 +3,20 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-18 17:05:11 </h5>
+<h5> 🟢 Updated at: 2026-08-18 17:53:07 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-08-18 17:03:29
 
-<img src="https://cdn1.telesco.pe/file/ft4e6l3AFGSq4vFBl4lMaCjdRtwCpA8l3EYLQNoANiPzak_RBgyhxpWURIfduON3OhfPP6u5u1jm7U3p_r6MMoYjE7sNDO_0F3ub1S1P4VdSlwjQ-zW2e4v_iyCRXF748Neqb6vqqm-x2BWC_dPpAmzUSx6z7wtkzbEux_izeimOziQXdZg3auL4voWDIg32zijGcvck2VO61h1XkZ2OqSG-LVTHoVGcjxOLOF9yERnGw83aDlh8Yl03BdvODQGdwrqkxVlBu2W1v8PjP6RZoYQciPw7hQy2ksdRi8vHIU--Jo3UIWonInyvN2JCRny3s8rmAPcSZzC-hdgisDz4Iw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/fI46sZIvFsqsOJZVrR5-iUGiN9wg-KXcJ7gg6rRE70564jBPUOwKyX0ItOkbDf-A-0ZkBPQU6xKF7j2PQ6xM0U4WIJjTxRfvgEnF-Jy12Kmj2kw1VUe40MBu_SsM6gGKK4zde3PE0EcI9ekEKt4nlkAY1fkIODA1R_hGWggxup7VmSLy5tDzwF-w2O9yNRpGF_Gjv6WD3USrcYqEZTAcWWvhsdXNuk-7e4uBsFSarLPy2fAUE6_lhMjkriKyV4i02d02ixEg-j3nFGfj5wCqk6pIuSGNfJWK7hwF0A6g6-b8QPXsjn3F3m3ScIuuo4yG4n2b4akmO9sWEwQyn8m6GQ.jpg" width="400"><br>
 
-پست ترامپ، ترجمه ماشین:
-هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره یا گفت‌وگویی نیز برنامه‌ریزی نشده است. محاصره دریایی همچنان با تمام قدرت برقرار است. تنگه هرمز باز و در حال فعالیت است. همه مین‌های دریایی جمع‌آوری یا منفجر شده‌اند. از توجه شما به این موضوع متشکرم!
+ترامپ:
+هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره یا گفت‌وگویی نیز برنامه‌ریزی نشده است.
+محاصره دریایی همچنان با تمام قدرت برقرار است.
+تنگه هرمز باز و فعال است.
+همه مین‌های دریایی جمع‌آوری یا منفجر شده‌اند.
+از توجه شما به این موضوع متشکرم!
 رئیس‌جمهور دونالد جی. ترامپ
 realDonaldTrump
 📡
@@ -289,7 +293,7 @@ Vahid
 
 ###### 🔵 Post time: 2026-08-17 17:44:43
 
-<img src="https://cdn1.telesco.pe/file/hXinTtXryNQo3srah6pCW3FzdMz3DdrIrF2Sk-4FF8mXuyKVVa3LgrbxNIDlu1Fep6YmqtcYpDZl4El1lxOvdvrP1_B5VKbKds3zANfumfuliQLm_bGEuhEwBE9J2m7LitS5AYX4M7jzFepj-46FshnudLxvTC-aFc28Mea822apE62mQ8afIcaqRQpTb4cBRP_0jmKNZTSRFGpHpQ2nDhYRtEDPVRPayzyLTFY9hAyvfmBCURtVSX6Ct38JjkxQ3PJhuUXgNY2fh_5qJOzGUlPFALjMyrjvdclXUABy9sE22l5kwynnfipAUe85AIV6fJFsW_-6eioGWXfpap0tdw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Xb4f2_PE7uQ_-gXUMnO4MrIsbBZuJwMUZglGirUvOx0UZ9rl7nCJHiV1QJ_pscPYyVNkXJLA2017u7Y_ohv420JDILMPSoaQ7pkSqFiJBLjzMCxPiwT1_uILVu1EPJDx_ktFp5hAT0VeafZU6s9hIsR18ygr6LFHSjHdO7yz3jYMuGuHDtXCukq3M6xcXz9_aEGpdIAp_2N7DmkJh2li5YeVqCi1g6yBxjlaJsvCZwtJVJqn56LzwldpdTwM4cIyoqfJpTEezPU-PeRmmjJWM2kBfp41TJAxsQAKD998rqGWjNtUymyMJ54I6sooY3g9ATfBNGWpcY21QaBqrGorpQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس جمهور آمریکا، روز دوشنبه گفت که در مورد پرونده ایران عجله‌ای ندارد و به «کانال‌های ارتباطی پنهانی با سپاه پاسداران ایران» اشاره کرد. او افزود: «ما به صورت مستقیم با مقامات سپاه پاسداران ایران صحبت می‌کنیم».
 او به فاکس نیوز گفت که «ایران باید پرچم سفید تسلیم را بالا ببرد» و خاطرنشان کرد که «محاصره دریایی آمریکا همچنان فشار اقتصادی جدیدی را بر رژیم ایران اعمال می‌کند».
