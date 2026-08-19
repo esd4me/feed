@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 04:12:14 </h5>
+<h5> 🟢 Updated at: 2026-08-19 05:43:09 </h5>
 </div>
 
 
@@ -206,7 +206,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-18 16:19:01
 
-<img src="https://cdn1.telesco.pe/file/g2LIiHv4MBSSNvDYDtN6L6DnfMPpeibr2csvRnXTVXtCr8hwtxOjICXDsDAg71a4R7Ad3yo3vL63_iE_JpBJLhkH9oeoTxBsraiNBAH0ILZqSt97Gh3BZB7pWf923gYufDd7OrMu_z9Lis4enoeqwGu3i9J4SF8cOZbl4J03kdiayPoWz94RlHjVMKn2HCm2rU2BWvt0rPhsnyA05kOtMS9mLU3sZUVXcsCD1_d-xzukOQy0MUMyUQxz1zfd2vBTo7q0yPvsnbwdqQycnmPqyy2OW7zIEbHIzJeVufZBbdyvguX7fUqM6o0kjudC4VyJxWg_oMZlq4DN0fnJF5-QWA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/e7a2Wh5sKKYnfMT0may8kpnweGwoPS4lY62O0mLcuB8m87entLx-_PM5Gf8J_W67AKN4mBixf0RFoJnFKCeGlRFEiYCtVTuYWRPKgEDIuAIgh1319540RBKbEvOF-drPUhFxGYXJbM0WU8kVnPl9KTRIodL8Mr5iQiRwqeN1YW8gZUmSBaVNZNx8I2uAQIPc7VXrgGCM08drx2_IPtL-094QTiuxbAcovcdDr3cG-aRZ02mps_5QEQJ-cWPKjbNNx2RC8u06Gz1I1jNzJvLI0-IRzfTLK8eZ48BzEXL_w7IngUksDrsiXQm8rgSOoZym0yhxorGH4b8uuxJj_9jqKA.jpg" width="400"><br>
 
 پس از آنکه دونالد ترامپ کانال ارتباط پشت پرده آمریکا و سپاه پاسداران را تایید و دولت ایران و سپاه آن را تکذیب کردند، شبکه العربیه به نقل از منابع آگاه جزئیات جدیدی را از تلاش‌های نچیروان بارزانی، رئیس‌ اقلیم کردستان عراق، برای برقراری تماس بین آمریکا و سپاه گزارش کرده است.
 العربیه به نقل از منابع نزدیک به ریاست اقلیم کردستان عراق گزارش کرده است که آقای بارزانی در تلاش برای کاهش تنش میان تهران و واشنگتن، دیدارهایی با مقام‌های باندپایه ایران و آمریکا داشته است، از جمله دو دیدار در بغداد با اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران.
@@ -293,7 +293,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-08-18 07:29:02
 
-<img src="https://cdn1.telesco.pe/file/rpXXIeu6C1wXj5Ns7CiBTLrdyd5-UAtVSEWwEBBEpaPbx0wtuBRbYgIJgzf7DhzY6YkY6fi53GMi8Vm8ZduxwpP2-KsmYbFqTh2M88Vb9Glwkz4B7-o5giaPJftynuWXRc4PZNmM1fOOLPBmtTDixVXBNYtxzs5VqQlUz6Bn-14s-ZFo6IdjfpISB23Z2k-4jHvDl4UujEiwSfPiJ_fK5k7LQEk9_sqGlPGiJdW3vDsQdBUg1d0Skby4emnPqeE-q5Lma7WzeF2Bprg39IffaFdoeS2ProxMHl_JW5rbfSpr5gXUXecGIBHUXNSP1uqGL8qG_9iQrfI6gqBIyLcbSw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nLkfyCrtcnFFeCMaLqryPl8jSabSg8BpPGpShLg_K1hMh83Jw1CpltLmmaUp6G7wcLq9TrU5USad9w9PMm29ZH1dWeMmiWbruYseQ87vppnebZRSKPPY3-17qaW8FEkcTYymsL5L_us4GJzwwOBIr1eP8V2qn7zWTkU0EEXTmAIJhPiWrIO81HiuR8dBwJG9AhgoaMUPpdIXPgeNBRhQIJav6vuuYA7MtkZut-LtODYGUgBg4nKaLNPiWBxhvF-7DeiSNy6MLMJgTFIIe3oKNHpUupMW1UTdHrARz46PGUwu5FgWRb9dylrpN3cb-74BYmL7AmXnFHHFfcJCZiU7_A.jpg" width="400"><br>
 
 دادگاه فدرال کانادا در حکم نهایی خود درخواست سلمان سامانی، معاون و سخنگوی پیشین وزارت کشور جمهوری اسلامی در زمان سرکوب اعتراضات سراسری آبان ۱۳۹۸، برای توقف روند اخراجش از این کشور را رد کرد. بر این اساس، اداره مرزبانی کانادا موظف است حکم اخراج او را اجرا کند.
 سامانی پس از استعفا از سمت خود با ویزای توریستی وارد کانادا شده بود. این در حالی است که بر اساس قوانین کانادا، مقام‌های ارشد حکومت‌های ناقض حقوق بشر حق حضور در این کشور را ندارند.
@@ -386,7 +386,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-17 21:13:19
 
-<img src="https://cdn1.telesco.pe/file/QjtdtGvC8RFtjW0gFSaJS8APCTYLWanzJGxnDhVUEPRL78AQm04r1XGui-ejjt_f8dTyPjhYnmClJ_D8T36GGYza4U0rj7HMiDWiRdsH9gapaBukeMHV_lsgauqnfra8VKj_sbov8dVcBjv8y6sHoQ_LpeGm5ZO4SvZogpEi0YJUmPybcJDXHH_pH1yu3Jqk-qwhdv4mFXX8XcV_xd8zcNJxK6WOiM2kiTEYb8mQpH87YcJ9ZTsre5elQhFwx_w6lXtI1Slvcx3TlTLecRheUCPtoJmfuGPBP0Vu6eJeSlN_ZvTyALDDIlzm2Kfgo6IWj8D2bKuCL1xdgPVWFVO_SA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rPqFL38BCnvU_VnP-ldeAWKbneOTjMcLmRz7aMV9LpHk3gUiGnjEDwkIX_4gUp7Z4-eE2irS5I9RwxwjJOANAR2YJpHVlaUE5CItJae6WYCWdcgvDpQqF0swpxlI_GaY2Y4eXoLTzjWL1fAJ-zL5Z9KgBhqDW4BvH2N5cohPVljtnLOVUWJBRTXfGSqTNURQJm4OnU7TVkuSsYTnUtQRb2KJA7lh_qwTE85F21MgleXC09GbfS4uAQ-r0UudbwGYznZJE6vjM8hxsjlt8QlLFTFaIW4J9FIGNFOf1meSjsyDKrN09u4VaX9eSc5lVgo3T5BFD3G0vmPw_sgjXqpd6A.jpg" width="400"><br>
 
 تصاویر دریافتی: آتش‌سوزی بزرگ در میدان شهرداری گرگان
 Vahid
