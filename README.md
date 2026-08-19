@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 14:46:41 </h5>
+<h5> 🟢 Updated at: 2026-08-19 15:56:00 </h5>
 </div>
 
 
@@ -250,7 +250,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-18 16:06:08
 
-<img src="https://cdn1.telesco.pe/file/OjBpHJJuFihsE81Mt6Mn9gWvzVnH3iyT7NTEFwYw_o6vBb8sXSPOIxe_x4VPFaUnCywHRsGmxegWdSVEOnR2s3Y28ZBAhuqDMXAV0iGqSrDkcvX0g6DFMgsWDnkrxr6yx92rWMtfOzjlL4h2lwbPjF8-DWY8yjsrK5-87HK8q7EcFKw4V4CfNVbhRF8KCK-CaZSniStVRK9921IhCPpQjpm2Y630ornisgo7fhgxLO0lpyMvCPI8YGpDaS3sTblu46SLL38oVRgLxZZD0r7LIP3Cp4uvb-IPY5qGm2uaWZxbM-ILDyulZWpeR1wRav4Qir-2V0fQserxwp9LrJIERQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/WBWm8Ibbb5JuoRldCmN1BgNFzftWJkKLU6nhxX8uFzrXjdYGzOCb0wY8ddFSWwGVviewVZAzWkpJdtOp1gxUPbbW6EE4GLj5aAvVee-XmYL_ZVy9iQsl7R2JuvpHcRRoCzfDRtz7GjMRZD6RwZ0bjpho6vqfBmG2yLypplRsNqQW6A2WylW_iIrfxMI0TjHswK6Rz82cEfjvueq1HwdRbAa4nrouqVVgQ0Y1VKW6t7Zt_0nP2TSrDE2oqNl88qzAjQ_FGd1NmRfJGFgv3l-AXyz3jPtSckA2m6dtCEdRYGRWUJC0nSPkev96NeUIZPwmb3g7wmFEWvKXT2-YdGEQpQ.jpg" width="400"><br>
 
 یک منبع مطلع به ایران اینترنشنال گفت که محسن (مهرداد) تکش، شهروند ۳۳ ساله در اصفهان در رابطه با اعتراض‌های دی‌ماه سال گذشته با اتهام محاربه به دو بار اعدام محکوم شده است.
 تکش، ساکن دیزیچه اصفهان، در جریان سرکوب اعتراض‌ها در هفته آخر دی‌ماه بازداشت شد.
