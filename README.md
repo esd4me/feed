@@ -3,8 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 22:48:09 </h5>
+<h5> 🟢 Updated at: 2026-08-19 23:46:47 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-19 23:01:10
+
+<img src="https://cdn1.telesco.pe/file/Z1H20w4CG4bRs5bIzsFr8s_KPlpFUdspAvKy-f1MnPHEwgIhWTOuyS0kMA8ZcqV66MojodN9mKNTN6bTE4TQqejlEnlQOZcCo1aMH59zIwPBaxw8NOIwg4mbvBPtqsTZ_dODbT7G6CRddTWZl7zctuiikS21nKoQGYWLjdNbdv33DfBdjcrbsq-s7qkOwLvEGf1Y1u-zWbeAB8bVrkL3agRsKXXnYJ3KLSbImwZ8WEikquZEEV-qG5om8Ds6ph10QXZ0PiIw01AqyL3WcJtLX8U11rW9yn1DLtkUsOeDGzbWjLIS4adVDSWOLwHLEyg1jyIZo90zKj44qyZ173i2CQ.jpg" width="400"><br>
+
+دولت فرانسه روز چهارشنبه نیلوفر شادمهری، رایزن فرهنگی سفارت ایران، در این کشور را اخراج کرد.
+ساعاتی پیشتر وزیر امور خارجه فرانسه رسما خبر داده بود که به عنوان اقدام متقابل دو وابسته سفارت ایران را از فرانسه اخراج خواهد کرد.
+هنوز نام و سمت فرد دوم که از فرانسه اخراج خواهد شد اعلام نشده است.
+پس از آن که وزارت خارجۀ ایران در بیانیه‌ای دو تن از کارکنان پیشین سفارت فرانسه در تهران را عنصر نامطلوب اعلام کرد، فرانسه نیز از اقدام متقابل درباره دو دیپلمات ایرانی خبر داد.
+در بیانیه وزارت خارجه ایران آمده بود که با توجه به «فعالیت‌های خلاف حقوق بین‌الملل، به‌ویژه کنوانسیون روابط دیپلماتیک ۱۹۶۱» از سوی دو مامور شاغل در سفارت فرانسه، این دو فرد عنصر نامطلوب شناخته شده و حق بازگشت به ایران را نخواهند داشت.
+طی روزهای اخیر مشخص شده که این دو فرد، از کارکنان بخش فرهنگی سفارت فرانسه بوده‌اند و ظاهراً در ارتباط با پروژه‌ای فرهنگی، با دو گرافیست ایرانی دیدار کرده بودند.
+این دو گرافیست هم از همان زمان در بازداشت هستند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77957)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-19 20:07:14
@@ -328,24 +350,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77937)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 16:28:33
-
-<img src="https://cdn1.telesco.pe/file/nc3tC7dTD37YEReleqclAsBdV-cdOoRdp-c8B7G38Vm6zO9qR4SkDRUp6CCW_onLa2MouCDYsb2TVZycRwu-QDVtxpcigQU0G756co1buMhhFLI0VHw-CEEuB8DaRzlxS3ATkhChecMEUTXK9jlnFJ9hKhuBkT-IyNuHhgBvUqcSgYsw3nApz44wd7gelCB26oEW5TaQpmi_j5PRURqyajrfBDxeB8evkQNZFoVfThYfTwFhkkFldQBbIyESCtq_0eO_7ZY7DRnjPv6nU4tGnCkoSdZneBb0tkHpPIsS4c14900Yxx5BIfCy7lSgPr6b-xcYTqSTRyWT1nkLWAjcAg.jpg" width="400"><br>
-
-رئیس‌جمهور ایالات متحده روز سه‌شنبه ۲۷ مرداد در پستی در شبکه اجتماعی خود، تروث سوشال، بار دیگر تنگۀ هرمز را «قلمرو ایالات متحده» خواند.
-دونالد ترامپ با انتشار پست تازه‌ای در «تروث سوشال»، یک تصویر گرافیکی را به نمایش گذاشته که در آن، تنگۀ هرمز، به‌عنوان «قلمروی تازۀ» ایالات متحده نشانه‌گذاری شده‌است.
-او پیشتر هم در یک سخنرانی با لحنی نیمه‌شوخی و نیمه‌جدی، این آبراه را به‌عنوان بخشی از قلمروی ایالات متحده معرفی کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77936)
 
 ---
 
