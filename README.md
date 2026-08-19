@@ -3,8 +3,162 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 15:56:00 </h5>
+<h5> 🟢 Updated at: 2026-08-19 17:06:49 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-19 16:51:03
+
+<img src="https://cdn1.telesco.pe/file/jDbsfJc9od5p6ktnZYr_sM_Zh5AZqr-eq_peaRgLVDcBA1LEYoW-hAnCeqS92J-69FrRA24R6BVKCkTDd7w9oopS_0pYa8DHgEX972yHM9wHKjh0kX8XP-ZKCyaoAjBBcR--N2TeUBTo8Eq9a9DMimZa6CgYlw4xdJnfFXFxYLk6tmWoLhS8nf3JaFE5_He-jWCPxIpvoNG7W-pTOyUwn5OQBFnT4-TNDQNNWsADbe6BHoGOCPHWC-nIvdwxPkL7cE1ArG6LogVweeQjaqrOl-KxMem8fREm2r6XOt47wmaEgQBKYNSnmLqEbo09YNAgom--NZHikAqv6eg-daJHWw.jpg" width="400"><br>
+
+فاینشنال تایمز روز چهارشنبه ۲۸ مردادماه با انتشار گزارشی به نقل از دو مقام ارشد جمهوری اسلامی گزارش کرد که اگر دونالد ترامپ تصمیم به گسترش جنگ بگیرد، هدف قرار دادن پایگاه‌های نظامی در جنوب شرقی اروپا را بررسی خواهد کرد.
+براساس این گزارش، یک پایگاه نظامی در بلغارستان و یک پایگاه نظامی ناتو در قبرس از جمله اهداف احتمالی جدید ایران در صورت تشدید درگیری‌ها خواهند بود.
+مجلس بلغارستان ماه گذشته با استفاده آمریکا از یکی از پایگاه‌های نظامی این کشور موافقت کرد.
+همین دو مقام که نام آن‌ها اعلام نشده می‌گویند نیروهای مسلح جمهوری اسلامی به‌طور جداگانه حمله به کابل‌های فیبر نوری زیر دریایی در تنگه هرمز را در صورت تشدید تنش‌ها، بررسی کرده‌اند.
+@
+VahidOOnLine
+یک مقام سازمان پیمان آتلانتیک شمالی، ناتو، به خبرگزاری آنادولو گفت: «ناتو برای مقابله با هر تهدیدی آماده است و همواره هر کاری را که برای دفاع از همه متحدان لازم باشد، انجام خواهد داد.» این اظهارات پس از انتشار گزارش‌هایی مطرح شد که بر اساس آن‌ها، ایران در صورت تشدید بیشتر جنگ از سوی دونالد ترامپ، حمله به اهداف نظامی آمریکا در اروپا را بررسی کرده است.
+این مقام ناتو همچنین به رهگیری موشک‌های بالستیک ایران در اوایل سال جاری اشاره کرد و گفت پدافند هوایی ناتو در چهار مورد جداگانه، موشک‌هایی را که به سمت ترکیه در حرکت بودند، رهگیری کرده است. او این اقدام را نشانه قدرت و موثر بودن وضعیت بازدارندگی و دفاعی ناتو دانست.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77954)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-19 16:43:32
+
+<img src="https://cdn1.telesco.pe/file/pgFml4gUnAKYFUnxlqqICUr1YkxWfVZOtx5x3F90X7pF4SfR46c1sl2Z43Xh7JxgAUwntMvNbojnU6xwVmE1bC43JJZRinVwWnAHaqXHuiuLybHxpHMXge1P8ssBdvp-Z7_pZsWO38eDsIzT7PQf_no5SYCvfUYw1YrzgFnDrAQ-3He2S8wAydByRIchsADfIgmdbmIaf_fhY5XEyv6O6tleMtsubJqpITi0u22_g9NqfIxmP4TByDh2q5-2u74NukK7eSmSpXmrqFikZW5m0PX6_ZhhHveCy1aPZdRrZvpLbjRHVQ6XLkqYj_o_q4VcaQzj_zJ4k71XRFtSTKYTGA.jpg" width="400"><br>
+
+روند افزایشی قیمت جهانی نفت، همزمان با مبهم‌تر شدن سرنوشت مذاکرات مربوط به بازگشایی تنگه هرمز، ادامه یافت و قیمت هر بشکه نفت خام برنت روز چهارشنبه ۲۸ مرداد با یک درصد افزایش نسبت به روز قبل به ۹۲ دلار رسید.
+روز سه‌شنبه دونالد ترامپ گفت «هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره یا گفت‌وگویی نیز برنامه‌ریزی نشده است».
+@
+VahidHeadline
+قیمت ارزهای خارجی در بازار آزاد ایران روز چهارشنبه ۲۸ مرداد بار دیگر افزایش قابل‌توجهی پیدا کرد و قیمت دلار آمریکا به ۱۹۱ هزار تومان رسید.
+این بالاترین میزان برابری دلار آمریکا با ریال ایران در سه هفتهٔ اخیر محسوب می‌شود.
+گزارش وب‌سایت‌های اعلام نرخ ارز و طلا نشان می‌دهد که قیمت یورو نیز بار دیگر از ۲۲۰ هزار تومان فراتر رفته و هر قیمت درهم امارات نیز از ۵۲ هزار تومان عبور کرده است.
+روز چهارشنبه هر سکه طلا هم ۱۹۴ میلیون تومان معامله شد.
+افزایش قیمت ارزهای خارجی و طلا به دنبال اعلام امارات متحده عربی در توقف هرگونه مبادله تجاری و مالی با ایران رخ می‌دهد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77952)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-19 16:41:40
+
+<img src="https://cdn1.telesco.pe/file/CjqmO73OFaASa-dsLiPmBnfAwF89Tji9roY3H1oMYURb4Idwh4jPNNqcs7Fnq96CCqMkkk4K8J14jZyX3GqFhcier02BTvEy90MxRQlCPz17NR8YrEv2VvBNFRetMEiPVEar_E4NsvPMnnZ95RDwh2RYimz-7nSWzxODcCJwc5dsYbYRXVt-AP8hMlr7rMTH5NoZ5tLbu7i21MuiI-LuVD5uIDa7ui9AprWKIXqWeg57hUyBTEfSP4RsQWJkEmJwMeeMzTESM3QUgjBhGrSsLVMfrVTP3leJVLKRXBNgvzcjH4r-jVglsF0DftWzxtSSsUq1Jj10KZkACU_cu4kyVQ.jpg" width="400"><br>
+
+به گزارش وای‌نت، نفتالی بنت، نخست‌وزیر پیشین اسرائیل، گفت که در صورت بازگشت به قدرت، معادله بازدارندگی را تغییر خواهد داد و هر حمله حزب‌الله باعث خواهد شد ما ایران را هدف قرار دهیم.
+نفتالی بنت همچنین وعده داد قطر را «کشور دشمن» اعلام کند.
+نخست‌وزیر پیشین اسرائیل ادامه داد: «ترکیه و قطر را از غزه خارج خواهیم کرد و به جای آن‌ها مصر را وارد می‌کنیم و در عین حال آزادی عمل اسرائیل در غزه را حفظ خواهیم کرد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77951)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-19 16:40:57
+
+<img src="https://cdn1.telesco.pe/file/u_141Jha0blIeqRy_aoZPPZHwvI6ciXhbjJH2bPTb2iP33Uyj7EH81P1drS3Ap34HsEz4hZxsVMBwD4CRWeEpVMZKjzpYaxl6VTR4R6grd1vb7tjDUWMRsXpSrYAXcUhOnCvZ04oOgNreWyT7trA8XfdZzF2hok4vsEUYzAYLfwgKtYhFUstHY-9KtvTS91Pe5-4HZ6kgOMn9_SjIZvR3KDv0huQ8dX7xvZYAnVtFMVNFigOZLivRxiFAoYwxrRAnQvSKEOEPzIljExDbsYI4cqq_YdOgPPRTcwKEOClszLsbKCiKHi-8Mz6qlLhqIShf9sQGPaFE2IUlSG6_RgXeA.jpg" width="400"><br>
+
+رئیس ستاد کل نیروهای مسلح جمهوری اسلامی ایران بار دیگر به کشورهای حاشیه جنوبی خلیج فارس نسبت به «هرگونه کمک» به ارتش آمریکا هشدار داد.
+در پیامی که روز چهارشنبه ۲۸ مرداد به‌نقل از علی عبداللهی در رسانه‌های ایران منتشر شد، رئیس ستاد کل نیروهای مسلح ایران به کشورهای حاشیه جنوبی خلیج فارس گفته است که «چیزی از چشم ما پنهان نمی‌ماند» و افزوده «این میزان هواپیمای نظامی، به‌ویژه هواپیمای سوخت‌رسان، در پایگاه‌های منطقه‌ای بدون اطلاع کشورهای میزبان بعید به نظر می‌رسد.»
+فرمانده قرارگاه خاتم‌الانبیاء در هشدار خود توضیح بیشتری در این باره نداد. شب گذشته امارات متحده عربی اعلام کرد تمام مبادلات مالی و تجاری با ایران را تا اطلاع ثانوی متوقف کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77950)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-19 16:39:30
+
+<img src="https://cdn1.telesco.pe/file/BBXftSzO-C2c4tRCpRe4RYvzN80xRebvuXU2uh_0PGYZfFEnbVsi3p8_BXdnkPNO9jKG6OSJXOBES8YXdLunzOs4wtqRvgQYjb5b92b7y4ljaw1IaobPU-hbNeVmRamAq_EVqbki7sL_EkSXKz9FMONCmCNUdBaZh2fNeGg3kEDZ9WH_wM4SW3yJMc6hGKCK1jR3PmbievJcrBZCNuve2KcvIQYeaFBGe2XvdaFSKb6EHU00by0XneqXxfyltQKqZMMOyZ7x3549Xhu2dlvROpB4IS96X-DzPOWagYLSd85Q7e8Bp0U4Eq2OLF8wMrjmjkseGPl6fmlI2F0rKWVp7A.jpg" width="400"><br>
+
+خبرگزاری فارس، وابسته به سپاه پاسداران، صبح چهارشنبه گزارش داد نفتکش اماراتی که در کریدور شمالی تنگه هرمز توقیف شده بود، مسیر خود را تغییر داده و به‌سمت بندرعباس در حرکت است. بر اساس این گزارش، مقصد اولیه این نفتکش بندر جبل‌علی در امارات بود، اما پس از توقیف، مسیر آن به‌سمت آب‌های ایران تغییر کرده است.
+فارس نام این نفتکش، شرکت مالک، پرچم کشتی، محموله و دلیل رسمی توقیف را اعلام نکرده است؛ موضوعی که ابهام‌ها درباره ماهیت این اقدام را افزایش می‌دهد. گزارش‌های بازنشرشده از خبرگزاری فارس نیز می‌گویند این نفتکش هنگام عبور از تنگه هرمز و در محدوده کریدور تعیین‌شده از سوی ایران متوقف شده بود.
+این خبر یک روز پس از آن منتشر می‌شود که امارات متحده عربی، ایران را به شلیک دو موشک به این کشور متهم کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77949)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-19 16:37:10
+
+<img src="https://cdn1.telesco.pe/file/eTKKQUC7yWVoLujFfm6m5TQUJ2FdsEixZSc40SIIKw6jtpGRPL444uhst1DZjdgSBCPVk2T48hplsAP8xyz5qkAcwJ5jIrQ_B2R41BBEd6VfaSgDpA8t9-IgT7gPog1C32JSpfYW4Kg_T_RFQyHhZSm0gOLFvKBEegAaQ9GCJ9dq6BLwCZx8-SnmiCgEDNYWHjggUNkB2iIES6sqbvWYcdqYeitZdJSSRsTo6VKcUZrJI8fLEfqMSAKszsVwc00kjcTxh-S-kPjJ-DfgDwjV22hz6oL8DMhQSrf4wEgwGSgC9v1j4cleIAHvvyBr3Uz-1C_Lsjo6765f5ilBwliymA.jpg" width="400"><br>
+
+حزب مشروطه ایران (لیبرال دموکرات) اعلام کرد فؤاد پاشایی، دبیرکل این حزب، هدف «سوءقصد» قرار گرفته و در بخش مراقبت‌های ویژه بستری شده است.
+بر اساس بیانیه این حزب، این حادثه ساعت ۷:۴۵ عصر ۱۷ اوت (۲۶ مرداد) به وقت لس‌آنجلس رخ داده است.
+حزب مشروطه ایران همچنین می‌گوید پلیس لس‌آنجلس در حال تحقیق دربارهٔ این حادثه است و اطلاعات تکمیلی و «تأییدشده» دربارهٔ این حادثه بعداً از سوی حزب منتشر خواهد شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77948)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-19 16:35:44
+
+
+
+هیوا سیفی‌زاده، خواننده ایرانی که در جریان تک‌خوانی در «عمارت روبرو» در اسفند ۱۴۰۳ بازداشت شد، روز چهارشنبه ۲۸ مرداد با انتشار ویدئویی اعلام کرد که دادگاه او را به اتهام «تشویق به فساد و فحشا» به چهار سال حبس تعزیری محکوم کرده است.
+خانم سیفی‌زاده در این ویدئو به رای بدوی دادگاه اعتراض کرده و می‌گوید: خواندن شعر سعدی و آواز ایرانی چطور می‌تواند مصداق «تشویق به فساد و فحشا» باشد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77947)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-19 16:35:11
+
+<img src="https://cdn1.telesco.pe/file/md7QewVNv_VC3aOgWmrdWpYKVjgxl5yGG0qGxJPL3L9kzeRF0iu0QiSbdQ9pT33oIM4B78v4xFoa7QDWrR2k-Fk1zku3UWpky0OqoTw34vEgg5_WwQtZsXnBTzK2zCFDR7e_WKIOcKgwLW28e1meUqUqGH3c6bftOzJK2u_zBtEnoeAR7BZrdRr6r0XOt6WJTUCCaS9RRZFu2743x7oCJgPBgP1fnEFk6LN38eya2XhAILH-Q-unIP_MjdxA8UO6M5wcRd0qixfY66euiVyHMC86NPoD6XR_1CG19S755hKxh_VivMJiyVEvveGiAClp0LOMZXCQORf_z-3QPRaA8g.jpg" width="400"><br>
+
+هرانا: آرمین نورانی، خواننده موسیقی سبک رپ که با نام «خجسته» شناخته می‌شود، بازداشت و پس از مدتی با اخذ تعهد آزاد شد.
+در پی بازداشت این خواننده، ویدئویی از اعترافات اجباری وی منتشر شده است.
+در این ویدئو که مشخص نیست تحت چه شرایطی ضبط شده، آقای نورانی نسبت به شماری از اظهارات و مواضع پیشین خود در ارتباط با اعتراضات و حمایت از معترضان ابراز پشیمانی می‌کند.
+لازم به یادآوری است علاوه بر نقض کرامت انسانی که در سایه ضبط و پخش اعترافات اجباری صورت می گیرد، اساسا تا زمانی که فردی در محکمه محکومیت نهایی دریافت نکند، از منظر قانون بی‌گناه محسوب می شود و هرگونه اعمال مجازاتی پیش از محکومیت نقض حقوق شهروندی و انسانی او محسوب می شود.
+hra_news
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77946)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-18 23:53:50
@@ -133,7 +287,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-08-18 17:03:29
 
-<img src="https://cdn1.telesco.pe/file/fI46sZIvFsqsOJZVrR5-iUGiN9wg-KXcJ7gg6rRE70564jBPUOwKyX0ItOkbDf-A-0ZkBPQU6xKF7j2PQ6xM0U4WIJjTxRfvgEnF-Jy12Kmj2kw1VUe40MBu_SsM6gGKK4zde3PE0EcI9ekEKt4nlkAY1fkIODA1R_hGWggxup7VmSLy5tDzwF-w2O9yNRpGF_Gjv6WD3USrcYqEZTAcWWvhsdXNuk-7e4uBsFSarLPy2fAUE6_lhMjkriKyV4i02d02ixEg-j3nFGfj5wCqk6pIuSGNfJWK7hwF0A6g6-b8QPXsjn3F3m3ScIuuo4yG4n2b4akmO9sWEwQyn8m6GQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/YTVJmbIGjOIWS7Sltgh6mJCfyETu5VlGq9V-XkeSRR8fu2jDKLmVd3XVzw8aMT1HkJYcdv2hRdBth4DYi0S_D_Oqkm9R8931t1WkpEE0pTkLTo74HeK72fjqwdbcNr-iboMs8lrdimtCkPhMwxgchKNIcKD9bkj3K5bdbB78WJhn8CufiTvbwAt1Ljtwm3rFrCxwh6yo46FIClo2FR5uFjiijttjn9ZhsZczJ9qdp4shS7E8i9hfX-NjUZ9nVjLgY_prcQpL62ecpf8rj4sRPYrHpQf5JuCLULSzSt6b1y4ZVrPoB94nfnZpTpcxW4LM2QmroUUx5Vy7S8OFkbeasg.jpg" width="400"><br>
 
 ترامپ:
 هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره یا گفت‌وگویی نیز برنامه‌ریزی نشده است.
@@ -154,7 +308,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-18 16:28:33
 
-<img src="https://cdn1.telesco.pe/file/nKB9f3VV1mOFSljOyZN7FuD6Yt3xuApQ1kHFIDszYq71N9NvICZkeOiMks--7qtjgRxtunakTaeIgLTFKAwmhoWb_f0PPPTN1C_Cvc4nno3s03RKQgIKpIN-YqkUHGv35MUX2dyPLhMzelee4SvGaUy2PVGR6omgO1TAbnFz60UssidLI2mX9QU_AweafAhizA6eADNnDHs7LxhrBiwAqJK9451QfnDXBBO_Fg0Qdne9mfr_Mf8UW_Wy9-k9aI4SvZlXVf2GLQUP1Olh6JqbN6XjOvYceDQdFgZfM3baCWVTAVOkj2CkSwT_WS7vC_rDoajrcLWt2Q27LgZ0zn4JCQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nc3tC7dTD37YEReleqclAsBdV-cdOoRdp-c8B7G38Vm6zO9qR4SkDRUp6CCW_onLa2MouCDYsb2TVZycRwu-QDVtxpcigQU0G756co1buMhhFLI0VHw-CEEuB8DaRzlxS3ATkhChecMEUTXK9jlnFJ9hKhuBkT-IyNuHhgBvUqcSgYsw3nApz44wd7gelCB26oEW5TaQpmi_j5PRURqyajrfBDxeB8evkQNZFoVfThYfTwFhkkFldQBbIyESCtq_0eO_7ZY7DRnjPv6nU4tGnCkoSdZneBb0tkHpPIsS4c14900Yxx5BIfCy7lSgPr6b-xcYTqSTRyWT1nkLWAjcAg.jpg" width="400"><br>
 
 رئیس‌جمهور ایالات متحده روز سه‌شنبه ۲۷ مرداد در پستی در شبکه اجتماعی خود، تروث سوشال، بار دیگر تنگۀ هرمز را «قلمرو ایالات متحده» خواند.
 دونالد ترامپ با انتشار پست تازه‌ای در «تروث سوشال»، یک تصویر گرافیکی را به نمایش گذاشته که در آن، تنگۀ هرمز، به‌عنوان «قلمروی تازۀ» ایالات متحده نشانه‌گذاری شده‌است.
@@ -172,7 +326,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-18 16:26:12
 
-<img src="https://cdn1.telesco.pe/file/HAYakbECAlbS4FITYfsK8SWCrFKnH4W7G3Rp7un7-ChwYigfzXbLmC8JRsO9iNBYGG3_01qm7Vnkan9nOm2tDM0z7O7hoW1Z8T7nowslB40JI6sjYEANE4ESkVYxZJ_gvFNnzaTNIiNLOAq3Nvty-fievj-7dQlqRbzkfaIEjQvUabbyllBubR4MTBGKl63Sw1LD1yfG1k7fHUU4Zfnj5_8t8Epbj6-cry4vQZvYFWpBwvQh_CLYrA7JBZyxxFl06aV2SvTOz1WALQ4VGH-fEa8dzR-xhQQZMohX2XzYlyvEy_WMGYEZITozXB3HD9Z5igEpCTLEE6TArqf-geraWQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZAayLoUB-Twq0R3wcOUEZHyIofc2K5B-Vxof-hsZtOX5Ac_meOsSSvcu_vtalRnF-vQURVWJ0XHpwmWPjshuGfFs45h7-Lth99AI5Hn_XxMhz1YwfaUy8zxnEnPaHc62YS6BZON0rUTAj2BYcu-K3sU1hmOVkW68LayxEe4eNQezXt-qIlvwlNfZL4eHKbOtTi3PzeKcy2cPkDUTSOFaTS113H1I4LDXu4JAhsxDoRXeiPH2vwkdKm9tS35XkAgfrOvhp3p_H0LIHXTJnpPddMjdo4m2CiQqIRaEX1W5oc7ZAsNgLopndbkKuq37zibmVjU-3ODeKV7661yO0b006g.jpg" width="400"><br>
 
 سخنگوی وزارت خارجه قطر درخواست جمهوری اسلامی ایران برای ورود کمیته بین‌المللی صلیب سرخ به موضوع خلبانان ایرانی را «ترفند رسانه‌ای» خواند و گفت ایران هنوز به دعوت این کشور برای بررسی موضوع پاسخ نداده است.
 ماجد الانصاری روز سه‌شنبه ۲۷ مرداد گفت «دعوت دوحه از هیئت ایرانی برای سفر به قطر و بررسی این پرونده همچنان پابرجاست، اما تهران هنوز به دعوت دوحه برای اعزام هیئتی به قطر پاسخ نداده است».
@@ -182,218 +336,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77935)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 16:24:45
-
-
-
-رئیس مجلس شورای اسلامی و مذاکره‌کننده اصلی با ایالات متحده می‌گوید تهران تا قبل از رفع محاصرهٔ بنادر ایران توسط آمریکا و انجام برخی شروط دیگر، تنگهٔ هرمز را بازگشایی نخواهد کرد.
-محمدباقر قالیباف روز سه‌شنبه ۲۶ مرداد در نطق پیش از دستور مجلس، دیگر شروط ایران برای بازگشایی تنگهٔ هرمز را «آزادی اموال بلوکه‌شده، رفع تحریم نفت و پایان تهدید و عملیات نظامی در همه جبهه‌ها و دیگر شروط» تفاهم‌نامهٔ اسلام‌آباد دانست.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77934)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 16:19:01
-
-<img src="https://cdn1.telesco.pe/file/e7a2Wh5sKKYnfMT0may8kpnweGwoPS4lY62O0mLcuB8m87entLx-_PM5Gf8J_W67AKN4mBixf0RFoJnFKCeGlRFEiYCtVTuYWRPKgEDIuAIgh1319540RBKbEvOF-drPUhFxGYXJbM0WU8kVnPl9KTRIodL8Mr5iQiRwqeN1YW8gZUmSBaVNZNx8I2uAQIPc7VXrgGCM08drx2_IPtL-094QTiuxbAcovcdDr3cG-aRZ02mps_5QEQJ-cWPKjbNNx2RC8u06Gz1I1jNzJvLI0-IRzfTLK8eZ48BzEXL_w7IngUksDrsiXQm8rgSOoZym0yhxorGH4b8uuxJj_9jqKA.jpg" width="400"><br>
-
-پس از آنکه دونالد ترامپ کانال ارتباط پشت پرده آمریکا و سپاه پاسداران را تایید و دولت ایران و سپاه آن را تکذیب کردند، شبکه العربیه به نقل از منابع آگاه جزئیات جدیدی را از تلاش‌های نچیروان بارزانی، رئیس‌ اقلیم کردستان عراق، برای برقراری تماس بین آمریکا و سپاه گزارش کرده است.
-العربیه به نقل از منابع نزدیک به ریاست اقلیم کردستان عراق گزارش کرده است که آقای بارزانی در تلاش برای کاهش تنش میان تهران و واشنگتن، دیدارهایی با مقام‌های باندپایه ایران و آمریکا داشته است، از جمله دو دیدار در بغداد با اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران.
-به گفته منابع العربیه، آقای بارزانی میانجی‌گری میان ایران و آمریکا را از اوایل ماه مارس، یعنی چند روز پس از شروع حملات آمریکا و اسرائیل به ایران شروع کرده بود.
-دلشاد شهاب، سخنگوی ریاست اقلیم کردستان عراق، دیروز در پاسخ به پرسش بی‌بی‌سی‌ فارسی، تماس‌ بین آمریکا و سپاه از طریق آقای بارزانی را تایید کرد:
-«این خبر از یک جای قابل اعتماد منتشر شده و نام برخی افراد به عنوان منبع در این گزارش مطرح شده، ما هم همین اطلاعات و جزئیات را داریم، همه آنها صحت دارد و ما هم تایید می‌کنیم. من فعلا اطلاعات بیشتری جز آنچه منتشر شده نمی‌توانم بدهم.»
-خبر این تماس‌ها نخست در وبسایت اکسیوس گزارش شده بود.
-سایت خبری اکسیوس به نقل از منابع آگاه گزارش داده بود که آمریکا حدود یک ماه پیش از امضای تفاهم‌نامه با ایران، با میانجی‌گری نچیروان بارزانی، رئیس‌ اقلیم کردستان عراق، با سپاه پاسداران تماس برقرار کرده است.
-اسماعیل بقایی، سخنگوی وزارت خارجه ایران دیرور به خبرنگاران گفت: «خبر برگزاری نشست محرمانه میان ایران و آمریکا در اربیل کاملاً ساختگی است.»
-حسین محبی، سخنگوی سپاه، هم در واکنش به اظهارات دونالد ترامپ که وجود کانال ارتباطی پشت پرده میان آمریکا و سپاه پاسداران را تایید کرده بود گفت: «این دروغ ترامپ، صرفاً فانتزی‌هایی است که به خاطر توهمات و کابوس‌های ناشی از شکست و استیصال درجنگ به او دچار شده است.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77933)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 16:17:11
-
-
-
-رئیس مجلس شورای اسلامی می‌گوید که افزایش قیمت بنزین توسط دولت مسعود پزشکیان «تدبیری حساب‌شده نیست»، چرا که به ادعای او، «دشمن» برای این مسئله «برنامه‌ریزی کرده است».
-محمدباقر قالیباف روز سه‌شنبه ۲۶ مرداد در نطق پیش از دستور مجلس ادعا کرد که «بر اساس اطلاعات پیدا و پنهان، دشمن مترصد ایجاد آشوب و ترکیب آن با عملیات‌های نظامی مانند ترور و اقدامات تجزیه‌طلبانه است».
-او بدون ارائه راه‌حلی تأکید کرد که مشکل کمبود بنزین باید با برنامه‌ریزی جامع و بسیار هوشمند حل شود، به‌گونه‌ای که «بیشترین عدالت وکمترین نارضایتی را در مردم ایجاد کند».
-مسعود پزشکیان، رئیس‌جمهور ایران، روز ۲۵ مرداد با اذعان به تأثیر محاصره دریایی آمریکا علیه بنادر ایران گفته بود که راه ورود کالا به ایران بسته شده و دولت منابع لازم برای واردات بنزین را در اختیار ندارد.
-بر اساس آخرین آماری که دولت ایران منتشر کرده، تولید روزانه سوخت در کشور بالغ بر ۱۱۵ میلیون لیتر است، در حالی که مصرف آن به ۱۲۹ میلیون لیتر رسیده است که نشان‌دهندۀ ۱۴ میلیون لیتر کسری است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77932)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 16:06:08
-
-<img src="https://cdn1.telesco.pe/file/WBWm8Ibbb5JuoRldCmN1BgNFzftWJkKLU6nhxX8uFzrXjdYGzOCb0wY8ddFSWwGVviewVZAzWkpJdtOp1gxUPbbW6EE4GLj5aAvVee-XmYL_ZVy9iQsl7R2JuvpHcRRoCzfDRtz7GjMRZD6RwZ0bjpho6vqfBmG2yLypplRsNqQW6A2WylW_iIrfxMI0TjHswK6Rz82cEfjvueq1HwdRbAa4nrouqVVgQ0Y1VKW6t7Zt_0nP2TSrDE2oqNl88qzAjQ_FGd1NmRfJGFgv3l-AXyz3jPtSckA2m6dtCEdRYGRWUJC0nSPkev96NeUIZPwmb3g7wmFEWvKXT2-YdGEQpQ.jpg" width="400"><br>
-
-یک منبع مطلع به ایران اینترنشنال گفت که محسن (مهرداد) تکش، شهروند ۳۳ ساله در اصفهان در رابطه با اعتراض‌های دی‌ماه سال گذشته با اتهام محاربه به دو بار اعدام محکوم شده است.
-تکش، ساکن دیزیچه اصفهان، در جریان سرکوب اعتراض‌ها در هفته آخر دی‌ماه بازداشت شد.
-منبع مطلع گفت که او در دوران بازداشت به‌شدت شکنجه شده و دستش بر اثر شکنجه شکسته است.
-به گفته این منبع، تکش تحت فشار و شکنجه ناچار شده اتهاماتی را که بازجویان به او نسبت داده‌اند بپذیرد و همین اعترافات اجباری، مبنای تشکیل پرونده و صدور حکم علیه او قرار گرفته است.
-خانواده تکش تا حدود چهار ماه پس از بازداشت، از محل نگهداری و وضعیت او اطلاع دقیقی نداشتند. او پس از چهار ماه بی‌خبری، از بند الف‌ط زندان دستگرد اصفهان با خانواده‌اش تماس گرفت.
-منبع مطلع به ایران اینترنشنال گفت به‌جز اعترافاتی که تحت فشار و شکنجه از تکش گرفته شده، هیچ سند یا مدرک دیگری برای اثبات اتهامات مطرح‌شده علیه او در پرونده وجود ندارد.
-محسن تکش پیش از بازداشت، در دیزیچه یک تعمیرگاه مکانیکی موتورسیکلت داشت و از این راه امرار معاش می‌کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77931)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 07:31:04
-
-<img src="https://cdn1.telesco.pe/file/mxHG2ODEW4YkFkRNmnPt4iX2MU--3KAmbU-or9VzSKpD8zX68i4WdonVB0zcCB_nuzp-M7DM14tODBppYZpfJw_AiQ4GhIkbg2nPaWlCEwecSYlKU7qw1xo-457r0HF7LNpU6HbNxzf1oFA02sWEvbI43O3zLAbpCYnKJIPn1onjgDAWILCbf8TcBIk1usZds8UUbH93Ysnv1m9HyKoVVE_FhYURInBo-gZlhKqrq0Sd1EFHiCqVaEcAInAXBL0zLMtlKJfkuN2qzS_MWoBpM2Asxg0ici9i8f7vj7_qQXG8wMSMHjP5EhUyTSPy9qpSWHuzDPHmQ6BD1kKOaxkCpg.jpg" width="400"><br>
-
-UKMTO:
-مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
-افسر امنیتی شرکت گزارش داده که یک شناور هنگام عبور به سمت خارج از تنگه هرمز، با پرتابه‌ای ناشناس مورد اصابت قرار گرفته است.
-این برخورد به موتورخانه آسیب وارد کرده و باعث مصدومیت یکی از خدمه شده است.
-در حال حاضر، گارد ساحلی عمان در حال کمک‌رسانی به سایر خدمه است.
-تاکنون هیچ پیامد زیست‌محیطی گزارش نشده است.
-مقام‌ها در حال بررسی این حادثه هستند.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77930)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 07:29:02
-
-<img src="https://cdn1.telesco.pe/file/nLkfyCrtcnFFeCMaLqryPl8jSabSg8BpPGpShLg_K1hMh83Jw1CpltLmmaUp6G7wcLq9TrU5USad9w9PMm29ZH1dWeMmiWbruYseQ87vppnebZRSKPPY3-17qaW8FEkcTYymsL5L_us4GJzwwOBIr1eP8V2qn7zWTkU0EEXTmAIJhPiWrIO81HiuR8dBwJG9AhgoaMUPpdIXPgeNBRhQIJav6vuuYA7MtkZut-LtODYGUgBg4nKaLNPiWBxhvF-7DeiSNy6MLMJgTFIIe3oKNHpUupMW1UTdHrARz46PGUwu5FgWRb9dylrpN3cb-74BYmL7AmXnFHHFfcJCZiU7_A.jpg" width="400"><br>
-
-دادگاه فدرال کانادا در حکم نهایی خود درخواست سلمان سامانی، معاون و سخنگوی پیشین وزارت کشور جمهوری اسلامی در زمان سرکوب اعتراضات سراسری آبان ۱۳۹۸، برای توقف روند اخراجش از این کشور را رد کرد. بر این اساس، اداره مرزبانی کانادا موظف است حکم اخراج او را اجرا کند.
-سامانی پس از استعفا از سمت خود با ویزای توریستی وارد کانادا شده بود. این در حالی است که بر اساس قوانین کانادا، مقام‌های ارشد حکومت‌های ناقض حقوق بشر حق حضور در این کشور را ندارند.
-سامانی در درخواست خود مدعی شده بود در صورت بازگشت به ایران با «خطر شکنجه، اعدام یا خودکشی» روبه‌رو خواهد شد.
-بر اساس حکم دادگاه، قاضی این ادعا را رد و اعلام کرد سامانی در مصاحبه‌های خود از عملکرد وزارت کشور در آبان ۱۳۹۸ دفاع کرده و هیچ مدرکی وجود ندارد که نشان دهد حکومت ایران او را «خائن» می‌داند.
-قاضی همچنین تاکید کرد منافع عمومی کانادا در جلوگیری از تبدیل شدن این کشور به «پناهگاه امن سرکوبگران»، بر ادعاهای سامانی ارجحیت دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77929)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 07:28:30
-
-<img src="https://cdn1.telesco.pe/file/VOxofoMb-3Usd9T5Ev5vt-mT0Xl7AStSD1cE8VH9TRuFsnJPiHfPTrgHdVznSaTaWL-jCJcbhzn_6f_AZ-eCnrRzJPZdGrCr4ja5HBQbJZY-61HtSHrr_aRuyvRFU36FIVah-cwt9GWXCrLhS-spHBvtu6AK3McpMYWNo3tFmik0m9PiFcx3A2yzCBqGxPzbxJEpZMY7ez84WWoavNMdrrG9D5dTTZ6BUFaGbb7cmoQpSohcHydVunzKcEwQ2RTWZBwMAUC9Pbu_kNkfZ_ybztkG0tz6KP2FgKdGF7KPBe77jExcE95DOOdpk4sKHr-opcCeSsWWExsSU5DeXBAFpg.jpg" width="400"><br>
-
-رجب طیب اردوغان، رئیس‌جمهور ترکیه، در گفتگو با دونالد ترامپ، رئیس‌جمهوری آمریکا گفت که ادامه گفتگوها با ایران برای بهره‌گیری از دیپلماسی حائز اهمیت است و ترکیه آماده مشارکت در این زمینه است.
-دفتر ریاست‌جمهوری ترکیه اعلام کرد که در این گفتگوی تلفنی رجب طیب اردوغان، آمادگی آنکارا را برای حمایت از تلاش‌های صلح ابراز کرد.
-پیش از این جرد کوشنر، فرستاده دونالد ترامپ، رئیس جمهور آمریکا، گفته بود که گفت‌وگوهای ایران و آمریکا جدی و فشرده است، اما دو طرف هنوز به تفاهم نرسیده‌اند.
-آقای کوشنر که داماد دونالد ترامپ هم هست، به فاکس نیوز گفت که مذاکرات آمریکا و نهادهای مختلف حکومت ایران احتمالاً قوی‌تر از همیشه است، اما دو طرف هنوز به نتیجه نهایی نرسیده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77928)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-17 23:24:43
-
-
-
-سخنان ترامپ، بخش‌هایی مرتبط با ایران،
-ترجمه ماشین:
-🔻
-خبرنگار:
-درباره ایران، امروز صبح گفتید اگر عمان مانع بازگشایی تنگه هرمز شود، حسابی عمان را بمباران خواهید کرد. آیا می‌شود گفت صبرتان در برابر عمان، این شریک راهبردی، تمام شده؟
-🔺
-ترامپ:
-نه، فکر نمی‌کنم خیلی خوب رفتار کرده باشند، اما خیلی راحت با آن‌ها برخورد می‌کنیم، مثل کارهای دیگر.
-🔺
-ترامپ:
-وقتی اخیراً با رئیس‌جمهور کره جنوبی تماس گرفتم، که از او خوشم می‌آید و واقعاً فکر می‌کنم آدم خیلی خوبی است، به او گفتم: «مایلید کمی به ما کمک کنید؟ ما برای ایران به کمک نیاز نداریم، اما اگر مایلید، درباره ایران دستی به ما برسانید.»
-گفت: «نه، ممنون.»
-من گفتم: «یک لحظه؛ ما ۳۹ هزار سرباز آنجا داریم که از شما در برابر کیم جونگ‌اون، همسایه کناری‌تان، محافظت می‌کنند و شما نمی‌خواهید در یک عملیات نظامی خیلی آسان در ایران به ما کمک کنید؟ این عجیب است.»
-گفتند: «نه، نه، ترجیح می‌دهیم درگیر نشویم.»
-من می‌گویم خب، پس چرا ما درگیر کمک به شما هستیم؟ من می‌خواهم به آن‌ها کمک کنم، اما وقتی از کسی می‌پرسید «مایلید کمی به ما کمک کنید؟» و می‌گوید «نه، ممنون»، بعد ما داریم در برابر یک کشور از آن‌ها حفاظت می‌کنیم و خودمان میلیاردها دلار می‌پردازیم؛ این کار برای ما میلیاردها و میلیاردها دلار هزینه دارد.
-نه فقط برای آن‌ها، بلکه برای کشورهای دیگر.
-به ناتو نگاه کنید. ما صدها میلیارد دلار هزینه می‌کنیم تا از اروپا در برابر روسیه محافظت کنیم؛ صدها میلیارد، عمدتاً در برابر روسیه، اما در برابر چیزهای دیگر هم.
-بعد می‌گویند نمی‌خواهند وارد موضوع حفاظت از تنگه شوند؛ همان‌جایی که بیشتر نفتشان را از آن می‌گیرند. آن‌ها ۵۰ درصد نفتشان را از آنجا می‌گیرند و نمی‌خواهند درگیر شوند. پس چرا ما این کار را می‌کنیم؟
-تمام چیزی که می‌خواهم انصاف است.
-🔻
-خبرنگار:
-با منقضی شدن تفاهم‌نامه، آیا امروز به رسیدن به یک توافق نهایی برای پایان دادن به برنامه هسته‌ای ایران نزدیک‌تر شده‌اید؟
-🔺
-ترامپ:
-خب، آن‌ها می‌خواهند توافق کنند، اما قرار نیست آن نوع توافقی را که من ضروری می‌دانم انجام دهند.
-ببینید، ما فقط به یک دلیل آنجا هستیم: ایران نمی‌تواند سلاح هسته‌ای داشته باشد. متوجه هستید؟ ایران نمی‌تواند سلاح هسته‌ای داشته باشد و سلاح هسته‌ای هم نخواهد داشت.
-و همین حالا، اینکه آن‌ها بعد از کاری که قبلاً با بمب‌افکن‌های B-2 انجام دادیم یکی بسازند، قرار است... قرار است خیلی طول بکشد [نامفهوم].
-اما ایران نمی‌تواند داشته باشد؛ خیلی ساده است. آن‌ها نمی‌توانند سلاح هسته‌ای داشته باشند.
-🔻
-خبرنگار:
-هفته گذشته گفتید که به‌زودی تنگه هرمز را قلمرو ایالات متحده اعلام خواهید کرد. می‌توانید بیشتر توضیح دهید؟
-🔺
-ترامپ:
-خب، به نظرم ایده خیلی خوبی است. بله، منظورم این است که ما آن را کنترل می‌کنیم. با محاصره آن را کنترل می‌کنیم. ما محاصره داریم. با محاصره آن را کنترل می‌کنیم و ایده اعلام کردنش به‌عنوان یک قلمرو را می‌پسندم.
-ما کنترل کامل تنگه را در اختیار داریم. حالا آن‌ها می‌توانند دردسر درست کنند. می‌توانند در آب مین بگذارند و مردم خوششان نمی‌آید کشتی‌های میلیارددلاری‌شان به مین بخورد و از این قبیل.
-اما محاصره بسیار مؤثر بوده و می‌دانید، داریم خارج می‌کنیم؛ حالا شاید این متوقف شود یا شاید حتی بیشتر باز شود، اما ما هر هفته میلیون‌ها بشکه نفت خارج می‌کنیم. اگر به اعدادی که ثبت می‌کنیم نگاه کنید، داریم این کار را می‌کنیم.
-تنگه باز است و قیمت نفت در حال پایین آمدن است و به پایین آمدن ادامه خواهد داد، مگر اینکه تصمیم بگیریم کاری بسیار شدیدتر از کاری که الان می‌کنیم انجام دهیم.
-ایران در دردسر بزرگی است.
-آن‌ها تورم ۳۰۰ درصدی دارند.
-کشور به‌هم‌ریخته است و ارتش کاملاً شکست خورده است.
-خیلی ممنون از همه.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77927)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-17 21:13:19
-
-<img src="https://cdn1.telesco.pe/file/rPqFL38BCnvU_VnP-ldeAWKbneOTjMcLmRz7aMV9LpHk3gUiGnjEDwkIX_4gUp7Z4-eE2irS5I9RwxwjJOANAR2YJpHVlaUE5CItJae6WYCWdcgvDpQqF0swpxlI_GaY2Y4eXoLTzjWL1fAJ-zL5Z9KgBhqDW4BvH2N5cohPVljtnLOVUWJBRTXfGSqTNURQJm4OnU7TVkuSsYTnUtQRb2KJA7lh_qwTE85F21MgleXC09GbfS4uAQ-r0UudbwGYznZJE6vjM8hxsjlt8QlLFTFaIW4J9FIGNFOf1meSjsyDKrN09u4VaX9eSc5lVgo3T5BFD3G0vmPw_sgjXqpd6A.jpg" width="400"><br>
-
-تصاویر دریافتی: آتش‌سوزی بزرگ در میدان شهرداری گرگان
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77922)
 
 ---
 
