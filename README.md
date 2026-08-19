@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 17:53:31 </h5>
+<h5> 🟢 Updated at: 2026-08-19 18:51:45 </h5>
 </div>
 
 
@@ -230,7 +230,7 @@ mb_ghalibaf
 
 ###### 🔵 Post time: 2026-08-18 18:30:52
 
-<img src="https://cdn1.telesco.pe/file/YNIC_Lk-FF8uyn0QQlPCOTvrz_GiE54OLbu3IriAs_0JuL6MFqspVly_NTTBz8kIEIknt0Ss7kiR78PRvOQcrgXmUWeBuwmUbaMHKSghkaBF11mEvBj7V5eOVTCNAR-yJ1s3V5P_2dI4IDwFTLFkLEEijewEnvMkrASJpV0Qjx6sRon6362ZUPRqeB5G8-vqUKwm3J7jg63aVlqh0tMSpK1HTJnbVETmpR1_GEoP-4U7Tmdzz1yQ0BA8tjiU9pD2pXNIBpGaee1NH5D-vRgoUXWQU6kx_MxRE5OPx5XVnW5L8VXVsU5i9dRAu6vQcwDOlkprBMozcXsqdTVpy9w-bQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jRc7nxsKt2HiocgeaFc7JkEgTVnxaObLY7Ian6gozN_-1vxiZe0tFvrR5HxcAW7DYkjU5vROY_pya-HDKaImVw4jC4BXq59eJP9Ivw5VbJXHXIXX4GNL3V9ucdDH5J4YqtdW9LJfPHsUVvt9ZGc2UyWq-c6Vpy3g3iYA3i-0MBXZ6Tb6b6jqCYV_Y5gPs1mPdGxyM09rDQd68hsAZggqFpAWJ_BMtBFE-J8RpcRDpAIgfeolAurlJF9I8GGIsEDLzFiqZmrm1XE1kOqDKjxR4Hyzb9Kc7ntL0XGbAfx-oYzxiqYcsmuwfFfm_uZQX6J1iN2zMpeK3x6Vu2GmZxZ9pQ.jpg" width="400"><br>
 
 سازمان ملی مدیریت شرایط اضطراری، بحران‌ها و بلایای امارات:
 سامانه‌های پدافند هوایی امارات متحده عربی یک تهدید موشکی را که این کشور را هدف قرار داده بود، شناسایی کردند. لطفاً در مکانی امن بمانید و هشدارها و به‌روزرسانی‌های منتشرشده از طریق کانال‌های رسمی را دنبال کنید.
@@ -251,7 +251,7 @@ NCEMAUAE
 
 ###### 🔵 Post time: 2026-08-18 18:25:15
 
-<img src="https://cdn1.telesco.pe/file/oDpHsMY9tvrFQ9tLIOfzcZT5ySXYJSSkRXfNR8v5XF2ruZykhDL9MkU1lJxK0rE33tK-DZ_jmkBkZpySas4zfi0ULfq47QPwxm4QoSdkPVjSGJdP-MNGbGPPlhp00Y9uaDjC7mNdDTvsvbqwvaN2yHu_52DfaYJEj2zK72jNO7ZQQ7ifRGf_FYz1ENW4Bq-Q1SSPnqYaikWes4SNUq3dIfAVpi4JoLNGxeR2cJWaOhLXqYGO3f-W1IouiqodqGWM-42ZAAl5z_C5-RZz0DZdn9ZEOLxnUtkM9S4eT_54CUmHFHfKGFjFIU0My--IybvJv3GrAm0vID6Qb-qF5K1RGA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/uyoAf6MSmuLSo9Xhox0QqkCJBAYfSTl--_wCIxTkbYxO9cTkMcTWGjWC1he5SckY4MqvVJoC_A7xh5BlBSDPqN_i4ll2DdzNd0IBYNKX653G162mBb0DQ5mzI3LeR666sus53PC5i6jsSoGc0ZW7DO7U-Wc6G30zFWB0r7C4KNoqikkuFCl1IXGhSdFnA8H6jTu7GPsOGVcQYdsm1-D8hm-hsqKOzOVbXre0blbiwiDz2gVMzbFU_eZdyxfO_YYUj2ZLjPnO1G_h0e2tNGA6QYKXVLyJ9MW7NPoOpNFkEu1k25WsusAkSgl9W16AiIbCgvc2-6NynoVPJyn2h7S3Ag.jpg" width="400"><br>
 
 وحید همین الان دبی آلرت موشک ۱۸:۵۲ وقت محلی
 پیام و تصویر از دو شهروند مختلف
