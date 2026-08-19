@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 07:08:41 </h5>
+<h5> 🟢 Updated at: 2026-08-19 07:58:16 </h5>
 </div>
 
 
@@ -272,7 +272,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-18 07:31:04
 
-<img src="https://cdn1.telesco.pe/file/QZ7zqFleOZKXFNpnBFUgcgL0JDmBpNKu7uSOqYtw7ywQPrxTLDx7Y2YPfx2HxYz_S7gzruczTXXALhwlQtWl09GhLix8hmv5f2JwoSPS-cYI9mZ1YxuQsa3H5Q5WEgMPOEso7FSea30I18EpCYlYwNLN5CLKdIxp-mezSHj28W9rlbC_kEgSSmUvDGgBb-hneQRrgwx_Pz6XQ-Wa4p3sWLo1TmjdL7A9Qi12e6BXwKx48cXpTuRm31UuVNFMNlFRudnt954TyX1qb-xijPW3zO4zJiEw_hzhnu4CfmbuupMxV-CO6O63W36_VwqhLe21XszsK_Zx14Tn4gu2nmP7ag.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mxHG2ODEW4YkFkRNmnPt4iX2MU--3KAmbU-or9VzSKpD8zX68i4WdonVB0zcCB_nuzp-M7DM14tODBppYZpfJw_AiQ4GhIkbg2nPaWlCEwecSYlKU7qw1xo-457r0HF7LNpU6HbNxzf1oFA02sWEvbI43O3zLAbpCYnKJIPn1onjgDAWILCbf8TcBIk1usZds8UUbH93Ysnv1m9HyKoVVE_FhYURInBo-gZlhKqrq0Sd1EFHiCqVaEcAInAXBL0zLMtlKJfkuN2qzS_MWoBpM2Asxg0ici9i8f7vj7_qQXG8wMSMHjP5EhUyTSPy9qpSWHuzDPHmQ6BD1kKOaxkCpg.jpg" width="400"><br>
 
 UKMTO:
 مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
@@ -313,7 +313,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-18 07:28:30
 
-<img src="https://cdn1.telesco.pe/file/Tu6cJfd1YeR9wecHre23pzjT_r8sQXhVJ1iCv1uFNDCGOk9ksZCnxxRno1iwPeIp3MRunG5c1KF6azd-7wmIs6-8-fDeIy35k6P_j5k8Gi_NCiMYb1aXI3ovSUhBprKqysL9weTKkx1m5_wohyT5savjcQW8eKzC2Ojg0lboQbClxLlUnXZU4v4ry9nsL-okh_uA96Tk54NxnLbuii62Mkny-s0oS6VAptcqLXuzeY5rmS8rh_jjhhKn7os-o7WdfHb3eIZ0JUUBUps5QZ8RuIYRzd0KMxYvEWzAPOMv33UJjLBeEluW2EAnx8Gtw_LqjaQGZMB7_q3Hnb1GBYElxw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VOxofoMb-3Usd9T5Ev5vt-mT0Xl7AStSD1cE8VH9TRuFsnJPiHfPTrgHdVznSaTaWL-jCJcbhzn_6f_AZ-eCnrRzJPZdGrCr4ja5HBQbJZY-61HtSHrr_aRuyvRFU36FIVah-cwt9GWXCrLhS-spHBvtu6AK3McpMYWNo3tFmik0m9PiFcx3A2yzCBqGxPzbxJEpZMY7ez84WWoavNMdrrG9D5dTTZ6BUFaGbb7cmoQpSohcHydVunzKcEwQ2RTWZBwMAUC9Pbu_kNkfZ_ybztkG0tz6KP2FgKdGF7KPBe77jExcE95DOOdpk4sKHr-opcCeSsWWExsSU5DeXBAFpg.jpg" width="400"><br>
 
 رجب طیب اردوغان، رئیس‌جمهور ترکیه، در گفتگو با دونالد ترامپ، رئیس‌جمهوری آمریکا گفت که ادامه گفتگوها با ایران برای بهره‌گیری از دیپلماسی حائز اهمیت است و ترکیه آماده مشارکت در این زمینه است.
 دفتر ریاست‌جمهوری ترکیه اعلام کرد که در این گفتگوی تلفنی رجب طیب اردوغان، آمادگی آنکارا را برای حمایت از تلاش‌های صلح ابراز کرد.
