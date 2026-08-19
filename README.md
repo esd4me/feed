@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 17:06:49 </h5>
+<h5> 🟢 Updated at: 2026-08-19 17:53:31 </h5>
 </div>
 
 
@@ -267,7 +267,7 @@ NCEMAUAE
 
 ###### 🔵 Post time: 2026-08-18 18:05:30
 
-<img src="https://cdn1.telesco.pe/file/svIrnI7F-4bXMZgMhdcGQsTt2y1PzXrBZw6DQ7Q59ZgtDhx5Em0Vkq73BZY10oXqIdHqWSnfyRPXyZz7Jk31vUdbJTOz0JvyERsNPBOHhw8RIszTDJAU_VCRtmkCVJwbrzuX9gZPUAtGuZ8iczHEtloB8SMH1CjoD6FSzQ5wmDGbuRnpihM1fTcMkzGyVH68LOAHtzf5JvdHuXtoCJPtLe3pHNtpcopkyt4ur37uC2uBwqSyRHlmKrYAFO8w-KVHT_oT8-bkMVkUF58B1RKZTus0ELojhctoVTwCRHnuxDnSnhLPpfpn4WQT9-P6VV7_jQ5i9z5UFwaeFi5Eq-X5-Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/bw3kGGhsJ3OiYLXuzCAqQ2p7WHHvP_QrOZV20n5ByZKQG3XGJCXUIJNDxvj_Vka9S2MsJjQqBix-YuVbq93rFpY6kDFhdRMI3HQZDPpoEYLhHXx3GBMNfD8F6bFasivZyrEykXieDWQqvJJHXhWgMrtEfi2CNbzg_8SdHLhB21xDYfQOTeO_naRBy4Is8D0h47hgxv8nbpA9UGUMjEHigEpfzdt2HyTTWYWLVuk14UFf0VNeb4TgxGknBJK3YHhhGTaNuhYwWtIKdyIHo8j4LRlFVkN9UkiGgj-0TWCIZjS2bOyhYd2C7Oq421hCcd1ZAOjG-slwuqbF9WZWwyA7eA.jpg" width="400"><br>
 
 UKMTO:
 مرکز عملیات تجارت دریایی بریتانیا با تأخیر گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
