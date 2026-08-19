@@ -3,8 +3,46 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-20 01:45:02 </h5>
+<h5> 🟢 Updated at: 2026-08-20 02:44:32 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-20 02:33:29
+
+<img src="https://cdn1.telesco.pe/file/Oso4BXgyF5TK88PXARG3d7F_LJ5tkcRwFP3I06F8XqwVRQXkzboDHw4QUh9H03F5FNJ8RQyJb9J4DZbfYLtsmfmHdnDqZUZIIAWQs2NA_U9WBrS51pgC7Ht4sVHfKYwU4SofAns4rCqaW1aCO9PF1fRKA8nnjLHRJBXgZ40y1ppHjQmFXQJYP7hW4z6H0avLWDSWekM6CGRSfLPc6h5YcXAROQzQ9Pj4Ago46zsFWoHMqvLWA-sUyvI1TufvQV8SMJbVKEmkZOjQkDgzaE3weyM7ENt2p6BQallNvVAyzPNWCowbVBeV6saIvaplMeQCd5bIBFV-Cy1Ay_GGZJV3gg.jpg" width="400"><br>
+
+☄️
+ترامپ:
+هیچ‌کس بیش از من به جمهوری اسلامی ایران فرصت بزرگی برای رسیدن به یک توافق نداده است. به‌طرزی فاجعه‌بار برای خودشان، نتوانستند از آن استفاده کنند.
+بنابراین، امروز اعلام می‌کنم که
+کوبنده‌ترین عملیات اقتصادی‌ای که تاکنون علیه هر کشوری انجام شده است
+، آغاز خواهد شد!
+این، جنگ اقتصادی و انزوا در مقیاسی بی‌سابقه خواهد بود.
+نیروی دریایی‌شان از بین رفته، نیروی هوایی‌شان نابود شده، کارخانه‌های نظامی‌شان اکنون به تلی از آوار تبدیل شده، پولشان بی‌ارزش است و کشورشان به مویی بند است.
+امروز همچنین اعلام می‌کنم که
+هر کشوری
+که به مؤسسات مالی، کسب‌وکارها، فرودگاه‌ها یا نهادهای دولتی خود اجازه دهد هر نوع راه نجاتی برای ایران فراهم کنند، خود با
+پیامدهای اقتصادی عظیمی
+روبه‌رو خواهد شد.
+قاچاق نفت، خطوط سوآپ، انتقال پول نقد، صرافی‌ها، ثبت کشتی‌ها، شرکت‌های پوششی — همه این‌ها باید
+همین حالا
+متوقف شوند. خودتان می‌دانید چه کسانی هستید.
+این یک
+روز اقتصادی (ECONOMIC D-DAY)
+خواهد بود و ما به همه متحدانمان نیاز داریم که در کنار ایالات متحده آمریکا بایستند تا تهدید ایران را منزوی و شکست دهند.
+این دیوانه‌ها به آخر خط رسیده‌اند و این اقدامات تاریخی آنها و توانایی‌شان برای گسترش ترور در سراسر جهان را فلج خواهد کرد.
+ایران هرگز سلاح هسته‌ای نخواهد داشت.
+از توجه شما به این موضوع سپاسگزارم.
+رئیس‌جمهور
+دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77961)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-20 01:15:19
@@ -341,27 +379,6 @@ mb_ghalibaf
 
 
 [View Post](https://t.me/VahidOnline/77942)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 18:30:52
-
-<img src="https://cdn1.telesco.pe/file/jRc7nxsKt2HiocgeaFc7JkEgTVnxaObLY7Ian6gozN_-1vxiZe0tFvrR5HxcAW7DYkjU5vROY_pya-HDKaImVw4jC4BXq59eJP9Ivw5VbJXHXIXX4GNL3V9ucdDH5J4YqtdW9LJfPHsUVvt9ZGc2UyWq-c6Vpy3g3iYA3i-0MBXZ6Tb6b6jqCYV_Y5gPs1mPdGxyM09rDQd68hsAZggqFpAWJ_BMtBFE-J8RpcRDpAIgfeolAurlJF9I8GGIsEDLzFiqZmrm1XE1kOqDKjxR4Hyzb9Kc7ntL0XGbAfx-oYzxiqYcsmuwfFfm_uZQX6J1iN2zMpeK3x6Vu2GmZxZ9pQ.jpg" width="400"><br>
-
-سازمان ملی مدیریت شرایط اضطراری، بحران‌ها و بلایای امارات:
-سامانه‌های پدافند هوایی امارات متحده عربی یک تهدید موشکی را که این کشور را هدف قرار داده بود، شناسایی کردند. لطفاً در مکانی امن بمانید و هشدارها و به‌روزرسانی‌های منتشرشده از طریق کانال‌های رسمی را دنبال کنید.
-NCEMAUAE
-آپدیت:
-پایان وضعیت اضطراری
-پیامک جدیدی که برای شهروندان در دبی ارسال شده:
-از همکاری شما سپاسگزاریم. به شما اطمینان می‌دهیم که وضعیت در حال حاضر امن است. می‌توانید فعالیت‌های عادی خود را از سر بگیرید، اما همچنان احتیاط کنید، اقدامات پیشگیرانه لازم را رعایت کنید و دستورالعمل‌های رسمی را دنبال کنید.
--وزارت کشور [امارات]
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77941)
 
 ---
 
