@@ -3,8 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-19 19:50:07 </h5>
+<h5> 🟢 Updated at: 2026-08-19 20:48:43 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-19 20:07:14
+
+
+
+دونالد ترامپ هنگام بازدید از محل احداث بالگردگاه جدید در کاخ سفید، در پاسخ به پرسش خبرنگاران درباره احتمال گفتگو با تهران اعلام کرد که در حال حاضر شرایط مطلوب است، اما امکان مذاکره در آینده وجود دارد.
+ترامپ با تاکید بر موضع واشنگتن در قبال برنامه هسته‌ای ایران گفت: «موضوع بسیار ساده است؛ آن‌ها باید به‌طور کامل سلاح هسته‌ای را کنار بگذارند. ایران نمی‌تواند سلاح هسته‌ای داشته باشد، چرا که از آن استفاده خواهد کرد و ما اجازه چنین کاری را نخواهیم داد.»
+رئیس‌جمهوری آمریکا در نهایت تصریح کرد که ایران نباید به سلاح هسته‌ای دست یابد و دست نخواهد یافت.
+@
+VahidOOnLine
+ترامپ افزایش عبور کشتی‌ها از تنگه هرمز خبر داد و گفت آمریکا کنترل کامل این آبراه را در اختیار دارد. به گفته او، شب گذشته تعداد زیادی کشتی از تنگه هرمز عبور کردند و اقدامات ایران، از جمله شلیک گاه‌به‌گاه به پهپادها را «مزاحمت» توصیف کرد.
+رئیس‌جمهوری آمریکا همچنین گفت قرار نیست همه کشتی‌ها از تنگه هرمز عبور کنند، اما تردد در این آبراه ادامه دارد. ترامپ پیشتر نیز از کنترل کامل آمریکا بر تنگه هرمز سخن گفته بود و مقام‌های ایران این اظهارات را رد کرده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77956)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-19 16:51:03
@@ -202,7 +224,7 @@ jnbarrot
 
 ###### 🔵 Post time: 2026-08-18 21:03:05
 
-<img src="https://cdn1.telesco.pe/file/TlwoG_Al22gIId6HudCRyDG3uwzQ24i1t_vxuECYOF6BlVjS0B3UWPPFWPHIIN-hq-XRr4j07A5w6TtvgsDzSWLxzUD0Pf-uL_HYDsGyEUSMPPG5mc1bSpTGvFt4ZJngkq14n-q9r2ku41I5WBil_KvwazXTbTKncqq46hYRk4wOgj_OAzfLVyIQdGzECaIvAEqcwwZ_LjZGro9Z3LdfivE3MJQ8vd07Yufbs011Iv9uQvdaLT6cpGfjNXVgXYgiBIVMZ8XmDTntZKBR-3n7QheWjzDrW62UcrFqg0CGXEVjFZSTLV5q7qIDYk2dxPzAoK_Olp9ASYoZRLMdXkV50Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mbg5FofsAtHurSHKbRZgz-Xfysb8nII9JpnEydtWQzfKX8zsSG3MzaZFIvCnofE7UIBVzFGiu1CKXUfoV1aL9e-eigwNdE9p4RFyFqxvErVY6IreDGR5e0-BaZ9l8tk6OFRsYWKJ72S7rir0XuKHWNEJwIMt4kaGECi79J_v_PlCyZpHQ4XVqmuUTlflibHJ7xQvYj2BynHRlX7CpCnqA9YQ1wT3J-D53saR-BQOkkhv2pzgHxTHbtPogjWtYTqM9ofkWN2aQAhPyNh43xckq1m9qsoxNwOLL6_pnehgp6OjFCHKmZ_wIKIv1V8Se16nou1C7RvnTDlTENpKiGBgZA.jpg" width="400"><br>
 
 قالیباف:
 آمریکایی‌ها فکر می‌کنند اگر فشار بیشتری بر ایران وارد کنند، می‌توانند امتیازهایی بگیرند که اصلاً جزو توافق نبود. بسنت و هگست واقعاً در حد و اندازه این کار نیستند. دیگر منتظر نباشید این دارودسته دلقک‌ها از کلاهشان خرگوش بیرون بیاورند؛ خودتان افتضاحی را که به بار آورده‌اید جمع کنید.
@@ -319,23 +341,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77936)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 16:26:12
-
-<img src="https://cdn1.telesco.pe/file/ZAayLoUB-Twq0R3wcOUEZHyIofc2K5B-Vxof-hsZtOX5Ac_meOsSSvcu_vtalRnF-vQURVWJ0XHpwmWPjshuGfFs45h7-Lth99AI5Hn_XxMhz1YwfaUy8zxnEnPaHc62YS6BZON0rUTAj2BYcu-K3sU1hmOVkW68LayxEe4eNQezXt-qIlvwlNfZL4eHKbOtTi3PzeKcy2cPkDUTSOFaTS113H1I4LDXu4JAhsxDoRXeiPH2vwkdKm9tS35XkAgfrOvhp3p_H0LIHXTJnpPddMjdo4m2CiQqIRaEX1W5oc7ZAsNgLopndbkKuq37zibmVjU-3ODeKV7661yO0b006g.jpg" width="400"><br>
-
-سخنگوی وزارت خارجه قطر درخواست جمهوری اسلامی ایران برای ورود کمیته بین‌المللی صلیب سرخ به موضوع خلبانان ایرانی را «ترفند رسانه‌ای» خواند و گفت ایران هنوز به دعوت این کشور برای بررسی موضوع پاسخ نداده است.
-ماجد الانصاری روز سه‌شنبه ۲۷ مرداد گفت «دعوت دوحه از هیئت ایرانی برای سفر به قطر و بررسی این پرونده همچنان پابرجاست، اما تهران هنوز به دعوت دوحه برای اعزام هیئتی به قطر پاسخ نداده است».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77935)
 
 ---
 
