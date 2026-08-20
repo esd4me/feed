@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-20 21:54:32 </h5>
+<h5> 🟢 Updated at: 2026-08-20 22:54:03 </h5>
 </div>
 
 
@@ -225,7 +225,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-19 23:01:10
 
-<img src="https://cdn1.telesco.pe/file/Z1H20w4CG4bRs5bIzsFr8s_KPlpFUdspAvKy-f1MnPHEwgIhWTOuyS0kMA8ZcqV66MojodN9mKNTN6bTE4TQqejlEnlQOZcCo1aMH59zIwPBaxw8NOIwg4mbvBPtqsTZ_dODbT7G6CRddTWZl7zctuiikS21nKoQGYWLjdNbdv33DfBdjcrbsq-s7qkOwLvEGf1Y1u-zWbeAB8bVrkL3agRsKXXnYJ3KLSbImwZ8WEikquZEEV-qG5om8Ds6ph10QXZ0PiIw01AqyL3WcJtLX8U11rW9yn1DLtkUsOeDGzbWjLIS4adVDSWOLwHLEyg1jyIZo90zKj44qyZ173i2CQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/v_jgPdp3wxoAmgfq2Bpl7EX7TvBrZfsc9dURQMzPpdorM-qVnxP0NPYmoP9oUc7EOxodYh4FpSirIUjOO5jlyErIhSPu9mPT_l73jODAEq1CCTT4U6VcwWjh2MNQsq3_Xz8C5oM55ZcYTLZaf2rUKr-GZG9YDHyIeFr902U6BDsX_Gt_jOCNcYyL4BSmz43rq4OaHZwpC2rDb-QNta30iG_9NAont3qSXIn6GCB2N1dIYaBaM4rIjgSOh31y8ehtHaECSpqidZqG_E6IbHhfjpjH_Vx3va9VAy3wx4DdT3VkzZ-3IOgYBvfG8da9zvInz4zNVP4fZLNGudyWKRepNw.jpg" width="400"><br>
 
 دولت فرانسه روز چهارشنبه نیلوفر شادمهری، رایزن فرهنگی سفارت ایران، در این کشور را اخراج کرد.
 ساعاتی پیشتر وزیر امور خارجه فرانسه رسما خبر داده بود که به عنوان اقدام متقابل دو وابسته سفارت ایران را از فرانسه اخراج خواهد کرد.
