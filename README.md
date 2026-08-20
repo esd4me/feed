@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-21 01:47:06 </h5>
+<h5> 🟢 Updated at: 2026-08-21 02:47:18 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-21 01:47:44
+
+<img src="https://cdn1.telesco.pe/file/KUDd0xV5x7m15V4npLjyHXnKsc9xnv0wCghrJO2F5iyidFV25Clz-fzuQeheIdS0f5TM7Y7DzGU3h4N5cjYO99vJpBYBmTF6BalpZnepyGd6zuA17no2OK5N5DxzfH4Yywr5CtsuPB9N9wJO0nSV0fIQ6kbsS1Mx34Rk-2xtfs0HzD215MFh5DYeMz9FfWFWsgJLwEFKOtYciGy5ECA_5E88zcZmaAkhIGuULsR6Z-_7ohbRSH0ydKm-OyDH3jM3IEt45V65CvSFrH9nTFU0IfSp8LyuiJ88q6mRX0o0Qq_g0100TWrIgNDWkVVc40qzjbaNYVZZpHZKPQ0YMfXeow.jpg" width="400"><br>
+
+پس از «دونالد ترامپ» رییس‌جمهور ایالات متحده و «اسکات بسنت» وزیر خرانه‌داری آمریکا، «جی‌دی ونس» معاون اول ریس‌جمهور آمریکا از آغاز «مرحله جدیدی» از جنگ ایالات متحده و ایران خبر داد و گفت: «موثرترین ابزاری که برای اعمال بر حکومت ایران داریم، فشار اقتصادی است.»
+جی‌دی ونس که در پادکست  «کلی تراویس اند باک سکستون» صحبت می‌کرد به «تعامل ظریف» بین دو کشور اشاره کرد و گفت: «ما به آنها فشار اقتصادی وارد می‌کنیم، آنها نیز سعی می‌کنند به ما فشار اقتصادی وارد کنند. اما آنچه در چند هفته گذشته واقعیت داشته این است که آنها فشار بسیار بیشتری نسبت به ما متحمل شده‌اند.»
+به گفته معاون دونالد ترامپ آمریکا این روند را ادامه خواهد داد چرا که بر این باور است «این بهترین راه برای دستیابی نهایی به هدف نهایی» این کشور است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77976)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-21 01:46:59
@@ -134,7 +152,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-20 02:33:29
 
-<img src="https://cdn1.telesco.pe/file/Oso4BXgyF5TK88PXARG3d7F_LJ5tkcRwFP3I06F8XqwVRQXkzboDHw4QUh9H03F5FNJ8RQyJb9J4DZbfYLtsmfmHdnDqZUZIIAWQs2NA_U9WBrS51pgC7Ht4sVHfKYwU4SofAns4rCqaW1aCO9PF1fRKA8nnjLHRJBXgZ40y1ppHjQmFXQJYP7hW4z6H0avLWDSWekM6CGRSfLPc6h5YcXAROQzQ9Pj4Ago46zsFWoHMqvLWA-sUyvI1TufvQV8SMJbVKEmkZOjQkDgzaE3weyM7ENt2p6BQallNvVAyzPNWCowbVBeV6saIvaplMeQCd5bIBFV-Cy1Ay_GGZJV3gg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MQ-oiJnyCD-6o0yvOR-qyvHb-_Wm5G-faHWh0wSqJl1_fEkfhKDnCxh7SUpFSVupP6SN9Ug-J83WnonqR-NqC7mhbDvr2afIFqYuTD3zvplDGFIFXDOXCl5WgGn-9BNUTy_Dhkf1Jicnb8uSVcYA3EytR-EM-Upi2TRreL6oRPvUq5nBOglS6qi6KsAkf3PCFiy_r7fZouW5TNNiabiXp2tRzN3DWy7W9K7huXyflo5yjJ8pNo3xST0msNLVPrxNstKI9R_gIAFbdZtnEwRidGR-f82BzAvEdkf28gqB5lMwFlkd3rKB4Nk9ORtsZlW5rl3Wvz052dMWQEI4AIUwsw.jpg" width="400"><br>
 
 ☄️
 ترامپ:
@@ -256,33 +274,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77957)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-19 20:07:14
-
-
-
-دونالد ترامپ هنگام بازدید از محل احداث بالگردگاه جدید در کاخ سفید، در پاسخ به پرسش خبرنگاران درباره احتمال گفتگو با تهران اعلام کرد که در حال حاضر شرایط مطلوب است، اما امکان مذاکره در آینده وجود دارد.
-ترامپ با تاکید بر موضع واشنگتن در قبال برنامه هسته‌ای ایران گفت: «موضوع بسیار ساده است؛ آن‌ها باید به‌طور کامل سلاح هسته‌ای را کنار بگذارند. ایران نمی‌تواند سلاح هسته‌ای داشته باشد، چرا که از آن استفاده خواهد کرد و ما اجازه چنین کاری را نخواهیم داد.»
-رئیس‌جمهوری آمریکا در نهایت تصریح کرد که ایران نباید به سلاح هسته‌ای دست یابد و دست نخواهد یافت.
-@
-VahidOOnLine
-ترامپ افزایش عبور کشتی‌ها از تنگه هرمز خبر داد و گفت آمریکا کنترل کامل این آبراه را در اختیار دارد. به گفته او، شب گذشته تعداد زیادی کشتی از تنگه هرمز عبور کردند و اقدامات ایران، از جمله شلیک گاه‌به‌گاه به پهپادها را «مزاحمت» توصیف کرد.
-رئیس‌جمهوری آمریکا همچنین گفت قرار نیست همه کشتی‌ها از تنگه هرمز عبور کنند، اما تردد در این آبراه ادامه دارد. ترامپ پیشتر نیز از کنترل کامل آمریکا بر تنگه هرمز سخن گفته بود و مقام‌های ایران این اظهارات را رد کرده‌اند.
-@
-VahidOOnLine
-ترامپ می‌گوید مردم در حال یافتن جایگزین‌هایی برای تامین نفت به‌جای تنگه هرمز هستند و تگزاس، آلاسکا و لوئیزیانا را از جمله این گزینه‌ها معرفی کرد. او گفت خریداران برای تامین نفت به ایالات متحده روی آورده‌اند.
-او گفت یکی از دلایلی که قیمت نفت به ۳۰۰ یا ۳۵۰ دلار در هر بشکه نرسیده، افزایش عرضه و روی آوردن خریداران به منابع جایگزین است. او افزود قیمت نفت اکنون حدود ۸۳ تا ۸۵ دلار است و پس از پایان شرایط کنونی، بسیار پایین‌تر خواهد آمد.
-رئیس‌جمهوری آمریکا با تاکید بر اینکه این کشور نفت کافی در اختیار دارد، گفت: «مردم دارند جایگزین‌هایی پیدا می‌کنند. یکی از این جایگزین‌ها تگزاس است. یکی دیگر آلاسکا و دیگری لوئیزیانا است. آن‌ها برای تهیه نفت به ایالات متحده می‌آیند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77956)
 
 ---
 
