@@ -3,8 +3,68 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-20 14:48:42 </h5>
+<h5> 🟢 Updated at: 2026-08-20 15:58:35 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-20 15:32:49
+
+<img src="https://cdn1.telesco.pe/file/HESvSMcfb2dGxCqjZ00tT8u_kJnY3RCDp1F1h78P2hmPJZ5aNASbRkiLK3XSneQjaeOwVLU5XeaVSDF2_QkFSwmtb2qLmYGzPiPFl8WRXfc_xs0t6f8P_m6W943Qz4BElLhbzJTMAy4rjuKS7ZvSfQu5g999UZi4c-dLsJ7AdcqoGRoERLQaSxkaTgf7qMgfZkg1lmuuok6APFG43Vu3gYl7adrI-NrjrTYZXrdMepjmbFilPWcDc95kY411QDhH9OwDOsHgtOzAj54HWBjUW_h6X3IaQ7N-XYOq3nNdmJClIbe1EY3B12EICJVFayBhDWIf4_d2Z-t1eifgzKyTeg.jpg" width="400"><br>
+
+عباس عراقچی، تهدید دونالد ترامپ مبنی بر آغاز کارزار اقتصادی گسترده موسوم به «روز دی اقتصادی» علیه ایران را تلاش برای سرپوش گذاشتن بر «بحران‌های داخلی آمریکاست» توصیف کرد و از «بدهی‌های بی‌سابقه و هزینه‌های فزاینده نرخ بهره» به عنوان نمونه‌هایی از این بحران‌ها نام برد.
+@
+VahidOOnLine
+معاون وزیر امور خارجه جمهوری اسلامی ایران سخنان ترامپ در مورد کارزار «روز دی اقتصادی» علیه ایران را تلاش «محاسبات غلطی» خواند که برای پوشاندن «شکست‌ بزرگتری» ساخته شده است.
+کاظم غریب‌آبادی نوشت: «ادعا می‌کنند ایران در آستانه شکست است و به یک نخ بند است، اما به همه متحدانشان التماس می‌کنند که کمکشان کنند.»
+معاون وزیر امور خارجه ایران در ادامه افزود: «جنگ نظامی نتیجه نداد، حالا اسم شکست بعدی را جنگ اقتصادی گذاشته‌اند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77966)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-20 15:28:40
+
+
+
+عبدالناصر همتی، رئیس بانک مرکزی ایران، در یک گفت‌وگوی تلویزیونی تأیید کرد که صادرات نفت ایران در حال حاضر متوقف شده است.
+او شامگاه چهارشنبه ۲۸ مرداد اظهار امیدواری کرد که تفاهم‌نامهٔ ایران و آمریکا احیا و مذاکرات از سر گرفته شود.
+این نخستین بار است که یک مقام رسمی جمهوری اسلامی به شکل رسمی از «توقف» صادرات نفت ایران خبر می‌دهد.
+در هفته‌های اخیر برخی مقام‌های جمهوری اسلامی با اشاره به تشدید بحران اقتصادی و معیشتی، نسبت به دور تازه اعتراض‌ها هشدار داده و از آمادگی برای برخورد با آن خبر داده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77963)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-20 15:19:27
+
+<img src="https://cdn1.telesco.pe/file/r6tvSEBz49r2tUAZnhjl30qbEE1_rooAVK8HKD1PJL4nozSYuZFMQbpP7_M8To_VzT8MCJWoUomIu46Viu3E8u_DueFsyxAnPJS-cjKwaZe5lWeq-5zeqk3c27jef_hKkEWtaeM7oQxR8agmOqYk3P1jAUPbV9YmZScjHKSoPcqd4vPjM59otJC77mZpTYm6TRLSZeUbfzAkwk4MFHKBhEClS5trMu2zxR4Yagn3wCxz9llGIE9UafhKDGaEtJc84WI-ouqC1jD1hAtSyFLVQi2y1MeeowwG319M3TvCrdb4NJKvDWgdNHBFy_Ehtlu7_rK0XtqJa42tyDvR9LBmGg.jpg" width="400"><br>
+
+قوه قضاییه جمهوری اسلامی صبح پنج‌شنبه ۲۹ مرداد ۱۴۰۵ «قائم حسینی»، معروف به «آرین»، را در ارتباط با اعتراضات دی‌ماه اصفهان اعدام کرد. او پنجمین فردی است که در پرونده موسوم به «میدان علیخانی» اعدام می‌شود.
+خبرگزاری میزان، ارگان رسانه‌ای قوه قضاییه، حسینی را «تبعه خارجی» معرفی کرده، اما تابعیت او را اعلام نکرده است. در این گزارش همچنین اطلاعاتی درباره زمان بازداشت و محل نگهداری منتشر نشده است.
+قوه قضاییه حسینی را به «دخالت در وقایع میدان علیخانی اصفهان»، کشیدن سلاح، ایجاد رعب‌ووحشت و ناامنی گسترده و اقدام علیه امنیت ملی متهم کرده بود. براساس گزارش رسانه‌های حکومتی، حکم اعدام او پس از بررسی فرجام‌خواهی در دیوان عالی کشور عینا تایید و اجرا شده است.
+قوه قضاییه پیش‌تر «ابوالفضل سپاهی»، «امیرحسین صفری»، «عرفان اسفندیاری» و «گل‌محمد محمدی» [پسرعمه قائم حسینی] را در ارتباط با همین پرونده اعدام کرده بود. همچنین میزان اعلام کرده بود که برای ۱۶ نفر در این پرونده کیفرخواست صادر شده است.
+شروین باقریان، امیرحسین ملکی و علیرضا سپاهی، سه محکوم دیگر این پرونده‌اند که درباره احکام نهایی و وضعیت کنونی آن‌ها اطلاعات شفافی منتشر نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77962)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-20 02:33:29
@@ -277,108 +337,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77948)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-19 16:35:44
-
-
-
-هیوا سیفی‌زاده، خواننده ایرانی که در جریان تک‌خوانی در «عمارت روبرو» در اسفند ۱۴۰۳ بازداشت شد، روز چهارشنبه ۲۸ مرداد با انتشار ویدئویی اعلام کرد که دادگاه او را به اتهام «تشویق به فساد و فحشا» به چهار سال حبس تعزیری محکوم کرده است.
-خانم سیفی‌زاده در این ویدئو به رای بدوی دادگاه اعتراض کرده و می‌گوید: خواندن شعر سعدی و آواز ایرانی چطور می‌تواند مصداق «تشویق به فساد و فحشا» باشد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77947)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-19 16:35:11
-
-<img src="https://cdn1.telesco.pe/file/md7QewVNv_VC3aOgWmrdWpYKVjgxl5yGG0qGxJPL3L9kzeRF0iu0QiSbdQ9pT33oIM4B78v4xFoa7QDWrR2k-Fk1zku3UWpky0OqoTw34vEgg5_WwQtZsXnBTzK2zCFDR7e_WKIOcKgwLW28e1meUqUqGH3c6bftOzJK2u_zBtEnoeAR7BZrdRr6r0XOt6WJTUCCaS9RRZFu2743x7oCJgPBgP1fnEFk6LN38eya2XhAILH-Q-unIP_MjdxA8UO6M5wcRd0qixfY66euiVyHMC86NPoD6XR_1CG19S755hKxh_VivMJiyVEvveGiAClp0LOMZXCQORf_z-3QPRaA8g.jpg" width="400"><br>
-
-هرانا: آرمین نورانی، خواننده موسیقی سبک رپ که با نام «خجسته» شناخته می‌شود، بازداشت و پس از مدتی با اخذ تعهد آزاد شد.
-در پی بازداشت این خواننده، ویدئویی از اعترافات اجباری وی منتشر شده است.
-در این ویدئو که مشخص نیست تحت چه شرایطی ضبط شده، آقای نورانی نسبت به شماری از اظهارات و مواضع پیشین خود در ارتباط با اعتراضات و حمایت از معترضان ابراز پشیمانی می‌کند.
-لازم به یادآوری است علاوه بر نقض کرامت انسانی که در سایه ضبط و پخش اعترافات اجباری صورت می گیرد، اساسا تا زمانی که فردی در محکمه محکومیت نهایی دریافت نکند، از منظر قانون بی‌گناه محسوب می شود و هرگونه اعمال مجازاتی پیش از محکومیت نقض حقوق شهروندی و انسانی او محسوب می شود.
-hra_news
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77946)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 23:53:50
-
-<img src="https://cdn1.telesco.pe/file/sVx1U3s2HC17a2xoUbSUv-xkGnRA9SEijUw8_WRoSPVgShWOHI5IUdTYAV_Ayo-22lQxjGzgRVuggnIQR5z1ugyJiGKB7DHjZJXvrbc--nkIV4tXMUFNgJjhLgyjLxAGlwUebL4CCkDH6PSGSkwLg1xLb_ggGYUOWAM6GG7TRMS5zALW-daEqfmwTRl72gX-aPZ7mrialA2t4irI4SDFnaMjTos166VwbtTVPULRSGg6LNxMk5FxndG86WrXz8PEaowmJo-UVfPebFWASR2InMOpKPFQSHG6Pkx3ldzQCyc7OZT1prqcqCG3iiYzQ0zSCtXGoYn9pNW4xpsFx5HYag.jpg" width="400"><br>
-
-امارات:  تمام مبادلات تجاری و تراکنش‌های مالی با ایران تا اطلاع ثانوی متوقف شد
-مدیر اداره ارتباطات راهبردی وزارت امور خارجه:
-افرا الحاملی، مدیر اداره ارتباطات راهبردی وزارت امور خارجه، همه ادعاها درباره وضعیت روابط اقتصادی میان امارات متحده عربی و جمهوری اسلامی ایران را رد کرد.
-الحاملی بار دیگر بر تعهد راسخ امارات به گفت‌وگو، همکاری و همگرایی منطقه‌ای به‌عنوان ابزارهای اساسی برای پیشبرد صلح، ثبات و رفاه در منطقه تأکید کرد.
-الحاملی تصریح کرد که با توجه به تشدید تنش‌های منطقه‌ای که صلح و امنیت منطقه‌ای و بین‌المللی را تضعیف می‌کند، تمام تجارت، مبادلات تجاری و تراکنش‌های مالی با ایران تا اطلاع ثانوی متوقف شده است.
-الحاملی تأکید کرد که امارات همچنان قویاً به حفظ سلامت نظام مالی بین‌المللی، مطابق با حقوق بین‌الملل و بالاترین استانداردهای جهانی، متعهد است.
-mofauae
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77945)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 22:19:41
-
-<img src="https://cdn1.telesco.pe/file/YJrujpgZI5bQoqrTJg5LMElL6481GzcJCWLZKRZqj9cFJFXh56dgdhRFHX16Y2umzTxoYVNRcmsnOc32KXCpF4PNM2qszHV3CpsvFjdiEHT8hjRbHiaLauSJCeyBDRRNRqOdCh-QvVv7lSWqfGdWQrRXLO3pzaaVMdS71s8GoSbQsCihQxv1wIuqDhC2Us5rdMToHR6_7QnIDaet2qAp4BMP-2qM0tS2_B_p54deahzS-KTSLGIiij2m3j27DfXreBRUkXklcEzWGnrasI04M6-CDlXMiZqy2uJPaXTaC47ytdNmWoEjaefWKeXKUKC8mfB2L_PYb2ELu7OgDwSDLg.jpg" width="400"><br>
-
-وزیر خارجه فرانسه: دو دپیلمات ایرانی اخراج می‌شوند
-ژان نوئل بارو:
-مردم ایران، مردمی بزرگ، قربانی اصلی این دوره از تنش شدید در خاورمیانه‌اند؛ مردمی که میان سرکوب خونین اعتراضات ژانویه ۲۰۲۶ و بمباران‌ها در تنگنا گرفتار شده‌اند.
-دقیقاً به این دلیل که فرانسه در کنار مردم ایران ایستاده و از هنرمندان، دانشمندان و پژوهشگران آن حمایت می‌کند، دو دیپلمات فرانسوی در ۱۹ ژوئیه گذشته به‌طرزی رسوایی‌آمیز و عامدانه مورد حمله قرار گرفتند.
-من اعلام کرده بودم که این اقدام غیرقابل‌تحمل پیامدهایی خواهد داشت. این کار انجام شده است. دو دیپلمات ایرانی در فرانسه در همین چند روز آینده اخراج خواهند شد.
-jnbarrot
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77944)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 21:03:05
-
-<img src="https://cdn1.telesco.pe/file/mbg5FofsAtHurSHKbRZgz-Xfysb8nII9JpnEydtWQzfKX8zsSG3MzaZFIvCnofE7UIBVzFGiu1CKXUfoV1aL9e-eigwNdE9p4RFyFqxvErVY6IreDGR5e0-BaZ9l8tk6OFRsYWKJ72S7rir0XuKHWNEJwIMt4kaGECi79J_v_PlCyZpHQ4XVqmuUTlflibHJ7xQvYj2BynHRlX7CpCnqA9YQ1wT3J-D53saR-BQOkkhv2pzgHxTHbtPogjWtYTqM9ofkWN2aQAhPyNh43xckq1m9qsoxNwOLL6_pnehgp6OjFCHKmZ_wIKIv1V8Se16nou1C7RvnTDlTENpKiGBgZA.jpg" width="400"><br>
-
-قالیباف:
-آمریکایی‌ها فکر می‌کنند اگر فشار بیشتری بر ایران وارد کنند، می‌توانند امتیازهایی بگیرند که اصلاً جزو توافق نبود. بسنت و هگست واقعاً در حد و اندازه این کار نیستند. دیگر منتظر نباشید این دارودسته دلقک‌ها از کلاهشان خرگوش بیرون بیاورند؛ خودتان افتضاحی را که به بار آورده‌اید جمع کنید.
-mb_ghalibaf
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77943)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-18 20:50:22
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/77942)
 
 ---
 
