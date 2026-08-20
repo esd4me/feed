@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-20 15:58:35 </h5>
+<h5> 🟢 Updated at: 2026-08-20 17:08:34 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-20 16:07:29
+
+<img src="https://cdn1.telesco.pe/file/dNcZeb1sMSQg67y4oFH67NEA9TN83svjFUI7C4CbjC4OcXMTdnLW-DHjSN-0eoyEw7sZdo71Q2aH3J8SXzweaRgNZHoV_-99GPWgnCz3v77TAYmh80QR5r4LhlN75aHSbeWQrZdWNASr6PhZJwjv_CU4BKTnxOxFtxfAWlfOQY_VR0PRKiwy8TE8aTKlcXGQ5XWeHox5ECAaDcw3O9fUJdI57EYnhJERw-lgcnl7VOd0ByH7BPEpNsqskS1m35Ex3TfyrViU7u03SoKC6oGzaw-Nb_9HvgS0nc15oTPWkz6MXroW1H-a_4utlJr7NxFZj_XiYKoC2hnuoSbf-P_jJA.jpg" width="400"><br>
+
+مادر پرنیان دبیری با انتشار ویدیویی گفت دختر ۱۶ ساله‌اش پس از اصابت گلوله به کهریزک منتقل شد و پیکرش در محوطه این مرکز روی سطح آسفالت قرار داشت.
+او همچنین گفت هنگام پیگیری تحویل پیکر دخترش، یکی از ماموران با قنداق تفنگ به او ضربه زد و تهدید شد که در صورت ادامه اعتراض، پیکر پرنیان تحویل داده نخواهد شد.
+او خواستار پاسخگویی عاملان کشته‌شدن دخترش شد.
+این جاویدنام ۱۹ دی ۱۴۰۴ همراه پدر و مادرش در خیابان بود و از پشت سر با گلوله جنگی سرکوبگران هدف گرفته شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77968)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-20 15:32:49
@@ -225,7 +244,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-19 16:51:03
 
-<img src="https://cdn1.telesco.pe/file/jDbsfJc9od5p6ktnZYr_sM_Zh5AZqr-eq_peaRgLVDcBA1LEYoW-hAnCeqS92J-69FrRA24R6BVKCkTDd7w9oopS_0pYa8DHgEX972yHM9wHKjh0kX8XP-ZKCyaoAjBBcR--N2TeUBTo8Eq9a9DMimZa6CgYlw4xdJnfFXFxYLk6tmWoLhS8nf3JaFE5_He-jWCPxIpvoNG7W-pTOyUwn5OQBFnT4-TNDQNNWsADbe6BHoGOCPHWC-nIvdwxPkL7cE1ArG6LogVweeQjaqrOl-KxMem8fREm2r6XOt47wmaEgQBKYNSnmLqEbo09YNAgom--NZHikAqv6eg-daJHWw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pOFMrJOFc1XKvmDVjIs6DH9Z5e3PLo7kMxfZYtwph8X6zyIjjt_Lfdn1iXCKWLIiVo6xQU5WFl6UTvyUgUY8HRnmqnNK10CihtYmRrMGIj-R-COE8xu0j2DaarbLQ-oLJAile3a9LERDLyKMcj840bN6KecoXHGA2j8192eZUPfR-X3Iruc2ThsUZU3uCORphy-ytTiHJwIkg-XNCqCMjg0a678MrBMhV2XaaJjiGMfhbjGBimBgS2F1sjfjltcX15u0rkMd48-TeiRaF_OTdU_cZ7uS6USVFAt0OasCeOB_WVDamnNAOuGcxGB6Q58231Go_xmICrPQU_kLK0O9Dw.jpg" width="400"><br>
 
 فاینشنال تایمز روز چهارشنبه ۲۸ مردادماه با انتشار گزارشی به نقل از دو مقام ارشد جمهوری اسلامی گزارش کرد که اگر دونالد ترامپ تصمیم به گسترش جنگ بگیرد، هدف قرار دادن پایگاه‌های نظامی در جنوب شرقی اروپا را بررسی خواهد کرد.
 براساس این گزارش، یک پایگاه نظامی در بلغارستان و یک پایگاه نظامی ناتو در قبرس از جمله اهداف احتمالی جدید ایران در صورت تشدید درگیری‌ها خواهند بود.
@@ -248,7 +267,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-19 16:43:32
 
-<img src="https://cdn1.telesco.pe/file/pgFml4gUnAKYFUnxlqqICUr1YkxWfVZOtx5x3F90X7pF4SfR46c1sl2Z43Xh7JxgAUwntMvNbojnU6xwVmE1bC43JJZRinVwWnAHaqXHuiuLybHxpHMXge1P8ssBdvp-Z7_pZsWO38eDsIzT7PQf_no5SYCvfUYw1YrzgFnDrAQ-3He2S8wAydByRIchsADfIgmdbmIaf_fhY5XEyv6O6tleMtsubJqpITi0u22_g9NqfIxmP4TByDh2q5-2u74NukK7eSmSpXmrqFikZW5m0PX6_ZhhHveCy1aPZdRrZvpLbjRHVQ6XLkqYj_o_q4VcaQzj_zJ4k71XRFtSTKYTGA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XYAHxpgFfGvHWqZIWhfyU0fw1Y0YXmdZv52Q-4r-L3-XMEOoudQ2sfYEfP_iC3yPZCvYHwUTAzNDDLJScCWjU7HGd1HmvMZRXtP-8MRq5ZI3ITtEi9dM5uM6dkK0cTuwGQe_c0_c3TTl01_-Tt8lDP8zzLsbiYkGcrqZxCPz__l3lGo0tiVarF7LVSu8eCx4Id65EKc69zD1SDYYufAs6VlXLczldyb4I8544UHv24WsmqIdnCRyGlmMMDhNXx3nYAE8Z4vja894kySpM7lCyCfylUOi-L8BIg_dCLPfxg0k2FO4n6I-9d6HLdEh_y-ZKshi5t_NL4JKwGAhgFIE-g.jpg" width="400"><br>
 
 روند افزایشی قیمت جهانی نفت، همزمان با مبهم‌تر شدن سرنوشت مذاکرات مربوط به بازگشایی تنگه هرمز، ادامه یافت و قیمت هر بشکه نفت خام برنت روز چهارشنبه ۲۸ مرداد با یک درصد افزایش نسبت به روز قبل به ۹۲ دلار رسید.
 روز سه‌شنبه دونالد ترامپ گفت «هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره یا گفت‌وگویی نیز برنامه‌ریزی نشده است».
@@ -265,78 +284,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77952)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-19 16:41:40
-
-<img src="https://cdn1.telesco.pe/file/CjqmO73OFaASa-dsLiPmBnfAwF89Tji9roY3H1oMYURb4Idwh4jPNNqcs7Fnq96CCqMkkk4K8J14jZyX3GqFhcier02BTvEy90MxRQlCPz17NR8YrEv2VvBNFRetMEiPVEar_E4NsvPMnnZ95RDwh2RYimz-7nSWzxODcCJwc5dsYbYRXVt-AP8hMlr7rMTH5NoZ5tLbu7i21MuiI-LuVD5uIDa7ui9AprWKIXqWeg57hUyBTEfSP4RsQWJkEmJwMeeMzTESM3QUgjBhGrSsLVMfrVTP3leJVLKRXBNgvzcjH4r-jVglsF0DftWzxtSSsUq1Jj10KZkACU_cu4kyVQ.jpg" width="400"><br>
-
-به گزارش وای‌نت، نفتالی بنت، نخست‌وزیر پیشین اسرائیل، گفت که در صورت بازگشت به قدرت، معادله بازدارندگی را تغییر خواهد داد و هر حمله حزب‌الله باعث خواهد شد ما ایران را هدف قرار دهیم.
-نفتالی بنت همچنین وعده داد قطر را «کشور دشمن» اعلام کند.
-نخست‌وزیر پیشین اسرائیل ادامه داد: «ترکیه و قطر را از غزه خارج خواهیم کرد و به جای آن‌ها مصر را وارد می‌کنیم و در عین حال آزادی عمل اسرائیل در غزه را حفظ خواهیم کرد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77951)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-19 16:40:57
-
-<img src="https://cdn1.telesco.pe/file/u_141Jha0blIeqRy_aoZPPZHwvI6ciXhbjJH2bPTb2iP33Uyj7EH81P1drS3Ap34HsEz4hZxsVMBwD4CRWeEpVMZKjzpYaxl6VTR4R6grd1vb7tjDUWMRsXpSrYAXcUhOnCvZ04oOgNreWyT7trA8XfdZzF2hok4vsEUYzAYLfwgKtYhFUstHY-9KtvTS91Pe5-4HZ6kgOMn9_SjIZvR3KDv0huQ8dX7xvZYAnVtFMVNFigOZLivRxiFAoYwxrRAnQvSKEOEPzIljExDbsYI4cqq_YdOgPPRTcwKEOClszLsbKCiKHi-8Mz6qlLhqIShf9sQGPaFE2IUlSG6_RgXeA.jpg" width="400"><br>
-
-رئیس ستاد کل نیروهای مسلح جمهوری اسلامی ایران بار دیگر به کشورهای حاشیه جنوبی خلیج فارس نسبت به «هرگونه کمک» به ارتش آمریکا هشدار داد.
-در پیامی که روز چهارشنبه ۲۸ مرداد به‌نقل از علی عبداللهی در رسانه‌های ایران منتشر شد، رئیس ستاد کل نیروهای مسلح ایران به کشورهای حاشیه جنوبی خلیج فارس گفته است که «چیزی از چشم ما پنهان نمی‌ماند» و افزوده «این میزان هواپیمای نظامی، به‌ویژه هواپیمای سوخت‌رسان، در پایگاه‌های منطقه‌ای بدون اطلاع کشورهای میزبان بعید به نظر می‌رسد.»
-فرمانده قرارگاه خاتم‌الانبیاء در هشدار خود توضیح بیشتری در این باره نداد. شب گذشته امارات متحده عربی اعلام کرد تمام مبادلات مالی و تجاری با ایران را تا اطلاع ثانوی متوقف کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77950)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-19 16:39:30
-
-<img src="https://cdn1.telesco.pe/file/BBXftSzO-C2c4tRCpRe4RYvzN80xRebvuXU2uh_0PGYZfFEnbVsi3p8_BXdnkPNO9jKG6OSJXOBES8YXdLunzOs4wtqRvgQYjb5b92b7y4ljaw1IaobPU-hbNeVmRamAq_EVqbki7sL_EkSXKz9FMONCmCNUdBaZh2fNeGg3kEDZ9WH_wM4SW3yJMc6hGKCK1jR3PmbievJcrBZCNuve2KcvIQYeaFBGe2XvdaFSKb6EHU00by0XneqXxfyltQKqZMMOyZ7x3549Xhu2dlvROpB4IS96X-DzPOWagYLSd85Q7e8Bp0U4Eq2OLF8wMrjmjkseGPl6fmlI2F0rKWVp7A.jpg" width="400"><br>
-
-خبرگزاری فارس، وابسته به سپاه پاسداران، صبح چهارشنبه گزارش داد نفتکش اماراتی که در کریدور شمالی تنگه هرمز توقیف شده بود، مسیر خود را تغییر داده و به‌سمت بندرعباس در حرکت است. بر اساس این گزارش، مقصد اولیه این نفتکش بندر جبل‌علی در امارات بود، اما پس از توقیف، مسیر آن به‌سمت آب‌های ایران تغییر کرده است.
-فارس نام این نفتکش، شرکت مالک، پرچم کشتی، محموله و دلیل رسمی توقیف را اعلام نکرده است؛ موضوعی که ابهام‌ها درباره ماهیت این اقدام را افزایش می‌دهد. گزارش‌های بازنشرشده از خبرگزاری فارس نیز می‌گویند این نفتکش هنگام عبور از تنگه هرمز و در محدوده کریدور تعیین‌شده از سوی ایران متوقف شده بود.
-این خبر یک روز پس از آن منتشر می‌شود که امارات متحده عربی، ایران را به شلیک دو موشک به این کشور متهم کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77949)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-19 16:37:10
-
-<img src="https://cdn1.telesco.pe/file/eTKKQUC7yWVoLujFfm6m5TQUJ2FdsEixZSc40SIIKw6jtpGRPL444uhst1DZjdgSBCPVk2T48hplsAP8xyz5qkAcwJ5jIrQ_B2R41BBEd6VfaSgDpA8t9-IgT7gPog1C32JSpfYW4Kg_T_RFQyHhZSm0gOLFvKBEegAaQ9GCJ9dq6BLwCZx8-SnmiCgEDNYWHjggUNkB2iIES6sqbvWYcdqYeitZdJSSRsTo6VKcUZrJI8fLEfqMSAKszsVwc00kjcTxh-S-kPjJ-DfgDwjV22hz6oL8DMhQSrf4wEgwGSgC9v1j4cleIAHvvyBr3Uz-1C_Lsjo6765f5ilBwliymA.jpg" width="400"><br>
-
-حزب مشروطه ایران (لیبرال دموکرات) اعلام کرد فؤاد پاشایی، دبیرکل این حزب، هدف «سوءقصد» قرار گرفته و در بخش مراقبت‌های ویژه بستری شده است.
-بر اساس بیانیه این حزب، این حادثه ساعت ۷:۴۵ عصر ۱۷ اوت (۲۶ مرداد) به وقت لس‌آنجلس رخ داده است.
-حزب مشروطه ایران همچنین می‌گوید پلیس لس‌آنجلس در حال تحقیق دربارهٔ این حادثه است و اطلاعات تکمیلی و «تأییدشده» دربارهٔ این حادثه بعداً از سوی حزب منتشر خواهد شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77948)
 
 ---
 
