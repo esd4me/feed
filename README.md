@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-21 00:54:22 </h5>
+<h5> 🟢 Updated at: 2026-08-21 01:47:06 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-21 01:46:59
+
+<img src="https://cdn1.telesco.pe/file/e6E94iSOU6NkDUh7mwSXJ92EJcc2m6PC93wmHGtF_IFJspBvQWKmQZrBMDs8bTmgb3Qg1tFpmQQl4QCZqPUyZWB2m6gOQyXBv07_ufnCs7k4UTa_v7O0OLPVQXP1nK_w2fEVrq6dgYA1RVje0rd49Axsx9BN_mNZGLjw-aC-4uJZYHFeYM9swANEOSjxsqkz69CpoxEs6S3RxkDy7RpxbiMuqnmegWD6iEoNfDj5aSj4v2V6HZ4Th_1TSR5kbQlBLMHsJwFbhq8Wg5zmcVI4OnBfMd8gxISdSDlHWoOsosxJpUmh069ckUouKgvpIJ0ArwHGFAk1rhm2BeDbCihMwA.jpg" width="400"><br>
+
+انتشار تصویری از محمدباقر قالیباف، رئیس مجلس ایران، در جریان سفرش به عراق که در پس‌زمینه آن عبارت «خلیج فارس» دیده می‌شد، واکنش همتای عراقی او را در پی داشته است. هیبت حلبوسی چند ساعت بعد تصویری مشابه از خود منتشر کرد که در پس‌زمینه آن عبارت دیگری دیده می‌شد.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77974)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-20 20:18:31
@@ -174,7 +190,7 @@ pinned «
 
 ###### 🔵 Post time: 2026-08-20 01:12:27
 
-<img src="https://cdn1.telesco.pe/file/l8ZlfPVp4kTSQ2sb60Vxeeq_ym9HLtt0xgwU3AriFpAaF-MnEq1dLnL_NNkTr62RDGzBL5QA9dE4ezdXKTnrNPaJZM1BZ3grZaN5nVvTI0Xd_bu7jic7cyvx3eAjw3spt5vriotXphsFfmgWmRtkOZ9SSasfDwroQYmNVj6x4k90EzEdNd7v5u1msne5WPWcIQKvJ3sOwma7Y9CA-Vwov5G4W6gZXXWJDN38mUJEbrTIS6l5mEShZNast9-1HnUEy9YrnEE1FcfVFNuuE7iZzlWKNSFuNDSLZUKcxE-F8hmIjKZu0zTYps5zthDC5t3bLa-SmRvY7t6-LhLUuvkXvQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XF40wNhaVcHsIByLUznulme6K5RW7CcETys0d1UI6AQlW92jB1prI68RiZ6S10sfLwM6aLE1CbZl4fWtSmgWT2XoaSQBscy-D60S-5kTMhl5U0PYd89LHmvJByOlYugApR9s9W0eFT-GoKnt8N1y0dD8chhFh9YXUFjNTFkvL4ytk9z_Em5nmWYH0AQqChMURPdYo5IEakibNhcESABYE6c7TSyzMrNJ8xfmV99NrMFhBzSmS51IO1hrAzPBywNLPCCq7qKZ9YSaxr7SISMd6U8x5hS_2dTUobG9esGtZKRQUEezUNwoG3_4LPyEJi2pFd9-6lSxaYq5xEQhU0Q81A.jpg" width="400"><br>
 
 وبسایت اکسیوس، روز چهارشنبه ۲۸مرداد ۱۴۰۵، گزارش داد، ارتش آمریکا طی هفته‌های گذشته یک مسیر کشتیرانی تحت کنترل خود در بخش جنوبی تنگه هرمز ایجاد کرده که امکان انتقال روزانه میلیون‌ها بشکه نفت به بازار جهانی را فراهم کرده است؛ اقدامی که به گفته دو مقام آمریکایی، بخشی از اختلال ایجاد شده در صادرات نفت در جریان جنگ را کاهش داده است.
 این دو مقام آمریکایی به اکسیوس گفتند در چارچوب این عملیات، هر شب حدود ۱۵ تا ۲۰ نفتکش از مسیر جنوبی تنگه هرمز و در امتداد ساحل عمان وارد یا خارج می‌شوند. به گفته آنها، اکنون حدود ۱۰ میلیون بشکه نفت در روز از طریق این مسیر از تنگه خارج و وارد بازار جهانی می‌شود؛ رقمی که تقریبا نیمی از حجم انتقال نفت پیش از جنگ است.
@@ -267,29 +283,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77956)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-19 16:51:03
-
-<img src="https://cdn1.telesco.pe/file/pOFMrJOFc1XKvmDVjIs6DH9Z5e3PLo7kMxfZYtwph8X6zyIjjt_Lfdn1iXCKWLIiVo6xQU5WFl6UTvyUgUY8HRnmqnNK10CihtYmRrMGIj-R-COE8xu0j2DaarbLQ-oLJAile3a9LERDLyKMcj840bN6KecoXHGA2j8192eZUPfR-X3Iruc2ThsUZU3uCORphy-ytTiHJwIkg-XNCqCMjg0a678MrBMhV2XaaJjiGMfhbjGBimBgS2F1sjfjltcX15u0rkMd48-TeiRaF_OTdU_cZ7uS6USVFAt0OasCeOB_WVDamnNAOuGcxGB6Q58231Go_xmICrPQU_kLK0O9Dw.jpg" width="400"><br>
-
-فاینشنال تایمز روز چهارشنبه ۲۸ مردادماه با انتشار گزارشی به نقل از دو مقام ارشد جمهوری اسلامی گزارش کرد که اگر دونالد ترامپ تصمیم به گسترش جنگ بگیرد، هدف قرار دادن پایگاه‌های نظامی در جنوب شرقی اروپا را بررسی خواهد کرد.
-براساس این گزارش، یک پایگاه نظامی در بلغارستان و یک پایگاه نظامی ناتو در قبرس از جمله اهداف احتمالی جدید ایران در صورت تشدید درگیری‌ها خواهند بود.
-مجلس بلغارستان ماه گذشته با استفاده آمریکا از یکی از پایگاه‌های نظامی این کشور موافقت کرد.
-همین دو مقام که نام آن‌ها اعلام نشده می‌گویند نیروهای مسلح جمهوری اسلامی به‌طور جداگانه حمله به کابل‌های فیبر نوری زیر دریایی در تنگه هرمز را در صورت تشدید تنش‌ها، بررسی کرده‌اند.
-@
-VahidOOnLine
-یک مقام سازمان پیمان آتلانتیک شمالی، ناتو، به خبرگزاری آنادولو گفت: «ناتو برای مقابله با هر تهدیدی آماده است و همواره هر کاری را که برای دفاع از همه متحدان لازم باشد، انجام خواهد داد.» این اظهارات پس از انتشار گزارش‌هایی مطرح شد که بر اساس آن‌ها، ایران در صورت تشدید بیشتر جنگ از سوی دونالد ترامپ، حمله به اهداف نظامی آمریکا در اروپا را بررسی کرده است.
-این مقام ناتو همچنین به رهگیری موشک‌های بالستیک ایران در اوایل سال جاری اشاره کرد و گفت پدافند هوایی ناتو در چهار مورد جداگانه، موشک‌هایی را که به سمت ترکیه در حرکت بودند، رهگیری کرده است. او این اقدام را نشانه قدرت و موثر بودن وضعیت بازدارندگی و دفاعی ناتو دانست.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77954)
 
 ---
 
