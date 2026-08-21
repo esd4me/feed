@@ -3,8 +3,48 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-21 18:53:48 </h5>
+<h5> 🟢 Updated at: 2026-08-21 19:51:44 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-21 19:05:27
+
+<img src="https://cdn1.telesco.pe/file/SuBb5E6uAu_8vXyqzxdqNfoVs0mzVqqq1DFSMdyRhS_cMO6uMNLbh_YfdyJxfwdUkbHzwCl4eL2rz50YbbViB6WEBv1YHrCuB2JPQA93qnPScrev-5DBpUhR_v6y7Zg21oAQvgzsFbs2LzpwmFtt8s8UzB1v0X_WqKkefNV8tgBOnpMFCCy3P35Ot1nfe5khjEW1fW-TLn2DSau_YwMTnH_UvoAN0DsPkiCNjKhtKyDpiEHTezNglpTsYFwmLa90EQlyowZXGsnf6GjOYyN-F8_dvEYWu9045joDklJuW9e0NBDBLymp4IInBMeIWZtPWErdsQzuGugnv2fyJ-pplg.jpg" width="400"><br>
+
+«هرانا» روز جمعه ۳۰مرداد۱۴۰۵ خبر داد که دیوان عالی کشور، حکم اعدام «ارغوان فلاحی»، زندانی سیاسی ۲۴ساله محبوس در زندان اوین، را تایید کرده است.
+حکم اعدام برای این زن جوان در شعبه ۱۵دادگاه انقلاب تهران به ریاست «ابوالقاسم صلواتی» در تیرماه ال جاری صادر شد.
+ارغوان فلاحی که اوایل بهمن۱۴۰۳ به دست نیروهای امنیتی بازداشت و به بند ۲۰۹ زندان اوین منتقل شده به «بغی» متهم است.
+هرانا به نقل از یک منبع مطلع نوشته است که ارغوان فلاحی مدتی در بندهای ۲۰۹ و ۲۴۱ زندان اوین نگهداری شد و برای گرفتن اعتراف اجباری از او درباره کشته شدن «محمد مقیسه» و «علی رازینی»، دو قاضی جمهوری اسلامی، تحت فشار قرار گرفت.
+فلاحی پیش‌تر نیز در آبان ۱۴۰۱بازداشت و به اتهام‌های «اجتماع و تبانی» و «تبلیغ علیه نظام» به دو سال زندان محکوم شده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77988)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-21 18:55:26
+
+<img src="https://cdn1.telesco.pe/file/iEH64_F-YjJ-oeLepekcmA7naBwhjUQhx4ZWc9pM7uU7QPmnCBrFx1lxKv9tpydQmSCoop-wP0nGNjYzxrnlSpLjlC5f0npVYnpjA5nCTwR_b7_WRU-8GIKKRyDbll1sobUAgA2DFW5HBSvp7Mw0kRmqgNDKqSXndCK9XSq5Iy6XSblJg_yjIEgpuJILNtbpOXukvCNlwgktLk00XoKYmEGhOQY277PZpcrC-TkzMYXVdit2z6-nMhomLoq2fX-DDOr8Nn_Z_9hHy7up7M_ZyRA6ucq94mWPB4iNzBNXo1PFraIFeP5-a5amApMBononWxPR90il-T5NxTdWUqICFg.jpg" width="400"><br>
+
+پست عراقچی، ترجمه ماشین:
+۱۴ سال پیش: «فلج‌کننده‌ترین تحریم‌های تاریخ.» شکست خورد.
+۸ سال پیش: «فشار حداکثری.» شکست خورد.
+۵ ماه پیش: «تسلیم بی‌قیدوشرط.» شکست خورد.
+امروز: «کوبنده‌ترین عملیات اقتصادی تاریخ.» محکوم به شکست است.
+این فیلم را قبلاً دیده‌ایم. همان مزخرفات. قلدرها عوض شده‌اند.
+araghchi
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77987)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-21 18:11:45
@@ -248,27 +288,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77968)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-20 15:32:49
-
-<img src="https://cdn1.telesco.pe/file/F8Fpz_R-6Nq920KloBaYvqyI8nBWmo0xprPsHvTnRz_FFaWDMlUFNzvO4VCVPBGyUQrIRaRRBEMMQY-MNMdUY40zf69GsxeQ-yFXh7InuOoWhYzveQqzBrMSh2iNmTJDbrw7ZlGUBtFPNTLLGVkfbhtdodUaadva6k3PucDljcLYCOw5OM9EyLMGDuF8H_c5edlCGFlkgDgnec9eXFnhblv8F6wX9C0w09DpvQml0JvRklIo47P_6S-cRre_o9fUwN_goTPU1AoCRRDW4oIUO4Wyvyvy8G3vFnV5a0SwcpZFCpaPtmJB8xqYQjOnF3QFrZVwmmgDbOQiP82VXTBkxA.jpg" width="400"><br>
-
-عباس عراقچی، تهدید دونالد ترامپ مبنی بر آغاز کارزار اقتصادی گسترده موسوم به «روز دی اقتصادی» علیه ایران را تلاش برای سرپوش گذاشتن بر «بحران‌های داخلی آمریکاست» توصیف کرد و از «بدهی‌های بی‌سابقه و هزینه‌های فزاینده نرخ بهره» به عنوان نمونه‌هایی از این بحران‌ها نام برد.
-@
-VahidOOnLine
-معاون وزیر امور خارجه جمهوری اسلامی ایران سخنان ترامپ در مورد کارزار «روز دی اقتصادی» علیه ایران را تلاش «محاسبات غلطی» خواند که برای پوشاندن «شکست‌ بزرگتری» ساخته شده است.
-کاظم غریب‌آبادی نوشت: «ادعا می‌کنند ایران در آستانه شکست است و به یک نخ بند است، اما به همه متحدانشان التماس می‌کنند که کمکشان کنند.»
-معاون وزیر امور خارجه ایران در ادامه افزود: «جنگ نظامی نتیجه نداد، حالا اسم شکست بعدی را جنگ اقتصادی گذاشته‌اند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77966)
 
 ---
 
