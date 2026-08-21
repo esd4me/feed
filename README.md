@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-21 20:50:01 </h5>
+<h5> 🟢 Updated at: 2026-08-21 21:53:19 </h5>
 </div>
 
 
@@ -11,8 +11,7 @@
 
 <img src="https://cdn1.telesco.pe/file/qPcqJpG95Futa7fcnQVVjij6mlbW8pr14-duw7B46VhtLgDHRXSak-xh7wEXnp9aFro8170Xgf93hio_oT8tEZS7gu6AjRj6eYcbbP70uahcbJBjSYHgqsiBmAP6HYej-JKMhHoDbwH2fkXMPcfI0cyRpr30_QfgDqOxsoPaYjxezB0y8QDZyMO2BfZqW08BrSOy0_dlAL755-7bKeVM95vMNVpegoWdg9Ih_uKcfUDfy3gArTacWsA9EQ6lJT1BHB20XGkjtRp_SU2CXY47FSFZ4fRcGBEah9bEhAq6aV0ltiU3RS2eiqMyuuK3OL7Llk2JAQh4_7kj1HuNw8CuFA.jpg" width="400"><br>
 
-این تبلیغات برای کلاهبرداری از مردم هستند.
-اگر عکس من در آوتار اینجا هم جزو تبلیغ بود کلاهبرداری خطرناک‌تریه.
+اگر عکس من در آوتار اینجا جزو تبلیغ بود کلاهبرداری خطرناک‌تریه.
 این تبلیغات به خود تلگرام سفارش داده میشن و کانال‌ها امکان جلوگیری از نمایش اون‌ها رو ندارند.
 هر روز صدها نفر برای اولین بار با این تبلیغات مواجه میشن و به درستی احساس مسئولیت می‌کنند که باید این چیز خطرناک رو اطلاع بدن.
 هر روز خیلی‌ها هم لطف می‌کنند و راهکارهای مختلفی مثل درخواست برای ریپورت کردن تبلیغات و بوست کردن کانال و حتی سفارش تبلیغ برای خودم و... رو پیشنهاد می‌کنند.
