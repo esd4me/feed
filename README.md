@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-22 00:44:39 </h5>
+<h5> 🟢 Updated at: 2026-08-22 01:44:03 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-22 01:02:35
+
+
+
+🔺
+خبرنگار: آیا حرکت به سمت جنگ اقتصادی علیه ایران نشان می‌دهد که گزینه‌های نظامی آمریکا در منطقه محدود است؟
+🔻
+ترامپ: نه، اصلاً. فقط یعنی اینکه داریم می‌بینیم چه اتفاقی می‌افتد. آن‌ها هیچ پولی ندارند. نیروی دریایی ندارند. نیروی هوایی ندارند. به سربازانشان حقوق نمی‌دهند. به پلیسشان حقوق نمی‌دهند. تورمشان ۳۵۰ درصد است. بنابراین فقط می‌خواهیم تا حدی ببینیم چه اتفاقی می‌افتد.
+و همان‌طور که می‌دانید، کنترل کامل داریم. اگر به محاصره نگاه کنید، کنترل کامل آن را در اختیار داریم. تمام آن منطقه‌ای که مربوط به تنگه هرمز است، و این یعنی تا عمق آن، مناطق خشکی را هم.
+پس آن‌ها خیلی دوست دارند توافق کنند، اما از نظر من هنوز آماده نیستند که توافق درست را انجام دهند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77992)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-21 23:13:00
@@ -253,7 +272,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-21 01:47:44
 
-<img src="https://cdn1.telesco.pe/file/KUDd0xV5x7m15V4npLjyHXnKsc9xnv0wCghrJO2F5iyidFV25Clz-fzuQeheIdS0f5TM7Y7DzGU3h4N5cjYO99vJpBYBmTF6BalpZnepyGd6zuA17no2OK5N5DxzfH4Yywr5CtsuPB9N9wJO0nSV0fIQ6kbsS1Mx34Rk-2xtfs0HzD215MFh5DYeMz9FfWFWsgJLwEFKOtYciGy5ECA_5E88zcZmaAkhIGuULsR6Z-_7ohbRSH0ydKm-OyDH3jM3IEt45V65CvSFrH9nTFU0IfSp8LyuiJ88q6mRX0o0Qq_g0100TWrIgNDWkVVc40qzjbaNYVZZpHZKPQ0YMfXeow.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/UTw_dzg0Kd9llg04OLL6ACutIsdsg9Eay51eGzcz9a-n7mEKx5awqmbIplog_XtvM6hbiRUhEnTsKQTmvN16x-Vxov2btPHZA_x4gjiC-Dz_eS7a6Eiuw9G91Dz3W8VcolCoOQOd3taqzxcTOlhYqSSUaO1FL2IbXH9E992wVzTzX_wA3cGws5aynUrE_fJOF6K2rvFFHRruhaJRWOV3zOX2YNYN8UyvT_SQ1ufhBfWvIpNpKSDETH0IUh2RvVcbUqNtM5vTfVqn_nlw9Sty9wr2OdNIStveFLtqgh4-GJWloXM-DtCdQwuuv0DPPquY2iBUHke4Xn_Y_Sr4ML8JFQ.jpg" width="400"><br>
 
 پس از «دونالد ترامپ» رییس‌جمهور ایالات متحده و «اسکات بسنت» وزیر خرانه‌داری آمریکا، «جی‌دی ونس» معاون اول ریس‌جمهور آمریکا از آغاز «مرحله جدیدی» از جنگ ایالات متحده و ایران خبر داد و گفت: «موثرترین ابزاری که برای اعمال بر حکومت ایران داریم، فشار اقتصادی است.»
 جی‌دی ونس که در پادکست  «کلی تراویس اند باک سکستون» صحبت می‌کرد به «تعامل ظریف» بین دو کشور اشاره کرد و گفت: «ما به آنها فشار اقتصادی وارد می‌کنیم، آنها نیز سعی می‌کنند به ما فشار اقتصادی وارد کنند. اما آنچه در چند هفته گذشته واقعیت داشته این است که آنها فشار بسیار بیشتری نسبت به ما متحمل شده‌اند.»
@@ -271,7 +290,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-21 01:46:59
 
-<img src="https://cdn1.telesco.pe/file/e6E94iSOU6NkDUh7mwSXJ92EJcc2m6PC93wmHGtF_IFJspBvQWKmQZrBMDs8bTmgb3Qg1tFpmQQl4QCZqPUyZWB2m6gOQyXBv07_ufnCs7k4UTa_v7O0OLPVQXP1nK_w2fEVrq6dgYA1RVje0rd49Axsx9BN_mNZGLjw-aC-4uJZYHFeYM9swANEOSjxsqkz69CpoxEs6S3RxkDy7RpxbiMuqnmegWD6iEoNfDj5aSj4v2V6HZ4Th_1TSR5kbQlBLMHsJwFbhq8Wg5zmcVI4OnBfMd8gxISdSDlHWoOsosxJpUmh069ckUouKgvpIJ0ArwHGFAk1rhm2BeDbCihMwA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/T-0k0ksGqfmAdLK5Y5PW85CBjqopB3iNz7xmO_7rBNL_HFU_cTsk8d4MQe_lELOBBSS35x1agUS7tNmubg3O6U1XrMaWgPIID_mvkV_1_QiHNZPm5F4096uzH89ZwNYk262L44fOBkWDgAFGncHBEajjbprHhgbW38Rq7800MTrlBKprgDLQ21GaYj4yoWh3MmhLsvlpubPG7No3gOEJ2DJSAYGj8Vn4p4A65uac-Na19O-keBwJzY7mxjB014w8bIt1eXtQ2Y6CCHn8Y5ugAR-jZbIOpksxBfjqIZzt3Pr-JowNx6gbdcfE4sw5Vw_ci50UhU-l94CnhTNKx7k68A.jpg" width="400"><br>
 
 انتشار تصویری از محمدباقر قالیباف، رئیس مجلس ایران، در جریان سفرش به عراق که در پس‌زمینه آن عبارت «خلیج فارس» دیده می‌شد، واکنش همتای عراقی او را در پی داشته است. هیبت حلبوسی چند ساعت بعد تصویری مشابه از خود منتشر کرد که در پس‌زمینه آن عبارت دیگری دیده می‌شد.
 @
