@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-21 19:51:44 </h5>
+<h5> 🟢 Updated at: 2026-08-21 20:50:01 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-21 20:06:04
+
+<img src="https://cdn1.telesco.pe/file/qPcqJpG95Futa7fcnQVVjij6mlbW8pr14-duw7B46VhtLgDHRXSak-xh7wEXnp9aFro8170Xgf93hio_oT8tEZS7gu6AjRj6eYcbbP70uahcbJBjSYHgqsiBmAP6HYej-JKMhHoDbwH2fkXMPcfI0cyRpr30_QfgDqOxsoPaYjxezB0y8QDZyMO2BfZqW08BrSOy0_dlAL755-7bKeVM95vMNVpegoWdg9Ih_uKcfUDfy3gArTacWsA9EQ6lJT1BHB20XGkjtRp_SU2CXY47FSFZ4fRcGBEah9bEhAq6aV0ltiU3RS2eiqMyuuK3OL7Llk2JAQh4_7kj1HuNw8CuFA.jpg" width="400"><br>
+
+این تبلیغات برای کلاهبرداری از مردم هستند.
+اگر عکس من در آوتار اینجا هم جزو تبلیغ بود کلاهبرداری خطرناک‌تریه.
+این تبلیغات به خود تلگرام سفارش داده میشن و کانال‌ها امکان جلوگیری از نمایش اون‌ها رو ندارند.
+هر روز صدها نفر برای اولین بار با این تبلیغات مواجه میشن و به درستی احساس مسئولیت می‌کنند که باید این چیز خطرناک رو اطلاع بدن.
+هر روز خیلی‌ها هم لطف می‌کنند و راهکارهای مختلفی مثل درخواست برای ریپورت کردن تبلیغات و بوست کردن کانال و حتی سفارش تبلیغ برای خودم و... رو پیشنهاد می‌کنند.
+یک مشکل بزرگ الان حجم پیام‌هاییه که درباره این موضوع دریافت می‌کنم.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/77989)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-21 19:05:27
@@ -246,7 +265,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-08-20 20:18:31
 
-<img src="https://cdn1.telesco.pe/file/Nbtl60wvOcwfBLy82o7jFAF8wNmGG2HejHSEJapvaeJVRzKGulQY6vC39v-mwxepBHIUzHMLLgrfL4W-Zx_gGsTY5fUwP2L4DiNz97jLwKkGnywwisZcnWgr9hPXIXoXze98dL8VBFeu9wMvgfTCZsXTx9N-XU2SbMplko3wCpkr_JfEDAHdik7SCzK9a0LG9acv8mmUB3Pqs23EJgtMLSaqyf0Q0nieVU8pOJCkDhA-ajuZ9c2Tzqh0SBC9z7v-MpaOXa5StuQHC3rWEjoD07pHGzAZVO8V8KOc7BQFIRbwwTW7QgVCmWB1SSirLRTFUTNwheaQy0imNZl3HRCJbg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aLYk1ixWEOouhH-3Mh0Fv5OzcMBsAUyglxnLNVn1DjlO-J-fxEpKq0m73CDMGl_kYD8dE7zhhyJyGuisyRqxmH2qdcehBfJ3sGbJWJF33-KlRsEnAVsRdFnFVQdMfwpRY7GfAcJU4KIoKEBOo7a00qnErxLi9Q5J66uXgej1XKmLUGHSYhstl0LMo3JsrWsd9rxALx9hVeZgYS4JIiy6uQv4QtN14gctZd9mVtw_xWjiFLUo4mOnzHsd4S5kaKz_OU2SJnbHYbsmnmziHOOfLcthmEiPipT3lb_jyRO4vXSaOGEsNawQ4olA_HAfeolg4VgFWDqUMVaMgTNqA6-GnA.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا، روز پنجشنبه ۲۹ مرداد گفت طرح واشینگتن برای افزایش شدید تحریم‌های اقتصادی علیه ایران با هدف «سرنگونی» حکومت جمهوری اسلامی دنبال می‌شود.
 بسنت در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت: «این طرح در ایران جواب خواهد داد و ما این رژیم را سرنگون خواهیم کرد.»
