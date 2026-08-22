@@ -3,17 +3,18 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-22 20:42:31 </h5>
+<h5> 🟢 Updated at: 2026-08-22 21:45:49 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-08-22 18:17:04
 
+<img src="https://cdn1.telesco.pe/file/b0Y9InhWIXvDUdNoDqFPbcN3XFhZwTI1auSe-xXaE12ZPBct5Wx8p9bLiqhYzByTdnMT56qsCV-w5wlKehDR-3AmqAItNDnHaVH1jLsix8MniH1Cm0IIoXUOVJvnz-SjLXYoAJYepwJz4p6HGO7m-e45Gy5zoGoSPja570aCakn6ckmWqbZ0kyADMjk9cBDLb3LYjoHWjstkE0L1N7ej6x9GtjawXSq5Jt4CjlLxfjDCnYrAbKEFSM_NN5nOWkMpX1pRDSFa69D3BeUdLpGrlnyJZi-Pc56_rtEjDjjA9qWA1Dl1Uqdgb6dOqELdBMHeI8pjQlb3CtZDNsNICs9moQ.jpg" width="400"><br>
 
-
-باراک راوید، خبرنگار اکسیوس، به نقل از سه مقام آمریکایی در شبکه ایکس نوشت که جمعه، ۳۰ مرداد حدود ۴۰ نفتکش از مسیر عمیق جنوبی تنگه هرمز عبور کردند و حدود ۱۶ میلیون بشکه نفت از این تنگه خارج شد.
+باراک راوید، خبرنگار وبسایت اکسیوس، روز شنبه ۳۱ مرداد ۱۴۰۵ در شبکه ایکس به نقل از سه مقام آمریکایی گزارش داد که حدود ۴۰ نفتکش شامگاه جمعه از مسیر عمیق جنوبی تنگه هرمز وارد یا خارج شده‌اند و حدود ۱۶ میلیون بشکه نفت از این مسیر به خارج از تنگه منتقل شده است.
+همزمان، رسانه‌های دولتی ایران مدعی شدند، تهران پس از درخواست‌های مکرر بغداد، به شماری از نفتکش‌های عراقی اجازه عبور از تنگه هرمز را داده است.
 @
-VahidOnLive
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -202,7 +203,7 @@ isna
 
 ###### 🔵 Post time: 2026-08-21 20:06:04
 
-<img src="https://cdn1.telesco.pe/file/lj3PqaI6-8GSNgQbZx_qj3foxu9HsduOKlsEj1DuEncXMLMcAlbs0lak9exY2bev2MYE2kU0XzkDoommCHKdpVr0kMwDkFq8xeF_wO9O5mOZg1JHbUSSYTA0Jf5MuG-MjG-oLzTldOuJZ8zjXT7min9N9ZydNJpXMhHypimrSDITSyzYOpo91SfDQBB4dlvSqsxaDV8nciJuA5B0fY4sedv7EhnONIEVMHZmngwGpiYgpDDq7z3yVDm4Eyr59VS1f3onGt0gOQq-8N32L3txu1mtx49jOqkWygfumXF3vuBdK8zJ19Pu7WrVeWBn4sL8ChvCHC9r8lpierWDbpLnoA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NWHLmwdFh6_h6191KNlX504PFv63No6hC_jl9Gkh_WnsfwtoFx3xYq5jsDuWV2ubHIO9UKtBJrokTZjOAreHMVfK7Lwt755opwNImRS1JhkPO7l0HVx4Xxm7LRJFG8WvvHN68DtZKRiWma9-Ldy0gSJmJyi-ZYaXKZ8ltC9sNNBqrfDuy9DVouYgEiiVi9SLd1TdI_QxEv8bK-gPjLlpM8pGjWiIc7t74AKLPH_jPhaGcaFxT-mBKMLQ-15CQTN2UszWzqm2oh3F7twwCBFks4ab4g1BApceORZuSsdE04tX1nyGL-q5VzHOy467boKDJKKwN67ztUz7V49HbGSkYQ.jpg" width="400"><br>
 
 اگر عکس من در آوتار اینجا جزو تبلیغ بود کلاهبرداری خطرناک‌تریه.
 این تبلیغات به خود تلگرام سفارش داده میشن و کانال‌ها امکان جلوگیری از نمایش اون‌ها رو ندارند.
