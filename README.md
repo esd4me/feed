@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-22 17:42:13 </h5>
+<h5> 🟢 Updated at: 2026-08-22 18:41:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-22 18:17:04
+
+
+
+باراک راوید، خبرنگار اکسیوس، به نقل از سه مقام آمریکایی در شبکه ایکس نوشت که جمعه، ۳۰ مرداد حدود ۴۰ نفتکش از مسیر عمیق جنوبی تنگه هرمز عبور کردند و حدود ۱۶ میلیون بشکه نفت از این تنگه خارج شد.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78003)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-22 17:11:03
@@ -268,7 +284,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-21 18:04:55
 
-<img src="https://cdn1.telesco.pe/file/PB7VWFPNI9JzD7BcxReotwSOP48kXEOeiRXNR9FPQiG2u1A3DyIcDrHRdgCeo6uCSBYIbWceAT6VUwjmbKfmPOjb2djVKlIqA5uT7Emkw7lPA9xntoXPm34mMHX50tkJVT9MNC3h5lCSebCaYW3oS_uPoZhI0j0CMeIEdFlVON9PqmlqGKNxtAKO05KdwUJL5GadHtQjAE9Nt_ue-PJQVOOFU7sRVIEE9w_wnGg0LIbNpw1x1JZdx66LDAt69YZG6fUSK2LUTHbgpGIRmONDTPCLPD8tIztKYBWnkKu_hry3iXb7QkMwis0rcuKwe7Ilhy4STUiJyTxB78shIuKy3w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/B10Acayb73tGL3Cr1E53dPwG8Co0tnj8jWE79-Z_GGp8bWO_tED15M-J5htJLWFb4vjwEs1VZ5d0-CCz0y15VuAdo-KrrF7D0hmLa4DEf7ypIKIVK4Kl2F0109UZrZBR1xdnKK8CwKJEQFkH5ce2L9y6TR9hDVnCSLZvlrIAWRjiZNM4lp5QdWlb3EudQ1KlSwFJeJjeiWYZcYA89EigjvFUqfH9FGu5K3v4-eFDdayA0oE7Pfn89G4Sl7s22xrPl-yvje7TOEx5KeqZNPtI0xla6OkzhgP_v7MevhwQ-MyIGAhV9iUJDOON3EyhX_dvBy-QDXaSq6iTzRzMETvMPg.jpg" width="400"><br>
 
 عباس پازوکی، معاون ارتباطات و اطلاع‌رسانی دفتر محمدرضا عارف، معاون اول مسعود پزشکیان، اظهارات منتشرشده عارف درباره تعیین نرخ ۸۷ هزار تومانی در دولت را تکذیب کرد. این در حالی است که رسانه‌های ایران پیش‌تر اظهاراتی از عارف درباره تعیین این نرخ منتشر کرده بودند.
 به گزارش رسانه‌های ایران، عارف دوشنبه ۲۶ مرداد در جمع خبرنگاران گفته بود پس از تعیین نرخ چهارم بنزین با بررسی کارشناسی و تعامل با نهادهای امنیتی و سایر قوا، قرار بود این طرح به‌صورت آزمایشی در کرمان اجرا شود، اما بدون هماهنگی با دولت متوقف شد. نرخ چهارم مورد اشاره ۸۷ هزار و ۲۰۰ تومان است.
@@ -288,26 +304,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77983)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-21 18:01:43
-
-<img src="https://cdn1.telesco.pe/file/fKv1vKkLPxXxpcr0kNJEkrynJ7POTWPwaV2Tdv5m4VaKI7h4MU270lk3RMGkg3KCy8R43HcjeHlCqNoixmxJZRYjB5Z23i_Ql3ujOi7crMnLwehS26xXYFx9G7K9Kr77M5jKfL297Jb7lFbte_FbGT1wXmAst_I6mg9xw8Q5SimIQQP-nFnTCLs1x4OYiB3RiEyAfZiPFJOemmcAuKpYdOVgzr_TvggAp_a5GCtN7_N92HUrEeYcJwGEu3ddzjLI9_HhDm3K9FM_xx19r0c3eCH7I3K6wIcMLT2PRUrNrfTVn5Frd11iBey93BhFqKh0kfFFvKzL6_5l_jl8gafdtg.jpg" width="400"><br>
-
-مسعود پزشکیان، رئیس دولت در ایران، می‌گوید اکنون زمان آن است که به جنگ با آمریکا پایان داده شود چرا که تهران در مقابل واشنگتن در موضع «قدرت» قرار دارد.
-آقای پزشکیان گفت: «بهتر است امروز که در قدرت و عزت هستیم و تمام دنیا به پیروزی ما اذعان دارند و تأکید می‌کنند که آمریکا برخلاف تمام مقررات، به مدارس، بیمارستان‌ها و زیرساخت‌های ما حمله کرده و در دنیا منفور است، جنگ را پایان دهیم.»
-رئیس دولت در ایران همچنین نتیجه مذاکرات ایران و آمریکا را که به امضای تفاهم‌نامه اسلام‌آباد منجر شد، «دستاوردی بزرگ» توصیف کرد که «با وحدت و همدلی در شورای عالی امنیت ملی به تصویب رسید و همه کسانی که در این شورا هستند و دستی در آتش داشتند، با قاطعیت از آن دفاع کردند.»
-آقای پزشکیان در ادامه از کسانی انتقاد کرد که «خارج از گود نشسته‌اند» و «نمی‌دانند دولت در چه شرایطی است، مجلس در چه شرایطی است و فرماندهان در چه شرایطی هستند، بی‌محابا اظهارنظر و تحلیل می‌کنند، هیچ رنج و سختی هم به آنها نرسیده و بعد هم دم از گرانی می‌زنند.»
-مسعود پزشکیان در عین حال تاکید کرد که اظهاراتش به معنای تسلیم شدن در برابر تعرض احتمالی نیست: «ما به هیچ عنوان در برابر قلدری سر خم نخواهیم کرد و هیچ تردیدی در آن وجود ندارد. تا آخرین نفس مقابل آنها خواهیم ایستاد و پاسخ کوبنده به آنها خواهیم داد.»
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77982)
 
 ---
 
