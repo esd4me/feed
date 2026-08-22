@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-23 01:42:04 </h5>
+<h5> 🟢 Updated at: 2026-08-23 02:41:57 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-23 02:23:22
+
+<img src="https://cdn1.telesco.pe/file/TEUOQw9623iX80fXtrKrzpipRC1gbdalB1lVKo80UHAdWDnCezYHavAh_-lgJtzLor9VRwEb8UuZlRri5PNXMe1FwYHr9nOVenxis4OCty_EC5VFDniyUELon3iblZJWWBl2Y4RDD9a1MrEuPPTVbVaC96nOvYHZZz3Y2uUgallitnojWel0TaKh3scSXK-6H2qW-qKaSZaEHmF1Zn9m5BjGFK6Pzpk9tb7YNlOZ7RyrZNBbGND-9RUbSv4URJ3pOjO-WoNzS453MH2kI6RW9JfBC515xd6QlWumqOoY1xYj9XxM7OHLmdcqmr1-5IYLvIZ8xJHbDYUM-CmvkeVsaA.jpg" width="400"><br>
+
+دونالد ترامپ، با انتشار پستی در شبکه اجتماعی تروت‌سوشال بر عبور کشتی‌ها از تنگه هرمز با اسکورت نیروهای‌ آمریکایی تاکید کرد. ترامپ مطلبی از مارک تیسین، مفسر آمریکایی را بازنشر کرد که در آن، تیسین به آمار خروج بیش از ۱۰۰۰ کشتی از تنگه هرمز با اسکورت نیروهای آمریکایی اشاره دارد.
+@
+VahidHeadline
+دونالد ترامپ، رییس‌جمهوری آمریکا، بار دیگر تصویری از نقشه تنگه هرمز را در تروت سوشال منتشر کرد که در بالای آن عبارت «قلمرو جدید آمریکا» دیده می‌شود.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78004)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-22 18:17:04
