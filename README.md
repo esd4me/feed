@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-22 18:41:53 </h5>
+<h5> 🟢 Updated at: 2026-08-22 19:42:55 </h5>
 </div>
 
 
@@ -220,7 +220,7 @@ isna
 
 ###### 🔵 Post time: 2026-08-21 19:05:27
 
-<img src="https://cdn1.telesco.pe/file/SuBb5E6uAu_8vXyqzxdqNfoVs0mzVqqq1DFSMdyRhS_cMO6uMNLbh_YfdyJxfwdUkbHzwCl4eL2rz50YbbViB6WEBv1YHrCuB2JPQA93qnPScrev-5DBpUhR_v6y7Zg21oAQvgzsFbs2LzpwmFtt8s8UzB1v0X_WqKkefNV8tgBOnpMFCCy3P35Ot1nfe5khjEW1fW-TLn2DSau_YwMTnH_UvoAN0DsPkiCNjKhtKyDpiEHTezNglpTsYFwmLa90EQlyowZXGsnf6GjOYyN-F8_dvEYWu9045joDklJuW9e0NBDBLymp4IInBMeIWZtPWErdsQzuGugnv2fyJ-pplg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pyj73qjkTbh6SGaWg3foZRJWth-6TfcuqzI-RJM0bKVI3lA_5YuUdK-LbGL_kn_tL2v3XguqVJLJlQaItEr1oPWssY0WZtESlVZd81PZGLGLnmI6spOdV_22LyFfKdfJx5vKhrsxqWPMb7EKguT0TQnURiiwi-NdgFmK-ARN0DF_tiwgJF7oQXyCRo5HStN7w05HsqIhItZwP-oA1CkjmxIsedyvxAq-RkuMYiQD9OmV0XSHHiv7v7YtgmuByJHRbsGqputNuik9BZ1exVov8qPjppUXriuhokeGi-oxXzyMp4fATo-s24YkJsu-nSveQ3WPM6ZUWmjVWIV7kdjFwg.jpg" width="400"><br>
 
 «هرانا» روز جمعه ۳۰مرداد۱۴۰۵ خبر داد که دیوان عالی کشور، حکم اعدام «ارغوان فلاحی»، زندانی سیاسی ۲۴ساله محبوس در زندان اوین، را تایید کرده است.
 حکم اعدام برای این زن جوان در شعبه ۱۵دادگاه انقلاب تهران به ریاست «ابوالقاسم صلواتی» در تیرماه ال جاری صادر شد.
@@ -240,7 +240,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-21 18:55:26
 
-<img src="https://cdn1.telesco.pe/file/iEH64_F-YjJ-oeLepekcmA7naBwhjUQhx4ZWc9pM7uU7QPmnCBrFx1lxKv9tpydQmSCoop-wP0nGNjYzxrnlSpLjlC5f0npVYnpjA5nCTwR_b7_WRU-8GIKKRyDbll1sobUAgA2DFW5HBSvp7Mw0kRmqgNDKqSXndCK9XSq5Iy6XSblJg_yjIEgpuJILNtbpOXukvCNlwgktLk00XoKYmEGhOQY277PZpcrC-TkzMYXVdit2z6-nMhomLoq2fX-DDOr8Nn_Z_9hHy7up7M_ZyRA6ucq94mWPB4iNzBNXo1PFraIFeP5-a5amApMBononWxPR90il-T5NxTdWUqICFg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NdI1yJrxBPURdy_QBU8RQ63Uc3XvASVLgVeSqEKzesIQVp2EQA8egT-1pKDHh5b4tSdtrCfw1yKgZr2u_y8atTxtfHGLlncU5kqSYq8RRCyRyEUoMWEYUTtBdeEgIZHgUjgEqcUGrFQmGmqVKC_m_lXt2xOsJNKfSdRtJGhIFRBMfKmzIQ3ssOj_FdliIkKUAqiVXwAOT_MYLZJ8ZzMeGKovHFQTZNMQSS2RFhF3DSWwwTbxX-KMDG4WOl_NDHNihrxnKIfGXncxLK4qCy8fkORjPzc5c9deLc1O-1OU6fLmBoqy3zB3C7zMWseq10CMbl6FkVNij-wZfbDOocGxaQ.jpg" width="400"><br>
 
 پست عراقچی، ترجمه ماشین:
 ۱۴ سال پیش: «فلج‌کننده‌ترین تحریم‌های تاریخ.» شکست خورد.
