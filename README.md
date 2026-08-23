@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-24 01:42:29 </h5>
+<h5> 🟢 Updated at: 2026-08-24 02:42:08 </h5>
 </div>
 
 
@@ -89,7 +89,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-23 02:23:22
 
-<img src="https://cdn1.telesco.pe/file/TEUOQw9623iX80fXtrKrzpipRC1gbdalB1lVKo80UHAdWDnCezYHavAh_-lgJtzLor9VRwEb8UuZlRri5PNXMe1FwYHr9nOVenxis4OCty_EC5VFDniyUELon3iblZJWWBl2Y4RDD9a1MrEuPPTVbVaC96nOvYHZZz3Y2uUgallitnojWel0TaKh3scSXK-6H2qW-qKaSZaEHmF1Zn9m5BjGFK6Pzpk9tb7YNlOZ7RyrZNBbGND-9RUbSv4URJ3pOjO-WoNzS453MH2kI6RW9JfBC515xd6QlWumqOoY1xYj9XxM7OHLmdcqmr1-5IYLvIZ8xJHbDYUM-CmvkeVsaA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/k4xItALeEBDs2ZR_hUxIKUaypD3HJCgD00NeJ5TO5yBYlyKbih_b3_ZuvuwoxmKha8itCyvsgLfdTkcOj0mGy9KAPh6SM3OPPgq-RkY9USPRmxts60QOzymfLqn5VD3IXLMaDiPBT4gfWArgRdXElC999_E0jCZQ9Ajrf2HZJ8o0liU5I_BMHotqaxyuHZ1-sf6ESLZGMi2IN8xYpV1ityNhuq30P0_MpbHUUawlhadrWiQgVUn62dB5LVePZFLiK4suA6rJdc1CuM1Xc-mV7w9z4sHscglocpJ4W0lGoXyVu1o-39UMaXgXzg8PkLWSZNxMnFdC7bLvM4YpY4ZcZA.jpg" width="400"><br>
 
 دونالد ترامپ، با انتشار پستی در شبکه اجتماعی تروت‌سوشال بر عبور کشتی‌ها از تنگه هرمز با اسکورت نیروهای‌ آمریکایی تاکید کرد. ترامپ مطلبی از مارک تیسین، مفسر آمریکایی را بازنشر کرد که در آن، تیسین به آمار خروج بیش از ۱۰۰۰ کشتی از تنگه هرمز با اسکورت نیروهای آمریکایی اشاره دارد.
 @
