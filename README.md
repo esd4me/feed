@@ -3,18 +3,18 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-23 17:44:16 </h5>
+<h5> 🟢 Updated at: 2026-08-23 18:43:21 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-08-23 16:52:52
 
-<img src="https://cdn1.telesco.pe/file/OKVGq_d80bl-JGRKizwV-sXnreWW8c4TahSWxC-vu4Y3fL0I4CN87bur4hSTSKW9OFeOgVzyuH7xrelXNXKK5RvQ9qG5PET9mpBEUna6VsxtQukfdy9M_c4yU8FE88psY2blJC5XeRJJ7Ci7_0ectU2P-7P7k8anwf_ZrteNqFTEFJWRpeNAVZkNdiH5AP0gcDI6mN8NWapZutHcLhvI9Iny7r9atdZ-zb8iiIuWMYI0b295Av2dj6qoGjjdumXUCNMXIOmx0DujAbT4vDLQpv_FoweI_Iqqz3JwdZDsgxhDsAyX0ft7iWomb9WJyueSiXFCuQ0_kSoYDB7cHVeUVQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IviqXHOF-XDhY-tUjKK7Epfsl6zxgYHZjevEoS4sOappq-RZxIb72BDezNkgVjrQ49Rq_eHadFHhVVhRHc5XI5VGPMEf7j5QTnpfMzXL7coXwB3g83gvxrPFoJGjWm-PfQlNgyZqLG48SVgbojhV67EsR_Dj5--iqW7kn3-oqZ71CI-t1nMPP65oxAzsbzi9KpiaonW_2RmX78Km8xKDEPlUUpm1JUMn4_QM60VOpU2Ediun5LA4u6wP3C4mqOn8FxIaS4bTntSJ-aa0brKqzLyz1054PbjBHCFtTue_33hD-zARuT9ejn_2Eu3iOqYftP11tACKAhaA_47w4FbafA.jpg" width="400"><br>
 
-قیمت دلار در بازار آزاد ایران از مرز ۱۹۸ هزار تومان گذشت و سکه امامی به ۲۱۷میلیون تومان رسید. هر پوند بریتانیا نیز از ۲۷۰ هزار تومان فراتر رفت.
-دلار روز شنبه به ۱۹۲ هزار تومان و سکه امامی به ۲۰۸ میلیون تومان معامله شده بود. بازار در آغاز هفته گذشته دلار را حدود ۱۸۶ هزار و ۵۰۰ تومان و سکه امامی را در محدوده ۱۹۱ میلیون تومان می‌دید. جهش امروز یک روز پیش از اعلام طرح تحریمی تازه آمریکا رخ می‌دهد.
-اسکات بسنت، وزیر خزانه‌داری آمریکا، اعلام کرده روز دوشنبه ۲ شهریور در نشستی خبری جزئیات طرح انزوای اقتصادی جمهوری اسلامی را تشریح می‌کند.
-امارات متحده عربی نیز هفته گذشته اعلام کرد همه فعالیت‌های تجاری، مبادلات و معاملات مالی خود با جمهوری اسلامی را تا اطلاع ثانوی متوقف کرده است.
+بهای دلار آمریکا در بازار آزاد ایران روز یک‌شنبه اول شهریور از مرز ۲۰۰ هزار تومان عبور کرد و رکورد تازه‌ای به جا گذاشت؛
+همزمان پوند بریتانیا از ۲۷۲ هزار تومان گذشت و یورو نیز به محدوده ۲۳۴ هزار تومان نزدیک شد.
+قیمت سکه امامی نیز از ۲۱۸ میلیون تومان فراتر رفت.
+این جهش قیمت‌ها در ادامه روند کاهش ارزش ریال و همزمان با تشدید فشارهای سیاسی و اقتصادی بر جمهوری اسلامی رخ داده است.
 @
 VahidHeadline
 📡
@@ -320,7 +320,7 @@ isna
 
 ###### 🔵 Post time: 2026-08-21 19:05:27
 
-<img src="https://cdn1.telesco.pe/file/pyj73qjkTbh6SGaWg3foZRJWth-6TfcuqzI-RJM0bKVI3lA_5YuUdK-LbGL_kn_tL2v3XguqVJLJlQaItEr1oPWssY0WZtESlVZd81PZGLGLnmI6spOdV_22LyFfKdfJx5vKhrsxqWPMb7EKguT0TQnURiiwi-NdgFmK-ARN0DF_tiwgJF7oQXyCRo5HStN7w05HsqIhItZwP-oA1CkjmxIsedyvxAq-RkuMYiQD9OmV0XSHHiv7v7YtgmuByJHRbsGqputNuik9BZ1exVov8qPjppUXriuhokeGi-oxXzyMp4fATo-s24YkJsu-nSveQ3WPM6ZUWmjVWIV7kdjFwg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/InpXgGEDPeiy2WN2sYxt3sKvvTslthuocEboZcjhAHz0Y2QIqf91oyLmnYcMA9Vn7ktuJL0rOKWzKIl4oYlquFr-JoVyjeNwHYYg8TLX8cZdXU4CNmxDiub6PY_NMcU8A7H1X0Q7WgBBzcwiKYq9rcRrG4C0VAa4t5aZmXF2rMSO0GOPOhMDPtznubzuePrtcTNDX2Ohb0NN1N8XdEiB8oxtnBchj4p7IIpKoijlYQTku8BQK6C6vrbJ7JK2zoyfcLPfzjs99ZX7nftehscYpGBy0PGKSE3C4idRy_a5WW4WkPtLyR3Vx3UJedDodMa_pCs15ujtt2RP7PbkAmvUDw.jpg" width="400"><br>
 
 «هرانا» روز جمعه ۳۰مرداد۱۴۰۵ خبر داد که دیوان عالی کشور، حکم اعدام «ارغوان فلاحی»، زندانی سیاسی ۲۴ساله محبوس در زندان اوین، را تایید کرده است.
 حکم اعدام برای این زن جوان در شعبه ۱۵دادگاه انقلاب تهران به ریاست «ابوالقاسم صلواتی» در تیرماه ال جاری صادر شد.
