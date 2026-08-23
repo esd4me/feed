@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-23 07:12:28 </h5>
+<h5> 🟢 Updated at: 2026-08-23 07:57:57 </h5>
 </div>
 
 
@@ -83,7 +83,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-22 17:07:55
 
-<img src="https://cdn1.telesco.pe/file/WbLC1rF9bHfz5yknRSUe3gXsE9u0vji_qLOVDmgZrVAWPpa0LTTDhQORSHYoUUuI5UVJHXOv4xnL-rsw4OIfALXfi1LMgM477q7CQmxZdK9OUg5o-fVxdo93xYfIiX_gIqAIq2YprZlgwRd2KbvctZN8cM38BagL5bJoXypJNw72D-fIxDmu8IiC-xxvvv_H1G79xI5c_MizSn2PDem8DdhBA7sMXuHQfXPLsbMUk4Aiyz4anvId_uGa2jQtDGtorJfjgmlXfNzWGhGidT9-O-B_S3cUQWuIeVK2D7djxXdFqXgo8g_HmoRWzLD1UrMt40JeLUfiYEr_gjfKpqZChQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/YnXom66ld4Tyg3liZTSns62E4ufeEwC_MFNFCY_GkjRB251Bao4eDKmNRlaXAUL0aMqeNqcMX3kJPSy-E9xWGVgT0AHopvtcwaTFIzHDDvXX4JELJHYy1lp90OjxSEv1ExZ0LX7HA1PSiLZH8oZFzwKEcqFMLiv15JLeCSfpWf6oFCp26rAahhuys75jZ1Re0xr_c9T-c9SFVR4n1DJJNTaPCfjyGxq_dA2Tp-lgne2QhXGK4Sfgy8BUcYrgp5DBsdPOTGb_REpYgnE8msJ2mkYNREcbTrMyEnTsdIQpi7f3jwaPmGUU0XLP57E7qJsd9U6-KfiAzcr87PsYK-41EA.jpg" width="400"><br>
 
 محمدرضا عارف، معاون اول رییس دولت در ایران، با تاکید بر ضرورت آنچه «اصلاح الگوی مصرف انرژی» خواند، گفت: «باید مردم را توجیه کنیم تا بدانند که اکنون بخشی از درآمدهای کشور صرف تامین بنزین می‌شود و این موضوع هزینه و فشارهایی را به بخش‌های دیگر تحمیل می‌کند.»
 isna.ir
@@ -278,7 +278,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-21 18:55:26
 
-<img src="https://cdn1.telesco.pe/file/NdI1yJrxBPURdy_QBU8RQ63Uc3XvASVLgVeSqEKzesIQVp2EQA8egT-1pKDHh5b4tSdtrCfw1yKgZr2u_y8atTxtfHGLlncU5kqSYq8RRCyRyEUoMWEYUTtBdeEgIZHgUjgEqcUGrFQmGmqVKC_m_lXt2xOsJNKfSdRtJGhIFRBMfKmzIQ3ssOj_FdliIkKUAqiVXwAOT_MYLZJ8ZzMeGKovHFQTZNMQSS2RFhF3DSWwwTbxX-KMDG4WOl_NDHNihrxnKIfGXncxLK4qCy8fkORjPzc5c9deLc1O-1OU6fLmBoqy3zB3C7zMWseq10CMbl6FkVNij-wZfbDOocGxaQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/FddQ80NT6N00J_qcuJF5R6O4VNBYNMm_JtgixG3r4A_tQJnA6YMgsmm25xEvqoG14-CexaNXfJV8FY8Dzd13PaqyayfA_rHkTB2zgahZBQHkZk9z7gI6Oz-SxMXQNi0ss0vGfmUAlRZrPWjERVo6ZyaiC_KWlNDBgt71lgX6DA3wz2040oDvv1mza7UHuSAeOQQSvcy07X1P6uw_X_3NCzEMVhpeHv7XmtZmW1fafxtruSA3pSP6Az34yKPJuRK-TSCp_EuNK_zEnIQdMBNnqdZDbXaDARAODqQRS8ulbYk0oyT2fkKmw6qCez2nVILhci6dLy4d7CxAnGsMaWG0QQ.jpg" width="400"><br>
 
 پست عراقچی، ترجمه ماشین:
 ۱۴ سال پیش: «فلج‌کننده‌ترین تحریم‌های تاریخ.» شکست خورد.
