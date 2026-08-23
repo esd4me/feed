@@ -3,8 +3,70 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-23 15:50:48 </h5>
+<h5> 🟢 Updated at: 2026-08-23 16:55:23 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-23 16:52:52
+
+<img src="https://cdn1.telesco.pe/file/OKVGq_d80bl-JGRKizwV-sXnreWW8c4TahSWxC-vu4Y3fL0I4CN87bur4hSTSKW9OFeOgVzyuH7xrelXNXKK5RvQ9qG5PET9mpBEUna6VsxtQukfdy9M_c4yU8FE88psY2blJC5XeRJJ7Ci7_0ectU2P-7P7k8anwf_ZrteNqFTEFJWRpeNAVZkNdiH5AP0gcDI6mN8NWapZutHcLhvI9Iny7r9atdZ-zb8iiIuWMYI0b295Av2dj6qoGjjdumXUCNMXIOmx0DujAbT4vDLQpv_FoweI_Iqqz3JwdZDsgxhDsAyX0ft7iWomb9WJyueSiXFCuQ0_kSoYDB7cHVeUVQ.jpg" width="400"><br>
+
+قیمت دلار در بازار آزاد ایران از مرز ۱۹۸ هزار تومان گذشت و سکه امامی به ۲۱۷میلیون تومان رسید. هر پوند بریتانیا نیز از ۲۷۰ هزار تومان فراتر رفت.
+دلار روز شنبه به ۱۹۲ هزار تومان و سکه امامی به ۲۰۸ میلیون تومان معامله شده بود. بازار در آغاز هفته گذشته دلار را حدود ۱۸۶ هزار و ۵۰۰ تومان و سکه امامی را در محدوده ۱۹۱ میلیون تومان می‌دید. جهش امروز یک روز پیش از اعلام طرح تحریمی تازه آمریکا رخ می‌دهد.
+اسکات بسنت، وزیر خزانه‌داری آمریکا، اعلام کرده روز دوشنبه ۲ شهریور در نشستی خبری جزئیات طرح انزوای اقتصادی جمهوری اسلامی را تشریح می‌کند.
+امارات متحده عربی نیز هفته گذشته اعلام کرد همه فعالیت‌های تجاری، مبادلات و معاملات مالی خود با جمهوری اسلامی را تا اطلاع ثانوی متوقف کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78008)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-23 16:52:08
+
+<img src="https://cdn1.telesco.pe/file/vLNRz1egtgSd8_VPwQhbDz_zqjnPDDGuA0yc-ppr6wOvAieZjseWt7iWD2TakCbqPmAa5vCmUdicM_vzOcx1Ncl7qjw2mjashc4L71qOd4o4lBXE5kZfhOrNzvwQ8Js3TVUJuiHtO2rnMzyrogdDnie-okHFIf0ocS2qw0G4CHkLQ5SwXKz1KpfYhIk11xIxV_Mvz5Hn_pvevO0BqM_sTN0hdjQAJEP4JjiuNSB6qBY4XxCTEeblOaskYBpVbiEOEWs_vgOAwQvBLuBFUDxJnnBShh9sUeD04-NazzJYpjBugqV4wLqnS0HDmlnEdE5x6pf_yvg8i0BUf8KMB9qVhw.jpg" width="400"><br>
+
+امیر رئیسیان، وکیل حسین شنبه‌زاده، از صدور حکم بدوی موکلش در پرونده‌ای جدید خبر داده است.
+بر اساس این حکم، شنبه‌زاده به اتهام «نشر اکاذیب به قصد تشویش اذهان عمومی» به یک سال حبس تعزیری محکوم شده است.
+رئیسیان در حساب کاربری خود در شبکه اجتماعی ایکس نوشته است که این پرونده مربوط به پیامی است که شنبه‌زاده از زندان و به مناسبت روز تولدش برای دوستانش فرستاده بود.
+او با انتقاد از حکم صادرشده نوشته است: «فقط تصور کنید یک زندانی با استناد به "نحوه انتشار در رسانه معاند فضای مجازی" به حبس محکوم شده است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78007)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-23 16:49:53
+
+<img src="https://cdn1.telesco.pe/file/jXN-8E8u7eTHD9B0FE3acU2JKVUBBxfJHkMhcBUq2oNvY1AA9tLkgo-Aq0N-KN__0J247Ydt2GCToifr9m0tyiKj89R2f72lJ0KYcnjBTtRwUwysPw2s0XZxO1aXcfJ7pkuKcdMVm3gV4Yw4u73FDnOuKtDN5eQ-wSjOpceKW3lDg6YonUX4xLe-_U59GetNlCaukkE9Y1MDn1TIUKZdeRcXZpyKlK7goUhemiSvuNsAVkAYcyfXuKSIGifKcfy2l6VTCEtew9yCZb2WMqB4KrVUCU-3gJ07fSP8gNyzQY04nF6BD7NHU4zrJyqXymF9pdIawRbTaekEgi-0ZsITRA.jpg" width="400"><br>
+
+قوه قضائیه جمهوری اسلامی از اجرای حکم اعدام «مجید آدینه»، یکی دیگر از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در کرج، خبر داده است.
+براساس گزارش تسنیم به نقل از قوه قضاییه، این حکم صبح یکشنبه اول شهریور ۱۴۰۵ اجرا شد.
+مجید آدینه روز ۱۹ دی‌ماه ۱۴۰۴ در محدوده محمدشهر کرج بازداشت شده بود.
+مقام‌های قضایی مدعی شده‌اند که هنگام بازداشت او یک قبضه کلت کمری، سه خشاب، ۳۰ فشنگ، دو شوکر برقی، دو افشانه گاز اشک‌آور، یک اره برقی شارژی و یک بطری بنزین همراه داشته.
+قوه قضائیه اعتراضات دی‌ماه را مطابق روایت رسمی جمهوری اسلامی «کودتا» خوانده و آدینه را به همکاری با آمریکا، اسرائیل و آنچه «گروه‌های متخاصم» نامیده، متهم کرده است.
+دادگاه انقلاب کرج او را با اتهام «محاربه از طریق تحریق عمدی» و براساس قانون موسوم به «تشدید مجازات جاسوسی و همکاری با رژیم صهیونیستی و کشورهای متخاصم» به اعدام و مصادره اموال محکوم کرده بود.
+اطلاعاتی درباره دسترسی آدینه به وکیل انتخابی، روند دادرسی، زمان برگزاری دادگاه و نحوه اخذ اظهارات او منتشر نشده است.
+اعدام مجید آدینه در ادامه اجرای احکام اعدام علیه بازداشت‌شدگان اعتراضات دی‌ماه انجام شده است. بیش از ۳۰ کشور روز ۲۱ مرداد ۱۴۰۵ با انتشار بیانیه‌ای مشترک، ادامه صدور و اجرای احکام اعدام برای معترضان ایرانی را ابزاری برای «ساکت‌کردن صدای مخالفان» خواندند و محکوم کردند.
+عفو بین‌الملل نیز گزارش داده است که جمهوری اسلامی در سال ۲۰۲۵ دست‌کم دو هزار و ۱۵۹ نفر را اعدام کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78006)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-23 04:56:47
@@ -102,7 +164,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-22 17:04:04
 
-<img src="https://cdn1.telesco.pe/file/andVAH1dtI5Kd5z_kvRJtzdFzVDKW8158-BVFmeUacGDQ2J8phSYf2qSNjFV_dKDT9AwX1PIlNNrDVMr4QvD4-_zv-W9WAOmVQPOWdF2ox1AH9L-uB1GHH9Z9UI8rT1oWdrb786dUrm3EYJJTvrhhKAIEcZf4JsvRHTL4LWjVuzLwxiNJrYVL4S4sZCb4wq1FENfeggQU2FIGSRbdp1pndCmHHyOxzcHZ7xgmdbLYt1Lo9Aij3vaCHNd-uj71m4fF7Lxoh8xJFrR3Dyeo5Ev6rO1aoyDK_L-9pvBgGA48H1i2zv5ye8KWBTeDywUM32Dcyti6T4xOD11Sb0qTJ6jOA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/osuFKFqNOcuD7GfZfpjHKfZY6dEoUVwFjKDFQeEBoRJHrCtx1CpWFOVAQBYnRtqud8T0vvmaHE0YQmVJ_umVTV85pwKdrIizW3uHkrl99ygunH84VScytjnu6sOyKs4nIscHE0-tgUkGkyJSmdoZ4HRPRmmz7xQ4UH4_6k_N-MrijrD52ZSnHcpBVulwb1LAsf3OBW79Hs9lvU601ZLnTXhtrrbs6ti90ovn77us8gYy9X5OfP77hBEPdFR3hQet8PLZRCPoe-SX2vUjWiE7qVi9G_F3YPdvEdeNmJ5yJsTTkVbEXFOCHTNdlnTj9f_dHCKz9b-FpQPNYTb7nn2gOA.jpg" width="400"><br>
 
 «فرزانه فصیحی»، دونده المپیکی ایران، گفته است پس از اعتراض به کشتار معترضان در دی‌ماه ۱۴۰۴ تهدید شده و مسئولان مانع حضور او در مسابقات قهرمانی جهان شده‌اند.
 فصیحی در
@@ -128,7 +190,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-22 17:01:14
 
-<img src="https://cdn1.telesco.pe/file/jkcRbc-2hum3EdHY0KiqHUltPFTDrOjidKbegDn9HvtWKwalhE32yNKgcb0kyJvFSntxnvTa3V6y5PzuCb0YwcyKoq1zkBaE4wWRlTRoaj_jApgX6R-J7dUQSIBIApL4Lzpdhqyj2L02WjhII9-1Ijm-w2VJDkStnCNd1aPcL9-z2P1chNYUmAvRc3uSuFr6GC-7e0lo6hJpaXTDUwk9b_Fjg-7ytfxwxx5AUvojTxZLsipPv4wP0GRy6CcKyHXMt9feCsJ5cKXHL4X7bW1knZwco56FVh0gOdqbeDHpgZULd8gYgqOslOm_g5S9pmgNH2G_29iJFp8d0EBCyNHRig.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jJNxkTr_rF0IUYAW1H-tl_KHbU1uYV8IFM2s7sBXTmFs_dBGc3YBCzVn7bS6RnQKOxTzVY_jaIAAh0O9TrpAfZ1A_NuTNOq5wmerSiZCcQVsyZdc2rKSefgsDS4_L5_Sh1G21F5F80EljNWxjcd-sU6qS3tPIwBgJE1vvEFNYuaOQNVyryvRQypCrj4yS2edcP6wi7lLvO15FaVJStnkESjo1FiOiL5PjOIOxTYqEBEWsQcFoMcDdEXAyPnl5uxgmFI4q7xUjWmHb9TlmR_8Qtjtx97spZuLgqXyhtzvaR7fHaOo34czb7ad60ImEcicEu-wDFXoZIMJTyOCZLd0SQ.jpg" width="400"><br>
 
 محمدباقر قالیباف در شبکه اجتماعی «ایکس»، بدون نام بردن از کشوری نوشت: «پیام‌های متعددی از کشورهای همسایه درباره شکل‌دهی به ترتیبات امنیتی جدید و همکاری‌های اقتصادی در منطقه دریافت کرده‌ایم.»
 او مدعی شد آمریکا با «قلدری» و نادیده گرفتن منافع متحدان خود به سود اسرائیل، امنیت آنها را به خطر انداخته است و افزود یک «نظم بومی و مستقل» می‌تواند صلح و امنیت واقعی را برای منطقه به همراه بیاورد. رسانه‌های حکومتی ایران این اظهارات را واکنشی به تهدیدهای دولت دونالد ترامپ علیه کشورهایی دانسته‌اند که به همکاری اقتصادی با تهران ادامه می‌دهند.
@@ -151,7 +213,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-22 17:00:33
 
-<img src="https://cdn1.telesco.pe/file/gMMZbZkcpcjmo-kcEMTAs4bqUXMd7tgtO-CT8C-ZMbPU0Iz8ti93gD3AawWn_5U9NlDeIDJyENxuUv6UIIZf3bolVDcOo67zftXssAR5D-OTi0E5vTGe-8uvvpAOC_8eMwQEjXvvJeCeWBabC6l2dgmFvTck6n5cxz_M5Gu5ZO3J-069fJtPIAvuoF5l09H8Wypjwls7M21EelxDS_hughpq0WPds8Q0ygGGzMI8F77ma4Q7RqJPyT0DfWXE6aklLQPeX8eG2FSGyFayO2tdqbRJpPd3pEsCp8q4PzKpfZxTbi9hsx2pjOON_RhdLtrn9-d9eyKKRA_MqG2byHxT0w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QThxeHws1fCQyt7ez0z3rlTAyEV97SRToc68D6ReorTRLqPvknIhXI0-x5OhdW5joN_2VgeEiPF_k5vCeaPKhpa8xHynt_1h8Oy0nZVr8AuTC-2exXgVyx2xzDjgrhU8egFFeUcb86iRGFMgC-CnnUY4T-RPj9mhykdX1d4WwH4Eu2dQieBhwJCpIJgrW-8juJcnv7_15-JwjshD5Dv_stSvU923D_U6qLaSHJVawVaTysk8iNkiw_u3mZNY-o0oBgyJIgUFVn0XL7PUAfCVU3JsEyJALYHrgAMfDuH2RkUKbCoUI4N-JQyuZAQ_U8UeRYdX01kZ951ZttarKS1kPA.jpg" width="400"><br>
 
 «آرزو کشور» مالک و مدیر یک سالن زیبایی در اصفهان به اتهام «ارتباط با دول متخاصم» به ۱۲سال حبس محکوم شده است.
 آرزو کشور از بهمن‌ماه سال گذشته، در زندان «دولت‌آباد» اصفهان نگهداری می‌شود.
@@ -271,50 +333,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77988)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-21 18:55:26
-
-<img src="https://cdn1.telesco.pe/file/FddQ80NT6N00J_qcuJF5R6O4VNBYNMm_JtgixG3r4A_tQJnA6YMgsmm25xEvqoG14-CexaNXfJV8FY8Dzd13PaqyayfA_rHkTB2zgahZBQHkZk9z7gI6Oz-SxMXQNi0ss0vGfmUAlRZrPWjERVo6ZyaiC_KWlNDBgt71lgX6DA3wz2040oDvv1mza7UHuSAeOQQSvcy07X1P6uw_X_3NCzEMVhpeHv7XmtZmW1fafxtruSA3pSP6Az34yKPJuRK-TSCp_EuNK_zEnIQdMBNnqdZDbXaDARAODqQRS8ulbYk0oyT2fkKmw6qCez2nVILhci6dLy4d7CxAnGsMaWG0QQ.jpg" width="400"><br>
-
-پست عراقچی، ترجمه ماشین:
-۱۴ سال پیش: «فلج‌کننده‌ترین تحریم‌های تاریخ.» شکست خورد.
-۸ سال پیش: «فشار حداکثری.» شکست خورد.
-۵ ماه پیش: «تسلیم بی‌قیدوشرط.» شکست خورد.
-امروز: «کوبنده‌ترین عملیات اقتصادی تاریخ.» محکوم به شکست است.
-این فیلم را قبلاً دیده‌ایم. همان مزخرفات. قلدرها عوض شده‌اند.
-araghchi
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77987)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-21 18:11:45
-
-
-
-حمیدرضا حاجی‌بابایی، نایب‌رئیس دوم مجلس، روز پنجشنبه ۲۹ مردادماه در گفت‌وگو با خبرگزاری فارس با اشاره به تحولات مرتبط با تنگه هرمز و تلاش برخی کشورها برای ایجاد مسیرهای جایگزین انتقال نفت، گفت: «کسی که امروز خط لوله می‌کشد تا تنگه هرمز را تضعیف کند، در واقع به ما موشک می‌زند. نباید اجازه دهیم خطوط لوله جدید ایجاد شود.»
-او با تاکید بر اینکه احداث این مسیرها در راستای منافع ایالات متحده است، افزود: «هر کشوری که در زمینه فناوری یا اطلاعات به آمریکا کمک کند، عملا وارد جنگ با ما شده است. احداث خطوط لوله‌ای نظیر فجیره و ینبع برای کاستن از اهمیت راهبردی تنگه هرمز، مصداق بارز جنگ و حمله موشکی علیه کشور است و پاسخ ما باید ممانعت از ایجاد چنین خطوطی باشد.»
-این اظهارات در حالی مطرح می‌شود که شبه‌نظامیان حوثی یمن، وابسته به جمهوری اسلامی، در هفته‌های اخیر با حمله به کشتی‌های حاضر تنگه باب‌المندب تلاش کرده‌اند صادرات انرژی از این آبراه را مختل کنند.
-از سوی دیگر، مرکز مشترک اطلاعات دریایی (JMIC)نیز، روز پنجشنبه، از عریض‌تر شدن گذرگاه جنوبی تنگه هرمز خبر داده و اعلام کرده بود این تغییر امکان تردد هم‌زمان کشتی‌های ورودی و خروجی را فراهم می‌کند.
-مدیرعامل آرامکو نیز روز ۱۳ مرداد ماه، اعلام کرده بود این غول نفتی با تکیه بر خط لوله شرق به غرب عربستان سعودی، کانال سوئر و تنگه باب‌المندب، به صادرات نفت خود ادامه می‌دهد.
-@
-VahidOOnLine
-مصطفی خوش‌چشم، کارشناس صداوسیما در مصاحبه‌ای پیشنهاد داد، «نیروهای محور مقاومت» با استفاده از «مین‌های دریایی هوشمند» خلیج فلوریدا را مین‌گذاری کنند.
-خوش چشم، در تیرماه گذشته در تلویزیون به شدت از عباس عراقچی، وزیر امور خارجه، انتقاد کرده و تحلیل‌های او را به «رانندگان تاکسی» تشبیه کرده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77985)
 
 ---
 
