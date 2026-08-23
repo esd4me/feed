@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-23 16:55:23 </h5>
+<h5> 🟢 Updated at: 2026-08-23 17:44:16 </h5>
 </div>
 
 
@@ -125,7 +125,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-22 17:11:03
 
-<img src="https://cdn1.telesco.pe/file/Sy1FnLaBlVNT9WxXsaIy03a7YHbf4KKEwZEX2H9qSUifp87D9H7Gg-wBf08t27uO84pQdBwrswg76ks3EZKT8SD-LFi7Wteg6vVetYANjKAyvWPjQQ2n9KHL-a_bBtv7r15RbmWnS2JsOaD3heGZ5ar0zzPv6jwMvtgELMe-3MCcMYJTjtD4-lyVyI25-XluBrXYsI952SJB9-TrMparDpGWIXTUE6JnyuKvONlEiZXyZZX7YKZ0cQinp0cSUsipRuvh03P38jXXPldR3VK-hNkutAaYf-fpgGodwBotQHAMC9sSknw3s1pebpvJ3I8ge3qiJgLiCizZAaECRLUnUQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/isuuwJfSAdKGMzS1PUoCCcTtPAyqS9M47tGCyPcZKHjViEpB7yzpigLn8ngxEETJl0iB5CZBFMSwTnZrXAZxX5W-XphHwGzHCWDQFelyHovRZsThvBd7LHkDu4P-vHvE2YGFcl9mkcHWjt7LFapLvsT4z4Tjyc0wFpUWj7U50VlTEXK31IxaN4cD_BvachzXWeoYLoY5IpNun-JPmkU7vLD5ZMD7wjx7wnOe10pmKgYQdPNQlTe79SfnDkV77Drh1jmnloUP5LMOipnwJZ2zk6mS6p_f5gqZq29psvrI_PZJS_-ubtz5MnPbksFaWTiVFbZTjhb94FqGncXgJB_Thw.jpg" width="400"><br>
 
 احمد وحیدی، فرمانده کل سپاه پاسداران، در پیامی به پیمان جبلی، رییس سازمان صدا و سیما، ضمن حمایت از رویکرد این سازمان، نوشت که صدا و سیما در دوره جنگ اخیر، «در ثبت و ماندگار ساختن این حماسه، سهمی ارزشمند در تقویت جبهه رسانه‌ای انقلاب اسلامی بر عهده گرفت.»
 وحیدی همچنین عملکرد صدا و سیما را «مجاهدت ارزشمند و نقش‌آفرینی موثر» توصیف کرد.
