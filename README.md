@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-23 20:42:47 </h5>
+<h5> 🟢 Updated at: 2026-08-23 21:46:02 </h5>
 </div>
 
 
@@ -108,7 +108,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-08-22 18:17:04
 
-<img src="https://cdn1.telesco.pe/file/b0Y9InhWIXvDUdNoDqFPbcN3XFhZwTI1auSe-xXaE12ZPBct5Wx8p9bLiqhYzByTdnMT56qsCV-w5wlKehDR-3AmqAItNDnHaVH1jLsix8MniH1Cm0IIoXUOVJvnz-SjLXYoAJYepwJz4p6HGO7m-e45Gy5zoGoSPja570aCakn6ckmWqbZ0kyADMjk9cBDLb3LYjoHWjstkE0L1N7ej6x9GtjawXSq5Jt4CjlLxfjDCnYrAbKEFSM_NN5nOWkMpX1pRDSFa69D3BeUdLpGrlnyJZi-Pc56_rtEjDjjA9qWA1Dl1Uqdgb6dOqELdBMHeI8pjQlb3CtZDNsNICs9moQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/WZ5eWr0aAj7Aat1RTW2foHOiFMVWggiOOqe2diLI87GJvJGlLyNJFkPaGeLRa0DZwF2NaYynakAx6vQowVMEtrbcPVmGNIhx5GJUYU3JoslYz_ylzZXHjIWkcltlSg5ny1-jYZdD-JZEKWLUTcWcVoj6MSP8c-CQUNQPJwP_4MqUJanF50tZLcTJ1rYoykufhYuxtJdQ1wU_9wulnkiwSHZKaHK6Q-SOJ_MipExwDGmqN1m33kOKKYxtzcuWKMR69IDZ5XZDU3TH_Z9aU3oZOPWquz4wrBqmVirSUcY0qxxhggrLTrQIU2Q6t4n9T0qO5n_HDGsfcBYOW0PmPWgAUg.jpg" width="400"><br>
 
 باراک راوید، خبرنگار وبسایت اکسیوس، روز شنبه ۳۱ مرداد ۱۴۰۵ در شبکه ایکس به نقل از سه مقام آمریکایی گزارش داد که حدود ۴۰ نفتکش شامگاه جمعه از مسیر عمیق جنوبی تنگه هرمز وارد یا خارج شده‌اند و حدود ۱۶ میلیون بشکه نفت از این مسیر به خارج از تنگه منتقل شده است.
 همزمان، رسانه‌های دولتی ایران مدعی شدند، تهران پس از درخواست‌های مکرر بغداد، به شماری از نفتکش‌های عراقی اجازه عبور از تنگه هرمز را داده است.
@@ -302,7 +302,7 @@ isna
 
 ###### 🔵 Post time: 2026-08-21 20:06:04
 
-<img src="https://cdn1.telesco.pe/file/NWHLmwdFh6_h6191KNlX504PFv63No6hC_jl9Gkh_WnsfwtoFx3xYq5jsDuWV2ubHIO9UKtBJrokTZjOAreHMVfK7Lwt755opwNImRS1JhkPO7l0HVx4Xxm7LRJFG8WvvHN68DtZKRiWma9-Ldy0gSJmJyi-ZYaXKZ8ltC9sNNBqrfDuy9DVouYgEiiVi9SLd1TdI_QxEv8bK-gPjLlpM8pGjWiIc7t74AKLPH_jPhaGcaFxT-mBKMLQ-15CQTN2UszWzqm2oh3F7twwCBFks4ab4g1BApceORZuSsdE04tX1nyGL-q5VzHOy467boKDJKKwN67ztUz7V49HbGSkYQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jPTGanoCIsW-lMKY0h9H3Os5-yBTC_SCFmNBkI9LIg_L3VffA7COpkJaNGz84ou3sMWCBbkNTD5qNgQLL-TD9KLj6siKwooPMtk-usOy4wTBn--9qg2oXT_L16aVRlNFlRuX5YZLzeqqCKvfokl77MhrEB4t0S8cV5mfzyuZvjxzNafiEzsaBk9FnlVZhTe1AMwFLMVeTdBh0_lLIKvmzw3LS7RsnGn0GCIu4HzHBEqdxCzOKx94P-mDy53W1C3xEpV_VrdLX4_Uccgn5OMCspBaq2bVzL1GDxFNwI2BRivmRqhSwMth3KnpWYdLM-1v916EN4jtdFktAedIzcNlbw.jpg" width="400"><br>
 
 اگر عکس من در آوتار اینجا جزو تبلیغ بود کلاهبرداری خطرناک‌تریه.
 این تبلیغات به خود تلگرام سفارش داده میشن و کانال‌ها امکان جلوگیری از نمایش اون‌ها رو ندارند.
