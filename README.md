@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-23 04:15:10 </h5>
+<h5> 🟢 Updated at: 2026-08-23 05:49:18 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-23 04:56:47
+
+
+
+محسن رضایی، دبیر شورای عالی امنیت ملی، می‌گوید از نظر حکومت ایران هر کشوری که با آمریکا در ایجاد محدودیت اقتصادی بیشتر علیه ایران مشارکت کند، «دشمن» تلقی می‌شود و تهدید کرد در چنین صورتی این کشورها هدف حمله قرار خواهند گرفت.
+محسن رضایی در یک گفت‌وگو تلویزیونی که شامگاه شنبه ۳۱ مرداد از صداوسیما پخش شد، همچنین تهدید کرد اگر طرح جدید آمریکا علیه ایران برای ایجاد محدودیت اقتصادی بیشتر اعمال شود، جمهوری اسلامی اجازه نخواهد داد «یک قطره نفت نه تنها از تنگه هرمز که از کل خلیج فارس» خارج شود.
+این اظهارات تازه‌ترین واکنش مقامات تهران به تحریم‌هایی است که دولت آمریکا قرار است روز دوشنبه آتی جزئیات آن را اعلام کند و اسکات بسنت، وزیر خزانه‌داری آمریکا، پیشاپیش آن را «سخت‌ترین تحریم‌های تاریخ» علیه ایران خوانده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78005)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-23 02:23:22
@@ -151,7 +169,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-22 05:19:46
 
-<img src="https://cdn1.telesco.pe/file/syNHcMZaDNuvzrt5IMnMDaZRuE0AIIp-PoSyFWVCon04sPt06YT0FSE3cpK01KEMaWW8sfaGI3kh4xgfmYIWxfIRpfI10_BEVMPfnHMvOIGQZsjbRLIma26twx4QZ33Itf2hLJ8rZXTwAyyczIe1snCcQCSjezYB2XVG1WoSUSEj-GjWipBCfV1FfLpoS2_PCDyXhF7Snw8Yugd7mcIxBRPu_hX2jrP2-XVSD04VLu8fqv0YnRf5Fx40hXgZMW56158yFagQiyAURT28o4YkGRQCKd6Ue-9m6ehR6gU4EYAo6VqIRzXHyx69J2ExdB5nsxxExQ0vj7Uuur03QPvY8A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/kpXTXwqQ-P1j6Cx9_0BEvNiowrlP1cCoqMdm6u7TTt0YsAd7oNMKSvP8TlrjinNAxuT95zYqk-aXZ2NMmdbhN-lruwIals8aHWCAxHoYqFQuaAZfFElqnE6hEwttNJ_tpDxvAHeAV_q2P49ta66ABJkkbw2mtOoPrIplHGN6DFJFWKnVYaK-bemdn52J83cyxK7rpTPb84Hv2Z9ty_cvaQhBNvtrQ9eUrbi_zpLqv9B2KuWLYEH64phvWpM9Z7t5GMeXlYSzIoAlIPFjNQrRyg6McJe8bpkmcSAEhPq13AlXnjZUNCvd7lUlRlnoags9p21S2kvaNyVYI3rcotIfTg.jpg" width="400"><br>
 
 بخش‌های مرتبط با ایران در سخنرانی دونالد ترامپ در ایالت کارولینای جنوبی، جایی که رقابت‌ها برای کرسی سنای آمریکا در جریان است، با تشخیص و ترجمه ماشین:
 🔻
@@ -297,33 +315,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77985)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-21 18:04:55
-
-<img src="https://cdn1.telesco.pe/file/B10Acayb73tGL3Cr1E53dPwG8Co0tnj8jWE79-Z_GGp8bWO_tED15M-J5htJLWFb4vjwEs1VZ5d0-CCz0y15VuAdo-KrrF7D0hmLa4DEf7ypIKIVK4Kl2F0109UZrZBR1xdnKK8CwKJEQFkH5ce2L9y6TR9hDVnCSLZvlrIAWRjiZNM4lp5QdWlb3EudQ1KlSwFJeJjeiWYZcYA89EigjvFUqfH9FGu5K3v4-eFDdayA0oE7Pfn89G4Sl7s22xrPl-yvje7TOEx5KeqZNPtI0xla6OkzhgP_v7MevhwQ-MyIGAhV9iUJDOON3EyhX_dvBy-QDXaSq6iTzRzMETvMPg.jpg" width="400"><br>
-
-عباس پازوکی، معاون ارتباطات و اطلاع‌رسانی دفتر محمدرضا عارف، معاون اول مسعود پزشکیان، اظهارات منتشرشده عارف درباره تعیین نرخ ۸۷ هزار تومانی در دولت را تکذیب کرد. این در حالی است که رسانه‌های ایران پیش‌تر اظهاراتی از عارف درباره تعیین این نرخ منتشر کرده بودند.
-به گزارش رسانه‌های ایران، عارف دوشنبه ۲۶ مرداد در جمع خبرنگاران گفته بود پس از تعیین نرخ چهارم بنزین با بررسی کارشناسی و تعامل با نهادهای امنیتی و سایر قوا، قرار بود این طرح به‌صورت آزمایشی در کرمان اجرا شود، اما بدون هماهنگی با دولت متوقف شد. نرخ چهارم مورد اشاره ۸۷ هزار و ۲۰۰ تومان است.
-با این حال، پازوکی در ایکس مطالب منتشرشده درباره اظهارات عارف را «ادعای ساختگی برخی کانال‌های غیررسمی» خواند و گفت: «معاون اول رییس‌جمهور هیچ‌گونه موضع‌گیری یا گمانه‌زنی عددی درباره نرخ‌های جدید بنزین نداشته‌اند.»
-او افزود: «موضوع مدیریت مصرف سوخت در مرحله کارشناسی قرار دارد و هنوز هیچ رقم یا تصمیمی به جمع‌بندی نهایی نرسیده است.»
-@
-VahidOOnLine
-فاطمه مهاجرانی، سخنگوی دولت، روز جمعه ۳۰ مرداد ماه اعلام کرد مطالب منتشرشده به نقل از محمدرضا عارف، معاون پزشکیان درباره تعیین قیمت ۸۰ هزار تومانی برای بنزین صحت ندارد.
-مهاجرانی گفت چنین عددی نه از سوی معاون اول رئیس‌جمهوری مطرح شده و نه مبنای تصمیم‌گیری دولت قرار گرفته است.
-او تاکید کرد در صورت نهایی شدن نحوه «مدیریت مصرف سوخت»، جزئیات از مسیرهای رسمی و مستقیم به اطلاع مردم خواهد رسید.
-@
-VahidOOnLine
-مسعود پزشکیان، در مجمع عمومی «انجمن اسلامی جامعه پزشکی ایران»، گفت: «جدا از بحث محدودیت‌های مالی و محاصره دریایی دشمن که کار صادرات و واردات ما را با مشکل مواجه کرده است، چه کسی گفته دولت باید بنزین ۱۳۰ هزار تومانی بخرد و بعد آن را ۱۵۰۰ تومان بفروشد؟»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77983)
 
 ---
 
