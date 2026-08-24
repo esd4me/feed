@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-24 19:54:43 </h5>
+<h5> 🟢 Updated at: 2026-08-24 20:52:41 </h5>
 </div>
 
 
@@ -33,6 +33,12 @@ VahidHeadline
 ترامپ:
 ایران کاملاً در حال فروپاشی است!!!
 رئیس‌جمهور DJT
+realDonaldTrump
+اشاره به ایران در پستی دیگر:
+دموکرات‌های چپ رادیکال با نظرسنجی‌های جعلی دارند دیوانه‌بازی درمی‌آورند. آن‌ها این نظرسنجی‌ها را در سطحی منتشر می‌کنند که هرگز پیش از این دیده نشده است. به این‌ها «عملیات تضعیف روحیه» می‌گویند؛ جایی که تلاش می‌کنند روحیه جمهوری‌خواهان را تضعیف کنند تا آن‌ها برای رأی دادن بیرون نروند — اما نظرسنجی‌های واقعی فوق‌العاده‌اند و روحیه در کشور ما هرگز تا این اندازه بالا نبوده است.
+ما در برابر همه در حال پیروزی هستیم، از جمله ایران که کشورشان در یک مارپیچ مرگ اقتصادی و نظامی قرار دارد.
+از توجه شما به این موضوع متشکرم!
+رئیس‌جمهور دونالد جی. ترامپ
 realDonaldTrump
 📡
 @VahidOnline
@@ -385,7 +391,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-08-22 18:17:04
 
-<img src="https://cdn1.telesco.pe/file/WZ5eWr0aAj7Aat1RTW2foHOiFMVWggiOOqe2diLI87GJvJGlLyNJFkPaGeLRa0DZwF2NaYynakAx6vQowVMEtrbcPVmGNIhx5GJUYU3JoslYz_ylzZXHjIWkcltlSg5ny1-jYZdD-JZEKWLUTcWcVoj6MSP8c-CQUNQPJwP_4MqUJanF50tZLcTJ1rYoykufhYuxtJdQ1wU_9wulnkiwSHZKaHK6Q-SOJ_MipExwDGmqN1m33kOKKYxtzcuWKMR69IDZ5XZDU3TH_Z9aU3oZOPWquz4wrBqmVirSUcY0qxxhggrLTrQIU2Q6t4n9T0qO5n_HDGsfcBYOW0PmPWgAUg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/j_GhA2T5YwIjGXWWy0H8mY2WpAiQRMSgl9XTiDRKRZdm7ZsOfClGuThJgBm6jAogbLhBfhXgy-EqF_p_i-gnF1ab5F2ecJ6VrYC8dvjyzEp_JT5vbJ_TkUl-6s0IT2Ci1vHoWT8bQzmfHOVytRVfvmHO1e0aczHGBgaUOj-sbr-2-b6c2JBrXG6AyrmaacT41WbcefbNuoW5MiFu-9m6bynF3P3zRmCse3dAgp4ZXK_hhWHD0KO2XO-DkxnPoP3_OL8-OBKIQDAjwyB3YMmEbx8HMOAfwWnzV9XCBQl2GCe6ISFgnojyV5CHfrywPcDlwjkzeD18KA3SWyFP1UvE_g.jpg" width="400"><br>
 
 باراک راوید، خبرنگار وبسایت اکسیوس، روز شنبه ۳۱ مرداد ۱۴۰۵ در شبکه ایکس به نقل از سه مقام آمریکایی گزارش داد که حدود ۴۰ نفتکش شامگاه جمعه از مسیر عمیق جنوبی تنگه هرمز وارد یا خارج شده‌اند و حدود ۱۶ میلیون بشکه نفت از این مسیر به خارج از تنگه منتقل شده است.
 همزمان، رسانه‌های دولتی ایران مدعی شدند، تهران پس از درخواست‌های مکرر بغداد، به شماری از نفتکش‌های عراقی اجازه عبور از تنگه هرمز را داده است.
