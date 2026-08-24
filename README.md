@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-24 18:02:46 </h5>
+<h5> 🟢 Updated at: 2026-08-24 18:59:39 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-24 18:41:10
+
+<img src="https://cdn1.telesco.pe/file/LQN1_xEPEQiaNutxcTCMW5YQWgJagPXl76rN7qXnmvUhUqzp3UWH3Z6gtQFbcF5Arp3M2DxWVUVbxJE9AY2c_OzM96uUk0Jnuo7D48rCpPFq1-TDflIYls1MqBpDEsDaUy4qXcnBhB4_RevB2drHEtOt8oDaBknKeY70oPGHzkeHYXw7osXjfthylQp5xKLuAWoAejayf8hpd41ot9vkD5pxaoGBuNfM0eP0sevDvD8vhSEjpH-In-F26Wp9unvF_nPg6epSb7lhMW8331HR6_X5arn2T7TJneB0kEFl0fzkD87z5Shv8xxFRHl3QOZu5KlppymLzJm-Kpv9FPzZtQ.jpg" width="400"><br>
+
+قیمت دلار در بازار آزاد ایران روز دوشنبه دوم شهریور بار دیگر روندی صعودی در پیش گرفت و در معاملات صبح از ۲۰۲ هزار تومان عبور کرد.
+همزمان قیمت سکه امامی به ۲۲۲ میلیون تومان رسید و بهای طلا نیز در سطوح بی‌سابقه‌ای معامله شد.
+بر اساس آخرین نرخ‌های ثبت‌شده، دلار آمریکا در بازار تهران به ۲۰۲ هزار و ۶۰۰ تومان رسید. سکه طرح امامی نیز ۲۲۲ میلیون تومان قیمت خورد.
+در همین زمان، قیمت یک مثقال طلای آب‌شده به ۹۶ میلیون و ۲۰۰ هزار تومان و قیمت یک گرم طلای ۱۸ عیار به ۲۳ میلیون و ۲۰۷ هزار و ۸۶۰ تومان رسید.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78022)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-24 16:26:41
@@ -267,7 +286,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-23 16:52:52
 
-<img src="https://cdn1.telesco.pe/file/IviqXHOF-XDhY-tUjKK7Epfsl6zxgYHZjevEoS4sOappq-RZxIb72BDezNkgVjrQ49Rq_eHadFHhVVhRHc5XI5VGPMEf7j5QTnpfMzXL7coXwB3g83gvxrPFoJGjWm-PfQlNgyZqLG48SVgbojhV67EsR_Dj5--iqW7kn3-oqZ71CI-t1nMPP65oxAzsbzi9KpiaonW_2RmX78Km8xKDEPlUUpm1JUMn4_QM60VOpU2Ediun5LA4u6wP3C4mqOn8FxIaS4bTntSJ-aa0brKqzLyz1054PbjBHCFtTue_33hD-zARuT9ejn_2Eu3iOqYftP11tACKAhaA_47w4FbafA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pqo9lqujSHi_uSJ41tjZzeU2Oev7PORv2w9Mkck0T_RZgbcNkJvogCakMulHrXhJlJtjuK45J-jt1wXseVeVYQ_OcutAGbuPyhUqQ41o-4tG9CcgvABMQeD9FYpHtfdL8DlsIwygzOJo8ITkn0wvJ4lv1SumoNcq2w-H5JDYF_tXI4WrbJMVQ4nekNDhPyQ_sYMZ0J-Ml4-aXsG593MfWqicemTOxxJ2fXgpGEbyaddny-mXMdvUuzOa_FEnwYCewFEUB-bpqK3N3vDpUxFjjOcYW1BmWFKA8eVnWahctWyDdxxXiAGzhp93aPb2LbD-EJ8ScbGOYtTdtLJ154LkEw.jpg" width="400"><br>
 
 بهای دلار آمریکا در بازار آزاد ایران روز یک‌شنبه اول شهریور از مرز ۲۰۰ هزار تومان عبور کرد و رکورد تازه‌ای به جا گذاشت؛
 همزمان پوند بریتانیا از ۲۷۲ هزار تومان گذشت و یورو نیز به محدوده ۲۳۴ هزار تومان نزدیک شد.
@@ -376,26 +395,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78003)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-22 17:11:03
-
-<img src="https://cdn1.telesco.pe/file/r1zlhvaHmex3bXIu74h9aViwMbhJ9zQx2hgkPiBaan8_7awxJQghpPw-5qurGxC8cfHaG-i4yfMERHDbkoI3QcG_sDyCx-sPDcumWfHt2M_zVDH8B7FFb6WFgHdEW97XNqH2fl61CqAX4Frhj3lJHP7EJeLWMt9n6U9GO9LKr9xeQ5RYyk2c0yJ_YPx2FDoWp7SWwzVS43RdTGAz3PnmciHb59NvFMEGsqunF8djGOotry8ag_PzJG22aZj-bHYXP5nUOL0Y3l-_MNn6Vr9SSwCaZ1jpEd9erWunFn26wGponVlz8zUEHOamTGdI71CvEuiDC3g6-TuReUp0OlmzRA.jpg" width="400"><br>
-
-احمد وحیدی، فرمانده کل سپاه پاسداران، در پیامی به پیمان جبلی، رییس سازمان صدا و سیما، ضمن حمایت از رویکرد این سازمان، نوشت که صدا و سیما در دوره جنگ اخیر، «در ثبت و ماندگار ساختن این حماسه، سهمی ارزشمند در تقویت جبهه رسانه‌ای انقلاب اسلامی بر عهده گرفت.»
-وحیدی همچنین عملکرد صدا و سیما را «مجاهدت ارزشمند و نقش‌آفرینی موثر» توصیف کرد.
-این در حالی است که در روزهای اخیر، محمدباقر قالیباف و مسعود پزشکیان صراحتا از عملکرد صدا و سیما انتقاد کرده بودند.
-محمدباقر قالیباف ۲۷ مردادماه گفته بود که صدا و سیما در زمینه «جنگ شناختی» تاکنون موفقیت‌های لازم را نداشته است. رییس مجلس همچنین گفته بود: «تبیین ناکارآمدی‌های ساختاری، رویکردی و عملکردی صدا و سیما فرصتی مبسوط می‌طلبد.»
-مسعود پزشکیان نیز در چند نوبت از عملکرد این سازمان انتقاد کرده است. پزشکیان ۱۰ خردادماه گفته بود روایت‌های صدا و سیما از شرایط کشور غیرواقعی است و این رسانه نیازمند بازنگری جدی است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78002)
 
 ---
 
