@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-25 01:46:00 </h5>
+<h5> 🟢 Updated at: 2026-08-25 02:45:16 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-25 01:53:21
+
+<img src="https://cdn1.telesco.pe/file/ah2s-2is7j0Djl_10nSNEr5xKWK6XKizjoW8ZJi6VAIjjycHJKOHIVZzQPi30VwsxGRoALB1Re1CCsLSkMEKPpMvADf6X6fAcb6jeVIZFF6i9Ur0VgQo-TdO9uOsGse2Hrr0ObEvDTz9UOtDyKojKJkYAxfUDE508qTnESM-AmzZ4RBot1hU1onYVRjW68wjRgVg1ALuf-L4zXrHmWeXLTuKRXEdBQbE_zy8f4C8excGW9PshiTd8m2ORgBgMntdFXtgko7znWdNTKMVomUFsi955xjAFhRDZpdXH4HBEwQ-luXEbwrvX6BDMBvYjih5bEqo5g0fp3RHMC2sPZZLgg.jpg" width="400"><br>
+
+UKMTO:
+مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در ۹ مایل دریایی شمال‌شرق «اش شیشه» (Ash Shishah) در عمان دریافت کرده است.
+ناخدای یک نفتکش گزارش داده که شناور با یک پرتابه ناشناس مورد اصابت قرار گرفته که باعث آسیب به موتورخانه و از کار افتادن شناور شده است.
+گزارش شده که خدمه در سلامت هستند. در زمان دریافت گزارش، تأثیرات زیست‌محیطی حادثه مشخص نیست.
+...
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78024)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-24 22:04:42
@@ -398,25 +417,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78005)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-23 02:23:22
-
-<img src="https://cdn1.telesco.pe/file/k4xItALeEBDs2ZR_hUxIKUaypD3HJCgD00NeJ5TO5yBYlyKbih_b3_ZuvuwoxmKha8itCyvsgLfdTkcOj0mGy9KAPh6SM3OPPgq-RkY9USPRmxts60QOzymfLqn5VD3IXLMaDiPBT4gfWArgRdXElC999_E0jCZQ9Ajrf2HZJ8o0liU5I_BMHotqaxyuHZ1-sf6ESLZGMi2IN8xYpV1ityNhuq30P0_MpbHUUawlhadrWiQgVUn62dB5LVePZFLiK4suA6rJdc1CuM1Xc-mV7w9z4sHscglocpJ4W0lGoXyVu1o-39UMaXgXzg8PkLWSZNxMnFdC7bLvM4YpY4ZcZA.jpg" width="400"><br>
-
-دونالد ترامپ، با انتشار پستی در شبکه اجتماعی تروت‌سوشال بر عبور کشتی‌ها از تنگه هرمز با اسکورت نیروهای‌ آمریکایی تاکید کرد. ترامپ مطلبی از مارک تیسین، مفسر آمریکایی را بازنشر کرد که در آن، تیسین به آمار خروج بیش از ۱۰۰۰ کشتی از تنگه هرمز با اسکورت نیروهای آمریکایی اشاره دارد.
-@
-VahidHeadline
-دونالد ترامپ، رییس‌جمهوری آمریکا، بار دیگر تصویری از نقشه تنگه هرمز را در تروت سوشال منتشر کرد که در بالای آن عبارت «قلمرو جدید آمریکا» دیده می‌شود.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78004)
 
 ---
 
