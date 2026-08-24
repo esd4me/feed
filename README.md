@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-24 07:15:17 </h5>
+<h5> 🟢 Updated at: 2026-08-24 08:05:58 </h5>
 </div>
 
 
@@ -227,7 +227,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-22 17:07:55
 
-<img src="https://cdn1.telesco.pe/file/YnXom66ld4Tyg3liZTSns62E4ufeEwC_MFNFCY_GkjRB251Bao4eDKmNRlaXAUL0aMqeNqcMX3kJPSy-E9xWGVgT0AHopvtcwaTFIzHDDvXX4JELJHYy1lp90OjxSEv1ExZ0LX7HA1PSiLZH8oZFzwKEcqFMLiv15JLeCSfpWf6oFCp26rAahhuys75jZ1Re0xr_c9T-c9SFVR4n1DJJNTaPCfjyGxq_dA2Tp-lgne2QhXGK4Sfgy8BUcYrgp5DBsdPOTGb_REpYgnE8msJ2mkYNREcbTrMyEnTsdIQpi7f3jwaPmGUU0XLP57E7qJsd9U6-KfiAzcr87PsYK-41EA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rIyBm1y6RlpqK2ZMi7nAezUufbVb31sQPRFeFT0Hgj1Db33c3Q5Cn46I0o2A0xiYdWWWj5JdvFFrlfa607X20_yrXjV6CR5YGMNyXWlU--kLTDglIYOZDD8EOurODNPGNObQeFR0m2sDYdpaUfblotLw_dqLlhvvLrab4VdS6xVaDI2bpXE1TwkKBVIEo_IG8Cle3oZn_bal7tVifyelqpdpdQGbMdn4wFjlCcEvPlhucgVh0H1VNVCvRckxaUR2IyxYk4tbjJOsYPCpIFbtttHKYFrvkWmCTyuwhJAdDC0Jk0MZStwsyvygwMQ1SOxeEfUWKIn8J-FD6LP3PqRmFg.jpg" width="400"><br>
 
 محمدرضا عارف، معاون اول رییس دولت در ایران، با تاکید بر ضرورت آنچه «اصلاح الگوی مصرف انرژی» خواند، گفت: «باید مردم را توجیه کنیم تا بدانند که اکنون بخشی از درآمدهای کشور صرف تامین بنزین می‌شود و این موضوع هزینه و فشارهایی را به بخش‌های دیگر تحمیل می‌کند.»
 isna.ir
