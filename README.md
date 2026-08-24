@@ -3,8 +3,81 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-24 15:58:58 </h5>
+<h5> 🟢 Updated at: 2026-08-24 17:12:44 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-24 16:26:41
+
+<img src="https://cdn1.telesco.pe/file/rv1C_78KgXy4FUYYDnZ6cHpBxtgHlOQy3d3ifpfBjsB0sLktSxX6K2xdBvil-IgGmSQIG4sqLNv30fGbPthDq7KqoQhpSllK3xAjHJe-ettCwOPqOIOUP548PEErXzspN3cxhgOduSYiD0nKtQIQVTfyTUt1KtQlR__sVdnv1AdY_Xf0T_HmJW6rix1ZhRtnz_whU3z4gD_5mHtMLFqVTtTVG46fKA97oHfljsHecV9WTBXDeSZcgktX6gMp2GZvPvBSLw7IW3i2uJVrQb6N6YrAnK3vYUPZ8rfRu8AODAX5W0IcBaq9WQKINYZVSVd4loEjpQl06gc_FBUlKAhgGQ.jpg" width="400"><br>
+
+ترامپ:
+ایران کاملاً در حال فروپاشی است!!!
+رئیس‌جمهور DJT
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78021)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-24 16:05:03
+
+<img src="https://cdn1.telesco.pe/file/bV1i9Prx0qzscVFY7EZXo7slSG0j6YMZrmIe4cD9OOiDaUDY9dZEKU3VUUgu5AHGWV7hz2QCVg7pXoi09zkELRcFlVZkz0f3raWeJL92FPRj_XCWraoEeq4SB38K54feE36brjUVqb_qFTeP5-TqYymOSq3GeJRxKE5OIKo7xQ4XcVSbh2-t4X7Jn1N-02CkgixvgOUlfzn67Pbp9SSszxWrC-xs-fTbCAEa1h5w3fR_lk8_7apkHh2Tk-9kEAPfYWi2S5syu14Bb8kJdjtB6S_dHYnjm80OtkI8Vr-B6UCPsBpEWbqw7bUg7kxooixmd2nOcT6pAnh-gDJeXaCfpQ.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس جمهوری ایالات متحده روز دوشنبه دوم شهریور مقاله نیوز مکس درباره سخنان هفته گذشته محمدباقر قالیباف در عراق را بازنشر کرد.
+رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی ایران، هفته گذشته در جریان سخنرانی در جمع فعالان اقتصادی ایرانی و عراقی گفته بود آمریکا در جنگ نظامی شکست خورده است و حالا به سراغ جنگ اقتصادی و شناختی رفته است. اگر در میدان اقتصادی قوی نباشیم، شکست خواهیم خورد.
+ترامپ این مقاله را در آستانه اعمال تحریم‌های بی‌سابقه علیه ایران بازنشر کرده است.
+@
+VahidOOnLine
+محمدباقر قالیباف، رئیس مجلس شورا و عضو ارشد هیات مذاکرات جمهوری اسلامی، روز دوشنبه دوم شهریورماه با انتشار پیامی در اکس، شعار انتخاباتی «آمریکا را بار دیگر باعظمت کنیم» دونالد ترامپ را به «آمریکا را دوباره گرسنه کنیم» تغییر داد.
+قالیباف در این پیام احتمالا با استناد به داده‌های سازمان غیردولتی «تغذیه آمریکا/feedingamerica» و ادعای ۴۷ میلیون گرسنه در آمریکا نوشت: «آمریکا را بار دیگر گرسنه کنیم. با ادعاهای واهی نمی‌توان شکست‌ها را لاپوشانی کرد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78019)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-24 16:01:21
+
+<img src="https://cdn1.telesco.pe/file/CjSNzBcP4mlhqOkhx60RxRk0S1gyApTGODvQ3K23-bHfQJfqCZlBqZFvLH_vq9rgo5H8O7y-41lXAW66uQUlIybUnfmVIQm_K9IFUJsAo9h5rLQt7zQ6OMeBqiennkr-lE6S_g8wMRwC8QwF7rcAe_L4iJIKwVsIXF0NwVl_09rhhXD2JtvMbyIdsr4iBW5xh0NtQq3WCAhZSVR-eo0DT0E8di9CENhSEn8BQcMt2HZ2dtnksMA9v2Pn8T6SRa1SOrRRFwgUytjo5T-I8g7jMSLmAZIFeESquGcic6gWoeY-iD3Z-CNYxpOYRS5E4DDumCEG_--UZljrr-KQVDg_vg.jpg" width="400"><br>
+
+فیلدمارشال عاصم منیر، فرمانده ارتش پاکستان روز دوشنبه دوم شهریور ماه وارد تهران شد.
+محسن رضا نقوی، وزیر کشور پاکستان او را در سفر به پایتخت ایران همراهی می‌کند.
+ارتش پاکستان با صدور بیانیه‌ای اعلام کرد سفر این فرمانده ارشد نظامی به تهران «در راستای تلاش‌های اسلام‌آباد برای ارتقای صلح و ثبات منطقه‌ای و مذاکره با مقام‌های ایرانی بر تقویت تلاش‌های صلح و یافتن راهکاری مسالمت‌آمیز، پایدار و جامع برای حل درگیری‌های خاورمیانه متمرکز خواهد بود.»
+خبرگزاری صدا و سیما گزارش کرد عاصم منیر با مقام‌های ارشد جمهوری اسلامی دیدار خواهد کرد.
+@
+VahidOOnLine
+خبرگزاری رویترز به نقل از چند مقام پاکستانی اعلام کرد عاصم منیر، فرمانده ارتش پاکستان، هفته گذشته و پیش از سفر به تهران، با دونالد ترامپ تلفنی گفت‌وگو کرده است.
+سه منبع پاکستانی در گفت‌وگو با رویترز تاکید کردند این تماس چند روز پیش از آن انجام شد که انتظار می‌رفت منیر دوشنبه برای گفت‌وگو با مقام‌های جمهوری اسلامی به تهران سفر کند.
+به گزارش رویترز، این تماس که پیش از این گزارش نشده بود، در شرایطی انجام شد که آمریکا اعلام کرده است تحریم‌های اقتصادی گسترده‌ای را علیه جمهوری اسلامی و شرکای تجاری آن اعمال خواهد کرد.
+در این گزارش همچنین آمده است انتظار می‌رود فرمانده ارتش پاکستان، دوشنبه با افرادی نزدیک به مجتبی خامنه‌ای، دیدار کند.
+رویترز نوشت تنش‌های میان آمریکا و جمهوری اسلامی یکی از محورهای مورد انتظار در این سفر عنوان شده است.
+یک منبع دیگر در دولت پاکستان نیز گفت: «منیر همچنین قرار است درباره حملات اخیر حوثی‌های وابسته به جمهوری اسلامی به عربستان سعودی، متحد پاکستان، گفت‌وگو کند.»
+@
+VahidOOnLine
+اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه دوم شهریور ماه اعلام کرد بدر البوسعیدی، وزیر امور خارجه عمان روز سه‌شنبه به تهران سفر می‌کند.
+به گزارش خبرگزاری صداوسیما، بقایی به خبرنگاران گفت بوسعیدی در تهران با عباس عراقچی، وزیر امور خارجه جمهوری اسلامی دیدار می کند.
+در پی حمله آمریکا و اسرائیل و بسته شدن تنگه هرمز، جمهوری اسلامی مذاکراتی را با عمان برای تعریف نظام حقوقی جدید تنگه هرمز، آغاز کرده است.
+تهران، مسقط و دوحه از پیشرفت این مذاکرات خبر می‌دهند، با این حال دونالد ترامپ، رئیس جمهوری آمریکا هفته گذشته تهدید کرد که اگر عمان در مسیر «توافق» تهران و واشنگتن مانع ایجاد کند، این کشور را بمباران خواهد کرد.
+البوسعیدی، سال گذشته میانجی دو دور مذاکرات میان جمهوری اسلامی و ایالات متحده بود. هر دو دور مذاکرات بدون نتیجه و با حملات آمریکا و اسرائیل به ایران پایان یافت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78017)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-24 15:57:57
@@ -213,7 +286,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-23 16:52:08
 
-<img src="https://cdn1.telesco.pe/file/vLNRz1egtgSd8_VPwQhbDz_zqjnPDDGuA0yc-ppr6wOvAieZjseWt7iWD2TakCbqPmAa5vCmUdicM_vzOcx1Ncl7qjw2mjashc4L71qOd4o4lBXE5kZfhOrNzvwQ8Js3TVUJuiHtO2rnMzyrogdDnie-okHFIf0ocS2qw0G4CHkLQ5SwXKz1KpfYhIk11xIxV_Mvz5Hn_pvevO0BqM_sTN0hdjQAJEP4JjiuNSB6qBY4XxCTEeblOaskYBpVbiEOEWs_vgOAwQvBLuBFUDxJnnBShh9sUeD04-NazzJYpjBugqV4wLqnS0HDmlnEdE5x6pf_yvg8i0BUf8KMB9qVhw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vNaiU0sU6dfE14KSBVNBZxnjNBomWrhY7WK-USRAzxJHTyzcsvlTjq6qtgO0_-iRN2bK5eydacba4UdKWyXPiyimM61UCQNKk57nNjRe-GgykgWbAshs2P5CjYup1KESO4KU4ELLuJYF5t3En0cTtRpeETXsAljbVSDk_44jYcrf5Lf-dotmn5nspA9IiGjU7tZ3OtXrvexR98H3_4ygWbHiVizrbgByAuSFj7NcW1rCWx59uG2NhYJWNQYEeJ3fGUmavm7gxkVL0uMiQjlH_yIwwH-5eLpdTaj-iluIwJDCq0AYXHkLHLcUwwyzQNEPfEBnKBauzgB6aNRK-PhTZQ.jpg" width="400"><br>
 
 امیر رئیسیان، وکیل حسین شنبه‌زاده، از صدور حکم بدوی موکلش در پرونده‌ای جدید خبر داده است.
 بر اساس این حکم، شنبه‌زاده به اتهام «نشر اکاذیب به قصد تشویش اذهان عمومی» به یک سال حبس تعزیری محکوم شده است.
@@ -232,7 +305,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-23 16:49:53
 
-<img src="https://cdn1.telesco.pe/file/jXN-8E8u7eTHD9B0FE3acU2JKVUBBxfJHkMhcBUq2oNvY1AA9tLkgo-Aq0N-KN__0J247Ydt2GCToifr9m0tyiKj89R2f72lJ0KYcnjBTtRwUwysPw2s0XZxO1aXcfJ7pkuKcdMVm3gV4Yw4u73FDnOuKtDN5eQ-wSjOpceKW3lDg6YonUX4xLe-_U59GetNlCaukkE9Y1MDn1TIUKZdeRcXZpyKlK7goUhemiSvuNsAVkAYcyfXuKSIGifKcfy2l6VTCEtew9yCZb2WMqB4KrVUCU-3gJ07fSP8gNyzQY04nF6BD7NHU4zrJyqXymF9pdIawRbTaekEgi-0ZsITRA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/p-ZBNZwtRgpzwhXw_6IdfzycdWguLPQNP86dXhu3UAIpW4H6IpdPmsktVMmHKbV69XzxsOM3fwP6nB0Hm0MClT-lK6XrRytHbbFbKRZeBie194q8RXvyVlGSigFNlZy6aEISbuo8SNTeO61xtV3U1bg1B96wTJKkIMDgNyncvnu_q0TvTxxL47-DGtky0j1TnHTpgjJILsNVYCSHP5p8GwFcNEMqJp7RAad0BMkkHVmmGKIptafodX0RsZUnMmXkxDzoYmObx-IGdk9W7z_bT6TpOobJB5uJ9bIVvqW1okbNBTCaZ3-QOLwAduUruH42GoV0reaUseNO_U2dLoIVSQ.jpg" width="400"><br>
 
 قوه قضائیه جمهوری اسلامی از اجرای حکم اعدام «مجید آدینه»، یکی دیگر از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در کرج، خبر داده است.
 براساس گزارش تسنیم به نقل از قوه قضاییه، این حکم صبح یکشنبه اول شهریور ۱۴۰۵ اجرا شد.
@@ -310,7 +383,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-22 17:11:03
 
-<img src="https://cdn1.telesco.pe/file/isuuwJfSAdKGMzS1PUoCCcTtPAyqS9M47tGCyPcZKHjViEpB7yzpigLn8ngxEETJl0iB5CZBFMSwTnZrXAZxX5W-XphHwGzHCWDQFelyHovRZsThvBd7LHkDu4P-vHvE2YGFcl9mkcHWjt7LFapLvsT4z4Tjyc0wFpUWj7U50VlTEXK31IxaN4cD_BvachzXWeoYLoY5IpNun-JPmkU7vLD5ZMD7wjx7wnOe10pmKgYQdPNQlTe79SfnDkV77Drh1jmnloUP5LMOipnwJZ2zk6mS6p_f5gqZq29psvrI_PZJS_-ubtz5MnPbksFaWTiVFbZTjhb94FqGncXgJB_Thw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/r1zlhvaHmex3bXIu74h9aViwMbhJ9zQx2hgkPiBaan8_7awxJQghpPw-5qurGxC8cfHaG-i4yfMERHDbkoI3QcG_sDyCx-sPDcumWfHt2M_zVDH8B7FFb6WFgHdEW97XNqH2fl61CqAX4Frhj3lJHP7EJeLWMt9n6U9GO9LKr9xeQ5RYyk2c0yJ_YPx2FDoWp7SWwzVS43RdTGAz3PnmciHb59NvFMEGsqunF8djGOotry8ag_PzJG22aZj-bHYXP5nUOL0Y3l-_MNn6Vr9SSwCaZ1jpEd9erWunFn26wGponVlz8zUEHOamTGdI71CvEuiDC3g6-TuReUp0OlmzRA.jpg" width="400"><br>
 
 احمد وحیدی، فرمانده کل سپاه پاسداران، در پیامی به پیمان جبلی، رییس سازمان صدا و سیما، ضمن حمایت از رویکرد این سازمان، نوشت که صدا و سیما در دوره جنگ اخیر، «در ثبت و ماندگار ساختن این حماسه، سهمی ارزشمند در تقویت جبهه رسانه‌ای انقلاب اسلامی بر عهده گرفت.»
 وحیدی همچنین عملکرد صدا و سیما را «مجاهدت ارزشمند و نقش‌آفرینی موثر» توصیف کرد.
@@ -323,121 +396,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78002)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-22 17:07:55
-
-<img src="https://cdn1.telesco.pe/file/rIyBm1y6RlpqK2ZMi7nAezUufbVb31sQPRFeFT0Hgj1Db33c3Q5Cn46I0o2A0xiYdWWWj5JdvFFrlfa607X20_yrXjV6CR5YGMNyXWlU--kLTDglIYOZDD8EOurODNPGNObQeFR0m2sDYdpaUfblotLw_dqLlhvvLrab4VdS6xVaDI2bpXE1TwkKBVIEo_IG8Cle3oZn_bal7tVifyelqpdpdQGbMdn4wFjlCcEvPlhucgVh0H1VNVCvRckxaUR2IyxYk4tbjJOsYPCpIFbtttHKYFrvkWmCTyuwhJAdDC0Jk0MZStwsyvygwMQ1SOxeEfUWKIn8J-FD6LP3PqRmFg.jpg" width="400"><br>
-
-محمدرضا عارف، معاون اول رییس دولت در ایران، با تاکید بر ضرورت آنچه «اصلاح الگوی مصرف انرژی» خواند، گفت: «باید مردم را توجیه کنیم تا بدانند که اکنون بخشی از درآمدهای کشور صرف تامین بنزین می‌شود و این موضوع هزینه و فشارهایی را به بخش‌های دیگر تحمیل می‌کند.»
-isna.ir
-عارف شنبه ۳۱ مرداد در «همایش ملی صنعت، معدن و خدمات سبز» با اشاره به تفاوت مصرف سوخت میان گروه‌های درآمدی گفت میزان مصرف دهک دهم، ثروتمندترین دهک جامعه، حدود ۲۳ تا ۲۴ برابر دهک اول است.
-عارف در ادامه، مخالفت با گران شدن بنزین را به واکنش اقشار کم‌درآمد به تغییر سیاست‌های مرتبط با مصرف انرژی مرتبط دانست و گفت: «وقتی قرار است اصلاحی در این زمینه انجام شود، اتفاقا بخش‌هایی از اقشار آسیب‌پذیر و کسانی که به هر حال در زندگی با مشکلاتی روبه‌رو هستند، تحریک می‌شوند که بگویند بنزین نباید گران شود.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78001)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-22 17:04:04
-
-<img src="https://cdn1.telesco.pe/file/osuFKFqNOcuD7GfZfpjHKfZY6dEoUVwFjKDFQeEBoRJHrCtx1CpWFOVAQBYnRtqud8T0vvmaHE0YQmVJ_umVTV85pwKdrIizW3uHkrl99ygunH84VScytjnu6sOyKs4nIscHE0-tgUkGkyJSmdoZ4HRPRmmz7xQ4UH4_6k_N-MrijrD52ZSnHcpBVulwb1LAsf3OBW79Hs9lvU601ZLnTXhtrrbs6ti90ovn77us8gYy9X5OfP77hBEPdFR3hQet8PLZRCPoe-SX2vUjWiE7qVi9G_F3YPdvEdeNmJ5yJsTTkVbEXFOCHTNdlnTj9f_dHCKz9b-FpQPNYTb7nn2gOA.jpg" width="400"><br>
-
-«فرزانه فصیحی»، دونده المپیکی ایران، گفته است پس از اعتراض به کشتار معترضان در دی‌ماه ۱۴۰۴ تهدید شده و مسئولان مانع حضور او در مسابقات قهرمانی جهان شده‌اند.
-فصیحی در
-صفحه اینستاگرام
-خود نوشت که در این مدت بارها به او هشدار داده‌اند: «مراقب رفتارت باش، می‌دانی که قهرمانی جهان و بازی‌های آسیایی در پیش است.»
-او در ادامه نوشت: «همان شد. قهرمانی جهان را که بزرگ‌ترین رویا و آرزوی هر ورزشکاری است، از من گرفتند؛ بازی‌های آسیایی را هم خودم تقدیم‌تان می‌کنم.»
-این دونده ایرانی گفته است تنها ورزشکار ایران بوده که سهمیه حضور در مسابقات جهانی را به دست آورده و فصل را در جایگاه نخست رده‌بندی آسیا به پایان رسانده، اما مسئولان از ثبت‌نام او در این رقابت‌ها خودداری کرده‌اند.
-فصیحی درباره سکوت خود در ماه‌های گذشته نوشت: «صدها بار نوشتم و پاک کردم. هیچ جمله‌ای نمی‌توانست عمق ظلم، بی‌عدالتی و خیانتی را که در حق من شد، توصیف کند.»
-او بدون اشاره به هویت افراد یا نهادهایی که تهدیدش کرده‌اند، گفته است پیگیری حقوق خود را از مسیرهای قانونی آغاز کرده و اجازه نخواهد داد حقش «به‌عنوان یک ورزشکار زن ایرانی» پایمال شود.
-این ورزشکار در پایان نوشت: «من همچنان می‌دوم؛ برای مردمم، برای رویاهایم.» او همچنین ابراز امیدواری کرد که «عدالت جای ظلم، شایستگی جای رانت و پاکی جای فساد را بگیرد.»
-فرزانه فصیحی پیش‌تر در بهمن‌ماه ۱۴۰۴ و پس از سرکوب اعتراضات سراسری دی‌ماه، با انتشار متنی در اینستاگرام از خشم و اندوه خود نسبت به کشته‌شدن معترضان نوشته بود.
-فصیحی از چهره‌های مطرح دوومیدانی زنان ایران و دارنده رکورد دوی ۶۰ متر داخل سالن ایران است. او در بازی‌های المپیک توکیو و پاریس نیز حضور داشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78000)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-22 17:01:14
-
-<img src="https://cdn1.telesco.pe/file/fpL5Ivc4N3wlgYQQ3_Je6rFiUNRMXOt5nRzUIzkI75c8VRv1O1_sspZFaCxe-KAeME6lxd7kN6vBNcjHtAroi3Vcs1gyIYQQiZK22_daADiDe1iMgwlMoxA0Wdq-bf4bipTK8-E19puJufdxS6fm23_kpjMH_jPm6P--eRsFaC26lDlAXjbQJGkM3tNUtXzpvmjhzb990JSjnMQUOdMW_AYo1oW6EaPILWwR06ZJOQC4_MMj08Nh5mWL_wf7KeLqGCRJ0h2yyWLrlj29zsG5WlOMo3SlnNJL3lO6vnLksAjV-6eTUdbOfMVu6_34bWys3Bzf1Pl8P56snxU_EMHU2w.jpg" width="400"><br>
-
-محمدباقر قالیباف در شبکه اجتماعی «ایکس»، بدون نام بردن از کشوری نوشت: «پیام‌های متعددی از کشورهای همسایه درباره شکل‌دهی به ترتیبات امنیتی جدید و همکاری‌های اقتصادی در منطقه دریافت کرده‌ایم.»
-او مدعی شد آمریکا با «قلدری» و نادیده گرفتن منافع متحدان خود به سود اسرائیل، امنیت آنها را به خطر انداخته است و افزود یک «نظم بومی و مستقل» می‌تواند صلح و امنیت واقعی را برای منطقه به همراه بیاورد. رسانه‌های حکومتی ایران این اظهارات را واکنشی به تهدیدهای دولت دونالد ترامپ علیه کشورهایی دانسته‌اند که به همکاری اقتصادی با تهران ادامه می‌دهند.
-اظهارات قالیباف در شرایطی مطرح می‌شود که روابط جمهوری اسلامی با برخی کشورهای عربی خلیج فارس در روزهای اخیر با تنش‌های تازه‌ای روبه‌رو شده است.
-علی عبداللهی، رییس ستاد کل نیروهای مسلح جمهوری اسلامی، روز چهارشنبه به کشورهای حاشیه جنوبی خلیج فارس درباره «هرگونه کمک یا تسهیل» برای نیروهای آمریکایی هشدار داده بود.
-عبداللهی گفت جمهوری اسلامی فعالیت هواپیماهای نظامی آمریکا، از جمله هواپیماهای سوخت‌رسان مستقر در پایگاه‌های منطقه را زیر نظر دارد و هرگونه کمک به ارتش آمریکا را به منزله مشارکت در عملیات نظامی این کشور تلقی خواهد کرد. او خطاب به کشورهای منطقه گفت: «هیچ‌چیز از دید ما پنهان نیست.» کشورهای عربی منطقه پیش‌تر مشارکت در حملات آمریکا به ایران یا اجازه استفاده از خاک خود برای این حملات را رد کرده‌اند.
-همزمان، امارات متحده عربی تمام فعالیت‌ها و مبادلات تجاری و تراکنش‌های مالی خود با ایران را تا اطلاع ثانوی متوقف کرده است؛ اقدامی که برای جمهوری اسلامی، با توجه به نقش امارات به‌عنوان یکی از مهم‌ترین شرکای تجاری ایران، اهمیت ویژه‌ای دارد.
-این تصمیم پس از آن اعلام شد که مقام‌های اماراتی گفتند دو موشک بالستیک شلیک‌شده از ایران را شناسایی کرده‌اند. بر اساس اعلام ابوظبی، یکی از موشک‌ها خارج از آب‌های سرزمینی امارات و دیگری در داخل این محدوده به دریا سقوط کرده است. تهران این اتهام را رد کرده است.
-ادعای قالیباف درباره درخواست کشورهای همسایه برای ایجاد ترتیبات امنیتی تازه در حالی مطرح شده که او نام این کشورها، محتوای پیام‌های ادعایی یا جزییات طرح مورد نظر تهران برای «نظم بومی و مستقل» را اعلام نکرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77999)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-22 17:00:33
-
-<img src="https://cdn1.telesco.pe/file/QThxeHws1fCQyt7ez0z3rlTAyEV97SRToc68D6ReorTRLqPvknIhXI0-x5OhdW5joN_2VgeEiPF_k5vCeaPKhpa8xHynt_1h8Oy0nZVr8AuTC-2exXgVyx2xzDjgrhU8egFFeUcb86iRGFMgC-CnnUY4T-RPj9mhykdX1d4WwH4Eu2dQieBhwJCpIJgrW-8juJcnv7_15-JwjshD5Dv_stSvU923D_U6qLaSHJVawVaTysk8iNkiw_u3mZNY-o0oBgyJIgUFVn0XL7PUAfCVU3JsEyJALYHrgAMfDuH2RkUKbCoUI4N-JQyuZAQ_U8UeRYdX01kZ951ZttarKS1kPA.jpg" width="400"><br>
-
-«آرزو کشور» مالک و مدیر یک سالن زیبایی در اصفهان به اتهام «ارتباط با دول متخاصم» به ۱۲سال حبس محکوم شده است.
-آرزو کشور از بهمن‌ماه سال گذشته، در زندان «دولت‌آباد» اصفهان نگهداری می‌شود.
-آرزو کشور پس از بازداشت در بهمن‌ماه گذشته، در سلول انفرادی نگهداری شده و تحت بازجویی‌های طولانی قرار داشته است. مواردی که به‌تنهایی مصادیق «شکنجه» محسوب می‌شوند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77998)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-22 05:19:46
-
-<img src="https://cdn1.telesco.pe/file/EK7---6fQRwo2x6bBijOVOSOraD7nNRPoyMPpUBwZcfTqncPiQht7w1IDUvtxY06PMzFaZfLZRx6vE_9RKxDGNl-LtWpJMYAE4ZLVkuGnZl2uG51-sJH5MspkBzib1IvDdOb7KLEO7Ho74P--Rx_ixpIkP6pmLsRfcu_YeJGZUPE-ogVcDq2AJtH4lTN3Xg3rk9IVWTJzOMei6ACjUoYK0GdxaXuLKlBUiTXv2Mk7jAPreDf-ppGDDXnI9kLj9lxO2J-vdGtvi5dlS7Tp1pdPGNO7JbMZyWe8a3iwDYQ0YpWJiZ3BaM-e2Kk3AtDMxlkPq9ewPfZ5jIYWvaY1vQpOw.jpg" width="400"><br>
-
-بخش‌های مرتبط با ایران در سخنرانی دونالد ترامپ در ایالت کارولینای جنوبی، جایی که رقابت‌ها برای کرسی سنای آمریکا در جریان است، با تشخیص و ترجمه ماشین:
-🔻
-و به‌محض اینکه کارمان با جمهوری اسلامی ایران تمام شود، قیمت نفت پایین‌تر از چیزی خواهد بود که حتی همین مدت کوتاه پیش بود.
-🔻
-اما با وجود همه این خبرهای خوب، گفتم از گفتن این خوشم نمی‌آید، اما باید کمی مسیرمان را عوض کنیم و برویم سراغ جمهوری اسلامی ایران و باید ماجرای سلاح هسته‌ای را جمع کنیم، چون آن‌ها دارند به سلاح هسته‌ای می‌رسند و ما نمی‌توانیم اجازه بدهیم سلاح هسته‌ای داشته باشند.
-نمی‌توانیم اجازه بدهیم ایران سلاح هسته‌ای داشته باشد؛ خب، چیزهای بسیار بدی خواهید دید. پس رفتیم آنجا و جلویشان را گرفتیم. آن‌ها هرگز سلاح هسته‌ای نخواهند داشت.
-آن‌ها به‌شدت می‌خواهند توافق کنند. ما حتی نمی‌دانیم خودمان می‌خواهیم یا نه، چون من در حال حاضر تنگه هرمز را قلمرو آمریکا می‌دانم. این قلمرو آمریکاست.
-🔻
-در مورد ایران هم به همان اندازه [ونزوئلا] خوب عمل می‌کنیم. رسانه‌های جعلی فقط نمی‌خواهند آن را این‌طور گزارش کنند، اما حالا دارند کم‌کم می‌پذیرند، چون چیز زیادی برای گفتن ندارند.
-وقتی کشوری دیگر نیروی دریایی، نیروی هوایی، رادار، تجهیزات فنی یا تولید ندارد، رهبرانش هم دیگر نیستند. دسته دوم رهبرانش هم دیگر نیستند.
-بخش‌هایی از دسته سوم رهبرانش هم دیگر نیستند. در واقع، این یکی از بزرگ‌ترین مشکلات من است. نمی‌دانم اصلاً باید با چه کسی طرف شوم. این یک مشکل است.
-تنها کشور دنیاست که هیچ‌کس نمی‌خواهد رئیس‌جمهورش باشد.  می‌گویند: «چه کسی می‌خواهد رئیس‌جمهور شود؟» «نه، نه، من نمی‌خواهم رئیس‌جمهور شوم.» پس کمی مشکل است.
-🔻
-او [لیندزی گراهام]  واقعاً دغدغه‌اش این بود که کشورهای خارجی به کشور ما آسیب نزنند. دغدغه‌اش این بود که ایران سلاح هسته‌ای نداشته باشد. خیلی شدید روی این موضوع حساس بود. ببینید، اگر چنین اتفاقی می‌افتاد، اگر آن‌ها به آن دست پیدا می‌کردند، از آن استفاده می‌کردند. اسرائیل را فوراً نابود می‌کردند. خاورمیانه را نابود می‌کردند. و فکر نمی‌کنید سراغ اینجا هم می‌آمدند؟ می‌گفتید: «شهر بعدی کدام است؟» ما اجازه نمی‌دهیم چنین اتفاقی بیفتد. ما قبلاً... آن بمب‌افکن‌های B-2 را داشتیم؛ یک سال پیش، آن‌ها به آن امید پایان دادند.
-🔻
-ببینید، جمعه‌شب است. وقت زیاد داریم، درست است؟ اصلاً چه کار دیگری دارم بکنم؟ برگردم، ایران را یک کم بیشتر بمباران کنم؟ دیگه چه؟
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77993)
 
 ---
 
