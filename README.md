@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-24 04:13:28 </h5>
+<h5> 🟢 Updated at: 2026-08-24 05:47:17 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-24 04:44:19
+
+<img src="https://cdn1.telesco.pe/file/UO0xKR1ZOoamPC5W1qjsug2OHS3AO0qfNf9BdgVTLdAXwbs9diRfb215O8u9MBBi5udK43-P2UmDXXn85wPClHgWFKEZTBd7GiG3zGQ73oof_2g5-eH6qkUDsH-YY83tIhckkeQPt4i0hdnvgs7Ngr05ft9PSTNtunCXvAttT9PqyPdEO5xPm7s1H94enqCV90C3JXLrmDdwk9xTIHm7OoTBL_Qh7VE5m4CTqdo0dMY-f5juihGLkHiqBETj7u67JnAI__Kei7KARiItgzPDtAou2wy6qIqfcQxHiKVmmI0gzeWU6zdG0vcjwiEh-nX9uzRkjEXjb0yO_M4bNoCz2w.jpg" width="400"><br>
+
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، در گفت‌وگو با نیوزمکس گفت با وجود تلاش‌های جمهوری اسلامی برای بستن تنگه هرمز، آمریکا موفق شده است روزانه بین هفت تا ۱۵ میلیون بشکه نفت را از این مسیر خارج کند.
+ونس گفت واشینگتن در تلاش است مانع وقوع بحران انرژی شود که به گفته او جمهوری اسلامی در پی ایجاد آن است. او افزود یکی از قدرتمندترین ابزارهای آمریکا، «وادار کردن تهران به پرداخت هزینه تلاش برای خفه کردن تجارت نفت و گاز» است. معاون رییس‌جمهوری آمریکا تاکید کرد جمهوری اسلامی توانایی قطع مسیرهای تجارت بین‌المللی را ندارد و این مسئله اهرم‌های فشار تهران را کاهش می‌دهد.
+معاون رییس‌جمهوری آمریکا گفت واشینگتن ابزارهای متعددی برای مقابله با جمهوری اسلامی در اختیار دارد که به گفته او برخی «قاطع» و برخی دیگر اقتصادی هستند.
+ونس همچنین تاکید کرد هدف نخست و اساسی حضور آمریکا در خاورمیانه جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78011)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-24 03:44:49
@@ -294,7 +313,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-22 05:19:46
 
-<img src="https://cdn1.telesco.pe/file/kpXTXwqQ-P1j6Cx9_0BEvNiowrlP1cCoqMdm6u7TTt0YsAd7oNMKSvP8TlrjinNAxuT95zYqk-aXZ2NMmdbhN-lruwIals8aHWCAxHoYqFQuaAZfFElqnE6hEwttNJ_tpDxvAHeAV_q2P49ta66ABJkkbw2mtOoPrIplHGN6DFJFWKnVYaK-bemdn52J83cyxK7rpTPb84Hv2Z9ty_cvaQhBNvtrQ9eUrbi_zpLqv9B2KuWLYEH64phvWpM9Z7t5GMeXlYSzIoAlIPFjNQrRyg6McJe8bpkmcSAEhPq13AlXnjZUNCvd7lUlRlnoags9p21S2kvaNyVYI3rcotIfTg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/EK7---6fQRwo2x6bBijOVOSOraD7nNRPoyMPpUBwZcfTqncPiQht7w1IDUvtxY06PMzFaZfLZRx6vE_9RKxDGNl-LtWpJMYAE4ZLVkuGnZl2uG51-sJH5MspkBzib1IvDdOb7KLEO7Ho74P--Rx_ixpIkP6pmLsRfcu_YeJGZUPE-ogVcDq2AJtH4lTN3Xg3rk9IVWTJzOMei6ACjUoYK0GdxaXuLKlBUiTXv2Mk7jAPreDf-ppGDDXnI9kLj9lxO2J-vdGtvi5dlS7Tp1pdPGNO7JbMZyWe8a3iwDYQ0YpWJiZ3BaM-e2Kk3AtDMxlkPq9ewPfZ5jIYWvaY1vQpOw.jpg" width="400"><br>
 
 بخش‌های مرتبط با ایران در سخنرانی دونالد ترامپ در ایالت کارولینای جنوبی، جایی که رقابت‌ها برای کرسی سنای آمریکا در جریان است، با تشخیص و ترجمه ماشین:
 🔻
@@ -335,29 +354,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/77992)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-21 23:13:00
-
-
-
-بنا بر پیام‌های دریافتی حوالی یوسف‌آباد و امیرآباد و فاطمی و... صدای شلیک پدافند شنیده شده.
-ساعت ۲۳:۰۸
-🔄
-پیام‌ها همچنان ادامه دارند.
-کسانی هم معتقدند تیراندازیه ولی خیلی‌ها هم پیام دادند که صدای آتش‌بازی و ترقه‌بازی این وقت شب در کشور جنگ‌زده مربوط به یک مناسبت تازه‌ساز و "عید" جدیده!
-دو روز پیش:
-اجتماع "عید بیعت با امام زمان(عج) " برگزار می‌شود
-به گزارش ایسنا، این مراسم با هدف تجدید پیمان با امام زمان(عج) و همچنین تجدید بیعت با مقام معظم رهبری، حضرت آیت‌الله سید مجتبی خامنه‌ای، از ساعت ۲۰:۳۰ تا ۲۳:۰۰ در میدان ولیعصر(عج) تهران برگزار می‌شود.
-در این اجتماع علی‌اکبر رائفی‌پور و شیخ اسماعیل رمضانی به ایراد سخنرانی خواهند پرداخت. "
-isna
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/77991)
 
 ---
 
