@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-24 10:07:51 </h5>
+<h5> 🟢 Updated at: 2026-08-24 11:20:43 </h5>
 </div>
 
 
@@ -272,7 +272,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-22 17:01:14
 
-<img src="https://cdn1.telesco.pe/file/jJNxkTr_rF0IUYAW1H-tl_KHbU1uYV8IFM2s7sBXTmFs_dBGc3YBCzVn7bS6RnQKOxTzVY_jaIAAh0O9TrpAfZ1A_NuTNOq5wmerSiZCcQVsyZdc2rKSefgsDS4_L5_Sh1G21F5F80EljNWxjcd-sU6qS3tPIwBgJE1vvEFNYuaOQNVyryvRQypCrj4yS2edcP6wi7lLvO15FaVJStnkESjo1FiOiL5PjOIOxTYqEBEWsQcFoMcDdEXAyPnl5uxgmFI4q7xUjWmHb9TlmR_8Qtjtx97spZuLgqXyhtzvaR7fHaOo34czb7ad60ImEcicEu-wDFXoZIMJTyOCZLd0SQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/fpL5Ivc4N3wlgYQQ3_Je6rFiUNRMXOt5nRzUIzkI75c8VRv1O1_sspZFaCxe-KAeME6lxd7kN6vBNcjHtAroi3Vcs1gyIYQQiZK22_daADiDe1iMgwlMoxA0Wdq-bf4bipTK8-E19puJufdxS6fm23_kpjMH_jPm6P--eRsFaC26lDlAXjbQJGkM3tNUtXzpvmjhzb990JSjnMQUOdMW_AYo1oW6EaPILWwR06ZJOQC4_MMj08Nh5mWL_wf7KeLqGCRJ0h2yyWLrlj29zsG5WlOMo3SlnNJL3lO6vnLksAjV-6eTUdbOfMVu6_34bWys3Bzf1Pl8P56snxU_EMHU2w.jpg" width="400"><br>
 
 محمدباقر قالیباف در شبکه اجتماعی «ایکس»، بدون نام بردن از کشوری نوشت: «پیام‌های متعددی از کشورهای همسایه درباره شکل‌دهی به ترتیبات امنیتی جدید و همکاری‌های اقتصادی در منطقه دریافت کرده‌ایم.»
 او مدعی شد آمریکا با «قلدری» و نادیده گرفتن منافع متحدان خود به سود اسرائیل، امنیت آنها را به خطر انداخته است و افزود یک «نظم بومی و مستقل» می‌تواند صلح و امنیت واقعی را برای منطقه به همراه بیاورد. رسانه‌های حکومتی ایران این اظهارات را واکنشی به تهدیدهای دولت دونالد ترامپ علیه کشورهایی دانسته‌اند که به همکاری اقتصادی با تهران ادامه می‌دهند.
