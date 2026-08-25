@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-25 14:48:30 </h5>
+<h5> 🟢 Updated at: 2026-08-25 15:59:19 </h5>
 </div>
 
 
@@ -122,7 +122,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-24 16:05:03
 
-<img src="https://cdn1.telesco.pe/file/bV1i9Prx0qzscVFY7EZXo7slSG0j6YMZrmIe4cD9OOiDaUDY9dZEKU3VUUgu5AHGWV7hz2QCVg7pXoi09zkELRcFlVZkz0f3raWeJL92FPRj_XCWraoEeq4SB38K54feE36brjUVqb_qFTeP5-TqYymOSq3GeJRxKE5OIKo7xQ4XcVSbh2-t4X7Jn1N-02CkgixvgOUlfzn67Pbp9SSszxWrC-xs-fTbCAEa1h5w3fR_lk8_7apkHh2Tk-9kEAPfYWi2S5syu14Bb8kJdjtB6S_dHYnjm80OtkI8Vr-B6UCPsBpEWbqw7bUg7kxooixmd2nOcT6pAnh-gDJeXaCfpQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/iN0IQ4AQKoCkQQNEksLMW1Ng-XYZuVPCUNSbVodgjpDkV2RnVYB394wZ0idWsnhbQHgvqX-jfvyflKlr7NOVOpx9PwpuuK02AwWzYhX6KVEsKihRCrwx14fk1bJAVTWq5KSq4FplpUrU-4EFltEDNd8T0HyzCRyv8VgJHrsI4NwCBiUCfoLIiSQQDs7IjSG1FkPFqRY7Lv-BLB_rKAMrtW8p3Ms4s93olFJUvWS5FiXVANg65uszFVd3ggspgD8KinD1uRYnh3f2PiTrSd29WUmLXRJJQrRZSbziaujVYPzkUTFgffStG-XsQdwPoiBswFUw9eQOgso4DXM-EOLylg.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس جمهوری ایالات متحده روز دوشنبه دوم شهریور مقاله نیوز مکس درباره سخنان هفته گذشته محمدباقر قالیباف در عراق را بازنشر کرد.
 رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی ایران، هفته گذشته در جریان سخنرانی در جمع فعالان اقتصادی ایرانی و عراقی گفته بود آمریکا در جنگ نظامی شکست خورده است و حالا به سراغ جنگ اقتصادی و شناختی رفته است. اگر در میدان اقتصادی قوی نباشیم، شکست خواهیم خورد.
@@ -144,7 +144,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-24 16:01:21
 
-<img src="https://cdn1.telesco.pe/file/CjSNzBcP4mlhqOkhx60RxRk0S1gyApTGODvQ3K23-bHfQJfqCZlBqZFvLH_vq9rgo5H8O7y-41lXAW66uQUlIybUnfmVIQm_K9IFUJsAo9h5rLQt7zQ6OMeBqiennkr-lE6S_g8wMRwC8QwF7rcAe_L4iJIKwVsIXF0NwVl_09rhhXD2JtvMbyIdsr4iBW5xh0NtQq3WCAhZSVR-eo0DT0E8di9CENhSEn8BQcMt2HZ2dtnksMA9v2Pn8T6SRa1SOrRRFwgUytjo5T-I8g7jMSLmAZIFeESquGcic6gWoeY-iD3Z-CNYxpOYRS5E4DDumCEG_--UZljrr-KQVDg_vg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/lKVneKT5JSdXfzjYy_q1uyPD7a7eqJKVGS-6n_b92fWgJBq0SVNXSqsuJx8im4VzY-vVbMdLbt5QIWjN936nTnbaQ2mvokFoxJRSff4KSSOz7rJ0KkM55WeQiNu264wlcUg0FBvEyV6oEJs-yqQONq1NlOLYGHRPWQuWSbRvcbouV8Hnc-GPK4p_4pZyNsxPfvzMjcTufYdP5hhGA3W7gJLbEWPE4HhARGao8RFmOlobhrIlR1vX4yeb1POu5wXRRbjto4qEST-XKR3Uho1_qBAYzNSj7DzfpnT1FLNgIqgYirEIah6oYz7WfecLgFPdCEQHGk3HOQzwABeo_XxDgA.jpg" width="400"><br>
 
 فیلدمارشال عاصم منیر، فرمانده ارتش پاکستان روز دوشنبه دوم شهریور ماه وارد تهران شد.
 محسن رضا نقوی، وزیر کشور پاکستان او را در سفر به پایتخت ایران همراهی می‌کند.
@@ -197,7 +197,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-24 15:53:29
 
-<img src="https://cdn1.telesco.pe/file/VgldezbcyZ2jcYj2tQv0qaTnwrMQO4PeFbpHyYSHU2A9EjaZEcQiqwykWBTlfJtBiqVuKsHZM2c3wib3IF6WiWd26GRhEdJ5lhwNB_FOX0Jhe897J76h0gLlz4mwUc8Qs1KqHtW4TeC25JEJbtgDCJD9MxNhP6V2kQQy3uc9hI99zoc9JSTW-IcMH-d2m99JNP6F1fXcodAWviRbDfjJ542dofxpg6Cdt94J6MdPySlBkRKMWX8fn7IIBQa7V_LTF4U1bIYlEewXvcuCSEpjNhmI2Q0QAP2DVtBWCk2InP421m3Mzv52E2zjM_cziLtuyFuObAX9YOTVs1Q6swziRQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/W_WEsdpps_h4fRv4rOkogj92Wc2qiZRETUCsnbG7BtGpsAreOCfDFULIZF4JD1NG0E6-vw18IgzvM0hn1Ksh_jrnGXBvGDit-ymuYGIUsdTMgr0j48fGT_FqIqcBS2q483NZA9ZASMd2BFrO9nAE0GHKV_28E6Bc2KllwMfGPg8dW0sWZFZHy2UgWziRmHAPW2lKOzPbAb0sSt8FqagXMBWlsfU2dg6haWGNV1Ge7ZeOwWvkz99oH8mDjRp4KbwW0SYSKKxvqqfn_6RAsGlMPfge3VzDVNlS266P82LD4p6AXOQ72QKOQpETRO9LcmcO94rsLZxuDm-nW9kJcFsgXA.jpg" width="400"><br>
 
 قیمت نفت روز دوشنبه دوم شهریور، در آستانه اعلام جزئیات طرح تازه آمریکا برای افزایش فشار اقتصادی بر ایران، بیش از دو درصد کاهش یافت.
 دونالد ترامپ، رئیس‌جمهور آمریکا، این طرح را «کوبنده‌ترین» عملیات مالی علیه جمهوری اسلامی توصیف کرده و از متحدان واشینگتن و همچنین چین خواسته است به آن بپیوندند.
@@ -216,7 +216,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-24 15:52:46
 
-<img src="https://cdn1.telesco.pe/file/oiV_eDXJ3ibgGW9rtqHagQ16Z6HELanoFOUGP_bF76_gcoRqRIBoIikSHdeQp8F5aFlo23uO36FZz5FetdHwMq0GJldcgTxGzuJqVh_-Ov0-zWm9q2m7vEkqfV2fvv4l2z_ZXkAnPAU-1jfYPzAh-d1T1nXYYFGraxHbmYHKZcdZ8wOLJME2PVGvOhLySPVGtscAue7Y6KsZY-otw9u_yOJ-ImZ-nWlissoGdhNEpYi3su2LvJ0hL1OuUTn4tRKfDwwbAyhnpdS3rxU7jCfAMVQZnSgMj1WQ9BM6eCZEDzxPJu77-y0LtQ5SCZbuRKeF4KmYzhOtXz_q9lbj4v700Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Kd-oXoHa_odfj7dTosqssz-wIHV4HdDCtnXLhXpLLbXzSfcdcjrVRqdzyRsFOejmYUD18fpvmG5gkYPJY5IuotB6cS_l5BCOzYegYFwMuR-b6MfNMqCDO7nqNu9fH-rg_j_N_vRrwXS3Z2Yy0jX0wyKHug_QFFoyLGioPyhyJkN8OPpaA0DhdvhxKr-GWTnm875DEua-tTaDq5WOcqj1EtRMApAvz2qb2xbnwR0_Ein_qnnBlGp4FjK4oz1Fjx_IVxtvLYo7POMw7Z3pZAgnP64HS5C-OmCi7RBXuhbpxUpCwaDRuNX70HQ0SyC8wVm0adggD6K5hrQiF9R5tdLsbw.jpg" width="400"><br>
 
 سازمان دریانوردی تجاری بریتانیا اعلام کرد: یک نفتکش در ۶۳ مایلی شهر بندری ینبع عربستان سعودی، هدف پرتابه ناشناس قرار گرفت.
 این سازمان زمان حادثه فوق را روز دوشنبه دوم شهریورماه اعلام کرد و یادآور شد:‌ بر اثر اصابت پرتابه ناشناس، قسمتی از عرشه کشتی دچار آتش‌ سوزی شد، اما خدمه در سلامت کامل هستند.
@@ -236,7 +236,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-24 15:50:12
 
-<img src="https://cdn1.telesco.pe/file/T1oLUZEZZdBepNpZY2Jo-lgV4DGBVHCF4Q9HNDZoyhKbyEWswa97kOT8tYy1XUQbw12S-HFvPyYPAy-sxF-iNxdWf6sedcRjzb28aD9M3llZ2sq9EFs1JDVHzg4dVhqHbVmyWZ_C2BpIgYgb1fdmxxzmHvyzgfPTv4qBoY_7amcKRxOWeZ4Gca7uFKtsAqLEtyiOurQ_i_9G_y3X4rm7YlHt2zkLHoPY1xZpMAyZPZX9PIdCqE5d0_PaYBlw0o_kXBIlZT-FrQ4gibKJxEwG8O1rCRlCXNWovvUXuA8HEP9a77s35uF53ASOplmZUyOF61xWHRpmbuidNfJ-6NYR3w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/PwErIjAw7ysB7osTGj_d56AJqfR_Fo0e07J2GVVC88i1gfwUkCM9N60KTA3X7HYO8SGsUNbgUggSK3MAgRE9F9YSOFCXBKXVailZS4jsg4S-CjcbExs2x9CbXmktepvQ62JzUJLBQ7hwAt-TZSJe2Zgis1tA2S-btZGlMxnlOJGPts6xrT014s2FIhwTQGf2TCJ3STxXScE3XVC7aDp6x6MD1_Z-BglaoSYKDFpUrjybmlXSw9_0O7khXFNISVs6YYy3SP5zUNF5l4kdX6R_AeXAFXrmbRgzSvWZ-QaPdL6dMklti7VkpjUEp-5wHLtVmKrpd0ehndyD-XyDcD4XAg.jpg" width="400"><br>
 
 «آتوسا جعفری»، زن ۲۷ ساله اهل سنندج، یکشنبه ۱شهریور۱۴۰۵ مقابل منزل خانوادگی خود با ضربات چاقو به قتل رسید.
 رسانه‌های محلی و شبکه حقوق بشر کردستان گزارش داده‌اند که آتوسا جعفری هنگام خروج از خانه و پیش از سوار شدن به خودرو برای رفتن به محل کار، هدف حمله قرار گرفت و با ضربات متعدد چاقو کشته شد.
@@ -258,7 +258,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-24 15:47:33
 
-<img src="https://cdn1.telesco.pe/file/D-BpBd6wI6S4dmlkmmjdR_7iwKfNMWCbiQm64sn0Hp9zIHgHkJySvY0Nrc1tSxAuoKBI6H7JHCMwL6rHQU6HmcJhYA8nWcj0BNlYPwvQIRIYlI-Uo4kKGCSGIB1-M5pld5RFGTEtRccgMdysj-OXsT5L7ZtoCS17bHyTA92-GRaSOmJq25Cu5KmfG3qPkDWquvTW0hbqpUAy4u9gBiYPuztOoc1DXnGyvc7Uj6jULSensqu8UXHDSH4WIl0d_Auxua6ExSN3QZGdicip2_1ZbtAdh-ASxeD4K5RFSpbBLIFmjjgoKW1k__bdcS8Q8uxJnqRlnnnA102ay1WIehx2Ig.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OgrSCfrZ-Xtv5vGBbkqfr75zWhwFwWl2z8iNGsg_wneHtCyJrNgGBR3tZHSucGMIsFljUFcKpJhpwfKi3WK_-oU1gsea7k2f45v4eKZZojSyd7ttpIy9fhwp-Rk61uJAfAnUeEMSwjvhofo36jpsuFUkebr9HmypZt7fjBUjkKuEFSEZ-0bTyDH9WjRoCiDxzXn3rE9C4ee58ivBuXpw9c8oSakwCOtxd36ClrdZnCc2VeI_ZiJyR_3iGmW6Xw_EvhxSZfXb-0liVwSfSctgtBQgfuoXA4MK5n082QGfQzdP36V--QDijF3Qu66wPyecz_KRCPteW249lMF45Du6ag.jpg" width="400"><br>
 
 ۱۲ شهروند بهائی از سوی دادگاه انقلاب ساری مجموعاً به ۲۶ سال و ۱۶۵ روز حبس تعزیری و ۷۶ سال محرومیت از حقوق اجتماعی محکوم شدند.
 بر اساس دادنامه صادرشده در تاریخ ۲۹ مرداد ۱۴۰۵، راکوئل عطائیان، کیومرث اکبری، سهراب لقایی، زهرا گلابیان، بنفشه اسدیان عربی، فؤاد لقایی، آناهیتا کوشکباغی، نسیم صمیمی، حسین فنائیان، امیلیا فنائیان، ملودی صمیمی و سهیل حقدوست، شهروندان بهائی، توسط شعبه اول دادگاه انقلاب ساری به ریاست عمار رمضانی محکوم شدند.
