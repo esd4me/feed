@@ -3,8 +3,52 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-25 21:55:15 </h5>
+<h5> 🟢 Updated at: 2026-08-25 22:54:02 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-25 22:52:26
+
+<img src="https://cdn1.telesco.pe/file/WzK685h5mhqkPT0XqekOWEbfG-102bKKaqQ47sK9S7PPI6yWYzqXS6ClXQFOkRlRMc4LCJ6Fcp-pitDIsQQyhG1jgA4aYR2_p4ucKjWCKBqavbmwRj7RE1BkPbXY3pQXTNxdePNjE69LC9IHADtRtCadbShMKWQBY3RTICVlJBk_iKL9rMmJeMtB0pF3QnenSaZDb11hrI3Zcf5y7F_lzbO3xNy2SSWEhZb2ewnjtiUKxjq-rMxmVfeDB3LQzzTwkkmOCyphRts6w5YxWc52qPOJqmo2FgVwNBi81ueTTPnBZcdgRnIjqpl6x_bmIJjlCCqopJQFY_53U1SMHvHPAw.jpg" width="400"><br>
+
+کانال ۱۲ اسرائیل روز سه‌شنبه سوم شهریور به نقل از دو منبع مطلع گزارش داد مارکو روبیو، وزیر امور خارجه آمریکا، به مقام‌های کشورهای مختلف اطلاع داده است که واشنگتن در شرایط کنونی انتظار انجام حملات تهاجمی جدید به ایران را ندارد و تمرکز دولت دونالد ترامپ بر افزایش فشار اقتصادی و عادی‌سازی کشتیرانی در تنگه هرمز است.
+روبیو در عین حال احتمال اقدام نظامی در صورت آغاز دور تازه‌ای از درگیری‌ها از سوی جمهوری اسلامی ایران را منتفی ندانسته است. بر اساس این گزارش، این رویکرد دست‌کم تا انتخابات میان‌دوره‌ای آمریکا در اوایل آبان ادامه خواهد داشت و پس از آن ممکن است گزینه عملیات نظامی گسترده‌تر بار دیگر بررسی شود.
+این گزارش همزمان با افزایش فشارهای تحریمی واشنگتن و تلاش آمریکا برای افزایش تردد کشتی‌ها در تنگه هرمز منتشر شده است. مقام‌های آمریکایی همچنین از پاک‌سازی مسیر اصلی کشتیرانی این تنگه از مین خبر داده‌اند؛ در حالی که حجم تردد همچنان حدود ۱۰ تا ۱۵ درصد سطح پیش از جنگ برآورد می‌شود.
+@
+VahidOOnLine
+پیش‌تر:
+پایگاه خبری اکسیوس به نقل از مقام‌های دولت آمریکا گزارش داد انتظار می‌رود تحریم‌های ثانویه گسترش‌یافته، دست‌کم تا پس از انتخابات میان‌دوره‌ای آبان‌ماه مسیر اصلی اقدام واشینگتن علیه جمهوری اسلامی باشد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78040)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-25 22:37:38
+
+<img src="https://cdn1.telesco.pe/file/t-1CE5XHfrl7a0LkyyBAyXvrUJLvL31lsUSWzkRJ1wMNI2x7n7-nxvmFJMAD0wRGBe3XB27B6SgWVl2yW2cEAVFHftk8YQ7lKDajnjyyJ7Js5FE7B1P5GaJ7-fEO6jcKZKcDK8ushCJMBQTTMRtToDAaYHqZoQmN3Rc1pK0UYxZeHmPyQ1NDBZEbudnINP8Y-zlR9ptBger-8DkPkQEwFoEQT9G9dQbSvehe2N1TH8z3ds4xVdmoSqH7fMuV5NV2WKmxVQ3lJTxYg7MCKYi929gALPB_PqNtbwhVSCcCEf3ZEN5dmDplplTkv_ySpDMj2xgk7g9wUadt821RSRmjoA.jpg" width="400"><br>
+
+علی نیکزاد، نایب رئیس مجلس شورای اسلامی، در گفتگویی با خبرگزاری ایسنا از کاهش دو سهمیه بنزین بر اساس آخرین تصمیمات مجلس، سخن گفته است.
+به گفته او سهمیه ۶۰ لیتری بنزین با نرخ ۱۵۰۰ تومان محفوظ خواهد ماند اما سهمیه ۷۰ لیتر با نرخ ۳ هزار تومان به ۵۰ لیتر کاهش پیدا خواهد کرد.
+همچنین سهمیه ۳۰ لیتر با نرخ ۵ هزار تومان هم قرار است به ۱۵ لیتر برسد.
+او البته گفته است: «براساس آخرین تصمیمی که درباره بنزین گرفته شد، مقرر شد که قیمت بنزین افزایش پیدا نکند.»
+اشاره او به بنزین ۱۵۰۰ تومانی است.
+آقای نیکزاد تعیین نرخ چهارم بنزین را رد کرده است.
+دیروز رئیس دفتر مسعود پزشکیان، رئیس‌جمهور ایران، هم گفته بود سهمیه بنزین حتما کاهش پیدا می‌کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78039)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-25 20:12:09
@@ -92,7 +136,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-08-25 18:13:36
 
-<img src="https://cdn1.telesco.pe/file/uuVIFdIuVsJfBxln6sPjNVzxC5iF0Dch-jCXNX6izkELcOrWv-USK7a2rPPes5MaZQxh-lqwIJ95PayoOXk8n8fG5Pih1B1VN7X9p9FeXgBQCY6jO67Jqc6W78ymGv8hWjtLIDP-SmzX-JbEJu4o8FuqgHndPBVvjbFWnyScveqH31B_Bc-UlR-7FMS6FhVom1pPSw1iEoKLgOtI1M83iLr1WgPDWxvG8K7OWI61-Q_1yj5noVlK4IAIU_a35gjF5n2dBsN7zUm9sQyK8IEqdPeEafKBynoVN3RowfUN--hU88j2hux5vVC5GqslXJQnDegAfWqWGvrc7ColVWRxow.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mkkX94DknsRVazcW5q1HrANUAuAJ37ewzPttyI7B-JSDUqc2vzRwxVOMWe0H3pt4eHaDyBucL4rfH8cQHyjW5DeuuHy-8VE4DEripwav-WMe0KbhESlTy50737xqXFT37O03oC-jGKZW93vWE0qJuvC-U0wX4F8DexpvZjbQA9GRCi1mT0y_Ww38aZDhdVZ7us2im8XCgd14TWXOIjqfI6YDfsC7cSk93BL7WhIsrtJfjPyFi86bMZ5-oqgrvWgO_yRmJ2YneCh0_v5mcV8-NUQJ-ik5ZivbzmjaB82bB5Ucr2-QjJrJtC8o7v66TeR1mgSeM57sgdb75hQdS32HrQ.jpg" width="400"><br>
 
 ترامپ چند ساعت پیش:
 جمهوری اسلامیِ رو به زوال ایران، حقوق بخش‌های بزرگی از نیروهای نظامی خود را نمی‌پردازد و هم‌زمان، معترضان را ــ حتی زمانی که در حال اعتراض نیستند ــ در ابعادی بی‌سابقه می‌کشد.
@@ -300,51 +344,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78022)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-24 16:26:41
-
-<img src="https://cdn1.telesco.pe/file/BU4LiDU88Rk2ah2vijywH3CZrRdSEO_KlmDJ2Nybh-e6ZShwWnQO0M5s5YTX0YhrwSvBRDSeQnq9ZNBHp3KJoBfvFLqjNnjfca6LyLqOda850r3Pbj5DodPssv8MhI1748xyXSTapOutK52wCc_yPp5G3nkB3mGMYBMHWBTwIYuXb1kieswtmVp-p2Gmp99jVTmKm8lXaZX4j5QTWCOFTr9aqCNWhGAmRd4OkWbdHDLFYdD3UfJU7XuvqBDch6iiUn2cFKrrrGI_QT1nJHu33kmS3Z6_0sZzhonwpeQw-BilqdrNFXYZ2SoVdPLkdCIsHv-O4O1APfApgyIrQxW3ZQ.jpg" width="400"><br>
-
-ترامپ:
-ایران کاملاً در حال فروپاشی است!!!
-رئیس‌جمهور DJT
-realDonaldTrump
-اشاره به ایران در پستی دیگر:
-دموکرات‌های چپ رادیکال با نظرسنجی‌های جعلی دارند دیوانه‌بازی درمی‌آورند. آن‌ها این نظرسنجی‌ها را در سطحی منتشر می‌کنند که هرگز پیش از این دیده نشده است. به این‌ها «عملیات تضعیف روحیه» می‌گویند؛ جایی که تلاش می‌کنند روحیه جمهوری‌خواهان را تضعیف کنند تا آن‌ها برای رأی دادن بیرون نروند — اما نظرسنجی‌های واقعی فوق‌العاده‌اند و روحیه در کشور ما هرگز تا این اندازه بالا نبوده است.
-ما در برابر همه در حال پیروزی هستیم، از جمله ایران که کشورشان در یک مارپیچ مرگ اقتصادی و نظامی قرار دارد.
-از توجه شما به این موضوع متشکرم!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78021)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-24 16:05:03
-
-<img src="https://cdn1.telesco.pe/file/iN0IQ4AQKoCkQQNEksLMW1Ng-XYZuVPCUNSbVodgjpDkV2RnVYB394wZ0idWsnhbQHgvqX-jfvyflKlr7NOVOpx9PwpuuK02AwWzYhX6KVEsKihRCrwx14fk1bJAVTWq5KSq4FplpUrU-4EFltEDNd8T0HyzCRyv8VgJHrsI4NwCBiUCfoLIiSQQDs7IjSG1FkPFqRY7Lv-BLB_rKAMrtW8p3Ms4s93olFJUvWS5FiXVANg65uszFVd3ggspgD8KinD1uRYnh3f2PiTrSd29WUmLXRJJQrRZSbziaujVYPzkUTFgffStG-XsQdwPoiBswFUw9eQOgso4DXM-EOLylg.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس جمهوری ایالات متحده روز دوشنبه دوم شهریور مقاله نیوز مکس درباره سخنان هفته گذشته محمدباقر قالیباف در عراق را بازنشر کرد.
-رئیس مجلس و عضو ارشد هیات مذاکره‌کننده جمهوری اسلامی ایران، هفته گذشته در جریان سخنرانی در جمع فعالان اقتصادی ایرانی و عراقی گفته بود آمریکا در جنگ نظامی شکست خورده است و حالا به سراغ جنگ اقتصادی و شناختی رفته است. اگر در میدان اقتصادی قوی نباشیم، شکست خواهیم خورد.
-ترامپ این مقاله را در آستانه اعمال تحریم‌های بی‌سابقه علیه ایران بازنشر کرده است.
-@
-VahidOOnLine
-محمدباقر قالیباف، رئیس مجلس شورا و عضو ارشد هیات مذاکرات جمهوری اسلامی، روز دوشنبه دوم شهریورماه با انتشار پیامی در اکس، شعار انتخاباتی «آمریکا را بار دیگر باعظمت کنیم» دونالد ترامپ را به «آمریکا را دوباره گرسنه کنیم» تغییر داد.
-قالیباف در این پیام احتمالا با استناد به داده‌های سازمان غیردولتی «تغذیه آمریکا/feedingamerica» و ادعای ۴۷ میلیون گرسنه در آمریکا نوشت: «آمریکا را بار دیگر گرسنه کنیم. با ادعاهای واهی نمی‌توان شکست‌ها را لاپوشانی کرد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78019)
 
 ---
 
