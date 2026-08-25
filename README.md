@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-25 12:55:24 </h5>
+<h5> 🟢 Updated at: 2026-08-25 13:52:22 </h5>
 </div>
 
 
@@ -300,7 +300,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-24 03:44:49
 
-<img src="https://cdn1.telesco.pe/file/XfkzW2P_5JaQzaICN5MBAV8t0kfu0R5PulF8PYCK_cX7C8G5Z20LHBM4mN82TumO5FYSGsbblvgL_8iW8xf9XKMNc77hAaC2qtXkElBsDcPzn8tufY7aZeguIS2kXRvX6zhQtadBBKJ_EIF05vj-Hm7f6SDw57qePfduB2JIqYxS6qalVSyYsSUK7afz1LVNiZCnpKYhNcxsV1ZJUGYvYq8_GzXcKh9gr3eFTiBmBm9sbXUNOWz6mQh5CVbr_-_-NdWYCgMI8E8JFuR7QJMgUWIQQyK5c3iebxaCThgQ_w93QzCq5ozoj-WaYQTITXBi50MAFiDCqFWtPG4b7N67zg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JB79SdZWtxn6QCDtgSwmygkSvRG-BtUXekVGHKf8boqQAIRRQEE7s5aPYbtM6v7qgdWhSmCZpJ8CJgIuFdz-nSUAigbIogmMAqUHWwbLkjz9jOUL9WE0wyEH3ffLP2cBbIG9eGEs6R8gVVJKZQKThbSLsAUvbT-DkeSycD6eYeZu8r3CtKSVD8-GERTKUI7l-Pc81rMOxU_5r-yU_875eKNXL0vpUPGKQy6D8ouBAfxsklonI5O86dzdYUJ0wPSBdN0HAyfhHK3y-4QV9nj__ZemvifBUqGpVOvo8_3WTiq5FtSdlU8qBm3eLft-JsZCINi0XBBjISCf6plymcQSAg.jpg" width="400"><br>
 
 پست اسکات بسنت، ترجمه ماشین:
 رئیس‌جمهور ترامپ توانمندی‌های نظامی ایران را در هم شکسته، نزدیک به ۱۰۰ درصد کارخانه‌های نظامی آن را نابود کرده و برنامه هسته‌ای‌اش را مدفون کرده است. اکنون وارد مرحله نهایی می‌شویم. با سپیده‌دم، یک «D-Day اقتصادی» آغاز می‌شود — بزرگ‌ترین تهاجم مالی واحدی که تاکنون علیه یک دشمن بسیج شده است.
