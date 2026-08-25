@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-25 04:13:07 </h5>
+<h5> 🟢 Updated at: 2026-08-25 05:43:01 </h5>
 </div>
 
 
@@ -262,7 +262,7 @@ hra_news
 
 ###### 🔵 Post time: 2026-08-24 04:44:19
 
-<img src="https://cdn1.telesco.pe/file/UO0xKR1ZOoamPC5W1qjsug2OHS3AO0qfNf9BdgVTLdAXwbs9diRfb215O8u9MBBi5udK43-P2UmDXXn85wPClHgWFKEZTBd7GiG3zGQ73oof_2g5-eH6qkUDsH-YY83tIhckkeQPt4i0hdnvgs7Ngr05ft9PSTNtunCXvAttT9PqyPdEO5xPm7s1H94enqCV90C3JXLrmDdwk9xTIHm7OoTBL_Qh7VE5m4CTqdo0dMY-f5juihGLkHiqBETj7u67JnAI__Kei7KARiItgzPDtAou2wy6qIqfcQxHiKVmmI0gzeWU6zdG0vcjwiEh-nX9uzRkjEXjb0yO_M4bNoCz2w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/sHDZFXvB_12vjkVG1JmNk4dPkMlnc2bGABz6F5HRJhL7UdxdOWjSNljzPqgAbXSbdw4ik2uP4xGbHbuFhuJlULQjtffCdRoP2b4qBj-NGFAjmtXVuLtbHBor9B7Fe0PPPFOjI5DrjNQ3yi8RvYDlUG4DkylGCAdkwWj-oD44e_7x0i2BGQvUQ5auFHA3D8b4f4xFfW5PouHITaQDwSqw_i0ngWuD9UYbyNzIhSh3q6F27AhVLRbzuUSoXdAqteYCoicO31gpVx8cZHnkEMQCKqY0qgizAjM_RMIGh2mZ_LODmFNxvrDA4jUGEGf6lM69X2HsXg79YSF9ebB9hdsgNw.jpg" width="400"><br>
 
 جی‌دی ونس، معاون رییس‌جمهوری آمریکا، در گفت‌وگو با نیوزمکس گفت با وجود تلاش‌های جمهوری اسلامی برای بستن تنگه هرمز، آمریکا موفق شده است روزانه بین هفت تا ۱۵ میلیون بشکه نفت را از این مسیر خارج کند.
 ونس گفت واشینگتن در تلاش است مانع وقوع بحران انرژی شود که به گفته او جمهوری اسلامی در پی ایجاد آن است. او افزود یکی از قدرتمندترین ابزارهای آمریکا، «وادار کردن تهران به پرداخت هزینه تلاش برای خفه کردن تجارت نفت و گاز» است. معاون رییس‌جمهوری آمریکا تاکید کرد جمهوری اسلامی توانایی قطع مسیرهای تجارت بین‌المللی را ندارد و این مسئله اهرم‌های فشار تهران را کاهش می‌دهد.
