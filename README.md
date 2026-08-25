@@ -3,8 +3,67 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-25 18:05:09 </h5>
+<h5> 🟢 Updated at: 2026-08-25 19:04:02 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-25 18:14:15
+
+<img src="https://cdn1.telesco.pe/file/sOCBx2DzPlR_Xox4RPlh5NZ8jvbjl0xCkwLUHq0Nuc0vDSpTE4I0MFq3_yv7JNLR8C1GI0EGzPNC0a_Sp6lJPR55CZSS89cejVvJXbuPnWZV3vCbqYikOR1JFFWFA4KCivgE_7Vy0hUVFnFMCL487bHxIv9hmC4URuPFqjcfTbO7WT7L-LnJt0YvTzYsowMKY7ytMGhEVopZJwrBM_2DPQqqW9yG2Jad5uDkCSwfHTPCMaO44-chyrzOfhnySSsYggLdXRerLwtQCc_npX-daxM6jWBXKhvqOODP8LzxVuxLdSH1Me2SVPBqHU59IJPZMT2XjcI9qsZlfswnQ5EA8g.jpg" width="400"><br>
+
+ترامپ، چند دقیقه پیش:
+همین الان نیروی دریایی ایالات متحده به من اطلاع داد که همه مین‌ها از آب‌های بین‌المللی تنگه هرمز جمع‌آوری و/یا منفجر شده‌اند.
+به ایران اطلاع داده شده است که هر کشتی یا قایقی که مین‌های جدید کار بگذارد، فوراً و به‌طور نظام‌مند نابود خواهد شد.
+از طریق نیروی فضایی، ما تک‌تک وجب‌های تنگه را زیر نظر داریم؛ همان‌طور که کوه پیک‌اکس و سه سایت هسته‌ای دیگر را که پیش‌تر نابود شده‌اند نیز زیر نظر داریم.
+سیاست «تحمل صفر» در قبال مین‌گذاری به‌طور کامل برقرار و لازم‌الاجراست.
+از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78033)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-25 18:13:36
+
+<img src="https://cdn1.telesco.pe/file/uuVIFdIuVsJfBxln6sPjNVzxC5iF0Dch-jCXNX6izkELcOrWv-USK7a2rPPes5MaZQxh-lqwIJ95PayoOXk8n8fG5Pih1B1VN7X9p9FeXgBQCY6jO67Jqc6W78ymGv8hWjtLIDP-SmzX-JbEJu4o8FuqgHndPBVvjbFWnyScveqH31B_Bc-UlR-7FMS6FhVom1pPSw1iEoKLgOtI1M83iLr1WgPDWxvG8K7OWI61-Q_1yj5noVlK4IAIU_a35gjF5n2dBsN7zUm9sQyK8IEqdPeEafKBynoVN3RowfUN--hU88j2hux5vVC5GqslXJQnDegAfWqWGvrc7ColVWRxow.jpg" width="400"><br>
+
+ترامپ چند ساعت پیش:
+جمهوری اسلامیِ رو به زوال ایران، حقوق بخش‌های بزرگی از نیروهای نظامی خود را نمی‌پردازد و هم‌زمان، معترضان را ــ حتی زمانی که در حال اعتراض نیستند ــ در ابعادی بی‌سابقه می‌کشد.
+این یک بحران انسانی در ابعادی عظیم است و باید همین حالا متوقف شود.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78032)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-25 18:10:48
+
+<img src="https://cdn1.telesco.pe/file/jpzlBJnm_FcXIhGSFpcdDtu9WlTu_xbOUdY1Ev8H5RN6CdCGdnvcDsxh9wnAgJB3mKFU8jrZJ6r1vnd-8UpGEMRzkTas4RWZu3hddNnYciE-Tw8RD6SgsCarcGrBTr8CBUnGOIDN8ZpSpxXzaQdHRn5LZ015c-8RGe69_MUiKy4suVsfffULY6tCziKjKQ5_73AkcNBuYGycuqs5NZGwlILda1w--dF2jlEcfnrY4RgX12C7_ODNzuMfjftG83kAGhz7k94fhVem7rAjtIsIRQKvxuRqxwDECnyzdq_HDkTZz5unyJ09cNJfkyMLHed8OBinzzPq8fRhOUmkWXkKvQ.jpg" width="400"><br>
+
+قیمت دلار در بازار آزاد ایران روز سه‌شنبه سوم شهریور ۱۴۰۵ به ۲۰۵ هزار تومان رسید و سکه امامی نیز با قیمت ۲۲۴ میلیون تومان معامله شد؛ رکوردهایی تازه که ادامه سقوط ارزش ریال و افزایش التهاب در بازارهای مالی ایران را نشان می‌دهند.
+براساس قیمت‌های اعلام‌ شده، هر پوند بریتانیا نیز به ۲۷۹ هزار تومان رسیده است.
+دلار در آغاز هفته حدود ۱۸۶ هزار و ۵۰۰ تومان قیمت داشت و روز یکشنبه برای نخستین بار از مرز ۲۰۰ هزار تومان عبور کرد. بر این اساس، بهای دلار طی چند روز نزدیک به ۱۰ درصد افزایش یافته است.
+سکه امامی نیز که در ابتدای هفته حدود ۱۹۱ میلیون تومان معامله می‌شد، با افزایشی بیش از ۱۷ درصدی به ۲۲۴ میلیون تومان رسیده است.
+جهش قیمت ارز و طلا یک روز پس از اعلام بسته تحریمی تازه ایالات متحده علیه جمهوری اسلامی رخ داده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78031)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-25 18:03:57
@@ -167,7 +226,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-24 18:41:10
 
-<img src="https://cdn1.telesco.pe/file/LQN1_xEPEQiaNutxcTCMW5YQWgJagPXl76rN7qXnmvUhUqzp3UWH3Z6gtQFbcF5Arp3M2DxWVUVbxJE9AY2c_OzM96uUk0Jnuo7D48rCpPFq1-TDflIYls1MqBpDEsDaUy4qXcnBhB4_RevB2drHEtOt8oDaBknKeY70oPGHzkeHYXw7osXjfthylQp5xKLuAWoAejayf8hpd41ot9vkD5pxaoGBuNfM0eP0sevDvD8vhSEjpH-In-F26Wp9unvF_nPg6epSb7lhMW8331HR6_X5arn2T7TJneB0kEFl0fzkD87z5Shv8xxFRHl3QOZu5KlppymLzJm-Kpv9FPzZtQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/RQptR7jNBMK0JAN-iRODkCWlEGcHX57hjKRDR1r2SD7Uraz2J2L3TncydhvSvLnC9epe3_iwiu_Nv1GOoRvg47zHD_NsybD6AsaYrPH-arXjVEv_hxnZ7_83i-IZnkM0_8x2aZRm4Si5U7pHBUfJqsjIVawqmQvKwbDIwKl30C8nIaSRQ0GZRi7a9ZX54L5xUuFiRbY6N2kGf_UMvsrAWhjiuBBcQpfhuYtoZTZ_V6CO5-T_LQ73qelo6b0FsA1Y0nUfdgnOMD-Sgzmvsz_3z3OtvOmyJk4QpVZt5IQFUxdGfr09jrio2cNOvjfTKeFsTxPIrxQQqTqbToyBo31gCg.jpg" width="400"><br>
 
 قیمت دلار در بازار آزاد ایران روز دوشنبه دوم شهریور بار دیگر روندی صعودی در پیش گرفت و در معاملات صبح از ۲۰۲ هزار تومان عبور کرد.
 همزمان قیمت سکه امامی به ۲۲۲ میلیون تومان رسید و بهای طلا نیز در سطوح بی‌سابقه‌ای معامله شد.
@@ -316,70 +375,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78014)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-24 15:50:12
-
-<img src="https://cdn1.telesco.pe/file/PwErIjAw7ysB7osTGj_d56AJqfR_Fo0e07J2GVVC88i1gfwUkCM9N60KTA3X7HYO8SGsUNbgUggSK3MAgRE9F9YSOFCXBKXVailZS4jsg4S-CjcbExs2x9CbXmktepvQ62JzUJLBQ7hwAt-TZSJe2Zgis1tA2S-btZGlMxnlOJGPts6xrT014s2FIhwTQGf2TCJ3STxXScE3XVC7aDp6x6MD1_Z-BglaoSYKDFpUrjybmlXSw9_0O7khXFNISVs6YYy3SP5zUNF5l4kdX6R_AeXAFXrmbRgzSvWZ-QaPdL6dMklti7VkpjUEp-5wHLtVmKrpd0ehndyD-XyDcD4XAg.jpg" width="400"><br>
-
-«آتوسا جعفری»، زن ۲۷ ساله اهل سنندج، یکشنبه ۱شهریور۱۴۰۵ مقابل منزل خانوادگی خود با ضربات چاقو به قتل رسید.
-رسانه‌های محلی و شبکه حقوق بشر کردستان گزارش داده‌اند که آتوسا جعفری هنگام خروج از خانه و پیش از سوار شدن به خودرو برای رفتن به محل کار، هدف حمله قرار گرفت و با ضربات متعدد چاقو کشته شد.
-براساس این گزارش‌ها، عامل قتل همسر یا همسر سابق آتوسا جعفری بوده است. منابع محلی گزارش داده‌اند که او با هشت ضربه چاقو به قتل رسیده است.
-درباره وضعیت تاهل آتوسا جعفری در زمان قتل روایت‌های متفاوتی منتشر شده است. شبکه حقوق بشر کردستان گزارش داده که او دو سال پیش از همسرش جدا شده و با مادرش زندگی می‌کرد، اما رسانه‌های محلی نوشته‌اند که آتوسا طی سه سال گذشته برای جدایی از همسرش به دادگاه مراجعه کرده بود و درخواست طلاق او پذیرفته نمی‌شد.
-براساس روایت منابع محلی، آتوسا جعفری در این مدت بارها از سوی همسرش مورد خشونت، ضرب‌وشتم و تهدید قرار گرفته بود. یک‌بار نیز در نتیجه ضرب‌وشتم، دست او شکست.
-شبکه حقوق بشر کردستان نوشته آتوسا جعفری کارمند اداره پست، دارای مدرک کارشناسی ارشد حقوق کیفری و مربی و داور رشته «کنگ‌فو توآ» بود.
-این دومین مورد گزارش‌شده از زن‌کشی در کردستان طی چند روز است. روز ۲۹مرداد۱۴۰۵ نیز «لطیفه محمدزاده»، زن ۴۹ ساله اهل سقز، در یکی از جاده‌های روستایی این شهرستان توسط همسر سابقش با ضربات چاقو به قتل رسیده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78013)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-24 15:47:33
-
-<img src="https://cdn1.telesco.pe/file/OgrSCfrZ-Xtv5vGBbkqfr75zWhwFwWl2z8iNGsg_wneHtCyJrNgGBR3tZHSucGMIsFljUFcKpJhpwfKi3WK_-oU1gsea7k2f45v4eKZZojSyd7ttpIy9fhwp-Rk61uJAfAnUeEMSwjvhofo36jpsuFUkebr9HmypZt7fjBUjkKuEFSEZ-0bTyDH9WjRoCiDxzXn3rE9C4ee58ivBuXpw9c8oSakwCOtxd36ClrdZnCc2VeI_ZiJyR_3iGmW6Xw_EvhxSZfXb-0liVwSfSctgtBQgfuoXA4MK5n082QGfQzdP36V--QDijF3Qu66wPyecz_KRCPteW249lMF45Du6ag.jpg" width="400"><br>
-
-۱۲ شهروند بهائی از سوی دادگاه انقلاب ساری مجموعاً به ۲۶ سال و ۱۶۵ روز حبس تعزیری و ۷۶ سال محرومیت از حقوق اجتماعی محکوم شدند.
-بر اساس دادنامه صادرشده در تاریخ ۲۹ مرداد ۱۴۰۵، راکوئل عطائیان، کیومرث اکبری، سهراب لقایی، زهرا گلابیان، بنفشه اسدیان عربی، فؤاد لقایی، آناهیتا کوشکباغی، نسیم صمیمی، حسین فنائیان، امیلیا فنائیان، ملودی صمیمی و سهیل حقدوست، شهروندان بهائی، توسط شعبه اول دادگاه انقلاب ساری به ریاست عمار رمضانی محکوم شدند.
-در این رای خانم عطاییان به تحمل چهار سال حبس تعزیرى و ۱۰ سال محرومیت از حقوق اجتماعى محکوم شده و دیگر متهمان پرونده هر کدام به تحمل دو سال و ۱۵ روز حبس تعزیرى و شش سال محرومیت از حقوق اجتماعى محکوم شدند.
-در دادنامه صادره، اتهام مطروحه علیه این شهروندان «انجام فعالیت‌های آموزشی و تبلیغی مغایر و مخل به شرع مقدس اسلام در راستای ترویج و ترغیت فرقه بهائیت» عنوان شده است. جلسات رسیدگی به اتهامات این شهروندان در تاریخ‌های ۱۰، ۱۱ و ۱۲ مردادماه ۱۴۰۵ در شعبه مذکور برگزار شده بود.
-یک منبع نزدیک به یکی از این شهروندان بهائی در گفت‌وگو با هرانا ضمن تأیید این خبر، درباره روند رسیدگی به این پرونده اظهار داشت: «اولین جلسه رسیدگی به اتهامات این شهروندان در اردیبهشت‌ماه ۱۴۰۳ در شعبه اول دادگاه انقلاب ساری به ریاست شجاع ذوقی برگزار شد.
-این شعبه به دلیل وجود نواقص در تحقیقات، پرونده را سه مرتبه به شعبه بازپرسی بازگرداند، اما به دلیل عدم رفع نواقص، پرونده از دستور کار این شعبه خارج شد. در ادامه، پرونده به شعبه ۱۰۴ دادگاه کیفری قائم‌شهر به ریاست رضا مجازی ارجاع شد و جلسات رسیدگی در تاریخ‌های ۲۱ و ۲۲ تیرماه ۱۴۰۴ برگزار شد.»
-این منبع افزود: «در جریان این روند، سهیل حقدوست و همسرش راکوئل عطائیان بازداشت شدند و امکان حضور در جلسات رسیدگی را نیافتند. این دو پس از آزادی موقت، به‌صورت جداگانه از سایر متهمان مورد محاکمه قرار گرفتند. شعبه کیفری در ادامه با صدور قرار عدم صلاحیت، پرونده را مجدداً به شعبه اول دادگاه انقلاب ساری ارجاع داد و این شعبه پس از برگزاری سه جلسه رسیدگی، نهایتا اقدام به صدور رأی کرده است.»
-وی همچنین گفت: «راکوئل عطائیان در جریان بازداشت سال گذشته با پرونده قضایی جدیدی مواجه شده بود که بنا بر تصمیم شعبه ۱۰۴ دادگاه کیفری قائم‌شهر، روند رسیدگی به آن با این پرونده ادغام شد و در نهایت هر دو پرونده به صدور رأی در شعبه اول دادگاه انقلاب ساری منتهی شدند.»
-پیشتر، جلسات آخرین دفاع این ۱۲ شهروند بهائی در اسفندماه ۱۴۰۲، به‌صورت جداگانه در شعبه ششم بازپرسی دادسرای قائم‌شهر به ریاست رضا مجازی برگزار شده بود. همچنین پیش از آن، منازل این افراد توسط نیروهای امنیتی مورد تفتیش قرار گرفته و آنها با دریافت پیامک‌های جداگانه از تشکیل پرونده قضایی علیه خود در دادسرای قائم‌شهر مطلع شده بودند.
-hra_news
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78012)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-24 04:44:19
-
-<img src="https://cdn1.telesco.pe/file/sHDZFXvB_12vjkVG1JmNk4dPkMlnc2bGABz6F5HRJhL7UdxdOWjSNljzPqgAbXSbdw4ik2uP4xGbHbuFhuJlULQjtffCdRoP2b4qBj-NGFAjmtXVuLtbHBor9B7Fe0PPPFOjI5DrjNQ3yi8RvYDlUG4DkylGCAdkwWj-oD44e_7x0i2BGQvUQ5auFHA3D8b4f4xFfW5PouHITaQDwSqw_i0ngWuD9UYbyNzIhSh3q6F27AhVLRbzuUSoXdAqteYCoicO31gpVx8cZHnkEMQCKqY0qgizAjM_RMIGh2mZ_LODmFNxvrDA4jUGEGf6lM69X2HsXg79YSF9ebB9hdsgNw.jpg" width="400"><br>
-
-جی‌دی ونس، معاون رییس‌جمهوری آمریکا، در گفت‌وگو با نیوزمکس گفت با وجود تلاش‌های جمهوری اسلامی برای بستن تنگه هرمز، آمریکا موفق شده است روزانه بین هفت تا ۱۵ میلیون بشکه نفت را از این مسیر خارج کند.
-ونس گفت واشینگتن در تلاش است مانع وقوع بحران انرژی شود که به گفته او جمهوری اسلامی در پی ایجاد آن است. او افزود یکی از قدرتمندترین ابزارهای آمریکا، «وادار کردن تهران به پرداخت هزینه تلاش برای خفه کردن تجارت نفت و گاز» است. معاون رییس‌جمهوری آمریکا تاکید کرد جمهوری اسلامی توانایی قطع مسیرهای تجارت بین‌المللی را ندارد و این مسئله اهرم‌های فشار تهران را کاهش می‌دهد.
-معاون رییس‌جمهوری آمریکا گفت واشینگتن ابزارهای متعددی برای مقابله با جمهوری اسلامی در اختیار دارد که به گفته او برخی «قاطع» و برخی دیگر اقتصادی هستند.
-ونس همچنین تاکید کرد هدف نخست و اساسی حضور آمریکا در خاورمیانه جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78011)
 
 ---
 
