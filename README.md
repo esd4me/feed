@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-26 22:21:16 </h5>
+<h5> 🟢 Updated at: 2026-08-27 00:59:21 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-26 22:40:29
+
+
+
+سخنگوی نیروهای مسلح: رسانه‌های فارسی‌زبان در بانک اهداف نظامی ما جای می‌گیرند
+1:11
+سخنگوی ارشد نیروهای مسلح جمهوری اسلامی،  در مصاحبهٔ تلویزیونی با خبرگزاری «دفاع مقدس» مدعی شد رسانه‌های فارسی‌زبان خارج از کشور مستقیماً به «موساد»، «سی‌آی‌ای» و «سازمان‌های اطلاعاتی دشمن متصل هستند».
+به گفته ابوالفضل شکارچی  «نیرو‌های مسلح جمهوری اسلامی به این بنگاه‌های خبرپراکنی به‌عنوان رسانه نگاه نمی‌کنند» و کسانی که در این رسانه‌ها کار می‌کنند را به عنوان «سربازان صهیونیست و آمریکا می‌بینیم و حتی می‌شود آن‌ها را در بانک اهداف نظامی خود پیش‌بینی کنیم».
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78053)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-26 17:31:01
@@ -137,7 +156,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-26 00:00:49
 
-<img src="https://cdn1.telesco.pe/file/Rpx9jVo1H6ulKnsZvvJVHLzkftfEItpY5UDMQz7NQP2Imy_6v3DOslnXVTSqphzbJiGL4IaC5Uq1gYJNLrtkEhXcL5pcnLteqWn05p6w6rfntABOUflwC98tgZUMR8UEvh0Ii6nDT4K8ISglWJfxUk7_2o4a92bBZa8XC6FY_mTAfHFo6IkCitXNsy4Rt4ssHW8fn0Pn9RgaUNDmDfZl6G6k5nwJ6CLO6ZeUe0oZpgNEDn70N7DCyZKuZRDkSJxh3SgG83OqLROjaYpIRxLFn--al5RbTdDve3K7ziXfV5HA-yRiNdIdPjznmxo5EVMidVk0qv8vwRNCX-FllUBboQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/uXIju-TX7Hszi08YQy3z4stskl_wlA-lctFcncFVuk2GO14_Ouy1k8OPPmJZKynYwFnug0uRNVHm8pk5sthTonja2rcS34K6LU462vXDX1yw2AG7lYHq1tdz28v2rul27U1iXTTF7M_zj-7o_WhiX8HoubG8WZ-1k_8qK7N7uo_asRGeM3rEABeXyBBf8WMc7eCq3LZ_PHhzYHqGb-UjZ0VF0Xh7Kf_FLweCy6RVsx17seieiYtU-bGx-p5QtycCQLIsfJdK6x_KeZnV4J0UZyF-vscndVTucKN9RGdq9JgsHxnoFzoYIPKh5KnL9KMQwmNhoiKE7TSTDFjVOAz0Mw.jpg" width="400"><br>
 
 بلومبرگ با بررسی واردات گاز ترکیه، ارزیابی کرد که هشدار جدید واشنگتن مبنی بر مجازات اقتصادی کشورهای طرف معامله با تهران، این کشور را که متحد کلیدی آمریکا و سومین شریک تجاری بزرگ ایران است، در برابر چالش قطع واردات گاز از ایران قرار داده است.
 ترکیه در سال گذشته ۱۳ درصد از گاز وارداتی خود (۷.۷ میلیارد متر مکعب) را از ایران تامین کرد و ایران پس از روسیه، آذربایجان و آمریکا، چهارمین تامین‌کننده بزرگ انرژی آن بوده است. با وجود انقضای قرارداد ۲۵ ساله در پایان ژوئیه، دریافت گاز ایران همچنان ادامه داشته است.
@@ -156,7 +175,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-26 00:00:02
 
-<img src="https://cdn1.telesco.pe/file/H0zFD7N0VvY7rXvAnnHwFs0wrrnKVVeV3S8o_NK8yES_gGviyE4Eue3C6Fv1iIzGDmmi4RB_l7hjhonLp8phVCtV41c0G4vaOUdTjmXW5xsqbH4MsabPQBhI1r30-kf-mX9ShORefpkQWJs9-xMYZNSDzA-tBReCy4W9VFlNiPjrh9FkbkS4P6iDV28Kg28f37oQ7MWNp-paAI0BZjdlpeUs6_qqECXsIA8-pNq9wpMyvg6HUZ08uU-gJ2gTBjRBM1wCwuNmLEB6Qpcx57rkPSte0u1nXn0nSkMU7UB-bAncAd9dA9PAJ3fK-p6zD2GeLGnzY_4o3GXJZJ59nio7AA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rDbu03l6zkWveB4xZOQVDxR2k26QYEmxQt2exzDTiC9fquAA8aacGNLPAiU_b1EEsCtu6cL-LzMDRtYaJDou9ZLE5pr1b4gspv3xd-5yCxzxR3wFEuPb8lpbBsXzlyCfpgtbpD8_sk9Af3FtdB1tZMpgQ5uHqMfjnvVdiCSet_bD7izJzbBCBRvbkNitXTLTjYP2JuE4Skxl3FWRIxHxb3Tbggdl0sdqMTl7pcHOJW7tr25DqVCWobblswesNJzYuw8smWO9qi3EIFHA7EiNabou7fQgrDArUZsLZvOMPP6BulOdfSqX42HXSY7Wb8VZamC7fsKiAgHHmSADIhej5A.jpg" width="400"><br>
 
 جان هیلی، وزیر خزانه‌داری بریتانیا، اعلام کرد دولت این کشور در کنار آمریکا و دیگر شرکای خود به اعمال فشار اقتصادی بر جمهوری اسلامی ایران ادامه خواهد داد و برای بازگشایی تنگه هرمز و مقابله با «فعالیت‌های خطرناک ایران»، اقدام خواهد کرد.
 هیلی، روز سوم شهریور ۱۴۰۵، در بیانیه‌ای گفت دولت بریتانیا از زمان آغاز به کار خود تاکنون بیش از ۲۴۰ تحریم علیه ایران وضع کرده است؛ تحریم‌هایی که به گفته او در واکنش به اقداماتی اعمال شده‌اند که امنیت مردم و بریتانیا را تهدید می‌کنند.
@@ -177,7 +196,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-25 23:58:53
 
-<img src="https://cdn1.telesco.pe/file/H1_DlCliR-pdi8O3uz3WHE6Zf7Js9_pwK__lq7HqZSAMhz9Pkiv2XY17-wXn81rxntsD3um8zsnX7MmFIFAyZLXsktyEwUlE3s_XZ2c8qbtjdnwjDmYlkO6IqJ_G1G0DILw418yt54wMYyF8tIWa56xBkrd3UXLTDds-PtBn1nU6eO-iG6kF4q3CgQ_78CDMzHOSpc45lo5MWWFTwPvvTcetyQpX8O1t1yGDbwHvPJDMjr70QEom9Bh_7mGOn0MGEAHPGYfCY53wOhMHf4TpRVU8v15iBsceXBefCcB3eUDbZPKiUStAaNjZBGJN1yeDW1sllVgiR2DKf51mL_xjAQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aGARl5Lun_pbOBeiitQadKAHtKR7jg4NI4YXFxaX5ZjIv-kxjzA-k7iKbsNZ5gq8e1OAar1UnfErufzdCn5XuE_D2QDvpFS4DKCBGiG-4d9Y-SfKdO8IZ5VvKHcmfpS3aafOZsvodNxSzv3kHRFAhD4143n9YaQMYBqyOFIUdq18N0smfTqIyN3TfSp-yfgE3isVhMc1oZFS4LAHWC1cPFHqiQH6ugejp3BAV_bs-lUT2KsnoACl8iy7IgLrrqxF5W4_wzKERTC8yRJyDlH4pPbq9u_6ihTPDL196kB3kMEn3MqGASxDURnh3g_K8gi_IqXmTfxKLGIqsYYI0ehuuQ.jpg" width="400"><br>
 
 محمود نبویان، عضو کمیسیون امنیت ملی مجلس، سه‌شنبه سوم شهریور در شبکه ایکس با انتقاد از عملکرد وزیر خارجه جمهوری اسلامی نوشت عراقچی بر اساس کدام مجوز از دستور مجتبی خامنه‌ای مبنی بر «انحصار» مدیریت جمهوری اسلامی بر تنگه هرمز تخلف کرده است.
 او افزود چرا وزیر خارجه بدون ملاحظات امنیتی اسباب محکومیت و اجماع سازی علیه جمهوری اسلامی، به سبب «اعمال مدیریت لازم و درست ایران در کریدور جنوبی» را فراهم می‌کند؟
@@ -194,7 +213,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-25 23:58:27
 
-<img src="https://cdn1.telesco.pe/file/tiW9dWT44OKYJyuGXTxQyoNUvJm67XfiJb8OUBhaHn6bW3PKGQaKPLXKNRZ7ZpDgZzc5WGQffNR22dxbwQdjxhFPbk30iLv2w0edjRM5ZZ4aSUU-JLOnS-4WvzGah-AL0wbay7s-YPLmkcQMhm76qWqLnxisTc0b49aTijZZ3lSjP51Yqd5E2najFCNW_SZAmbPa9FWHBKp48OwfcoWbClpK782TgJhisDaH-aRaX-udyfZ3EamLMbPHysryUDwDQmX7biljOgNRTZhhCwvaav6B80hTlRy_TQ1GYhrGm2l7tVDK383zkhW7E6juECqpW9oK77MHgKiYZOyMYUZrZg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/eSfWGQk09edfxohxh8r98W15bRHm1M97lA_ZI4pSVcsHc9oLrvYs1IlhajZoWNPJijAPH9J7I9KWPWo-Y_B2xDoWNN4W9FQfJLO8-5IZ9dPAQpjxPVY-YWEougaI3K-uzwpTDIi54J1XEOjKwqMnSnNRU5tMPvLwPbtZxwDRyKfnejeWXUbFuv9a2tWrMAcl9yctM8fIvpzkCY92YAr5t51mmp8tjrogDgTPJkGIxcgJ3hg7azXkLuO1Fvd2hmT0TlSeiG9woeYk8wp0gMD2gTW6IvfpdPwue9pCpqigzXVFnHgQP-ZqXvW3K2k8Lb6c3XfS033qlJ6-e7CN2f4Pzg.jpg" width="400"><br>
 
 محمدباقر قالیباف، رئیس مجلس شورای اسلامی، با انتشار بخشی از ویدیوی نشست خبری اسکات بسنت، وزیر خزانه‌داری آمریکا، در شبکه اجتماعی ایکس، با کنایه از اظهارات او درباره تحریم‌های جدید علیه ایران انتقاد کرد.
 در این ویدیو، خبرنگار با اشاره به ادعای بسنت مبنی بر آغاز «روز دی (D-Day) اقتصادی»، از او می‌پرسد چرا تحریم‌ها بلافاصله اعمال نمی‌شوند، و بسنت در پاسخ می‌گوید: «چرا باید بخواهم سیستم مالی جهانی را منفجر کنم؟»
@@ -212,7 +231,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-25 22:52:26
 
-<img src="https://cdn1.telesco.pe/file/KTDDu9T5hvfw74RIypSrDekAHyw9Su16COY-j4kz5jAs7MJr2XJeXKiJmTVm2L7ycNRxa_sOjAvIPde2M9OZFC9jlYOBz_1KHtlATRFAfri1J8AloS-Cq27aeLJSkKKHdJA37VglwLkHPGFyQsuKdnwSj3NdgmyRm2CtEJhByaJ_10FdeunBf8CggaqD9PLDn5XRprQqFE1WMuNbnRU_AbvbcpL9c6b4kW2rPbv688R4AfaABPZaATjf0k6js7l0ZQR735lK0yqEfw1vDUq9YjpvcCGJe5WsV4YKAT4YwkEnLCtoupBE92qmy4CcN5vuCJsaXdfnXMhdbzXu1URPmA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/F6Vyt9PX3iBaFz3rwrBsAlxNr_dHUlwRjqCh1umIKDPaKtZDcovRZSGA5xIqifDwt_ROQur2HoD1onKac5UjOLdeSGNjx9QfNmpW8ZOHPJV4SphNqrdAIKodW8apT1O_W0_LA5ZA6QBGWayyOxVtwnLHBR3QBzbKXXp65ayK7torUWBsXLvDSvrk8C0aY41Dj70Kg4xJcRokzEixt53aIQjes5ucsfiHBM8KP2Lq21oakdEfbZORkIZ8xPfi-_FW7uN0IKoGjzNL1fuAJQchIbJrAv_NkQ9NSvDTt492goh18FmdHKXbzE7mWEZesqSNAyIxY7oECZ4HxySUIqDSJA.jpg" width="400"><br>
 
 دو منبع آگاه به گفت‌وگوهای مارکو روبیو، وزیر خارجه آمریکا، با مقام‌های کشورهای مختلف، به کانال ۱۲ اسراییل گفته‌اند واشنگتن در حال حاضر انتظار ندارد حملات تهاجمی جدیدی علیه ایران انجام دهد و تمرکز دولت دونالد ترامپ به افزایش فشار اقتصادی بر تهران و تامین امنیت کشتیرانی در تنگه هرمز معطوف شده است.
 به گفته این منابع، روبیو احتمال اقدام نظامی آمریکا را در صورت آغاز دوباره درگیری از سوی ایران رد نکرده است.
@@ -236,7 +255,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-25 22:37:38
 
-<img src="https://cdn1.telesco.pe/file/t-1CE5XHfrl7a0LkyyBAyXvrUJLvL31lsUSWzkRJ1wMNI2x7n7-nxvmFJMAD0wRGBe3XB27B6SgWVl2yW2cEAVFHftk8YQ7lKDajnjyyJ7Js5FE7B1P5GaJ7-fEO6jcKZKcDK8ushCJMBQTTMRtToDAaYHqZoQmN3Rc1pK0UYxZeHmPyQ1NDBZEbudnINP8Y-zlR9ptBger-8DkPkQEwFoEQT9G9dQbSvehe2N1TH8z3ds4xVdmoSqH7fMuV5NV2WKmxVQ3lJTxYg7MCKYi929gALPB_PqNtbwhVSCcCEf3ZEN5dmDplplTkv_ySpDMj2xgk7g9wUadt821RSRmjoA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Ud5twHbvi6UfhFjD34PEHYkeQzIcH5j4pesruj9NFtepkdDOlduiPwtuz1Kbp58kxdPnu79rAF-Gy5V16QjgG30XshxUl2ARfjWYuwBs0vgMcQvCRMUoBWPmHImMhf27M4Ex_ibTUo_WWQ8sCHOhnvcn89b4WJwYX3DZjOGV3KXxOdVkvdkMv7jLx-X4WXEn9b1-ZIlUfxgXGUSRA7JJk8y4jUpx1Vh7DGhw-q8YlVh3IsHoMBHXYVkkhd9ip3fvLSsClpRYZFgPaSZKuskk1ycedijRIcQG4ixPIZLawHEqVyoK8vOKInR0igFM4qQkilTXsXWOPBPKh6AdAkP1FQ.jpg" width="400"><br>
 
 علی نیکزاد، نایب رئیس مجلس شورای اسلامی، در گفتگویی با خبرگزاری ایسنا از کاهش دو سهمیه بنزین بر اساس آخرین تصمیمات مجلس، سخن گفته است.
 به گفته او سهمیه ۶۰ لیتری بنزین با نرخ ۱۵۰۰ تومان محفوظ خواهد ماند اما سهمیه ۷۰ لیتر با نرخ ۳ هزار تومان به ۵۰ لیتر کاهش پیدا خواهد کرد.
@@ -313,27 +332,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78034)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 18:14:15
-
-<img src="https://cdn1.telesco.pe/file/SKK943MA-inO9xGgovoh0r-s5pyU2cbgOMkzrrJ6ZoaIQS6B6_rStSA0RuPQ4eq8SMXZWSRmgKgqKgYn7pDxIeC-5TpwqjPBFqGbfO0kS2B9uZCE18Q6pTZLFcBJh2vjBDIznr1TX8VQ0pxRI9FgAuEKdwCWEvmnECeRv41VNauXB1qCEpTHOTOTll9rBCLH8Wmkq_pbXo7W6MqsjKpyoDWoMXut4wlCrcEIgvS-9G-uTta9xVkxTHrox97DWPY-hUwf1yh3_I-j3G4ZzvWC_8kCnm7AuOWCufGXtoRBzeA3Z59p4oFNimLJwe4Ur0q0P4gOHSCSTxZeE68g8wAwQQ.jpg" width="400"><br>
-
-ترامپ، چند دقیقه پیش:
-همین الان نیروی دریایی ایالات متحده به من اطلاع داد که همه مین‌ها از آب‌های بین‌المللی تنگه هرمز جمع‌آوری و/یا منفجر شده‌اند.
-به ایران اطلاع داده شده است که هر کشتی یا قایقی که مین‌های جدید کار بگذارد، فوراً و به‌طور نظام‌مند نابود خواهد شد.
-از طریق نیروی فضایی، ما تک‌تک وجب‌های تنگه را زیر نظر داریم؛ همان‌طور که کوه پیک‌اکس و سه سایت هسته‌ای دیگر را که پیش‌تر نابود شده‌اند نیز زیر نظر داریم.
-سیاست «تحمل صفر» در قبال مین‌گذاری به‌طور کامل برقرار و لازم‌الاجراست.
-از توجه شما به این موضوع سپاسگزارم!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78033)
 
 ---
 
