@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-26 19:40:28 </h5>
+<h5> 🟢 Updated at: 2026-08-26 22:21:16 </h5>
 </div>
 
 
@@ -258,7 +258,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-25 20:12:09
 
-<img src="https://cdn1.telesco.pe/file/RE7vhagmjubbBxZ3wms_moFFalrtPTTIsB8qbKXBz78xgjDmQuxuBGEexBda9mF30SOviZ56mlLoe4H2ifK3ExPVcqwF8lw5W6s3lQ8xk3PG7l6376nfmdJ-e42vn2o549_4OMpb2_k51sSYK0QsUUDG4qoqKkEI8uYRW-MvfpNL8vC5wDfdZ2__Oge1hqY4AB7P5lgvzQ7njBBuxzEfNjIadf4YIpC-tVahgzGcPvXvNHZaTuuTK1K0wBcZmiDccl46R5UZMGUammbQLUuAUZBK1-pMfQ_fietUowfgIMDSpIj5cXsXuGWKPkUBTQx-EFQFPleiEkUyPUIOKie9dw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/DHvQRxhKIlb2t_yBPkZVwaYR5GwzI1IDL2_4NVHqofTQoff8FMRw7wykm0xoGGyzp0W0xyFGWClbsov5WfAAMpPJwTOBktZoK_B54gu56HcPdJx8bnZ-Zaz89R8TycXP_2g287FG9X-uhqV10JT1JblXhZNvRbRf5KEQYSRd-RFXaSRYRtAHY1FDfUSAUFkb5btv0v12zlufaGtfNcWheibOkkvkrGpqFALAv6vmowUfahlpz4uTQBMR0zmgpwYZ7RRED9N73FcNrH9VZDGEOshkvRJZZR9C5ntB-Sdy-bNiDYJd3Ofq1ccadtC1I8W-DyFNDBGaMaf9rGMMu0YTsw.jpg" width="400"><br>
 
 پست اسکات بسنت، وزیر خزانه‌داری آمریکا،
 ترجمه ماشین:
@@ -278,7 +278,7 @@ SecScottBessent
 
 ###### 🔵 Post time: 2026-08-25 20:05:30
 
-<img src="https://cdn1.telesco.pe/file/gBPBxduOUZJbJ39MIvx5W9guwAosin4M-F-QfRrVxkgCM9cmYugeOcmGa_DrV9MJMmOT-gguSC7rGeC1poYw2x2RAOOyknEo2AuFHjlMbaLVVMWOIU2eShKDAnFn7R2qYIgBd36xdB4qwRFNTPwaCRdYYdxPtxIsToyj7j1UtgILsOMyTH429_sFTp9TCKakVXPsL60wikovJBYeC-qSHyw492NHuGrLgozrzub1T0Dd9qFNpBgB0FN6dYVsAks0KgoeMEGri6xy_mfjgtrxe116d3TIlIgmbcWhy6FsaKTMuRPsG6UoR5NWm6QTu1m4AwXVEGPb9YTFRAULu1CDGA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GuS_yZHAA2QrukW6urrYvvmKxt9CHVcBNPjW70m9MFoHjSppk3wzPJ4PFTyn20B6ARpi9ODy09IBSVmEeBkuQBK3Kp6FQYq1zA82G2PXCg5JryvytOjwVtD45xU2u6rkjrScPu9W9ZMQBxlrYefcISFqYPmx60mI6nR5fwCs16sVHXPXqemmCR0TDtVT3guy5fYEOLw2IIZsttjspyH6lvrYmCbtGzxghvQTJRpMwzDzeGhR3ZqPU9t0tgKR8sOYTwj4M18qZ_XRFcRmZBdyPVPljQdspir5_XEeyCEritaoAJo01dJ2hwf1HOFSJ572eVYmV57C6g5fRZy9TChuzQ.jpg" width="400"><br>
 
 خلاصه
 بیانیه
@@ -300,7 +300,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-25 19:58:17
 
-<img src="https://cdn1.telesco.pe/file/F49kGIUqN5PjxKlLrXfDKkHweIK5iFG-UMmpgiDaobNwia-f3tZvKYx1Zi-LJwTqyvmHPkMYB1wjGkozbg1F6I7BiAznIcGNPapN6Q7XVAQZSTLqjjOpk9i4WMCyQf_y3yLT1y3eO97W5505FS02wyBE3rtuMljWvMq3AvDdSowdjkOYP6u2gj3-aU7oHlKH-SNtvnS00WEw_KYf0l5gSmdTDZUefMG5oLjeKc_jlHs-36gpZ50c73fskCXEWW_3ChW4usjcZImgtnZZxJCoPz4_GHZxDs9pcMOtlUkFN7LJPTdV6R0T98mkkEPRSX4otK-dxF6RiNxZUJVMt8fBpw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XFzADOK4ROSN_esMPY2wf_uWoP211eZMkUiBvMjkyjgsKksxCcTMaOyakmJp76mwUA8k2Ubkr_3zsGKJC0Kr-CHrc_iDKZwVK1wOrwsQ_Zdz2IEvQZmQSZMBKOxTq_F1EiVEez-idZcq0i30eiPQL90sfMJ2MNXZxdrgPCqdzlZkIiuvB2_jFT9L94b8TbOCzeNPEWcA0bfucQ7V-VkJMiOPhOhjac6KcT5tLRpJVpwaLu5IevSWz0OkpWPkPBMM0sh-3jQloyIIEJ62X9W3oLBpkipyPvHHvOrBY-lqSKGPeNzdYGMP8MQB-oaLSV-caauOVnX_G_M1ENw4InymPw.jpg" width="400"><br>
 
 گزارش‌ها و ویدئوهای مختلفی در شبکه‌های اجتماعی از «تعطیلی» تعدادی از جایگاه‌های عرضه سوخت در تهران و تشکیل صف‌های طولانی در مقابل پمپ بنزین‌ها منتشر شده است.
 برخی رسانه‌های داخلی از جمله خبرآنلاین، خبرگزاری دانشجو و عصر ایران نیز تعطیلی چند پمپ بنزین در تهران را تأیید کرده‌اند.
