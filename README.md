@@ -3,8 +3,125 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-26 17:15:24 </h5>
+<h5> 🟢 Updated at: 2026-08-26 18:05:42 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-26 17:31:01
+
+<img src="https://cdn1.telesco.pe/file/Kc2C3GnfpTrCN5P-ipwSMsXbEIa4HGCAwZm-DQMT339dGAY3N3dOKTjl14fZ33I_EM74d9v21mkIKdNRXwJyJ3MEq_SMWrVQx9KVnSTB2JnZAv6j-buiwI3zSpRqzW5l0igm7yhtDKuD4ULZRa1WuADqDjQx9SCly4E3DCQ11omt52bQJI4aka_mNTht1-kRQ8l5fwlIlyHkEO5TT-lyih3begRqTrRdcToEXqWV4NdnJT71y5hM39E9aWvkgBm9EQfnWJ5dmckOlyeGYl9AMmKNnHmpDlR0_TEhPJ3tvEx24Wau9gbYJF4qdbg6nGoRtPbLfVyAG_oJiF6ZbR02-g.jpg" width="400"><br>
+
+دونالد ترامپ روز چهارشنبه چهارم شهریورماه، در گفتگو با شبکه الجزیره اعلام کرد که هم اقدامات اقتصادی و هم گزینه‌های نظامی «اثربخش» هستند و او در رابطه با مذاکرات با ایران «عجله‌ای ندارد».
+او در پاسخ به پرسش‌های تانیا نوری، خبرنگار این شبکه، افزود: «من هیچ جدول زمانی ندارم؛ هیچ عجله‌ای در کار نیست.»
+@
+VahidOOnLine
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه چهارم شهریور در مصاحبه با برنامه رادیویی گلن بک گفت فکر نمی‌کند مجتبی خامنه‌ای، رهبر جمهوری اسلامی، کشته شده باشد.
+رییس‌جمهوری آمریکا اعلام کرد: «او به‌شدت مجروح شده بود؛ سمت چپ بدنش، دستش، پایش، همه این قسمت‌ها به‌شدت آسیب دیده بود.»
+ترامپ همچنین افزود حتی اگر مجتبی خامنه‌ای مرده باشد، جمهوری اسلامی «نمایش خوبی» اجرا می‌کند.
+ترامپ گفت: «جمهوری اسلامی همچنان درباره مراجعه به رهبرشان برای گرفتن تایید نهایی در امور مختلف صحبت می‌کند.»
+رییس‌جمهوری آمریکا همچنین افزود توافق با جمهوری اسلامی آسان نیست و آن‌ها «چندان پایبند به اصول» نیستند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78051)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-26 17:30:18
+
+<img src="https://cdn1.telesco.pe/file/B0ZKEx_tGwAKA_z6rAWQVjoGKRUAiNz-iMWM3OlTmxmy6GNtB1VKu27eD0n7OZXb0GQm4GnzG0Jm9ZhmeRV0-91Z75nVwoN1ACuiO0WkOilEOgAoRwz-N-0UessLJFxft5plmKQZdW0VpIjDTAc_ySYn2z_m-bV9SJTysuWJeDGRtDrsMs7M2P3J17rxJhaisJo3eOo7OgsLcVla0dQf_Hz1SVw2P8pUaY5q4btpzIKbltuG1aZ3-Jn_G38Nw5tBgiw1xwqJbUYmOECArvXGfaJ0iXdJJApmekqtryOdnvdwaC5Wux48OFKqSBhSptXCv7ZhVePBuwgBhjPiZ5yQyg.jpg" width="400"><br>
+
+مسعود پزشکیان، رئیس‌جمهور ایران، بار دیگر موضع قبلی خود دربارهٔ ضرورت پایان دادن به جنگ با آمریکا را تکرار کرد و گفت: «جنگ همیشه راه‌حل نیست. گرهی را که می‌توان با دست باز کرد، نباید با دندان باز کرد.»
+پزشکیان روز چهارشنبه چهارم شهریور در یک مراسم عمومی بار دیگر ایران را «پیروز میدان» خواند و در عین حال افزود می‌توان با «تدبیر و اندیشه» از این مسیر عبور کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78050)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-26 17:28:39
+
+<img src="https://cdn1.telesco.pe/file/YnPFX8ut4StTQklQOI3gqvQghM4lxLzkDa-TvEuMmf8HEPDOGnayvRlWgkcHwphYRjlwQx-0spc30lVrBTI0yK54ZjbvccruVvJPtrJZ_Rbx2R3UEZylOhQokKFPDEq8awvL-Nr9R-MKqYKlgmVaPeUV-URT5Pbt7nNE8FduGQcXvFus-ThIcqVdJ4ORYvWS4HtW1PrwPt-_Ic19FZiXbYbBibtpCTzWmCGIjMkD-oNg6oXC_tgELixNhLNu7wVZ3ZgxWk_9QV9nVrY5LNdvg8QI8A37fl7pV7A7ExWfTPfjaaxh5hf3qUWXOkFl8zzHIwxGbT4qzqLmrl17Ryq8ng.jpg" width="400"><br>
+
+خبرگزاری هرانا گزارش داده است که حسین نظری، شهروند ۲۵ ساله و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، توسط شعبه اول دادگاه انقلاب مشهد به اعدام محکوم شده است.
+بر پایه این گزارش، دستگاه قضایی جمهوری اسلامی آقای نظری را با اتهام‌هایی همچون «ارتباط با دول و گروه‌های متخاصم» و «اجتماع و تبانی برای ارتکاب جرم علیه امنیت کشور» محاکمه و حکم اعدام او در تیرماه سال جاری صادر شده است.
+نظری، متولد ۱۳۸۰، در جریان اعتراضات دی‌ماه توسط نیروهای امنیتی بازداشت و پس از طی مراحل بازجویی و قضایی به زندان وکیل‌آباد مشهد منتقل شد. او همچنان در این زندان نگهداری می‌شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78049)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-26 17:24:25
+
+<img src="https://cdn1.telesco.pe/file/eKfocYHaM9wvfoa_QJqUSyr0tiFjr-enIQV0qKKwAHvA9PFggY13Tm0Zs6rtW-H0uU0V33AhEkdBV8_rAa7XRjFEe3Fhf7OyOkm-Q928tD4NAAXDhJhhwjHBSK7PeuVmNlBDLJwPxRUA030rV9NDyRGuIaqtAplM5FF36_sAXUuD5qmg7aKthGcSlhcjmL_GNSJDE07soQ7ihW17OCu3gUY7u6da81kDD_S83CAFM3tVGRJjN-4p_yktRBvSURrKRktm9xgBLyQ9_jNrnLBTXFBhboZRjZsdBxRWVmlaMq9oXq1pHEVsbj5T-kRm3R_x2wlFc20ci2HYTNJ7rLhXAg.jpg" width="400"><br>
+
+گزارش وب‌سایت‌های اعلام نرخ ارز و طلا در ایران نشان می‌‌دهد که قیمت دلار آمریکا روز چهارشنبه چهارم شهریور کاهش یافت و به زیر ۲۰۰ هزار تومان بازگشت.
+در لحظه انتشار این خبر، قیمت دلار ۱۹۸ هزار و ۵۰۰ تومان و قیمت سکه طلای موسوم به «امامی» هم ۲۱۰ میلیون تومان گزارش شد.
+این اتفاق پس از چند روز افزایش قابل توجه قیمت ارزهای خارجی و طلا در ایران رخ می‌دهد. قیمت دلار آمریکا در این روزها تا ۲۰۵ هزار تومان افزایش یافته بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78048)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-26 17:22:55
+
+
+
+نتانیاهو: با «وحشی‌های» حاکم بر ایران نمی‌توان به توافق دیپلماتیک رسید
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل شامگاه سه‌شنبه سوم شهریورماه درباره احتمال دستیابی آمریکا به توافق دیپلماتیک با جمهوری اسلامی گفت اسرائیل در اصل مخالفتی با یک «توافق خوب» ندارد، اما نسبت به امکان رسیدن به چنین توافقی با حاکمان تهران تردید جدی دارد.
+نتانیاهو در جریان یک سخنرانی با اشاره به گفتگو با دونالد ترامپ گفت: «به او گفتم یک گزینه، البته، رسیدن به یک توافق است؛ یک توافق خوب. ما مخالفتی با آن نداریم.» او سپس با لحنی تند افزود: «اما تردید دارم بتوان با آن گروه، با آن وحشی‌ها، به توافق رسید. به شما می‌گویم: نمی‌توان به توافق رسید.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78047)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-26 17:21:31
+
+<img src="https://cdn1.telesco.pe/file/rRuHySlZNy7hfWjWPFBvK0zlwbQA8TDwA3vCfwvMpmD00BMvJNyAuDR0E8Cb8gF-kU-hRag754aLL2JyeVXS3LsA6Co8Mgi0590vY9n2vy5wH9RnCR-jb8dIeGRzkXbtkxgRoNi4J6pOsV0on56cguDTX22T10G2lqaA68KoTZDUuhvbiFSMMHUUbo4NARSRQG8CA6YvRm_ERQvw7471R4zZ2KXOndSzH3qmY73v9Sygid0Ufp7rlYhw2grqWEqB9qhGcEhF1QDjxG4ww2WNb9NnhTN1E2JD5so_9490YbDpONDNBpn2eAGTVh8MS03DfPFXSvU8rGoteZv5F77Rjg.jpg" width="400"><br>
+
+مسیح شاهوردی، بازیکن پیشین تیم‌های پایه باشگاه سپاهان، در جریان اعتراضات ۱۸دی۱۴۰۴ در منطقه «خانه اصفهان» هدف گلوله جنگی نیروهای حکومتی قرار گرفت و جان باخت.
+او ۱۹ سال داشت و تنها دو ماه به پایان دوران سربازی‌اش باقی مانده بود.
+مسیح شاهوردی شامگاه ۱۸دی در منطقه خانه اصفهان از ناحیه پهلوی راست و کلیه هدف گلوله قرار گرفت.
+اصابت گلوله باعث خون‌ریزی شدید داخلی او شد.
+به گفته یک منبع مطلع، فضای امنیتی حاکم بر منطقه و شرایط آن شب امکان انتقال فوری مسیح به مرکز درمانی را از دوستانش گرفت. آن‌ها پس از گذشت چند ساعت، او را با پای پیاده به منزل رساندند.
+مسیح شاهوردی حدود ساعت یک بامداد در آغوش برادرش جان باخت.
+خانواده او با وجود جان‌باختنش، مسیح را به بیمارستان منتقل کردند؛ چراکه هنوز امیدوار بودند بتوان او را نجات داد. براساس اطلاعات دریافتی، کادر درمان پس از معاینه اعلام کرد که هنگام انتقال به بیمارستان، خون‌ریزی فعالی وجود نداشته و مرگ او پیش‌تر رخ داده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78046)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-26 00:00:49
@@ -192,7 +309,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-25 18:14:15
 
-<img src="https://cdn1.telesco.pe/file/sOCBx2DzPlR_Xox4RPlh5NZ8jvbjl0xCkwLUHq0Nuc0vDSpTE4I0MFq3_yv7JNLR8C1GI0EGzPNC0a_Sp6lJPR55CZSS89cejVvJXbuPnWZV3vCbqYikOR1JFFWFA4KCivgE_7Vy0hUVFnFMCL487bHxIv9hmC4URuPFqjcfTbO7WT7L-LnJt0YvTzYsowMKY7ytMGhEVopZJwrBM_2DPQqqW9yG2Jad5uDkCSwfHTPCMaO44-chyrzOfhnySSsYggLdXRerLwtQCc_npX-daxM6jWBXKhvqOODP8LzxVuxLdSH1Me2SVPBqHU59IJPZMT2XjcI9qsZlfswnQ5EA8g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/SKK943MA-inO9xGgovoh0r-s5pyU2cbgOMkzrrJ6ZoaIQS6B6_rStSA0RuPQ4eq8SMXZWSRmgKgqKgYn7pDxIeC-5TpwqjPBFqGbfO0kS2B9uZCE18Q6pTZLFcBJh2vjBDIznr1TX8VQ0pxRI9FgAuEKdwCWEvmnECeRv41VNauXB1qCEpTHOTOTll9rBCLH8Wmkq_pbXo7W6MqsjKpyoDWoMXut4wlCrcEIgvS-9G-uTta9xVkxTHrox97DWPY-hUwf1yh3_I-j3G4ZzvWC_8kCnm7AuOWCufGXtoRBzeA3Z59p4oFNimLJwe4Ur0q0P4gOHSCSTxZeE68g8wAwQQ.jpg" width="400"><br>
 
 ترامپ، چند دقیقه پیش:
 همین الان نیروی دریایی ایالات متحده به من اطلاع داد که همه مین‌ها از آب‌های بین‌المللی تنگه هرمز جمع‌آوری و/یا منفجر شده‌اند.
@@ -206,131 +323,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78033)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 18:13:36
-
-<img src="https://cdn1.telesco.pe/file/mkkX94DknsRVazcW5q1HrANUAuAJ37ewzPttyI7B-JSDUqc2vzRwxVOMWe0H3pt4eHaDyBucL4rfH8cQHyjW5DeuuHy-8VE4DEripwav-WMe0KbhESlTy50737xqXFT37O03oC-jGKZW93vWE0qJuvC-U0wX4F8DexpvZjbQA9GRCi1mT0y_Ww38aZDhdVZ7us2im8XCgd14TWXOIjqfI6YDfsC7cSk93BL7WhIsrtJfjPyFi86bMZ5-oqgrvWgO_yRmJ2YneCh0_v5mcV8-NUQJ-ik5ZivbzmjaB82bB5Ucr2-QjJrJtC8o7v66TeR1mgSeM57sgdb75hQdS32HrQ.jpg" width="400"><br>
-
-ترامپ چند ساعت پیش:
-جمهوری اسلامیِ رو به زوال ایران، حقوق بخش‌های بزرگی از نیروهای نظامی خود را نمی‌پردازد و هم‌زمان، معترضان را ــ حتی زمانی که در حال اعتراض نیستند ــ در ابعادی بی‌سابقه می‌کشد.
-این یک بحران انسانی در ابعادی عظیم است و باید همین حالا متوقف شود.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78032)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 18:10:48
-
-<img src="https://cdn1.telesco.pe/file/jpzlBJnm_FcXIhGSFpcdDtu9WlTu_xbOUdY1Ev8H5RN6CdCGdnvcDsxh9wnAgJB3mKFU8jrZJ6r1vnd-8UpGEMRzkTas4RWZu3hddNnYciE-Tw8RD6SgsCarcGrBTr8CBUnGOIDN8ZpSpxXzaQdHRn5LZ015c-8RGe69_MUiKy4suVsfffULY6tCziKjKQ5_73AkcNBuYGycuqs5NZGwlILda1w--dF2jlEcfnrY4RgX12C7_ODNzuMfjftG83kAGhz7k94fhVem7rAjtIsIRQKvxuRqxwDECnyzdq_HDkTZz5unyJ09cNJfkyMLHed8OBinzzPq8fRhOUmkWXkKvQ.jpg" width="400"><br>
-
-قیمت دلار در بازار آزاد ایران روز سه‌شنبه سوم شهریور ۱۴۰۵ به ۲۰۵ هزار تومان رسید و سکه امامی نیز با قیمت ۲۲۴ میلیون تومان معامله شد؛ رکوردهایی تازه که ادامه سقوط ارزش ریال و افزایش التهاب در بازارهای مالی ایران را نشان می‌دهند.
-براساس قیمت‌های اعلام‌ شده، هر پوند بریتانیا نیز به ۲۷۹ هزار تومان رسیده است.
-دلار در آغاز هفته حدود ۱۸۶ هزار و ۵۰۰ تومان قیمت داشت و روز یکشنبه برای نخستین بار از مرز ۲۰۰ هزار تومان عبور کرد. بر این اساس، بهای دلار طی چند روز نزدیک به ۱۰ درصد افزایش یافته است.
-سکه امامی نیز که در ابتدای هفته حدود ۱۹۱ میلیون تومان معامله می‌شد، با افزایشی بیش از ۱۷ درصدی به ۲۲۴ میلیون تومان رسیده است.
-جهش قیمت ارز و طلا یک روز پس از اعلام بسته تحریمی تازه ایالات متحده علیه جمهوری اسلامی رخ داده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78031)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 18:03:57
-
-<img src="https://cdn1.telesco.pe/file/NcdVZuI6_2b6SrHtC5lWpuDMWq_0GILdZUqdGIm8XzA7xQJmodSmzDB2OuKlzOnj9funtTRKpZHlkGTa-QyaW38v3Ghtw1G85RsLfvQ9WnkbnOiHLSkPZJgOvmq_J-HA8CyZX3s8bI-slYbkR1XAPwi1n8E2dgMTaMxAEnMxQ47V4nnPx1QHbbUrDWmopJmvXDgNCKJoJvrKTyhtrSXzQBAfiuRjGxQlcJmFaRrS6ZhmACfsWHYxq_TJHSHlYXaeknkita3srqT0GMwYCWVy7SzT6vg_mtHKigGHnS6_kdoXgIofT73rqtbGHtZOePMeUxJfulres6Wu-O8m3RSk2g.jpg" width="400"><br>
-
-کتایون ریاحی، بازیگر پیشین سینما و تلویزیون ایران، از تشکیل پرونده‌ای برای خود و ارجاع آن به بازپرسی دادسرای فرهنگ و رسانه خبر داده است.
-این بازیگر با انتشار تصویری در اکانت کاربری‌اش در شبکه اجتماعی اینستاگرام اعلام کرد که پرونده‌اش به شعبه بازپرسی دادسرای فرهنگ و رسانه ارجاع شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78030)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 18:01:20
-
-<img src="https://cdn1.telesco.pe/file/UXAcLexdKHg7cSXhGU5qAtAfiPgp6EM_JiwGWSLlvsnwhAJpfLv-tdCsMYQJqCmw0E0OVL40JCBqK_abwkZz7c_6DWO9taNAIo70rzH-LIFUZIkm89CMlfePC5UuQHD-wwJwlVHoyxi1s_9sqWTMcO2PeSjZXpKCN-5OqXhDpW4D8ZtpJkIs126twH5wnFdxpgjnh5rN1FY_CU17LRDBSTuoN-Hc-cJxOpHIMIjnPcHdb1c4cNIER0z7LVhegs6xfS1mJNiyU5IIkICWVbBnePEp9fW3c0UfJONk6SFfvxvAA-4EBBltXjc1wplXVKk1po3qwP5PmMvEyUpXsfG_qg.jpg" width="400"><br>
-
-سرویس پلیس مخفی ایالات متحده که وظیفه حفاظت از شخصیت‌های سیاسی در این کشور را بر عهده دارد در بیانیه‌ای که روز سه‌شنبه منتشر شد اعلام کرد از وجود ویدئویی «که به نظر می‌رسد بارون ترامپ را تهدید می‌کند» آگاه است.
-اشاره این بیانیه به ویدئویی است که گفته می‌شود در شبکه سه تلویزیونی حکومتی ایران نمایش داده شده و حاوی اطلاعاتی از محل اقامت و رفت‌وآمد بارون ترامپ، کوچک‌ترین پسر رئیس جمهور آمریکا، در شهر نیویورک است.
-سخنگوی پلیس مخفی آمریکا در بیانیه‌ای که به شبکه سی‌ان‌ان ارائه کرده تأکید کرده است که این سرویس درباره هر تهدیدی علیه افراد تحت حفاظت خود تحقیق می‌کند.
-شبکه خبری سی‌ان‌ان در خبری در این مورد نوشته است که از زمان کشته شدن علی خامنه‌ای، رهبر سابق جمهوری اسلامی، رسانه‌های حکومتی در ایران بارها مطالب و ویدئوهایی درباره طرح سوء قصد به جان ترامپ و خانواده‌اش منتشر کرده‌اند.
-حدود یک ماه پیش نیز خبرگزاری تسنیم، نزدیک به سپاه، ویدئویی منتشر کرده بود که در آن شکاف‌های امنیتی پیرامون ملانیا ترامپ، همسر رئیس جمهور آمریکا، بررسی و درباره راه‌های هدف قرار دادن بانوی اول آمریکا بحث شده بود.
-@
-VahidHeadline
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز دوشنبه دوم شهریور ماه، در جریان یک تماس تلفنی با برنامه زنده تلویزیونی در شبکه ۱۴ اسرائیل، در پاسخ به پرسشی درباره تدابیر امنیتی برای حفاظت از پسرانش گفت جمهوری اسلامی یکی از پسران او را هدف قرار داده و تلاش کرده است او را ترور کند.
-به گزارش تایمز اسرائیل، نتانیاهو بدون ارائه جزئیات بیشتر گفت: «ایران یکی از پسرانم را هدف قرار داد. ایران سعی کرد یکی از پسرانم را بکشد، به قتل برساند.»
-نخست‌وزیر اسرائیل در دفاع از توافق خود با شین‌بت برای تامین امنیت اعضای خانواده‌اش گفت: «بنابراین، امنیتی که آنها دریافت می‌کنند یک کالای لوکس نیست.»
-تایمز اسرائیل نوشت، نتانیاهو با اشاره به توافقی که بر اساس آن امنیت پسرانش و همسرش، سارا، دست‌کم به مدت پنج سال، حتی در صورت شکست او در انتخابات آینده، تامین خواهد شد، از این تصمیم دفاع کرده است.
-او با اشاره به مهاجمان احتمالی افزود: «بدون این امنیت، آنها موفق می‌شدند.»
-مشخص نیست کدام‌یک از پسران نتانیاهو، یائیر یا آونر، هدف این سوءقصد بوده‌اند و این تلاش چه زمانی و چگونه انجام شده است.
-آونر در اسرائیل زندگی می‌کند و یائیر که از برادرش شناخته‌شده‌تر است، بیشتر سال‌های گذشته را در میامی گذرانده و به اظهارنظرهای تندروانه شهرت دارد.
-بر اساس گزارش تایمز اسرائیل این تلاش در زمانی رخ داده که یائیر نتانیاهو در اسرائیل حضور نداشته است، اما مشخص نیست که آیا او هدف این سوءقصد بوده است یا خیر.
-در این گزارش تلویزیونی همچنین آمده است که طرح ترور ادعایی چندین ماه است که برای نهادهای امنیتی اسرائیل شناخته شده، اما مسائل امنیتی مانع از انتشار جزئیات آن شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78028)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 17:57:11
-
-<img src="https://cdn1.telesco.pe/file/AzP3_coAxyNCjahLXL_NOFJgTQ3IG19Ybjgfxb4fVm1oF6oeAX15xhqna-F7ml7A_ETdv8ZTdCUyLUS7-zSqQPLBaVC3VKLOoShwqYmi9iXIHgpXf-OFsOKLH3GbIP_QqLVhOS8U_zG4Nxd5zek4mK-nh40oM8BjtCHq740jYhqWvjLLjGmw4IHv8FxKEmm-ppBKAek6EUOKSZyFyvgDUesLeb8PH9UTbPVbE5UEgDehcEbd3N5OVK3e4Y8YUHsYIA766sXIwBa26PReqczXYGfewLtsY3_mNAFQ-HM8WzjV73rOzvYOBb4t62rZ_EjWKNasJsqB9IBomRJTry9xZw.jpg" width="400"><br>
-
-وزارت خارجه چین در واکنش به تحریم‌های تازه آمریکا علیه ایران اعلام کرد همکاری پکن و تهران در چارچوب قوانین بین‌المللی انجام می‌شود و «نباید با دخالت یا اختلال روبه‌رو شود.»
-لین جیان، سخنگوی این وزارتخانه، روز سه‌شنبه سوم شهریور گفت چین تحولات را از نزدیک دنبال می‌کند و برای دفاع از حقوق و منافع خود «تمام اقدامات لازم» را انجام خواهد داد.
-او در ادامه تأکید کرد که چین همواره مخالفت خود با تحریم‌های یک‌جانبه آمریکا را ابراز کرده و آنها را غیرقانونی دانسته است. به گفته او، جنگ اقتصادی و فشار حداکثری «تنها به تنش و درگیری بیشتر دامن می‌زند».
-آمریکا روز دوشنبه تحریم‌هایی علیه ۶۰ فرد، نهاد و کشتی مرتبط با ایران وضع کرد و هدف آن را قطع «راه نجات اقتصادی» جمهوری اسلامی خواند.
-اسکات بسنت، وزیر خزانه‌داری آمریکا، روز دوشنبه دوم شهریور در یک نشست خبری درباره کارزار جدید فشار علیه ایران گفت: «در سراسر جهان، هدف ما این است که تمامی شریان‌های اقتصادی را که این حکومت استبدادی را سرپا نگه می‌دارند، قطع کنیم تا زمانی که تهران کاملاً تنها بماند.»
-چین خریدار اصلی نفت ایران است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78027)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 17:53:21
-
-<img src="https://cdn1.telesco.pe/file/EkfBFG4w_Y-RSvh__UuUZiTEEdUNPF8xT-50zpR74lpBgRcF82vA0787nN6vEcZLjLQC3y3OEaYr8zhYf2KsYz5XS84miVeE49xU6eOnx1N2TE_rx05B_WICKoXfKeuG9ej2Qh5Z_rppBNLPF6-HQ17TzsJ6WBeFKDj78B0zJyX-T1T2K4MFHVbfCpU-1UI8rUNknk8h0V7wAGLsslBfykN6TCk8XWdUf36iZv6lA7DxlpO4lm0IMJ_lQNPAJcupG5rH3hu7eI6LGfbVPmsVeukgQniy4vIxyIW0L5EMDZiO0B-3XqMCALQwS_bOgRO2k5IjvH42TtRrxZPAnn76AA.jpg" width="400"><br>
-
-علی پیشه‌ورزاده، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در رشت، از سوی دادگاه انقلاب این شهر به اعدام محکوم شده است.
-کمیته پیگیری وضعیت بازداشت‌شدگان
-خبر داد که شعبه دوم دادگاه انقلاب رشت به ریاست قاضی محمد‌علی درویش‌گفتار این حکم را در مرحله بدوی صادر کرده است. پیشه‌ورزاده در جریان اعتراضات روزهای ۱۸ و ۱۹ دی‌ماه بازداشت شد و اکنون در زندان لاکان رشت نگهداری می‌شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78026)
 
 ---
 
