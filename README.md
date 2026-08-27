@@ -3,8 +3,220 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-27 16:52:23 </h5>
+<h5> 🟢 Updated at: 2026-08-28 02:52:47 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-27 23:07:52
+
+<img src="https://cdn1.telesco.pe/file/WID_advTSPkLPf-zqDMMO4FdSkaS1ymblc_gLH3nzyKdL9uHWoSsgt78xvjgy-Yc3i0W8saTnrcWe0_tTDoPr6Tri8elbP3UykNKUsGvD83Qih8BcQPvHaKJBk1OlM-4tVHfotjYcBenfTRHrYxY9GCFwSeP0udT0XmE_8R-PkyIHbpNT7NE3Bp_8G0IpMVRbD_kRbZdZwT8oRSjxhuL9QllmVazXLQuaHJU6KXVBkrck3b7G7zbrRR0mBOOZ8HbrY5SXEDhdZQJLPaQr1LYeHdP3RHkIK8kEzWt0usoJ6usC9n70JAL0M7X3jW4DI4wSIqY6GcjNPfJaUfnGiu-kQ.jpg" width="400"><br>
+
+دولت دونالد ترامپ به میانجی‌ها اعلام کرده است که تمایلی به بازگشت به مفاد توافق اولیه ماه ژوئن با جمهوری اسلامی ندارد.
+این موضع تلاش‌های تازه قطر، عمان و پاکستان برای احیای مذاکرات میان واشنگتن و تهران را با مانع روبرو کرده است.
+روزنامه وال‌استریت ژورنال روز پنجشنبه پنجم شهریورماه به نقل از افراد مطلع گزارش داد که دولت ترامپ این موضع را بارها به میانجی‌ها منتقل کرده است.
+توافق اولیه که با میانجی‌گری پاکستان شکل گرفت، بازگشایی تنگه هرمز و آغاز گفتگو درباره برنامه هسته‌ای جمهوری اسلامی و پایان جنگ را دنبال می‌کرد. در مقابل، کاهش تحریم‌ها و دسترسی تهران به دارایی‌های مسدودشده در نظر گرفته شده بود.
+به نوشته وال‌استریت ژورنال، ترامپ اکنون فشار اقتصادی بر جمهوری اسلامی را در اولویت قرار داده و آماده است برای مشخص شدن نتیجه این سیاست صبر کند. آنا کلی، سخنگوی کاخ سفید، نیز گفت هیچ مذاکره‌ای با جمهوری اسلامی در جریان نیست یا برنامه‌ریزی نشده و محاصره دریایی و «عملیات طرد اقتصادی» ادامه خواهد یافت.
+این گزارش در حالی منتشر شد که عاصم منیر، فرمانده ارتش پاکستان، اوایل هفته جاری برای گفتگو به تهران سفر کرد. وزیر خارجه عمان نیز برای دستیابی به تفاهمی درباره مسیر عبور کشتی‌ها از تنگه هرمز با مقام‌های جمهوری اسلامی گفتگو کرده است. نخست‌وزیر قطر نیز پنجشنبه پنجم شهریورماه در تهران با مقام‌های جمهوری اسلامی دیدار کرد.
+وال‌استریت ژورنال نوشت اختلاف بر سر نحوه تفسیر توافق ژوئن و شرایط بازگشایی تنگه هرمز، دستیابی به چارچوبی برای ازسرگیری مذاکرات را دشوار کرده است. هم‌زمان، تهران بر اجرای مفاد توافق پیشین تاکید دارد، در حالی که واشنگتن مسیر فشار اقتصادی را دنبال می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78065)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 23:03:25
+
+
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در کاخ سفید و پس از امضای فرمان اجرایی تغییر نام «دریاچه اونتاریو» به «دریاچه آمریکا»، به پرسش‌های خبرنگاران درباره نحوه اعمال تحریم‌های ثانویه علیه کشورهایی که با جمهوری اسلامی ایران روابط اقتصادی داشته باشند، پاسخ داد.
+ترامپ در واکنش به پرسشی درباره عملکرد روسیه در منطقه و برخورد احتمالی آمریکا در صورت تداوم معاملات با ایران گفت: «تا اینجا رفتار روسیه در رابطه با تنگه هرمز بسیار خوب بوده است.» او با تاکید بر تقابل پایاپای واشنگتن با سایر قدرت‌ها افزود: «باید در نظر داشته باشید در برابر هر کاری که آن‌ها انجام می‌دهند، ما هم انجام می‌دهیم.»
+رئیس‌جمهوری آمریکا همچنین در پاسخ به نگران‌کننده‌بودن اقدامات پکن گفت: «یک نفر درباره چین می‌گفت شنیده‌ایم آن‌ها دارند جاسوسی می‌کنند؛ ما هم از آن‌ها جاسوسی می‌کنیم. وضعیت همین‌طور پیش می‌رود.»
+@
+VahidOOnLine
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز پنجشنبه پنجم شهریورماه، فرمان اجرایی جدیدی را امضا کرد که به موجب آن دستور داده شده نام «دریاچه اونتاریو» فورا به «دریاچه آمریکا» تغییر یابد.
+ترامپ پیش از امضای این فرمان در دفتر بیضی کاخ سفید اعلام کرد: «ما نام دریاچه اونتاریو را تغییر می‌دهیم و این تصمیم از همین لحظه لازم‌الاجراست.» بر اساس اعلام یکی از مقامات کاخ سفید، این فرمان وزارت کشور آمریکا را موظف می‌سازد پایگاه داده‌های جغرافیایی ایالات متحده را برای بازتاب این نام جدید به‌روزرسانی کند.
+این اقدام نمادین پس از شکست مذاکرات تجاری میان واشنگتن و اوتاوا، وضع تعرفه‌های تلافی‌جویانه و تیرگی شدید روابط میان دو کشور همسایه رخ می‌دهد.
+با این حال، مقامات کانادایی پیش‌تر صراحتا اعلام کرده‌اند که این تصمیم یک‌جانبه واشنگتن را به رسمیت نخواهند شناخت و نام این دریاچه مرزی مشترک در خاک کانادا همچنان «دریاچه اونتاریو» باقی خواهد ماند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78064)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 23:00:10
+
+<img src="https://cdn1.telesco.pe/file/YHrk0QAGw2f0IMIzMdPaUQ3RKJiSyfENKuTsNFEOU68OAedTn2vj8c471AsPa30Fqc3vvwEul82tVGbdBHbjBZVLlgw0PwBlvB-wRY_T6I1ixRh2AbDXgPeV0M81SxDjmC_gVAKA6A5Fb7GMFDnviNgfYkmojiNJGtfY2T2iR7uh4Yn_wrBLQShBWzXZLqNW8o-slG8QLiSkNlpNjdVHIpYw2GTbFK9Gh3LnSBeIwO8TmRnuXPJb0zC1tQrWDUtWHZp_h4XowG3gGSPLQvJc3qINYqnW1WMbtC5Y3vvSvToXB6iDNjA5KprhfrUqUPCDWhaxa9j4UZQbkEsMbTerGw.jpg" width="400"><br>
+
+سازمان اطلاعات سپاه روز پنجشنبه ۵شهریور۱۴۰۵ با انتشار بیانیه‌ای نسبت به تشدید نارضایتی‌های اجتماعی هشدار داد.
+در این بیانیه به ناکامی «دشمنان ایران» در «تلاش برای تغییر حکومت ایران از طریق حملات نظامی» اشاره شده و آمده است: «مخالفان جمهوری اسلامی در حال تغییر راهبرد خود هستند.»
+این نهاد نظامی و امنیتی مدعی شد که فعال کردن بحران‌های داخلی، جنگ روانی، فشار اقتصادی و عملیات‌های امنیتی از محورهای این تغییر رویکرد است.
+سازمان اطلاعات سپاه در این بیانیه نسبت به افزایش نارضایتی‌های اجتماعی و احتمال اعتراضات خیابانی هشدار داد و گفت مخالفان جمهوری اسلامی بر «برهم زدن ثبات و کاهش تاب‌آوری ملی» از طریق «نبرد شناختی و تولید ترس و ابهام» تمرکز کرده‌اند.
+این نهاد همچنین از شناسایی آن‌چه «ساختار محرمانه و اختصاصی» موساد، سازمان اطلاعات اسراییل برای اعمال فشار از داخل ایران خواند، خبر داد و مدعی شد این ساختار از طریق ارتباط با گروه‌های مخالف، انجام عملیات خرابکارانه و به‌کارگیری عوامل محلی فعالیت می‌کند.
+در این بیانیه ادعا شده که جمهوری اسلامی از وضعیت «صرفاً پاسخ‌گویی» به حملات خارج شده و در پی افزایش نقش خود در تعیین روند جنگ و دیپلماسی است.
+در بخشی از بیانیه منتشر شده آمده است: «ایران دیگر صرفاً در موقعیت پاسخ به حملات طرف مقابل قرار ندارد» و به سوی «افزایش ابتکار عمل راهبردی و اثرگذاری بر زمان، مکان و هزینه جنگ و دیپلماسی» حرکت می‌کند.
+سازمان اطلاعات سپاه همچنین ادعای حاکمیت ایران بر تنگه هرمز را تکرار کرد و نوشت توانایی‌های نظامی و «نامتقارن» جمهوری اسلامی حفظ شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78063)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 19:03:46
+
+<img src="https://cdn1.telesco.pe/file/aUm4WwSzoOkIvWUuhJukpyDhUzPwPZ0zy9xItZsKXeQtqZq_wnwYWSw4DMxs3VlVB6YkfEg5FOXJNOZzaVF4OUOWbQAXqX1JzE70gPPgstyOZLftyPnw8ZpS-9t_EyemxuUZInP_nUiulu0ZyE1dQ08NI2KNSHwVZfyFRWHQLHl7CXyDCvlcoay3UvbznLDKNITJ5tCldUeqTulqkwhu738mSd2_svnbOTuWGGNYbckjfFbcmC5XoHyhCpYPN4jDcPW2CehL74OOzh8Yu_dloo0jgsOEWnpDAfc8G8PMSG_XgTutsgkwuWWtR3p_-N2dOZzSvqnMn7djYsEtilueIg.jpg" width="400"><br>
+
+معاون اجرایی رئیس‌جمهور ایران تأیید کرد که دولت جمهوری اسلامی به‌دلیل محاصرهٔ دریایی آمریکا نمی‌تواند بنزین وارد کند.
+به گزارش خبرگزاری ایرنا، محمدجعفر قائم‌پناه، شامگاه چهارشنبه چهارم شهریور، ایجاد تغییرات در قیمت حامل‌های انرژی شامل بنزین و گازوئیل را لازم خواند، و در توضیح دلیل آن گفت: «توزیع بنزین عادلانه نیست و تداوم این مسیر غیرممکن است. ضمن این‌که تولید بنزین کفایت نمی‌کند و با محاصرهٔ دریایی آمریکا نمی‌توانیم بنزین وارد کنیم.»
+این مقام دولت ایران در عین حال گفت مشخص نیست این تغییرات به چه میزان و چه زمانی انجام می‌شود.
+در روزهای اخیر، هم‌زمان با افزایش اظهارنظرهای مقام‌های جمهوری اسلامی دربارهٔ لزوم افزایش قیمت بنزین، گزارش‌های مختلفی از تعطیلی برخی جایگاه‌های عرضهٔ سوخت در تهران و تشکیل صف‌های طولانی مقابل آن‌ها منتشر شده است.
+بر اساس آخرین آمار اعلام‌شده، تولید روزانهٔ بنزین در کشور حدود ۱۱۵ میلیون لیتر و مصرف آن حدود ۱۲۹ میلیون لیتر است. به این ترتیب، میزان تولید روزانه روزانه حدود ۱۴ میلیون لیتر کمتر از میزان مصرف است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78062)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 19:02:28
+
+<img src="https://cdn1.telesco.pe/file/SgJ_4JX1Z1XTWjH5JvZjSzaxsR2pKgkyPb_LDgbPnJeTTV4QztmKQDeoC0i7qJ6bWHAi6Xm8cxlzVH2LU1SDOlaMzLvvhaX22QJOG6sq2CiB3CM6vCwTGgWeJUZzhfTwijfocyeOjwJbPkAr4Si5Kf9lXz27QGUoHp1iV8g-lznSe9zUY393Zo4isqN9X0oGa2H0lBeC-VwLIiTeYpBhrPJ18uSDijjjhiuyM7O1tFrNGf-4n5UFdHnqtHZ6Uw_YcUaWtcvhHzahfqi2wr6nZYs-72EBxcO_rBkagywKKd0O27_ZYUHQLL1ealwDOj0hmVRJoGaCtEfsLatsTyLdKQ.jpg" width="400"><br>
+
+محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر، در سفر به تهران با مسعود پزشکیان دیدار کرد.
+وزیر خارجه قطر در این سفر با محمدباقر قالیباف، رییس مجلس شورای اسلامی نیز دیدار کرده و درباره راه‌حل برای از سرگیری مذاکرات میان واشینگتن و تهران گفت‌وگو کرده بود.
+@
+VahidOOnLine
+وزیر خارجه قطر همچنین به قالیباف گفته است که گفت‌وگو بهترین راه برای حل اختلافات و جلوگیری از تشدید بیشتر تنش‌ها در منطقه است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78060)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 17:27:54
+
+<img src="https://cdn1.telesco.pe/file/j5y8SBwt8MM7MyYNeQEXs0iJjLxskZTRxhbqQwzK_397zci28mbfk_ORsYeWuCZMCCFOiNLxUdQK4FjPPfj4frD-UadM-lXU3FjWc1t2J3oAioYQcKCvNpq4nEV1QW2pQuRq3-W6e7eKPpeZoSISkJxBxXaxkOfuOR0tEwCk3CY21L7kZX6nYrDX6DszQrndI04lbJRdwM4rsqfyu_JFJrLjwj9IjVUu_G8roUakTEyire-WS5rpgkCs3lYeZvpQ388sCeCm1ckduQE3tSvg7p36ZKHH_qykcr9M2rFz1BkIUYRX0ItbGFqFzG6vUbV5DlI0iR-b_GpCzEdiMV7FzQ.jpg" width="400"><br>
+
+آسیه رمضانی، زن ۳۹ ساله و مادر دو فرزند، در جریان سرکوب اعتراضات دی‌ماه ۱۴۰۴ در تهران با شلیک مستقیم نیروهای جمهوری اسلامی کشته شد.
+ماموران بامداد جمعه ۱۹ دی ۱۴۰۴، از فاصله‌ای نزدیک و از پشت به رمضانی شلیک کردند. گلوله پس از عبور از پشت و قفسه سینه، به قلب او رسید و جانش را گرفت.
+آسیه رمضانی مادر یک دختر نوجوان و یک پسر دبستانی بود.
+خانواده‌اش می‌گویند پس از تیراندازی، او را به یک درمانگاه منتقل کردند؛ اما بدون رسیدگی پزشکی موثر، برای حدود پنج ساعت در حال خون‌ریزی رها شد.
+خانواده رمضانی پس از بی‌خبر ماندن از سرنوشت او، سه روز میان پزشکی قانونی کهریزک و بهشت زهرا در جست‌وجویش بودند تا سرانجام پیکرش را پیدا کردند.
+خانواده، زمانی که پیکر رمضانی را یافتند، گونه‌اش کبود بود و از زیر کاوری که پیکر را در آن قرار داده بودند، همچنان خون دیده می‌شد. آن‌ها گفته‌اند پیکر او در شرایطی «ناشایست و دردناک» نگهداری شده بود.
+خانواده رمضانی همچنین می‌گویند لباس‌ها، کفش‌ها و دیگر وسایل شخصی او برداشته شده و به آن‌ها تحویل داده نشده است.
+آن‌ها پس از تحویل پیکر متوجه شدند قلب رمضانی که با گلوله شکافته شده بود، بدون اطلاعشان بخیه زده شده است. خانواده آسیه رمضانی در روایت خود نوشته‌اند: «ما آن سه روز را فراموش نمی‌کنیم. آن پنج ساعت، آن خون، آن کاور، آن قلب شکافته‌شده و وسایلی را که باید به خانواده‌اش بازگردانده می‌شدند، فراموش نمی‌کنیم.»
+آن‌ها تاکید کرده‌اند که همه واقعیت‌های مربوط به کشته‌شدن او هنوز روشن نشده است و افزوده‌اند: «هزار سال هم که بگذرد، خون عزیزانمان پاک نمی‌شود. نامشان را تکرار می‌کنیم، روایتشان‌ را زنده نگه می‌داریم و دادخواه می‌مانیم.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78059)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 17:25:28
+
+<img src="https://cdn1.telesco.pe/file/V94LQAgpAYqeEpxF7T3WCKbSYooREQpzsQMCFSt7db_3y_V4H6mbkpggCZH1B4jxF7UadTLMWZ-VzkMtk-hn_7lLJL6wTOqXY0EsZTf38UWCHt_9CSshYt6poTIWdqO8rvNCuDXwRB4kwBlQygodJqd0SsbiX8u4EqYcIuttiE7TbrDvFOqtA2jjKa_DkzF2FI2yIJwXmnvLNiMLZVdwMN8WIMgOXfwlkRPtMIvygVA7Pf06kREAcGDWU65F90-bdRLXoH25CgS3XWnyH5g3XXaCJ-t8WDKclO01G_k2H88JtVs5i4pxOfGSbGG_uDODK-m1i4keYW7wUh1MvOydhA.jpg" width="400"><br>
+
+اسکات بسنت، وزیر خزانه‌داری ایالات متحده، با انتشار پیامی در شبکه اجتماعی ایکس، با انتقاد از سیاست‌های مالی جمهوری اسلامی، خواستار اختصاص منابع مالی کشور به مردم ایران شد.
+بسنت در پیام خود نوشت: «در حالی که مردم ایران برای تامین نیازهای اولیه خود با مشکلات معیشتی دست‌وپنجه نرم می‌کنند، حکومت فاسد همچنان مبالغ هنگفتی را در خارج از کشور هدر می‌دهد.»
+وزیر خزانه‌داری آمریکا در ادامه افزود: «حکومت ایران به جای تزریق میلیاردها دلار به گروه‌های نیابتی تروریستی خود، باید این پول را صرف مردم کشورش کند.»
+این اظهارات هم‌زمان با تشدید کارزار تحریم‌های مالی ایالات متحده برای محدود کردن دسترسی حکومت ایران به منابع ارز خارجی مطرح می‌شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78058)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 17:24:41
+
+<img src="https://cdn1.telesco.pe/file/phEwqolq3asebMp4ko8AQvAvE1CO1fE4TLKBl8x2bWv8pald6pEAd9h6i-F5MLXHqnqjHuYv95moWYgBhNgVNlJgu3j5PWTE8cDqapXIyHYOB0Szu-Z20wdAn-T8FkTSazL3nX6DJ923-VTo6dwfZ_krgLbLvSnggZalMPS7JubtLOaHEKdbUnMfOEZuk2dcgWxFZ4Uwr_VLVUtoT7k-NIl7WXYdbRHssKP7eF9eaqwcbmiVXmzlrqgwrrRvzDBS6TrfXOlL1gbW_ElrwiO6aMo3GURBeFJxf40ZUuNG_xONSgEJzBzEKLKojktbaDonbM1kyohfmy8MCeXQfo-iAg.jpg" width="400"><br>
+
+قیمت نفت شاخص برنت در پی بهبود وضعیت تردد کشتی‌ها از تنگه هرمز و انتظارها درباره مذاکرات مثبت میان ایران و قطر روند نزولی خود را ادامه داد و روز پنج‌شنبه به ۸۶ دلار و ۷۵ سنت رسید.
+قیمت نفت طی روز جاری نسب به روز چهارشنبه بیش از یک دلار و نسبت به هفته گذشته حدود هشت دلار افت کرده است.
+در پی سفر وزیر خارجه عمان و فرمانده ارتش پاکستان به تهران طی روزهای گذشته، اسماعیل بقائی، سخنگوی وزارت امور خارجه ایران، روز چهارشنبه اعلام کرد نخست‌وزیر قطر نیز قرار است به زودی به تهران سفر کند.
+هم‌زمان وزیر خارجه قطر در تماس با همتای ایرانی خود بر حمایت دوحه از تمام تلاش‌های دیپلماتیک و اقداماتی تاکید کرد که هدف آن دستیابی به راه‌حلی برای تضمین آزادی کشتیرانی و فراهم کردن زمینه توافقی جامع برای برقراری صلح پایدار در منطقه باشد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78057)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 17:24:02
+
+<img src="https://cdn1.telesco.pe/file/W1LPJbQuXjo9D-inU6XHBCQ4RY7zQm3L-pmcgI7fFD9bC9quKPtq5tHe5W5eSexV-op5LpQb6X1Z_ePlqV22bXjcXtPuYK5H0VaErP2qE-5-J2yHlvri1FigGcsJFKYCmSv1jCmfu2uR0pBHbPeXz6itX5a-kfXRbVIDblGTktqbRCs1KtzA8DRlBe0CyTyAhY4v9krdEZ-tREcVO6uzJK3u2rHc5woRTwZcNTU8bdKyakFxlIPVI0RxGpXf9GvKQZb0F6NSJv_S2j1EqjFl99N5WFTpUkyGd9pRqdnnbyxkE1j-GeRuQBZKiY6WKdCIGTt1CTmLDL_H2CaeanKgqg.jpg" width="400"><br>
+
+کاوه مدنی، پژوهشگر و متخصص ایرانی حوزه آب و مدیر مؤسسه «آب، محیط‌زیست و سلامت» دانشگاه سازمان ملل در کانادا روز چهارشنبه چهارم شهریور جایزه آب استکهلم ۲۰۲۶، معروف به «نوبل آب»، را از کارل گوستاف شانزدهم، پادشاه سوئد، دریافت کرد.
+این جایزه در مراسم رسمی هفته جهانی آب در استکهلم به پاس پژوهش‌ها و فعالیت‌های کاوه مدنی در زمینه مدیریت منابع آب، حکمرانی آب و ارائه دیدگاه‌های نوین برای مواجهه با بحران آب به او اهدا شده است.
+کاوه مدنی پیش‌تر در ماه مارس به‌عنوان برنده این جایزه معرفی شده بود و کمیته جایزه، از پژوهش‌های او در مدیریت منابع آب و پیوند دادن علم با سیاست‌گذاری، دیپلماسی و ارتباطات عمومی تقدیر کرده بود.
+جایزه آب استکهلم از سال ۱۹۹۱ به صورت سالانه اعطا می‌شود و مراسم آن را بنیاد آب استکهلم با همکاری آکادمی سلطنتی علوم سوئد برگزار می‌کند.
+این جایزه که شامل یک میلیون کرون سوئد و یک تندیس کریستالی است به افراد یا سازمان‌هایی اهدا می‌شود که دستاوردهای برجسته‌ای در حفاظت، مدیریت و استفاده پایدار از منابع آب داشته باشند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78056)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-27 17:22:40
+
+<img src="https://cdn1.telesco.pe/file/rVGYkX3exlZpeDPy6DzI4ym3ToX1MVpiykeG7_FnEXGs6GmDUVTt9jAWHceG_h3VCFR-Ke6rXf7ZZHRentb4smwpG4xqGlmRZOINw9mdvqsG_0nxVBZ9FaHZ1rePvhPoMr_9FXI0tgUq4RZ24IBxwiqZUOqrmsFM9j6ZRLWGo2YaUzHT2tqtKAHpSv3LQBtJ4Ccfv6Oxj9YvpnMCcBhAVxkVR0fGYbgtsVTPPhitM130wGj-JjwkBEzwjMJazrk3sUtqm1x8SA51N1BHfidobk6w-EYlFhgPzLm1cXlpCLC61158RaJCivp2u7Wa_3u-3b_RXxfWGNUcvdQAgv-5NA.jpg" width="400"><br>
+
+لیلا ابوالحسنی، از بازداشت‌شدگان اعتراضات دی۱۴۰۴، به اتهام «محاربه» به اعدام محکوم شده و پرونده او پس از اعتراض به حکم، اکنون در دیوان عالی کشور در حال بررسی است.
+لیلا ابوالحسنی، حدودا ۴۳ ساله و مادر دو نوجوان، از ۱۸دی۱۴۰۴ در زندان دولت‌آباد اصفهان نگهداری می‌شود.
+یک منبع گفته است که ابوالحسنی روز ۱۸دی در شاهین‌شهر و هنگامی بازداشت شد که در حال عکس گرفتن از آتش‌سوزی یکی از فروشگاه‌های «افق کوروش» بود.
+به گفته این منبع، دستگاه قضایی او را به دست داشتن در آتش‌زدن این فروشگاه متهم کرده است؛ اتهامی که به صدور حکم اعدام علیه او منجر شده است.
+در حال حاضر، دیوان عالی درباره اعتراض او به حکم اعدام در حال بررسی پرونده است.
+لیلا ابوالحسنی از زمان بازداشت تاکنون، بیش از هفت ماه را در زندان دولت‌آباد اصفهان سپری کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78055)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-27 05:41:15
@@ -47,7 +259,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-08-26 17:31:01
 
-<img src="https://cdn1.telesco.pe/file/vMNlMa1ye5VDODkj1E_xw2RgztFp_Cp3QFhP1P4gmZhrxkFUlbPYwZoa_eYUPhRfG8Y8Cq1oAb5NpJ0xZNr2pMrItaVeHXNN6fj7wGTmELXIIWHOIu2l2FL_szMq9h7sbDa3vaMdJhtwImoF44f-Y5kx-93LQCNpbsS3VVC65LpInNnvo7l7qyCJkd9XXL0VzUKNdaN5N2U0myJQzXY8sZm5PDy5lBRJweXbe0T2uj-3kD3ckNuEIqm9wCzGfy5wBMNMDSc7T4_JTyGWOPFrJFRVPnD1Sg3DOAab23pZ1CjX9wjh4DFZaMfsdmnQgzYD02Twe3csDQMJd7YWczUY0Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Ozs40f7nLgMOeurEet79QO4Yzn7HlrhZgc-VlUWtJFY5fVbEYUaBIQEJ3V_lbrX_WUjv4f2i7YJtv6Utw5DQi9sWXGN85HzmRPxtHaFIFGs5xvBtwDnEjyTJFVJhpbybEWfIJfOYFR46xouDzdNxaCLKOsmE85jZvOrhLSF_a3iNDrHQ57HqGHIaQt7yoq_Q1J1g3-t8Fm1YKH_6ZZDKVBQ7p1UxvkfLSV0KvRGQOWFE5LoVDUyN3AOK8iMtF33Oul6oOdoU3RtoxZuuSDPS2hBeqeJb5DNsbqX7Ek5EAMyBrp_T-DL-SkcViMId0gRaSKFkUjPEbXGsTnB1UmHJtg.jpg" width="400"><br>
 
 دونالد ترامپ درباره اعتراضات در ایران اعلام کرد «فکر نمی‌کنم وقتی یک مسلسل روبه‌روی شما باشد، آنجا بایستید؛ تک‌تیراندازهایی واقعا بالای ساختمان‌ها هستند.»
 او گفت: «مردم هنگام اعتراض هدف گلوله قرار می‌گیرند و جمهوری اسلامی برای ایجاد ترس در میان جمعیت، لزوما نیاز ندارد تعداد زیادی را هدف قرار دهد.»
@@ -82,7 +294,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-26 17:30:18
 
-<img src="https://cdn1.telesco.pe/file/B0ZKEx_tGwAKA_z6rAWQVjoGKRUAiNz-iMWM3OlTmxmy6GNtB1VKu27eD0n7OZXb0GQm4GnzG0Jm9ZhmeRV0-91Z75nVwoN1ACuiO0WkOilEOgAoRwz-N-0UessLJFxft5plmKQZdW0VpIjDTAc_ySYn2z_m-bV9SJTysuWJeDGRtDrsMs7M2P3J17rxJhaisJo3eOo7OgsLcVla0dQf_Hz1SVw2P8pUaY5q4btpzIKbltuG1aZ3-Jn_G38Nw5tBgiw1xwqJbUYmOECArvXGfaJ0iXdJJApmekqtryOdnvdwaC5Wux48OFKqSBhSptXCv7ZhVePBuwgBhjPiZ5yQyg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/WHDIC9TM9_15Fl241t5mehrS2EAV-4lgaY1KQnnznWu0vora961BA70MRorVvSI34xbQ7IWIWCxIahYH5qnGnGj9YcNG65PfEs0dZwVfuZUhzPu_wCWfb3VLIvNUZpu_yoYxRUWrHjSFoCTdproCF2WXFNVLQ2_wofeTEgv5MNiePt37FcEMWy4NU10faP1QDNTixdplg47vQDoejuU92aT71rx69rjWYbZQD_d-Gp_EHYre0wociCSq1nzxwT7kIqa9dZu8IE9nuksgbFH_IH3YzmiFk8ZlpZwMIOV49PocQUigqcWnpVTyTxCoqaf70mgDcmDfPJApSSYbhU9Ulg.jpg" width="400"><br>
 
 مسعود پزشکیان، رئیس‌جمهور ایران، بار دیگر موضع قبلی خود دربارهٔ ضرورت پایان دادن به جنگ با آمریکا را تکرار کرد و گفت: «جنگ همیشه راه‌حل نیست. گرهی را که می‌توان با دست باز کرد، نباید با دندان باز کرد.»
 پزشکیان روز چهارشنبه چهارم شهریور در یک مراسم عمومی بار دیگر ایران را «پیروز میدان» خواند و در عین حال افزود می‌توان با «تدبیر و اندیشه» از این مسیر عبور کرد.
@@ -99,7 +311,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-26 17:28:39
 
-<img src="https://cdn1.telesco.pe/file/YnPFX8ut4StTQklQOI3gqvQghM4lxLzkDa-TvEuMmf8HEPDOGnayvRlWgkcHwphYRjlwQx-0spc30lVrBTI0yK54ZjbvccruVvJPtrJZ_Rbx2R3UEZylOhQokKFPDEq8awvL-Nr9R-MKqYKlgmVaPeUV-URT5Pbt7nNE8FduGQcXvFus-ThIcqVdJ4ORYvWS4HtW1PrwPt-_Ic19FZiXbYbBibtpCTzWmCGIjMkD-oNg6oXC_tgELixNhLNu7wVZ3ZgxWk_9QV9nVrY5LNdvg8QI8A37fl7pV7A7ExWfTPfjaaxh5hf3qUWXOkFl8zzHIwxGbT4qzqLmrl17Ryq8ng.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VjsSFV4aulep69u49yL7IL-xP9YJIyJblcwPg2VWYL9AVhaICzH36zCIRoEG3dnues1LcIXfEFcG7GRcbRzsYul0KKUb1YfaTUGnnRb9ZIwGCbPNMDWq9CgqjsjZui_-tY2Jo-Jw-nNWubBlLYBDQx5QkNwS52rnxVopSGnWWANs7TsOUeyyim_se9WCvvUiZPF5r3uaCpxOwUeANNdUTLu27WYY57FYjnXj7K1fD4WbCxInp5UPv9HC7e2cO045YS0HJDOhMvzzYA13yiq1JCOUu5jnqbZ66f1Prxa2380l4f8rTuoVtoqbS6pmA1JiBpHbFZjYDGGrzOObJS11rg.jpg" width="400"><br>
 
 خبرگزاری هرانا گزارش داده است که حسین نظری، شهروند ۲۵ ساله و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، توسط شعبه اول دادگاه انقلاب مشهد به اعدام محکوم شده است.
 بر پایه این گزارش، دستگاه قضایی جمهوری اسلامی آقای نظری را با اتهام‌هایی همچون «ارتباط با دول و گروه‌های متخاصم» و «اجتماع و تبانی برای ارتکاب جرم علیه امنیت کشور» محاکمه و حکم اعدام او در تیرماه سال جاری صادر شده است.
@@ -117,7 +329,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-26 17:24:25
 
-<img src="https://cdn1.telesco.pe/file/eKfocYHaM9wvfoa_QJqUSyr0tiFjr-enIQV0qKKwAHvA9PFggY13Tm0Zs6rtW-H0uU0V33AhEkdBV8_rAa7XRjFEe3Fhf7OyOkm-Q928tD4NAAXDhJhhwjHBSK7PeuVmNlBDLJwPxRUA030rV9NDyRGuIaqtAplM5FF36_sAXUuD5qmg7aKthGcSlhcjmL_GNSJDE07soQ7ihW17OCu3gUY7u6da81kDD_S83CAFM3tVGRJjN-4p_yktRBvSURrKRktm9xgBLyQ9_jNrnLBTXFBhboZRjZsdBxRWVmlaMq9oXq1pHEVsbj5T-kRm3R_x2wlFc20ci2HYTNJ7rLhXAg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Q4ibTG2pmdw44CwT7b55-_-In1YoXyxTN70_W7oGCtxlYBj1t2hXmF_gvkU-Nh90Kvk7f04zdZ8OoBUYMEX9DUPx-HGZWsyiJhbH7ecjqlvc3DBCQhOXf8tPbW4k6GFNxlo80XGSpc-hBvDvwi34lweYVnqFnY4gqwjj9I5cM0aT58M_bHz7wSE2Q-cv5MjS6UttdMn8TQwGYrtY5-3t_TT1CqSwChRSZbJ2arotJwFa8r1rKK5j0uOcI_QXhWIIX1yZ3Fvl9x2M9-6MSVi7BOOW3EBfsWMkBSzEBPMECJMUUYXiiK7lE8U1DR-YMoZZlZ9pYu1UglnOQQwsV2giJA.jpg" width="400"><br>
 
 گزارش وب‌سایت‌های اعلام نرخ ارز و طلا در ایران نشان می‌‌دهد که قیمت دلار آمریکا روز چهارشنبه چهارم شهریور کاهش یافت و به زیر ۲۰۰ هزار تومان بازگشت.
 در لحظه انتشار این خبر، قیمت دلار ۱۹۸ هزار و ۵۰۰ تومان و قیمت سکه طلای موسوم به «امامی» هم ۲۱۰ میلیون تومان گزارش شد.
@@ -153,7 +365,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-26 17:21:31
 
-<img src="https://cdn1.telesco.pe/file/rRuHySlZNy7hfWjWPFBvK0zlwbQA8TDwA3vCfwvMpmD00BMvJNyAuDR0E8Cb8gF-kU-hRag754aLL2JyeVXS3LsA6Co8Mgi0590vY9n2vy5wH9RnCR-jb8dIeGRzkXbtkxgRoNi4J6pOsV0on56cguDTX22T10G2lqaA68KoTZDUuhvbiFSMMHUUbo4NARSRQG8CA6YvRm_ERQvw7471R4zZ2KXOndSzH3qmY73v9Sygid0Ufp7rlYhw2grqWEqB9qhGcEhF1QDjxG4ww2WNb9NnhTN1E2JD5so_9490YbDpONDNBpn2eAGTVh8MS03DfPFXSvU8rGoteZv5F77Rjg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Aqp-AyYXPIIEcYFQ4lK3ejMarbyUhXOLAl8m_GC-i7PlOIHv7lLlFZylr2uJh1X1nooWwVbN2nWyg9Taga0cYnKHMA-apgOlYXaklf3TFWVvmsMWW7px_LjjrA2SIZ8kUAl3m40gBUmeLiFgW1PfeD4_dmbb1YOzi1DiSKM0fse03o4PeEpb_8p_DGgsGsW8BZlkNzLMsfDSKQ8_xQHMI9snix-MD56yhksUkg_y_PE67WMhixLuA2xuztSuQBAcU9fspHCax0bPZfTabGKRwqm21Wxcru4v16kpk6V9wi4Swhp-1-t6zveTBYpIXLVCe0UJqn4jEiLeGKxJRq6BZg.jpg" width="400"><br>
 
 مسیح شاهوردی، بازیکن پیشین تیم‌های پایه باشگاه سپاهان، در جریان اعتراضات ۱۸دی۱۴۰۴ در منطقه «خانه اصفهان» هدف گلوله جنگی نیروهای حکومتی قرار گرفت و جان باخت.
 او ۱۹ سال داشت و تنها دو ماه به پایان دوران سربازی‌اش باقی مانده بود.
@@ -168,169 +380,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78046)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-26 00:00:49
-
-<img src="https://cdn1.telesco.pe/file/uXIju-TX7Hszi08YQy3z4stskl_wlA-lctFcncFVuk2GO14_Ouy1k8OPPmJZKynYwFnug0uRNVHm8pk5sthTonja2rcS34K6LU462vXDX1yw2AG7lYHq1tdz28v2rul27U1iXTTF7M_zj-7o_WhiX8HoubG8WZ-1k_8qK7N7uo_asRGeM3rEABeXyBBf8WMc7eCq3LZ_PHhzYHqGb-UjZ0VF0Xh7Kf_FLweCy6RVsx17seieiYtU-bGx-p5QtycCQLIsfJdK6x_KeZnV4J0UZyF-vscndVTucKN9RGdq9JgsHxnoFzoYIPKh5KnL9KMQwmNhoiKE7TSTDFjVOAz0Mw.jpg" width="400"><br>
-
-بلومبرگ با بررسی واردات گاز ترکیه، ارزیابی کرد که هشدار جدید واشنگتن مبنی بر مجازات اقتصادی کشورهای طرف معامله با تهران، این کشور را که متحد کلیدی آمریکا و سومین شریک تجاری بزرگ ایران است، در برابر چالش قطع واردات گاز از ایران قرار داده است.
-ترکیه در سال گذشته ۱۳ درصد از گاز وارداتی خود (۷.۷ میلیارد متر مکعب) را از ایران تامین کرد و ایران پس از روسیه، آذربایجان و آمریکا، چهارمین تامین‌کننده بزرگ انرژی آن بوده است. با وجود انقضای قرارداد ۲۵ ساله در پایان ژوئیه، دریافت گاز ایران همچنان ادامه داشته است.
-اسکات بسنت، وزیر خزانه‌داری آمریکا، اعلام کرده است هر کشوری که به روابط اقتصادی با جمهوری اسلامی ایران ادامه دهد هدف تحریم قرار می‌گیرد و دونالد ترامپ در حال رایزنی مستقیم با رهبران جهان است. این موضوع احتمالا شامل تماس واشنگتن با رجب طیب اردوغان نیز خواهد بود.
-بلومبرگ ارزیابی کرد اردوغان که ماه آینده عازم واشنگتن است و برای خریدهای نظامی بزرگ از جمله جنگنده‌های F-35 و F-16 به چراغ سبز آمریکا نیاز دارد، بعید است به دنبال خشمگین کردن ترامپ باشد. به گفته کارشناسان، در صورت قطع گاز ایران، آنکارا می‌تواند این کمبود را با افزایش واردات گاز مایع (LNG) گران‌تر— به‌ویژه از مبدا آمریکا — و اتکا به ذخایر پر شده خود جبران کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78045)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-26 00:00:02
-
-<img src="https://cdn1.telesco.pe/file/rDbu03l6zkWveB4xZOQVDxR2k26QYEmxQt2exzDTiC9fquAA8aacGNLPAiU_b1EEsCtu6cL-LzMDRtYaJDou9ZLE5pr1b4gspv3xd-5yCxzxR3wFEuPb8lpbBsXzlyCfpgtbpD8_sk9Af3FtdB1tZMpgQ5uHqMfjnvVdiCSet_bD7izJzbBCBRvbkNitXTLTjYP2JuE4Skxl3FWRIxHxb3Tbggdl0sdqMTl7pcHOJW7tr25DqVCWobblswesNJzYuw8smWO9qi3EIFHA7EiNabou7fQgrDArUZsLZvOMPP6BulOdfSqX42HXSY7Wb8VZamC7fsKiAgHHmSADIhej5A.jpg" width="400"><br>
-
-جان هیلی، وزیر خزانه‌داری بریتانیا، اعلام کرد دولت این کشور در کنار آمریکا و دیگر شرکای خود به اعمال فشار اقتصادی بر جمهوری اسلامی ایران ادامه خواهد داد و برای بازگشایی تنگه هرمز و مقابله با «فعالیت‌های خطرناک ایران»، اقدام خواهد کرد.
-هیلی، روز سوم شهریور ۱۴۰۵، در بیانیه‌ای گفت دولت بریتانیا از زمان آغاز به کار خود تاکنون بیش از ۲۴۰ تحریم علیه ایران وضع کرده است؛ تحریم‌هایی که به گفته او در واکنش به اقداماتی اعمال شده‌اند که امنیت مردم و بریتانیا را تهدید می‌کنند.
-وزیر خزانه‌داری بریتانیا افزود لندن مصمم است مانع از آن شود که جمهوری اسلامی از اقتصاد جهانی یا نظام مالی بریتانیا برای پیشبرد برنامه هسته‌ای و فعالیت‌های بی‌ثبات‌کننده خود استفاده کند.
-او همچنین از تلاش‌های آمریکا برای دستیابی به راه‌حل دیپلماتیک حمایت کرد و گفت بریتانیا از افزایش فشار بر جمهوری اسلامی، از جمله در قالب عملیات «طرد اقتصادی» آمریکا، استقبال می‌کند.
-هیلی تاکید کرد بریتانیا به همکاری با شرکای خود برای حفاظت از منافعش ادامه خواهد داد و برای بازگشایی تنگه هرمز و مقابله با آنچه فعالیت‌های خطرناک ایران در منطقه خوانده شده، اقدامات لازم را انجام خواهد داد.
-وزیر خزانه‌داری بریتانیا از جمهوری اسلامی خواست فعالیت‌های بی‌ثبات‌کننده خود در منطقه، از جمله در تنگه هرمز، را متوقف کند و وارد گفت‌وگوهای دیپلماتیک شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78044)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 23:58:53
-
-<img src="https://cdn1.telesco.pe/file/aGARl5Lun_pbOBeiitQadKAHtKR7jg4NI4YXFxaX5ZjIv-kxjzA-k7iKbsNZ5gq8e1OAar1UnfErufzdCn5XuE_D2QDvpFS4DKCBGiG-4d9Y-SfKdO8IZ5VvKHcmfpS3aafOZsvodNxSzv3kHRFAhD4143n9YaQMYBqyOFIUdq18N0smfTqIyN3TfSp-yfgE3isVhMc1oZFS4LAHWC1cPFHqiQH6ugejp3BAV_bs-lUT2KsnoACl8iy7IgLrrqxF5W4_wzKERTC8yRJyDlH4pPbq9u_6ihTPDL196kB3kMEn3MqGASxDURnh3g_K8gi_IqXmTfxKLGIqsYYI0ehuuQ.jpg" width="400"><br>
-
-محمود نبویان، عضو کمیسیون امنیت ملی مجلس، سه‌شنبه سوم شهریور در شبکه ایکس با انتقاد از عملکرد وزیر خارجه جمهوری اسلامی نوشت عراقچی بر اساس کدام مجوز از دستور مجتبی خامنه‌ای مبنی بر «انحصار» مدیریت جمهوری اسلامی بر تنگه هرمز تخلف کرده است.
-او افزود چرا وزیر خارجه بدون ملاحظات امنیتی اسباب محکومیت و اجماع سازی علیه جمهوری اسلامی، به سبب «اعمال مدیریت لازم و درست ایران در کریدور جنوبی» را فراهم می‌کند؟
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78043)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 23:58:27
-
-<img src="https://cdn1.telesco.pe/file/eSfWGQk09edfxohxh8r98W15bRHm1M97lA_ZI4pSVcsHc9oLrvYs1IlhajZoWNPJijAPH9J7I9KWPWo-Y_B2xDoWNN4W9FQfJLO8-5IZ9dPAQpjxPVY-YWEougaI3K-uzwpTDIi54J1XEOjKwqMnSnNRU5tMPvLwPbtZxwDRyKfnejeWXUbFuv9a2tWrMAcl9yctM8fIvpzkCY92YAr5t51mmp8tjrogDgTPJkGIxcgJ3hg7azXkLuO1Fvd2hmT0TlSeiG9woeYk8wp0gMD2gTW6IvfpdPwue9pCpqigzXVFnHgQP-ZqXvW3K2k8Lb6c3XfS033qlJ6-e7CN2f4Pzg.jpg" width="400"><br>
-
-محمدباقر قالیباف، رئیس مجلس شورای اسلامی، با انتشار بخشی از ویدیوی نشست خبری اسکات بسنت، وزیر خزانه‌داری آمریکا، در شبکه اجتماعی ایکس، با کنایه از اظهارات او درباره تحریم‌های جدید علیه ایران انتقاد کرد.
-در این ویدیو، خبرنگار با اشاره به ادعای بسنت مبنی بر آغاز «روز دی (D-Day) اقتصادی»، از او می‌پرسد چرا تحریم‌ها بلافاصله اعمال نمی‌شوند، و بسنت در پاسخ می‌گوید: «چرا باید بخواهم سیستم مالی جهانی را منفجر کنم؟»
-قالیباف با طعنه به این تناقض در سخنان وزیر خزانه‌داری آمریکا نوشت: «او ابتدا می‌گوید روز دی اقتصادی! اما پنج ثانیه بعد می‌گوید چرا باید بخواهم سیستم مالی جهانی را منفجر کنم؟ جناب، اینجا ساحل نورماندی نیست؛ این یک نمایش کمدی است و شما فیلم‌نامه خودتان را هم فراموش کرده‌اید!»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78042)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 22:52:26
-
-<img src="https://cdn1.telesco.pe/file/F6Vyt9PX3iBaFz3rwrBsAlxNr_dHUlwRjqCh1umIKDPaKtZDcovRZSGA5xIqifDwt_ROQur2HoD1onKac5UjOLdeSGNjx9QfNmpW8ZOHPJV4SphNqrdAIKodW8apT1O_W0_LA5ZA6QBGWayyOxVtwnLHBR3QBzbKXXp65ayK7torUWBsXLvDSvrk8C0aY41Dj70Kg4xJcRokzEixt53aIQjes5ucsfiHBM8KP2Lq21oakdEfbZORkIZ8xPfi-_FW7uN0IKoGjzNL1fuAJQchIbJrAv_NkQ9NSvDTt492goh18FmdHKXbzE7mWEZesqSNAyIxY7oECZ4HxySUIqDSJA.jpg" width="400"><br>
-
-دو منبع آگاه به گفت‌وگوهای مارکو روبیو، وزیر خارجه آمریکا، با مقام‌های کشورهای مختلف، به کانال ۱۲ اسراییل گفته‌اند واشنگتن در حال حاضر انتظار ندارد حملات تهاجمی جدیدی علیه ایران انجام دهد و تمرکز دولت دونالد ترامپ به افزایش فشار اقتصادی بر تهران و تامین امنیت کشتیرانی در تنگه هرمز معطوف شده است.
-به گفته این منابع، روبیو احتمال اقدام نظامی آمریکا را در صورت آغاز دوباره درگیری از سوی ایران رد نکرده است.
-این تغییر رویکرد همزمان با اعمال تحریم‌های جدید علیه جمهوری اسلامی و ادعای دونالد ترامپ درباره پاک‌سازی تنگه هرمز از مین‌های دریایی صورت گرفته است.
-بر اساس این گزارش، دولت ترامپ قصد دارد در مرحله کنونی فشارهای اقتصادی بر ایران را افزایش دهد و شرایط را برای عادی‌شدن عبور و مرور کشتی‌ها از تنگه هرمز فراهم کند.
-منابع آگاه به کانال ۱۲ گفته‌اند انتظار می‌رود این رویکرد دست‌کم تا انتخابات میان‌دوره‌ای آمریکا در اوایل نوامبر ادامه داشته باشد و پس از آن، احتمال بررسی گزینه یک کارزار نظامی گسترده‌تر دوباره مطرح شود.
-@
-VahidHeadline
-پیش‌تر:
-پایگاه خبری اکسیوس به نقل از مقام‌های دولت آمریکا گزارش داد انتظار می‌رود تحریم‌های ثانویه گسترش‌یافته، دست‌کم تا پس از انتخابات میان‌دوره‌ای آبان‌ماه مسیر اصلی اقدام واشینگتن علیه جمهوری اسلامی باشد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78040)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 22:37:38
-
-<img src="https://cdn1.telesco.pe/file/Ud5twHbvi6UfhFjD34PEHYkeQzIcH5j4pesruj9NFtepkdDOlduiPwtuz1Kbp58kxdPnu79rAF-Gy5V16QjgG30XshxUl2ARfjWYuwBs0vgMcQvCRMUoBWPmHImMhf27M4Ex_ibTUo_WWQ8sCHOhnvcn89b4WJwYX3DZjOGV3KXxOdVkvdkMv7jLx-X4WXEn9b1-ZIlUfxgXGUSRA7JJk8y4jUpx1Vh7DGhw-q8YlVh3IsHoMBHXYVkkhd9ip3fvLSsClpRYZFgPaSZKuskk1ycedijRIcQG4ixPIZLawHEqVyoK8vOKInR0igFM4qQkilTXsXWOPBPKh6AdAkP1FQ.jpg" width="400"><br>
-
-علی نیکزاد، نایب رئیس مجلس شورای اسلامی، در گفتگویی با خبرگزاری ایسنا از کاهش دو سهمیه بنزین بر اساس آخرین تصمیمات مجلس، سخن گفته است.
-به گفته او سهمیه ۶۰ لیتری بنزین با نرخ ۱۵۰۰ تومان محفوظ خواهد ماند اما سهمیه ۷۰ لیتر با نرخ ۳ هزار تومان به ۵۰ لیتر کاهش پیدا خواهد کرد.
-همچنین سهمیه ۳۰ لیتر با نرخ ۵ هزار تومان هم قرار است به ۱۵ لیتر برسد.
-او البته گفته است: «براساس آخرین تصمیمی که درباره بنزین گرفته شد، مقرر شد که قیمت بنزین افزایش پیدا نکند.»
-اشاره او به بنزین ۱۵۰۰ تومانی است.
-آقای نیکزاد تعیین نرخ چهارم بنزین را رد کرده است.
-دیروز رئیس دفتر مسعود پزشکیان، رئیس‌جمهور ایران، هم گفته بود سهمیه بنزین حتما کاهش پیدا می‌کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78039)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 20:12:09
-
-<img src="https://cdn1.telesco.pe/file/DHvQRxhKIlb2t_yBPkZVwaYR5GwzI1IDL2_4NVHqofTQoff8FMRw7wykm0xoGGyzp0W0xyFGWClbsov5WfAAMpPJwTOBktZoK_B54gu56HcPdJx8bnZ-Zaz89R8TycXP_2g287FG9X-uhqV10JT1JblXhZNvRbRf5KEQYSRd-RFXaSRYRtAHY1FDfUSAUFkb5btv0v12zlufaGtfNcWheibOkkvkrGpqFALAv6vmowUfahlpz4uTQBMR0zmgpwYZ7RRED9N73FcNrH9VZDGEOshkvRJZZR9C5ntB-Sdy-bNiDYJd3Ofq1ccadtC1I8W-DyFNDBGaMaf9rGMMu0YTsw.jpg" width="400"><br>
-
-پست اسکات بسنت، وزیر خزانه‌داری آمریکا،
-ترجمه ماشین:
-رهبران ایران دارند به چیزی اعتراف می‌کنند که حالا جهان می‌تواند ببیند: فشارها مؤثر واقع شده‌اند.
-مسعود پزشکیان، رئیس‌جمهور ایران، با اذعان به کمبودهای اقتصادی کشور گفت: «جنگ بالاخره باید در مقطعی به پایان برسد.»
-محمدباقر قالیباف، رئیس مجلس ایران، حتی صریح‌تر گفت: «هرچقدر هم قدرت نظامی داشته باشیم، اگر مردم گرسنه باشند و گردش مالی، رشد اقتصادی و تولید داخلی نداشته باشیم، دوام نخواهیم آورد.»
-در دوران ریاست‌جمهوری ترامپ، وزارت خزانه‌داری به قطع هر شریان اقتصادی که این رژیم را سرپا نگه می‌دارد ادامه خواهد داد، تا زمانی که تهران تنها بماند.
-SecScottBessent
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78036)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 20:05:30
-
-<img src="https://cdn1.telesco.pe/file/GuS_yZHAA2QrukW6urrYvvmKxt9CHVcBNPjW70m9MFoHjSppk3wzPJ4PFTyn20B6ARpi9ODy09IBSVmEeBkuQBK3Kp6FQYq1zA82G2PXCg5JryvytOjwVtD45xU2u6rkjrScPu9W9ZMQBxlrYefcISFqYPmx60mI6nR5fwCs16sVHXPXqemmCR0TDtVT3guy5fYEOLw2IIZsttjspyH6lvrYmCbtGzxghvQTJRpMwzDzeGhR3ZqPU9t0tgKR8sOYTwj4M18qZ_XRFcRmZBdyPVPljQdspir5_XEeyCEritaoAJo01dJ2hwf1HOFSJ572eVYmV57C6g5fRZy9TChuzQ.jpg" width="400"><br>
-
-خلاصه
-بیانیه
-: گفت‌وگو کردیم که مذاکرات ادامه داشته باشد
-در پی سفر بدر بن حمد البوسعیدی، وزیر امور خارجه عمان به تهران و رایزنی با عباس عراقچی، همتای ایرانی خود، دو کشور بیانیه مطبوعاتی مشترکی در خصوص از سرگیری دریانوردی ایمن از طریق تنگه هرمز منتشر کردند.
-بر اساس این بیانیه، وزرای خارجه دو کشور با تاکید بر حفظ حاکمیت و حقوق حاکمیتی خود، درباره چارچوبی مرحله‌بندی‌شده و قابل اجرا برای مواجهه با وضعیت کنونی تنگه هرمز و پیامدهای ناشی از جنگ اخیر گفتگو کردند.
-چارچوب پیشنهادی شامل ایجاد یک گذرگاه دریانوردی موقت مشترک از طریق تنگه هرمز و اجرای پروژه‌ای مشترک برای پاک‌سازی تنگه از مین است. طبق این توافق، مذاکرات فنی میان تهران و مسقط برای دست‌یابی به کریدور دائمی، مدیریت ترافیک، تبادل اطلاعات و ارائه خدمات دریانوردی و امنیتی ادامه خواهد داشت.
-همچنین دو طرف بر اهمیت گفتگوهای مشترک با کشورهای هم‌مرز با خلیج فارس، رعایت حقوق بین‌الملل و احترام به حقوق حاکمیتی کشورهای ساحلی تأکید ورزیدند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78035)
 
 ---
 
