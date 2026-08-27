@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-27 00:59:21 </h5>
+<h5> 🟢 Updated at: 2026-08-27 05:55:59 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-27 05:41:15
+
+<img src="https://cdn1.telesco.pe/file/ukW1WfKgAiYCAKW-pCqn6lIGw7ASokSxfxnFZvVcoXb0Yspo-pJW63f0uFJzx0aIcTdy3YixMgPlO9Jj9trTHR7yf52MnXNcHJdgooosB_zic7_azEHQwiLzyHXplqD5IbUDEPC-1XA92jVKQuvMwWfKoQ-BgUecQfOB9JvUqCoFNtPb4hbPEXFAgZiGmyv3g5EEPz4O-QZn4gCf_2Ce-whPLeSyu6GP14Pzk_E7GGKnr93CBjm9zEm4GQaCrLeWqUlpIS7TxNpXJrLwOtu8rC8Pz0U4J1s8SVsIJxBZHMpYZtolnHeqPSNyLMn9yk4zHEEcutT-VgZKRuPZqHpE-w.jpg" width="400"><br>
+
+UKMTO:
+مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
+مقامات محلی گزارش داده‌اند که یک نفتکش با پرتابه‌ای ناشناس هدف قرار گرفته و در پی آن کشتی دچار آتش‌سوزی شده است؛ آتش‌سوزی از آن زمان مهار شده است.
+گزارش شده که همه اعضای خدمه سالم هستند و حضور همه آن‌ها تأیید شده و هیچ گزارشی از پیامدهای زیست‌محیطی دریافت نشده است.
+مقامات در حال تحقیق درباره این حادثه هستند.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78054)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-26 22:40:29
@@ -312,26 +331,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78035)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-25 19:58:17
-
-<img src="https://cdn1.telesco.pe/file/XFzADOK4ROSN_esMPY2wf_uWoP211eZMkUiBvMjkyjgsKksxCcTMaOyakmJp76mwUA8k2Ubkr_3zsGKJC0Kr-CHrc_iDKZwVK1wOrwsQ_Zdz2IEvQZmQSZMBKOxTq_F1EiVEez-idZcq0i30eiPQL90sfMJ2MNXZxdrgPCqdzlZkIiuvB2_jFT9L94b8TbOCzeNPEWcA0bfucQ7V-VkJMiOPhOhjac6KcT5tLRpJVpwaLu5IevSWz0OkpWPkPBMM0sh-3jQloyIIEJ62X9W3oLBpkipyPvHHvOrBY-lqSKGPeNzdYGMP8MQB-oaLSV-caauOVnX_G_M1ENw4InymPw.jpg" width="400"><br>
-
-گزارش‌ها و ویدئوهای مختلفی در شبکه‌های اجتماعی از «تعطیلی» تعدادی از جایگاه‌های عرضه سوخت در تهران و تشکیل صف‌های طولانی در مقابل پمپ بنزین‌ها منتشر شده است.
-برخی رسانه‌های داخلی از جمله خبرآنلاین، خبرگزاری دانشجو و عصر ایران نیز تعطیلی چند پمپ بنزین در تهران را تأیید کرده‌اند.
-در همین حال فریدون یاسمی، مدیر منطقه تهران شرکت ملی پخش فرآورده‌های نفتی با تأیید تعطیلی چند پمپ بنزین در تهران، «افزایش ناگهانی تقاضا و ترافیک مسیرهای مواصلاتی» را «منجر به تأخیر در ارسال محمولات و اتمام بنزین در تعداد محدودی جایگاه و بسته شدن چند ساعته آنها» عنوان کرد.
-به گفته او، در روزهای اخیر توزیع بنزین در تهران «۳۰ درصد» افزایش داشت. یاسمی مدعی شد «تأمین سوخت تهران به‌صورت پایدار در حال انجام است.»
-خبرگزاری فرانسه نیز روز سه‌شنبه، سوم شهریور در گزارشی از تهران، از تشکیل صف‌های طولانی مقابل پمپ‌بنزین‌ها خبر داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78034)
 
 ---
 
