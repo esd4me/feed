@@ -3,8 +3,62 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-29 18:19:10 </h5>
+<h5> 🟢 Updated at: 2026-08-29 21:32:12 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-29 19:51:27
+
+<img src="https://cdn1.telesco.pe/file/f01UpXXcoaX9qI0ZmXbpuiCvy_fQWtfoHvgzQ4UuytXAAE6yo5XKTEe_A5odNDONG5_PJ3GYYTLTDLxwJdSQq-Y6ffLM0AyiO_tQukRIJ3NcTGXEaNWRi1OBl8mBj6fQ1Ayg6hGNWHcKVAR3IxqLw331W_1awQJ7Dt9kPEAHWDPDpZdLRiBd5MTKNafxhc549W01kSuOQrO9tVmeqy-XpG7BgU47-stYIMRFlyUdPNxRuB_LRW8BRm9Q8TLAaUCdq3ZyhGatYcthJRuvhNrWPqghQDOIc5-BHfgBrgS7BmmH0GIRZNgT5R9Cz5_ruwGVRGE6W4m5aP2Yk8125LR5gw.jpg" width="400"><br>
+
+بر اساس آخرین نرخ‌های ثبت‌شده در بازار آزاد در روز شنبه ۶ شهریور ۱۴۰۵، قیمت دلار آمریکا به حدود ۲۰۵ هزار و ۸۸۰ تومان رسیده است.
+نرخ دلار در بازار هرات نیز حدود ۲۰۵ هزار و ۲۳۰ تومان ثبت شده است.
+داده‌های لحظه‌ای بازار همچنین قیمت دلار را در ادامه معاملات بالاتر از ۲۰۶ هزار تومان نشان می‌دهد.
+در همین حال، هر یورو حدود ۲۳۸ هزار و ۹۱۰ تومان و هر پوند بریتانیا حدود ۲۷۹ هزار و ۹۰ تومان معامله می‌شود.
+قیمت دلار کانادا نیز به حدود ۱۴۸ هزار و ۶۵۰ تومان رسیده است.
+در بازار طلا نیز هر گرم طلای ۱۸ عیار بر اساس تصویر ثبت‌شده از بازار به حدود ۲۱ میلیون و ۸۱۰ هزار و ۷۹۰ تومان رسیده است.
+قیمت هر مثقال طلای آب‌شده نیز حدود ۹۴ میلیون و ۴۸۰ هزار تومان گزارش شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78084)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-29 19:50:31
+
+
+
+منابع حکومتی:
+"اعزام نیروهای مردمی به تنگه هرمز در پاسخ به یاوه‌گویی‌های ترامپ"
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78083)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-29 19:50:10
+
+<img src="https://cdn4.telesco.pe/file/hoHcjqJd4DDUKsIkrQqcFRPkIT2TFd8-Qa--l2pUTFjCNIb7N3OybFIX6eeeNbaxX4i-rngKQz9yenDT5RMpf9hK8PpA5A092HOZYYwiRHBkMrp_02R8YitWDO18Fp6E767r5HYJNN_R35_AYPPJbS0u4QuZxOeHqd3B-qUFwJZGNhLvp0Cg7dNXu9giZXD1B_9tD2wCzzTBrDCFCHagjwDaib76NK4PIh3qxYVboXTflm93gbmSeJrfwEPzklEmXgNkruP7074lU_noPTzCkDlIZCc0RcJDRVp5192-CMp9-qb73iQXmQzp6magJtYcCNBJl8FbGHkYelIDttiyUA.jpg" width="400"><br>
+
+🔴
+از ابتدای سال ۲۰۲۶ تاکنون، بنیاد عبدالرحمن برومند ۹۵۰ مورد اعدام را در ایران مستند کرده است. دست‌کم ۲۰ زن و ۳۰ معترض در میان اعدام‌شدگان قرار دارند و تا این لحظه، ۴۵ مورد اعدام در ماه اوت به ثبت رسیده است.
+🔸
+در نظام قضایی جمهوری اسلامی که بر پایه روندهای ناعادلانه، عدم شفافیت و نفوذ انگیزه‌های سیاسی بنا شده و در آن اصول دادرسی عادلانه به‌طور سیستماتیک نقض می‌شود، استفاده از مجازات اعدام، بر اساس حقوق بین‌الملل، مصداق سلب خودسرانه حیات است.
+#نه_به_اعدام
+@IranRights
+
+[View Post](https://t.me/VahidOnline/78082)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-29 04:46:52
@@ -46,7 +100,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-28 21:23:18
 
-<img src="https://cdn1.telesco.pe/file/JdJyOupl3YyiI09Xn92UuMV3kJtX9eXMTpM_sP5uabwlTpQyhKgU6sPFL8E1KDY3XULjK-w1R7XZWBuRB1qKPmsye1bOu1nMrT4usW_nXrdBfHJf53ULvLFcKgoWWGtZx6ZdltTKZ7aJ1XIW2VYp4xJ-epJ5OqNLIZW80D_MMnZpaWQOl8LUchNQnrTF7IejlfjxypyeGY3Q25nIhpyt2l-FzcOUgIet2Jv6MsfR4cnl2KkTI6XmDuO7hCrN6SX64at7dXCx19_U_IEU-XX2-YlKDpUvS6YTT8cLsomaiRtUEo0weBE8eYEiBjrXl5Ace5qD4Ou5-jpAcyThbly9nA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/cuhFKBe8lYa6K4uhZ1M3_fAG1EGFltFNT57mJERQH9zwlTcEca4LAB-oRzoErXVQaffEAyNa3Ae-c5AjZIwTEOCO9L0CpW8ecyUNW-f8uJf_7Fv6FPd_rWEghuHLKd97F1S6WBfY5P04Y-1sZLvEoxVR8YiCCJwbmh9vrhCmM1yGs-rAPsrXvKzGn30fkUjdxmMovyt-fa1twU5olDRxGLUQCOEYZ2YVi7KwRVy5ddSpFJtr3kngLP1-IEb9gqJaWyelnO04ZYze9QCrZ18HVFl0eggJTB_1t6_1sHYik2OMyl3VfXmr5dfM9XPH1mY4YA8X5sF6o7bNTOPWEU6Lkg.jpg" width="400"><br>
 
 معاون اجرایی رئیس‌جمهور ایران تأیید کرد که دولت جمهوری اسلامی به‌دلیل محاصرهٔ دریایی آمریکا نمی‌تواند بنزین وارد کند.  به گزارش خبرگزاری ایرنا، محمدجعفر قائم‌پناه، شامگاه چهارشنبه چهارم شهریور، ایجاد تغییرات در قیمت حامل‌های انرژی شامل بنزین و گازوئیل را لازم…
 
@@ -273,69 +327,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78064)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-27 23:00:10
-
-<img src="https://cdn1.telesco.pe/file/X-e616tenIQeMkjkYBMdafdzPi4a-dd2sS4pLho90Prfl0bheJmsdyNd_3-0a8SJEE501VuSwp0xVPbY5_lO5MwGG4GclJiJU4wDETt--b2RSkDKz8_7RW9kCFDP37csc_LiWlDuhOy0LMUchl4DdT3WFu7c9LUmVKg4TMp9F7mVc6-sP8EaNFRU25UMfn0ISjlXcbEtbsRI5uqe3NhVmhabQgRn1JD4AtB4Yi0APPfceVSjzZ_3yy1aecPX5woW1UuuUjxBMGJFjAtTUifNcNBPVbkKMgrR9A6nRQAvQCYctDUguUqzI6wOH95NrWzyQihDsdb423SdoHd7N473Fw.jpg" width="400"><br>
-
-سازمان اطلاعات سپاه روز پنجشنبه ۵شهریور۱۴۰۵ با انتشار بیانیه‌ای نسبت به تشدید نارضایتی‌های اجتماعی هشدار داد.
-در این بیانیه به ناکامی «دشمنان ایران» در «تلاش برای تغییر حکومت ایران از طریق حملات نظامی» اشاره شده و آمده است: «مخالفان جمهوری اسلامی در حال تغییر راهبرد خود هستند.»
-این نهاد نظامی و امنیتی مدعی شد که فعال کردن بحران‌های داخلی، جنگ روانی، فشار اقتصادی و عملیات‌های امنیتی از محورهای این تغییر رویکرد است.
-سازمان اطلاعات سپاه در این بیانیه نسبت به افزایش نارضایتی‌های اجتماعی و احتمال اعتراضات خیابانی هشدار داد و گفت مخالفان جمهوری اسلامی بر «برهم زدن ثبات و کاهش تاب‌آوری ملی» از طریق «نبرد شناختی و تولید ترس و ابهام» تمرکز کرده‌اند.
-این نهاد همچنین از شناسایی آن‌چه «ساختار محرمانه و اختصاصی» موساد، سازمان اطلاعات اسراییل برای اعمال فشار از داخل ایران خواند، خبر داد و مدعی شد این ساختار از طریق ارتباط با گروه‌های مخالف، انجام عملیات خرابکارانه و به‌کارگیری عوامل محلی فعالیت می‌کند.
-در این بیانیه ادعا شده که جمهوری اسلامی از وضعیت «صرفاً پاسخ‌گویی» به حملات خارج شده و در پی افزایش نقش خود در تعیین روند جنگ و دیپلماسی است.
-در بخشی از بیانیه منتشر شده آمده است: «ایران دیگر صرفاً در موقعیت پاسخ به حملات طرف مقابل قرار ندارد» و به سوی «افزایش ابتکار عمل راهبردی و اثرگذاری بر زمان، مکان و هزینه جنگ و دیپلماسی» حرکت می‌کند.
-سازمان اطلاعات سپاه همچنین ادعای حاکمیت ایران بر تنگه هرمز را تکرار کرد و نوشت توانایی‌های نظامی و «نامتقارن» جمهوری اسلامی حفظ شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78063)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-27 19:03:46
-
-<img src="https://cdn1.telesco.pe/file/Jmce2-GoXk9Uq17KZswRVi_W70_ijdz3UbN4ytmgVF2dwHvW9IJRooQo9r7EtJYMBTjlUFNXW6G359oL2bSi7xsi3unrZLx8H06ykGziR8nAohtPyO58NgiVDheYf59buFtyYm0RqNWnO0XSco4TdKI5DpAlr-ooi7ePvPp8xB4DPqzUe1Y5VQb5BG-qywzjWuXjxT0610Hfv2-fMrq_iKMRLRZ1erRzxztSFhicnu_VmOPIsubxpcq2Uf7n-NgJt97piCxjkYdXTFvfHs9kVGX3gDDnzpKRlRonY2TkO0pUOUeYI7bbvbyFkeclT1SXB5sj3hpAFX5NE1WeYWRx_A.jpg" width="400"><br>
-
-معاون اجرایی رئیس‌جمهور ایران تأیید کرد که دولت جمهوری اسلامی به‌دلیل محاصرهٔ دریایی آمریکا نمی‌تواند بنزین وارد کند.
-به گزارش خبرگزاری ایرنا، محمدجعفر قائم‌پناه، شامگاه چهارشنبه چهارم شهریور، ایجاد تغییرات در قیمت حامل‌های انرژی شامل بنزین و گازوئیل را لازم خواند، و در توضیح دلیل آن گفت: «توزیع بنزین عادلانه نیست و تداوم این مسیر غیرممکن است. ضمن این‌که تولید بنزین کفایت نمی‌کند و با محاصرهٔ دریایی آمریکا نمی‌توانیم بنزین وارد کنیم.»
-این مقام دولت ایران در عین حال گفت مشخص نیست این تغییرات به چه میزان و چه زمانی انجام می‌شود.
-در روزهای اخیر، هم‌زمان با افزایش اظهارنظرهای مقام‌های جمهوری اسلامی دربارهٔ لزوم افزایش قیمت بنزین، گزارش‌های مختلفی از تعطیلی برخی جایگاه‌های عرضهٔ سوخت در تهران و تشکیل صف‌های طولانی مقابل آن‌ها منتشر شده است.
-بر اساس آخرین آمار اعلام‌شده، تولید روزانهٔ بنزین در کشور حدود ۱۱۵ میلیون لیتر و مصرف آن حدود ۱۲۹ میلیون لیتر است. به این ترتیب، میزان تولید روزانه روزانه حدود ۱۴ میلیون لیتر کمتر از میزان مصرف است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78062)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-27 19:02:28
-
-<img src="https://cdn1.telesco.pe/file/GsKBKVV8sXs-MvMmWqmhPB-sREfsetNzG9tSy7ng7WlMG0M7tpUs4SXvmplRY2zRCF8NXn4ZALAIZoNbs8bkWbBVtTTQaZyj8LZaFE7gQ98mkEW8DwG0EIGRiVDN9lTmRjTYtcDotRNF0UZx_gFNfPo6JZFKFcRi78cvRHTYchU8E21JvLUXoalDMdM7A58UOO1wCdIoubEEDw4984FH2KoZdLkj2AdAWjSzEiK8tdnrL8FsXkDLiDtjiXadg1nFxp0hNICHXENzwlDjPzwfEdN8gZSx2On1rwM1-3KMwGp8IGCJbxshAYk4QNnWunj-x4fuxFhSD9icW2SxaNqhpw.jpg" width="400"><br>
-
-محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر، در سفر به تهران با مسعود پزشکیان دیدار کرد.
-وزیر خارجه قطر در این سفر با محمدباقر قالیباف، رییس مجلس شورای اسلامی نیز دیدار کرده و درباره راه‌حل برای از سرگیری مذاکرات میان واشینگتن و تهران گفت‌وگو کرده بود.
-@
-VahidOOnLine
-وزیر خارجه قطر همچنین به قالیباف گفته است که گفت‌وگو بهترین راه برای حل اختلافات و جلوگیری از تشدید بیشتر تنش‌ها در منطقه است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78060)
 
 ---
 
