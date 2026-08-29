@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-29 13:14:51 </h5>
+<h5> 🟢 Updated at: 2026-08-29 18:19:10 </h5>
 </div>
 
 
@@ -81,7 +81,7 @@ USTreasury
 
 ###### 🔵 Post time: 2026-08-28 16:45:37
 
-<img src="https://cdn1.telesco.pe/file/j4Y4ebKxB1DXysztWRZn70J3I-YeaFQEDXAap4scOyJJxviXLTeqEwxtTfDlPY2IcuwKI1--PhKMIKSfv3iEFRa7NvPBM9ikIIdMzmyMBdn9j5FF-85ml_IzI2zVplVJaqvQUtFOZaernc69u5bnWQwJQ9orKUYUxUI4yYLEeo-b54yOrgb37PNnRBpw2ndZnTqIV0zyudGUe9b0_u-M27gjJfLivd1n3oA4FqOpUnxXnSR4rUrK_1ldkrO8m_QmqmeEJSCx9a9qMR3Ix7tf-KKPJPIZ2y3WCK2uC6j5OI2Jxpv2APuDvAU1t4fm7JMHmcCx_Rw0wrrRCZmqQ0YESQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Za608DFhmaKH09Ck5vjZrsM6aMSXwZiy4DnjIdESmktjkIrVj2siOAogxQihsxcuHrlRNpn4jDnFLpBet3udg0UlO-9AlPCCxKfiDhD0IR3O2gMHF8_44pywXwcAsUXr8mPozsh77ejETToxPNV50x5U5Q2w_mfe4Eav0I9Ho3plea6ckYrCXrgHUXyKI6zV28_8GNvQTey_-ouqvSjTu7tfNzrDCN80Pj68nfnZxc4aO12DrzYJufd3HJj_oCKlviKaHdUolUVMGNFBQa8dWUF_KggzXITIrPYiR5yvgoCDzjbIgqbvEA3X8CdcO1XjuUSXUB0C35MNNWZt2UZgZg.jpg" width="400"><br>
 
 رضا نوری، امام جمعه بجنورد، در خطبه‌های نماز جمعه این شهر گفت: فشار اقتصادی کمر خود آمریکا را هم دارد می‌شکند و با فشارهای مردم در آمریکا بر علیه خود ترامپ، او که رای اول را در آمریکا داشت امروز محبوبیتش به زیر ۳۰ درصد رسیده است.
 @
@@ -97,7 +97,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-28 16:43:32
 
-<img src="https://cdn1.telesco.pe/file/Kt0w3mu0t04qBKkjD_SE9lkWUhJYLDzfAa_uRnje6R3EoKWLLpaIBjtIks8SoPs9aL96XekjD4IStjiALu51emYej3tUqCmd55m45ka9zPlzL7tugjUVpWlVYpdlY85DCh7hu_81VkzNnf9o2aQit17SdiCeWNNmZUbsHDh3Z1kcjmMxrH9JjML3aAZKz6Avz72Ot32_aeN8pQS702jW3Sg4s7_5uvrE2xmDjBFiG_HGFU70--HuQh9-X9dbCD_gupYGuV_RsHbTA9tp8flsgbigKLi9vSf1VMj5JB0XKs07903g6_RhCBcWW3MaN85_r6ZKpt8ZR1a4Gll2l58vYw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/H7Ig-P7KgJnbtwPYtZi-cDLl0Ev4Ms0tRPBk-AEBsHQEmzWhG6SRqTK_ja1EyCsPvDlx-dD2Xqzs_7JPwfbrWV8Q-81VLRVwscae84SucuNyVF4EDRsSkPHlGOB4OSsqsHmEnPYjRc4k-rBDbT_Hdfp53WQD8nxkFB8VfJcj7AK0fZJHKE2wTKyRteM9HHjPNulzKYPJJocQvJoG1qK2HU4qVCYK8vbRWANGRXerOBwWgh6Gevx0JXjacaI1o8wiLD097lB0N6zaQLVipeN4v9kN55XIsIP7u8HL1v_jAnuxtyBwtj4xJ74TDW3bG8xubUVanayegy0Igh2Aqq9T7w.jpg" width="400"><br>
 
 وزارت امور خارجه جمهوری اسلامی در واکنش به دور تازه فشارهای اقتصادی آمریکا، از کشورهای جهان خواست از اجرای تحریم‌های یک‌جانبه واشینگتن علیه ایران خودداری کنند.
 این وزارتخانه روز جمعه، ششم شهریور، در بیانیه‌ای «عملیات طرد اقتصادی» آمریکا را «تروریسم دولتی» خواند و مدعی شد تحریم‌های جدید واشینگتن با منشور سازمان ملل و اصول حقوق بین‌الملل مغایرت دارد.
@@ -138,7 +138,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-28 16:36:26
 
-<img src="https://cdn1.telesco.pe/file/Jevo7JtumDD6Q9FSIml_u1HWQKQ_MhQwWF8APjnPft5cd3R6fQW_ITii6ClnyMMTiZOi9HisqVmAZ3HKuooRei_1r_-zz9quPPepgkW6lz2DpiEgSfugbLwVbv44ghmgw_FmwuIIMFg1BzyFZ2IN0fLRJNmGXN1NM9WHaZTnKqZpbyxXRLKr-d7ILJdvlS2T3B1to8EwmYiXHXq96JEUsZG0ZC7wiIH9tJP91N2zuo5UT3p3WE5gU1c2MkgWF_Th8xCaL34a5CY04c5xhtgSoJ2W11jYyMlZhgObxIynUCT6rJQljaHiQMXI14dZ4_QJtqoOCeOxXNABI1IwhPbPJA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/B93l2chsSOXp-VIPymoUmYlpSQLhRRXFznKXT1j_Exr-K4sWBN8Xf9jvk1XrJ9BK5v1aGxXJ9cDVLESna-or3R31GXJy3Qg5G5qWcj31x0UOD76gZaK7Ech-X10VaW2x1K9-5VFJTs3SrrsaurzYF_hcTYnkn4iIXqAggyp7mfupH0IUZNxDTYvcsfiMvg09j2_yh202bhNAx-S1d3zDvbwhLOlLIzXEteX1p2lFRTWcboSfFrlMl9OR35dBIFzYmOUHw4TOVJ34Nm6ewPgIPz0P3DbZ4gmR0fVBYw5cVeZlgGFilHv_e_j-mlO33T_I1bUjnurCTevhyL82njJFag.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفت‌وگو با اکسیوس درباره تنگه هرمز تاکید کرد که این تنگه «باز است.»
 او گفت: «پاسخ ایران بسیار ملایم است. آنها نمی‌خواهند ما دوباره به آنها حمله کنیم. تمام ماجرا همین است. بقیه چیزها اهمیتی ندارد.»
@@ -155,7 +155,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-28 16:34:33
 
-<img src="https://cdn1.telesco.pe/file/fYaVDE2573SSJgfJx7UDmuwcs01GPGmb8ZmVnoJ0aspThsfqwHRxylgkSobU18hMwPw3bZ3q0vHl9YnSFGYpPTzd69pv5PECLErwgbAIMqkPD__cECfDVcSKm9uAIoWPNY9KU7NAIu7-Rlp2lGOKlcVkF8TIqZy3o41VpKm7PcDiM8mdRR3SifnCrapl9IYHM-DgmAH8kNQdBnRrgk5eZF-9EPbLLo8Ay6Wy4yThYOygUXQPMWw8sGX9Qut1zRPhTykxoDfSAo0lMMFDl1TAO9CMBx1W4a4AXioCfFUzeVpZYKCXKse58uvM9voZejzeacdqWubIevIgVV1pH5PazA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/v6C6XhcDz0Q0eYyzo9knLHsLGqYXej9P-aDrSBoWEDDJ5hBXG8IfWjBPqVjzBTz90RMmn5KQOqzyEwLO1a3f0YMXc9Nvpm9UFxycPsV29dKWJEe1DJEf1YTrhQgoQzw8GzF7zTF59sCoUULvIHpZEzevgyjp0yfK_T2yon36D9qPloPJxM7S4lUrYvolE1jbEDcPSBe-XMZHbDXFc9s2vn9v9MtsScSc7ZCQx2t7WlND2A2nnFFcODgi1KhLdXmmdMNO9rOK82rMrWUJFxn5RLmETCNuqE9B3UEUpQ7DOrtc2L9Gy3PQ8H1y1SZJRvDxMDoulC7ZJkApjThrDsOKgw.jpg" width="400"><br>
 
 منابع آگاه به رسانه‌های آمریکا گفته‌اند جان رتکلیف، رئیس سازمان اطلاعات مرکزی آمریکا (سیا)، در جریان سفر محرمانه خود به مسکو از مقام‌های اطلاعاتی روسیه خواسته است اطلاعاتی را که می‌تواند به ایران کمک کند، در اختیار تهران قرار ندهند. همچنین گفته می‌شود موضوع حمایت روسیه از ایران از محورهای گفت‌وگوهای او با طرف روس بوده است.
 این دیدار در جریان نخستین سفر برملا شده یک رئیس سیا به مسکو از سال ۲۰۲۱ به شمار می‌رود. کرملین تایید کرده است که آقای رتکلیف با مقام‌های اطلاعاتی روسیه دیدار کرده، اما با ولادیمیر پوتین، رئیس‌جمهور روسیه، ملاقات نداشته است.
@@ -180,7 +180,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-28 16:29:14
 
-<img src="https://cdn1.telesco.pe/file/fBKb1eTUgDbx3ZuEGceCD97r9ydCxTm0SpM2ArqdpAkQPNVEcshRX-twG2QJGlBCuYzbMmkjMLTlGxlbF0IGsBjD1-a7UIRrwFqqFgfTVKYGTUC5wKfatTySD8zwnNtSuMIG8cLCSVnx9L9NqHDZJ-V8jwFt4f5hr8hExMigMVP_aqykKu2soxd7cyAKx-oST_1nUGVgLtRA7Aw4M-h5Wl6k70yMagoVC9Z3Xs5Ap2ePov1iPAlXkBSBpkgxcGbeCkAPYbpz_NudZwxDtlbrtdMtgtLo--Sk4mF9WNTweGJZXF09rYJrBmrx9DvBfYbe0cCRoNbVwin9y-0Nl6kR4w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/fS-SBslKqbp3WsAPg23EJLd8j8PJE7S5LeGU7Ko0din0L1bdPFHg1zjiwiqAt4LZCtuDWGK-PQwmc3LtSBk8r6NTiPHCY9CMikRTAWWI9uHB7AoJi4EniFTlHn1lqYChQ952u2xrI-0RZkOAtO4U127KgHuKPOdvKLbBgDM5qfLymMw_4kYYZntdbBsdrUWRQaZqslRtTuQbevWFFCbHkkJjrmadacbtl2jqynAPgwE05eijafuN22fJn4sY0shG6PjDoCWlGZwILfCLKhtEwKYQca5muP9iNBnyWNIx0QeZQZkDbSg4G8X0JHwowoGDjnS-0oc5qGxcklt375dWQg.jpg" width="400"><br>
 
 روزنامه جهان صنعت بر اساس آمار بانک مرکزی گزارش داد که تورم نقطه‌به‌نقطه در مرداد ۱۴۰۵ به ۸۴.۴ درصد رسید؛ رقمی که نسبت به ۸۳.۹ درصد در تیرماه افزایش نشان می‌دهد.
 براساس این گزارش که صبح پنجشنبه ششم شهریورماه منتشر شده، تورم نقطه‌به‌نقطه در بخش کالا به ۱۲۱.۵ درصد رسیده و از افزایش چشمگیر قیمت اجناس طی یک سال گذشته حکایت دارد.
@@ -215,7 +215,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-28 16:18:12
 
-<img src="https://cdn1.telesco.pe/file/EQJzWW2ipmBQZ51C95uAJytUcC25i6BmK37_SPcAf0OeMD4Outhd4TYeSliDB-US19UzaMfzdiFf5UNQvpECzWWDaPMe7KmYxaULj_O7tVFQQPliAac1uk72fFv1Q-auSFvxov_HhNUF9d7ZMcRliiEoPYj3JiIKEqzsh9Ph2YsFkTGaq9qy98aOREpwVbAdX6sP9FGLS8IJhxZz13qAsTzwwxo6TX6mRPd9AZ7VFKsS5Ut4w6ZxpgrzVxke-EtxLUkEhcK-YPw0-mNvqA2A_5K_Z2y-EPjeXMWIsaDNt3wadxTWc4K4SZ0W96EVB_P9dwHrlpk5iM39rJCDnMYEAA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qDes66BWrKhT4UimnFG6o8ueOjUgl156F_MgJQZuL_0zcw1Hikc2fRuXh5xkNJapjENgHDPnYVUzY1stVNLzK0hGdLl6VsQqVS9NgXh5tmzpnaf9Q4TpnoBGMVLqTBsqOYPRS3mmW5j7s725WfStKh-UlkLcHMk1FbYiLGGvLEwH7KzH1VsZv_qz3cVFnRZYBgGMKJM068IxQWbLY555kFe1lYZEtdiRopt4Luv0PdgaQdRZ5gIac-gZvDJ_pnc_tlH3zLIw0p18vwv49llMkwHJOQZ3D4S6d3LT2IYbIWYUeAPtQbvX_PoJs-xn5RmrOb0GZ74lcJ9mDUSrEbiW1Q.jpg" width="400"><br>
 
 ‌رضا زنگنه، جوان ۲۷ ساله اهل روستای کلیل‌آباد ملایر و ساکن کرج، با اتهام «محاربه» به اعدام محکوم شده است.
 پرونده او اکنون برای رسیدگی به فرجام‌خواهی به دیوان عالی کشور ارسال شده و در صورت تأیید حکم، این زندانی با خطر اجرای اعدام روبه‌رو خواهد بود.
