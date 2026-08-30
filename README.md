@@ -3,8 +3,42 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-30 21:46:53 </h5>
+<h5> 🟢 Updated at: 2026-08-31 01:14:43 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-30 23:38:36
+
+<img src="https://cdn1.telesco.pe/file/OFf9UF5TepvcQp2RFwlZJxB2NdipzF-Uv028ojqDanmWT-ohMDK23h7jECGsm0cqWJSsYYo1CFRbv1E7PDH1XuL-fCWxfT5cI2UcqyhxZMVKsPFx6f9vCeXXSrKrFdj5eHnkrxMjnG40m8o3h1v8gDOv7SUW1J1PMRjWAoqfVMOBDOL-dombBqd1YlZXmkeKU2_S01asA6Nid-kf7205_OFOyXWJobIYuwr9WjysWTikcm7dBjEV_ShhOrf1g6ZY4Zq7H1PtuIH9RGHlahv1xUeYZ4fOGYQaTEO2F0CRSJG-sXaQ5rmXTEA5e87FV-Lz0hAaQytRGoVZpzbnrTWhDA.jpg" width="400"><br>
+
+سپاه با تایید کشته‌شدن شماری از نیروهایش در حمله آمریکا به لارک: پاسخ خواهیم داد
+منابع حکومتی:
+روابط عمومی سپاه پاسداران انقلاب اسلامی:
+🔹
+دشمن آمریکایی - صهیونی بار دیگر بر مبنای استیصال خود در حل مشکلات داخلی و کاهش اعتبارش در بین کشورهای منطقه به دنبال احیای نقش شوم خود و توجیه افکار عمومی، در اقدامی تجاوزکارانه، با حمله به جزیره لارک منجر به شهادت و مجروحیت تنی چند از رزمندگان و هموطنانمان شد.
+🔹
+این اقدام توسط فرزندان ایران اسلامی پاسخ داده خواهد شد و تنبیه متجاوز را به دنبال خواهد داشت.
+پیش‌تر یک مقام آمریکایی اعلام کرده بود که دو پرتابگر سپاه پاسداران که آماده شلیک به کشتی‌ها بودند در جزیره لارک هدف قرار گرفتند: @
+VahidOnline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78091)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-30 22:59:58
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/78089)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-30 17:57:12
@@ -77,7 +111,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-29 22:54:51
 
-<img src="https://cdn1.telesco.pe/file/EHfyWsAFXkcJTDS1XjRuNtsYNEEkXBb5NCRSp0H1xAtCKlfQTBlQFhmJRR6XF9ga-gikYHVz-FRoVb3JRBUo6ibkSKEjcuiPHEb__nvnAnrJfeYb5ROPsTUaSbudRkd_UiN1TKP6jXVGKoI0eQ8OkjQboY3q5pHJMjouUwwxfZmaNeA59h8UgqD61XupVqAdyhGKVmDcKbBx_rerE5SJhZqETFJQxOFfz0oaLMUNBvbaojGYZQX60OmXWTbJxOSehJS1cg80wuiPfNToj8et5zUg1PP74rM1YeZ6N9_bcof5QGSnzCE_6GD9B9Kxu2nL-rWDpq6hwq7E6rXL-WZT0A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XvKoqScXsigxVXn3lsNvtAAOmx1sHp-hEYMfORF9Wz4FUAusDZJyM1uR00cd0KEUm-hT7pZWEKCIAOkdWEXg2AMllDlZYgMH36lXNTvq1sd_OXstzTxj81zpVjIVNCtMZgS82BC5pbRYshUeuczgeD1poMegAARnyVGL1VmlG1nAEt8jsbgDmbOofHlSEJBt2_6_DTipt7c-9HcCTMq6c8I0P0J5zMT9bFMH2mGGFVm_X1WSJqKljBlLPxABH3Cf4czFnPeSajmsXQskt-pPyXfMM69iCPhqIg2lfoR65HIXjUeVjayTN1v2jZn_9GvwCQ5HuT9JOEW-74vNF_yzzA.jpg" width="400"><br>
 
 دولینگو اعلام کرد آزمون زبان این مؤسسه در ایران و برای دارندگان مدارک هویتی ایرانی در دسترس نیست. همزمان گزارش‌هایی از لغو آزمون تافل و عدم اعلام تاریخ‌های تازه برای برگزاری آن در ایران منتشر شده است.
 این تحولات چند روز پس از تعلیق یکی از معافیت‌های تحریمی آمریکا در زمینهٔ خدمات آموزشی به ایرانیان رخ می‌دهد.
@@ -320,23 +354,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78069)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-28 16:29:14
-
-<img src="https://cdn1.telesco.pe/file/GtxeWZM9Z57oUNfAZo-koVpy3S5HXMchjGcnr-thRk70AxkzFFSFVD4C4m-Vb4iDtCcxd8avbWJ2Iyppud1-q4S0i6F1T8OwsPiG1upgN71JW6wSNTLzBdMx3cf0T3Kn8oD4-e4HqnTujLXbZ_R1IKOXzBK50h1pLG_oy9ku0bH-Z4rY__R5olUmqp7agqqb5uJCj_mAWEt760PHr0ibJf1CoymCpYB7DJDK4Mer2yGMpLDe2v3ZaCpgpIT1WFOsSG3UEs1J5GR5eSRuV4z-TDE2InvENPyzQHlVHd5cDzCeTZSIcz69EtLkMmlmeifxOEmJe9JqeHQd5p0BzesKVQ.jpg" width="400"><br>
-
-روزنامه جهان صنعت بر اساس آمار بانک مرکزی گزارش داد که تورم نقطه‌به‌نقطه در مرداد ۱۴۰۵ به ۸۴.۴ درصد رسید؛ رقمی که نسبت به ۸۳.۹ درصد در تیرماه افزایش نشان می‌دهد.
-براساس این گزارش که صبح پنجشنبه ششم شهریورماه منتشر شده، تورم نقطه‌به‌نقطه در بخش کالا به ۱۲۱.۵ درصد رسیده و از افزایش چشمگیر قیمت اجناس طی یک سال گذشته حکایت دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78068)
 
 ---
 
