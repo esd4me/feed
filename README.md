@@ -3,8 +3,59 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-30 12:12:40 </h5>
+<h5> 🟢 Updated at: 2026-08-30 17:37:18 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-30 17:12:53
+
+<img src="https://cdn1.telesco.pe/file/GBn-E3sdk_ceGjqJ6iXpcAbj0TKlDa68pkYUWI0-2EMRl79GNN6El5yN9yoprJoR-8pSAuR4FEWF7Q0Bfc68bwUkiMbbUWZi0g5I2x9sVp_X0EcwjU6UnHlMU4inpFg7NOzhuaOInDT8D3dT89KrS1ZYfvKXfO9u7znxNONqAzMOlLwwcPv2pA0LXiJVp_NYT8WkZKuJD5sAa7lIEDxxvIrDbdHdoNpTo8KSBjpep4C2akIcR6jK6edYXuCVPrrAGyBfi4OvEgcLLUo2fecRd39Ns3z7I1IuWX5jgxciTpdX4Hv59DzMlRPDwpPrw05Fo8w7aOPHjuJxSd09qFtXyg.jpg" width="400"><br>
+
+واشینگتن‌پست به نقل از افراد آگاه گزارش داد چند مقام ارشد نظامی آمریکا به پیت هگست، وزیر جنگ آمریکا، هشدار داده‌اند که ادامه عملیات نظامی گسترده علیه جمهوری اسلامی پایدار نیست و توان ارتش آمریکا را برای مقابله با تهدیدهای دیگر، از جمله دفاع از خاک آمریکا، تضعیف می‌کند.
+به گفته این افراد، این هشدارها که روسای ارتش، نیروی دریایی و نیروی هوایی آمریکا، همراه با فرماندهان چهارستاره مسئول عملیات نظامی آمریکا در اروپا، آسیا و آمریکای لاتین، در نسخه ۲۳ مرداد «کتاب دستورات وزیر جنگ» به هگست ارائه کرده‌اند، بخشی از یک سند محرمانه است.
+بر اساس این گزارش، با توجه به تاکید ترامپ بر اینکه گزینه نظامی همچنان روی میز است، ستاد فرماندهی مرکزی آمریکا (سنتکام)، که مسئول اداره جنگ با جمهوری اسلامی است، ماه‌هاست بیش از ۵۰ هزار نیرو را در حالت آماده‌باش نگه داشته تا در صورت صدور دستور حملات بیشتر از سوی رییس‌جمهوری وارد عمل شوند.
+به گفته افراد آگاه، نسخه ۲۳ مرداد کتاب دستورات وزیر جنگ مقرر کرده است که بخشی از نیروهای مستقر در خاورمیانه تا پایان سپتامبر در منطقه باقی بمانند و ماموریت برخی دیگر تا سال ۲۰۲۷ تمدید شود. احتمال تمدید بیشتر این استقرارها باعث شد فرماندهان نظامی نگرانی‌های خود را آشکارا مطرح کنند.
+به گفته این منابع، فرماندهان ارشد فرماندهی اروپا، فرماندهی اقیانوس آرام و فرماندهی جنوبی آمریکا، همراه با فرمانده ارشد نیروی دریایی، در این سند نظر «عدم موافقت» ثبت کرده‌اند؛ به این معنا که با دستور وزیر جنگ برای تمدید استقرار نیروهایشان موافق نیستند، اما آن را اجرا خواهند کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78087)
+
+---
+
+
+
+###### 🔵 Post time: 2026-08-30 17:01:33
+
+<img src="https://cdn1.telesco.pe/file/NVY7c8hzy-7GKo5FRc2F3UbdmO53TfcdGZD5IG8Zf2Na7sI6H733Fc8CMzmX0yhcB8JV8CHKDas4LPS85BKAXMKmaByHSD1wYcyCFkuW5l_q9ME15yk0ZxuOovFvmwLkExrywgnZNd9g_JIrQUHlQxtHyZEIAwPZpqlEaKCnQuaMn2iV0PAX-7CiriDH4QVh8tn-e2nUJ7J6ZxWwEbqdy7pynp-Rb9fZm9y0J3NFblJped6glwr2iG5Z86xoCdmwGzGr4NHacY7dDHXKbLpxB88b1O293RKD3j1LDDCg6x9OE7xHxukRKi7Wj3nV5trV3N0EAxPyomAn3Y6PpNKe8w.jpg" width="400"><br>
+
+شعبه اول دادگاه انقلاب اصفهان ۱۰ نفر از متهمان پرونده موسوم به «میدان شهدای اصفهان» را به اعدام محکوم کرده است. شش متهم دیگر این پرونده نیز احکام سنگین زندان گرفته‌اند.
+کانال تلگرامی خبرنامه‌ها خبر داد این احکام در مرحله بدوی صادر شده‌اند: @
+MahmoudianMehdi
+«ترانه رحیمی»، «نوید الیاسی»، «ابوالفضل دادگستر»، «مهدی منصوری»، «احمدرضا سعیدی»، «مهرداد بو‌ئری»، «محمد مهدی اسدی»، «آرمین غلامی»، «پارسا جعفری» و «مهدی جعفری»، معروف به «مهدی خسروی»، ۱۰ متهمی هستند که حکم اعدام گرفته‌اند.
+در بخش دیگری از حکم، «رومینا رحیمی» و «میلاد بو‌ئری» هرکدام به ۲۵ سال حبس و «حامد مهرعلیان» به ۱۵ سال زندان محکوم شده‌اند. «ستایش ساعدی»، «سجاد عابدی» و «علی بوئری» نیز هرکدام به پنج سال حبس محکوم شده‌اند.
+دادگاه همچنین هر ۱۶ متهم را بابت اتهام «اجتماع و تبانی» به پنج سال، «تحریک» به پنج سال و «فعالیت تبلیغی علیه نظام» به یک سال حبس محکوم کرده است.
+پرونده «میدان شهدای اصفهان» در ارتباط با اعتراضات دی‌ماه ۱۴۰۴ تشکیل شده است.
+متهمان این پرونده از ۱۴ بهمن تا ۲۴ اسفند همان سال در خانه‌هایشان بازداشت شدند. شماری از آن‌ها کارکنان فروشگاه‌های کفش و پوشاک در محدوده خیابان شهدا یا از بستگان صاحبان این فروشگاه‌ها هستند.
+بیشتر متهمان این پرونده کمتر از ۲۳ سال دارند. ترانه و رومینا رحیمی، خواهران دوقلو، هنگام بازداشت ۱۹ ساله بودند.
+جلسات رسیدگی به اتهام‌های این افراد از ۲۲ تیر ۱۴۰۵ در شعبه اول دادگاه انقلاب اصفهان آغاز شد. اتهام‌های آن‌ها «محاربه»، «معاونت در محاربه»، «تخریب اموال عمومی در حکم محاربه»، «اجتماع و تبانی» و «تبلیغ علیه نظام» اعلام شده بود.
+این پرونده پس از کشته‌شدن «عباس کامرانی»، عضو سپاه پاسداران، و یک شهروند بی‌خانمان در اعتراضات ۱۸ دی تشکیل شد. بااین‌حال، در کیفرخواست صادر شده علیه متهمان، اتهام قتل مطرح نشده است.
+منابع مطلع پیش‌تر گفته بودند در جلسات دادگاه مدرکی که نقش متهمان در کشته‌شدن این دو نفر را اثبات کند، ارائه نشده‌ و اعترافات گرفته‌شده در دوران بازجویی، مبنای طرح اتهام‌ها قرار گرفته است.
+شماری از متهمان در دادگاه گفته‌اند اعترافات آن‌ها با ضرب‌وشتم، استفاده از شوکر و تهدید به تعرض جنسی گرفته شده است. «احمدرضا سعیدی» نیز در حضور قضات اعلام کرده بود که در دوران بازجویی شکنجه شده است.
+براساس اطلاعات منتشرشده، یکی از زنان متهم این پرونده نیز از تعرض در زمان بازداشت خبر داده و شکایتی ثبت کرده است. بااین‌حال، دادگاه بدون رسیدگی به این شکایت، حکم او را صادر کرده است.
+وکلای متهمان نیز از دسترسی کامل به پرونده محروم بوده‌اند. گزارش‌ها حاکی است دادگاه اجازه نداده است هر متهم از شمار قانونی وکلای مدافع برخوردار باشد.
+«محمدرضا توکلی» و «مرتضی براتی»، قضات این پرونده، پیش‌تر نیز در پرونده‌های سیاسی و امنیتی اصفهان حکم اعدام صادر کرده‌اند. توکلی از قضات پرونده‌های «میدان علیخانی» و «توماج صالحی» بوده و براتی نیز در پرونده «خانه اصفهان» برای سه معترض حکم اعدام صادر کرده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78086)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-29 22:54:51
@@ -160,7 +211,7 @@ USTreasury
 
 ###### 🔵 Post time: 2026-08-28 16:45:37
 
-<img src="https://cdn1.telesco.pe/file/Za608DFhmaKH09Ck5vjZrsM6aMSXwZiy4DnjIdESmktjkIrVj2siOAogxQihsxcuHrlRNpn4jDnFLpBet3udg0UlO-9AlPCCxKfiDhD0IR3O2gMHF8_44pywXwcAsUXr8mPozsh77ejETToxPNV50x5U5Q2w_mfe4Eav0I9Ho3plea6ckYrCXrgHUXyKI6zV28_8GNvQTey_-ouqvSjTu7tfNzrDCN80Pj68nfnZxc4aO12DrzYJufd3HJj_oCKlviKaHdUolUVMGNFBQa8dWUF_KggzXITIrPYiR5yvgoCDzjbIgqbvEA3X8CdcO1XjuUSXUB0C35MNNWZt2UZgZg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LNKwUzFbDe0e_Y1F-rOOdC3oLXjcZ39S4dzhCoeenkzZjREnbHi28XI8UYtoubjf46xdWqvJE8isQT2iwOnR-dgviM5pKzkv3gu-OdoCqdu6Apf-TvmThliV4NDN55EqFKc3LG6r-prgklGqYRXJuiEYYcILDqBHxAn6i-E0hqXAnMqnLC7KDM12YZPiyf8F4FPrO9zX6YAvGDKPAemjOOPhrniD3cym2MmX7MOvBoFJzMzIEVZCcpahvmYai38XD8GzhQccnPy0Y7P0Uc-s08rXTDrQKj-KxNAj2ftWOAqN0KTfZtHqhY2RXs49CyNF9ZUz5sxP2B1dx3EU5QC2bA.jpg" width="400"><br>
 
 رضا نوری، امام جمعه بجنورد، در خطبه‌های نماز جمعه این شهر گفت: فشار اقتصادی کمر خود آمریکا را هم دارد می‌شکند و با فشارهای مردم در آمریکا بر علیه خود ترامپ، او که رای اول را در آمریکا داشت امروز محبوبیتش به زیر ۳۰ درصد رسیده است.
 @
@@ -217,7 +268,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-28 16:36:26
 
-<img src="https://cdn1.telesco.pe/file/B93l2chsSOXp-VIPymoUmYlpSQLhRRXFznKXT1j_Exr-K4sWBN8Xf9jvk1XrJ9BK5v1aGxXJ9cDVLESna-or3R31GXJy3Qg5G5qWcj31x0UOD76gZaK7Ech-X10VaW2x1K9-5VFJTs3SrrsaurzYF_hcTYnkn4iIXqAggyp7mfupH0IUZNxDTYvcsfiMvg09j2_yh202bhNAx-S1d3zDvbwhLOlLIzXEteX1p2lFRTWcboSfFrlMl9OR35dBIFzYmOUHw4TOVJ34Nm6ewPgIPz0P3DbZ4gmR0fVBYw5cVeZlgGFilHv_e_j-mlO33T_I1bUjnurCTevhyL82njJFag.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/st63sg1IVsxn90is0TYsHgjvrx2Gh5gyIhHtkt0bCnSaVTXBexInHcKBeL1TtlEx5EuKFwtCLTEpOCD-c4q0xvaVZ06M6jSD4C9m0XMGa_kmm030Fww9hz_8LcCpW5RuHGARpLEu4p1SCfyrooDk85Qn2OPy7g7Wn4CS8TIAH9Jqj3fJ3d4KKoBF6TmX_VcJPUtYZW0w6-fkBI0fuHbFUa66ZcOoMOk3pbTztUkulM2tzuO-q9AcHtDkFjafh0HZKnGXaJGf4Onbwgeht3hw8czJQAb392jSJzUEm6c3DczF-DvQh5MLRpLSsaTBBuBQdX_NvGfIkpqStJe1QM5H5A.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفت‌وگو با اکسیوس درباره تنگه هرمز تاکید کرد که این تنگه «باز است.»
 او گفت: «پاسخ ایران بسیار ملایم است. آنها نمی‌خواهند ما دوباره به آنها حمله کنیم. تمام ماجرا همین است. بقیه چیزها اهمیتی ندارد.»
@@ -234,7 +285,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-28 16:34:33
 
-<img src="https://cdn1.telesco.pe/file/v6C6XhcDz0Q0eYyzo9knLHsLGqYXej9P-aDrSBoWEDDJ5hBXG8IfWjBPqVjzBTz90RMmn5KQOqzyEwLO1a3f0YMXc9Nvpm9UFxycPsV29dKWJEe1DJEf1YTrhQgoQzw8GzF7zTF59sCoUULvIHpZEzevgyjp0yfK_T2yon36D9qPloPJxM7S4lUrYvolE1jbEDcPSBe-XMZHbDXFc9s2vn9v9MtsScSc7ZCQx2t7WlND2A2nnFFcODgi1KhLdXmmdMNO9rOK82rMrWUJFxn5RLmETCNuqE9B3UEUpQ7DOrtc2L9Gy3PQ8H1y1SZJRvDxMDoulC7ZJkApjThrDsOKgw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IQ7sjvn3X_x4vhOjpwYq1oYMKjEMslv51uL-grXfCUR5pg5uslwiVcNizynpo4nW-xZTH6eN_x834b8H7w45STuVDZMqaQCt33LrqWFUuJY-ZAHAbr2UiEFYSDAfJHm8JPoYF25CRt6RgzqWYxSMMBtD5zHMuk1sRi57qV6jMgkLthGsDkOB8_ZKIWi7RrEI_an0lilvOeG21P_MAZDar1bQtq9zr4CSGBJnyUAGCwX3EtV2geRO-sA7UzKfTLUq0xAxWjIhIZqcPiZmfLHhimp2AeekPDtqmo_Kf9jE6rDG2s66l78jNMABpg1swwrzdxVfQmqhc3T5tNW2BOwBdg.jpg" width="400"><br>
 
 منابع آگاه به رسانه‌های آمریکا گفته‌اند جان رتکلیف، رئیس سازمان اطلاعات مرکزی آمریکا (سیا)، در جریان سفر محرمانه خود به مسکو از مقام‌های اطلاعاتی روسیه خواسته است اطلاعاتی را که می‌تواند به ایران کمک کند، در اختیار تهران قرار ندهند. همچنین گفته می‌شود موضوع حمایت روسیه از ایران از محورهای گفت‌وگوهای او با طرف روس بوده است.
 این دیدار در جریان نخستین سفر برملا شده یک رئیس سیا به مسکو از سال ۲۰۲۱ به شمار می‌رود. کرملین تایید کرده است که آقای رتکلیف با مقام‌های اطلاعاتی روسیه دیدار کرده، اما با ولادیمیر پوتین، رئیس‌جمهور روسیه، ملاقات نداشته است.
@@ -259,7 +310,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-28 16:29:14
 
-<img src="https://cdn1.telesco.pe/file/fS-SBslKqbp3WsAPg23EJLd8j8PJE7S5LeGU7Ko0din0L1bdPFHg1zjiwiqAt4LZCtuDWGK-PQwmc3LtSBk8r6NTiPHCY9CMikRTAWWI9uHB7AoJi4EniFTlHn1lqYChQ952u2xrI-0RZkOAtO4U127KgHuKPOdvKLbBgDM5qfLymMw_4kYYZntdbBsdrUWRQaZqslRtTuQbevWFFCbHkkJjrmadacbtl2jqynAPgwE05eijafuN22fJn4sY0shG6PjDoCWlGZwILfCLKhtEwKYQca5muP9iNBnyWNIx0QeZQZkDbSg4G8X0JHwowoGDjnS-0oc5qGxcklt375dWQg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GtxeWZM9Z57oUNfAZo-koVpy3S5HXMchjGcnr-thRk70AxkzFFSFVD4C4m-Vb4iDtCcxd8avbWJ2Iyppud1-q4S0i6F1T8OwsPiG1upgN71JW6wSNTLzBdMx3cf0T3Kn8oD4-e4HqnTujLXbZ_R1IKOXzBK50h1pLG_oy9ku0bH-Z4rY__R5olUmqp7agqqb5uJCj_mAWEt760PHr0ibJf1CoymCpYB7DJDK4Mer2yGMpLDe2v3ZaCpgpIT1WFOsSG3UEs1J5GR5eSRuV4z-TDE2InvENPyzQHlVHd5cDzCeTZSIcz69EtLkMmlmeifxOEmJe9JqeHQd5p0BzesKVQ.jpg" width="400"><br>
 
 روزنامه جهان صنعت بر اساس آمار بانک مرکزی گزارش داد که تورم نقطه‌به‌نقطه در مرداد ۱۴۰۵ به ۸۴.۴ درصد رسید؛ رقمی که نسبت به ۸۳.۹ درصد در تیرماه افزایش نشان می‌دهد.
 براساس این گزارش که صبح پنجشنبه ششم شهریورماه منتشر شده، تورم نقطه‌به‌نقطه در بخش کالا به ۱۲۱.۵ درصد رسیده و از افزایش چشمگیر قیمت اجناس طی یک سال گذشته حکایت دارد.
@@ -287,47 +338,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78067)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-28 16:18:12
-
-<img src="https://cdn1.telesco.pe/file/qDes66BWrKhT4UimnFG6o8ueOjUgl156F_MgJQZuL_0zcw1Hikc2fRuXh5xkNJapjENgHDPnYVUzY1stVNLzK0hGdLl6VsQqVS9NgXh5tmzpnaf9Q4TpnoBGMVLqTBsqOYPRS3mmW5j7s725WfStKh-UlkLcHMk1FbYiLGGvLEwH7KzH1VsZv_qz3cVFnRZYBgGMKJM068IxQWbLY555kFe1lYZEtdiRopt4Luv0PdgaQdRZ5gIac-gZvDJ_pnc_tlH3zLIw0p18vwv49llMkwHJOQZ3D4S6d3LT2IYbIWYUeAPtQbvX_PoJs-xn5RmrOb0GZ74lcJ9mDUSrEbiW1Q.jpg" width="400"><br>
-
-‌رضا زنگنه، جوان ۲۷ ساله اهل روستای کلیل‌آباد ملایر و ساکن کرج، با اتهام «محاربه» به اعدام محکوم شده است.
-پرونده او اکنون برای رسیدگی به فرجام‌خواهی به دیوان عالی کشور ارسال شده و در صورت تأیید حکم، این زندانی با خطر اجرای اعدام روبه‌رو خواهد بود.
-بر اساس اطلاعات رسیده، رضا زنگنه روز ۱۳ فروردین‌ماه از ملایر به کرج بازگشت و روز بعد، ۱۴ فروردین، هنگامی که مغازه خود را باز کرده بود، مأموران به محل کار او یورش بردند و او را بازداشت کردند. شماری از مغازه‌داران و کسبه اطراف شاهد بازداشت او بوده‌اند.
-زنگنه تعمیرکار خودروهای لوکس و خارجی است و هم‌اکنون در زندان قزلحصار کرج نگهداری می‌شود. او از ابتدای پرونده وکیل تسخیری داشته، اما خانواده‌اش در جریان رسیدگی قضایی، وکیل انتخابی نیز برای پیگیری پرونده معرفی کرده‌اند.
-@
-Tavaana_TavaanaTech
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78066)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-27 23:07:52
-
-<img src="https://cdn1.telesco.pe/file/rujwSbK1QvW0qHC2MuxWTn5dilM1r2lNZOuXKN2CQ0ktnXqDQwAv9qG9UkTV7lJwl5nRtxpe_xao-sAf1_XluYfkHoHl4KkXeJu0rA8d1_gWTq5nR4zfC_43xgeFyUdV_PDSwvqL_Fzx8uqTz6IXb0ZOE22u4qAnDR9LSmgWGe1p9HUaMXB98NwJw7qas2ZqopT9aFVvJ2l6n5eblZdTY9tO3DuoAU8Y8s8c11CcnO8ILMrWuKeBqSJCPxnx-r4vrRV1zsMDjR__rW-Ij1M0-kbY3lEn2Gc8YByF4iLLxx1QpoqUCL-zWlUbE2xJ3-vfHg9IXzg-msbXldjBIzJ9RQ.jpg" width="400"><br>
-
-دولت دونالد ترامپ به میانجی‌ها اعلام کرده است که تمایلی به بازگشت به مفاد توافق اولیه ماه ژوئن با جمهوری اسلامی ندارد.
-این موضع تلاش‌های تازه قطر، عمان و پاکستان برای احیای مذاکرات میان واشنگتن و تهران را با مانع روبرو کرده است.
-روزنامه وال‌استریت ژورنال روز پنجشنبه پنجم شهریورماه به نقل از افراد مطلع گزارش داد که دولت ترامپ این موضع را بارها به میانجی‌ها منتقل کرده است.
-توافق اولیه که با میانجی‌گری پاکستان شکل گرفت، بازگشایی تنگه هرمز و آغاز گفتگو درباره برنامه هسته‌ای جمهوری اسلامی و پایان جنگ را دنبال می‌کرد. در مقابل، کاهش تحریم‌ها و دسترسی تهران به دارایی‌های مسدودشده در نظر گرفته شده بود.
-به نوشته وال‌استریت ژورنال، ترامپ اکنون فشار اقتصادی بر جمهوری اسلامی را در اولویت قرار داده و آماده است برای مشخص شدن نتیجه این سیاست صبر کند. آنا کلی، سخنگوی کاخ سفید، نیز گفت هیچ مذاکره‌ای با جمهوری اسلامی در جریان نیست یا برنامه‌ریزی نشده و محاصره دریایی و «عملیات طرد اقتصادی» ادامه خواهد یافت.
-این گزارش در حالی منتشر شد که عاصم منیر، فرمانده ارتش پاکستان، اوایل هفته جاری برای گفتگو به تهران سفر کرد. وزیر خارجه عمان نیز برای دستیابی به تفاهمی درباره مسیر عبور کشتی‌ها از تنگه هرمز با مقام‌های جمهوری اسلامی گفتگو کرده است. نخست‌وزیر قطر نیز پنجشنبه پنجم شهریورماه در تهران با مقام‌های جمهوری اسلامی دیدار کرد.
-وال‌استریت ژورنال نوشت اختلاف بر سر نحوه تفسیر توافق ژوئن و شرایط بازگشایی تنگه هرمز، دستیابی به چارچوبی برای ازسرگیری مذاکرات را دشوار کرده است. هم‌زمان، تهران بر اجرای مفاد توافق پیشین تاکید دارد، در حالی که واشنگتن مسیر فشار اقتصادی را دنبال می‌کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78065)
 
 ---
 
