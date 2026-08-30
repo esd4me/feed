@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-30 17:37:18 </h5>
+<h5> 🟢 Updated at: 2026-08-30 21:46:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-08-30 17:57:12
+
+<img src="https://cdn1.telesco.pe/file/ZmHRNwP6G_9hkmYQz4eJ3P7uH-cGToapEa74T85qBfckTK65h7bKzztD74FaBWKV_aDvvv7h2s7I7-pyckF1L3eQ-G0PWRTnwg9bzBWewSo-ZoY86WJcNJQkapSEhsAwLeVOoVGnnjDspwpCDkf3RPIRg0n_3WF-XngOzfxZtQPQlgWnBQnkrnjZjzZXpJjMfoLp4Kh5IVb06640s0WgQwkd-WUdGpFMl2NQBgnYkWVTYaTuKWv2cP50ePH8OKK_tx4Vs1KaVBWHMBIPU-3LPmvFmSkC5ykLoFZwhLpblWtI_uPoD3nzoXPkEn84zhVkozeLJ25m8ELcHI_0fVm0eQ.jpg" width="400"><br>
+
+ترامپ:
+یکی از کارهایی که قرار است با نفت ونزوئلا انجام دهم، پر کردن ذخایر راهبردی ملی است؛ ذخایری که به‌خاطر جو بایدنِ خواب‌آلود عملاً خالی شده‌اند. روند «پر کردن تا ظرفیت کامل» به‌زودی آغاز خواهد شد و این هدیه‌ای از سوی ونزوئلا به مردم ایالات متحده است. متشکرم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78088)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-30 17:12:53
@@ -85,7 +102,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-29 19:51:27
 
-<img src="https://cdn1.telesco.pe/file/f01UpXXcoaX9qI0ZmXbpuiCvy_fQWtfoHvgzQ4UuytXAAE6yo5XKTEe_A5odNDONG5_PJ3GYYTLTDLxwJdSQq-Y6ffLM0AyiO_tQukRIJ3NcTGXEaNWRi1OBl8mBj6fQ1Ayg6hGNWHcKVAR3IxqLw331W_1awQJ7Dt9kPEAHWDPDpZdLRiBd5MTKNafxhc549W01kSuOQrO9tVmeqy-XpG7BgU47-stYIMRFlyUdPNxRuB_LRW8BRm9Q8TLAaUCdq3ZyhGatYcthJRuvhNrWPqghQDOIc5-BHfgBrgS7BmmH0GIRZNgT5R9Cz5_ruwGVRGE6W4m5aP2Yk8125LR5gw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/uHmxaKX37bjPk5xmapHMQS71MxVulAG6ZqeNuOGhe4xGHeMiaZVzkHhcCSMir348FeN5M9fNtMsiE35cboD9jQ-NvZXCXR19zEnWxtThULdtj42-NLK9Hptc-e30CX2P9oMeJODcn9LEi7M-uO9dAqQhk5PPD9y9OrMOLBHQjXt0y6dWCqbU30ZFsNl0HuvL2_v8NXFOLixmNuxJmzRT8FHoMstBEZvJgOe5EXNjvKgQqueTJ9lT9HXTwhirLTEKwhWFk-490cGEobEOjVls-8DCFwOsLyq_O1hRkhuuxOwpzPHAg2czkq3RUG9sH3eSj0KT4dj5dCZu1AmPplzmdg.jpg" width="400"><br>
 
 بر اساس آخرین نرخ‌های ثبت‌شده در بازار آزاد در روز شنبه ۶ شهریور ۱۴۰۵، قیمت دلار آمریکا به حدود ۲۰۵ هزار و ۸۸۰ تومان رسیده است.
 نرخ دلار در بازار هرات نیز حدود ۲۰۵ هزار و ۲۳۰ تومان ثبت شده است.
@@ -122,7 +139,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-29 19:50:10
 
-<img src="https://cdn4.telesco.pe/file/hoHcjqJd4DDUKsIkrQqcFRPkIT2TFd8-Qa--l2pUTFjCNIb7N3OybFIX6eeeNbaxX4i-rngKQz9yenDT5RMpf9hK8PpA5A092HOZYYwiRHBkMrp_02R8YitWDO18Fp6E767r5HYJNN_R35_AYPPJbS0u4QuZxOeHqd3B-qUFwJZGNhLvp0Cg7dNXu9giZXD1B_9tD2wCzzTBrDCFCHagjwDaib76NK4PIh3qxYVboXTflm93gbmSeJrfwEPzklEmXgNkruP7074lU_noPTzCkDlIZCc0RcJDRVp5192-CMp9-qb73iQXmQzp6magJtYcCNBJl8FbGHkYelIDttiyUA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Or8Kk2kaAKxWAGVHgh7_7PEbqv-CtJOSFOItFOihkjRQcO0iGMifgX_X94qQNQs3E-Kg13jeSTrDz1t1ckYNmIzAHvGGQbwEGjUystJsfzZ59J-g_cC9CsTFlBna4qVgvM7Ur5zY0ANQ9dnPraAsZtKPd4FjsuRSLACisHu9ypXt8D1v0o4yBM0PddlmdBUzFIOmC1x_MRbcmlzF3YcEoffv4XWpNtHELsYUfWwc4yeaNvK_Qg1JxOizGK0rJ8YgAoofMaa8Xecb_0T3p6N7GXYEYVtkovt4tHNX_bQONJfXweki2HyDD-waAQh9q50GRBaRgtyrH9sk8j2UxCHV5g.jpg" width="400"><br>
 
 🔴
 از ابتدای سال ۲۰۲۶ تاکنون، بنیاد عبدالرحمن برومند ۹۵۰ مورد اعدام را در ایران مستند کرده است. دست‌کم ۲۰ زن و ۳۰ معترض در میان اعدام‌شدگان قرار دارند و تا این لحظه، ۴۵ مورد اعدام در ماه اوت به ثبت رسیده است.
@@ -176,7 +193,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-28 21:23:18
 
-<img src="https://cdn1.telesco.pe/file/cuhFKBe8lYa6K4uhZ1M3_fAG1EGFltFNT57mJERQH9zwlTcEca4LAB-oRzoErXVQaffEAyNa3Ae-c5AjZIwTEOCO9L0CpW8ecyUNW-f8uJf_7Fv6FPd_rWEghuHLKd97F1S6WBfY5P04Y-1sZLvEoxVR8YiCCJwbmh9vrhCmM1yGs-rAPsrXvKzGn30fkUjdxmMovyt-fa1twU5olDRxGLUQCOEYZ2YVi7KwRVy5ddSpFJtr3kngLP1-IEb9gqJaWyelnO04ZYze9QCrZ18HVFl0eggJTB_1t6_1sHYik2OMyl3VfXmr5dfM9XPH1mY4YA8X5sF6o7bNTOPWEU6Lkg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/YG7vX8m8kOWHxDz-ugvpAjBV91vd0rFWArYipw2mWhvOdBmr0Ko10NZK1uPNIDf2yUcWY1o2CurKn1ohqKq84fzffOgkLKTIpQmSVzYAQ9cUK8txn-R7n-KJC4_mYO49p8xDGJ8xJUo2bsOdxFRV4CZRrgYsSrAbYDWAo6jeO-W77hWOpn23NVnHaclY6VuO0fotgUV_4hS6BwNgQ4_8tAb0bBcO5YIi12tchIjMN2zFLg9DDBmPICojRJuJJcaVM_kHmL8tJutCeUrPh9k7AXUp5fEqhznjt8Rh0YiUp7twJRhEPba16io8G0Jh5x6gUfc7MrJ0ywgya6Q2TgbiIg.jpg" width="400"><br>
 
 معاون اجرایی رئیس‌جمهور ایران تأیید کرد که دولت جمهوری اسلامی به‌دلیل محاصرهٔ دریایی آمریکا نمی‌تواند بنزین وارد کند.  به گزارش خبرگزاری ایرنا، محمدجعفر قائم‌پناه، شامگاه چهارشنبه چهارم شهریور، ایجاد تغییرات در قیمت حامل‌های انرژی شامل بنزین و گازوئیل را لازم…
 
@@ -320,24 +337,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78068)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-28 16:27:35
-
-
-
-یک زن شاغل در حرفه قصابی با انتشار ویدیویی از وضعیت کساد بازار و تشدید فشار معیشتی مردم می‌گوید مشتریانی به مغازه‌اش می‌آیند و می‌گویند شش ماه یا حتی یک سال است گوشت نخورده‌اند.
-مرکز آمار ایران در تازه‌ترین گزارش خود از ادامه جهش قیمت مواد غذایی در مردادماه خبر داده است.
-در میان گروه‌های خوراکی شیر، پنیر و تخم‌مرغ و همچنین گوشت و فرآورده‌های آن، از جمله گروه‌هایی هستند که در ماه‌های اخیر افزایش قیمت بالایی را تجربه کرده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78067)
 
 ---
 
