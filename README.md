@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-08-30 03:13:41 </h5>
+<h5> 🟢 Updated at: 2026-08-30 06:04:36 </h5>
 </div>
 
 
@@ -88,7 +88,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-08-29 04:46:52
 
-<img src="https://cdn1.telesco.pe/file/nTtlrlwV04RF1T_yXXneXEWSTEneyDfLBz154MpW7IGfD7UaiLmvJ9AO6nniwrkuYkamtsM8vxSJSVFP6jVNCqxWRDRkzWx6HypNKVpJvjCL7MLwuoTuPOk134C1xpKyNffIPFDzAkovQ3uRLJyKUlef-g2_3uLP8ClG0_TYCXyeO55WXn9nZYuRgyFEoZe76iqmsRqkBlXIKLCjoMGqsrLweqt9lEAQGPr6IoYTheuULTd-MqUPSyOea-ljk3c5POrO5niCsi5EIxWl-bB69552_CUDiePJxn4DN_jzVSOLzLuBxCWc1O9xn6AKs-RJGgpr-kWRv5j9X8ICIuO06A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Me_lGYoKn_jEHkPxB9i6yPir20ywyiqgjFYCDb1dvkbzKgMKTa5F-Q15YX8XV-5r8YZUVFlIGuI0XJppirYCcsOcvfyRzBbl2Ha-GvEmK6WbtdPwOY80NrutYTmekc-mGkp29-tNw3q2R6FE_Vdfp64Y1V4Se8X2j3P1rOA3DUv_zEjElm4Ujjjw-LDdYHis2wN4CaBe7KZAUmrZBJC_HpWKGgWfn_PlTLvlBuxCE50WU9V37k9LGYIp1UWj36KdRYBgZyeVko9aOsjZj6xyvuQpVCjhvuCDe48TnXLsJD3rf9J6zmMjJ-az15kCMW_NQvCx2rZHpgAVHQArPglozA.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، در تروت سوشال اعلام کرد آمریکا با ونزوئلا به توافقی دست یافته که آن را «بزرگ‌ترین توافق نفتی در تاریخ جهان» خواند.
 ترامپ گفت بر اساس این توافق و با مشارکت بخش خصوصی، آمریکا کنترل اکثریت بیش از ۶۵ میلیارد بشکه از ذخایر اثبات‌شده نفت ونزوئلا را بدون تحمیل هزینه به مالیات‌دهندگان آمریکایی در اختیار خواهد گرفت.
@@ -176,7 +176,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-08-28 16:43:32
 
-<img src="https://cdn1.telesco.pe/file/H7Ig-P7KgJnbtwPYtZi-cDLl0Ev4Ms0tRPBk-AEBsHQEmzWhG6SRqTK_ja1EyCsPvDlx-dD2Xqzs_7JPwfbrWV8Q-81VLRVwscae84SucuNyVF4EDRsSkPHlGOB4OSsqsHmEnPYjRc4k-rBDbT_Hdfp53WQD8nxkFB8VfJcj7AK0fZJHKE2wTKyRteM9HHjPNulzKYPJJocQvJoG1qK2HU4qVCYK8vbRWANGRXerOBwWgh6Gevx0JXjacaI1o8wiLD097lB0N6zaQLVipeN4v9kN55XIsIP7u8HL1v_jAnuxtyBwtj4xJ74TDW3bG8xubUVanayegy0Igh2Aqq9T7w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/sWzNj4pkxMfddEZxHZmiEwgkrClbpQYZ_v7nQWVVYUJcjMQUSLhRAFFCvP3tPekYW0GzLgv4WmsbFXvPBVbAWu-YIc5qUX65UzXgAkHJ0r6dMPZTkMn2VqHkfJWvUZOHZ7FtgIrw-cIpZZ0WdYbmJtLCiM8v32EOB1qcgrOGCf1_hI11VMizXd4CYtc8DrP2jVOy8mKRBz9r-ApVfLYQAMp2UU2TGY9rzsT-U47wwurw2wE3QkTkVjNjEPvjL0fOAHAzQNUiRy_-Gfd0dx8PEXFQ-uYUitpnlOTKF0xwjwc4dkNex6vL9E0n3mf4bhGiZBZivbQAdAntyaUyOpNcbw.jpg" width="400"><br>
 
 وزارت امور خارجه جمهوری اسلامی در واکنش به دور تازه فشارهای اقتصادی آمریکا، از کشورهای جهان خواست از اجرای تحریم‌های یک‌جانبه واشینگتن علیه ایران خودداری کنند.
 این وزارتخانه روز جمعه، ششم شهریور، در بیانیه‌ای «عملیات طرد اقتصادی» آمریکا را «تروریسم دولتی» خواند و مدعی شد تحریم‌های جدید واشینگتن با منشور سازمان ملل و اصول حقوق بین‌الملل مغایرت دارد.
