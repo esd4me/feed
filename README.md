@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-01 03:43:19 </h5>
+<h5> 🟢 Updated at: 2026-09-01 09:23:25 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-01 03:55:52
+
+<img src="https://cdn1.telesco.pe/file/bccWKMZpKqmMYjCTSDnYabOY2N8EvQtgFy-J0GlnWqL4saIG5FonFnoX6SI9hd89AwGi8MIX9SWvV5PE8-WXawpjjJ-_TQ074FFoKrXtih_QnThQhgFXWmxqm7iFzAkDzF3nDnR0G-d3jPKuyUQZo_oDcbv7ceAJOyXbm51_pVn9XnnqgtS5vd-7BPgPUIK5jZcCmeB9RIza4SNfF9o4AUR41TJ8l_jnE_mbdb1L1ZBgzEOQ4nw9DW2JY7XeuQ6bxP8gxhu2FQa90rkf-sGiPRjO_s39sVn_OkULMsiGMkG_bccG26i6G8MssBBO9SwLKsnE5qfXq_mToFD0wmcC5A.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد که یک نفتکش در تنگه هرمز «هدف قرار گرفته است.»
+براساس این گزارش، این نفتکش «هنگام عبور از تنگه هرمز و خروج از آن» هدف قرار گرفته است.
+سازمان عملیات تجارت دریایی بریتانیا گفته این حادثه در فاصله ۳۱ کیلومتری شرق منطقه خصب عمان، «هدف اصابت سه پرتابه ناشناس قرار گرفته است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78122)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-01 00:37:37
@@ -251,7 +269,7 @@ VahidOOnLine
 
 <img src="https://cdn1.telesco.pe/file/CHH7xKG3rswnsnmqEUHHIky9vvw1ByPVP-DgCNEkCLGqueCgj5uTbZjj25_4I-qJOXjxpAMz6gTNsinnAU4zmAL8uMEk6U8IUR7MWgFMiG-Oziffmoomo1rp-bZabskNJVDFaCS6FRNINLrb6t7MjkhcAAepL1QasuGPoHQwC6akKZJAK4tKAdaNxFQYXIzRIcfjRH9uuFkKWNy0E6zi_Y7JO8S7mLN9W0B0YWk83xnqkFYfBYVtXDgb6vAOo4g2RlAm8c6C4TmZLP5tDiOfZAu1SD4tMRMtRvaibtFLOqHprBQ5iaEwoTmZyZ-4C5s0j_ZCokML_Ynv9DIibeJjFg.jpg" width="400"><br>
 
-عراقچی باهوش متوجه نکته‌ای شد و پرده از رازی برداشت که آمریکای ساده ازش بی‌خبر بود:
+پست عراقچی:
 نتانیاهو در عبری آشکارا پُز می‌دهد که دولت آمریکا را فریب داده و به جنگ با ایران، به نیابت از اسرائیل، کشانده است.
 نتانیاهو صراحتاً با خنده می‌گوید که چگونه با ۱۰۰۰ ساعت حضور در شبکه‌های تلویزیونی آمریکا، بر آمریکا «تأثیر گذاشته» است.
 اما به انگلیسی، از رهبری رئیس‌جمهور آمریکا تمجید می‌کند.
@@ -303,24 +321,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78103)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-31 16:34:38
-
-<img src="https://cdn1.telesco.pe/file/GEcHO8CJKpp5SyyRY2vQXNggiid_hjsHHcLbrHslKEoXKRfps6DMJ98oh8HahcnppTKfgoAE-6f1P7RiSxrBsZ8rFHZjDY-P4RiDg_p6-UcwjNkukKg21V5V7jp6DCwG3Z62RXrMqLOaUNCVCgaO6-VK6sxZf_mLLmmFZwQTjMp9v2XFEqMgrbNP2Dr0wb0qZpxs1YzaKftSV4DXJ2GQnvy0A8AE8h4ZBnEdjRjnhh9A8asvYnMfy_e-FOfDKbYNJkOkGdfbOaurp5zfkTqKvtSg_Xv3rTeWfR-ZJiUXRksIvq2P_8U6CwPYn74_cK1zPgFIkQAgzPI8pTFL7pNF0g.jpg" width="400"><br>
-
-پیام درفشان، وکیل، روز دوشنبه خبر داد که حکم اعدام موکل او،‌ علی‌اصغر پیغمبری، از معترضان دی‌ماه ۱۴۰۴، در دیوان عالی کشور تأیید شده است.
-درفشان به سایت خبری امتداد گفت: «حکم اعدام علی‌اصغر پیغمبری پیشتر از سوی دادگاه انقلاب تهران و با استناد به قانون تشدید مجازات جاسوسی و همکاری با رژیم صهیونیستی صادر شده بود.»
-این در حالی است که به گفته این وکیل دعاوی «هیچ‌گونه ارتباط سازمانی یا ارتباط دیگری، به هیچ نحو، میان موکل و هیچ‌یک از گروه‌های متخاصم وجود نداشته» و پیغمبری تنها در اعتراضات حضور داشته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78102)
 
 ---
 
