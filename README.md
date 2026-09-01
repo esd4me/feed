@@ -3,8 +3,20 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-01 00:00:24 </h5>
+<h5> 🟢 Updated at: 2026-09-01 03:43:19 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-01 00:37:37
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/78121)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-08-31 22:55:41
@@ -309,28 +321,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78102)
-
----
-
-
-
-###### 🔵 Post time: 2026-08-31 08:15:13
-
-<img src="https://cdn1.telesco.pe/file/SFvfmXGSlI4BBWxZiC7ys_sLyf2wRcvTSCkdo29eO7YJAor6Vxhak2PLzEON_xRESkwXHE7YRZXjuNjtrsJbgMrgY1d036VueCOo0UuBWURAKox_GICOrF_wINI4mfVfDMX1pHwIqh4E2hWNBwNflPk8L8oxO1z-9NVxsKT1O39fMtZIpkA7yJzExgjx5RAtfzB5P8wykT9k8c2ZocrYIM8C078rMxk1EFqpJ-Tg-vqZd2gsloEiDkl3iIuK6BiTTbw7DU7p9ofQHq3LgvhfHDkjMGsTjJvl8iIcC6fte1w_xZ7thMcW6D2CkMCHj97lSlkE7-GjQN6k6y0clmmLYw.jpg" width="400"><br>
-
-سپاه پاسداران روز دوشنبه در بیانیه‌ای که از تلویزیون حکومتی در جمهوری اسلامی منتشر شد از برخورد یک نفتکش غول‌پیکر با دو مین دریایی در تنگه هرمز خبر داد و گفت این نفتکش آتش گرفته و کاملا متوقف شده است.
-سپاه در بیانیه‌اش مدعی شد که این نفتکش قصد داشته «به طور غیرقانونی» از بخش جنوبی تنگه هرمز عبور کند.
-در پی جنگ آمریکا و اسرائیل با ایران، سپاه مدعی است که عبور کشتی‌ها از بخش جنوبی تنگه هرمز یعنی نزدیک به سواحل عمان غیرقانونی است. این ادعای ایران با قوانین بین‌المللی همخوانی ندارد.
-در بیانیه نیروی دریایی سپاه به نام نفتکش و خدمه و مالکیت آن و زمان وقوع حادثه برای آن اشاره‌ای نشده است.
-این نهاد نظامی به سایر کشتی‌های نظامی هم هشدار داده است که در صورت پیروی نکردن از «مقررات امنیتی» تنگه هرمز، «سرنوشتی جز این نخواهند داشت.»
-بیانیه سپاه پس از وقوع درگیری‌های نظامی تازه آمریکا و ایران منتشر شده است.
-اما تنها گزارشی که از بروز سانحه برای یک کشتی در تنگه هرمز خبر می‌دهد مربوط به ساعت‌ها پیش از حمله آمریکا به لارک است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78101)
 
 ---
 
