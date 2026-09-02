@@ -3,8 +3,94 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-02 18:19:09 </h5>
+<h5> 🟢 Updated at: 2026-09-02 21:44:57 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-02 21:42:20
+
+<img src="https://cdn1.telesco.pe/file/R7WCnVASiIFqx9P06CYTZHBpd-zgus8IHOvRTWjYCnIvadoFPSuRYuR3yz8_xflj3wDwr6Sfe6-d0Xr8K9dKHfDwo8SFtJvrQEuIlDj_KuAvxXDGfPa8Dx8kjtRtuR8zIVPFmTHRbtqLcs5FPYeSbNaDCrKbTtdt6A-yk5MRqxPg1ZBwuVan2ZZyfCV3kyYMPgXlyBXh5F_XDPXT3TbKZLGeVvXUVWW8zPVDfFmrIf45tbwOtG6TuSWgBlqxDycyFOe9WBwXNZLBGYLEN5B9sitjH_0JVfKFhIMiyGO8g_xFHzTonVSDnOVdsuy7XdxZKWx9hvu8PoOrq3nJkKeCcA.jpg" width="400"><br>
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا در گفتگو با شبکه نیوزمکس گفت که ایالات متحده لزوما به دنبال فروپاشی جمهوری اسلامی ایران نیست، هرچند تحولات درونی و قیام مردم امکان‌پذیر است.
+او همچنین به مخاطرات شخصی پیش‌روی رهبران و فرماندهان نظامی ایران با افزایش فشارها اشاره کرد.
+بسنت ادعاهای ایران درباره کنترل بر تنگه هرمز را رد کرد و گفت با عبور حدود ۱۷ میلیون بشکه نفت در روز گذشته، کنترل ایران بر این تنگه بی‌معناست. او همچنین گزارش‌ها درباره وجود مین یا برخورد دو کشتی با مین در تنگه هرمز را تکذیب کرد و رسانه‌ها را به بازنشر سریع ادعاهای نادرست ایران متهم ساخت.
+وزیر خزانه‌داری آمریکا، با اشاره به تداوم خرید نفت ایران توسط چین تاکید کرد که تنها حدود ۳۰ میلیون بشکه نفت ایران روی آب باقی مانده و این ذخایر نیز به‌زودی به پایان خواهد رسید.
+بسنت روز گذشته نیز در جریان سخنرانی در مجمع اقتصادی جی۲۰، تاکید کرده بود که فشارهای اقتصادی یا به ایجاد شکاف و دودستگی در سپاه پاسداران و احتمالا مقابله مردم با آن‌ها منجر می‌شود یا مقام‌های تهران تصمیم می‌گیرند که به میز مذاکره بازگردند.
+@
+VahidOOnLine
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در گفت‌وگو با شبکه آی‌۲۴ درباره حکومت ایران گفت: «نیروهای ما می‌توانند هر لحظه در آنجا باشند. ما این حکومت را شکست خواهیم داد.»
+نتانیاهو درباره اینکه آیا منظور او از شکست دادن، سقوط کردن حکومت است، گفت: «بله، سقوط خواهد کرد و ما آن را سرنگون می‌کنیم.»
+نتانیاهو در پاسخ به این سوال که آیا رومان گوفمن، رییس موساد، برای سرنگونی جمهوری اسلامی فعالیت می‌کند، گفت: «همه دستگاه‌های ما تحت هدایت من برای سرنگونی این حکومت و شکست آن فعالیت می‌کنند.»
+نتانیاهو گفت: «در نهایت با سر اختاپوس، برخورد خواهیم کرد، بازوها را قطع خواهیم کرد و محور شر ایران را هدف قرار خواهیم داد. این کار را با قدرت بسیار انجام دادیم؛ خلبانان ما آنجا بودند و هر لحظه می‌توانند آن جا باشند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78193)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-02 19:45:36
+
+<img src="https://cdn1.telesco.pe/file/eSrv0R_E_pAsd4NBKlmqnvJobGixws7SH4CWDj36JD4SFBZbQR71y_mnv298Tpvt2OmtYCV2y_J_zisWnux4pDOJg2sdwhFzLfYDrxdBGzD9s-rFta2mMVs_25ESCilckibr6keOL9W-V3TdwCCe4NejFDlPicK0lYl4hOF9rL_2dd2F1LMEfJlg4vPvpGqzEFq8L4hEO-Kd5Z8KQMsZ_wiCi5af0AZ1Y-YbUin9-dJQoM9GFgEi-Lm7bSx_Zm6yJpwPrAas0R1H5vixjNC57ZSfLPrrxFSiNEN0tBLxTwF_0KPhkrWCFgHwIwQmSFeN6P1Tw4WBl1U2mKD_11ijNg.jpg" width="400"><br>
+
+محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، با هشدار به ایالات متحده گفت تهران در جنگ جاری از «راهبردی جدید» استفاده خواهد کرد.
+رضایی، چهارشنبه ۱۱ شهریور ۱۴۰۵، در پستی در ایکس نوشت که تلاش‌های آمریکا برای خروج از شرایط کنونی نتیجه‌ای نخواهد داشت و افزود: «به‌زودی خواهید دید که راهبرد جدید ایران در میدان نبرد، دیپلماسی و مقابله با محاصره اقتصادی، پایه‌های شما را درهم خواهد شکست.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78192)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-02 19:15:05
+
+<img src="https://cdn1.telesco.pe/file/CptemAlHt3BicXrRM-FoOdZzPLHjNqX-4zcyHONfshPZMA7_aKMnmJv6XPjiODMv6arYO6Vc9BAV2FDlgyyGUE0EoWtvIIEX9J1Qvc6-oX9lKqH9e93q3xrvSOEqaQNSgQyishkHsTcOeCDf3ec5PVYq1s9-fsg3dVPEfeqKCIEa5_3nTWvS9BWVSnruhOfg0numj8nvhbBZwr-WHQ44WcLRW31IWfXYw7Bhk-nKI6Nl7w0Zr_bxiiBhyAavMkDoVJp5fVR_loQQ47KxXgOwgCGCbYdx3zCnYPNE930Ph80GWlCLj4e9_s76LLxJqmTZIfY5hBOK8nWH17yCspeIGA.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+حالا که آن را تحت کنترل ایالات متحده آمریکا درآورده‌ایم، آیا باید نام «تنگه هرمز» را به «تنگه ترامپ» تغییر دهیم؟؟؟ درست مثل خود آمریکا، این تنگه هم «داغ‌تر» از هر زمان دیگری خواهد بود!
+از توجه شما به این موضوع سپاسگزارم.
+رئیس‌جمهور دونالد جی. ترامپ
+Now that we have it under U.S.A. control, should we change the name Hormuz Strait to TRUMP STRAIT??? Like America itself, it would be “hotter” than ever before! Thank you for your attention to this matter. President DONALD J. TRUMP
+realDonaldTrump
+در خبری دیگر:
+ترامپ در گفت‌وگو با پادکست «دن پاتریک»، درباره حملات سه‌شنبه شب آمریکا در اطراف تنگه هرمز، گفت: «ما اکنون کنترل تنگه هرمز را در اختیار داریم. ما آن را کنترل می‌کنیم. دیشب ۲۸ کشتی را از بین بردیم. ما آن را کنترل می‌کنیم، آنها چیزی دریافت نمی‌کنند و ما کشتی‌ها را از بین بردیم.»
+ترامپ همچنین درباره حکومت ایران گفت که جمهوری اسلامی دو هفته با داشتن یک سلاح هسته‌ای فاصله داشت. او افزود: «اگر آنها سلاح هسته‌ای داشتند، اسرائیل از بین می‌رفت، خاورمیانه از بین می‌رفت و آنها به شهرهای ایالات متحده حمله می‌کردند. چون آنها دیوانه هستند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78191)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-02 19:13:15
+
+<img src="https://cdn1.telesco.pe/file/jokr8_-MUlmeq_nAkRroPLP-OCRCGMXMwpRBl6z971sgGiDMmByT_ZqUTE-bKTODM5zQwGq9F8UOjiZjmMw9oTOS91MWW57PwM0kZLvw5EvbaC-eO0t1thGUaqTn0ArDNNgcvkFEwoQPyEIVd26x-8pjhph7_AxJka5vw_lcw8fnNYi8HCH6FzOb-e5p0AHCKbIySNoSG4gYB7ShTrTMNfxbSVztezZd3eVZypZ6keFYm6sY4sXJCpm8QlDmyR0lpeC-Bt-ZP317xEU5uWp3GbN_HNglwbR7n5oajbqlBzpCKi4v5pvTV69v24f7FpxQYMlziRePiFMTSQBYplg_MQ.jpg" width="400"><br>
+
+رییس مجلس شورای اسلامی گفت: آمریکایی‌ها باید به تعهدات خود عمل کنند تا ما اقدام به بازگشایی تنگه هرمز کنیم.
+محمدباقر قالیباف، در دیدار با مسئول ارتباطات اسلامی حماس گفت جمهوری اسلامی مذاکره را رد نمی‌کند، اما آن را «ابزاری برای مبارزه» می‌داند.
+او گفت کنار گذاشتن مبارزه با آمریکا و اسرائیل به معنای شکست است.
+او افزود جمهوری اسلامی در جریان مذاکرات، پایان جنگ علیه ایران و متحدانش در «جبهه مقاومت» را در ماده نخست تفاهم‌نامه مطرح کرد، در حالی که به گفته او، طرف مقابل در متن اولیه ۱۵ ماده‌ای خواستار توقف کامل فعالیت‌های موشکی، هسته‌ای و فعالیت‌های «جبهه مقاومت» شده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78190)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-02 17:01:07
@@ -221,69 +307,6 @@ KuwaitArmyGHQ
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78175)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 01:45:39
-
-<img src="https://cdn1.telesco.pe/file/IKWMO30BkGpx2-TbTobMFOZScXcdsUuLlXFBIvJ_AWacCaSrIKBjodtgh9PwGSXgyvD57R4VpETxOGOxv4dt765dD9ocO7e-3x9wV8GWEt9G5QYcUcELdGdOGeIwC_qWGzGptYp5D1UU4W5OfEHuP8Oew2-Usibq37nNchlp7j5VAnqC_DNUFsERsjbyQPp_rFKsn9eUkBBMYWJ6XHDdf341FMJtAnwJRz0s5YLUczsa9feTZCgyrUA5X_VWrEMvQJqGwuY-BCkqCKX51YRLa7TVExGbCqAdTBmZ9k01gaCqbAQK8eQTgwlDY2IIbL5abMcmU-StfAf2ngwE2yB7pQ.jpg" width="400"><br>
-
-تصویر دریافتی: صدور هشدار در کویت
-ترجمه ماشین:
-هشدار: خطر قریب‌الوقوع
-............. تهدید امنیتی .............
-همه موظف‌اند در مکان‌های امن بمانند و برای تضمین ایمنی عمومی، از پنجره‌ها و مکان‌های روباز و در معرض خطر فاصله بگیرند.
-دفاع مدنی — وزارت کشور
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78174)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 01:19:22
-
-
-
-پلیس راهور جمهوری اسلامی ایران:
-یک دستگاه هیوندای با سرعت بالا با یک دستگاه چانگان در مسیر موازی برخورد کرده که در پی این برخورد تعادل خودرو بر هم خورده و با جمعیتی که در حمایت از نظام و نیروهای مسلح در حاشیه خیابان حضور داشتند، برخورد می‌کند
-راننده حالت عادی نداشته و پس از برخورد با بشکه‌ها و علائم ترافیکی، با جمعیت برخورد می‌کند و در نتیجه این حادثه تعدادی از شهروندان فوت می‌کنند و برخی نیز مصدوم می شوند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78173)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 00:04:22
-
-
-
-⚠️
-پیکر بی‌جان
-ویدیوهای منتشر شده در منابع حکومتی: یکی در
-#مشهد
-با خودرو کوبیده به تجمع بسیجیان
-سه‌شنبه ۱۰ شهریور
-Vahid
-دست‌کم چهار کشته در برخورد خودرو به تجمع‌کنندگان در مشهد
-دقایقی پیش خبرگزاری‌های ایران گزارش دادند که راننده خودرویی که به میان تجمع‌کنندگان در بلوار وکیل‌آباد مشهد راند، بازداشت شده است.
-خبرگزاری صداوسیما گفت که در این حادثه «۴ نفر کشته و بیش از ۱۰ نفر زخمی شده‌اند.»
-پلیس راهنمایی و رانندگی مشهد گفت که یک ماشین «هیوندای جنسیس با سرعت بالا منحرف شده» و پس از آن به میان جمعیت برخورد کرده است.
-گفته می‌شود این خودرو به «تجمع‌ شبانه حامیان حکومت ایران» برخورد کرده است.
-هنوز علت این حادثه از سوی مقام‌های مشهد اعلام نشده است.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78170)
 
 ---
 
