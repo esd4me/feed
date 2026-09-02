@@ -3,8 +3,69 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-02 13:43:21 </h5>
+<h5> 🟢 Updated at: 2026-09-02 18:19:09 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-02 17:01:07
+
+<img src="https://cdn1.telesco.pe/file/KY6SZYhJc3OxcItwSIH48kcg9JyEbdVOxO8tIetPI0KFTtjztN4I3gSU_QAALFp3mBGO0ljE1EkmqwDthammCOkWD3isjUD2mViqBkjdUjcXx3VSOnGWYhb4bMBfhGfljwQDDmdyt_JFDkgilrZXbnasWfJvcXjmE6A0uo09uCoheMVZbpchh5nlQ8GC5uDQiNjXv-O2UoVL-Vgc7BQDHJaG1Dz_LAR0ZiO9Fzpp8MK6lWKnBbK9Gd2blb7An3pU6AHP-bE455awnBdtYHr7-rtwz6FYkeC45EROwOluDamPHUgf2F91nKES6Wg1qbPe-jRRtBOeS8FODPGSjFX1sA.jpg" width="400"><br>
+
+بر اساس آمارهای اعلام شده از سوی شرکت ملی پخش فرآورده‌های نفتی ایران، میانگین مصرف روزانۀ بنزین در نخستین هفتۀ شهریورماه از مرز ۱۴۸ میلیون لیتر گذشته است.
+بر اساس این آمارها، بیشترین میزان تقاضای روزانه در ۸ روز نخست آخرین‌ماه تابستان، بیش از ۱۵۴ میلیون لیتر بوده و در این بازه در مجموع بیش از یک میلیارد و ۲۰۰ میلیون لیتر بنزین عرضه شده است.
+کاهش شدید ظرفیت تولید در ماه‌های اخیر در اثر حملات آمریکا به تأسیسات نفتی ایران از یک‌سو و مشکلات دولت برای وارد کردن بنزین از سایر کشورها از سوی دیگر، باعث افزایش قیمت بنزین و حتی مطرح شدن احتمال بالاتر رفتن قیمت این فراورده و افزایش شدید تقاضا برای آن شده است.
+مسعود پزشکیان رئیس‌جمهور و شماری دیگر از مقام‌ها تأکید کرده‌اند که دولت توان چندانی برای وارد کردن بنزین و بخصوص عرضۀ آن با قیمت‌های قبلی ندارد.
+دولت ایران اما در عین حال ادعا می‌کند که تشکیل صف در برخی جایگاه‌های عرضۀ بنزین، ناشی از هیجان و بار روانی بوده و مشکلی در تأمین بنزین مورد نیاز کشور وجود ندارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78189)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-02 16:52:31
+
+<img src="https://cdn1.telesco.pe/file/kvxBNaD4W0JroiUqx2HPu69QVbxYa-uQjsxpXlTxE1uon5o52b6V-x9MHbJPeEQBQa6MeJaj-nTZs7sTVwQeVILJy4WQ4PBQrAVSjx2uSEMpYvhv1XlX_rOhNKxi6_v9IFufDmNhdujlruOBflF5AfSVzeic2brDjniGesEaHCRm8q-IH-vk4dCukjzcO0UIuoUy4Qp8R007ZzR7wPzIDf-d4vR9oqOUnRxKEWD5_OzLLvbzkEt1o2R9u3XiBhINCMRfYNez3jKAzUXNRZyCguaEGpzP_-EI0wAosEuIW4XDpbb0a3CsP38ZrJuWjlUUEIvEOGOFvh5ff5Ff2X9cvw.jpg" width="400"><br>
+
+قیمت ارزهای خارجی در ایران بامداد چهارشنبه ۱۱ شهریور و ساعاتی پس از دور جدید حملات آمریکا، رکورد تازه‌ای ثبت کرد و قیمت یورو، پول واحد اروپایی، برای نخستین بار از مرز ۲۵۵ هزار تومان گذشت.
+وب‌سایت‌های اعلام نرخ ارز قیمت دلار از جمله «نوسان»، قیمت دلار آمریکا را حدود ۲۲۰ هزار تومان گزارش کردند. قیمت درهم امارات هم به بیش از ۶۰ هزار تومان رسیده است.
+افزایش قیمت نرخ ارزهای خارجی در بازار آزاد ایران از زمان اعلام امارات در قطع روابط مالی با ایران و آغاز برنامهٔ فشار اقتصادی آمریکا موسوم به «عملیات طرد اقتصادی» شدت گرفته است.
+در دو هفته اخیر پول ملی ایران در مقابل ارزهای عمده خارجی بیش از ۱۰ درصد دیگر از ارزش خود را از دست داده است.
+روز چهارشنبه قیمت سکه طلای موسوم به «امامی» هم با وجود کاهش جهانی قیمت طلا، ۲۲۴ میلیون تومان گزارش شد.
+عبدالناصر همتی، رئیس‌کل بانک مرکزی، روز ۱۰ شهریور ادعای کمبود منابع ارزی و احتمال فروپاشی اقتصاد ایران را رد کرد و گفت بانک مرکزی آماده است برای مهار بازار تا دو میلیارد دلار ارز عرضه کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78188)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-02 16:36:35
+
+<img src="https://cdn1.telesco.pe/file/DVRQvmINoKGHN0LW0hHbNmkH4V-GkIDAJ5e3Hz4c-SI_vkH0ewkJ9Nk57JUJDvJrv2vlGOvobkW7KHOcFblmy6EAzRXW-yVfRGRZOf5971jdCe4XuAKMmhLDE40QSAVhwdgDkQT_oqr35UhIr6bS8kS9jVrrNGaoyy5b_8obzOXWFJnNxWK6GhbsaNIxWbquJQq9n2ZBtBxIyJ5-rDDpuLAy8TMmF4x-PfouvQAmnsAh_yNBLgAIMsfA-2r2kw9ApRNy-5IEHG6uAAbcmqHBCieAjheZG8RMbjRGxLGnP_VR6EOsVydg6o9CR1zoV0W2AbnlrsOFZZEOFSGqlTTMew.jpg" width="400"><br>
+
+وب‌سایت اکسیوس به نقل از مقام‌های آمریکایی گزارش داد که ارتش ایالات متحده در جریان موج حملات شامگاه سه‌شنبه دهم شهریور به اهدافی در جنوب ایران، «دو نفتکش دولتی» این کشور را نیز هدف قرار داده است.
+بر اساس این گزارش، این دو نفتکش در نزدیکی سواحل ایران و در شمال خط محاصره دریایی آمریکا لنگر انداخته بودند و پهپادهای آمریکایی با شلیک موشک موتورخانه‌های آن‌ها را هدف قرار دادند.
+فرماندهی مرکزی ارتش آمریکا، سنتکام، در بیانیهٔ رسمی خود پس از حملات سه‌شنبه‌شب اشارهٔ مشخصی به حمله به نفتکش‌ها نکرد، اما در تصاویر ویدئویی که از حملات منتشر کرد، صحنه‌ای از اصابت موشک به نفتکش نیز دیده می‌شود.
+اکسیوس می‌گوید این نخستین بار است که ارتش آمریکا نفتکش‌های ایرانی را نه برای جلوگیری از نقض محاصره دریایی، بلکه در واکنش به حملات ایران به کشتی‌های عبوری از تنگه هرمز هدف قرار می‌دهد.
+یک مقام آمریکایی این اقدام را بخشی از سیاست تازه‌ای موسوم به «نفتکش در برابر نفتکش» توصیف کرده که به‌گفتۀ او دونالد ترامپ برای بازدارندگی از حملات بیشتر ایران به کشتی‌ها تأیید کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78187)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-02 09:49:05
@@ -223,47 +284,6 @@ VahidOnLive
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78170)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-01 23:21:36
-
-<img src="https://cdn1.telesco.pe/file/BRx63rH-4ad-6jGoZdp5BSitCo0b-vFKDGRBXQX5v880og12F4_4xKoa-HsZBLiomSXq9Q7mrhLdKo8ZgeTPIIMuau5OMbhHClzur5eaUxb2BVNbClR-_ehfFa9xlo-FM0UsyCSFpt2ZfN8Drk5kUU_8-nWNyZ96cm2jCfLqrugO55Mv4STzAhuwxYDurAwPmYa1zHdxkeZQP_w31jpgzJTrLdADbh4gn4QrpI8RauF8xOMxgcJoWQaTnJ1rxtZzh6a_VFMAS2tXGRHcR6rUB_ZEHLjE5gwR3AcfU6U7SpskUvesJVRFc1IYOorbY25Z5Syh0s3OusGO4k7VwKHolA.jpg" width="400"><br>
-
-وضعیت دکل مخابراتی کوهستک که در منطقه مسکونی واقع شده بود.
-@iliaen
-
-[View Post](https://t.me/VahidOnline/78168)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-01 23:21:12
-
-
-
-آپدیت:
-'در حمله به سیریک دست‌کم ۵ شهروند کشته و ۷۰ نفر زخمی شدند
-رسانه‌های حکومتی در ایران گزارش دادند که شمار کشته‌شدگان مراسم عروسی در حمله هوایی آمریکا به کوهستک سیریک به پنج تن رسیده است.
-همچنین احمد نفیسی، معاون سیاسی، امنیتی و اجتماعی استانداری هرمزگان، اعلام کرد که شمار مجروحان این حمله به ۶۸ نفر افزایش یافته است.
-رسانه‌های حکومتی در ایران می‌گویند دست‌کم ۱۵ نفر از مجروحان کودک هستند.
-@
-VahidOOnLine
-در همین رابطه یک منبع محلی به بی‌بی‌سی فارسی گفت به گمان او هدف حمله هوایی «یک دکل مخابراتی» که در فاصله «چند متری خانه محل برگزاری عروسی و آن طرف خیابان» قرار داشته بوده است.
-@
-VahidHeadline
-در پیام‌هایی که من دریافت کرده بودم هم نوشته بودند هدف حمله یک
-دکل مخابراتی
-بوده و در اون حمله شهروندانی در خانه‌های اطراف، از جمله در یک
-عروسی
-، کشته یا زخمی شدند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78167)
 
 ---
 
