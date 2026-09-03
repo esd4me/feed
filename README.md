@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-03 05:40:11 </h5>
+<h5> 🟢 Updated at: 2026-09-03 11:01:06 </h5>
 </div>
 
 
@@ -114,6 +114,11 @@ VahidHeadline
 کوچکترین قربانی این حمله، امیرعلی کریمی چهار ساله بوده است.
 @
 VahidOOnLine
+آپدیت:
+بی‌بی‌سی چند ساعت بعد خبرش رو ویرایش کرد و اسم سلاحی که نوشته بود رو عوض کرد ولی همچنان نوشتند موشک.
+گویا پیش‌تر نیویورک‌تایمز هم درباره نوع پرتابه ادعای مشابهی مطرح کرده بود ولی بعدا پس گرفتند.
+با جست‌وجو دیدم یکی اینجا خیلی مفصل بررسی کرده:
+Mk20002000B
 📡
 @VahidOnline
 
@@ -340,7 +345,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-02 09:49:05
 
-<img src="https://cdn4.telesco.pe/file/G51fQX8R7GiQDmUJwgc_U7NQmrbEOF9Yo0z90E4gZ_6X0xCCn-doU3rylnAg3j_J-OlZWRKqin4fub2rfnN8OMcGOX-en-kwYglvpCrMUNguPWttCfwcX7WVAvF_kEXePZuU2lKcZQhHpnIeiSyJk5sEJgem5j4AUe2d5umkxiRYGuZSl1lF0CA4rCREmNiKpJAPAQfOgDXsG1iRtMk7Q-bq849SA4oLEhYCYRGcSsqZKuuinF1vy3swBaRnY_CVrAjk8-unySjsa0GKafTrvgEhyHdgtjmMKgA09IZ6SGOegsPehr4nIbUf8czvoTIs0jYi2vuCzhfyzg-z5IxAqg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/SD7hrw_-Gu-LUnukEjpF4drax7cbegsNfWSrXC9f3u9_h737jUV8w_gqDhmpeiABNTBnWrxZhnU7lV3pivggXfUUe4aJqkeFPGNAe2IF8uy5PwApd1tdh5pp470eNtOCJy7NuFyL9PwLEHqT75Y7sSmM7daKvoMwgtkruLFrlHy1AxdwE2_Ozo_3GrBuF2CI5AMaKSIrykP_oHrCc6uw0CYMriITS6dEHPDpxJ1Mz9YR9h17a0b2u3a19uJmh33pPTllfN6TUoXV6pXwI3sBiH7vOCmHlyV-Me57dX07ldoybrSawufSvDKzR5oVqVCrbLIA9vlKmtzn2O7KTMYz8A.jpg" width="400"><br>
 
 صبح چهارشنبه؛ وضعیت چند منزل مسکونی در کوهستک (هرمزگان).
 @iliaen
