@@ -3,8 +3,162 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-03 11:01:06 </h5>
+<h5> 🟢 Updated at: 2026-09-03 15:52:19 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-03 15:21:39
+
+<img src="https://cdn1.telesco.pe/file/kepLw6naIfmt4I9A6RJq4BfI9z3d-1HYaMkrf_BliU9bTkP3A8i5WQcQykpzAxOg75F-WuquTPnIL1DGS6EPYdEsQO6JQDb6uyg7dPFnlXlO_YoMimG0o-Rjk2gAYLypQw29YsEag9QPvhKnlru76mqryXnJX3ixvualMoN2Wm4P4InqAZUOKFVzW5i7QWERO294uE4zyTODXkn5v0SSZv713KtnwJhYD5JY_ZZifHRixoE_w3YBzNFDZCGLjkFBoSr2qzT6wbXHc9lt3fJd27G5InPPmOy3qN60xcFrgsvSdraImukm6yK_bU4fk7m-lQCbpfBxqo0Z0KTGli4xBg.jpg" width="400"><br>
+
+dadban4
+:
+"امیرعلی قنبرزاده، بازیکن تیم نونهالان آکادمی بسکتبال پاس، روز ۱۹ دی ۱۴۰۴ در گرمدره استان البرز کشته شد.
+مادر او با انتشار این ویدیو نوشته است:
+«امیرعلی عزیزم، دل بارانا برات خیلی تنگ شده، جات برای مامان خیلی خالیه.
+شادی را به گور خواهند برد، آنان که رنج را در ما آفریدند.
+ما مادران نه می بخشیم و نه فراموش می کنیم.»
+امیرعلی قنبرزاده در جریان اعتراضات، جلوتر از دیگران حرکت می کرد و دست هایش را باز کرده بود تا از سایرین محافظت کند.
+او در همان حال با اصابت سه گلوله جنگی به سرش، جان خود را از دست داد."
+abelbalb
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78211)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-03 15:20:20
+
+<img src="https://cdn4.telesco.pe/file/KlGW_w-U6qbFprJkShhgns2DxlD6wy37J24OXPbtu1DnZLnBAyfygrlGFFDXHQlJxNCx8SXSg8qpkgBqBBicgO1XB4efJctySSgJ-PTmX1pZ7ChclB7C_rPRD7hk4Clqy-rO1S7RLVkaeLGMhsa-9tqFXd1WXHHMVqleZyXYoI3dyc6IKNglajjbDsmR22FrwitGTAhUQ2TeTElA-ha_s6zZpfRkVYBMpY9Z-MxOtciNonyEE56QuKjzL451yCpSF3olaeXLD_xLjllTLBvp5IPtak8Exfb3kfFytrhY2PUYYjmmbIgtQHc-dh-7H5GKa_M2Z49vUzb5a7ohkZp7zQ.jpg" width="400"><br>
+
+خبرگزاری تسنیم، نزدیک به سپاه پاسداران، از کشته شدن سه خلبان ارتش جمهوری اسلامی ایران در حمله سه‌شنبه شب آمریکا به ایران خبر داد.
+این خبرگزاری با انتشار اسامی و تصاویر این خلبانان گفته است دو نفر از آن‌ها از خلبانان نیروی دریایی و یکی از آن‌ها از خلبانان نیروی هوایی ارتش بودند، اما اعلام نکرد در کجا و چگونه کشته شدند.
+با این حال، اسامی اعلام‌شده سه نفر از هفت نفری هستند که روز چهارشنبه ۱۱ شهریور اعلام شد در حملات آمریکا به شهرهای اهواز و آغاجاری کشته شدند.
+در جریان حملات شامگاه سه‌شنبه آمریکا، به‌‌گفتهٔ مقام‌های ایران، مناطقی از جمله فرودگاه جیرفت در جنوب استان کرمان، عسلویه، کرمانشاه، مناطقی در استان خوزستان، شهرهای چابهار و کنارک در استان سیستان و بلوچستان، سیریک، لاوان، قشم و بندرعباس در استان هرمزگان هدف قرار گرفتند.
+سخنگوی وزارت بهداشت صبح پنجشنبه از کشته شدن «۱۸ نفر و مجروح شدن ۱۴۲ نفر» در جریان حملات اخیر آمریکا خبر داده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78210)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-03 15:07:23
+
+<img src="https://cdn1.telesco.pe/file/pVxsCFzVGWG5AJRf-1fND-5Xq9ajKPdO_YEyF7b6asDOaw3oKruxspW0BDwaa1W_K0ls8E28lVQ8bQfybBiyfPcQgrcjyGSvySevSiZgWx6vG5OSvA8hyU9SIrTNAGEy_-N64xyo0Tftjw2ChVx7SnXuZJkjUXW9xOIYbBfd92WUkEpUf2JSl5OcXI_VyPBxXgPlsjjiw4D7EYKz5rQ-uYIJ-ePBhTqjUYGa4dQ_9XYCEo010_iZiRBFHz3jUVGkLnvElNaRBl3YIFqPCRarAcALG7IREEaoMx19ax2yyXshKerK2LzFTTDXOdjbH18bDQWlsJf8r_p3Eo0VR68Img.jpg" width="400"><br>
+
+quotes
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78208)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-03 15:00:08
+
+<img src="https://cdn1.telesco.pe/file/gUKnNm6UBo8AnR6y2CjB_pOYcaipBZyoiaD543lCA_nvvNqwTNSpAPJmG0nzcloXgj3dxUE_6TKTnsSMmsde1vYELG5hGb1BEXhFDukO_Zzb3NKXtKayfynBMwzPMmCTwsDgA0t9lhg4OJYq4ku8yeXoReT1Coim68y_7LcElKWqRX6tFnQLp4u-WhbafrzB_91kUQm85GQ4FA8Y3o9tHBE8omCqXLEO7oK8JDOyv0_95Z5sjdGkcEhy4ITRF11343feMA682ohJ7O0sftd35x1-QhlX_yoXBAYWwDtZaLrv-Xwuk2dAsgkupLpr3wHPHVV6BpmB3aaz0EEsSPj0Aw.jpg" width="400"><br>
+
+یسرائیل کاتز، وزیر دفاع اسرائیل، پنج‌شنبه ۱۲ شهریور در مراسم روش هشانا با کارکنان وزارت دفاع اعلام کرد حمله جمهوری اسلامی به این کشور، اسرائیل را از همه محدودیت‌ها رها خواهد کرد و این کشور حتی زیرساخت‌های انرژی را نیز هدف قرار خواهد داد.
+وزیر دفاع اسرائیل گفت: تمام زیرساخت‌های ملی، نظامی و غیرنظامی، از جمله زیرساخت‌های انرژی را هدف قرار خواهیم داد و ایران را به اعماق عصر حجر و تاریکی بازخواهیم گرداند.
+کاتز همچنین افزود: فشار اقتصادی و نگرانی از قیام و سقوط حکومت ممکن است جمهوری اسلامی را به اقدامات از سر استیصال سوق دهد.
+او گفت: حکومت آیت‌الله‌ها در ایران به‌خوبی می‌داند چرا پس از آنکه دو بار ضربات سختی به آنها وارد کردیم، برنامه هسته‌ای را نابود کردیم، خامنه‌ای را کشتیم و به توانایی‌های راهبردی آنها آسیب شدیدی زدیم، به اسرائیل حمله نمی‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78207)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-03 14:48:50
+
+<img src="https://cdn1.telesco.pe/file/kdYfAtRG-xAa-GvX3zCvLEfNbAApbN5AfJqqx7tRLlgxfWDktA2XaYfzQeyQusXmvYmUO4ZKC0TZCZu96Hrn-BbmGbQryQfHbqxqRWuXSxRbdWlNhlbQKDDbRSiEqVmMBgVDYwCmOMbMC5zm-vpCufQAlw2dFMAW5nu0jpnf3_w3yOBcPvZA-WbxSkgldpdSU73vKk7pDwuh5c3XmaOBU2L-FqR9v_Jcjs0H1wDZS1ZLWxlQFOKPLYtKCr9wHTq-rExtyOsG6satT9_QjMrpL0icYXRC5erI_-oUM67ap8TgOBBATwzDM0GDNgzIIsqUmafh5AarXspuwVZOVwiniw.jpg" width="400"><br>
+
+شرکت خودروسازی سایپا، روز پنجشنبه ۱۲ شهریور ماه و چند روز پس از آغاز ثبت‌نام طرح فروش فوق‌العاده، با صدور اصلاحیه‌ای رسمی، بهای مصوب چهار محصول عرضه‌شده را به بهانه «افزایش هزینه گواهی اسقاط خودروهای فرسوده و سایر عوارض قانونی شماره‌گذاری» به‌طور چشمگیری بالا برد.
+بر اساس جدول جدید منتشرشده، بهای مصرف‌کننده «کوییک اس» و «سهند اس دوگانه‌سوز» هر کدام ۳۳ میلیون تومان گران‌تر شده و به ترتیب به یک میلیارد و ۳۲ میلیون و ۵۱۰ هزار تومان و یک میلیارد و ۱۲۳ میلیون و ۶۸۸ هزار تومان رسیده است.
+در بخش خودروهای مونتاژی و وارداتی نیز قیمت «سیتروئن سی۳-ایکس‌آر نسخه وی‌یک» با افزایش ۱۱۵ میلیون و ۵۰۰ هزار تومانی به ۳ میلیارد و ۳۸۹ میلیون و ۳۲۲ هزار تومان و قیمت «چانگان سی‌اس ۵۵ پلاس» با جهش ۱۹۸ میلیون تومانی به ۵ میلیارد و ۸۱۹ میلیون و ۱۲ هزار تومان افزایش یافته است.
+این در حالی است که متقاضیان در روزهای گذشته بر مبنای نرخ‌های اولیه اقدام به ثبت درخواست کرده بودند و حالا این محصولات با موعد تحویل ۹۰ تا ۱۲۰ روزه با نرخ‌های جدید تحویل داده خواهند شد.
+روز چهارشنبه ۱۱ شهریور، بازار آزاد نیز با موج تازه‌ای از گرانی همراه شد و چند خودروی داخلی دیگر جهش قیمت داشتند.
+به‌طوری‌که تارا اتوماتیک با رکوردشکنی و رشد حدود ۱۰۰ میلیون تومانی به محدوده ۳ میلیارد و ۷۵ میلیون تومان رسید. بر اساس گزارش فرارو، در همین روز دنا پلاس اتوماتیک با افزایش ۲۵ میلیونی به ۳ میلیارد و ۱۹۰ میلیون تومان و پژو ۲۰۷ اتوماتیک پانوراما به ۲ میلیارد و ۹۸۰ میلیون تومان رسید و محصولاتی نظیر شاهین اتوماتیک پلاس و سورن پلاس دوگانه‌سوز نیز به‌ترتیب در سطوح قیمتی ۳ میلیارد و ۳۰ میلیون و ۲ میلیارد و ۴۱۰ میلیون تومان معامله شدند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78206)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-03 14:45:52
+
+<img src="https://cdn1.telesco.pe/file/FLeBwLrdWXfEx1DnwAXxE44jzPltf1R9TkKwKeAwdlidkBxfvTBIGIGqa5dyGn5_8ojl4hAc9h8PXGo_svr9_y56YJQEBnVhpJgiApZAq5okMrWjZ6mbKyonbE4yv8Nnl4jZ5VHtwC6o_H9EcJ-Zzp0-cg1T5lT9ponISnBihaPd7oT6MLO_iPTgE-MHw5zouYYG3xV0QCaT329C-xMqcciUaUHyh7axZjuu3X-LRYpIdrRzcr36K2u0DuSQ4wzZTwCcUF1-4G2MEUXU40_xx0E0p74NDhDavuCumo5tD6lyYkpXmhwoa5URknk0aVCUcZ71XCMt8DtzrJ-T5okK9Q.jpg" width="400"><br>
+
+حسین شریعتمداری، مدیرمسئول روزنامه کیهان، پنج‌شنبه ۱۲ شهریور در یادداشتی نوشت که ارتش و سپاه باید از «اهرم» عبور کابل‌های فیبر نوری بین‌المللی در خلیج فارس و تنگه هرمز برای «مقابله با آمریکا و متحدانش» استفاده کنند.
+مدیرمسئول روزنامه کیهان نوشت: «در عمق آب‌های خلیج فارس و تنگه هرمز یکی از شاهراه‌های فیبر نوری بین‌المللی جای گرفته است. شاهراهی که بیشترین ارتباطات اینترنت، تماس‌های بین‌المللی، تراکنش‌های بانکی، سرویس‌های ابری (iCloud) و حتی ارتباطات هوش مصنوعی و دیتاسنترها از همین کابل‌ها عبور می‌کنند.»
+حسین شریعتمداری، نماینده خامنه‌ای در روزنامه کیهان، تاکید کرد: «سخن با مسئولان کشور و مخصوصا با ارتش و سپاه است؛ خوب نگاه کنید! کابل‌های اینترنت جهانی از زیر آب‌های تنگه هرمز و خلیج همیشه فارس برایمان دست تکان می‌دهند و با هزار زبان می‌گویند چرا نقش ما را در این جنگ فراموش کرده‌اید؟»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78203)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-03 14:41:58
+
+<img src="https://cdn1.telesco.pe/file/rxThecU-eA_R-ds3QwJ2PVW6P627iUUk20TyLZeuJgrUvdiuaG1YBX3AN2VNPttZZ0m71Tz1bYa2ufHIVPYvBS9OJ7xoBxGFV6kRL7mIf_BqQ_8OJJd-7Bj6JxCVL-wqatmh2P1zY3gk9xNIxftwOEZmUVfJmzxrtjPT0QR09KoWP-2Dmv16u9XsrK7PCGSJFyPud5CZcF_v0vPtItAIEtWsazZVok33HzDWGZoq0KecDY2ZYEUDVJESSQ98BBo_-Egn0tLwehtz5pKeFNIp-cKTac0i2XigcYLcQgzDFRWvkAMu7YuBGWdT22QBN3wJ8zm2o1a6eEp4M5eoAunwqw.jpg" width="400"><br>
+
+همزمان با ادامه افزایش نرخ ارز در ایران، قیمت پوند بریتانیا پنج‌شنبه ۱۲ شهریور در بازار آزاد برای نخستین بار از مرز ۳۰۰ هزار تومان عبور کرد و تا زمان تنظیم این گزارش به ۳۰۰ هزار و ۲۸۰ تومان رسید.
+در همین حال، دلار در بازار آزاد با قیمت بیش از ۲۲۲ هزار تومان معامله شد و قیمت یورو نیز از ۲۵۸ هزار تومان عبور کرد.
+قیمت سکه امامی نیز از ۲۳۵ میلیون تومان عبور کرد و نیم‌سکه به ۱۲۰ میلیون تومان رسید.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78202)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-03 14:39:41
+
+<img src="https://cdn1.telesco.pe/file/EV7p7F_EXhtpudxhaF0Mc5MoMnDQNaJN_DB0A2adkV1g1rCm0ANH75Z9fdE720ebhn32z68X7a_9DsIFmkVt5fQkvfBQ96zlso9a_ejN0-FsilWyTUSEOcqQk6RdARfm4mu23ZwtC8ORi2mz7NIEzGvBGhPYyfAuwGKvd82caqtGdJM8y7L5pXKZImvY3dtHEy7jD9d1JV9cLEIZL_Az10V7HHSCUQAR7d7hOozDY6deJQ7RTWh7R4ApEp6HqJflmUEH93gbH0vXsl2_tjSk4HPXmyfC1K2eliKB4RJypHOn-RRWL83NAbq3HdcFVIqtaInyx6wX1_PN05ah0IgVaw.jpg" width="400"><br>
+
+دیوان عالی کشور حکم ۱۲ سال و شش ماه و یک روز حبس، مصادره تمامی اموال و دو سال محرومیت از کافه‌داری برای صادق ساعدی‌نیا، مدیر کافه‌های زنجیره‌ای «ساعدی‌نیا»، را تایید کرده است.
+خبرگزاری میزان، ارگان رسانه‌ای قوه قضاییه، روز پنج‌شنبه ۱۲ شهریور ۱۴۰۵ اعلام کرد این حکم به‌دلیل حمایت ساعدی‌نیا از اعتراضات دی‌ماه ۱۴۰۴ و تعطیل‌کردن واحدهای صنفی زیر مجموعه این برند صادر شده است.
+براساس اعلام قوه قضاییه، صادق ساعدی‌نیا به اتهام «فعالیت رسانه‌ای و تبلیغی علیه امنیت کشور به نفع گروه‌های معاند» به ۱۲ سال و شش ماه و یک روز حبس تعزیری و مصادره تمامی اموال منقول و غیرمنقول خود به نفع دولت محکوم شده است.
+دادگاه همچنین او را پس از پایان دوران حبس، به دو سال محرومیت از فعالیت در حرفه کافه‌داری محکوم کرده است.
+قوه قضاییه انتشار مطالب اعتراضی در اینستاگرام، حمایت از فراخوان‌ها، تعطیل‌کردن کافه‌ها و فروشگاه‌های مجموعه و تشویق کارکنان به شرکت در اعتراضات را از مصادیق اتهامات او اعلام کرده است.
+براساس کیفرخواست، صادق ساعدی‌نیا با سه عنوان اتهامی شامل «فعالیت تبلیغی یا رسانه‌ای برخلاف امنیت کشور»، «اقدام عملیاتی برای گروه‌های مخالف جمهوری اسلامی» و «فعالیت تبلیغی علیه نظام» محاکمه شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78201)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-03 05:08:04
@@ -116,9 +270,16 @@ VahidHeadline
 VahidOOnLine
 آپدیت:
 بی‌بی‌سی چند ساعت بعد خبرش رو ویرایش کرد و اسم سلاحی که نوشته بود رو عوض کرد ولی همچنان نوشتند موشک.
-گویا پیش‌تر نیویورک‌تایمز هم درباره نوع پرتابه ادعای مشابهی مطرح کرده بود ولی بعدا پس گرفتند.
+گویا پیش‌تر نیویورک‌تایمز هم درباره نوع پرتابه ادعای مشابهی مطرح کرده بود ولی بعدا پس گرفت.
 با جست‌وجو دیدم یکی اینجا خیلی مفصل بررسی کرده:
 Mk20002000B
+آپدیت:
+حال‌وش روز چهارشنبه ۱۱ شهریور ۱۴۰۵، به نقل از شماری از شاهدان محلی خبر داد که پیش از انفجار، صدای دو پهپاد در منطقه شنیده شده است.
+این رسانه، علی ملاحی، صاحب خانه و پدر عروس، را یکی از شاهدان معرفی کرده است. او گفته پیش از وقوع انفجار صدای دو پهپاد را شنیده و پس از آن، ساختمان هدف قرار گرفته است.
+شماری دیگر از ساکنان کوهستک نیز از مشاهده یک پهپاد یا شنیدن صدای آن خبر داده‌اند.
+منابع محلی همچنین می‌گویند خسارت‌های واردشده به خانه تنها ناشی از ترکش انفجار در یک محل دیگر نبوده و یک یا چند پرتابه مستقیما به ساختمان اصابت کرده است.
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -258,135 +419,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78191)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 19:13:15
-
-<img src="https://cdn1.telesco.pe/file/jokr8_-MUlmeq_nAkRroPLP-OCRCGMXMwpRBl6z971sgGiDMmByT_ZqUTE-bKTODM5zQwGq9F8UOjiZjmMw9oTOS91MWW57PwM0kZLvw5EvbaC-eO0t1thGUaqTn0ArDNNgcvkFEwoQPyEIVd26x-8pjhph7_AxJka5vw_lcw8fnNYi8HCH6FzOb-e5p0AHCKbIySNoSG4gYB7ShTrTMNfxbSVztezZd3eVZypZ6keFYm6sY4sXJCpm8QlDmyR0lpeC-Bt-ZP317xEU5uWp3GbN_HNglwbR7n5oajbqlBzpCKi4v5pvTV69v24f7FpxQYMlziRePiFMTSQBYplg_MQ.jpg" width="400"><br>
-
-رییس مجلس شورای اسلامی گفت: آمریکایی‌ها باید به تعهدات خود عمل کنند تا ما اقدام به بازگشایی تنگه هرمز کنیم.
-محمدباقر قالیباف، در دیدار با مسئول ارتباطات اسلامی حماس گفت جمهوری اسلامی مذاکره را رد نمی‌کند، اما آن را «ابزاری برای مبارزه» می‌داند.
-او گفت کنار گذاشتن مبارزه با آمریکا و اسرائیل به معنای شکست است.
-او افزود جمهوری اسلامی در جریان مذاکرات، پایان جنگ علیه ایران و متحدانش در «جبهه مقاومت» را در ماده نخست تفاهم‌نامه مطرح کرد، در حالی که به گفته او، طرف مقابل در متن اولیه ۱۵ ماده‌ای خواستار توقف کامل فعالیت‌های موشکی، هسته‌ای و فعالیت‌های «جبهه مقاومت» شده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78190)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 17:01:07
-
-<img src="https://cdn1.telesco.pe/file/KY6SZYhJc3OxcItwSIH48kcg9JyEbdVOxO8tIetPI0KFTtjztN4I3gSU_QAALFp3mBGO0ljE1EkmqwDthammCOkWD3isjUD2mViqBkjdUjcXx3VSOnGWYhb4bMBfhGfljwQDDmdyt_JFDkgilrZXbnasWfJvcXjmE6A0uo09uCoheMVZbpchh5nlQ8GC5uDQiNjXv-O2UoVL-Vgc7BQDHJaG1Dz_LAR0ZiO9Fzpp8MK6lWKnBbK9Gd2blb7An3pU6AHP-bE455awnBdtYHr7-rtwz6FYkeC45EROwOluDamPHUgf2F91nKES6Wg1qbPe-jRRtBOeS8FODPGSjFX1sA.jpg" width="400"><br>
-
-بر اساس آمارهای اعلام شده از سوی شرکت ملی پخش فرآورده‌های نفتی ایران، میانگین مصرف روزانۀ بنزین در نخستین هفتۀ شهریورماه از مرز ۱۴۸ میلیون لیتر گذشته است.
-بر اساس این آمارها، بیشترین میزان تقاضای روزانه در ۸ روز نخست آخرین‌ماه تابستان، بیش از ۱۵۴ میلیون لیتر بوده و در این بازه در مجموع بیش از یک میلیارد و ۲۰۰ میلیون لیتر بنزین عرضه شده است.
-کاهش شدید ظرفیت تولید در ماه‌های اخیر در اثر حملات آمریکا به تأسیسات نفتی ایران از یک‌سو و مشکلات دولت برای وارد کردن بنزین از سایر کشورها از سوی دیگر، باعث افزایش قیمت بنزین و حتی مطرح شدن احتمال بالاتر رفتن قیمت این فراورده و افزایش شدید تقاضا برای آن شده است.
-مسعود پزشکیان رئیس‌جمهور و شماری دیگر از مقام‌ها تأکید کرده‌اند که دولت توان چندانی برای وارد کردن بنزین و بخصوص عرضۀ آن با قیمت‌های قبلی ندارد.
-دولت ایران اما در عین حال ادعا می‌کند که تشکیل صف در برخی جایگاه‌های عرضۀ بنزین، ناشی از هیجان و بار روانی بوده و مشکلی در تأمین بنزین مورد نیاز کشور وجود ندارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78189)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 16:52:31
-
-<img src="https://cdn1.telesco.pe/file/kvxBNaD4W0JroiUqx2HPu69QVbxYa-uQjsxpXlTxE1uon5o52b6V-x9MHbJPeEQBQa6MeJaj-nTZs7sTVwQeVILJy4WQ4PBQrAVSjx2uSEMpYvhv1XlX_rOhNKxi6_v9IFufDmNhdujlruOBflF5AfSVzeic2brDjniGesEaHCRm8q-IH-vk4dCukjzcO0UIuoUy4Qp8R007ZzR7wPzIDf-d4vR9oqOUnRxKEWD5_OzLLvbzkEt1o2R9u3XiBhINCMRfYNez3jKAzUXNRZyCguaEGpzP_-EI0wAosEuIW4XDpbb0a3CsP38ZrJuWjlUUEIvEOGOFvh5ff5Ff2X9cvw.jpg" width="400"><br>
-
-قیمت ارزهای خارجی در ایران بامداد چهارشنبه ۱۱ شهریور و ساعاتی پس از دور جدید حملات آمریکا، رکورد تازه‌ای ثبت کرد و قیمت یورو، پول واحد اروپایی، برای نخستین بار از مرز ۲۵۵ هزار تومان گذشت.
-وب‌سایت‌های اعلام نرخ ارز قیمت دلار از جمله «نوسان»، قیمت دلار آمریکا را حدود ۲۲۰ هزار تومان گزارش کردند. قیمت درهم امارات هم به بیش از ۶۰ هزار تومان رسیده است.
-افزایش قیمت نرخ ارزهای خارجی در بازار آزاد ایران از زمان اعلام امارات در قطع روابط مالی با ایران و آغاز برنامهٔ فشار اقتصادی آمریکا موسوم به «عملیات طرد اقتصادی» شدت گرفته است.
-در دو هفته اخیر پول ملی ایران در مقابل ارزهای عمده خارجی بیش از ۱۰ درصد دیگر از ارزش خود را از دست داده است.
-روز چهارشنبه قیمت سکه طلای موسوم به «امامی» هم با وجود کاهش جهانی قیمت طلا، ۲۲۴ میلیون تومان گزارش شد.
-عبدالناصر همتی، رئیس‌کل بانک مرکزی، روز ۱۰ شهریور ادعای کمبود منابع ارزی و احتمال فروپاشی اقتصاد ایران را رد کرد و گفت بانک مرکزی آماده است برای مهار بازار تا دو میلیارد دلار ارز عرضه کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78188)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 16:36:35
-
-<img src="https://cdn1.telesco.pe/file/DVRQvmINoKGHN0LW0hHbNmkH4V-GkIDAJ5e3Hz4c-SI_vkH0ewkJ9Nk57JUJDvJrv2vlGOvobkW7KHOcFblmy6EAzRXW-yVfRGRZOf5971jdCe4XuAKMmhLDE40QSAVhwdgDkQT_oqr35UhIr6bS8kS9jVrrNGaoyy5b_8obzOXWFJnNxWK6GhbsaNIxWbquJQq9n2ZBtBxIyJ5-rDDpuLAy8TMmF4x-PfouvQAmnsAh_yNBLgAIMsfA-2r2kw9ApRNy-5IEHG6uAAbcmqHBCieAjheZG8RMbjRGxLGnP_VR6EOsVydg6o9CR1zoV0W2AbnlrsOFZZEOFSGqlTTMew.jpg" width="400"><br>
-
-وب‌سایت اکسیوس به نقل از مقام‌های آمریکایی گزارش داد که ارتش ایالات متحده در جریان موج حملات شامگاه سه‌شنبه دهم شهریور به اهدافی در جنوب ایران، «دو نفتکش دولتی» این کشور را نیز هدف قرار داده است.
-بر اساس این گزارش، این دو نفتکش در نزدیکی سواحل ایران و در شمال خط محاصره دریایی آمریکا لنگر انداخته بودند و پهپادهای آمریکایی با شلیک موشک موتورخانه‌های آن‌ها را هدف قرار دادند.
-فرماندهی مرکزی ارتش آمریکا، سنتکام، در بیانیهٔ رسمی خود پس از حملات سه‌شنبه‌شب اشارهٔ مشخصی به حمله به نفتکش‌ها نکرد، اما در تصاویر ویدئویی که از حملات منتشر کرد، صحنه‌ای از اصابت موشک به نفتکش نیز دیده می‌شود.
-اکسیوس می‌گوید این نخستین بار است که ارتش آمریکا نفتکش‌های ایرانی را نه برای جلوگیری از نقض محاصره دریایی، بلکه در واکنش به حملات ایران به کشتی‌های عبوری از تنگه هرمز هدف قرار می‌دهد.
-یک مقام آمریکایی این اقدام را بخشی از سیاست تازه‌ای موسوم به «نفتکش در برابر نفتکش» توصیف کرده که به‌گفتۀ او دونالد ترامپ برای بازدارندگی از حملات بیشتر ایران به کشتی‌ها تأیید کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78187)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 09:49:05
-
-<img src="https://cdn4.telesco.pe/file/SD7hrw_-Gu-LUnukEjpF4drax7cbegsNfWSrXC9f3u9_h737jUV8w_gqDhmpeiABNTBnWrxZhnU7lV3pivggXfUUe4aJqkeFPGNAe2IF8uy5PwApd1tdh5pp470eNtOCJy7NuFyL9PwLEHqT75Y7sSmM7daKvoMwgtkruLFrlHy1AxdwE2_Ozo_3GrBuF2CI5AMaKSIrykP_oHrCc6uw0CYMriITS6dEHPDpxJ1Mz9YR9h17a0b2u3a19uJmh33pPTllfN6TUoXV6pXwI3sBiH7vOCmHlyV-Me57dX07ldoybrSawufSvDKzR5oVqVCrbLIA9vlKmtzn2O7KTMYz8A.jpg" width="400"><br>
-
-صبح چهارشنبه؛ وضعیت چند منزل مسکونی در کوهستک (هرمزگان).
-@iliaen
-
-[View Post](https://t.me/VahidOnline/78183)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 09:34:55
-
-
-
-روستای کوهستک در سیریک هرمزگان
-ویدیوی منتشر شده در منابع حکومتی از مکانی که مورد حمله هوایی آمریکا قرار گرفت.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78182)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-02 04:47:57
-
-<img src="https://cdn1.telesco.pe/file/bbb5MzzWJ6qEZfe_7-g-xrpAt3EOgfsL7ub-QlgjH5kgE1XzQ2R6dHi9VcBrChVPflcnZ7MvIZAF7lPRXWzUupPAwnFoo20epnx4t6Rp5vFhpRL846-viyFknAdUu7Ckz5e9lCvU077k5D-HgfvfoG7qvONT9H0DlCahRsgmoEaziLZyB9Epx0dr5hrjzd6sayJAxHxsJneyCakZCQnOURPOylnraMCnzbq8EAQ9ASrjRnMmkaF9Fvuq1oBM-sr7jBknL6nId3Q50RUTRQ0BTeL5s0IxZFFNlZXUZuJtPvH_TaNve-ug5RR2sYGQ8ncbhJ877MYSiq4e_2JdGx8hWw.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-من تلاش نمی‌کنم ایران را، آن‌طور که ABC Fake News گزارش داده، به پای میز مذاکره بکشانم.
-اصلاً برایم مهم نیست که آن‌ها توافقی امضا کنند که برای خودشان هم ارزشی ندارد.
-من موقعیت فعلی‌مان را خیلی بیشتر می‌پسندم؛ با کنترل تقریباً کامل بر تنگه هرمز و اقتصادی که در ایران کاملاً در حال فروپاشی است.
-آن‌ها فقط دارند روند اجتناب‌ناپذیر را طی می‌کنند.
-مردم ایران چه زمانی به پا خواهند خاست و خواهند جنگید؟
-رئیس‌جمهور DJT
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78181)
 
 ---
 
