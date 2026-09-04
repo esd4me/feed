@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-04 13:41:59 </h5>
+<h5> 🟢 Updated at: 2026-09-04 18:07:43 </h5>
 </div>
 
 
@@ -264,7 +264,7 @@ truthsocial.com
 
 ###### 🔵 Post time: 2026-09-03 17:46:34
 
-<img src="https://cdn1.telesco.pe/file/mb3W5TX_IZSVnNTe4bFmR1f8II52i7L9GmsBMigNPkmRddDBX-BrUN0E0n-cAd9SO8HOTJByYKviQDTxyRCTHf1otkLxFHs-VugHPdc_IdkDC9XM5BwED7ura8J8X_ILrffw4Rp9JmkSmuT9fbGeDAaYYStmkfca_ln-2egWr2U8LiDUHYCs_UJXAMqRyFIWt494-wPvKeLR1AyFSp-dl1n_tpJ8H2b8a32tzHVG8SCnz36-QH7DLQ0tnANvPNNYf--y5OkLZaIp9xgHTGWlYl9dPtE92bRHMAyHrMIHvmDR87lLY5J7r1jhFz1Pq8G0laTVi-kLBmeR_2Xj64ajqQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IFInElQKr9en2s1zPMdgCs9BJFr0smH_tzWDoZdhqdAqmWT6vT_VYv93yQJhRkyOZkaDPbHps5aTQARBw7bJvliP05zDY6AoKJZ0ZMu4J05DYkZIUbuxxTlCMCFvsEPv28P88HLyvxnl4aedcz6KE9gpOngFhi7UDNG-UHdNhcxs3-Ot3alEmcpOjecLnTeLfd8VwS_czBdoLY980144UHOVYj7j4UvZaDPXzXHhvqZqHuXN_TBK9SG3ALXYB5cOUkz_2H8w6n5lNpD2ipY8NJeI1AnboMaZm153yA9gM9vPN3pKNy4rjCPr5iLVYk1XzTvZGAHlPMywYU4FRu6Nsg.jpg" width="400"><br>
 
 محمدرضا عارف، معاون اول رئیس‌جمهوری اسلامی ایران، روز پنجشنبه ۱۲ شهریور هشدار داد که «ماه‌های تاریکی» در انتظار اقتصاد ایالات متحده است و از مردم آمریکا خواست اقدام به ذخیره‌سازی سوخت و بنزین کنند.
 او تاکید کرد که «جنایات جدید آمریکا»، دکترین دفاعی خود را به تاکتیک‌های «نامتوازن» و «چندلایه» تغییر داده است.
@@ -281,7 +281,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-03 16:49:13
 
-<img src="https://cdn1.telesco.pe/file/DJfDGu4hjwMz1dY1yzo96q2hhMNl98reVtnerfDi2lOTOe5zTiPrnHBAX1navjMLuBu6xbKSn9efElhB5nsbnOI8p_yExuWfBAo8mVGSKuNIjE5x38bL5a_g1zBQw9YZsPqzAiZtBGcMHi1OkvfYcnW-kgkUhkfPMVOV0u9fSe-41qt4aDZGIf-LpYtKQhfOYQboXATRq_F8ftUP6Y0-xoZDoVngQrok9m2mAYpTEJE0cWbr7ClVBcfQs50CXgQb4BRmevZ-60_zz9kdE3kdKMrQqHco9GEvbMCrI5UMja2g2hEN7_R0NYAXsuWFDuWyZuWQB_or9GXa5D9MJygz0A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qu2f6ZGRpfbnoEF4IGMPXVwOehPKtgkyWhb09UraMyDK7cL6zS3st-ouN7mPInDGpLis98F_oWk46fa-4Btb9VAH_yRPzXnfrls8WkFn5GsZ_DN6to_d-ozUquNrefZhuTQR9h-oEO3rSnzA9QTcDgYKkWLp-J8L5YVmpRNs2wRb-WU63vPRKzeps78QAapCFxtqD_wLkaibSW9M0jpNcdNqM8XtU5xR2quElMDWC2Qz0XNoqAkXmSPKohliYDaXN9gMBynyoMOKptlczWqmDCRYpW9MFmellej8HQANt0GvizZy7t6XuIaNc5Zc0GI-u_jsKfbnoK3pGOXDF0HXFA.jpg" width="400"><br>
 
 916208
 📡
@@ -295,7 +295,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-03 16:22:11
 
-<img src="https://cdn1.telesco.pe/file/JJsqNURcB_p8rERjlcMxmXs20oC52HWWtBp5z90H80NNf0s-ryR-sT10wcDO3moc4qzXbA_hgiHqLC4TTZ-cm2hohaKocWuECBjFpIO1wMdL41DR2TmbMWGsNS7KWPVt1Y2KVRCQ6vrhRjGzcV5l4SwDL1PkdTwjoqQsXpDPllxiFCllSe1xO2LOx33PR_MOfBg16S48TfXxWOCVg5Br2ILoNyHOdgoeqFuvdPy5f1PDVZ74K7WcmTkfeP4nNRUYSIcZEvQ-YuJBL4p2ybv-ikdk-1V0gvdrZMYy_qNfIQD6VO-zVVeomEkBRcduk3xnV-7OsYwo6IW4UfjSuk3adw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/HbKdKcWFv8CUzkudPYn5fUGfJmwff9y1uo-0dj7HVOwfqrAuXWjD6x_zo_HsAQClnWQTs977oqPWUvf8dCthmiLMHQsVWXcZcUHuTqyjcLGSCFFj4dK0PcPK9LM1wasgXgWQ9z-jn_65fHP0uKEtxoRl6IHaiEgJQ7_aONd8v3NwNyYpk02S2P2pGY5M1NySotic_526uZPJK34MraLBDNFOYZsoeY2TlzM0e0WYIx4QzSmXaSZ8vHrmla3SUyzCro-om6_dyevPQ3yRZWxXZIN2XyOuPFpRpTO3p_M0tuan-sE1U1NpglRzhohz75_-tYNLttp10gwltYBUxD5lpw.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا با انتشار تصویری در شبکه اجتماعی تروث سوشال، مجموع حجم نفت و گاز مایعی که پیش از جنگ از تنگه هرمز عبور می‌کرد را با میزان کنونی آن مقایسه کرد و نوشت: «حجم نفت هرمز بازگشته است!»
 ترامپ در این تصویر، مجموع حجم نفت و گاز مایع عبوری از تنگه هرمز در زمان پیش از جنگ را حدود ۲۰ میلیون بشکه در روز در نظر گرفت و میزان عبور این مایعات در حال حاضر را ۱۸ میلیون بشکه اعلام کرد.
@@ -314,7 +314,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-03 15:21:39
 
-<img src="https://cdn1.telesco.pe/file/kepLw6naIfmt4I9A6RJq4BfI9z3d-1HYaMkrf_BliU9bTkP3A8i5WQcQykpzAxOg75F-WuquTPnIL1DGS6EPYdEsQO6JQDb6uyg7dPFnlXlO_YoMimG0o-Rjk2gAYLypQw29YsEag9QPvhKnlru76mqryXnJX3ixvualMoN2Wm4P4InqAZUOKFVzW5i7QWERO294uE4zyTODXkn5v0SSZv713KtnwJhYD5JY_ZZifHRixoE_w3YBzNFDZCGLjkFBoSr2qzT6wbXHc9lt3fJd27G5InPPmOy3qN60xcFrgsvSdraImukm6yK_bU4fk7m-lQCbpfBxqo0Z0KTGli4xBg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JLNUrbulDVy_gqHfItqUX0q0bNSQk6_gp0rz6zWgzATOjjh7h4oQIIZhJiVpKxQD6kjB87lK4RV2U_hAq3DNQ8Ucukhwwsuz618bAaHCIs6Ej7PslCvNvWBxYgYbytHa6DVl2IAhqIlqGU0gBcNRTbyKc9WGaVICwDxGq-Ar83qlNoDUUsNgfgdWX4AkICXzNlWB5L9byQYZPFERs7UE_G8EiXygwpoR7SAtQZZYvGyNSNWEWg0nkzZ6xIi-lUNp8Q3IR_HmIgsIn4EGpm-Lkzy8A7qYO8z8muw7riywW70eTb4hTbXesA3YZzT1n3zcUmgQ6NcrQxVNHQ_Ca3jyfg.jpg" width="400"><br>
 
 dadban4
 :
@@ -337,7 +337,7 @@ abelbalb
 
 ###### 🔵 Post time: 2026-09-03 15:20:20
 
-<img src="https://cdn4.telesco.pe/file/KlGW_w-U6qbFprJkShhgns2DxlD6wy37J24OXPbtu1DnZLnBAyfygrlGFFDXHQlJxNCx8SXSg8qpkgBqBBicgO1XB4efJctySSgJ-PTmX1pZ7ChclB7C_rPRD7hk4Clqy-rO1S7RLVkaeLGMhsa-9tqFXd1WXHHMVqleZyXYoI3dyc6IKNglajjbDsmR22FrwitGTAhUQ2TeTElA-ha_s6zZpfRkVYBMpY9Z-MxOtciNonyEE56QuKjzL451yCpSF3olaeXLD_xLjllTLBvp5IPtak8Exfb3kfFytrhY2PUYYjmmbIgtQHc-dh-7H5GKa_M2Z49vUzb5a7ohkZp7zQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/f407m1JcH1cNHk9hHTgQR3y2F6ySi_g_I1rx2szqizkqxUEHkJbmD2YiBveqJDhQoF_1YyCcmgtfLFdmi6YscUmNrqKqX6uFvxpzM6EKA92J2QAZZ1TO-qX2yvr93-z4Q7qJNl6KsBhcPRT74vpapZUP9zNwYsD1Uq89XMM0n2kX-jzRWkaE2yd47BTcVmByiu8SAS5xoxG-C3qDJVUiZeWAWB8yCDOWRrHIzt2oR0E6DbIz5Jo7sTXJcxR7iIYjGRTMlXJsg2R39gpK7NZH5H3At3CrEmojPO3hhiCnOfJ45sKx-I4vI7LIPqJDshGNqa4wwLH6KPoNzR0vtz7Juw.jpg" width="400"><br>
 
 خبرگزاری تسنیم، نزدیک به سپاه پاسداران، از کشته شدن سه خلبان ارتش جمهوری اسلامی ایران در حمله سه‌شنبه شب آمریکا به ایران خبر داد.
 این خبرگزاری با انتشار اسامی و تصاویر این خلبانان گفته است دو نفر از آن‌ها از خلبانان نیروی دریایی و یکی از آن‌ها از خلبانان نیروی هوایی ارتش بودند، اما اعلام نکرد در کجا و چگونه کشته شدند.
@@ -357,7 +357,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-03 15:07:23
 
-<img src="https://cdn1.telesco.pe/file/pVxsCFzVGWG5AJRf-1fND-5Xq9ajKPdO_YEyF7b6asDOaw3oKruxspW0BDwaa1W_K0ls8E28lVQ8bQfybBiyfPcQgrcjyGSvySevSiZgWx6vG5OSvA8hyU9SIrTNAGEy_-N64xyo0Tftjw2ChVx7SnXuZJkjUXW9xOIYbBfd92WUkEpUf2JSl5OcXI_VyPBxXgPlsjjiw4D7EYKz5rQ-uYIJ-ePBhTqjUYGa4dQ_9XYCEo010_iZiRBFHz3jUVGkLnvElNaRBl3YIFqPCRarAcALG7IREEaoMx19ax2yyXshKerK2LzFTTDXOdjbH18bDQWlsJf8r_p3Eo0VR68Img.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/dNc0Iwopz-1tgTW5CQPC55vfrkpvlnUYE6EITfrq-2kjy4ZxH3idCW5PMFNT2bK_dDiwgsG9b5AeVjz5yw3T0-zb3bOxO2i_QL7geHkWfxhDi6ULzOIkrQo38A0L3KoUy3llsdZlMjiaOPWXw3vS-O4yatB2lhx8Oy17sQxbrIQD9x1PFasu3_bzMeq4mlUSGEFKXD6hNKJ8PG-tLcfTswxqx3wtJAbEc5pgfYEU59Wc_sDqxmsY2NVQz4XHLOO7XiciYjzn458xeC35qZ1R33vjNl1d6uKW3IkxkmZgC7EoiANhfAmPzFXJPWpcVdwrXNh5w4g4OI3t06aUvoxlBg.jpg" width="400"><br>
 
 quotes
 📡
@@ -371,7 +371,7 @@ quotes
 
 ###### 🔵 Post time: 2026-09-03 15:00:08
 
-<img src="https://cdn1.telesco.pe/file/gUKnNm6UBo8AnR6y2CjB_pOYcaipBZyoiaD543lCA_nvvNqwTNSpAPJmG0nzcloXgj3dxUE_6TKTnsSMmsde1vYELG5hGb1BEXhFDukO_Zzb3NKXtKayfynBMwzPMmCTwsDgA0t9lhg4OJYq4ku8yeXoReT1Coim68y_7LcElKWqRX6tFnQLp4u-WhbafrzB_91kUQm85GQ4FA8Y3o9tHBE8omCqXLEO7oK8JDOyv0_95Z5sjdGkcEhy4ITRF11343feMA682ohJ7O0sftd35x1-QhlX_yoXBAYWwDtZaLrv-Xwuk2dAsgkupLpr3wHPHVV6BpmB3aaz0EEsSPj0Aw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/F9wCUSTKYDnJ73dSRKSom5WtbwS-OBGCvVkiAZ2ij2sFzPQ7Ty-mqEEWXRQDADp3sJVQX3JnKEFVJMfWJD4BRzBDvXr7R2EakXSHdITDeFktys4CRhJz38prAC6ykkw2AIUlVlk96CowNWkTUP0MKWhA7D7w3paz7UA-18--AIuXzKVm95T8MuSeAlCsm63xjDLG4fSIjYGoVnbLVIx2Nf5SW52v3lVZTX55fLsNgrCD7Pzz96Z2doWV9umn37MnxM3kDt1kg5sLlwoFvOx5UfYvrqpdi_ztATn7VhSbbCkVC_V-umHBYfzk7C-vbuwSFSrpVXsOJnc-W0cW-pXUaw.jpg" width="400"><br>
 
 یسرائیل کاتز، وزیر دفاع اسرائیل، پنج‌شنبه ۱۲ شهریور در مراسم روش هشانا با کارکنان وزارت دفاع اعلام کرد حمله جمهوری اسلامی به این کشور، اسرائیل را از همه محدودیت‌ها رها خواهد کرد و این کشور حتی زیرساخت‌های انرژی را نیز هدف قرار خواهد داد.
 وزیر دفاع اسرائیل گفت: تمام زیرساخت‌های ملی، نظامی و غیرنظامی، از جمله زیرساخت‌های انرژی را هدف قرار خواهیم داد و ایران را به اعماق عصر حجر و تاریکی بازخواهیم گرداند.
@@ -390,7 +390,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-03 14:48:50
 
-<img src="https://cdn1.telesco.pe/file/kdYfAtRG-xAa-GvX3zCvLEfNbAApbN5AfJqqx7tRLlgxfWDktA2XaYfzQeyQusXmvYmUO4ZKC0TZCZu96Hrn-BbmGbQryQfHbqxqRWuXSxRbdWlNhlbQKDDbRSiEqVmMBgVDYwCmOMbMC5zm-vpCufQAlw2dFMAW5nu0jpnf3_w3yOBcPvZA-WbxSkgldpdSU73vKk7pDwuh5c3XmaOBU2L-FqR9v_Jcjs0H1wDZS1ZLWxlQFOKPLYtKCr9wHTq-rExtyOsG6satT9_QjMrpL0icYXRC5erI_-oUM67ap8TgOBBATwzDM0GDNgzIIsqUmafh5AarXspuwVZOVwiniw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JH1_Mx_3lTlBvH3A2ZcJbOmU054Qj4RU3kP1VqS69yvhZBpSduD8MrSb23iuclIOXVvrYnkqIHzc7WAakuiXaaGtFqOgKcI9V1MoaXRD4rUcvgjgX1eFP-jKgo0RZKv0r2xB1X05ZPRJANrlY5pN9xVBDcAzwfX5qrK-CyPf9xJA-GTrrUwBasSk5rnyZ0iBBrjSdk4ZE1YuFmgCMtDpTTWjtVLwNcb0AO20gdyHTxRE0Y0UvtRcsKLI52yt1qk8XkaehA-H18S0Smf2GxhQ5qGaA8dARSiHtvW1nXLugTudVw3-h-sVgr5PrSEN5WH4wsNIh8YZC6GlFWpP0-TKqA.jpg" width="400"><br>
 
 شرکت خودروسازی سایپا، روز پنجشنبه ۱۲ شهریور ماه و چند روز پس از آغاز ثبت‌نام طرح فروش فوق‌العاده، با صدور اصلاحیه‌ای رسمی، بهای مصوب چهار محصول عرضه‌شده را به بهانه «افزایش هزینه گواهی اسقاط خودروهای فرسوده و سایر عوارض قانونی شماره‌گذاری» به‌طور چشمگیری بالا برد.
 بر اساس جدول جدید منتشرشده، بهای مصرف‌کننده «کوییک اس» و «سهند اس دوگانه‌سوز» هر کدام ۳۳ میلیون تومان گران‌تر شده و به ترتیب به یک میلیارد و ۳۲ میلیون و ۵۱۰ هزار تومان و یک میلیارد و ۱۲۳ میلیون و ۶۸۸ هزار تومان رسیده است.
