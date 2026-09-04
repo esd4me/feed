@@ -3,8 +3,203 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-04 18:07:43 </h5>
+<h5> 🟢 Updated at: 2026-09-04 21:24:42 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-04 21:07:28
+
+<img src="https://cdn1.telesco.pe/file/qqgl3e3B7Ya2k3sxB0-S7Z84jQo6Y0mQE340MfaQPRaRlK769o6_l_57YiQubStaCHUtr4SNNl6bFkb_jxvS5DTw6WQjj55BZnk-mhf6scK_PH1Oi-B0GvZ9F9t_hC6cN0yuT2jbINdqBiERhVlpApeWeDbHjd5efDQv9a9Si13JOmAWt_2X-HMMpJvaOZPGJOn3R5IZq3etvMIkD0zVlzy2rpQw1gN50PPXltaALtbO2_6sZgri6hRgZLSRKN4hxUYxjAB05erzZ-O_PGZuwkybl82y2eMHgi89_ythEB-cr7YdSHk6pL10vHOwow8VSmB4MJJ3b-ZAvNCL7gA5Hg.jpg" width="400"><br>
+
+ایالات متحده آمریکا همراه با بریتانیا، فرانسه، و آلمان در تلاش است شورای حکام آژانس بین‌المللی انرژی اتمی هفته آینده قطعنامه‌ای تصویب کند که پرونده هسته‌ای جمهوری اسلامی را برای نخستین بار در ۲۰ سال گذشته به شورای امنیت سازمان ملل متحد گزارش دهد.
+خبرگزاری رویترز روز جمعه ۱۳ شهریور به نقل از دیپلمات‌ها و با استناد به متن پیشنهادی قطعنامه گزارش داد که چهار کشور در حال رایزنی با دیگر اعضای شورای حکام ۳۵ عضوی آژانس برای تصویب این قطعنامه هستند.
+مذاکرات درباره متن نهایی همچنان ادامه دارد و پیش‌نویس هنوز به طور رسمی به شورای حکام ارائه نشده است.
+بر اساس پیش‌نویسی که رویترز مشاهده کرده است، شورای حکام از مدیرکل آژانس خواهد خواست قطعنامه جدید و قطعنامه‌های پیشین مرتبط با برنامه هسته‌ای جمهوری اسلامی را برای اعضای آژانس، شورای امنیت و مجمع عمومی سازمان ملل ارسال کند.
+در متن پیشنهادی همچنین بار دیگر از جمهوری اسلامی خواسته شده است موارد نقض توافق پادمانی خود را «فوراً» برطرف کند و اقداماتی را که آژانس و شورای حکام ضروری می‌دانند انجام دهد تا مدیرکل آژانس بتواند درباره صحت و کامل بودن اظهارنامه‌های هسته‌ای حکومت ایران اطمینان لازم را ارائه کند.
+اقدام آمریکا، بریتانیا، فرانسه و آلمان ادامه قطعنامه‌ای است که شورای حکام روز ۲۲ خرداد ۱۴۰۴ تصویب کرد. در آن قطعنامه جمهوری اسلامی به دلیل همکاری نکردن کامل با تحقیقات آژانس درباره آثار اورانیوم در مکان‌های اعلام‌نشده، ناقض تعهدات خود در زمینه منع گسترش تسلیحات هسته‌ای شناخته شد.
+یک روز پس از تصویب آن قطعنامه، در ۲۳ خرداد ۱۴۰۴، اسرائیل حملات به تأسیسات هسته‌ای ایران را آغاز کرد و ایالات متحده آمریکا نیز پس از آن به عملیات پیوست. بر اساس گزارش رویترز، تأسیسات غنی‌سازی اورانیوم ایران در این حملات تخریب شدند یا به‌شدت آسیب دیدند.
+جمهوری اسلامی از زمان این حملات به بازرسان آژانس اجازه نداده است به تأسیسات بمباران‌شده بازگردند یا وضعیت باقی‌مانده ذخایر اورانیوم غنی‌شده را راستی‌آزمایی کنند. شورای حکام طی یک سال گذشته دو قطعنامه دیگر نیز تصویب کرده و از حکومت ایران خواسته است موجودی اورانیوم غنی‌شده خود را اعلام و دسترسی کامل بازرسان آژانس برای راستی‌آزمایی آن را فراهم کند.
+آژانس بین‌المللی انرژی اتمی برآورد کرده است جمهوری اسلامی پیش از حملات به تأسیسات هسته‌ای، ۴۴۰.۹ کیلوگرم اورانیوم غنی‌شده تا سطح ۶۰ درصد در اختیار داشت. بر اساس معیارهای آژانس، در صورت غنی‌سازی بیشتر، این مقدار می‌تواند برای تولید مواد شکافت‌پذیر مورد نیاز حدود ۱۰ سلاح هسته‌ای کافی باشد. آژانس میزان غنی‌سازی ۶۰ درصدی جمهوری اسلامی را «مایه نگرانی جدی» دانسته است.
+جمهوری اسلامی می‌گوید قصد تولید سلاح هسته‌ای ندارد و فعالیت‌های هسته‌ای خود را صلح‌آمیز می‌داند. ایران به عنوان عضو پیمان منع گسترش سلاح‌های هسته‌ای حق استفاده صلح‌آمیز از فناوری هسته‌ای، از جمله غنی‌سازی اورانیوم، را دارد؛ اما آژانس می‌گوید جمهوری اسلامی تنها حکومتی است که بدون داشتن سلاح هسته‌ای، اورانیوم را تا سطح ۶۰ درصد غنی کرده است.
+رویترز گزارش داده است در سال‌های اخیر هر بار آمریکا، بریتانیا، فرانسه و آلمان پیش‌نویس قطعنامه‌ای درباره برنامه هسته‌ای جمهوری اسلامی به شورای حکام ارائه کرده‌اند، آن قطعنامه تصویب شده است. با این حال، اقدام عملی شورای امنیت علیه جمهوری اسلامی ممکن است با مانع روبه‌رو شود؛ روسیه و چین که از متحدان حکومت ایران به شمار می‌روند، از اعضای دائم شورای امنیت و دارای حق وتو هستند.
+@
+VahidHeadline
+نمایندگی جمهوری اسلامی در سازمان ملل در وین اعلام کرد این اقدام آمریکا، بریتانیا، فرانسه و آلمان نشانه «شکست کامل توهم مکانیسم ماشه» است.این نمایندگی افزود این اقدام نیز «هیچ سودی» برای این کشورها نخواهد داشت.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78235)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-04 20:34:15
+
+<img src="https://cdn1.telesco.pe/file/cSsHGzWh23ZjwYY1oeY07QlVs9wJL--0POuV5K2VTainZGbsLiwd3WyL_ifk6iQ0iYQQyLeKbNMcqqk6iMIzTOCV_FrF3XhoWOC2cBKpRRSBGc6BVYoMKVXsN8jz6-mXRSF2HcYnlW0_UGpWL8Ksri6ESFQKXrIDg9j3k_6nE6RlJAiPFvJgJNdgzfh_qvlktBaHr5I8BnNipfXTsYGkKaFMuXnjSRB0KssEBP6bTi3i747pSrORtNd32wU7X0jlLzbCmCGybSMIoKpnS9fI8dkCEUM6eTC8D1GRLDNtGzg0CdKdWs4ZKxALfGScaajuQKaMWx6Xsl8j1JzwUW1wxA.jpg" width="400"><br>
+
+العربیه شامگاه جمعه گزارش داد که موشک‌های پرتاب شده از سوی ایران، در شمال اردن رهگیری شدند. به گزارش این رسانه تصاویر رهگیری موشک‌های ایرانی در شمال اردن منتشر شد.
+ساعاتی پیش از این گزارش، برخی کانال‌های تلگرامی نزدیک به سپاه پاسداران، اعلام کرده بودند موشک‌هایی از اصفهان، کرمان و کرمانشاه پرتاب شده است.
+@
+VahidOnLive
+وزارت خارجه قطر جمعه ۱۳ شهریور در بیانیه‌ای اعلام کرد این کشور طرف درگیری نیست و حمله به خاک قطر را نمی‌توان توجیه کرد.
+این وزارتخانه افزود موفقیت نیروهای مسلح قطر در رهگیری حملات جمهوری اسلامی، از خطر این حملات نمی‌کاهد.
+وزارت خارجه قطر همچنین در این بیانیه نوشت «تاسف‌بار»است که با وجود مستند شدن رسمی حمله به راس لفان، وقوع این حمله زیر سوال برده می‌شود.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78234)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-04 20:29:29
+
+<img src="https://cdn1.telesco.pe/file/FKJjGkG1NaLbk2BNHCuvIOyOJKGmuWeGXDK6PAkpAXXDP0j5qhCZ14Atv6r4I1TlRZjAyfKD683w7YrR1R0VjQCaRyAXNDF46EvNco9oDhfL2NkmDLA528z_uw0mNjPN3cr-v6n0qvprShzAeu8hP5Vd0O60dX5_UYi3kW6JdEeVKB-QjsiZQV7r-awUg-5IOBkhN9stQzZNWWtuYxQLMF7GMQcx95XL9gQ2gGS90BWD3t-vW__mDlxDlke4fe5NjHfJV92KKLnepdb9uq-aBbXGtYhktTVYKpHgPvpYjj7Y3qSLqmtz4iPHTGn8M5RNPHgT1xM7axh4UrLGRIgm_Q.jpg" width="400"><br>
+
+آمریکا یک بانک مستقر در ترکیه و دو شرکت وابسته به آن را به دلیل تسهیل انتقال ده‌ها میلیون دلار برای نیروی قدس سپاه پاسداران و فراهم کردن دسترسی جمهوری اسلامی به شبکه بانکی بین‌المللی تحریم کرد.
+وزارت خزانه‌داری آمریکا روز جمعه ۱۳ شهریور اعلام کرد «گلدن گلوبال بانک» و دو شرکت زیرمجموعه آن، «گلدن گلوبال وارلیک کیرالاما» و «گلدن گلوبال پورتفوی یونتیمی»، در چارچوب عملیات «طرد اقتصادی» به فهرست تحریم‌ها افزوده شده‌اند. هر سه نهاد در ترکیه مستقر هستند.
+وزارت خزانه‌داری آمریکا همچنین در حساب رسمی خود در شبکه اجتماعی «ایکس» اعلام کرد این اقدام بخشی از عملیات «طرد اقتصادی» است و هدف آن قطع «شریان‌های حیاتی مالی» جمهوری اسلامی در ترکیه است. به گفته این وزارتخانه، گلدن گلوبال بانک و شرکت‌های وابسته به آن ده‌ها میلیون دلار تراکنش برای نیروی قدس سپاه پاسداران تسهیل کرده و دسترسی مهمی به خدمات بانکداری کارگزاری در اختیار جمهوری اسلامی قرار داده‌اند؛ دسترسی‌ای که امکان جابه‌جایی بین‌المللی منابع مالی حکومت ایران را فراهم می‌کند.
+اسکات بسنت، وزیر خزانه‌داری آمریکا، با اشاره به کارزار دولت پرزیدنت ترامپ برای قطع منابع مالی جمهوری اسلامی گفت مؤسسات مالی همچنان درمی‌یابند که ایالات متحده در اجرای عملیات «طرد اقتصادی» جدی است.
+او افزود آمریکا امیدوار است بانک‌های بیشتری نیاز به تحریم نداشته باشند، اما این مسئله به این بستگی دارد که جامعه بین‌المللی به سرعت حمایت از حکومت ایران را متوقف کند. آقای بسنت همچنین تأکید کرد ایالات متحده به همراه متحدان و شرکای خود به اقدامات علیه شبکه‌های مالی جمهوری اسلامی ادامه خواهد داد.
+بر اساس اعلام وزارت خزانه‌داری آمریکا، گلدن گلوبال بانک برای فراهم کردن امکان انتقال درآمدهای نفتی جمهوری اسلامی از چین به ترکیه ایجاد شده بود؛ درآمدهایی که پس از انتقال به ترکیه می‌توانست به پول نقد و طلا تبدیل شود.
+وزارت خزانه‌داری می‌گوید این بانک همچنین آگاهانه پیشنهاد ارائه خدمات بانکداری کارگزاری به مؤسسات مالی جمهوری اسلامی را داده و از این طریق انجام تراکنش از طریق حساب‌های تحت کنترل نیروی قدس سپاه پاسداران و شبکه‌های وابسته به آن را امکان‌پذیر کرده است.
+در اطلاعیه وزارت خزانه‌داری همچنین به شبکه «سیتکی آیان»، بازرگان ترکیه‌ای، اشاره شده است. ایالات متحده این شبکه را پیش‌تر در سال ۱۴۰۱ به دلیل نقش آن در انتقال صدها میلیون دلار درآمد حاصل از فروش نفت مرتبط با نیروی قدس سپاه پاسداران تحریم کرده بود.
+@
+VahidHeadline
+اسکات بسنت، وزیر خزانه‌داری آمریکا، جمعه ۱۳ شهریور در شبکه اجتماعی ایکس نوشت از زمان برقراری دوباره محاصره آمریکا، هیچ محموله نفت خام ایران نتوانسته با موفقیت از تنگه هرمز عبور کند و به چین برسد.
+او افزود نفت خام در کشتی‌های گرفتار در داخل تنگه انباشته شده و امکان جایگزین کردن ذخایر صادرشده وجود ندارد.
+بسنت نوشت: «مسیر حیاتی صادرات ایران در حال قطع شدن است؛ نفت سرگردان، ظرفیت محدود ذخیره‌سازی و درآمدهایی که به‌سرعت در حال کاهش است.»
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78233)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-04 20:18:56
+
+<img src="https://cdn1.telesco.pe/file/GI63JacYQg-7dSS9hc6RMBU19vGrCDSEIeUXEP5FezPr7jo6_foO2vOS8k0qHSEi7zTJnTzJpkN1i9Hxf3YRIBDVbXhtgO7CY9gKzJYi-f10qqgyqimp-0jTL10VZdW2-cWV01tIhUZHcsnQF1BQCDJFX_Vpxqf3lRogJzYFxcS62jlnSfIzo88JMTN5A_V5ck9VpOWegpuFSlEzumxFZX1H8uKkig9jGjCX71rG5aYFCieRFDMQ5TWzcTSqIylXFViqQiQNItFRi-bZ4MTLPsAhbdK9d40vJ5_fGSm8mnJnzo8k2LrKzRy6XleQrKa8TzrUni1Quxl-Idb_xL7X8A.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+دیوانه‌های چپ رادیکال، دموکرات‌های احمق و کمونیست‌ها ترجیح می‌دهند ما در جنگ ایران شکست بخوریم تا اینکه رئیس‌جمهور دونالد جی. ترامپ جنگ را برای آمریکا ببرد.
+به عبارت دیگر، آن‌ها ترجیح می‌دهند ما ببازیم تا اینکه ما پیروز شویم!
+این‌ها آدم‌های بسیار بیماری هستند که از TDS شدید رنج می‌برند؛ چیزی که گاهی از آن با عنوان «سندرم جنون ترامپ» (TRUMP DERANGEMENT SYNDROME) یاد می‌شود.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78232)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-04 19:23:57
+
+<img src="https://cdn4.telesco.pe/file/OBWx3vPWnLweiTE6WUUexBtozUI0cuGzVMEuqWBeISntg2W9x0bzOne1QiVCa49mMyBxQsNsUuryVVbZ-ChsQZ8bTecCc4erHkemHXBjChuqqLpSp0nmP7-YQgiauSUy8X9h-Pg866TDW18BWJ03iH0xetnF_Rjv11PuOA77yqCImhoVXKngAb0DstUeO477_iOFddl5TPou11bD6g6Y2MSMDxvWoNOFe8kt28i6uxW2YtSycTT8kGsSm_df9vNFFqiqxsRO2xATM-UlwDkX55hHE-JGKq5-TBtMoVecYJBHNnUrw2UKJ1jMEKc_I0gknf5oq2tonkelrlMuOmW2Cw.jpg" width="400"><br>
+
+روزنامه «فایننشال تایمز» روز جمعه ۱۳ شهریور در گزارشی اعلام کرد اختلافات میان ایالات متحده و جمهوری اسلامی ایران بیش از پیش بر سر آینده تنگه هرمز متمرکز شده است؛ چرا که دولت دونالد ترامپ بازگشت به یادداشت تفاهم اسلام‌آباد را رد کرده، در حالی که تهران خواهان احیای این توافق به عنوان زمینه‌ای برای کاهش تنش‌ها و ازسرگیری عبور نفت از تنگه هرمز است.
+بر اساس این گزارش، تلاش‌های دیپلماتیک برای بازگرداندن طرفین به تفاهم‌نامه اسلام‌آباد که شامل توقف اقدامات نظامی، بازگشایی تنگه هرمز و آغاز مذاکرات جامع‌تر بود، با مخالفت واشنگتن روبرو شده است. آمریکا اکنون خواستار توافقی جدید و فراگیرتر است که علاوه بر وضعیت تنگه هرمز، پرونده هسته‌ای ایران را نیز شامل شود.
+در مقابل، مسعود پزشکیان تاکید کرده که کشورش آماده است به محض بازگشت آمریکا به تعهدات خود در توافق موقت، به تعهداتش عمل کند.
+با این حال، واشنگتن بر اهرم فشار میدانی حساب باز کرده و با تقویت حضور نظامی، مین‌روبی و ایجاد مسیرهای امن، سعی دارد ثابت کند ایران دیگر نمی‌تواند از تنگه هرمز به عنوان یک کارت فشار بر بازار انرژی استفاده کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78231)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-04 19:23:11
+
+<img src="https://cdn1.telesco.pe/file/KZaXdEvJWH1bpdORqov5-JKzzS574FzvfSdltAgQG26KsB6yTkU3Q7m4qZ2yScTczED12cZEGiKIgNbK9oEb6jCoJmBiK5X9DUj3UgXC82oo9SORu1_XmgyreK8f6X6QS1Ea5LewLXPenzMtBVnhDmXbFEiab8jiUOEiA_8OvWVZYTOUQgz1VHW_wV9hAIyr1cQePPg3vBul7nIKbcVAAYW7KUDAtatUtpPVA4QK5YJQNqdXbMWnM3QIu6OEvNLDE_faBsWuIMitgg7rPF2ZlQUw0Lc0VnAZf3A_w0hzVLuO99Tabst1ij9qGJm1V57qWOzumcFVNAlD2czFCw7zug.jpg" width="400"><br>
+
+قیمت گازوئیل در آمریکا با ثبت رکورد تازه‌ای به بیش از پنج و نیم دلار در هر گالن رسید.
+انجمن اتوموبیل آمریکا روز جمعه ۱۳ شهریور اعلام کرد که قیمت گازوئیل در این کشور در حال حاضر به پنج دلار و ۸۵ سنت به ازای هر گالن رسیده، در حالی که یک سال پیش قیمت آن سه دلار و ۷۱ سنت بود.
+هر گالن حدود ۳.۸ لیتر است.
+انجمن یادشده این افزایش قیمت را ناشی از اختلالات در حمل‌ونقل سوخت به‌دلیل جنگ آمریکا با ایران عنوان کرده است.
+گازوئیل، سوخت حیاتی مورد استفاده در حمل‌ونقل جاده‌ای، کشاورزی و ساخت‌وساز محسوب می‌شود و بیم آن می‌رود که افزایش چشمگیر قیمت آن، نرخ تورم را افزایش دهد.
+قیمت بنزین معمولی در آمریکا نیز چهار دلار و ۱۵ سنت به ازای هر گالن است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78230)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-04 19:22:09
+
+<img src="https://cdn1.telesco.pe/file/S1OiiUl5YHU1wNfpEWQotNqc_6xRgVTiCzFZEDPyU4c2IEYrXFZGXtbkTuB28kF_DGnObsxEoKnGwltuMS1-0M0U3PdpYkXoWSGx94vYD_nDOanhzLljfPEI29VQFnf9TLlDy4ue0Hb-Ni2bGAFIYB0DsGeNn4VLJVSIR1FY4U6h6E4oGbLVWfREiHhfkKr8G24cB2x93lNy3Nr-OAcvD2J10UKr8jxgNrw_p6vcKZ8vO0g08k3q0qFSoB2oEIPVLqJ-9UlgH_pvLkysHyWoxIAALB8z3exBnfMHwMbgf3Dxrkl0gGTAq_1LJVOgFmrP1TFSuusfrvEe5i24GrMaSg.jpg" width="400"><br>
+
+پیام‌هایی که من دیروز دریافت کرده بودم:
+▪️
+آزمون Pte  زبان برای ساکنان ایران لغو شد
+▪️
+موسسه‌ی پیرسون هم تمام آزمون‌هاش رو برای ساکنین ایران کنسل کرد.
+امروز صبح روی سایت اعلامیه زدن یک دفعه.
+مشهورترین‌هاش برای ایرانی‌ها امتحان مدیکال کانسیل استرالیا و وزارت بهداشت عمان هست.
+و امتحان‌ زبان PTE
+▪️
+ما جمعی از پزشکا برای مهاجرت استرالیا تلاش میکردیم و هزینه ازمونمون ۳۰۰۰ دلار بود
+الان لغو شده بدون هیچ توضیح خاصی
+دوستان هتل و پرواز بوک کرده بودند برن هند پیام بدن الان میگه نمیشه باید کارت اقامت کشور دیگه ارائه بدی
+خبر:
+موسسه بریتانیایی «پیرسون» که برگزار کننده آزمون‌ زبان انگلیسی «پی‌تی‌ئی» و آزمون ای‌ام‌سی (شورای پزشکی استرالیا) است، در بیانیه‌ای اعلام کرد که به دلیل تحریم‌های جدید آمریکا علیه ایران، آزمون‌های داوطلبان ساکن ایران را لغو می‌کند.
+پیشتر در تاریخ ۷شهریور۱۴۰۵، تعداد دیگری از برگزارکنندگان آزمون‌های مهارت‌های زبان‌های خارجی، از جمله دولینگو و تافل، اعلام کرده بودند که این آزمون‌ها دیگر در ایران برگزار نخواهد شد.
+پیرسون در اطلاعیه‌ای درباره لغو آزمون پی‌تی‌ئی آورده است: «در پی تعلیق 'مجوز عمومی G' توسط دفتر کنترل دارایی‌های خارجی (OFAC) در وزارت دارایی آمریکا، از ساعت ۱۲:۰۰ بامداد هشتم سپتامبر ۲۰۲۶ به وقت شرق آمریکا تا اطلاع ثانوی، ما قادر به برنامه‌ریزی یا برگزاری آزمون برای داوطلبان ساکن ایران‌ نخواهیم بود، مگر آنکه بتوانند مدرکی دال بر اقامت اصلی خود در خارج از ایران ارایه کنند.»
+در ادامه این اطلاعیه آمده است: «آزمون‌هایی که در حال حاضر برای داوطلبان مشمول این محدودیت برنامه‌ریزی شده‌اند، لغو خواهند شد. به‌خاطر این مشکل که برای آنها ایجاد شده، پوزش می‌طلبیم.»
+سرنوشت شمار زیادی از دانشجویانی که قصد مهاجرت با هدف ادامه تحصیل به کشورهای اروپایی، آمریکا، آمریکای شمالی و استرالیا را دارند تحت تاثیر این اقدامات قرار خواهد گرفت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78229)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-04 19:20:37
+
+
+
+پیام‌های دریافتی:
+الان از اصفهان موشک زدن یه دونه
+سلام وحید جان
+ساعت 7:12 دقیقه از اصفهان موشک شلیک کردن ( از سمت [....] اصفهان)
+همین الان [...] اصفهان موشک رفت
+19:13 از سمت [...] اصفهان موشک زدن
+همین الان ۱۹:۱۲ از سمت [...] اصفهان
+فکر کنم [...] بود
+بالسیک شلیک شد به سمت [...] رفت
+از اصفهان همین الان موشک زدن صدای وحشتناکی داد
+اقا همین الان یه موشک از سمت اصفهان شلیک شد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78228)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-04 02:04:24
@@ -194,7 +389,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-03 20:15:29
 
-<img src="https://cdn1.telesco.pe/file/Vpim8qT5hMX2oLbNnTgzgxPKNrml9NWBrloqObnluQL03pWA00ZZDWMMhyJBcCNbTZNpJLNlymc-z_ykpmNsiaRozLkNEuHXh3XA7GBOlae6hGenpefVGBGmPHlnfU36eCqm6TxTAxpNSa7lkPbewMHg6L8qFAbzZHbMuJVh6DabDD3B7LvPZHTNFeLq7g-Bh6CEzCinfW7rL4GsrmexUioL1zZ3iu7ULhy9Np6oMaVufWrGoeuHOT4CV3cJdbLZRztRhYZd3TpvwkJzKR_mjBMvx271iHdbdcvc_L8y5KHxmCEd5_r7SVm_YzdrIXthOYN1MMgyTsPKPmYm7kKFuw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IXblzcFcgqr00hB6mTZLFuNjrpyWJmDgZ6Gze9qcJbPFhzHpUf5fv38fia5fD2OiFJ8kVlWqy9ZCwFegnNEC2skRxcSDeh2uFG1qVFdygkSdPQbSnJ9VLDYF0K2_A7-jusDB9b6FlexpVNJzXqdEBSKCImvR7aQIs2o0b7t8SLcO7OfSapH0VKgfC7POHsxp5DcO5AqtwJdf7hRk0pdi9o-mgsFPAYjIHmnYNbOHUnMkS0Zh1L9dsfhkGbCI22InKn_Gvq86sVg8I4GhEwjcvnVjSy7Nm7amzzQj63Gcf4LLqJykkzC_EH9VPl7PtRfFxjUGO23AAfqqp6MWedWWqw.jpg" width="400"><br>
 
 📝
 درباره حمله به مراسم عروسی در سیریک چه می‌دانیم؟
@@ -227,7 +422,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-03 19:03:40
 
-<img src="https://cdn1.telesco.pe/file/Y68DCl1Hj28OnBqUKaWT1rAkj5W2VKgg61_rhP37CSugSmPIhbnBiyEPLxDix0MvC5FW_3dLjGtsYE8BxRKJq1W_AYMclxC3NfFLZICi2VPyh9ygY8Tql77upRPepORM1ju41xzbQkCfyVd759Bc8hfTE-tVFqMiv8QiXUqcqXmRCLulmjItGI4OOttDxx9GcI8b34lEeNcU1gIcl02xvuuWcbgLrc3GKSbZ_9Wg2Wcy5gfcBEuZJfjpUXtWIl2lEIb5RbsFIJfIUkL3OJ63PHY5tSGIjK3JgbgbkJxmokCqOYTeXkCK8kEnxofPtWmg4L1tSXeh5h8wd-z6olPd6w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Hc2y6KaSo5pvYlupJZVPJ2_xBeLMQ7GZ4qcerGxKsOWhD81WxatnBUt9_Pw6LfU6AFJkg-ZjYIO0U6EunWCfdcWhk4730UatQKHpKO49Q8Oe7wed21vZt1LAU5r79g_J2lCfPhVznrZAoQbn1kLHG1EyxDFUGtalyM7RuFQQ5m5eyfeSf24cnAvVKdWqt5YAl0nrcJMMtJVlZByFbP_QXRkldkeofQzzxb48orNxcY29HFN9fkVTmNYmiMsddm3UaRdbS3DQTHurS8NC1P06e9o2hLoV4gbHbfT94esV97tEJLOme78wL-28WTUZKJCGH6h8PZPLWWcodr__CuejZA.jpg" width="400"><br>
 
 این پست‌ها که در گوشه کادرشون نوشته شده Ad تبلیغاتی هستند که به خود تلگرام سفارش داده میشن.
 من نمی‌تونم جلوی نمایش‌شون رو بگیرم:
@@ -245,7 +440,7 @@ https://t.me/VahidOnline/77989
 
 ###### 🔵 Post time: 2026-09-03 18:48:47
 
-<img src="https://cdn1.telesco.pe/file/QRMS7w0bcLNcJodjfVXuqJ9rxj6QoITWVD-e5jnc7FNX4l1g4l2fx1TVHQqk7ei9ncaeDzGv_qH_DCq_PZfRdBal4Q59AGFtWDvoUvIIK6xaBqDvn3KebMx0gMDmM6IL6eShqSk8yt08jK8IiYkXv7XY9u8WflaG0OYa8RtJBygTGTUGTHTkkiQUPVijPn-3wx-P3tMFNV-Mp09Tw1F1G54-tustTgSTpNbMI5wWSaaTbEexpkKQZToeCnz-FrGUuK_yAXovqAVVtF9uX5nZBxZTeH0lXYGT3PfIcTqwzyKeFHEUF_7hFL0vQ9sv7nuKYu0UO7cj9ej3zscR3jfkvA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/AXsr6PhuJI--_vJZovpqnCSDIyxvKWexXvi2T8JtAWyQu3SCCu3cwwJtdLICyzH2XSFZ7hMjqEBP_U0Wr5JiI35G1XxIfHDTu7wBCtiu6k9i1HpRXSQHEPOfYXwlw_JDv5A7Y3K8fq1gOSJXB6qJXa_MKt_D8JRR2NTOXS2YJVUbm4QI2USZPCaMCo9u-H1wbZzY1G6f5Asw1SOqiULvgQWNbdh5Z6MAeQjaPs3okDDyHreuhJ6wKKKPrkJPM5lBqg7PJZUizQJnGAMxg-VkBTcr8_-kXE5-IfcqUhGa9WFGL7kcIUy6ZjNUWIAGrSbhp_hg0fB4Py92GbdTBmLyzQ.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 برای آن آشغال‌های خائنی که حاضر نیستند درباره عملیات نظامی ما در ایران گزارش دقیق بدهند: ما عملاً مقادیر نامحدودی مهمات با کیفیت متوسط تا بالا در اختیار داریم؛ بسیار بیشتر از آنچه بتوانیم در این جنگ یا هر جنگ دیگری ــ که وقوعش بسیار بعید است! ــ مصرف کنیم. علاوه بر این، ما در سطحی بی‌سابقه در حال تولید مهمات هستیم. در حال ذخیره‌سازی و آماده شدن برای هر وضعیت احتمالی هستیم که ممکن است پیش بیاید. این مهمات را برای خودمان، ایالات متحده آمریکا، نگه می‌داریم، به‌جای اینکه آن‌ها را به دیگران بفروشیم؛ اما فروش به متحدان نیز به‌زودی دوباره آغاز خواهد شد.
@@ -288,122 +483,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78215)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 16:22:11
-
-<img src="https://cdn1.telesco.pe/file/HbKdKcWFv8CUzkudPYn5fUGfJmwff9y1uo-0dj7HVOwfqrAuXWjD6x_zo_HsAQClnWQTs977oqPWUvf8dCthmiLMHQsVWXcZcUHuTqyjcLGSCFFj4dK0PcPK9LM1wasgXgWQ9z-jn_65fHP0uKEtxoRl6IHaiEgJQ7_aONd8v3NwNyYpk02S2P2pGY5M1NySotic_526uZPJK34MraLBDNFOYZsoeY2TlzM0e0WYIx4QzSmXaSZ8vHrmla3SUyzCro-om6_dyevPQ3yRZWxXZIN2XyOuPFpRpTO3p_M0tuan-sE1U1NpglRzhohz75_-tYNLttp10gwltYBUxD5lpw.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا با انتشار تصویری در شبکه اجتماعی تروث سوشال، مجموع حجم نفت و گاز مایعی که پیش از جنگ از تنگه هرمز عبور می‌کرد را با میزان کنونی آن مقایسه کرد و نوشت: «حجم نفت هرمز بازگشته است!»
-ترامپ در این تصویر، مجموع حجم نفت و گاز مایع عبوری از تنگه هرمز در زمان پیش از جنگ را حدود ۲۰ میلیون بشکه در روز در نظر گرفت و میزان عبور این مایعات در حال حاضر را ۱۸ میلیون بشکه اعلام کرد.
-این در حالی است که سامانه پیگیری موقعیت نفتکش‌ها در جهان، میزان عبور نفت و گاز مایع در ماه گذشته را به‌صورت میانگین ۷.۵۴ میلیون بشکه در روز اعلام کرده است.
-بر اساس داده‌های این سامانه، حداکثر میزان عبوری در یک روز، ۱۰ میلیون بشکه بوده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78214)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 15:21:39
-
-<img src="https://cdn1.telesco.pe/file/JLNUrbulDVy_gqHfItqUX0q0bNSQk6_gp0rz6zWgzATOjjh7h4oQIIZhJiVpKxQD6kjB87lK4RV2U_hAq3DNQ8Ucukhwwsuz618bAaHCIs6Ej7PslCvNvWBxYgYbytHa6DVl2IAhqIlqGU0gBcNRTbyKc9WGaVICwDxGq-Ar83qlNoDUUsNgfgdWX4AkICXzNlWB5L9byQYZPFERs7UE_G8EiXygwpoR7SAtQZZYvGyNSNWEWg0nkzZ6xIi-lUNp8Q3IR_HmIgsIn4EGpm-Lkzy8A7qYO8z8muw7riywW70eTb4hTbXesA3YZzT1n3zcUmgQ6NcrQxVNHQ_Ca3jyfg.jpg" width="400"><br>
-
-dadban4
-:
-"امیرعلی قنبرزاده، بازیکن تیم نونهالان آکادمی بسکتبال پاس، روز ۱۹ دی ۱۴۰۴ در گرمدره استان البرز کشته شد.
-مادر او با انتشار این ویدیو نوشته است:
-«امیرعلی عزیزم، دل بارانا برات خیلی تنگ شده، جات برای مامان خیلی خالیه.
-شادی را به گور خواهند برد، آنان که رنج را در ما آفریدند.
-ما مادران نه می بخشیم و نه فراموش می کنیم.»
-امیرعلی قنبرزاده در جریان اعتراضات، جلوتر از دیگران حرکت می کرد و دست هایش را باز کرده بود تا از سایرین محافظت کند.
-او در همان حال با اصابت سه گلوله جنگی به سرش، جان خود را از دست داد."
-abelbalb
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78211)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 15:20:20
-
-<img src="https://cdn4.telesco.pe/file/f407m1JcH1cNHk9hHTgQR3y2F6ySi_g_I1rx2szqizkqxUEHkJbmD2YiBveqJDhQoF_1YyCcmgtfLFdmi6YscUmNrqKqX6uFvxpzM6EKA92J2QAZZ1TO-qX2yvr93-z4Q7qJNl6KsBhcPRT74vpapZUP9zNwYsD1Uq89XMM0n2kX-jzRWkaE2yd47BTcVmByiu8SAS5xoxG-C3qDJVUiZeWAWB8yCDOWRrHIzt2oR0E6DbIz5Jo7sTXJcxR7iIYjGRTMlXJsg2R39gpK7NZH5H3At3CrEmojPO3hhiCnOfJ45sKx-I4vI7LIPqJDshGNqa4wwLH6KPoNzR0vtz7Juw.jpg" width="400"><br>
-
-خبرگزاری تسنیم، نزدیک به سپاه پاسداران، از کشته شدن سه خلبان ارتش جمهوری اسلامی ایران در حمله سه‌شنبه شب آمریکا به ایران خبر داد.
-این خبرگزاری با انتشار اسامی و تصاویر این خلبانان گفته است دو نفر از آن‌ها از خلبانان نیروی دریایی و یکی از آن‌ها از خلبانان نیروی هوایی ارتش بودند، اما اعلام نکرد در کجا و چگونه کشته شدند.
-با این حال، اسامی اعلام‌شده سه نفر از هفت نفری هستند که روز چهارشنبه ۱۱ شهریور اعلام شد در حملات آمریکا به شهرهای اهواز و آغاجاری کشته شدند.
-در جریان حملات شامگاه سه‌شنبه آمریکا، به‌‌گفتهٔ مقام‌های ایران، مناطقی از جمله فرودگاه جیرفت در جنوب استان کرمان، عسلویه، کرمانشاه، مناطقی در استان خوزستان، شهرهای چابهار و کنارک در استان سیستان و بلوچستان، سیریک، لاوان، قشم و بندرعباس در استان هرمزگان هدف قرار گرفتند.
-سخنگوی وزارت بهداشت صبح پنجشنبه از کشته شدن «۱۸ نفر و مجروح شدن ۱۴۲ نفر» در جریان حملات اخیر آمریکا خبر داده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78210)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 15:07:23
-
-<img src="https://cdn1.telesco.pe/file/dNc0Iwopz-1tgTW5CQPC55vfrkpvlnUYE6EITfrq-2kjy4ZxH3idCW5PMFNT2bK_dDiwgsG9b5AeVjz5yw3T0-zb3bOxO2i_QL7geHkWfxhDi6ULzOIkrQo38A0L3KoUy3llsdZlMjiaOPWXw3vS-O4yatB2lhx8Oy17sQxbrIQD9x1PFasu3_bzMeq4mlUSGEFKXD6hNKJ8PG-tLcfTswxqx3wtJAbEc5pgfYEU59Wc_sDqxmsY2NVQz4XHLOO7XiciYjzn458xeC35qZ1R33vjNl1d6uKW3IkxkmZgC7EoiANhfAmPzFXJPWpcVdwrXNh5w4g4OI3t06aUvoxlBg.jpg" width="400"><br>
-
-quotes
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78208)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 15:00:08
-
-<img src="https://cdn1.telesco.pe/file/F9wCUSTKYDnJ73dSRKSom5WtbwS-OBGCvVkiAZ2ij2sFzPQ7Ty-mqEEWXRQDADp3sJVQX3JnKEFVJMfWJD4BRzBDvXr7R2EakXSHdITDeFktys4CRhJz38prAC6ykkw2AIUlVlk96CowNWkTUP0MKWhA7D7w3paz7UA-18--AIuXzKVm95T8MuSeAlCsm63xjDLG4fSIjYGoVnbLVIx2Nf5SW52v3lVZTX55fLsNgrCD7Pzz96Z2doWV9umn37MnxM3kDt1kg5sLlwoFvOx5UfYvrqpdi_ztATn7VhSbbCkVC_V-umHBYfzk7C-vbuwSFSrpVXsOJnc-W0cW-pXUaw.jpg" width="400"><br>
-
-یسرائیل کاتز، وزیر دفاع اسرائیل، پنج‌شنبه ۱۲ شهریور در مراسم روش هشانا با کارکنان وزارت دفاع اعلام کرد حمله جمهوری اسلامی به این کشور، اسرائیل را از همه محدودیت‌ها رها خواهد کرد و این کشور حتی زیرساخت‌های انرژی را نیز هدف قرار خواهد داد.
-وزیر دفاع اسرائیل گفت: تمام زیرساخت‌های ملی، نظامی و غیرنظامی، از جمله زیرساخت‌های انرژی را هدف قرار خواهیم داد و ایران را به اعماق عصر حجر و تاریکی بازخواهیم گرداند.
-کاتز همچنین افزود: فشار اقتصادی و نگرانی از قیام و سقوط حکومت ممکن است جمهوری اسلامی را به اقدامات از سر استیصال سوق دهد.
-او گفت: حکومت آیت‌الله‌ها در ایران به‌خوبی می‌داند چرا پس از آنکه دو بار ضربات سختی به آنها وارد کردیم، برنامه هسته‌ای را نابود کردیم، خامنه‌ای را کشتیم و به توانایی‌های راهبردی آنها آسیب شدیدی زدیم، به اسرائیل حمله نمی‌کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78207)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 14:48:50
-
-<img src="https://cdn1.telesco.pe/file/JH1_Mx_3lTlBvH3A2ZcJbOmU054Qj4RU3kP1VqS69yvhZBpSduD8MrSb23iuclIOXVvrYnkqIHzc7WAakuiXaaGtFqOgKcI9V1MoaXRD4rUcvgjgX1eFP-jKgo0RZKv0r2xB1X05ZPRJANrlY5pN9xVBDcAzwfX5qrK-CyPf9xJA-GTrrUwBasSk5rnyZ0iBBrjSdk4ZE1YuFmgCMtDpTTWjtVLwNcb0AO20gdyHTxRE0Y0UvtRcsKLI52yt1qk8XkaehA-H18S0Smf2GxhQ5qGaA8dARSiHtvW1nXLugTudVw3-h-sVgr5PrSEN5WH4wsNIh8YZC6GlFWpP0-TKqA.jpg" width="400"><br>
-
-شرکت خودروسازی سایپا، روز پنجشنبه ۱۲ شهریور ماه و چند روز پس از آغاز ثبت‌نام طرح فروش فوق‌العاده، با صدور اصلاحیه‌ای رسمی، بهای مصوب چهار محصول عرضه‌شده را به بهانه «افزایش هزینه گواهی اسقاط خودروهای فرسوده و سایر عوارض قانونی شماره‌گذاری» به‌طور چشمگیری بالا برد.
-بر اساس جدول جدید منتشرشده، بهای مصرف‌کننده «کوییک اس» و «سهند اس دوگانه‌سوز» هر کدام ۳۳ میلیون تومان گران‌تر شده و به ترتیب به یک میلیارد و ۳۲ میلیون و ۵۱۰ هزار تومان و یک میلیارد و ۱۲۳ میلیون و ۶۸۸ هزار تومان رسیده است.
-در بخش خودروهای مونتاژی و وارداتی نیز قیمت «سیتروئن سی۳-ایکس‌آر نسخه وی‌یک» با افزایش ۱۱۵ میلیون و ۵۰۰ هزار تومانی به ۳ میلیارد و ۳۸۹ میلیون و ۳۲۲ هزار تومان و قیمت «چانگان سی‌اس ۵۵ پلاس» با جهش ۱۹۸ میلیون تومانی به ۵ میلیارد و ۸۱۹ میلیون و ۱۲ هزار تومان افزایش یافته است.
-این در حالی است که متقاضیان در روزهای گذشته بر مبنای نرخ‌های اولیه اقدام به ثبت درخواست کرده بودند و حالا این محصولات با موعد تحویل ۹۰ تا ۱۲۰ روزه با نرخ‌های جدید تحویل داده خواهند شد.
-روز چهارشنبه ۱۱ شهریور، بازار آزاد نیز با موج تازه‌ای از گرانی همراه شد و چند خودروی داخلی دیگر جهش قیمت داشتند.
-به‌طوری‌که تارا اتوماتیک با رکوردشکنی و رشد حدود ۱۰۰ میلیون تومانی به محدوده ۳ میلیارد و ۷۵ میلیون تومان رسید. بر اساس گزارش فرارو، در همین روز دنا پلاس اتوماتیک با افزایش ۲۵ میلیونی به ۳ میلیارد و ۱۹۰ میلیون تومان و پژو ۲۰۷ اتوماتیک پانوراما به ۲ میلیارد و ۹۸۰ میلیون تومان رسید و محصولاتی نظیر شاهین اتوماتیک پلاس و سورن پلاس دوگانه‌سوز نیز به‌ترتیب در سطوح قیمتی ۳ میلیارد و ۳۰ میلیون و ۲ میلیارد و ۴۱۰ میلیون تومان معامله شدند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78206)
 
 ---
 
