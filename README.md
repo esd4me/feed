@@ -3,8 +3,58 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-04 01:31:26 </h5>
+<h5> 🟢 Updated at: 2026-09-04 04:02:39 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-04 02:04:24
+
+<img src="https://cdn1.telesco.pe/file/Hto2cEI3Pw_wNL7gUF4a8FqQQUoaJSzHkg5AltxIGbIjxHm92VHCrkv1pnuJrypNH-YbLeSuOTR4ZMPScpXYunycMpH_910U9lQ4svQ73wx6f6KRBcY3tF_AbB1XTFQrqbWiSCybRA1vaE8i7mILIzNDXOjzKWrVInR9qInAmpCbqtmvPan67k5Snfc4gvNEqgrI3cBI64Zzn87uO612tV8retuXG73DDS_CdOht2aQEhFLEXdv01s6W-zfhbtAd1Cf78jjlB5Qq5kBkCNXIsumwKgmXMJF__pOznMHXPf1m4cZQbGtJylEynqytar2O_mZAiBS7HPwEzcAZaWggRg.jpg" width="400"><br>
+
+نیویورک‌پست پنج‌شنبه ۱۲ شهریور به نقل از یک مقام ارشد منطقه‌ای گزارش داد عمان پیشنهاد جمهوری اسلامی برای دریافت مشترک هزینه خدمات از کشتی‌های تجاری عبوری از تنگه هرمز را رد کرده است.
+این مقام گفت مسقط حتی با دریافت داوطلبانه هزینه خدمات زیست‌محیطی و امنیتی از کشتی‌ها موافقت نکرده است.
+یک مقام آمریکایی نیز به نیویورک‌پست گفت شرایط توافق پیشنهادی میان جمهوری اسلامی و عمان برای تقسیم درآمد نهایی نشده است.
+این اظهارات در حالی مطرح شد که حسین محبی، سخنگوی سپاه پاسداران، پیش‌تر از دستیابی تهران و مسقط به توافق در این زمینه خبر داده بود.
+رویترز هفتم مرداد گزارش داده بود عمان طرحی با حمایت کشورهای خلیج فارس به جمهوری اسلامی ارایه کرده است که بر اساس آن، مدیریت تنگه هرمز به شکل منطقه‌ای انجام می‌شد و شرکت‌های کشتیرانی می‌توانستند به‌صورت داوطلبانه برای تامین هزینه‌های ناوبری، حفاظت زیست‌محیطی و عملیات جست‌وجو و نجات مبالغی پرداخت کنند.
+عمان پیش‌تر نیز با دریافت اجباری هزینه از کشتی‌های عبوری از این آبراه مخالفت کرده بود.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78227)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-04 02:01:24
+
+<img src="https://cdn1.telesco.pe/file/cwpij3Lt-Hj9tLyMDvknTPJQG1kAcrJnpf8dcKgmPp_gUHP5oJdU0b4zv_LzmoBVUQ8dWqf5qUFt923yE9SPQ1T1wR7bUAClzeaq5vcCwhcHd62JU5u6IqxI82kZ6csbcb5Q8did710m0vSf_Lxx5g28dr7UEIMo9GFTBgyF98PbyzYRvfmyEj7mnGTPfGNdTCyrfek2wTBuAoxI1O1qCfvrsGRPzK4gREhDV5IK_WB1pTsBz73_4qavdkQSy3UOOYao_AOUmox4kFEcXSqqXU-NWNDRZawSNloS6dbdUFB0duWk_xA2hBxA4jTPcMjMBVNlQoZKuqCmKzYooXrHEQ.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با شبکه جی‌بی نیوز گفت:
+«آن‌ها سه سایت داشتند و شاید حالا کوه کلنگ گزلا را هم داشته باشند، اما ما روی همه این مناطق دوربین داریم. می‌دانیم چه کسی وارد می‌شود و چه کسی خارج می‌شود.»
+او در ادامه درباره توان اطلاعاتی آمریکا افزود: «حتی می‌توانیم از فضا اسم افراد را بخوانیم. آن‌ها حتی نمی‌توانند بدون اینکه ما متوجه شویم جابه‌جا شوند. ما دقیقا می‌دانیم چه خبر است و از این بابت کاملا مطمئن هستیم.»
+@
+VahidOOnLine
+گفت:
+ما کنترل کامل تنگه هرمز را در اختیار داریم. هر شب ۳۰ تا ۴۰ قایق آن‌ها را از بین می‌بریم و رادارهایشان را هدف قرار می‌دهیم.
+او همچنین افزود اقتصاد ایران «در حال فروپاشی» است و افزود: تورم ممکن است به ۳۰۰ درصد برسد، پولشان تقریبا بی‌ارزش شده و نرخ برابری آن با دلار حدود دو میلیون به یک است و هر روز هم بدتر می‌شود. آن‌ها واقعا در وضعیت بسیار بدی قرار دارند.
+@
+VahidOOnLine
+گفت:
+با جلوگیری از هسته‌ای شدن ایران، اروپا و بریتانیا را هم نجات دادم
+«من کشور شما را هم از این تهدید نجات می‌دهم، چون اگر ایران سلاح هسته‌ای داشت، احتمال اینکه از آن در اروپا استفاده کند بیشتر از آمریکاست، زیرا توان موشکی برای رسیدن به اروپا را دارد، نه آمریکا.»
+او همچنین افزود ایران تنها «دو تا چهار هفته» با دستیابی به سلاح هسته‌ای فاصله داشته و حملات آمریکا این روند را متوقف کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78225)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-04 01:22:37
@@ -354,63 +404,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78206)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 14:45:52
-
-<img src="https://cdn1.telesco.pe/file/FLeBwLrdWXfEx1DnwAXxE44jzPltf1R9TkKwKeAwdlidkBxfvTBIGIGqa5dyGn5_8ojl4hAc9h8PXGo_svr9_y56YJQEBnVhpJgiApZAq5okMrWjZ6mbKyonbE4yv8Nnl4jZ5VHtwC6o_H9EcJ-Zzp0-cg1T5lT9ponISnBihaPd7oT6MLO_iPTgE-MHw5zouYYG3xV0QCaT329C-xMqcciUaUHyh7axZjuu3X-LRYpIdrRzcr36K2u0DuSQ4wzZTwCcUF1-4G2MEUXU40_xx0E0p74NDhDavuCumo5tD6lyYkpXmhwoa5URknk0aVCUcZ71XCMt8DtzrJ-T5okK9Q.jpg" width="400"><br>
-
-حسین شریعتمداری، مدیرمسئول روزنامه کیهان، پنج‌شنبه ۱۲ شهریور در یادداشتی نوشت که ارتش و سپاه باید از «اهرم» عبور کابل‌های فیبر نوری بین‌المللی در خلیج فارس و تنگه هرمز برای «مقابله با آمریکا و متحدانش» استفاده کنند.
-مدیرمسئول روزنامه کیهان نوشت: «در عمق آب‌های خلیج فارس و تنگه هرمز یکی از شاهراه‌های فیبر نوری بین‌المللی جای گرفته است. شاهراهی که بیشترین ارتباطات اینترنت، تماس‌های بین‌المللی، تراکنش‌های بانکی، سرویس‌های ابری (iCloud) و حتی ارتباطات هوش مصنوعی و دیتاسنترها از همین کابل‌ها عبور می‌کنند.»
-حسین شریعتمداری، نماینده خامنه‌ای در روزنامه کیهان، تاکید کرد: «سخن با مسئولان کشور و مخصوصا با ارتش و سپاه است؛ خوب نگاه کنید! کابل‌های اینترنت جهانی از زیر آب‌های تنگه هرمز و خلیج همیشه فارس برایمان دست تکان می‌دهند و با هزار زبان می‌گویند چرا نقش ما را در این جنگ فراموش کرده‌اید؟»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78203)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 14:41:58
-
-<img src="https://cdn1.telesco.pe/file/rxThecU-eA_R-ds3QwJ2PVW6P627iUUk20TyLZeuJgrUvdiuaG1YBX3AN2VNPttZZ0m71Tz1bYa2ufHIVPYvBS9OJ7xoBxGFV6kRL7mIf_BqQ_8OJJd-7Bj6JxCVL-wqatmh2P1zY3gk9xNIxftwOEZmUVfJmzxrtjPT0QR09KoWP-2Dmv16u9XsrK7PCGSJFyPud5CZcF_v0vPtItAIEtWsazZVok33HzDWGZoq0KecDY2ZYEUDVJESSQ98BBo_-Egn0tLwehtz5pKeFNIp-cKTac0i2XigcYLcQgzDFRWvkAMu7YuBGWdT22QBN3wJ8zm2o1a6eEp4M5eoAunwqw.jpg" width="400"><br>
-
-همزمان با ادامه افزایش نرخ ارز در ایران، قیمت پوند بریتانیا پنج‌شنبه ۱۲ شهریور در بازار آزاد برای نخستین بار از مرز ۳۰۰ هزار تومان عبور کرد و تا زمان تنظیم این گزارش به ۳۰۰ هزار و ۲۸۰ تومان رسید.
-در همین حال، دلار در بازار آزاد با قیمت بیش از ۲۲۲ هزار تومان معامله شد و قیمت یورو نیز از ۲۵۸ هزار تومان عبور کرد.
-قیمت سکه امامی نیز از ۲۳۵ میلیون تومان عبور کرد و نیم‌سکه به ۱۲۰ میلیون تومان رسید.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78202)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-03 14:39:41
-
-<img src="https://cdn1.telesco.pe/file/EV7p7F_EXhtpudxhaF0Mc5MoMnDQNaJN_DB0A2adkV1g1rCm0ANH75Z9fdE720ebhn32z68X7a_9DsIFmkVt5fQkvfBQ96zlso9a_ejN0-FsilWyTUSEOcqQk6RdARfm4mu23ZwtC8ORi2mz7NIEzGvBGhPYyfAuwGKvd82caqtGdJM8y7L5pXKZImvY3dtHEy7jD9d1JV9cLEIZL_Az10V7HHSCUQAR7d7hOozDY6deJQ7RTWh7R4ApEp6HqJflmUEH93gbH0vXsl2_tjSk4HPXmyfC1K2eliKB4RJypHOn-RRWL83NAbq3HdcFVIqtaInyx6wX1_PN05ah0IgVaw.jpg" width="400"><br>
-
-دیوان عالی کشور حکم ۱۲ سال و شش ماه و یک روز حبس، مصادره تمامی اموال و دو سال محرومیت از کافه‌داری برای صادق ساعدی‌نیا، مدیر کافه‌های زنجیره‌ای «ساعدی‌نیا»، را تایید کرده است.
-خبرگزاری میزان، ارگان رسانه‌ای قوه قضاییه، روز پنج‌شنبه ۱۲ شهریور ۱۴۰۵ اعلام کرد این حکم به‌دلیل حمایت ساعدی‌نیا از اعتراضات دی‌ماه ۱۴۰۴ و تعطیل‌کردن واحدهای صنفی زیر مجموعه این برند صادر شده است.
-براساس اعلام قوه قضاییه، صادق ساعدی‌نیا به اتهام «فعالیت رسانه‌ای و تبلیغی علیه امنیت کشور به نفع گروه‌های معاند» به ۱۲ سال و شش ماه و یک روز حبس تعزیری و مصادره تمامی اموال منقول و غیرمنقول خود به نفع دولت محکوم شده است.
-دادگاه همچنین او را پس از پایان دوران حبس، به دو سال محرومیت از فعالیت در حرفه کافه‌داری محکوم کرده است.
-قوه قضاییه انتشار مطالب اعتراضی در اینستاگرام، حمایت از فراخوان‌ها، تعطیل‌کردن کافه‌ها و فروشگاه‌های مجموعه و تشویق کارکنان به شرکت در اعتراضات را از مصادیق اتهامات او اعلام کرده است.
-براساس کیفرخواست، صادق ساعدی‌نیا با سه عنوان اتهامی شامل «فعالیت تبلیغی یا رسانه‌ای برخلاف امنیت کشور»، «اقدام عملیاتی برای گروه‌های مخالف جمهوری اسلامی» و «فعالیت تبلیغی علیه نظام» محاکمه شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78201)
 
 ---
 
