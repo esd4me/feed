@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-04 23:36:32 </h5>
+<h5> 🟢 Updated at: 2026-09-05 02:08:51 </h5>
 </div>
 
 
@@ -216,7 +216,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-04 02:04:24
 
-<img src="https://cdn1.telesco.pe/file/Hto2cEI3Pw_wNL7gUF4a8FqQQUoaJSzHkg5AltxIGbIjxHm92VHCrkv1pnuJrypNH-YbLeSuOTR4ZMPScpXYunycMpH_910U9lQ4svQ73wx6f6KRBcY3tF_AbB1XTFQrqbWiSCybRA1vaE8i7mILIzNDXOjzKWrVInR9qInAmpCbqtmvPan67k5Snfc4gvNEqgrI3cBI64Zzn87uO612tV8retuXG73DDS_CdOht2aQEhFLEXdv01s6W-zfhbtAd1Cf78jjlB5Qq5kBkCNXIsumwKgmXMJF__pOznMHXPf1m4cZQbGtJylEynqytar2O_mZAiBS7HPwEzcAZaWggRg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qXFLDx5UdAYCLYUbVRqDHtTa88z3eMXF63DS8GM_OkIr4y5DqK9QjJd00e1lXOFep4oTXsK8OGWaH9XupaEoz6xXSQmiXlM7TNxsp49zqrcQ4gFL7dDAkANHbMtAzFwzP8RX-FRqB5bzYeXI4hst8W3_hWbniTTgmZKuxC59dudlHQGlcmykyyOrUrXtqx9skJzXIMnkSlpBY1k01ZHWaQgIHw1lSzSki_LfatB51RxiUuYAjz6s6EEoXTgXmiUzAOhCSxFa7oaTes_Nv1vOUksC-imAFTnQzim7AXep1pSZK4kN6wnaI2gSXGTVCsEtQSL8Z_Yenhy_dRI9tMN1vw.jpg" width="400"><br>
 
 نیویورک‌پست پنج‌شنبه ۱۲ شهریور به نقل از یک مقام ارشد منطقه‌ای گزارش داد عمان پیشنهاد جمهوری اسلامی برای دریافت مشترک هزینه خدمات از کشتی‌های تجاری عبوری از تنگه هرمز را رد کرده است.
 این مقام گفت مسقط حتی با دریافت داوطلبانه هزینه خدمات زیست‌محیطی و امنیتی از کشتی‌ها موافقت نکرده است.
@@ -237,7 +237,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-04 02:01:24
 
-<img src="https://cdn1.telesco.pe/file/cwpij3Lt-Hj9tLyMDvknTPJQG1kAcrJnpf8dcKgmPp_gUHP5oJdU0b4zv_LzmoBVUQ8dWqf5qUFt923yE9SPQ1T1wR7bUAClzeaq5vcCwhcHd62JU5u6IqxI82kZ6csbcb5Q8did710m0vSf_Lxx5g28dr7UEIMo9GFTBgyF98PbyzYRvfmyEj7mnGTPfGNdTCyrfek2wTBuAoxI1O1qCfvrsGRPzK4gREhDV5IK_WB1pTsBz73_4qavdkQSy3UOOYao_AOUmox4kFEcXSqqXU-NWNDRZawSNloS6dbdUFB0duWk_xA2hBxA4jTPcMjMBVNlQoZKuqCmKzYooXrHEQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JuxCtqQnMsk7l-yiwUCaG-o7grw2VABKPTZEDChorx_Xze23ONYtN7W4yQliYBwwIrS6E1odlUeSvpFRwCAoPX0BD5YecQ_iNV7KnEnB28L_3KHzXx4oqBhDD2ywajjTTpVwH9SPczo2Bs-QBu6v7Y57qvlcLgF4hs9G6NK6LFJUrfhJDzM6CJRC_x3wVDvBnUXyBgiBMkl-AdltSuXsq_jNi-DGxa5ggLCyxqRgeNQt0tn6HtLt06pazKWH-qQEhSRL8uB-SLt2ER9S98xSqqn7FjEauNqrVizU0ra3zJ2Hn2bSq9COURVGB2wgRVCcN3gPnphMSugO21IB0NWy8g.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با شبکه جی‌بی نیوز گفت:
 «آن‌ها سه سایت داشتند و شاید حالا کوه کلنگ گزلا را هم داشته باشند، اما ما روی همه این مناطق دوربین داریم. می‌دانیم چه کسی وارد می‌شود و چه کسی خارج می‌شود.»
