@@ -3,8 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-05 22:10:32 </h5>
+<h5> 🟢 Updated at: 2026-09-06 00:19:35 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-05 23:58:46
+
+<img src="https://cdn4.telesco.pe/file/fUSR2Yo2bkrBZ5heqZqa18IlMqhF-bACRZaucqU5q7Kant_yB9ineshhNLOTnemLGPvjafaqHFu_1dA7NRS_HmLIjg4TpgXjPqtnN0SZSYGRgB30j3Q1_8TlamgiSZ-n7Vb6KhMYBPwbRlUOg6RMCSMxGpqZ84vYErNxDcFr4dmhOxFzW_ExloKo5VsctxMC36WNzprWAJ9q3bKwkWNLEL_39R1M3LCrDsYsLRNxzS38_zUikIxuHvpv05BhhcUVxurHZDDRrUyeQ-5sDyZ75hAFoiAzM4hmbv3n7YSBUwDwJMSldmw3BiUZzzQ5QoJvmJ2SxpHxCENBUQ4B6QyaqQ.jpg" width="400"><br>
+
+نیروی دریایی سپاه پاسداران، شامگاه شنبه ۱۴ شهریور ماه با انتشار بیانیه‌ای اعلام کرد سه شناور «در مسیرهای غیرمجاز عبوری از تنگه هرمز» را هدف قرار داده است.
+این اظهارات پس از آن مطرح شد که سنتکام، فرماندهی مرکزی آمریکا، از حمله به سه نفتکش ایرانی در خلیج فارس و دریای عمان خبر داد.
+در پی این بیانیه، خبرگزاری تسنیم نیز تصاویری مربوط به همین حملات را منتشر کرد.
+@
+VahidOOnLine
+علی محمدی، معاون سیاسی نیروی دریایی سپاه، روز شنبه در گفتگو با خبرگزاری فارس، گفت: «در ۱۰ روز منتهی به هشتم شهریور، نیروی دریایی سپاه هر شب بین ۲ تا ۵ شناور متخلف را تنبیه و مجازات کرده و پس از آن نیز هرگاه اراده کرده با کشتی‌های متخلف برخورد کرده است.»
+او گفت:‌ «حملات آمریکا کوچک‌ترین خللی در اشراف و تحمیل اراده نیروی دریایی سپاه بر این منطقه ایجاد نکرده است.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78246)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-05 20:26:36
@@ -414,35 +436,6 @@ VahidOnLive
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78227)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 02:01:24
-
-<img src="https://cdn1.telesco.pe/file/JuxCtqQnMsk7l-yiwUCaG-o7grw2VABKPTZEDChorx_Xze23ONYtN7W4yQliYBwwIrS6E1odlUeSvpFRwCAoPX0BD5YecQ_iNV7KnEnB28L_3KHzXx4oqBhDD2ywajjTTpVwH9SPczo2Bs-QBu6v7Y57qvlcLgF4hs9G6NK6LFJUrfhJDzM6CJRC_x3wVDvBnUXyBgiBMkl-AdltSuXsq_jNi-DGxa5ggLCyxqRgeNQt0tn6HtLt06pazKWH-qQEhSRL8uB-SLt2ER9S98xSqqn7FjEauNqrVizU0ra3zJ2Hn2bSq9COURVGB2wgRVCcN3gPnphMSugO21IB0NWy8g.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با شبکه جی‌بی نیوز گفت:
-«آن‌ها سه سایت داشتند و شاید حالا کوه کلنگ گزلا را هم داشته باشند، اما ما روی همه این مناطق دوربین داریم. می‌دانیم چه کسی وارد می‌شود و چه کسی خارج می‌شود.»
-او در ادامه درباره توان اطلاعاتی آمریکا افزود: «حتی می‌توانیم از فضا اسم افراد را بخوانیم. آن‌ها حتی نمی‌توانند بدون اینکه ما متوجه شویم جابه‌جا شوند. ما دقیقا می‌دانیم چه خبر است و از این بابت کاملا مطمئن هستیم.»
-@
-VahidOOnLine
-گفت:
-ما کنترل کامل تنگه هرمز را در اختیار داریم. هر شب ۳۰ تا ۴۰ قایق آن‌ها را از بین می‌بریم و رادارهایشان را هدف قرار می‌دهیم.
-او همچنین افزود اقتصاد ایران «در حال فروپاشی» است و افزود: تورم ممکن است به ۳۰۰ درصد برسد، پولشان تقریبا بی‌ارزش شده و نرخ برابری آن با دلار حدود دو میلیون به یک است و هر روز هم بدتر می‌شود. آن‌ها واقعا در وضعیت بسیار بدی قرار دارند.
-@
-VahidOOnLine
-گفت:
-با جلوگیری از هسته‌ای شدن ایران، اروپا و بریتانیا را هم نجات دادم
-«من کشور شما را هم از این تهدید نجات می‌دهم، چون اگر ایران سلاح هسته‌ای داشت، احتمال اینکه از آن در اروپا استفاده کند بیشتر از آمریکاست، زیرا توان موشکی برای رسیدن به اروپا را دارد، نه آمریکا.»
-او همچنین افزود ایران تنها «دو تا چهار هفته» با دستیابی به سلاح هسته‌ای فاصله داشته و حملات آمریکا این روند را متوقف کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78225)
 
 ---
 
