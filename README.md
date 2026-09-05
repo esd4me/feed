@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-06 00:19:35 </h5>
+<h5> 🟢 Updated at: 2026-09-06 01:59:33 </h5>
 </div>
 
 
@@ -11,11 +11,10 @@
 
 <img src="https://cdn4.telesco.pe/file/fUSR2Yo2bkrBZ5heqZqa18IlMqhF-bACRZaucqU5q7Kant_yB9ineshhNLOTnemLGPvjafaqHFu_1dA7NRS_HmLIjg4TpgXjPqtnN0SZSYGRgB30j3Q1_8TlamgiSZ-n7Vb6KhMYBPwbRlUOg6RMCSMxGpqZ84vYErNxDcFr4dmhOxFzW_ExloKo5VsctxMC36WNzprWAJ9q3bKwkWNLEL_39R1M3LCrDsYsLRNxzS38_zUikIxuHvpv05BhhcUVxurHZDDRrUyeQ-5sDyZ75hAFoiAzM4hmbv3n7YSBUwDwJMSldmw3BiUZzzQ5QoJvmJ2SxpHxCENBUQ4B6QyaqQ.jpg" width="400"><br>
 
-نیروی دریایی سپاه پاسداران، شامگاه شنبه ۱۴ شهریور ماه با انتشار بیانیه‌ای اعلام کرد سه شناور «در مسیرهای غیرمجاز عبوری از تنگه هرمز» را هدف قرار داده است.
-این اظهارات پس از آن مطرح شد که سنتکام، فرماندهی مرکزی آمریکا، از حمله به سه نفتکش ایرانی در خلیج فارس و دریای عمان خبر داد.
-در پی این بیانیه، خبرگزاری تسنیم نیز تصاویری مربوط به همین حملات را منتشر کرد.
+به گزارش خبرگزاری تسنیم نیروی دریایی سپاه پاسداران انقلاب اسلامی روز شنبه در بیانیه‌ای اعلام کرد که سه نفتکش را که از «مسیرهای غیرمجاز در تنگه هرمز عبور می‌کردند، و همچنین سه شناور دیگر آمریکایی را در مناطق دیگر هدف قرار داده است.»
+نیروی دریایی سپاه در این بیانیه به هدف قرار گرفتن سه نفتکش ایرانی توسط نیروهای آمریکایی در صبح امروز اشاره کرده و گفته است که این حملات خساراتی به‌بار آورده است.
 @
-VahidOOnLine
+VahidHeadline
 علی محمدی، معاون سیاسی نیروی دریایی سپاه، روز شنبه در گفتگو با خبرگزاری فارس، گفت: «در ۱۰ روز منتهی به هشتم شهریور، نیروی دریایی سپاه هر شب بین ۲ تا ۵ شناور متخلف را تنبیه و مجازات کرده و پس از آن نیز هرگاه اراده کرده با کشتی‌های متخلف برخورد کرده است.»
 او گفت:‌ «حملات آمریکا کوچک‌ترین خللی در اشراف و تحمیل اراده نیروی دریایی سپاه بر این منطقه ایجاد نکرده است.»
 @
@@ -422,7 +421,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-04 02:04:24
 
-<img src="https://cdn1.telesco.pe/file/qXFLDx5UdAYCLYUbVRqDHtTa88z3eMXF63DS8GM_OkIr4y5DqK9QjJd00e1lXOFep4oTXsK8OGWaH9XupaEoz6xXSQmiXlM7TNxsp49zqrcQ4gFL7dDAkANHbMtAzFwzP8RX-FRqB5bzYeXI4hst8W3_hWbniTTgmZKuxC59dudlHQGlcmykyyOrUrXtqx9skJzXIMnkSlpBY1k01ZHWaQgIHw1lSzSki_LfatB51RxiUuYAjz6s6EEoXTgXmiUzAOhCSxFa7oaTes_Nv1vOUksC-imAFTnQzim7AXep1pSZK4kN6wnaI2gSXGTVCsEtQSL8Z_Yenhy_dRI9tMN1vw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aW0laOy4oTLGdt9Y5gjkcCkMeM5IWTIMpEyECFPnGgEZ3ba_RtSxhINgcdrte66vBA_u0BYaEdVRe_Zgank_RihRr_QHfPijRfRdekY8fMTdi07053KPwoIvCylpKbHF4VyjPX1xb514HL9shq48JL0DqKCL5zUs3TZp9ai7bO9f91W433mxzPRL4gQpfYxFq3tvmZTZgvxiy2bNStV53pKgOI-DTWVaeRA0woy25bMhdcEWcGqYIrPnIen0PGYcaoZYRbDUB4eHEC18GcPtURu8vcjDZueUA7mwEzdP_MzjceBTBpYaMbhls4lb7bL2plQUXeramutTRZICdbZt4g.jpg" width="400"><br>
 
 نیویورک‌پست پنج‌شنبه ۱۲ شهریور به نقل از یک مقام ارشد منطقه‌ای گزارش داد عمان پیشنهاد جمهوری اسلامی برای دریافت مشترک هزینه خدمات از کشتی‌های تجاری عبوری از تنگه هرمز را رد کرده است.
 این مقام گفت مسقط حتی با دریافت داوطلبانه هزینه خدمات زیست‌محیطی و امنیتی از کشتی‌ها موافقت نکرده است.
