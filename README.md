@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-05 19:53:46 </h5>
+<h5> 🟢 Updated at: 2026-09-05 22:10:32 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-05 20:26:36
+
+
+
+رئیس مرکز فوریت‌های پزشکی استان کردستان اعلام کرد که در پی آتش گرفتن یک تانکر حامل مواد سوختی در محور سنندج–همدان، دست‌کم ۱۱ نفر جان باختند و پنج نفر دیگر زخمی شدند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78245)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-05 19:32:57
@@ -81,6 +97,10 @@ CENTCOM
 ساده است: اگر ایران به کشتی‌های آمریکا شلیک کند، ما نفتکش‌هایش را نابود خواهیم کرد (و غرقشان خواهیم کرد). تنها کاری که باید بکنند این است که شلیک به @‌USNavy را متوقف کنند.
 ناوگان نفتکش‌های ایران بی‌دفاع است — ایران نه نیروی دریایی دارد و نه نیروی هوایی. هواپیماها، کشتی‌ها و زیردریایی‌های ما می‌توانند همه آن‌ها را، در حوزه‌های @‌CENTCOM و @‌USPACOM، هدف قرار دهند.
 PeteHegseth
+خبرگزاری صداوسیمای جمهوری اسلامی گزارش کرده که خدمه دو نفتکشی که امروز از سوی آمریکا مورد حمله قرار گرفته بودند «با قایق‌های نجات به ساحل منتقل شدند.»
+براساس این خبر یکی از این نفتکش‌ها «خالی و دومی حامل محموله نفت» بود.
+@
+VahidOnLive
 📡
 @VahidOnline
 
@@ -185,7 +205,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-04 21:07:28
 
-<img src="https://cdn1.telesco.pe/file/qqgl3e3B7Ya2k3sxB0-S7Z84jQo6Y0mQE340MfaQPRaRlK769o6_l_57YiQubStaCHUtr4SNNl6bFkb_jxvS5DTw6WQjj55BZnk-mhf6scK_PH1Oi-B0GvZ9F9t_hC6cN0yuT2jbINdqBiERhVlpApeWeDbHjd5efDQv9a9Si13JOmAWt_2X-HMMpJvaOZPGJOn3R5IZq3etvMIkD0zVlzy2rpQw1gN50PPXltaALtbO2_6sZgri6hRgZLSRKN4hxUYxjAB05erzZ-O_PGZuwkybl82y2eMHgi89_ythEB-cr7YdSHk6pL10vHOwow8VSmB4MJJ3b-ZAvNCL7gA5Hg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aY702xirqajuROqCH4CTiRqN8WJUKJRbe07SqouwzZrYygET4zM7GPo0nUYAqVwUDiJ8vTAImBa0tAHl9k2MMDz7wNeJ6QMuoB0WJKNOAgSFR7QPqUBKdps2sYskStS-K27RPsZ2gCqzCwpu4_boCJ9TyC9-Re0NQ431adKKTUeu5oW0DoeqMwCmTytrqUbvHW5imOBDPxIEh5Opi-XbgSG4kBRW3DegrP_sGhHAqQwXLPn0WGmoA-VtrMK5stVnLd8ZmLuShUaJnUeOujth32aHJiHhQWJILJxv0n7nMghVetR2a9FIv0FBhKPffa7FRZoS9wFTOfJE1ScJlFd9rA.jpg" width="400"><br>
 
 ایالات متحده آمریکا همراه با بریتانیا، فرانسه، و آلمان در تلاش است شورای حکام آژانس بین‌المللی انرژی اتمی هفته آینده قطعنامه‌ای تصویب کند که پرونده هسته‌ای جمهوری اسلامی را برای نخستین بار در ۲۰ سال گذشته به شورای امنیت سازمان ملل متحد گزارش دهد.
 خبرگزاری رویترز روز جمعه ۱۳ شهریور به نقل از دیپلمات‌ها و با استناد به متن پیشنهادی قطعنامه گزارش داد که چهار کشور در حال رایزنی با دیگر اعضای شورای حکام ۳۵ عضوی آژانس برای تصویب این قطعنامه هستند.
@@ -214,7 +234,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-04 20:34:15
 
-<img src="https://cdn1.telesco.pe/file/cSsHGzWh23ZjwYY1oeY07QlVs9wJL--0POuV5K2VTainZGbsLiwd3WyL_ifk6iQ0iYQQyLeKbNMcqqk6iMIzTOCV_FrF3XhoWOC2cBKpRRSBGc6BVYoMKVXsN8jz6-mXRSF2HcYnlW0_UGpWL8Ksri6ESFQKXrIDg9j3k_6nE6RlJAiPFvJgJNdgzfh_qvlktBaHr5I8BnNipfXTsYGkKaFMuXnjSRB0KssEBP6bTi3i747pSrORtNd32wU7X0jlLzbCmCGybSMIoKpnS9fI8dkCEUM6eTC8D1GRLDNtGzg0CdKdWs4ZKxALfGScaajuQKaMWx6Xsl8j1JzwUW1wxA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/TA1U28BsjOrGgCSytiMont7S2AB0KFcHTrx6BbP6yOUFipN36JsaoT3jKhZQcSmcRVPy64Vd5IcW2BCHDBaUhOhIK1vFUH8L_l6siILIy4T9CjI-mRYIQAwisrJC6is2Bw5ZjCjtmOW4Ru5vNWuxTG3aWp-NoQv-lyieN11pYfDhuHYjB1ns3L2-0d4lXsb8iTPZJ_UsvGOf3VSxqTlLR5ukB01yU3OUkvFRjlwZDqaFuB4KfTlwxfdArSMektCdVPLh2Q6lSqA7gYmtVprLAJFMT0Vy7heirU82odVeizlP6Tu2BTmsqFYUB8Qm-DnIzaTzE8q4N3u2tFBCCY_B9w.jpg" width="400"><br>
 
 العربیه شامگاه جمعه گزارش داد که موشک‌های پرتاب شده از سوی ایران، در شمال اردن رهگیری شدند. به گزارش این رسانه تصاویر رهگیری موشک‌های ایرانی در شمال اردن منتشر شد.
 ساعاتی پیش از این گزارش، برخی کانال‌های تلگرامی نزدیک به سپاه پاسداران، اعلام کرده بودند موشک‌هایی از اصفهان، کرمان و کرمانشاه پرتاب شده است.
@@ -236,7 +256,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-04 20:29:29
 
-<img src="https://cdn1.telesco.pe/file/FKJjGkG1NaLbk2BNHCuvIOyOJKGmuWeGXDK6PAkpAXXDP0j5qhCZ14Atv6r4I1TlRZjAyfKD683w7YrR1R0VjQCaRyAXNDF46EvNco9oDhfL2NkmDLA528z_uw0mNjPN3cr-v6n0qvprShzAeu8hP5Vd0O60dX5_UYi3kW6JdEeVKB-QjsiZQV7r-awUg-5IOBkhN9stQzZNWWtuYxQLMF7GMQcx95XL9gQ2gGS90BWD3t-vW__mDlxDlke4fe5NjHfJV92KKLnepdb9uq-aBbXGtYhktTVYKpHgPvpYjj7Y3qSLqmtz4iPHTGn8M5RNPHgT1xM7axh4UrLGRIgm_Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/RuHGTAjcljafZrb3B5ElJ-LY8Q201aZNDx4leGTx2NYdX5QZOv_q_Vvq__4DVSav_hjVFCyvpycs9pyj-BSn989EBRgsy_xSxen7x_pZBH0YMHFbTIRgP5ndqk50HwBqroP0spxzsDofo8EUMQvyOv84pLIVe4X1duBlUr34g9dKPx7FO8Iu_5RrqaMaMvNeHjA-X14rN0Aok4WwJygp7LPwn78j055WV2WRAsAyyIeJw0tMX80n5IQZ5xe28SH9k7_gnM4umqpO4G3tpJIRMk7xJTN9pQSlfridhUeKivgG3dc3XIcxZiEpBCtKO7Mi_odEVpmE6-arRNsmb4rr0w.jpg" width="400"><br>
 
 آمریکا یک بانک مستقر در ترکیه و دو شرکت وابسته به آن را به دلیل تسهیل انتقال ده‌ها میلیون دلار برای نیروی قدس سپاه پاسداران و فراهم کردن دسترسی جمهوری اسلامی به شبکه بانکی بین‌المللی تحریم کرد.
 وزارت خزانه‌داری آمریکا روز جمعه ۱۳ شهریور اعلام کرد «گلدن گلوبال بانک» و دو شرکت زیرمجموعه آن، «گلدن گلوبال وارلیک کیرالاما» و «گلدن گلوبال پورتفوی یونتیمی»، در چارچوب عملیات «طرد اقتصادی» به فهرست تحریم‌ها افزوده شده‌اند. هر سه نهاد در ترکیه مستقر هستند.
@@ -264,7 +284,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-04 20:18:56
 
-<img src="https://cdn1.telesco.pe/file/GI63JacYQg-7dSS9hc6RMBU19vGrCDSEIeUXEP5FezPr7jo6_foO2vOS8k0qHSEi7zTJnTzJpkN1i9Hxf3YRIBDVbXhtgO7CY9gKzJYi-f10qqgyqimp-0jTL10VZdW2-cWV01tIhUZHcsnQF1BQCDJFX_Vpxqf3lRogJzYFxcS62jlnSfIzo88JMTN5A_V5ck9VpOWegpuFSlEzumxFZX1H8uKkig9jGjCX71rG5aYFCieRFDMQ5TWzcTSqIylXFViqQiQNItFRi-bZ4MTLPsAhbdK9d40vJ5_fGSm8mnJnzo8k2LrKzRy6XleQrKa8TzrUni1Quxl-Idb_xL7X8A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ojgpHmbzi_JMPsUiQpkPiqzw3cCimIm-rm95qJr3SXJpWlREq2qB54gP-lyEMkK_F9Xpk3zMNhgNkeF4Q5LTawp5t7QXwrLHTTOV6naznWC1kJbqTZX-IJewv9K9h0vqtQF-H3_KT-TS_i1YoATXFUB5nh386sI4pYcl8t4-eaKvH_5G08QMlNha8yL31THbxXGY-DwBuqtFWIapFIO7e659LwzmEx4eYoQKsDK8K_rCaHy8qxGQ7XiY4Ma3ER-YeKaX14Lu1Oox-k8GmsaInG1WXnTVcfW7gLU-OWYnmBfRsmKFJj6XkKR0JmcCq_nmGp2LlIuHx5LOscntvpoH-w.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 دیوانه‌های چپ رادیکال، دموکرات‌های احمق و کمونیست‌ها ترجیح می‌دهند ما در جنگ ایران شکست بخوریم تا اینکه رئیس‌جمهور دونالد جی. ترامپ جنگ را برای آمریکا ببرد.
