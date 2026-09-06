@@ -3,8 +3,96 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-06 16:52:21 </h5>
+<h5> 🟢 Updated at: 2026-09-06 20:04:47 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-06 17:35:10
+
+<img src="https://cdn1.telesco.pe/file/obu3eaf0S3XuGmeDVH7OS82aZRTG2cFFxuHUlu55_fe0jk69V_LrBdiZv79akP3HghX_F3t1IF8FCf_oi05X_VMhGlUU88AzEYeoSBi4qdsZMsxitn1KvU9awIk2dMMr216jx3b4GPg7LbQ3oESCvQ1af3SNYS2kT9SMYoGTROzwUlYbzLKi0dYazOkIuT6u9YspFsy35q83O-_B27aQsg41W-XxeagsAkT2551ipafrbQLk_eBl1aPOIeyLZgbfAS600QP1yHTRHeu82b5MsIy6cfyerBr3LxmJHqD77v7xx2s6-wXRytaWFXM9gQ6e9BQw_Qsl-lRuPHmjw3n-mA.jpg" width="400"><br>
+
+در حالی که سپاه پاسداران، بامداد یکشنبه ۱۵ شهریور ماه در بیانیه‌ای
+اعلام کرده بود
+یک شناور بدون سرنشین سنتکام را در تنگه هرمز هدف قرار داده است، ارتش آمریکا این ادعا را رد کرد و آن را «دروغ محض» خواند.
+رسانه‌های دولتی ایران گزارش داده بودند که این شناور بدون سرنشین آمریکایی قصد ورود به منطقه‌ای از تنگه هرمز را داشته که ایران آن را ممنوعه اعلام کرده است.
+کاپیتان تیم هاوکینز، سخنگوی فرماندهی مرکزی آمریکا (سنتکام)، در گفتگو با آسوشیتدپرس گفت ادعای سپاه پاسداران «دروغ محض» است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78257)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-06 17:28:31
+
+
+
+قالیباف: قاعده بازی عوض شده و دوران پاسخ متناسب به پایان رسیده است
+رئیس مجلس شورای اسلامی روز یکشنبه ۱۵ شهریور، یک روز پس از حمله آمریکا به چند نفتکش ایرانی در خلیج فارس، گفت دوران «پاسخ‌های متناسب» به پایان رسیده است. او همزمان به وجود مشکلات اقتصادی در کشور اذعان کرد.
+محمدباقر قالیباف در سخنانی در جلسه علنی مجلس تهدید کرد: «هرگونه تجاوز به منافع و امنیت ایران، پاسخی سریع‌تر، سنگین‌تر و دردناک‌تر دریافت خواهد کرد.»
+قالیباف که مذاکره‌کننده ارشد جمهوری اسلامی در گفت‌وگوهای بعد از آتش‌بس با آمریکا است، در بخش دیگری از نطق روز یکشنبه گفت: «نوسانات شدید قیمت ارز، تورم، بیکاری و مدیریت بازار، چالش‌های اساسی هستند که به معیشت مردم فشار جدی وارد کرده است.»
+او افزود: «در کنار میدان نظامی، امروز اصلی‌ترین نبرد ما در میدان تولید و معیشت مردم است.»
+این سخنان یک روز بعد از آن است که قیمت دلار در بازار آزاد ایران تا مرز ۲۲۸ هزار تومان بالا رفت و از سوی دیگر آمارهای رسمی نیز نشان‌گر افزایش شدید تورم در ماه‌های اخیر است.
+علی مدنی‌زاده، وزیر اقتصاد ایران، نیز روز یکشنبه گفت واکنش تهران در برابر تشدید فشارهای اقتصادی آمریکا «مقاومت اقتصادی در کنار اصلاحات اقتصادی» است و این دیدگاه را که تحریم‌ها باعث تغییر مسیر ایران خواهند شد، رد کرد.
+او با اشاره به اظهارات مقام‌های ارشد دولت دونالد ترامپ درباره اقدام آمریکا برای قطع رابطه ایران با اقتصاد جهانی گفت: «تصور اینکه بتوان با فشار بر اقتصاد ایران، تصمیمات یک ملت را تغییر داد، اشتباه است.»
+وزیر اقتصاد ایران افزود: «مسئولیت اصلاح اقتصاد ایران بر عهده دولت و مردم ایران است، نه وزارت خزانه‌داری آمریکا.»
+این در حالی است که همزمان وزیر خزانه‌داری آمریکا اعلام کرد ترکیب محاصره دریایی و تحریم‌های گسترده، صادرات نفت و دسترسی جمهوری اسلامی ایران به درآمدهای آن را به‌شدت محدود کرده است.
+اسکات بسنت در گفت‌وگو با شبکه فاکس‌نیوز که روز یکشنبه منتشر شد، با اشاره به نقش چین به‌عنوان خریدار اصلی نفت ایران گفت محاصره دریایی مانع خروج محموله‌های تازه شده و برآورد کرد که «احتمالاً تنها حدود ۳۰ میلیون بشکه نفت خام ایران باقی مانده که چین هنوز نخریده است».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78256)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-06 17:23:03
+
+<img src="https://cdn1.telesco.pe/file/CWCVIeKXSQaj_OGtBW0258uICRYJu3ES07_rzgK2oli-Ew91gbmP080UlFc0SmRocBMaQhH9iLj3KxaByYBpoUSaNPvWn2pDTRKtU56ffNNNASt0YszTOkucxr4pKXKxsM0nGt6NFh_At67wlVmxHh-_dDzyGCVjqdmIgTM2n7250aO5shj6U7nJf6QD85brDfhUiporm64NX2S6LZStIwL6ncIZb2swzhoNBMns8Ot8Awe4e6LqTVL5eFAZKs5tdIqmk5l8MTcQgKZosnFlO1F1xcyssY9pPbNDnY4BtUZ8G2_o8RHDXpJ93b2byvM9fon8vctLI4xX8D49VxrTtA.jpg" width="400"><br>
+
+قیمت دلار در بازار آزاد ایران پس از عبور از مرز ۲۳۰ هزار تومان، به کانال ۲۲۶ هزار تومان بازگشت.
+بر پایه گزارش اقتصاد۲۴، نرخ دلار صبح امروز یکشنبه ۲۲۶ هزار و ۱۰۵ تومان بود. وب‌سایت‌های اطلاع‌رسانی طلا و ارز پیش‌تر برای ساعتی از جهش قیمت دلار به بالای ۲۳۰ هزار تومان خبر داده بودند.
+بهای دلار در ادامه با شیب نسبتاً تند عقب نشست. اقتصادنیوز این افت را به ورود بانک مرکزی به بازار نسبت داد و نوشت این بانک به دنبال جذب نقدینگی در بازار است.
+حواله دلار در مرکز مبادله ارز و طلای ایران نیز ۱۶۰ هزار و ۹۸۳ تومان اعلام شد که شکافی بیش از ۶۵ هزار تومان با بازار آزاد ایجاد می‌کند.
+حتی با احتساب اصلاح امروز، رقم کنونی نزدیک به ۱۰ درصد بالاتر از آغاز هفته گذشته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78255)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-06 17:20:18
+
+<img src="https://cdn1.telesco.pe/file/WoAK-WffI1a52NTNAfZhwckAWs4-gRY1BaCTIQuW6BbJL6ztFgokwbB_rMlbK6X4PdAKviu7ygypOv932aYL30AAa7Qe4u0mTCqb7eBduGpx35eP2QVaIo-FvDrFRZx4nvNZLUUwBXVfgeffizkyRCAjxsCU00gZSsaXvWdhXZDoHO_AL47wUILoAlCd1cI9qI4_rpQpHIDHxjeKbA6JHpjq5BLpks7B4sDZNbbBkUmfdLiGT2_moWjfHsZ_O6jHE_yA5JyBSwjuDTlg-VqKAKZeM5eZEO9LQ2dGIQ9XaMUFZlM46xbRM1Ukgh6CPc0OE-N5kA_hk9XZEe0fHTg1Eg.jpg" width="400"><br>
+
+BadAngel66636
+آرمین تیموری راد ۱۹ ساله
+پدرش: امید تیموری راد ۴۷ ساله
+عموش: امیر تیموری راد ۴۲ ساله
+نوشته بودند ۱۸ دی در فردیس کرج به دست ماموران سرکوبگر حکومت کشته شدند.
+روی مزارشون نوشته شده ۱۹ دی
+و نوشته بودند:
+به جز این سه نفر، همسر امید تیموری‌راد و مادر آرمین هم در پی اصابت گلولەهای جنگی، بە شدت مجروح شدە است:
+@VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78250)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-06 09:05:23
@@ -94,7 +182,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-05 19:32:57
 
-<img src="https://cdn1.telesco.pe/file/d4TNlP3OjIqz4_m2ncmsdWdrE8TOFDhU0EINf_ciiSRkdmyoLUdyZ8QnKqUDuK5ELVCw996K4wna5QmfPL-XL_xnytE7VtphQvv5msJdo8A9bIliBfKdmpTcd61oWNeBEwtlRLnoA48xmAQu2XaHwcU3O6kfOjlosqfHshswR5LaeXTQAc4xrFE9p8FPrTp8lpB5-z9pVdJc4HzYGisgfNp2HgW7iqqvg_5rig3YXxDMstcqWAKEEmwctQjtmZofZHsY7HS5GKciL_SS7HNmXyy5FxU2we2fwZsEdzmlZ49tGsLTr_KOWIu2A_XqED6ZiZ1mfxYpOdCvPHQHl4HFWQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/j6pQcD5i9eMc7TyEImrznB5tXswtTZv2fm_34TNPLc0WW5A0eCIIGAkA_Mh3Lf8_WUVCB2TueGqPTrQqbocCiBjMmKIpf57X0hdbYjXihE892jXxswlcqHfT-VdS5hjc89JLlu4km0dtaZqmmZIFCUqnjw7yVL-FnHQzSOtXzJr_q6ayFEoc9XENMWDHCNYvaKo1kRI01ntJocL1ZAS-gmvlhcaNhVSNDoo92MXS1tP4C_64oEAVL8cQIhUfu5XwEoqLc6pFWMlHyxSP8HeKHxFzo09gzVU6xY6txdnXOtNC3ug_j6lqYbw6LpJlhRDBopmWFsdVdA5Y-YlTqteJwA.jpg" width="400"><br>
 
 UKMTO:
 مرکز عملیات تجارت دریایی بریتانیا  گزارشی درباره چندین کشتی تجاری در شمال خلیج فارس و دریای عمان دریافت کرده است.
@@ -111,7 +199,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-09-05 18:14:09
 
-<img src="https://cdn4.telesco.pe/file/QWF21TwykY6Me4pZ5wvOjfuNVcO7vSsOirOiDSf11RrBZ3vTJToZzvGub6YEmPXWIAUYhD6wjMCMGvx26xOmm34SbmMiY_dr5OE2vbKqMLjvlIf9hYFL5DKp38iXesjZI-IsqqreLdc9LmqWB2fX-LjQMRmn3xis7safR-CkIYgkWA8yhINyKDHmMxB_v1Dkot1O1rMEr-w8wdDypyBGwVt-Il48c_4v-Ea7ic9Lc-Vy3GPbljy_UIOtAhFvwsGPKThdtFZabd35RnXlmFWHQahBkrffuODcboe74Ww728ZjAu1j0nJNuuI8mBd3fL90EnpDEGcvt2wKmDuIi239JA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/JO9h5w3EGQP3oTPA3ypknK5r5l5qrogU7irJV7I2zbUdTA0IWbT1ngdD9zH0ForYnhPCOOr-11nxLHH0sNHW2tvjZljTP2lMO3L4dqI0Yw4KYvTLBITflfykaZ7xS9Dzq8NK7TVRce8TragqmhLEMjGljH8d5ebUgYPFVQ7il8Pg10aFF2ZAzVe6XJv6DDqvyKMhvgGjyS5XSFIRAbpngnKE6JehHsy7unkxEB9MWAWpJOlLWKa3LUkWiPgF5PNj_44rIROIcGsuxwSasZxWT2cpCPxerhHutCZjhg7zOdW9uhXoi7A6aWLEp9Bkq-IBqbgnWk6P7IF-gqyKVIHQFg.jpg" width="400"><br>
 
 ❇️
 مادر دو معترض جان‌باخته، در لاهیجان بازداشت
@@ -181,7 +269,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-05 17:10:06
 
-<img src="https://cdn1.telesco.pe/file/i85CGSRcatHYdRe50BLcV2AOME7qedCVItGEUHb9AV8zVPGS5qGKidfx49A-Pn3ySjcNxYK6I-lKvSAW3VC6fkHRR_rBtDm1qGYYozwdhvpaCFWIbHvYhuPfB6aM5l9XLSQVbxnBUQKpXPRts81SqOFou_T8vSw8o1gdtLPe3XrqiL3o5vb4w2t7GI1E04PcNhHSodQXJiEiv_-rGmE-BfkVxrnrfHyUzBh-luxZqHKxY70r3vTi6ta_27s1xNnsgzh7foMMNFxe44XXVNKQcSc4f7d5CTnd9tv-ZtVw-srv0nR2XrL-a1g7h1-7MgAiw5gofoYSaTVIa1NjE1m3tQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aVQXiNS1W1CD0LBShYL-PD85BReLjitjACMt7lK3ac_yHuGpO9pPmFwlhMKwAIi4lKnlKV9lnyF5VysfkPPiehAMLE3XAdXUFiDxRDqsa7UBHFUxPVdZqzAREq4yxIO5gw_aKN7raBt1y3jJ6egMNBm9dmIK7YeOeGK7BYQgU0zGpUJE6s0HOQjC5SaME-Xm8X19KiduaYAb8EK_bkfvzz-kMlsRnHx8YZtDf_lxMjiRadYVLg0uFNdYaDuYJVUyRKHfISpl8MeZn7rZLAuk2RRHINS_05jEO5z6MpLu87CcO7nt0G0hLkuUF-CcPaskNmRFbMTTnF1fRzP7rG_oMQ.jpg" width="400"><br>
 
 قیمت دلار در بازار آزاد ایران روز شنبه ۱۴ شهریور با جهشی دیگر به ۲۲۸ هزار تومان رسید و بهای یورو نیز از ۲۶۳ هزار تومان عبور کرد.
 وب‌سایت‌هایی که نرخ غیررسمی ارز در ایران را به نمایش می‌گذارند، همچنین بهای پوند انگلیس را ۳۰۷ هزار و درهم امارات را بیش از ۶۲ هزار تومان اعلام کرده‌اند.
@@ -201,7 +289,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-05 17:08:51
 
-<img src="https://cdn1.telesco.pe/file/a8FluuMC4rME-VKzwQGOG7dkEh8ZBsxBPraS6aeaIrP5jYT7SWIsIomJ9GC1uF_tiHXiRmRhZmtxDcQHAIWbLRWVWeyULVKOdGl7H1e2-u6wTYloDvAsiheZL7QmYODFuKugPzlvysuXknZhKq50zvrsWuD3xSIcbKDMWoR2kQLbge6EU_BsIf9No7aSyfIpDmraJ5iFjHwHh3XFTaAjO-bPwhJR8m6RI0s4bJjFWTTQlZqibrIjlF581u8cQQOBINu5FCNUKobV8_e8z28BTF3rq6VX3yN2TBxZ6m1-kf741M_VyKwEtp9RjsfxOwOlsSUMenApn2ka-2KpI8dgSA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IUMbzyLznHEf1DtibNN8TCTUAeDFZyZb6rm2ywLIc9RLdJ4MCBSCOkZxQ5vMaAC_JxVItla8t7q_cgNesWFGak_NZBX5o4P8wj5Zx4Dktu5v8c1ezdcDqhgKQg7nO-i6-gKOnbC56R63aIGZr6q7Kj20SEDAsqXbc64pnSYkQ0KVjhOmmIO-yCx-a7PDxJn2I2Iu4dySwpS_k_8X2gEB0vSRsiT_CaK5aUPX3nfqVMT_y--Mf0caB7cJt0AViAh-ECji1-QBuB9WhmVmDz8_Tho3Ljmmcwv_6j0wIcE0U7a43zsoy3ie7iRV0x4G_l30ux9vN3a_zf7aiqnw_Cxjrw.jpg" width="400"><br>
 
 وزارت خارجه ایالات متحده روز جمعه ۱۳ شهریور از موافقت با فروش پنج میلیارد دلار بمب، کیت‌های هدایت و دیگر تجهیزات نظامی به عربستان سعودی خبر داد.
 این وزارتخانه اعلام کرد این فروش، توان دفاع هوایی عربستان را برای مقابله با تهدیدهای کنونی و آینده منطقه‌ای تقویت و هماهنگی تجهیزات این کشور با سامانه‌های نیروهای آمریکایی و دیگر شرکای واشینگتن در خلیج فارس را بیشتر می‌کند.
@@ -235,176 +323,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78238)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-05 17:04:45
-
-
-
-آرتین خواجوی‌نیا، دانش‌آموز ۱۶ ساله رشته کامپیوتر، شامگاه ۱۸دی۱۴۰۴ در جریان اعتراضات مقابل فرمانداری شهر قدس، قلعه حسن‌خان، با شلیک گلوله جنگی کشته شد.
-مادر آرتین ویدیویی از جمع‌آوری کفش‌های فرزندش منتشر کرده است؛ کفش‌هایی از دوره‌های مختلف زندگی او که حالا به یادگار مانده‌اند.
-مادر این نوجوان کشته شده، نوشته است: «از اولین تا آخرین قدم‌های تو را مرور می‌کنم پسر قهرمانم. از لحظه‌به‌لحظه بزرگ شدنت حالا فقط خاطراتی برای من مانده که هر ثانیه از مقابل چشمانم می‌گذرد.»
-«از آن نوزاد زیبا با آن لباس زرد در آغوشم تا آن مرد بلند قامتی که باید برای دیدنش سرم را بالا می‌بردم، تو همیشه یادگار مادر شدن من خواهی ماند.»
-او فرزندش را «قهرمان جاودانه من» خطاب کرده و نوشته است: «هر لحظه و هر جا یادت جاوید و راهت پرنور.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78237)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 23:28:42
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/78236)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 21:07:28
-
-<img src="https://cdn1.telesco.pe/file/aY702xirqajuROqCH4CTiRqN8WJUKJRbe07SqouwzZrYygET4zM7GPo0nUYAqVwUDiJ8vTAImBa0tAHl9k2MMDz7wNeJ6QMuoB0WJKNOAgSFR7QPqUBKdps2sYskStS-K27RPsZ2gCqzCwpu4_boCJ9TyC9-Re0NQ431adKKTUeu5oW0DoeqMwCmTytrqUbvHW5imOBDPxIEh5Opi-XbgSG4kBRW3DegrP_sGhHAqQwXLPn0WGmoA-VtrMK5stVnLd8ZmLuShUaJnUeOujth32aHJiHhQWJILJxv0n7nMghVetR2a9FIv0FBhKPffa7FRZoS9wFTOfJE1ScJlFd9rA.jpg" width="400"><br>
-
-ایالات متحده آمریکا همراه با بریتانیا، فرانسه، و آلمان در تلاش است شورای حکام آژانس بین‌المللی انرژی اتمی هفته آینده قطعنامه‌ای تصویب کند که پرونده هسته‌ای جمهوری اسلامی را برای نخستین بار در ۲۰ سال گذشته به شورای امنیت سازمان ملل متحد گزارش دهد.
-خبرگزاری رویترز روز جمعه ۱۳ شهریور به نقل از دیپلمات‌ها و با استناد به متن پیشنهادی قطعنامه گزارش داد که چهار کشور در حال رایزنی با دیگر اعضای شورای حکام ۳۵ عضوی آژانس برای تصویب این قطعنامه هستند.
-مذاکرات درباره متن نهایی همچنان ادامه دارد و پیش‌نویس هنوز به طور رسمی به شورای حکام ارائه نشده است.
-بر اساس پیش‌نویسی که رویترز مشاهده کرده است، شورای حکام از مدیرکل آژانس خواهد خواست قطعنامه جدید و قطعنامه‌های پیشین مرتبط با برنامه هسته‌ای جمهوری اسلامی را برای اعضای آژانس، شورای امنیت و مجمع عمومی سازمان ملل ارسال کند.
-در متن پیشنهادی همچنین بار دیگر از جمهوری اسلامی خواسته شده است موارد نقض توافق پادمانی خود را «فوراً» برطرف کند و اقداماتی را که آژانس و شورای حکام ضروری می‌دانند انجام دهد تا مدیرکل آژانس بتواند درباره صحت و کامل بودن اظهارنامه‌های هسته‌ای حکومت ایران اطمینان لازم را ارائه کند.
-اقدام آمریکا، بریتانیا، فرانسه و آلمان ادامه قطعنامه‌ای است که شورای حکام روز ۲۲ خرداد ۱۴۰۴ تصویب کرد. در آن قطعنامه جمهوری اسلامی به دلیل همکاری نکردن کامل با تحقیقات آژانس درباره آثار اورانیوم در مکان‌های اعلام‌نشده، ناقض تعهدات خود در زمینه منع گسترش تسلیحات هسته‌ای شناخته شد.
-یک روز پس از تصویب آن قطعنامه، در ۲۳ خرداد ۱۴۰۴، اسرائیل حملات به تأسیسات هسته‌ای ایران را آغاز کرد و ایالات متحده آمریکا نیز پس از آن به عملیات پیوست. بر اساس گزارش رویترز، تأسیسات غنی‌سازی اورانیوم ایران در این حملات تخریب شدند یا به‌شدت آسیب دیدند.
-جمهوری اسلامی از زمان این حملات به بازرسان آژانس اجازه نداده است به تأسیسات بمباران‌شده بازگردند یا وضعیت باقی‌مانده ذخایر اورانیوم غنی‌شده را راستی‌آزمایی کنند. شورای حکام طی یک سال گذشته دو قطعنامه دیگر نیز تصویب کرده و از حکومت ایران خواسته است موجودی اورانیوم غنی‌شده خود را اعلام و دسترسی کامل بازرسان آژانس برای راستی‌آزمایی آن را فراهم کند.
-آژانس بین‌المللی انرژی اتمی برآورد کرده است جمهوری اسلامی پیش از حملات به تأسیسات هسته‌ای، ۴۴۰.۹ کیلوگرم اورانیوم غنی‌شده تا سطح ۶۰ درصد در اختیار داشت. بر اساس معیارهای آژانس، در صورت غنی‌سازی بیشتر، این مقدار می‌تواند برای تولید مواد شکافت‌پذیر مورد نیاز حدود ۱۰ سلاح هسته‌ای کافی باشد. آژانس میزان غنی‌سازی ۶۰ درصدی جمهوری اسلامی را «مایه نگرانی جدی» دانسته است.
-جمهوری اسلامی می‌گوید قصد تولید سلاح هسته‌ای ندارد و فعالیت‌های هسته‌ای خود را صلح‌آمیز می‌داند. ایران به عنوان عضو پیمان منع گسترش سلاح‌های هسته‌ای حق استفاده صلح‌آمیز از فناوری هسته‌ای، از جمله غنی‌سازی اورانیوم، را دارد؛ اما آژانس می‌گوید جمهوری اسلامی تنها حکومتی است که بدون داشتن سلاح هسته‌ای، اورانیوم را تا سطح ۶۰ درصد غنی کرده است.
-رویترز گزارش داده است در سال‌های اخیر هر بار آمریکا، بریتانیا، فرانسه و آلمان پیش‌نویس قطعنامه‌ای درباره برنامه هسته‌ای جمهوری اسلامی به شورای حکام ارائه کرده‌اند، آن قطعنامه تصویب شده است. با این حال، اقدام عملی شورای امنیت علیه جمهوری اسلامی ممکن است با مانع روبه‌رو شود؛ روسیه و چین که از متحدان حکومت ایران به شمار می‌روند، از اعضای دائم شورای امنیت و دارای حق وتو هستند.
-@
-VahidHeadline
-نمایندگی جمهوری اسلامی در سازمان ملل در وین اعلام کرد این اقدام آمریکا، بریتانیا، فرانسه و آلمان نشانه «شکست کامل توهم مکانیسم ماشه» است.این نمایندگی افزود این اقدام نیز «هیچ سودی» برای این کشورها نخواهد داشت.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78235)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 20:34:15
-
-<img src="https://cdn1.telesco.pe/file/TA1U28BsjOrGgCSytiMont7S2AB0KFcHTrx6BbP6yOUFipN36JsaoT3jKhZQcSmcRVPy64Vd5IcW2BCHDBaUhOhIK1vFUH8L_l6siILIy4T9CjI-mRYIQAwisrJC6is2Bw5ZjCjtmOW4Ru5vNWuxTG3aWp-NoQv-lyieN11pYfDhuHYjB1ns3L2-0d4lXsb8iTPZJ_UsvGOf3VSxqTlLR5ukB01yU3OUkvFRjlwZDqaFuB4KfTlwxfdArSMektCdVPLh2Q6lSqA7gYmtVprLAJFMT0Vy7heirU82odVeizlP6Tu2BTmsqFYUB8Qm-DnIzaTzE8q4N3u2tFBCCY_B9w.jpg" width="400"><br>
-
-العربیه شامگاه جمعه گزارش داد که موشک‌های پرتاب شده از سوی ایران، در شمال اردن رهگیری شدند. به گزارش این رسانه تصاویر رهگیری موشک‌های ایرانی در شمال اردن منتشر شد.
-ساعاتی پیش از این گزارش، برخی کانال‌های تلگرامی نزدیک به سپاه پاسداران، اعلام کرده بودند موشک‌هایی از اصفهان، کرمان و کرمانشاه پرتاب شده است.
-@
-VahidOnLive
-وزارت خارجه قطر جمعه ۱۳ شهریور در بیانیه‌ای اعلام کرد این کشور طرف درگیری نیست و حمله به خاک قطر را نمی‌توان توجیه کرد.
-این وزارتخانه افزود موفقیت نیروهای مسلح قطر در رهگیری حملات جمهوری اسلامی، از خطر این حملات نمی‌کاهد.
-وزارت خارجه قطر همچنین در این بیانیه نوشت «تاسف‌بار»است که با وجود مستند شدن رسمی حمله به راس لفان، وقوع این حمله زیر سوال برده می‌شود.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78234)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 20:29:29
-
-<img src="https://cdn1.telesco.pe/file/RuHGTAjcljafZrb3B5ElJ-LY8Q201aZNDx4leGTx2NYdX5QZOv_q_Vvq__4DVSav_hjVFCyvpycs9pyj-BSn989EBRgsy_xSxen7x_pZBH0YMHFbTIRgP5ndqk50HwBqroP0spxzsDofo8EUMQvyOv84pLIVe4X1duBlUr34g9dKPx7FO8Iu_5RrqaMaMvNeHjA-X14rN0Aok4WwJygp7LPwn78j055WV2WRAsAyyIeJw0tMX80n5IQZ5xe28SH9k7_gnM4umqpO4G3tpJIRMk7xJTN9pQSlfridhUeKivgG3dc3XIcxZiEpBCtKO7Mi_odEVpmE6-arRNsmb4rr0w.jpg" width="400"><br>
-
-آمریکا یک بانک مستقر در ترکیه و دو شرکت وابسته به آن را به دلیل تسهیل انتقال ده‌ها میلیون دلار برای نیروی قدس سپاه پاسداران و فراهم کردن دسترسی جمهوری اسلامی به شبکه بانکی بین‌المللی تحریم کرد.
-وزارت خزانه‌داری آمریکا روز جمعه ۱۳ شهریور اعلام کرد «گلدن گلوبال بانک» و دو شرکت زیرمجموعه آن، «گلدن گلوبال وارلیک کیرالاما» و «گلدن گلوبال پورتفوی یونتیمی»، در چارچوب عملیات «طرد اقتصادی» به فهرست تحریم‌ها افزوده شده‌اند. هر سه نهاد در ترکیه مستقر هستند.
-وزارت خزانه‌داری آمریکا همچنین در حساب رسمی خود در شبکه اجتماعی «ایکس» اعلام کرد این اقدام بخشی از عملیات «طرد اقتصادی» است و هدف آن قطع «شریان‌های حیاتی مالی» جمهوری اسلامی در ترکیه است. به گفته این وزارتخانه، گلدن گلوبال بانک و شرکت‌های وابسته به آن ده‌ها میلیون دلار تراکنش برای نیروی قدس سپاه پاسداران تسهیل کرده و دسترسی مهمی به خدمات بانکداری کارگزاری در اختیار جمهوری اسلامی قرار داده‌اند؛ دسترسی‌ای که امکان جابه‌جایی بین‌المللی منابع مالی حکومت ایران را فراهم می‌کند.
-اسکات بسنت، وزیر خزانه‌داری آمریکا، با اشاره به کارزار دولت پرزیدنت ترامپ برای قطع منابع مالی جمهوری اسلامی گفت مؤسسات مالی همچنان درمی‌یابند که ایالات متحده در اجرای عملیات «طرد اقتصادی» جدی است.
-او افزود آمریکا امیدوار است بانک‌های بیشتری نیاز به تحریم نداشته باشند، اما این مسئله به این بستگی دارد که جامعه بین‌المللی به سرعت حمایت از حکومت ایران را متوقف کند. آقای بسنت همچنین تأکید کرد ایالات متحده به همراه متحدان و شرکای خود به اقدامات علیه شبکه‌های مالی جمهوری اسلامی ادامه خواهد داد.
-بر اساس اعلام وزارت خزانه‌داری آمریکا، گلدن گلوبال بانک برای فراهم کردن امکان انتقال درآمدهای نفتی جمهوری اسلامی از چین به ترکیه ایجاد شده بود؛ درآمدهایی که پس از انتقال به ترکیه می‌توانست به پول نقد و طلا تبدیل شود.
-وزارت خزانه‌داری می‌گوید این بانک همچنین آگاهانه پیشنهاد ارائه خدمات بانکداری کارگزاری به مؤسسات مالی جمهوری اسلامی را داده و از این طریق انجام تراکنش از طریق حساب‌های تحت کنترل نیروی قدس سپاه پاسداران و شبکه‌های وابسته به آن را امکان‌پذیر کرده است.
-در اطلاعیه وزارت خزانه‌داری همچنین به شبکه «سیتکی آیان»، بازرگان ترکیه‌ای، اشاره شده است. ایالات متحده این شبکه را پیش‌تر در سال ۱۴۰۱ به دلیل نقش آن در انتقال صدها میلیون دلار درآمد حاصل از فروش نفت مرتبط با نیروی قدس سپاه پاسداران تحریم کرده بود.
-@
-VahidHeadline
-اسکات بسنت، وزیر خزانه‌داری آمریکا، جمعه ۱۳ شهریور در شبکه اجتماعی ایکس نوشت از زمان برقراری دوباره محاصره آمریکا، هیچ محموله نفت خام ایران نتوانسته با موفقیت از تنگه هرمز عبور کند و به چین برسد.
-او افزود نفت خام در کشتی‌های گرفتار در داخل تنگه انباشته شده و امکان جایگزین کردن ذخایر صادرشده وجود ندارد.
-بسنت نوشت: «مسیر حیاتی صادرات ایران در حال قطع شدن است؛ نفت سرگردان، ظرفیت محدود ذخیره‌سازی و درآمدهایی که به‌سرعت در حال کاهش است.»
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78233)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 20:18:56
-
-<img src="https://cdn1.telesco.pe/file/ojgpHmbzi_JMPsUiQpkPiqzw3cCimIm-rm95qJr3SXJpWlREq2qB54gP-lyEMkK_F9Xpk3zMNhgNkeF4Q5LTawp5t7QXwrLHTTOV6naznWC1kJbqTZX-IJewv9K9h0vqtQF-H3_KT-TS_i1YoATXFUB5nh386sI4pYcl8t4-eaKvH_5G08QMlNha8yL31THbxXGY-DwBuqtFWIapFIO7e659LwzmEx4eYoQKsDK8K_rCaHy8qxGQ7XiY4Ma3ER-YeKaX14Lu1Oox-k8GmsaInG1WXnTVcfW7gLU-OWYnmBfRsmKFJj6XkKR0JmcCq_nmGp2LlIuHx5LOscntvpoH-w.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-دیوانه‌های چپ رادیکال، دموکرات‌های احمق و کمونیست‌ها ترجیح می‌دهند ما در جنگ ایران شکست بخوریم تا اینکه رئیس‌جمهور دونالد جی. ترامپ جنگ را برای آمریکا ببرد.
-به عبارت دیگر، آن‌ها ترجیح می‌دهند ما ببازیم تا اینکه ما پیروز شویم!
-این‌ها آدم‌های بسیار بیماری هستند که از TDS شدید رنج می‌برند؛ چیزی که گاهی از آن با عنوان «سندرم جنون ترامپ» (TRUMP DERANGEMENT SYNDROME) یاد می‌شود.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78232)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 19:23:57
-
-<img src="https://cdn4.telesco.pe/file/RIYicTKhC0lmdeqbrdpszgZH6-HAtIRYJpm9sJqlFrPZfHB2K-zXITl-8lV6StCqn1rwgy3no9GUd1_cjSVfQcvEr-lwZuNZI7k5iBACJwiXJ-5u3Yfz6Bbv8XV3MCStyVYnwrNQ2aFMTyB4G49EKnZnjDk4T2XCzL19QphYHB4oyVS6YZp_Jp6hTstl25jGHOhoyv6cB1pZCoTWlcbkPX3PrcSyYceGZk3LfPZn3dwD5diJbRjgLGV9H3JypHd55E29jCfRcWSyYrpVFcZGpGaJRTwQ2GxLk5yFq2xbu5f8a2P8CUm7-wLMSlybl_5cW3CZPxHLV9veicMGPwkxjQ.jpg" width="400"><br>
-
-روزنامه «فایننشال تایمز» روز جمعه ۱۳ شهریور در گزارشی اعلام کرد اختلافات میان ایالات متحده و جمهوری اسلامی ایران بیش از پیش بر سر آینده تنگه هرمز متمرکز شده است؛ چرا که دولت دونالد ترامپ بازگشت به یادداشت تفاهم اسلام‌آباد را رد کرده، در حالی که تهران خواهان احیای این توافق به عنوان زمینه‌ای برای کاهش تنش‌ها و ازسرگیری عبور نفت از تنگه هرمز است.
-بر اساس این گزارش، تلاش‌های دیپلماتیک برای بازگرداندن طرفین به تفاهم‌نامه اسلام‌آباد که شامل توقف اقدامات نظامی، بازگشایی تنگه هرمز و آغاز مذاکرات جامع‌تر بود، با مخالفت واشنگتن روبرو شده است. آمریکا اکنون خواستار توافقی جدید و فراگیرتر است که علاوه بر وضعیت تنگه هرمز، پرونده هسته‌ای ایران را نیز شامل شود.
-در مقابل، مسعود پزشکیان تاکید کرده که کشورش آماده است به محض بازگشت آمریکا به تعهدات خود در توافق موقت، به تعهداتش عمل کند.
-با این حال، واشنگتن بر اهرم فشار میدانی حساب باز کرده و با تقویت حضور نظامی، مین‌روبی و ایجاد مسیرهای امن، سعی دارد ثابت کند ایران دیگر نمی‌تواند از تنگه هرمز به عنوان یک کارت فشار بر بازار انرژی استفاده کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78231)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 19:23:11
-
-<img src="https://cdn1.telesco.pe/file/EgIF7MRXySg-_3Nfuh9sCdGJwkhCWaXv7A-bDENpOGzmKlJIkblp0iAHftuJFKdukRHpQLzN_-S6s1H8-sA1HcgPtoffhdbpXWdwtxwIUVfCG49n9pE9-2eMK0El52IWkOfGSIRYYEAUi7dxdCsP17uAxsJxxxRiZ91ik0eeg1dgWJchSwcuYRGdZtxIdRv6Y1ggXe4BXDgmt1AmvAzj1BOtXLIDyc48W8m_hWTSpBnogyvq3EvheKZVqp71Lk5JEg8if57sqL5UOwF4cKfNU-4YFVSCwgLJYWciAbV-ozD0T67UrHJNirZQN6EG8Pcx3nn6ISDcN3OLEMzNDH8vtQ.jpg" width="400"><br>
-
-قیمت گازوئیل در آمریکا با ثبت رکورد تازه‌ای به بیش از پنج و نیم دلار در هر گالن رسید.
-انجمن اتوموبیل آمریکا روز جمعه ۱۳ شهریور اعلام کرد که قیمت گازوئیل در این کشور در حال حاضر به پنج دلار و ۸۵ سنت به ازای هر گالن رسیده، در حالی که یک سال پیش قیمت آن سه دلار و ۷۱ سنت بود.
-هر گالن حدود ۳.۸ لیتر است.
-انجمن یادشده این افزایش قیمت را ناشی از اختلالات در حمل‌ونقل سوخت به‌دلیل جنگ آمریکا با ایران عنوان کرده است.
-گازوئیل، سوخت حیاتی مورد استفاده در حمل‌ونقل جاده‌ای، کشاورزی و ساخت‌وساز محسوب می‌شود و بیم آن می‌رود که افزایش چشمگیر قیمت آن، نرخ تورم را افزایش دهد.
-قیمت بنزین معمولی در آمریکا نیز چهار دلار و ۱۵ سنت به ازای هر گالن است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78230)
 
 ---
 
