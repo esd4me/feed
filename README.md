@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-06 08:49:12 </h5>
+<h5> 🟢 Updated at: 2026-09-06 13:26:07 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-06 09:05:23
+
+<img src="https://cdn1.telesco.pe/file/KruJ2pwcuWd9bVI9nwP7_HfGFfBK32h7pBrr2vD-afe7EUmwyOphIZr8iN7LE2FRLUOnH5xoSxTEmgxjRVYBjJazeRuSh-cNqbbTX2BExVo5uAnBG_RfRXL_8rMgSTq8XxBKGzHbDTBr-VIkxYkUX1Vkt936qBI12CwB96Hc1Tz2KO54DiTgjEWnAb0IoQIDjvEQePHW2ST8tbjXiv6tzUidUE1OBkXZv1JLkSQuVDdB6WVi5wBZ0uqKMT-maar437QANOEHfh0ECxKhxz56voQzQez8u-sznkffAtDkKIA4AAdwTJney9i5VoyOXtTLafMb4i77TaMiV0QfV4eb2g.jpg" width="400"><br>
+
+نیروی دریایی سپاه پاسداران می‌گوید یک فروند شناور مدیریت‌پذیر از راه دور ارتش آمریکا را هدف قرار داده است.
+روابط عمومی سپاه پاسداران در بیانیه‌ای اعلام کرد که این شناور قصد ورود به «منطقه حفاظت شده» تنگه هرمز را داشته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78249)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-06 04:48:19
@@ -388,39 +405,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78230)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 19:22:09
-
-<img src="https://cdn1.telesco.pe/file/TXUtZS1xQtY9dkrlPLqd0ZCX8kH_KyHkvaIui__sSxelPC_gbZAwkdmgf7KkORQcC8x8WC83cdHNdfqYkcN8XOOifVZGj7fVqnyCcloezEbPNOKw6ZW50kbkTHWS5mp_x0eQnVzJnVurFZf1NGrvn0kS-O58nZnPNS3lhZzU-TM_7oG-98Fp6kyB-MtKdDpRuTR2OL1LF79BeOhohXVWnWSkkLH3N9GjfQmkOuB_3PciGgnZem273IPtxMpmplYzycj5y_L-w3iegBRVHU6AKShJw2KMtYT6e8LvqWGPt6AIU4iHTk-ReB1KVSYOmwHNwKLG0nPBj_enGsjJzOtEYA.jpg" width="400"><br>
-
-پیام‌هایی که من دیروز دریافت کرده بودم:
-▪️
-آزمون Pte  زبان برای ساکنان ایران لغو شد
-▪️
-موسسه‌ی پیرسون هم تمام آزمون‌هاش رو برای ساکنین ایران کنسل کرد.
-امروز صبح روی سایت اعلامیه زدن یک دفعه.
-مشهورترین‌هاش برای ایرانی‌ها امتحان مدیکال کانسیل استرالیا و وزارت بهداشت عمان هست.
-و امتحان‌ زبان PTE
-▪️
-ما جمعی از پزشکا برای مهاجرت استرالیا تلاش میکردیم و هزینه ازمونمون ۳۰۰۰ دلار بود
-الان لغو شده بدون هیچ توضیح خاصی
-دوستان هتل و پرواز بوک کرده بودند برن هند پیام بدن الان میگه نمیشه باید کارت اقامت کشور دیگه ارائه بدی
-خبر:
-موسسه بریتانیایی «پیرسون» که برگزار کننده آزمون‌ زبان انگلیسی «پی‌تی‌ئی» و آزمون ای‌ام‌سی (شورای پزشکی استرالیا) است، در بیانیه‌ای اعلام کرد که به دلیل تحریم‌های جدید آمریکا علیه ایران، آزمون‌های داوطلبان ساکن ایران را لغو می‌کند.
-پیشتر در تاریخ ۷شهریور۱۴۰۵، تعداد دیگری از برگزارکنندگان آزمون‌های مهارت‌های زبان‌های خارجی، از جمله دولینگو و تافل، اعلام کرده بودند که این آزمون‌ها دیگر در ایران برگزار نخواهد شد.
-پیرسون در اطلاعیه‌ای درباره لغو آزمون پی‌تی‌ئی آورده است: «در پی تعلیق 'مجوز عمومی G' توسط دفتر کنترل دارایی‌های خارجی (OFAC) در وزارت دارایی آمریکا، از ساعت ۱۲:۰۰ بامداد هشتم سپتامبر ۲۰۲۶ به وقت شرق آمریکا تا اطلاع ثانوی، ما قادر به برنامه‌ریزی یا برگزاری آزمون برای داوطلبان ساکن ایران‌ نخواهیم بود، مگر آنکه بتوانند مدرکی دال بر اقامت اصلی خود در خارج از ایران ارایه کنند.»
-در ادامه این اطلاعیه آمده است: «آزمون‌هایی که در حال حاضر برای داوطلبان مشمول این محدودیت برنامه‌ریزی شده‌اند، لغو خواهند شد. به‌خاطر این مشکل که برای آنها ایجاد شده، پوزش می‌طلبیم.»
-سرنوشت شمار زیادی از دانشجویانی که قصد مهاجرت با هدف ادامه تحصیل به کشورهای اروپایی، آمریکا، آمریکای شمالی و استرالیا را دارند تحت تاثیر این اقدامات قرار خواهد گرفت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78229)
 
 ---
 
