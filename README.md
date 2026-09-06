@@ -3,8 +3,40 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-06 20:04:47 </h5>
+<h5> 🟢 Updated at: 2026-09-06 22:14:41 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-06 21:43:27
+
+<img src="https://cdn1.telesco.pe/file/RDvtQOXu-cdrJXwyE7E5Q4-qjmIMMbHuL2cXi-B6VgcW3klCftQ3_HQW0T1aaGe-wT0OEy0ASadLlgd8CjaZfxmLZKTJ897rfZuolByYhuc0QUvsCtajZzHRGZlY7StkO5WmlIulTJ1uOd1FupzKz-O1hk1oLyq_7C3jLjstGACbiNYsNq95jEl4xuuDjUw6xMGPXrAp0yVBpfVxr-_4WawVp1KXij0sEaPH4x4j_HbnpErpuQ8HIa4SqcXU-LRYgrFdlACZprc8tHeQAXJXp04qkAUdmKJmH5k8gt3-twxVm_hCAzLLQgY4JbKwpAJw1JVuTtQ0dGx2nOELYcMOkQ.jpg" width="400"><br>
+
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78259)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-06 21:41:18
+
+
+
+نرخ سوم بنزین به ۱۰ هزارتومان افزایش یافت
+فاطمه مهاجرانی، سخنگوی دولت گفت نرخ سوم بنزین از بامداد ۱۷ شهریور به لیتری ۱۰ هزار تومان افزایش می‌یابد.
+سهمیه ماهانه ۶۰ لیتر بنزین با نرخ لیتری ۱۵۰۰ تومان و ۵۰ لیتر با نرخ لیتری ۳۰۰۰ تومان بدون تغییر باقی می‌ماند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78258)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-06 17:35:10
@@ -282,47 +314,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78240)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-05 17:08:51
-
-<img src="https://cdn1.telesco.pe/file/IUMbzyLznHEf1DtibNN8TCTUAeDFZyZb6rm2ywLIc9RLdJ4MCBSCOkZxQ5vMaAC_JxVItla8t7q_cgNesWFGak_NZBX5o4P8wj5Zx4Dktu5v8c1ezdcDqhgKQg7nO-i6-gKOnbC56R63aIGZr6q7Kj20SEDAsqXbc64pnSYkQ0KVjhOmmIO-yCx-a7PDxJn2I2Iu4dySwpS_k_8X2gEB0vSRsiT_CaK5aUPX3nfqVMT_y--Mf0caB7cJt0AViAh-ECji1-QBuB9WhmVmDz8_Tho3Ljmmcwv_6j0wIcE0U7a43zsoy3ie7iRV0x4G_l30ux9vN3a_zf7aiqnw_Cxjrw.jpg" width="400"><br>
-
-وزارت خارجه ایالات متحده روز جمعه ۱۳ شهریور از موافقت با فروش پنج میلیارد دلار بمب، کیت‌های هدایت و دیگر تجهیزات نظامی به عربستان سعودی خبر داد.
-این وزارتخانه اعلام کرد این فروش، توان دفاع هوایی عربستان را برای مقابله با تهدیدهای کنونی و آینده منطقه‌ای تقویت و هماهنگی تجهیزات این کشور با سامانه‌های نیروهای آمریکایی و دیگر شرکای واشینگتن در خلیج فارس را بیشتر می‌کند.
-عربستان سعودی از زمان آغاز جنگ آمریکا و اسرائیل علیه ایران بارها هدف حملات موشکی و پهپادی نیروهای ایرانی و حوثی‌های مورد حمایت تهران در یمن قرار گرفته است.
-وزارت خارجه آمریکا کنگره را از این معامله مطلع کرده است؛ این فروش برای نهایی شدن همچنان به تأیید قانون‌گذاران آمریکایی نیاز دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78239)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-05 17:07:24
-
-
-
-رسانه‌های ایران از شنیده شدن صدای چند انفجار در نزدیکی جزیره خارک، مهم‌ترین پایانه صادرات نفت ایران، و هدف قرار گرفتن یک نفتکش کوچک ایرانی خبر داده‌اند.
-خبرگزاری تسنیم گزارش داد این نفتکش صبح شنبه ۱۴ شهریور در شش مایلی جزیره خارک و در محدوده لنگرگاه، «هدف قرار گرفته است.»
-تسنیم می‌گوید این هدف‌گیری «با چهار پرتابه نیروهای آمریکایی» انجام شده است.
-به گفته منابع محلی، این حادثه تلفات جانی نداشته و کارکنان در حال تخلیه نفتکش هستند. وب‌سایت عصر ایران نیز اصابت چهار پرتابه به این شناور را گزارش کرده است.
-خبرگزاری فارس پیشتر اعلام کرده بود که صدای انفجارها از محدوده خلیج فارس شنیده شده، اما نشانه‌ای از دود مشاهده نشده و منشأ صداها مشخص نیست.
-نورنیوز نیز به نقل از منابع محلی، گزارش «حمله موشکی آمریکا به یک نفتکش ایرانی» را منتشر کرد، اما آن را تأییدنشده خواند.
-خبرگزاری دانشجو هم ویدیویی را منتشر کرده که می‌گوید مربوط به این نفتکش هدف قرار گرفته شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78238)
 
 ---
 
