@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-06 01:59:33 </h5>
+<h5> 🟢 Updated at: 2026-09-06 03:54:13 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-06 02:17:16
+
+<img src="https://cdn1.telesco.pe/file/XiVY6DlokpPW13_GZcqJ0gMGJjLabmR-T0veApNHEpHdEasxDR6G7IeVtQf-uJmqMfIlTTdv6JcrkC1QOHUos0717zevyOLEj5hzhqvZ3nU3wAdjrVnlV-rQNQgqDHf4s7t_2VN3iE6SarrgCSeLp4ncWkenwMOpSV_VAtF_p4v5aYvct0tx65MQ6bljmc7kGFcnydVJbmSEtSUlm2yEPFUrlshQre3ZKt8ldnzWR2YXoLf5s2xbD23rLsjnfthdfIoobQhsaFuJD_vg1dDPVV-4XNtUhg0o-oqMthlHsnxZpMcpu_snxUGIA6gNqa-Vy2v9vTTBCukg6x8xHWJW2Q.jpg" width="400"><br>
+
+روابط عمومی سپاه پاسداران، بامداد یکشنبه، با انتشار بیانیه‌ای اعلام کرد که نیروی هوافضای این نهاد با استفاده از چند موشک بالستیک، یک ناو هواپیمابر و یک ناوشکن ارتش ایالات متحده را هدف قرار داده است. در این بیانیه آمده است که این شناورها در محاصره دریایی و مسدود کردن مسیر کشتی‌های ایرانی مشارکت داشته‌اند و پس از این حمله «دچار خسارت شده» و «منطقه درگیری را ترک کرده‌اند». سپاه پاسداران همچنین با اشاره به تایید وقوع درگیری‌ها از سوی سنتکام، این عملیات را پاسخی به اقدامات نظامی واشنگتن دانسته و هشدار داده است که در صورت تداوم فشارهای نظامی و محاصره دریایی، پاسخ‌های نظامی گسترده‌تری متوجه نیروهای آمریکایی خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78247)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-05 23:58:46
@@ -414,27 +430,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78228)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-04 02:04:24
-
-<img src="https://cdn1.telesco.pe/file/aW0laOy4oTLGdt9Y5gjkcCkMeM5IWTIMpEyECFPnGgEZ3ba_RtSxhINgcdrte66vBA_u0BYaEdVRe_Zgank_RihRr_QHfPijRfRdekY8fMTdi07053KPwoIvCylpKbHF4VyjPX1xb514HL9shq48JL0DqKCL5zUs3TZp9ai7bO9f91W433mxzPRL4gQpfYxFq3tvmZTZgvxiy2bNStV53pKgOI-DTWVaeRA0woy25bMhdcEWcGqYIrPnIen0PGYcaoZYRbDUB4eHEC18GcPtURu8vcjDZueUA7mwEzdP_MzjceBTBpYaMbhls4lb7bL2plQUXeramutTRZICdbZt4g.jpg" width="400"><br>
-
-نیویورک‌پست پنج‌شنبه ۱۲ شهریور به نقل از یک مقام ارشد منطقه‌ای گزارش داد عمان پیشنهاد جمهوری اسلامی برای دریافت مشترک هزینه خدمات از کشتی‌های تجاری عبوری از تنگه هرمز را رد کرده است.
-این مقام گفت مسقط حتی با دریافت داوطلبانه هزینه خدمات زیست‌محیطی و امنیتی از کشتی‌ها موافقت نکرده است.
-یک مقام آمریکایی نیز به نیویورک‌پست گفت شرایط توافق پیشنهادی میان جمهوری اسلامی و عمان برای تقسیم درآمد نهایی نشده است.
-این اظهارات در حالی مطرح شد که حسین محبی، سخنگوی سپاه پاسداران، پیش‌تر از دستیابی تهران و مسقط به توافق در این زمینه خبر داده بود.
-رویترز هفتم مرداد گزارش داده بود عمان طرحی با حمایت کشورهای خلیج فارس به جمهوری اسلامی ارایه کرده است که بر اساس آن، مدیریت تنگه هرمز به شکل منطقه‌ای انجام می‌شد و شرکت‌های کشتیرانی می‌توانستند به‌صورت داوطلبانه برای تامین هزینه‌های ناوبری، حفاظت زیست‌محیطی و عملیات جست‌وجو و نجات مبالغی پرداخت کنند.
-عمان پیش‌تر نیز با دریافت اجباری هزینه از کشتی‌های عبوری از این آبراه مخالفت کرده بود.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78227)
 
 ---
 
