@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-07 23:47:10 </h5>
+<h5> 🟢 Updated at: 2026-09-08 02:40:31 </h5>
 </div>
 
 
@@ -227,7 +227,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-09-06 02:17:16
 
-<img src="https://cdn1.telesco.pe/file/U6llj_rnND603hTE29Wu4cZL3sPG-9z0c5dV1UCiGd_JSdd7V_Pt9C7gHOSTgl_VwVuLv1tlfmmRfrfgCbC1SQoTIVLdNoNAMbg7bseX1yEmZOmWG25n-wvf9qS6D86KWcBV4WRxuIrCvktrR_LWmaK9CfJV8oLJd2pfQDlD2sQpm1iubX4I_6pzG99v5Pav6_qeg1rKr4FyPB1BqMUZ2rk2WHY6fjOPdoc2oXaXRdGQCTkLiGpTduVWZ-IZrb2Wd7LNMdKtcyEEzXL3sDOVU0lJg7IvzqI1umAip1DFZkwEYZv_wL8CsQtBxtiRAeSwUluSvjY5lzWOU8GKMqqUuw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/d7NwQET03NbJ0PzN00rplz6J8iMhZW-ku6-AWwFQrUrlVWt7SxrXmXQGdIOu0R4x6IDH6B9jpFKVmIqjzQZ-jIzJZ5CPYiXAZIjcFhBO8x5eFpNvvamWqvg5jt9pwUBcCxGtksMEnSkhzSeGic9Tn2_SYjus2lk4ojlEvLWO65aPOSzAobrIg30yZOrZKlACzWbMr-DpkDNG_uBYzavTK-AVunOxoye8VNdrE30EyQoxkA-QJlyhvH5TuzesC7tJo-tzp3ZamsVheEty7OdsXx4O97sw1vG1JZgZGEpMSIYK_Y2SO2e1qEjmF-zedt9o3aH7Eas62O1fhFQngye8XQ.jpg" width="400"><br>
 
 روابط عمومی سپاه پاسداران، بامداد یکشنبه، با انتشار بیانیه‌ای اعلام کرد که نیروی هوافضای این نهاد با استفاده از چند موشک بالستیک، یک ناو هواپیمابر و یک ناوشکن ارتش ایالات متحده را هدف قرار داده است. در این بیانیه آمده است که این شناورها در محاصره دریایی و مسدود کردن مسیر کشتی‌های ایرانی مشارکت داشته‌اند و پس از این حمله «دچار خسارت شده» و «منطقه درگیری را ترک کرده‌اند». سپاه پاسداران همچنین با اشاره به تایید وقوع درگیری‌ها از سوی سنتکام، این عملیات را پاسخی به اقدامات نظامی واشنگتن دانسته و هشدار داده است که در صورت تداوم فشارهای نظامی و محاصره دریایی، پاسخ‌های نظامی گسترده‌تری متوجه نیروهای آمریکایی خواهد شد.
 @
