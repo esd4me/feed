@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-07 04:00:45 </h5>
+<h5> 🟢 Updated at: 2026-09-07 08:57:54 </h5>
 </div>
 
 
@@ -159,7 +159,7 @@ BadAngel66636
 
 ###### 🔵 Post time: 2026-09-06 09:05:23
 
-<img src="https://cdn1.telesco.pe/file/KruJ2pwcuWd9bVI9nwP7_HfGFfBK32h7pBrr2vD-afe7EUmwyOphIZr8iN7LE2FRLUOnH5xoSxTEmgxjRVYBjJazeRuSh-cNqbbTX2BExVo5uAnBG_RfRXL_8rMgSTq8XxBKGzHbDTBr-VIkxYkUX1Vkt936qBI12CwB96Hc1Tz2KO54DiTgjEWnAb0IoQIDjvEQePHW2ST8tbjXiv6tzUidUE1OBkXZv1JLkSQuVDdB6WVi5wBZ0uqKMT-maar437QANOEHfh0ECxKhxz56voQzQez8u-sznkffAtDkKIA4AAdwTJney9i5VoyOXtTLafMb4i77TaMiV0QfV4eb2g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/W71Kn-7mcFWDqETgD-5-v4xdT_Oro7EQqyR2HbI-YJ5FwvtOeb9Bulo0BoiZs7U0jW58-DjZmYsFpeJWJk_BlBq7GZ5ALQI6xBtdwMq9mptlMLCZAgLeeWuUhd1WhUIOsWG0edPGsY4bb3XOyO6MVt3BObKp69LN1Yez_Mnf6mA-PdEnkjxGc3QtsuB8NmuywhkvUUsLL3tpKt0kcA_-mqtA1PyaSRcqxsrHXaWZRfvBf9s9JpTbO2UDLsKhQeHdgSK-FLwzozzDfb22P7TN_ZTflkl7I6cjUb7_eO-VLM4msQtF3UkUhrch2hcmqZwj2cEWGWTqdL5QjPcc7bWcZQ.jpg" width="400"><br>
 
 نیروی دریایی سپاه پاسداران می‌گوید یک فروند شناور مدیریت‌پذیر از راه دور ارتش آمریکا را هدف قرار داده است.
 روابط عمومی سپاه پاسداران در بیانیه‌ای اعلام کرد که این شناور قصد ورود به «منطقه حفاظت شده» تنگه هرمز را داشته است.
