@@ -3,8 +3,44 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-07 14:35:42 </h5>
+<h5> 🟢 Updated at: 2026-09-07 20:23:35 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-07 19:49:52
+
+<img src="https://cdn1.telesco.pe/file/ImHLJk-1vWb5TtvcdHS0k9uabopYeO52u_DeyoZcRTfLMpBO42IVSTBrdn32x7nWUlXen9x3-bI4srl4riI72oTPd1rpJK9sABo1pKBJfOx3L6lAr8be0joWNySHmGk_jKwNKLLQK62lCni8tzrQxWFeUzNVToR3CGnwv9Eb4JsXj7Ik-f3yACuhFMxGqEwnUIZ7Z19zhr3bdcICeJ-ebuCkAw-WhKlCBKmibh9tCscR2Hm3LGyMUlFIZtOVAIBSIlqpXJQ0cixBDvCFBgpaQU7UuRt-sExyyJ2x_ISmkg-Q-cggxPuqaVsHsqlA9KyOeEuoyXGM24io4aqa2A9Rtw.jpg" width="400"><br>
+
+دانیال کریمی، پدر امیرمحمد کریمی، از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴ در مرودشت، روز ۱۵ شهریور به زندگی خود پایان داد.
+امیرمحمد کریمی، فرزند ۱۹ ساله او، ورزشکار و عضو سابق تیم ملی نوجوانان تکواندو ایران بود که ۱۹ دی‌ماه ۱۴۰۴ در جریان اعتراضات مرودشت با اصابت گلوله کشته شد.
+پیکر او در روستای جونجان از توابع مرودشت به خاک سپرده شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78264)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-07 19:31:29
+
+<img src="https://cdn4.telesco.pe/file/P2NfJs5m3fXor5jUgpWYCznhr0j4NMQ0N261NnSvzsWbPzsiLI2h8Wj2jYUSG7bQgS0qY9luctW8t72GSXOa1EHeDrhj0JIeUa71Si70UGqQxNv9xPZGXVpi-Pa4-nkMY47tYRuRAjcpixGjN_0Wyn1R7R2fi0994oeahKyNupk9zlt2cxZophBAvH-c7jnvUmnw5zkNftBxseEe451dQAoiI3acFtOxEu-eVVy1d8v05HY0ooMn4ljBEDF2aT1bmoYGYR9HiSP9nbR17TwK3z_wBiZItmNuDPP9vjSmwaG3gUlvZnWy-NmsL2nTmNkRmEh2hlpi7PrGdInJhr8xGA.jpg" width="400"><br>
+
+آیدا حیدری، نامزد ابوالفضل سلیمانی الموتی، از جان‌باختگان اعتراضات دی‌ماه، روز پنج‌شنبه ۱۲ شهریور ۱۴۰۵ به زندگی خود پایان داد.
+منابع حقوق بشری ایران، به نقل از خانواده آیدا حیدری نوشته‌اند که این جوان ۲۵ ساله، حدود هشت ماه پس‌از کشته‌شدن نامزدش جان خود را گرفته است.
+خانواده آیدا حیدری گفته‌اند که آیدا و ابوالفضل قرار بود همین ماه مراسم ازدواج خود را برگزار کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78263)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-06 22:28:13
@@ -71,7 +107,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-06 17:35:10
 
-<img src="https://cdn1.telesco.pe/file/obu3eaf0S3XuGmeDVH7OS82aZRTG2cFFxuHUlu55_fe0jk69V_LrBdiZv79akP3HghX_F3t1IF8FCf_oi05X_VMhGlUU88AzEYeoSBi4qdsZMsxitn1KvU9awIk2dMMr216jx3b4GPg7LbQ3oESCvQ1af3SNYS2kT9SMYoGTROzwUlYbzLKi0dYazOkIuT6u9YspFsy35q83O-_B27aQsg41W-XxeagsAkT2551ipafrbQLk_eBl1aPOIeyLZgbfAS600QP1yHTRHeu82b5MsIy6cfyerBr3LxmJHqD77v7xx2s6-wXRytaWFXM9gQ6e9BQw_Qsl-lRuPHmjw3n-mA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MB9gMsowjg8DK6-ZYNNNKdlkYbDryU-o8fjpxm41H5uYqtygbkFvofH5Mo88mC6qKwivbsgCdxJazUaRkQRj4-N_89jtC0yDrktM4zmSC7ghKpSuUd2oSY0o8P9r61vywO4frTN-e-fR2kX7pKuW3bQn8d-wyDI8afryukbGr6mIPZT3hzns2AcTwl4orFMfe-DJ6pQf_M_fGdNuozIqpBfChk1J3yP1ttsQMviNxvbZeNT1aWRrVig5MKmSnAjbtfAzFv_aBGgdvPuf5CSv-TjeW076-Q7R_Eo5n3WfAci_HLDeA6KBayjMJF5BEkE3Oycu4YphalEzJ6d-BfLg0g.jpg" width="400"><br>
 
 در حالی که سپاه پاسداران، بامداد یکشنبه ۱۵ شهریور ماه در بیانیه‌ای
 اعلام کرده بود
@@ -117,7 +153,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-06 17:23:03
 
-<img src="https://cdn1.telesco.pe/file/CWCVIeKXSQaj_OGtBW0258uICRYJu3ES07_rzgK2oli-Ew91gbmP080UlFc0SmRocBMaQhH9iLj3KxaByYBpoUSaNPvWn2pDTRKtU56ffNNNASt0YszTOkucxr4pKXKxsM0nGt6NFh_At67wlVmxHh-_dDzyGCVjqdmIgTM2n7250aO5shj6U7nJf6QD85brDfhUiporm64NX2S6LZStIwL6ncIZb2swzhoNBMns8Ot8Awe4e6LqTVL5eFAZKs5tdIqmk5l8MTcQgKZosnFlO1F1xcyssY9pPbNDnY4BtUZ8G2_o8RHDXpJ93b2byvM9fon8vctLI4xX8D49VxrTtA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nPhUxozFFEe2EiYlPwr4e52ChoRCQTMNYfVuT6m5AsvB0D8y69JSla0g7G_nt06G1UXbW9YGC3oUZ9OUhU-84JN8fdWGmxJNI2TP08-N_9qCCYpJRzfb2UiFNJW2xHLU-2w7PTy7A-I5JymfjDPXBKtU_UqY3EhBZEHVWY5ANAYR7JlyfOvXxwIxRXs9aWp_5CiofUY0gUcJ3LOIVF_1YGXDahiIF0IiRO1o2Jz5ZKvfwzuHy3ctndmWFoJt5s_v6Ql5GbXTHSOituwRXl9Ua4Py4WfX7tj8lWnjqyk_26qxNg8mSS6pG0BZjA7owp6bTswD3oyK8pKdXWz_aloIqQ.jpg" width="400"><br>
 
 قیمت دلار در بازار آزاد ایران پس از عبور از مرز ۲۳۰ هزار تومان، به کانال ۲۲۶ هزار تومان بازگشت.
 بر پایه گزارش اقتصاد۲۴، نرخ دلار صبح امروز یکشنبه ۲۲۶ هزار و ۱۰۵ تومان بود. وب‌سایت‌های اطلاع‌رسانی طلا و ارز پیش‌تر برای ساعتی از جهش قیمت دلار به بالای ۲۳۰ هزار تومان خبر داده بودند.
@@ -137,7 +173,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-06 17:20:18
 
-<img src="https://cdn1.telesco.pe/file/WoAK-WffI1a52NTNAfZhwckAWs4-gRY1BaCTIQuW6BbJL6ztFgokwbB_rMlbK6X4PdAKviu7ygypOv932aYL30AAa7Qe4u0mTCqb7eBduGpx35eP2QVaIo-FvDrFRZx4nvNZLUUwBXVfgeffizkyRCAjxsCU00gZSsaXvWdhXZDoHO_AL47wUILoAlCd1cI9qI4_rpQpHIDHxjeKbA6JHpjq5BLpks7B4sDZNbbBkUmfdLiGT2_moWjfHsZ_O6jHE_yA5JyBSwjuDTlg-VqKAKZeM5eZEO9LQ2dGIQ9XaMUFZlM46xbRM1Ukgh6CPc0OE-N5kA_hk9XZEe0fHTg1Eg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ll06Qxql6YHXdwnSxt_i4yf9__Ti3hDjeqG9ygZ1qTXlglkX6_3jmHRtW53tbsV3fIQSyymAHoE_oPDvVFJAPvti_zr6E-oqd64MaOUoPJ6HFiM7vvpSnRup3jYJylaQeuH1GuLbNZy_NBuwkK2AACVIxavARTUHOEJiATrrsqVnbt6WSMtwP0DAGEeQPJexuzhLZB4SRwj7F9V8zEC071V0D4eU1d1Oo7-BtD5Xe6w3oKRYXEcIHyNkZw9zYUF2qFDuVWowXpF6y0GLIr_iXyQIjx2o0w9-iq8N8CTESuk9xVTP2buyRFEsN9be3EKeCKpw8KXPF605kSl_0hV7zA.jpg" width="400"><br>
 
 BadAngel66636
 آرمین تیموری راد ۱۹ ساله
@@ -244,7 +280,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-05 19:32:57
 
-<img src="https://cdn1.telesco.pe/file/j6pQcD5i9eMc7TyEImrznB5tXswtTZv2fm_34TNPLc0WW5A0eCIIGAkA_Mh3Lf8_WUVCB2TueGqPTrQqbocCiBjMmKIpf57X0hdbYjXihE892jXxswlcqHfT-VdS5hjc89JLlu4km0dtaZqmmZIFCUqnjw7yVL-FnHQzSOtXzJr_q6ayFEoc9XENMWDHCNYvaKo1kRI01ntJocL1ZAS-gmvlhcaNhVSNDoo92MXS1tP4C_64oEAVL8cQIhUfu5XwEoqLc6pFWMlHyxSP8HeKHxFzo09gzVU6xY6txdnXOtNC3ug_j6lqYbw6LpJlhRDBopmWFsdVdA5Y-YlTqteJwA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/FfyFlXuiI7aW5j6Refq1LuFsBSIxNF7RScI_eh4xLpnwpKavOXR97jZBHVqFCaIscCnCG1ghmr5MaZr6GHIjhdxDw44jj9IAnPJwMKRtknfH4U3d0Z7JYJP9y2dHGVTyVxWhbu01uFUVHXfYOiwAC3rdsxJ6iMQupmutEAcR_amf6WAK6mtIBa0dB0hAx14WxkJ7eSXyDq19kf--XOaTpg_Qt2yKLWNBmHgg51jjFc5s4eTOaUER09ArGNzaXwSSyBT9ysiLGiqQwquY8DJDvV5-NAM98wMW_fitdyQo2hocGqkmKemLqVoXJJ_hFQinh09GQcTWUEVM5VMz1jl3hQ.jpg" width="400"><br>
 
 UKMTO:
 مرکز عملیات تجارت دریایی بریتانیا  گزارشی درباره چندین کشتی تجاری در شمال خلیج فارس و دریای عمان دریافت کرده است.
@@ -254,34 +290,6 @@ UK_MTO
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78244)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-05 18:14:09
-
-<img src="https://cdn4.telesco.pe/file/JO9h5w3EGQP3oTPA3ypknK5r5l5qrogU7irJV7I2zbUdTA0IWbT1ngdD9zH0ForYnhPCOOr-11nxLHH0sNHW2tvjZljTP2lMO3L4dqI0Yw4KYvTLBITflfykaZ7xS9Dzq8NK7TVRce8TragqmhLEMjGljH8d5ebUgYPFVQ7il8Pg10aFF2ZAzVe6XJv6DDqvyKMhvgGjyS5XSFIRAbpngnKE6JehHsy7unkxEB9MWAWpJOlLWKa3LUkWiPgF5PNj_44rIROIcGsuxwSasZxWT2cpCPxerhHutCZjhg7zOdW9uhXoi7A6aWLEp9Bkq-IBqbgnWk6P7IF-gqyKVIHQFg.jpg" width="400"><br>
-
-❇️
-مادر دو معترض جان‌باخته، در لاهیجان بازداشت
-🔹
-مادر دو جانباخته اعتراضات ایران نزهت میرراضی، معروف به «مامان نزهت»، مادر علی و عماد شوش، دو تن از جان‌باختگان اعتراضات سراسری ایران، روز جمعه ۱۳ شهریور در لاهیجان بازداشت و به مکانی نامعلوم منتقل شده است.
-🔹
-نیروهای امنیتی نزهت میرراضی را در حالی بازداشت کردند که تاکنون اطلاعاتی درباره نهاد بازداشت‌کننده، محل نگهداری و اتهامات احتمالی مطرح‌شده علیه او منتشر نشده است.
-🔹
-بازداشت این مادر دادخواه یک روز پس از آن روی داد که او با انتشار ویدئویی به پیشواز زادروز یکی از دو فرزند کشته‌شده‌اش، عماد شوش، رفته بود. خانم میرراضی همزمان با افزایش فشارهای امنیتی در استان گیلان و جلوگیری نیروهای اطلاعاتی و انتظامی از برگزاری مراسم زادروز هومن صباغ بر سر مزار او در لاهیجان صورت گرفته است.
-🔹
-نزهت میرراضی در دو دوره از اعتراضات سراسری ایران دو فرزند خود را از دست داده است.علی شوش، شاعر، بازیگر تئاتر و نوازنده اهل لاهیجان، در جریان اعتراضات سراسری «زن، زندگی، آزادی» در سال ۱۴۰۱ جان باخت. هه‌نگاو می‌گوید او در جریان اعتراضات در اصفهان به دست نیروهای حکومتی کشته شد.
-🔹
-عماد شوش، برادر علی، نیز از اعضای فعال خانواده‌های دادخواه بود و بر اساس گزارش‌ها، در جریان اعتراضات سال ۱۴۰۱ سابقه بازداشت داشت.
-🔹
-عماد شوش روز ۱۸ دی ۱۴۰۴ در جریان اعتراضات در لاهیجان بر اثر شلیک مستقیم نیروهای حکومتی و اصابت چهار گلوله جان باخت.
-🔹
-در هفته‌ی گذشته نیز جعفر پناهی به دیدار مادر این خانواده رفته بود.
-@MahmoudianMehdi
-
-[View Post](https://t.me/VahidOnline/78242)
 
 ---
 
