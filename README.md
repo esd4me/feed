@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-07 20:23:35 </h5>
+<h5> 🟢 Updated at: 2026-09-07 23:47:10 </h5>
 </div>
 
 
@@ -45,7 +45,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-06 22:28:13
 
-<img src="https://cdn1.telesco.pe/file/M7DsChRQt54-QSTp7hLsoL7roI7gPFccXPAqwT-wLGVmgrl_3dN2jGn2y1cHM5OVs8WLixJbGj3TkxUqMTH6LHYJLvXYihHEyV5xE-BelxylejSRxhIv8WSV2JC3Ux2kZDLCgLKFCHkgWjHRWVhWMxm0EBh3K-xwkHEWTQ8EhXZgsPCBVd17cw7YQIxnHRJN9e5ZwiHCeYH5k6WHxCC1qIC6mEYz8izQH5S07UcEf58Rxp_ez6eWUzYP52TCkEel-kbGScpBdykvG55EbcMas9hloQo5wV_M1ewkfZa2p5m-15Mu3aRi4hEo-C6N2x4qab4UAIE4mCF-SX1tKmzO6A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mMa7-prYDYfK27h1YBgZJVb5SVUesl4-5QCp5-b2xPaCNw3iuPRBWAba9Y21rLLyShxMHqbuxKK6OCIiC8SQwSI2O67juD0YuwfUVmroWnyR-Rr15QGQdjLvPLtHH_hE30SJj0tBYsXvvEPRvSthdCgPZDKKpBaoLTNJ57Mx6NHezMduA-XP-xnlM6aQCysGkNbToOOZSSL-f4M7UOxqIlyGA6st0H3a8VxEHLeRj6vsI5Ais2V5-w2PJPOAX8iADBMzDkD7eWnfdMqgmNv9wWqFmaphlC3QsZ-P-o-YJT50UNp3X-xW2SBsJ-Tc6ZhUYmyLS3KmVGk0DQCwNUPkrg.jpg" width="400"><br>
 
 دونالد ترامپ تصویری ساخته‌شده با هوش مصنوعی از حمله جنگنده‌های آمریکایی به جزیره خارک در تروث‌سوشال منتشر کرد که روی آن عبارت «خداحافظ خارک» نوشته شده است.
 realDonaldTrump
@@ -75,7 +75,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-06 21:43:27
 
-<img src="https://cdn1.telesco.pe/file/RDvtQOXu-cdrJXwyE7E5Q4-qjmIMMbHuL2cXi-B6VgcW3klCftQ3_HQW0T1aaGe-wT0OEy0ASadLlgd8CjaZfxmLZKTJ897rfZuolByYhuc0QUvsCtajZzHRGZlY7StkO5WmlIulTJ1uOd1FupzKz-O1hk1oLyq_7C3jLjstGACbiNYsNq95jEl4xuuDjUw6xMGPXrAp0yVBpfVxr-_4WawVp1KXij0sEaPH4x4j_HbnpErpuQ8HIa4SqcXU-LRYgrFdlACZprc8tHeQAXJXp04qkAUdmKJmH5k8gt3-twxVm_hCAzLLQgY4JbKwpAJw1JVuTtQ0dGx2nOELYcMOkQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QCkZHGl9vcJJ1Ug6d0uFnA20KgXtb0D0bddio2XGvOGVTjwKrQMby6ggHRCz5_wTjankqz3SacOmQCFNMkFe5XB1g3G9dZ8N1s5-lJIYUbYXrXzelHzZH7_qqf9bgNQGIxKtEeFj2wJE4H8NvyzgQ2ZUBTUhStqdjhYNfhysrJVhfWnafa-SHWBA7Dd3g08XAvUO-3PkWxxgZ38sj99-IsHTtxMLJ4nQZcRxmEl-mkz3oniR0kAirXe2hGt0ZGrTchy1l20VSrtL9jFhi0jsQ7JDofjCvy5Bt_4Wjt6sMVteC7bQwP-jT93xXv6zdUM0RLiTZEW7WY1cmCjv1yNYGg.jpg" width="400"><br>
 
 realDonaldTrump
 📡
@@ -243,7 +243,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-05 23:58:46
 
-<img src="https://cdn4.telesco.pe/file/K5KX2h-HjRXUjX8y7LnE92GRRqY8ZvVMzVEqbSQ2t2jd0oErMptnE5ruzkr-RPX3nH8G1EC69SzK-ul32Or1-GncNlyPajtoqih6RRxD4mlC0ue-me_hKaiAQbhf8HMY0sWS0wufBEtNoYoSTPnJGVr6iBu3YJoJxB8lYMwrgGfCjwxBX4UfS0tD3d2VqpPym28ujG3v-amGSy_bChgwWveOK30v5DL8srARyf1az1Y5chnqyBOFzUrArfF7UScG9ycHCz0KNVxwy5Xup0ITBMcd6keAex29waAUVkVyNM3JCtaOngr_-3fp7ipG4pA7qoWIoC5eGCH9PrdAVu5cgg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/uLcbBao4nj38tUlNdQWGX7aLOGfvTeDDQ5gknwqPjTzOFkGaKT792SHyXIqYlIWJyMs3i5onLK8CB1lYmOHOUlhLWspMZn-4qG3h1mkCnNZjvTLeS9v6YUJogoBNuP-8ZW_64ovt95_9NupasjhHY1er1VDd7Fygsf8fOSHBop3VsSMwqtfLd3pvpKyA0nAcA_PHgDSiWrSW4EYq29I0saE5k5vlNaRzJX5p0A291I77CW-ydkxLUeQ_aSLEDLX10Ty44ZIXDm87P4Zb7oPbe5-4KEv8JZBcG0Ah5_mpli-KalvINW1a0n_iEPRC5m612fULwuEpHeKMG7urGpnxEg.jpg" width="400"><br>
 
 به گزارش خبرگزاری تسنیم نیروی دریایی سپاه پاسداران انقلاب اسلامی روز شنبه در بیانیه‌ای اعلام کرد که سه نفتکش را که از «مسیرهای غیرمجاز در تنگه هرمز عبور می‌کردند، و همچنین سه شناور دیگر آمریکایی را در مناطق دیگر هدف قرار داده است.»
 نیروی دریایی سپاه در این بیانیه به هدف قرار گرفتن سه نفتکش ایرانی توسط نیروهای آمریکایی در صبح امروز اشاره کرده و گفته است که این حملات خساراتی به‌بار آورده است.
