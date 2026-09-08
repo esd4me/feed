@@ -3,8 +3,91 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-08 15:55:04 </h5>
+<h5> 🟢 Updated at: 2026-09-08 20:25:38 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-08 20:13:22
+
+<img src="https://cdn4.telesco.pe/file/ZKVfB-wwZIu41M4Y5hR3bEGdL8-mkqXc6PM3qQN1Qh83FX9G5mSbj9EqkhfAUzM1TMTQoUMXgfPOUyyQgQiquffIugrjXnWYBEkd3d_5w6CuUJokA2aVdt5Ep-YGaeIbFJ9wNWPyh4f-vnytfgTLOWnnDwjU-Wg_mVDVxPS0O1Zot1_eXqgvHeFM57bgKaT6FP7VbAKn3aPFW9rGhhg3gHSO-p4Fbgle6yRxuTgXEP6q2qgzscMDSk0t7I6D-QPzhdjsMRSgsBzyXw2cqisfT2-d3BrGzuOLzhmd6zB8ieoz1DBwIQM_yX6aO6TWUnQUustZVhp4XwMW0GO3pBIYxA.jpg" width="400"><br>
+
+وزارت خزانه‌داری آمریکا، روز سه‌شنبه ۱۷ شهریور ۱۴۰۵، اعلام کرد در چارچوب «عملیات طرد اقتصادی»، ۳۶ شرکت و فرد مرتبط با بخش هوانوردی ایران را در فهرست تحریم‌های خود قرار داده است. این اقدام شامل ۲۷ شرکت هواپیمایی فعال در ایران و همچنین شماری از شرکت‌های واسطه، نمایندگان فروش و ارایه‌دهندگان خدمات باربری در کشورهای ثالث است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78277)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 18:38:06
+
+<img src="https://cdn1.telesco.pe/file/M6uziUzW5jqU22NKAFMO5pvWVWWhvNJkAk9OAdM87GKVvcv4MCK8lYhobNr2pn8lLiE-GwH-mcJ28ZyGcUwK3F96heVdgFoplGwG-YJ03rxnACb5Hl_sXHAsVNFaMp6zHc6HsF4EWJxvNImVive1VSPEQIUYZAXsQseit3TmamiAoep6BJKTQAcF67GY9mDPTxWvYJ8q7wlCVKc7KlnBaOBO71oNsERCw5riXMBW3GFbz95CdsMWiL-vNegQ8x2flwAgi2lo25XMVW9eKOW9fjoFclXxGxeWZLViMBaRsFRP8muf_m0cm23pEzJP3sbC4Hn2f_JDCcnYtkML2-WO6A.jpg" width="400"><br>
+
+سپاه پاسداران انقلاب اسلامی، روز سه‌شنبه ۱۷ شهریور اعلام کرد که یک زیردریایی بدون سرنشین متعلق به ارتش آمریکا را در محدوده آب‌های تنگه هرمز توقیف کرده است.
+سپاه پاسداران توقیف این زیردریایی را «غنیمت گرفتن» توصیف کرده و اعلام کرد که تا ساعاتی دیگر تصاویری از آن را منتشر خواهد کرد.
+این زیردریایی هوشمند حدود ۵۸۰ سانتی‌متر طول و نزدیک به سه تن وزن دارد و می‌تواند تا ۱۰ روز بدون نیاز به بازگشت به مرکز هدایت، عملیات خود را ادامه دهد.
+@
+VahidOOnLine
+روابط عمومی ارتش جمهوری اسلامی ایران، روز سه‌شنبه ۱۷ شهریور اعلام کرد که یک پهپاد MQ-1 در آسمان بندرعباس شناسایی شده و با شلیک سامانه پدافند هوایی ارتش، سرنگون شده است. این پهپاد تهاجمی از سوی ارتش آمریکا مورد استفاده قرار می‌گیرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78275)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 18:36:33
+
+<img src="https://cdn4.telesco.pe/file/XgwMjuANJ9yUzCs96q6eN17XzVtXO0jFvoX1eEQ7ngzwq3FncLUWpIKzVeN3R70PCWPQ1teOFSgHies7QGJBw1Uxp5ucljSbgT9zZYbH0XUIoDqZL0OwaIw4kFt9MQBU4-DYQzKDBkozK1ErhkkZ_7mNLoHbKuWHuQiBMDX_rWQSytQKIDZZdu5lnNuNxgK0k7jXk8KlhOSV6rsLqdhgJveLpSUO7JsVFGQ6kN_uyzOKpSwWMtFqD5Cq9awbvpWBtqT0C6_X2QQ7draoHwrXo5GCjgwJGbWuGvHtANK9_awDQR-d4_v2v5PHx4tt3-EYx0zdVd-XqRRRdZPJXhTU2Q.jpg" width="400"><br>
+
+عبدالرئوف اسحاقی، فرمانده حوزه مقاومت بسیج پارود در شهرستان راسک استان سیستان و بلوچستان، روز سه‌شنبه ۱۷ شهریور در جریان حمله افراد ناشناس کشته شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78274)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 16:08:25
+
+<img src="https://cdn1.telesco.pe/file/KOpGa5ul3cYV3OWvvUKJOupYgjJlkNzkHTmmFX7w3hkhMt4K8B8kSj879D67icY4S6yRkVjM9HoM70JN8KYMxg3_MvDhwqH76PD8X-XuIJ1PdA9dJbDbXV2UWEzDegSZ-h-jpJS8T0CKDoOspKwFi7u_rXix3JUCV7s5vbRLdBV7OjKcaDW27w4W9IkbmWE7RFEma_vOkDY_e_OD4yAPgGMBtoRmMOQ1YawGApMp7xzGt1v7hzxOMSOFx0ErrKvo1RdY6q7XsKzfKzVQovOfCAZkcHoPdOhRhrDUnJbr0CYS5LdGh1aBPyFKKYmiC4ZyypElnI_N-d4eC7pk8E196g.jpg" width="400"><br>
+
+عرفان میرزایی، خواننده رپ ۲۱ ساله و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در زندان دستگرد اصفهان جان باخته است.
+درباره چگونگی مرگ او دو روایت متفاوت منتشر شده؛ ایران‌وایر از اجرای حکم اعدام و ایندیپندنت فارسی از مرگ بر اثر شکنجه خبر داده است.
+بر اساس گزارش ایران‌وایر، میرزایی پس از شناسایی در ارتباط با اعتراضات بازداشت و با اتهام «محاربه» به اعدام محکوم شد.
+این رسانه می‌گوید حکم او روز یکشنبه ۱۵ شهریور بدون اطلاع قبلی خانواده اجرا شد و تلاش نزدیکانش برای جلوگیری از اعدام نیز نتیجه‌ای نداشت.
+ایران‌وایر همچنین به نقل از منابع خود گزارش داده است که خانواده میرزایی پیش‌تر برای خودداری از اطلاع‌رسانی درباره پرونده و حکم اعدام تهدید شده بودند.
+به گفته این منابع، آثار متعدد جراحت و کبودی نیز پس از مرگ بر بدن و صورت او مشاهده شده و پیکرش با محدودیت‌های امنیتی در روستای غرغن فریدن به خاک سپرده شده است.
+در مقابل، ایندیپندنت فارسی به نقل از نزدیکان میرزایی روایت متفاوتی از مرگ او ارایه کرده و نوشته است که این جوان در نتیجه شکنجه و ضرب‌وجرح شدید در دوران بازداشت جان باخته است.
+خانواده او گفته‌اند هنگام تحویل پیکر، شکستگی‌هایی در دست‌ها، پا و لگن مشاهده کرده‌اند که آن را ناشی از بدرفتاری در زندان می‌دانند.
+بر اساس این گزارش، میرزایی اواخر فروردین ۱۴۰۵ در یک ایست بازرسی در شاهین‌شهر بازداشت شد؛ ماموران پس از بازرسی تلفن همراه او و مشاهده ویدیوهایی مرتبط با حضورش در اعتراضات، وی را به زندان دستگرد منتقل کردند. نزدیکانش می‌گویند او در ماه‌های بازداشت برای گرفتن اعتراف اجباری تحت فشار و شکنجه قرار داشته است.
+دادبان تاکید می‌کند، تفاوت جدی میان دو روایت درباره علت مرگ عرفان میرزایی، ضرورت انجام تحقیقی مستقل، بی‌طرفانه و شفاف درباره مرگ او در بازداشت را دوچندان می‌کند. اصل ۳۸ قانون اساسی شکنجه برای گرفتن اقرار یا اطلاعات را ممنوع و اعتراف حاصل از اجبار را فاقد اعتبار می‌داند؛ ضمن آنکه هر مرگ مشکوک در زندان، به‌ویژه همراه با ادعای شکنجه و آثار جراحت، مستلزم بررسی موثر و پاسخگویی مسئولان است.
+dadban4
+دو منبع به ایران‌اینترنشنال گفتند دلیل جان‌باختن او، شکنجه شدید در زندان دستگرد اصفهان بوده است.
+اطلاعات رسیده حاکی است پیکر او هنگام خاکسپاری، آثار متعدد شکنجه داشته و دست و صورت و لگن‌اش به شدت متورم بوده است.
+بنا به اطلاعات رسیده، ماموران امنیتی به دلیل ترس از تجمع مردم، اجازه خاکسپاری عرفان میرزایی در اصفهان را ندادند و پیکر او روز دوشنبه ۱۶ شهریور در روستای غرغن شهرستان فریدن به خاک سپرده شد.
+زمان دقیق بازداشت عرفان میرزایی مشخص نیست اما منابع می‌گویند که او در ارتباط با اعتراض‌های دی‌ماه بازداشت شده بود.
+بنابر این اطلاعات، ماموران پس از بازداشت، ویدیویی را در تلفن همراه میرزایی پیدا کردند که درگیری میان معترضان و نیروهای حکومتی را نشان می‌داد و از آن به‌عنوان مدرکی علیه او در پرونده استفاده شده است.
+iranintl.com
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78268)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-08 08:48:24
@@ -68,7 +151,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-07 19:49:52
 
-<img src="https://cdn1.telesco.pe/file/ImHLJk-1vWb5TtvcdHS0k9uabopYeO52u_DeyoZcRTfLMpBO42IVSTBrdn32x7nWUlXen9x3-bI4srl4riI72oTPd1rpJK9sABo1pKBJfOx3L6lAr8be0joWNySHmGk_jKwNKLLQK62lCni8tzrQxWFeUzNVToR3CGnwv9Eb4JsXj7Ik-f3yACuhFMxGqEwnUIZ7Z19zhr3bdcICeJ-ebuCkAw-WhKlCBKmibh9tCscR2Hm3LGyMUlFIZtOVAIBSIlqpXJQ0cixBDvCFBgpaQU7UuRt-sExyyJ2x_ISmkg-Q-cggxPuqaVsHsqlA9KyOeEuoyXGM24io4aqa2A9Rtw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VFQIoLJKm8t4sShzER2KbwjNm38bhJDgVoh7ypco-z65p3TEsedfGZf7j15-MZKEUdALeQPKfeYRQcZQkEaa1GDBUHb46Qok_q-jJVy3mulZKaX8FRhuXHA3A9dF_mY4jQF4hHHPzfBIQj9fMusLmz2gh-tzydhu0HPZDznd14Fs14ARGz9AU1U_tSsqveTOKOZye-_2tp7rj2JB8cHgUuQrmkDX_5FNim1WGi4qf8iq1UkI3UXzs-M2hA8a_Y_jk6IDZ4z5-xNo17NiPu3x8YMS_aOkjFx9sawwxDtymbtGahcFS9E5eLZ-spLYjVpuS-JVvjM7UQoSBsazsDLrtQ.jpg" width="400"><br>
 
 دانیال کریمی، پدر امیرمحمد کریمی، از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴ در مرودشت، روز ۱۵ شهریور به زندگی خود پایان داد.
 امیرمحمد کریمی، فرزند ۱۹ ساله او، ورزشکار و عضو سابق تیم ملی نوجوانان تکواندو ایران بود که ۱۹ دی‌ماه ۱۴۰۴ در جریان اعتراضات مرودشت با اصابت گلوله کشته شد.
@@ -86,7 +169,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-07 19:31:29
 
-<img src="https://cdn4.telesco.pe/file/P2NfJs5m3fXor5jUgpWYCznhr0j4NMQ0N261NnSvzsWbPzsiLI2h8Wj2jYUSG7bQgS0qY9luctW8t72GSXOa1EHeDrhj0JIeUa71Si70UGqQxNv9xPZGXVpi-Pa4-nkMY47tYRuRAjcpixGjN_0Wyn1R7R2fi0994oeahKyNupk9zlt2cxZophBAvH-c7jnvUmnw5zkNftBxseEe451dQAoiI3acFtOxEu-eVVy1d8v05HY0ooMn4ljBEDF2aT1bmoYGYR9HiSP9nbR17TwK3z_wBiZItmNuDPP9vjSmwaG3gUlvZnWy-NmsL2nTmNkRmEh2hlpi7PrGdInJhr8xGA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PIp3vkz0t4MKlWAh4AvWaq2nlyfrzwDXb9FObXBvVJ7qaSHWJSJ--VgQ5KVeKWEuV8boLtPTk9gWmbPkJHqS2j_BCdRmNkGMkKQAcZ6nBC8qvMBkaSoywgvPQBp5u2pwM_kM9ljLcu4UrRrpJzoVC4NOmPWeTnxcHBacZc_yHfTL0j9juhCRaFToBHZTuAMfZqwGE3dFVh67fU9JxyEqtD85PO92iZylcCWT_JaJ8Qw-P1TAmMgPO-NKOEOnx4Jx8Os5DTJapxAQaPfkbzqUBi186qvlKAaeIRMBRHHsXpBdSpHarlw-KybLsRZdV3tnosn1tui_nAImT13jqWMx_g.jpg" width="400"><br>
 
 آیدا حیدری، نامزد ابوالفضل سلیمانی الموتی، از جان‌باختگان اعتراضات دی‌ماه، روز پنج‌شنبه ۱۲ شهریور ۱۴۰۵ به زندگی خود پایان داد.
 منابع حقوق بشری ایران، به نقل از خانواده آیدا حیدری نوشته‌اند که این جوان ۲۵ ساله، حدود هشت ماه پس‌از کشته‌شدن نامزدش جان خود را گرفته است.
@@ -166,7 +249,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-06 17:35:10
 
-<img src="https://cdn1.telesco.pe/file/MB9gMsowjg8DK6-ZYNNNKdlkYbDryU-o8fjpxm41H5uYqtygbkFvofH5Mo88mC6qKwivbsgCdxJazUaRkQRj4-N_89jtC0yDrktM4zmSC7ghKpSuUd2oSY0o8P9r61vywO4frTN-e-fR2kX7pKuW3bQn8d-wyDI8afryukbGr6mIPZT3hzns2AcTwl4orFMfe-DJ6pQf_M_fGdNuozIqpBfChk1J3yP1ttsQMviNxvbZeNT1aWRrVig5MKmSnAjbtfAzFv_aBGgdvPuf5CSv-TjeW076-Q7R_Eo5n3WfAci_HLDeA6KBayjMJF5BEkE3Oycu4YphalEzJ6d-BfLg0g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/M6b2SsipOB8eYW4f7xTWt9aLG7W6CYp1TmivRKuqM2sH51T0R42SOgJ3qoZ6SshvE1D0tqFmy6wrUm3eEOm0jveORO0Mt5nbHTySCgJQtbEBnmLrf7AWxMCoj1OUPtu_i6xLKalwJDc3B0I0jdkgb8wU1XJlhamd1E64Mus9GCsZ7VdbVKkZ3mtfA2CzHqQGACw_RA4ZKp05gRqZpDGG8ueC7hWt0409WKUZhDwznNjER2vptXMLlFos743BmmIamhDdoHOxQIaIv2jMKRd5R9J8h-gCeoGytXxzvYHw7Ycu6v1znZn-N4r0nl9yRK-hjRbQe4z7bS9hcUSUdcDplw.jpg" width="400"><br>
 
 در حالی که سپاه پاسداران، بامداد یکشنبه ۱۵ شهریور ماه در بیانیه‌ای
 اعلام کرده بود
@@ -179,122 +262,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78257)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 17:28:31
-
-
-
-قالیباف: قاعده بازی عوض شده و دوران پاسخ متناسب به پایان رسیده است
-رئیس مجلس شورای اسلامی روز یکشنبه ۱۵ شهریور، یک روز پس از حمله آمریکا به چند نفتکش ایرانی در خلیج فارس، گفت دوران «پاسخ‌های متناسب» به پایان رسیده است. او همزمان به وجود مشکلات اقتصادی در کشور اذعان کرد.
-محمدباقر قالیباف در سخنانی در جلسه علنی مجلس تهدید کرد: «هرگونه تجاوز به منافع و امنیت ایران، پاسخی سریع‌تر، سنگین‌تر و دردناک‌تر دریافت خواهد کرد.»
-قالیباف که مذاکره‌کننده ارشد جمهوری اسلامی در گفت‌وگوهای بعد از آتش‌بس با آمریکا است، در بخش دیگری از نطق روز یکشنبه گفت: «نوسانات شدید قیمت ارز، تورم، بیکاری و مدیریت بازار، چالش‌های اساسی هستند که به معیشت مردم فشار جدی وارد کرده است.»
-او افزود: «در کنار میدان نظامی، امروز اصلی‌ترین نبرد ما در میدان تولید و معیشت مردم است.»
-این سخنان یک روز بعد از آن است که قیمت دلار در بازار آزاد ایران تا مرز ۲۲۸ هزار تومان بالا رفت و از سوی دیگر آمارهای رسمی نیز نشان‌گر افزایش شدید تورم در ماه‌های اخیر است.
-علی مدنی‌زاده، وزیر اقتصاد ایران، نیز روز یکشنبه گفت واکنش تهران در برابر تشدید فشارهای اقتصادی آمریکا «مقاومت اقتصادی در کنار اصلاحات اقتصادی» است و این دیدگاه را که تحریم‌ها باعث تغییر مسیر ایران خواهند شد، رد کرد.
-او با اشاره به اظهارات مقام‌های ارشد دولت دونالد ترامپ درباره اقدام آمریکا برای قطع رابطه ایران با اقتصاد جهانی گفت: «تصور اینکه بتوان با فشار بر اقتصاد ایران، تصمیمات یک ملت را تغییر داد، اشتباه است.»
-وزیر اقتصاد ایران افزود: «مسئولیت اصلاح اقتصاد ایران بر عهده دولت و مردم ایران است، نه وزارت خزانه‌داری آمریکا.»
-این در حالی است که همزمان وزیر خزانه‌داری آمریکا اعلام کرد ترکیب محاصره دریایی و تحریم‌های گسترده، صادرات نفت و دسترسی جمهوری اسلامی ایران به درآمدهای آن را به‌شدت محدود کرده است.
-اسکات بسنت در گفت‌وگو با شبکه فاکس‌نیوز که روز یکشنبه منتشر شد، با اشاره به نقش چین به‌عنوان خریدار اصلی نفت ایران گفت محاصره دریایی مانع خروج محموله‌های تازه شده و برآورد کرد که «احتمالاً تنها حدود ۳۰ میلیون بشکه نفت خام ایران باقی مانده که چین هنوز نخریده است».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78256)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 17:23:03
-
-<img src="https://cdn1.telesco.pe/file/nPhUxozFFEe2EiYlPwr4e52ChoRCQTMNYfVuT6m5AsvB0D8y69JSla0g7G_nt06G1UXbW9YGC3oUZ9OUhU-84JN8fdWGmxJNI2TP08-N_9qCCYpJRzfb2UiFNJW2xHLU-2w7PTy7A-I5JymfjDPXBKtU_UqY3EhBZEHVWY5ANAYR7JlyfOvXxwIxRXs9aWp_5CiofUY0gUcJ3LOIVF_1YGXDahiIF0IiRO1o2Jz5ZKvfwzuHy3ctndmWFoJt5s_v6Ql5GbXTHSOituwRXl9Ua4Py4WfX7tj8lWnjqyk_26qxNg8mSS6pG0BZjA7owp6bTswD3oyK8pKdXWz_aloIqQ.jpg" width="400"><br>
-
-قیمت دلار در بازار آزاد ایران پس از عبور از مرز ۲۳۰ هزار تومان، به کانال ۲۲۶ هزار تومان بازگشت.
-بر پایه گزارش اقتصاد۲۴، نرخ دلار صبح امروز یکشنبه ۲۲۶ هزار و ۱۰۵ تومان بود. وب‌سایت‌های اطلاع‌رسانی طلا و ارز پیش‌تر برای ساعتی از جهش قیمت دلار به بالای ۲۳۰ هزار تومان خبر داده بودند.
-بهای دلار در ادامه با شیب نسبتاً تند عقب نشست. اقتصادنیوز این افت را به ورود بانک مرکزی به بازار نسبت داد و نوشت این بانک به دنبال جذب نقدینگی در بازار است.
-حواله دلار در مرکز مبادله ارز و طلای ایران نیز ۱۶۰ هزار و ۹۸۳ تومان اعلام شد که شکافی بیش از ۶۵ هزار تومان با بازار آزاد ایجاد می‌کند.
-حتی با احتساب اصلاح امروز، رقم کنونی نزدیک به ۱۰ درصد بالاتر از آغاز هفته گذشته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78255)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 17:20:18
-
-<img src="https://cdn1.telesco.pe/file/ll06Qxql6YHXdwnSxt_i4yf9__Ti3hDjeqG9ygZ1qTXlglkX6_3jmHRtW53tbsV3fIQSyymAHoE_oPDvVFJAPvti_zr6E-oqd64MaOUoPJ6HFiM7vvpSnRup3jYJylaQeuH1GuLbNZy_NBuwkK2AACVIxavARTUHOEJiATrrsqVnbt6WSMtwP0DAGEeQPJexuzhLZB4SRwj7F9V8zEC071V0D4eU1d1Oo7-BtD5Xe6w3oKRYXEcIHyNkZw9zYUF2qFDuVWowXpF6y0GLIr_iXyQIjx2o0w9-iq8N8CTESuk9xVTP2buyRFEsN9be3EKeCKpw8KXPF605kSl_0hV7zA.jpg" width="400"><br>
-
-BadAngel66636
-آرمین تیموری راد ۱۹ ساله
-پدرش: امید تیموری راد ۴۷ ساله
-عموش: امیر تیموری راد ۴۲ ساله
-نوشته بودند ۱۸ دی در فردیس کرج به دست ماموران سرکوبگر حکومت کشته شدند.
-روی مزارشون نوشته شده ۱۹ دی
-و نوشته بودند:
-به جز این سه نفر، همسر امید تیموری‌راد و مادر آرمین هم در پی اصابت گلولەهای جنگی، بە شدت مجروح شدە است:
-@VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78250)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 09:05:23
-
-<img src="https://cdn1.telesco.pe/file/LLoELs_H9KTgZr7tIeqYXWvIAno9NqCL66QMcly4nD-jXqjnV244azgPinMqVFto8Dp24RDd_q1IdyCUbwwacYbVYQIDK3YOdynZ8ILqL9XBFgL2sNJQ4qZuHG5ht06SKScEI8-axDtKuUHtmUtHky9JQaxFNp0qUBuRLd1gIB-JNBUa_5QDGWH59LJe4OtnwRw9I-qpE-7lT5VIXWyJ62-eexs168-sKBxuMEwyWpvO9sAzkaFd2NJTQZnVxyf4XcqOPqAkbJDmV8QN7LQckgxaHYw_vUKPYmVB_cHjz7PfkKgZkZaIRncEzq5bc15l7AJKa_SsJU2uGLXBcDmBgg.jpg" width="400"><br>
-
-نیروی دریایی سپاه پاسداران می‌گوید یک فروند شناور مدیریت‌پذیر از راه دور ارتش آمریکا را هدف قرار داده است.
-روابط عمومی سپاه پاسداران در بیانیه‌ای اعلام کرد که این شناور قصد ورود به «منطقه حفاظت شده» تنگه هرمز را داشته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78249)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 04:48:19
-
-
-
-اکانت سنتکام ویدیویی از غرق شدن نفتکش M/T Kylo در دریای عمان منتشر کرد و نوشت در قعر دریا به نیروی دریایی ایران پیوست:
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78248)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 02:17:16
-
-<img src="https://cdn1.telesco.pe/file/d7NwQET03NbJ0PzN00rplz6J8iMhZW-ku6-AWwFQrUrlVWt7SxrXmXQGdIOu0R4x6IDH6B9jpFKVmIqjzQZ-jIzJZ5CPYiXAZIjcFhBO8x5eFpNvvamWqvg5jt9pwUBcCxGtksMEnSkhzSeGic9Tn2_SYjus2lk4ojlEvLWO65aPOSzAobrIg30yZOrZKlACzWbMr-DpkDNG_uBYzavTK-AVunOxoye8VNdrE30EyQoxkA-QJlyhvH5TuzesC7tJo-tzp3ZamsVheEty7OdsXx4O97sw1vG1JZgZGEpMSIYK_Y2SO2e1qEjmF-zedt9o3aH7Eas62O1fhFQngye8XQ.jpg" width="400"><br>
-
-روابط عمومی سپاه پاسداران، بامداد یکشنبه، با انتشار بیانیه‌ای اعلام کرد که نیروی هوافضای این نهاد با استفاده از چند موشک بالستیک، یک ناو هواپیمابر و یک ناوشکن ارتش ایالات متحده را هدف قرار داده است. در این بیانیه آمده است که این شناورها در محاصره دریایی و مسدود کردن مسیر کشتی‌های ایرانی مشارکت داشته‌اند و پس از این حمله «دچار خسارت شده» و «منطقه درگیری را ترک کرده‌اند». سپاه پاسداران همچنین با اشاره به تایید وقوع درگیری‌ها از سوی سنتکام، این عملیات را پاسخی به اقدامات نظامی واشنگتن دانسته و هشدار داده است که در صورت تداوم فشارهای نظامی و محاصره دریایی، پاسخ‌های نظامی گسترده‌تری متوجه نیروهای آمریکایی خواهد شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78247)
 
 ---
 
