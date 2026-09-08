@@ -3,13 +3,32 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-08 05:41:07 </h5>
+<h5> 🟢 Updated at: 2026-09-08 11:04:52 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-08 08:48:24
+
+<img src="https://cdn4.telesco.pe/file/kx8oihzi8plpwSrtrT8JeXS8JfGdROM9zNqDQs3gGQ37Qe5DaFpJmrh-xtCHVzUnHi6CBav5wuXN4BttTCKxkOz4ylp0J9JvAASMjnD-GK3vLaAKkT-Dqc92reouTCa131HA0kc461ODOlbIBLcs_4EX9lYA8agmlgtR60PaAwvMUH3u_Mz0EKRr7Ak0CzQ6Cc2Cw8fL1Q958Vv5N5Ne4W_8che9vbq6B0jZqk2QHWFHGQXuZw59nFo377Z4AxIPEXWQyMMaWz4PIkd6oQweV-sSN26vjwHVaU5sBBRtueDlCeRVM308Q4ynGLeae20aFWRdDSNXueh4kS4CUdjTjg.jpg" width="400"><br>
+
+به گزارش آسوشیتدپرس مقام‌های سعودی اعلام کردند موجی از حملات حوثی‌های مورد حمایت حکومت ایران به عربستان سعودی در ساعات اولیه روز سه‌شنبه، ۷۳ نفر را مجروح کرده است.
+سرلشکر ترکی المالکی، سخنگوی ائتلاف به رهبری عربستان سعودی که در یمن می‌جنگد، گفت حوثی‌ها «تأسیسات غیرنظامی و اقتصادی» را در شهرهای ابها، جازان، نجران و خمیس مشیط در عربستان سعودی هدف قرار داده‌اند.
+او گفت ائتلاف به رهبری عربستان سعودی «با نهایت قاطعیت، تمام اقدامات عملیاتی لازم را برای بازدارندگی شبه‌نظامیان تروریست حوثی» انجام خواهد داد.
+به نوشته این خبرگزاری آمریکایی، این حملات در حالی صورت گرفته است که درگیری‌ها میان حوثی‌ها و نیروهای دولت یمن که مورد حمایت عربستان سعودی هستند، طی چند هفته گذشته تشدید شده است؛ درگیری‌هایی که آتش‌بس چهار ساله در جنگ داخلی یمن را از بین برده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78267)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-08 04:51:14
 
-
+<img src="https://cdn1.telesco.pe/file/B7BtMlRpuqqQp8Mu4iKyircr9iwtl29maeomKlPbDWk1MlThliHs009Pnt1BU4b__Wf5BVVKyawuZ2s7TY6GgUjyO_0_5D6H7voWrH0h-z8Rk_YltnnuDXwIKY9lHnXuPJSNHZB9VI6kFgC0kiyBDrU_oQBNt-fsWjpR91_W1HVpArM1MFK64VNL-dd76DGhRgEMdUlVUix9Bgx15r2REJTX0kdOC9z1ET-yBQ0u2V2ZsjPS5vD7AgtIxzRk0WlWpK0kHiScYAnQSXua3QBD58GdngvXN4mE3j2OyyQFBwgHtf4NbfXaCcjENjjTWo9-s2yi1dDOX7OTfRinVF1bnw.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 وقتی ما در جنگ با ایران پیروز شویم، قیمت نفت به‌شدت سقوط خواهد کرد؛ درست مثل هر چیز دیگری که دارد سقوط می‌کند (اما بیشتر!).
@@ -235,7 +254,7 @@ BadAngel66636
 
 ###### 🔵 Post time: 2026-09-06 09:05:23
 
-<img src="https://cdn1.telesco.pe/file/W71Kn-7mcFWDqETgD-5-v4xdT_Oro7EQqyR2HbI-YJ5FwvtOeb9Bulo0BoiZs7U0jW58-DjZmYsFpeJWJk_BlBq7GZ5ALQI6xBtdwMq9mptlMLCZAgLeeWuUhd1WhUIOsWG0edPGsY4bb3XOyO6MVt3BObKp69LN1Yez_Mnf6mA-PdEnkjxGc3QtsuB8NmuywhkvUUsLL3tpKt0kcA_-mqtA1PyaSRcqxsrHXaWZRfvBf9s9JpTbO2UDLsKhQeHdgSK-FLwzozzDfb22P7TN_ZTflkl7I6cjUb7_eO-VLM4msQtF3UkUhrch2hcmqZwj2cEWGWTqdL5QjPcc7bWcZQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LLoELs_H9KTgZr7tIeqYXWvIAno9NqCL66QMcly4nD-jXqjnV244azgPinMqVFto8Dp24RDd_q1IdyCUbwwacYbVYQIDK3YOdynZ8ILqL9XBFgL2sNJQ4qZuHG5ht06SKScEI8-axDtKuUHtmUtHky9JQaxFNp0qUBuRLd1gIB-JNBUa_5QDGWH59LJe4OtnwRw9I-qpE-7lT5VIXWyJ62-eexs168-sKBxuMEwyWpvO9sAzkaFd2NJTQZnVxyf4XcqOPqAkbJDmV8QN7LQckgxaHYw_vUKPYmVB_cHjz7PfkKgZkZaIRncEzq5bc15l7AJKa_SsJU2uGLXBcDmBgg.jpg" width="400"><br>
 
 نیروی دریایی سپاه پاسداران می‌گوید یک فروند شناور مدیریت‌پذیر از راه دور ارتش آمریکا را هدف قرار داده است.
 روابط عمومی سپاه پاسداران در بیانیه‌ای اعلام کرد که این شناور قصد ورود به «منطقه حفاظت شده» تنگه هرمز را داشته است.
@@ -276,27 +295,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78247)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-05 23:58:46
-
-<img src="https://cdn4.telesco.pe/file/uLcbBao4nj38tUlNdQWGX7aLOGfvTeDDQ5gknwqPjTzOFkGaKT792SHyXIqYlIWJyMs3i5onLK8CB1lYmOHOUlhLWspMZn-4qG3h1mkCnNZjvTLeS9v6YUJogoBNuP-8ZW_64ovt95_9NupasjhHY1er1VDd7Fygsf8fOSHBop3VsSMwqtfLd3pvpKyA0nAcA_PHgDSiWrSW4EYq29I0saE5k5vlNaRzJX5p0A291I77CW-ydkxLUeQ_aSLEDLX10Ty44ZIXDm87P4Zb7oPbe5-4KEv8JZBcG0Ah5_mpli-KalvINW1a0n_iEPRC5m612fULwuEpHeKMG7urGpnxEg.jpg" width="400"><br>
-
-به گزارش خبرگزاری تسنیم نیروی دریایی سپاه پاسداران انقلاب اسلامی روز شنبه در بیانیه‌ای اعلام کرد که سه نفتکش را که از «مسیرهای غیرمجاز در تنگه هرمز عبور می‌کردند، و همچنین سه شناور دیگر آمریکایی را در مناطق دیگر هدف قرار داده است.»
-نیروی دریایی سپاه در این بیانیه به هدف قرار گرفتن سه نفتکش ایرانی توسط نیروهای آمریکایی در صبح امروز اشاره کرده و گفته است که این حملات خساراتی به‌بار آورده است.
-@
-VahidHeadline
-علی محمدی، معاون سیاسی نیروی دریایی سپاه، روز شنبه در گفتگو با خبرگزاری فارس، گفت: «در ۱۰ روز منتهی به هشتم شهریور، نیروی دریایی سپاه هر شب بین ۲ تا ۵ شناور متخلف را تنبیه و مجازات کرده و پس از آن نیز هرگاه اراده کرده با کشتی‌های متخلف برخورد کرده است.»
-او گفت:‌ «حملات آمریکا کوچک‌ترین خللی در اشراف و تحمیل اراده نیروی دریایی سپاه بر این منطقه ایجاد نکرده است.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78246)
 
 ---
 
