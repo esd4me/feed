@@ -3,8 +3,48 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-08 02:40:31 </h5>
+<h5> 🟢 Updated at: 2026-09-08 05:41:07 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-08 04:51:14
+
+
+
+پست ترامپ، ترجمه ماشین:
+وقتی ما در جنگ با ایران پیروز شویم، قیمت نفت به‌شدت سقوط خواهد کرد؛ درست مثل هر چیز دیگری که دارد سقوط می‌کند (اما بیشتر!).
+بنزین گالنی سه دلار، اما در نهایت به زیر دو دلار در هر گالن خواهد رسید.
+همه این‌ها به‌سرعت اتفاق خواهد افتاد و ایران هرگز سلاح هسته‌ای نخواهد داشت.
+MAGA!
+رئیس‌جمهور DJT
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78266)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 04:50:02
+
+
+
+مجید ابن‌الرضا، سرپرست وزارت دفاع، مدعی شده است که نیروهای نظامی این کشور توانایی هدف قرار دادن ناوهای رزمی آمریکا را دارند.
+روز گذشته محسن رضایی نیز گفت: برای اولین بار موشک ضدناوشکن را بالای سر یک ناو آمریکایی آزمایش کردیم. این موشک خاص، جهنمی برای آمریکایی‌ها به وجود آورد و فرار کردند.
+فرماندهی مرکزی ارتش آمریکا - سنتکام - روز گذشته در
+پستی که در شبکه ایکس منتشر کرد
+تلویحا به حمله به دو ناو خود اشاره کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78265)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-07 19:49:52
@@ -257,39 +297,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78246)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-05 20:26:36
-
-
-
-رئیس مرکز فوریت‌های پزشکی استان کردستان اعلام کرد که در پی آتش گرفتن یک تانکر حامل مواد سوختی در محور سنندج–همدان، دست‌کم ۱۱ نفر جان باختند و پنج نفر دیگر زخمی شدند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78245)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-05 19:32:57
-
-<img src="https://cdn1.telesco.pe/file/FfyFlXuiI7aW5j6Refq1LuFsBSIxNF7RScI_eh4xLpnwpKavOXR97jZBHVqFCaIscCnCG1ghmr5MaZr6GHIjhdxDw44jj9IAnPJwMKRtknfH4U3d0Z7JYJP9y2dHGVTyVxWhbu01uFUVHXfYOiwAC3rdsxJ6iMQupmutEAcR_amf6WAK6mtIBa0dB0hAx14WxkJ7eSXyDq19kf--XOaTpg_Qt2yKLWNBmHgg51jjFc5s4eTOaUER09ArGNzaXwSSyBT9ysiLGiqQwquY8DJDvV5-NAM98wMW_fitdyQo2hocGqkmKemLqVoXJJ_hFQinh09GQcTWUEVM5VMz1jl3hQ.jpg" width="400"><br>
-
-UKMTO:
-مرکز عملیات تجارت دریایی بریتانیا  گزارشی درباره چندین کشتی تجاری در شمال خلیج فارس و دریای عمان دریافت کرده است.
-گزارش‌ها حاکی از آن است که این کشتی‌ها در چارچوب فعالیت‌های نظامی جاری در منطقه، هدف آتش با هدف از کار انداختن آن‌ها قرار گرفته‌اند.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78244)
 
 ---
 
