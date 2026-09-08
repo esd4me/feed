@@ -3,8 +3,101 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-08 20:25:38 </h5>
+<h5> 🟢 Updated at: 2026-09-08 23:12:30 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-08 22:57:01
+
+<img src="https://cdn1.telesco.pe/file/AttWGgF4QlqZg2eOmG9EDMM90N6nutL4GG2vJf_U6ISwGZ5VFA8xbCRWCVC9ufYZQiQeHGCOFoklDqI8yv4HZbhq0QAKIxJ97aV3iaQqvz4RuYicb2BlH4aiDPgryNT6kKnYOVC_8a3h6RCU6ahIsv48zmjx1TrvCCkVuZ7kanl9vMtubbHkkVioNDSE5fQzC01KnJ4iA9MEZAZmcwSeCSryKa2AKxOm0dNuTOMUuf3DGu-7SMJJBmoZF9NxLI0lWfw_ayl6FVPq88Vffg0WpNOi0X894E_Hvp4p_oLURe2kLIQOI9Q5lIefJuC1q35rEpHjcnnB3dJFTlBv15aMcQ.jpg" width="400"><br>
+
+خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، گزارش داد که یک نفتکش کوچک ایرانی در فاصله ۴ مایلی جزیره خارک، هدف حمله موشکی ارتش آمریکا قرار گرفت.
+تسنیم نوشت که این نفتکش در محدوده لنگرگاه جزیره خارک مورد اصابت پرتابه نیروهای آمریکایی قرار گرفت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78282)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 22:56:50
+
+<img src="https://cdn4.telesco.pe/file/fwDtyBj49vWDU4vlR-FvGGbbpo1YCx6PcL-aIf7xWnukgQhVMs4eItnZjRxtmcrJF-_4q_jQtxq24APH0jOoo7F_pqWCAJPvzpUYOtaFZRBMgxBjVPm97ggcN9Cs_NS2oYG0oLqpNAOUF_-c3a6NczDrTSTBYIZWA0lcdd94wze7feXyrpdjVEgLwZ89qTACmJKabArqgyA_ZKiTDcJ8pNq88Nq2jn174W-QyjBR52WG0bla-_c7HiYSd2JUfvkDwghmIdI3kJHToD3JNqtWUluLzkMfYKi1YWm66tN1ZDpzcxk_AiIIz6rahIteBGyyHRL_6EIrhA-pdHHkAJ4BHw.jpg" width="400"><br>
+
+علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، روز سه‌شنبه ۱۷ شهریور اعلام کرد ارتش آمریکا به سه نفتکش ایرانی اخطار تخلیه داده و آن‌ها را به هدف قرار دادن تهدید کرده است.
+عبداللهی هشدار داد هرگونه حمله به نفتکش‌های ایران با واکنش نیروهای مسلح جمهوری اسلامی ایران همراه خواهد شد و پایگاه‌ها و منافع آمریکا در منطقه هدف قرار خواهند گرفت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78281)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 22:42:34
+
+
+
+"صدای انفجار از حوالی ساحل جاسک"
+خبرگزاری فارس وابسته به سپاه پاسداران:
+حوالی ساعت ۲۱:۴۵ امشب، صدای انفجار در شهرستان جاسک شنیده شد.
+منابع محلی می‌گویند صدا از سمت دریا و نزدیکی منطقه سنگ سیاه به گوش رسیده و انفجار در دو مرحله و با فاصله کوتاه رخ داده است.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78280)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 22:40:34
+
+<img src="https://cdn4.telesco.pe/file/M25M1qsjL_B2K9zuYYlO2riHjhwXeN4jyx-mLgP6ReQt5reYe7sVwgJVTC8PrGbBpXuiV365p9jRLTruQ76tNcIC8m3wyvQdrP1EkKBVonoBqIIFUYlpPHOLOSGWpSX7e0CoB8GTUcyVJzmgVqde4DzGMbwz2MLSefEuepsyzVEIE68Q-faszSYPz-bUo_BfPn-nl4sFMyAJJuC9qY9aBajVN73nnMf7XlfutIMiPD-FcnHKbU3mHuvIDI9didu33lC8miTkBLPahCZOZQMzCmSRo5QlrxqbL2tzvYvTfuQK3A3cY7eJLl1mq55oRiShzG25XwT0jR1gkjYvLvxshg.jpg" width="400"><br>
+
+یک مقام آمریکایی روز سه‌شنبه ۱۷ شهریور به رویترز گفت یک شناور بدون سرنشین زیرسطحی نظامی آمریکا در خاورمیانه، هنگام پایش آب‌های منطقه در حمایت از جنگ علیه ایران، دچار نقص فنی شده است.
+این اظهارنظر ساعاتی بعد از آن منتشر شده که سپاه پاسداران انقلاب اسلامی از «شکار» و به «غنیمت گرفتن» یک شناور زیرسطحی آمریکایی در تنگه هرمز خبر داد.
+مقام آمریکایی که به شرط ناشناس ماندن صحبت می‌کرد، گفت این شناور معیوب از «مدل قدیمی‌تر» بوده و هیچ‌گونه تجهیزات سونار یا رادار طبقه‌بندی‌شده حمل نمی‌کرد.
+او افزود این شناور بیش از یک روز پیش دچار نقص فنی شده است اما به سرنوشت آن و یا کنترل نیروهای نظامی ایران بر آن اشاره نکرد.
+در بیانیه نیروی دریایی سپاه پاسداران ادعا شده که «یکی از مدرن‌ترین زیر دریایی‌های هوشمند و بدون سرنشین» ارتش آمریکا در بامداد روز سه‌شنبه به دام افتاده است.
+پیش از این گزارش‌هایی درباره مین‌روبی آب‌های تنگه هرمز توسط ارتش آمریکا با استفاده از تجهیزاتی مانند شناورهای زیر آبی بدون سرنشین منتشر شده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78279)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 22:40:11
+
+<img src="https://cdn4.telesco.pe/file/a-a5DY3B6YSjyAeVhVTzw8rdpjvsj0i0LUGqcProo_G-3Kkacxj6Xo02LZU8j4zmc7XnZQR8vPC3uOX8dEmySDw8PurzSaD3CffxsmYHejjsnjzDHyi404v4k5z2vqU9LRe7zQ_ZOLcJGdn95jf0aauVSoYCTT0JWyF3tWpHw9_W-S7I3yNsPI6U1qsW05Nuxjw82DUO_QtifbiMH47lzceNvGqaTKKGDXCPIU7_Nx57zxtl6LAHu0Eo_7UDP4_Dwjgcq7yeVUZC0fUjhWaa8sfGaSOwyVif4fFMxkEtj4Bmlrgm9PssH4_n-v8cOBMxRULtx71QN7xiwHh94_qmdA.jpg" width="400"><br>
+
+نیروهای دولتی یمن روز سه‌شنبه ۱۷ شهریور خبر دادند یکی از فرماندهان ارشد حوثی‌ها را در جریان یک درگیری در استان تعز به اسارت گرفته‌اند.
+منابع نظامی، این فرماندۀ حوثی را ابوعلی الاجنی، رئیس سازمان اطلاعات و شناسایی انصارالله، معرفی کرده‌اند که در یک درگیری سنگین در تعز در جنوب غربی یمن به اسارت درآمده است.
+این چهرۀ مهم حوثی‌ها، که با وجود جایگاه نظامی‌اش در کادر رهبری حوثی‌ها جا ندارد، به همراه ۹ تن دیگر بازداشت شده است.
+درگیری‌های سنگین در تعز از پنجشنبۀ گذشته در جریان بوده و تلفات زیادی به جا گذاشته است.
+در همین حال مارکو روبیو وزیر خارجۀ آمریکا هم با اشاره به نقش نیابتی حوثی‌ها در قبال جمهوری اسلامی، گفت معتقد است که «دست ایران پشت بسیاری از حملات حوثی‌ها به عربستان سعودی مخفی است».
+وزیر خارجۀ آمریکا با تأکید بر روابط دفاعی کشورش با عربستان سعودی، گفت واشینگتن تحولات یمن را از نزدیک زیر نظر دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78278)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-08 20:13:22
@@ -180,88 +273,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78263)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 22:28:13
-
-<img src="https://cdn1.telesco.pe/file/mMa7-prYDYfK27h1YBgZJVb5SVUesl4-5QCp5-b2xPaCNw3iuPRBWAba9Y21rLLyShxMHqbuxKK6OCIiC8SQwSI2O67juD0YuwfUVmroWnyR-Rr15QGQdjLvPLtHH_hE30SJj0tBYsXvvEPRvSthdCgPZDKKpBaoLTNJ57Mx6NHezMduA-XP-xnlM6aQCysGkNbToOOZSSL-f4M7UOxqIlyGA6st0H3a8VxEHLeRj6vsI5Ais2V5-w2PJPOAX8iADBMzDkD7eWnfdMqgmNv9wWqFmaphlC3QsZ-P-o-YJT50UNp3X-xW2SBsJ-Tc6ZhUYmyLS3KmVGk0DQCwNUPkrg.jpg" width="400"><br>
-
-دونالد ترامپ تصویری ساخته‌شده با هوش مصنوعی از حمله جنگنده‌های آمریکایی به جزیره خارک در تروث‌سوشال منتشر کرد که روی آن عبارت «خداحافظ خارک» نوشته شده است.
-realDonaldTrump
-رییس‌جمهوری آمریکا چند تصویر دیگر نیز در این شبکه اجتماعی منتشر کرد؛ یک نمودار آماری که روی آن نوشته شده «ارزش پول ایران از بین رفته است»، دیگری نموداری که روی آن نوشته شده «ایران با یک ابرتورم مواجه است» و نمودار سوم که روی آن نوشته شده «صادرات نفت ایران سقوط کرده است».
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78261)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 22:22:48
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/78260)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 21:43:27
-
-<img src="https://cdn1.telesco.pe/file/QCkZHGl9vcJJ1Ug6d0uFnA20KgXtb0D0bddio2XGvOGVTjwKrQMby6ggHRCz5_wTjankqz3SacOmQCFNMkFe5XB1g3G9dZ8N1s5-lJIYUbYXrXzelHzZH7_qqf9bgNQGIxKtEeFj2wJE4H8NvyzgQ2ZUBTUhStqdjhYNfhysrJVhfWnafa-SHWBA7Dd3g08XAvUO-3PkWxxgZ38sj99-IsHTtxMLJ4nQZcRxmEl-mkz3oniR0kAirXe2hGt0ZGrTchy1l20VSrtL9jFhi0jsQ7JDofjCvy5Bt_4Wjt6sMVteC7bQwP-jT93xXv6zdUM0RLiTZEW7WY1cmCjv1yNYGg.jpg" width="400"><br>
-
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78259)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 21:41:18
-
-
-
-نرخ سوم بنزین به ۱۰ هزارتومان افزایش یافت
-فاطمه مهاجرانی، سخنگوی دولت گفت نرخ سوم بنزین از بامداد ۱۷ شهریور به لیتری ۱۰ هزار تومان افزایش می‌یابد.
-سهمیه ماهانه ۶۰ لیتر بنزین با نرخ لیتری ۱۵۰۰ تومان و ۵۰ لیتر با نرخ لیتری ۳۰۰۰ تومان بدون تغییر باقی می‌ماند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78258)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-06 17:35:10
-
-<img src="https://cdn1.telesco.pe/file/M6b2SsipOB8eYW4f7xTWt9aLG7W6CYp1TmivRKuqM2sH51T0R42SOgJ3qoZ6SshvE1D0tqFmy6wrUm3eEOm0jveORO0Mt5nbHTySCgJQtbEBnmLrf7AWxMCoj1OUPtu_i6xLKalwJDc3B0I0jdkgb8wU1XJlhamd1E64Mus9GCsZ7VdbVKkZ3mtfA2CzHqQGACw_RA4ZKp05gRqZpDGG8ueC7hWt0409WKUZhDwznNjER2vptXMLlFos743BmmIamhDdoHOxQIaIv2jMKRd5R9J8h-gCeoGytXxzvYHw7Ycu6v1znZn-N4r0nl9yRK-hjRbQe4z7bS9hcUSUdcDplw.jpg" width="400"><br>
-
-در حالی که سپاه پاسداران، بامداد یکشنبه ۱۵ شهریور ماه در بیانیه‌ای
-اعلام کرده بود
-یک شناور بدون سرنشین سنتکام را در تنگه هرمز هدف قرار داده است، ارتش آمریکا این ادعا را رد کرد و آن را «دروغ محض» خواند.
-رسانه‌های دولتی ایران گزارش داده بودند که این شناور بدون سرنشین آمریکایی قصد ورود به منطقه‌ای از تنگه هرمز را داشته که ایران آن را ممنوعه اعلام کرده است.
-کاپیتان تیم هاوکینز، سخنگوی فرماندهی مرکزی آمریکا (سنتکام)، در گفتگو با آسوشیتدپرس گفت ادعای سپاه پاسداران «دروغ محض» است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78257)
 
 ---
 
