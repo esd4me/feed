@@ -3,14 +3,70 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-08 23:12:30 </h5>
+<h5> 🟢 Updated at: 2026-09-09 01:41:28 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-09 00:51:33
+
+
+
+بنا بر ده‌ها پیام‌های دریافتی از صفهان، یزد، خرم‌آباد، خمین و شهرهای دیگر چندین موشک پرتاب شده.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78285)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 00:07:55
+
+<img src="https://cdn1.telesco.pe/file/pazctHEzsw8T-fXErQhru7DqsoYp7dF_tQuxovJzBjabO1TwEwpUAojp06Q0mzIbMrXBIfkarFNDDpVvlFNncxURGE0QT1tisxHtnjdmkNDi55aZk6GZ5xAkQ8X9rqWahH_O6TQEImjuMXdtSjQFXa_ofDtfELR5DNjllrZcCiZxmbyvy1eKWCQefoWx38SHyU48bEWf9xgDORyBo_CMwmtBxhMDJZXzDAA4GKm1zC7ZmShRGdqmi-a1Ur4-XEOGi-DWr3nxKoJSaRE-oJ_35_uW5lDampa4pGKvc3Ni1UM2DoemvY4IrGdbCahKdpaMpIpaLoD4zPIeTJm7h8q46g.jpg" width="400"><br>
+
+در پی گزارش‌ها از حمله ارتش آمریکا به اهدافی در جاسک و اطراف جزیره خارک، رسانه‌های حکومتی در ایران تائید کردند که یک نفتکش دیگر نیز در اطراف جاسک هدف قرار گرفت و خدمه آن با قایق نجات در حال انتقال به مناطق ساحلی هستند.
+پیشتر رسانه‌های حکومتی در ایران گفته بودند یک نفتکش در اطراف خارک هدف قرار گرفت.
+رسانه‌های اسرائيلی و آمریکایی به نقل از مقامات آمریکایی گزارش داده بودند که علاوه بر اهداف دیگر، چند نفتکش ایرانی نیز هدف نیروهای آمریکایی قرار گرفته‌‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78284)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-08 23:36:34
+
+<img src="https://cdn1.telesco.pe/file/K1Yu6onXI0ABeX0vBa_Vs1qzSlW8gL-RueXP-yIAsg7YUftpz5p4YuVobB8aIUp8LBlvlBwjlUesZ7akT2-vJmg8QEoyMTVdfu3n3guLcjiEk6QtJkvfkxG4n2aOCn8YiFADu1ATiig_4-74L7XXkpv7Q129YKZXM8fj0w-VBPIw1-_riOV04KXEbXlC2Tg5a8q1arjBMr8eL0tL5v_B1M--Z0OFsKmp-bPgNXl-zeBST3Q37x932124VS-TpkPPYBgjnVXEzMCxd7Y-VxpcdfmNSzzJ0GuP1urfF3tsim0c0hKpnSdtXkIEctPF22t9XsKYZ6yUohJQQBilm0hNDQ.jpg" width="400"><br>
+
+هشدار سپاه به خدمه نفت‌کش‌ها در کویت و بحرین: شناورهای خود را ترک کنید
+سپاه پاسداران انقلاب اسلامی هشدار داد که نفتکش‌های مستقر در لنگرگاه‌ها و اسکله‌های بحرین و کویت را هدف قرار خواهد داد.
+در این بیانیه که در رسانه‌های جمهوری اسلامی بازتاب یافت، اشاره شده که آمریکا به «چند نفتکش ایرانی» حمله کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78283)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-08 22:57:01
 
 <img src="https://cdn1.telesco.pe/file/AttWGgF4QlqZg2eOmG9EDMM90N6nutL4GG2vJf_U6ISwGZ5VFA8xbCRWCVC9ufYZQiQeHGCOFoklDqI8yv4HZbhq0QAKIxJ97aV3iaQqvz4RuYicb2BlH4aiDPgryNT6kKnYOVC_8a3h6RCU6ahIsv48zmjx1TrvCCkVuZ7kanl9vMtubbHkkVioNDSE5fQzC01KnJ4iA9MEZAZmcwSeCSryKa2AKxOm0dNuTOMUuf3DGu-7SMJJBmoZF9NxLI0lWfw_ayl6FVPq88Vffg0WpNOi0X894E_Hvp4p_oLURe2kLIQOI9Q5lIefJuC1q35rEpHjcnnB3dJFTlBv15aMcQ.jpg" width="400"><br>
 
+فاکس‌نیوز: ارتش آمریکا نفتکش‌های ایرانی را در نزدیکی جزیره خارک و جاسک هدف قرار داده است
+شبکه فاکس‌نیوز شامگاه سه‌شنبه ۱۷ شهریور به نقل از مقام‌های ارشد آمریکایی گزارش داد ارتش آمریکا اهدافی را در نزدیکی جزیره خارک و جاسک هدف قرار داده است که شامل نفتکش‌های ایرانی می‌شوند.
+فاکس‌نیوز به نقل از این مقام‌ها گزارش داد، این حملات بخشی از تلاش گسترده‌تر آمریکا برای افزایش فشار اقتصادی بر ایران است.
+مقام‌های ارشد آمریکایی افزودند این راهبرد شامل غرق کردن و از کار انداختن نفتکش‌های حامل نفت خام ایران می‌شود.
+@
+VahidOnLive
 خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، گزارش داد که یک نفتکش کوچک ایرانی در فاصله ۴ مایلی جزیره خارک، هدف حمله موشکی ارتش آمریکا قرار گرفت.
 تسنیم نوشت که این نفتکش در محدوده لنگرگاه جزیره خارک مورد اصابت پرتابه نیروهای آمریکایی قرار گرفت.
 @
@@ -217,62 +273,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78266)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 04:50:02
-
-
-
-مجید ابن‌الرضا، سرپرست وزارت دفاع، مدعی شده است که نیروهای نظامی این کشور توانایی هدف قرار دادن ناوهای رزمی آمریکا را دارند.
-روز گذشته محسن رضایی نیز گفت: برای اولین بار موشک ضدناوشکن را بالای سر یک ناو آمریکایی آزمایش کردیم. این موشک خاص، جهنمی برای آمریکایی‌ها به وجود آورد و فرار کردند.
-فرماندهی مرکزی ارتش آمریکا - سنتکام - روز گذشته در
-پستی که در شبکه ایکس منتشر کرد
-تلویحا به حمله به دو ناو خود اشاره کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78265)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-07 19:49:52
-
-<img src="https://cdn1.telesco.pe/file/VFQIoLJKm8t4sShzER2KbwjNm38bhJDgVoh7ypco-z65p3TEsedfGZf7j15-MZKEUdALeQPKfeYRQcZQkEaa1GDBUHb46Qok_q-jJVy3mulZKaX8FRhuXHA3A9dF_mY4jQF4hHHPzfBIQj9fMusLmz2gh-tzydhu0HPZDznd14Fs14ARGz9AU1U_tSsqveTOKOZye-_2tp7rj2JB8cHgUuQrmkDX_5FNim1WGi4qf8iq1UkI3UXzs-M2hA8a_Y_jk6IDZ4z5-xNo17NiPu3x8YMS_aOkjFx9sawwxDtymbtGahcFS9E5eLZ-spLYjVpuS-JVvjM7UQoSBsazsDLrtQ.jpg" width="400"><br>
-
-دانیال کریمی، پدر امیرمحمد کریمی، از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴ در مرودشت، روز ۱۵ شهریور به زندگی خود پایان داد.
-امیرمحمد کریمی، فرزند ۱۹ ساله او، ورزشکار و عضو سابق تیم ملی نوجوانان تکواندو ایران بود که ۱۹ دی‌ماه ۱۴۰۴ در جریان اعتراضات مرودشت با اصابت گلوله کشته شد.
-پیکر او در روستای جونجان از توابع مرودشت به خاک سپرده شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78264)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-07 19:31:29
-
-<img src="https://cdn4.telesco.pe/file/PIp3vkz0t4MKlWAh4AvWaq2nlyfrzwDXb9FObXBvVJ7qaSHWJSJ--VgQ5KVeKWEuV8boLtPTk9gWmbPkJHqS2j_BCdRmNkGMkKQAcZ6nBC8qvMBkaSoywgvPQBp5u2pwM_kM9ljLcu4UrRrpJzoVC4NOmPWeTnxcHBacZc_yHfTL0j9juhCRaFToBHZTuAMfZqwGE3dFVh67fU9JxyEqtD85PO92iZylcCWT_JaJ8Qw-P1TAmMgPO-NKOEOnx4Jx8Os5DTJapxAQaPfkbzqUBi186qvlKAaeIRMBRHHsXpBdSpHarlw-KybLsRZdV3tnosn1tui_nAImT13jqWMx_g.jpg" width="400"><br>
-
-آیدا حیدری، نامزد ابوالفضل سلیمانی الموتی، از جان‌باختگان اعتراضات دی‌ماه، روز پنج‌شنبه ۱۲ شهریور ۱۴۰۵ به زندگی خود پایان داد.
-منابع حقوق بشری ایران، به نقل از خانواده آیدا حیدری نوشته‌اند که این جوان ۲۵ ساله، حدود هشت ماه پس‌از کشته‌شدن نامزدش جان خود را گرفته است.
-خانواده آیدا حیدری گفته‌اند که آیدا و ابوالفضل قرار بود همین ماه مراسم ازدواج خود را برگزار کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78263)
 
 ---
 
