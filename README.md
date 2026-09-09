@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-10 00:53:38 </h5>
+<h5> 🟢 Updated at: 2026-09-10 03:11:05 </h5>
 </div>
 
 
@@ -334,7 +334,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-09-09 02:27:21
 
-<img src="https://cdn1.telesco.pe/file/N89n8Lxa0DR0LTV_0JKaUQEIOSvUO7SO_bDsYGiqoslMZoeDy_01U2YSCk6Jz4qkzzSvwg-0jdi4uFNjCy74097pCIIA3HXUu8fnTAWWkc6S047CaF0TZ7lfqxOUD5NuuPk8t8qYdPb2YbY4FfyBzoQ3UORzucd38urWS39c5DQ6UeW8fukmHVIhhb1GvVoCEG6XHpHUyK9u7VeVSxaslumlrWvC3ZXUX9Y_Ahmai8Ui9taEg4HnkgGydqPTJYQMa75a0jdPNYUhvOpztrU_cs_B6BPpenlPYVtjWVfILrsoRdoA0AD9VcY221Z-ptfoKOVrNY4aNEqqE4upVsC7-g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/uI3f1pDskdbuEqmTCilMTrR_33GTVlx2UHw7aYjlIenQUhX2g3UXj_tuNT-8hFxM3GFxmr7Puv8dJzg1qyghB2hRjMXmicoy9P1_SXPOXu2V104lwy1uCQSFokLQ_Z96vW8BacfHd1jJhKGaxYU75rRfqNnz2I9qxmrR2UULGw5cd8IRKCwaN3tLlt3sSh6GrrUx9SlD_y7Ykj_gbbsyTf4OIot6ihjn2-xxcpSh_KxuCPH75zYdxuivrF-Xm_LrEq71OSf19v_uywPieT2KzDyPcJ16WsHV1-zgraZG4eSOd5Xigu5iSOcBtSfVFV8IBBMfmh5L_Ks-sBnbe2H61g.jpg" width="400"><br>
 
 سپاه پاسداران در بیانیه‌ای خطاب به «مردم مبعوث شده ایران اسلامی» اعلام کرد که با رمز «حیدر کرار» به پایگاه الازرق اردن حمله کرده است.
 در این بیانیه آمده که به محل استقرار جنگنده‌ها حمله شده است.
