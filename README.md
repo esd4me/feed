@@ -3,8 +3,65 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-09 04:23:24 </h5>
+<h5> 🟢 Updated at: 2026-09-09 09:04:47 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-09 08:24:51
+
+<img src="https://cdn1.telesco.pe/file/kEpljqU20_xf7Hph9RtgB0kGSCqQnJmKv1g7CIukNCaAcMXw59H9cb82qy9pWM8XDEnNo-B8LEOnqwvcOwZKx1Cr5RPy8iKpKkHK91XnUYRdBqVc34cZPO-o573zSVVBlBBxNM2wAsSY-n_zQ8ul0yTooZSEQHg2OZO9ZmnnH2CTZYiXBcVsmsobMLPQvdv64e4xjYZFS-euJ0G4DL6uMd5BBWXqN63LZST3qCRJya3FszNkkQFFBcJ8X_KTEjSXxXN6YOSeRByzjsuMKW7zCC3wsZ8_JlZZTLJWGQmi7kcl2OialvMPhUZ6BFPmP545qWr06uDTtK2IAdjtGAQBDw.jpg" width="400"><br>
+
+سپاه پاسداران: دو شناور و هشت نفتکش را هدف قرار دادیم
+سپاه پاسداران که در طول چند ساعت گذشته با انتشار چند اطلاعیه از حملات موشکی خود به مواضع آمریکا در اردن و بحرین خبر داده بود، در آخرین اطلاعیه مدعی شده است که در واکنش به حمله آمریکا به ۵ نفتکش ایران نیروی دریایی سپاه به «دو فروند شناور آمریکایی و هشت نفتکش» حمله کرده و «خسارت های زیادی» به آنها وارد کرده است.
+در این اطلاعیه که بامداد چهارشنبه ۱۸ شهریور منتشر شده همچنین ادعا شده است که «۱۰ فروند کشتی متخلف که به گفته نیروی دریایی سپاه، قصد عبور از «منطقه ممنوعه و ناایمن تنگه هرمز» را داشتند حمله شده است.
+این گزارش‌ها هنوز از سوی منابع مستقل تایید نشده است.
+با این حال، سنتکام در اطلاعیه نیمه شب سه‌شنبه خود هدف قرار دادن ۵ نفتکش ایران را در واکنش به حمله به رزم‌ناوهای خود دانسته و گفته بود این ناوهای جنگی خسارت ندیده و در حال ادامه ماموریت‌های خود هستند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78291)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 05:22:36
+
+
+
+فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار ویدیویی نوشت: نفتکش ریسکو روز سه‌شنبه، پس از آن‌که در واکنش به تلاش‌های سپاه پاسداران برای حمله به یک ناو جنگی نیروی دریایی آمریکا توسط نیروهای سنتکام منهدم شد، در خلیج عمان غرق شد.
+@
+VahidOOnLine
+M/T Riesco sinks in the Gulf of Oman, Sept. 8, after being destroyed by CENTCOM forces in response to attempted IRGC attacks on a U.S. Navy warship.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78290)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 04:32:27
+
+
+
+پیام‌های دریافتی:
+ساعت 4.19 دقیقه صبح بندرکنگان الان صدای انفجار اومد
+در و پنجره ها شدید لرزید
+سلام صدای انفجار نزدیکای بندر دیر
+صدای انفجار شدید.بندر دیر.
+ساعت ۴/۲۰ بامداد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78289)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-09 02:27:21
