@@ -3,8 +3,58 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-09 18:25:16 </h5>
+<h5> 🟢 Updated at: 2026-09-09 21:44:32 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-09 21:32:48
+
+
+
+غلامعلی حداد عادل می‌گوید حکومت فعلا نمی‌تواند «به علت شرایط جنگ آن‌طور که باید وارد جبهه حجاب» شود.
+این عضو شورای عالی انقلاب فرهنگی و مجمع تشخیص مصلحت نظام در ادامه می‌گوید شرایط کنونی کشور از نظر حجاب «بسیار سخت‌تر از سال ۶۰ است که شروع به کار کرده بودیم».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78303)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 20:17:39
+
+<img src="https://cdn1.telesco.pe/file/AF1MW_zd1y_IacijIrNijclIcgAi3VFEo-3D-vxUJLNVGrWxDP3PjxOWehTaKp-RdArqdURVaHWaC3DPDS4TdCk4A1H30CBpdzuZK_514njRsTZQlDX2UwDy6RJ3Z4uzofYPQ87AXFmKvt4uByn2iFPGy1s2kfcQKBWqJVhewLxV3cWAbVkg7LLMCzNvW16wjF5PidCQ0WSGTfp5-DmR5eG-XCgAfXPSwBFA2UfJUlkqJtjjbP3Oo0KqHjIlLnN18vzFZTapead1EWF18H6LUy140XHYmyQhMbWQ-KmQ932TAA_UdZLZZCrti9R1U5pSUBL5V4l5oZqn-rcmdWWKsQ.jpg" width="400"><br>
+
+رویترز روز چهارشنبه ۱۸ شهریور به نقل از منابع دیپلماتیک گزارش داد که شورای حکام آژانس بین‌المللی انرژی اتمی با صدور قطعنامه‌ای، پرونده ایران را به دلیل نقض تعهدات منع اشاعه هسته‌ای، پس از ۲۰ سال به شورای امنیت سازمان ملل متحد ارجاع داده است.
+این قطعنامه جدید در پی قطعنامه پیشین شورای حکام در ۱۲ ژوئن سال گذشته صادر شد؛ فهرستی از موارد «پایبند نبودن» ایران به تعهداتش که درست یک روز پیش از آغاز حملات هوایی اسرائیل و متعاقبا ایالات متحده به تاسیسات هسته‌ای ایران تصویب شده بود.
+بر اساس قوانین و الزامات حقوقی، گزارش رسمی این نقض تعهدات به شورای امنیت سازمان ملل، مستلزم تصویب دومین قطعنامه از سوی این شورای ۳۵ عضوی بود که اکنون به سرانجام رسیده است. این اقدام می‌تواند مسیر را برای بازگشت تحریم‌های بین‌المللی و افزایش فشارهای دیپلماتیک بر تهران هموارتر کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78302)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 19:08:57
+
+<img src="https://cdn1.telesco.pe/file/bQdR-r8YOXWSR_OCj50nck3ECxyLssK-G9kBsguEGVf-BDHxkxKrTI7bEXhEwZnfvJlGxCCEjXG4eDRiK5wrge_6EyEAl7fqcNGYN22rN0N4ArJ6dDxzjn2uvDqDG8rddZyu03Auv_-woNfXBzBrVimDfzv2XXiL2Ot_s-Y4t-RfB--68ghJAYPToylgPtzKbyn6XBV89t1_mRa45YhZHDHdAt8_nztavGHSqWOnNpqhveOa6sBg3Pt9fxV3h2w86aToTC60y0QDo8xODJv05wXnmt3WnNIJyTksyQVhjZdC2nsoqUUlhG7v71wMSujNqi1hDM0swL-kYNceD8caMg.jpg" width="400"><br>
+
+عکس دریافتی با شرح: 'شناور آمریکایی در تنگه هرمز، سمت جزیره سلامه خصب عمان، چهارشنبه ۱۸ شهریور'
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78301)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-09 18:07:25
@@ -316,64 +366,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78284)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 23:36:34
-
-<img src="https://cdn1.telesco.pe/file/K1Yu6onXI0ABeX0vBa_Vs1qzSlW8gL-RueXP-yIAsg7YUftpz5p4YuVobB8aIUp8LBlvlBwjlUesZ7akT2-vJmg8QEoyMTVdfu3n3guLcjiEk6QtJkvfkxG4n2aOCn8YiFADu1ATiig_4-74L7XXkpv7Q129YKZXM8fj0w-VBPIw1-_riOV04KXEbXlC2Tg5a8q1arjBMr8eL0tL5v_B1M--Z0OFsKmp-bPgNXl-zeBST3Q37x932124VS-TpkPPYBgjnVXEzMCxd7Y-VxpcdfmNSzzJ0GuP1urfF3tsim0c0hKpnSdtXkIEctPF22t9XsKYZ6yUohJQQBilm0hNDQ.jpg" width="400"><br>
-
-هشدار سپاه به خدمه نفت‌کش‌ها در کویت و بحرین: شناورهای خود را ترک کنید
-سپاه پاسداران انقلاب اسلامی هشدار داد که نفتکش‌های مستقر در لنگرگاه‌ها و اسکله‌های بحرین و کویت را هدف قرار خواهد داد.
-در این بیانیه که در رسانه‌های جمهوری اسلامی بازتاب یافت، اشاره شده که آمریکا به «چند نفتکش ایرانی» حمله کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78283)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 22:57:01
-
-<img src="https://cdn1.telesco.pe/file/AttWGgF4QlqZg2eOmG9EDMM90N6nutL4GG2vJf_U6ISwGZ5VFA8xbCRWCVC9ufYZQiQeHGCOFoklDqI8yv4HZbhq0QAKIxJ97aV3iaQqvz4RuYicb2BlH4aiDPgryNT6kKnYOVC_8a3h6RCU6ahIsv48zmjx1TrvCCkVuZ7kanl9vMtubbHkkVioNDSE5fQzC01KnJ4iA9MEZAZmcwSeCSryKa2AKxOm0dNuTOMUuf3DGu-7SMJJBmoZF9NxLI0lWfw_ayl6FVPq88Vffg0WpNOi0X894E_Hvp4p_oLURe2kLIQOI9Q5lIefJuC1q35rEpHjcnnB3dJFTlBv15aMcQ.jpg" width="400"><br>
-
-فاکس‌نیوز: ارتش آمریکا نفتکش‌های ایرانی را در نزدیکی جزیره خارک و جاسک هدف قرار داده است
-شبکه فاکس‌نیوز شامگاه سه‌شنبه ۱۷ شهریور به نقل از مقام‌های ارشد آمریکایی گزارش داد ارتش آمریکا اهدافی را در نزدیکی جزیره خارک و جاسک هدف قرار داده است که شامل نفتکش‌های ایرانی می‌شوند.
-فاکس‌نیوز به نقل از این مقام‌ها گزارش داد، این حملات بخشی از تلاش گسترده‌تر آمریکا برای افزایش فشار اقتصادی بر ایران است.
-مقام‌های ارشد آمریکایی افزودند این راهبرد شامل غرق کردن و از کار انداختن نفتکش‌های حامل نفت خام ایران می‌شود.
-@
-VahidOnLive
-خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، گزارش داد که یک نفتکش کوچک ایرانی در فاصله ۴ مایلی جزیره خارک، هدف حمله موشکی ارتش آمریکا قرار گرفت.
-تسنیم نوشت که این نفتکش در محدوده لنگرگاه جزیره خارک مورد اصابت پرتابه نیروهای آمریکایی قرار گرفت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78282)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 22:56:50
-
-<img src="https://cdn4.telesco.pe/file/fwDtyBj49vWDU4vlR-FvGGbbpo1YCx6PcL-aIf7xWnukgQhVMs4eItnZjRxtmcrJF-_4q_jQtxq24APH0jOoo7F_pqWCAJPvzpUYOtaFZRBMgxBjVPm97ggcN9Cs_NS2oYG0oLqpNAOUF_-c3a6NczDrTSTBYIZWA0lcdd94wze7feXyrpdjVEgLwZ89qTACmJKabArqgyA_ZKiTDcJ8pNq88Nq2jn174W-QyjBR52WG0bla-_c7HiYSd2JUfvkDwghmIdI3kJHToD3JNqtWUluLzkMfYKi1YWm66tN1ZDpzcxk_AiIIz6rahIteBGyyHRL_6EIrhA-pdHHkAJ4BHw.jpg" width="400"><br>
-
-علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، روز سه‌شنبه ۱۷ شهریور اعلام کرد ارتش آمریکا به سه نفتکش ایرانی اخطار تخلیه داده و آن‌ها را به هدف قرار دادن تهدید کرده است.
-عبداللهی هشدار داد هرگونه حمله به نفتکش‌های ایران با واکنش نیروهای مسلح جمهوری اسلامی ایران همراه خواهد شد و پایگاه‌ها و منافع آمریکا در منطقه هدف قرار خواهند گرفت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78281)
 
 ---
 
