@@ -3,8 +3,162 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-09 13:56:12 </h5>
+<h5> 🟢 Updated at: 2026-09-09 18:25:16 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-09 18:07:25
+
+
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با حضور در قله جبل‌الشیخ (حرمون) و اشاره به تسلط بر مناطق مرزی سوریه و لبنان، هدف اصلی کارزارهای نظامی جاری این کشور در منطقه را شکست و سرنگونی رژیم ایران عنوان کرد.
+نتانیاهو در پیامی ویدیویی، به حضور نیروهای نظامی اسرائیل در مناطق مرزی سوریه و لبنان اشاره کرد و گفت: ما اجازه نخواهیم داد هیچ گروه تروریستی در مرزهای ما مستقر شود. این یکی از دستاوردهای عظیم ماست، اما کار اصلی هنوز باقی مانده است.
+نخست‌وزیر اسرائیل با ابراز اطمینان از دستیابی به این هدف افزود: کار اصلی ما شکست دادن و تضعیف کامل رژیم ایران است. ما بسیار به این هدف نزدیک هستیم و می‌دانیم که کل این محور سرانجام سقوط خواهد کرد و ما این کار را انجام خواهیم داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78300)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 16:36:00
+
+<img src="https://cdn1.telesco.pe/file/BozDaWZ5HF_4rC3O-7_Tj9drgBEq6djNvo7ykZEqtU1W5NPDzhqLIAGqk4KUmK0h3Yw5sCY2LrE-dwuBKWxtXVmt9Ye2EE_elvuACqtNPMqSGYEayzEtKxzeVBJvK2hXNcgiqZPzCN_rpI_3ujmB2BDJId9P2B86FZJJbw6eCfDTqSn8GIx4Uv5-qKHRtsvsj2-YEj-gLDp0qLDYchra6VrvH51KrJbjJaHR0lTlbPCliJq8ZRXT6alHiVrO5UfpC30pXMjilpJsAdgpaRHkRmuCwY9kc29jBLx5rvhGpWk8qIfcrSdD4U6_h1huc_1z2ECodlrbmYW1dQwAIAr7Eg.jpg" width="400"><br>
+
+سخنگوی سپاه پاسداران برای پایان وضعیت کنونی و بازگشایی تنگه هرمز از آمریکا خواست جنگ و تهدیدها را متوقف کند، اسرائیل از لبنان عقب‌نشینی کند، محاصره یمن پایان یابد، ۲۴ میلیارد دلار از دارایی‌های مسدودشده ایران آزاد شود و مداخله در برنامه‌های هسته‌ای و موشکی جمهوری اسلامی متوقف شود.
+حسین محبی، سخنگوی سپاه پاسداران، روز چهارشنبه ۱۸ شهریورماه گفت اگر آمریکا خواهان پایان وضعیت کنونی است، باید ضمن «توقف کامل جنگ» از تهدید دوباره دست بکشد.
+محبی در بخش دیگری از سخنانش تهدید کرد که در صورت ادامه حملات، پاسخ سپاه گسترده‌تر خواهد بود و گفت: «اگر دشمن دو یا سه هدف ما را بزند، ما با ۲۰ هدف پاسخ محکم می‌دهیم.» او همچنین گفت جنگ کنونی برای نخستین‌بار «آسیب‌های راهبردی» را مستقیما به آمریکا منتقل کرده است.
+این اظهارات در حالی مطرح شد که با تداوم محاصره دریایی ایران، صادرات نفت از طریق تنگه هرمز متوقف شده و فشار تحریم‌های مضاعف دولت ترامپ، باعث تورم کم‌سابقه در ایران و رسیدن قیمت دلار به ۲۳۳هزار تومان شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78299)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 16:21:38
+
+<img src="https://cdn4.telesco.pe/file/fNrs6A8DQWeGuse-pjCcnn3yu9XzAvBAeseJPe33p56Cq3avzvxVUzx_HV7rlDvKsl99QMd71yoORz5c9SIsv1qhd7-pjFwQIWePqy_mHhXyUDvykLgmibCTJv5iS1lFS3v93IH0uMtluRohl5URP8KzY77cALkZJbXtejxlE1dbzfapmyqQu8dWqN_a1B_Opf1FdpTMtbJtAIK-IFLwP0zQseOs8qUSGQeteWBsQkoosKkAolxMYzSIESF9VbjKGwNP9xz-B7tNg4HCDSvFVMxizltGqXeS2zOcW0O8K2JMlPJg0pdFJEUF2AP-Wqd9Ls0wKC0krhWe299djLcxGA.jpg" width="400"><br>
+
+قیمت ارزهای خارجی در بازار آزاد ایران روز چهارشنبه ۱۸ شهریور ۱۴۰۵ رکورد تازه‌ای ثبت کرد و نرخ دلار آمریکا از ۲۳۲ هزار تومان گذشت.
+برخی وب‌سایت‌های اعلام قیمت ارز نرخ دلار را در معاملات ظهر چهارشنبه تا ۲۳۵ هزار و ۵۰۰ تومان نیز گزارش کردند.
+هم‌زمان قیمت یورو از ۲۷۱ هزار تومان و پوند بریتانیا از ۳۱۵ هزار تومان فراتر رفت. این افزایش‌ها در حالی ادامه دارد که ریال طی دو هفته گذشته بیش از ۱۵ درصد ارزش خود را در برابر دلار از دست داده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78298)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 16:20:48
+
+<img src="https://cdn4.telesco.pe/file/h09n6J4775H0ZTH6kT-RGkMQ417JVEG91MiCijG0VdGLVGxtQBzy1hd1B81R0pjtiLae4lxzTNpO3CV_G6cRfxiYvMOZXY94sASw61rMeXyopBiDDtnOYCylOo04-I-ADnaN3nwAr2jQNEHdvV9_UB5wIFeNJQndQpaObDTxnvb5LqiV55OOemLEDUab3uNmXRUvzr2zNc59MeCKP1gFQpIDPhjRo7i0Ydmnnf0NgbcYgZKxb9Uo18UhMvTEhi3Kz1zDUPr8AjINH1nU0eflFV9KJ4GbOouKUm4kqOxAGdfijkj0_bYxfW-7WyCFtxu1dLl-_qO49X0WBPuqTqFFZQ.jpg" width="400"><br>
+
+قیمت نفت خام برنت برای نخستین بار از دوم مرداد به ۱۰۰ دلار در هر بشکه رسید و بار دیگر وارد محدوده سه‌رقمی شد.
+افزایش قیمت نفت و ارز در شرایطی رخ داده است که درگیری‌ها در خلیج فارس و منطقه ادامه دارد. شامگاه سه‌شنبه ۱۷ شهریور، آمریکا اعلام کرد پس از حملات موشکی ناموفق جمهوری اسلامی به دو ناو جنگی این کشور در خلیج فارس، پنج نفتکش مرتبط با سپاه پاسداران را منهدم کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78297)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 16:19:40
+
+<img src="https://cdn1.telesco.pe/file/hf1Wm8UMUmdLvKNbc27gzo6lBnGBLeGn8PPNebzdBj23XGTYLA92dvZkyt_7VhRSOXPZ-wrQ0qk7hg7aG9IUsdOjyOayD2-x-VhwmXooq6on26BgGRgpc8xNLe9FZsFfQXWE1K78fEjnu-Jc_0_9PSYaZ-FsCC3vF98IlTNt0d7BuRlDU3F04iYVDRDqgz1SgngSVHPAKan7T5t6cTELVT0Gmbofe-xmy20mTJZkNfsgwkz_pF4Uz6JPA3vnQoameFPQov7vlo0qirpbC-kFRw-3tGPtbbyGU-Q3cfo6wwmUUyFX-QbiyxMWRc9exrjuTeZoWn2ZWkT6MHcUZJX3IA.jpg" width="400"><br>
+
+سازمان تجارت دریایی بریتانیا (UKMTO) ظهر چهارشنبه ۱۸  شهریورماه از وقوع حادثه برای یک نفتکش در ۲۴ مایلی بندر راشد امارات متحده عربی خبر داد.
+براساس این گزارش، «کاپیتان یک نفتکش گزارش داده است کشتی‌ای را مشاهده کرده که در حالت لنگراندازی کج شده است، که احتمالا نشان‌دهنده ورود آب به داخل آن پس از حمله با یک پرتابه نامشخص است.»
+@
+VahidOOnLine
+مرکز عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در ۲۸ مایل دریایی جنوب شرقی بندر فاو عراق با یک پرتابه ناشناس هدف قرار گرفته است.
+بر اساس این گزارش، ناخدای نفتکش برخورد پرتابه با شناور را گزارش کرده است.
+خدمه نفتکش در سلامت هستند و تاکنون هیچ پیامد زیست‌محیطی ناشی از این حمله گزارش نشده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78295)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 16:16:52
+
+<img src="https://cdn1.telesco.pe/file/TWaB1pcxUfZ4R20eNDCDq4_bcycIzojtPrVuwdM38DZGysseOvdAX8sjEnV6cdaRzVVRaoAR2W_0-KaDa6PbT9WP0AkuGt-bnYEt_7DrIjz7rRK5-J9M7H0HWrx7LTKWw2kgDZshpibMfewCAG2H2vd4nRS_aQvsS1bVIbeqrlPrn60TbBuQgsShYJqr_3xFVYTBcFbPhs5MOL-WtzeXKhnou8LPItXpI1n2HRqIrUFHFCyfQjEeHXoyhifK8GE8yTdUrcppHVqlb2aHhIwR8K5WgGESoxa1jlsSh-LuK02TcUPVTdugI3alOXvLz-mYWV9Q1SpAZvgC7jPAtkRYLw.jpg" width="400"><br>
+
+ترجمه ماشین:
+🚫
+ادعا:
+نیروهای سپاه پاسداران انقلاب اسلامی ایران (IRGC) مدعی شده‌اند که دو ناوشکن نیروی دریایی آمریکا را که در خاورمیانه در حال عملیات بودند، هدف قرار داده‌اند.
+این ادعا کاملاً دروغ است.
+✅
+واقعیت:
+هیچ ناو جنگی نیروی دریایی آمریکا هدف قرار نگرفته است؛ تمام حملات مورد تلاش سپاه پاسداران شکست خورده‌اند.
+در همین حال، نیروهای آمریکایی تنها طی هفته گذشته موفق شده‌اند ۱۰ نفتکش ایرانی را منهدم کنند.
+این شناورها بخشی از یک شبکه سایه چندمیلیارددلاری بودند که منابع مالی سپاه پاسداران را تأمین می‌کند و ایران قادر به دفاع از آن‌ها نیست.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78294)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 16:11:54
+
+<img src="https://cdn1.telesco.pe/file/SBoN0Ip7wMU1NSpCKlVEhUEjDuVhuZRy-0uS8iGHGevsYglw_aYjuTtXtOLGIuJb2YtVrV-95Qgqdigf75_4b9jyoX1qCdajAszJ37jIjX4x4PhbRCl7FqOPpGJtDz4fSZD4ErzPtuR6Y77hRrj-mLtYgXVauD8Lc4Wt04yn7OEld32SanVldAYEkuUyqTa45jutpYdnflbz0U2t2YBQJI1kPEQ3iHBM10lyCuytm6gbDJaoak1u-pxTGvPc66hCxQRaQTQPF6d2gpkkg6W8AeNkT2_vmUs1NTQuPik10j7U0YIZ0zc6iSH6kQd__dYsIa3JE-aRBzNPFiUUve3jUQ.jpg" width="400"><br>
+
+«ماموستا محمد نزهتی»، روحانی اهل سنت و امام جماعت منطقه چیانه در شهرستان پیرانشهر، در یک حمله مسلحانه کشته شد.
+سپاه پاسداران او را از روحانیون همکار با بسیج معرفی کرده و مسئولیت کشته‌شدن نزهتی را متوجه آنچه «گروهک‌های تجزیه‌طلب کردی» و «صهیونیستی-آمریکایی» خوانده، کرده است.
+براساس این بیانیه، نزهتی سابقه «همکاری طولانی» با «بسیج اساتید، طلاب و روحانیون» داشته است.
+سپاه همچنین فعالیت‌های او را در راستای حمایت از جمهوری اسلامی و آنچه «وحدت شیعه و سنی» خوانده، توصیف کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78293)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-09 16:09:10
+
+
+
+اشک‌های مادر یسنا (فروغ) اسکندری در سوگ دخترش
+یسنا اسکندری، وکیل دادگستری و نقاش، شامگاه ۱۸ دی‌ماه ۱۴۰۴ در منطقه آریاشهر تهران هدف شلیک نیروهای جمهوری اسلامی قرار گرفت و جان باخت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78292)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-09 08:24:51
@@ -220,148 +374,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78281)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 22:42:34
-
-
-
-"صدای انفجار از حوالی ساحل جاسک"
-خبرگزاری فارس وابسته به سپاه پاسداران:
-حوالی ساعت ۲۱:۴۵ امشب، صدای انفجار در شهرستان جاسک شنیده شد.
-منابع محلی می‌گویند صدا از سمت دریا و نزدیکی منطقه سنگ سیاه به گوش رسیده و انفجار در دو مرحله و با فاصله کوتاه رخ داده است.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78280)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 22:40:34
-
-<img src="https://cdn4.telesco.pe/file/M25M1qsjL_B2K9zuYYlO2riHjhwXeN4jyx-mLgP6ReQt5reYe7sVwgJVTC8PrGbBpXuiV365p9jRLTruQ76tNcIC8m3wyvQdrP1EkKBVonoBqIIFUYlpPHOLOSGWpSX7e0CoB8GTUcyVJzmgVqde4DzGMbwz2MLSefEuepsyzVEIE68Q-faszSYPz-bUo_BfPn-nl4sFMyAJJuC9qY9aBajVN73nnMf7XlfutIMiPD-FcnHKbU3mHuvIDI9didu33lC8miTkBLPahCZOZQMzCmSRo5QlrxqbL2tzvYvTfuQK3A3cY7eJLl1mq55oRiShzG25XwT0jR1gkjYvLvxshg.jpg" width="400"><br>
-
-یک مقام آمریکایی روز سه‌شنبه ۱۷ شهریور به رویترز گفت یک شناور بدون سرنشین زیرسطحی نظامی آمریکا در خاورمیانه، هنگام پایش آب‌های منطقه در حمایت از جنگ علیه ایران، دچار نقص فنی شده است.
-این اظهارنظر ساعاتی بعد از آن منتشر شده که سپاه پاسداران انقلاب اسلامی از «شکار» و به «غنیمت گرفتن» یک شناور زیرسطحی آمریکایی در تنگه هرمز خبر داد.
-مقام آمریکایی که به شرط ناشناس ماندن صحبت می‌کرد، گفت این شناور معیوب از «مدل قدیمی‌تر» بوده و هیچ‌گونه تجهیزات سونار یا رادار طبقه‌بندی‌شده حمل نمی‌کرد.
-او افزود این شناور بیش از یک روز پیش دچار نقص فنی شده است اما به سرنوشت آن و یا کنترل نیروهای نظامی ایران بر آن اشاره نکرد.
-در بیانیه نیروی دریایی سپاه پاسداران ادعا شده که «یکی از مدرن‌ترین زیر دریایی‌های هوشمند و بدون سرنشین» ارتش آمریکا در بامداد روز سه‌شنبه به دام افتاده است.
-پیش از این گزارش‌هایی درباره مین‌روبی آب‌های تنگه هرمز توسط ارتش آمریکا با استفاده از تجهیزاتی مانند شناورهای زیر آبی بدون سرنشین منتشر شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78279)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 22:40:11
-
-<img src="https://cdn4.telesco.pe/file/a-a5DY3B6YSjyAeVhVTzw8rdpjvsj0i0LUGqcProo_G-3Kkacxj6Xo02LZU8j4zmc7XnZQR8vPC3uOX8dEmySDw8PurzSaD3CffxsmYHejjsnjzDHyi404v4k5z2vqU9LRe7zQ_ZOLcJGdn95jf0aauVSoYCTT0JWyF3tWpHw9_W-S7I3yNsPI6U1qsW05Nuxjw82DUO_QtifbiMH47lzceNvGqaTKKGDXCPIU7_Nx57zxtl6LAHu0Eo_7UDP4_Dwjgcq7yeVUZC0fUjhWaa8sfGaSOwyVif4fFMxkEtj4Bmlrgm9PssH4_n-v8cOBMxRULtx71QN7xiwHh94_qmdA.jpg" width="400"><br>
-
-نیروهای دولتی یمن روز سه‌شنبه ۱۷ شهریور خبر دادند یکی از فرماندهان ارشد حوثی‌ها را در جریان یک درگیری در استان تعز به اسارت گرفته‌اند.
-منابع نظامی، این فرماندۀ حوثی را ابوعلی الاجنی، رئیس سازمان اطلاعات و شناسایی انصارالله، معرفی کرده‌اند که در یک درگیری سنگین در تعز در جنوب غربی یمن به اسارت درآمده است.
-این چهرۀ مهم حوثی‌ها، که با وجود جایگاه نظامی‌اش در کادر رهبری حوثی‌ها جا ندارد، به همراه ۹ تن دیگر بازداشت شده است.
-درگیری‌های سنگین در تعز از پنجشنبۀ گذشته در جریان بوده و تلفات زیادی به جا گذاشته است.
-در همین حال مارکو روبیو وزیر خارجۀ آمریکا هم با اشاره به نقش نیابتی حوثی‌ها در قبال جمهوری اسلامی، گفت معتقد است که «دست ایران پشت بسیاری از حملات حوثی‌ها به عربستان سعودی مخفی است».
-وزیر خارجۀ آمریکا با تأکید بر روابط دفاعی کشورش با عربستان سعودی، گفت واشینگتن تحولات یمن را از نزدیک زیر نظر دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78278)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 20:13:22
-
-<img src="https://cdn4.telesco.pe/file/ZKVfB-wwZIu41M4Y5hR3bEGdL8-mkqXc6PM3qQN1Qh83FX9G5mSbj9EqkhfAUzM1TMTQoUMXgfPOUyyQgQiquffIugrjXnWYBEkd3d_5w6CuUJokA2aVdt5Ep-YGaeIbFJ9wNWPyh4f-vnytfgTLOWnnDwjU-Wg_mVDVxPS0O1Zot1_eXqgvHeFM57bgKaT6FP7VbAKn3aPFW9rGhhg3gHSO-p4Fbgle6yRxuTgXEP6q2qgzscMDSk0t7I6D-QPzhdjsMRSgsBzyXw2cqisfT2-d3BrGzuOLzhmd6zB8ieoz1DBwIQM_yX6aO6TWUnQUustZVhp4XwMW0GO3pBIYxA.jpg" width="400"><br>
-
-وزارت خزانه‌داری آمریکا، روز سه‌شنبه ۱۷ شهریور ۱۴۰۵، اعلام کرد در چارچوب «عملیات طرد اقتصادی»، ۳۶ شرکت و فرد مرتبط با بخش هوانوردی ایران را در فهرست تحریم‌های خود قرار داده است. این اقدام شامل ۲۷ شرکت هواپیمایی فعال در ایران و همچنین شماری از شرکت‌های واسطه، نمایندگان فروش و ارایه‌دهندگان خدمات باربری در کشورهای ثالث است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78277)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 18:38:06
-
-<img src="https://cdn1.telesco.pe/file/M6uziUzW5jqU22NKAFMO5pvWVWWhvNJkAk9OAdM87GKVvcv4MCK8lYhobNr2pn8lLiE-GwH-mcJ28ZyGcUwK3F96heVdgFoplGwG-YJ03rxnACb5Hl_sXHAsVNFaMp6zHc6HsF4EWJxvNImVive1VSPEQIUYZAXsQseit3TmamiAoep6BJKTQAcF67GY9mDPTxWvYJ8q7wlCVKc7KlnBaOBO71oNsERCw5riXMBW3GFbz95CdsMWiL-vNegQ8x2flwAgi2lo25XMVW9eKOW9fjoFclXxGxeWZLViMBaRsFRP8muf_m0cm23pEzJP3sbC4Hn2f_JDCcnYtkML2-WO6A.jpg" width="400"><br>
-
-سپاه پاسداران انقلاب اسلامی، روز سه‌شنبه ۱۷ شهریور اعلام کرد که یک زیردریایی بدون سرنشین متعلق به ارتش آمریکا را در محدوده آب‌های تنگه هرمز توقیف کرده است.
-سپاه پاسداران توقیف این زیردریایی را «غنیمت گرفتن» توصیف کرده و اعلام کرد که تا ساعاتی دیگر تصاویری از آن را منتشر خواهد کرد.
-این زیردریایی هوشمند حدود ۵۸۰ سانتی‌متر طول و نزدیک به سه تن وزن دارد و می‌تواند تا ۱۰ روز بدون نیاز به بازگشت به مرکز هدایت، عملیات خود را ادامه دهد.
-@
-VahidOOnLine
-روابط عمومی ارتش جمهوری اسلامی ایران، روز سه‌شنبه ۱۷ شهریور اعلام کرد که یک پهپاد MQ-1 در آسمان بندرعباس شناسایی شده و با شلیک سامانه پدافند هوایی ارتش، سرنگون شده است. این پهپاد تهاجمی از سوی ارتش آمریکا مورد استفاده قرار می‌گیرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78275)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 18:36:33
-
-<img src="https://cdn4.telesco.pe/file/XgwMjuANJ9yUzCs96q6eN17XzVtXO0jFvoX1eEQ7ngzwq3FncLUWpIKzVeN3R70PCWPQ1teOFSgHies7QGJBw1Uxp5ucljSbgT9zZYbH0XUIoDqZL0OwaIw4kFt9MQBU4-DYQzKDBkozK1ErhkkZ_7mNLoHbKuWHuQiBMDX_rWQSytQKIDZZdu5lnNuNxgK0k7jXk8KlhOSV6rsLqdhgJveLpSUO7JsVFGQ6kN_uyzOKpSwWMtFqD5Cq9awbvpWBtqT0C6_X2QQ7draoHwrXo5GCjgwJGbWuGvHtANK9_awDQR-d4_v2v5PHx4tt3-EYx0zdVd-XqRRRdZPJXhTU2Q.jpg" width="400"><br>
-
-عبدالرئوف اسحاقی، فرمانده حوزه مقاومت بسیج پارود در شهرستان راسک استان سیستان و بلوچستان، روز سه‌شنبه ۱۷ شهریور در جریان حمله افراد ناشناس کشته شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78274)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-08 16:08:25
-
-<img src="https://cdn1.telesco.pe/file/KOpGa5ul3cYV3OWvvUKJOupYgjJlkNzkHTmmFX7w3hkhMt4K8B8kSj879D67icY4S6yRkVjM9HoM70JN8KYMxg3_MvDhwqH76PD8X-XuIJ1PdA9dJbDbXV2UWEzDegSZ-h-jpJS8T0CKDoOspKwFi7u_rXix3JUCV7s5vbRLdBV7OjKcaDW27w4W9IkbmWE7RFEma_vOkDY_e_OD4yAPgGMBtoRmMOQ1YawGApMp7xzGt1v7hzxOMSOFx0ErrKvo1RdY6q7XsKzfKzVQovOfCAZkcHoPdOhRhrDUnJbr0CYS5LdGh1aBPyFKKYmiC4ZyypElnI_N-d4eC7pk8E196g.jpg" width="400"><br>
-
-عرفان میرزایی، خواننده رپ ۲۱ ساله و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در زندان دستگرد اصفهان جان باخته است.
-درباره چگونگی مرگ او دو روایت متفاوت منتشر شده؛ ایران‌وایر از اجرای حکم اعدام و ایندیپندنت فارسی از مرگ بر اثر شکنجه خبر داده است.
-بر اساس گزارش ایران‌وایر، میرزایی پس از شناسایی در ارتباط با اعتراضات بازداشت و با اتهام «محاربه» به اعدام محکوم شد.
-این رسانه می‌گوید حکم او روز یکشنبه ۱۵ شهریور بدون اطلاع قبلی خانواده اجرا شد و تلاش نزدیکانش برای جلوگیری از اعدام نیز نتیجه‌ای نداشت.
-ایران‌وایر همچنین به نقل از منابع خود گزارش داده است که خانواده میرزایی پیش‌تر برای خودداری از اطلاع‌رسانی درباره پرونده و حکم اعدام تهدید شده بودند.
-به گفته این منابع، آثار متعدد جراحت و کبودی نیز پس از مرگ بر بدن و صورت او مشاهده شده و پیکرش با محدودیت‌های امنیتی در روستای غرغن فریدن به خاک سپرده شده است.
-در مقابل، ایندیپندنت فارسی به نقل از نزدیکان میرزایی روایت متفاوتی از مرگ او ارایه کرده و نوشته است که این جوان در نتیجه شکنجه و ضرب‌وجرح شدید در دوران بازداشت جان باخته است.
-خانواده او گفته‌اند هنگام تحویل پیکر، شکستگی‌هایی در دست‌ها، پا و لگن مشاهده کرده‌اند که آن را ناشی از بدرفتاری در زندان می‌دانند.
-بر اساس این گزارش، میرزایی اواخر فروردین ۱۴۰۵ در یک ایست بازرسی در شاهین‌شهر بازداشت شد؛ ماموران پس از بازرسی تلفن همراه او و مشاهده ویدیوهایی مرتبط با حضورش در اعتراضات، وی را به زندان دستگرد منتقل کردند. نزدیکانش می‌گویند او در ماه‌های بازداشت برای گرفتن اعتراف اجباری تحت فشار و شکنجه قرار داشته است.
-دادبان تاکید می‌کند، تفاوت جدی میان دو روایت درباره علت مرگ عرفان میرزایی، ضرورت انجام تحقیقی مستقل، بی‌طرفانه و شفاف درباره مرگ او در بازداشت را دوچندان می‌کند. اصل ۳۸ قانون اساسی شکنجه برای گرفتن اقرار یا اطلاعات را ممنوع و اعتراف حاصل از اجبار را فاقد اعتبار می‌داند؛ ضمن آنکه هر مرگ مشکوک در زندان، به‌ویژه همراه با ادعای شکنجه و آثار جراحت، مستلزم بررسی موثر و پاسخگویی مسئولان است.
-dadban4
-دو منبع به ایران‌اینترنشنال گفتند دلیل جان‌باختن او، شکنجه شدید در زندان دستگرد اصفهان بوده است.
-اطلاعات رسیده حاکی است پیکر او هنگام خاکسپاری، آثار متعدد شکنجه داشته و دست و صورت و لگن‌اش به شدت متورم بوده است.
-بنا به اطلاعات رسیده، ماموران امنیتی به دلیل ترس از تجمع مردم، اجازه خاکسپاری عرفان میرزایی در اصفهان را ندادند و پیکر او روز دوشنبه ۱۶ شهریور در روستای غرغن شهرستان فریدن به خاک سپرده شد.
-زمان دقیق بازداشت عرفان میرزایی مشخص نیست اما منابع می‌گویند که او در ارتباط با اعتراض‌های دی‌ماه بازداشت شده بود.
-بنابر این اطلاعات، ماموران پس از بازداشت، ویدیویی را در تلفن همراه میرزایی پیدا کردند که درگیری میان معترضان و نیروهای حکومتی را نشان می‌داد و از آن به‌عنوان مدرکی علیه او در پرونده استفاده شده است.
-iranintl.com
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78268)
 
 ---
 
