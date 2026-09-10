@@ -3,8 +3,68 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-10 05:43:12 </h5>
+<h5> 🟢 Updated at: 2026-09-10 11:09:24 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-10 06:58:50
+
+<img src="https://cdn1.telesco.pe/file/XxtEJRKeSooxDJIcYGtFRXEqVWD8lQ_4N7dklwJfYveYJl5ZEgT3m0HUQ86knC4wN0VGgeOtVs5lNbkduVRFCWNG8WJxU8QHWrt8eO0Cc_FYVMX3kAn4qwFnvAFKGojuGsBt791UCOZmF9D_2eaWpy0312caXG8wPqV82vE_jMKFavdKYLewl-f9g7eIybnoUpV5LWMDMQG9FVSMRiDuwBfGQ9aCv5ISLOL-FkQWvEMnW0fMPP5cYpMdWYfKjyq8H7y3-KkNINW7O4Q_tOsxmES1IrJx72NeWBTEPt0DKruu1lib4Cixz0zJsf_ChltbiIM3up5Ij4Lik_DBnKQKxw.jpg" width="400"><br>
+
+ترامپ از مشاهده «تحرکاتی» در کوه کلنگ‌گزلا خبر داد و به جمهوری اسلامی ایران هشدار داد: «توصیه می‌کنم ایران زرنگ‌بازی درنیاورد، زیرا مجبور خواهیم شد بسیار سخت به آن حمله کنیم.»
+ترامپ در ادامه از حاضران پرسید آیا ایران باید سلاح هسته‌ای داشته باشد و پس از پاسخ منفی جمعیت گفت دولت‌های پیشین دهه‌ها تلاش کرده‌اند جمهوری اسلامی را از دستیابی به سلاح هسته‌ای منصرف کنند، اما به گفته او، مقام‌های جمهوری اسلامی ایران «زبان گفتگو را نمی‌فهمند.آن‌ها فقط یک چیز را می‌فهمند و اکنون به مقدار زیادی از همان نصیبشان می‌شود».
+@
+VahidOOnLine
+رییس‌جمهوری آمریکا، در گردهمایی جمهوری‌خواهان در دالاس گفت جنگ با جمهوری اسلامی مدت کوتاهی پس از انتخابات میان‌دوره‌ای سوم نوامبر پایان خواهد یافت و تهران خواهان توافق با دموکرات‌ها است.
+ترامپ برجام را «یکی از بدترین توافق‌ها» خواند و گفت جمهوری اسلامی در مسیر دستیابی به سلاح هسته‌ای قرار داشت.
+او افزود: «اگر من برجام را لغو نکرده بودم و اگر با بمب‌افکن‌های زیبای بی-۲ آنها را هدف قرار نداده بودیم، اکنون سلاح هسته‌ای داشتند.»
+ترامپ گفت در آن صورت مجبور بود با رهبر جمهوری اسلامی تماس بگیرد و بگوید: «جناب رهبر، حالتان چطور است قربان؟ کاری هست که بتوانیم برایتان انجام دهیم؟»
+ترامپ در ادامه تاکید کرد: «ما نمی‌توانیم اجازه دهیم ایران سلاح هسته‌ای داشته باشد. موضوع بسیار ساده است. نمی‌توانیم اجازه دهیم آنها سلاح هسته‌ای داشته باشند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78309)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 06:31:55
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/78308)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 06:16:17
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/78307)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 06:15:03
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/78306)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-10 00:26:50
@@ -277,7 +337,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-09 08:24:51
 
-<img src="https://cdn1.telesco.pe/file/kEpljqU20_xf7Hph9RtgB0kGSCqQnJmKv1g7CIukNCaAcMXw59H9cb82qy9pWM8XDEnNo-B8LEOnqwvcOwZKx1Cr5RPy8iKpKkHK91XnUYRdBqVc34cZPO-o573zSVVBlBBxNM2wAsSY-n_zQ8ul0yTooZSEQHg2OZO9ZmnnH2CTZYiXBcVsmsobMLPQvdv64e4xjYZFS-euJ0G4DL6uMd5BBWXqN63LZST3qCRJya3FszNkkQFFBcJ8X_KTEjSXxXN6YOSeRByzjsuMKW7zCC3wsZ8_JlZZTLJWGQmi7kcl2OialvMPhUZ6BFPmP545qWr06uDTtK2IAdjtGAQBDw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/RjyEpJyTd8pNFKxJ-KSqhU_OFvPuJzZNeMxYSMY_f1vi8PzOJDZxurk15i_-xG_cqI8Ohs_ja3osTSZXwtD-_g0CPk5XFCo8VZvZoKEHDOXlbzTfrxMSHbuSF6Xtiq-DBQPY3bQwe33HwYE6RdBdOh905VAds_o_mzq3vwbOlfPcaXx6NIItorD0kXimHpHLHle8Jc391B18rHV-KC5V9ytvT3ZxyHRUOsUrrPyUzNxs_1_naiL69Psh_aclh7BFZDqO_6F71UTimxVkmLz3yvsxcg-VehTqeyktOGRb6NENS7orWOic0ACX4Sb7sIMJo18XK-rjrY6nsJbTtuxG9A.jpg" width="400"><br>
 
 سپاه پاسداران: دو شناور و هشت نفتکش را هدف قرار دادیم
 سپاه پاسداران که در طول چند ساعت گذشته با انتشار چند اطلاعیه از حملات موشکی خود به مواضع آمریکا در اردن و بحرین خبر داده بود، در آخرین اطلاعیه مدعی شده است که در واکنش به حمله آمریکا به ۵ نفتکش ایران نیروی دریایی سپاه به «دو فروند شناور آمریکایی و هشت نفتکش» حمله کرده و «خسارت های زیادی» به آنها وارد کرده است.
@@ -290,114 +350,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78291)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 05:22:36
-
-
-
-فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار ویدیویی نوشت: نفتکش ریسکو روز سه‌شنبه، پس از آن‌که در واکنش به تلاش‌های سپاه پاسداران برای حمله به یک ناو جنگی نیروی دریایی آمریکا توسط نیروهای سنتکام منهدم شد، در خلیج عمان غرق شد.
-@
-VahidOOnLine
-M/T Riesco sinks in the Gulf of Oman, Sept. 8, after being destroyed by CENTCOM forces in response to attempted IRGC attacks on a U.S. Navy warship.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78290)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 04:32:27
-
-
-
-پیام‌های دریافتی:
-ساعت 4.19 دقیقه صبح بندرکنگان الان صدای انفجار اومد
-در و پنجره ها شدید لرزید
-سلام صدای انفجار نزدیکای بندر دیر
-صدای انفجار شدید.بندر دیر.
-ساعت ۴/۲۰ بامداد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78289)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 02:27:21
-
-<img src="https://cdn1.telesco.pe/file/uI3f1pDskdbuEqmTCilMTrR_33GTVlx2UHw7aYjlIenQUhX2g3UXj_tuNT-8hFxM3GFxmr7Puv8dJzg1qyghB2hRjMXmicoy9P1_SXPOXu2V104lwy1uCQSFokLQ_Z96vW8BacfHd1jJhKGaxYU75rRfqNnz2I9qxmrR2UULGw5cd8IRKCwaN3tLlt3sSh6GrrUx9SlD_y7Ykj_gbbsyTf4OIot6ihjn2-xxcpSh_KxuCPH75zYdxuivrF-Xm_LrEq71OSf19v_uywPieT2KzDyPcJ16WsHV1-zgraZG4eSOd5Xigu5iSOcBtSfVFV8IBBMfmh5L_Ks-sBnbe2H61g.jpg" width="400"><br>
-
-سپاه پاسداران در بیانیه‌ای خطاب به «مردم مبعوث شده ایران اسلامی» اعلام کرد که با رمز «حیدر کرار» به پایگاه الازرق اردن حمله کرده است.
-در این بیانیه آمده که به محل استقرار جنگنده‌ها حمله شده است.
-پیش‌تر اسکای‌نیوز از رهگیری موشک‌ها در آسمان اردن خبر داده بود.
-تلویزیون دولتی سوریه نیز گزارش داد که پدافند هوایی سوریه برخی موشک‌ها را که از ایران شلیک شده بودند بر فراز شهر مرزی اربد در اردن رهگیری کرده است.
-برخی رسانه‌ها در ایران از جمله همشهری نیز گفته‌اند که سپاه با «موشک‌های خوشه‌ای» به اردن حمله کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78288)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 02:19:32
-
-
-
-ترجمه ماشین
-خبرنگار:
-آقای وزیر، بخش زیادی از توجه افکار عمومی آمریکا معطوف به آخرین تحولات در ایران است. می‌توانید درباره حملات آمریکا به نفتکش‌های ایرانی صحبت کنید و توضیح دهید که این رفت‌وبرگشت اقدامات در ۲۴ ساعت گذشته چگونه بوده است؟
-مارکو روبیو:
-بله، این رفت‌وبرگشت کاملاً روشن است: ایران همچنان تلاش می‌کند کشتی‌های نیروی دریایی آمریکا را هدف قرار دهد و هر بار که این کار را انجام دهند یا تلاش کنند انجامش دهند، نفتکش از دست خواهند داد. فکر می‌کنم امروز هم دوباره شاهد این موضوع خواهید بود.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78287)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 01:53:12
-
-
-
-سنتکام: "
-آمریکا ۵ نفتکش سپاه پاسداران را پس از هدف قرار گرفتن یک ناو جنگی دیگر آمریکایی توسط ایران منهدم کرد"
-"U.S. Destroys 5 IRGC Tankers After Iran Targets Another American Warship"
-ترجمه ماشین:
-تمپا، فلوریدا —
-نیروهای فرماندهی مرکزی ایالات متحده (CENTCOM) روز ۸ سپتامبر پنج نفتکش حامل نفت خام ایران را منهدم کردند؛
-این اقدام پس از آن صورت گرفت که سپاه پاسداران انقلاب اسلامی (IRGC) طی دو روز گذشته، دو بار یک ناو جنگی نیروی دریایی آمریکا را با موشک‌های بالستیک هدف قرار داد.
-ناو جنگی آمریکا با موفقیت از حملات ایران اجتناب کرد و به گشت‌زنی در آب‌های منطقه ادامه داد. هیچ‌یک از نیروهای آمریکایی آسیب ندیدند.
-در پاسخ به تازه‌ترین حملات ناموفق ایران، سنتکام نفتکش‌های حامل نفت خام سپاه پاسداران
-M/T Kaviz، M/T Charminar، M/T Horizon 1 و M/T Riesco
-را در
-دریای عمان
-و همچنین نفتکش
-M/T Derya
-را در نزدیکی
-جزیره خارک
-منهدم کرد. نیروهای آمریکایی پیش از حمله به کشتی‌ها و از کار انداختن آن‌ها، به خدمه دستور دادند کشتی‌ها را ترک کنند.
-ایران از این نفتکش‌ها به‌عنوان بخشی از یک شبکه چندمیلیارددلاری پنهانی استفاده کرده که منابع مالی سپاه پاسداران و نیروهای نیابتی منطقه‌ای آن را تأمین می‌کند. ایران هیچ وسیله‌ای برای دفاع از این شناورها ندارد.
-در ۵ سپتامبر نیز نیروهای سنتکام سه نفتکش حامل نفت خام ایران را پس از آن منهدم کردند که سپاه پاسداران تلاش کرد به یک ناو هواپیمابر و یک ناوشکن موشک‌انداز هدایت‌شونده آمریکا حمله کند. تمامی تلاش‌های سپاه پاسداران برای حمله به ناوهای جنگی نیروی دریایی آمریکا ناکام مانده است.
-centcom
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78286)
 
 ---
 
