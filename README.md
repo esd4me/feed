@@ -3,8 +3,179 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-10 16:00:51 </h5>
+<h5> 🟢 Updated at: 2026-09-10 20:16:11 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-10 18:54:54
+
+<img src="https://cdn1.telesco.pe/file/Yqj4NIY9M7KVpQhlZBo97U3GSlAOtt3yVXatQV0ARn1A-VcH0jFKlyIpj-b0GLIqMKLylMbpISzOfwKd3T-QJooHTpLAXrg8sM87d1XhqtqKSfbmTlV9EqAXvW4gm8sQ56Z9kyNNxp8lHYFjCYPVAJRtym7Dm5uD8c5a1FgGS_eY1ow9FmYkRex3U0jKw5Cz1jTapvMZTBvbbwNDGgM31SkeJqcyZhzfqyp32MEm9YmO4FpByYIfW1tetVChKyWdXA6D3NKweMQ5o-5FYhg85LKgTrqBf7lF1xyFctwNCknwT-UCzlO2ulHUYkRztgYXoAueL9wdnUih0aW5_cCLvA.jpg" width="400"><br>
+
+رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، روز پنجشنبه ۱۹ شهریور در گفتگو با بلومبرگ اعلام کرد این سازمان بر اساس تصاویر ماهواره‌ای، شاهد تحرکات ساخت‌وساز در سایت بسیار مستحکم «کوه کلنگ‌گزلا» (Pickaxe Mountain) در جنوب مجتمع اصلی غنی‌سازی ایران بوده است.
+گروسی با اشاره به اینکه بازرسان آژانس هنوز موفق به بازرسی از داخل این تونل‌های عمیق نشده‌اند، گفت: «نشانه زنده از تحرکات در اطراف این سایت ساخت‌وساز وجود دارد، اما اطلاعات دقیقی از فعالیت‌های درون آن در دست نیست.» او یادآور شد که ایران پیش‌تر قصد خود را برای انتقال تجهیزات به زیر کوه جهت «مصون‌سازی در برابر حملات» اعلام کرده بود.
+این اظهارات در پی ارجاع پرونده هسته‌ای ایران به شورای امنیت سازمان ملل مطرح می‌شود. بر اساس گزارش‌ها، آژانس از ژوئن ۲۰۲۵ و پس از حملات نظامی آمریکا و اسرائیل به تاسیسات هسته‌ای ایران، امکان راستی‌آزمایی وضعیت ذخایر اورانیوم با غنای بالا را نداشته است.
+دونالد ترامپ، رئیس‌جمهوری آمریکا، بار دیگر با اشاره به این سایت زیرزمینی، نسبت به هرگونه اقدام ایران هشدار داد و در یک تجمع انتخاباتی گفت: «ما متوجه فعالیت‌های مختصری در کوه کلنگ شده‌ایم. به ایران توصیه می‌کنم دست از پا خطا نکند، چرا که مجبور خواهیم شد ضربه بسیار سختی به آن‌ها وارد کنیم.»
+از سوی دیگر، سی‌ان‌ان روز گذشته به نقل از منابع خود گزارش داد که ایالات متحده در حال توسعه سلاحی با نفوذ بیشتر با قابلیت تخریب اهدافی در زمین‌های سخت مانند کوه کلنگ‌گزلا است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78321)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 18:54:03
+
+<img src="https://cdn4.telesco.pe/file/cHZRTGiRj968UiuuLUAPohZGFehw-4r3-n6ii0vi6EC4Tx0pKuyyIxD-v8eW3oifWOilocCdQ3YyPnU0wh_fGGj7GgB9_HcKbkR6kTJGc1Alh50tVNBFI6iJE0kWd1hFyH-XT4-PHpUkEEOMCgSiwliwQ__cl4a6QEjE9jo4F6Y2YfCQCk41_swvfdiFJYiXhy7qsEDUOUrW7yRntmfbZm-RKpWP09Myb4rhyKhVOQ9xjAkTYW9fRlr5cG98nST1xKIUpuFj1fAeF95EtZ_ea9WM5QdUm0S4B0Md0vj9fxQftHbcsxfRB5Y0mrMchgGXwb_X8csZ5pVTdY5SS4YYNg.jpg" width="400"><br>
+
+یک ماه قبل ماموران امنیتی به منزل خانواده «کیاوش میرقاسمی» از کشته‌شدگان اعتراضات دی‌ماه۱۴۰۴ یورش برده و «سمانه عصاران» مادر او را بازداشت کردند.
+به‌‌دنبال تشدید فشارها بر خانواده میرقاسمی حالا صفحه اینستاگرامی مادر او از دسترس خارج و کنترل آن به اجبار به دست نهادهای امنیتی افتاده است.
+تمامی پست‌های پیشین این صفحه حذف شده و تنها یک پست به دستور مقامات قضایی در این صفحه قرار دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78320)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 18:53:49
+
+<img src="https://cdn4.telesco.pe/file/GgSQFBHj-yiMAXqpKuURQLmw_C7E_bJOe8etnXokkDo6I-bWAe-f6UQnbJbYrqoliynJJyDOtRikTr9gg89dVFZnit1Tl-LF6qVZCLAewsz_6KGPsteZbsnivbrhEfnONCQMKFhbMWpvZ0P3XG3Wca7damHUhvZzDpBqcNX8Xh_Ew-VIjrQzd22MiaZzXh2xG3X6ZjTosSz6-pq3AXIhoCgL7Nho9hdbdkssBQdHzAFN0Va2cCI7oYlKAVKQw1oTSFUVP1ZBNGCRH-UINXDFt_fyTF1nx-2al0TKdTdM7KbRuAdyI8CZLcYkdPt0PPVc7o4ttEMPCyrlKU-Z7MrijA.jpg" width="400"><br>
+
+🔸
+پلیس بریتانیا دو نفر را به ظن ارتکاب جرائم مرتبط با ایران و نقض قانون امنیت ملی بریتانیا بازداشت کرد.
+🔸
+این دو فرد در لندن پایتخت بریتانیا و در جریان تحقیقات مربوط به فعالیت‌های مرتبط با ایران بازداشت شده‌اند.
+🔸
+پلیس متروپولیتن لندن با صدور بیانیه‌ای تأکید کرد که این تحقیقات، با هیچ‌یک از حوادث ماه‌های اخیر که در اماکن و ساختمان‌های مربوط به یهودیان و جامعۀ ایرانیان مقیم بریتانیا رخ داده بود، ارتباطی ندارد.
+🔸
+هنوز جزئیات بیشتری از هویت افراد بازداشتی یا ماهیت اتهام‌های منسوب به آنها منتشر نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78319)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 17:06:22
+
+<img src="https://cdn1.telesco.pe/file/N6RowZi7F80x67_5_cnGlW988wHZfiMcSKeGSdEfoWIIDEmoZCq4Y7l7BtPLAtyDTLX_NbSV9UOxdgmsR6IZiiw7WigePJtTnOF1SedMSTlhOQdpAwnPHzoKkIPzELeaSaiz2iD0kxJYpHzzw-5exbhczR1laRtd9IuRiMYYc9pL1E2gKRXeP3nAG7s7T0FvT8AP7Y_IWcqIIvoV5VKZBWLc7Uf4CUksxhpkL7BxBEQ162jQBHg0jVvU5YLnrm1Wkr1VPo-nmUPKg95_Qa1-TJMSHUQk61xyvRREIyxujFIQjN-LuSoWfnVQ3i8nPY9iJDEXJPEPI-ZfqzbGotoVTw.jpg" width="400"><br>
+
+اکانتش در توییتر:
+MaryamAzimih
+مریم عظیمی، مهندس ایرانی اپل، که پیش‌تر از بازداشت و انتقال خود با چشم‌بند در خودروی نیروهای اطلاعاتی جمهوری اسلامی در مشهد و تصور مرگ قریب‌الوقوع نوشته بود، در مراسم جهانی رونمایی اپل، یکی از فناوری‌های جدید دوربین آیفون ۱۸ پرو و پرومکس را معرفی کرد.
+عظیمی در ویدیوی از پیش ضبط‌شده اپل به‌عنوان مهندس کیفیت تصویر معرفی شد.
+او در بخش مربوط به دوربین آیفون ۱۸ پرو، قابلیتی به نام «تصویر مرجع اپل» را ارائه کرد.
+اپل دوربین این مدل را پیشرفته‌ترین دوربین خود تا امروز توصیف کرده است.
+حضور عظیمی از دو جهت در میان ایرانیان مورد توجه قرار گرفت: نقش او در توسعه فناوری تصویربرداری در یکی از بزرگ‌ترین شرکت‌های جهان و مخالفت علنی‌اش با جمهوری اسلامی، از جمله روایت شخصی او از دوران بازداشت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78317)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 16:49:01
+
+<img src="https://cdn1.telesco.pe/file/t97QpOoqYn-0EbB-mLMY4R6sDHKvZu3FhKsIujf6ZmNvQH0DTUuzIJmnMF_o8NcNgz9CBvpd15DA3nPuANhYj9G-3F0rUp0YzYKxqR2bbJc4LXJ1gsIUwJ5BMpG4qJH-mH2WOnJ9ecmFgf6LG7hDi5J-KHkImt9iR5XTzhKLKYmUbLz36Uzbz2IXzECF16KZVVTRFItCPgjycxXAzWPKf7nsILY1GD6Modw5ty5vdeUDzVEdmLmkMn3IoKHBFzzxFXh3-rOE6kByk7kYnUNSux_PWhxU8OLFqEdfGcS6UzvXqg3vL_CxvN9myz27Jll8GEgUgYAr_RVdaSBMv-Dz2w.jpg" width="400"><br>
+
+quotes
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78315)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 16:27:13
+
+<img src="https://cdn1.telesco.pe/file/vkYj3WLZi_HBWssb73biAFWJ7zOp4Vx-gl5dxt8xcdVKIx1u43dlImSX1L9K-M0FBxBBXesqy6nHVXUEkUJvNlPOQZuGxUZb_l0P8roXQYVPDdThugd8MZ1d3GwFs9UAG4mOf0zG7I_1lgvc5fMYZSQAi_XK1JxyxCMqeqUIJAYy2vK06x3OE9ldCku-eRrPaInOsISUNm8Lxd0vMfPjLzPOuDHsooMvehRPc74h9oyqHarM17r8liiCbBLyuspOfYv1HxFprPGCv3AfpXK-DheebvOc94wZwkp_Ex4PrQsGipqH_Hd_wvO_kwoZWOp7h-80DlLNosAnYW36-qKxDQ.jpg" width="400"><br>
+
+روند افزایش روزانه قیمت ارز در بازار تهران روز پنجشنبه ۱۹ شهریور (۱۰ سپتامبر) ادامه یافت و بهای دلار به ۲۳۵ هزار و ۷۰۰ تومان رسید.
+dw_persian
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78314)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 16:19:34
+
+<img src="https://cdn4.telesco.pe/file/oBIW1psR2VAwcik-vWF7IV-lR3P0VIu9USFIQKxV4gXMT0s_UJPh_jwrwXk3yBSn0C889UXzwFHPTuSb4tjQVMhM90jyfysT5BtJZuRCOsYUzL5pY-hjBLgTkF2kT5LAjKx45iNYqEPqzYdKSkMouUCodEVYg_BpnDaqmX1delWLIk-aBdeJOeIcUpZi1HA6Kd812Wl_s9JP7e53Yt8ML1V8FtY_qaOdZ0Zx2ptYFZv-3lxa_0hopOleHZw9ImOXTEzNvLK_RfQ2NwAStW3AqlPkxLqphISvFfcP8tBj9I9E41Eh3wQj9ZPYDueSh2TpdjPX0Eeha2g_RFYZTAJs-Q.jpg" width="400"><br>
+
+در پی افزایش تنش‌ها در خاورمیانه، قیمت نفت شاخص برنت روز پنج‌شنبه از ۱۰۲ دلار عبور کرد که نسبت به روز گذشته حدود یک درصد و نسبت به ابتدای ماه حدود ۸ درصد رشد نشان می‌دهد.
+طبق برآورد اداره اطلاعات انرژی آمریکا، ماه گذشته تولید روزانه نفت ایران به خاطر اعمال مجدد محاصره دریایی آمریکا ۸۰۰ هزار بشکه نسبت به ماه ژوئیه افت کرده، اما هم‌زمان تشدید حملات جمهوری اسلامی به کشتی‌ها در تنگه هرمز و آغاز حملات حوثی‌ها در دریای سرخ و باب‌المندب به نفتکش‌های عربستان نیز باعث شده متوسط تولید روزانه نفت کشورهای عرب منطقه در ماه گذشته ۹۴۰ هزار بشکه نسبت به ماه ژوئیه کاهش یابد.
+مجموع تولید نفت ایران و کشورهای عرب منطقه در ماه گذشته ۶.۷ میلیون بشکه کمتر از دوران پیش از جنگ خاورمیانه بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78313)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 16:16:12
+
+<img src="https://cdn4.telesco.pe/file/lr5O1Gw4CVcL4zOxbuOZk7-wpoiAPrX4EJ3jzoMFUGhcykVZIProjwNeAw9vRxthpodCoPKyhNhzlW__dONCInI7idKPBVVWWG7LL2ZXCaKPIwuvimbItDD2XWSjPPj2otlcYn2PXzO3uL-veDobP53yAqaOhxw5alzB4NYEF0BpVrc30aCh12P43KLSkR02mbqgtzpi0cqFmxqCmgP-xPox99q-HFygTSJ5KmiogLdqbhB6yLTXIwwpg7FeV0tP5e65dm1xan44Xi_YssDcQ3fJs6A4g5alhnhZix0q56QefvhlEk6PRLSAdAZU8qxjDM9fpJ2EaDIDaWH5gp0z9g.jpg" width="400"><br>
+
+خبرگزاری رویترز به نقل از دو منبع ارشد ایرانی و سه فرد مطلع می‌گوید حکومت ایران با استفاده از سازوکاری شبیه تهاتر و با دور زدن تحریم‌ها، در حال وارد کردن میلیاردها دلار کالا از جمله تجهیزات نظامی از چین است.
+در این گزارش که روز پنجشنبه ۱۹ شهریور منتشر شد، منابعی که نام‌شان اعلام نشده گفته‌اند بر اساس این سازوکار تجاری مخفی، نفت ایران در ازای اعتبار برای واردات از چین در سال‌های اخیر، یک شریان حیاتی مالی برای تهران همزمان با افزایش فشارهای اقتصادی و نظامی ایالات متحده فراهم کرده است.
+آن‌ها گفته‌اند که این سازوکار همچنین به چین، بزرگ‌ترین واردکنندهٔ نفت خام جهان، کمک کرده است تا به نفت تخفیف‌دار ایران دسترسی داشته باشد.
+به نوشتهٔ رویترز و به نقل از منابع طرف گفت‌وگو با آن، ایران از این سازوکار برای خرید دارو، وسایل نقلیه و تجهیزات ارتباطی از چین نیز استفاده کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78312)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-10 16:15:02
+
+
+
+تخریب «کاروانسرای روس‌ها» در سبزوار:
+quotes
+خانه واجد ارزش تاریخی «تومانیان» معروف به «پادگان روس‌ها» در سبزوار روز چهارشنبه در روز روشن با لودر تخریب شد و اعتراض گسترده فعالان میراث فرهنگی را به همراه داشت.
+تصاویر منتشر شده در شبکه‌های اجتماعی نشان می‌دهد که یک دستگاه لودر روز چهارشنبه ۱۸ شهریور بخشی از یک بنای تاریخی معروف به «پادگان روس‌ها» در سبزوار را تخریب کرده است.
+«پادگان روس‌ها» یا خانه «تومانیان» در سبزوار با وجود آنکه در فهرست آثار ملی ثبت نشده بود اما از سوی میراث فرهنگی به عنوان یک بنای واجد ارزش تاریخی اعلام شده بود.
+معماری این بنا متعلق به دوره پهلوی اول بوده و در زمان اشغال ایران توسط روس‌ها، ارتش روسیه مدتی در این بنا مستقر شده و به همین دلیل به «پادگان روس‌ها» مشهور شده است.
+مجتبی کاویان، مدیرکل میراث فرهنگی و مدیر پایگاه بافت تاریخی سبزوار در گفت‌وگو با صدای میراث گفت: این اثر بدون هماهنگی و بدون مجوز میراث فرهنگی تخریب شده و اعلام جرم علیه تخریب کنندگان این اثر واجد ارزش تاریخی قطعی است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78311)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-10 06:58:50
@@ -150,7 +321,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-09 20:17:39
 
-<img src="https://cdn1.telesco.pe/file/AF1MW_zd1y_IacijIrNijclIcgAi3VFEo-3D-vxUJLNVGrWxDP3PjxOWehTaKp-RdArqdURVaHWaC3DPDS4TdCk4A1H30CBpdzuZK_514njRsTZQlDX2UwDy6RJ3Z4uzofYPQ87AXFmKvt4uByn2iFPGy1s2kfcQKBWqJVhewLxV3cWAbVkg7LLMCzNvW16wjF5PidCQ0WSGTfp5-DmR5eG-XCgAfXPSwBFA2UfJUlkqJtjjbP3Oo0KqHjIlLnN18vzFZTapead1EWF18H6LUy140XHYmyQhMbWQ-KmQ932TAA_UdZLZZCrti9R1U5pSUBL5V4l5oZqn-rcmdWWKsQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/m6q62NzEr8Il4L9CPBwzCaynzYAaRaCduH24Gl1ptsXRa-pr7TEON8gAgX2cJIpETz7-uvHzmqdrfImXJ36ICGtklRnCbXCgWxzxCVXnnX5dgZHgxuSvnaGIgAl5g3WhFJt9H9MigJGyuapJz5W89rcoIO9c_nwPTPOo7SqL4aGW2HAa9CC8Fz7iVLRryVdN2yLkiDX3nhhZAo3j6Qus6-KohIJNXqMi7KSnSUd1NoakaXwY05iv10vlCpDui8B_2WlNzUMr9WZVoA8uSl-IPYZGQDo81TRFDml7UU6a0DIuk6vSuDLCu2Ifp0Hj8MINGNkZvqb2JkVirUBGxTL62Q.jpg" width="400"><br>
 
 رویترز روز چهارشنبه ۱۸ شهریور به نقل از منابع دیپلماتیک گزارش داد که شورای حکام آژانس بین‌المللی انرژی اتمی با صدور قطعنامه‌ای، پرونده ایران را به دلیل نقض تعهدات منع اشاعه هسته‌ای، پس از ۲۰ سال به شورای امنیت سازمان ملل متحد ارجاع داده است.
 این قطعنامه جدید در پی قطعنامه پیشین شورای حکام در ۱۲ ژوئن سال گذشته صادر شد؛ فهرستی از موارد «پایبند نبودن» ایران به تعهداتش که درست یک روز پیش از آغاز حملات هوایی اسرائیل و متعاقبا ایالات متحده به تاسیسات هسته‌ای ایران تصویب شده بود.
@@ -161,195 +332,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78302)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 19:08:57
-
-<img src="https://cdn1.telesco.pe/file/bQdR-r8YOXWSR_OCj50nck3ECxyLssK-G9kBsguEGVf-BDHxkxKrTI7bEXhEwZnfvJlGxCCEjXG4eDRiK5wrge_6EyEAl7fqcNGYN22rN0N4ArJ6dDxzjn2uvDqDG8rddZyu03Auv_-woNfXBzBrVimDfzv2XXiL2Ot_s-Y4t-RfB--68ghJAYPToylgPtzKbyn6XBV89t1_mRa45YhZHDHdAt8_nztavGHSqWOnNpqhveOa6sBg3Pt9fxV3h2w86aToTC60y0QDo8xODJv05wXnmt3WnNIJyTksyQVhjZdC2nsoqUUlhG7v71wMSujNqi1hDM0swL-kYNceD8caMg.jpg" width="400"><br>
-
-عکس دریافتی با شرح: 'شناور آمریکایی در تنگه هرمز، سمت جزیره سلامه خصب عمان، چهارشنبه ۱۸ شهریور'
-Vahid
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78301)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 18:07:25
-
-
-
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با حضور در قله جبل‌الشیخ (حرمون) و اشاره به تسلط بر مناطق مرزی سوریه و لبنان، هدف اصلی کارزارهای نظامی جاری این کشور در منطقه را شکست و سرنگونی رژیم ایران عنوان کرد.
-نتانیاهو در پیامی ویدیویی، به حضور نیروهای نظامی اسرائیل در مناطق مرزی سوریه و لبنان اشاره کرد و گفت: ما اجازه نخواهیم داد هیچ گروه تروریستی در مرزهای ما مستقر شود. این یکی از دستاوردهای عظیم ماست، اما کار اصلی هنوز باقی مانده است.
-نخست‌وزیر اسرائیل با ابراز اطمینان از دستیابی به این هدف افزود: کار اصلی ما شکست دادن و تضعیف کامل رژیم ایران است. ما بسیار به این هدف نزدیک هستیم و می‌دانیم که کل این محور سرانجام سقوط خواهد کرد و ما این کار را انجام خواهیم داد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78300)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 16:36:00
-
-<img src="https://cdn1.telesco.pe/file/BozDaWZ5HF_4rC3O-7_Tj9drgBEq6djNvo7ykZEqtU1W5NPDzhqLIAGqk4KUmK0h3Yw5sCY2LrE-dwuBKWxtXVmt9Ye2EE_elvuACqtNPMqSGYEayzEtKxzeVBJvK2hXNcgiqZPzCN_rpI_3ujmB2BDJId9P2B86FZJJbw6eCfDTqSn8GIx4Uv5-qKHRtsvsj2-YEj-gLDp0qLDYchra6VrvH51KrJbjJaHR0lTlbPCliJq8ZRXT6alHiVrO5UfpC30pXMjilpJsAdgpaRHkRmuCwY9kc29jBLx5rvhGpWk8qIfcrSdD4U6_h1huc_1z2ECodlrbmYW1dQwAIAr7Eg.jpg" width="400"><br>
-
-سخنگوی سپاه پاسداران برای پایان وضعیت کنونی و بازگشایی تنگه هرمز از آمریکا خواست جنگ و تهدیدها را متوقف کند، اسرائیل از لبنان عقب‌نشینی کند، محاصره یمن پایان یابد، ۲۴ میلیارد دلار از دارایی‌های مسدودشده ایران آزاد شود و مداخله در برنامه‌های هسته‌ای و موشکی جمهوری اسلامی متوقف شود.
-حسین محبی، سخنگوی سپاه پاسداران، روز چهارشنبه ۱۸ شهریورماه گفت اگر آمریکا خواهان پایان وضعیت کنونی است، باید ضمن «توقف کامل جنگ» از تهدید دوباره دست بکشد.
-محبی در بخش دیگری از سخنانش تهدید کرد که در صورت ادامه حملات، پاسخ سپاه گسترده‌تر خواهد بود و گفت: «اگر دشمن دو یا سه هدف ما را بزند، ما با ۲۰ هدف پاسخ محکم می‌دهیم.» او همچنین گفت جنگ کنونی برای نخستین‌بار «آسیب‌های راهبردی» را مستقیما به آمریکا منتقل کرده است.
-این اظهارات در حالی مطرح شد که با تداوم محاصره دریایی ایران، صادرات نفت از طریق تنگه هرمز متوقف شده و فشار تحریم‌های مضاعف دولت ترامپ، باعث تورم کم‌سابقه در ایران و رسیدن قیمت دلار به ۲۳۳هزار تومان شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78299)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 16:21:38
-
-<img src="https://cdn4.telesco.pe/file/fNrs6A8DQWeGuse-pjCcnn3yu9XzAvBAeseJPe33p56Cq3avzvxVUzx_HV7rlDvKsl99QMd71yoORz5c9SIsv1qhd7-pjFwQIWePqy_mHhXyUDvykLgmibCTJv5iS1lFS3v93IH0uMtluRohl5URP8KzY77cALkZJbXtejxlE1dbzfapmyqQu8dWqN_a1B_Opf1FdpTMtbJtAIK-IFLwP0zQseOs8qUSGQeteWBsQkoosKkAolxMYzSIESF9VbjKGwNP9xz-B7tNg4HCDSvFVMxizltGqXeS2zOcW0O8K2JMlPJg0pdFJEUF2AP-Wqd9Ls0wKC0krhWe299djLcxGA.jpg" width="400"><br>
-
-قیمت ارزهای خارجی در بازار آزاد ایران روز چهارشنبه ۱۸ شهریور ۱۴۰۵ رکورد تازه‌ای ثبت کرد و نرخ دلار آمریکا از ۲۳۲ هزار تومان گذشت.
-برخی وب‌سایت‌های اعلام قیمت ارز نرخ دلار را در معاملات ظهر چهارشنبه تا ۲۳۵ هزار و ۵۰۰ تومان نیز گزارش کردند.
-هم‌زمان قیمت یورو از ۲۷۱ هزار تومان و پوند بریتانیا از ۳۱۵ هزار تومان فراتر رفت. این افزایش‌ها در حالی ادامه دارد که ریال طی دو هفته گذشته بیش از ۱۵ درصد ارزش خود را در برابر دلار از دست داده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78298)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 16:20:48
-
-<img src="https://cdn4.telesco.pe/file/h09n6J4775H0ZTH6kT-RGkMQ417JVEG91MiCijG0VdGLVGxtQBzy1hd1B81R0pjtiLae4lxzTNpO3CV_G6cRfxiYvMOZXY94sASw61rMeXyopBiDDtnOYCylOo04-I-ADnaN3nwAr2jQNEHdvV9_UB5wIFeNJQndQpaObDTxnvb5LqiV55OOemLEDUab3uNmXRUvzr2zNc59MeCKP1gFQpIDPhjRo7i0Ydmnnf0NgbcYgZKxb9Uo18UhMvTEhi3Kz1zDUPr8AjINH1nU0eflFV9KJ4GbOouKUm4kqOxAGdfijkj0_bYxfW-7WyCFtxu1dLl-_qO49X0WBPuqTqFFZQ.jpg" width="400"><br>
-
-قیمت نفت خام برنت برای نخستین بار از دوم مرداد به ۱۰۰ دلار در هر بشکه رسید و بار دیگر وارد محدوده سه‌رقمی شد.
-افزایش قیمت نفت و ارز در شرایطی رخ داده است که درگیری‌ها در خلیج فارس و منطقه ادامه دارد. شامگاه سه‌شنبه ۱۷ شهریور، آمریکا اعلام کرد پس از حملات موشکی ناموفق جمهوری اسلامی به دو ناو جنگی این کشور در خلیج فارس، پنج نفتکش مرتبط با سپاه پاسداران را منهدم کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78297)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 16:19:40
-
-<img src="https://cdn1.telesco.pe/file/hf1Wm8UMUmdLvKNbc27gzo6lBnGBLeGn8PPNebzdBj23XGTYLA92dvZkyt_7VhRSOXPZ-wrQ0qk7hg7aG9IUsdOjyOayD2-x-VhwmXooq6on26BgGRgpc8xNLe9FZsFfQXWE1K78fEjnu-Jc_0_9PSYaZ-FsCC3vF98IlTNt0d7BuRlDU3F04iYVDRDqgz1SgngSVHPAKan7T5t6cTELVT0Gmbofe-xmy20mTJZkNfsgwkz_pF4Uz6JPA3vnQoameFPQov7vlo0qirpbC-kFRw-3tGPtbbyGU-Q3cfo6wwmUUyFX-QbiyxMWRc9exrjuTeZoWn2ZWkT6MHcUZJX3IA.jpg" width="400"><br>
-
-سازمان تجارت دریایی بریتانیا (UKMTO) ظهر چهارشنبه ۱۸  شهریورماه از وقوع حادثه برای یک نفتکش در ۲۴ مایلی بندر راشد امارات متحده عربی خبر داد.
-براساس این گزارش، «کاپیتان یک نفتکش گزارش داده است کشتی‌ای را مشاهده کرده که در حالت لنگراندازی کج شده است، که احتمالا نشان‌دهنده ورود آب به داخل آن پس از حمله با یک پرتابه نامشخص است.»
-@
-VahidOOnLine
-مرکز عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در ۲۸ مایل دریایی جنوب شرقی بندر فاو عراق با یک پرتابه ناشناس هدف قرار گرفته است.
-بر اساس این گزارش، ناخدای نفتکش برخورد پرتابه با شناور را گزارش کرده است.
-خدمه نفتکش در سلامت هستند و تاکنون هیچ پیامد زیست‌محیطی ناشی از این حمله گزارش نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78295)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 16:16:52
-
-<img src="https://cdn1.telesco.pe/file/TWaB1pcxUfZ4R20eNDCDq4_bcycIzojtPrVuwdM38DZGysseOvdAX8sjEnV6cdaRzVVRaoAR2W_0-KaDa6PbT9WP0AkuGt-bnYEt_7DrIjz7rRK5-J9M7H0HWrx7LTKWw2kgDZshpibMfewCAG2H2vd4nRS_aQvsS1bVIbeqrlPrn60TbBuQgsShYJqr_3xFVYTBcFbPhs5MOL-WtzeXKhnou8LPItXpI1n2HRqIrUFHFCyfQjEeHXoyhifK8GE8yTdUrcppHVqlb2aHhIwR8K5WgGESoxa1jlsSh-LuK02TcUPVTdugI3alOXvLz-mYWV9Q1SpAZvgC7jPAtkRYLw.jpg" width="400"><br>
-
-ترجمه ماشین:
-🚫
-ادعا:
-نیروهای سپاه پاسداران انقلاب اسلامی ایران (IRGC) مدعی شده‌اند که دو ناوشکن نیروی دریایی آمریکا را که در خاورمیانه در حال عملیات بودند، هدف قرار داده‌اند.
-این ادعا کاملاً دروغ است.
-✅
-واقعیت:
-هیچ ناو جنگی نیروی دریایی آمریکا هدف قرار نگرفته است؛ تمام حملات مورد تلاش سپاه پاسداران شکست خورده‌اند.
-در همین حال، نیروهای آمریکایی تنها طی هفته گذشته موفق شده‌اند ۱۰ نفتکش ایرانی را منهدم کنند.
-این شناورها بخشی از یک شبکه سایه چندمیلیارددلاری بودند که منابع مالی سپاه پاسداران را تأمین می‌کند و ایران قادر به دفاع از آن‌ها نیست.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78294)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 16:11:54
-
-<img src="https://cdn1.telesco.pe/file/hl21fIhvSaYYKclLJfPsnxnVQqKiV1eCWpAszxh02W0TUpO9KNLBHZZl4g4SepwIgA0lu9rxH3EVJ9KdLzP5bNH5zmFaxqwwohpXqxbiOT5FssSlg5HXz7qffwgA4mwimVaFxk2ky9n5O1fHjbFC0IZYYIgzmwvSGeo86kxlsGFTpVDIn1eMrLvp5Gtu502-OTI_0hIODMn1da6PeA08qv2r323mOZZxAMZMEtM1wZQdmClLUt95eVWtbNOtuVctXG03QFhkY0ul-rFjan-Tf_nICyTHdYh9FM3knmXyk39slq1iSx1Lo3zbRUDEU1g8q9IKqT6ZGDgxhY6AY-ZilQ.jpg" width="400"><br>
-
-«ماموستا محمد نزهتی»، روحانی اهل سنت و امام جماعت منطقه چیانه در شهرستان پیرانشهر، در یک حمله مسلحانه کشته شد.
-سپاه پاسداران او را از روحانیون همکار با بسیج معرفی کرده و مسئولیت کشته‌شدن نزهتی را متوجه آنچه «گروهک‌های تجزیه‌طلب کردی» و «صهیونیستی-آمریکایی» خوانده، کرده است.
-براساس این بیانیه، نزهتی سابقه «همکاری طولانی» با «بسیج اساتید، طلاب و روحانیون» داشته است.
-سپاه همچنین فعالیت‌های او را در راستای حمایت از جمهوری اسلامی و آنچه «وحدت شیعه و سنی» خوانده، توصیف کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78293)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 16:09:10
-
-
-
-اشک‌های مادر یسنا (فروغ) اسکندری در سوگ دخترش
-یسنا اسکندری، وکیل دادگستری و نقاش، شامگاه ۱۸ دی‌ماه ۱۴۰۴ در منطقه آریاشهر تهران هدف شلیک نیروهای جمهوری اسلامی قرار گرفت و جان باخت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78292)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 08:24:51
-
-<img src="https://cdn1.telesco.pe/file/RjyEpJyTd8pNFKxJ-KSqhU_OFvPuJzZNeMxYSMY_f1vi8PzOJDZxurk15i_-xG_cqI8Ohs_ja3osTSZXwtD-_g0CPk5XFCo8VZvZoKEHDOXlbzTfrxMSHbuSF6Xtiq-DBQPY3bQwe33HwYE6RdBdOh905VAds_o_mzq3vwbOlfPcaXx6NIItorD0kXimHpHLHle8Jc391B18rHV-KC5V9ytvT3ZxyHRUOsUrrPyUzNxs_1_naiL69Psh_aclh7BFZDqO_6F71UTimxVkmLz3yvsxcg-VehTqeyktOGRb6NENS7orWOic0ACX4Sb7sIMJo18XK-rjrY6nsJbTtuxG9A.jpg" width="400"><br>
-
-سپاه پاسداران: دو شناور و هشت نفتکش را هدف قرار دادیم
-سپاه پاسداران که در طول چند ساعت گذشته با انتشار چند اطلاعیه از حملات موشکی خود به مواضع آمریکا در اردن و بحرین خبر داده بود، در آخرین اطلاعیه مدعی شده است که در واکنش به حمله آمریکا به ۵ نفتکش ایران نیروی دریایی سپاه به «دو فروند شناور آمریکایی و هشت نفتکش» حمله کرده و «خسارت های زیادی» به آنها وارد کرده است.
-در این اطلاعیه که بامداد چهارشنبه ۱۸ شهریور منتشر شده همچنین ادعا شده است که «۱۰ فروند کشتی متخلف که به گفته نیروی دریایی سپاه، قصد عبور از «منطقه ممنوعه و ناایمن تنگه هرمز» را داشتند حمله شده است.
-این گزارش‌ها هنوز از سوی منابع مستقل تایید نشده است.
-با این حال، سنتکام در اطلاعیه نیمه شب سه‌شنبه خود هدف قرار دادن ۵ نفتکش ایران را در واکنش به حمله به رزم‌ناوهای خود دانسته و گفته بود این ناوهای جنگی خسارت ندیده و در حال ادامه ماموریت‌های خود هستند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78291)
 
 ---
 
