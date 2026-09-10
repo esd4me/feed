@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-10 20:16:11 </h5>
+<h5> 🟢 Updated at: 2026-09-10 22:51:47 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-10 22:23:06
+
+
+
+نیروی دریایی سپاه پاسداران روز پنجشنبه ۱۹ شهریورماه تصاویری منتشر کرد که به گفته این نیرو، هدف قرار دادن یک شناور بدون‌سرنشین آمریکایی در ورودی تنگه هرمز را نشان می‌دهد. سپاه اعلام کرد این شناور با شماره بدنه ۵۸۳۸ و از نوع «سیل‌درون» بوده است.
+علی عظمایی، فرمانده نیروی دریایی سپاه پاسداران، گفت این شناور بدون‌سرنشین «جاسوسی» متعلق به ارتش آمریکا در تنگه هرمز مورد اصابت قرار گرفته است. او همچنین گفت: «تنگه هرمز مسدود و تحت اشراف اطلاعاتی و کنترل هوشمند ماست و هرگونه تحرک خصمانه مورد هدف قرار می‌گیرد.»
+نیروی دریایی سپاه در بیانیه‌ای اعلام کرد ارتش آمریکا طی روزهای گذشته شناورهای بدون‌سرنشین خود را به تنگه هرمز اعزام کرده است. مقام‌های آمریکایی تاکنون درباره این گزارش اظهارنظری نکرده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78322)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-10 18:54:54
@@ -49,13 +67,9 @@ VahidHeadline
 
 <img src="https://cdn4.telesco.pe/file/GgSQFBHj-yiMAXqpKuURQLmw_C7E_bJOe8etnXokkDo6I-bWAe-f6UQnbJbYrqoliynJJyDOtRikTr9gg89dVFZnit1Tl-LF6qVZCLAewsz_6KGPsteZbsnivbrhEfnONCQMKFhbMWpvZ0P3XG3Wca7damHUhvZzDpBqcNX8Xh_Ew-VIjrQzd22MiaZzXh2xG3X6ZjTosSz6-pq3AXIhoCgL7Nho9hdbdkssBQdHzAFN0Va2cCI7oYlKAVKQw1oTSFUVP1ZBNGCRH-UINXDFt_fyTF1nx-2al0TKdTdM7KbRuAdyI8CZLcYkdPt0PPVc7o4ttEMPCyrlKU-Z7MrijA.jpg" width="400"><br>
 
-🔸
 پلیس بریتانیا دو نفر را به ظن ارتکاب جرائم مرتبط با ایران و نقض قانون امنیت ملی بریتانیا بازداشت کرد.
-🔸
 این دو فرد در لندن پایتخت بریتانیا و در جریان تحقیقات مربوط به فعالیت‌های مرتبط با ایران بازداشت شده‌اند.
-🔸
 پلیس متروپولیتن لندن با صدور بیانیه‌ای تأکید کرد که این تحقیقات، با هیچ‌یک از حوادث ماه‌های اخیر که در اماکن و ساختمان‌های مربوط به یهودیان و جامعۀ ایرانیان مقیم بریتانیا رخ داده بود، ارتباطی ندارد.
-🔸
 هنوز جزئیات بیشتری از هویت افراد بازداشتی یا ماهیت اتهام‌های منسوب به آنها منتشر نشده است.
 @
 VahidHeadline
@@ -314,24 +328,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78303)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-09 20:17:39
-
-<img src="https://cdn1.telesco.pe/file/m6q62NzEr8Il4L9CPBwzCaynzYAaRaCduH24Gl1ptsXRa-pr7TEON8gAgX2cJIpETz7-uvHzmqdrfImXJ36ICGtklRnCbXCgWxzxCVXnnX5dgZHgxuSvnaGIgAl5g3WhFJt9H9MigJGyuapJz5W89rcoIO9c_nwPTPOo7SqL4aGW2HAa9CC8Fz7iVLRryVdN2yLkiDX3nhhZAo3j6Qus6-KohIJNXqMi7KSnSUd1NoakaXwY05iv10vlCpDui8B_2WlNzUMr9WZVoA8uSl-IPYZGQDo81TRFDml7UU6a0DIuk6vSuDLCu2Ifp0Hj8MINGNkZvqb2JkVirUBGxTL62Q.jpg" width="400"><br>
-
-رویترز روز چهارشنبه ۱۸ شهریور به نقل از منابع دیپلماتیک گزارش داد که شورای حکام آژانس بین‌المللی انرژی اتمی با صدور قطعنامه‌ای، پرونده ایران را به دلیل نقض تعهدات منع اشاعه هسته‌ای، پس از ۲۰ سال به شورای امنیت سازمان ملل متحد ارجاع داده است.
-این قطعنامه جدید در پی قطعنامه پیشین شورای حکام در ۱۲ ژوئن سال گذشته صادر شد؛ فهرستی از موارد «پایبند نبودن» ایران به تعهداتش که درست یک روز پیش از آغاز حملات هوایی اسرائیل و متعاقبا ایالات متحده به تاسیسات هسته‌ای ایران تصویب شده بود.
-بر اساس قوانین و الزامات حقوقی، گزارش رسمی این نقض تعهدات به شورای امنیت سازمان ملل، مستلزم تصویب دومین قطعنامه از سوی این شورای ۳۵ عضوی بود که اکنون به سرانجام رسیده است. این اقدام می‌تواند مسیر را برای بازگشت تحریم‌های بین‌المللی و افزایش فشارهای دیپلماتیک بر تهران هموارتر کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78302)
 
 ---
 
