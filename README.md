@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-10 11:09:24 </h5>
+<h5> 🟢 Updated at: 2026-09-10 16:00:51 </h5>
 </div>
 
 
@@ -301,7 +301,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-09-09 16:11:54
 
-<img src="https://cdn1.telesco.pe/file/SBoN0Ip7wMU1NSpCKlVEhUEjDuVhuZRy-0uS8iGHGevsYglw_aYjuTtXtOLGIuJb2YtVrV-95Qgqdigf75_4b9jyoX1qCdajAszJ37jIjX4x4PhbRCl7FqOPpGJtDz4fSZD4ErzPtuR6Y77hRrj-mLtYgXVauD8Lc4Wt04yn7OEld32SanVldAYEkuUyqTa45jutpYdnflbz0U2t2YBQJI1kPEQ3iHBM10lyCuytm6gbDJaoak1u-pxTGvPc66hCxQRaQTQPF6d2gpkkg6W8AeNkT2_vmUs1NTQuPik10j7U0YIZ0zc6iSH6kQd__dYsIa3JE-aRBzNPFiUUve3jUQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/hl21fIhvSaYYKclLJfPsnxnVQqKiV1eCWpAszxh02W0TUpO9KNLBHZZl4g4SepwIgA0lu9rxH3EVJ9KdLzP5bNH5zmFaxqwwohpXqxbiOT5FssSlg5HXz7qffwgA4mwimVaFxk2ky9n5O1fHjbFC0IZYYIgzmwvSGeo86kxlsGFTpVDIn1eMrLvp5Gtu502-OTI_0hIODMn1da6PeA08qv2r323mOZZxAMZMEtM1wZQdmClLUt95eVWtbNOtuVctXG03QFhkY0ul-rFjan-Tf_nICyTHdYh9FM3knmXyk39slq1iSx1Lo3zbRUDEU1g8q9IKqT6ZGDgxhY6AY-ZilQ.jpg" width="400"><br>
 
 «ماموستا محمد نزهتی»، روحانی اهل سنت و امام جماعت منطقه چیانه در شهرستان پیرانشهر، در یک حمله مسلحانه کشته شد.
 سپاه پاسداران او را از روحانیون همکار با بسیج معرفی کرده و مسئولیت کشته‌شدن نزهتی را متوجه آنچه «گروهک‌های تجزیه‌طلب کردی» و «صهیونیستی-آمریکایی» خوانده، کرده است.
