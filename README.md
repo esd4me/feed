@@ -3,8 +3,117 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-11 13:46:13 </h5>
+<h5> 🟢 Updated at: 2026-09-11 18:13:17 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-11 17:21:02
+
+
+
+خواهر امیرمحمد شاه‌کرمی با انتشار ویدیویی در صفحه اینستاگرام خود، از حضورش در مکانی خبر داد که به گفته او، برادرش آخرین لحظات حضورش در آنجا را پیش از بازداشت سپری کرده بود.
+او در توضیح این ویدیو نوشت: «۱۸ شهریور، برگشتم به همان خیابانی که آخرین نگاه‌های برادرم آنجا بود؛ تا صدایش را از همان‌جا دوباره بلند کنم. این‌بار ایستادم برای صدا زدن نام امیرمحمد شاه‌کرمی.»
+در این ویدیو، خواهر امیرمحمد با در دست داشتن تصویری از برادرش، نام او را در همان خیابان فریاد می‌زند.
+امیرمحمد شاه‌کرمی، نوجوان ۱۴ ساله، در ۱۸ دی‌ماه در شهر قدس بازداشت شد و پیکر او حدود ۶۰ روز بعد به خانواده‌اش تحویل داده شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78334)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-11 17:19:02
+
+
+
+نتانیاهو: تسلیحات کشف‌شده در علی الطاهر را ایران برای حزب‌الله فرستاده بود
+نخست‌وزیر اسرائیل روز جمعه ۲۰ شهریور اعلام کرد نیروهای اسرائیلی در جریان عملیات در ارتفاعات علی الطاهر در جنوب لبنان، مقادیر زیادی تسلیحات را از زیرساخت‌های حزب‌الله خارج کرده‌اند.
+بنیامین نتانیاهو با اشاره به تسلیحات کشف‌شده گفت: «مقادیر بسیار زیادی سلاح از آنجا خارج کردیم که سال‌ها توسط ایران سازماندهی و تامین مالی شده بود.»
+ارتش اسرائیل پیشتر با انتشار ویدیویی اعلام کرده بود، نیروهایش پس از به دست گرفتن کنترل عملیاتی ارتفاعات علی الطاهر، زیرساخت‌های زیرزمینی و روی زمین را منهدم کرده‌اند. به گفته ارتش اسرائیل، این شبکه بیش از دو کیلومتر امتداد داشت و شامل ده‌ها راکت، موشک و پهپاد و همچنین موشک‌های ضدتانک، مین و مواد منفجره بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78333)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-11 17:16:31
+
+<img src="https://cdn4.telesco.pe/file/Pn9H4ubD1TO3j6CbCLE-nOITquv7rdN_hcCFZEhUibDhBHxc_aQ03Qt_XqflUUSrJUUR-1h9e1k0gpsEYKv6Q5apw3J8971iMYNG3KAQF-i-Z1aVpm9U-gyanVmKffF8gi76thbOIchE5oNd6KcFRWxCQBY2EfJ9S8tIspIx06JsOIBZH9b2W5W8xLY068b2s-MWmo9e8PkCZcv1GeEq-B3Tzn7xZ-MyM-CM2gt4ZmgMFiZPNN5D_m5YlmbSTHmarlok7ilE_snhyfycdJGFEybsvNjD7Kid0jF1Qyi7nYwCjT2SksbG-5qzBuiuhc0sANtz78L5bAQco_3-ZRt7VA.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، گزارش‌های رسانه‌ای مبنی بر آسیب‌دیدن هواپیماهای آمریکایی در جریان حملات موشکی اخیر جمهوری اسلامی به اردن را رد کرد.
+او پنج‌شنبه ۱۹ شهریور در مصاحبه با شبکه نیوزنیشن، در پاسخ به سؤالی درباره این گزارش‌ها، گفت: «نه. هیچ خسارتی وارد نشده است. هیچ اتفاقی نیفتاده است.»
+کمی قبل از اظهارات ترامپ، شبکه خبری فاکس به نقل از یک مقام ارشد آمریکایی نوشته بود که موشک‌های بالستیک ایرانی در جریان حمله گسترده موشکی سه‌شنبه، ۱۷ شهریور، به هواپیماهای جنگی آمریکا مستقر در اردن، آسیب زده‌اند.
+فاکس‌نیوز این خبر را به گزارش جنیفر گریفین، خبرنگار ارشد خود منتشر کرده است.
+شبکۀ خبری سی‌بی‌اِس برای نخستین‌بار این موضوع را منتشر کرده بود که در جریان حملات موشکی ایران به پایگاه نیروهای آمریکایی در اردن، «چندین هواپیمای نظامی ایالات متحده، آسیب دیده‌اند».
+ارتش اردن روز چهارشنبه ۱۸ شهریورماه با صدور بیانیه‌ای گفته بود که ایران در طول شب قبل، ۲۰ موشک بالستیک به سمت اردن شلیک کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78332)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-11 17:16:00
+
+<img src="https://cdn1.telesco.pe/file/JTcnDBmYT2HWOWmyhg6moGZJUlzC0CQqw9hc1vRUeLK29JGKWDc20PYyD0Ron69Zjwz_2OwFwcgVxliUnJ-gqKZ8gKkwVuH7g_b9qP5JPgaczavqEWYW1KhsE2vlQXQBZrBaZbNMeMaoABThqVwLKdPzdXrXqvluuYHb8gYRquCSz0SLoMYFRKnZv2DdnwKIQRHw3P05Lic9Ix3sE-HNVd1DqbvmUsHyTSm8bs-l5_EsSZ3_ai6yQp5O24CS_xBjFxN-O3M2frAMkXXM6Jia7ljTXsOgccQvmMtEafjZGafGwzDaoGHVpVCjZI2AOdrMsxT2_T8HO9aFm78Nnw8V5A.jpg" width="400"><br>
+
+شرکت آمریکایی «آنتروپیک» اعلام کرده است که سه عملیات مرتبط با حکومت ایران را شناسایی و مختل کرده که در آن‌ها از مدل هوش مصنوعی «کلود» برای تولید و انتشار محتوای تبلیغاتی، طراحی سامانه‌های نظارتی و تهیه اطلاعات مرتبط با هدف‌گیری نیروهای دریایی آمریکا استفاده شده است.
+این شرکت روز پنج‌شنبه ۱۹ شهریور در تازه‌ترین گزارش اطلاعات تهدید خود، مجموعه‌ای از موارد سوءاستفاده از مدل‌های هوش مصنوعی آنتروپیک را تشریح کرد. این گزارش فعالیت‌های شناسایی‌شده و مختل‌شده از دسامبر ۲۰۲۵ تا اوت ۲۰۲۶ را پوشش می‌دهد و علاوه بر ایران، مواردی مرتبط با چین، روسیه و کشورهای دیگر را نیز بررسی کرده است.
+بر اساس این گزارش، آنتروپیک حساب‌هایی را شناسایی و مسدود کرده که از «کلود» برای اجرای عملیات نفوذ با هدف تاثیرگذاری بر افکار عمومی استفاده می‌کردند. سه مورد از این عملیات به عوامل همسو با حکومت جمهوری اسلامی مرتبط بوده است.
+آنتروپیک می‌گوید هر یک از این عملیات از سوی فرد یا مجموعه‌ای انجام شده که یا مستقیما در یک نهاد تبلیغاتی حکومتی ایران فعالیت داشته یا به نمایندگی از چنین نهادی کار می‌کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78331)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-11 17:15:27
+
+<img src="https://cdn4.telesco.pe/file/QhkSvwpA9geD05MKDg8C9k7z93bPt22VCJbYpZ_8Wr2bDi0cSWJMvZekcLkmU472gFs-ZhFOgPFOhunJc1__Ekx30RYAVrtlXXY9SXAYInbtXNX1wbQnzy16DcaJiuq4GdNAHXK-BZCyjLqEWQVp4aSOu1UcUJjudyq2xwQGZ4_ZrKNi-EWpjnfBLbhcrSXSg0gf798MNtISLss2puRyRJAbMKxCdnLmaB02LCwtxjTmq7CEi3oCrvzwnBw9Pa8GMrI0pXgD2zbyfFrpGQhEtgRnV08GOVTNGynXnR2HnzeVQmdgoet1Zerm-hougzrY2YwQUYNt9QpvJir460Ed4Q.jpg" width="400"><br>
+
+شرکت مخابرات ایران با انتشار اطلاعیه‌ای در سامانه کدال (سامانه اطلاعات جامع شرکت‌های پذیرفته شده فهرست شده در بورس) اعلام کرد هزینه مکالمه تلفن ثابت با تلفن‌های همراه از روز جمعه ۲۰ شهریور ۴۵ درصد افزایش می‌یابد.
+به گزارش انتخاب، بر اساس این اطلاعیه، سقف هزینه مکالمه تلفن ثابت با تلفن همراه از ۶۲۵ ریال به ۹۰۶ ریال افزایش یافته است. این تغییر در پی ابلاغ دستورالعمل افزایش هزینه تماس تلفن ثابت با تلفن همراه، تماس میان تلفن‌های همراه و پیامک اعمال می‌شود.
+شرکت مخابرات ایران اعلام کرد میزان دقیق تاثیر این افزایش بر درآمد شرکت هنوز مشخص نیست و آثار مالی آن در گزارش‌های دوره‌ای منتشر خواهد شد.
+این شرکت در خردادماه نیز هزینه ثابت ماهانه تلفن ثابت را ۴۵ درصد افزایش داده بود. هزینه ثابت ماهانه مشترکان خانگی در تهران و کلان‌شهرها به ۴۳ هزار و ۵۰۰ تومان، در مراکز استان‌ها به ۳۲ هزار و ۶۲۵ تومان و در سایر شهرها به ۲۴ هزار و ۶۵۰ تومان رسیده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78330)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-11 17:14:00
+
+
+
+علی زارعی دوز دره سی، زندانی سیاسی و یکی از آسیب دیدگان اعتراضات سراسری ۱۴۰۱ که در زندان قزلحصار کرج محبوس است، توسط شعبه ۲۳ دادگاه انقلاب تهران از بابت اتهام «افساد فی‌الارض» به اعدام محکوم شده است.  بر اساس اطلاعات دریافتی هرانا، حکم اعدام آقای زارعی دوزدره‌سی…
+
+[View Post](https://t.me/VahidOnline/78329)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-11 07:58:06
@@ -190,7 +299,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-10 17:06:22
 
-<img src="https://cdn1.telesco.pe/file/N6RowZi7F80x67_5_cnGlW988wHZfiMcSKeGSdEfoWIIDEmoZCq4Y7l7BtPLAtyDTLX_NbSV9UOxdgmsR6IZiiw7WigePJtTnOF1SedMSTlhOQdpAwnPHzoKkIPzELeaSaiz2iD0kxJYpHzzw-5exbhczR1laRtd9IuRiMYYc9pL1E2gKRXeP3nAG7s7T0FvT8AP7Y_IWcqIIvoV5VKZBWLc7Uf4CUksxhpkL7BxBEQ162jQBHg0jVvU5YLnrm1Wkr1VPo-nmUPKg95_Qa1-TJMSHUQk61xyvRREIyxujFIQjN-LuSoWfnVQ3i8nPY9iJDEXJPEPI-ZfqzbGotoVTw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/CJKnOlBwSheZMT-HbQXyyW2weXFIlB58h5iIfB-W9CjwRaV7J8miqAot3GTxlmmCZ-AUVQvsh3i2IfaEWcr1C9IDjvIceailNxouPlR9uRQNDyjk2j8tfTD0REjBW9gm5hiu8TTh1kAwcOK4xK_2ywiSJ8e-YVD-N_9kj6MQw3-ywnkTNxv1aFQwUHbb-Rr_7AP5XNk2qJl1PXykB25BwFy9GCA0Tp8Kj31FsRLQd14-_g-f4As-tTDpzonZZO9MRQTv-P9lm9ei-okErLLviQfriqHZAgLISMBSvTTqIWUyZGCG0Zyyv4rscM6B5mZ-Y7gvIougAmIg6vvJJw7fHw.jpg" width="400"><br>
 
 اکانتش در توییتر:
 MaryamAzimih
@@ -219,104 +328,6 @@ quotes
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78315)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 16:27:13
-
-<img src="https://cdn1.telesco.pe/file/vkYj3WLZi_HBWssb73biAFWJ7zOp4Vx-gl5dxt8xcdVKIx1u43dlImSX1L9K-M0FBxBBXesqy6nHVXUEkUJvNlPOQZuGxUZb_l0P8roXQYVPDdThugd8MZ1d3GwFs9UAG4mOf0zG7I_1lgvc5fMYZSQAi_XK1JxyxCMqeqUIJAYy2vK06x3OE9ldCku-eRrPaInOsISUNm8Lxd0vMfPjLzPOuDHsooMvehRPc74h9oyqHarM17r8liiCbBLyuspOfYv1HxFprPGCv3AfpXK-DheebvOc94wZwkp_Ex4PrQsGipqH_Hd_wvO_kwoZWOp7h-80DlLNosAnYW36-qKxDQ.jpg" width="400"><br>
-
-روند افزایش روزانه قیمت ارز در بازار تهران روز پنجشنبه ۱۹ شهریور (۱۰ سپتامبر) ادامه یافت و بهای دلار به ۲۳۵ هزار و ۷۰۰ تومان رسید.
-dw_persian
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78314)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 16:19:34
-
-<img src="https://cdn4.telesco.pe/file/oBIW1psR2VAwcik-vWF7IV-lR3P0VIu9USFIQKxV4gXMT0s_UJPh_jwrwXk3yBSn0C889UXzwFHPTuSb4tjQVMhM90jyfysT5BtJZuRCOsYUzL5pY-hjBLgTkF2kT5LAjKx45iNYqEPqzYdKSkMouUCodEVYg_BpnDaqmX1delWLIk-aBdeJOeIcUpZi1HA6Kd812Wl_s9JP7e53Yt8ML1V8FtY_qaOdZ0Zx2ptYFZv-3lxa_0hopOleHZw9ImOXTEzNvLK_RfQ2NwAStW3AqlPkxLqphISvFfcP8tBj9I9E41Eh3wQj9ZPYDueSh2TpdjPX0Eeha2g_RFYZTAJs-Q.jpg" width="400"><br>
-
-در پی افزایش تنش‌ها در خاورمیانه، قیمت نفت شاخص برنت روز پنج‌شنبه از ۱۰۲ دلار عبور کرد که نسبت به روز گذشته حدود یک درصد و نسبت به ابتدای ماه حدود ۸ درصد رشد نشان می‌دهد.
-طبق برآورد اداره اطلاعات انرژی آمریکا، ماه گذشته تولید روزانه نفت ایران به خاطر اعمال مجدد محاصره دریایی آمریکا ۸۰۰ هزار بشکه نسبت به ماه ژوئیه افت کرده، اما هم‌زمان تشدید حملات جمهوری اسلامی به کشتی‌ها در تنگه هرمز و آغاز حملات حوثی‌ها در دریای سرخ و باب‌المندب به نفتکش‌های عربستان نیز باعث شده متوسط تولید روزانه نفت کشورهای عرب منطقه در ماه گذشته ۹۴۰ هزار بشکه نسبت به ماه ژوئیه کاهش یابد.
-مجموع تولید نفت ایران و کشورهای عرب منطقه در ماه گذشته ۶.۷ میلیون بشکه کمتر از دوران پیش از جنگ خاورمیانه بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78313)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 16:16:12
-
-<img src="https://cdn4.telesco.pe/file/lr5O1Gw4CVcL4zOxbuOZk7-wpoiAPrX4EJ3jzoMFUGhcykVZIProjwNeAw9vRxthpodCoPKyhNhzlW__dONCInI7idKPBVVWWG7LL2ZXCaKPIwuvimbItDD2XWSjPPj2otlcYn2PXzO3uL-veDobP53yAqaOhxw5alzB4NYEF0BpVrc30aCh12P43KLSkR02mbqgtzpi0cqFmxqCmgP-xPox99q-HFygTSJ5KmiogLdqbhB6yLTXIwwpg7FeV0tP5e65dm1xan44Xi_YssDcQ3fJs6A4g5alhnhZix0q56QefvhlEk6PRLSAdAZU8qxjDM9fpJ2EaDIDaWH5gp0z9g.jpg" width="400"><br>
-
-خبرگزاری رویترز به نقل از دو منبع ارشد ایرانی و سه فرد مطلع می‌گوید حکومت ایران با استفاده از سازوکاری شبیه تهاتر و با دور زدن تحریم‌ها، در حال وارد کردن میلیاردها دلار کالا از جمله تجهیزات نظامی از چین است.
-در این گزارش که روز پنجشنبه ۱۹ شهریور منتشر شد، منابعی که نام‌شان اعلام نشده گفته‌اند بر اساس این سازوکار تجاری مخفی، نفت ایران در ازای اعتبار برای واردات از چین در سال‌های اخیر، یک شریان حیاتی مالی برای تهران همزمان با افزایش فشارهای اقتصادی و نظامی ایالات متحده فراهم کرده است.
-آن‌ها گفته‌اند که این سازوکار همچنین به چین، بزرگ‌ترین واردکنندهٔ نفت خام جهان، کمک کرده است تا به نفت تخفیف‌دار ایران دسترسی داشته باشد.
-به نوشتهٔ رویترز و به نقل از منابع طرف گفت‌وگو با آن، ایران از این سازوکار برای خرید دارو، وسایل نقلیه و تجهیزات ارتباطی از چین نیز استفاده کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78312)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 16:15:02
-
-
-
-تخریب «کاروانسرای روس‌ها» در سبزوار:
-quotes
-خانه واجد ارزش تاریخی «تومانیان» معروف به «پادگان روس‌ها» در سبزوار روز چهارشنبه در روز روشن با لودر تخریب شد و اعتراض گسترده فعالان میراث فرهنگی را به همراه داشت.
-تصاویر منتشر شده در شبکه‌های اجتماعی نشان می‌دهد که یک دستگاه لودر روز چهارشنبه ۱۸ شهریور بخشی از یک بنای تاریخی معروف به «پادگان روس‌ها» در سبزوار را تخریب کرده است.
-«پادگان روس‌ها» یا خانه «تومانیان» در سبزوار با وجود آنکه در فهرست آثار ملی ثبت نشده بود اما از سوی میراث فرهنگی به عنوان یک بنای واجد ارزش تاریخی اعلام شده بود.
-معماری این بنا متعلق به دوره پهلوی اول بوده و در زمان اشغال ایران توسط روس‌ها، ارتش روسیه مدتی در این بنا مستقر شده و به همین دلیل به «پادگان روس‌ها» مشهور شده است.
-مجتبی کاویان، مدیرکل میراث فرهنگی و مدیر پایگاه بافت تاریخی سبزوار در گفت‌وگو با صدای میراث گفت: این اثر بدون هماهنگی و بدون مجوز میراث فرهنگی تخریب شده و اعلام جرم علیه تخریب کنندگان این اثر واجد ارزش تاریخی قطعی است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78311)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 06:58:50
-
-<img src="https://cdn1.telesco.pe/file/BU0MxJAIff9ltf0enJb6RZRlBHYpBao2h1E8k_wV2bws2OlGlBP2osPgm-0eVxJ4GwsJA-hwGwxFFEQfOApAdHkdYhkBB7231FdF6AjJdKKvCbVcORdjm5-oA2bHOIEWLTkT_CIWMCw_AIUxqccrgoPg-zRjyXUiU7BG346ke9wmuYYbEG-4HWef5MMC593Xt2e8p43-JYpqSSJBLTd8Y9fan4Hc09mGeQ2hA_pi4_4yKnvBZnMLY2PyjR-a7kY72y_BYsc_pZigoxvE4q1FJFsm-v1QOSESisFb-UJMDYgsMHS6kYjMIPmMRCKt4RU0NViCRUAhe7KrYgKGMb3xuA.jpg" width="400"><br>
-
-ترامپ از مشاهده «تحرکاتی» در کوه کلنگ‌گزلا خبر داد و به جمهوری اسلامی ایران هشدار داد: «توصیه می‌کنم ایران زرنگ‌بازی درنیاورد، زیرا مجبور خواهیم شد بسیار سخت به آن حمله کنیم.»
-ترامپ در ادامه از حاضران پرسید آیا ایران باید سلاح هسته‌ای داشته باشد و پس از پاسخ منفی جمعیت گفت دولت‌های پیشین دهه‌ها تلاش کرده‌اند جمهوری اسلامی را از دستیابی به سلاح هسته‌ای منصرف کنند، اما به گفته او، مقام‌های جمهوری اسلامی ایران «زبان گفتگو را نمی‌فهمند.آن‌ها فقط یک چیز را می‌فهمند و اکنون به مقدار زیادی از همان نصیبشان می‌شود».
-@
-VahidOOnLine
-رییس‌جمهوری آمریکا، در گردهمایی جمهوری‌خواهان در دالاس گفت جنگ با جمهوری اسلامی مدت کوتاهی پس از انتخابات میان‌دوره‌ای سوم نوامبر پایان خواهد یافت و تهران خواهان توافق با دموکرات‌ها است.
-ترامپ برجام را «یکی از بدترین توافق‌ها» خواند و گفت جمهوری اسلامی در مسیر دستیابی به سلاح هسته‌ای قرار داشت.
-او افزود: «اگر من برجام را لغو نکرده بودم و اگر با بمب‌افکن‌های زیبای بی-۲ آنها را هدف قرار نداده بودیم، اکنون سلاح هسته‌ای داشتند.»
-ترامپ گفت در آن صورت مجبور بود با رهبر جمهوری اسلامی تماس بگیرد و بگوید: «جناب رهبر، حالتان چطور است قربان؟ کاری هست که بتوانیم برایتان انجام دهیم؟»
-ترامپ در ادامه تاکید کرد: «ما نمی‌توانیم اجازه دهیم ایران سلاح هسته‌ای داشته باشد. موضوع بسیار ساده است. نمی‌توانیم اجازه دهیم آنها سلاح هسته‌ای داشته باشند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78309)
 
 ---
 
