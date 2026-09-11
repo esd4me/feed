@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-11 18:13:17 </h5>
+<h5> 🟢 Updated at: 2026-09-11 21:31:00 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-11 20:46:03
+
+<img src="https://cdn4.telesco.pe/file/j0Dy9vHwjHjqrgB5I5Aw4k70CN5FIP3U2CGqvxjNHTIMO5F48QCpC_yV6q1uTD9whjPjhYLcu6kT_qB0QEaypWrlwaJKhw6eFipItc9ROatVdk7fnW1hcnStn-a8LUZWA60QRdxxwkSYkvavaZd300mv-lljZ4V3lKEcAy0tGkcv8syyXGTQPRQ8Mr_jKWR5t2lwHsIK4gqnr0f3WukM8UGzX5z4khBzOBxap_hD4kAjxlXhbelqZqSa4mxmLhdr5BcU1BEapINflRmMG6b3y_mec5JqyBrJ0CE8p-i81CmekXijaToe1m0mQ3UQ4lYMyxtFUrMzOVVc-oQS_Ut8NQ.jpg" width="400"><br>
+
+رییس دولت چهاردهم جمهوری اسلامی که به هند سفر کرده است روز جمعه ۲۰شهریور۱۴۰۵ در پایتخت این کشور اذعان کرد که فشارهای آمریکا بر ایران به مرحله «دشوار و خطرناک» رسیده است.
+او با اشاره به این که جهان امروز در یکی از «پیچیده‌ترین مقاطع خود» است، خواستار «همکاری عملیاتی» کشورهای عضو بریکس شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78335)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-11 17:21:02
@@ -242,7 +259,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-10 18:54:54
 
-<img src="https://cdn1.telesco.pe/file/Yqj4NIY9M7KVpQhlZBo97U3GSlAOtt3yVXatQV0ARn1A-VcH0jFKlyIpj-b0GLIqMKLylMbpISzOfwKd3T-QJooHTpLAXrg8sM87d1XhqtqKSfbmTlV9EqAXvW4gm8sQ56Z9kyNNxp8lHYFjCYPVAJRtym7Dm5uD8c5a1FgGS_eY1ow9FmYkRex3U0jKw5Cz1jTapvMZTBvbbwNDGgM31SkeJqcyZhzfqyp32MEm9YmO4FpByYIfW1tetVChKyWdXA6D3NKweMQ5o-5FYhg85LKgTrqBf7lF1xyFctwNCknwT-UCzlO2ulHUYkRztgYXoAueL9wdnUih0aW5_cCLvA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/P8a-uAt3eEbkju7QgQnCQbLSlqamxe-6A5ClLhUYoOOtfOJN3ppwyH52v2qWW1I6ZDF0rrl-UoMcEbH2OkL4x_7p3Axsa08O6nbH95YpVmxcjJCu4lkzBS5FC13mQJTqQIykAeGUxiTRn7sZAPJOnXYuW_Y4uTVgD8lubM3p4diAY5PLM8s3VqV17mEvx30mHeKnU0MVjAQyHk8R4T6Mtk03uA2CPjMGyCAa6Efbip8s3c7URLDRQdvPItmgDXwbGT9-0RlPirOJKyMFudU2SkE7i6N7TXnw9JkxFMJD9f5hgW1gypEIgI0YhiM7e1wEQuuXdV0Irik2UpfAsM6eFA.jpg" width="400"><br>
 
 رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، روز پنجشنبه ۱۹ شهریور در گفتگو با بلومبرگ اعلام کرد این سازمان بر اساس تصاویر ماهواره‌ای، شاهد تحرکات ساخت‌وساز در سایت بسیار مستحکم «کوه کلنگ‌گزلا» (Pickaxe Mountain) در جنوب مجتمع اصلی غنی‌سازی ایران بوده است.
 گروسی با اشاره به اینکه بازرسان آژانس هنوز موفق به بازرسی از داخل این تونل‌های عمیق نشده‌اند، گفت: «نشانه زنده از تحرکات در اطراف این سایت ساخت‌وساز وجود دارد، اما اطلاعات دقیقی از فعالیت‌های درون آن در دست نیست.» او یادآور شد که ایران پیش‌تر قصد خود را برای انتقال تجهیزات به زیر کوه جهت «مصون‌سازی در برابر حملات» اعلام کرده بود.
@@ -262,7 +279,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-10 18:54:03
 
-<img src="https://cdn4.telesco.pe/file/cHZRTGiRj968UiuuLUAPohZGFehw-4r3-n6ii0vi6EC4Tx0pKuyyIxD-v8eW3oifWOilocCdQ3YyPnU0wh_fGGj7GgB9_HcKbkR6kTJGc1Alh50tVNBFI6iJE0kWd1hFyH-XT4-PHpUkEEOMCgSiwliwQ__cl4a6QEjE9jo4F6Y2YfCQCk41_swvfdiFJYiXhy7qsEDUOUrW7yRntmfbZm-RKpWP09Myb4rhyKhVOQ9xjAkTYW9fRlr5cG98nST1xKIUpuFj1fAeF95EtZ_ea9WM5QdUm0S4B0Md0vj9fxQftHbcsxfRB5Y0mrMchgGXwb_X8csZ5pVTdY5SS4YYNg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NgOrK69ABUkqk0AsdRMvU-OCnqaLti7iOOzncSQYheuDJzY00YPSZnjBgmswZLYEyMjfy-u8Fa-GPVPROx0e_UDVaKl_bOHH9Oq20XwCaUcg6LwQFBuZkWuZZNu1YUU5DSWQCVbpL_hlzWxw3yhhHvs7BDKbrxsLjDYGySivE_ZyljJHb7pgOtvDc0vuLa2oO-Rdh4OjmUYNe-ECrI6U6umZzfwI8xECShilL41JAEJ9GsnshLyFTNWuKTYhcnN_iZUxdhojgiKl5cfb7VOien-IiEhNQ8Ujc-6QadjkMVRx4DIklA9sdMTvjo8Ry9hCAOFdVmM8GOLEMOuKGtvCbA.jpg" width="400"><br>
 
 یک ماه قبل ماموران امنیتی به منزل خانواده «کیاوش میرقاسمی» از کشته‌شدگان اعتراضات دی‌ماه۱۴۰۴ یورش برده و «سمانه عصاران» مادر او را بازداشت کردند.
 به‌‌دنبال تشدید فشارها بر خانواده میرقاسمی حالا صفحه اینستاگرامی مادر او از دسترس خارج و کنترل آن به اجبار به دست نهادهای امنیتی افتاده است.
@@ -280,7 +297,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-10 18:53:49
 
-<img src="https://cdn4.telesco.pe/file/GgSQFBHj-yiMAXqpKuURQLmw_C7E_bJOe8etnXokkDo6I-bWAe-f6UQnbJbYrqoliynJJyDOtRikTr9gg89dVFZnit1Tl-LF6qVZCLAewsz_6KGPsteZbsnivbrhEfnONCQMKFhbMWpvZ0P3XG3Wca7damHUhvZzDpBqcNX8Xh_Ew-VIjrQzd22MiaZzXh2xG3X6ZjTosSz6-pq3AXIhoCgL7Nho9hdbdkssBQdHzAFN0Va2cCI7oYlKAVKQw1oTSFUVP1ZBNGCRH-UINXDFt_fyTF1nx-2al0TKdTdM7KbRuAdyI8CZLcYkdPt0PPVc7o4ttEMPCyrlKU-Z7MrijA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/KgbcdeOvFTOVMB58BInOz512TmY8qvrtMgemjPtgUj3BbSlePRgR5KGzq-4ZDgtlIWv_uuwXVV3wky-nnfy375-i15iPZkWveslWADCtSkjR2JsMtmikLhK9DCitvtR9vInpTtIRB7iOTgrd33B0QI3Kv1_ouwWoJMM7QKFLEDrZNbNHRv9udvG2TP3sXZtATr6VCikjD_I63onX7fvVJV_7aoHTOxq7tQtbP8Pj1IMdpeAe-288C4aoTw9yduRemfXqdet-nD6WaHZfdYuIHEpEQmdql5N76ehgNOYaPMb1npQjy1WA4uMyQNA00WOrP_H09OTWOZI1l81WdPIVuw.jpg" width="400"><br>
 
 پلیس بریتانیا دو نفر را به ظن ارتکاب جرائم مرتبط با ایران و نقض قانون امنیت ملی بریتانیا بازداشت کرد.
 این دو فرد در لندن پایتخت بریتانیا و در جریان تحقیقات مربوط به فعالیت‌های مرتبط با ایران بازداشت شده‌اند.
