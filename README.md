@@ -3,8 +3,20 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-11 21:31:00 </h5>
+<h5> 🟢 Updated at: 2026-09-12 00:56:56 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-11 22:42:10
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/78336)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-11 20:46:03
@@ -221,7 +233,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-11 01:04:52
 
-<img src="https://cdn1.telesco.pe/file/fJHg0lclPfDvK46aANJJZMsK9FX72rTE4eSMfi0V94AhSHSpw7PgV6ITuFBj6wi3y2vwYHwbhUjVFSZ9rQXVAGRLQoBb4V402xlfQunewfyijHgxeEW-PENLGcFLEDLMtxlqan82e54uFHWEFUMeCd1oNWNOfWQ4fVIDL4Tu9wb-qXusZmis7VSVNZbBILw_GG9fE7bviQAVhA9meB4qUqooZHHhjtowvY3ZhjMT-jvhbYDt0OgsTzvlHBdr_Q9IizYeJ5X88XVJEWjfeI7-E3FXHcIFSbzILVYD1PQws6bwxlcrIC9UxVmwawl4KPdftgv73V9wuLhBkZEY32NCSQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/T2GFA7ikX3tB-MNHJBXZF3nVsX6o9b6oBEeI2HxwWQSvfbmbtleYVCZDw5n4cgq7CgVKQ-wJlul6Ubgj_30E7SBxz8iGfysjrQc1r0cib7nBX7Xtav_Vx7FlW39v0NZrdvs3T5mA6WZrgkpubKYls7FinC_UpRC-FozEO5I97NpWCA8DHHCxxo0Foa7DQ5ZJHZk7lMOzPIIRARufFEIWCp_WbrMVJ09LcklYRdZ4fcQ29iA5S32zvFfc0F4Gqg4L2XTpUSpwAINGfAlDTkT9IM37UumaH6hMeFZjUp2JWMxpDLRUDbN0CDO-sx3EdeaKCdoLsAP9ZHXBvMLnQvwsZQ.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا، یوکی‌ام‌تی‌او، عصر پنج‌شنبه به وقت واشنگتن از برخورد چند «پرتابه» به دو شناور در نزدیکی سواحل عمان خبر داد.
 بر اساس این گزارش، این برخوردها در فاصله چهار مایل دریایی غرب شهر خصب، در استان مسندم عمان، روی داده است.
@@ -331,20 +343,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78317)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 16:49:01
-
-<img src="https://cdn1.telesco.pe/file/rzbU16b-VKWvbqiPw3o7r_cmck_ytohtMxn1jMlG81fJ_832MELamQtMzuzc-iGzLPnbXradmtQlyCBvPqRuGGUp3JXfCICo0-zqOCSdumI2JGIjJCV8943SGp5MVTBRO8zPqFk_o6kNfyBR7HLmO-Zq1acNHA_zy-Vr1v6VKuO-bl2xi0Yt0SGuqh45ZbkJL31WgMuLDGURaBXLx3RjjaSAewMT0Iqvze1UXE_tV-Z9RZa6cT_RKk7hvO23zwZjmcXBzeaprqg79dfwDmJmZxHoiRXmCdVyP_jA8dOuO5EL_yeA36YYDp-zRj8p1iwqIEV2EWFjxwI-uxaR0YbPVQ.jpg" width="400"><br>
-
-quotes
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78315)
 
 ---
 
