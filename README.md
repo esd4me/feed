@@ -3,8 +3,54 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-11 04:11:33 </h5>
+<h5> 🟢 Updated at: 2026-09-11 08:56:22 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-11 07:58:06
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/78328)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-11 07:52:20
+
+<img src="https://cdn4.telesco.pe/file/jpk_zkyWzXgSkRkanphJn8sTu6Cks2CNQpOisoVd9IUUhIyekdz9Gwd3qyWi-NjDssgJlKEbI_7s07J0KHidjWgki28Z8OG-PRtQ-o-XkJC3dQ-QvRNg1EfXxQgl4xmqK3A_OBN378fZvey580uv8n7MV0LIhmNiwA5gFMPmRCFTt9dN-uSXGb4jNWCL7gEgAcYu7nIZ63VTNoIVGRDuYSnF7cmK91ZJDYtZ5lM0NF3e5-vVQh1j0ACqnae1vYMYtS6ypKFFHtmOVbY9GYBTf-nng7tAoqx_iJl4uw8nrkMYUqgua2gPd8Hi8TTd4s59cLdQlk8kbf0GGq_3b95t8g.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا در دومین شب گردهمایی انتخاباتی میان‌دوره‌ای جمهوری‌خواهان که در دالاس در حال برگزاری است، بار دیگر، تنگه هرمز را «تنگه ترامپ» خواند و گفت «ما تنگه ترامپ را کنترل می‌کنیم». رئیس‌جمهوری آمریکا بار دیگر تاکید کرد که هرگز نمی‌توانیم به ایران اجازه دهیم سلاح هسته ای داشته باشد و نخواهد داشت. او گفت که ایران در حال عقب‌نشینی از همه جا است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78327)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-11 07:52:04
+
+<img src="https://cdn4.telesco.pe/file/BQYSekrP-bCVTQzsrc9Xuejy1oIdmx9bLOcjeX4qDSgVW8GwYs7lNAlvHd5VQP-a1FnQaG3sBwsdkWp0SADBGGPzD9mmTYXPbav-JAqfR48OTGs50rmaV196dwyJzX-fcCXh8m9lnx7UPBsPWgIcGY04AQzSFFpQib8P3meYE367JYVuR-1qDPYi_a-aVLzzxUgYieis4WNK9t8VtZeaLC7UxNL9M4peVP4POq0GEFsF9wW-nOMeb2AyzDofSwGj_pLGSjRk_8LgLZoc2M8lWKfZ8Kcw7x6eTMhJKGW7T8uNk-9Nb4HkbcMjJn_6AgveU5Ux2vtyQhSDLudVD2TCbg.jpg" width="400"><br>
+
+هانگ کائو، سرپرست وزارت نیروی دریایی آمریکا، به اپک تایمز گفت نیروهای جمهوری اسلامی خسارت گسترده‌ای به پایگاه پشتیبانی نیروی دریایی آمریکا در بحرین، محل استقرار ناوگان پنجم این کشور، وارد کرده‌اند.
+کائو در توضیح استقرار اخیر ناو هواپیمابر یواس‌اس آبراهام لینکلن و الزامات لجستیکی عملیات طولانی‌مدت گفت خسارت واردشده به پایگاه بحرین بر امکان پشتیبانی از این ناو تاثیر گذاشته است.
+او گفت: «خدمه این ناو جایی برای پهلو گرفتن نداشتند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78326)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-11 03:05:25
@@ -166,7 +212,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-10 16:49:01
 
-<img src="https://cdn1.telesco.pe/file/t97QpOoqYn-0EbB-mLMY4R6sDHKvZu3FhKsIujf6ZmNvQH0DTUuzIJmnMF_o8NcNgz9CBvpd15DA3nPuANhYj9G-3F0rUp0YzYKxqR2bbJc4LXJ1gsIUwJ5BMpG4qJH-mH2WOnJ9ecmFgf6LG7hDi5J-KHkImt9iR5XTzhKLKYmUbLz36Uzbz2IXzECF16KZVVTRFItCPgjycxXAzWPKf7nsILY1GD6Modw5ty5vdeUDzVEdmLmkMn3IoKHBFzzxFXh3-rOE6kByk7kYnUNSux_PWhxU8OLFqEdfGcS6UzvXqg3vL_CxvN9myz27Jll8GEgUgYAr_RVdaSBMv-Dz2w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rzbU16b-VKWvbqiPw3o7r_cmck_ytohtMxn1jMlG81fJ_832MELamQtMzuzc-iGzLPnbXradmtQlyCBvPqRuGGUp3JXfCICo0-zqOCSdumI2JGIjJCV8943SGp5MVTBRO8zPqFk_o6kNfyBR7HLmO-Zq1acNHA_zy-Vr1v6VKuO-bl2xi0Yt0SGuqh45ZbkJL31WgMuLDGURaBXLx3RjjaSAewMT0Iqvze1UXE_tV-Z9RZa6cT_RKk7hvO23zwZjmcXBzeaprqg79dfwDmJmZxHoiRXmCdVyP_jA8dOuO5EL_yeA36YYDp-zRj8p1iwqIEV2EWFjxwI-uxaR0YbPVQ.jpg" width="400"><br>
 
 quotes
 📡
@@ -254,7 +300,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-10 06:58:50
 
-<img src="https://cdn1.telesco.pe/file/XxtEJRKeSooxDJIcYGtFRXEqVWD8lQ_4N7dklwJfYveYJl5ZEgT3m0HUQ86knC4wN0VGgeOtVs5lNbkduVRFCWNG8WJxU8QHWrt8eO0Cc_FYVMX3kAn4qwFnvAFKGojuGsBt791UCOZmF9D_2eaWpy0312caXG8wPqV82vE_jMKFavdKYLewl-f9g7eIybnoUpV5LWMDMQG9FVSMRiDuwBfGQ9aCv5ISLOL-FkQWvEMnW0fMPP5cYpMdWYfKjyq8H7y3-KkNINW7O4Q_tOsxmES1IrJx72NeWBTEPt0DKruu1lib4Cixz0zJsf_ChltbiIM3up5Ij4Lik_DBnKQKxw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/BU0MxJAIff9ltf0enJb6RZRlBHYpBao2h1E8k_wV2bws2OlGlBP2osPgm-0eVxJ4GwsJA-hwGwxFFEQfOApAdHkdYhkBB7231FdF6AjJdKKvCbVcORdjm5-oA2bHOIEWLTkT_CIWMCw_AIUxqccrgoPg-zRjyXUiU7BG346ke9wmuYYbEG-4HWef5MMC593Xt2e8p43-JYpqSSJBLTd8Y9fan4Hc09mGeQ2hA_pi4_4yKnvBZnMLY2PyjR-a7kY72y_BYsc_pZigoxvE4q1FJFsm-v1QOSESisFb-UJMDYgsMHS6kYjMIPmMRCKt4RU0NViCRUAhe7KrYgKGMb3xuA.jpg" width="400"><br>
 
 ترامپ از مشاهده «تحرکاتی» در کوه کلنگ‌گزلا خبر داد و به جمهوری اسلامی ایران هشدار داد: «توصیه می‌کنم ایران زرنگ‌بازی درنیاورد، زیرا مجبور خواهیم شد بسیار سخت به آن حمله کنیم.»
 ترامپ در ادامه از حاضران پرسید آیا ایران باید سلاح هسته‌ای داشته باشد و پس از پاسخ منفی جمعیت گفت دولت‌های پیشین دهه‌ها تلاش کرده‌اند جمهوری اسلامی را از دستیابی به سلاح هسته‌ای منصرف کنند، اما به گفته او، مقام‌های جمهوری اسلامی ایران «زبان گفتگو را نمی‌فهمند.آن‌ها فقط یک چیز را می‌فهمند و اکنون به مقدار زیادی از همان نصیبشان می‌شود».
@@ -271,42 +317,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78309)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 06:31:55
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/78308)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 06:16:17
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/78307)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 06:15:03
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/78306)
 
 ---
 
