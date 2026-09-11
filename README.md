@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-12 00:56:56 </h5>
+<h5> 🟢 Updated at: 2026-09-12 03:12:05 </h5>
 </div>
 
 
@@ -193,7 +193,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-11 03:05:25
 
-<img src="https://cdn4.telesco.pe/file/vNznPNBSmByhSflIhI77BiHrAanxj-FsxLYQjoUZApBhhp4RfMW7tsZOY0XNegDcydUeZ2dvsply7752dAK5P2H4DkrGxVgHzNkhUVz99_r6Y-IO5u1Whiv0_3dIyOrLxSHtYNM0Fr6pyG2nYh-63ozSfD8KOq7g0BGNkaOW3bawF9mjtAfWF16uAqawAyFUwF7tgakPKiAGwctXdOC3UrbaZgYEiGuKxmF2LhKCKOAchLOy-3mzg760vSrsoMYIZTLl2lNP2Mdcmdo7PCUgacyJVoBhirusi5cxPj4nHYGpPmct3xTc9DXD6dvhOgRdmGZseuX2K79dQBXx0Bvrxw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/cvIrBICMqyM3J49MySDDoPGaEf8aEEHhmnJ39OM_8e83DsQ3h529NlOz_R5WVm5SEB7Guuj035_I8yvv272kILkg85qUo0wYCUF2Lg47WkvPWl29dtDGjFGMwDD-RSCR5q1pgdoPvyMaRSgSSiGt4v0RaB4asKiw6xf4MkFqLw7CwNgjXimShPPScKkCUX1I2q7DUJEydOTkq346XEK2DFb-I-RIU50V4e0ADZe6jTURhRvcZWkm7y7mc0c2RfPmNhd_GpZmXf7jJ14cvh5Io76IZnFTDG1lINUSI48IJGhQzmX-YgqQHq3zd7VKEp-aNxs7l4eYoMPUKwqHggUFQg.jpg" width="400"><br>
 
 قیمت نفت پنج‌شنبه ۱۹ شهریور هم‌زمان با تشدید درگیری‌ها در منطقه و افزایش نگرانی‌ها درباره اختلال در عرضه انرژی، بیش از شش درصد جهش کرد و نفت برنت به ۱۰۷ دلار و ۶۳ سنت در هر بشکه رسید. نفت خام وست تگزاس اینترمدیت نیز از مرز ۱۰۰ دلار عبور کرد.
 بر اساس داده‌های اویل‌پرایس، قیمت نفت موربان با بیش از پنج درصد افزایش به ۱۲۲ دلار و ۴۸ سنت رسید و سبد نفتی اوپک نیز با بیش از چهار درصد افزایش، ۱۱۲ دلار و ۲۵ سنت قیمت‌گذاری شد.
