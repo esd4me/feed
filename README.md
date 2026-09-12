@@ -3,8 +3,108 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-12 15:18:44 </h5>
+<h5> 🟢 Updated at: 2026-09-12 18:10:18 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-12 15:59:31
+
+<img src="https://cdn4.telesco.pe/file/bdkCnKQRx5MYMKD8cd5KhMuOi5V1U2KV_iSG2MlpJ93ycJkki0-he9xqN_rhAVQMkG_wzuM8TCBTe9LxjhEG9Lc2lsXbiKYRGHVBOgHBP_LJ5xsSyr_5DLY1lygS2PEEbpXzC5vryzWtqf7VPwaiNtgwWGDWmaOfr8g6NZwBzo-Sqly2pCRWgfa1q13_nsO_D77vSWi0ePuV5kehoardqOoo2lyUZg67t6xYawHCsLaz6pFyDZzUxPWvgAQtA8QJCoVUrBbRYWAwYabkDS9AEnK2jifnZX1NPIKw0PepaLzJAsHbpJfs-GSs3QQlyijlDQ6kLh-N9Wlq-Lap_dGfaQ.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، گفت احتمالاً جمهوری اسلامی مسئول حمله هوایی به عربستان سعودی بوده که به تعطیلی خط لوله شرق به غرب انجامید.
+او روز شنبه در دوبلین و در پاسخ به پرسش خبرنگاران درباره مسئولیت ایران گفت: «فکر می‌کنم مسئول‌اند، احتمالاً خودشان‌اند.»
+ترامپ افزود با محمد بن سلمان، ولیعهد عربستان، گفت‌وگو کرده و او را «دوست خوب» خواند.
+رئیس‌جمهوری آمریکا همچنین گفت حوثی‌های همسو با جمهوری اسلامی با دولت او تماس گرفته‌اند و اعلام کرده‌اند نمی‌خواهند آمریکا مستقیماً وارد درگیری شود.
+او گفت: «آنها به‌مراتب ترجیح می‌دهند ما درگیر نباشیم و بیشتر شناورها را عبور می‌دهند. فقط یک کشور هست که از آن راضی نیستند و ترتیبش را می‌دهیم.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78345)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-12 15:58:55
+
+
+
+ویدیوهای منتشرشده در رسانه‌های اجتماعی نشان‌دهنده ازدحام در خروجی مرز بازرگان است.
+برخی گزارش‌ها دلیل اختلال در تردد از این گذرگاه مرزی را «محدودیت‌های ظرفیت پذیرش در سمت ترکیه» عنوان می‌کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78344)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-12 15:51:19
+
+<img src="https://cdn4.telesco.pe/file/mFAovC0GrvL2JaCOJY_xGJBNp_DGTC_NM00vjOwrYGuyxZQN5VLni7XeqZ1bUvGGUcrhhWj41GJkPjKYBnAL5TGHbb9LEn4zEhd7lkNbnTx_U_WoMdDLo77o7QAVQiFFQKm1Q0W9hkOCqYwjrODdqPBozMnGew7SSnB6gUkI1Ki240NevSY4iaLTJi1H7YEx0Vet3hUYP-rS1crHnIOxj3O0OIALCXWng-aGSlfx7Y2gSQ14NTHDPSoLaqX7J4DIhUK6z4oTPSwg4gj4Qam0ifpMBqxH-zq6Uh14DM4AmVPSJiqUmAvf0wfC3-jK6qz8QMhT4SoA-SzFE3-dkA430g.jpg" width="400"><br>
+
+معاون استاندار خوزستان اعلام کرد مرز چذابه نیز همچون شلمچه از بامداد امروز با اعلام مقام‌های عراق تا اطلاع ثانوی بسته شد. بنابر اعلام ولی‌الله حیاتی، هیچ تردد کالا و مسافری از این مرزها انجام نمی‌شود.
+ساعتی پیش رویترز بع نقل از دو منبع امنیتی نوشت عراق پس از تازه‌ترین حملات پهپادی صورت‌گرفته به عربستان سعودی، دستور بستن گذرگاه مرزی شلمچه بین عراق و ایران را به عنوان یک اقدام احتیاطی صادر کرد.
+مرز چذابه در استان میسان عراق قرار دارد و دفتر نخست‌وزیری عراق بامداد شنبه فرمانده عملیاتش را برکنار کرد. این برکناری پس از آن انجام شد که تحقیقات تأیید کرد آخرین حملات پهپادی به عربستان سعودی از خاک عراق انجام شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78343)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-12 15:50:59
+
+<img src="https://cdn1.telesco.pe/file/VG0yeVKO7Xt_96E-7ae0vgA76-sVgmlvmbvtix_tnko-T1E24op5Btr43BduFH1j7XTbmmi8xSi2APCiO7uz-c8Xw6YQmuQx90beE4-f8oX40h0fjkjzpAV0PC8xQhe-DPf4BLYxm1nlorkcvFUV_Sd25JPuS5hB1X_6cY-_No5RWmrp88sIqaxt-bfDR0ySs0K6E6g-iF-TcgINICRrDEFPWgNiHZbK-i3RDYOnu5uOWgt8xQyNSZPAh89ugpwuSHpx2CO5lqJoTGcIpPpshMFNuGKOu313qptn3-ZPw3tDVx85swvdSC7efi0V5bmXD0BG7_C8B0oJ5S0x0bbPZg.jpg" width="400"><br>
+
+درگیری میان نیروهای نظامی و امنیتی جمهوری اسلامی و افراد مسلح در منطقه «بخشان» سراوان، پس از بیش از هفت ساعت همچنان ادامه دارد. «شیوار نیوز» از حمله به نیروهای حکومتی از دو محور، شکسته‌شدن بخشی از حلقه محاصره و خروج شماری از افراد مسلح از محدوده درگیری خبر داده است.
+این درگیری حدود ساعت چهار بامداد شنبه ۲۱ شهریور ۱۴۰۵ و پس از محاصره یک خانه مسکونی آغاز شد. شبکه اسناد حقوق بشر بلوچستان پیش‌تر از استقرار گسترده نیروهای نظامی و امنیتی و استفاده از سلاح‌های سبک و سنگین در این منطقه خبر داده بود.
+براساس اطلاعات منتشر شده از سوی شیوار نیوز، نیروهای نظامی و امنیتی پس از آغاز درگیری، محدوده حضور افراد مسلح را محاصره و مسیرهای منتهی به محل را مسدود کردند. بااین‌حال، در ادامه افرادی از خارج محدوده محاصره، نیروهای حکومتی را از دو محور هدف قرار دادند.
+@
+VahidHeadline
+قرارگاه قدس نیروی زمینی سپاه پاسداران اعلام کرد در جریان درگیری با افراد مسلح در شهرستان سراوان در استان سیستان و بلوچستان، سه نفر از نیروهای سپاه کشته شده‌اند.
+بر اساس اطلاعیه این قرارگاه، این سه نفر با عنوان «پاسداران گمنام امام زمان» معرفی شده‌اند.
+قرارگاه قدس همچنین اعلام کرد که تا پیش از ظهر روز شنبه، چهار نفر از افراد مسلح ناشناس نیز در جریان این درگیری کشته شده‌اند.
+این اطلاعیه جزئیات بیشتری درباره هویت افراد مسلح، گروه یا سازمان وابسته به آنها، محل دقیق درگیری و چگونگی آغاز درگیری منتشر نکرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78341)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-12 15:48:41
+
+<img src="https://cdn1.telesco.pe/file/kQ9HvDiudHdNMAO5b043mVGy-UxIpV3uXblMd-vPYVBJ3PRbxzpWdOCCrzUOxQEYEeF3Pv4OqGOj95jjBeQF5ZXyK_sr0bTjdAGtUEPd2-wwf9BGCDEW17mkm5G_USkMnwiCt98C4u1X9e-kCahMNb9jDx0q2dErvylxuNBKtwd6BI0eWW22v7jwhZYwi5rZryLpNxVYoaNDg3XQfZt6xgh_AGk3qpXja7htPgzzIAT4tm6vmIjxrGjuGf4s9WxUI05DP-ZPaoiP4cAVeUEVq5dnOFk-gUv6OJuK3s9TaR4R2xPD1lWWS6Gcv2M-VC17hX9JijC1Qg9MF7CVFbng0w.jpg" width="400"><br>
+
+سودا ابراهیمی شمس‌آبادی، بلاگر ۳۳ ساله اهل بندرعباس، که از ۹ فروردین در بازداشت به سر می‌برد، به اعدام محکوم شده است.
+بر اساس این اطلاعات، شعبه سوم دادگاه انقلاب بندرعباس به ریاست قاضی خواجه‌حسنی، سودا ابراهیمی شمس‌آبادی را با اتهام‌هایی از جمله «توهین به رهبری»، «فعالیت رسانه‌ای و تبلیغی برخلاف امنیت ملی»، «اقدام اطلاعاتی و امنیتی به نفع دولت‌های متخاصم» و «عکسبرداری و ارسال تصاویر برای رسانه‌های فارسی‌زبان خارج از کشور» به اعدام محکوم کرده است.
+دادگاه همچنین او را به دو تا پنج سال حبس، محرومیت از برخی خدمات دولتی و مصادره اموال محکوم کرده است.
+حکم اعدام سودا ابراهیمی شمس‌آبادی روز اول شهریور به وکیل او ابلاغ شده است.
+بر اساس اطلاعات رسیده، ابراهیمی شمس‌آبادی در جریان دوران بازداشت، به مدت ۲۰ روز در سلول انفرادی نگهداری شده و در دوران بازجویی تحت فشار شدید قرار داشته است. خانواده او در این مدت از محل نگهداری و وضعیتش اطلاعی نداشتند.
+قاضی خواجه‌حسنی که این حکم را صادر کرده پیشتر در سال ۱۴۰۲ از سوی مقام‌های قوه قضاییه در زمینه‌هایی از جمله صدور بیشترین احکام و جدیت در انجام کار مورد تقدیر به عنوان قاضی نمونه قرار گرفته بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78340)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-12 05:59:13
@@ -107,7 +207,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-11 17:16:31
 
-<img src="https://cdn4.telesco.pe/file/Pn9H4ubD1TO3j6CbCLE-nOITquv7rdN_hcCFZEhUibDhBHxc_aQ03Qt_XqflUUSrJUUR-1h9e1k0gpsEYKv6Q5apw3J8971iMYNG3KAQF-i-Z1aVpm9U-gyanVmKffF8gi76thbOIchE5oNd6KcFRWxCQBY2EfJ9S8tIspIx06JsOIBZH9b2W5W8xLY068b2s-MWmo9e8PkCZcv1GeEq-B3Tzn7xZ-MyM-CM2gt4ZmgMFiZPNN5D_m5YlmbSTHmarlok7ilE_snhyfycdJGFEybsvNjD7Kid0jF1Qyi7nYwCjT2SksbG-5qzBuiuhc0sANtz78L5bAQco_3-ZRt7VA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Z4B9OV8Xge6mTU_mGgIgFlnRXu3RcaMoosdMtzwmDKKa8I9Egzp8u4uAr2_w2ps8tP233xEdrz654DxUyLog-aSVd4wLgKppkktgixZc0TNCxNDQBJaB6ssULGiqe4ihP3ISBg8B78-tWqp0-_PlQeYW3l3LLqkgcY_FANQajVEL_Rz7CkUbh6_uepQzpWsEM-iS8JUpOcagLEi4oCwwvINJeaHTiW_XPXK96WErAEe933kzmW5R6dPmVvUNemBDk6vtq0Db7CQ0vbX9ayzxCXRGr_Ytn2lj0XzHVDRiwV4jSqSbRB6EnzKXcyQovEbAEBj0M8K_K13zHNoWrF4i5w.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهور آمریکا، گزارش‌های رسانه‌ای مبنی بر آسیب‌دیدن هواپیماهای آمریکایی در جریان حملات موشکی اخیر جمهوری اسلامی به اردن را رد کرد.
 او پنج‌شنبه ۱۹ شهریور در مصاحبه با شبکه نیوزنیشن، در پاسخ به سؤالی درباره این گزارش‌ها، گفت: «نه. هیچ خسارتی وارد نشده است. هیچ اتفاقی نیفتاده است.»
@@ -128,7 +228,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-11 17:16:00
 
-<img src="https://cdn1.telesco.pe/file/JTcnDBmYT2HWOWmyhg6moGZJUlzC0CQqw9hc1vRUeLK29JGKWDc20PYyD0Ron69Zjwz_2OwFwcgVxliUnJ-gqKZ8gKkwVuH7g_b9qP5JPgaczavqEWYW1KhsE2vlQXQBZrBaZbNMeMaoABThqVwLKdPzdXrXqvluuYHb8gYRquCSz0SLoMYFRKnZv2DdnwKIQRHw3P05Lic9Ix3sE-HNVd1DqbvmUsHyTSm8bs-l5_EsSZ3_ai6yQp5O24CS_xBjFxN-O3M2frAMkXXM6Jia7ljTXsOgccQvmMtEafjZGafGwzDaoGHVpVCjZI2AOdrMsxT2_T8HO9aFm78Nnw8V5A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jTgds8V3Lp16HZtg08w5QRsW-wzXDXJBEQKpnbp3_i4ZBaTDDPQQCj3c_aSaHSa4MpgzMPHfGS1RY84_Z7xlp94YOhU0KRNjxjYuOdYuJUXb1tXOyC_GOIdbeo5BkWjib_jJbKNCp6APGsjZ06fK9by-lqDeAuxEi1UjQbfyeJ4eL29dsQCsF6HAbL9_H2GADE-FEgDnrs93kCgzH_ODouOIjJUbwzPIyp0TEULJ7fYaVsT6mgj_IMCFe4mUVqENl7tb8H6xL3GKj8L83pAHpPND4l7AFoZ1e4Ct1td6OAG3f4T4hPQAP2-u-kjGNeg_CIdmDKcvkKmQordyb4clwQ.jpg" width="400"><br>
 
 شرکت آمریکایی «آنتروپیک» اعلام کرده است که سه عملیات مرتبط با حکومت ایران را شناسایی و مختل کرده که در آن‌ها از مدل هوش مصنوعی «کلود» برای تولید و انتشار محتوای تبلیغاتی، طراحی سامانه‌های نظارتی و تهیه اطلاعات مرتبط با هدف‌گیری نیروهای دریایی آمریکا استفاده شده است.
 این شرکت روز پنج‌شنبه ۱۹ شهریور در تازه‌ترین گزارش اطلاعات تهدید خود، مجموعه‌ای از موارد سوءاستفاده از مدل‌های هوش مصنوعی آنتروپیک را تشریح کرد. این گزارش فعالیت‌های شناسایی‌شده و مختل‌شده از دسامبر ۲۰۲۵ تا اوت ۲۰۲۶ را پوشش می‌دهد و علاوه بر ایران، مواردی مرتبط با چین، روسیه و کشورهای دیگر را نیز بررسی کرده است.
@@ -147,7 +247,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-11 17:15:27
 
-<img src="https://cdn4.telesco.pe/file/QhkSvwpA9geD05MKDg8C9k7z93bPt22VCJbYpZ_8Wr2bDi0cSWJMvZekcLkmU472gFs-ZhFOgPFOhunJc1__Ekx30RYAVrtlXXY9SXAYInbtXNX1wbQnzy16DcaJiuq4GdNAHXK-BZCyjLqEWQVp4aSOu1UcUJjudyq2xwQGZ4_ZrKNi-EWpjnfBLbhcrSXSg0gf798MNtISLss2puRyRJAbMKxCdnLmaB02LCwtxjTmq7CEi3oCrvzwnBw9Pa8GMrI0pXgD2zbyfFrpGQhEtgRnV08GOVTNGynXnR2HnzeVQmdgoet1Zerm-hougzrY2YwQUYNt9QpvJir460Ed4Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OnlH5CEZ6mto-Fm0NeNJTB7608_OD-zvYLxx7F5QxWD49mcPyZzHxMWVpD_LqjuIez-MgVyb7yxSlbIBGAuci1JYNVmf2U1AB1b7xuSiZqaEtF_gCfG6jSi5Of0Rk5ad3xEZNsexE4tsXBHJwzVIsbY1UIhW1kA5O34x61bFBy8MXdNOBlI_JhQ4vgZ2GbodL1Zc8qJrbhwdZS2CEW7giTdpx7v8vBCbOrd4rgEln1c0_06QPDwmS4UXAgPOmr1mHg32eR4XXDcCJf1x11y7hb_O56g8rtJWYnbROfNN_76EiHKbzisau4CB_pIhprISnVLxhQOgu-3ZliwqM7ikAQ.jpg" width="400"><br>
 
 شرکت مخابرات ایران با انتشار اطلاعیه‌ای در سامانه کدال (سامانه اطلاعات جامع شرکت‌های پذیرفته شده فهرست شده در بورس) اعلام کرد هزینه مکالمه تلفن ثابت با تلفن‌های همراه از روز جمعه ۲۰ شهریور ۴۵ درصد افزایش می‌یابد.
 به گزارش انتخاب، بر اساس این اطلاعیه، سقف هزینه مکالمه تلفن ثابت با تلفن همراه از ۶۲۵ ریال به ۹۰۶ ریال افزایش یافته است. این تغییر در پی ابلاغ دستورالعمل افزایش هزینه تماس تلفن ثابت با تلفن همراه، تماس میان تلفن‌های همراه و پیامک اعمال می‌شود.
@@ -217,122 +317,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78326)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 03:05:25
-
-<img src="https://cdn4.telesco.pe/file/cvIrBICMqyM3J49MySDDoPGaEf8aEEHhmnJ39OM_8e83DsQ3h529NlOz_R5WVm5SEB7Guuj035_I8yvv272kILkg85qUo0wYCUF2Lg47WkvPWl29dtDGjFGMwDD-RSCR5q1pgdoPvyMaRSgSSiGt4v0RaB4asKiw6xf4MkFqLw7CwNgjXimShPPScKkCUX1I2q7DUJEydOTkq346XEK2DFb-I-RIU50V4e0ADZe6jTURhRvcZWkm7y7mc0c2RfPmNhd_GpZmXf7jJ14cvh5Io76IZnFTDG1lINUSI48IJGhQzmX-YgqQHq3zd7VKEp-aNxs7l4eYoMPUKwqHggUFQg.jpg" width="400"><br>
-
-قیمت نفت پنج‌شنبه ۱۹ شهریور هم‌زمان با تشدید درگیری‌ها در منطقه و افزایش نگرانی‌ها درباره اختلال در عرضه انرژی، بیش از شش درصد جهش کرد و نفت برنت به ۱۰۷ دلار و ۶۳ سنت در هر بشکه رسید. نفت خام وست تگزاس اینترمدیت نیز از مرز ۱۰۰ دلار عبور کرد.
-بر اساس داده‌های اویل‌پرایس، قیمت نفت موربان با بیش از پنج درصد افزایش به ۱۲۲ دلار و ۴۸ سنت رسید و سبد نفتی اوپک نیز با بیش از چهار درصد افزایش، ۱۱۲ دلار و ۲۵ سنت قیمت‌گذاری شد.
-افزایش قیمت‌ها پس از حملات به نفتکش‌ها در خلیج فارس و دریای عمان و پیشروی حوثی‌ها در سواحل دریای سرخ رخ داد. رویترز گزارش داد تصرف بندر مخا و پیشروی حوثی‌ها به سوی جزایر حنیش، نگرانی‌ها درباره امنیت تنگه باب‌المندب و مسیر صادرات نفت عربستان سعودی را افزایش داده است.
-هم‌زمان، تردد کشتی‌ها از تنگه هرمز به‌شدت کاهش یافته و داده‌های اولیه نشان می‌دهد ۱۸ شهریور تنها هفت کشتی از این آبراه عبور کردند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78325)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 01:06:14
-
-
-
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با انتشار ویدیویی در شبکه اجتماعی ایکس نوشت
-:
-امشب بزرگ‌ترین پایگاه ایران در خارج از ایران، یعنی تونل‌های علی‌الطاهر در لبنان را نابود کردیم. در حال تکمیل مأموریت هستیم. سال نو مبارک!
-پیش‌تر ارتش اسرائیل اعلام کرد شبکه تونلی حزب‌الله در ارتفاعات علی‌الطاهر را با استفاده از بیش از هزار و ۱۰۰ تن مواد منفجره تخریب کرده است.
-به گفته ارتش، در این تونل‌ها که طول آن‌ها بیش از دو کیلومتر اعلام شده، ده‌ها موشک، راکت، پهپاد، سلاح‌های سبک، موشک‌های ضدزره، صدها مین و مقادیر زیادی مواد منفجره کشف شده است.
-بر اساس اعلام ارتش اسرائیل، با انهدام این سایت، عملیات تخریب شبکه‌ای متشکل از هشت تونل به طول مجموع ۵٫۴ کیلومتر در منطقه علی‌الطاهر و قلعه شقیف تکمیل شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78324)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 01:04:52
-
-<img src="https://cdn1.telesco.pe/file/T2GFA7ikX3tB-MNHJBXZF3nVsX6o9b6oBEeI2HxwWQSvfbmbtleYVCZDw5n4cgq7CgVKQ-wJlul6Ubgj_30E7SBxz8iGfysjrQc1r0cib7nBX7Xtav_Vx7FlW39v0NZrdvs3T5mA6WZrgkpubKYls7FinC_UpRC-FozEO5I97NpWCA8DHHCxxo0Foa7DQ5ZJHZk7lMOzPIIRARufFEIWCp_WbrMVJ09LcklYRdZ4fcQ29iA5S32zvFfc0F4Gqg4L2XTpUSpwAINGfAlDTkT9IM37UumaH6hMeFZjUp2JWMxpDLRUDbN0CDO-sx3EdeaKCdoLsAP9ZHXBvMLnQvwsZQ.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا، یوکی‌ام‌تی‌او، عصر پنج‌شنبه به وقت واشنگتن از برخورد چند «پرتابه» به دو شناور در نزدیکی سواحل عمان خبر داد.
-بر اساس این گزارش، این برخوردها در فاصله چهار مایل دریایی غرب شهر خصب، در استان مسندم عمان، روی داده است.
-طبق این گزارش، کاپیتان یک شناور اعلام کرد که شاهد آن بود که چهار پرتابه نامشخص به دو شناور نامشخص اصابت کردند.
-در پی این اصابت‌ها، یکی از شناورها دچار آتش‌سوزی شد و از وضعیت شناور دوم اطلاعی در دست نیست.
-مقامات عمانی در حال بررسی این واقعه هستند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78323)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 22:23:06
-
-
-
-نیروی دریایی سپاه پاسداران روز پنجشنبه ۱۹ شهریورماه تصاویری منتشر کرد که به گفته این نیرو، هدف قرار دادن یک شناور بدون‌سرنشین آمریکایی در ورودی تنگه هرمز را نشان می‌دهد. سپاه اعلام کرد این شناور با شماره بدنه ۵۸۳۸ و از نوع «سیل‌درون» بوده است.
-علی عظمایی، فرمانده نیروی دریایی سپاه پاسداران، گفت این شناور بدون‌سرنشین «جاسوسی» متعلق به ارتش آمریکا در تنگه هرمز مورد اصابت قرار گرفته است. او همچنین گفت: «تنگه هرمز مسدود و تحت اشراف اطلاعاتی و کنترل هوشمند ماست و هرگونه تحرک خصمانه مورد هدف قرار می‌گیرد.»
-نیروی دریایی سپاه در بیانیه‌ای اعلام کرد ارتش آمریکا طی روزهای گذشته شناورهای بدون‌سرنشین خود را به تنگه هرمز اعزام کرده است. مقام‌های آمریکایی تاکنون درباره این گزارش اظهارنظری نکرده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78322)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 18:54:54
-
-<img src="https://cdn1.telesco.pe/file/P8a-uAt3eEbkju7QgQnCQbLSlqamxe-6A5ClLhUYoOOtfOJN3ppwyH52v2qWW1I6ZDF0rrl-UoMcEbH2OkL4x_7p3Axsa08O6nbH95YpVmxcjJCu4lkzBS5FC13mQJTqQIykAeGUxiTRn7sZAPJOnXYuW_Y4uTVgD8lubM3p4diAY5PLM8s3VqV17mEvx30mHeKnU0MVjAQyHk8R4T6Mtk03uA2CPjMGyCAa6Efbip8s3c7URLDRQdvPItmgDXwbGT9-0RlPirOJKyMFudU2SkE7i6N7TXnw9JkxFMJD9f5hgW1gypEIgI0YhiM7e1wEQuuXdV0Irik2UpfAsM6eFA.jpg" width="400"><br>
-
-رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، روز پنجشنبه ۱۹ شهریور در گفتگو با بلومبرگ اعلام کرد این سازمان بر اساس تصاویر ماهواره‌ای، شاهد تحرکات ساخت‌وساز در سایت بسیار مستحکم «کوه کلنگ‌گزلا» (Pickaxe Mountain) در جنوب مجتمع اصلی غنی‌سازی ایران بوده است.
-گروسی با اشاره به اینکه بازرسان آژانس هنوز موفق به بازرسی از داخل این تونل‌های عمیق نشده‌اند، گفت: «نشانه زنده از تحرکات در اطراف این سایت ساخت‌وساز وجود دارد، اما اطلاعات دقیقی از فعالیت‌های درون آن در دست نیست.» او یادآور شد که ایران پیش‌تر قصد خود را برای انتقال تجهیزات به زیر کوه جهت «مصون‌سازی در برابر حملات» اعلام کرده بود.
-این اظهارات در پی ارجاع پرونده هسته‌ای ایران به شورای امنیت سازمان ملل مطرح می‌شود. بر اساس گزارش‌ها، آژانس از ژوئن ۲۰۲۵ و پس از حملات نظامی آمریکا و اسرائیل به تاسیسات هسته‌ای ایران، امکان راستی‌آزمایی وضعیت ذخایر اورانیوم با غنای بالا را نداشته است.
-دونالد ترامپ، رئیس‌جمهوری آمریکا، بار دیگر با اشاره به این سایت زیرزمینی، نسبت به هرگونه اقدام ایران هشدار داد و در یک تجمع انتخاباتی گفت: «ما متوجه فعالیت‌های مختصری در کوه کلنگ شده‌ایم. به ایران توصیه می‌کنم دست از پا خطا نکند، چرا که مجبور خواهیم شد ضربه بسیار سختی به آن‌ها وارد کنیم.»
-از سوی دیگر، سی‌ان‌ان روز گذشته به نقل از منابع خود گزارش داد که ایالات متحده در حال توسعه سلاحی با نفوذ بیشتر با قابلیت تخریب اهدافی در زمین‌های سخت مانند کوه کلنگ‌گزلا است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78321)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 18:54:03
-
-<img src="https://cdn4.telesco.pe/file/NgOrK69ABUkqk0AsdRMvU-OCnqaLti7iOOzncSQYheuDJzY00YPSZnjBgmswZLYEyMjfy-u8Fa-GPVPROx0e_UDVaKl_bOHH9Oq20XwCaUcg6LwQFBuZkWuZZNu1YUU5DSWQCVbpL_hlzWxw3yhhHvs7BDKbrxsLjDYGySivE_ZyljJHb7pgOtvDc0vuLa2oO-Rdh4OjmUYNe-ECrI6U6umZzfwI8xECShilL41JAEJ9GsnshLyFTNWuKTYhcnN_iZUxdhojgiKl5cfb7VOien-IiEhNQ8Ujc-6QadjkMVRx4DIklA9sdMTvjo8Ry9hCAOFdVmM8GOLEMOuKGtvCbA.jpg" width="400"><br>
-
-یک ماه قبل ماموران امنیتی به منزل خانواده «کیاوش میرقاسمی» از کشته‌شدگان اعتراضات دی‌ماه۱۴۰۴ یورش برده و «سمانه عصاران» مادر او را بازداشت کردند.
-به‌‌دنبال تشدید فشارها بر خانواده میرقاسمی حالا صفحه اینستاگرامی مادر او از دسترس خارج و کنترل آن به اجبار به دست نهادهای امنیتی افتاده است.
-تمامی پست‌های پیشین این صفحه حذف شده و تنها یک پست به دستور مقامات قضایی در این صفحه قرار دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78320)
 
 ---
 
