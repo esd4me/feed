@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-12 23:23:30 </h5>
+<h5> 🟢 Updated at: 2026-09-13 01:19:57 </h5>
 </div>
 
 
@@ -85,7 +85,7 @@ VahidOOnLine
 
 
 
-سخنگوی وزارت امور خارجه، روز شنبه ۲۱ شهریور ماه گفت اطلاعات تهران نشان می‌دهد حمه موشکی آمریکا به لامرد از خاک یکی از کشورهای حاشیه جنوبی خلیج فارس نیز انجام شده است.
+سخنگوی وزارت امور خارجه، روز شنبه ۲۱ شهریور ماه گفت اطلاعات تهران نشان می‌دهد حمله موشکی آمریکا به لامرد از خاک یکی از کشورهای حاشیه جنوبی خلیج فارس نیز انجام شده است.
 اسماعیل بقایی در گفتگو با رسانه‌های دولتی ایران گفت این موضوع نشان می‌دهد آمریکا «برخلاف همه قواعد و اصول حقوق بین‌الملل» از خاک و حاکمیت ملی کشورهای دیگر برای حمله به ایران استفاده کرده است.
 او تاکید کرد ایرانیان این موضوع را پیگیری خواهند کرد.
 بقایی همچنین گفت برخی کشورهای همسایه، برخلاف «اصل حسن همجواری»، اجازه داده‌اند از قلمرو آنها برای حمله به ایران و «ارتکاب جنایت جنگی علیه مردم» استفاده شود.
@@ -203,7 +203,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-12 05:59:13
 
-<img src="https://cdn1.telesco.pe/file/Ad1uejJCWUeYM-z-VQxlYGko7-LMn8-0sq4CyviOUQxmDQDXALy4f8kypLKvBmJqe7nSC-f8QSchD_ds3L8HQiq93WsG6Aauj1gwq3HSUzTMPwYknwrZqw0pHci_70Vn8nlzKTCOGl-HrGoBcx_LTa3udGnXFO-WzouzoUtV8ltwHHRd9X2aeNbtovlSo1Bz_S6KXFmZyryfgY_wdFHg6rUoa0fAUj5dEaA3G9uhd3meTSZCQTLhkUC_6mgNk2zlJL5wzxDtkF1Nmjf2A5OigYswXGCsJz26xvvIi5zhutFnmfkaUfmSYMr0oLcsiW3JVoOyJteHQpsQ-bLSk1Ue6w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/DYYG_kHGBtlC-0vI5ppflqPvmRFdIsP7M1xNsK8eLFIPTeMtUwaj97qmRWEnRXUVBVuTCDwBVFTS9yZrpUtXA31fxy5M-sE-5b_COubb8yrQd8bNOuUzGEqHograEV2NbuKQ950rDxqrIvDJVjrjprpVCKHcOiMoPZti9G9HOtr3CTfUt4-jni701hJj193kPA9mCvtK5W5NUJn-BwHP94_S899jEPoLCF9xdBfCIIa8jcVtMjkHnKk7MDGCM1Pv3JIX0RKuQ9xyP_cYzphMTuDVFKnStAvNxFYeDbmBx8s9DRx0dLksqETT5AdBpioADu4ohhHNQDlaaFjtrn8cVw.jpg" width="400"><br>
 
 وزارت انرژی عربستان سعودی روز جمعه ۲۰ شهریور با انتشار بیانیه‌ای اعلام کرد که خط لوله انتقال نفت «شرق-غرب» (واقع در مناطق ریاض و مدینه) صبح پنجشنبه هدف چندین حمله قرار گرفته است.
 در این بیانیه آمده است که به دنبال این حملات، عملیات انتقال نفت در خط لوله مذکور به صورت احتیاطی متوقف شد.
