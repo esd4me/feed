@@ -3,8 +3,102 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-12 21:02:34 </h5>
+<h5> 🟢 Updated at: 2026-09-12 23:23:30 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-12 23:18:16
+
+
+
+رئیس‌جمهوری آمریکا در جریان دیدار با مایکل مارتین، نخست‌وزیر ایرلند، در دوبلین بر اعمال کنترل مقتدرانه و یک «محاصره دریایی باورنکردنی» بر تنگه هرمز تاکید کرد و گفت این اقدامات مانع از جهش شدید بهای جهانی نفت شده است.
+دونالد ترامپ همچنین گفت نیروهای سنتکام به‌طور میانگین روزانه ۲۵ شناور و قایق را متوقف و توقیف می‌کنند؛ اقداماتی که به گفته او بیشتر آن‌ها در تاریکی شب و در جریان گشت‌های شبانه انجام می‌گیرد.
+این در حالی است فرماندهی مرکزی آمریکا، سنتکام،
+امروز
+اعلام کرد طی ۶۰ روز گذشته و از زمان ازسرگیری «محاصره دیوار فولادی» ایران، مسیر ۱۰۰ کشتی تجاری را تغییر داده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78350)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-12 21:05:34
+
+<img src="https://cdn4.telesco.pe/file/Utz_4L9d_xGllKNk6xhgBX4uWdP9ogMGHRdp9bJInf1f2fxP5LLHmCFRxmvVEzxzNYvp15x0gWJPv_z0GHYA2gGEBsncM1W6SL2z5BklTcPWU2lLaKC3qVksLPi_3q_KD3x_TQ-8Wkuv13mCXrxJ_3sat0FALMuE6BdX1iB7VUtuH8ZS_JrIlcC4AYjH7tN_RoTTxu0CGcoy_FP5KrUkTxmEN0E3_7sGALi-3b5uHaLZivDwqIqJ53L6hYdczuS1KFHQW06YyvqyNWi_PpzrN5mi3l0rYn2CNGl83zodIYqqdUgQwIpSWjLzTkHJlVWhgVnBWfW2kq49hYGMEluj2A.jpg" width="400"><br>
+
+واژگونی یک دستگاه اتوبوس حامل کارگران مجتمع مس سرچشمه، در صبح شنبه ۲۱ شهریور، یک کشته و ۳۸ مصدوم برجا گذاشت.
+سید محسن مرتضوی، رییس مرکز فوریت‌های پزشکی رفسنجان، با تایید این خبر گفت ۳۸ مصدوم این حادثه برای دریافت خدمات درمانی به بیمارستان منتقل شده‌اند. به گفته او، بررسی‌های اولیه نشان می‌دهد ورود یک دستگاه ون به مسیر حرکت اتوبوس باعث انحراف و سپس واژگونی آن شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78349)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-12 21:04:36
+
+<img src="https://cdn4.telesco.pe/file/BOilBWpWDX1zAW8HdDDrcMU0bAMfbF2gGYtWtm_mULMplJIIfcrL8UBdtcvvTg6cVU3Ob0PQxKNFqFgCquoBaaZ0xVKBsB--Ra-93k1-CpksYgzEdd-f26E0s8mkSP9uigr2TlnNHJIdKDwKA3qOy-1mKN6EYryKB2d_UFe7IzB_JdrGLcudFzWW_nak-EV-mgnVDZAZqpceJKWFpQpFkJ13XgHc-x_bFRssEj6SXPEQS24sRkWrWxp7bGGwvM98ov42eO_8NQWR-wlJVpbHPNhdE7prWp1KxsqmEy9k92kixTVYgmAHTq5rba0CDKjnAzn_aOp3Bf2CKSZdlM47hQ.jpg" width="400"><br>
+
+منابع امنیتی عراق به خبرگزاری فرانسه گفتند نیروهای امنیتی این کشور سکوهای پرتاب پهپاد را منطقه دورافتاده الطیب در استان میسان در جنوب عراق و در نزدیکی مرز با ایران کشف کرده‌اند.
+همزمان خبرگزاری رویترز به نقل از دو منبع نظامی در عراق اعلام کرد این منطقه مرزی پس از کشف سکوهای پرتاب پهپاد بسته شده است.
+کشف این سکوها پس از حمله به خط لوله نفت عربستان سعودی انجام شده است؛ حمله‌ای که ریاض و بغداد گفته‌اند از خاک عراق انجام شده است. بغداد روز شنبه گذرگاه‌های مرزی شلمچه و چذابه را نیز بسته بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78348)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-12 21:03:58
+
+<img src="https://cdn4.telesco.pe/file/mgpWSjLkfz7qVSgZc_jfKsd1__Ji34Y6bo7bKnXMePBiYHmsx9TvjCjEVe9-KzPe_w-j9jD77MBraRA2ExBi9Z8B8mnVVQDMK9n-l5NLdTF_TTVINYnp0bVOeQNTxqI73ccbIk_Rr6MT4RnVBoelaNZUPVNrnkNPh1t3elEpK_WP7McOuR6mF2u5Go0nAmorASXTVy3__NSGmlnUzyeSjEJDZ4Wa3czyDXSNJt8ntf6uoPqWgavyrSLm_fS7afOfKrZuqud7_rNIRlLwetCo1r0KnKBWAsZyXI4rBkFqsAy0N65908hT3Q_9XZSIvYf7ljpoOU2YxxyFKLpv_FH1-w.jpg" width="400"><br>
+
+خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، به نقل از یک منبع آگاه گزارش داد تفاهم نهایی جمهوری اسلامی و عمان درباره مسیرهای جدید کشتیرانی، به معنای بازگشایی تنگه هرمز نیست و باز شدن این تنگه به اجرای هفت شرط تهران از سوی آمریکا بستگی دارد.
+این منبع گفت تهران و مسقط پس از گفت‌وگوهای فنی و دیپلماتیک، در اوایل شهریور درباره جزییات مسیرهای جدید ورود به خلیج فارس و خروج از آن به توافق نهایی رسیدند و قرار است این تفاهم به‌زودی با حضور وزیران خارجه کشورهای منطقه اعلام شود.
+بر اساس این گزارش، تفاهم تنها میان جمهوری اسلامی و عمان است و کشورهای دیگر، از جمله عراق و کشورهای ساحلی خلیج فارس، برای اطلاع از جزییات مسیرها و ترتیبات تردد در نشست حضور خواهند داشت.
+مهر نوشت مسیر ورود به خلیج فارس به‌طور کامل و بخشی از مسیر خروج از آن در آب‌های سرزمینی ایران قرار خواهد داشت و تردد در این مسیرها بر اساس ترتیبات تعیین‌شده از سوی جمهوری اسلامی انجام خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78347)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-12 21:03:00
+
+
+
+سخنگوی وزارت امور خارجه، روز شنبه ۲۱ شهریور ماه گفت اطلاعات تهران نشان می‌دهد حمه موشکی آمریکا به لامرد از خاک یکی از کشورهای حاشیه جنوبی خلیج فارس نیز انجام شده است.
+اسماعیل بقایی در گفتگو با رسانه‌های دولتی ایران گفت این موضوع نشان می‌دهد آمریکا «برخلاف همه قواعد و اصول حقوق بین‌الملل» از خاک و حاکمیت ملی کشورهای دیگر برای حمله به ایران استفاده کرده است.
+او تاکید کرد ایرانیان این موضوع را پیگیری خواهند کرد.
+بقایی همچنین گفت برخی کشورهای همسایه، برخلاف «اصل حسن همجواری»، اجازه داده‌اند از قلمرو آنها برای حمله به ایران و «ارتکاب جنایت جنگی علیه مردم» استفاده شود.
+در نهم اسفند ۱۴۰۴، یک سالن ورزشی در لامرد فارس، مورد حمله دو موشک قرار گرفت که منجر به کشته شدن حداقل ۲۱ نفر، از جمله ۴ کودک، و زخمی شدن ۱۰۰ نفر شد. این حمله اندکی پس از حمله هوایی به مدرسه شجره طیبه میناب رخ داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78346)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-12 15:59:31
@@ -240,83 +334,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78331)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 17:15:27
-
-<img src="https://cdn4.telesco.pe/file/OnlH5CEZ6mto-Fm0NeNJTB7608_OD-zvYLxx7F5QxWD49mcPyZzHxMWVpD_LqjuIez-MgVyb7yxSlbIBGAuci1JYNVmf2U1AB1b7xuSiZqaEtF_gCfG6jSi5Of0Rk5ad3xEZNsexE4tsXBHJwzVIsbY1UIhW1kA5O34x61bFBy8MXdNOBlI_JhQ4vgZ2GbodL1Zc8qJrbhwdZS2CEW7giTdpx7v8vBCbOrd4rgEln1c0_06QPDwmS4UXAgPOmr1mHg32eR4XXDcCJf1x11y7hb_O56g8rtJWYnbROfNN_76EiHKbzisau4CB_pIhprISnVLxhQOgu-3ZliwqM7ikAQ.jpg" width="400"><br>
-
-شرکت مخابرات ایران با انتشار اطلاعیه‌ای در سامانه کدال (سامانه اطلاعات جامع شرکت‌های پذیرفته شده فهرست شده در بورس) اعلام کرد هزینه مکالمه تلفن ثابت با تلفن‌های همراه از روز جمعه ۲۰ شهریور ۴۵ درصد افزایش می‌یابد.
-به گزارش انتخاب، بر اساس این اطلاعیه، سقف هزینه مکالمه تلفن ثابت با تلفن همراه از ۶۲۵ ریال به ۹۰۶ ریال افزایش یافته است. این تغییر در پی ابلاغ دستورالعمل افزایش هزینه تماس تلفن ثابت با تلفن همراه، تماس میان تلفن‌های همراه و پیامک اعمال می‌شود.
-شرکت مخابرات ایران اعلام کرد میزان دقیق تاثیر این افزایش بر درآمد شرکت هنوز مشخص نیست و آثار مالی آن در گزارش‌های دوره‌ای منتشر خواهد شد.
-این شرکت در خردادماه نیز هزینه ثابت ماهانه تلفن ثابت را ۴۵ درصد افزایش داده بود. هزینه ثابت ماهانه مشترکان خانگی در تهران و کلان‌شهرها به ۴۳ هزار و ۵۰۰ تومان، در مراکز استان‌ها به ۳۲ هزار و ۶۲۵ تومان و در سایر شهرها به ۲۴ هزار و ۶۵۰ تومان رسیده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78330)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 17:14:00
-
-
-
-علی زارعی دوز دره سی، زندانی سیاسی و یکی از آسیب دیدگان اعتراضات سراسری ۱۴۰۱ که در زندان قزلحصار کرج محبوس است، توسط شعبه ۲۳ دادگاه انقلاب تهران از بابت اتهام «افساد فی‌الارض» به اعدام محکوم شده است.  بر اساس اطلاعات دریافتی هرانا، حکم اعدام آقای زارعی دوزدره‌سی…
-
-[View Post](https://t.me/VahidOnline/78329)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 07:58:06
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/78328)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 07:52:20
-
-<img src="https://cdn4.telesco.pe/file/fgf-eo-T-2IETvru-dEZogNgLj3gMe_7PrL1l2HpYdbxBdVExMeRRBmKcMZpnSI22AW9DNImOwQVVH4sDDiSNlpwiBQ-_9TDFQoXCk6IJH4tZUMK3q5pGUS_hmLr_hOYDPWebEChIWq5hmPaEamri-ivJ38UhDSxEQYb6opzazKyY0Eg44clvsiUo7lql-gMcMtlPd-EI3qhJ-CWczu2aSCNheqonPs8U-mt1MTyG5XMR3L1aC63F2rdfIBiwnth0hGvUh1DzvAZr2CkJhdnRmwwzr3036iiCZUJ0jSAhHvhVL_rhX6I6E8dxA0NGnAhgbubf5VngX4E6zUWyYPUGQ.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا در دومین شب گردهمایی انتخاباتی میان‌دوره‌ای جمهوری‌خواهان که در دالاس در حال برگزاری است، بار دیگر، تنگه هرمز را «تنگه ترامپ» خواند و گفت «ما تنگه ترامپ را کنترل می‌کنیم». رئیس‌جمهوری آمریکا بار دیگر تاکید کرد که هرگز نمی‌توانیم به ایران اجازه دهیم سلاح هسته ای داشته باشد و نخواهد داشت. او گفت که ایران در حال عقب‌نشینی از همه جا است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78327)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 07:52:04
-
-<img src="https://cdn4.telesco.pe/file/oByTvs0VEZqTwjhJczBmg6qvJggKf37nqHbcRbEEE_HliBjao7ON3w5a3GeyusFrNzmHl4KjX_g1P6ml2QVRNJa6ed-1ph_muiE6W27Zsc0gHOzP9ij7nXyahe5Orp79Mz4RAjFWzUYD0GHBamgfqPsDte7UlQ3opH3p2w83gsR2nmY7wSa9NxWHYzbDNLQm-t7x3DBh_23Z2dSRRKzISm2TFpHeUwdsLyE8oTTn8a3JO7VnGedgQ9bT7AZX9eA67-brx3UzxRuGfOlPcehnmf6zLvZOiYE_6EQghfBebRJmMLNAK2HHt8GEAbe78kvmFxGtJzvBmO5DHEWBJNfv-Q.jpg" width="400"><br>
-
-هانگ کائو، سرپرست وزارت نیروی دریایی آمریکا، به اپک تایمز گفت نیروهای جمهوری اسلامی خسارت گسترده‌ای به پایگاه پشتیبانی نیروی دریایی آمریکا در بحرین، محل استقرار ناوگان پنجم این کشور، وارد کرده‌اند.
-کائو در توضیح استقرار اخیر ناو هواپیمابر یواس‌اس آبراهام لینکلن و الزامات لجستیکی عملیات طولانی‌مدت گفت خسارت واردشده به پایگاه بحرین بر امکان پشتیبانی از این ناو تاثیر گذاشته است.
-او گفت: «خدمه این ناو جایی برای پهلو گرفتن نداشتند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78326)
 
 ---
 
