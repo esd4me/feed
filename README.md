@@ -3,8 +3,39 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-12 05:45:02 </h5>
+<h5> 🟢 Updated at: 2026-09-12 10:58:08 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-12 05:59:13
+
+<img src="https://cdn1.telesco.pe/file/Ad1uejJCWUeYM-z-VQxlYGko7-LMn8-0sq4CyviOUQxmDQDXALy4f8kypLKvBmJqe7nSC-f8QSchD_ds3L8HQiq93WsG6Aauj1gwq3HSUzTMPwYknwrZqw0pHci_70Vn8nlzKTCOGl-HrGoBcx_LTa3udGnXFO-WzouzoUtV8ltwHHRd9X2aeNbtovlSo1Bz_S6KXFmZyryfgY_wdFHg6rUoa0fAUj5dEaA3G9uhd3meTSZCQTLhkUC_6mgNk2zlJL5wzxDtkF1Nmjf2A5OigYswXGCsJz26xvvIi5zhutFnmfkaUfmSYMr0oLcsiW3JVoOyJteHQpsQ-bLSk1Ue6w.jpg" width="400"><br>
+
+وزارت انرژی عربستان سعودی روز جمعه ۲۰ شهریور با انتشار بیانیه‌ای اعلام کرد که خط لوله انتقال نفت «شرق-غرب» (واقع در مناطق ریاض و مدینه) صبح پنجشنبه هدف چندین حمله قرار گرفته است.
+در این بیانیه آمده است که به دنبال این حملات، عملیات انتقال نفت در خط لوله مذکور به صورت احتیاطی متوقف شد.
+این رویداد همچنین منجر به مصدومیت تعدادی از افراد شد که خدمات درمانی و مراقبت‌های پزشکی لازم به آن‌ها ارائه گردید.
+@
+VahidOOnLine
+وزارت خارجه عربستان سعودی اعلام کرد خط لوله نفتی شرق به غرب این کشور با پهپادهایی که از عراق پرتاب شده بودند، هدف حمله قرار گرفت.
+وزارت خارجه عربستان سعودی افزود بنا به درخواست نخست‌وزیر عراق، در این مرحله تصمیم گرفته است اقدام تلافی‌جویانه انجام ندهد.
+@
+VahidOOnLine
+خبرگزاری رویترز گزارش کرده که بغداد دستور تعطیلی گذرگاه مرزی شلمچه میان عراق و ایران را صادر کرده است.
+دو منبع امنیتی عراقی به این خبرگزاری اعلام کردند که عراق این گذرگاه را به عنوان اقدامی احتیاطی و در پی حمله پهپادی از مبدأ عراق به خط لوله نفت شرق-غرب عربستان سعودی، بسته است.
+گذرگاه مرزی شلمچه یکی از مسیرهای زمینی اصلی میان ایران و عراق است.
+براساس گزارش‌ها پهپاد شلیک شده به عربستان از استان میسان عراق شلیک شده است. این استان در قسمت جنوب شرقی عراق و هم مرز با ایران است که مرکز اداری آن شهر عماره است.
+@
+VahidHeadline
+رویترز نوشت: به گفته این دو منبع، عملیاتی گسترده برای تعقیب و پیگرد عاملان این حمله به عربستان در جریان است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78337)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-11 22:42:10
@@ -159,7 +190,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-11 07:52:20
 
-<img src="https://cdn4.telesco.pe/file/jpk_zkyWzXgSkRkanphJn8sTu6Cks2CNQpOisoVd9IUUhIyekdz9Gwd3qyWi-NjDssgJlKEbI_7s07J0KHidjWgki28Z8OG-PRtQ-o-XkJC3dQ-QvRNg1EfXxQgl4xmqK3A_OBN378fZvey580uv8n7MV0LIhmNiwA5gFMPmRCFTt9dN-uSXGb4jNWCL7gEgAcYu7nIZ63VTNoIVGRDuYSnF7cmK91ZJDYtZ5lM0NF3e5-vVQh1j0ACqnae1vYMYtS6ypKFFHtmOVbY9GYBTf-nng7tAoqx_iJl4uw8nrkMYUqgua2gPd8Hi8TTd4s59cLdQlk8kbf0GGq_3b95t8g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/fgf-eo-T-2IETvru-dEZogNgLj3gMe_7PrL1l2HpYdbxBdVExMeRRBmKcMZpnSI22AW9DNImOwQVVH4sDDiSNlpwiBQ-_9TDFQoXCk6IJH4tZUMK3q5pGUS_hmLr_hOYDPWebEChIWq5hmPaEamri-ivJ38UhDSxEQYb6opzazKyY0Eg44clvsiUo7lql-gMcMtlPd-EI3qhJ-CWczu2aSCNheqonPs8U-mt1MTyG5XMR3L1aC63F2rdfIBiwnth0hGvUh1DzvAZr2CkJhdnRmwwzr3036iiCZUJ0jSAhHvhVL_rhX6I6E8dxA0NGnAhgbubf5VngX4E6zUWyYPUGQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا در دومین شب گردهمایی انتخاباتی میان‌دوره‌ای جمهوری‌خواهان که در دالاس در حال برگزاری است، بار دیگر، تنگه هرمز را «تنگه ترامپ» خواند و گفت «ما تنگه ترامپ را کنترل می‌کنیم». رئیس‌جمهوری آمریکا بار دیگر تاکید کرد که هرگز نمی‌توانیم به ایران اجازه دهیم سلاح هسته ای داشته باشد و نخواهد داشت. او گفت که ایران در حال عقب‌نشینی از همه جا است.
 @
@@ -175,7 +206,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-11 07:52:04
 
-<img src="https://cdn4.telesco.pe/file/BQYSekrP-bCVTQzsrc9Xuejy1oIdmx9bLOcjeX4qDSgVW8GwYs7lNAlvHd5VQP-a1FnQaG3sBwsdkWp0SADBGGPzD9mmTYXPbav-JAqfR48OTGs50rmaV196dwyJzX-fcCXh8m9lnx7UPBsPWgIcGY04AQzSFFpQib8P3meYE367JYVuR-1qDPYi_a-aVLzzxUgYieis4WNK9t8VtZeaLC7UxNL9M4peVP4POq0GEFsF9wW-nOMeb2AyzDofSwGj_pLGSjRk_8LgLZoc2M8lWKfZ8Kcw7x6eTMhJKGW7T8uNk-9Nb4HkbcMjJn_6AgveU5Ux2vtyQhSDLudVD2TCbg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/oByTvs0VEZqTwjhJczBmg6qvJggKf37nqHbcRbEEE_HliBjao7ON3w5a3GeyusFrNzmHl4KjX_g1P6ml2QVRNJa6ed-1ph_muiE6W27Zsc0gHOzP9ij7nXyahe5Orp79Mz4RAjFWzUYD0GHBamgfqPsDte7UlQ3opH3p2w83gsR2nmY7wSa9NxWHYzbDNLQm-t7x3DBh_23Z2dSRRKzISm2TFpHeUwdsLyE8oTTn8a3JO7VnGedgQ9bT7AZX9eA67-brx3UzxRuGfOlPcehnmf6zLvZOiYE_6EQghfBebRJmMLNAK2HHt8GEAbe78kvmFxGtJzvBmO5DHEWBJNfv-Q.jpg" width="400"><br>
 
 هانگ کائو، سرپرست وزارت نیروی دریایی آمریکا، به اپک تایمز گفت نیروهای جمهوری اسلامی خسارت گسترده‌ای به پایگاه پشتیبانی نیروی دریایی آمریکا در بحرین، محل استقرار ناوگان پنجم این کشور، وارد کرده‌اند.
 کائو در توضیح استقرار اخیر ناو هواپیمابر یواس‌اس آبراهام لینکلن و الزامات لجستیکی عملیات طولانی‌مدت گفت خسارت واردشده به پایگاه بحرین بر امکان پشتیبانی از این ناو تاثیر گذاشته است.
@@ -302,47 +333,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78320)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 18:53:49
-
-<img src="https://cdn4.telesco.pe/file/KgbcdeOvFTOVMB58BInOz512TmY8qvrtMgemjPtgUj3BbSlePRgR5KGzq-4ZDgtlIWv_uuwXVV3wky-nnfy375-i15iPZkWveslWADCtSkjR2JsMtmikLhK9DCitvtR9vInpTtIRB7iOTgrd33B0QI3Kv1_ouwWoJMM7QKFLEDrZNbNHRv9udvG2TP3sXZtATr6VCikjD_I63onX7fvVJV_7aoHTOxq7tQtbP8Pj1IMdpeAe-288C4aoTw9yduRemfXqdet-nD6WaHZfdYuIHEpEQmdql5N76ehgNOYaPMb1npQjy1WA4uMyQNA00WOrP_H09OTWOZI1l81WdPIVuw.jpg" width="400"><br>
-
-پلیس بریتانیا دو نفر را به ظن ارتکاب جرائم مرتبط با ایران و نقض قانون امنیت ملی بریتانیا بازداشت کرد.
-این دو فرد در لندن پایتخت بریتانیا و در جریان تحقیقات مربوط به فعالیت‌های مرتبط با ایران بازداشت شده‌اند.
-پلیس متروپولیتن لندن با صدور بیانیه‌ای تأکید کرد که این تحقیقات، با هیچ‌یک از حوادث ماه‌های اخیر که در اماکن و ساختمان‌های مربوط به یهودیان و جامعۀ ایرانیان مقیم بریتانیا رخ داده بود، ارتباطی ندارد.
-هنوز جزئیات بیشتری از هویت افراد بازداشتی یا ماهیت اتهام‌های منسوب به آنها منتشر نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78319)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-10 17:06:22
-
-<img src="https://cdn1.telesco.pe/file/CJKnOlBwSheZMT-HbQXyyW2weXFIlB58h5iIfB-W9CjwRaV7J8miqAot3GTxlmmCZ-AUVQvsh3i2IfaEWcr1C9IDjvIceailNxouPlR9uRQNDyjk2j8tfTD0REjBW9gm5hiu8TTh1kAwcOK4xK_2ywiSJ8e-YVD-N_9kj6MQw3-ywnkTNxv1aFQwUHbb-Rr_7AP5XNk2qJl1PXykB25BwFy9GCA0Tp8Kj31FsRLQd14-_g-f4As-tTDpzonZZO9MRQTv-P9lm9ei-okErLLviQfriqHZAgLISMBSvTTqIWUyZGCG0Zyyv4rscM6B5mZ-Y7gvIougAmIg6vvJJw7fHw.jpg" width="400"><br>
-
-اکانتش در توییتر:
-MaryamAzimih
-مریم عظیمی، مهندس ایرانی اپل، که پیش‌تر از بازداشت و انتقال خود با چشم‌بند در خودروی نیروهای اطلاعاتی جمهوری اسلامی در مشهد و تصور مرگ قریب‌الوقوع نوشته بود، در مراسم جهانی رونمایی اپل، یکی از فناوری‌های جدید دوربین آیفون ۱۸ پرو و پرومکس را معرفی کرد.
-عظیمی در ویدیوی از پیش ضبط‌شده اپل به‌عنوان مهندس کیفیت تصویر معرفی شد.
-او در بخش مربوط به دوربین آیفون ۱۸ پرو، قابلیتی به نام «تصویر مرجع اپل» را ارائه کرد.
-اپل دوربین این مدل را پیشرفته‌ترین دوربین خود تا امروز توصیف کرده است.
-حضور عظیمی از دو جهت در میان ایرانیان مورد توجه قرار گرفت: نقش او در توسعه فناوری تصویربرداری در یکی از بزرگ‌ترین شرکت‌های جهان و مخالفت علنی‌اش با جمهوری اسلامی، از جمله روایت شخصی او از دوران بازداشت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78317)
 
 ---
 
