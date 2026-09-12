@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-12 18:10:18 </h5>
+<h5> 🟢 Updated at: 2026-09-12 21:02:34 </h5>
 </div>
 
 
@@ -152,7 +152,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-11 20:46:03
 
-<img src="https://cdn4.telesco.pe/file/j0Dy9vHwjHjqrgB5I5Aw4k70CN5FIP3U2CGqvxjNHTIMO5F48QCpC_yV6q1uTD9whjPjhYLcu6kT_qB0QEaypWrlwaJKhw6eFipItc9ROatVdk7fnW1hcnStn-a8LUZWA60QRdxxwkSYkvavaZd300mv-lljZ4V3lKEcAy0tGkcv8syyXGTQPRQ8Mr_jKWR5t2lwHsIK4gqnr0f3WukM8UGzX5z4khBzOBxap_hD4kAjxlXhbelqZqSa4mxmLhdr5BcU1BEapINflRmMG6b3y_mec5JqyBrJ0CE8p-i81CmekXijaToe1m0mQ3UQ4lYMyxtFUrMzOVVc-oQS_Ut8NQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/o0oTDSpkMmo6o6uSp1u1rx7xQrM0WOTvtC_uSGu4YjOjHLmVZG2bJStL75J2Yjwe9qiE0KWzRu9pNlwGzAS0mgQXQud8xQ14cIEioJbFjprpLNgRNIxYkbWGdjEEi-txnzYeAVLtj-MfkyZENVYv2kGrVS83qus2MnLfRSH9j7UBSV3nC1ewZSmo7vsKgmG95AopYITiPEEqQFHvm4Bq5v5pWKi_v0WAEj3LAazKqE5hQo3KAM0XViJhnylegZP1bqjeN3jL5pkqPIj2whr8llRiM7--yt0-S9uYBdtyQncYwbvHgXSgKGr5HzpoOBcRiyLGkI7I1TftLbRbUcDR2Q.jpg" width="400"><br>
 
 رییس دولت چهاردهم جمهوری اسلامی که به هند سفر کرده است روز جمعه ۲۰شهریور۱۴۰۵ در پایتخت این کشور اذعان کرد که فشارهای آمریکا بر ایران به مرحله «دشوار و خطرناک» رسیده است.
 او با اشاره به این که جهان امروز در یکی از «پیچیده‌ترین مقاطع خود» است، خواستار «همکاری عملیاتی» کشورهای عضو بریکس شد.
