@@ -3,8 +3,60 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-13 16:28:22 </h5>
+<h5> 🟢 Updated at: 2026-09-13 20:21:23 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-13 18:43:56
+
+<img src="https://cdn4.telesco.pe/file/aWMT8plSOBwBz2Ifgr13bOLljKMIStkXbh4um6oZQ2Imk0UxsDPEFWvJDEwBcfTuGesWplwk8k0nszzQGyaFbjE2PLgds2JTOSYWt4s0fh7b3uL2cfpN7RWNh7ioAdMO_-TGo2yb_xcrp9_X2mgdAJ3YEmMb8xLX8Td0oFzZjt11UC0Y08KuCURuqK9NaqQ9sDwpRLuPkx4DJSg7TpwjNK0EfNWefH4QTi53ENXd0G9VjmeoV0fcFdo3X5hvOWG6lZgvAl5gFQmLyWaoziVUcNII9RfCKIhmgPKaNf1fX6AF8_yOrALijoHIbV5CwMnSuhVNS8L_o8B1h-7vieetTg.jpg" width="400"><br>
+
+حسین رسولی‌نسب، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در شاندیز، به اتهام «محاربه» از سوی دادگاه انقلاب مشهد به اعدام محکوم شده است. او در حال حاضر در زندان وکیل‌آباد مشهد نگهداری می‌شود.
+خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، روز یکشنبه ۲۲ شهریور ۱۴۰۵، گزارش داد حسین رسولی‌نسب به «محاربه از طریق مشارکت در تخریب اموال عمومی» و «اجتماع و تبانی علیه امنیت کشور» متهم شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78357)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-13 18:28:59
+
+<img src="https://cdn1.telesco.pe/file/eAvyHzX7gIwYQRi80l2u_mWRIPlXwDiJ7WUhpeU-NqzPdiO5j0Gr14pX7VbibYAB1Ny_CvKEYWvgGeaPicn-HoLiGnfOfBASwotMdaIR_lA8ULtiogAh8xCqs5Z8bP29d6itdPOdWCJPXd7y1d1F4mFZzgOxzl6eqNjPDtJJR-NRXy8aaNc8FnIW7TOqvZLqRKAM6LlnweGiMxv6XoNNYXd_5sah2ssXMoAcxRI4y_BlHeJqpnWbUb6uXurVrQ3Hph3GtI3RPbu_freKS5E3P6LYwUlhWo2YYfnIXXkf6Aj8zns9Y0o-8LEC3Zsdg3raeQ-lZ94GZaHo1SIM33srug.jpg" width="400"><br>
+
+سازمان ثبت احوال: در کارت ملی‌های جدید از هوش مصنوعی و بلاکچین استفاده کرده‌ایم
+quotes
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78355)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-13 17:13:01
+
+<img src="https://cdn1.telesco.pe/file/PUfGMuRoZXkr7NF_37L2Tv0M5PHDp7cIYpxRHLMX80xehi8zjyLzyyvUZypGKgy_baSQJtcQxACqhmwx-kZmNitow7RA4c-l_TQiy_hpiyHQHMRtb_2roARmBe0pW2swuXAQ4CHEqSEx0k7drEXcS5RaJjxH69NzOFH-EkuIjrHRAywIZ95G7iQgkjuKL5LCxVmhY1VRIcERlKHIHLLuOnQ2Y51rOjWBgfN8MsWfqMJGKrk-L8jbZuRhqoa7vD3nRfhdUzTET57jGK4w1xbCjEzmupVe-8E2XOZ3nHhFL88PindQximfus1A6GfSIgBCz_bJnR9NBK_jtdJRl09JcQ.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز یکشنبه ۲۲ شهریور۱۴۰۵، گفت «موضوع ایران» ممکن است پیش از انتخابات میان‌دوره‌ای آمریکا پایان یابد، اما در هر صورت جنگ با ایران بلافاصله پس از این انتخابات تمام خواهد شد.
+ترامپ در جریان سفر به ایرلند و در حاشیه مسابقات گلف اوپن ایرلند، درباره احتمال توافق با جمهوری اسلامی گفت ایران به‌شدت خواهان توافق است و به‌طور مداوم با آمریکا تماس می‌گیرد، اما واشنگتن تنها توافقی را می‌پذیرد که به گفته او «درست» و مطلوب باشد.
+او همچنین در پاسخ به پرسشی درباره دیدار وزرای خارجه کشورهای خلیج فارس و دریای عمان با ایران گفت این موضوع برای آمریکا اهمیتی ندارد و تصمیم درباره دیدار با جمهوری اسلامی به خود این کشورها مربوط است.
+قرار است این نشست روز دوشنبه در عمان برگزار شود. ایران می‌گوید یکی از موضوعات مورد گفت‌وگو در این نشست، مسیر جدید تردد در تنگه هرمز خواهد بود.
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، نیز بار دیگر گفته است شرط ایران برای بازگشایی تنگه هرمز، بازگشت آمریکا به تعهدات خود در تفاهم‌نامه اسلام‌آباد است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78354)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-13 15:54:59
@@ -268,54 +320,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78337)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 22:42:10
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/78336)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 20:46:03
-
-<img src="https://cdn4.telesco.pe/file/o0oTDSpkMmo6o6uSp1u1rx7xQrM0WOTvtC_uSGu4YjOjHLmVZG2bJStL75J2Yjwe9qiE0KWzRu9pNlwGzAS0mgQXQud8xQ14cIEioJbFjprpLNgRNIxYkbWGdjEEi-txnzYeAVLtj-MfkyZENVYv2kGrVS83qus2MnLfRSH9j7UBSV3nC1ewZSmo7vsKgmG95AopYITiPEEqQFHvm4Bq5v5pWKi_v0WAEj3LAazKqE5hQo3KAM0XViJhnylegZP1bqjeN3jL5pkqPIj2whr8llRiM7--yt0-S9uYBdtyQncYwbvHgXSgKGr5HzpoOBcRiyLGkI7I1TftLbRbUcDR2Q.jpg" width="400"><br>
-
-رییس دولت چهاردهم جمهوری اسلامی که به هند سفر کرده است روز جمعه ۲۰شهریور۱۴۰۵ در پایتخت این کشور اذعان کرد که فشارهای آمریکا بر ایران به مرحله «دشوار و خطرناک» رسیده است.
-او با اشاره به این که جهان امروز در یکی از «پیچیده‌ترین مقاطع خود» است، خواستار «همکاری عملیاتی» کشورهای عضو بریکس شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78335)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 17:21:02
-
-
-
-خواهر امیرمحمد شاه‌کرمی با انتشار ویدیویی در صفحه اینستاگرام خود، از حضورش در مکانی خبر داد که به گفته او، برادرش آخرین لحظات حضورش در آنجا را پیش از بازداشت سپری کرده بود.
-او در توضیح این ویدیو نوشت: «۱۸ شهریور، برگشتم به همان خیابانی که آخرین نگاه‌های برادرم آنجا بود؛ تا صدایش را از همان‌جا دوباره بلند کنم. این‌بار ایستادم برای صدا زدن نام امیرمحمد شاه‌کرمی.»
-در این ویدیو، خواهر امیرمحمد با در دست داشتن تصویری از برادرش، نام او را در همان خیابان فریاد می‌زند.
-امیرمحمد شاه‌کرمی، نوجوان ۱۴ ساله، در ۱۸ دی‌ماه در شهر قدس بازداشت شد و پیکر او حدود ۶۰ روز بعد به خانواده‌اش تحویل داده شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78334)
 
 ---
 
