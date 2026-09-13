@@ -3,8 +3,49 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-13 11:18:19 </h5>
+<h5> 🟢 Updated at: 2026-09-13 16:28:22 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-13 15:54:59
+
+<img src="https://cdn1.telesco.pe/file/Kgj3WpGSW5UXqnrHXFdoM8vujH-UlYzHDb3bYLP2mWRZLTgn3YwdMZsCZgHjs60_3kAYxp36U4fPUDJ-ZBIo8CXRoTPQysZlgx9R69MGwIiK2ficc_QDoU-wzXhSzJoNBGRagV0hMlLqKWVUe1cH5zn5Xookg-ukGGCG9K7bxx9bw2rUaRH_huuMAqRmycoQ2TWPHrz8SQY4WCyN7WF5ljH7hg22EV2r8_FVednk8cBavlXm0UuvBcJuOLbCQEfukavcKCsuctNVV6FEhoo-fyu9ZtB47qtsiqzLyJuCNcqDzcE6D9hSU5XVWcXzHHjEcnn1yj9E0C3lc1cLFQIrSg.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO) روز شنبه، با صدور یک هشدار امنیتی، از هدف قرار گرفتن یک کشتی در تنگه هرمز خبر داد.
+این نهاد نظارتی دریایی اعلام کرد: «گزارشی مبنی بر وقوع یک حادثه در محدوده تنگه هرمز دریافت شده است. یک کشتی هنگام عبور از تنگه هرمز هدف اصابت یک پرتابه ناشناس قرار گرفته است.»
+@
+VahidOOnLine
+امیر تیموری، فرماندار شهرستان قشم، اعلام کرد یک کشتی تجاری حدود ساعت ۵ صبح امروز در محدوده جزیره هنگام و ساحل شیب‌دراز جزیره قشم هدف قرار گرفته است.
+به گفته فرماندار قشم، در این حادثه یک نفر کشته و سه نفر دیگر مجروح شده‌اند.
+تیموری عامل این حمله را آمریکا اعلام کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78352)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-13 15:53:32
+
+
+
+تور اجبارى اتاق شلاق براى "عبرت" متهمان
+یکی از شهروندان با ارسال ویدیویی که مخفیانه از اتاق اجرای احکام شلاق ثبت کرده، مشاهدات و تجربه مستقیم خود را با بنیاد عبدالرحمن برومند در میان گذاشته است؛ روایتی که به‌زودی در قالب یک شهادت‌نامه تفصیلی منتشر خواهد شد.
+او درباره انگیزه خود از انتشار این ویدیو پس از چند سال می‌گوید:
+«آنچه در جریان بازداشت و صدور این حکم بر من گذشت، در برابر حجم بی‌پایان ظلم و بی‌عدالتی شاید اهمیتی نداشته باشد؛ آنچه برای من اهمیت دارد، تاباندن نور بر گوشه‌ای از این سازوکار مخوف است تا همگان ببینند مردم ایران برای داشتن یک زندگی معمولی با چه مجازات‌های تحقیرآمیزی روبرو می‌شوند.»
+@
+IranRights
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78351)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-12 23:18:16
@@ -103,7 +144,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-12 15:59:31
 
-<img src="https://cdn4.telesco.pe/file/bdkCnKQRx5MYMKD8cd5KhMuOi5V1U2KV_iSG2MlpJ93ycJkki0-he9xqN_rhAVQMkG_wzuM8TCBTe9LxjhEG9Lc2lsXbiKYRGHVBOgHBP_LJ5xsSyr_5DLY1lygS2PEEbpXzC5vryzWtqf7VPwaiNtgwWGDWmaOfr8g6NZwBzo-Sqly2pCRWgfa1q13_nsO_D77vSWi0ePuV5kehoardqOoo2lyUZg67t6xYawHCsLaz6pFyDZzUxPWvgAQtA8QJCoVUrBbRYWAwYabkDS9AEnK2jifnZX1NPIKw0PepaLzJAsHbpJfs-GSs3QQlyijlDQ6kLh-N9Wlq-Lap_dGfaQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/abkLNDnawJVPDu-XKn6H6EdRjgHBlDoIcwKb6Q9Ca8w7VO-V6pOtxlpQN_O3bBuAqnYHZtCPYWdwlIQv7T1rGsyq_2As3nVpfQRaXh7t3f8GpC8Er5cAQ25lVNOmIgjt458VVLgqsb7XTkhDE92j6eripHfNg_a3hNbZ5b5PQhrqv6KaZMzfsniKByWjhr8SS8DqMLJDPFEnSQXqHu7BxcHMTgPtTGzy4_A6-Wv4n3RAXeYvP5e5Eqs-ybawRq99rO8njetvw1_jE0sPCClyMPnauFt2zKS8Rav-FUa0YNaWebKkO9uUVYqnQKd4MxYbJVw2jvbaR1PQi1X9F15ZJQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، گفت احتمالاً جمهوری اسلامی مسئول حمله هوایی به عربستان سعودی بوده که به تعطیلی خط لوله شرق به غرب انجامید.
 او روز شنبه در دوبلین و در پاسخ به پرسش خبرنگاران درباره مسئولیت ایران گفت: «فکر می‌کنم مسئول‌اند، احتمالاً خودشان‌اند.»
@@ -140,7 +181,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-12 15:51:19
 
-<img src="https://cdn4.telesco.pe/file/mFAovC0GrvL2JaCOJY_xGJBNp_DGTC_NM00vjOwrYGuyxZQN5VLni7XeqZ1bUvGGUcrhhWj41GJkPjKYBnAL5TGHbb9LEn4zEhd7lkNbnTx_U_WoMdDLo77o7QAVQiFFQKm1Q0W9hkOCqYwjrODdqPBozMnGew7SSnB6gUkI1Ki240NevSY4iaLTJi1H7YEx0Vet3hUYP-rS1crHnIOxj3O0OIALCXWng-aGSlfx7Y2gSQ14NTHDPSoLaqX7J4DIhUK6z4oTPSwg4gj4Qam0ifpMBqxH-zq6Uh14DM4AmVPSJiqUmAvf0wfC3-jK6qz8QMhT4SoA-SzFE3-dkA430g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/VtWQS4ovRZPuY8K9b3sbdTM18pG32EUNbewvaAz5LhKFIZSXP2FRjSBlDnZb5KrKaoFQpbYIJ09PBj7mM3ZRpxXVMBsobNA-GGpm8MV5m9KjGz1OVFdNm8fZ_YN2V2SLH0E609Bcs6Q1UvvGlMuws8XjhOcFdwIuoJ7QmxMQ0b7NmwvfVqbQKzxUQiEShf-20_fUdpVZG3Cy7DOrxYieqQ-0B4z-2-bukqmPo-vPsJnUOkuJ6bSiu0ZXA65eCHtyZEE-yd8DufF0Kya_3XVDOXzBZAj7ovUnTT12PM5wXErKbRI2af9blAGi1_30C0RZlOcUNmE6KI7Ot1rzPC9n-w.jpg" width="400"><br>
 
 معاون استاندار خوزستان اعلام کرد مرز چذابه نیز همچون شلمچه از بامداد امروز با اعلام مقام‌های عراق تا اطلاع ثانوی بسته شد. بنابر اعلام ولی‌الله حیاتی، هیچ تردد کالا و مسافری از این مرزها انجام نمی‌شود.
 ساعتی پیش رویترز بع نقل از دو منبع امنیتی نوشت عراق پس از تازه‌ترین حملات پهپادی صورت‌گرفته به عربستان سعودی، دستور بستن گذرگاه مرزی شلمچه بین عراق و ایران را به عنوان یک اقدام احتیاطی صادر کرد.
@@ -158,7 +199,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-12 15:50:59
 
-<img src="https://cdn1.telesco.pe/file/VG0yeVKO7Xt_96E-7ae0vgA76-sVgmlvmbvtix_tnko-T1E24op5Btr43BduFH1j7XTbmmi8xSi2APCiO7uz-c8Xw6YQmuQx90beE4-f8oX40h0fjkjzpAV0PC8xQhe-DPf4BLYxm1nlorkcvFUV_Sd25JPuS5hB1X_6cY-_No5RWmrp88sIqaxt-bfDR0ySs0K6E6g-iF-TcgINICRrDEFPWgNiHZbK-i3RDYOnu5uOWgt8xQyNSZPAh89ugpwuSHpx2CO5lqJoTGcIpPpshMFNuGKOu313qptn3-ZPw3tDVx85swvdSC7efi0V5bmXD0BG7_C8B0oJ5S0x0bbPZg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/euNj5LbUW8NS8vYnhlZPe0KsiB0NPOEmn4Gl65RqNnSGM1VZktKiTK7dtO-Beg_vOvv2N6CGLZSkKP_kwgYCWoE6gS2709Fntb0RnAj0Aedokbl6_qOJ7ty9j-aHjGPNpLoxsBqqAmatucKWqltDMC1-_gg-zEJaha81BjpmE71uKe9sCMlqQS3cZZwLiynZtw_6uhj-TVqsHmrzHMZZ4czHpLk2NJd1wo9Gt5bJMwotE9OxdKgnCkVuvaTfBSaejW60J6eq8xiviu59omLCVPHbmitlxH8C5EqLBoYLu4WYOA_ENANLedJHVKMgE-tsKmi70v9Fe4daQQScTQExlQ.jpg" width="400"><br>
 
 درگیری میان نیروهای نظامی و امنیتی جمهوری اسلامی و افراد مسلح در منطقه «بخشان» سراوان، پس از بیش از هفت ساعت همچنان ادامه دارد. «شیوار نیوز» از حمله به نیروهای حکومتی از دو محور، شکسته‌شدن بخشی از حلقه محاصره و خروج شماری از افراد مسلح از محدوده درگیری خبر داده است.
 این درگیری حدود ساعت چهار بامداد شنبه ۲۱ شهریور ۱۴۰۵ و پس از محاصره یک خانه مسکونی آغاز شد. شبکه اسناد حقوق بشر بلوچستان پیش‌تر از استقرار گسترده نیروهای نظامی و امنیتی و استفاده از سلاح‌های سبک و سنگین در این منطقه خبر داده بود.
@@ -182,7 +223,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-12 15:48:41
 
-<img src="https://cdn1.telesco.pe/file/kQ9HvDiudHdNMAO5b043mVGy-UxIpV3uXblMd-vPYVBJ3PRbxzpWdOCCrzUOxQEYEeF3Pv4OqGOj95jjBeQF5ZXyK_sr0bTjdAGtUEPd2-wwf9BGCDEW17mkm5G_USkMnwiCt98C4u1X9e-kCahMNb9jDx0q2dErvylxuNBKtwd6BI0eWW22v7jwhZYwi5rZryLpNxVYoaNDg3XQfZt6xgh_AGk3qpXja7htPgzzIAT4tm6vmIjxrGjuGf4s9WxUI05DP-ZPaoiP4cAVeUEVq5dnOFk-gUv6OJuK3s9TaR4R2xPD1lWWS6Gcv2M-VC17hX9JijC1Qg9MF7CVFbng0w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/StBL0RXYBedEv45qAm42h7txGsF_Gtw9SUzPrnhRVYNcd7hnhdfY_hAZyH9GrgDXugWWHzTpbXhqvWUv2DY_jZdivSGIOE1B6-Ob_H_H0_6UCozMf407WwgVFg6Rhwy-vUZ8W3wf1uVsSCZf4L1MLhn9tmV4BKwHbwWmZhK7b2RM0tgrltGZlxi9jDN-WL_uz-DLuXSIAIEZDNXoqa8IF9FH19L_3rG3D8QMKzDtBMnQOrNhER9PdbelUGuR7_Iq0tvi2qpfa6FVoV-UEDr2m9KQmJrbYUyDLHrOrLKd_ciooBxc5wskKzh7MKjRP5Xn0Qk6sXWINMo5yArpI3XuQg.jpg" width="400"><br>
 
 سودا ابراهیمی شمس‌آبادی، بلاگر ۳۳ ساله اهل بندرعباس، که از ۹ فروردین در بازداشت به سر می‌برد، به اعدام محکوم شده است.
 بر اساس این اطلاعات، شعبه سوم دادگاه انقلاب بندرعباس به ریاست قاضی خواجه‌حسنی، سودا ابراهیمی شمس‌آبادی را با اتهام‌هایی از جمله «توهین به رهبری»، «فعالیت رسانه‌ای و تبلیغی برخلاف امنیت ملی»، «اقدام اطلاعاتی و امنیتی به نفع دولت‌های متخاصم» و «عکسبرداری و ارسال تصاویر برای رسانه‌های فارسی‌زبان خارج از کشور» به اعدام محکوم کرده است.
@@ -275,65 +316,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78334)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 17:19:02
-
-
-
-نتانیاهو: تسلیحات کشف‌شده در علی الطاهر را ایران برای حزب‌الله فرستاده بود
-نخست‌وزیر اسرائیل روز جمعه ۲۰ شهریور اعلام کرد نیروهای اسرائیلی در جریان عملیات در ارتفاعات علی الطاهر در جنوب لبنان، مقادیر زیادی تسلیحات را از زیرساخت‌های حزب‌الله خارج کرده‌اند.
-بنیامین نتانیاهو با اشاره به تسلیحات کشف‌شده گفت: «مقادیر بسیار زیادی سلاح از آنجا خارج کردیم که سال‌ها توسط ایران سازماندهی و تامین مالی شده بود.»
-ارتش اسرائیل پیشتر با انتشار ویدیویی اعلام کرده بود، نیروهایش پس از به دست گرفتن کنترل عملیاتی ارتفاعات علی الطاهر، زیرساخت‌های زیرزمینی و روی زمین را منهدم کرده‌اند. به گفته ارتش اسرائیل، این شبکه بیش از دو کیلومتر امتداد داشت و شامل ده‌ها راکت، موشک و پهپاد و همچنین موشک‌های ضدتانک، مین و مواد منفجره بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78333)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 17:16:31
-
-<img src="https://cdn4.telesco.pe/file/Z4B9OV8Xge6mTU_mGgIgFlnRXu3RcaMoosdMtzwmDKKa8I9Egzp8u4uAr2_w2ps8tP233xEdrz654DxUyLog-aSVd4wLgKppkktgixZc0TNCxNDQBJaB6ssULGiqe4ihP3ISBg8B78-tWqp0-_PlQeYW3l3LLqkgcY_FANQajVEL_Rz7CkUbh6_uepQzpWsEM-iS8JUpOcagLEi4oCwwvINJeaHTiW_XPXK96WErAEe933kzmW5R6dPmVvUNemBDk6vtq0Db7CQ0vbX9ayzxCXRGr_Ytn2lj0XzHVDRiwV4jSqSbRB6EnzKXcyQovEbAEBj0M8K_K13zHNoWrF4i5w.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهور آمریکا، گزارش‌های رسانه‌ای مبنی بر آسیب‌دیدن هواپیماهای آمریکایی در جریان حملات موشکی اخیر جمهوری اسلامی به اردن را رد کرد.
-او پنج‌شنبه ۱۹ شهریور در مصاحبه با شبکه نیوزنیشن، در پاسخ به سؤالی درباره این گزارش‌ها، گفت: «نه. هیچ خسارتی وارد نشده است. هیچ اتفاقی نیفتاده است.»
-کمی قبل از اظهارات ترامپ، شبکه خبری فاکس به نقل از یک مقام ارشد آمریکایی نوشته بود که موشک‌های بالستیک ایرانی در جریان حمله گسترده موشکی سه‌شنبه، ۱۷ شهریور، به هواپیماهای جنگی آمریکا مستقر در اردن، آسیب زده‌اند.
-فاکس‌نیوز این خبر را به گزارش جنیفر گریفین، خبرنگار ارشد خود منتشر کرده است.
-شبکۀ خبری سی‌بی‌اِس برای نخستین‌بار این موضوع را منتشر کرده بود که در جریان حملات موشکی ایران به پایگاه نیروهای آمریکایی در اردن، «چندین هواپیمای نظامی ایالات متحده، آسیب دیده‌اند».
-ارتش اردن روز چهارشنبه ۱۸ شهریورماه با صدور بیانیه‌ای گفته بود که ایران در طول شب قبل، ۲۰ موشک بالستیک به سمت اردن شلیک کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78332)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-11 17:16:00
-
-<img src="https://cdn1.telesco.pe/file/jTgds8V3Lp16HZtg08w5QRsW-wzXDXJBEQKpnbp3_i4ZBaTDDPQQCj3c_aSaHSa4MpgzMPHfGS1RY84_Z7xlp94YOhU0KRNjxjYuOdYuJUXb1tXOyC_GOIdbeo5BkWjib_jJbKNCp6APGsjZ06fK9by-lqDeAuxEi1UjQbfyeJ4eL29dsQCsF6HAbL9_H2GADE-FEgDnrs93kCgzH_ODouOIjJUbwzPIyp0TEULJ7fYaVsT6mgj_IMCFe4mUVqENl7tb8H6xL3GKj8L83pAHpPND4l7AFoZ1e4Ct1td6OAG3f4T4hPQAP2-u-kjGNeg_CIdmDKcvkKmQordyb4clwQ.jpg" width="400"><br>
-
-شرکت آمریکایی «آنتروپیک» اعلام کرده است که سه عملیات مرتبط با حکومت ایران را شناسایی و مختل کرده که در آن‌ها از مدل هوش مصنوعی «کلود» برای تولید و انتشار محتوای تبلیغاتی، طراحی سامانه‌های نظارتی و تهیه اطلاعات مرتبط با هدف‌گیری نیروهای دریایی آمریکا استفاده شده است.
-این شرکت روز پنج‌شنبه ۱۹ شهریور در تازه‌ترین گزارش اطلاعات تهدید خود، مجموعه‌ای از موارد سوءاستفاده از مدل‌های هوش مصنوعی آنتروپیک را تشریح کرد. این گزارش فعالیت‌های شناسایی‌شده و مختل‌شده از دسامبر ۲۰۲۵ تا اوت ۲۰۲۶ را پوشش می‌دهد و علاوه بر ایران، مواردی مرتبط با چین، روسیه و کشورهای دیگر را نیز بررسی کرده است.
-بر اساس این گزارش، آنتروپیک حساب‌هایی را شناسایی و مسدود کرده که از «کلود» برای اجرای عملیات نفوذ با هدف تاثیرگذاری بر افکار عمومی استفاده می‌کردند. سه مورد از این عملیات به عوامل همسو با حکومت جمهوری اسلامی مرتبط بوده است.
-آنتروپیک می‌گوید هر یک از این عملیات از سوی فرد یا مجموعه‌ای انجام شده که یا مستقیما در یک نهاد تبلیغاتی حکومتی ایران فعالیت داشته یا به نمایندگی از چنین نهادی کار می‌کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78331)
 
 ---
 
