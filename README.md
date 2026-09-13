@@ -3,8 +3,43 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-13 20:21:23 </h5>
+<h5> 🟢 Updated at: 2026-09-13 22:37:20 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-13 22:02:49
+
+<img src="https://cdn4.telesco.pe/file/JZw2Z1yARoD7fzz9rGozbJOjPuQEe124Qs9Pw5brtfx-SOcPLOrowy6xy3TNxnAfTWAlGnEl4h099FjyRvIFs3uljfSQxFX97nOJevaQKjGOLwLBgkcQoAcp_WSAZzEPEVJkwypli9_34r_HYwFFH2165Xz1aCPXYsuo3Vt_H3Ewv_o0ISY67fjhYaQDNXFRKI5_rhue0wYGz1MhoGzkcy7YvnVyh64OYNdXDXRxqXODJteKGDTIz6V7qu_XtqQ1_NDrScKeFRQ8dollKhtFor3vVVCVsGUu9zK7iwvMDwTmsOL5PMKdoL4Jilk2440uIRQMMT7GENzGKkHiWIpxGQ.jpg" width="400"><br>
+
+روزنامه نیویورک تایمز روز یکشنبه ۲۲ شهریور ماه در گزارشی به نقل از چند مقام ایرانی نوشت، مسعود پزشکیان، پس از حمله نیروهای سپاه پاسداران به سه کشتی تجاری در تنگه هرمز در اوایل تیرماه گذشته، به‌شدت خشمگین شده و این اقدام را «بی‌پروایانه و غیرمسئولانه» خوانده است.
+این حمله‌ها که منجر به آتش‌سوزی یک نفت‌کش حامل گاز مایع قطر و آسیب به شناورهای دیگر شد، درست زمانی رخ داد که ایران به توافقی با ایالات متحده برای پایان دادن به درگیری‌ها نزدیک شده بود.
+بر اساس این گزارش که فرناز فصیحی به نقل از مقامات ایرانی نوشته است، پزشکیان پس از آگاهی از این ماجرا با احمد وحیدی، فرمانده کل سپاه پاسداران، تماس گرفته و با لحنی تند خواستار پاسخگویی شده است. با این حال، وحیدی ضمن سلب مسئولیت و ابراز بی‌اطلاعی، به رئیس‌جمهوری اعلام کرده که نه مجوزی برای این اقدام صادر کرده و نه شورای عالی امنیت ملی از این عملیات مطلع بوده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78360)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-13 21:21:10
+
+
+
+چند روز پیش، پس از اعلام نرخ سوم بنزین در ایران، تصاویری واقعی در شبکه‌های اجتماعی منتشر شده بود درباره اینکه بعضی از تلمبه‌ها در جایگاه‌های سوخت (پمپ بنزین) امکان نمایش همه ارقام بنزین ۱۰ هزارتومنی رو ندارند و مجبور شدند در ادامه نمایشگر یک صفر بچسبونند روی بدنه تلمبه.
+حالا محمدباقر قالیباف، رئیس "مجلس شورای اسلامی" در «ایران»، اون انیمیشن رو پست کرده.
+ولی درباره قیمت سوخت در یک کشور دیگه:
+mb_ghalibaf
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78358)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-13 18:43:56
@@ -122,7 +157,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-12 21:05:34
 
-<img src="https://cdn4.telesco.pe/file/Utz_4L9d_xGllKNk6xhgBX4uWdP9ogMGHRdp9bJInf1f2fxP5LLHmCFRxmvVEzxzNYvp15x0gWJPv_z0GHYA2gGEBsncM1W6SL2z5BklTcPWU2lLaKC3qVksLPi_3q_KD3x_TQ-8Wkuv13mCXrxJ_3sat0FALMuE6BdX1iB7VUtuH8ZS_JrIlcC4AYjH7tN_RoTTxu0CGcoy_FP5KrUkTxmEN0E3_7sGALi-3b5uHaLZivDwqIqJ53L6hYdczuS1KFHQW06YyvqyNWi_PpzrN5mi3l0rYn2CNGl83zodIYqqdUgQwIpSWjLzTkHJlVWhgVnBWfW2kq49hYGMEluj2A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/AZDtxkdnLfFX_mvR-ahq8YXKpdAFrTfyZPsIWbt9kP3TZuHzkEqey0BQbSf8gEmbtZV-LVfHtl-2PS6fVgCQBTa9LScjeCzmB5pqaeiM8MhqX4mLrn-pkxr0Q4WREfz-Rp8ZAuyy3PV-4XInnkdHqtd2mWvX2qFZcFsd7zE3tQj4LeqivDVFShXif9qwIH80K4CO1WdG0vaRgnkrgKqjStOxal9bip9Qpxn36Y1jNtDmeBJbJ7EfpEGqGHBvjVu09IFduxz7o3Dp_lMq4rU3zl8fRgFLO_EKfkbhEyA_o024PJyNbd_hm2qt4GdETBv6mpJU6DUtGZQpnSB8EhsXLg.jpg" width="400"><br>
 
 واژگونی یک دستگاه اتوبوس حامل کارگران مجتمع مس سرچشمه، در صبح شنبه ۲۱ شهریور، یک کشته و ۳۸ مصدوم برجا گذاشت.
 سید محسن مرتضوی، رییس مرکز فوریت‌های پزشکی رفسنجان، با تایید این خبر گفت ۳۸ مصدوم این حادثه برای دریافت خدمات درمانی به بیمارستان منتقل شده‌اند. به گفته او، بررسی‌های اولیه نشان می‌دهد ورود یک دستگاه ون به مسیر حرکت اتوبوس باعث انحراف و سپس واژگونی آن شده است.
@@ -139,7 +174,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-12 21:04:36
 
-<img src="https://cdn4.telesco.pe/file/BOilBWpWDX1zAW8HdDDrcMU0bAMfbF2gGYtWtm_mULMplJIIfcrL8UBdtcvvTg6cVU3Ob0PQxKNFqFgCquoBaaZ0xVKBsB--Ra-93k1-CpksYgzEdd-f26E0s8mkSP9uigr2TlnNHJIdKDwKA3qOy-1mKN6EYryKB2d_UFe7IzB_JdrGLcudFzWW_nak-EV-mgnVDZAZqpceJKWFpQpFkJ13XgHc-x_bFRssEj6SXPEQS24sRkWrWxp7bGGwvM98ov42eO_8NQWR-wlJVpbHPNhdE7prWp1KxsqmEy9k92kixTVYgmAHTq5rba0CDKjnAzn_aOp3Bf2CKSZdlM47hQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/SfCigAYjEPWeKd81EZDb7SivSCOHymbVPvTEC5Y8VtrAM-3LLOJUjePuphGszwb5TvMMTA0UEjfLMa6DWFBxBwhF1x7omIWigXkoDwctzE-Dyx3sjdKDDy9g8IkxY_wYaeAk2lS6xgDpbuVH0B60KtskEF_VFmjtPAbj1lIC_KB9t5Ty6E2PdhDehU0AlVgI33VlgPfB_Mg-aGAplFljLAhk3_GNp_GP4OCxO3nIT0YbHxd8ieal6erDqVtL7TRir-EhcO2dCYogthAKMEHPDNL8Ye-biRPMkASHiPEICeGk0W5AYIyHDNqo_vwoWs0H0-exikF9klHGCB6vziD38Q.jpg" width="400"><br>
 
 منابع امنیتی عراق به خبرگزاری فرانسه گفتند نیروهای امنیتی این کشور سکوهای پرتاب پهپاد را منطقه دورافتاده الطیب در استان میسان در جنوب عراق و در نزدیکی مرز با ایران کشف کرده‌اند.
 همزمان خبرگزاری رویترز به نقل از دو منبع نظامی در عراق اعلام کرد این منطقه مرزی پس از کشف سکوهای پرتاب پهپاد بسته شده است.
@@ -157,7 +192,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-12 21:03:58
 
-<img src="https://cdn4.telesco.pe/file/mgpWSjLkfz7qVSgZc_jfKsd1__Ji34Y6bo7bKnXMePBiYHmsx9TvjCjEVe9-KzPe_w-j9jD77MBraRA2ExBi9Z8B8mnVVQDMK9n-l5NLdTF_TTVINYnp0bVOeQNTxqI73ccbIk_Rr6MT4RnVBoelaNZUPVNrnkNPh1t3elEpK_WP7McOuR6mF2u5Go0nAmorASXTVy3__NSGmlnUzyeSjEJDZ4Wa3czyDXSNJt8ntf6uoPqWgavyrSLm_fS7afOfKrZuqud7_rNIRlLwetCo1r0KnKBWAsZyXI4rBkFqsAy0N65908hT3Q_9XZSIvYf7ljpoOU2YxxyFKLpv_FH1-w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/syGTsGn2F7b6vJWWpcajQhwvY0i9twKN_TBHFf_chgZyrpL5tW_4rdmNNpPJspl_fThT6YOb50C-S93u-H8ldpMY8OU0_ctvbIHQFtS4NGRC2NwymJiK80yBrLXYNAglpfbXlvM7A-46PYonMkj8PBYhh6OwTvVCtWVYi1gxrqZ_YrLiyk72e31aMVE6r_JAvlnlDRAa8CDxP_1aim3ivaOxG2eKXRe_0pJSZBUmtJUl_pUBoSPA1_pwdCmsTOJhcq2HQ4x7Q69bP8xWcnrL3eYzvADag6A2Nb9MR1oqFeLl7ltjwJwJ8xiNCRDeW8najQswNuUDtlbOjx24-1-gag.jpg" width="400"><br>
 
 خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، به نقل از یک منبع آگاه گزارش داد تفاهم نهایی جمهوری اسلامی و عمان درباره مسیرهای جدید کشتیرانی، به معنای بازگشایی تنگه هرمز نیست و باز شدن این تنگه به اجرای هفت شرط تهران از سوی آمریکا بستگی دارد.
 این منبع گفت تهران و مسقط پس از گفت‌وگوهای فنی و دیپلماتیک، در اوایل شهریور درباره جزییات مسیرهای جدید ورود به خلیج فارس و خروج از آن به توافق نهایی رسیدند و قرار است این تفاهم به‌زودی با حضور وزیران خارجه کشورهای منطقه اعلام شود.
@@ -268,58 +303,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78341)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-12 15:48:41
-
-<img src="https://cdn1.telesco.pe/file/StBL0RXYBedEv45qAm42h7txGsF_Gtw9SUzPrnhRVYNcd7hnhdfY_hAZyH9GrgDXugWWHzTpbXhqvWUv2DY_jZdivSGIOE1B6-Ob_H_H0_6UCozMf407WwgVFg6Rhwy-vUZ8W3wf1uVsSCZf4L1MLhn9tmV4BKwHbwWmZhK7b2RM0tgrltGZlxi9jDN-WL_uz-DLuXSIAIEZDNXoqa8IF9FH19L_3rG3D8QMKzDtBMnQOrNhER9PdbelUGuR7_Iq0tvi2qpfa6FVoV-UEDr2m9KQmJrbYUyDLHrOrLKd_ciooBxc5wskKzh7MKjRP5Xn0Qk6sXWINMo5yArpI3XuQg.jpg" width="400"><br>
-
-سودا ابراهیمی شمس‌آبادی، بلاگر ۳۳ ساله اهل بندرعباس، که از ۹ فروردین در بازداشت به سر می‌برد، به اعدام محکوم شده است.
-بر اساس این اطلاعات، شعبه سوم دادگاه انقلاب بندرعباس به ریاست قاضی خواجه‌حسنی، سودا ابراهیمی شمس‌آبادی را با اتهام‌هایی از جمله «توهین به رهبری»، «فعالیت رسانه‌ای و تبلیغی برخلاف امنیت ملی»، «اقدام اطلاعاتی و امنیتی به نفع دولت‌های متخاصم» و «عکسبرداری و ارسال تصاویر برای رسانه‌های فارسی‌زبان خارج از کشور» به اعدام محکوم کرده است.
-دادگاه همچنین او را به دو تا پنج سال حبس، محرومیت از برخی خدمات دولتی و مصادره اموال محکوم کرده است.
-حکم اعدام سودا ابراهیمی شمس‌آبادی روز اول شهریور به وکیل او ابلاغ شده است.
-بر اساس اطلاعات رسیده، ابراهیمی شمس‌آبادی در جریان دوران بازداشت، به مدت ۲۰ روز در سلول انفرادی نگهداری شده و در دوران بازجویی تحت فشار شدید قرار داشته است. خانواده او در این مدت از محل نگهداری و وضعیتش اطلاعی نداشتند.
-قاضی خواجه‌حسنی که این حکم را صادر کرده پیشتر در سال ۱۴۰۲ از سوی مقام‌های قوه قضاییه در زمینه‌هایی از جمله صدور بیشترین احکام و جدیت در انجام کار مورد تقدیر به عنوان قاضی نمونه قرار گرفته بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78340)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-12 05:59:13
-
-<img src="https://cdn1.telesco.pe/file/DYYG_kHGBtlC-0vI5ppflqPvmRFdIsP7M1xNsK8eLFIPTeMtUwaj97qmRWEnRXUVBVuTCDwBVFTS9yZrpUtXA31fxy5M-sE-5b_COubb8yrQd8bNOuUzGEqHograEV2NbuKQ950rDxqrIvDJVjrjprpVCKHcOiMoPZti9G9HOtr3CTfUt4-jni701hJj193kPA9mCvtK5W5NUJn-BwHP94_S899jEPoLCF9xdBfCIIa8jcVtMjkHnKk7MDGCM1Pv3JIX0RKuQ9xyP_cYzphMTuDVFKnStAvNxFYeDbmBx8s9DRx0dLksqETT5AdBpioADu4ohhHNQDlaaFjtrn8cVw.jpg" width="400"><br>
-
-وزارت انرژی عربستان سعودی روز جمعه ۲۰ شهریور با انتشار بیانیه‌ای اعلام کرد که خط لوله انتقال نفت «شرق-غرب» (واقع در مناطق ریاض و مدینه) صبح پنجشنبه هدف چندین حمله قرار گرفته است.
-در این بیانیه آمده است که به دنبال این حملات، عملیات انتقال نفت در خط لوله مذکور به صورت احتیاطی متوقف شد.
-این رویداد همچنین منجر به مصدومیت تعدادی از افراد شد که خدمات درمانی و مراقبت‌های پزشکی لازم به آن‌ها ارائه گردید.
-@
-VahidOOnLine
-وزارت خارجه عربستان سعودی اعلام کرد خط لوله نفتی شرق به غرب این کشور با پهپادهایی که از عراق پرتاب شده بودند، هدف حمله قرار گرفت.
-وزارت خارجه عربستان سعودی افزود بنا به درخواست نخست‌وزیر عراق، در این مرحله تصمیم گرفته است اقدام تلافی‌جویانه انجام ندهد.
-@
-VahidOOnLine
-خبرگزاری رویترز گزارش کرده که بغداد دستور تعطیلی گذرگاه مرزی شلمچه میان عراق و ایران را صادر کرده است.
-دو منبع امنیتی عراقی به این خبرگزاری اعلام کردند که عراق این گذرگاه را به عنوان اقدامی احتیاطی و در پی حمله پهپادی از مبدأ عراق به خط لوله نفت شرق-غرب عربستان سعودی، بسته است.
-گذرگاه مرزی شلمچه یکی از مسیرهای زمینی اصلی میان ایران و عراق است.
-براساس گزارش‌ها پهپاد شلیک شده به عربستان از استان میسان عراق شلیک شده است. این استان در قسمت جنوب شرقی عراق و هم مرز با ایران است که مرکز اداری آن شهر عماره است.
-@
-VahidHeadline
-رویترز نوشت: به گفته این دو منبع، عملیاتی گسترده برای تعقیب و پیگرد عاملان این حمله به عربستان در جریان است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78337)
 
 ---
 
