@@ -3,8 +3,52 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-14 23:33:49 </h5>
+<h5> 🟢 Updated at: 2026-09-15 03:06:49 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-14 23:52:10
+
+<img src="https://cdn1.telesco.pe/file/QF67Qj3BVLxCop4xkSKGeV9-OYZht6xTnN3vr3gAGiGAK9T2ggW6yNXbYGcRIHmIiyfg-x2PTnU221OvRMmH_TJA-MLstSXrsFY1knBUbJCkqdsG07hRtGnBd7TlfFljrB3mVwPznLF0mKZXk9ElNjtWgjvHN1t03VhHEYApxW9iQUEm1SPBsPh80MNHoUAjbEssMNJxFHPr3bis7aoD-epia7a7Ag9eEAkO13hjQ1Q1DdtuufCL-NPQ7xkDytvoADY6hzAiX2VI6sbTvWiRknKWO3av2oEMxDuG6akYLOLC46lciqZwovkXcblWFrCityNiUkVzDO1K1kxA25g0DQ.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+🚫
+ادعا: سپاه پاسداران انقلاب اسلامی ایران مدعی است یک نفتکش با پرچم پاناما اخیراً در تنگه هرمز با یک مین دریایی برخورد کرده است. این ادعا کذب است.
+✅
+واقعیت: نفتکش «El Gaia» با پرچم پاناما ماه گذشته هدف یک موشک ایرانی قرار گرفت و از کار افتاد. آخر هفته گذشته، ایران بار دیگر این نفتکش را در حالی که در آب‌های ساحلی عمان قرار داشت، با یک پهپاد هدف قرار داد. این نفتکش در حال حاضر توسط یکی از شرکای منطقه‌ای یدک‌کش می‌شود.
+ادعای کذب سپاه پاسداران نمونه دیگری از دروغ‌ها و تلاش‌های آن برای ارعاب است؛ آن هم در حالی که می‌کوشد مانع تردد کشتی‌های تجاری در تنگه شود
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78377)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-14 23:47:36
+
+<img src="https://cdn1.telesco.pe/file/FKECnpvySdOJvxiXOS9g8z0jdHh577q4URexBrP5aZHGjlIBZWvY97VN6ldbP0CURI3YDSMjC2EoquhnxqfInaEAN3vP21kYKKl2DLv_z_iPf5_389C4lrsjCyInX_UqKMb58JkY-QfkE5fH0S08f8w8yimFloK3BbIlgQwlHDe1oAKDOZF5bRT0T42dUor9ehp1nX9tORDEl70CSNhW9Ysoy5gSmVnJztVCG4X59PDjtp6OcK_AFs9HSzrULBrGx1oRz2fC7WwB2basLbsbTh4xtjqZZ_-TRJ9kvpK1qO2nbjhYKFlA02cBWUlY14CrxrDxfP0xHaISST7RddeMMw.jpg" width="400"><br>
+
+دونالد ترامپ در پیامی در شبکه اجتماعی تروث سوشال تاکید کرد که افزایش قیمت‌ها در سراسر آمریکا ناشی از سیاست‌های جو بایدن و دولت او بوده است.
+او نوشت که حتی بهای نفت نیز در دوران بایدن بالاتر از سطح کنونی بوده و دولت او مانع از دستیابی جمهوری اسلامی ایران به سلاح هسته‌ای نیز شده است.
+ترامپ با اشاره به اینکه قیمت سایر کالاها به شدت در حال کاهش است، افزود که بهای نفت نیز به محض پایان یافتن درگیری نظامی با ایران—که به گفته وی زمان زیادی تا آن باقی نمانده است—مانند یک سنگ سقوط خواهد کرد.
+در دوران ریاست‌جمهوری بایدن، به‌دنبال وقوع جنگ روسیه و اوکراین و بحران‌های بازار انرژی، قیمت نفت در بهار ۲۰۲۲ به بالاترین سطح خود رسید؛ به طوری که قیمت نفت برنت تا حدود ۱۲۷ دلار برای هر بشکه افزایش یافت.
+@
+VahidOOnLine
+رئیس‌جمهور آمریکا در شبکه اجتماعی تروث سوشال از کشورهای جهان خواست پس از پایان درگیری‌ها، هزینه‌های ایالات متحده را برای حمایت از کشتی‌ها و کمک به عبور محموله‌های نفتی از تنگه هرمز بازگردانند.
+ترامپ با اشاره به اینکه نفت در حال عبور از این آبراه است، تاکید کرد کشورهایی که هیچ کمکی به آمریکا نکرده‌اند، باید خسارات و هزینه‌های این اقدامات را جبران کنند؛ زیرا واشنگتن این ماموریت را بیشتر به نفع دیگران انجام می‌دهد تا خودش.
+پیش‌تر کریس رایت، وزیر انرژی آمریکا، اعلام کرده بود میانگین تعداد محموله‌های نفتی که با حمایت نیروی دریایی این کشور از تنگه هرمز عبور می‌کنند، رو به افزایش است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78375)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-14 19:27:29
@@ -285,38 +329,6 @@ mb_ghalibaf
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78358)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-13 18:43:56
-
-<img src="https://cdn4.telesco.pe/file/Qiz5EvDT4XqZKwhM7N9Prqo5o8xNdK7hrlLU94bZKbHvNTnyAIMBoDTgIp6cQGN7YPbsnzE9REIcocg8ibuD-j18ogKvgtEHxKlUPltljmHdQX9QZ5D56AlDhru_yy8hEljTmlP3pqhCiKvbkUjzV40kdii-iWU91rgVQlbg4BodnoW28sqtM1fhc9qYUsVMktwasYvMgzYfoDW5gMIhaUp4kNPTAavaYX420VD3lqoPHlevJdt9e9QmQEHeYArkRVfJcZqbmSO9X5ZuKcIhajXNeqCNPWbH9FNeQmcctqBt--v1_wVNWMYHBEBcCFdP3F3brO6dmvkFTvBWDuqLTg.jpg" width="400"><br>
-
-حسین رسولی‌نسب، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در شاندیز، به اتهام «محاربه» از سوی دادگاه انقلاب مشهد به اعدام محکوم شده است. او در حال حاضر در زندان وکیل‌آباد مشهد نگهداری می‌شود.
-خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، روز یکشنبه ۲۲ شهریور ۱۴۰۵، گزارش داد حسین رسولی‌نسب به «محاربه از طریق مشارکت در تخریب اموال عمومی» و «اجتماع و تبانی علیه امنیت کشور» متهم شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78357)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-13 18:28:59
-
-<img src="https://cdn1.telesco.pe/file/pIahZmXZG-hdy7OG6Zgl2DwtQUKABGRYDIxpFj6EMFERY0YtygyxeJVaezKBDhBNCs-u4EVvvGx7WKYTAhIEaqL8oK5lOfiDCHmrZEJUNyh6LU209T_wld64Qvx2ED3THQyeQrLYM9YsXpwLZDwJmPDHyPidRqNYFoOAfAzqZgi0o72eUXwnIqBq5drjg7v5UklUmhrUUQfvF3-qVaEz7UgBqcIlfJo491Ad6l6TDTI5ku0pLHrXOJzAJUal4urMcqStjV82ToVYJj42ayWLXbbIweFbbNXFFnF41z7ci9AJQLyvRpBLio4wb5TqoAKuwdvCxJV85-srvW3IVsU-Sw.jpg" width="400"><br>
-
-سازمان ثبت احوال: در کارت ملی‌های جدید از هوش مصنوعی و بلاکچین استفاده کرده‌ایم
-quotes
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78355)
 
 ---
 
