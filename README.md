@@ -3,8 +3,34 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-14 18:57:56 </h5>
+<h5> 🟢 Updated at: 2026-09-14 23:33:49 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-14 19:27:29
+
+<img src="https://cdn1.telesco.pe/file/rk_USEtZ_xj4diqse49ZsVDiavi8OehHjlVQtFyiCxJ2vcwjEvXQPgEDT3_IBY7f4dvl5-3mdGuyC_c8BD9k6CORrhhvJnpwqqusx4HMSzcNyp4481S9GYmZsyxtj0NXoUutfBzuAucd-4PGjjxswYlBAB-950GsGxtkgp4jkBVJ96jEA7NSkgHYyuzP520TGEQ9hGvPkXZS__YZGooiUwgs4ORzdQEqAk_o8P0zjnMvK6UztQaRsu5Z1nIM2rZcUjw6jNKT2ZT0f-LWsHw7kbh1RWKev-G16SDTFTfQwgH1_shG6hwlnJf_XLVokOqQzzx35y77XnSFb4pKWvwqhQ.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+ایرانِ شکست‌خورده می‌خواهد خیلی سریع و به‌شدت به توافق برسد.
+من تصمیم خواهم گرفت که آیا ایالات متحده آمریکا وارد مذاکره بشود یا نه — ایده‌ای که نسبت به آن آمادگی داریم. از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+ترامپ نوشت: کشور در حال ورشکسته‌شدن ایران می‌خواهد سریع و به‌شدت به توافق برسد. من تعیین خواهم کرد که آیا ایالات متحده آمریکا وارد این داستان خواهد شد یا نه؛ چیزی که ما نسبت به آن نگاه باز داریم.
+پس از انتشار این پست قیمت نفت اندکی کاهش یافت.
+اظهارنظر اخیر رئیس‌جمهور ایالات متحده در حالی است که ایران گفته برنامه‌ای برای مذاکره با آمریکا ندارد و شروط متعددی را برای توافق با واشینگتن اعلام کرده است.
+در همین حال، اسکات بسنت، وزیر خزانه‌داری آمریکا در راستای برنامه فشار اقتصادی بر ایران موسوم به «عملیات طرد اقتصادی» از همه افشاگران خواست تا چنانچه اطلاعاتی درباره «تسهیل‌گران تروریسم ایران» دارند در اختیار وزارتخانه تحت امرش قرار دهند.
+او با انتشار پیامی در شبکهٔ اجتماعی ایکس خطاب به کسانی که در سراسر دنیا اطلاعاتی درباره شریان‌های حیاتی اقتصاد ایران دارند، نوشت: «این شانس شماست. اگر اطلاعات قابل پیگیری برای وزارت خزانه‌داری دارید، ممکن است واجد شرایط دریافت جایزه باشید، صرف‌نظر از این‌که کجا زندگی می‌کنید یا چه کسی فیش حقوقی شما را امضا می‌کند. اگر چیزی دیدید، بگویید».
+او همچنین بار دیگر تاکید کرد که وزارت خزانه‌داری آمریکا عملیات طرد اقتصادی را «برای قطع تمام شریان‌های مالی رژیم ایران و حامیانش» آغاز کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78374)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-14 18:25:40
@@ -206,7 +232,7 @@ Ardeshir
 
 ###### 🔵 Post time: 2026-09-13 22:50:32
 
-<img src="https://cdn1.telesco.pe/file/XBE7Ot1KjqvxZoI_iNNC1vmn2-SJ_kMNOI2rl_Et_t-a46q5jWJfSNlfFqU9FZ2uz7eEtPmNY5cx_hM--rSxDEKORbJNbAe3-Soa1oKM2sziz251iisN5tqoO8tqjkx8W2OB6lnAFwjFSCdN2W_basNt15jQb7SkGNi7gOnq78Rn8oSfXChkEtYgRc2Y09KImEJJIU_ouCDN9QKJrssAQ--5gK1fBt-qd5tnskFVFdXRyg0FlE49WWn8VhM-K_9ykpd6U4M5p9s7_uV1cQYNzkW_4ux0S_ycarvjfTLKyxfBolFT8febBVmHsZto2G70U4dOG3vA5kSGmxwHxnz49g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/g0ctMAJ5_GKi6MLmrlyjh2jc0spaX-kULKZacN1AHzWxdH9OepinbVqCdWQDhJm4PZJjCeWLoDTZNyALioc6yXt116A8Pep0Lqw3nf67dpV-bn07r43ojx0V_HAw-7WsY75xkGumymiE1Cds6cjP8I_m4et-_uYgPfQw1_29gnJabdGZPe7uyscr2EnbMB0E7z8esbUw_nA_LcmqShPAFVogW9brE6LOJzu8FKlwPEx1fCgUsW4l3Du97rySzw-ys_8aLsXv37MWcUbPNwdf1NYd_mQwptJPZYAwRmTDMykvH79YW7y_uuRi_bnNgd7D8YPd0iSWRSS9fm4ogYQxYg.jpg" width="400"><br>
 
 وزیر خارجه عمان از تعویق‌ نشست ایران و کشورهای حوزه خلیج فارس و منطقه خبر داد؛ نشستی که قرار بود روز دوشنبه ۲۳ شهریور در شهر صلاله عمان با محوریت وضعیت تنگه هرمز برگزار شود.
 بدر بوسعیدی، وزیر خارجه عمان، روز یکشنبه ۲۲ شهریور در شبکه ایکس نوشت که این نشست «به منظور دستیابی به اجماع» به تعویق افتاده است.
@@ -231,7 +257,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-13 22:02:49
 
-<img src="https://cdn4.telesco.pe/file/JZw2Z1yARoD7fzz9rGozbJOjPuQEe124Qs9Pw5brtfx-SOcPLOrowy6xy3TNxnAfTWAlGnEl4h099FjyRvIFs3uljfSQxFX97nOJevaQKjGOLwLBgkcQoAcp_WSAZzEPEVJkwypli9_34r_HYwFFH2165Xz1aCPXYsuo3Vt_H3Ewv_o0ISY67fjhYaQDNXFRKI5_rhue0wYGz1MhoGzkcy7YvnVyh64OYNdXDXRxqXODJteKGDTIz6V7qu_XtqQ1_NDrScKeFRQ8dollKhtFor3vVVCVsGUu9zK7iwvMDwTmsOL5PMKdoL4Jilk2440uIRQMMT7GENzGKkHiWIpxGQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/QzinYbfLBZEiE33U5TTsJVq-ighwig1kIxjZLlPEz9uwIJIrgyHvrlHmLVSRQR3cJXTm3skdhpM11G3aNP3-zoYLImx8MJXxMVNQajqUsePLfC29Ec-nMskBg5q-wSMSps7AihGR4LnbxoDqgXReMrojUYHGY9hHN739FtXP3twEKYaJ95yQZat3jcSsgbkvp96NCcB_l7BT1VFbx2IMedJiFkdkMD2fkgGtruEKDnH30J8R383E9w-7kcvS3EVB7XnMubefwYgtusifvO1PM5KjgPlDBllvHrcrR1iSFJHUow5kgwL4ogl5lKBP7cv_ocq_StWR8jkGHw3dhss8Kg.jpg" width="400"><br>
 
 روزنامه نیویورک تایمز روز یکشنبه ۲۲ شهریور ماه در گزارشی به نقل از چند مقام ایرانی نوشت، مسعود پزشکیان، پس از حمله نیروهای سپاه پاسداران به سه کشتی تجاری در تنگه هرمز در اوایل تیرماه گذشته، به‌شدت خشمگین شده و این اقدام را «بی‌پروایانه و غیرمسئولانه» خوانده است.
 این حمله‌ها که منجر به آتش‌سوزی یک نفت‌کش حامل گاز مایع قطر و آسیب به شناورهای دیگر شد، درست زمانی رخ داد که ایران به توافقی با ایالات متحده برای پایان دادن به درگیری‌ها نزدیک شده بود.
@@ -291,26 +317,6 @@ quotes
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78355)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-13 17:13:01
-
-<img src="https://cdn1.telesco.pe/file/l4bJkKO_Mf4C0cgVYKz2u2EX8lXkeEO4JF7Ys-8C40MQE_f3v1QqG_vdEmh9N5e5V6EWAZ9FWgZ0G4_MsxbJkVWopeH8HtIcZoOH-yNx46yUwuFiABAlxqIXuMZFXVPtGMfUGz66Z7AJjokeMMpr9el4WewejIVeMG4eC1lKKRIYvakR9jQu_sasu3hhu72gRNjJccQYt_8bny0nuj9-izeZb1q1ULKc3aXUws93q0JrzAi9KuEc2eWglm7l6RjgxDgas5wA9NySKvMeeUhhtztot3ktZLpSJckRKjig942OQjYkNbwpu8iU2uaERSuN3WylQ3Ue6obEb5ZOqmXroA.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، روز یکشنبه ۲۲ شهریور۱۴۰۵، گفت «موضوع ایران» ممکن است پیش از انتخابات میان‌دوره‌ای آمریکا پایان یابد، اما در هر صورت جنگ با ایران بلافاصله پس از این انتخابات تمام خواهد شد.
-ترامپ در جریان سفر به ایرلند و در حاشیه مسابقات گلف اوپن ایرلند، درباره احتمال توافق با جمهوری اسلامی گفت ایران به‌شدت خواهان توافق است و به‌طور مداوم با آمریکا تماس می‌گیرد، اما واشنگتن تنها توافقی را می‌پذیرد که به گفته او «درست» و مطلوب باشد.
-او همچنین در پاسخ به پرسشی درباره دیدار وزرای خارجه کشورهای خلیج فارس و دریای عمان با ایران گفت این موضوع برای آمریکا اهمیتی ندارد و تصمیم درباره دیدار با جمهوری اسلامی به خود این کشورها مربوط است.
-قرار است این نشست روز دوشنبه در عمان برگزار شود. ایران می‌گوید یکی از موضوعات مورد گفت‌وگو در این نشست، مسیر جدید تردد در تنگه هرمز خواهد بود.
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، نیز بار دیگر گفته است شرط ایران برای بازگشایی تنگه هرمز، بازگشت آمریکا به تعهدات خود در تفاهم‌نامه اسلام‌آباد است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78354)
 
 ---
 
