@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-15 03:06:49 </h5>
+<h5> 🟢 Updated at: 2026-09-15 06:04:17 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-15 03:27:47
+
+<img src="https://cdn1.telesco.pe/file/GOA8H2ScBFNEv6OAi9vteXzy21iHB0gPkZjZxrWnT1NLX_O8h0HUrM3rKHk7X4wsd181KP-SGvCwu8WHFfQhU8DgThq831o5mZplUXj0aD99_9A3U7-2PJwrO3wOdWaq2R8_4SbgdEMn244ONLemXlyaDiewiXZs5JM2CN-IVHagLV8fXC0zxHaO8seIBG4TGQ8TP-GueVu9bnzvqy7ybicU9b32S68Q-MAWtmI2sBdlJeAcCy8KyRAujU5S11E3L4aJPTk8Ve5-9Bjsbrupl-HM24GDJ15hwhZvNCF7N6jICE-ovze0FyrqMbPSAvpfk4fb4kDL2Ft2u9irpkMR7Q.jpg" width="400"><br>
+
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، شامگاه دوشنبه ۲۳ شهریور ۱۴۰۵، از حمله پهپادی به دو «قایق صیادی» در حوالی بندر کرگان در آب‌های خلیج فارس خبر داد.
+بر اساس این گزارش، در پی این حمله که تسنیم آن را به «آمریکا» نسبت داده، تعدادی از صیادان حاضر در این دو قایق مفقود شده‌اند.
+عملیات جست‌وجو و امداد رسانی برای یافتن مفقود شدگان آغاز شده و نیروهای امدادی و دستگاه‌های مسوول در محدوده حادثه در حال جست‌وجو و نجات هستند.
+تسنیم نوشته است جزییات بیشتر درباره این حادثه و وضعیت صیادان پس از دریافت گزارش‌های رسمی اعلام خواهد شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78378)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-14 23:52:10
