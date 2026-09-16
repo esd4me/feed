@@ -3,8 +3,135 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-16 17:24:07 </h5>
+<h5> 🟢 Updated at: 2026-09-16 21:22:04 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-16 17:37:39
+
+<img src="https://cdn1.telesco.pe/file/I4BysKJRa3S__zqTOG1ZgTga-wmiacQtTIBXIQj3fE7giU2MPyp8sVVBr0QT114pG6NLybVMfo5_T8h1sFFXIYrXlafc34fE2ifkrvHHGN5M2ShjuDrx0v2PH13Sy75jYvUZbzs5IfcXC_uM0pfBbG4gtpvxMgX7X_b3t5SmXztZDF-IZ2NK8VDqYpRQPhROVqwG7qnaAyQnieiSDt5OzIPiRkCgGqU5nLWecpfbBz-SjGBBij7SDOrRkHBnDbUK2qge71YfX5BcJlPMRHLjLGNwS2QVh5_V37xIynQBTFJZPVNUA_l2NLQVStfP6Rc0yECEKbLqiY3wj1BkKpQv4w.jpg" width="400"><br>
+
+شرکت هواپیمایی ماهان چهارشنبه ۲۵ شهریور در اطلاعیه‌ای اعلام کرد پروازهای این شرکت در مسیر تهران-مسقط-تهران از ۲۶ شهریور، برابر با ۱۷ سپتامبر، تا اطلاع ثانوی لغو خواهد شد.
+ماهان دلیل لغو این پروازها را اعلام مراجع هوانوردی عمان عنوان کرد.
+این شرکت همچنین در اطلاعیه‌ای جداگانه اعلام کرد بنا بر اعلام مراجع هوانوردی ترکیه، پروازهای ماهان از ایران به مقصد ترکیه، شامل استانبول، آنکارا و بالعکس، از ۳۰ شهریور، برابر با ۲۱ سپتامبر، تا اطلاع ثانوی لغو خواهد شد.
+ماهان افزود آخرین پروازهای این شرکت در مسیرهای تهران-استانبول، تهران-آنکارا و بالعکس روز ۲۹ شهریور انجام خواهد.
+خبرگزاری عصر ایران نیز سه‌شنبه ۲۴ شهریور به نقل از یک منبع آگاه گزارش داده بود دولت گرجستان در پی تحریم‌های جدید آمریکا، پرواز همه شرکت‌های هواپیمایی ایرانی به این کشور را از دوشنبه آینده متوقف می‌کند.
+عصر ایران افزود بررسی این رسانه از چند آژانس گردشگری نشان می‌دهد فروش تورهای گرجستان نیز تنها تا یکشنبه ۲۹ شهریور انجام می‌شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78415)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-16 17:29:36
+
+<img src="https://cdn1.telesco.pe/file/GtMxop5zSPdm3dFc21MEgkUmI4x6XbkRyMZFQZdrX8evW_pVL9K0sTMVQ3r_7CVPe5s_bGHORKlyM3Q0G6AAIVJIUI12Lb4J9y1kbO5p-Z5F6YTmI4QyU9i9Fs0Y_Fb5AED8W1q0hGVwjwkex-w3vHm_5AG4O16_c0-ehW0VTU1kyXrvJwCAIUEA9yvxbTZZZL9Qd_yAz2LcyCUFWpt_b84rh85PKu4qmLZXhZeVQFB8gq866lb49OM2zcTeKLK3lUyFbO6kbODBhsKE7OtkBYqlc7Th0cQa9_W5glrbf6BU0-HOHAxnsk98sgZVFO-Iy2VQ8Jlk0mGOrmDJLGY37Q.jpg" width="400"><br>
+
+ابوالفضل قدیانی، زندانی سیاسی محبوس در زندان اوین، روایت جمهوری اسلامی درباره نقش «تروریست‌های وابسته به بیگانگان» در کشتن معترضان دی‌ماه ۱۴۰۴ را رد کرد و نیروهای حکومتی را مسئول «قتل عام» آن‌ها دانست.
+قدیانی در بیانیه‌ای که روز ۲۴ شهریور از بند هفت زندان اوین نوشته، با اشاره به راهپیمایی ۲۲ بهمن و تجمعات حکومتی ماه‌های گذشته پرسیده است اگر عاملان تیراندازی به معترضان، آن‌گونه که حکومت می‌گوید، «تروریست» بوده‌اند، چرا در تجمعات حکومتی که در امنیت برگزار شده‌اند، اثری از آنها نبوده است.
+او از رسانه‌ها و نهادهای حقوق بشری خواسته است درباره این تناقض در روایت جمهوری اسلامی پرسشگری کنند و نوشته است: «تروریستی در کار نبوده و نیست و قاتلان [...] همان نیروهای [...] حاکمیت‌اند.»
+قدیانی همچنین در این بیانیه علی خامنه‌ای و پسرش مجتبی خامنه‌ای را مسئول این «جنایت سهمگین» دانسته و نیروهای حکومتی را به تیراندازی به معترضان متهم کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78414)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-16 17:28:25
+
+<img src="https://cdn4.telesco.pe/file/W6439jwLg4p9A1byQPQCZXI2QCN_cLAna2GPQdeTV0HdJFsNB4swlODvzzwoxzf3p63Hod83vcdR3CuvA40V8v3rsynHDswke97KqKkEiSCpW8RHw2-zNtpsdNra3h2yClU8egg6VB39lLA-8iBwecZp3O2WxWrEJ1sBy5PK6_CNH1uTBlrdptwSHnz92_9wcQHSxmLUbYRwwTyTHRgfCJMnJJsks6DIfLopIWOBoPSjwl4X3_Cvtf97HIewuWrOdM6oKW8VZW9LlkvavttU06bcu27X568YLlza_5y0o_TLOlOUeVV9Fg9IQ7NYndSsUB-DwmC_-OtYz2Otxl_n8w.jpg" width="400"><br>
+
+وزارت امور خارجه چین با صدور بیانیه‌ای اعلام کرد که وانگ ئی، وزیر امور خارجه این کشور، روز چهارشنبه در دیدار با عباس عراقچی در پکن گفت:
+چین، ایران و ایالات متحده را تشویق می‌کند تا عقلانیت خود را حفظ کرده، خویشتن‌داری نشان دهند، به یادداشت تفاهم اسلام‌آباد بازگردند و «در گفتگوهای ماهوی درباره مسائل مورد علاقه طرفین مشارکت کنند.
+براساس این گزارش، وانگ با بیان اینکه چین «نمی‌خواهد شاهد سرایت بیشتر تنش‌های منطقه‌ای به یمن و دریای سرخ باشد» افزود: «ما از همه طرف‌ها می‌خواهیم اقدامات موثری برای بازگشایی هرچه سریع‌تر تنگه هرمز انجام دهند.»
+وانگ همچنین گفت که سیاست چین در قبال ایران همواره ثابت و پایدار بوده و چین مایل است ارتباطات و هماهنگی‌های خود را با تهران تقویت کند.
+@
+VahidOOnLine
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، چهارشنبه، ۲۵ شهریور در سفر به پکن با وانگ یی، وزیر خارجه چین، دیدار کرد و بر گسترش روابط تهران و پکن در چارچوب مشارکت جامع راهبردی تاکید کرد.
+عراقچی شرایط کنونی منطقه را ناشی از حملات نظامی آمریکا و اسرائیل به ایران دانست و از مواضع چین در محکوم کردن اقدامات این دو کشور قدردانی کرد.
+او گفت: «جمهوری اسلامی ضمن آمادگی کامل برای دفاع مقتدرانه از حاکمیت ملی و تمامیت سرزمینی و صیانت از امنیت و منافع ملی ایران در مقابل متجاوزان، از راه‌حل‌های دیپلماتیک که حقوق ملت ایران را تامین کند، استقبال می‌کند.»
+عراقچی همچنین گفت شرایط منطقه پس از جنگ ایران تغییر کرده است و در نظم جدید منطقه‌ای که با گفت‌وگو و همکاری کشورهای منطقه همراه خواهد بود، جایی برای حضور و دخالت نیروهای خارجی وجود ندارد.
+او با اشاره به آنچه نقض مکرر تعهدات از سوی آمریکا خواند، گفت جمهوری اسلامی خواهان بازگشت آرامش به منطقه و روابط دوستانه با همسایگان است و در همین راستا گفت‌وگو با کشورهای منطقه را آغاز کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78413)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-16 17:27:19
+
+<img src="https://cdn1.telesco.pe/file/hfEK_owwyCFqodSHoMj3ahobQz1eMowplYVwfcCyU6QKE4QFXta2nhUWTiaOBC-xbyJqLfUFWyeoBVynCTMigocIxG4bJPiIyM0d1G8h0AGHVicdtmr9Xa6Ko_G2ahy-FgbgafCxW9UhYVAeS8_tTwinPTYbtVioxr9yhflsM8xME4NucKG62icdpYhOk8AlZJSilVkrzz0M8sH-w7zmOYjL4Vc4sA_-LbMnbvh1IPTfXCFJK7-oworTQiGYOAyDE9xZojoh0PmOCNjtV91JAKsepdeFuRVYI7RXzrDBtCWdm4oholIU1iubkDiiM64URkXYABG3w1KZLkdxVuFYSA.jpg" width="400"><br>
+
+خبرگزاری رویترز روز چهارشنبه ۲۵ شهریورماه به نقل از پنج منبع آگاه گزارش کرد که مقام‌های ایالات متحده آخر هفته گذشته (روزهای شنبه یا یکشنبه) با نمایندگان شورشیان حوثی مورد حمایت جمهوری اسلامی ایران، دیدار کرده‌اند.
+براساس این گزارش سه تن از این منابع که خواستند نامشان فاش نشود گفتند این دیدار که رسانه‌ای نشده بود، در سفارت آمریکا در مسقط برگزار شد. دو منبع دیگر نیز اشاره کردند که دولت عمان، به عنوان میانجی باسابقه منطقه‌ای، به برگزاری این نشست کمک کرده است.
+دونالد ترامپ در سال ۲۰۲۵ و پس از بازگشت به قدرت حوثی‌ها را در فهرست «سازمان‌های تروریستی خارجی» قرار داد و هرگونه حمایت از این گروه را جرم‌انگاری کرد.
+ترامپ روز شنبه گفت حوثی‌ها با دولت او تماس تلفنی داشته و از ایالات متحده خواسته‌اند از جنگ یمن دور بماند. جی‌دی ونس، معاون رئیس‌جمهوری هم روز دوشنبه بدون ارائه جزئیات تاکید کرد که ایالات متحده در تماس مستقیم با این گروه است.
+دو منبع آگاه اعلام کردند در این نشست که به گفته یکی از آن‌ها روز یکشنبه برگزار شد، حوثی‌ها به مقام‌های آمریکایی گفته‌اند قصد حمله به شناورهای آمریکایی را ندارند و به آتش‌بس سال ۲۰۲۵ با آمریکا متعهد هستند.
+یکی از این منابع که یک یمنی است، گفت این گروه همچنین اعلام کرده‌اند که به کشتی‌های اسرائیلی یا هرگونه کشتی تجاری دیگر، به‌جز کشتی‌های متعلق به عربستان سعودی، حمله نخواهند کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78412)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-16 17:26:16
+
+<img src="https://cdn4.telesco.pe/file/mP72fT2KRDrZiyPwFG_6nM-Ool1WNY_1nFqxEf1rqDL7p8YO8ccXbgnY9vrnBmseOHhKH-DqxgaAkNF9EPnas10Wiw5nEpoPb8_CsunQiJPtus9_ScmCI13dr61rdkyvmo_ka55Ai08TCKqFAXB9vvnykd-PwltS0xgXJxJDPoyvrE4NJVfoiPRhayXwS-iMZqRNryzkR4_QG4f0YQPaVc7TMQocjqcPwK33AyjiqrSmLX9M6BDAPEozVTggCN9YtLcPFZt3BC6vclv4olKNXKKhAO21O8NHV8NKZR_BlgaMwnszqDrAe5lBAUYSNbvreVgpUKx-Z6OFTqP_QPezGg.jpg" width="400"><br>
+
+«جی‌دی ونس‌»، معاون رییس‌جمهوری آمریکا، گفته است جنگ با جمهوری اسلامی طی «یکی دو ماه آینده» وارد مرحله‌ای کاملا متفاوت خواهد شد و واشنگتن در مرحله بعدی باید مانع بازسازی توانایی‌های هسته‌ای و نظامی حکومت ایران شود.
+ونس همچنین با پیش‌بینی «دونالد ترامپ» همراه شده است که جنگ پس از انتخابات میان‌دوره‌ای آمریکا پایان خواهد یافت؛ هرچند توضیح نداده منظور از «مرحله متفاوت» تشدید عملیات نظامی، کاهش درگیری‌ها یا آغاز روندی دیپلماتیک است.
+معاون رییس‌جمهوری آمریکا در گفت‌وگو با نیویورک‌پست که روز سه‌شنبه ۲۴ شهریور ۱۴۰۵ منتشر شد، گفت: «نمی‌توانیم آینده را پیش‌بینی کنیم، اما فکر می‌کنم رییس‌جمهوری درست می‌گوید که این مسئله طی یکی دو ماه آینده وارد مرحله‌ای کاملا متفاوت خواهد شد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78411)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-16 17:25:01
+
+<img src="https://cdn1.telesco.pe/file/XX2-O91z4XpXNWsHLSrONv2yUK7Gufzj_mh3cX4J3tPhz1M4MoS1WV7XR_3dW9-VIwqvVaWwlAUPfZgJAWqcUnkr7YpcIXSLUOxZUecOo2ZI1XmSn2_OO8Y4BT67AhClkJuU4bJbhglttN6ulN0VSSaGIrcKo7GNrZf4tEsFOFL5EVTRyKGsyw3l_Lgj-VIa0EFcVyIUv_v7pcKhO_OJwQWE8E4HQ2T92n5mqWIrGXce6kY2otEPPISZxfo5OrhcEPkSVMX0oLeBq8ZAsG-KbM0nEXEDt3bp5X2t-UE9EmgZEGu21mUt9cIUKWcSI1k9b0JnDJO-1yRXLcOXscK2VA.jpg" width="400"><br>
+
+حسین قشقایی، همسرش سارا شمسایی و ابوالفضل قشقایی، برادر حسین، از معترضان دی‌ماه، پنجشنبه ۱۹ شهریور بازداشت شدند.
+حسین قشقایی و سارا شمسایی در لاهیجان به دست نیروهای وزارت اطلاعات بازداشت و به اراک منتقل شده‌اند.
+محل دقیق نگهداری آنها مشخص نیست و احتمال می‌رود در بازداشتگاه اداره اطلاعات اراک باشند.
+ابوالفضل قشقایی نیز همان روز در زرندیه ساوه بازداشت و به اراک منتقل شد. به گفته یک منبع مطلع، ماموران هنگام بازداشت با خشونت وارد منزل شدند و گوشی‌های تلفن، تبلت و لپ‌تاپ اعضای خانواده را با خود بردند.
+حسین قشقایی با اتهام‌هایی از جمله «فعالیت تبلیغی علیه نظام»، «اغوا و تحریک به جهت برهم زدن امنیت کشور به جنگ و کشتار»، «نشر اکاذیب در فضای مجازی» و «اجتماع و تبانی علیه امنیت ملی» روبه‌رو است.
+درباره اتهام ابوالفضل تاکنون اطلاعاتی به خانواده اعلام نشده و پرونده این سه نفر هنوز به شعبه‌ای ارجاع نشده است.
+از دی‌ماه، سیم‌کارت‌های حسین و سارا و حساب بانکی حسین نیز مسدود شده بود. آنها ماه گذشته به دادسرای عمومی و انقلاب زرندیه احضار شده بودند، اما در مهلت پنج‌روزه تعیین‌شده حاضر نشدند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78410)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-16 17:23:23
@@ -69,7 +196,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-15 21:35:06
 
-<img src="https://cdn1.telesco.pe/file/XlpHilwTlaMRHnnDTZfK-qdk0MSGiZqIy63sT7JE0dvBG94bNp7xXCEEA6p_Y2vwG-RbJUZR7huXnXkRKdOnMF8mxhOTZw_li2BAcYeymmDc5k5bAag9Cgvx8MbazvZ3qynD2wJ69qktrFrI0Qay6dSIeQJjab705nAQCYeJNjJ82GEj-YTgD_CbXe3fECqsNj6T2QjGQXhRoi7MxAAydmgG7cRRiik0sASW87a60f_LjtLk5Q6C6ukp3FP4drVfZVHFw36wZDISQmW5DfSHSwblLiAKm3QsJpJRwm8T5Da_VgIOVHAHVUGH6FYXOyc-B4v6AWtRH8JfGLTe0ZXleA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nNtK8wMF7Ipz7tGqyguLV2bVx5vI5tuHOaZ8xdLCUAyH326Lv_ppm8HW-jyfuna3Rw6WBsRBZ0t5adZXnG_e_CVHKcnRKqIo1BrD7xHRxi4vvJKFEqWChQQZcIevfgpNB8VmACHMwCnUVm-KKHm-1QLZK53_o_n6NuWM4mZxVTqZVkl9FNWMwOR5dKC9Tcsn-S8DQ2dLHrxOqBI5hozYXM6LYA8Kk90mfAVQ1YS4cvkvncjE4fEzVeXS0D1wqBv7PFJPouI3gFLde1lBvhraUtjDL4VJPpc8j5jJKsaFDCq1IYvC8atvm7wI0DWkufRDFKq7zM8G6N23e4I3CeEzGw.jpg" width="400"><br>
 
 اکسیوس به نقل از دو مقام اسرائیلی گزارش داد فرماندهان ارشد نظامی آمریکا، اسرائیل، عربستان سعودی، امارات متحده عربی، بحرین، کویت، قطر، اردن و مصر هفته گذشته در نشستی محرمانه در آلمان درباره جنگ با جمهوری اسلامی و تنش‌های منطقه گفت‌وگو کردند.
 اکسیوس گزارش داد نشست محرمانه فرماندهان نظامی در آلمان به ابتکار برد کوپر، فرمانده سنتکام، برگزار شد.
@@ -98,124 +225,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78396)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 19:07:52
-
-<img src="https://cdn1.telesco.pe/file/KRdy1fb9f88VW743tXkhcVayhz-wWTwTH3fOa2GBWu6r87GKaT0vRGuG7n_nz17zbhoC8tX-VWeSeLyDJnqRwHj40tU1f6gnlEC--DbsSrFF3yB3WT8wDNDiuCwvORF6l3jYRkNvRU7vewEykPaupqNwqa08vdB8TiFnQGbgHhIgQUkF8pBs0t_ifeOz922XUTOBDlNBvt2WVzGtq15g9YoA-h0_wSbLAw7p33fj_yicR5WyDSUD9ytkhZ0M38_tOEGdEldi4ThY7L8aOk_r5EUH7yg9Wr17MiP37XMRJYHg-DaTxwP1CYXA5PC1BR632dHU4Mh6eQsSUpTWmm7xEw.jpg" width="400"><br>
-
-درباره خبری که تسنیم با شرح
-حمله به قایق‌های صیادی
-منتشر کرده بود:
-وبسایت اکسیوس به نقل از مقام‌های آمریکایی گزارش داد ارتش ایالات متحده روز دوشنبه ۲۳ شهریور ۱۴۰۵، دو قایق کوچک ایرانی را پس از تلاش نیروهای سپاه پاسداران برای تصرف یک پهپاد نیروی دریایی آمریکا در تنگه هرمز منهدم کرده است.
-به گزارش اکسیوس، نیروهای سپاه با استفاده از این قایق‌ها تلاش کردند یک شناور بدون‌سرنشین آمریکایی را که برای گشت‌زنی در تنگه هرمز مورد استفاده قرار می‌گیرد، تصرف کنند.
-پس از شناسایی این تلاش، یک پهپاد آمریکایی دو موشک به سمت قایق‌ها شلیک کرد که به انهدام آنها و کشته‌شدن بیشتر سرنشینان منجر شد.
-تیم هاوکینز، سخنگوی سنتکام، تلاش نیروهای ایرانی برای تصرف شناور آمریکایی را تایید کرد و گفت این قایق‌ها «تلاش کردند یک شناور سطحی بدون‌سرنشین آمریکا را تصرف کنند، اما پس از واکنش قاطع نیروهای سنتکام موفق نشدند». او تأکید کرد این شناور همچنان تحت کنترل عملیاتی ارتش آمریکا قرار دارد.
-این در حالی است که رسانه‌های ایران حمله به دو قایق را به شکل حمله پهپادی به «قایق‌های صیادی» گزارش کرده‌اند.
-به نوشته اکسیوس، این دو قایق در نزدیکی بندر کرگان و جزیره لارک در استان هرمزگان هدف قرار گرفتند و احمد نفیسی، معاون سیاسی، امنیتی و اجتماعی استانداری هرمزگان، حمله را به ارتش آمریکا نسبت داده و از مفقود شدن شماری از صیادان و آغاز عملیات جست‌وجو و نجات خبر داده است.
-این حادثه در شرایطی رخ داده که ارتش آمریکا تلاش می‌کند با افزایش تردد کشتی‌های تجاری در تنگه هرمز، عبور و مرور دریایی در این مسیر را به وضعیت عادی نزدیک کند.
-یک مقام آمریکایی به اکسیوس گفت ارتش آمریکا و کشورهای عربی خلیج فارس در ماه‌های اخیر تردد نفتکش‌ها از تنگه را در طول روز نیز آغاز کرده‌اند، در حالی که پیش‌تر این عبورها عمدتا شبانه انجام می‌شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78395)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 17:53:42
-
-
-
-⚠️
-ویدیوی منتشرشده در خبرگزاری رکنا، لحظات پراضطراب داخل هواپیمای بوئینگ ۷۳۷ شرکت سپهران را نشان می‌دهد که دوشنبه ۲۳ شهریور پس از برخاستن از فرودگاه مشهد به مقصد کرمانشاه، با ترکیدگی لاستیک مواجه شد و با گزارش آسیب به موتور، مجبور شد به فرودگاه مشهد بازگردد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78394)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 16:03:51
-
-<img src="https://cdn1.telesco.pe/file/mMT7pqLGWnEabH4yPwKTP0FQpo04LcF8E3-lqA9e28ztAu6-aXDdM_IdfceECXDefAhI20MmowGvfKi7Xzh97ILH97fuJ5j_2f9xlYDjGjE1wH5EDRkilIXUH2FvHS6f9VZeoFCoCSEMK-svMq61Gx88kv1WBy4RphMniOtKiFawifBACDr199dvTnpm2U8ix8oCFo7oNG54JpsjFJ0MmlqhPKDkVVgGVJlrJmQe6T0Lv3Zuh1vutpJKojnRdC6Pxg2IebVy11Rbj9nLUsUVTbJpuLd3xqD3JTibTa19eSspaOI2stcPsgkYdi-p15Rx0BBiR78h_l05aVhEm6rFKQ.jpg" width="400"><br>
-
-امیر رئیسیان، وکیل دادگستری روز سه‌شنبه ۲۴ شهریورماه با انتشار پیامی در اکس، از تشکیل پرونده کیفری برای رضا درمیشیان، کارگردان سینما و تئاتر ایران خبر داد.
-به گفته رئیسیان، سپاه با شکایت از رضا درمیشیان  به اتهام تبلیغ علیه نظام پرونده قضایی تشکیل داده رسیدگی به شکایت از او در شعبه هفتم دادگاه انقلاب تهران در جریان  است.»
-رئیسیان با اعلام این خبر گفت در دادسرا برای رضا درمیشیان قرار جلب صادر شده و سپاه پاسداران به عنوان شاکی، تقاضای توقیف اموال او را کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78393)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 16:03:41
-
-<img src="https://cdn4.telesco.pe/file/Om2i5AQiElqCUP7gmdW4o7Y_l6B8ZTXC3Txmp75dsaim16JX6KdyPcpNY0sRuqspKTNtPwdfX6w6d-dalZRBUuATzGPAxLLq3G4K62jzcBKQGaSeL0PO1eNpmglyEugrrLYSiBRm8Ff3tCkFvFNOCnrfUxhfnaJ8BQvV_-WQwPlmFgcrykvxMQoZE5zDeqOuPZOHcRS1Mr96iUpL6goNNln0N7nW9ovrlvgQ8_YHoqFKRNjxDvzH7NoWQv-jNVftvkPVee2wu7fPQRCIxIGe2KA5Vrqj6GgtU_a1-4Y7dDBiX-kvBjREk22-quo8qFuzZkgky9N-9AtoUjrLqqB_Mg.jpg" width="400"><br>
-
-استودیوی «کارگاه» با انتشار عکسی از آزادی «آریا کسایی»، طراح گرافیک و یکی از بنیان‌گذاران این استودیو، پس از نزدیک به دوماه بازداشت خبر داده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78392)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 15:45:28
-
-<img src="https://cdn1.telesco.pe/file/kafXox9X7HFT2II_4RzwljqdfDy5mt2Phu2GrUChiXOkDrNVj4mWp8eyiEjoKqohlMFjDWOmG3drPPi7nRzcyB4bvd_yfCJHp3kqibW7sDm5WP6839BVxXVRcKEdimHBxNkyjhEWOOUhjuKP6yDYJ2_CS5RzFrAlw65wnOpxhEMTTGKj6dmhyxIe_bu0ETT4lxuxEOCoVskaTyJtY1W-HS5Y9Jjcx1cI6oeNBEdWwjXLiQqKkpnePK_hpPTYLwDCG5T5AOrp-mAzQThzlAVvbeO5gQ50xg4a1xRQeSJCFtcikxWgBQhVj4vH8Ls4LvGfKluxElY1ljIYfPeqHu9gUQ.jpg" width="400"><br>
-
-پلیس تهران می‌گوید فردی را بازداشت کرده است که شامگاه دوشنبه ۲۳ شهریور به سمت «جمعیت حاضر» در میدان پونک تهران سه کوکتل مولوتوف پرتاب کرده بود.
-میدان پونک از جمله میدان‌های تهران است که از زمان آغاز جنگ ۴۰ روزه تجمعات شبانهٔ حکومتی در آن برگزار می‌شود.
-بر اساس بیانیه‌ای که فرماندهی نیروی انتظامی تهران منتشر کرده، «این فرد حوالی ساعت ۲۱:۳۰ از بالای ساختمانی به سمت جمعیت سه کوکتل مولوتوف پرتاب کرده و پس از آن گریخته است».
-در این بیانیه ادعا شده که این فرد «قصد خروج غیرقانونی از مرزهای غربی کشور داشته اما ماموران با شلیک گلوله از ناحیه پای راست او را دستگیر و به بیمارستان منتقل کردند».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78391)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 15:44:10
-
-<img src="https://cdn1.telesco.pe/file/LaZfK8uGwtS_TRO_KQYc3oAdv0SAyhc3eym37IR_uoXcD53hEE5QcCGE31D2XiNLcFPaGXG1XTfz_aIvs5UBkVT_LOnXFoTmYM4R7c4tX0JmzfVyPWt5a4uvH0pK9SOaWUTIQzPdyZB3nUC2dhsDyF9DXtR6mgkg_VCB4yIbZsq33B3SG3QVmxXWvCM0d-rAFQl_IGgkAExlWdnRz4RQH7ek0nBsEKgGAgvn5iUMJHmrw0Y9yxVcQ1-vb3F9-Y8nOXceMbMghlbl494FYJHUelcjIgFTBoUk8mS6vWw5Vb8bKRY6EGZG2-3V6tTw6BOXCmD5bSF03RbF9bArxRsOzg.jpg" width="400"><br>
-
-گزارش رسمی آمریکا از هزینه‌ها و خسارت‌های جنگ با ایران منتشر شد
-یک گزارش رسمی نهادهای نظارتی دولت آمریکا می‌گوید جنگ با ایران به «کمبودهای راهبردی» در ذخایر برخی تسلیحات پیشرفتهٔ ایالات متحده منجر شده است.
-نخستین گزارش رسمی نهادهای بازرسی دولت آمریکا دربارهٔ عملیات «خشم حماسی» که روز دوشنبه ۲۳ شهریور به‌طور عمومی منتشر شد، می‌گوید مصرف گستردهٔ تسلیحات در جنگ با ایران «به کمبودهای راهبردی در موجودی‌ها منجر شده و گلوگاه‌های پایهٔ صنعتی برای تأمین مجدد مهمات را آشکار کرده است».
-بر اساس این ارزیابی، پنتاگون برای مقابله با این مشکل در تلاش است روند خرید تسلیحات و زمان تولید را کاهش دهد و ذخایر مواد و قطعات حیاتی و برخی مهمات را افزایش دهد تا در شرایط اضطراری امکان افزایش سریع تولید وجود داشته باشد.
-این گزارش همچنین نشان می‌دهد آمریکا تا ۲۹ ژوئن (۸ تیر) حدود ۳۳ میلیارد و ۴۰۰ میلیون دلار برای جنگ هزینه کرده است. نزدیک به دو سوم این مبلغ مربوط به مهمات مصرف‌شده بوده و ۳ میلیارد و ۷۰۰ میلیون دلار به تجهیزات از دست‌رفته اختصاص داشته است. بر اساس این گزارش، ۷ میلیارد و ۴۰۰ میلیون دلار دیگر نیز در ردیف سایر هزینه‌ها قرار گرفته است.
-پیت هگست، وزیر دفاع آمریکا، اواخر ژوئیه (اوایل مرداد) هزینهٔ جنگ تا آن زمان را ۳۷ میلیارد و ۵۰۰ میلیون دلار اعلام کرده بود. شبکهٔ ان‌بی‌سی نیوز نیز پیشتر به نقل از مقام‌ها و افراد مطلع از برآوردهای داخلی گزارش داده بود که با احتساب هزینه‌های گسترده‌تر، رقم واقعی جنگ می‌تواند به ۸۰ تا ۱۰۰ میلیارد دلار رسیده باشد.
-دونالد ترامپ، رئیس‌جمهور آمریکا، روز دوشنبه و همزمان با انتشار گزارش ارزیابی «عملیات خشم حماسی»، در شبکهٔ اجتماعی تروث سوشال نوشت آمریکا اکنون بیش از هر زمان دیگری در تاریخ خود تسلیحات پیشرفته تولید می‌کند و این تجهیزات به‌طور روزانه در اختیار نیروهای آمریکایی در خاورمیانه و دیگر مناطق قرار می‌گیرند
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78390)
 
 ---
 
