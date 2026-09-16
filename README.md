@@ -3,8 +3,47 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-16 03:20:21 </h5>
+<h5> 🟢 Updated at: 2026-09-16 05:58:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-16 04:07:59
+
+<img src="https://cdn1.telesco.pe/file/BGuOyJ_tUNtpH-HqU7DPK9bIXCao3s9WqUSRZ2bYGgvYFWcYXTv8bhcv6Mb-UF8q_ZSqCkTME1dbwkRH0jFJZFDMt_UagVt00QquUbZ0Ltm3WBGF185RGqKUTd5_O-uyGRgBH_rUyUj_LFrmjv7nxWjtEZk-CEqxlv56rk3mWO6pYfXErnTEBDMdRyFxRKbLRqKiLFo8JTrdOVzvsXUG7aZoeLDp26WmZSwTN3zuQ8yjzxFQqqae_AaWR6r7rn6IRTgEqhGEwl8yN3kALw0dqv_aD3hHW71E3JiBfLARV44Hxi4u9pgKVyGlLN9NOwUigxjgHeCSBkOJ4dAavj1UYA.jpg" width="400"><br>
+
+سی‌بی‌اس‌نیوز گزارش داد تصاویر جدیدی که به‌طور اختصاصی به دست آورده، برای نخستین بار گستردگی خسارت حملات موشکی و پهپادی جمهوری اسلامی به چند موضع نظامی آمریکا در خاورمیانه را نشان می‌دهد.
+این تصاویر را نظامیان آمریکایی در اختیار سی‌بی‌اس‌نیوز قرار داده‌اند. یکی از آنها گفت خسارت گسترده به پایگاه‌های آمریکا به اطلاع مردم این کشور نرسیده است.
+در تصویری از پایگاه هوایی شاهزاده سلطان در عربستان سعودی، یک هواپیمای چهارموتوره بویینگ ای-۳ سنتری دیده می‌شود که موشک به بخش عقبی آن اصابت کرده و دم هواپیما از بدنه سوخته جدا شده است.
+تصاویر دیگری از این پایگاه، ساختمان‌ها و آسایشگاه‌هایی را نشان می‌دهند که بخش‌های داخلی آنها تخریب شده است.
+سی‌بی‌اس‌نیوز همچنین از ثبت خسارت‌های مشابه در کمپ بوهرینگ در کویت خبر داد؛ پایگاهی که محل استقرار و آماده‌سازی نیروهای زمینی، خودروهای زرهی و شماری از هواپیماهای ارتش آمریکاست.
+پنتاگون به درخواست سی‌بی‌اس‌نیوز برای اظهارنظر درباره این گزارش پاسخ نداد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78399)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-16 03:56:13
+
+<img src="https://cdn4.telesco.pe/file/cQbFaT1KiEDDcwyTsoFUKOhOAZuOCUW5pVsYfMHOkoeZucvqSFCShhGcvObO4hmv_fVTWcQyuiaFR1HvfQ13PV4VhzED2lZypDWWK0q0TsZHzBmOcmnZiHRBr0dqWQWQfMz80XzIl5xbpslXiMIE_oRUQe-M3lBSVNNQNRAv1hIPSnc_wGgsk9Ko0J_TWpJzx-B38LVRVkcMIeTyAHVajoqjj_-AASBr_HfgdvTNPT6FzrFsZP1bEfTmmUFgfxOX_OndpXOU6mrBvPQe1bw-PjIJ0L7k2ynaTjCnshf-ncaqKDgqK1w2VtSGzHcDaDfkJawboay2Fcqr3nUwAPxwbg.jpg" width="400"><br>
+
+ائتلاف به رهبری عربستان سعودی در یمن اعلام کرد پدافند هوایی این ائتلاف یک فروند پهپاد پرتاب‌شده از سوی حوثی‌ها را که قصد ورود به حریم هوایی مکه را داشت، رهگیری و منهدم کرده است.
+به گزارش خبرگزاری رویترز، ترکی المالکی، سخنگوی ائتلاف، در بیانیه‌ای گفت این دومین تلاش حوثی‌ها برای هدف قرار دادن مکه بوده است.
+به گفته ائتلاف، پیش از این نیز حدود ۹ سال قبل یک فروند موشک بالستیک به سوی مکه شلیک شده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78398)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-15 21:35:06
@@ -141,7 +180,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-15 15:44:10
 
-<img src="https://cdn1.telesco.pe/file/uvWy4-nQHmRjJRxx1GErTY0nyxHw7wnTBJUDEEAQyXCclptITYgVaZVMxN6ZeJ2EajXIA3wT7R8AADf16pn1e5dQwFyp22Z4ppaImbkaZm-Hc4wbnM1tNuWZDPbwfGy2s_0QvhmFHdb7LO4bGFXJqDMWXOFgqtdSArYsatyOGUeqVNpNiLSl8mDaSmt5PHXuvjcxr17ivLnpmEid9VNAWeXZKmxKKtskqXvJTxKcf65XgDI8cgqwyE3U3j5PJmuolGph06NYdaqMJ64k6tNSyjqH8N4NCxGwJe1-mMFVIb0xp3HUt9aU2vy2bYZ1dMhhScDaffGAvP-DMWRHK3BiKw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LaZfK8uGwtS_TRO_KQYc3oAdv0SAyhc3eym37IR_uoXcD53hEE5QcCGE31D2XiNLcFPaGXG1XTfz_aIvs5UBkVT_LOnXFoTmYM4R7c4tX0JmzfVyPWt5a4uvH0pK9SOaWUTIQzPdyZB3nUC2dhsDyF9DXtR6mgkg_VCB4yIbZsq33B3SG3QVmxXWvCM0d-rAFQl_IGgkAExlWdnRz4RQH7ek0nBsEKgGAgvn5iUMJHmrw0Y9yxVcQ1-vb3F9-Y8nOXceMbMghlbl494FYJHUelcjIgFTBoUk8mS6vWw5Vb8bKRY6EGZG2-3V6tTw6BOXCmD5bSF03RbF9bArxRsOzg.jpg" width="400"><br>
 
 گزارش رسمی آمریکا از هزینه‌ها و خسارت‌های جنگ با ایران منتشر شد
 یک گزارش رسمی نهادهای نظارتی دولت آمریکا می‌گوید جنگ با ایران به «کمبودهای راهبردی» در ذخایر برخی تسلیحات پیشرفتهٔ ایالات متحده منجر شده است.
@@ -191,111 +230,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78383)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 15:31:47
-
-<img src="https://cdn4.telesco.pe/file/TfGgCxBAL7CLRNpW7AFqDo3cCslksYpLpSpgxCf2GDY7RMgjf1C5OxoiqdRIqno7Ea3afDo--KNjcDvTtmp-mDnz-jAqEPij7X6CpzQEm9Sy7Dg8TjzXVKPlAg7Lad2Q44ZarvdMW0fSlFg7lplkHtYPb8TFfgI8kVwg3uJ21EQRsWXHyYBRRM0XQkZSntFFI5C1qeLh_3pJ3Rn_fPQEEb648X6hj5RuJu6vZjU6fITU2aeXhxLzIOWp7XFS00UozL5N1jQAhbfs91becPYiqSTjzWQ5fWP6yqX8B0bkHdYDm6ZzaKFxQ1Ki7y0k98cRjbIbrDYFVgbDQRqgubg1_w.jpg" width="400"><br>
-
-‌دادگاه فدرال آمریکا روز دوشنبه، ۲۳ شهریورماه، به عدم اجرای دستور دولت دونالد ترامپ برای محدود کردن مدت اقامت دانشجویان و خبرنگاران خارجی در ایالات متحده حکم داد.
-‌این دستور که به گفته قاضی دادگاه به دلیل «استدلال‌های بسیار ضعیف» دولت صادر شده، قرار بود روز سه‌شنبه به دست وزارت امنیت داخلی آمریکا اجرا شود.
-‌بر اساس قانونی که دولت ترامپ سعی دارد به اجرا بگذارد، روادید دانشجویان خارجی و روادید افرادی که با برنامه‌های فرهنگی در آمریکا اقامت می‌گیرند، به چهار سال محدود می‌شود.
-‌این قانون همچنین می‌گوید که روادید خبرنگاران نیز نباید از ۲۴۰ روز فراتر رود.
-‌هر سه گروه، بر اساس قانونی که اکنون دادگاه جلو اجرای آن را گرفته، برای اقامت بیشتر باید بار دیگر اقدام کرده و روادید خود را تمدید کنند.
-‌به گفته قاضی دادگاه فدرال، اجرای قانون جدید تعداد دانشجویان خارجی و روزنامه‌نگاران و خبرنگاران در ایالات متحده را به شکل قابل توجهی «محدود خواهد کرد».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78382)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 15:30:58
-
-<img src="https://cdn4.telesco.pe/file/FLts2cf_CldyhiyTVfzRXqDcOtI6IlkrwlBmz7H7F76Yphkign9gy0zn3d4dfTAGhpV7WZL-9HFIGkGNFbgomzWYZP2reXdjlZc0VU5r_K9TR6Jld9U30_SrdZqI3VgMRId-gV3upoPcL-ATvP3Li7TJSPPwHn_9StoAf0Y4H_tOB7Y3NF3r8Hs6DY38RBitFee-IZPLYZXNh3NJIkKxbNN_X7Jz0emAmaLHVqPhVfenIVvHl_4n5zPVOwBJXiMmS35gVxFf_-YWz508okHAnPezmMV-1zKU3orwIaT0cGJFRyZR5K2QgmdDHdtWe61C8HeACv9KxNleWmeTa06RDw.jpg" width="400"><br>
-
-وزارت امور خارجه اتریش اعلام کرد برای سفر محمد اسلامی، رئیس سازمان انرژی اتمی جمهوری اسلامی، درخواست معافیت از ممنوعیت سفر سازمان ملل داده بود، اما درخواست رد شد.
-بنابر اعلام این وزارتخانه، رئیس شورای امنیت سازمان ملل به وین اطلاع داد که درخواست به دلیل نبود اجماع رد شده است.
-وزارت امور خارجه اتریش افزود با توجه به تعهدات بین‌المللی این کشور، ورود اسلامی امکان‌پذیر نیست.
-اسلامی در راه وین برای شرکت در کنفرانس عمومی سالانه آژانس بین‌المللی انرژی اتمی بود که اجازه حضور پیدا نکرد. او از سال ۲۰۲۱ در همه کنفرانس‌های عمومی آژانس شرکت کرده بود.
-ممنوعیت سفر از سازوکار «اسنپ‌بک» ناشی می‌شود که تحریم‌های سازمان ملل علیه جمهوری اسلامی را بازگرداند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78381)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 15:29:42
-
-<img src="https://cdn1.telesco.pe/file/ZOa6vOCpK2LAXx-_lyS8rL_9Q98Yj3JwVfAvbZIcvl_2lfJfcL0oPRuRReJyrxbqscIgJeSJfTjbRktnnbmwMUrjkaC4AzLVENodvxbRz9s4bl_PInfzZA_4Dyo1tKM5LrK8dSIfbOStnsk53ylenQaB5CcdIk-WnUD0amB5OCUP5pavRlOjbLA-mlJpHHSluRML8WeNa8qB9JS__dqC5CX2FKVmDKIjqn60nDAeVOdFlQ7n9OURwNefYUXe41dcQ3ylYxEm1NLcWKGDwWYYGiBVIDYbAWGmcHUBA9f2IYZJMa_latUPL-PRwBF4Jdi7VzMVAeNZFj9Dswj8bsLZOw.jpg" width="400"><br>
-
-نفتکش الغایا پس از حمله در سواحل عمان و آتش‌سوزی در موتورخانه، به یکی از بنادر این کشور یدک‌کشی می‌شود.
-بر پایه گزارش رویترز به نقل از مقام‌های عمانی، ۲۳ خدمه از شناور تخلیه شده‌اند و دو نفر همچنان مفقودند.
-روایت‌ها درباره علت حادثه متناقض است.
-سپاه پاسداران اعلام کرد الغایا با پرچم پاناما هنگام عبور از «منطقه ممنوعه» جنوب تنگه هرمز با مین دریایی برخورد کرده است.
-فرماندهی مرکزی آمریکا ادعا را نادرست خواند و گفت شناور «ماه گذشته با موشک ایرانی زده شد و از کار افتاد».
-سازمان بین‌المللی دریانوردی گزارش داده بود الغایا روز شنبه آسیب دید، بدون آنکه علت را مشخص کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78380)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 15:23:54
-
-<img src="https://cdn1.telesco.pe/file/bIP5yz1uI3vLeQ6xxhSUs_1lBTlBdvI3VaUd3mEnlu-nvvq83BH0DJO5Ekv6w0w9uazLEwbLU9IVd1EXtUttvvI6GMh4qaAC2U3EmZSWGWeYoSzFbk0mi1l3_gj4F6GfBp6F-FF-eseNod0K0NeJ7JPmrDKXoWd4USCOb2sy40yn2nbXtIWp-lBPcxWmaH0VRCPbL4_YPSSer-cJK88zGH1LoktMvTKsHQgLapgQ7s47BnOfHOtGoshCjm3pSN2GIHEd-cCJfDtz-q_JhWeD1tLoBX9r_bITmVmU-a54s0MRDo_l2zeVL_RHaMRsKkoLIkCo1ooNSYf_SY8m5M9lFQ.jpg" width="400"><br>
-
-دست‌کم ۱۰۰ معترض در ۱۳ استان ایران در خطر اعدام هستند
-سازمان "حقوق بشر ایران" اعلام کرد دست‌کم ۱۰۰ نفر از بازداشت‌شدگان اعتراضات دی‌ماه در ۱۳ استان ایران با حکم اعدام روبه‌رو هستند؛ بیشترین شمار این افراد با ۴۶ نفر مربوط به استان اصفهان است.
-بر اساس فهرست منتشرشده، پس از اصفهان، ۲۲ نفر در استان‌های تهران و البرز قرار دارند.
-همچنین ۱۰ نفر در فارس، هفت نفر در خراسان رضوی، پنج نفر در مرکزی، سه نفر در یزد و دو نفر در سمنان در این فهرست ثبت شده‌اند. در استان‌های خراسان شمالی، گیلان، اردبیل، ایلام و قزوین نیز هر کدام یک نفر با حکم اعدام روبه‌رو است.
-این سازمان می‌گوید فهرست منتشرشده تنها شامل معترضانی است که دست‌کم در مرحله بدوی حکم اعدام دریافت کرده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78379)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 03:27:47
-
-<img src="https://cdn1.telesco.pe/file/uLMnSaXXq1iuImpTpbKzeCKfD8o4jlLlUgiHqfXmKmt7ybpjBCaVrmi_-xa8qbaGsS8ILRV4p2Lh4lTm3umHRq3QAKKqa4Un724uegQ5DgGkoLMNlkmTBRf4SjFNk_sguXqtZIR-A_KyijRzmtjWLLcWC_cB6Dk4UNc6eWMZ6gVfiaRgwMn5kmb4UHWDiz-DQ4aiKWDVeUXC_sy0pwjtRZvY6lF0-9JLW23sEx9f9KxzTAUwZj8_J7Yaw5ZwM_FAB5FJrs_S2glDXz99vkFlCrUWmsm--U5Z21e5XQtEyKtsb1Ac0QyUIP1XXDIslj66xyFetA-FY22jPxiETSotwA.jpg" width="400"><br>
-
-خبرگزاری تسنیم، وابسته به سپاه پاسداران، شامگاه دوشنبه ۲۳ شهریور ۱۴۰۵، از حمله پهپادی به دو «قایق صیادی» در حوالی بندر کرگان در آب‌های خلیج فارس خبر داد.
-بر اساس این گزارش، در پی این حمله که تسنیم آن را به «آمریکا» نسبت داده، تعدادی از صیادان حاضر در این دو قایق مفقود شده‌اند.
-عملیات جست‌وجو و امداد رسانی برای یافتن مفقود شدگان آغاز شده و نیروهای امدادی و دستگاه‌های مسوول در محدوده حادثه در حال جست‌وجو و نجات هستند.
-تسنیم نوشته است جزییات بیشتر درباره این حادثه و وضعیت صیادان پس از دریافت گزارش‌های رسمی اعلام خواهد شد.
-@
-VahidHeadline
-آپدیت:
-اکسیوس: آمریکا دو قایق سپاه پاسداران را منهدم کرد
-@
-VahidOnline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78378)
 
 ---
 
