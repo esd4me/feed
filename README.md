@@ -3,8 +3,29 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-16 11:35:29 </h5>
+<h5> 🟢 Updated at: 2026-09-16 17:24:07 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-16 17:23:23
+
+
+
+در پی فراخوان ائتلاف نیروهای سیاسی کردستان ایران، همزمان با چهارمین سالگرد قتل حکومتی مهسا ژینا امینی و آغاز جنبش «زن، زندگی، آزادی»، کسبه و بازاریان شماری از شهرهای کردنشین اعتصاب کردند و مغازه‌های خود را بسته نگه داشتند.
+از صبح تا ظهر چهارشنبه ۲۵ شهریور، اعتصاب و بسته بودن مغازه‌ها و بازار در دست‌کم ۲۰ شهر، از جمله ارومیه، اشنویه، بانه، بوکان، بیجار، پاوه، پیرانشهر، ثلاث باباجانی، جوانرود، دیواندره، روانسر، سقز، سنندج، قروه، کامیاران، کرمانشاه، کرند، مریوان، مهاباد و میاندوآب گزارش شده است.
+@
+VahidOOnLine
+وب‌سایت‌ها و منابع خبری مختلف که اخبار کردستان را منتشر می‌کنند، از جمله هانا، کردپا، کولبرنیوز، زاگرس ۲۴ و شبکه حقوق بشر کردستان نیز گزارش‌ها و تصاویری از تعطیلی مغازه‌ها در شهرهای مختلف کردنشین منتشر کردند.
+در همین حال تصاویر و گزارش‌های مختلفی از برقراری فضای امنیتی شدید و استقرار نیروهای نظامی و انتظامی با سلاح‌های سنگین در شهرهای مختلف کردنشین منتشر شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78405)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-16 04:07:59
@@ -127,7 +148,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-15 16:03:51
 
-<img src="https://cdn1.telesco.pe/file/dzDsk9RAnAFE-hmU9NsDTW3gAPLyUhgsMSR1ivOJawn9kHYF9pH3zjiMP-CApUHrVfR3xwhXtZpl5eYd-VT0dosZ4QOKxXbTH8mccNprn-v0530y2AkPAcaq-EHlNG4aMvG8CatkpgYu4ng6H_qSrU5l627VbU5s4ahN3Oj2DxIsB7_Bj5QlttXnw62Xsl0gFG0WnfCiNjmbJ8uuAT73A91aXg0avDmBednaE-6PJOuoEM_FjHNSEmq-65jxAx1YWZzdZIa3bhCFVbUU7MzivjYYJ7nIa_vhR7SnU7nnzjNA_VsOY-nCh-4fCfuIPFelkc1rmi7lAg0rXnygCwjU-A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mMT7pqLGWnEabH4yPwKTP0FQpo04LcF8E3-lqA9e28ztAu6-aXDdM_IdfceECXDefAhI20MmowGvfKi7Xzh97ILH97fuJ5j_2f9xlYDjGjE1wH5EDRkilIXUH2FvHS6f9VZeoFCoCSEMK-svMq61Gx88kv1WBy4RphMniOtKiFawifBACDr199dvTnpm2U8ix8oCFo7oNG54JpsjFJ0MmlqhPKDkVVgGVJlrJmQe6T0Lv3Zuh1vutpJKojnRdC6Pxg2IebVy11Rbj9nLUsUVTbJpuLd3xqD3JTibTa19eSspaOI2stcPsgkYdi-p15Rx0BBiR78h_l05aVhEm6rFKQ.jpg" width="400"><br>
 
 امیر رئیسیان، وکیل دادگستری روز سه‌شنبه ۲۴ شهریورماه با انتشار پیامی در اکس، از تشکیل پرونده کیفری برای رضا درمیشیان، کارگردان سینما و تئاتر ایران خبر داد.
 به گفته رئیسیان، سپاه با شکایت از رضا درمیشیان  به اتهام تبلیغ علیه نظام پرونده قضایی تشکیل داده رسیدگی به شکایت از او در شعبه هفتم دادگاه انقلاب تهران در جریان  است.»
@@ -145,7 +166,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-15 16:03:41
 
-<img src="https://cdn4.telesco.pe/file/d2dJGGvHtX8ei49q8lefbiVF26mjRSnyWvqC6J-k5kCLV2q2XQ5qTwhtCHQ62jPONZcsKRgYOcTFHhQNWgFHPjxwZCc7wz7bqoKJl0q0PsoGj3vRoJgxIeq7SraPMH8Qpv1_zKr10g8iuSBVVxU6errRE0C9kgypJtJNJsBnVL9tF_8z5-mQioKKw9Qr6KeZCPasIN90hlW7x_ElQ2m9MplmcxU0MQj9rHrfV6PzuneV3W6Va_9hVTyPe1djv10nrVUc3cM5BHLzzwmjJx6xR6ZPrmjf9J_CCq6PszPLCo9vQcE9EyhbOB2E8Xvrn6h9PSLnjZSeFnK7Khha3WozHw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Om2i5AQiElqCUP7gmdW4o7Y_l6B8ZTXC3Txmp75dsaim16JX6KdyPcpNY0sRuqspKTNtPwdfX6w6d-dalZRBUuATzGPAxLLq3G4K62jzcBKQGaSeL0PO1eNpmglyEugrrLYSiBRm8Ff3tCkFvFNOCnrfUxhfnaJ8BQvV_-WQwPlmFgcrykvxMQoZE5zDeqOuPZOHcRS1Mr96iUpL6goNNln0N7nW9ovrlvgQ8_YHoqFKRNjxDvzH7NoWQv-jNVftvkPVee2wu7fPQRCIxIGe2KA5Vrqj6GgtU_a1-4Y7dDBiX-kvBjREk22-quo8qFuzZkgky9N-9AtoUjrLqqB_Mg.jpg" width="400"><br>
 
 استودیوی «کارگاه» با انتشار عکسی از آزادی «آریا کسایی»، طراح گرافیک و یکی از بنیان‌گذاران این استودیو، پس از نزدیک به دوماه بازداشت خبر داده است.
 @
@@ -195,41 +216,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78390)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 15:39:10
-
-<img src="https://cdn4.telesco.pe/file/ZZbbsjez-8K17dX2i9mzh1xJUA-kfoBt4IRJqRZ2BAsiHZffe1aRV9u1zf1UL9EuZWZS-FK_XKv_GP4NiXmECmc_aQv_apDYhrKjgijF36m9KvNXrc2LH24xu3bhA0WgWf1GqbOtpxIGWmfHpWOa9ohOSZ_xD9zrERGaCGw47XTn4i6B-OdfkMjPAqm58E61JsT7LJ5_umZTLq4eEhhrifTz6uWZbhdlZK95xmpbmXNzmvoACrc7PbO96cF7LmdnLBa9ExN2947jWVPfh_NC9hPFHFeQqj_3iFxkwl6w0raSH9ZxFeM-qnXlaZmtKU9xYABXzr_4FiFqp62u1B4fSw.jpg" width="400"><br>
-
-یک پروژه امنیتی با نام «علاج» با انتشار اطلاعات شخصی شماری از ایرانیان خارج از کشور، از شهروندان خواسته است افراد بیشتری را شناسایی و به این سامانه گزارش کنند. صداوسیمای جمهوری اسلامی نیز به تبلیغ این پروژه پرداخته؛ پروژه‌ای که مشخص نیست چه نهاد امنیتی یا حکومتی آن را اداره می‌کند و اطلاعات هویتی منتشرشده در آن از چه طریقی به دست آمده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78389)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 15:36:13
-
-<img src="https://cdn1.telesco.pe/file/HTd0apYZ_2J-TWkJNw9lODEZlRUjuP0Ni4lyFHUTnKtyt7oPgUpXBscMhCUtQ9OF_E46xt2daeeIbtNkEqTgjBbkqhPzoEl_hplOHfLs2NLEuj1XnULJPkdrn0Hr9MFp3LVoAJM4geGcMXegmQuziqHRmvmuarXfKWkGNalaQess4b_DGqebYTFV-Kfud9DTD6LsCd0bhjH10R6BGdvQvc7hSvXJNvVmBvvyum1MmJQdfM1sxJo4p_d8JTfW9f8IcHijB4I64LVWmheUqP3zgDNLf0yVCLrdwa80fIxv5t0mrNAcUxMVoodxGLhiIZOYiE0CiK6cO0UJytz7pPohIQ.jpg" width="400"><br>
-
-«پویش جان‌فدا»، کارزاری وابسته به نهادهای تبلیغاتی سپاه پاسداران، ارسال پیامک برای ثبت‌نام شهروندان در دوره‌های «آموزش نظامی و امدادی» و سازماندهی آن‌ها در قالب «گردان‌های مردمی» را آغاز کرده است.
-در پیامکی که برای شماری از شهروندان ارسال شده از مخاطبان خواسته شده از ساعت ۱۷ سه‌شنبه ۲۴شهریور برای شرکت در «دوره‌های آموزش نظامی و امدادی یگان‌های مردمی جان‌فدا» ثبت‌نام کنند.
-پویش «جان‌فدا» از ۸فروردین۱۴۰۵ با محوریت «قرارگاه فرهنگی و اجتماعی قرب بقیه‌الله»، از نهادهای وابسته به سپاه پاسداران، راه‌اندازی شد. سامانه‌های اینترنتی، پیامکی، تلفنی و ثبت‌نام حضوری برای جذب افراد بالای ۱۲ سال در این پویش در نظر گرفته شده بود.
-@
-VahidHeadline
-دیروز کلی پیام دریافت کرده بودم از شهروندانی که می‌گفتند در این پویش ثبت‌نام نکرده‌اند ولی اون پیامک براشون ارسال شده.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78383)
 
 ---
 
