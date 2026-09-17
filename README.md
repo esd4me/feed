@@ -3,18 +3,41 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-17 11:41:46 </h5>
+<h5> 🟢 Updated at: 2026-09-17 17:27:59 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-17 17:03:36
+
+
+
+ویدیویی در شبکه‌های اجتماعی منتشر شده که نشان می‌دهد افراد نیروی انتظامی، یک نوجوان را مورد ضرب و شتم و آزار جنسی قرار داده‌اند. این ویدیو در شبکه‌های اجتماعی واکنش‌های بسیاری همراه داشته است.
+فرمانده انتظامی آذربایجان شرقی گفته که این اتفاق ۱۴ خرداد ۱۴۰۵ در جریان یک نزاع خیابانی در تبریز رخ داده است.
+این ویدیو خشم بسیاری از کاربران را برانگیخته است. برخی درباره خشونت پلیس صحبت کرده و گفته‌اند که «وقتی پلیس مقابل دوربین دست به چنین کارهایی می‌زند، معلوم نیست در بازداشتگاه و پشت درهای بسته چه به سر بازداشت‌شدگان می‌آورد.»
+برخی هم با اشاره به انتشار این ویدیو در چهارمین سالگرد کشته شدن مهسا (ژینا) امینی در بازداشت گشت ارشاد، به تداوم خشونت پلیس در سایه نبود قوانین بازدارنده اشاره کرده‌اند.
+پس از پربازدید شدن این ویدیو، فرمانده انتظامی استان آذربایجان شرقی گفت که ماموران حاضر در ویدیو «تنبیه انضباطی» شده‌اند.
+علی محمدی به خبرگزاری فارس گفت که این افراد «تنبیه و انتظار خدمت» شده‌اند و «اقدامات تنبیهی تکمیلی» در مورد آنها در دست اقدام است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78417)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-17 03:38:20
 
-<img src="https://cdn4.telesco.pe/file/EZYkxKrQr0G5zd901BH_b2N1lx3vGZvBHZ6vAoC3WWCvJTKVKP8XjON2qhRcsgVnw1t5y36zV__l7ePGhFqE98QOR4EfR2yRvgKmuqxocGREzzc_GJIO3IntYRYugiTLwrmwwIWrtxiZBB4vpzVGDcT-8U5HDwqNQB4qCTCG9_rs05dAPbT-t1XyqcOCm0ewkxOUuNs2nN7xjQagonATx0YANGMbWlvdrc2I3bFNe68RTIL5R7BXGo9KmJFNEJHGaiIAVt2Kq4tl_TIhinc04ReitdLZGjyKAPs2i85t8y4dDxDzPksMyg8GWuWVmddOE4TiJ7LRMaZvcmR33Lenyg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MJraw3AhuIDT-vttPT2t8kZutxtNsfBhIFHLNBJaYKTInfM4WrkCa661z5pfHvCw_3-ghRBmlVoTP_lXdn_VkeiJPW4kQ8c8r8sdjREc8vJlOaVOzMEwhzspZZwEapIoKJuf3kkknenxx2uRl2gRbC81dqboB2fkEDcmtBM95zhNOJaGWSlzrsirLDgwfgMr4slUBoOW3hMByylMUYu_kfE-4ZFoEWR_v_qvub1I7gsxJkeUfZvEeHW8dD41tW-X9Q8siduOO_Y1WqjjLvA3L2R5YqdLc3ZH6gBCSBewNfU-CDuxjCR1AcDc3oRAPlPGB9dv2F8CMg9LA-NeyR7Dag.jpg" width="400"><br>
 
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، چهارشنبه ۲۵ شهریور هنگام ورود به کارولینای شمالی برای شرکت در گردهمایی انتخاباتی مایکل واتلی، نامزد جمهوری‌خواه سنای آمریکا، درباره جنگ با ایران گفت: «امیدوارم به پایان جنگ نزدیک شده باشیم. آن‌ها می‌خواهند توافق کنند؛ خواهیم دید چه می‌شود.»
-ترامپ افزود ایران «بسیار خواهان توافق» است. او در پاسخ به این پرسش که آیا پیام‌های اخیر ایران را مستقیم دریافت کرده یا از طریق واسطه‌ها، گفت: «مستقیم.»
+دونالد ترامپ، رییس‌جمهوری آمریکا، مدعی شده است جمهوری اسلامی مستقیما با دولت او تماس گرفته و «بسیار» خواهان دستیابی به توافق با ایالات متحده است. او همچنین ابراز امیدواری کرده جنگ نزدیک به پایان باشد.
+ترامپ بامداد پنج‌شنبه ۲۶ شهریور ۱۴۰۵، پس از ورود به ایالت کارولینای شمالی، در پاسخ به پرسش خبرنگاران درباره مرحله کنونی جنگ گفت: «امیدوارم به پایان جنگ نزدیک شده باشیم.»
+او سپس درباره احتمال دستیابی به توافق با جمهوری اسلامی گفت: «آن‌ها می‌خواهند توافق کنند و خواهیم دید چگونه پیش می‌رود.» ترامپ در پاسخ به این پرسش که آیا پیام ایران از طریق میانجی‌ها منتقل شده یا تماس مستقیمی صورت گرفته است، گفت این تماس «مستقیم» بوده، اما درباره زمان، سطح و محتوای آن توضیح بیشتری نداد.
+رییس‌جمهوری آمریکا ساعاتی بعد در یک گردهمایی انتخاباتی در شهر گاستونیا در کارولینای شمالی، بار دیگر گفت جنگ با ایران به‌زودی پایان خواهد یافت و «پایان واقعا خوبی» خواهد داشت.
 @
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -26,7 +49,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-16 17:37:39
 
-<img src="https://cdn1.telesco.pe/file/I4BysKJRa3S__zqTOG1ZgTga-wmiacQtTIBXIQj3fE7giU2MPyp8sVVBr0QT114pG6NLybVMfo5_T8h1sFFXIYrXlafc34fE2ifkrvHHGN5M2ShjuDrx0v2PH13Sy75jYvUZbzs5IfcXC_uM0pfBbG4gtpvxMgX7X_b3t5SmXztZDF-IZ2NK8VDqYpRQPhROVqwG7qnaAyQnieiSDt5OzIPiRkCgGqU5nLWecpfbBz-SjGBBij7SDOrRkHBnDbUK2qge71YfX5BcJlPMRHLjLGNwS2QVh5_V37xIynQBTFJZPVNUA_l2NLQVStfP6Rc0yECEKbLqiY3wj1BkKpQv4w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ByjKHIf2sYcxfcFiavxgPJLeYQzT1TNKrioFo1AkN7uo4DNE0K4K1R3U2GOx7m3urf6TbhDONFI9ShUcKGG9UzA4U53xjlUoWo2IS---wam1bPcqMwk-2PwJbGKnTNZBXBN620c2myXWBJOOWRs4Am5VYeHqBVuORHQXWYv8Hux0mMjiCon9mBU0jITnzMUr4oZDrEXwsanwEPoWY8fbMQbU1sVJ5BMba0nL93eRdigFBBV1j3MzP5Je6hPQFQs1Q9GU7u7uBhV0SOX-epRR3XQ7vaoZfE7WZuFoNvz6z4zi8ncahZvbCVdVQ9jk2loD8DUwu55H1nWfXtmbvF-b0A.jpg" width="400"><br>
 
 شرکت هواپیمایی ماهان چهارشنبه ۲۵ شهریور در اطلاعیه‌ای اعلام کرد پروازهای این شرکت در مسیر تهران-مسقط-تهران از ۲۶ شهریور، برابر با ۱۷ سپتامبر، تا اطلاع ثانوی لغو خواهد شد.
 ماهان دلیل لغو این پروازها را اعلام مراجع هوانوردی عمان عنوان کرد.
@@ -66,7 +89,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-16 17:28:25
 
-<img src="https://cdn4.telesco.pe/file/W6439jwLg4p9A1byQPQCZXI2QCN_cLAna2GPQdeTV0HdJFsNB4swlODvzzwoxzf3p63Hod83vcdR3CuvA40V8v3rsynHDswke97KqKkEiSCpW8RHw2-zNtpsdNra3h2yClU8egg6VB39lLA-8iBwecZp3O2WxWrEJ1sBy5PK6_CNH1uTBlrdptwSHnz92_9wcQHSxmLUbYRwwTyTHRgfCJMnJJsks6DIfLopIWOBoPSjwl4X3_Cvtf97HIewuWrOdM6oKW8VZW9LlkvavttU06bcu27X568YLlza_5y0o_TLOlOUeVV9Fg9IQ7NYndSsUB-DwmC_-OtYz2Otxl_n8w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/tics1YWgGNV0984osQCrKzsN0fzZL6cuqal1Wvy5Nv7kajXScoOxR8qwxD_a9nUalpyj6uEmqF3UgkteKEmoCsK1ITT6Kyu_VYHT3UTQDeZRM69gWEMqqVV5iw8_I5q_mV-aX2tx7lUMKn2IoshGOMIBzFL7rWbex6vlK7fsynQn_OxMcOkMeF7__dg94YUeYJhAMbs0eBt2pIQccQGlzG2hbxF16H_UCkzzsZ6wiJtHGO5mWQ7q7y1qwlHMI-umbeIxcp-W4vf6Mz-B7uuRxpiSet-5fc8P1XKOlN1LYcnAzfDkSyAhP-UgxBM6BWz0YPJIJbQicc1k1x0-EtNL4Q.jpg" width="400"><br>
 
 وزارت امور خارجه چین با صدور بیانیه‌ای اعلام کرد که وانگ ئی، وزیر امور خارجه این کشور، روز چهارشنبه در دیدار با عباس عراقچی در پکن گفت:
 چین، ایران و ایالات متحده را تشویق می‌کند تا عقلانیت خود را حفظ کرده، خویشتن‌داری نشان دهند، به یادداشت تفاهم اسلام‌آباد بازگردند و «در گفتگوهای ماهوی درباره مسائل مورد علاقه طرفین مشارکت کنند.
@@ -92,7 +115,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-16 17:27:19
 
-<img src="https://cdn1.telesco.pe/file/hfEK_owwyCFqodSHoMj3ahobQz1eMowplYVwfcCyU6QKE4QFXta2nhUWTiaOBC-xbyJqLfUFWyeoBVynCTMigocIxG4bJPiIyM0d1G8h0AGHVicdtmr9Xa6Ko_G2ahy-FgbgafCxW9UhYVAeS8_tTwinPTYbtVioxr9yhflsM8xME4NucKG62icdpYhOk8AlZJSilVkrzz0M8sH-w7zmOYjL4Vc4sA_-LbMnbvh1IPTfXCFJK7-oworTQiGYOAyDE9xZojoh0PmOCNjtV91JAKsepdeFuRVYI7RXzrDBtCWdm4oholIU1iubkDiiM64URkXYABG3w1KZLkdxVuFYSA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IDovM2hmW7Bm3rxhc6-tBtkpWGqcGN2oQlD6UxJ6BC_j7Kwhy-jIURQiM59OS7Unm2-hpdAV4kgofLmRgawE__6CZQRrD5pJDthJAEzRcmrlFTBpthHjwO-2epbq_lE-pppyfCLmV94PJoQthntcBf-02X4Rk97HQVvR1gsITXwV5GW_bz32MhZWYR8en1X44xkJq8UHaTW_LJBh3VXrev5IS9HmEeX85yEEn2TuKcKHxmXnmgiZX8ejFh-vjIKV9uzYAoztPz8ckI0HUfBE1KZ2i_1s_OxHbVzdSjSkPdF1MjAO4-aloPc-cNUx5PX3t9ZK5O9urG2rdPBRjf4SGw.jpg" width="400"><br>
 
 خبرگزاری رویترز روز چهارشنبه ۲۵ شهریورماه به نقل از پنج منبع آگاه گزارش کرد که مقام‌های ایالات متحده آخر هفته گذشته (روزهای شنبه یا یکشنبه) با نمایندگان شورشیان حوثی مورد حمایت جمهوری اسلامی ایران، دیدار کرده‌اند.
 براساس این گزارش سه تن از این منابع که خواستند نامشان فاش نشود گفتند این دیدار که رسانه‌ای نشده بود، در سفارت آمریکا در مسقط برگزار شد. دو منبع دیگر نیز اشاره کردند که دولت عمان، به عنوان میانجی باسابقه منطقه‌ای، به برگزاری این نشست کمک کرده است.
@@ -113,7 +136,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-16 17:26:16
 
-<img src="https://cdn4.telesco.pe/file/mP72fT2KRDrZiyPwFG_6nM-Ool1WNY_1nFqxEf1rqDL7p8YO8ccXbgnY9vrnBmseOHhKH-DqxgaAkNF9EPnas10Wiw5nEpoPb8_CsunQiJPtus9_ScmCI13dr61rdkyvmo_ka55Ai08TCKqFAXB9vvnykd-PwltS0xgXJxJDPoyvrE4NJVfoiPRhayXwS-iMZqRNryzkR4_QG4f0YQPaVc7TMQocjqcPwK33AyjiqrSmLX9M6BDAPEozVTggCN9YtLcPFZt3BC6vclv4olKNXKKhAO21O8NHV8NKZR_BlgaMwnszqDrAe5lBAUYSNbvreVgpUKx-Z6OFTqP_QPezGg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/M6Dkm9hn40K66w2lS0yp3fXj0APH4TsgYhPupy4f6qk34qmwRjDKW0bY1EfvOUlWj4zxJpABDe5zI7m_49gsnach7ZAoRDoOAY9abf6Ed6A6ZZEbEYIROg-q3zWoULhN9HJRiZQvNdq2Cn9ue1tS2tsnqYVQe2YCL48NW4Xy280fOfbLFhISrTKjXs3mav-o4Q3BTsHkHYVaarpbJgaKAPf-5T7LOh0bmEi1qwiSRS79jk0yTYGevZ8lcE84cn7GONiOM-N3NTeu2H_MquZBO4K7WEd1-Zfd6mKHIinj-6RaDsfN-7CDxugdV1My9ygZZVWGWq0dpsX5wv1p1sS9Lw.jpg" width="400"><br>
 
 «جی‌دی ونس‌»، معاون رییس‌جمهوری آمریکا، گفته است جنگ با جمهوری اسلامی طی «یکی دو ماه آینده» وارد مرحله‌ای کاملا متفاوت خواهد شد و واشنگتن در مرحله بعدی باید مانع بازسازی توانایی‌های هسته‌ای و نظامی حکومت ایران شود.
 ونس همچنین با پیش‌بینی «دونالد ترامپ» همراه شده است که جنگ پس از انتخابات میان‌دوره‌ای آمریکا پایان خواهد یافت؛ هرچند توضیح نداده منظور از «مرحله متفاوت» تشدید عملیات نظامی، کاهش درگیری‌ها یا آغاز روندی دیپلماتیک است.
@@ -131,7 +154,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-16 17:25:01
 
-<img src="https://cdn1.telesco.pe/file/XX2-O91z4XpXNWsHLSrONv2yUK7Gufzj_mh3cX4J3tPhz1M4MoS1WV7XR_3dW9-VIwqvVaWwlAUPfZgJAWqcUnkr7YpcIXSLUOxZUecOo2ZI1XmSn2_OO8Y4BT67AhClkJuU4bJbhglttN6ulN0VSSaGIrcKo7GNrZf4tEsFOFL5EVTRyKGsyw3l_Lgj-VIa0EFcVyIUv_v7pcKhO_OJwQWE8E4HQ2T92n5mqWIrGXce6kY2otEPPISZxfo5OrhcEPkSVMX0oLeBq8ZAsG-KbM0nEXEDt3bp5X2t-UE9EmgZEGu21mUt9cIUKWcSI1k9b0JnDJO-1yRXLcOXscK2VA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/q44gdnWpc0AycId_FNyU9F2l5V02pJ9H_dmBtkpw4dKtyuAttIvtc1hn2qnFSia21XHhiNvUpRjyqG-8UTsSUBhRa5Wkb0H79PWexjM_c-IUoJr29dOy_HbBOIOXG7UDvPkUEt9puL9hLflmsQNL65koOtTp5CDB2-V2Z8ApL4YS3KAXMmgfKv9tiuCaId2rNkAeeXrcKkJssijMQomtOeA7aef-xzg7hB7AZ8DREnCInl3lG_vy00GvwzMHkHDPGqOnbLMtYSKTAhSjadLVOas-O7d0UQTvkTdQvPRbNRrU0ybwWMxDOfOKm9paSQ6VSbOwYqs_0wYiYVMXmHaZ_A.jpg" width="400"><br>
 
 حسین قشقایی، همسرش سارا شمسایی و ابوالفضل قشقایی، برادر حسین، از معترضان دی‌ماه، پنجشنبه ۱۹ شهریور بازداشت شدند.
 حسین قشقایی و سارا شمسایی در لاهیجان به دست نیروهای وزارت اطلاعات بازداشت و به اراک منتقل شده‌اند.
@@ -206,24 +229,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78398)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 21:35:06
-
-<img src="https://cdn1.telesco.pe/file/nNtK8wMF7Ipz7tGqyguLV2bVx5vI5tuHOaZ8xdLCUAyH326Lv_ppm8HW-jyfuna3Rw6WBsRBZ0t5adZXnG_e_CVHKcnRKqIo1BrD7xHRxi4vvJKFEqWChQQZcIevfgpNB8VmACHMwCnUVm-KKHm-1QLZK53_o_n6NuWM4mZxVTqZVkl9FNWMwOR5dKC9Tcsn-S8DQ2dLHrxOqBI5hozYXM6LYA8Kk90mfAVQ1YS4cvkvncjE4fEzVeXS0D1wqBv7PFJPouI3gFLde1lBvhraUtjDL4VJPpc8j5jJKsaFDCq1IYvC8atvm7wI0DWkufRDFKq7zM8G6N23e4I3CeEzGw.jpg" width="400"><br>
-
-اکسیوس به نقل از دو مقام اسرائیلی گزارش داد فرماندهان ارشد نظامی آمریکا، اسرائیل، عربستان سعودی، امارات متحده عربی، بحرین، کویت، قطر، اردن و مصر هفته گذشته در نشستی محرمانه در آلمان درباره جنگ با جمهوری اسلامی و تنش‌های منطقه گفت‌وگو کردند.
-اکسیوس گزارش داد نشست محرمانه فرماندهان نظامی در آلمان به ابتکار برد کوپر، فرمانده سنتکام، برگزار شد.
-به گزارش اکسیوس، برد کوپر در نشست محرمانه آلمان، فرماندهان نظامی اسرائیل و کشورهای عربی را در جریان برنامه آمریکا برای افزایش تردد کشتی‌ها در تنگه هرمز قرار داد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78397)
 
 ---
 
