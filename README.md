@@ -3,17 +3,38 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-17 17:27:59 </h5>
+<h5> 🟢 Updated at: 2026-09-17 21:28:27 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-17 18:43:32
+
+<img src="https://cdn4.telesco.pe/file/mGH2Uvhqn5ytTGVUuBMsUkBCABQtPXfqExJo6tP6kocUU4NlsM8x9OSaw4E4_GVNS0I5ZoPXIfbR-8ENl7SuQamGt22qXMt2PE0dW9uzpqQyNHAjshfPnORzm_oyy8JLjFdgyZhIeiWysLeJZF_BkqYfFF_FsJZuGWJUDChrW4dvL0McMaTseBOB2Z4nymlpQgo7zGNqU-umDKM0CCfhzjU-idos7unBlmaPv_SWVNM1LRe1CkQUhj6Pn4p44IQSd7ff73Il1kvUBiIHKtqbSYoz5H7lL1twZDSQCW3DPSFQ6AkYV7SwTD-tGwUZQGTsHxnsu_7y8ZbGJDtA7QXCbg.jpg" width="400"><br>
+
+روسیه و چین روز پنجشنبه، ۲۶ شهریور، در نشست شورای امنیت سازمان ملل متحد، پیش‌نویس قطعنامه پیشنهادی ایالات متحده برای تمدید ماموریت هیات کارشناسان کمیته تحریم‌های ۱۷۳۷ علیه جمهوری اسلامی ایران را وتو کردند.
+این نشست با ابتکار فرانسه که در ماه سپتامبر ریاست دوره‌ای شورای امنیت را بر عهده دارد، در چارچوب دستورکار «منع اشاعه» برگزار شد. در جریان رای‌گیری میان ۱۵ عضو شورای امنیت، این قطعنامه ۱۱ رای مثبت کسب کرد، اما با مخالفت صریح (وتو) مسکو و پکن و همچنین رای ممتنع پاکستان و سومالی مواجه شد. برای تصویب یک قطعنامه در این شورا، علاوه بر کسب حداقل ۹ رای موافق، وتو نکردن اعضای دائم الزامی است.
+دیپلمات‌ها پیش‌تر از مخالفت قطعی روسیه و چین با این طرح خبر داده بودند. مسکو و پکن معتقدند که با انقضای قطعی قطعنامه ۲۲۳۱ برجام در اکتبر ۲۰۲۵، تمامی سازوکارهای تحریمی پیشین از جمله کمیته ۱۷۳۷ فاقد هرگونه اعتبار و اثر حقوقی هستند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78418)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-17 17:03:36
 
 
 
-ویدیویی در شبکه‌های اجتماعی منتشر شده که نشان می‌دهد افراد نیروی انتظامی، یک نوجوان را مورد ضرب و شتم و آزار جنسی قرار داده‌اند. این ویدیو در شبکه‌های اجتماعی واکنش‌های بسیاری همراه داشته است.
+(
+⚠️
+خشونت و آزار جنسی)
+ویدیو نشان می‌دهد ماموران فرماندهی انتظامی جمهوری اسلامی ایران یک نوجوان را مورد ضرب و شتم و آزار جنسی قرار داده‌اند.
+این ویدیو خشم بسیاری از کاربران را برانگیخته است. برخی  گفته‌اند که «وقتی پلیس مقابل دوربین دست به چنین کارهایی می‌زند، معلوم نیست در بازداشتگاه و پشت درهای بسته چه به سر بازداشت‌شدگان می‌آورد.»
 فرمانده انتظامی آذربایجان شرقی گفته که این اتفاق ۱۴ خرداد ۱۴۰۵ در جریان یک نزاع خیابانی در تبریز رخ داده است.
-این ویدیو خشم بسیاری از کاربران را برانگیخته است. برخی درباره خشونت پلیس صحبت کرده و گفته‌اند که «وقتی پلیس مقابل دوربین دست به چنین کارهایی می‌زند، معلوم نیست در بازداشتگاه و پشت درهای بسته چه به سر بازداشت‌شدگان می‌آورد.»
 برخی هم با اشاره به انتشار این ویدیو در چهارمین سالگرد کشته شدن مهسا (ژینا) امینی در بازداشت گشت ارشاد، به تداوم خشونت پلیس در سایه نبود قوانین بازدارنده اشاره کرده‌اند.
 پس از پربازدید شدن این ویدیو، فرمانده انتظامی استان آذربایجان شرقی گفت که ماموران حاضر در ویدیو «تنبیه انضباطی» شده‌اند.
 علی محمدی به خبرگزاری فارس گفت که این افراد «تنبیه و انتظار خدمت» شده‌اند و «اقدامات تنبیهی تکمیلی» در مورد آنها در دست اقدام است.
@@ -70,7 +91,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-16 17:29:36
 
-<img src="https://cdn1.telesco.pe/file/GtMxop5zSPdm3dFc21MEgkUmI4x6XbkRyMZFQZdrX8evW_pVL9K0sTMVQ3r_7CVPe5s_bGHORKlyM3Q0G6AAIVJIUI12Lb4J9y1kbO5p-Z5F6YTmI4QyU9i9Fs0Y_Fb5AED8W1q0hGVwjwkex-w3vHm_5AG4O16_c0-ehW0VTU1kyXrvJwCAIUEA9yvxbTZZZL9Qd_yAz2LcyCUFWpt_b84rh85PKu4qmLZXhZeVQFB8gq866lb49OM2zcTeKLK3lUyFbO6kbODBhsKE7OtkBYqlc7Th0cQa9_W5glrbf6BU0-HOHAxnsk98sgZVFO-Iy2VQ8Jlk0mGOrmDJLGY37Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/US7M1H9v8AUgiUaoLsJ03Yl0BVXQTjV1JDp2eDEm5iixMyRoQmm1c_0RFnBgwBKb0hpIXyrNfnuJG7hoNXMdIFDXGn8R8OyaKW0pI-y-1n4n5svN1gN7AH69v-yWFWdCqTuQqW6V1L01g8XfPH-4-X5XbPlQ7nl4IJgoUAO8sdY8mYC6M7lkN7O7DgMYoKQ5Mq8HlmVQdmFTK3uVEP2vYT1r8qASYFoX6fBNYXJCY2p0bOzsLEJwxIOMdlxRt4RRRatty-dp5pp_FV2-fz4CIj7G4h80EHQqxhlTznWO8yyFDEuP4jCVGtW8_zxyiUgYNUqpXItzFQs36L8YpYFpsA.jpg" width="400"><br>
 
 ابوالفضل قدیانی، زندانی سیاسی محبوس در زندان اوین، روایت جمهوری اسلامی درباره نقش «تروریست‌های وابسته به بیگانگان» در کشتن معترضان دی‌ماه ۱۴۰۴ را رد کرد و نیروهای حکومتی را مسئول «قتل عام» آن‌ها دانست.
 قدیانی در بیانیه‌ای که روز ۲۴ شهریور از بند هفت زندان اوین نوشته، با اشاره به راهپیمایی ۲۲ بهمن و تجمعات حکومتی ماه‌های گذشته پرسیده است اگر عاملان تیراندازی به معترضان، آن‌گونه که حکومت می‌گوید، «تروریست» بوده‌اند، چرا در تجمعات حکومتی که در امنیت برگزار شده‌اند، اثری از آنها نبوده است.
@@ -211,24 +232,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78399)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-16 03:56:13
-
-<img src="https://cdn4.telesco.pe/file/AhKJnA-r9JxrD572-G0QZImlNCpzX3AqPM_nVmIFtCUZevMs4WIKLJCGiJyKogYRdZbL0Vn7ojszMK1TvwWG2YYEUmaja9Busin4gSK4CrO72r9xeJu1T_YOCx9dZadh6yA-giNmlTQUgleF_VOfjnzrozDyHEj_K9DYq9hSJK1j5Kii6HnZOA59EaW3HmJJBmCoM5ELa6ZXuoIl7tYBHp1nRnnpKRcbyod4DIkYDsocjrsPuGWRmLKJENDOD3zKPn1ZhrJeiJUm_6HqH-WMXT4xEr5BzM75y32qaKG1rHvUD2TPITJI70QsaMh0HOO7iboljhwg5wZAt8fxrINRKw.jpg" width="400"><br>
-
-ائتلاف به رهبری عربستان سعودی در یمن اعلام کرد پدافند هوایی این ائتلاف یک فروند پهپاد پرتاب‌شده از سوی حوثی‌ها را که قصد ورود به حریم هوایی مکه را داشت، رهگیری و منهدم کرده است.
-به گزارش خبرگزاری رویترز، ترکی المالکی، سخنگوی ائتلاف، در بیانیه‌ای گفت این دومین تلاش حوثی‌ها برای هدف قرار دادن مکه بوده است.
-به گفته ائتلاف، پیش از این نیز حدود ۹ سال قبل یک فروند موشک بالستیک به سوی مکه شلیک شده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78398)
 
 ---
 
