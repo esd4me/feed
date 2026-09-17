@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-17 02:55:35 </h5>
+<h5> 🟢 Updated at: 2026-09-17 06:02:57 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-17 03:38:20
+
+<img src="https://cdn4.telesco.pe/file/EZYkxKrQr0G5zd901BH_b2N1lx3vGZvBHZ6vAoC3WWCvJTKVKP8XjON2qhRcsgVnw1t5y36zV__l7ePGhFqE98QOR4EfR2yRvgKmuqxocGREzzc_GJIO3IntYRYugiTLwrmwwIWrtxiZBB4vpzVGDcT-8U5HDwqNQB4qCTCG9_rs05dAPbT-t1XyqcOCm0ewkxOUuNs2nN7xjQagonATx0YANGMbWlvdrc2I3bFNe68RTIL5R7BXGo9KmJFNEJHGaiIAVt2Kq4tl_TIhinc04ReitdLZGjyKAPs2i85t8y4dDxDzPksMyg8GWuWVmddOE4TiJ7LRMaZvcmR33Lenyg.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، چهارشنبه ۲۵ شهریور هنگام ورود به کارولینای شمالی برای شرکت در گردهمایی انتخاباتی مایکل واتلی، نامزد جمهوری‌خواه سنای آمریکا، درباره جنگ با ایران گفت: «امیدوارم به پایان جنگ نزدیک شده باشیم. آن‌ها می‌خواهند توافق کنند؛ خواهیم دید چه می‌شود.»
+ترامپ افزود ایران «بسیار خواهان توافق» است. او در پاسخ به این پرسش که آیا پیام‌های اخیر ایران را مستقیم دریافت کرده یا از طریق واسطه‌ها، گفت: «مستقیم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78416)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-16 17:37:39
@@ -14,7 +31,7 @@
 شرکت هواپیمایی ماهان چهارشنبه ۲۵ شهریور در اطلاعیه‌ای اعلام کرد پروازهای این شرکت در مسیر تهران-مسقط-تهران از ۲۶ شهریور، برابر با ۱۷ سپتامبر، تا اطلاع ثانوی لغو خواهد شد.
 ماهان دلیل لغو این پروازها را اعلام مراجع هوانوردی عمان عنوان کرد.
 این شرکت همچنین در اطلاعیه‌ای جداگانه اعلام کرد بنا بر اعلام مراجع هوانوردی ترکیه، پروازهای ماهان از ایران به مقصد ترکیه، شامل استانبول، آنکارا و بالعکس، از ۳۰ شهریور، برابر با ۲۱ سپتامبر، تا اطلاع ثانوی لغو خواهد شد.
-ماهان افزود آخرین پروازهای این شرکت در مسیرهای تهران-استانبول، تهران-آنکارا و بالعکس روز ۲۹ شهریور انجام خواهد.
+ماهان افزود آخرین پروازهای این شرکت در مسیرهای تهران-استانبول، تهران-آنکارا و بالعکس روز ۲۹ شهریور انجام خواهد شد.
 خبرگزاری عصر ایران نیز سه‌شنبه ۲۴ شهریور به نقل از یک منبع آگاه گزارش داده بود دولت گرجستان در پی تحریم‌های جدید آمریکا، پرواز همه شرکت‌های هواپیمایی ایرانی به این کشور را از دوشنبه آینده متوقف می‌کند.
 عصر ایران افزود بررسی این رسانه از چند آژانس گردشگری نشان می‌دهد فروش تورهای گرجستان نیز تنها تا یکشنبه ۲۹ شهریور انجام می‌شود.
 @
@@ -157,7 +174,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-16 04:07:59
 
-<img src="https://cdn1.telesco.pe/file/BGuOyJ_tUNtpH-HqU7DPK9bIXCao3s9WqUSRZ2bYGgvYFWcYXTv8bhcv6Mb-UF8q_ZSqCkTME1dbwkRH0jFJZFDMt_UagVt00QquUbZ0Ltm3WBGF185RGqKUTd5_O-uyGRgBH_rUyUj_LFrmjv7nxWjtEZk-CEqxlv56rk3mWO6pYfXErnTEBDMdRyFxRKbLRqKiLFo8JTrdOVzvsXUG7aZoeLDp26WmZSwTN3zuQ8yjzxFQqqae_AaWR6r7rn6IRTgEqhGEwl8yN3kALw0dqv_aD3hHW71E3JiBfLARV44Hxi4u9pgKVyGlLN9NOwUigxjgHeCSBkOJ4dAavj1UYA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NmhmiZKOEJEntBQoBYpeERyId4UcmnN_TSXtsdz6jdJmLdIAjIZJFuqwyYwL-D5acGx4ZTXpMFgkoIsauqnP1lrmWb1CL7QkIjga5kgyJUWQMMrVDzD-x4otwHM62jMjCnQzcxaomqMoe71jxCxzEsLvZcvtdfyAvUofLXlR-S8tFv-M853MsOaqXDmeeporoVC5yoUd_YaEw2DES_Y3OEEnv8J2tFLEw7mzZ31ni1TN68kR4jJ3ybLBwgnNnXylIeNC_XlqS3c87uRQev8YY6HD-VYPmZmoP1bNUqvGFiI4YWza_EolNQ7j7gwstO4nWrIA_VDKPYWW9h42StrRzw.jpg" width="400"><br>
 
 سی‌بی‌اس‌نیوز گزارش داد تصاویر جدیدی که به‌طور اختصاصی به دست آورده، برای نخستین بار گستردگی خسارت حملات موشکی و پهپادی جمهوری اسلامی به چند موضع نظامی آمریکا در خاورمیانه را نشان می‌دهد.
 این تصاویر را نظامیان آمریکایی در اختیار سی‌بی‌اس‌نیوز قرار داده‌اند. یکی از آنها گفت خسارت گسترده به پایگاه‌های آمریکا به اطلاع مردم این کشور نرسیده است.
@@ -178,7 +195,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-16 03:56:13
 
-<img src="https://cdn4.telesco.pe/file/cQbFaT1KiEDDcwyTsoFUKOhOAZuOCUW5pVsYfMHOkoeZucvqSFCShhGcvObO4hmv_fVTWcQyuiaFR1HvfQ13PV4VhzED2lZypDWWK0q0TsZHzBmOcmnZiHRBr0dqWQWQfMz80XzIl5xbpslXiMIE_oRUQe-M3lBSVNNQNRAv1hIPSnc_wGgsk9Ko0J_TWpJzx-B38LVRVkcMIeTyAHVajoqjj_-AASBr_HfgdvTNPT6FzrFsZP1bEfTmmUFgfxOX_OndpXOU6mrBvPQe1bw-PjIJ0L7k2ynaTjCnshf-ncaqKDgqK1w2VtSGzHcDaDfkJawboay2Fcqr3nUwAPxwbg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/AhKJnA-r9JxrD572-G0QZImlNCpzX3AqPM_nVmIFtCUZevMs4WIKLJCGiJyKogYRdZbL0Vn7ojszMK1TvwWG2YYEUmaja9Busin4gSK4CrO72r9xeJu1T_YOCx9dZadh6yA-giNmlTQUgleF_VOfjnzrozDyHEj_K9DYq9hSJK1j5Kii6HnZOA59EaW3HmJJBmCoM5ELa6ZXuoIl7tYBHp1nRnnpKRcbyod4DIkYDsocjrsPuGWRmLKJENDOD3zKPn1ZhrJeiJUm_6HqH-WMXT4xEr5BzM75y32qaKG1rHvUD2TPITJI70QsaMh0HOO7iboljhwg5wZAt8fxrINRKw.jpg" width="400"><br>
 
 ائتلاف به رهبری عربستان سعودی در یمن اعلام کرد پدافند هوایی این ائتلاف یک فروند پهپاد پرتاب‌شده از سوی حوثی‌ها را که قصد ورود به حریم هوایی مکه را داشت، رهگیری و منهدم کرده است.
 به گزارش خبرگزاری رویترز، ترکی المالکی، سخنگوی ائتلاف، در بیانیه‌ای گفت این دومین تلاش حوثی‌ها برای هدف قرار دادن مکه بوده است.
@@ -207,24 +224,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78397)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-15 21:32:13
-
-
-
-وزیر خزانه‌داری ایالات متحده در جلسه سالانه درباره وضعیت اقتصادی آمریکا و سیستم مالی بین‌المللی با دفاع از سیاست‌های دولت دونالد ترامپ در قبال ایران، گفت رئیس‌جمهوری آمریکا اقدامی را انجام داده که به گفته او، رؤسای‌جمهور پیشین آمریکا سال‌ها از انجام آن خودداری کرده بودند.
-اسکات بسنت با اشاره به جمهوری اسلامی گفت: رژیمی که خود را وقف شعار "مرگ بر آمریکا" کرده و به‌دنبال دستیابی به سلاح هسته‌ای برای تحقق همین هدف است، اکنون با سیاستی متفاوت از سوی آمریکا روبه‌رو شده است.
-او افزود: تحت رهبری رئیس‌جمهور ترامپ، آمریکا دیگر صرفا در حال مدیریت تهدید ایران نیست؛ ما در حال پایان دادن به آن هستیم.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78396)
 
 ---
 
