@@ -3,22 +3,79 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-18 11:16:22 </h5>
+<h5> 🟢 Updated at: 2026-09-18 16:00:46 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-18 15:58:38
+
+<img src="https://cdn4.telesco.pe/file/ZizVrRMGHW2yppRLcET-x9hjVWRe1K-m9xeLHQO78waKmTJHsgKeKkSQFwd_sb5C3WY0L7S4OwxmXwdn3Jmt8V3Gtarer1D04psFCElPRjYDSwSpnuNTJn-wbY1CBZdiw32zKXyw-yoGW-dqt_M2c_3tzcHZXB0kVbRcOB1xFmYYEEybyYUTSe9TtUgjZaQ8CYLv6wk5HU0yP-88A0uoY6EDd4m8Pk8wGc8dfBjpJMUhJBGx2noX4yiVJZf4y4Ykc-GgPAektiZovGUYg2rcFJt7s9q2HHOvNr5SNxqf0b6fHOoAoaZ8y1ArCcVPs52J8-Yxc1-OQZI9tKOHhRcp2Q.jpg" width="400"><br>
+
+رئیس‌جمهور کره جنوبی اعزام نیرو یا تجهیزات نظامی به خاورمیانه را در صورتی که به مشارکت سئول در جنگ منجر شود رد کرد، اما گفت کشورش ممکن است برای حفاظت از کشتیرانی تجاری و انتقال نفت در منطقه نقش بیشتری بر عهده بگیرد.
+لی جائه میونگ روز جمعه ۲۷ شهریور در یک نشست خبری گفت: «هیچ اعزامی که به ورود یا مشارکت در جنگ منجر شود، انجام نخواهد شد.» او تأکید کرد کره جنوبی برای چنین هدفی «به هیچ شکلی» تجهیزات نظامی اعزام نخواهد کرد.
+او در عین حال گفت سئول باید مانند دیگر کشورها «حداقل اقدامات لازم» را برای حفاظت از کشتی‌های تجاری، انتقال نفت خام و امنیت شهروندان خود انجام دهد.
+دولت کره جنوبی در هفته‌های اخیر در حال بررسی احتمال اعزام نیرو یا تجهیزات نظامی برای کمک به تأمین امنیت کشتیرانی در تنگه هرمز بود.
+دونالد ترامپ، رئیس‌جمهور آمریکا، از سئول به دلیل آنچه حمایت ناکافی از تلاش‌های آمریکا در ارتباط با جنگ ایران خوانده، انتقاد کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78433)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-18 15:58:17
+
+<img src="https://cdn1.telesco.pe/file/QY05ZUFhKQtUEEDPgyZbVeW7enfKO_XV3k4ZqCnlQtHLm2KIYG4Us4CXXXdIJBQw_CKRCYEMENvN3qFdgs5me38XCXHFrOYtfE_75uGu-tqCdL9KR1-u31VxCmOvy1o-YyCVqMcZThw4jXFM0l2H58tSS4tOC8Ilr1ZS6ZGce-NeAy8Zx7V9NhuJECyaKL5vrPGR58rztw7yeKgwQj_k9wz-ETzH2gmzH8XMI6pUMcBQCuntj3QGmbxoSxWl0bNE0fS2WXRpvnCRUsN8R9OgBoT0QiNDRKIwMMDmeLPvno3Ti1Q2KiAGoBajfV--IODgR1mkwMHHyYu-BtLE3qCiNA.jpg" width="400"><br>
+
+UKMTO:
+مرکز عملیات تجارت دریایی بریتانیا گزارشی درباره وقوع یک حادثه در تنگه هرمز دریافت کرده است.
+افسر امنیتی شرکت (CSO) یک شناور گزارش داده است که یک نفتکش با پرتابه‌ای ناشناس مورد اصابت قرار گرفته و این برخورد باعث آتش‌سوزی در عرشه شده که اکنون مهار و خاموش شده است.
+گزارش شده که همه خدمه در سلامت هستند و در حال حاضر تأثیرات زیست‌محیطی این حادثه تأیید نشده است.
+UK_MTO
+در گزارشی دیگر نوشتند:
+مرکز عملیات تجارت دریایی بریتانیا (UKMTO) یک گزارش تأییدشده اما با تأخیر زمانی درباره حادثه‌ای دریافت کرده است که در ۱۶ سپتامبر ۲۰۲۶ رخ داده و طی آن یک نفتکش هنگام خروج از تنگه هرمز با یک پرتابه ناشناس مورد اصابت قرار گرفته است.
+گزارش شده که خدمه در سلامت هستند. گزارشی درباره ارزیابی خسارات و تأثیرات زیست‌محیطی منتشر نشده است.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78432)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-18 15:56:25
+
+<img src="https://cdn4.telesco.pe/file/FsNMfHSkokqtiyykg6_sW3f0AMRcujY5oitFDTudGB19XOA2WEWXXIBNPrgu2eC7EAaOQ20_qyF2lIVNos78K77pZ7sHu9-vsbHf_M6f6CroGn_PL00i_0IQEtNyrFOe-sf-XM1g_FURGz-YIt20a8__0XzK8-m_Oe01DNy0zCeIttR2sqJ8J8JYgoNZOQAQRif5N7Tcr5SOrEpVV3V30B7GTBz6HXC08_PKEqUVKQg_YH_Ms6G0vTQPKOGKB8PTjOYgNiJXf07USfuiAfB8atC3K9HTOSk5p1uMy0X7R9CSyAAIwWFpRxsMG2AgWvwozrZhjetOCaRy5fZysYLkPQ.jpg" width="400"><br>
+
+احمد کرمی‌اسد، جانشین پلیس راهور فراجا از جان‌باختن بیش از ۱۶۰۹ نفر در تصادفات جاده‌های برون‌شهری در شهریورماه خبر داد.
+به گفته این مقام فراجا، این آمار به‌طور میانگین به بیش از ۵۰ نفر در روز می‌رسد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78431)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-18 06:18:22
 
 <img src="https://cdn1.telesco.pe/file/mw8gRf_aIrMXIbiz8ZPzwacm-a99nyzjd7dyLAFqIT6hzZhC0e9gdNVNT_oZkDnMgBuBNQPbkfjmYYod7nqWHNZ1Rge1CaBDYA0qDyTYamnDhHreCSUNOv3Dm-XBqEW1Yf5-nADn0L1mv7xQTMeE9V_-4-XtIkcXwvySQv5qTWS2EZWyPhlAudDfw57KLqVhAQ89VjNxfxPX36Sw3VcbuIol84hvQChvxWrI-7xY5OIceRWV1oLtHIyZkahY-Y60IrBJmC3JUDm1TjFZncxiepN4WXzF2HE_JEGF3-UFkGLw0lpDfFUBe2dikX-oiGqqCWhKQ6EmvYhwTAPHuhm_FQ.jpg" width="400"><br>
 
-حال‌وش گزارش داد از حوالی ساعت ۳۰ دقیقه بامداد جمعه در محدوده خیابان دانشگاه و اطراف خیابان دانشجو زاهدان، به مدت دو ساعت تیراندازی رگباری رخ داد و سرنشینان یک خودروی پژو ۴۰۵ هدف حمله قرار گرفتند. هنوز از میزان دقیق تلفات و وضعیت افراد درگیر اطلاع کاملی در دست نیست.
-حال‌وش به نقل از منابع آگاه گزارش داد در این درگیری یک فرد مسلح، سه نیروی نظامی و دو زن رهگذر مجروح شدند، اما هنوز هیچ گزارش رسمی در این مورد منتشر نشده است.
-چندین آمبولانس به محدوده خیابان دانشگاه و اطراف خیابان دانشجو اعزام شده و در برخی خیابان‌ها ایست‌های بازرسی برپا شده است.
-تصاویر و ویدیوهای منتشرشده در فضای مجازی، تیراندازی افراد مسلح و حضور و استقرار نیروهای نظامی و امنیتی در جریان این درگیری را نشان می‌دهد.
-هم‌زمان با درگیری، شمار زیادی از نیروهای امنیتی، نیروهای لباس‌شخصی و نیروهای وابسته به ارگان‌های مختلف در خیابان‌های اطراف محل حادثه و دیگر نقاط شهر مستقر شده‌اند.
-حال‌وش گزارش داد ورودی‌ها و خروجی‌های زاهدان نیز برای مدتی مسدود شده و محدودیت‌هایی در تردد خودروها و شهروندان اعمال شده است.
+همزمان با انتشار ویدئوها و تصاویر مختلفی در شبکه‌های اجتماعی از وقوع درگیری مسلحانه در بامداد جمعه ۲۷ شهریور در شهر زاهدان، خبرگزاری برنا از کشته شدن یک مأمور نیروی انتظامی در این درگیری خبر داد.
+ساعتی بعد خبرگزاری فارس اعلام کرد که در جریان این درگیری دو نفر از مهاجمان کشته شدند و یک نفر از آن‌ها دستگیر شده است.
+وب‌سایت «حال‌وش» هم که اخبار سیستان و بلوچستان را منتشر می‌کند، می‌گوید از حوالی ساعت ۳۰ دقیقه بامداد جمعه در محدوده خیابان دانشگاه و اطراف خیابان دانشجو زاهدان به مدت دو ساعت تیراندازی رگباری رخ داد و سرنشینان یک خودرو پژو ۴۰۵ هدف حمله قرار گرفتند.
+این رسانه به نقل از منابع خود همچنین افزود در این درگیری «یک فرد مسلح، سه نیروی نظامی و دو زن رهگذر مجروح شدند و چندین آمبولانس به محدوده خیابان دانشگاه و اطراف خیابان دانشجو اعزام و در برخی خیابان‌ها ایست‌های بازرسی برپا شد».
 @
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -222,7 +279,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-17 03:38:20
 
-<img src="https://cdn1.telesco.pe/file/MJraw3AhuIDT-vttPT2t8kZutxtNsfBhIFHLNBJaYKTInfM4WrkCa661z5pfHvCw_3-ghRBmlVoTP_lXdn_VkeiJPW4kQ8c8r8sdjREc8vJlOaVOzMEwhzspZZwEapIoKJuf3kkknenxx2uRl2gRbC81dqboB2fkEDcmtBM95zhNOJaGWSlzrsirLDgwfgMr4slUBoOW3hMByylMUYu_kfE-4ZFoEWR_v_qvub1I7gsxJkeUfZvEeHW8dD41tW-X9Q8siduOO_Y1WqjjLvA3L2R5YqdLc3ZH6gBCSBewNfU-CDuxjCR1AcDc3oRAPlPGB9dv2F8CMg9LA-NeyR7Dag.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Xw5M7__arRQ1kdwo6wR8zu8bAdxfqtWPlzjtjtGad3v1cAAOfiVZWyAsHOY5snVU1bcNpSkQTCT2FfFFM0OLSfjHwJpH-XC7Yq8LXO4V6Oz12lTKfCG9WDZperpUycD70XKJknzlJS9tat3g8N841IeLD5ZIM32IGeC75T0xB5WVOf9EMJtHxYDXKRccexiB4iPHlHNDBmncPTEarRn11J6Xp4K5sO0mVuNYZrrISnjpcLMOVFXKfAp8Zp3X8o5L3hK4TPHn9iuj3CkMUtMiV4AvpA0GADwvMiV4J6xA11V4o1PmD1J3RVi_BqucvK915EXwCFZT2JLv7JVxuTJCGA.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، مدعی شده است جمهوری اسلامی مستقیما با دولت او تماس گرفته و «بسیار» خواهان دستیابی به توافق با ایالات متحده است. او همچنین ابراز امیدواری کرده جنگ نزدیک به پایان باشد.
 ترامپ بامداد پنج‌شنبه ۲۶ شهریور ۱۴۰۵، پس از ورود به ایالت کارولینای شمالی، در پاسخ به پرسش خبرنگاران درباره مرحله کنونی جنگ گفت: «امیدوارم به پایان جنگ نزدیک شده باشیم.»
@@ -274,71 +331,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78414)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-16 17:28:25
-
-<img src="https://cdn4.telesco.pe/file/tics1YWgGNV0984osQCrKzsN0fzZL6cuqal1Wvy5Nv7kajXScoOxR8qwxD_a9nUalpyj6uEmqF3UgkteKEmoCsK1ITT6Kyu_VYHT3UTQDeZRM69gWEMqqVV5iw8_I5q_mV-aX2tx7lUMKn2IoshGOMIBzFL7rWbex6vlK7fsynQn_OxMcOkMeF7__dg94YUeYJhAMbs0eBt2pIQccQGlzG2hbxF16H_UCkzzsZ6wiJtHGO5mWQ7q7y1qwlHMI-umbeIxcp-W4vf6Mz-B7uuRxpiSet-5fc8P1XKOlN1LYcnAzfDkSyAhP-UgxBM6BWz0YPJIJbQicc1k1x0-EtNL4Q.jpg" width="400"><br>
-
-وزارت امور خارجه چین با صدور بیانیه‌ای اعلام کرد که وانگ ئی، وزیر امور خارجه این کشور، روز چهارشنبه در دیدار با عباس عراقچی در پکن گفت:
-چین، ایران و ایالات متحده را تشویق می‌کند تا عقلانیت خود را حفظ کرده، خویشتن‌داری نشان دهند، به یادداشت تفاهم اسلام‌آباد بازگردند و «در گفتگوهای ماهوی درباره مسائل مورد علاقه طرفین مشارکت کنند.
-براساس این گزارش، وانگ با بیان اینکه چین «نمی‌خواهد شاهد سرایت بیشتر تنش‌های منطقه‌ای به یمن و دریای سرخ باشد» افزود: «ما از همه طرف‌ها می‌خواهیم اقدامات موثری برای بازگشایی هرچه سریع‌تر تنگه هرمز انجام دهند.»
-وانگ همچنین گفت که سیاست چین در قبال ایران همواره ثابت و پایدار بوده و چین مایل است ارتباطات و هماهنگی‌های خود را با تهران تقویت کند.
-@
-VahidOOnLine
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، چهارشنبه، ۲۵ شهریور در سفر به پکن با وانگ یی، وزیر خارجه چین، دیدار کرد و بر گسترش روابط تهران و پکن در چارچوب مشارکت جامع راهبردی تاکید کرد.
-عراقچی شرایط کنونی منطقه را ناشی از حملات نظامی آمریکا و اسرائیل به ایران دانست و از مواضع چین در محکوم کردن اقدامات این دو کشور قدردانی کرد.
-او گفت: «جمهوری اسلامی ضمن آمادگی کامل برای دفاع مقتدرانه از حاکمیت ملی و تمامیت سرزمینی و صیانت از امنیت و منافع ملی ایران در مقابل متجاوزان، از راه‌حل‌های دیپلماتیک که حقوق ملت ایران را تامین کند، استقبال می‌کند.»
-عراقچی همچنین گفت شرایط منطقه پس از جنگ ایران تغییر کرده است و در نظم جدید منطقه‌ای که با گفت‌وگو و همکاری کشورهای منطقه همراه خواهد بود، جایی برای حضور و دخالت نیروهای خارجی وجود ندارد.
-او با اشاره به آنچه نقض مکرر تعهدات از سوی آمریکا خواند، گفت جمهوری اسلامی خواهان بازگشت آرامش به منطقه و روابط دوستانه با همسایگان است و در همین راستا گفت‌وگو با کشورهای منطقه را آغاز کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78413)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-16 17:27:19
-
-<img src="https://cdn1.telesco.pe/file/IDovM2hmW7Bm3rxhc6-tBtkpWGqcGN2oQlD6UxJ6BC_j7Kwhy-jIURQiM59OS7Unm2-hpdAV4kgofLmRgawE__6CZQRrD5pJDthJAEzRcmrlFTBpthHjwO-2epbq_lE-pppyfCLmV94PJoQthntcBf-02X4Rk97HQVvR1gsITXwV5GW_bz32MhZWYR8en1X44xkJq8UHaTW_LJBh3VXrev5IS9HmEeX85yEEn2TuKcKHxmXnmgiZX8ejFh-vjIKV9uzYAoztPz8ckI0HUfBE1KZ2i_1s_OxHbVzdSjSkPdF1MjAO4-aloPc-cNUx5PX3t9ZK5O9urG2rdPBRjf4SGw.jpg" width="400"><br>
-
-خبرگزاری رویترز روز چهارشنبه ۲۵ شهریورماه به نقل از پنج منبع آگاه گزارش کرد که مقام‌های ایالات متحده آخر هفته گذشته (روزهای شنبه یا یکشنبه) با نمایندگان شورشیان حوثی مورد حمایت جمهوری اسلامی ایران، دیدار کرده‌اند.
-براساس این گزارش سه تن از این منابع که خواستند نامشان فاش نشود گفتند این دیدار که رسانه‌ای نشده بود، در سفارت آمریکا در مسقط برگزار شد. دو منبع دیگر نیز اشاره کردند که دولت عمان، به عنوان میانجی باسابقه منطقه‌ای، به برگزاری این نشست کمک کرده است.
-دونالد ترامپ در سال ۲۰۲۵ و پس از بازگشت به قدرت حوثی‌ها را در فهرست «سازمان‌های تروریستی خارجی» قرار داد و هرگونه حمایت از این گروه را جرم‌انگاری کرد.
-ترامپ روز شنبه گفت حوثی‌ها با دولت او تماس تلفنی داشته و از ایالات متحده خواسته‌اند از جنگ یمن دور بماند. جی‌دی ونس، معاون رئیس‌جمهوری هم روز دوشنبه بدون ارائه جزئیات تاکید کرد که ایالات متحده در تماس مستقیم با این گروه است.
-دو منبع آگاه اعلام کردند در این نشست که به گفته یکی از آن‌ها روز یکشنبه برگزار شد، حوثی‌ها به مقام‌های آمریکایی گفته‌اند قصد حمله به شناورهای آمریکایی را ندارند و به آتش‌بس سال ۲۰۲۵ با آمریکا متعهد هستند.
-یکی از این منابع که یک یمنی است، گفت این گروه همچنین اعلام کرده‌اند که به کشتی‌های اسرائیلی یا هرگونه کشتی تجاری دیگر، به‌جز کشتی‌های متعلق به عربستان سعودی، حمله نخواهند کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78412)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-16 17:26:16
-
-<img src="https://cdn4.telesco.pe/file/M6Dkm9hn40K66w2lS0yp3fXj0APH4TsgYhPupy4f6qk34qmwRjDKW0bY1EfvOUlWj4zxJpABDe5zI7m_49gsnach7ZAoRDoOAY9abf6Ed6A6ZZEbEYIROg-q3zWoULhN9HJRiZQvNdq2Cn9ue1tS2tsnqYVQe2YCL48NW4Xy280fOfbLFhISrTKjXs3mav-o4Q3BTsHkHYVaarpbJgaKAPf-5T7LOh0bmEi1qwiSRS79jk0yTYGevZ8lcE84cn7GONiOM-N3NTeu2H_MquZBO4K7WEd1-Zfd6mKHIinj-6RaDsfN-7CDxugdV1My9ygZZVWGWq0dpsX5wv1p1sS9Lw.jpg" width="400"><br>
-
-«جی‌دی ونس‌»، معاون رییس‌جمهوری آمریکا، گفته است جنگ با جمهوری اسلامی طی «یکی دو ماه آینده» وارد مرحله‌ای کاملا متفاوت خواهد شد و واشنگتن در مرحله بعدی باید مانع بازسازی توانایی‌های هسته‌ای و نظامی حکومت ایران شود.
-ونس همچنین با پیش‌بینی «دونالد ترامپ» همراه شده است که جنگ پس از انتخابات میان‌دوره‌ای آمریکا پایان خواهد یافت؛ هرچند توضیح نداده منظور از «مرحله متفاوت» تشدید عملیات نظامی، کاهش درگیری‌ها یا آغاز روندی دیپلماتیک است.
-معاون رییس‌جمهوری آمریکا در گفت‌وگو با نیویورک‌پست که روز سه‌شنبه ۲۴ شهریور ۱۴۰۵ منتشر شد، گفت: «نمی‌توانیم آینده را پیش‌بینی کنیم، اما فکر می‌کنم رییس‌جمهوری درست می‌گوید که این مسئله طی یکی دو ماه آینده وارد مرحله‌ای کاملا متفاوت خواهد شد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78411)
 
 ---
 
