@@ -3,8 +3,46 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-19 04:18:33 </h5>
+<h5> 🟢 Updated at: 2026-09-19 08:48:51 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-19 04:44:31
+
+<img src="https://cdn4.telesco.pe/file/cajxZws99EpjuNCE7ApPnvJTY_zm2QtOQVoDOa_M4nr_sYlm4_R3yfF_V0kGznxi1_pSgOn2kc_XfI8Bwyvezb7CfiOQGFn-uOolCbbY9mkX4cHVt6IRtudbA8nGj4U-ZrGrtwTUaVbRqvl0zryZFiYuH_nh1azuJS2SnHKRnqC8IIlsWU70_mDDWpm5g0rEAVbhMx-7RDjaR-jMQY9fjqUHV7aKd_7kj95y_Q6oZA0Cvu0yxZ2JI6MaNzTtTREvMtEp_ieBOcedLn9Ma16_tHyKDVwJrpnkFHacSmH_9QiO2vsuib2vMVklbOc_xgLCK3pWuw1OCT9Yrka_c6_TPw.jpg" width="400"><br>
+
+ترامپ در تروث‌سوشال اعلام کرد آمریکا با دانمارک و گرینلند به توافقی دست یافته است که کنترل دایمی امنیت و تمامی نیازهای دیگر در گرینلند را در اختیار آمریکا قرار می‌دهد و به تمامی نگرانی‌های متعدد ایالات‌متحده رسیدگی می‌کند. او گفت این توافق هیچ هزینه‌ای برای آمریکا نخواهد داشت.
+دفتر نخست‌وزیری دانمارک نیز اعلام کرد انتظار می‌رود که گرینلند، دانمارک و آمریکا هفته آینده توافقی را برای تقویت امنیت در منطقه قطب شمال و اقیانوس اطلس شمالی امضا کنند.
+ترامپ گفت: «از این پس هیچ دشمنی از سوی آمریکا نمی‌تواند بدون تایید کتبی صریح ما در گرینلند پایگاه ایجاد کند، حضور نظامی داشته باشد یا سرمایه‌گذاری‌های حساس انجام دهد.»
+پیت هگست، وزیر جنگ آمریکا، نیز گفت: «ما بلافاصله روند حضور نظامی گسترده در بخش مناسبی از گرینلند را آغاز خواهیم کرد؛ بخش‌های مناسب زیادی برای این منظور وجود دارند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78447)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-19 04:43:53
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۲۷ شهریور در گفتگو با خبرنگاران در کاخ سفید گفت جلوگیری از دستیابی ایران به سلاح هسته‌ای موضوعی است که به آن «بسیار افتخار» می‌کند و ایران دیگر سلاح هسته‌ای نخواهد داشت.
+ترامپ با اشاره به افزایش هزینه سوخت گفت تحقق این هدف ممکن است مستلزم آن باشد که مردم برای مدتی هزینه بیشتری بپردازند.
+او افزود: «اگر مردم می‌توانستند بین قیمت پایین‌تر بنزین و اجازه دادن به ایران برای داشتن سلاح هسته‌ای رأی بدهند، فکر می‌کنم نتیجه با اختلاف بسیار زیادی روشن بود. مردم نمی‌خواهند ایران سلاح هسته‌ای داشته باشد.»
+رئیس‌جمهوری آمریکا همچنین گفت انتظار دارد جنگ با ایران «به‌زودی» پایان یابد و پیش‌بینی کرد پس از پایان جنگ، قیمت بنزین به سطح پیش از درگیری بازگردد و «شاید حتی پایین‌تر» برود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78446)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-18 16:15:24
@@ -114,7 +152,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-18 06:18:22
 
-<img src="https://cdn1.telesco.pe/file/mw8gRf_aIrMXIbiz8ZPzwacm-a99nyzjd7dyLAFqIT6hzZhC0e9gdNVNT_oZkDnMgBuBNQPbkfjmYYod7nqWHNZ1Rge1CaBDYA0qDyTYamnDhHreCSUNOv3Dm-XBqEW1Yf5-nADn0L1mv7xQTMeE9V_-4-XtIkcXwvySQv5qTWS2EZWyPhlAudDfw57KLqVhAQ89VjNxfxPX36Sw3VcbuIol84hvQChvxWrI-7xY5OIceRWV1oLtHIyZkahY-Y60IrBJmC3JUDm1TjFZncxiepN4WXzF2HE_JEGF3-UFkGLw0lpDfFUBe2dikX-oiGqqCWhKQ6EmvYhwTAPHuhm_FQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Ph4EiguTQGz08yCzR9cpRqDymzrccu4NkEuTi5-V6VQXw7febVKhVraQRuFh4yPTnvzb77jQYvGNYzpEDVZHMdLdWEfXpO98E2yWf8iFnA_AJXAuJIZf6AlujQHKzBUwb7y9VDmexnkmLW7FwMJiofWi9Eqhq6M3ei-I7RmC1IFgsiXH34mBT6E0eP2ujw6M-AdO8xWlZ1BGNHz0rUqDO4J7P-deIN5Ebfhi3c6M5eS5_82Aa5lx86mjL8Ux6FLeymkssTTaNGiXmPKhAeX_-mrhoWiXkCdSffDZNaGK25m9mygQ71fuLodJu59icWhnEeUwM8IQz-OtulFDpypYSQ.jpg" width="400"><br>
 
 همزمان با انتشار ویدئوها و تصاویر مختلفی در شبکه‌های اجتماعی از وقوع درگیری مسلحانه در بامداد جمعه ۲۷ شهریور در شهر زاهدان، خبرگزاری برنا از کشته شدن یک مأمور نیروی انتظامی در این درگیری خبر داد.
 ساعتی بعد خبرگزاری فارس اعلام کرد که در جریان این درگیری دو نفر از مهاجمان کشته شدند و یک نفر از آن‌ها دستگیر شده است.
