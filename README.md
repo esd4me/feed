@@ -3,8 +3,46 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-20 16:50:33 </h5>
+<h5> 🟢 Updated at: 2026-09-20 20:39:28 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-20 18:00:46
+
+
+
+ویدیوی دریافتی: ۲۹ شهریور، ساعت ۱۷:۳۰، اربیل عراق
+هم‌زمان:
+رویترز به نقل از منابع امنیتی عراق اعلام کرد که سیستم پدافند هوایی، یک پهپاد را در نزدیکی فرودگاه بین‌المللی اربیل در اقلیم کردستان عراق رهگیری و سرنگون کرده است.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78460)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-20 17:32:49
+
+<img src="https://cdn4.telesco.pe/file/l0mzjss6vSa5w46NDyo0jEvK_2_yVVa76SLaXh9J9isRJow8So5c2hYJKHPmF5kTyuhbmtLG55lE4OnxrVuF8-AkVFko3rc77uT0k2Jkpl7_p_-b3_I5-l0CXYTH6hdDCuQ-Y0wbADvujvHFjbbIGQ30QSGYVWzHXWzcuGrlO86sFlwxCQb4975gWdTFoerOWsoMQG3lVJyXyfO5-y9u8Da_pTCx3WEoNadaSw-8HhYEHAX0m3AGNf3UyxYY6BjOiFt5FxnOpfvXgG8qHwkGim_BTnGR88-UxIx_l3o8wK-3jBYwE8bIWlOVTZ6kX0GXbZWRGAYuiQQTOej4tR0NDQ.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه ۲۹ شهریور ماه در گفت‌وگو با شبکه خبری فاکس اعلام کرد که در حال تصمیم‌گیری درباره ایران است و «در آینده نزدیک اتفاقات بسیار بزرگی» درباره ایران رخ خواهد داد.
+ترامپ گفت گزینه‌های فعلی روی میز شامل «محو کردن ایران»، «رها کردن آن برای فرسایش اقتصادی» یا «رسیدن به یک توافق» است.
+رئیس‌جمهوری آمریکا همچنین گفت: «سؤال من این است که چه زمانی و آیا قرار است کل ایران را منفجر کنم» و افزود: «بهتر است آنها رفتار خود را اصلاح کنند.»
+ترامپ گفت برای دیدار با مسعود پزشکیان در حاشیه نشست مجمع عمومی سازمان ملل متحد در این هفته نیز آمادگی دارد.
+او در ادامه گفت برخی مقام‌های ایرانی پنهان شده‌اند و نمی‌توان افرادی را پیدا کرد که قادر به دستیابی به توافق باشند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78459)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-20 16:08:27
