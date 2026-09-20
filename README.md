@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-20 03:25:01 </h5>
+<h5> 🟢 Updated at: 2026-09-20 06:19:50 </h5>
 </div>
 
 
@@ -136,7 +136,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-19 04:44:31
 
-<img src="https://cdn4.telesco.pe/file/cajxZws99EpjuNCE7ApPnvJTY_zm2QtOQVoDOa_M4nr_sYlm4_R3yfF_V0kGznxi1_pSgOn2kc_XfI8Bwyvezb7CfiOQGFn-uOolCbbY9mkX4cHVt6IRtudbA8nGj4U-ZrGrtwTUaVbRqvl0zryZFiYuH_nh1azuJS2SnHKRnqC8IIlsWU70_mDDWpm5g0rEAVbhMx-7RDjaR-jMQY9fjqUHV7aKd_7kj95y_Q6oZA0Cvu0yxZ2JI6MaNzTtTREvMtEp_ieBOcedLn9Ma16_tHyKDVwJrpnkFHacSmH_9QiO2vsuib2vMVklbOc_xgLCK3pWuw1OCT9Yrka_c6_TPw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/q700saESb_CmYBzhKQyC8gv5E5Rr9ZP_UjmJW0W4SllFw23S3d96L09aGthuK2h86a8jVtvhPTpovAL0iGkgXz-TKjzdrP2Z7qq-l0vw4Ll9gAL3f7JgvSF31nHa-yOD6_lRREVvcHPEp0Et675e-Pjy1uBBZMIYEoTJfGQJNv74OIURZ5p5SDgvY30o14dsZOaT7NgcetmHSlOigSKzmeYYd1LdOTFwLOcylc1Yj6UjCZR4IF61CZ_Ew75DqZXXWY_9CcN2rsknuNdK2LFcACQxmRE3V7z-hNio7-H21_1O7nrA7YFnwDfP6BAMOv8O4UH9UrCvQ1Y1EmpfDsE04Q.jpg" width="400"><br>
 
 ترامپ در تروث‌سوشال اعلام کرد آمریکا با دانمارک و گرینلند به توافقی دست یافته است که کنترل دایمی امنیت و تمامی نیازهای دیگر در گرینلند را در اختیار آمریکا قرار می‌دهد و به تمامی نگرانی‌های متعدد ایالات‌متحده رسیدگی می‌کند. او گفت این توافق هیچ هزینه‌ای برای آمریکا نخواهد داشت.
 دفتر نخست‌وزیری دانمارک نیز اعلام کرد انتظار می‌رود که گرینلند، دانمارک و آمریکا هفته آینده توافقی را برای تقویت امنیت در منطقه قطب شمال و اقیانوس اطلس شمالی امضا کنند.
