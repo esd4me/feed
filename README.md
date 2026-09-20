@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-20 20:39:28 </h5>
+<h5> 🟢 Updated at: 2026-09-20 23:30:13 </h5>
 </div>
 
 
@@ -14,6 +14,13 @@
 ویدیوی دریافتی: ۲۹ شهریور، ساعت ۱۷:۳۰، اربیل عراق
 هم‌زمان:
 رویترز به نقل از منابع امنیتی عراق اعلام کرد که سیستم پدافند هوایی، یک پهپاد را در نزدیکی فرودگاه بین‌المللی اربیل در اقلیم کردستان عراق رهگیری و سرنگون کرده است.
+@
+VahidOnLive
+آپدیت:
+نیروهای ضدتروریسم اقلیم کردستان می‌گویند که صدای انفجار شنیده شده در نزدیکی فرودگاه اربیل ناشی از «تمرینات نظامی و فعالیت‌های امنیتی» بود و «هیچ خطری ایجاد نمی‌کنند.»
+این فرودگاه میزبان نیروهای ائتلاف به رهبری آمریکا در اقلیم کردستان عراق است.
+رسانه‌های محلی کرد گزارش دادند که ائتلاف به رهبری آمریکا مهماتی را در این منطقه منهدم کرده است.
+یکی از خبرنگاران خبرگزاری فرانسه گزارش داد که شاهد برخاستن دودی خاکستری از نزدیکی فرودگاه بوده است.
 @
 VahidOnLive
 📡
@@ -125,7 +132,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-19 23:41:12
 
-<img src="https://cdn4.telesco.pe/file/H5bb8WOoUVKUwcnZ5Fbrbab4_pCGZceE3MAH9liuQseYN9VRoAB30qAW3RQQ7ZbYMRcN9C63u41A5XpbGgAkPuJ1VFj5LHFxbgVRXH_m6S9tzp-hpQ-3lpXVqjzZx0tX9XtpUITshpRxOQFEceA5eMcaVNUZ92tuxAuBY4bxIoE-MBEIe04tp87vv0bZ_1tbGz39bmLv-qDRqQ9_Lz6AiLQaZgOFrJVsfH9FWwubQzfoSCq7LWQLqt7MXebHRVUvVQsicBOMT09XkIxdoQ7HAmTG2UE9scKbfes9DUSwCB7D4BZxf_-gZfhdm3Ci9denSyyl9AkRem-9rErwA10ahQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/s3x7Njq0WoZnbAoYfW7VDC_xlRdkrS6xWJWjcIHsGMwhOEiAkPQ6c00bXEWcl7SH-vrl1ozSNRTxtiCF_ZyMrOKArjpDKnWPHCOGa_cg_NBylY64mLCfU-XHPRuOdqlltFDM7vvNOP8XiU4G-sEomYGITpzifBKEgR6B41JXf85a7e4lTCuTybOw4pYUmiYSOD2OjSdSQBTex-EhylUM285K0OZdf9JFnANdP8nALk7uyMKA8-wPtgfwEJ-Nu0cMEFNkgs0ufGibDLKzc48gju8f5KO_8ix1QASlq4ybgG5262T01lc3Vq9HBc_jkNxO161gByQ09oarS5-3z5TWtw.jpg" width="400"><br>
 
 محسن رضایی دبیر شورای عالی امنیت ملی جمهوری اسلامی، شامگاه شنبه ۲۸ شهریورماه در شبکه اجتماعی ایکس نوشت ۷ شرط ایران برای آغاز «هر مذاکره‌ای» به دولت آمریکا اعلام شده است.
 رضایی در این پیام نوشت: «پیام تهران روشن و بدون ابهام است؛ اگر واشنگتن می‌خواهد از مخمصه‌ای که خود ساخته خارج شود و بیش از این در آن گرفتار نشود، راهی جز پذیرش حقوق و شروط ایران ندارد.»
