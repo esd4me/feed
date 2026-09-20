@@ -3,8 +3,86 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-20 11:35:36 </h5>
+<h5> 🟢 Updated at: 2026-09-20 16:50:33 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-20 16:08:27
+
+<img src="https://cdn4.telesco.pe/file/EvXgVytiifKwdZ4htvWxyn1VYKAujm3esiBCvupkzMSom8Wf8p399W1VMvyjHjrbmbUpWMan3c4cf2da1iYkIyhvnfd7wktahQozQ0HgZwWHgnKuJBJm_6_jW6ic2cZGyUVnIK_lxsdVvaMOpC1vzwOiZLeej8Iinfmkhbdjuji9cOziZk56ajNohV5DvwQ1RAQvgDELAtzRh8MEWWvxhUVOGJsliS_-QBkzEfAQVWn31d49fbCrfm4XL_YOSwZkrsNMN41ja8I7oVvhf5P4wVSk99OnOr2-IRsruQFYpGjeJKMrWTCKwN3118HCZfupwONyuCF5BlbkQnYgVnAVVQ.jpg" width="400"><br>
+
+قرارگاه مرکزی خاتم‌الانبیا با انتشار بیانیه‌ای نوشت به اطلاعاتی دست یافته که با آمریکا با حمایت برخی کشورهای منطقه، برای ازسرگیری حمله به ایران آماده می‌شود.
+در این بیانیه آمده است: «براساس اطلاعات دریافتی، آمریکا بار دیگر تصمیم گرفته با چراغ سبز برخی کشورهای منطقه، در نشست مشترکی در یکی از کشورهای اروپایی، اقداماتی علیه ایران را از سر بگیرد.»
+قرارگاه خاتم اطلاعات بیشتری درباره شرکت‌کنندگان و یا کشور اروپایی میزبان ارائه نکرده است.
+این نهاد عالی نظامی به کشورهای منطقه هشدار داد که اگر با حمله آمریکا «همسو» شوند، «همگی در این شرارت شریک تلقی شده و دیگر نمی‌توانند از نیروهای مسلح قدرتمند ایران انتظار خویشتنداری یا نجابت را داشته باشند.»
+قرارگاه مرکزی خاتم‌الانبیا همچنین به آمریکا هشدار داد در صورت حمله، «تمامی مراکز استقراری و منافع آن کشور در منطقه، بدون هیچ‌گونه محدودیت و ملاحظه‌ای، هدف حملات مستمر، موثر و دردناک قرار خواهد گرفت.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78458)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-20 16:07:48
+
+<img src="https://cdn1.telesco.pe/file/g15brb5IEAVsIQP_SDTtd9yx76YCEd8_8JH-aLo0qpryc0-Kxsq3Gb5hNSnWjIMwohzK82G7mV5wpg8M0Oi8ob6moTp139ZIiarYfkTRMW6mmGBjn4_Be4ZZHxxnj_YfJrqERFHdp8EHguX-XXR82kSQI0hBKkL731y9vlHmb4FQKGw01UpHMDDncAXTtB80jQhAqRLPenLaRr5tdZNLQRtr2FQFo_lEVdxO-25AfRAajtLGu6j72-IX-jMFAdwbI1Z8acEZLz3dPAdx3PRLO6bN_OZC7r4VnUOISthlRdvcSqHNIwwtE-ENEQMNvdC4Hl8ZaMpYQcmeEe_eSzBAvw.jpg" width="400"><br>
+
+رییس مجلس شورای اسلامی از جریان‌هایی انتقاد کرده است که با رد هرگونه تعامل و دیپلماسی، ایران را به‌سوی «فرسایش و جنگ بی‌پایان» می‌برند. او هم‌زمان تایید کرد که تهران شروط و پیام‌های خود را از طریق میانجی‌ها به آمریکا منتقل کرده است.
+@
+VahidHeadline
+محمدباقر قالیباف روز یک‌شنبه، ۲۹ شهریورماه در نطق پیش از دستور خود گفت: «انتقال پیام‌ها و تبیین شروط ما از طریق میانجی‌ها با صراحت به طرف مقابل انجام شده... و تا زمانی که این شروط محقق نشده و حقوق حقه‌ ملت ایران به رسمیت شناخته نشود و تعهدات آمریکایی‌ها اجرا نشود، هیچ روزنه‌ای برای بازگشت به شرایط پیشین مذاکره و باز شدن تنگه‌ هرمز وجود نخواهد داشت.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78457)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-20 16:06:34
+
+<img src="https://cdn4.telesco.pe/file/FHSo4ISrf_DzDemmQDNQ-uJ_OnhMfPcKi_tdA_6pX1zspVlKpV57mt-ABb-2VeBLSLcRfOTodCN-VZu4333pQpqF7NbHDcPLxAMpDRzoQ9b_KRwFeYLUBdArPELOF90I_U5Py_peS1OUbscA5ANnReIE5O7__mu4_hnYDM1w-yzllT2gV0w952aLmJEZujE9uEftWWkJHYsfI4BzhrAcMW2IOazRfnYS2B2xbIAyj2LOM46--DknJctluuDt4hZYDSAlQKC4lI55Np2_HC7qRN7tYsn4K--CEfISPdMf7e3WgrvP2dNnKtERI0DnhED2yii9RXzC65RiYAAF6tD2yQ.jpg" width="400"><br>
+
+شعبه یک دادگاه تجدیدنظر استان البرز حکم مجموعا ۱۸ سال زندان «منوچهر بختیاری»، پدر دادخواه پویا بختیاری، از جان‌باختگان اعتراضات آبان ۱۳۹۸، را تایید کرده است.
+براساس رای صادرشده، بختیاری با اتهام «تشکیل و اداره گروه در فضای مجازی با هدف برهم‌زدن امنیت کشور» به ۱۰ سال زندان، با اتهام «اجتماع و تبانی برای ارتکاب جرایم علیه امنیت کشور از طریق همکاری با یکی از گروه‌های مخالف نظام» به پنج سال زندان، با اتهام «نشر اکاذیب به قصد تشویش اذهان عمومی» به دو سال و با اتهام «فعالیت تبلیغی علیه نظام» به یک سال حبس محکوم شده است.
+تایید این حکم کمتر از سه هفته پس از آن صورت می‌گیرد که شعبه اول دادگاه انقلاب بندرعباس، منوچهر بختیاری را در پرونده‌ای جداگانه به ۱۰ سال زندان دیگر محکوم کرد.
+در پرونده بندرعباس، او‌ با اتهام‌هایی از جمله «فعالیت تبلیغی علیه نظام»، «تحریک مردم به جنگ و کشتار» و «ارسال فیلم به شبکه‌های مجازی بیگانه» روبه‌رو شده است. این پرونده با شکایت دادستان بندرعباس تشکیل شده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78456)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-20 15:58:19
+
+
+
+«نجمه امینی»، دانشجوی حسابداری و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در پیامی صوتی از زندان وکیل‌آباد مشهد اعلام کرده است که دادگاه انقلاب  روز ۲۵ شهریور برای او حکم اعدام صادر کرده است.
+او از سازمان ملل متحد، وکلا، فعالان مدنی و نهادهای حقوق‌بشری خواسته است پرونده‌اش را بررسی کنند و برای برخورداری او از حق دادرسی عادلانه اقدام کنند.
+هرانا پیش‌تر نوشته بود که او با اتهام‌های «اجتماع و تبانی» و «توهین به مقدسات و ائمه» محاکمه شده است.
+نجمه امینی روز ۱۱ بهمن ۱۴۰۴، هم‌زمان با اعتراضات سراسری دی‌ماه، در پاساژ فردوسی مشهد بازداشت شد.
+امینی ۲۳ ساله، دانشجوی رشته حسابداری و ساکن مشهد است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78455)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-19 23:41:12
@@ -65,7 +143,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-19 16:51:54
 
-<img src="https://cdn4.telesco.pe/file/fpk_EYQokkmxGFFv9IEoRJfb_19UW_sQLeyjqCW9o9_ZsxYTp-5TlQx3wvrtDpG8kjVqPVsywapq4wrYfsW4M76Q-BQP0lYvAQ9oLVkK_TSbHw626iPqltfPkBeRGigDfTuEMS_Cevkf98wnBaxRSOYiLk4JeiWyj94YhP7I1a7Noj-fiOjJlW3ZwEPrjlE9_E_UaNd6I-lNQP1raCCGwCMaETinNVNRhYyWlKN6jjwuzS_p3OwS3VYidON8Hz-8fgBQ_eZDromUDJB3j62RcP1wHBkMt2jsdqhnmRHv38UjhmsKDpeqnh8cSw2vZPdAixKCqp7IXOfkUx6sL2wtPg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/E2Lim19z38lduHl3tNKLYUiBkpYBqwjt4cnYPdG0FsowcrllJix2xB4O9tbUzT2n0nig-l7MrNYNDiUxuLt9h7r5KMLpOcKF0fTJGsJcm9PV1fIepC4FpamOKOXztYPRHBXCVuVDOUfKmmlHCaTdOkiwMa8Zqy0Z3E2RkER9sh8FHFWbXfdnjyoqeAHRwbhA4xIR7N-3nZeH_lvJRhoM7aACXmAgVAwFdvQU38agqq1-lJJnr_nZoTWyoV9Tyt3q2yxOItAAXYDXYrh5XyXFto3VG2Pfg3JWbOxaD5mMds4kIsC9mZb-QA7cRh3VmTCQp5ZGSLMMzaj_mznigDRCCw.jpg" width="400"><br>
 
 دادستانی تهران اعلام کرد علیه عوامل و دست‌اندرکاران برگزاری مسابقه دو در بوستان ولایت اعلام جرم کرده و پرونده قضایی تشکیل داده است. دادستانی مدعی است که در این رقابت «موازین قانونی و شرعی رعایت نشده بود».
 مسابقه دو ۱۰ کیلومتری بامداد جمعه ۲۷ شهریور با حضور زنان و مردان برگزار شد. انتشار تصاویر شماری از شرکت‌کنندگان زن بدون حجاب، رقابت را به موضوع بحث در شبکه‌های اجتماعی تبدیل کرد.
@@ -102,7 +180,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-19 16:49:54
 
-<img src="https://cdn4.telesco.pe/file/eA3ceXp8DFwXoY-je2FVqyymgunGTVzKPOixpW42w7KJIsItqh8Mdv1I-RtNxJxQ15q8PIqHQ9lirmptxXGfscGcCEMJe4JDNeaIEk9f17tgc2ClUT_oi47tJZrU4fCcrrIKlEskIIsd0EGEUWjlzneWneCseHcpe1Quginc9UdZ3d-7Z2E53Fp-JA4QBYounZ2B8OMcFI8q5AXwaBOfKkFnTiPFf6nSkUSs_flLi6-YRwImEZ6L9ZTgZMlJrQ3surn7ZUf6YwhT6h7ZJiA5vsMXFnuhRBkLv0zat8oyUpPRTkaLVxrjrOJPtOr0kZaxoR25TFQhGdwtSDKKeB5XRw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/AcQxo3MKMfDIsKggpW-XDxyTXPMOCqOMiRhSrcmI35grIm5xvYGaYiDlDenkzuxSt_QYxVIlrAGXivJzxPvmwhNzpL2yWH-Ryoca5WNMzngQUzkmxEp3_muM_WO1DkK8PZI7zsMZ-5YkfSFTegVdX4BgAoptlzTEXq6UP568GHO8vy5vcfTem4X8ZkkMYgHe8tCf4Vmyyp-uOV7uw9pcRizHLvW_1vazVRNAKN6nN7rtJWYCkbc_u-5dwKaE3cclYwBQcgxWM78CiJAfYTF9gKU0i-RaTwtZE0JFHwJP1dbN3m9qjkOeC7ZijeGdqeGu7Q61OzyCmDSQ2VBjcWkf3A.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهور ایالات متحده، روز جمعه ۲۷ شهریور و اندکی پس از تایید کنگره در هفته جاری، لایحه‌ای را امضا کرد که مجوز اعمال تحریم‌های جدیدی را برای تحت فشار قرار دادن روسیه بر سر جنگ در اوکراین صادر می‌کند.
 این قانون همچنین تحریم‌های مرتبط با ایران را نیز تمدید می‌کند.
@@ -119,7 +197,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-19 16:49:22
 
-<img src="https://cdn4.telesco.pe/file/HJCsLHuJdxHf5fDwz8V8GTRYZVKKDJnwag6I7hP8mwPjieh-leLh4I8h7ZyrJT3k2dDH0uOLgBbNAwr4De34XfvukiIw26C0I-xhVenS1jtJ7ZURwz6-RgV-7WR4q0SoafZhPlTrmgl72-b7WlhLy9TPBHRyS4_L02_fQYLXnRCoQvezI-I3KfeUUlTDW8oW30nsDjaJ_4igFjHIhP9VccxHEQwHCHxg6TrQcyNAkyhYq1eps7pcWRCBPsOcAir_aZIXH8bRvVQQxDXvWe-4ofTm2BZ8FLZu38xy2apIvIgwusT3OrUQuw1Oa2Qrsc-OcotCb4CJxiBvGZRzt5tlQw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/dXyZzhG2BK1Y-UG88VWiEnNI-r75vaUebwx-EPYlJyFRNQh7ejigQ3dgclXFssyUmjMLuhGoJWZUGelsnTNgubcPQvqi12GNiP8Y2l22F9DiEkZ2VP58NNBC2X9rMgtBT84s2tfRDjm3thhZrs-G3cC_1yLUoNi6bKRxNuXxHaEOH9M0qrQnFrvAMCi4Jl4QigH1uQhIPwSZl1XgEjZKYli_YaDpe1jSmp6TgP8aJ9KMuoCFsEqrDRjroVmfqG6uBOQH-7coX4wU9ZanHinQzV9YSLMGufqsawGApxTfKQR5OtDjMjyTWPW8dLj5D7yv7blWkpDUYxVpj_4srDjK7w.jpg" width="400"><br>
 
 قوه قضاییه جمهوری اسلامی از اعدام «حسین پدران» با اتهام «جاسوسی و همکاری اطلاعاتی به نفع اسرائیل» خبر داده است.
 براساس گزارش رسانه‌های حکومتی در روز شنبه ۲۸ شهریور ۱۴۰۵، حکم اعدام پدران پس از رد فرجام‌خواهی و تایید در دیوان عالی کشور اجرا شده است. محل و زمان دقیق اجرای حکم اعلام نشده است.
@@ -195,7 +273,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-18 16:12:22
 
-<img src="https://cdn1.telesco.pe/file/IPKK7I0Qs7jehbrbBX2uElK7n14LjYr9_FPvbxURQzlA86yH-RY7DTjamojzY0Se95CD3MhnZz6gykRGgzu0vWpO6oPQoyGMs0D38zU9NKlwZJW8aiF_SnRIgj-MNgg2rKXuU7Sm1qQ1EsQx-0Z9jErATy_nEJXF7hcCc8UqGZ_Ez72xNL4k6egwvLYuA4lRPa6Y2iACnA8NKEOofk3TP8LsXhKqgOfir8B87nWZFnU1sJRj_DBMFl8heqKnWTyNFFH70baOBd4o5ry825WD2Me4VOeIrIQf-tVrzK_7HbPHtamNWHZXcgva04bzd9DV-bgh27Ksg0rEnIZgLlQAwA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OkPV1VQ1bo3CD_CGa-iuRXnZnIeqb2NF_-prAZlwQyRH9DvGRbrhnliW-gb10X9vCHaU-AUW9AHCVj4NY6q5HT5NZu52vRLVkFuRPWW3wKVsdPUrbJ2Z5aXICiaoD2nIWumr8lSOuosfR4GnTovWkmP0HcoHH4eqj0_DpADRXSSzotb0kL2Ne8Zjs07Ks-clvVzfKJK3Rcm_ivpBhgmjyA0fUNfM7FQV7eND6kqmLALXyFHRtF3T_ZM6CnClUbH4k_gTMd0V-_3OjEqwjoLlD5PmoJ8FSr4SElI4Km4Me6gpANvll70FEzmEwrZPQyyjpsCEfBxzf6JG-yHIP-7R6A.jpg" width="400"><br>
 
 حسین طائب، رئیس سازمان بسیج مستضعفین، اعلام کرد صدها هزار نفر از ثبت‌نام‌کنندگان پویش حکومتی «جان‌فدا» در تهران سازماندهی شده‌اند و روند الحاق آنها به گردان‌ها و یگان‌های دفاعی جمهوری اسلامی آغاز شده است.
 طائب روز جمعه ۲۷ شهریور در جریان رزمایش موسوم به «۳۱۳ هزار نفری جان‌فدایان ایران» در تهران گفت برای این افراد دوره‌های آموزشی مقدماتی و تکمیلی در حوزه‌های زمینی، هوایی و دریایی در نظر گرفته شده است.
