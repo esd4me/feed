@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-20 23:30:13 </h5>
+<h5> 🟢 Updated at: 2026-09-21 02:17:59 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-21 01:32:39
+
+<img src="https://cdn4.telesco.pe/file/BVzQ0Jweg_-xdJPkIsiQvneeviosP78TxmhkWc5ONXK1-VXsfbXOOaod5OK5M9rwWLLbCANr-xNsxqtyR7Plyv91ltMQfxl7PXzFUM8dKjtGOX9GmYFIYUx0N3KlBuX83LWiiPk4ObiXy69nojGosD-nfgVjyl_vzO-C0PqP9Yrser2q0meamkw7OGBKqNbdbm0k_FuF_iIqBYcWTO53hQT2fRBEE5Qy4k0cBnSeQQdOW7ETdVtPY7o5d5E1ZXkjTCzFp9U2l4CckgoXSj2O_Cb04VJqxVBptIXcMSFzH1o6rK9AJFLbUK-l4YH6lkMmdYxDbOrlrmvyq2d-2wK7eQ.jpg" width="400"><br>
+
+سید موسی شبیری زنجانی، از مراجع تقلید شیعه، یک‌شنبه ۳۰ شهریور در قم درگذشت. خبرگزاری فارس گزارش داد او از روز جمعه به دلیل خون‌ریزی معده و عارضه ریوی در بیمارستان بستری بود.
+شبیری زنجانی متولد ۱۱ اسفند ۱۳۰۶ بود و در سال ۱۳۷۳، پس از درگذشت محمدعلی اراکی، از سوی جامعه مدرسین حوزه علمیه قم به عنوان یکی از هفت مرجع تقلید مورد تایید حکومت معرفی شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78461)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-20 18:00:46
@@ -151,7 +168,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-19 22:54:58
 
-<img src="https://cdn1.telesco.pe/file/cSx37eznbA9FZyZZDbWbHE_8lDSuoAGCPJlLUdsmvuNygwX4clqMHbPYkexx8DH0ejI-Yt83pDokVVxttnK4gt2h0hg_uflSbgM_grjOWN8wLVScg7MtTQGEeHbeBb7hQR95TtSBbj9g3XYcQGZY6OAWfPyZF-08DqsEeLJ8M2EttGkXqA_sD_a6melBuNG9Bhfm92LAuF7iu-KExrRcJIDwQv-7hDASHA3ek9C4iGmu521OiQbzllDZFhhjpVoxXs1k101HQweC4vvLYsaNExHdt2pwQayKrCBD3lzSSW_Udtux1yuo4JoSGj1daRdSlF9gyAAqpnGR6IMrmb9JNQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/BRj2PcUt4cO0LMAaJ_f52QaD7FTS-Kdrhe1-LFsx597f4yieWPSb549xVs0RoHNL74IQWiSu0gu3y9zQtkgnnP0t2vEatE8Ely3xkKT97APU2kUJajmEQeFnrq-VshF0uoovjJIfLKbSFn4EY476mVM_669UafRnL5PcJNT-U3XY2c_zVr4zMeYM8xtWxx9eHexISpCrjJsMxVjc4H0v8OxJsh49Sgl9GzQ32cKUYFc8EQkPJjjqIheFv8bNX9YJSohSQEsMR_PaxsutLyaY6jeFv6bIJyv1PZ7iOl82-yLwk6U5l4jHTBVUl4jSrUk5Y5rbS_DROzAnyVzI7kNVgg.jpg" width="400"><br>
 
 هاکان فیدان، وزیر خارجه ترکیه، گفت در پی حملات حوثی‌ها، عربستان سعودی ممکن است در برخی زمینه‌های فنی نیازهای نظامی داشته باشد و ترکیه برای پاسخ به این نیازها در چارچوب «ائتلاف دفاعی مکه» با عربستان سعودی و پاکستان مشکلی ندارد.
 فیدان شنبه ۲۸ شهریور در گفت‌وگو با شبکه «ان‌تی‌وی ترکیه» گفت حملات به تمامیت ارضی و حاکمیت عربستان سعودی جدی است و ترکیه در چارچوب توافق میان سه کشور در کنار عربستان سعودی قرار دارد.
