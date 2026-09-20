@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-20 06:19:50 </h5>
+<h5> 🟢 Updated at: 2026-09-20 11:35:36 </h5>
 </div>
 
 
@@ -85,7 +85,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-19 16:50:18
 
-<img src="https://cdn4.telesco.pe/file/udHySe2qi2ZMpfv50yrHPZfqJa-D8E6-aiZLt3zNHcSRYjMrVxBzbMm29Ja6EbptjDgyqCIrJqILrJZLH6kyLv49WwNzc5Vnjht78LpvdEQJGR_SAK-pPGQKuzD35I1kUsPix5YNO6MDhfdMy4znyPlSebIki50jUzk_Tm4ll4s5ywnTks0TrgXEDJHfeuYEmfhbjkxoHUe5Yj9Trh4ZvQJkh6uzRxy6-SVR9fRWL7sN4fEc_YDEiJegNkwAauWrGYxy9pStyF0J3s6Qr0n--YlqQURj2KLPvXjZ1xDFs7Uq2GRy4miyTYov5K7ZqP-mBS8FhAf4-rrRgSEvT9V5sA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/hZAmEw-QEmPSKNsLLGmecePbMHVTATdonZqeCEDmEAfAQRTlJmwFA7KGezN1PqoQjJLkz7UPGkw9CMnpIiSk7neOzq4OFbyQiv4sBdzm2itT6uJ_d8c8cMMfrucDvnbIsewFuSybZfqMUsJF7kipVFgSuZFPGGxq9AMqHSXkVvd8Oj-TMfH7ojtTgcFmD-4--kJLTI37z4cv2xhzjZwTalS2Xpc8-OcgTQMomjZJKVAOPF4-FNLtQ8npOnMVFkw2EBET9rR07u-mditJXiqNShTrN2iWChSWc-Up8aylExJ29MY-sjQej1VknaqA9GfFV4Q88KezMvYaS4KXzwRCzw.jpg" width="400"><br>
 
 نهاد تنظیم مقررات و نظارت بانکی ترکیه مجوز فعالیت شعبه «بانک ملت» ایران در استانبول را لغو کرده است؛ تصمیمی که پس از توقف پروازهای شرکت هواپیمایی ماهان میان ایران و ترکیه و مداخله نهاد ناظر در مدیریت یک بانک تحریم‌شده دیگر اتخاذ می‌شود.
 براساس اطلاعیه منتشر شده در روزنامه رسمی ترکیه، هیات نظارت بانکی این کشور روز جمعه ۲۷ شهریور ۱۴۰۵ لغو مجوز «شعبه مرکزی ترکیه بانک ملت مستقر در استانبول» را تصویب کرده است. این تصمیم روز شنبه ۲۸ شهریور در روزنامه رسمی ترکیه منتشر شد.
