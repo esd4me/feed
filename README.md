@@ -3,8 +3,179 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-21 15:00:21 </h5>
+<h5> 🟢 Updated at: 2026-09-21 20:58:34 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-21 20:32:57
+
+<img src="https://cdn4.telesco.pe/file/ep5MOP1VtTBow0182xuQnec4MLjWJVBXAlW83_FhZrT2TPeK3drzX3iHq-_WGQlKWgmA5c-E-KgI9Yi4hq6YAagQbcSfCN_b8cmPttIN8vedg01xAlsEwn-gKWWzO4UPJbFKkYUL6GH3-LSnXNbPiIWhLrA2ZL0v-HBNXQzAwjm-GnpAP8OwZa8IcRuyR86Je-XWXY5nVP2_Hfu3TSn7B8zlpBr4SyhgOQpvrNzYJ0ohtZ3r1umkr2QkNmCPaKg1OGsDeYLiC_4rN7MT1dvB_Lf23PHOx4okRIgvDlPFSBeHOngwJZptC-8_-MJfGINNqEzKy-JzKbnUFtGmQGvMDg.jpg" width="400"><br>
+
+دو منبع دولتی عراق به خبرگزاری فرانسه گفتند بغداد در پی اعلام وزیر خزانه‌داری آمریکا مبنی بر اینکه شرکت‌های تحریم‌شده ایرانی ظرف دو روز در سراسر جهان «تعطیل خواهند شد»، پروازهای شرکت‌های هواپیمایی ایران را متوقف خواهد کرد.
+یکی از مقام‌های عراقی گفت: «عراق از بامداد سه‌شنبه، مطابق با تصمیم وزارت خزانه‌داری آمریکا، ممنوعیت فعالیت شرکت‌های هواپیمایی ایران را اجرا خواهد کرد.»
+منبع دولتی دیگر نیز این اظهارات را تأیید کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78477)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-21 20:20:19
+
+<img src="https://cdn4.telesco.pe/file/ZplnmrfayLE0NxKU9FRKiPKpwEBJvPoyrY29stUKSlDxr9ptxqV-hxGv9oNxihtRwRJVYDd07gx0IBeEANvT1G4_TVMKDz9YjBTkMF465ygklixehSJardzEHGn609PxWgE3bkNe8VbnbKrZXBcFFBA9WWGWgwgnnTOwH4ELJ5-pVUN3qEJzgIGTRt_8vcv01tzIF_K8n2qV6AzbGLMJZcHnTzA4dgYDBYEr-_cSIjNppwpTiVp9nPF8NbyNk9E6Gt_53kbS7MSKPTf21jCfBbTs9r7bTPCL-OY4DdXie34NcVtHgq-TJhxwwxJHCd0PJDGCRW65KJYHQ7hHtwwTkA.jpg" width="400"><br>
+
+سی‌بی‌اس نیوز، روز دوشنبه ۳۰ شهریور به نقل از منابع آگاه گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، آخر هفته گذشته حمله به شبه‌نظامیان حوثی وابسته به جمهوری اسلامی ایران در یمن را بررسی کرده بود، اما در نهایت اواخر روز شنبه از اقدام نظامی منصرف شد.
+بر اساس این گزارش، ترامپ ابتدا در جلسات چهارشنبه با مشاوران امنیت ملی متمایل به اقدام نکردن بود، اما پس از تماس تلفنی شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی، در روز پنجشنبه به پنتاگون دستور داد برای حملات هوایی آماده شود. با این حال، با اکراه کاخ سفید از گسترش میدان نبرد در مقطع کنونی، تصمیم بر آن شد که فعلا از اقدام نظامی آمریکا خودداری شود.
+رویترز نیز گزارش داد که ترامپ روز دوشنبه با رشاد العلیمی، رئیس شورای رهبری ریاست‌جمهوری یمن گفتگو کرده است. حوثی‌ها طی هفته‌های گذشته و در جریان تشدید درگیری‌ها، توانسته‌اند مناطق راهبردی مهمی به‌ویژه در امتداد ساحل دریای سرخ را از دولت یمن تصرف کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78476)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-21 20:19:30
+
+
+
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، درباره جنگ ایران گفت: به دلیل اینکه ایرانی‌ها در حال ایجاد رعب و وحشت در کشتیرانی بین‌المللی هستند، قیمت انرژی افزایش یافته است. ما هم، طبیعتا، تلاش خواهیم کرد در برابر این اقدامات مقابله کنیم.
+معاون ترامپ افزود: وقتی ما برای اطمینان از اینکه ایران سلاح هسته‌ای نخواهد داشت اقدام کردیم، آنها در واکنش، با ایجاد اختلال در کشتیرانی بین‌المللی، به این اقدام پاسخ دادند.
+ونس افزود: ما، البته، تا حد امکان تلاش خواهیم کرد از جریان آزاد تجارت محافظت کنیم. این همان کاری است که نیروی دریایی ایالات متحده انجام داده است.
+معاون ریاست‌جمهوری ترامپ گفت: ما همچنان شاهد عبور حجم قابل‌توجهی از نفت و گاز از تنگه هرمز هستیم، با وجود اینکه ایرانی‌ها هر روز و به‌طور مداوم برای کشتی‌ها ایجاد مزاحمت می‌کنند.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78475)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-21 18:58:34
+
+<img src="https://cdn1.telesco.pe/file/F8HqTMSf-41UzkH4jK3Zdr36cQNqL6AwOROw0LjzIQH1nE43zRKEwVDupO9ZIj0jvx7ebYdoxuN4MmKPO2C43g0Xfp_ZT99fJi-OCh4FiVhu-fbLPXKz2GOcn2-8-57MLUKmC2WMQ1MRlfJaLSxZybgcwLXlBB5i9cgKfMJoVKOzT1nFFZDUus3VRGYbF0i6xSbFx1piMnifStp7N6enb3K57PQHV8_uy2vCH3K4XEwRo39q1_HwuqS6oKOMmizog31wSiFbwXCfMQSBqBGkLuZWrGee82FrECUXSu224QSdd1qhMNuPrE3gGdTWxp6dD6RBC4xAf9BJVI2hoFVSCg.jpg" width="400"><br>
+
+هواگردی که توسط ارتش جمهوری اسلامی ایران در نزدیکی تنگه هرمز ساقط شده بود یک موشک فریب آمریکایی ADM-160 بوده است که به اشتباه پهپاد اوربیتر تصور شده بود.
+آمریکا با استفاده از موشک MALD به دنبال شناسایی موقعیت سامانه های پدافندی ایرانی است.
+mhmiranusa
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78471)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-21 17:41:36
+
+<img src="https://cdn1.telesco.pe/file/NSyQQxOh8NdlCjMxzf-MIby1PvjUzi_GmDU3bWwQ0JgsPtGOHE7yNC6ewTxjlHRAvXCk40JoOvV36rtUeldSY4ocyORNNNq7kRpQ9yxZ89_szC4jKIh1RU2FTWPVCFxioA_XySZdXBOPqs8WQOYnBvsVKG-eVL16CwkTW929wv1oTu7ZB1mBK2sDe9EW2cu2Lln7DZY4OuDIUVFRrp73kfUEzsTYelG1j4HY8jxdXksBM4Ma3ybGqndsRrnBUhdNcr1LchUPUoHNm2ET6doHipPtSAbtmVJztB1yix1FecBe-r-d3UXCgmNjl7e5nTgjP66SyrSoizGOmF14Rlbn6A.jpg" width="400"><br>
+
+اسکات بسنت، وزیر خزانه‌داری ایالات متحده، روز دوشنبه ۳۰ شهریور، در گفتگو با شبکه خبری «سی‌ان‌بی‌سی» اعلام کرد که فشارها بر جمهوری اسلامی به بالاترین سطح رسیده است و از ۲۳ سپتامبر (اول مهر)، تمامی خطوط هواپیمایی ایران در سراسر جهان متوقف خواهند شد.
+بسنت با اشاره به اقدامات جدید وزارت خزانه‌داری از جمله در حوزه‌های هواپیمایی، دریایی، ارزهای دیجیتال و طلا، تصریح کرد که طبق این تصمیم، در صورت نشستن هواپیماهای ایرانی، ارائه سوخت، خدمات فرودگاهی و فروش بلیت به آن‌ها ممنوع خواهد شد و هر نهادی که این مقررات را نقض کند، از سیستم دلاری آمریکا خارج خواهد شد.
+او همچنین از برخورد با حامیان مالی و «تسهیل‌گران» منطقه‌ای و بین‌المللی این رژیم خبر داد و افزود که سه بانک از جمله دومین بانک بزرگ مصر (شعبه دبی)، سی‌امین بانک بزرگ ترکیه و دومین بانک بزرگ روسیه به دلیل انتقال میلیاردها دلار به نفع حکومت ایران تحریم شده و فعالیتشان متوقف خواهد شد.
+وزیر خزانه‌داری آمریکا تاکید کرد که دولت این کشور با تمام توان در حال بستن منافذ اقتصادی حامی تهران است.
+@
+VahidOOnLine
+وزیر خزانه‌داری آمریکا همچنین گفت مقام‌های چین در گفت‌وگوها درباره کارزار فشار اقتصادی علیه جمهوری اسلامی حضور فعال داشته‌اند.
+به گفته او، آمریکا مذاکرات مثبتی با مقام‌های مالی چین درباره رعایت تحریم‌ها علیه جمهوری اسلامی داشته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78470)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-21 17:41:16
+
+<img src="https://cdn4.telesco.pe/file/fgw25lXRag2YU56qNURME__qRy0pOYQznk0oznl-C0tvAsPNecYpN7zZgI5-u3BU5Ip8uPJhKBwjJ_8sGzummLbpBuJ1ggQmdWmMhN9kk0g6HlyrDGDxoulYW4vuuiBQv05RhtCFXU4bNa8iyw10x6tvYSr-aOdN3mPzj6ZsCX1AetNyYeBONYSXWGbHHTAEStqubErxeWb8zxw91H0S9KHev0WJo7enXSKcGMdd1_yLMvOv-_noa8IUtwRkML_-eMljQHMqsgmNUo5UiXSOZQcrIfrtGyL_J7DmnnHl30dl89jzAK2Mjs24xC_dWSwHQrxKlR8FpGxkQDBhOrIB0A.jpg" width="400"><br>
+
+فرانسه اعلام کرد در واکنش به اقدام حکومت ایران در پلمب یک مرکز آموزش زبان فرانسه که به سفارت این کشور در تهران وابسته بود، سفیر ایران را احضار می‌کند و «اقدامات مقتضی» را انجام خواهد داد.
+پاسکال کُنفاورو، سخنگوی وزارت خارجه فرانسه، روز یکشنبه، ۲۹ شهریور، در بیانیه‌ای گفت: «این حمله جدید علیه حضور فرهنگی فرانسه در ایران، پس از تعرض به دو کارمند سفارت فرانسه در ژوئیه گذشته، غیرقابل توجیه و غیرقابل قبول است.»
+خبرگزاری نیمه‌رسمی تسنیم روز یکشنبه، ۲۹ شهریور گزارش داد که مقام‌های ایرانی این مرکز آموزش زبان فرانسه را بر اساس دستور قضایی دادستانی تهران تعطیل کرده‌اند.
+مقام‌های ایرانی مدعی هستند که این مرکز، با وجود هشدارهای مکرر برای دریافت مجوز، سال‌ها بدون مجوز و تحت پوشش آموزش زبان‌های خارجی فعالیت می‌کرد.
+روابط میان دو کشور طی سال‌های گذشته بر سر برنامه هسته‌ای ایران و بازداشت چند شهروند فرانسوی توسط جمهوری اسلامی پرتنش بوده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78469)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-21 17:40:59
+
+<img src="https://cdn4.telesco.pe/file/BOX9nLLqw-hfORzmoJPkDRWdPzIP5WWK6YNdMtFg4-4FD0lMf-AGQJdiBHABYMJX8Ssu0KdyfYiyLB1npY_RtEzXxl4fJsxF-VwTtqcd-x5j62nWwhHkCpEedG0QmFpJlS-ROU9FSnD-GD-AtalW0bPaQjYcwt_WZOE2As38XRM3Li-x_Ayvs9rwdvSluYP-Jt3KVRyhNplwJSAvOqZd1sDUGdlPA_zidEnAJBRILeAAnKqFrzZzgVr_n6DuGamM2jODpp4iH4AHSpvn_PoUiA7YHcaetN-NwALEtFI-EQbpwMVtMXGAaPuTEUK2QZoa8E99L9xLo1cuB8hJ0RV6mQ.jpg" width="400"><br>
+
+خبرگزاری «تسنیم»، وابسته به سپاه پاسداران، گزارش داده است سفر «محسن نقوی»، وزیر کشور پاکستان، به تهران ارتباطی با انتقال پیام یا میانجی‌گری میان جمهوری اسلامی و آمریکا ندارد؛ روایتی که با گزارش شبکه «الجزیره» درباره هدف این سفر متفاوت است.
+تسنیم امروز دوشنبه ۳۰شهریور۱۴۰۵ به نقل از یک منبع مطلع نوشته است که سفر محسن نقوی به ایران در چارچوب همکاری‌های دوجانبه تهران و اسلام‌آباد انجام می‌شود و ارتباطی با مسائل میان جمهوری اسلامی و آمریکا ندارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78468)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-21 17:40:38
+
+<img src="https://cdn4.telesco.pe/file/tG3-MEuoSt0Uqmx9ByCZOlEcmUUctyHsWHHYmpDjSzbf9Jg5sGLw-XoymM5UPlfhufJyXdjZ0_GJ3H8o-crSoUHv-KhhRkzqJ-wW3_asHqt5NQ93GeMnlsCdI2lpxdVTqUwLP5O2yk0Cv09oHJpcnXEILpi-9THSEe-NdIsJAAEu_IhkVEMacWyG9HO9JaCO6qu8hK_K-gxGuviwCmXxW7DUvT8XEsB1cAEqFrDwV3EyTiwgY-wGltqRIVHsV3eQdzZvX50lPc5EQtoo9Hhr7aen9jn9hp78SKBRCdGstm8uuhE5bj9tB-ozPJj6PGl3J3S80gGzUfyLxzIV0OkkVg.jpg" width="400"><br>
+
+طبق گزارش‌های منتشر شده، امروز دوشنبه ۳۰شهریور۱۴۰۵ یک نفتکش هنگام ورود به تنگه هرمز هدف یک پرتابه ناشناس قرار گرفت و دو نفر از خدمه آن زخمی شدند.
+«آسوشیتدپرس» به نقل از ارتش بریتانیا گزارش داده که این نفتکش هنگام ورود به تنگه هرمز هدف قرار گرفته و دو خدمه آن جراحات سطحی برداشته‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78467)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-21 17:39:43
+
+<img src="https://cdn4.telesco.pe/file/rtsoY7DQo9lvK92utWX2IbK0W2wR9iTQzqsjnOO2XqBDzGcoeqB-b4IvqyrjLoqpqsWuPIULE4vspsURkC2TRUav_YXhiq2VST6Ic3lI_Zzj7e37s-jbLAt8jEb7q74jNMjj8Uqq6DCmitu-Afv0ps6KxywouGnr6Gmx7fvTm-btVrtKySlRhK4t3JP-aNu_zPzXI-TTM1deNkBBfYfotCBpiwif5NIogIkbE-fW0mZMMGLIu0JP81rJjaE-Wty-h0ryuV0uwwWiniB6ZFyJuRPETwTyV91zQtChfyzhlBcFc593P7tX5dsqAcqfxHPUdFpYadje1YM9tYheDSIr6w.jpg" width="400"><br>
+
+‏
+🔴
+پدر و پسری که قربانی قتل‌های زنجیره‌ای شدند.
+🔸
+آقای حمید حاجی‌زاده و پسر ۹ ساله‌اش کارون، نیمه شب ۳۱ شهریور ۱۳۷۷ در منزل خود در گلدشت کرمان، به اتفاق با ضربات متعدد چاقو به طرز وحشیانه‌ای به قتل رسیدند. آقای حاجی پور با ۲۷ ضربه چاقو و فرزندش کارون با ۱۰ ضربه چاقو کشته شدند.
+🔸
+خانواده حاجی‌زاده در تمام این سال‌ها برای روشن شدن حقیقت و پاسخگو کردن عاملان قتل حمید و کارون تلاش کرده‌اند؛ پرونده‌ای که با گذشت نزدیک به سه دهه، همچنان بدون پاسخگویی و اجرای عدالت باقی مانده است.
+🔸
+سرگذشت کامل حمید حاجی‌زاده و کارون را در یادبود امید بخوانید.
+https://www.iranrights.org/fa/memorial/story/-7014/hamid-hajizadeh-pur-hajizadeh
+https://www.iranrights.org/fa/memorial/story/-7010/karun-hajizadeh-pur-hajizadeh
+@IranRights
+
+[View Post](https://t.me/VahidOnline/78463)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-21 08:45:45
@@ -70,7 +241,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-20 17:32:49
 
-<img src="https://cdn4.telesco.pe/file/l0mzjss6vSa5w46NDyo0jEvK_2_yVVa76SLaXh9J9isRJow8So5c2hYJKHPmF5kTyuhbmtLG55lE4OnxrVuF8-AkVFko3rc77uT0k2Jkpl7_p_-b3_I5-l0CXYTH6hdDCuQ-Y0wbADvujvHFjbbIGQ30QSGYVWzHXWzcuGrlO86sFlwxCQb4975gWdTFoerOWsoMQG3lVJyXyfO5-y9u8Da_pTCx3WEoNadaSw-8HhYEHAX0m3AGNf3UyxYY6BjOiFt5FxnOpfvXgG8qHwkGim_BTnGR88-UxIx_l3o8wK-3jBYwE8bIWlOVTZ6kX0GXbZWRGAYuiQQTOej4tR0NDQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OQMl35INXTbWmeUW-q5pM544sf_kA2pa88hUzQHmgoCKDDiws6EBZXUx7hB_Bu8wVdtU8ExcSCzx1i4-CHNCephDqMAEvfgkF_OPjlmYtcqCTKT5xaqKq61KvhgtaEtLC_z6GwoqPSYoy2iFMht2b9OjZcwpQ1UG4uoPQQqcknOcAlEZLlMlIi8E9sguZDSW81YfogyvtmXV12yB67s_kDqEY09Zhd_51b7hiRmlUBzA-u1WpBqYmCoeTXOAA2tt2l3eplGcg_rGH4NK-wqKnbCLDFe8V1tx6bfjqm4H9vO1s4IWGMBm6yO6r09mDAgYasIE9_D0_8nX8e49N1jGzA.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه ۲۹ شهریور ماه در گفت‌وگو با شبکه خبری فاکس اعلام کرد که در حال تصمیم‌گیری درباره ایران است و «در آینده نزدیک اتفاقات بسیار بزرگی» درباره ایران رخ خواهد داد.
 ترامپ گفت گزینه‌های فعلی روی میز شامل «محو کردن ایران»، «رها کردن آن برای فرسایش اقتصادی» یا «رسیدن به یک توافق» است.
@@ -90,7 +261,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-20 16:08:27
 
-<img src="https://cdn4.telesco.pe/file/EvXgVytiifKwdZ4htvWxyn1VYKAujm3esiBCvupkzMSom8Wf8p399W1VMvyjHjrbmbUpWMan3c4cf2da1iYkIyhvnfd7wktahQozQ0HgZwWHgnKuJBJm_6_jW6ic2cZGyUVnIK_lxsdVvaMOpC1vzwOiZLeej8Iinfmkhbdjuji9cOziZk56ajNohV5DvwQ1RAQvgDELAtzRh8MEWWvxhUVOGJsliS_-QBkzEfAQVWn31d49fbCrfm4XL_YOSwZkrsNMN41ja8I7oVvhf5P4wVSk99OnOr2-IRsruQFYpGjeJKMrWTCKwN3118HCZfupwONyuCF5BlbkQnYgVnAVVQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/DE_M7maeL0ZCOFJkuuCTQTgqtzBgFcQyuCY4bVvv75vwWi3w1oKAwcpagPkPntt40FRNZtjuU8kSUSqT4KKo5o8jdtbjT76pdSjxsN-k-MzB1RRtaJXU8egNhXMo_tqE5gS-fwrDeS0SiSwjJHbWQpywB1QP1iDbJC35SboYuBn2UQ_rET_cxrxJZqOsFuH-Vrep2pWy8wlPaRnlhDvCEutw3rxIOsGQ55Jv0OUB89Z5WiZ1QqpiJ-0hmfbX3BG4LLW_fYbYfMTLXcVY5CumcBk7thYtTkmfBeB-o3y33fQDTOo2hCLq3uBORt81I-gILN8qexFLJ2L61nGL9caDPw.jpg" width="400"><br>
 
 قرارگاه مرکزی خاتم‌الانبیا با انتشار بیانیه‌ای نوشت به اطلاعاتی دست یافته که با آمریکا با حمایت برخی کشورهای منطقه، برای ازسرگیری حمله به ایران آماده می‌شود.
 در این بیانیه آمده است: «براساس اطلاعات دریافتی، آمریکا بار دیگر تصمیم گرفته با چراغ سبز برخی کشورهای منطقه، در نشست مشترکی در یکی از کشورهای اروپایی، اقداماتی علیه ایران را از سر بگیرد.»
@@ -103,272 +274,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78458)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-20 16:07:48
-
-<img src="https://cdn1.telesco.pe/file/g15brb5IEAVsIQP_SDTtd9yx76YCEd8_8JH-aLo0qpryc0-Kxsq3Gb5hNSnWjIMwohzK82G7mV5wpg8M0Oi8ob6moTp139ZIiarYfkTRMW6mmGBjn4_Be4ZZHxxnj_YfJrqERFHdp8EHguX-XXR82kSQI0hBKkL731y9vlHmb4FQKGw01UpHMDDncAXTtB80jQhAqRLPenLaRr5tdZNLQRtr2FQFo_lEVdxO-25AfRAajtLGu6j72-IX-jMFAdwbI1Z8acEZLz3dPAdx3PRLO6bN_OZC7r4VnUOISthlRdvcSqHNIwwtE-ENEQMNvdC4Hl8ZaMpYQcmeEe_eSzBAvw.jpg" width="400"><br>
-
-رییس مجلس شورای اسلامی از جریان‌هایی انتقاد کرده است که با رد هرگونه تعامل و دیپلماسی، ایران را به‌سوی «فرسایش و جنگ بی‌پایان» می‌برند. او هم‌زمان تایید کرد که تهران شروط و پیام‌های خود را از طریق میانجی‌ها به آمریکا منتقل کرده است.
-@
-VahidHeadline
-محمدباقر قالیباف روز یک‌شنبه، ۲۹ شهریورماه در نطق پیش از دستور خود گفت: «انتقال پیام‌ها و تبیین شروط ما از طریق میانجی‌ها با صراحت به طرف مقابل انجام شده... و تا زمانی که این شروط محقق نشده و حقوق حقه‌ ملت ایران به رسمیت شناخته نشود و تعهدات آمریکایی‌ها اجرا نشود، هیچ روزنه‌ای برای بازگشت به شرایط پیشین مذاکره و باز شدن تنگه‌ هرمز وجود نخواهد داشت.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78457)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-20 16:06:34
-
-<img src="https://cdn4.telesco.pe/file/FHSo4ISrf_DzDemmQDNQ-uJ_OnhMfPcKi_tdA_6pX1zspVlKpV57mt-ABb-2VeBLSLcRfOTodCN-VZu4333pQpqF7NbHDcPLxAMpDRzoQ9b_KRwFeYLUBdArPELOF90I_U5Py_peS1OUbscA5ANnReIE5O7__mu4_hnYDM1w-yzllT2gV0w952aLmJEZujE9uEftWWkJHYsfI4BzhrAcMW2IOazRfnYS2B2xbIAyj2LOM46--DknJctluuDt4hZYDSAlQKC4lI55Np2_HC7qRN7tYsn4K--CEfISPdMf7e3WgrvP2dNnKtERI0DnhED2yii9RXzC65RiYAAF6tD2yQ.jpg" width="400"><br>
-
-شعبه یک دادگاه تجدیدنظر استان البرز حکم مجموعا ۱۸ سال زندان «منوچهر بختیاری»، پدر دادخواه پویا بختیاری، از جان‌باختگان اعتراضات آبان ۱۳۹۸، را تایید کرده است.
-براساس رای صادرشده، بختیاری با اتهام «تشکیل و اداره گروه در فضای مجازی با هدف برهم‌زدن امنیت کشور» به ۱۰ سال زندان، با اتهام «اجتماع و تبانی برای ارتکاب جرایم علیه امنیت کشور از طریق همکاری با یکی از گروه‌های مخالف نظام» به پنج سال زندان، با اتهام «نشر اکاذیب به قصد تشویش اذهان عمومی» به دو سال و با اتهام «فعالیت تبلیغی علیه نظام» به یک سال حبس محکوم شده است.
-تایید این حکم کمتر از سه هفته پس از آن صورت می‌گیرد که شعبه اول دادگاه انقلاب بندرعباس، منوچهر بختیاری را در پرونده‌ای جداگانه به ۱۰ سال زندان دیگر محکوم کرد.
-در پرونده بندرعباس، او‌ با اتهام‌هایی از جمله «فعالیت تبلیغی علیه نظام»، «تحریک مردم به جنگ و کشتار» و «ارسال فیلم به شبکه‌های مجازی بیگانه» روبه‌رو شده است. این پرونده با شکایت دادستان بندرعباس تشکیل شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78456)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-20 15:58:19
-
-
-
-«نجمه امینی»، دانشجوی حسابداری و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در پیامی صوتی از زندان وکیل‌آباد مشهد اعلام کرده است که دادگاه انقلاب  روز ۲۵ شهریور برای او حکم اعدام صادر کرده است.
-او از سازمان ملل متحد، وکلا، فعالان مدنی و نهادهای حقوق‌بشری خواسته است پرونده‌اش را بررسی کنند و برای برخورداری او از حق دادرسی عادلانه اقدام کنند.
-هرانا پیش‌تر نوشته بود که او با اتهام‌های «اجتماع و تبانی» و «توهین به مقدسات و ائمه» محاکمه شده است.
-نجمه امینی روز ۱۱ بهمن ۱۴۰۴، هم‌زمان با اعتراضات سراسری دی‌ماه، در پاساژ فردوسی مشهد بازداشت شد.
-امینی ۲۳ ساله، دانشجوی رشته حسابداری و ساکن مشهد است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78455)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 23:41:12
-
-<img src="https://cdn4.telesco.pe/file/s3x7Njq0WoZnbAoYfW7VDC_xlRdkrS6xWJWjcIHsGMwhOEiAkPQ6c00bXEWcl7SH-vrl1ozSNRTxtiCF_ZyMrOKArjpDKnWPHCOGa_cg_NBylY64mLCfU-XHPRuOdqlltFDM7vvNOP8XiU4G-sEomYGITpzifBKEgR6B41JXf85a7e4lTCuTybOw4pYUmiYSOD2OjSdSQBTex-EhylUM285K0OZdf9JFnANdP8nALk7uyMKA8-wPtgfwEJ-Nu0cMEFNkgs0ufGibDLKzc48gju8f5KO_8ix1QASlq4ybgG5262T01lc3Vq9HBc_jkNxO161gByQ09oarS5-3z5TWtw.jpg" width="400"><br>
-
-محسن رضایی دبیر شورای عالی امنیت ملی جمهوری اسلامی، شامگاه شنبه ۲۸ شهریورماه در شبکه اجتماعی ایکس نوشت ۷ شرط ایران برای آغاز «هر مذاکره‌ای» به دولت آمریکا اعلام شده است.
-رضایی در این پیام نوشت: «پیام تهران روشن و بدون ابهام است؛ اگر واشنگتن می‌خواهد از مخمصه‌ای که خود ساخته خارج شود و بیش از این در آن گرفتار نشود، راهی جز پذیرش حقوق و شروط ایران ندارد.»
-ساعاتی پیش از انتشار این پیام، رسانه‌های دولتی ایران به نقل از گفتگوی محسن رضایی با شبکه الجزیر گزارش کردند، ارتباط میان تهران و واشنگتن به وسیله میانجی‌گران قطری و پاکستانی ادامه دارد و شروط تهران برای بازگشت به مذاکرات به کاخ سفید اعلام شده است.
-رضایی با اعلام آنکه تهران منتظر پاسخ واشنگتن است گفته بود، پایان دادن به جنگ در همه جبهه‌ها، آزادسازی دارایی‌های مسدود شده ایران و پایان محاصره دریایی شروط ایران برای آمریکا است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78454)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 22:54:58
-
-<img src="https://cdn1.telesco.pe/file/BRj2PcUt4cO0LMAaJ_f52QaD7FTS-Kdrhe1-LFsx597f4yieWPSb549xVs0RoHNL74IQWiSu0gu3y9zQtkgnnP0t2vEatE8Ely3xkKT97APU2kUJajmEQeFnrq-VshF0uoovjJIfLKbSFn4EY476mVM_669UafRnL5PcJNT-U3XY2c_zVr4zMeYM8xtWxx9eHexISpCrjJsMxVjc4H0v8OxJsh49Sgl9GzQ32cKUYFc8EQkPJjjqIheFv8bNX9YJSohSQEsMR_PaxsutLyaY6jeFv6bIJyv1PZ7iOl82-yLwk6U5l4jHTBVUl4jSrUk5Y5rbS_DROzAnyVzI7kNVgg.jpg" width="400"><br>
-
-هاکان فیدان، وزیر خارجه ترکیه، گفت در پی حملات حوثی‌ها، عربستان سعودی ممکن است در برخی زمینه‌های فنی نیازهای نظامی داشته باشد و ترکیه برای پاسخ به این نیازها در چارچوب «ائتلاف دفاعی مکه» با عربستان سعودی و پاکستان مشکلی ندارد.
-فیدان شنبه ۲۸ شهریور در گفت‌وگو با شبکه «ان‌تی‌وی ترکیه» گفت حملات به تمامیت ارضی و حاکمیت عربستان سعودی جدی است و ترکیه در چارچوب توافق میان سه کشور در کنار عربستان سعودی قرار دارد.
-او همچنین گفت عربستان سعودی تمایلی به ورود به جنگ آمریکا و جمهوری اسلامی ندارد و کشاندن این کشور به این درگیری «غیرقابل قبول» است.
-فیدان در پاسخ به پرسشی درباره ارزیابی برخی منابع اسرائیلی و ایرانی مبنی بر اینکه «ائتلاف مکه» تنها روی کاغذ است، گفت: «ما به این حرف‌ها می‌خندیم. ائتلاف مکه به یک سازوکار بسیار تاثیرگذار و تغییردهنده معادلات تبدیل خواهد شد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78453)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 16:53:34
-
-
-
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، روز شنبه ۲۸ شهریور، در پیامی ویدیویی خطاب به شرکت‌کنندگان در «مجمع گفتگوی جهانی ۲۰۲۶» به میزبانی انجمن سیاست خارجی اندونزی، با انتقاد از رویکردهای مداخله‌جویانه در خاورمیانه تاکید کرد که دهه‌ها حضور و فشار نظامی نه‌تنها کمکی به ثبات نکرده، بلکه چرخه‌ای بی‌پایان از تنش را رقم زده است.
-عراقچی گفت، ریشه بحران‌های منطقه را باید در یک حقیقت تلخ جست‌وجو کرد؛ چرا که سال‌ها مداخله خارجی، فشارهای همه‌جانبه نظامی و درگیری‌های پی‌درپی اثبات کرده است که مداخله نظامی امنیت نمی‌آفریند و اعمال فشار و زورگویی هرگز به صلح ختم نمی‌شود.
-عراقچی در ادامه این سخنرانی ویدیویی خاطرنشان کرد که در شرایط کنونی، جنگ به‌جای آنکه آخرین راه‌حل باشد، عملا به ابزاری معمول در روابط بین‌الملل تبدیل شده است. رویکردی که نتیجه‌ای جز عادی‌سازی خشونت و تداوم الگوی درگیری و تقابل دائمی در منطقه به همراه نداشته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78452)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 16:51:54
-
-<img src="https://cdn4.telesco.pe/file/E2Lim19z38lduHl3tNKLYUiBkpYBqwjt4cnYPdG0FsowcrllJix2xB4O9tbUzT2n0nig-l7MrNYNDiUxuLt9h7r5KMLpOcKF0fTJGsJcm9PV1fIepC4FpamOKOXztYPRHBXCVuVDOUfKmmlHCaTdOkiwMa8Zqy0Z3E2RkER9sh8FHFWbXfdnjyoqeAHRwbhA4xIR7N-3nZeH_lvJRhoM7aACXmAgVAwFdvQU38agqq1-lJJnr_nZoTWyoV9Tyt3q2yxOItAAXYDXYrh5XyXFto3VG2Pfg3JWbOxaD5mMds4kIsC9mZb-QA7cRh3VmTCQp5ZGSLMMzaj_mznigDRCCw.jpg" width="400"><br>
-
-دادستانی تهران اعلام کرد علیه عوامل و دست‌اندرکاران برگزاری مسابقه دو در بوستان ولایت اعلام جرم کرده و پرونده قضایی تشکیل داده است. دادستانی مدعی است که در این رقابت «موازین قانونی و شرعی رعایت نشده بود».
-مسابقه دو ۱۰ کیلومتری بامداد جمعه ۲۷ شهریور با حضور زنان و مردان برگزار شد. انتشار تصاویر شماری از شرکت‌کنندگان زن بدون حجاب، رقابت را به موضوع بحث در شبکه‌های اجتماعی تبدیل کرد.
-بنابر گزارش خبرگزاری فارس، برگزارکنندگان اعلام کرده‌اند مسابقه با مجوز وزارت کشور و هیئت دوومیدانی استان تهران انجام شده است.
-هیئت دوومیدانی تهران گفته پیش از آغاز رقابت از شرکت‌کنندگان تعهد کتبی برای رعایت «حجاب و شئونات اسلامی» گرفته شده بود.
-حبیب ستوده‌نژاد، مدیرکل ورزش استان تهران، به خبرگزاری تسنیم گفت مجوز رویداد از شورای تأمین استان صادر شده بود و با ورزشکارانی که «خاطی» شناخته شوند برخورد قانونی و انضباطی می‌شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78451)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 16:50:18
-
-<img src="https://cdn4.telesco.pe/file/Zx5D4zxCl-FbQ7ogzPpkuB4-L2ErcbKuN2MirGb0p0DzV-Ls8tgK3TmpuoCLuCm95A7srpo5h2SlLLmCUe-SFa5okdXXKGVzD_pyIoAhJ1ArToiQwsUNtaw8oHvo44hoYcikUXwZyPcJ_9GN7IX3olRshvSg4H4LdBvZrAkWc6F4XUrGYroMrIduUcP_AKeo2vEKk5nNgKoE1kuQqVML_7Jbi-DCR5FcM83aYFf0Dd8H00esdHUZAB3oooxjz8iZEw_4xZ-VDanEomkllbRsZDCmTiPV-dnLpUlGStT2c98-ygOQQF1oanamN1uHftN0jLTEPVWDPoztYjMHX1u4XQ.jpg" width="400"><br>
-
-نهاد تنظیم مقررات و نظارت بانکی ترکیه مجوز فعالیت شعبه «بانک ملت» ایران در استانبول را لغو کرده است؛ تصمیمی که پس از توقف پروازهای شرکت هواپیمایی ماهان میان ایران و ترکیه و مداخله نهاد ناظر در مدیریت یک بانک تحریم‌شده دیگر اتخاذ می‌شود.
-براساس اطلاعیه منتشر شده در روزنامه رسمی ترکیه، هیات نظارت بانکی این کشور روز جمعه ۲۷ شهریور ۱۴۰۵ لغو مجوز «شعبه مرکزی ترکیه بانک ملت مستقر در استانبول» را تصویب کرده است. این تصمیم روز شنبه ۲۸ شهریور در روزنامه رسمی ترکیه منتشر شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78450)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 16:49:54
-
-<img src="https://cdn4.telesco.pe/file/AcQxo3MKMfDIsKggpW-XDxyTXPMOCqOMiRhSrcmI35grIm5xvYGaYiDlDenkzuxSt_QYxVIlrAGXivJzxPvmwhNzpL2yWH-Ryoca5WNMzngQUzkmxEp3_muM_WO1DkK8PZI7zsMZ-5YkfSFTegVdX4BgAoptlzTEXq6UP568GHO8vy5vcfTem4X8ZkkMYgHe8tCf4Vmyyp-uOV7uw9pcRizHLvW_1vazVRNAKN6nN7rtJWYCkbc_u-5dwKaE3cclYwBQcgxWM78CiJAfYTF9gKU0i-RaTwtZE0JFHwJP1dbN3m9qjkOeC7ZijeGdqeGu7Q61OzyCmDSQ2VBjcWkf3A.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهور ایالات متحده، روز جمعه ۲۷ شهریور و اندکی پس از تایید کنگره در هفته جاری، لایحه‌ای را امضا کرد که مجوز اعمال تحریم‌های جدیدی را برای تحت فشار قرار دادن روسیه بر سر جنگ در اوکراین صادر می‌کند.
-این قانون همچنین تحریم‌های مرتبط با ایران را نیز تمدید می‌کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78449)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 16:49:22
-
-<img src="https://cdn4.telesco.pe/file/dXyZzhG2BK1Y-UG88VWiEnNI-r75vaUebwx-EPYlJyFRNQh7ejigQ3dgclXFssyUmjMLuhGoJWZUGelsnTNgubcPQvqi12GNiP8Y2l22F9DiEkZ2VP58NNBC2X9rMgtBT84s2tfRDjm3thhZrs-G3cC_1yLUoNi6bKRxNuXxHaEOH9M0qrQnFrvAMCi4Jl4QigH1uQhIPwSZl1XgEjZKYli_YaDpe1jSmp6TgP8aJ9KMuoCFsEqrDRjroVmfqG6uBOQH-7coX4wU9ZanHinQzV9YSLMGufqsawGApxTfKQR5OtDjMjyTWPW8dLj5D7yv7blWkpDUYxVpj_4srDjK7w.jpg" width="400"><br>
-
-قوه قضاییه جمهوری اسلامی از اعدام «حسین پدران» با اتهام «جاسوسی و همکاری اطلاعاتی به نفع اسرائیل» خبر داده است.
-براساس گزارش رسانه‌های حکومتی در روز شنبه ۲۸ شهریور ۱۴۰۵، حکم اعدام پدران پس از رد فرجام‌خواهی و تایید در دیوان عالی کشور اجرا شده است. محل و زمان دقیق اجرای حکم اعلام نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78448)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 04:44:31
-
-<img src="https://cdn4.telesco.pe/file/OEblbWWan9gJtpIGzureLNSB95epM1y8S636fZ6wZaa43t75S-MdgDAm956SJQxs4sxGIySVzLzamwF3NfOT7zGyL70pXQitGoVGI-KGhRaTZBjSjQifgDfsYX5e5DwcbbXDEgn-5YuyuDKGjLAoiVKgX_hnYMVtrQPTIrnCNrYKVZEX1OAFM4z-D27Y78DWtSm8igLUOj2SoEm0IOyAdjukGQjoHar7A1_J3vdmDJq_86bj2Vo2zBa4gIVSaRsbJU9zhjOSapTe6C_9pAhPJxaBOoPnyov7LIVCsAjNBMpO1nLsUbB8ztIp4MkscjUp0Le7JQweKDNsTKVxIP577g.jpg" width="400"><br>
-
-ترامپ در تروث‌سوشال اعلام کرد آمریکا با دانمارک و گرینلند به توافقی دست یافته است که کنترل دایمی امنیت و تمامی نیازهای دیگر در گرینلند را در اختیار آمریکا قرار می‌دهد و به تمامی نگرانی‌های متعدد ایالات‌متحده رسیدگی می‌کند. او گفت این توافق هیچ هزینه‌ای برای آمریکا نخواهد داشت.
-دفتر نخست‌وزیری دانمارک نیز اعلام کرد انتظار می‌رود که گرینلند، دانمارک و آمریکا هفته آینده توافقی را برای تقویت امنیت در منطقه قطب شمال و اقیانوس اطلس شمالی امضا کنند.
-ترامپ گفت: «از این پس هیچ دشمنی از سوی آمریکا نمی‌تواند بدون تایید کتبی صریح ما در گرینلند پایگاه ایجاد کند، حضور نظامی داشته باشد یا سرمایه‌گذاری‌های حساس انجام دهد.»
-پیت هگست، وزیر جنگ آمریکا، نیز گفت: «ما بلافاصله روند حضور نظامی گسترده در بخش مناسبی از گرینلند را آغاز خواهیم کرد؛ بخش‌های مناسب زیادی برای این منظور وجود دارند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78447)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-19 04:43:53
-
-
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۲۷ شهریور در گفتگو با خبرنگاران در کاخ سفید گفت جلوگیری از دستیابی ایران به سلاح هسته‌ای موضوعی است که به آن «بسیار افتخار» می‌کند و ایران دیگر سلاح هسته‌ای نخواهد داشت.
-ترامپ با اشاره به افزایش هزینه سوخت گفت تحقق این هدف ممکن است مستلزم آن باشد که مردم برای مدتی هزینه بیشتری بپردازند.
-او افزود: «اگر مردم می‌توانستند بین قیمت پایین‌تر بنزین و اجازه دادن به ایران برای داشتن سلاح هسته‌ای رأی بدهند، فکر می‌کنم نتیجه با اختلاف بسیار زیادی روشن بود. مردم نمی‌خواهند ایران سلاح هسته‌ای داشته باشد.»
-رئیس‌جمهوری آمریکا همچنین گفت انتظار دارد جنگ با ایران «به‌زودی» پایان یابد و پیش‌بینی کرد پس از پایان جنگ، قیمت بنزین به سطح پیش از درگیری بازگردد و «شاید حتی پایین‌تر» برود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78446)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-18 16:15:24
-
-
-
-هم‌زمان با برگزاری
-رزمایش "جان‌فدایان"
-تصاویر بالا رو هم تولید کردند:
-مسابقه دوی ۱۰ کیلومتر تهران روز جمعه ۲۷ شهریور با حضور گسترده زنان برگزار شد.
-در تصاویر منتشرشده از این رویداد، زنان با پوشش‌های متنوع و اختیاری[تر از قبل] دیده می‌شوند.
-رقابت امروز در «بوستان ولایت» و در دو بخش جداگان زنان و مردان انجام شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78444)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-18 16:12:22
-
-<img src="https://cdn1.telesco.pe/file/OkPV1VQ1bo3CD_CGa-iuRXnZnIeqb2NF_-prAZlwQyRH9DvGRbrhnliW-gb10X9vCHaU-AUW9AHCVj4NY6q5HT5NZu52vRLVkFuRPWW3wKVsdPUrbJ2Z5aXICiaoD2nIWumr8lSOuosfR4GnTovWkmP0HcoHH4eqj0_DpADRXSSzotb0kL2Ne8Zjs07Ks-clvVzfKJK3Rcm_ivpBhgmjyA0fUNfM7FQV7eND6kqmLALXyFHRtF3T_ZM6CnClUbH4k_gTMd0V-_3OjEqwjoLlD5PmoJ8FSr4SElI4Km4Me6gpANvll70FEzmEwrZPQyyjpsCEfBxzf6JG-yHIP-7R6A.jpg" width="400"><br>
-
-حسین طائب، رئیس سازمان بسیج مستضعفین، اعلام کرد صدها هزار نفر از ثبت‌نام‌کنندگان پویش حکومتی «جان‌فدا» در تهران سازماندهی شده‌اند و روند الحاق آنها به گردان‌ها و یگان‌های دفاعی جمهوری اسلامی آغاز شده است.
-طائب روز جمعه ۲۷ شهریور در جریان رزمایش موسوم به «۳۱۳ هزار نفری جان‌فدایان ایران» در تهران گفت برای این افراد دوره‌های آموزشی مقدماتی و تکمیلی در حوزه‌های زمینی، هوایی و دریایی در نظر گرفته شده است.
-این رزمایش از صبح جمعه در مسیر میدان امام حسین تا میدان انقلاب تهران برگزار شد.
-@
-VahidHeadline
-حسین طائب، رییس سازمان بسیج، جمعه ۲۷ شهریور در همایش «جانفدایان ایران» اعلام کرد نیروهای آمریکایی «به‌زودی با شکست از منطقه خارج خواهند شد.»
-رییس سازمان بسیج گفت: «جمهوری اسلامی از تمام ظرفیت‌های راهبردی و تنگه‌های دفاعی خود، از جمله تنگه هرمز، با قاطعیت حراست کرده و دشمن را وادار به تسلیم خواهد کرد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78434)
 
 ---
 
