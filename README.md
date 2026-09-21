@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-21 04:10:33 </h5>
+<h5> 🟢 Updated at: 2026-09-21 09:11:07 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-21 08:45:45
+
+<img src="https://cdn4.telesco.pe/file/BPt-hpdWeLFJCMJ5SUPC9_gcHVxLDK24Ff6AI59BeChKGYe7M76ELkCI8SasT1YszKPmO_rc3_uL00ydoHaUsKTd1fYyeuAnooNC-61DrZQhp2Xg-4U5PMxqb1dXI1wkK_ixr6V0Y1Q4hAsqZBTi9DdXpiPgZuupVfMRDIxV4hDEOQqmLN7M7kMwYjSe3hlfedbjEHDJpiMqYN3cEeYi4a0-Wi_6Y4XdZ1WnBJQFQBip7YCWf_OPWI_2bPlS0ANJMHke0eMF-IGp67nByIUJeF9cpQflvGoW8odJZSqqhxLuFAcIArGmeavhQdaKmormmeavIVBJ7LT-8UAZqb1nGQ.jpg" width="400"><br>
+
+مرکز آمار ایران روز یکشنبه ۲۹ شهریور نرخ رشد اقتصادی سه ماه ابتدایی سال جاری را منفی ۱۰.۱ درصد اعلام کرد.
+بر اساس گزارش این مرکز که در خبرگزاری جمهوری اسلامی، ایرنا، بازتاب یافته است، تولید ناخالص داخلی کشور در این سه ماه ۲۱ هزار و ۷۹۵ میلیارد ریال بوده که نسبت به مدت مشابه سال قبل که ۲۴ هزار و ۲۵۵ میلیارد ریال بوده، بیش از ده درصد کمتر شده است.
+کاهش قابل توجه رشد اقتصادی ایران در حالی است که نرخ رشد تورم در کشور نیز به شدت افزایش یافته و بر اساس آخرین آمار اعلام‌شده به حدود ۸۰ درصد رسیده است.
+از سوی دیگر ارزش پول ملی ایران نیز در شهریور ماه به شکل مداوم کم شد و قیمت دلار آمریکا رکوردهای تازه‌ای را ثبت کرد و از سوی دیگر مقام‌های ارشد دولت نیز از محدودیت شدید در صادرات و واردت و کسری انرژی خبر داده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78462)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-21 01:32:39
@@ -276,7 +295,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-19 04:44:31
 
-<img src="https://cdn4.telesco.pe/file/q700saESb_CmYBzhKQyC8gv5E5Rr9ZP_UjmJW0W4SllFw23S3d96L09aGthuK2h86a8jVtvhPTpovAL0iGkgXz-TKjzdrP2Z7qq-l0vw4Ll9gAL3f7JgvSF31nHa-yOD6_lRREVvcHPEp0Et675e-Pjy1uBBZMIYEoTJfGQJNv74OIURZ5p5SDgvY30o14dsZOaT7NgcetmHSlOigSKzmeYYd1LdOTFwLOcylc1Yj6UjCZR4IF61CZ_Ew75DqZXXWY_9CcN2rsknuNdK2LFcACQxmRE3V7z-hNio7-H21_1O7nrA7YFnwDfP6BAMOv8O4UH9UrCvQ1Y1EmpfDsE04Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OEblbWWan9gJtpIGzureLNSB95epM1y8S636fZ6wZaa43t75S-MdgDAm956SJQxs4sxGIySVzLzamwF3NfOT7zGyL70pXQitGoVGI-KGhRaTZBjSjQifgDfsYX5e5DwcbbXDEgn-5YuyuDKGjLAoiVKgX_hnYMVtrQPTIrnCNrYKVZEX1OAFM4z-D27Y78DWtSm8igLUOj2SoEm0IOyAdjukGQjoHar7A1_J3vdmDJq_86bj2Vo2zBa4gIVSaRsbJU9zhjOSapTe6C_9pAhPJxaBOoPnyov7LIVCsAjNBMpO1nLsUbB8ztIp4MkscjUp0Le7JQweKDNsTKVxIP577g.jpg" width="400"><br>
 
 ترامپ در تروث‌سوشال اعلام کرد آمریکا با دانمارک و گرینلند به توافقی دست یافته است که کنترل دایمی امنیت و تمامی نیازهای دیگر در گرینلند را در اختیار آمریکا قرار می‌دهد و به تمامی نگرانی‌های متعدد ایالات‌متحده رسیدگی می‌کند. او گفت این توافق هیچ هزینه‌ای برای آمریکا نخواهد داشت.
 دفتر نخست‌وزیری دانمارک نیز اعلام کرد انتظار می‌رود که گرینلند، دانمارک و آمریکا هفته آینده توافقی را برای تقویت امنیت در منطقه قطب شمال و اقیانوس اطلس شمالی امضا کنند.
