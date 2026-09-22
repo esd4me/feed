@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-22 03:54:54 </h5>
+<h5> 🟢 Updated at: 2026-09-22 09:08:20 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-22 05:19:25
+
+<img src="https://cdn4.telesco.pe/file/sOV24W5PYCseX59Pv5tPdQY6rYJjkvPyvvgASUOQTfcITFBOoR0lHkE0iWmXpfOz6168rlVMCIby980DQEbLe8qSX-kCiYPOckNzql6oyYduI3spB-_w5EKbgauAetmVQsIJ9kI4eE8AlOJG2EEknybS2assHhwC3KxYAIP4DK11iPzlvKcZon92OMtAo9MQniU8wCXO7bHPve_OtL2iCaG1OQY59uhhnVUuiwGlNm94zspTDI2ExLP1tOOTFBmc9Q5WTUpuDXNMd9D1Hzhr2jqpUNWUZjhpT1tgKiCAtaHn2ejCiUef3Oxfklz-E0iV7rSQ4CDfprnotgHa-885KA.jpg" width="400"><br>
+
+امانوئل مکرون، رئیس‌جمهوری فرانسه، روز دوشنبه، با انتشار تصویری از دیدار خود با دونالد ترامپ در اکس، از توافق پاریس و واشنگتن برای اقدام مشترک در زمینه امنیت انرژی و بحران‌های بین‌المللی خبر داد. مکرون در این پیام نوشت: «به محض ورودم به نیویورک با ترامپ دیدار کردم. ما تصمیم گرفتیم با همکاری یکدیگر برای کاهش تنش‌ها در بازارهای انرژی، از طریق حفاظت از زیرساخت‌های حیاتی در خاورمیانه و تضمین آزادی دریانوردی در تنگه هرمز، اقدام کنیم.»
+رئیس‌جمهوری فرانسه همچنین با تاکید بر تحولات جنگ اوکراین افزود: «ما تلاش‌های خود را مشترکا به کار خواهیم گرفت تا توقفی در حملات علیه زیرساخت‌های انرژی و تاسیسات غیرنظامی اوکراین به دست آید. جمعیت غیرنظامی باید محافظت شوند و ما باید هرچه سریع‌تر مذاکراتی جدی درباره شرایط صلح میان روسیه و اوکراین را آغاز کنیم.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78478)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-21 20:32:57
@@ -180,7 +197,7 @@ https://www.iranrights.org/fa/memorial/story/-7010/karun-hajizadeh-pur-hajizadeh
 
 ###### 🔵 Post time: 2026-09-21 08:45:45
 
-<img src="https://cdn4.telesco.pe/file/BPt-hpdWeLFJCMJ5SUPC9_gcHVxLDK24Ff6AI59BeChKGYe7M76ELkCI8SasT1YszKPmO_rc3_uL00ydoHaUsKTd1fYyeuAnooNC-61DrZQhp2Xg-4U5PMxqb1dXI1wkK_ixr6V0Y1Q4hAsqZBTi9DdXpiPgZuupVfMRDIxV4hDEOQqmLN7M7kMwYjSe3hlfedbjEHDJpiMqYN3cEeYi4a0-Wi_6Y4XdZ1WnBJQFQBip7YCWf_OPWI_2bPlS0ANJMHke0eMF-IGp67nByIUJeF9cpQflvGoW8odJZSqqhxLuFAcIArGmeavhQdaKmormmeavIVBJ7LT-8UAZqb1nGQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/HnILE1hODrq8fnmeZ65VDlA52yaZGpW5t3lhBxjseUSOlpk39lnmtLu_OFWN0wkbcKEEw1LMDyBqFLMTM_NkVpJqXKUNpTpQrhXZewmbPRFbBfhp_X01i6wkq_SU2TQTRrKP3j8yzT7vk5xfQ5Kb0RXj64Ijv4hUFahlYDi-YCxUHP0LLYFKKQnEv17VCLvPO3i9mj92Z7MiXdBXGI1P3mt0vqVG-w9oukgWEPDmZ4ZMpQdUYFNDELL_aQSj8SPsmTdW7-fBc-rH25Myf7ZahMw-5CJzjif_J40prgAYTfeah5J2outGYf5jVBNcFIJ-TnmT38P5qL5Ijfx77Drgyw.jpg" width="400"><br>
 
 مرکز آمار ایران روز یکشنبه ۲۹ شهریور نرخ رشد اقتصادی سه ماه ابتدایی سال جاری را منفی ۱۰.۱ درصد اعلام کرد.
 بر اساس گزارش این مرکز که در خبرگزاری جمهوری اسلامی، ایرنا، بازتاب یافته است، تولید ناخالص داخلی کشور در این سه ماه ۲۱ هزار و ۷۹۵ میلیارد ریال بوده که نسبت به مدت مشابه سال قبل که ۲۴ هزار و ۲۵۵ میلیارد ریال بوده، بیش از ده درصد کمتر شده است.
@@ -254,26 +271,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78459)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-20 16:08:27
-
-<img src="https://cdn4.telesco.pe/file/DE_M7maeL0ZCOFJkuuCTQTgqtzBgFcQyuCY4bVvv75vwWi3w1oKAwcpagPkPntt40FRNZtjuU8kSUSqT4KKo5o8jdtbjT76pdSjxsN-k-MzB1RRtaJXU8egNhXMo_tqE5gS-fwrDeS0SiSwjJHbWQpywB1QP1iDbJC35SboYuBn2UQ_rET_cxrxJZqOsFuH-Vrep2pWy8wlPaRnlhDvCEutw3rxIOsGQ55Jv0OUB89Z5WiZ1QqpiJ-0hmfbX3BG4LLW_fYbYfMTLXcVY5CumcBk7thYtTkmfBeB-o3y33fQDTOo2hCLq3uBORt81I-gILN8qexFLJ2L61nGL9caDPw.jpg" width="400"><br>
-
-قرارگاه مرکزی خاتم‌الانبیا با انتشار بیانیه‌ای نوشت به اطلاعاتی دست یافته که با آمریکا با حمایت برخی کشورهای منطقه، برای ازسرگیری حمله به ایران آماده می‌شود.
-در این بیانیه آمده است: «براساس اطلاعات دریافتی، آمریکا بار دیگر تصمیم گرفته با چراغ سبز برخی کشورهای منطقه، در نشست مشترکی در یکی از کشورهای اروپایی، اقداماتی علیه ایران را از سر بگیرد.»
-قرارگاه خاتم اطلاعات بیشتری درباره شرکت‌کنندگان و یا کشور اروپایی میزبان ارائه نکرده است.
-این نهاد عالی نظامی به کشورهای منطقه هشدار داد که اگر با حمله آمریکا «همسو» شوند، «همگی در این شرارت شریک تلقی شده و دیگر نمی‌توانند از نیروهای مسلح قدرتمند ایران انتظار خویشتنداری یا نجابت را داشته باشند.»
-قرارگاه مرکزی خاتم‌الانبیا همچنین به آمریکا هشدار داد در صورت حمله، «تمامی مراکز استقراری و منافع آن کشور در منطقه، بدون هیچ‌گونه محدودیت و ملاحظه‌ای، هدف حملات مستمر، موثر و دردناک قرار خواهد گرفت.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78458)
 
 ---
 
