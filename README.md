@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-22 09:08:20 </h5>
+<h5> 🟢 Updated at: 2026-09-22 14:07:16 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-22 09:52:42
+
+<img src="https://cdn4.telesco.pe/file/qAr9y2i0XoZ_z_yUXu9UQMM081-dfSbema_phMfoT9MVBPzfpUgh29z4ibxgAZMKL5VAhCtU8RTl-9_xXkuZmztkf4TqpROmjCDmYxTF40ex3zSF4QxAF52R9Oo2hwp3kqJOV8GMDK8povt97bpa2OA2eMJtk3HAVqrBqfvtZafKFZba3XDNsscP33p5pXp-IY66U0Zq5IfXXLpzviYRhThyqB-bXzJrOkZ2ald3lVMqjQYFhewbASDlXJ9f_qOHKpjXeZCgeYyFKevyMmxbKWXGm7of0mH9gge1xLv6tE4ByhhvN0QsdN08weMWuyDXl7i__0I4MO0Jbyitct0_Gw.jpg" width="400"><br>
+
+نخست‌وزیر بریتانیا، می‌گوید با ارائه «پشتیبانی دفاعی و سوخت‌رسانی هوایی» به عربستان سعودی در برابر حملات حوثی‌ها موافقت کرده است.
+اندی برنام روز دوشنبه ۳۰ شهریور گفت که این اقدام در پی درخواست عربستان سعودی برای دریافت «حمایت نظامی» صورت می‌گیرد.
+دولت بریتانیا اعلام کرده است که زمان این طرح «محدود» است و براساس آن قرار است نیروی هوایی سلطنتی بریتانیا به جنگنده‌های نیروی هوایی عربستان در سرنگونی موشک‌ها و پهپادهای حوثی‌ها کمک کند.
+برای ارائه این پشتیبانی، بریتانیا طی روزهای آینده یک فروند هواپیمای سوخت‌رسان «وویجر» را به منطقه اعزام خواهد کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78479)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-22 05:19:25
@@ -251,26 +270,6 @@ VahidOnLive
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78460)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-20 17:32:49
-
-<img src="https://cdn4.telesco.pe/file/OQMl35INXTbWmeUW-q5pM544sf_kA2pa88hUzQHmgoCKDDiws6EBZXUx7hB_Bu8wVdtU8ExcSCzx1i4-CHNCephDqMAEvfgkF_OPjlmYtcqCTKT5xaqKq61KvhgtaEtLC_z6GwoqPSYoy2iFMht2b9OjZcwpQ1UG4uoPQQqcknOcAlEZLlMlIi8E9sguZDSW81YfogyvtmXV12yB67s_kDqEY09Zhd_51b7hiRmlUBzA-u1WpBqYmCoeTXOAA2tt2l3eplGcg_rGH4NK-wqKnbCLDFe8V1tx6bfjqm4H9vO1s4IWGMBm6yO6r09mDAgYasIE9_D0_8nX8e49N1jGzA.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه ۲۹ شهریور ماه در گفت‌وگو با شبکه خبری فاکس اعلام کرد که در حال تصمیم‌گیری درباره ایران است و «در آینده نزدیک اتفاقات بسیار بزرگی» درباره ایران رخ خواهد داد.
-ترامپ گفت گزینه‌های فعلی روی میز شامل «محو کردن ایران»، «رها کردن آن برای فرسایش اقتصادی» یا «رسیدن به یک توافق» است.
-رئیس‌جمهوری آمریکا همچنین گفت: «سؤال من این است که چه زمانی و آیا قرار است کل ایران را منفجر کنم» و افزود: «بهتر است آنها رفتار خود را اصلاح کنند.»
-ترامپ گفت برای دیدار با مسعود پزشکیان در حاشیه نشست مجمع عمومی سازمان ملل متحد در این هفته نیز آمادگی دارد.
-او در ادامه گفت برخی مقام‌های ایرانی پنهان شده‌اند و نمی‌توان افرادی را پیدا کرد که قادر به دستیابی به توافق باشند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78459)
 
 ---
 
