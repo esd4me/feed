@@ -3,8 +3,231 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-22 14:07:16 </h5>
+<h5> 🟢 Updated at: 2026-09-22 18:46:43 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-22 17:36:36
+
+
+
+🔻
+ترامپ: ایران در پی ساخت موشکی بود که می‌توانست اروپا را هدف قرار دهد
+▪️
+رئیس‌جمهور آمریکا در سخنرانی خود در مجمع عمومی سازمان ملل گفت ایران به ساخت ذخایر گسترده موشکی و پهپادی ادامه داده و مدعی شد تهران موشکی ساخته بود که توان هدف قرار دادن اروپا را داشت. او گفت هدف ایران این بود که در پوشش چنین توان موشکی‌ای، به سوی ساخت سلاح هسته‌ای حرکت کند.
+▪️
+ترامپ همچنین با اشاره به حمله هفتم اکتبر گفت عاملان این حمله از سوی ایران تامین مالی شده بودند و افزود حکومت ایران «چنین خشونتی را جشن گرفت». او سپس حکومت ایران را به کشتار گسترده شهروندان خود متهم کرد و گفت چنین حکومتی نباید امکان فعالیت «در پشت سپر هسته‌ای» را پیدا کند.
+@
+VahidOnLive
+🔻
+ترامپ: هرگز اجازه نخواهم داد ایران به سلاح هسته‌ای دست پیدا کند
+▪️
+︎ دونالد ترامپ در سخنرانی خود در مجمع عمومی سازمان ملل، جمهوری اسلامی ایران را «بزرگ‌ترین حامی تروریسم» خواند و گفت که حکومت ایران سال‌ها در خاورمیانه «مرگ، ویرانی و هرج‌ومرج» گسترش داده است.
+▪️
+︎ او گفت: «هرگز اجازه نخواهم داد ایران به سلاح هسته‌ای دست پیدا کند» و افزود پس از آغاز دوره ریاست‌جمهوری‌اش، مذاکراتی را با ایران آغاز کرد و در مقابل پایان برنامه هسته‌ای و حمایت از تروریسم، پیشنهاد همکاری اقتصادی کامل داد، اما به گفته او ایران این پیشنهاد را رد کرد.
+▪️
+︎ ترامپ همچنین گفت که ارتش آمریکا در عملیات «چکش نیمه‌شب» برنامه هسته‌ای ایران را هدف قرار داد و پس از آن نیز از تهران خواست توافق کند، اما ایران بار دیگر نپذیرفت. او سپس ایران را به ادامه انباشت موشک‌ها و پهپادهایی متهم کرد که به گفته او امنیت نیروهای آمریکایی و دیگر کشورهای منطقه را تهدید می‌کرد.
+@
+VahidOnLive
+🔻
+دونالد ترامپ: تصور کنید حکومت پلید ایران پشت سپر هسته‌ای حملات تروریستی انجام دهد
+▪️
+︎ دونالد ترامپ گفت: «فقط تصور کنید اگر چنین حکومت پلیدی روزی قادر می‌شد در پناه یک سپر هسته‌ای حملات تروریستی گسترده انجام دهد. این واقعیتی بود که باید با آن روبه‌رو می‌شدیم؛ واقعیتی که افراد بسیار زیادی ترجیح دادند آن را نادیده بگیرند.»
+▪️
+︎ او افزود: «در حالی که دیگران حرف زده‌اند، من عمل کرده‌ام. در حالی که دیگران از صلح سخن گفته‌اند، من آن را برقرار کرده‌ام. در حالی که دیگران تهدیدها را نادیده گرفته‌اند، من با آنها مقابله کرده‌ام.»
+▪️
+︎ ترامپ گفت: «من از آن برای تبدیل آمریکا به قدرتمندترین کشور جهان استفاده کرده‌ام.»
+@
+VahidOnLive
+🔻
+ترامپ: امیدوارم پس از انتخابات با ایران به توافق برسیم
+▪️
+︎ دونالد ترامپ در ادامه سخنرانی خود در مجمع عمومی سازمان ملل گفت که آمریکا باید فشار بر ایران را حفظ کند و افزود نیروی دریایی آمریکا تاکنون بیش از یک میلیارد بشکه نفت را از تنگه هرمز اسکورت کرده است. او گفت اکنون نفت بیشتری نسبت به هر زمان دیگری از آغاز جنگ از این مسیر عبور می‌کند.
+▪️
+︎ ترامپ سپس گفت که در برابر ایران با یک «تصمیم بزرگ» روبه‌روست: یا توافقی حاصل شود که به گفته او به ایران امکان بازسازی و تبدیل شدن به کشوری «بسیار بزرگ‌تر» را بدهد، یا آمریکا مسیر نظامی را در پیش بگیرد. او در عین حال گفت: «فکر می‌کنم درست بعد از انتخابات به توافق خواهیم رسید، چون منطقی نیست که آنها توافق نکنند.»
+@
+VahidOnLive
+🔻
+ترامپ: نیروی دریایی و نیروی هوایی ایران از بین رفته‌اند
+@
+VahidOnLive
+🔻
+ترامپ: انتخابات در تصمیم من درباره ایران تاثیری ندارد
+▪️
+︎ دونالد ترامپ در ادامه سخنرانی خود در مجمع عمومی سازمان ملل گفت ایران ممکن است منتظر نتیجه انتخابات میان‌دوره‌ای آمریکا باشد، اما تاکید کرد این انتخابات در تصمیم او درباره ایران «اصلاً وارد محاسباتش نمی‌شود.» او گفت: «تنها چیزی که اهمیت دارد این است که ایران هرگز سلاح هسته‌ای نخواهد داشت.»
+▪️
+︎ ترامپ همچنین گفت برخلاف ادعاهایی که به گفته او مطرح می‌شود، آمریکا با کمبود مهمات روبه‌رو نیست و ذخایر تسلیحاتی این کشور با سرعتی بی‌سابقه در حال افزایش است.
+VahidOnLive
+🔻
+ترامپ: اگر توافق نشود، جمهوری اسلامی ایران را نابود می‌کنم
+▪️
+︎ دونالد ترامپ در مجمع عمومی سازمان ملل گفت باید تصمیم بزرگی بگیرد که اگر توافقی حاصل نشود جمهوری اسلامی ایران را نابود خواهد کرد. او گفت فکر می‌کند ایران بعد از انتخابات میان دوره‌ای با آمریکا توافق خواهد کرد.
+▪️
+︎ او بار دیگر گفت جمهوری اسلامی ایران بزرگترین حامی تروریسم در دنیاست اما اکنون دیگر تهدیدی نیست چون آمریکا برنامه هسته‌ایش را نابود کرده است.
+▪️
+︎ رئیس‌جمهور آمریکا بار دیگر گفت اخیرا ده‌ها هزار معترض اخیرا در ایران کشته شده‌اند.
+▪️
+︎ او از اروپا انتقاد کرد که متوجه تهدید موشکی ایران نبوده است.
+▪️
+︎ آقای ترامپ بار دیگر گفت تمام قوای نظامی و اقتصاد ایران نابود شده است.
+▪️
+︎ او همچنین گفت دولتش در ۱۲ ماه گذشته بیش از هر دوره‌ای در تاریخ آمریکا در زمینه نظامی سرمایه‌گذاری کرده است.
+@
+VahidOnLive
+🔻
+ترامپ از همه کشورها خواست ایران را «به‌طور کامل از نظر اقتصادی منزوی کنند»
+▪️
+︎ دونالد ترامپ در ادامه سخنرانی خود در مجمع عمومی سازمان ملل از همه کشورها خواست به آمریکا بپیوندند و «انزوای کامل اقتصادی ایران» را اعمال کنند؛ تا زمانی که به گفته او تهران حملات به کشتی‌های تجاری را متوقف کند، از «جاه‌طلبی‌های هسته‌ای» خود دست بکشد و حمایت از تروریسم را پایان دهد.
+▪️
+︎ او حکومت ایران را «ضعیف و مستأصل» توصیف کرد و گفت اگر کشورها متحد بمانند، به گفته او «تهدید ۵۱ساله تروریسم ایران» پایان خواهد یافت و قیمت نفت نیز کاهش پیدا خواهد کرد.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78487)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 17:33:24
+
+<img src="https://cdn4.telesco.pe/file/kXoz-I-n6A2Ubnsaz6Z9rj192EFA97KZCoy-EsmXro9cG3ATvKxWAb_q_OFwvbymAZhF-Nf7cs_8eUH_GdUXkIXaPQPG8Ly8vfGtmQqOy0lrfrG8jEyPeb136E1R0qVBGiwi0WAETRDL_PU_Tdv3gP5jJvLOF_8q-7WCUgmgBiVxo8FXuBYALvAsuUKq0YCOy_RlXBXoD_zJQRDmtEsz-OozFMlOAz9Hb5NVcIZ2oECBHNBX0NSECs9pGnhymeyhXUlgxQNEf_mjeCN3K5X8IDyuNX61njtxH_nkciEh3uaYH8Ai-Lju5r5qHraOaT9HGF5qi43Ft--Pmp6uI_PAJQ.jpg" width="400"><br>
+
+یک مقام ارشد جمهوری اسلامی گفته است تهران پیشنهاد کرده در صورت کاهش فشار نظامی آمریکا و برداشتن گام‌های اولیه برای پایان محاصره بنادر ایران، تنگه هرمز را ظرف هفت روز بازگشایی کند و به مذاکرات با واشنگتن بازگردد.
+خبرگزاری «کیودو» روز سه‌شنبه۳۱شهریور۱۴۰۵ به نقل از این مقام، که نامش اعلام نشده، گزارش داد این پیشنهاد از طریق میانجی‌ها به دولت آمریکا منتقل شده و بخشی از تلاش تازه تهران برای احیای مذاکرات با واشنگتن است.
+براساس این پیشنهاد، جمهوری اسلامی خواهان ازسرگیری مذاکرات با هدف رسیدن به توافقی برای «پایان دائمی مخاصمه» میان ایران و آمریکا است.
+این مقام گفته است تهران در مرحله نخست انتظار دارد واشنگتن نشانه‌هایی از آمادگی برای بازگشت به مذاکرات نشان دهد و اقداماتی را برای پایان محاصره نظامی بنادر ایران و توقف عملیات نظامی مرتبط با تنگه هرمز آغاز کند.
+در صورت برداشته‌شدن این گام‌ها، جمهوری اسلامی آماده است ظرف هفت روز مسیر عبور کشتی‌ها از تنگه هرمز را باز کند و به میز مذاکره بازگردد. این مقام تاکید کرده است آمریکا برای پیشرفت دیپلماسی باید «جدیت و تعهد» خود را نشان دهد.
+کیودو نوشته است پیشنهاد تازه تهران به تایید «مجتبی خامنه‌ای»، رهبر جمهوری اسلامی، و شورای عالی امنیت ملی رسیده است. مقام ایرانی مشخص نکرده که آیا این پیشنهاد به معنای عقب‌نشینی تهران از بخشی از هفت شرطی است که پیش‌تر برای مذاکره و بازگشایی تنگه هرمز مطرح شده بود یا خیر.
+براساس گزارش کیودو، شورای عالی امنیت ملی ۲۵مرداد تصمیم گرفته بود اگر آمریکا ظرف ۴۵ روز محاصره بنادر ایران را پایان ندهد، جمهوری اسلامی گزینه حمله دوباره به نیروهای آمریکایی را برای خود محفوظ نگه دارد. این مهلت اکنون به پایان خود نزدیک می‌شود.
+هم‌زمان، یک مقام ارشد ایرانی به «رویترز» گفته است هیات جمهوری اسلامی در مجمع عمومی سازمان ملل در نیویورک اختیار کامل برای احیای گفت‌وگوهای دیپلماتیک با آمریکا دارد و جزییات توافق احتمالی می‌تواند از طریق کشورهای میانجی در نیویورک بررسی شود.
+مقام ایرانی احتمال دیدار «مسعود پزشکیان» و «دونالد ترامپ» در حاشیه مجمع عمومی را رد کرده، اما گفته است همچنان «امکان حرکت به‌سوی توافق» وجود دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78486)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 17:31:12
+
+<img src="https://cdn4.telesco.pe/file/ct5F-qoUrNHcffE0CCRy3_fBsixXT2I2XKlegD59d-AM3Mg5AoxaF5DCap7-NMnAaHzeAqKLQpYrNWTe6QzBIkw0oVROYPiNDDO5wXbhoOw1J4qsKiJSxdGMah8aM5DJhoniiDR_CZRYeW4NfWFMajdfonQW7iRY0_SrlOcwl_l7lPztFxcKE6kqbmtbWO9Jl46lgJABNbnet-MS1hP2XrGVNqkr2rTYMqShLHKmUPvKMBGJp7ZUXelEWa1pVlLPGhBkAvh_aRvEro31Xo7KyoVr26WLzokgWwdHxqjCVczg5QR5K4dxte1whpFP1LZnNYBJ-rDxnhwW0h7a43Psdw.jpg" width="400"><br>
+
+احمدرضا رادان، فرمانده کل انتظامی جمهوری اسلامی، با اشاره به حملات آمریکا گفت که جمهوری اسلامی بر دشمن پیروز خواهد شد. رادان گفت: «به اذن خدای متعال، صبح قطعی پیروزی نزدیک است و ما حتما بر دشمن پیروز خواهیم شد.»
+او همچنین از اقدامات حوثی‌های یمن علیه عربستان سعودی تقدیر کرد و گفت: «امروز اراده یمنی‌ها موجب شد تا رزمندگان انصارالله هزاران کیلومتر پیشروی کنند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78485)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 17:30:34
+
+<img src="https://cdn1.telesco.pe/file/JPkXGw8UJ16iG45m1Ir7Gs3zJUCzVint7Q3cNUNV6IO15jQ1tjXvtwNsGWQXD0LHHPUJcSy8R_gEn-bzoOuQCeDxS8dl6EsDWEyuoTV4iOtPU5XhQTVEBx_OaJtpjTLH2N5mNGU0mQ1nr5xb-4cDg9hjxPl-VkUUeTa7r942DdQgPEs3mKBSoNJylwZ2538NQtmvMaczIQJePaz7N1byAzyE-pKEuuskaDGwxIRY2P3BFzhvy0R3V4QPz4riy9WLGczLWvW397TpmYGPyWQxLdGZGtyFgzBLV-N4sI2iRdj8yZfbVNR0n6i737kCEOWd3xHpRkri0w2c-Tatq3mwzg.jpg" width="400"><br>
+
+نرخ دلار در بازار آزاد تهران روز سه‌شنبه با نزدیک یک درصد افزایش نسبت به روز گذشته به ۲۳۳ هزار تومان رسید.
+بر پایه داده‌های شبکه اطلاع‌رسانی طلا و ارز دلار روز دوشنبه ۲۳۰ هزار و ۸۰۰ تومان بسته شده بود. بهای دلار در ساعات نخست معاملات امروز تا ۲۳۵ هزار تومان نیز بالا رفته بود.
+یورو ۲۶۷ هزار و ۴۴۰ تومان، پوند بریتانیا ۳۱۱ هزار و ۴۳۰ تومان و درهم امارات ۶۳ هزار و ۴۷۱ تومان معامله شد.
+در بازار سکه، سکه امامی با یک و نیم درصد افزایش به ۲۳۸ میلیون و ۴۸۰ هزار تومان رسید و سکه بهار آزادی با یک و هفت دهم درصد افزایش ۲۳۴ میلیون و ۶۷۰ هزار تومان قیمت خورد.
+نیم‌سکه با هشت دهم درصد افزایش ۱۲۱ میلیون و ۴۰۰ هزار تومان معامله شد. ربع‌سکه ۶۳ میلیون و ۸۰۰ هزار تومان و سکه گرمی ۳۳ میلیون و ۲۰۰ هزار تومان بدون تغییر ماندند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78484)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 17:29:58
+
+<img src="https://cdn4.telesco.pe/file/b6hUw5s2NYVmzZcb1_WSL2E7H7RPjnv6MPIhZkDQs0oSVaKRvoe97p-LX7HY6VkdSOT72_Vlt8U1QKh0b3ZT8Bzo7rzpinX060uaBLxuOYTAau8i6KmdDEQGdS1GiJVWBuMFmAut4xZXNTCu0iV7Kfym3HKZs6lubnaT4vpec-KhCrhQTG33tKUThzR3vfiGlZpmhnPO6ex5M2dx_biGrwRrFtMBL6_RAaXwmhEQeLYo0v5zsg0Kz8K4H3xjEHrp8wpa4XjdP-7IM3ery8x34clYaxZTK4jWq2JZyg6zPgzjrFzZJLe3Ztu1iDL2z8V7s2E_vu9-AfE4EsNZJXbqvA.jpg" width="400"><br>
+
+رئیس جمهور آمریکا می‌گوید این کشور «بیش از آنچه حتی بتوانیم برای استفاده تصور کنیم مهمات» دارد و به گفته او «اکنون نیز در حال افزایش ذخایر مهمات خود در سطوحی هستیم که تاکنون هرگز شاهد آن نبوده‌ایم.»
+دونالد ترامپ روز سه شنبه، ۳۱ شهریور در پیامی در شبکه اجتماعی تروث‌سوشال با رد وجود کمبود مهمات در ارتش آمریکا از کسانی که آنها را «بزدلان و خائنان» نامید نوشت آنها دوست دارند بگویند که ایالات متحده با کمبود مهمات مواجه است. این درست نیست.
+نوشته رئیس جمهور آمریکا می‌تواند واکنشی به گزارش رسانه‌های مختلف درباره کمبود مهمات در ارتش آمریکا به‌ویژه پس از جنگ اخیر با ایران باشد. در این گزارش‌ها به‌ویژه از کاهش ذخایر موشک‌های رهگیر سامانه‌های پدافند هوایی خبر داده شده بود.
+این در حالی است که شرکت لاکهید مارتین روز ۲۴ شهریور اعلام کرده بود که نخستین محموله از قطعات حیاتی موشک‌های رهگیر «پاتریوت» را از شرکت «جنرال موتورز» دریافت کرده است؛ این تحویل کمتر از یک ماه پس از امضای توافق‌نامه تولید میان دو شرکت صورت می‌گیرد، آن هم در شرایطی که پنتاگون بر تسریع روند تولید تسلیحات تأکید دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78483)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 17:29:37
+
+<img src="https://cdn4.telesco.pe/file/gw1YyRQmFueDkKZPrghWlBouVxM9rBdWPLVg8WVpI_nfOXmuuDu0IW1lLnmZb6IG8rj4KJUpUW7EkkKdP8zg8N6GpWnT9IRGons1870NLsM85784HzrLeNoTIJttS5mOLe2SVBXzj5w3iqWvsZdhagnX3LnEMzltWi0s9gNYeu8UAwYH8nTOe6p1IimNhQ0A7KWzvwp9ufZ1_B_oTbyb2icRMgOdCijsGs_Cbx-hpNBbOI499-rxeHsLM3ocgm1IiY7Hxcnb960LW0QrkmjIjycEu_q_6njAvEbeUiPGBEmf3H5YXSoXGThBsrf3aoCRA422rhcRNUnljNc5QVQWjg.jpg" width="400"><br>
+
+مارکو روبیو گفت آماده ملاقات با مقام‌های ایران در حاشیه نشست مجمع عمومی سازمان ملل در نیویورک است.
+وزیر خارجه آمریکا گفت: «فکر نمی‌کنم در حال حاضر چیزی برنامه‌ریزی شده باشد، اما قطعاً برای چنین دیداری آمادگی داریم، به‌ویژه اگر چشم‌انداز آن نتیجه‌ای مثبت و در نهایت تحقق هدف اصلی باشد.»
+آقای روبیو گفت منظور او از چنین چشم اندازی این است که «ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد.»
+عباس عراقچی، وزیر خارجه ایران از دوشنبه در نیویورک است و مسعود پزشکان هم عازم این شهر شده است تا در مجمع عمومی سخنرانی کند.
+دونالد ترامپ دو روز پیش به شبکه فاکس گفته بود که آماده دیدار با مسعود پزشکیان است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78482)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 17:28:42
+
+<img src="https://cdn4.telesco.pe/file/CGrCFapt-t9XBc5OgsnM6t8BovXICGW_wVgGkZ7-8xYcJ31AUieidARf6bi7Ox0vnBGX72qmeRE7gXM_i0TC3stwcC1XPYnMwFJIy6IezSLsV4jXNQa6tlVO9Bz0sd10xYZ87kP2OgCptR-1iCtF7vrQkVQnSZb_ZjqJuGDV0dZ8OqfESdrgqhChQ6HyPGhBWSurXg1C5ATLIu6ERIRLooWM64DvjLdhSKR1meNw6i1gHVAxOZ7ex5SRrmQ95XU6Luz-01avTdK3Ogw33XFFtQckAU1RnV3B440KQvUMEENsOZQ5lqbSUlfw0kxDPwQhNyDiKVNgCMM6cX-_iajFZw.jpg" width="400"><br>
+
+وزارت امور خارجه چین روز سه‌شنبه، ۳۱ شهریورماه، رسما اعلام کرد که با تحریم «یک‌جانبه» خطوط هوایی ایران توسط واشینگتن مخالف است.
+گوئو جیاکون، سخنگوی وزارت خارجه چین، در نشستی خبری گفت که پکن این گونه تحریم‌های آمریکا را «غیرقانونی» می‌داند و با اعمال آنها مخالف است.
+این موضع‌گیری یک روز پس از آن رخ می‌دهد که اسکات بِسِنت، وزیر خزانه‌داری آمریکا، روز دوشنبه گفت که تمام شرکت‌های هواپیمایی ایران از تاریخ ۲۳ سپتامبر (اول مهر) «در سراسر جهان تعطیل خواهند شد».
+او در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت: «وقتی هواپیماهای ایرانی در فرودگاهی فرود می‌آیند، شما نمی‌توانید به آن‌ها سوخت یا خدمات فرودگاهی ارائه دهید و نمی‌توانید به آن‌ها بلیت بفروشید؛ در غیر این صورت از سیستم دلاری کنار گذاشته خواهید شد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78481)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 17:27:46
+
+<img src="https://cdn4.telesco.pe/file/XfCvouuDEoPAmCQkZe6n__Kajk0-_AZyIQJ9ipPtzurh9GUA62UB98giO98uxhi9nRzzPUCEZtO5jb-7ULU31wGk4dFWWYuy0xywSYcr3UGliPknKE1O1NOM0Z2jJ__p50CZtJWsUP1Ry3gt0u1rFlsf8aw_bQlHzrVXviw-aBFCGGI_36xTYXJtjxD9Z1XlEkE8XVZzBS4qX-1Z0-lOiQSY8gfrle27J0JZgv34EmyF_YrKpZ_Xk8b-hBiZ8EzmjOPOKIvsTH5VSmpdvyNq414VOk4Gd2gAkYHQcbuG6o53CJaJSu2DY1nrfdbrNgoyj4QRv_xzAQftV3ytbDR5Vw.jpg" width="400"><br>
+
+نسبت نمونه‌های مثبت کووید-۱۹ در ایران برای پنجمین هفته پیاپی بالا رفت و به ۱۷ درصد رسید.
+به گزارش مرکز مدیریت بیماری‌های واگیر وزارت بهداشت درباره هفته منتهی به ۲۷ شهریور، این نسبت در هفته مشابه سال گذشته هشت و نه دهم درصد بود. نسبت نمونه‌های مثبت کرونا هفته پیش از آستانه هشدار بالا گذشته بود.
+وزارت بهداشت بر ضرورت تشدید مراقبت از عفونت‌های حاد تنفسی تأکید کرد.
+این هشدار در حالی است که نگرانی‌ها از شیوع همزمان کرونا و آنفلوانزا تشدید شده است.
+از طرفی واکسن آنفلوانزا با وجود نزدیک شدن فصل سرما هنوز در داروخانه‌های ایران توزیع نشده است. به گزارش روزنامه شرق، سازمان غذا و دارو از تأمین محموله‌هایی از چین، روسیه و برخی کشورهای اروپایی خبر داده، اما داروخانه‌داران می‌گویند خبری از توزیع نیست.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78480)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-22 09:52:42
@@ -100,7 +323,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-21 18:58:34
 
-<img src="https://cdn1.telesco.pe/file/F8HqTMSf-41UzkH4jK3Zdr36cQNqL6AwOROw0LjzIQH1nE43zRKEwVDupO9ZIj0jvx7ebYdoxuN4MmKPO2C43g0Xfp_ZT99fJi-OCh4FiVhu-fbLPXKz2GOcn2-8-57MLUKmC2WMQ1MRlfJaLSxZybgcwLXlBB5i9cgKfMJoVKOzT1nFFZDUus3VRGYbF0i6xSbFx1piMnifStp7N6enb3K57PQHV8_uy2vCH3K4XEwRo39q1_HwuqS6oKOMmizog31wSiFbwXCfMQSBqBGkLuZWrGee82FrECUXSu224QSdd1qhMNuPrE3gGdTWxp6dD6RBC4xAf9BJVI2hoFVSCg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/q8InXW8ovWyQM2YcIp_lW3u9gBFOKnCoEppqFP3JI0QRHAv6jMcohutgFJiUNi-mg-NKH2FSRVKVmuFISwV00M9XmXKZMKsOPXFciaalu9Fjw8PQM34WFieIoNqeEAFjD6o4HRrc7QfCif9ziN2e3qSx-WZKsPlQpBh28HUs-YHaGx8f3-TIiFpr9gsnzx1TlCiDUmlJrVbTt2ebuKP2s3JB2Jb9T69h9NxyjVuiSqAotG38UTZlqVJIMCdI2luTSRNfFQCRZuE6Oi3jgX78XcjQI6YwSv4NDD77sbwwaiJmEDe3tdeMnutY5O7xzfUj5uCzQSte3DN7X4YIXDRvUA.jpg" width="400"><br>
 
 هواگردی که توسط ارتش جمهوری اسلامی ایران در نزدیکی تنگه هرمز ساقط شده بود یک موشک فریب آمریکایی ADM-160 بوده است که به اشتباه پهپاد اوربیتر تصور شده بود.
 آمریکا با استفاده از موشک MALD به دنبال شناسایی موقعیت سامانه های پدافندی ایرانی است.
@@ -116,7 +339,7 @@ mhmiranusa
 
 ###### 🔵 Post time: 2026-09-21 17:41:36
 
-<img src="https://cdn1.telesco.pe/file/NSyQQxOh8NdlCjMxzf-MIby1PvjUzi_GmDU3bWwQ0JgsPtGOHE7yNC6ewTxjlHRAvXCk40JoOvV36rtUeldSY4ocyORNNNq7kRpQ9yxZ89_szC4jKIh1RU2FTWPVCFxioA_XySZdXBOPqs8WQOYnBvsVKG-eVL16CwkTW929wv1oTu7ZB1mBK2sDe9EW2cu2Lln7DZY4OuDIUVFRrp73kfUEzsTYelG1j4HY8jxdXksBM4Ma3ybGqndsRrnBUhdNcr1LchUPUoHNm2ET6doHipPtSAbtmVJztB1yix1FecBe-r-d3UXCgmNjl7e5nTgjP66SyrSoizGOmF14Rlbn6A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/R2hFwJPMQ6OMpvCUrUfFuGnWDc9r_LAxY-yJSAPcAFTnrDnnX1kRsfHM_SL6WXSMlz5XUJqiEauLxxS4b8G90ouaonq_MB3KFjLB3MEeaTJQ22k8FoIeNOCRFiME1kW-3TOyQGqR6yz0kjavljBS1a5DtIazGxWqDAziqMLPvCot5-LMkbig9tSs26WFt-4gfTacgVc-HoKgzcAcMr9ML3um_wcn18RT5XVGJI9TId26SUa1hh5_Z1i5N-zYKbbAO_whwMpftMM-451eu2kI1-n4G4ckAn0FLvhmeObAgb7MhP4WY6aEo9tAk8AyZHbnZDMI7ac5UEoXlmB-dkg2lg.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری ایالات متحده، روز دوشنبه ۳۰ شهریور، در گفتگو با شبکه خبری «سی‌ان‌بی‌سی» اعلام کرد که فشارها بر جمهوری اسلامی به بالاترین سطح رسیده است و از ۲۳ سپتامبر (اول مهر)، تمامی خطوط هواپیمایی ایران در سراسر جهان متوقف خواهند شد.
 بسنت با اشاره به اقدامات جدید وزارت خزانه‌داری از جمله در حوزه‌های هواپیمایی، دریایی، ارزهای دیجیتال و طلا، تصریح کرد که طبق این تصمیم، در صورت نشستن هواپیماهای ایرانی، ارائه سوخت، خدمات فرودگاهی و فروش بلیت به آن‌ها ممنوع خواهد شد و هر نهادی که این مقررات را نقض کند، از سیستم دلاری آمریکا خارج خواهد شد.
@@ -139,7 +362,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-21 17:41:16
 
-<img src="https://cdn4.telesco.pe/file/fgw25lXRag2YU56qNURME__qRy0pOYQznk0oznl-C0tvAsPNecYpN7zZgI5-u3BU5Ip8uPJhKBwjJ_8sGzummLbpBuJ1ggQmdWmMhN9kk0g6HlyrDGDxoulYW4vuuiBQv05RhtCFXU4bNa8iyw10x6tvYSr-aOdN3mPzj6ZsCX1AetNyYeBONYSXWGbHHTAEStqubErxeWb8zxw91H0S9KHev0WJo7enXSKcGMdd1_yLMvOv-_noa8IUtwRkML_-eMljQHMqsgmNUo5UiXSOZQcrIfrtGyL_J7DmnnHl30dl89jzAK2Mjs24xC_dWSwHQrxKlR8FpGxkQDBhOrIB0A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/S-RSIY-00btQLXpCxYel4My281NTDWgm2CYkt7n31dw_Qy3mqb2bb9zmz1IYQ2ANx0bghdsXpgO9uZtmXted7Q70h_S9H-ZOi-9UpuB2uaOB3ZMR8xexPlERvDNoGk2tTg6iZn4S8R6LBUkKn1snvjR7diI-nEXh6sSdr8AUadbvrVZ1Iohabmxb2J_i5Ygrbg3maC-LwKf6F6PZVe24UUt5kwD7UETpQWcHnKO2ey1VrYR7j6oa3jBzJUcqDxbVgLpAMax3IjRQ-0kgwfuGU1nlQEYZeE1BNvq6pskPWPVvsgDRgVeRJTjlmoAXpC64RV3BEesfh0kxRcD7dUMZ4w.jpg" width="400"><br>
 
 فرانسه اعلام کرد در واکنش به اقدام حکومت ایران در پلمب یک مرکز آموزش زبان فرانسه که به سفارت این کشور در تهران وابسته بود، سفیر ایران را احضار می‌کند و «اقدامات مقتضی» را انجام خواهد داد.
 پاسکال کُنفاورو، سخنگوی وزارت خارجه فرانسه، روز یکشنبه، ۲۹ شهریور، در بیانیه‌ای گفت: «این حمله جدید علیه حضور فرهنگی فرانسه در ایران، پس از تعرض به دو کارمند سفارت فرانسه در ژوئیه گذشته، غیرقابل توجیه و غیرقابل قبول است.»
@@ -159,7 +382,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-21 17:40:59
 
-<img src="https://cdn4.telesco.pe/file/BOX9nLLqw-hfORzmoJPkDRWdPzIP5WWK6YNdMtFg4-4FD0lMf-AGQJdiBHABYMJX8Ssu0KdyfYiyLB1npY_RtEzXxl4fJsxF-VwTtqcd-x5j62nWwhHkCpEedG0QmFpJlS-ROU9FSnD-GD-AtalW0bPaQjYcwt_WZOE2As38XRM3Li-x_Ayvs9rwdvSluYP-Jt3KVRyhNplwJSAvOqZd1sDUGdlPA_zidEnAJBRILeAAnKqFrzZzgVr_n6DuGamM2jODpp4iH4AHSpvn_PoUiA7YHcaetN-NwALEtFI-EQbpwMVtMXGAaPuTEUK2QZoa8E99L9xLo1cuB8hJ0RV6mQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/SYXt46f8v43WXrWV44jKjQ3GjcbZ68ZB6ufL-SWoc_K_JKIbwxeLIfAvvQ3_nbfvQPG0mNO9Ua_G20lLGjfWzyCOEFXwFlo9Wpr3hYvlBHDfRxMwVA7gXXEcL75cb5PmUc_2RjbFWEp0_Ep0Q5I3ez-Q03pOXgEnGv1oSAj_ciMsRT6VUnjOIZ6rjSyAbPgh81hF0vf5w4z9or28fOrYWlNtvWuk3fh46HRVQ_-JlZlfW0EemizWE7x6qn9SIzHfCHi-REex0y0k2i3adwR_HQsP9ICS8e1diE-4wDJ8-YMAti4UEoyMndrYVUcfOGP7ym9E1zt00KihrZCbSTHwGQ.jpg" width="400"><br>
 
 خبرگزاری «تسنیم»، وابسته به سپاه پاسداران، گزارش داده است سفر «محسن نقوی»، وزیر کشور پاکستان، به تهران ارتباطی با انتقال پیام یا میانجی‌گری میان جمهوری اسلامی و آمریکا ندارد؛ روایتی که با گزارش شبکه «الجزیره» درباره هدف این سفر متفاوت است.
 تسنیم امروز دوشنبه ۳۰شهریور۱۴۰۵ به نقل از یک منبع مطلع نوشته است که سفر محسن نقوی به ایران در چارچوب همکاری‌های دوجانبه تهران و اسلام‌آباد انجام می‌شود و ارتباطی با مسائل میان جمهوری اسلامی و آمریکا ندارد.
@@ -169,107 +392,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78468)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 17:40:38
-
-<img src="https://cdn4.telesco.pe/file/tG3-MEuoSt0Uqmx9ByCZOlEcmUUctyHsWHHYmpDjSzbf9Jg5sGLw-XoymM5UPlfhufJyXdjZ0_GJ3H8o-crSoUHv-KhhRkzqJ-wW3_asHqt5NQ93GeMnlsCdI2lpxdVTqUwLP5O2yk0Cv09oHJpcnXEILpi-9THSEe-NdIsJAAEu_IhkVEMacWyG9HO9JaCO6qu8hK_K-gxGuviwCmXxW7DUvT8XEsB1cAEqFrDwV3EyTiwgY-wGltqRIVHsV3eQdzZvX50lPc5EQtoo9Hhr7aen9jn9hp78SKBRCdGstm8uuhE5bj9tB-ozPJj6PGl3J3S80gGzUfyLxzIV0OkkVg.jpg" width="400"><br>
-
-طبق گزارش‌های منتشر شده، امروز دوشنبه ۳۰شهریور۱۴۰۵ یک نفتکش هنگام ورود به تنگه هرمز هدف یک پرتابه ناشناس قرار گرفت و دو نفر از خدمه آن زخمی شدند.
-«آسوشیتدپرس» به نقل از ارتش بریتانیا گزارش داده که این نفتکش هنگام ورود به تنگه هرمز هدف قرار گرفته و دو خدمه آن جراحات سطحی برداشته‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78467)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 17:39:43
-
-<img src="https://cdn4.telesco.pe/file/rtsoY7DQo9lvK92utWX2IbK0W2wR9iTQzqsjnOO2XqBDzGcoeqB-b4IvqyrjLoqpqsWuPIULE4vspsURkC2TRUav_YXhiq2VST6Ic3lI_Zzj7e37s-jbLAt8jEb7q74jNMjj8Uqq6DCmitu-Afv0ps6KxywouGnr6Gmx7fvTm-btVrtKySlRhK4t3JP-aNu_zPzXI-TTM1deNkBBfYfotCBpiwif5NIogIkbE-fW0mZMMGLIu0JP81rJjaE-Wty-h0ryuV0uwwWiniB6ZFyJuRPETwTyV91zQtChfyzhlBcFc593P7tX5dsqAcqfxHPUdFpYadje1YM9tYheDSIr6w.jpg" width="400"><br>
-
-‏
-🔴
-پدر و پسری که قربانی قتل‌های زنجیره‌ای شدند.
-🔸
-آقای حمید حاجی‌زاده و پسر ۹ ساله‌اش کارون، نیمه شب ۳۱ شهریور ۱۳۷۷ در منزل خود در گلدشت کرمان، به اتفاق با ضربات متعدد چاقو به طرز وحشیانه‌ای به قتل رسیدند. آقای حاجی پور با ۲۷ ضربه چاقو و فرزندش کارون با ۱۰ ضربه چاقو کشته شدند.
-🔸
-خانواده حاجی‌زاده در تمام این سال‌ها برای روشن شدن حقیقت و پاسخگو کردن عاملان قتل حمید و کارون تلاش کرده‌اند؛ پرونده‌ای که با گذشت نزدیک به سه دهه، همچنان بدون پاسخگویی و اجرای عدالت باقی مانده است.
-🔸
-سرگذشت کامل حمید حاجی‌زاده و کارون را در یادبود امید بخوانید.
-https://www.iranrights.org/fa/memorial/story/-7014/hamid-hajizadeh-pur-hajizadeh
-https://www.iranrights.org/fa/memorial/story/-7010/karun-hajizadeh-pur-hajizadeh
-@IranRights
-
-[View Post](https://t.me/VahidOnline/78463)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 08:45:45
-
-<img src="https://cdn4.telesco.pe/file/HnILE1hODrq8fnmeZ65VDlA52yaZGpW5t3lhBxjseUSOlpk39lnmtLu_OFWN0wkbcKEEw1LMDyBqFLMTM_NkVpJqXKUNpTpQrhXZewmbPRFbBfhp_X01i6wkq_SU2TQTRrKP3j8yzT7vk5xfQ5Kb0RXj64Ijv4hUFahlYDi-YCxUHP0LLYFKKQnEv17VCLvPO3i9mj92Z7MiXdBXGI1P3mt0vqVG-w9oukgWEPDmZ4ZMpQdUYFNDELL_aQSj8SPsmTdW7-fBc-rH25Myf7ZahMw-5CJzjif_J40prgAYTfeah5J2outGYf5jVBNcFIJ-TnmT38P5qL5Ijfx77Drgyw.jpg" width="400"><br>
-
-مرکز آمار ایران روز یکشنبه ۲۹ شهریور نرخ رشد اقتصادی سه ماه ابتدایی سال جاری را منفی ۱۰.۱ درصد اعلام کرد.
-بر اساس گزارش این مرکز که در خبرگزاری جمهوری اسلامی، ایرنا، بازتاب یافته است، تولید ناخالص داخلی کشور در این سه ماه ۲۱ هزار و ۷۹۵ میلیارد ریال بوده که نسبت به مدت مشابه سال قبل که ۲۴ هزار و ۲۵۵ میلیارد ریال بوده، بیش از ده درصد کمتر شده است.
-کاهش قابل توجه رشد اقتصادی ایران در حالی است که نرخ رشد تورم در کشور نیز به شدت افزایش یافته و بر اساس آخرین آمار اعلام‌شده به حدود ۸۰ درصد رسیده است.
-از سوی دیگر ارزش پول ملی ایران نیز در شهریور ماه به شکل مداوم کم شد و قیمت دلار آمریکا رکوردهای تازه‌ای را ثبت کرد و از سوی دیگر مقام‌های ارشد دولت نیز از محدودیت شدید در صادرات و واردت و کسری انرژی خبر داده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78462)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 01:32:39
-
-<img src="https://cdn4.telesco.pe/file/C-tFyXTfWqgrA76mapflhhvE-Tm0IJjA9kGB77gs3ZHn4mtrduHgMfp0u9GvyH51i-jld5zLGHGoOCb0XpmNpE341uMx-sC3ME67Tgvg-iPslZshOkY2QlE-PO-GBWbluCb-uGoDLvrORGNMT9j2ETfCFWCoJJXSrmELB-kdfuvjtE4iHx7m0s9Fa__zykBf-0aDEh93vvR_qwoN5jgjtCVkSB2P6XxAbLCZZkrNjAsUuD3g3iM4lygRWKoCSp_81mwnh4bfcY861huHNexb5Cd547XKoAOnmQhJQSIKu3jhd-14GS6yp54ZUea4CtT4IYKS3kqOl0V4U_nN6lA1hg.jpg" width="400"><br>
-
-سید موسی شبیری زنجانی، از مراجع تقلید شیعه، یک‌شنبه ۳۰ شهریور در قم درگذشت. خبرگزاری فارس گزارش داد او از روز جمعه به دلیل خون‌ریزی معده و عارضه ریوی در بیمارستان بستری بود.
-شبیری زنجانی متولد ۱۱ اسفند ۱۳۰۶ بود و در سال ۱۳۷۳، پس از درگذشت محمدعلی اراکی، از سوی جامعه مدرسین حوزه علمیه قم به عنوان یکی از هفت مرجع تقلید مورد تایید حکومت معرفی شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78461)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-20 18:00:46
-
-
-
-ویدیوی دریافتی: ۲۹ شهریور، ساعت ۱۷:۳۰، اربیل عراق
-هم‌زمان:
-رویترز به نقل از منابع امنیتی عراق اعلام کرد که سیستم پدافند هوایی، یک پهپاد را در نزدیکی فرودگاه بین‌المللی اربیل در اقلیم کردستان عراق رهگیری و سرنگون کرده است.
-@
-VahidOnLive
-آپدیت:
-نیروهای ضدتروریسم اقلیم کردستان می‌گویند که صدای انفجار شنیده شده در نزدیکی فرودگاه اربیل ناشی از «تمرینات نظامی و فعالیت‌های امنیتی» بود و «هیچ خطری ایجاد نمی‌کنند.»
-این فرودگاه میزبان نیروهای ائتلاف به رهبری آمریکا در اقلیم کردستان عراق است.
-رسانه‌های محلی کرد گزارش دادند که ائتلاف به رهبری آمریکا مهماتی را در این منطقه منهدم کرده است.
-یکی از خبرنگاران خبرگزاری فرانسه گزارش داد که شاهد برخاستن دودی خاکستری از نزدیکی فرودگاه بوده است.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78460)
 
 ---
 
