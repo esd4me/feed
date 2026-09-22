@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-22 00:56:38 </h5>
+<h5> 🟢 Updated at: 2026-09-22 03:54:54 </h5>
 </div>
 
 
@@ -199,7 +199,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-21 01:32:39
 
-<img src="https://cdn4.telesco.pe/file/BVzQ0Jweg_-xdJPkIsiQvneeviosP78TxmhkWc5ONXK1-VXsfbXOOaod5OK5M9rwWLLbCANr-xNsxqtyR7Plyv91ltMQfxl7PXzFUM8dKjtGOX9GmYFIYUx0N3KlBuX83LWiiPk4ObiXy69nojGosD-nfgVjyl_vzO-C0PqP9Yrser2q0meamkw7OGBKqNbdbm0k_FuF_iIqBYcWTO53hQT2fRBEE5Qy4k0cBnSeQQdOW7ETdVtPY7o5d5E1ZXkjTCzFp9U2l4CckgoXSj2O_Cb04VJqxVBptIXcMSFzH1o6rK9AJFLbUK-l4YH6lkMmdYxDbOrlrmvyq2d-2wK7eQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/C-tFyXTfWqgrA76mapflhhvE-Tm0IJjA9kGB77gs3ZHn4mtrduHgMfp0u9GvyH51i-jld5zLGHGoOCb0XpmNpE341uMx-sC3ME67Tgvg-iPslZshOkY2QlE-PO-GBWbluCb-uGoDLvrORGNMT9j2ETfCFWCoJJXSrmELB-kdfuvjtE4iHx7m0s9Fa__zykBf-0aDEh93vvR_qwoN5jgjtCVkSB2P6XxAbLCZZkrNjAsUuD3g3iM4lygRWKoCSp_81mwnh4bfcY861huHNexb5Cd547XKoAOnmQhJQSIKu3jhd-14GS6yp54ZUea4CtT4IYKS3kqOl0V4U_nN6lA1hg.jpg" width="400"><br>
 
 سید موسی شبیری زنجانی، از مراجع تقلید شیعه، یک‌شنبه ۳۰ شهریور در قم درگذشت. خبرگزاری فارس گزارش داد او از روز جمعه به دلیل خون‌ریزی معده و عارضه ریوی در بیمارستان بستری بود.
 شبیری زنجانی متولد ۱۱ اسفند ۱۳۰۶ بود و در سال ۱۳۷۳، پس از درگذشت محمدعلی اراکی، از سوی جامعه مدرسین حوزه علمیه قم به عنوان یکی از هفت مرجع تقلید مورد تایید حکومت معرفی شد.
