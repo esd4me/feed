@@ -3,8 +3,161 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-22 18:46:43 </h5>
+<h5> 🟢 Updated at: 2026-09-22 22:54:19 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-22 22:17:01
+
+
+
+ترجمه ماشین:
+خبرنگار:
+در دیدار با ایران، آیا آقای کوشنر و آقای ویتکاف شرکت داشتند؟ درست متوجه شده‌ام؟
+ترامپ:
+می‌خواستم همین را بگویم؛ آنها دیداری بسیار خوب و بسیار سازنده داشتند و دیدار دیگری هم برای آینده بسیار نزدیک برنامه‌ریزی شده است.
+استیو، اگر می‌خواهی... جرد، اگر می‌خواهی چیزی بگویید؛
+آنها دیدار بسیار سازنده‌ای داشتند.
+حدود یک ساعت پیش.
+خیلی خوب پیش رفت. یک ساعت پیش تمام شد. دیداری بود که سه ساعت طول کشید. یک ساعت پیش تمام شد.
+دیدار بسیار خوبی بود. یعنی باید بگویم، خیلی خوب بود. اصلاً نمی‌توانم تصور کنم چرا آنها نخواهند به توافق برسند.
+یا عظمت است؛ عظمت بالقوه... یا نابودی کامل. دو انتخاب وجود دارد. یعنی، در یک حالت نابودی کامل است و گزینه دیگر، عظمت بالقوه است.
+ایران می‌تواند کشور بزرگی باشد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78495)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 22:07:18
+
+<img src="https://cdn4.telesco.pe/file/MtwDfL0GqYSzhVNYdZW63keJU6AFNJPbWBwtWHWYSbS8M1jzl_wWgEWWqgz__pfxPbHOn__bDkpQG_5feKJXNiykLBMP3h-gmZw2mA6Zc5bqWu5ZtCnnWz8LCHyqACxO1wPEf7VSe-eXRcGUX5dITpev9QD1qjwQBxLv7jyEUQhvngY7GEQ_vuvBc4LiLHR-q4iaS5TSxJDNTpsv32yUNPZZ7CrOoqMeN2DIwySLo_nhaZRi7uCIbiF0LLGTg-RqZthePrREpp6JZ9lGq9s03S9hJ0nUrC-jSIJlIb-SgQKwGkQIWx3UI74jZXHkuLoOk5qZJ7ls9ovul95JMJLsjA.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز سه‌شنبه ۳۱ شهریور اعلام کرد استیو ویتکاف، فرستاده ویژه آمریکا، و جرد کوشنر، داماد او، ساعاتی پیش در حاشیه نشست مجمع عمومی سازمان ملل به مدت سه ساعت با اعضای هیات جمهوری اسلامی دیدار کرده‌اند.
+ترامپ که در دیدار با ولودیمیر زلنسکی، رییس‌جمهوری اوکراین، با خبرنگاران صحبت می‌کرد، گفت این دیدار «خیلی خوب پیش رفت» و افزود نشست دیگری میان دو طرف در «آینده بسیار نزدیک» برگزار خواهد شد.
+ترامپ درباره احتمال توافق با جمهوری اسلامی گفت: «نمی‌توانم تصور کنم چرا آنها نخواهند توافق کنند. انتخاب آنها یا رسیدن به عظمت بالقوه است یا نابودی.»
+استیو ویتکاف نیز در پاسخ به پرسشی درباره ارزیابی خود از این دیدار، ابتدا از اظهارنظر خودداری کرد اما سپس گفت: «در حال حاضر احساس خیلی خوبی دارم.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78494)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 20:49:36
+
+<img src="https://cdn1.telesco.pe/file/l1V0XGPDzrxEGPRlWUtfctFCMfdB0awQxCcmltUqdz_QW7tckS2xtjqhQ3gS6aIyGq5j0Dzu3SMOqQi94-cO04b473GX7CHBZDJ8C1Syi_pW9loyKf9iDlmYd9OdlDNUPXbNHzJo8g-gwgd87ZjTCd3wIbpEp1k69QD5L__LUZzOz5W1TSOW1qVnFBB9p-DTOL10o8FELHeqwjdSKpiXRZehngoSwv9LWu1MDAx8fonvd-IkIfd6-vNRpSoO05jptiEkjihBaWqVJospIHaqw6X1VBJvrXWbfNFC80jpEP_V2U2Zu-uK04iYUDvVhC9oxY0o7ULxMjJQKqTpbKyPVg.jpg" width="400"><br>
+
+پس از بیش از هفت ماه غیبت کامل از انظار عمومی و در حالی‌که هنوز هیچ صدا و تصویری از مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی منتشر نشده، روز سه‌شنبه ۳۱ شهریور، دست‌نوشته‌ای منتسب به او در رسانه‌های جمهوری اسلامی منتشر شد.
+بر اساس تاریخی که زیر امضای این نوشته وجود دارد، متن مورد نظر در دهم مردادماه، یعنی بیش از ۵۰ روز پیش نوشته شده است.
+در این متن که خطاب به مجید موسوی، فرمانده هوافضای سپاه پاسداران نوشته شده، نویسنده از او بابت گزارشی که محتوای آن مشخص نیست، قدردانی کرده و خواسته است که تلاش‌ها در زمینه زنجیره تامین ادامه یافته و گزارش آن مرتبا به او ارائه شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78493)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 20:43:51
+
+<img src="https://cdn4.telesco.pe/file/FNyU3A0aOYKxaSsbFQ0JtHrAcZdAZCrPIhGKZ56F9Lb-7CnZyQ6TAhvvefpZY_Wx_ZF0ZU4m5OprBCgcZtQHOIWdG5oMWYW_Bu5ER8y8wPfHVol8qUvfP7GB9YmjFUYwIewD_9051St3V8pdwdlOYKawgZ3OknZduGdMXZ69WZY6jPbfXXx57R86EjMT3Ig4urt6WByjdLHq4SblrKNTB7eYeMMBEre-Rd2jHiO3ElQPrlgeDTweabmS-z7Xk0DgLK4KMBe4FayZEdPDmAJWBT-k6-C8OcYCS-VarIBuBphb8BHxU33UBlqvyg5FkLYY2qZPZaAvIpjsGPNQCShPOA.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، در دیدار با اندی برنهام، نخست‌وزیر بریتانیا، در سازمان ملل در نیویورک گفت تهران و واشینگتن روز سه‌شنبه نیز در حال گفت‌وگو بوده‌اند و افزود: «فکر می‌کنم توافقی حاصل خواهد شد.»
+ترامپ گفت: «ما مانع دستیابی آنها به سلاح هسته‌ای شدیم. واقعا جلوی آنها را گرفتیم. آنها سلاح هسته‌ای نخواهند داشت و خواهیم دید چه اتفاقی می‌افتد.»
+برنهام نیز گفت در نخستین دیدار خود با ترامپ «ارتباط خوبی» با او برقرار کرده و دو طرف درباره خاورمیانه، جزایر فالکلند و مسائل تجاری گفت‌وگو کرده‌اند.
+او خطاب به ترامپ گفت بریتانیا آماده است نقش خود را در خاورمیانه ایفا کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78492)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 20:43:25
+
+<img src="https://cdn1.telesco.pe/file/Xg_QrysnZsAa6-lrk_WY2-AE8W6gmPd5mmYY-xSA2Fx4pEbDGgB2pt5I9cmRnetFitXXn-TvSP3Im4Hux93fQ_ST_yfLPTgtqSO1UKE0QPtbcmj9p9crWQK2iDoqoq3jWEYSklrlgJqdOeaobCVwS7kii_v-LhGfWYMIsx4yDwX_JAgmVp8iKE84EY_QtQEXQvZyonWDOIHo5etp8eku7H-E-r-ciUnb4D2fNjDjt8i_QK8O1YcpVEwRwg_qQR_GLUE7OfU0zzPsUeBIhoO-n5Uba64l6uMMZM4fWOdLbWmNUeu60cAfhqOy03ENV6Zn8be0KcroThwDJEJ97TEfeA.jpg" width="400"><br>
+
+شیخ تمیم بن حمد آل ثانی، امیر قطر، روز سه‌شنبه ۳۱ شهریور در جریان سخنرانی در مجمع عمومی سازمان ملل متحد، با اشاره به درگیری‌های جاری، وضعیت کنونی منطقه خلیج فارس را «یکی از خطرناک‌ترین مراحل» تاریخ این منطقه توصیف کرد.
+وی ابراز تاسف کرد که بسته شدن یک آبراه بین‌المللی حیاتی که نزدیک به یک‌چهارم تجارت انرژی جهان از آن می‌گذرد، ممکن شده و شریان‌های اقتصاد جهانی به ابزاری برای فشار و چانه‌زنی تبدیل شده‌اند؛ موضوعی که هزینه آن را مردم سراسر جهان می‌پردازند.
+امیر قطر با اشاره به اینکه این بحران قیمت مواد غذایی و دارو را افزایش داده و معیشت مردمان بی‌ارتباط با جنگ آمریکا و اسرائیل علیه جمهوری اسلامی ایران را تحت تاثیر قرار داده، تاکید کرد که دوحه همچنان بر حل دیپلماتیک این بحران پافشاری می‌کند.
+وی خواستار بازگشایی تنگه هرمز به روی کشتیرانی تجاری و بازگشت به میز مذاکره شد تا از گسترش جنگ جلوگیری شده و زمینه برای رسیدن به یک راهکار پایدار جهت تضمین امنیت و ثبات کل منطقه، از جمله ایران، فراهم گردد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78491)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 20:41:31
+
+<img src="https://cdn4.telesco.pe/file/g4be0LkMmtIImzoyMRzmEJIoNXBIvoCKPBGOi8PS3-a5irZMEAusqkRUL5hBrKCqimcufj8_Ktie3ekb5TSrypA-YdT0T6aqVKQoI9notEzaiIlRdINs5VbAEgWxqviI5BPbNLODw_y6omaVLTPFe3hhf3WlJGfdKDDhZtrsOm1ZRHQbLSaOs9ll3SeQ5ydF1GTDE1vrl6EWPWJQXOp3Ueya0d8d6Ps8hm3SpKlwVzR8zxzpmSB88G47o7zEwbMWZnlMSn6k-PLpn5UymQlzH-LIPSGoNuW7xjwvkz1nEMNtJsw-zFifSk4T9k-nYv1NpW1gVqHm4NpuI4E5BySDzQ.jpg" width="400"><br>
+
+پایگاه خبری اکسیوس، روز سه‌شنبه ۳۱ شهریور ۱۴۰۵، گزارش داد چند کشور عربی که میان آمریکا و جمهوری اسلامی میانجی‌گری می‌کنند، در حال رایزنی با دو طرف برای برگزاری یک دیدار در سطح بالا در حاشیه نشست مجمع عمومی سازمان ملل در نیویورک هستند.
+بر اساس گزارش اکسیوس ، کشورهای عربی تلاش می‌کنند از حضور مقام‌های ارشد دو طرف در نیویورک برای شکستن بن‌بست در جنگ میان آمریکا و جمهوری اسلامی استفاده کنند.
+مارکو روبیو، وزیر خارجه آمریکا، روز سه‌شنبه به شبکه ان‌بی‌سی گفت دونالد ترامپ برای دیدار با مقام‌های جمهوری اسلامی در نیویورک آمادگی دارد، زیرا به گفته او، گفت‌وگو با طرف‌های درگیر برای حل مشکلات اهمیت دارد. روبیو در عین حال گفت هنوز چنین دیداری برنامه‌ریزی نشده است.
+ترامپ قرار است روز سه‌شنبه با نمایندگان ۹ کشور عربی درباره جنگ دیدار و گفت‌وگو کند. منابع منطقه‌ای گفته‌اند شماری از این کشورها از ترامپ خواهند خواست از تشدید تنش با جمهوری اسلامی جلوگیری کند و برای دستیابی به توافق تلاش کند.
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، نیز صبح سه‌شنبه در نیویورک با محمد بن عبدالرحمن آل‌ثانی، نخست‌وزیر قطر، دیدار کرد. قطر یکی از میانجی‌های اصلی میان تهران و واشنگتن است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78490)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 19:43:33
+
+
+
+بخش‌های مربوط به ایران در سخنرانی ترامپ در سازمان ملل
+با تشخیص و ترجمه ماشین
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78489)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-22 18:46:52
+
+
+
+"جمعیت ایرانیان برای رد شدن از مرز زمینی رازی."
+شهرستان خوی- مرز زمینی بین ایران - ترکیه. میرن اونجا شهر "وان" فرودگاه
+.
+Sam1Kia
+پیام دریافتی: ابی در وان ترکیه کنسرت داره.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78488)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-22 17:36:36
@@ -268,7 +421,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-21 20:32:57
 
-<img src="https://cdn4.telesco.pe/file/ep5MOP1VtTBow0182xuQnec4MLjWJVBXAlW83_FhZrT2TPeK3drzX3iHq-_WGQlKWgmA5c-E-KgI9Yi4hq6YAagQbcSfCN_b8cmPttIN8vedg01xAlsEwn-gKWWzO4UPJbFKkYUL6GH3-LSnXNbPiIWhLrA2ZL0v-HBNXQzAwjm-GnpAP8OwZa8IcRuyR86Je-XWXY5nVP2_Hfu3TSn7B8zlpBr4SyhgOQpvrNzYJ0ohtZ3r1umkr2QkNmCPaKg1OGsDeYLiC_4rN7MT1dvB_Lf23PHOx4okRIgvDlPFSBeHOngwJZptC-8_-MJfGINNqEzKy-JzKbnUFtGmQGvMDg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/FugQOR_cRNzDadGTSUtkt8As9EOJ9oKGrxU78Ba8bkmm-QBrTVZFHA3TKapfWguMtLHZdK-KKk4o82zBjhC_jf0lEyTWoXqjgW0yK_7pvn2WJncryKalAbTY51P6PA_yRN1deuF3xatq7KOoS11-u0SJjvv7vhG6ltzC89-vGpdU9COrqV4Kb-llB8sBwgHY-3E2oO6pFdpsalk-02l_J2w8MvKn4p4PA_Q-v10BOoT_-wihqHK_htOqkI8zEeinCgqd_QsH6s7-OjIeo0WwieDQ6jwnrCbAwHiIJg6kVmzxXFK4uyGyTt5KnDCeQDEQjC1FwL97YftkPBfYUAUnTQ.jpg" width="400"><br>
 
 دو منبع دولتی عراق به خبرگزاری فرانسه گفتند بغداد در پی اعلام وزیر خزانه‌داری آمریکا مبنی بر اینکه شرکت‌های تحریم‌شده ایرانی ظرف دو روز در سراسر جهان «تعطیل خواهند شد»، پروازهای شرکت‌های هواپیمایی ایران را متوقف خواهد کرد.
 یکی از مقام‌های عراقی گفت: «عراق از بامداد سه‌شنبه، مطابق با تصمیم وزارت خزانه‌داری آمریکا، ممنوعیت فعالیت شرکت‌های هواپیمایی ایران را اجرا خواهد کرد.»
@@ -286,7 +439,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-21 20:20:19
 
-<img src="https://cdn4.telesco.pe/file/ZplnmrfayLE0NxKU9FRKiPKpwEBJvPoyrY29stUKSlDxr9ptxqV-hxGv9oNxihtRwRJVYDd07gx0IBeEANvT1G4_TVMKDz9YjBTkMF465ygklixehSJardzEHGn609PxWgE3bkNe8VbnbKrZXBcFFBA9WWGWgwgnnTOwH4ELJ5-pVUN3qEJzgIGTRt_8vcv01tzIF_K8n2qV6AzbGLMJZcHnTzA4dgYDBYEr-_cSIjNppwpTiVp9nPF8NbyNk9E6Gt_53kbS7MSKPTf21jCfBbTs9r7bTPCL-OY4DdXie34NcVtHgq-TJhxwwxJHCd0PJDGCRW65KJYHQ7hHtwwTkA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/GYfZQvIaDTQkLQLxa5WtbEjc1ge0qjLYM5jKR4HL14LmF-01P1Jh1GxMQmwqkH_ZX-YVksuQrUk-oagVcEhvtorUrYz8Qe7HK7J_iH6O3YPHkJQ3jt7SUlB8l8jCro4JE6Tb2LrE-8VRYskdAgXE-5YmxaC8o75EIIeCya5h8z7boYiKAe76otxjC6pvKr6mv2pbisvYOD6aWi3Pacuvoq4qiFGLupyXGqaG_CIOXoGFjRA6g6PrJTYENM9W14GjILc3uGeLBkSc9asnOtcgy8Mm-17DZogOL0ZvRSFlqDOTd4kIvdw-qY9ggBcMs1XbsorFMsTzh42ZHQs3ySJeBw.jpg" width="400"><br>
 
 سی‌بی‌اس نیوز، روز دوشنبه ۳۰ شهریور به نقل از منابع آگاه گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، آخر هفته گذشته حمله به شبه‌نظامیان حوثی وابسته به جمهوری اسلامی ایران در یمن را بررسی کرده بود، اما در نهایت اواخر روز شنبه از اقدام نظامی منصرف شد.
 بر اساس این گزارش، ترامپ ابتدا در جلسات چهارشنبه با مشاوران امنیت ملی متمایل به اقدام نکردن بود، اما پس از تماس تلفنی شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی، در روز پنجشنبه به پنتاگون دستور داد برای حملات هوایی آماده شود. با این حال، با اکراه کاخ سفید از گسترش میدان نبرد در مقطع کنونی، تصمیم بر آن شد که فعلا از اقدام نظامی آمریکا خودداری شود.
@@ -297,101 +450,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78476)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 20:19:30
-
-
-
-جی‌دی ونس، معاون رییس‌جمهوری آمریکا، درباره جنگ ایران گفت: به دلیل اینکه ایرانی‌ها در حال ایجاد رعب و وحشت در کشتیرانی بین‌المللی هستند، قیمت انرژی افزایش یافته است. ما هم، طبیعتا، تلاش خواهیم کرد در برابر این اقدامات مقابله کنیم.
-معاون ترامپ افزود: وقتی ما برای اطمینان از اینکه ایران سلاح هسته‌ای نخواهد داشت اقدام کردیم، آنها در واکنش، با ایجاد اختلال در کشتیرانی بین‌المللی، به این اقدام پاسخ دادند.
-ونس افزود: ما، البته، تا حد امکان تلاش خواهیم کرد از جریان آزاد تجارت محافظت کنیم. این همان کاری است که نیروی دریایی ایالات متحده انجام داده است.
-معاون ریاست‌جمهوری ترامپ گفت: ما همچنان شاهد عبور حجم قابل‌توجهی از نفت و گاز از تنگه هرمز هستیم، با وجود اینکه ایرانی‌ها هر روز و به‌طور مداوم برای کشتی‌ها ایجاد مزاحمت می‌کنند.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78475)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 18:58:34
-
-<img src="https://cdn1.telesco.pe/file/q8InXW8ovWyQM2YcIp_lW3u9gBFOKnCoEppqFP3JI0QRHAv6jMcohutgFJiUNi-mg-NKH2FSRVKVmuFISwV00M9XmXKZMKsOPXFciaalu9Fjw8PQM34WFieIoNqeEAFjD6o4HRrc7QfCif9ziN2e3qSx-WZKsPlQpBh28HUs-YHaGx8f3-TIiFpr9gsnzx1TlCiDUmlJrVbTt2ebuKP2s3JB2Jb9T69h9NxyjVuiSqAotG38UTZlqVJIMCdI2luTSRNfFQCRZuE6Oi3jgX78XcjQI6YwSv4NDD77sbwwaiJmEDe3tdeMnutY5O7xzfUj5uCzQSte3DN7X4YIXDRvUA.jpg" width="400"><br>
-
-هواگردی که توسط ارتش جمهوری اسلامی ایران در نزدیکی تنگه هرمز ساقط شده بود یک موشک فریب آمریکایی ADM-160 بوده است که به اشتباه پهپاد اوربیتر تصور شده بود.
-آمریکا با استفاده از موشک MALD به دنبال شناسایی موقعیت سامانه های پدافندی ایرانی است.
-mhmiranusa
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78471)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 17:41:36
-
-<img src="https://cdn1.telesco.pe/file/R2hFwJPMQ6OMpvCUrUfFuGnWDc9r_LAxY-yJSAPcAFTnrDnnX1kRsfHM_SL6WXSMlz5XUJqiEauLxxS4b8G90ouaonq_MB3KFjLB3MEeaTJQ22k8FoIeNOCRFiME1kW-3TOyQGqR6yz0kjavljBS1a5DtIazGxWqDAziqMLPvCot5-LMkbig9tSs26WFt-4gfTacgVc-HoKgzcAcMr9ML3um_wcn18RT5XVGJI9TId26SUa1hh5_Z1i5N-zYKbbAO_whwMpftMM-451eu2kI1-n4G4ckAn0FLvhmeObAgb7MhP4WY6aEo9tAk8AyZHbnZDMI7ac5UEoXlmB-dkg2lg.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری ایالات متحده، روز دوشنبه ۳۰ شهریور، در گفتگو با شبکه خبری «سی‌ان‌بی‌سی» اعلام کرد که فشارها بر جمهوری اسلامی به بالاترین سطح رسیده است و از ۲۳ سپتامبر (اول مهر)، تمامی خطوط هواپیمایی ایران در سراسر جهان متوقف خواهند شد.
-بسنت با اشاره به اقدامات جدید وزارت خزانه‌داری از جمله در حوزه‌های هواپیمایی، دریایی، ارزهای دیجیتال و طلا، تصریح کرد که طبق این تصمیم، در صورت نشستن هواپیماهای ایرانی، ارائه سوخت، خدمات فرودگاهی و فروش بلیت به آن‌ها ممنوع خواهد شد و هر نهادی که این مقررات را نقض کند، از سیستم دلاری آمریکا خارج خواهد شد.
-او همچنین از برخورد با حامیان مالی و «تسهیل‌گران» منطقه‌ای و بین‌المللی این رژیم خبر داد و افزود که سه بانک از جمله دومین بانک بزرگ مصر (شعبه دبی)، سی‌امین بانک بزرگ ترکیه و دومین بانک بزرگ روسیه به دلیل انتقال میلیاردها دلار به نفع حکومت ایران تحریم شده و فعالیتشان متوقف خواهد شد.
-وزیر خزانه‌داری آمریکا تاکید کرد که دولت این کشور با تمام توان در حال بستن منافذ اقتصادی حامی تهران است.
-@
-VahidOOnLine
-وزیر خزانه‌داری آمریکا همچنین گفت مقام‌های چین در گفت‌وگوها درباره کارزار فشار اقتصادی علیه جمهوری اسلامی حضور فعال داشته‌اند.
-به گفته او، آمریکا مذاکرات مثبتی با مقام‌های مالی چین درباره رعایت تحریم‌ها علیه جمهوری اسلامی داشته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78470)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 17:41:16
-
-<img src="https://cdn4.telesco.pe/file/S-RSIY-00btQLXpCxYel4My281NTDWgm2CYkt7n31dw_Qy3mqb2bb9zmz1IYQ2ANx0bghdsXpgO9uZtmXted7Q70h_S9H-ZOi-9UpuB2uaOB3ZMR8xexPlERvDNoGk2tTg6iZn4S8R6LBUkKn1snvjR7diI-nEXh6sSdr8AUadbvrVZ1Iohabmxb2J_i5Ygrbg3maC-LwKf6F6PZVe24UUt5kwD7UETpQWcHnKO2ey1VrYR7j6oa3jBzJUcqDxbVgLpAMax3IjRQ-0kgwfuGU1nlQEYZeE1BNvq6pskPWPVvsgDRgVeRJTjlmoAXpC64RV3BEesfh0kxRcD7dUMZ4w.jpg" width="400"><br>
-
-فرانسه اعلام کرد در واکنش به اقدام حکومت ایران در پلمب یک مرکز آموزش زبان فرانسه که به سفارت این کشور در تهران وابسته بود، سفیر ایران را احضار می‌کند و «اقدامات مقتضی» را انجام خواهد داد.
-پاسکال کُنفاورو، سخنگوی وزارت خارجه فرانسه، روز یکشنبه، ۲۹ شهریور، در بیانیه‌ای گفت: «این حمله جدید علیه حضور فرهنگی فرانسه در ایران، پس از تعرض به دو کارمند سفارت فرانسه در ژوئیه گذشته، غیرقابل توجیه و غیرقابل قبول است.»
-خبرگزاری نیمه‌رسمی تسنیم روز یکشنبه، ۲۹ شهریور گزارش داد که مقام‌های ایرانی این مرکز آموزش زبان فرانسه را بر اساس دستور قضایی دادستانی تهران تعطیل کرده‌اند.
-مقام‌های ایرانی مدعی هستند که این مرکز، با وجود هشدارهای مکرر برای دریافت مجوز، سال‌ها بدون مجوز و تحت پوشش آموزش زبان‌های خارجی فعالیت می‌کرد.
-روابط میان دو کشور طی سال‌های گذشته بر سر برنامه هسته‌ای ایران و بازداشت چند شهروند فرانسوی توسط جمهوری اسلامی پرتنش بوده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78469)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-21 17:40:59
-
-<img src="https://cdn4.telesco.pe/file/SYXt46f8v43WXrWV44jKjQ3GjcbZ68ZB6ufL-SWoc_K_JKIbwxeLIfAvvQ3_nbfvQPG0mNO9Ua_G20lLGjfWzyCOEFXwFlo9Wpr3hYvlBHDfRxMwVA7gXXEcL75cb5PmUc_2RjbFWEp0_Ep0Q5I3ez-Q03pOXgEnGv1oSAj_ciMsRT6VUnjOIZ6rjSyAbPgh81hF0vf5w4z9or28fOrYWlNtvWuk3fh46HRVQ_-JlZlfW0EemizWE7x6qn9SIzHfCHi-REex0y0k2i3adwR_HQsP9ICS8e1diE-4wDJ8-YMAti4UEoyMndrYVUcfOGP7ym9E1zt00KihrZCbSTHwGQ.jpg" width="400"><br>
-
-خبرگزاری «تسنیم»، وابسته به سپاه پاسداران، گزارش داده است سفر «محسن نقوی»، وزیر کشور پاکستان، به تهران ارتباطی با انتقال پیام یا میانجی‌گری میان جمهوری اسلامی و آمریکا ندارد؛ روایتی که با گزارش شبکه «الجزیره» درباره هدف این سفر متفاوت است.
-تسنیم امروز دوشنبه ۳۰شهریور۱۴۰۵ به نقل از یک منبع مطلع نوشته است که سفر محسن نقوی به ایران در چارچوب همکاری‌های دوجانبه تهران و اسلام‌آباد انجام می‌شود و ارتباطی با مسائل میان جمهوری اسلامی و آمریکا ندارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78468)
 
 ---
 
