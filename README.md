@@ -3,8 +3,116 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-23 16:38:02 </h5>
+<h5> 🟢 Updated at: 2026-09-23 21:34:21 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-23 20:02:09
+
+
+
+مارکو روبیو، وزیر خارجه آمریکا، روز چهارشنبه، اول مهرماه، در حاشیه نشست‌های مجمع عمومی سازمان ملل متحد در نیویورک، از ادامه رایزنی‌ها با میانجی‌گران درباره ایران خبر داد و جلوگیری از دستیابی تهران به سلاح هسته‌ای را مهم‌ترین موضوع در هرگونه توافق احتمالی دانست.
+به گفته روبیو، دونالد ترامپ همچنان برای دستیابی به توافق با ایران آمادگی دارد، اما چنین توافقی نیازمند مذاکرات دشوار و فشرده با مشارکت میانجی‌گران خواهد بود.
+وزیر خارجه آمریکا همچنین با اشاره به تنگه هرمز، از ادامه عبور نفتکش‌ها از مسیر جنوبی خبر داد و حفاظت از کشتی‌رانی و باز نگه داشتن تنگه را از ماموریت‌های ارتش آمریکا عنوان کرد.
+روبیو درباره جزئیات رایزنی‌های دیپلماتیک توضیح بیشتری نداد و تاکید کرد: «اگر قرار باشد توافقی حاصل شود، این اتفاق در یک نشست خبری رخ نخواهد داد.»
+@
+VahidOOnLine
+روبیو در واکنش به سخنان مسعود پزشکیان که ایالات متحده را به نقض قوانین بین‌المللی متهم کرده بود، به شدت از تهران انتقاد کرد.
+روبیو با اشاره به کشته شدن هزاران نفر از مردم در تظاهرات، حمایت مالی از گروه‌های تروریستی برای حمله به همسایگان و تاسیسات انرژی، و سرپیچی از قطعنامه‌های هسته‌ای تاکید کرد که جمهوری اسلامی ایران بزرگ‌ترین ناقض نظام بین‌المللی در جهان است.
+او تصریح کرد: «نمی‌دانم ایران چه حقی دارد که به کسی درباره حقوق بشر یا نظام بین‌المللی موعظه کند، در حالی که خود به طور مداوم آن را نقض می‌کند.» وزیر خارجه آمریکا افزود که حکومت ایران با قتل‌عام مردم خود، نقض حاکمیت کشورهای همسایه و بی‌اعتنایی به قوانین جامعه جهانی، صلاحیت اظهارنظر در این زمینه را ندارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78503)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-23 19:19:55
+
+
+
+محسن رضایی: اگر کشورهای همسایه پروازهایمان را ممنوع کنند، پروازهای آنها نیز متوقف خواهد شد
+محسن رضایی، دبیر شورای‌عالی امنیت ملی جمهوری اسلامی، کشورهای همسایه ایران را در واکنش به محدودیت‌های اعمال‌شده علیه پروازهای ایرانی تهدید کرد و گفت اگر این کشورها پروازهای ایران را ممنوع کنند و وارد همکاری با آمریکا شوند، پروازهای فرودگاه‌های آنها نیز متوقف خواهد شد.
+رضایی گفت: «اگر کنار آمریکا باشید، ما شما را تماشا نخواهیم کرد» و هشدار داد در صورت ممنوعیت پروازهای ایران و همکاری کشورهای همسایه با آمریکا، «فرودگاه‌هایتان پرواز نخواهد داشت».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78502)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-23 18:28:37
+
+
+
+پزشکیان: از مذاکره برای صلح نمی‌گریزیم
+مسعود پزشکیان، رییس دولت در جمهوری اسلامی، چهارشنبه اول مهر در سخنرانی خود در هشتاد و یکمین مجمع عمومی سازمان ملل متحد گفت متن سخنرانی‌اش را از پیش آماده کرده بود، اما پس از سخنان دونالد ترامپ، رییس‌جمهوری آمریکا، و «تروریست» خواندن جمهوری اسلامی، تصمیم گرفت عکس علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، و دانش‌آموزان مدرسه میناب را به حاضران نشان دهد.
+پزشکیان همچنین گفت: «هر کسی را که می‌خواهند تخریب کنند، نام تروریست بر آن می‌گذارند. ۲۰۰ سال است که ایران به کشوری حمله نکرده و فقط از خود دفاع کرده، اما ما را عامل ناامنی می‌خوانند.»
+او در بخش دیگری از سخنانش گفت: «آمریکا و اسرائیل با آخرین تجهیزات به ما حمله کردند و ما با قدرت دفاع کردیم.»
+پزشکیان گفت آمریکا و اسرائیل جنگ را به ایران تحمیل کردند، اما جمهوری اسلامی «با قدرت» دفاع کرد و در عین حال «برای صلح از مذاکره نمی‌گریزد».
+او درباره برنامه هسته‌ای جمهوری اسلامی گفت: «برای دفاع از کشورمان از هیچ‌کسی اجازه نمی‌گیریم. ایران نمی‌پذیرد که دانش هسته‌ای در انحصار چند کشور باشد؛ سلاح هسته‌ای را عامل امنیت نمی‌دانیم.»
+پزشکیان در ادامه درباره تنگه هرمز گفت: «نمی‌شود همه از تنگه هرمز بهره ببرند و راه کشتیرانی بر ایران بسته شود. استقرار ناوگان‌های متخاصم و گسترش جنگ باعث امنیت کشتیرانی نمی‌شود.»
+او درباره شرایط منطقه نیز گفت: «در منطقه‌ای زندگی می‌کنیم که جنگ مرز نمی‌شناسد و بحران یک کشور به همسایگان سرایت می‌کند. از این رو همسایگان خود را قوی می‌دانیم.»
+@
+VahidOnLive
+پزشکیان: یا امنیت را با هم می‌سازیم یا ناامنی را با هم تحمل می‌کنیم
+مسعود پزشکیان در مجمع عمومی سازمان ملل گفت: «صلحی که برای همه نباشد، صلح نیست. یا امنیت را با هم خواهیم ساخت یا ناامنی را با یکدیگر تحمل خواهیم کرد. ما آماده گفت‌وگو هستیم، اما زبان زور را نخواهیم پذیرفت.»
+او افزود: «سخنان ترامپ نزد افکار عمومی جهان و اندیشمندان، نشانه بارزی از خوی قلدری و منطق زور و مغایر با منشور صریح سازمان ملل است.»
+پزشکیان گفت: «ترامپ بداند که این سخنان ملت ما را منسجم‌تر می‌کند و باید بداند که ملت ما در برابر زور سر خم نکرده و متجاوزان را پشیمان خواهد کرد.»
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78501)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-23 18:26:10
+
+<img src="https://cdn1.telesco.pe/file/NgtwKCzxgmnUsT2pA3ZB9_iO5PhBz62YcT7sa9CmP9eQTKMPI6xXxdArQ4BGZqzcWv8pJkaDCs5IIO2MeVd_b7Bw4A96amLhkHc2-MLAKrWdYsDG6UH1TgtdTl7Dh867w0xt7L7Jju6nQKVvBq7dUhqg9egNvZdQRLYhVWo2F3D1r3IifKtrKfiYqsFrUe6SzK-Ca9LV0SBp4WT9Pubg2-hfpJc6QhnL4elRyVfEC7eB8jidFOYk__K-hKqDQnn8xkPS252UMp6BpuoRbVO0GAq0ChiRZ7RbvWs0A_PtmiiNgXjuXQAIq1-oeR7fmYOqa23idR3VWb8VM9rdB-ts9w.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا اعلام کرد یک کشتی باری چهارشنبه یکم مهر در تنگه هرمز با یک پرتابه ناشناس هدف قرار گرفته و پس از آن دچار آتش‌سوزی شده است.
+بر اساس این گزارش، همه خدمه کشتی تخلیه شده‌اند و در این حادثه دو نفر آسیب دیده‌اند.
+@
+VahidOOnLine
+کشتی که امروز در تنگه هرمز، هدف حمله سپاه پاسداران قرار گرفت یک کشتی فله بر هندی با نام Cape Dao بوده است. در نتیجه حمله، یک نفر کشته و یک نفر زخمی شده است و کشتی تخلیه شده و در حال سوختن است.
+mhmiranusa
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78499)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-23 18:25:25
+
+<img src="https://cdn4.telesco.pe/file/rO8EB3xbWk-LRrYRHqbNti7pIpZILxUXAx1E6IpE87sUv8AvwW6QsCR_HXwx8Di2F58inBK_wNuqo_um52lx-PFWrke3oa3J3QI2IqwIDFTIUAtwqwxyOFkQi1oNq1tmejzsH6yiPFsoJoZC-5astd2BlH1R_a-uPrgkIFw5CpBXOnLvYsnd6jTxnRKovp-Z8J3vNZFHzPFF8hjKIeGm2I5JMBTW-tjMlBBlpo3WnRuJ4zCu-u84PHCQhXymp87jwd_4Phsy1WAM6dgy_D2QgYFtvYC578o-4INbVK0uOv_gR3VveieaBpaCUsu0mHFK_haUVRXB4p85rKY43-d-Sw.jpg" width="400"><br>
+
+در پی تشدید فشار و آزار شهروندان بهایی در ایران، یک شهروند بهایی به نام رومینا گلی، از سوی دادگاه انقلاب ساری به زندان و محرومیت از حقوق اجتماعی محکوم شد.
+بر اساس گزارش رسیده، شعبه دوم دادگاه انقلاب ساری، رومینا گلی را بابت اتهام «فعالیت آموزشی یا تبلیغی انحرافی مغایر یا مخل به شرع اسلام»، موضوع ماده ۵۰۰ مکرر قانون مجازات اسلامی، به پنج سال حبس و ۱۰ سال محرومیت از حقوق اجتماعی محکوم کرده است.
+این شهروند بهایی همچنین بابت اتهام «تبلیغ علیه نظام»، طبق ماده ۵۰۰ قانون مجازات اسلامی، به هفت ماه و ۱۶ روز حبس محکوم شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78498)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-23 00:01:10
@@ -99,7 +207,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-22 20:49:36
 
-<img src="https://cdn1.telesco.pe/file/l1V0XGPDzrxEGPRlWUtfctFCMfdB0awQxCcmltUqdz_QW7tckS2xtjqhQ3gS6aIyGq5j0Dzu3SMOqQi94-cO04b473GX7CHBZDJ8C1Syi_pW9loyKf9iDlmYd9OdlDNUPXbNHzJo8g-gwgd87ZjTCd3wIbpEp1k69QD5L__LUZzOz5W1TSOW1qVnFBB9p-DTOL10o8FELHeqwjdSKpiXRZehngoSwv9LWu1MDAx8fonvd-IkIfd6-vNRpSoO05jptiEkjihBaWqVJospIHaqw6X1VBJvrXWbfNFC80jpEP_V2U2Zu-uK04iYUDvVhC9oxY0o7ULxMjJQKqTpbKyPVg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZEx2lZFq4Q2Kj-c03hP8ZizE9w2FfPIgHcHDgLCHOwCncTSt9Bi8sz3nxawRon7vUk97kvVeAzt66vkDNvNOtYp-MjvFm67M6c_qt2Z90qp0_QvaJU2uyg79PcXtSono_kUzfWXBtlOpn2OkDJGPiWXNWGKby5n7OSN7b8fRxnV9KXheDO6XnNqYXP5OdPaqVlWDIMTjIi5Wdl5Kg5vLqV1eyR5hdYAsp1F4F52obsa9nfX4CZHSOdr-4WE0lL8dmqqQhVGrOQHJqxmxmvJeg5PhX7x6gHjHQnfbBgODtIVypP2s76Nn0TVThueNcDH5L96vhZbwYF4okbSAyP_9ZQ.jpg" width="400"><br>
 
 پس از بیش از هفت ماه غیبت کامل از انظار عمومی و در حالی‌که هنوز هیچ صدا و تصویری از مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی منتشر نشده، روز سه‌شنبه ۳۱ شهریور، دست‌نوشته‌ای منتسب به او در رسانه‌های جمهوری اسلامی منتشر شد.
 بر اساس تاریخی که زیر امضای این نوشته وجود دارد، متن مورد نظر در دهم مردادماه، یعنی بیش از ۵۰ روز پیش نوشته شده است.
@@ -117,7 +225,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-22 20:43:51
 
-<img src="https://cdn4.telesco.pe/file/FNyU3A0aOYKxaSsbFQ0JtHrAcZdAZCrPIhGKZ56F9Lb-7CnZyQ6TAhvvefpZY_Wx_ZF0ZU4m5OprBCgcZtQHOIWdG5oMWYW_Bu5ER8y8wPfHVol8qUvfP7GB9YmjFUYwIewD_9051St3V8pdwdlOYKawgZ3OknZduGdMXZ69WZY6jPbfXXx57R86EjMT3Ig4urt6WByjdLHq4SblrKNTB7eYeMMBEre-Rd2jHiO3ElQPrlgeDTweabmS-z7Xk0DgLK4KMBe4FayZEdPDmAJWBT-k6-C8OcYCS-VarIBuBphb8BHxU33UBlqvyg5FkLYY2qZPZaAvIpjsGPNQCShPOA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/nSgz_QoImxJKames634Zh2WsH2TOCGxfsy9zX8wbR3aFKJTd8YpJzaFIIzD14i-x_SCzzMSX3_JKPELEp0-S0JOcVCxmc5IPlAXOGUe4_lDhXOXkORu-GYZSvXsITbgxMrsRGoPgcjGtdnrbbBDNFIclQ0C0z54EBiUS7KjizAYpjc57K4ofXpdBISNmMJn5eJEYla-AyXXpwWkN443dhYKepxlsxU54YWHbUdLLswHsW7zqipLomVmJpVhTATd83M_G_77tmelpT6JoIZZTllC5AQXD3-T66BoJNhyHy685QlyqEWApM0Khi12i7D2HULNEvfT9s3dWrjdX8PPicQ.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، در دیدار با اندی برنهام، نخست‌وزیر بریتانیا، در سازمان ملل در نیویورک گفت تهران و واشینگتن روز سه‌شنبه نیز در حال گفت‌وگو بوده‌اند و افزود: «فکر می‌کنم توافقی حاصل خواهد شد.»
 ترامپ گفت: «ما مانع دستیابی آنها به سلاح هسته‌ای شدیم. واقعا جلوی آنها را گرفتیم. آنها سلاح هسته‌ای نخواهند داشت و خواهیم دید چه اتفاقی می‌افتد.»
@@ -136,7 +244,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-22 20:43:25
 
-<img src="https://cdn1.telesco.pe/file/Xg_QrysnZsAa6-lrk_WY2-AE8W6gmPd5mmYY-xSA2Fx4pEbDGgB2pt5I9cmRnetFitXXn-TvSP3Im4Hux93fQ_ST_yfLPTgtqSO1UKE0QPtbcmj9p9crWQK2iDoqoq3jWEYSklrlgJqdOeaobCVwS7kii_v-LhGfWYMIsx4yDwX_JAgmVp8iKE84EY_QtQEXQvZyonWDOIHo5etp8eku7H-E-r-ciUnb4D2fNjDjt8i_QK8O1YcpVEwRwg_qQR_GLUE7OfU0zzPsUeBIhoO-n5Uba64l6uMMZM4fWOdLbWmNUeu60cAfhqOy03ENV6Zn8be0KcroThwDJEJ97TEfeA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jgHcCvU0_-A6eTupWx81j-FxYFDv4pCUsgIi-tWGXIz_xHOBDPdWDcIEl-MfejaU87PZNIaOkEG72h4UTPkWZZSUugjG9_Wv8BEqFv6wHrIghyBvIs5uDpelySEcnyMIPxKmefRvdNHussTbTvH5ekxFfUl3QRjzgAEPcebSDdRfaSvCELo2g2YMHP2Y45a3DWFfQ7VkOJMAgYDby3G4KBVzbswNGXijCc_xCKiR8ytH60lnyuDxQNLeoKMfFhb0r9Nm932_fXFatki-cDn0Eygv5SHWadymIamZJ2-Jih_kLfmj6EIOlZAmzOkkm3HqIBlQFE69w3-bskAOLKKVxA.jpg" width="400"><br>
 
 شیخ تمیم بن حمد آل ثانی، امیر قطر، روز سه‌شنبه ۳۱ شهریور در جریان سخنرانی در مجمع عمومی سازمان ملل متحد، با اشاره به درگیری‌های جاری، وضعیت کنونی منطقه خلیج فارس را «یکی از خطرناک‌ترین مراحل» تاریخ این منطقه توصیف کرد.
 وی ابراز تاسف کرد که بسته شدن یک آبراه بین‌المللی حیاتی که نزدیک به یک‌چهارم تجارت انرژی جهان از آن می‌گذرد، ممکن شده و شریان‌های اقتصاد جهانی به ابزاری برای فشار و چانه‌زنی تبدیل شده‌اند؛ موضوعی که هزینه آن را مردم سراسر جهان می‌پردازند.
@@ -155,7 +263,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-22 20:41:31
 
-<img src="https://cdn4.telesco.pe/file/g4be0LkMmtIImzoyMRzmEJIoNXBIvoCKPBGOi8PS3-a5irZMEAusqkRUL5hBrKCqimcufj8_Ktie3ekb5TSrypA-YdT0T6aqVKQoI9notEzaiIlRdINs5VbAEgWxqviI5BPbNLODw_y6omaVLTPFe3hhf3WlJGfdKDDhZtrsOm1ZRHQbLSaOs9ll3SeQ5ydF1GTDE1vrl6EWPWJQXOp3Ueya0d8d6Ps8hm3SpKlwVzR8zxzpmSB88G47o7zEwbMWZnlMSn6k-PLpn5UymQlzH-LIPSGoNuW7xjwvkz1nEMNtJsw-zFifSk4T9k-nYv1NpW1gVqHm4NpuI4E5BySDzQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/YMP392pneW__5NjS3Rx6T1bsVge9u8VWoJm4qJ78n4FmDJX9W1-MDDaCBW5iquvyeTZYI_dfreVjwuEg2vBIvyngyml8fzb_sY3Ugn5IId4A2ECgQTEaIXgyCWpB1e_4SQ9bVAaxqKP__G3U5sLfXDlLVNTi8po3HqR5FWOamfHXIftokfEnkIGa8U4MZ4f19W8bAaKNlNqynjxHb0xu1UWyvaexwEl2VgpswXWARk8nR1TkUAlX3PLlLzbsTsYWpsVq2iZNq1wJZPxRUU3fyrLvO1L4g0Lnh2JDq9MHjoWqCOw_-cenhiOV7LwN5rDjWNjE_0p4ITv44vK50SIwUA.jpg" width="400"><br>
 
 پایگاه خبری اکسیوس، روز سه‌شنبه ۳۱ شهریور ۱۴۰۵، گزارش داد چند کشور عربی که میان آمریکا و جمهوری اسلامی میانجی‌گری می‌کنند، در حال رایزنی با دو طرف برای برگزاری یک دیدار در سطح بالا در حاشیه نشست مجمع عمومی سازمان ملل در نیویورک هستند.
 بر اساس گزارش اکسیوس ، کشورهای عربی تلاش می‌کنند از حضور مقام‌های ارشد دو طرف در نیویورک برای شکستن بن‌بست در جنگ میان آمریکا و جمهوری اسلامی استفاده کنند.
@@ -292,7 +400,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-22 17:33:24
 
-<img src="https://cdn4.telesco.pe/file/kXoz-I-n6A2Ubnsaz6Z9rj192EFA97KZCoy-EsmXro9cG3ATvKxWAb_q_OFwvbymAZhF-Nf7cs_8eUH_GdUXkIXaPQPG8Ly8vfGtmQqOy0lrfrG8jEyPeb136E1R0qVBGiwi0WAETRDL_PU_Tdv3gP5jJvLOF_8q-7WCUgmgBiVxo8FXuBYALvAsuUKq0YCOy_RlXBXoD_zJQRDmtEsz-OozFMlOAz9Hb5NVcIZ2oECBHNBX0NSECs9pGnhymeyhXUlgxQNEf_mjeCN3K5X8IDyuNX61njtxH_nkciEh3uaYH8Ai-Lju5r5qHraOaT9HGF5qi43Ft--Pmp6uI_PAJQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/QZG6cAhMAanMcBHJ2a1KHPcaRLUJvrmD4o-js8sj7F1QPrtv-16su2fwGHNEn5GiratqEXUhFSCZzSoqdHJR7n9nOQHG0hYTIRDtN7qHdyiDhq4HSDCyvxgtxDijcDw94HrUpQEQ8NnlTUioJ_EuCw3OAlB6nf_Rbhd6OwFYDTgmLqWzghzUieFf14IahsyWKRLESKhTD58aYfb8qB2Lz6LmkYI0HHnDHIqmRFRzCzxi9WB2e2C0Vu8f-ctuQ3MN89RHXRS0J_Y01PZgV5KnSB1c-pj-H4tSqmsIfLtStDc6VIExA2PhVhFNPLmImW2QUkRsDgt2qO1GpQFhyxgERg.jpg" width="400"><br>
 
 یک مقام ارشد جمهوری اسلامی گفته است تهران پیشنهاد کرده در صورت کاهش فشار نظامی آمریکا و برداشتن گام‌های اولیه برای پایان محاصره بنادر ایران، تنگه هرمز را ظرف هفت روز بازگشایی کند و به مذاکرات با واشنگتن بازگردد.
 خبرگزاری «کیودو» روز سه‌شنبه۳۱شهریور۱۴۰۵ به نقل از این مقام، که نامش اعلام نشده، گزارش داد این پیشنهاد از طریق میانجی‌ها به دولت آمریکا منتقل شده و بخشی از تلاش تازه تهران برای احیای مذاکرات با واشنگتن است.
@@ -316,7 +424,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-22 17:31:12
 
-<img src="https://cdn4.telesco.pe/file/ct5F-qoUrNHcffE0CCRy3_fBsixXT2I2XKlegD59d-AM3Mg5AoxaF5DCap7-NMnAaHzeAqKLQpYrNWTe6QzBIkw0oVROYPiNDDO5wXbhoOw1J4qsKiJSxdGMah8aM5DJhoniiDR_CZRYeW4NfWFMajdfonQW7iRY0_SrlOcwl_l7lPztFxcKE6kqbmtbWO9Jl46lgJABNbnet-MS1hP2XrGVNqkr2rTYMqShLHKmUPvKMBGJp7ZUXelEWa1pVlLPGhBkAvh_aRvEro31Xo7KyoVr26WLzokgWwdHxqjCVczg5QR5K4dxte1whpFP1LZnNYBJ-rDxnhwW0h7a43Psdw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/UJOABMFDpdkxyUiTyLTFbX9TucQqXMQvKFefRvJL-UiRboupFvvQQQoiUb02bpkNgsE4nkJE9qlDRU-ohH6Dt6pWTDLLOCTgO8bVTJVKn9vtya96JagVdfIztppGD-TrPQ5PxF9PGaL648t-VPDmvaZIfpKtnrlunN8EY1AbtCbiJ_AC8fpri9O4fTVAcdKA4AfRI1eXQE8OZulRzNVKUQNkkujpcMOdXhpQ-nDq1u4ULDRiF2qZ1FH-sLKtVuNGgdM9MFL9jlgWCIpG05N2IZMQY624tlTKd_480h4PH0IbjuymnjwrQEdytAbPPHjezFjTANyPEyvC5C2hIAAG0g.jpg" width="400"><br>
 
 احمدرضا رادان، فرمانده کل انتظامی جمهوری اسلامی، با اشاره به حملات آمریکا گفت که جمهوری اسلامی بر دشمن پیروز خواهد شد. رادان گفت: «به اذن خدای متعال، صبح قطعی پیروزی نزدیک است و ما حتما بر دشمن پیروز خواهیم شد.»
 او همچنین از اقدامات حوثی‌های یمن علیه عربستان سعودی تقدیر کرد و گفت: «امروز اراده یمنی‌ها موجب شد تا رزمندگان انصارالله هزاران کیلومتر پیشروی کنند.»
@@ -333,7 +441,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-22 17:30:34
 
-<img src="https://cdn1.telesco.pe/file/JPkXGw8UJ16iG45m1Ir7Gs3zJUCzVint7Q3cNUNV6IO15jQ1tjXvtwNsGWQXD0LHHPUJcSy8R_gEn-bzoOuQCeDxS8dl6EsDWEyuoTV4iOtPU5XhQTVEBx_OaJtpjTLH2N5mNGU0mQ1nr5xb-4cDg9hjxPl-VkUUeTa7r942DdQgPEs3mKBSoNJylwZ2538NQtmvMaczIQJePaz7N1byAzyE-pKEuuskaDGwxIRY2P3BFzhvy0R3V4QPz4riy9WLGczLWvW397TpmYGPyWQxLdGZGtyFgzBLV-N4sI2iRdj8yZfbVNR0n6i737kCEOWd3xHpRkri0w2c-Tatq3mwzg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Wqag88-RF7LRGlFuGyBIjeIgHNCztStEK7VYNi6sgLE6sk2xx19TalSgD42tXu9nQCx8UWHmGAnJluS2J3Ggeo2FnYSidFaK0J62mPJPcfK39h-V7VcmgECVL13et65VsEgd01NWj_h6fHN1gTM32cRbqFC4KqdSz2Dts6-HCr0K770t0VJB-Ws52rmz1QtAHpIa0Jr7hDsuBzlGFyQGRUe9o4NNA3kV92GV-BkoOYR0TqdRVhPUJkMaSeYTKxaFwR5yxhbi_d2zqqFh7TAZ1PQLoSPCWG2TpvaSRYGZbimzELDW7581z4W0gRIEzpy9ro0wJvpUciZ8M4yl4-Omkg.jpg" width="400"><br>
 
 نرخ دلار در بازار آزاد تهران روز سه‌شنبه با نزدیک یک درصد افزایش نسبت به روز گذشته به ۲۳۳ هزار تومان رسید.
 بر پایه داده‌های شبکه اطلاع‌رسانی طلا و ارز دلار روز دوشنبه ۲۳۰ هزار و ۸۰۰ تومان بسته شده بود. بهای دلار در ساعات نخست معاملات امروز تا ۲۳۵ هزار تومان نیز بالا رفته بود.
@@ -346,120 +454,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78484)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 17:29:58
-
-<img src="https://cdn4.telesco.pe/file/b6hUw5s2NYVmzZcb1_WSL2E7H7RPjnv6MPIhZkDQs0oSVaKRvoe97p-LX7HY6VkdSOT72_Vlt8U1QKh0b3ZT8Bzo7rzpinX060uaBLxuOYTAau8i6KmdDEQGdS1GiJVWBuMFmAut4xZXNTCu0iV7Kfym3HKZs6lubnaT4vpec-KhCrhQTG33tKUThzR3vfiGlZpmhnPO6ex5M2dx_biGrwRrFtMBL6_RAaXwmhEQeLYo0v5zsg0Kz8K4H3xjEHrp8wpa4XjdP-7IM3ery8x34clYaxZTK4jWq2JZyg6zPgzjrFzZJLe3Ztu1iDL2z8V7s2E_vu9-AfE4EsNZJXbqvA.jpg" width="400"><br>
-
-رئیس جمهور آمریکا می‌گوید این کشور «بیش از آنچه حتی بتوانیم برای استفاده تصور کنیم مهمات» دارد و به گفته او «اکنون نیز در حال افزایش ذخایر مهمات خود در سطوحی هستیم که تاکنون هرگز شاهد آن نبوده‌ایم.»
-دونالد ترامپ روز سه شنبه، ۳۱ شهریور در پیامی در شبکه اجتماعی تروث‌سوشال با رد وجود کمبود مهمات در ارتش آمریکا از کسانی که آنها را «بزدلان و خائنان» نامید نوشت آنها دوست دارند بگویند که ایالات متحده با کمبود مهمات مواجه است. این درست نیست.
-نوشته رئیس جمهور آمریکا می‌تواند واکنشی به گزارش رسانه‌های مختلف درباره کمبود مهمات در ارتش آمریکا به‌ویژه پس از جنگ اخیر با ایران باشد. در این گزارش‌ها به‌ویژه از کاهش ذخایر موشک‌های رهگیر سامانه‌های پدافند هوایی خبر داده شده بود.
-این در حالی است که شرکت لاکهید مارتین روز ۲۴ شهریور اعلام کرده بود که نخستین محموله از قطعات حیاتی موشک‌های رهگیر «پاتریوت» را از شرکت «جنرال موتورز» دریافت کرده است؛ این تحویل کمتر از یک ماه پس از امضای توافق‌نامه تولید میان دو شرکت صورت می‌گیرد، آن هم در شرایطی که پنتاگون بر تسریع روند تولید تسلیحات تأکید دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78483)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 17:29:37
-
-<img src="https://cdn4.telesco.pe/file/gw1YyRQmFueDkKZPrghWlBouVxM9rBdWPLVg8WVpI_nfOXmuuDu0IW1lLnmZb6IG8rj4KJUpUW7EkkKdP8zg8N6GpWnT9IRGons1870NLsM85784HzrLeNoTIJttS5mOLe2SVBXzj5w3iqWvsZdhagnX3LnEMzltWi0s9gNYeu8UAwYH8nTOe6p1IimNhQ0A7KWzvwp9ufZ1_B_oTbyb2icRMgOdCijsGs_Cbx-hpNBbOI499-rxeHsLM3ocgm1IiY7Hxcnb960LW0QrkmjIjycEu_q_6njAvEbeUiPGBEmf3H5YXSoXGThBsrf3aoCRA422rhcRNUnljNc5QVQWjg.jpg" width="400"><br>
-
-مارکو روبیو گفت آماده ملاقات با مقام‌های ایران در حاشیه نشست مجمع عمومی سازمان ملل در نیویورک است.
-وزیر خارجه آمریکا گفت: «فکر نمی‌کنم در حال حاضر چیزی برنامه‌ریزی شده باشد، اما قطعاً برای چنین دیداری آمادگی داریم، به‌ویژه اگر چشم‌انداز آن نتیجه‌ای مثبت و در نهایت تحقق هدف اصلی باشد.»
-آقای روبیو گفت منظور او از چنین چشم اندازی این است که «ایران هرگز نمی‌تواند سلاح هسته‌ای داشته باشد.»
-عباس عراقچی، وزیر خارجه ایران از دوشنبه در نیویورک است و مسعود پزشکان هم عازم این شهر شده است تا در مجمع عمومی سخنرانی کند.
-دونالد ترامپ دو روز پیش به شبکه فاکس گفته بود که آماده دیدار با مسعود پزشکیان است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78482)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 17:28:42
-
-<img src="https://cdn4.telesco.pe/file/CGrCFapt-t9XBc5OgsnM6t8BovXICGW_wVgGkZ7-8xYcJ31AUieidARf6bi7Ox0vnBGX72qmeRE7gXM_i0TC3stwcC1XPYnMwFJIy6IezSLsV4jXNQa6tlVO9Bz0sd10xYZ87kP2OgCptR-1iCtF7vrQkVQnSZb_ZjqJuGDV0dZ8OqfESdrgqhChQ6HyPGhBWSurXg1C5ATLIu6ERIRLooWM64DvjLdhSKR1meNw6i1gHVAxOZ7ex5SRrmQ95XU6Luz-01avTdK3Ogw33XFFtQckAU1RnV3B440KQvUMEENsOZQ5lqbSUlfw0kxDPwQhNyDiKVNgCMM6cX-_iajFZw.jpg" width="400"><br>
-
-وزارت امور خارجه چین روز سه‌شنبه، ۳۱ شهریورماه، رسما اعلام کرد که با تحریم «یک‌جانبه» خطوط هوایی ایران توسط واشینگتن مخالف است.
-گوئو جیاکون، سخنگوی وزارت خارجه چین، در نشستی خبری گفت که پکن این گونه تحریم‌های آمریکا را «غیرقانونی» می‌داند و با اعمال آنها مخالف است.
-این موضع‌گیری یک روز پس از آن رخ می‌دهد که اسکات بِسِنت، وزیر خزانه‌داری آمریکا، روز دوشنبه گفت که تمام شرکت‌های هواپیمایی ایران از تاریخ ۲۳ سپتامبر (اول مهر) «در سراسر جهان تعطیل خواهند شد».
-او در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت: «وقتی هواپیماهای ایرانی در فرودگاهی فرود می‌آیند، شما نمی‌توانید به آن‌ها سوخت یا خدمات فرودگاهی ارائه دهید و نمی‌توانید به آن‌ها بلیت بفروشید؛ در غیر این صورت از سیستم دلاری کنار گذاشته خواهید شد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78481)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 17:27:46
-
-<img src="https://cdn4.telesco.pe/file/XfCvouuDEoPAmCQkZe6n__Kajk0-_AZyIQJ9ipPtzurh9GUA62UB98giO98uxhi9nRzzPUCEZtO5jb-7ULU31wGk4dFWWYuy0xywSYcr3UGliPknKE1O1NOM0Z2jJ__p50CZtJWsUP1Ry3gt0u1rFlsf8aw_bQlHzrVXviw-aBFCGGI_36xTYXJtjxD9Z1XlEkE8XVZzBS4qX-1Z0-lOiQSY8gfrle27J0JZgv34EmyF_YrKpZ_Xk8b-hBiZ8EzmjOPOKIvsTH5VSmpdvyNq414VOk4Gd2gAkYHQcbuG6o53CJaJSu2DY1nrfdbrNgoyj4QRv_xzAQftV3ytbDR5Vw.jpg" width="400"><br>
-
-نسبت نمونه‌های مثبت کووید-۱۹ در ایران برای پنجمین هفته پیاپی بالا رفت و به ۱۷ درصد رسید.
-به گزارش مرکز مدیریت بیماری‌های واگیر وزارت بهداشت درباره هفته منتهی به ۲۷ شهریور، این نسبت در هفته مشابه سال گذشته هشت و نه دهم درصد بود. نسبت نمونه‌های مثبت کرونا هفته پیش از آستانه هشدار بالا گذشته بود.
-وزارت بهداشت بر ضرورت تشدید مراقبت از عفونت‌های حاد تنفسی تأکید کرد.
-این هشدار در حالی است که نگرانی‌ها از شیوع همزمان کرونا و آنفلوانزا تشدید شده است.
-از طرفی واکسن آنفلوانزا با وجود نزدیک شدن فصل سرما هنوز در داروخانه‌های ایران توزیع نشده است. به گزارش روزنامه شرق، سازمان غذا و دارو از تأمین محموله‌هایی از چین، روسیه و برخی کشورهای اروپایی خبر داده، اما داروخانه‌داران می‌گویند خبری از توزیع نیست.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78480)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 09:52:42
-
-<img src="https://cdn4.telesco.pe/file/rMJlqwWW8r9Xn2Vh72sOVOcotmNt8BQnCpGDvVVC6QbEpXsRVg4HlyM9mX4xuafQofAwjWECVsKldLKCv-KhJ4zgPSl0LQeIb8wFhd-o2q7jEa3-4QUqjk-qmmufcMYczBLarJIyC2r64WcxMfuUR_7V_-gPGLlTgceTgceNd1EO38hu-4BbjvhfiIXEB-wFvTGvHg_VG9lMYkiNUxtMl4U8y1r3nsaXsPFBOv7eSqGnu1V2XjEcPXzJfydupUoC2Ql0vSRkPbkSZK48XonCDqfKkqU4Pi9xYLjTZ7tlyuvsf6Lg8P6tZcDgGgmlQotueuiuGLsdcdWgjKK9yswKYw.jpg" width="400"><br>
-
-نخست‌وزیر بریتانیا، می‌گوید با ارائه «پشتیبانی دفاعی و سوخت‌رسانی هوایی» به عربستان سعودی در برابر حملات حوثی‌ها موافقت کرده است.
-اندی برنام روز دوشنبه ۳۰ شهریور گفت که این اقدام در پی درخواست عربستان سعودی برای دریافت «حمایت نظامی» صورت می‌گیرد.
-دولت بریتانیا اعلام کرده است که زمان این طرح «محدود» است و براساس آن قرار است نیروی هوایی سلطنتی بریتانیا به جنگنده‌های نیروی هوایی عربستان در سرنگونی موشک‌ها و پهپادهای حوثی‌ها کمک کند.
-برای ارائه این پشتیبانی، بریتانیا طی روزهای آینده یک فروند هواپیمای سوخت‌رسان «وویجر» را به منطقه اعزام خواهد کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78479)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 05:19:25
-
-<img src="https://cdn4.telesco.pe/file/PEpizt8cQcm8M1a6FbtU4xJHvfudUoRdgQ_Wt_7pVKXbRjQgvBTR0v3Pp2cZnzcvpJCoehB13xHriYTUx1kOP0zptkvQZz5wTNSXvb31dC1OqI2gbZwgoETJmVMyevKSCgYbNMldEumnZGKdgEIUQoLP1jmduknz8SUuUP3vv74VcjAsYN0rQkSgiEaxZ-biRKld97jgaCLeJj0PomiTYLbkdn1wRBv8eOQIGGQ4mAw8p82XeSdv_PAFkl5btRmnCiTFhiJPWVGOOLU1t5t6gU79WLvNtSPt9-ZG3KGnFCPDlaJ8oNN29DWYRiG9Izpr-_aQ8pkvJ6yIXJZ2uqD5Ow.jpg" width="400"><br>
-
-امانوئل مکرون، رئیس‌جمهوری فرانسه، روز دوشنبه، با انتشار تصویری از دیدار خود با دونالد ترامپ در اکس، از توافق پاریس و واشنگتن برای اقدام مشترک در زمینه امنیت انرژی و بحران‌های بین‌المللی خبر داد. مکرون در این پیام نوشت: «به محض ورودم به نیویورک با ترامپ دیدار کردم. ما تصمیم گرفتیم با همکاری یکدیگر برای کاهش تنش‌ها در بازارهای انرژی، از طریق حفاظت از زیرساخت‌های حیاتی در خاورمیانه و تضمین آزادی دریانوردی در تنگه هرمز، اقدام کنیم.»
-رئیس‌جمهوری فرانسه همچنین با تاکید بر تحولات جنگ اوکراین افزود: «ما تلاش‌های خود را مشترکا به کار خواهیم گرفت تا توقفی در حملات علیه زیرساخت‌های انرژی و تاسیسات غیرنظامی اوکراین به دست آید. جمعیت غیرنظامی باید محافظت شوند و ما باید هرچه سریع‌تر مذاکراتی جدی درباره شرایط صلح میان روسیه و اوکراین را آغاز کنیم.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78478)
 
 ---
 
