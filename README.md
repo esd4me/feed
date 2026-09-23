@@ -3,8 +3,48 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-23 21:34:21 </h5>
+<h5> 🟢 Updated at: 2026-09-24 01:23:49 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-24 00:33:58
+
+
+
+پیام‌های دریافتی:
+ساعت ۰۰:۱۳
+انفجار شدید بندرعباس
+همین الان بندرعباس موج انفجار حس شد
+وحید قشم لرزید
+انفجار دریا بود
+00:24  بندرعباس، صدای خفیف انفجار از دور
+سلام حدود ساعت ۱۲ یه موج شدید پنجره های ما رو تو بندرعباس لرزوند
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78505)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-23 21:53:38
+
+<img src="https://cdn1.telesco.pe/file/rWtU70fU6RaLLnKfZ-7xssrWCaTM8IBpUVCkFzRFeTzG5uiRVVCJZluR9-Sa0dygAoFb-G9ViCFXR1Q57nAw41KmJKvanbFBRcR4Ia4-fuZgKaBNOxXYfhrw8-qSTiNUyTx6v_uXhamOtabQ9IHdFJ5ILiUNU4TLE6m4d8IKOdJwj1SqG_SRReD7NpqIP0ZXIRvbbh49GrgiBcWTnCnZ6v1Me85-LUrTJcMY1TmOwygcz03QEAaIevkMiUWD_3rX7HCvYWlIY9cXfX5Alm17vmjDrwTjO9F50fOA9THGSpufZlRfEruF2C1i8EJPCe9-uTtJekAz22loNt9NWg8D5Q.jpg" width="400"><br>
+
+روابط‌عمومی قرارگاه قدس نیروی زمینی سپاه پاسداران، از کشته‌شدن سرتیپ حسین ظریفی، فرمانده عملیاتی قرارگاه سجاد شهرستان سراوان، در جریان یک درگیری مسلحانه در این منطقه خبر داد.
+روابط عمومی سپاه، روز اول مهر ۱۴۰۵، در بیانیه خود نوشت ظریفی در جریان «آخرین عملیات رزمندگان این قرارگاه در منطقه سراوان» کشته شده است.
+همزمان، حال‌وش گزارش داده است که احمد هراتی زراعتی، مسوول اطلاعات قرارگاه عملیاتی سجاد سراوان، نیز در جریان درگیری نیروهای نظامی با افراد مسلح در منطقه جهاد آباد سراوان کشته شده است.
+بر اساس گزارش حال‌وش، این درگیری روز چهارشنبه یکم مهر رخ داده و دست‌کم ۱۳ نیروی نظامی و امنیتی دیگر نیز در جریان آن به‌شدت زخمی شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78504)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-23 20:02:09
@@ -147,7 +187,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-22 23:01:53
 
-<img src="https://cdn1.telesco.pe/file/dgDMZYWSJHFas6GmEm38-qDbR1e9cYY2RRKh76MeaaOwkDJZ2MZPAZenS8UaNOho-abgINB8nxuffSJZd7JsgvJpWiffFeP33nls0eVfs34u2TTlWkAkYQZywxm15Hdt-JOK9HLLwiilGBRc4cOrSxhJOA1tDFcDYwcD7EZVxIYpEhs5iyv9PgWCKCBJIPnXJR_Zo_TGOXaWnU1CX4A-cPunDfDG4NAkalZ6dLZlpHa9I3p4kE_cn0A9HK8_RaZa9mjsApHktleDBvA-UT6U01OxWx5-sunqo8ccwGjkCyy5BGrrNnaY9NzPCjoWauMiBwn9Pq_n5yEnjaPSboFruw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VhoL3sc5OmsNIplYqt2w6VN8gYd7iG1QSdl8mQyaDPO3mKP7nDEODR4XNmBDA2RRAph2pNKUPMKsbJDpNj4tUazi1wWP5sFPaXqbzQ6tBUxplsR0hTht4ayFs8N7UdG7y0tkA-AkS2rBEsaF--f_9I2MXzkLNH8jIm8TouNCM76iejOyl76EM7__85JrNdiK4PlP_Mo27CKCIPhJ_tyDTWkocZomd537WWMBEhrniVxwNi3dqEYIEHhKhAptNKoa46M-lsKUlJ8y2ngFkiLCi5BekGoQPFXLJKPjUzDgsXOM1tmoSG9plp6hXTc9rTdBhn3Ea4lcSgdTZJLHQmoW3Q.jpg" width="400"><br>
 
 صداوسیما: عراقچی و ویتکاف در حاشیه مجمع عمومی سازمان ملل دیدار کردند
 @
@@ -188,7 +228,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-22 22:07:18
 
-<img src="https://cdn4.telesco.pe/file/MtwDfL0GqYSzhVNYdZW63keJU6AFNJPbWBwtWHWYSbS8M1jzl_wWgEWWqgz__pfxPbHOn__bDkpQG_5feKJXNiykLBMP3h-gmZw2mA6Zc5bqWu5ZtCnnWz8LCHyqACxO1wPEf7VSe-eXRcGUX5dITpev9QD1qjwQBxLv7jyEUQhvngY7GEQ_vuvBc4LiLHR-q4iaS5TSxJDNTpsv32yUNPZZ7CrOoqMeN2DIwySLo_nhaZRi7uCIbiF0LLGTg-RqZthePrREpp6JZ9lGq9s03S9hJ0nUrC-jSIJlIb-SgQKwGkQIWx3UI74jZXHkuLoOk5qZJ7ls9ovul95JMJLsjA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ectjNA81h0cZ6TL5_ZJbLfJPey3OG2qs-cM2nzJUH6C_iPbqtT3EAAMA9eDzg-QENsG7q6JI9MigY4DKZrjDkQaVuS32uzu4TWDJxdPH5-Y0LLYhx3IsMBXEz0SsywfICga0X9TtiaWvWrP7iYR-ksybomYAb2-INbM6uR_I3ZdkJ0PNh8AmCEAHKPZCDmNMXyhsS_-yeQEzdelzZUmE_1XKZRn_2LQecuNDXaAGIMC2ag9Es10a3vKFQod68DnHakYXol_nR20xsiQDF8FhQQsXBQBuhiKmjVuW9aQyCElyjvv3iDsJh8kh4EAg7IFDfpSIuoFydf-e1jCwE5QPFA.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، روز سه‌شنبه ۳۱ شهریور اعلام کرد استیو ویتکاف، فرستاده ویژه آمریکا، و جرد کوشنر، داماد او، ساعاتی پیش در حاشیه نشست مجمع عمومی سازمان ملل به مدت سه ساعت با اعضای هیات جمهوری اسلامی دیدار کرده‌اند.
 ترامپ که در دیدار با ولودیمیر زلنسکی، رییس‌جمهوری اوکراین، با خبرنگاران صحبت می‌کرد، گفت این دیدار «خیلی خوب پیش رفت» و افزود نشست دیگری میان دو طرف در «آینده بسیار نزدیک» برگزار خواهد شد.
@@ -417,43 +457,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78486)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 17:31:12
-
-<img src="https://cdn4.telesco.pe/file/UJOABMFDpdkxyUiTyLTFbX9TucQqXMQvKFefRvJL-UiRboupFvvQQQoiUb02bpkNgsE4nkJE9qlDRU-ohH6Dt6pWTDLLOCTgO8bVTJVKn9vtya96JagVdfIztppGD-TrPQ5PxF9PGaL648t-VPDmvaZIfpKtnrlunN8EY1AbtCbiJ_AC8fpri9O4fTVAcdKA4AfRI1eXQE8OZulRzNVKUQNkkujpcMOdXhpQ-nDq1u4ULDRiF2qZ1FH-sLKtVuNGgdM9MFL9jlgWCIpG05N2IZMQY624tlTKd_480h4PH0IbjuymnjwrQEdytAbPPHjezFjTANyPEyvC5C2hIAAG0g.jpg" width="400"><br>
-
-احمدرضا رادان، فرمانده کل انتظامی جمهوری اسلامی، با اشاره به حملات آمریکا گفت که جمهوری اسلامی بر دشمن پیروز خواهد شد. رادان گفت: «به اذن خدای متعال، صبح قطعی پیروزی نزدیک است و ما حتما بر دشمن پیروز خواهیم شد.»
-او همچنین از اقدامات حوثی‌های یمن علیه عربستان سعودی تقدیر کرد و گفت: «امروز اراده یمنی‌ها موجب شد تا رزمندگان انصارالله هزاران کیلومتر پیشروی کنند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78485)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 17:30:34
-
-<img src="https://cdn1.telesco.pe/file/Wqag88-RF7LRGlFuGyBIjeIgHNCztStEK7VYNi6sgLE6sk2xx19TalSgD42tXu9nQCx8UWHmGAnJluS2J3Ggeo2FnYSidFaK0J62mPJPcfK39h-V7VcmgECVL13et65VsEgd01NWj_h6fHN1gTM32cRbqFC4KqdSz2Dts6-HCr0K770t0VJB-Ws52rmz1QtAHpIa0Jr7hDsuBzlGFyQGRUe9o4NNA3kV92GV-BkoOYR0TqdRVhPUJkMaSeYTKxaFwR5yxhbi_d2zqqFh7TAZ1PQLoSPCWG2TpvaSRYGZbimzELDW7581z4W0gRIEzpy9ro0wJvpUciZ8M4yl4-Omkg.jpg" width="400"><br>
-
-نرخ دلار در بازار آزاد تهران روز سه‌شنبه با نزدیک یک درصد افزایش نسبت به روز گذشته به ۲۳۳ هزار تومان رسید.
-بر پایه داده‌های شبکه اطلاع‌رسانی طلا و ارز دلار روز دوشنبه ۲۳۰ هزار و ۸۰۰ تومان بسته شده بود. بهای دلار در ساعات نخست معاملات امروز تا ۲۳۵ هزار تومان نیز بالا رفته بود.
-یورو ۲۶۷ هزار و ۴۴۰ تومان، پوند بریتانیا ۳۱۱ هزار و ۴۳۰ تومان و درهم امارات ۶۳ هزار و ۴۷۱ تومان معامله شد.
-در بازار سکه، سکه امامی با یک و نیم درصد افزایش به ۲۳۸ میلیون و ۴۸۰ هزار تومان رسید و سکه بهار آزادی با یک و هفت دهم درصد افزایش ۲۳۴ میلیون و ۶۷۰ هزار تومان قیمت خورد.
-نیم‌سکه با هشت دهم درصد افزایش ۱۲۱ میلیون و ۴۰۰ هزار تومان معامله شد. ربع‌سکه ۶۳ میلیون و ۸۰۰ هزار تومان و سکه گرمی ۳۳ میلیون و ۲۰۰ هزار تومان بدون تغییر ماندند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78484)
 
 ---
 
