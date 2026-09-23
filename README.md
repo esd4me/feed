@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-23 04:34:32 </h5>
+<h5> 🟢 Updated at: 2026-09-23 10:30:51 </h5>
 </div>
 
 
@@ -431,7 +431,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-22 09:52:42
 
-<img src="https://cdn4.telesco.pe/file/qAr9y2i0XoZ_z_yUXu9UQMM081-dfSbema_phMfoT9MVBPzfpUgh29z4ibxgAZMKL5VAhCtU8RTl-9_xXkuZmztkf4TqpROmjCDmYxTF40ex3zSF4QxAF52R9Oo2hwp3kqJOV8GMDK8povt97bpa2OA2eMJtk3HAVqrBqfvtZafKFZba3XDNsscP33p5pXp-IY66U0Zq5IfXXLpzviYRhThyqB-bXzJrOkZ2ald3lVMqjQYFhewbASDlXJ9f_qOHKpjXeZCgeYyFKevyMmxbKWXGm7of0mH9gge1xLv6tE4ByhhvN0QsdN08weMWuyDXl7i__0I4MO0Jbyitct0_Gw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/rMJlqwWW8r9Xn2Vh72sOVOcotmNt8BQnCpGDvVVC6QbEpXsRVg4HlyM9mX4xuafQofAwjWECVsKldLKCv-KhJ4zgPSl0LQeIb8wFhd-o2q7jEa3-4QUqjk-qmmufcMYczBLarJIyC2r64WcxMfuUR_7V_-gPGLlTgceTgceNd1EO38hu-4BbjvhfiIXEB-wFvTGvHg_VG9lMYkiNUxtMl4U8y1r3nsaXsPFBOv7eSqGnu1V2XjEcPXzJfydupUoC2Ql0vSRkPbkSZK48XonCDqfKkqU4Pi9xYLjTZ7tlyuvsf6Lg8P6tZcDgGgmlQotueuiuGLsdcdWgjKK9yswKYw.jpg" width="400"><br>
 
 نخست‌وزیر بریتانیا، می‌گوید با ارائه «پشتیبانی دفاعی و سوخت‌رسانی هوایی» به عربستان سعودی در برابر حملات حوثی‌ها موافقت کرده است.
 اندی برنام روز دوشنبه ۳۰ شهریور گفت که این اقدام در پی درخواست عربستان سعودی برای دریافت «حمایت نظامی» صورت می‌گیرد.
@@ -450,7 +450,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-22 05:19:25
 
-<img src="https://cdn4.telesco.pe/file/sOV24W5PYCseX59Pv5tPdQY6rYJjkvPyvvgASUOQTfcITFBOoR0lHkE0iWmXpfOz6168rlVMCIby980DQEbLe8qSX-kCiYPOckNzql6oyYduI3spB-_w5EKbgauAetmVQsIJ9kI4eE8AlOJG2EEknybS2assHhwC3KxYAIP4DK11iPzlvKcZon92OMtAo9MQniU8wCXO7bHPve_OtL2iCaG1OQY59uhhnVUuiwGlNm94zspTDI2ExLP1tOOTFBmc9Q5WTUpuDXNMd9D1Hzhr2jqpUNWUZjhpT1tgKiCAtaHn2ejCiUef3Oxfklz-E0iV7rSQ4CDfprnotgHa-885KA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PEpizt8cQcm8M1a6FbtU4xJHvfudUoRdgQ_Wt_7pVKXbRjQgvBTR0v3Pp2cZnzcvpJCoehB13xHriYTUx1kOP0zptkvQZz5wTNSXvb31dC1OqI2gbZwgoETJmVMyevKSCgYbNMldEumnZGKdgEIUQoLP1jmduknz8SUuUP3vv74VcjAsYN0rQkSgiEaxZ-biRKld97jgaCLeJj0PomiTYLbkdn1wRBv8eOQIGGQ4mAw8p82XeSdv_PAFkl5btRmnCiTFhiJPWVGOOLU1t5t6gU79WLvNtSPt9-ZG3KGnFCPDlaJ8oNN29DWYRiG9Izpr-_aQ8pkvJ6yIXJZ2uqD5Ow.jpg" width="400"><br>
 
 امانوئل مکرون، رئیس‌جمهوری فرانسه، روز دوشنبه، با انتشار تصویری از دیدار خود با دونالد ترامپ در اکس، از توافق پاریس و واشنگتن برای اقدام مشترک در زمینه امنیت انرژی و بحران‌های بین‌المللی خبر داد. مکرون در این پیام نوشت: «به محض ورودم به نیویورک با ترامپ دیدار کردم. ما تصمیم گرفتیم با همکاری یکدیگر برای کاهش تنش‌ها در بازارهای انرژی، از طریق حفاظت از زیرساخت‌های حیاتی در خاورمیانه و تضمین آزادی دریانوردی در تنگه هرمز، اقدام کنیم.»
 رئیس‌جمهوری فرانسه همچنین با تاکید بر تحولات جنگ اوکراین افزود: «ما تلاش‌های خود را مشترکا به کار خواهیم گرفت تا توقفی در حملات علیه زیرساخت‌های انرژی و تاسیسات غیرنظامی اوکراین به دست آید. جمعیت غیرنظامی باید محافظت شوند و ما باید هرچه سریع‌تر مذاکراتی جدی درباره شرایط صلح میان روسیه و اوکراین را آغاز کنیم.»
