@@ -3,8 +3,201 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-24 14:16:42 </h5>
+<h5> 🟢 Updated at: 2026-09-24 19:05:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-24 18:28:07
+
+
+
+ترجمه ماشین:
+"قرار است مسعود پزشکیان، رئیس‌جمهور ایران، امروز ساعت ۶ عصر به وقت شرق آمریکا (ET) در مصاحبه‌ای با برت بایر از شبکه فاکس‌نیوز گفت‌وگو کند."
+Polymarket
+۱:۳۰ بامداد جمعه به وقت تهران
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78517)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:32:11
+
+
+
+ارزش ریال در مقابل دستمال کاغذی
+FattahiFarzad
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78516)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:15:30
+
+
+
+پرواز صبح پنجشنبه دوم مهر شرکت هواپیمایی وارش از تهران به دوشنبه، پایتخت تاجیکستان، پس از برخاستن مجوز عبور از حریم هوایی ترکمنستان و جمهوری آذربایجان را دریافت نکرد و ناچار به فرودگاه خمینی بازگشت.
+این اتفاق در پی دور تازه تحریم‌های آمریکا علیه شرکت‌های هواپیمایی ایران و افزایش محدودیت‌های پروازی در کشورهای منطقه رخ داده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78515)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:10:42
+
+<img src="https://cdn4.telesco.pe/file/dvHatdy8NeyF9kUnn3Qp_XQbQwuDvntKeOCE35zcIbv3ULvdg27S_DaHR1g3Jf7kNCROQLjrX3xFDGDYGSR1zWyVmxYkwH0yeuZCXTz7mUzIpuP0AV5ZwKO5YrVmhEmfwQ68OQwev0vub4EyODo9cdyZvchbIc1MCd0vMdO5dV_q1sWIahMHfqMZTQP-h5OYzzCzC115N94lHQ8IdE6p7dNepwt8MVxMcd0jQbtOn4C2qjOiXi5bklj-niApfLtNC8Yjyqjpg4B6y7wxkaDK0zVKTWzJKae-OY038B-FPhPUONBQBZiCfGEDPsMTvbLNbeq0Pwtf4GjQPdrphGp37w.jpg" width="400"><br>
+
+شعبه دوم دادگاه انقلاب رشت ۹ وکیل دادگستری در استان گیلان را در یک پرونده مشترک به مجموع ۱۴ سال‌وهفت ماه‌و۱۵ روز حبس محکوم کرده است.
+هرانا خبر داد «معصومه پورشهرانی»، «طاهره پوراسماعیلی»، «شادی فلاحتی»، «غلامحسین لایقی»، «حسام احمدپور»، «لادن آصفی‌راد»، «محمدرضا تاک»، «کیان طاهر‌اجارود» و یک وکیل با نام خانوادگی «دلیلی» در این پرونده محکوم شده‌اند.
+هر یک از این وکلا با اتهام «تبلیغ علیه نظام» به هفت ماه‌و۱۵ روز زندان و با اتهام «توهین به رهبری و بنیان‌گذار جمهوری اسلامی» به ۱۲ ماه زندان محکوم شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78514)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:09:32
+
+<img src="https://cdn4.telesco.pe/file/WXvBmt0yusVm7S2lxk3ec4yuHMqqncO2RwXjUhbZ8QNXy_gwP5CW2XGPunxiAinDKkUtkP2HBfND7x1aaRScgx8JPdOAmCBWxXC8JPUzcknfj2iJKdE3maGje6BJ0ZK1sA8_ZiAZ2onZUjtJu428q3yKNrP3ByU64VWiAzdHkbp6InkupFOcu6nVSmh25ACFU-mvtiW12F0n_AKvnOaw7SHOa_ZJ47elENH0ZRCs2XCstC56g0F7rwk6m-eDFYB6u8oZPxVYzs_v0kluS1HImcun8SY8-8DjWDdttpCNOzmYC37VwDhSakGxJpEJ0NAHskZBrct9s7ljAV74UqYTEw.jpg" width="400"><br>
+
+امارات متحده عربی روز چهارشنبه اول مهر فعالیت بانک ملی ایران در این کشور حاشیه خلیج فارس را ممنوع اعلام کرد.
+این بانک در بیانیه‌ای اعلام کرد: «این اقدامات در نتیجه تخلفاتی مرتبط با رعایت نکردن مقررات، قوانین و تصمیمات نظارتی لازم‌الاجرا در امارات متحده عربی اتخاذ شده است.»
+این نهاد افزود که این تخلفات شامل رعایت نکردن الزامات قوانین مربوط به مبارزه با پول‌شویی، تأمین مالی تروریسم و تأمین مالی اشاعه تسلیحات بوده است.
+بانک مرکزی امارات اعلام کرده تمامی شعب بانک ملی ایران در این کشور از انجام تراکنش‌های مالی به مقصد ایران و از ایران، از جمله تأمین مالی تجارت و انتقال وجوه، منع خواهند شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78513)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:08:45
+
+<img src="https://cdn4.telesco.pe/file/Cgn9lhzv77nFPMvZu4dlNVbB86knbdrBxIgyXr0PzJTXoGLs2YrinI382Jddzm__7zQSnHN8fVIC4k9oUET1G_n76WPEjsExfeb9u45NeT6kQyYg4eRzUfjl6dtTpEHOlnhHkuAdMOn_x2_pN7LqUzJC7K0npTWjshyuCefxLXbQHoeY4zbgYDLfGY9sG8mOngg0sRcnN_2V8KXCNl_YwbLBryr5f_GHQodj7brj4S0ZuacMYrE7D3NQ6YaU_323khhCwkygxGjhGfw25QmzDY7WTIFcRrBPTQzZ3VEmqyItTDieOA92z3upqJUHDKSXdtOG5Qy14HNpUaEJooT7kg.jpg" width="400"><br>
+
+در پی تاکید رئیس‌جمهور ایران بر ادامه برنامه هسته‌ای و عزم جمهوری اسلامی برای تسلیم نشدن در مقابل فشارهای آمریکا، ارزش ریال ایران دوباره روند نزولی گرفت.
+نرخ دلار در مقابل ریال ایران روز پنج‌شنبه با ۱.۴ درصد افزایش به ۲۳۵ هزار و ۴۰۰ تومان رسید.
+نرخ یورو در لحظه تنظیم این گزارش در ظهر روز جاری به نزدیک ۲۶۸ هزار تومان و پوند بریتانیا به ۳۱۳ هزار تومان رسیده است.
+سکه امامی با نزدیک به دو درصد افزایش هم اکنون بالای ۲۴۰ میلیون تومان و سکه بهار آزادی با ۱.۷ درصد افزایش بالای ۲۳۶ میلیون تومان معامله می‌شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78512)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:07:59
+
+<img src="https://cdn4.telesco.pe/file/NJyybGNmtQzptOLX-6DiI61G5bDjmlbmJ-Gy7eYHwl1AFAa9LsAgRMTtpKaUNROlcFGiUUzxF7eVYaSfkPVO4vSY1mZZKaWfGUq9YmiPKGNyzSZgNGyVqvt_0nEPNppAnJsUhv4_idKEMkLP0M2iT6UgSxpJEp2Pf6rNyndahCSFvBOCnclA5bjjGaBinTWPZYfW9V8x8GfGv0a1wF9V-O19TD2iUtSiXwfZjwAiDCMm5mHEM3r761QzftilyE7TTzlkADi9k6cZs-m4ibvJPXqNguoTDPr7hcRovrIw1-OHsQFpob8srSTWaeMJQIid2T6rT19EznRanHXfaPoyeQ.jpg" width="400"><br>
+
+شرکت ردیابی نفتکش‌ها «تانکر ترکرز» می‌گوید نزدیک به شش میلیون بشکه نفت خام توقیف‌شده ایران، به ارزش تقریبی ۶۰۰ میلیون دلار، در حال عبور از اقیانوس اطلس به مقصد ایالات متحده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78511)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:06:23
+
+<img src="https://cdn1.telesco.pe/file/fEe9r_gdWNtcVwRN07nm1AMAAC68Rw8968PcGR_PqewIErYswx13GCa3iWuH6W_sqjgnu-CTyK1Ys5rKfTV_615KYN4zZAhyckgBg74GcwlUc6DIcgQJZ6xLqB4Y-UEhzzS-chc5qQXwpKhhGEDO7nMvyM5FxPExkL7d9V7ajhaOXmak2EgaVfeFMH59VDlGREax6hCKoWsUhN_4ye8_7O0LsICKsO7RjJSHTUhXgDuO9Vx8tGzHei_-SMuD1OYVExIEqAYnPMZA_LqlTreed5HFb06gwFk-9T42Jj1XTQcnavA2l9uxYcdBxEudKKAsxT1fW6V6Vv0MQ6ygiBALdw.jpg" width="400"><br>
+
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، همه پروازهای شرکت‌های هواپیمایی ایرانی به امارات متحده عربی لغو شد.
+پرواز شرکت‌های هواپیمایی ایرانی به امارات از شهرهایی از جمله تهران، کیش، مشهد و شیراز برقرار بود که اکنون لغو شده است.
+لغو این پروازها پس از اجرایی شدن محدودیت‌های اعلام‌شده آمریکا علیه فعالیت خارجی شرکت‌های هواپیمایی ایران صورت می‌گیرد.
+اسکات بسنت، وزیر خزانه‌داری آمریکا، پیش‌تر اعلام کرده بود از اول مهر فعالیت شرکت‌های هواپیمایی ایران در خارج از کشور متوقف خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78510)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:03:32
+
+<img src="https://cdn4.telesco.pe/file/V7DHLrHpHaQtOgbkg77C4MJGenGvSUSaZF1kBI-LspI6e8lSoAXNup3wwAgVsdRNABhoiJNZOc5W4Hokyqwn7P3WqbFr9V4VYU7S9kL_tYnoSESQ6eIVw_ztsqsE0m6lznjdluGkFDWd5W3MVbqHsWDnyyR2zhc7l_F6kGRy1D-tDw4E2Pez8gG9K5mDYyj0xnkncIGew2uq1BxkeL88wZsSOI82KrCtPnMVC63eX37q3srZnWQY1aR4eg0dvZLgAPq5v3QfAX2zw0T4qym4Lndk-Hjj5TRPoqd6vGnaVaU5rn_nXmoIukNssfjROxLMYDz6vxAEObVWFuXnBF5_9Q.jpg" width="400"><br>
+
+سازمان دفاع مدنی عربستان سعودی پنجشنبه دوم مهرماه، با صدور هشداری از تلاش دوباره برای حمله به مکه خبر داد.
+این هشدار برای شهر مکه صادر و پس از لحظاتی لغو شد.
+عربستان سعودی برای برخی از شهرهای ساحلی دریای سرخ از جمله طائف، جده و تبوک، نیز همزمان هشدارهایی صادر کرد.
+در همین ارتباط ترکی المالکی، سخنگوی رسمی نیروهای ائتلاف بین‌المللی، اعلام کرد که شش فروند موشک بالستیک شلیک‌ شده از سوی شورشیان حوثی، رهگیری و منهدم شده و پدافند هوایی نیز تلاش برای هدف قرار دادن طائف و ینبع را خنثی کرده است.
+هفته گذشته نیز عربستان سعودی، شورشیان حوثی را متهم به تلاش برای حمله موشکی به شهر مکه کرده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78509)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:01:47
+
+<img src="https://cdn1.telesco.pe/file/lV9rvtUT2J86Wt5FIMY2Kqns1clk-lvcM9QMQrjGD-UllF_SjLfQ5X26A-23cqtnJ_JXTmqK82OvzZDdU5HhrfviHZPdLK6IHsCROAw__AtGor_8QMqzljfsGd9gd7WCqgxEm92tcP-HIETLQSVnIkMtAy2-gGXXVe7k70DwzeupNHBj5diGEnqWoL_RqavCf9ZB-gW-h413iXEcXKabgsVsZtQ91thI66zFKDXT7G7SOhfDVBRIpeoXJTuOoHZ3_a-Q7BYWj9xgwFwWidaW3NjsqH-WxemnTqyxTCKQvfmDs8LOSzktT_xCOt9g9pvJNmxAF-5EIXCMs_IR0VVghA.jpg" width="400"><br>
+
+حکم اعدام «ارغوان فلاحی»، زندانی سیاسی محبوس در زندان اوین، پس از پذیرش اعاده دادرسی متوقف شده و پرونده او قرار است برای رسیدگی مجدد به شعبه هم‌عرض فرستاده شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78508)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-24 17:00:28
+
+
+
+۹ تن از آسیب‌دیدگان چشمی خیزش مهسا با انتشار پیامی ویدیویی، خواستار لغو حکم اعدام علی زارعی شدند.
+غزل رنجکش، عرفان رمیزی‌پور، مرسده شاهین‌کار، مجید موافق، حسین نوری‌نیکو، حمیدرضا حیدری، سالار وطن‌شناس، پارسا قبادی و علی دلپسند در این پیام از مردم و نهادهای حقوق بشری خواستند در برابر جنایات جمهوری اسلامی سکوت نکنند، صدای علی زارعی باشند و برای جلوگیری از اجرای حکم اعدام او تلاش کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78507)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-24 00:33:58
@@ -120,7 +313,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-09-23 18:26:10
 
-<img src="https://cdn1.telesco.pe/file/NgtwKCzxgmnUsT2pA3ZB9_iO5PhBz62YcT7sa9CmP9eQTKMPI6xXxdArQ4BGZqzcWv8pJkaDCs5IIO2MeVd_b7Bw4A96amLhkHc2-MLAKrWdYsDG6UH1TgtdTl7Dh867w0xt7L7Jju6nQKVvBq7dUhqg9egNvZdQRLYhVWo2F3D1r3IifKtrKfiYqsFrUe6SzK-Ca9LV0SBp4WT9Pubg2-hfpJc6QhnL4elRyVfEC7eB8jidFOYk__K-hKqDQnn8xkPS252UMp6BpuoRbVO0GAq0ChiRZ7RbvWs0A_PtmiiNgXjuXQAIq1-oeR7fmYOqa23idR3VWb8VM9rdB-ts9w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mEw7lZujmxkPk17fLOU7L53u08FbW-WpJNrjzcedFPq83uxu0cBDthYRb_0YDUh7F2qSYFyGz6LVo2ZyAi8i0JPXgCBc1E9zIuC7WTKTF5DOQIFOMIKyS5Nm5UWJSchpIlEGv_8n1xlP6uoVoBO3g9b3tk4QP_A2ExXxWpijnfLAgnXdAOCFQ3T57t2riF41eaKdXUqmToGh4OdCydCANS03gxvEDX6fugM3w-O_dxXdpAiCt3_SNsCgftbNelqemV2JmBv5OQdYaGBIWnWOtn0et8YDbBIPggEWAvKMWBFI9w0xUjB8L765xMNGVEL-iYXZp3BeJ2uGDRJ0DyGLdg.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا اعلام کرد یک کشتی باری چهارشنبه یکم مهر در تنگه هرمز با یک پرتابه ناشناس هدف قرار گرفته و پس از آن دچار آتش‌سوزی شده است.
 بر اساس این گزارش، همه خدمه کشتی تخلیه شده‌اند و در این حادثه دو نفر آسیب دیده‌اند.
@@ -139,7 +332,7 @@ mhmiranusa
 
 ###### 🔵 Post time: 2026-09-23 18:25:25
 
-<img src="https://cdn4.telesco.pe/file/rO8EB3xbWk-LRrYRHqbNti7pIpZILxUXAx1E6IpE87sUv8AvwW6QsCR_HXwx8Di2F58inBK_wNuqo_um52lx-PFWrke3oa3J3QI2IqwIDFTIUAtwqwxyOFkQi1oNq1tmejzsH6yiPFsoJoZC-5astd2BlH1R_a-uPrgkIFw5CpBXOnLvYsnd6jTxnRKovp-Z8J3vNZFHzPFF8hjKIeGm2I5JMBTW-tjMlBBlpo3WnRuJ4zCu-u84PHCQhXymp87jwd_4Phsy1WAM6dgy_D2QgYFtvYC578o-4INbVK0uOv_gR3VveieaBpaCUsu0mHFK_haUVRXB4p85rKY43-d-Sw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/e93voClfXXmcSRFql2jxEi3Zih4vPZxqrfV6FaPNoASezPE1D0t7xL0_0O29uFguc3I_f-OFeP2gHac1YbfA6UwsNfD5uwAXTg4djltWlYUbfXH4AxnMfvEoXIgmaGpOfHgCWeM1GzChA6Nome6hwEIodCrTQVHV1tqELh_5fXDe08Zk-zNdLQ5TkjfhHPGqiADkStTimyHj_R7dO9trGYsZ4KhTXc-lrlOtQW_2FAni7Kjf0r7M47yLbqBWupArWc0vgMO1kzW4lm_sXQbMg6DKIHQeMks96ckJZbXhI82mxnO1rm-pu0_PdPX_400XJ6gprD4LaK09SkGiHnxE3g.jpg" width="400"><br>
 
 در پی تشدید فشار و آزار شهروندان بهایی در ایران، یک شهروند بهایی به نام رومینا گلی، از سوی دادگاه انقلاب ساری به زندان و محرومیت از حقوق اجتماعی محکوم شد.
 بر اساس گزارش رسیده، شعبه دوم دادگاه انقلاب ساری، رومینا گلی را بابت اتهام «فعالیت آموزشی یا تبلیغی انحرافی مغایر یا مخل به شرع اسلام»، موضوع ماده ۵۰۰ مکرر قانون مجازات اسلامی، به پنج سال حبس و ۱۰ سال محرومیت از حقوق اجتماعی محکوم کرده است.
@@ -180,283 +373,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78497)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 23:01:53
-
-<img src="https://cdn1.telesco.pe/file/VhoL3sc5OmsNIplYqt2w6VN8gYd7iG1QSdl8mQyaDPO3mKP7nDEODR4XNmBDA2RRAph2pNKUPMKsbJDpNj4tUazi1wWP5sFPaXqbzQ6tBUxplsR0hTht4ayFs8N7UdG7y0tkA-AkS2rBEsaF--f_9I2MXzkLNH8jIm8TouNCM76iejOyl76EM7__85JrNdiK4PlP_Mo27CKCIPhJ_tyDTWkocZomd537WWMBEhrniVxwNi3dqEYIEHhKhAptNKoa46M-lsKUlJ8y2ngFkiLCi5BekGoQPFXLJKPjUzDgsXOM1tmoSG9plp6hXTc9rTdBhn3Ea4lcSgdTZJLHQmoW3Q.jpg" width="400"><br>
-
-صداوسیما: عراقچی و ویتکاف در حاشیه مجمع عمومی سازمان ملل دیدار کردند
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78496)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 22:17:01
-
-
-
-ترجمه ماشین:
-خبرنگار:
-در دیدار با ایران، آیا آقای کوشنر و آقای ویتکاف شرکت داشتند؟ درست متوجه شده‌ام؟
-ترامپ:
-می‌خواستم همین را بگویم؛ آنها دیداری بسیار خوب و بسیار سازنده داشتند و دیدار دیگری هم برای آینده بسیار نزدیک برنامه‌ریزی شده است.
-استیو، اگر می‌خواهی... جرد، اگر می‌خواهی چیزی بگویید؛
-آنها دیدار بسیار سازنده‌ای داشتند.
-حدود یک ساعت پیش.
-خیلی خوب پیش رفت. یک ساعت پیش تمام شد. دیداری بود که سه ساعت طول کشید. یک ساعت پیش تمام شد.
-دیدار بسیار خوبی بود. یعنی باید بگویم، خیلی خوب بود. اصلاً نمی‌توانم تصور کنم چرا آنها نخواهند به توافق برسند.
-یا عظمت است؛ عظمت بالقوه... یا نابودی کامل. دو انتخاب وجود دارد. یعنی، در یک حالت نابودی کامل است و گزینه دیگر، عظمت بالقوه است.
-ایران می‌تواند کشور بزرگی باشد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78495)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 22:07:18
-
-<img src="https://cdn4.telesco.pe/file/ectjNA81h0cZ6TL5_ZJbLfJPey3OG2qs-cM2nzJUH6C_iPbqtT3EAAMA9eDzg-QENsG7q6JI9MigY4DKZrjDkQaVuS32uzu4TWDJxdPH5-Y0LLYhx3IsMBXEz0SsywfICga0X9TtiaWvWrP7iYR-ksybomYAb2-INbM6uR_I3ZdkJ0PNh8AmCEAHKPZCDmNMXyhsS_-yeQEzdelzZUmE_1XKZRn_2LQecuNDXaAGIMC2ag9Es10a3vKFQod68DnHakYXol_nR20xsiQDF8FhQQsXBQBuhiKmjVuW9aQyCElyjvv3iDsJh8kh4EAg7IFDfpSIuoFydf-e1jCwE5QPFA.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، روز سه‌شنبه ۳۱ شهریور اعلام کرد استیو ویتکاف، فرستاده ویژه آمریکا، و جرد کوشنر، داماد او، ساعاتی پیش در حاشیه نشست مجمع عمومی سازمان ملل به مدت سه ساعت با اعضای هیات جمهوری اسلامی دیدار کرده‌اند.
-ترامپ که در دیدار با ولودیمیر زلنسکی، رییس‌جمهوری اوکراین، با خبرنگاران صحبت می‌کرد، گفت این دیدار «خیلی خوب پیش رفت» و افزود نشست دیگری میان دو طرف در «آینده بسیار نزدیک» برگزار خواهد شد.
-ترامپ درباره احتمال توافق با جمهوری اسلامی گفت: «نمی‌توانم تصور کنم چرا آنها نخواهند توافق کنند. انتخاب آنها یا رسیدن به عظمت بالقوه است یا نابودی.»
-استیو ویتکاف نیز در پاسخ به پرسشی درباره ارزیابی خود از این دیدار، ابتدا از اظهارنظر خودداری کرد اما سپس گفت: «در حال حاضر احساس خیلی خوبی دارم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78494)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 20:49:36
-
-<img src="https://cdn1.telesco.pe/file/ZEx2lZFq4Q2Kj-c03hP8ZizE9w2FfPIgHcHDgLCHOwCncTSt9Bi8sz3nxawRon7vUk97kvVeAzt66vkDNvNOtYp-MjvFm67M6c_qt2Z90qp0_QvaJU2uyg79PcXtSono_kUzfWXBtlOpn2OkDJGPiWXNWGKby5n7OSN7b8fRxnV9KXheDO6XnNqYXP5OdPaqVlWDIMTjIi5Wdl5Kg5vLqV1eyR5hdYAsp1F4F52obsa9nfX4CZHSOdr-4WE0lL8dmqqQhVGrOQHJqxmxmvJeg5PhX7x6gHjHQnfbBgODtIVypP2s76Nn0TVThueNcDH5L96vhZbwYF4okbSAyP_9ZQ.jpg" width="400"><br>
-
-پس از بیش از هفت ماه غیبت کامل از انظار عمومی و در حالی‌که هنوز هیچ صدا و تصویری از مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی منتشر نشده، روز سه‌شنبه ۳۱ شهریور، دست‌نوشته‌ای منتسب به او در رسانه‌های جمهوری اسلامی منتشر شد.
-بر اساس تاریخی که زیر امضای این نوشته وجود دارد، متن مورد نظر در دهم مردادماه، یعنی بیش از ۵۰ روز پیش نوشته شده است.
-در این متن که خطاب به مجید موسوی، فرمانده هوافضای سپاه پاسداران نوشته شده، نویسنده از او بابت گزارشی که محتوای آن مشخص نیست، قدردانی کرده و خواسته است که تلاش‌ها در زمینه زنجیره تامین ادامه یافته و گزارش آن مرتبا به او ارائه شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78493)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 20:43:51
-
-<img src="https://cdn4.telesco.pe/file/nSgz_QoImxJKames634Zh2WsH2TOCGxfsy9zX8wbR3aFKJTd8YpJzaFIIzD14i-x_SCzzMSX3_JKPELEp0-S0JOcVCxmc5IPlAXOGUe4_lDhXOXkORu-GYZSvXsITbgxMrsRGoPgcjGtdnrbbBDNFIclQ0C0z54EBiUS7KjizAYpjc57K4ofXpdBISNmMJn5eJEYla-AyXXpwWkN443dhYKepxlsxU54YWHbUdLLswHsW7zqipLomVmJpVhTATd83M_G_77tmelpT6JoIZZTllC5AQXD3-T66BoJNhyHy685QlyqEWApM0Khi12i7D2HULNEvfT9s3dWrjdX8PPicQ.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، در دیدار با اندی برنهام، نخست‌وزیر بریتانیا، در سازمان ملل در نیویورک گفت تهران و واشینگتن روز سه‌شنبه نیز در حال گفت‌وگو بوده‌اند و افزود: «فکر می‌کنم توافقی حاصل خواهد شد.»
-ترامپ گفت: «ما مانع دستیابی آنها به سلاح هسته‌ای شدیم. واقعا جلوی آنها را گرفتیم. آنها سلاح هسته‌ای نخواهند داشت و خواهیم دید چه اتفاقی می‌افتد.»
-برنهام نیز گفت در نخستین دیدار خود با ترامپ «ارتباط خوبی» با او برقرار کرده و دو طرف درباره خاورمیانه، جزایر فالکلند و مسائل تجاری گفت‌وگو کرده‌اند.
-او خطاب به ترامپ گفت بریتانیا آماده است نقش خود را در خاورمیانه ایفا کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78492)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 20:43:25
-
-<img src="https://cdn1.telesco.pe/file/jgHcCvU0_-A6eTupWx81j-FxYFDv4pCUsgIi-tWGXIz_xHOBDPdWDcIEl-MfejaU87PZNIaOkEG72h4UTPkWZZSUugjG9_Wv8BEqFv6wHrIghyBvIs5uDpelySEcnyMIPxKmefRvdNHussTbTvH5ekxFfUl3QRjzgAEPcebSDdRfaSvCELo2g2YMHP2Y45a3DWFfQ7VkOJMAgYDby3G4KBVzbswNGXijCc_xCKiR8ytH60lnyuDxQNLeoKMfFhb0r9Nm932_fXFatki-cDn0Eygv5SHWadymIamZJ2-Jih_kLfmj6EIOlZAmzOkkm3HqIBlQFE69w3-bskAOLKKVxA.jpg" width="400"><br>
-
-شیخ تمیم بن حمد آل ثانی، امیر قطر، روز سه‌شنبه ۳۱ شهریور در جریان سخنرانی در مجمع عمومی سازمان ملل متحد، با اشاره به درگیری‌های جاری، وضعیت کنونی منطقه خلیج فارس را «یکی از خطرناک‌ترین مراحل» تاریخ این منطقه توصیف کرد.
-وی ابراز تاسف کرد که بسته شدن یک آبراه بین‌المللی حیاتی که نزدیک به یک‌چهارم تجارت انرژی جهان از آن می‌گذرد، ممکن شده و شریان‌های اقتصاد جهانی به ابزاری برای فشار و چانه‌زنی تبدیل شده‌اند؛ موضوعی که هزینه آن را مردم سراسر جهان می‌پردازند.
-امیر قطر با اشاره به اینکه این بحران قیمت مواد غذایی و دارو را افزایش داده و معیشت مردمان بی‌ارتباط با جنگ آمریکا و اسرائیل علیه جمهوری اسلامی ایران را تحت تاثیر قرار داده، تاکید کرد که دوحه همچنان بر حل دیپلماتیک این بحران پافشاری می‌کند.
-وی خواستار بازگشایی تنگه هرمز به روی کشتیرانی تجاری و بازگشت به میز مذاکره شد تا از گسترش جنگ جلوگیری شده و زمینه برای رسیدن به یک راهکار پایدار جهت تضمین امنیت و ثبات کل منطقه، از جمله ایران، فراهم گردد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78491)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 20:41:31
-
-<img src="https://cdn4.telesco.pe/file/YMP392pneW__5NjS3Rx6T1bsVge9u8VWoJm4qJ78n4FmDJX9W1-MDDaCBW5iquvyeTZYI_dfreVjwuEg2vBIvyngyml8fzb_sY3Ugn5IId4A2ECgQTEaIXgyCWpB1e_4SQ9bVAaxqKP__G3U5sLfXDlLVNTi8po3HqR5FWOamfHXIftokfEnkIGa8U4MZ4f19W8bAaKNlNqynjxHb0xu1UWyvaexwEl2VgpswXWARk8nR1TkUAlX3PLlLzbsTsYWpsVq2iZNq1wJZPxRUU3fyrLvO1L4g0Lnh2JDq9MHjoWqCOw_-cenhiOV7LwN5rDjWNjE_0p4ITv44vK50SIwUA.jpg" width="400"><br>
-
-پایگاه خبری اکسیوس، روز سه‌شنبه ۳۱ شهریور ۱۴۰۵، گزارش داد چند کشور عربی که میان آمریکا و جمهوری اسلامی میانجی‌گری می‌کنند، در حال رایزنی با دو طرف برای برگزاری یک دیدار در سطح بالا در حاشیه نشست مجمع عمومی سازمان ملل در نیویورک هستند.
-بر اساس گزارش اکسیوس ، کشورهای عربی تلاش می‌کنند از حضور مقام‌های ارشد دو طرف در نیویورک برای شکستن بن‌بست در جنگ میان آمریکا و جمهوری اسلامی استفاده کنند.
-مارکو روبیو، وزیر خارجه آمریکا، روز سه‌شنبه به شبکه ان‌بی‌سی گفت دونالد ترامپ برای دیدار با مقام‌های جمهوری اسلامی در نیویورک آمادگی دارد، زیرا به گفته او، گفت‌وگو با طرف‌های درگیر برای حل مشکلات اهمیت دارد. روبیو در عین حال گفت هنوز چنین دیداری برنامه‌ریزی نشده است.
-ترامپ قرار است روز سه‌شنبه با نمایندگان ۹ کشور عربی درباره جنگ دیدار و گفت‌وگو کند. منابع منطقه‌ای گفته‌اند شماری از این کشورها از ترامپ خواهند خواست از تشدید تنش با جمهوری اسلامی جلوگیری کند و برای دستیابی به توافق تلاش کند.
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، نیز صبح سه‌شنبه در نیویورک با محمد بن عبدالرحمن آل‌ثانی، نخست‌وزیر قطر، دیدار کرد. قطر یکی از میانجی‌های اصلی میان تهران و واشنگتن است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78490)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 19:43:33
-
-
-
-بخش‌های مربوط به ایران در سخنرانی ترامپ در سازمان ملل
-با تشخیص و ترجمه ماشین
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78489)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 18:46:52
-
-
-
-"جمعیت ایرانیان برای رد شدن از مرز زمینی رازی."
-شهرستان خوی- مرز زمینی بین ایران - ترکیه. میرن اونجا شهر "وان" فرودگاه
-.
-Sam1Kia
-پیام دریافتی: ابی در وان ترکیه کنسرت داره.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78488)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 17:36:36
-
-
-
-🔻
-ترامپ: ایران در پی ساخت موشکی بود که می‌توانست اروپا را هدف قرار دهد
-▪️
-رئیس‌جمهور آمریکا در سخنرانی خود در مجمع عمومی سازمان ملل گفت ایران به ساخت ذخایر گسترده موشکی و پهپادی ادامه داده و مدعی شد تهران موشکی ساخته بود که توان هدف قرار دادن اروپا را داشت. او گفت هدف ایران این بود که در پوشش چنین توان موشکی‌ای، به سوی ساخت سلاح هسته‌ای حرکت کند.
-▪️
-ترامپ همچنین با اشاره به حمله هفتم اکتبر گفت عاملان این حمله از سوی ایران تامین مالی شده بودند و افزود حکومت ایران «چنین خشونتی را جشن گرفت». او سپس حکومت ایران را به کشتار گسترده شهروندان خود متهم کرد و گفت چنین حکومتی نباید امکان فعالیت «در پشت سپر هسته‌ای» را پیدا کند.
-@
-VahidOnLive
-🔻
-ترامپ: هرگز اجازه نخواهم داد ایران به سلاح هسته‌ای دست پیدا کند
-▪️
-︎ دونالد ترامپ در سخنرانی خود در مجمع عمومی سازمان ملل، جمهوری اسلامی ایران را «بزرگ‌ترین حامی تروریسم» خواند و گفت که حکومت ایران سال‌ها در خاورمیانه «مرگ، ویرانی و هرج‌ومرج» گسترش داده است.
-▪️
-︎ او گفت: «هرگز اجازه نخواهم داد ایران به سلاح هسته‌ای دست پیدا کند» و افزود پس از آغاز دوره ریاست‌جمهوری‌اش، مذاکراتی را با ایران آغاز کرد و در مقابل پایان برنامه هسته‌ای و حمایت از تروریسم، پیشنهاد همکاری اقتصادی کامل داد، اما به گفته او ایران این پیشنهاد را رد کرد.
-▪️
-︎ ترامپ همچنین گفت که ارتش آمریکا در عملیات «چکش نیمه‌شب» برنامه هسته‌ای ایران را هدف قرار داد و پس از آن نیز از تهران خواست توافق کند، اما ایران بار دیگر نپذیرفت. او سپس ایران را به ادامه انباشت موشک‌ها و پهپادهایی متهم کرد که به گفته او امنیت نیروهای آمریکایی و دیگر کشورهای منطقه را تهدید می‌کرد.
-@
-VahidOnLive
-🔻
-دونالد ترامپ: تصور کنید حکومت پلید ایران پشت سپر هسته‌ای حملات تروریستی انجام دهد
-▪️
-︎ دونالد ترامپ گفت: «فقط تصور کنید اگر چنین حکومت پلیدی روزی قادر می‌شد در پناه یک سپر هسته‌ای حملات تروریستی گسترده انجام دهد. این واقعیتی بود که باید با آن روبه‌رو می‌شدیم؛ واقعیتی که افراد بسیار زیادی ترجیح دادند آن را نادیده بگیرند.»
-▪️
-︎ او افزود: «در حالی که دیگران حرف زده‌اند، من عمل کرده‌ام. در حالی که دیگران از صلح سخن گفته‌اند، من آن را برقرار کرده‌ام. در حالی که دیگران تهدیدها را نادیده گرفته‌اند، من با آنها مقابله کرده‌ام.»
-▪️
-︎ ترامپ گفت: «من از آن برای تبدیل آمریکا به قدرتمندترین کشور جهان استفاده کرده‌ام.»
-@
-VahidOnLive
-🔻
-ترامپ: امیدوارم پس از انتخابات با ایران به توافق برسیم
-▪️
-︎ دونالد ترامپ در ادامه سخنرانی خود در مجمع عمومی سازمان ملل گفت که آمریکا باید فشار بر ایران را حفظ کند و افزود نیروی دریایی آمریکا تاکنون بیش از یک میلیارد بشکه نفت را از تنگه هرمز اسکورت کرده است. او گفت اکنون نفت بیشتری نسبت به هر زمان دیگری از آغاز جنگ از این مسیر عبور می‌کند.
-▪️
-︎ ترامپ سپس گفت که در برابر ایران با یک «تصمیم بزرگ» روبه‌روست: یا توافقی حاصل شود که به گفته او به ایران امکان بازسازی و تبدیل شدن به کشوری «بسیار بزرگ‌تر» را بدهد، یا آمریکا مسیر نظامی را در پیش بگیرد. او در عین حال گفت: «فکر می‌کنم درست بعد از انتخابات به توافق خواهیم رسید، چون منطقی نیست که آنها توافق نکنند.»
-@
-VahidOnLive
-🔻
-ترامپ: نیروی دریایی و نیروی هوایی ایران از بین رفته‌اند
-@
-VahidOnLive
-🔻
-ترامپ: انتخابات در تصمیم من درباره ایران تاثیری ندارد
-▪️
-︎ دونالد ترامپ در ادامه سخنرانی خود در مجمع عمومی سازمان ملل گفت ایران ممکن است منتظر نتیجه انتخابات میان‌دوره‌ای آمریکا باشد، اما تاکید کرد این انتخابات در تصمیم او درباره ایران «اصلاً وارد محاسباتش نمی‌شود.» او گفت: «تنها چیزی که اهمیت دارد این است که ایران هرگز سلاح هسته‌ای نخواهد داشت.»
-▪️
-︎ ترامپ همچنین گفت برخلاف ادعاهایی که به گفته او مطرح می‌شود، آمریکا با کمبود مهمات روبه‌رو نیست و ذخایر تسلیحاتی این کشور با سرعتی بی‌سابقه در حال افزایش است.
-VahidOnLive
-🔻
-ترامپ: اگر توافق نشود، جمهوری اسلامی ایران را نابود می‌کنم
-▪️
-︎ دونالد ترامپ در مجمع عمومی سازمان ملل گفت باید تصمیم بزرگی بگیرد که اگر توافقی حاصل نشود جمهوری اسلامی ایران را نابود خواهد کرد. او گفت فکر می‌کند ایران بعد از انتخابات میان دوره‌ای با آمریکا توافق خواهد کرد.
-▪️
-︎ او بار دیگر گفت جمهوری اسلامی ایران بزرگترین حامی تروریسم در دنیاست اما اکنون دیگر تهدیدی نیست چون آمریکا برنامه هسته‌ایش را نابود کرده است.
-▪️
-︎ رئیس‌جمهور آمریکا بار دیگر گفت اخیرا ده‌ها هزار معترض اخیرا در ایران کشته شده‌اند.
-▪️
-︎ او از اروپا انتقاد کرد که متوجه تهدید موشکی ایران نبوده است.
-▪️
-︎ آقای ترامپ بار دیگر گفت تمام قوای نظامی و اقتصاد ایران نابود شده است.
-▪️
-︎ او همچنین گفت دولتش در ۱۲ ماه گذشته بیش از هر دوره‌ای در تاریخ آمریکا در زمینه نظامی سرمایه‌گذاری کرده است.
-@
-VahidOnLive
-🔻
-ترامپ از همه کشورها خواست ایران را «به‌طور کامل از نظر اقتصادی منزوی کنند»
-▪️
-︎ دونالد ترامپ در ادامه سخنرانی خود در مجمع عمومی سازمان ملل از همه کشورها خواست به آمریکا بپیوندند و «انزوای کامل اقتصادی ایران» را اعمال کنند؛ تا زمانی که به گفته او تهران حملات به کشتی‌های تجاری را متوقف کند، از «جاه‌طلبی‌های هسته‌ای» خود دست بکشد و حمایت از تروریسم را پایان دهد.
-▪️
-︎ او حکومت ایران را «ضعیف و مستأصل» توصیف کرد و گفت اگر کشورها متحد بمانند، به گفته او «تهدید ۵۱ساله تروریسم ایران» پایان خواهد یافت و قیمت نفت نیز کاهش پیدا خواهد کرد.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78487)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-22 17:33:24
-
-<img src="https://cdn4.telesco.pe/file/QZG6cAhMAanMcBHJ2a1KHPcaRLUJvrmD4o-js8sj7F1QPrtv-16su2fwGHNEn5GiratqEXUhFSCZzSoqdHJR7n9nOQHG0hYTIRDtN7qHdyiDhq4HSDCyvxgtxDijcDw94HrUpQEQ8NnlTUioJ_EuCw3OAlB6nf_Rbhd6OwFYDTgmLqWzghzUieFf14IahsyWKRLESKhTD58aYfb8qB2Lz6LmkYI0HHnDHIqmRFRzCzxi9WB2e2C0Vu8f-ctuQ3MN89RHXRS0J_Y01PZgV5KnSB1c-pj-H4tSqmsIfLtStDc6VIExA2PhVhFNPLmImW2QUkRsDgt2qO1GpQFhyxgERg.jpg" width="400"><br>
-
-یک مقام ارشد جمهوری اسلامی گفته است تهران پیشنهاد کرده در صورت کاهش فشار نظامی آمریکا و برداشتن گام‌های اولیه برای پایان محاصره بنادر ایران، تنگه هرمز را ظرف هفت روز بازگشایی کند و به مذاکرات با واشنگتن بازگردد.
-خبرگزاری «کیودو» روز سه‌شنبه۳۱شهریور۱۴۰۵ به نقل از این مقام، که نامش اعلام نشده، گزارش داد این پیشنهاد از طریق میانجی‌ها به دولت آمریکا منتقل شده و بخشی از تلاش تازه تهران برای احیای مذاکرات با واشنگتن است.
-براساس این پیشنهاد، جمهوری اسلامی خواهان ازسرگیری مذاکرات با هدف رسیدن به توافقی برای «پایان دائمی مخاصمه» میان ایران و آمریکا است.
-این مقام گفته است تهران در مرحله نخست انتظار دارد واشنگتن نشانه‌هایی از آمادگی برای بازگشت به مذاکرات نشان دهد و اقداماتی را برای پایان محاصره نظامی بنادر ایران و توقف عملیات نظامی مرتبط با تنگه هرمز آغاز کند.
-در صورت برداشته‌شدن این گام‌ها، جمهوری اسلامی آماده است ظرف هفت روز مسیر عبور کشتی‌ها از تنگه هرمز را باز کند و به میز مذاکره بازگردد. این مقام تاکید کرده است آمریکا برای پیشرفت دیپلماسی باید «جدیت و تعهد» خود را نشان دهد.
-کیودو نوشته است پیشنهاد تازه تهران به تایید «مجتبی خامنه‌ای»، رهبر جمهوری اسلامی، و شورای عالی امنیت ملی رسیده است. مقام ایرانی مشخص نکرده که آیا این پیشنهاد به معنای عقب‌نشینی تهران از بخشی از هفت شرطی است که پیش‌تر برای مذاکره و بازگشایی تنگه هرمز مطرح شده بود یا خیر.
-براساس گزارش کیودو، شورای عالی امنیت ملی ۲۵مرداد تصمیم گرفته بود اگر آمریکا ظرف ۴۵ روز محاصره بنادر ایران را پایان ندهد، جمهوری اسلامی گزینه حمله دوباره به نیروهای آمریکایی را برای خود محفوظ نگه دارد. این مهلت اکنون به پایان خود نزدیک می‌شود.
-هم‌زمان، یک مقام ارشد ایرانی به «رویترز» گفته است هیات جمهوری اسلامی در مجمع عمومی سازمان ملل در نیویورک اختیار کامل برای احیای گفت‌وگوهای دیپلماتیک با آمریکا دارد و جزییات توافق احتمالی می‌تواند از طریق کشورهای میانجی در نیویورک بررسی شود.
-مقام ایرانی احتمال دیدار «مسعود پزشکیان» و «دونالد ترامپ» در حاشیه مجمع عمومی را رد کرده، اما گفته است همچنان «امکان حرکت به‌سوی توافق» وجود دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78486)
 
 ---
 
