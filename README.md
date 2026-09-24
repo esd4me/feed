@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-24 19:05:53 </h5>
+<h5> 🟢 Updated at: 2026-09-24 23:07:27 </h5>
 </div>
 
 
@@ -223,7 +223,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-23 21:53:38
 
-<img src="https://cdn1.telesco.pe/file/rWtU70fU6RaLLnKfZ-7xssrWCaTM8IBpUVCkFzRFeTzG5uiRVVCJZluR9-Sa0dygAoFb-G9ViCFXR1Q57nAw41KmJKvanbFBRcR4Ia4-fuZgKaBNOxXYfhrw8-qSTiNUyTx6v_uXhamOtabQ9IHdFJ5ILiUNU4TLE6m4d8IKOdJwj1SqG_SRReD7NpqIP0ZXIRvbbh49GrgiBcWTnCnZ6v1Me85-LUrTJcMY1TmOwygcz03QEAaIevkMiUWD_3rX7HCvYWlIY9cXfX5Alm17vmjDrwTjO9F50fOA9THGSpufZlRfEruF2C1i8EJPCe9-uTtJekAz22loNt9NWg8D5Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Y4DoWykfClIbxpnrVAalim_otTXWL8V1G-fGdXj_B2rawpKsmUvpynhy1zPDty-wofAbcN601Mo3D_fnn_sABvt9LAgXutCMm2CHAlCgaGlYjUgfn6_ptTHI_s3LKnBhCrVe937KZhmPAWJLtkiexgEr9D4YaQod4X95mMq14kl6rBOytX1Ej8u3mcNE4vrGMFGlwp2pVl3NdcowsQ8-alnL2e_uFPmd5AFAmKlW21KoFfx5JkoHXz1NyGVygkfC66Fma1JzCwO9SykmSQmla4rRk16_xj2A25ZnDp0cPm9lv0lBa4SHZ3OW5Ft6JBKrp2dUWHxt5_crnk7S9qVspg.jpg" width="400"><br>
 
 روابط‌عمومی قرارگاه قدس نیروی زمینی سپاه پاسداران، از کشته‌شدن سرتیپ حسین ظریفی، فرمانده عملیاتی قرارگاه سجاد شهرستان سراوان، در جریان یک درگیری مسلحانه در این منطقه خبر داد.
 روابط عمومی سپاه، روز اول مهر ۱۴۰۵، در بیانیه خود نوشت ظریفی در جریان «آخرین عملیات رزمندگان این قرارگاه در منطقه سراوان» کشته شده است.
