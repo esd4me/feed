@@ -3,8 +3,156 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-25 15:56:21 </h5>
+<h5> 🟢 Updated at: 2026-09-25 21:08:18 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-25 17:15:59
+
+<img src="https://cdn4.telesco.pe/file/esRLnxSiaYwAS9gsZpKqAcav_BSl711JoNBbE4uNVqcKOh2KnfjYEmpii6Gi7Rd8YmR_nX1bvIUNuMdtp3IFDX3UNONKdtrZ-ar7dE-3iVbtbp_Br0aoIKv0dH2_2zJKVYnQZWaIZUTPLTyoEZ6o9piEXqnumWUQrmCSmHXGxNs2igZC15AgE4W18kXtOAZ8IZdalxeqOz5BPXyNkPTRrLN48E-KzDdno6h7Ei3ko-bgntjuv3On9B4AWNHzWVHKTEhg1cHZAviWpvxJ_an4O2bgfueAAG896FPrWd6Ynzkx9ejUol5TC09RkaRR9E31w2D4eJ7urO0lpQUOj6N2hg.jpg" width="400"><br>
+
+محمد مخبر، مشاور رهبر جمهوری اسلامی ایران، هشدار داد که در صورت تداوم محدودیت‌ها و قطع خدمات فرودگاهی برای پروازهای ایرانی، هیچ‌یک از کشورهای منطقه نیز اجازه نخواهند داشت از خدمات پروازی بهره‌مند شوند.
+مخبر روز جمعه، سوم مهر در شبکه اجتماعی ایکس نوشت: «همسویی با آمریکا در اجرای سیاست‌های خصمانه در خاطر ملت ایران ماندگار خواهد بود، هر چند راهبرد ما در این مورد مشخص است: پرواز در منطقه یا برای همه آزاد است، یا برای هیچ‌کس.»
+پیش از این محسن رضایی نیز تهدیدهای مشابهی را مطرح کرده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78529)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-25 17:15:03
+
+<img src="https://cdn4.telesco.pe/file/fIw5Bei9PGZ4SjiFJMNBemRO-83iGJuTVHn7us84sDJjr2CzMTORnNAxo24r1oUtaN5oeMOIjMruHSfBl0c3ZbwmIvSri7O-OGq_EsvHVe1IRUif4ayuI1PuFtb86f3gF2K-KUwrMf6gSZnYQrYLjFbrfaW4-7yFdctvvmX6zjLh6g-jxn1pwoKk4amPSy8a7eCCpjWExrzDqyQtdM5UNbJFqMCwpJVv2wu5tQLuL-t87Z4gkVWikB5N3yMtG2PuQ2JuyE0Tkop2wJ5N09JKbb7XuYAfR6SG6SCJxrSumpfvYtzO72CTPPmCYFOX-TA5fhGAyomNQlyXDkLCo9f5Yg.jpg" width="400"><br>
+
+خبرگزاری رویترز به نقل از دو منبع مطلع خبر داد که فرودگاه‌های اربیل و سلیمانیه در اقلیم کردستان عراق از روز جمعه سوم مهرماه پرواز هواپیماهای ایرانی را معلق کرده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78528)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-25 17:14:27
+
+<img src="https://cdn4.telesco.pe/file/Frd8pBLfem0FI5iHVupHvNUdl6dYRFJCNgNsZBqe3xiw388HW6zeLj9vPRSp1yMPYTh95o9k-zFZAXA-uY1QB3ndj2KDlDVGqTbXoI6PpbwXGHnpw1kqdOdtlwdeGp08GCucEWuLf6K9tqXg_-S369iavXTNm0oJ4iGdTbsXQy24LKKen6qlBdEMvsL-B9c-xy_x_G5BvI306giEAKnu5vRXfQ-6TMddHApt9es5k0JNAnW6M2oXpHcKW1yr7U89OG0u5tuYhdf-QS5CcEowLDjtmW6pH3Ie09V6aTK47zCvis9O_pV6IkbmrJ0BTBVZpq8vqYKFvirLoC4rjmbTxw.jpg" width="400"><br>
+
+خبرگزاری رسمی عراق از توقف تمامی پروازهای ورودی و خروجی از مبدا و به مقصد ایران، از فرودگاه بین‌المللی نجف خبر داد.
+مدیریت فرودگاه نجف با صدور اطلاعیه‌‌ای اعلام کرد: بر اساس دستورالعمل‌های رسمی صادرشده از سوی نهادهای ذیربط، تصمیم گرفته شد تمامی پروازهای فوق، از ساعت دو بامداد روز جمعه سوم مهرماه تا اطلاع ثانوی متوقف شود.
+پیشتر فرودگاه بین‌‌المللی بغداد نیز از توقف پروازهای ایرانی خبر داده بود. این اقدام در پی تحریم‌‌های اعمال‌شده از سوی ایالات متحده علیه خطوط هوایی جمهوری اسلامی اتخاذ شده است.
+روز پنجشنبه نیز فرودگاه‌های امارات به همراه برخی از کشورها از جمله ترکمنستان و آذربایجان، از اعمال این تحریم‌ها خبر دادند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78527)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-25 17:13:21
+
+<img src="https://cdn4.telesco.pe/file/U3uaUPUPSz54dEcjN0p35iTImJ_aImXXwLp_woHJWyUts7ZknRyInzhcPr-Tp9URkqecVaE0ctnJZJHDYSQcOBknxz79U3f2YKgc-NHFR6WRxu7noAUj2bIyzgpM4Nn67St--U0q13rnxZTR-LOi8BNpalznZbzZfya47Zesgz2gb1dbZsTuzn91Pcn1m2bzH8ymQ8XiU0cHJD4Yb4qK3e9S25lb9waGvmRKlFrFsD-KEyUSU5BIKfJV1uY43uvUXnj7Inwc4Oaxz9s87NIqfvma-SUFlCHLi2L40S03m7FBS9RL6OeldaPS7_4DnWKWZaIM47F1oXxMWsRiDGwDkg.jpg" width="400"><br>
+
+شبکه اسکای‌نیوز می‌گوید وزیر امور خارجه بریتانیا در دیدار با همتای ایرانی‌اش به او گفته است که بریتانیا «ارعاب، تهدید یا اقدامات خصمانه در خاک خود» را از سوی گروه‌های وابسته به ایران تحمل نخواهد کرد.
+اسکای‌نیوز این گزارش را روز پنج‌شنبه دوم مهر به نقل از منابعی در وزارت خارجه بریتانیا منتشر کرده اما منابع رسمی دولت هنوز آن را رد یا تأیید نکرده‌اند.
+اد میلیبند و عباس عراقچی روز پنج‌شنبه در حاشیه نشست مجمع عمومی سازمان ملل متحد با یکدیگر دیدار کردند.
+وزارت خارجه ایران می‌گوید عباس عراقچی در این دیدار از اقدامات آمریکا و اسرائیل انتقاد کرده و گفته است ناامنی منطقه و تنگه هرمز پیامد حملات نظامی آمریکا و اسرائیل «با حمایت برخی کشورهای اروپایی» است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78526)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-25 17:11:31
+
+<img src="https://cdn4.telesco.pe/file/EfFafcSTSwDm9ADfnKZaCNxX_qHETmxeDu_jl8c0O5-OSmXxdV_ZEf-DnC6na0zukhQZsBf55yjfEpMGu3A6PL_cJaimBQFfPV7Ie131XlpwrS_3VWIL2c14kVWMcUc5-cADgOf1S10GubLFHVdhD-o1HP3dmn8uK3L6cjsi7sZ-mPFrnjq2ie7Ql_1aQS3YhEmc6xMm0hjOL6uXz31FznlC7OZW9ToXhuy8tjN5iZq_muBjRB-ZPoXbyn3shrHy6MhERWhv0_OMJLvSYK2uHfgF8hYjL34C5-eKuTZabxx-Zg-60CQ1SPh5DUuFJ5a8s9MdA7Qxr8IYekYwQcOhCg.jpg" width="400"><br>
+
+رئیس‌جمهور فرانسه از اعزام نیروها و تجهیزات نظامی این کشور برای محافظت از یکی از تأسیسات نفتی عربستان سعودی در مقابل حملات خبر داد.
+امانوئل مکرون روز پنج‌شنبه دوم مهر در یک گفت‌وگوی تلویزیونی اعلام کرد که فرانسه در پی حملات شبه‌نظامیان حوثی یمن، «تجهیزات و نیروهای نظامی» را برای کمک به حفاظت از بندر راهبردی «ینبع» در عربستان اعزام خواهد کرد.
+او گفت: «ما برای حفاظت از این تأسیسات، امکانات نظامی شامل نیرو، رادار و سامانه‌های دفاعی اعزام خواهیم کرد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78525)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-25 17:10:46
+
+<img src="https://cdn4.telesco.pe/file/CyZWpGdGA1HAIg2Sy5R0aI3jHb7sh-BYRCDZQYQl6ued2VfRGCvrF7AoNWI7FpTnowrs0DskXY4HMEXDCoyrp1y_-sP9dazQdwLyKLbMHGmVLzg2mNXgXSs3EcSaZ0YA82FNO5Mj2wwbKfkRNOB7l6QJ6K7-JBBEIRie3kmp9XiLUdQ3IrSsWx7TKQbSAmSdpwfP92AYDiPvR6LLno5F4fhCEqbgWr0KMQaNKIjVyJQTP6M7xNXr5Xx_fW0EX2G1f92M6hogfeVcaDiJ4OEJYx8ATGCN9tP_UsxLJf4W9ARliQguxxfeSlHj-1pPN8vh2yw52jp_fSxICV1rzOhtvQ.jpg" width="400"><br>
+
+دبیر کل ناتو با اشاره به تشدید تحریم‌های اقتصادی آمریکا علیه جمهوری اسلامی اعلام کرد مردم ایران هر روز آن را احساس می‌کنند، اما برای رژیم حاکم ایران منافع مردمش اهمیتی ندارد.
+مارک روته در گفت‌وگو با فاکس‌نیوز تصریح کرد دولت دونالد ترامپ با حملات خود، برنامه هسته‌ای و موشکی جمهوری اسلامی را که «تهدیدی برای اسرائیل، خاورمیانه و اروپا» است تضعیف کرده و اکنون فشار اقتصادی بر جمهوری اسلامی را تشدید کرده است.
+او در پاسخ به سوالی درباره اظهارات بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مجمع عمومی سازمان ملل مبنی بر اینکه بزرگترین ترس جمهوری اسلامی از مردم ایران است، تصریح کرد که به نظرش این حرف درست است و مردم ایران از دست حاکمیت به ستوه آمده‌اند.
+بیشتر بخوانید
+.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78524)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-25 17:09:22
+
+<img src="https://cdn4.telesco.pe/file/qNt4Hx3e0o3iFxPQRLw-htpad2rmiUUiXRSLIUzr_8vJo7h5qF8muw0b0eB-FvAYQB9W-CB_32MVRT-Q2aFj47wekPw6oiYvGq0Xk-XOCo8UvmOahlOb_KZbeISUUp3OEoiRhPItKDBtYlktlDV4qRnwkkO5VOj_w2lFt-yyvQtZJr5fsUj_-nA_ck4GYUA5djoDclwJfnAQjafv8pVT_JeKR_ywaAKrWTJK7FVXhGDNZ79VHDsP_HmfDD5RzIkCDu8eY-RRQkvXoNfvI9Exm9sECbc_bH9IPbJvIwXASmFj7w-4MSRgofXsO25eyrfWcxDAe2YE_gMbowxKJw3ngA.jpg" width="400"><br>
+
+دولت کلمبیا روز پنج‌شنبه دوم مهر از قطع روابط دیپلماتیک این کشور با ایران خبر داد.
+در بیانیه دولت کلمبیا گفته شده است این تصمیم بر اساس ملاحظات مربوط به «امنیت ملی در سطح نیم‌کره» گرفته و از روز ۱۹ سپتامبر (۲۸ شهریور) اجرایی شده است.
+کلمبیا در بیانیه‌اش حکومت ایران را به داشتن ارتباط با «گروه‌های نارکو- تروریستی» متهم کرد که به‌گفتهٔ کلمبیا امنیت این کشور را تهدید می‌کنند.
+دولت کلمبیا همچنین تهران را به دلیل مسدود کردن تردد در تنگه هرمز و حمله به سایر کشورهای خاورمیانه در جریان جنگ با ایالات متحده و اسرائیل، به شدت مورد انتقاد قرار داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78523)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-25 17:09:08
+
+<img src="https://cdn4.telesco.pe/file/WzPuBkrKi5-Ct4vqdOis8HSlJFPG0rNpmYJ3ONn0F-gB8RrtWJGOLda5X1tdYzdQIsW4BRj5Tqyg3-m9xiKHssVZ8f43MI-_kLddQEumXl-BoiV1SploFmbfdx6cCM0l__eOZkPIIS8cLCDyWkDhhbtxnhkSQgOVT0nVvMSnXuFflFa_4lW_8_3p_sMjnExDDmwV6KmGTJXC1CBY_obPslW2acq0duAozu3pUnuPleRkMA4yeE4R1fsh3E1DV4AvPyRq9zzatzfn_cTUIDTtH6N8jeg67KxroyMvpUIjci5_gg64XTq9Dye_3xOzbQxHiXSZeyBvtghtckPCnp4IyA.jpg" width="400"><br>
+
+روزنامه بریتانیایی جوییش کرونیکل در گزارشی روز پنج‌شنبه دوم مهرماه از محاکمه غیابی هفت ایرانی و یک شهروند لبنانی از جمله محسن رضایی، دبیر شورای عالی امنیت ملی و احمد وحیدی، فرمانده کنونی کل سپاه پاسداران جمهوری اسلامی در پرونده بمب‌گذاری سال ۱۹۹۴ مرکز یهودیان آمیا در بوئنوس‌آیرس خبر داد.
+بر اساس این گزارش، دانیل رافکاس، قاضی فدرال آرژانتین، با صدور حکمی ۶۴۸ صفحه‌ای، اتهامات هشت متهم را به‌طور رسمی ثبت و دستور مسدود شدن دارایی‌های هر یک تا سقف ۵۰۰ میلیون دلار را صادر کرده است.
+احمد وحیدی، فرمانده کل سپاه پاسداران، و محسن رضایی، دبیر شورای عالی امنیت ملی، در کنار علی فلاحیان، علی‌اکبر ولایتی و چند مقام و دیپلمات پیشین جمهوری اسلامی از جمله متهمان این پرونده هستند. قاضی اتهاماتی از جمله قتل و جراحت با انگیزه نفرت نژادی یا مذهبی را مطرح کرده و بمب‌گذاری را جنایت علیه بشریت و نسل‌کشی طبقه‌بندی کرده است.
+مرکز آمیا تاکید کرد حق دانستن حقیقت، دسترسی به عدالت و تعهد بین‌المللی به تحقیق و مجازات جنایات علیه بشریت نباید به‌دلیل پناه گرفتن عامدانه متهمان در خارج از کشور بی‌اثر شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78522)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-25 06:05:27
@@ -47,44 +195,17 @@ VahidOOnLine
 
 
 
-مصاحبه پزشکیان با فاکس‌نیوز،
-بخش‌هایی از زیرنویس ویدیوی بالا،
-ترجمه ماشین:
-پزشکیان
-ما هرگز به دنبال سلاح هسته‌ای نبوده‌ایم. آنچه می‌خواهیم به آن پایبند باشیم، چارچوب پیمان منع گسترش سلاح‌های هسته‌ای است.
-🔺
-برت بایر:
-چرا به اورانیوم ۶۰ درصد غنی‌شده نیاز دارید؟
-🔻
-مسعود پزشکیان:
-ما مذاکراتی انجام داده بودیم و آماده بودیم این مواد را تا حد زیادی رقیق کنیم. اگر می‌خواستیم به ساخت سلاح برسیم، این کار را انجام داده بودیم. انجامش داده بودیم.
-ببینید، قرار بود به توافق برسیم. ما به توافق رسیدیم. اگر آنها حاضر باشند به توافق برسند، بیایید آن را روی میز بگذاریم، زیر نظر آژانس بین‌المللی انرژی اتمی، تا اجازه بازرسی داده شود.
-...
-گفتیم آماده‌ایم آنها را رقیق کنیم. مسئله بزرگی نیست. آماده‌ایم خودمان را در معرض راستی‌آزمایی قرار دهیم.
-مشکل این است که آمریکا، به جای گفت‌وگو، اول با بمباران ما وارد میدان می‌شود و همه راه‌ها را می‌بندد. ما آماده‌ایم. این شیوه رفتار در صحنه جهانی نیست.
-آنها می‌توانند آزادانه دسترسی داشته باشند و ببینند هرچه داریم؛ اما نه اینکه ما را زیر چنین فشاری و محاصره‌ای بگذارند و دسترسی ما به اطلاعات را قطع کنند.
-آنها می‌خواهند مسائل را، به جای مذاکره، با تبدیل کردن ما به هدف موشک و بمب حل کنند.
-🔺
-برت بایر:
-چرا ظرف دو هفته پس از امضای توافق، تصمیم گرفتند آن را منفجر کنند؟ چون سپاه پاسداران چند نفتکش را منفجر کرد. این ماجرا شرایط را تغییر داد.
-بگذارید ادامه بدهم. فقط چند سؤال دیگر دارم.
-یکی اینکه، در ماه مارس هشدار دادید که بدون آتش‌بس، اقتصاد ایران ممکن است فروبپاشد. این حرف مربوط به ماه مارس بود. گفتید ممکن است ظرف سه هفته تا یک ماه فروبپاشد. هشدار دادید که بدون آتش‌بس، اقتصاد ممکن است ظرف سه هفته تا یک ماه فروبپاشد.
-آن حرف شش ماه پیش بود. مرکز آمار خودتان می‌گوید اقتصاد ایران ۱۰ درصد کوچک شده است. تورم به‌شدت در حال افزایش است. ریال در یک سال بیش از نیمی از ارزشش را از دست داده است. بارگیری نفت از روزانه ۲ میلیون بشکه به حدود ۲۵۰ هزار بشکه کاهش یافته است.
-پس در چنین شرایطی، ایران تا چه مدت می‌تواند دوام بیاورد؟
-🔻
-مسعود پزشکیان:
-این چیزی است که ایالات متحده باعث آن شده است. ما به مقاومت ادامه خواهیم داد. راه‌هایی پیدا خواهیم کرد و زندگی کشورمان ادامه خواهد یافت. ما باقی خواهیم ماند.
-و ترامپ مدام می‌گفت: «می‌خواهم هدیه‌ای برای مردم ایران بیاورم.» اما هدیه‌ای که برای ما آوردند، موشک‌های هدایت‌شونده، سلاح‌های سنگین و ویرانی بود.
-آنچه واقعاً می‌خواهند انجام دهند، تحریک حوادثی در کشور است که زمینه را برای سقوط نظام، جامعه و کشور فراهم کند.
-🔺
-برت بایر:
-پس آیا در ماه مارس درباره این بازه زمانی اشتباه کردید، یا اقتصاد اکنون در حال فروپاشی است؟
-🔻
-مسعود پزشکیان:
-ما تا آخرین لحظه به مقاومت ادامه خواهیم داد. بله، قطعاً مشکلات اقتصادی داریم، اما برای باقی ماندن، هر سختی‌ای را پشت سر می‌گذاریم و تحمل می‌کنیم.
-اگر آمریکا فکر می‌کند با ادامه تحریم‌ها ما تسلیم خواهیم شد، می‌تواند این را در خواب ببیند.
-ما هیچ کاری به هیچ نوع انتخابات آمریکا نداریم. اگر دولت فعلی آمریکا، در چارچوب قوانین بین‌المللی، بخواهد به توافق برسد، بسیار خوب.
-اگر نه، پیش از انتخابات یا پس از انتخابات، چه فرقی برای ما دارد؟
+مسعود پزشکیان در مصاحبه با فاکس‌نیوز، از آمادگی جمهوری اسلامی برای توافق و کاهش غلظت اورانیوم غنی‌شده خبر داد، اما درباره محل نگهداری ذخایر هسته‌ای و تضمین تبعیت سپاه از توافق، پاسخ روشنی نداد.
+مجری این شبکه همچنین با اشاره به کشته‌شدن معترضان و حملات نظامی برخلاف وعده‌های رییس‌ دولت جمهوری اسلامی، پرسید: «چه کسی در ایران حکومت را در کنترل دارد؟»
+پزشکیان در این گفت‌وگو تاکید کرد جمهوری اسلامی خواهان جنگ نیست و مدعی شد جنگ به ایران تحمیل شده است. او گفت تهران آماده دستیابی به توافقی در چارچوب حقوق بین‌الملل است، اما فشار برای وادار کردن جمهوری اسلامی به تسلیم را نخواهد پذیرفت.
+او با اشاره به توافق و تفاهم‌نامه‌ای که به گفته‌اش پیش‌تر با طرف آمریکایی امضا شده بود، از تمایل به ادامه همان مسیر سخن گفت و آمریکا و اسرائیل را مسئول حملات و کشته‌شدن رهبر پیشین جمهوری اسلامی، فرماندهان، دانشمندان و مقام‌های دولتی دانست.
+بخش مهمی از مصاحبه به میزان اختیار پزشکیان بر نیروهای نظامی اختصاص یافت. مجری با کنار هم گذاشتن وعده خودداری از اعمال زور علیه معترضان، عذرخواهی از کشورهای همسایه بابت حملات و اقدام فرماندهان علیه کشتی‌ها بدون اطلاع «رییس‌جمهوری»، پرسید چرا تعهدهای او چند بار نقض شده است.
+پزشکیان ابتدا به آمار کشته‌شدگان اعتراضات پرداخت. هنگامی که مجری دوباره پرسید چه کسی تضمین می‌کند سپاه از توافقی که او امضا می‌کند پیروی کند، گفت قرار بوده گروه‌هایی برای هماهنگی، رفع سوءتفاهم و ایجاد کانال ارتباطی تشکیل شوند، اما فرصت راه‌اندازی آن‌ها فراهم نشده است. او همچنین نیروهای آمریکایی را به شلیک خودسرانه در منطقه متهم کرد.
+مجری در ادامه پرسید: «چرا رییس‌جمهوری ترامپ باید با شما مذاکره کند و نه با فرمانده سپاه، ژنرال وحیدی؟» پزشکیان در پاسخ، از بی‌اعتمادی عمیق میان تهران و واشینگتن و خروج ترامپ از برجام سخن گفت، اما توضیح مشخصی درباره حدود اختیار خود در برابر فرمانده سپاه ارائه نکرد.
+مجری با اشاره به آمار نهادهای حقوق بشری و گزارش مجله تایم، پزشکیان را به چالش کشید و پرسید: «شما جراح قلب هستید. چند نفر از ایرانیان در ایران توسط نیروهای امنیتی کشته شدند؟»
+پزشکیان بار دیگر آمار رسمی منتشر شده توسط حکومت را تنها آمار واقعی اعلام کرد. او گزارش‌های خارج از کشور را مغایر اطلاعات حکومت دانست و خواستار ارائه مدارک هویتی قربانیان شد. در عین حال، از ضعف مدیریت رویدادها ابراز تاسف کرد و گفت استفاده از سلاح در تظاهرات خیابانی پذیرفتنی نیست.
+ادامه گزارش :
+pezeshkian
 📡
 @VahidOnline
 
@@ -198,7 +319,7 @@ FattahiFarzad
 
 ###### 🔵 Post time: 2026-09-24 17:10:42
 
-<img src="https://cdn4.telesco.pe/file/dvHatdy8NeyF9kUnn3Qp_XQbQwuDvntKeOCE35zcIbv3ULvdg27S_DaHR1g3Jf7kNCROQLjrX3xFDGDYGSR1zWyVmxYkwH0yeuZCXTz7mUzIpuP0AV5ZwKO5YrVmhEmfwQ68OQwev0vub4EyODo9cdyZvchbIc1MCd0vMdO5dV_q1sWIahMHfqMZTQP-h5OYzzCzC115N94lHQ8IdE6p7dNepwt8MVxMcd0jQbtOn4C2qjOiXi5bklj-niApfLtNC8Yjyqjpg4B6y7wxkaDK0zVKTWzJKae-OY038B-FPhPUONBQBZiCfGEDPsMTvbLNbeq0Pwtf4GjQPdrphGp37w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/bUVWC3H5Mm8b0vtc92_-8UYLB1HLnbRU7pc9s9kNTJNS6D3mOQXvk-LoIHMtc4jDB-FoIDy0uuzkdU3fuuetDo-e7mrSem7hM2GjF8d5cf7Uc88nSr_dWsZDzbScW0oL5pPCs8oO_rlF9doknTn7ALR8EL3F_QJmZn2ePkmpDB8G-jMnEebqe03Q469rksezLNW5rlKBrIbGJBJNiShE-1u35au6EJRzQ0PEL95qh-dUD67N0hvAIByzM9-S815S8T5PMFBwqf4I-MtY8ydjpnMVubEayxyV7hZZ4OE6e4DFm6whwQxeKOmtRSW6RvIftAQS24KtzPG9b1rEtEOSxA.jpg" width="400"><br>
 
 شعبه دوم دادگاه انقلاب رشت ۹ وکیل دادگستری در استان گیلان را در یک پرونده مشترک به مجموع ۱۴ سال‌وهفت ماه‌و۱۵ روز حبس محکوم کرده است.
 هرانا خبر داد «معصومه پورشهرانی»، «طاهره پوراسماعیلی»، «شادی فلاحتی»، «غلامحسین لایقی»، «حسام احمدپور»، «لادن آصفی‌راد»، «محمدرضا تاک»، «کیان طاهر‌اجارود» و یک وکیل با نام خانوادگی «دلیلی» در این پرونده محکوم شده‌اند.
@@ -216,7 +337,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-24 17:09:32
 
-<img src="https://cdn4.telesco.pe/file/WXvBmt0yusVm7S2lxk3ec4yuHMqqncO2RwXjUhbZ8QNXy_gwP5CW2XGPunxiAinDKkUtkP2HBfND7x1aaRScgx8JPdOAmCBWxXC8JPUzcknfj2iJKdE3maGje6BJ0ZK1sA8_ZiAZ2onZUjtJu428q3yKNrP3ByU64VWiAzdHkbp6InkupFOcu6nVSmh25ACFU-mvtiW12F0n_AKvnOaw7SHOa_ZJ47elENH0ZRCs2XCstC56g0F7rwk6m-eDFYB6u8oZPxVYzs_v0kluS1HImcun8SY8-8DjWDdttpCNOzmYC37VwDhSakGxJpEJ0NAHskZBrct9s7ljAV74UqYTEw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BnPUR7ckBcp3mw8VwjoNuIEdB2Cvb9HGsvuN4DMXWRnaFXFlAv1KFXD78pf2bflDs9xEPV3EBlC-uXk_vKsduQDdN1hAuIzTA6I531Sla9lvi6iUu_sua3o7NAqcyM62oWztyFH6eWki9sHOCb6UsO9BQ4HzPH72tmxVuSbHc8Tj-NCoGjIsd5sRRjYn0ITP9_vZ4TZ9McB1Zelg5RqWvCAFGndob3e0ftLhxpDHwk9qF_ABOeiQrc494GwdtHNiWZVs3exGqONSNJ2F7kzQFHkJi6K6eOs_X35pjra5irmR5eGAWHaqO2uYdSjZp0_BR-19qI9IxElRbIWnhrYgbg.jpg" width="400"><br>
 
 امارات متحده عربی روز چهارشنبه اول مهر فعالیت بانک ملی ایران در این کشور حاشیه خلیج فارس را ممنوع اعلام کرد.
 این بانک در بیانیه‌ای اعلام کرد: «این اقدامات در نتیجه تخلفاتی مرتبط با رعایت نکردن مقررات، قوانین و تصمیمات نظارتی لازم‌الاجرا در امارات متحده عربی اتخاذ شده است.»
@@ -235,7 +356,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-24 17:08:45
 
-<img src="https://cdn4.telesco.pe/file/Cgn9lhzv77nFPMvZu4dlNVbB86knbdrBxIgyXr0PzJTXoGLs2YrinI382Jddzm__7zQSnHN8fVIC4k9oUET1G_n76WPEjsExfeb9u45NeT6kQyYg4eRzUfjl6dtTpEHOlnhHkuAdMOn_x2_pN7LqUzJC7K0npTWjshyuCefxLXbQHoeY4zbgYDLfGY9sG8mOngg0sRcnN_2V8KXCNl_YwbLBryr5f_GHQodj7brj4S0ZuacMYrE7D3NQ6YaU_323khhCwkygxGjhGfw25QmzDY7WTIFcRrBPTQzZ3VEmqyItTDieOA92z3upqJUHDKSXdtOG5Qy14HNpUaEJooT7kg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Igt72-CU6gkHwkTySJhVcU8AIrC0M2kfHUCr2mYR_Z0oBl4KpaOFndHUtw1VD3AIcXyAzopibt9rdPipl5OUDKvZBfZBIDLe2sOB0c0_huX5Dl22ompDdNsHfEECavuio93MGXfonqAkfb6hz2xbG3Q51LLHYPfk0Euf1fAXT6YEY_pOFiSYVcgDwLy_UH3vTyDJ-dEPfkMF3Hu4coTb6wco8DRA11raxu7jAYtkc0mlI45PcQ96rgbemjwbQtgg-C8jh8el8s_cXmKud-OIExVdEoe6d8DO3gvW8jXW0EDUftXDpnZyZCPo2xwdpq9F6_3pdZ71Ps77NDbHsh9s1Q.jpg" width="400"><br>
 
 در پی تاکید رئیس‌جمهور ایران بر ادامه برنامه هسته‌ای و عزم جمهوری اسلامی برای تسلیم نشدن در مقابل فشارهای آمریکا، ارزش ریال ایران دوباره روند نزولی گرفت.
 نرخ دلار در مقابل ریال ایران روز پنج‌شنبه با ۱.۴ درصد افزایش به ۲۳۵ هزار و ۴۰۰ تومان رسید.
@@ -254,7 +375,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-24 17:07:59
 
-<img src="https://cdn4.telesco.pe/file/NJyybGNmtQzptOLX-6DiI61G5bDjmlbmJ-Gy7eYHwl1AFAa9LsAgRMTtpKaUNROlcFGiUUzxF7eVYaSfkPVO4vSY1mZZKaWfGUq9YmiPKGNyzSZgNGyVqvt_0nEPNppAnJsUhv4_idKEMkLP0M2iT6UgSxpJEp2Pf6rNyndahCSFvBOCnclA5bjjGaBinTWPZYfW9V8x8GfGv0a1wF9V-O19TD2iUtSiXwfZjwAiDCMm5mHEM3r761QzftilyE7TTzlkADi9k6cZs-m4ibvJPXqNguoTDPr7hcRovrIw1-OHsQFpob8srSTWaeMJQIid2T6rT19EznRanHXfaPoyeQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/oEpG6xA9Dto1aFJC_cfdGqceOBjNBsLbszz8V7eHzdFKmmWXtdApah7BjZDLRGAaqrUZIu4H62GpmR8O_Fd-UIc5cIMSMeEZvpNfUlM4oomh6FTExY7G1kLgWvVGZ0yseP7aqeGVpycxRL_acBa2tfG5NaKf7aJnyfI5yNWEbvxE0Q_2IZ0aRSoy2Do3CQ76QUDy0wYaXfOQVeLi_k4BK26-qLx9OX0f-eprPbLK8PuU15YJD2sBBDfzt3GNG0wP85aFSSV5Te47YMMHw4wb3GKojwfOhzk0K9NoZG7nYgLwltKnVK9NbKKu4IFwyFxH_trDcqo0ZaX-kMKNiVnz1w.jpg" width="400"><br>
 
 شرکت ردیابی نفتکش‌ها «تانکر ترکرز» می‌گوید نزدیک به شش میلیون بشکه نفت خام توقیف‌شده ایران، به ارزش تقریبی ۶۰۰ میلیون دلار، در حال عبور از اقیانوس اطلس به مقصد ایالات متحده است.
 @
@@ -270,7 +391,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-24 17:06:23
 
-<img src="https://cdn1.telesco.pe/file/fEe9r_gdWNtcVwRN07nm1AMAAC68Rw8968PcGR_PqewIErYswx13GCa3iWuH6W_sqjgnu-CTyK1Ys5rKfTV_615KYN4zZAhyckgBg74GcwlUc6DIcgQJZ6xLqB4Y-UEhzzS-chc5qQXwpKhhGEDO7nMvyM5FxPExkL7d9V7ajhaOXmak2EgaVfeFMH59VDlGREax6hCKoWsUhN_4ye8_7O0LsICKsO7RjJSHTUhXgDuO9Vx8tGzHei_-SMuD1OYVExIEqAYnPMZA_LqlTreed5HFb06gwFk-9T42Jj1XTQcnavA2l9uxYcdBxEudKKAsxT1fW6V6Vv0MQ6ygiBALdw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rhsDapNm3eSz1wvZBVyW-1QXNCKRukKsE4rlAVkIExx1VCEPuA-54ywzkgwQgbCUqKMzKZ9e6aA74_cnYgDcoamiorVAtOjwrUay0f8o98X8I9ro-8STz_3MXAtj8vO-ekhe3RyZsDj3VGa2P7R8aCGMb3_iMaXOLAsh_HE2U7loq3CaDUjtXOGS59HYMxvUr002OTAOrC5bGYqMYVCSEV4bX7aU3SX9tDS8HTvekgfA-ZXNlv7NrVV0jPvFGgca_0YdnU79EbOaajDTOwS86FOhdNqrlTnqooT0_4C4-xyUwkjo90KFr2ff_UU7kkeQ4Ci2-o95kfqERYqHb8zvHg.jpg" width="400"><br>
 
 بر اساس اطلاعات رسیده به ایران‌اینترنشنال، همه پروازهای شرکت‌های هواپیمایی ایرانی به امارات متحده عربی لغو شد.
 پرواز شرکت‌های هواپیمایی ایرانی به امارات از شهرهایی از جمله تهران، کیش، مشهد و شیراز برقرار بود که اکنون لغو شده است.
@@ -282,170 +403,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78510)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:03:32
-
-<img src="https://cdn4.telesco.pe/file/V7DHLrHpHaQtOgbkg77C4MJGenGvSUSaZF1kBI-LspI6e8lSoAXNup3wwAgVsdRNABhoiJNZOc5W4Hokyqwn7P3WqbFr9V4VYU7S9kL_tYnoSESQ6eIVw_ztsqsE0m6lznjdluGkFDWd5W3MVbqHsWDnyyR2zhc7l_F6kGRy1D-tDw4E2Pez8gG9K5mDYyj0xnkncIGew2uq1BxkeL88wZsSOI82KrCtPnMVC63eX37q3srZnWQY1aR4eg0dvZLgAPq5v3QfAX2zw0T4qym4Lndk-Hjj5TRPoqd6vGnaVaU5rn_nXmoIukNssfjROxLMYDz6vxAEObVWFuXnBF5_9Q.jpg" width="400"><br>
-
-سازمان دفاع مدنی عربستان سعودی پنجشنبه دوم مهرماه، با صدور هشداری از تلاش دوباره برای حمله به مکه خبر داد.
-این هشدار برای شهر مکه صادر و پس از لحظاتی لغو شد.
-عربستان سعودی برای برخی از شهرهای ساحلی دریای سرخ از جمله طائف، جده و تبوک، نیز همزمان هشدارهایی صادر کرد.
-در همین ارتباط ترکی المالکی، سخنگوی رسمی نیروهای ائتلاف بین‌المللی، اعلام کرد که شش فروند موشک بالستیک شلیک‌ شده از سوی شورشیان حوثی، رهگیری و منهدم شده و پدافند هوایی نیز تلاش برای هدف قرار دادن طائف و ینبع را خنثی کرده است.
-هفته گذشته نیز عربستان سعودی، شورشیان حوثی را متهم به تلاش برای حمله موشکی به شهر مکه کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78509)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:01:47
-
-<img src="https://cdn1.telesco.pe/file/lV9rvtUT2J86Wt5FIMY2Kqns1clk-lvcM9QMQrjGD-UllF_SjLfQ5X26A-23cqtnJ_JXTmqK82OvzZDdU5HhrfviHZPdLK6IHsCROAw__AtGor_8QMqzljfsGd9gd7WCqgxEm92tcP-HIETLQSVnIkMtAy2-gGXXVe7k70DwzeupNHBj5diGEnqWoL_RqavCf9ZB-gW-h413iXEcXKabgsVsZtQ91thI66zFKDXT7G7SOhfDVBRIpeoXJTuOoHZ3_a-Q7BYWj9xgwFwWidaW3NjsqH-WxemnTqyxTCKQvfmDs8LOSzktT_xCOt9g9pvJNmxAF-5EIXCMs_IR0VVghA.jpg" width="400"><br>
-
-حکم اعدام «ارغوان فلاحی»، زندانی سیاسی محبوس در زندان اوین، پس از پذیرش اعاده دادرسی متوقف شده و پرونده او قرار است برای رسیدگی مجدد به شعبه هم‌عرض فرستاده شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78508)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:00:28
-
-
-
-۹ تن از آسیب‌دیدگان چشمی خیزش مهسا با انتشار پیامی ویدیویی، خواستار لغو حکم اعدام علی زارعی شدند.
-غزل رنجکش، عرفان رمیزی‌پور، مرسده شاهین‌کار، مجید موافق، حسین نوری‌نیکو، حمیدرضا حیدری، سالار وطن‌شناس، پارسا قبادی و علی دلپسند در این پیام از مردم و نهادهای حقوق بشری خواستند در برابر جنایات جمهوری اسلامی سکوت نکنند، صدای علی زارعی باشند و برای جلوگیری از اجرای حکم اعدام او تلاش کنند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78507)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 00:33:58
-
-
-
-پیام‌های دریافتی:
-ساعت ۰۰:۱۳
-انفجار شدید بندرعباس
-همین الان بندرعباس موج انفجار حس شد
-وحید قشم لرزید
-انفجار دریا بود
-00:24  بندرعباس، صدای خفیف انفجار از دور
-سلام حدود ساعت ۱۲ یه موج شدید پنجره های ما رو تو بندرعباس لرزوند
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78505)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-23 21:53:38
-
-<img src="https://cdn1.telesco.pe/file/Y4DoWykfClIbxpnrVAalim_otTXWL8V1G-fGdXj_B2rawpKsmUvpynhy1zPDty-wofAbcN601Mo3D_fnn_sABvt9LAgXutCMm2CHAlCgaGlYjUgfn6_ptTHI_s3LKnBhCrVe937KZhmPAWJLtkiexgEr9D4YaQod4X95mMq14kl6rBOytX1Ej8u3mcNE4vrGMFGlwp2pVl3NdcowsQ8-alnL2e_uFPmd5AFAmKlW21KoFfx5JkoHXz1NyGVygkfC66Fma1JzCwO9SykmSQmla4rRk16_xj2A25ZnDp0cPm9lv0lBa4SHZ3OW5Ft6JBKrp2dUWHxt5_crnk7S9qVspg.jpg" width="400"><br>
-
-روابط‌عمومی قرارگاه قدس نیروی زمینی سپاه پاسداران، از کشته‌شدن سرتیپ حسین ظریفی، فرمانده عملیاتی قرارگاه سجاد شهرستان سراوان، در جریان یک درگیری مسلحانه در این منطقه خبر داد.
-روابط عمومی سپاه، روز اول مهر ۱۴۰۵، در بیانیه خود نوشت ظریفی در جریان «آخرین عملیات رزمندگان این قرارگاه در منطقه سراوان» کشته شده است.
-همزمان، حال‌وش گزارش داده است که احمد هراتی زراعتی، مسوول اطلاعات قرارگاه عملیاتی سجاد سراوان، نیز در جریان درگیری نیروهای نظامی با افراد مسلح در منطقه جهاد آباد سراوان کشته شده است.
-بر اساس گزارش حال‌وش، این درگیری روز چهارشنبه یکم مهر رخ داده و دست‌کم ۱۳ نیروی نظامی و امنیتی دیگر نیز در جریان آن به‌شدت زخمی شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78504)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-23 20:02:09
-
-
-
-مارکو روبیو، وزیر خارجه آمریکا، روز چهارشنبه، اول مهرماه، در حاشیه نشست‌های مجمع عمومی سازمان ملل متحد در نیویورک، از ادامه رایزنی‌ها با میانجی‌گران درباره ایران خبر داد و جلوگیری از دستیابی تهران به سلاح هسته‌ای را مهم‌ترین موضوع در هرگونه توافق احتمالی دانست.
-به گفته روبیو، دونالد ترامپ همچنان برای دستیابی به توافق با ایران آمادگی دارد، اما چنین توافقی نیازمند مذاکرات دشوار و فشرده با مشارکت میانجی‌گران خواهد بود.
-وزیر خارجه آمریکا همچنین با اشاره به تنگه هرمز، از ادامه عبور نفتکش‌ها از مسیر جنوبی خبر داد و حفاظت از کشتی‌رانی و باز نگه داشتن تنگه را از ماموریت‌های ارتش آمریکا عنوان کرد.
-روبیو درباره جزئیات رایزنی‌های دیپلماتیک توضیح بیشتری نداد و تاکید کرد: «اگر قرار باشد توافقی حاصل شود، این اتفاق در یک نشست خبری رخ نخواهد داد.»
-@
-VahidOOnLine
-روبیو در واکنش به سخنان مسعود پزشکیان که ایالات متحده را به نقض قوانین بین‌المللی متهم کرده بود، به شدت از تهران انتقاد کرد.
-روبیو با اشاره به کشته شدن هزاران نفر از مردم در تظاهرات، حمایت مالی از گروه‌های تروریستی برای حمله به همسایگان و تاسیسات انرژی، و سرپیچی از قطعنامه‌های هسته‌ای تاکید کرد که جمهوری اسلامی ایران بزرگ‌ترین ناقض نظام بین‌المللی در جهان است.
-او تصریح کرد: «نمی‌دانم ایران چه حقی دارد که به کسی درباره حقوق بشر یا نظام بین‌المللی موعظه کند، در حالی که خود به طور مداوم آن را نقض می‌کند.» وزیر خارجه آمریکا افزود که حکومت ایران با قتل‌عام مردم خود، نقض حاکمیت کشورهای همسایه و بی‌اعتنایی به قوانین جامعه جهانی، صلاحیت اظهارنظر در این زمینه را ندارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78503)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-23 19:19:55
-
-
-
-محسن رضایی: اگر کشورهای همسایه پروازهایمان را ممنوع کنند، پروازهای آنها نیز متوقف خواهد شد
-محسن رضایی، دبیر شورای‌عالی امنیت ملی جمهوری اسلامی، کشورهای همسایه ایران را در واکنش به محدودیت‌های اعمال‌شده علیه پروازهای ایرانی تهدید کرد و گفت اگر این کشورها پروازهای ایران را ممنوع کنند و وارد همکاری با آمریکا شوند، پروازهای فرودگاه‌های آنها نیز متوقف خواهد شد.
-رضایی گفت: «اگر کنار آمریکا باشید، ما شما را تماشا نخواهیم کرد» و هشدار داد در صورت ممنوعیت پروازهای ایران و همکاری کشورهای همسایه با آمریکا، «فرودگاه‌هایتان پرواز نخواهد داشت».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78502)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-23 18:28:37
-
-
-
-پزشکیان: از مذاکره برای صلح نمی‌گریزیم
-مسعود پزشکیان، رییس دولت در جمهوری اسلامی، چهارشنبه اول مهر در سخنرانی خود در هشتاد و یکمین مجمع عمومی سازمان ملل متحد گفت متن سخنرانی‌اش را از پیش آماده کرده بود، اما پس از سخنان دونالد ترامپ، رییس‌جمهوری آمریکا، و «تروریست» خواندن جمهوری اسلامی، تصمیم گرفت عکس علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، و دانش‌آموزان مدرسه میناب را به حاضران نشان دهد.
-پزشکیان همچنین گفت: «هر کسی را که می‌خواهند تخریب کنند، نام تروریست بر آن می‌گذارند. ۲۰۰ سال است که ایران به کشوری حمله نکرده و فقط از خود دفاع کرده، اما ما را عامل ناامنی می‌خوانند.»
-او در بخش دیگری از سخنانش گفت: «آمریکا و اسرائیل با آخرین تجهیزات به ما حمله کردند و ما با قدرت دفاع کردیم.»
-پزشکیان گفت آمریکا و اسرائیل جنگ را به ایران تحمیل کردند، اما جمهوری اسلامی «با قدرت» دفاع کرد و در عین حال «برای صلح از مذاکره نمی‌گریزد».
-او درباره برنامه هسته‌ای جمهوری اسلامی گفت: «برای دفاع از کشورمان از هیچ‌کسی اجازه نمی‌گیریم. ایران نمی‌پذیرد که دانش هسته‌ای در انحصار چند کشور باشد؛ سلاح هسته‌ای را عامل امنیت نمی‌دانیم.»
-پزشکیان در ادامه درباره تنگه هرمز گفت: «نمی‌شود همه از تنگه هرمز بهره ببرند و راه کشتیرانی بر ایران بسته شود. استقرار ناوگان‌های متخاصم و گسترش جنگ باعث امنیت کشتیرانی نمی‌شود.»
-او درباره شرایط منطقه نیز گفت: «در منطقه‌ای زندگی می‌کنیم که جنگ مرز نمی‌شناسد و بحران یک کشور به همسایگان سرایت می‌کند. از این رو همسایگان خود را قوی می‌دانیم.»
-@
-VahidOnLive
-پزشکیان: یا امنیت را با هم می‌سازیم یا ناامنی را با هم تحمل می‌کنیم
-مسعود پزشکیان در مجمع عمومی سازمان ملل گفت: «صلحی که برای همه نباشد، صلح نیست. یا امنیت را با هم خواهیم ساخت یا ناامنی را با یکدیگر تحمل خواهیم کرد. ما آماده گفت‌وگو هستیم، اما زبان زور را نخواهیم پذیرفت.»
-او افزود: «سخنان ترامپ نزد افکار عمومی جهان و اندیشمندان، نشانه بارزی از خوی قلدری و منطق زور و مغایر با منشور صریح سازمان ملل است.»
-پزشکیان گفت: «ترامپ بداند که این سخنان ملت ما را منسجم‌تر می‌کند و باید بداند که ملت ما در برابر زور سر خم نکرده و متجاوزان را پشیمان خواهد کرد.»
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78501)
 
 ---
 
