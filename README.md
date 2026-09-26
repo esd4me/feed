@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-26 11:37:40 </h5>
+<h5> 🟢 Updated at: 2026-09-26 16:59:19 </h5>
 </div>
 
 
@@ -80,7 +80,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:13:21
 
-<img src="https://cdn4.telesco.pe/file/U3uaUPUPSz54dEcjN0p35iTImJ_aImXXwLp_woHJWyUts7ZknRyInzhcPr-Tp9URkqecVaE0ctnJZJHDYSQcOBknxz79U3f2YKgc-NHFR6WRxu7noAUj2bIyzgpM4Nn67St--U0q13rnxZTR-LOi8BNpalznZbzZfya47Zesgz2gb1dbZsTuzn91Pcn1m2bzH8ymQ8XiU0cHJD4Yb4qK3e9S25lb9waGvmRKlFrFsD-KEyUSU5BIKfJV1uY43uvUXnj7Inwc4Oaxz9s87NIqfvma-SUFlCHLi2L40S03m7FBS9RL6OeldaPS7_4DnWKWZaIM47F1oXxMWsRiDGwDkg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/oVReyjuHKhiIn0__J6kjqEgGtX7dshWaoQV0zupp1YZN9v1lYEupxzucPsz2lW5zMCjjE5gE76mIWnMFjagvDAHlcAV2hVZ4RIV98HLZ9ewUmr6QgTTI0hJ3t-f_ZMv43UeThK2SwL1s9PG3hu4jyNS4yjyINBZXKSvdREXv4U3KrmMH7Jt3iACGTFILPXRUOLD1OQtAIgsux9oevTpHwePSfcrjZg-8nZQsuENkaR03XzTMKIQV2XhfjaD3uZxIXn6lbLyx7NMROEHc84ltrvJDzI8QyDK99WK_WNDtEx9ywY7WPCnVQ-nWnwvLZdxAA3BRP4gl1IpYjB9L21XX5w.jpg" width="400"><br>
 
 شبکه اسکای‌نیوز می‌گوید وزیر امور خارجه بریتانیا در دیدار با همتای ایرانی‌اش به او گفته است که بریتانیا «ارعاب، تهدید یا اقدامات خصمانه در خاک خود» را از سوی گروه‌های وابسته به ایران تحمل نخواهد کرد.
 اسکای‌نیوز این گزارش را روز پنج‌شنبه دوم مهر به نقل از منابعی در وزارت خارجه بریتانیا منتشر کرده اما منابع رسمی دولت هنوز آن را رد یا تأیید نکرده‌اند.
@@ -99,7 +99,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:11:31
 
-<img src="https://cdn4.telesco.pe/file/EfFafcSTSwDm9ADfnKZaCNxX_qHETmxeDu_jl8c0O5-OSmXxdV_ZEf-DnC6na0zukhQZsBf55yjfEpMGu3A6PL_cJaimBQFfPV7Ie131XlpwrS_3VWIL2c14kVWMcUc5-cADgOf1S10GubLFHVdhD-o1HP3dmn8uK3L6cjsi7sZ-mPFrnjq2ie7Ql_1aQS3YhEmc6xMm0hjOL6uXz31FznlC7OZW9ToXhuy8tjN5iZq_muBjRB-ZPoXbyn3shrHy6MhERWhv0_OMJLvSYK2uHfgF8hYjL34C5-eKuTZabxx-Zg-60CQ1SPh5DUuFJ5a8s9MdA7Qxr8IYekYwQcOhCg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/fl5_WPA0sNfbmFstZ027RtEUobmgnUtnyZX-GKQV7maQaYOZE8akpM4cFPkEpIJnctiZIUdcdyU1uGRm9-VpBtV-EVMjH3BpZHV9HdQXxUGexbfmKBwFkyxc9hYjgRmBA4VzA3Bbg0Hl_xuVs8lbqJHDpC3fp0QMCHLSimuH1VqwRwGu_UNBFSuYSu4vX5ru9np6L73gD_-AkXf4Ux7AVvNzMXPVrlp6Nq4nxAj6Z9XjMqJAPCmxTIOqBN1DT6wBKDs42CA-DbWCyNDOpwGb-FXkCFCBLwrmzGS0UB-CGNboOSrGTDEexhL9NQeSxaqXNo_S_0HhyZ7t76JT16521Q.jpg" width="400"><br>
 
 رئیس‌جمهور فرانسه از اعزام نیروها و تجهیزات نظامی این کشور برای محافظت از یکی از تأسیسات نفتی عربستان سعودی در مقابل حملات خبر داد.
 امانوئل مکرون روز پنج‌شنبه دوم مهر در یک گفت‌وگوی تلویزیونی اعلام کرد که فرانسه در پی حملات شبه‌نظامیان حوثی یمن، «تجهیزات و نیروهای نظامی» را برای کمک به حفاظت از بندر راهبردی «ینبع» در عربستان اعزام خواهد کرد.
@@ -117,7 +117,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:10:46
 
-<img src="https://cdn4.telesco.pe/file/CyZWpGdGA1HAIg2Sy5R0aI3jHb7sh-BYRCDZQYQl6ued2VfRGCvrF7AoNWI7FpTnowrs0DskXY4HMEXDCoyrp1y_-sP9dazQdwLyKLbMHGmVLzg2mNXgXSs3EcSaZ0YA82FNO5Mj2wwbKfkRNOB7l6QJ6K7-JBBEIRie3kmp9XiLUdQ3IrSsWx7TKQbSAmSdpwfP92AYDiPvR6LLno5F4fhCEqbgWr0KMQaNKIjVyJQTP6M7xNXr5Xx_fW0EX2G1f92M6hogfeVcaDiJ4OEJYx8ATGCN9tP_UsxLJf4W9ARliQguxxfeSlHj-1pPN8vh2yw52jp_fSxICV1rzOhtvQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/h2ynzAmq1SBCIUvLrlChviGUe3s7MnnkWpmoDFUqOahbw8Wk6ReaH-TzlAVb90PpxrvSM-q3VxT4dJ3pfTJSnBRfQEeQU45Xv605zcqB9sR7NsXSj5UTpGs5Fp7fFNUmn5S9cWBBFaogyLKljR_BYJQWofKCF6ERm8iXQEue4HKZaU4LOWFWdXN6ANy3svWSG5KwqOpvIk6_dk7MsNvt38cPa6mi3sENvC7zmznM1suUYJEQ4RyFYF7jwNeNuHguOn7wN53DkI-9fvP7shWVIwOs1iS52Y6bvGyd6Xr8pvIZmbQIWh_3ZL5d1dFBwfJLkWlVU3Sz9laLiLrqnl7t-Q.jpg" width="400"><br>
 
 دبیر کل ناتو با اشاره به تشدید تحریم‌های اقتصادی آمریکا علیه جمهوری اسلامی اعلام کرد مردم ایران هر روز آن را احساس می‌کنند، اما برای رژیم حاکم ایران منافع مردمش اهمیتی ندارد.
 مارک روته در گفت‌وگو با فاکس‌نیوز تصریح کرد دولت دونالد ترامپ با حملات خود، برنامه هسته‌ای و موشکی جمهوری اسلامی را که «تهدیدی برای اسرائیل، خاورمیانه و اروپا» است تضعیف کرده و اکنون فشار اقتصادی بر جمهوری اسلامی را تشدید کرده است.
@@ -137,7 +137,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:09:22
 
-<img src="https://cdn4.telesco.pe/file/qNt4Hx3e0o3iFxPQRLw-htpad2rmiUUiXRSLIUzr_8vJo7h5qF8muw0b0eB-FvAYQB9W-CB_32MVRT-Q2aFj47wekPw6oiYvGq0Xk-XOCo8UvmOahlOb_KZbeISUUp3OEoiRhPItKDBtYlktlDV4qRnwkkO5VOj_w2lFt-yyvQtZJr5fsUj_-nA_ck4GYUA5djoDclwJfnAQjafv8pVT_JeKR_ywaAKrWTJK7FVXhGDNZ79VHDsP_HmfDD5RzIkCDu8eY-RRQkvXoNfvI9Exm9sECbc_bH9IPbJvIwXASmFj7w-4MSRgofXsO25eyrfWcxDAe2YE_gMbowxKJw3ngA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/kPmcGxnDeS_UwppldI-TfUZ1Y1T2DZ8QZnN00AxgymH9Ojd_nu3ajhK3tYQkSZfC1chVR60lmRzJVWCouo5cqK7tdRHXzpqJ62Qb0tp4w-GYdZRFpooH6qompdjyCxVRUivaO6sNn3DVsWmnD1qB7mpmzNZS8aF-uUNKQcVLX6JvGOOvRSQdZo62fbFr33kyAMdrasRx-Z26YtjJKTcwkwJyJaOWZCDFcJj8upZTk43lhqK80eIlBt0S0Flrm0ijMQl1OzLxQbBs8j_Qbg3yFvD6JdOIWh5U0kRkEey-QF_KHCTH1lj6YaGQHyuuW9hPw3-Tg2kQF2aS0rbIPPXo0g.jpg" width="400"><br>
 
 دولت کلمبیا روز پنج‌شنبه دوم مهر از قطع روابط دیپلماتیک این کشور با ایران خبر داد.
 در بیانیه دولت کلمبیا گفته شده است این تصمیم بر اساس ملاحظات مربوط به «امنیت ملی در سطح نیم‌کره» گرفته و از روز ۱۹ سپتامبر (۲۸ شهریور) اجرایی شده است.
@@ -156,7 +156,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:09:08
 
-<img src="https://cdn4.telesco.pe/file/WzPuBkrKi5-Ct4vqdOis8HSlJFPG0rNpmYJ3ONn0F-gB8RrtWJGOLda5X1tdYzdQIsW4BRj5Tqyg3-m9xiKHssVZ8f43MI-_kLddQEumXl-BoiV1SploFmbfdx6cCM0l__eOZkPIIS8cLCDyWkDhhbtxnhkSQgOVT0nVvMSnXuFflFa_4lW_8_3p_sMjnExDDmwV6KmGTJXC1CBY_obPslW2acq0duAozu3pUnuPleRkMA4yeE4R1fsh3E1DV4AvPyRq9zzatzfn_cTUIDTtH6N8jeg67KxroyMvpUIjci5_gg64XTq9Dye_3xOzbQxHiXSZeyBvtghtckPCnp4IyA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/tPAGdfObOpj_0oNv-pNfkYjPQ2ewNnA7bDyWrmh4ChnAwW-bb83Hb-h4YP7DcO7u6hQaYvDzvjEdASGVu5ABWBfzomZ3aW1TrHy6Kj_jtygJWi9zYPFPxavs5pfuG308db4cPfDAWQYpYJVXihZAxZuBBAIMlJ-yVMRDPCUAFdSfuqtuzclLpdDGEBEHy8MRxTPKP_SSlNBQnomOB1eoXny1Ox7Ip6ptbK-c5VfuyfnU-OX-gxk1oy1QekoZAWniDcjEPCSEm2wtV4o5JqJ4Jsna6-bC68bHedYMrj8sHOikMwwzevA1bnA2Vug4tgwSCnj8TuaFa_mwbPVwfMSkzQ.jpg" width="400"><br>
 
 روزنامه بریتانیایی جوییش کرونیکل در گزارشی روز پنج‌شنبه دوم مهرماه از محاکمه غیابی هفت ایرانی و یک شهروند لبنانی از جمله محسن رضایی، دبیر شورای عالی امنیت ملی و احمد وحیدی، فرمانده کنونی کل سپاه پاسداران جمهوری اسلامی در پرونده بمب‌گذاری سال ۱۹۹۴ مرکز یهودیان آمیا در بوئنوس‌آیرس خبر داد.
 بر اساس این گزارش، دانیل رافکاس، قاضی فدرال آرژانتین، با صدور حکمی ۶۴۸ صفحه‌ای، اتهامات هشت متهم را به‌طور رسمی ثبت و دستور مسدود شدن دارایی‌های هر یک تا سقف ۵۰۰ میلیون دلار را صادر کرده است.
@@ -337,7 +337,7 @@ FattahiFarzad
 
 ###### 🔵 Post time: 2026-09-24 17:10:42
 
-<img src="https://cdn4.telesco.pe/file/bUVWC3H5Mm8b0vtc92_-8UYLB1HLnbRU7pc9s9kNTJNS6D3mOQXvk-LoIHMtc4jDB-FoIDy0uuzkdU3fuuetDo-e7mrSem7hM2GjF8d5cf7Uc88nSr_dWsZDzbScW0oL5pPCs8oO_rlF9doknTn7ALR8EL3F_QJmZn2ePkmpDB8G-jMnEebqe03Q469rksezLNW5rlKBrIbGJBJNiShE-1u35au6EJRzQ0PEL95qh-dUD67N0hvAIByzM9-S815S8T5PMFBwqf4I-MtY8ydjpnMVubEayxyV7hZZ4OE6e4DFm6whwQxeKOmtRSW6RvIftAQS24KtzPG9b1rEtEOSxA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/JepQtAzKkJijA_iPwYXbzftUr8VVPJyFIKaqHvC5eXFwvSDEXoW_Qv02Jev6T7qUt9KChbLIzqNf_p645lUtCpZehNsBXzA6HP-w6ivojB1bznbhBHIYypiBXF7oO7V3Qk5ojERzg2VK1AiDlS-zCm3fYhnxHD5WOJiQEM50i2nJXn-LO0ElldjK6RDb33ft7n3O-ybjQYBrSoBxlV-nCOHpltYNQpJGL00l5XIZntQpt-GfcwmkIHiB4GcHqEw8AZlQD-Mlid7SGdWLIiltR8qfA8bDaFgEAh_gUxtuCu-RoIGCnZDbD4Roqb3TRUifD6qFoUJ6VEaGg3eCwfawvQ.jpg" width="400"><br>
 
 شعبه دوم دادگاه انقلاب رشت ۹ وکیل دادگستری در استان گیلان را در یک پرونده مشترک به مجموع ۱۴ سال‌وهفت ماه‌و۱۵ روز حبس محکوم کرده است.
 هرانا خبر داد «معصومه پورشهرانی»، «طاهره پوراسماعیلی»، «شادی فلاحتی»، «غلامحسین لایقی»، «حسام احمدپور»، «لادن آصفی‌راد»، «محمدرضا تاک»، «کیان طاهر‌اجارود» و یک وکیل با نام خانوادگی «دلیلی» در این پرونده محکوم شده‌اند.
@@ -355,7 +355,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-24 17:09:32
 
-<img src="https://cdn4.telesco.pe/file/BnPUR7ckBcp3mw8VwjoNuIEdB2Cvb9HGsvuN4DMXWRnaFXFlAv1KFXD78pf2bflDs9xEPV3EBlC-uXk_vKsduQDdN1hAuIzTA6I531Sla9lvi6iUu_sua3o7NAqcyM62oWztyFH6eWki9sHOCb6UsO9BQ4HzPH72tmxVuSbHc8Tj-NCoGjIsd5sRRjYn0ITP9_vZ4TZ9McB1Zelg5RqWvCAFGndob3e0ftLhxpDHwk9qF_ABOeiQrc494GwdtHNiWZVs3exGqONSNJ2F7kzQFHkJi6K6eOs_X35pjra5irmR5eGAWHaqO2uYdSjZp0_BR-19qI9IxElRbIWnhrYgbg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ZvA6Tzq8hiVo695JHR7h0OhdQRn6gvASA7USc91aR4_yoB6GN6sUlisYir5T3gn3PD8M4pRpmdmG8KlpF4GfRQ1bSoZhhDVmadU-lSQFCLNAj-Bq7HArpnFn1U6Bur4rE6J5eLVDjLVj90mL8k3gSdvzyHnkN9M7d9Er-uMYrsxZ5ym7eKzkAE8tGhX2tmm_SaT6CYBC_V0GDcTWwN86ogj9nJpisnnA5AHwDpwaCY5Gmsgirz6I32G-t3yvt-E9qDQI_eInL1Pki9-_NAsFY4Q-VtSXbv8YJHH_tyUSDUVkz6fLJWjt5Sss2BfpUVDQqk5ZXLHYVaL3bgeC_ZL_XA.jpg" width="400"><br>
 
 امارات متحده عربی روز چهارشنبه اول مهر فعالیت بانک ملی ایران در این کشور حاشیه خلیج فارس را ممنوع اعلام کرد.
 این بانک در بیانیه‌ای اعلام کرد: «این اقدامات در نتیجه تخلفاتی مرتبط با رعایت نکردن مقررات، قوانین و تصمیمات نظارتی لازم‌الاجرا در امارات متحده عربی اتخاذ شده است.»
@@ -374,7 +374,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-24 17:08:45
 
-<img src="https://cdn4.telesco.pe/file/Igt72-CU6gkHwkTySJhVcU8AIrC0M2kfHUCr2mYR_Z0oBl4KpaOFndHUtw1VD3AIcXyAzopibt9rdPipl5OUDKvZBfZBIDLe2sOB0c0_huX5Dl22ompDdNsHfEECavuio93MGXfonqAkfb6hz2xbG3Q51LLHYPfk0Euf1fAXT6YEY_pOFiSYVcgDwLy_UH3vTyDJ-dEPfkMF3Hu4coTb6wco8DRA11raxu7jAYtkc0mlI45PcQ96rgbemjwbQtgg-C8jh8el8s_cXmKud-OIExVdEoe6d8DO3gvW8jXW0EDUftXDpnZyZCPo2xwdpq9F6_3pdZ71Ps77NDbHsh9s1Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/bERXGsiByqmZfOce8nY69NTQosQLDtyeMUQeSiFUby51oG3BGAaygyEzy4R49hmpYU5lkzARwAEkGpAgYdN5ibyIqp9mfu_hN9ExtNyXm1MNhIiNhSyWoKnJYXQ-_DcLfDl6SLA9gYCGkqrVBlJs3Z7Bw2CEWT1ar9THDlLRrFdrDJiiKXF2AA3EP6L3qG9Ola9srY4Bc2b_WmXo1rNlUK59BYpyZq-epP62WEymQ2XlDGAcqAUovvSl0-r3pee-EcqnKVzpg33Liowyw-s4SS30VUro6Ld4lH882gLRRzcg8N840ealIEVEn5ds8ue9rMDho0k4P5ivXheXsu11Fw.jpg" width="400"><br>
 
 در پی تاکید رئیس‌جمهور ایران بر ادامه برنامه هسته‌ای و عزم جمهوری اسلامی برای تسلیم نشدن در مقابل فشارهای آمریکا، ارزش ریال ایران دوباره روند نزولی گرفت.
 نرخ دلار در مقابل ریال ایران روز پنج‌شنبه با ۱.۴ درصد افزایش به ۲۳۵ هزار و ۴۰۰ تومان رسید.
@@ -393,7 +393,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-24 17:07:59
 
-<img src="https://cdn4.telesco.pe/file/oEpG6xA9Dto1aFJC_cfdGqceOBjNBsLbszz8V7eHzdFKmmWXtdApah7BjZDLRGAaqrUZIu4H62GpmR8O_Fd-UIc5cIMSMeEZvpNfUlM4oomh6FTExY7G1kLgWvVGZ0yseP7aqeGVpycxRL_acBa2tfG5NaKf7aJnyfI5yNWEbvxE0Q_2IZ0aRSoy2Do3CQ76QUDy0wYaXfOQVeLi_k4BK26-qLx9OX0f-eprPbLK8PuU15YJD2sBBDfzt3GNG0wP85aFSSV5Te47YMMHw4wb3GKojwfOhzk0K9NoZG7nYgLwltKnVK9NbKKu4IFwyFxH_trDcqo0ZaX-kMKNiVnz1w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/AdDuHCMN8w_LHYLbsLYFWWDUMM60iRBvBljfjfdKSw91u5fwnKlhn84symKVYI2gD1TPdree305teZSxCN7czsYbDOZTBOJp1AAlCaYGtzlck2Hu9PFStAr-tv9wUTmJuo7Vzh77p4pcQFYRUmh4Sl-YfpghKfZ8SBhkoqDOBZ0UpYsx6tbCAwtcqGuvM2-PkqIZ3MoyHzuDrspkvGjZ_D6-NYUiv2kmDIQ-x524Yl30d-8sTxZa_UuIJvrdkBd8ssXOxAfkZ0EJakTLe3vrr8h2PloKZ58lW3IUPOWrZe-yQPN8Y1n1pK1PUSVKBsl0jm6J9-G4pUxhW1b3feGg6g.jpg" width="400"><br>
 
 شرکت ردیابی نفتکش‌ها «تانکر ترکرز» می‌گوید نزدیک به شش میلیون بشکه نفت خام توقیف‌شده ایران، به ارزش تقریبی ۶۰۰ میلیون دلار، در حال عبور از اقیانوس اطلس به مقصد ایالات متحده است.
 @
