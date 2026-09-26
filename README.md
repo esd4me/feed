@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-26 03:12:04 </h5>
+<h5> 🟢 Updated at: 2026-09-26 06:09:18 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-26 05:46:21
+
+<img src="https://cdn1.telesco.pe/file/sqfnfUNJK-gdAINs9AbEaCxEF4EsA04HxKtPqAGS3p40oib69P1FtX4FQhLRwwlyqxC2Iqljv9oyyp_1dMoy6An_Qc3jBbESKhcZ7NYfOtLxhlLFphcmoM_9uL7yRJJmdJ7LeLYgjNEx8Yiraa8b10qedK70TgmFB4pf4Qicli09iXk_4pDQ6w9dpeio95VMWZdAeKvQkFcrU2X9mJJhZC9vXpNSXuoJAYUhU8VHTu90nLJEto2MU4CIaiMNqvu1ZvblwznNmwgVOZtvhPE7Yx9zkHxgWw6ymuD_QPyxSJuZLu0qsWDxPKHObiu0QGP7TR7voq28NdPn-NBoJFzuHg.jpg" width="400"><br>
+
+روزنامه وال‌استریت ژورنال به نقل از «مقامات آمریکایی» گزارش داد که رئیس‌جمهوری آمریکا، پیشنهاد جمهوری اسلامی برای برقراری آتش‌بس هفت‌روزه را رد کرده و به دستیاران خود گفته است که انتظار دارد پس از انتخابات میان‌دوره‌ای ماه نوامبر، بمباران را از سر بگیرد.
+دونالد ترامپ بارها هشدار داده است که در مورد تاسیسات هسته‌ای «کوه کلنگ» ممکن است دست به اقدام نظامی بزند.
+وال‌استریت ژورنال می‌گوید که پیشنهاد جمهوری اسلامی شامل بازگشایی تنگه هرمز و ازسرگیری مذاکرات هسته‌ای در ازای لغو محاصره بنادر ایران توسط ایالات متحده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78530)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-25 17:15:59
@@ -175,7 +193,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-25 06:04:37
 
-<img src="https://cdn4.telesco.pe/file/iaQGThKD2DbFi1JyGvSmGIuAz7L7mH23su7vXoBWMNMrnaoR0p7ZgomBSmDtqHqtMafzC6waJk5cmUKDI3AcTfmsS7biMLDzLlwtL5GR_MVqovCKY9Lcs1qjv1gwvolojdao2ga7O2CMj8uKNBD9B-cX4gO-mg9AxbOXJ7qMi0rwXwOhtcpaj5m8sp65DvuSitzx-WUmq7gIqujkSwyCkO9bBk7Tb7xftT_Vbcuoql1E6zAOpjvVxzT5y2BEUT1ih8ywsOsfMeSwU_k8Xw1wh8hfG5TXv37EUYWxg-wmB_X8wpYvzNIlIgbEmM-ENlr9AuLTy9CWxzVFaoxS3TVHDw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Z1jYFw5lvUADfCXXo5A7q2rXoXlm-amrJwx5GZjOEjc-JaGoLqm35jDHcb_vqhCaHfBIHmjDnKu9uPR1ZC1wLv-bzkAi-VQNqHIdw4hNbpTH3rOfF2B9tCA9GaRXFmawJAF0NlYwQE3K_n_Do4XKnVGuKS4lzx99XWgTy-D9Ar8wSpAM-gKpr6K1ssWld7MYIddJKUeW61lMwKRe6jVlDs5eFDAdRt-bzIwtGz-BLgId8PKprigPrjf98-bpapeFsaXz5-xGOuVbCfdBpQkOYdaOVO2uBjCCsIq885DSfSr1p_-4VgVwLHP8j5NxVHeIoFxrlKW4jOwvTsVNEQYgoQ.jpg" width="400"><br>
 
 به گزارش سی‌ان‌ان، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، پنجشنبه دوم مهر گفت تهران پیشنهادی به آمریکا ارائه کرده است که می‌تواند به بازگشایی تنگه هرمز و ازسرگیری مذاکرات برای دستیابی به یک «توافق نهایی» منجر شود.
 عراقچی گفت این پیشنهاد در هفته جاری از طریق میانجی‌ها به واشنگتن ارائه شده و بر اساس آن، آمریکا باید ظرف هفت روز شروط مشخصی را اجرا کند تا مذاکرات از سر گرفته شود و تنگه هرمز بازگشایی شود. او جزئیات این شروط را بیان نکرد، اما گفت این موارد «چیزی بیشتر» از مفاد تفاهم‌نامه اسلام‌آباد نیستند.
@@ -384,25 +402,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78511)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:06:23
-
-<img src="https://cdn1.telesco.pe/file/rhsDapNm3eSz1wvZBVyW-1QXNCKRukKsE4rlAVkIExx1VCEPuA-54ywzkgwQgbCUqKMzKZ9e6aA74_cnYgDcoamiorVAtOjwrUay0f8o98X8I9ro-8STz_3MXAtj8vO-ekhe3RyZsDj3VGa2P7R8aCGMb3_iMaXOLAsh_HE2U7loq3CaDUjtXOGS59HYMxvUr002OTAOrC5bGYqMYVCSEV4bX7aU3SX9tDS8HTvekgfA-ZXNlv7NrVV0jPvFGgca_0YdnU79EbOaajDTOwS86FOhdNqrlTnqooT0_4C4-xyUwkjo90KFr2ff_UU7kkeQ4Ci2-o95kfqERYqHb8zvHg.jpg" width="400"><br>
-
-بر اساس اطلاعات رسیده به ایران‌اینترنشنال، همه پروازهای شرکت‌های هواپیمایی ایرانی به امارات متحده عربی لغو شد.
-پرواز شرکت‌های هواپیمایی ایرانی به امارات از شهرهایی از جمله تهران، کیش، مشهد و شیراز برقرار بود که اکنون لغو شده است.
-لغو این پروازها پس از اجرایی شدن محدودیت‌های اعلام‌شده آمریکا علیه فعالیت خارجی شرکت‌های هواپیمایی ایران صورت می‌گیرد.
-اسکات بسنت، وزیر خزانه‌داری آمریکا، پیش‌تر اعلام کرده بود از اول مهر فعالیت شرکت‌های هواپیمایی ایران در خارج از کشور متوقف خواهد شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78510)
 
 ---
 
