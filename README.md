@@ -3,8 +3,120 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-26 16:59:19 </h5>
+<h5> 🟢 Updated at: 2026-09-26 20:59:20 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-26 17:41:53
+
+
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، روز شنبه چهارم مهر تأیید کرد که پیشنهاد جمهوری اسلامی ایران برای بازگشایی فوری تنگه هرمز را رد کرده است.
+ترامپ پیش از ترک کاخ سفید در گفت‌وگو با خبرنگاران گفت: «من پیشنهاد آنها را رد کرده‌ام. آنها می‌خواهند توافقی انجام دهند که بر اساس آن تنگه را فوراً باز کنند، چون به‌شدت در حال شکست خوردن هستند.»
+او افزود: «ما با قدرت در حال پیروزی هستیم. کنترل کامل تنگه هرمز را در اختیار داریم و مقادیر عظیمی نفت از تنگه هرمز خارج می‌شود. دیشب ۲۹ کشتی از تنگه عبور کردند. آنها می‌خواهند توافق کنند و من هم با توافق مشکلی ندارم، اما آن توافق قابل قبول نخواهد بود.»
+@
+VahidHeadline
+او بار دیگر گفت جمهوری اسلامی خواستار بازگشایی فوری تنگه هرمز است و افزود: «آنها هیچ پولی به دستشان نمی‌رسد، چون پولشان را از تنگه هرمز به دست می‌آورند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78538)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-26 17:41:49
+
+<img src="https://cdn1.telesco.pe/file/YaN-zRbuHXsbG3ZkTZAd33uBQY0dWN1rXdUK-U_U_0wKOFhuCz3xe1SFGHFP6MGRSSeqFHKQhg5DkyaYUlr5VcJyU7-MXD98h1WDZqvIFeup5KDZ8JAA7ttBvAlKupZ3Vd8vht2z8KA-f1PB0Ah8cIO_PAiTjiaFbzpCJoVQQjXCIx8G0e4bsx6m-_tJDn5ndE43gX5g8HDnyvgd7eginaRSdR8TAKBYIqofnebctGFtSXLNn7rEtpMK-Xu_BwsJV6wjGBazLD4oE4k65i6B2-58SrUTN60tc_xrABJT6FODJGR42eb9Wbe4y1MsI6qp6A_AcPpEHktytwr5m52SYw.jpg" width="400"><br>
+
+دادستانی تهران در پی انتشار تصاویری از اجرای نمایش «تهران پاریس تهران/ پل»، علیه عوامل این اثر اعلام جرم کرد و پرونده قضایی تشکیل داده است.
+مرکز رسانه قوه قضاییه شامگاه جمعه ۳ مهر ۱۴۰۵، بدون اشاره به نام نمایش اعلام کرد «رفتار خلاف عرف و شئون دو بازیگر در یک تئاتر روی صحنه» موجب ورود دادستانی تهران شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78536)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-26 17:40:55
+
+<img src="https://cdn4.telesco.pe/file/DomRCFyR4k-kQcQ3FXAXPMRqhVU-6snKzU7eKsANlD4wsIWV-qUdY5ClZdlYjwgIPSkegYW5rf35tCFb4U1lu-t6A4xzgWQZcw-4fEvG87EjNq5lqYTkLaIDWYec683HG1mYEMzVDNzElbd10YH9ZYm0he3CzLMIVtd1P5vLQOWiP6qXXDqNb1Lgr2MjS_3mr6Yzav30noHlAoW7hDY7Vg8KAw-5OFBQJuNbx7AcrJD31A4aw_6FouYYClXofndoYzdb0UNUIoYERzo6I7bvlRjAPIvCUTP8VkR47Yjmd4TE6mCR9uqtOE3sttym4KLkDo7HdDfSkojVzBI7c-eXzQ.jpg" width="400"><br>
+
+«محبوبه شعبانی»، از بازداشت‌شدگان اعتراضات دی۱۴۰۴ در مشهد، به اعدام محکوم شد؛ زنی ۳۳ ساله که براساس گزارش‌های منتشر شده، در جریان اعتراضات با موتورسیکلت خود به انتقال معترضان مجروح به مراکز درمانی کمک می‌کرد.
+هرانا خبر داد شعبه اول دادگاه انقلاب مشهد، شعبانی را با اتهام «اقدام عملیاتی جهت تحکیم اسرائیل، آمریکا و عوامل وابسته به گروه‌های اپوزیسیون» به اعدام محکوم کرده است. به نوشته هرانا، حکم امروز به وکیل او ابلاغ شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78535)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-26 17:40:35
+
+<img src="https://cdn4.telesco.pe/file/QCoaq5NTZwdi68pyv8_0E4s4n04L7p3B0GLTKmUxvrGyN90vKohKxer22MJAuLXPyVUM-C8sdaz9Nk2POczFO9l6rmH0yBCwfpGNOuQ6xNZlK0SlWP87fxn6sohLF3yQgPy6kDyxKr30Zqb6lT7zOmQMv_laVHAvDlsgFsZIue2FmO2t7RjG2UsFy8-CbtoGNM4srVdlfKgUKDdFkPDrBee3Asw0rf9TD01Ri-_IWwQ7XhzQZeu5Ycv43veuJUmfCJTikFzPyAP5dEBM6_2o5LSsvuhGXV9Ff-Yv-OjOHTNiv3jMKPlDdNBuqD1APdlc2krOdPsyWgj528LARR4bcQ.jpg" width="400"><br>
+
+«امیرحسین موسوی»، زندانی سیاسی محبوس در زندان اوین، در شعبه ۱۵ دادگاه انقلاب تهران با دو اتهام «محاربه» و «افساد فی‌الارض» روبه‌رو شده است؛ اتهام‌هایی که می‌توانند به صدور حکم اعدام منجر شوند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78534)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-26 17:40:24
+
+<img src="https://cdn1.telesco.pe/file/R-X1-gPu7mOcZbT3Yx7sfHlfyG15oNIDkl-sM4u3Hct8sXJmc43x6sxbdhmtTcT_CRqAdX-K_xfgStuMpYbKYUgK9ELeKZ0QYPyklJGk4AbBVXd40TR5p2n_d7Pl5aysjiR9p9P7Uhdx_djcaS1AEjkU6vsThG7XrH4iWjLZ9_gr6vTIGk2znI1ByIjgZLVqRtFi5wlhhKSaDLqQ1Sy78ZyANbTQZUtVfNGO-GUsNAIYpXxnUSIQGmzK1kiJqZIZYXImJj5J_VtwnBdH3FeMr0bYE92gGt1WGkZ21dULi2LdDCQddGAWuXR4VdYonLV7tQaogqKSfAErixClI_zBFg.jpg" width="400"><br>
+
+در  دو واقعه جداگانه دست‌کم ۲۰ نفر کشته شدند:
+یک دستگاه اتوبوس مسافربری بامداد شنبه ۴ مهرماه در آزادراه همدان ـ ساوه واژگون شد و بر اساس گزارش مقام‌های امدادی، ۱۱ نفر از سرنشینان جان باختند و ۲۴ نفر دیگر مصدوم شدند.
+@
+VahidOOnLine
+برخورد یک اتوبوس مسافربری با تریلی حامل میلگرد در محور بیرجند ـ قاین در استان خراسان جنوبی ۹ کشته و پنج مصدوم بر جا گذاشت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78532)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-26 17:39:18
+
+<img src="https://cdn4.telesco.pe/file/Yp1uwJrLY3dhqXjiM2gWgjKHrv0BCcHlvGVv2Bm3BaaQwo6OrUX0keBmMAwPPHwJS9MrYYbGCZXT1uHUwurvHhBX3MSmrAZU3gwvcSRzkjFkmKNSGgByKym-MxPKFbUgdU8RdBMZU2QjEzJLWoOSRe7KJY3dieUnHahbiKpaqXf6b3MWlHrXBPWCxk2Tuqlm9QK0Ypi9JviijvogN0al8n2LpxtigrJZ50ElZu4_XODDZwnAg5Ne_dfKqZSviEChm2hlKhE0dC-zGStFejC6epcUVerdehUABSVUBoFV134fZ-p6j4ozK-mstOeMnKukodhIh4hi-xjC2c2XDYowpA.jpg" width="400"><br>
+
+دادگاه تجدیدنظر استان قم حکم ۷۴ ضربه شلاق پرستو احمدی و هشت نفر دیگر از نوازندگان و عوامل «کنسرت کاروانسرا» را بدون تغییر تأیید کرد.
+ابوذر زمان، وکیل دادگستری، روز جمعه در شبکه اجتماعی ایکس نوشت بر اساس رأی شعبه ۱۶ دادگاه تجدیدنظر قم، پرستو احمدی، چهار نوازنده و چهار نفر دیگر علاوه بر ۷۴ ضربه شلاق به دو سال ممنوعیت از فعالیت در امور سمعی و بصری و ممنوعیت از خروج از کشور محکوم شده‌اند.
+دادگاه کیفری استان قم پیشتر این ۹ نفر را به اتهام «جریحه‌دار کردن عفت عمومی از طریق تولید و انتشار محتوای مبتذل و خلاف اخلاق در بستر فضای مجازی» محکوم کرده بود.
+پرستو احمدی در آذر ۱۴۰۳ ویدیوی «کنسرت کاروانسرا» را که بدون حجاب اجباری و با همراهی احسان بیرقدار، سهیل فقیه‌نصیری، امین طاهری و امیرعلی پیرنیا اجرا شده بود، در یوتیوب منتشر کرد.
+قوه قضائیه پس از انتشار این اجرا علیه عوامل آن اعلام جرم کرد و احمدی و دو نوازنده همراه او نیز برای مدتی بازداشت شدند.
+در رأی بدوی، دادگاه پوشش پرستو احمدی و همچنین تولید، تصویربرداری و انتشار عمومی این اجرا در فضای مجازی را از مبانی صدور حکم عنوان کرده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78531)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-26 05:46:21
@@ -27,7 +139,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:15:59
 
-<img src="https://cdn4.telesco.pe/file/esRLnxSiaYwAS9gsZpKqAcav_BSl711JoNBbE4uNVqcKOh2KnfjYEmpii6Gi7Rd8YmR_nX1bvIUNuMdtp3IFDX3UNONKdtrZ-ar7dE-3iVbtbp_Br0aoIKv0dH2_2zJKVYnQZWaIZUTPLTyoEZ6o9piEXqnumWUQrmCSmHXGxNs2igZC15AgE4W18kXtOAZ8IZdalxeqOz5BPXyNkPTRrLN48E-KzDdno6h7Ei3ko-bgntjuv3On9B4AWNHzWVHKTEhg1cHZAviWpvxJ_an4O2bgfueAAG896FPrWd6Ynzkx9ejUol5TC09RkaRR9E31w2D4eJ7urO0lpQUOj6N2hg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BGjUe063rMcBWXjNvyv-1sCQuVJ8LE4ScbjCFuELjkPHWc_crWfk6LP9z0SrvALFm5ZeMIfJC2u7bAt5ghlLPLTbYlwUOho9XurKL7yOvVxddAB-_PsrYxzdfdlDtjiB2Uu_3MZmt4QQlwbz7WNQrWAZj9ZcCLf4SlXkT4EyinCLf9r8xlYd6iBiBZ3oWxlMu4mQ8oLQ7NIpnlQGGz2INeE0EV1DEUHJWG0J7LYgB12zMbN3iB1IN2i6St8fJ_U4tzG4EGeM0K6RanDhRgHzeqs3DwwMVmdR4rKOHhsQigRTZ2yVvFbtCsPG3XCv_uYq1JqfBdCfUsPILVS51BRFcw.jpg" width="400"><br>
 
 محمد مخبر، مشاور رهبر جمهوری اسلامی ایران، هشدار داد که در صورت تداوم محدودیت‌ها و قطع خدمات فرودگاهی برای پروازهای ایرانی، هیچ‌یک از کشورهای منطقه نیز اجازه نخواهند داشت از خدمات پروازی بهره‌مند شوند.
 مخبر روز جمعه، سوم مهر در شبکه اجتماعی ایکس نوشت: «همسویی با آمریکا در اجرای سیاست‌های خصمانه در خاطر ملت ایران ماندگار خواهد بود، هر چند راهبرد ما در این مورد مشخص است: پرواز در منطقه یا برای همه آزاد است، یا برای هیچ‌کس.»
@@ -45,7 +157,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-25 17:15:03
 
-<img src="https://cdn4.telesco.pe/file/fIw5Bei9PGZ4SjiFJMNBemRO-83iGJuTVHn7us84sDJjr2CzMTORnNAxo24r1oUtaN5oeMOIjMruHSfBl0c3ZbwmIvSri7O-OGq_EsvHVe1IRUif4ayuI1PuFtb86f3gF2K-KUwrMf6gSZnYQrYLjFbrfaW4-7yFdctvvmX6zjLh6g-jxn1pwoKk4amPSy8a7eCCpjWExrzDqyQtdM5UNbJFqMCwpJVv2wu5tQLuL-t87Z4gkVWikB5N3yMtG2PuQ2JuyE0Tkop2wJ5N09JKbb7XuYAfR6SG6SCJxrSumpfvYtzO72CTPPmCYFOX-TA5fhGAyomNQlyXDkLCo9f5Yg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PlYceYSqGJhd_zfkdB1tJVrzVKl29ty35PdlOAbCAPOQyomN1B5AHRsWqp1wEctb_oLGjVB9bkdUjUvxmSlev6LX7DgCvvC1Mqb-RpFJi8dy1_TA2sjM4rgW948FbMVc-JPKlfHjKWgznc5NhibF6JjQckwEYFwf1hoVfT2mmUwUGcdeHYEOK9UE00sVwhzN-mHEC4oqL3DOlGtQy2IzIbgZl6HVeUYyof2pait9V05UIXAn4WeAFPp-BEeyfNtbiCA-FQOYoSS9VBMuABbucZHwyUiOSUA7857fUPhPzHNHarWopGHnoxs11-o5onJkmaowAk2dl8AzOjI_ldATcQ.jpg" width="400"><br>
 
 خبرگزاری رویترز به نقل از دو منبع مطلع خبر داد که فرودگاه‌های اربیل و سلیمانیه در اقلیم کردستان عراق از روز جمعه سوم مهرماه پرواز هواپیماهای ایرانی را معلق کرده‌اند.
 @
@@ -61,7 +173,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:14:27
 
-<img src="https://cdn4.telesco.pe/file/Frd8pBLfem0FI5iHVupHvNUdl6dYRFJCNgNsZBqe3xiw388HW6zeLj9vPRSp1yMPYTh95o9k-zFZAXA-uY1QB3ndj2KDlDVGqTbXoI6PpbwXGHnpw1kqdOdtlwdeGp08GCucEWuLf6K9tqXg_-S369iavXTNm0oJ4iGdTbsXQy24LKKen6qlBdEMvsL-B9c-xy_x_G5BvI306giEAKnu5vRXfQ-6TMddHApt9es5k0JNAnW6M2oXpHcKW1yr7U89OG0u5tuYhdf-QS5CcEowLDjtmW6pH3Ie09V6aTK47zCvis9O_pV6IkbmrJ0BTBVZpq8vqYKFvirLoC4rjmbTxw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/lzd6PXhsK_K1L1E5FNNGWTA0DlnLrih5WqQUIZzco20JXkzukixTh4ke7KDwhxpvwj1HoN_u9vw4RdjWPcsTEXfSu1f6I4LjE7T1OxHTCvV6cemJUVUJ4dStzxo8xpYu8viNhdXdc2RW-1Ik1VejX_yuZIp3qBhhq7X_vvvKoD-aRC6XpU3GzCjbAYhhOBOjqHf3y0I0jaW4VpvR96WgzuT-XlZEI4opyDfqJ-RaOoCMXUSFApYIZ9xDoEkH8coZwh7Nk5Wa3ogAzWyeNo4JPSrk2T96M-fHcqRIpNzRufjz3TN4aFpmCOOoIj-hp6y18Bh-nNn-xStqtR2dT_STvw.jpg" width="400"><br>
 
 خبرگزاری رسمی عراق از توقف تمامی پروازهای ورودی و خروجی از مبدا و به مقصد ایران، از فرودگاه بین‌المللی نجف خبر داد.
 مدیریت فرودگاه نجف با صدور اطلاعیه‌‌ای اعلام کرد: بر اساس دستورالعمل‌های رسمی صادرشده از سوی نهادهای ذیربط، تصمیم گرفته شد تمامی پروازهای فوق، از ساعت دو بامداد روز جمعه سوم مهرماه تا اطلاع ثانوی متوقف شود.
@@ -228,180 +340,6 @@ pezeshkian
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78519)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 23:27:23
-
-
-
-ویدیوی کامل با ترجمه ماشین
-بخش‌هایی در خبرها:
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مجمع عمومی سازمان ملل گفت: «می‌خواهم با دقت به سخنانم گوش کنید. روزی، و شاید آن روز چندان دور نباشد، مردم ایران آزاد خواهند شد.»
-او افزود: «حکومت آدم‌کش آنها به‌دلیل دروغ‌هایش، فسادش و بی‌رحمی‌اش سرنگون خواهد شد. این حکومت شرور سقوط خواهد کرد و همه ما آن روز را جشن خواهیم گرفت.»
-@
-VahidOOnLine
-بنیامین نتانیاهو در بخش پایانی سخنرانی خود در مجمع عمومی سازمان ملل متحد، بار دیگر به خروج نمایندگان کشورها از سالن و حضور معترضان در مقابل ساختمان سازمان ملل واکنش نشان داد. او با یادآوری سرکوب اعتراضات در ایران، خطاب به این افراد گفت: «زمانی که رژیم ایران هزاران نفر از مردم خودش را کشت، شما کجا بودید؟ شما درباره مردم ایران هیچ چیزی نگفتید.»
-نتانیاهو در ادامه تاکید کرد: «اما باوجود سکوت و ریاکاری شما، نیروی مردم ایران چیره خواهد شد. فقط مساله زمان است. یک روزی که شاید خیلی دیر نباشد، مردم ایران آزاد و پیروز خواهند شد و این رژیم پلید سرنگون خواهد شد و همه ما آن روز را جشن خواهیم گرفت.»
-@
-VahidOOnLine
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مجمع عمومی سازمان ملل گفت: «مستبدان تهران؛ می‌دانید از چه چیزی بیشتر از همه می‌ترسند؟ از مردم خودشان؛ مردم شجاع ایران که برای مدتی طولانی، فداکاری‌های بسیاری کرده‌اند.»
-نتانیاهو افزود: «از معترضان بیرون و نمایندگان ریاکاری که این سالن را ترک کردند می‌پرسم: کجا بودید وقتی مستبدان ایران ده‌ها هزار غیرنظامی بی‌سلاح ایرانی را کشتند و مجروح کردند؟ وقتی هزاران نفر از مردم خودشان را کشتند و مجروح کردند، کجا بودید؟
-آیا تجمع‌های گسترده برگزار کردید؟ اعتصاب غذا کردید؟ آیا مقابل نمایندگی ایران در سازمان ملل اعتراض کردید؟ آیا در دفاع از مسیحیانی که در ایران و سراسر خاورمیانه تحت آزار قرار دارند، سخنی گفتید؟ نه. چنین کاری نکردید، زیرا شما معترضان قلابی حقوق بشر هستید.»
-@
-VahidOOnLine
-ده‌ها نماینده حاضر در مجمع عمومی سازمان ملل متحد روز پنج‌شنبه ۲۴ سپتامبر، همزمان با آغاز سخنرانی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، سالن را ترک کردند.
-نتانیاهو در واکنش، نمایندگانی را که سالن را ترک کردند «بزدلان بی‌اخلاق» خواند و از دیگر افرادی که قصد خروج داشتند خواست پیش از آغاز سخنرانی او سالن را ترک کنند.
-@
-VahidHeadline
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مجمع عمومی سازمان ملل گفت: «قطر میزبان عاملان کشتار هفتم اکتبر حماس است. اکنون تازه‌ترین کشوری که به عامل گسترش گسترده دروغ‌های یهودستیزانه تبدیل شده، ترکیه است.»
-او افزود: «اردوغان یک مستبد است. او نیز میزبان رهبران تروریستی حماس است. او هزاران غیرنظامی کرد را کشته، نسل‌کشی ارامنه را انکار می‌کند و روزنامه‌نگاران و رهبران مخالف را زندانی می‌کند. در واقع، فکر می‌کنم در این زمینه رکورددار جهان است و البته رقابت سختی هم وجود دارد. اما فکر می‌کنم او نفر اول است.»
-نتانیاهو گفت: «او به‌طور غیرقانونی قبرس شمالی، بخشی از کشوری عضو اتحادیه اروپا، را اشغال کرده و به‌طور مرتب علیه یونان، عضو ناتو، دست به اقدام می‌زند. اکنون می‌خواهد سوریه را تصرف کند.»
-او افزود: «البته این تعجب‌آور نیست، زیرا تقریبا هر روز خواستار نابودی اسرائیل می‌شود. او می‌گوید قرار است حاکم اورشلیم شود. نه آقا، نخواهید شد. این کشور ما، شهر ما و پایتخت ابدی ما است.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78518)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 18:28:07
-
-
-
-رهبران دو اقتصاد بزرگ جهان روز پنج‌شنبه، دوم مهر، در کاخ سفید دیدار و دربارهٔ موضوعاتی از تجارت و تعرفه‌ها گرفته تا تایوان، هوش مصنوعی و جنگ ایران گفت‌وگو کردند.
-در این دیدار که در کاخ سفید برگزار شد، شی جین‌پینگ از ایران و آمریکا خواست که در اسرع وقت مشکلاتشان را با گفت‌وگو حل‌وفصل کنند. رئیس‌جمهور چین همزمان از میزبان آمریکایی‌اش خواست که به‌سرعت و از طریق مذاکره، جنگ با ایران را پایان دهد.
-رویترز به‌نقل از منابع آگاه گزارش کرده بود که چین در گفت‌وگوهای پیش از سفر شی جین‌پینگ، در مقابل امتیاز احتمالی آمریکا در زمینهٔ فروش تسلیحات به تایوان، پیشنهاد همکاری در اعمال فشار بر ایران را مطرح کرده است. این پیشنهاد به‌طور رسمی از سوی پکن تأیید نشده است.
-تایوان از دیگر موضوعات حساس دیدار روز پنج‌شنبه بود. چین این جزیرهٔ دارای حکومت دموکراتیک را بخشی از قلمرو خود می‌داند و بارها با فروش تسلیحات آمریکا به تایوان مخالفت کرده است.
-به گزارش خبرگزاری رسمی چین، شین‌هوا، آقای شی در کاخ سفید از دونالد ترامپ خواست که در قبال موضوع «استقلال» تایوان، با «دوراندیشی و احتیاط» رفتار کند.
-این دومین دیدار ترامپ و شی در سال جاری میلادی و نخستین سفر رئیس‌جمهور چین به واشینگتن در بیش از یک دهه است.
-شی جین‌پینگ عصر چهارشنبه به‌وقت محلی وارد آمریکا شد و دونالد ترامپ در پای هواپیمای او در پایگاه اندروز از وی استقبال کرد.
-این نخستین بار در ۱۱ سال گذشته است که یک رئیس‌جمهور آمریکا برای استقبال از یک رهبر خارجی به این پایگاه می‌رود. آخرین بار باراک اوباما در سال ۲۰۱۵ در آن‌جا از پاپ فرانسیس استقبال کرده بود. موضوعی که نشانه‌ای از احترام ویژۀ دونالد ترامپ به همتای چینی‌اش به‌شمار می‌رود.
-کاخ سفید همچنین برای پنجشنبه‌شب ضیافت رسمی شامی ترتیب داده که شماری از مدیران شرکت‌های بزرگ فناوری آمریکا از جمله اپل، آمازون، آلفابت، اوپن‌ای‌آی، تسلا و انویدیا به آن دعوت شده‌اند.
-شی جین‌پینگ چهارشنبه‌شب در بدو ورود به آمریکا ابراز امیدواری کرد روابط پکن و واشینگتن باثبات‌تر شود و گفت دو کشور باید «شریک باشند، نه رقیب».
-پیش از دیدار دو رئیس‌جمهور، مقام‌های ارشد اقتصادی دو کشور بر سر تمدید آتش‌بس تجاری به توافق رسیده‌ بودند.
-اسکات بسنت، وزیر خزانه‌داری آمریکا، پس از گفت‌وگو با هه لی‌فنگ، معاون نخست‌وزیر چین، اعلام کرد توافقی که افزایش شدید تعرفه‌های متقابل را متوقف کرده بود، تا ۱۰ ژانویه تمدید خواهد شد. آتش‌بس تجاری فعلی قرار بود در ماه نوامبر به پایان برسد.
-در جریان جنگ تجاری دو کشور، تعرفه‌های متقابل در مقطعی از ۱۰۰ درصد نیز فراتر رفته بود.
-مقام‌های آمریکایی همچنین از احتمال اعلام توافق‌هایی در زمینهٔ کشاورزی و موانع غیرتعرفه‌ای خبر داده‌اند. آمریکا می‌گوید چین در اجرای تعهد خود برای خرید ۲۰۰ فروند هواپیمای بوئینگ نیز پیشرفت‌هایی داشته، هرچند هنوز سفارش تازه‌ای اعلام نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78517)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:32:11
-
-
-
-ارزش ریال در مقابل دستمال کاغذی
-FattahiFarzad
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78516)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:15:30
-
-
-
-علی قلهکی، از منابع "نزدیک به حکومت"، با انتشار این ویدیو نوشته:
-'''
-اختصاصی: «تاجیکستان» و «جمهوری آذربایجان» آسمان خود را بر روی پروازهای «ایران» بستند
-«پرواز هواپیمایی وارش» از تهران به «شهر دوشنبه» _پایتخت تاجیکستان_ از مرزِ هوایی لغو شد و به فرودگاه امام خمینی بازگشت.
-🔻
-پی‌نوشت: مسیر پرواز هواپیمایی وارش از سمتِ ایرانوبه مقصد «دوشنبه» _پایتخت تاجیکستان_، ورود به آسمان جمهوری آذربایجان و ترکمنستان بود که پیش‌تر آذربایجان و ترکمنستان آسمان خود را بر روی پروازهای ایرانی بستند و پرواز نتوانست وارد آسمان این دو کشور شود و بالاجبار به کشور بازگشت.
-'''
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78515)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:10:42
-
-<img src="https://cdn4.telesco.pe/file/JepQtAzKkJijA_iPwYXbzftUr8VVPJyFIKaqHvC5eXFwvSDEXoW_Qv02Jev6T7qUt9KChbLIzqNf_p645lUtCpZehNsBXzA6HP-w6ivojB1bznbhBHIYypiBXF7oO7V3Qk5ojERzg2VK1AiDlS-zCm3fYhnxHD5WOJiQEM50i2nJXn-LO0ElldjK6RDb33ft7n3O-ybjQYBrSoBxlV-nCOHpltYNQpJGL00l5XIZntQpt-GfcwmkIHiB4GcHqEw8AZlQD-Mlid7SGdWLIiltR8qfA8bDaFgEAh_gUxtuCu-RoIGCnZDbD4Roqb3TRUifD6qFoUJ6VEaGg3eCwfawvQ.jpg" width="400"><br>
-
-شعبه دوم دادگاه انقلاب رشت ۹ وکیل دادگستری در استان گیلان را در یک پرونده مشترک به مجموع ۱۴ سال‌وهفت ماه‌و۱۵ روز حبس محکوم کرده است.
-هرانا خبر داد «معصومه پورشهرانی»، «طاهره پوراسماعیلی»، «شادی فلاحتی»، «غلامحسین لایقی»، «حسام احمدپور»، «لادن آصفی‌راد»، «محمدرضا تاک»، «کیان طاهر‌اجارود» و یک وکیل با نام خانوادگی «دلیلی» در این پرونده محکوم شده‌اند.
-هر یک از این وکلا با اتهام «تبلیغ علیه نظام» به هفت ماه‌و۱۵ روز زندان و با اتهام «توهین به رهبری و بنیان‌گذار جمهوری اسلامی» به ۱۲ ماه زندان محکوم شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78514)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:09:32
-
-<img src="https://cdn4.telesco.pe/file/ZvA6Tzq8hiVo695JHR7h0OhdQRn6gvASA7USc91aR4_yoB6GN6sUlisYir5T3gn3PD8M4pRpmdmG8KlpF4GfRQ1bSoZhhDVmadU-lSQFCLNAj-Bq7HArpnFn1U6Bur4rE6J5eLVDjLVj90mL8k3gSdvzyHnkN9M7d9Er-uMYrsxZ5ym7eKzkAE8tGhX2tmm_SaT6CYBC_V0GDcTWwN86ogj9nJpisnnA5AHwDpwaCY5Gmsgirz6I32G-t3yvt-E9qDQI_eInL1Pki9-_NAsFY4Q-VtSXbv8YJHH_tyUSDUVkz6fLJWjt5Sss2BfpUVDQqk5ZXLHYVaL3bgeC_ZL_XA.jpg" width="400"><br>
-
-امارات متحده عربی روز چهارشنبه اول مهر فعالیت بانک ملی ایران در این کشور حاشیه خلیج فارس را ممنوع اعلام کرد.
-این بانک در بیانیه‌ای اعلام کرد: «این اقدامات در نتیجه تخلفاتی مرتبط با رعایت نکردن مقررات، قوانین و تصمیمات نظارتی لازم‌الاجرا در امارات متحده عربی اتخاذ شده است.»
-این نهاد افزود که این تخلفات شامل رعایت نکردن الزامات قوانین مربوط به مبارزه با پول‌شویی، تأمین مالی تروریسم و تأمین مالی اشاعه تسلیحات بوده است.
-بانک مرکزی امارات اعلام کرده تمامی شعب بانک ملی ایران در این کشور از انجام تراکنش‌های مالی به مقصد ایران و از ایران، از جمله تأمین مالی تجارت و انتقال وجوه، منع خواهند شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78513)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:08:45
-
-<img src="https://cdn4.telesco.pe/file/bERXGsiByqmZfOce8nY69NTQosQLDtyeMUQeSiFUby51oG3BGAaygyEzy4R49hmpYU5lkzARwAEkGpAgYdN5ibyIqp9mfu_hN9ExtNyXm1MNhIiNhSyWoKnJYXQ-_DcLfDl6SLA9gYCGkqrVBlJs3Z7Bw2CEWT1ar9THDlLRrFdrDJiiKXF2AA3EP6L3qG9Ola9srY4Bc2b_WmXo1rNlUK59BYpyZq-epP62WEymQ2XlDGAcqAUovvSl0-r3pee-EcqnKVzpg33Liowyw-s4SS30VUro6Ld4lH882gLRRzcg8N840ealIEVEn5ds8ue9rMDho0k4P5ivXheXsu11Fw.jpg" width="400"><br>
-
-در پی تاکید رئیس‌جمهور ایران بر ادامه برنامه هسته‌ای و عزم جمهوری اسلامی برای تسلیم نشدن در مقابل فشارهای آمریکا، ارزش ریال ایران دوباره روند نزولی گرفت.
-نرخ دلار در مقابل ریال ایران روز پنج‌شنبه با ۱.۴ درصد افزایش به ۲۳۵ هزار و ۴۰۰ تومان رسید.
-نرخ یورو در لحظه تنظیم این گزارش در ظهر روز جاری به نزدیک ۲۶۸ هزار تومان و پوند بریتانیا به ۳۱۳ هزار تومان رسیده است.
-سکه امامی با نزدیک به دو درصد افزایش هم اکنون بالای ۲۴۰ میلیون تومان و سکه بهار آزادی با ۱.۷ درصد افزایش بالای ۲۳۶ میلیون تومان معامله می‌شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78512)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-24 17:07:59
-
-<img src="https://cdn4.telesco.pe/file/AdDuHCMN8w_LHYLbsLYFWWDUMM60iRBvBljfjfdKSw91u5fwnKlhn84symKVYI2gD1TPdree305teZSxCN7czsYbDOZTBOJp1AAlCaYGtzlck2Hu9PFStAr-tv9wUTmJuo7Vzh77p4pcQFYRUmh4Sl-YfpghKfZ8SBhkoqDOBZ0UpYsx6tbCAwtcqGuvM2-PkqIZ3MoyHzuDrspkvGjZ_D6-NYUiv2kmDIQ-x524Yl30d-8sTxZa_UuIJvrdkBd8ssXOxAfkZ0EJakTLe3vrr8h2PloKZ58lW3IUPOWrZe-yQPN8Y1n1pK1PUSVKBsl0jm6J9-G4pUxhW1b3feGg6g.jpg" width="400"><br>
-
-شرکت ردیابی نفتکش‌ها «تانکر ترکرز» می‌گوید نزدیک به شش میلیون بشکه نفت خام توقیف‌شده ایران، به ارزش تقریبی ۶۰۰ میلیون دلار، در حال عبور از اقیانوس اطلس به مقصد ایالات متحده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78511)
 
 ---
 
