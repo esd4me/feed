@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-26 23:53:55 </h5>
+<h5> 🟢 Updated at: 2026-09-27 02:45:17 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-27 00:34:57
+
+
+
+پیام‌های دریافتی:
+سلام وحید جان قشم صدای انفجار از روی دریا اومد
+قشم۱۲/۳۲ انفجار
+وحید جان صدای انفجار از سمت تنگه میاد خیلی فاصله داره تا ساحل جزیره قشم تا حالا ۵ تا۶ شنیدم
+از ساعت ۱۲  تا ۱۲۳۰
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78540)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-26 22:13:11
@@ -321,24 +339,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78521)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 06:04:37
-
-<img src="https://cdn4.telesco.pe/file/Z1jYFw5lvUADfCXXo5A7q2rXoXlm-amrJwx5GZjOEjc-JaGoLqm35jDHcb_vqhCaHfBIHmjDnKu9uPR1ZC1wLv-bzkAi-VQNqHIdw4hNbpTH3rOfF2B9tCA9GaRXFmawJAF0NlYwQE3K_n_Do4XKnVGuKS4lzx99XWgTy-D9Ar8wSpAM-gKpr6K1ssWld7MYIddJKUeW61lMwKRe6jVlDs5eFDAdRt-bzIwtGz-BLgId8PKprigPrjf98-bpapeFsaXz5-xGOuVbCfdBpQkOYdaOVO2uBjCCsIq885DSfSr1p_-4VgVwLHP8j5NxVHeIoFxrlKW4jOwvTsVNEQYgoQ.jpg" width="400"><br>
-
-به گزارش سی‌ان‌ان، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، پنجشنبه دوم مهر گفت تهران پیشنهادی به آمریکا ارائه کرده است که می‌تواند به بازگشایی تنگه هرمز و ازسرگیری مذاکرات برای دستیابی به یک «توافق نهایی» منجر شود.
-عراقچی گفت این پیشنهاد در هفته جاری از طریق میانجی‌ها به واشنگتن ارائه شده و بر اساس آن، آمریکا باید ظرف هفت روز شروط مشخصی را اجرا کند تا مذاکرات از سر گرفته شود و تنگه هرمز بازگشایی شود. او جزئیات این شروط را بیان نکرد، اما گفت این موارد «چیزی بیشتر» از مفاد تفاهم‌نامه اسلام‌آباد نیستند.
-بر اساس این گزارش، تفاهم‌نامه اسلام‌آباد که در خرداد میان ایران و آمریکا به دست آمد، شامل کاهش تحریم‌ها، آزادسازی دارایی‌های مسدودشده ایران و توقف عملیات نظامی، از جمله در لبنان، بود. یک مقام کاخ سفید نیز در واکنش به اظهارات عراقچی به سی‌ان‌ان گفت گفتگوها از طریق میانجی‌ها «مثبت و سازنده» بوده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78520)
 
 ---
 
