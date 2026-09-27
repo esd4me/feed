@@ -3,8 +3,183 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-27 17:55:17 </h5>
+<h5> 🟢 Updated at: 2026-09-27 22:16:22 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-27 18:27:15
+
+
+
+"از او بگو به دنیا.. از او که قصه ای داشت
+او جشنِ زندگی بود.. سروی که قد برافراشت
+از اُجرتِ گلوله .. از شر که می‌هراسد
+از مادری که او را از خال می‌شناسد
+از او بگو به دنیا.. ای شاهدِ غروبان!
+این رقصِ بی‌سران است، این داغِ پایکوبان..
+یاد آر اگر رگت را با مرگ می‌خراشی
+تو بازمانده‌ای تا او را گواه باشی!
+دیدی که بر مزارش، رقصِ پدر کدام است؟
+این هلهله عزا نیست.. آئینِ انتقام است
+از او بگو به دنیا.. از نغمه‌ای که سر داد
+از او که نیمه جان بود در کیسه‌های اجساد…
+از او بگو به دنیاااا"
+monaborzouei
+Lyrics: Mona Borzouei
+Music & Arrangement: Reza Sadeghi
+Producer & Concept: Sia Davarnia
+Executive Producers: Mahshid Hamedi Boromand & Farshid Rafe Rafahi
+Director: Carlito Brigante
+Video Producer & Director of Photography: Avid Eghbali
+Ebihamedi
+📱
+youtube
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78549)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-27 18:26:55
+
+<img src="https://cdn1.telesco.pe/file/sdldvDWQklFnOhltF5VOHaRIfCifUF3s_wxxdvCyrcydLtD7ttvhGjXBRjTEj6Rquyuis6sBMDnsNPH2a9vx6gNtH8JMbd08oGl16oQyDkIr0Z8GmSx2k5ZayehL9d8UKpoOa_h0D1RnHCWDEriAm0uB9jhKUs_JoXEzc1NxUe9qyoplUqjIgjIVJfE-H2Ni0u82IsgFhY4e6xz7wRfV7VzkvTdEBzUsHwSmIfGP9OPfZt5725mdW4-F2zJOn3fZ5Y5MP7RukhRBHXL6PwTPB_iMW0Yk60irnR01onYOT71vjOFGmmhoZBio5IhVWYLqaMdfcsqIli_Q9eQkQgiOEQ.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس جمهوری آمریکا، روز یکشنبه پنجم مهر ماه و یک روز پس از آنکه اعلام کرد پیشنهاد ایران برای پایان دادن به جنگ را رد کرده است، در گفتگویی تلفنی با آکسیوس گفت انتظار دارد مذاکره‌کنندگان آمریکایی این هفته مذاکرات بیشتری با ایران داشته باشند.
+ترامپ گفت: «انتظار دارم این هفته مذاکرات بیشتری با ایران داشته باشیم. آنها می‌خواهند به توافق برسند، اما این توافقی نیست که من بخواهم به آن برسم. این همان چیزی است که شاید یک سال پیش با آن موافقت می‌کردیم. آنها بیش از حد روی مواضع خود پافشاری کردند.»
+به گزارش آکسیوس دو منبع منطقه‌ای نیز اظهارات ترامپ درباره برگزاری مذاکرات بیشتر در این هفته را تایید کردند و گفتند انتظار دارند دور دیگری از گفتگوهای غیرمستقیم میان آمریکا و ایران از روز دوشنبه برگزار شود.
+با این حال، آکسیوس گزارش داد مشخص نیست اختلافات میان دو طرف بر سر مسائل اصلی قابل حل باشد. ایران می‌خواهد مذاکرات بر تنگه هرمز و محاصره دریایی آمریکا متمرکز باشد، در حالی که دولت ترامپ خواستار تعهد ایران به امتیازهایی در پرونده هسته‌ای است.
+@
+VahidOOnLine
+پیش‌‌تر:
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز یکشنبه پنجم مهر در حاشیه حضو در مسابقات گلف جام رؤسای جمهوری در شیکاگو، از رکوردشکنی انتقال نفت از تنگه هرمز خبر داد و تاکید کرد به محض «تسلیم ایران» و پایان جنگ، قیمت نفت به‌شدت کاهش خواهد یافت.
+ترامپ با اعلام آنکه شنبه شب «مقدار بی‌سابقه‌ای» نفت از تنگه هرمز منتقل شده، افزود این میزان حتی از مقدار نفت منتقل‌شده پیش از آغاز جنگ نیز بیشتر بوده است. او همچنین گفت قیمت نفت اکنون از دوران دولت جو بایدن پایین‌تر است.
+@
+VahidOnline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78548)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-27 18:23:20
+
+<img src="https://cdn1.telesco.pe/file/auUPbXrv3SQN5zQ-nDJKQbnnlyi8_9PRfqpLjCMUocjYpMu7zfVZc9ww-BVgUMRlkPPKjS71RcMIrs4jdw7_0Duwd846jyvvr8hA7lVgRSMPTAKZJwraoG62dSOud6gY-HsVM2FXcCpdP_Ew7pgtM20gAqQFrhaJPWxaG8yrs4Izgi2BjlCZnb-gV8sqxSafOOcq4jPuV_kXPUV9vCy34S-oZsQaA9S45SAxoNa3sw5A-wYXdhCNynV0GSxEuOMICkJZsAlD1hi0hMcRkDxQHiBhEqOJUeZGbP_S67odnQuR_mlJI7NR5lawExFdg36-b3XgcGf4LfQj8oGJHGGw4A.jpg" width="400"><br>
+
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، می‌گوید با وجود اعلام علنی دونالد ترامپ درباره رد پیشنهاد هفت‌روزه تهران، هنوز پاسخ رسمی واشنگتن از طریق میانجی‌ها به جمهوری اسلامی منتقل نشده است.
+او با اشاره به اظهارات متفاوت دونالد ترامپ در روزهای گذشته افزود: «متاسفانه از رییس‌جمهوری آمریکا حرف‌های ضدونقیض زیاد شنیده می‌شود.» عراقچی گفت تهران منتظر خواهد ماند تا واسطه‌ها «نظر قطعی» واشنگتن را اعلام کنند و سپس درباره گام‌های بعدی تصمیم خواهد گرفت.
+@
+VahidHeadline
+عراقچی روز یکشنبه ۵مهر ۱۴۰۵، در گفت‌وگو با برنامه «میت دِ پرس» شبکه ان‌بی‌سی نیوز، در پاسخ به گزارشی درباره احتمال ازسرگیری حملات آمریکا پس از انتخابات میان‌دوره‌ای این کشور گفت: «ما کاملا برای ازسرگیری جنگ آماده‌ایم. در برابر هرگونه تجاوز جدید ایستادگی می‌کنیم، حتی اگر به جنگ آخرالزمانی منجر شود.»
+او در عین حال افزود: «هم‌زمان آماده دیپلماسی هستیم. انتخاب با رییس‌جمهور ترامپ است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78546)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-27 18:23:05
+
+
+
+سپاه: دومین زیردریایی بدون‌سرنشین آمریکا را در تنگه هرمز به غنیمت گرفتیم
+نیروی دریایی سپاه پاسداران انقلاب اسلامی روز یکشنبه پنجم مهرماه با انتشار بیانیه‌ای مدعی شد که یک زیردریایی هدایت‌پذیر از راه دور بدون‌سرنشین (زهپاد) آمریکایی را در تنگه هرمز شناسایی و به غنیمت گرفته است.
+در بیانیه سپاه آمده است که نیروهای نیروی دریایی این نهاد در یک «اقدام هماهنگ و پیچیده» و با استفاده از اشراف اطلاعاتی و جنگ الکترونیک، این وسیله زیرسطحی را که  «برای جاسوسی در تنگه هرمز» فعالیت می‌کرد، به دام انداخته‌اند.
+سپاه این زیردریایی را REMUS 600 معرفی کرده و گفته است که آن را به غنیمت گرفته و اکنون در اختیار متخصصان نیروی دریایی سپاه قرار دارد تا اطلاعات آن بازیابی و بررسی شود.
+رسانه‌های وابسته به جمهوری اسلامی نیز هم‌زمان ویدیویی از این وسیله زیرسطحی منتشر کرده‌اند و آن را به‌عنوان «دومین» زهپاد یا زیردریایی بدون‌سرنشین آمریکایی که در جریان درگیری‌های اخیر در تنگه هرمز به دست ایران افتاده است، معرفی کرده‌اند.
+براساس گزارش رسانه‌های دولتی ایران، این زیردریایی یک وسیله نقلیه زیرسطحی خودران (UUV/AUV) است و برخلاف یک زیردریایی سرنشین‌دار، خدمه‌ای داخل آن حضور ندارند.
+این خانواده از سامانه‌ها برای ماموریت‌هایی از جمله شناسایی و مقابله با مین‌های دریایی، نقشه‌برداری از بستر دریا، شناسایی و پایش زیرسطحی و جمع‌آوری اطلاعات دریایی استفاده می‌شود.
+ادعای امروز سپاه در حالی مطرح می‌شود که پیش از این، در ۱۷ شهریورماه نیروی دریایی سپاه از توقیف یک وسیله زیرسطحی آمریکایی دیگر در نزدیکی ورودی تنگه هرمز خبر داده بود.
+سنتکام در آن زمان اعلام کرد که آن زیردریایی به‌دلیل نقص فنی متوقف شده و «حاوی اطلاعات حساسی» نبوده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78545)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-27 18:20:03
+
+<img src="https://cdn1.telesco.pe/file/hjvrxnjbVuhM4-uTIyyWl5lvFDiAzgNc9dYbAUJCixA7li544YDYTVqSY3lOa9o6tlqMkxzcpBQPpeqobxH_EgkM2Xjs1-Mz6d9hnU_y8fYVTV89ZuoNJx7q3mfwH_SxBPM1-yq0yjEOzpxzy5akeL6nQSAANprPA1teI2fLf7reni5tlAamzYySXcjR2IAeXbwHEnyolmfTtPYK4PO9LH3u6SE6xUFmhiPDGsvBFuWDAoqjixYaU_vpNhDWSnd8c_Z2Zl32VNI5AXNLgn1IQe79eLAa_GLskc_KKv_uJmepf2yRq87hWRQqlt3ZF701Ny2nRfYe4UPMuMSBoZYPmw.jpg" width="400"><br>
+
+محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی، در گفت‌وگو با خبرگزاری دانشجو گفت: آمریکایی‌ها در منطقه در وضعیت مناسبی قرار ندارند، اگر وضع آمریکا خوب بود تلاش برای تغییر وضعیت نمی‌کرد. آمریکا ممکن است دست به یک تعرض بزند اما ما از گذشته آماده‌تر هستیم.
+اکرمی‌نیا گفت: آمادگی انگیزشی و روانی داریم و تلاش کردیم تجهیزاتمان را بهینه کنیم و تجهیزات جدید وارد سازمان رزم کنیم.
+سخنگوی ارتش جمهوری اسلامی افزود: اگر دشمن دست به تعرض بزند منطقه بیش از گذشته درگیر جنگ و ناآرامی و خشونت خواهد شد و کشورهای منطقه آسیب بیشتری خواهند دید.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78544)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-27 18:19:30
+
+<img src="https://cdn1.telesco.pe/file/HfQu_enYmfZFjGMWYNcfEIo3IUPSg8GWs2e5OepO79DVJfJ4eDbi6iS1q4-f6kP2q9mLSx0sT5l_zJnP80D_8X6mx4HEZwOXS9d_Mq_jb5GLHBgR0jSKJWYl0p4WbIg_ESI-1GieWsjJz3GPIIxOkrKMu8q7Z3yGnrLwWplIDIo59UmHwEpXpWoZiCyCk_P40KU14WIxQ-mo8JuCCK3QY9NbdQzslduhVizvW0RmxpMK7jGgtcOGjoxVPrKd-kKKG9d9KjXSC829T2up8yZI8eridfYYpFmtprpmYEA35zi58H4U3Kwu4jPu-R8U_B7etn8fMy60SjKggtDq1F3TEg.jpg" width="400"><br>
+
+حمید رسایی در پرونده شکایت محمدباقر قالیباف به ۱۰ ماه حبس محکوم شد.
+این نماینده مجلس شورای اسلامی گفته است که برای اجرای حکم خود را معرفی می‌کند.
+دادگاه به استناد ماده ۶۹۸ قانون مجازات اسلامی، حمید رسایی را به «اعاده حیثیت و رفع اثر از ادعای نادرست از طریق انتشار تکذیبیه در صفحه اول نشریه ۹ دی» و ۱۰ ماه حبس تعزیری محکوم کرده است.
+گفته شده است با توجه به اینکه این جرم قبل از دوره نمایندگی رخ داده، حمید رسایی مشمول مصونیت پارلمانی نیست و دادگاه او را برای اجرای احکام احضار کرده است.
+@
+VahidHeadline
+عباس عبدی، روزنامه نگار و فعال سیاسی، به دلیل انتشار یادداشتی در روزنامه اعتماد به یک سال حبس تعزیری محکوم شد.
+روزنامه اعتماد هم در این پرونده به دو ماه توقف فعالیت و انتشار محکوم شده است.
+آقای عبدی در بخشی از این یادداشت که ۱۶ اردیبهشت ماه در روزنامه اعتماد چاپ شده بود نسبت به انتشار «اخبار جعلی» از سوی برخی از نمایندگان تندرو هشدار داده و گفته بود: «این افراد تحت نام نمایندگی هر چه بخواهند می‌گویند و کسی هم در مقام اصلاح آن‌ها برنمی‌آید.»
+در پی انتشار این یادداشت، دادستانی تهران او و روزنامه اعتماد را به چند اتهام‌، از جمله «ایجاد دوقطبی کاذب و اختلاف میان اقشار جامعه» و «نشر اکاذیب و مطالب خلاف واقع» تحت پیگرد قرار داد.
+@
+VahidHeadline
+صادق زیباکلام نیز در پی مصاحبه‌ای با خبرگزاری آنا به یک سال حبس تعزیری و از باب مجازات تکمیلی به منع هرگونه فعالیت رسانه‌ای، مصاحبه، یادداشت‌نویسی و انجام مصاحبه به مدت دو سال محکوم شده است.
+@
+VahidHeadline
+حکم یک سال حبس در پرونده حشمت‌الله فلاحت‌پیشه نیز در دادگاه تجدیدنظر تأیید شده،‌ اما به مدت پنج سال به حال تعلیق درآمده است.
+سیامک رحمانی، روزنامه‌نگار، نیز پس از تفهیم اتهام و صدور کیفرخواست با اتهام «فعالیت تبلیغی علیه نظام» به پرداخت جزای نقدی درجه شش به میزان ۸۰ میلیون تومان محکوم شده که این رأی قابل تجدیدنظر خواهی است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78542)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-27 18:18:58
+
+<img src="https://cdn4.telesco.pe/file/kdDEIecQwTcB0cNeaufmiHsPCliV_Rv-4xs0rXArjU0ZyFR5fS7QOexgXcTqqOuWffpKN8b1Yn1EYg053MpLfx5yUegn6KVr_lEX4sm3iehxl9eE9-vFoCUPKG-5xni8lJ6P8WwqMVqgYQdyLhJ1bzAbhd9bv-jBE4xinZx0DQ8ruKcSCCsHBtbNXZEs27TF31Ht44cSZ8jmM3imPjd5XLok7XqiCfDg04ydxUmxY1Nr_N3v38DN3vcCLqa-1HCdDYs7mhX5EZ8pNj_IXupZ0Q4SU2CYgfZOqDtvsgpUf0YrhFO1X3fSARy32EVue9SPRNLavKRQIW6Dh-_mLKFg4A.jpg" width="400"><br>
+
+حکم پنج سال حبس دیگر برای علی یونسی، دانشجوی مهندسی کامپیوتر و دارنده مدال‌های المپیاد نجوم، در دادگاه تجدیدنظر تأیید شد. این حکم پیش‌تر از سوی شعبه ۲۹ دادگاه انقلاب صادر شده بود.
+یونسی و امیرحسین مرادی، دانشجوی فیزیک دانشگاه صنعتی شریف، قرار بود با پایان محکومیت قابل اجرای خود در آذرماه ۱۴۰۵ آزاد شوند، اما با تأیید حکم جدید، علی یونسی همچنان در زندان خواهد ماند.
+تابستان ۱۴۰۴، این دو دانشجو هر کدام به اتهام «فعالیت تبلیغی علیه نظام» به ۱۵ ماه حبس محکوم شدند و علی یونسی نیز علاوه بر آن، به پنج سال حبس دیگر محکوم شد.
+یونسی و مرادی از فروردین ۱۳۹۹ در زندان هستند و بنا بر گزارش‌های منتشرشده، در مجموع ۸۰۸ روز را در سلول انفرادی و بندهای بسته سپری کرده‌اند.
+این دو دانشجو در پرونده اولیه در سال ۱۴۰۱ هر کدام به ۱۶ سال حبس محکوم شده بودند که در مراحل بعدی، میزان حبس قابل اجرای آنان کاهش یافت. با تأیید احکام جدید، هر دو همچنان از ادامه تحصیل و حضور در دانشگاه محروم خواهند بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78541)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-27 00:34:57
@@ -27,7 +202,7 @@
 
 ###### 🔵 Post time: 2026-09-26 22:13:11
 
-<img src="https://cdn4.telesco.pe/file/KEvqj-HPZf1MRcqYkpKTNnu13TXok-Ggu-cP3e8I2uMEyFvcfooUNio19h5qZwwvReOmPCCm6MEP0aH4_ZX3kjoVcd1M2Xv1XpJ4WDXoRgP4LvYxde-8Al8nGyYJRssXPqjmsU-mAYBNpJdSnqt6qcrcGIjPtYq2js1iJahU10VG3RIjO5rmBezeL1ti66rJAqptymwt1z16DbgpePtFPqNvbnkHJFHsXb8XDEzQfk7_RDvaVGb0xiRuNFQ0PsvjATkdZrYFX3Zq_3hZHYXg2t7Y5l5O5E5WPtUmhomiQ0BTCScr64kBGa5tQA71CEaNYgqOgjCk4020Ck1kiZrnKQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/E60o9cFZTvTe1ved7CB4PbeDj7L4W4IIVdCM3a7bznSj8q693DC3T-1CCOBN2PXmWa-esJL75KEIu86ZaTt_kbdtgx7rJ3UjCSmsS60CBHmgDL5aU4uoDhspXUvtYq7KYGwUkIZNTuQjGsJRB_tFLbxxcpMzxKxTT8HKXG-fs_DhuYrvsUDz6L_MLHRhSdDBCO7sKcNftnrMbspUiA4z9NNQKTRFKRZ8p5GCQz44Y_bAXgikQU8rnfeQlawFCy49Lh844SvxumY4fTVQ7E9fwV37Zr9efFF1H9qmowQXv9Dtom3EiCYWYPz8skouG68OHzGpCVUXOJDeMELkVxIVcw.jpg" width="400"><br>
 
 وبسایت آکسیوس، روز ۴ مهر ۱۴۰۵، به نقل از یک منبع آگاه گزارش داد مذاکره‌کنندگان آمریکایی در جریان مذاکرات غیرمستقیم با عباس عراقچی، وزیر خارجه جمهوری اسلامی، به او اعلام کردند که ایران کنترل تنگه هرمز را در اختیار ندارد و بنابراین نمی‌تواند برای بازگشایی این آبراه شرط تعیین کند.
 عراقچی در این مذاکرات شروط تهران برای بازگشایی تنگه هرمز و ازسرگیری مذاکرات هسته‌ای را به طرف آمریکایی ارایه کرده بود.
@@ -173,172 +348,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78530)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 17:15:59
-
-<img src="https://cdn4.telesco.pe/file/hDyE-YX7S2GaO--5Yf2AHNtT1l59LaxbpTU8pr7hubvDOlZQbUsegol7AIt9Lqb31gAQPodZv8Da8TGspES7DAZ7WDI56qqHNBN9wfXA1asVNELPz8HiK28x19SOYlp7nH-IHbgf-yQSCWET-al9D8FEvGG8y_kfqkdC2bAN6Ve9DwrUORviYSttElW9EXQm4ABGgEjVTOhZnB5o3W3ZFmnq5i92cQBd0pJ4ehyIx1m3IpeIk3U--FI5ymq2bluiHncHiM1ZrlgHJRX1i94oH-5FIr9OJhr-ggyQnOa-bxtPt4FtsY-mgZKOa-svH415UVgvDG5RdThi_cSbrqpQHg.jpg" width="400"><br>
-
-محمد مخبر، مشاور رهبر جمهوری اسلامی ایران، هشدار داد که در صورت تداوم محدودیت‌ها و قطع خدمات فرودگاهی برای پروازهای ایرانی، هیچ‌یک از کشورهای منطقه نیز اجازه نخواهند داشت از خدمات پروازی بهره‌مند شوند.
-مخبر روز جمعه، سوم مهر در شبکه اجتماعی ایکس نوشت: «همسویی با آمریکا در اجرای سیاست‌های خصمانه در خاطر ملت ایران ماندگار خواهد بود، هر چند راهبرد ما در این مورد مشخص است: پرواز در منطقه یا برای همه آزاد است، یا برای هیچ‌کس.»
-پیش از این محسن رضایی نیز تهدیدهای مشابهی را مطرح کرده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78529)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 17:15:03
-
-<img src="https://cdn4.telesco.pe/file/NrXpW1u0s8RTPZuUbWSJLNsuW8282cKLGg-UKf3L1QERPFISjZBSd2tDS0xlfSDYjqzn08u5KHmUHKpsYnbe9uEQU2HwawDaZy1RL_b72Avr3hVXo5KcTwQ0G_ZyidzIK4jz3SApxdD1Sd9L6hk0eGcIvkjXa7HM-QhmkMehi6epQ2b_Z8LSA7oKgFA5paF8dS3DVxhhhmpdP7rQKIK9MXFSMn_kcK0WrtzEDOSdsV3mBWR_45KxlF94SiSmX3pg8nuUahQ4Uhi7yPQA1Pa8TqNpZikkP-5fy3HSHtdJHLiI3SMmUbRj61huWf-ntCkv_nbqcHJT32Ow-vK_7IXPIg.jpg" width="400"><br>
-
-خبرگزاری رویترز به نقل از دو منبع مطلع خبر داد که فرودگاه‌های اربیل و سلیمانیه در اقلیم کردستان عراق از روز جمعه سوم مهرماه پرواز هواپیماهای ایرانی را معلق کرده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78528)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 17:14:27
-
-<img src="https://cdn4.telesco.pe/file/Vdg4jWRF3mEV14C-PhPnepcsZxxvVEK4LutlVFXWiUvym7tMV7txQ2p3qacEMQ7qCcS0Ek38flH88PRWzY5RwEXu5jtqaBXnuRxMFsq54Dk4C_k39y_643c-DeN0GKEd5qquRk9j695aObkqTff3ESqwRNu6862WzxuGO45d_ICwI7yW4tjb7iJWHhPRUZ8B13wfLlaEpQW9O65osMTY8eDK2_DCAo5aI3Frzi_Fp1-dVoefkdIgY0DX28UqC_hLfhVn9w8fgugM4iBAJr-8tGBOyYiDOYYGtr1edJ-yEhODxgA5mdyJBmeyVr34IEKNyp3CDD1TQqRONB3xoC9mMg.jpg" width="400"><br>
-
-خبرگزاری رسمی عراق از توقف تمامی پروازهای ورودی و خروجی از مبدا و به مقصد ایران، از فرودگاه بین‌المللی نجف خبر داد.
-مدیریت فرودگاه نجف با صدور اطلاعیه‌‌ای اعلام کرد: بر اساس دستورالعمل‌های رسمی صادرشده از سوی نهادهای ذیربط، تصمیم گرفته شد تمامی پروازهای فوق، از ساعت دو بامداد روز جمعه سوم مهرماه تا اطلاع ثانوی متوقف شود.
-پیشتر فرودگاه بین‌‌المللی بغداد نیز از توقف پروازهای ایرانی خبر داده بود. این اقدام در پی تحریم‌‌های اعمال‌شده از سوی ایالات متحده علیه خطوط هوایی جمهوری اسلامی اتخاذ شده است.
-روز پنجشنبه نیز فرودگاه‌های امارات به همراه برخی از کشورها از جمله ترکمنستان و آذربایجان، از اعمال این تحریم‌ها خبر دادند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78527)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 17:13:21
-
-<img src="https://cdn4.telesco.pe/file/eMB6uUwFSv7FXnYiBxldLyauDwdSuXXUuuM4yX3VtFSO08_oQnNdY7nlB25BviLNIrh5jpWrfv-utqnQnVwsGD4eaiutzvjT5dbJnMVFnbcq1Yai_O2B_LhuCQbs0nDq6sbQaTqzjnI_EszIeTnBcsBJt1TywVml2y_vXxebVcwl7DcucerTkVpS86HdvHrQtohSepp-lzXgfNO3jT5t8XiC4-Y-al-mBxi8jK-abPmqDrea4hG2LXT4o-A4FISHZp9vSDMwqmhQLoTo_PtqRfU0_eHXWDsZ8D02gFxkrA6abA82tNGfwGaMDRPHYirXfXLtRmrGX3zY9BwWpUAbeA.jpg" width="400"><br>
-
-شبکه اسکای‌نیوز می‌گوید وزیر امور خارجه بریتانیا در دیدار با همتای ایرانی‌اش به او گفته است که بریتانیا «ارعاب، تهدید یا اقدامات خصمانه در خاک خود» را از سوی گروه‌های وابسته به ایران تحمل نخواهد کرد.
-اسکای‌نیوز این گزارش را روز پنج‌شنبه دوم مهر به نقل از منابعی در وزارت خارجه بریتانیا منتشر کرده اما منابع رسمی دولت هنوز آن را رد یا تأیید نکرده‌اند.
-اد میلیبند و عباس عراقچی روز پنج‌شنبه در حاشیه نشست مجمع عمومی سازمان ملل متحد با یکدیگر دیدار کردند.
-وزارت خارجه ایران می‌گوید عباس عراقچی در این دیدار از اقدامات آمریکا و اسرائیل انتقاد کرده و گفته است ناامنی منطقه و تنگه هرمز پیامد حملات نظامی آمریکا و اسرائیل «با حمایت برخی کشورهای اروپایی» است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78526)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 17:11:31
-
-<img src="https://cdn4.telesco.pe/file/aE9FAMJl6fv1KgMnvKRHOCEIUXhMy8o4wVNfWC_e3r47MpWzRgfsltH9TYAtaJYrSuNXqpp-yebkvyCOjta9CVlwcKoQS0q_e2SbLSYvojkTkOqsyaBWA8EznA5m-bwqPId-PMUi8qtBOnMwn_HLNW2Ny8NxM8UCL7gvd0zxZLirVeL9v5w1bWk5S7z869uedB97eerVWoXV3oEbPCdDbFWy8xxaGGKgzny-85HcVHyY_AV8n8KxoMowyoX6U_P-9ANQOKgoFsVz2dSUhWxMU6pGTRWr91rJZ5Gev0uLwQ_f9vl7jsH-RxpDjcpQ93IZj70snt-WJYynkKTqNKedDw.jpg" width="400"><br>
-
-رئیس‌جمهور فرانسه از اعزام نیروها و تجهیزات نظامی این کشور برای محافظت از یکی از تأسیسات نفتی عربستان سعودی در مقابل حملات خبر داد.
-امانوئل مکرون روز پنج‌شنبه دوم مهر در یک گفت‌وگوی تلویزیونی اعلام کرد که فرانسه در پی حملات شبه‌نظامیان حوثی یمن، «تجهیزات و نیروهای نظامی» را برای کمک به حفاظت از بندر راهبردی «ینبع» در عربستان اعزام خواهد کرد.
-او گفت: «ما برای حفاظت از این تأسیسات، امکانات نظامی شامل نیرو، رادار و سامانه‌های دفاعی اعزام خواهیم کرد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78525)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 17:10:46
-
-<img src="https://cdn4.telesco.pe/file/XzBqfLM961BTCWTdML3QNrW_A0mf3RWoSSiRr8stE3GKn5kj6J2QWq3gM5BvKJr3GS8WQypxmEntjz_bqDYVKv5Vu3T5xZsd8e1lrJn51UnKoZ3bGkBPGTnoP09oS4Q0I1i7x6M4rVIYAIzNsxXKvC_fcAAOqPhfOJLnXAZ_C5XepoC66A-jNF0ypWOkimqD81zaIY-hQfukQaWyL2W3DqYNyXO2hTGXZA7lv5gOOkTb9rkhhFHs1i8GcW5wWzbl6dR2wH7pUSNQ3VaYGYYBj8SQo8mO8e0pGOOOD1r1Ien-asp8g6caEzhE7tJb2KTbiJ5120KMH-0c13sYIx_GCA.jpg" width="400"><br>
-
-دبیر کل ناتو با اشاره به تشدید تحریم‌های اقتصادی آمریکا علیه جمهوری اسلامی اعلام کرد مردم ایران هر روز آن را احساس می‌کنند، اما برای رژیم حاکم ایران منافع مردمش اهمیتی ندارد.
-مارک روته در گفت‌وگو با فاکس‌نیوز تصریح کرد دولت دونالد ترامپ با حملات خود، برنامه هسته‌ای و موشکی جمهوری اسلامی را که «تهدیدی برای اسرائیل، خاورمیانه و اروپا» است تضعیف کرده و اکنون فشار اقتصادی بر جمهوری اسلامی را تشدید کرده است.
-او در پاسخ به سوالی درباره اظهارات بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مجمع عمومی سازمان ملل مبنی بر اینکه بزرگترین ترس جمهوری اسلامی از مردم ایران است، تصریح کرد که به نظرش این حرف درست است و مردم ایران از دست حاکمیت به ستوه آمده‌اند.
-بیشتر بخوانید
-.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78524)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 17:09:22
-
-<img src="https://cdn4.telesco.pe/file/AEtCEYq5TGsBEgzi6CgU_JeS2vuOr24Q5oCFbzYPLhhH59j_WbqU7MlOB-jR6nj1wnerUNNXOcZEtpHzuD08-_2Ynv3cpxjtCvwX_lS6S6RjSDnqcmI46dD7Xqlk-lNQ0ml97fCNM8dMz56iQafGmasfUeGfIh109OSwmibiPNNbdy6AUcqaw3RiuSqURYsDzUzCdUlS6P6DaUPm1DJrgTZuISDyXwYHktaaqyyXrcEpTM5pF4FiNG-uAXWK4kcZRcgxwPNc4xf_5e8XfxI7Dm1lBuw2dRKzR75YTT5vAeC7Vmo0-PEGjoX1XrXzULYGj_zMvJ_57kxAtxLqbu3a1Q.jpg" width="400"><br>
-
-دولت کلمبیا روز پنج‌شنبه دوم مهر از قطع روابط دیپلماتیک این کشور با ایران خبر داد.
-در بیانیه دولت کلمبیا گفته شده است این تصمیم بر اساس ملاحظات مربوط به «امنیت ملی در سطح نیم‌کره» گرفته و از روز ۱۹ سپتامبر (۲۸ شهریور) اجرایی شده است.
-کلمبیا در بیانیه‌اش حکومت ایران را به داشتن ارتباط با «گروه‌های نارکو- تروریستی» متهم کرد که به‌گفتهٔ کلمبیا امنیت این کشور را تهدید می‌کنند.
-دولت کلمبیا همچنین تهران را به دلیل مسدود کردن تردد در تنگه هرمز و حمله به سایر کشورهای خاورمیانه در جریان جنگ با ایالات متحده و اسرائیل، به شدت مورد انتقاد قرار داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78523)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 17:09:08
-
-<img src="https://cdn4.telesco.pe/file/nK6_DdmD3VYuUxJiNOaNbgBmSFbDH8uEEHUEn0gNqqhu35kLfRaza56fAReIquz8eYxKAy7KaXOgHM4YdCqbb_dMjg9yjkd4TyxswUVJVfmwNdU6S4JQz5xggNtc2SR0LTCgm7EOe8v-ZKG-MMudq--yieVmKe_MAqNKDQDE12EIGJ0XWkR38vqE4H_47qD6HcKsLbtd7SO8172Q2YsCDQSqJ9sZCuHFmrqEyDI5Dk8WU-93MAZTY9LbS9b-9_tH71edoEhpYTZ66bK4u1sGdyhKGksinJbKUqBVyJ8Ra-b-7tpEefG8_anfGECWgHIyfzT9aZNrTHqpSA6EZvc1pw.jpg" width="400"><br>
-
-روزنامه بریتانیایی جوییش کرونیکل در گزارشی روز پنج‌شنبه دوم مهرماه از محاکمه غیابی هفت ایرانی و یک شهروند لبنانی از جمله محسن رضایی، دبیر شورای عالی امنیت ملی و احمد وحیدی، فرمانده کنونی کل سپاه پاسداران جمهوری اسلامی در پرونده بمب‌گذاری سال ۱۹۹۴ مرکز یهودیان آمیا در بوئنوس‌آیرس خبر داد.
-بر اساس این گزارش، دانیل رافکاس، قاضی فدرال آرژانتین، با صدور حکمی ۶۴۸ صفحه‌ای، اتهامات هشت متهم را به‌طور رسمی ثبت و دستور مسدود شدن دارایی‌های هر یک تا سقف ۵۰۰ میلیون دلار را صادر کرده است.
-احمد وحیدی، فرمانده کل سپاه پاسداران، و محسن رضایی، دبیر شورای عالی امنیت ملی، در کنار علی فلاحیان، علی‌اکبر ولایتی و چند مقام و دیپلمات پیشین جمهوری اسلامی از جمله متهمان این پرونده هستند. قاضی اتهاماتی از جمله قتل و جراحت با انگیزه نفرت نژادی یا مذهبی را مطرح کرده و بمب‌گذاری را جنایت علیه بشریت و نسل‌کشی طبقه‌بندی کرده است.
-مرکز آمیا تاکید کرد حق دانستن حقیقت، دسترسی به عدالت و تعهد بین‌المللی به تحقیق و مجازات جنایات علیه بشریت نباید به‌دلیل پناه گرفتن عامدانه متهمان در خارج از کشور بی‌اثر شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78522)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-25 06:05:27
-
-
-
-دنی دانون، سفیر اسرائیل در سازمان ملل، در ویدیویی که منتشر کرد، یک دستگاه استارلینک را به ناصر اسدی، نماینده جمهوری اسلامی، پیشنهاد داد و گفت: «می‌خواهید آن را بگیرید و به تهران ببرید؟ می‌تواند در ایران برایتان بسیار مفید باشد.»
-دانون در این ویدیو می‌گوید: «فکر کردم مناسب است این استارلینک را به شما بدهم. اگر سخنان نخست‌وزیر را شنیده باشید، می‌تواند بسیار به کارتان بیاید تا پس از آنچه با مردم ایران کردید، اجازه دهید به آزادی برسند.» او همچنین گفت: «ما مردم ایران را دوست داریم و برای تغییر رژیم در آنجا دعا می‌کنیم. آن روز خواهد رسید.»
-این همان دستگاه استارلینکی است که بنیامین نتانیاهو هنگام سخنرانی در مجمع عمومی سازمان ملل نشان داد و از رئیس جلسه خواست آن را به هیات جمهوری اسلامی بدهد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78521)
 
 ---
 
