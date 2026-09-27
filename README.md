@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-27 12:13:52 </h5>
+<h5> 🟢 Updated at: 2026-09-27 17:55:17 </h5>
 </div>
 
 
@@ -71,7 +71,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-26 17:41:49
 
-<img src="https://cdn1.telesco.pe/file/YaN-zRbuHXsbG3ZkTZAd33uBQY0dWN1rXdUK-U_U_0wKOFhuCz3xe1SFGHFP6MGRSSeqFHKQhg5DkyaYUlr5VcJyU7-MXD98h1WDZqvIFeup5KDZ8JAA7ttBvAlKupZ3Vd8vht2z8KA-f1PB0Ah8cIO_PAiTjiaFbzpCJoVQQjXCIx8G0e4bsx6m-_tJDn5ndE43gX5g8HDnyvgd7eginaRSdR8TAKBYIqofnebctGFtSXLNn7rEtpMK-Xu_BwsJV6wjGBazLD4oE4k65i6B2-58SrUTN60tc_xrABJT6FODJGR42eb9Wbe4y1MsI6qp6A_AcPpEHktytwr5m52SYw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MffPtGz4Ll7_8scICcvFNOmojL-0vKqWqqb1Wbf5IN2g0hFHl0wWh1eXIpCJA8aqhfh8dFj7P56UuTKyzhFloHtfmTS-_CWiuSMIPhsYXP6-Nx6gr6lvsXfDhZLm-fVpi0wyFCLYIhqLGTt6w4v-m_PvsyWB1GNnOVamCvixkXiUSkOeAM8fWemUAsfQeGsv-LSrynb3N-mIxWt0_fcn5nBPd7k497tkY7LfufepynzvkZc9Ri1SCHhc7OMxCp94hTbUFfLf_rI67Y9G-zQRdPtHRkPBwRfQligrtnR-AOLmJyicW0EAlM3hIR5oyJbKbISKJsgacj9t6J6_YaoeGA.jpg" width="400"><br>
 
 دادستانی تهران در پی انتشار تصاویری از اجرای نمایش «تهران پاریس تهران/ پل»، علیه عوامل این اثر اعلام جرم کرد و پرونده قضایی تشکیل داده است.
 مرکز رسانه قوه قضاییه شامگاه جمعه ۳ مهر ۱۴۰۵، بدون اشاره به نام نمایش اعلام کرد «رفتار خلاف عرف و شئون دو بازیگر در یک تئاتر روی صحنه» موجب ورود دادستانی تهران شده است.
@@ -88,7 +88,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-26 17:40:55
 
-<img src="https://cdn4.telesco.pe/file/DomRCFyR4k-kQcQ3FXAXPMRqhVU-6snKzU7eKsANlD4wsIWV-qUdY5ClZdlYjwgIPSkegYW5rf35tCFb4U1lu-t6A4xzgWQZcw-4fEvG87EjNq5lqYTkLaIDWYec683HG1mYEMzVDNzElbd10YH9ZYm0he3CzLMIVtd1P5vLQOWiP6qXXDqNb1Lgr2MjS_3mr6Yzav30noHlAoW7hDY7Vg8KAw-5OFBQJuNbx7AcrJD31A4aw_6FouYYClXofndoYzdb0UNUIoYERzo6I7bvlRjAPIvCUTP8VkR47Yjmd4TE6mCR9uqtOE3sttym4KLkDo7HdDfSkojVzBI7c-eXzQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/uyu0IOvDpQ0o7yW7vncN1gKgiRfuFvG5TGHum-6aKNQgzYEaZaCZwiV83pI9RmscKh77606mNcg-tyj3G3uFsAzrn67yU20AJoJFer0umKh59PTFLHVrdJjnAEE0wmtc_EGdYqvbzmNb6nw3C7rjxIj-G-OKQH5bd9L6zceR_dCkP_VbRxRnzFffASUc-6P62B59X8hIeFMX4T8W-SDC-x_maGoj59gKaQOKRn_z9MIgiYLDwbRIAw1e_V7HYYU_1JpnfIn89lkhx2dD_RlP2SPynZzCGvdrB3rh-rr5cERf_Axk8Q7Olw1IsAuOCPLgDtTEFj2WlXKcOD3hR-IJBQ.jpg" width="400"><br>
 
 «محبوبه شعبانی»، از بازداشت‌شدگان اعتراضات دی۱۴۰۴ در مشهد، به اعدام محکوم شد؛ زنی ۳۳ ساله که براساس گزارش‌های منتشر شده، در جریان اعتراضات با موتورسیکلت خود به انتقال معترضان مجروح به مراکز درمانی کمک می‌کرد.
 هرانا خبر داد شعبه اول دادگاه انقلاب مشهد، شعبانی را با اتهام «اقدام عملیاتی جهت تحکیم اسرائیل، آمریکا و عوامل وابسته به گروه‌های اپوزیسیون» به اعدام محکوم کرده است. به نوشته هرانا، حکم امروز به وکیل او ابلاغ شده است.
@@ -105,7 +105,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-26 17:40:35
 
-<img src="https://cdn4.telesco.pe/file/QCoaq5NTZwdi68pyv8_0E4s4n04L7p3B0GLTKmUxvrGyN90vKohKxer22MJAuLXPyVUM-C8sdaz9Nk2POczFO9l6rmH0yBCwfpGNOuQ6xNZlK0SlWP87fxn6sohLF3yQgPy6kDyxKr30Zqb6lT7zOmQMv_laVHAvDlsgFsZIue2FmO2t7RjG2UsFy8-CbtoGNM4srVdlfKgUKDdFkPDrBee3Asw0rf9TD01Ri-_IWwQ7XhzQZeu5Ycv43veuJUmfCJTikFzPyAP5dEBM6_2o5LSsvuhGXV9Ff-Yv-OjOHTNiv3jMKPlDdNBuqD1APdlc2krOdPsyWgj528LARR4bcQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/e5aDZ1MsOTviW7gAuefZ6h9K8et1rhU2tt1J1UMUHISikcCWcCg3AWpMi5qsvXmXELRPujNhzAva2LtBLixvLP1LgXhuQhsQd6z1P-QUjBYek9VB9DiB1WUSnDt5R9-VCxARqqCdOF-8MV8Xb7h1_t04F2_jqqd7V6_XuLoO_AA2sWPHOqCkXSBuQ5CL5fUgjne43rfho1pIrGYiO8nujxtafmP7FGiVxtyI5TQ_j3PyaP8wzjyQcRQ2jyRBQ6nkfgxzi-ZzVl61rlelTbtgWLGe6Z07_kwFJ73TFDJNgFnto5TGpW1MVV6oT6fNq8ERwK9-x4k1yXUD_urrfzwAtw.jpg" width="400"><br>
 
 «امیرحسین موسوی»، زندانی سیاسی محبوس در زندان اوین، در شعبه ۱۵ دادگاه انقلاب تهران با دو اتهام «محاربه» و «افساد فی‌الارض» روبه‌رو شده است؛ اتهام‌هایی که می‌توانند به صدور حکم اعدام منجر شوند.
 @
@@ -121,7 +121,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-26 17:40:24
 
-<img src="https://cdn1.telesco.pe/file/R-X1-gPu7mOcZbT3Yx7sfHlfyG15oNIDkl-sM4u3Hct8sXJmc43x6sxbdhmtTcT_CRqAdX-K_xfgStuMpYbKYUgK9ELeKZ0QYPyklJGk4AbBVXd40TR5p2n_d7Pl5aysjiR9p9P7Uhdx_djcaS1AEjkU6vsThG7XrH4iWjLZ9_gr6vTIGk2znI1ByIjgZLVqRtFi5wlhhKSaDLqQ1Sy78ZyANbTQZUtVfNGO-GUsNAIYpXxnUSIQGmzK1kiJqZIZYXImJj5J_VtwnBdH3FeMr0bYE92gGt1WGkZ21dULi2LdDCQddGAWuXR4VdYonLV7tQaogqKSfAErixClI_zBFg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/edVVOgFnIv0PqKzK98GtWevAMzGeb5W8PsrDsSW2YrsBhGmcTvj1z_a5GqCSTQ3u99enJphNgE1XkzpKFu2I-Iy5JE0DT_GtHEkM9qw51uaGDAce5YDr9tlQJK9PHQqHXATz5sgphbxq9qOyujvjNGmksHPFUv8_f8UhA4Sb5yfNaScYszXjnPv8tZUV9syH20iXS8u327gSBICBCVhTSgg3md9OMT-U3q-31mNNLeMXecIYq-WE1njP_rMzgMtZl0IQvHnLDZVFa3vZAl8NiyXc2XGFTe48Dk308zGaY0rVflq67zBjK5ekghPXOX9TBdm25IpqdnWdGl3m0G2z5w.jpg" width="400"><br>
 
 در  دو واقعه جداگانه دست‌کم ۲۰ نفر کشته شدند:
 یک دستگاه اتوبوس مسافربری بامداد شنبه ۴ مهرماه در آزادراه همدان ـ ساوه واژگون شد و بر اساس گزارش مقام‌های امدادی، ۱۱ نفر از سرنشینان جان باختند و ۲۴ نفر دیگر مصدوم شدند.
@@ -141,7 +141,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-26 17:39:18
 
-<img src="https://cdn4.telesco.pe/file/Yp1uwJrLY3dhqXjiM2gWgjKHrv0BCcHlvGVv2Bm3BaaQwo6OrUX0keBmMAwPPHwJS9MrYYbGCZXT1uHUwurvHhBX3MSmrAZU3gwvcSRzkjFkmKNSGgByKym-MxPKFbUgdU8RdBMZU2QjEzJLWoOSRe7KJY3dieUnHahbiKpaqXf6b3MWlHrXBPWCxk2Tuqlm9QK0Ypi9JviijvogN0al8n2LpxtigrJZ50ElZu4_XODDZwnAg5Ne_dfKqZSviEChm2hlKhE0dC-zGStFejC6epcUVerdehUABSVUBoFV134fZ-p6j4ozK-mstOeMnKukodhIh4hi-xjC2c2XDYowpA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/t2V61W2W-uduAIFZdoa5KaA9N0ftneAxXPZ2wOcx47_MjayusDHWOnsJRbTtrn_JzbFBZKFgHbJxtmtaa8J6KAbajRCQSCjINwD6d2_oyguUdRhzUdACPpWAGzQzI2NfzHns2RfB3ZAMhttn6iwweLRzG345MV8rh9R3mrfZ57D7Y-mXFKHjFdZxbV4ZfnZXoSTNGRxz7XMCEi822DK7LW_ISrLmzxrJBYk_vIrGw5BGvrNbEGWSHEjt5q2fdAu6B1fUt8Y0fk7MB-Q3CahruM5mlhELN3hUcEIMJt8UR73-k-Y0sjzlmaDnOKMJvLlrA0CGGOmeAfHG2yK1lropBQ.jpg" width="400"><br>
 
 دادگاه تجدیدنظر استان قم حکم ۷۴ ضربه شلاق پرستو احمدی و هشت نفر دیگر از نوازندگان و عوامل «کنسرت کاروانسرا» را بدون تغییر تأیید کرد.
 ابوذر زمان، وکیل دادگستری، روز جمعه در شبکه اجتماعی ایکس نوشت بر اساس رأی شعبه ۱۶ دادگاه تجدیدنظر قم، پرستو احمدی، چهار نوازنده و چهار نفر دیگر علاوه بر ۷۴ ضربه شلاق به دو سال ممنوعیت از فعالیت در امور سمعی و بصری و ممنوعیت از خروج از کشور محکوم شده‌اند.
@@ -180,7 +180,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:15:59
 
-<img src="https://cdn4.telesco.pe/file/BGjUe063rMcBWXjNvyv-1sCQuVJ8LE4ScbjCFuELjkPHWc_crWfk6LP9z0SrvALFm5ZeMIfJC2u7bAt5ghlLPLTbYlwUOho9XurKL7yOvVxddAB-_PsrYxzdfdlDtjiB2Uu_3MZmt4QQlwbz7WNQrWAZj9ZcCLf4SlXkT4EyinCLf9r8xlYd6iBiBZ3oWxlMu4mQ8oLQ7NIpnlQGGz2INeE0EV1DEUHJWG0J7LYgB12zMbN3iB1IN2i6St8fJ_U4tzG4EGeM0K6RanDhRgHzeqs3DwwMVmdR4rKOHhsQigRTZ2yVvFbtCsPG3XCv_uYq1JqfBdCfUsPILVS51BRFcw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/hDyE-YX7S2GaO--5Yf2AHNtT1l59LaxbpTU8pr7hubvDOlZQbUsegol7AIt9Lqb31gAQPodZv8Da8TGspES7DAZ7WDI56qqHNBN9wfXA1asVNELPz8HiK28x19SOYlp7nH-IHbgf-yQSCWET-al9D8FEvGG8y_kfqkdC2bAN6Ve9DwrUORviYSttElW9EXQm4ABGgEjVTOhZnB5o3W3ZFmnq5i92cQBd0pJ4ehyIx1m3IpeIk3U--FI5ymq2bluiHncHiM1ZrlgHJRX1i94oH-5FIr9OJhr-ggyQnOa-bxtPt4FtsY-mgZKOa-svH415UVgvDG5RdThi_cSbrqpQHg.jpg" width="400"><br>
 
 محمد مخبر، مشاور رهبر جمهوری اسلامی ایران، هشدار داد که در صورت تداوم محدودیت‌ها و قطع خدمات فرودگاهی برای پروازهای ایرانی، هیچ‌یک از کشورهای منطقه نیز اجازه نخواهند داشت از خدمات پروازی بهره‌مند شوند.
 مخبر روز جمعه، سوم مهر در شبکه اجتماعی ایکس نوشت: «همسویی با آمریکا در اجرای سیاست‌های خصمانه در خاطر ملت ایران ماندگار خواهد بود، هر چند راهبرد ما در این مورد مشخص است: پرواز در منطقه یا برای همه آزاد است، یا برای هیچ‌کس.»
@@ -198,7 +198,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-25 17:15:03
 
-<img src="https://cdn4.telesco.pe/file/PlYceYSqGJhd_zfkdB1tJVrzVKl29ty35PdlOAbCAPOQyomN1B5AHRsWqp1wEctb_oLGjVB9bkdUjUvxmSlev6LX7DgCvvC1Mqb-RpFJi8dy1_TA2sjM4rgW948FbMVc-JPKlfHjKWgznc5NhibF6JjQckwEYFwf1hoVfT2mmUwUGcdeHYEOK9UE00sVwhzN-mHEC4oqL3DOlGtQy2IzIbgZl6HVeUYyof2pait9V05UIXAn4WeAFPp-BEeyfNtbiCA-FQOYoSS9VBMuABbucZHwyUiOSUA7857fUPhPzHNHarWopGHnoxs11-o5onJkmaowAk2dl8AzOjI_ldATcQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NrXpW1u0s8RTPZuUbWSJLNsuW8282cKLGg-UKf3L1QERPFISjZBSd2tDS0xlfSDYjqzn08u5KHmUHKpsYnbe9uEQU2HwawDaZy1RL_b72Avr3hVXo5KcTwQ0G_ZyidzIK4jz3SApxdD1Sd9L6hk0eGcIvkjXa7HM-QhmkMehi6epQ2b_Z8LSA7oKgFA5paF8dS3DVxhhhmpdP7rQKIK9MXFSMn_kcK0WrtzEDOSdsV3mBWR_45KxlF94SiSmX3pg8nuUahQ4Uhi7yPQA1Pa8TqNpZikkP-5fy3HSHtdJHLiI3SMmUbRj61huWf-ntCkv_nbqcHJT32Ow-vK_7IXPIg.jpg" width="400"><br>
 
 خبرگزاری رویترز به نقل از دو منبع مطلع خبر داد که فرودگاه‌های اربیل و سلیمانیه در اقلیم کردستان عراق از روز جمعه سوم مهرماه پرواز هواپیماهای ایرانی را معلق کرده‌اند.
 @
@@ -214,7 +214,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:14:27
 
-<img src="https://cdn4.telesco.pe/file/lzd6PXhsK_K1L1E5FNNGWTA0DlnLrih5WqQUIZzco20JXkzukixTh4ke7KDwhxpvwj1HoN_u9vw4RdjWPcsTEXfSu1f6I4LjE7T1OxHTCvV6cemJUVUJ4dStzxo8xpYu8viNhdXdc2RW-1Ik1VejX_yuZIp3qBhhq7X_vvvKoD-aRC6XpU3GzCjbAYhhOBOjqHf3y0I0jaW4VpvR96WgzuT-XlZEI4opyDfqJ-RaOoCMXUSFApYIZ9xDoEkH8coZwh7Nk5Wa3ogAzWyeNo4JPSrk2T96M-fHcqRIpNzRufjz3TN4aFpmCOOoIj-hp6y18Bh-nNn-xStqtR2dT_STvw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Vdg4jWRF3mEV14C-PhPnepcsZxxvVEK4LutlVFXWiUvym7tMV7txQ2p3qacEMQ7qCcS0Ek38flH88PRWzY5RwEXu5jtqaBXnuRxMFsq54Dk4C_k39y_643c-DeN0GKEd5qquRk9j695aObkqTff3ESqwRNu6862WzxuGO45d_ICwI7yW4tjb7iJWHhPRUZ8B13wfLlaEpQW9O65osMTY8eDK2_DCAo5aI3Frzi_Fp1-dVoefkdIgY0DX28UqC_hLfhVn9w8fgugM4iBAJr-8tGBOyYiDOYYGtr1edJ-yEhODxgA5mdyJBmeyVr34IEKNyp3CDD1TQqRONB3xoC9mMg.jpg" width="400"><br>
 
 خبرگزاری رسمی عراق از توقف تمامی پروازهای ورودی و خروجی از مبدا و به مقصد ایران، از فرودگاه بین‌المللی نجف خبر داد.
 مدیریت فرودگاه نجف با صدور اطلاعیه‌‌ای اعلام کرد: بر اساس دستورالعمل‌های رسمی صادرشده از سوی نهادهای ذیربط، تصمیم گرفته شد تمامی پروازهای فوق، از ساعت دو بامداد روز جمعه سوم مهرماه تا اطلاع ثانوی متوقف شود.
@@ -233,7 +233,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:13:21
 
-<img src="https://cdn4.telesco.pe/file/oVReyjuHKhiIn0__J6kjqEgGtX7dshWaoQV0zupp1YZN9v1lYEupxzucPsz2lW5zMCjjE5gE76mIWnMFjagvDAHlcAV2hVZ4RIV98HLZ9ewUmr6QgTTI0hJ3t-f_ZMv43UeThK2SwL1s9PG3hu4jyNS4yjyINBZXKSvdREXv4U3KrmMH7Jt3iACGTFILPXRUOLD1OQtAIgsux9oevTpHwePSfcrjZg-8nZQsuENkaR03XzTMKIQV2XhfjaD3uZxIXn6lbLyx7NMROEHc84ltrvJDzI8QyDK99WK_WNDtEx9ywY7WPCnVQ-nWnwvLZdxAA3BRP4gl1IpYjB9L21XX5w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/eMB6uUwFSv7FXnYiBxldLyauDwdSuXXUuuM4yX3VtFSO08_oQnNdY7nlB25BviLNIrh5jpWrfv-utqnQnVwsGD4eaiutzvjT5dbJnMVFnbcq1Yai_O2B_LhuCQbs0nDq6sbQaTqzjnI_EszIeTnBcsBJt1TywVml2y_vXxebVcwl7DcucerTkVpS86HdvHrQtohSepp-lzXgfNO3jT5t8XiC4-Y-al-mBxi8jK-abPmqDrea4hG2LXT4o-A4FISHZp9vSDMwqmhQLoTo_PtqRfU0_eHXWDsZ8D02gFxkrA6abA82tNGfwGaMDRPHYirXfXLtRmrGX3zY9BwWpUAbeA.jpg" width="400"><br>
 
 شبکه اسکای‌نیوز می‌گوید وزیر امور خارجه بریتانیا در دیدار با همتای ایرانی‌اش به او گفته است که بریتانیا «ارعاب، تهدید یا اقدامات خصمانه در خاک خود» را از سوی گروه‌های وابسته به ایران تحمل نخواهد کرد.
 اسکای‌نیوز این گزارش را روز پنج‌شنبه دوم مهر به نقل از منابعی در وزارت خارجه بریتانیا منتشر کرده اما منابع رسمی دولت هنوز آن را رد یا تأیید نکرده‌اند.
@@ -252,7 +252,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:11:31
 
-<img src="https://cdn4.telesco.pe/file/fl5_WPA0sNfbmFstZ027RtEUobmgnUtnyZX-GKQV7maQaYOZE8akpM4cFPkEpIJnctiZIUdcdyU1uGRm9-VpBtV-EVMjH3BpZHV9HdQXxUGexbfmKBwFkyxc9hYjgRmBA4VzA3Bbg0Hl_xuVs8lbqJHDpC3fp0QMCHLSimuH1VqwRwGu_UNBFSuYSu4vX5ru9np6L73gD_-AkXf4Ux7AVvNzMXPVrlp6Nq4nxAj6Z9XjMqJAPCmxTIOqBN1DT6wBKDs42CA-DbWCyNDOpwGb-FXkCFCBLwrmzGS0UB-CGNboOSrGTDEexhL9NQeSxaqXNo_S_0HhyZ7t76JT16521Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/aE9FAMJl6fv1KgMnvKRHOCEIUXhMy8o4wVNfWC_e3r47MpWzRgfsltH9TYAtaJYrSuNXqpp-yebkvyCOjta9CVlwcKoQS0q_e2SbLSYvojkTkOqsyaBWA8EznA5m-bwqPId-PMUi8qtBOnMwn_HLNW2Ny8NxM8UCL7gvd0zxZLirVeL9v5w1bWk5S7z869uedB97eerVWoXV3oEbPCdDbFWy8xxaGGKgzny-85HcVHyY_AV8n8KxoMowyoX6U_P-9ANQOKgoFsVz2dSUhWxMU6pGTRWr91rJZ5Gev0uLwQ_f9vl7jsH-RxpDjcpQ93IZj70snt-WJYynkKTqNKedDw.jpg" width="400"><br>
 
 رئیس‌جمهور فرانسه از اعزام نیروها و تجهیزات نظامی این کشور برای محافظت از یکی از تأسیسات نفتی عربستان سعودی در مقابل حملات خبر داد.
 امانوئل مکرون روز پنج‌شنبه دوم مهر در یک گفت‌وگوی تلویزیونی اعلام کرد که فرانسه در پی حملات شبه‌نظامیان حوثی یمن، «تجهیزات و نیروهای نظامی» را برای کمک به حفاظت از بندر راهبردی «ینبع» در عربستان اعزام خواهد کرد.
@@ -270,7 +270,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:10:46
 
-<img src="https://cdn4.telesco.pe/file/h2ynzAmq1SBCIUvLrlChviGUe3s7MnnkWpmoDFUqOahbw8Wk6ReaH-TzlAVb90PpxrvSM-q3VxT4dJ3pfTJSnBRfQEeQU45Xv605zcqB9sR7NsXSj5UTpGs5Fp7fFNUmn5S9cWBBFaogyLKljR_BYJQWofKCF6ERm8iXQEue4HKZaU4LOWFWdXN6ANy3svWSG5KwqOpvIk6_dk7MsNvt38cPa6mi3sENvC7zmznM1suUYJEQ4RyFYF7jwNeNuHguOn7wN53DkI-9fvP7shWVIwOs1iS52Y6bvGyd6Xr8pvIZmbQIWh_3ZL5d1dFBwfJLkWlVU3Sz9laLiLrqnl7t-Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XzBqfLM961BTCWTdML3QNrW_A0mf3RWoSSiRr8stE3GKn5kj6J2QWq3gM5BvKJr3GS8WQypxmEntjz_bqDYVKv5Vu3T5xZsd8e1lrJn51UnKoZ3bGkBPGTnoP09oS4Q0I1i7x6M4rVIYAIzNsxXKvC_fcAAOqPhfOJLnXAZ_C5XepoC66A-jNF0ypWOkimqD81zaIY-hQfukQaWyL2W3DqYNyXO2hTGXZA7lv5gOOkTb9rkhhFHs1i8GcW5wWzbl6dR2wH7pUSNQ3VaYGYYBj8SQo8mO8e0pGOOOD1r1Ien-asp8g6caEzhE7tJb2KTbiJ5120KMH-0c13sYIx_GCA.jpg" width="400"><br>
 
 دبیر کل ناتو با اشاره به تشدید تحریم‌های اقتصادی آمریکا علیه جمهوری اسلامی اعلام کرد مردم ایران هر روز آن را احساس می‌کنند، اما برای رژیم حاکم ایران منافع مردمش اهمیتی ندارد.
 مارک روته در گفت‌وگو با فاکس‌نیوز تصریح کرد دولت دونالد ترامپ با حملات خود، برنامه هسته‌ای و موشکی جمهوری اسلامی را که «تهدیدی برای اسرائیل، خاورمیانه و اروپا» است تضعیف کرده و اکنون فشار اقتصادی بر جمهوری اسلامی را تشدید کرده است.
@@ -290,7 +290,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:09:22
 
-<img src="https://cdn4.telesco.pe/file/kPmcGxnDeS_UwppldI-TfUZ1Y1T2DZ8QZnN00AxgymH9Ojd_nu3ajhK3tYQkSZfC1chVR60lmRzJVWCouo5cqK7tdRHXzpqJ62Qb0tp4w-GYdZRFpooH6qompdjyCxVRUivaO6sNn3DVsWmnD1qB7mpmzNZS8aF-uUNKQcVLX6JvGOOvRSQdZo62fbFr33kyAMdrasRx-Z26YtjJKTcwkwJyJaOWZCDFcJj8upZTk43lhqK80eIlBt0S0Flrm0ijMQl1OzLxQbBs8j_Qbg3yFvD6JdOIWh5U0kRkEey-QF_KHCTH1lj6YaGQHyuuW9hPw3-Tg2kQF2aS0rbIPPXo0g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/AEtCEYq5TGsBEgzi6CgU_JeS2vuOr24Q5oCFbzYPLhhH59j_WbqU7MlOB-jR6nj1wnerUNNXOcZEtpHzuD08-_2Ynv3cpxjtCvwX_lS6S6RjSDnqcmI46dD7Xqlk-lNQ0ml97fCNM8dMz56iQafGmasfUeGfIh109OSwmibiPNNbdy6AUcqaw3RiuSqURYsDzUzCdUlS6P6DaUPm1DJrgTZuISDyXwYHktaaqyyXrcEpTM5pF4FiNG-uAXWK4kcZRcgxwPNc4xf_5e8XfxI7Dm1lBuw2dRKzR75YTT5vAeC7Vmo0-PEGjoX1XrXzULYGj_zMvJ_57kxAtxLqbu3a1Q.jpg" width="400"><br>
 
 دولت کلمبیا روز پنج‌شنبه دوم مهر از قطع روابط دیپلماتیک این کشور با ایران خبر داد.
 در بیانیه دولت کلمبیا گفته شده است این تصمیم بر اساس ملاحظات مربوط به «امنیت ملی در سطح نیم‌کره» گرفته و از روز ۱۹ سپتامبر (۲۸ شهریور) اجرایی شده است.
@@ -309,7 +309,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-25 17:09:08
 
-<img src="https://cdn4.telesco.pe/file/tPAGdfObOpj_0oNv-pNfkYjPQ2ewNnA7bDyWrmh4ChnAwW-bb83Hb-h4YP7DcO7u6hQaYvDzvjEdASGVu5ABWBfzomZ3aW1TrHy6Kj_jtygJWi9zYPFPxavs5pfuG308db4cPfDAWQYpYJVXihZAxZuBBAIMlJ-yVMRDPCUAFdSfuqtuzclLpdDGEBEHy8MRxTPKP_SSlNBQnomOB1eoXny1Ox7Ip6ptbK-c5VfuyfnU-OX-gxk1oy1QekoZAWniDcjEPCSEm2wtV4o5JqJ4Jsna6-bC68bHedYMrj8sHOikMwwzevA1bnA2Vug4tgwSCnj8TuaFa_mwbPVwfMSkzQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/nK6_DdmD3VYuUxJiNOaNbgBmSFbDH8uEEHUEn0gNqqhu35kLfRaza56fAReIquz8eYxKAy7KaXOgHM4YdCqbb_dMjg9yjkd4TyxswUVJVfmwNdU6S4JQz5xggNtc2SR0LTCgm7EOe8v-ZKG-MMudq--yieVmKe_MAqNKDQDE12EIGJ0XWkR38vqE4H_47qD6HcKsLbtd7SO8172Q2YsCDQSqJ9sZCuHFmrqEyDI5Dk8WU-93MAZTY9LbS9b-9_tH71edoEhpYTZ66bK4u1sGdyhKGksinJbKUqBVyJ8Ra-b-7tpEefG8_anfGECWgHIyfzT9aZNrTHqpSA6EZvc1pw.jpg" width="400"><br>
 
 روزنامه بریتانیایی جوییش کرونیکل در گزارشی روز پنج‌شنبه دوم مهرماه از محاکمه غیابی هفت ایرانی و یک شهروند لبنانی از جمله محسن رضایی، دبیر شورای عالی امنیت ملی و احمد وحیدی، فرمانده کنونی کل سپاه پاسداران جمهوری اسلامی در پرونده بمب‌گذاری سال ۱۹۹۴ مرکز یهودیان آمیا در بوئنوس‌آیرس خبر داد.
 بر اساس این گزارش، دانیل رافکاس، قاضی فدرال آرژانتین، با صدور حکمی ۶۴۸ صفحه‌ای، اتهامات هشت متهم را به‌طور رسمی ثبت و دستور مسدود شدن دارایی‌های هر یک تا سقف ۵۰۰ میلیون دلار را صادر کرده است.
