@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-28 03:38:02 </h5>
+<h5> 🟢 Updated at: 2026-09-28 09:37:18 </h5>
 </div>
 
 
@@ -337,7 +337,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-26 05:46:21
 
-<img src="https://cdn1.telesco.pe/file/HwDlrL3OMhEhf7QVdwt8rZ1AJfR_1lDiKAUSKtg6vKpjqTHBMy44cdy2UKbgfqtw2t9TY8lnmSxS7D8Wbh4XaqJDL-SY8FhKS37aXcRZrd7gOm9z4fE12BQm6DY7M7QDLfJpHitSWLMEeoc2HdKHwesBQO5K8o9YmpghG__zSYIz5f7B_ywc0UUtSVp20rEQqK8S2WX1PFQ9p5zEGX1JB8LurfT32gExkcyu-3QNcUWHusuH-QnlWSC9RaCv9sb41P_HGo5SNJplawkhq-yvu8QnpyAvpN5BoETnRL2eR3693aBnROiodhvVn3SxMwNlxm9TZqZnvuYF6bw7vUtYEw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/A93EAKwRiBZ1KdOQFAJMGrfmsxFcmzFXA50kwtCkYGkIAkS1zMOSJ5F-uLXzoepAGk_V4XkNU0NR2OxRv6JeXWqgZqjWhP8zZLUomou-Hd_3SqvGi4OA5n_-So7mV5IGjjOw9m9O4Wfqj3ecTLSjAxrsLFeOs743Nob3hPGfJBLsZSamuTlLLhg_NmqJjyWWKmMqde2reXtMIAwZN5l46hkR8uQCk4oNIUUZhQYT7TbWwTJHRzcDgxKwjlwF3DE4VieYkz7d4VwXnunj4J0TxYspTNhMrpH6K4nD-R86PFSMPc4ZjYdjvNLt2rtjM2pjOW9myzcFh6B8hTDb7F3zrw.jpg" width="400"><br>
 
 روزنامه وال‌استریت ژورنال به نقل از «مقامات آمریکایی» گزارش داد که رئیس‌جمهوری آمریکا، پیشنهاد جمهوری اسلامی برای برقراری آتش‌بس هفت‌روزه را رد کرده و به دستیاران خود گفته است که انتظار دارد پس از انتخابات میان‌دوره‌ای ماه نوامبر، بمباران را از سر بگیرد.
 دونالد ترامپ بارها هشدار داده است که در مورد تاسیسات هسته‌ای «کوه کلنگ» ممکن است دست به اقدام نظامی بزند.
