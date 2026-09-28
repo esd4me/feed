@@ -3,8 +3,86 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-28 09:37:18 </h5>
+<h5> 🟢 Updated at: 2026-09-28 18:13:50 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-28 16:42:55
+
+
+
+غلامحسین محسنی اژه‌ای، رئیس قوه قضائیه جمهوری اسلامی، روز دوشنبه ششم مهرماه از دادستان کل کشور و مقام‌های قضائی خواست تا با آنچه او «وضعیت برهنگی» توصیف کرد، «قاطعانه و با برنامه‌ریزی» مقابله کنند.
+اژه‌ای خطاب به مدیران قضایی گفت: «نباید از هیاهوها ترسید... رئیس جمهوری هم با مقابله بابرهنگی موافق است. مجلس هم قطعا موافق است که این بساط برهنگی جمع شود.»
+جمهوری اسلامی در زمان اوج جنگ تصاویر زنان بدون حجاب حاضر در تجمعات شبانه حکومتی را به‌عنوان حضور ایرانیان از اقشار و افکار مختلف، پخش می‌کرد و در اختیار رسانه‌های بین‌المللی قرار می‌داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78553)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-28 16:42:22
+
+<img src="https://cdn4.telesco.pe/file/JUbRt9Xn0Jxj7uzlGw255xd9MpJZWR1hCw1gr5mWy4uR0YV7uUTGluUCEiBCM_Q9QDWOCqwZrt6yzvVesi03VBxofFArRDCfcAvYOuxHwd6xxvRJcEBWgvHGfWSk36686CfK102fj0jr9_V-tYcJlWH5l0JqPz2rC7M4Jbk-1zES7e5FgNrMDaCwSfIlyVewErkIgCjFwIDH2Y6P4MrJ5sOD27rmEvl8q6Qx40uyEOJ0VI93_fT5REm9uVX3gJc7Il4YB_kV0WSZ1BlBgZzgRJ7HBPnJ9brPWSsJZceOp13usUz3R4aGjuCDDbzT5pYUlePSnuCdKg4ejIN0hLyM-Q.jpg" width="400"><br>
+
+«مایک والتز»، نماینده آمریکا در سازمان ملل متحد، گفته است واشینگتن پیشنهاد هفت‌روزه ایران برای آتش‌بس و بازگشایی «تنگه هرمز» را به دلیل شروط تهران، از جمله «دسترسی به میلیاردها دلار دارایی مسدود شده» و «لغو تحریم‌ها»، نپذیرفت.
+والتز روز یکشنبه ۵مهر۱۴۰۵ در گفت‌وگو با شبکه «ان‌بی‌سی نیوز» درباره دلایل مخالفت دولت «دونالد ترامپ» با پیشنهاد ایران گفت: «آنها میلیاردها دلار پول مسدود شده می‌خواهند و خواهان لغو تحریم‌ها هستند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78552)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-28 16:41:43
+
+<img src="https://cdn1.telesco.pe/file/LRGMQHkOULSvitDyFCCfPpNf9fvuTaIfFAPryd9dSXPMGu4HxjO7ryrNHeyZabReudUqWcOwIvICUnl8sqTjed7vGHQ-JH2cK7dOReyA674M3n0ybv5j1Bv72LZGgJtnyTsg7TvTYbySEa2v3ID5fmWMiFTq5FppJIpcLZ3pwlmZ32dIQiRzbCoqznBWna5qOpLGV4DpcEVVkee4QSXqdmwDlsLXGtdR94gioMVFiF3yUK83uRdubaQnO_PS4qtkHY8E9fyiIGdJHpLaUYacBbBB23FbSB0fM7zrQRG31q5YQu-rbLDzAIaVIntEgHtsBMHWHMkDu1QJXvspN-wMVw.jpg" width="400"><br>
+
+قیمت ارز در بازار آزاد ایران روز دوشنبه ششم مهرماه تنها در چند ساعت بیش از ۶ هزار تومان افزایش یافت و دلار از ۲۳۶هزار تومان به ۲۴۲ هزار و ۵۰۰ تومان رسید.
+سقوط آزاد ارزش پول ملی ایران، همزمان با تشدید تنش میان تهران و واشنگتن و در حالی که تحریم‌های همه‌جانبه و بی‌سابقه آمریکا علیه جمهوری اسلامی ایران ادامه دارد، وارد مرحله جدیدی شده است.
+سایت‌ها و کانال‌های اعلام قیمت ارزهای خارجی گزارش می‌کنند که روز دوشنبه، یورو به مرز ۲۷۶ هزار تومان رسید و پوند بریتانیا هم رکورد ۳۱۸ هزار و ۶۰۰ تومان را شکست.
+@
+VahidOOnLine
+قیمت دلار در بازار آزاد ایران ظهر امروز دوشنبه ۶مهر۱۴۰۵ از مرز ۲۴۳ هزار تومان عبور کرد و رکورد تازه‌ای بر جای گذاشت.
+اما خبرگزاری «فارس»، وابسته به سپاه پاسداران، افزایش نرخ ارز را به اظهارات وزیر خزانه‌داری آمریکا، کانال‌های تلگرامی و فعالیت دلالان نسبت داده است.
+دلار صبح دوشنبه از مرز ۲۴۰ هزار تومان گذشته و تا ۲۴۰ هزار و ۵۰۰ تومان افزایش یافته بود، اما تنها چند ساعت بعد قیمت آن از ۲۴۳ هزار تومان نیز فراتر رفت.
+@
+VahidHeadline
+به نوشته هم‌میهن، قیمت سکه معروف به امامی نیز روز دوشنبه در کانال ۲۴۳ میلیون تومان قرار گرفته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78551)
+
+---
+
+
+
+###### 🔵 Post time: 2026-09-28 16:41:13
+
+<img src="https://cdn4.telesco.pe/file/RFSLAfg8Jyr1sZJoKyYNA6gPZYHDkVZ7G_ZNtEvI_F6BXR0IL1ja3GdQY0_FoLJeTN8aknUYZIFct4IUQZ3HzZSVZJ2U8IYvf7PFNtMttO1Z9SfKMzPp_EgHrl9oW8jRQHNijpJ0r3dPTevnu2Xrwc4C8MmzsixcZoOS42HaIwo7GfXP-XpoheIRk5YeYQ-Xp_G0aA3xYwI33zV-5dqa_UMuzMlFpSwG0V8L2jPXY8qlfFiMDf3KQWQinsqvcBePSL2hMQF_5yLjnXocB_XPzJ_FQBclwXRSO8PJWwq15t1U7KEbeiHwiw201V59mSDuIVqIuZmTs-Ib3CPTJiubiA.jpg" width="400"><br>
+
+«محبوبه شعبانی»، از بازداشت‌شدگان اعتراضات دی۱۴۰۴ که به‌تازگی به اعدام محکوم شده، امروز دوشنبه ۶مهر۱۴۰۵ به سلول انفرادی زندان «وکیل‌آباد» مشهد منتقل شده است.
+خبرگزاری «هرانا» گزارش داده مسوولان زندان با اعمال خشونت، محبوبه شعبانی را از بند «آرامش» خارج و به سلول انفرادی منتقل کرده‌اند. دلیل این اقدام تاکنون مشخص نیست.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78550)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-27 18:27:15
@@ -69,7 +147,7 @@ VahidOnline
 
 ###### 🔵 Post time: 2026-09-27 18:23:20
 
-<img src="https://cdn1.telesco.pe/file/auUPbXrv3SQN5zQ-nDJKQbnnlyi8_9PRfqpLjCMUocjYpMu7zfVZc9ww-BVgUMRlkPPKjS71RcMIrs4jdw7_0Duwd846jyvvr8hA7lVgRSMPTAKZJwraoG62dSOud6gY-HsVM2FXcCpdP_Ew7pgtM20gAqQFrhaJPWxaG8yrs4Izgi2BjlCZnb-gV8sqxSafOOcq4jPuV_kXPUV9vCy34S-oZsQaA9S45SAxoNa3sw5A-wYXdhCNynV0GSxEuOMICkJZsAlD1hi0hMcRkDxQHiBhEqOJUeZGbP_S67odnQuR_mlJI7NR5lawExFdg36-b3XgcGf4LfQj8oGJHGGw4A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pstHFO0-dts0AWtLLzxyENizgY2_t3BT9pL94tQi-32ToEiNYb8DdGdiDXGeohdOo0RBH1e1A6PUu_xMpjgN8C1TOwkWpqKh5NJN8k7rwQh2VHnmLKHGFUdM0e6xHM65fHHp9Ol1W4gRYT5ur2FFTQndQst093YU-aj04OEUz3g2AL7YGt4LnzMxTBiWIalelDAbfNkDO3fAYOM0EC-Gz0hu8Ydgp4D6D8fhECZAhlu8UhpaN9hyLGerTBBH7aGOshgGB_WGJ_0uQoAUapdIqjwWoJurOxFbNPHytJ1KkIEcM-sEwYCsQBBp3p9YnHDMekzDutx2ln2C9MCIwlIofw.jpg" width="400"><br>
 
 عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، می‌گوید با وجود اعلام علنی دونالد ترامپ درباره رد پیشنهاد هفت‌روزه تهران، هنوز پاسخ رسمی واشنگتن از طریق میانجی‌ها به جمهوری اسلامی منتقل نشده است.
 او با اشاره به اظهارات متفاوت دونالد ترامپ در روزهای گذشته افزود: «متاسفانه از رییس‌جمهوری آمریکا حرف‌های ضدونقیض زیاد شنیده می‌شود.» عراقچی گفت تهران منتظر خواهد ماند تا واسطه‌ها «نظر قطعی» واشنگتن را اعلام کنند و سپس درباره گام‌های بعدی تصمیم خواهد گرفت.
@@ -114,7 +192,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-27 18:20:03
 
-<img src="https://cdn1.telesco.pe/file/hjvrxnjbVuhM4-uTIyyWl5lvFDiAzgNc9dYbAUJCixA7li544YDYTVqSY3lOa9o6tlqMkxzcpBQPpeqobxH_EgkM2Xjs1-Mz6d9hnU_y8fYVTV89ZuoNJx7q3mfwH_SxBPM1-yq0yjEOzpxzy5akeL6nQSAANprPA1teI2fLf7reni5tlAamzYySXcjR2IAeXbwHEnyolmfTtPYK4PO9LH3u6SE6xUFmhiPDGsvBFuWDAoqjixYaU_vpNhDWSnd8c_Z2Zl32VNI5AXNLgn1IQe79eLAa_GLskc_KKv_uJmepf2yRq87hWRQqlt3ZF701Ny2nRfYe4UPMuMSBoZYPmw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LeUUVCJhYh3sHC9Crlup_6Md5YhB_hYdnH4X4toL_GHaRLWVkPId8OR5j1rXbFwzoAPtKt9Vxf7d50l1gaIHckt8yDkTHG9QCK0VKlOirwcqP1AJOI61byhJgaAqXYDI2niOR2MyNvuN77CL0-LtC5-ZogAZxESHYmyRzZ-E7RX-LUcOgDqiD4JjwtwuoDt02K9iIIptzWvNRB1Yyh7H8MgKV367IJGTJg0Epd3lp_JqCTOzDMg9kCbuxTzsEalarz1UJZb_bmbRrYnOVtRZtlFrOEew9-EJQs9SqDJtesQoU4rovv5oPwYBikVxTLzNUPZ54qFzaZpDAZ_NjNn5TA.jpg" width="400"><br>
 
 محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی، در گفت‌وگو با خبرگزاری دانشجو گفت: آمریکایی‌ها در منطقه در وضعیت مناسبی قرار ندارند، اگر وضع آمریکا خوب بود تلاش برای تغییر وضعیت نمی‌کرد. آمریکا ممکن است دست به یک تعرض بزند اما ما از گذشته آماده‌تر هستیم.
 اکرمی‌نیا گفت: آمادگی انگیزشی و روانی داریم و تلاش کردیم تجهیزاتمان را بهینه کنیم و تجهیزات جدید وارد سازمان رزم کنیم.
@@ -132,7 +210,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-27 18:19:30
 
-<img src="https://cdn1.telesco.pe/file/HfQu_enYmfZFjGMWYNcfEIo3IUPSg8GWs2e5OepO79DVJfJ4eDbi6iS1q4-f6kP2q9mLSx0sT5l_zJnP80D_8X6mx4HEZwOXS9d_Mq_jb5GLHBgR0jSKJWYl0p4WbIg_ESI-1GieWsjJz3GPIIxOkrKMu8q7Z3yGnrLwWplIDIo59UmHwEpXpWoZiCyCk_P40KU14WIxQ-mo8JuCCK3QY9NbdQzslduhVizvW0RmxpMK7jGgtcOGjoxVPrKd-kKKG9d9KjXSC829T2up8yZI8eridfYYpFmtprpmYEA35zi58H4U3Kwu4jPu-R8U_B7etn8fMy60SjKggtDq1F3TEg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Ipn-BydvORSxeET4vAuR-NsIWJWp_lfoLZePoSPR1MdlQ_TVfgSSf-WInBAX4iGVmxjVjgT2NKkIVgjJOBvFyi5gPUkcCRgPvAgdltM2rdeXVBUeLFutOfeg0IWUUG95OjhD3tpfKnS3goQmnMz7m0K1JWOalksiG3e82KPQIQRRFgS32xtJUC1eLJii7LoaLYhJTlHcLF3KWiaI2SM9PvBKCH9qUDtOtfzAGqseRoBoWRrQUBJ6uZ7B8rVv411oJQMy-pzpKxUOraCpdnrwIGOeIdMyiZbdbyIMnvdkGFw0Xxw5_6XIawxNsxhPkXxdIPA4578opDBbc_rWLrNIBw.jpg" width="400"><br>
 
 حمید رسایی در پرونده شکایت محمدباقر قالیباف به ۱۰ ماه حبس محکوم شد.
 این نماینده مجلس شورای اسلامی گفته است که برای اجرای حکم خود را معرفی می‌کند.
@@ -164,7 +242,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-27 18:18:58
 
-<img src="https://cdn4.telesco.pe/file/kdDEIecQwTcB0cNeaufmiHsPCliV_Rv-4xs0rXArjU0ZyFR5fS7QOexgXcTqqOuWffpKN8b1Yn1EYg053MpLfx5yUegn6KVr_lEX4sm3iehxl9eE9-vFoCUPKG-5xni8lJ6P8WwqMVqgYQdyLhJ1bzAbhd9bv-jBE4xinZx0DQ8ruKcSCCsHBtbNXZEs27TF31Ht44cSZ8jmM3imPjd5XLok7XqiCfDg04ydxUmxY1Nr_N3v38DN3vcCLqa-1HCdDYs7mhX5EZ8pNj_IXupZ0Q4SU2CYgfZOqDtvsgpUf0YrhFO1X3fSARy32EVue9SPRNLavKRQIW6Dh-_mLKFg4A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ky5do7uQUZQKe99G7KtE7ST_-G_-M0Nw5G9fg-pQML5WHFp40H0dp35DdlBo4FVz8PJAsPU5HDUFtfB0qzW7GjFqYexzMG72WvNP7bw5TWESm273tfqDQq74HzWhy9puUdPJEYonxIcRjMamrig3kcs6r_gpFTJrk4scrKdRcvC-suwR3oZFR2uoenku29gNGHbvuf4jMZy7llUreHwdjhopJ9wugJjoX6j-LBCD0ejC6xetCutpXZhut7EKSAAQ6TL1zDf5OZdLeqVR0u2qT_O-hr8pvRmm-EM9wad9MJd3zSTLG0M3nu1qH1aSobj6TWCclcW099wpeDc7NEneGg.jpg" width="400"><br>
 
 حکم پنج سال حبس دیگر برای علی یونسی، دانشجوی مهندسی کامپیوتر و دارنده مدال‌های المپیاد نجوم، در دادگاه تجدیدنظر تأیید شد. این حکم پیش‌تر از سوی شعبه ۲۹ دادگاه انقلاب صادر شده بود.
 یونسی و امیرحسین مرادی، دانشجوی فیزیک دانشگاه صنعتی شریف، قرار بود با پایان محکومیت قابل اجرای خود در آذرماه ۱۴۰۵ آزاد شوند، اما با تأیید حکم جدید، علی یونسی همچنان در زندان خواهد ماند.
@@ -246,7 +324,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-26 17:41:49
 
-<img src="https://cdn1.telesco.pe/file/MffPtGz4Ll7_8scICcvFNOmojL-0vKqWqqb1Wbf5IN2g0hFHl0wWh1eXIpCJA8aqhfh8dFj7P56UuTKyzhFloHtfmTS-_CWiuSMIPhsYXP6-Nx6gr6lvsXfDhZLm-fVpi0wyFCLYIhqLGTt6w4v-m_PvsyWB1GNnOVamCvixkXiUSkOeAM8fWemUAsfQeGsv-LSrynb3N-mIxWt0_fcn5nBPd7k497tkY7LfufepynzvkZc9Ri1SCHhc7OMxCp94hTbUFfLf_rI67Y9G-zQRdPtHRkPBwRfQligrtnR-AOLmJyicW0EAlM3hIR5oyJbKbISKJsgacj9t6J6_YaoeGA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Ywk8_Sy5F6VBFecRe2qhgR6DtFMXRAkj6auYN0NMyH27pWQcq5wmVtIspEWpgwa5atVzxh3jNxaWUe1XRKr1CTd8XP_7g38ilrSUaeWnmDDi3RT37DeGhZslNRFl8hfcPtyPsXzMgmzv4LdoXaXaM845hwgAtP7UEMdtLFGUhsSBEHLNKWd02RcBNrDGTp-PdvKJ8yZ3EkuZtlOlMQjDv9h5OCBnstQwsJxzPeYk81QX7Pusy6RK7f3NssiNF8-Rzj1Vzu_5ij9xLFsb2nVruChnein9t6re6u-vBbgDFkmUI5ZNjkon7U0O5QIxly-Vt4XJ9H5M1IJewPwLAMGhBQ.jpg" width="400"><br>
 
 دادستانی تهران در پی انتشار تصاویری از اجرای نمایش «تهران پاریس تهران/ پل»، علیه عوامل این اثر اعلام جرم کرد و پرونده قضایی تشکیل داده است.
 مرکز رسانه قوه قضاییه شامگاه جمعه ۳ مهر ۱۴۰۵، بدون اشاره به نام نمایش اعلام کرد «رفتار خلاف عرف و شئون دو بازیگر در یک تئاتر روی صحنه» موجب ورود دادستانی تهران شده است.
@@ -263,7 +341,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-26 17:40:55
 
-<img src="https://cdn4.telesco.pe/file/uyu0IOvDpQ0o7yW7vncN1gKgiRfuFvG5TGHum-6aKNQgzYEaZaCZwiV83pI9RmscKh77606mNcg-tyj3G3uFsAzrn67yU20AJoJFer0umKh59PTFLHVrdJjnAEE0wmtc_EGdYqvbzmNb6nw3C7rjxIj-G-OKQH5bd9L6zceR_dCkP_VbRxRnzFffASUc-6P62B59X8hIeFMX4T8W-SDC-x_maGoj59gKaQOKRn_z9MIgiYLDwbRIAw1e_V7HYYU_1JpnfIn89lkhx2dD_RlP2SPynZzCGvdrB3rh-rr5cERf_Axk8Q7Olw1IsAuOCPLgDtTEFj2WlXKcOD3hR-IJBQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ayzd10KPHyRJ_mN8P9EVbjyI4nha7tyBiTCYMBjXvS2VZqvGM1Sq9ydhJwd1cionIPGWN2zgst0DACI1oqGtDaM4rDKQE9whos7bhjIzmqZyRQtb42KXG3ND6frErON4VHRY7qOBIMMTFIzHaSLmEh4gHERvUuVNY7J0qJt3rfX5kTCpqyISBL2QYCCZMzWb4NYl3-78ILK4T-YWEcG0udf0vUhQGiU3ivxcsdq3YROkxs0JYobHBjI_L5trziJLtGNLIEF4FCcdLW5cR587XXJvE4lQ9wLibzG38O9e6t79sRolGIFimV9pr0nZRzX8SzlFP5BdkEyak-xtSStrmw.jpg" width="400"><br>
 
 «محبوبه شعبانی»، از بازداشت‌شدگان اعتراضات دی۱۴۰۴ در مشهد، به اعدام محکوم شد؛ زنی ۳۳ ساله که براساس گزارش‌های منتشر شده، در جریان اعتراضات با موتورسیکلت خود به انتقال معترضان مجروح به مراکز درمانی کمک می‌کرد.
 هرانا خبر داد شعبه اول دادگاه انقلاب مشهد، شعبانی را با اتهام «اقدام عملیاتی جهت تحکیم اسرائیل، آمریکا و عوامل وابسته به گروه‌های اپوزیسیون» به اعدام محکوم کرده است. به نوشته هرانا، حکم امروز به وکیل او ابلاغ شده است.
@@ -280,7 +358,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-26 17:40:35
 
-<img src="https://cdn4.telesco.pe/file/e5aDZ1MsOTviW7gAuefZ6h9K8et1rhU2tt1J1UMUHISikcCWcCg3AWpMi5qsvXmXELRPujNhzAva2LtBLixvLP1LgXhuQhsQd6z1P-QUjBYek9VB9DiB1WUSnDt5R9-VCxARqqCdOF-8MV8Xb7h1_t04F2_jqqd7V6_XuLoO_AA2sWPHOqCkXSBuQ5CL5fUgjne43rfho1pIrGYiO8nujxtafmP7FGiVxtyI5TQ_j3PyaP8wzjyQcRQ2jyRBQ6nkfgxzi-ZzVl61rlelTbtgWLGe6Z07_kwFJ73TFDJNgFnto5TGpW1MVV6oT6fNq8ERwK9-x4k1yXUD_urrfzwAtw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/YLpXgu3MiqBNb_bMhKQiGOn1F2FPJ7m2tjSatfp_j3DLp8ApDyb_G3RbRgMIOgGxkVtk1Us65oIeCPXn-JQLbrDVOmJDGp71Dv3P2yTYP3nrelLXGpZ-q988P0F5PSstzfl9rdzGNgvC1aGKMwYs-ujSZgMo4SvblJh0hyMw-7igFnQsO-QGmpOLnh4hdHXyh9uF3ibRi1icxT_CB9WZroDjyA9McBSlNVFWJ7GQhVpBG6FOy0wEHS1qIgJHjT-yeor_kmSt6Va0edDDSSURG9MnF0ZdqpjicSP32DI97N1HtfLiDW6k8rYac_yk4OLeALCLug69ZQOoiw1hkzuC8w.jpg" width="400"><br>
 
 «امیرحسین موسوی»، زندانی سیاسی محبوس در زندان اوین، در شعبه ۱۵ دادگاه انقلاب تهران با دو اتهام «محاربه» و «افساد فی‌الارض» روبه‌رو شده است؛ اتهام‌هایی که می‌توانند به صدور حکم اعدام منجر شوند.
 @
@@ -289,65 +367,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78534)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-26 17:40:24
-
-<img src="https://cdn1.telesco.pe/file/edVVOgFnIv0PqKzK98GtWevAMzGeb5W8PsrDsSW2YrsBhGmcTvj1z_a5GqCSTQ3u99enJphNgE1XkzpKFu2I-Iy5JE0DT_GtHEkM9qw51uaGDAce5YDr9tlQJK9PHQqHXATz5sgphbxq9qOyujvjNGmksHPFUv8_f8UhA4Sb5yfNaScYszXjnPv8tZUV9syH20iXS8u327gSBICBCVhTSgg3md9OMT-U3q-31mNNLeMXecIYq-WE1njP_rMzgMtZl0IQvHnLDZVFa3vZAl8NiyXc2XGFTe48Dk308zGaY0rVflq67zBjK5ekghPXOX9TBdm25IpqdnWdGl3m0G2z5w.jpg" width="400"><br>
-
-در  دو واقعه جداگانه دست‌کم ۲۰ نفر کشته شدند:
-یک دستگاه اتوبوس مسافربری بامداد شنبه ۴ مهرماه در آزادراه همدان ـ ساوه واژگون شد و بر اساس گزارش مقام‌های امدادی، ۱۱ نفر از سرنشینان جان باختند و ۲۴ نفر دیگر مصدوم شدند.
-@
-VahidOOnLine
-برخورد یک اتوبوس مسافربری با تریلی حامل میلگرد در محور بیرجند ـ قاین در استان خراسان جنوبی ۹ کشته و پنج مصدوم بر جا گذاشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78532)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-26 17:39:18
-
-<img src="https://cdn4.telesco.pe/file/t2V61W2W-uduAIFZdoa5KaA9N0ftneAxXPZ2wOcx47_MjayusDHWOnsJRbTtrn_JzbFBZKFgHbJxtmtaa8J6KAbajRCQSCjINwD6d2_oyguUdRhzUdACPpWAGzQzI2NfzHns2RfB3ZAMhttn6iwweLRzG345MV8rh9R3mrfZ57D7Y-mXFKHjFdZxbV4ZfnZXoSTNGRxz7XMCEi822DK7LW_ISrLmzxrJBYk_vIrGw5BGvrNbEGWSHEjt5q2fdAu6B1fUt8Y0fk7MB-Q3CahruM5mlhELN3hUcEIMJt8UR73-k-Y0sjzlmaDnOKMJvLlrA0CGGOmeAfHG2yK1lropBQ.jpg" width="400"><br>
-
-دادگاه تجدیدنظر استان قم حکم ۷۴ ضربه شلاق پرستو احمدی و هشت نفر دیگر از نوازندگان و عوامل «کنسرت کاروانسرا» را بدون تغییر تأیید کرد.
-ابوذر زمان، وکیل دادگستری، روز جمعه در شبکه اجتماعی ایکس نوشت بر اساس رأی شعبه ۱۶ دادگاه تجدیدنظر قم، پرستو احمدی، چهار نوازنده و چهار نفر دیگر علاوه بر ۷۴ ضربه شلاق به دو سال ممنوعیت از فعالیت در امور سمعی و بصری و ممنوعیت از خروج از کشور محکوم شده‌اند.
-دادگاه کیفری استان قم پیشتر این ۹ نفر را به اتهام «جریحه‌دار کردن عفت عمومی از طریق تولید و انتشار محتوای مبتذل و خلاف اخلاق در بستر فضای مجازی» محکوم کرده بود.
-پرستو احمدی در آذر ۱۴۰۳ ویدیوی «کنسرت کاروانسرا» را که بدون حجاب اجباری و با همراهی احسان بیرقدار، سهیل فقیه‌نصیری، امین طاهری و امیرعلی پیرنیا اجرا شده بود، در یوتیوب منتشر کرد.
-قوه قضائیه پس از انتشار این اجرا علیه عوامل آن اعلام جرم کرد و احمدی و دو نوازنده همراه او نیز برای مدتی بازداشت شدند.
-در رأی بدوی، دادگاه پوشش پرستو احمدی و همچنین تولید، تصویربرداری و انتشار عمومی این اجرا در فضای مجازی را از مبانی صدور حکم عنوان کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78531)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-26 05:46:21
-
-<img src="https://cdn1.telesco.pe/file/A93EAKwRiBZ1KdOQFAJMGrfmsxFcmzFXA50kwtCkYGkIAkS1zMOSJ5F-uLXzoepAGk_V4XkNU0NR2OxRv6JeXWqgZqjWhP8zZLUomou-Hd_3SqvGi4OA5n_-So7mV5IGjjOw9m9O4Wfqj3ecTLSjAxrsLFeOs743Nob3hPGfJBLsZSamuTlLLhg_NmqJjyWWKmMqde2reXtMIAwZN5l46hkR8uQCk4oNIUUZhQYT7TbWwTJHRzcDgxKwjlwF3DE4VieYkz7d4VwXnunj4J0TxYspTNhMrpH6K4nD-R86PFSMPc4ZjYdjvNLt2rtjM2pjOW9myzcFh6B8hTDb7F3zrw.jpg" width="400"><br>
-
-روزنامه وال‌استریت ژورنال به نقل از «مقامات آمریکایی» گزارش داد که رئیس‌جمهوری آمریکا، پیشنهاد جمهوری اسلامی برای برقراری آتش‌بس هفت‌روزه را رد کرده و به دستیاران خود گفته است که انتظار دارد پس از انتخابات میان‌دوره‌ای ماه نوامبر، بمباران را از سر بگیرد.
-دونالد ترامپ بارها هشدار داده است که در مورد تاسیسات هسته‌ای «کوه کلنگ» ممکن است دست به اقدام نظامی بزند.
-وال‌استریت ژورنال می‌گوید که پیشنهاد جمهوری اسلامی شامل بازگشایی تنگه هرمز و ازسرگیری مذاکرات هسته‌ای در ازای لغو محاصره بنادر ایران توسط ایالات متحده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78530)
 
 ---
 
