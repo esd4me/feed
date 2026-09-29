@@ -3,8 +3,28 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-29 00:26:04 </h5>
+<h5> 🟢 Updated at: 2026-09-29 04:17:56 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-29 01:47:53
+
+<img src="https://cdn1.telesco.pe/file/Yh8kYanQ7dj8Z19VYZ5Qjqpe0L7h94GgoNW27OZbwOMnPGKlEEPUTg-OOZr-fOIA6Ofmv0IQMrG6-ec3dtE4QwMVrIRreNWs0GoUYPlxN2okJMQ6YYqAnJutrxnQ5yJDYmD4gQgQ-gxkgk075NTZ6X78UxxB8N2e63Otg_ZV_YWXumUOWOfCz7qc4fM7SdyEELUsszJvkwQEND9xtsk7uQniMSKem5xI50XNuA69kUleZVDvvsyz14gv-xq2f0-I6lnjsiCMtzV8h3fpu2dqIyhTfMXzYdsr0FHXp96F6vTmMwOSIEibbS8nuliQKSiTNukSRxv-PYcHvl9eXHe0Vw.jpg" width="400"><br>
+
+ترامپ، ترجمه ماشین:
+اکسیوس همین الان
+گزارشی
+منتشر کرده که مدعی است «ترامپ» به ایران پیشنهاد کاهش تحریم‌ها و آزادسازی منابع مالی مسدودشده را داده است. این حقیقت ندارد. من به آن‌ها هیچ‌چیز پیشنهاد نکردم!
+گزارش اکسیوس، مثل بیشتر گزارش‌های دیگر، یک حقه و دروغ است که فقط برای ارضای «سندروم جنون ترامپ» آن‌ها منتشر شده است. آن‌ها باید این گزارش جعلی را فوراً پس بگیرند!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78556)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-28 23:31:31
@@ -75,6 +95,9 @@ VahidHeadline
 ▪️
 این مقام گفت: «آمریکا این بار به تضمین‌هایی نیاز دارد که نشان دهد ایران جدی است و صرفاً تلاش نمی‌کند از شرایط دشواری که در آن گرفتار شده، خارج شود.»
 axios
+🔄
+آپدیت:
+ترامپ تکذیب کرد
 📡
 @VahidOnline
 
