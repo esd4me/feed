@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-29 22:29:32 </h5>
+<h5> 🟢 Updated at: 2026-09-30 02:23:17 </h5>
 </div>
 
 
@@ -190,7 +190,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-29 01:47:53
 
-<img src="https://cdn1.telesco.pe/file/Yh8kYanQ7dj8Z19VYZ5Qjqpe0L7h94GgoNW27OZbwOMnPGKlEEPUTg-OOZr-fOIA6Ofmv0IQMrG6-ec3dtE4QwMVrIRreNWs0GoUYPlxN2okJMQ6YYqAnJutrxnQ5yJDYmD4gQgQ-gxkgk075NTZ6X78UxxB8N2e63Otg_ZV_YWXumUOWOfCz7qc4fM7SdyEELUsszJvkwQEND9xtsk7uQniMSKem5xI50XNuA69kUleZVDvvsyz14gv-xq2f0-I6lnjsiCMtzV8h3fpu2dqIyhTfMXzYdsr0FHXp96F6vTmMwOSIEibbS8nuliQKSiTNukSRxv-PYcHvl9eXHe0Vw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Bs2UWrBtpUnxaGxuwpcSYgMGerB4iRH_2YTNGeqGJ2xtNviD6TXmbtGcBIobxzczb13uGPeAA8iFMz4Yc7KZ02o0EhuQMx_0OmAKGs2fg_7E7rj-rpDFfw2WfzR7bWNK6Qo4jqFV_P3QBZr0V32m_ko5gRmFQ2M2ABziqMKP6oPKgItA_2875iBpTHkMoGOnFJoYRf6PvxAHHN4fxUkSgTdJ_LrTc_Xmbi-YkIhBwSkAisPAyzbM6tuKn_1ajcXJcHBM1VhQwJ5m2aw_AvpLq7SXjrjzWROdlMCdw9tBbIFqzMzYSezkKQ0FSgL0l9_WKGM3kKCi4tSDel68COa98w.jpg" width="400"><br>
 
 ترامپ، ترجمه ماشین:
 اکسیوس همین الان
