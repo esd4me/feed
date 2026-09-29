@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-29 09:55:01 </h5>
+<h5> 🟢 Updated at: 2026-09-29 17:03:56 </h5>
 </div>
 
 
@@ -150,7 +150,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-28 16:42:22
 
-<img src="https://cdn4.telesco.pe/file/JUbRt9Xn0Jxj7uzlGw255xd9MpJZWR1hCw1gr5mWy4uR0YV7uUTGluUCEiBCM_Q9QDWOCqwZrt6yzvVesi03VBxofFArRDCfcAvYOuxHwd6xxvRJcEBWgvHGfWSk36686CfK102fj0jr9_V-tYcJlWH5l0JqPz2rC7M4Jbk-1zES7e5FgNrMDaCwSfIlyVewErkIgCjFwIDH2Y6P4MrJ5sOD27rmEvl8q6Qx40uyEOJ0VI93_fT5REm9uVX3gJc7Il4YB_kV0WSZ1BlBgZzgRJ7HBPnJ9brPWSsJZceOp13usUz3R4aGjuCDDbzT5pYUlePSnuCdKg4ejIN0hLyM-Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/aWakbXFEyCsaV7qQoL1aME_007y24TfZA_l0thUVjCu1wykEKEgiDTqXPEArtAwXqBlsVwejpdZ5pQ4nbkjWxY_YPTYXdMNcAdk4LKoa9IaNPGsfUR4IgUkO6C12KoXTrXHO1Tr118jZcUJxexxGYA26e8k3psg7q2-bRNvPW0TbtZMHYbxJDjgi-J_zMh4TAq6R2XaNeDpOWwlceZCR_J0sFRoI81g4yPNArAg9EOoxog_zCwMEirBYnBM0gVla2wkeoL8KG5e87DV4OHMw9zTkdpE10JOuyKfbB8_Ecsf3OlkGRLJ6H_X3NDnItGDtc3n_BSmg5UIA_D5O36sXcQ.jpg" width="400"><br>
 
 «مایک والتز»، نماینده آمریکا در سازمان ملل متحد، گفته است واشینگتن پیشنهاد هفت‌روزه ایران برای آتش‌بس و بازگشایی «تنگه هرمز» را به دلیل شروط تهران، از جمله «دسترسی به میلیاردها دلار دارایی مسدود شده» و «لغو تحریم‌ها»، نپذیرفت.
 والتز روز یکشنبه ۵مهر۱۴۰۵ در گفت‌وگو با شبکه «ان‌بی‌سی نیوز» درباره دلایل مخالفت دولت «دونالد ترامپ» با پیشنهاد ایران گفت: «آنها میلیاردها دلار پول مسدود شده می‌خواهند و خواهان لغو تحریم‌ها هستند.»
@@ -167,7 +167,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-28 16:41:43
 
-<img src="https://cdn1.telesco.pe/file/LRGMQHkOULSvitDyFCCfPpNf9fvuTaIfFAPryd9dSXPMGu4HxjO7ryrNHeyZabReudUqWcOwIvICUnl8sqTjed7vGHQ-JH2cK7dOReyA674M3n0ybv5j1Bv72LZGgJtnyTsg7TvTYbySEa2v3ID5fmWMiFTq5FppJIpcLZ3pwlmZ32dIQiRzbCoqznBWna5qOpLGV4DpcEVVkee4QSXqdmwDlsLXGtdR94gioMVFiF3yUK83uRdubaQnO_PS4qtkHY8E9fyiIGdJHpLaUYacBbBB23FbSB0fM7zrQRG31q5YQu-rbLDzAIaVIntEgHtsBMHWHMkDu1QJXvspN-wMVw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LRpdoHRAhqp_4CDYtGwAHcP0WA78tJkvgaLEx6Wdh57QHiY1IzQEjnZd1aNoaptPRp3oEOPupeCHExxvLEJjgLjNwFT8rfdIp4J0wtb6nO8dgll0xjXEB5RhEeWTgVbkCA7gYzHlcj7BvvFDwqkiQ9HWqeIWX2Ljiz7f9L_2Qco4whuOvzd0AHItxSQeL5skorFBYHf3FhFhYe1V7yXQBqeaF9aGGpF-lnyh_ukyYqn8R8yEoffVfopELSUlIIxuuKNkcUr-ao6D5FE8v5i5y2ovdpZm6Uk3jec5fnAFR9x7EXGCzFqbL3b99xj1m1IcGpQfXYsswy-ZinMhHHTX7g.jpg" width="400"><br>
 
 قیمت ارز در بازار آزاد ایران روز دوشنبه ششم مهرماه تنها در چند ساعت بیش از ۶ هزار تومان افزایش یافت و دلار از ۲۳۶هزار تومان به ۲۴۲ هزار و ۵۰۰ تومان رسید.
 سقوط آزاد ارزش پول ملی ایران، همزمان با تشدید تنش میان تهران و واشنگتن و در حالی که تحریم‌های همه‌جانبه و بی‌سابقه آمریکا علیه جمهوری اسلامی ایران ادامه دارد، وارد مرحله جدیدی شده است.
@@ -193,7 +193,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-28 16:41:13
 
-<img src="https://cdn4.telesco.pe/file/RFSLAfg8Jyr1sZJoKyYNA6gPZYHDkVZ7G_ZNtEvI_F6BXR0IL1ja3GdQY0_FoLJeTN8aknUYZIFct4IUQZ3HzZSVZJ2U8IYvf7PFNtMttO1Z9SfKMzPp_EgHrl9oW8jRQHNijpJ0r3dPTevnu2Xrwc4C8MmzsixcZoOS42HaIwo7GfXP-XpoheIRk5YeYQ-Xp_G0aA3xYwI33zV-5dqa_UMuzMlFpSwG0V8L2jPXY8qlfFiMDf3KQWQinsqvcBePSL2hMQF_5yLjnXocB_XPzJ_FQBclwXRSO8PJWwq15t1U7KEbeiHwiw201V59mSDuIVqIuZmTs-Ib3CPTJiubiA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BTgaSVfHnwaqJkhoYOs_Xh--tp2nXzwLWjuLVJi8atfimg0a6Aw-hyY4uGNk2VOKX2syY1uVjySbfWxydaSvn2wWKlkOvEPTs8LEpKcXuAv6AxHpYF9GQDjO_ry9wcVEs07iqoi-ckq-wghQ1eRhPvFo_dcgU3PHXfs9exC78daoWyYUgfrRlfCi5HpJv4qpvjuyzUAf7eftt1Djh9TvKY-n96DHml0qbg2iSVqU7Qk0GqYyawReOrCnkRSyFeEfUmycYw2hKZPZOmbuTDAOGATithbOEyZavz4vshAqBMOf2iy1D-RJ4y6bqxFaMH-ZAp2iudpboFLzbYWFIlY_Vw.jpg" width="400"><br>
 
 «محبوبه شعبانی»، از بازداشت‌شدگان اعتراضات دی۱۴۰۴ که به‌تازگی به اعدام محکوم شده، امروز دوشنبه ۶مهر۱۴۰۵ به سلول انفرادی زندان «وکیل‌آباد» مشهد منتقل شده است.
 خبرگزاری «هرانا» گزارش داده مسوولان زندان با اعمال خشونت، محبوبه شعبانی را از بند «آرامش» خارج و به سلول انفرادی منتقل کرده‌اند. دلیل این اقدام تاکنون مشخص نیست.
