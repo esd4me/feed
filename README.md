@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-30 23:14:13 </h5>
+<h5> 🟢 Updated at: 2026-10-01 02:50:07 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-01 00:54:56
+
+<img src="https://cdn1.telesco.pe/file/EA68HbVAv4SjXTOYXVt3Q_19JAKjT6rEqEmhJGFCN8aUtpyyPvhs5DUUMtjq1mAMHatSzTQDhF9jkrVMW4M4I9fq1R6nrRJ9VI2QSZ1-_arkqxZGH54q9iW41EeXsNCEr8_qXY8lzZpc7kgTGVvNBxLX-gEX73D5T5u_9OVJMYW3Vsas1Sx7YEGmjTn5y762g9ywCHVwbdh0qWwPWlVzaIoM2Ed92f8D9lD2X8HDja6QRwskKu-PIf2Rz6HUINXpSt_naBnjNEZMO3BrMflsKsDj_X8-cLJB_wG-cJEgyhVANZ-BTtgNntRSsT2rCdh6kkp4SpgkZ-s9kBLkp3Jqzw.jpg" width="400"><br>
+
+دونالد ترامپ، در پاسخ به سوال خبرنگاری که از او پرسید اگر رهبران جمهوری اسلامی به گفته او «دیوانه» و «غیرمنطقی» هستند، چگونه می‌خواهید با این افراد توافق کنید؟ رئیس‌جمهوری آمریکا پاسخ داد: «شاید آن‌ها را منفجر کنیم. باید تصمیم بگیریم. منفجرشان کنیم، توافق کنیم، وقتش دارد می‌رسد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78585)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-30 22:48:05
