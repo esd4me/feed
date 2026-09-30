@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-30 11:13:42 </h5>
+<h5> 🟢 Updated at: 2026-09-30 17:55:49 </h5>
 </div>
 
 
@@ -87,7 +87,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-29 17:31:22
 
-<img src="https://cdn1.telesco.pe/file/YyLqR7OWED84neCmdh1F45CmUkzV3fjLTC_B4gMfmeujAVjaA7ELANhx8IJrLeekWYnnrdFURXQzcnMzDY7UHn4HAoTtaVrvmXv8To9du9RvocpLn-7PUvmWp3kYnwN78j3SyxS31yi11gU_tG6y_kq1Q1gmfSV5yrJi6Q0o97uCTVXHhdMn7UH4Ai7qtKrVMBPqx-n35tCLu-0d7eQoG6Eyk_HkwmCBuRI4YC63e36oZrWr5gSVs7WM4n25YKWLNm-CqX3O49p5cZ9di-QhnILO3NI63S6v7cVzdYIoCej0WXzfvq9Ev_yM00_z-vY4nChtltE9yBKhintTSMEmdg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/q8Z2YPMIhhMsSFG6mSDwQHdTVgR9AXebHOxEkLbGwBqU0BKpAYC6_15yKnt66QqRidNwJFD72_sj_1A9h-RnkceK4LPJA7J38xEhEIvbMC_kG2cP9B4L-h6O2IEk3AHjFlOOP0gr9kqunv15rNnu06YrcL5BlwrDzKa_CO1eOJT-_UCiVU4tjU8jcpAr2i_hd_ec3NA5NO4Ie4qygqYIXFRelfn8JPlijboMeu5l_Bkl3YgxCDkaP1t2Fx5-MlrzTe7tWtRZiB3Y8wWQYMDOENyO_1Xou0rMyVK8MnL-NJRsU96jnbb5UCf6OmlG-u1nNMh25Lc8yYgxt5Z_4u1xZA.jpg" width="400"><br>
 
 نرخ دلار در بازار آزاد تهران امروز از ۲۵۳ هزار تومان گذشت و رکورد تازه‌ای ثبت کرد.
 بر پایه داده‌های پایگاه‌های اطلاع‌رسانی طلا و ارز، دلار در ساعت ۱۴ و ۳۰ دقیقه به وقت تهران ۲۵۳ هزار و ۱۰۰ تومان، پوند بریتانیا ۳۳۵ هزار تومان و یورو ۲۸۷ هزار و ۵۰۰ تومان معامله شد. سکه تمام امامی ۲۴۹ میلیون و ۵۰۰ هزار تومان، نیم‌سکه ۱۲۸ میلیون تومان و ربع‌سکه ۶۸ میلیون و ۵۰۰ هزار تومان قیمت خورد.
@@ -106,7 +106,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-29 17:31:03
 
-<img src="https://cdn4.telesco.pe/file/A-dTLiVQGu02cR23FpztGqNXRfx77U0WiTePVveBt4bOI7ggClpACf1pwZnjWIeThbbGLUdLMMlpqN2IFhRd4d3F7yI5qjbHI3iQwBITnvGYM2JOGnUtFBqJNdRezcsUWsWvPqARvZlO3Ab1RY7TzIArnoT-ICYdvUfGv97Uwu87JeWgqpNmsDC0zZTEuA8z_QmISw_xOxaF5pyIzgJRO175T2-hLNE5VIXwyC1n5oQMxZ3q0q40t3vG2Y9fMD97SMulRXEjq9VkceJH8hnw0KZTuRBl1KwyiGJq-_Qj4pEe9U854kfkMuvNGyd8rQv4Tok59l0ipVFGHNtssHO8Hw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/HK0zpdChDV5nP1YuJr1djLg4esp2AaQmZgNs2bMASYEzbCQiIWgEjVtaGI_4JJ_XGPd2N3MCfLBSKCGAB2rdUifM9hsDFI8EZABTCVufXFwnWzv5V1ZqA0ejJiYmYMtxkkNab0Ze05q6v9Bzzh8dKS9X1Hm0dciMfEcSRVTeXI1xeBls8FsIAhaEE7oUmNskU4giofpn1hpdAQ_5PpUJKDqZSm52MPb4o4ZVQUuUKSDuXzkk4umJiDeyFZqAV0VOha06k7WIYWI6RjF7Yup-p-ryuggb0-I0LIIVr_Ev7iJZVgx41aOlePr5aNJas8kB3A_Pffzr31CnYz6Oo7fN2w.jpg" width="400"><br>
 
 خبرگزاری تسنیم از توقیف یک فروند هواپیمای مسافربری شرکت هواپیمایی کاسپین ایران در ترکیه خبر داد و دلیل آن بدهی سه میلیون دلاری عنوان شد.
 بر اساس این گزارش هواپیمای توقیف شده بوئینگ ۵۰۰-۷۳۷ بوده است.
@@ -126,7 +126,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-29 17:29:23
 
-<img src="https://cdn1.telesco.pe/file/ushnam-KsiPwtUlKQijO3bGOt_x53lK6_IXvaC_UOTSN5DzYAMoCmf8dkzbsqG0pyp6UPFodjR7fCeaVhjPmAOsFNgvr7VQXnfQJFXyP2wEBW41J4tRsZ1r8sFfO6aUDfnuMyYA43zkYRqsVYJtNZFZN3hD-R2G5ers7u8NAP3ctdIAsNnPb9z6TjokYc8Fm892BD7l03XqC9VXuAOPCEuwru4a2HziFqtNO63wwSwrk5gYxOQ6ko6cm1LoSxodQL4yovj9GIaURtFLvXzno3wPyvz-T6b4Z9Y_G0v4rQEAyoNUAKiucDk7bZpaMqhThZO_StZSVqZZN0EQ8vbIZMQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/YkJh_Gn-L6_DMHtD1N8Rk7qS8TqqZKYtCLdVFpG5qguGJz6Ycpgymv6fRfrswOxyqTk2CRnnh7zu3PrjUhVeTfUnPTxMMmZMYEqRDsSDeTR0CCcPFfybvE6sw2gQBI6ycJWV3krBhfnUZFHMPMN7H3O4zaRFGmX5Z7PxFpJpOpz6EQUnboWXVIKQBoIOeti4yPMpOyQOWlnbgWD4gaX26mAjmt8rGCB8gDUmFtegznizEh0hqzJFOJR_LcSkSpOLrnlJtK2TZthAol-6vtDuAz7ZxxP7U8EYW3yWYW0txvUTu_IQRhYTHtSRbY3DjJly20PRhDUPGMKGHcSKJ31tNg.jpg" width="400"><br>
 
 سپاه پاسداران انقلاب اسلامی روز سه‌شنبه ۷ مهر متن نامه‌ای خطاب به مردم آمریکا، دانشمندان، دانشجویان و اصحاب رسانه این کشور منتشر کرد.
 در بخشی از این نامه که به زبان انگلیسی نوشته شده، آمده است: «حساب خودتان را از اشغالگران فلسطین که خواه‌ناخواه باید آنجا را ترک کنند و به کشورهایشان برگردند، جدا کنید! ما می‌توانیم همزیستی مسالمت‌آمیزی با هم داشته باشیم.»
@@ -149,7 +149,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-29 17:25:29
 
-<img src="https://cdn1.telesco.pe/file/UGoIXV3_tkhI2rrntloLJciVJlSGjv-yBApea02s6_FOLFYch_kO9nXP8Oc2IU73hlfvieRSmrQg5dLyr-4c8FWdpYxnmnGx77gqhuq_KlqDJvU0ZD7k8F9pstl9ZdpH7KxUjbOw8SKiiobo1yMdlvu3aiw2nLfnyY2kXNt6bLeBf0fSkvwtjIo5YU1GiVy-wCdiThBH19B95860xcr02YTlINEFmPXtTDhjmm6w5Vp53qZsW-VDWmDkFDh2cFEzysZO-iwxyY6tn-115em0nVIgsnBwKhlDW3C7Dh3Oy4-jATvG4izlDtbz-rcmZIonS1YOlsiE892qRwiMtOFwmQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aiqBZFkGafd7ThJopReLR8Ic3b40HlUNc3AOfZ0BolrqVXrauQksSayo3WLm7Anj-_W5sd14Rb6CC-2rOR2s9S6xSfb7hUH8FREX-Fd1--jo6l4ugn74nHwYiwwML5hQa8c-srjkn3JdIa3dwVyuSukT2AMy1oUscjDwd6474Hn8-F_ubeBsBUIu6f9_LlcaOERenJZldMdC1UZyJnZ-bEHr4CgJ_CFshp0kvmqJb0D5cBqDU6epsnyv9EkSd1jVOIDDMg1meJcirl8B6PFpEYbC-7P6Nh49EPATbsz3hUI3vjYin4UsYB8MH6KqkOOUr2EutCOM0FWh6-0qB9GvvQ.jpg" width="400"><br>
 
 محمدباقر قالیباف، رئیس مجلس شورای اسلامی، سه‌شنبه هفتم مهر در جلسه علنی وبیناری مجلس، آمریکا و کشورهای منطقه را به حمله به زیرساخت‌ها و نفتکش‌ها تهدید کرد.
 این در حالی است که روز سه‌شنبه جمهوری اسلامی در انتظار پاسخ رسمی آمریکا به پیشنهادات تهران است که دونالد ترامپ قبلاً گفته آنها را رد کرده است.
@@ -327,7 +327,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-28 16:42:22
 
-<img src="https://cdn4.telesco.pe/file/aWakbXFEyCsaV7qQoL1aME_007y24TfZA_l0thUVjCu1wykEKEgiDTqXPEArtAwXqBlsVwejpdZ5pQ4nbkjWxY_YPTYXdMNcAdk4LKoa9IaNPGsfUR4IgUkO6C12KoXTrXHO1Tr118jZcUJxexxGYA26e8k3psg7q2-bRNvPW0TbtZMHYbxJDjgi-J_zMh4TAq6R2XaNeDpOWwlceZCR_J0sFRoI81g4yPNArAg9EOoxog_zCwMEirBYnBM0gVla2wkeoL8KG5e87DV4OHMw9zTkdpE10JOuyKfbB8_Ecsf3OlkGRLJ6H_X3NDnItGDtc3n_BSmg5UIA_D5O36sXcQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/snGU5o1MxBJzrpmaWkzutfZQkvjuYXVZ_2Ph7vhdlAgtOT2SbPV5CEktEBf_GBxMsXgrQAGtg8ZVMZNAmSs0b-iee1AObSsPeCrji2syln2A2Plz3ugoT7GHKeBqYwFjPHbmRFSGfl9EGTbVE3mOE8guofiSFk_I9OBwl1HTwvmUpHxzUnHgJXfKodfniSSXtW1To2pIMCvFTcuvrDcZKf6hlMe341B0HFgpDylcZJnvOrOessZE9MjR9atoEw8vwMx2KDQm053ORMT5WrNnt8zB5g_TyfAdLqB7ZBOVq5gsOug1Z8Mzp7aMM8w_cDnGtlom2EM7ODHo3gbHTZtd4A.jpg" width="400"><br>
 
 «مایک والتز»، نماینده آمریکا در سازمان ملل متحد، گفته است واشینگتن پیشنهاد هفت‌روزه ایران برای آتش‌بس و بازگشایی «تنگه هرمز» را به دلیل شروط تهران، از جمله «دسترسی به میلیاردها دلار دارایی مسدود شده» و «لغو تحریم‌ها»، نپذیرفت.
 والتز روز یکشنبه ۵مهر۱۴۰۵ در گفت‌وگو با شبکه «ان‌بی‌سی نیوز» درباره دلایل مخالفت دولت «دونالد ترامپ» با پیشنهاد ایران گفت: «آنها میلیاردها دلار پول مسدود شده می‌خواهند و خواهان لغو تحریم‌ها هستند.»
@@ -344,7 +344,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-28 16:41:43
 
-<img src="https://cdn1.telesco.pe/file/LRpdoHRAhqp_4CDYtGwAHcP0WA78tJkvgaLEx6Wdh57QHiY1IzQEjnZd1aNoaptPRp3oEOPupeCHExxvLEJjgLjNwFT8rfdIp4J0wtb6nO8dgll0xjXEB5RhEeWTgVbkCA7gYzHlcj7BvvFDwqkiQ9HWqeIWX2Ljiz7f9L_2Qco4whuOvzd0AHItxSQeL5skorFBYHf3FhFhYe1V7yXQBqeaF9aGGpF-lnyh_ukyYqn8R8yEoffVfopELSUlIIxuuKNkcUr-ao6D5FE8v5i5y2ovdpZm6Uk3jec5fnAFR9x7EXGCzFqbL3b99xj1m1IcGpQfXYsswy-ZinMhHHTX7g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/SivjcdjZ9eQo3nMjpCMlcyQMXd9VwQHocbZ1Vb99tScUemXBFECW4k7Nrgpg6GJw6UivgVkmbIfeS6MVodEJaZ-e1TDywL2dMBqsyrO4LUlmz8-4ndLV-gioQhLuR1v2j2N7QRl9E_-L2RYV78hJuolnK2rdiBIsaN7udP1WVwiVySQiF9uLUf6_l56alVU9Kf2qmFX2M8z4uNvQDAWDfIeVdmJdiJ7nmuRyfBItsl-uk8YPupcntEYkPpcmRw9xtz4X-CsKQUFuEy0XvaIlrvUSfCkOyKor0AAyNu44FipKLqnM2Yi6TJ-GwLzKhdTv5DPd6RAQ4rEqpv0sbQzicg.jpg" width="400"><br>
 
 قیمت ارز در بازار آزاد ایران روز دوشنبه ششم مهرماه تنها در چند ساعت بیش از ۶ هزار تومان افزایش یافت و دلار از ۲۳۶هزار تومان به ۲۴۲ هزار و ۵۰۰ تومان رسید.
 سقوط آزاد ارزش پول ملی ایران، همزمان با تشدید تنش میان تهران و واشنگتن و در حالی که تحریم‌های همه‌جانبه و بی‌سابقه آمریکا علیه جمهوری اسلامی ایران ادامه دارد، وارد مرحله جدیدی شده است.
