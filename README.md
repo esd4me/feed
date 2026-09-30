@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-09-30 05:14:59 </h5>
+<h5> 🟢 Updated at: 2026-09-30 11:13:42 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-09-30 09:11:14
+
+<img src="https://cdn4.telesco.pe/file/hS93suG0FqxBbFekq9PBypTXL2c73eSco5Qg_NE6assgTPtT9jExnGojQCWw9srC4tG0kZ1AKCaHCMvcF9Cziv_fapMg0wZ9i3zNshWM9sToPh2s6CMYUl3wvDRNUbvAZvt67ppBnG0OI3UjcJvoBxTsd5C49tIdDN4elBXvKq7zFpMZ8sT0P4Lxkkn2cmjuVv0wjOKxmI7H6ZobmgID71PocOBlSynptaj6CfqEUJxxbY6tHvQJ1plNHFLASibcSEqm2I88gBbQYjJWJuFX1scl2XPPGmkK7kWBA7cWbTrUIrOfmG3ddvB4uevmYEyt7mDVH1V94BblZEhYzpzwCQ.jpg" width="400"><br>
+
+قوه قضائیه جمهوری اسلامی اعلام کرد دو نفر را که در اعتراض‌های دی‌ماه سال گذشته در مشهد بازداشت شده بودند، بامداد چهارشنبه اعدام کرده است.
+بر پایه اعلام مرکز رسانه قوه قضائیه، علی همتی سیستانیان و مجید نیک‌اندیش پس از تأیید حکم در دیوان عالی کشور اعدام شدند. قوه قضائیه آنان را به دست داشتن در کشته شدن چهار نفر از نیروهای امنیتی در منطقه‌ای در مشهد متهم کرده بود.
+در ادعای قوه قضائیه آمده است دو متهم در بازجویی و در دادگاه به حمله به یک فروشگاه زنجیره‌ای، آتش زدن آن با کوکتل مولوتف، آتش زدن یک بانک و تخریب اموال عمومی اعتراف کرده‌اند.
+هیچ اطلاعاتی درباره روند دادرسی، دسترسی متهمان به وکیل انتخابی یا شرایط اخذ اعترافات منتشر نشده است. اعترافات تلویزیونی در پرونده‌های امنیتی جمهوری اسلامی بارها از سوی نهادهای حقوق بشری به اخذ تحت فشار متهم شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78570)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-09-29 21:54:02
@@ -167,7 +186,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-29 09:48:06
 
-<img src="https://cdn1.telesco.pe/file/hzznbG7H3WV1OHl_2QiIcWhCl4vYEtHxnJQKON-JzQMWyzjbycBVDX118dR5ToE8m1x-XdjDeGc75T31HYOH1HHuf6eMbtxAollffFxCiFTwKwHzBubOh8MG-eqRvfr4THyV56lQQj_EV6DiVjaUeKrGB_VB695gO_11APhbwpS8DICBjTJbjFVvIsVGnjC5SDbXd9Byu7BxryLhEbF9w19VNk46ow_80ckiaNvJga2vr7sYx2DfitUVrmVd58RBxOSDnVjbz3tUACwmRRUp_d7dCQv-Y3JsQFG48C5qAhDkSUbMfKjCaaKvQbT2gbC-RWMs6XXIwteo-hnjVPKIPQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GJYQHCPmXHiYFl2_kB1bFZXdX6F6ycUaSI7l_GkxlAc6TudZUBFIoeOCC0cfTa5ydT-kM1JV7r_y_9QsI4D7aj1-4Ym_6luIwzaFqIybRQlyyVMxfT9l56ignxE3NG8CHhyNqr5Q-oP6gDlFkz4CB8ldQ6yZ1IPy18cFyLKuCYaa_i_T7Y74v7KAyl6gllaZEKon9UIt5BBtPVQyEc7N7RKq1WQXILVEe7DgUHqfWNlgMXP-2fyxmeSIxZmYze3i9f_FKZCSFzIsw4xwUePvOpbuHh-K7tn7zPjtKQ_ANvWeZBbjtNcDGD7cjaWT5rDBPM6Lzvch41DuDn53LsYblw.jpg" width="400"><br>
 
 مارکو روبیو، وزیر امور خارجه ایالات متحده، روز سه‌شنبه هفتم مهر در گفتگو با شبکه فاکس‌نیوز گفت رژیم ایران پولی را که به دستش می‌رسد خرج مردم نمی‌کند، بلکه آن را صرف ساخت تسلیحات و صدور انقلاب می‌کند.
 او با اشاره به عملکرد تهران طی سه دهه گذشته افزود: «مسئله صرفا تحمیل هزینه‌های اقتصادی بر این رژیم نیست. پای هر دلاری که ایران در اختیار دارد در میان است. آنچه آن‌ها در ۳۰ سال گذشته انجام داده‌اند این است که هر زمان پولی به دستشان رسیده، چه در چارچوب رفع تحریم‌ها در دوره اوباما و چه از مسیر فروش نفت و گاز، آن را برای ساخت بیمارستان، جاده یا بهبود زندگی مردم ایران خرج نکرده‌اند.»
@@ -344,23 +363,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78551)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-28 16:41:13
-
-<img src="https://cdn4.telesco.pe/file/BTgaSVfHnwaqJkhoYOs_Xh--tp2nXzwLWjuLVJi8atfimg0a6Aw-hyY4uGNk2VOKX2syY1uVjySbfWxydaSvn2wWKlkOvEPTs8LEpKcXuAv6AxHpYF9GQDjO_ry9wcVEs07iqoi-ckq-wghQ1eRhPvFo_dcgU3PHXfs9exC78daoWyYUgfrRlfCi5HpJv4qpvjuyzUAf7eftt1Djh9TvKY-n96DHml0qbg2iSVqU7Qk0GqYyawReOrCnkRSyFeEfUmycYw2hKZPZOmbuTDAOGATithbOEyZavz4vshAqBMOf2iy1D-RJ4y6bqxFaMH-ZAp2iudpboFLzbYWFIlY_Vw.jpg" width="400"><br>
-
-«محبوبه شعبانی»، از بازداشت‌شدگان اعتراضات دی۱۴۰۴ که به‌تازگی به اعدام محکوم شده، امروز دوشنبه ۶مهر۱۴۰۵ به سلول انفرادی زندان «وکیل‌آباد» مشهد منتقل شده است.
-خبرگزاری «هرانا» گزارش داده مسوولان زندان با اعمال خشونت، محبوبه شعبانی را از بند «آرامش» خارج و به سلول انفرادی منتقل کرده‌اند. دلیل این اقدام تاکنون مشخص نیست.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78550)
 
 ---
 
