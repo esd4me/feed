@@ -3,8 +3,42 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-01 20:41:44 </h5>
+<h5> 🟢 Updated at: 2026-10-02 01:38:56 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-01 23:52:25
+
+<img src="https://cdn1.telesco.pe/file/DO1udFNV1brhil_45DGr0K6V5T-VewUX9LUZKw1XCrWI2WGcw2JzwBwaMUh85khO7dSM5qns94nV-fGwrqE7-hRJsFOoyD70snnNtycbGAjf4qisI2RZDRFnuDTX6z2lSyO63EaDyYOCa69_Xhkq8OGj78VveyHMl1cco-6GoiQdQDb-W4CmzhCBfOl8TUKkn3wi4B9nusVrIwkmJ4KsFgXmOHKPIKS4E22KsP5Rtq3ASwcx5ulP3geuSN4xiNmpYaLonoi-fYKf82TSHWL12t2hpO_LhSSA05tpiFUflVffFrje_ry5efZO6zeVeFnMIzGzwbWJAOhCWV0oo-tn3w.jpg" width="400"><br>
+
+UKMTO:
+«عملیات تجارت دریایی بریتانیا» (UKMTO) گزارشی از یک منبع ثالث دریافت کرده است مبنی بر اینکه یک نفتکش هنگام عبور از تنگه هرمز با یک پرتابه ناشناس مورد اصابت قرار گرفته و در پی آن آتش‌سوزی رخ داده است.
+گزارش شده که خدمه در سلامت هستند. میزان خسارت و تأثیرات زیست‌محیطی در زمان انتشار این گزارش مشخص نیست.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78593)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-01 21:32:58
+
+<img src="https://cdn1.telesco.pe/file/YbVIKSP5Vxi8mqf5n7GTNxYi84mUmwNFfUUG6F9ruNLuf_nxAs175m2lFSFO419qrK6uhn4Pu1aOBsZiNbqznz_7bnDZh83HIWt4aGdj0TtaANRubdD_etroEbLzQ9qS9jtcEYN86SttAA8KWqFIWfEosKNBdQ8cPeTTsfjIexJN-y6jvEUDzFnkHjPc9Z_TPsgM0UvqVkMkyI5bf8td1tv0Fa8Y0vRB4Z6MEimxG-fDVrw82_uA7k4jk0JmK_oAYyJPg62Q4aZU8znDUskRLReA_tksgVySP86RgfcGKdfsa7uRyHz3DKcp44WD1wLjafnx2p-zSXUYOAEUdiE3yg.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+من بارها گفته بودم که برای از بین بردن «تهدید هسته‌ای ایران» ۴ تا ۶ هفته زمان لازم است، اما من این کار را در یک شب انجام دادم! باقی آن زمان فقط برای این است که مطمئن شویم اوضاع همین‌طور باقی می‌ماند.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78592)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-01 17:53:32
@@ -134,7 +168,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-01 00:54:56
 
-<img src="https://cdn1.telesco.pe/file/EA68HbVAv4SjXTOYXVt3Q_19JAKjT6rEqEmhJGFCN8aUtpyyPvhs5DUUMtjq1mAMHatSzTQDhF9jkrVMW4M4I9fq1R6nrRJ9VI2QSZ1-_arkqxZGH54q9iW41EeXsNCEr8_qXY8lzZpc7kgTGVvNBxLX-gEX73D5T5u_9OVJMYW3Vsas1Sx7YEGmjTn5y762g9ywCHVwbdh0qWwPWlVzaIoM2Ed92f8D9lD2X8HDja6QRwskKu-PIf2Rz6HUINXpSt_naBnjNEZMO3BrMflsKsDj_X8-cLJB_wG-cJEgyhVANZ-BTtgNntRSsT2rCdh6kkp4SpgkZ-s9kBLkp3Jqzw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MgKfV68pW8HDcr7aiyavrdB-JBbf47gEkcUw_iTuAVghJd_RmhVm7ZxHfm9b9eeYqL-xVqDK5dyhp1d-8RRjPWRH4nUAIKZ2dXwplRTk2UEAjBjFeVaSI5R_rdIZ24lw8m9pNVEA6KU_vQt26zi6r36rgxxVWsu44hzeDzB_TkFdd81B4dzxsFoS7cY4GaCzFBMXwLtZcbI9G5hE0biO7qGVOYMtULkeNdQbycPm9uGirP2Gq3cALZtDxcR8Hs9Wz1hcKUC-LZdWa3x9eg6hQiB3WzdvDI7ii5rGts97CRTFdKab4_hvcGDfwTCTfo3hISa_OlUVkNTObDkyugL4IQ.jpg" width="400"><br>
 
 دونالد ترامپ، در پاسخ به سوال خبرنگاری که از او پرسید اگر رهبران جمهوری اسلامی به گفته او «دیوانه» و «غیرمنطقی» هستند، چگونه می‌خواهید با این افراد توافق کنید؟ رئیس‌جمهوری آمریکا پاسخ داد: «شاید آن‌ها را منفجر کنیم. باید تصمیم بگیریم. منفجرشان کنیم، توافق کنیم، وقتش دارد می‌رسد.»
 @
