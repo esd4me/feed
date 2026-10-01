@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-01 06:43:24 </h5>
+<h5> 🟢 Updated at: 2026-10-01 14:04:59 </h5>
 </div>
 
 
@@ -28,7 +28,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-01 06:18:35
 
-<img src="https://cdn4.telesco.pe/file/jddxfCJ7HyPCBqyV8_PHNMqprZ2gbkryLhaSLEkle2jLSke5wXmF0SaTNJwBdNugrRbZ5wvrUZDw5pgMd2Ad334TCtBNvvA5C8PbN7NzmUrsnjgjpDsagmkLnvb1_BSmuCXrhgg9_xlRkq1ZdSZ3n_PX3UKATgLrZcWxitV3Iv7VlUqy3jO2r5epFagthCXEz2uo1Q1ktc0IgSBz781P2nsFVBI0CuVA6wrvJS75zNdrvmnaOVR1ruZXaT8FHU52XRH3_JlFrLsto40KU4GOna5krvJZhhhGxyEtQgZUaaRWjXjPobCCHrIsY1_GXSOiCQ4lRRPqEwkp8MbS7wbW_Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/l2LW-ZaQgcRxNm59_Xw4z7z5Xx1tROc78yyVQKKcmYJKFCrn3GXW3xA77wG8kartvQQQemy7br_ptjFsn7llMc_68QWAvFajRJYXUxCbAkx9bh8VlEbXjp1QSmvFktUt-j5bYtJVoNuG4TkUvmNBOW0NkJiSJGZWzbenOfi9jBuz1yoZM2as6VF40ZxkrHZqDYgXdXZq_okxf6_7yniN5nosXqJe4QpKmd51ulInW2qUhIfYZDfeEwpNvP-Y05xbZ5nofQcZT7jEo3C7xL5UyLWDzLqfwsY8TMrQSlKmorbPFfg6p1BCANJPBNwJk7lmMFJaRI8bklqbjwCzXnTeeg.jpg" width="400"><br>
 
 به گزارش آکسیوس به نقل از یک مقام آگاه، مارکو روبیو، وزیر امور خارجه ایالات متحده، روز دوشنبه ششم مهر پس از به بن‌بست رسیدن مذاکرات با جمهوری اسلامی ایران، دستور داد هیات ایرانی حاضر در مجمع عمومی سازمان ملل، از جمله عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، فورا آمریکا را ترک کند.
 یکی از مقام‌های آمریکایی به آکسیوس گفت: «روبیو هیات ایرانی را که بیش از حد مهمان مانده بود، بیرون کرد. مجمع عمومی سازمان ملل تمام شده بود و وقت آن بود که بروند.» بر اساس این گزارش، نمایندگی آمریکا در سازمان ملل دوشنبه شب به نمایندگی جمهوری اسلامی ایران اطلاع داد که هیات ایرانی باید فورا نیویورک را ترک کند.
@@ -193,7 +193,7 @@ https://www.iranrights.org/fa/memorial/story/-9241/mohammad-abbaszadeh
 
 ###### 🔵 Post time: 2026-09-30 09:11:14
 
-<img src="https://cdn4.telesco.pe/file/hS93suG0FqxBbFekq9PBypTXL2c73eSco5Qg_NE6assgTPtT9jExnGojQCWw9srC4tG0kZ1AKCaHCMvcF9Cziv_fapMg0wZ9i3zNshWM9sToPh2s6CMYUl3wvDRNUbvAZvt67ppBnG0OI3UjcJvoBxTsd5C49tIdDN4elBXvKq7zFpMZ8sT0P4Lxkkn2cmjuVv0wjOKxmI7H6ZobmgID71PocOBlSynptaj6CfqEUJxxbY6tHvQJ1plNHFLASibcSEqm2I88gBbQYjJWJuFX1scl2XPPGmkK7kWBA7cWbTrUIrOfmG3ddvB4uevmYEyt7mDVH1V94BblZEhYzpzwCQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/lUDh44MDJfEeswOSlma9kl91vucetKG4xGJt9Bz3041uw5BwVf3rPXthEz7oSmiGcCr4OgE3kacWuYS-GYeQn6a1DbO624IAHxfn70H9TELrNEcuiaOQggJU-3yC5YHNfJUt1fPHk8hJ5naBNYilDpFfnatT99Gw2rBBF2GcN39z5d8YPbaI020tP9IqiWLjZojLLSPRLVEddK5lAP6ejOWk5ow_ud1AT75HRlMgreI8Op3uN_s6dm0P8Q8R_mo9oXvYRAC8Xlnq3yUJcJOp4YKtJtDca1Tnkg9L1FURwz1WFyJiBPewW8oqUy5Qs-rM2FXVi-Rlp6l9UhpxKj8YZg.jpg" width="400"><br>
 
 قوه قضائیه جمهوری اسلامی اعلام کرد دو نفر را که در اعتراض‌های دی‌ماه سال گذشته در مشهد بازداشت شده بودند، بامداد چهارشنبه اعدام کرده است.
 بر پایه اعلام مرکز رسانه قوه قضائیه، علی همتی سیستانیان و مجید نیک‌اندیش پس از تأیید حکم در دیوان عالی کشور اعدام شدند. قوه قضائیه آنان را به دست داشتن در کشته شدن چهار نفر از نیروهای امنیتی در منطقه‌ای در مشهد متهم کرده بود.
