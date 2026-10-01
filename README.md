@@ -3,8 +3,96 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-01 14:04:59 </h5>
+<h5> 🟢 Updated at: 2026-10-01 20:41:44 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-01 17:53:32
+
+<img src="https://cdn1.telesco.pe/file/llz3JOxKP-5wl9UMk7YIHtZcaGex1NDusu19Fn6djEnjyfSihmdU4b4ywqDSqFSrz64Dy6tQRmRzU0-NKg2p8OvIEJJTe2hYNQayc8c2qW01G4WrPdZ9IZhVw2M21PQcvnav6LhsoM3fQvr9GjlDYuAPhb4ifoylPh-MjlFts9drpBgwN9BZJzjd89LqJiTMnJcSpUAlvdzWnDinPSqPWFhN0x0ng_l0V1SY0RQfJbChPIZBJWUWvkJDLLP2HW0CchXopr3MPokx3cZtsQHqAr-g5d8owLUWC4ai5MHDmPtMcmAgsFIaBCv0HzMfbdw-pvnkVEe-LAbssJJNU8hMGw.jpg" width="400"><br>
+
+رئیس جمهوری آمریکا، در مصاحبه‌ای مفصل با مجله تایم گفت پیشنهاد اخیر جمهوری اسلامی برای پایان دادن به درگیری‌ها و بازگشایی تنگه هرمز را به دلیل «ناکافی» بودن آن رد کرده است، و افزود احتمال تشدید حملات نظامی آمریکا علیه جمهوری اسلامی را منتفی نمی‌داند. این مصاحبه ۶ مهر در کاخ سفید انجام و روز پنجشنبه ۹ مهر منتشر شد.
+دونالد ترامپ در پاسخ به این پرسش که چرا درگیری نظامی با جمهوری اسلامی بر خلاف برآورد اولیه او وارد هفتمین ماه شده است، گفت پس از حمله بمب‌افکن‌های بی-۲ به تاسیسات هسته‌ای می‌توانست عملیات را متوقف کند، اما تصمیم گرفت «فراتر» برود تا حکومت ایران نتواند توانایی‌های خود را «به شکلی متفاوت» بازسازی کند.
+او گفت: «توانایی هسته‌ای آنها را نابود کرده‌ام. نیروی دریایی‌شان را نابود کرده‌ام؛ ۱۵۹ کشتی در کف دریا هستند. نیروی هوایی‌شان را نابود کرده‌ام. همه هواپیماهایشان از بین رفته‌اند. رادارشان را نابود کرده‌ام.» رئیس جمهوری آمریکا همچنین گفت اقتصاد جمهوری اسلامی از بین رفته و تورم آن حدود ۳۰۰ درصد است.
+ترامپ گفت آمریکا عملا کنترل تنگه هرمز را از جمهوری اسلامی گرفته است، و تاکید کرد شب پیش از مصاحبه حجم عبور نفت از این آبراه به بالاترین میزان تاریخی رسیده بود. داده‌های جدید نشان می‌دهد صادرات نفت خلیج فارس در روزهای اخیر به‌ شدت بهبود یافته و به سطوح متوسط سال ۲۰۲۵ بازگشته است.
+در بخش دیگری از مصاحبه، خبرنگار تایم به اظهارات اخیر ترامپ درباره احتمال «نابودی ایران» اشاره کرد و پرسید آیا چنین اقدامی واقعا ممکن است. او پاسخ داد: «بله، این کار را خواهم کرد. ممکن است.»
+هنگامی که خبرنگار درباره مردم غیرنظامی ایران پرسید، رئیس جمهوری به سرکوب اعتراضات اشاره کرد و گفت حکومت ایران طی ماه‌های اخیر بین ۷۲ هزار تا ۷۵ هزار نفر را کشته است.
+ترامپ همچنین گفت از تصمیم خود برای مداخله نکردن مستقیم در جریان اعتراضات دی‌ماه پشیمان نیست، و عملکرد دولتش در قبال جمهوری اسلامی را «باورنکردنی» توصیف کرد.
+او گفت ایران کشوری بسیار بزرگ‌تر و دورتر از ونزوئلا است، اما «نتیجه همان خواهد بود» و افزود: «آنها می‌خواهند توافق کنند.»
+در پاسخ به پرسشی درباره علت رد پیشنهاد اخیر جمهوری اسلامی برای آتش‌بس، ترامپ گفت رژیم ایران پیشنهاد بازگشایی تنگه هرمز را مطرح کرد، اما شرایط آن «حتی نزدیک به کافی هم نبود.»
+رویترز گزارش داده است پیشنهاد ارائه‌شده از طریق میانجی‌های قطری شامل پایان درگیری‌ها و بازگشایی تنگه هرمز در برابر رفع برخی فشارهای اقتصادی آمریکا و دسترسی رژیم ایران به دارایی‌های مسدودشده بود. مذاکرات غیرمستقیم همچنان ادامه دارد.
+خبرنگار تایم سپس پرسید آیا دولت آمریکا پس از انتخابات میان‌دوره‌ای حملات به جمهوری اسلامی را افزایش خواهد داد. ترامپ پاسخ داد: «ممکن است.»
+او از ارائه جزئیات خودداری کرد، اما گفت آمریکا طی شش ماه گذشته ذخایر تسلیحاتی خود را افزایش داده و شرکت‌های دفاعی با فعالیت شبانه‌روزی در حال گسترش تولید هستند.
+رئیس جمهوری آمریکا در پایان مصاحبه هدف اصلی سیاست خود در قبال جمهوری اسلامی را جلوگیری از دستیابی آن به سلاح هسته‌ای دانست و گفت: «موضوع اصلی که همیشه مطرح می‌کنم این است که ایران نمی‌تواند یک قدرت هسته‌ای باشد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78591)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-01 17:45:57
+
+<img src="https://cdn4.telesco.pe/file/HVffiMRqr8tKXKDmfYdboQieWghQ8nhvF0BXUslxItG3S1EvtidRC74q3X7ptWy--p-mVTpKG0oxgu3SL3i5rX-3m-D3vQbMVSX33nlUxQiEOhJL8YUvlITrcQSR9ZHcc6fNBtq3tAMuD4LxJdxP10DH_JG8y34MWZvFBL_GkyocGJKO2_EjOdiU1ZKx8nik0cb1YmycjOEyPl1sbWMGXU1wpaxBExgYUtexrItUd7kmofYPeNPgsaZnbLKvbkURprTBVvo6aZo6Kbg_ystVDPl-HjHekbUKA8IqcONAgmNv46PbKLPM7MIVbI2c4_yrLWlV8JSXht4ICT4ArnSJzw.jpg" width="400"><br>
+
+نرخ دلار در بازار آزاد ایران روز پنج‌شنبه با افزایشی حدود ۱.۵ درصدی نسبت به روز گذشته به ۲۵۸ هزار و ۹۰۰ تومان اوج گرفت.
+دلار آمریکا در مقابل ریال ایران طی یک هفته گذشته بیش از ۱۰ درصد، طی یک ماه گذشته بیش از ۲۰ درصد و از زمان آغاز جنگ حدود ۶۴ درصد جهش داشته است.
+در بازه یک‌ساله نیز نرخ برابری دلار در مقابل ریال ایران تقریبا ۱۲۵ درصد رشد داشته است.
+قیمت سکه امامی نیز در لحظه تنظیم این گزارش در بعد از ظهر پنج‌شنبه از ۲۶۰ میلیون تومان فراتر رفته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78590)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-01 17:44:32
+
+<img src="https://cdn1.telesco.pe/file/HN3fBCNqU_hvEJe72teRuB-Aunwu-ZaWG1Y8kUtyKg_xvuFUm83Exj8dCEH0BRphB-I1_8kF9o1v4F9wlTO59PtozEFvPDuf1_VTlTsxxORL-SHkGthTB0Kv4phmYE6tttRS4BIDKf1kEVJkW25ymXiXMcV5dNtD-w0a3xAys1W3TeeHe4Is-0W-aYv87hkh6sbj1mNrm4597kGRNab4xVmzav7qysPW3o3yJhlRsARW66N_2goJxBiHgTVfn8Oa9t01vFXjhfK_Iw6WSj-alSQRUNjK65svBkS7ut7Q_sl2kIY8sLCmLTeax4fnxx8RwLwp_lhUpjynzImLkxj6-w.jpg" width="400"><br>
+
+«فرزانه فصیحی»، دونده المپیکی ایران، در واکنش به اظهارات تازه «احسان حدادی»، رییس فدراسیون دوومیدانی جمهوری اسلامی، او را «بدنام‌ترین ورزشکار تاریخ ایران» خواند و نوشت که ورزشکاران جوان باید او را «عبرت» قرار دهند، نه الگو.
+فرزانه فصیحی در متنی که در صفحه اینستاگرام خود منتشر کرد، خطاب به احسان حدادی نوشت: «در جهان موازی تو باید پشت میله‌های زندان می‌بودی و از هیچ حق شهروندی برخوردار نمی‌شدی، ولی چه کنیم که اینجا سرنوشت صدها و هزاران جوان پاک و معصوم رو هم سپردن دستت و حالا فاز نصیحت برداشتی.»
+این واکنش پس از آن منتشر شد که احسان حدادی، چهارشنبه ۸مهر۱۴۰۵، در گفت‌وگو با وب‌سایت حکومتی «ورزش سه»، درباره ورزشکاران زن گفته بود: «با زنان دونده جلسه می‌گذارم و به آن‌ها می‌گویم تو می‌توانی مثل خیلی از ورزشکاران زن، مجازی شوی با ۳۰ هزار، ۵۰ هزار، ۳۰۰ هزار فالوئر، یا می‌توانی قهرمان شوی.»
+فرزانه فصیحی همچنین با اشاره به «ریحانه مبینی»، «زهرا زارعی» و «فاطمه محیطی‌زاده»، از ورزشکاران زن دوومیدانی ایران، نوشت تصور این‌که آنها بخواهند از آموزش‌های احسان حدادی پیروی کنند، برای او «مثل کابوس» است.
+او در ادامه خطاب به رییس فدراسیون دوومیدانی نوشته است: «شریف بودن ربطی به مدال و قهرمانی نداره. تو ثابت کردی با خورجینی از مدال هم می‌شه به قهقرا رفت و منفور یک ملت شد.»
+اشاره فرزانه فصیحی به «پشت میله‌های زندان»، به پرونده قضایی احسان حدادی در دهه ۱۳۹۰ بازمی‌گردد. در آن پرونده اتهام تعرض و تجاوز جنسی علیه احسان حدادی مطرح شده بود و دادگاه نیز رای به زندان، تحمل شلاق و جزای نقدی داد. با این حال پرونده با دخالت نهادهای امنیتی مختومه شد.
+در سال‌های اخیر برخی از زنان شاخص دوومیدانی ایران نیز کشور را ترک کرده‌اند. «الناز کمپانی»، رکورددار دوی ۶۰ متر با مانع ایران، از مهاجرت خود به آمریکا خبر داد و پیش از او «مریم طوسی»، رکورددار دوی ۲۰۰ متر داخل سالن زنان ایران، به آمریکا مهاجرت کرده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78589)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-01 17:41:22
+
+<img src="https://cdn1.telesco.pe/file/GzTJrZnVmCcbf7lz_bS95mdK-n1C1_oU8Eo4ligHmIhbGqLZb084rFM60lScA7H361dbNOTzipXM40dcH0NRrOjK4zGDU7uF-BTSYMB2AR-Fn0hMwkRxQgSwa-zVbdDFKAVmG_RN03E8p1DYNkm3CHZgsicb4-yvlVc1beCVDzoMtKvWBoQUu1aLVjbUXCEvXVv8bp2zUJCUdm4lCTmpd3QhOedOe5TfBd8vGtlTvwr8Z72JxyzLKweBXrXIWjxuaCmWzDbShFdSRln4OuQedqm-Non6mHjOlFMAD_-0ZjYk4EXFgHvDTxt1a59wQBElZ1im8Yg_s8Ir8P0Ou__aAw.jpg" width="400"><br>
+
+ایمان صادقی، بلاگر ۲۰ ساله و از بازداشت‌شدگان [اعتراضات دی ماه] در کاشان، به بیش از ۱۳ سال حبس تعزیری محکوم شده است.
+او بابت اتهام «تبلیغ علیه نظام» به هفت ماه و ۱۶ روز حبس و بابت اتهام «انتشار محتوای مجرمانه برخلاف امنیت کشور» به ۱۲ سال و شش ماه و یک روز حبس تعزیری محکوم شده است.
+«انتشار محتوای مجرمانه در رسانه‌ها و مطبوعات منتهی به هتک حرمت اشخاص» نیز از دیگر اتهام‌های مطرح‌شده در پرونده اوست.
+ایمان صادقی ۱۱ بهمن‌ماه ۱۴۰۴ بازداشت و پس از آن به زندان کاشان منتقل شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78588)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-01 06:18:52
@@ -79,7 +167,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-30 20:41:14
 
-<img src="https://cdn4.telesco.pe/file/ZqXpezN66Hv-HFL9u0JKABItJ5tmtkAkBepegC2iau0B4qkKLeYm4tznz8kkhQvqMWCrvmTA6iriIhw_XgkRXHKLglojSzjdqwuujyxRW9D62gkGfjGTt-Hzhkv-Di7QM27t_fxLBjxKnVwTajFzoILokOtLN-WluPcv1gbUN4SUZuVrKsFRtkAVBT_WC3HzdHWbkBHRw3srCigcfZ0tQl8v1hLcrO8sb2DteEt7BW1eCi2UeyAVnGYtNIdv6yqb03NPnIeJ_wSJBSjrF4piKpJAZtvwjyVLKb_Y6qDDhE8LfMkOAvGgIB5OO_72hzSDZqGhKxVWuiUzbSK65Fbzog.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PqEIKwtYp6035H_gJt7nDBeySusjl25RzjmO0IDq_avtT96_0aECB0yZdgZD0MBnh2uWl7S0LTIjgoqnF9pbc9yjxJBozE5ai_vAWKYLRnsPFFnJYAdSLkZbwWGYsK_A3RYEJEggvD55baD4q9pmEdhgxZKuxaBjZvBWXvG2MxdGQMSimHSSMB_E1ebaXtq5HF3732AMsmeHNLZaOEDRvT7QSJ1WUL2CGTLhxX4s1MWcbddbuftcu7bunCfd1xImqzlrBJolI40O4BjmCqv0m8nuUmWNBXDE9tw3ySH1RymAYvVY3z0j0APn-ctUT6ZffBi2xS3HVCkG30BMQMesAw.jpg" width="400"><br>
 
 اندی برنهام، نخست‌وزیر بریتانیا، روز چهارشنبه هشتم مهر، اعلام کرد که قرائن و شواهد قوی نشان می‌دهد جمهوری اسلامی ایران در حادثه امنیتی اخیر در نزدیکی پایگاه هوایی «فیرفورد» (RAF Fairford) تحت مدیریت آمریکا نقش داشته است.
 پلیس ضدتروریسم بریتانیا روز یکشنبه پنج جوان ۲۳ تا ۲۵ ساله — که همگی اتباع بریتانیا و ساکن لندن هستند — را به اتهام آماده‌سازی برای اقدام تروریستی دستگیر کرد، اما آنان روز بعد با وثیقه آزاد شدند.
@@ -97,7 +185,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-30 20:40:55
 
-<img src="https://cdn4.telesco.pe/file/scWZhaBY8tTusd_i7x089Jj3eCZed2DgY5k1PPZHnKQQ4eoLrkCtXXTKZRwzuueP1hLWf7xCBB80eLmNDhRdQncEoszbQuuP4cP0treFahzNDukwd9JmYIZ6Icu7sO_ZAXLJ3DqjbyrjGMzam_C3CqvtF7dNGXuNta237poPm9CsEJpD0_4sfz-ynUgZS2OKQbRrHFVmSuqJhx_WowpQsxJ6kRnCr2dZ_H1lZywdmKeWjs96krZXosqQ_U8tOAmpuYWUmfm6ASPwOSpNHAlYnRDWICc7fefFveS8Q3Jp4be8BkukcjCUTiqI85DWUXjriZv6BRhmhqVTZjRLv6XcRg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/mGtFarckMkzHFlJPSPmPSbk4RFQZEQCTR7JwOyFG0lHKAILn2esWOjgZ2fAznrEIfUQ117JoYCQdw5s-EWntkzMS8BnPeay3OHN92YBihV7i0-RBTgWm7UNiqTDFsuelFlGWiWsFakMU-WSKzKhpXjznpdh4-8GGrd5Vlnwwwq2Pgl4Zk9dEtTyHO_1F1HK8PK8YQOhoAUJ_m81X-NZiwhAbahVfYU6W3Ly5fB1VTPovMxwH7gZB4lboSlqBprgEznlqt9fSRxPeF7GfMD7fXDDZGjA8xkvgwCSeHxGWiqTvXSR9f8hGzdA3ag7Kr042wu6g7uopus60SdbK_U3_0w.jpg" width="400"><br>
 
 خبرگزاری تسنیم، وابسته به سپاه، چهارشنبه هشتم مهر گزارش داد صرافی‌های رمزارز معاملات تتر را از ساعت ۲۱ هر شب تا ۹ صبح روز بعد متوقف کرده‌اند.
 بر اساس این گزارش، این محدودیت از امروز ساعت ۲۱ تا یکشنبه ۱۲ مهرماه اعمال می‌شود و سقف خرید روزانه برای هر کاربر دو هزار تتر تعیین شده است.
@@ -117,7 +205,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-30 19:12:45
 
-<img src="https://cdn4.telesco.pe/file/Qs19iR9tQlAm3zoC7rFH1VaEalwKva5SYEpKDenuFsPh_Cfw8Mj6nf0Ra_GjCYZd-SWnYuYjOHrJRl2jdDLnJZSqPSRhjd6PiD4mpzNEV3u9pdixHlhZqnGa1eeMowN019dbKhXC3zJKXL4kiCXscQ1yNjlVlsIZSgA3kuedQKh3Ej1lydFFiWX1YJ86M-KBNvkJmUSRP-M5utH7Dyi-Wt73WrT8EQJ8-jIyaGoWx_r-sR-qyYSII7VllCeGCLzg-5fjwQhFpzWokhU9p7C6nwdvWZnAB7iZdjBtYLVf6WWvKm2eSyh1B77WCvtrxqvVLR4psa0OwoYXiPtYaj7qhg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/R9b_5-DsnfyfRTZE8PyUJovVAdg_U1qdZnyiP41-CtPdo1Wl3ukYWwzacY5_w919an5k9Gg2S7PNvdwyowYUpESUoChBRWa4F-F_E_v2bZDNxzKaW5riYfhoBkNp059clp-wjJtzUC41rIPJC8JM1wcqPkzUXslTc_6is4hlW3N1vVTkFxT1ynwd0gNwduPNFUXimOOm68kzEBddoDhFTpmyOu8lkWRgrHW-44k0GWGY7BiT8_S9-3ZT6Fffur5pRoqFA3a330Ldk_ZXQLJoRom_E5cI6uJpA8Kpb-XyBhQswDUOyxUDw7Zk8REKXnsCFtnZvdO2i2pbv4Mv8m_p0w.jpg" width="400"><br>
 
 نرخ دلار در بازار آزاد تهران امروز از ۲۵۶ هزار تومان گذشت و دادستان تهران به ضابطان قضایی دستور داد با «عوامل اخلال در بازار ارز» برخورد کنند.
 بر پایه داده‌های پایگاه‌های اطلاع‌رسانی طلا و ارز، دلار ۲۵۶ هزار و ۵۰۰ تومان، یورو ۲۹۰ هزار و ۵۰۰ تومان و پوند بریتانیا ۳۳۹ هزار تومان معامله شد.
@@ -137,7 +225,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-30 19:12:23
 
-<img src="https://cdn1.telesco.pe/file/pA8-dvoK8a0UgKEBjLYoaApr5s_C_rfn8YX-pG-nGxF6hOobtIu5hAptRYuhadzLqyLkp-RyKKCZJWdS-3SVBSkvMs0jqRE6YTAEmzBzxz8mWWDhkr-2l24NAgY7aCPBF0KoOnNl792SUny1RWdwHJC1BxKSIxX_dcd3VIStW_bXpb8W0-mxvrF4p0f2wmyZPwX5EA7niNnqxA18gbjoHkXKCRQba3S15ghjEOYW117wfYvkntJzP5uUMHToq9ZfL5GDy9MwsKVXu1ezXtv_ZR1w7MXXvDcdr24r53pHBswNFkJ8lCNJUQPddniFnb_GNUg5qzBdweha9JyAT4Zk3Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nKDzzmA0l8IVJGFZpm9E-XTtKrEoNdRX873Q2oBHojztS1WNHwmkJpxf8JoHwZ_N8FqxVYXFufl5o303a41Titdz_Unuv7mDk4_OX0b7anYjht5Uq5WrvyQUNWtifbSjGB4aTt7ICHuZ1YTJyX10y2LnykKEStrcPvy7CRY3SWRg6eZRtO_LqQPAu3KtBRDGc3zwVDGwwtfABJ6ycCt0zQWtAfxXGMLQucRqJoKMPFOpq64U9TMEl4KbBnlAEhnq5ADNfWDrHRWVCD6DmSeh6XJ-9GBW802ZNLFGAJNDFKSriR8zvDwAyEp16sMiI7LpQVxyVPXF4X1CMG4XvTOodg.jpg" width="400"><br>
 
 در پی فرود اضطراری یک هواپیمای خطوط هوایی «فلای دوبی» از مبدأ دوبی به مقصد تل‌آویو در عربستان سعودی، نخست‌وزیر اسرائیل گفت کمک‌خلبان این هواپیما پس از حمله با چاقو به خلبان دیگر، ظاهراً تلاش کرده بود هواپیما را با سرنشینانش سرنگون کند.
 بنیامین نتانیاهو، در پیامی ویدیویی که روز چهارشنبه هشتم مهر منتشر شد، گفت: «در جریان پرواز، هنگامی که هواپیما به کشور نزدیک می‌شد، یکی از خلبانان به خلبان دیگر حمله کرد و ظاهراً تلاش کرد هواپیما را با همه سرنشینانش سرنگون کند.»
@@ -170,7 +258,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-09-30 19:11:36
 
-<img src="https://cdn4.telesco.pe/file/Q4y-bx8U-Hje-DpONvb5AepwQP9NYOt2m5te_JF0Z92fIP_zJRK_Yn777qtKi686g02fRVZHIddaWlVYg10jDsLipR5sUaLGdepDbN9wbmf6ca5zdsu-rBx4H5q8z6L9m5MkdqhKtRXxJkSUf8VqSEK2RREK-8PA_7sZ0nlTudJjWvm4LgovyouYbBEju2Yln55n199gcq0FJyCuUgCssN_G8-tQoYCOvRRA7u4RXq4lEKjYyLh3v0Tys0XFUlFEc8FNXqeqo9yTq0rYm5_M5lFoCknzQlL3O9LeDbTyBvsoHQn0eOnxML-mzmXYo5QeQAMQPqo70QTpiaJ7Lj9vWA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/JwCkfFMZlLCgW6z4HImBGNZ2DDiCXyQoI_kqctoLHU4kPapwJzlftk4W4CmovjHmfVzxv6Df3IZZAs3O3CVx0qvP6fzG76CVCH8YasjBwNNpCUd1Vezbfpt-F6Pw2d1GX48BABpHwMqSd7EFBZ-C4gTmXmzuW3q0O5qZvRXBxf80fG66g4nU-aHdW2Ms1db9fcwdaF2Yu09Xj4tJCVs9bE7k2CTbckp47uLdsmY5h6_JvDSC2RHeYc-p8Hr7dAoxNteXkjvCmZkvgzArsqTaBNSwpkFiYDEL7jxRRkW70_HgFi-h_-iQncC2CnoSnEYBfd3QMh7R-Q-9uyAeA1kNWg.jpg" width="400"><br>
 
 🔴
 «برای کمک به پدر مجروحش رفت که  هدف گلوله قرار گرفت»
@@ -186,64 +274,6 @@ https://www.iranrights.org/fa/memorial/story/-9241/mohammad-abbaszadeh
 @IranRights
 
 [View Post](https://t.me/VahidOnline/78571)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-30 09:11:14
-
-<img src="https://cdn4.telesco.pe/file/lUDh44MDJfEeswOSlma9kl91vucetKG4xGJt9Bz3041uw5BwVf3rPXthEz7oSmiGcCr4OgE3kacWuYS-GYeQn6a1DbO624IAHxfn70H9TELrNEcuiaOQggJU-3yC5YHNfJUt1fPHk8hJ5naBNYilDpFfnatT99Gw2rBBF2GcN39z5d8YPbaI020tP9IqiWLjZojLLSPRLVEddK5lAP6ejOWk5ow_ud1AT75HRlMgreI8Op3uN_s6dm0P8Q8R_mo9oXvYRAC8Xlnq3yUJcJOp4YKtJtDca1Tnkg9L1FURwz1WFyJiBPewW8oqUy5Qs-rM2FXVi-Rlp6l9UhpxKj8YZg.jpg" width="400"><br>
-
-قوه قضائیه جمهوری اسلامی اعلام کرد دو نفر را که در اعتراض‌های دی‌ماه سال گذشته در مشهد بازداشت شده بودند، بامداد چهارشنبه اعدام کرده است.
-بر پایه اعلام مرکز رسانه قوه قضائیه، علی همتی سیستانیان و مجید نیک‌اندیش پس از تأیید حکم در دیوان عالی کشور اعدام شدند. قوه قضائیه آنان را به دست داشتن در کشته شدن چهار نفر از نیروهای امنیتی در منطقه‌ای در مشهد متهم کرده بود.
-در ادعای قوه قضائیه آمده است دو متهم در بازجویی و در دادگاه به حمله به یک فروشگاه زنجیره‌ای، آتش زدن آن با کوکتل مولوتف، آتش زدن یک بانک و تخریب اموال عمومی اعتراف کرده‌اند.
-هیچ اطلاعاتی درباره روند دادرسی، دسترسی متهمان به وکیل انتخابی یا شرایط اخذ اعترافات منتشر نشده است. اعترافات تلویزیونی در پرونده‌های امنیتی جمهوری اسلامی بارها از سوی نهادهای حقوق بشری به اخذ تحت فشار متهم شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78570)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-29 21:54:02
-
-<img src="https://cdn1.telesco.pe/file/LuEjxiRdUJFhmv6RRBXchnH4R_NM7SqfrmqSbXP7TVQz9b5XSmQaQlk93VTcGUHR2dioAdLfu-fNjnuHXSyYruqDHAbciPWC-0-gavrGIhPH1MYUpd7kp2y6W3qYqZ9VSwIfziC-B3csZYwE4vhmPP7ra2Dzg8A8QEqJGh9psuqSroVWw8bdHMJSQgVaUlKXYVElFEw8EAQ0pLF6iOymaNDXvUQ25Ee-Vc7sGwrkSf75m7_DmCtN8QAc8M6WJaFqUKSmle0uWMAgkn4s9ZzEylnPqZL4FlY69agB9uiKtQL4o1EHMzBuiOYecNzPDKYNIe3xnKIBRKu4EPX2BoKHlw.jpg" width="400"><br>
-
-محسن رضایی، دبیر "شورای عالی امنیت ملی"، در دیدار با شاهین مصطفی‌اف، معاون نخست‌وزیر جمهوری آذربایجان، با تکرار مواضع دیگر مقام‌های جمهوری اسلامی گفت: «ترامپ در باتلاقی گرفتار شده که نه می‌تواند مذاکره کند و نه می‌تواند بجنگد.»
-او افزود: «شروط ایران به آمریکا اعلام شده، اما ترامپ قادر به تصمیم‌گیری نیست و آمریکا از سر استیصال در جنگ نظامی به محاصره هوایی روی آورده است.»
-رضایی ادامه داد: «آمریکا آینده‌ای در منطقه ندارد و ایران با قدرت در مقابل آن ایستاده است.»
-@
-VahidOOnLine
-ساعاتی پیش از این عباس عراقچی در آستانه بازگشت از نیویورک به تهران گفته بود که ماموریتش در این سفر این بود که شروط ایران از جمله درباره بازگشایی تنگه هرمز را به اطلاع ایالات متحده برساند.
-وزیر خارجه در جمهوری اسلامی گفته بود که «ایران در این خصوص طرح دارد، شروطش، کاملا عادلانه و منطقی است و اگر آمریکایی‌ها ادعا دارند که دنبال توافق هستند یا دنبال یک راه حل مسالمت‌آمیز هستند، ما این راه حل را معرفی کردیم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78568)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-29 19:37:11
-
-
-
-ترامپ، ترجمه ماشین:
-و ایران سلاح هسته‌ای نخواهد داشت. آنها به‌شدت در حال شکست خوردن هستند؛ خیلی بد، خیلی بد. این وضعیت خیلی زود تمام خواهد شد؛ خیلی، خیلی زود. آنها سلاح هسته‌ای نخواهند داشت و قیمت نفت هم به‌شدت پایین خواهد آمد، درست مثل قبل.
-من مجبور شدم آن سفر کوتاه را به جمهوری اسلامی ایران انجام بدهم؛ سفر بسیار خوبی بود.
-فکر می‌کنم در سال‌های آینده درباره این موضوع کتاب خواهند نوشت و تاریخ کشورمان را خواهند نوشت و خواهند گفت که این یکی از مهم‌ترین کارهایی بود که انجام دادیم. در واقع، این یکی از مهم‌ترین کارهایی است که در دوره دولت من انجام داده‌ایم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78567)
 
 ---
 
