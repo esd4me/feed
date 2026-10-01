@@ -3,8 +3,45 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-01 02:50:07 </h5>
+<h5> 🟢 Updated at: 2026-10-01 06:43:24 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-01 06:18:52
+
+<img src="https://cdn1.telesco.pe/file/V2TdN4wlqGD5gASYzU7kAeIDW79SmKpL2VyArvPYc9MTmzh7ab5gFv3USuE2PsUeqtkmNbE3WbCT_Fhb2LUzlBahmCF4G99M034MjpKccoueeWDJorBj4zmcv1ZSXd8mTfKsjwBbSU4LMfojBzu7ow0yi6KIIKn4kaXkHur4ewXpNepsVwQZnJom4_ziZcW7-JhpmH4TM_wBg6UKXrQjrjTfC1tVvuxH7bxDBNXwp2w8kkqdjj7GkgzCSFKJpqclJPMzYUZFwOaeHNVLDhq4rr9dChcUrmdCgUsOvG1vlWPS15Gpaxc-ZTE1gbT8h9YO3GCFyXh56LlhYcX_PvPi3Q.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه شب، گزارش نیویورک‌پست از اظهارات اسکات بسنت، وزیر خزانه‌داری آمریکا را منتشر کرد که گفته است اقتصاد جمهوری اسلامی ایران، «ظرف دو هفته» هیچ‌چیزی برای تجارت نخواهد داشت.
+محاصره دریایی بنادر ایران مانع آن شده است که جمهوری اسلامی از طریق دریا بتواند نفتی صادر کند. دلار آمریکا نیز در روزهای اخیر با سقوط خیره کننده ریال جمهوری اسلامی، رکوردهای تازه‌ای زده است.
+آقای بسنت به فاکس‌نیوز گفت اقتصاد تحت محاصره جمهوری اسلامی ایران به‌زودی و پس از تحویل آخرین محموله‌های نفتی خود، در حدود دو هفته دیگر «چیزی برای مبادله» نخواهد داشت.
+به نوشته نیویورک پست، بسنت در مصاحبه با فاکس‌نیوز ارزیابی کرد که جمهوری اسلامی به دلیل فروپاشی اقتصاد خود که با اجرای «عملیات طرد اقتصادی» شتاب گرفته، از روی درماندگی به‌شدت مشتاق توافق است و هشدار داد که مشکلات آن طی دو هفته آینده به شکل چشمگیری وخیم‌تر خواهد شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78587)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-01 06:18:35
+
+<img src="https://cdn4.telesco.pe/file/jddxfCJ7HyPCBqyV8_PHNMqprZ2gbkryLhaSLEkle2jLSke5wXmF0SaTNJwBdNugrRbZ5wvrUZDw5pgMd2Ad334TCtBNvvA5C8PbN7NzmUrsnjgjpDsagmkLnvb1_BSmuCXrhgg9_xlRkq1ZdSZ3n_PX3UKATgLrZcWxitV3Iv7VlUqy3jO2r5epFagthCXEz2uo1Q1ktc0IgSBz781P2nsFVBI0CuVA6wrvJS75zNdrvmnaOVR1ruZXaT8FHU52XRH3_JlFrLsto40KU4GOna5krvJZhhhGxyEtQgZUaaRWjXjPobCCHrIsY1_GXSOiCQ4lRRPqEwkp8MbS7wbW_Q.jpg" width="400"><br>
+
+به گزارش آکسیوس به نقل از یک مقام آگاه، مارکو روبیو، وزیر امور خارجه ایالات متحده، روز دوشنبه ششم مهر پس از به بن‌بست رسیدن مذاکرات با جمهوری اسلامی ایران، دستور داد هیات ایرانی حاضر در مجمع عمومی سازمان ملل، از جمله عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، فورا آمریکا را ترک کند.
+یکی از مقام‌های آمریکایی به آکسیوس گفت: «روبیو هیات ایرانی را که بیش از حد مهمان مانده بود، بیرون کرد. مجمع عمومی سازمان ملل تمام شده بود و وقت آن بود که بروند.» بر اساس این گزارش، نمایندگی آمریکا در سازمان ملل دوشنبه شب به نمایندگی جمهوری اسلامی ایران اطلاع داد که هیات ایرانی باید فورا نیویورک را ترک کند.
+آکسیوس نوشت عراقچی و اعضای هیات چند ساعت بعد راهی فرودگاه شدند و بامداد سه‌شنبه با پروازی از نیویورک به دوحه رفتند. منبع دوم نیز درخواست آمریکا برای خروج هیات را تایید کرد، اما گفت عراقچی از پیش قرار بود دوشنبه‌شب برای بازگشت به تهران حرکت کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78586)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-01 00:54:56
@@ -207,45 +244,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78567)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-29 19:36:26
-
-<img src="https://cdn1.telesco.pe/file/bUeS7R3BnEeDaxvg6LHmA1CvZFMtPg39SsOio1mSzx_2FPupOsrk73kSsrGMEioYdWg1gLEJWOLZtbI8x2-agmKpwF0eJY9sCtdmGR0JMjH3xt4A3RBjm7IrM93ucuOyPLgVE-eVn23n44vyXGg4CAYoAg-4FYsydgACxMlZwSUxPzFoJPLVeBBCbt9MN8_IRQ_bac8DeAGDnqWUYuTlj1TmIOr3Jy35W0AUHILmhFUAPz7LxLgRqucTOC2g2G7nBTZf_zPwQn3LMvjrkIrDHwr_HhtEHDOPfdwgcCtDYlyK-psbPt373h2O1H0c72Yumy5kbryC5xuFwKRZmTj46Q.jpg" width="400"><br>
-
-ونس: ایران با نقض تفاهم‌نامه اسلام‌آباد مرتکب اشتباه شد
-جی‌دی ونس، معاون رییس‌جمهوری ایالات متحده، در مصاحبه با وینسنت کُگلیانیز، پادکست‌ساز و روزنامه‌نگار محافظه‌کار آمریکایی، مقام‌های جمهوری اسلامی را مسئول فروپاشی تفاهم‌نامه اسلام‌آباد معرفی کرد و گفت آن‌ها با هدف قرار دادن کشتی‌های تجاری در آب‌های منطقه مرتکب اشتباه شدند.
-ونس افزود: «فکر می‌کنم ایرانی‌ها متوجه شده‌اند که اشتباه کردند. آن‌ها با ما توافقی امضا کردند، آتش‌بس برقرار شد، قیمت انرژی کاهش یافت و این امکان وجود داشت که اگر ایرانی‌ها به تعهدات خود عمل می‌کردند، از بهبود روابط با آمریکا منافع زیادی به دست آورند.»
-او همچنین به ابهام‌ها درباره وضعیت مجتبی خامنه‌ای، رهبر جمهوری اسلامی، اشاره کرد و گفت واشینگتن با قطعیت نمی‌داند که او زنده است یا نه، اما شواهد موجود نشان می‌دهد که همچنان در قید حیات است.
-ونس ادامه داد: «ما فکر می‌کنیم او زنده است. البته با قطعیت نمی‌دانیم. من هرگز او را ندیده‌ام. اخیرا هم تصویری از او در مقابل دوربین ندیده‌ام.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78566)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-29 17:31:22
-
-<img src="https://cdn1.telesco.pe/file/q8Z2YPMIhhMsSFG6mSDwQHdTVgR9AXebHOxEkLbGwBqU0BKpAYC6_15yKnt66QqRidNwJFD72_sj_1A9h-RnkceK4LPJA7J38xEhEIvbMC_kG2cP9B4L-h6O2IEk3AHjFlOOP0gr9kqunv15rNnu06YrcL5BlwrDzKa_CO1eOJT-_UCiVU4tjU8jcpAr2i_hd_ec3NA5NO4Ie4qygqYIXFRelfn8JPlijboMeu5l_Bkl3YgxCDkaP1t2Fx5-MlrzTe7tWtRZiB3Y8wWQYMDOENyO_1Xou0rMyVK8MnL-NJRsU96jnbb5UCf6OmlG-u1nNMh25Lc8yYgxt5Z_4u1xZA.jpg" width="400"><br>
-
-نرخ دلار در بازار آزاد تهران امروز از ۲۵۳ هزار تومان گذشت و رکورد تازه‌ای ثبت کرد.
-بر پایه داده‌های پایگاه‌های اطلاع‌رسانی طلا و ارز، دلار در ساعت ۱۴ و ۳۰ دقیقه به وقت تهران ۲۵۳ هزار و ۱۰۰ تومان، پوند بریتانیا ۳۳۵ هزار تومان و یورو ۲۸۷ هزار و ۵۰۰ تومان معامله شد. سکه تمام امامی ۲۴۹ میلیون و ۵۰۰ هزار تومان، نیم‌سکه ۱۲۸ میلیون تومان و ربع‌سکه ۶۸ میلیون و ۵۰۰ هزار تومان قیمت خورد.
-دلار دیروز ۲۴۴ هزار تومان بود، یعنی در یک روز بیش از ۹ هزار تومان گران شده است. نرخ ارز سه‌شنبه گذشته حدود ۲۳۳ هزار تومان بود و در یک هفته ۲۰ هزار تومان بالا رفته است.
-دلار در ششم مهر سال گذشته ۱۱۱ هزار تومان بود. بهای ارز آمریکا در یک سال ۱۲۸ درصد بالا رفته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78565)
 
 ---
 
