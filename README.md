@@ -3,8 +3,129 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-02 11:15:25 </h5>
+<h5> 🟢 Updated at: 2026-10-02 17:49:12 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-02 17:22:53
+
+
+
+دونالد ترامپ، رئیس جمهوری آمریکا، شامگاه پنجشنبه نهم مهر ماه، ویدیویی در شبکه اجتماعی تروث سوشال منتشر کرد که حضور گسترده معترضان در جریان اعتراضات سراسری
+دی ماه
+در ایران را نشان می‌دهد.
+در این ویدیو، معترضان شعار می‌دهند: «امسال سال خونه، سیدعلی سرنگونه»
+realDonaldTrump
+این ویدیو رو ۳۱ دسامبر ۲۰۲۵ ده‌ها اکانت عربی و اکانت‌های مرتبط به یک سازمان سیاسی خارج از کشور منتشر کرده بودند و گویا بیشترین توجه رو هم در اکانت این مسئول اسرائیلی گرفته بود که بارها ویدیوهایی با شرح اشتباه هم منتشر کرده:
+GadbanWaleed
+اون روزها خودم هم کلی ویدیوی مهم از شهرهای مختلف ایران منتشر کرده بودم ولی به درستی تاریخ این یکی شک داشتم که مربوط به اعتراض‌های ۱۴۰۱ باشه و نگذاشته بودمش. به ویژه اینکه منبع اولیه‌اش اکانت‌هایی بودند که همیشه کلی ویدیوی قدیمی رو هم با شرح نادرست بین ویدیوهای روز منتشر می‌کنند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78599)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-02 16:37:22
+
+
+
+🔻
+معمای «تیم شش‌نفره» در حکومت ایران
+مسعود پزشکیان اخیرا به «تیمی شش‌نفره» در حکومت ایران اشاره کرد که در مورد بحران جاری با آمریکا «اختیار دارند تصمیم بگیرند و تصمیمات با هماهنگی آنها اجرا می‌شود». به دنبال انتشار این اظهارات در مصاحبه با سی‌بی‌اس، رسانه‌های رسمی ایران روایت‌هایی را از ترکیب تیم شش‌نفره منتشر کرده‌اند که عمدتا در مورد پنج نفر مشابه و در مورد نفر ششم متفاوت بوده‌اند. بخش ثابت روایت‌ها اغلب بر رئیس‌جمهور، رئیس مجلس، دبیر شورای عالی امنیت ملی، رئیس ستاد کل نیروهای مسلح و فرمانده کل سپاه تمرکز داشته، هرچند نفر ششم را برخی رئیس قوه قضاییه و برخی وزیر خارجه دانسته‌اند.
+اشاره مسعود پزشکیان به وجود این تیم، البته اهمیت داشت، ولی این اشاره نه اولین بار بود که صورت می‌گرفت و نه نشانه تحولی کلیدی در ساختار تصمیم‌گیری کلان، یا مثلا ایجاد نهادی با اهمیتی مشابه شورای عالی امنیت ملی بود.
+در تیرماه گذشته، عباس عراقچی در مصاحبه‌ای با برنامه یوتیوبی «ماجرای جنگ» گفته بود چارچوب مذاکرات با آمریکا در شورایی تعیین می‌شود که به «کمیته شش‌نفره» معروف است. توضیحات او اما نشان می‌داد که جایگاه این کمیته پایین‌تر از شعام ـ شورای عالی امنیت ملی ـ و در حد یکی از کارگروه‌های داخلی آن است. عباس عراقچی در گفتگوی خود، مشخصا از کمیته‌ای «در داخل دبیرخانه» شعام سخن گفت که ابتدا «کمیته هسته‌ای» و سپس «کمیته مذاکره» نام گرفته و در نهایت به «کمیته شش‌نفره» معروف شده است. مطابق اظهارات او، این کمیته از مدت‌ها قبل از جنگ چهل‌روزه فعال بوده و در زمان‌های دبیری علی شمخانی و سپس علی لاریجانی در شعام، به‌ترتیب تحت مسئولیت این دو نفر فعالیت می‌کرده است.
+البته روایت عباس عراقچی از قرار داشتن این کمیته زیر مسئولیت دبیر شورا، این ابهام را ایجاد می‌کرد که آیا ریاست آن، مانند شعام، با رئیس‌جمهور است یا اینکه سخن از جمعی شش‌نفره است که رئیس‌جمهور را شامل نمی‌شود، ولی جمع‌بندی‌های خود را به رئیس دولت ارائه می‌کند.
+در هر صورت، عباس عراقچی تاکید داشت که تصمیم‌های کمیته باید «عینا مانند مصوبات شورای عالی می‌رفت، تایید می‌شد و بعد ابلاغ می‌شد»، که اشاره‌ای به لزوم تایید مصوبات از سوی رهبر جمهوری اسلامی به نظر می‌رسید. او همچنین، به این سوال که آیا تصویب آتش‌بس (موقت) در پایان جنگ چهل‌روزه «با نظر آقا مجتبی» بود یا نه، پاسخ مثبت داد، هرچند در مورد شیوه تصویب گفت: «ارتباط ما با کسانی بود که رابط بودند و مسائل از آن طریق منتقل شد.»
+قابل تامل است که مسعود پزشکیان، که در مرداد ماه از دو نوبت دیدار با رهبر جدید جمهوری اسلامی خبر داده بود، در مصاحبه‌هایش در سفر آمریکا هم به همان دو مرتبه ملاقات خود با رهبر اشاره کرد، که نشان می‌داد دیدار جدیدی با مقام اول حکومت نداشته است.
+به عبارت دیگر، با گذشت هفت ماه از رهبری مجتبی خامنه‌ای، ارتباط تیم‌های حکومتی با رهبر کماکان به حلقه «رابط» اتکا دارد که، در مورد آن حدس‌های متنوعی مطرح شده است. از جمله، گمانه‌زنی‌هایی که حسین طائب رئیس جدید سازمان بسیج را از افراد موثر این حلقه می‌دانند.
+🔹
+ادامه  مقاله در لینک زیر در دسترس است:
+https://www.bbc.com/persian/articles/cr9dw7dvjxj1o
+@HosseinBastaniChannel
+
+[View Post](https://t.me/VahidOnline/78598)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-02 16:36:34
+
+<img src="https://cdn4.telesco.pe/file/O8sHE_d06Gqu26_r3EoQG_Zp0P-zHiyatVKVMdlmeSrT2Pqa3kzEALRRSTZdU8mL2yYddfmGBMbKGwj5Lk1bILJjCMG8G1BGiwaEvxKRk8O2gXDi8FzlTAcQzHMIponl02ZvKyNqIX9RAt9TE0Ey01xIYCSaDbLRTkytMDuiPySZnSjOr1nRWy3zBhRbdMD3rbeXSwlJSWSDq-c1vIu83hmVncvmWc3BzyN4fAr7VnAYyrV7lH7G2Q3ycEOx_ZnKysn5zgAfp5B1VTTRLpz7i8erpXPUoJMSs1sOP1t1tYf5wwBbkvsDTuF-NTXwZww7jmycXh5IzLfhUU6ozARGBg.jpg" width="400"><br>
+
+وزیر خزانه‌داری آمریکا می‌گوید ایران در ماه سپتامبر حتی یک محمولهٔ نفت خام هم بارگیری نکرده است. داده‌های شرکت‌های ردیابی نفتکش‌ها نیز نشان می‌دهد در این ماه هیچ بارگیری نفت خامی از بنادر ایران ثبت نشده است.
+اسکات بسنت شامگاه پنج‌شنبه، نهم مهر، در شبکهٔ اجتماعی ایکس نوشت: «ایران در ماه سپتامبر صفر بشکه نفت خام روی نفتکش‌ها بارگیری کرد» و افزود دولت دونالد ترامپ در حال قطع «حیاتی‌ترین منبع درآمدی» جمهوری اسلامی است.
+داده‌های اولیهٔ ردیابی نفتکش‌ها که بلومبرگ منتشر کرده و همچنین اطلاعات شرکت‌های کپلر و ورتکسا نشان می‌دهد در سراسر ماه سپتامبر هیچ بارگیری نفت خامی از بنادر ایران ثبت نشده است.
+این در حالی است که برآورد کپلر و ورتکسا از بارگیری نفت خام و میعانات ایران در ماه اوت حدود ۲۲۰ تا ۲۵۵ هزار بشکه در روز بود.
+ایران همچنان مقداری نفت را که پیشتر بارگیری و در آب‌های آسیا ذخیره شده بود به خریداران چینی تحویل می‌دهد، اما این ذخایر بدون خروج محموله‌های تازه از ایران رو به کاهش است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78597)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-02 16:36:03
+
+<img src="https://cdn4.telesco.pe/file/TRsX5VG4271uuYpczw9XKdTp11T-LxhDLT1YGN0F7dCE_xsQz-yCEAfkQQ2eQldaIUuJ6IqoTmQCQxBRLlMWPa9CB30eYoOG4B7xYPGmXVbGDwFLRo5a70M2KgesvDVvfVmGCj_PwCQ9CgzrWnfcrb1UvyBfiwLJaNw3gCvpEqK3DszNTfiCfQNVl0LqmiSrYa7hBMpdSudncBWbKVCAkihJTXPJe_QVrNOqiYOY4mH3T0QGFX3ZfiwiGl0fm7p6PqK_RLZNqeIXR6R_cvQquzSxe_7mJ04j6wPUBiu_z3QC373FClvTeFQ3VzrMwp4M2rCZxhQ63Pc3UcwmId0oJw.jpg" width="400"><br>
+
+خبرگزاری تسنیم، روز جمعه دهم مهر ماه، از وقوع درگیری مسلحانه میان سپاه پاسداران و اعضای «یک گروه تروریستی» در یکی از روستاهای شهرستان راسک در جنوب سیستان و بلوچستان خبر داد.
+تسنیم با اعلام این خبر افزود نیروهای سپاه «در حال پاکسازی منطقه و بررسی وضعیت» هستند.
+همزمان خبرگزاری حکومتی فارس نیز از آغاز «اقدام عملیاتی» سپاه پاسداران از صبح جمعه در راسک خبر داده است.
+این خبر در حالی منتشر می‌شود که روز پنجشنبه نیز قرارگاه قدس نیروی زمینی سپاه با انتشار ویدیویی از یک درگیری مسلحانه، از کشته شدن ۶ عضو یک «گروهک تروریستی تکفیری» در منطقه منزل‌آب زاهدان خبر داده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78596)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-02 16:35:29
+
+<img src="https://cdn4.telesco.pe/file/jw-KyXTaM_Z8hpxLdG9_X3OaHkLvZXn1up-yUOQ7gM8ogaAuuFm7C2RHTfCFYC4mDyrEQvYqxUwYPuTk-RHe_2cm1xkFZ6_ysWVsIPwtkwfMGfeS5P_1vc9MggSokPl_NunhbT3yyv3UW33q7svaN0YYSsUzyyONf7ySJCd5OJSCt1W22hv4H6Jw-3pQUQoQ80-k9ATs_cWf1PmBwZaITI31o5M0pHOz1gw8GbktfSl1Hq83GR0rt5VDqA1koVCLybr5lexPX60TUoOArK38OdBJS7Lhj6gDb3y1AmcwGMmQf4U0OJKY7cmkt6pAJ_nu4Tntktk7IdcrEQuuRGRURQ.jpg" width="400"><br>
+
+دونالد ترامپ در دو اظهارنظر تازه دربارهٔ ایران هشدار داد اگر مشخص شود تهران در حادثهٔ پرواز فلای‌دبی به مقصد اسرائیل دست داشته، «به‌شدت هدف قرار خواهد گرفت» و ساعاتی بعد بار دیگر گفت به اعتقاد او ایران «در آستانهٔ تسلیم‌شدن» است.
+این اظهارات همزمان با ادامهٔ تحقیقات امارات متحده عربی دربارهٔ احتمال تروریستی بودن حادثهٔ پرواز فلای‌دبی و گزارش‌ها دربارهٔ تقویت حضور نظامی آمریکا در منطقه مطرح شده است.
+رئیس‌جمهور آمریکا شامگاه پنج‌شنبه، نهم مهر، به وقت ایران، در پاسخ به پرسش خبرنگاران در کاخ سفید دربارهٔ احتمال ارتباط ایران با کمک‌خلبانی که به خلبان پرواز دبی به تل‌آویو حمله کرد، گفت: «بر اساس آن‌چه می‌شنوم، می‌گویم پاسخ مثبت است، اما همین حالا در حال بررسی آن هستیم.»
+تاکنون هیچ مدرک علنی دربارهٔ ارتباط ایران با این حادثه منتشر نشده و تحقیقات دربارهٔ انگیزهٔ کمک‌خلبان ادامه دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78595)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-02 16:34:47
+
+<img src="https://cdn4.telesco.pe/file/jEs81iKO8BDB4zxL6akjPHjF5KpgJicQhVnaoUkZmt25VG0DGZC0i1Cbjk89GJ2qMbBdQZiwdlV9tqNagWdryxtT-0fauZ_JaTUH_XdIp9YIZjkEjvJOZQ5MuVE2XslviifiSdf4XfLKzGrjYdoUsC7ZryM0CsaG3E1NEYB5njC_K9qBINQNwyradzf86ZwL4nHB5znclMkQG5QmD9i0ijutaaotpsniHdJVRnUczHZ64ePusmIcLak0WbKv0HdMqpzsAQK2JBC9BupvMi32Fia_-lwbAsPwZHmoNRIpejui5EE9Irf6m43U5BOSjTkA_VMPEIrzFQGv7frBIERHGQ.jpg" width="400"><br>
+
+سه شهروند اهل کرمانشاه، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در شعبه ۲۳ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده‌اند.
+بر اساس اطلاعاتی که به سازمان حقوق بشر هانا رسیده، سیروان شعبانی، ۲۵ ساله، هنرمند و نوازنده و سرپرست یک ارکستر پاپ و سنتی، خسرو محمدی‌نیا و مسعود توشمالانی هم‌اکنون در زندان قزلحصار کرج نگهداری می‌شوند.
+هانا گزارش داده است که این سه نفر روز ۱۹ دی ۱۴۰۴، هم‌زمان با اعتراضات در اسلامشهر، از سوی نیروهای امنیتی بازداشت شدند و پس از آن مدتی در سلول انفرادی نگهداری شدند. بر اساس این گزارش، آنها پس از ماه‌ها نگهداری در شرایط انفرادی و آنچه هانا «اخذ اعترافات اجباری» خوانده، به زندان قزلحصار منتقل شده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78594)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-01 23:52:25
@@ -43,7 +164,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-10-01 17:53:32
 
-<img src="https://cdn1.telesco.pe/file/llz3JOxKP-5wl9UMk7YIHtZcaGex1NDusu19Fn6djEnjyfSihmdU4b4ywqDSqFSrz64Dy6tQRmRzU0-NKg2p8OvIEJJTe2hYNQayc8c2qW01G4WrPdZ9IZhVw2M21PQcvnav6LhsoM3fQvr9GjlDYuAPhb4ifoylPh-MjlFts9drpBgwN9BZJzjd89LqJiTMnJcSpUAlvdzWnDinPSqPWFhN0x0ng_l0V1SY0RQfJbChPIZBJWUWvkJDLLP2HW0CchXopr3MPokx3cZtsQHqAr-g5d8owLUWC4ai5MHDmPtMcmAgsFIaBCv0HzMfbdw-pvnkVEe-LAbssJJNU8hMGw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/CrtRsN5A5Y7oLuerAgqJ7TpB4qo1zH7SnQASq75L6hL_jMf6v6sLkC-v5iJ9gdINWSLREjjA9sLl8v1UB4qF5mH-2XWM1uBV_j7IUb7N_uxE9M3UbxGI-et7nEkUmPQ6UgJSMt2xtfBFWZcml9iMx0awU2PHwJawsBGktoqLXM7xAYungjliAziPN5J3_NU-jupE6Bo3C7gbHgJH1pI8j8p86hZC-bYfZV8dPVz6mYdw1sYJbFOJtF6kl6DZcmjO40uGyoIpxINbMSIN29MY9VIBn10vBNyXeCxlsWUuBU6BYjb_bIH5_aaDtzryW25Wz7zXULrkc5X3EiqvCvq-JQ.jpg" width="400"><br>
 
 رئیس جمهوری آمریکا، در مصاحبه‌ای مفصل با مجله تایم گفت پیشنهاد اخیر جمهوری اسلامی برای پایان دادن به درگیری‌ها و بازگشایی تنگه هرمز را به دلیل «ناکافی» بودن آن رد کرده است، و افزود احتمال تشدید حملات نظامی آمریکا علیه جمهوری اسلامی را منتفی نمی‌داند. این مصاحبه ۶ مهر در کاخ سفید انجام و روز پنجشنبه ۹ مهر منتشر شد.
 دونالد ترامپ در پاسخ به این پرسش که چرا درگیری نظامی با جمهوری اسلامی بر خلاف برآورد اولیه او وارد هفتمین ماه شده است، گفت پس از حمله بمب‌افکن‌های بی-۲ به تاسیسات هسته‌ای می‌توانست عملیات را متوقف کند، اما تصمیم گرفت «فراتر» برود تا حکومت ایران نتواند توانایی‌های خود را «به شکلی متفاوت» بازسازی کند.
@@ -71,7 +192,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-01 17:45:57
 
-<img src="https://cdn4.telesco.pe/file/HVffiMRqr8tKXKDmfYdboQieWghQ8nhvF0BXUslxItG3S1EvtidRC74q3X7ptWy--p-mVTpKG0oxgu3SL3i5rX-3m-D3vQbMVSX33nlUxQiEOhJL8YUvlITrcQSR9ZHcc6fNBtq3tAMuD4LxJdxP10DH_JG8y34MWZvFBL_GkyocGJKO2_EjOdiU1ZKx8nik0cb1YmycjOEyPl1sbWMGXU1wpaxBExgYUtexrItUd7kmofYPeNPgsaZnbLKvbkURprTBVvo6aZo6Kbg_ystVDPl-HjHekbUKA8IqcONAgmNv46PbKLPM7MIVbI2c4_yrLWlV8JSXht4ICT4ArnSJzw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/r5P2UiCZ6tOupK5iqUIuoT5rjOl50x89rYM7jXIiZerD3QbUySoyvL51B4RFdPjD6WLrmPugjnP6Q5zOjMLvZ7Yz8UBgAyRBzTjLVSWvZhEpxmTP3tw7KxnW2jZp70S4wdB6BezR5HYUOB_WyxqJar2-Vpcz0s1f0elzd2G_cfpUfS9ErcJiJxTF2zPiL2sj3-96L7Nvjhjc5b_h75xGjFD4eWoSd0Q9l8yQTV3FIZ_pR7A5sbbLWetQau8me77MAylMnHtzeJzm5uNzTsQ6Olpe61dlewP4Qsg2ZSDDrJ43rZ6K2VqHGLBH4SRi4xQIxQAyGV0CexWNt6iwymg36g.jpg" width="400"><br>
 
 نرخ دلار در بازار آزاد ایران روز پنج‌شنبه با افزایشی حدود ۱.۵ درصدی نسبت به روز گذشته به ۲۵۸ هزار و ۹۰۰ تومان اوج گرفت.
 دلار آمریکا در مقابل ریال ایران طی یک هفته گذشته بیش از ۱۰ درصد، طی یک ماه گذشته بیش از ۲۰ درصد و از زمان آغاز جنگ حدود ۶۴ درصد جهش داشته است.
@@ -90,7 +211,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-01 17:44:32
 
-<img src="https://cdn1.telesco.pe/file/HN3fBCNqU_hvEJe72teRuB-Aunwu-ZaWG1Y8kUtyKg_xvuFUm83Exj8dCEH0BRphB-I1_8kF9o1v4F9wlTO59PtozEFvPDuf1_VTlTsxxORL-SHkGthTB0Kv4phmYE6tttRS4BIDKf1kEVJkW25ymXiXMcV5dNtD-w0a3xAys1W3TeeHe4Is-0W-aYv87hkh6sbj1mNrm4597kGRNab4xVmzav7qysPW3o3yJhlRsARW66N_2goJxBiHgTVfn8Oa9t01vFXjhfK_Iw6WSj-alSQRUNjK65svBkS7ut7Q_sl2kIY8sLCmLTeax4fnxx8RwLwp_lhUpjynzImLkxj6-w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IV0f0orXLfSJ0MQ8YeqtX0t5N446Lus9AxIEANN-qhv7y4RU_xCHpNxE_f7RBw9UP-e3PSTqrlybwsw7q9l1sA7g_xMmjzyvf6hJFAWa1nGsIFjB3ObYwceV_2dcm5bwMj7el_U-BhURcYaCY1lM1oA0eWbbHvEnZRkZbAIoW_txI5VDBqZUfIKQdRpcF-CirTzaF4sMUAkpC2ZQEvj7i44A-nhvZdOOmi4VXp4wQfIktfQPirXwq1b0UAMuuTqKnESprYY3xUISRhJMzhc3UOxS8fjiyiea3YkImL9aU8O5mg_mX1b6k80oJq9UoKwgn3pflRgZRgbJiNLhgjXJ9g.jpg" width="400"><br>
 
 «فرزانه فصیحی»، دونده المپیکی ایران، در واکنش به اظهارات تازه «احسان حدادی»، رییس فدراسیون دوومیدانی جمهوری اسلامی، او را «بدنام‌ترین ورزشکار تاریخ ایران» خواند و نوشت که ورزشکاران جوان باید او را «عبرت» قرار دهند، نه الگو.
 فرزانه فصیحی در متنی که در صفحه اینستاگرام خود منتشر کرد، خطاب به احسان حدادی نوشت: «در جهان موازی تو باید پشت میله‌های زندان می‌بودی و از هیچ حق شهروندی برخوردار نمی‌شدی، ولی چه کنیم که اینجا سرنوشت صدها و هزاران جوان پاک و معصوم رو هم سپردن دستت و حالا فاز نصیحت برداشتی.»
@@ -112,7 +233,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-01 17:41:22
 
-<img src="https://cdn1.telesco.pe/file/GzTJrZnVmCcbf7lz_bS95mdK-n1C1_oU8Eo4ligHmIhbGqLZb084rFM60lScA7H361dbNOTzipXM40dcH0NRrOjK4zGDU7uF-BTSYMB2AR-Fn0hMwkRxQgSwa-zVbdDFKAVmG_RN03E8p1DYNkm3CHZgsicb4-yvlVc1beCVDzoMtKvWBoQUu1aLVjbUXCEvXVv8bp2zUJCUdm4lCTmpd3QhOedOe5TfBd8vGtlTvwr8Z72JxyzLKweBXrXIWjxuaCmWzDbShFdSRln4OuQedqm-Non6mHjOlFMAD_-0ZjYk4EXFgHvDTxt1a59wQBElZ1im8Yg_s8Ir8P0Ou__aAw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nJVpEUSakNK6Uv8G4FSCBclEWp5NFZK1krBBIU7l7Gbrpe93SLM3ew-KOz-oJUof3jkjV083WzTKXv8NOqFTDY6OCfOdlEE79tm1qqgJHQ0BTbXtOBsj3ETeu6GObqFeR60DDJlVBTNpAJwcuBOyUenBUVnB6XT0YSRpdz4rB5LR_B5cKDYWWuf1qsxHKwdHQwRklps27RafKprMZoKp9sSTGjIpaAAr3WPz81KqeowqmbctIikufP8BRT5bW8lhTBqCJSuAr68TDJlg4YBUhAVZJGO2Trt7fztr-Ry0rPwksMp4FPX3f3IZNVyqlosnrgwn0YARMxeDfmeWPElYSA.jpg" width="400"><br>
 
 ایمان صادقی، بلاگر ۲۰ ساله و از بازداشت‌شدگان [اعتراضات دی ماه] در کاشان، به بیش از ۱۳ سال حبس تعزیری محکوم شده است.
 او بابت اتهام «تبلیغ علیه نظام» به هفت ماه و ۱۶ روز حبس و بابت اتهام «انتشار محتوای مجرمانه برخلاف امنیت کشور» به ۱۲ سال و شش ماه و یک روز حبس تعزیری محکوم شده است.
@@ -150,7 +271,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-01 06:18:35
 
-<img src="https://cdn4.telesco.pe/file/l2LW-ZaQgcRxNm59_Xw4z7z5Xx1tROc78yyVQKKcmYJKFCrn3GXW3xA77wG8kartvQQQemy7br_ptjFsn7llMc_68QWAvFajRJYXUxCbAkx9bh8VlEbXjp1QSmvFktUt-j5bYtJVoNuG4TkUvmNBOW0NkJiSJGZWzbenOfi9jBuz1yoZM2as6VF40ZxkrHZqDYgXdXZq_okxf6_7yniN5nosXqJe4QpKmd51ulInW2qUhIfYZDfeEwpNvP-Y05xbZ5nofQcZT7jEo3C7xL5UyLWDzLqfwsY8TMrQSlKmorbPFfg6p1BCANJPBNwJk7lmMFJaRI8bklqbjwCzXnTeeg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Z1ZPypMJmdGyS42xtV_DeVrmBd2pG2hd3qWJu-h86bhPMMr8sE_UM1LeiQpvTC8LXhm84EtqC5DBCRjthCjXLERvT719r5Q7j8Af7Ivsg-MeLhGBg0Ar1t39pOVG99fcHEvxAk0_bWmegsOwgdcA8svAZuB3DWDAOtU3sFhe-UdrfbIaTF0800QdIOFw6swFpe391F-l8X5Jd_cUA3iedJU0zbUoHaNINMDqXKUBUiXED9is5o-wmqL78eRyxP3KxskLh-MN8wUMxM2wYW-oQmmZifeBAxN6IDiBSD1lDcFNnQo8cjoru2wEdPsaVRN5y0Luh0HFgOgczpRwvVanpA.jpg" width="400"><br>
 
 به گزارش آکسیوس به نقل از یک مقام آگاه، مارکو روبیو، وزیر امور خارجه ایالات متحده، روز دوشنبه ششم مهر پس از به بن‌بست رسیدن مذاکرات با جمهوری اسلامی ایران، دستور داد هیات ایرانی حاضر در مجمع عمومی سازمان ملل، از جمله عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، فورا آمریکا را ترک کند.
 یکی از مقام‌های آمریکایی به آکسیوس گفت: «روبیو هیات ایرانی را که بیش از حد مهمان مانده بود، بیرون کرد. مجمع عمومی سازمان ملل تمام شده بود و وقت آن بود که بروند.» بر اساس این گزارش، نمایندگی آمریکا در سازمان ملل دوشنبه شب به نمایندگی جمهوری اسلامی ایران اطلاع داد که هیات ایرانی باید فورا نیویورک را ترک کند.
@@ -285,29 +406,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78575)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-30 19:11:36
-
-<img src="https://cdn4.telesco.pe/file/JwCkfFMZlLCgW6z4HImBGNZ2DDiCXyQoI_kqctoLHU4kPapwJzlftk4W4CmovjHmfVzxv6Df3IZZAs3O3CVx0qvP6fzG76CVCH8YasjBwNNpCUd1Vezbfpt-F6Pw2d1GX48BABpHwMqSd7EFBZ-C4gTmXmzuW3q0O5qZvRXBxf80fG66g4nU-aHdW2Ms1db9fcwdaF2Yu09Xj4tJCVs9bE7k2CTbckp47uLdsmY5h6_JvDSC2RHeYc-p8Hr7dAoxNteXkjvCmZkvgzArsqTaBNSwpkFiYDEL7jxRRkW70_HgFi-h_-iQncC2CnoSnEYBfd3QMh7R-Q-9uyAeA1kNWg.jpg" width="400"><br>
-
-🔴
-«برای کمک به پدر مجروحش رفت که  هدف گلوله قرار گرفت»
-🔸
-هفت روز طول کشید تا خانواده محمد عباس‌زاده بتوانند پیکر تنها فرزندشان را تحویل بگیرند. در این مدت، بارها به مراجع قضایی و نظامی مراجعه کردند، اما پاسخ روشنی دریافت نکردند و تنها به آنها گفته می‌شد منتظر پیامک بمانند.
-🔸
-فشارها پس از آن نیز ادامه یافت. برخی از بستگان احضار شدند، از اعضای خانواده تعهد کتبی گرفته شد و مقام‌های امنیتی برای نحوه برگزاری مراسم و حتی روایت چگونگی کشته‌شدن محمد برای آنها محدودیت تعیین کردند.
-🔸
-خانواده با وجود این فشارها، پیکر محمد را در زادگاهش اهواز به خاک سپرد؛ در حالی که پدر مجروحش هنوز در بیمارستان بستری بود و نتوانست در مراسم خاکسپاری تنها فرزندش حضور داشته باشد.
-🔸
-سرگذشت کامل محمد عباس‌زاده را در یادبود امید بخوانید.
-https://www.iranrights.org/fa/memorial/story/-9241/mohammad-abbaszadeh
-@IranRights
-
-[View Post](https://t.me/VahidOnline/78571)
 
 ---
 
