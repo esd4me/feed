@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-02 17:49:12 </h5>
+<h5> 🟢 Updated at: 2026-10-02 23:10:29 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-02 18:36:31
+
+<img src="https://cdn1.telesco.pe/file/QE58XO_sEaHruALgp1ZzZrrIiUQ4R4MeCvOeFtdYG8X-l55U7gMcOUA_YZX6e2RLh0QKk_FsgcMpKP0nh5GT-Ra8c9elGbwj2ty7p4jRNPE6s1iWzx0OETREiIJHTcAX2vcCmSl0-cJU6mFp6G2Oo5eVE1Apusvn0ypn4LPT1w09RwCWqZ9D6_4f6ua4ysJ6RPtfrlKMvxtV1oifqhj3ohi_k1avZkWcrM5vv6JPTESagfSFE2wSC4BKF123Q5F2YfIkUHj10tLJzpoiGhWHEX2clAUnfn4Fc2tfKbmeLAvtyL4HhKeZMECuEOJ-Et_yMV7Mq5vnIGZy-2VW_4NGyA.jpg" width="400"><br>
+
+وکیل «الناز شاکردوست» اعلام کرد دادگاه تجدیدنظر استان تهران، حکم بدوی یک سال حبس تعزیری و دو سال محرومیت از فعالیت‌های سیاسی، مجازی و هنری علیه موکلش را تایید کرده است.
+الناز شاکردوست، بازیگر سینما، به دلیل انتشار یک استوری مرتبط با اعتراضات دی ماه ۱۴۰۴ به دادگاه انقلاب احضار و به اتهام «فعالیت تبلیغی علیه نظام» به یک سال حبس تعزیزی و دوسال محرومیت از فعالیت‌های سیاسی، مجازی و هنری محکوم شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78600)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-02 17:22:53
@@ -147,7 +164,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-10-01 21:32:58
 
-<img src="https://cdn1.telesco.pe/file/YbVIKSP5Vxi8mqf5n7GTNxYi84mUmwNFfUUG6F9ruNLuf_nxAs175m2lFSFO419qrK6uhn4Pu1aOBsZiNbqznz_7bnDZh83HIWt4aGdj0TtaANRubdD_etroEbLzQ9qS9jtcEYN86SttAA8KWqFIWfEosKNBdQ8cPeTTsfjIexJN-y6jvEUDzFnkHjPc9Z_TPsgM0UvqVkMkyI5bf8td1tv0Fa8Y0vRB4Z6MEimxG-fDVrw82_uA7k4jk0JmK_oAYyJPg62Q4aZU8znDUskRLReA_tksgVySP86RgfcGKdfsa7uRyHz3DKcp44WD1wLjafnx2p-zSXUYOAEUdiE3yg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/RqclY86vVOHZbB-hFlS_Um3Cj0W0XD0zTFfIORvrA0NAetWFR-zMWt1EDlzGZHFc9VnHPMaa38GMpTyFp-F6BkLud-0lVxvKIdhTEo2wlGALNtN24R_16APUaX7jEw3VV0VOUKIVLkOwP17TO3pv8MCIdVDsLq8zDgrfk3KEQfM8L3hBh0ZWLy8x4UcZNjaOKyFNi2G-zuTdep3qwXgbw5vBVTa6S33p6zj9cx_TenIMyBpYFss1JsvwqywA-bOi5OCT-U7uRJTpqOOfOZnGngEzHROts23jPhVwgL3Td3s9_sVw4B87F3hIWcCztpoqtUkKlk22_oI_UNCF-OMS0Q.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 من بارها گفته بودم که برای از بین بردن «تهدید هسته‌ای ایران» ۴ تا ۶ هفته زمان لازم است، اما من این کار را در یک شب انجام دادم! باقی آن زمان فقط برای این است که مطمئن شویم اوضاع همین‌طور باقی می‌ماند.
@@ -322,7 +339,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-30 20:41:14
 
-<img src="https://cdn4.telesco.pe/file/PqEIKwtYp6035H_gJt7nDBeySusjl25RzjmO0IDq_avtT96_0aECB0yZdgZD0MBnh2uWl7S0LTIjgoqnF9pbc9yjxJBozE5ai_vAWKYLRnsPFFnJYAdSLkZbwWGYsK_A3RYEJEggvD55baD4q9pmEdhgxZKuxaBjZvBWXvG2MxdGQMSimHSSMB_E1ebaXtq5HF3732AMsmeHNLZaOEDRvT7QSJ1WUL2CGTLhxX4s1MWcbddbuftcu7bunCfd1xImqzlrBJolI40O4BjmCqv0m8nuUmWNBXDE9tw3ySH1RymAYvVY3z0j0APn-ctUT6ZffBi2xS3HVCkG30BMQMesAw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/UIb7iZpPNnwct0_-uxAnh4umFdpS-IVcGsGpyU8ZVNgIbAw8g4S7CfDI1KSls4a4-9YGFHcNsUyH2PbEI65uC7fvqJZ8Hcz1-GbIJgOZfcLbkBGMp93lnpk6W6d75bT7ND4MJmLgPcxXJT7Jam2t4VfbbjHxf6D-AKifXyAW9hol4xL7ItaBHXuL_8ElHJI9LdTO4XZewoXQH0qmLgveg-URL76zkT8kUTmERjoxxnyw17kiMbsv07tDhul6q9jIGeQURvGYxy6b_bUmYk4skdSYFrdHeCksuBrI-2w6RgKw21baENOK1KlIUGSrR4qU4fyxiD1XLcSPw_qpJzVmsQ.jpg" width="400"><br>
 
 اندی برنهام، نخست‌وزیر بریتانیا، روز چهارشنبه هشتم مهر، اعلام کرد که قرائن و شواهد قوی نشان می‌دهد جمهوری اسلامی ایران در حادثه امنیتی اخیر در نزدیکی پایگاه هوایی «فیرفورد» (RAF Fairford) تحت مدیریت آمریکا نقش داشته است.
 پلیس ضدتروریسم بریتانیا روز یکشنبه پنج جوان ۲۳ تا ۲۵ ساله — که همگی اتباع بریتانیا و ساکن لندن هستند — را به اتهام آماده‌سازی برای اقدام تروریستی دستگیر کرد، اما آنان روز بعد با وثیقه آزاد شدند.
@@ -340,7 +357,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-09-30 20:40:55
 
-<img src="https://cdn4.telesco.pe/file/mGtFarckMkzHFlJPSPmPSbk4RFQZEQCTR7JwOyFG0lHKAILn2esWOjgZ2fAznrEIfUQ117JoYCQdw5s-EWntkzMS8BnPeay3OHN92YBihV7i0-RBTgWm7UNiqTDFsuelFlGWiWsFakMU-WSKzKhpXjznpdh4-8GGrd5Vlnwwwq2Pgl4Zk9dEtTyHO_1F1HK8PK8YQOhoAUJ_m81X-NZiwhAbahVfYU6W3Ly5fB1VTPovMxwH7gZB4lboSlqBprgEznlqt9fSRxPeF7GfMD7fXDDZGjA8xkvgwCSeHxGWiqTvXSR9f8hGzdA3ag7Kr042wu6g7uopus60SdbK_U3_0w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/dWzEMMu5atp0I6VTItcKMSwRhywujyWAAYawck5YRe3GmN_KOs_Q8GxPaJv1zKLFyl5BQsn3Tkljk8QTU_yUxW6tRIzsvMmOb6ne1VYvWLPqkwtiCTA3zdLjmimqe2-nMh8qC2C5EBFF50fLyacuPO0kcpjZhKnTu02KWui3jdCvgkcwd6mllfWCnljvAynVdnFi8Ofu_39-t50LArC1OGYugnWOsOUbF0AaCcQJyEsjQEBl3SjAzZhFivtQzYYLMiFWea5fCiYrMZkxCDSbftHyvADz06gv4THWPHXcXdWFmW_7e7XTg_g1TlmF5LcbU4ZXE99Z2tg8FLwJxCw0Zg.jpg" width="400"><br>
 
 خبرگزاری تسنیم، وابسته به سپاه، چهارشنبه هشتم مهر گزارش داد صرافی‌های رمزارز معاملات تتر را از ساعت ۲۱ هر شب تا ۹ صبح روز بعد متوقف کرده‌اند.
 بر اساس این گزارش، این محدودیت از امروز ساعت ۲۱ تا یکشنبه ۱۲ مهرماه اعمال می‌شود و سقف خرید روزانه برای هر کاربر دو هزار تتر تعیین شده است.
@@ -353,59 +370,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78582)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-30 19:12:45
-
-<img src="https://cdn4.telesco.pe/file/R9b_5-DsnfyfRTZE8PyUJovVAdg_U1qdZnyiP41-CtPdo1Wl3ukYWwzacY5_w919an5k9Gg2S7PNvdwyowYUpESUoChBRWa4F-F_E_v2bZDNxzKaW5riYfhoBkNp059clp-wjJtzUC41rIPJC8JM1wcqPkzUXslTc_6is4hlW3N1vVTkFxT1ynwd0gNwduPNFUXimOOm68kzEBddoDhFTpmyOu8lkWRgrHW-44k0GWGY7BiT8_S9-3ZT6Fffur5pRoqFA3a330Ldk_ZXQLJoRom_E5cI6uJpA8Kpb-XyBhQswDUOyxUDw7Zk8REKXnsCFtnZvdO2i2pbv4Mv8m_p0w.jpg" width="400"><br>
-
-نرخ دلار در بازار آزاد تهران امروز از ۲۵۶ هزار تومان گذشت و دادستان تهران به ضابطان قضایی دستور داد با «عوامل اخلال در بازار ارز» برخورد کنند.
-بر پایه داده‌های پایگاه‌های اطلاع‌رسانی طلا و ارز، دلار ۲۵۶ هزار و ۵۰۰ تومان، یورو ۲۹۰ هزار و ۵۰۰ تومان و پوند بریتانیا ۳۳۹ هزار تومان معامله شد.
-دلار صبح امروز ۲۵۵ هزار تومان بود و دیروز ۲۵۳ هزار و ۱۰۰ تومان، یعنی در دو روز سه هزار و ۴۰۰ تومان بالا رفته است.
-همزمان دادستان تهران از برخورد با فعالان بازار خبر داد و گفت ضابطان قضایی مأموریت یافته‌اند با بررسی میدانی و رصد فضای مجازی، عوامل اخلال را شناسایی و به دستگاه قضایی معرفی کنند و گزارش اقدام‌هایشان را روزانه بفرستند.
-نیروی انتظامی جمهوری اسلامی دوشنبه ۱۱ نفر از فعالان بازار ارز را بازداشت کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78581)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-30 19:12:23
-
-<img src="https://cdn1.telesco.pe/file/nKDzzmA0l8IVJGFZpm9E-XTtKrEoNdRX873Q2oBHojztS1WNHwmkJpxf8JoHwZ_N8FqxVYXFufl5o303a41Titdz_Unuv7mDk4_OX0b7anYjht5Uq5WrvyQUNWtifbSjGB4aTt7ICHuZ1YTJyX10y2LnykKEStrcPvy7CRY3SWRg6eZRtO_LqQPAu3KtBRDGc3zwVDGwwtfABJ6ycCt0zQWtAfxXGMLQucRqJoKMPFOpq64U9TMEl4KbBnlAEhnq5ADNfWDrHRWVCD6DmSeh6XJ-9GBW802ZNLFGAJNDFKSriR8zvDwAyEp16sMiI7LpQVxyVPXF4X1CMG4XvTOodg.jpg" width="400"><br>
-
-در پی فرود اضطراری یک هواپیمای خطوط هوایی «فلای دوبی» از مبدأ دوبی به مقصد تل‌آویو در عربستان سعودی، نخست‌وزیر اسرائیل گفت کمک‌خلبان این هواپیما پس از حمله با چاقو به خلبان دیگر، ظاهراً تلاش کرده بود هواپیما را با سرنشینانش سرنگون کند.
-بنیامین نتانیاهو، در پیامی ویدیویی که روز چهارشنبه هشتم مهر منتشر شد، گفت: «در جریان پرواز، هنگامی که هواپیما به کشور نزدیک می‌شد، یکی از خلبانان به خلبان دیگر حمله کرد و ظاهراً تلاش کرد هواپیما را با همه سرنشینانش سرنگون کند.»
-او مسافران هواپیما را «قهرمان» خواند و گفت آنها با اقدامات خود «از وقوع یک فاجعه بزرگ جلوگیری کردند».
-نتانیاهو همچنین گفت عربستان سعودی کمک‌خلبان این پرواز را که به ادعای او به خلبان دیگر حمله کرده و تلاش کرده بود هواپیما را سرنگون کند، بازداشت کرده است.
-او افزود: «خلبانی که دست به حمله زده بود بازداشت شده و اکنون از سوی مقام‌های سعودی تحت بازجویی قرار دارد.»
-نتانیاهو همچنین دستور آماده‌سازی برای مقابله با تهدیدهای احتمالی بیشتر را صادر کرد.
-یسرائیل کاتز، وزیر دفاع اسرائیل، نیز روز چهارشنبه این حادثه را «تلاش برای یک حملۀ تروریستی» خواند.
-او در بیانیه‌ای گفت: «حادثه جدی در پرواز فلای‌دبی یک تلاش برای حملۀ تروریستی جهادی بود که تنها به لطف شجاعت چند مسافر اسرائیلی خنثی شد؛ آنها وارد کابین خلبان شدند، تروریست را مهار کردند و با دستان خود کنترل هواپیما را به یک خدمه پروازی دیگر که در آنجا حضور داشت، بازگرداندند.»
-رسانه‌های اسرائیلی روز چهارشنبه از احتمال ربوده شدن این هواپیما خبر دادند اما بعداً گزارش دادند که «بروز درگیری فیزیکی بین خلبانان» در هواپیما باعث تغییر مسیر و فرود اضطراری آن شد.
-بر اساس این گزارش‌ها، این هواپیما از نوع بوئینگ ۷۳۷-مکس کد اضطراری مربوط به ربوده شدن را ارسال کرده و پس از آن ارتباطش با اسرائیل قطع شده بود.
-به دنبال این اتفاق جنگنده‌های اسرائیلی به پرواز درآمدند و فعالیت فرودگاه بن‌گوریون نیز متوقف شد.
-ویدیوهای منتشرشده در شبکه‌های اجتماعی که رویترز محل ضبط آنها را پرواز FZ1073 تأیید کرده، مسافران را در حال رسیدگی به دو مرد مجروح در کف هواپیما نشان می‌دهد که دست‌کم یکی از آنها لباس خلبانی بر تن دارد.
-در یکی از ویدیوها، یک مسافر اسرائیلی درخواست کمک می‌کند و می‌گوید مسافران «تروریست‌ها را مهار کرده‌اند». با این حال، مقام‌های فرودگاه تبوک و این مسافر هویت فرد یا افراد مهاجم را مشخص نکرده‌اند و جزئیات دقیق چگونگی درگیری هنوز روشن نیست.
-بر اساس اطلاعات وب‌سایت فلایت‌رادار۲۴، این پرواز ابتدا یک پیام اضطراری عمومی ارسال کرد و سپس پیام اضطراری دیگری فرستاد که احتمال «مداخله غیرقانونی» را نشان می‌داد. هواپیما پیش از نخستین هشدار اضطراری، در کمتر از ۳۰ ثانیه نزدیک به ۱۴ هزار پا کاهش ارتفاع داشته است.
-به گزارش این وب‌سایت، هواپیمای بوئینگ ۷۳۷ که رسانه‌های اسرائیلی اعلام کردند حدود ۱۵۰ مسافر اسرائیلی را در خود جای داده بود، بار دیگر پیام اضطراری اولیه را مخابره کرد و سپس در فرودگاه تبوک در شمال‌غرب عربستان سعودی به زمین نشست.
-از سوی دیگر، شرکت هواپیمایی فلای‌دبی، مستقر در امارات متحده عربی، اعلام کرد علت درگیری‌ای که «در کابین خلبان پرواز FZ1073» رخ داده، همچنان مشخص نیست و موضوع تحت بررسی رسمی قرار دارد.
-سخنگوی فلای‌دبی در بیانیه‌ای گفت: «در این مرحله، دلایل و انگیزه‌های اصلی این رویداد مشخص نیست و همچنان در چارچوب یک تحقیقات رسمی در حال بررسی است. از همه طرف‌ها می‌خواهیم تا زمانی که مقام‌های مسئول در حال جمع‌آوری اطلاعات و روشن کردن ابعاد ماجرا هستند، از گمانه‌زنی زودهنگام خودداری کنند.»
-خبرگزاری رویترز به نقل از مقام‌های اسرائیلی اعلام کرد کمک‌خلبانی که این حادثه را رقم زده است، شهروند عمانی است. دولت عمان هنوز درباره این موضوع اظهارنظر نکرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78575)
 
 ---
 
