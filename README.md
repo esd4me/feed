@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-02 05:23:29 </h5>
+<h5> 🟢 Updated at: 2026-10-02 11:15:25 </h5>
 </div>
 
 
@@ -131,7 +131,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-01 06:18:52
 
-<img src="https://cdn1.telesco.pe/file/V2TdN4wlqGD5gASYzU7kAeIDW79SmKpL2VyArvPYc9MTmzh7ab5gFv3USuE2PsUeqtkmNbE3WbCT_Fhb2LUzlBahmCF4G99M034MjpKccoueeWDJorBj4zmcv1ZSXd8mTfKsjwBbSU4LMfojBzu7ow0yi6KIIKn4kaXkHur4ewXpNepsVwQZnJom4_ziZcW7-JhpmH4TM_wBg6UKXrQjrjTfC1tVvuxH7bxDBNXwp2w8kkqdjj7GkgzCSFKJpqclJPMzYUZFwOaeHNVLDhq4rr9dChcUrmdCgUsOvG1vlWPS15Gpaxc-ZTE1gbT8h9YO3GCFyXh56LlhYcX_PvPi3Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/YN0c8hRc5yzu6KzGLcfIylbxgdh2iZgXMzmohgj0JxphQtfz0eN3nXMdhU6r6pkDraMY-6FzNs3ryFAi-cmpgZY2kS-iPi5-Q91evKBx0Qs24BNkD5ABD5Hb2xLHfpJACl-zPJFAAnQYQTba0xzxKtOgv-TQ-XYd8fMIDXI8-sW3NZygMwP5OyDikeaEBbplNWxFX0kWX8fYPbctAfOoXf6O_zllquRy9ISAEi2LKU3lTZFM-oPb9doeopi847RG8BV9cW4fBu-d5Xf5Zgj49pffqiN5EnFlCMP4PKnCE2-XXldwwmn1AlZvO1HZABtTJsF6NTpxGNM3zfunhSCjeg.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه شب، گزارش نیویورک‌پست از اظهارات اسکات بسنت، وزیر خزانه‌داری آمریکا را منتشر کرد که گفته است اقتصاد جمهوری اسلامی ایران، «ظرف دو هفته» هیچ‌چیزی برای تجارت نخواهد داشت.
 محاصره دریایی بنادر ایران مانع آن شده است که جمهوری اسلامی از طریق دریا بتواند نفتی صادر کند. دلار آمریکا نیز در روزهای اخیر با سقوط خیره کننده ریال جمهوری اسلامی، رکوردهای تازه‌ای زده است.
