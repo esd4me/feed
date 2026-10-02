@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-02 23:10:29 </h5>
+<h5> 🟢 Updated at: 2026-10-03 02:55:58 </h5>
 </div>
 
 
@@ -147,7 +147,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-01 23:52:25
 
-<img src="https://cdn1.telesco.pe/file/DO1udFNV1brhil_45DGr0K6V5T-VewUX9LUZKw1XCrWI2WGcw2JzwBwaMUh85khO7dSM5qns94nV-fGwrqE7-hRJsFOoyD70snnNtycbGAjf4qisI2RZDRFnuDTX6z2lSyO63EaDyYOCa69_Xhkq8OGj78VveyHMl1cco-6GoiQdQDb-W4CmzhCBfOl8TUKkn3wi4B9nusVrIwkmJ4KsFgXmOHKPIKS4E22KsP5Rtq3ASwcx5ulP3geuSN4xiNmpYaLonoi-fYKf82TSHWL12t2hpO_LhSSA05tpiFUflVffFrje_ry5efZO6zeVeFnMIzGzwbWJAOhCWV0oo-tn3w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/cacfBBnbzG1GhY2fbC68Zh4V1cB0plXeiUYHVx9brTq3MRB3CwxJqa7HJ13ZNHlFjiFuxgLUa5NxPM7KZaGkX5N3xjgBO6fIRSIcfvaGpQoCGAzNih4PXjfgSIRecV803boEZXZUOboUIT0NOcedrcLoGvl0IDWMhGQUiTFNtcjeczHR342HknniqBXfBzKpJa0hrjTxAPR79irbX4A7NLgidfzcm7rRkMSGl_0cYaeQd-XvvuR13UviFNxUFQf_MZRUqvzxDhMQBzf2wVJrsfmicIwiEtkyBjB6w7of3FHbjhHPDMLaqZxzvvkRleULYC8mSnPstqcGXeEKeqYmDQ.jpg" width="400"><br>
 
 UKMTO:
 «عملیات تجارت دریایی بریتانیا» (UKMTO) گزارشی از یک منبع ثالث دریافت کرده است مبنی بر اینکه یک نفتکش هنگام عبور از تنگه هرمز با یک پرتابه ناشناس مورد اصابت قرار گرفته و در پی آن آتش‌سوزی رخ داده است.
@@ -306,7 +306,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-01 00:54:56
 
-<img src="https://cdn1.telesco.pe/file/MgKfV68pW8HDcr7aiyavrdB-JBbf47gEkcUw_iTuAVghJd_RmhVm7ZxHfm9b9eeYqL-xVqDK5dyhp1d-8RRjPWRH4nUAIKZ2dXwplRTk2UEAjBjFeVaSI5R_rdIZ24lw8m9pNVEA6KU_vQt26zi6r36rgxxVWsu44hzeDzB_TkFdd81B4dzxsFoS7cY4GaCzFBMXwLtZcbI9G5hE0biO7qGVOYMtULkeNdQbycPm9uGirP2Gq3cALZtDxcR8Hs9Wz1hcKUC-LZdWa3x9eg6hQiB3WzdvDI7ii5rGts97CRTFdKab4_hvcGDfwTCTfo3hISa_OlUVkNTObDkyugL4IQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/BSj8C0qYbQAOI5kLvw-cyIM1Sy2YvuaGGMONRX7AJiVspWXGw-GNy9yyB63Nspo6kJcRb9QxaszQ7dGxe7AKxQ5WXq8VKr6wpGRkRg85aIcAljmonnrzyne4uWAhP9ZvutUhl8mx5-AFW1CCV0TFBN-IeuFP2P48Ck_c-1KJglL8UL8AQO4HSZiJ26EyrpAKTBaURq1kFilbLa8bVoUZZhzgATdMt11TJ1GWsI2tBGIb28TKyXRnqratH-lfqNIfDzfk58CiUr0Pw7uVESpTmqTmCD1-sMGkMkEJUJVKXphAYYeqRGI4cVpuzYVlK7NaQblg0BVkvhDld7qQRa9Qsg.jpg" width="400"><br>
 
 دونالد ترامپ، در پاسخ به سوال خبرنگاری که از او پرسید اگر رهبران جمهوری اسلامی به گفته او «دیوانه» و «غیرمنطقی» هستند، چگونه می‌خواهید با این افراد توافق کنید؟ رئیس‌جمهوری آمریکا پاسخ داد: «شاید آن‌ها را منفجر کنیم. باید تصمیم بگیریم. منفجرشان کنیم، توافق کنیم، وقتش دارد می‌رسد.»
 @
