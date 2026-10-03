@@ -3,8 +3,47 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-03 17:57:57 </h5>
+<h5> 🟢 Updated at: 2026-10-03 21:56:22 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-03 20:20:45
+
+<img src="https://cdn1.telesco.pe/file/YSo8wXgmiD_DKHHppD84Jt0HrsUdTwtP9XeL-b_KJeSV0eF8SMMjuASyp1Qs2hnWa0zPhFyz13ZQX7u5e0O6RhcArKBnDrhWekk8l289Njvjqxy3zhh-iLLNI1_7b4Ndg_JWUFkLN8Qr0AnDSRn_AhTlDQi0YsBhX7SDGs9CtQaDxJkdev3UEk9BsouSwt0a614F56pTADMntrpDDqDJecaz2uLH84lKhk2paHWBah2AZ-lEidO_5pQUZZKQnike0hKQKBxtMysNt0yekwGuYUH8wdjDqGpaennRlRLH2HG-iowKHbfuzgkpUxGgrhodvJRUHa5c2OlOw1cG1_4SLQ.jpg" width="400"><br>
+
+خبرگزاری فارس روز شنبه یازدهم مهر از شنیده شدن صدای انفجار در تنگه هرمز و هدف گرفته شدن یک کشتی تجاری در مسیر عمان خبر داد.
+فارس مدعی شد، نفتکش «اور وینست» که تحت اسکورت آمریکا قرار دارد، هنگام ورود به تنگه هرمز سامانه رهگیری خود را خاموش کرده بود. این خبرگزاری دولتی نوشت، این دومین هدف‌گیری یک نفتکش در تنگه هرمز در روز شنبه است.
+این خبر پس از آن منتشر شد که خبرگزاری مهر ساعتی پیش از شنیده شدن صدای انفجارهایی از سمت دریا در جزیره قشم خبر داده بود و احتمال ارتباط این صداها با شلیک به «کشتی‌های متخلف در تنگه هرمز» را مطرح کرده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78614)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 20:20:35
+
+<img src="https://cdn4.telesco.pe/file/dttyhy1WW86Vvqo3snbp6RR1JBmHKXN9gLJykcgRhjvKdEDZjJOt4irKVixua7XzhQVcGRBauouX3ztXKymb95iMLuVZdAU4qHnOp7yFrqurAydIkqab9anG6ZXuFRv2aEj5SL6ySfaWd_MPF8Q8udRnBobHPxUrlLxZUvLLoTMUHzqHyZ9bqojU70yaS5mN2A-gACoMM5h-fluHf6a78tGHJbRCM2TTQDI5tWlwabtw5oW3pEwMhezOXfkhyuIR4JkAbfDDs6jtFaAAxAmbHwFC-DP3CgXo5DcCSO3swEilys5DgP3BiQScouqNP4q8eQxgHQRn6gPo3XH02z7nkQ.jpg" width="400"><br>
+
+در پی انتشار گزارش‌هایی از شنیده‌شدن صدای چند انفجار در جزیره قشم در عصر شنبه ۱۱ مهرماه، خبرگزاری مهر نوشت این صداها مرتبط با اقداماتی در خلیج فارس و تنگه هرمز است.
+این خبرگزاری بدون استناد به منابع رسمی نوشت «هیچ اصابت یا حادثه امنیتی در پهنه سرزمینی جزیره» رخ نداده است.
+خبرگزاری مهر در عین حال این «احتمال» را مطرح کرد که صداهای انفجار شاید به «شلیک به کشتی‌ها» در تنگه هرمز مرتبط باشد.
+این در حالی است که همزمان، تصاویر متعدد و گزارش‌هایی در شبکه‌های اجتماعی منتشر شده که یک قطعه بزرگ و استوانه‌ای‌شکل را در محدوده‌ای شهری در قشم نشان می‌دهد که ظاهر آن به بخشی از یک پرتابه نظامی-دفاعی شبیه است.
+گزارش‌های تأییدنشدهٔ دیگری در شبکه‌های اجتماعی نیز حاکی است که پیش از سقوط این قطعه، صدای عملیات پدافندی و چند انفجار در قشم به گوش رسیده است.
+مقام‌های رسمی تاکنون توضیحی دربارهٔ تصاویر منتشرشده و این حادثه در قشم ارائه نکرده‌اند و رادیوفردا نمی‌تواند جزئیات گزارش‌های منتشرشده را به‌طور مستقل تأیید کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78613)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-03 17:51:32
@@ -228,7 +267,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-02 18:36:31
 
-<img src="https://cdn1.telesco.pe/file/QE58XO_sEaHruALgp1ZzZrrIiUQ4R4MeCvOeFtdYG8X-l55U7gMcOUA_YZX6e2RLh0QKk_FsgcMpKP0nh5GT-Ra8c9elGbwj2ty7p4jRNPE6s1iWzx0OETREiIJHTcAX2vcCmSl0-cJU6mFp6G2Oo5eVE1Apusvn0ypn4LPT1w09RwCWqZ9D6_4f6ua4ysJ6RPtfrlKMvxtV1oifqhj3ohi_k1avZkWcrM5vv6JPTESagfSFE2wSC4BKF123Q5F2YfIkUHj10tLJzpoiGhWHEX2clAUnfn4Fc2tfKbmeLAvtyL4HhKeZMECuEOJ-Et_yMV7Mq5vnIGZy-2VW_4NGyA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IP6xvuQnz6NTGoWA7K9S_SVw5TX2NltOoQ6QFXeXBj4HMf46-XFErgIHAnueC-CcMDrHon0vAoU4Rm7HHp3ZVb57pK6CNwJo74APMILfqYwptVnRrVxMujgcR2P7filDTIerATnNrMadWOLOWw8R811ADxe4wrWyufujbHOVmEGgFVaapfgXsUlBVwiGocCO5WlTXHFyM2lljzB2KpTleLQXgGyawm2AuzZ2JFlejO7--OIV3Sx0Y1S7DX16NF_cgsfW3Q3y605WU1RY9hnx8NyYiXTJNIxH1e3lc7oPELZMGf9SC0Ue4ciOfFTB8RyTgKpVUV97W91ea3Zlph0K2Q.jpg" width="400"><br>
 
 وکیل «الناز شاکردوست» اعلام کرد دادگاه تجدیدنظر استان تهران، حکم بدوی یک سال حبس تعزیری و دو سال محرومیت از فعالیت‌های سیاسی، مجازی و هنری علیه موکلش را تایید کرده است.
 الناز شاکردوست، بازیگر سینما، به دلیل انتشار یک استوری مرتبط با اعتراضات دی ماه ۱۴۰۴ به دادگاه انقلاب احضار و به اتهام «فعالیت تبلیغی علیه نظام» به یک سال حبس تعزیزی و دوسال محرومیت از فعالیت‌های سیاسی، مجازی و هنری محکوم شد.
@@ -341,41 +380,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78595)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-02 16:34:47
-
-<img src="https://cdn4.telesco.pe/file/PLSmnP-fySCJQY-Ylb-A7u3FLLZB8o2RvWtxR6_qjCZUHIyhaA4F-ecxmq7c-i-aWiBukN9b3QutRPpr-Ywm0iKg1Fi76ue1u3fpZcdicMhmzRpWaRTNUQXJlb7tb0jLMXpUDYPm63ddbUf9beH68BM8EmgTjPXZlTIFJ5uDYmA4JVgo2BiOzYy1D7KQvF43wmo8uD6OE-2ttqVbCqXKVchHNMdqYp3lm0o6IertfjbHzdCXjQ8lqwr-4IQ0aNFSpnwqCrV1do7NzgsbgTohcHLwyc9BNpkgrUHzYrR7tUhdwnE1SJWoE_Nl-tAWynajnu7d8rh7BltwQ1y2s1_4kQ.jpg" width="400"><br>
-
-سه شهروند اهل کرمانشاه، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در شعبه ۲۳ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده‌اند.
-بر اساس اطلاعاتی که به سازمان حقوق بشر هانا رسیده، سیروان شعبانی، ۲۵ ساله، هنرمند و نوازنده و سرپرست یک ارکستر پاپ و سنتی، خسرو محمدی‌نیا و مسعود توشمالانی هم‌اکنون در زندان قزلحصار کرج نگهداری می‌شوند.
-هانا گزارش داده است که این سه نفر روز ۱۹ دی ۱۴۰۴، هم‌زمان با اعتراضات در اسلامشهر، از سوی نیروهای امنیتی بازداشت شدند و پس از آن مدتی در سلول انفرادی نگهداری شدند. بر اساس این گزارش، آنها پس از ماه‌ها نگهداری در شرایط انفرادی و آنچه هانا «اخذ اعترافات اجباری» خوانده، به زندان قزلحصار منتقل شده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78594)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 23:52:25
-
-<img src="https://cdn1.telesco.pe/file/cacfBBnbzG1GhY2fbC68Zh4V1cB0plXeiUYHVx9brTq3MRB3CwxJqa7HJ13ZNHlFjiFuxgLUa5NxPM7KZaGkX5N3xjgBO6fIRSIcfvaGpQoCGAzNih4PXjfgSIRecV803boEZXZUOboUIT0NOcedrcLoGvl0IDWMhGQUiTFNtcjeczHR342HknniqBXfBzKpJa0hrjTxAPR79irbX4A7NLgidfzcm7rRkMSGl_0cYaeQd-XvvuR13UviFNxUFQf_MZRUqvzxDhMQBzf2wVJrsfmicIwiEtkyBjB6w7of3FHbjhHPDMLaqZxzvvkRleULYC8mSnPstqcGXeEKeqYmDQ.jpg" width="400"><br>
-
-UKMTO:
-«عملیات تجارت دریایی بریتانیا» (UKMTO) گزارشی از یک منبع ثالث دریافت کرده است مبنی بر اینکه یک نفتکش هنگام عبور از تنگه هرمز با یک پرتابه ناشناس مورد اصابت قرار گرفته و در پی آن آتش‌سوزی رخ داده است.
-گزارش شده که خدمه در سلامت هستند. میزان خسارت و تأثیرات زیست‌محیطی در زمان انتشار این گزارش مشخص نیست.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78593)
 
 ---
 
