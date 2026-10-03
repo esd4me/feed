@@ -3,8 +3,28 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-03 02:55:58 </h5>
+<h5> 🟢 Updated at: 2026-10-03 06:30:32 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-03 05:16:55
+
+
+
+دونالد ترامپ، روز جمعه، در سخنرانی خود در آلاباما با اشاره به ضربات نظامی به ایران و انتقاد از برخی رسانه‌ها گفت:  آنها نمی‌خواهند موفقیت ما را ببینند. وقتی نیروی دریایی‌شان را منهدم کردیم، نیروی هوایی‌شان را از بین بردیم و چند ماه پیش ضربه‌ای مهلک به ایران زدیم، نیویورک‌تایمز و رسانه‌های جعلی می‌‌گفتند اوضاع ایران فوق‌العاده است. آنها همه‌چیزشان را از دست داده‌اند، از جمله رهبرانشان را.
+او با تاکید بر خلأ رهبری در جمهوری اسلامی افزود: آن‌ها یک دور از رهبرانشان را از دست دادند، بعد دور دیگری را، و سپس نیمی از دسته سوم را. حتی یک دور رقابت راه انداختند که ببینند چه کسی حاضر است رهبر شود، اما هیچ شرکت‌کننده‌ای نبود و همه می‌گفتند من نمی‌خواهم.
+بخشی از مشکل ما اکنون این است که اصلا نمی‌دانم باید با چه کسی طرف شوم. هیچ‌کس حاضر نیست رهبر باشد.
+می‌گویم در ایران با چه کسی باید حرف بزنم؟ اما هیچ‌کس آن اطراف نیست.
+در می‌زنیم، تق‌تق، ولی کسی در خانه نیست.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78602)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-02 18:36:31
@@ -269,7 +289,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-01 06:18:52
 
-<img src="https://cdn1.telesco.pe/file/YN0c8hRc5yzu6KzGLcfIylbxgdh2iZgXMzmohgj0JxphQtfz0eN3nXMdhU6r6pkDraMY-6FzNs3ryFAi-cmpgZY2kS-iPi5-Q91evKBx0Qs24BNkD5ABD5Hb2xLHfpJACl-zPJFAAnQYQTba0xzxKtOgv-TQ-XYd8fMIDXI8-sW3NZygMwP5OyDikeaEBbplNWxFX0kWX8fYPbctAfOoXf6O_zllquRy9ISAEi2LKU3lTZFM-oPb9doeopi847RG8BV9cW4fBu-d5Xf5Zgj49pffqiN5EnFlCMP4PKnCE2-XXldwwmn1AlZvO1HZABtTJsF6NTpxGNM3zfunhSCjeg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/bYfe7_TwHPSoqmLjrtBqIBV4_ozVLBwVVa1vIB7GFHIQ7r9GGQPT5-kXPcczJo_SHTj8LQPBeOfnGyCYdidFToUVszNsbF0cKD5IKQ0v23xMpUkKB0bCjE5dIHTVbmja9pDMPECu6ynH9xzeYe-vP-hYUUhBeJN8sphzlFRSsZYFW-ASfcNR6Ixwicp8umxi6lJNnpv3fnqQU3aeaBhy05sHj_Sjhw5IqtFsWMK3TEasJPXis4rrooVssP1NGadKhnaYDjfDXmu2RTSvPlzB0flVcmUD7iWc4a7vzWI9mzDD2KrkGd7PaxbvtTP5YWolDbCun2Xmzmy3rTzhhzzNKg.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه شب، گزارش نیویورک‌پست از اظهارات اسکات بسنت، وزیر خزانه‌داری آمریکا را منتشر کرد که گفته است اقتصاد جمهوری اسلامی ایران، «ظرف دو هفته» هیچ‌چیزی برای تجارت نخواهد داشت.
 محاصره دریایی بنادر ایران مانع آن شده است که جمهوری اسلامی از طریق دریا بتواند نفتی صادر کند. دلار آمریکا نیز در روزهای اخیر با سقوط خیره کننده ریال جمهوری اسلامی، رکوردهای تازه‌ای زده است.
@@ -350,26 +370,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78583)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-30 20:40:55
-
-<img src="https://cdn4.telesco.pe/file/dWzEMMu5atp0I6VTItcKMSwRhywujyWAAYawck5YRe3GmN_KOs_Q8GxPaJv1zKLFyl5BQsn3Tkljk8QTU_yUxW6tRIzsvMmOb6ne1VYvWLPqkwtiCTA3zdLjmimqe2-nMh8qC2C5EBFF50fLyacuPO0kcpjZhKnTu02KWui3jdCvgkcwd6mllfWCnljvAynVdnFi8Ofu_39-t50LArC1OGYugnWOsOUbF0AaCcQJyEsjQEBl3SjAzZhFivtQzYYLMiFWea5fCiYrMZkxCDSbftHyvADz06gv4THWPHXcXdWFmW_7e7XTg_g1TlmF5LcbU4ZXE99Z2tg8FLwJxCw0Zg.jpg" width="400"><br>
-
-خبرگزاری تسنیم، وابسته به سپاه، چهارشنبه هشتم مهر گزارش داد صرافی‌های رمزارز معاملات تتر را از ساعت ۲۱ هر شب تا ۹ صبح روز بعد متوقف کرده‌اند.
-بر اساس این گزارش، این محدودیت از امروز ساعت ۲۱ تا یکشنبه ۱۲ مهرماه اعمال می‌شود و سقف خرید روزانه برای هر کاربر دو هزار تتر تعیین شده است.
-این اقدام در پی افزایش پرشتاب قیمت ارزهای خارجی و سقوط ارزش ریال انجام شده است.
-عصر چهارشنبه قیمت دلار در بازار آزاد ایران از ۲۵۵ هزار تومان عبور کرد و هر تتر نیز حدود ۲۵۵ هزار تومان معامله شد.
-پیش از این بانک مرکزی جمهوری اسلامی نیز اعلام کرده بود اعطای وام برای خرید طلا، ارز و رمزارز ممنوع است و این ممنوعیت شامل تسهیلات مستقیم و غیرمستقیم بانک‌ها و واحدهای دیجیتال نیز می‌شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78582)
 
 ---
 
