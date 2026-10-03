@@ -3,8 +3,207 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-03 13:02:12 </h5>
+<h5> 🟢 Updated at: 2026-10-03 17:57:57 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-03 17:51:32
+
+<img src="https://cdn1.telesco.pe/file/HBJy0zuyk-V3zr6tiXY2K5OSrNb8tFiF4WyCexE4WXwh3JPxWDkEkg3prNGijkWUheKXpjB_BEoinzadhvAdx7tG0i64Fgo_eRYzxPknVG-0qbxUlT0cXJB3dtcs3X8GDqr72CzjX2X00QDTTUhGnvzRWMszhpimLDjOmnin60fyq5i5yXniO8DMU5xR8mlh-Z8JSLB9GFaGWQPgPh26xnmfUMWGlUrIXsiKwb6kJwQYetNpj6o1J76_pJwmWsMmiAJ66HkIX44WRYa8ZsnY_snWCXmo-tlSlYpxSgaMCzve_iHSYsS04wMrwL08dmyqF51Bv1TnVjj4FZH5aKCGNA.jpg" width="400"><br>
+
+پیام‌های دریافتی از قشم  حدود ساعت ۱۶:۳۰:  صدای جنگنده خیلی نزدیک اومد صدا زیاد قشم  همین الان قشم موشک شلیک کردن  16:34 دقیقه   وحید جان از قشم سمت اسکله بهمن موشک شلیک کردن صداش خیلی وحشتناک بود معلوم نیست شلیک کردن یا جنگنده بود ولی هرچی بود صداش خیلی زیاد…
+
+[View Post](https://t.me/VahidOnline/78612)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 17:45:04
+
+<img src="https://cdn4.telesco.pe/file/oewGvFJswtZ2peG75QoB4P79MohA8PxBBG4HPMuZLKcsmG10R46tsvdNbVcW50rsUR4loKca-6mVK0U19jTPmdC0czzz21ysAAIP3peDDSHsgYZMXvbbRpPTcs1iwkDNPpN_xHRepxnEw63VVId7lt04xuuWOHWBhruRMaqTygNtrHi_EcRUjGTchrRViMaOP1Iol864fOYor7HppauznqaAvtCrMq9AWto12PXx3zHp6B1z2kawWnmE0alOhRRTHC6hQDRrattQp3eS7-QgCQ0fF8hnnqPzHAUPbdWqhBcswdcBSiAbIAiehyw50LpTDAfBTZctmGWRuI43KnSMVw.jpg" width="400"><br>
+
+روند کاهش ارزش پول ملی ایران روز شنبه ۱۱ مهر ادامه یافت و بهای دلار آمریکا در بازار آزاد برای نخستین بار از مرز ۲۷۰ هزار تومان عبور کرد.
+بر اساس نرخ‌های اعلام‌شده در ظهر شنبه، قیمت فروش دلار به حدود ۲۷۱ هزار تومان و یورو به بیش از ۳۰۵ هزار تومان رسید.
+این در حالی است که روز پنج‌شنبه قیمت دلار در بازار آزاد حدود ۲۵۸ هزار تومان گزارش شده بود؛ به این ترتیب بهای دلار در فاصله دو روز بیش از ۱۳ هزار تومان، معادل حدود پنج درصد، افزایش یافته است.
+افزایش قیمت ارزهای خارجی در حالی ادامه دارد که بانک مرکزی جمهوری اسلامی روز چهارشنبه از برنامه‌ریزی برای عرضهٔ دو میلیارد دلار اسکناس به بازار خبر داده بود.
+قوه قضاییه نیز از برخورد با کانال‌ها و صفحاتی که آن‌ها را عامل «قیمت‌گذاری کاذب ارز» می‌خواند، خبر داده است.
+اقتصاد ایران همزمان زیر فشار جنگ با آمریکا، تحریم‌ها و محدودیت‌های فزاینده بر تجارت خارجی ناشی از محاصره دریایی قرار دارد.
+ارزش پول ملی ایران، از ۲۳ تیر، زمان آغاز محاصره دریایی آمریکا علیه ایران، تاکنون بیش از ۳۱ درصد کاهش یافته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78611)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 17:44:34
+
+<img src="https://cdn4.telesco.pe/file/MYdNW93GrLt6YQNzJJOk7YohwJEAkvQoz9oejofSrqMv-8LqzWis5LtRYvx7FZKb-PfbxoVIIFTVR_tYk8gmoO5OJPAEGRCB_mMv5RYkuWqXTncATskSeQPAxfa-PhFX85SD5QBgcSMWjzCANgmd95KlJXeX0TzQAzUp0mrC01veL4F9J-aPpDrjzT9jh3A0FIJW4bQkcfyzJNTj6vmGMm6GJnZi275dilEeKgNrZ_XHByHLZCgf_Wd2LLP6UhkwxGaEL-sQzw-y2h8Li_6x3e8GPLGok8ZZ_08WGCcUVGYPNcdPcymo7vE7kt_S3oQYliyKVqgRlMQrt4GaJ3mTEg.jpg" width="400"><br>
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا در گفتگو با رسانه آکسیوس،‌ با تاکید بر تاثیربخشی محاصره دریایی ایران اعلام کرد، ایران برای نخستین بار از زمان آغاز صادرات نفت، در هفته جاری هیچ نفتی برای بارگیری و انتقال از طریق دریا نخواهد داشت.
+او همچنین با اشاره به کم اثر شدن نفود نیروهای مسلح جمهوری اسلامی در تنگه هرمز افزود، آمریکا عبور ۱.۱ میلیارد بشکه نفت از را از این آبراهه تسهیل کرده است.
+وزیر خزانه‌داری آمریکا همچنین گفت واشنگتن در حال منزوی کردن ایران «به شکلی بی‌سابقه» است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78610)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 17:43:22
+
+<img src="https://cdn4.telesco.pe/file/LY68-b_WMzTMlF5LKWOSOM3yzXh9mc5gf2gXIPqAVOv6Ofr8dsmQHTr9nWF3k2LZ5_r8a6Z48aEWu9lEcaKIl8qlKauPbNJKZhBR6r7Nu2Ntj8iM-g5GFaVjDUogIoK7InhJoxXKYazrmjwdew5VE4mlHdjjPE91xfgd6wG1pLd5iHPbWRaTPTFyBOjqGv59qYlfFYfq8jY7UeO9PxrWgu3mJYj7PEeu5VN_S8LZJQu50ZurqUqT68tTwZUPy1sLPG6Im1vNA9FtxrUt12EPIOeBhiEXafI4J0Bpuk7fGz5aQfuoriZ4bGtqmw9b_no5zSbvpaROHhCSUNelAwt5YQ.jpg" width="400"><br>
+
+پلیس مبارزه با تروریسم بریتانیا دو تبعه ایران را به برنامه‌ریزی برای حمله‌ای تروریستی علیه جامعه یهودیان منچستر متهم کرده است.
+پلیس بریتانیا روز جمعه ۱۰ مهر ۱۴۰۵ این دو نفر را «سلام احمدیان»، ۳۶ ساله و ساکن لیورپول، و «رحمان صالحی»، ۳۴ ساله و ساکن سالفورد، معرفی کرد.
+این دو نفر روز یکشنبه ۲۹ شهریور در منچستر بازداشت شدند و روز جمعه به اتهام انجام اقداماتی در راستای تدارک عملیات تروریستی تفهیم اتهام شدند.
+قرار است احمدیان و صالحی روز شنبه ۱۱ مهر ۱۴۰۵ در دادگاه حاضر شوند.
+پلیس می‌گوید این دو نفر برای پیشبرد توطئه ادعایی خود با فرد سومی در خارج از بریتانیا، که احتمالا در ایران حضور دارد، در تماس بوده‌اند.
+به گفته پلیس، احمدیان و صالحی از طریق پیام‌رسان‌های رمزگذاری‌شده با این فرد درباره تهیه قطعات لازم برای ساخت یک بمب دست‌ساز گفت‌وگو کرده‌اند.
+این دو نفر همچنین متهم شده‌اند که فایل‌های ویدیویی آموزش ساخت و مونتاژ بمب دریافت کرده، مایعات و تجهیزات مورد نیاز را تهیه کرده و برای شناسایی و بررسی اهداف احتمالی حمله از اینترنت استفاده کرده‌اند.
+«ویکی ایوانز»، معاون دستیار کمیسر و هماهنگ‌کننده ارشد پلیس مبارزه با تروریسم بریتانیا، گفت این بازداشت‌ها نتیجه تحقیقات مشترک پلیس مبارزه با تروریسم و نهادهای امنیتی بوده و به خنثی‌شدن توطئه‌ای علیه جامعه یهودیان منچستر منجر شده است.
+او اتهام‌های مطرح‌شده در این پرونده را «بسیار جدی» توصیف کرد.
+این توطئه ادعایی هم‌زمان با اعیاد مقدس یهودیان، سالگرد حمله تروریستی سال گذشته به کنیسه «هیتون‌ پارک» و افزایش گزارش‌ها درباره حوادث یهو‌دستیزانه در سراسر بریتانیا خنثی شده است.
+دولت بریتانیا دو روز پیش از اعلام این اتهام‌ها، جمهوری اسلامی را به دست داشتن در تلاش برای خرابکاری در پایگاه نیروی هوایی سلطنتی «فیرفورد» متهم کرده بود.
+«دونالد ترامپ»، رییس‌جمهوری آمریکا، روز چهارشنبه ۸ مهر ۱۴۰۵ در پاسخ به پرسشی درباره نقش ادعایی جمهوری اسلامی در حادثه امنیتی اطراف این پایگاه گفت واشینگتن در حال بررسی موضوع است.
+پایگاه فیرفورد پیشتر در اختیار نیروهای آمریکایی برای انجام حملات علیه مواضع جمهوری اسلامی قرار گرفته بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78609)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 17:41:44
+
+<img src="https://cdn1.telesco.pe/file/JHEPPSPPSCzeUpZnE1i691Rf07_38i_QA4wuI-CakXyfgx2Hkp73RIOvieUxO63Ufx69bO2NFw3qJBK0sGedhDBlBM65iIGWraJyH0BH14I4dqvUkO8rpjeRsp-IsU3L7qIF75O4UHQI0EIryLhh-v4UiZ6dj3N0OUo5uUxnJ7Osy09bp-UsR7_ncWoC3CdHt7yocWtzzj1EC1kDH7yU5uks7YWKC41hqjKM3-b_M72AUyCsjC0b0yM56ZW3n5VaZ1VTEslZv8TqOKAt6GxG4pmfvAm1x60BkYmVKWDd1OBumLFvLQwhh_qT6snTw2YL82G-MY6SgyqTAVuJPx2BQA.jpg" width="400"><br>
+
+نتانیاهو: جمهوری اسلامی سقوط خواهد کرد و «روز آزادی» مردم ایران فرا خواهد رسید
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مصاحبه‌ای اختصاصی با روزنامه دیلی‌میل که روز شنبه ۱۱ مهر منتشر شد، گفت که به اعتقاد او جمهوری اسلامی «سقوط خواهد کرد» و خطاب به مخالفان حکومت ایران گفت: «ایمان خود را از دست ندهید، روز آزادی شما فرا خواهد رسید.»
+نتانیاهو در این گفتگو مدعی شد حکومت جمهوری اسلامی ایران در شرایط کنونی «بسیار ضعیف» شده و گفت محاصره آمریکا به رهبری دونالد ترامپ، سپاه پاسداران را به‌شدت تضعیف کرده است. او در عین حال تاکید کرد که سقوط حکومت ممکن است زمان ببرد.
+او درباره برنامه هسته‌ای جمهوری اسلامی نیز گفت اسرائیل با همکاری آمریکا، مانع دستیابی ایران به سلاح هسته‌ای شده است. نتانیاهو گفت: «اگر ایران اکنون سلاح هسته‌ای داشت، چه اتفاقی می‌افتاد؟» و افزود که جمهوری اسلامی همزمان در حال توسعه موشک‌های دوربرد است.
+@
+VahidOOnLine
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با انتقاد از سیاست دولت‌های غربی و به‌ویژه بریتانیا گفت آنها انتقادهای خود را بر اسرائیل متمرکز کرده‌اند، در حالی که به گفته او، تهدید جمهوری اسلامی و نیروهای نیابتی آن را نادیده می‌گیرند.
+او خطاب به معترضان در بریتانیا پرسید چرا به جای اسرائیل، مقابل سفارت جمهوری اسلامی اعتراض نمی‌کنند.
+نتانیاهو گفت: «چیزی که به مردم بریتانیا می‌گویم این است: کجا هستید؟ کسانی که علیه ما اعتراض می‌کنند، چرا مقابل سفارت جمهوری اسلامی اعتراض نمی‌کنید؟ چرا تمام زهر دولت بریتانیا متوجه آنها نمی‌شود؟»
+او افزود: «چرا علیه جمهوری اسلامی جهت‌گیری نمی‌شود؟ چرا علیه نیروهای نیابتی آن نیست؟»
+نخست‌وزیر اسرائیل همچنین دولت‌های غربی را متهم کرد که تهدید جمهوری اسلامی را به رسمیت نمی‌شناسند و گفت: «این حکومتی در ایران است که ده‌ها هزار نفر از شهروندان خود را کشته یا مجروح کرده است.»
+او افزود جمهوری اسلامی اقتصاد غرب، منابع انرژی و آبراه‌های بین‌المللی را «خفه» می‌کند اما موج خشمی را که علیه اسرائیل وجود دارد، متوجه جمهوری اسلامی نمی‌بیند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78607)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 17:38:42
+
+<img src="https://cdn4.telesco.pe/file/KLrh-GYkbvOtOMd7KeP1Mn5FSao7QR60yxDPkCAWiWE-ORygHaVwEFtv7Fnz_WQ7c5kCW-kps_-k0lekPXLUtlthVS-JKQ7jTTslpHqClQNKOyVA3WH5KU3hhthVWX5md3JJiNX8zAIT_RmpzS7AxmCWlgJOjXNdORQlLkoiArUT4K4pbAD2XGcX8so5f8BOjQgGmjmdFm_OIcLrvlo0HzdSuK9Fcz7FgjP4_EVrZbqb3WkEQjgbkVpH2Qu-pRYqdx1x3u5hfiLzaiqegWSrUBNmDooyTTcZae0ufZq8LvzzhT66aVWXXuWp6KeqOaOzTnF6nVEh5AKIdhbyzrQPFg.jpg" width="400"><br>
+
+در پی تیراندازی مقابل ساختمان دادگستری مهاباد در روز شنبه ۱۱ مهر، یک نفر کشته و چهار نفر زخمی شدند.
+امیررضا رسولیان، فرمانده انتظامی مهاباد، اعلام کردە  این تیراندازی مقابل در دادگستری این شهرستان رخ داده و در جریان آن یک نفر کشتە  و چهار نفر زخمی شده‌اند.
+یک منبع مطلع به ایران‌وایر گفت فرد مهاجم که چند سال پیش فرزندش را از دست داده اعضای خانواده فردی را که او مسئول قتل فرزندش می‌دانسته و در حال حاضر به عنوان متهم در زندان تحمل حبس می‌کند هدف تیراندازی قرار داده است.
+به گفته این منبع، مهاجم پس از تیراندازی توسط مأموران انتظامی در محل بازداشت شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78606)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 17:35:39
+
+<img src="https://cdn4.telesco.pe/file/W1v2HQdzeGA5-j_KT2eyx_q9B78cIgNRZVcdLCs6woemq9qAiHlxjywXPolvqnYSOMsWMSBQ5HDGufbbICnHzZTw3I-wNddF1VTjJN7-Mt0UXZ-zkT4v-biZY4pYcPJOH_hSk2NpFN2AOBeXwLwtwBJbKDM7KDwf1yj9kQcRTHDTHkiLa-P3dcm6-iywjCx0CTxZJanDIgbrFLvBap8E4MvG2L7D9dr1ybSmONRX-czlGsWAoK3L1b_s1MisT66vZNhs-VclzFtu6sZ8T6l7wcl-Dg5y_Q2aAl-sm6l77D8S1iWh34Cda8kfcjjS3NOkEeMxuGwUwRwyFSc8QFhvcA.jpg" width="400"><br>
+
+وزارت اطلاعات جمهوری اسلامی روز شنبه ۱۱ مهر از بازداشت ۳۱ نفر در شهرستان سیرجان در استان کرمان خبر داد و آنها را اعضای چهار «شبکه سازمان‌یافته خرابکاری خیابانی» معرفی کرد.
+این وزارتخانه مدتی شد افراد بازداشت‌شده برای شرکت در «فراخوان‌های سراسری» سازماندهی شده و در حال تهیه کوکتل مولوتف و ابزار تخریب دوربین‌های شهری بوده‌اند.
+وزارت اطلاعات همچنین این افراد را به دست داشتن در «آتش‌زدن فرمانداری، تخریب بانک‌ها و ساختمان‌های دولتی و حمله به مقر پلیس» در جریان رویدادهای دی‌ماه ۱۴۰۴ متهم کرد؛ رویدادهایی که در اطلاعیه این وزارتخانه از آنها با عنوان «کودتا» یاد شده است.
+در این اطلاعیه جزئیاتی درباره هویت بازداشت‌شدگان یا مستندات مربوط به اتهام‌های مطرح‌شده ارائه نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78605)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 17:32:10
+
+<img src="https://cdn1.telesco.pe/file/HX4EF61WE1CxMPAiBce0x0hfwJE-QtrV1PZdWdyErOF8soe_LUbOTUjNImdAVg1bS30o1lNo3FyfJWhKbQsGfIpzOo7qwEXD0FeJUR7AtniUny2Kt7GsC3mOmVIjgUAjMtvQiZ-g9kkLgMP29_EczzKhw18sKkblYxsCDscVh04ctAO-TipGR19dxjaFQA18FlL3i9G794t1dt8U-u_5eGkmkfsdAtYOkGm_xJyjPIDM-cIZ10JbfgWf2A5s29K2Pd9pL7jQyMtWh8xmSI1DTwzlHLpWfhlfYwkUOgLIgOT0B4MNVVVG6sZf51zFRBuwW6RSE9PAP5jn-ITh7IhWSg.jpg" width="400"><br>
+
+قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام «سیاوش جمشیدی خیرآبادی»، از بازداشت‌شدگان اعتراضات سراسری دی۱۴۰۴، در بامداد شنبه ۱۱مهر۱۴۰۵ خبر داد.
+قوه قضاییه همچنین ادعا کرده است که جمشیدی خیرآبادی شامگاه ۱۸ دی ۱۴۰۴ در خیابان ناصرخسرو شهرکرد به‌سوی ماموران تیراندازی کرده و سپس از محل گریخته است. براساس این روایت، او دو روز بعد، ۲۰ دی ۱۴۰۴، درحالی‌که یک قبضه سلاح کمری همراه داشت، بازداشت شد.
+در اطلاعیه قوه قضاییه آمده است که حکم اعدام این معترض پس از تایید در دیوان عالی کشور اجرا شد. بااین‌حال، در این اطلاعیه توضیحی درباره زمان برگزاری دادگاه، روند دادرسی و دسترسی او به وکیل منتخب ارایه نشده است.
+مقامات جمهوری اسلامی معترضان دی‌ماه ۱۴۰۴ را «کودتاگر» خوانده و آن‌ها را به ارتباط با آمریکا و اسراییل و تلاش برای ایجاد ناامنی متهم می‌کنند.
+«مسعود پزشکیان»، رییس‌ دولت جمهوری اسلامی، نیز در سخنرانی اخیر خود در مجمع عمومی سازمان ملل مدعی شد که مردم ایران طی هفت ماه گذشته برای «دفاع از ایران» در خیابان‌ها حضور داشته‌اند.
+او معترضان را افرادی توصیف کرد که به ادعای او، آمریکا و اسرائیل آن‌ها را «تهییج» و مسلح کرده بودند تا در داخل کشور ناامنی ایجاد کنند.
+صدور و اجرای بسیاری از احکام سنگین علیه معترضان دی ماه از جمله احکام اعدام ذیل قوانین «تشدید مجازات جاسوسی» صورت می‌گیرد که از منظر حقوق‌دانان و فعالان حقوق بشر شامل موارد جدی‌ نقض حقوق متهم است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78604)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-03 17:29:57
+
+
+
+پیام‌های دریافتی از قشم
+حدود ساعت ۱۶:۳۰:
+صدای جنگنده خیلی نزدیک اومد صدا زیاد قشم
+همین الان قشم موشک شلیک کردن
+16:34 دقیقه
+وحید جان از قشم سمت اسکله بهمن موشک شلیک کردن
+صداش خیلی وحشتناک بود
+معلوم نیست شلیک کردن یا جنگنده بود ولی هرچی بود صداش خیلی زیاد بوددددد
+قشم همین الان یه صدایی شد
+سلام وحید جان چند دقیقه پیش یک موشک به سمت تنگه شلیک شد.
+سلام وحید
+دور و ور ساعت ۴:۳۰ جنگنده رد شد
+سلام ساعت چهارو نیم بعداز ظهر امروز قشم  صدای جنگنده امد خیلی وحشتناک بود
+[این پیام متفاوت هم بود که نمی‌د.ونم چقدر درسته. بعد از یک ساعت معلوم نشد صدای چی بود.]
+قشم پدافند بالا نریمان و زدن
+وحید
+خیلی شدید بود صدا ها
+معلوم نبود چی بود
+رادار تازه ۳ روز بود درست کرده بودن
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78603)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-03 05:16:55
@@ -91,7 +290,7 @@ https://www.bbc.com/persian/articles/cr9dw7dvjxj1o
 
 ###### 🔵 Post time: 2026-10-02 16:36:34
 
-<img src="https://cdn4.telesco.pe/file/O8sHE_d06Gqu26_r3EoQG_Zp0P-zHiyatVKVMdlmeSrT2Pqa3kzEALRRSTZdU8mL2yYddfmGBMbKGwj5Lk1bILJjCMG8G1BGiwaEvxKRk8O2gXDi8FzlTAcQzHMIponl02ZvKyNqIX9RAt9TE0Ey01xIYCSaDbLRTkytMDuiPySZnSjOr1nRWy3zBhRbdMD3rbeXSwlJSWSDq-c1vIu83hmVncvmWc3BzyN4fAr7VnAYyrV7lH7G2Q3ycEOx_ZnKysn5zgAfp5B1VTTRLpz7i8erpXPUoJMSs1sOP1t1tYf5wwBbkvsDTuF-NTXwZww7jmycXh5IzLfhUU6ozARGBg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/vGxJYvnc1AoOpuGIKvKvRwIZZG9ghLRQTzKIRI7fI3cVg3ydn1kkQInfkt8Okm_31If8lchJfTdaDV_S-Gqmw7Vv798frz7rNeir1OsDLh8OgsqQNBGkNE-0knuIY7hqUoJ3_fgVWqLhSfm2d5M1KRw82uAKOCZ5eRNOGQV2lE5TbTa5lsdvL_qD7u0-fc7xOoYnVa6d7WliPA89SpJiVvTS6i3i516gudk8rXEeJ0nAOxqh8SsSP6s5tW2ru1hA1dZlc7CPfJ0WqEQztOPQcrPm9-pReESugfasv9_zmnaKCijeY9PmUV3jZ7VTMuypZBcpkNqXFruBRltouYyEaw.jpg" width="400"><br>
 
 وزیر خزانه‌داری آمریکا می‌گوید ایران در ماه سپتامبر حتی یک محمولهٔ نفت خام هم بارگیری نکرده است. داده‌های شرکت‌های ردیابی نفتکش‌ها نیز نشان می‌دهد در این ماه هیچ بارگیری نفت خامی از بنادر ایران ثبت نشده است.
 اسکات بسنت شامگاه پنج‌شنبه، نهم مهر، در شبکهٔ اجتماعی ایکس نوشت: «ایران در ماه سپتامبر صفر بشکه نفت خام روی نفتکش‌ها بارگیری کرد» و افزود دولت دونالد ترامپ در حال قطع «حیاتی‌ترین منبع درآمدی» جمهوری اسلامی است.
@@ -111,7 +310,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-02 16:36:03
 
-<img src="https://cdn4.telesco.pe/file/TRsX5VG4271uuYpczw9XKdTp11T-LxhDLT1YGN0F7dCE_xsQz-yCEAfkQQ2eQldaIUuJ6IqoTmQCQxBRLlMWPa9CB30eYoOG4B7xYPGmXVbGDwFLRo5a70M2KgesvDVvfVmGCj_PwCQ9CgzrWnfcrb1UvyBfiwLJaNw3gCvpEqK3DszNTfiCfQNVl0LqmiSrYa7hBMpdSudncBWbKVCAkihJTXPJe_QVrNOqiYOY4mH3T0QGFX3ZfiwiGl0fm7p6PqK_RLZNqeIXR6R_cvQquzSxe_7mJ04j6wPUBiu_z3QC373FClvTeFQ3VzrMwp4M2rCZxhQ63Pc3UcwmId0oJw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NbtWsZ4EtiloeyOUGscNaH2iz8YTNfmc27p9EmYfkevV5EICGbHyttd6Eh8UkWJEN15tDtGDhJ5Lm_n6YeI0RvXYXENILL7lZc4Hz7X9buB_FuwNvQTl7qee3IxlwgsM3nf1NcsFYDhgqJBsNwUvFo_XLBd8r-bd0TTJsVgLB7jbjubXGIQuRfZnXZQMdB2LMdpQ8oNo67EQo-nCf_Dh8QMMhV25PI5yv_9mLHV24tCiCTmfYKbgarE4_Q2pLjpdji82rCd1hHO9prFozFtIWjuy0YoxVuX-dvnxpSOfXgDfs0Sf018CvDQW9buz3l1BsE0NrKC1Z4ISz-XO3FVwjg.jpg" width="400"><br>
 
 خبرگزاری تسنیم، روز جمعه دهم مهر ماه، از وقوع درگیری مسلحانه میان سپاه پاسداران و اعضای «یک گروه تروریستی» در یکی از روستاهای شهرستان راسک در جنوب سیستان و بلوچستان خبر داد.
 تسنیم با اعلام این خبر افزود نیروهای سپاه «در حال پاکسازی منطقه و بررسی وضعیت» هستند.
@@ -130,7 +329,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-02 16:35:29
 
-<img src="https://cdn4.telesco.pe/file/jw-KyXTaM_Z8hpxLdG9_X3OaHkLvZXn1up-yUOQ7gM8ogaAuuFm7C2RHTfCFYC4mDyrEQvYqxUwYPuTk-RHe_2cm1xkFZ6_ysWVsIPwtkwfMGfeS5P_1vc9MggSokPl_NunhbT3yyv3UW33q7svaN0YYSsUzyyONf7ySJCd5OJSCt1W22hv4H6Jw-3pQUQoQ80-k9ATs_cWf1PmBwZaITI31o5M0pHOz1gw8GbktfSl1Hq83GR0rt5VDqA1koVCLybr5lexPX60TUoOArK38OdBJS7Lhj6gDb3y1AmcwGMmQf4U0OJKY7cmkt6pAJ_nu4Tntktk7IdcrEQuuRGRURQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/JV0LcNgbG7oi4VpnvXMJRvQr3QNxs82VAHOCY1ZLPS6d8DrdlerEMB-dCwBcGLxBOI7Xj_6ZCXtW-VrRfPeeypZmg8jA0G4cC_qcAKPzV_tDFAP79WrNS6FaGuwQmL8tXT8Jh9K32uIjmHoS3jcEetSuTtdTJw_zFFb_oMOmGVd-53dN3t65Iy9O7UKh8YqXjsmrxotCpLP1OilA5N9gN8KU5TLAFcWMwKX1aehpfaY1UoizBhB3NkM9lZIPKqqC10rYI2NTEPiAswUIbk82V-NarIJ6z0_Ikp4VG4M9G3VKrJBWBHYcXwShAfvUcL0uwIHnKEa-2-Pk96fBlI5HGQ.jpg" width="400"><br>
 
 دونالد ترامپ در دو اظهارنظر تازه دربارهٔ ایران هشدار داد اگر مشخص شود تهران در حادثهٔ پرواز فلای‌دبی به مقصد اسرائیل دست داشته، «به‌شدت هدف قرار خواهد گرفت» و ساعاتی بعد بار دیگر گفت به اعتقاد او ایران «در آستانهٔ تسلیم‌شدن» است.
 این اظهارات همزمان با ادامهٔ تحقیقات امارات متحده عربی دربارهٔ احتمال تروریستی بودن حادثهٔ پرواز فلای‌دبی و گزارش‌ها دربارهٔ تقویت حضور نظامی آمریکا در منطقه مطرح شده است.
@@ -149,7 +348,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-02 16:34:47
 
-<img src="https://cdn4.telesco.pe/file/jEs81iKO8BDB4zxL6akjPHjF5KpgJicQhVnaoUkZmt25VG0DGZC0i1Cbjk89GJ2qMbBdQZiwdlV9tqNagWdryxtT-0fauZ_JaTUH_XdIp9YIZjkEjvJOZQ5MuVE2XslviifiSdf4XfLKzGrjYdoUsC7ZryM0CsaG3E1NEYB5njC_K9qBINQNwyradzf86ZwL4nHB5znclMkQG5QmD9i0ijutaaotpsniHdJVRnUczHZ64ePusmIcLak0WbKv0HdMqpzsAQK2JBC9BupvMi32Fia_-lwbAsPwZHmoNRIpejui5EE9Irf6m43U5BOSjTkA_VMPEIrzFQGv7frBIERHGQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PLSmnP-fySCJQY-Ylb-A7u3FLLZB8o2RvWtxR6_qjCZUHIyhaA4F-ecxmq7c-i-aWiBukN9b3QutRPpr-Ywm0iKg1Fi76ue1u3fpZcdicMhmzRpWaRTNUQXJlb7tb0jLMXpUDYPm63ddbUf9beH68BM8EmgTjPXZlTIFJ5uDYmA4JVgo2BiOzYy1D7KQvF43wmo8uD6OE-2ttqVbCqXKVchHNMdqYp3lm0o6IertfjbHzdCXjQ8lqwr-4IQ0aNFSpnwqCrV1do7NzgsbgTohcHLwyc9BNpkgrUHzYrR7tUhdwnE1SJWoE_Nl-tAWynajnu7d8rh7BltwQ1y2s1_4kQ.jpg" width="400"><br>
 
 سه شهروند اهل کرمانشاه، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در شعبه ۲۳ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده‌اند.
 بر اساس اطلاعاتی که به سازمان حقوق بشر هانا رسیده، سیروان شعبانی، ۲۵ ساله، هنرمند و نوازنده و سرپرست یک ارکستر پاپ و سنتی، خسرو محمدی‌نیا و مسعود توشمالانی هم‌اکنون در زندان قزلحصار کرج نگهداری می‌شوند.
@@ -177,199 +376,6 @@ UK_MTO
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78593)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 21:32:58
-
-<img src="https://cdn1.telesco.pe/file/RqclY86vVOHZbB-hFlS_Um3Cj0W0XD0zTFfIORvrA0NAetWFR-zMWt1EDlzGZHFc9VnHPMaa38GMpTyFp-F6BkLud-0lVxvKIdhTEo2wlGALNtN24R_16APUaX7jEw3VV0VOUKIVLkOwP17TO3pv8MCIdVDsLq8zDgrfk3KEQfM8L3hBh0ZWLy8x4UcZNjaOKyFNi2G-zuTdep3qwXgbw5vBVTa6S33p6zj9cx_TenIMyBpYFss1JsvwqywA-bOi5OCT-U7uRJTpqOOfOZnGngEzHROts23jPhVwgL3Td3s9_sVw4B87F3hIWcCztpoqtUkKlk22_oI_UNCF-OMS0Q.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-من بارها گفته بودم که برای از بین بردن «تهدید هسته‌ای ایران» ۴ تا ۶ هفته زمان لازم است، اما من این کار را در یک شب انجام دادم! باقی آن زمان فقط برای این است که مطمئن شویم اوضاع همین‌طور باقی می‌ماند.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78592)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 17:53:32
-
-<img src="https://cdn1.telesco.pe/file/CrtRsN5A5Y7oLuerAgqJ7TpB4qo1zH7SnQASq75L6hL_jMf6v6sLkC-v5iJ9gdINWSLREjjA9sLl8v1UB4qF5mH-2XWM1uBV_j7IUb7N_uxE9M3UbxGI-et7nEkUmPQ6UgJSMt2xtfBFWZcml9iMx0awU2PHwJawsBGktoqLXM7xAYungjliAziPN5J3_NU-jupE6Bo3C7gbHgJH1pI8j8p86hZC-bYfZV8dPVz6mYdw1sYJbFOJtF6kl6DZcmjO40uGyoIpxINbMSIN29MY9VIBn10vBNyXeCxlsWUuBU6BYjb_bIH5_aaDtzryW25Wz7zXULrkc5X3EiqvCvq-JQ.jpg" width="400"><br>
-
-رئیس جمهوری آمریکا، در مصاحبه‌ای مفصل با مجله تایم گفت پیشنهاد اخیر جمهوری اسلامی برای پایان دادن به درگیری‌ها و بازگشایی تنگه هرمز را به دلیل «ناکافی» بودن آن رد کرده است، و افزود احتمال تشدید حملات نظامی آمریکا علیه جمهوری اسلامی را منتفی نمی‌داند. این مصاحبه ۶ مهر در کاخ سفید انجام و روز پنجشنبه ۹ مهر منتشر شد.
-دونالد ترامپ در پاسخ به این پرسش که چرا درگیری نظامی با جمهوری اسلامی بر خلاف برآورد اولیه او وارد هفتمین ماه شده است، گفت پس از حمله بمب‌افکن‌های بی-۲ به تاسیسات هسته‌ای می‌توانست عملیات را متوقف کند، اما تصمیم گرفت «فراتر» برود تا حکومت ایران نتواند توانایی‌های خود را «به شکلی متفاوت» بازسازی کند.
-او گفت: «توانایی هسته‌ای آنها را نابود کرده‌ام. نیروی دریایی‌شان را نابود کرده‌ام؛ ۱۵۹ کشتی در کف دریا هستند. نیروی هوایی‌شان را نابود کرده‌ام. همه هواپیماهایشان از بین رفته‌اند. رادارشان را نابود کرده‌ام.» رئیس جمهوری آمریکا همچنین گفت اقتصاد جمهوری اسلامی از بین رفته و تورم آن حدود ۳۰۰ درصد است.
-ترامپ گفت آمریکا عملا کنترل تنگه هرمز را از جمهوری اسلامی گرفته است، و تاکید کرد شب پیش از مصاحبه حجم عبور نفت از این آبراه به بالاترین میزان تاریخی رسیده بود. داده‌های جدید نشان می‌دهد صادرات نفت خلیج فارس در روزهای اخیر به‌ شدت بهبود یافته و به سطوح متوسط سال ۲۰۲۵ بازگشته است.
-در بخش دیگری از مصاحبه، خبرنگار تایم به اظهارات اخیر ترامپ درباره احتمال «نابودی ایران» اشاره کرد و پرسید آیا چنین اقدامی واقعا ممکن است. او پاسخ داد: «بله، این کار را خواهم کرد. ممکن است.»
-هنگامی که خبرنگار درباره مردم غیرنظامی ایران پرسید، رئیس جمهوری به سرکوب اعتراضات اشاره کرد و گفت حکومت ایران طی ماه‌های اخیر بین ۷۲ هزار تا ۷۵ هزار نفر را کشته است.
-ترامپ همچنین گفت از تصمیم خود برای مداخله نکردن مستقیم در جریان اعتراضات دی‌ماه پشیمان نیست، و عملکرد دولتش در قبال جمهوری اسلامی را «باورنکردنی» توصیف کرد.
-او گفت ایران کشوری بسیار بزرگ‌تر و دورتر از ونزوئلا است، اما «نتیجه همان خواهد بود» و افزود: «آنها می‌خواهند توافق کنند.»
-در پاسخ به پرسشی درباره علت رد پیشنهاد اخیر جمهوری اسلامی برای آتش‌بس، ترامپ گفت رژیم ایران پیشنهاد بازگشایی تنگه هرمز را مطرح کرد، اما شرایط آن «حتی نزدیک به کافی هم نبود.»
-رویترز گزارش داده است پیشنهاد ارائه‌شده از طریق میانجی‌های قطری شامل پایان درگیری‌ها و بازگشایی تنگه هرمز در برابر رفع برخی فشارهای اقتصادی آمریکا و دسترسی رژیم ایران به دارایی‌های مسدودشده بود. مذاکرات غیرمستقیم همچنان ادامه دارد.
-خبرنگار تایم سپس پرسید آیا دولت آمریکا پس از انتخابات میان‌دوره‌ای حملات به جمهوری اسلامی را افزایش خواهد داد. ترامپ پاسخ داد: «ممکن است.»
-او از ارائه جزئیات خودداری کرد، اما گفت آمریکا طی شش ماه گذشته ذخایر تسلیحاتی خود را افزایش داده و شرکت‌های دفاعی با فعالیت شبانه‌روزی در حال گسترش تولید هستند.
-رئیس جمهوری آمریکا در پایان مصاحبه هدف اصلی سیاست خود در قبال جمهوری اسلامی را جلوگیری از دستیابی آن به سلاح هسته‌ای دانست و گفت: «موضوع اصلی که همیشه مطرح می‌کنم این است که ایران نمی‌تواند یک قدرت هسته‌ای باشد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78591)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 17:45:57
-
-<img src="https://cdn4.telesco.pe/file/r5P2UiCZ6tOupK5iqUIuoT5rjOl50x89rYM7jXIiZerD3QbUySoyvL51B4RFdPjD6WLrmPugjnP6Q5zOjMLvZ7Yz8UBgAyRBzTjLVSWvZhEpxmTP3tw7KxnW2jZp70S4wdB6BezR5HYUOB_WyxqJar2-Vpcz0s1f0elzd2G_cfpUfS9ErcJiJxTF2zPiL2sj3-96L7Nvjhjc5b_h75xGjFD4eWoSd0Q9l8yQTV3FIZ_pR7A5sbbLWetQau8me77MAylMnHtzeJzm5uNzTsQ6Olpe61dlewP4Qsg2ZSDDrJ43rZ6K2VqHGLBH4SRi4xQIxQAyGV0CexWNt6iwymg36g.jpg" width="400"><br>
-
-نرخ دلار در بازار آزاد ایران روز پنج‌شنبه با افزایشی حدود ۱.۵ درصدی نسبت به روز گذشته به ۲۵۸ هزار و ۹۰۰ تومان اوج گرفت.
-دلار آمریکا در مقابل ریال ایران طی یک هفته گذشته بیش از ۱۰ درصد، طی یک ماه گذشته بیش از ۲۰ درصد و از زمان آغاز جنگ حدود ۶۴ درصد جهش داشته است.
-در بازه یک‌ساله نیز نرخ برابری دلار در مقابل ریال ایران تقریبا ۱۲۵ درصد رشد داشته است.
-قیمت سکه امامی نیز در لحظه تنظیم این گزارش در بعد از ظهر پنج‌شنبه از ۲۶۰ میلیون تومان فراتر رفته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78590)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 17:44:32
-
-<img src="https://cdn1.telesco.pe/file/IV0f0orXLfSJ0MQ8YeqtX0t5N446Lus9AxIEANN-qhv7y4RU_xCHpNxE_f7RBw9UP-e3PSTqrlybwsw7q9l1sA7g_xMmjzyvf6hJFAWa1nGsIFjB3ObYwceV_2dcm5bwMj7el_U-BhURcYaCY1lM1oA0eWbbHvEnZRkZbAIoW_txI5VDBqZUfIKQdRpcF-CirTzaF4sMUAkpC2ZQEvj7i44A-nhvZdOOmi4VXp4wQfIktfQPirXwq1b0UAMuuTqKnESprYY3xUISRhJMzhc3UOxS8fjiyiea3YkImL9aU8O5mg_mX1b6k80oJq9UoKwgn3pflRgZRgbJiNLhgjXJ9g.jpg" width="400"><br>
-
-«فرزانه فصیحی»، دونده المپیکی ایران، در واکنش به اظهارات تازه «احسان حدادی»، رییس فدراسیون دوومیدانی جمهوری اسلامی، او را «بدنام‌ترین ورزشکار تاریخ ایران» خواند و نوشت که ورزشکاران جوان باید او را «عبرت» قرار دهند، نه الگو.
-فرزانه فصیحی در متنی که در صفحه اینستاگرام خود منتشر کرد، خطاب به احسان حدادی نوشت: «در جهان موازی تو باید پشت میله‌های زندان می‌بودی و از هیچ حق شهروندی برخوردار نمی‌شدی، ولی چه کنیم که اینجا سرنوشت صدها و هزاران جوان پاک و معصوم رو هم سپردن دستت و حالا فاز نصیحت برداشتی.»
-این واکنش پس از آن منتشر شد که احسان حدادی، چهارشنبه ۸مهر۱۴۰۵، در گفت‌وگو با وب‌سایت حکومتی «ورزش سه»، درباره ورزشکاران زن گفته بود: «با زنان دونده جلسه می‌گذارم و به آن‌ها می‌گویم تو می‌توانی مثل خیلی از ورزشکاران زن، مجازی شوی با ۳۰ هزار، ۵۰ هزار، ۳۰۰ هزار فالوئر، یا می‌توانی قهرمان شوی.»
-فرزانه فصیحی همچنین با اشاره به «ریحانه مبینی»، «زهرا زارعی» و «فاطمه محیطی‌زاده»، از ورزشکاران زن دوومیدانی ایران، نوشت تصور این‌که آنها بخواهند از آموزش‌های احسان حدادی پیروی کنند، برای او «مثل کابوس» است.
-او در ادامه خطاب به رییس فدراسیون دوومیدانی نوشته است: «شریف بودن ربطی به مدال و قهرمانی نداره. تو ثابت کردی با خورجینی از مدال هم می‌شه به قهقرا رفت و منفور یک ملت شد.»
-اشاره فرزانه فصیحی به «پشت میله‌های زندان»، به پرونده قضایی احسان حدادی در دهه ۱۳۹۰ بازمی‌گردد. در آن پرونده اتهام تعرض و تجاوز جنسی علیه احسان حدادی مطرح شده بود و دادگاه نیز رای به زندان، تحمل شلاق و جزای نقدی داد. با این حال پرونده با دخالت نهادهای امنیتی مختومه شد.
-در سال‌های اخیر برخی از زنان شاخص دوومیدانی ایران نیز کشور را ترک کرده‌اند. «الناز کمپانی»، رکورددار دوی ۶۰ متر با مانع ایران، از مهاجرت خود به آمریکا خبر داد و پیش از او «مریم طوسی»، رکورددار دوی ۲۰۰ متر داخل سالن زنان ایران، به آمریکا مهاجرت کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78589)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 17:41:22
-
-<img src="https://cdn1.telesco.pe/file/nJVpEUSakNK6Uv8G4FSCBclEWp5NFZK1krBBIU7l7Gbrpe93SLM3ew-KOz-oJUof3jkjV083WzTKXv8NOqFTDY6OCfOdlEE79tm1qqgJHQ0BTbXtOBsj3ETeu6GObqFeR60DDJlVBTNpAJwcuBOyUenBUVnB6XT0YSRpdz4rB5LR_B5cKDYWWuf1qsxHKwdHQwRklps27RafKprMZoKp9sSTGjIpaAAr3WPz81KqeowqmbctIikufP8BRT5bW8lhTBqCJSuAr68TDJlg4YBUhAVZJGO2Trt7fztr-Ry0rPwksMp4FPX3f3IZNVyqlosnrgwn0YARMxeDfmeWPElYSA.jpg" width="400"><br>
-
-ایمان صادقی، بلاگر ۲۰ ساله و از بازداشت‌شدگان [اعتراضات دی ماه] در کاشان، به بیش از ۱۳ سال حبس تعزیری محکوم شده است.
-او بابت اتهام «تبلیغ علیه نظام» به هفت ماه و ۱۶ روز حبس و بابت اتهام «انتشار محتوای مجرمانه برخلاف امنیت کشور» به ۱۲ سال و شش ماه و یک روز حبس تعزیری محکوم شده است.
-«انتشار محتوای مجرمانه در رسانه‌ها و مطبوعات منتهی به هتک حرمت اشخاص» نیز از دیگر اتهام‌های مطرح‌شده در پرونده اوست.
-ایمان صادقی ۱۱ بهمن‌ماه ۱۴۰۴ بازداشت و پس از آن به زندان کاشان منتقل شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78588)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 06:18:52
-
-<img src="https://cdn1.telesco.pe/file/bYfe7_TwHPSoqmLjrtBqIBV4_ozVLBwVVa1vIB7GFHIQ7r9GGQPT5-kXPcczJo_SHTj8LQPBeOfnGyCYdidFToUVszNsbF0cKD5IKQ0v23xMpUkKB0bCjE5dIHTVbmja9pDMPECu6ynH9xzeYe-vP-hYUUhBeJN8sphzlFRSsZYFW-ASfcNR6Ixwicp8umxi6lJNnpv3fnqQU3aeaBhy05sHj_Sjhw5IqtFsWMK3TEasJPXis4rrooVssP1NGadKhnaYDjfDXmu2RTSvPlzB0flVcmUD7iWc4a7vzWI9mzDD2KrkGd7PaxbvtTP5YWolDbCun2Xmzmy3rTzhhzzNKg.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه شب، گزارش نیویورک‌پست از اظهارات اسکات بسنت، وزیر خزانه‌داری آمریکا را منتشر کرد که گفته است اقتصاد جمهوری اسلامی ایران، «ظرف دو هفته» هیچ‌چیزی برای تجارت نخواهد داشت.
-محاصره دریایی بنادر ایران مانع آن شده است که جمهوری اسلامی از طریق دریا بتواند نفتی صادر کند. دلار آمریکا نیز در روزهای اخیر با سقوط خیره کننده ریال جمهوری اسلامی، رکوردهای تازه‌ای زده است.
-آقای بسنت به فاکس‌نیوز گفت اقتصاد تحت محاصره جمهوری اسلامی ایران به‌زودی و پس از تحویل آخرین محموله‌های نفتی خود، در حدود دو هفته دیگر «چیزی برای مبادله» نخواهد داشت.
-به نوشته نیویورک پست، بسنت در مصاحبه با فاکس‌نیوز ارزیابی کرد که جمهوری اسلامی به دلیل فروپاشی اقتصاد خود که با اجرای «عملیات طرد اقتصادی» شتاب گرفته، از روی درماندگی به‌شدت مشتاق توافق است و هشدار داد که مشکلات آن طی دو هفته آینده به شکل چشمگیری وخیم‌تر خواهد شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78587)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 06:18:35
-
-<img src="https://cdn4.telesco.pe/file/Oz8d7FvY46uit3yd9csTPjo2zv2kPvoYTOwMrbnGhTeMJfwYIxYthwpm_t9Ux9wuT57WUI6WHVctHlpJNVRUkugwYNo4JInKddrp3lYBLnogQbVSKQoCtw2_rleCr8BB2sGhmZAE6m_qi6MR0jIUt-FT52NAOvnI0v1lzVlf5zRGeB7Ywhf4tcOXoC9_cZP73DaKYF0nqkjjh-mb2RpNriTideKnKzh5S7dxovgvCS1o0MwESlcFPRR8btcMXdCnQ6g7-fXWDp_6fn89hnP8ku37KHpUZ_rN9kdWUW4jlON1qgfdOnn7hXo1FwlY-HbO7MlT20e55fAoOh1EVACT3A.jpg" width="400"><br>
-
-به گزارش آکسیوس به نقل از یک مقام آگاه، مارکو روبیو، وزیر امور خارجه ایالات متحده، روز دوشنبه ششم مهر پس از به بن‌بست رسیدن مذاکرات با جمهوری اسلامی ایران، دستور داد هیات ایرانی حاضر در مجمع عمومی سازمان ملل، از جمله عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، فورا آمریکا را ترک کند.
-یکی از مقام‌های آمریکایی به آکسیوس گفت: «روبیو هیات ایرانی را که بیش از حد مهمان مانده بود، بیرون کرد. مجمع عمومی سازمان ملل تمام شده بود و وقت آن بود که بروند.» بر اساس این گزارش، نمایندگی آمریکا در سازمان ملل دوشنبه شب به نمایندگی جمهوری اسلامی ایران اطلاع داد که هیات ایرانی باید فورا نیویورک را ترک کند.
-آکسیوس نوشت عراقچی و اعضای هیات چند ساعت بعد راهی فرودگاه شدند و بامداد سه‌شنبه با پروازی از نیویورک به دوحه رفتند. منبع دوم نیز درخواست آمریکا برای خروج هیات را تایید کرد، اما گفت عراقچی از پیش قرار بود دوشنبه‌شب برای بازگشت به تهران حرکت کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78586)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-01 00:54:56
-
-<img src="https://cdn1.telesco.pe/file/BSj8C0qYbQAOI5kLvw-cyIM1Sy2YvuaGGMONRX7AJiVspWXGw-GNy9yyB63Nspo6kJcRb9QxaszQ7dGxe7AKxQ5WXq8VKr6wpGRkRg85aIcAljmonnrzyne4uWAhP9ZvutUhl8mx5-AFW1CCV0TFBN-IeuFP2P48Ck_c-1KJglL8UL8AQO4HSZiJ26EyrpAKTBaURq1kFilbLa8bVoUZZhzgATdMt11TJ1GWsI2tBGIb28TKyXRnqratH-lfqNIfDzfk58CiUr0Pw7uVESpTmqTmCD1-sMGkMkEJUJVKXphAYYeqRGI4cVpuzYVlK7NaQblg0BVkvhDld7qQRa9Qsg.jpg" width="400"><br>
-
-دونالد ترامپ، در پاسخ به سوال خبرنگاری که از او پرسید اگر رهبران جمهوری اسلامی به گفته او «دیوانه» و «غیرمنطقی» هستند، چگونه می‌خواهید با این افراد توافق کنید؟ رئیس‌جمهوری آمریکا پاسخ داد: «شاید آن‌ها را منفجر کنیم. باید تصمیم بگیریم. منفجرشان کنیم، توافق کنیم، وقتش دارد می‌رسد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78585)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-30 22:48:05
-
-
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، در تازه‌ترین اظهارات خود درباره ایران گفت تحولات جدیدی «بسیار زود» رخ خواهد داد.
-ترامپ گفت: «خیلی زود» خواهید دید که اتفاقاتی رخ خواهد داد. او در ادامه گفت ایران «عملا ویران شده» و با تورم بیش از ۳۰۰ درصدی و وضعیت نامناسب اقتصادی روبه‌رو است. رئیس‌جمهوری آمریکا همچنین بار دیگر گفت که در جریان جنگ، نیروی دریایی و نیروی هوایی ایران از بین رفته و تجهیزات پدافند هوایی این کشور نیز نابود شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78584)
-
----
-
-
-
-###### 🔵 Post time: 2026-09-30 20:41:14
-
-<img src="https://cdn4.telesco.pe/file/UIb7iZpPNnwct0_-uxAnh4umFdpS-IVcGsGpyU8ZVNgIbAw8g4S7CfDI1KSls4a4-9YGFHcNsUyH2PbEI65uC7fvqJZ8Hcz1-GbIJgOZfcLbkBGMp93lnpk6W6d75bT7ND4MJmLgPcxXJT7Jam2t4VfbbjHxf6D-AKifXyAW9hol4xL7ItaBHXuL_8ElHJI9LdTO4XZewoXQH0qmLgveg-URL76zkT8kUTmERjoxxnyw17kiMbsv07tDhul6q9jIGeQURvGYxy6b_bUmYk4skdSYFrdHeCksuBrI-2w6RgKw21baENOK1KlIUGSrR4qU4fyxiD1XLcSPw_qpJzVmsQ.jpg" width="400"><br>
-
-اندی برنهام، نخست‌وزیر بریتانیا، روز چهارشنبه هشتم مهر، اعلام کرد که قرائن و شواهد قوی نشان می‌دهد جمهوری اسلامی ایران در حادثه امنیتی اخیر در نزدیکی پایگاه هوایی «فیرفورد» (RAF Fairford) تحت مدیریت آمریکا نقش داشته است.
-پلیس ضدتروریسم بریتانیا روز یکشنبه پنج جوان ۲۳ تا ۲۵ ساله — که همگی اتباع بریتانیا و ساکن لندن هستند — را به اتهام آماده‌سازی برای اقدام تروریستی دستگیر کرد، اما آنان روز بعد با وثیقه آزاد شدند.
-پایگاه هوایی فیرفورد در گلوستشر بریتانیا که پیشینه‌ای طولانی در استفاده توسط نیروهای آمریکایی و ناتو دارد، از ماه مارس به عنوان نقطه‌ای برای پشتیبانی لوجستیکی حملات ایالات متحده علیه ایران مورد استفاده قرار گرفته است. بریتانیا مجوز بهره‌برداری از بمب‌افکن‌های آمریکایی مستقر در این پایگاه را برای هدف قرار دادن سایت‌های موشکی ایران — که کشتی‌های عبوری در تنگه هرمز را تهدید می‌کنند — صادر کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78583)
 
 ---
 
