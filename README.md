@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-03 06:30:32 </h5>
+<h5> 🟢 Updated at: 2026-10-03 13:02:12 </h5>
 </div>
 
 
@@ -308,7 +308,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-01 06:18:35
 
-<img src="https://cdn4.telesco.pe/file/Z1ZPypMJmdGyS42xtV_DeVrmBd2pG2hd3qWJu-h86bhPMMr8sE_UM1LeiQpvTC8LXhm84EtqC5DBCRjthCjXLERvT719r5Q7j8Af7Ivsg-MeLhGBg0Ar1t39pOVG99fcHEvxAk0_bWmegsOwgdcA8svAZuB3DWDAOtU3sFhe-UdrfbIaTF0800QdIOFw6swFpe391F-l8X5Jd_cUA3iedJU0zbUoHaNINMDqXKUBUiXED9is5o-wmqL78eRyxP3KxskLh-MN8wUMxM2wYW-oQmmZifeBAxN6IDiBSD1lDcFNnQo8cjoru2wEdPsaVRN5y0Luh0HFgOgczpRwvVanpA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Oz8d7FvY46uit3yd9csTPjo2zv2kPvoYTOwMrbnGhTeMJfwYIxYthwpm_t9Ux9wuT57WUI6WHVctHlpJNVRUkugwYNo4JInKddrp3lYBLnogQbVSKQoCtw2_rleCr8BB2sGhmZAE6m_qi6MR0jIUt-FT52NAOvnI0v1lzVlf5zRGeB7Ywhf4tcOXoC9_cZP73DaKYF0nqkjjh-mb2RpNriTideKnKzh5S7dxovgvCS1o0MwESlcFPRR8btcMXdCnQ6g7-fXWDp_6fn89hnP8ku37KHpUZ_rN9kdWUW4jlON1qgfdOnn7hXo1FwlY-HbO7MlT20e55fAoOh1EVACT3A.jpg" width="400"><br>
 
 به گزارش آکسیوس به نقل از یک مقام آگاه، مارکو روبیو، وزیر امور خارجه ایالات متحده، روز دوشنبه ششم مهر پس از به بن‌بست رسیدن مذاکرات با جمهوری اسلامی ایران، دستور داد هیات ایرانی حاضر در مجمع عمومی سازمان ملل، از جمله عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، فورا آمریکا را ترک کند.
 یکی از مقام‌های آمریکایی به آکسیوس گفت: «روبیو هیات ایرانی را که بیش از حد مهمان مانده بود، بیرون کرد. مجمع عمومی سازمان ملل تمام شده بود و وقت آن بود که بروند.» بر اساس این گزارش، نمایندگی آمریکا در سازمان ملل دوشنبه شب به نمایندگی جمهوری اسلامی ایران اطلاع داد که هیات ایرانی باید فورا نیویورک را ترک کند.
