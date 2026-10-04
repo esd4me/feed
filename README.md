@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-04 16:27:21 </h5>
+<h5> 🟢 Updated at: 2026-10-04 20:48:49 </h5>
 </div>
 
 
@@ -87,7 +87,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 20:20:45
 
-<img src="https://cdn1.telesco.pe/file/YSo8wXgmiD_DKHHppD84Jt0HrsUdTwtP9XeL-b_KJeSV0eF8SMMjuASyp1Qs2hnWa0zPhFyz13ZQX7u5e0O6RhcArKBnDrhWekk8l289Njvjqxy3zhh-iLLNI1_7b4Ndg_JWUFkLN8Qr0AnDSRn_AhTlDQi0YsBhX7SDGs9CtQaDxJkdev3UEk9BsouSwt0a614F56pTADMntrpDDqDJecaz2uLH84lKhk2paHWBah2AZ-lEidO_5pQUZZKQnike0hKQKBxtMysNt0yekwGuYUH8wdjDqGpaennRlRLH2HG-iowKHbfuzgkpUxGgrhodvJRUHa5c2OlOw1cG1_4SLQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LBFZmd6kHbT3OkaRkUGvzhTydEyLKTiR_tdUmltIbrjeHI0RaAf4rCILz9vnr3oNY62FIVnRirP-xcTWZpYtYspiP3l9eh8s4A6Y8J88JIW33ED5iDQ2Cu1oSF32VR3MLucXa0MBaH5KJ7LlXjiGduPPHgJIJM6OY_kUdpBsawrejVSC6-vLtqzTYW7JCzpj5ZBAYJGjLZbqG_5VLYbYdJX423xLbeB5CE3FsqGC3YcUZDAjMe_HPe-INonXPe54VTfM8LBaBzEVh6XhemyX4pnK8lczoojBx4dZZHim-LoP0sFAkE0kHtvwI_q1iKw5f6c09j-k2-kpnv2sq__Xtg.jpg" width="400"><br>
 
 خبرگزاری فارس روز شنبه یازدهم مهر از شنیده شدن صدای انفجار در تنگه هرمز و هدف گرفته شدن یک کشتی تجاری در مسیر عمان خبر داد.
 فارس مدعی شد، نفتکش «اور وینست» که تحت اسکورت آمریکا قرار دارد، هنگام ورود به تنگه هرمز سامانه رهگیری خود را خاموش کرده بود. این خبرگزاری دولتی نوشت، این دومین هدف‌گیری یک نفتکش در تنگه هرمز در روز شنبه است.
@@ -105,7 +105,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-03 20:20:35
 
-<img src="https://cdn4.telesco.pe/file/dttyhy1WW86Vvqo3snbp6RR1JBmHKXN9gLJykcgRhjvKdEDZjJOt4irKVixua7XzhQVcGRBauouX3ztXKymb95iMLuVZdAU4qHnOp7yFrqurAydIkqab9anG6ZXuFRv2aEj5SL6ySfaWd_MPF8Q8udRnBobHPxUrlLxZUvLLoTMUHzqHyZ9bqojU70yaS5mN2A-gACoMM5h-fluHf6a78tGHJbRCM2TTQDI5tWlwabtw5oW3pEwMhezOXfkhyuIR4JkAbfDDs6jtFaAAxAmbHwFC-DP3CgXo5DcCSO3swEilys5DgP3BiQScouqNP4q8eQxgHQRn6gPo3XH02z7nkQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ZtA_EFboczpsnm8pdzpvUvVDURRtBFnNY47yb0w2Jw-sQSISaHNrlFH2nWVIXbS4S363dyfALPZnJjAO_MT4PNR_uAQ9h7v_iIZt6czQrfkYujs6OF1s6vf0biRcrbOl_xStU1-nzsCbvckit90RlEFC_O4c0iI1tRs3WcvrA8vA-Of26Q3pzUKlOG9i_f2y8Qd7cTRQRpPvsr1y29FO9cA0ERmOfJmQzmUWFDxpV9RZdJJQn0zb6YomWZrhGJgeMGRVhYkSUJnlZjT2dWuRZOLjNXSIr0l4poQ-dI2a7zD5T-M06T62hL1DEDiiH97THAAhaoar2sAEMR96D61OwQ.jpg" width="400"><br>
 
 در پی انتشار گزارش‌هایی از شنیده‌شدن صدای چند انفجار در جزیره قشم در عصر شنبه ۱۱ مهرماه، خبرگزاری مهر نوشت این صداها مرتبط با اقداماتی در خلیج فارس و تنگه هرمز است.
 این خبرگزاری بدون استناد به منابع رسمی نوشت «هیچ اصابت یا حادثه امنیتی در پهنه سرزمینی جزیره» رخ نداده است.
@@ -126,7 +126,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:51:32
 
-<img src="https://cdn1.telesco.pe/file/HBJy0zuyk-V3zr6tiXY2K5OSrNb8tFiF4WyCexE4WXwh3JPxWDkEkg3prNGijkWUheKXpjB_BEoinzadhvAdx7tG0i64Fgo_eRYzxPknVG-0qbxUlT0cXJB3dtcs3X8GDqr72CzjX2X00QDTTUhGnvzRWMszhpimLDjOmnin60fyq5i5yXniO8DMU5xR8mlh-Z8JSLB9GFaGWQPgPh26xnmfUMWGlUrIXsiKwb6kJwQYetNpj6o1J76_pJwmWsMmiAJ66HkIX44WRYa8ZsnY_snWCXmo-tlSlYpxSgaMCzve_iHSYsS04wMrwL08dmyqF51Bv1TnVjj4FZH5aKCGNA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/iXVt26EmE1VuAOWmmtGDhdmcffnQv-wMN_osvre6Piy8_H6J883EUKcVbJHxC6UsZAODXwxJwmCBD5TPxGYtXMUpQXx1_TwGE8EoEhlF58IXkym0YKt323VYou5uKhHQ1fZJsTL-BA5KZtYRmA_87XdbN8ctX-PDw_m3BOuSQrNhpGRgltnBBHDURD82DATMKMvEttB_t5hhUSYywSaCCIlpdMpJjnIKLWteenoBXvQ_RmoubKi-FDah2N3F0q6ZJSgNhuIG1-73_EetEmwbSdEhCEn9fJVsKO85k0gpP9mSqmPvQMGMJHNf8Nl5PijRyr4wvXS881xd3BiHsCO0Rg.jpg" width="400"><br>
 
 پیام‌های دریافتی از قشم  حدود ساعت ۱۶:۳۰:  صدای جنگنده خیلی نزدیک اومد صدا زیاد قشم  همین الان قشم موشک شلیک کردن  16:34 دقیقه   وحید جان از قشم سمت اسکله بهمن موشک شلیک کردن صداش خیلی وحشتناک بود معلوم نیست شلیک کردن یا جنگنده بود ولی هرچی بود صداش خیلی زیاد…
 
@@ -138,7 +138,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:45:04
 
-<img src="https://cdn4.telesco.pe/file/oewGvFJswtZ2peG75QoB4P79MohA8PxBBG4HPMuZLKcsmG10R46tsvdNbVcW50rsUR4loKca-6mVK0U19jTPmdC0czzz21ysAAIP3peDDSHsgYZMXvbbRpPTcs1iwkDNPpN_xHRepxnEw63VVId7lt04xuuWOHWBhruRMaqTygNtrHi_EcRUjGTchrRViMaOP1Iol864fOYor7HppauznqaAvtCrMq9AWto12PXx3zHp6B1z2kawWnmE0alOhRRTHC6hQDRrattQp3eS7-QgCQ0fF8hnnqPzHAUPbdWqhBcswdcBSiAbIAiehyw50LpTDAfBTZctmGWRuI43KnSMVw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Jxgf4lxOOFhugM3m0Oc3owMb6gU1VX9JU3AhKyRFAS1k0cQoCdFw2Tq_82BJueW3iZMT__FtvIGQ5W-af_7kxc7-kzk5rCUhX1kIfEiE5V6-60VD18469MfK0oq6WvMuGt_w9gU3VEmtNiZ5UAcVmZoNL0zEXmao01u2VUkt42GBGM52QYUyWKouMSZL1Q_t3EFH7JmF_VBm19GlWvxTHYNT_nV7Nyx9Qq2ZqGYH6wulEN4rBnzZtWioNwWJIIo3KEOnXavVkSM68UpTd_YIBVhzK4d3tj3556bS5bUJSBPwuNYjBr7avOgR0xmowWHWDqxhNkjJF51MOseDjLoXlQ.jpg" width="400"><br>
 
 روند کاهش ارزش پول ملی ایران روز شنبه ۱۱ مهر ادامه یافت و بهای دلار آمریکا در بازار آزاد برای نخستین بار از مرز ۲۷۰ هزار تومان عبور کرد.
 بر اساس نرخ‌های اعلام‌شده در ظهر شنبه، قیمت فروش دلار به حدود ۲۷۱ هزار تومان و یورو به بیش از ۳۰۵ هزار تومان رسید.
@@ -160,7 +160,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:44:34
 
-<img src="https://cdn4.telesco.pe/file/MYdNW93GrLt6YQNzJJOk7YohwJEAkvQoz9oejofSrqMv-8LqzWis5LtRYvx7FZKb-PfbxoVIIFTVR_tYk8gmoO5OJPAEGRCB_mMv5RYkuWqXTncATskSeQPAxfa-PhFX85SD5QBgcSMWjzCANgmd95KlJXeX0TzQAzUp0mrC01veL4F9J-aPpDrjzT9jh3A0FIJW4bQkcfyzJNTj6vmGMm6GJnZi275dilEeKgNrZ_XHByHLZCgf_Wd2LLP6UhkwxGaEL-sQzw-y2h8Li_6x3e8GPLGok8ZZ_08WGCcUVGYPNcdPcymo7vE7kt_S3oQYliyKVqgRlMQrt4GaJ3mTEg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/IbcNzN3JZS5znbFL3nUNAMrjnD5IkvfQPKYO6GrsnO4ZkYbQwbHDdFqhV-CY7UXKPpdlPpy-y3CGh5DycsEiLxrReduUH2fMGdVG43AnmLm-FV6EyQ1cwZzguEvPZs9zR-e5OdqpBCkyRT5CIhFi1pC3cfHOG9uDshpujKIFNVvX3lyovXqI6e-riayqSCX_L3z63rmtvEQRD68RSx3A2RxmuhBtuG2ahXEGivCly9nlmuyr1HQqyS23vd7AgycFw8OGrVialj-MS873HD7WxoZgNhaF0yf8O-yUuOK1f9EFFzJr7N7SipEY1jVH4F1cqZPN3Ftlmj8DkB9aBxaflA.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا در گفتگو با رسانه آکسیوس،‌ با تاکید بر تاثیربخشی محاصره دریایی ایران اعلام کرد، ایران برای نخستین بار از زمان آغاز صادرات نفت، در هفته جاری هیچ نفتی برای بارگیری و انتقال از طریق دریا نخواهد داشت.
 او همچنین با اشاره به کم اثر شدن نفود نیروهای مسلح جمهوری اسلامی در تنگه هرمز افزود، آمریکا عبور ۱.۱ میلیارد بشکه نفت از را از این آبراهه تسهیل کرده است.
@@ -178,7 +178,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-03 17:43:22
 
-<img src="https://cdn4.telesco.pe/file/LY68-b_WMzTMlF5LKWOSOM3yzXh9mc5gf2gXIPqAVOv6Ofr8dsmQHTr9nWF3k2LZ5_r8a6Z48aEWu9lEcaKIl8qlKauPbNJKZhBR6r7Nu2Ntj8iM-g5GFaVjDUogIoK7InhJoxXKYazrmjwdew5VE4mlHdjjPE91xfgd6wG1pLd5iHPbWRaTPTFyBOjqGv59qYlfFYfq8jY7UeO9PxrWgu3mJYj7PEeu5VN_S8LZJQu50ZurqUqT68tTwZUPy1sLPG6Im1vNA9FtxrUt12EPIOeBhiEXafI4J0Bpuk7fGz5aQfuoriZ4bGtqmw9b_no5zSbvpaROHhCSUNelAwt5YQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/i3cTtXh_6DopGarUql5raNJ6IODCSRnFe-xGfRk5aPH0HZvLedojlZQIzB01qEcHRuLg67RMgL2M4nc8QGkOyt9Z7d81BIIKCmLiWZpwJHzlSF6jXaYuZVfGONH1fPnpG-GE6NlvdZDU_1VN3abOcQ8N1zrS2gdQAu1anSgOvaqivUmowFUXgItFFArdNZdS1Hf2sX48D1bYVA_NrLlPEXqzyVHmqLAiREbDzKGukijF8IBLBDpWXMFdi3SW_xgZ0YQs6d-dcVKAFqz7zJPNimfMv8UVyyVH0b05WCx4JraxmMvrjHlESU1f_KD3gNj0-7yrwPoXEwVB-IZsZAGOPA.jpg" width="400"><br>
 
 پلیس مبارزه با تروریسم بریتانیا دو تبعه ایران را به برنامه‌ریزی برای حمله‌ای تروریستی علیه جامعه یهودیان منچستر متهم کرده است.
 پلیس بریتانیا روز جمعه ۱۰ مهر ۱۴۰۵ این دو نفر را «سلام احمدیان»، ۳۶ ساله و ساکن لیورپول، و «رحمان صالحی»، ۳۴ ساله و ساکن سالفورد، معرفی کرد.
@@ -206,7 +206,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:41:44
 
-<img src="https://cdn1.telesco.pe/file/JHEPPSPPSCzeUpZnE1i691Rf07_38i_QA4wuI-CakXyfgx2Hkp73RIOvieUxO63Ufx69bO2NFw3qJBK0sGedhDBlBM65iIGWraJyH0BH14I4dqvUkO8rpjeRsp-IsU3L7qIF75O4UHQI0EIryLhh-v4UiZ6dj3N0OUo5uUxnJ7Osy09bp-UsR7_ncWoC3CdHt7yocWtzzj1EC1kDH7yU5uks7YWKC41hqjKM3-b_M72AUyCsjC0b0yM56ZW3n5VaZ1VTEslZv8TqOKAt6GxG4pmfvAm1x60BkYmVKWDd1OBumLFvLQwhh_qT6snTw2YL82G-MY6SgyqTAVuJPx2BQA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/DTITp46v0Wn3mRC9YGe882kkZWvYpijuc6CIMRdqC2JNQrMiJRltTUR0pok9NVuhgzJrxvuIer6-Jf2TOlKNF_z6LQnjlCPxPzxHhjEsHjBccWPOUZ8RE8arMGCQVqSIeXSeYIp-G5-leRr1tCgsptgeWI2ezs2-e2zOk0usiKNSMRB6Zj1W8MrauRIRc4jQ6Af7eBO90dtWl1W4KaHWlX3Z-KeudZjxqbcCP__zeYr-FKC9Zzzm_rxo7dzqvkE3gUpWvd47pi4Q3-AAyrTVutG6Pvu0aaCGiYTDgtZDCHQIFm5ygt090yEBw7H0m_3clTu3BkyBPTr3weYmzIGy9g.jpg" width="400"><br>
 
 نتانیاهو: جمهوری اسلامی سقوط خواهد کرد و «روز آزادی» مردم ایران فرا خواهد رسید
 بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مصاحبه‌ای اختصاصی با روزنامه دیلی‌میل که روز شنبه ۱۱ مهر منتشر شد، گفت که به اعتقاد او جمهوری اسلامی «سقوط خواهد کرد» و خطاب به مخالفان حکومت ایران گفت: «ایمان خود را از دست ندهید، روز آزادی شما فرا خواهد رسید.»
@@ -252,7 +252,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:35:39
 
-<img src="https://cdn4.telesco.pe/file/W1v2HQdzeGA5-j_KT2eyx_q9B78cIgNRZVcdLCs6woemq9qAiHlxjywXPolvqnYSOMsWMSBQ5HDGufbbICnHzZTw3I-wNddF1VTjJN7-Mt0UXZ-zkT4v-biZY4pYcPJOH_hSk2NpFN2AOBeXwLwtwBJbKDM7KDwf1yj9kQcRTHDTHkiLa-P3dcm6-iywjCx0CTxZJanDIgbrFLvBap8E4MvG2L7D9dr1ybSmONRX-czlGsWAoK3L1b_s1MisT66vZNhs-VclzFtu6sZ8T6l7wcl-Dg5y_Q2aAl-sm6l77D8S1iWh34Cda8kfcjjS3NOkEeMxuGwUwRwyFSc8QFhvcA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PYVLC3l-OwbYVktEqimBmaUSR8U8QsFlCqmGFCEYa4f9lAKkFZPcFdL0za8uq9C7k_z72gx_uEZi7BUgxL1GrBjrZu1x7X9I-p_iIXgXuSLTQEA7_ub45Vix3AHcjLZuUmDL7op_2GsU-HDbTRF9GvHIx7sY4w_dbWYUKnGJ6rvMsc3EOzRHTikCsete3QYM95J-cd-wrfTsanpqz_SbHHPhV9jzRO-7WrE4Qhjq4_qdiMipummJGnJ2l2YEER8hPY39DZBglNl4An2f1WMACOg9nT_cOKOpTNUaxTW9DabvjNokFgwDnPgMKkvcsOoy-gaTdrw7y1XfeNF-VXfnZA.jpg" width="400"><br>
 
 وزارت اطلاعات جمهوری اسلامی روز شنبه ۱۱ مهر از بازداشت ۳۱ نفر در شهرستان سیرجان در استان کرمان خبر داد و آنها را اعضای چهار «شبکه سازمان‌یافته خرابکاری خیابانی» معرفی کرد.
 این وزارتخانه مدتی شد افراد بازداشت‌شده برای شرکت در «فراخوان‌های سراسری» سازماندهی شده و در حال تهیه کوکتل مولوتف و ابزار تخریب دوربین‌های شهری بوده‌اند.
@@ -271,7 +271,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:32:10
 
-<img src="https://cdn1.telesco.pe/file/HX4EF61WE1CxMPAiBce0x0hfwJE-QtrV1PZdWdyErOF8soe_LUbOTUjNImdAVg1bS30o1lNo3FyfJWhKbQsGfIpzOo7qwEXD0FeJUR7AtniUny2Kt7GsC3mOmVIjgUAjMtvQiZ-g9kkLgMP29_EczzKhw18sKkblYxsCDscVh04ctAO-TipGR19dxjaFQA18FlL3i9G794t1dt8U-u_5eGkmkfsdAtYOkGm_xJyjPIDM-cIZ10JbfgWf2A5s29K2Pd9pL7jQyMtWh8xmSI1DTwzlHLpWfhlfYwkUOgLIgOT0B4MNVVVG6sZf51zFRBuwW6RSE9PAP5jn-ITh7IhWSg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MJTow-sT1ZJh3NX2mdb_1dlKW1-ikjC1vWcz7FIzf8U3kPP7fyPKX9M_O-VgfzG_B2OsH9PsepkPF0M06KhwPLuFsgGqzQvKFYSHRQSp8U74xLynSq2ZO0RmZrM_8UJtUJJUtngGLqV5aYMHueaVuOXvAiRqHXSLTNTmgsEvooFXU3Eg6U4DHZN-i7WBZcThsHokBoXOOTGZ759CNDE6zUiQXaZF5pzB-eMi8r6AxAiRmfVdlovFQDMRTG8CbBIbpbR0HIC6p5K2E_ObezEstm6dOZNWRR8u3UR6S1J3S7jVRJQXJDAyfIMKNpMpCmKhTc9gGeDki9-kyKbZV2jYUg.jpg" width="400"><br>
 
 قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام «سیاوش جمشیدی خیرآبادی»، از بازداشت‌شدگان اعتراضات سراسری دی۱۴۰۴، در بامداد شنبه ۱۱مهر۱۴۰۵ خبر داد.
 قوه قضاییه همچنین ادعا کرده است که جمشیدی خیرآبادی شامگاه ۱۸ دی ۱۴۰۴ در خیابان ناصرخسرو شهرکرد به‌سوی ماموران تیراندازی کرده و سپس از محل گریخته است. براساس این روایت، او دو روز بعد، ۲۰ دی ۱۴۰۴، درحالی‌که یک قبضه سلاح کمری همراه داشت، بازداشت شد.
