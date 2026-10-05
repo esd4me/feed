@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-05 03:13:03 </h5>
+<h5> 🟢 Updated at: 2026-10-05 06:38:44 </h5>
 </div>
 
 
@@ -256,7 +256,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-03 17:38:42
 
-<img src="https://cdn4.telesco.pe/file/vyKpiI9OEUPpWoKFcopYGha3u0xEmiF5zORvI_c_boo6_AWkxa0-8adMHQjH1Fu5dtN1hH3B2Fs2Zh0JXoFqK5u8bI_RFNv50W42czN4JcQ38NsxkWVtFAlAo9lvhCMkt_LrJHnvtOhxoEtBKQDP6dsDx2LUtYibjAvFb9vI2UzZYqdr_l_pQGaCVwa9SvG6rndzq_VclO0u_XvhsMrykhiSFEMmKgqsN3GxiOBok3uFmRdX7ijRJYRSt8wCkeRO0hZXM4_w9sR6j6My20geV709epoFRp3s_Kq1zI-0ti-0Pkl-AlZHe5FL3BxHBpHqaTEKwUx4bD--wd3CeZcUow.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/tVqdbYzlEAB1ORig88WnyDnv_E5iN9uezZdsX3SNc1xe0Gbe-QSVEM0wPrAxaMb11QTrvXJNyKVKV7r1J-kxADq-hfh0p7BaRSDRc9bMhb58zHl1qOFLTfvPod0eH6B2smhJFD4SorZaOSKUX7uSjbCQJymAtIc7rx9cllb0JGD74jOwvap8rcshe6sqOXv-tJOmBIc0sD9xUPmIVfL-wowbHC8jG6JYJPcu3VroW96W6dztiDOdu9WGOTmxPM8bXTKTpS1Wp5GrmEUZRviUVVi7enHR60Tc-MgDgIof7KlvYJsAk2Pmw9dg0XJsjYBxfwgp7EvYvTsYcThQ-0CJhQ.jpg" width="400"><br>
 
 در پی تیراندازی مقابل ساختمان دادگستری مهاباد در روز شنبه ۱۱ مهر، یک نفر کشته و چهار نفر زخمی شدند.
 امیررضا رسولیان، فرمانده انتظامی مهاباد، اعلام کردە  این تیراندازی مقابل در دادگستری این شهرستان رخ داده و در جریان آن یک نفر کشتە  و چهار نفر زخمی شده‌اند.
