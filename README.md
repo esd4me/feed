@@ -3,13 +3,94 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-05 14:29:58 </h5>
+<h5> 🟢 Updated at: 2026-10-05 23:04:19 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-05 21:02:11
+
+<img src="https://cdn4.telesco.pe/file/YLlEQY_6PCajquStLnFGKKKEFHS1nZDkBVCIdaiSxhyEFW7Tp1JRiDnQH6GZfDjI7rT34L5MfYKmnbR1rypEoMzorEAVGu0AOWwBEm0vBwP2ry8ax_X2ATeYVEh0o7IUL2tmNFHHgr7PJlsWSNuO0DSNjUEjjkDPJWSxGLVz3fOnSq_lY00ZUx8NRxG7TVBynz6Vvkz91Ke8WquOOnqBsE2-2ct5FyVXPAPpy9iB-j2QXsV9wHLNtZN536TY6Ug7ILNmhRX1xPymq7kqiKosWE2kj7rVDZmvCMlLA8bYpMV40PMDceE-L2FvaW5WO1DWjjLh-nAMh2L6fgYd17ZPGA.jpg" width="400"><br>
+
+رئیس‌جمهور آمریکا می‌گوید آنچه باعث افزایش قیمت گازوئیل شده دیگر ربطی به تنگهٔ هرمز ندارد، چرا که به گفتهٔ او، اکنون مقادیر بی‌سابقه‌ای نفت تقریباً به‌صورت روزانه از این آبراه خارج می‌شود.
+دونالد ترامپ روز دوشنبه ۱۳ مهر با انتشار پیامی در شبکه اجتماعی خود، تروث‌سوشال، افزایش قیمت گازوئیل را به «پالایشگاه‌ها» مرتبط دانست و نوشت: «پالایشگاه‌های روسیه توسط اوکراین هدف قرار می‌گیرند و پالایشگاه‌های ما که در ایالت‌های آبی (دموکرات‌نشین) مانند کالیفرنیا، توسط "دمکرات‌های احمق" تعطیل می‌شوند».
+اشاره رئیس‌جمهور آمریکا به گزارش‌هایی است که در روزهای اخیر از افزایش میزان خروج نفت از تنگهٔ هرمز منتشر شده است.
+شرکت کپلر، ناظر بر کشتیرانی جهانی، روز ۱۳ مهر گفت که داده‌هایش نشان می‌دهد صادرات نفت خاورمیانه، بدون احتساب ایران، طی هفته گذشته، با وجود حملات به کشتی‌ها در تنگهٔ هرمز، از سطح پیش از جنگ فراتر رفته است.
+با وجود افزایش میزان خروج نفت از تنگهٔ هرمز، قیمت جهانی نفت در محدوده ۱۰۰ دلار در هر بشکه باقی مانده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78628)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-05 17:59:29
+
+
+
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO) روز دوشنبه ۱۳ مهر، با انتشار اطلاعیه‌های رسمی، وقوع سه حادثه امنیتی جداگانه را در آب‌های تنگه هرمز و در تاریخ‌های ۱۱ و ۱۲ مهر تایید کرد. پیشتر خبرگزاریهای فارس از هدف قرار گرفتن یک نفتکش در روز شنبه خبر داده بود و روز یکشنبه نیز ایرنا از شنیده شدن صدای انفجار در حوالی جزیره قشم خبر داده و احتمال هدف قرار دادن «شناورهای متخلف» را مطرح کرده بود.
+بر اساس هشدارهای رسمی UKMTO، روز شنبه یک نفتکش حامل نفت خام حین تردد در تنگه هرمز، هدف اصابت یک پرتابه ناشناس قرار گرفته است. روز یکشنبه نیز دو شناور شامل یک نفتکش حمل گاز مایع (LPG) و یک نفتکش دیگر حامل نفت خام که از سمت خلیج فارس وارد شده و در حال گذر از تنگه هرمز بودند، توسط پرتابه‌های ناشناس مورد اصابت قرار گرفتند.
+سازمان UKMTO ضمن آغاز تحقیقات رسمی درباره این حملات، به تمامی شناورهای تجاری و نفتکش‌ها توصیه کرده است با احتیاط کامل از این منطقه راهبردی عبور کرده و هرگونه فعالیت مشکوک را فورا گزارش دهند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78626)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-05 16:08:30
+
+<img src="https://cdn1.telesco.pe/file/Gg0OQh9GY6P82NxZ-I03jEiZXX2aTNhbPt_77YPyB597UcTbPYEgCTYVIKlNLOBjjHXNyi6eKP03I9gOacByDLj53iXDvNcpO5Bu1THG9XY8dbGaSKfk0mQhvyTVf19XN5nm3Y2Pcy4fqNb-hMly5D7Dz4ymUpE_HIl990CyvOfLtHKPkbBsI8NhxO37UMLoLeggfTSj34p_Icp8Xj98ZmET6WoqRN0z4cD6Ab_3qpNlFOejKylDeovIGGuVSdiMjSnbquW78BMlxu0cG2hGdyCs1zdz--xBjJxwiyUmCfHoqFNRS37rZZaq3HiZyEq5gReE5lL01_bKQWOcBwZPkA.jpg" width="400"><br>
+
+جمهوری اسلامی علیرضا رئیسی از بازداشت‌شدگان اعتراضات دی ۱۴۰۴ را اعدام کرد
+- علیرضا رئیسی سحرگاه روز دوشنبه ۱۳ مهرماه همراه با علیرضا سپاهی، از دیگر بازداشت‌شدگان اعتراضاتدی ۱۴۰۴، در زندان دستگرد اصفهان اعدام شد.
+- روز گذشته برخی منابع خبری از فراخوانده شدن خانواده علیرضا رئیسی به زندان دستگرد اصفهان خبر داده و گفته بودند این زندانی سیاسی برای اجرای حکم اعدام به سلول انفرادی منتقل شده است.
+- علیرضا رئیسی فرزند دختر عموی جاویدنام رامین رئیسی از کشته‌شدگان اعتراضات دی۴۰۴ است. رامین رئیسی ۱۹ دی‌ماه با شلیک مأموران حکومتی در جریان سرکوب اعتراضات کشته شد. پیکر وی را ۲۸ دی‌ماه به خانواده تحویل دادند که در «باغ رضوان» اصفهان به خاک سپرده شد.
+- علیرضا رئیسی روز پس از خاکسپاری رامین رئیسی بازداشت شد. خانواده علیرضا تا ۲۰ روز پس از بازداشت فرزندشان هیچ خبری از او نداشتند. او طی آن سه هفته زیر شدیدترین شکنجه‌ها و فشارها برای اعتراف اجباری علیه خود قرار داشته و حتی تهدید به تزریق آمپول هوا شده بود.
+- علیرضا رئیسی و علیرضا سپاهی از متهمان پرونده «میدان علیخانی» اصفهان هستند که به اعتراضات شامگاه ۱۸ دی مرتبط است و نهادهای امنیتی مدعی کشته شدن چهار بسیجی و مأمور یگان ویژه در جریان این اعتراضات شدند.
+- در پرونده «میدان علیخانی» ۱۲ شهروند به اعدام محکوم شدند. با اعدام علیرضا رئیسی و علیرضا سپاهی، شمار اعدام‌شدگان متهمان پرونده «میدان علیخانی» به هفت تن رسیده است.
+KayhanLondon
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78625)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-05 16:06:49
+
+<img src="https://cdn1.telesco.pe/file/jnbpM0zK_qLyQ6EW0NjFv0a7KN1xOLofm8arNaMBVUN3lSJk7MWnjKD5ioa63ntZKyb03fh-dhzzJ6ZmFdGgIa-866_X1DolzzN_loEG-QD4BOfOmpTzE1a1Qzok8JMvZ6N9upPJ62zp58gYmHNHJ-gxbMMgb8LqIN3IjsxLZRXl_iwtqioJMXDfhN2aFz8ksdeFE8zKzHPlVbYiwqI3XZ-hb_Ut1nRVdOjJCBN1S7f0jHyxi_pDAkuJDStPq98mZKrf1Ud_hnOgINwsjN81xyjU8DneTvCEplKJt8duBN2KK3CLSCi62m_cE7WHrA5SRX41xwtjReY9jh7FmZkKqQ.jpg" width="400"><br>
+
+جمهوری اسلامی علیرضا سپاهی از بازداشت‌شدگان اعتراضات دی ۱۴۰۴  را اعدام کرد
+- خبرگزاری «میزان» وابسته به قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام علیرضا سپاهی بادجانی، معروف به علیرضا سپاهی، در سحرگاه روز دوشنبه ۱۳ مهرماه ۱۴۰۵ در زندان دستگرد اصفهان خبر داد.
+- وکیل علیرضا سپاهی روز گذشته با اعلام خبر فراخوانده شدن خانواده علیرضا سپاهی برای ملاقات با او و انتقال این زندانی به سلول انفرادی، از خطر اجرای حکم اعدام وی خبر داده بود.
+- علیرضا سپاهی پیش از اعدام و به صورت تلفنی با نامزدش عقد کرد. مهشاد کشانی، دانشجوی ۲۲ ساله ساکن اصفهان، نیز در اعتراضات دی۴۰۴ بازداشت و به پنج سال حبس تعزیری محکوم شده و در زندان زنان دولت آباد اصفهان محبوس است.
+- علیرضا سپاهی قرار بود سحرگاه سه‌شنبه ششم امرداد ۱۴۰۵ به همراه ابوالفضل سپاهی بادجانی -پسرعمویش- و امیرحسین صفری حسین‌آبادی در ملک شهر اصفهان و در ملاء عام اعدام شود اما پیش از اجرای حکم به علت استرس دچار سکته قلبی شد و اجرای حکم اعدام او عقب افتاد.
++- علیرضا سپاهی چهارمین شهروند بازداشت‌شده در اعتراضات دی۴۰۴ است که طی هفته گذشته و پس از صدور بیانیه ۴۶ کشور در محکومیت اعدام‌ها در ایران، احکام اعدام آنها اجرا شده است. سیاوش جمشیدی خیرآبادی شنبه ۱۱ مهرماه در شهرکرد و علی همتی سیستانی و مجید نیک‌اندیش روز چهارشنبه هشتم مهرماه در مشهد اعدام شدند.
+- پرونده معروف به پرونده «میدان علیخانی» به اعتراضات شامگاه ۱۸ دی ۱۴۰۴ مرتبط است که در محدوده میدان علیخانی، میان ملک‌شهر و کاوه اصفهان رخ داد. نهادهای امنیتی جمهوری اسلامی مدعی شدند در جریان این اعتراضات چهار نیروی بسیج و یگان ویژه کشته شدند.
+- با اعدام علیرضا سپاهی، شش متهم پرونده «میدان علیخانی» اعدام شدند. عرفان اسفندیاری و گل‌محمد محمدی ۲۸ تیرماه در زندان اعدام شدند. ابوالفضل سپاهی و امیرحسین صفری در تاریخ ششم امرداد در «میدان علیخانی» در ملاء عام به دار آویخته شدند و قائم حسینی نیز ۲۹ امرداد در زندان مرکزی اصفهان (دستگرد) اعدام شد.
+KayhanLondon
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78624)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-04 21:42:57
 
-<img src="https://cdn1.telesco.pe/file/JUqxoa12H0cqv2hiY7_uUi_HkYBa0d3PvSMwgPL3qqyNTJo6udXEIYtd34_z_7tSURstxfqHxXYEqpJehoXbNU3jCTrpALowDR02k5_lL9Jp0RRGAt7GDC0w8EpAFEcVECqOIcTZAE3jH-Twaw88aSvOCxegHwluF_ZFhsLYTmtkyZlos-s2jy_8g7h0H-DwL26ofMAtr7yrvP9Z4ICedHZbJ1ZU7-LWHEljSOuyRxLhVCl9TkjSwQWLeFSoWLC4ql51WI2NiJ3gKvbCCoQfYEuqZWd8KUuVd5wbo7Trz1QZHt3lBkBcgmwTUj1HS17wk7vMzv0Xh7I8-0kBrktVvg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ethW8rgU3wUACLWb_ohuq0bQC_y8nGVdAnvxhDjM2JYjUKCdo9EaPDr_eO6-H6cpU3_CEMUPoGQri11se9lyKCnSn_gQvkdf0-IRKjmQJZGg9xClSMXgHedd1FR892nBDzGHr6hZil5IjnGysYiypk2D1NI8J0u2Fc1Wuko4dRVb3u3hU7JaxqhRdZw9cN3L3hTnyoLr8lbawafoMAqlq4VwU2q2I0sv31i53ejEimmlxBeFTtlfEC2gyaBhdBa4ZzbwvX3anWbiT3j_mGwcMj2ZH_NVIfVO8pX1_YhqNE1U6TtdG2pkb7Wbth5hTO6m_HQYHwmNCd8mZCP0C8U_yw.jpg" width="400"><br>
 
 وزیر نفت ایران در پی افشا شدن توقف کامل بارگیری نفت خام کناره‌گیری کرد
 معاون ارتباطات و اطلاع رسانی دفتر رئیس‌جمهور ایران روز یکشنبه ۱۲ مهر اعلام کرد که استعفای محسن پاک‌نژاد، وزیر نفت، مورد پذیرش مسعود پزشکیان قرار گرفت.
@@ -32,7 +113,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-04 15:58:37
 
-<img src="https://cdn4.telesco.pe/file/I_4n-If7Q5-UtWAz0jIPPlXuh36DsEVc623PdjFW9RhR_uDuj1xaRlychgrW0L6LhjRqAh556mhE1PqchB7Mgi9_4XOF4CvJL1jyjquO9uyNVo9oidcWetUOCjS8PvWMUVtE5DChOfs4Z4cghiCSPA5agf3AahdmG3MS06xHmgZyoPT25ONjV-WpI6PI6pHA2s49yv_Yo7gOkTfnmb3mG5TVrIqD7dq2lttc69OYMBsDpc5agbC4RwFVIef9CceQVK4Dy33EfdcbEZ_PJAl5bmMRo0T_UC7k8CS-bQnF_5DlaMCFOGoMAa7irN-T53PJ3fAjvZMSWS4eCH7zfrexgg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/HZPBRJVxM9e-lYgWNL9m-aKkMwAUUJySXwd7vJZI6Cs4JJfclrd8-G_ehG2RQmX9EexX02Yr_m0ENJ3xmx9hvoA3PRp49p0ki-tlZxXSIOmWIraTqZfvNeCJV_7UvEYehXNKMcQqR4lY8105Qq4OMmwp7gCeXfYsr-rQCx82l3625VkZPxdzONn4JDtDTRDdqmaZ033eq0CG83GZOL9s7ZGCxGQamrIzBavWDhY0EUNZbA2skuTK5_JD5VLIGQ1VLwvitmWSWvGUWp0joRa0WvT0ao_ZRf9uygkcMe-pqfE8BySMHc5EfJa7pyWbqrF2ByY4R7ETYd4HkmZHP8KVBg.jpg" width="400"><br>
 
 بازار ارز و طلا در یکشنبه ۱۲ مهر همچنان در مسیر صعودی قرار دارد. قیمت دلار آمریکا با افزایش نسبت به روز گذشته به ۲۷۳ هزار و ۱۰۰ تومان رسیده است.
 دلار در ساعت ۱۵ روز گذشته ۲۶۸ هزار و ۵۰۰ تومان بود و به این ترتیب در کمتر از یک روز ۴ هزار و ۶۰۰ تومان، معادل حدود ۱.۷ درصد افزایش قیمت داشته است.
@@ -51,7 +132,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-04 15:55:14
 
-<img src="https://cdn4.telesco.pe/file/BVW4whK3My570GGy4Q4BEwgkKviyzYyrVb3frMWXUgo25zHKQwZN-QZHinsp3lJMsZFqnGFD3X9KzhLzDPX2xVv3yzcP998iT9u25VzLdLx99EdvJQG3EWWqcghdVdEuQlORbYbY7OJDs7uaLEXjX2dc9NAsjAABF7c7rXE7A9FM02Km9fKVlw1C1SOhMmLXX-Cs-dCwFs9ALGv2NOJgWuTLI3rE6q-GYbWMCE0J_kAUuJmarhPw5UTEi02z70faVHGuZ1E8_xJaiwpG4pcfQnn1elbJxN9C6KGEXH2C1Q_ekxlM_Qyi6euscImB01mfplTIbzPBIKPLZT1qC5WPRw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/KPWZbkoro6Rb23I-vYaGUNI-VlV_46Glx-0yevRJ1U0FcVGrRJBWUQUXGAj-wVW1xYQCl2SOtxETnDQizSg9Mmk3jU695k_cuLihDxgiF8pv4fzU3NWWL4a0L9p4T1uTSwt9_CRQ5mHYGIHjNLD7CAlo4ADg2k23e21N-GyZSP5XPxu4eotO-pESeuNHhdaJbeloY5gui-vDXFc8UjTJ7H4Mqi5GSelV8AYqivvyLxj8Jlq4uoSZNs03lk7Pg1ZHfpG5QdVAxg7WyIEH8L_4dS0ROe0MCWVlGCA2wp3TliuXdcjzTNC1_DHJbbC7XEC8epIf2Xx3ERNsTFlMxvLI6A.jpg" width="400"><br>
 
 عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه ۱۲ مهر با اشاره به دیدارهایش با مقام‌های کشورهای منطقه گفت این رایزنی‌ها «بسیار موثر، محترمانه و دوستانه» بوده است.
 او افزود: «ما مسیر جدیدی برای ایجاد اعتماد میان کشورهای همسایه و جمهوری اسلامی ایران آغاز کرده‌ایم و به‌خصوص در حوزه خلیج فارس، این مسیر را به خوبی طی می‌کنیم.»
@@ -69,7 +150,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-04 15:54:55
 
-<img src="https://cdn1.telesco.pe/file/D5ELcLssYPnOPZezQwgy-IonFavQtwfF11G1cOzMinMSj5xnlD0YqZODX6nf7MTyqvO0s5HC2-tiQyoLKVv6kr9j7P8dfyiIUtJRYPkDRPbOKbk6Dozqr4zicc0UdC0G-yWfzR1bvCHOHoEVSU4XhMbBVxGWObhSkVtNBO_ndQE_HUW-L8pooBc3IKeUWLrpIz58fXO_QpStg3docfXmszqHXgdcB8TCpir89vnNs4i4Hgo7qZjCme9dVC3nGzO_b1wgB9KBQ07ZA7mCwqacWJQOHhpgjzzqzB5KLpn-DkrD4It4aIRAUIiNVtg3v485efF-6UUzr3wIum9DJCVQBg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ac_JYQDCgiKD26vg1167gvWWJCiQooQp9MJ9agDa4_sOlU6KSVq--Cq5ShXiG1ZRtc9uENbn0SpZXUOtrayC8lFPAmpK0L8wSRhXmGSOfMSnyuXfz5Amg8gUeZUsYMX5s2fRIszBSGidXMgyxJs4vBSXZ_DiIriCmSMg26ny-b2DrPFNZi_HeEF3kbOY3rMjqe5qqIqmaeZamEOW0KuWnJSBqPdXT7tnltDA6P3wvadruPqZvcb7MeFusKNiH4AN2Pjedh_aSdIByh9z1CThvTrstuvjaK0_Wx9qoevSpSWovr5mHC2fhaNPIMPZTkSbTWJKFhBi-vhIb7jRuJcAUw.jpg" width="400"><br>
 
 دونالد ترامپ، روز شنبه، با اشاره به تحولات جاری میان تهران و واشنگتن به خبرنگاران اعلام کرد که به‌زودی درباره ایران تصمیم‌گیری خواهد کرد.
 رئیس‌جمهوری آمریکا با تاکید بر اینکه «ایران درهم کوبیده شده است» گفت: «تصمیمی است که درباره ایران خواهم گرفت. تنها مسئله این است که یا از راه آسان خواهد بود یا از راه سخت. ما این موضوع را یا از راه آسان حل می‌کنیم یا از راه سخت.» او در ادامه افزود: «ضمنا همان‌طور که می‌دانید، ایران عملا از هرگونه برنامه‌ای برای دستیابی به سلاح هسته‌ای دست کشیده است.»
@@ -92,7 +173,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-04 15:54:31
 
-<img src="https://cdn4.telesco.pe/file/BlymUWEv8xqivwGMaCj8NAhs4C-u18ggLd_KZK3wXBtx75l-q46i8ozUoE4cRsQVourV0vOpEwevlZCAttMKrL9qM3M3C3XooimkGjdD5ZUiT5JGWqmQ07cc_DwN8nnV52vKgF9rRJnuDcjg4tDMFd3ybMF1BecKHU3WiBtB1P9awkqSWE38Bvq-gqItCzRLNdxzUMidh6bjBb-a7zXzct6fjxgydYSDzG219nQa77Hti4uAvn37VibykbeXQj0cGEskNpE_j4UwWPl4xzL8smrJJ29K98esiKUb3DEiVrpC2mjh9CAZinKWclhe_QimWYdf-ykintgU5lBJxZI46A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/G3Hgphe6hf1mEAyMkeHK21Eggxx-sk0ciHFcns0mUw43MxoDDq_-88R-nKNr00jO0mTF6wx_J8hI6eZWdsHePq836RrA3-z4onwz-cHJ8oHqHriwcnwh5VDF1HpQuAt5TbW39pyBUZmm2liJ0MKgrB85hTJkQ7FeJrd2b8oLPTdc7XkJLSbVkXDnNN5032MDeS8_q76YJxThJNBJDF9NJ8F8t4kPmkbmfMMEYmam3whj2xy2P9TBXT_ZX2o00VykP3df_54H8h4H2YJul62cuD0wSaKhxHcqQgMgliqsScpvTFTofrPbylaFAkPp2c7FGa9G2OI8QfxGOu-_Zznf9A.jpg" width="400"><br>
 
 🔴
 صدور و تایید احکام اعدام برای سه زن در پرونده‌هایی با اتهامات امنیتی، نگرانی‌ها درباره استفاده گسترده‌تر از مجازات اعدام علیه بازداشت‌شدگان و متهمان پرونده‌های سیاسی و امنیتی را افزایش داده است.
@@ -110,7 +191,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 20:20:45
 
-<img src="https://cdn1.telesco.pe/file/LBFZmd6kHbT3OkaRkUGvzhTydEyLKTiR_tdUmltIbrjeHI0RaAf4rCILz9vnr3oNY62FIVnRirP-xcTWZpYtYspiP3l9eh8s4A6Y8J88JIW33ED5iDQ2Cu1oSF32VR3MLucXa0MBaH5KJ7LlXjiGduPPHgJIJM6OY_kUdpBsawrejVSC6-vLtqzTYW7JCzpj5ZBAYJGjLZbqG_5VLYbYdJX423xLbeB5CE3FsqGC3YcUZDAjMe_HPe-INonXPe54VTfM8LBaBzEVh6XhemyX4pnK8lczoojBx4dZZHim-LoP0sFAkE0kHtvwI_q1iKw5f6c09j-k2-kpnv2sq__Xtg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/gYyckf5RHxS5U71DHg7aDue2XGQLTF7P8zPeTG0xL5I_ydbiYDq_gXZAjJLaQ90aIZbyCrkwZ-lLONShR55AVkIq02BikEb55rfuvWKtuun5r4MxgRVeIhgjf8hJXrkT1CB0WP3n2Hbcnzzh4F9-J3Rq8p6iY1bk26wpbHGkqjzj-VCwLfGaiW9ZC5vzU98NQZtt_NuSL8S67xGHNSUq03ZpKlc5Q_qmvhjurJiiDD5sEPZH8SLoo88vX-VyO163vC4rneKsQNytXswYjJukNE-MFKC7yOjbWH8bXzcEyo4wcq7GhI7JXMGqDSIQ8IzWvmL0ktx1SwhL_dPhRISXEA.jpg" width="400"><br>
 
 خبرگزاری فارس روز شنبه یازدهم مهر از شنیده شدن صدای انفجار در تنگه هرمز و هدف گرفته شدن یک کشتی تجاری در مسیر عمان خبر داد.
 فارس مدعی شد، نفتکش «اور وینست» که تحت اسکورت آمریکا قرار دارد، هنگام ورود به تنگه هرمز سامانه رهگیری خود را خاموش کرده بود. این خبرگزاری دولتی نوشت، این دومین هدف‌گیری یک نفتکش در تنگه هرمز در روز شنبه است.
@@ -128,7 +209,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-03 20:20:35
 
-<img src="https://cdn4.telesco.pe/file/ZtA_EFboczpsnm8pdzpvUvVDURRtBFnNY47yb0w2Jw-sQSISaHNrlFH2nWVIXbS4S363dyfALPZnJjAO_MT4PNR_uAQ9h7v_iIZt6czQrfkYujs6OF1s6vf0biRcrbOl_xStU1-nzsCbvckit90RlEFC_O4c0iI1tRs3WcvrA8vA-Of26Q3pzUKlOG9i_f2y8Qd7cTRQRpPvsr1y29FO9cA0ERmOfJmQzmUWFDxpV9RZdJJQn0zb6YomWZrhGJgeMGRVhYkSUJnlZjT2dWuRZOLjNXSIr0l4poQ-dI2a7zD5T-M06T62hL1DEDiiH97THAAhaoar2sAEMR96D61OwQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/niTqqXuTPteoM_eiN7RJMm7Rm7kYKNF7SS9CYLRQPDDqh8FnsqHgNxarLn9_1SZCNQuSBbHFWxzK0sSHB5y6zF6IuNpvVaMZ10NkxnNeKoJam3w0x8T7LEBlTcngZneT3h8Lsavuq6tIS0q8D3m8X1seeQbSmiOmHf89Kgg-MV_3fIlKXk-gPakunEBayXnSQ3A6FD2mNp-MPq8EDadOsJKrq5_uUCtR56Ks7RAOMdmj23eTBVFenSZGNLIXWZ3V9HKLRb9Zb-V5EtIT3crfBAVewa6XPV-SqqEZ7hhHJknxal6OjrcNri6SphONeJrKtuXK0mm48TmhqS94uGN6xg.jpg" width="400"><br>
 
 در پی انتشار گزارش‌هایی از شنیده‌شدن صدای چند انفجار در جزیره قشم در عصر شنبه ۱۱ مهرماه، خبرگزاری مهر نوشت این صداها مرتبط با اقداماتی در خلیج فارس و تنگه هرمز است.
 این خبرگزاری بدون استناد به منابع رسمی نوشت «هیچ اصابت یا حادثه امنیتی در پهنه سرزمینی جزیره» رخ نداده است.
@@ -149,7 +230,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:51:32
 
-<img src="https://cdn1.telesco.pe/file/iXVt26EmE1VuAOWmmtGDhdmcffnQv-wMN_osvre6Piy8_H6J883EUKcVbJHxC6UsZAODXwxJwmCBD5TPxGYtXMUpQXx1_TwGE8EoEhlF58IXkym0YKt323VYou5uKhHQ1fZJsTL-BA5KZtYRmA_87XdbN8ctX-PDw_m3BOuSQrNhpGRgltnBBHDURD82DATMKMvEttB_t5hhUSYywSaCCIlpdMpJjnIKLWteenoBXvQ_RmoubKi-FDah2N3F0q6ZJSgNhuIG1-73_EetEmwbSdEhCEn9fJVsKO85k0gpP9mSqmPvQMGMJHNf8Nl5PijRyr4wvXS881xd3BiHsCO0Rg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qy8yWmuRhhw-kfI3X_yqqt32wTyHEpuaPVnwFonf05WS45fMBJdAP-RS0Xd4BfbjJ9okDJ1VVdWG3vG4dwqAGj3oZXj-R_RwRHgbcHGcW-LNspTSE-SgQPexwyOXV0a_pMKuXxfgrXeDYlLYy3rq5v5bfLQDQOj56xWY5weVDVbBVceMOZCOiiSvddCHpqQSPmHOiqes7cmvqKk7ucH7_jO1Ai9T1fapHegDHSqjEBV6N3npRmBSLbPXEuszrQsD9InDhKC9qVzfyUTqZv2ajYEAsntPsPGjIiL0JAwEZEnV1-Nsd7Y5nc3Kc-nDLnInQNkvvuu2hHtEoaPKl8IXzQ.jpg" width="400"><br>
 
 پیام‌های دریافتی از قشم  حدود ساعت ۱۶:۳۰:  صدای جنگنده خیلی نزدیک اومد صدا زیاد قشم  همین الان قشم موشک شلیک کردن  16:34 دقیقه   وحید جان از قشم سمت اسکله بهمن موشک شلیک کردن صداش خیلی وحشتناک بود معلوم نیست شلیک کردن یا جنگنده بود ولی هرچی بود صداش خیلی زیاد…
 
@@ -161,7 +242,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:45:04
 
-<img src="https://cdn4.telesco.pe/file/Jxgf4lxOOFhugM3m0Oc3owMb6gU1VX9JU3AhKyRFAS1k0cQoCdFw2Tq_82BJueW3iZMT__FtvIGQ5W-af_7kxc7-kzk5rCUhX1kIfEiE5V6-60VD18469MfK0oq6WvMuGt_w9gU3VEmtNiZ5UAcVmZoNL0zEXmao01u2VUkt42GBGM52QYUyWKouMSZL1Q_t3EFH7JmF_VBm19GlWvxTHYNT_nV7Nyx9Qq2ZqGYH6wulEN4rBnzZtWioNwWJIIo3KEOnXavVkSM68UpTd_YIBVhzK4d3tj3556bS5bUJSBPwuNYjBr7avOgR0xmowWHWDqxhNkjJF51MOseDjLoXlQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/dR1zzAhFO4_x85rJ91DwhMftmdGqH5kiMzA8hnqVq88NrhWZ6LwdcNDdB2dPp8mjrI3LM7p6tzh4hJQKRL2rBPe1GOd5OjEZaROEuzZv7rLcESWbS8SXk78hkLnR2j1rp_MTLpCU3hVxSaCq0nB7gNS71bxtDXMaoeKvLpW2vTb_kBu9yV4rox5nN8NOPx3jiYmhh-mYp_RZC1JRbKR3AOgxwsh2_WOOr2OFCNl_ef-6ugb2ZHwNAYAtybZujLigIgrBWJJlfb7a0wj33Bxfh2yNXPUmtK7qYjeDXaC4fpKxXVVMfa-I9JM8TWODPZqk0QeXws6wgBEadOKq2TCgpw.jpg" width="400"><br>
 
 روند کاهش ارزش پول ملی ایران روز شنبه ۱۱ مهر ادامه یافت و بهای دلار آمریکا در بازار آزاد برای نخستین بار از مرز ۲۷۰ هزار تومان عبور کرد.
 بر اساس نرخ‌های اعلام‌شده در ظهر شنبه، قیمت فروش دلار به حدود ۲۷۱ هزار تومان و یورو به بیش از ۳۰۵ هزار تومان رسید.
@@ -183,7 +264,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:44:34
 
-<img src="https://cdn4.telesco.pe/file/IbcNzN3JZS5znbFL3nUNAMrjnD5IkvfQPKYO6GrsnO4ZkYbQwbHDdFqhV-CY7UXKPpdlPpy-y3CGh5DycsEiLxrReduUH2fMGdVG43AnmLm-FV6EyQ1cwZzguEvPZs9zR-e5OdqpBCkyRT5CIhFi1pC3cfHOG9uDshpujKIFNVvX3lyovXqI6e-riayqSCX_L3z63rmtvEQRD68RSx3A2RxmuhBtuG2ahXEGivCly9nlmuyr1HQqyS23vd7AgycFw8OGrVialj-MS873HD7WxoZgNhaF0yf8O-yUuOK1f9EFFzJr7N7SipEY1jVH4F1cqZPN3Ftlmj8DkB9aBxaflA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PNIkLK3XZUgiRRC20DUNreEkXF1dBkdO4-LJgtusmK1e5QD3SNIa4jEJqTvK5NvauodQLTaAhX1McEYW4J57UDJz6zsxZpldFvDPmw9WMlsJPdxPbWF4ej-z2nzMkGTPrR7CWlXWkQi2fHBPf613FYHRLz6E9kImxOuhV7wrmkuY4hRzKjXx5S7YmeIFe8MnvtavVvWK65qsZt5Ss8sHjcWPl0exSkOLQj2A10bNqf98EVg6cVylRR8AKsK_122ve6sXnFhhqejaGCJqjJuK4XRbLpTZUoiA0FcOOjnB0riknBkyjcJ2ewHsZxpMHVWOqMLdy9r3qIiTQI6QoSexxA.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا در گفتگو با رسانه آکسیوس،‌ با تاکید بر تاثیربخشی محاصره دریایی ایران اعلام کرد، ایران برای نخستین بار از زمان آغاز صادرات نفت، در هفته جاری هیچ نفتی برای بارگیری و انتقال از طریق دریا نخواهد داشت.
 او همچنین با اشاره به کم اثر شدن نفود نیروهای مسلح جمهوری اسلامی در تنگه هرمز افزود، آمریکا عبور ۱.۱ میلیارد بشکه نفت از را از این آبراهه تسهیل کرده است.
@@ -201,7 +282,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-03 17:43:22
 
-<img src="https://cdn4.telesco.pe/file/i3cTtXh_6DopGarUql5raNJ6IODCSRnFe-xGfRk5aPH0HZvLedojlZQIzB01qEcHRuLg67RMgL2M4nc8QGkOyt9Z7d81BIIKCmLiWZpwJHzlSF6jXaYuZVfGONH1fPnpG-GE6NlvdZDU_1VN3abOcQ8N1zrS2gdQAu1anSgOvaqivUmowFUXgItFFArdNZdS1Hf2sX48D1bYVA_NrLlPEXqzyVHmqLAiREbDzKGukijF8IBLBDpWXMFdi3SW_xgZ0YQs6d-dcVKAFqz7zJPNimfMv8UVyyVH0b05WCx4JraxmMvrjHlESU1f_KD3gNj0-7yrwPoXEwVB-IZsZAGOPA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/opYl565vLZzSq28kXnZmIFWHnC9mX_EiPiTzO0bLFhASIiOnOJ_ZNoeFRdxK9E9HITYbZ1_-3cXLBDe0fqVAOkDDN1NNsRoYcipCvdeNV-PVrEjBEf4VUfmwT0tIxdS4wAYf0fMJ0am3L0qAy04M_Ut5c8OoZudTBXO14Q4uZTPmDy2mgdLXusMijgrxox4zgQeIHJrt2pkZTE4d2CR-6WZCElThB5LduVKNPiSL6zPFgaafwaws4jphjyfRZGg1sXeCPZH84VI-PFXtlu5zPdjo233-KX__6pgpRBXZ2d-JPFCWWRMKAPQLV5LLfBH1ppaJ2oQbiApUL7ceLHL0VA.jpg" width="400"><br>
 
 پلیس مبارزه با تروریسم بریتانیا دو تبعه ایران را به برنامه‌ریزی برای حمله‌ای تروریستی علیه جامعه یهودیان منچستر متهم کرده است.
 پلیس بریتانیا روز جمعه ۱۰ مهر ۱۴۰۵ این دو نفر را «سلام احمدیان»، ۳۶ ساله و ساکن لیورپول، و «رحمان صالحی»، ۳۴ ساله و ساکن سالفورد، معرفی کرد.
@@ -229,7 +310,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-03 17:41:44
 
-<img src="https://cdn1.telesco.pe/file/DTITp46v0Wn3mRC9YGe882kkZWvYpijuc6CIMRdqC2JNQrMiJRltTUR0pok9NVuhgzJrxvuIer6-Jf2TOlKNF_z6LQnjlCPxPzxHhjEsHjBccWPOUZ8RE8arMGCQVqSIeXSeYIp-G5-leRr1tCgsptgeWI2ezs2-e2zOk0usiKNSMRB6Zj1W8MrauRIRc4jQ6Af7eBO90dtWl1W4KaHWlX3Z-KeudZjxqbcCP__zeYr-FKC9Zzzm_rxo7dzqvkE3gUpWvd47pi4Q3-AAyrTVutG6Pvu0aaCGiYTDgtZDCHQIFm5ygt090yEBw7H0m_3clTu3BkyBPTr3weYmzIGy9g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OEd6B76B0nlJnEU1gl54FOSGzyfU8OpVIIl6L4vgc1T3u6v40hFQlanqkQqFo9Oti8IJApAuXaQHlR0MGzFRBcA6BESvRtJlqcdmz4NQS7q1sTUMLNkjTavYqM-J82fhRsw7m-HgWGFAYmf5_NIgUvSUS5I6XzNnzBLKay_CaDRFn7iKw6LWnlp_CnMflH7FTRMoNtspTW-PNbJbarVE3jNer0Th7OCBZHWVSfVJl66nCuWIQd5wxqk4Hzcm31yDq1vcDjIfG-VgnaD7UrdXVqq362OYvfGMuUVMOSgfZBZwQ406vQOutb6L53Phtm77Ga-atE_anTHYjtNvYbNv4w.jpg" width="400"><br>
 
 نتانیاهو: جمهوری اسلامی سقوط خواهد کرد و «روز آزادی» مردم ایران فرا خواهد رسید
 بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مصاحبه‌ای اختصاصی با روزنامه دیلی‌میل که روز شنبه ۱۱ مهر منتشر شد، گفت که به اعتقاد او جمهوری اسلامی «سقوط خواهد کرد» و خطاب به مخالفان حکومت ایران گفت: «ایمان خود را از دست ندهید، روز آزادی شما فرا خواهد رسید.»
@@ -249,66 +330,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78607)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-03 17:38:42
-
-<img src="https://cdn4.telesco.pe/file/tVqdbYzlEAB1ORig88WnyDnv_E5iN9uezZdsX3SNc1xe0Gbe-QSVEM0wPrAxaMb11QTrvXJNyKVKV7r1J-kxADq-hfh0p7BaRSDRc9bMhb58zHl1qOFLTfvPod0eH6B2smhJFD4SorZaOSKUX7uSjbCQJymAtIc7rx9cllb0JGD74jOwvap8rcshe6sqOXv-tJOmBIc0sD9xUPmIVfL-wowbHC8jG6JYJPcu3VroW96W6dztiDOdu9WGOTmxPM8bXTKTpS1Wp5GrmEUZRviUVVi7enHR60Tc-MgDgIof7KlvYJsAk2Pmw9dg0XJsjYBxfwgp7EvYvTsYcThQ-0CJhQ.jpg" width="400"><br>
-
-در پی تیراندازی مقابل ساختمان دادگستری مهاباد در روز شنبه ۱۱ مهر، یک نفر کشته و چهار نفر زخمی شدند.
-امیررضا رسولیان، فرمانده انتظامی مهاباد، اعلام کردە  این تیراندازی مقابل در دادگستری این شهرستان رخ داده و در جریان آن یک نفر کشتە  و چهار نفر زخمی شده‌اند.
-یک منبع مطلع به ایران‌وایر گفت فرد مهاجم که چند سال پیش فرزندش را از دست داده اعضای خانواده فردی را که او مسئول قتل فرزندش می‌دانسته و در حال حاضر به عنوان متهم در زندان تحمل حبس می‌کند هدف تیراندازی قرار داده است.
-به گفته این منبع، مهاجم پس از تیراندازی توسط مأموران انتظامی در محل بازداشت شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78606)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-03 17:35:39
-
-<img src="https://cdn4.telesco.pe/file/PYVLC3l-OwbYVktEqimBmaUSR8U8QsFlCqmGFCEYa4f9lAKkFZPcFdL0za8uq9C7k_z72gx_uEZi7BUgxL1GrBjrZu1x7X9I-p_iIXgXuSLTQEA7_ub45Vix3AHcjLZuUmDL7op_2GsU-HDbTRF9GvHIx7sY4w_dbWYUKnGJ6rvMsc3EOzRHTikCsete3QYM95J-cd-wrfTsanpqz_SbHHPhV9jzRO-7WrE4Qhjq4_qdiMipummJGnJ2l2YEER8hPY39DZBglNl4An2f1WMACOg9nT_cOKOpTNUaxTW9DabvjNokFgwDnPgMKkvcsOoy-gaTdrw7y1XfeNF-VXfnZA.jpg" width="400"><br>
-
-وزارت اطلاعات جمهوری اسلامی روز شنبه ۱۱ مهر از بازداشت ۳۱ نفر در شهرستان سیرجان در استان کرمان خبر داد و آنها را اعضای چهار «شبکه سازمان‌یافته خرابکاری خیابانی» معرفی کرد.
-این وزارتخانه مدتی شد افراد بازداشت‌شده برای شرکت در «فراخوان‌های سراسری» سازماندهی شده و در حال تهیه کوکتل مولوتف و ابزار تخریب دوربین‌های شهری بوده‌اند.
-وزارت اطلاعات همچنین این افراد را به دست داشتن در «آتش‌زدن فرمانداری، تخریب بانک‌ها و ساختمان‌های دولتی و حمله به مقر پلیس» در جریان رویدادهای دی‌ماه ۱۴۰۴ متهم کرد؛ رویدادهایی که در اطلاعیه این وزارتخانه از آنها با عنوان «کودتا» یاد شده است.
-در این اطلاعیه جزئیاتی درباره هویت بازداشت‌شدگان یا مستندات مربوط به اتهام‌های مطرح‌شده ارائه نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78605)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-03 17:32:10
-
-<img src="https://cdn1.telesco.pe/file/MJTow-sT1ZJh3NX2mdb_1dlKW1-ikjC1vWcz7FIzf8U3kPP7fyPKX9M_O-VgfzG_B2OsH9PsepkPF0M06KhwPLuFsgGqzQvKFYSHRQSp8U74xLynSq2ZO0RmZrM_8UJtUJJUtngGLqV5aYMHueaVuOXvAiRqHXSLTNTmgsEvooFXU3Eg6U4DHZN-i7WBZcThsHokBoXOOTGZ759CNDE6zUiQXaZF5pzB-eMi8r6AxAiRmfVdlovFQDMRTG8CbBIbpbR0HIC6p5K2E_ObezEstm6dOZNWRR8u3UR6S1J3S7jVRJQXJDAyfIMKNpMpCmKhTc9gGeDki9-kyKbZV2jYUg.jpg" width="400"><br>
-
-قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام «سیاوش جمشیدی خیرآبادی»، از بازداشت‌شدگان اعتراضات سراسری دی۱۴۰۴، در بامداد شنبه ۱۱مهر۱۴۰۵ خبر داد.
-قوه قضاییه همچنین ادعا کرده است که جمشیدی خیرآبادی شامگاه ۱۸ دی ۱۴۰۴ در خیابان ناصرخسرو شهرکرد به‌سوی ماموران تیراندازی کرده و سپس از محل گریخته است. براساس این روایت، او دو روز بعد، ۲۰ دی ۱۴۰۴، درحالی‌که یک قبضه سلاح کمری همراه داشت، بازداشت شد.
-در اطلاعیه قوه قضاییه آمده است که حکم اعدام این معترض پس از تایید در دیوان عالی کشور اجرا شد. بااین‌حال، در این اطلاعیه توضیحی درباره زمان برگزاری دادگاه، روند دادرسی و دسترسی او به وکیل منتخب ارایه نشده است.
-مقامات جمهوری اسلامی معترضان دی‌ماه ۱۴۰۴ را «کودتاگر» خوانده و آن‌ها را به ارتباط با آمریکا و اسراییل و تلاش برای ایجاد ناامنی متهم می‌کنند.
-«مسعود پزشکیان»، رییس‌ دولت جمهوری اسلامی، نیز در سخنرانی اخیر خود در مجمع عمومی سازمان ملل مدعی شد که مردم ایران طی هفت ماه گذشته برای «دفاع از ایران» در خیابان‌ها حضور داشته‌اند.
-او معترضان را افرادی توصیف کرد که به ادعای او، آمریکا و اسرائیل آن‌ها را «تهییج» و مسلح کرده بودند تا در داخل کشور ناامنی ایجاد کنند.
-صدور و اجرای بسیاری از احکام سنگین علیه معترضان دی ماه از جمله احکام اعدام ذیل قوانین «تشدید مجازات جاسوسی» صورت می‌گیرد که از منظر حقوق‌دانان و فعالان حقوق بشر شامل موارد جدی‌ نقض حقوق متهم است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78604)
 
 ---
 
