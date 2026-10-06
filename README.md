@@ -3,8 +3,119 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-06 11:50:03 </h5>
+<h5> 🟢 Updated at: 2026-10-06 19:04:02 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-06 16:37:52
+
+<img src="https://cdn1.telesco.pe/file/jqp4DC7jdcipoCp-RVu_Bm6wx7PRiRK2_fwLQRkIXD6Z7yRji8Iaeg2aD0lVh47aTAW8ZE357n8quLIJQMGALqYWD3xcwNqOpvXIHXYeLS7DYfHoR-zxkktqecoi6dyt_p-9UuA7-AaehfOO_YVZ4O5uv8RvbtbAJ27rxOxC26cX9rYolMn2fXw1k5rAcr2seV8JI3jlq3mGXtZpjQlI0ProBNM-YKL3QGkI-zxjIiRc8LM5V0J9oyjCE_OboFy3lUnyXxumzBVCOuZYt1qL62UD5wsWVQJgdKtrbARDTTNV0aGtRPtW0agcIf9YI5o4ffGtsXxQ7Ek27MhpBMGOLg.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+🚫
+ادعا: رسانه‌های دولتی ایران گزارش‌های نادرستی را منتشر کرده‌اند مبنی بر اینکه یک بالگرد MH-60R نیروی دریایی آمریکا، پس از اعلام وضعیت اضطراری در شب گذشته، در دریای سرخ سقوط کرده است.
+✅
+واقعیت: گزارش‌ها درباره سقوط یک بالگرد نیروی دریایی آمریکا در دریای سرخ صحت ندارند. همه هواگردها و نیروهای نظامی آمریکا در سراسر خاورمیانه در امنیت هستند و وضعیت همه آن‌ها مشخص است.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78640)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-06 16:36:04
+
+<img src="https://cdn1.telesco.pe/file/eIDEGOvKtqnDNH3YlCnJVVD6_KdWnr7IYb_DIrz5kdlA51Tg6CBenBW6UsAfWXJaMVxtWWumLPssRsblBL0_hsuRWWx_2BKcLNlrCNAsVSZGzk3u-gNXanoq7Rb6HOlK3dnPlXS8Cf2B3yUmXTwsFXsorcFfpd652sDIxz_3N71jcpWSe1qGVkLhBHRot18vy_egukgKljywWydJoczONHit5dv36ZQ0neLT0_XUoLYPc2FE5RcxE6jyAnSfvCgN95jHfGteaMt6DdoChBkNCGgtIZPP7sngqaGKz5e5RHnZjMh3WV-ZISWnsbI4nTMqDfPD6sl2E4zsW5zVOvSe0A.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا بعدازظهر سه‌شنبه ۱۴ مهر اعلام کرد گزارشی با تاخیر درباره حادثه‌ای در تنگه هرمز در ۱۳ مهر دریافت کرده است.
+بر اساس گزارش یک «منبع تاییدشده»، یک نفتکش هنگام خروج از تنگه هرمز هدف حمله قرار گرفت.
+در این اطلاعیه به هویت نفتکش، عامل حمله یا میزان خسارت احتمالی اشاره‌ای نشده و سازمان عملیات تجارت دریایی بریتانیا اعلام کرده است مقام‌ها در حال بررسی این حادثه‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78639)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-06 16:35:32
+
+<img src="https://cdn4.telesco.pe/file/MdgP4LcNlNhkuB4Z01r88YqROgkoIeRCaFkqIooaU_tr9eQ4juE6z5GVVy_sShzrvJP_hQfWbAKYQBiQ4ZZXcd4eaVbswEHlgpIh6GOoB2OAQNQk_eYv5USNz8LtepDObmVOailgqZsPL5AtrOqL5nrlV4IWL1PiO06WWgTWEBy5azQ5XyXnGXZijlSQNAluoyUn1B3Oenv_pcRxflTqe-xgIj9CUbxK_Wb_cTnWfIdUHpiuDA9LH0fO7102A8tRjgWYAbmzoO_UP999RVoPJ5rXlP6grCtJYKXbdxOwgQMX_QLvVDmSROEKucJPxoB_PDZX4hluEy0cxasg5ZdBdA.jpg" width="400"><br>
+
+سازمان هواپیمایی کشوری عربستان سعودی روز سه‌شنبه ۱۴ مهرماه اعلام کرد شامگاه دوشنبه، فرودگاه بین‌المللی ملک عبدالله بن عبدالعزیز در جازان و فرودگاه بین‌المللی نجران هدف حمله قرار گرفتند.
+براساس این بیانیه، این حملات منجر به جراحت جزئی سه نفر و بروز خسارات مادی به فرودگاه‌ها شد.
+شورشیان حوثی مورد حمایت جمهوری اسلامی دوشنبه از حمله به فرودگاه‌های عربستان سعودی خبر داده بودند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78638)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-06 16:34:50
+
+<img src="https://cdn4.telesco.pe/file/U7wrk_mx4Cb9pHBTab4ncdSsmsxprAZ18JdHVVnlfLt6fOcDDPCwsNsLVWH-vYpEUF1uVTzZmBLwiDa-7O2EE5GtpdVo6VtmvcmCN0Cef-fBuKgkmbyHC_xpxMCvY2afLtBQJhnaPhejibkPazovNgBhO4FBsu6YczsX4qVOWY8PZyAvSbDyI0s-CXc-D90oNSMvx5DPCQC6dUueRuLZdmwRFvBEOhBs-7bbNbfP_sN53wF5_G0lRMEs0Mk1INYha0GtL3Fulg7gKm988Vgtjq-Fw7G14h23RMHqD_0a69wwuMMAS1OJYCX0mdW5snzSDdKD6P6r1Fy35n-IkYHf4w.jpg" width="400"><br>
+
+۱۰ کشور قاره آمریکا در بیانیه‌ای که روز دوشنبه، ۱۳ مهرماه، منتشر شد «اقدامات تروریستی» جمهوری اسلامی و نیروهای نیابتی‌اش در نیمکره غربی را محکوم کردند.
+در این بیانیه به «تلاش‌های خصمانه ایران و نیروهای نیابتی‌اش از جمله نقشه‌های مرگبار، تأمین غیرقانونی پول، مداخله سیاسی و فعالیت برای نفوذ خارجی» اشاره شده است.
+این بیانیه اشاره می‌کند که هدف از این گونه اقدامات «تقویت شبکه‌های تروریستی، تضعیف فرایندهای قانونی یا دولتی و ضربه زدن به امنیت منطقه‌ای» است.
+ایالات متحده، آرژانتین، کانادا، کلمبیا،‌ کستاریکا، جمهوری دومینیکن، گویان، پاراگوئه،‌ پرو، و ترینیداد و توباگو امضاکنندگان این بیانیه هستند.
+این بیانیه پس از آن منتشر می‌شود که آمریکا و پاراگوئه در ماه سپتامبر گذشته به طور مشترک «نشست مقابله با تروریسم فراملی» را با هدف همکاری در نیمکره غربی علیه «فعالیت تروریستی» تهران برگزار کردند.
+سال گذشته اکوادور که متحد آمریکا است سپاه پاسداران، حماس و حزب‌الله را سازمان‌های تروریستی اعلام کرد و آرژانتین نیز در بهمن‌ماه ۱۴۰۴ نیروی قدس سپاه پاسداران را در فهرست تروریستی قرار داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78637)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-06 16:33:57
+
+<img src="https://cdn1.telesco.pe/file/MFz6FG7KsKLUKZ0-b05GYQBkuFI5zaESJlPAf6bTy7Ybrd4_M5EBGNQ7I4fntjiSJ54Gb2n3mm2YanrFPH6JEqH_QAXHcusek_PMN1lc4Ifq1x3Wlmiv8B-TyIklKCtZ6ojUXyutxPgm83ynrztqOLkeGopE_1DYg_C8ts896LVNUif9IT7PoPiI-gem5xE9jdV1dAZLjS5lCO5lwdkAkVzw6Oh15uMpUSD7uDQRCqCEM5ZCtjWioRcVZJGFFy0o6Ck9crG5fxm3JRX3JSZB34Z-bnRLxM0xrYZ37DSis-3jgd1qFhEVRt3cz1JGpOZZKglnDApm0aPMqzYULqgNfA.jpg" width="400"><br>
+
+هادی عباسیان، ۳۸ ساله و ساکن شیروان، از سوی دادگاه انقلاب بجنورد به اعدام محکوم شده است.
+یک منبع مطلع به ایران‌اینترنشنال گفت حکم اعدام عباسیان یکشنبه ۱۳ مهر در زندان شیروان به او ابلاغ شد.
+هادی عباسیان در جریان اعتراضات دی ماه با انتشار ویدیوهایی از مردم خواسته بود در اعتراضات شرکت کنند.
+تاکنون اتهام دقیق منجر به صدور حکم اعدام و مستندات دادگاه علیه عباسیان مشخص نشده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78636)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-06 16:32:19
+
+<img src="https://cdn4.telesco.pe/file/RySUCfoHgJYes75P63Z8JyUFdlCB-ST4oT3IhMaxGihaTRWUh9xUUAcXH0kkr_BzzvwbCoyi2mgaAGDx_-Br-KAt3-J2t-rXK-H1rt68aNQuMV-Bj9DW6ntcf8-QgWRIN4VaDAHx_KLjsfFLCbjUZmtdq0a2Z1rd7gzg-kYhsR7E2s-wT_bSsh7w-xLf40RRHvRFNCS0Ox3HmRD4CN1mETBFsNWo2C-dSNC-KAoA8xH_fLpqBNytX-baYedmx2ZbK9emved27bmZYY277T37LsjJpm9UVxWRC8G8dvFMkvDlKoy4ZWvqjvrPndmlR7oiC6MtGD6aR7R3H0DqFSvsjg.jpg" width="400"><br>
+
+سازمان حقوق بشر ایران از اجرای مخفیانه حکم اعدام «تورات محمدی»، شهروند ۴۲ ساله افغانستان، در زندان مرکزی کرج خبر داده است. او با اتهام «جاسوسی» به اعدام محکوم شده بود، اما مشخص نیست دستگاه قضایی جمهوری اسلامی او را به جاسوسی برای کدام کشور یا نهاد متهم کرده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78635)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-06 08:18:35
@@ -114,7 +225,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-05 16:08:30
 
-<img src="https://cdn1.telesco.pe/file/Gg0OQh9GY6P82NxZ-I03jEiZXX2aTNhbPt_77YPyB597UcTbPYEgCTYVIKlNLOBjjHXNyi6eKP03I9gOacByDLj53iXDvNcpO5Bu1THG9XY8dbGaSKfk0mQhvyTVf19XN5nm3Y2Pcy4fqNb-hMly5D7Dz4ymUpE_HIl990CyvOfLtHKPkbBsI8NhxO37UMLoLeggfTSj34p_Icp8Xj98ZmET6WoqRN0z4cD6Ab_3qpNlFOejKylDeovIGGuVSdiMjSnbquW78BMlxu0cG2hGdyCs1zdz--xBjJxwiyUmCfHoqFNRS37rZZaq3HiZyEq5gReE5lL01_bKQWOcBwZPkA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XeB7cBMrCn23E_xRvvcyV0CYTi8DrDKLKvgISw4xBMV-pNWfXKH82tpusGg5w76p5NV_3eCg6h6quty20cfR5nsncA_hMWFcG6F572GpBrNxCQLw2OQFgAIJxy5qThwaBC7BDmiLs-jYrRN2-3eNZGzQaBl1NsQZHTenCIjhTiKT1sJuNvY6ExS2kZUTqBrBqgiL0UuaKhUln5rGrfTMnsw5ree4-UUNTQIVjMhCq9z_oTvKqaROzxbJ58q7c3nnjbDHkZAXBbxOaKLB2LVtI0POV-UAxWEHZ5Y0H6OeMzQD3PgZ9GPCkJhd3WpWRiDZAgqHyauDHnZ7cpLAqnDg4Q.jpg" width="400"><br>
 
 جمهوری اسلامی علیرضا رئیسی از بازداشت‌شدگان اعتراضات دی ۱۴۰۴ را اعدام کرد
 - علیرضا رئیسی سحرگاه روز دوشنبه ۱۳ مهرماه همراه با علیرضا سپاهی، از دیگر بازداشت‌شدگان اعتراضاتدی ۱۴۰۴، در زندان دستگرد اصفهان اعدام شد.
@@ -135,7 +246,7 @@ KayhanLondon
 
 ###### 🔵 Post time: 2026-10-05 16:06:49
 
-<img src="https://cdn1.telesco.pe/file/jnbpM0zK_qLyQ6EW0NjFv0a7KN1xOLofm8arNaMBVUN3lSJk7MWnjKD5ioa63ntZKyb03fh-dhzzJ6ZmFdGgIa-866_X1DolzzN_loEG-QD4BOfOmpTzE1a1Qzok8JMvZ6N9upPJ62zp58gYmHNHJ-gxbMMgb8LqIN3IjsxLZRXl_iwtqioJMXDfhN2aFz8ksdeFE8zKzHPlVbYiwqI3XZ-hb_Ut1nRVdOjJCBN1S7f0jHyxi_pDAkuJDStPq98mZKrf1Ud_hnOgINwsjN81xyjU8DneTvCEplKJt8duBN2KK3CLSCi62m_cE7WHrA5SRX41xwtjReY9jh7FmZkKqQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/h3-IswMDWVVI5KaxQkB2JgeIz0hznoCafwQsqJAWoB0WxUDtBwOlBR80oeGl4qcSA3SS3zQyg7-9x3A1EOfvM4rAf5DYiK_0QuU6dS7LjqUKgrgCG31m-N3W736ZsIPJGaHyBBNmPeAGIvYAiUdrSn7efDqRR-gxxOOTsnCuJ9woJYuNeXfSphDk948V2jgcn4FqTDG_ohBCvOapFmkyJf807YuV0SVnTgnn4mZDbJMizDwgNU-KrPhL-c3c_Yrwa9aeUZ3w26TSVHENSlmJ_feC731OiU5dI39VxgMh9aXC2ZG5S_pTXjSRLOpZ8H60N4jnbDXo00H0iWawLlJ7tQ.jpg" width="400"><br>
 
 جمهوری اسلامی علیرضا سپاهی از بازداشت‌شدگان اعتراضات دی ۱۴۰۴  را اعدام کرد
 - خبرگزاری «میزان» وابسته به قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام علیرضا سپاهی بادجانی، معروف به علیرضا سپاهی، در سحرگاه روز دوشنبه ۱۳ مهرماه ۱۴۰۵ در زندان دستگرد اصفهان خبر داد.
@@ -180,7 +291,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-04 15:58:37
 
-<img src="https://cdn4.telesco.pe/file/HZPBRJVxM9e-lYgWNL9m-aKkMwAUUJySXwd7vJZI6Cs4JJfclrd8-G_ehG2RQmX9EexX02Yr_m0ENJ3xmx9hvoA3PRp49p0ki-tlZxXSIOmWIraTqZfvNeCJV_7UvEYehXNKMcQqR4lY8105Qq4OMmwp7gCeXfYsr-rQCx82l3625VkZPxdzONn4JDtDTRDdqmaZ033eq0CG83GZOL9s7ZGCxGQamrIzBavWDhY0EUNZbA2skuTK5_JD5VLIGQ1VLwvitmWSWvGUWp0joRa0WvT0ao_ZRf9uygkcMe-pqfE8BySMHc5EfJa7pyWbqrF2ByY4R7ETYd4HkmZHP8KVBg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/tgNGqaxclrPTh42J3vCObfZ1qTqo5UI-WYGO2EWKjmApJb7y67HK2WKoorYRccwYvV5pagiOGhoS8H6fosicmzvpbSoovSLlygnSCp3X4xJhwCYSfvz3ifKr4VEivBPQUKiNiwb5tK-Kr6yjaJMyRqEy-9adGnYP5jNoTrCp3M9xV2GuQhjyc6_y1elRqeLpAcS_JMFjm_oHE6BH2F2wNcEKeEw8Md-H2K9fCGsj-mj8iNMyr6M2YHZ0-Y-Kg25GD2Xx7CePZ9W9YAtoPX5vITfxAw-_LkKGTcB-1KBm7W1JZct2N1MkkTal7LvEzqqQ6_JF7mgMNv9lmIVPH1wT1w.jpg" width="400"><br>
 
 بازار ارز و طلا در یکشنبه ۱۲ مهر همچنان در مسیر صعودی قرار دارد. قیمت دلار آمریکا با افزایش نسبت به روز گذشته به ۲۷۳ هزار و ۱۰۰ تومان رسیده است.
 دلار در ساعت ۱۵ روز گذشته ۲۶۸ هزار و ۵۰۰ تومان بود و به این ترتیب در کمتر از یک روز ۴ هزار و ۶۰۰ تومان، معادل حدود ۱.۷ درصد افزایش قیمت داشته است.
@@ -199,7 +310,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-04 15:55:14
 
-<img src="https://cdn4.telesco.pe/file/KPWZbkoro6Rb23I-vYaGUNI-VlV_46Glx-0yevRJ1U0FcVGrRJBWUQUXGAj-wVW1xYQCl2SOtxETnDQizSg9Mmk3jU695k_cuLihDxgiF8pv4fzU3NWWL4a0L9p4T1uTSwt9_CRQ5mHYGIHjNLD7CAlo4ADg2k23e21N-GyZSP5XPxu4eotO-pESeuNHhdaJbeloY5gui-vDXFc8UjTJ7H4Mqi5GSelV8AYqivvyLxj8Jlq4uoSZNs03lk7Pg1ZHfpG5QdVAxg7WyIEH8L_4dS0ROe0MCWVlGCA2wp3TliuXdcjzTNC1_DHJbbC7XEC8epIf2Xx3ERNsTFlMxvLI6A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/vg0ncK_WYOSZhy5rwjpKsjY7xPIaCapdp4Ngj2XYZV8Yn2WD-1snFJtvQhCo8Cicv2aW47IBwjgx6A2nmcu4Fo8PGvDldS5CggJzzgxRYMeSR0_53fNRONzbZSE2qcg3gZMDSwYvgJaswpJo3ovkH2gJtiDSLOeJ6NRYReZk5j7rCETFBQn2wXg46ZP8tIjAjyCJYk6tu47NTmkcdnFBku8s7syfYUPtSMNo9ZVDlrqNCAKB9_3aPFm0bMQBSdi1BOX2DD5TTiUCGfoFs01ACTzs3UYXGpQbLwVGE6fc0ZNLgQyy6iYVFwHTjHOrm-ekYM9fIFV9ygvESW2t71EXLQ.jpg" width="400"><br>
 
 عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه ۱۲ مهر با اشاره به دیدارهایش با مقام‌های کشورهای منطقه گفت این رایزنی‌ها «بسیار موثر، محترمانه و دوستانه» بوده است.
 او افزود: «ما مسیر جدیدی برای ایجاد اعتماد میان کشورهای همسایه و جمهوری اسلامی ایران آغاز کرده‌ایم و به‌خصوص در حوزه خلیج فارس، این مسیر را به خوبی طی می‌کنیم.»
@@ -217,7 +328,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-04 15:54:55
 
-<img src="https://cdn1.telesco.pe/file/ac_JYQDCgiKD26vg1167gvWWJCiQooQp9MJ9agDa4_sOlU6KSVq--Cq5ShXiG1ZRtc9uENbn0SpZXUOtrayC8lFPAmpK0L8wSRhXmGSOfMSnyuXfz5Amg8gUeZUsYMX5s2fRIszBSGidXMgyxJs4vBSXZ_DiIriCmSMg26ny-b2DrPFNZi_HeEF3kbOY3rMjqe5qqIqmaeZamEOW0KuWnJSBqPdXT7tnltDA6P3wvadruPqZvcb7MeFusKNiH4AN2Pjedh_aSdIByh9z1CThvTrstuvjaK0_Wx9qoevSpSWovr5mHC2fhaNPIMPZTkSbTWJKFhBi-vhIb7jRuJcAUw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rTLmtkygKnZb3q_TU4TyttGRxnONstWyo1Q4tRMOvEquhVM8holtOnIYdhoKOHKUj6KkWZ3wum2Ws4c3dXblyz5gy2QVJ14ntxsWyGXLqh66Q8hdZcUed6Rs-gV0A6o6R1gb3mF4-x8zOANVA0VLrn39owYhzKlyXMR1d4SNOgzJvC4wkJbJ4D8F2IS4HYzsDGw7hrjTDqt4xYzimjOh0K904mA6EH2crxHlQwrM9Gp11ymXrm-zf0i_VCBAskANWfTmDbgPoE_9ORX8ocD5x_jr7GtEpf_OUF7oganqUIQwOUiPhJNwaWpE44T9JIDWhEttGBReyNrMssLzLbCkeQ.jpg" width="400"><br>
 
 دونالد ترامپ، روز شنبه، با اشاره به تحولات جاری میان تهران و واشنگتن به خبرنگاران اعلام کرد که به‌زودی درباره ایران تصمیم‌گیری خواهد کرد.
 رئیس‌جمهوری آمریکا با تاکید بر اینکه «ایران درهم کوبیده شده است» گفت: «تصمیمی است که درباره ایران خواهم گرفت. تنها مسئله این است که یا از راه آسان خواهد بود یا از راه سخت. ما این موضوع را یا از راه آسان حل می‌کنیم یا از راه سخت.» او در ادامه افزود: «ضمنا همان‌طور که می‌دانید، ایران عملا از هرگونه برنامه‌ای برای دستیابی به سلاح هسته‌ای دست کشیده است.»
@@ -233,42 +344,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78619)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-04 15:54:31
-
-<img src="https://cdn4.telesco.pe/file/G3Hgphe6hf1mEAyMkeHK21Eggxx-sk0ciHFcns0mUw43MxoDDq_-88R-nKNr00jO0mTF6wx_J8hI6eZWdsHePq836RrA3-z4onwz-cHJ8oHqHriwcnwh5VDF1HpQuAt5TbW39pyBUZmm2liJ0MKgrB85hTJkQ7FeJrd2b8oLPTdc7XkJLSbVkXDnNN5032MDeS8_q76YJxThJNBJDF9NJ8F8t4kPmkbmfMMEYmam3whj2xy2P9TBXT_ZX2o00VykP3df_54H8h4H2YJul62cuD0wSaKhxHcqQgMgliqsScpvTFTofrPbylaFAkPp2c7FGa9G2OI8QfxGOu-_Zznf9A.jpg" width="400"><br>
-
-🔴
-صدور و تایید احکام اعدام برای سه زن در پرونده‌هایی با اتهامات امنیتی، نگرانی‌ها درباره استفاده گسترده‌تر از مجازات اعدام علیه بازداشت‌شدگان و متهمان پرونده‌های سیاسی و امنیتی را افزایش داده است.
-🔸
-محبوبه شعبانی در پرونده‌ای به اعدام محکوم شده که امدادرسانی و انتقال معترضان مجروح از جمله اقدامات منتسب به اوست. مژده هاشمی بازرگانی، که حکم اعدامش در دیوان عالی کشور تأیید شده، از شکنجه، اعتراف اجباری و محرومیت از وکیل انتخابی سخن گفته است. سودا ابراهیمی شمس‌آبادی نیز با اتهاماتی از جمله فعالیت رسانه‌ای و ارسال تصاویر برای رسانه‌های فارسی‌زبان خارج از کشور به اعدام محکوم شده است.
-🔸
-هر سه زن با خطر اجرای حکم اعدام روبه‌رو هستند.
-@IranRights
-
-[View Post](https://t.me/VahidOnline/78615)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-03 20:20:45
-
-<img src="https://cdn1.telesco.pe/file/gYyckf5RHxS5U71DHg7aDue2XGQLTF7P8zPeTG0xL5I_ydbiYDq_gXZAjJLaQ90aIZbyCrkwZ-lLONShR55AVkIq02BikEb55rfuvWKtuun5r4MxgRVeIhgjf8hJXrkT1CB0WP3n2Hbcnzzh4F9-J3Rq8p6iY1bk26wpbHGkqjzj-VCwLfGaiW9ZC5vzU98NQZtt_NuSL8S67xGHNSUq03ZpKlc5Q_qmvhjurJiiDD5sEPZH8SLoo88vX-VyO163vC4rneKsQNytXswYjJukNE-MFKC7yOjbWH8bXzcEyo4wcq7GhI7JXMGqDSIQ8IzWvmL0ktx1SwhL_dPhRISXEA.jpg" width="400"><br>
-
-خبرگزاری فارس روز شنبه یازدهم مهر از شنیده شدن صدای انفجار در تنگه هرمز و هدف گرفته شدن یک کشتی تجاری در مسیر عمان خبر داد.
-فارس مدعی شد، نفتکش «اور وینست» که تحت اسکورت آمریکا قرار دارد، هنگام ورود به تنگه هرمز سامانه رهگیری خود را خاموش کرده بود. این خبرگزاری دولتی نوشت، این دومین هدف‌گیری یک نفتکش در تنگه هرمز در روز شنبه است.
-این خبر پس از آن منتشر شد که خبرگزاری مهر ساعتی پیش از شنیده شدن صدای انفجارهایی از سمت دریا در جزیره قشم خبر داده بود و احتمال ارتباط این صداها با شلیک به «کشتی‌های متخلف در تنگه هرمز» را مطرح کرده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78614)
 
 ---
 
