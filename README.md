@@ -3,8 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-06 19:04:02 </h5>
+<h5> 🟢 Updated at: 2026-10-07 00:10:13 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-06 20:13:15
+
+
+
+مرگ یک کارمند ۲۸ ساله موسسه تحقیقات ضدطاعون در سیبری پس از ابتلا به بیماری که گمان می‌رود طاعون ریوی بوده باشد، موجب نگرانی‌هایی شده است.
+بر اساس این گزارش‌ها، داریا شیپیلووای ۲۸ ساله در ۷ مهر ۱۴۰۵ (۲۹ سپتامبر ۲۰۲۶) به بیمارستانی در شهر شلخوف در منطقه ایرکوتسک منتقل شد و دو روز بعد درگذشت.
+ده‌ها نفر که با این زن در تماس بوده‌اند قرنطینه شده و تحت نظر پزشکان قرار گرفته‌اند، اما مقام‌های روسیه می‌گویند تاکنون هیچ مدرکی پیدا نشده که نشان دهد مرگ او با عوامل بیماری‌زایی که در محل کارش با آنها سروکار داشته، مرتبط بوده است.
+مقام‌های روسیه می‌گویند وضعیت تحت کنترل است و تاکنون مورد جدیدی از بیماری‌های عفونی مرتبط با این حادثه گزارش نشده است. با این حال، گزارش‌های تاییدنشده درباره احتمال ابتلای این زن به طاعون ریوی در شبکه‌های اجتماعی منتشر شده است.
+مارکو روبیو، وزیر خارجه آمریکا، گفته است واشنگتن این موضوع را از نزدیک زیر نظر دارد اما در حال حاضر دلیلی برای نگرانی نمی‌بیند. دونالد ترامپ، رئیس‌جمهور آمریکا هم اعلام کرده که آماده کمک به روسیه است.
+@
+VahidHeadline
+, @
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78641)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-06 16:37:52
@@ -143,7 +165,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-06 00:13:05
 
-<img src="https://cdn1.telesco.pe/file/isKAv6xSBYLEYlhTp5BRSpmw3_W43KoXt4f4yyEOLMZR1sZRNTfoeI2lZuWRB0Q3g3siyhA6j-DZLVAEpynnouj3sKYv7jqa-Q9dkS_NGArjkV6xvPkPhj57liOXONl5EdG6haX0YDR7mm0q3yLQkfP9ikqShymKZHTYyHvMZCBOJIbIc5uqaTHFoQGvasSaVKaKrrW2mZ0FW5jl6kHzAxMb1zHo3IiIBifwp_Lw4U8zcV-RXj8pXhXsDr-wrnbSLOSoZ7WwIa-dmk6RDPdC4FmXTG7EGobX3M5eTHxICFxz0YHX9WVBWWWqOGtWmYVZjrOw4QhHs2ihY4s5BoWtyw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LAdoF5P8wh9vfKWrVrxuavesg2jP4C8aDhhaBCIqHSwGxG0BcuZElomOHeyd_clvzvQFTKJ-4U6nGWmvoNuDGly5m1HBzeGALVimzlrmvq-apgok498-fY-LbZe85baG-8YgGY9mq2MOX0hxuKVAZabgv5W8kggaXUmg1U8ChwPcXgIh3DTf8-lqUOa5KRGa5m854DY7mQzlUMNXjiF6gClMj1kIPOLbhRdchvXuGrDExwMjbyjbJub6RnvQHGjkyUVzaHZhfJolM9oy5_NXbwzGCfPLA_AmPoahUKoH3oQwkXiSaTSwxA_T4BM8EeIYj5KGt_7mbJTq2fGVyjZgag.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، در پاسخ به سوال خبرنگاران درباره حادثه امنیتی در نزدیکی پایگاه هوایی فرفورد بریتانیا اعلام کرد که ایران با این پرونده مرتبط است.
 ترامپ درباره دلیل خروج هواپیماهای این کشور از پایگاه فرفورد گفت: «ما با یک تهدید مواجه بودیم و اگر قرار باشد ما را تهدید کنند، هواپیماها را جابه‌جا می‌کنیم. این اقدام تا حدی مشکل را برطرف می‌کند.»
@@ -182,7 +204,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-05 21:02:11
 
-<img src="https://cdn4.telesco.pe/file/YLlEQY_6PCajquStLnFGKKKEFHS1nZDkBVCIdaiSxhyEFW7Tp1JRiDnQH6GZfDjI7rT34L5MfYKmnbR1rypEoMzorEAVGu0AOWwBEm0vBwP2ry8ax_X2ATeYVEh0o7IUL2tmNFHHgr7PJlsWSNuO0DSNjUEjjkDPJWSxGLVz3fOnSq_lY00ZUx8NRxG7TVBynz6Vvkz91Ke8WquOOnqBsE2-2ct5FyVXPAPpy9iB-j2QXsV9wHLNtZN536TY6Ug7ILNmhRX1xPymq7kqiKosWE2kj7rVDZmvCMlLA8bYpMV40PMDceE-L2FvaW5WO1DWjjLh-nAMh2L6fgYd17ZPGA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ElXVHyTk4hlCObFNc7IHr1IWrrWocayL03mS1F5S2CME7eOtzhebdqCKtCCDTvFw6-00tj8gt_FFhFiRJ4fsqRLoh5FaXVoz8v90VVCJ0RhDZV9TyWFVZNxB9h7wS7V76r0nm8_JnF66FDB_pVRUX8pD-lpeVuYhiPQbweOKMMPpQfrr6HH97eOuVthW1YHg9DSUIRhIWUEkKcLk3DwhHHkSNGXhlIA_I9iM5oQXIINpuK3Wg07X_UQ9w6IfVw3gyMD75QvlR6Q5b-aumdzujYTSoTR-u-ki5yQJ9G9tmdNMNbTP2SD5KH8b9Dh6HNGVHFztiZxz2c4jJ6ToO8h0vw.jpg" width="400"><br>
 
 رئیس‌جمهور آمریکا می‌گوید آنچه باعث افزایش قیمت گازوئیل شده دیگر ربطی به تنگهٔ هرمز ندارد، چرا که به گفتهٔ او، اکنون مقادیر بی‌سابقه‌ای نفت تقریباً به‌صورت روزانه از این آبراه خارج می‌شود.
 دونالد ترامپ روز دوشنبه ۱۳ مهر با انتشار پیامی در شبکه اجتماعی خود، تروث‌سوشال، افزایش قیمت گازوئیل را به «پالایشگاه‌ها» مرتبط دانست و نوشت: «پالایشگاه‌های روسیه توسط اوکراین هدف قرار می‌گیرند و پالایشگاه‌های ما که در ایالت‌های آبی (دموکرات‌نشین) مانند کالیفرنیا، توسط "دمکرات‌های احمق" تعطیل می‌شوند».
@@ -268,7 +290,7 @@ KayhanLondon
 
 ###### 🔵 Post time: 2026-10-04 21:42:57
 
-<img src="https://cdn1.telesco.pe/file/ethW8rgU3wUACLWb_ohuq0bQC_y8nGVdAnvxhDjM2JYjUKCdo9EaPDr_eO6-H6cpU3_CEMUPoGQri11se9lyKCnSn_gQvkdf0-IRKjmQJZGg9xClSMXgHedd1FR892nBDzGHr6hZil5IjnGysYiypk2D1NI8J0u2Fc1Wuko4dRVb3u3hU7JaxqhRdZw9cN3L3hTnyoLr8lbawafoMAqlq4VwU2q2I0sv31i53ejEimmlxBeFTtlfEC2gyaBhdBa4ZzbwvX3anWbiT3j_mGwcMj2ZH_NVIfVO8pX1_YhqNE1U6TtdG2pkb7Wbth5hTO6m_HQYHwmNCd8mZCP0C8U_yw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/fgrKzBYJSWeCH0odpSDfwfW-JYm751wKuGqXA31p4pF27Qw6rcGyEk0j_LKuI_CZ65OYt-o3gUtoFdxPK9RpaVJFXiq24o8ccOu7MqXcESTJirFDO5CE-X10IF2bNO-mhsezbto8K1M8eyivTykJnGx1oUh8u5GaN2E4JA2NKZ_R1KQN_jWBcEfrBG9Y9q44BiIqVQh0xMG0HrBDMtMmSpeTEzu2ikpceG6Wutlgc_WykfVzXeNgZOU4mfwTZgz8rxyfFGJFu7E9MppjVKRnglVCiFqiNrP_P9gVtiI-a5_Vm6Yc8VA3udPM-CMbIgNYZi5-A8LvkBNvkz-zLKjdKA.jpg" width="400"><br>
 
 وزیر نفت ایران در پی افشا شدن توقف کامل بارگیری نفت خام کناره‌گیری کرد
 معاون ارتباطات و اطلاع رسانی دفتر رئیس‌جمهور ایران روز یکشنبه ۱۲ مهر اعلام کرد که استعفای محسن پاک‌نژاد، وزیر نفت، مورد پذیرش مسعود پزشکیان قرار گرفت.
@@ -303,47 +325,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78622)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-04 15:55:14
-
-<img src="https://cdn4.telesco.pe/file/vg0ncK_WYOSZhy5rwjpKsjY7xPIaCapdp4Ngj2XYZV8Yn2WD-1snFJtvQhCo8Cicv2aW47IBwjgx6A2nmcu4Fo8PGvDldS5CggJzzgxRYMeSR0_53fNRONzbZSE2qcg3gZMDSwYvgJaswpJo3ovkH2gJtiDSLOeJ6NRYReZk5j7rCETFBQn2wXg46ZP8tIjAjyCJYk6tu47NTmkcdnFBku8s7syfYUPtSMNo9ZVDlrqNCAKB9_3aPFm0bMQBSdi1BOX2DD5TTiUCGfoFs01ACTzs3UYXGpQbLwVGE6fc0ZNLgQyy6iYVFwHTjHOrm-ekYM9fIFV9ygvESW2t71EXLQ.jpg" width="400"><br>
-
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه ۱۲ مهر با اشاره به دیدارهایش با مقام‌های کشورهای منطقه گفت این رایزنی‌ها «بسیار موثر، محترمانه و دوستانه» بوده است.
-او افزود: «ما مسیر جدیدی برای ایجاد اعتماد میان کشورهای همسایه و جمهوری اسلامی ایران آغاز کرده‌ایم و به‌خصوص در حوزه خلیج فارس، این مسیر را به خوبی طی می‌کنیم.»
-وزیر امور خارجه جمهوری اسلامی همچنین گفت کشورهای حوزه خلیج فارس در این روند با ایران همراه هستند و به گفته او، «اراده مشترکی برای ایجاد صلح، ثبات و امنیت در منطقه خلیج فارس، با مشارکت خود کشورهای منطقه، شکل گرفته است که اکنون به‌طور جدی دنبال می‌شود.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78621)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-04 15:54:55
-
-<img src="https://cdn1.telesco.pe/file/rTLmtkygKnZb3q_TU4TyttGRxnONstWyo1Q4tRMOvEquhVM8holtOnIYdhoKOHKUj6KkWZ3wum2Ws4c3dXblyz5gy2QVJ14ntxsWyGXLqh66Q8hdZcUed6Rs-gV0A6o6R1gb3mF4-x8zOANVA0VLrn39owYhzKlyXMR1d4SNOgzJvC4wkJbJ4D8F2IS4HYzsDGw7hrjTDqt4xYzimjOh0K904mA6EH2crxHlQwrM9Gp11ymXrm-zf0i_VCBAskANWfTmDbgPoE_9ORX8ocD5x_jr7GtEpf_OUF7oganqUIQwOUiPhJNwaWpE44T9JIDWhEttGBReyNrMssLzLbCkeQ.jpg" width="400"><br>
-
-دونالد ترامپ، روز شنبه، با اشاره به تحولات جاری میان تهران و واشنگتن به خبرنگاران اعلام کرد که به‌زودی درباره ایران تصمیم‌گیری خواهد کرد.
-رئیس‌جمهوری آمریکا با تاکید بر اینکه «ایران درهم کوبیده شده است» گفت: «تصمیمی است که درباره ایران خواهم گرفت. تنها مسئله این است که یا از راه آسان خواهد بود یا از راه سخت. ما این موضوع را یا از راه آسان حل می‌کنیم یا از راه سخت.» او در ادامه افزود: «ضمنا همان‌طور که می‌دانید، ایران عملا از هرگونه برنامه‌ای برای دستیابی به سلاح هسته‌ای دست کشیده است.»
-@
-VahidOOnLine
-پیت هگست، وزیر دفاع آمریکا، روز شنبه، ۱۱ مهرماه، از پاسخ به سوال‌ها درباره اعزام ناو جدید خودداری، اما تأکید کرد که رئیس جمهور آمریکا «مصمم است» از دستیابی حکومت ایران به سلاح هسته‌ای جلوگیری کند.
-هگست که روز شنبه با خبرنگاران سخن می‌گفت از پاسخ صریح به این پرسش که آیا جنگ با ایران تا پایان سال جاری میلادی، سه ماه دیگر، به سرانجام خواهد رسید خودداری کرد و تصمیم در این باره را با دونالد ترامپ دانست.
-روز شنبه، چند رسانهٔ خبری آمریکا گزارش دادند که پنتاگون در حال اعزام ناوگروه ناو هواپیمابر «تئودور روزولت» و یک گروه آبی‌ـ‌خاکی تفنگداران دریایی به خاورمیانه است؛ اقدامی که در صورت اجرا شمار ناوهای هواپیمابر آمریکا در منطقه را به سه فروند می‌رساند.
-وال‌استریت جورنال به نقل از مقام‌های آمریکایی بدون ذکر نام آنها نوشت این اعزام، همراه با گروه آبی‌ـ‌خاکی «ماکین آیلند»، بین ۹ تا ۱۰ هزار نیروی نظامی دیگر به منطقه می‌افزاید. به نوشته این روزنامه، «تئودور روزولت» به ناوهای هواپیمابر «جرج اچ. دبلیو. بوش» و «جرج واشینگتن» خواهد پیوست که در منطقه حضور دارند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78619)
 
 ---
 
