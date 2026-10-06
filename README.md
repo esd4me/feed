@@ -3,8 +3,31 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-06 04:32:31 </h5>
+<h5> 🟢 Updated at: 2026-10-06 11:50:03 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-06 08:18:35
+
+<img src="https://cdn1.telesco.pe/file/NzD--be0wa3gLPObf_lsS0HMafVFTZ3PlBX54bmM3tQczKfs2-BXK-6szYHLMDCxP09G6jg4VltXtzX4zbsPBsjLIgW6LwzBlyTYZ3iw7pwRuSf179I_po7KoqIYedRPJ25yCxZIt1eP2VSJnVEtZCvLCXodXN3lLdGx4Mr6v21heA1tDX9ru1E3YNMsz73RuEAHAtV9JLKqLFis94s1qH18pVml1uowek1nji8Xrefg--WBhMEeyk18JT9dhzK8ePviYHyY738xvvb6OOw5wRczYqNkhGXtc_fXYDcnWB9zS_F2_Nqb6w8B7YmmgdQe-XWaqOAWwnCncUyxHdndZg.jpg" width="400"><br>
+
+وب‌سایت اکسیوس به نقل از مقام‌های آمریکایی گزارش داد ارتش ایالات متحده در پی دریافت اطلاعاتی درباره احتمال حمله پهپادی جمهوری اسلامی، ۱۲ فروند بمب‌افکن بی‌۱ را از پایگاه هوایی فرفورد، متعلق به نیروی هوایی سلطنتی بریتانیا، خارج کرد.
+وال‌استریت ژورنال علت خروج این بمب‌افکن‌ها را «نگرانی‌های امنیتی درباره طرح‌های احتمالی حمله به پایگاه» عنوان کرده بود.
+دونالد ترامپ، رییس‌جمهوری آمریکا، دوشنبه تایید کرد بمب‌افکن‌ها به دلیل تهدید امنیتی جمهوری اسلامی از این پایگاه خارج شدند.
+این در حالی است که مارکو روبیو، وزیر خارجه آمریکا، ساعاتی پیش‌تر این انتقال را بخشی از جابه‌جایی‌های معمول نیروی هوایی توصیف کرده و گفته بود ارتباط مستقیمی با تهدید ایران نداشته است.
+@
+VahidOOnLine
+روزنامه نیویورک تایمز در گزارشی اختصاصی به نقل از مقام‌های آمریکایی و بریتانیایی نوشته است که آمریکا پس از دریافت اطلاعات جدید درباره احتمال حمله پهپادی که گفته می‌شود سپاه پاسداران آن را طراحی کرده بود، به‌طور ناگهانی هر ۱۲ فروند بمب‌افکن بی-۱ نیروی هوایی آمریکا را از پایگاه هوایی «آرای‌اف فیرفورد» در جنوب انگلیس خارج کرد.
+نیویورک تایمز به نقل از این مقام ها که درخواست کرده اند ناشناس باقی بمانند نوشته:‌ «حمله احتمالی بخشی از یک طرح پیچیده و چندمرحله‌ای ایران برای هدف قرار دادن هواپیماهای آمریکایی و کشتن شماری از چندصد نیروی آمریکایی مستقر در این پایگاه بوده است. به گفته آنها، تمام بمب‌افکن‌های آمریکایی در آخر هفته از پایگاه خارج شدند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78633)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-06 00:13:05
@@ -246,39 +269,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78614)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-03 20:20:35
-
-<img src="https://cdn4.telesco.pe/file/niTqqXuTPteoM_eiN7RJMm7Rm7kYKNF7SS9CYLRQPDDqh8FnsqHgNxarLn9_1SZCNQuSBbHFWxzK0sSHB5y6zF6IuNpvVaMZ10NkxnNeKoJam3w0x8T7LEBlTcngZneT3h8Lsavuq6tIS0q8D3m8X1seeQbSmiOmHf89Kgg-MV_3fIlKXk-gPakunEBayXnSQ3A6FD2mNp-MPq8EDadOsJKrq5_uUCtR56Ks7RAOMdmj23eTBVFenSZGNLIXWZ3V9HKLRb9Zb-V5EtIT3crfBAVewa6XPV-SqqEZ7hhHJknxal6OjrcNri6SphONeJrKtuXK0mm48TmhqS94uGN6xg.jpg" width="400"><br>
-
-در پی انتشار گزارش‌هایی از شنیده‌شدن صدای چند انفجار در جزیره قشم در عصر شنبه ۱۱ مهرماه، خبرگزاری مهر نوشت این صداها مرتبط با اقداماتی در خلیج فارس و تنگه هرمز است.
-این خبرگزاری بدون استناد به منابع رسمی نوشت «هیچ اصابت یا حادثه امنیتی در پهنه سرزمینی جزیره» رخ نداده است.
-خبرگزاری مهر در عین حال این «احتمال» را مطرح کرد که صداهای انفجار شاید به «شلیک به کشتی‌ها» در تنگه هرمز مرتبط باشد.
-این در حالی است که همزمان، تصاویر متعدد و گزارش‌هایی در شبکه‌های اجتماعی منتشر شده که یک قطعه بزرگ و استوانه‌ای‌شکل را در محدوده‌ای شهری در قشم نشان می‌دهد که ظاهر آن به بخشی از یک پرتابه نظامی-دفاعی شبیه است.
-گزارش‌های تأییدنشدهٔ دیگری در شبکه‌های اجتماعی نیز حاکی است که پیش از سقوط این قطعه، صدای عملیات پدافندی و چند انفجار در قشم به گوش رسیده است.
-مقام‌های رسمی تاکنون توضیحی دربارهٔ تصاویر منتشرشده و این حادثه در قشم ارائه نکرده‌اند و رادیوفردا نمی‌تواند جزئیات گزارش‌های منتشرشده را به‌طور مستقل تأیید کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78613)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-03 17:51:32
-
-<img src="https://cdn1.telesco.pe/file/qy8yWmuRhhw-kfI3X_yqqt32wTyHEpuaPVnwFonf05WS45fMBJdAP-RS0Xd4BfbjJ9okDJ1VVdWG3vG4dwqAGj3oZXj-R_RwRHgbcHGcW-LNspTSE-SgQPexwyOXV0a_pMKuXxfgrXeDYlLYy3rq5v5bfLQDQOj56xWY5weVDVbBVceMOZCOiiSvddCHpqQSPmHOiqes7cmvqKk7ucH7_jO1Ai9T1fapHegDHSqjEBV6N3npRmBSLbPXEuszrQsD9InDhKC9qVzfyUTqZv2ajYEAsntPsPGjIiL0JAwEZEnV1-Nsd7Y5nc3Kc-nDLnInQNkvvuu2hHtEoaPKl8IXzQ.jpg" width="400"><br>
-
-پیام‌های دریافتی از قشم  حدود ساعت ۱۶:۳۰:  صدای جنگنده خیلی نزدیک اومد صدا زیاد قشم  همین الان قشم موشک شلیک کردن  16:34 دقیقه   وحید جان از قشم سمت اسکله بهمن موشک شلیک کردن صداش خیلی وحشتناک بود معلوم نیست شلیک کردن یا جنگنده بود ولی هرچی بود صداش خیلی زیاد…
-
-[View Post](https://t.me/VahidOnline/78612)
 
 ---
 
