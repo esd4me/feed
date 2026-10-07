@@ -3,20 +3,69 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-07 10:12:19 </h5>
+<h5> 🟢 Updated at: 2026-10-07 17:34:03 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-07 16:22:38
+
+<img src="https://cdn1.telesco.pe/file/KtMBmCEvQj4OaZI9m3QBFQC8HKOp7bqTtJ3JptiLpk6VpiRNO2mNZAgW57QOCJVjc0913xbIiCRhYAoXa_094eDk9hYoqTHZ8vi71GMDpgt0H4Hvk_l8YHedopF4BUh38ROg8-fjrEN-ckbMet9rZoDgu5uZZ424pEXJHZZjuD1nAFoaohNgfAFpc9PiKthvxA7pOVDTJLvH8m1zsbT4sDIdO-NRxBdkV6RKY-U-Mn8SsKcibB8eDypLwBbVGr7axy6HCp91jZx654D40aeSQs-54KeJlK8bGyOab24mlMxm9hcJSM4poWEVc1TOMXiYMB7SdMAF_HUdlGGHJbNVlg.jpg" width="400"><br>
+
+مارکو روبیو، وزیر خارجه آمریکا، می‌گوید ایران فرصت‌های متعددی را برای دستیابی به توافقی دربارهٔ برنامه هسته‌ای خود با ایالات متحده از دست داده است.
+او روز چهارشنبه ۱۵ مهر در یک نشست خبری مشترک با همتای یونانی خود در آتن گفت: «ایران فرصت‌های متعددی را برای رسیدن به توافق هسته‌ای با آمریکا از دست داده و همچنان مبالغ هنگفتی را صرف تروریسم، تسلیحات و حزب‌الله می‌کند.»
+روبیو همچنین گفت ایران اکنون با اقتصادی رو به فروپاشی و تحریم‌های تازه روبه‌رو است و مسئولیت این وضعیت را متوجه «روحانیون تندرو شیعه حاکم بر ایران» دانست.
+او گفت: «اقتصاد ایران در آستانهٔ رسیدن به وضعیتی است که از نظر وخامت، کمتر کشوری در جهان آن را تجربه کرده است و همهٔ این‌ها نتیجهٔ عملکرد روحانیون تندروی شیعه‌ای است که در آن کشور تصمیم‌گیری می‌کنند. آن‌ها هستند که مردم محروم ایران را به چنین وضعیتی دچار کرده‌اند.»
+وزیر خارجه آمریکا همچنین با تکرار موضع واشینگتن دربارهٔ جلوگیری از دستیابی ایران به سلاح هسته‌ای گفت دونالد ترامپ توان نظامی و بخش بزرگی از ظرفیت صنایع نظامی ایران را از میان برده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78646)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-07 16:22:13
+
+<img src="https://cdn1.telesco.pe/file/Xpdg92YZ1C9P4mRQU04k5f6Vip6WysUyn4-HYpC98qZAB5nRat3vRNey6vJkf1Jr_uiqlMlYxB1rj3mKj9OtfYJJ6BHZd1hQghA2Y-NerJgWXUMcNY6CQYroCQd7qQibBp06PpU7lzwJ1WMZ6YydeQBKD86KeuuFxMvw6J8N5uEYXZmqKUMAGbkZ1ELJ2Pel-_-auANj6VfaLq661rdLEZklG77QYe--z4OGbhpooLTNz6TupZm3ExfPE-_55ALvSKwhVmbhhZuJaJ_7AfCeKRfj0-wYU_30rBacnOgBoue0ZnXsdOFQ6FN65f-qOV-Kh6Xm45Lzf_LuTJjw7D1rXw.jpg" width="400"><br>
+
+روزنامه خراسان نوشت که نجمه امینی، دختر ۲۳ ساله، به اتهام «سب‌النبی و توهین به ائمه معصومین» در فضای مجازی، از سوی شعبه ششم دادگاه کیفری یک خراسان رضوی به اعدام محکوم شده است.
+امینی پیش‌تر در یک فایل صوتی از زندان وکیل‌آباد مشهد از صدور حکم اعدام برای خود خبر داده بود.
+پس از انتشار این فایل صوتی، خبرگزاری فارس، وابسته به سپاه پاسداران، اعلام کرد که هنوز هیچ حکم قطعی برای نجمه امینی صادر نشده و دیوان نیز درباره پرونده او اعلام نظر نکرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78645)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-07 02:51:22
 
-<img src="https://cdn4.telesco.pe/file/hM0hkxXKRqIXKClUAucJ1ak83kj1Yorn3Krl4AdS4ubCSrqfaBLbc7x8gnnp1gPDUvnFA7RjGZnVx-7NCp4Ob91OVi0raye0ZGQSPCB2yiEm8RbiTJhKCb4RcS0h0J_llNpRohDvpil_L2emZ5uxtkJvAcowFd7bxSW6PxyoMQODkDbkVBwXPxKrHb-bMzPry_OXUNi9mcIlSUvLd8ejVgNLaR570GydA7t_xhaDbYBnew1qIPrcmNAgbOhC-ROnou1GeV6PrLwpHDlGU7MvaPMyHcpfNFfX_ugHQYSLEn9t7byHTG8WuumnGKiJpJ9frJRFQ57vfBPRlGcjY06_pA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aq8EALir1QO-9nCFUDKR-fkx3fvBoECx5R45byWTXQ-AlD3I0FS3npX3XVgZXNCX-u4lqztvbyf-O30fyx7X7g3Ch3oPCN78pnHwyK4hXtAxORy8GrwJOvck6A_P4aSThWCyAVtCcv9-kr1JlWqn1GOd6f3dQv3T_AA4oYUPjcK2ljQHCRSRMJ_51ICCFWt3-N8BCTWIdZjgIEGe5OowYzu4k7kDtY0KlrVVoB28Zpfvl7h6BkwLBYVrTtxY-8VCeL8z3QgA0G_X6CAANvkVZfwFFJaZIKJczTvS2A34fptvSNZBLm82deB_1iiI4GSKNyHZAe6UupdFW2wVeGxhSA.jpg" width="400"><br>
 
-جی‌دی ونس، معاون رییس‌جمهوری آمریکا، در مصاحبه با خبرگزاری رویترز گفت: «ایران برای تحقق خواسته‌های آمریکا و پایان دادن به جنگ هفت‌ماهه دو کشور باید به‌طور معناداری ظرفیت غنی‌سازی هسته‌ای خود را کاهش دهد، نه این‌که صرفا وعده کاهش آن در آینده را بدهد.»
-ونس خطاب به مقام‌های جمهوری اسلامی گفت: «اگر سلاح هسته‌ای نمی‌خواهید، پس چرا به سوخت غنی‌شده ۶۰ درصدی نیاز دارید؟ و اگر می‌خواهید تعهد خود را به عدم تولید سلاح هسته‌ای نشان دهید، سوخت با غنای بالا تولید نکنید. این یک مسئله آستانه‌ای بسیار ساده است.»
-او اشاره کرد آمریکا همچنان برای دستیابی به توافق آمادگی دارد، «اما خواستار امتیازات هسته‌ای مشخص از سوی ایران خواهد بود.»
-ونس افزود: «قرار نیست ما کلمات را با عمل معاوضه کنیم.»
-به گفته او، «یکی از عوامل پیچیده‌کننده اوضاع این است که واشینگتن نمی‌داند چه کسی در تهران تصمیم‌گیری می‌کند.»
-ونس گفت آمریکا با مسعود پزشکیان و عباس عراقچی در حال مذاکره است، اما مشخص نیست آنها در ساختار قدرت ایران تا چه اندازه اختیار دارند.
+ونس: ایران باید غنی‌سازی را عملاً کاهش دهد؛ میزان اختیارات پزشکیان و عراقچی روشن نیست
+🔸
+جی‌دی ونس، معاون رئیس‌جمهور آمریکا، می‌گوید حکومت ایران برای پایان یافتن جنگ باید ظرفیت غنی‌سازی اورانیوم خود را به‌طور «معناداری» کاهش دهد و ایالات متحده در مذاکرات با جمهوری اسلامی، به وعده‌های لفظی بسنده نخواهد کرد و خواهان اقدام عملی تهران است.
+🔸
+آقای ونس در گفت‌وگو با خبرگزاری رویترز که بامداد چهارشنبه ۱۵ مهر منتشر شد، همچنین گفت ایالات متحده با مسعود پزشکیان، رئیس‌جمهور ایران، و عباس عراقچی، وزیر خارجه، در تماس و مذاکره است، اما برای واشینگتن روشن نیست این دو مقام تا چه اندازه در ساختار فعلی قدرت ایران اختیار تصمیم‌گیری دارند.
+🔸
+اظهارات او در حالی مطرح می‌شود که تهران و واشینگتن طی هفته‌های اخیر پیشنهادهایی را برای پایان دادن به جنگ و بازگشایی کامل تنگه هرمز ردوبدل کرده‌اند، اما دو طرف همچنان بر سر دامنهٔ مذاکرات و مسئله هسته‌ای اختلاف اساسی دارند.
+🔸
+معاون رئیس‌جمهور آمریکا در پاسخ به پرسش رویترز دربارهٔ شرایط واشینگتن، خطاب به مقامات جمهوری اسلامی گفت: «اگر سلاح هسته‌ای نمی‌خواهید، پس چرا به سوخت غنی‌شدهٔ ۶۰ درصدی نیاز دارید؟ و اگر می‌خواهید تعهد خود را به نساختن سلاح هسته‌ای نشان دهید، سوخت با غنای بالا تولید نکنید. این یک مسئله بسیار پایه‌ای و تعیین‌کننده است.»
+🔸
+او افزود: «فکر می‌کنم اگر آن‌ها بخواهند تعهد خود را به نساختن سلاح هسته‌ای نشان دهند، باید در زمینهٔ ظرفیت غنی‌سازی خود اقدامی معنادار انجام دهند.»
+🔸
+آقای ونس در عین حال تأکید کرد که آمریکا همچنان برای رسیدن به توافق آمادگی دارد، اما چنین توافقی باید شامل امتیازهای مشخص و عملی از سوی ایران در زمینه برنامه هسته‌ای باشد.
+🔸
+او گفت: «ما قرار نیست حرف را با عمل معاوضه کنیم.»
+🔸
+این موضع با مواضعی که مقام‌های جمهوری اسلامی در روزهای اخیر اعلام کرده‌اند فاصلهٔ زیادی دارد.
 @
 VahidOOnLine
 📡
@@ -77,7 +126,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-06 16:37:52
 
-<img src="https://cdn1.telesco.pe/file/jqp4DC7jdcipoCp-RVu_Bm6wx7PRiRK2_fwLQRkIXD6Z7yRji8Iaeg2aD0lVh47aTAW8ZE357n8quLIJQMGALqYWD3xcwNqOpvXIHXYeLS7DYfHoR-zxkktqecoi6dyt_p-9UuA7-AaehfOO_YVZ4O5uv8RvbtbAJ27rxOxC26cX9rYolMn2fXw1k5rAcr2seV8JI3jlq3mGXtZpjQlI0ProBNM-YKL3QGkI-zxjIiRc8LM5V0J9oyjCE_OboFy3lUnyXxumzBVCOuZYt1qL62UD5wsWVQJgdKtrbARDTTNV0aGtRPtW0agcIf9YI5o4ffGtsXxQ7Ek27MhpBMGOLg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/NrMLbXE3x6krmK_SZNejw_X0WljXAzxsqHzex4wMCuaDXfKjF-sC-_mKeWUgsYNo2ocDkaZc8IPFhecPSuigBLCP1OOWPuAXpy3dvmJnXGG5pku3ccua1_OiR2SczA_EJq1kYlyHsNEqwmGQ54GWPkKU48l3KUFTblQgo77NDmn54s24bFdDbIw17jxHVfaPr6EDIRzh6aTK5b5iWx0m2SjmqBrEO9o_qbWiMI08h-yUluid7t6RO9IZp803yckzjwjSFIzNNfbkgjOjruXPxCZ89_s1427NHererx7N1PQSFmZ4YRxzbJym_oQ8HrIVd8eH1flkgX2ABAUaWqQ6uw.jpg" width="400"><br>
 
 پست سنتکام، ترجمه ماشین:
 🚫
@@ -96,7 +145,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-10-06 16:36:04
 
-<img src="https://cdn1.telesco.pe/file/eIDEGOvKtqnDNH3YlCnJVVD6_KdWnr7IYb_DIrz5kdlA51Tg6CBenBW6UsAfWXJaMVxtWWumLPssRsblBL0_hsuRWWx_2BKcLNlrCNAsVSZGzk3u-gNXanoq7Rb6HOlK3dnPlXS8Cf2B3yUmXTwsFXsorcFfpd652sDIxz_3N71jcpWSe1qGVkLhBHRot18vy_egukgKljywWydJoczONHit5dv36ZQ0neLT0_XUoLYPc2FE5RcxE6jyAnSfvCgN95jHfGteaMt6DdoChBkNCGgtIZPP7sngqaGKz5e5RHnZjMh3WV-ZISWnsbI4nTMqDfPD6sl2E4zsW5zVOvSe0A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/iwAYlD3FbONbkmI_swIZaRx5GR-p33BPgkjxbPu0E5FgSPtHtOivE06HPcsLcwHGS3Sp7uogs4DwjZ9T5N5zPo0TdcJ6me_vYmFZp9YDpCNw8LJBT3m4RGcJSEgIeVVefPyL7j1KEYitNEZ6xPMCQ9npotvzPpfB9ChWKDTZSTrNGG1DQCxy2A7aNzR0khbLZTFOHysiyRnhf1QyQ_RJRynC-3nNE_fE77X_hVR3T26t0sWfZjVd0JiI-d52ZjhBNjznPzgWevMwPrRDp-2ASPi81BqcPFHaG4ErprFIXK-yuGUE703E3fLKAQAJPqKRolk2P0SfUVqNjaQdgYGm_g.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا بعدازظهر سه‌شنبه ۱۴ مهر اعلام کرد گزارشی با تاخیر درباره حادثه‌ای در تنگه هرمز در ۱۳ مهر دریافت کرده است.
 بر اساس گزارش یک «منبع تاییدشده»، یک نفتکش هنگام خروج از تنگه هرمز هدف حمله قرار گرفت.
@@ -114,7 +163,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-06 16:35:32
 
-<img src="https://cdn4.telesco.pe/file/MdgP4LcNlNhkuB4Z01r88YqROgkoIeRCaFkqIooaU_tr9eQ4juE6z5GVVy_sShzrvJP_hQfWbAKYQBiQ4ZZXcd4eaVbswEHlgpIh6GOoB2OAQNQk_eYv5USNz8LtepDObmVOailgqZsPL5AtrOqL5nrlV4IWL1PiO06WWgTWEBy5azQ5XyXnGXZijlSQNAluoyUn1B3Oenv_pcRxflTqe-xgIj9CUbxK_Wb_cTnWfIdUHpiuDA9LH0fO7102A8tRjgWYAbmzoO_UP999RVoPJ5rXlP6grCtJYKXbdxOwgQMX_QLvVDmSROEKucJPxoB_PDZX4hluEy0cxasg5ZdBdA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/sKpvSN4bYAfTiTHXUuyq8XtBiF5AHMnCcATBrpiIobdbPhYGHwYQp6h4u30WgqtqLUHkLcdkiujAcIwIqzk9dDJvSn5mD97nw1HRlmKab6YRjzPW2E_jXU-gjTId8AqcULcLaQd4m1Z9EU2SrX3_h9tS0rpAtoN5SVSYkgN-awjRtw9mIqEXa3GePdiu1qJKiUTxFGXhnEoGPNMtrZg6xDi-TuuBmejx6VDTODKe-svBiZyIL_cs9-P6gVHSsTryYXx0eGTrOgDgtU1suRR9VJacSf5uqVvIK3wvAZDJG9_dZrS-4iGkCCQY09DnfvZlD1H91xUcip8g22_UQxKS9w.jpg" width="400"><br>
 
 سازمان هواپیمایی کشوری عربستان سعودی روز سه‌شنبه ۱۴ مهرماه اعلام کرد شامگاه دوشنبه، فرودگاه بین‌المللی ملک عبدالله بن عبدالعزیز در جازان و فرودگاه بین‌المللی نجران هدف حمله قرار گرفتند.
 براساس این بیانیه، این حملات منجر به جراحت جزئی سه نفر و بروز خسارات مادی به فرودگاه‌ها شد.
@@ -132,7 +181,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-06 16:34:50
 
-<img src="https://cdn4.telesco.pe/file/U7wrk_mx4Cb9pHBTab4ncdSsmsxprAZ18JdHVVnlfLt6fOcDDPCwsNsLVWH-vYpEUF1uVTzZmBLwiDa-7O2EE5GtpdVo6VtmvcmCN0Cef-fBuKgkmbyHC_xpxMCvY2afLtBQJhnaPhejibkPazovNgBhO4FBsu6YczsX4qVOWY8PZyAvSbDyI0s-CXc-D90oNSMvx5DPCQC6dUueRuLZdmwRFvBEOhBs-7bbNbfP_sN53wF5_G0lRMEs0Mk1INYha0GtL3Fulg7gKm988Vgtjq-Fw7G14h23RMHqD_0a69wwuMMAS1OJYCX0mdW5snzSDdKD6P6r1Fy35n-IkYHf4w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ocRKtFoI7sF0LIXs9egTs4aP80mC4bGLprmOp5c42b6V9FGhP1yaZq9wMgULbC_Q65GCuz5yJnAXniFY9IFAMuRK2sRhnD1Rwvdhin_i7WjV8r7ijlHmEFzZiMKhKsqj8BxObvkqj6L9TIuQDCFCcYh9Adl4apVajw0B8CPlnL27SypMtwwle6pIuyQj4GZsnegsJC1szvnDHGobfXE8DAKpJeOFAKkcZ4F59hH8B1BGMOk_7AX8NLeaHrrHfKHD8v9jySwu21E3fyOTP8Cczjj0i7KPIbXSiKWFITJiWSb9i9gwEaBlqGOsYNEHkpH5M5V4U1qZDJ0pmxEC51LsMQ.jpg" width="400"><br>
 
 ۱۰ کشور قاره آمریکا در بیانیه‌ای که روز دوشنبه، ۱۳ مهرماه، منتشر شد «اقدامات تروریستی» جمهوری اسلامی و نیروهای نیابتی‌اش در نیمکره غربی را محکوم کردند.
 در این بیانیه به «تلاش‌های خصمانه ایران و نیروهای نیابتی‌اش از جمله نقشه‌های مرگبار، تأمین غیرقانونی پول، مداخله سیاسی و فعالیت برای نفوذ خارجی» اشاره شده است.
@@ -153,7 +202,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-06 16:33:57
 
-<img src="https://cdn1.telesco.pe/file/MFz6FG7KsKLUKZ0-b05GYQBkuFI5zaESJlPAf6bTy7Ybrd4_M5EBGNQ7I4fntjiSJ54Gb2n3mm2YanrFPH6JEqH_QAXHcusek_PMN1lc4Ifq1x3Wlmiv8B-TyIklKCtZ6ojUXyutxPgm83ynrztqOLkeGopE_1DYg_C8ts896LVNUif9IT7PoPiI-gem5xE9jdV1dAZLjS5lCO5lwdkAkVzw6Oh15uMpUSD7uDQRCqCEM5ZCtjWioRcVZJGFFy0o6Ck9crG5fxm3JRX3JSZB34Z-bnRLxM0xrYZ37DSis-3jgd1qFhEVRt3cz1JGpOZZKglnDApm0aPMqzYULqgNfA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/kyILkJurdi5QY5VUbtjbTcNykOlaABmlb2Ncj6CQMEWc7rlljsI0sy9M5AVs0iDlz3wvweRrczmEEdytiLK2GItPWF3GKRZmpZEmXXFoMEAjDkKHDsIapKEo77ie_Y49t_iKbSx0c5Eobo89Xo5NDFraOX8hAKRrHKxqcHQd7CJauXp-5USK9bzY-kn-G6P5XKleXNtuiK5RHQzWcXaoUbgOQ3m6Y_WEqxareWkYxH4DuJcX1IsZ0-b7TlTh_B0Kt1SD_Al_JNQnUxQIMV7vSKd0dY2Pi2trw995Q4RxW2bAcFVJ2sh5gDW_93MgqsFojiF17Nv7dUWfrRFRt9a2eQ.jpg" width="400"><br>
 
 هادی عباسیان، ۳۸ ساله و ساکن شیروان، از سوی دادگاه انقلاب بجنورد به اعدام محکوم شده است.
 یک منبع مطلع به ایران‌اینترنشنال گفت حکم اعدام عباسیان یکشنبه ۱۳ مهر در زندان شیروان به او ابلاغ شد.
@@ -172,7 +221,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-06 16:32:19
 
-<img src="https://cdn4.telesco.pe/file/RySUCfoHgJYes75P63Z8JyUFdlCB-ST4oT3IhMaxGihaTRWUh9xUUAcXH0kkr_BzzvwbCoyi2mgaAGDx_-Br-KAt3-J2t-rXK-H1rt68aNQuMV-Bj9DW6ntcf8-QgWRIN4VaDAHx_KLjsfFLCbjUZmtdq0a2Z1rd7gzg-kYhsR7E2s-wT_bSsh7w-xLf40RRHvRFNCS0Ox3HmRD4CN1mETBFsNWo2C-dSNC-KAoA8xH_fLpqBNytX-baYedmx2ZbK9emved27bmZYY277T37LsjJpm9UVxWRC8G8dvFMkvDlKoy4ZWvqjvrPndmlR7oiC6MtGD6aR7R3H0DqFSvsjg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/UC3DobGEAlBmtnehCNtM3g2RWTd9fem6oxkEuQv0HaU-5THKIAC1XN37OOH1-QpF40tnyyY-lvETOCa2ZvxDqWn8GLUaytqLKNI8ALNu4raWcy2S6zo_LiinUwqIdjJshcMIhF-YYvMW9K80fItxFx4PiW4TuR247mArLmBb_VWek4zgqwt-EXZ-C75bW7V8A3KJ3Ra4Mrv3GXkzLj44OHGNitQNvg8sRUkG4TFlKqlGFN1EXZgZIKJQ9niwkWLNJroBaak_pxsMsQz1xyAvxtWuhJLtozy9O1xK86GfViYnbiqN-D3hXRL1gSYth4clorNoJYtHIKKQ4Hat-LWjyg.jpg" width="400"><br>
 
 سازمان حقوق بشر ایران از اجرای مخفیانه حکم اعدام «تورات محمدی»، شهروند ۴۲ ساله افغانستان، در زندان مرکزی کرج خبر داده است. او با اتهام «جاسوسی» به اعدام محکوم شده بود، اما مشخص نیست دستگاه قضایی جمهوری اسلامی او را به جاسوسی برای کدام کشور یا نهاد متهم کرده بود.
 @
@@ -263,72 +312,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78628)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-05 17:59:29
-
-
-
-سازمان عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد روز دوشنبه ۱۳ مهر یک پ نفتکش در حال گذر از تنگه هرمز هدف اصابت یک پرتابه ناشناس قرار گرفته است.
-بر اساس این گزارش، این حمله موجب بروز آتش‌سوزی در موتورخانه کشتی شده که خدمه در حال اطفای آن بوده‌اند. با این حال، سازمان تجارت دریایی بریتانیا تایید کرد که تا کنون هیچ‌گونه تلفات جانی یا خسارت زیست‌محیطی گزارش نشده است. تحقیقات در این زمینه ادامه دارد و به سایر شناورهای عبوری توصیه شده است با احتیاط کامل در منطقه تردد کنند.
-@
-VahidOOnLine
-پیش‌تر:
-سازمان عملیات تجارت دریایی بریتانیا (UKMTO) روز دوشنبه ۱۳ مهر، با انتشار اطلاعیه‌های رسمی، وقوع سه حادثه امنیتی جداگانه را در آب‌های تنگه هرمز و در تاریخ‌های ۱۱ و ۱۲ مهر تایید کرد. پیشتر خبرگزاریهای فارس از هدف قرار گرفتن یک نفتکش در روز شنبه خبر داده بود و روز یکشنبه نیز ایرنا از شنیده شدن صدای انفجار در حوالی جزیره قشم خبر داده و احتمال هدف قرار دادن «شناورهای متخلف» را مطرح کرده بود.
-بر اساس هشدارهای رسمی UKMTO، روز شنبه یک نفتکش حامل نفت خام حین تردد در تنگه هرمز، هدف اصابت یک پرتابه ناشناس قرار گرفته است. روز یکشنبه نیز دو شناور شامل یک نفتکش حمل گاز مایع (LPG) و یک نفتکش دیگر حامل نفت خام که از سمت خلیج فارس وارد شده و در حال گذر از تنگه هرمز بودند، توسط پرتابه‌های ناشناس مورد اصابت قرار گرفتند.
-سازمان UKMTO ضمن آغاز تحقیقات رسمی درباره این حملات، به تمامی شناورهای تجاری و نفتکش‌ها توصیه کرده است با احتیاط کامل از این منطقه راهبردی عبور کرده و هرگونه فعالیت مشکوک را فورا گزارش دهند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78626)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-05 16:08:30
-
-<img src="https://cdn1.telesco.pe/file/XeB7cBMrCn23E_xRvvcyV0CYTi8DrDKLKvgISw4xBMV-pNWfXKH82tpusGg5w76p5NV_3eCg6h6quty20cfR5nsncA_hMWFcG6F572GpBrNxCQLw2OQFgAIJxy5qThwaBC7BDmiLs-jYrRN2-3eNZGzQaBl1NsQZHTenCIjhTiKT1sJuNvY6ExS2kZUTqBrBqgiL0UuaKhUln5rGrfTMnsw5ree4-UUNTQIVjMhCq9z_oTvKqaROzxbJ58q7c3nnjbDHkZAXBbxOaKLB2LVtI0POV-UAxWEHZ5Y0H6OeMzQD3PgZ9GPCkJhd3WpWRiDZAgqHyauDHnZ7cpLAqnDg4Q.jpg" width="400"><br>
-
-جمهوری اسلامی علیرضا رئیسی از بازداشت‌شدگان اعتراضات دی ۱۴۰۴ را اعدام کرد
-- علیرضا رئیسی سحرگاه روز دوشنبه ۱۳ مهرماه همراه با علیرضا سپاهی، از دیگر بازداشت‌شدگان اعتراضاتدی ۱۴۰۴، در زندان دستگرد اصفهان اعدام شد.
-- روز گذشته برخی منابع خبری از فراخوانده شدن خانواده علیرضا رئیسی به زندان دستگرد اصفهان خبر داده و گفته بودند این زندانی سیاسی برای اجرای حکم اعدام به سلول انفرادی منتقل شده است.
-- علیرضا رئیسی فرزند دختر عموی جاویدنام رامین رئیسی از کشته‌شدگان اعتراضات دی۴۰۴ است. رامین رئیسی ۱۹ دی‌ماه با شلیک مأموران حکومتی در جریان سرکوب اعتراضات کشته شد. پیکر وی را ۲۸ دی‌ماه به خانواده تحویل دادند که در «باغ رضوان» اصفهان به خاک سپرده شد.
-- علیرضا رئیسی روز پس از خاکسپاری رامین رئیسی بازداشت شد. خانواده علیرضا تا ۲۰ روز پس از بازداشت فرزندشان هیچ خبری از او نداشتند. او طی آن سه هفته زیر شدیدترین شکنجه‌ها و فشارها برای اعتراف اجباری علیه خود قرار داشته و حتی تهدید به تزریق آمپول هوا شده بود.
-- علیرضا رئیسی و علیرضا سپاهی از متهمان پرونده «میدان علیخانی» اصفهان هستند که به اعتراضات شامگاه ۱۸ دی مرتبط است و نهادهای امنیتی مدعی کشته شدن چهار بسیجی و مأمور یگان ویژه در جریان این اعتراضات شدند.
-- در پرونده «میدان علیخانی» ۱۲ شهروند به اعدام محکوم شدند. با اعدام علیرضا رئیسی و علیرضا سپاهی، شمار اعدام‌شدگان متهمان پرونده «میدان علیخانی» به هفت تن رسیده است.
-KayhanLondon
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78625)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-05 16:06:49
-
-<img src="https://cdn1.telesco.pe/file/h3-IswMDWVVI5KaxQkB2JgeIz0hznoCafwQsqJAWoB0WxUDtBwOlBR80oeGl4qcSA3SS3zQyg7-9x3A1EOfvM4rAf5DYiK_0QuU6dS7LjqUKgrgCG31m-N3W736ZsIPJGaHyBBNmPeAGIvYAiUdrSn7efDqRR-gxxOOTsnCuJ9woJYuNeXfSphDk948V2jgcn4FqTDG_ohBCvOapFmkyJf807YuV0SVnTgnn4mZDbJMizDwgNU-KrPhL-c3c_Yrwa9aeUZ3w26TSVHENSlmJ_feC731OiU5dI39VxgMh9aXC2ZG5S_pTXjSRLOpZ8H60N4jnbDXo00H0iWawLlJ7tQ.jpg" width="400"><br>
-
-جمهوری اسلامی علیرضا سپاهی از بازداشت‌شدگان اعتراضات دی ۱۴۰۴  را اعدام کرد
-- خبرگزاری «میزان» وابسته به قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام علیرضا سپاهی بادجانی، معروف به علیرضا سپاهی، در سحرگاه روز دوشنبه ۱۳ مهرماه ۱۴۰۵ در زندان دستگرد اصفهان خبر داد.
-- وکیل علیرضا سپاهی روز گذشته با اعلام خبر فراخوانده شدن خانواده علیرضا سپاهی برای ملاقات با او و انتقال این زندانی به سلول انفرادی، از خطر اجرای حکم اعدام وی خبر داده بود.
-- علیرضا سپاهی پیش از اعدام و به صورت تلفنی با نامزدش عقد کرد. مهشاد کشانی، دانشجوی ۲۲ ساله ساکن اصفهان، نیز در اعتراضات دی۴۰۴ بازداشت و به پنج سال حبس تعزیری محکوم شده و در زندان زنان دولت آباد اصفهان محبوس است.
-- علیرضا سپاهی قرار بود سحرگاه سه‌شنبه ششم امرداد ۱۴۰۵ به همراه ابوالفضل سپاهی بادجانی -پسرعمویش- و امیرحسین صفری حسین‌آبادی در ملک شهر اصفهان و در ملاء عام اعدام شود اما پیش از اجرای حکم به علت استرس دچار سکته قلبی شد و اجرای حکم اعدام او عقب افتاد.
-+- علیرضا سپاهی چهارمین شهروند بازداشت‌شده در اعتراضات دی۴۰۴ است که طی هفته گذشته و پس از صدور بیانیه ۴۶ کشور در محکومیت اعدام‌ها در ایران، احکام اعدام آنها اجرا شده است. سیاوش جمشیدی خیرآبادی شنبه ۱۱ مهرماه در شهرکرد و علی همتی سیستانی و مجید نیک‌اندیش روز چهارشنبه هشتم مهرماه در مشهد اعدام شدند.
-- پرونده معروف به پرونده «میدان علیخانی» به اعتراضات شامگاه ۱۸ دی ۱۴۰۴ مرتبط است که در محدوده میدان علیخانی، میان ملک‌شهر و کاوه اصفهان رخ داد. نهادهای امنیتی جمهوری اسلامی مدعی شدند در جریان این اعتراضات چهار نیروی بسیج و یگان ویژه کشته شدند.
-- با اعدام علیرضا سپاهی، شش متهم پرونده «میدان علیخانی» اعدام شدند. عرفان اسفندیاری و گل‌محمد محمدی ۲۸ تیرماه در زندان اعدام شدند. ابوالفضل سپاهی و امیرحسین صفری در تاریخ ششم امرداد در «میدان علیخانی» در ملاء عام به دار آویخته شدند و قائم حسینی نیز ۲۹ امرداد در زندان مرکزی اصفهان (دستگرد) اعدام شد.
-KayhanLondon
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78624)
 
 ---
 
