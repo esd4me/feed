@@ -3,8 +3,94 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-07 17:34:03 </h5>
+<h5> 🟢 Updated at: 2026-10-07 23:50:10 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-07 23:31:23
+
+<img src="https://cdn1.telesco.pe/file/h-hZJGH1eE580cb-HzgvYm8xu6tdDnLJbi_Q3u_dD8Fh_DehMnUf5oV_sSFARr1tmZbBIIgrqwhnsgf_oyPODCoFW8_Zr6b87WdA2UTGvFeuG9bXgNalOrUAxbFFOw4GfbuW1DwKTv3MpDVEum7DbSAH5Yj8hRdVMyDTOIl-E6ptZTjItPn3ls52zxgs4UlGs0jY0zebAn3jHdmOs_nlxJ-HSmuO2_O4drF6_7D9eFNERAYANgRty0pzyBpVTSg0vqIhwOxx23eGF_CWhn-QOBgCD5r69_tRdjtFxJAq571KpzO1Jm2_Qz8fZIZHL94u5S0MRbrP3k42CjZu7G8zOA.jpg" width="400"><br>
+
+عملیات تجارت دریایی بریتانیا: در حمله به یک نفتکش در شمال قطر خسارت جانی گزارش شده است
+سازمان عملیات تجارت دریایی بریتانیا شامگاه چهارشنبه ۱۵ مهر اعلام کرد یک نفتکش در آب‌های شمال قطر، در ۵۱ مایلی مدینه‌الشمال، با چند پرتابه هدف قرار گرفت.
+بر اساس اعلام این سازمان، در این حمله تلفات جانی گزارش شده، اما هنوز جزییاتی درباره شمار کشته‌ها یا مجروحان منتشر نشده است. مقام‌ها در حال بررسی حادثه‌اند و از کشتی‌های منطقه خواسته شده با احتیاط تردد کرده و هرگونه فعالیت مشکوک را گزارش کنند.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78652)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-07 18:59:51
+
+<img src="https://cdn4.telesco.pe/file/u7lqk4FGhoPmS_wFST4GSqEZ-5kz6MGuVCWoH5usKeJnf1QrW7PdLuFiVa3zuZCLDFIs1nr20zRoQ89aXKVOuZDky5etcxlada6ETm7GITfUibGHyTPWoIXk3-BX4Sm6_FlXFc51ekEJYgoL7XGOKw_H_49Uj7tTMao6bCsiULqi1WUcLGWFlmSV4dDngX_nxe8YLwZyrB_JcfvlLSraMVPC7un-lpj57n1UuOeV_wYe7xTDvB1wBdwnolVKMLQashaL9uXAK_i3nNZQUQZ10Rzp-MPo8aKD55-OFjqWdxBQh6BGQwuTcdh6xKIqY3kdbOybW9PQxqayL3Gr6VMKFg.jpg" width="400"><br>
+
+دو منبع مطلع به خبرگزاری رویترز گفته‌اند جمهوری اسلامی ماه گذشته ۲۰۰ میلیون دلار در اختیار حزب‌الله لبنان قرار داده است تا این گروه به خانواده‌های لبنانی آواره‌شده در جنگ امسال با اسراییل کمک مالی کند.
+بر اساس اطلاعات منابع رویترز، حزب‌الله قصد دارد در مرحله نخست به هر خانواده حدود سه هزار دلار کمک کند. اولویت با خانواده‌هایی خواهد بود که روستاهایشان ویران شده یا به دلیل حضور نیروهای اسراییلی در مناطق جنوبی لبنان امکان بازگشت به محل زندگی خود را ندارند.
+یکی از منابع شمار این خانواده‌ها را حدود ۵۰ هزار خانواده اعلام کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78651)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-07 17:58:19
+
+<img src="https://cdn4.telesco.pe/file/fMPSvJxtSMgs00jOW78CMvpzNJBrwO5XXbd02hwuWla2gf617IFChsRhZ8pBGhaVmbCikZC1XfH34cXwg3Ipvf-lEbF-tuteNfQnRK0izxKNQeQN5HQA8Yeej1XBYzdC7WTiJcX7dp2QpwZBSifS1qO_14JMT1AEmMP4kklOm2U226QAu2qqbk0_C0_m3nYPfXhZEq4JLpLSxlV8rrRdzBlKZcy5vFfiJ61H-meSu4z8NTP-K1ee5nQ2xtibwfBQyPX1LAQXS__jRVdWSgcEtaKIkZEgemRnaV0fHOxuMVz9h9NeTxCoODPjzpzMjXrjZG-3RaDLbgBo48rvUDVsdg.jpg" width="400"><br>
+
+بهاره آقایی، وکیل دادگستری محبوس در زندان قرچک ورامین، به ۲۰ سال حبس محکوم شده است.
+کانال تلگرامی شیرین عبادی
+با اعلام این خبر، حمایت از معترضان دی‌ماه، حضور در مراسم چهلم سپهر شکری و کمک حقوقی به خانواده‌های دادخواه را از موارد مطرح‌شده در پرونده او عنوان کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78650)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-07 17:58:03
+
+<img src="https://cdn4.telesco.pe/file/YJEy3m7MpHhnEsGIe2fBVrg-AgBYlgKNxj4RgGd-lQT1cs407CWNly-Yv4-0EhJney3rz3dBlkZ2ftYNBNm2gq1O_aXy9cXakfHS1WboQaD7a7Y9GL6C5TbNNriRKSDKBGAaQVDdva5ZFSUk9PyF3zWuNVPRFroEy2PVf_M6gEdACshUi184_mFL8Z1AM4DU7DWzuQSvGZTnfP_afapUorlsasHzoZ-dkca4vNQYEYtt_Ylqe1z-wRW_91-AQnR3WIIUbt_ULWagDwpV25KzSpU4fmRFBjzeC3hDmKq250IIC7qeyuWMYEZqTUnGdrfy0vtUz3T9TbCbhIHKMVGsBA.jpg" width="400"><br>
+
+اسکات بسنت، وزیر خزانه‌داری ایالات متحده آمریکا، با انتشار پیامی در اکس و با لحنی کنایه‌آمیز نسبت به استعفای محسن پاک‌نژاد، وزیر نفت ایران نوشت: «ایران وزیر نفت جدیدی دارد. با توجه به اینکه از ۲۵ اوت تاکنون حتی یک بشکه نفت خام نیز توسط ایران بر روی هیچ شناوری بارگیری نشده است، این وزیر نفت دقیقا چه چیزی را مدیریت می‌کند؟» پیش از این، مهدی طباطبایی، معاون ارتباطات و اطلاع‌رسانی دفتر ریاست جمهوری ایران اعلام کرد، پزشکیان پس از موافقیت با استعفای وزیر نفت، طی حکمی حمید بورد، مدیرعامل شرکت ملی نفت ایران را به عنوان سرپرست وزارت نفت منصوب کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78649)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-07 17:57:42
+
+<img src="https://cdn4.telesco.pe/file/LgOfuhDjU-IkDW3O9ZdRjqGgXFRhOmO7aLHjP0eU6fjh3jFOuqwD_6Uq0pwV8djJh-CTE0U8roMYri43hy60QgUrJZMhC_uGaB-kxvqwNWWaVEGL5L7jRfKyfpX5iA9w2vNlaU4D5BSGdHl3N3qiyrSWGpPtndeDKs0jtRHL8EMvlpkajI57JI_v6KfXHpTRdTjUONGXYDkq071b33zBZsGQnmflqASpe03-aGd_czAjJeFVUEiW1ISh-3z7U6hAM2DYwR6RwUILyvK2WOUqa4Bpja6IPssvZDRbG2f7SL--MKQPgfT5EoW3XdFXh5qCtGOh3ibowiMt7YHbWvfgmw.jpg" width="400"><br>
+
+حکم اعدام امید گودرزوند چگینی، معترض ۳۷ ساله، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ و محبوس در زندان چوبیندر قزوین، در مرحله تجدیدنظر تایید شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78648)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-07 16:22:38
@@ -253,65 +339,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78633)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-06 00:13:05
-
-<img src="https://cdn1.telesco.pe/file/LAdoF5P8wh9vfKWrVrxuavesg2jP4C8aDhhaBCIqHSwGxG0BcuZElomOHeyd_clvzvQFTKJ-4U6nGWmvoNuDGly5m1HBzeGALVimzlrmvq-apgok498-fY-LbZe85baG-8YgGY9mq2MOX0hxuKVAZabgv5W8kggaXUmg1U8ChwPcXgIh3DTf8-lqUOa5KRGa5m854DY7mQzlUMNXjiF6gClMj1kIPOLbhRdchvXuGrDExwMjbyjbJub6RnvQHGjkyUVzaHZhfJolM9oy5_NXbwzGCfPLA_AmPoahUKoH3oQwkXiSaTSwxA_T4BM8EeIYj5KGt_7mbJTq2fGVyjZgag.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، در پاسخ به سوال خبرنگاران درباره حادثه امنیتی در نزدیکی پایگاه هوایی فرفورد بریتانیا اعلام کرد که ایران با این پرونده مرتبط است.
-ترامپ درباره دلیل خروج هواپیماهای این کشور از پایگاه فرفورد گفت: «ما با یک تهدید مواجه بودیم و اگر قرار باشد ما را تهدید کنند، هواپیماها را جابه‌جا می‌کنیم. این اقدام تا حدی مشکل را برطرف می‌کند.»
-رییس‌جمهوری آمریکا تاکید کرد: «ما افرادی را که این تهدید را طراحی کرده‌اند می‌شناسیم و آنها خودشان را با دردسر بزرگی روبه‌رو کرده‌اند.»
-@
-VahidOOnLine
-ترامپ روز دوشنبه ۱۳ مهر در کاخ سفید و در پاسخ به این پرسش که آیا احتمال می‌دهد ایران پهپادهای رزمی را به بریتانیا منتقل کرده باشد، گفت: «نمی‌توانم این را به شما بگویم، اما اگر چنین کرده باشند، بهای سنگینی خواهند پرداخت.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78631)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-06 00:10:42
-
-
-
-ترامپ هنگام ترک کاخ سفید، در پاسخ به سوال خبرنگار فاکس‌نیوز گفت: «شخصا باور دارم که ایران مسئول حمله تروریستی فلای‌دبی بوده است».
-این اظهارات در حالی مطرح شد که جی‌دی ونس، معاون رئیس‌جمهوری آمریکا در همین روز به خبرنگاران گفت که هنوز مدرک مستدلی بر دخالت جمهوری اسلامی ایران در این حمله دریافت نکرده است.
-در پرواز دبی به تل‌آویو که روز چهارشنبه انجام شد، کمک‌خلبان با حمله به خلبان اصلی تلاش کرد که هواپیما را با تمام سرنشینان که اکثریت آن‌ها اسرائیلی بودند، ساقط کند. این اقدام با واکنش به‌موقع خلبان و مسافران، خنثی شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78629)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-05 21:02:11
-
-<img src="https://cdn4.telesco.pe/file/ElXVHyTk4hlCObFNc7IHr1IWrrWocayL03mS1F5S2CME7eOtzhebdqCKtCCDTvFw6-00tj8gt_FFhFiRJ4fsqRLoh5FaXVoz8v90VVCJ0RhDZV9TyWFVZNxB9h7wS7V76r0nm8_JnF66FDB_pVRUX8pD-lpeVuYhiPQbweOKMMPpQfrr6HH97eOuVthW1YHg9DSUIRhIWUEkKcLk3DwhHHkSNGXhlIA_I9iM5oQXIINpuK3Wg07X_UQ9w6IfVw3gyMD75QvlR6Q5b-aumdzujYTSoTR-u-ki5yQJ9G9tmdNMNbTP2SD5KH8b9Dh6HNGVHFztiZxz2c4jJ6ToO8h0vw.jpg" width="400"><br>
-
-رئیس‌جمهور آمریکا می‌گوید آنچه باعث افزایش قیمت گازوئیل شده دیگر ربطی به تنگهٔ هرمز ندارد، چرا که به گفتهٔ او، اکنون مقادیر بی‌سابقه‌ای نفت تقریباً به‌صورت روزانه از این آبراه خارج می‌شود.
-دونالد ترامپ روز دوشنبه ۱۳ مهر با انتشار پیامی در شبکه اجتماعی خود، تروث‌سوشال، افزایش قیمت گازوئیل را به «پالایشگاه‌ها» مرتبط دانست و نوشت: «پالایشگاه‌های روسیه توسط اوکراین هدف قرار می‌گیرند و پالایشگاه‌های ما که در ایالت‌های آبی (دموکرات‌نشین) مانند کالیفرنیا، توسط "دمکرات‌های احمق" تعطیل می‌شوند».
-اشاره رئیس‌جمهور آمریکا به گزارش‌هایی است که در روزهای اخیر از افزایش میزان خروج نفت از تنگهٔ هرمز منتشر شده است.
-شرکت کپلر، ناظر بر کشتیرانی جهانی، روز ۱۳ مهر گفت که داده‌هایش نشان می‌دهد صادرات نفت خاورمیانه، بدون احتساب ایران، طی هفته گذشته، با وجود حملات به کشتی‌ها در تنگهٔ هرمز، از سطح پیش از جنگ فراتر رفته است.
-با وجود افزایش میزان خروج نفت از تنگهٔ هرمز، قیمت جهانی نفت در محدوده ۱۰۰ دلار در هر بشکه باقی مانده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78628)
 
 ---
 
