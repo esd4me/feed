@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-07 03:44:36 </h5>
+<h5> 🟢 Updated at: 2026-10-07 10:12:19 </h5>
 </div>
 
 
@@ -188,7 +188,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-06 08:18:35
 
-<img src="https://cdn1.telesco.pe/file/NzD--be0wa3gLPObf_lsS0HMafVFTZ3PlBX54bmM3tQczKfs2-BXK-6szYHLMDCxP09G6jg4VltXtzX4zbsPBsjLIgW6LwzBlyTYZ3iw7pwRuSf179I_po7KoqIYedRPJ25yCxZIt1eP2VSJnVEtZCvLCXodXN3lLdGx4Mr6v21heA1tDX9ru1E3YNMsz73RuEAHAtV9JLKqLFis94s1qH18pVml1uowek1nji8Xrefg--WBhMEeyk18JT9dhzK8ePviYHyY738xvvb6OOw5wRczYqNkhGXtc_fXYDcnWB9zS_F2_Nqb6w8B7YmmgdQe-XWaqOAWwnCncUyxHdndZg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ueejKoRkm78NkEDRoWaxBeRIrW6wp2INxxrBn936R_c4E3WhfZzZWS997PLtRealOAZbQdIg3ctMyht4fEVlnXIwNrRXEKuoSWivrDyQCc4jJ9f-kVay7ArBR6P6UUJehA9WkHYk4H3bC92XTq_puhwDDdOfecqmIPnV7YD3RGbpcdHBJRq-MBRb8yJoCndTb-muNDp4_YyTLB6KMd4g0hBQwnCaRm8vfbQm7pGfQHX0h2tiWpjsPBwlzatulBCRgFDO6VLzXRo4nCwg7N4Hxhz-g3x_5rX4kK4xPsRF_LMBBIgKiL8aoLBJfYITN0y-tj6JfuuvYHf1722znie1Tg.jpg" width="400"><br>
 
 وب‌سایت اکسیوس به نقل از مقام‌های آمریکایی گزارش داد ارتش ایالات متحده در پی دریافت اطلاعاتی درباره احتمال حمله پهپادی جمهوری اسلامی، ۱۲ فروند بمب‌افکن بی‌۱ را از پایگاه هوایی فرفورد، متعلق به نیروی هوایی سلطنتی بریتانیا، خارج کرد.
 وال‌استریت ژورنال علت خروج این بمب‌افکن‌ها را «نگرانی‌های امنیتی درباره طرح‌های احتمالی حمله به پایگاه» عنوان کرده بود.
