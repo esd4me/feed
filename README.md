@@ -3,8 +3,86 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-08 10:20:54 </h5>
+<h5> 🟢 Updated at: 2026-10-08 17:43:45 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-08 15:57:37
+
+<img src="https://cdn4.telesco.pe/file/MLjfZoDIE1qSPosh89KPRFKnsrM7gaeU2ALlEW5ewDJPaqmBnVRdOj7SrNG8tv9hXB1mIHO1RzErwQlKNmfjsVMRNaCRMcASvvIWrxwPVo2asG7LeEM-TPDSaon-LrrdzDU94cwwuIpb7o2sF9DgYrjH1h_mnzL0NLqR73k5CfBRZTmVY1SARDriXh7CxOGiy1i-3n9DkEZlzs58wv5ZS8c490QHee5xrSylkBcZ230SX2YPYRL01MxgQ1A4_3nbYuGOk8CY8YMqXhofw9fUi5NaZphof9DCo-kCfMBFeMfEi-FQLjBifGI6rnQ13rDWuEWzBWK-KGNblBYS7LCEDg.jpg" width="400"><br>
+
+عربستان سعودی در چارچوب طرحی به ارزش حدود ۲۱ میلیارد دلار، توسعه میدان نفتی مرجان را برای افزایش ظرفیت تولید نفت و فرآوری گاز دنبال می‌کند؛ میدانی مشترک با ایران که بخش ایرانی آن «فروزان» نام دارد. براساس گزارش مرکز داده‌های باز ایران، عربستان روزانه حدود ۷۳ میلیون مترمکعب گاز از این میدان برداشت می‌کند، در حالی که ایران از بخش خود گازی تولید نمی‌کند.
+در تازه‌ترین مرحله توسعه مرجان، شرکت نفت عربستان، آرامکو، قراردادی با شرکت آمریکایی «کی‌بی‌آر» برای نوسازی تاسیسات این میدان امضا کرده است. کی‌بی‌آر روز سه‌شنبه ۱۴ مهر ۱۴۰۵ اعلام کرد خدمات مهندسی و اجرای پروژه را برای تاسیسات فرآوری، فشرده‌سازی گاز و زیرساخت‌های برق مرجان ارائه خواهد کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78659)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-08 15:56:02
+
+<img src="https://cdn4.telesco.pe/file/VFNJsfOI_Kym-691s-kVu9z3II90ALxJ1u1Cf2XR1vThyDgsviL3SyJxVlc64KdVPUjBRMp7m5Fu4H6Yf1t9tOH9aKKuwNviguDpz9ht0WB7FAiHXtH5BdmF6ar07irTd0KpOIB2Q0li22bd3Y1Doz9QDL6eSFHv1GwEPtVgLU2GootyjRFu3zBEQBxItsUnfHGJmOYVubfnNiecfhnqeqNiDtJk9nVSss4wgaYiG8tpsbcX0RgOqQRyfqru58ZM3XQUsNu1cnpwiM-TtoUfNn6qNli0FO0F3-hu99nqLhH_9Gt4F-F-2R0kcDFsxMKTmhs1lDPdfR8-KD0VKEWmtw.jpg" width="400"><br>
+
+خبرگزاری رویترز، روز پنجشنبه ۱۶ مهر ماه، گزارش داد شمار کشتی‌هایی که از تنگه هرمز عبور می‌کنند، پس از افزایش حملات به نفتکش‌ها در هفته گذشته، به پایین‌ترین سطح در بیش از دو ماه گذشته رسیده است.
+رویترز بر اساس داده‌ها و تحلیل‌های شرکت تحلیل کپلر گزارش کرد، روز سه‌شنبه فقط ۷ کشتی تجاری از تنگه هرمز عبور کردند که پایین‌ترین رقم از اول مردادماه تاکنون محسوب می‌شود.
+عبور نفت خام از این تنگه نیز با کاهش ۲۷ درصدی نسبت به بالاترین سطح زمان جنگ در هفته قبل، به دست‌کم ۱۰.۱ میلیون بشکه در روز رسید که معادل ۷۴ درصد سطح پیش از جنگ است.
+به گفته تحلیلگران کپلر، بخش عمده این کاهش به انتقال محموله‌ها از کشتی به کشتی در دریای عمان مربوط می‌شود.
+به گزارش رویترز، با این حال، صادرات از سواحل دریای عمان و دریای سرخ به ۶.۷ میلیون بشکه در روز افزایش یافت، رقمی بیش از دو برابر سطح پیش از جنگ که به جبران کاهش عرضه از طریق تنگه هرمز کمک کرد.
+داده‌های کپلر نشان می‌دهد تعداد کشتی‌های عبوری روز چهارشنبه به ۱۰ عدد افزایش یافت، اما همچنان بسیار کمتر از بیش از ۲۰ کشتی در روزهای یکشنبه و دوشنبه بود.
+این گزارش پس از آن منتشر می‌شود که حملات به نفتکش‌های عبوری از تنگه هرمز در هفته گذشته به بالاترین میزان هفتگی از زمان آغاز جنگ ایران رسید. پیش از آغاز جنگ در نهم اسفند سال گذشته، روزانه حدود ۱۲۵ کشتی تجاری بزرگ شامل نفتکش‌ها، کشتی‌های حامل گاز، کشتی‌های فله‌بر و کشتی‌های کانتینری از تنگه هرمز عبور می‌کردند.
+همزمان، دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنحشنبه نموداری در شبکه اجتماعی تروث سوشال منتشر کرد که نشان می‌دهد سطح تردد نفت از تنگه هرمز به میزان پیش از جنگ آمریکا و اسرائیل علیه ایران بازگشته است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78658)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-08 15:55:06
+
+<img src="https://cdn4.telesco.pe/file/gVZXoKs24ATUsPC4O60rtkgSfoyus5qkRoCVVfYM-bTOCcU4W0A-NL68pMTJe2hXwWJpx13Et69NMss9LE9QYzma3HAW6MQj9gXZa_Stkg2w4Z_v8xYelTWfJLbstKKgHkgczlEskb8eiTgiitTdpsDn6CQB_29hnapMa3NA1rF9ELLGMNt944mHc8tTgJLTgXKyK2tW8NrXSb8jbIKc6BCnOshJEGK3sYcid-7eVlqHBZ6gz-SUfFUvMlARSAYe7dKRrfqY8EQKofhExnGwfe1ur6RjmdJPzUSpnZdPMkng7rr4gVIvWXulYSyM8ejwjPxvuI56-I2gZYcjAHLukg.jpg" width="400"><br>
+
+در پی حمله افراد مسلح ناشناس به ستاد فرماندهی انتظامی شهرستان گلشن در سیستان‌وبلوچستان، نیروی انتظامی وقوع انفجار و تیراندازی در این منطقه را تایید کرد. هم‌زمان، ارتش جمهوری اسلامی از کشته‌شدن یک نفر و زخمی‌شدن سه نفر دیگر در حمله‌ای جداگانه به مینی‌بوس حامل کارکنان ارتش در زاهدان خبر داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78657)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-08 15:53:26
+
+<img src="https://cdn1.telesco.pe/file/VDkYhl5bnxwHi3g6LmeCMhbj310AcyLVVSsjnjmE5rTcXjR6NrtXaMutHekzd_VuD5qqca_zcZwqQmjV-UuSXfLwdYqueB9-r6jybYPkgTxrd77D98ZrZAv5OxhwnSSDHwMwjFOQOduo8OUEwPDhKhrO5B3nRoKUBwd7wQqufF994kW3wAWtMWy-nr_Cc_uq2-4-sBnafivY1HKko1z2DDwwNnoh-1vZ2ln3Nr-zaPec7EfcE5cE2huvltKXAN0w3aup0VZ4OJtQBA7NfWghV3lz2H7zrOjn2C_9cvJz_fdLH_ZygPGz7jA98pmPtaAtW9utSXaNfb8HbHhEgVgWVQ.jpg" width="400"><br>
+
+خبرگزاری رویترز
+پنج‌شنبه ۱۶ مهر در گزارشی تحقیقی بر اساس گفت‌وگو با بیش از ۷۵ کارشناس حقوق بشر، وکیل و شهروند ایرانی نوشت ایران پس از اعتراضات دی‌ماه شاهد شدیدترین سرکوب چند دهه اخیر از سوی جمهوری اسلامی است.
+به نوشته رویترز، دستگاه‌های امنیتی و قضایی جمهوری اسلامی با همکاری صداوسیمای حکومتی، از طریق اعدام‌های شتاب‌زده، محاکمه‌های غیرعلنی، پیگردهای قضایی گسترده و انتشار اعترافات اجباری، در پی ایجاد فضای ترس و خاموش کردن مخالفان هستند.
+بر اساس این گزارش، از ۲۸ اسفند ۱۴۰۴ تاکنون دست‌کم ۳۴ نفر از افرادی که در ارتباط با اعتراضات دی‌ماه بازداشت شده بودند، اعدام شده‌اند. پنج نفر از آن‌ها تنها در ۱۰ روز گذشته اعدام شدند. در مقابل، طی چهار سال پس از اعتراضات ۱۴۰۱، در مجموع ۱۵ نفر در ارتباط با آن اعتراضات اعدام شدند.
+رویترز همچنین گزارش داد مقام‌های امنیتی ارمنستان در ماه مه به گروهی از معترضان ایرانی درباره تهدیدهای جدی علیه جانشان هشدار دادند و از آن‌ها خواستند برای حفظ امنیت خود و خانواده‌هایشان این کشور را ترک کنند.
+اشکان، معترض ایرانی ۳۰ ساله که در جلسه با مقام‌های امنیتی ارمنستان حضور داشت، گفت به آن‌ها هشدار داده شد افرادی احتمالا برای ربودن، ترور یا آسیب رساندن به آن‌ها اعزام شده‌اند. رویترز نوشت روایت او را با گفته‌های معترض دیگری که در همان جلسه حضور داشت و فایل صوتی آن جلسه تطبیق داده است.
+رویترز همچنین نوشت نهادهای امنیتی جمهوری اسلامی با تهدید خانواده‌های مخالفان ساکن خارج از کشور در داخل ایران، لغو گذرنامه‌ها و خودداری از ارائه خدمات کنسولی، فشار بر منتقدان را به خارج از مرزهای ایران گسترش داده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78656)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-08 05:36:05
@@ -108,7 +186,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-07 17:58:19
 
-<img src="https://cdn4.telesco.pe/file/fMPSvJxtSMgs00jOW78CMvpzNJBrwO5XXbd02hwuWla2gf617IFChsRhZ8pBGhaVmbCikZC1XfH34cXwg3Ipvf-lEbF-tuteNfQnRK0izxKNQeQN5HQA8Yeej1XBYzdC7WTiJcX7dp2QpwZBSifS1qO_14JMT1AEmMP4kklOm2U226QAu2qqbk0_C0_m3nYPfXhZEq4JLpLSxlV8rrRdzBlKZcy5vFfiJ61H-meSu4z8NTP-K1ee5nQ2xtibwfBQyPX1LAQXS__jRVdWSgcEtaKIkZEgemRnaV0fHOxuMVz9h9NeTxCoODPjzpzMjXrjZG-3RaDLbgBo48rvUDVsdg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/noWK-_4-8qIrvm4jY7uCeapVykOmxOC8b9zNIY9kLderznXlM_Qi_S1KhUJ_YeSSQykQf91EPeKdNrQjDCg2xitfje6mZfgTDMR8xQF7CcveDas-aiimaGVw8aJ9Lt1c5VL5jFyw117_vsNHsBa82LXoSkq32WYTZ2Ja_WAVEfbXUNsCzkMY__c887ev_9Hg_9fva52NelED7zhxIfa3MQq5N9SQlhTqAjqp0zZI2yBHbqhbaHpXA1s4jRe1MFJB_aWPiyAeAZ3sT0R7uyp5BaRLpl6jXfa93rGqCmm6wM8Nd4oCU5a5XMpdgSzAGFrlgUVBt3J0O0lEuMi1YujnsA.jpg" width="400"><br>
 
 بهاره آقایی، وکیل دادگستری محبوس در زندان قرچک ورامین، به ۲۰ سال حبس محکوم شده است.
 کانال تلگرامی شیرین عبادی
@@ -126,7 +204,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-07 17:58:03
 
-<img src="https://cdn4.telesco.pe/file/YJEy3m7MpHhnEsGIe2fBVrg-AgBYlgKNxj4RgGd-lQT1cs407CWNly-Yv4-0EhJney3rz3dBlkZ2ftYNBNm2gq1O_aXy9cXakfHS1WboQaD7a7Y9GL6C5TbNNriRKSDKBGAaQVDdva5ZFSUk9PyF3zWuNVPRFroEy2PVf_M6gEdACshUi184_mFL8Z1AM4DU7DWzuQSvGZTnfP_afapUorlsasHzoZ-dkca4vNQYEYtt_Ylqe1z-wRW_91-AQnR3WIIUbt_ULWagDwpV25KzSpU4fmRFBjzeC3hDmKq250IIC7qeyuWMYEZqTUnGdrfy0vtUz3T9TbCbhIHKMVGsBA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/gMaJ6XX2OF6qXDEB9p_VcBkxagTI_9V8_sPsOaJDFBuOPR95NLufDivRyD9kvN8grodEflGejrbJpESPIqDTk6piFkdGg-A2REKXCocklEeDyUxat_ahR2N4hP1G55O9csMjJriE-ulNEgLDUiR-fYwxzmjepHwCt0jOccOfSzlBxtgSKtosFYmzOWzrgWOZylCy6ICHytm07oIUW5D71_jRM9n-jnT_UTHEXJTX5LREN8WTOGBm6lBjWroYScjK6rKBxymAYLmZYbJOMFS8od5Qpp-bCZzBVIs0D4_KvF7uIsjHm1sqRBT62NgE45num91ND8d3Q4vGNdivrSYoGg.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری ایالات متحده آمریکا، با انتشار پیامی در اکس و با لحنی کنایه‌آمیز نسبت به استعفای محسن پاک‌نژاد، وزیر نفت ایران نوشت: «ایران وزیر نفت جدیدی دارد. با توجه به اینکه از ۲۵ اوت تاکنون حتی یک بشکه نفت خام نیز توسط ایران بر روی هیچ شناوری بارگیری نشده است، این وزیر نفت دقیقا چه چیزی را مدیریت می‌کند؟» پیش از این، مهدی طباطبایی، معاون ارتباطات و اطلاع‌رسانی دفتر ریاست جمهوری ایران اعلام کرد، پزشکیان پس از موافقیت با استعفای وزیر نفت، طی حکمی حمید بورد، مدیرعامل شرکت ملی نفت ایران را به عنوان سرپرست وزارت نفت منصوب کرده است.
 @
@@ -142,7 +220,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-07 17:57:42
 
-<img src="https://cdn4.telesco.pe/file/LgOfuhDjU-IkDW3O9ZdRjqGgXFRhOmO7aLHjP0eU6fjh3jFOuqwD_6Uq0pwV8djJh-CTE0U8roMYri43hy60QgUrJZMhC_uGaB-kxvqwNWWaVEGL5L7jRfKyfpX5iA9w2vNlaU4D5BSGdHl3N3qiyrSWGpPtndeDKs0jtRHL8EMvlpkajI57JI_v6KfXHpTRdTjUONGXYDkq071b33zBZsGQnmflqASpe03-aGd_czAjJeFVUEiW1ISh-3z7U6hAM2DYwR6RwUILyvK2WOUqa4Bpja6IPssvZDRbG2f7SL--MKQPgfT5EoW3XdFXh5qCtGOh3ibowiMt7YHbWvfgmw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XgApYPpX2rbazAim5In38DUeIDtGOMwQ9XaGScgfe1qBtBYSEgYvn4k6YiZgE3Z9fyXGVzqyf1bcp62c7vfTgZCqZ1udbWDW2EYevvuxNcjziUWIG4FXb9OHHa2DPo2_pFZ0dTVAGH9bDdUtlu8MKnOWEAtoJHSmIzKLxcf4M9_JfpHVHjeZIF5_wr41eMdqe9_xAuobnYaV56dAGvvdU6t32VHPW-iWDYDuPvOLXIcNInRKdgqMCrr77W5dqEtOaFEBiAxTJgGDyQO0GUEN-pPkkVTHqBPcUBa77MNEJI8RZQAEh2PevfTKAfy7v1TbX8BD4y2rVQTJ9eLQqO-Pbg.jpg" width="400"><br>
 
 حکم اعدام امید گودرزوند چگینی، معترض ۳۷ ساله، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ و محبوس در زندان چوبیندر قزوین، در مرحله تجدیدنظر تایید شده است.
 @
@@ -158,7 +236,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-07 16:22:38
 
-<img src="https://cdn1.telesco.pe/file/KtMBmCEvQj4OaZI9m3QBFQC8HKOp7bqTtJ3JptiLpk6VpiRNO2mNZAgW57QOCJVjc0913xbIiCRhYAoXa_094eDk9hYoqTHZ8vi71GMDpgt0H4Hvk_l8YHedopF4BUh38ROg8-fjrEN-ckbMet9rZoDgu5uZZ424pEXJHZZjuD1nAFoaohNgfAFpc9PiKthvxA7pOVDTJLvH8m1zsbT4sDIdO-NRxBdkV6RKY-U-Mn8SsKcibB8eDypLwBbVGr7axy6HCp91jZx654D40aeSQs-54KeJlK8bGyOab24mlMxm9hcJSM4poWEVc1TOMXiYMB7SdMAF_HUdlGGHJbNVlg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/n1p4ozC1OUQ3hzXfeUAXlF64HxTMrcHABO6DShLsf1Vbsa__UZNR0Rm56NKG_UOGhu0cpxpNr9d5BLd93n91i1NlsCV6hvpv0SffoRnGZ0RFXdyBOx7Qx-p-ONAFgJv6bB8nTglNp0weE9U-ne3xTnco6RbQigaCIelxVDiPhyrm1rryE8Jj6OaVxx-U2_olvI-wFV3XmnDUXkkhL8b3ia8KDl5V0MMbU-KjotT_RMOh6P_1W8SRBdkVFAjv4_Q9S2BvB8tSz1G55ZHHi_Dexe8ylQ1dH_DWc9gDwEGh2aJFGJptqHxE6HP6GkZh-cUVajFZ9lWLX9pgthczHzWrRA.jpg" width="400"><br>
 
 مارکو روبیو، وزیر خارجه آمریکا، می‌گوید ایران فرصت‌های متعددی را برای دستیابی به توافقی دربارهٔ برنامه هسته‌ای خود با ایالات متحده از دست داده است.
 او روز چهارشنبه ۱۵ مهر در یک نشست خبری مشترک با همتای یونانی خود در آتن گفت: «ایران فرصت‌های متعددی را برای رسیدن به توافق هسته‌ای با آمریکا از دست داده و همچنان مبالغ هنگفتی را صرف تروریسم، تسلیحات و حزب‌الله می‌کند.»
@@ -178,7 +256,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-07 16:22:13
 
-<img src="https://cdn1.telesco.pe/file/Xpdg92YZ1C9P4mRQU04k5f6Vip6WysUyn4-HYpC98qZAB5nRat3vRNey6vJkf1Jr_uiqlMlYxB1rj3mKj9OtfYJJ6BHZd1hQghA2Y-NerJgWXUMcNY6CQYroCQd7qQibBp06PpU7lzwJ1WMZ6YydeQBKD86KeuuFxMvw6J8N5uEYXZmqKUMAGbkZ1ELJ2Pel-_-auANj6VfaLq661rdLEZklG77QYe--z4OGbhpooLTNz6TupZm3ExfPE-_55ALvSKwhVmbhhZuJaJ_7AfCeKRfj0-wYU_30rBacnOgBoue0ZnXsdOFQ6FN65f-qOV-Kh6Xm45Lzf_LuTJjw7D1rXw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qTPhnDgCRxG2_p29DSX5S5XQV71ZZEAZiqaLfT8TOxnAstUocdeRkcSXw1G2rlwI-wcayILyFNKO6z7mwHc46_VIltKTA9byVLQS0VRgJW6gxvWG1LQHxLyfRgksVPL5bZxu-LQoyzqgngz7AuvK9aj3pHdWQVV-VHex-pTtQhsIO2lD7VhzztAzp9OaZ6xTwz3QMfUGAZB2_38btV7KYJGlnohhJIM-npLLJJ_mfjwsO86LcUCk7yq6XTirMxyua-gGSvPD5ghexqeysPpWjeYT7FZpqQa-Hv_Un0Vj6FC-BtsCEDT2bRmSqUbX_pQYDXARTnsIhPxUqhG8VnGXtA.jpg" width="400"><br>
 
 روزنامه خراسان نوشت که نجمه امینی، دختر ۲۳ ساله، به اتهام «سب‌النبی و توهین به ائمه معصومین» در فضای مجازی، از سوی شعبه ششم دادگاه کیفری یک خراسان رضوی به اعدام محکوم شده است.
 امینی پیش‌تر در یک فایل صوتی از زندان وکیل‌آباد مشهد از صدور حکم اعدام برای خود خبر داده بود.
@@ -196,7 +274,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-07 02:51:22
 
-<img src="https://cdn1.telesco.pe/file/aq8EALir1QO-9nCFUDKR-fkx3fvBoECx5R45byWTXQ-AlD3I0FS3npX3XVgZXNCX-u4lqztvbyf-O30fyx7X7g3Ch3oPCN78pnHwyK4hXtAxORy8GrwJOvck6A_P4aSThWCyAVtCcv9-kr1JlWqn1GOd6f3dQv3T_AA4oYUPjcK2ljQHCRSRMJ_51ICCFWt3-N8BCTWIdZjgIEGe5OowYzu4k7kDtY0KlrVVoB28Zpfvl7h6BkwLBYVrTtxY-8VCeL8z3QgA0G_X6CAANvkVZfwFFJaZIKJczTvS2A34fptvSNZBLm82deB_1iiI4GSKNyHZAe6UupdFW2wVeGxhSA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rkPG6LUqWYogSutwe0lGah-tSUYCRKX-hf2G-lMrBwSzeoIraKG1nc9XXrM-4YXxtKb5_mKhMD6fYanzHiRjYzq2_muKJ_IJrGf4j759LrQIIyhgzHKlrp29l01jbOobvwjQUh6KNb_ASaE076Fmwm_W7ik3OUhUGdDVE37ogGpRd29vkiKU5UTS6ZeZeJD1RkFHWq6Eu3d-dwtBkxz5jY7HqFej_T7gcfZesM3GjhJhCduQVWKxHPsd3iap3vtzx22bUUxQYFFA4ZRtR_4ugY5e_OJc5S67OtwToquuFeBSXE1Z5W95b2BlHqrklw-Sq9rwGhw57yFxBxYUqaubdg.jpg" width="400"><br>
 
 ونس: ایران باید غنی‌سازی را عملاً کاهش دهد؛ میزان اختیارات پزشکیان و عراقچی روشن نیست
 🔸
@@ -275,7 +353,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-06 16:37:52
 
-<img src="https://cdn1.telesco.pe/file/NrMLbXE3x6krmK_SZNejw_X0WljXAzxsqHzex4wMCuaDXfKjF-sC-_mKeWUgsYNo2ocDkaZc8IPFhecPSuigBLCP1OOWPuAXpy3dvmJnXGG5pku3ccua1_OiR2SczA_EJq1kYlyHsNEqwmGQ54GWPkKU48l3KUFTblQgo77NDmn54s24bFdDbIw17jxHVfaPr6EDIRzh6aTK5b5iWx0m2SjmqBrEO9o_qbWiMI08h-yUluid7t6RO9IZp803yckzjwjSFIzNNfbkgjOjruXPxCZ89_s1427NHererx7N1PQSFmZ4YRxzbJym_oQ8HrIVd8eH1flkgX2ABAUaWqQ6uw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/m9M9waxVCMsTL_UZOHqGi9m3_gB48HLcyniA9FaDhviQhhLh1mBjtPd-NmnrD2q6HuRAzhcquXbX2O08TD5typXoxY53ffptBs8T1RwlQ-eIxLK-O7To88PqG-J5ni42GvLaHHPRpPYWYxz84GZsmAdk3yFij5x9RCzcnrqv7u_fE8tOn-bPgsb906A1FgRy6oia5tpNQ4VtbswHjUrRD8Qyr1q3z3pQTdCxN6zfqupuvc6d5LnswFqpHeKkcGE5uQ2s8DjsrCN0k4VNv1MUkFovILsfKvjCH8IIpszZ0J6NJxRlaKZHIl-TfGkDnHdMetjjwoSMejBqtmlFL7H7nA.jpg" width="400"><br>
 
 پست سنتکام، ترجمه ماشین:
 🚫
@@ -287,82 +365,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78640)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-06 16:36:04
-
-<img src="https://cdn1.telesco.pe/file/iwAYlD3FbONbkmI_swIZaRx5GR-p33BPgkjxbPu0E5FgSPtHtOivE06HPcsLcwHGS3Sp7uogs4DwjZ9T5N5zPo0TdcJ6me_vYmFZp9YDpCNw8LJBT3m4RGcJSEgIeVVefPyL7j1KEYitNEZ6xPMCQ9npotvzPpfB9ChWKDTZSTrNGG1DQCxy2A7aNzR0khbLZTFOHysiyRnhf1QyQ_RJRynC-3nNE_fE77X_hVR3T26t0sWfZjVd0JiI-d52ZjhBNjznPzgWevMwPrRDp-2ASPi81BqcPFHaG4ErprFIXK-yuGUE703E3fLKAQAJPqKRolk2P0SfUVqNjaQdgYGm_g.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا بعدازظهر سه‌شنبه ۱۴ مهر اعلام کرد گزارشی با تاخیر درباره حادثه‌ای در تنگه هرمز در ۱۳ مهر دریافت کرده است.
-بر اساس گزارش یک «منبع تاییدشده»، یک نفتکش هنگام خروج از تنگه هرمز هدف حمله قرار گرفت.
-در این اطلاعیه به هویت نفتکش، عامل حمله یا میزان خسارت احتمالی اشاره‌ای نشده و سازمان عملیات تجارت دریایی بریتانیا اعلام کرده است مقام‌ها در حال بررسی این حادثه‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78639)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-06 16:35:32
-
-<img src="https://cdn4.telesco.pe/file/sKpvSN4bYAfTiTHXUuyq8XtBiF5AHMnCcATBrpiIobdbPhYGHwYQp6h4u30WgqtqLUHkLcdkiujAcIwIqzk9dDJvSn5mD97nw1HRlmKab6YRjzPW2E_jXU-gjTId8AqcULcLaQd4m1Z9EU2SrX3_h9tS0rpAtoN5SVSYkgN-awjRtw9mIqEXa3GePdiu1qJKiUTxFGXhnEoGPNMtrZg6xDi-TuuBmejx6VDTODKe-svBiZyIL_cs9-P6gVHSsTryYXx0eGTrOgDgtU1suRR9VJacSf5uqVvIK3wvAZDJG9_dZrS-4iGkCCQY09DnfvZlD1H91xUcip8g22_UQxKS9w.jpg" width="400"><br>
-
-سازمان هواپیمایی کشوری عربستان سعودی روز سه‌شنبه ۱۴ مهرماه اعلام کرد شامگاه دوشنبه، فرودگاه بین‌المللی ملک عبدالله بن عبدالعزیز در جازان و فرودگاه بین‌المللی نجران هدف حمله قرار گرفتند.
-براساس این بیانیه، این حملات منجر به جراحت جزئی سه نفر و بروز خسارات مادی به فرودگاه‌ها شد.
-شورشیان حوثی مورد حمایت جمهوری اسلامی دوشنبه از حمله به فرودگاه‌های عربستان سعودی خبر داده بودند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78638)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-06 16:34:50
-
-<img src="https://cdn4.telesco.pe/file/ocRKtFoI7sF0LIXs9egTs4aP80mC4bGLprmOp5c42b6V9FGhP1yaZq9wMgULbC_Q65GCuz5yJnAXniFY9IFAMuRK2sRhnD1Rwvdhin_i7WjV8r7ijlHmEFzZiMKhKsqj8BxObvkqj6L9TIuQDCFCcYh9Adl4apVajw0B8CPlnL27SypMtwwle6pIuyQj4GZsnegsJC1szvnDHGobfXE8DAKpJeOFAKkcZ4F59hH8B1BGMOk_7AX8NLeaHrrHfKHD8v9jySwu21E3fyOTP8Cczjj0i7KPIbXSiKWFITJiWSb9i9gwEaBlqGOsYNEHkpH5M5V4U1qZDJ0pmxEC51LsMQ.jpg" width="400"><br>
-
-۱۰ کشور قاره آمریکا در بیانیه‌ای که روز دوشنبه، ۱۳ مهرماه، منتشر شد «اقدامات تروریستی» جمهوری اسلامی و نیروهای نیابتی‌اش در نیمکره غربی را محکوم کردند.
-در این بیانیه به «تلاش‌های خصمانه ایران و نیروهای نیابتی‌اش از جمله نقشه‌های مرگبار، تأمین غیرقانونی پول، مداخله سیاسی و فعالیت برای نفوذ خارجی» اشاره شده است.
-این بیانیه اشاره می‌کند که هدف از این گونه اقدامات «تقویت شبکه‌های تروریستی، تضعیف فرایندهای قانونی یا دولتی و ضربه زدن به امنیت منطقه‌ای» است.
-ایالات متحده، آرژانتین، کانادا، کلمبیا،‌ کستاریکا، جمهوری دومینیکن، گویان، پاراگوئه،‌ پرو، و ترینیداد و توباگو امضاکنندگان این بیانیه هستند.
-این بیانیه پس از آن منتشر می‌شود که آمریکا و پاراگوئه در ماه سپتامبر گذشته به طور مشترک «نشست مقابله با تروریسم فراملی» را با هدف همکاری در نیمکره غربی علیه «فعالیت تروریستی» تهران برگزار کردند.
-سال گذشته اکوادور که متحد آمریکا است سپاه پاسداران، حماس و حزب‌الله را سازمان‌های تروریستی اعلام کرد و آرژانتین نیز در بهمن‌ماه ۱۴۰۴ نیروی قدس سپاه پاسداران را در فهرست تروریستی قرار داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78637)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-06 16:33:57
-
-<img src="https://cdn1.telesco.pe/file/kyILkJurdi5QY5VUbtjbTcNykOlaABmlb2Ncj6CQMEWc7rlljsI0sy9M5AVs0iDlz3wvweRrczmEEdytiLK2GItPWF3GKRZmpZEmXXFoMEAjDkKHDsIapKEo77ie_Y49t_iKbSx0c5Eobo89Xo5NDFraOX8hAKRrHKxqcHQd7CJauXp-5USK9bzY-kn-G6P5XKleXNtuiK5RHQzWcXaoUbgOQ3m6Y_WEqxareWkYxH4DuJcX1IsZ0-b7TlTh_B0Kt1SD_Al_JNQnUxQIMV7vSKd0dY2Pi2trw995Q4RxW2bAcFVJ2sh5gDW_93MgqsFojiF17Nv7dUWfrRFRt9a2eQ.jpg" width="400"><br>
-
-هادی عباسیان، ۳۸ ساله و ساکن شیروان، از سوی دادگاه انقلاب بجنورد به اعدام محکوم شده است.
-یک منبع مطلع به ایران‌اینترنشنال گفت حکم اعدام عباسیان یکشنبه ۱۳ مهر در زندان شیروان به او ابلاغ شد.
-هادی عباسیان در جریان اعتراضات دی ماه با انتشار ویدیوهایی از مردم خواسته بود در اعتراضات شرکت کنند.
-تاکنون اتهام دقیق منجر به صدور حکم اعدام و مستندات دادگاه علیه عباسیان مشخص نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78636)
 
 ---
 
