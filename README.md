@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-07 23:50:10 </h5>
+<h5> 🟢 Updated at: 2026-10-08 04:05:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-08 02:04:39
+
+<img src="https://cdn4.telesco.pe/file/rJtVD_a40ryKpogiGcCpyOqxxn8quFGgN8cMY6WJEdW4vFxbsHVDcGwoyyaQeNntRcDnn2RlOCxRRP0H-ogsowv-VnnEga46fu-T3jqe8b0ia8SgDXBpG7MOapyX53CzyvmBct1PmWK2SDpxNQSFuj0f48y34Qenl7HjhltGp4E5HMLMoXkyx4GYS42G3LJGetQvjVfxYQM80TWsHO2_xe48-NggKGlaz9hAKboWXtV41B3eg9swVELwopPaoSGvauCxgYTJslBFFs1GCquSpBAATwzd5jEvz0TKvF4vdRDtN6OjRer_G59jj9FqPpMV44px5wH4FJ34bM7B-XchSQ.jpg" width="400"><br>
+
+فرماندهی مرکزی ارتش آمریکا، سنتکام، بامداد پنجشنبه ۱۶ مهر با انتشار پیامی در اکس، اظهارات یکی از فرماندهان سپاه پاسداران درباره بسته بودن تنگه هرمز و کنترل کامل ایران بر آن را «نادرست» خواند.
+سنتکام اعلام کرد تردد کشتی‌های حامل کالاهای تجاری و محموله‌های انرژی، از جمله ۲۰ میلیون بشکه نفت خام، در تنگه هرمز جریان دارد و افزود: «ایالات متحده و شرکای منطقه‌ای به‌وضوح کنترل تنگه را در اختیار دارند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78653)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-07 23:31:23
