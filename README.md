@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-08 23:52:29 </h5>
+<h5> 🟢 Updated at: 2026-10-09 04:21:14 </h5>
 </div>
 
 
@@ -15,7 +15,7 @@
 رسانه‌های جعلی و ساختگی دارند تلاش می‌کنند این‌طور وانمود کنند که من از دشمن دعوت می‌کنم سن‌دیگو و لس‌آنجلس را بمباران کند، در حالی که آنچه واقعاً درباره‌اش صحبت می‌کردم این بود که افزایش موقت قیمت بنزین، بهای ناچیزی است که باید برای جلوگیری از دستیابی ایران به سلاح هسته‌ای پرداخت کرد. و اگر می‌خواهید بدانید بهای سنگین واقعی چیست، می‌توانید تصور کنید اگر آن‌ها سن‌دیگو و/یا لس‌آنجلس را بمباران کنند، چه اتفاقی خواهد افتاد؟
 تنها کاری که من کردم، مقایسه پرداخت مبلغی کمی بیشتر برای بنزین، آن هم برای مدتی کوتاه، با بمباران شهرهای بزرگ ما بود.
 همه این را می‌دانستند، رسانه‌های جعلی هم می‌دانستند، اما همچنان بیرون می‌آیند و می‌گویند که من از دشمن می‌خواهم دو شهری را که عاشقشان هستم بمباران کند.
-حرف‌های من کاملاً روشن است، اما این افراد منحط و فاسد هستند و فکر می‌کنند می‌توانند بی‌وقفه اخبار جعلی منتشر کنند و قسر در بروند!
+«حرف‌های من کاملاً روشن است، اما این‌ها آدم‌های پستی هستند و فکر می‌کنند می‌توانند مدام اخبار جعلی منتشر کنند و قسر در بروند!»
 رئیس‌جمهور دونالد جی. ترامپ
 realDonaldTrump
 📡
@@ -228,7 +228,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-08 02:04:39
 
-<img src="https://cdn4.telesco.pe/file/rJtVD_a40ryKpogiGcCpyOqxxn8quFGgN8cMY6WJEdW4vFxbsHVDcGwoyyaQeNntRcDnn2RlOCxRRP0H-ogsowv-VnnEga46fu-T3jqe8b0ia8SgDXBpG7MOapyX53CzyvmBct1PmWK2SDpxNQSFuj0f48y34Qenl7HjhltGp4E5HMLMoXkyx4GYS42G3LJGetQvjVfxYQM80TWsHO2_xe48-NggKGlaz9hAKboWXtV41B3eg9swVELwopPaoSGvauCxgYTJslBFFs1GCquSpBAATwzd5jEvz0TKvF4vdRDtN6OjRer_G59jj9FqPpMV44px5wH4FJ34bM7B-XchSQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/fSgSE4N_koKSk877ocnR6j8ciHdUSP44eup5QKh3xoqmy_1WccXzd7fC4e4fmabZ3c39IKlGsDH6wbnh34iPNK975MNOnJWIDLrslgTfRIb7eFpT8npsEfZ5SGDTSKa05slLMAwjDAI-eZqoR2n6j2dySOn66YE08dHmpaiOnv8aS6ZD78cfD4-8f9E_Kd_-t1I60COQQZkCQjT6LVOi97DLqw1NNJDy_RolmLwCKOYqEMgvOkLeHqHg7ZLoe2GUnt24X8IS0E4pgQzfvZ6oZGvyKvTujXIngI_990Cg2k7XpycAZfKEImJFC3Rnx14FV2deHcdQsCXv-x2cv8tMfg.jpg" width="400"><br>
 
 فرماندهی مرکزی ارتش آمریکا، سنتکام، بامداد پنجشنبه ۱۶ مهر با انتشار پیامی در اکس، اظهارات یکی از فرماندهان سپاه پاسداران درباره بسته بودن تنگه هرمز و کنترل کامل ایران بر آن را «نادرست» خواند.
 سنتکام اعلام کرد تردد کشتی‌های حامل کالاهای تجاری و محموله‌های انرژی، از جمله ۲۰ میلیون بشکه نفت خام، در تنگه هرمز جریان دارد و افزود: «ایالات متحده و شرکای منطقه‌ای به‌وضوح کنترل تنگه را در اختیار دارند.»
