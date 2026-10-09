@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-09 04:21:14 </h5>
+<h5> 🟢 Updated at: 2026-10-09 10:29:34 </h5>
 </div>
 
 
@@ -182,7 +182,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-08 05:36:05
 
-<img src="https://cdn4.telesco.pe/file/u_Oc53gayna9Wh7ZUqcEG0z-GlyA9DgR3yfv7XkzQ-vzDTtWgPBtyy_s274C6au3nTdm1qsw7MvAvdMZMIAWT01DDxChfLc_plPPCmgeJm7X1QT-bd55n5lz8BdDnj_CnFXwKjbxj-lPp28fWzrAjsXjVEfYj7oyiqeaWTkSYK9gmCc18pA0_-p24l5vwnrWoUjtQEdvnF_irzDTElGOIjWegY65M1BgKJWtVnPEL_tTUENI8cxhXSI8_SRDTnPakKlQRUX67AdKkkOZmFoCj8fZSv88metFBDxuX_Pa_G8snxGHBZ8ZOIz4D1Keev52g4kDLKvj3SlXTjOkweS1EQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NLptYjN5_TyYWBcc9184HUp61knTVOldLGPhb6CMdMUuGs96FLCU5Rty1wKKs115a_BR-g6Rlg9aTEFtlDthaGKIjgOv0hqdzaLPLrSYU__tgY4lcVfrQv2Oykvs4Pf2wK2t7V4Oy3-JaDrZCDzkVx9PjbR6Pw9EcJ3QRnGOb8joYyy8wF1Z30XW2mPxlHZphky6U8JKFnrNA5aUuy9NzoOzOyFZXO5-aNmxxFYdbpsHX8_50ut2TUxGLDWFMdr_9Y5-GpvtpkDZJJ3j_gl5amQrvIjGaaE_FVho6Ze88QU8peVAFg3WZnQzC7Wik0JWsBrtpje0fRiXr_qyBs8R3A.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری ایالات متحده، بامداد پنجشنبه ۱۶ مهر در سخنرانی در ایالت تگزاس درباره جنگ با ایران گفت این جنگ «خیلی زود» پایان خواهد یافت و ایران را «کشوری شکست‌خورده» توصیف کرد.
 ترامپ گفت: «وقتی این جنگ تمام شود که خیلی زود خواهد بود، آن‌ها یک کشور شکست‌خورده‌اند، کمی رمق برایشان مانده، اما نه زیاد.»
@@ -208,7 +208,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-10-08 05:34:11
 
-<img src="https://cdn4.telesco.pe/file/IhRvtc40gmRe43LoovpxkfbX4SMElgoNBgqpsl3me0BuU1ya7jSTyxddP6kGqdHL6UhXhswNaCA8SwKcx9OeBQvZeefw3GxF0Ohy31h3DThSRse1c6XG9A-7dJfXxQaeA7-eHH-6SMCFVc6Y2_r7VYOgagRXZLhpAtjVDVwJEuOGkRj2sNeqyTQlkh3wVZ7rSiDq2fm_5vgRXkQc-1XqqYBBJ-gvpjqlDP5fQFSjcRhnPhFIh5khr--weA3eRettxlQFSWBJs5VxNRkzKQa1GG6zx1ouj-ukRzou14lTovNZRmLlscOXUYb-M5D0ZRPKVDfcRhCg1krh3y4iyMA4rg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/A9NsSLnRPm7RDpVgc42JhqnDpocFzCYtm-fQAgJY10adboyyjZbjsjSeJqBDF_ijIeU7Oba-RfWLRgTjaEj5BbowzAcwk9Tj8p9TeOk5-mCBt5wfjopdL9wduIlkEZCcJiC7p4UQuFZoXeX4llvPWgqbI2xmX6gm-zx_ACfkTkuQn_Uwm8hYvA9Eo9klGZqR68gA3gtPCnW-_8dImt-OUQ3TutK7pyl-AeAzNWX0SStGiN5S6pBk7U6k-neSRKuFY386ZQ2JOJcpyPt2fW2erMenkzLLKlznU-UD_0X-LIy8MuJ27arn9psF1R_vde62N4PNBtvsh1B1C3GvZsipCQ.jpg" width="400"><br>
 
 دو رسانه آمریکایی گزارش کرده‌اند که پنتاگون برای حمله احتمالی مجدد به ایران طی روزهای آتی آماده می‌شود.
 سایت خبری اکسیوس به نقل از مقام‌های آمریکایی گزارش کرده طی روزهای اخیر پنتاگون با صدور دستورالعملی از سنتکام (فرماندهی مرکزی آمریکا در منطقه خاورمیانه) خواسته روند آمادگی خود را برای از سرگیری عملیات رزمی عمده علیه ایران تکمیل کند.
