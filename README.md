@@ -3,8 +3,113 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-09 17:46:06 </h5>
+<h5> 🟢 Updated at: 2026-10-09 23:25:07 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-09 22:47:03
+
+<img src="https://cdn4.telesco.pe/file/nRsKrUT8tNB87DKRiQGWyB9vJP59i2HXetNYfWz7MKMTfKX5olO8LJhvvEC90RF1swndWoyDbgrPx2MI5NZ8vDk4Vzj4UZEmghIkrTHFtKnplOaLveaBfy5erxqWlDEiWwag5jEeIIdXRdgEQt39Fu6o3R6ebAQNGp7DVGZ94FydReDBEj2p00vPxfyrzGFjRA5kd5iWHIFqGzzpWoAoUyW3VRqUnny__RNXGKIqQRKbuaLEVUswkZxsqHvdbE20NPsYEpFMca2Awd8xmkBgMBn5PJivP0tFtT7JrtMiGOCSlG4UjQV8yC9Ymc7XAT67RT-psT0d_BMomAnlZB-0UA.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه اجتماعی تروث سوشال اعلام کرد کنترل کامل آمریکا بر تنگه هرمز، همراه با توافق تازه واشینگتن و مسکو برای عرضه میلیون‌ها تن گازوئیل روسیه به بازار جهانی، باعث کاهش سریع و چشمگیر قیمت این سوخت خواهد شد.
+ترامپ گفت پس از گفت‌وگو با ولادیمیر پوتین، رییس‌جمهوری روسیه، توافق شده است که مسکو بلافاصله بیش از ۳۰۰ هزار تن گازوئیل به بازار آمریکا و جهان عرضه کند و ۵۰۰ هزار تن دیگر نیز در ماه نوامبر تحویل دهد.
+به گفته او، روسیه پس از آن یک میلیون تن گازوئیل دیگر به بازار عرضه خواهد کرد و با توجه به وضعیت پالایشگاه‌های این کشور، سه میلیون تن دیگر نیز در مدت کوتاهی تحویل خواهد داد.
+رییس‌جمهوری آمریکا گفت کنترل کامل تنگه هرمز از سوی واشینگتن و افزایش عرضه گازوئیل روسیه، قیمت این سوخت را برای مصرف‌کنندگان آمریکایی و دیگر کشورهای جهان به‌سرعت کاهش خواهد داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78679)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 20:52:29
+
+
+
+پیام‌های دریافتی درباره صداهایی که نمی‌دونم این بار هم آتش‌بازی بوده یا چی:
+سلام وحید جان شرق تهران صدای پدافند و انفجار ممتد
+صدای یک انفجار و بعد چندتا پدافند شرق تهران
+وحید تهرانپارس صدای انفجار شدید بعد ضد هوایی الان ساعت ۸/۳۰
+صدای شبیه پدافند یا تیراندازی در تهرانپارس شرق تهران
+سلام وحید جان خوبی
+پدافند تهرانپارس 5 مین  کار کرد ساعت  ۸:۳۰ دقیقه شب
+وحید جان شرق تهران صدای تیر اندازی اومد الان
+دود هم دیده میشه تو اسمون.
+آپدیت:
+دو ساعت بعد دوباره شرق تهران:
+صدایی شبیه به تیراندازی در محله مجیدیه
+ساعت ۱۰:۴۰ دقیقه ۱۷ مهر
+چند دقیقه بعد: دوباره اومد این سری انگار رگبار بود
+سلام ساعت ۲۲:۴۷ صدای تیراندازی چندین بار. مجیدیه شمالی‌
+چند دقیقه بعد: الان هم دوباره اومد
+صدای پدافند شرق تهران
+سلام وحید جان
+صدای پدافند همچنان پست سر هم
+مجیدیه
+صدای پدافند
+مجیدیه
+سمت مجیدیه تهران صدای تیر اندازی و پدافند میاد
+صدای پدافند میاد
+دولت کلاهدوز
+سلام وحيدجان سمت اختياريه صداي پدافند مياد ساعت٢٢:٥٧
+صدا پدافند سمت پاسداران
+چند بار شلیک ساعت ۲۲:۵۷
+سلام صدای تیر اندازی شمال شرق تهران ۱ دقیقه ممتد اومد الان قطع شده
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78677)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 20:51:13
+
+<img src="https://cdn1.telesco.pe/file/NHnvsZ2EwrVppUvlMg8ZeJ_5VZ56mVRrccWmKvqO9NZI_gXVK50cYGt8_vuj-THL484IHOILhG3YFhEnuE3DG5T6otYf8yNLDTjquD22p3vQcTxpWO33uijPzsNE_yFBu1Cm7ivWuYKMKbavsuKd9vJgx-JlTauDxtKZdy2Qm1b5IEdLXDwAZ_T_iLZhSdiT4uSBzKG6Q15h6hPtCaO87pniPBZRv1KLZ2ZldxgK5puEdo7UFqT8h6OKFhrUWyeZqf_Z-RqY7LiB67Ajh3vyb4uJjIdRhxVYpv9Chqp7wRyvJKY8Zqplxn61aLZHjEVI7mutS_QHQCvuOYcMOKJPSg.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت اگر حکومت ایران به سلاح هسته‌ای دست می‌یافت، ممکن بود پس از حمله به اسرائیل و دیگر نقاط خاورمیانه، کشورهای اروپایی و شهرهایی مانند لس‌آنجلس و سن‌دیگو در آمریکا را نیز هدف قرار دهد.
+ترامپ جمعه ۱۷ مهر در مراسم روز کلمبوس در کاخ سفید گفت جمهوری اسلامی پیش از حمله بمب‌افکن‌های بی‌۲ آمریکا، تنها دو تا سه هفته تا دستیابی به سلاح هسته‌ای فاصله داشت.
+او گفت در صورت دستیابی جمهوری اسلامی به این سلاح، حکومت ایران به‌سرعت از آن استفاده می‌کرد و ابتدا اسرائیل و سپس دیگر نقاط خاورمیانه را هدف قرار می‌داد.
+رییس‌جمهوری آمریکا افزود کشورهای اروپایی احتمالا پیش از آمریکا در معرض چنین حمله‌ای قرار می‌گرفتند و شهرهای لس‌آنجلس و سن‌دیگو نیز می‌توانستند از اهداف احتمالی باشند.
+ترامپ گفت: «دیگر لازم نیست نگران این موضوع باشیم. آن‌ها به سلاح هسته‌ای دست نخواهند یافت.»
+@
+VahidOOnLine
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۱۷ مهرماه در مراسم روز کریستف کلمب در کاخ سفید، با اشاره به درگیری‌های نظامی با جمهوری اسلامی گفت که این وضعیت به‌زودی پایان می‌یابد و قیمت سوخت نیز به‌شدت کاهش خواهد یافت.
+ترامپ در سخنانش با اشاره به عملیات نظامی آمریکا علیه ایران گفت: «ما مانع دستیابی ایران به سلاح هسته‌ای شدیم.» او افزود که پایان درگیری‌ها از راه‌های مختلف امکان‌پذیر است و تاکید کرد: «به هر شکلی، این وضعیت خیلی زود پایان خواهد یافت.»
+رئیس‌جمهوری آمریکا همچنین درباره توان نظامی جمهوری اسلامی گفت: «آن‌ها نه نیروی نظامی دارند، نه نیروی دریایی، نه نیروی هوایی و نه تجهیزات پدافند هوایی.» او در ادامه با اشاره به محاصره دریایی اعلام کرد که آمریکا مسیر عبور کشتی‌ها را مسدود کرده است.
+این اظهارات در شرایطی مطرح می‌شود که واشینگتن هم‌زمان با ادامه فشارهای اقتصادی علیه جمهوری اسلامی، محدودیت‌های دریایی و تحریم‌های مرتبط با صادرات نفت ایران را دنبال می‌کند. تنگه هرمز نیز به یکی از محورهای اصلی تنش‌های نظامی و اقتصادی میان دو کشور تبدیل شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78675)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 18:18:17
+
+<img src="https://cdn1.telesco.pe/file/qsR-qqaJNaJP1QpEfFUkBcnzbsusCx1ZOE8tGDfaLaa9xsWx9irMD8e-BAEcXX5crTeg11eud3xuYi27qNE1iECnk7Rlk5lB9mN1vIjZr8i5FgcyDsR8ySv09WXMGEKVDe8IQpz-z9Q_rd0vsheKjhTFmz9pMWmPdnMb7DEDl5mTZeyUoE6vhwW2F1VZOUVb3f3s7RGw9SamjYGquLb7axsbD7onFTQdvEG8BUnVMUYK6t38rSdeMcLK0AmNE17ArXdxbnFmPzqp1go1LFeS1RfA6kL3Yr0mSb9bFmPe9SmnV26rjbBJPm-UfMy_GHZYLpkrptquyWyx9EK1NjH4mg.jpg" width="400"><br>
+
+خبرگزاری صداوسیما با انتشار گزارشی اولیه، از انفجار بمب کنار جاده‌ای در مسیر یکی از خودروهای انتظامی استان سیستان‌ و بلوچستان خبر داد و نوشت در این حادثه نصرت افتخاری، معاون اجتماعی انتظامی استان سیستان و بلوچستان، در منطقه چشمه زیارت زاهدان کشته شد.
+این منبع نوشت عامل اصلی بمب‌گذاری هنگام فرار کشته شد.
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران نیز گزارش داد این حادثه در مسیر حرکت یک دستگاه خودروی پلیس در چشمه زیارت زاهدان رخ داده و چند نیروی پلیس در جریان آن دچار جراحت شده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78674)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-09 16:32:00
@@ -170,7 +275,7 @@ hra_news
 
 ###### 🔵 Post time: 2026-10-08 23:14:56
 
-<img src="https://cdn4.telesco.pe/file/mRZe3rO16SkkFicSuadQ6-93xbzMzKCQt2Cpd_fJeb79i9AB1P9bSEnvmUsjadwxJljR_oUK1c8YMnY0AgcPz39dAMNfBxIMUlmk411BK_1Oqy3btweMJpnjjgcWLX83Ca0nKIcRE5YGhfkFzerwv3e9AsE-1_eL01iqWSfJ6EPVqan5YGxrp_MrGp0_tUnew3M_uClP5iSsfFG2FlM-3DNC7SXhZ0L06UpXm3hUQ7PxgASpa3Wi0nBlOsvy_mmUfkEf8XYYn65IB1g8OqLubNwUR3wGMzLmd9ehP2NFRzofkLAy6RE8sib3-Jc7YWCPw333fr80gxkD3QsLj0Y2eA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BFjdfJOeMDkZXmkUDcDAfkTn_M9BfnmtpgmaooW4X_30CtNyxN_k7PWSxed6UgCa6gNjLRlegzPG1a6bLhTKTsF2IlqobUd1mqjC-dvzci3c9wZsfrHo4thKeIes2dlbYHnQlO7PV-aaS22gIkBEEt2i5ZRF2ZTyovCTwV9Le2zk5s6daoJkPE78hbsmduDwyGhB3o52KawNRvYKTCckjjzG4c5VNfGU-SA3FKaQqrBxk5mR-oDMsUITlj2ONqKOUBjD87H0_OyIV6owvnqZSKpvDdbPdMeYJh3Xj1Pb0B-TcX79MZR0nOCrNzbj0NOUvwIwEWw3L91QsVjw63qasg.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 رسانه‌های جعلی و ساختگی دارند تلاش می‌کنند این‌طور وانمود کنند که من از دشمن دعوت می‌کنم سن‌دیگو و لس‌آنجلس را بمباران کند، در حالی که آنچه واقعاً درباره‌اش صحبت می‌کردم این بود که افزایش موقت قیمت بنزین، بهای ناچیزی است که باید برای جلوگیری از دستیابی ایران به سلاح هسته‌ای پرداخت کرد. و اگر می‌خواهید بدانید بهای سنگین واقعی چیست، می‌توانید تصور کنید اگر آن‌ها سن‌دیگو و/یا لس‌آنجلس را بمباران کنند، چه اتفاقی خواهد افتاد؟
@@ -190,7 +295,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-10-08 20:06:00
 
-<img src="https://cdn1.telesco.pe/file/VQEJ-SSC1babn0Vgvzae04EgoqLSA8WKyrKl7x43wL8_-_Aow_1wFMO_fdH9M_7Sl7zy3n-_3ZKBflfweQHftwe-_gsfoY8mZxwc2oX90UVJnkUvD7LCIlC4yU7OW3a4el9eMcqROKrfUpA7AtdrItr5pmA-jYT9YDvhaMMxjyZLCEQmHzp_fn96Z10Rb60k03c6sHcGW0TTtJvIzV3bk9dCQ-TLvFyjb0Q141CVpftERO0U9uhGm3KFR2kgX9qb8Q8a3wazFtWhBicY4YSeh0omqfXt3nkQ-CflTN2_YeAoGf3F3R_rgS33rq0OGH62bc-QfaX19ABquA4-WsWCxQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZFKakrn1qcAP8YQSWO4VCglaL3E7V2nuO9_WRmQnttIlVIm4OUEArZeZCz9nEMkq1Q2hrjzbAUj32CRlYyG2QWEpu0lJz-3tevfGMqzECnVLhhZjNmnUfRTLVNRybTeqQWkZl-vOjVGQJS2YevbWcumIGeAo8ReHqsyfCXLzbo-gkg4y8cX21_CdtJVDxT8ZFweDQvxYlC0g9jA1BarJ8WBPTRsUgLfuNTTzYLN250cnuzEuFkaY4I69FXWtVIzK0NrQvrqXeuyXfuAsYNwMQT8Sxgl2KXXGJDZaKyrm5rLiLVT6RVMWZz9hBdts65Olog5nizRf3uKh1b63sXby-g.jpg" width="400"><br>
 
 ترامپ: مذاکرات در جریان است، پیش از انتخابات حمله نمی‌کنیم
 ترجمه ماشین:
@@ -227,7 +332,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-08 19:42:01
 
-<img src="https://cdn4.telesco.pe/file/osE0eWshEnHRGVb5DwjJTJIYtQMr_zJT77OnL6MwcTkfr5HJh88VfMi7UgsRiEiHpNR-etmAMJbfxLHNNYtd6mvjOeJHOiEhsAcLuQfbrRqe63b85-C9ubYBIwC3kUXTgQ39u7ryvpEk5HqDZVOoRh4WQyM9bXEEGQ5HVnU0tM4n5kMmuSFBEAsbaR89pjvMKCykuboiwshYUsLbjX-DROR4gk_A_a1pjjPRxNEpicab5g2c8KnjeNzAqla-fNvMQD5XrEgGBoiKAbz2klbI2jkHb19HuE-6Cazw5IHg88ZoSunkuduyv8Ffeg49MzM3QSnWdqe0DiVlDPOJU2tRBg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/HhYA-QvKZcvR6TMevNtgJBrO09R2UWVjRmCoYyzTu5iyrWMjh6MvKuumTHlXdxojlVOeyCSXDrMwnvG6GQfthlBbj0lZ1P4xhRTrQ_pK4NcfEP5dTWdnYCbAZht0PhwkTJWyGB5fORn6KS-WCp02qDwfy-TmhByrGRbDhq2ytlPG-vLG8GSGHD6W8IQR3-LZAU-9fMUt1i6ZoSnIunkGh4LWOBZAavR_7yZo14LLd_jr1Mag18jm4iqn2RlSQKC3PwIXQYazGDyKSmW8-FeKIdTf1SctNanLKzafpT1h972nLGKgO3ow4eWF9UeIUCQKBurqeXdd4WP_dvUE66BieA.jpg" width="400"><br>
 
 خبرگزاری رویترز پنج‌شنبه ۱۶ مهر گزارش داد شرکت هواپیمایی لوفت‌هانزای آلمان پروازهای خود به ریاض را تا ۲۴ مهر و ایر ایندیا پروازهای خود به مقصد و از مبدا پایتخت عربستان سعودی را تا ۱۸ مهر لغو کرده‌اند.
 این تصمیم همزمان با تشدید حملات حوثی‌های یمن مورد حمایت جمهوری اسلامی به فرودگاه‌ها و زیرساخت‌های عربستان سعودی اعلام شد.
@@ -245,7 +350,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-08 19:41:29
 
-<img src="https://cdn1.telesco.pe/file/Lyco_gh-hUD3QHy6JpVFkdbn-44nQqhMBDoIJAeYw2sILbWKo7aublsOk0Si4jLD-VhwEqZb2ZzDiOjlz0clK7m3Jh84UkaQn6ivQp1zIYXss5K7_nfIGeOeuK08wR3qjo7snXFTLyAYa8tkxzJcSO7x-AOCT09r3TWXiiqGRQKhZwQGtEpguQtU09e-iYSROiI_FVwxzcpJ5F1ePGLvxJZQc5Z35p-2zckwO33iRh9b_oSriiyhFzgfLRDgp6eUptjJGziYqYW7SXdOJpdXbYz7qDNFauWsm9KpkPZws2tQqvVi6xsqO0PUsPCZ6mrzuOclhXlGUmudCc3if-kRuQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mV7Vu6sMocPutg4eyn9g8-WiCit6CY63cM5kgNJOaxkZEUxZAfQ8Yrx9JDk2Hn8Rq11Y2cUKl3VXbrMmkL27pHypOuTXMZPcIHS6tPbM-kkSpI5c4z3bbMXPXE3N2IFRG_p-igbX_oP2mT7PPMRc5exYlWAsTn1p11iZ7z1pEy12mHF_-thd8g-ykEUH7clKbu-fib7vzL2lkRu549gx8esvOJ1M0Ft5pP2n5ihBs3K9abH2Ry6VDo-ubhMgz_GOC_qmOqoffFY4jhWorP5tEMMOflnmdvhfc-cZrvpq-pnZjuPibQG95KrSGn2NvWzLg-_ITKiWcBMdv97VEqYTTw.jpg" width="400"><br>
 
 مارگارت همیلتون، دانشمند آمریکایی و از پیشگامان مهندسی نرم‌افزار که نقش مهمی در فرود نخستین فضانوردان آمریکایی بر سطح ماه داشت، در ۹۰ سالگی درگذشت. او رهبری گروهی از متخصصان را بر عهده داشت که نرم‌افزارهای مورد استفاده در ماموریت‌های فضایی آپولوی ناسا را طراحی و توسعه دادند.
 موسسه فناوری ماساچوست (MIT) با تایید درگذشت همیلتون اعلام کرد که او روز چهارشنبه هشتم مهرماه ۱۴۰۵، برابر با ۳۰ سپتامبر ۲۰۲۶، از دنیا رفته است. این موسسه در بیانیه‌ای، همیلتون را از پیشگامان علوم کامپیوتر توصیف کرد که پیش از فراگیر شدن حرفه مهندسی نرم‌افزار، در توسعه این حوزه نقش مهمی داشت.
@@ -258,130 +363,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78660)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 15:57:37
-
-<img src="https://cdn4.telesco.pe/file/Bo_nH9LPZcOTMoxIcCygJkCdgoWdCrGFt8iyBrgAxqvbRpV3tteA9iPzaoPK65r9tLBZb_mtZhAC1ftXFMb9eODktuN0WFUZJfg8iukNsoGdwNsvIRi41NndyTO-4Kl7Svg5ufbaLw4eWlP_ERoOKly3Vsz9bxt7G7rg4LyGmzkEXPII8AdndPb0DaOEuchncZw4fiVo9RASj_VIOw60QdZQbPponBhZEGUmWX-YwkYUlwJhuDWgP-_amnridat1iC9epCuMZzlKPoOueZWew36BF4dRisrycDxcZ-sf0SASMy6bhX5_ITYnsu1Cs-8NZWrcN-qT8dsqzHQeZX-xjg.jpg" width="400"><br>
-
-عربستان سعودی در چارچوب طرحی به ارزش حدود ۲۱ میلیارد دلار، توسعه میدان نفتی مرجان را برای افزایش ظرفیت تولید نفت و فرآوری گاز دنبال می‌کند؛ میدانی مشترک با ایران که بخش ایرانی آن «فروزان» نام دارد. براساس گزارش مرکز داده‌های باز ایران، عربستان روزانه حدود ۷۳ میلیون مترمکعب گاز از این میدان برداشت می‌کند، در حالی که ایران از بخش خود گازی تولید نمی‌کند.
-در تازه‌ترین مرحله توسعه مرجان، شرکت نفت عربستان، آرامکو، قراردادی با شرکت آمریکایی «کی‌بی‌آر» برای نوسازی تاسیسات این میدان امضا کرده است. کی‌بی‌آر روز سه‌شنبه ۱۴ مهر ۱۴۰۵ اعلام کرد خدمات مهندسی و اجرای پروژه را برای تاسیسات فرآوری، فشرده‌سازی گاز و زیرساخت‌های برق مرجان ارائه خواهد کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78659)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 15:56:02
-
-<img src="https://cdn4.telesco.pe/file/pF83oQpOGNns7HW-O6VXkdwn1f_b9IFjeRV_nsH9xUnsEqqzgbW-sRQ3Pt6l-HpV8kA83gjPk45_6c4I4o4F_qukjnc0x0euXYSq_rrfwShJBtqJzHnH7fghjW57YLEbK40QifgraVf7gM5gfxGCmo8AT3fCZpVK2ulnIhp3zfnlVllnUA9rqYfzMBSjSiQADoRCT8y-Htv-dieanbAlmJ4CqS8jLEh9oBC79Fwt0LKXWVscsRpDVER9HdpKssIYTZI9bSrouu6roYBQR0apPX56sDsKZNHP2hvtN7sK06ZyRLOfluhO87799gEPbGcaXEyshEH1dgSMuzFHU_uIlA.jpg" width="400"><br>
-
-خبرگزاری رویترز، روز پنجشنبه ۱۶ مهر ماه، گزارش داد شمار کشتی‌هایی که از تنگه هرمز عبور می‌کنند، پس از افزایش حملات به نفتکش‌ها در هفته گذشته، به پایین‌ترین سطح در بیش از دو ماه گذشته رسیده است.
-رویترز بر اساس داده‌ها و تحلیل‌های شرکت تحلیل کپلر گزارش کرد، روز سه‌شنبه فقط ۷ کشتی تجاری از تنگه هرمز عبور کردند که پایین‌ترین رقم از اول مردادماه تاکنون محسوب می‌شود.
-عبور نفت خام از این تنگه نیز با کاهش ۲۷ درصدی نسبت به بالاترین سطح زمان جنگ در هفته قبل، به دست‌کم ۱۰.۱ میلیون بشکه در روز رسید که معادل ۷۴ درصد سطح پیش از جنگ است.
-به گفته تحلیلگران کپلر، بخش عمده این کاهش به انتقال محموله‌ها از کشتی به کشتی در دریای عمان مربوط می‌شود.
-به گزارش رویترز، با این حال، صادرات از سواحل دریای عمان و دریای سرخ به ۶.۷ میلیون بشکه در روز افزایش یافت، رقمی بیش از دو برابر سطح پیش از جنگ که به جبران کاهش عرضه از طریق تنگه هرمز کمک کرد.
-داده‌های کپلر نشان می‌دهد تعداد کشتی‌های عبوری روز چهارشنبه به ۱۰ عدد افزایش یافت، اما همچنان بسیار کمتر از بیش از ۲۰ کشتی در روزهای یکشنبه و دوشنبه بود.
-این گزارش پس از آن منتشر می‌شود که حملات به نفتکش‌های عبوری از تنگه هرمز در هفته گذشته به بالاترین میزان هفتگی از زمان آغاز جنگ ایران رسید. پیش از آغاز جنگ در نهم اسفند سال گذشته، روزانه حدود ۱۲۵ کشتی تجاری بزرگ شامل نفتکش‌ها، کشتی‌های حامل گاز، کشتی‌های فله‌بر و کشتی‌های کانتینری از تنگه هرمز عبور می‌کردند.
-همزمان، دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنحشنبه نموداری در شبکه اجتماعی تروث سوشال منتشر کرد که نشان می‌دهد سطح تردد نفت از تنگه هرمز به میزان پیش از جنگ آمریکا و اسرائیل علیه ایران بازگشته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78658)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 15:55:06
-
-<img src="https://cdn4.telesco.pe/file/a7pETNSaEeC8_g3NCqTj8CCdLJo03-mz6pmL4Z-Lf39HMrxZl0oS86WZbyBWO1Mfq_gIHobgsWyX3I0sqj7GxJMaNFcfSuas325y5CyOk5FNawtW_J9UKf4QMupx1X9usYteUHs3tydZGZtBrGHORIcWX9NkSHknOh4IR12jIhXmgaUWMVCvDfoGsiVZfJTAJNytPXI8LhzDVaEaQK6us5yhDg2yHtg5idFqZ7v5Uq7x1OcYwtQ2rHe_xPzdL4OiGkj1CCqwKcSGIlsmfOvm6Jaa1AwUplRqUNClz26aLEy93vo7z_pRBRyGfgupu7X6HtFyJZL6H1x4RaJ2JfZ35g.jpg" width="400"><br>
-
-در پی حمله افراد مسلح ناشناس به ستاد فرماندهی انتظامی شهرستان گلشن در سیستان‌وبلوچستان، نیروی انتظامی وقوع انفجار و تیراندازی در این منطقه را تایید کرد. هم‌زمان، ارتش جمهوری اسلامی از کشته‌شدن یک نفر و زخمی‌شدن سه نفر دیگر در حمله‌ای جداگانه به مینی‌بوس حامل کارکنان ارتش در زاهدان خبر داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78657)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 15:53:26
-
-<img src="https://cdn1.telesco.pe/file/d9ANKdw5VIi0ToOQzfYwwLhl-3jfWyD-D6o3KOMJo_iobD_KBeWTp3TYgq3RZ3RwE0aP8nZwPNOkYj7gv70I7I28u0YcLySPPgwmeOsPdYYGzZZZnFR4PNlngRHK0DEXMILXwyzWjxrrTwNaueyvRHR9RRL2sKFIlJmSnBhRchrIOskgRPEAewJP-XXzwXftZC7rMauNCKI4eHqrgcbtpG3_NDX7l9sDMRr5GfunL1oIxLAw_T4fN_0WfzapmXhSlSeJMXlbclDXFRVaM3z9jYIm2FJqd_Yd21FY1X7Jt-4U-VH_hh0S1ljD-hr-5PBaQYHRm9EbZqRWFtpe4ZwcQg.jpg" width="400"><br>
-
-خبرگزاری رویترز
-پنج‌شنبه ۱۶ مهر در گزارشی تحقیقی بر اساس گفت‌وگو با بیش از ۷۵ کارشناس حقوق بشر، وکیل و شهروند ایرانی نوشت ایران پس از اعتراضات دی‌ماه شاهد شدیدترین سرکوب چند دهه اخیر از سوی جمهوری اسلامی است.
-به نوشته رویترز، دستگاه‌های امنیتی و قضایی جمهوری اسلامی با همکاری صداوسیمای حکومتی، از طریق اعدام‌های شتاب‌زده، محاکمه‌های غیرعلنی، پیگردهای قضایی گسترده و انتشار اعترافات اجباری، در پی ایجاد فضای ترس و خاموش کردن مخالفان هستند.
-بر اساس این گزارش، از ۲۸ اسفند ۱۴۰۴ تاکنون دست‌کم ۳۴ نفر از افرادی که در ارتباط با اعتراضات دی‌ماه بازداشت شده بودند، اعدام شده‌اند. پنج نفر از آن‌ها تنها در ۱۰ روز گذشته اعدام شدند. در مقابل، طی چهار سال پس از اعتراضات ۱۴۰۱، در مجموع ۱۵ نفر در ارتباط با آن اعتراضات اعدام شدند.
-رویترز همچنین گزارش داد مقام‌های امنیتی ارمنستان در ماه مه به گروهی از معترضان ایرانی درباره تهدیدهای جدی علیه جانشان هشدار دادند و از آن‌ها خواستند برای حفظ امنیت خود و خانواده‌هایشان این کشور را ترک کنند.
-اشکان، معترض ایرانی ۳۰ ساله که در جلسه با مقام‌های امنیتی ارمنستان حضور داشت، گفت به آن‌ها هشدار داده شد افرادی احتمالا برای ربودن، ترور یا آسیب رساندن به آن‌ها اعزام شده‌اند. رویترز نوشت روایت او را با گفته‌های معترض دیگری که در همان جلسه حضور داشت و فایل صوتی آن جلسه تطبیق داده است.
-رویترز همچنین نوشت نهادهای امنیتی جمهوری اسلامی با تهدید خانواده‌های مخالفان ساکن خارج از کشور در داخل ایران، لغو گذرنامه‌ها و خودداری از ارائه خدمات کنسولی، فشار بر منتقدان را به خارج از مرزهای ایران گسترش داده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78656)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 05:36:05
-
-<img src="https://cdn4.telesco.pe/file/NLptYjN5_TyYWBcc9184HUp61knTVOldLGPhb6CMdMUuGs96FLCU5Rty1wKKs115a_BR-g6Rlg9aTEFtlDthaGKIjgOv0hqdzaLPLrSYU__tgY4lcVfrQv2Oykvs4Pf2wK2t7V4Oy3-JaDrZCDzkVx9PjbR6Pw9EcJ3QRnGOb8joYyy8wF1Z30XW2mPxlHZphky6U8JKFnrNA5aUuy9NzoOzOyFZXO5-aNmxxFYdbpsHX8_50ut2TUxGLDWFMdr_9Y5-GpvtpkDZJJ3j_gl5amQrvIjGaaE_FVho6Ze88QU8peVAFg3WZnQzC7Wik0JWsBrtpje0fRiXr_qyBs8R3A.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، بامداد پنجشنبه ۱۶ مهر در سخنرانی در ایالت تگزاس درباره جنگ با ایران گفت این جنگ «خیلی زود» پایان خواهد یافت و ایران را «کشوری شکست‌خورده» توصیف کرد.
-ترامپ گفت: «وقتی این جنگ تمام شود که خیلی زود خواهد بود، آن‌ها یک کشور شکست‌خورده‌اند، کمی رمق برایشان مانده، اما نه زیاد.»
-او همچنین با اشاره به نفت عبوری از تنگه هرمز گفت این نفت در سراسر جهان توزیع می‌شود و بار دیگر بر نقش آمریکا در انتقال نفت از این مسیر تاکید کرد.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس‌جمهوری آمریکا در جریان یک گردهمایی انتخاباتی در تگزاس گفت «ما به زودی از ایران خارج می‌شویم و قیمت نفت هم مثل سنگ پایین می‌آید.»
-او گفت افزایش بهای نفت ارزش جلوگیری از دستیابی ایران به سلاح هسته‌ای را دارد.
-رئیس‌جمهور آمریکا همچنین در مورد احتمال دستیابی به یک توافق با ایران گفت: فکر می‌کنم این توافق واقعاً چیزی است که می‌خواهم انجام دهم، اما آیا آن‌ها حاضرند برای متوقف کردن برنامه هسته‌ایشان چیزی به ما پیشنهاد دهند؟ و ما قطعاً هرگز اجازه نخواهیم داد ایران سلاح هسته‌ای داشته باشد.
-آقای ترامپ همچنین با تکرار سخنان جنجالی چند روز گذشته‌اش در مورد حمله فرضی ایران به لس‌انجلس و سن‌دیگو گفت: «همین چند روز پیش گفتم: بگذارید موشکی به سن‌دیگو یا لس‌آنجلس اصابت کند... بگذارید به سن‌دیگو یا لس‌آنجلس حمله کنند تا شاهد اتفاقات ناگوار باشید... ما اجازه نمی‌دهیم چنین اتفاقی بیفتد. ما از شهرهایمان محافظت می‌کنیم. ما از کشورمان محافظت می‌کنیم. ما اجازه نمی‌دهیم چنین چیزی رخ دهد.»
-این سومین سفر دونالد ترامپ در طول یک ماه گذشته به تگزاس برای تبلیغ نامزدهای جمهوری‌خواه محسوب می‌شود؛ نامزدهایی که در تلاش برای حفظ کنترل کنگره، اکنون با رقابت‌های انتخاباتی میان‌دوره‌ایِ به‌طور غیرمنتظره‌ای فشرده روبرو هستند.
-ترامپ در ورزشگاهی مملو از جمعیت در سن‌آنتونیو سخنرانی کرد تا از کن پکستون، نامزد جمهوری‌خواه سنا در این ایالت حمایت کند که در رقابتی تنگاتنگ با جیمز تالاریکو، رقیب دموکرات خود، قرار دارد.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78655)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 05:34:11
-
-<img src="https://cdn4.telesco.pe/file/A9NsSLnRPm7RDpVgc42JhqnDpocFzCYtm-fQAgJY10adboyyjZbjsjSeJqBDF_ijIeU7Oba-RfWLRgTjaEj5BbowzAcwk9Tj8p9TeOk5-mCBt5wfjopdL9wduIlkEZCcJiC7p4UQuFZoXeX4llvPWgqbI2xmX6gm-zx_ACfkTkuQn_Uwm8hYvA9Eo9klGZqR68gA3gtPCnW-_8dImt-OUQ3TutK7pyl-AeAzNWX0SStGiN5S6pBk7U6k-neSRKuFY386ZQ2JOJcpyPt2fW2erMenkzLLKlznU-UD_0X-LIy8MuJ27arn9psF1R_vde62N4PNBtvsh1B1C3GvZsipCQ.jpg" width="400"><br>
-
-دو رسانه آمریکایی گزارش کرده‌اند که پنتاگون برای حمله احتمالی مجدد به ایران طی روزهای آتی آماده می‌شود.
-سایت خبری اکسیوس به نقل از مقام‌های آمریکایی گزارش کرده طی روزهای اخیر پنتاگون با صدور دستورالعملی از سنتکام (فرماندهی مرکزی آمریکا در منطقه خاورمیانه) خواسته روند آمادگی خود را برای از سرگیری عملیات رزمی عمده علیه ایران تکمیل کند.
-همچنین مجله آتلانتیک هم در گزارشی اختصاصی به نقل از دو مقام آمریکایی نوشته کاخ سفید از پنتاگون خواسته است تا گزینه‌هایی برای حمله به اهداف ایرانی تدوین کند که امکان اجرای آن‌ها پیش از انتخابات میان‌دوره‌ای وجود داشته باشد.
-به گزارش آتلانتیک، دونالد ترامپ مشتاق است پیش از انتخابات، قیمت بنزین را کاهش دهد و به پیشرفتی عمده در مناقشه با ایران برسد.
-به گزارش اکسیوس، دستورالعمل پنتاگون شامل تاریخ مشخصی برای آغاز حملات نبود و دونالد ترامپ هنوز تصمیم نهایی را اتخاذ نکرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78654)
 
 ---
 
