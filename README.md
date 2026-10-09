@@ -3,8 +3,169 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-09 10:29:34 </h5>
+<h5> 🟢 Updated at: 2026-10-09 17:46:06 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-09 16:32:00
+
+<img src="https://cdn1.telesco.pe/file/e9Z7KqMQDjYWGUJV5doF3xQwDFHP0wKOp6qumPokCnH300EaJkJDDxBdwclbTLkDG0CWBRwnQ0Z3ur0VVOm9H38ZgKJOxJTlsr53Ll0X7Gw4z3nVIQfes8LJw_wJK0BJWnXbi2RTzSFJjYDVL3DuLVkQ7fMVkC7Wual8NE27u-TwMG1uTPxCKKBHGqkK3tsLKvRco_XIMRsCo-p0dFehYxTTIO6FnMgwVj3OddSjGCjp6CNtTCqCw_Ub8O0omfLJGyafpKH5wFJYRAbRWZdF101BoF1kyYbqvQVxf567JoMXc_ZagVMavrWSr6ruMuS4QT6qzfI3pc9_726HgsGTOQ.jpg" width="400"><br>
+
+نیروی دریایی سپاه پاسداران،  اعلام کرد یک کشتی حامل گاز مایع به‌نام «ان‌وی سان‌شاین»، متعلق به شرکت نات‌ویت را هنگام عبور از جنوب تنگه هرمز هدف قرار داده است.
+سپاه پاسداران اعلام کرد این کشتی در حال عبور از مسیری «غیرقانونی» بود و پس از اصابت، موتورخانه و سامانه رانش آن دچار آتش‌سوزی گسترده شد.
+نیروی دریایی سپاه همچنین اعلام کرد کنترل تنگه هرمز را در اختیار دارد و اجازه حضور نیروهای نظامی آمریکا در این منطقه را نخواهد داد.
+سپاه پاسداران در این بیانیه اعلام کرد شرکت‌های کشتیرانی که با آمریکا همکاری کنند، با تحریم و اقدامات تنبیهی علیه شناورهای خود روبه‌رو خواهند شد.
+بر اساس این بیانیه، سپاه از این پس برخورد با شناورهایی را که از مسیرهای غیرمجاز عبور کنند، به تنگه هرمز محدود نخواهد کرد و این کشتی‌ها را در سراسر منطقه هدف اقدامات تنبیهی قرار خواهد داد.
+@
+VahidOOnLine
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO)، روز جمعه ۱۷ مهر، با انتشار هشدار جدیدی اعلام کرد که حادثه‌ای در ۱۳ مایل دریایی غرب راس‌الخیمه در امارات متحده عربی رخ داده است.
+بر اساس گزارش‌های دریافتی از منابع مختلف، این شناور مورد اصابت یک پرتابه ناشناس قرار گرفته که منجر به بروز حریق شده است؛ آتش‌سوزی مذکور تاکنون مهار و خاموش شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78673)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 16:30:16
+
+<img src="https://cdn4.telesco.pe/file/iAoKWwp0-xEwyXITGwwoUXFt5E9nfxdM_Y5FFekKzkcb0GEO7AWBli0rnsF0P23pLJSYLRSBkLEoxzOPrsQBihi_yacNk9nDnXxO0d2AygLTF_vTTSJeZB6Gej9pwMtPROkWDUap4wjrMXZeWPG8bh9B9xpXiLAyZ2pua_756kG4YWsmYA9camw5Xnilw7f-M-pC68ynOMRMqiWCIv1fp2p6okro4RuxNKNZqJmhwm7kMW9MzxIIafmHGzbGY3KLDGneEXL6EF2_pHzQT4p8FFPThabQ9qHGVePZSCfYY-xsK3WEfigeu5pPp2s5xBPmo6t3bUrPQQH383FPr92CZA.jpg" width="400"><br>
+
+روزنامه‌های نیویورک‌تایمز و وال‌استریت ژورنال در گزارش‌هایی از بررسی گزینه‌های تازهٔ حمله به ایران در دولت آمریکا و تقویت حضور نظامی این کشور در خاورمیانه خبر داده‌اند.
+این گزارش‌ها در حالی منتشر شده‌اند که دونالد ترامپ، رئیس‌جمهور آمریکا، روز پنج‌شنبه ۱۶ مهر اعلام کرد ایالات متحده پیش از انتخابات میان‌دوره‌ای سوم نوامبر به ایران حمله نخواهد کرد.
+نیویورک‌تایمز به نقل از مقام‌های آمریکایی گزارش داده است که ارتش ایالات متحده در حال تدارک گزینه‌هایی برای ازسرگیری عملیات رزمی گسترده علیه ایران است و پنتاگون به دستور آقای ترامپ طرح‌هایی را برای حمله به زرادخانه‌های پهپادی و موشکی، تأسیسات انرژی و دیگر مراکز نظامی ایران تدوین کرده است.
+به گفتهٔ مقام‌هایی که با این روزنامه گفت‌وگو کرده‌اند، تیم امنیت ملی رئیس‌جمهور آمریکا و پنتاگون در ماه‌های اخیر پنج پیشنهاد برای انجام عملیات‌های بزرگ علیه ایران یا حوثی‌های یمن به او ارائه کرده‌اند، اما آقای ترامپ هر بار این طرح‌ها را رد کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78672)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 16:30:04
+
+<img src="https://cdn4.telesco.pe/file/fFhVAtP_kQN1xYwK_Uxmp7j79VYwRX3mSgyAgtFqMFcr7OXYYo3BLQoJSp6eIv9rs5jrE93lSD0Ars6FqG-akUrplydMxqtt0jVfHIe6DN7wVOYPuAJMUNVfH225C69QDF4K-2tnT1mHVrvWo4ZO2JQSR4oaiPGyVZ6_PEmleubDFV6kDVvt9mGbypgcebdDQEzYShdRZ0_TqXSeYGXgNOBoGboF19TMRYyRgmHi5ID51NRymZT4IWu5Td6fx5yeRV1iXDnbD6I4Ivfx5gQ6V0NuA1hhqTrvcZDVeNxYG-qORO_P6Am4SZWV4dcOpUL7jVQOVbR8ADrgHoQ-mGNyGQ.jpg" width="400"><br>
+
+شرکت اوپن‌ای‌آی اعلام کرد حساب‌های کاربری مرتبط با یک عملیات نفوذ رسانه‌ای با منشأ ایران را مسدود کرده است؛ عملیاتی که در آن، گردانندگان با استفاده از چت‌جی‌پی‌تی و هویت‌های جعلی روزنامه‌نگاری، نزدیک به ۱۰۰ مقاله درباره جنگ ایران و آمریکا را در حدود ۱۲ رسانه اینترنتی در کشورهای مختلف منتشر یا بازنشر کردند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78671)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 16:29:22
+
+<img src="https://cdn1.telesco.pe/file/vko3ajRIb5TfEmlO8P0xc8Mjfc4BaPlugPG5nhklwviSbVoBNhdNQ2cMps8NElqvMQ_iFZQaX4bzXVoGU9Qk5CWkCmNytG38MPHBu3tqecR5ziNd9cOgutkzgjB9_-oASIcjhUlYT9BmZGDFi5aj99NOav1xMWMucdds2GWt91wF4ysz2J67XW1aBmUo1-9A0I9QRl3hZH0gevWKR9bZL2iPozpuOd6KQmc6u9Ax7RueXV6kA8YUKbnZPJOr4BeOmvlA7fEmmp9U7WkrSiyv__N1JwKHoSEdJZLAcCIYgOkOALtStZOiN0GWVd_0CcH8GLQ3C6WwcMv4kbPsLjVa4w.jpg" width="400"><br>
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، اعلام کرد واشینگتن احتمالا تا پایان هفته حدود یک میلیارد دلار دارایی رمزارزی مرتبط با جمهوری اسلامی را مصادره خواهد کرد.
+بسنت گفت دولت دونالد ترامپ کارزار «فشار حداکثری» علیه جمهوری اسلامی را به کارزار «انزوای کامل» تبدیل کرده است.
+به گفته او، این سیاست علاوه بر محدودیت‌های مالی، مسیرهای دریایی، هوایی و زمینی ارتباط ایران با خارج از کشور را نیز در بر می‌گیرد.
+وزیر خزانه‌داری آمریکا گفت امارات متحده عربی و عمان در اجرای این سیاست با واشینگتن همکاری می‌کنند و دولت آمریکا در حال رایزنی با پاکستان و ترکیه برای بستن مسیرهای زمینی ورود و خروج از ایران است.
+@
+VahidOOnLine
+اسکات بسنت، وزیر خزانه‌داری آمریکا، با انتقاد از سفرهای خارجی مقام‌های جمهوری اسلامی گفت اعضای سپاه پاسداران دیگر نمی‌توانند برای دیدن «جراح پلاستیک خود در لندن، معشوقه‌هایشان در پاریس و پول‌هایشان در ژنو» به خارج از ایران سفر کنند.
+بسنت در ادامه گفت: «اگر جمهوری اسلامی را دوست دارند، حالا همان‌جا گیر افتاده‌اند و می‌توانند از آن لذت ببرند.»
+وزیر خزانه‌داری آمریکا گفت سیاست دولت دونالد ترامپ برای منزوی کردن جمهوری اسلامی، فراتر از تحریم‌های مالی است و محدود کردن سفر مقام‌های حکومتی به خارج از کشور نیز بخشی از این برنامه به شمار می‌رود.
+او همچنین با استناد به گزارش اخیر نیویورک‌تایمز گفت اقدامات دولت آمریکا باعث ایجاد نگرانی و آشفتگی در میان اعضای سپاه پاسداران شده است.
+بسنت افزود اقداماتی که واشینگتن علیه جمهوری اسلامی انجام داده، پیش از این سابقه نداشته است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78670)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 16:27:25
+
+
+
+مسعود پزشکیان روز پنج‌شنبه ۸ اکتبر (۱۶ مهر)، با ولادیمیر پوتین، رئیس‌جمهور روسیه، دیدار و گفت‌وگو کرد.
+این دیدار در ترکمنستان و در حاشیه دو نشست «کشورهای ساحلی دریای خزر» و «سران کشورهای مستقل مشترک‌المنافع» صورت گرفت.
+پوتین در این دیدار خطاب به پزشکیان گفت «ما می‌دانیم که ایران تلاش‌های واقعی برای پایان دادن به این درگیری انجام می‌دهد؛ درگیری‌ای که ایران در آغاز آن هیچ تقصیری ندارد.»
+پزشکیان هم در این دیدار به پوتین گفت «هر بار که [با آمریکا] گفت‌وگو می‌کنیم، دوباره حمله می‌کنند، ولی ما از میز مذاکره و گفت‌وگو کنار نخواهیم کشید.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78669)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 16:25:29
+
+<img src="https://cdn1.telesco.pe/file/imTEcfhPVWl2snjIsmPBQHzdnBwMpuvAQ4s1fE1lLJce5Hyc2LLPOU6bJ_Fo4HlD2tsX5AvJfDVrjksiQR_t6gMwVSQbo0cjb6omsLHRFbv6Tck56y_L5oxNL16issjfqGsToQF59rOU_OPuRLl7FJQNeh_qe0X9xeEjVkBTog80vu-UR4p3Bt2vBvA_oCjfIlkLcUw0zSXhhiH7VI7QtjYHWndmfjwYupCC6-6kTtJHgxvghMU38T8Pcf3x2qYlEUtSY-OJHUCDk_e3XxMglxJeB7nLRWECE2kQpwUfa3N1NH4hcMobkqtNBVLt39D8NhFVzgTyRzebcHNbQW3D0g.jpg" width="400"><br>
+
+سازمان هواپیمایی کشوری عربستان سعودی در بیانیه‌ای جمعه ۱۷ مهر اعلام کرد که در پی دو حمله به فرودگاه بین‌المللی ملک خالد ریاض در روز پنجشنبه، سه شهروند این کشور کشته و شماری از شهروندان سعودی و اتباع خارجی زخمی شدند.
+بر اساس این گزارش، در حمله نخست، تاسیسات فرودگاه و در حمله دوم، یکی از هواپیماهای شرکت هواپیمایی سعودی هدف قرار گرفت.
+این سازمان اعلام کرد پس از این دو حمله، فعالیت فرودگاه از سر گرفته شد و تردد پروازها به حالت عادی بازگشت.
+شرکت هواپیمایی سعودی نیز اعلام کرد که یکی از کارکنان این شرکت در میان کشته‌شدگان بوده و یکی از هواپیماهای آن هنگام توقف روی زمین در فرودگاه آسیب دیده است.
+سازمان هواپیمایی کشوری عربستان سعودی همچنین اعلام کرد که فعالیت‌های عملیاتی فرودگاه بین‌المللی ملک خالد از سر گرفته شده و تردد هوایی در این فرودگاه به حالت عادی بازگشته است.
+@
+VahidOOnLine
+شرکت هواپیمایی سعودی (السعودیه) اعلام کرد کاپیتان حمود علی الکثامی، خلبان این شرکت، روز پنجشنبه ۱۶ مهر ماه در حادثه فرودگاه بین‌المللی ملک خالد در ریاض جان خود را از دست داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78667)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 16:25:07
+
+<img src="https://cdn4.telesco.pe/file/RLKtauTwGiqJCNVkkYzAq058PfkeF-zuk27Lraew6q3aFAXMBDnYRBInPXUvz7Tgq7ecw6hDrY2wt0yXsUzkzwbOyUcLZTdeyhCL3Os9L91lOPlWV-iEQ0xwSbZt9QVecsGbS8mx0mh1oiaWW2z2utCvQ_3C93qsIUc6zDHn1qce96G0_H5E4lTKs3VErLbS7GUbP_4B5aUg5VD4RD-lbSuLouD5bHDDkVpqxcqzeEo9OkqixFYClFP6WOBVeSvPY8n4lO2C81UUbp6n5exbNaN9X4D2gKXePyBhb7ywP_pAnatFZt21lhOyXrnLBs7nB1U_-hGMrzdHtM5ah4U1JA.jpg" width="400"><br>
+
+رسانه‌های جمهوری اسلامی از کشته شدن رئیس پلیس پیشگیری شهرستان فاریاب در استان کرمان بر اثر تیراندازی افراد مسلح خبر دادند. این حادثه در حالی رخ داده که طی دو روز گذشته چندین حمله مسلحانه دیگر علیه نیروهای نظامی و انتظامی جمهوری اسلامی در مناطق جنوب شرقی ایران گزارش شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78666)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-09 16:22:31
+
+<img src="https://cdn1.telesco.pe/file/SrKCe5oDvy2h8Ol5d1BTXMuVsPNkNkvdbbZubKntFkobXcH--NiwDqE5Tij9cH3K4d19rGUk5671gBCCiSKp8yI0F0VnBamZ7SVmNR7TWYHHYeNOVlD_bT55B_dtuq_mYipRbPfkxX1OJL8MaGB1gIpEcVkTQfnlwtPNuMI0Anr4BY1NmLudhoIVUchlvmPRiHqh0yv2ioKiC0MK9bkgDtWJVPMpgiBmdQKC_CAe3VSqizUkvmEQCUEKr_5VHgPCvkbqqXBKwPcU6z_OJQiRJMHBgz_Al-fDAXY53YMRsqtKhS0EWdsWrf2hDCnBHQUiGQD0RN7l3AOqqT9WDuOJ9Q.jpg" width="400"><br>
+
+ترانه و رومینا رحیمی، دو خواهر بازداشت‌شده در جریان اعتراضات دی‌ماه ۱۴۰۴ و از متهمان پرونده موسوم به «میدان شهدای اصفهان»، در زندان دولت‌آباد این شهر به سر می‌برند.
+ترانه رحیمی در مرحله بدوی به اعدام و ۱۱ سال حبس و رومینا رحیمی به ۳۶ سال حبس محکوم شده‌اند. وکلای آنان به این احکام در دیوان عالی کشور اعتراض کرده‌اند.
+#ترانه_رحیمی
+#رومینا_رحیمی
+hra_news
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78665)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-08 23:14:56
@@ -104,7 +265,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-08 15:57:37
 
-<img src="https://cdn4.telesco.pe/file/MLjfZoDIE1qSPosh89KPRFKnsrM7gaeU2ALlEW5ewDJPaqmBnVRdOj7SrNG8tv9hXB1mIHO1RzErwQlKNmfjsVMRNaCRMcASvvIWrxwPVo2asG7LeEM-TPDSaon-LrrdzDU94cwwuIpb7o2sF9DgYrjH1h_mnzL0NLqR73k5CfBRZTmVY1SARDriXh7CxOGiy1i-3n9DkEZlzs58wv5ZS8c490QHee5xrSylkBcZ230SX2YPYRL01MxgQ1A4_3nbYuGOk8CY8YMqXhofw9fUi5NaZphof9DCo-kCfMBFeMfEi-FQLjBifGI6rnQ13rDWuEWzBWK-KGNblBYS7LCEDg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Bo_nH9LPZcOTMoxIcCygJkCdgoWdCrGFt8iyBrgAxqvbRpV3tteA9iPzaoPK65r9tLBZb_mtZhAC1ftXFMb9eODktuN0WFUZJfg8iukNsoGdwNsvIRi41NndyTO-4Kl7Svg5ufbaLw4eWlP_ERoOKly3Vsz9bxt7G7rg4LyGmzkEXPII8AdndPb0DaOEuchncZw4fiVo9RASj_VIOw60QdZQbPponBhZEGUmWX-YwkYUlwJhuDWgP-_amnridat1iC9epCuMZzlKPoOueZWew36BF4dRisrycDxcZ-sf0SASMy6bhX5_ITYnsu1Cs-8NZWrcN-qT8dsqzHQeZX-xjg.jpg" width="400"><br>
 
 عربستان سعودی در چارچوب طرحی به ارزش حدود ۲۱ میلیارد دلار، توسعه میدان نفتی مرجان را برای افزایش ظرفیت تولید نفت و فرآوری گاز دنبال می‌کند؛ میدانی مشترک با ایران که بخش ایرانی آن «فروزان» نام دارد. براساس گزارش مرکز داده‌های باز ایران، عربستان روزانه حدود ۷۳ میلیون مترمکعب گاز از این میدان برداشت می‌کند، در حالی که ایران از بخش خود گازی تولید نمی‌کند.
 در تازه‌ترین مرحله توسعه مرجان، شرکت نفت عربستان، آرامکو، قراردادی با شرکت آمریکایی «کی‌بی‌آر» برای نوسازی تاسیسات این میدان امضا کرده است. کی‌بی‌آر روز سه‌شنبه ۱۴ مهر ۱۴۰۵ اعلام کرد خدمات مهندسی و اجرای پروژه را برای تاسیسات فرآوری، فشرده‌سازی گاز و زیرساخت‌های برق مرجان ارائه خواهد کرد.
@@ -121,7 +282,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-08 15:56:02
 
-<img src="https://cdn4.telesco.pe/file/VFNJsfOI_Kym-691s-kVu9z3II90ALxJ1u1Cf2XR1vThyDgsviL3SyJxVlc64KdVPUjBRMp7m5Fu4H6Yf1t9tOH9aKKuwNviguDpz9ht0WB7FAiHXtH5BdmF6ar07irTd0KpOIB2Q0li22bd3Y1Doz9QDL6eSFHv1GwEPtVgLU2GootyjRFu3zBEQBxItsUnfHGJmOYVubfnNiecfhnqeqNiDtJk9nVSss4wgaYiG8tpsbcX0RgOqQRyfqru58ZM3XQUsNu1cnpwiM-TtoUfNn6qNli0FO0F3-hu99nqLhH_9Gt4F-F-2R0kcDFsxMKTmhs1lDPdfR8-KD0VKEWmtw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/pF83oQpOGNns7HW-O6VXkdwn1f_b9IFjeRV_nsH9xUnsEqqzgbW-sRQ3Pt6l-HpV8kA83gjPk45_6c4I4o4F_qukjnc0x0euXYSq_rrfwShJBtqJzHnH7fghjW57YLEbK40QifgraVf7gM5gfxGCmo8AT3fCZpVK2ulnIhp3zfnlVllnUA9rqYfzMBSjSiQADoRCT8y-Htv-dieanbAlmJ4CqS8jLEh9oBC79Fwt0LKXWVscsRpDVER9HdpKssIYTZI9bSrouu6roYBQR0apPX56sDsKZNHP2hvtN7sK06ZyRLOfluhO87799gEPbGcaXEyshEH1dgSMuzFHU_uIlA.jpg" width="400"><br>
 
 خبرگزاری رویترز، روز پنجشنبه ۱۶ مهر ماه، گزارش داد شمار کشتی‌هایی که از تنگه هرمز عبور می‌کنند، پس از افزایش حملات به نفتکش‌ها در هفته گذشته، به پایین‌ترین سطح در بیش از دو ماه گذشته رسیده است.
 رویترز بر اساس داده‌ها و تحلیل‌های شرکت تحلیل کپلر گزارش کرد، روز سه‌شنبه فقط ۷ کشتی تجاری از تنگه هرمز عبور کردند که پایین‌ترین رقم از اول مردادماه تاکنون محسوب می‌شود.
@@ -144,7 +305,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-08 15:55:06
 
-<img src="https://cdn4.telesco.pe/file/gVZXoKs24ATUsPC4O60rtkgSfoyus5qkRoCVVfYM-bTOCcU4W0A-NL68pMTJe2hXwWJpx13Et69NMss9LE9QYzma3HAW6MQj9gXZa_Stkg2w4Z_v8xYelTWfJLbstKKgHkgczlEskb8eiTgiitTdpsDn6CQB_29hnapMa3NA1rF9ELLGMNt944mHc8tTgJLTgXKyK2tW8NrXSb8jbIKc6BCnOshJEGK3sYcid-7eVlqHBZ6gz-SUfFUvMlARSAYe7dKRrfqY8EQKofhExnGwfe1ur6RjmdJPzUSpnZdPMkng7rr4gVIvWXulYSyM8ejwjPxvuI56-I2gZYcjAHLukg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/a7pETNSaEeC8_g3NCqTj8CCdLJo03-mz6pmL4Z-Lf39HMrxZl0oS86WZbyBWO1Mfq_gIHobgsWyX3I0sqj7GxJMaNFcfSuas325y5CyOk5FNawtW_J9UKf4QMupx1X9usYteUHs3tydZGZtBrGHORIcWX9NkSHknOh4IR12jIhXmgaUWMVCvDfoGsiVZfJTAJNytPXI8LhzDVaEaQK6us5yhDg2yHtg5idFqZ7v5Uq7x1OcYwtQ2rHe_xPzdL4OiGkj1CCqwKcSGIlsmfOvm6Jaa1AwUplRqUNClz26aLEy93vo7z_pRBRyGfgupu7X6HtFyJZL6H1x4RaJ2JfZ35g.jpg" width="400"><br>
 
 در پی حمله افراد مسلح ناشناس به ستاد فرماندهی انتظامی شهرستان گلشن در سیستان‌وبلوچستان، نیروی انتظامی وقوع انفجار و تیراندازی در این منطقه را تایید کرد. هم‌زمان، ارتش جمهوری اسلامی از کشته‌شدن یک نفر و زخمی‌شدن سه نفر دیگر در حمله‌ای جداگانه به مینی‌بوس حامل کارکنان ارتش در زاهدان خبر داد.
 @
@@ -160,7 +321,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-08 15:53:26
 
-<img src="https://cdn1.telesco.pe/file/VDkYhl5bnxwHi3g6LmeCMhbj310AcyLVVSsjnjmE5rTcXjR6NrtXaMutHekzd_VuD5qqca_zcZwqQmjV-UuSXfLwdYqueB9-r6jybYPkgTxrd77D98ZrZAv5OxhwnSSDHwMwjFOQOduo8OUEwPDhKhrO5B3nRoKUBwd7wQqufF994kW3wAWtMWy-nr_Cc_uq2-4-sBnafivY1HKko1z2DDwwNnoh-1vZ2ln3Nr-zaPec7EfcE5cE2huvltKXAN0w3aup0VZ4OJtQBA7NfWghV3lz2H7zrOjn2C_9cvJz_fdLH_ZygPGz7jA98pmPtaAtW9utSXaNfb8HbHhEgVgWVQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/d9ANKdw5VIi0ToOQzfYwwLhl-3jfWyD-D6o3KOMJo_iobD_KBeWTp3TYgq3RZ3RwE0aP8nZwPNOkYj7gv70I7I28u0YcLySPPgwmeOsPdYYGzZZZnFR4PNlngRHK0DEXMILXwyzWjxrrTwNaueyvRHR9RRL2sKFIlJmSnBhRchrIOskgRPEAewJP-XXzwXftZC7rMauNCKI4eHqrgcbtpG3_NDX7l9sDMRr5GfunL1oIxLAw_T4fN_0WfzapmXhSlSeJMXlbclDXFRVaM3z9jYIm2FJqd_Yd21FY1X7Jt-4U-VH_hh0S1ljD-hr-5PBaQYHRm9EbZqRWFtpe4ZwcQg.jpg" width="400"><br>
 
 خبرگزاری رویترز
 پنج‌شنبه ۱۶ مهر در گزارشی تحقیقی بر اساس گفت‌وگو با بیش از ۷۵ کارشناس حقوق بشر، وکیل و شهروند ایرانی نوشت ایران پس از اعتراضات دی‌ماه شاهد شدیدترین سرکوب چند دهه اخیر از سوی جمهوری اسلامی است.
@@ -221,147 +382,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78654)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 02:04:39
-
-<img src="https://cdn4.telesco.pe/file/fSgSE4N_koKSk877ocnR6j8ciHdUSP44eup5QKh3xoqmy_1WccXzd7fC4e4fmabZ3c39IKlGsDH6wbnh34iPNK975MNOnJWIDLrslgTfRIb7eFpT8npsEfZ5SGDTSKa05slLMAwjDAI-eZqoR2n6j2dySOn66YE08dHmpaiOnv8aS6ZD78cfD4-8f9E_Kd_-t1I60COQQZkCQjT6LVOi97DLqw1NNJDy_RolmLwCKOYqEMgvOkLeHqHg7ZLoe2GUnt24X8IS0E4pgQzfvZ6oZGvyKvTujXIngI_990Cg2k7XpycAZfKEImJFC3Rnx14FV2deHcdQsCXv-x2cv8tMfg.jpg" width="400"><br>
-
-فرماندهی مرکزی ارتش آمریکا، سنتکام، بامداد پنجشنبه ۱۶ مهر با انتشار پیامی در اکس، اظهارات یکی از فرماندهان سپاه پاسداران درباره بسته بودن تنگه هرمز و کنترل کامل ایران بر آن را «نادرست» خواند.
-سنتکام اعلام کرد تردد کشتی‌های حامل کالاهای تجاری و محموله‌های انرژی، از جمله ۲۰ میلیون بشکه نفت خام، در تنگه هرمز جریان دارد و افزود: «ایالات متحده و شرکای منطقه‌ای به‌وضوح کنترل تنگه را در اختیار دارند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78653)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-07 23:31:23
-
-<img src="https://cdn1.telesco.pe/file/sKpcRq6BCkkEnmofwT4A37il-s601aodcs-s9VTvqkeRcJhkqKN047ZqwrHPgo00QbBMEoPYUEV5R4KcgF7eDVEghvPM55V7WHUMxc4P2Yp9CQ2-kXNijYX_Q_ub8J3bZN-uezQNiA94ZuxpaIg3-sUL3MX9sSlEPoBHwd_DHkyBshaTReRZCg0YWneEsJx37-ChzOEc3GIviUfhUS6Cbm1gnonWl5pLUeSLRX3f4PYovVBp_Qz17kDRWVkadT1ymLeAFPkw1dkje3DrdI9b_vYOWRN-i--NV4f9gU2NoR4j-irtEE9szqLyQq3x0mkQcYgrQPFbB_0N-4dlVhujJw.jpg" width="400"><br>
-
-عملیات تجارت دریایی بریتانیا: در حمله به یک نفتکش در شمال قطر خسارت جانی گزارش شده است
-سازمان عملیات تجارت دریایی بریتانیا شامگاه چهارشنبه ۱۵ مهر اعلام کرد یک نفتکش در آب‌های شمال قطر، در ۵۱ مایلی مدینه‌الشمال، با چند پرتابه هدف قرار گرفت.
-بر اساس اعلام این سازمان، در این حمله تلفات جانی گزارش شده، اما هنوز جزییاتی درباره شمار کشته‌ها یا مجروحان منتشر نشده است. مقام‌ها در حال بررسی حادثه‌اند و از کشتی‌های منطقه خواسته شده با احتیاط تردد کرده و هرگونه فعالیت مشکوک را گزارش کنند.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78652)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-07 18:59:51
-
-<img src="https://cdn4.telesco.pe/file/jBySNYbAxA2hNE1xty40adM60rGDV-xwH9On13Yht6bHo1i6sz-YrjtPDX5cGMelVpHGoFAxuHjkpxsmb6t9XKI8oWCemQBQAWSRwmJE8214T8SVtcwIHnm_YqPsMyA4Q-yUtXqYuiFapiJNz9Eb6JAvwJ8OI-2fJ6F60j54QJpKZRNttGXQnB-_t8imW7thwcfuBMK6A0mvtCft1KYtBQXrAuI7ayHGcn5-PfaoYwHoYnfhvZ8sBp74boA1kfTac9nqjLXwQ0gkjcHADGPaT89XCwvd-KjlBfDTFRXBxKnMcT8nZgaGx4ungviqvjIUqU1Qx7ZgjMff4aoCCYvPaA.jpg" width="400"><br>
-
-دو منبع مطلع به خبرگزاری رویترز گفته‌اند جمهوری اسلامی ماه گذشته ۲۰۰ میلیون دلار در اختیار حزب‌الله لبنان قرار داده است تا این گروه به خانواده‌های لبنانی آواره‌شده در جنگ امسال با اسراییل کمک مالی کند.
-بر اساس اطلاعات منابع رویترز، حزب‌الله قصد دارد در مرحله نخست به هر خانواده حدود سه هزار دلار کمک کند. اولویت با خانواده‌هایی خواهد بود که روستاهایشان ویران شده یا به دلیل حضور نیروهای اسراییلی در مناطق جنوبی لبنان امکان بازگشت به محل زندگی خود را ندارند.
-یکی از منابع شمار این خانواده‌ها را حدود ۵۰ هزار خانواده اعلام کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78651)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-07 17:58:19
-
-<img src="https://cdn4.telesco.pe/file/noWK-_4-8qIrvm4jY7uCeapVykOmxOC8b9zNIY9kLderznXlM_Qi_S1KhUJ_YeSSQykQf91EPeKdNrQjDCg2xitfje6mZfgTDMR8xQF7CcveDas-aiimaGVw8aJ9Lt1c5VL5jFyw117_vsNHsBa82LXoSkq32WYTZ2Ja_WAVEfbXUNsCzkMY__c887ev_9Hg_9fva52NelED7zhxIfa3MQq5N9SQlhTqAjqp0zZI2yBHbqhbaHpXA1s4jRe1MFJB_aWPiyAeAZ3sT0R7uyp5BaRLpl6jXfa93rGqCmm6wM8Nd4oCU5a5XMpdgSzAGFrlgUVBt3J0O0lEuMi1YujnsA.jpg" width="400"><br>
-
-بهاره آقایی، وکیل دادگستری محبوس در زندان قرچک ورامین، به ۲۰ سال حبس محکوم شده است.
-کانال تلگرامی شیرین عبادی
-با اعلام این خبر، حمایت از معترضان دی‌ماه، حضور در مراسم چهلم سپهر شکری و کمک حقوقی به خانواده‌های دادخواه را از موارد مطرح‌شده در پرونده او عنوان کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78650)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-07 17:58:03
-
-<img src="https://cdn4.telesco.pe/file/gMaJ6XX2OF6qXDEB9p_VcBkxagTI_9V8_sPsOaJDFBuOPR95NLufDivRyD9kvN8grodEflGejrbJpESPIqDTk6piFkdGg-A2REKXCocklEeDyUxat_ahR2N4hP1G55O9csMjJriE-ulNEgLDUiR-fYwxzmjepHwCt0jOccOfSzlBxtgSKtosFYmzOWzrgWOZylCy6ICHytm07oIUW5D71_jRM9n-jnT_UTHEXJTX5LREN8WTOGBm6lBjWroYScjK6rKBxymAYLmZYbJOMFS8od5Qpp-bCZzBVIs0D4_KvF7uIsjHm1sqRBT62NgE45num91ND8d3Q4vGNdivrSYoGg.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری ایالات متحده آمریکا، با انتشار پیامی در اکس و با لحنی کنایه‌آمیز نسبت به استعفای محسن پاک‌نژاد، وزیر نفت ایران نوشت: «ایران وزیر نفت جدیدی دارد. با توجه به اینکه از ۲۵ اوت تاکنون حتی یک بشکه نفت خام نیز توسط ایران بر روی هیچ شناوری بارگیری نشده است، این وزیر نفت دقیقا چه چیزی را مدیریت می‌کند؟» پیش از این، مهدی طباطبایی، معاون ارتباطات و اطلاع‌رسانی دفتر ریاست جمهوری ایران اعلام کرد، پزشکیان پس از موافقیت با استعفای وزیر نفت، طی حکمی حمید بورد، مدیرعامل شرکت ملی نفت ایران را به عنوان سرپرست وزارت نفت منصوب کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78649)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-07 17:57:42
-
-<img src="https://cdn4.telesco.pe/file/XgApYPpX2rbazAim5In38DUeIDtGOMwQ9XaGScgfe1qBtBYSEgYvn4k6YiZgE3Z9fyXGVzqyf1bcp62c7vfTgZCqZ1udbWDW2EYevvuxNcjziUWIG4FXb9OHHa2DPo2_pFZ0dTVAGH9bDdUtlu8MKnOWEAtoJHSmIzKLxcf4M9_JfpHVHjeZIF5_wr41eMdqe9_xAuobnYaV56dAGvvdU6t32VHPW-iWDYDuPvOLXIcNInRKdgqMCrr77W5dqEtOaFEBiAxTJgGDyQO0GUEN-pPkkVTHqBPcUBa77MNEJI8RZQAEh2PevfTKAfy7v1TbX8BD4y2rVQTJ9eLQqO-Pbg.jpg" width="400"><br>
-
-حکم اعدام امید گودرزوند چگینی، معترض ۳۷ ساله، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ و محبوس در زندان چوبیندر قزوین، در مرحله تجدیدنظر تایید شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78648)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-07 16:22:38
-
-<img src="https://cdn1.telesco.pe/file/n1p4ozC1OUQ3hzXfeUAXlF64HxTMrcHABO6DShLsf1Vbsa__UZNR0Rm56NKG_UOGhu0cpxpNr9d5BLd93n91i1NlsCV6hvpv0SffoRnGZ0RFXdyBOx7Qx-p-ONAFgJv6bB8nTglNp0weE9U-ne3xTnco6RbQigaCIelxVDiPhyrm1rryE8Jj6OaVxx-U2_olvI-wFV3XmnDUXkkhL8b3ia8KDl5V0MMbU-KjotT_RMOh6P_1W8SRBdkVFAjv4_Q9S2BvB8tSz1G55ZHHi_Dexe8ylQ1dH_DWc9gDwEGh2aJFGJptqHxE6HP6GkZh-cUVajFZ9lWLX9pgthczHzWrRA.jpg" width="400"><br>
-
-مارکو روبیو، وزیر خارجه آمریکا، می‌گوید ایران فرصت‌های متعددی را برای دستیابی به توافقی دربارهٔ برنامه هسته‌ای خود با ایالات متحده از دست داده است.
-او روز چهارشنبه ۱۵ مهر در یک نشست خبری مشترک با همتای یونانی خود در آتن گفت: «ایران فرصت‌های متعددی را برای رسیدن به توافق هسته‌ای با آمریکا از دست داده و همچنان مبالغ هنگفتی را صرف تروریسم، تسلیحات و حزب‌الله می‌کند.»
-روبیو همچنین گفت ایران اکنون با اقتصادی رو به فروپاشی و تحریم‌های تازه روبه‌رو است و مسئولیت این وضعیت را متوجه «روحانیون تندرو شیعه حاکم بر ایران» دانست.
-او گفت: «اقتصاد ایران در آستانهٔ رسیدن به وضعیتی است که از نظر وخامت، کمتر کشوری در جهان آن را تجربه کرده است و همهٔ این‌ها نتیجهٔ عملکرد روحانیون تندروی شیعه‌ای است که در آن کشور تصمیم‌گیری می‌کنند. آن‌ها هستند که مردم محروم ایران را به چنین وضعیتی دچار کرده‌اند.»
-وزیر خارجه آمریکا همچنین با تکرار موضع واشینگتن دربارهٔ جلوگیری از دستیابی ایران به سلاح هسته‌ای گفت دونالد ترامپ توان نظامی و بخش بزرگی از ظرفیت صنایع نظامی ایران را از میان برده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78646)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-07 16:22:13
-
-<img src="https://cdn1.telesco.pe/file/qTPhnDgCRxG2_p29DSX5S5XQV71ZZEAZiqaLfT8TOxnAstUocdeRkcSXw1G2rlwI-wcayILyFNKO6z7mwHc46_VIltKTA9byVLQS0VRgJW6gxvWG1LQHxLyfRgksVPL5bZxu-LQoyzqgngz7AuvK9aj3pHdWQVV-VHex-pTtQhsIO2lD7VhzztAzp9OaZ6xTwz3QMfUGAZB2_38btV7KYJGlnohhJIM-npLLJJ_mfjwsO86LcUCk7yq6XTirMxyua-gGSvPD5ghexqeysPpWjeYT7FZpqQa-Hv_Un0Vj6FC-BtsCEDT2bRmSqUbX_pQYDXARTnsIhPxUqhG8VnGXtA.jpg" width="400"><br>
-
-روزنامه خراسان نوشت که نجمه امینی، دختر ۲۳ ساله، به اتهام «سب‌النبی و توهین به ائمه معصومین» در فضای مجازی، از سوی شعبه ششم دادگاه کیفری یک خراسان رضوی به اعدام محکوم شده است.
-امینی پیش‌تر در یک فایل صوتی از زندان وکیل‌آباد مشهد از صدور حکم اعدام برای خود خبر داده بود.
-پس از انتشار این فایل صوتی، خبرگزاری فارس، وابسته به سپاه پاسداران، اعلام کرد که هنوز هیچ حکم قطعی برای نجمه امینی صادر نشده و دیوان نیز درباره پرونده او اعلام نظر نکرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78645)
 
 ---
 
