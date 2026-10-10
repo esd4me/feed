@@ -3,8 +3,116 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-10 19:31:40 </h5>
+<h5> 🟢 Updated at: 2026-10-10 23:53:24 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-10 22:31:05
+
+
+
+سازمان هواپیمایی کشوری عربستان سعودی روز شنبه ۱۸ مهر تأیید کرد که در پی حمله به فرودگاه بین‌المللی ملک خالد در ریاض و زخمی شدن شماری از افراد، فعالیت این فرودگاه متوقف شده است.
+دونالد ترامپ، رئیس‌جمهور آمریکا، در واکنش گفته است که از این حمله مطلع شده و درباره آن تصمیم خواهد گرفت.
+دونالد ترامپ در جمع خبرنگاران و در پاسخ به این سؤال که آیا آمریکا به جنگ عربستان سعودی با حوثی‌ها خواهد پیوست، گفت: «ممکن است. این موضوع را بررسی خواهیم کرد. ما تازه از حمله اخیر مطلع شده‌ایم. تصمیم‌گیری خواهیم کرد. خیلی سریع اقدام می‌کنیم.»
+پیش‌تر برخی رسانه‌ها خبر داده بودند که حکومت ریاض از آمریکا خواسته حوثی‌ها را هدف حملات نظامی قرار دهد.
+پایگاه خبری اکسیوس یک هفته پیش گزارش داد که شماری از بلندپایه‌ترین مقام‌های امنیت ملی دولت دونالد ترامپ روز جمعه در نشستی چندساعته و اعلام‌نشده در کمپ دیوید، درباره گام‌های بعدی آمریکا در جنگ ایران و همچنین درگیری عربستان سعودی با حوثی‌های یمن گفت‌وگو کرده‌اند.
+با وجود تأیید رسمی وقوع حمله و زخمی شدن افراد، مقام‌های عربستان هنوز شمار دقیق مجروحان و میزان خسارت واردشده به فرودگاه را اعلام نکرده‌اند.
+حوثی‌های مورد حمایت جمهوری اسلامی نیز تا زمان انتشار این گزارش مسئولیت حملهٔ روز شنبه را بر عهده نگرفته‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78685)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-10 20:03:39
+
+
+
+ویدیویی از هو شدن اسماعیل بقائی، سخنگوی وزارت امور خارجه جمهوری اسلامی، در جریان اجرای ارکسترال «آرش» در سالن اسپیناس تهران منتشر شده است.
+این اتفاق شامگاه جمعه ۱۷ مهر، هنگامی رخ داد که بقائی برای سخنرانی پشت میکروفون قرار گرفت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78684)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-10 20:00:34
+
+<img src="https://cdn1.telesco.pe/file/gcZ9iPdzR-6HlNIlFWJ3CrXwHdCvRsHDUgY2A5zqB4UVGkelbwhkJuGsPJeQLwrMjCM7-ja8Fgs8c49CyhM78T4wBwmEiQmsvU4lqGOowjLkHRSbvgq51Mxqim1RaIBbdTE8vNqaaF-_M7_wlmJidr9CuHWPUYAJPgYAtUjS9vChJJq6khMKOCzxl3_SWhREKAMH-baiUpOijFYe03HzG46AujbkwQ575oA6Xy7t0oFklSr6Hoq9zSXk9PjtU2yySjAlVqIqe3baLuLnkCuFB7DnWMLLRuNdJV86DMgw45NZNzFykCDwMzaidGs7VR5xIU5XTNSGSyYmEaX7zCCrHg.jpg" width="400"><br>
+
+در ادامهٔ حملات موشکی حوثی‌های یمن به عربستان سعودی، بعدازظهر شنبه ۱۸ مهر صدای انفجار مهیبی در فرودگاه بین‌المللی ریاض شنیده شد، بخش‌هایی از فرودگاه تخلیه و تمامی پروازهای ورودی به پایتخت عربستان لغو شدند.
+یک منبع دیپلماتیک به خبرگزاری فرانسه گفت که فرودگاه بین‌المللی ریاض هدف حملهٔ موشکی حوثی‌های یمن قرار گرفته و بر اساس گزارش‌های اولیه، ده‌ها نفر زخمی شده‌اند.
+روزنامهٔ وال‌استریت جورنال به‌نقل از مقام‌های سعودی گزارش داد که موشک‌های شلیک‌شده از سوی حوثی‌های یمن مستقیماً به ترمینال شمارهٔ سه فرودگاه بین‌المللی ملک خالد در ریاض اصابت کرده و این بخش از فرودگاه تخلیه شده است.
+یک منبع بیمارستانی هم به خبرگزاری فرانسه گفته است که پنج نفر از مجروحان در بخش مراقبت‌های ویژه بستری شده‌اند. یکی از شاهدان عینی گفته است هنگام حضور در گیت ۴۰۳ ترمینال پروازهای داخلی، شاهد اصابت موشک به محدودهٔ گیت ۴۰۱ و زخمی شدن مسافران بوده است.
+به گفتهٔ منبع دیپلماتیک، حمله حدود ساعت سه بعدازظهر به وقت محلی رخ داده است. مقام‌های عربستان سعودی هنوز وقوع حملهٔ تازه را تأیید نکرده‌اند و حوثی‌ها نیز مسئولیت آن را بر عهده نگرفته‌اند.
+خبرگزاری رویترز نیز گزارش داد که پس از شنیده شدن صدای انفجار مهیب، بیش از دوازده آمبولانس در حال حرکت به‌سوی فرودگاه مشاهده شدند و مسافران از بخش‌هایی از آن تخلیه شدند. سه شاهد عینی نیز تخلیهٔ مسافران را برای خبرگزاری فرانسه تأیید کرده‌اند.
+بر اساس اطلاعات وب‌سایت ردیابی پرواز «فلایت‌رادار۲۴»، تمامی پروازهای ورودی به ریاض تغییر مسیر داده یا لغو شده‌اند و در مقطعی تنها یک بالگرد بر فراز فرودگاه دیده می‌شد.
+فرودگاه ملک خالد از مسافران خواسته است پیش از حرکت به‌سوی فرودگاه، وضعیت پرواز خود را از شرکت‌های هواپیمایی پیگیری کنند. شرکت‌های اتحاد و قطر ایرویز نیز چندین پرواز میان ریاض و مراکز اصلی فعالیت خود را لغو کرده‌اند و لغو برخی پروازها تا روز دوشنبه ادامه خواهد داشت.
+حملات روزهای گذشته به فرودگاه ریاض چهار کشته و چندین زخمی بر جای گذاشته و به هواپیماهای مسافربری، از جمله یک فروند هواپیمای شرکت سعودی، آسیب رسانده است.
+سه شهروند سعودی، از جمله یک خلبان، در حملات روز پنج‌شنبه و یک شهروند سودانی در حملهٔ چهارشنبه کشته شده‌اند. حوثی‌های مورد حمایت جمهوری اسلامی مسئولیت حملات پیشین به فرودگاه ریاض را پذیرفته‌اند.
+حملات اخیر در پی تشدید جنگ میان حوثی‌ها و نیروهای دولت مورد حمایت عربستان در یمن صورت گرفته است. حوثی‌ها که در هفته‌های گذشته بخش‌هایی از سواحل دریای سرخ را تصرف کرده بودند، با ضدحملهٔ نیروهای دولتی و حملات هوایی عربستان روبه‌رو شده‌اند.
+این گروه تهدید کرده است که حریم هوایی عربستان، به‌جز مناطق بالای شهرهای مکه و مدینه، را منطقهٔ عملیات نظامی خود می‌داند و تأسیسات نفتی این کشور را نیز هدف قرار خواهد داد.
+ائتلاف به رهبری عربستان نیز اعلام کرده که در حملات متقابل به مواضع حوثی‌ها در یمن، چند سکوی پرتاب موشک این گروه را منهدم کرده است.
+تشدید حملات به ریاض در آستانهٔ برگزاری دو نشست مهم بین‌المللی در این شهر رخ می‌دهد. برگزارکنندگان کنگرهٔ جهانی نفت و نشست «ابتکار سرمایه‌گذاری آینده» روز شنبه اعلام کردند که این رویدادها طبق برنامه برگزار خواهند شد و کوشیدند به شرکت‌کنندگان دربارهٔ امنیت آن‌ها اطمینان دهند.
+با این حال، اختلال در پروازها و هشدارهای امنیتی سفر برخی شرکت‌کنندگان را با مشکل روبه‌رو کرده است.
+شرکت لوفت‌هانزا پروازهای خود به ریاض را تا ۱۶ اکتبر تعلیق کرده و بریتانیا، فرانسه و آلمان نیز به شهروندان خود دربارهٔ سفر به پایتخت عربستان هشدار داده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78683)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-10 19:53:20
+
+<img src="https://cdn4.telesco.pe/file/hi9T9MS4v5Oz7Mmb0eQ8C0V5-gOm0Mj3kDXdF5LRG3S1pgOrry89TFqf_lPT8FmBe_7teCsc7OdZFVlI5dI75V5FfXI_mWo7pOh1Mo24TW01PT22W4wwGC_G9v1S1EW9BTz8mXdkp5HiQEm6e-X2MrCMM8vFylIHZCqeY34iGGLKcodMjBdq8nQEEJDlZe_kqluzzu8Rm-MtPTOGhFshlGMgSkvRIIAo7mx_LulUFu0tbrQenhfyWfF1GBKdfo1zsPZ4GuWSiuHz7eYq26b-goNBAh_f4gamC1hTFlCLFt964gFXuMvnUJuXh8H12kuOh4FS32owHUMmhodfUiL3Ew.jpg" width="400"><br>
+
+کاخ کرملین اعلام کرد ولادیمیر پوتین، رییس‌جمهور روسیه، با هماهنگی مسعود پزشکیان، دیدگاه تهران درباره راه‌حل احتمالی پایان جنگ با آمریکا را به دونالد ترامپ منتقل کرده است. هم‌زمان، مسکو از ادامه مذاکرات غیر مستقیم تهران و واشنگتن حمایت کرده و گفته پیشنهاد انتقال اورانیوم با غنای بالای ایران به روسیه همچنان روی میز است.
+@
+VahidHeadline
+در همون انتقال به
+توافق گازوئیل
+رسیدند؟
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78682)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-10 19:50:11
+
+<img src="https://cdn1.telesco.pe/file/JYA3al2eSd_ubX4PrKoTM7vKVFYdF2iV6iN62Zp2JeNq05IbAaw3HnUJHiyI_TCyO9Y36kh084uwwmyDHqyDlx5qYOxqiFOAtvBWwZUmNeGmqW6PU_qk6ihkkdN5eQx_auLIUNwhcqBeMPwYPmCCd7wjCFHxz4KXSawM6f118jUOlkuacViJmQ25rZZ98-RU2PnYCXKL8uElud3hjlbs0XwwTT8V6pCZFbuK7GAgnrCWZC8eV0LHD9YpCUONuwYosMaymNPqrBSVUZMCQXq8sZIcgogNB_LQuCYdQsXi0BL5NoiGdQaKgJWi03pfRjjfn9fScXFDIEZg2HSP8SJSdw.jpg" width="400"><br>
+
+مجموعه فعالان حقوق بشر در ایران در گزارشی به مناسبت روز جهانی مبارزه با مجازات اعدام اعلام کرد طی یک سال گذشته، دو هزار و سه نفر در ایران اعدام شدند که دست‌کم ۶۹ نفر از آنان با اتهام‌های سیاسی و امنیتی روبه‌رو بودند.
+شمار اعدام‌ها در این دوره نسبت به دوره مشابه پیشین حدود ۲۹ درصد افزایش یافته و از هزار و ۵۵۳ نفر به دو هزار و سه نفر رسیده است؛ بالاترین رقم ثبت‌شده در ۱۰ دوره گزارش‌دهی.
+بر اساس آمار این گزارش، شمار اعدام‌ها از ۵۰۵ نفر در دوره ۲۰۱۶–۲۰۱۷ به دو هزار و سه نفر در دوره ۲۰۲۵–۲۰۲۶ رسیده است.
+در تفکیک اعدام‌ها بر اساس نوع اتهام، ۵۷٫۵۶ درصد مربوط به قتل و ۳۶٫۲۵ درصد مربوط به جرایم مواد مخدر بوده است. سایر اعدام‌ها با اتهام‌های سیاسی و امنیتی، تجاوز، محاربه غیرسیاسی، فساد فی‌الارض، جرایم اقتصادی یا اتهام‌های نامشخص ثبت شده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78681)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-10 07:40:11
@@ -28,7 +136,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-09 22:47:03
 
-<img src="https://cdn4.telesco.pe/file/nRsKrUT8tNB87DKRiQGWyB9vJP59i2HXetNYfWz7MKMTfKX5olO8LJhvvEC90RF1swndWoyDbgrPx2MI5NZ8vDk4Vzj4UZEmghIkrTHFtKnplOaLveaBfy5erxqWlDEiWwag5jEeIIdXRdgEQt39Fu6o3R6ebAQNGp7DVGZ94FydReDBEj2p00vPxfyrzGFjRA5kd5iWHIFqGzzpWoAoUyW3VRqUnny__RNXGKIqQRKbuaLEVUswkZxsqHvdbE20NPsYEpFMca2Awd8xmkBgMBn5PJivP0tFtT7JrtMiGOCSlG4UjQV8yC9Ymc7XAT67RT-psT0d_BMomAnlZB-0UA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XoAFYRnD3-F7RyZPBRzBSFsBGq9W3E5elTIIzFzPhrubp9JvePyQA0S2rgET0LebfYVtMCohxd9axJXIQbyQysOupdguEptLWh6jTOLn2xOGtO8k-QO5Obt3cjuckJQvx63DGTG2hOw3tO2G41deDDSzn9TDXxbrsVUuz9a-D0X91KKeEHiaAxaWRCBJq14H9odHyyV9Uag-lt72bf_9MziQsR1e_iVduB6a1YcIE7YZ02UJxOL-GXJUb_KlJEMusyRvpX4LOf3fYRdYUZyyZm_8b8bOe1vyPIDQiazPG9n6Qs7ftSU-mJIvDWaMpzWaUPLAJPK4RJod0Np5hR_3uA.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه اجتماعی تروث سوشال اعلام کرد کنترل کامل آمریکا بر تنگه هرمز، همراه با توافق تازه واشینگتن و مسکو برای عرضه میلیون‌ها تن گازوئیل روسیه به بازار جهانی، باعث کاهش سریع و چشمگیر قیمت این سوخت خواهد شد.
 ترامپ گفت پس از گفت‌وگو با ولادیمیر پوتین، رییس‌جمهوری روسیه، توافق شده است که مسکو بلافاصله بیش از ۳۰۰ هزار تن گازوئیل به بازار آمریکا و جهان عرضه کند و ۵۰۰ هزار تن دیگر نیز در ماه نوامبر تحویل دهد.
@@ -89,7 +197,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-09 20:51:13
 
-<img src="https://cdn1.telesco.pe/file/NHnvsZ2EwrVppUvlMg8ZeJ_5VZ56mVRrccWmKvqO9NZI_gXVK50cYGt8_vuj-THL484IHOILhG3YFhEnuE3DG5T6otYf8yNLDTjquD22p3vQcTxpWO33uijPzsNE_yFBu1Cm7ivWuYKMKbavsuKd9vJgx-JlTauDxtKZdy2Qm1b5IEdLXDwAZ_T_iLZhSdiT4uSBzKG6Q15h6hPtCaO87pniPBZRv1KLZ2ZldxgK5puEdo7UFqT8h6OKFhrUWyeZqf_Z-RqY7LiB67Ajh3vyb4uJjIdRhxVYpv9Chqp7wRyvJKY8Zqplxn61aLZHjEVI7mutS_QHQCvuOYcMOKJPSg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/r6FyIEdNrJy5OTyXxEojk1MIoCQlEMTYnyhSooUS4d87yOlTUcNNSMv9kp2T42wzzjWDrfhBEoCAG3stgs2W4ZYkkI9MEII0udvaq4nfAms4Upu1AaaWjLyy6rlp3EKmVgyhYyMnT2XaR8GpmaZ4S4QjYZLi12LfGVhheWTRuNTTV24vVKBb5UBbz9dSpurBStTWiQSwjkFt1yurcGp2MRe1S9U0yWK5YMbr_hxhbCVe7EBgGqdXyCAg-z2Gb2bSuun0S1mMQM67wPvhemMC_v4YRMOEgzRypZjw-dR73DpU7qvIXnllFiVmZVWwfaBS26h_0kOw-v4rpbfc1OOHGw.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، گفت اگر حکومت ایران به سلاح هسته‌ای دست می‌یافت، ممکن بود پس از حمله به اسرائیل و دیگر نقاط خاورمیانه، کشورهای اروپایی و شهرهایی مانند لس‌آنجلس و سن‌دیگو در آمریکا را نیز هدف قرار دهد.
 ترامپ جمعه ۱۷ مهر در مراسم روز کلمبوس در کاخ سفید گفت جمهوری اسلامی پیش از حمله بمب‌افکن‌های بی‌۲ آمریکا، تنها دو تا سه هفته تا دستیابی به سلاح هسته‌ای فاصله داشت.
@@ -269,99 +377,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78666)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 16:22:31
-
-<img src="https://cdn1.telesco.pe/file/aFYJkzNFsBS4qPFv0SbZ2YtMFLA5yOdw7iX4ebR3GveSa_1jX8KmCDwFZDY_MuiOYWCdoa-mgTZUjqkxwb0sHJgEIoibWKjIWgCwi00eLFuVfyGyXl2V8zzAKqkjSpIHQwqVvfl-P0Aexjz_fNN2SYJ2t1Mj6ftQiQQuC7QBc7f1ykrUU5_v56gtx0Zd2tDIJ5EwpNzuk9Qb_ZUXpszdLIs2RLFLA7Fldf2WpA9ybkhynAQ8SevqTOGzGpVGIBH8r3a4C4BWvFs49vbN5B3guPL3599SAzPuJN63s6fZtaw-mlCjJXQhMYywNKm4t3H6t_Rv4_xoPM1LU8kWM1EaQg.jpg" width="400"><br>
-
-ترانه و رومینا رحیمی، دو خواهر بازداشت‌شده در جریان اعتراضات دی‌ماه ۱۴۰۴ و از متهمان پرونده موسوم به «میدان شهدای اصفهان»، در زندان دولت‌آباد این شهر به سر می‌برند.
-ترانه رحیمی در مرحله بدوی به اعدام و ۱۱ سال حبس و رومینا رحیمی به ۳۶ سال حبس محکوم شده‌اند. وکلای آنان به این احکام در دیوان عالی کشور اعتراض کرده‌اند.
-#ترانه_رحیمی
-#رومینا_رحیمی
-hra_news
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78665)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 23:14:56
-
-<img src="https://cdn4.telesco.pe/file/BFjdfJOeMDkZXmkUDcDAfkTn_M9BfnmtpgmaooW4X_30CtNyxN_k7PWSxed6UgCa6gNjLRlegzPG1a6bLhTKTsF2IlqobUd1mqjC-dvzci3c9wZsfrHo4thKeIes2dlbYHnQlO7PV-aaS22gIkBEEt2i5ZRF2ZTyovCTwV9Le2zk5s6daoJkPE78hbsmduDwyGhB3o52KawNRvYKTCckjjzG4c5VNfGU-SA3FKaQqrBxk5mR-oDMsUITlj2ONqKOUBjD87H0_OyIV6owvnqZSKpvDdbPdMeYJh3Xj1Pb0B-TcX79MZR0nOCrNzbj0NOUvwIwEWw3L91QsVjw63qasg.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-رسانه‌های جعلی و ساختگی دارند تلاش می‌کنند این‌طور وانمود کنند که من از دشمن دعوت می‌کنم سن‌دیگو و لس‌آنجلس را بمباران کند، در حالی که آنچه واقعاً درباره‌اش صحبت می‌کردم این بود که افزایش موقت قیمت بنزین، بهای ناچیزی است که باید برای جلوگیری از دستیابی ایران به سلاح هسته‌ای پرداخت کرد. و اگر می‌خواهید بدانید بهای سنگین واقعی چیست، می‌توانید تصور کنید اگر آن‌ها سن‌دیگو و/یا لس‌آنجلس را بمباران کنند، چه اتفاقی خواهد افتاد؟
-تنها کاری که من کردم، مقایسه پرداخت مبلغی کمی بیشتر برای بنزین، آن هم برای مدتی کوتاه، با بمباران شهرهای بزرگ ما بود.
-همه این را می‌دانستند، رسانه‌های جعلی هم می‌دانستند، اما همچنان بیرون می‌آیند و می‌گویند که من از دشمن می‌خواهم دو شهری را که عاشقشان هستم بمباران کند.
-«حرف‌های من کاملاً روشن است، اما این‌ها آدم‌های پستی هستند و فکر می‌کنند می‌توانند مدام اخبار جعلی منتشر کنند و قسر در بروند!»
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78664)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 20:06:00
-
-<img src="https://cdn1.telesco.pe/file/ZFKakrn1qcAP8YQSWO4VCglaL3E7V2nuO9_WRmQnttIlVIm4OUEArZeZCz9nEMkq1Q2hrjzbAUj32CRlYyG2QWEpu0lJz-3tevfGMqzECnVLhhZjNmnUfRTLVNRybTeqQWkZl-vOjVGQJS2YevbWcumIGeAo8ReHqsyfCXLzbo-gkg4y8cX21_CdtJVDxT8ZFweDQvxYlC0g9jA1BarJ8WBPTRsUgLfuNTTzYLN250cnuzEuFkaY4I69FXWtVIzK0NrQvrqXeuyXfuAsYNwMQT8Sxgl2KXXGJDZaKyrm5rLiLVT6RVMWZz9hBdts65Olog5nizRf3uKh1b63sXby-g.jpg" width="400"><br>
-
-ترامپ: مذاکرات در جریان است، پیش از انتخابات حمله نمی‌کنیم
-ترجمه ماشین:
-ما در حال انجام گفت‌وگوهای سازنده‌ای با جمهوری اسلامی ایران هستیم. می‌خواهم برای همه روشن کنم که اگرچه ایران هم از نظر اقتصادی و هم از نظر نظامی در وضعیت بسیار بدی قرار دارد و اگرچه محاصره همچنان با تمام قدرت برقرار خواهد ماند، در حالی که نفت با حجم بی‌سابقه‌ای از تنگه هرمز عبور می‌کند (تنها دیشب ۲۲ میلیون بشکه، بدون اینکه حتی یک بشکه از ایران آمده باشد یا به مقصد ایران برود!)، ما تا پیش از انتخابات میان‌دوره‌ای که قرار است روز ۳ نوامبر در ایالات متحده برگزار شود، در هیچ زمانی به ایران حمله نخواهیم کرد.
-ایران سلاح هسته‌ای نخواهد داشت!
-پرزیدنت دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78663)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 19:42:37
-
-
-
-ترامپ گفت: «من باید در مورد ایران اقدام می‌کردم، چون آنها به سلاح هسته‌ای دست پیدا می‌کردند و آن وقت می‌فهمیدید مشکل یعنی چه.»
-رئیس‌جمهوری آمریکا در ادامه با اشاره به احتمال حمله موشکی ایران به شهرهای آمریکا گفت: «ببینیم اگر آنها روزی به لس‌آنجلس یا سن‌دیگو حمله می‌کردند، چه اتفاقی می‌افتاد. این دو شهر به دلیل موقعیت جغرافیایی‌شان بیشتر مطرح هستند و منظور من حمله موشکی است.»
-ترامپ افزود: «اگر چنین اتفاقی می‌افتاد، وحشتناک بود. بگذارید لس‌آنجلس یا شهری مانند سن‌دیگو را هدف قرار دهند. بگذارید یکی از شهرهای بزرگ ما را هدف حمله قرار دهند. آن وقت است که می‌فهمید مشکل واقعی چیست.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78662)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-08 19:42:01
-
-<img src="https://cdn4.telesco.pe/file/oZ7gy-jR20QqtQsej_Jgp2M7Z4GMe9Ek-0IfzWELHGp-dgpT1p27LuGYtz69f2I2yJbNAuyUloLjhQNoh-nNX-bV1d_7nOQfYtm-ON3JzEsSKA8QIMhGpoPEO2Zg9BPgzf1RS-oNYe5rvTvFwSCyMLG5v5bahsqyWcQS64xRBCGXy-549Bkl8optS2ccQv3U6pZ-y_Z_xKMBLKoD46O1lgff3AnC4mVMC_KtJw5O4YHImrDhniLEdT_XfwsmdihXI3ANnOi-JXfjN-zU_xVBepESzMzSCiokUbbPwN5KQ8UTaruEzkBDOtuM3WlK45GGsJUeHcXvzb9dYqZgIa5zOQ.jpg" width="400"><br>
-
-خبرگزاری رویترز پنج‌شنبه ۱۶ مهر گزارش داد شرکت هواپیمایی لوفت‌هانزای آلمان پروازهای خود به ریاض را تا ۲۴ مهر و ایر ایندیا پروازهای خود به مقصد و از مبدا پایتخت عربستان سعودی را تا ۱۸ مهر لغو کرده‌اند.
-این تصمیم همزمان با تشدید حملات حوثی‌های یمن مورد حمایت جمهوری اسلامی به فرودگاه‌ها و زیرساخت‌های عربستان سعودی اعلام شد.
-حوثی‌ها اعلام کردند فرودگاه بین‌المللی ملک خالد در ریاض را با موشک بالستیک هدف قرار داده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78661)
 
 ---
 
