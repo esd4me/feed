@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-10 13:46:30 </h5>
+<h5> 🟢 Updated at: 2026-10-10 19:31:40 </h5>
 </div>
 
 
@@ -115,7 +115,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-09 18:18:17
 
-<img src="https://cdn1.telesco.pe/file/qsR-qqaJNaJP1QpEfFUkBcnzbsusCx1ZOE8tGDfaLaa9xsWx9irMD8e-BAEcXX5crTeg11eud3xuYi27qNE1iECnk7Rlk5lB9mN1vIjZr8i5FgcyDsR8ySv09WXMGEKVDe8IQpz-z9Q_rd0vsheKjhTFmz9pMWmPdnMb7DEDl5mTZeyUoE6vhwW2F1VZOUVb3f3s7RGw9SamjYGquLb7axsbD7onFTQdvEG8BUnVMUYK6t38rSdeMcLK0AmNE17ArXdxbnFmPzqp1go1LFeS1RfA6kL3Yr0mSb9bFmPe9SmnV26rjbBJPm-UfMy_GHZYLpkrptquyWyx9EK1NjH4mg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/t_atGMcYbneJRwzLDjWPXyd8F4KmGrEpY_KMRppRPH-4ZK0NNcV2Ijhb1Gca8UW8Wq50X-lHX-uwUZ2fOdCdaRm3GNzTmvw8DnKdhToKmeFJmC200xeOhyqt59l-iMB7cTTqP0UnLJtEMdmw5so06UoMq6ZotIjSA7Nf7QnoKPQgUSSsgdt6kmSCLY0R9kB2EBsloGgd7qzAOyCZtl-ZRjHjcUXqfaByID65n8FDmPxF7OnzPBjiF6jRI-FWikYx7zouYmvjg_-HaKmqT4ZGWtUFYszLb-Dwk1PwQ4lVow5cPCtTbukq1qJmA4leNlgPNlNJKAdKQgQe-bnuamH3pQ.jpg" width="400"><br>
 
 خبرگزاری صداوسیما با انتشار گزارشی اولیه، از انفجار بمب کنار جاده‌ای در مسیر یکی از خودروهای انتظامی استان سیستان‌ و بلوچستان خبر داد و نوشت در این حادثه نصرت افتخاری، معاون اجتماعی انتظامی استان سیستان و بلوچستان، در منطقه چشمه زیارت زاهدان کشته شد.
 این منبع نوشت عامل اصلی بمب‌گذاری هنگام فرار کشته شد.
@@ -133,7 +133,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-09 16:32:00
 
-<img src="https://cdn1.telesco.pe/file/e9Z7KqMQDjYWGUJV5doF3xQwDFHP0wKOp6qumPokCnH300EaJkJDDxBdwclbTLkDG0CWBRwnQ0Z3ur0VVOm9H38ZgKJOxJTlsr53Ll0X7Gw4z3nVIQfes8LJw_wJK0BJWnXbi2RTzSFJjYDVL3DuLVkQ7fMVkC7Wual8NE27u-TwMG1uTPxCKKBHGqkK3tsLKvRco_XIMRsCo-p0dFehYxTTIO6FnMgwVj3OddSjGCjp6CNtTCqCw_Ub8O0omfLJGyafpKH5wFJYRAbRWZdF101BoF1kyYbqvQVxf567JoMXc_ZagVMavrWSr6ruMuS4QT6qzfI3pc9_726HgsGTOQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/lCEEBLxovDp6O9dSelFG6V6q9UUVUu4fAaRcxyNGWgZP3FFq2WzhLQbfYg8qnfBT_l6xm6dPlNTXdQCYuMxSuSjAu43S272F3mwXtLIiVgJ4rFVesB2hu6f4DDDLB70JLVCelB7wX8P_Oml7qeIx0mF-n9RN86h_0IJWgS2KG0SW-PsEphziHqBejpIoY0qvlSuuKVZYXY4EsAse34_G66YCVgBEYxjPfi2wSsyL0JHE8l3hMUraKu3hiwQqqIrkQKgQ4MeIaZ3UlmkPJOnGU-IBhtLXr7wjPDUqpmE_SFir-yndPICkhFzgcJMcqYqjosY2qjFkOyp2IV-YCPmbRA.jpg" width="400"><br>
 
 نیروی دریایی سپاه پاسداران،  اعلام کرد یک کشتی حامل گاز مایع به‌نام «ان‌وی سان‌شاین»، متعلق به شرکت نات‌ویت را هنگام عبور از جنوب تنگه هرمز هدف قرار داده است.
 سپاه پاسداران اعلام کرد این کشتی در حال عبور از مسیری «غیرقانونی» بود و پس از اصابت، موتورخانه و سامانه رانش آن دچار آتش‌سوزی گسترده شد.
@@ -157,7 +157,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-09 16:30:16
 
-<img src="https://cdn4.telesco.pe/file/iAoKWwp0-xEwyXITGwwoUXFt5E9nfxdM_Y5FFekKzkcb0GEO7AWBli0rnsF0P23pLJSYLRSBkLEoxzOPrsQBihi_yacNk9nDnXxO0d2AygLTF_vTTSJeZB6Gej9pwMtPROkWDUap4wjrMXZeWPG8bh9B9xpXiLAyZ2pua_756kG4YWsmYA9camw5Xnilw7f-M-pC68ynOMRMqiWCIv1fp2p6okro4RuxNKNZqJmhwm7kMW9MzxIIafmHGzbGY3KLDGneEXL6EF2_pHzQT4p8FFPThabQ9qHGVePZSCfYY-xsK3WEfigeu5pPp2s5xBPmo6t3bUrPQQH383FPr92CZA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/bJ2sYZvNZ3IzHBxQoiPXBGznhfzMMPYcOlpbPSF0jQV1HEyWSAbJvCSpJfAQj4skYutHA2qBuAlsM9auMMFh_NBfKe-Xf7qeCN_WekzqZT48QR6RF5YHs6ud33aWE56w8v0gudrf4eM5CyX8gOTjbVXHiZh_HNikIg2nOx-DhGx5wfTWEGOUOcLZmmCD9XCp9Xm5zTwaGE6j_vUQ2oSjDlxnoEC9Vj3ieQIRhbaGNNhMZN-g4uidFISgHPcCcwnZuUNYjBv6oQaDnHwF9kFlgot5b-zFPSfXJKdzZ1GYoWzjT4yujQYeb9JHtyf9cech-yNpJbd4gWJx_M_DDHWJ3A.jpg" width="400"><br>
 
 روزنامه‌های نیویورک‌تایمز و وال‌استریت ژورنال در گزارش‌هایی از بررسی گزینه‌های تازهٔ حمله به ایران در دولت آمریکا و تقویت حضور نظامی این کشور در خاورمیانه خبر داده‌اند.
 این گزارش‌ها در حالی منتشر شده‌اند که دونالد ترامپ، رئیس‌جمهور آمریکا، روز پنج‌شنبه ۱۶ مهر اعلام کرد ایالات متحده پیش از انتخابات میان‌دوره‌ای سوم نوامبر به ایران حمله نخواهد کرد.
@@ -176,7 +176,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-09 16:30:04
 
-<img src="https://cdn4.telesco.pe/file/fFhVAtP_kQN1xYwK_Uxmp7j79VYwRX3mSgyAgtFqMFcr7OXYYo3BLQoJSp6eIv9rs5jrE93lSD0Ars6FqG-akUrplydMxqtt0jVfHIe6DN7wVOYPuAJMUNVfH225C69QDF4K-2tnT1mHVrvWo4ZO2JQSR4oaiPGyVZ6_PEmleubDFV6kDVvt9mGbypgcebdDQEzYShdRZ0_TqXSeYGXgNOBoGboF19TMRYyRgmHi5ID51NRymZT4IWu5Td6fx5yeRV1iXDnbD6I4Ivfx5gQ6V0NuA1hhqTrvcZDVeNxYG-qORO_P6Am4SZWV4dcOpUL7jVQOVbR8ADrgHoQ-mGNyGQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/mIOXwFZuI-wirV_vF-hGt5eo17a35uKpgeWMaf22urFukZkMu3Z9fLlfqzXQaO0VyF4HHtinYvQVNd3CwvQAq0mgKJj7VVJViXEfz_8ocBNntdGqGG7Nz1BkYigOaTHS-4_VUIrelv-cJSKFg6xb_tbsqWutNC7gtIt7UMIwOxtjw68PLhJPVHQlYiNhhKEIwOiP1wWoOKrXRbno7cisZHgdIrfj9wlqAiThTzjxnlMzS_x2ZyCZIJkLtGK1qhP1ertnuDqVDGYaNa4D3tw07CZ_e6WnZ_tFha0HW7bO-ASbK7HaAz94BLqwvQmGJSDjGnSTw_OnEetN-66p5NH-qg.jpg" width="400"><br>
 
 شرکت اوپن‌ای‌آی اعلام کرد حساب‌های کاربری مرتبط با یک عملیات نفوذ رسانه‌ای با منشأ ایران را مسدود کرده است؛ عملیاتی که در آن، گردانندگان با استفاده از چت‌جی‌پی‌تی و هویت‌های جعلی روزنامه‌نگاری، نزدیک به ۱۰۰ مقاله درباره جنگ ایران و آمریکا را در حدود ۱۲ رسانه اینترنتی در کشورهای مختلف منتشر یا بازنشر کردند.
 @
@@ -192,7 +192,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-09 16:29:22
 
-<img src="https://cdn1.telesco.pe/file/vko3ajRIb5TfEmlO8P0xc8Mjfc4BaPlugPG5nhklwviSbVoBNhdNQ2cMps8NElqvMQ_iFZQaX4bzXVoGU9Qk5CWkCmNytG38MPHBu3tqecR5ziNd9cOgutkzgjB9_-oASIcjhUlYT9BmZGDFi5aj99NOav1xMWMucdds2GWt91wF4ysz2J67XW1aBmUo1-9A0I9QRl3hZH0gevWKR9bZL2iPozpuOd6KQmc6u9Ax7RueXV6kA8YUKbnZPJOr4BeOmvlA7fEmmp9U7WkrSiyv__N1JwKHoSEdJZLAcCIYgOkOALtStZOiN0GWVd_0CcH8GLQ3C6WwcMv4kbPsLjVa4w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/uiy0YOvdaJbPWW9Q62u08jXLqESIOG37Mx5g1jAFPIqeOOMTzM1eLWvhlPBlfwQU8AuCiaJSu-QabsoFOOs7rAqHxonIwJJ972WV-0OD-2dTMmBc6B7qffo61F1DMgCpl2rRAskTz0V3vZlLkU0_ipSyNfj9AaGCBVkb0riGZ56jqpBwUU453nm3C9wp5ahMArET_1YfVGvoU4fladCvCBvPnlOj2FkaagxiM9gZsf9WTNFjl0IFFtHOzEiwGKr1e1_J38yZqKwwAOkYFxLfuxdU--GT_VEX4a0m2g7mSRjNCrHvNbeN92plH7yvn1YffPtMyJwMNBJDW8TckU8WAA.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا، اعلام کرد واشینگتن احتمالا تا پایان هفته حدود یک میلیارد دلار دارایی رمزارزی مرتبط با جمهوری اسلامی را مصادره خواهد کرد.
 بسنت گفت دولت دونالد ترامپ کارزار «فشار حداکثری» علیه جمهوری اسلامی را به کارزار «انزوای کامل» تبدیل کرده است.
@@ -237,7 +237,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-09 16:25:29
 
-<img src="https://cdn1.telesco.pe/file/imTEcfhPVWl2snjIsmPBQHzdnBwMpuvAQ4s1fE1lLJce5Hyc2LLPOU6bJ_Fo4HlD2tsX5AvJfDVrjksiQR_t6gMwVSQbo0cjb6omsLHRFbv6Tck56y_L5oxNL16issjfqGsToQF59rOU_OPuRLl7FJQNeh_qe0X9xeEjVkBTog80vu-UR4p3Bt2vBvA_oCjfIlkLcUw0zSXhhiH7VI7QtjYHWndmfjwYupCC6-6kTtJHgxvghMU38T8Pcf3x2qYlEUtSY-OJHUCDk_e3XxMglxJeB7nLRWECE2kQpwUfa3N1NH4hcMobkqtNBVLt39D8NhFVzgTyRzebcHNbQW3D0g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IHFzL2720FoUDg0GTts016SGqd_YvaSr6iZWz9ZTreYTVbrNw5fhwMM10_-KBO9RTh_yW-PqjHeJKl9AECMtMDF2sG4LEtM07U9fJAmVv3BuIf1gDfiAbbDRwbQ6dV-qzKEUdnvhfPgziECOjRiepkF5kAWTBUug1222b4ccNcF8b2BrLpaTbxPQuU90QxQGSQag3Qk316FvfwAmBq05hZ033ajeXx_sP8sDl7WDf-yjsI9cC1XuWHP9ILGlOhM69rWtwPPJ5IqXeBClzyy58N7OxZLaCJWmFbSdqztkVRhbc5kOSnv9mRwSd8BC1p7cNKm2dz2qUnygFYQO_udSJQ.jpg" width="400"><br>
 
 سازمان هواپیمایی کشوری عربستان سعودی در بیانیه‌ای جمعه ۱۷ مهر اعلام کرد که در پی دو حمله به فرودگاه بین‌المللی ملک خالد ریاض در روز پنجشنبه، سه شهروند این کشور کشته و شماری از شهروندان سعودی و اتباع خارجی زخمی شدند.
 بر اساس این گزارش، در حمله نخست، تاسیسات فرودگاه و در حمله دوم، یکی از هواپیماهای شرکت هواپیمایی سعودی هدف قرار گرفت.
@@ -260,7 +260,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-09 16:25:07
 
-<img src="https://cdn4.telesco.pe/file/RLKtauTwGiqJCNVkkYzAq058PfkeF-zuk27Lraew6q3aFAXMBDnYRBInPXUvz7Tgq7ecw6hDrY2wt0yXsUzkzwbOyUcLZTdeyhCL3Os9L91lOPlWV-iEQ0xwSbZt9QVecsGbS8mx0mh1oiaWW2z2utCvQ_3C93qsIUc6zDHn1qce96G0_H5E4lTKs3VErLbS7GUbP_4B5aUg5VD4RD-lbSuLouD5bHDDkVpqxcqzeEo9OkqixFYClFP6WOBVeSvPY8n4lO2C81UUbp6n5exbNaN9X4D2gKXePyBhb7ywP_pAnatFZt21lhOyXrnLBs7nB1U_-hGMrzdHtM5ah4U1JA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/dXeL6-1kYdBnrbjKbVwkVnUorbLUf1UnfIHliblOC90G39mOxaLvNojOM5q3xejEoOr54VFyE1QFex_5NBONWB560C5BCoUqX-qallIHOPOO4K6dnCq2vrLq75RNiYtMQs2UQiya7sDj3OJIQdXlVJE1Pe1s8b1EB8gGUp43waaJhFE_pXci84NqYUshzG6nK0Q-nkvq_C6BFawFsemyj7kYF9Ya3StLMBc-qim1rqVWUiC35E9S1H7ouDC4-bpvPTsKhRL2uRjgRMqnTXLf-wH7e1YZNdPdOlyQrWrkelBg4hGGiYV3y6w9NCRsaokjoRPpw4h5o54jg2_Ou8LunA.jpg" width="400"><br>
 
 رسانه‌های جمهوری اسلامی از کشته شدن رئیس پلیس پیشگیری شهرستان فاریاب در استان کرمان بر اثر تیراندازی افراد مسلح خبر دادند. این حادثه در حالی رخ داده که طی دو روز گذشته چندین حمله مسلحانه دیگر علیه نیروهای نظامی و انتظامی جمهوری اسلامی در مناطق جنوب شرقی ایران گزارش شده است.
 @
@@ -276,7 +276,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-09 16:22:31
 
-<img src="https://cdn1.telesco.pe/file/SrKCe5oDvy2h8Ol5d1BTXMuVsPNkNkvdbbZubKntFkobXcH--NiwDqE5Tij9cH3K4d19rGUk5671gBCCiSKp8yI0F0VnBamZ7SVmNR7TWYHHYeNOVlD_bT55B_dtuq_mYipRbPfkxX1OJL8MaGB1gIpEcVkTQfnlwtPNuMI0Anr4BY1NmLudhoIVUchlvmPRiHqh0yv2ioKiC0MK9bkgDtWJVPMpgiBmdQKC_CAe3VSqizUkvmEQCUEKr_5VHgPCvkbqqXBKwPcU6z_OJQiRJMHBgz_Al-fDAXY53YMRsqtKhS0EWdsWrf2hDCnBHQUiGQD0RN7l3AOqqT9WDuOJ9Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aFYJkzNFsBS4qPFv0SbZ2YtMFLA5yOdw7iX4ebR3GveSa_1jX8KmCDwFZDY_MuiOYWCdoa-mgTZUjqkxwb0sHJgEIoibWKjIWgCwi00eLFuVfyGyXl2V8zzAKqkjSpIHQwqVvfl-P0Aexjz_fNN2SYJ2t1Mj6ftQiQQuC7QBc7f1ykrUU5_v56gtx0Zd2tDIJ5EwpNzuk9Qb_ZUXpszdLIs2RLFLA7Fldf2WpA9ybkhynAQ8SevqTOGzGpVGIBH8r3a4C4BWvFs49vbN5B3guPL3599SAzPuJN63s6fZtaw-mlCjJXQhMYywNKm4t3H6t_Rv4_xoPM1LU8kWM1EaQg.jpg" width="400"><br>
 
 ترانه و رومینا رحیمی، دو خواهر بازداشت‌شده در جریان اعتراضات دی‌ماه ۱۴۰۴ و از متهمان پرونده موسوم به «میدان شهدای اصفهان»، در زندان دولت‌آباد این شهر به سر می‌برند.
 ترانه رحیمی در مرحله بدوی به اعدام و ۱۱ سال حبس و رومینا رحیمی به ۳۶ سال حبس محکوم شده‌اند. وکلای آنان به این احکام در دیوان عالی کشور اعتراض کرده‌اند.
@@ -351,7 +351,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-08 19:42:01
 
-<img src="https://cdn4.telesco.pe/file/HhYA-QvKZcvR6TMevNtgJBrO09R2UWVjRmCoYyzTu5iyrWMjh6MvKuumTHlXdxojlVOeyCSXDrMwnvG6GQfthlBbj0lZ1P4xhRTrQ_pK4NcfEP5dTWdnYCbAZht0PhwkTJWyGB5fORn6KS-WCp02qDwfy-TmhByrGRbDhq2ytlPG-vLG8GSGHD6W8IQR3-LZAU-9fMUt1i6ZoSnIunkGh4LWOBZAavR_7yZo14LLd_jr1Mag18jm4iqn2RlSQKC3PwIXQYazGDyKSmW8-FeKIdTf1SctNanLKzafpT1h972nLGKgO3ow4eWF9UeIUCQKBurqeXdd4WP_dvUE66BieA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/oZ7gy-jR20QqtQsej_Jgp2M7Z4GMe9Ek-0IfzWELHGp-dgpT1p27LuGYtz69f2I2yJbNAuyUloLjhQNoh-nNX-bV1d_7nOQfYtm-ON3JzEsSKA8QIMhGpoPEO2Zg9BPgzf1RS-oNYe5rvTvFwSCyMLG5v5bahsqyWcQS64xRBCGXy-549Bkl8optS2ccQv3U6pZ-y_Z_xKMBLKoD46O1lgff3AnC4mVMC_KtJw5O4YHImrDhniLEdT_XfwsmdihXI3ANnOi-JXfjN-zU_xVBepESzMzSCiokUbbPwN5KQ8UTaruEzkBDOtuM3WlK45GGsJUeHcXvzb9dYqZgIa5zOQ.jpg" width="400"><br>
 
 خبرگزاری رویترز پنج‌شنبه ۱۶ مهر گزارش داد شرکت هواپیمایی لوفت‌هانزای آلمان پروازهای خود به ریاض را تا ۲۴ مهر و ایر ایندیا پروازهای خود به مقصد و از مبدا پایتخت عربستان سعودی را تا ۱۸ مهر لغو کرده‌اند.
 این تصمیم همزمان با تشدید حملات حوثی‌های یمن مورد حمایت جمهوری اسلامی به فرودگاه‌ها و زیرساخت‌های عربستان سعودی اعلام شد.
