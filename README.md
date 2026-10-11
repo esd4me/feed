@@ -3,8 +3,112 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-11 15:20:19 </h5>
+<h5> 🟢 Updated at: 2026-10-11 20:33:50 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-11 19:42:13
+
+<img src="https://cdn4.telesco.pe/file/VqdQtWYSwILbbcUwTFrcbWyCG2JojpEp-GDXTuSXYhkpUb9E2qVfbcvh4d3RoM78ftLc0ADmGfwMyBkQa9kAuMEgMh9tG6uKeUjCjc3jkNQCpGl45sK7LGFFCmEMxqt82fVu_D5KGcQNep8Zz2juKHsWS2TZQHbf3jl432f8CFZZ1jyaIXyuMs_7PhHtLjSXOkTLwJSIEpmsHYmC4TyUvrjLNY4kJXv_VVTdO8l0jJ0deM1qLYCEBGdR_nw6DVTS4ncdtgT01snsA1mUxBa3yffUjy9vE--eaJ2WPnEQ5BqrkeO-2gwSVAK6NAEv9GeAKIZOSdvq6YYCcBgaLOVzLg.jpg" width="400"><br>
+
+فرودگاه ریاض روز یکشنبه ۱۹ مهر بار دیگر هدف قرار گرفت.
+ائتلاف به رهبری عربستان سعودی در یمن اعلام کرد که یک «پرتابه ناشناس» فرودگاه بین‌المللی ریاض را هدف قرار داده است.
+ترکی المالکی، سخنگوی ائتلاف، گفت این پرتابه به پایانه ۴ فرودگاه بین‌المللی ملک خالد اصابت کرد و موجب آتش‌سوزی شد.
+این در حالی است که حمله موشکی روز گذشته به فرودگاه بین‌المللی ریاض که حوثی‌های یمن پس از ساعت‌ها تنها به طور تلویحی مسئولیت آن را پذیرفتند دست‌کم ۱۲ کشته و بیش از ۳۰۰ مجروح برجا گذاشت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78694)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-11 18:03:29
+
+<img src="https://cdn1.telesco.pe/file/qBt_kQBvAI_c4PqWnLbjgaE4cTmVsDl62qUXF81wWYckuDXprlnCBhPnNDtkP7xg0k_RVGOExpO6E6zcGLD0Fw3kykpwPCp9wsAeYAhdJcXAr_Tjqjc_amFtn3Io7m9mcyeKxPqKMCy8k-NlEOuL9ana3dMmGQ_fYfixL6ePJZ-YD2qiBUj6Nq3lXrstOsFuadOSPQjQpT8fpWyKVsiSpLgfe_uPrevbiW3jNBrBmlvtSOr1AinFWuKWh8e05P8B5jPp1xOi6GJu1SEOepZ3CCGlEb6hYWcuZkM1xMl3Mwb_pwiSVQFnmMIK_wSppXPcs-A4sb66Sykp19PxoJzEig.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا
+گزارش
+کرده است که یک نفتکش در حال عبور از تنگه هرمز مورد اصابت یک پرتابه ناشناس قرار گرفته است.
+براساس این گزارش‌ها این نفتکش در حال خروج از تنگه هرمز بوده و «از ناحیه سمت چپ» مورد اصابت قرار گرفته است.
+مرکز عملیات تجارت دریایی بریتانیا همچنین گفته این اصابت به کشتی آسیب رسانده، اما تمامی خدمه در سلامت کامل هستند و هیچ‌گونه پیامد زیست‌محیطی نیز گزارش نشده است.
+@
+VahidHeadline
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از منابع خبری گزارش داد که یک کشتی در مسیر جنوبی تنگه هرمز بر اثر اصابت یک پرتابه دچار آتش‌سوزی شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78692)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-11 16:13:44
+
+<img src="https://cdn4.telesco.pe/file/jNlHWk4Xtuz6113OVa469_A8E_pvfOKc1Y-isA8sOtF8ML-cEUtgbfPOATxNSCx4PLovH1uVoIbFBtIJh6_Gofy4fGojAVxKo20HLq551ssWmq1QHzsKgUk0b1zB3lGKxrF1wEfTwCGmYXYvODt4Law-BGCv7eleN3yY-Df8MAclKLJcZcJj1cWFz_HxVNM1kmfZ0H-gIZLl2SBUQWewBwFC9qKoLpge0wdezAUY_Oq4iD4IUUSD8p-QXQBqO6uf2o7i68W-Tlqif73-GiekVPKHmY5rj28adXAzP9L0oaz63PEoJtZ84dLBwHB6lDxgFVaSkV0aQ3E1TSdLrpRVLQ.jpg" width="400"><br>
+
+شهرزاد شهبازی، از وکلای متهمان پرونده «میدان علیخانی اصفهان» و وکیل علیرضا سپاهی، با رد روایت رسانه‌های حکومتی اعلام کرده است اتهام قتل ماموران انتظامی به هیچ‌یک از متهمان این پرونده تفهیم نشده و دادگاه نیز به این اتهام رسیدگی نکرده است. تاکنون پنج نفر از متهمان این پرونده اعدام شده‌اند و هفت نفر دیگر در خطر اعدام قرار دارند.
+اظهارات این وکیل در واکنش به انتشار مصاحبه‌ای در رسانه‌های حکومتی مطرح شده است که در آن زنی، معرفی‌شده به‌عنوان همسر یکی از مأموران کشته‌شده، متهمان را به قتل و سوزاندن ماموران متهم می‌کند. انتشار این مصاحبه پس از افزایش انتقادها از اجرای احکام اعدام، به‌ویژه اعدام علیرضا سپاهی، صورت گرفته است.
+شهبازی همچنین حضور این زن در محل اجرای اعدام‌ها را زیر سوال برده و پرسیده است وقتی موضوع پرونده قصاص و حق شخصی نبوده، بر چه مبنایی به او اجازه حضور در محل اجرای حکم داده شده است.
+شهبازی روز شنبه ۱۸ مهر ۱۴۰۵ در پیامی در اینستاگرام نوشت: «به هیچ عنوان اتهام قتل برای هیچ‌یک از متهمان پرونده میدان علیخانی و میدان شهدا تفهیم نشده است.»
+او تأکید کرد موضوع «سوزاندن ماموران در راستای قتل عمد» نه در دادگاه رسیدگی شده و نه از اتهام‌های مطرح‌شده در رای بوده است.
+شهبازی علت ورود نکردن دادگاه انقلاب به موضوع قتل را نداشتن صلاحیت رسیدگی به این اتهام عنوان کرده است.
+پرونده میدان علیخانی پس از کشته‌شدن چهار مامور یگان ویژه در جریان اعتراضات ۱۸ دی ۱۴۰۴ در اصفهان تشکیل شد. رسانه‌های حکومتی پیش‌تر ویدیوهایی از اعترافات متهمان در بازجویی‌ها، بازسازی صحنه و جلسات محاکمه در شعبه اول دادگاه انقلاب اصفهان منتشر کرده‌اند؛ اعترافاتی که نهادهای حقوق‌بشری آن‌ها را اجباری و فاقد اعتبار می‌دانند.
+علیرضا سپاهی بامداد دوشنبه ۱۳ مهر اعدام شد. مای ساتو، گزارشگر ویژه سازمان ملل در امور حقوق بشر ایران، در واکنش به اجرای حکم، از نگرانی‌های جدی درباره شکنجه متهمان و رعایت‌نشدن دادرسی عادلانه در این پرونده خبر داده بود. به گفته ساتو، حکم در حالی اجرا شد که وکیل سپاهی همچنان برای رسیدگی دوباره به پرونده تلاش می‌کرد.
+سپاهی پیش‌تر نیز در آستانه اعدام در ملأعام قرار گرفته بود، اما پس از حمله قلبی به بیمارستان منتقل شد. در همان شب، شهروندان برای جلوگیری از اجرای احکام تا سپیده‌دم در میدان علیخانی ماندند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78691)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-11 16:11:04
+
+<img src="https://cdn4.telesco.pe/file/TM16SOT5Gkd-3NLZcebd0d1DlfKNw8WzfldwSYMieaSpw8ZhWcxKkh7E8wEIdbSVS3bbDuWtqkusOJog_mAP98GOhrs4XO67MM2oLsSZ83Qx1dGcriz-jsHQ0bsF4yKrOU1rzcZwEw1hYibcVwIowKH2tVE1IMoKLNeOjQADL8XGs6iJmNY48y6SJNGy64DNw9nvJAJPM__4IXPbopPXwmx2bl6WGvmsIuOnR9U0-Uu8Ftzzc3V-BZ0bWuyAASlvtlPOA542rERXXkNneECMXMvxBusXGigxAvMAUiNg4CVvKQwqszRL_z7lMZyb-gk8MoYiy3LUFbGcIS97rqo3SA.jpg" width="400"><br>
+
+سازمان مدیریت بحران ایران اعلام کرد در سیلاب و رعد و برق پنج استان کشور هفت نفر جان باختند و دو نفر مفقود شدند.
+به اعلام این سازمان، دو مفقود در استان گلستان ناپدید شده‌اند.
+در شهرستان سوادکوه شمالی استان مازندران دو پل کاملاً از بین رفت. آب‌گرفتگی در معابر و خانه‌های این شهرستان گزارش شد و شماری خودرو در آب ماندند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78690)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-11 16:10:37
+
+<img src="https://cdn1.telesco.pe/file/vpyLm_bbzUczDc6Lj0x-7OjiunH0HRei3F-6gMxdIkSZW6VYGveXFsP3Uw-rXmgiqZyIA2dAnG7ZICkzChOrwKxJ_uW64PriWUlXKFvexUVFcgcYFjy0nTAwTM-0UPPFTZp-s0bWsScRYHlnlrhM13eWOOEBnSSn-YYhDKKfWl0zRGlglD-1F9Ql44uw0noX2rRXQsJTWZkbsb429Y1oGcgCUm6dRL5eFakkb2TqZy5Y3iUnbPDHxaXyx9ZZQSk0vm0xNYzdyODAmvvX55uMkRPlZUNlDu1QqoMx2JQrKylf-_bNNmMhgySf5_P_fQccAyjwOPOI_vhrQ0Ob-Ttn-Q.jpg" width="400"><br>
+
+قوه قضائیه جمهوری اسلامی از اعدام یک مرد به اتهام قتل یک مامور نیروی انتظامی در بندرعباس خبر داد.
+این مامور نیروی انتظامی رضا احترامی و مأمور یگان امداد شهرستان بندرعباس معرفی شده است.
+متهم نیز پیش‌تر با نام «دانیال» معرفی شده و ادعا شده بود که این قتل چهار سال پیش هنگام درگیری با قاچاقچیان سوخت، بر اثر زیر گرفته شدن با خودرویی که مرد اعدام‌شده رانندگی آن را بر عهده داشت، روی داد.
+شنبه نیز دستگاه قضایی جمهوری اسلامی از اعدام جابر خسروی، زندانی محکوم به قصاص در پرونده قتل یک مأمور انتظامی خبر داد.
+این پرونده به حادثه‌ای در بیمارستان ولایت دامغان در ۱۱ شهریور ۱۴۰۱ بازمی‌گردد؛ حادثه‌ای که بنا بر ادعای مقام‌های قضایی، در جریان آن سلاح مأمور انتظامی گرفته شد و او بر اثر اصابت دو گلوله جان خود را از دست داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78689)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-11 03:09:57
@@ -127,7 +231,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-10 19:53:20
 
-<img src="https://cdn4.telesco.pe/file/hi9T9MS4v5Oz7Mmb0eQ8C0V5-gOm0Mj3kDXdF5LRG3S1pgOrry89TFqf_lPT8FmBe_7teCsc7OdZFVlI5dI75V5FfXI_mWo7pOh1Mo24TW01PT22W4wwGC_G9v1S1EW9BTz8mXdkp5HiQEm6e-X2MrCMM8vFylIHZCqeY34iGGLKcodMjBdq8nQEEJDlZe_kqluzzu8Rm-MtPTOGhFshlGMgSkvRIIAo7mx_LulUFu0tbrQenhfyWfF1GBKdfo1zsPZ4GuWSiuHz7eYq26b-goNBAh_f4gamC1hTFlCLFt964gFXuMvnUJuXh8H12kuOh4FS32owHUMmhodfUiL3Ew.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/RS6daEr-8rUaew1zT1h3fhZHhKcBxvF8OhAt-fmmIGmrWPvR80fv6URYMHKTNC0lRbx5qqrxFjyUgJjThu6Abrcv5danR0yNL4FxaDfVn2yeRtkQdahKVvYNo-FurwKR5zc3bPrPu63qOs4iZmzjey_LWfWRMmGq7YHQckpdSZ28ullTV1PLoVr3oN34If3yTvkiEm567YhmOYjFNSHXY-05B8t4l03tJKKyGxBRf13r4ddkaUPt3kNBp0cUaIomMuoVFwuzLDNnXqPVkHU_XwK5ZdX-SdYoJfIOZIoKBPPGzD18RthKrd8-KEuBIIGOTTj3cTo1nQqkw1yua1aGCQ.jpg" width="400"><br>
 
 کاخ کرملین اعلام کرد ولادیمیر پوتین، رییس‌جمهور روسیه، با هماهنگی مسعود پزشکیان، دیدگاه تهران درباره راه‌حل احتمالی پایان جنگ با آمریکا را به دونالد ترامپ منتقل کرده است. هم‌زمان، مسکو از ادامه مذاکرات غیر مستقیم تهران و واشنگتن حمایت کرده و گفته پیشنهاد انتقال اورانیوم با غنای بالای ایران به روسیه همچنان روی میز است.
 @
@@ -146,7 +250,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-10 19:50:11
 
-<img src="https://cdn1.telesco.pe/file/JYA3al2eSd_ubX4PrKoTM7vKVFYdF2iV6iN62Zp2JeNq05IbAaw3HnUJHiyI_TCyO9Y36kh084uwwmyDHqyDlx5qYOxqiFOAtvBWwZUmNeGmqW6PU_qk6ihkkdN5eQx_auLIUNwhcqBeMPwYPmCCd7wjCFHxz4KXSawM6f118jUOlkuacViJmQ25rZZ98-RU2PnYCXKL8uElud3hjlbs0XwwTT8V6pCZFbuK7GAgnrCWZC8eV0LHD9YpCUONuwYosMaymNPqrBSVUZMCQXq8sZIcgogNB_LQuCYdQsXi0BL5NoiGdQaKgJWi03pfRjjfn9fScXFDIEZg2HSP8SJSdw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LGocOXQNuH_ZxNEQ5FVEUr-5xuGMowAx2cSp_383-pEAeXR9OVCpqGUG4xHp5VMqVMH8-iV04I2himhcU46aHGCXcDbjAQxhI-wf9wbb5uWZuyCpPm1ShJIO0jzZ5SXnTtAJXEmTYhGHtYvvIdJ7EKGtvEm8n7mswkcHGfgb-rm2fHtPQZOgjU1IbeY7lL2oBy2QjuqRi096L14hOM9DFRJ2RCFgCD9oY9p8CsDWmuWze-ffJGAonbMiwX3Ib0fxVJEnzv2FcWFKFfWHSbYR6NcjwcJ5azEtU-pm_LOIoIXfSaLo-kBNIVqBHGACHazhxiF8-KRM_FcStETMsK9GVA.jpg" width="400"><br>
 
 مجموعه فعالان حقوق بشر در ایران در گزارشی به مناسبت روز جهانی مبارزه با مجازات اعدام اعلام کرد طی یک سال گذشته، دو هزار و سه نفر در ایران اعدام شدند که دست‌کم ۶۹ نفر از آنان با اتهام‌های سیاسی و امنیتی روبه‌رو بودند.
 شمار اعدام‌ها در این دوره نسبت به دوره مشابه پیشین حدود ۲۹ درصد افزایش یافته و از هزار و ۵۵۳ نفر به دو هزار و سه نفر رسیده است؛ بالاترین رقم ثبت‌شده در ۱۰ دوره گزارش‌دهی.
@@ -245,7 +349,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-09 20:51:13
 
-<img src="https://cdn1.telesco.pe/file/r6FyIEdNrJy5OTyXxEojk1MIoCQlEMTYnyhSooUS4d87yOlTUcNNSMv9kp2T42wzzjWDrfhBEoCAG3stgs2W4ZYkkI9MEII0udvaq4nfAms4Upu1AaaWjLyy6rlp3EKmVgyhYyMnT2XaR8GpmaZ4S4QjYZLi12LfGVhheWTRuNTTV24vVKBb5UBbz9dSpurBStTWiQSwjkFt1yurcGp2MRe1S9U0yWK5YMbr_hxhbCVe7EBgGqdXyCAg-z2Gb2bSuun0S1mMQM67wPvhemMC_v4YRMOEgzRypZjw-dR73DpU7qvIXnllFiVmZVWwfaBS26h_0kOw-v4rpbfc1OOHGw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/guud3mzXhE_TAOFpvEs4AG5804iAV4UKHgUu-pVM2DOHXd2syOV51VOFZ1kPBYU_JrwboULBOu8s5mIILAyc8LHDBmEaNUFDnSebpn77GzWWim5n6PEpJhpNBzqz9Y9wUnWZkqYM83RAtSlSVDqvwuVtUIazUbUVRMH-XwYU994-quVsisRZtd3MT_zPGVSgqW3MJuzj66MNtIYogXePrH_ZRJs-V7VikHRSYziM54kYIz1BrmA3BK8rCqeMUWfQjQnLoT7xtaEPGN71bqC_n0xAUVGtDhvkuaKZu917NooaEaV8ljLakV4MuVrL4i3a-gw1tdAwOz5I7ZGE8yluCw.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، گفت اگر حکومت ایران به سلاح هسته‌ای دست می‌یافت، ممکن بود پس از حمله به اسرائیل و دیگر نقاط خاورمیانه، کشورهای اروپایی و شهرهایی مانند لس‌آنجلس و سن‌دیگو در آمریکا را نیز هدف قرار دهد.
 ترامپ جمعه ۱۷ مهر در مراسم روز کلمبوس در کاخ سفید گفت جمهوری اسلامی پیش از حمله بمب‌افکن‌های بی‌۲ آمریکا، تنها دو تا سه هفته تا دستیابی به سلاح هسته‌ای فاصله داشت.
@@ -264,128 +368,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78675)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 18:18:17
-
-<img src="https://cdn1.telesco.pe/file/t_atGMcYbneJRwzLDjWPXyd8F4KmGrEpY_KMRppRPH-4ZK0NNcV2Ijhb1Gca8UW8Wq50X-lHX-uwUZ2fOdCdaRm3GNzTmvw8DnKdhToKmeFJmC200xeOhyqt59l-iMB7cTTqP0UnLJtEMdmw5so06UoMq6ZotIjSA7Nf7QnoKPQgUSSsgdt6kmSCLY0R9kB2EBsloGgd7qzAOyCZtl-ZRjHjcUXqfaByID65n8FDmPxF7OnzPBjiF6jRI-FWikYx7zouYmvjg_-HaKmqT4ZGWtUFYszLb-Dwk1PwQ4lVow5cPCtTbukq1qJmA4leNlgPNlNJKAdKQgQe-bnuamH3pQ.jpg" width="400"><br>
-
-خبرگزاری صداوسیما با انتشار گزارشی اولیه، از انفجار بمب کنار جاده‌ای در مسیر یکی از خودروهای انتظامی استان سیستان‌ و بلوچستان خبر داد و نوشت در این حادثه نصرت افتخاری، معاون اجتماعی انتظامی استان سیستان و بلوچستان، در منطقه چشمه زیارت زاهدان کشته شد.
-این منبع نوشت عامل اصلی بمب‌گذاری هنگام فرار کشته شد.
-خبرگزاری فارس، رسانه وابسته به سپاه پاسداران نیز گزارش داد این حادثه در مسیر حرکت یک دستگاه خودروی پلیس در چشمه زیارت زاهدان رخ داده و چند نیروی پلیس در جریان آن دچار جراحت شده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78674)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 16:32:00
-
-<img src="https://cdn1.telesco.pe/file/lCEEBLxovDp6O9dSelFG6V6q9UUVUu4fAaRcxyNGWgZP3FFq2WzhLQbfYg8qnfBT_l6xm6dPlNTXdQCYuMxSuSjAu43S272F3mwXtLIiVgJ4rFVesB2hu6f4DDDLB70JLVCelB7wX8P_Oml7qeIx0mF-n9RN86h_0IJWgS2KG0SW-PsEphziHqBejpIoY0qvlSuuKVZYXY4EsAse34_G66YCVgBEYxjPfi2wSsyL0JHE8l3hMUraKu3hiwQqqIrkQKgQ4MeIaZ3UlmkPJOnGU-IBhtLXr7wjPDUqpmE_SFir-yndPICkhFzgcJMcqYqjosY2qjFkOyp2IV-YCPmbRA.jpg" width="400"><br>
-
-نیروی دریایی سپاه پاسداران،  اعلام کرد یک کشتی حامل گاز مایع به‌نام «ان‌وی سان‌شاین»، متعلق به شرکت نات‌ویت را هنگام عبور از جنوب تنگه هرمز هدف قرار داده است.
-سپاه پاسداران اعلام کرد این کشتی در حال عبور از مسیری «غیرقانونی» بود و پس از اصابت، موتورخانه و سامانه رانش آن دچار آتش‌سوزی گسترده شد.
-نیروی دریایی سپاه همچنین اعلام کرد کنترل تنگه هرمز را در اختیار دارد و اجازه حضور نیروهای نظامی آمریکا در این منطقه را نخواهد داد.
-سپاه پاسداران در این بیانیه اعلام کرد شرکت‌های کشتیرانی که با آمریکا همکاری کنند، با تحریم و اقدامات تنبیهی علیه شناورهای خود روبه‌رو خواهند شد.
-بر اساس این بیانیه، سپاه از این پس برخورد با شناورهایی را که از مسیرهای غیرمجاز عبور کنند، به تنگه هرمز محدود نخواهد کرد و این کشتی‌ها را در سراسر منطقه هدف اقدامات تنبیهی قرار خواهد داد.
-@
-VahidOOnLine
-سازمان عملیات تجارت دریایی بریتانیا (UKMTO)، روز جمعه ۱۷ مهر، با انتشار هشدار جدیدی اعلام کرد که حادثه‌ای در ۱۳ مایل دریایی غرب راس‌الخیمه در امارات متحده عربی رخ داده است.
-بر اساس گزارش‌های دریافتی از منابع مختلف، این شناور مورد اصابت یک پرتابه ناشناس قرار گرفته که منجر به بروز حریق شده است؛ آتش‌سوزی مذکور تاکنون مهار و خاموش شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78673)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 16:30:16
-
-<img src="https://cdn4.telesco.pe/file/bJ2sYZvNZ3IzHBxQoiPXBGznhfzMMPYcOlpbPSF0jQV1HEyWSAbJvCSpJfAQj4skYutHA2qBuAlsM9auMMFh_NBfKe-Xf7qeCN_WekzqZT48QR6RF5YHs6ud33aWE56w8v0gudrf4eM5CyX8gOTjbVXHiZh_HNikIg2nOx-DhGx5wfTWEGOUOcLZmmCD9XCp9Xm5zTwaGE6j_vUQ2oSjDlxnoEC9Vj3ieQIRhbaGNNhMZN-g4uidFISgHPcCcwnZuUNYjBv6oQaDnHwF9kFlgot5b-zFPSfXJKdzZ1GYoWzjT4yujQYeb9JHtyf9cech-yNpJbd4gWJx_M_DDHWJ3A.jpg" width="400"><br>
-
-روزنامه‌های نیویورک‌تایمز و وال‌استریت ژورنال در گزارش‌هایی از بررسی گزینه‌های تازهٔ حمله به ایران در دولت آمریکا و تقویت حضور نظامی این کشور در خاورمیانه خبر داده‌اند.
-این گزارش‌ها در حالی منتشر شده‌اند که دونالد ترامپ، رئیس‌جمهور آمریکا، روز پنج‌شنبه ۱۶ مهر اعلام کرد ایالات متحده پیش از انتخابات میان‌دوره‌ای سوم نوامبر به ایران حمله نخواهد کرد.
-نیویورک‌تایمز به نقل از مقام‌های آمریکایی گزارش داده است که ارتش ایالات متحده در حال تدارک گزینه‌هایی برای ازسرگیری عملیات رزمی گسترده علیه ایران است و پنتاگون به دستور آقای ترامپ طرح‌هایی را برای حمله به زرادخانه‌های پهپادی و موشکی، تأسیسات انرژی و دیگر مراکز نظامی ایران تدوین کرده است.
-به گفتهٔ مقام‌هایی که با این روزنامه گفت‌وگو کرده‌اند، تیم امنیت ملی رئیس‌جمهور آمریکا و پنتاگون در ماه‌های اخیر پنج پیشنهاد برای انجام عملیات‌های بزرگ علیه ایران یا حوثی‌های یمن به او ارائه کرده‌اند، اما آقای ترامپ هر بار این طرح‌ها را رد کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78672)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 16:30:04
-
-<img src="https://cdn4.telesco.pe/file/mIOXwFZuI-wirV_vF-hGt5eo17a35uKpgeWMaf22urFukZkMu3Z9fLlfqzXQaO0VyF4HHtinYvQVNd3CwvQAq0mgKJj7VVJViXEfz_8ocBNntdGqGG7Nz1BkYigOaTHS-4_VUIrelv-cJSKFg6xb_tbsqWutNC7gtIt7UMIwOxtjw68PLhJPVHQlYiNhhKEIwOiP1wWoOKrXRbno7cisZHgdIrfj9wlqAiThTzjxnlMzS_x2ZyCZIJkLtGK1qhP1ertnuDqVDGYaNa4D3tw07CZ_e6WnZ_tFha0HW7bO-ASbK7HaAz94BLqwvQmGJSDjGnSTw_OnEetN-66p5NH-qg.jpg" width="400"><br>
-
-شرکت اوپن‌ای‌آی اعلام کرد حساب‌های کاربری مرتبط با یک عملیات نفوذ رسانه‌ای با منشأ ایران را مسدود کرده است؛ عملیاتی که در آن، گردانندگان با استفاده از چت‌جی‌پی‌تی و هویت‌های جعلی روزنامه‌نگاری، نزدیک به ۱۰۰ مقاله درباره جنگ ایران و آمریکا را در حدود ۱۲ رسانه اینترنتی در کشورهای مختلف منتشر یا بازنشر کردند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78671)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 16:29:22
-
-<img src="https://cdn1.telesco.pe/file/uiy0YOvdaJbPWW9Q62u08jXLqESIOG37Mx5g1jAFPIqeOOMTzM1eLWvhlPBlfwQU8AuCiaJSu-QabsoFOOs7rAqHxonIwJJ972WV-0OD-2dTMmBc6B7qffo61F1DMgCpl2rRAskTz0V3vZlLkU0_ipSyNfj9AaGCBVkb0riGZ56jqpBwUU453nm3C9wp5ahMArET_1YfVGvoU4fladCvCBvPnlOj2FkaagxiM9gZsf9WTNFjl0IFFtHOzEiwGKr1e1_J38yZqKwwAOkYFxLfuxdU--GT_VEX4a0m2g7mSRjNCrHvNbeN92plH7yvn1YffPtMyJwMNBJDW8TckU8WAA.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری آمریکا، اعلام کرد واشینگتن احتمالا تا پایان هفته حدود یک میلیارد دلار دارایی رمزارزی مرتبط با جمهوری اسلامی را مصادره خواهد کرد.
-بسنت گفت دولت دونالد ترامپ کارزار «فشار حداکثری» علیه جمهوری اسلامی را به کارزار «انزوای کامل» تبدیل کرده است.
-به گفته او، این سیاست علاوه بر محدودیت‌های مالی، مسیرهای دریایی، هوایی و زمینی ارتباط ایران با خارج از کشور را نیز در بر می‌گیرد.
-وزیر خزانه‌داری آمریکا گفت امارات متحده عربی و عمان در اجرای این سیاست با واشینگتن همکاری می‌کنند و دولت آمریکا در حال رایزنی با پاکستان و ترکیه برای بستن مسیرهای زمینی ورود و خروج از ایران است.
-@
-VahidOOnLine
-اسکات بسنت، وزیر خزانه‌داری آمریکا، با انتقاد از سفرهای خارجی مقام‌های جمهوری اسلامی گفت اعضای سپاه پاسداران دیگر نمی‌توانند برای دیدن «جراح پلاستیک خود در لندن، معشوقه‌هایشان در پاریس و پول‌هایشان در ژنو» به خارج از ایران سفر کنند.
-بسنت در ادامه گفت: «اگر جمهوری اسلامی را دوست دارند، حالا همان‌جا گیر افتاده‌اند و می‌توانند از آن لذت ببرند.»
-وزیر خزانه‌داری آمریکا گفت سیاست دولت دونالد ترامپ برای منزوی کردن جمهوری اسلامی، فراتر از تحریم‌های مالی است و محدود کردن سفر مقام‌های حکومتی به خارج از کشور نیز بخشی از این برنامه به شمار می‌رود.
-او همچنین با استناد به گزارش اخیر نیویورک‌تایمز گفت اقدامات دولت آمریکا باعث ایجاد نگرانی و آشفتگی در میان اعضای سپاه پاسداران شده است.
-بسنت افزود اقداماتی که واشینگتن علیه جمهوری اسلامی انجام داده، پیش از این سابقه نداشته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78670)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 16:27:25
-
-
-
-مسعود پزشکیان روز پنج‌شنبه ۸ اکتبر (۱۶ مهر)، با ولادیمیر پوتین، رئیس‌جمهور روسیه، دیدار و گفت‌وگو کرد.
-این دیدار در ترکمنستان و در حاشیه دو نشست «کشورهای ساحلی دریای خزر» و «سران کشورهای مستقل مشترک‌المنافع» صورت گرفت.
-پوتین در این دیدار خطاب به پزشکیان گفت «ما می‌دانیم که ایران تلاش‌های واقعی برای پایان دادن به این درگیری انجام می‌دهد؛ درگیری‌ای که ایران در آغاز آن هیچ تقصیری ندارد.»
-پزشکیان هم در این دیدار به پوتین گفت «هر بار که [با آمریکا] گفت‌وگو می‌کنیم، دوباره حمله می‌کنند، ولی ما از میز مذاکره و گفت‌وگو کنار نخواهیم کشید.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78669)
 
 ---
 
