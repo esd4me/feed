@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-11 20:33:50 </h5>
+<h5> 🟢 Updated at: 2026-10-12 00:45:57 </h5>
 </div>
 
 
@@ -288,7 +288,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-09 22:47:03
 
-<img src="https://cdn4.telesco.pe/file/XoAFYRnD3-F7RyZPBRzBSFsBGq9W3E5elTIIzFzPhrubp9JvePyQA0S2rgET0LebfYVtMCohxd9axJXIQbyQysOupdguEptLWh6jTOLn2xOGtO8k-QO5Obt3cjuckJQvx63DGTG2hOw3tO2G41deDDSzn9TDXxbrsVUuz9a-D0X91KKeEHiaAxaWRCBJq14H9odHyyV9Uag-lt72bf_9MziQsR1e_iVduB6a1YcIE7YZ02UJxOL-GXJUb_KlJEMusyRvpX4LOf3fYRdYUZyyZm_8b8bOe1vyPIDQiazPG9n6Qs7ftSU-mJIvDWaMpzWaUPLAJPK4RJod0Np5hR_3uA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/sk8Bk5CQtkYj1vIEfktcCPaPTekvnuC0-63P-e2f9W26Y_k84pOWYCQKfuvomjM8pOdbmYBhcVmkwQNRC_KO975bexcm8ptrEG9GJ0BsBqHPr4UccDa7ZDVCixfoqiX7tdRjhqhL8_n5OWahpbZxQUxEEyXhREtYxBjs2GafwAXSisHq5Df8lJraIuYmWEA9mLJGbJ-WakS9evvac3TVOBdl5SNuD9P3KHGYSFYjhxovsOcjj3T20fo9rbk_aMqMkrYpqTc2IsSutk1ldcqQdE7Sf3FZqYiU7l29mKVC5iAIAubYPk5dA5W0sakYHEuT9UxwcQMUL4HbAkjeVMHAzw.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه اجتماعی تروث سوشال اعلام کرد کنترل کامل آمریکا بر تنگه هرمز، همراه با توافق تازه واشینگتن و مسکو برای عرضه میلیون‌ها تن گازوئیل روسیه به بازار جهانی، باعث کاهش سریع و چشمگیر قیمت این سوخت خواهد شد.
 ترامپ گفت پس از گفت‌وگو با ولادیمیر پوتین، رییس‌جمهوری روسیه، توافق شده است که مسکو بلافاصله بیش از ۳۰۰ هزار تن گازوئیل به بازار آمریکا و جهان عرضه کند و ۵۰۰ هزار تن دیگر نیز در ماه نوامبر تحویل دهد.
