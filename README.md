@@ -3,8 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-12 00:45:57 </h5>
+<h5> 🟢 Updated at: 2026-10-12 04:21:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-12 00:56:32
+
+<img src="https://cdn1.telesco.pe/file/hyoeRzw4kT78hg_txm6y1ys4P-ael4i-u7cSbmNLRZ0WkqgHWf39LLD-rNLUM783mToWeSDDH81exUmejkD8a7hPfYkksANUFlejf7reJrWwSHunrT62zM80M9sxEkySGQlDYhV4UNQjhNs25LKyi6KszeRec-tdHvtLVKRw9YPYh_OcHKYNmthHS_W5y5M2Daafn7SN_opMjCoablfjqLc5x6QESKSXnXxrhl1mLI8hG-JpcyyPbxo1JmF4atioMlyUEOgMKP2s6WmqTElxchg08r8JFxfUSGam2IOLOsYeJ-bCOEiyACr5ZCv8gBU9LYUrQgcea67yyutwbceQGg.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO)  با صدور هشداری فوری از «حمله پهپادی» علیه یک نفتکش در نزدیکی لنگرگاه بندر صحار در عمان خبر داد.
+بر اساس به‌روزرسانی این نهاد نظارتی، این رویداد پس از تایید اصابت مستقیم یک پهپاد به این نفتکش، رسما به‌عنوان «حمله» طبقه‌بندی شده است.
+بنابر این گزارش، مقام‌های محلی عمان در حال کمک به تخلیه خدمه کشتی هستند، اما تا زمان انتشار این اطلاعیه، ارزیابی دقیقی از میزان خسارات وارده، تلفات احتمالی و اثرات زیست‌محیطی آن در دست نیست.
+@
+VahidOOnLine
+روابط عمومی نیروی دریایی سپاه پاسداران با انتشار اطلاعیه‌ای از انفجار و آتش‌سوزی یک نفتکش خبر داد و اعلام کرد: «یک نفتکش از نوع شاتل با ۷۵۰ هزار بشکه نفت خام، بی‌توجه به هشدارها و اخطارهای نیروی دریایی سپاه تلاش نمود از مسیر غیرمجاز عبور کند که به مین دریایی برخورد و دچار انفجار و آتش‌سوزی شدید شد.»
+بنابر گزارش خبرگزاری فارس، این سومین نفتکشی است که طی روزهای اخیر در اثر برخورد با مین‌های دریایی به دلیل «نقض هشدارها و تردد در مسیرهای تعیین‌نشده» دچار آتش‌سوزی شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78695)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-11 19:42:13
@@ -113,7 +135,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 03:09:57
 
-<img src="https://cdn1.telesco.pe/file/OG5R0TZoSryAgnZc6Q6lz1RooGQrRXmmjHkcSJUHl7dipCN-w5KzTUKSrq92_a1Rl98iY45aztS4WdEwAymEJKDoWc8Lu5gNNgRTq2Fi6tyj_LXxn604vE9TbXAesDXoIa1FlLU8UpHiXP_aajnc3lOqD70gFxK_zORjwN4FDS0v_w5WPQ-U7q-kiX36X70CB-rBMYp8rCRcoN4mND7IJuYuonrenxz3nZCF3e4fuPIJCeokyvhw4QD_msLtvmquQe8DsAavgqxgs8-OEZDdNu1F0cCpI_Lf8beGaidog6AtERki49OwkKHvr-VqBP1CE76BEPmmYZURAoaN2zkDaw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZIPNZM4qpbD0vYsOTFxVgJD9aK3FbSq5703-NJLUmJ2Ws84tzlPL2UbA5rcgZ1aH5GaXVcWhwikwh9S5b-FVmNp2_WfQ65FIZP4ubNFs2jTEjFYK3T77xZdjNmrB5ZPU-jj8ykxY4Le9jw7C0iDZQuxkZbeoxB9Stbo6zs6tqTnMX38lopqmiauBJzhq-GPXaD30EZrrD2JnuuvZL4cfGGSorcm4Et9plEEep7MvJN0Nx7JouDQK0JFcI1JbgLn6qot2oG2um5Lsix6qYDLyT7ntvo0kbB8N6DLo7VjDvqgEONpcFU1JAhEzMzB-fkHC9iGvTSP05z3R_5Q_BBDNHA.jpg" width="400"><br>
 
 سازمان هواپیمایی کشوری عربستان سعودی در بیانیه‌ای گفت حمله روز شنبه ۱۸ مهر به فرودگاه بین‌المللی ملک خالد در ریاض، ۱۲ کشته و ۳۰۹ زخمی بر جای گذاشته است.
 بر اساس این بیانیه که بامداد یکشنبه ۱۹ مهر صادر شد، چهار نفر از کشته‌شدگان شهروند عربستان سعودی و هشت نفر دیگر اتباع خارجی، شامل دو بنگلادشی، یک آمریکایی، یک مصری، یک اردنی، یک سوری، یک فلسطینی و یک سودانی هستند.
@@ -135,7 +157,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 01:48:29
 
-<img src="https://cdn1.telesco.pe/file/a2Ff16ZUfpiAAUbZOxjEjFc8PLbAJIPG4lQ9UAum5nmR2C_VZx6k7gnT_IL8pNy9rwUPeMn2H3c7vNsqZF-GnIxW8ZabKHhjlaknVZ0KhmnZO_3e1TnOIxEoAdMsZhN99LrBrwl1f3zGNBX_-PH2UWAk7pREiNP6xPiEnHDYuzf_oQirJ0L80Wkfa_wSpVeRExYjwjgCVJht1Wqh5wL0GfK0jfh2chq5asHExR_adukAwhEusqU3V3sYlbX8sEZKxbtSxw4vtI7rJeXosaePVe-UiJz24mDvYXqPuSFd_bkfqa0jDzbMHmhbpFe9hzPzuz-hSNimYlVUwv5WVFUPfg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/dBneWBiF7_NEHQcAOyyeaSiTcvGqtD4N8TGPlkd6gIMOLA1p6voi_yr3mwHvfHAxg1EknkGZYrOkkA1YReCyL8KcxyZNXZfYc3Ry42ueWR90WTIgx4LnmFkMzLBE6I2u4SfsSHo5oCAx78spHrjG48voPCi9PHqBW725Ju90sxZyCKMiZKdPqrIpgRtkXit76GcK3SRaGr8_r5rGm99w-72dOv0tlMkSLedTGvGJYuW0guGeQSdZVpS9en6MniKJKmOi6m1K1k4uz45KpJIRUptVZsNEF1oUmdSElTLd9t2_zLCd6d_onyQISMjROEBIVh922lw2UJuvARvWCY_3ug.jpg" width="400"><br>
 
 UKMTO:
 سازمان عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
@@ -153,7 +175,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-10-11 01:45:35
 
-<img src="https://cdn4.telesco.pe/file/OGXF50__xpHXYr4NgnbiKnPphiApzdCufWEKS9Fp7-KQ7GR6VWhWd8J8OtV2gmTXDBj1whXdG18m9ZKsNBEOVgNu_YxLE9dACba7uTLq0JVrPnQmq2SnGuKWy6RDGmokOXWnF0lApZSX_NR9QOORmKyJZOvkU8Y3MobYXWuifQAeQy6Bd6Coh3qL_VjJbyxN0TN8T7dHJqpj1V9Jgsh7bfI1rh1XkQ_o5act4dSt5SH3Awcg25v5ZzqLZQ5y0Jouq-AlN4lDM1gvDB0pqrSWFKzDveQxETDy6lrKLKnDYYYhhCp8ZkvcTytJlAFfroULPmtW1hlL9nXrH14cNtb36g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OGuphiWAtP1pYtn96hYaHUe2GpiBnjTAycpcday9sTuY6TLHeS4R4lmJTsHQmhMzZ2Zpn3YVd1apGSq-PuBKgUR-cMVSV2Lu8N56AMKgd0xSU_NnyP7kJg3CS1p0STjioiJEyLjtA420Ym4A_ppEmXyhG9r9S-H92VjEFUzcc3cJZLScdzZUCVkPgcLPN3lUC_O4Yu6g7Kk0hpoRYH6ZuRBwp0ddW8DLqF4mrI6nm-Cwv43GNQYfKSSHCNfkSpuTs1Bz9yglrL4z58uDVGmi69ivwPW5wq4jWZHm5uuaw8TBxxQ8GQbfjdL8CUQa5uWW7DM28OZGSc5GAfFBLKUhsw.jpg" width="400"><br>
 
 دونالد ترامپ، روز شنبه، طی سخنرانی در ایالت تنسی درباره ایران گفت: «اوضاع تا حدی آرام شده است. آن‌ها احتمالا پیش از انتخابات دست به اقدامات اضافه‌ای می‌زنند و فکر می‌کنند این اقدامات به ما آسیب می‌زند، اما ما می‌توانیم این ماجرا را خیلی سریع تمام کنیم.» او در ادامه افزود: «آن‌ها اصلا نمی‌دانند من چقدر با آن‌ها خوب رفتار کرده‌ام. واقعا خبر ندارند که چقدر با آن‌ها مهربان و با مدارا بوده‌ام.»
 @
@@ -342,32 +364,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78677)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 20:51:13
-
-<img src="https://cdn1.telesco.pe/file/guud3mzXhE_TAOFpvEs4AG5804iAV4UKHgUu-pVM2DOHXd2syOV51VOFZ1kPBYU_JrwboULBOu8s5mIILAyc8LHDBmEaNUFDnSebpn77GzWWim5n6PEpJhpNBzqz9Y9wUnWZkqYM83RAtSlSVDqvwuVtUIazUbUVRMH-XwYU994-quVsisRZtd3MT_zPGVSgqW3MJuzj66MNtIYogXePrH_ZRJs-V7VikHRSYziM54kYIz1BrmA3BK8rCqeMUWfQjQnLoT7xtaEPGN71bqC_n0xAUVGtDhvkuaKZu917NooaEaV8ljLakV4MuVrL4i3a-gw1tdAwOz5I7ZGE8yluCw.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، گفت اگر حکومت ایران به سلاح هسته‌ای دست می‌یافت، ممکن بود پس از حمله به اسرائیل و دیگر نقاط خاورمیانه، کشورهای اروپایی و شهرهایی مانند لس‌آنجلس و سن‌دیگو در آمریکا را نیز هدف قرار دهد.
-ترامپ جمعه ۱۷ مهر در مراسم روز کلمبوس در کاخ سفید گفت جمهوری اسلامی پیش از حمله بمب‌افکن‌های بی‌۲ آمریکا، تنها دو تا سه هفته تا دستیابی به سلاح هسته‌ای فاصله داشت.
-او گفت در صورت دستیابی جمهوری اسلامی به این سلاح، حکومت ایران به‌سرعت از آن استفاده می‌کرد و ابتدا اسرائیل و سپس دیگر نقاط خاورمیانه را هدف قرار می‌داد.
-رییس‌جمهوری آمریکا افزود کشورهای اروپایی احتمالا پیش از آمریکا در معرض چنین حمله‌ای قرار می‌گرفتند و شهرهای لس‌آنجلس و سن‌دیگو نیز می‌توانستند از اهداف احتمالی باشند.
-ترامپ گفت: «دیگر لازم نیست نگران این موضوع باشیم. آن‌ها به سلاح هسته‌ای دست نخواهند یافت.»
-@
-VahidOOnLine
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۱۷ مهرماه در مراسم روز کریستف کلمب در کاخ سفید، با اشاره به درگیری‌های نظامی با جمهوری اسلامی گفت که این وضعیت به‌زودی پایان می‌یابد و قیمت سوخت نیز به‌شدت کاهش خواهد یافت.
-ترامپ در سخنانش با اشاره به عملیات نظامی آمریکا علیه ایران گفت: «ما مانع دستیابی ایران به سلاح هسته‌ای شدیم.» او افزود که پایان درگیری‌ها از راه‌های مختلف امکان‌پذیر است و تاکید کرد: «به هر شکلی، این وضعیت خیلی زود پایان خواهد یافت.»
-رئیس‌جمهوری آمریکا همچنین درباره توان نظامی جمهوری اسلامی گفت: «آن‌ها نه نیروی نظامی دارند، نه نیروی دریایی، نه نیروی هوایی و نه تجهیزات پدافند هوایی.» او در ادامه با اشاره به محاصره دریایی اعلام کرد که آمریکا مسیر عبور کشتی‌ها را مسدود کرده است.
-این اظهارات در شرایطی مطرح می‌شود که واشینگتن هم‌زمان با ادامه فشارهای اقتصادی علیه جمهوری اسلامی، محدودیت‌های دریایی و تحریم‌های مرتبط با صادرات نفت ایران را دنبال می‌کند. تنگه هرمز نیز به یکی از محورهای اصلی تنش‌های نظامی و اقتصادی میان دو کشور تبدیل شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78675)
 
 ---
 
