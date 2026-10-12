@@ -3,8 +3,68 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-12 10:17:46 </h5>
+<h5> 🟢 Updated at: 2026-10-12 19:50:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-12 18:54:36
+
+<img src="https://cdn1.telesco.pe/file/lAB11-yb6VcHdte7e4oQa9zxUliXobElnqvhfZyuUEW9CvX658ArXLziTh8UHYG0eIEO9in-mBGL556bqnsUhLgRTd2y-CurqwxMdIuUF71da1baYng5YZmYJIxOFxLfjwILKj7KnKeTQDP2_047iQ4JZPWrJlgHIAiJSvO0pQxN8JOA3s7RPWfeM-fgA_S75g4AugaxE8NIKf8go73b3ObV0AJTFp1mPstTafABD7yQCxw2uyNu-3_dwVr2P_OuNU-LaI0NO7PS0LU-MToUM_tm9EE7MnKtkeb2VTb9zhVzh5IN3oozrFXg680JMJBMkP2n-g-wvrgu4KmGX9o0Hw.jpg" width="400"><br>
+
+اندی برنهام، نخست‌وزیر بریتانیا، درباره حادثه پایگاه هوایی فرفورد، دوشنبه ۲۰ مهر گفت که به احتمال زیاد این اقدام در ایران هماهنگ شده و به دستور سپاه پاسداران انجام شده است.
+نخست‌وزیر بریتانیا در واکنش به این حادثه اعلام کرد که دولت این کشور تحریم‌های بیشتری علیه جمهوری اسلامی اعمال خواهد کرد.
+بریتانیا در تازه‌ترین بسته تحریمی علیه جمهوری اسلامی، دو شهروند ایرانی را به اتهام دست داشتن در فعالیت‌های خصمانه، از جمله جاسوسی و مشارکت در تهدید یا طراحی حملات علیه افراد در خارج از ایران، تحریم کرد.
+دولت بریتانیا روح‌الله بازقندی و شهرام علیرضا تمرزاده جکی را به فهرست تحریم‌های خود اضافه کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78700)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-12 17:22:08
+
+<img src="https://cdn4.telesco.pe/file/iHLaaSfcAbNBwz8NfHxq3EG_NEpVHZHk8Kl_1EZhzzWdPuisyNpNpUKESyEiUZY3KByRHxsEIc-ckUbggZExGBNpdWY9iefL9JR5kdwsnKxCrRLz71OwYUKL0OHcsOFyDkWWAs-OMU3-UBDrte7X99P7KuCJSth2VzMPu1tSg2EfdrcAAPaUYOVJThNIU9-gC8ujbBtwKJLKfwa4_OgH2sY65vBSERiqC960nsMHT8hI-JQC3dLuxbZ8HrRsqKAaeCMB3nkBdcXnkTnOMqkVMSULjcs_Qvcys-xi181i4hiPs2Xo_vDvx1Z5joj4bs-GFUGKT3epoRLE1zCyuCyA6g.jpg" width="400"><br>
+
+خبرگزاری رویترز دوشنبه ۲۰ مهر گزارش داد در پی حملات حوثی‌های مورد حمایت جمهوری اسلامی به فرودگاه ریاض، چند شرکت هواپیمایی بین‌المللی پروازهای خود به عربستان سعودی را لغو یا تعلیق کرده‌اند.
+بر اساس این گزارش، ایرفرانس-کی‌ال‌ام تعلیق پروازهای رفت‌وبرگشت ریاض را تا ۹ آبان تمدید کرده و گروه لوفت‌هانزا نیز تمامی پروازهای خود به این شهر را تا ۲۴ مهر لغو کرده است.
+شرکت هواپیمایی اتحاد تمامی پروازهای خود به عربستان سعودی را تا ۲۱ مهر و شرکت هندی ایندیگو پروازهای ریاض و دمام را تا ۲۳ مهر تعلیق کرده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78699)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-12 17:21:39
+
+<img src="https://cdn1.telesco.pe/file/Rz56sdKT6GnTP4PzPtAvgaixfZz7wQWsEUD_lauBADWKd9RncuGPN6jaguHh2xfbqf3Zp73vp49NQ9-HY1cdhceJMpfOiz8TtiJ_swjLsd4Z1Yw1yh2eR0vOdSgcJUZXr9EEMOzDpp5YfGhivoKskX0jowJErv6TMEEJr50Atmmx0C5kGFQQnc6CxiI5IIQiIwctRmkRrxs5vwwYL0rIXJPH1E8FnHgRGyOfE59NFFYpnldF9b49pZLkM1uSJiriKpVOHp4n1-b5ttY0gS1nuXSiM3fVCgrhMo6nlWEKR8n7uWQL427kEewsc5jn2vQdR48MzBEJb18IQ1tIAqfhvA.jpg" width="400"><br>
+
+قوه قضائیه جمهوری اسلامی می‌گوید که روز دوشنبه یک «عضو» گروه جیش‌العدل را اعدام کرده است.
+میزان، خبرگزاری قوه قضائیه، می‌گوید که عمر درستاران به اتهام «بغی» (قیام مسلحانه) و عضویت در جیش‌العدل محاکمه و به اعدام محکوم شده بود.
+میزان می‌گوید برخی از اتهامات آقای دستاران مربوط به حملاتی است که به مقر انتظامی شهرستان راسک، مقر سپاه شهرستان راسک، پایگاه پارود، و مقر‌های نظامی در فروردین سال ۱۴۰۳ در شهرستان چابهار صورت گرفته است.
+به ادعای این خبرگزاری، تهیه محل اسکان اعضای گروه، تسهیل ورود این افراد به کشور، جابجایی تیم‌های عملیاتی برای انجام حملات مسلحانه، تهیه مهمات و سلاح و شناسایی مقرهای نظامی از جملات اقدامات عمر درستاران بوده است.
+به گفته فعالان حقوق بشر عمر درستاران، ۲۷ ساله و اهل روستای چراغان شهرستان راسک در سیستان و بلوچستان و از طلاب مدرسه دینی شهر پیشین و از شاگردان سابق مولوی نقشبنید بوده است و از فرودین ماه سال ۱۴۰۳ در ایران زندانی شده بود.
+تعداد احکام مجازات اعدام و اجرای آن در ایران از دی‌ماه ۱۴۰۴ به‌شدت افزایش یافته است. موارد اعدام به جرایم امنیتی هم بسیار بیشتر از سال‌های گذشته برآورد می‌شود.
+@
+VahidOnLive
+, @
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78697)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-12 00:56:32
@@ -31,7 +91,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-11 19:42:13
 
-<img src="https://cdn4.telesco.pe/file/VqdQtWYSwILbbcUwTFrcbWyCG2JojpEp-GDXTuSXYhkpUb9E2qVfbcvh4d3RoM78ftLc0ADmGfwMyBkQa9kAuMEgMh9tG6uKeUjCjc3jkNQCpGl45sK7LGFFCmEMxqt82fVu_D5KGcQNep8Zz2juKHsWS2TZQHbf3jl432f8CFZZ1jyaIXyuMs_7PhHtLjSXOkTLwJSIEpmsHYmC4TyUvrjLNY4kJXv_VVTdO8l0jJ0deM1qLYCEBGdR_nw6DVTS4ncdtgT01snsA1mUxBa3yffUjy9vE--eaJ2WPnEQ5BqrkeO-2gwSVAK6NAEv9GeAKIZOSdvq6YYCcBgaLOVzLg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/rW60eqeROtZc-JcwW3TIllBwGq8WPHmg3b-gtC8WkNFSCe9b19mGJglxkSrE24aWKWXwsfoHVXLl3zP0X0NjbRrHlDL1Hs45OfNX-crCsXrKwnBl9LUZY67bPMvm2Z_TH1hHwjq5-oZWC6wQtGzoWwRGDOrLMX13g99TbNGxT-nqcAZjC1QEG68XDiSmFaTAhxp_quLKDsA8pFwUrgskXvnG8JH_PYXsBk-Zv-14heKKzVvdX-LfF2Cyz0csmeXv12Whpakbm7hX5z7izA9cc9OHa3B0giYOnp7DlAxhjrDV1BR1JN-vxz0gKx-kgf7gf8lRnG_q2991Pm0nZIj4HA.jpg" width="400"><br>
 
 فرودگاه ریاض روز یکشنبه ۱۹ مهر بار دیگر هدف قرار گرفت.
 ائتلاف به رهبری عربستان سعودی در یمن اعلام کرد که یک «پرتابه ناشناس» فرودگاه بین‌المللی ریاض را هدف قرار داده است.
@@ -50,7 +110,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 18:03:29
 
-<img src="https://cdn1.telesco.pe/file/qBt_kQBvAI_c4PqWnLbjgaE4cTmVsDl62qUXF81wWYckuDXprlnCBhPnNDtkP7xg0k_RVGOExpO6E6zcGLD0Fw3kykpwPCp9wsAeYAhdJcXAr_Tjqjc_amFtn3Io7m9mcyeKxPqKMCy8k-NlEOuL9ana3dMmGQ_fYfixL6ePJZ-YD2qiBUj6Nq3lXrstOsFuadOSPQjQpT8fpWyKVsiSpLgfe_uPrevbiW3jNBrBmlvtSOr1AinFWuKWh8e05P8B5jPp1xOi6GJu1SEOepZ3CCGlEb6hYWcuZkM1xMl3Mwb_pwiSVQFnmMIK_wSppXPcs-A4sb66Sykp19PxoJzEig.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/KrOggzitj7fl58uN3q_0aDqWyREpB7aS2cqr_J8URl0UVscWTGIOppXNpsPzXkPGvxEPd7mFA3W2vgHJhefI6MiJjhlJMvPQoCOhdlLAhPkHKHohCdjGQWeeLTYJNNkI-fiPSg1eDE5QYd4SkjYlLxRaN2BWFHU5OSI3CIPM7YVrrBXN8MfHFH8vtf-0vofymXcax-HyCpui9XJhatOXW2hWIXVFEN7s0CIoWxe--jjtWH8hZqeUUx1lLtmZqFRZhbSFm9QNujaLPY7IwOYJVYy2uZyd2wErTxUP4RZhPRVG-AXvif9Ir0IikXjkpOclsFABPu9p7jrnu8_KdLVmNA.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا
 گزارش
@@ -73,7 +133,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-11 16:13:44
 
-<img src="https://cdn4.telesco.pe/file/jNlHWk4Xtuz6113OVa469_A8E_pvfOKc1Y-isA8sOtF8ML-cEUtgbfPOATxNSCx4PLovH1uVoIbFBtIJh6_Gofy4fGojAVxKo20HLq551ssWmq1QHzsKgUk0b1zB3lGKxrF1wEfTwCGmYXYvODt4Law-BGCv7eleN3yY-Df8MAclKLJcZcJj1cWFz_HxVNM1kmfZ0H-gIZLl2SBUQWewBwFC9qKoLpge0wdezAUY_Oq4iD4IUUSD8p-QXQBqO6uf2o7i68W-Tlqif73-GiekVPKHmY5rj28adXAzP9L0oaz63PEoJtZ84dLBwHB6lDxgFVaSkV0aQ3E1TSdLrpRVLQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/twiYY4Ktq54Q7nL621nN3GgGZJgMMppefvzWapv-bDmCMRYI-gTi7RpThsQXAJ4cAPLdeFC1D6fD39c6CEd6kbPVbx7TztIWIsxYyEv2Bk_uxW8OHvGkmnGyxg5_i7wADTZLfZvuuSpiWlrV2iuFE3wJodLs3x3WbjXyKOWh_qztimSJxdHnvDp1VxwD-FWz8jeXFsdvHx0om-jCPSeTY-N1ucLzidNoCWOoVRxph7n_Uld04HWI4WzlPmoKqs7cmdDtYjvAuBnkXGWe_tUJXzGp0SeocEu99mDy6qHRZcKK-0kdy3RaEJbBOWqR33yF19SDogkakbiToGje2HCTcw.jpg" width="400"><br>
 
 شهرزاد شهبازی، از وکلای متهمان پرونده «میدان علیخانی اصفهان» و وکیل علیرضا سپاهی، با رد روایت رسانه‌های حکومتی اعلام کرده است اتهام قتل ماموران انتظامی به هیچ‌یک از متهمان این پرونده تفهیم نشده و دادگاه نیز به این اتهام رسیدگی نکرده است. تاکنون پنج نفر از متهمان این پرونده اعدام شده‌اند و هفت نفر دیگر در خطر اعدام قرار دارند.
 اظهارات این وکیل در واکنش به انتشار مصاحبه‌ای در رسانه‌های حکومتی مطرح شده است که در آن زنی، معرفی‌شده به‌عنوان همسر یکی از مأموران کشته‌شده، متهمان را به قتل و سوزاندن ماموران متهم می‌کند. انتشار این مصاحبه پس از افزایش انتقادها از اجرای احکام اعدام، به‌ویژه اعدام علیرضا سپاهی، صورت گرفته است.
@@ -97,7 +157,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 16:11:04
 
-<img src="https://cdn4.telesco.pe/file/TM16SOT5Gkd-3NLZcebd0d1DlfKNw8WzfldwSYMieaSpw8ZhWcxKkh7E8wEIdbSVS3bbDuWtqkusOJog_mAP98GOhrs4XO67MM2oLsSZ83Qx1dGcriz-jsHQ0bsF4yKrOU1rzcZwEw1hYibcVwIowKH2tVE1IMoKLNeOjQADL8XGs6iJmNY48y6SJNGy64DNw9nvJAJPM__4IXPbopPXwmx2bl6WGvmsIuOnR9U0-Uu8Ftzzc3V-BZ0bWuyAASlvtlPOA542rERXXkNneECMXMvxBusXGigxAvMAUiNg4CVvKQwqszRL_z7lMZyb-gk8MoYiy3LUFbGcIS97rqo3SA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PCT7N8wxdZMgCU3o22OJZJ0IyEaxJrJHpuoVYRyPX34WSG8KFFeytRCEXeWDKayjni2o0_DLfNjwBPDD7WfrHE3PXrJmoWHVBWN4vVgA4Hy5skYOO-xmN1Q_H4e9nmvXt8u6bkAgRe3gL3NZz_e_OdyQU2QsGf4mESOzvQr73YjDrZn7qR80AM7fQgKHiO3gAXbjnCFBGuhydolbpbX-JBGnzxMqn4-qa26AWEJvXO9sPx1MVIV0KBzhJBxwNUslniLDZAcL4t1mOiLlDtL29aX8iXVKZv13OSNuXHctezKzt2JMomPxA6SBUgxAyuD_d2a5rC_Cn3z3G5Ekox1-Vw.jpg" width="400"><br>
 
 سازمان مدیریت بحران ایران اعلام کرد در سیلاب و رعد و برق پنج استان کشور هفت نفر جان باختند و دو نفر مفقود شدند.
 به اعلام این سازمان، دو مفقود در استان گلستان ناپدید شده‌اند.
@@ -115,7 +175,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 16:10:37
 
-<img src="https://cdn1.telesco.pe/file/vpyLm_bbzUczDc6Lj0x-7OjiunH0HRei3F-6gMxdIkSZW6VYGveXFsP3Uw-rXmgiqZyIA2dAnG7ZICkzChOrwKxJ_uW64PriWUlXKFvexUVFcgcYFjy0nTAwTM-0UPPFTZp-s0bWsScRYHlnlrhM13eWOOEBnSSn-YYhDKKfWl0zRGlglD-1F9Ql44uw0noX2rRXQsJTWZkbsb429Y1oGcgCUm6dRL5eFakkb2TqZy5Y3iUnbPDHxaXyx9ZZQSk0vm0xNYzdyODAmvvX55uMkRPlZUNlDu1QqoMx2JQrKylf-_bNNmMhgySf5_P_fQccAyjwOPOI_vhrQ0Ob-Ttn-Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/u2DkhZzGEi6LLw8TeRpGqGqOZJRqr4dvC7Z2qHx7fEqsus_bKFDvkNEHMt6bExG9e5GLOkfVTAz8XQFKvkBY3xpr2paycnj5ny7r0wSz6SfMqv1Ysz2MYE8k9LU0PiaaPaH3QlNfewrCdOsa2t5QCh_2oqKDM65PUap4LHJnmppDgbYh82Iv6pv7UfNMkSqLYWMmFXM8PTVOPsXJbUGQ_LOxmldBv2k1oxnOo0iM92lT2VYN-n88ELZGcHgC5Riat-oL13B85xBE1iTYk5roiqG5WUTVnK5Oe5vfXM8NocvkNpvF8e4rlwSfFBCVFT-v3pVMJ1-keOav-7b24y9prA.jpg" width="400"><br>
 
 قوه قضائیه جمهوری اسلامی از اعدام یک مرد به اتهام قتل یک مامور نیروی انتظامی در بندرعباس خبر داد.
 این مامور نیروی انتظامی رضا احترامی و مأمور یگان امداد شهرستان بندرعباس معرفی شده است.
@@ -253,7 +313,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-10 19:53:20
 
-<img src="https://cdn4.telesco.pe/file/RS6daEr-8rUaew1zT1h3fhZHhKcBxvF8OhAt-fmmIGmrWPvR80fv6URYMHKTNC0lRbx5qqrxFjyUgJjThu6Abrcv5danR0yNL4FxaDfVn2yeRtkQdahKVvYNo-FurwKR5zc3bPrPu63qOs4iZmzjey_LWfWRMmGq7YHQckpdSZ28ullTV1PLoVr3oN34If3yTvkiEm567YhmOYjFNSHXY-05B8t4l03tJKKyGxBRf13r4ddkaUPt3kNBp0cUaIomMuoVFwuzLDNnXqPVkHU_XwK5ZdX-SdYoJfIOZIoKBPPGzD18RthKrd8-KEuBIIGOTTj3cTo1nQqkw1yua1aGCQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/E35ADIA7zz2XfqI_xYK496SFw95NNX_C3vUhsjFOydkFv_X_LL4xSGGCGGvycGh-97ULSfAHiK3bL0WwjnzFkccRiAlJG0QGyVIiQmBzlcQTdopbfzYOfTkcpPmskfwC5Vgnf8WmqTIlDbErcmPT0sAH5sjViDjZLnVp9P-Dxl6RIAdTOcx3N-KEr94coTepHEfEPhQxY0t9egHtpRuWGtDzhbFGVKiKtxECkSSuL4_LIyqv66HpHcdkjK7ZyLU0UWxA-LAwUPNPzIs1NjNU3zZR9zK-3tWnsASSVGtjKdPKvLVq2kkez4pdFbEq4_g0SwjHDLKy6R-sx4LHT66h_Q.jpg" width="400"><br>
 
 کاخ کرملین اعلام کرد ولادیمیر پوتین، رییس‌جمهور روسیه، با هماهنگی مسعود پزشکیان، دیدگاه تهران درباره راه‌حل احتمالی پایان جنگ با آمریکا را به دونالد ترامپ منتقل کرده است. هم‌زمان، مسکو از ادامه مذاکرات غیر مستقیم تهران و واشنگتن حمایت کرده و گفته پیشنهاد انتقال اورانیوم با غنای بالای ایران به روسیه همچنان روی میز است.
 @
@@ -272,7 +332,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-10 19:50:11
 
-<img src="https://cdn1.telesco.pe/file/LGocOXQNuH_ZxNEQ5FVEUr-5xuGMowAx2cSp_383-pEAeXR9OVCpqGUG4xHp5VMqVMH8-iV04I2himhcU46aHGCXcDbjAQxhI-wf9wbb5uWZuyCpPm1ShJIO0jzZ5SXnTtAJXEmTYhGHtYvvIdJ7EKGtvEm8n7mswkcHGfgb-rm2fHtPQZOgjU1IbeY7lL2oBy2QjuqRi096L14hOM9DFRJ2RCFgCD9oY9p8CsDWmuWze-ffJGAonbMiwX3Ib0fxVJEnzv2FcWFKFfWHSbYR6NcjwcJ5azEtU-pm_LOIoIXfSaLo-kBNIVqBHGACHazhxiF8-KRM_FcStETMsK9GVA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jFqhFVqbBG0Nf4jvnvfbBj7tgdHwZQkaB0aUv1LEZnuxo6FoY0Rp-pykebMlRadZwUTI3nkWR0JeCZN5mibxb-jW8VsJpFT-7dc5PXp2b-js0z5Wr8roRMCrWvNYlT56myQYlX8zOpmZ0J_JVLq-RYoavilFoV7m1hdb5IEntq5NOFBK3DwC67Yogk948Be_wq_5z2y7LMP6y_ldZA5y89Ji7YULLbWI-0uFaK3bKuc_eQHlsPhclQ_i-0CePYlkn8L9nda4yqU2rnu3J2nTZdpOupAanNQohUS-CoVV43WjSK2u9hy0tqW9GbCbXTXCdLEXlbUqp9P9Nb4qWzI80w.jpg" width="400"><br>
 
 مجموعه فعالان حقوق بشر در ایران در گزارشی به مناسبت روز جهانی مبارزه با مجازات اعدام اعلام کرد طی یک سال گذشته، دو هزار و سه نفر در ایران اعدام شدند که دست‌کم ۶۹ نفر از آنان با اتهام‌های سیاسی و امنیتی روبه‌رو بودند.
 شمار اعدام‌ها در این دوره نسبت به دوره مشابه پیشین حدود ۲۹ درصد افزایش یافته و از هزار و ۵۵۳ نفر به دو هزار و سه نفر رسیده است؛ بالاترین رقم ثبت‌شده در ۱۰ دوره گزارش‌دهی.
@@ -284,86 +344,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78681)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-10 07:40:11
-
-
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، طی سخنرانی در ایالت نیویورک اعلام کرد: «مسئله ایران به هر ترتیبی که شده، خیلی زود حل خواهد شد. یا آن‌ها همه‌چیز را به ما می‌دهند، یا دیگر اصلا وجود نخواهند داشت. خودشان هم این را به خوبی می‌دانند.»
-او همچنین با اشاره به بحران اقتصادی عمیق در ایران و تسلط نظامی ایالات متحده بر منطقه تاکید کرد:
-«ایران در ورطه بزرگی گرفتار شده، از تورم ۳۰۰ درصدی رنج می‌برد و هیچ پولی ندارد، تا جایی که ارتش و نیروهای پلیس آن حقوق دریافت نمی‌کنند. ایران هرگز به سلاح هسته‌ای دست نخواهد یافت و ممانعت از دستیابی آن‌ها به این سلاح دلیلی بود که ما را وادار به رفتن به آنجا کرد.»
-ترامپ در ادامه افزود: «به لطف ارتش ایالات متحده اکنون کنترل کامل تنگه هرمز را در دست داریم و امروز حجم نفتی که از این تنگه عبور می‌کند حتی از دوران پیش از جنگ هم بیشتر است.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78680)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 22:47:03
-
-<img src="https://cdn4.telesco.pe/file/sk8Bk5CQtkYj1vIEfktcCPaPTekvnuC0-63P-e2f9W26Y_k84pOWYCQKfuvomjM8pOdbmYBhcVmkwQNRC_KO975bexcm8ptrEG9GJ0BsBqHPr4UccDa7ZDVCixfoqiX7tdRjhqhL8_n5OWahpbZxQUxEEyXhREtYxBjs2GafwAXSisHq5Df8lJraIuYmWEA9mLJGbJ-WakS9evvac3TVOBdl5SNuD9P3KHGYSFYjhxovsOcjj3T20fo9rbk_aMqMkrYpqTc2IsSutk1ldcqQdE7Sf3FZqYiU7l29mKVC5iAIAubYPk5dA5W0sakYHEuT9UxwcQMUL4HbAkjeVMHAzw.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، در شبکه اجتماعی تروث سوشال اعلام کرد کنترل کامل آمریکا بر تنگه هرمز، همراه با توافق تازه واشینگتن و مسکو برای عرضه میلیون‌ها تن گازوئیل روسیه به بازار جهانی، باعث کاهش سریع و چشمگیر قیمت این سوخت خواهد شد.
-ترامپ گفت پس از گفت‌وگو با ولادیمیر پوتین، رییس‌جمهوری روسیه، توافق شده است که مسکو بلافاصله بیش از ۳۰۰ هزار تن گازوئیل به بازار آمریکا و جهان عرضه کند و ۵۰۰ هزار تن دیگر نیز در ماه نوامبر تحویل دهد.
-به گفته او، روسیه پس از آن یک میلیون تن گازوئیل دیگر به بازار عرضه خواهد کرد و با توجه به وضعیت پالایشگاه‌های این کشور، سه میلیون تن دیگر نیز در مدت کوتاهی تحویل خواهد داد.
-رییس‌جمهوری آمریکا گفت کنترل کامل تنگه هرمز از سوی واشینگتن و افزایش عرضه گازوئیل روسیه، قیمت این سوخت را برای مصرف‌کنندگان آمریکایی و دیگر کشورهای جهان به‌سرعت کاهش خواهد داد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78679)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-09 20:52:29
-
-
-
-پیام‌های دریافتی درباره صداهایی که نمی‌دونم این بار هم آتش‌بازی بوده یا چی:
-سلام وحید جان شرق تهران صدای پدافند و انفجار ممتد
-صدای یک انفجار و بعد چندتا پدافند شرق تهران
-وحید تهرانپارس صدای انفجار شدید بعد ضد هوایی الان ساعت ۸/۳۰
-صدای شبیه پدافند یا تیراندازی در تهرانپارس شرق تهران
-سلام وحید جان خوبی
-پدافند تهرانپارس 5 مین  کار کرد ساعت  ۸:۳۰ دقیقه شب
-وحید جان شرق تهران صدای تیر اندازی اومد الان
-دود هم دیده میشه تو اسمون.
-آپدیت:
-دو ساعت بعد دوباره شرق تهران:
-صدایی شبیه به تیراندازی در محله مجیدیه
-ساعت ۱۰:۴۰ دقیقه ۱۷ مهر
-چند دقیقه بعد: دوباره اومد این سری انگار رگبار بود
-سلام ساعت ۲۲:۴۷ صدای تیراندازی چندین بار. مجیدیه شمالی‌
-چند دقیقه بعد: الان هم دوباره اومد
-صدای پدافند شرق تهران
-سلام وحید جان
-صدای پدافند همچنان پست سر هم
-مجیدیه
-صدای پدافند
-مجیدیه
-سمت مجیدیه تهران صدای تیر اندازی و پدافند میاد
-صدای پدافند میاد
-دولت کلاهدوز
-سلام وحيدجان سمت اختياريه صداي پدافند مياد ساعت٢٢:٥٧
-صدا پدافند سمت پاسداران
-چند بار شلیک ساعت ۲۲:۵۷
-سلام صدای تیر اندازی شمال شرق تهران ۱ دقیقه ممتد اومد الان قطع شده
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78677)
 
 ---
 
