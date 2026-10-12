@@ -3,8 +3,80 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-12 19:50:14 </h5>
+<h5> 🟢 Updated at: 2026-10-13 02:53:12 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-12 22:45:40
+
+<img src="https://cdn4.telesco.pe/file/hGV_rl36el1bsFqJt4WMrwzkZ_cL5eXHS5lcw-nVI7KlOE3JoUs4mosT_jThUKErRDdc0w8nhX-7RvQdPEWk1JrAUgk_BUoBP6MN2r0l9_TywTzdaPIGh1kOK7yT-auCOHJXPxooLS0X3udFMl30Ca3b40sFZxOHZXN61wtniW6WkfwmWaGfzrEXUVs6hA-h2a6Je5S4zjyvlQy3EWAAAvgap-ULbET9l-LnqB4EcaxGV2ajOHxeAiaS9JwMlAzz16EmDhzN9Cqpqpbhwu2KzKTeeDuy15H2XX_J7fJPf3jmXRCxF_hAzcuj4xNDGFqSa9lFcNSuWoAJyvSaxaa-CQ.jpg" width="400"><br>
+
+سخنگوی نیروهای ائتلاف تحت رهبری سعودی اعلام کرد که پدافند هوایی این کشور موفق شده است آتش موشک‌های ورودی از یمن را با موفقیت رهگیری و منهدم کند.
+دوشنبه شب، ۲۰ مهر دقایقی پس از ارسال پیامک هشدار تهدید هوایی به تلفن همراه ساکنان، چندین انفجار مهیب پایتخت عربستان سعودی، ریاض، را لرزاند که به احتمال زیاد ناشی از عملکرد همین موشک‌های رهگیر پدافند در انهدام پرتابه‌ها بوده است. سازمان دفاع مدنی عربستان سعودی حدود ۱۰ دقیقه پس از اعلام وضعیت هشدار، به شهروندان اطلاع داد که خطر رفع شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78704)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-12 22:45:24
+
+<img src="https://cdn1.telesco.pe/file/qCBLgebvsf67Tq3n4XwkUZM6WzHpteBUp6IzX4BXQUZigWLkYCfgg_3wViyEllOljNK9BN7mLloPtgNh_701SZcCkcPhXXEwnk1OMmWmjtM9WfiLdHf91XZMNJLfeEgIaVCso8vSKb4n5J48oDG-mX5gD6g7rtOD3JoMGu8e_2y1E4nbk9qQpscVkGNl58DM0paDWQYUajQdPNtH2df8sp4ZLBsiWy6IYPDedT-xb2qEsx1Hjm0KVJtp4Z5afsvUuSMbuejpNcblLAJXOuSQpJzRt_lpgvmPRqzpbT6ojA4RCdQAkXxoBI5g8g74JCAX8TscSGidl_Sbnb-C7iWmqQ.jpg" width="400"><br>
+
+UKMTO:
+مرکز عملیات تجارت دریایی بریتانیا  گزارشی با تأخیر از وقوع حادثه‌ای در تنگه هرمز دریافت کرده است.
+یک منبع تأییدشده گزارش داده است که یک نفتکش حامل نفت خام هنگام خروج از تنگه هرمز، هدف اصابت پرتابه‌ای ناشناس قرار گرفته است.
+مقام‌های مسئول در حال بررسی این حادثه هستند.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78703)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-12 21:13:59
+
+<img src="https://cdn4.telesco.pe/file/HniOXcDj2Y5u_gZxHm7fAuLNYswXyqsqhtnxTOM0cazUY5rCi0QPwWjVPH76pSZgBkAkxlnHXqPrY486AIlkpdu6Dn7IEKJllElbXEIIUUdPK0ED6R02UIbXGOliowo7UOP_UMSy04M79hoJvqvXyNLlD6ljU7iIDzwJxefO2gXYKyGsXYUpp1lM9gPipydv4KB4o87qxLNO36h1hjaF_zRBs4OZffoPCglzq3CpMShime8uqu8O2k8ueldzAmcSpMBlsBzp-4TuRfviRhjlCt67DBcwKSUDapHGm13o7J-k9DmYprdncyt5tLU-8ZpneehBwSNaXaIb65xo2sn_WQ.jpg" width="400"><br>
+
+وزیران خارجه ایالات متحده، بریتانیا، استرالیا، کانادا و ۲۳ کشور دیگر با انتشار بیانیه‌ای مشترک، فعالیت‌های خصمانه جمهوری اسلامی ایران در خارج از مرزها را به شدت محکوم کردند.
+این بیانیه روز دوشنبه ۲۰ مهر، پس از آن صادر شد که اندی برنهام، نخست‌وزیر بریتانیا، اعلام کرد حادثه امنیتی اخیر در پایگاه هوایی فیرفورد در انگلستان «تقریبا به طور قطع» توسط سپاه پاسداران انقلاب اسلامی هدایت شده است.
+کشورهای امضاکننده این بیانیه با اشاره به ماجرای پایگاه فیرفورد و سایر حملات اخیر علیه جوامع یهودی، روزنامه‌نگاران ایرانی و منافع ایالات متحده در اروپا، تاکید کردند که استفاده جمهوری اسلامی ایران از حملات خشونت‌آمیز، توطئه‌های مرگبار، آتش‌سوزی عمدی، خرابکاری و عملیات سایبری غیرقابل قبول است. آن‌ها هشدار دادند که هرگونه تلاش برای تهدید، ارعاب یا آسیب رساندن به افراد در خاک این کشورها با اقدام قاطع قانونی مواجه خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78702)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-12 20:44:34
+
+
+
+نخست‌وزیر بریتانیا روز دوشنبه ۲۰ مهر گفت طرح مشکوکی که پایگاه هوایی «آرای‌اف فرفورد» در بریتانیا را هدف قرار داده بود، «به احتمال بسیار زیاد» در ایران هماهنگ شده و قریب به یقین زیر نظر سپاه پاسداران انقلاب اسلامی هدایت شده است.
+اندی برنهام در سخنانی در پارلمان گفت: «ما این تهدیدها را در خاک خود تحمل نخواهیم کرد. با استفاده ایران از شبکه‌های جنایتکار برخورد قاطع خواهیم کرد، با به‌کارگیری همهٔ اختیارات‌مان، این شبکه‌ها و منابع مالی آن‌ها را هدف قرار می‌دهیم و تحریم‌های بیشتری اعمال خواهیم کرد تا توان ایران و سپاه پاسداران برای آسیب‌رساندن به ما محدود شود».
+اد میلیبند، وزیر خارجه بریتانیا، نیز خبر داد که در واکنش به این اقدام، سفیر جمهوری اسلامی ایران در لندن به وزارت خارجه احضار شده است.
+پلیس بریتانیا روز یکشنبه پنجم مهر پنج مرد را در نزدیکی پایگاه هوایی «فِرفورد» در جنوب غربی این کشور به ظن ارتکاب جرایم مرتبط با مواد منفجره و تروریسم بازداشت کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78701)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-12 18:54:36
@@ -69,7 +141,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-12 00:56:32
 
-<img src="https://cdn1.telesco.pe/file/hyoeRzw4kT78hg_txm6y1ys4P-ael4i-u7cSbmNLRZ0WkqgHWf39LLD-rNLUM783mToWeSDDH81exUmejkD8a7hPfYkksANUFlejf7reJrWwSHunrT62zM80M9sxEkySGQlDYhV4UNQjhNs25LKyi6KszeRec-tdHvtLVKRw9YPYh_OcHKYNmthHS_W5y5M2Daafn7SN_opMjCoablfjqLc5x6QESKSXnXxrhl1mLI8hG-JpcyyPbxo1JmF4atioMlyUEOgMKP2s6WmqTElxchg08r8JFxfUSGam2IOLOsYeJ-bCOEiyACr5ZCv8gBU9LYUrQgcea67yyutwbceQGg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/eD_xsGg78FRa4NIyzdp3cIpr50FSESQ_Ez_wtKbwgNmfQQ209uQ9f4EHQBGrgZDRGfB7Fi8nkpIufbl7j4gKTl__nSZ4Q8spTayPhgEMInFytXH5cRRVOF7arfB44zCb19acWv3p79o-riZfKloxiuYnXofG9ht1yA1IMRiEwoFL9acP_qf6SMQSuZhGaadolCRT6Y06w0WtaH6C8yBy08xUnRV2Dtq1ztRm6ThI7HysHpgMMOeNeVtlLERcbu3VoLWLMvObq0j5kly0smtdgKfQSU9gxdWHp1vM8scsTb_4pRizQrFkkZPjCoSpaSqmVbLeWPpomJyVDlpIRI7jVg.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا (UKMTO)  با صدور هشداری فوری از «حمله پهپادی» علیه یک نفتکش در نزدیکی لنگرگاه بندر صحار در عمان خبر داد.
 بر اساس به‌روزرسانی این نهاد نظارتی، این رویداد پس از تایید اصابت مستقیم یک پهپاد به این نفتکش، رسما به‌عنوان «حمله» طبقه‌بندی شده است.
@@ -195,7 +267,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 03:09:57
 
-<img src="https://cdn1.telesco.pe/file/ZIPNZM4qpbD0vYsOTFxVgJD9aK3FbSq5703-NJLUmJ2Ws84tzlPL2UbA5rcgZ1aH5GaXVcWhwikwh9S5b-FVmNp2_WfQ65FIZP4ubNFs2jTEjFYK3T77xZdjNmrB5ZPU-jj8ykxY4Le9jw7C0iDZQuxkZbeoxB9Stbo6zs6tqTnMX38lopqmiauBJzhq-GPXaD30EZrrD2JnuuvZL4cfGGSorcm4Et9plEEep7MvJN0Nx7JouDQK0JFcI1JbgLn6qot2oG2um5Lsix6qYDLyT7ntvo0kbB8N6DLo7VjDvqgEONpcFU1JAhEzMzB-fkHC9iGvTSP05z3R_5Q_BBDNHA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/igVb1hd6nDClyK75KoZJshB_7-9juAF51QkWDt__9yWRJ60jebZ-DjVfcyv7jO_HqetHrZQbcYnu95jFNVLgrnAox1-JlTEPMWpZ3BhnqHfQC-lo0ARGZWXhXvgqNbiDIOyb1Yuoi_yNG_WhSIfTDwKLlYqYsZ6IFksmOF1oymK1UcGe1p-7ANk4E0t0ZR9eExyG7UrZmJ5deeYJwa2-86iTXnaW-1BiTJiLIqoz48RPrWA3SZTCpr3h_kEiIUPPBtknB-xnuSXrRvOODXrjccvyZdaLjXtWoiYr0_kgxMtC_BBKZbxp8wJIvzL9wO8f2yHA1w4Vk0IMyclBzDRK0A.jpg" width="400"><br>
 
 سازمان هواپیمایی کشوری عربستان سعودی در بیانیه‌ای گفت حمله روز شنبه ۱۸ مهر به فرودگاه بین‌المللی ملک خالد در ریاض، ۱۲ کشته و ۳۰۹ زخمی بر جای گذاشته است.
 بر اساس این بیانیه که بامداد یکشنبه ۱۹ مهر صادر شد، چهار نفر از کشته‌شدگان شهروند عربستان سعودی و هشت نفر دیگر اتباع خارجی، شامل دو بنگلادشی، یک آمریکایی، یک مصری، یک اردنی، یک سوری، یک فلسطینی و یک سودانی هستند.
@@ -217,7 +289,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 01:48:29
 
-<img src="https://cdn1.telesco.pe/file/dBneWBiF7_NEHQcAOyyeaSiTcvGqtD4N8TGPlkd6gIMOLA1p6voi_yr3mwHvfHAxg1EknkGZYrOkkA1YReCyL8KcxyZNXZfYc3Ry42ueWR90WTIgx4LnmFkMzLBE6I2u4SfsSHo5oCAx78spHrjG48voPCi9PHqBW725Ju90sxZyCKMiZKdPqrIpgRtkXit76GcK3SRaGr8_r5rGm99w-72dOv0tlMkSLedTGvGJYuW0guGeQSdZVpS9en6MniKJKmOi6m1K1k4uz45KpJIRUptVZsNEF1oUmdSElTLd9t2_zLCd6d_onyQISMjROEBIVh922lw2UJuvARvWCY_3ug.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LwIMP1cFrPfZRVt7f4FquhEEB64mxVEb9Ds67eK6vqlQjP6ztplusCIeTCVlaUeIfU2vDKuKjZEoEWY7bRsCN8cMTV1PInV1E15W1YhzwZr9CElK8CfCMn2vp00I-dCQLQ-pYhEPYoSlj0pcMIsLzKdx9UdtwaGxd-XvE-OdHBAmIZsLo6WXMkvlKUCJL5wiM00sgR0feKMFS6a5CicNqvnCcdi91saNmK-endvQiNUdGoRZl8No9Nb4v9-LSxbCLK2T0-bmlU374NMkMRwoQfS9XEEw1OLFORYa7rRKFXfwuaGK25cUtCh0JMedOBtLc2Vr5BYINxmJ48o2IS8fMw.jpg" width="400"><br>
 
 UKMTO:
 سازمان عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
@@ -235,7 +307,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-10-11 01:45:35
 
-<img src="https://cdn4.telesco.pe/file/OGuphiWAtP1pYtn96hYaHUe2GpiBnjTAycpcday9sTuY6TLHeS4R4lmJTsHQmhMzZ2Zpn3YVd1apGSq-PuBKgUR-cMVSV2Lu8N56AMKgd0xSU_NnyP7kJg3CS1p0STjioiJEyLjtA420Ym4A_ppEmXyhG9r9S-H92VjEFUzcc3cJZLScdzZUCVkPgcLPN3lUC_O4Yu6g7Kk0hpoRYH6ZuRBwp0ddW8DLqF4mrI6nm-Cwv43GNQYfKSSHCNfkSpuTs1Bz9yglrL4z58uDVGmi69ivwPW5wq4jWZHm5uuaw8TBxxQ8GQbfjdL8CUQa5uWW7DM28OZGSc5GAfFBLKUhsw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/DU3aC_D8qH-yrX8IVjMyMiyOjR7WIPjheWvJDaroeCbWNseux5ZthbEXT_JRuy1N4_rCIJyXgnRHD3fyq48amIuVu7ZtpCTtvFg7x4uoE2ULmZtA4V2eQEPmEWqF69pTkIKe861b_G2gjKNslB0beMEceQmEmdzySCnV-opve5vlEkxRqYKpzGP734q3KQ3dOWlbJEs6-aw0r4sLNuChw6gKeCL4x8jflUAl_Q9KztLB-xuzMbcc44ijjPYknO4G-HJoxXEbiRUDqqkYuNg9XKZNmz7W8EN6WyUoGxzmcppDQv0bJII9LV8peHVpmrwLjQTkTPQpBuvrW8GcZM4Vng.jpg" width="400"><br>
 
 دونالد ترامپ، روز شنبه، طی سخنرانی در ایالت تنسی درباره ایران گفت: «اوضاع تا حدی آرام شده است. آن‌ها احتمالا پیش از انتخابات دست به اقدامات اضافه‌ای می‌زنند و فکر می‌کنند این اقدامات به ما آسیب می‌زند، اما ما می‌توانیم این ماجرا را خیلی سریع تمام کنیم.» او در ادامه افزود: «آن‌ها اصلا نمی‌دانند من چقدر با آن‌ها خوب رفتار کرده‌ام. واقعا خبر ندارند که چقدر با آن‌ها مهربان و با مدارا بوده‌ام.»
 @
@@ -266,84 +338,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78685)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-10 20:03:39
-
-
-
-ویدیویی از هو شدن اسماعیل بقائی، سخنگوی وزارت امور خارجه جمهوری اسلامی، در جریان اجرای ارکسترال «آرش» در سالن اسپیناس تهران منتشر شده است.
-این اتفاق شامگاه جمعه ۱۷ مهر، هنگامی رخ داد که بقائی برای سخنرانی پشت میکروفون قرار گرفت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78684)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-10 20:00:34
-
-
-
-سازمان هواپیمایی کشوری عربستان سعودی روز شنبه ۱۸ مهر تأیید کرد که در پی حمله به فرودگاه بین‌المللی ملک خالد در ریاض و زخمی شدن شماری از افراد، فعالیت این فرودگاه متوقف شده است.
-یک منبع دیپلماتیک به خبرگزاری فرانسه گفته است که حوثی‌های یمن حدود ساعت سه بعدازظهر به وقت محلی با موشک به این فرودگاه حمله کرده‌اند. بر اساس گزارش‌های اولیه، ده‌ها نفر در این حمله زخمی شده‌اند.
-روزنامهٔ وال‌استریت جورنال نیز به نقل از مقام‌های سعودی گزارش داد که موشک‌های شلیک‌شده از سوی حوثی‌ها مستقیماً به ترمینال شمارهٔ سه فرودگاه اصابت کرده‌اند.
-یک منبع بیمارستانی به خبرگزاری فرانسه گفته است که پنج نفر از مجروحان در بخش مراقبت‌های ویژه بستری شده‌اند. یکی از شاهدان عینی نیز گفته است هنگام حضور در گیت ۴۰۳ ترمینال پروازهای داخلی، شاهد اصابت موشک به محدودهٔ گیت ۴۰۱ و زخمی شدن مسافران بوده است.
-این شاهد به خبرگزاری فرانسه گفت: «دیدم که گیت ۴۰۱ هدف قرار گرفت و افرادی جلوی چشمانم زخمی شدند. همه فرار می‌کردند.»
-حملهٔ روز شنبه در حالی رخ داد که فرودگاه ریاض پیش‌تر نیز در روزهای چهارشنبه و پنج‌شنبه هدف حملات حوثی‌ها قرار گرفته بود. این حملات در مجموع چهار کشته و چندین زخمی بر جای گذاشت و به یک فروند هواپیمای مسافربری شرکت سعودی آسیب جدی وارد کرد.
-سه شهروند سعودی، از جمله یک خلبان، در حملات روز پنج‌شنبه و یک شهروند سودانی در حملهٔ چهارشنبه کشته شدند. حوثی‌ها مسئولیت این حملات را پذیرفته‌اند.
-تشدید حملات موشکی به عربستان در پی ازسرگیری درگیری‌های گسترده میان حوثی‌ها و نیروهای دولت مورد حمایت ریاض در یمن صورت گرفته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78683)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-10 19:53:20
-
-<img src="https://cdn4.telesco.pe/file/E35ADIA7zz2XfqI_xYK496SFw95NNX_C3vUhsjFOydkFv_X_LL4xSGGCGGvycGh-97ULSfAHiK3bL0WwjnzFkccRiAlJG0QGyVIiQmBzlcQTdopbfzYOfTkcpPmskfwC5Vgnf8WmqTIlDbErcmPT0sAH5sjViDjZLnVp9P-Dxl6RIAdTOcx3N-KEr94coTepHEfEPhQxY0t9egHtpRuWGtDzhbFGVKiKtxECkSSuL4_LIyqv66HpHcdkjK7ZyLU0UWxA-LAwUPNPzIs1NjNU3zZR9zK-3tWnsASSVGtjKdPKvLVq2kkez4pdFbEq4_g0SwjHDLKy6R-sx4LHT66h_Q.jpg" width="400"><br>
-
-کاخ کرملین اعلام کرد ولادیمیر پوتین، رییس‌جمهور روسیه، با هماهنگی مسعود پزشکیان، دیدگاه تهران درباره راه‌حل احتمالی پایان جنگ با آمریکا را به دونالد ترامپ منتقل کرده است. هم‌زمان، مسکو از ادامه مذاکرات غیر مستقیم تهران و واشنگتن حمایت کرده و گفته پیشنهاد انتقال اورانیوم با غنای بالای ایران به روسیه همچنان روی میز است.
-@
-VahidHeadline
-در همون انتقال به
-توافق گازوئیل
-رسیدند؟
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78682)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-10 19:50:11
-
-<img src="https://cdn1.telesco.pe/file/jFqhFVqbBG0Nf4jvnvfbBj7tgdHwZQkaB0aUv1LEZnuxo6FoY0Rp-pykebMlRadZwUTI3nkWR0JeCZN5mibxb-jW8VsJpFT-7dc5PXp2b-js0z5Wr8roRMCrWvNYlT56myQYlX8zOpmZ0J_JVLq-RYoavilFoV7m1hdb5IEntq5NOFBK3DwC67Yogk948Be_wq_5z2y7LMP6y_ldZA5y89Ji7YULLbWI-0uFaK3bKuc_eQHlsPhclQ_i-0CePYlkn8L9nda4yqU2rnu3J2nTZdpOupAanNQohUS-CoVV43WjSK2u9hy0tqW9GbCbXTXCdLEXlbUqp9P9Nb4qWzI80w.jpg" width="400"><br>
-
-مجموعه فعالان حقوق بشر در ایران در گزارشی به مناسبت روز جهانی مبارزه با مجازات اعدام اعلام کرد طی یک سال گذشته، دو هزار و سه نفر در ایران اعدام شدند که دست‌کم ۶۹ نفر از آنان با اتهام‌های سیاسی و امنیتی روبه‌رو بودند.
-شمار اعدام‌ها در این دوره نسبت به دوره مشابه پیشین حدود ۲۹ درصد افزایش یافته و از هزار و ۵۵۳ نفر به دو هزار و سه نفر رسیده است؛ بالاترین رقم ثبت‌شده در ۱۰ دوره گزارش‌دهی.
-بر اساس آمار این گزارش، شمار اعدام‌ها از ۵۰۵ نفر در دوره ۲۰۱۶–۲۰۱۷ به دو هزار و سه نفر در دوره ۲۰۲۵–۲۰۲۶ رسیده است.
-در تفکیک اعدام‌ها بر اساس نوع اتهام، ۵۷٫۵۶ درصد مربوط به قتل و ۳۶٫۲۵ درصد مربوط به جرایم مواد مخدر بوده است. سایر اعدام‌ها با اتهام‌های سیاسی و امنیتی، تجاوز، محاربه غیرسیاسی، فساد فی‌الارض، جرایم اقتصادی یا اتهام‌های نامشخص ثبت شده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78681)
 
 ---
 
