@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-13 08:09:27 </h5>
+<h5> 🟢 Updated at: 2026-10-13 15:51:28 </h5>
 </div>
 
 
@@ -244,7 +244,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-11 16:13:44
 
-<img src="https://cdn4.telesco.pe/file/twiYY4Ktq54Q7nL621nN3GgGZJgMMppefvzWapv-bDmCMRYI-gTi7RpThsQXAJ4cAPLdeFC1D6fD39c6CEd6kbPVbx7TztIWIsxYyEv2Bk_uxW8OHvGkmnGyxg5_i7wADTZLfZvuuSpiWlrV2iuFE3wJodLs3x3WbjXyKOWh_qztimSJxdHnvDp1VxwD-FWz8jeXFsdvHx0om-jCPSeTY-N1ucLzidNoCWOoVRxph7n_Uld04HWI4WzlPmoKqs7cmdDtYjvAuBnkXGWe_tUJXzGp0SeocEu99mDy6qHRZcKK-0kdy3RaEJbBOWqR33yF19SDogkakbiToGje2HCTcw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/rra_4y1CPbQUitKo2I5USU8wIvgl8DPYxmWOvpJKdFwlP3wjAvpM_uNA7OIHhwzzxNnX73k2aTVKtOUvMqUZFvJSXgMYldPKhL84PXBwrln_uiYiWoNuPH8VhUqemW40YoUjyDIejdA4-bhhZBZambWyGWArmPzKw7IqlwJqX5mpl42tRqtKVxqjpTdiHmfCjBeWvBgdm3jbpKzYNaMZCGaqQwuyaw-xwgx8ON0vmMCGXcO9Skyu9FIY6yc1WF5p8PR642pD61pIqW9tcDlHWnXA5bnxs0QDZC12GlecxpNouxuApq0jKjgsME7GT8b41cv25f6LvZWw7LZrkpT6FA.jpg" width="400"><br>
 
 شهرزاد شهبازی، از وکلای متهمان پرونده «میدان علیخانی اصفهان» و وکیل علیرضا سپاهی، با رد روایت رسانه‌های حکومتی اعلام کرده است اتهام قتل ماموران انتظامی به هیچ‌یک از متهمان این پرونده تفهیم نشده و دادگاه نیز به این اتهام رسیدگی نکرده است. تاکنون پنج نفر از متهمان این پرونده اعدام شده‌اند و هفت نفر دیگر در خطر اعدام قرار دارند.
 اظهارات این وکیل در واکنش به انتشار مصاحبه‌ای در رسانه‌های حکومتی مطرح شده است که در آن زنی، معرفی‌شده به‌عنوان همسر یکی از مأموران کشته‌شده، متهمان را به قتل و سوزاندن ماموران متهم می‌کند. انتشار این مصاحبه پس از افزایش انتقادها از اجرای احکام اعدام، به‌ویژه اعدام علیرضا سپاهی، صورت گرفته است.
@@ -268,7 +268,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 16:11:04
 
-<img src="https://cdn4.telesco.pe/file/PCT7N8wxdZMgCU3o22OJZJ0IyEaxJrJHpuoVYRyPX34WSG8KFFeytRCEXeWDKayjni2o0_DLfNjwBPDD7WfrHE3PXrJmoWHVBWN4vVgA4Hy5skYOO-xmN1Q_H4e9nmvXt8u6bkAgRe3gL3NZz_e_OdyQU2QsGf4mESOzvQr73YjDrZn7qR80AM7fQgKHiO3gAXbjnCFBGuhydolbpbX-JBGnzxMqn4-qa26AWEJvXO9sPx1MVIV0KBzhJBxwNUslniLDZAcL4t1mOiLlDtL29aX8iXVKZv13OSNuXHctezKzt2JMomPxA6SBUgxAyuD_d2a5rC_Cn3z3G5Ekox1-Vw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/SEo90YGyZUdzbnSg-1c5tgWyBlM-DZ_MF2FazYhadYD2IZ5-CvG5iKdXH3-oH-0ktGI9oZiW0dYjLlDY9HzUVc7GjC3WkF_igqk4tBgqPRobZk9GXLDcjvG1yjbja9prZ5NQxHKDTGnzlVTHx-0fva9lhvvO37Qn_fd7gTVexj4YVw7hO3kDcbd9xj8OwfSiN1g5FU9KXtzSm52k1AqZ6ecSfb6UozbaNA9gldbcX51f9SGDHFwBBAnFL5-TcAuq80XZT9NesH5YKf9_RNFk0aMozomtvquXSNMzv0avnIxccMPOyZJhIFn4yiMSr9LLG7s3Xoppf-AsdRwra1Tyyw.jpg" width="400"><br>
 
 سازمان مدیریت بحران ایران اعلام کرد در سیلاب و رعد و برق پنج استان کشور هفت نفر جان باختند و دو نفر مفقود شدند.
 به اعلام این سازمان، دو مفقود در استان گلستان ناپدید شده‌اند.
@@ -286,7 +286,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-11 16:10:37
 
-<img src="https://cdn1.telesco.pe/file/u2DkhZzGEi6LLw8TeRpGqGqOZJRqr4dvC7Z2qHx7fEqsus_bKFDvkNEHMt6bExG9e5GLOkfVTAz8XQFKvkBY3xpr2paycnj5ny7r0wSz6SfMqv1Ysz2MYE8k9LU0PiaaPaH3QlNfewrCdOsa2t5QCh_2oqKDM65PUap4LHJnmppDgbYh82Iv6pv7UfNMkSqLYWMmFXM8PTVOPsXJbUGQ_LOxmldBv2k1oxnOo0iM92lT2VYN-n88ELZGcHgC5Riat-oL13B85xBE1iTYk5roiqG5WUTVnK5Oe5vfXM8NocvkNpvF8e4rlwSfFBCVFT-v3pVMJ1-keOav-7b24y9prA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/CnDfLkbfd_Yt58gts6j_rAd6rh1hgIl12gn-Xzs5uF-H97zfpBcDjW8MQcYGEQd83xd7XX1lpUV-QOaHFfyw29oKn_EJueOGtzTltNMB6VR-4-JBJUfN3KwDa0jPLkOouz_kj_fzy5ykM3ZBi8ii53J80eU376WtN506-iqkwfNRPYcGS6myAykS7sW98bJVXEE4EHid2OnN7h2Q23FqbIWX_SuAybkovia7qDRnUB5R2V16K4F8cfxeEGVUVhPIZlu4XASKLxyWUjkkSri7XsMO79wrTjzTcYxo-ya0x4b1vkBYev18GGKLy137WotjrcTcUw2Ue7y2IVWFh3GhPA.jpg" width="400"><br>
 
 قوه قضائیه جمهوری اسلامی از اعدام یک مرد به اتهام قتل یک مامور نیروی انتظامی در بندرعباس خبر داد.
 این مامور نیروی انتظامی رضا احترامی و مأمور یگان امداد شهرستان بندرعباس معرفی شده است.
