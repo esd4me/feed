@@ -3,8 +3,48 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-13 23:10:00 </h5>
+<h5> 🟢 Updated at: 2026-10-14 03:01:52 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-13 23:38:01
+
+<img src="https://cdn1.telesco.pe/file/mzAAVf2zlXwZt5xaJLAfA6mekW_aL3_4DpzzgDDc3tlu3uI72GJiiF1fzRUQhywgVqBY3ErWysGYe95uIV8QJbJrz-PA1vfYfoUUMTSOIVl-YK23Qk35c4xAyfpTmad9_iYsGZlOjRghjbXCjBaAN_onxUm9n3zJLPbV1E9lewb3gKMNxomMsy0Pl82oFL9ArlSlH5m9BId7-Sh7SebHU-CQK8eF3ybf0caFWN8NZ7tTnYPhYEqPHW1JB1WwUPJGAMGDTj2RXCQ-CD_vtav51Y5CPXdxUGt8EoKyDi3KMPfOs1Dx16XQXyMTM1nfeopTQlaXbSFr8Cj3g884GTSYYA.jpg" width="400"><br>
+
+اکسیوس سه‌شنبه ۲۱ مهر به نقل از دو مقام آمریکایی، یک مقام اسرائیلی و یک منبع آگاه گزارش داد بنیامین نتانیاهو طی دو هفته گذشته چندین بار با دونالد ترامپ درباره ازسرگیری عملیات گسترده در ایران گفت‌وگو کرده است. به گفته منابع، دو طرف احتمال عملیات مشترک آمریکا و اسرائیل علیه اهداف نظامی و هسته‌ای ایران را بررسی کرده‌اند.
+نتانیاهو درباره اقداماتی که اسرائیل معتقد است جمهوری اسلامی برای بازسازی برنامه هسته‌ای خود انجام می‌دهد، ابراز نگرانی کرده است. اسرائیل به‌ویژه نگران احتمال استفاده جمهوری اسلامی از «کوه کلنگ» برای غنی‌سازی اورانیوم است.
+اکسیوس افزود اعضای ارشد کابینه ترامپ دوم اکتبر در کمپ دیوید درباره احتمال ازسرگیری حملات گفت‌وگو کردند. یک مقام اسرائیلی گفت ترامپ ابتدا به حمله متمایل بود، اما بعد مردد شد.
+یک منبع آگاه گفت پیت هگست، وزیر جنگ آمریکا، و فرماندهان سنتکام از جدی‌ترین حامیان ازسرگیری حملات هستند، اما بیشتر مشاوران ترامپ ادامه فشار اقتصادی را ترجیح می‌دهند و معتقدند این فشار «روزبه‌روز بهتر عمل می‌کند».
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78715)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-13 23:35:47
+
+<img src="https://cdn1.telesco.pe/file/UjRklKiTAlCqcy-LcoSe0i29cUM3ExlQISvlaTGSTSkfxU4cEEtEnjab4nQ6_I6vpYZtMIF3zaAc-OrNsw-Aortee8VoKz678et83nlwPOHgnsv8nCXpTlOpW4gBOY9BpiQgcqhIk14qhp0q1iQ9QmjddCFJqOndeD1JMuzPoQAoK8OL3kaEjkc1_Q7ev-FJrmBb-rZkzhi_tGMpBKHKeoc87ygPkI8Br8wsADLsA7EwiX5CKl5DCIL79MdODA-HDmlCesyhXPQ5KX4FKKSvYA7tiGgJrs4yq32OI1c1u3su_uuud87MyPA2EgKAUGSNuxS-mSMIk8KgL6YeR4sawQ.jpg" width="400"><br>
+
+در پی هشدار مقام‌های عربستان سعودی دربارهٔ تهدید حملات هوایی، روز سه‌شنبه ۲۱ مهر صدای انفجاری مهیب در ریاض، پایتخت این کشور، و چند انفجار در نزدیکی مقر شرکت نفتی آرامکو در شهر ظَهران شنیده شد.
+به گزارش خبرگزاری فرانسه، مقام‌های عربستان با ارسال هشدار به تلفن‌های همراه ساکنان ریاض اعلام کردند که این شهر با «تهدید هوایی خصمانه» روبه‌رو است. خبرنگاران این خبرگزاری اندکی پس از صدور هشدار از شنیده شدن صدای انفجاری شدید خبر دادند.
+هم‌زمان، شش منبع به خبرگزاری رویترز گفتند که صدای چند انفجار مهیب در نزدیکی مقر شرکت نفتی آرامکو در ظهران، در شرق عربستان، شنیده شده و این مجموعه تخلیه شده است.
+یکی از این منابع از مشاهده دود در مقر آرامکو خبر داد، اما این شرکت هنوز واکنش رسمی به این گزارش‌ها نشان نداده است.
+ائتلاف نظامی به رهبری عربستان نیز اعلام کرد که قطعات ناشی از رهگیری یک پرتابه در منطقه‌ای مسکونی در ظهران سقوط کرده است.
+مقام‌های عربستان همچنین در استان الشرقیه این کشور هشدار خطر حمله هوایی صادر کردند، اما اندکی بعد اعلام شد که تهدید برطرف شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78714)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-13 22:41:39
@@ -304,47 +344,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78697)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-12 00:56:32
-
-<img src="https://cdn1.telesco.pe/file/eD_xsGg78FRa4NIyzdp3cIpr50FSESQ_Ez_wtKbwgNmfQQ209uQ9f4EHQBGrgZDRGfB7Fi8nkpIufbl7j4gKTl__nSZ4Q8spTayPhgEMInFytXH5cRRVOF7arfB44zCb19acWv3p79o-riZfKloxiuYnXofG9ht1yA1IMRiEwoFL9acP_qf6SMQSuZhGaadolCRT6Y06w0WtaH6C8yBy08xUnRV2Dtq1ztRm6ThI7HysHpgMMOeNeVtlLERcbu3VoLWLMvObq0j5kly0smtdgKfQSU9gxdWHp1vM8scsTb_4pRizQrFkkZPjCoSpaSqmVbLeWPpomJyVDlpIRI7jVg.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا (UKMTO)  با صدور هشداری فوری از «حمله پهپادی» علیه یک نفتکش در نزدیکی لنگرگاه بندر صحار در عمان خبر داد.
-بر اساس به‌روزرسانی این نهاد نظارتی، این رویداد پس از تایید اصابت مستقیم یک پهپاد به این نفتکش، رسما به‌عنوان «حمله» طبقه‌بندی شده است.
-بنابر این گزارش، مقام‌های محلی عمان در حال کمک به تخلیه خدمه کشتی هستند، اما تا زمان انتشار این اطلاعیه، ارزیابی دقیقی از میزان خسارات وارده، تلفات احتمالی و اثرات زیست‌محیطی آن در دست نیست.
-@
-VahidOOnLine
-روابط عمومی نیروی دریایی سپاه پاسداران با انتشار اطلاعیه‌ای از انفجار و آتش‌سوزی یک نفتکش خبر داد و اعلام کرد: «یک نفتکش از نوع شاتل با ۷۵۰ هزار بشکه نفت خام، بی‌توجه به هشدارها و اخطارهای نیروی دریایی سپاه تلاش نمود از مسیر غیرمجاز عبور کند که به مین دریایی برخورد و دچار انفجار و آتش‌سوزی شدید شد.»
-بنابر گزارش خبرگزاری فارس، این سومین نفتکشی است که طی روزهای اخیر در اثر برخورد با مین‌های دریایی به دلیل «نقض هشدارها و تردد در مسیرهای تعیین‌نشده» دچار آتش‌سوزی شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78695)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-11 19:42:13
-
-<img src="https://cdn4.telesco.pe/file/gCexReAXD9cvZk9l33zDngIqgmHkeT_JfksoZJxervjRxRITlyLhcKwxcGLxi-Oslp1KK0POAikWl0W-Ys3jbF3F7Z0YG9RdqKRuDRsG_a-Jh-mWaC_CtKuresR9RBp-9zbml6xeL8WiQlLkpEqtHS3fTgaXyoXibLZlI6VwAX2QSOFyg0arjJ7VmrH1EoM547rQRMjYu4OkjBCV82wiz4PKEIPYn1pQqNR5xYdUICNUrXswQXgSUbFEvgrwFftYEBohgcnKztInrfSSvlT9ncghVG9y-OUs7cUGbva-23f7HNdqQWPSM07yBLY0HE7VkfMFzU8cJDGFcfdPCyw7-A.jpg" width="400"><br>
-
-فرودگاه ریاض روز یکشنبه ۱۹ مهر بار دیگر هدف قرار گرفت.
-ائتلاف به رهبری عربستان سعودی در یمن اعلام کرد که یک «پرتابه ناشناس» فرودگاه بین‌المللی ریاض را هدف قرار داده است.
-ترکی المالکی، سخنگوی ائتلاف، گفت این پرتابه به پایانه ۴ فرودگاه بین‌المللی ملک خالد اصابت کرد و موجب آتش‌سوزی شد.
-این در حالی است که حمله موشکی روز گذشته به فرودگاه بین‌المللی ریاض که حوثی‌های یمن پس از ساعت‌ها تنها به طور تلویحی مسئولیت آن را پذیرفتند دست‌کم ۱۲ کشته و بیش از ۳۰۰ مجروح برجا گذاشت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78694)
 
 ---
 
