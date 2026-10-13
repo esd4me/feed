@@ -3,8 +3,47 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-13 02:53:12 </h5>
+<h5> 🟢 Updated at: 2026-10-13 08:09:27 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-13 06:44:51
+
+<img src="https://cdn1.telesco.pe/file/nb51fXO1Nh1dv_BhRSjhrN8Rt5N6sLyF8bvM0zz6B5oRICldZYo-gHrpZ6hYc4dTbFHfXjFSy-xHyQTeMNRFwX0te4trg-F_VMi8OJd_81S6Ovh4R_VW8B4gXPkx8WMieqMEDlV0w14gt0dCDqix5ngEUZK-b6IIkZrL8zie6hujgqOXAJnQKHha3uMDbaJtJKEFA3wBePQ7lAQwxF9KgIZCfiY2oJuy4cJe1jsOX00utt3ncttDTRISiuQiWpnGXwzwYNFmPsVnoL7RkhtQ_ApKr0Cxu6S5-QxP_hya-Itlfql3synUozFB4sfXZ2VD8nU8bwWAWO9hWuP1IgEsAA.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+نظرات زیادی از احمق‌ها و دیوانه‌های چپ رادیکال می‌بینم که می‌گویند چین و روسیه دارند به جمهوری اسلامی «فوق‌العاده» ایران کمک می‌کنند. اگر هم چنین کمکی می‌کنند، در سطح بسیار محدودی است، اما من اصلاً باور ندارم که کمکی در کار باشد.
+آن‌ها چیزهای زیادی برای از دست دادن دارند و اگر چنین اتفاقی می‌افتاد، ما از آن باخبر می‌شدیم، آن هم خیلی سریع!
+از توجه شما به این موضوع سپاسگزارم.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78706)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-13 06:42:37
+
+<img src="https://cdn1.telesco.pe/file/ESBjC6nDUloVRQASBrkquIx7y--6I-wYIIEh0VkSWu5ty7GIsQDrpSBEDF4JC1-63R1sF8YRlUzxwci361vfhTymuRkixypFA9BBkx4ahA-OHzuj0args2XtTZBLVK7j-gb0zcZV_Aksf_-N_SL_LNHDGhhGeJEIh4KfqMgFvEOy9zQLM6DStYV4sfcSHnkhy2YX45cv-Kla8WihA000BRAvhBi9osoNV5EcOdVQbVkz72zt2lRgc9lqTBowMFE-c1yr3DPzbHlQcvz7OEpambVQ84aV38pGiddEfWOI_-1tLJi5m1seAvC0hRpBDqtQsWLJxvdM7K4nnb7jrzAFcw.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت جمهوری اسلامی اکنون حتی رهبر و مقام‌های ارشد ندارد و واشینگتن برای مشخص کردن طرف مذاکره در ایران با مشکل روبه‌رو شده است.
+ترامپ گفت: «مشکل همین است. شاید در برخورد با رهبرانشان زیاده‌روی کردیم، چون دیگر اصلا نمی‌دانیم با چه کسی طرف هستیم.»
+او همچنین گفت: «هیچ‌کس نمی‌خواهد رییس‌جمهوری ایران شود. آنها نام افراد را یکی‌یکی می‌خوانند و می‌پرسند چه کسی می‌خواهد رییس‌جمهوری شود؟ هیچ‌کس نمی‌خواهد. من نمی‌خواهم.»
+ترامپ با اشاره به دشواری یافتن طرف مذاکره افزود: «راستش را بخواهید، برای اینکه بفهمیم اصلا باید با چه کسی مذاکره کنیم، با مشکل بزرگی روبه‌رو شده‌ایم.»
+رییس‌جمهوری آمریکا در ادامه گفت: «فکر می‌کنم زیاده‌روی کردیم. می‌توانستیم در سطح اول متوقف شویم. رفتن به سطح دوم و سطح دو و نیم احتمالا زیاده‌روی بود.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78705)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-12 22:45:40
@@ -300,44 +339,6 @@ UK_MTO
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78687)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-11 01:45:35
-
-<img src="https://cdn4.telesco.pe/file/DU3aC_D8qH-yrX8IVjMyMiyOjR7WIPjheWvJDaroeCbWNseux5ZthbEXT_JRuy1N4_rCIJyXgnRHD3fyq48amIuVu7ZtpCTtvFg7x4uoE2ULmZtA4V2eQEPmEWqF69pTkIKe861b_G2gjKNslB0beMEceQmEmdzySCnV-opve5vlEkxRqYKpzGP734q3KQ3dOWlbJEs6-aw0r4sLNuChw6gKeCL4x8jflUAl_Q9KztLB-xuzMbcc44ijjPYknO4G-HJoxXEbiRUDqqkYuNg9XKZNmz7W8EN6WyUoGxzmcppDQv0bJII9LV8peHVpmrwLjQTkTPQpBuvrW8GcZM4Vng.jpg" width="400"><br>
-
-دونالد ترامپ، روز شنبه، طی سخنرانی در ایالت تنسی درباره ایران گفت: «اوضاع تا حدی آرام شده است. آن‌ها احتمالا پیش از انتخابات دست به اقدامات اضافه‌ای می‌زنند و فکر می‌کنند این اقدامات به ما آسیب می‌زند، اما ما می‌توانیم این ماجرا را خیلی سریع تمام کنیم.» او در ادامه افزود: «آن‌ها اصلا نمی‌دانند من چقدر با آن‌ها خوب رفتار کرده‌ام. واقعا خبر ندارند که چقدر با آن‌ها مهربان و با مدارا بوده‌ام.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78686)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-10 22:31:05
-
-
-
-سازمان هواپیمایی کشوری عربستان سعودی روز شنبه ۱۸ مهر تأیید کرد که در پی حمله به فرودگاه بین‌المللی ملک خالد در ریاض و زخمی شدن شماری از افراد، فعالیت این فرودگاه متوقف شده است.
-دونالد ترامپ، رئیس‌جمهور آمریکا، در واکنش گفته است که از این حمله مطلع شده و درباره آن تصمیم خواهد گرفت.
-دونالد ترامپ در جمع خبرنگاران و در پاسخ به این سؤال که آیا آمریکا به جنگ عربستان سعودی با حوثی‌ها خواهد پیوست، گفت: «ممکن است. این موضوع را بررسی خواهیم کرد. ما تازه از حمله اخیر مطلع شده‌ایم. تصمیم‌گیری خواهیم کرد. خیلی سریع اقدام می‌کنیم.»
-پیش‌تر برخی رسانه‌ها خبر داده بودند که حکومت ریاض از آمریکا خواسته حوثی‌ها را هدف حملات نظامی قرار دهد.
-پایگاه خبری اکسیوس یک هفته پیش گزارش داد که شماری از بلندپایه‌ترین مقام‌های امنیت ملی دولت دونالد ترامپ روز جمعه در نشستی چندساعته و اعلام‌نشده در کمپ دیوید، درباره گام‌های بعدی آمریکا در جنگ ایران و همچنین درگیری عربستان سعودی با حوثی‌های یمن گفت‌وگو کرده‌اند.
-با وجود تأیید رسمی وقوع حمله و زخمی شدن افراد، مقام‌های عربستان هنوز شمار دقیق مجروحان و میزان خسارت واردشده به فرودگاه را اعلام نکرده‌اند.
-حوثی‌های مورد حمایت جمهوری اسلامی نیز تا زمان انتشار این گزارش مسئولیت حملهٔ روز شنبه را بر عهده نگرفته‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78685)
 
 ---
 
