@@ -3,8 +3,139 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-13 15:51:28 </h5>
+<h5> 🟢 Updated at: 2026-10-13 23:10:00 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-13 22:41:39
+
+<img src="https://cdn1.telesco.pe/file/rwcrooE8yao---at7QCts4prauokMrPMqPO-I02TwuQZK-uteBM4Bhsp5-jX5HQkxP7-7kRY0zfpPjOgzEmnWdFwhFYXSEzvG68inqUupHd9wnDwFRqwLMHnPuvNE_2RCYE7EaZgYPm7ahym4mM_UYianMuj0Z6QkIzESWwCLsKH5sZYmvfbpLt2U9tWxhgD-b7Y6otF-CW8EpXGJgCmF9VEzfldf3DHubzyk_QXBPXRwMjknoZtHCdUsrP5a1O41rbbUn-0D4ryke78qAp1ZdM_MpK17L8ZiwGFtc4Dk9TbWlhGj-M0BRwCm1S1BiAnwbglJPH1emo9M4whCvhQVw.jpg" width="400"><br>
+
+UKMTO:
+مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است. یک منبع تأییدشده گزارش داده است که یک نفتکش بر اثر اصابت پرتابه‌ای ناشناس هدف قرار گرفته است.
+مقام‌های مسئول در حال بررسی این حادثه هستند.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78713)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-13 19:49:49
+
+<img src="https://cdn1.telesco.pe/file/cTxiD2-BuUR1M_dVZ8VY0iO4CwUApfbRlBdEUwxZtYwwojziThIFt2QDKA523eTHE9f7zrkklm-yjp1DEjzfGeQ3-2S3C1GHuMNpoHk_tFjCLFKaDlJnN5k6KBliS0yf6zdzqR0szU1FTwyu80gz9S44Rv9iRJT2fheLNQjg7x8eWg1HXNvkafv5_qK9MkD-7vaAPkIuEI0maH6ifkJPqIhk-t_O_u6NWVQQb9fFqYrB7LxYM-Fu-EguprPPSoZ-pn5FbiHQ22s0INGNtJSxloh4hMBo_pV6Bfzaldpdi9xFtzsWExqoe9Wf2vB0gb_Gb__0PN9Ks3UcgVmiapCOuQ.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+حوثی‌ها رفتار بسیار بدی دارند. فکر می‌کردم یک سال پیش، وقتی آن‌ها را به‌شدت بمباران کردیم و به درخواست خودشان حملات را متوقف کردیم، درسشان را گرفته باشند.
+مدت زیادی ساکت بودند، اما حالا دوباره سر و کله‌شان پیدا شده، احتمالاً به دستور ایران؛
+کشوری رو به نابودی که نه نیروی دریایی دارد، نه نیروی هوایی، بدترین اقتصاد جهان را دارد و نرخ تورمش ۳۰۱ درصد است.
+حوثی‌ها به شکلی بسیار زننده دوباره وارد عمل شده‌اند، به عربستان سعودی حمله می‌کنند و عمداً می‌کوشند قیمت نفت را بالا ببرند، احتمالاً پیش از انتخابات آمریکا — اصلاً کار قشنگی نیست!
+یکی باید برایشان توضیح بدهد که من در انتخابات نامزد نیستم. من قبلاً پیروز شده‌ام، آن هم با یک پیروزی قاطع و کوبنده، اما بعد از انتخابات هم سر کار خواهم بود و هرگز فراموش نخواهم کرد!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78712)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-13 16:13:47
+
+<img src="https://cdn4.telesco.pe/file/BIonM0TEUt5PtSZGctf_GxElZttuNS-XxYLz387QbvQBCt17pBC2i08uGiy1Lzyyr8fVbO_AfMnEsn3edUgJVixFc5tZF-zEoaOCvhiXv5sYFx-baXp0Pq7IJB_SHVBbJYO8oLHQ88GkOMAznSBpiuNyTMisKYUd9ozh0dhlAU7h9JsrmfkN0cluSyzATudOxA0tpIZX4HlkyFFm2RVmlJE08mhRJRvV_1fHDh4msmcw5_PzyO4FlS1Z2zDLTSsVk6115JWVJas2eExHjd1uswRQ4983YhYfXWVP-jlf6GQ5M9NH1ps6CeL3XZZ5AzSj_4fRtIekJCCJHyvH9GvSgA.jpg" width="400"><br>
+
+مسعود پزشکیان، رئیس‌جمهوری اسلامی و رئیس شورای عالی انقلاب فرهنگی، مصوبه اختصاص سهمیه به داوطلبان کنکور آسیب‌دیده از جنگ‌های ۱۲ و ۴۰ روزه را برای اجرا ابلاغ کرد. بر اساس این مصوبه، داوطلبانی که در جریان این جنگ‌ها یا حوادث پس از آن، محل سکونت خود را از دست داده‌اند، در صورت احراز شرایط مشخص، به مدت دو سال مشمول سهمیه ۵ درصدی ایثارگران خواهند شد.
+بر اساس متن مصوبه شورای عالی انقلاب فرهنگی، این تسهیلات شامل داوطلبان ورود به دانشگاه‌ها و مراکز آموزش عالی می‌شود که ساختمان محل سکونتشان در جریان جنگ‌های ۱۲ روزه، ۴۰ روزه یا حوادث پس از آن، تا زمان برگزاری آزمون، تخریب شده و دیگر امکان سکونت در آن وجود نداشته باشد.
+طبق این مصوبه، ساختمان آسیب‌دیده باید در وضعیتی باشد که نیازمند احداث مجدد، مقاوم‌سازی یا تعمیرات اساسی محسوب شود. بنابراین، صرف آسیب‌دیدن منزل یا وارد آمدن خسارت جزئی، به‌تنهایی برای برخورداری از این تسهیلات کافی نیست.
+این مصوبه در جلسه ۲۳ تیر ۱۴۰۵ شورای عالی انقلاب فرهنگی به تصویب رسیده و اکنون برای اجرا ابلاغ شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78711)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-13 16:13:09
+
+<img src="https://cdn4.telesco.pe/file/QKLsLyP38MrAKELsyVd5iyhHsxmrmGkXWrjHiaEf5YC2VpGGyhHXK3f0ZPaWBxaKhMhOv9oAwgKPtxkwrHX1zZb95SdVIS3PnD5Kfju8o71yJRvkJLRAtLYcvOX62Norjs7UlyBKU9dlhVyfJ6vMeDxPEb3VJxfDzrup9pG2d6w1513Ed7VeX1BLfni4Ll0ug0N20yrPdYIWKPSjKO9sxFrVEpzZMZetyMV1chTexDX59KNPHp9R-8LL5d46Ww-hxWjFzNWF2j0l3HEhQ8Kx2GSQFu9KqIZ0O7kbVHUu7daLceh6OZn9K2lfIwTa31yx0lm8ovoemF7Ag5TZ-Tnfkw.jpg" width="400"><br>
+
+سازمان عفو بین‌الملل در بیانیه‌ای تازه که روز سه‌شنبه، ۲۱ مهرماه، منتشر شد تأکید کرد که جمهوری اسلامی از مجازات اعدام به عنوان ابزاری برای «بالا بردن هزینه اعتراض... و ارعاب» مردم استفاده می‌کند.
+این سازمان حقوق بشری در بیانیه خود از اعدام پنج معترض دی‌ماه ۱۴۰۴ تنها در عرض یک هفته به عنوان گواهی برای این مدعا یاد کرده است.
+قوه قضاییه جمهوری اسلامی از هشتم تا ۱۳ مهرماه جاری از اعدام این پنج جوان معترض خبر داد:‌ علی همتی سیستانی و مجید نیک‌اندیش در مشهد اعدام شدند، سیاوش جمشیدی خیرآبادی در شهرکرد اعدام شد، و علیرضا سپاهی و علیرضا رئیسی که در شهر اصفهان به دار آویخته شدند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78710)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-13 16:12:24
+
+<img src="https://cdn4.telesco.pe/file/rAkpIOLYDB8qv2J0yylsY3XqYZ5nnNJ1ATf3_YJiA0Z49oyd1cbf64flEok2lRGTkGEFouF1bTg84s__pgjWFpZgvCoeDMP9OtSIZCmGGrcqyEDafu8STM4sL2qu4xN1190Jmo-O-n0en0Ua3sezKF5BKBAwipW_YW3-ljCs2DL88SB2ZoaGVUfhojVprXNw4hzCTrnv-oTbc_OjMQpLbC3BOmaW4c8BF27BogHMTWwYw8jWJXdH3aERvgzM77XtVaAGELJNe-o18-lAMfhJCUc6m_ISEw-l-elo5RK8-1cPPhiTOLsV_jcir2QK4k-1KQt5-UCkt3swVO7vygBTyQ.jpg" width="400"><br>
+
+وال‌استریت ژورنال‌ به نقل از منابع مطلع گزارش داده است که برخی مقام‌های جمهوری اسلامی در گفت‌وگو با مسئولان کشورهای منطقه،  در پیام‌های علنی و گفت‌وگوهای خصوصی هشدار داده‌اند که جمهوری اسلامی حملات تازه آمریکا را با گسترش درگیری‌ها در خاورمیانه پاسخ خواهد داد.
+منابع مورد استناد روزنامه گفته‌اند اشاره به احتمال ورود زمینی نیروهای ایران به خاک همسایگان، بخشی از تلاش مقام‌های جمهوری اسلامی برای بازداشتن واشنگتن از حمله بوده است.
+به نوشته وال‌استریت ژورنال، مقام‌های جمهوری اسلامی در پیام‌هایی جداگانه به مسئولان کشورهای عرب همسایه گفته‌اند در صورت آغاز دوباره درگیری‌ها، اهدافی در منطقه، از جمله تاسیسات نفتی عربستان سعودی، ممکن است هدف حمله قرار گیرند.
+محسن رضایی، دبیر شورای عالی امنیت ملی، نیز روز یکشنبه ۱۹ مهر در گفت‌وگویی تلویزیونی تهدید کرده بود که در صورت از سرگیری جنگ، زیرساخت‌های دیجیتال منطقه، از جمله کابل‌های ارتباطی، مراکز داده و تاسیسات هوش مصنوعی، هدف قرار خواهند گرفت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78709)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-13 16:10:03
+
+<img src="https://cdn4.telesco.pe/file/M251Af_ZjAzGOC_N7-mS9KeIQu1e3QatLyCfocMTEECGThEG4FRYDPeDzFVn5JzymPByoqkXKyz-_G5jY8WrmyM1O4kjudIkZD8iwFHt7mho90N6kRsgwh_vGPwLxWA3dR5ABnCH1UZR8xoKJrTioZUrWLQwzG1bmYKiRTgPcjoFKhZl4iNh_C_1w4GRkyAtIc9KqdZFcFTGxq9scX-JnLhDNrna1KdW0QRa0fsKhBc9J6lQu83a93hEUubV7I94eHeRKMvOCh88o0Gl7R-cUij1z5vc9fv5iD-oQtQjBGkzeMIt5a27tFQPMhi7zTqP5vUSJlA3lu2jU1M_RkH6ew.jpg" width="400"><br>
+
+اسدالله جعفری، رییس‌ دادگستری استان اصفهان، انتشار فایل صوتی عقد علیرضا سپاهی و مهشاد کشانی را از دلایل بازداشت امیر‌سالار داودی، وکیل دادگستری، اعلام کرده است. او این فایل را «دروغین» خوانده و داودی را به انتشار مطالبی متهم کرده که به گفته او موجب «تشویش اذهان عمومی» شده‌اند.
+جعفری روز سه‌شنبه ۲۱ مهر ۱۴۰۵، در اظهاراتی که به نقل از روابط عمومی دادگستری اصفهان منتشر شد، مدعی شد انتشار این فایل در صفحه اینستاگرام داودی، زمینه «سوءاستفاده تبلیغاتی» رسانه‌های مخالف حکومت را فراهم کرده است.
+علیرضا سپاهی، از متهمان پرونده «میدان علیخانی» اصفهان، بامداد ۱۳ مهر اعدام شد. داودی پیش از اجرای حکم، فایل صوتی قرائت خطبه عقد او و مهشاد کشانی، نامزد زندانی‌اش، را منتشر کرده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78708)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-13 16:09:09
+
+<img src="https://cdn4.telesco.pe/file/nkN4dpF2YPE1xdXm3sC2QdNlNHJoG81n0N9EWo7buBDzYmjTE0Dqkcj81PV2o8yv8NHkoEsa8uZa5DjESQqEdLcMerb5btALI5010y0rK_dzKp_5QmnQYskMwOnhF6wSQ2DBPEZrGr-vyAhm1Q2fHU-jLImIJEJ9w7uLuV-0FkY8l4g9IDoIYCBW-c-wz6OhN2RSyOnwYT1GlOZ0Uzj0JpROwUbWSD4DrV7g8S073RIiBmQIvnJ01Fc_WH2R3H68vvx1tCpgxLUB4fjQhwtHcE0ez4QCjuu7FvUgWTtMLptWR6Y0-P69c5EbraCSQdh3OTWHk-5FHk7LQQhRXAn5Iw.jpg" width="400"><br>
+
+دستگاه قضایی جمهوری اسلامی ایران از اعدام یک نفر در میناب خبر داد که دی ماه ۱۴۰۲ به اتهام «زیر گرفتن یک مأمور پلیس راه میناب جاسک» بازداشت شده بود.
+قوه قضاییه روز سه‌شنبه ۲۱ مهرماه با اعلام این خبر، فرد اعدام‌شده را «قاتل جاسم حسینیان، مأمور پلیس راه» خوانده اما نام او را ذکر نکرده و درباره‌ی هویت او نیز توضیح نداده است.
+خبرگزاری میزان می‌گوید حکم اعدام متهم مورد فرجام خواهی در دیوان عالی کشور قرار گرفت و در نهایت در این دیواننیز تأیید شد. با این حال از روند دادرسی این پرونده و جزئیات آن هیچ گزارشی منتشر نشده است.
+از آغاز سال ۲۰۲۶ میلادی، این ۶۲۱مین مورد اعدام در جمهوری اسلامی ایران است که ثبت و گزارش می‌شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78707)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-13 06:44:51
@@ -28,7 +159,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-10-13 06:42:37
 
-<img src="https://cdn1.telesco.pe/file/ESBjC6nDUloVRQASBrkquIx7y--6I-wYIIEh0VkSWu5ty7GIsQDrpSBEDF4JC1-63R1sF8YRlUzxwci361vfhTymuRkixypFA9BBkx4ahA-OHzuj0args2XtTZBLVK7j-gb0zcZV_Aksf_-N_SL_LNHDGhhGeJEIh4KfqMgFvEOy9zQLM6DStYV4sfcSHnkhy2YX45cv-Kla8WihA000BRAvhBi9osoNV5EcOdVQbVkz72zt2lRgc9lqTBowMFE-c1yr3DPzbHlQcvz7OEpambVQ84aV38pGiddEfWOI_-1tLJi5m1seAvC0hRpBDqtQsWLJxvdM7K4nnb7jrzAFcw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/n5zx03UCqxg3XcVcZyo-HFs4ljZmya4IUqBnVgar7S9LNvfeKhPOHN2GcqyRXa9awrZlFDaVvSUPCl0pt2XjY-D1glAsdh80GZlBm53wj-UDJRQU_m9jC-wVkauJCaJli0FD5dpZ9Dxgfsf3hIwfVl0jtYaMBaMZaLzTuhCwN9paoU81jYtT7aGUnWcNsJs_vWExGV6I1BZopmt_D2cVUsFL4xFlRMerXW9pt1P2capepIkBWAPCYYmgqh2hsBr43_YfYvK5H19D4SgPDpLHlw80EOTdzQmqRm9XoWPqK7sxFqUNQ2IsIt-0uI4nA449eZT0-bWacG_ok0-1CZ4gNQ.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، گفت جمهوری اسلامی اکنون حتی رهبر و مقام‌های ارشد ندارد و واشینگتن برای مشخص کردن طرف مذاکره در ایران با مشکل روبه‌رو شده است.
 ترامپ گفت: «مشکل همین است. شاید در برخورد با رهبرانشان زیاده‌روی کردیم، چون دیگر اصلا نمی‌دانیم با چه کسی طرف هستیم.»
@@ -48,7 +179,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-12 22:45:40
 
-<img src="https://cdn4.telesco.pe/file/hGV_rl36el1bsFqJt4WMrwzkZ_cL5eXHS5lcw-nVI7KlOE3JoUs4mosT_jThUKErRDdc0w8nhX-7RvQdPEWk1JrAUgk_BUoBP6MN2r0l9_TywTzdaPIGh1kOK7yT-auCOHJXPxooLS0X3udFMl30Ca3b40sFZxOHZXN61wtniW6WkfwmWaGfzrEXUVs6hA-h2a6Je5S4zjyvlQy3EWAAAvgap-ULbET9l-LnqB4EcaxGV2ajOHxeAiaS9JwMlAzz16EmDhzN9Cqpqpbhwu2KzKTeeDuy15H2XX_J7fJPf3jmXRCxF_hAzcuj4xNDGFqSa9lFcNSuWoAJyvSaxaa-CQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Uh6fyLl0xheMi7sokd575z44iNkf47KZgHgrVAoExGDlowe2Y9mE_2vDAB9y2naWTRwpp1EP1fSlW546r7hIJgJQDH3VYaYexR_jjP1dZFyirRhvkbb44o9MgrX-1nCrs8Vg4xq3XgvDjVJ0S1bFDLsJLYInsB3mlI3oTgxA2CfqFEp3qNPuaITIZliYdVCG4IrEQp5ihbw2X53W_na4Hffm9XrgiRL6gjSGTw2vM-5gqqQqpLUHYU93DD9O4ItcZLacBuQgpL3UWK4Itf9g293Bj_SRa1414yfqW72XUnl85J63uxNG41rf4KRmD_ilXTQd48uWGXWbcL2k7dawZA.jpg" width="400"><br>
 
 سخنگوی نیروهای ائتلاف تحت رهبری سعودی اعلام کرد که پدافند هوایی این کشور موفق شده است آتش موشک‌های ورودی از یمن را با موفقیت رهگیری و منهدم کند.
 دوشنبه شب، ۲۰ مهر دقایقی پس از ارسال پیامک هشدار تهدید هوایی به تلفن همراه ساکنان، چندین انفجار مهیب پایتخت عربستان سعودی، ریاض، را لرزاند که به احتمال زیاد ناشی از عملکرد همین موشک‌های رهگیر پدافند در انهدام پرتابه‌ها بوده است. سازمان دفاع مدنی عربستان سعودی حدود ۱۰ دقیقه پس از اعلام وضعیت هشدار، به شهروندان اطلاع داد که خطر رفع شده است.
@@ -65,7 +196,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-12 22:45:24
 
-<img src="https://cdn1.telesco.pe/file/qCBLgebvsf67Tq3n4XwkUZM6WzHpteBUp6IzX4BXQUZigWLkYCfgg_3wViyEllOljNK9BN7mLloPtgNh_701SZcCkcPhXXEwnk1OMmWmjtM9WfiLdHf91XZMNJLfeEgIaVCso8vSKb4n5J48oDG-mX5gD6g7rtOD3JoMGu8e_2y1E4nbk9qQpscVkGNl58DM0paDWQYUajQdPNtH2df8sp4ZLBsiWy6IYPDedT-xb2qEsx1Hjm0KVJtp4Z5afsvUuSMbuejpNcblLAJXOuSQpJzRt_lpgvmPRqzpbT6ojA4RCdQAkXxoBI5g8g74JCAX8TscSGidl_Sbnb-C7iWmqQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/umgm8G3kl85Mec52HhxMu2ZkpgFQiz5x1zwHqHPXOTXXuwrAsyvMaHKpBkhOaEw2jzypdSY6roD5P6uHO-jw1zyuRi65CIBKoXS2L5adfdLOh5ZgYCVzV4zzOhFdRj8O1SSxScTuvemDMg-mZK6IxVLRDe0UOpiMsVZfyskYviZ36bwotejX5kIflpc2PeU68oweQBK-heR2yvh4J5On_q_ik40u_9G2NtjQ3RpptjZMNMmAicYZmAMwVFjMFYgfcXkcMps8L53K8xJ3lPgGJmL8QOgZ4oHhwKe5NrhL9yzr3uYq9iujSJXDvSLCl0FU972TIHs7Hwaa4U4Y1aXeJA.jpg" width="400"><br>
 
 UKMTO:
 مرکز عملیات تجارت دریایی بریتانیا  گزارشی با تأخیر از وقوع حادثه‌ای در تنگه هرمز دریافت کرده است.
@@ -83,7 +214,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-10-12 21:13:59
 
-<img src="https://cdn4.telesco.pe/file/HniOXcDj2Y5u_gZxHm7fAuLNYswXyqsqhtnxTOM0cazUY5rCi0QPwWjVPH76pSZgBkAkxlnHXqPrY486AIlkpdu6Dn7IEKJllElbXEIIUUdPK0ED6R02UIbXGOliowo7UOP_UMSy04M79hoJvqvXyNLlD6ljU7iIDzwJxefO2gXYKyGsXYUpp1lM9gPipydv4KB4o87qxLNO36h1hjaF_zRBs4OZffoPCglzq3CpMShime8uqu8O2k8ueldzAmcSpMBlsBzp-4TuRfviRhjlCt67DBcwKSUDapHGm13o7J-k9DmYprdncyt5tLU-8ZpneehBwSNaXaIb65xo2sn_WQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/JER2lxBAdpCxXJbUKJr9aGOxMbU_Dpc2WvKgcjsKWC6QV7T8xcKxjiQbt4GRYEjF3bYjYA1VtLvW0gTUcQhFQImYOiAznGffUtdzDEciT_dJt7_spvybpNxWRszZd6BnoKwj3hupXGrcKnL_xH3G5Hbn5IFxVIDyElsAcB9O-vRqqNhvcJnNuupkvJAHqozIoDxGB8KSCMB8dAO9K2yAJyH6XU0IExNNN7CTN7uJXdre3ZHyZH_WBVT9PyCiSEZw4L8WuFkvd25S0D3cFYwwwujONxYL6tpEcHf6RVhZz6_7diGDuBMAkdMojWzC98WTvoYBqHMGuGpfPBbF3Ahhyw.jpg" width="400"><br>
 
 وزیران خارجه ایالات متحده، بریتانیا، استرالیا، کانادا و ۲۳ کشور دیگر با انتشار بیانیه‌ای مشترک، فعالیت‌های خصمانه جمهوری اسلامی ایران در خارج از مرزها را به شدت محکوم کردند.
 این بیانیه روز دوشنبه ۲۰ مهر، پس از آن صادر شد که اندی برنهام، نخست‌وزیر بریتانیا، اعلام کرد حادثه امنیتی اخیر در پایگاه هوایی فیرفورد در انگلستان «تقریبا به طور قطع» توسط سپاه پاسداران انقلاب اسلامی هدایت شده است.
@@ -120,7 +251,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-12 18:54:36
 
-<img src="https://cdn1.telesco.pe/file/lAB11-yb6VcHdte7e4oQa9zxUliXobElnqvhfZyuUEW9CvX658ArXLziTh8UHYG0eIEO9in-mBGL556bqnsUhLgRTd2y-CurqwxMdIuUF71da1baYng5YZmYJIxOFxLfjwILKj7KnKeTQDP2_047iQ4JZPWrJlgHIAiJSvO0pQxN8JOA3s7RPWfeM-fgA_S75g4AugaxE8NIKf8go73b3ObV0AJTFp1mPstTafABD7yQCxw2uyNu-3_dwVr2P_OuNU-LaI0NO7PS0LU-MToUM_tm9EE7MnKtkeb2VTb9zhVzh5IN3oozrFXg680JMJBMkP2n-g-wvrgu4KmGX9o0Hw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/oTYMwzkU9WSoemYscVw3eqbQdZGbsc54oIEabIxcNw-Cj5eMKK7XUdAn1_BnjLSU8qSNcSldQXnovrLX3VC3691RAH8ICRxGsx4p06mppOvdy3lYRrsusQnyiKcdpfNKpa8C2Nf6mjJoEX_ENXFqjKxkTyZg21UFds4d8pE6lfFZ-SzI3ebRnMLkDceHxN1sOtEtw7Q760BxdYF7WVhqd9eUEK8zA1t9_oBbNjB1vssisb-7ViPFKPuHHOfVdcRrWvO-hsKOLiyODrDsMb0tRIkvRpmP9InxeSeVrlZBC_9yjdaGLdGmTv3JrxtmO-lWn2gkERenOynNKx84c94zEQ.jpg" width="400"><br>
 
 اندی برنهام، نخست‌وزیر بریتانیا، درباره حادثه پایگاه هوایی فرفورد، دوشنبه ۲۰ مهر گفت که به احتمال زیاد این اقدام در ایران هماهنگ شده و به دستور سپاه پاسداران انجام شده است.
 نخست‌وزیر بریتانیا در واکنش به این حادثه اعلام کرد که دولت این کشور تحریم‌های بیشتری علیه جمهوری اسلامی اعمال خواهد کرد.
@@ -139,7 +270,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-12 17:22:08
 
-<img src="https://cdn4.telesco.pe/file/iHLaaSfcAbNBwz8NfHxq3EG_NEpVHZHk8Kl_1EZhzzWdPuisyNpNpUKESyEiUZY3KByRHxsEIc-ckUbggZExGBNpdWY9iefL9JR5kdwsnKxCrRLz71OwYUKL0OHcsOFyDkWWAs-OMU3-UBDrte7X99P7KuCJSth2VzMPu1tSg2EfdrcAAPaUYOVJThNIU9-gC8ujbBtwKJLKfwa4_OgH2sY65vBSERiqC960nsMHT8hI-JQC3dLuxbZ8HrRsqKAaeCMB3nkBdcXnkTnOMqkVMSULjcs_Qvcys-xi181i4hiPs2Xo_vDvx1Z5joj4bs-GFUGKT3epoRLE1zCyuCyA6g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/P3yNuPgzHEDN0EbcRb6yFLdsdjUc_FtycvJXEPm4a4eDVCwvBHQAg9U88qqOcchHJ80oexK3XRcDdArX8RavYAD-WRjdIy7nh-BEB85FhtTfM21aeC_kdYEMbG5ijVSXvocG8jUqzhTwfGSVj5iqcd4wDCvMoXAoNLJVJHLq1gYXxlaY8bsK4YFHiuGu3OFSB0l3ShdFRtstozA8HRL-vtEh5ruEK6FTuMfTUxMmvDkZK5gC0wVAbWg6EIOxdhd9B6AitRt3-SRGdqKpKT2jJk6pP7eybuUHMadOX2DG1GbWCHzg7yPJjiwJx4oBQfNay51OQ2CyM5CdvEJ0sfjtWg.jpg" width="400"><br>
 
 خبرگزاری رویترز دوشنبه ۲۰ مهر گزارش داد در پی حملات حوثی‌های مورد حمایت جمهوری اسلامی به فرودگاه ریاض، چند شرکت هواپیمایی بین‌المللی پروازهای خود به عربستان سعودی را لغو یا تعلیق کرده‌اند.
 بر اساس این گزارش، ایرفرانس-کی‌ال‌ام تعلیق پروازهای رفت‌وبرگشت ریاض را تا ۹ آبان تمدید کرده و گروه لوفت‌هانزا نیز تمامی پروازهای خود به این شهر را تا ۲۴ مهر لغو کرده است.
@@ -157,7 +288,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-12 17:21:39
 
-<img src="https://cdn1.telesco.pe/file/Rz56sdKT6GnTP4PzPtAvgaixfZz7wQWsEUD_lauBADWKd9RncuGPN6jaguHh2xfbqf3Zp73vp49NQ9-HY1cdhceJMpfOiz8TtiJ_swjLsd4Z1Yw1yh2eR0vOdSgcJUZXr9EEMOzDpp5YfGhivoKskX0jowJErv6TMEEJr50Atmmx0C5kGFQQnc6CxiI5IIQiIwctRmkRrxs5vwwYL0rIXJPH1E8FnHgRGyOfE59NFFYpnldF9b49pZLkM1uSJiriKpVOHp4n1-b5ttY0gS1nuXSiM3fVCgrhMo6nlWEKR8n7uWQL427kEewsc5jn2vQdR48MzBEJb18IQ1tIAqfhvA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pp7KOaaBYCoHQ8yggz7YBYy6zBODtydWLyYpk2Cz0ol-7Wo9-vpQl1tIgNXb7_ZKFJOJbbrpHDlTm6hpnGkZoB2imIauNWDNc-UmVbpu8925KpJj8WhquaA7XR1ZSXjpZIhtuhZrXw5L67TKMGbnkKdPBxif5GCb_E_Lcs377HwDDhsRhoyv7y2eak4rfso2kaxzXe71joYcY7wfHiEIFVh6PlwDh1S2t-h9e93IehdKNOIlPGTGvRJTJKLk4AOrzDqhdbrm8gPHpF7ijPnfu0Pokvtl-shl-9cisOTLu3iyBpj56HEm5eqDK38swsTVFAFejUk_uJ0kUrUtDPwd1g.jpg" width="400"><br>
 
 قوه قضائیه جمهوری اسلامی می‌گوید که روز دوشنبه یک «عضو» گروه جیش‌العدل را اعدام کرده است.
 میزان، خبرگزاری قوه قضائیه، می‌گوید که عمر درستاران به اتهام «بغی» (قیام مسلحانه) و عضویت در جیش‌العدل محاکمه و به اعدام محکوم شده بود.
@@ -202,7 +333,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-11 19:42:13
 
-<img src="https://cdn4.telesco.pe/file/rW60eqeROtZc-JcwW3TIllBwGq8WPHmg3b-gtC8WkNFSCe9b19mGJglxkSrE24aWKWXwsfoHVXLl3zP0X0NjbRrHlDL1Hs45OfNX-crCsXrKwnBl9LUZY67bPMvm2Z_TH1hHwjq5-oZWC6wQtGzoWwRGDOrLMX13g99TbNGxT-nqcAZjC1QEG68XDiSmFaTAhxp_quLKDsA8pFwUrgskXvnG8JH_PYXsBk-Zv-14heKKzVvdX-LfF2Cyz0csmeXv12Whpakbm7hX5z7izA9cc9OHa3B0giYOnp7DlAxhjrDV1BR1JN-vxz0gKx-kgf7gf8lRnG_q2991Pm0nZIj4HA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/gCexReAXD9cvZk9l33zDngIqgmHkeT_JfksoZJxervjRxRITlyLhcKwxcGLxi-Oslp1KK0POAikWl0W-Ys3jbF3F7Z0YG9RdqKRuDRsG_a-Jh-mWaC_CtKuresR9RBp-9zbml6xeL8WiQlLkpEqtHS3fTgaXyoXibLZlI6VwAX2QSOFyg0arjJ7VmrH1EoM547rQRMjYu4OkjBCV82wiz4PKEIPYn1pQqNR5xYdUICNUrXswQXgSUbFEvgrwFftYEBohgcnKztInrfSSvlT9ncghVG9y-OUs7cUGbva-23f7HNdqQWPSM07yBLY0HE7VkfMFzU8cJDGFcfdPCyw7-A.jpg" width="400"><br>
 
 فرودگاه ریاض روز یکشنبه ۱۹ مهر بار دیگر هدف قرار گرفت.
 ائتلاف به رهبری عربستان سعودی در یمن اعلام کرد که یک «پرتابه ناشناس» فرودگاه بین‌المللی ریاض را هدف قرار داده است.
@@ -214,131 +345,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78694)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-11 18:03:29
-
-<img src="https://cdn1.telesco.pe/file/KrOggzitj7fl58uN3q_0aDqWyREpB7aS2cqr_J8URl0UVscWTGIOppXNpsPzXkPGvxEPd7mFA3W2vgHJhefI6MiJjhlJMvPQoCOhdlLAhPkHKHohCdjGQWeeLTYJNNkI-fiPSg1eDE5QYd4SkjYlLxRaN2BWFHU5OSI3CIPM7YVrrBXN8MfHFH8vtf-0vofymXcax-HyCpui9XJhatOXW2hWIXVFEN7s0CIoWxe--jjtWH8hZqeUUx1lLtmZqFRZhbSFm9QNujaLPY7IwOYJVYy2uZyd2wErTxUP4RZhPRVG-AXvif9Ir0IikXjkpOclsFABPu9p7jrnu8_KdLVmNA.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا
-گزارش
-کرده است که یک نفتکش در حال عبور از تنگه هرمز مورد اصابت یک پرتابه ناشناس قرار گرفته است.
-براساس این گزارش‌ها این نفتکش در حال خروج از تنگه هرمز بوده و «از ناحیه سمت چپ» مورد اصابت قرار گرفته است.
-مرکز عملیات تجارت دریایی بریتانیا همچنین گفته این اصابت به کشتی آسیب رسانده، اما تمامی خدمه در سلامت کامل هستند و هیچ‌گونه پیامد زیست‌محیطی نیز گزارش نشده است.
-@
-VahidHeadline
-خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از منابع خبری گزارش داد که یک کشتی در مسیر جنوبی تنگه هرمز بر اثر اصابت یک پرتابه دچار آتش‌سوزی شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78692)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-11 16:13:44
-
-<img src="https://cdn4.telesco.pe/file/rra_4y1CPbQUitKo2I5USU8wIvgl8DPYxmWOvpJKdFwlP3wjAvpM_uNA7OIHhwzzxNnX73k2aTVKtOUvMqUZFvJSXgMYldPKhL84PXBwrln_uiYiWoNuPH8VhUqemW40YoUjyDIejdA4-bhhZBZambWyGWArmPzKw7IqlwJqX5mpl42tRqtKVxqjpTdiHmfCjBeWvBgdm3jbpKzYNaMZCGaqQwuyaw-xwgx8ON0vmMCGXcO9Skyu9FIY6yc1WF5p8PR642pD61pIqW9tcDlHWnXA5bnxs0QDZC12GlecxpNouxuApq0jKjgsME7GT8b41cv25f6LvZWw7LZrkpT6FA.jpg" width="400"><br>
-
-شهرزاد شهبازی، از وکلای متهمان پرونده «میدان علیخانی اصفهان» و وکیل علیرضا سپاهی، با رد روایت رسانه‌های حکومتی اعلام کرده است اتهام قتل ماموران انتظامی به هیچ‌یک از متهمان این پرونده تفهیم نشده و دادگاه نیز به این اتهام رسیدگی نکرده است. تاکنون پنج نفر از متهمان این پرونده اعدام شده‌اند و هفت نفر دیگر در خطر اعدام قرار دارند.
-اظهارات این وکیل در واکنش به انتشار مصاحبه‌ای در رسانه‌های حکومتی مطرح شده است که در آن زنی، معرفی‌شده به‌عنوان همسر یکی از مأموران کشته‌شده، متهمان را به قتل و سوزاندن ماموران متهم می‌کند. انتشار این مصاحبه پس از افزایش انتقادها از اجرای احکام اعدام، به‌ویژه اعدام علیرضا سپاهی، صورت گرفته است.
-شهبازی همچنین حضور این زن در محل اجرای اعدام‌ها را زیر سوال برده و پرسیده است وقتی موضوع پرونده قصاص و حق شخصی نبوده، بر چه مبنایی به او اجازه حضور در محل اجرای حکم داده شده است.
-شهبازی روز شنبه ۱۸ مهر ۱۴۰۵ در پیامی در اینستاگرام نوشت: «به هیچ عنوان اتهام قتل برای هیچ‌یک از متهمان پرونده میدان علیخانی و میدان شهدا تفهیم نشده است.»
-او تأکید کرد موضوع «سوزاندن ماموران در راستای قتل عمد» نه در دادگاه رسیدگی شده و نه از اتهام‌های مطرح‌شده در رای بوده است.
-شهبازی علت ورود نکردن دادگاه انقلاب به موضوع قتل را نداشتن صلاحیت رسیدگی به این اتهام عنوان کرده است.
-پرونده میدان علیخانی پس از کشته‌شدن چهار مامور یگان ویژه در جریان اعتراضات ۱۸ دی ۱۴۰۴ در اصفهان تشکیل شد. رسانه‌های حکومتی پیش‌تر ویدیوهایی از اعترافات متهمان در بازجویی‌ها، بازسازی صحنه و جلسات محاکمه در شعبه اول دادگاه انقلاب اصفهان منتشر کرده‌اند؛ اعترافاتی که نهادهای حقوق‌بشری آن‌ها را اجباری و فاقد اعتبار می‌دانند.
-علیرضا سپاهی بامداد دوشنبه ۱۳ مهر اعدام شد. مای ساتو، گزارشگر ویژه سازمان ملل در امور حقوق بشر ایران، در واکنش به اجرای حکم، از نگرانی‌های جدی درباره شکنجه متهمان و رعایت‌نشدن دادرسی عادلانه در این پرونده خبر داده بود. به گفته ساتو، حکم در حالی اجرا شد که وکیل سپاهی همچنان برای رسیدگی دوباره به پرونده تلاش می‌کرد.
-سپاهی پیش‌تر نیز در آستانه اعدام در ملأعام قرار گرفته بود، اما پس از حمله قلبی به بیمارستان منتقل شد. در همان شب، شهروندان برای جلوگیری از اجرای احکام تا سپیده‌دم در میدان علیخانی ماندند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78691)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-11 16:11:04
-
-<img src="https://cdn4.telesco.pe/file/SEo90YGyZUdzbnSg-1c5tgWyBlM-DZ_MF2FazYhadYD2IZ5-CvG5iKdXH3-oH-0ktGI9oZiW0dYjLlDY9HzUVc7GjC3WkF_igqk4tBgqPRobZk9GXLDcjvG1yjbja9prZ5NQxHKDTGnzlVTHx-0fva9lhvvO37Qn_fd7gTVexj4YVw7hO3kDcbd9xj8OwfSiN1g5FU9KXtzSm52k1AqZ6ecSfb6UozbaNA9gldbcX51f9SGDHFwBBAnFL5-TcAuq80XZT9NesH5YKf9_RNFk0aMozomtvquXSNMzv0avnIxccMPOyZJhIFn4yiMSr9LLG7s3Xoppf-AsdRwra1Tyyw.jpg" width="400"><br>
-
-سازمان مدیریت بحران ایران اعلام کرد در سیلاب و رعد و برق پنج استان کشور هفت نفر جان باختند و دو نفر مفقود شدند.
-به اعلام این سازمان، دو مفقود در استان گلستان ناپدید شده‌اند.
-در شهرستان سوادکوه شمالی استان مازندران دو پل کاملاً از بین رفت. آب‌گرفتگی در معابر و خانه‌های این شهرستان گزارش شد و شماری خودرو در آب ماندند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78690)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-11 16:10:37
-
-<img src="https://cdn1.telesco.pe/file/CnDfLkbfd_Yt58gts6j_rAd6rh1hgIl12gn-Xzs5uF-H97zfpBcDjW8MQcYGEQd83xd7XX1lpUV-QOaHFfyw29oKn_EJueOGtzTltNMB6VR-4-JBJUfN3KwDa0jPLkOouz_kj_fzy5ykM3ZBi8ii53J80eU376WtN506-iqkwfNRPYcGS6myAykS7sW98bJVXEE4EHid2OnN7h2Q23FqbIWX_SuAybkovia7qDRnUB5R2V16K4F8cfxeEGVUVhPIZlu4XASKLxyWUjkkSri7XsMO79wrTjzTcYxo-ya0x4b1vkBYev18GGKLy137WotjrcTcUw2Ue7y2IVWFh3GhPA.jpg" width="400"><br>
-
-قوه قضائیه جمهوری اسلامی از اعدام یک مرد به اتهام قتل یک مامور نیروی انتظامی در بندرعباس خبر داد.
-این مامور نیروی انتظامی رضا احترامی و مأمور یگان امداد شهرستان بندرعباس معرفی شده است.
-متهم نیز پیش‌تر با نام «دانیال» معرفی شده و ادعا شده بود که این قتل چهار سال پیش هنگام درگیری با قاچاقچیان سوخت، بر اثر زیر گرفته شدن با خودرویی که مرد اعدام‌شده رانندگی آن را بر عهده داشت، روی داد.
-شنبه نیز دستگاه قضایی جمهوری اسلامی از اعدام جابر خسروی، زندانی محکوم به قصاص در پرونده قتل یک مأمور انتظامی خبر داد.
-این پرونده به حادثه‌ای در بیمارستان ولایت دامغان در ۱۱ شهریور ۱۴۰۱ بازمی‌گردد؛ حادثه‌ای که بنا بر ادعای مقام‌های قضایی، در جریان آن سلاح مأمور انتظامی گرفته شد و او بر اثر اصابت دو گلوله جان خود را از دست داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78689)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-11 03:09:57
-
-<img src="https://cdn1.telesco.pe/file/igVb1hd6nDClyK75KoZJshB_7-9juAF51QkWDt__9yWRJ60jebZ-DjVfcyv7jO_HqetHrZQbcYnu95jFNVLgrnAox1-JlTEPMWpZ3BhnqHfQC-lo0ARGZWXhXvgqNbiDIOyb1Yuoi_yNG_WhSIfTDwKLlYqYsZ6IFksmOF1oymK1UcGe1p-7ANk4E0t0ZR9eExyG7UrZmJ5deeYJwa2-86iTXnaW-1BiTJiLIqoz48RPrWA3SZTCpr3h_kEiIUPPBtknB-xnuSXrRvOODXrjccvyZdaLjXtWoiYr0_kgxMtC_BBKZbxp8wJIvzL9wO8f2yHA1w4Vk0IMyclBzDRK0A.jpg" width="400"><br>
-
-سازمان هواپیمایی کشوری عربستان سعودی در بیانیه‌ای گفت حمله روز شنبه ۱۸ مهر به فرودگاه بین‌المللی ملک خالد در ریاض، ۱۲ کشته و ۳۰۹ زخمی بر جای گذاشته است.
-بر اساس این بیانیه که بامداد یکشنبه ۱۹ مهر صادر شد، چهار نفر از کشته‌شدگان شهروند عربستان سعودی و هشت نفر دیگر اتباع خارجی، شامل دو بنگلادشی، یک آمریکایی، یک مصری، یک اردنی، یک سوری، یک فلسطینی و یک سودانی هستند.
-این سازمان همچنین اعلام کرد که شرایط سلامتی شماری از زخمی‌ها وخیم است.
-به گفته سازمان هواپیمایی کشوری عربستان سعودی، تمامی مجروحان در چندین بیمارستان تحت مراقبت‌های پزشکی لازم قرار دارند.
-در این بیانیه همچنین آمده است که حمله به فرودگاه بین‌المللی ملک خالد خسارات مالی و مادی نیز به همراه داشته و ارزیابی میزان این خسارات همچنان ادامه دارد.
-حمله روز شنبه سومین حمله این هفته شورشیان حوثی مورد حمایت جمهوری اسلامی در یمن به فرودگاه بین‌المللی ریاض بود. شورشیان حوثی مسئولیت حمله را بر عهده گرفتند. حوثی‌ها همسو با تلاش‌های جمهوری اسلامی برای ناامن کردن تنگه هرمز، سعی کرده‌اند به کشتی‌ها در تنگه باب‌المندب که دریای سرخ را به خلیج عدن و اقیانوس هند متصل می‌کند و یک تنگه حیاتی به‌شمار می‌رود حمله کنند.
-طبق گزارش‌ها روز شنبه، مسیر تمامی پروازها از ریاض تغییر داده شد و فعالیت‌های فرودگاه به‌طور موقت متوقف شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78688)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-11 01:48:29
-
-<img src="https://cdn1.telesco.pe/file/LwIMP1cFrPfZRVt7f4FquhEEB64mxVEb9Ds67eK6vqlQjP6ztplusCIeTCVlaUeIfU2vDKuKjZEoEWY7bRsCN8cMTV1PInV1E15W1YhzwZr9CElK8CfCMn2vp00I-dCQLQ-pYhEPYoSlj0pcMIsLzKdx9UdtwaGxd-XvE-OdHBAmIZsLo6WXMkvlKUCJL5wiM00sgR0feKMFS6a5CicNqvnCcdi91saNmK-endvQiNUdGoRZl8No9Nb4v9-LSxbCLK2T0-bmlU374NMkMRwoQfS9XEEw1OLFORYa7rRKFXfwuaGK25cUtCh0JMedOBtLc2Vr5BYINxmJ48o2IS8fMw.jpg" width="400"><br>
-
-UKMTO:
-سازمان عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است.
-ناخدای یک نفتکش که در حال خروج از تنگه هرمز بوده، گزارش داده است که یک پرتابه ناشناس به سمت چپ کشتی برخورد کرده و باعث آتش‌سوزی در آن شده است.
-بر اساس گزارش‌ها، خدمه کشتی در سلامت هستند. در زمان انتشار این گزارش، میزان خسارات و پیامدهای زیست‌محیطی حادثه مشخص نیست.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78687)
 
 ---
 
