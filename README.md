@@ -3,8 +3,113 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-14 11:43:11 </h5>
+<h5> 🟢 Updated at: 2026-10-14 17:42:31 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-14 16:45:34
+
+
+
+نیروی دریایی سپاه پاسداران می‌گوید یک کشتی کانتینربر صبح چهارشنبه ۲۲ مهر در آب‌های جنوبی تنگه هرمز با مین دریایی برخورد کرد، آتش گرفت و غرق شد.
+روابط عمومی این نهاد نظامی در بیانیه‌ای کشتی را «متخلف» خواند و گفت قصد داشته از «مسیر غیرمجاز و پرخطر» تنگه عبور کند. سپاه همچنین اعلام کرد کشتی بیش از ۲۵۰۰ کانتینر بار داشته است.
+@
+VahidHeadline
+منابع امنیت دریایی چهارشنبه ۲۲ مهر به رویترز گفتند یک کشتی کانتینربر پس هدف قرار گرفتن در نزدیکی تنگه هرمز غرق شده و یک کشتی فله‌بر دیگر که در حمله‌ای پیشین آسیب دیده بود، در حال غرق شدن است.
+به گفته این منابع، کشتی کانتینربر «جی‌اف‌اس پراید» با پرچم سنگاپور و ظرفیت حمل دو هزار و ۸۲۴ کانتینر ۲۰ فوتی غرق شده است.
+سازمان آب‌نگاری پاکستان در هشداری دریانوردی اعلام کرد: «گزارش شده کشتی تجاری جی‌اف‌اس پراید غرق شده و کانتینرهای آن روی آب شناور هستند.» این سازمان به کشتی‌های عبوری درباره خطرات احتمالی هشدار داد.
+بر اساس داده‌های سازمان بین‌المللی دریانوردی وابسته به سازمان ملل متحد، جی‌اف‌اس پراید دومین کشتی است که از زمان آغاز جنگ آمریکا و جمهوری اسلامی غرق شده است.
+در حادثه‌ای جداگانه، منابع امنیت دریایی اعلام کردند کشتی فله‌بر «کیپ دائو» با پرچم آنتیگوا و باربودا که اول مهر هدف اصابت پرتابه قرار گرفته بود، در نزدیکی تنگه هرمز در حال غرق شدن است.
+شرکت بریتانیایی مدیریت ریسک دریایی «ونگارد» نیز اعلام کرد تلاش‌ها برای نجات این کشتی موفقیت‌آمیز نبوده است.
+رویترز همچنین به نقل از دو مقام ارشد جمهوری اسلامی گزارش داد که حکومت ایران برای هدف قرار دادن کشتی‌های عبوری از تنگه هرمز «از تاکتیک‌های جدید استفاده می‌کند تا قیمت نفت را بالا نگه دارد و بر انتخابات میان‌دوره‌ای آمریکا تاثیر بگذارد».
+@
+VahidOnLive
+مرکز عملیات تجارت دریایی بریتانیا، یوکی‌ام‌تی‌او، روز چهارشنبه ۲۲ مهر اعلام کرد یک کشتی کانتینربر ۵۰ هزار تنی و یک شناور ۱۹ هزار تنی با «پرتابه‌ای ناشناس» هدف قرار گرفتند، اما پس از وارد آمدن خسارت جزئی به مسیر خود ادامه دادند.
+این نهاد پیشتر از حمله به یک نفتکش و یک کشتی کانتینربر دیگر در روز سه‌شنبه خبر داده بود، اما درباره خسارت یا تلفات احتمالی آنها جزئیاتی ارائه نکرد.
+شرکت امنیت دریایی ونگارد نیز اعلام کرد چهار کشتی در این حملات هدف قرار گرفته‌اند.
+به گفته این شرکت، کشتی کانتینربر «جی‌اف‌اس پراید» غرق شده و سرنوشت نفتکش «آلفونسو» هنوز مشخص نیست، در حالی که دو کشتی دیگر به مسیر خود ادامه داده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78728)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-14 16:38:49
+
+<img src="https://cdn4.telesco.pe/file/QxRXcJEg8RzeRlhSdLlgs3-k_I72gx3Y9ShRvNioN-7gwVIw5Wd_F7AqIkaaYJf0CA5vbRhRetjEyygeAVzAKVFKM6NVzfSwtZ0eYIE0UFFfbDGMiueMX1nuEauZfBfgqH2QZNgE8cSlOTNpa9aypQcUubsNBsx5pYT2zaZtd5Yv51oCPjldm635aB6Z9zG1EKRrRVNkYKYPWXzGRs8n5mSux30QPb-OUpfamXI0XpS2pKTAyPfQw61bLakltx3KK2aLyV1gm7tMH4j7yprXnVP7GaKEbtzxV0O9zHZTedibzt6z74YmHAh7tuKYRQhE2hw9oYEytCisB30D9iguBw.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست وزیر اسرائیل روز چهارشنبه ۲۲ مهرماه و در پاسخ به پرسش خبرنگار رادیو ارتش اسرائیل درباره گزارش‌های ناظر بر احتمال حمله قریب‌الوقوع آمریکا یا اسرائیل به ایران پیش از انتخابات اسرائیل گفت: «به نظر من، این [اقدام] برای ما مناسب نیست.»
+به گزارش تایمز اسرائیل، نتانیاهو با اشاره به  برنامه خود در صورت پیروزی دوباره در انتخابات گفت: «: «در دو سال آینده، حماس را کاملا نابود خواهیم کرد، حزب‌الله را به‌طور کامل از بین خواهیم برد و حکومت ایران را سرنگون خواهیم کرد.»
+تایمز اسرائیل با اشاره به دو جنگ پیشین اسرائیل و آمریکا با ایران نوشته است «در گذشته، اسرائیل و ایالات متحده تلاش کرده بودند تا احتمال حمله به ایران را کم‌اهمیت جلوه دهند تا جمهوری اسلامی را غافلگیر کنند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78727)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-14 16:37:23
+
+<img src="https://cdn4.telesco.pe/file/uUBd2lqrGPC8IDsPR6JCny4NfbCOJoM1Y6i9E0JB5tzxaqfcCCIg-EqICHru3cm0qWdzon9w8A-rDcrWrhygI05-SKuIgAFJ2I-RYFXB4JsmBP2JjADavHQJZvYdKah7o4Kw2cSPyOHJfrNFFQrZcA2UFpT6VwIBq9OxutYQQW8Ad_NiUlkTkRPLgGFMGio0rAKEuBPWTQsD7EhfII09IZ4JsHS0hq_J1hz7jjntCjJmCHzA9smOqx5SZC54Zhzec19QiwBAaqaP5yJREEMDc6SpfTRRbyd02UcyjmrjrEQbEl8xpbZUfZfW7zlWZoS0CgLpygmbL-3PCmQblc97Mg.jpg" width="400"><br>
+
+استانداری هرمزگان تأیید کرد در حادثه‌ای مرتبط با یک پهپاد ناشناس در آب‌های سیریک سه نفر مصدوم شده‌اند.
+منابع محلی خبر داده‌اند یک شناور صیادی در محدوده صیدگاه سیریک هدف قرار گرفته و یک قایق صیادی مصدومان را به ساحل منتقل می‌کند.
+رویترز امروز در گزارشی اختصاصی نوشت یک مقام نظامی آمریکا گفته است سپاه پاسداران پس از نابودی بخش بزرگی از توان رادار جمهوری اسلامی، از دیده‌بان‌های بی‌سلاح در قایق‌های کوچک و لنج‌ها برای شناسایی هدف، از جمله ناوهای آمریکایی، استفاده می‌کند.
+به گفته همین مقام، ارتش آمریکا هفته گذشته تشخیص داد دیده‌بان‌هایی از یک لنج هدف‌ها را به سپاه گزارش می‌دهند. نیروهای آمریکایی به سرنشینان دستور ترک شناور دادند و لنج را نابود کردند و تلفاتی گزارش نشد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78726)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-14 16:37:05
+
+<img src="https://cdn4.telesco.pe/file/MwGaq_yuJmJ42NKLCrzP8Qo8r_V115e14L0O6cy3wSsu8PIQj0qB0fA66thzhyhFnV11H1sfSkHJHW_WI8YUis6kHrbE_bKXuztn5t5uBXr4BLNWNLKw95aSR8P8IILA929fK6QbU1xhxK7kXM1dUlE0vku2HAMLREwM_Wugx1-W3HE5GMLvVJI4gtDtGk2Z5CasyBtdNWpIYsgDvCRjTBksEwdDvX6BI1NhpiomfChRV5wKOeY6sgfGzgpNCfWSGhnUtFQWQKkx049RiduzM9piSdpAcF7L0lCKwr8N13d-SXLqJHlM4brsFL85c27tNbqNmK8UoXjk-gvwM1tCMQ.jpg" width="400"><br>
+
+مقام‌های استانداری سیستان و بلوچستان روز چهارشنبه، ۲۲ مهرماه از کشته شدن یک فرمانده بسیج زنان و یک مامور نیروی انتظامی در دو حمله جداگانه در شهرستان مهرستان خبر دادند.
+به گزارش خبرگزاری فارس، وابسته به سپاه پاسداران، افسانه عقیلا، فرمانده یکی از حوزه‌های بسیج زنان شهرستان مهرستان، در پی تیراندازی مقابل منزلش به قتل رسید.
+دقایقی پیش از اعلام این خبر، مرکز اطلاع‌رسانی پلیس سیستان و بلوچستان اعلام کرده بود که افراد ناشناس به خودروی نیروی انتظامی در شهرستان مهرستان، واقع در جنوب شرقی استان سیستان و بلوچستان، حمله کردند.
+به گفته مقام‌های محلی، محمدعلی شهریاری، مامور نیروی انتظامی، در جریان این حمله کشته شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78725)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-14 16:36:09
+
+<img src="https://cdn1.telesco.pe/file/jmA7UqQNhIQPypDxz3PY6yInS0_gzmavYgxO3ShydcE_g3eAe_KovtHiRArncjeVGejz3SMaivaWVZQmgImcXRr_LPysC5TLo3EkFe2vtIA2pNveLwLLn0qmHtlbjqsFUuiULV_eiCQFvJhR_QIpGDVJQAJ8p-0Tj_oglxPkiWA9yFKlpK70NDM86hCHx0sKccw5nLzvkJLsOyBv9FfFqhWJVHYUvoO4EGzX_ttI5LAAOobDg4Sfh-Vk4knfbrQnEsdXb1XpglqoZW0p5aT50daWBhlIfRmT6XxjpR6myUxQ6zivkYCYiy0qW6YCQ9ri831xBjUo87aBToLJmV-R1A.jpg" width="400"><br>
+
+فرمانده انتظامی دهلران، اعلام کرد که یک مرد ۵۷ ساله با استفاده از سلاح گرم، همسر و سه فرزند خود را به قتل رسانده و سپس به زندگی خود پایان داده است.
+بر اساس گزارش‌ها، این فرد محمد محمدی نام داشته است و قربانیان همسر او، دختر ۱۳ ساله و دو فرزند دوقلوی ۹ ساله بوده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78724)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-14 08:41:18
@@ -123,7 +228,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-10-13 16:13:47
 
-<img src="https://cdn4.telesco.pe/file/BIonM0TEUt5PtSZGctf_GxElZttuNS-XxYLz387QbvQBCt17pBC2i08uGiy1Lzyyr8fVbO_AfMnEsn3edUgJVixFc5tZF-zEoaOCvhiXv5sYFx-baXp0Pq7IJB_SHVBbJYO8oLHQ88GkOMAznSBpiuNyTMisKYUd9ozh0dhlAU7h9JsrmfkN0cluSyzATudOxA0tpIZX4HlkyFFm2RVmlJE08mhRJRvV_1fHDh4msmcw5_PzyO4FlS1Z2zDLTSsVk6115JWVJas2eExHjd1uswRQ4983YhYfXWVP-jlf6GQ5M9NH1ps6CeL3XZZ5AzSj_4fRtIekJCCJHyvH9GvSgA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OF1JOCZ0IQFN7_GLYuYhOj76eDEcW49uym6ZltiyNYveBRWfKlnod-OxgBPmS-t47j2E8_DU3-GzdTkKkIfES8xzhCkmmELgjFNNEmYtSQwODW0U1WlGvJmV4aYrDSYcxvvfM1fAzYYh4wcV6NSEOsJ7hf_Q0uOyOavTqYVAq0ryyOjNv-xUvAtaoqB4VB0ldRrnFAlt4gh9-zdq_qZwOErqryWv1FwMR9HaHgfPzo92LDjx2cMpz6_snG8LlQ-is-Q56NItu9p8Hqe6_xQgrbl_0CvmA7hU1VlQ-5h1pNWOOYZ9C3JtDlf7AkpQwGFCIJlrx4J2OEDi-MdgwheH2Q.jpg" width="400"><br>
 
 مسعود پزشکیان، رئیس‌جمهوری اسلامی و رئیس شورای عالی انقلاب فرهنگی، مصوبه اختصاص سهمیه به داوطلبان کنکور آسیب‌دیده از جنگ‌های ۱۲ و ۴۰ روزه را برای اجرا ابلاغ کرد. بر اساس این مصوبه، داوطلبانی که در جریان این جنگ‌ها یا حوادث پس از آن، محل سکونت خود را از دست داده‌اند، در صورت احراز شرایط مشخص، به مدت دو سال مشمول سهمیه ۵ درصدی ایثارگران خواهند شد.
 بر اساس متن مصوبه شورای عالی انقلاب فرهنگی، این تسهیلات شامل داوطلبان ورود به دانشگاه‌ها و مراکز آموزش عالی می‌شود که ساختمان محل سکونتشان در جریان جنگ‌های ۱۲ روزه، ۴۰ روزه یا حوادث پس از آن، تا زمان برگزاری آزمون، تخریب شده و دیگر امکان سکونت در آن وجود نداشته باشد.
@@ -142,7 +247,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-13 16:13:09
 
-<img src="https://cdn4.telesco.pe/file/QKLsLyP38MrAKELsyVd5iyhHsxmrmGkXWrjHiaEf5YC2VpGGyhHXK3f0ZPaWBxaKhMhOv9oAwgKPtxkwrHX1zZb95SdVIS3PnD5Kfju8o71yJRvkJLRAtLYcvOX62Norjs7UlyBKU9dlhVyfJ6vMeDxPEb3VJxfDzrup9pG2d6w1513Ed7VeX1BLfni4Ll0ug0N20yrPdYIWKPSjKO9sxFrVEpzZMZetyMV1chTexDX59KNPHp9R-8LL5d46Ww-hxWjFzNWF2j0l3HEhQ8Kx2GSQFu9KqIZ0O7kbVHUu7daLceh6OZn9K2lfIwTa31yx0lm8ovoemF7Ag5TZ-Tnfkw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XxK8ciEiB8QjECGrh5AkFB_HG-UajkyhXeiIQF228Qtzik5ERayf8DxaNnFBR6n0mQ2Qv0PsAewzRre9XvP4ZsSrw5np-im-XmlMD8dj2_eeXL-o-F0J81yLmeG6Kl3oQtlIETNcC0l_dsqhYoGZSreISG5deKBkb5TeponZ87gmN_HvnLE_52SWGbj1cheFIVYvzX7ufVO0US4kEwblwbLbkH5a2GMzdu7ycXQiPfwxRKfy1q5xvGzLL2ZyS_eEgud1gmZMHNudujHfftD9SeuGyaa9jYvCP-97ZnE91MrX8CjEsEt1B3fMHTj3hqUl-AgG_iYJkq3i29BakigpuQ.jpg" width="400"><br>
 
 سازمان عفو بین‌الملل در بیانیه‌ای تازه که روز سه‌شنبه، ۲۱ مهرماه، منتشر شد تأکید کرد که جمهوری اسلامی از مجازات اعدام به عنوان ابزاری برای «بالا بردن هزینه اعتراض... و ارعاب» مردم استفاده می‌کند.
 این سازمان حقوق بشری در بیانیه خود از اعدام پنج معترض دی‌ماه ۱۴۰۴ تنها در عرض یک هفته به عنوان گواهی برای این مدعا یاد کرده است.
@@ -160,7 +265,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-13 16:12:24
 
-<img src="https://cdn4.telesco.pe/file/rAkpIOLYDB8qv2J0yylsY3XqYZ5nnNJ1ATf3_YJiA0Z49oyd1cbf64flEok2lRGTkGEFouF1bTg84s__pgjWFpZgvCoeDMP9OtSIZCmGGrcqyEDafu8STM4sL2qu4xN1190Jmo-O-n0en0Ua3sezKF5BKBAwipW_YW3-ljCs2DL88SB2ZoaGVUfhojVprXNw4hzCTrnv-oTbc_OjMQpLbC3BOmaW4c8BF27BogHMTWwYw8jWJXdH3aERvgzM77XtVaAGELJNe-o18-lAMfhJCUc6m_ISEw-l-elo5RK8-1cPPhiTOLsV_jcir2QK4k-1KQt5-UCkt3swVO7vygBTyQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PUlvvdivnsYk0Vlku3rBYl3ImbX93-2_Gy0HaX4gsgLomT1GpUdckWw_WkrtTHEi2HUzJGFdEg5qgkuGTk5-sOd_TOutuOvyF5aBroZT5q5hkM0YIAs9KSGWgOcSVtoJNSHjd1pAcchGId-p_RaWDjmlE18zuOi-43j6nEW5eUdE6ZSxR_Eax8A64st6YeTwen3Quz4VU-XFZ6xBDwc5a6jylTavuJe2YMpO-ztJKNTmmLRCLbTB6UTuq8BoZElSjOvoCETuQYFq_VsdMMOEECUEAnyF57XiSGAtLPb_DP5MrXfeHqTQwSF_cRuO5bspDIk4iJ8YvE1HH0l2v44TCg.jpg" width="400"><br>
 
 وال‌استریت ژورنال‌ به نقل از منابع مطلع گزارش داده است که برخی مقام‌های جمهوری اسلامی در گفت‌وگو با مسئولان کشورهای منطقه،  در پیام‌های علنی و گفت‌وگوهای خصوصی هشدار داده‌اند که جمهوری اسلامی حملات تازه آمریکا را با گسترش درگیری‌ها در خاورمیانه پاسخ خواهد داد.
 منابع مورد استناد روزنامه گفته‌اند اشاره به احتمال ورود زمینی نیروهای ایران به خاک همسایگان، بخشی از تلاش مقام‌های جمهوری اسلامی برای بازداشتن واشنگتن از حمله بوده است.
@@ -172,99 +277,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78709)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 16:10:03
-
-<img src="https://cdn4.telesco.pe/file/M251Af_ZjAzGOC_N7-mS9KeIQu1e3QatLyCfocMTEECGThEG4FRYDPeDzFVn5JzymPByoqkXKyz-_G5jY8WrmyM1O4kjudIkZD8iwFHt7mho90N6kRsgwh_vGPwLxWA3dR5ABnCH1UZR8xoKJrTioZUrWLQwzG1bmYKiRTgPcjoFKhZl4iNh_C_1w4GRkyAtIc9KqdZFcFTGxq9scX-JnLhDNrna1KdW0QRa0fsKhBc9J6lQu83a93hEUubV7I94eHeRKMvOCh88o0Gl7R-cUij1z5vc9fv5iD-oQtQjBGkzeMIt5a27tFQPMhi7zTqP5vUSJlA3lu2jU1M_RkH6ew.jpg" width="400"><br>
-
-اسدالله جعفری، رییس‌ دادگستری استان اصفهان، انتشار فایل صوتی عقد علیرضا سپاهی و مهشاد کشانی را از دلایل بازداشت امیر‌سالار داودی، وکیل دادگستری، اعلام کرده است. او این فایل را «دروغین» خوانده و داودی را به انتشار مطالبی متهم کرده که به گفته او موجب «تشویش اذهان عمومی» شده‌اند.
-جعفری روز سه‌شنبه ۲۱ مهر ۱۴۰۵، در اظهاراتی که به نقل از روابط عمومی دادگستری اصفهان منتشر شد، مدعی شد انتشار این فایل در صفحه اینستاگرام داودی، زمینه «سوءاستفاده تبلیغاتی» رسانه‌های مخالف حکومت را فراهم کرده است.
-علیرضا سپاهی، از متهمان پرونده «میدان علیخانی» اصفهان، بامداد ۱۳ مهر اعدام شد. داودی پیش از اجرای حکم، فایل صوتی قرائت خطبه عقد او و مهشاد کشانی، نامزد زندانی‌اش، را منتشر کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78708)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 16:09:09
-
-<img src="https://cdn4.telesco.pe/file/nkN4dpF2YPE1xdXm3sC2QdNlNHJoG81n0N9EWo7buBDzYmjTE0Dqkcj81PV2o8yv8NHkoEsa8uZa5DjESQqEdLcMerb5btALI5010y0rK_dzKp_5QmnQYskMwOnhF6wSQ2DBPEZrGr-vyAhm1Q2fHU-jLImIJEJ9w7uLuV-0FkY8l4g9IDoIYCBW-c-wz6OhN2RSyOnwYT1GlOZ0Uzj0JpROwUbWSD4DrV7g8S073RIiBmQIvnJ01Fc_WH2R3H68vvx1tCpgxLUB4fjQhwtHcE0ez4QCjuu7FvUgWTtMLptWR6Y0-P69c5EbraCSQdh3OTWHk-5FHk7LQQhRXAn5Iw.jpg" width="400"><br>
-
-دستگاه قضایی جمهوری اسلامی ایران از اعدام یک نفر در میناب خبر داد که دی ماه ۱۴۰۲ به اتهام «زیر گرفتن یک مأمور پلیس راه میناب جاسک» بازداشت شده بود.
-قوه قضاییه روز سه‌شنبه ۲۱ مهرماه با اعلام این خبر، فرد اعدام‌شده را «قاتل جاسم حسینیان، مأمور پلیس راه» خوانده اما نام او را ذکر نکرده و درباره‌ی هویت او نیز توضیح نداده است.
-خبرگزاری میزان می‌گوید حکم اعدام متهم مورد فرجام خواهی در دیوان عالی کشور قرار گرفت و در نهایت در این دیواننیز تأیید شد. با این حال از روند دادرسی این پرونده و جزئیات آن هیچ گزارشی منتشر نشده است.
-از آغاز سال ۲۰۲۶ میلادی، این ۶۲۱مین مورد اعدام در جمهوری اسلامی ایران است که ثبت و گزارش می‌شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78707)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 06:44:51
-
-<img src="https://cdn1.telesco.pe/file/ajOvXZ14vpy1gNlEzGxyXpgbcKFBGqWtswHJiJQafw9fs_CpKXUsuperAFLQQDczS_w7nteLb6RcUpshxrO0Rdc0bl3VedvXq7nFDTKcy9Z6w7LdwzWXfL1OIT0PWRXDE8R9KSsXjmATaBO62Xu9-sDI6UjXhIL1eE4xKqxCb9-DqD7giMf7CqhXL3Q8XXL93l5IuX9wA2i9XmhGz0WG9v1a_MlfCe4toA7t-d8NmUhHICoFRFtYb_Zf1yyw79AiR15AoDkVUQ8MU1D6RM1d4RY4fxN07lTf3kZwL4ALRwL8vnAQ8uH3ieiyGjrHdWg5Ad7juzBN40yHlBJUCjjzcA.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-نظرات زیادی از احمق‌ها و دیوانه‌های چپ رادیکال می‌بینم که می‌گویند چین و روسیه دارند به جمهوری اسلامی «فوق‌العاده» ایران کمک می‌کنند. اگر هم چنین کمکی می‌کنند، در سطح بسیار محدودی است، اما من اصلاً باور ندارم که کمکی در کار باشد.
-آن‌ها چیزهای زیادی برای از دست دادن دارند و اگر چنین اتفاقی می‌افتاد، ما از آن باخبر می‌شدیم، آن هم خیلی سریع!
-از توجه شما به این موضوع سپاسگزارم.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78706)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 06:42:37
-
-<img src="https://cdn1.telesco.pe/file/n5zx03UCqxg3XcVcZyo-HFs4ljZmya4IUqBnVgar7S9LNvfeKhPOHN2GcqyRXa9awrZlFDaVvSUPCl0pt2XjY-D1glAsdh80GZlBm53wj-UDJRQU_m9jC-wVkauJCaJli0FD5dpZ9Dxgfsf3hIwfVl0jtYaMBaMZaLzTuhCwN9paoU81jYtT7aGUnWcNsJs_vWExGV6I1BZopmt_D2cVUsFL4xFlRMerXW9pt1P2capepIkBWAPCYYmgqh2hsBr43_YfYvK5H19D4SgPDpLHlw80EOTdzQmqRm9XoWPqK7sxFqUNQ2IsIt-0uI4nA449eZT0-bWacG_ok0-1CZ4gNQ.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، گفت جمهوری اسلامی اکنون حتی رهبر و مقام‌های ارشد ندارد و واشینگتن برای مشخص کردن طرف مذاکره در ایران با مشکل روبه‌رو شده است.
-ترامپ گفت: «مشکل همین است. شاید در برخورد با رهبرانشان زیاده‌روی کردیم، چون دیگر اصلا نمی‌دانیم با چه کسی طرف هستیم.»
-او همچنین گفت: «هیچ‌کس نمی‌خواهد رییس‌جمهوری ایران شود. آنها نام افراد را یکی‌یکی می‌خوانند و می‌پرسند چه کسی می‌خواهد رییس‌جمهوری شود؟ هیچ‌کس نمی‌خواهد. من نمی‌خواهم.»
-ترامپ با اشاره به دشواری یافتن طرف مذاکره افزود: «راستش را بخواهید، برای اینکه بفهمیم اصلا باید با چه کسی مذاکره کنیم، با مشکل بزرگی روبه‌رو شده‌ایم.»
-رییس‌جمهوری آمریکا در ادامه گفت: «فکر می‌کنم زیاده‌روی کردیم. می‌توانستیم در سطح اول متوقف شویم. رفتن به سطح دوم و سطح دو و نیم احتمالا زیاده‌روی بود.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78705)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-12 22:45:40
-
-<img src="https://cdn4.telesco.pe/file/Uh6fyLl0xheMi7sokd575z44iNkf47KZgHgrVAoExGDlowe2Y9mE_2vDAB9y2naWTRwpp1EP1fSlW546r7hIJgJQDH3VYaYexR_jjP1dZFyirRhvkbb44o9MgrX-1nCrs8Vg4xq3XgvDjVJ0S1bFDLsJLYInsB3mlI3oTgxA2CfqFEp3qNPuaITIZliYdVCG4IrEQp5ihbw2X53W_na4Hffm9XrgiRL6gjSGTw2vM-5gqqQqpLUHYU93DD9O4ItcZLacBuQgpL3UWK4Itf9g293Bj_SRa1414yfqW72XUnl85J63uxNG41rf4KRmD_ilXTQd48uWGXWbcL2k7dawZA.jpg" width="400"><br>
-
-سخنگوی نیروهای ائتلاف تحت رهبری سعودی اعلام کرد که پدافند هوایی این کشور موفق شده است آتش موشک‌های ورودی از یمن را با موفقیت رهگیری و منهدم کند.
-دوشنبه شب، ۲۰ مهر دقایقی پس از ارسال پیامک هشدار تهدید هوایی به تلفن همراه ساکنان، چندین انفجار مهیب پایتخت عربستان سعودی، ریاض، را لرزاند که به احتمال زیاد ناشی از عملکرد همین موشک‌های رهگیر پدافند در انهدام پرتابه‌ها بوده است. سازمان دفاع مدنی عربستان سعودی حدود ۱۰ دقیقه پس از اعلام وضعیت هشدار، به شهروندان اطلاع داد که خطر رفع شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78704)
 
 ---
 
