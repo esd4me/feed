@@ -3,8 +3,67 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-14 22:34:36 </h5>
+<h5> 🟢 Updated at: 2026-10-15 02:22:08 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-15 00:17:26
+
+
+
+پست سنتکام، ترجمه ماشین:
+در ۶ اکتبر، نیروهای آمریکایی یک لنج وابسته به ایران را که در دریای عمان مشغول شناسایی و رصد ناوهای نیروی دریایی آمریکا و تعیین اهداف برای حمله به آن‌ها بود، منهدم کردند.
+در هفت ماه گذشته، سپاه پاسداران انقلاب اسلامی ایران علاوه بر ناوهای جنگی نیروی دریایی آمریکا، همچنان هزاران دریانورد غیرنظامی را که از آب‌های منطقه عبور می‌کنند، بدون تمایز هدف قرار داده است.
+خدمه این لنج پیش از انهدام آن، به‌سلامت از شناور خارج شدند. تلاش‌ها برای بازگرداندن آن‌ها به کشورشان ادامه دارد.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78731)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-15 00:16:07
+
+
+
+محمدباقر قالیباف، رییس مجلس شورای اسلامی، روز چهارشنبه ۲۲ مهر گفت جمهوری اسلامی هم‌زمان با جنگ، مذاکره را نیز دنبال می‌کند و هدف از ادامه جنگ را وادار کردن دشمن به پذیرش خواسته‌های تهران یا پذیرفتن شکست عنوان کرد.
+قالیباف در یک پیام ویدیویی گفت: «هم می‌جنگیم و هم مذاکره می‌کنیم. باید در زمان لازم با تمام توان بجنگیم، آمادگی خود را بالا ببریم و هر وقت در میدان به پیروزی نظامی می‌رسیم، آن را در عرصه سیاسی ثبت و تثبیت و به سند شکست دشمن تبدیل کنیم.»
+او در ادامه تاکید کرد که منظور جمهوری اسلامی از دنبال کردن هم‌زمان جنگ و مذاکره، ادامه بی‌پایان هیچ‌یک از این دو نیست.
+قالیباف گفت: «وقتی می‌گوییم هم می‌جنگیم و هم مذاکره می‌کنیم، منظورمان این نیست که جنگ بی‌پایان یا مذاکره همیشگی می‌کنیم، بلکه جنگ می‌کنیم تا دشمن را مستاصل کنیم و به خواسته‌های ما تن دهد یا اگر تن نداد، شکست را بپذیرد.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78730)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-15 00:15:28
+
+<img src="https://cdn1.telesco.pe/file/VyJWJ7DH1aFVqwogzBZ-uf9vx8dHUTQhloyRDAwdCn2q8-zqQy6Iad8uC2FyBtuWoIIJvkzx82O6Qk8Bdwt1vi_K159yiyiHEjLe7djWC5qqNdQyGACyKYZsupulBc7vdMbVpUsVHQTxpim1tVbnnCAuAQu7-QawyZsAaXI6li8vubk9NMRSFwKb8GvOF0GvD5czz7Y4E1oSD4CIvdm8xn7viinglrviCWuMkmH9EnMhBlW4NnIRwA6wo92tXBvwd0oUEZ0Ai5W_RHOxD-WHVcu_or4e9UJxakfhSUn1g-L--HGMKv7SWLsfhndoihR-1hdr_eP2P-V8uDsilDgLMw.jpg" width="400"><br>
+
+وکلای وریشه مرادی روز چهارشنبه ۲۲ مهر اعلام کردند شعبه ۱۵ دادگاه انقلاب تهران که پیش‌تر این زندانی سیاسی محبوس در اوین را به اتهام «عضویت در گروه باغی» به اعدام محکوم کرده بود، با وجود درخواست دیوان عالی کشور برای بررسی «نقص تحقیقات»، بر حکم پیشین خود مبنی بر اعدام پافشاری کرد.
+امیر سجادی و کیوان عزیزی، وکلای وریشه مرادی، در گفت‌وگو با «امتداد»، با اعلام این خبر تصریح کردند که روز چهارشنبه ۲۲ مهر با مراجعه به شعبه ۱۵ دادگاه انقلاب حکم صادره توسط این شعبه را دریافت کرده‌اند، و مطابق حکم ابلاغی ۲۰ روز فرصت دارند در دیوان عالی کشور فرجام‌خواهی کنند.
+به گفته آنها، این حکم در شرایطی صادر شده که حکم قبلی شعبه ۱۵ مبنی بر صدور مجازات اعدام برای وریشه مرادی با طرح شبهات جدی در مورد تحقیقات، توسط شعبه رسیدگی‌کننده در دیوان عالی کشور نقض شده بود؛ ولی شعبه مذکور بدون انجام تحقیقات مورد نظر دیوان عالی، صرفا با تغییر عنوان اتهامی، خانم مرادی را مجددا به اتهام عضویت در گروه باغی به اعدام محکوم کرد.
+امیر سجادی با بیان اینکه «به باور وکلا دلایل کافی و متقن برای انتساب چنین اتهامی به وریشه مرادی وجود ندارد» تاکید کرد: «خانم مرادی مطلقا در هیچ عملیاتی علیه جمهوری اسلامی مداخله نداشته و فعالیت‌های او صرفا مربوط به مبارزات نامبرده علیه داعش در شمال سوریه بوده است.»
+کیوان عزیزی هم با تاکید بر فرجام‌خواهی وکلای وریشه مرادی در مهلت قانونی ابراز امیدواری کرد «دیوان عالی کشور، همچون مرتبه‌ی پیشین، به دفاعیات و ایرادات، توجه کافی داشته باشد.»
+وریشه مرادی که در حال‌حاضر در زندان اوین محبوس است، ۱۰ مرداد ۱۴۰۲ در حومه سنندج بازداشت شد، و در تاریخ ۵ دی همان سال با اتمام مراحل بازجویی از بازداشتگاه وزارت اطلاعات موسوم به بند ۲۰۹ زندان اوین به بند زنان این زندان منتقل شد.
+او ۲۰ آبان ۱۴۰۳ توسط شعبه ۱۵ دادگاه انقلاب تهران به اتهام «بغی» (قیام مسلحانه علیه حکومت) به اعدام محکوم شد. وی در نامه‌ای سرگشاده از زندان فاش کرد که در طول بازداشت تحت شکنجه‌های جسمی و روانی، تهدید به اعدام، و خشونت‌های جنسیتی قرار گرفته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78729)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-14 16:45:34
@@ -150,7 +209,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-13 23:38:01
 
-<img src="https://cdn1.telesco.pe/file/mzAAVf2zlXwZt5xaJLAfA6mekW_aL3_4DpzzgDDc3tlu3uI72GJiiF1fzRUQhywgVqBY3ErWysGYe95uIV8QJbJrz-PA1vfYfoUUMTSOIVl-YK23Qk35c4xAyfpTmad9_iYsGZlOjRghjbXCjBaAN_onxUm9n3zJLPbV1E9lewb3gKMNxomMsy0Pl82oFL9ArlSlH5m9BId7-Sh7SebHU-CQK8eF3ybf0caFWN8NZ7tTnYPhYEqPHW1JB1WwUPJGAMGDTj2RXCQ-CD_vtav51Y5CPXdxUGt8EoKyDi3KMPfOs1Dx16XQXyMTM1nfeopTQlaXbSFr8Cj3g884GTSYYA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/bBEcoufs7dmieeoGOQ0TmQjx1WbQbrYPuktGcfsZ1HGUl3H-j189TgMeRWVmcLyG9pUn6GMfdrvrdnzI9zbZtnxQN7rdzK8z1gDK9PT091MWa1Z8FBu6emTPB50b9jGUvvKOr_dt1GZGL5dXEjm9VvteHxjf0XEcCIFkxMdMUR6UyPJ6yyK09K2fwmLMg20qknUCO70oGWU5NtNPHHOa4Qram74Yw_22IJJj_2xkw_OBSglBA9E7JVZH0px_YQWGxRSu7wTRR4T2wbBV_s_hdUA-guDPGpKlthAexfR2rcQ-0COw5Gr26zBsnIkcCyCcpJc0Y3exnDK-jtsBFDyo2Q.jpg" width="400"><br>
 
 اکسیوس سه‌شنبه ۲۱ مهر به نقل از دو مقام آمریکایی، یک مقام اسرائیلی و یک منبع آگاه گزارش داد بنیامین نتانیاهو طی دو هفته گذشته چندین بار با دونالد ترامپ درباره ازسرگیری عملیات گسترده در ایران گفت‌وگو کرده است. به گفته منابع، دو طرف احتمال عملیات مشترک آمریکا و اسرائیل علیه اهداف نظامی و هسته‌ای ایران را بررسی کرده‌اند.
 نتانیاهو درباره اقداماتی که اسرائیل معتقد است جمهوری اسلامی برای بازسازی برنامه هسته‌ای خود انجام می‌دهد، ابراز نگرانی کرده است. اسرائیل به‌ویژه نگران احتمال استفاده جمهوری اسلامی از «کوه کلنگ» برای غنی‌سازی اورانیوم است.
@@ -169,7 +228,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-13 23:35:47
 
-<img src="https://cdn1.telesco.pe/file/UjRklKiTAlCqcy-LcoSe0i29cUM3ExlQISvlaTGSTSkfxU4cEEtEnjab4nQ6_I6vpYZtMIF3zaAc-OrNsw-Aortee8VoKz678et83nlwPOHgnsv8nCXpTlOpW4gBOY9BpiQgcqhIk14qhp0q1iQ9QmjddCFJqOndeD1JMuzPoQAoK8OL3kaEjkc1_Q7ev-FJrmBb-rZkzhi_tGMpBKHKeoc87ygPkI8Br8wsADLsA7EwiX5CKl5DCIL79MdODA-HDmlCesyhXPQ5KX4FKKSvYA7tiGgJrs4yq32OI1c1u3su_uuud87MyPA2EgKAUGSNuxS-mSMIk8KgL6YeR4sawQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/rzQLiv7_x0Q5rpI3Aeq3ri1xy4sZDNuKk5vSlXVSDCqBvxEbxQzP0EV9uFt3b4obj29h2qv-4hxQLrYfVB7MtSTQ6HiAm8Yb8KpE_98fF9fL3Z73tAmOmiiU0tXRfAXwA89HUrFR_Js_WV05R1lVZxQh3Ets1FT2N_YspU0sdTuvsVLLPCg9mmJJp1lywMqhO-B0udOma7sE-49HUMtNY2KZ-0iuBpCuGrfXabqA1GECFllBGtktqSo51y8VaRaetwjrRE1G-5KpmvOyNquz52c85Mxo0xUeXzX9k15phkBgtWI0pEzx3oEMTsXm_wZMYbSxtyH_tjCu5hxwM79rag.jpg" width="400"><br>
 
 در پی هشدار مقام‌های عربستان سعودی دربارهٔ تهدید حملات هوایی، روز سه‌شنبه ۲۱ مهر صدای انفجاری مهیب در ریاض، پایتخت این کشور، و چند انفجار در نزدیکی مقر شرکت نفتی آرامکو در شهر ظَهران شنیده شد.
 به گزارش خبرگزاری فرانسه، مقام‌های عربستان با ارسال هشدار به تلفن‌های همراه ساکنان ریاض اعلام کردند که این شهر با «تهدید هوایی خصمانه» روبه‌رو است. خبرنگاران این خبرگزاری اندکی پس از صدور هشدار از شنیده شدن صدای انفجاری شدید خبر دادند.
@@ -221,62 +280,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78712)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 16:13:47
-
-<img src="https://cdn4.telesco.pe/file/OF1JOCZ0IQFN7_GLYuYhOj76eDEcW49uym6ZltiyNYveBRWfKlnod-OxgBPmS-t47j2E8_DU3-GzdTkKkIfES8xzhCkmmELgjFNNEmYtSQwODW0U1WlGvJmV4aYrDSYcxvvfM1fAzYYh4wcV6NSEOsJ7hf_Q0uOyOavTqYVAq0ryyOjNv-xUvAtaoqB4VB0ldRrnFAlt4gh9-zdq_qZwOErqryWv1FwMR9HaHgfPzo92LDjx2cMpz6_snG8LlQ-is-Q56NItu9p8Hqe6_xQgrbl_0CvmA7hU1VlQ-5h1pNWOOYZ9C3JtDlf7AkpQwGFCIJlrx4J2OEDi-MdgwheH2Q.jpg" width="400"><br>
-
-مسعود پزشکیان، رئیس‌جمهوری اسلامی و رئیس شورای عالی انقلاب فرهنگی، مصوبه اختصاص سهمیه به داوطلبان کنکور آسیب‌دیده از جنگ‌های ۱۲ و ۴۰ روزه را برای اجرا ابلاغ کرد. بر اساس این مصوبه، داوطلبانی که در جریان این جنگ‌ها یا حوادث پس از آن، محل سکونت خود را از دست داده‌اند، در صورت احراز شرایط مشخص، به مدت دو سال مشمول سهمیه ۵ درصدی ایثارگران خواهند شد.
-بر اساس متن مصوبه شورای عالی انقلاب فرهنگی، این تسهیلات شامل داوطلبان ورود به دانشگاه‌ها و مراکز آموزش عالی می‌شود که ساختمان محل سکونتشان در جریان جنگ‌های ۱۲ روزه، ۴۰ روزه یا حوادث پس از آن، تا زمان برگزاری آزمون، تخریب شده و دیگر امکان سکونت در آن وجود نداشته باشد.
-طبق این مصوبه، ساختمان آسیب‌دیده باید در وضعیتی باشد که نیازمند احداث مجدد، مقاوم‌سازی یا تعمیرات اساسی محسوب شود. بنابراین، صرف آسیب‌دیدن منزل یا وارد آمدن خسارت جزئی، به‌تنهایی برای برخورداری از این تسهیلات کافی نیست.
-این مصوبه در جلسه ۲۳ تیر ۱۴۰۵ شورای عالی انقلاب فرهنگی به تصویب رسیده و اکنون برای اجرا ابلاغ شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78711)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 16:13:09
-
-<img src="https://cdn4.telesco.pe/file/XxK8ciEiB8QjECGrh5AkFB_HG-UajkyhXeiIQF228Qtzik5ERayf8DxaNnFBR6n0mQ2Qv0PsAewzRre9XvP4ZsSrw5np-im-XmlMD8dj2_eeXL-o-F0J81yLmeG6Kl3oQtlIETNcC0l_dsqhYoGZSreISG5deKBkb5TeponZ87gmN_HvnLE_52SWGbj1cheFIVYvzX7ufVO0US4kEwblwbLbkH5a2GMzdu7ycXQiPfwxRKfy1q5xvGzLL2ZyS_eEgud1gmZMHNudujHfftD9SeuGyaa9jYvCP-97ZnE91MrX8CjEsEt1B3fMHTj3hqUl-AgG_iYJkq3i29BakigpuQ.jpg" width="400"><br>
-
-سازمان عفو بین‌الملل در بیانیه‌ای تازه که روز سه‌شنبه، ۲۱ مهرماه، منتشر شد تأکید کرد که جمهوری اسلامی از مجازات اعدام به عنوان ابزاری برای «بالا بردن هزینه اعتراض... و ارعاب» مردم استفاده می‌کند.
-این سازمان حقوق بشری در بیانیه خود از اعدام پنج معترض دی‌ماه ۱۴۰۴ تنها در عرض یک هفته به عنوان گواهی برای این مدعا یاد کرده است.
-قوه قضاییه جمهوری اسلامی از هشتم تا ۱۳ مهرماه جاری از اعدام این پنج جوان معترض خبر داد:‌ علی همتی سیستانی و مجید نیک‌اندیش در مشهد اعدام شدند، سیاوش جمشیدی خیرآبادی در شهرکرد اعدام شد، و علیرضا سپاهی و علیرضا رئیسی که در شهر اصفهان به دار آویخته شدند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78710)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 16:12:24
-
-<img src="https://cdn4.telesco.pe/file/PUlvvdivnsYk0Vlku3rBYl3ImbX93-2_Gy0HaX4gsgLomT1GpUdckWw_WkrtTHEi2HUzJGFdEg5qgkuGTk5-sOd_TOutuOvyF5aBroZT5q5hkM0YIAs9KSGWgOcSVtoJNSHjd1pAcchGId-p_RaWDjmlE18zuOi-43j6nEW5eUdE6ZSxR_Eax8A64st6YeTwen3Quz4VU-XFZ6xBDwc5a6jylTavuJe2YMpO-ztJKNTmmLRCLbTB6UTuq8BoZElSjOvoCETuQYFq_VsdMMOEECUEAnyF57XiSGAtLPb_DP5MrXfeHqTQwSF_cRuO5bspDIk4iJ8YvE1HH0l2v44TCg.jpg" width="400"><br>
-
-وال‌استریت ژورنال‌ به نقل از منابع مطلع گزارش داده است که برخی مقام‌های جمهوری اسلامی در گفت‌وگو با مسئولان کشورهای منطقه،  در پیام‌های علنی و گفت‌وگوهای خصوصی هشدار داده‌اند که جمهوری اسلامی حملات تازه آمریکا را با گسترش درگیری‌ها در خاورمیانه پاسخ خواهد داد.
-منابع مورد استناد روزنامه گفته‌اند اشاره به احتمال ورود زمینی نیروهای ایران به خاک همسایگان، بخشی از تلاش مقام‌های جمهوری اسلامی برای بازداشتن واشنگتن از حمله بوده است.
-به نوشته وال‌استریت ژورنال، مقام‌های جمهوری اسلامی در پیام‌هایی جداگانه به مسئولان کشورهای عرب همسایه گفته‌اند در صورت آغاز دوباره درگیری‌ها، اهدافی در منطقه، از جمله تاسیسات نفتی عربستان سعودی، ممکن است هدف حمله قرار گیرند.
-محسن رضایی، دبیر شورای عالی امنیت ملی، نیز روز یکشنبه ۱۹ مهر در گفت‌وگویی تلویزیونی تهدید کرده بود که در صورت از سرگیری جنگ، زیرساخت‌های دیجیتال منطقه، از جمله کابل‌های ارتباطی، مراکز داده و تاسیسات هوش مصنوعی، هدف قرار خواهند گرفت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78709)
 
 ---
 
