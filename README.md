@@ -3,8 +3,44 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-14 06:18:36 </h5>
+<h5> 🟢 Updated at: 2026-10-14 11:43:11 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-14 08:41:18
+
+<img src="https://cdn1.telesco.pe/file/fJ375tqjj25sHzdiUKcQYUWevuPpg3gIofar1lA2-rM435DMFHwGpfehwVHjZR_nx2HyFeWi7Uudl7OuF2mCbE8PuxWm0NXCkmC3M_XwSbbuF3x5JWV9aLCdjQPD2kvAANwAm2a-GpSs26wJwqHhAdbuIOeYJDqG26iwzio44Xw8Zq7UlVUBtWxdQds43BhItvpoaZfBwxrd2CeuOOvvyso6zY5H2t0barEGeQHhgNr-Ntke6TSC--VvRA3Pm1UteCW4gv6pxv7JtggCie20ft4UCcbE8E49rOp2ESh0nCsoGOhvkojfOCZZVWpoTp8mF9WF_tTflp4vn98KRTuwwA.jpg" width="400"><br>
+
+قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام علی‌سینا مصطفوی، زندانی سیاسی، خبر داد.
+قوه قضاییه او را به دو مورد تیراندازی در کرمان، در فروردین و اردیبهشت ۱۴۰۵، متهم کرده بود.
+قوه قضاییه همچنین اعلام کرده که مصطفوی در جریان اعتراضات دی‌ماه ۱۴۰۴ نیز حضور داشته است.
+بر اساس گزارش‌های رسانه‌های حقوق بشری، از علی‌سینا مصطفوی اعترافات اجباری اخذ شده است. مصطفوی موزیسین و کوهنورد بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78718)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-14 08:29:39
+
+
+
+دونالد ترامپ در جریان سخنرانی خود در آلاسکا گفت: «صبر کنید و ببینید با ایران چه خواهیم کرد. ما حسابی از خجالت‌شان درمی‌آییم و آنها فقط نشسته‌اند و منتظرند، چرا که دیگر واقعا کاسه صبرمان لبریز شده و تحملمان تمام شده است.»
+او با تاکید بر اینکه آمریکا پس از دوره‌ای از بی‌احترامی‌ها اکنون دوباره جایگاه مقتدر و محترم خود را در جهان بازیافته است، تصریح کرد: «نکته اساسی و مهم این است که آنها قرار نبود سلاح هسته‌ای داشته باشند و هرگز هم نخواهند داشت؛ برنامه‌ای که اکنون زیر هزاران تن سنگ و صخره مدفون شده است.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78717)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-13 23:38:01
@@ -180,7 +216,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-13 06:44:51
 
-<img src="https://cdn1.telesco.pe/file/nb51fXO1Nh1dv_BhRSjhrN8Rt5N6sLyF8bvM0zz6B5oRICldZYo-gHrpZ6hYc4dTbFHfXjFSy-xHyQTeMNRFwX0te4trg-F_VMi8OJd_81S6Ovh4R_VW8B4gXPkx8WMieqMEDlV0w14gt0dCDqix5ngEUZK-b6IIkZrL8zie6hujgqOXAJnQKHha3uMDbaJtJKEFA3wBePQ7lAQwxF9KgIZCfiY2oJuy4cJe1jsOX00utt3ncttDTRISiuQiWpnGXwzwYNFmPsVnoL7RkhtQ_ApKr0Cxu6S5-QxP_hya-Itlfql3synUozFB4sfXZ2VD8nU8bwWAWO9hWuP1IgEsAA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ajOvXZ14vpy1gNlEzGxyXpgbcKFBGqWtswHJiJQafw9fs_CpKXUsuperAFLQQDczS_w7nteLb6RcUpshxrO0Rdc0bl3VedvXq7nFDTKcy9Z6w7LdwzWXfL1OIT0PWRXDE8R9KSsXjmATaBO62Xu9-sDI6UjXhIL1eE4xKqxCb9-DqD7giMf7CqhXL3Q8XXL93l5IuX9wA2i9XmhGz0WG9v1a_MlfCe4toA7t-d8NmUhHICoFRFtYb_Zf1yyw79AiR15AoDkVUQ8MU1D6RM1d4RY4fxN07lTf3kZwL4ALRwL8vnAQ8uH3ieiyGjrHdWg5Ad7juzBN40yHlBJUCjjzcA.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 نظرات زیادی از احمق‌ها و دیوانه‌های چپ رادیکال می‌بینم که می‌گویند چین و روسیه دارند به جمهوری اسلامی «فوق‌العاده» ایران کمک می‌کنند. اگر هم چنین کمکی می‌کنند، در سطح بسیار محدودی است، اما من اصلاً باور ندارم که کمکی در کار باشد.
@@ -229,121 +265,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78704)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-12 22:45:24
-
-<img src="https://cdn1.telesco.pe/file/umgm8G3kl85Mec52HhxMu2ZkpgFQiz5x1zwHqHPXOTXXuwrAsyvMaHKpBkhOaEw2jzypdSY6roD5P6uHO-jw1zyuRi65CIBKoXS2L5adfdLOh5ZgYCVzV4zzOhFdRj8O1SSxScTuvemDMg-mZK6IxVLRDe0UOpiMsVZfyskYviZ36bwotejX5kIflpc2PeU68oweQBK-heR2yvh4J5On_q_ik40u_9G2NtjQ3RpptjZMNMmAicYZmAMwVFjMFYgfcXkcMps8L53K8xJ3lPgGJmL8QOgZ4oHhwKe5NrhL9yzr3uYq9iujSJXDvSLCl0FU972TIHs7Hwaa4U4Y1aXeJA.jpg" width="400"><br>
-
-UKMTO:
-مرکز عملیات تجارت دریایی بریتانیا  گزارشی با تأخیر از وقوع حادثه‌ای در تنگه هرمز دریافت کرده است.
-یک منبع تأییدشده گزارش داده است که یک نفتکش حامل نفت خام هنگام خروج از تنگه هرمز، هدف اصابت پرتابه‌ای ناشناس قرار گرفته است.
-مقام‌های مسئول در حال بررسی این حادثه هستند.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78703)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-12 21:13:59
-
-<img src="https://cdn4.telesco.pe/file/JER2lxBAdpCxXJbUKJr9aGOxMbU_Dpc2WvKgcjsKWC6QV7T8xcKxjiQbt4GRYEjF3bYjYA1VtLvW0gTUcQhFQImYOiAznGffUtdzDEciT_dJt7_spvybpNxWRszZd6BnoKwj3hupXGrcKnL_xH3G5Hbn5IFxVIDyElsAcB9O-vRqqNhvcJnNuupkvJAHqozIoDxGB8KSCMB8dAO9K2yAJyH6XU0IExNNN7CTN7uJXdre3ZHyZH_WBVT9PyCiSEZw4L8WuFkvd25S0D3cFYwwwujONxYL6tpEcHf6RVhZz6_7diGDuBMAkdMojWzC98WTvoYBqHMGuGpfPBbF3Ahhyw.jpg" width="400"><br>
-
-وزیران خارجه ایالات متحده، بریتانیا، استرالیا، کانادا و ۲۳ کشور دیگر با انتشار بیانیه‌ای مشترک، فعالیت‌های خصمانه جمهوری اسلامی ایران در خارج از مرزها را به شدت محکوم کردند.
-این بیانیه روز دوشنبه ۲۰ مهر، پس از آن صادر شد که اندی برنهام، نخست‌وزیر بریتانیا، اعلام کرد حادثه امنیتی اخیر در پایگاه هوایی فیرفورد در انگلستان «تقریبا به طور قطع» توسط سپاه پاسداران انقلاب اسلامی هدایت شده است.
-کشورهای امضاکننده این بیانیه با اشاره به ماجرای پایگاه فیرفورد و سایر حملات اخیر علیه جوامع یهودی، روزنامه‌نگاران ایرانی و منافع ایالات متحده در اروپا، تاکید کردند که استفاده جمهوری اسلامی ایران از حملات خشونت‌آمیز، توطئه‌های مرگبار، آتش‌سوزی عمدی، خرابکاری و عملیات سایبری غیرقابل قبول است. آن‌ها هشدار دادند که هرگونه تلاش برای تهدید، ارعاب یا آسیب رساندن به افراد در خاک این کشورها با اقدام قاطع قانونی مواجه خواهد شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78702)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-12 20:44:34
-
-
-
-نخست‌وزیر بریتانیا روز دوشنبه ۲۰ مهر گفت طرح مشکوکی که پایگاه هوایی «آرای‌اف فرفورد» در بریتانیا را هدف قرار داده بود، «به احتمال بسیار زیاد» در ایران هماهنگ شده و قریب به یقین زیر نظر سپاه پاسداران انقلاب اسلامی هدایت شده است.
-اندی برنهام در سخنانی در پارلمان گفت: «ما این تهدیدها را در خاک خود تحمل نخواهیم کرد. با استفاده ایران از شبکه‌های جنایتکار برخورد قاطع خواهیم کرد، با به‌کارگیری همهٔ اختیارات‌مان، این شبکه‌ها و منابع مالی آن‌ها را هدف قرار می‌دهیم و تحریم‌های بیشتری اعمال خواهیم کرد تا توان ایران و سپاه پاسداران برای آسیب‌رساندن به ما محدود شود».
-اد میلیبند، وزیر خارجه بریتانیا، نیز خبر داد که در واکنش به این اقدام، سفیر جمهوری اسلامی ایران در لندن به وزارت خارجه احضار شده است.
-پلیس بریتانیا روز یکشنبه پنجم مهر پنج مرد را در نزدیکی پایگاه هوایی «فِرفورد» در جنوب غربی این کشور به ظن ارتکاب جرایم مرتبط با مواد منفجره و تروریسم بازداشت کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78701)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-12 18:54:36
-
-<img src="https://cdn1.telesco.pe/file/oTYMwzkU9WSoemYscVw3eqbQdZGbsc54oIEabIxcNw-Cj5eMKK7XUdAn1_BnjLSU8qSNcSldQXnovrLX3VC3691RAH8ICRxGsx4p06mppOvdy3lYRrsusQnyiKcdpfNKpa8C2Nf6mjJoEX_ENXFqjKxkTyZg21UFds4d8pE6lfFZ-SzI3ebRnMLkDceHxN1sOtEtw7Q760BxdYF7WVhqd9eUEK8zA1t9_oBbNjB1vssisb-7ViPFKPuHHOfVdcRrWvO-hsKOLiyODrDsMb0tRIkvRpmP9InxeSeVrlZBC_9yjdaGLdGmTv3JrxtmO-lWn2gkERenOynNKx84c94zEQ.jpg" width="400"><br>
-
-اندی برنهام، نخست‌وزیر بریتانیا، درباره حادثه پایگاه هوایی فرفورد، دوشنبه ۲۰ مهر گفت که به احتمال زیاد این اقدام در ایران هماهنگ شده و به دستور سپاه پاسداران انجام شده است.
-نخست‌وزیر بریتانیا در واکنش به این حادثه اعلام کرد که دولت این کشور تحریم‌های بیشتری علیه جمهوری اسلامی اعمال خواهد کرد.
-بریتانیا در تازه‌ترین بسته تحریمی علیه جمهوری اسلامی، دو شهروند ایرانی را به اتهام دست داشتن در فعالیت‌های خصمانه، از جمله جاسوسی و مشارکت در تهدید یا طراحی حملات علیه افراد در خارج از ایران، تحریم کرد.
-دولت بریتانیا روح‌الله بازقندی و شهرام علیرضا تمرزاده جکی را به فهرست تحریم‌های خود اضافه کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78700)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-12 17:22:08
-
-<img src="https://cdn4.telesco.pe/file/P3yNuPgzHEDN0EbcRb6yFLdsdjUc_FtycvJXEPm4a4eDVCwvBHQAg9U88qqOcchHJ80oexK3XRcDdArX8RavYAD-WRjdIy7nh-BEB85FhtTfM21aeC_kdYEMbG5ijVSXvocG8jUqzhTwfGSVj5iqcd4wDCvMoXAoNLJVJHLq1gYXxlaY8bsK4YFHiuGu3OFSB0l3ShdFRtstozA8HRL-vtEh5ruEK6FTuMfTUxMmvDkZK5gC0wVAbWg6EIOxdhd9B6AitRt3-SRGdqKpKT2jJk6pP7eybuUHMadOX2DG1GbWCHzg7yPJjiwJx4oBQfNay51OQ2CyM5CdvEJ0sfjtWg.jpg" width="400"><br>
-
-خبرگزاری رویترز دوشنبه ۲۰ مهر گزارش داد در پی حملات حوثی‌های مورد حمایت جمهوری اسلامی به فرودگاه ریاض، چند شرکت هواپیمایی بین‌المللی پروازهای خود به عربستان سعودی را لغو یا تعلیق کرده‌اند.
-بر اساس این گزارش، ایرفرانس-کی‌ال‌ام تعلیق پروازهای رفت‌وبرگشت ریاض را تا ۹ آبان تمدید کرده و گروه لوفت‌هانزا نیز تمامی پروازهای خود به این شهر را تا ۲۴ مهر لغو کرده است.
-شرکت هواپیمایی اتحاد تمامی پروازهای خود به عربستان سعودی را تا ۲۱ مهر و شرکت هندی ایندیگو پروازهای ریاض و دمام را تا ۲۳ مهر تعلیق کرده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78699)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-12 17:21:39
-
-<img src="https://cdn1.telesco.pe/file/pp7KOaaBYCoHQ8yggz7YBYy6zBODtydWLyYpk2Cz0ol-7Wo9-vpQl1tIgNXb7_ZKFJOJbbrpHDlTm6hpnGkZoB2imIauNWDNc-UmVbpu8925KpJj8WhquaA7XR1ZSXjpZIhtuhZrXw5L67TKMGbnkKdPBxif5GCb_E_Lcs377HwDDhsRhoyv7y2eak4rfso2kaxzXe71joYcY7wfHiEIFVh6PlwDh1S2t-h9e93IehdKNOIlPGTGvRJTJKLk4AOrzDqhdbrm8gPHpF7ijPnfu0Pokvtl-shl-9cisOTLu3iyBpj56HEm5eqDK38swsTVFAFejUk_uJ0kUrUtDPwd1g.jpg" width="400"><br>
-
-قوه قضائیه جمهوری اسلامی می‌گوید که روز دوشنبه یک «عضو» گروه جیش‌العدل را اعدام کرده است.
-میزان، خبرگزاری قوه قضائیه، می‌گوید که عمر درستاران به اتهام «بغی» (قیام مسلحانه) و عضویت در جیش‌العدل محاکمه و به اعدام محکوم شده بود.
-میزان می‌گوید برخی از اتهامات آقای دستاران مربوط به حملاتی است که به مقر انتظامی شهرستان راسک، مقر سپاه شهرستان راسک، پایگاه پارود، و مقر‌های نظامی در فروردین سال ۱۴۰۳ در شهرستان چابهار صورت گرفته است.
-به ادعای این خبرگزاری، تهیه محل اسکان اعضای گروه، تسهیل ورود این افراد به کشور، جابجایی تیم‌های عملیاتی برای انجام حملات مسلحانه، تهیه مهمات و سلاح و شناسایی مقرهای نظامی از جملات اقدامات عمر درستاران بوده است.
-به گفته فعالان حقوق بشر عمر درستاران، ۲۷ ساله و اهل روستای چراغان شهرستان راسک در سیستان و بلوچستان و از طلاب مدرسه دینی شهر پیشین و از شاگردان سابق مولوی نقشبنید بوده است و از فرودین ماه سال ۱۴۰۳ در ایران زندانی شده بود.
-تعداد احکام مجازات اعدام و اجرای آن در ایران از دی‌ماه ۱۴۰۴ به‌شدت افزایش یافته است. موارد اعدام به جرایم امنیتی هم بسیار بیشتر از سال‌های گذشته برآورد می‌شود.
-@
-VahidOnLive
-, @
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78697)
 
 ---
 
