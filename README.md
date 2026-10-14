@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-14 17:42:31 </h5>
+<h5> 🟢 Updated at: 2026-10-14 22:34:36 </h5>
 </div>
 
 
@@ -190,7 +190,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-13 22:41:39
 
-<img src="https://cdn1.telesco.pe/file/rwcrooE8yao---at7QCts4prauokMrPMqPO-I02TwuQZK-uteBM4Bhsp5-jX5HQkxP7-7kRY0zfpPjOgzEmnWdFwhFYXSEzvG68inqUupHd9wnDwFRqwLMHnPuvNE_2RCYE7EaZgYPm7ahym4mM_UYianMuj0Z6QkIzESWwCLsKH5sZYmvfbpLt2U9tWxhgD-b7Y6otF-CW8EpXGJgCmF9VEzfldf3DHubzyk_QXBPXRwMjknoZtHCdUsrP5a1O41rbbUn-0D4ryke78qAp1ZdM_MpK17L8ZiwGFtc4Dk9TbWlhGj-M0BRwCm1S1BiAnwbglJPH1emo9M4whCvhQVw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qtTCaDYB7Y2U2WkaJGtm5NqHETrTfy8vVJsNmvr-gmkR94y9ngitXp0rk85JYuzyIJxSDZe_RQG6G3BVBFyLK3d4gsxmJp8w1QZ286hp4yhxDQU8Fjw3iv_a8c_F5dMOnhT89pKJqBkZUBEw7QcaEYl0ZUpI1sJYURTQByQVynRrZEH7kQomqTCE5ZxdDh-lwy2MpGDv3F6ykDhCfmpITv_WPIiY5DRXYjiyGqomaKvNnR7O--x0OkA7Dxr7Br_zP_56LqqcaZorEKrexlUNhCO83-kHpfmAsjBbdOJOerFoviyL2eA9Ehp0mSLMxG-IeqZkfHRZ_7gEj0N0gmDZeg.jpg" width="400"><br>
 
 UKMTO:
 مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است. یک منبع تأییدشده گزارش داده است که یک نفتکش بر اثر اصابت پرتابه‌ای ناشناس هدف قرار گرفته است.
@@ -207,7 +207,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-10-13 19:49:49
 
-<img src="https://cdn1.telesco.pe/file/cTxiD2-BuUR1M_dVZ8VY0iO4CwUApfbRlBdEUwxZtYwwojziThIFt2QDKA523eTHE9f7zrkklm-yjp1DEjzfGeQ3-2S3C1GHuMNpoHk_tFjCLFKaDlJnN5k6KBliS0yf6zdzqR0szU1FTwyu80gz9S44Rv9iRJT2fheLNQjg7x8eWg1HXNvkafv5_qK9MkD-7vaAPkIuEI0maH6ifkJPqIhk-t_O_u6NWVQQb9fFqYrB7LxYM-Fu-EguprPPSoZ-pn5FbiHQ22s0INGNtJSxloh4hMBo_pV6Bfzaldpdi9xFtzsWExqoe9Wf2vB0gb_Gb__0PN9Ks3UcgVmiapCOuQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/O12jlyT-pItDoqr24DBqPZGIyJ9Kr7ckuLHo8MLfGctwOTOAn0KCLeamuG1JxED7-p6OXTHf_sWdl5Uep71Bq9oPdy_vsGVbrtwMpazVExOE_-f4T_jTnwgDxFURp78hHzfEvzzBe5rFAGJkFMZzs3vEJFT5cZwRQQJZgnEY17pqJJKLRbdbFpFbp2eY4agNcwWSJE0CHBTv4clyuB6EP_BczW11RAAFOPnz71c82U1k4QiUoadqkF3v3h7hRG_mg7AfCHFXN7zYnc_CKvDq9iqq4PnjIhpRZ_-puZz9cfXNcjZZmQKx3TFHdFoZV9cnU1-At1rN6BYD9B5t7dp6Dw.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 حوثی‌ها رفتار بسیار بدی دارند. فکر می‌کردم یک سال پیش، وقتی آن‌ها را به‌شدت بمباران کردیم و به درخواست خودشان حملات را متوقف کردیم، درسشان را گرفته باشند.
