@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-15 04:36:59 </h5>
+<h5> 🟢 Updated at: 2026-10-15 10:14:30 </h5>
 </div>
 
 
@@ -173,7 +173,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-14 08:41:18
 
-<img src="https://cdn1.telesco.pe/file/fJ375tqjj25sHzdiUKcQYUWevuPpg3gIofar1lA2-rM435DMFHwGpfehwVHjZR_nx2HyFeWi7Uudl7OuF2mCbE8PuxWm0NXCkmC3M_XwSbbuF3x5JWV9aLCdjQPD2kvAANwAm2a-GpSs26wJwqHhAdbuIOeYJDqG26iwzio44Xw8Zq7UlVUBtWxdQds43BhItvpoaZfBwxrd2CeuOOvvyso6zY5H2t0barEGeQHhgNr-Ntke6TSC--VvRA3Pm1UteCW4gv6pxv7JtggCie20ft4UCcbE8E49rOp2ESh0nCsoGOhvkojfOCZZVWpoTp8mF9WF_tTflp4vn98KRTuwwA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aO0mPuWMuOilTSyPM-KyssoOOxv4TLTrzdpyNGmYuIW8XmGuRof697DvDLJFCf258I9osg1hvr5HV6gpszw-siGGsU_rk4l9dE4_EqaSufsgaBRTIR_hJ7arAUWh19EOhi42Ksolu-eK7U8_ZsIm4iF3-YMy1Wv9446jFzlayzAIg3P4UKXZ9z_Gd6ottRLyZoeTFgI2Y4SnExeAfDL3GCIRA2vXTX9mF7xnf4GOphsRAkCWX8_yfzxjiXALMA8q9z_tXEBIC0DN_tRj8OpUGSPoiZH611lMoHPFyG5PyjKc-BYIDg-Aoned8z8xhZa0AOuKjmBADAyOXPZ63Q7WEg.jpg" width="400"><br>
 
 قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام علی‌سینا مصطفوی، زندانی سیاسی، خبر داد.
 قوه قضاییه او را به دو مورد تیراندازی در کرمان، در فروردین و اردیبهشت ۱۴۰۵، متهم کرده بود.
