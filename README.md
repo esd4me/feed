@@ -3,8 +3,66 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-15 15:48:43 </h5>
+<h5> 🟢 Updated at: 2026-10-15 21:00:12 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-15 16:26:17
+
+<img src="https://cdn1.telesco.pe/file/UPgSVU-bb76VPg579OAs2PVpW4NeHjxZRuABhY3S-GiK2bND8MDENGM_a4MZ8h7yidPSyBaaTaeAj_xICGaUlcW8cqm2HMtReGvGIzSTu9F67xysp8ysC0t9HEdYETKhtEUciPlHAJaZm5zKs8OJ5CC1_A5uE2I8fgT9Olb-cpJCXPvRA-zA0FlcPx8MG9-K6z08Z0niQcJ76I0-f0czSRTdueKloH_L55P8tbfZydwtgKUZVnEXqHbXcA-GLHg-k0EzKpKfAYVdKbLpPsKIpTG2iZZvuC1_HZaxcC9lMAjJ3P2IvQ5PXnGblLu6fWtFM9g385EZ5o-b5XyEvYJBlg.jpg" width="400"><br>
+
+سخنگوی سپاه پاسداران گفت حمله به سه نفت‌کش در ۱۵تیر ۱۴۰۴ «خودسرانه» نبوده است.
+حسین محبی تاکید کرد که حمله به کشتی‌هایی که این نهاد آن‌ها را «متخلف» می‌خواند، پس از امضای تفاهم‌نامه اسلام‌آباد با هماهنگی مقام‌های بالاتر انجام شده است.
+او این حمله‌ها را «پاسخی قاطع» به آنچه سومین نقض عهد آمریکا خواند، توصیف کرد.
+@
+VahidHeadline
+حسین باستانی:
+بعد از مدت‌ها گمانه‌زنی محافل رسانه‌ای در مورد منشا حملات ۱۶ تیر به سه کشتی تجاری در دوران آتش بس موقت، حسین محبی سخنگوی سپاه گفت: «حمله به کشتی‌های متخلف بعد از امضای تفاهم‌نامه، نه اقدام خودسرانه بوده و نه بدون هماهنگی با مسئولان بالاتر.»
+با توجه به اذعان اخیر سخنگوی سپاه به زدن سه کشتی در «هماهنگی با مسئولان بالاتر»، یادآوری بخشی از مقاله ۲۱ شهریور بی‌مناسبت نخواهد بود:
+«استدلال محوری فرضیه “آتش‌به‌اختیار” بودن حملات ۱۶ تیر، حمایت مقاماتی رسمی در جمهوری اسلامی از تداوم آتش‌بس بوده است. در این فرضیه، دفاع مقام‌هایی چون مسعود پزشکیان و محمدباقر قالیباف از تفاهم‌نامه اسلام‌آباد، به‌عنوان شواهد مخالفت “حکومت ایران” با از سرگیری درگیری در محدوده تنگه هرمز مورد اشاره قرار گرفته است. اما استناد به اظهاراتی از این نوع برای توضیح مواضع “نظام”، به معنی نادیده گرفتن ساختار واقعی قدرت در جمهوری اسلامی ایران خواهد بود، که تصمیم‌گیر اصلی آن نه افرادی چون رئیس دولت یا مجلس، که اصطلاحا “نهاد رهبری” است... صرف نظر از اینکه تصمیم‌گیران، اجراکنندگان و استقبال‌کنندگان از حملات سه‌گانه، بعدها به همان نتایجی که تصور می‌کردند رسیدند یا نه، آشکارا آنچه در ۱۶ تیر به وقوع پیوست، “آتش‌به‌اختیار” نبود.»
+@
+HosseinBastaniChannel
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78734)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-15 16:22:11
+
+<img src="https://cdn4.telesco.pe/file/SJMyqXP59btEh68YK9bqYJFCdry35ITVEvy2WbKk3Z5MUGamhrlob7UHT-4kEuhkDbb_PTnDkatSLPn5gQZwHd3UsGdOsPnD995pY33TGshEAMdruX7tr0368rooHkBVm6itKjzCpt8sD7AlfD2VW1_QadhoSpvbre41U7QZIfDyLXiAGMILDN3jR_txd47Xa94EJ7Mn3rdm7lG37gVeqQsGFGg_dygNYqTZm7PHrpicE6ez2N_L3Pl6NnGbmqLL3nzhIwfdq9zB4eyv0gGhgXIK_sfiKfU5muZx-x9ifSiebw0scDwA6wxWPefJs9hPSdEHkUn7Voc61S-Lw5kiUA.jpg" width="400"><br>
+
+رسانه‌های ایران گزارش دادند که یاسر طاهری، عضو جامعه روحانیت مرکز مازندران و امام جماعت مسجد امام حسن عسکری در منطقه راهبند ساری، روز پنجشنبه ۲۳ مهر در خانه‌اش به قتل رسیده است.
+براساس گزارش‌های اولیه، این روحانی با «سلاح سرد» کشته شده است، اما هنوز جزئیاتی درباره انگیزه قتل یا هویت عامل یا عاملان آن منتشر نشده است.
+از این آخوند همچنین به عنوان رئیس قرارگاه محله مهدوی جنوب شهر ساری یاد شده است. او همواره بر جایگاه بسیج تاکید داشت و در سخنرانی‌های خود از جمهوری اسلامی حمایت همه جانبه می‌کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78733)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-15 16:21:57
+
+<img src="https://cdn4.telesco.pe/file/P2q6kdnY6lSvSUcqctAKIbUoaHo0jUkqJjct5WwsmEg3a-gNpZyNqbGs4vz4HN4GOxSnFtNduUIOyHDuzRwykg2dAn26bBy6hbYZ1e50AVqH0ihNFAHUTCbgTXpwsbr5IRhuD7YXdXEishVxlPizmNqmlIPCMKRb11i3efnY6rkS9irK9Z5Jus-WfHChDGsnLgGI-rxht9HgT4RIu0E7RKKlK1vQWQ_ouCicfKaRoJ5acKdSWTUwE403qtABWjrj5i3GOEP_KAG_IPpujTbEvXkWGe1cPCxbYDQICfImayIfNgBY0jbvRVoA1S5E2vQU4Mg3bfmRk7boGhBth-G2xA.jpg" width="400"><br>
+
+حکم اعدام «احمد پرویز»، وکیل پیشین دادگستری که به اتهام قتل همسرش «منصوره قدیری‌جاوید»، خبرنگار و پژوهشگر خبرگزاری ایرنا، به قصاص محکوم شده بود، اجرا شد. او آبان۱۴۰۳ همسرش را در خانه‌شان در شمال تهران با ضربات دمبل و چاقو کشته بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78732)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-15 00:17:26
@@ -100,7 +158,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-14 16:38:49
 
-<img src="https://cdn4.telesco.pe/file/QxRXcJEg8RzeRlhSdLlgs3-k_I72gx3Y9ShRvNioN-7gwVIw5Wd_F7AqIkaaYJf0CA5vbRhRetjEyygeAVzAKVFKM6NVzfSwtZ0eYIE0UFFfbDGMiueMX1nuEauZfBfgqH2QZNgE8cSlOTNpa9aypQcUubsNBsx5pYT2zaZtd5Yv51oCPjldm635aB6Z9zG1EKRrRVNkYKYPWXzGRs8n5mSux30QPb-OUpfamXI0XpS2pKTAyPfQw61bLakltx3KK2aLyV1gm7tMH4j7yprXnVP7GaKEbtzxV0O9zHZTedibzt6z74YmHAh7tuKYRQhE2hw9oYEytCisB30D9iguBw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NXWGebkAksAYOnJXcnZAqdplWWFFa4_VMwsJtpiZBq4b-nEe-iCMINTMTbZjVvvWsB6v9u-pf5IsOuE3GygHIgLuxG4Oy9qeX3of6Q4dSHCgjzBAP9t8r9_suEIxWsCxt1C25s2zT7AVHnRdcPaDbfYnnbJCr6WHY1fjRQ1sJrkp3ZPNMU8G3b85PCUa7TkmIO170lh9ULtrBuB2n74UBAuQXme6sp9xCBlyfQIhiZl3OKCdzLw40g2Mv04PpjHL_G7Io1z2wFhiKN1ZLPcuEGJQAcN8mdO0RxutNdRsQM6ogzQQ1Gmcd7WowmwKF2N53g5kznz_e7o-gvVkbj5RJw.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست وزیر اسرائیل روز چهارشنبه ۲۲ مهرماه و در پاسخ به پرسش خبرنگار رادیو ارتش اسرائیل درباره گزارش‌های ناظر بر احتمال حمله قریب‌الوقوع آمریکا یا اسرائیل به ایران پیش از انتخابات اسرائیل گفت: «به نظر من، این [اقدام] برای ما مناسب نیست.»
 به گزارش تایمز اسرائیل، نتانیاهو با اشاره به  برنامه خود در صورت پیروزی دوباره در انتخابات گفت: «: «در دو سال آینده، حماس را کاملا نابود خواهیم کرد، حزب‌الله را به‌طور کامل از بین خواهیم برد و حکومت ایران را سرنگون خواهیم کرد.»
@@ -118,7 +176,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-14 16:37:23
 
-<img src="https://cdn4.telesco.pe/file/uUBd2lqrGPC8IDsPR6JCny4NfbCOJoM1Y6i9E0JB5tzxaqfcCCIg-EqICHru3cm0qWdzon9w8A-rDcrWrhygI05-SKuIgAFJ2I-RYFXB4JsmBP2JjADavHQJZvYdKah7o4Kw2cSPyOHJfrNFFQrZcA2UFpT6VwIBq9OxutYQQW8Ad_NiUlkTkRPLgGFMGio0rAKEuBPWTQsD7EhfII09IZ4JsHS0hq_J1hz7jjntCjJmCHzA9smOqx5SZC54Zhzec19QiwBAaqaP5yJREEMDc6SpfTRRbyd02UcyjmrjrEQbEl8xpbZUfZfW7zlWZoS0CgLpygmbL-3PCmQblc97Mg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/UufBAWvwTgLmkAsH02SJDQ-yaXrFDhODYOTO97Z0_UldeEOzJcq7ycl81CRQZpk9bJ9khvhj8h4jUrgfl0wvKXRJJ6mZIzw_WG9DBTTx_maJDNaJunGDDIIK8KBL8N5aShFQ3bzGDcZUp0xvC_HCa-Qr7zq0zWpLwMMujudOQ2yvxCy09FYB5EYNy9OmwaJY1GGiN6EKSUeKP4j8nGKGww4UN4fsdS-UJwOx5oKiNa7sokL8sjC9SN1HiEP5Wy_rc3DLONfsN_68k11UiKBjgVGRSTCLOyzsZx9ynztnTpeL4AD_SIUhi6oAZoy1Ir5J-8o6txnbyEwfUfsRloe3Gw.jpg" width="400"><br>
 
 استانداری هرمزگان تأیید کرد در حادثه‌ای مرتبط با یک پهپاد ناشناس در آب‌های سیریک سه نفر مصدوم شده‌اند.
 منابع محلی خبر داده‌اند یک شناور صیادی در محدوده صیدگاه سیریک هدف قرار گرفته و یک قایق صیادی مصدومان را به ساحل منتقل می‌کند.
@@ -137,7 +195,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-14 16:37:05
 
-<img src="https://cdn4.telesco.pe/file/MwGaq_yuJmJ42NKLCrzP8Qo8r_V115e14L0O6cy3wSsu8PIQj0qB0fA66thzhyhFnV11H1sfSkHJHW_WI8YUis6kHrbE_bKXuztn5t5uBXr4BLNWNLKw95aSR8P8IILA929fK6QbU1xhxK7kXM1dUlE0vku2HAMLREwM_Wugx1-W3HE5GMLvVJI4gtDtGk2Z5CasyBtdNWpIYsgDvCRjTBksEwdDvX6BI1NhpiomfChRV5wKOeY6sgfGzgpNCfWSGhnUtFQWQKkx049RiduzM9piSdpAcF7L0lCKwr8N13d-SXLqJHlM4brsFL85c27tNbqNmK8UoXjk-gvwM1tCMQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/caI4JgqJAl5UWRFEIwz7vajNsVO3K8WxNOrpksZWAYCwjvAOdneP7m1yJiC4hPzwj-t6zRlQh2pQyjByd6UoVLk1DPQ9h19cPv3_m6y1r7LZcEj2PtkmGQndE0vdKsN_mbLel_si9H9ncMUMssXgmyujQ0JJ-nfUa10xxh5-v7Vy0zJO-CuvbhvN88j3VuqHpJ6f20Mum8s3py6SQ3nhbOzt9hGIxLyXCczAjLq-Ve03Th7CHhcFaINCncZnrrd2amWO8fwWiznhQ9gvgnMTMkjLfb46Qek4wcDdJgFSqxsioq5PK_y6AqI5_OTai42jyzFpWECvd2n0MdTWjR3DPA.jpg" width="400"><br>
 
 مقام‌های استانداری سیستان و بلوچستان روز چهارشنبه، ۲۲ مهرماه از کشته شدن یک فرمانده بسیج زنان و یک مامور نیروی انتظامی در دو حمله جداگانه در شهرستان مهرستان خبر دادند.
 به گزارش خبرگزاری فارس، وابسته به سپاه پاسداران، افسانه عقیلا، فرمانده یکی از حوزه‌های بسیج زنان شهرستان مهرستان، در پی تیراندازی مقابل منزلش به قتل رسید.
@@ -156,7 +214,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-14 16:36:09
 
-<img src="https://cdn1.telesco.pe/file/jmA7UqQNhIQPypDxz3PY6yInS0_gzmavYgxO3ShydcE_g3eAe_KovtHiRArncjeVGejz3SMaivaWVZQmgImcXRr_LPysC5TLo3EkFe2vtIA2pNveLwLLn0qmHtlbjqsFUuiULV_eiCQFvJhR_QIpGDVJQAJ8p-0Tj_oglxPkiWA9yFKlpK70NDM86hCHx0sKccw5nLzvkJLsOyBv9FfFqhWJVHYUvoO4EGzX_ttI5LAAOobDg4Sfh-Vk4knfbrQnEsdXb1XpglqoZW0p5aT50daWBhlIfRmT6XxjpR6myUxQ6zivkYCYiy0qW6YCQ9ri831xBjUo87aBToLJmV-R1A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nCKHny50sizpKdGJHjVYah0pCEHa-0gmJ1YeVds2cpizcefr1IvaHsNneVCtoQDP677xYaVEIo7wbo6emvyE6TWC5LylUD5HiCZfBv0pAy-eVTb-DQ0TU7-kmcazgdAkfkw9559tR22ioJKb5Ef0STs4ofpOnfNu59ptzbfsOA3vbsQ465IK92iG5FqULbIzhep5rjAZ8uVN0L1YlKiGSTg2zsTTLpcQ7JqPiLaae_yk10ScU6rsIUQ-sGo0bkp_dwRJP_f8vUz629m07MCL3Go2QBmBV_3GBGJbM5qqsefizrAsOdLaffu1AP6VD6WQ4pOctO20mqW8hPtNZkOofA.jpg" width="400"><br>
 
 فرمانده انتظامی دهلران، اعلام کرد که یک مرد ۵۷ ساله با استفاده از سلاح گرم، همسر و سه فرزند خود را به قتل رسانده و سپس به زندگی خود پایان داده است.
 بر اساس گزارش‌ها، این فرد محمد محمدی نام داشته است و قربانیان همسر او، دختر ۱۳ ساله و دو فرزند دوقلوی ۹ ساله بوده‌اند.
@@ -221,65 +279,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78715)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 23:35:47
-
-<img src="https://cdn1.telesco.pe/file/rzQLiv7_x0Q5rpI3Aeq3ri1xy4sZDNuKk5vSlXVSDCqBvxEbxQzP0EV9uFt3b4obj29h2qv-4hxQLrYfVB7MtSTQ6HiAm8Yb8KpE_98fF9fL3Z73tAmOmiiU0tXRfAXwA89HUrFR_Js_WV05R1lVZxQh3Ets1FT2N_YspU0sdTuvsVLLPCg9mmJJp1lywMqhO-B0udOma7sE-49HUMtNY2KZ-0iuBpCuGrfXabqA1GECFllBGtktqSo51y8VaRaetwjrRE1G-5KpmvOyNquz52c85Mxo0xUeXzX9k15phkBgtWI0pEzx3oEMTsXm_wZMYbSxtyH_tjCu5hxwM79rag.jpg" width="400"><br>
-
-در پی هشدار مقام‌های عربستان سعودی دربارهٔ تهدید حملات هوایی، روز سه‌شنبه ۲۱ مهر صدای انفجاری مهیب در ریاض، پایتخت این کشور، و چند انفجار در نزدیکی مقر شرکت نفتی آرامکو در شهر ظَهران شنیده شد.
-به گزارش خبرگزاری فرانسه، مقام‌های عربستان با ارسال هشدار به تلفن‌های همراه ساکنان ریاض اعلام کردند که این شهر با «تهدید هوایی خصمانه» روبه‌رو است. خبرنگاران این خبرگزاری اندکی پس از صدور هشدار از شنیده شدن صدای انفجاری شدید خبر دادند.
-هم‌زمان، شش منبع به خبرگزاری رویترز گفتند که صدای چند انفجار مهیب در نزدیکی مقر شرکت نفتی آرامکو در ظهران، در شرق عربستان، شنیده شده و این مجموعه تخلیه شده است.
-یکی از این منابع از مشاهده دود در مقر آرامکو خبر داد، اما این شرکت هنوز واکنش رسمی به این گزارش‌ها نشان نداده است.
-ائتلاف نظامی به رهبری عربستان نیز اعلام کرد که قطعات ناشی از رهگیری یک پرتابه در منطقه‌ای مسکونی در ظهران سقوط کرده است.
-مقام‌های عربستان همچنین در استان الشرقیه این کشور هشدار خطر حمله هوایی صادر کردند، اما اندکی بعد اعلام شد که تهدید برطرف شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78714)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 22:41:39
-
-<img src="https://cdn1.telesco.pe/file/qtTCaDYB7Y2U2WkaJGtm5NqHETrTfy8vVJsNmvr-gmkR94y9ngitXp0rk85JYuzyIJxSDZe_RQG6G3BVBFyLK3d4gsxmJp8w1QZ286hp4yhxDQU8Fjw3iv_a8c_F5dMOnhT89pKJqBkZUBEw7QcaEYl0ZUpI1sJYURTQByQVynRrZEH7kQomqTCE5ZxdDh-lwy2MpGDv3F6ykDhCfmpITv_WPIiY5DRXYjiyGqomaKvNnR7O--x0OkA7Dxr7Br_zP_56LqqcaZorEKrexlUNhCO83-kHpfmAsjBbdOJOerFoviyL2eA9Ehp0mSLMxG-IeqZkfHRZ_7gEj0N0gmDZeg.jpg" width="400"><br>
-
-UKMTO:
-مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در تنگه هرمز دریافت کرده است. یک منبع تأییدشده گزارش داده است که یک نفتکش بر اثر اصابت پرتابه‌ای ناشناس هدف قرار گرفته است.
-مقام‌های مسئول در حال بررسی این حادثه هستند.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78713)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-13 19:49:49
-
-<img src="https://cdn1.telesco.pe/file/O12jlyT-pItDoqr24DBqPZGIyJ9Kr7ckuLHo8MLfGctwOTOAn0KCLeamuG1JxED7-p6OXTHf_sWdl5Uep71Bq9oPdy_vsGVbrtwMpazVExOE_-f4T_jTnwgDxFURp78hHzfEvzzBe5rFAGJkFMZzs3vEJFT5cZwRQQJZgnEY17pqJJKLRbdbFpFbp2eY4agNcwWSJE0CHBTv4clyuB6EP_BczW11RAAFOPnz71c82U1k4QiUoadqkF3v3h7hRG_mg7AfCHFXN7zYnc_CKvDq9iqq4PnjIhpRZ_-puZz9cfXNcjZZmQKx3TFHdFoZV9cnU1-At1rN6BYD9B5t7dp6Dw.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-حوثی‌ها رفتار بسیار بدی دارند. فکر می‌کردم یک سال پیش، وقتی آن‌ها را به‌شدت بمباران کردیم و به درخواست خودشان حملات را متوقف کردیم، درسشان را گرفته باشند.
-مدت زیادی ساکت بودند، اما حالا دوباره سر و کله‌شان پیدا شده، احتمالاً به دستور ایران؛
-کشوری رو به نابودی که نه نیروی دریایی دارد، نه نیروی هوایی، بدترین اقتصاد جهان را دارد و نرخ تورمش ۳۰۱ درصد است.
-حوثی‌ها به شکلی بسیار زننده دوباره وارد عمل شده‌اند، به عربستان سعودی حمله می‌کنند و عمداً می‌کوشند قیمت نفت را بالا ببرند، احتمالاً پیش از انتخابات آمریکا — اصلاً کار قشنگی نیست!
-یکی باید برایشان توضیح بدهد که من در انتخابات نامزد نیستم. من قبلاً پیروز شده‌ام، آن هم با یک پیروزی قاطع و کوبنده، اما بعد از انتخابات هم سر کار خواهم بود و هرگز فراموش نخواهم کرد!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78712)
 
 ---
 
