@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-15 21:00:12 </h5>
+<h5> 🟢 Updated at: 2026-10-16 00:14:26 </h5>
 </div>
 
 
@@ -104,7 +104,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-15 00:15:28
 
-<img src="https://cdn1.telesco.pe/file/VyJWJ7DH1aFVqwogzBZ-uf9vx8dHUTQhloyRDAwdCn2q8-zqQy6Iad8uC2FyBtuWoIIJvkzx82O6Qk8Bdwt1vi_K159yiyiHEjLe7djWC5qqNdQyGACyKYZsupulBc7vdMbVpUsVHQTxpim1tVbnnCAuAQu7-QawyZsAaXI6li8vubk9NMRSFwKb8GvOF0GvD5czz7Y4E1oSD4CIvdm8xn7viinglrviCWuMkmH9EnMhBlW4NnIRwA6wo92tXBvwd0oUEZ0Ai5W_RHOxD-WHVcu_or4e9UJxakfhSUn1g-L--HGMKv7SWLsfhndoihR-1hdr_eP2P-V8uDsilDgLMw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/st5ogv9-ZUeVZJnr-aWYx_Pl0cuDtkffsy8W7tpidkC7YMrfY1EocbwJoE6k3kctnO1k3WXnRaeiCC1HCsPyDVJdr9F21-fe_ChCDG0ywCVCwgkoPw9E_odrwbpkJBbyUydY3daBc2EMgt2malQ-eX34rpg9rJdj6-8RFNyU2gxsNE-zfkzEzyP7ScN2c4EyJkdAFKfZy0fwv1xmNuD7Pfisi5q_A5UA5lTzIhojMpec0PelRPLDYLCT00jqPc6_dHT3nbbHyn5ZcKXbet2bUQng2TxutjGhoJhOyFCXkg9to3W9rNUD9J2M_NCptAHPmXNmdSiakVVrDAdW3YWuiQ.jpg" width="400"><br>
 
 وکلای وریشه مرادی روز چهارشنبه ۲۲ مهر اعلام کردند شعبه ۱۵ دادگاه انقلاب تهران که پیش‌تر این زندانی سیاسی محبوس در اوین را به اتهام «عضویت در گروه باغی» به اعدام محکوم کرده بود، با وجود درخواست دیوان عالی کشور برای بررسی «نقص تحقیقات»، بر حکم پیشین خود مبنی بر اعدام پافشاری کرد.
 امیر سجادی و کیوان عزیزی، وکلای وریشه مرادی، در گفت‌وگو با «امتداد»، با اعلام این خبر تصریح کردند که روز چهارشنبه ۲۲ مهر با مراجعه به شعبه ۱۵ دادگاه انقلاب حکم صادره توسط این شعبه را دریافت کرده‌اند، و مطابق حکم ابلاغی ۲۰ روز فرصت دارند در دیوان عالی کشور فرجام‌خواهی کنند.
@@ -267,7 +267,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-13 23:38:01
 
-<img src="https://cdn1.telesco.pe/file/bBEcoufs7dmieeoGOQ0TmQjx1WbQbrYPuktGcfsZ1HGUl3H-j189TgMeRWVmcLyG9pUn6GMfdrvrdnzI9zbZtnxQN7rdzK8z1gDK9PT091MWa1Z8FBu6emTPB50b9jGUvvKOr_dt1GZGL5dXEjm9VvteHxjf0XEcCIFkxMdMUR6UyPJ6yyK09K2fwmLMg20qknUCO70oGWU5NtNPHHOa4Qram74Yw_22IJJj_2xkw_OBSglBA9E7JVZH0px_YQWGxRSu7wTRR4T2wbBV_s_hdUA-guDPGpKlthAexfR2rcQ-0COw5Gr26zBsnIkcCyCcpJc0Y3exnDK-jtsBFDyo2Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IPmxZBt_numt--Up2x2J_8hCdSTRbP384-vrV21OBSVZ7XEjkdYfOozy_3CtpEI-KXPN5C6-0xZP4apkqp4DVTyp088Uc9FiJmAGh2zEEMTkW_fTwqAHL-uyz7gLHHyXKbxabZiADm0CMOmLceiJ702e7oRV-8k94_wCOfxMY52_A0_KZWn0mJfrL35D0gK5HQBKRCjSMcIGKqIOYyxHQGCO9XQYNY9TMeUCGFuql-qLIvZz8mkT8VgBpp0dzLyQwrUjwEFtuPCgU1pobkV2qKNKK7hqpW6sEscRz0NMcyA27iYz-Agk3rco9XodgLFDsJbsw0RDjY8ni1c_6XHoCQ.jpg" width="400"><br>
 
 اکسیوس سه‌شنبه ۲۱ مهر به نقل از دو مقام آمریکایی، یک مقام اسرائیلی و یک منبع آگاه گزارش داد بنیامین نتانیاهو طی دو هفته گذشته چندین بار با دونالد ترامپ درباره ازسرگیری عملیات گسترده در ایران گفت‌وگو کرده است. به گفته منابع، دو طرف احتمال عملیات مشترک آمریکا و اسرائیل علیه اهداف نظامی و هسته‌ای ایران را بررسی کرده‌اند.
 نتانیاهو درباره اقداماتی که اسرائیل معتقد است جمهوری اسلامی برای بازسازی برنامه هسته‌ای خود انجام می‌دهد، ابراز نگرانی کرده است. اسرائیل به‌ویژه نگران احتمال استفاده جمهوری اسلامی از «کوه کلنگ» برای غنی‌سازی اورانیوم است.
