@@ -3,18 +3,22 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-16 05:51:27 </h5>
+<h5> 🟢 Updated at: 2026-10-16 11:11:45 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-10-16 05:11:03
 
-<img src="https://cdn4.telesco.pe/file/KGmvp2R4J9r9RpHuiq0qTEeJ2IYFMBNVjdF0YkSW2atq9tFWB8a_UqqVtYkN1wxTm556cnPGDGiTcST2IRNdxe2hS-4M5EUQBN58BOa2dtVe811gRPMeqD7RZbJj--a-TVoF2ybNbHURljkMo5VaGCNTgRIeG9yxZ1VY6rKBxh2EOMBewXjFDjz6eEQQ6av95Vj1DegckqqloVHPMOHM7tyVQa4knA2lF2tOhyI-syvJRrhkFxpab4aMoW9K8QE8a3kkUaKyNUN7moE1pXrZfLgqMKtcv0-bL-AQ6Lxu419IXHvPR2d-QpsMO5vWWi_TvtyCa4Xr_1Q21ng_kQUDIw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Fa2yfxo8WIP1qvmrC2dmyl8h8ncQKzkHNOrISS-nViXEe_v1f8yMv50AzyhIElMO64kD7dc7mJlsFOb5Cy5CNG47MwGFrajOdXCiQB4jo2PtWth1BFa4Dg2Y0et9srTfLMjFZb9RaBH4VHFK1H-1bu1I-OIpeXXErQt_x--aQ7YtJkGaw2lCV2nw-OkLRhQsMaPdR9-YXCrejHNE_yomeoaQDNfdgHVbt1rN6vr2RTdFFtFNP_bSPiAVk6JkB7AqPvk2QvPVKsQ7kD7W9hjswPxSVBiacz8jRt4UWLBXtxlKn38bTVm5tE5mfd2WYn7wihaQLiexXoKE7Wt2sX33sg.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری ایالات متحده، جمعه ۲۴ مهر در گفتگوی اختصاصی با شبکه خبری نیوزمکس، در پاسخ به پرسشی دربارهٔ گزارش‌ها از احتمال استفاده آمریکا از «مادر همه بمب‌ها» پس از انتخابات میان‌دوره‌ای علیه ایران گفت این سلاح هسته‌ای نیست.
 ترامپ گفت: «این اصلا هسته‌ای نیست. فقط یک بمب بسیار بزرگ است؛ شبیه یک بمب هسته‌ای کوچک است.»
 او افزود: «از سلاح هسته‌ای استفاده نمی‌کنم؛ نیازی به آن نداریم. ما بزرگ‌ترین قدرت هسته‌ای جهان هستیم. از نظر تسلیحات هسته‌ای از روسیه بیشتر داریم؛ روسیه دوم و چین سوم است.»
 پیش‌تر، سی‌بی‌اس نیوز گزارش داده بود که کاخ سفید و پنتاگون طرح‌هایی برای استفاده از بمب «انفجار هوایی مهمات عظیم» موسوم به «مادر همهٔ بمب‌ها» علیه مراکز نظامی ایران آماده کرده‌اند؛ طرح‌هایی که در صورت صدور دستور دونالد ترامپ ممکن است اجرا شوند. یک مقام پنتاگون نیز گفته بود وزارت جنگ آمریکا برای طیف گسترده‌ای از وضعیت‌های عملیاتی برنامه‌ریزی می‌کند و سخنگوی کاخ سفید تأکید کرده بود ترامپ برای جلوگیری از دستیابی ایران به سلاح هسته‌ای «همهٔ گزینه‌ها را روی میز نگه می‌دارد».
+@
+VahidOOnLine
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، جمعه ۲۴ مهر در گفتگوی با شبکه خبری نیوزمکس دربارهٔ ایران گفت آمریکا «کوه کلنگ» را بررسی می‌کند و افزود ممکن است این محل هدف قرار دهد. او گفت: «ممکن است مجبور شویم سراغ آن برویم؛ آن را هدف قرار دهیم و سریعا از بین ببریم.»
+ترامپ در پاسخ به پرسش خبرنگار دربارهٔ احتمال اعزام نیروی زمینی به ایران گفت: «نه، چنین چیزی را در نظر ندارم.» او همچنین گفت هدف آمریکا این است که ایران هرگز به سلاح هسته‌ای دست پیدا نکند و افزود به باور او، ایران در صورت دستیابی به چنین سلاحی «فوراً» از آن استفاده خواهد کرد.
 @
 VahidOOnLine
 📡
@@ -250,7 +254,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-14 08:41:18
 
-<img src="https://cdn1.telesco.pe/file/aO0mPuWMuOilTSyPM-KyssoOOxv4TLTrzdpyNGmYuIW8XmGuRof697DvDLJFCf258I9osg1hvr5HV6gpszw-siGGsU_rk4l9dE4_EqaSufsgaBRTIR_hJ7arAUWh19EOhi42Ksolu-eK7U8_ZsIm4iF3-YMy1Wv9446jFzlayzAIg3P4UKXZ9z_Gd6ottRLyZoeTFgI2Y4SnExeAfDL3GCIRA2vXTX9mF7xnf4GOphsRAkCWX8_yfzxjiXALMA8q9z_tXEBIC0DN_tRj8OpUGSPoiZH611lMoHPFyG5PyjKc-BYIDg-Aoned8z8xhZa0AOuKjmBADAyOXPZ63Q7WEg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/O48UTzLD3xpZKQ5xN-c239VK5zg880VN-m7Y8ZgrNxakMjLxRe0CiQBJ4J1dVmp-xlBPmEv8FV1Yj2HGiJ6hFK1aQtEcsDZ4EvkWKF5LSlM-xkqAU7vkdxip4lhaIMIbaVQ6e2YqgJ1MXPvm6G271UWrPsErwKg9h-_8WuMEIYw5lHrIuWlBz_NyQq_KlAZW6GzAD3cpeYslSZsPaB3p7IRuRQ53GsGYk9xd5bqdoufqhJ9POH05Rgawqf1hltT5GUO_cWfy-2zgAH2UaJXfZ7f8A32bVoCfuPJ6B3hR4GXEORrHfD8HubEkQk4tUfRj5RWh5E-ZTmdhtYpSi8AXsQ.jpg" width="400"><br>
 
 قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام علی‌سینا مصطفوی، زندانی سیاسی، خبر داد.
 قوه قضاییه او را به دو مورد تیراندازی در کرمان، در فروردین و اردیبهشت ۱۴۰۵، متهم کرده بود.
