@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-16 20:35:38 </h5>
+<h5> 🟢 Updated at: 2026-10-16 23:46:55 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-16 22:03:33
+
+
+
+خبرنگار اسکای‌نیوز با اشاره به دشواری انتخابات میان‌دوره‌ای پیش روی ترامپ، کاهش محبوبیت او، افزایش قیمت گازوئیل در آمریکا و پیش نرفتن جنگ خاورمیانه مطابق خواسته رئیس‌جمهوری آمریکا، از زلنسکی پرسید: آیا فکر می‌کنید ترامپ از شما به‌عنوان سپر بلا برای مشکلات خودش استفاده می‌کند؟
+رئیس‌جمهوری اوکراین پس از شنیدن این پرسش، لحظاتی سکوت کرد و لبخند زد. او سپس بدون ارائه توضیح بیشتر گفت: «پاسخ من همین است.»
+این واکنش با خنده حاضران در نشست خبری همراه شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78739)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-16 18:05:41
@@ -167,7 +185,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-15 00:15:28
 
-<img src="https://cdn1.telesco.pe/file/st5ogv9-ZUeVZJnr-aWYx_Pl0cuDtkffsy8W7tpidkC7YMrfY1EocbwJoE6k3kctnO1k3WXnRaeiCC1HCsPyDVJdr9F21-fe_ChCDG0ywCVCwgkoPw9E_odrwbpkJBbyUydY3daBc2EMgt2malQ-eX34rpg9rJdj6-8RFNyU2gxsNE-zfkzEzyP7ScN2c4EyJkdAFKfZy0fwv1xmNuD7Pfisi5q_A5UA5lTzIhojMpec0PelRPLDYLCT00jqPc6_dHT3nbbHyn5ZcKXbet2bUQng2TxutjGhoJhOyFCXkg9to3W9rNUD9J2M_NCptAHPmXNmdSiakVVrDAdW3YWuiQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/S1UJtgttCXWJyYd3FfkipWYpA5UY-E896HmvJyPA3ue1XC3MJsDNlRiAaZwIXWzzIGeU5BJDo77gqv1hwSkcABmioRdGgob6WHC8607_cam3IDSQDuRWdrFjKh3hgV0_3WwR0Hw-sDCPp0FVlf-_QsguHY2tAJmuqreyPq-cXTOSV8KVd15lfg-gkYvY2GMB1Rg9-BxdpMoxyTvEH9kZPSChdRS1bk4jKKOaPmxY0u6JRmVlUaJZYfKi-hvzgbWgnVTWPej5MKWgxKyqRCm3FjI_FnEF3XI4lNG8u7halA-YCKyipiF02Z0pRvNLx3yN0g30mKauj4Np7PgiefdgUw.jpg" width="400"><br>
 
 وکلای وریشه مرادی روز چهارشنبه ۲۲ مهر اعلام کردند شعبه ۱۵ دادگاه انقلاب تهران که پیش‌تر این زندانی سیاسی محبوس در اوین را به اتهام «عضویت در گروه باغی» به اعدام محکوم کرده بود، با وجود درخواست دیوان عالی کشور برای بررسی «نقص تحقیقات»، بر حکم پیشین خود مبنی بر اعدام پافشاری کرد.
 امیر سجادی و کیوان عزیزی، وکلای وریشه مرادی، در گفت‌وگو با «امتداد»، با اعلام این خبر تصریح کردند که روز چهارشنبه ۲۲ مهر با مراجعه به شعبه ۱۵ دادگاه انقلاب حکم صادره توسط این شعبه را دریافت کرده‌اند، و مطابق حکم ابلاغی ۲۰ روز فرصت دارند در دیوان عالی کشور فرجام‌خواهی کنند.
