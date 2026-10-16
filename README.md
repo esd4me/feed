@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-16 11:11:45 </h5>
+<h5> 🟢 Updated at: 2026-10-16 16:22:01 </h5>
 </div>
 
 
@@ -32,7 +32,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-15 16:26:17
 
-<img src="https://cdn1.telesco.pe/file/UPgSVU-bb76VPg579OAs2PVpW4NeHjxZRuABhY3S-GiK2bND8MDENGM_a4MZ8h7yidPSyBaaTaeAj_xICGaUlcW8cqm2HMtReGvGIzSTu9F67xysp8ysC0t9HEdYETKhtEUciPlHAJaZm5zKs8OJ5CC1_A5uE2I8fgT9Olb-cpJCXPvRA-zA0FlcPx8MG9-K6z08Z0niQcJ76I0-f0czSRTdueKloH_L55P8tbfZydwtgKUZVnEXqHbXcA-GLHg-k0EzKpKfAYVdKbLpPsKIpTG2iZZvuC1_HZaxcC9lMAjJ3P2IvQ5PXnGblLu6fWtFM9g385EZ5o-b5XyEvYJBlg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/HOzM8kpSDikdlOOo1GvZhjHPEsikgBTxgs9OkEzdaJajZUef1MtiTYJk79YRm_hGI2LtSRLi_FeJDr3_zn6dlf8py5A-nddG5TR2CBxHLc2ng7q63X6ci_w_-IiWvSIWkOvT8PQqJLVcuvLz8Ho7ZuGcdui9L-43IMPw4pbWP40PObdTF7gkyG7oknWPTrx4Rdztf8WUAarPBu6UVIdwidU7CM8vNP52cvq0LA58UvlKJMTgUu6srpJg2mmzoNTQ3IMf38vNRfqGxEL4L-tzUUfWVNsoVICfcxM-etKHb441BaXW3bmAp2k7Gn88PUdAMIrfdIRKhjC9fugFQHeZmg.jpg" width="400"><br>
 
 سخنگوی سپاه پاسداران گفت حمله به سه نفت‌کش در ۱۵تیر ۱۴۰۴ «خودسرانه» نبوده است.
 حسین محبی تاکید کرد که حمله به کشتی‌هایی که این نهاد آن‌ها را «متخلف» می‌خواند، پس از امضای تفاهم‌نامه اسلام‌آباد با هماهنگی مقام‌های بالاتر انجام شده است.
@@ -56,7 +56,7 @@ HosseinBastaniChannel
 
 ###### 🔵 Post time: 2026-10-15 16:22:11
 
-<img src="https://cdn4.telesco.pe/file/SJMyqXP59btEh68YK9bqYJFCdry35ITVEvy2WbKk3Z5MUGamhrlob7UHT-4kEuhkDbb_PTnDkatSLPn5gQZwHd3UsGdOsPnD995pY33TGshEAMdruX7tr0368rooHkBVm6itKjzCpt8sD7AlfD2VW1_QadhoSpvbre41U7QZIfDyLXiAGMILDN3jR_txd47Xa94EJ7Mn3rdm7lG37gVeqQsGFGg_dygNYqTZm7PHrpicE6ez2N_L3Pl6NnGbmqLL3nzhIwfdq9zB4eyv0gGhgXIK_sfiKfU5muZx-x9ifSiebw0scDwA6wxWPefJs9hPSdEHkUn7Voc61S-Lw5kiUA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/SFjysDPyYrhZekeBDKniInN1eVxVq3R4wTdVE8TQZRDQDg4K2NVElf5535iYpSIbqEDBAXWuchiK4RlXo5LC9sbqhariCI9qOu5tqasp14hDmszjbrrs5L7Fy1_EonGTUMTtHfCEiqY36fpwq0VZU0kJkFaxnK9Kg5i2qkuwmvNfnd-NwQTchF0SX9uZL0J2Vcdgm5Acgksz2wY7deuAp-W_ayWRVeF5pKp8Ea7dXWzQJn31jHWEuPsN9uPx9A7AVEfWKkrXLqoHk3dB4RdcW4mJPo1EsxhFJFxibjm1vtInpMdJmG0g-bIb5mTbPerFMkaQpz6ZWsrD99VBY3dWpw.jpg" width="400"><br>
 
 رسانه‌های ایران گزارش دادند که یاسر طاهری، عضو جامعه روحانیت مرکز مازندران و امام جماعت مسجد امام حسن عسکری در منطقه راهبند ساری، روز پنجشنبه ۲۳ مهر در خانه‌اش به قتل رسیده است.
 براساس گزارش‌های اولیه، این روحانی با «سلاح سرد» کشته شده است، اما هنوز جزئیاتی درباره انگیزه قتل یا هویت عامل یا عاملان آن منتشر نشده است.
@@ -74,7 +74,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-15 16:21:57
 
-<img src="https://cdn4.telesco.pe/file/P2q6kdnY6lSvSUcqctAKIbUoaHo0jUkqJjct5WwsmEg3a-gNpZyNqbGs4vz4HN4GOxSnFtNduUIOyHDuzRwykg2dAn26bBy6hbYZ1e50AVqH0ihNFAHUTCbgTXpwsbr5IRhuD7YXdXEishVxlPizmNqmlIPCMKRb11i3efnY6rkS9irK9Z5Jus-WfHChDGsnLgGI-rxht9HgT4RIu0E7RKKlK1vQWQ_ouCicfKaRoJ5acKdSWTUwE403qtABWjrj5i3GOEP_KAG_IPpujTbEvXkWGe1cPCxbYDQICfImayIfNgBY0jbvRVoA1S5E2vQU4Mg3bfmRk7boGhBth-G2xA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/I7yM6aSP5p3KjvJYTmDRRcQmTm06NOT6oYNy-vXjuJXzhRsacjxjpTXpAHdBujhvv0nPiJtyCck9DBi_pB2wEAsFz8hhJOMGEf0SZWgBaIaRxYZG0T02DMyDcnCMp07E52htMLqmmxcZsBxsKU3LctpblYE672QWwRl4dbDe-96FkX-5xoHAa7CVoDrPO62SJS-RDdxsxsjY3YYjKOv4v9SOuFRF98LkmtvKYFLyqauatk5JWl00OG1BcUwd_BcyGk94vpFgEIL-q4A2QDZzZB6PwdeM1_FFNeLlJ30LMuiWV68ImfR3GTvyKu2adEarMRlnSxkjfpek2sWb4ZnDGA.jpg" width="400"><br>
 
 حکم اعدام «احمد پرویز»، وکیل پیشین دادگستری که به اتهام قتل همسرش «منصوره قدیری‌جاوید»، خبرنگار و پژوهشگر خبرگزاری ایرنا، به قصاص محکوم شده بود، اجرا شد. او آبان۱۴۰۳ همسرش را در خانه‌شان در شمال تهران با ضربات دمبل و چاقو کشته بود.
 @
@@ -181,7 +181,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-14 16:38:49
 
-<img src="https://cdn4.telesco.pe/file/NXWGebkAksAYOnJXcnZAqdplWWFFa4_VMwsJtpiZBq4b-nEe-iCMINTMTbZjVvvWsB6v9u-pf5IsOuE3GygHIgLuxG4Oy9qeX3of6Q4dSHCgjzBAP9t8r9_suEIxWsCxt1C25s2zT7AVHnRdcPaDbfYnnbJCr6WHY1fjRQ1sJrkp3ZPNMU8G3b85PCUa7TkmIO170lh9ULtrBuB2n74UBAuQXme6sp9xCBlyfQIhiZl3OKCdzLw40g2Mv04PpjHL_G7Io1z2wFhiKN1ZLPcuEGJQAcN8mdO0RxutNdRsQM6ogzQQ1Gmcd7WowmwKF2N53g5kznz_e7o-gvVkbj5RJw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/iCC0V7xzC9JBFRow17-SDTi9ZmM_I9IPnrL20HU-hwpx4RFUO01nJtoC4-lCQ4qiN-3ZWfJ3Np6P0BEcWRa1uXdUelyjOxFgsqMMWroqopEwoxZLK09EzzEgnvxCtFi8znbqM0YbyTDnpF2Q7JbcJatEM6jbuSJMYc99r3DYtS7bwIZ447HkJIui1nv0veLUye7BphS5IkWGJl32h6PGBCGRRVYTYSBENSYIF3kq90Ez5jt01HuhOOQl88l14ptmC1GGsPaVKMGpGC4DDyv7FEBXiIGIHzA-6QMVWMA48EjzU0Kbm5txdEQ3IafuWJQabMTbb4PZGgLpjkMP1iKlAw.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست وزیر اسرائیل روز چهارشنبه ۲۲ مهرماه و در پاسخ به پرسش خبرنگار رادیو ارتش اسرائیل درباره گزارش‌های ناظر بر احتمال حمله قریب‌الوقوع آمریکا یا اسرائیل به ایران پیش از انتخابات اسرائیل گفت: «به نظر من، این [اقدام] برای ما مناسب نیست.»
 به گزارش تایمز اسرائیل، نتانیاهو با اشاره به  برنامه خود در صورت پیروزی دوباره در انتخابات گفت: «: «در دو سال آینده، حماس را کاملا نابود خواهیم کرد، حزب‌الله را به‌طور کامل از بین خواهیم برد و حکومت ایران را سرنگون خواهیم کرد.»
@@ -199,7 +199,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-14 16:37:23
 
-<img src="https://cdn4.telesco.pe/file/UufBAWvwTgLmkAsH02SJDQ-yaXrFDhODYOTO97Z0_UldeEOzJcq7ycl81CRQZpk9bJ9khvhj8h4jUrgfl0wvKXRJJ6mZIzw_WG9DBTTx_maJDNaJunGDDIIK8KBL8N5aShFQ3bzGDcZUp0xvC_HCa-Qr7zq0zWpLwMMujudOQ2yvxCy09FYB5EYNy9OmwaJY1GGiN6EKSUeKP4j8nGKGww4UN4fsdS-UJwOx5oKiNa7sokL8sjC9SN1HiEP5Wy_rc3DLONfsN_68k11UiKBjgVGRSTCLOyzsZx9ynztnTpeL4AD_SIUhi6oAZoy1Ir5J-8o6txnbyEwfUfsRloe3Gw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Qq2jkcfNYaNPRAKQpBvXJmxffqEx6OV7Nyu-hC8BezPAVQ4LR_Xn5XSgDlG9uoeEvYFBMNMF9Q2dwC_zwklOIAthRmXSuWc7UFa768qoXtMM7VHF3g_qOMaOj9VjfrGAB2iziSV3XEdkLjONLmnO_4Ub3xZ6nPhu9HN2UKgYrgQY7JDpBcU-R6fCukcjeOiLX_w_Gn4jwWizflYS1BuWK_pgNvLaDu2os-1LceI-fzjtHn8UXdAs_XK43Z1bsB9t4HmcSXVhndwyhgfIMZAB7Wf83lX8Cd6vHRUBXsRbOfRsNv2qM55oN6ycWjL7hSHuub0RIexh0iVUbBCXdfAVVQ.jpg" width="400"><br>
 
 استانداری هرمزگان تأیید کرد در حادثه‌ای مرتبط با یک پهپاد ناشناس در آب‌های سیریک سه نفر مصدوم شده‌اند.
 منابع محلی خبر داده‌اند یک شناور صیادی در محدوده صیدگاه سیریک هدف قرار گرفته و یک قایق صیادی مصدومان را به ساحل منتقل می‌کند.
@@ -218,7 +218,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-14 16:37:05
 
-<img src="https://cdn4.telesco.pe/file/caI4JgqJAl5UWRFEIwz7vajNsVO3K8WxNOrpksZWAYCwjvAOdneP7m1yJiC4hPzwj-t6zRlQh2pQyjByd6UoVLk1DPQ9h19cPv3_m6y1r7LZcEj2PtkmGQndE0vdKsN_mbLel_si9H9ncMUMssXgmyujQ0JJ-nfUa10xxh5-v7Vy0zJO-CuvbhvN88j3VuqHpJ6f20Mum8s3py6SQ3nhbOzt9hGIxLyXCczAjLq-Ve03Th7CHhcFaINCncZnrrd2amWO8fwWiznhQ9gvgnMTMkjLfb46Qek4wcDdJgFSqxsioq5PK_y6AqI5_OTai42jyzFpWECvd2n0MdTWjR3DPA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/lMY3St1MWRJuivrHeDE--HEwPjdVBRwB8rk2qAlYCjFPxieC697AbgrFB1L7w6LpjMHMQtZC8mrKmHRcLNy1egrZkD2Kx7NyQyabnqo9ggn2l7jeJTna-L54spigxL_r6FRjkExUNiZTNLMG_6_Nf9AXn98IEG8UXkuWPyGSDxrqpCSoZQXdvfAH9X_b3Wn3uorj6s_o1LDJm1HVwMuJq-7Lde10yyXaHUK7-LCZt2LeIlmkQPvC4M1SsHd7oSt_QfNmUtBPeXvOK-1LhHaMqTjqwhhqCEafMWnCKT_yhfGrVYGY7bqoX60N-cdBglXQiS9js1XBH5fycraixBg-Dg.jpg" width="400"><br>
 
 مقام‌های استانداری سیستان و بلوچستان روز چهارشنبه، ۲۲ مهرماه از کشته شدن یک فرمانده بسیج زنان و یک مامور نیروی انتظامی در دو حمله جداگانه در شهرستان مهرستان خبر دادند.
 به گزارش خبرگزاری فارس، وابسته به سپاه پاسداران، افسانه عقیلا، فرمانده یکی از حوزه‌های بسیج زنان شهرستان مهرستان، در پی تیراندازی مقابل منزلش به قتل رسید.
@@ -237,7 +237,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-14 16:36:09
 
-<img src="https://cdn1.telesco.pe/file/nCKHny50sizpKdGJHjVYah0pCEHa-0gmJ1YeVds2cpizcefr1IvaHsNneVCtoQDP677xYaVEIo7wbo6emvyE6TWC5LylUD5HiCZfBv0pAy-eVTb-DQ0TU7-kmcazgdAkfkw9559tR22ioJKb5Ef0STs4ofpOnfNu59ptzbfsOA3vbsQ465IK92iG5FqULbIzhep5rjAZ8uVN0L1YlKiGSTg2zsTTLpcQ7JqPiLaae_yk10ScU6rsIUQ-sGo0bkp_dwRJP_f8vUz629m07MCL3Go2QBmBV_3GBGJbM5qqsefizrAsOdLaffu1AP6VD6WQ4pOctO20mqW8hPtNZkOofA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/gQDdIOui2k-SUbq-WHvXNfsfqx99u-BnSvygY2aHIq5E5orVnYrvsk_gxG94PI4gVFQuP8nRf-Jc63XVqfSUEgstMuXPudK1HNP6zjyCFr4jr-uzQkO0aY0DO_W1xnrEGzOfurr3AMrErKRmNCW8p90S8MYhwiaN3JjdMxsB1izmL7AMJ0RgkuNp4pdnWko-xnODfjZYnbyOiXJ7u0XXOV9KXC1XdgjcVW8qZiENCcp_dfcpMvAD3B92k6GsGoq4pZ3uMmJ9vjJvG4apiE5Y1TEyimfP7r8ZGvmKxhMC1yrClZcJoOjKFz4buswRTPCksVQOU3CG6nkYPLtyw9bE9Q.jpg" width="400"><br>
 
 فرمانده انتظامی دهلران، اعلام کرد که یک مرد ۵۷ ساله با استفاده از سلاح گرم، همسر و سه فرزند خود را به قتل رسانده و سپس به زندگی خود پایان داده است.
 بر اساس گزارش‌ها، این فرد محمد محمدی نام داشته است و قربانیان همسر او، دختر ۱۳ ساله و دو فرزند دوقلوی ۹ ساله بوده‌اند.
