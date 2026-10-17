@@ -3,8 +3,85 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-17 15:22:09 </h5>
+<h5> 🟢 Updated at: 2026-10-17 18:11:17 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-17 16:47:56
+
+<img src="https://cdn4.telesco.pe/file/ZGxe6eXtIRhMRCDsdop3IjOA119tKIAa6JtvY5oqVRyA164csGH0aj6UrnpJAiJS8sIwdkEMZ9Esmg4ZCc1_fHvkGblTGTcHMF2PR0xyWuxRwkYGjKPY5iWqsBCxv3fPdTAIG6JeC_6nBc67mVmaTCCoDl5_BFrhy-GRbjBlf0vHDduB_2p7YtwEkB_V6j_eKGhUVDfPKuM7ePy-cp_qoJxL5e-xBCZGkWri9M1ioyp77jnpPbe3ncP5v1f5Jnl6nXXvThxrHg8tiSbvzZCAfDcA01sF-it7ugjNqESYBkFRcvNaZKgxNWzRTWzC9I35bfqP8rGsETci8iBHSG0-XA.jpg" width="400"><br>
+
+استاندار تهران می‌گوید شمار دانش‌آموزان شهر تهران هفت هزار نفر کاهش یافته، در حالی که تعداد دانش‌آموزان شهرستان‌های این استان ۱۷ هزار نفر بیشتر شده است.
+او این تغییر را به انتقال شماری از دانش‌آموزان از پایتخت به شهرستان‌ها به‌دلیل شرایط اقتصادی و بازگشت تعدادی از اتباع خارجی نسبت داد.
+هم‌زمان با افزایش نرخ تورم به‌ویژه در ماه‌های اخیر گزارش‌های متعددی درباره کوچ شهروندان از تهران به حاشیه شهر و استان منتشر شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78744)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-17 16:47:28
+
+<img src="https://cdn1.telesco.pe/file/u7rHaZU5TGbj_pWR_6YNltBvRFJpw0msKmXEpo9kvKPHnsBHDuFlMbQZLSywuaYgf-EBnrqotLnSKSdQT7XB7X_bgRV2cgLBnLsXVGgTstDAMk8P3Ytfu2cpv1uzQWx98RsJBsc7VYvCKwWIUL644hGl5zVULJ6_J43d8uTpJMyqzQK-ThH-fMAE4wS2XYkdsU79XlrX3_JoSpVxxM9LcrhW8pPiS_7aWf-uoWd77p20l4ErlmhLle6c8LiNSRK04dR11Nj41V5sjdWk6ObVzjY-pGqZTaqusL4hM45KYEGHXw-S4EPMb__PJTFZj4NKJasvoqcQGWi-RunZ9uEepA.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش شامگاه جمعه ۲۴ مهر در آب‌های شمال شرق عربستان سعودی، از سوی یک قایق کوچک با نارنجک‌انداز آرپی‌جی هدف حمله قرار گرفت. در این حمله بخشی از نفتکش آسیب دید، اما همه خدمه آن سالم هستند.
+بر اساس هشدار این سازمان، حادثه ساعت ۲۲:۵۲ به وقت تهران، در فاصله ۷۸ مایل دریایی شمال شرق الجبیل عربستان سعودی رخ داد.
+فرمانده نفتکش گزارش داده است که مهاجمان از یک قایق کوچک با آرپی‌جی به کشتی حمله کردند و در نتیجه، بخش عقبی سمت چپ نفتکش آسیب دید.
+@
+VahidOOnLine
+روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد صبح شنبه ۲۵ مهر ماه، دومین اَبرنفتکش «متخلف» پس از برخورد با مین دریایی دچار آتش‌سوزی شدید شد و در پی انفجاری مهیب در موتورخانه از حرکت ایستاد.
+سپاه پاسداران صبح شنبه ویدیویی از آتش‌سوزی یک نفتکش دیگر در تنگه هرمز منتشر کرده بود.
+نیروی دریایی سپاه پاسداران و ارتش جمهوری اسلامی ایران در روزهای گذشته نیز ویدیوهایی از آتش‌سوزی شناورها و نفتکش‌هایی منتشر کرده‌اند که به گفته این دو نیرو، قصد عبور از «مسیر غیرقانونی» تنگه هرمز را داشته‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78742)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-17 16:45:07
+
+<img src="https://cdn4.telesco.pe/file/j67us-pe4B7rrVCMVyYFdJiMmXjOCq0G7_L1_cfYSxM-iN1ejQXL1lQnOZBywUw3hSu_DhYM8WL70Zmcms0wnzI1kBDFXQ3QiVCngqNan3JOLkcl0zNr9nxgJDot_QzLI-j1loYxYLAgnT9pChV49H7N8wFUffaDB9D7TrtDhyeps-RNTvmZAwFBz9ETz5qW8mkwIr13ww5XndDQb9UBJ-kxq8-WnRZ2KFolj58DTuwUi7gT_RDzSwgI90nTLwktbepgn3t-IgoMrUYK69FYkXptKL-b5p1JZzuEDzW-LsvH7Ti_jql9suunJxLJ1TsieiKKdoH5Y6T5t1zZSDQYJg.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، می‌گوید ایالات متحده از تمام کارهای مقام‌های ایرانی خبر دارد و «تمام حرف‌هایشان را می‌شنود». او این گفته را «اطلاعات محرمانه» خواند، اما جزئیاتی دربارهٔ آن ارائه نکرد.
+ترامپ روز جمعه ۲۴ مهر در یک گردهمایی انتخاباتی در ایالت جورجیا این سخنان را بیان کرد و گفت آمریکا در برابر ایران در «موضع بسیار قدرتمندی» قرار دارد.
+او همچنین گفت رهبران رده‌های اول و دوم و بخشی از رهبران ردهٔ سوم جمهوری اسلامی از بین رفته‌اند و افزود: «بعد گفتم آقایان، من باید با یک نفر صحبت کنم! دارید چه کار می‌کنید؟ باید کمی دست نگه دارید.»
+رئیس‌جمهور آمریکا در ادامه با لحنی طعنه‌آمیز گفت ایران تنها کشوری است که «هیچ‌کس نمی‌خواهد رئیس‌جمهورش شود».
+ترامپ با تکرار نام «محمد»، گفت‌وگویی را بازسازی کرد که در آن افراد از پذیرفتن ریاست‌جمهوری ایران خودداری می‌کنند و از یکدیگر می‌خواهند این مسئولیت را بپذیرند. او سپس گفت: «قول می‌دهیم که خیلی زیاده‌روی نکنیم»، و بار دیگر بر قدرتمند بودن موضع آمریکا تأکید کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78741)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-17 16:42:53
+
+<img src="https://cdn4.telesco.pe/file/h1hKWidtcYf6Ov6y8kPg1ZSFauxhybKHHqrvNAKVQjXrkIxrR_fJgUIo9PWNEwGOMt-uODvQxUHzbGVBwXdbIPWikY2fnXPpTwxJLSiLsD6xq5LSfFykv_VqwlvdPDIgusT-OjsDPH3rHuDPhnp1KuKkRKhm3vQV7VCmRbFYvhISFg4Z8PsTM8rW2RNc6D87l1QFIih4cMUk0TZcPOZOkuyJSqB_-H0xFu3CnYtUlZTG7YJ-jjKMMO22fUve4oYmWHG_ASo463KLKYOen7A_1FZUa2ArQHqHS1qR517yXGBtCgPuVRUcNo0Ipx7a9-t1uX0OhJ1fFihnLI_qF4uMnw.jpg" width="400"><br>
+
+اداره‌کل اطلاعات استان ایلام از بازداشت ۱۱ نفر در شهرستان ملکشاهی خبر داده و آن‌ها را متهم به شرکت در اعتراضات دی ماه کرد. بر اساس اطلاعیه اداره کل استان ایلام بازداشت شدگان همچنین به ارتباط با آمریکا و اسرائیل، تیراندازی به نیروهای امنیتی و تخریب اموال عمومی متهم شده‌اند. این نهاد امنیتی بدون انتشار مدارکی برای اثبات اتهام‌ها، بازداشت‌شدگان را «مزدور» و اعتراضات دی‌ماه را «کودتا» خوانده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78740)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-16 22:03:33
@@ -27,7 +104,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-16 18:05:41
 
-<img src="https://cdn4.telesco.pe/file/ZCbQq1thj4sJKs8Dfku09lYS6YXedxJwrGeRySa2gMdcdzQeD8sGelWlyyhpBLo5tyuTrO0bGKLTN0N_Gn55rAGKBtk5ORlmaMAvHj_qwpxyITowvBhs5BkF3sAmRqSlOmYMXeajdogfKK7CjptoljfVhS3visvoqb-XU2ejySwDWoCKSbkixSXYnd7TekJ6T7yGojgn-w93ozSBUKh5nlrFvVqbroX-JTjF8igcQrLAGbB2NpBWch3y_1PFvyf9Mdh5Wx7helGTJ3oAry_xD70D23JQK2mAPj9wmrjoXEywCZrrxfxuysqy1PE29QiL_ySzYfPlHsagr1PWSYYMiQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/V3TPjhmUr8giWJInhyoFBMghnj36QISUDnvsG4dYTszvNC_vTUAQVEFKGDGqYjuab-Zfbb5spwiJMuRYA_yXqZa1XknuMb2Vgpcgv9yHL_70lM2UK8gzfALKd61YgLVLvl6YeqKzFSoUoG6YG2vvdx2NKD3ZXUA2woKeP_kGP9bkfU98FDiQum7Q_AIAxTbwFC84YnGpNupSxAwVc2dIuDQ8Q1k9trntHhWLGl26d7sPNy_H4gBADnBS2r4ElhhmB7a9isMZ1r_RCpxLfJ8aOhMH-OjIz1Y6xxl41PME4Dgi5tVz1sURmmGuvDIuEDnYUTZQrJE0NVMCtM4qu5cHUw.jpg" width="400"><br>
 
 ۱۴ زندانی سیاسی با امضای بیانیه‌ای در مورد خطر صدور حکم اعدام برای امیرحسین موسوی، فعال شبکه‌های اجتماعی که با عنوان «جیمز بی‌دین» شناخته می‌شود، هشدار دادند.
 در این بیانیه که روز پنج‌شنبه ۲۳ مهر منتشر شد، این زندانیان سیاسی با اشاره به نقش نهادهای امنیتی و صداوسیما در پرونده‌سازی علیه امیرحسین موسوی اعلام کردند که پس از پخش اعترافات اجباری او از تلویزیون، تعداد اتهاماتش از پنج مورد به ۹ مورد افزایش یافته است.
@@ -47,7 +124,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-16 18:05:08
 
-<img src="https://cdn1.telesco.pe/file/hAyjMibT0N_3Zv0RQZCRsucE1ELthn7jytUd7YoVWz7NkmozVSsZwE6cK2LKPzu7-21At5RpTTiEfFUCfFTo-BLmg20rb9MK2vTTmQ2j8547RImuOZDfGeNU3Zv9v4us-97AUu5nAKW5UljgPfmnkAuXkaJ-l2uiZSmFPxZLT2M4e3oA7yOc2BLoXnvJWh3DEOCUCtx7TJGXSxlx6R5UB_RrQWPUUK5h4OQfqvXWflsWr1TQ9eXMaKVJQglWQfNMUgwTbsR7tku9ap-TgOL-CeV2M9QS0NXBh5VH0Zw2zhtlSFo9CnqIgjZB1GODpIm2c0xs8kWDomEYV4UdYTAhGQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/PwIxZF05ta3EwYr_QjCR5YJwHWEOyj4uubbVN-ZbI2LMYaazoO8v9ireNkzoUVu3qYRh7F0cdEEP9G6vlnfI0hyysxmSxdBTZxiBu4mT1f8przHWK18F2JI19VhT3yJd3aVvPJ_PYvfJF39iL7pPMiZLwGg_dBm-642dQq2xpMt6o0F-BovMUyZAMPndnb2CqsltGgaIfHlCohfSxKMokTs2dvZWQH_-l2GXL_MNHsD_iHZHbMd3xqOMgHoVXddvMuHnSIv-XeN_AE3V3VljNPBWOyTG1kB5k9zhRf1NChJy_PhjdCJ1mtjIZZoUot2_1cmf_Pkbza4V1JNwQ1dvIw.jpg" width="400"><br>
 
 پیمان قدیری، معترض ۴۵ ساله‌ای که در جریان اعتراضات دی‌ماه با شلیک گلوله به سرش به کما رفته بود، پس از حدود ۹ ماه جان باخت.
 به گفته یک منبع مطلع، ماموران حکومتی شامگاه ۱۹ دی‌ماه ۱۴۰۴ با ورود به منزل قدیری در قرچک، از فاصله نزدیک به سر او شلیک و این شهروند را به‌شدت مجروح کردند.
@@ -90,7 +167,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-15 16:26:17
 
-<img src="https://cdn1.telesco.pe/file/HOzM8kpSDikdlOOo1GvZhjHPEsikgBTxgs9OkEzdaJajZUef1MtiTYJk79YRm_hGI2LtSRLi_FeJDr3_zn6dlf8py5A-nddG5TR2CBxHLc2ng7q63X6ci_w_-IiWvSIWkOvT8PQqJLVcuvLz8Ho7ZuGcdui9L-43IMPw4pbWP40PObdTF7gkyG7oknWPTrx4Rdztf8WUAarPBu6UVIdwidU7CM8vNP52cvq0LA58UvlKJMTgUu6srpJg2mmzoNTQ3IMf38vNRfqGxEL4L-tzUUfWVNsoVICfcxM-etKHb441BaXW3bmAp2k7Gn88PUdAMIrfdIRKhjC9fugFQHeZmg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GjhrTDyYxFiVwGr3uxEjtZSNHkbC11ujxI4MIluKeSgEkJm0M7j7qSrHNIDqX9RlICNvGTqX1wAjYroW-kvjU5A2VB098pKmO36zvhFD9A2cSSAg7Sgy1ANTUdQQ6orCTd0zAsCl9C9mq4qL1J8Uv5ZaSoEQCn2kyQN48IyeDMEc4wReIGCzxyScVZ9TuhsJPnm6_N_4M2bD7Mdywc7Y4fpB-jCm2st2mqWHPgZT2DZ2NtcB7TIiJDDpgQl9Aky5KKslgi2eyixO77wIgIpMLd_B9M4H-5iHy2lvQ5A447OQIpLGte8Y9IBva_nWn0gqwg6Wu9sFuVSv8LWMG5YdTQ.jpg" width="400"><br>
 
 سخنگوی سپاه پاسداران گفت حمله به سه نفت‌کش در ۱۵تیر ۱۴۰۴ «خودسرانه» نبوده است.
 حسین محبی تاکید کرد که حمله به کشتی‌هایی که این نهاد آن‌ها را «متخلف» می‌خواند، پس از امضای تفاهم‌نامه اسلام‌آباد با هماهنگی مقام‌های بالاتر انجام شده است.
@@ -114,7 +191,7 @@ HosseinBastaniChannel
 
 ###### 🔵 Post time: 2026-10-15 16:22:11
 
-<img src="https://cdn4.telesco.pe/file/SFjysDPyYrhZekeBDKniInN1eVxVq3R4wTdVE8TQZRDQDg4K2NVElf5535iYpSIbqEDBAXWuchiK4RlXo5LC9sbqhariCI9qOu5tqasp14hDmszjbrrs5L7Fy1_EonGTUMTtHfCEiqY36fpwq0VZU0kJkFaxnK9Kg5i2qkuwmvNfnd-NwQTchF0SX9uZL0J2Vcdgm5Acgksz2wY7deuAp-W_ayWRVeF5pKp8Ea7dXWzQJn31jHWEuPsN9uPx9A7AVEfWKkrXLqoHk3dB4RdcW4mJPo1EsxhFJFxibjm1vtInpMdJmG0g-bIb5mTbPerFMkaQpz6ZWsrD99VBY3dWpw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/kIohqPKS4LhxYp-bDCHL6HOiDUxdgT-E4NMYD-YLhJZ4elGcTcnRKVm_2dMkmSFBoTWv9n-Mts_PcENzXnIu_vjnL7O1CODGSr4XuzIh3EGlFZS226wTDqgWxYvlxZuZET7C1nXpeosZ6VSRprHtGVE-YQiRAHRNMrPTDYN2WzNZARGpqIo6ByPSYjAdnnGbZeEvZY-iarNWmHBN8xTWioxwPr7OsgfPxuUwawwARnyWvbXzUW2t8YMjLQhjk2bYFKv69OLLxC2ktKyyuK_Koe6VP3LAsao7U2ieKwy3tcuyBUwaRUlNUUFrhzIMaN_UknE60L0UE3JMoVnqSM2wZA.jpg" width="400"><br>
 
 رسانه‌های ایران گزارش دادند که یاسر طاهری، عضو جامعه روحانیت مرکز مازندران و امام جماعت مسجد امام حسن عسکری در منطقه راهبند ساری، روز پنجشنبه ۲۳ مهر در خانه‌اش به قتل رسیده است.
 براساس گزارش‌های اولیه، این روحانی با «سلاح سرد» کشته شده است، اما هنوز جزئیاتی درباره انگیزه قتل یا هویت عامل یا عاملان آن منتشر نشده است.
@@ -132,7 +209,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-15 16:21:57
 
-<img src="https://cdn4.telesco.pe/file/I7yM6aSP5p3KjvJYTmDRRcQmTm06NOT6oYNy-vXjuJXzhRsacjxjpTXpAHdBujhvv0nPiJtyCck9DBi_pB2wEAsFz8hhJOMGEf0SZWgBaIaRxYZG0T02DMyDcnCMp07E52htMLqmmxcZsBxsKU3LctpblYE672QWwRl4dbDe-96FkX-5xoHAa7CVoDrPO62SJS-RDdxsxsjY3YYjKOv4v9SOuFRF98LkmtvKYFLyqauatk5JWl00OG1BcUwd_BcyGk94vpFgEIL-q4A2QDZzZB6PwdeM1_FFNeLlJ30LMuiWV68ImfR3GTvyKu2adEarMRlnSxkjfpek2sWb4ZnDGA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/VYQlJY9pOtptLxKpCW_QGhN9Ub-ltjEaIoF3HQ1aYq28aOKy1x6d2WRdz3ULvTxGj_Df97UVoeNJFEE9FaCRhc3qSznyN6KSJ_G2F3Y1bFglGYZL5Z0OVnCtN1y0Lliw9xgPKGs2VTQKXuiV4j1Z3NHZR5XrbGp3r__dWl5yg6K2k9405hhSjXgWofX9zxcvSE7pPmBmwS9mGoQ1Wi5VDe3xjMkQecmKdyzZwtg2ZLsWrVkST5J80GECXyggfSfNwo4Z3E-m_9VZ5jrpRkSjC77z8cFyMYIbxppEE-xWMhJxOadsJWbe2pUZsTl6xn2OR8XmI29pwONsnZNcdBGb5Q.jpg" width="400"><br>
 
 حکم اعدام «احمد پرویز»، وکیل پیشین دادگستری که به اتهام قتل همسرش «منصوره قدیری‌جاوید»، خبرنگار و پژوهشگر خبرگزاری ایرنا، به قصاص محکوم شده بود، اجرا شد. او آبان۱۴۰۳ همسرش را در خانه‌شان در شمال تهران با ضربات دمبل و چاقو کشته بود.
 @
@@ -239,7 +316,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-14 16:38:49
 
-<img src="https://cdn4.telesco.pe/file/iCC0V7xzC9JBFRow17-SDTi9ZmM_I9IPnrL20HU-hwpx4RFUO01nJtoC4-lCQ4qiN-3ZWfJ3Np6P0BEcWRa1uXdUelyjOxFgsqMMWroqopEwoxZLK09EzzEgnvxCtFi8znbqM0YbyTDnpF2Q7JbcJatEM6jbuSJMYc99r3DYtS7bwIZ447HkJIui1nv0veLUye7BphS5IkWGJl32h6PGBCGRRVYTYSBENSYIF3kq90Ez5jt01HuhOOQl88l14ptmC1GGsPaVKMGpGC4DDyv7FEBXiIGIHzA-6QMVWMA48EjzU0Kbm5txdEQ3IafuWJQabMTbb4PZGgLpjkMP1iKlAw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/elpA0jjcAe53EnGM-rAJavbBAm4qui1lenymyz_BVdIHCSN3JeK4StxPyl9LtK7X5FTlvUfhH5VdFZFR96uJ-NbAHdgFGyMnGHrCZqx53rmE62jIRuegOdsirwQLrXZJuvrf9PgXqSVELzJsqh-Y_rV4Ozsy3A-SmvpOsv1Oz2B7TqCZXjr_WFy0ND-5ZJpRTcUmKyYFHotcR2SPFZ2nHQfiJOOaaWfAVYG9Yev_jPeqE9onB5hDhoEC3Vej1_82AwEbd5PY5Q6wEwYTYtTyfx2qAigB5-yoQz-xCdQ75kjkRllIZe74oN52_wbBGbWRVjlANMBodZJs2VVevlZDbg.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست وزیر اسرائیل روز چهارشنبه ۲۲ مهرماه و در پاسخ به پرسش خبرنگار رادیو ارتش اسرائیل درباره گزارش‌های ناظر بر احتمال حمله قریب‌الوقوع آمریکا یا اسرائیل به ایران پیش از انتخابات اسرائیل گفت: «به نظر من، این [اقدام] برای ما مناسب نیست.»
 به گزارش تایمز اسرائیل، نتانیاهو با اشاره به  برنامه خود در صورت پیروزی دوباره در انتخابات گفت: «: «در دو سال آینده، حماس را کاملا نابود خواهیم کرد، حزب‌الله را به‌طور کامل از بین خواهیم برد و حکومت ایران را سرنگون خواهیم کرد.»
@@ -257,7 +334,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-14 16:37:23
 
-<img src="https://cdn4.telesco.pe/file/Qq2jkcfNYaNPRAKQpBvXJmxffqEx6OV7Nyu-hC8BezPAVQ4LR_Xn5XSgDlG9uoeEvYFBMNMF9Q2dwC_zwklOIAthRmXSuWc7UFa768qoXtMM7VHF3g_qOMaOj9VjfrGAB2iziSV3XEdkLjONLmnO_4Ub3xZ6nPhu9HN2UKgYrgQY7JDpBcU-R6fCukcjeOiLX_w_Gn4jwWizflYS1BuWK_pgNvLaDu2os-1LceI-fzjtHn8UXdAs_XK43Z1bsB9t4HmcSXVhndwyhgfIMZAB7Wf83lX8Cd6vHRUBXsRbOfRsNv2qM55oN6ycWjL7hSHuub0RIexh0iVUbBCXdfAVVQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/W7BlBEUgnAocJMIupAZs3Qoe-0Do5PZ9CYj0wMTf6LL1d5bk2zvhGI_qqZEEDC5dUEcJ3_Qsff84tR0jny3dHz2uk2rmCEOloPZACMix8b-xOMH01aZ5BpeoGfR526vtKX4S7XZ6gyrnxHJaGiR_I0zdgoeCV6HFpjMc20MsXxzdnWFgp38yzKPhASWmpGmn5ib4rUK6YGW1aG92fPZN4uJ8RofVzkVTXeqxCZIcV8EiZajXVX3wXHP06mQ1pamjo33R8_nslRqKola3oDti0gSLQtGkwDHmk7ZV_sUOi5hrmZCHgeLcLuNuxi8yeq57NDA9Gr31YS1pkEgIoXEUkw.jpg" width="400"><br>
 
 استانداری هرمزگان تأیید کرد در حادثه‌ای مرتبط با یک پهپاد ناشناس در آب‌های سیریک سه نفر مصدوم شده‌اند.
 منابع محلی خبر داده‌اند یک شناور صیادی در محدوده صیدگاه سیریک هدف قرار گرفته و یک قایق صیادی مصدومان را به ساحل منتقل می‌کند.
@@ -276,7 +353,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-14 16:37:05
 
-<img src="https://cdn4.telesco.pe/file/lMY3St1MWRJuivrHeDE--HEwPjdVBRwB8rk2qAlYCjFPxieC697AbgrFB1L7w6LpjMHMQtZC8mrKmHRcLNy1egrZkD2Kx7NyQyabnqo9ggn2l7jeJTna-L54spigxL_r6FRjkExUNiZTNLMG_6_Nf9AXn98IEG8UXkuWPyGSDxrqpCSoZQXdvfAH9X_b3Wn3uorj6s_o1LDJm1HVwMuJq-7Lde10yyXaHUK7-LCZt2LeIlmkQPvC4M1SsHd7oSt_QfNmUtBPeXvOK-1LhHaMqTjqwhhqCEafMWnCKT_yhfGrVYGY7bqoX60N-cdBglXQiS9js1XBH5fycraixBg-Dg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PdDc8j5c6wipRZDBBiXojEgMHa0TQTaeQ-tLV9O50CmWi4HCn_HEl5huKQBQEXpOl5JC8lJ4TgJWQq-_x8KTqmGrwl-em4lWJMySSuUnRdVHo2Nr2jPvvet2vx-GvMrfJ8eXEYFvJbFZ4bh_xf2zkJ2E96EeNqxXGlMFWhhVvltd1ktcxYRnRIZGT83EXEr0hW4bFhyYEIkstNPACJc-H1imSwdXt-KFQw5EYJ9ftuC7gL-5uduBhB1j6sGuDxyMsA4tXEWqXcKuSr8rU8kJ7_zPKVL5sB5ySZJvmiHvr9lYOhiTODzATiJ_LiyT7vJc6ROUkmPyK7ItPrJce4__MA.jpg" width="400"><br>
 
 مقام‌های استانداری سیستان و بلوچستان روز چهارشنبه، ۲۲ مهرماه از کشته شدن یک فرمانده بسیج زنان و یک مامور نیروی انتظامی در دو حمله جداگانه در شهرستان مهرستان خبر دادند.
 به گزارش خبرگزاری فارس، وابسته به سپاه پاسداران، افسانه عقیلا، فرمانده یکی از حوزه‌های بسیج زنان شهرستان مهرستان، در پی تیراندازی مقابل منزلش به قتل رسید.
@@ -288,42 +365,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78725)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-14 16:36:09
-
-<img src="https://cdn1.telesco.pe/file/gQDdIOui2k-SUbq-WHvXNfsfqx99u-BnSvygY2aHIq5E5orVnYrvsk_gxG94PI4gVFQuP8nRf-Jc63XVqfSUEgstMuXPudK1HNP6zjyCFr4jr-uzQkO0aY0DO_W1xnrEGzOfurr3AMrErKRmNCW8p90S8MYhwiaN3JjdMxsB1izmL7AMJ0RgkuNp4pdnWko-xnODfjZYnbyOiXJ7u0XXOV9KXC1XdgjcVW8qZiENCcp_dfcpMvAD3B92k6GsGoq4pZ3uMmJ9vjJvG4apiE5Y1TEyimfP7r8ZGvmKxhMC1yrClZcJoOjKFz4buswRTPCksVQOU3CG6nkYPLtyw9bE9Q.jpg" width="400"><br>
-
-فرمانده انتظامی دهلران، اعلام کرد که یک مرد ۵۷ ساله با استفاده از سلاح گرم، همسر و سه فرزند خود را به قتل رسانده و سپس به زندگی خود پایان داده است.
-بر اساس گزارش‌ها، این فرد محمد محمدی نام داشته است و قربانیان همسر او، دختر ۱۳ ساله و دو فرزند دوقلوی ۹ ساله بوده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78724)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-14 08:41:18
-
-<img src="https://cdn1.telesco.pe/file/FpfGDWlo0xXuzC4_JiXe-lvO0Yp6lEpzayrZ964pAJbVpJ_jEkTINYVMCgMvYGSNGLXBXr8PtO_8xwQ9Vgg8WC-8wZG8D8kj9obvfiGBHmZ-Em1ttCWBjAMvnIUgPbrdnaArVZ_pe2Z2r0SLPt9mn0q_p7E_n46kS8ElWjOVZNpHgai5z2siRNotifEDLjKTZYrLiJsaN1jvKla67j7F7wjIwS4q92Z8zUgvYDa9JCzMxq3GrbP_N4NFNtUt1Wj8DfW2CkPyJo6jOBuFX4xbfu6OvW5ASRVEwx-MzRiyL1hK14cBBjuAq5Qbj8g_lH6jpZdy23jK4bohn48udD8q9w.jpg" width="400"><br>
-
-قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام علی‌سینا مصطفوی، زندانی سیاسی، خبر داد.
-قوه قضاییه او را به دو مورد تیراندازی در کرمان، در فروردین و اردیبهشت ۱۴۰۵، متهم کرده بود.
-قوه قضاییه همچنین اعلام کرده که مصطفوی در جریان اعتراضات دی‌ماه ۱۴۰۴ نیز حضور داشته است.
-بر اساس گزارش‌های رسانه‌های حقوق بشری، از علی‌سینا مصطفوی اعترافات اجباری اخذ شده است. مصطفوی موزیسین و کوهنورد بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78718)
 
 ---
 
