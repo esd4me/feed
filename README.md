@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-17 05:44:12 </h5>
+<h5> 🟢 Updated at: 2026-10-17 10:50:18 </h5>
 </div>
 
 
@@ -67,7 +67,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-16 05:11:03
 
-<img src="https://cdn1.telesco.pe/file/Fa2yfxo8WIP1qvmrC2dmyl8h8ncQKzkHNOrISS-nViXEe_v1f8yMv50AzyhIElMO64kD7dc7mJlsFOb5Cy5CNG47MwGFrajOdXCiQB4jo2PtWth1BFa4Dg2Y0et9srTfLMjFZb9RaBH4VHFK1H-1bu1I-OIpeXXErQt_x--aQ7YtJkGaw2lCV2nw-OkLRhQsMaPdR9-YXCrejHNE_yomeoaQDNfdgHVbt1rN6vr2RTdFFtFNP_bSPiAVk6JkB7AqPvk2QvPVKsQ7kD7W9hjswPxSVBiacz8jRt4UWLBXtxlKn38bTVm5tE5mfd2WYn7wihaQLiexXoKE7Wt2sX33sg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZdYJB6PmkgOEse5fLb1q10gweDhCa93IJNQxSqnwfbT9I9YB_BPR69xkVB_rfnqyHxDlhU36XSujrhQfhnq9eq0npQdhhWmF1eku3fjsPpggCXlczdJiGeAhjDogfKyJnXwvUvhBJ4xHsXWVS6MN89AKGik3O0-uWs8ZClzFZ0awDbOHkKwaJRdWge-xZYwO0-cT8apDYW6exqcuuSfSsRO6gRSbDlsurUjv07ZldqZxjJQdsGg-s0zm7_Yjx-2RgDHZRlq91uTasG2bVFe83K2YnBipIYkGs-65Bhsz6qupCn58W-hYh8oe8vRTOH5fJy_8oWY3t41s9ujo0u__1g.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری ایالات متحده، جمعه ۲۴ مهر در گفتگوی اختصاصی با شبکه خبری نیوزمکس، در پاسخ به پرسشی دربارهٔ گزارش‌ها از احتمال استفاده آمریکا از «مادر همه بمب‌ها» پس از انتخابات میان‌دوره‌ای علیه ایران گفت این سلاح هسته‌ای نیست.
 ترامپ گفت: «این اصلا هسته‌ای نیست. فقط یک بمب بسیار بزرگ است؛ شبیه یک بمب هسته‌ای کوچک است.»
@@ -312,7 +312,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-14 08:41:18
 
-<img src="https://cdn1.telesco.pe/file/O48UTzLD3xpZKQ5xN-c239VK5zg880VN-m7Y8ZgrNxakMjLxRe0CiQBJ4J1dVmp-xlBPmEv8FV1Yj2HGiJ6hFK1aQtEcsDZ4EvkWKF5LSlM-xkqAU7vkdxip4lhaIMIbaVQ6e2YqgJ1MXPvm6G271UWrPsErwKg9h-_8WuMEIYw5lHrIuWlBz_NyQq_KlAZW6GzAD3cpeYslSZsPaB3p7IRuRQ53GsGYk9xd5bqdoufqhJ9POH05Rgawqf1hltT5GUO_cWfy-2zgAH2UaJXfZ7f8A32bVoCfuPJ6B3hR4GXEORrHfD8HubEkQk4tUfRj5RWh5E-ZTmdhtYpSi8AXsQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/FpfGDWlo0xXuzC4_JiXe-lvO0Yp6lEpzayrZ964pAJbVpJ_jEkTINYVMCgMvYGSNGLXBXr8PtO_8xwQ9Vgg8WC-8wZG8D8kj9obvfiGBHmZ-Em1ttCWBjAMvnIUgPbrdnaArVZ_pe2Z2r0SLPt9mn0q_p7E_n46kS8ElWjOVZNpHgai5z2siRNotifEDLjKTZYrLiJsaN1jvKla67j7F7wjIwS4q92Z8zUgvYDa9JCzMxq3GrbP_N4NFNtUt1Wj8DfW2CkPyJo6jOBuFX4xbfu6OvW5ASRVEwx-MzRiyL1hK14cBBjuAq5Qbj8g_lH6jpZdy23jK4bohn48udD8q9w.jpg" width="400"><br>
 
 قوه قضاییه جمهوری اسلامی از اجرای حکم اعدام علی‌سینا مصطفوی، زندانی سیاسی، خبر داد.
 قوه قضاییه او را به دو مورد تیراندازی در کرمان، در فروردین و اردیبهشت ۱۴۰۵، متهم کرده بود.
