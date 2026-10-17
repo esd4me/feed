@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-17 23:22:14 </h5>
+<h5> 🟢 Updated at: 2026-10-18 01:23:03 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-17 23:30:06
+
+<img src="https://cdn4.telesco.pe/file/fS29iG57Wzpdjn3ISR9r0rJUZFfzy4IfFp-_5sRke5qrPbZwyP-lMrmnl4asAXiW_dfD-2wFqMIhbTsdfNRH33YEbCirFoWinoXOM9iFrlHkEq5pMH5mgaXM6GP4kzbIUKhuKZ9O-lTGy8_qw5Ffxr_GwuPLluem1aIqzf28qPMXuhZ2G334SY0FSZdOhSiujZmSeV4xJWscnGX8sY-c8fIXUj4UhplNN4S4nFEh0_QPSw21j-3tpPOTkJfa1HlIr6JUbeN1-eXg-OnBGBYsCyJT2bIxEAhX4gUXK-Mm8zt-V3YsZM8nT0SsCX8hF89_107S8JEqF0LfiiA3ug-qBA.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسراییل، جمهوری اسلامی را به سرطان تشبیه کرد و گفت اگر حکومت ایران از بین نرود، دوباره بازخواهد گشت. او همچنین از احتمال اقدام نظامی دوباره علیه حکومت ایران سخن گفت و جمهوری اسلامی را به تلاش برای تاثیرگذاری بر انتخابات اسراییل متهم کرد.
+نتانیاهو، روز شنبه ۲۵ مهر ۱۴۰۵، در گفت‌وگو با شبکه عبری آی۲۴ نیوز، با اشاره به اقدامات دولتش علیه تهران گفت: «ما ۹۰ درصد کار را انجام داده‌ایم، اما می‌دانید، این مثل سرطان است. اگر از شر این رژیم در ایران خلاص نشوید، بازخواهد گشت.»
+نخست‌وزیر اسراییل در بخش دیگری از این مصاحبه گفت نشانه‌هایی از تلاش برای دخالت در انتخابات این کشور وجود دارد و احتمال داد جمهوری اسلامی برای تاثیرگذاری بر رای‌دهندگان، حوادث امنیتی ترتیب دهد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78747)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-17 22:40:30
@@ -303,7 +321,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-15 00:15:28
 
-<img src="https://cdn1.telesco.pe/file/S1UJtgttCXWJyYd3FfkipWYpA5UY-E896HmvJyPA3ue1XC3MJsDNlRiAaZwIXWzzIGeU5BJDo77gqv1hwSkcABmioRdGgob6WHC8607_cam3IDSQDuRWdrFjKh3hgV0_3WwR0Hw-sDCPp0FVlf-_QsguHY2tAJmuqreyPq-cXTOSV8KVd15lfg-gkYvY2GMB1Rg9-BxdpMoxyTvEH9kZPSChdRS1bk4jKKOaPmxY0u6JRmVlUaJZYfKi-hvzgbWgnVTWPej5MKWgxKyqRCm3FjI_FnEF3XI4lNG8u7halA-YCKyipiF02Z0pRvNLx3yN0g30mKauj4Np7PgiefdgUw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/AF9KmK2Xous-e8kurLaa7WTVJF7vplAHzfbP505F_s0BXdtQIvuieJLszY-V6owsHG-5GJD1Bfs7SIpPx0wD7sG9hJHur9aZwpDzFoitBNfsQPis_t9FptqdONGl0FXbldt1djnXNOD7XhQ4DyYavshljWAV-01myvzqM3A-8Qbo2zMBXW0uZDJcunhzNMANPWuZp4TPUtRGwN6luAuFiDr_O3Bz1tzHPSmFNtIzGUYdQX3MjeKAtuZ2B2ooqKrb37gYicu3JiOBT9QJla0L0bu1kpHJbO2ntpkZpOqCKUkzMilxKZ6GP2Q8rRWJXperfSI977-DKPnk-z85C3Hn4A.jpg" width="400"><br>
 
 وکلای وریشه مرادی روز چهارشنبه ۲۲ مهر اعلام کردند شعبه ۱۵ دادگاه انقلاب تهران که پیش‌تر این زندانی سیاسی محبوس در اوین را به اتهام «عضویت در گروه باغی» به اعدام محکوم کرده بود، با وجود درخواست دیوان عالی کشور برای بررسی «نقص تحقیقات»، بر حکم پیشین خود مبنی بر اعدام پافشاری کرد.
 امیر سجادی و کیوان عزیزی، وکلای وریشه مرادی، در گفت‌وگو با «امتداد»، با اعلام این خبر تصریح کردند که روز چهارشنبه ۲۲ مهر با مراجعه به شعبه ۱۵ دادگاه انقلاب حکم صادره توسط این شعبه را دریافت کرده‌اند، و مطابق حکم ابلاغی ۲۰ روز فرصت دارند در دیوان عالی کشور فرجام‌خواهی کنند.
@@ -350,24 +368,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78728)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-14 16:38:49
-
-<img src="https://cdn4.telesco.pe/file/elpA0jjcAe53EnGM-rAJavbBAm4qui1lenymyz_BVdIHCSN3JeK4StxPyl9LtK7X5FTlvUfhH5VdFZFR96uJ-NbAHdgFGyMnGHrCZqx53rmE62jIRuegOdsirwQLrXZJuvrf9PgXqSVELzJsqh-Y_rV4Ozsy3A-SmvpOsv1Oz2B7TqCZXjr_WFy0ND-5ZJpRTcUmKyYFHotcR2SPFZ2nHQfiJOOaaWfAVYG9Yev_jPeqE9onB5hDhoEC3Vej1_82AwEbd5PY5Q6wEwYTYtTyfx2qAigB5-yoQz-xCdQ75kjkRllIZe74oN52_wbBGbWRVjlANMBodZJs2VVevlZDbg.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست وزیر اسرائیل روز چهارشنبه ۲۲ مهرماه و در پاسخ به پرسش خبرنگار رادیو ارتش اسرائیل درباره گزارش‌های ناظر بر احتمال حمله قریب‌الوقوع آمریکا یا اسرائیل به ایران پیش از انتخابات اسرائیل گفت: «به نظر من، این [اقدام] برای ما مناسب نیست.»
-به گزارش تایمز اسرائیل، نتانیاهو با اشاره به  برنامه خود در صورت پیروزی دوباره در انتخابات گفت: «: «در دو سال آینده، حماس را کاملا نابود خواهیم کرد، حزب‌الله را به‌طور کامل از بین خواهیم برد و حکومت ایران را سرنگون خواهیم کرد.»
-تایمز اسرائیل با اشاره به دو جنگ پیشین اسرائیل و آمریکا با ایران نوشته است «در گذشته، اسرائیل و ایالات متحده تلاش کرده بودند تا احتمال حمله به ایران را کم‌اهمیت جلوه دهند تا جمهوری اسلامی را غافلگیر کنند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78727)
 
 ---
 
