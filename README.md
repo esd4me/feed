@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-18 05:44:02 </h5>
+<h5> 🟢 Updated at: 2026-10-18 11:04:31 </h5>
 </div>
 
 
@@ -247,7 +247,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-16 05:11:03
 
-<img src="https://cdn1.telesco.pe/file/ZdYJB6PmkgOEse5fLb1q10gweDhCa93IJNQxSqnwfbT9I9YB_BPR69xkVB_rfnqyHxDlhU36XSujrhQfhnq9eq0npQdhhWmF1eku3fjsPpggCXlczdJiGeAhjDogfKyJnXwvUvhBJ4xHsXWVS6MN89AKGik3O0-uWs8ZClzFZ0awDbOHkKwaJRdWge-xZYwO0-cT8apDYW6exqcuuSfSsRO6gRSbDlsurUjv07ZldqZxjJQdsGg-s0zm7_Yjx-2RgDHZRlq91uTasG2bVFe83K2YnBipIYkGs-65Bhsz6qupCn58W-hYh8oe8vRTOH5fJy_8oWY3t41s9ujo0u__1g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pmVX_-jkcYRimaf_E8weLVwWgckkp_hFJntSurv3vWpGLlFxAeAeFBcExzIL7iDCZPuRwAtEpM1EUzEkjHPpAWkzyLrxeBayozyaLGeRFSYvhAjAWcDFGCjyFNcrScJB1dWNLJ4YRMrdQ4teEBiRCfpIpbjBTvPvi_1OfOlhOZJvsCKhKLQUbP0B7zTvWx0jcVPHZvWxlhicsdJNVV5FcgupXtvf44p2v1i6HfbbXUks-WmQ4GHRDX1mLGy9x0qo_Qy-mpv5X23BGNFV45B1-mCX55Xv8uymFEpEdSbPFshkZ-SpQRD2gMUch7FQghlJnUg-Jr2LWN9Hej_8aP21WQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری ایالات متحده، جمعه ۲۴ مهر در گفتگوی اختصاصی با شبکه خبری نیوزمکس، در پاسخ به پرسشی دربارهٔ گزارش‌ها از احتمال استفاده آمریکا از «مادر همه بمب‌ها» پس از انتخابات میان‌دوره‌ای علیه ایران گفت این سلاح هسته‌ای نیست.
 ترامپ گفت: «این اصلا هسته‌ای نیست. فقط یک بمب بسیار بزرگ است؛ شبیه یک بمب هسته‌ای کوچک است.»
