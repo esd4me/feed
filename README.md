@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-18 11:04:31 </h5>
+<h5> 🟢 Updated at: 2026-10-18 15:47:57 </h5>
 </div>
 
 
@@ -270,7 +270,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-15 16:26:17
 
-<img src="https://cdn1.telesco.pe/file/GjhrTDyYxFiVwGr3uxEjtZSNHkbC11ujxI4MIluKeSgEkJm0M7j7qSrHNIDqX9RlICNvGTqX1wAjYroW-kvjU5A2VB098pKmO36zvhFD9A2cSSAg7Sgy1ANTUdQQ6orCTd0zAsCl9C9mq4qL1J8Uv5ZaSoEQCn2kyQN48IyeDMEc4wReIGCzxyScVZ9TuhsJPnm6_N_4M2bD7Mdywc7Y4fpB-jCm2st2mqWHPgZT2DZ2NtcB7TIiJDDpgQl9Aky5KKslgi2eyixO77wIgIpMLd_B9M4H-5iHy2lvQ5A447OQIpLGte8Y9IBva_nWn0gqwg6Wu9sFuVSv8LWMG5YdTQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/O_PppejctQMaS_07ff9anoZlU6II_0G3taFKs8t6jaU3dCGkjfDSEzJAisVH3d3lLK0sWOblvfsGwk-ytmAqWEQr2qvW0Ed6eVSnn4VipYy3Ocxbxn9FCUbnim-8inlR-H3YOhrMKUCiGM_BWhrgKFiNW-9k0B_HMLDVtWK5PF9ds9Of6eZ20m6KhPEsxI-omETjPbmPGcdDlODbDP4Ab3uoG-Lr07kVVgv3W99kNNrl0E3uMN_eq3USfI1aRPTO6Z6XanV3dMD0IprXdNVjKOsdP-VmLBBOzaXfVBACEv9IAMnIFDfLE9MWlwTFMDvJmVOT42G64SvREtXRUChu2Q.jpg" width="400"><br>
 
 سخنگوی سپاه پاسداران گفت حمله به سه نفت‌کش در ۱۵تیر ۱۴۰۴ «خودسرانه» نبوده است.
 حسین محبی تاکید کرد که حمله به کشتی‌هایی که این نهاد آن‌ها را «متخلف» می‌خواند، پس از امضای تفاهم‌نامه اسلام‌آباد با هماهنگی مقام‌های بالاتر انجام شده است.
@@ -294,7 +294,7 @@ HosseinBastaniChannel
 
 ###### 🔵 Post time: 2026-10-15 16:22:11
 
-<img src="https://cdn4.telesco.pe/file/kIohqPKS4LhxYp-bDCHL6HOiDUxdgT-E4NMYD-YLhJZ4elGcTcnRKVm_2dMkmSFBoTWv9n-Mts_PcENzXnIu_vjnL7O1CODGSr4XuzIh3EGlFZS226wTDqgWxYvlxZuZET7C1nXpeosZ6VSRprHtGVE-YQiRAHRNMrPTDYN2WzNZARGpqIo6ByPSYjAdnnGbZeEvZY-iarNWmHBN8xTWioxwPr7OsgfPxuUwawwARnyWvbXzUW2t8YMjLQhjk2bYFKv69OLLxC2ktKyyuK_Koe6VP3LAsao7U2ieKwy3tcuyBUwaRUlNUUFrhzIMaN_UknE60L0UE3JMoVnqSM2wZA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/v3vaci5b61mikDj8_9DPVH9hDxsQQopU_aOxKtwj8laWAXv1f3qAVy-m0U-fE0_0rXbRDqDLZsSusQfzRjAm5OwgQTqavbj8Hnkf9TkojK62riaVE12gUvMB9oMZy2zgd9g5GeV54KbxGv-vulx-oR3MJsICTH-IpIv2CfEJgN4t9dpiIVX22nHAjH7GJ7b_wUtWC4yAxMBvDH5Z9ibcEM3kPCHO7LTvZFPdrxDLskwOFehxv5FXijuHW_dRYfTil2aBwtbCGzhwOHWdlx819jL0y6EEL5ckaf3ikJDmQaOcU-SgBFWc2v4cjXe01rJzVzQ3i1v1u_3la0gpHmyXdw.jpg" width="400"><br>
 
 رسانه‌های ایران گزارش دادند که یاسر طاهری، عضو جامعه روحانیت مرکز مازندران و امام جماعت مسجد امام حسن عسکری در منطقه راهبند ساری، روز پنجشنبه ۲۳ مهر در خانه‌اش به قتل رسیده است.
 براساس گزارش‌های اولیه، این روحانی با «سلاح سرد» کشته شده است، اما هنوز جزئیاتی درباره انگیزه قتل یا هویت عامل یا عاملان آن منتشر نشده است.
@@ -312,7 +312,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-15 16:21:57
 
-<img src="https://cdn4.telesco.pe/file/VYQlJY9pOtptLxKpCW_QGhN9Ub-ltjEaIoF3HQ1aYq28aOKy1x6d2WRdz3ULvTxGj_Df97UVoeNJFEE9FaCRhc3qSznyN6KSJ_G2F3Y1bFglGYZL5Z0OVnCtN1y0Lliw9xgPKGs2VTQKXuiV4j1Z3NHZR5XrbGp3r__dWl5yg6K2k9405hhSjXgWofX9zxcvSE7pPmBmwS9mGoQ1Wi5VDe3xjMkQecmKdyzZwtg2ZLsWrVkST5J80GECXyggfSfNwo4Z3E-m_9VZ5jrpRkSjC77z8cFyMYIbxppEE-xWMhJxOadsJWbe2pUZsTl6xn2OR8XmI29pwONsnZNcdBGb5Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/mz6OSHfgH5MrtlmoTIDAl9cX5c3Cp3NgIDi-MmxCXgltLsKHoRx9uUd7N0YDzxQaoLjP2RmLlyEvRrDITw31s39djGMYl8TQkB2g2DBebCmwRQ22nHaRJsRe4pNQEqoL-BHyXlconS5Xtt5uWSuqnfBhFaQDg0H_CF1_bjQYWitEUBdGqmG5bKaVdHRDbLNFqjSd0ptvDWKQA_0EFTG2ACKhInJxGVWE1WgQmJNjFeKxtFMo2NmLT72n8J6I6TSOt8bNrSoWhtpn8wMGLquYaBI47fW3E6L34K1mIQtd5nKBYxYEuzatMAW_EyxvAZFwEmJMkOuPyMTJgILZJC5s7w.jpg" width="400"><br>
 
 حکم اعدام «احمد پرویز»، وکیل پیشین دادگستری که به اتهام قتل همسرش «منصوره قدیری‌جاوید»، خبرنگار و پژوهشگر خبرگزاری ایرنا، به قصاص محکوم شده بود، اجرا شد. او آبان۱۴۰۳ همسرش را در خانه‌شان در شمال تهران با ضربات دمبل و چاقو کشته بود.
 @
