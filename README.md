@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-18 19:44:34 </h5>
+<h5> 🟢 Updated at: 2026-10-18 22:36:09 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-18 22:21:35
+
+<img src="https://cdn1.telesco.pe/file/Luc-H0tIimsaTcUSvuABsi-9OD7wxIZgIuyRApxlf7oeXUn1V-Hg86hALDMI3iOhVKuoXMhW1SFsMC-v1ELztrlwM-LxHrvb6jR8KUpxHZgXwqaThPYSe4KOQARDb2vtf9Ta9jQN7Zv0EvmTTaGtg6EU-2n6cgtDbJx-0FFp67NyVRI-LIGfBh_k7O1JbVsMpQGzMUead-LltHX9LjC7Ll8eyWfPdIhJNNpYzxTdPWl7qBEVlyuYCOZzonsmNTIvAkI_jbNtdTt382O5zg5a4-nU7Fm94auES4jq6UzGG3-I31hKaBC808MrSEhgABTpox6DmAYZ6udWz5vIJdRZUg.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز یکشنبه راهبرد جدید امنیت ملی این کشور را اعلام کرد؛ راهبردی که بر پیشگیری از تهدیدها و انجام حملات پیش‌دستانه تأکید دارد.
+دفتر نخست‌وزیری اسرائیل اعلام کرد که بر اساس این راهبرد، حمله به تهدیدهای در حال شکل‌گیری جایگزین سیاست سنتی مهار تهدیدها و اتکا به دفاع خواهد شد.
+نتانیاهو گفت جنگ‌های پس از حمله هفتم اکتبر ۲۰۲۳، بازنگری در سیاست امنیتی اسرائیل را ضروری کرده است.
+اسرائیل پس از حمله ۱۵ مهر سه سال پیش، علاوه بر عملیات نظامی در نوار غزه و کرانه باختری، به اهدافی در لبنان، سوریه، یمن و ایران حمله کرده و با حماس، حزب‌الله لبنان و حوثی‌های یمن درگیر شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78759)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-18 19:40:33
@@ -26,9 +45,13 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-18 18:23:44
 
-<img src="https://cdn1.telesco.pe/file/sl2-kDKlr7C5uoHWO5CJaeCpWEG5aYvLn1-Aa1hPgvwR8TD1u6rVMuCLb_BO1CTjLNUzoU_Bg8v5Zxs54AcS73aU2xNQCyW1mm-3-kTwn0OSQ_5eSrdmlEtYx643k2n8EvDddxOxliBaxrXOFQnl9QOJYN8MayY8WvxyNHqx0LVa1gy6FiItRRfh_OFUOODex9bXMtF8vrOzF-vH3YJ8oi8WN0gTvjNbFiHKus0AEnF0Oen0Gvcq-k3jREDYpv7l8wo-A8ErAh16YUFxGFwKYwyzJyLi9FnO8mKbYupf1-s0i0ap7cQHCvch_v1kRBmrk25HlBo0i7QaK5F531DoQQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Q1X6nWS4PM57ijYgpJg0Nsd3F4GGeH3BZQ1fzAE4MWNvHi92K_tElKrHzWG-8-30Ftb4-ugHVxLDlVEfcGs0VJbs4DzWIGSNR-QfWKv6t5XhYN3kLb4rQf44Y9Vy37AhnDWRShA-dFvXH6Y1rFlhMi4Ob0Ac59jDreTf_YdCermniw-i_rmgIDvRMnNmKkqedI6_ymWpyoYlseMEP3pOxsyN-ZHB64p-RopqWeIh8hFZ3tD7bJs0yqLpDT-4O4ViEUAJXUAUVBLLm7TzPP_5n6qiVs328CNuK6WUBV1ng8seqRBKAK6qLUi4g7ZXzbNUS_xoat2VaYI8W3Z7POvRpQ.jpg" width="400"><br>
 
-ترامپ: جمهوری اسلامی  ایران ۵۱ سال است شعار می‌دهد مرگ بر اسرائیل، مرگ بر آمریکا! ما شیطان کوچک و شیطان بزرگ را نابود خواهیم کرد... این فقط مسئله زمان بود که ایران آن عبارت شوم را عملی کند
+ترامپ:
+جمهوری اسلامی که ۵۱ سال است شعار می‌دهد: "مرگ بر اسرائیل، مرگ بر آمریکا! ما شیطان کوچک و شیطان بزرگ را نابود خواهیم کرد."
+اگر به‌سرعت رفتار خود را تغییر ندهند، به زودی کار را تمام خواهیم کرد.
+نتانیاهو:
+با هم مأموریت را به پایان خواهیم رساند!
 پست ترامپ در حمایت از نتانیاهو برای انتخابات
 ترجمه ماشین:
 خطاب به مردم بزرگ اسرائیل:
@@ -241,7 +264,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-17 22:05:02
 
-<img src="https://cdn4.telesco.pe/file/NGV6zQFprl-Ecj9sh9H2yL7gToQp97-mISzoXfa_kaiRbeiocYNVvx2pnEjVIbTp5ghiBmCxxUMxZQL9H6MqCRrE7AljlGl_us9oIrD31od1V1cc9ofhC9q-O1Q1AL4Hg6O5DuYJzRca0vZh4xdfm6BafeoX_SvfdU8e4aCL1_vLq9t678O7RiUo_eZbmJin3WTD9XAAHG_3ms_SIlSp1zOXv51DN-AMxK_LA4U-VuNLk5WBxq25VOtoFZ2hxZGpU0lH53LbMghkst3PAMZdgfw_WOtTA3X01VVumldtxW2l8Bj7Qu4KxhbwuDqKHjgO5qstTwLQ0ZaMY7barweh1A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/UXoKzHQwTn9XuXLIB83BFd9Igrj3DHXvkCK_XwaseC7pjHZrkDzzMN8v1x76rjT8Wo_mAmnPVEVb1TFV5441TLwW28qH9zsjPrJiJKj4-cSN3p2Jce5-m8DmcFcUQwvSFnpUhOIMpj1CSEwFax99H5ZzSNPQ96Z_9tpgY5LSR8RbRfB0Xkc_LfWJJQySbk4efirF24-ZXtg97FwbgBwYp6y8xnvUYi173ye3PkcSkDMyy9me2Ed1jmu945foAhFugbaFn_Wwj5r17t-bsppKEil5uHjiXt811dnWJ5Ilz6pmXecSm3Ot6SC6TPEG3MTF2NV3-x9nZmKiQoYxCCNh6Q.jpg" width="400"><br>
 
 سخنگوی وزارت خارجه جمهوری اسلامی روز شنبه ۲۵ مهر در پی انتشار گزارش‌هایی دربارهٔ توقف فعالیت تجاری یک گذرگاه بین ایران و پاکستان، اعلام کرد که «ترددها و مراودات مرزی ایران و پاکستان موقتا متوقف شده است».
 اسماعیل بقائی بدون اشاره به جزئیات بیشتر دلیل این اتفاق را «مشکلات فنی و لزوم اتخاذ تدابیر احتیاطی» ذکر کرد.
@@ -332,24 +355,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78740)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-16 22:03:33
-
-
-
-خبرنگار اسکای‌نیوز با اشاره به دشواری انتخابات میان‌دوره‌ای پیش روی ترامپ، کاهش محبوبیت او، افزایش قیمت گازوئیل در آمریکا و پیش نرفتن جنگ خاورمیانه مطابق خواسته رئیس‌جمهوری آمریکا، از زلنسکی پرسید: آیا فکر می‌کنید ترامپ از شما به‌عنوان سپر بلا برای مشکلات خودش استفاده می‌کند؟
-رئیس‌جمهوری اوکراین پس از شنیدن این پرسش، لحظاتی سکوت کرد و لبخند زد. او سپس بدون ارائه توضیح بیشتر گفت: «پاسخ من همین است.»
-این واکنش با خنده حاضران در نشست خبری همراه شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78739)
 
 ---
 
