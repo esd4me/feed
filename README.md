@@ -3,8 +3,158 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-18 15:47:57 </h5>
+<h5> 🟢 Updated at: 2026-10-18 19:44:34 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-18 19:40:33
+
+<img src="https://cdn1.telesco.pe/file/rCr-HVX_KcDbhakyWnHrAz917fMJTeO8Tlx343UFC8uE5tM0KflTPTJr_kGp1aRJGxbM6Wuh1dA3kpfwdR21yTudafTwqFG1_UTIb-uOa2OIwtg95RHXOJrkuhWC52e2GKGk7IBtt3DqHIv0LhYejYpKbrjq3DfRtkS-su5YznXxbmWdAObnBz08-uJZc0VazH-g1cRmLhgYgKmdut3-aNt6FckW_TQk5Yp1Ru73wiXdVnXA2ZhVcT-JLY8wKbRQ0fnIVhxL76oZkmsvYdevfVGVYyOZgns3_K3iM5titxI-0MbwDYFaJtjTLPGtUcch4snTgM9cpgbqXvoMIHOyWw.jpg" width="400"><br>
+
+عباس کعبی، عضو هیات‌رییسه مجلس خبرگان، یک‌شنبه ۲۶ مهر در گفت‌وگو با تسنیم، رسانه وابسته به سپاه پاسداران، اعلام کرد که «انتقام از ترامپ و نتانیاهو قطعی است».
+کعبی همچنین گفت: استفاده از ظرفیت‌های کشور و ۳۲ میلیون جان‌فدا، راهکارهای مقابله با نقض تعهدات دشمن است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78758)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-18 18:23:44
+
+<img src="https://cdn1.telesco.pe/file/sl2-kDKlr7C5uoHWO5CJaeCpWEG5aYvLn1-Aa1hPgvwR8TD1u6rVMuCLb_BO1CTjLNUzoU_Bg8v5Zxs54AcS73aU2xNQCyW1mm-3-kTwn0OSQ_5eSrdmlEtYx643k2n8EvDddxOxliBaxrXOFQnl9QOJYN8MayY8WvxyNHqx0LVa1gy6FiItRRfh_OFUOODex9bXMtF8vrOzF-vH3YJ8oi8WN0gTvjNbFiHKus0AEnF0Oen0Gvcq-k3jREDYpv7l8wo-A8ErAh16YUFxGFwKYwyzJyLi9FnO8mKbYupf1-s0i0ap7cQHCvch_v1kRBmrk25HlBo0i7QaK5F531DoQQ.jpg" width="400"><br>
+
+ترامپ: جمهوری اسلامی  ایران ۵۱ سال است شعار می‌دهد مرگ بر اسرائیل، مرگ بر آمریکا! ما شیطان کوچک و شیطان بزرگ را نابود خواهیم کرد... این فقط مسئله زمان بود که ایران آن عبارت شوم را عملی کند
+پست ترامپ در حمایت از نتانیاهو برای انتخابات
+ترجمه ماشین:
+خطاب به مردم بزرگ اسرائیل:
+"بی‌بی نتانیاهو نخست‌وزیری بوده که همچون جنگجویی بزرگ عمل کرده و در مقابله با جمهوری اسلامی ایران، شریک حتی بزرگ‌تری برای صلح بوده است؛ جمهوری اسلامی که ۵۱ سال است شعار می‌دهد: «مرگ بر اسرائیل، مرگ بر آمریکا! ما شیطان کوچک و شیطان بزرگ را نابود خواهیم کرد.»
+وقتی اجازه داده می‌شود چنین حرف‌هایی زده شود، کدام کشور می‌تواند دوام بیاورد؟ چرا که این حرف‌ها در نهایت همیشه به واقعیت تبدیل می‌شوند.
+این فقط مسئله زمان بود که ایران آن عبارت شوم را عملی کند، اما آن‌ها هم از نظر نظامی و هم از نظر مالی به‌طور نظام‌مند نابود شده‌اند و اگر به‌سرعت رفتار خود را تغییر ندهند، به‌زودی کار را تمام خواهیم کرد.
+اگر اسرائیل رهبر نامناسبی داشته باشد، یعنی هر کسی غیر از بی‌بی، آمریکا مجبور خواهد شد خودش این کار را انجام دهد و من هیچ تمایلی به این کار ندارم.
+بی‌بی نتانیاهو در برابر مخالفت‌های شدید، از جمله مخالفت‌هایی که حتی از داخل خود اسرائیل سرچشمه می‌گیرند، قدرتمند، شجاع و درخشان ظاهر شده است. با وجود همه این‌ها، نه‌تنها دوام آورده، بلکه در واقع موفق‌تر و قدرتمندتر هم شده است!
+من بی‌بی را در دشوارترین شرایط زیر نظر داشته‌ام. مردان یا زنان معمولی در چنین شرایطی زیر فشار از پا درمی‌آمدند، اما بی‌بی از پا درنیامد؛ در واقع قوی‌تر شد و امروز هم همان قدرت را حفظ کرده است.
+ایالات متحده آمریکا از اسرائیل، کشوری که این‌همه برایش کار کرده، دقیقاً چنین شریکی را می‌خواهد.
+لطفاً این نامه را به منزله حمایت کامل و بی‌قیدوشرط من از بی‌بی نتانیاهو در رقابت انتخاباتی پیش‌روی او برای انتخاب مجدد به‌عنوان نخست‌وزیر اسرائیل تلقی کنید.
+بی‌بی نتانیاهو هرگز شما را ناامید نخواهد کرد!
+از توجه شما به این موضوع سپاسگزارم."
+realDonaldTrump
+واکنش نتانیاهو:
+"از شما، رئیس‌جمهور ترامپ، بابت حمایت فوق‌العاده و همکاری مشترک‌مان سپاسگزارم.
+با هم مأموریت را به پایان خواهیم رساند!"
+netanyahu
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78757)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-18 17:10:44
+
+<img src="https://cdn1.telesco.pe/file/txqFzDRhnvZLGpvj8rvH9uVAxagMy6YJhcp1XzadEywhlE9LvPWeEDkV4UAWxOBbznEkMuh_OCLn0o2ndhA2TITnFXPNSQNB_DbKRbQMS7UkXfFXMtc_bKip3QqEx5WzvbUAIDFy4enTb_R358AHgQ3UhdFXMqHpeeVWFyvVDfsfNUElWbFEioICGftkRGPKCvIoEiRcQaDpRJJPQcl1yZJSrsHX_RTVtxqe4U3FNKfRe0x46lTepGO9CNekoTgG9UD2q5Ge6IRv3u1Powo2-MYIOC-fcbCIsgpygHC9SYj_TPPTCsyA0o89EjOBe9j6-DF-DdKlwanRYyAmkskukA.jpg" width="400"><br>
+
+علیرضا سلیمی، عضو هیات‌رییسه مجلس، یکشنبه ۲۶ مهر در خصوص جزییات رای اعتماد به وزیر دفاع در جلسه مجازی مجلس، به خبرگزاری فارس گفت: «از مجموع ۲۸۵ نماینده، ۲۷۷ نماینده در جلسه حضور داشتند که از این تعداد، ۲۵ نماینده به دلیل نداشتن دسترسی به اینترنت موفق به ثبت رای نشدند و هشت نماینده نیز غایب، در مرخصی و یا در ماموریت بودند.»
+سلیمی افزود که مهرداد اخلاقی با کسب ۲۳۷ رای موافق، به‌عنوان وزیر دفاع و پشتیبانی نیروهای مسلح انتخاب شد.
+@
+VahidOOnLine
+مهرداد اخلاقی کتابچی، وزیر جدید دفاع و پشتیبانی نیروهای مسلح جمهوری اسلامی در نخستین موضع‌گیری پس از کسب رأی اعتماد مجلس، به آمریکا درباره ازسرگیری حملات نظامی علیه ایران هشدار داد و گفت «دشمن به احتمال زیاد جرات نمی‌کند به ما حمله کند و اگر حمله کند، خودش و متحدانش در منطقه صدمات بسیاری خواهند دید.»
+اخلاقی روز یکشنبه ۲۶ مهر، اندکی پس از کسب رأی اعتماد نمایندگان مجلس، در جمع خبرنگاران گفت: «ترامپ باید فکر این باشد آدم‌هایش را سالم از منطقه خارج کند. آمریکا یک بمب بیندازد و ببیند چند آدم را باید افقی بردارد و برود»
+مهرداد اخلاقی جانشین عزیز نصیرزاده می‌شود. وزیر دفاع پیشین دولت پزشکیان که در جریان موج اول حملات آمریکا و اسرائیل در روز نهم اسفند در تهران کشته شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78755)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-18 17:08:12
+
+<img src="https://cdn4.telesco.pe/file/nQ6XTulODZA6cUDFYdinO_89Vy_OCOTIxOzLSofZlREsdd_ZTIRHNObcVrbj4Ob-_QPpyYd_ZJBqIQoTLXALv5pcPH_b1ZcoMtEeJsR1_P8gnvCEVLTUBFOwH6UQy94XUC8xog6PYt7C6Nmgk5E9FfCo0Oia7UOxdBrthhrC30LaV5V55GCKaf8u0vh77EvYUn21tPu2hd5b9yGah_RKGJzZsDqCuknv5NmzDR0NEmcxbiVuF8vmtu6KlfJ_58mOWLyrInIVY5oUVlUxZDi9_spjgdDkwkPwc-svoklt56izEWlOYBWQUkuHPTSPKoO4cWRjfHOk3mhc1w-jC21nvQ.jpg" width="400"><br>
+
+وزیر خارجه جمهوری اسلامی، روز یکشنبه ۲۶ مهر اعلام کرد که پیشنهاد ایران برای بازگشایی تنگه هرمز ظرف هفت روز همچنان روی میز است و از آمریکا خواست شروط تهران را بپذیرد.
+عباس عراقچی در حاشیه نشست وزیران خارجه سازمان همکاری اسلامی در بغداد گفت که ایران طرحی هفت‌بندی را به آمریکا ارائه کرده و واشینگتن نیز نظرات خود را درباره آن اعلام کرده است که تهران در حال پاسخگویی به آنهاست.
+او افزود: «اگر به شروط ما عمل شود، تنگه هرمز در روز ششم باز خواهد شد و در روز هفتم مذاکرات آغاز می‌شود.»
+وزیر خارجه جمهوری اسلامی ایران جزئیات شروط تهران را بیان نکرد، اما گفت این شروط همان مواردی هستند که به گفته او، آمریکا پیش‌تر در یک یادداشت تفاهم و مذاکرات دیگر به اجرای آنها متعهد شده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78754)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-18 17:07:54
+
+<img src="https://cdn1.telesco.pe/file/nsZ4olm7g7mh3w6ZzuQyL60zi9K37K-REYODHaIE02tdM8Xm66uVw4GeOeYrMieq5HcxTSuJNX9QruqEbZ47A6lt6n6i_ZP1ziIGbj96BOH4lUIP_RMf4f2HaaBHAFz1NuV3iiZdlf0nIn5RjZSNydqI_j4tU4OxgV8j0dGi6JOvq6W9OZHq2gGduEVuYJEm-I07tjqTzamG528GdCwEj2T5KBBBaXAXFRHXRFuHrkwfwTsr7oNtYfYdXm9N-RO0hmwTMe-Rv1wmJ0KLfGppDeFWN8hlA5DJMa3EifHwDZHF_oG53inNdKSPK_a4noIWc9tFDbzM9nNE-GO02sDrgg.jpg" width="400"><br>
+
+نتانیاهو در مصاحبه با فاکس‌نیوز گفت که مردم ایران به گروگان «اوباش ایدئولوژیک» درآمده‌اند.
+نتانیاهو در پاسخ به این سوال که در صورت انتخاب دوباره به عنوان نخست‌وزیر اسرائیل، در دو سال باقی‌مانده از دوره ریاست جمهوری ترامپ چه اقدامی انجام خواهد داد، گفت: نابودی کامل تهدید ایران علیه اسرائیل، آمریکا و جهان.
+او افزود: فکر می‌کنم با رهبری درخشان ترامپ، در مسیر دستیابی به این هدف هستیم و ییشرفت بسیار خوبی داشته‌ایم. هم اقدامات نظامی و هم محاصره اقتصادی بسیار موثر بوده‌اند.
+نخست‌وزیر اسرائیل تاکید کرد: بیایید این کار را به پایان برسانیم و اجازه دهیم مردم ایران آینده خودشان را در دست بگیرند. این اتفاق خاورمیانه را تغییر خواهد داد.
+او تاکید کرد که تنها راه مقابله با این وضعیت، اساسا خلاص شدن از شر این حکومت است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78753)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-18 17:05:45
+
+<img src="https://cdn4.telesco.pe/file/YdWNhlb7n6jgF8Z41S2lPsf6LYYqlL0FUz0J9d8Reu08bXmIink216Fwf_demRr5j8K5mmHPjHZkr3WTtKHmqouxoL1dLxSrac4l98Bx08xZZUYbwYmeFPQRKEMohpSLhYClx8Ureefy68Y2YlPqV5WN9B7PlvUI0UmCKURwXaGZOrSzbGIhs3e-NHDn0TVGhS37Qj62859eX4mDACV1CPlrRznUngIIiRCT392t2bnH3RINLxwRsnkYXEscj6qMNQ-UciL-D0Y7AoDFRH20Vu3WCVr1H8kzL-pjqTiak6DkXQsww1kWoiU4F6Lj1jcVB7Nkk237gZ_Z_d60c8mIIQ.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا روز یکشنبه ۲۶ مهر ۱۴۰۵ از اصابت دو پرتابه ناشناس به یک شناور یدک‌کش در نزدیکی سواحل امارات متحده عربی خبر داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78752)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-18 17:05:07
+
+<img src="https://cdn1.telesco.pe/file/YpSryqQ60GVBPrPStaXbaI-XZJ3GmIGJgxlelE4OwCbo9GqFjjSUiH192W73pFHdHNa5cc2yOY6i_jq3BM3UbjK3FYuNQcqVUg3OPcq9CSRPpv4qkjGyg0QBBcMzUmqZpqiwnTOOMPLAIujeHf0MP4vSr69ilxvaQ73RO2xkdJ0j3eDNGIpsMdLtML_0_11CcDrEYJpddAadw4rF3R3fgFmnhVfKfA_1l_W4BF7Zo7SWypjpNH6bNGVvVPlLsiWzyrB65znUKXViZwBHukYJ3BJF62hf9EPA60b0--I-tE2jHUaIJBbtQVgtRYqnObDsmzAXPb9JvsHEeG4HxwTV3Q.jpg" width="400"><br>
+
+فرزاد کلبعلی، استاد مدعو دانشکده حقوق و علوم سیاسی دانشگاه تهران، از تدریس در این دانشگاه محروم شده و اجازه ورود به دانشگاه را نیز ندارد؛ بسیج دانشکده حقوق مدعی شده که این محرومیت با پیگیری‌های این تشکل اعمال شده است.
+کانال تلگرامی «دانشجویان متحد» خبر داد کلاس‌های کلبعلی به دلیل حمایت او از دانشجویان از وی گرفته شده است.
+بر اساس این گزارش، بسیج دانشکده حقوق و علوم سیاسی، هم‌زمان با استقبال از حذف این مدرس، دیگر استادان و دانشجویان را نیز تهدید کرده و گفته است اجازه نمی‌دهد دانشگاه به شرایط پیش از ۹ اسفند بازگردد.
+همشهری آنلاین نیز از با متهم‌کردن او به استفاده از عبارت‌های «توهین‌آمیز و براندازانه» در فضای رسانه‌ای، تأکید کرده که این مدرس هیچ‌گاه در استخدام رسمی دانشگاه تهران نبوده است.
+محرومیت کلبعلی از تدریس در حالی گزارش شده که رجانیوز پیش‌تر با انتشار مطلبی علیه او، خواستار برخورد وزارت علوم با این مدرس شده بود.
+این رسانه مدعی شده بود تلاش‌هایی برای کنارگذاشتن‌ کلبعلی در دوره وزارت علوم دولت ابراهیم رییسی صورت گرفته، اما او پس از آغاز وزارت حسین سیمایی صراف در دولت مسعود پزشکیان، دوباره به کلاس‌های درس بازگشته است.
+رجانیوز همچنین، بدون ارائه مستنداتی در متن نقل‌شده، کلاس‌های کلبعلی را محل «فعالیت علیه نظام» و «توهین به شهدا» توصیف کرده و مدیریت دانشکده حقوق و علوم سیاسی را به برخورد سیاسی با استادان حامی حکومت متهم کرده بود.
+کلبعلی در اظهاراتی که از او در برنامه «میز جنگ و مسئله ایران» منتشر شد، ضمن تأکید بر نقدهای ساختاری خود به حاکمیت، با حمله نظامی اسرائیل به ایران مخالفت کرده بود. به گفته او هدف این حملات را آزادی مردم یا گذار به دموکراسی نمی‌داند و معتقد است مردم ایران قربانی اصلی آن هستند. او همچنین تجزیه ایران و گسترش عمق راهبردی آمریکا و اسرائیل را از اهداف این حملات توصیف کرده بود.
+@
+VahidHeadline
+تصویر دوم بالا در کانال‌های غیررسمی مرتبط با نهادهای امنیتی حکومت که خواستار برخورد باهاش بودند منتشر شده بود.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78750)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-18 05:22:16
@@ -112,7 +262,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-17 16:47:56
 
-<img src="https://cdn4.telesco.pe/file/ZGxe6eXtIRhMRCDsdop3IjOA119tKIAa6JtvY5oqVRyA164csGH0aj6UrnpJAiJS8sIwdkEMZ9Esmg4ZCc1_fHvkGblTGTcHMF2PR0xyWuxRwkYGjKPY5iWqsBCxv3fPdTAIG6JeC_6nBc67mVmaTCCoDl5_BFrhy-GRbjBlf0vHDduB_2p7YtwEkB_V6j_eKGhUVDfPKuM7ePy-cp_qoJxL5e-xBCZGkWri9M1ioyp77jnpPbe3ncP5v1f5Jnl6nXXvThxrHg8tiSbvzZCAfDcA01sF-it7ugjNqESYBkFRcvNaZKgxNWzRTWzC9I35bfqP8rGsETci8iBHSG0-XA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/qJ6xdTRK0QGcKO0JN1Ij5bunxFap3yyCjIUeWcC2cpdqyropf6_F2FzcQuCN37yAcP1TpEKXCMU4fX9nrHu8GONrX87DhmEA2FQ4zS7ypw0rZA3Zl2DUrni-2BIpIW5YcTpEwNTRfYJm50JLJIe-36aAp0cfwZ_fujYfwYUezm73agiEaXdblsoMUiyUDG-SlBGbxoIisXztkca9emRK5ITQrkqFHanIgUlALgFcW3HXt3O5LI702bQEbcIAyruCudgn8xEZE86V2MIow37uIbncIIuovGXeGGoikBaLNWgbNbC2qfSIMUHKQOKw09qduPLLXQ5Sg41lMZZA8yfmdw.jpg" width="400"><br>
 
 استاندار تهران می‌گوید شمار دانش‌آموزان شهر تهران هفت هزار نفر کاهش یافته، در حالی که تعداد دانش‌آموزان شهرستان‌های این استان ۱۷ هزار نفر بیشتر شده است.
 او این تغییر را به انتقال شماری از دانش‌آموزان از پایتخت به شهرستان‌ها به‌دلیل شرایط اقتصادی و بازگشت تعدادی از اتباع خارجی نسبت داد.
@@ -130,7 +280,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-17 16:47:28
 
-<img src="https://cdn1.telesco.pe/file/u7rHaZU5TGbj_pWR_6YNltBvRFJpw0msKmXEpo9kvKPHnsBHDuFlMbQZLSywuaYgf-EBnrqotLnSKSdQT7XB7X_bgRV2cgLBnLsXVGgTstDAMk8P3Ytfu2cpv1uzQWx98RsJBsc7VYvCKwWIUL644hGl5zVULJ6_J43d8uTpJMyqzQK-ThH-fMAE4wS2XYkdsU79XlrX3_JoSpVxxM9LcrhW8pPiS_7aWf-uoWd77p20l4ErlmhLle6c8LiNSRK04dR11Nj41V5sjdWk6ObVzjY-pGqZTaqusL4hM45KYEGHXw-S4EPMb__PJTFZj4NKJasvoqcQGWi-RunZ9uEepA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/WScmlUmvuR52sDmn0hV0YHF4eJWVflk5mKPs4NKEqnuMYr79x1ia5_2nThlrU6VVmEPSxIXeZvy60dSE6pVcBKpMnMpW-1A_XUtlI63ZQM6ZA_tsUXmWZ22L8HDZQxghJ16i5vJLes0VIrZNQ22wLwd7gKGwjGFVjxPEyqx_zps9V5vNsf8R3ZJlKvabUnYve3sCv2EZXJnp9K3UxYPwNHrT6tjaWQOEUiqxwr38rWAqSxVGYIoXi0Z1qNSLoZemT-qW5SWd5-OdXluv2dgCuaedvWsN8NhSjIEYRkYq34w95RAi8ekq4TDCoJD2vjsxSZjddUBOfX6wztNDe76Y5g.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش شامگاه جمعه ۲۴ مهر در آب‌های شمال شرق عربستان سعودی، از سوی یک قایق کوچک با نارنجک‌انداز آرپی‌جی هدف حمله قرار گرفت. در این حمله بخشی از نفتکش آسیب دید، اما همه خدمه آن سالم هستند.
 بر اساس هشدار این سازمان، حادثه ساعت ۲۲:۵۲ به وقت تهران، در فاصله ۷۸ مایل دریایی شمال شرق الجبیل عربستان سعودی رخ داد.
@@ -153,7 +303,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-17 16:45:07
 
-<img src="https://cdn4.telesco.pe/file/j67us-pe4B7rrVCMVyYFdJiMmXjOCq0G7_L1_cfYSxM-iN1ejQXL1lQnOZBywUw3hSu_DhYM8WL70Zmcms0wnzI1kBDFXQ3QiVCngqNan3JOLkcl0zNr9nxgJDot_QzLI-j1loYxYLAgnT9pChV49H7N8wFUffaDB9D7TrtDhyeps-RNTvmZAwFBz9ETz5qW8mkwIr13ww5XndDQb9UBJ-kxq8-WnRZ2KFolj58DTuwUi7gT_RDzSwgI90nTLwktbepgn3t-IgoMrUYK69FYkXptKL-b5p1JZzuEDzW-LsvH7Ti_jql9suunJxLJ1TsieiKKdoH5Y6T5t1zZSDQYJg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PKH5XR-IniTJ1rlXRUNeq2e6yV33nzRh0IrFhtfSnBefIsi6qK13GR2S6kaKilmPAlfp0KwQpMIqSJS-zMtdFcf29fg03v_XiqfPZEFPSCDaMzuWWCQ4qzxGntFoxSF6-ACL9EniwrQOiMh8RyZLuZXVq05mow6bxvLaq9hhb7y8hGhgHcpk2S4T-LO-rnZPMLJzp_tk_0BFGJUophmGlHNfYlmV7z6C8wXdLyrN78W7_ouZq1rwnjLOnhzL_RtucDe5J3yqa_Pflm8I0a6E7B59-V6DipYnBgQxQS3I_IAjwq-hNoQCMxdG2hDWXBhi8X5b6faZHHJoO0ekxW2Aew.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهور آمریکا، می‌گوید ایالات متحده از تمام کارهای مقام‌های ایرانی خبر دارد و «تمام حرف‌هایشان را می‌شنود». او این گفته را «اطلاعات محرمانه» خواند، اما جزئیاتی دربارهٔ آن ارائه نکرد.
 ترامپ روز جمعه ۲۴ مهر در یک گردهمایی انتخاباتی در ایالت جورجیا این سخنان را بیان کرد و گفت آمریکا در برابر ایران در «موضع بسیار قدرتمندی» قرار دارد.
@@ -173,7 +323,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-17 16:42:53
 
-<img src="https://cdn4.telesco.pe/file/h1hKWidtcYf6Ov6y8kPg1ZSFauxhybKHHqrvNAKVQjXrkIxrR_fJgUIo9PWNEwGOMt-uODvQxUHzbGVBwXdbIPWikY2fnXPpTwxJLSiLsD6xq5LSfFykv_VqwlvdPDIgusT-OjsDPH3rHuDPhnp1KuKkRKhm3vQV7VCmRbFYvhISFg4Z8PsTM8rW2RNc6D87l1QFIih4cMUk0TZcPOZOkuyJSqB_-H0xFu3CnYtUlZTG7YJ-jjKMMO22fUve4oYmWHG_ASo463KLKYOen7A_1FZUa2ArQHqHS1qR517yXGBtCgPuVRUcNo0Ipx7a9-t1uX0OhJ1fFihnLI_qF4uMnw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/UFNTxOJ8mIedGyusSM0o_fe2Fr4iNDsNBnEoXNbgyUUeNYx5Q0cSGuQeLjFirLNefK-GXgbGWpo_5AdolW8KZWUpkYlA4CQ67FhTVqjGCBZFAJWPSeH9BpDhDYKNT11HbItp_eGhFa6Mv3BLV2rXxL79jAoa5dtq8d-ial1mTv7it3x2bxNrspJ_G4O9hLpEhNZWIowZyGJ6HwGvkUUyJ04tUldMP5vmp2D7eOrXvTOL8qJo_7Qsiaj5dd0qlu5G5KigMSB_TmnBW8U9nzW2drdVAeMX6cbvY06nUd02rleztiR4SN0xasQxqu9xNbYAbKA7XLezLjMnIMcz0W9PSg.jpg" width="400"><br>
 
 اداره‌کل اطلاعات استان ایلام از بازداشت ۱۱ نفر در شهرستان ملکشاهی خبر داده و آن‌ها را متهم به شرکت در اعتراضات دی ماه کرد. بر اساس اطلاعیه اداره کل استان ایلام بازداشت شدگان همچنین به ارتباط با آمریکا و اسرائیل، تیراندازی به نیروهای امنیتی و تخریب اموال عمومی متهم شده‌اند. این نهاد امنیتی بدون انتشار مدارکی برای اثبات اتهام‌ها، بازداشت‌شدگان را «مزدور» و اعتراضات دی‌ماه را «کودتا» خوانده است.
 @
@@ -200,164 +350,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78739)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-16 18:05:41
-
-<img src="https://cdn4.telesco.pe/file/V3TPjhmUr8giWJInhyoFBMghnj36QISUDnvsG4dYTszvNC_vTUAQVEFKGDGqYjuab-Zfbb5spwiJMuRYA_yXqZa1XknuMb2Vgpcgv9yHL_70lM2UK8gzfALKd61YgLVLvl6YeqKzFSoUoG6YG2vvdx2NKD3ZXUA2woKeP_kGP9bkfU98FDiQum7Q_AIAxTbwFC84YnGpNupSxAwVc2dIuDQ8Q1k9trntHhWLGl26d7sPNy_H4gBADnBS2r4ElhhmB7a9isMZ1r_RCpxLfJ8aOhMH-OjIz1Y6xxl41PME4Dgi5tVz1sURmmGuvDIuEDnYUTZQrJE0NVMCtM4qu5cHUw.jpg" width="400"><br>
-
-۱۴ زندانی سیاسی با امضای بیانیه‌ای در مورد خطر صدور حکم اعدام برای امیرحسین موسوی، فعال شبکه‌های اجتماعی که با عنوان «جیمز بی‌دین» شناخته می‌شود، هشدار دادند.
-در این بیانیه که روز پنج‌شنبه ۲۳ مهر منتشر شد، این زندانیان سیاسی با اشاره به نقش نهادهای امنیتی و صداوسیما در پرونده‌سازی علیه امیرحسین موسوی اعلام کردند که پس از پخش اعترافات اجباری او از تلویزیون، تعداد اتهاماتش از پنج مورد به ۹ مورد افزایش یافته است.
-از اتهامات اضافه‌شده به پرونده آقای موسوی، «محاربه» و «افساد فی‌الارض» است که می‌تواند خطر صدور حکم اعدام علیه او را در پی داشته باشد.
-امضاکنندگان این بیانیه تأکید کرده‌اند اتهام‌های سنگینی که اکنون جان این زندانی را تهدید می‌کند، «پیش از پخش گزارش صداوسیما اساساً در پروندهٔ او وجود نداشت».
-امیرحسین موسوی از آذرماه ۱۴۰۳ در بازداشت به سر می‌برد و پس از تحمل شش ماه سلول انفرادی، به بند عمومی زندان منتقل شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78738)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-16 18:05:08
-
-<img src="https://cdn1.telesco.pe/file/PwIxZF05ta3EwYr_QjCR5YJwHWEOyj4uubbVN-ZbI2LMYaazoO8v9ireNkzoUVu3qYRh7F0cdEEP9G6vlnfI0hyysxmSxdBTZxiBu4mT1f8przHWK18F2JI19VhT3yJd3aVvPJ_PYvfJF39iL7pPMiZLwGg_dBm-642dQq2xpMt6o0F-BovMUyZAMPndnb2CqsltGgaIfHlCohfSxKMokTs2dvZWQH_-l2GXL_MNHsD_iHZHbMd3xqOMgHoVXddvMuHnSIv-XeN_AE3V3VljNPBWOyTG1kB5k9zhRf1NChJy_PhjdCJ1mtjIZZoUot2_1cmf_Pkbza4V1JNwQ1dvIw.jpg" width="400"><br>
-
-پیمان قدیری، معترض ۴۵ ساله‌ای که در جریان اعتراضات دی‌ماه با شلیک گلوله به سرش به کما رفته بود، پس از حدود ۹ ماه جان باخت.
-به گفته یک منبع مطلع، ماموران حکومتی شامگاه ۱۹ دی‌ماه ۱۴۰۴ با ورود به منزل قدیری در قرچک، از فاصله نزدیک به سر او شلیک و این شهروند را به‌شدت مجروح کردند.
-این منبع افزود ماموران همان شب فرزند قدیری را نیز بازداشت کردند تا خانواده را برای سکوت درباره این حادثه تحت فشار قرار دهند.
-قدیری که دانش‌آموخته رشته هنر و طراح دکوراسیون ساختمان بود، پس از مجروح شدن به کما رفت و در نهایت جان باخت.
-به گفته نزدیکانش، او فردی نیکوکار بود که هزینه برگزاری مراسم عروسی چند نفر را تامین کرده و سرپرستی چند کودک بی‌سرپرست را نیز بر عهده داشت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78736)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-16 05:11:03
-
-<img src="https://cdn1.telesco.pe/file/pmVX_-jkcYRimaf_E8weLVwWgckkp_hFJntSurv3vWpGLlFxAeAeFBcExzIL7iDCZPuRwAtEpM1EUzEkjHPpAWkzyLrxeBayozyaLGeRFSYvhAjAWcDFGCjyFNcrScJB1dWNLJ4YRMrdQ4teEBiRCfpIpbjBTvPvi_1OfOlhOZJvsCKhKLQUbP0B7zTvWx0jcVPHZvWxlhicsdJNVV5FcgupXtvf44p2v1i6HfbbXUks-WmQ4GHRDX1mLGy9x0qo_Qy-mpv5X23BGNFV45B1-mCX55Xv8uymFEpEdSbPFshkZ-SpQRD2gMUch7FQghlJnUg-Jr2LWN9Hej_8aP21WQ.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، جمعه ۲۴ مهر در گفتگوی اختصاصی با شبکه خبری نیوزمکس، در پاسخ به پرسشی دربارهٔ گزارش‌ها از احتمال استفاده آمریکا از «مادر همه بمب‌ها» پس از انتخابات میان‌دوره‌ای علیه ایران گفت این سلاح هسته‌ای نیست.
-ترامپ گفت: «این اصلا هسته‌ای نیست. فقط یک بمب بسیار بزرگ است؛ شبیه یک بمب هسته‌ای کوچک است.»
-او افزود: «از سلاح هسته‌ای استفاده نمی‌کنم؛ نیازی به آن نداریم. ما بزرگ‌ترین قدرت هسته‌ای جهان هستیم. از نظر تسلیحات هسته‌ای از روسیه بیشتر داریم؛ روسیه دوم و چین سوم است.»
-پیش‌تر، سی‌بی‌اس نیوز گزارش داده بود که کاخ سفید و پنتاگون طرح‌هایی برای استفاده از بمب «انفجار هوایی مهمات عظیم» موسوم به «مادر همهٔ بمب‌ها» علیه مراکز نظامی ایران آماده کرده‌اند؛ طرح‌هایی که در صورت صدور دستور دونالد ترامپ ممکن است اجرا شوند. یک مقام پنتاگون نیز گفته بود وزارت جنگ آمریکا برای طیف گسترده‌ای از وضعیت‌های عملیاتی برنامه‌ریزی می‌کند و سخنگوی کاخ سفید تأکید کرده بود ترامپ برای جلوگیری از دستیابی ایران به سلاح هسته‌ای «همهٔ گزینه‌ها را روی میز نگه می‌دارد».
-@
-VahidOOnLine
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، جمعه ۲۴ مهر در گفتگوی با شبکه خبری نیوزمکس دربارهٔ ایران گفت آمریکا «کوه کلنگ» را بررسی می‌کند و افزود ممکن است این محل هدف قرار دهد. او گفت: «ممکن است مجبور شویم سراغ آن برویم؛ آن را هدف قرار دهیم و سریعا از بین ببریم.»
-ترامپ در پاسخ به پرسش خبرنگار دربارهٔ احتمال اعزام نیروی زمینی به ایران گفت: «نه، چنین چیزی را در نظر ندارم.» او همچنین گفت هدف آمریکا این است که ایران هرگز به سلاح هسته‌ای دست پیدا نکند و افزود به باور او، ایران در صورت دستیابی به چنین سلاحی «فوراً» از آن استفاده خواهد کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78735)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-15 16:26:17
-
-<img src="https://cdn1.telesco.pe/file/O_PppejctQMaS_07ff9anoZlU6II_0G3taFKs8t6jaU3dCGkjfDSEzJAisVH3d3lLK0sWOblvfsGwk-ytmAqWEQr2qvW0Ed6eVSnn4VipYy3Ocxbxn9FCUbnim-8inlR-H3YOhrMKUCiGM_BWhrgKFiNW-9k0B_HMLDVtWK5PF9ds9Of6eZ20m6KhPEsxI-omETjPbmPGcdDlODbDP4Ab3uoG-Lr07kVVgv3W99kNNrl0E3uMN_eq3USfI1aRPTO6Z6XanV3dMD0IprXdNVjKOsdP-VmLBBOzaXfVBACEv9IAMnIFDfLE9MWlwTFMDvJmVOT42G64SvREtXRUChu2Q.jpg" width="400"><br>
-
-سخنگوی سپاه پاسداران گفت حمله به سه نفت‌کش در ۱۵تیر ۱۴۰۴ «خودسرانه» نبوده است.
-حسین محبی تاکید کرد که حمله به کشتی‌هایی که این نهاد آن‌ها را «متخلف» می‌خواند، پس از امضای تفاهم‌نامه اسلام‌آباد با هماهنگی مقام‌های بالاتر انجام شده است.
-او این حمله‌ها را «پاسخی قاطع» به آنچه سومین نقض عهد آمریکا خواند، توصیف کرد.
-@
-VahidHeadline
-حسین باستانی:
-بعد از مدت‌ها گمانه‌زنی محافل رسانه‌ای در مورد منشا حملات ۱۶ تیر به سه کشتی تجاری در دوران آتش بس موقت، حسین محبی سخنگوی سپاه گفت: «حمله به کشتی‌های متخلف بعد از امضای تفاهم‌نامه، نه اقدام خودسرانه بوده و نه بدون هماهنگی با مسئولان بالاتر.»
-با توجه به اذعان اخیر سخنگوی سپاه به زدن سه کشتی در «هماهنگی با مسئولان بالاتر»، یادآوری بخشی از مقاله ۲۱ شهریور بی‌مناسبت نخواهد بود:
-«استدلال محوری فرضیه “آتش‌به‌اختیار” بودن حملات ۱۶ تیر، حمایت مقاماتی رسمی در جمهوری اسلامی از تداوم آتش‌بس بوده است. در این فرضیه، دفاع مقام‌هایی چون مسعود پزشکیان و محمدباقر قالیباف از تفاهم‌نامه اسلام‌آباد، به‌عنوان شواهد مخالفت “حکومت ایران” با از سرگیری درگیری در محدوده تنگه هرمز مورد اشاره قرار گرفته است. اما استناد به اظهاراتی از این نوع برای توضیح مواضع “نظام”، به معنی نادیده گرفتن ساختار واقعی قدرت در جمهوری اسلامی ایران خواهد بود، که تصمیم‌گیر اصلی آن نه افرادی چون رئیس دولت یا مجلس، که اصطلاحا “نهاد رهبری” است... صرف نظر از اینکه تصمیم‌گیران، اجراکنندگان و استقبال‌کنندگان از حملات سه‌گانه، بعدها به همان نتایجی که تصور می‌کردند رسیدند یا نه، آشکارا آنچه در ۱۶ تیر به وقوع پیوست، “آتش‌به‌اختیار” نبود.»
-@
-HosseinBastaniChannel
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78734)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-15 16:22:11
-
-<img src="https://cdn4.telesco.pe/file/v3vaci5b61mikDj8_9DPVH9hDxsQQopU_aOxKtwj8laWAXv1f3qAVy-m0U-fE0_0rXbRDqDLZsSusQfzRjAm5OwgQTqavbj8Hnkf9TkojK62riaVE12gUvMB9oMZy2zgd9g5GeV54KbxGv-vulx-oR3MJsICTH-IpIv2CfEJgN4t9dpiIVX22nHAjH7GJ7b_wUtWC4yAxMBvDH5Z9ibcEM3kPCHO7LTvZFPdrxDLskwOFehxv5FXijuHW_dRYfTil2aBwtbCGzhwOHWdlx819jL0y6EEL5ckaf3ikJDmQaOcU-SgBFWc2v4cjXe01rJzVzQ3i1v1u_3la0gpHmyXdw.jpg" width="400"><br>
-
-رسانه‌های ایران گزارش دادند که یاسر طاهری، عضو جامعه روحانیت مرکز مازندران و امام جماعت مسجد امام حسن عسکری در منطقه راهبند ساری، روز پنجشنبه ۲۳ مهر در خانه‌اش به قتل رسیده است.
-براساس گزارش‌های اولیه، این روحانی با «سلاح سرد» کشته شده است، اما هنوز جزئیاتی درباره انگیزه قتل یا هویت عامل یا عاملان آن منتشر نشده است.
-از این آخوند همچنین به عنوان رئیس قرارگاه محله مهدوی جنوب شهر ساری یاد شده است. او همواره بر جایگاه بسیج تاکید داشت و در سخنرانی‌های خود از جمهوری اسلامی حمایت همه جانبه می‌کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78733)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-15 16:21:57
-
-<img src="https://cdn4.telesco.pe/file/mz6OSHfgH5MrtlmoTIDAl9cX5c3Cp3NgIDi-MmxCXgltLsKHoRx9uUd7N0YDzxQaoLjP2RmLlyEvRrDITw31s39djGMYl8TQkB2g2DBebCmwRQ22nHaRJsRe4pNQEqoL-BHyXlconS5Xtt5uWSuqnfBhFaQDg0H_CF1_bjQYWitEUBdGqmG5bKaVdHRDbLNFqjSd0ptvDWKQA_0EFTG2ACKhInJxGVWE1WgQmJNjFeKxtFMo2NmLT72n8J6I6TSOt8bNrSoWhtpn8wMGLquYaBI47fW3E6L34K1mIQtd5nKBYxYEuzatMAW_EyxvAZFwEmJMkOuPyMTJgILZJC5s7w.jpg" width="400"><br>
-
-حکم اعدام «احمد پرویز»، وکیل پیشین دادگستری که به اتهام قتل همسرش «منصوره قدیری‌جاوید»، خبرنگار و پژوهشگر خبرگزاری ایرنا، به قصاص محکوم شده بود، اجرا شد. او آبان۱۴۰۳ همسرش را در خانه‌شان در شمال تهران با ضربات دمبل و چاقو کشته بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78732)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-15 00:17:26
-
-
-
-پست سنتکام، ترجمه ماشین:
-در ۶ اکتبر، نیروهای آمریکایی یک لنج وابسته به ایران را که در دریای عمان مشغول شناسایی و رصد ناوهای نیروی دریایی آمریکا و تعیین اهداف برای حمله به آن‌ها بود، منهدم کردند.
-در هفت ماه گذشته، سپاه پاسداران انقلاب اسلامی ایران علاوه بر ناوهای جنگی نیروی دریایی آمریکا، همچنان هزاران دریانورد غیرنظامی را که از آب‌های منطقه عبور می‌کنند، بدون تمایز هدف قرار داده است.
-خدمه این لنج پیش از انهدام آن، به‌سلامت از شناور خارج شدند. تلاش‌ها برای بازگرداندن آن‌ها به کشورشان ادامه دارد.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78731)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-15 00:16:07
-
-
-
-محمدباقر قالیباف، رییس مجلس شورای اسلامی، روز چهارشنبه ۲۲ مهر گفت جمهوری اسلامی هم‌زمان با جنگ، مذاکره را نیز دنبال می‌کند و هدف از ادامه جنگ را وادار کردن دشمن به پذیرش خواسته‌های تهران یا پذیرفتن شکست عنوان کرد.
-قالیباف در یک پیام ویدیویی گفت: «هم می‌جنگیم و هم مذاکره می‌کنیم. باید در زمان لازم با تمام توان بجنگیم، آمادگی خود را بالا ببریم و هر وقت در میدان به پیروزی نظامی می‌رسیم، آن را در عرصه سیاسی ثبت و تثبیت و به سند شکست دشمن تبدیل کنیم.»
-او در ادامه تاکید کرد که منظور جمهوری اسلامی از دنبال کردن هم‌زمان جنگ و مذاکره، ادامه بی‌پایان هیچ‌یک از این دو نیست.
-قالیباف گفت: «وقتی می‌گوییم هم می‌جنگیم و هم مذاکره می‌کنیم، منظورمان این نیست که جنگ بی‌پایان یا مذاکره همیشگی می‌کنیم، بلکه جنگ می‌کنیم تا دشمن را مستاصل کنیم و به خواسته‌های ما تن دهد یا اگر تن نداد، شکست را بپذیرد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78730)
 
 ---
 
