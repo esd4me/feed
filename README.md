@@ -3,8 +3,94 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-19 15:07:29 </h5>
+<h5> 🟢 Updated at: 2026-10-19 21:29:17 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-19 21:20:37
+
+
+
+بنیامین نتانیاهو، نخست‌وزیر اسراییل، روز دوشنبه ۲۷ مهر با انتشار ویدیویی از گفت‌وگوی تلفنی خود با دونالد ترامپ، رییس‌جمهوری آمریکا، اعلام کرد که دو طرف برای از میان بردن تهدید جمهوری اسلامی همکاری خواهند کرد.
+@
+VahidHeadline
+ترجمه ماشین:
+بنیامین نتانیاهو:
+از این حمایت فوق‌العاده بسیار سپاسگزارم.
+تو رهبر فوق‌العاده‌ای برای آمریکا و جهان آزاد بوده‌ای. با اختلاف بسیار زیاد، بزرگ‌ترین دوستی هستی که اسرائیل تاکنون در کاخ سفید داشته و در آینده نیز خواهد داشت. جسارت تو به تمام تمدن بشری جسارت بخشیده است.
+دونالد، ما کاری داریم که باید آن را به پایان برسانیم. خودت این را گفتی و ما با هم آن را به پایان خواهیم رساند.
+دونالد ترامپ:
+ما آن را به پایان خواهیم رساند و هیچ‌کس دیگری این کار را نخواهد کرد.
+راستش را بخواهی، آن متن را خودم نوشتم. این‌طور نبود که کسی آن را برایم نوشته باشد. خودم آن را تنظیم کردم.
+تو یک مبارز هستی. کشورت با تو ناعادلانه رفتار کرده و احتمالاً بعضی‌های دیگر هم همین‌طور. اما در این ماجرای مضحک، با تو ناعادلانه رفتار شده است.
+با تو ناعادلانه رفتار شده، اما تو یک مبارز بزرگ هستی و ما این را ثابت خواهیم کرد. خیلی زود این را ثابت خواهیم کرد.
+به نظرم فوق‌العاده‌ای، بیبی. برای همین، از ابتدا هم قصد داشتم این کار را انجام دهم.
+فکر می‌کنم واقعاً پیروزی بزرگی به دست خواهی آورد.
+[عبارت کوتاه نامشخص]
+تو همان کسی هستی که می‌خواهم کنارم باشد، بیبی.
+بنیامین نتانیاهو:
+خب، بگذار چیزی بگویم.
+آنچه می‌توانم بگویم این است که اتحاد ما ثابت کرده می‌توانیم با هم کارهای شگفت‌انگیزی انجام دهیم.
+هنوز کاری داریم که باید آن را به پایان برسانیم.
+صلحی داریم که می‌توانیم آن را گسترش دهیم، چون مطمئنم قدرت ما باعث می‌شود... می‌دانم که قدرت ما کشورهای دیگری را نیز با خود همراه می‌کند.
+نمی‌خواهم نامشان را ببرم، چون این خط ارتباطی باز است. اما همه ما می‌دانیم که می‌توانیم توافق‌های ابراهیم را گسترش دهیم؛ همان توافق‌های تاریخی ابراهیم که تحت رهبری تو به دست آوردیم.
+و مردم آمریکا باید بدانند که تو در برابر بزرگ‌ترین خطری که آن‌ها را تهدید می‌کند ایستاده‌ای: ایرانِ مجهز به سلاح هسته‌ای.
+ما اجازه نخواهیم داد چنین اتفاقی بیفتد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78767)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-19 17:10:26
+
+<img src="https://cdn4.telesco.pe/file/lKGU9kUnVwAFz8wcBsCdZqLiPn4UGoRVRmZWBC7HBl7hDBBPdVInPd80WoSJOBh6MgBeemGEXo47dXjdhBGbqa6RRt5MduVp_FjtAyI4tFyGhJjhEdccvWseRrL2CxV7XwKxsl92QA0IuG0SZIcgtz6tLEmO4NoLquxqhCbQE7wg9Ixsg-Pe9cuBOq1MsKN-LR3RH26AF8oaLmUled9LeKAFI_S6XVMqIAStC1EUlAqyx1eK9K1rb8ALC4xB6302KuWpqrDhhdND0hVFqqVBWAlL7nYi2wxYBC-53mrPWLKdZ1uOlhzWedpATU26Aqm3WtcHU2ZBUZXi4UriotunEA.jpg" width="400"><br>
+
+سرگئی لاوروف، وزیر امور خارجهٔ روسیه، روز دوشنبه ۲۷ مهر ماه و ساعاتی پس از ورود به تهران، با عباس عراقچی، وزیر امور خارجهٔ جمهوری اسلامی ایران، دیدار کرد.
+سفر لاوروف به تهران در حالی انجام می‌شود که روزنامهٔ وال‌استریت ژورنال ساعاتی پیش اعلام کرده بود پوتین خواهان برگزاری نشستی با شی جین‌پینگ و دونالد ترامپ، رؤسای جمهوری چین و آمریکا، شده است.
+لاوروف روز یکشنبه در منامه با وزیران امور خارجهٔ کشورهای عضو شورای همکاری خلیج فارس دیدار کرده بود.
+@
+VahidOOnLine
+عباس عراقچی در کنفرانس خبری مشترک با همتای روس خود در تهران اعلام کرد جنگ و محاصره دریایی علیه ایران عامل «ناامنی» در تنگه هرمز و منطقه خاورمیانه است.
+او  در این نشست خبری خواستار خروج آمریکا از خاورمیانه شد و گفت تهران از هر ابتکاری که منجر به «امنیت درون‌زا و امنیت دسته‌جمعی کشورها و ترتیبات دسته‌جمعی امنیت در منطقه، بدون حضور نیروهای خارجی شود» استقبال می‌کند.
+سرگئی لاوروف، وزیر امور خارجه روسیه، که به تهران سفر کرده، در این کنفرانس خبری گفت که روسیه خواهان ثبات در بازار انرژی است و به نوسات قیمت‌ها علاقه‌ای ندارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78766)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-19 16:24:16
+
+<img src="https://cdn1.telesco.pe/file/jHyz7cMnezhc04jukCv-MApYUX9EFzW29P-nYF3CCFYcpvfxiGzT8sqIYrohKAqZl5tacJUy43YWeWm9Z6-s-0cXF5VD9GVBcQaNVdN0gDeJMzTLwpTeg2PCU0PXMTA450cu2lcoaXv1ATK_tdI49gbqpq-SN7Wp9FxfWVdvCPnfh0hTEbrFVfqF3aa1IAMbPntGRJfjqzh-CgjxnAgMW0HBlWOQW4xB13jViiFVW4MU8t6C_4Ehop5bP46y4Cu6nTA23oN724FrS8snXzYXhvu6plkPGHoK2v44hHmKuz_BbDMXKzrz7PIQ68mk1UII9CSe-AZpddU-KuxOSU4yjQ.jpg" width="400"><br>
+
+امیرمحمد حاتمی، جوان ۱۸ ساله اهل شاهین‌شهر اصفهان، پس از مجروح شدن و بازداشت در شامگاه ۱۹ دی، با شلیک تیر خلاص به چشم راست کشته شد.
+خانواده او پس از ۲۰ روز جست‌وجو در زندان‌ها، سردخانه‌ها و مراکز امنیتی، سرانجام پیکرش را که آثار شکنجه بر آن دیده می‌شد، از جای زخمی قدیمی بر کتف راست شناسایی کردند.
+این جوان ۱۸ ساله، اصالتا بختیاری و ساکن شاهین‌شهر در استان اصفهان بود.
+خانواده حاتمی در روزهای نخست از بازداشت فرزندشان اطلاعی نداشتند و نمی‌دانستند او پس از مجروح شدن به کجا منتقل شده است.
+به گفته  منبع نزدیک به خانواده خانواده حاتمی در جریان جست‌وجو، روزانه حدود ۱۰۰ کیسه سیاه حاوی پیکر جان‌باختگان را باز می‌کردند تا شاید بتوانند فرزندشان را پیدا کنند.
+سرانجام پس از ۲۰ روز جست‌وجو، فردی با خانواده تماس گرفت و از آنها خواست تا یکی از اعضای خانواده برای شناسایی پیکری مراجعه کند.
+این منبع گفت: «وقتی برای شناسایی امیرمحمد رفتیم، پیکرش درون کیسه‌ای سیاه بود. خون‌ها روی بدنش خشک شده بود و قابل شناسایی نبود. بدن و صورتش کاملا کبود بود.»
+او افزود گوش‌های امیرمحمد به‌شدت آسیب دیده بودند، چشم‌هایش تخلیه شده بودند و آثار متعدد جراحت بر بدن او دیده می‌شد.
+امیرمحمد در حرفه مکانیکی فعالیت می‌کرد.
+به گفته نزدیکانش، او با وجود سن کم، مهارت زیادی در این کار داشت و در شاهین‌شهر به «اوستا» معروف بود.
+کسانی که امیرمحمد را می‌شناختند، او را جوانی سخت‌کوش، مهربان و مسئولیت‌پذیر توصیف کرده‌اند که علاوه بر کمک به تامین معاش خانواده، به حمایت از کودکان کار نیز اهمیت می‌داد.
+iranintl
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78764)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-19 05:28:46
@@ -117,7 +203,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-18 19:40:33
 
-<img src="https://cdn1.telesco.pe/file/rCr-HVX_KcDbhakyWnHrAz917fMJTeO8Tlx343UFC8uE5tM0KflTPTJr_kGp1aRJGxbM6Wuh1dA3kpfwdR21yTudafTwqFG1_UTIb-uOa2OIwtg95RHXOJrkuhWC52e2GKGk7IBtt3DqHIv0LhYejYpKbrjq3DfRtkS-su5YznXxbmWdAObnBz08-uJZc0VazH-g1cRmLhgYgKmdut3-aNt6FckW_TQk5Yp1Ru73wiXdVnXA2ZhVcT-JLY8wKbRQ0fnIVhxL76oZkmsvYdevfVGVYyOZgns3_K3iM5titxI-0MbwDYFaJtjTLPGtUcch4snTgM9cpgbqXvoMIHOyWw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/j32XK1riyl4jvm2B9U71Fp8zMkTXvjBCURXKITD-wxOAKC2tIX-VhVKd71UWlgO65ECUr0LyDjA27bIKjMyVAg1BDRgh1M10nAlrJ5zj6SbgOccXM_3fiDsa6fjzqfMglK_yp3CySJ7z8R6Zmjw0ELQCKmqusLKRtP_AzF6k_-J8XLGZ8iIrZ5oJ2cXfqZ86Dvktu_o42Qz56fv9nI63kRk5ATrhLhNXscvPB8OAP6kmMDmKb1DVua6mcJrAGiuybGlO4DZKrlB97JZ-K8MkmgsA19ZNLaAnORQuPmZNesvvKqXifQbVJdCM-KzHeVFVfVlTZaS-cNWsd4SVUzZp6Q.jpg" width="400"><br>
 
 عباس کعبی، عضو هیات‌رییسه مجلس خبرگان، یک‌شنبه ۲۶ مهر در گفت‌وگو با تسنیم، رسانه وابسته به سپاه پاسداران، اعلام کرد که «انتقام از ترامپ و نتانیاهو قطعی است».
 کعبی همچنین گفت: استفاده از ظرفیت‌های کشور و ۳۲ میلیون جان‌فدا، راهکارهای مقابله با نقض تعهدات دشمن است.
@@ -134,7 +220,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-18 18:23:44
 
-<img src="https://cdn1.telesco.pe/file/Q1X6nWS4PM57ijYgpJg0Nsd3F4GGeH3BZQ1fzAE4MWNvHi92K_tElKrHzWG-8-30Ftb4-ugHVxLDlVEfcGs0VJbs4DzWIGSNR-QfWKv6t5XhYN3kLb4rQf44Y9Vy37AhnDWRShA-dFvXH6Y1rFlhMi4Ob0Ac59jDreTf_YdCermniw-i_rmgIDvRMnNmKkqedI6_ymWpyoYlseMEP3pOxsyN-ZHB64p-RopqWeIh8hFZ3tD7bJs0yqLpDT-4O4ViEUAJXUAUVBLLm7TzPP_5n6qiVs328CNuK6WUBV1ng8seqRBKAK6qLUi4g7ZXzbNUS_xoat2VaYI8W3Z7POvRpQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pNuYGLUhAjG0roK70nx0jjmL18TLilxLrHPzUULlPRpiBLlWkSb-R8yEvf04Zyq1whUFlCxnw-vDnpE1cQmTr3d4Fe_aPfB9KKVxse-pbPqTzuB0anY58EerYU02PjJ7hKABgRdsiu7nHgKOs1opoAWCp6_DGzOQKDDLyglEn99UqclFaYBxUFeQuwPre38vwmWaA-7VDSBPd-Q7TBf3S2eKiYuFBYvF-DGEVDBSWgNug64_oQHlSG0KVYDVHdZfEIsya2puQGbTrKUvRiZ_0n3locdNUfct7j-nft6dy5kgPDvfVb_X0qZ-xgtvWD6N4nXCxnx_f5nIpHsaETo6pg.jpg" width="400"><br>
 
 ترامپ:
 جمهوری اسلامی که ۵۱ سال است شعار می‌دهد: "مرگ بر اسرائیل، مرگ بر آمریکا! ما شیطان کوچک و شیطان بزرگ را نابود خواهیم کرد."
@@ -170,7 +256,7 @@ netanyahu
 
 ###### 🔵 Post time: 2026-10-18 17:10:44
 
-<img src="https://cdn1.telesco.pe/file/txqFzDRhnvZLGpvj8rvH9uVAxagMy6YJhcp1XzadEywhlE9LvPWeEDkV4UAWxOBbznEkMuh_OCLn0o2ndhA2TITnFXPNSQNB_DbKRbQMS7UkXfFXMtc_bKip3QqEx5WzvbUAIDFy4enTb_R358AHgQ3UhdFXMqHpeeVWFyvVDfsfNUElWbFEioICGftkRGPKCvIoEiRcQaDpRJJPQcl1yZJSrsHX_RTVtxqe4U3FNKfRe0x46lTepGO9CNekoTgG9UD2q5Ge6IRv3u1Powo2-MYIOC-fcbCIsgpygHC9SYj_TPPTCsyA0o89EjOBe9j6-DF-DdKlwanRYyAmkskukA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/WPX84rBCNDPmMYfeULdmiRA22LZ5-6SHb8G-4w2XRdOfTlSouRknchwDnG34M5vAqRITuhjNGzmDRixtsPmM8W3KBZ8Q4w97s4D9qvW7HruuULTH4WoLe_HMXoWQGtTKqpXPRSpQ0HPPYlCqajWMGqTm9f4uN6AwTev0SGNHvC7L36DoGMAJ7weO_cymCFfk8T1ay37j_9mxFq7EQqTdQdb1LJORNyioYHnJ23vlQkAsWz6XdUHALaRtizwLq4ymlcqpjQWBxX8_GFP3wieHJIGBBb45qc9XvRLG6q3z4mQu06Oo-gUYiXRk6CkvaWe1B2Hoa-RCWBTJRY3ZGJ4t_Q.jpg" width="400"><br>
 
 علیرضا سلیمی، عضو هیات‌رییسه مجلس، یکشنبه ۲۶ مهر در خصوص جزییات رای اعتماد به وزیر دفاع در جلسه مجازی مجلس، به خبرگزاری فارس گفت: «از مجموع ۲۸۵ نماینده، ۲۷۷ نماینده در جلسه حضور داشتند که از این تعداد، ۲۵ نماینده به دلیل نداشتن دسترسی به اینترنت موفق به ثبت رای نشدند و هشت نماینده نیز غایب، در مرخصی و یا در ماموریت بودند.»
 سلیمی افزود که مهرداد اخلاقی با کسب ۲۳۷ رای موافق، به‌عنوان وزیر دفاع و پشتیبانی نیروهای مسلح انتخاب شد.
@@ -192,7 +278,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-18 17:08:12
 
-<img src="https://cdn4.telesco.pe/file/nQ6XTulODZA6cUDFYdinO_89Vy_OCOTIxOzLSofZlREsdd_ZTIRHNObcVrbj4Ob-_QPpyYd_ZJBqIQoTLXALv5pcPH_b1ZcoMtEeJsR1_P8gnvCEVLTUBFOwH6UQy94XUC8xog6PYt7C6Nmgk5E9FfCo0Oia7UOxdBrthhrC30LaV5V55GCKaf8u0vh77EvYUn21tPu2hd5b9yGah_RKGJzZsDqCuknv5NmzDR0NEmcxbiVuF8vmtu6KlfJ_58mOWLyrInIVY5oUVlUxZDi9_spjgdDkwkPwc-svoklt56izEWlOYBWQUkuHPTSPKoO4cWRjfHOk3mhc1w-jC21nvQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/sk3xv-ajIOTFVMBGP3Ix8Wa47b5689iF8exOlQlrGi8Vz7m9tgQSpcOsLYl6HR9_QLdOLfLZujwo2j9W4x4MluAA7qLMpo9DdVSqwTmyDrY6mjqmbIDwIPkRwUI5V_SF4vC9ucwDqSc9yUGH9yvG-F6PRWMl4d-3KeK9hkt3RYOqI1AjKZ8J1B6toIqextULQs_TUVwox9Qp8jPIZ2PTE22kYg8y6MWamXhyYEC6A1n5hCVtxN5-5ti_8Z45usDUsmu80GwH0tNPjXVNKAa50LMyBFSs7Grj6YqRuTezLt178Tj27sTsCgsyx6kNlv70SNEtHBCKwziugYU1Hye8jQ.jpg" width="400"><br>
 
 وزیر خارجه جمهوری اسلامی، روز یکشنبه ۲۶ مهر اعلام کرد که پیشنهاد ایران برای بازگشایی تنگه هرمز ظرف هفت روز همچنان روی میز است و از آمریکا خواست شروط تهران را بپذیرد.
 عباس عراقچی در حاشیه نشست وزیران خارجه سازمان همکاری اسلامی در بغداد گفت که ایران طرحی هفت‌بندی را به آمریکا ارائه کرده و واشینگتن نیز نظرات خود را درباره آن اعلام کرده است که تهران در حال پاسخگویی به آنهاست.
@@ -211,7 +297,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-18 17:07:54
 
-<img src="https://cdn1.telesco.pe/file/nsZ4olm7g7mh3w6ZzuQyL60zi9K37K-REYODHaIE02tdM8Xm66uVw4GeOeYrMieq5HcxTSuJNX9QruqEbZ47A6lt6n6i_ZP1ziIGbj96BOH4lUIP_RMf4f2HaaBHAFz1NuV3iiZdlf0nIn5RjZSNydqI_j4tU4OxgV8j0dGi6JOvq6W9OZHq2gGduEVuYJEm-I07tjqTzamG528GdCwEj2T5KBBBaXAXFRHXRFuHrkwfwTsr7oNtYfYdXm9N-RO0hmwTMe-Rv1wmJ0KLfGppDeFWN8hlA5DJMa3EifHwDZHF_oG53inNdKSPK_a4noIWc9tFDbzM9nNE-GO02sDrgg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/uZc9fMiyMSYpJF5gMJqaYgc-MBiJvVlYGOIvMrvUpgMkrrCTa1SHFqstrfTfOZ066-kanuV_yyrWyH_bhY6uhzzmA-adGgSBd2wpOCIai4q_KQ-YmyGXeyMcpNFSLn5Da2N7ufFGwq9Buq9Plb4KSxcREmDRtRcPm-_7K8yHvjIm5YXuMIUfca7kI5lrcfLRUaVhirdMgmOAYyA_51jIK7tH_DKDJTwJ1DYUTl-DsQ-JAoqsMDnrJzzBT1G9wHwNqNFUV4VvKF4RhVVywegxmqnZgljLzBXeWL7F5wCg12HcrZsj57ogTAas1bloPngGN9XDNpuGl4qAqHWhKwFDYw.jpg" width="400"><br>
 
 نتانیاهو در مصاحبه با فاکس‌نیوز گفت که مردم ایران به گروگان «اوباش ایدئولوژیک» درآمده‌اند.
 نتانیاهو در پاسخ به این سوال که در صورت انتخاب دوباره به عنوان نخست‌وزیر اسرائیل، در دو سال باقی‌مانده از دوره ریاست جمهوری ترامپ چه اقدامی انجام خواهد داد، گفت: نابودی کامل تهدید ایران علیه اسرائیل، آمریکا و جهان.
@@ -231,7 +317,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-18 17:05:45
 
-<img src="https://cdn4.telesco.pe/file/YdWNhlb7n6jgF8Z41S2lPsf6LYYqlL0FUz0J9d8Reu08bXmIink216Fwf_demRr5j8K5mmHPjHZkr3WTtKHmqouxoL1dLxSrac4l98Bx08xZZUYbwYmeFPQRKEMohpSLhYClx8Ureefy68Y2YlPqV5WN9B7PlvUI0UmCKURwXaGZOrSzbGIhs3e-NHDn0TVGhS37Qj62859eX4mDACV1CPlrRznUngIIiRCT392t2bnH3RINLxwRsnkYXEscj6qMNQ-UciL-D0Y7AoDFRH20Vu3WCVr1H8kzL-pjqTiak6DkXQsww1kWoiU4F6Lj1jcVB7Nkk237gZ_Z_d60c8mIIQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/JNnyHqJEkjPTlq7YVl7-MpxHKuhYT0GXNZS7eBm2xfqYDWfSdu8yfLg2YkueYK_jzg2NG9ziBU987songj8gJjoIiFAR0E_80BI18XxAhv5wzcm-l9At_ackucc2tN21XOZ5nfthzib4QB152Avk3H-BgvPUWUVIwj10PRUoQUIc_xdMfaXdtoP9UrfEK8KJkenoMGEjBqjD8ZFpKS5AgvahlEP2mWahvPkHxJcl0tequI3S793ejo0HmBmdvJhlDHA_EDBuvAd7VLr6MNNwngmpIgqEimVUPTttS-nwFTvZyx2FJwH3R9IzgkV57MwclPuxVJQnzambmlL4qbYHeQ.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا روز یکشنبه ۲۶ مهر ۱۴۰۵ از اصابت دو پرتابه ناشناس به یک شناور یدک‌کش در نزدیکی سواحل امارات متحده عربی خبر داد.
 @
@@ -247,7 +333,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-18 17:05:07
 
-<img src="https://cdn1.telesco.pe/file/YpSryqQ60GVBPrPStaXbaI-XZJ3GmIGJgxlelE4OwCbo9GqFjjSUiH192W73pFHdHNa5cc2yOY6i_jq3BM3UbjK3FYuNQcqVUg3OPcq9CSRPpv4qkjGyg0QBBcMzUmqZpqiwnTOOMPLAIujeHf0MP4vSr69ilxvaQ73RO2xkdJ0j3eDNGIpsMdLtML_0_11CcDrEYJpddAadw4rF3R3fgFmnhVfKfA_1l_W4BF7Zo7SWypjpNH6bNGVvVPlLsiWzyrB65znUKXViZwBHukYJ3BJF62hf9EPA60b0--I-tE2jHUaIJBbtQVgtRYqnObDsmzAXPb9JvsHEeG4HxwTV3Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/PQ0_9xJ7L9s-fiEGI-VLSFgq3CZ1rjZhQglB7IIdkzmaxvW8YKNSAO_Potu5u6O-7ESyHI85GYbo5xB1kIit7zyKQTnXUrDV1rxV-RyX-GwHQFph3HCFT2Y09ZJXVqZX_yEM9Hkc-vgWnobEmHJSU1WIOIudBbIN27_m5DWBaafOFcU6TjMCJ28PVqJtc1tXQLrEx0rHyptCWa80-RL5LTWq-WAIrvGVDIpk9-Jp18xMgXl1bfIYvkc9oQCORD3__onGSk6Q381uTvWlH9vfXXFOCLwWs2eK7ywc1snXr_sEzzFpoa4raFBVU3bnbHpve4lHki18U1eKRX52A1vOJA.jpg" width="400"><br>
 
 فرزاد کلبعلی، استاد مدعو دانشکده حقوق و علوم سیاسی دانشگاه تهران، از تدریس در این دانشگاه محروم شده و اجازه ورود به دانشگاه را نیز ندارد؛ بسیج دانشکده حقوق مدعی شده که این محرومیت با پیگیری‌های این تشکل اعمال شده است.
 کانال تلگرامی «دانشجویان متحد» خبر داد کلاس‌های کلبعلی به دلیل حمایت او از دانشجویان از وی گرفته شده است.
@@ -308,83 +394,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78748)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-17 23:30:06
-
-<img src="https://cdn4.telesco.pe/file/oxGVFPWr2kEzBfhy9r4MEjCfLxhG8K1zguCMBDB4mW8ZmDE2TEYCCCemT4bvFaweQZlB0SkZGvTjAZCFlug3S4mAD1MkrGmfckFV9zABqsdpwpgHyNpTbzsUXgKuFlXQ0fiKdks5gVFzBxJpuUvvzLS_l48qQAmjW0QORO_SGxtdCLsNrXEQ1SIfOGTftQFeOcYztcS6nuznOWdsoOYgzc9z3pELx1aHgV3Aw1anb0pzUjNHjWmnuFUIMSNt6xArYw4_5TLDP6nctF-yV_uBm8PQPjkgXde7-luj2O8nEo6c_nx8IAItORbYASbK767G5UEw8fkdipvjAs9Nd3nJng.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست‌وزیر اسراییل، جمهوری اسلامی را به سرطان تشبیه کرد و گفت اگر حکومت ایران از بین نرود، دوباره بازخواهد گشت. او همچنین از احتمال اقدام نظامی دوباره علیه حکومت ایران سخن گفت و جمهوری اسلامی را به تلاش برای تاثیرگذاری بر انتخابات اسراییل متهم کرد.
-نتانیاهو، روز شنبه ۲۵ مهر ۱۴۰۵، در گفت‌وگو با شبکه عبری آی۲۴ نیوز، با اشاره به اقدامات دولتش علیه تهران گفت: «ما ۹۰ درصد کار را انجام داده‌ایم، اما می‌دانید، این مثل سرطان است. اگر از شر این رژیم در ایران خلاص نشوید، بازخواهد گشت.»
-نخست‌وزیر اسراییل در بخش دیگری از این مصاحبه گفت نشانه‌هایی از تلاش برای دخالت در انتخابات این کشور وجود دارد و احتمال داد جمهوری اسلامی برای تاثیرگذاری بر رای‌دهندگان، حوادث امنیتی ترتیب دهد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78747)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-17 22:40:30
-
-
-
-پیت هگست، وزیر جنگ آمریکا، روز شنبه ۲۵ مهر ماه گفت ایران باید بین کنار گذاشتن جاه‌طلبی‌های هسته‌ای و رسیدن به توافق، یا مواجهه با اقدام نظامی ویرانگر آمریکا انتخاب کند.
-هگست این اظهارات را در سخنرانی برای دانشجویان دورهٔ آموزش افسران ذخیره و نیروهای تازه‌وارد ارتش در دانشگاه تنسی ایالات متحده مطرح کرد.
-او گفت ایران به‌زودی باید انتخاب کند که آیا جاه‌طلبی‌های هسته‌ای خود را پشت میز مذاکره کنار می‌گذارد یا با ویرانی‌ای روبه‌رو می‌شود که آمریکا می‌تواند به بار آورد و در صورت لزوم، به‌سرعت به بار خواهد آورد.
-هگست تهران را متهم کرد که هم‌زمان با دنبال کردن جاه‌طلبی‌های هسته‌ای، زرادخانه بزرگی از موشک‌های متعارف ایجاد کرده است تا از اقدام نظامی علیه خود جلوگیری کند. او گفت قدرت نظامی آمریکا برای وادار کردن رقبا به مذاکره ضروری است.
-وزیر دفاع آمریکا همچنین گفت ایران از حزب‌الله و حوثی‌ها در یمن حمایت مالی می‌کند و افزود واشنگتن تلاش کرده است حملات علیه نیروهای آمریکایی و کشتی‌رانی را بازدارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78746)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-17 22:05:02
-
-<img src="https://cdn4.telesco.pe/file/UXoKzHQwTn9XuXLIB83BFd9Igrj3DHXvkCK_XwaseC7pjHZrkDzzMN8v1x76rjT8Wo_mAmnPVEVb1TFV5441TLwW28qH9zsjPrJiJKj4-cSN3p2Jce5-m8DmcFcUQwvSFnpUhOIMpj1CSEwFax99H5ZzSNPQ96Z_9tpgY5LSR8RbRfB0Xkc_LfWJJQySbk4efirF24-ZXtg97FwbgBwYp6y8xnvUYi173ye3PkcSkDMyy9me2Ed1jmu945foAhFugbaFn_Wwj5r17t-bsppKEil5uHjiXt811dnWJ5Ilz6pmXecSm3Ot6SC6TPEG3MTF2NV3-x9nZmKiQoYxCCNh6Q.jpg" width="400"><br>
-
-سخنگوی وزارت خارجه جمهوری اسلامی روز شنبه ۲۵ مهر در پی انتشار گزارش‌هایی دربارهٔ توقف فعالیت تجاری یک گذرگاه بین ایران و پاکستان، اعلام کرد که «ترددها و مراودات مرزی ایران و پاکستان موقتا متوقف شده است».
-اسماعیل بقائی بدون اشاره به جزئیات بیشتر دلیل این اتفاق را «مشکلات فنی و لزوم اتخاذ تدابیر احتیاطی» ذکر کرد.
-اختلال در تجارت زمینی ایران و پاکستان در حالی گزارش می‌شود که وزارت خزانه‌داری آمریکا اخیراً در مورد ادامهٔ همکاری مؤسسات مالی خارجی با بانک‌ها و نهادهای مالی تحریم‌شدهٔ ایران هشدار جدیدی صادر کرد.
-سخنگوی وزارت خارجه ایران وعده داده که مشکل در گذرگاه‌های مرزی بعد از مشورت بین مقام‌های ایران و پاکستان در «اسرع وقت» حل خواهد شد.
-خبرگزاری صداوسیمای جمهوری اسلامی روز شنبه به نقل از سید حسین حسینی، مدیرکل دفتر ترانزیت سازمان راهداری، گزارش داد که طرف پاکستانی گذرگاه مرزی ریمدان-گبد در استان سیستان و بلوچستان را بسته است.
-این مقام ایرانی تأکید کرد که تردد مسافران از این گذرگاه همچنان برقرار است و رایزنی‌ها برای رفع مشکل و بازگشایی مرز ادامه دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78745)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-17 16:47:56
-
-<img src="https://cdn4.telesco.pe/file/qJ6xdTRK0QGcKO0JN1Ij5bunxFap3yyCjIUeWcC2cpdqyropf6_F2FzcQuCN37yAcP1TpEKXCMU4fX9nrHu8GONrX87DhmEA2FQ4zS7ypw0rZA3Zl2DUrni-2BIpIW5YcTpEwNTRfYJm50JLJIe-36aAp0cfwZ_fujYfwYUezm73agiEaXdblsoMUiyUDG-SlBGbxoIisXztkca9emRK5ITQrkqFHanIgUlALgFcW3HXt3O5LI702bQEbcIAyruCudgn8xEZE86V2MIow37uIbncIIuovGXeGGoikBaLNWgbNbC2qfSIMUHKQOKw09qduPLLXQ5Sg41lMZZA8yfmdw.jpg" width="400"><br>
-
-استاندار تهران می‌گوید شمار دانش‌آموزان شهر تهران هفت هزار نفر کاهش یافته، در حالی که تعداد دانش‌آموزان شهرستان‌های این استان ۱۷ هزار نفر بیشتر شده است.
-او این تغییر را به انتقال شماری از دانش‌آموزان از پایتخت به شهرستان‌ها به‌دلیل شرایط اقتصادی و بازگشت تعدادی از اتباع خارجی نسبت داد.
-هم‌زمان با افزایش نرخ تورم به‌ویژه در ماه‌های اخیر گزارش‌های متعددی درباره کوچ شهروندان از تهران به حاشیه شهر و استان منتشر شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78744)
 
 ---
 
