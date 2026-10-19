@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-19 04:07:34 </h5>
+<h5> 🟢 Updated at: 2026-10-19 09:00:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-19 05:28:46
+
+<img src="https://cdn1.telesco.pe/file/tU1cJz0Z2vXDKT2Y1nUl_ErUezorXthaHcEupUwuKNHRgE83vE17B_PXfU2x96F9c8EUgb2Asmz6oWjaAUlbX69cHbrPFajqJy0aO1P3junrrha3uEBeXeNreYnHRnRd2EnlI5VWWjBlKLTFkzoTDQCoeMyrclQuzFTIJryfuKjLIDZRc_wMsUOxT5dnX2iLguRINLcJhf-j7uWq3AT8pGVxlIb5s243Jn8tw0DBHz1ev77TnRXvPCe03JCY4g2s0-EebwkxD7S6Ay9B-er1bHBabu8_LOXdepSqtmQyBM9_yo8iOlDetTjV2Je7HwrXDUIGL3y60p4zxGPN8MkDxg.jpg" width="400"><br>
+
+وزیران خارجه کشورهای عضو شورای همکاری خلیج فارس در بیانیه پایانی نشست خود در منامه خواستار بازگشت به گفت‌وگو و دیپلماسی برای حل بحران کنونی با جمهوری اسلامی شدند و تاکید کردند هرگونه توافق باید برنامه هسته‌ای، موشکی و پهپادی تهران و حمایت از نیروهای نیابتی را در بر بگیرد.
+این شورا یکشنبه ۲۶ مهر اعلام کرد تلاش‌ها برای دستیابی به راه‌حل سیاسی باید بر پایه احترام به حاکمیت ملی، حسن همجواری و عدم مداخله در امور داخلی کشورها باشد.
+وزیران خارجه کشورهای عضو همچنین تاکید کردند که این کشورها باید در هرگونه مذاکره یا ترتیباتی که بر امنیت و منافع آن‌ها تاثیر می‌گذارد، مشارکت داشته باشند.
+شورای همکاری خلیج فارس در بخش دیگری از بیانیه خود، حملات موشکی و پهپادی جمهوری اسلامی و نیروهای نیابتی آن علیه کشورهای عضو و اردن را محکوم کرد و خواستار تلاش‌های دیپلماتیک بیشتر برای جلوگیری از گسترش تنش‌ها در منطقه شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78763)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-19 00:31:22
@@ -252,7 +271,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-18 05:22:16
 
-<img src="https://cdn4.telesco.pe/file/Z8r14OqeWGQOhkxJiFBS_tweuwhjm2RKmRs3Ygewf1kf9uEJWPgT2dDZOVJuMCC-4NqbsAJUPvHVYIAZ_s4uFGiZUxqGMBZz3UZ6Or-Ne08JK9EfMI4TJRcQEjvWj3zWO66D24Dz6gMjRsziz8W52YOy8tJVdheXcsdXZG0Pzsvb9xIJ1v5HfmqTd0Is8jpDH52-68Tg0rX63ewVpvqqY_oM3jrYW4OfAeMnI1tbslOZ9jcfU9IshNGatTjumdOG36BiTWkKHb4AwOJZOTbHMWQjS4mXocXDZhRyM-aestf9FymO0GXD581ZxdehMbMk7v6x-Su1wv6IFk_pfi_16g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/TGywaKe0hKDEMIPoROoKNlrUeaTKrxhJzpFmz58hpBID49umq7WZ_PQkPo0A8Z9qPsKzF0tlHy1JrHJf1rZafBUF_4iTXxmDbn_k7kZjDttD8Bg6OZ2vMx6kZmYd0SwqOo4-GVj7nBvkf55PSC-iyrPP6Q5rM7myADi0TNcO7Tfnr8zmvkqfRT5t1gesuV46GS_gdSH6n13foxsT562M5K5ponJOCFBim4CJJql43maL2yqrafoqiyiINI2fDKmYpUAF1WMI1BrbsW-gvySG8ZuIlQNWhTiCSQHm_6KPfgMj1zKYkSmWHoTovVG-9LUujVeoNkM2jM4ePomnrTJK3g.jpg" width="400"><br>
 
 جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، روز شنبه در گفتگو با «سی‌بی‌اس نیوز»، با دفاع از راهبرد دولت ترامپ در قبال جنگ با ایران و اشاره به نقش آن بر نوسانات بهای سوخت تأکید کرد: «ما هرگز با وضعیتی مواجه نبوده‌ایم که بزرگ‌ترین دولت حامی تروریسم تلاش کند شریان تأمین انرژی جهان را قطع کند. اگر منطقه را ترک می‌کردیم و کنترل کشتیرانی در تنگه هرمز را به ایرانی‌ها می‌سپردیم، مردم باید بهای بسیار بیشتری برای بنزین می‌پرداختند و با پایان این درگیری، قیمت بنزین کاهش خواهد یافت». ونس که خود در جریان مذاکرات تابستان گذشته با تهران حضور داشته است، در پاسخ به سؤالی درباره فرسایشی شدن این نبرد گفت که آمریکا از برخی جنبه‌ها «پیروزی قاطعی» به دست آورده اما «دولت ترامپ به دنبال تعهد نهایی و محکم ایرانی‌ها مبنی بر بازسازی نکردن برنامه هسته‌ای‌شان است.» براساس این گزارش، او همچنین در واکنش به کشته‌شدن نظامیان آمریکایی در حملات پهپادی سپاه در کویت، وقوع برخی اشتباهات در استقرار نیروها را پذیرفت و از تغییر تاکتیک‌های نظامی واشنگتن برای مهار پهپادها خبر داد.
 @
@@ -268,7 +287,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-18 04:28:36
 
-<img src="https://cdn1.telesco.pe/file/iuprOYq6O6pbx3PzRQ2Hew-YAZl4v-0wqnMDJ3JurgC2054lcqQlCo4380QT7Kjbg0Ima5l8xgpxUG1gbm7JIKP0D_cQFqDFg49O1PfhSzFaKRI8TV1extCcUK48VsmQhJs9WyYt3KF_KzF4kVI7v9B-w1voQEHOVol3abhpJ2uObn4RhJzG511pkuLiwcktUrVGbjIFqYXiWLuQl4BKYdLMy-oCVuL5NuM9EQXLeCy7o_-HYEwgUROaWpWFuOq4U_j0Xz2RYPtW6AG3RgBaIfxsXkOwMCxDXwbX23LOO1-ZVBrUMYubYMdVXk3eV7R1AGRNUbX34Ks1mlSR729DRg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/UyzT1O3L8kwmUP2beV9QHMyVsN4QMjcqZN3P0lv0WzuX1zcqG-n0-h_Yi5cdBSi3VYNDfCnGsasEc3XgEIX0VyFnnVsZIxLZAbD1dkRzrUhnk2uqteJXxGmzcVnl1PWfpDi2DJthjkzVXpcN_YaBUB5P8g-xE9HPYJ46M0yKKW4B_i45ffO1EWF0Rz--xpy2kmYZA-O9tsF7Bs0aikS6QlU3Vk7g0_euBiz2B4m_xt4353ozwGqcpcYDp_xND7vIsfJ2slx3rFf3vjnca79otogNP_U7gTdKqCx94tL7-lkilJ59EHeH6zUhcINqjhuYWDp8USpnhQhq5rMm0s5v1g.jpg" width="400"><br>
 
 زمین‌لرزه در شرق استان تهران
 📷
@@ -366,29 +385,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78744)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-17 16:47:28
-
-<img src="https://cdn1.telesco.pe/file/WScmlUmvuR52sDmn0hV0YHF4eJWVflk5mKPs4NKEqnuMYr79x1ia5_2nThlrU6VVmEPSxIXeZvy60dSE6pVcBKpMnMpW-1A_XUtlI63ZQM6ZA_tsUXmWZ22L8HDZQxghJ16i5vJLes0VIrZNQ22wLwd7gKGwjGFVjxPEyqx_zps9V5vNsf8R3ZJlKvabUnYve3sCv2EZXJnp9K3UxYPwNHrT6tjaWQOEUiqxwr38rWAqSxVGYIoXi0Z1qNSLoZemT-qW5SWd5-OdXluv2dgCuaedvWsN8NhSjIEYRkYq34w95RAi8ekq4TDCoJD2vjsxSZjddUBOfX6wztNDe76Y5g.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش شامگاه جمعه ۲۴ مهر در آب‌های شمال شرق عربستان سعودی، از سوی یک قایق کوچک با نارنجک‌انداز آرپی‌جی هدف حمله قرار گرفت. در این حمله بخشی از نفتکش آسیب دید، اما همه خدمه آن سالم هستند.
-بر اساس هشدار این سازمان، حادثه ساعت ۲۲:۵۲ به وقت تهران، در فاصله ۷۸ مایل دریایی شمال شرق الجبیل عربستان سعودی رخ داد.
-فرمانده نفتکش گزارش داده است که مهاجمان از یک قایق کوچک با آرپی‌جی به کشتی حمله کردند و در نتیجه، بخش عقبی سمت چپ نفتکش آسیب دید.
-@
-VahidOOnLine
-روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد صبح شنبه ۲۵ مهر ماه، دومین اَبرنفتکش «متخلف» پس از برخورد با مین دریایی دچار آتش‌سوزی شدید شد و در پی انفجاری مهیب در موتورخانه از حرکت ایستاد.
-سپاه پاسداران صبح شنبه ویدیویی از آتش‌سوزی یک نفتکش دیگر در تنگه هرمز منتشر کرده بود.
-نیروی دریایی سپاه پاسداران و ارتش جمهوری اسلامی ایران در روزهای گذشته نیز ویدیوهایی از آتش‌سوزی شناورها و نفتکش‌هایی منتشر کرده‌اند که به گفته این دو نیرو، قصد عبور از «مسیر غیرقانونی» تنگه هرمز را داشته‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78742)
 
 ---
 
