@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-19 21:29:17 </h5>
+<h5> 🟢 Updated at: 2026-10-20 01:40:35 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-19 23:32:24
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه ۲۷ مهر در جمع خبرنگاران در کاخ سفید اظهار داشت که روسیه هیچ اقدام قابل‌توجهی برای کمک به جمهوری اسلامی ایران انجام نداده و این مسئله بسیار مثبت است.
+او افزود که چین و روسیه می‌توانستند اقدامات بسیار بیشتری برای کمک به ایران انجام دهند، اما عملکرد آن‌ها در این زمینه بسیار ناچیز و نزدیک به صفر بوده است. ترامپ تأکید کرد که نبود حمایت مؤثر مسکو و پکن از تهران را به عنوان یک «نقطه عطف بسیار مثبت» ارزیابی می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78768)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-19 21:20:37
@@ -165,7 +182,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-18 23:06:16
 
-<img src="https://cdn4.telesco.pe/file/cTgQ-t6xI-pVzAyd5z396O2pvl0tga-3M2zYgDP7Z58YHVgM83XAx5Z5rXKCWyxT6lfmxnhrh2-8iAG2QD8VxnDn5a93GzulQp_noMahm7qAIPhGuI-kXk0PfznGSQA56xVTwKWIBO3QhtIIsqKyRkesJ3GAH7lN4nlQbqZf5dnUbousQhaygKLR1OQ1599oDvCpGWJCeaVSHwSVRJB369m4ECgsdicRIDv22Nz9R8Up1rYHXaEei9c_3UnYx-753wcxCHKDt3re9odCC_gFk82NqXbb40xPjHxwaCdMLwkqvAugFgfONaLHKK57Ql-dOhWR7cXKBke40cI725D3WQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/TwqbvLbCZJYEDbwN4N13bT0lcfiIsIlPjrWkm76i6xK5qWrsK6YI1vncH2rFEipCO8YWUhoVZSNK5vfStCF1eQCc6a502bgDMtu_JQiOUfPpV6BmKR5PqcTOn3lkd84D2RvGPbSWfA1bBMbNUFr5EK75Vxbqkd7nOQIk5f_3_g55YIllj4qV4C-108KFAqdPOhXrSdx9NKcGxu7CvyjLiJGKfAyUed2D8I65DEKyNlsp4XN2-2Q3bxxJzyXJ4s5Uo6B7JRKzECibuCDPG4Dk6Sl2IDqkMQ1FQ1VMJh1f2TaNI4DCALV6uYdT1xjH0gaFINTOeqFF0jf1LhSEuKr0ww.jpg" width="400"><br>
 
 علی عبدالهی، رئیس ستاد کل نیروهای مسلح و فرمانده قرارگاه مرکزی خاتم‌الانبیاء، روز یکشنبه ۲۶ مهر ماه در پیامی خطاب به آمریکا و اسرائیل گفت ایران برای «تصمیم‌های احمقانه» آن‌ها لحظه‌شماری می‌کند.
 عبداللهی در پیامی که در رسانه‌های رسمی جمهوری اسلامی منتشر شده است، نوشت: «شعارهایی که می‌دهید، اگر می‌توانستید تاکنون به آن عمل کرده بودید. در هر یک از جنگ‌های قبلی، با شعار سرنگونی جمهوری اسلامی، تجزیه و نابودی ایران وارد جنگ شدید، در حالی که امروز خود در حال نابودی و سرنگونی هستید و ایران قدرتمند همچنان استوار ایستاده است.»
@@ -184,7 +201,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-18 22:21:35
 
-<img src="https://cdn1.telesco.pe/file/Luc-H0tIimsaTcUSvuABsi-9OD7wxIZgIuyRApxlf7oeXUn1V-Hg86hALDMI3iOhVKuoXMhW1SFsMC-v1ELztrlwM-LxHrvb6jR8KUpxHZgXwqaThPYSe4KOQARDb2vtf9Ta9jQN7Zv0EvmTTaGtg6EU-2n6cgtDbJx-0FFp67NyVRI-LIGfBh_k7O1JbVsMpQGzMUead-LltHX9LjC7Ll8eyWfPdIhJNNpYzxTdPWl7qBEVlyuYCOZzonsmNTIvAkI_jbNtdTt382O5zg5a4-nU7Fm94auES4jq6UzGG3-I31hKaBC808MrSEhgABTpox6DmAYZ6udWz5vIJdRZUg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nwnW6EsROVIykf7SIdAarnqKvO7nH-iqpwy4gAxyHETK1vXGzCRsDAVqzk8_zlm3zemUcsoB6U41r4Ljhdg_rtZHWEDFuOpfI81IHsDlrXAo9FxAzITRkpJc_kihbDUe6WGH0NFESPqUXriurpwq1BdV4-icilD64pv4nTnNdmeFXTk33ww5wMhSVHKb3oXY2KcE61JbB_VrpbjJpjFrL2K3yakA9N1qpIN_1qfTTWxmkPsa_1q2WBDJJZ0iF63yYfcLTelqNdqo-PoGvmUQejxqz_NnXgcY_9Hi1ncLcs_Zr0JIXFiPKfUWuOzlljE7bGrkAOPukVDfNtYmstvtfQ.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز یکشنبه راهبرد جدید امنیت ملی این کشور را اعلام کرد؛ راهبردی که بر پیشگیری از تهدیدها و انجام حملات پیش‌دستانه تأکید دارد.
 دفتر نخست‌وزیری اسرائیل اعلام کرد که بر اساس این راهبرد، حمله به تهدیدهای در حال شکل‌گیری جایگزین سیاست سنتی مهار تهدیدها و اتکا به دفاع خواهد شد.
@@ -366,34 +383,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78749)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 04:28:36
-
-<img src="https://cdn1.telesco.pe/file/UyzT1O3L8kwmUP2beV9QHMyVsN4QMjcqZN3P0lv0WzuX1zcqG-n0-h_Yi5cdBSi3VYNDfCnGsasEc3XgEIX0VyFnnVsZIxLZAbD1dkRzrUhnk2uqteJXxGmzcVnl1PWfpDi2DJthjkzVXpcN_YaBUB5P8g-xE9HPYJ46M0yKKW4B_i45ffO1EWF0Rz--xpy2kmYZA-O9tsF7Bs0aikS6QlU3Vk7g0_euBiz2B4m_xt4353ozwGqcpcYDp_xND7vIsfJ2slx3rFf3vjnca79otogNP_U7gTdKqCx94tL7-lkilJ59EHeH6zUhcINqjhuYWDp8USpnhQhq5rMm0s5v1g.jpg" width="400"><br>
-
-زمین‌لرزه در شرق استان تهران
-📷
-آپدیت:
-بزرگی زمین‌لرزه: ۳٬۴ در عمق ۹ کیلومتری
-پیام‌های دریافتی:
-زلزله اومد فکر کنم
-اقا وحید همین الان بومهن زلزله اومد البته نمیدونم دقیقا زلزله بود یان
-پردیس امروز یکشنبه ۲۶ مهر، حدود ساعت ۴ صبح زلزله اومد
-دو‌دفعه رودهن لرزید ساعت۴:۱۰
-الان رودهن لرزید
-نمید‌نم چی بود
-سلام وحید زلزله اومد پردیس 4:12 دقیقه
-زلزله اومد
-رودهن بد لرزید
-دماوند لرزید
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78748)
 
 ---
 
