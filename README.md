@@ -3,13 +3,30 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-20 21:08:12 </h5>
+<h5> 🟢 Updated at: 2026-10-21 00:31:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-21 00:05:15
+
+
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز سه‌شنبه ۲۸ مهر در حاشیه نشستی در کاخ سفید، به سوال خبرنگاران درباره جنگ با ایران پاسخ داد. ترامپ گفت: «باید تصمیم نهایی را درباره ایران بگیرم که از چه طریقی می‌خواهیم [در جنگ] پیروز شویم. می‌خواهیم از روش خوب به پیروزی برسیم، یا از روش بد؟»
+ترامپ که پیش‌تر احتمال استفاده از «مادر بمب‌ها»، بزرگ‌ترین بمب غیرهسته‌ای زرادخانه آمریکا علیه تاسیسات هسته‌ای در ایران را مطرح کرده بود، توضیح نداد که منظورش از «روش خوب» و «روش بد» دقیقا چیست.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78782)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-20 20:27:04
 
-<img src="https://cdn4.telesco.pe/file/XkQPwYq52dnzKlO4mGEfmODw4zNag_oR2kCIqcZSbeiv371D9yQSaQK56A_kk1IRcbVtTaoksZ7p1BY4UwtsCWUdaM6hP3WLDzNYtrU42stlnucrYVNZ_8_HEsfguuDV5OWbzUuQ6E0tMVHFFQBqJdfHZF1VY9QoSGwUnwYFu0EuxPVVXO11H8veCa7ug9kMkcaLeVZ9bZUIGh6uR3XMA6SCxcyd7YDOK773i_0i3iBQZivUjNR_LXwYMrAsl0At9MCx6pnurUH44TeOQPsnBxe5xLL-nkB9kjmSck7hdMDtMBpwYLNpRtA3DcD1U_Nw1MupZgdbw4TgcPV1XyIYUA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/EyYu8Lg66VCyYGfP0wm3Tr57pgtvHljrmfkPdnZv0W-CmKAPLeAjg1h2LsD_lMv0CWqvW33q0u7cSmcQDALtDoDU6jMslzvljAmN9hGcQB2sBNOEZKAqueQBlQp3pX4POu4YDcsxe7yveHc0jmWqvirJDWK41ES_seALioVvq9u1KDOgmrvUbdtKOuZKdCNBDt_FdUR07epMjoz_MGRVu1ldQWzqfMdEKFR2i4JVWnPDmUHXt0ZnRYoXX1ursnhksZHoy1Xkp86irie1BEEMp69ksX3A7FkofWCEENXWGA0KYYTNtSdg8ZknzsG-rzsSEKgCRzR4MNhTjloLvuFO_g.jpg" width="400"><br>
 
 عاصم منیر، فرمانده ارتش پاکستان، در سفر به تهران با مسعود پزشکیان، محمدباقر قالیباف و محسن رضایی دیدار کرد. رضایی در دیدار با فرمانده ارتش پاکستان تاکید کرد حتی ذره‌ای از مواد هسته‌ای غنی‌شده ایران از کشور خارج نخواهد شد و قالیباف نیز گفت آمریکا تنها با اجرای شروط هفت‌گانه جمهوری اسلامی می‌تواند اعتماد تهران را جلب کند.
 @
@@ -57,7 +74,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-20 17:59:12
 
-<img src="https://cdn4.telesco.pe/file/OMMJtpBnR-4jdF3hc16CG6kTFiNpCJid-r3SK703TqXcjP3JTBXodCz1BvheWFxw1hgIyIRVjWdlsT3h55j5TJQiXTtcwlO4PVAdx73eCeg6HIDBxfTKAulV16QVL8wx9sg1yMMpP0co_CJ8tb6ZDGfjvlGwYj9OGX2T2XhtiB5P7UBjvwzQ_LrFA9tUFT2J2wYXVzRMx29gIgUIirUKIfmMYqb7-MeUq2wFyYkHZdWIaUgORH-S3vYcE29YFHgQv9TsLuDmyGdFhot8xQeATbCYoksyTHwSvg4tQ06lvoGiqTSelJQXxYFAQGnayx0qsrS1q4sCdnQPWr2ssgKHXw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/JXauEx3Rw0Ig_QGLWWw2Pgqr6JeL30wpJCrJ5AKcvvvTPiIXuiV8yHYKCll8ihvneB-gD_HWsjHd06k0x19QWoTu7Of69f--HViM8WfmKxFyzZTgnJj2jdtqSdPB6CBPbMN0vNzYk2H-IgXUndGAUlmez0i2h8vtgeySZAYoFz_dhrbQ2TuYFCDDoWt0ZATz78OXIZb21S0K_B-qJTsY_3ekjkAKv1vWmrlL2NQ1OCINnpds3TZLjwmCrUENIzkUvC4fHu9uQ3LfsUA1WhY6MjzhZ2IZ60Mp8jMps5ACmD9AYg8By7ttHKOXabq0IaXRTJNaJ2U28pQCwUaGlzxd9g.jpg" width="400"><br>
 
 دولت بریتانیا اعلام کرد جنگنده‌های تایفون نیروی هوایی این کشور برای مقابله با حملات موشکی و پهپادی حوثی‌های یمن، ماموریت‌های دفاعی بر فراز شهرها و زیرساخت‌های حیاتی عربستان سعودی انجام خواهند داد.
 بر اساس گزارش گاردین، این عملیات شامل تلاش خلبانان بریتانیایی برای رهگیری و انهدام موشک‌ها و پهپادهای حوثی‌ها خواهد بود. شمار جنگنده‌های اعزامی اعلام نشده است.
@@ -338,23 +355,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78763)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-19 00:31:22
-
-
-
-پیام‌های دریافتی:
-سلام وحید جان چند صدا اومد سمت کنارک
-صدای دو انفجار همین الان کنارک
-کنارک ۰۰:۲۹  دوتا صدای انفجار اومد
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78762)
 
 ---
 
