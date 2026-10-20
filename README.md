@@ -3,8 +3,43 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-20 10:22:54 </h5>
+<h5> 🟢 Updated at: 2026-10-20 15:54:45 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-20 15:51:06
+
+<img src="https://cdn4.telesco.pe/file/vA3F8bOQG4V8wqA2OE64mdJkbV6wH6pyjwX0HPUI4FmY1q914x_7tWsFAJ5UmVDcvHFz3hugkBLre1GRcLg159jDQjMykA_ohOZmJIvRulPCOlOzIivEUjgseAu69ZZ54F1GykyfHBOtUdgPsiBzY7qCRf0GmBz8G1eYRypThjAxguDTU3-4OtbhEI5GVnFQimEMX6uQXLQl8qGJLjC0V2nY4coNnu3FV2eFxi4OBgbx3VIkO8hTeiTFBw5PS6KM2IDQFcpSdAmJDqcW8Cdc_8hSjQ1-nHuR31liKq4f6O-s0-eMuxmqeVnoKmC1t2J2mWufmIGJ2iSL_nUE3uFdeA.jpg" width="400"><br>
+
+موج جدید آلودگی و غبار سنگین، صبح روز دوشنبه ۲۷ مهرماه، آسمان استان خوزستان را در وضعیت بحرانی قرار داد. بر اساس آخرین داده‌های سامانه پایش کیفی هوا، شاخص کیفی هوای اهواز با رسیدن به عدد ۱۶۰ در وضعیت «قرمز» و ناسالم برای تمامی گروه‌های سنی قرار گرفت. هم‌زمان اداره‌کل حفاظت محیط زیست خوزستان با صدور هشدار اعلام کرد که ۱۱ شهر دیگر استان شامل آبادان، دزفول، شوشتر، اندیمشک، شوش، ملاثانی، هویزه، مسجدسلیمان، گتوند، شادگان و هندیجان نیز وضعیتی مشابه دارند و ساکنان باید تا زمان بهبود شرایط جوی از ترددهای غیرضروری خودداری کنند
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78773)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-20 15:46:44
+
+<img src="https://cdn1.telesco.pe/file/QFACqctf4I0LTwF0M_eKc8bqzg23At5TQrMDJBDkDJcmbmyY17PqGjVNLJ9gxxR-XimDQxntmgwIFA15lj1NzkTYTo5U_r1pTx2_Uw-XSDg9CvQGZFPssQkeQZHHZbMHE5SJ7J9st67WBgTc7nPaI42LDWCXxFSx4v16nwaP6NGVMVN4atroyzogEJ48_nalrKGAoIcDutL1C9OhTIse5ce7oFzjrticCHmVeyaCBTpiWOc5I2xm5jbak4nsAvBvo0eQR09jJcq996_od-p0mlaAtDKWBd1XZJG56XAkFsD4Al_yqO8myPe7TXejA4N5SLAqkG9lC1HA-GrGTrfemw.jpg" width="400"><br>
+
+خبرگزاری هرانا گزارش داد همایون شبانکاره، شهروند ۲۲ ساله محبوس در ندامتگاه مرکزی کرج، از سوی شعبه دوم دادگاه انقلاب کرج به اتهام‌های محاربه و جاسوسی به اعدام محکوم شده است.
+به گزارش هرانا، یک منبع مطلع نزدیک به خانواده شبانکاره گفت حکم اعدام او روز شنبه ۲۵ مهر به وی ابلاغ شده است. پرونده او در شعبه دوم دادگاه انقلاب کرج به ریاست مهدی سبزوارنژاد، معروف به «سبزواری»، رسیدگی شده و نام مهدی رضوی نیز به عنوان یکی دیگر از قضات مرتبط با پرونده مطرح شده است.
+بر اساس اطلاعات منتشرشده، شبانکاره ۲۴ اردیبهشت ۱۴۰۵ در ارتباط با تحولات امنیتی ناشی از درگیری‌های نظامی، در منزلش بازداشت شد. ماموران منتسب به سازمان اطلاعات سپاه پاسداران پس از حدود سه ساعت تفتیش خانه، شماری از وسایل شخصی او، از جمله لپ‌تاپش، را ضبط کردند و او را به ندامتگاه مرکزی کرج انتقال دادند.
+شبانکاره پس از بازداشت ۹۷ روز در سلول انفرادی سالن ۱۲ این زندان نگهداری شد و پس از پایان مرحله بازپرسی، تنها ۱۲ روز به بند عمومی انتقال یافت. او از هشتم شهریور تا هشتم مهر بار دیگر در سلول انفرادی محبوس شد و در این دوره اعتصاب غذا کرد. هرانا همچنین گزارش داد او در دوران نگهداری در انفرادی سابقه اقدام به خودکشی داشته است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78772)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-20 05:21:26
@@ -27,7 +62,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-20 05:19:14
 
-<img src="https://cdn1.telesco.pe/file/o1mMct6nBcQeAWkIfMXBiOkaENUBTPRgiYn6xniWKXy1BEQ1Y2WhWkHIrdZbsoSXuoQ9jLyAU5jfBDOgyPCxiYf5f8apPT16CL06TpIESQWr_mUuCZE3SOJifjGxzpZ6eQ__CKFyg-apyN3qrlRKmKeMM_W0ZHvtUxsLGswnrmA-RA8OQ0qia01Shcuwom5uB-pghzNnbUHfeWl91lbdOUdww2Up_xtPika9FjUpuI6TtpklIIH0XMrKNHCiknsBn0YWX522jxpTQnRsScbMkzT__7XJWoMpBEaA7zSVeV1j8bjTdejtiE_ovKOevJ4MukgnbxIDRsCOpiLTwtoBdA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/aEMdbcZgxDTjN0iu6e99mp4wh8Rvtid5oyIJg0Y9Fjre0jpY7Zdap6DyIftdWmpXzai7bjwFr3ya9j61VbbnqH-5n7P0h6ATr34XUKJ1STmKjuGlRV9BEX-GyncoGwLtB_7Bc9M7iTUT1iiHnr8erBwK9996cWDf2Jh9L5p56sA3svS0TbtaoIlT-PYFP9AW6OHRrahi50wjtFMGQIHm3DV7LT23pWIO6dmYphGir4wEj_9Y1vSN3qiSZl_hCXPwKIi9_vK2xShx6-AqApfz242Q29S1Uanc0NO8SntmQC6bNQYncklXBw6BlFLAkm2A2lgq-rQDJKA0sd1kCAM-_Q.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، در سخنرانی خود در کانزاس گفت جمهوری اسلامی «کشتارهای بسیار زیادی» انجام داده و در هشت ماه گذشته دست‌کم ۷۵ هزار معترض را کشته است.
 ترامپ گفت: «بعضی تعجب می‌کنند که چرا مردم ایران اعتراض نمی‌کنند. خب، وقتی در انتهای خیابان مسلسل گذاشته‌اند و شما را به رگبار می‌بندند، اعتراض کردن کمی سخت می‌شود.»
@@ -376,42 +411,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78754)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 17:07:54
-
-<img src="https://cdn1.telesco.pe/file/uZc9fMiyMSYpJF5gMJqaYgc-MBiJvVlYGOIvMrvUpgMkrrCTa1SHFqstrfTfOZ066-kanuV_yyrWyH_bhY6uhzzmA-adGgSBd2wpOCIai4q_KQ-YmyGXeyMcpNFSLn5Da2N7ufFGwq9Buq9Plb4KSxcREmDRtRcPm-_7K8yHvjIm5YXuMIUfca7kI5lrcfLRUaVhirdMgmOAYyA_51jIK7tH_DKDJTwJ1DYUTl-DsQ-JAoqsMDnrJzzBT1G9wHwNqNFUV4VvKF4RhVVywegxmqnZgljLzBXeWL7F5wCg12HcrZsj57ogTAas1bloPngGN9XDNpuGl4qAqHWhKwFDYw.jpg" width="400"><br>
-
-نتانیاهو در مصاحبه با فاکس‌نیوز گفت که مردم ایران به گروگان «اوباش ایدئولوژیک» درآمده‌اند.
-نتانیاهو در پاسخ به این سوال که در صورت انتخاب دوباره به عنوان نخست‌وزیر اسرائیل، در دو سال باقی‌مانده از دوره ریاست جمهوری ترامپ چه اقدامی انجام خواهد داد، گفت: نابودی کامل تهدید ایران علیه اسرائیل، آمریکا و جهان.
-او افزود: فکر می‌کنم با رهبری درخشان ترامپ، در مسیر دستیابی به این هدف هستیم و ییشرفت بسیار خوبی داشته‌ایم. هم اقدامات نظامی و هم محاصره اقتصادی بسیار موثر بوده‌اند.
-نخست‌وزیر اسرائیل تاکید کرد: بیایید این کار را به پایان برسانیم و اجازه دهیم مردم ایران آینده خودشان را در دست بگیرند. این اتفاق خاورمیانه را تغییر خواهد داد.
-او تاکید کرد که تنها راه مقابله با این وضعیت، اساسا خلاص شدن از شر این حکومت است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78753)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 17:05:45
-
-<img src="https://cdn4.telesco.pe/file/JNnyHqJEkjPTlq7YVl7-MpxHKuhYT0GXNZS7eBm2xfqYDWfSdu8yfLg2YkueYK_jzg2NG9ziBU987songj8gJjoIiFAR0E_80BI18XxAhv5wzcm-l9At_ackucc2tN21XOZ5nfthzib4QB152Avk3H-BgvPUWUVIwj10PRUoQUIc_xdMfaXdtoP9UrfEK8KJkenoMGEjBqjD8ZFpKS5AgvahlEP2mWahvPkHxJcl0tequI3S793ejo0HmBmdvJhlDHA_EDBuvAd7VLr6MNNwngmpIgqEimVUPTttS-nwFTvZyx2FJwH3R9IzgkV57MwclPuxVJQnzambmlL4qbYHeQ.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا روز یکشنبه ۲۶ مهر ۱۴۰۵ از اصابت دو پرتابه ناشناس به یک شناور یدک‌کش در نزدیکی سواحل امارات متحده عربی خبر داد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78752)
 
 ---
 
