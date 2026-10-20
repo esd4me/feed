@@ -3,8 +3,118 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-20 15:54:45 </h5>
+<h5> 🟢 Updated at: 2026-10-20 21:08:12 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-20 20:27:04
+
+<img src="https://cdn4.telesco.pe/file/XkQPwYq52dnzKlO4mGEfmODw4zNag_oR2kCIqcZSbeiv371D9yQSaQK56A_kk1IRcbVtTaoksZ7p1BY4UwtsCWUdaM6hP3WLDzNYtrU42stlnucrYVNZ_8_HEsfguuDV5OWbzUuQ6E0tMVHFFQBqJdfHZF1VY9QoSGwUnwYFu0EuxPVVXO11H8veCa7ug9kMkcaLeVZ9bZUIGh6uR3XMA6SCxcyd7YDOK773i_0i3iBQZivUjNR_LXwYMrAsl0At9MCx6pnurUH44TeOQPsnBxe5xLL-nkB9kjmSck7hdMDtMBpwYLNpRtA3DcD1U_Nw1MupZgdbw4TgcPV1XyIYUA.jpg" width="400"><br>
+
+عاصم منیر، فرمانده ارتش پاکستان، در سفر به تهران با مسعود پزشکیان، محمدباقر قالیباف و محسن رضایی دیدار کرد. رضایی در دیدار با فرمانده ارتش پاکستان تاکید کرد حتی ذره‌ای از مواد هسته‌ای غنی‌شده ایران از کشور خارج نخواهد شد و قالیباف نیز گفت آمریکا تنها با اجرای شروط هفت‌گانه جمهوری اسلامی می‌تواند اعتماد تهران را جلب کند.
+@
+VahidHeadline
+عاصم منیر، فرمانده ارتش پاکستان، روز سه‌شنبه ۲۸ مهر در جریان سفر به تهران با مسعود پزشکیان رئیس‌جمهور، محمدباقر قالیباف رئیس مجلس شورای اسلامی و محسن رضایی دبیر شورای‌عالی امنیت ملی دیدار و گفتگو کرد.
+در این دیدارها، محمدباقر قالیباف با اشاره به دولت ترامپ را به نقض تفاهم‌نامه اسلام‌آباد متهم کرده و تأکید کرد که سابقه اقدامات منفی آمریکا تهران را در اوج بی‌اعتمادی قرار داده است و تهدیدات نظامی نمی‌تواند تصمیمات راهبردی ایران را تحت‌تأثیر قرار دهد. وی افزود که ایران حرف جدیدی ندارد و آمریکا جز با اجرای شروط هفتگانه، نمی‌تواند اعتماد ایران را کسب کند و این واشنگتن است که باید اقدامات لازم برای خروج از باتلاق جنگ با ایران را انجام دهد.
+در همین حال، عاصم منیر در خصوص مناسبات دوجانبه اعلام کرد که مسائل مرزی میان ایران و پاکستان موقت و فنی بوده و مرزهای دو کشور از امروز بازگشایی شده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78781)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-20 18:54:31
+
+<img src="https://cdn1.telesco.pe/file/dKEYoiuXBPwxTO77onjj-4InR_z_a_TbDRP4AX219ZVEU2Yt3U1-opx4rAqQsUHbkX7kzaNCbBAhlO7Sx8dabRhma1bQyVqNsDpFu8vGJHTHXFzWiHWy0CSs-GoRW5hzc14mXUlfUG53FwhkRF5-6tPjvxbsMHCKdO-v-AovkCtQJaOmRZMSflwwK2ysGavLGIbQ3DXXDLTfGHqavc-tH6KbLDNgz3CDl2Cs3lysMkGfB4dFdXelNT5hQqxL8tVbAd6SQXD8fMURI5VIORe6_YpsFOluA4zxlNzw_YjUuLTSIFbnPSHM-n3TEvLSFbZFPy4vi09lj2UnK8BinE04ug.jpg" width="400"><br>
+
+بنیامین نتانیاهو به کانال ۱۴ اسرائیل گفت سرنگونی جمهوری اسلامی اکنون در دستور کار موساد و ارتش اسرائیل قرار دارد و افزود پس از وارد کردن «ضربه» به جمهوری اسلامی، دستور سرنگونی حکومت ایران را صادر کرده است.
+او همچنین گفت ممکن است اسرائیل تا پیش از انتخابات نیاز به حمله داشته باشد و ایران و نیروهای نیابتی‌اش را به تلاش برای انجام حملاتی با هدف تاثیرگذاری بر انتخابات اسرائیل متهم کرد.
+نتانیاهو افزود دونالد ترامپ نیز با سرنگونی جمهوری اسلامی موافق است.
+@
+VahidOOnLine
+بنیامین نتانیاهو، نخست‌وزیر اسراییل، اعلام کرد هدف اصلی دولت او سرنگونی جمهوری اسلامی است و به گفته او، با سقوط حکومت ایران، حزب‌الله لبنان نیز از بین خواهد رفت.
+نتانیاهو روز سه‌شنبه ۲۸ مهر، در مراسم آغاز سال تحصیلی در شهر کریات‌شمونه، در نزدیکی مرز لبنان، گفت ارتش اسراییل در عقب‌راندن حزب‌الله پیشرفت‌های مهمی داشته است، اما او «متعهد است که کار را تمام کند».
+او گفت: «تمام کردن کار به معنای سرنگونی حکومت تروریستی در ایران است. این حکومت، یک اختاپوس سمی است، اگر سر آن را قطع کنیم، بقیه اعضا هم سقوط خواهد کرد.»
+@
+VahidHeadline
+نتانیاهو گفت این موضوع را بیش از یک بار، از جمله دو روز پیش، با دونالد ترامپ مطرح کرده است.
+او افزود تا زمانی که جمهوری اسلامی پابرجا باشد، برای تولید بمب هسته‌ای و بازسازی محور خود تلاش خواهد کرد و تنها راه جلوگیری از آن، سرنگونی حکومت است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78779)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-20 17:59:12
+
+<img src="https://cdn4.telesco.pe/file/OMMJtpBnR-4jdF3hc16CG6kTFiNpCJid-r3SK703TqXcjP3JTBXodCz1BvheWFxw1hgIyIRVjWdlsT3h55j5TJQiXTtcwlO4PVAdx73eCeg6HIDBxfTKAulV16QVL8wx9sg1yMMpP0co_CJ8tb6ZDGfjvlGwYj9OGX2T2XhtiB5P7UBjvwzQ_LrFA9tUFT2J2wYXVzRMx29gIgUIirUKIfmMYqb7-MeUq2wFyYkHZdWIaUgORH-S3vYcE29YFHgQv9TsLuDmyGdFhot8xQeATbCYoksyTHwSvg4tQ06lvoGiqTSelJQXxYFAQGnayx0qsrS1q4sCdnQPWr2ssgKHXw.jpg" width="400"><br>
+
+دولت بریتانیا اعلام کرد جنگنده‌های تایفون نیروی هوایی این کشور برای مقابله با حملات موشکی و پهپادی حوثی‌های یمن، ماموریت‌های دفاعی بر فراز شهرها و زیرساخت‌های حیاتی عربستان سعودی انجام خواهند داد.
+بر اساس گزارش گاردین، این عملیات شامل تلاش خلبانان بریتانیایی برای رهگیری و انهدام موشک‌ها و پهپادهای حوثی‌ها خواهد بود. شمار جنگنده‌های اعزامی اعلام نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78778)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-20 15:55:07
+
+<img src="https://cdn1.telesco.pe/file/FrPiv86sk1TGVgqXQ-bB1ey0sld53kVbPz5ALlODlWuVse41vcqCYuQp7DQTZObQdIBdQrAYfvLq7WI8eWYnvdcUNVy8ZWpluwZxDtwH79RUt6SIVbkO81cbR80iuvZPXAIxnPj-p-JPT6sK6s48BAohWeK5sctH7Y_B3oj_nfkmGiU_1vVVUBf-9B1KJtSW8OgknveUddxhib1FIileT4Txshc3vIpjpMf-e2-tUegIo-AUNbBxxIW481IEE09_Uo81cXaxSbbXJE3URpyCstfsTTp9V7rxt2D_TCXyNTJGiwYTH9qk2dKP5-FbH266L8apyBdrirItlcaF1lD1Qw.jpg" width="400"><br>
+
+حسین محبی، سخنگوی سپاه پاسداران، با اشاره به کابل‌های ارتباطی زیر تنگه هرمز، آن‌ها را از «اهداف جدید» حملات سپاه دانست. او همچنین تهدید کرد که هر اقدام نظامی تازه آمریکا، حتی در ابعادی محدود، جهان را با «بحران جدی انرژی» روبه‌رو خواهد کرد.
+@
+VahidHeadline
+وزارت خارجه قطر در بیانیه‌ای که سه‌شنبه ۲۸ مهر منتشر شده، نوشت جمهوری اسلامی باید اقدامات و حملات «غیرمسئولانه»  در تنگه هرمز از جمله اختلال در اتصال به اینترنت را متوقف کند.
+وزارت خارجه قطر هشدار داد که «چنین اقداماتی به منطقه و ساکنان آن آسیب می‌رساند و در صورت اختلال در اتصال به اینترنت، تمامی کشورهای منطقه تحت تأثیر قرار خواهند گرفت.»
+این بیانیه پس از آن صادر می‌شود که حسین محبی، سخنگوی سپاه پاسداران، تهدید کرد جمهوری اسلامی به عنوان «اهداف جدید» خود، ممکن است هفت کابل بزرگ اینترنت در بستر خلیج فارس و تنگهٔ هرمز را هدف قرار دهد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78776)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-20 15:54:51
+
+<img src="https://cdn1.telesco.pe/file/k3hDYP1vtnVlAsNzA3Jtae0GMWuRXPYKYYsE_NbIrGTrOa2RWciC7OJGnMei-M4oKQBFY32uxENaVNSblLHtTED5ExzcOzgzQz6-Nh20eT7H0q2dACyxzPt4o7hOJelnv6zK5QoFeD9AJIY1WijkN1FhIPGHEX-DoBSrQj1rP1hcHcRPecCmDUvseJnpe7bvP7mOeG0Ee4aMsbM_bU9NR1QK_GvSRh2FIGUen9x7FQrvyz7tpHBrSpNihlrmfdo2U_opBDRegY_m_fmLFSLyVp7zFh8OLRwtLa2cnH4RybhvVs9IbAJiENNoWIZyKM75cNz_satzbUjMd_KLk2coIw.jpg" width="400"><br>
+
+سپاه پاسداران انقلاب اسلامی روز سه‌شنبه ۲۸ مهرماه با انتشار بیانیه‌ای ادعا کرد دو نفتکش در مسیر جنوبی تنگه هرمز، به مین‌های دریایی کارگذاشته شده سپاه برخورد کردند و «به آتش کشیده شده و متوقف شدند.»
+سپاه در این بیانیه همچنین اعلام کرد یک پهپاد ام‌کیو۹ آمریکا را  بر فراز تنگه هرمز سرنگون کرده است.
+سپاه پاسداران در این بیانیه بار دیگر به کشتی‌ها هشدار داد که مسیر جنوبی تنگه هرمز مین‌گذاری شده و «خطرناک است».
+@
+VahidOOnLine
+سازمان تجارت دریایی بریتانیا روز سه‌شنبه ۲۸ مهرماه، در گزارشی که با یک روز تاخیر منتشر شد، از درگیر شدن یک نفتکش با «نیروهای نظامی» در نزدیکی آب‌های عمان خبر داد.
+به گفته این سازمان ناظر بر تجارت دریایی « گزارشی از وقوع یک حادثه دربرگیرنده یک نفتکش و نیروهای نظامی در فاصله تقریبی ۱۲۱ مایل دریایی شرق دقم عمان دریافت کرده است.»
+در بیانیه این سازمان آمده است:
+گزارش‌ها نشان می‌دهد که این نفتکش در راستای تحرکات نظامی جاری در منطقه، درگیر شده است. مقامات در جریان هستند و تحقیقات مربوطه همچنان ادامه دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78774)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-20 15:51:06
@@ -168,7 +278,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-19 17:10:26
 
-<img src="https://cdn4.telesco.pe/file/lKGU9kUnVwAFz8wcBsCdZqLiPn4UGoRVRmZWBC7HBl7hDBBPdVInPd80WoSJOBh6MgBeemGEXo47dXjdhBGbqa6RRt5MduVp_FjtAyI4tFyGhJjhEdccvWseRrL2CxV7XwKxsl92QA0IuG0SZIcgtz6tLEmO4NoLquxqhCbQE7wg9Ixsg-Pe9cuBOq1MsKN-LR3RH26AF8oaLmUled9LeKAFI_S6XVMqIAStC1EUlAqyx1eK9K1rb8ALC4xB6302KuWpqrDhhdND0hVFqqVBWAlL7nYi2wxYBC-53mrPWLKdZ1uOlhzWedpATU26Aqm3WtcHU2ZBUZXi4UriotunEA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/LXnwJkxDdIpnNHlcn2Swd-S29RfnHAPFVXnCMoKbKNh8PPL1YL_z4J5jvrVquHBqnIJm5xPMe8nG3GfEkO9KH5GthfFFeELXxPsdBx6UHER1OAmUgjnsd72pi49fsahfH_JE81oE5Buz7xwNty-o-Of-TslWemJbENShqCU1akM0RnaSb80cH8xhb_l5GnXUUS7RhXH7wkD_ROHECKT9CXTDxOFxMLllnu_PMUf67svbFKTJu5wC1nncdO_PZAbz-WHWDG-tXL-HDh45IKXQzf4ZTXWNaMCDwAhSQ4Z380_P3uI5UM1X4_S0uJ-npblYgMLlNjmRnGTPMbU3pJq-fg.jpg" width="400"><br>
 
 سرگئی لاوروف، وزیر امور خارجهٔ روسیه، روز دوشنبه ۲۷ مهر ماه و ساعاتی پس از ورود به تهران، با عباس عراقچی، وزیر امور خارجهٔ جمهوری اسلامی ایران، دیدار کرد.
 سفر لاوروف به تهران در حالی انجام می‌شود که روزنامهٔ وال‌استریت ژورنال ساعاتی پیش اعلام کرده بود پوتین خواهان برگزاری نشستی با شی جین‌پینگ و دونالد ترامپ، رؤسای جمهوری چین و آمریکا، شده است.
@@ -191,7 +301,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-19 16:24:16
 
-<img src="https://cdn1.telesco.pe/file/jHyz7cMnezhc04jukCv-MApYUX9EFzW29P-nYF3CCFYcpvfxiGzT8sqIYrohKAqZl5tacJUy43YWeWm9Z6-s-0cXF5VD9GVBcQaNVdN0gDeJMzTLwpTeg2PCU0PXMTA450cu2lcoaXv1ATK_tdI49gbqpq-SN7Wp9FxfWVdvCPnfh0hTEbrFVfqF3aa1IAMbPntGRJfjqzh-CgjxnAgMW0HBlWOQW4xB13jViiFVW4MU8t6C_4Ehop5bP46y4Cu6nTA23oN724FrS8snXzYXhvu6plkPGHoK2v44hHmKuz_BbDMXKzrz7PIQ68mk1UII9CSe-AZpddU-KuxOSU4yjQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Yt9TdGZVm2SdURAvNBXZCmcWb0c8HwXKUCRXO8eUav1wQStDfVEZGICqN8sCrnAG-NVBzYSm8rwKHaiFpmismuRIJAJRBSkv3pO-HvZQOMhhxa5GiYZNeIAMu8M1bIrRFGbBIi14um6o0aVYjnE6fCwhLhso9qeiv81m6E1MJNDJismBsG0ryVJk9Zh7UGkJ4_3TFMxcxCyVwUzS3yzldYkfM6xX2ITbrtbZaVjgZYiIfFHQD00jU-vVv2dzHP3e5qy8NXOSPJCWDuH1geH7WMeAq0zUF9tn060PWXkGenqwn4E0OQlFgpwsdTBwCb0lfmkVg2TocoZFHFUIXhp8Dg.jpg" width="400"><br>
 
 امیرمحمد حاتمی، جوان ۱۸ ساله اهل شاهین‌شهر اصفهان، پس از مجروح شدن و بازداشت در شامگاه ۱۹ دی، با شلیک تیر خلاص به چشم راست کشته شد.
 خانواده او پس از ۲۰ روز جست‌وجو در زندان‌ها، سردخانه‌ها و مراکز امنیتی، سرانجام پیکرش را که آثار شکنجه بر آن دیده می‌شد، از جای زخمی قدیمی بر کتف راست شناسایی کردند.
@@ -245,172 +355,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78762)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 23:46:20
-
-
-
-سخنرانی مکرون، ترجمه ماشین
-بخش مربوط به خلیج فارس 3:51
-کسانی هستند که به‌حق احساس می‌کنند قیمت سوخت بیش از حد بالا رفته است؛ قیمتی که به‌دلیل آنچه در خلیج فارس رخ داده، افزایش یافته است؛ جنگی که فرانسه در آن مشارکت نداشت.
-این نارضایتی در دیگر پایتخت‌های اروپا نیز ابراز می‌شود. کارهای زیادی هست که می‌توانیم انجام دهیم تا در زمینه تأمین سوخت خود و تأثیرگذاری بر قیمت آن اختیار بیشتری داشته باشیم.
-از فردا صبح، برای گفت‌وگو به نمایندگی از فرانسه عازم کشورهای حوزه خلیج فارس خواهم شد.
-نخست‌وزیر و دولت نیز همراه با تأمین‌کنندگان سوخت در سراسر کشور تصمیماتی گرفته‌اند تا راهکارهایی برای مقابله با افزایش قیمت سوخت پیدا کنند.
-FRANCE 24
-رویترز گزارش داد شهرهای مختلف فرانسه شنبه ۲۴ مهر شاهد تظاهرات گسترده علیه افزایش هزینه‌های زندگی و افت کیفیت خدمات عمومی بودند که در برخی مناطق به خشونت، آتش‌سوزی و غارت کشیده شد.
-سباستین لکورنو، نخست‌وزیر فرانسه، مسئولیت خشونت‌ها را متوجه «چپ افراطی» و مجرمان دانست و گفت دولت مرعوب نخواهد شد.
-امانوئل مکرون، رییس‌جمهوری فرانسه، نیز وعده داد عاملان حملات تحت پیگرد قرار گیرند.
-اعتراضات ماه گذشته با نارضایتی از کمبود معلم و وضعیت مدارس آغاز شد و به جنبشی گسترده‌تر درباره نابرابری، هزینه‌های عمومی و سطح زندگی تبدیل شد.
-@
-VahidOOnLine
-در پی وقوع موارد زیادی از غارت، تخریب و آتش‌سوزی در جریان اعتراضات گسترده شامگاه شنبه در پاریس و دیگر شهرهای بزرگ فرانسه، امانوئل مکرون، رئیس‌جمهوری فرانسه، در پیامی تأکید کرد هیچ‌چیز خشونت «افسارگسیخته» را توجیه نمی‌کند.
-مکرون یکشنبه ۲۶ مهر ماه با انتشار پیامی ویدیویی گفت: «امشب همه ما احساس خشم و شرم می‌کنیم.» او تأکید کرد باید میان معترضان دارای «مطالبات مشروع» و کسانی که دست به تخریب، شکستن اموال و غارت زده‌اند، تفاوت قائل شد.
-رئیس‌جمهوری فرانسه گفت کسانی که دست به تخریب زده‌اند باید هزینهٔ اقدامات خود را بپردازند و افزود دولت در برخورد با عاملان ناآرامی‌ها «هیچ‌گونه مماشاتی» نخواهد کرد. او این خشونت‌ها را «بی‌سابقه» و «افسارگسیخته» توصیف کرد.
-مکرون همچنین وعده داد مقام‌های ارشد دولت با هماهنگی شهرداران، تصمیم‌های لازم را برای حفاظت از شهرها، ساختمان‌های عمومی و کسب‌وکارها اتخاذ کنند. او تخریب خیابان‌های شهرهای فرانسه را «غیرقابل تحمل» خواند و بر حمایت از کسب‌وکارهای آسیب‌دیده تأکید کرد.
-رئیس‌جمهوری فرانسه روز یکشنبه و پس از این اعتراضات خشونت‌آمیز، نشست اضطراری با وزیران دولت برگزار کرد.
-وزارت کشور فرانسه اعلام کرد روز شنبه نزدیک به ۲۴۰۰ نفر بازداشت شدند، تقریباً ۱۰۰۰ نفر از نیروهای پلیس و زخمی شدند و ۷ نفر از آن‌ها به‌شدت آسیب دیدند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78761)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 23:06:16
-
-<img src="https://cdn4.telesco.pe/file/TwqbvLbCZJYEDbwN4N13bT0lcfiIsIlPjrWkm76i6xK5qWrsK6YI1vncH2rFEipCO8YWUhoVZSNK5vfStCF1eQCc6a502bgDMtu_JQiOUfPpV6BmKR5PqcTOn3lkd84D2RvGPbSWfA1bBMbNUFr5EK75Vxbqkd7nOQIk5f_3_g55YIllj4qV4C-108KFAqdPOhXrSdx9NKcGxu7CvyjLiJGKfAyUed2D8I65DEKyNlsp4XN2-2Q3bxxJzyXJ4s5Uo6B7JRKzECibuCDPG4Dk6Sl2IDqkMQ1FQ1VMJh1f2TaNI4DCALV6uYdT1xjH0gaFINTOeqFF0jf1LhSEuKr0ww.jpg" width="400"><br>
-
-علی عبدالهی، رئیس ستاد کل نیروهای مسلح و فرمانده قرارگاه مرکزی خاتم‌الانبیاء، روز یکشنبه ۲۶ مهر ماه در پیامی خطاب به آمریکا و اسرائیل گفت ایران برای «تصمیم‌های احمقانه» آن‌ها لحظه‌شماری می‌کند.
-عبداللهی در پیامی که در رسانه‌های رسمی جمهوری اسلامی منتشر شده است، نوشت: «شعارهایی که می‌دهید، اگر می‌توانستید تاکنون به آن عمل کرده بودید. در هر یک از جنگ‌های قبلی، با شعار سرنگونی جمهوری اسلامی، تجزیه و نابودی ایران وارد جنگ شدید، در حالی که امروز خود در حال نابودی و سرنگونی هستید و ایران قدرتمند همچنان استوار ایستاده است.»
-رئیس ستاد کل نیروهای مسلح ایران در ادامه هشدار داد خطای محاسباتی بعدی با پاسخ‌هایی متفاوت‌تر و شدیدتر از گذشته روبه‌رو خواهد شد.
-این پیام پس از آن منتشر می‌شود که دونالد ترامپ، رئیس جمهوری آمریکا روز شنبه در حمایت از نتانیاهو در انتخابات آتی اسرائیل اعلام کرد، در صورت پیروز نشدن نتانیاهو در انتخابات، ایالات متحده به تنهایی کار ایران را تمام کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78760)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 22:21:35
-
-<img src="https://cdn1.telesco.pe/file/nwnW6EsROVIykf7SIdAarnqKvO7nH-iqpwy4gAxyHETK1vXGzCRsDAVqzk8_zlm3zemUcsoB6U41r4Ljhdg_rtZHWEDFuOpfI81IHsDlrXAo9FxAzITRkpJc_kihbDUe6WGH0NFESPqUXriurpwq1BdV4-icilD64pv4nTnNdmeFXTk33ww5wMhSVHKb3oXY2KcE61JbB_VrpbjJpjFrL2K3yakA9N1qpIN_1qfTTWxmkPsa_1q2WBDJJZ0iF63yYfcLTelqNdqo-PoGvmUQejxqz_NnXgcY_9Hi1ncLcs_Zr0JIXFiPKfUWuOzlljE7bGrkAOPukVDfNtYmstvtfQ.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز یکشنبه راهبرد جدید امنیت ملی این کشور را اعلام کرد؛ راهبردی که بر پیشگیری از تهدیدها و انجام حملات پیش‌دستانه تأکید دارد.
-دفتر نخست‌وزیری اسرائیل اعلام کرد که بر اساس این راهبرد، حمله به تهدیدهای در حال شکل‌گیری جایگزین سیاست سنتی مهار تهدیدها و اتکا به دفاع خواهد شد.
-نتانیاهو گفت جنگ‌های پس از حمله هفتم اکتبر ۲۰۲۳، بازنگری در سیاست امنیتی اسرائیل را ضروری کرده است.
-اسرائیل پس از حمله ۱۵ مهر سه سال پیش، علاوه بر عملیات نظامی در نوار غزه و کرانه باختری، به اهدافی در لبنان، سوریه، یمن و ایران حمله کرده و با حماس، حزب‌الله لبنان و حوثی‌های یمن درگیر شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78759)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 19:40:33
-
-<img src="https://cdn1.telesco.pe/file/j32XK1riyl4jvm2B9U71Fp8zMkTXvjBCURXKITD-wxOAKC2tIX-VhVKd71UWlgO65ECUr0LyDjA27bIKjMyVAg1BDRgh1M10nAlrJ5zj6SbgOccXM_3fiDsa6fjzqfMglK_yp3CySJ7z8R6Zmjw0ELQCKmqusLKRtP_AzF6k_-J8XLGZ8iIrZ5oJ2cXfqZ86Dvktu_o42Qz56fv9nI63kRk5ATrhLhNXscvPB8OAP6kmMDmKb1DVua6mcJrAGiuybGlO4DZKrlB97JZ-K8MkmgsA19ZNLaAnORQuPmZNesvvKqXifQbVJdCM-KzHeVFVfVlTZaS-cNWsd4SVUzZp6Q.jpg" width="400"><br>
-
-عباس کعبی، عضو هیات‌رییسه مجلس خبرگان، یک‌شنبه ۲۶ مهر در گفت‌وگو با تسنیم، رسانه وابسته به سپاه پاسداران، اعلام کرد که «انتقام از ترامپ و نتانیاهو قطعی است».
-کعبی همچنین گفت: استفاده از ظرفیت‌های کشور و ۳۲ میلیون جان‌فدا، راهکارهای مقابله با نقض تعهدات دشمن است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78758)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 18:23:44
-
-<img src="https://cdn1.telesco.pe/file/pNuYGLUhAjG0roK70nx0jjmL18TLilxLrHPzUULlPRpiBLlWkSb-R8yEvf04Zyq1whUFlCxnw-vDnpE1cQmTr3d4Fe_aPfB9KKVxse-pbPqTzuB0anY58EerYU02PjJ7hKABgRdsiu7nHgKOs1opoAWCp6_DGzOQKDDLyglEn99UqclFaYBxUFeQuwPre38vwmWaA-7VDSBPd-Q7TBf3S2eKiYuFBYvF-DGEVDBSWgNug64_oQHlSG0KVYDVHdZfEIsya2puQGbTrKUvRiZ_0n3locdNUfct7j-nft6dy5kgPDvfVb_X0qZ-xgtvWD6N4nXCxnx_f5nIpHsaETo6pg.jpg" width="400"><br>
-
-ترامپ:
-جمهوری اسلامی که ۵۱ سال است شعار می‌دهد: "مرگ بر اسرائیل، مرگ بر آمریکا! ما شیطان کوچک و شیطان بزرگ را نابود خواهیم کرد."
-اگر به‌سرعت رفتار خود را تغییر ندهند، به زودی کار را تمام خواهیم کرد.
-نتانیاهو:
-با هم مأموریت را به پایان خواهیم رساند!
-پست ترامپ در حمایت از نتانیاهو برای انتخابات
-ترجمه ماشین:
-خطاب به مردم بزرگ اسرائیل:
-"بی‌بی نتانیاهو نخست‌وزیری بوده که همچون جنگجویی بزرگ عمل کرده و در مقابله با جمهوری اسلامی ایران، شریک حتی بزرگ‌تری برای صلح بوده است؛ جمهوری اسلامی که ۵۱ سال است شعار می‌دهد: «مرگ بر اسرائیل، مرگ بر آمریکا! ما شیطان کوچک و شیطان بزرگ را نابود خواهیم کرد.»
-وقتی اجازه داده می‌شود چنین حرف‌هایی زده شود، کدام کشور می‌تواند دوام بیاورد؟ چرا که این حرف‌ها در نهایت همیشه به واقعیت تبدیل می‌شوند.
-این فقط مسئله زمان بود که ایران آن عبارت شوم را عملی کند، اما آن‌ها هم از نظر نظامی و هم از نظر مالی به‌طور نظام‌مند نابود شده‌اند و اگر به‌سرعت رفتار خود را تغییر ندهند، به‌زودی کار را تمام خواهیم کرد.
-اگر اسرائیل رهبر نامناسبی داشته باشد، یعنی هر کسی غیر از بی‌بی، آمریکا مجبور خواهد شد خودش این کار را انجام دهد و من هیچ تمایلی به این کار ندارم.
-بی‌بی نتانیاهو در برابر مخالفت‌های شدید، از جمله مخالفت‌هایی که حتی از داخل خود اسرائیل سرچشمه می‌گیرند، قدرتمند، شجاع و درخشان ظاهر شده است. با وجود همه این‌ها، نه‌تنها دوام آورده، بلکه در واقع موفق‌تر و قدرتمندتر هم شده است!
-من بی‌بی را در دشوارترین شرایط زیر نظر داشته‌ام. مردان یا زنان معمولی در چنین شرایطی زیر فشار از پا درمی‌آمدند، اما بی‌بی از پا درنیامد؛ در واقع قوی‌تر شد و امروز هم همان قدرت را حفظ کرده است.
-ایالات متحده آمریکا از اسرائیل، کشوری که این‌همه برایش کار کرده، دقیقاً چنین شریکی را می‌خواهد.
-لطفاً این نامه را به منزله حمایت کامل و بی‌قیدوشرط من از بی‌بی نتانیاهو در رقابت انتخاباتی پیش‌روی او برای انتخاب مجدد به‌عنوان نخست‌وزیر اسرائیل تلقی کنید.
-بی‌بی نتانیاهو هرگز شما را ناامید نخواهد کرد!
-از توجه شما به این موضوع سپاسگزارم."
-realDonaldTrump
-واکنش نتانیاهو:
-"از شما، رئیس‌جمهور ترامپ، بابت حمایت فوق‌العاده و همکاری مشترک‌مان سپاسگزارم.
-با هم مأموریت را به پایان خواهیم رساند!"
-netanyahu
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78757)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 17:10:44
-
-<img src="https://cdn1.telesco.pe/file/WPX84rBCNDPmMYfeULdmiRA22LZ5-6SHb8G-4w2XRdOfTlSouRknchwDnG34M5vAqRITuhjNGzmDRixtsPmM8W3KBZ8Q4w97s4D9qvW7HruuULTH4WoLe_HMXoWQGtTKqpXPRSpQ0HPPYlCqajWMGqTm9f4uN6AwTev0SGNHvC7L36DoGMAJ7weO_cymCFfk8T1ay37j_9mxFq7EQqTdQdb1LJORNyioYHnJ23vlQkAsWz6XdUHALaRtizwLq4ymlcqpjQWBxX8_GFP3wieHJIGBBb45qc9XvRLG6q3z4mQu06Oo-gUYiXRk6CkvaWe1B2Hoa-RCWBTJRY3ZGJ4t_Q.jpg" width="400"><br>
-
-علیرضا سلیمی، عضو هیات‌رییسه مجلس، یکشنبه ۲۶ مهر در خصوص جزییات رای اعتماد به وزیر دفاع در جلسه مجازی مجلس، به خبرگزاری فارس گفت: «از مجموع ۲۸۵ نماینده، ۲۷۷ نماینده در جلسه حضور داشتند که از این تعداد، ۲۵ نماینده به دلیل نداشتن دسترسی به اینترنت موفق به ثبت رای نشدند و هشت نماینده نیز غایب، در مرخصی و یا در ماموریت بودند.»
-سلیمی افزود که مهرداد اخلاقی با کسب ۲۳۷ رای موافق، به‌عنوان وزیر دفاع و پشتیبانی نیروهای مسلح انتخاب شد.
-@
-VahidOOnLine
-مهرداد اخلاقی کتابچی، وزیر جدید دفاع و پشتیبانی نیروهای مسلح جمهوری اسلامی در نخستین موضع‌گیری پس از کسب رأی اعتماد مجلس، به آمریکا درباره ازسرگیری حملات نظامی علیه ایران هشدار داد و گفت «دشمن به احتمال زیاد جرات نمی‌کند به ما حمله کند و اگر حمله کند، خودش و متحدانش در منطقه صدمات بسیاری خواهند دید.»
-اخلاقی روز یکشنبه ۲۶ مهر، اندکی پس از کسب رأی اعتماد نمایندگان مجلس، در جمع خبرنگاران گفت: «ترامپ باید فکر این باشد آدم‌هایش را سالم از منطقه خارج کند. آمریکا یک بمب بیندازد و ببیند چند آدم را باید افقی بردارد و برود»
-مهرداد اخلاقی جانشین عزیز نصیرزاده می‌شود. وزیر دفاع پیشین دولت پزشکیان که در جریان موج اول حملات آمریکا و اسرائیل در روز نهم اسفند در تهران کشته شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78755)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-18 17:08:12
-
-<img src="https://cdn4.telesco.pe/file/sk3xv-ajIOTFVMBGP3Ix8Wa47b5689iF8exOlQlrGi8Vz7m9tgQSpcOsLYl6HR9_QLdOLfLZujwo2j9W4x4MluAA7qLMpo9DdVSqwTmyDrY6mjqmbIDwIPkRwUI5V_SF4vC9ucwDqSc9yUGH9yvG-F6PRWMl4d-3KeK9hkt3RYOqI1AjKZ8J1B6toIqextULQs_TUVwox9Qp8jPIZ2PTE22kYg8y6MWamXhyYEC6A1n5hCVtxN5-5ti_8Z45usDUsmu80GwH0tNPjXVNKAa50LMyBFSs7Grj6YqRuTezLt178Tj27sTsCgsyx6kNlv70SNEtHBCKwziugYU1Hye8jQ.jpg" width="400"><br>
-
-وزیر خارجه جمهوری اسلامی، روز یکشنبه ۲۶ مهر اعلام کرد که پیشنهاد ایران برای بازگشایی تنگه هرمز ظرف هفت روز همچنان روی میز است و از آمریکا خواست شروط تهران را بپذیرد.
-عباس عراقچی در حاشیه نشست وزیران خارجه سازمان همکاری اسلامی در بغداد گفت که ایران طرحی هفت‌بندی را به آمریکا ارائه کرده و واشینگتن نیز نظرات خود را درباره آن اعلام کرده است که تهران در حال پاسخگویی به آنهاست.
-او افزود: «اگر به شروط ما عمل شود، تنگه هرمز در روز ششم باز خواهد شد و در روز هفتم مذاکرات آغاز می‌شود.»
-وزیر خارجه جمهوری اسلامی ایران جزئیات شروط تهران را بیان نکرد، اما گفت این شروط همان مواردی هستند که به گفته او، آمریکا پیش‌تر در یک یادداشت تفاهم و مذاکرات دیگر به اجرای آنها متعهد شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78754)
 
 ---
 
