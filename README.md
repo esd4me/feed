@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-21 09:03:24 </h5>
+<h5> 🟢 Updated at: 2026-10-21 14:21:54 </h5>
 </div>
 
 
@@ -174,7 +174,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-20 15:46:44
 
-<img src="https://cdn1.telesco.pe/file/QFACqctf4I0LTwF0M_eKc8bqzg23At5TQrMDJBDkDJcmbmyY17PqGjVNLJ9gxxR-XimDQxntmgwIFA15lj1NzkTYTo5U_r1pTx2_Uw-XSDg9CvQGZFPssQkeQZHHZbMHE5SJ7J9st67WBgTc7nPaI42LDWCXxFSx4v16nwaP6NGVMVN4atroyzogEJ48_nalrKGAoIcDutL1C9OhTIse5ce7oFzjrticCHmVeyaCBTpiWOc5I2xm5jbak4nsAvBvo0eQR09jJcq996_od-p0mlaAtDKWBd1XZJG56XAkFsD4Al_yqO8myPe7TXejA4N5SLAqkG9lC1HA-GrGTrfemw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/qrYNELA2gZEUUnS51f89ewci_PnhSYy39FtjEcRBlp9hRs8NgAhYZOoaNkC8d6klpZ192otKmdpg5Sin9sK078dOoygP9lUgusteBE3WmObVBDDYaSbdGD7xpdyhpUtoAPwNUWXHgAPeD3FAE2nYg1Ssh2d4G5tBKt37nvoUFzCxrFWfq-XpWwDOGa6PFFoJa1yp_xKP04rwK2NkZal6BmHy-WXOLgSqJFCCWPPKp3ShDnA69WtZydAmDYIRFmoLUwCF9sF-qZpROGvyEFbd7GurmKJZzx2-c_R9CxOw2_0zbBbQEilOvVk1sAKK_UKJ7OiIblCfj-VhKXu9VJ-KBA.jpg" width="400"><br>
 
 خبرگزاری هرانا گزارش داد همایون شبانکاره، شهروند ۲۲ ساله محبوس در ندامتگاه مرکزی کرج، از سوی شعبه دوم دادگاه انقلاب کرج به اتهام‌های محاربه و جاسوسی به اعدام محکوم شده است.
 به گزارش هرانا، یک منبع مطلع نزدیک به خانواده شبانکاره گفت حکم اعدام او روز شنبه ۲۵ مهر به وی ابلاغ شده است. پرونده او در شعبه دوم دادگاه انقلاب کرج به ریاست مهدی سبزوارنژاد، معروف به «سبزواری»، رسیدگی شده و نام مهدی رضوی نیز به عنوان یکی دیگر از قضات مرتبط با پرونده مطرح شده است.
