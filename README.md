@@ -3,8 +3,69 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-21 19:14:59 </h5>
+<h5> 🟢 Updated at: 2026-10-21 23:17:30 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-21 20:01:18
+
+<img src="https://cdn4.telesco.pe/file/DWB5FIPbukRZVD5uRHBrtkE81d4BGbF0xb17d6u-vIa0-insXyl4fZ1jicNjfJYN4xI-ozvFB_ueafWjYP4qW1eXcZsy15QXNSwtAsjcopaIW3FUw9GkjVl-vy2G2iH9J-4sSthgz4SudmCRzZpbQk7PHeMWpumKNBIjDjZ7KjWIvLmvb9cpZzKh_B0C9LhwzrmHM3D4IvJ_PgrLW0VyE255A_BdBwXFO0EEPPRSoc5YAXC8hKo0WX9JGYJfPL6gMe-Mkki6ok8EMxt8lmBhkXe0fvgN2ZmP83CTZIUVpsPiP5ibKAmTTyRqMHvu-QOGhgfqTyv56XhytgLWibogkQ.jpg" width="400"><br>
+
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، روز چهارشنبه ۲۹ مهر گزارش داد که محمدباقر قالیباف، رئیس مجلس شورای اسلامی با مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی، دیدار و گفتگو کرده است.
+بر اساس این گزارش، در این دیدار، آخرین تحولات در زمینه جنگ نظامی و اقتصادی با آمریکا و اسرائیل بررسی شد. تسنیم نوشت که طرفین بر ضرورت تقویت مؤلفه‌های قدرت کشور، نقش مؤثر نمایندگان در حفظ «انسجام اجتماعی و وحدت ملی»، استمرار «حضور آگاهانه ملت در تجمعات میدانی» و اهتمام دولت و مجلس به گره‌گشایی از مشکلات معیشتی مردم و پیشبرد امور شرکای راهبردی تأکید کردند.
+از این دیدار، تصویری در رسانه‌های جمهوری اسلامی ایران منتشر نشده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78796)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-21 20:00:51
+
+<img src="https://cdn4.telesco.pe/file/a671pZu1noFmP4qcAvv5KqkwqdPO5bmCmdwhlnnP4WUVCWTI2ma1IN_ZcSv_RbdI0MCIq-ORQas2NnCeGXCqfVRW9AKgWXl7f92u_g_OGSpG3COBJ_1BLML37mfEf4Q2RvKffdUs_fgpb2ei7LFPt2JaVA_6jmGChvRNiT5QLF1M40_LmR-yTfEJebPWUsBAES37wMakloIGcOzhPu3Mq-J61ba_I9XIC46DMHvOny2bZ9d9QISLtuIntMAKP3XCmunHQ5XqKgaRW94YAX5qU-nNJHzWZYtPzFUWdz-VacpGljAXHwzg9UVtANWfnKc4QUU5_92amxBjUHxE7EW9xw.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسراییل، با متهم کردن جمهوری اسلامی به تلاش دوباره برای توسعه سلاح هسته‌ای، گفت تنها راه از بین بردن این تهدید «برای همیشه»، سرنگونی حکومت ایران است.
+نتانیاهو روز چهارشنبه ۲۹ مهر در مراسم فارغ‌التحصیلی دانشجویان افسری ارتش اسراییل در مدرسه نظامی بهاد ۱ در جنوب این کشور گفت حکومت ایران هنوز از آنچه بر سرش آمده درس نگرفته است.
+او با اشاره به مجتبی خامنه‌ای گفت: «مجتبی خامنه‌ای تصمیم گرفت راه پدرش را دنبال کند. او ضامن را کشیده و ایران بار دیگر در تلاش است سلاح‌های مرگبار خود را توسعه دهد.»
+نخست‌وزیر اسراییل افزود که به ارتش، موساد و نهادهای امنیتی دستور داده است برای رفع این تهدید، حکومت ایران را سرنگون کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78795)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-21 20:00:07
+
+
+
+بیش از هفت ماه پس از کشته‌شدن علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، یک عضو مجلس خبرگان می‌گوید، وصیت‌نامه علی خامنه‌ای پس از بمباران «هنوز پیدا نشده است.»
+سعید صلح‌ میرزایی همچنین ادعا کرده است که وصیت‌نامه «در حال اصلاح بود و نسخه مشابهی ندارد».
+به گفته این عضو مجلس خبرگان، فایلِ در حال اصلاح وصیت‌نامه هم که در کامپیوتری در محل بیت رهبری ذخیره بوده، به همراه کامپیوتر در بمباران از بین رفته است.
+این در حالی‌است که به‌طور معمول وصیت‌نامۀ سیاسی سران کشورها، در چند نسخۀ یکسان تهیه شده و در اماکن مختلفی نگه‌داری می‌شوند.
+پیش از این و در طول بیش از هفت ماه گذشته، ادعای مشابهی مطرح نشده بود.
+اندکی پس از کشته‌شدن علی خامنه‌ای در روز نهم اسفندماه ۱۴۰۴، پسرش مجتبی به‌عنوان رهبر بعدی جمهوری اسلامی معرفی شد. تا کنون فیلم یا صدای او پخش نشده و هنوز در مورد سرنوشت او هم تردیدهایی وجود دارد.
+@
+VahidHeadline
+انتشار وصیت‌نامه رهبر پیشین جمهوری اسلامی می‌تواند زمینه‌ساز تفسیر‌های جناحی از محتویات آن در درون حاکمیت شود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78793)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-21 16:48:44
@@ -18,9 +79,9 @@
 این مادر دادخواه در ادامه به فشارهای امنیتی و دلایل سکوت خانواده‌ها در قبال جان‌باختن فرزندانشان اشاره کرد و تاکید کرد: کینه‌ای که در دلمان است هر روز در حال بدتر شدن است.
 @
 VahidHeadline
-03:29
 📡
 @VahidOnline
+03:29
 
 [View Post](https://t.me/VahidOnline/78792)
 
@@ -207,7 +268,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-20 20:27:04
 
-<img src="https://cdn4.telesco.pe/file/EyYu8Lg66VCyYGfP0wm3Tr57pgtvHljrmfkPdnZv0W-CmKAPLeAjg1h2LsD_lMv0CWqvW33q0u7cSmcQDALtDoDU6jMslzvljAmN9hGcQB2sBNOEZKAqueQBlQp3pX4POu4YDcsxe7yveHc0jmWqvirJDWK41ES_seALioVvq9u1KDOgmrvUbdtKOuZKdCNBDt_FdUR07epMjoz_MGRVu1ldQWzqfMdEKFR2i4JVWnPDmUHXt0ZnRYoXX1ursnhksZHoy1Xkp86irie1BEEMp69ksX3A7FkofWCEENXWGA0KYYTNtSdg8ZknzsG-rzsSEKgCRzR4MNhTjloLvuFO_g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XIlIlrNaXmt3IWtoA6otwrh9rWuRiMUYHfsYjBHRLfnmI4zAFfFQVVZHCW5CkHRx5iJvkYIu2s-ToCtKqXSPO5Auk-rF7lYPMS58ZKhe4mdNgWeLsRQUtwicoUELuuOni_Dpt5my4rwmK6-9CBGWJ8xWcRvv5-a8xfAWJ_Lct5kG-iAvPLlfUYRHfcsIxgdZ4C4tSi6nJjLX6PHXbB3gWRV079SDNS-G1c-6EJotqmeaFAvBkNdHqvWm3s0tedgtegjCp1LOHLay6pvtnoQJFeZWNM-JKTuDPcuEats3sqIjEmPc9J_bWXmyeOulzvFxraJiCqhKhiqI4b4-sg6KcA.jpg" width="400"><br>
 
 عاصم منیر، فرمانده ارتش پاکستان، در سفر به تهران با مسعود پزشکیان، محمدباقر قالیباف و محسن رضایی دیدار کرد. رضایی در دیدار با فرمانده ارتش پاکستان تاکید کرد حتی ذره‌ای از مواد هسته‌ای غنی‌شده ایران از کشور خارج نخواهد شد و قالیباف نیز گفت آمریکا تنها با اجرای شروط هفت‌گانه جمهوری اسلامی می‌تواند اعتماد تهران را جلب کند.
 @
@@ -255,7 +316,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-20 17:59:12
 
-<img src="https://cdn4.telesco.pe/file/JXauEx3Rw0Ig_QGLWWw2Pgqr6JeL30wpJCrJ5AKcvvvTPiIXuiV8yHYKCll8ihvneB-gD_HWsjHd06k0x19QWoTu7Of69f--HViM8WfmKxFyzZTgnJj2jdtqSdPB6CBPbMN0vNzYk2H-IgXUndGAUlmez0i2h8vtgeySZAYoFz_dhrbQ2TuYFCDDoWt0ZATz78OXIZb21S0K_B-qJTsY_3ekjkAKv1vWmrlL2NQ1OCINnpds3TZLjwmCrUENIzkUvC4fHu9uQ3LfsUA1WhY6MjzhZ2IZ60Mp8jMps5ACmD9AYg8By7ttHKOXabq0IaXRTJNaJ2U28pQCwUaGlzxd9g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Hgt-ShNyC90oxohjwWZry61mkzH0Jq4oM6ktbuNJaI0dhKpvzYcPBXekkI19Tfq8lSppDdVrDCS6hMbOeIISJfW2Hx489Ccit45oHJ6o_Xq4Uu_jpwfwyeT7_8Ba36iG5eSa8ecotjqQbOk2zdx_PmIJlpxxTGKvlXnWu85SEhmVMn4G6I9795SEAUs6zuU4QJ6Ar6h6cTw7tHzjIuOpzm0V0YCor6Xo7YgmCNEcfB_4c4s-dVgOiv9y3_yuxh0gmthCNLtQhvyWJgEmmey00xC_ySTehusEr9Jw6mWXYc79hdHKFmpV36IIywqcYZmQDRpw7BLeMVojADQz44SBBw.jpg" width="400"><br>
 
 دولت بریتانیا اعلام کرد جنگنده‌های تایفون نیروی هوایی این کشور برای مقابله با حملات موشکی و پهپادی حوثی‌های یمن، ماموریت‌های دفاعی بر فراز شهرها و زیرساخت‌های حیاتی عربستان سعودی انجام خواهند داد.
 بر اساس گزارش گاردین، این عملیات شامل تلاش خلبانان بریتانیایی برای رهگیری و انهدام موشک‌ها و پهپادهای حوثی‌ها خواهد بود. شمار جنگنده‌های اعزامی اعلام نشده است.
@@ -286,46 +347,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78776)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-20 15:54:51
-
-<img src="https://cdn1.telesco.pe/file/q7vIRAyR132m7lRspGh3lROXLyxF4a-FCmlQ-ZWClAac1JA5qE-IuOFMEPwvUsJOlAuuRhgTAK_5AH9n4x2067xLNATRjVY_SPJIlntsGp81ern-v6SZp1VtglbjU8bPYnogBIAVOSPrsTHAbNPPN4y0p17TsjL8lsN11wkJH-znr5bWh7hFEksBmd2Mv25oMWW9bFYmSRL3v3t9bscMtGnMNIeSGimbR4z8qnRh7D6XAZt6ihisKsXaO1HwHU2kfZhmCxnA7mTj-Cn22l3kOWL9MlNxnGHvUqIf-z1iPTiW4G6cbOHkQ2_Pnx_y0lO1IvrFWeFvS7xhDQPDqKfZFg.jpg" width="400"><br>
-
-سپاه پاسداران انقلاب اسلامی روز سه‌شنبه ۲۸ مهرماه با انتشار بیانیه‌ای ادعا کرد دو نفتکش در مسیر جنوبی تنگه هرمز، به مین‌های دریایی کارگذاشته شده سپاه برخورد کردند و «به آتش کشیده شده و متوقف شدند.»
-سپاه در این بیانیه همچنین اعلام کرد یک پهپاد ام‌کیو۹ آمریکا را  بر فراز تنگه هرمز سرنگون کرده است.
-سپاه پاسداران در این بیانیه بار دیگر به کشتی‌ها هشدار داد که مسیر جنوبی تنگه هرمز مین‌گذاری شده و «خطرناک است».
-@
-VahidOOnLine
-سازمان تجارت دریایی بریتانیا روز سه‌شنبه ۲۸ مهرماه، در گزارشی که با یک روز تاخیر منتشر شد، از درگیر شدن یک نفتکش با «نیروهای نظامی» در نزدیکی آب‌های عمان خبر داد.
-به گفته این سازمان ناظر بر تجارت دریایی « گزارشی از وقوع یک حادثه دربرگیرنده یک نفتکش و نیروهای نظامی در فاصله تقریبی ۱۲۱ مایل دریایی شرق دقم عمان دریافت کرده است.»
-در بیانیه این سازمان آمده است:
-گزارش‌ها نشان می‌دهد که این نفتکش در راستای تحرکات نظامی جاری در منطقه، درگیر شده است. مقامات در جریان هستند و تحقیقات مربوطه همچنان ادامه دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78774)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-20 15:51:06
-
-<img src="https://cdn4.telesco.pe/file/qxpt6hEDdMkBAOZ8qKAcHT6b_u7LCJwi2SlP9zVhLcj-9OuoNpWZTt8SN4xYlJi2SutlRqxBKWJSt9NXZ9Oe2TDMgQFGw-2eKN4ipG6tmsXnno-_dfQpyHlVjyChLvOvqVaTUflCdtl7KmrHkK-xOxwzSSIgqCLYI44_pU22qLz2DveX7vnBY42oUWKnDRyztKVH_QifO5Q8gTitUpsiAw2qVUmsW1cqvD3eVKC6u6fkufwX6j19f5qL9HCsoVSJCRS5Lpr_kI2lqlZ48AFElMG9svB02t4GCH7-oxXZz6ejcPGQxt7_psTlg1L1Lu51YNwjdS7M4Sbs-SvC5uyXsw.jpg" width="400"><br>
-
-موج جدید آلودگی و غبار سنگین، صبح روز دوشنبه ۲۷ مهرماه، آسمان استان خوزستان را در وضعیت بحرانی قرار داد. بر اساس آخرین داده‌های سامانه پایش کیفی هوا، شاخص کیفی هوای اهواز با رسیدن به عدد ۱۶۰ در وضعیت «قرمز» و ناسالم برای تمامی گروه‌های سنی قرار گرفت. هم‌زمان اداره‌کل حفاظت محیط زیست خوزستان با صدور هشدار اعلام کرد که ۱۱ شهر دیگر استان شامل آبادان، دزفول، شوشتر، اندیمشک، شوش، ملاثانی، هویزه، مسجدسلیمان، گتوند، شادگان و هندیجان نیز وضعیتی مشابه دارند و ساکنان باید تا زمان بهبود شرایط جوی از ترددهای غیرضروری خودداری کنند
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78773)
 
 ---
 
