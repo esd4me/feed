@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-21 03:44:46 </h5>
+<h5> 🟢 Updated at: 2026-10-21 09:03:24 </h5>
 </div>
 
 
@@ -193,7 +193,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-20 05:21:26
 
-<img src="https://cdn4.telesco.pe/file/o3FV4cL9zrFpMtmvBkffcEzj7DmTLyee6V6Idao-jfI5nDrRcQ87Z5GJFHYoZgWuEH8Oxx9-V1_HJ9NWIpwV7VpARr5djorwllU2KFmpqojKw28OBm7ZyWLErvp02IQKcC_ftO7IJypEZ_1scCYQU29cjvEaVm6OgfIu8yXkdKpSoWPXL2OGNM75ngJB8zTofwBXowTHEuF2w5xUFDFGLUicNokgHq8ktGsLq5xslVoeXuOAiScq0LgbSbnO7j30boZUDYb_jqTvNM7CkbVLOOtQSLxesRu9q24ZrKWGAuoodd2RbysvCq_xgb4W693dwbCDYkJef7Do8_bQRTzeXQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/F4fBJqgRdf_slbS1dDpWtV-nbW836XmO_maub1VeL737MD9sy5eQ8E-_FqBBAik8aupJ_SG9S1P58v521iqwTI6f-Wu3R71o9RQq3ApG9u1pXGFVOHJK1wOgnIrD6IVxTpGT9TVobM27Ca_FtK9c0pN6H6JCzyECTigg2atWo-JN42nqMYsZxVrCvtAn6H9OyBQtnIppHcgroFekt1oS2MjgkGMgZsHqvg8UuqUk8xZSbmcS4lKqlJp0e0JWb7hVSiBmgXuvOaf4aYKVb8WN8CwrZ5bgFKL8sy5rrJvhfFtlleYE6gYTth4kNRnbLJtPOa2XCqjRsEdciTZB1rUAhg.jpg" width="400"><br>
 
 آکسیوس به نقل از دو منبع مطلع گزارش داد پیت هگست، وزیر جنگ ایالات متحده، روز دوشنبه ۲۷ مهر در سفری اعلام‌نشده به اسرائیل رفت و با بنیامین نتانیاهو، نخست‌وزیر این کشور، دیدار کرد. این سفر هشت روز پیش از انتخابات اسرائیل و در شرایطی انجام شد که آمریکا و اسرائیل دربارهٔ احتمال ازسرگیری عملیات نظامی گسترده علیه ایران گفتگو می‌کنند.
 شبکهٔ ۱۲ تلویزیون اسرائیل نیز به نقل از دو منبع آگاه این دیدار را تایید کرد و نوشت پنتاگون پیشاپیش خبری از سفر هگست منتشر نکرده بود. دفتر وزیر جنگ آمریکا از اظهارنظر دربارهٔ این سفر خودداری کرد و دفتر نخست‌وزیری اسرائیل نیز بلافاصله به درخواست اظهارنظر پاسخ نداد.
