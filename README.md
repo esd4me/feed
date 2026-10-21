@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-21 23:17:30 </h5>
+<h5> 🟢 Updated at: 2026-10-22 02:24:09 </h5>
 </div>
 
 
@@ -229,7 +229,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-21 01:08:38
 
-<img src="https://cdn1.telesco.pe/file/uT7O5bZzOXgMm_MynKUJ7QGzo-4ztWS5-TjaBRbWhIkRoCiEFXSzffUy45YCuguutGauwYzNtFvKVB0uTrIkLjx3NtZAvvDtnj3Aixg4PeK6mnToJN86pbADxUELm9r4j9u_91CYD-Ra32GAGKXsqxfjg31vMAJ-qjw72UDhmxkETsceGzXFiMH6IXwfcn1DD5YA1UDWooD8d2ZRX_sJXto3VyDnLX9PqJC4uYWFF-sgOqpvvF9TLYbS3Dx4iHugx_vD9_OL25vjIICvTtg55ExzLeG5USeewAhJezCK2OvS9w7LcDDPHAqsUaTsVJeaw0npHeCp_SPxo0CWCp98bg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/j3iOd2lbkcmVt9FwE6v_F0BY96in2HsUWkTjfNmDqPwbh0-tVQu9ukObhs4iRk7-IvsniFZWpFkqdG4xom3eV4lInBIkxq7pZfTdYhVgvU90z9xo0JD-0LmyCO6hbBK3NCoErWoS-ZFgGm1hyhTraxnqJbo60-UubMFi8SaaZ2QMG4W-Ji9zWry3FBXANQC4DzY2Ck7OIh3hUE79ggJj9FPeOm1vyZAXObqtcmEhFTTCpwCaanqA9iHFhuXLbvFKJm7SiHXUwc7QWDoE6ve3aTmFBfi2RvyM05fEN3sGlOttyJRl90mIMAXWSKhBFULlZz-NFTVTgmaM37Qm5jE2Aw.jpg" width="400"><br>
 
 عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، در گفت‌وگو با شبکه تلویزیونی «الاخباریه عراق» با انتقاد از عملکرد ایالات متحده در روندهای دیپلماتیک اعلام کرد تهران سه بار با طرف آمریکایی وارد مذاکره شده، اما هر سه دور این گفت‌وگوها به تقابل نظامی و جنگ منتهی شد. عراقچی با تأکید بر اینکه این حملات دقیقاً در میانه مذاکرات رخ داده است، اعلام کرد که برای تهران به‌طور قطعی به اثبات رسیده است که هیچ‌گونه اعتمادی به واشنگتن در میز مذاکره نمی‌توان داشت. او همچنین گفت هرچند در دور سوم گفت‌وگوها به درک متقابل با ترامپ دست یافته بودند، اما رئیس جمهوری آمریکا به عهد خود وفادار نماند و تعهداتش تنها دو هفته دوام آورد، امری که سبب شده است اعتماد جمهوری اسلامی ایران به طرف آمریکایی به صفر برسد.
 @
