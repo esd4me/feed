@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-23 00:29:46 </h5>
+<h5> 🟢 Updated at: 2026-10-23 03:26:00 </h5>
 </div>
 
 
@@ -191,7 +191,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-22 03:12:43
 
-<img src="https://cdn4.telesco.pe/file/j94obOA9LkKtQzI3vAaadpBVF_pDAVjpxN1Ps5b2d0uAFjVFtYyAdFJSXkBzYFuOM6gJl2o4ovwTHmnyDOBcoy8ogvHQuOkpufHoUV7k6IUmn0pHeA_bO6JfoJS954oV6M7-Nde8OIw07gOkbq6M_Ya4-9iw6E3x1YRvSUW4w3D4ZzF22hErOAMSIL80mbh8o1sRha1lnT4Gdc0pqweyl8HSBPZlx0ElZ-4Nr5d2jCrDfEjvxZFLhE6fv6hNeznxNVz6nRVHQZGrThJoTDnjEcPVGO91xAJBVd8HVrSzyBlKx3tIj-T6QD5RfviF9IaybKIC-earuchatHmnLizDjw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BhUh2W_AAiYAIZCNMXELi1OOcGrXm6N3cMhfPEiNPPrYEsBd06oi4xw0u0Pd3i0rWJheZUqmk3n7EqwdULVk6pBuRCWmG7_dzHdfBOREneKyYtT1EGQXqabCj1Djq65OZ6e2rGQTiGWEP4KeV77sgp1APASY-bgpQp8hOtS6Y9wbWmILevR0TNfzEtrluu9HL6BP3twxh3FiYF8R4UktKv0XvyVh_Woj-yblEp5B_Dm7ijUsDViGElfmxIBEwfKk-I6nIZljz68JYFJy04DlpXo4eB5_7rYXhro2E0-UiQqPNXLbJuQRqscZuzhFzPUm0ChZ1xziL77hLilb7aO9Uw.jpg" width="400"><br>
 
 خبرگزاری دولتی عربستان سعودی (واس) بامداد پنجشنبه ۳۰ مهر به نقل از سازمان هواپیمایی این کشور گزارش داد که فرودگاه بین‌المللی ملک فهد در شهر دمام، چهارشنبه‌شب ۲۹ مهر هدف حمله قرار گرفت. به گفتهٔ این سازمان، این حمله یک کشته و هشت زخمی بر جا گذاشت.
 سازمان هواپیمایی کشوری عربستان سعودی اعلام کرد که فرد کشته‌شده از افراد مقیم این کشور بود و جراحت‌های هشت زخمی این حمله از خفیف تا شدید گزارش شده است. تمامی زخمی‌ها بلافاصله برای دریافت خدمات درمانی به بیمارستان منتقل شدند.
@@ -219,7 +219,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-22 03:12:20
 
-<img src="https://cdn4.telesco.pe/file/JvmAuF9ng6sTfxwWSFHja-wvh8iOrsX12ELrQwA102BcJgtMIc_YOiYz1Jk__4aFOTjPisxOJLtHrvNF859EHPCw6E3uLxt0wl2Usf99z48qw0lwrfuU3z3zrtrqtGk2cgOdNgeFWOCjwsjXZWw_cWMBWJ0BgrxAiPiMUq_pG8zotvhhFlNSJ_3Q3uCpZcAE72cMFe8evrICCqQz3uz4CN4I5_dEcT9AFf0AdhYQH-lw5neMku95fHQ8TzzVD2OnbikERT1WTis4SEHokWDqNeX_zdTwzaG9kq9M3b2H837gtbemqvtuHWdWUiAL1a3AndgzAAsv0fIWWNktB8OFFQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/hXhh98xuzEwp7UYsMtSfbzEztBm3c637fIyosMAF4ZKY1o7q6OPUvJ52Cm1XcvRJ66mHX58H1-jNiSLMPLCVWbx7TNrrOzVurnvLREl2o6f_IxcLt6JWUkC2T1R3R4tveADg6BNySq7VTl6VWKIAVzy0B-bVPF_xFbYVrSQU7f2p1kbJHs8eCNQqBecVFDHRkz-gFN3p7A2GA0cnJJsV_ysVV28mMXNW5WSoqskR7oVcbjoKTL5ajv5SdimpKnK4myBkN2NkrO85vpEwOndZ5zrVATlR12N-WC1LTFuVz5_voRG_xrS3CUrgWZse1IkdzYqLuhOzms-47Xl6e--mYQ.jpg" width="400"><br>
 
 وب
 ‌سایت اکسیوس به نقل از مقام‌های اسراییلی و آمریکایی گزارش داد ده‌ها جنگنده نیروی هوایی اسراییل روز دوشنبه ۲۷ مهر ۱۴۰۵، در عملیاتی که تا نزدیکی مرز ایران ادامه یافت، مسیری مشابه مسیر احتمالی حمله به ایران را طی کردند، اما پیش از ورود به حریم هوایی این کشور بازگشتند.
