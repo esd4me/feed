@@ -3,8 +3,116 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-22 10:20:54 </h5>
+<h5> 🟢 Updated at: 2026-10-22 16:08:22 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-22 15:33:20
+
+<img src="https://cdn4.telesco.pe/file/hD5qt8G81kYmGfaZw4PT2n8RKM6kZ0Rw2uHsEAsC73azqUGIQxt33QvuGUfFLk_XiBWgfokGsQ0bizGXnu-0s56orEvchF3RrH56v7oZdl2CcPQZRYdxWDgVMvwpc0SNODbh7jOMVS_vD-p8TFh_CPOhR7ONuuJ2CYCP8hrZUtcs4fbAat404wDJtemJvtgds04ij1xpeGl0OGOEtUfFuAKGyZp_bzE7JyESSe4IVy96LgVBn5Sa1WqwH-BY1ioDXuIupXzcUsPpLuaKMfAKJnQP_kF8AXfK4MUxzwJbzJuSXfedMbM1ju7w4k7TPV18qsrEFZ4OID3QYu9973rWiQ.jpg" width="400"><br>
+
+قیمت دلار در بازار آزاد ایران بار دیگر افزایش یافت و به ۲۷۴ هزار تومان رسید. هم‌زمان، بهای طلا و سکه نیز صعود کرد؛ افزایشی که برخلاف روند نزولی قیمت جهانی طلا رخ داده و نشان می‌دهد رشد نرخ ارز همچنان فشار قابل‌توجهی بر بازار طلای ایران وارد می‌کند.
+در معاملات روز پنجشنبه ۳۰ مهر ۱۴۰۵، قیمت هر دلار آمریکا در بازار آزاد به ۲۷۴ هزار تومان رسید. دلار پیش‌تر در ۱۲مهر از مرز ۲۷۰ هزار تومان عبور کرده بود، اما پس از آن تا حدود ۲۶۰ هزار تومان کاهش یافت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78806)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-22 15:32:50
+
+<img src="https://cdn4.telesco.pe/file/GQbKslmB-NLr3e6JWizpkenS3aFs66ak_cj1E-Ead5bIFD9ov8FEwIYQ3jq70cS12_QtwESANOYRlmlcxm9-1qmov62A4p_PrteSiRJQdTiZviGUDVcm4Q5E71l-L-c75AR6EOI_0eqCpwJaDjyV5O18Zyio0KR9tjrIIJQloI4r4sWKJIsfKNHQVaMMQaIPcxnncZhMThycT_4nx2L6wEz5K0FAhGMlrzOUXSrAzaNW5_Y7VgP6b7f6N__lHabhZ7paY3F-9wfPHzbsPn4I0eh9UrHg8ACF6RDULRwREjFZLCV3td8RC6lBCAIlW4uYNKfZignwtjxPIYIUDZmVgg.jpg" width="400"><br>
+
+نیروی دریایی سپاه پاسداران مدعی شد چهار کشتی را هنگام انتقال محموله نفتی در خلیج فارس هدف قرار داده است.
+بر اساس اطلاعیه روابط عمومی نیروی دریایی سپاه، هر چهار کشتی همزمان مورد اصابت قرار گرفتند و در آتش می‌سوزند. اطلاعیه افزود این نیرو کشتی‌ها را پس از عبور از «مسیر غیرقانونی» رصد و تعقیب کرده و هنگام انتقال کشتی‌به‌کشتی نفت مورد هدف قرار داد.
+سپاه همچنین مدعی شد شب گذشته سه کشتی دیگر در غرب تنگه هرمز با مین برخورد کردند، دچار حریق شدند و متوقف ماندند.
+اطلاعیه از «معبر غیرقانونی مین‌گذاری‌شده» نام برد و آمریکا را به «تحریک شناورها» برای عبور از مسیر متهم کرد.
+عملیات تجارت دریایی بریتانیا روز سه‌شنبه در هشداری اعلام کرد یک نفتکش در ۳۰ مایل دریایی جنوب شرقی فاو عراق، در شمال خلیج فارس، با «پرتابه‌ای ناشناس» برخورد کرده است.
+سپاه ۲۸ مهر در اطلاعیه‌ای جداگانه از آتش گرفتن دو نفتکش بر اثر انفجار مین در جنوب تنگه هرمز خبر داده و از برخورد نفتکش سومی با مین در همین منطقه گفته بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78805)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-22 15:30:26
+
+<img src="https://cdn1.telesco.pe/file/F4cXmD02lScK4MXcpVRFR18mRK7zfg6jCH4TLl9LeKUZglvWvxVBDhTQkYKww9mLxq2k0DgmvgFzV4OWzTj_-6cIdWRtBolDGgG_Vq5Szsp9OSgb9Wdc4QLwIqHF8H9OBCmv5Edf5G1xHhpd-aiOBtlcmgtro5Swt5a_PdCCG-kYOXaJozcc9Ad3nlYMlU-rcImXHLwqUxTh3I0E7TjVsiXn2kG4H86PoskLVc59WbckoP3YMeChwrv1dgVAZ8heZCdfvokntVfgSYjK_jcnAiR5pgD3OJyLRPvYzYeFv6weAtZVaMLi387_TUPkvPz3QdGQQwyLIpS7HZ8rfbVvsA.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با تشبیه حکومت جمهوری اسلامی به نازی‌ها و نئونازی‌ها، گفت تنها راه متوقف کردن آن، سرنگونی حکومت در ایران است. او با اشاره به نابودی حکومت نازی به دست متفقین در جنگ جهانی دوم، تاکید کرد که به این نتیجه رسیده است که راه‌حل دیگری برای مقابله با جمهوری اسلامی وجود ندارد.
+نتانیاهو در جریان کارزار انتخاباتی خود در گفت‌وگو با شبکه ۷ اسرائیل گفت: «به این نتیجه رسیدم که تنها راه‌حل قابل تصور در اینجا، بدون تردید، سرنگونی این حکومت متعصب است.»
+او در ادامه، اقدام متفقین علیه حکومت آلمان نازی را نمونه‌ای تاریخی برای توضیح موضع خود مطرح کرد و گفت: «همان‌طور که متفقین رفتند و حکومت نازی را نابود کردند.»
+نخست‌وزیر اسرائیل همچنین با اشاره به تلاش آدولف هیتلر برای دستیابی به سلاح هسته‌ای گفت: «هیتلر تلاش کرد به بمب اتمی دست پیدا کند، اما موفق نشد.»
+نتانیاهو در پایان بار دیگر بر ضرورت تغییر حکومت در ایران تاکید کرد و گفت: «تنها راه متوقف کردن این نازی‌ها، یا نئونازی‌های امروز ایران، از بین بردن حکومت و سرنگونی آن است.»
+@
+VahidOOnLine
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز پنجشنبه ۳۰ مهر ماه گزارش فایننشال تایمز دربارهٔ مخالفت دونالد ترامپ، رئیس‌جمهوری آمریکا، با حملهٔ گستردهٔ اسرائیل به ایران را رد کرد و آن را «نادرست و جانبدارانه» خواند.
+نتانیاهو در گفتگو با شبکه ۷ تلویزیون اسرائیل گفت: «این گزارش درست نیست. قصد ندارم وارد جزئیات اصلاح این گزارش جانبدارانه شوم.»
+فایننشال تایمز روز چهارشنبه گزارش داده بود که نتانیاهو خواستار ازسرگیری عملیات نظامی علیه ایران شده بود، اما ترامپ با این اقدام پیش از انتخابات میان‌دوره‌ای آمریکا در ۱۲ آبان مخالفت کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78803)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-22 15:27:56
+
+<img src="https://cdn1.telesco.pe/file/eI_apVWLB-DbwvF7EXFRVphHOtlql1bTcSW5xEgbclMRDkGRtdnYR_-qNojtMuDETKCoLxjv4JLCPIzS9pXv8XMwxZm5jTiGc3SN6JXfNvneJeNK8LMyXnZF3wljTmbvZwPpvbCeHq2az93lJN3l3TvGLn9C939E8idRu2u0FMwi3zjUTC6gOKy2j4RTcThenZMnzV4XVaSGZwECbgR4KIX8leFPjK2lvKkV0Xa4DE8yLU_u4kWW9ryExqPk4Z6n67iAIdSdJ808tN7gBWGr0RnBCAK36uI5lbI2zQBs9oD2dJmFI-erF9kXNK-y2sKaMnzG01hPTqz6wLGZCWWkaw.jpg" width="400"><br>
+
+دونالد ترامپ: آمریکا با ایران مذاکره نمی‌کند، به‌زودی اتفاقی رخ خواهد داد
+دونالد ترامپ، رییس‌جمهوری آمریکا، پنجشنبه ۳۰ مهرماه، در جمع خبرنگاران درباره اینکه در این مقطع با جمهوری اسلامی مذاکره می‌کند، گفت: «نه، فکر می‌کنم ما در حال مذاکره با ایران نیستیم. به هر حال، به یک شکل یا شکل دیگر، اتفاقی خواهد افتاد. این اتفاق نسبتا به‌زودی رخ خواهد داد.»
+ترامپ افزود: «به نظر می‌رسد بیشتر مردم فکر می‌کنند این اتفاق بعد از انتخابات رخ خواهد داد و باید ببینیم چه می‌شود. اما این را می‌گویم؛ کاری که با ایران کرده‌ایم، شگفت‌انگیز است.»
+رییس‌جمهوری آمریکا همچنین گفت: «ما درگیری محدودی با ایران داریم. فکر می‌کنم آنجا با طرف واقعی ماجرا روبه‌رو هستیم. اما از نظر نظامی و مالی، در برابر ایران عملکرد بسیار خوبی داریم.»
+@
+VahidHeadline
+محسن رضایی، دبیر شورای عالی امنیت ملی ایران، در گفتگو با رسانه «دراپ‌سایت» اعلام کرد، دونالد ترامپ، رئیس‌جمهوری آمریکا، پیشنهاد ایران برای پایان دادن به جنگ را معطل گذاشته و مذاکرات متوقف شده است.
+روزنامه دنیای اقتصاد در گزارشی از این گفتگو به نقل از رضایی نوشت:«ترامپ برخلاف نمایشی که به راه انداخته است، هیچ برنامهٔ روشن و عملیاتی برای پایان دادن به جنگ با ایران ندارد و همین مسئله به بن‌بست دیپلماتیک منجر شده است.»
+دبیر شورای عالی امنیت ملی ایران در بخش دیگری از این گفتگو افزود: «هدف ایران دوام آوردن تا سال ۲۰۲۹ نیست، بلکه پایان دادن به جنگ با شرایطی است که احتمال وقوع درگیری دیگری را کاهش دهد.» رضایی همچنین تأکید کرد اهمیت مدیریت تنگهٔ هرمز بسیار فراتر از درآمدی است که این آبراهه ایجاد می‌کند.
+دبیر شورای عالی امنیت ملی ایران گفت تفاهم‌نامهٔ اسلام‌آباد شکست خورد، زیرا تعهدات به ترتیب نادرستی اجرا شدند.
+رضایی در ادامه گفت ایران همچنان توانایی ادامهٔ عملیات موشکی و پهپادی را دارد و هشدار داد در صورت وقوع جنگی دیگر، کابل‌ها، مراکز داده و تأسیسات هوش مصنوعی نیز می‌توانند در تیررس قرار بگیرند. او افزود ایران در صورت ازسرگیری درگیری، برنامهٔ گسترده‌تری برای پاسخ‌گویی خواهد داشت.
+او در ادامه ادعا کرد، اقدام علیه جمهوری اسلامی ایران هزینه دارد و اگر دیپلماسی بتواند این موضوع را برای طرف مقابل روشن کند، تهران دیپلماسی را ترجیح می‌دهد. با این حال، رضایی تأکید کرد ایران ابزارهای لازم برای ادامهٔ پاسخ‌گویی را در اختیار دارد.
+رضایی همچنین تهدید کرد: «اگر جنگ دیگری علیه ایران آغاز شود، با توجه به شناخت تهران از الگوهای استقرار نیروهای آمریکایی در کشورهای منطقه، تعداد تلفات آمریکا ده برابر بیشتر خواهد شد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78801)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-22 15:22:44
+
+<img src="https://cdn4.telesco.pe/file/qM42Mu0mcNoEKxNQazOY5TGhLmT5Dt4bCn-SKt2IIdQYvjr60_qEn0MZnttSh6DpZkOcfDp3ZXczZ3zIVIcQ_S_cLI9dluf_X-j06VIhCKjlml6T67rS3s7yiQX7Dk_DsksPC_FFHPv7zS9lCLcigjKFmw8SPriTEiK-bWynPNIZ1yKxPjqaRxQV_LrfysiT8fLCosUCUbSbPZJ6W09ALEod0ziUMytMPnZ1Mjm9mUOFrghHaSuzGaAfXGFKMPjpQHwQ19rWNmafV1VKBRHzlf4cDCs4Yk3pTi8d8pk7FF823iOJOH4Sa9lXFUIKzGfikJc1rURI0J0cXWRL4iN5dQ.jpg" width="400"><br>
+
+علی علی‌پور، پدر بابک علی‌پور، زندانی سیاسی اعدام‌شده، روز سه‌شنبه ۲۸ مهر ۱۴۰۵ در خانه‌اش در رشت بازداشت و به بازداشتگاه «شهدای گمنام» این شهر منتقل شد. مأموران هم‌زمان شماری از وسایل الکترونیکی او و اعضای خانواده‌اش را ضبط کردند.
+هرانا به نقل از منبعی نزدیک به خانواده خبر داد نیروهای امنیتی ساعت هشت صبح برای بازداشت علی علی‌پور به محل سکونتش مراجعه کردند. تاکنون اطلاعاتی درباره علت بازداشت و اتهام‌های احتمالی او منتشر نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78800)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-22 03:53:12
@@ -51,6 +159,16 @@ VahidOOnLine
 این سازمان افزود: «این حمله همچنین خسارت‌های مادی به بار آورده است که بررسی و برآورد آن‌ها ادامه دارد و تحولات جدید متعاقباً اعلام خواهد شد.»
 @
 VahidOOnLine
+آپدیت:
+سازمان هواپیمایی کشوری عربستان سعودی اعلام کرد شمار کشته‌های حمله به فرودگاه بین‌المللی ملک فهد در دمام به دو نفر افزایش یافت.
+بر اساس اعلام این سازمان، در حمله شامگاه چهارشنبه یک شهروند عربستان و یک شهروند هند کشته شدند و هشت نفر دیگر با جراحت‌های جزئی تا شدید زخمی شدند.
+سازمان هواپیمایی کشوری عربستان سعودی تاکید کرد ارزیابی خسارت‌ها با همکاری نیروهای امنیتی ادامه دارد و فعالیت‌های عملیاتی و ترافیک هوایی فرودگاه به حالت عادی بازگشته است.
+سفارت هند در عربستان سعودی در شبکه ایکس نوشت یکی از دو کشته حمله به فرودگاه دمام شهروند هند بود و دو شهروند هند دیگر زخمی شدند.
+سفارت هند افزود یک شهروند هند نیز در حمله پهپادی به میدان نفتی شیبه زخمی شد. بر اساس اعلام سفارت، شمار کل آسیب‌دیدگان هندی در دو حادثه یک کشته و سه زخمی است.
+ائتلاف به رهبری عربستان سعودی اعلام کرد چهار پهپاد را در منطقه شرقی رهگیری و منهدم کرده است.
+حوثی‌های یمن در روزهای گذشته تاسیسات نفتی و فرودگاه‌های عربستان سعودی را هدف حمله‌های موشکی و پهپادی قرار داده‌اند.
+@
+VahidHeadline
 📡
 @VahidOnline
 
@@ -180,7 +298,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-21 14:47:34
 
-<img src="https://cdn4.telesco.pe/file/TTZ2CIKlnvDCh8TCO3fug0RddZBpePJvFE-Gw8CNPsFau0MizCg_z03g1F1rn0ukdZC9R0NmNlR6gmZMlvPjw5sOjEClvwRmvHlrm4S2o5cOYDN5EABIxqg0YU3muGkCTEVNyyp8QkW9YnCLjy8eClRRSaR2k8q30RvPC_bU2X-CQjMBUj94rOfW-HM31j8nJEzTeVFm2BqpuwY2XSaaCMu3lr_YwY2hgKbrdAvpe8BKMbl3EbfB9gChb1vBpEqK8yqFoIy5pk8mV98XBTkHURsmupOsQRvAgYFByeuEq3c5AO1QDlDIhxLijuGxaMV0KvS8r6HGaKiYwepxXGt_2Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BdTtdaLjlOzI8PWRaWGHw3O6xCHmJYlxE-IuPabJ0DL1s2OGgGDdGBXgWgzv_agXbQDDcj2PEsAsAzLQWcloPNhbfuTY-aH7z3gVq1dQHDVrPRp3jE9XP1aRvi43MtuyoC2ip1SnHpR4y-1rd1qZ0nGQz4DU3v8RY2WI_EKhofsHmD5Omh0WJsENRrEphitvpXoFWQcoOhyunNjstPck6k4PqDMax78ldqSGMdxCqok8odbx9inb3pXGujQpXMcV2Byza6Avi8VuEqUv2L7UUoGGjDeGPneSuWOwIhKapsUwdgv9Gop2tcnw4vj4sYUrydk791xa1OdRLVQTJeIy7w.jpg" width="400"><br>
 
 بیش از یک ماه پس از بسته و باز شدن گذرگاه‌های مرزی ایران و عراق، دولت عراق روز چهارشنبه، ۲۹ مهرماه، دستور بسته شدن گذرگاه مرزی الشیب، معادل چذابه در ایران،‌ را صادر کرد.
 شبکه خبری الجزیره به نقل از یک مقام عراقی نوشته است که این اقدام با دستور مستقیم علی الزیدی، نخست وزیر عراق، انجام شده است.
@@ -202,7 +320,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-21 14:46:49
 
-<img src="https://cdn4.telesco.pe/file/T1gupSRf68lxhOA0gdC5aazNGpERdBPj-Z9MzJiHr9SVizDC-PQ7ooP1cbyZKYBaZCfJRVp1SwFtP0bfAgSdzKCr41l1tICMkLSdtUNRLJj-9w6tdcNFWf-7LDifDjYpwiwo12BkIBgSVNfjJrD8D8XcV06jbw6PuYPwBECkPAxvXGXpv4bytHMhrv463t7aFN2e4fmp7aPO2O9QmVNsmhO70f9-ceWxcpeBHsY8OvTz5o5TozCeEaYdJPb8QAuVVvr7smXkm0x0P0jO_MQtz8KdFGCTZSLkpiNDqEkIYnR0P25HlKB-RVhBTm_duVZsjQfsacd01f7KNvTFDWMdsg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/VEHM67hbEtKRD0G-251wKcOQOAQZPIRwe9Ejcz2If70RWeFJIaP9eFG913EkzHG62pdahQsNOWv596f_I3fxNwiKm7kYoZF88oPaadvTazPmHc_oSGNpXO5xP1VsUoqXBcVnk7-9vI7y8gyunVQR4sGYn5bJmc211H0vJ10NhhY7Xv5HjEnXNMAd9WdACQjl_IgFCI4SqLJ2r1HPy0LqNNvp8GHNlSBgU7DRsYXvQYL_mNNSL2SD91apU6ypL1-8IDAdo1swZbiaW_Wynjmsl51jomU3ipgEVmOdp9HwDGmQls42Mw5uRUY37VlWPLyqWYaAyeeMQOp7piTLrCEkbA.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا چهارشنبه اعلام کرد که یک پرتابه ناشناس به یک نفتکش در ۱۱ مایل دریایی غرب «بخا» در عمان و در نزدیکی تنگه هرمز اصابت کرده است.
 خبرگزاری رویترز به نقل از این سازمان نوشت که آتش‌سوزی ناشی از این حمله مهار شده است.
@@ -225,7 +343,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-21 14:39:26
 
-<img src="https://cdn4.telesco.pe/file/jtBkMVItkyauOYUq4aBB3utdEW2vMYY67FxMGkfLzq2boMYOVObas_Rn39fZ0Fx9SSfkDqaSTj2aczEmQRCRBgOvWmOHirLgoTpWBfnJBacJ5XIECEsZ5Kzrk8GjZZnSy24KsWcT5oWC1xuyLLZoEUWcVUn9g0rJ5By3BuZiwzugksi0f2EW0vW5XxoTcH-p7qL-uPuWKPl5uGBLCKH5lq8wybUboQeaY0a1i0zDu_av5UkMyG0NYvSHlPYoHDuJB_Jvgn5uKdq2usD_bJR9PVM5jiIZ_O03Ky4828k8WJsUlpYh1J-9QT2KKbG9OO4biNL6VSfCBdAalXZwmKBrrw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/MbXXiSXxT1zU0hi5XTHsHtDJFlxWd5SlYrnB3XVJUovGyAAXGlr3TDivW7Qy8xFHa0oCbLF0eMuwW-W0nkdA2keKOpve49Yp8ad0u5HabMapQ9V1nsLzG_XaihvEamwvLLku_JRgOttpZTxBgxKd5FuL81bqQMnLKZwfbIJULx17pBa0hqPHi-hVJFNML13c6NrPh87ZpJCvwLwCkb8mU9bTy3WyZj8wEZzHd7zAkYJkC_JKbX5OnZOgaHZGWvwAwPTaWmR8vmnePmXYLoSSLjPoGRMWSVH9fwvLaYfTyJfIio7LB4aHst-LB4q_mg3_PDnUVXAsIjFHXY3Lsd1t1Q.jpg" width="400"><br>
 
 فاکس نیوز: یک روز پس از تماس نتانیاهو با ترامپ، هواپیماهای اسرائیلی در آسمان سوریه «مسیر حمله به تهران» را تمرین کردند
 فاکس‌نیوز صبح چهارشنبه ۲۹ مهرماه گزارش کرد جنگنده‌های اسرائیلی یک هفته پیش از برگزاری انتخابات پارلمانی این کشور رزمایشی را در «کریدور هوایی به سوی ایران» در آسمان سوریه و عراق برگزار کرده‌اند.
@@ -244,7 +362,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-21 14:38:48
 
-<img src="https://cdn4.telesco.pe/file/Ou34pS7mFNPEFdZ9pWBIjXG4XzLbnLyan3VO35kubgJmq2wv0sYSVDoYljK8zQnw_-EWVRYJQzKNexTGNQ3Yix88_7bI2N-d8C4E47vQvlyM4aSnL4c-zoj5OmDe1-eaIEfflngKyeYViJLZjn6_SSmhX2PAP6ushalaA7ZBuOpvF604CH0LXWftjYRb7qW6FeRqBZz6VLcA94EfMfAvnETSI2XmQ3MdWwB91iNucz78UsESuTr6UUD9X1Ct7P6y0iWe0ekE4I6eBWAVsV4-GAdJzEjnDjXQwwWvr9J6r20Yw91xPHx97vYBbkWa01e_Ni_laBLbtFy6ECDBlSjFwQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Df7T2dtRpOvFPJ_dcFaptorUwMk4HDGbj0jgi8oZqO-D6ed_RLwgmqDFLyewC0vZ01CHDYTUcoVI0Lde7ECp8i003VutaaIjcfMwEQNWAAftpddAFSPVlMY5LsIvyej7XOiCFR4-ZkBFDJ31hZdHGSYj2HBaviMuy0rCWq9gMue4GXbr7WuWtAzWFfaw0i08fu4GCzYJgatX0_b1hDN1cZVgn6eF9ZSBBvLoiNlUt43GTDWhG6Qtj4Z8qSHxF0XC34SInIghIB-zLdnsC4EdjBEGbhBS-O3H1tCBH_NdMtcGLUPmsGtMdop_cytDnHfLBUQTTE6gUklShVGnS_RsGQ.jpg" width="400"><br>
 
 شبکه فاکس‌نیوز به نقل از دو مقام آمریکایی گزارش داد که ناوگروه ناو هواپیمابر تئودور روزولت و یگان سیزدهم اعزامی تفنگداران دریایی آمریکا راهی خاورمیانه شده‌اند.
 این شبکه سه‌شنبه ۲۸ مهر بدون اشاره به نام این مقام‌ها، افزود که با ورود این نیروها، شمار ناوهای هواپیمابر آمریکا در منطقه بار دیگر به سه فروند افزایش خواهد یافت.
@@ -276,114 +394,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78786)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 14:35:02
-
-<img src="https://cdn1.telesco.pe/file/HEKybnx_IlYFc9Zl49MF_EaPKGzmLqoJ-mZUjg3bHa8uQ6IuVRSVcHfeJaBm2m0tCnnkSPnvS2JPCbNtNWp4Kr7hPtss09zTLZwxiDjxhIY9k7FBZp-lkSF4k8y5bhnmbwx5VlfFU7nQQ-C4zXmLF_KdndEk1NK5Qyuk8Qjb7QY4XxJa8rbgD1kjY8JVDuuUQmW-OZr2Hr-qvzLJD9T1OfbAWqZYSi-aY8JaKh6E3-d8j3V5M1e-yJMpyyr_HvUt6XOoSvIq5q4E-Kdsgq3DKz2KoPSj7bUiyoGc4J_tAbaPKRY-_n85OA774rUASJOXONsZTi0v97LxHS_S4uG9VA.jpg" width="400"><br>
-
-حکم اعدام منوچهر فلاح، زندانی محبوس در زندان لاکان رشت، بار دیگر در دیوان عالی کشور تایید و پرونده او برای اجرای حکم به اجرای احکام کیفری رشت فرستاده شده است.
-بنا بر گزارش «امتداد» او به‌دلیل تایید و نقض چندباره حکم، زیر فشار روانی شدیدی قرار دارد.
-منوچهر فلاح ابتدا در شعبه دوم دادگاه انقلاب رشت با اتهام «تخریب به قصد مقابله با حکومت اسلامی» به اعدام محکوم شد. مبنای این حکم، واردکردن خسارتی ۱۵ میلیون تومانی به درِ ساختمان دادگستری رشت بوده است.
-حکم نخست در دیوان عالی کشور تایید شد، اما پس از درخواست اعاده دادرسی، میلاد پناهی‌پور، وکیل فلاح، در اواخر سال ۱۴۰۴ از نقض آن خبر داد.
-پرونده سپس برای رسیدگی مجدد به شعبه هم‌عرض، شعبه اول دادگاه انقلاب رشت، ارجاع شد. قاضی درویش‌گفتار در این شعبه بار دیگر حکم اعدام صادر کرد؛ حکمی که اکنون دیوان عالی کشور نیز آن را تایید کرده است.
-ارسال پرونده به اجرای احکام، نگرانی درباره خطر اجرای حکم را افزایش داده است. در گزارش منتشر شده، زمانی برای اجرای حکم اعلام نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78785)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 01:08:38
-
-<img src="https://cdn1.telesco.pe/file/j3iOd2lbkcmVt9FwE6v_F0BY96in2HsUWkTjfNmDqPwbh0-tVQu9ukObhs4iRk7-IvsniFZWpFkqdG4xom3eV4lInBIkxq7pZfTdYhVgvU90z9xo0JD-0LmyCO6hbBK3NCoErWoS-ZFgGm1hyhTraxnqJbo60-UubMFi8SaaZ2QMG4W-Ji9zWry3FBXANQC4DzY2Ck7OIh3hUE79ggJj9FPeOm1vyZAXObqtcmEhFTTCpwCaanqA9iHFhuXLbvFKJm7SiHXUwc7QWDoE6ve3aTmFBfi2RvyM05fEN3sGlOttyJRl90mIMAXWSKhBFULlZz-NFTVTgmaM37Qm5jE2Aw.jpg" width="400"><br>
-
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، در گفت‌وگو با شبکه تلویزیونی «الاخباریه عراق» با انتقاد از عملکرد ایالات متحده در روندهای دیپلماتیک اعلام کرد تهران سه بار با طرف آمریکایی وارد مذاکره شده، اما هر سه دور این گفت‌وگوها به تقابل نظامی و جنگ منتهی شد. عراقچی با تأکید بر اینکه این حملات دقیقاً در میانه مذاکرات رخ داده است، اعلام کرد که برای تهران به‌طور قطعی به اثبات رسیده است که هیچ‌گونه اعتمادی به واشنگتن در میز مذاکره نمی‌توان داشت. او همچنین گفت هرچند در دور سوم گفت‌وگوها به درک متقابل با ترامپ دست یافته بودند، اما رئیس جمهوری آمریکا به عهد خود وفادار نماند و تعهداتش تنها دو هفته دوام آورد، امری که سبب شده است اعتماد جمهوری اسلامی ایران به طرف آمریکایی به صفر برسد.
-@
-VahidOOnLine
-مسعود پزشکیان در دیدار با عاصم منیر، فرمانده ارتش پاکستان، گفت: «تمام مشکلات منطقه، از تشدید تنش‌ها تا اختلال در تنگه هرمز، ناشی از خوی جنگ‌طلبی آمریکا است. آمریکایی‌ها باید پاسخ دهند که اساسا چرا جنگ را آغاز کردند و خود و دنیا را درگیر مشکل و گرفتاری کردند.»
-پزشکیان افزود: «ما می‌دانیم که جنگ نه به نفع ما، نه به نفع منطقه و جهان و نه حتی به نفع آمریکا است. برای هرگونه مذاکره، ابتدا باید فشارها، تهدیدها و تحریم‌ها را بردارند.»
-او گفت: «ملت ما امروز به آمریکا اعتماد ندارد و معتقد است اگر مذاکره کنیم، دوباره به ما حمله خواهند کرد. مدام در رسانه‌ها تبلیغ می‌کنند که می‌خواهند به کشور ما حمله کنند تا مردم ما را بترسانند، در حالی که ملت ما از شهادت هراسی ندارد.»
-پزشکیان خطاب به فرمانده ارتش پاکستان افزود: «شما به عنوان برادران مسلمان ما باید به آنها بفهمانید که با مسلمانان این‌گونه برخورد نمی‌کنند. ما نمی‌خواهیم به کسی زور بگوییم، اما زیر بار زور نمی‌رویم.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78783)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 00:05:15
-
-
-
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز سه‌شنبه ۲۸ مهر در حاشیه نشستی در کاخ سفید، به سوال خبرنگاران درباره جنگ با ایران پاسخ داد. ترامپ گفت: «باید تصمیم نهایی را درباره ایران بگیرم که از چه طریقی می‌خواهیم [در جنگ] پیروز شویم. می‌خواهیم از روش خوب به پیروزی برسیم، یا از روش بد؟»
-ترامپ که پیش‌تر احتمال استفاده از «مادر بمب‌ها»، بزرگ‌ترین بمب غیرهسته‌ای زرادخانه آمریکا علیه تاسیسات هسته‌ای در ایران را مطرح کرده بود، توضیح نداد که منظورش از «روش خوب» و «روش بد» دقیقا چیست.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78782)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-20 20:27:04
-
-<img src="https://cdn4.telesco.pe/file/XIlIlrNaXmt3IWtoA6otwrh9rWuRiMUYHfsYjBHRLfnmI4zAFfFQVVZHCW5CkHRx5iJvkYIu2s-ToCtKqXSPO5Auk-rF7lYPMS58ZKhe4mdNgWeLsRQUtwicoUELuuOni_Dpt5my4rwmK6-9CBGWJ8xWcRvv5-a8xfAWJ_Lct5kG-iAvPLlfUYRHfcsIxgdZ4C4tSi6nJjLX6PHXbB3gWRV079SDNS-G1c-6EJotqmeaFAvBkNdHqvWm3s0tedgtegjCp1LOHLay6pvtnoQJFeZWNM-JKTuDPcuEats3sqIjEmPc9J_bWXmyeOulzvFxraJiCqhKhiqI4b4-sg6KcA.jpg" width="400"><br>
-
-عاصم منیر، فرمانده ارتش پاکستان، در سفر به تهران با مسعود پزشکیان، محمدباقر قالیباف و محسن رضایی دیدار کرد. رضایی در دیدار با فرمانده ارتش پاکستان تاکید کرد حتی ذره‌ای از مواد هسته‌ای غنی‌شده ایران از کشور خارج نخواهد شد و قالیباف نیز گفت آمریکا تنها با اجرای شروط هفت‌گانه جمهوری اسلامی می‌تواند اعتماد تهران را جلب کند.
-@
-VahidHeadline
-عاصم منیر، فرمانده ارتش پاکستان، روز سه‌شنبه ۲۸ مهر در جریان سفر به تهران با مسعود پزشکیان رئیس‌جمهور، محمدباقر قالیباف رئیس مجلس شورای اسلامی و محسن رضایی دبیر شورای‌عالی امنیت ملی دیدار و گفتگو کرد.
-در این دیدارها، محمدباقر قالیباف با اشاره به دولت ترامپ را به نقض تفاهم‌نامه اسلام‌آباد متهم کرده و تأکید کرد که سابقه اقدامات منفی آمریکا تهران را در اوج بی‌اعتمادی قرار داده است و تهدیدات نظامی نمی‌تواند تصمیمات راهبردی ایران را تحت‌تأثیر قرار دهد. وی افزود که ایران حرف جدیدی ندارد و آمریکا جز با اجرای شروط هفتگانه، نمی‌تواند اعتماد ایران را کسب کند و این واشنگتن است که باید اقدامات لازم برای خروج از باتلاق جنگ با ایران را انجام دهد.
-در همین حال، عاصم منیر در خصوص مناسبات دوجانبه اعلام کرد که مسائل مرزی میان ایران و پاکستان موقت و فنی بوده و مرزهای دو کشور از امروز بازگشایی شده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78781)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-20 18:54:31
-
-<img src="https://cdn1.telesco.pe/file/WYVjejchGW_BrDvNZzVMm3Hk2WtWBuTcOo2_JdZRpv_uo1FYLKzuE7jPIFy3xVtgJ6xl05uJgXKczhMs5n2fv70G_zV5VzqC-imnQBE_OX11NejTa3brLAHzOi7RYQ2ISABy_zGxWerQhBB7bVD0Nsb0kqgtbzSsHEwmVB72nC_elV3O8IiTluNNu1MFy6AB6DI1tdJlBTqNSCiqV6HgblyRUGycLs91CecIQ5j5Ws8nAbGNYiMAOZ_jnTAZ7X5d1RJ9uLQycCtV0y5NJPlTSVpZlEsRAhtHNvJGcmxH1ZXD-URZPFi_LAObSWsgjHd8waDPuw9RxgwIDnDX1RkC8w.jpg" width="400"><br>
-
-بنیامین نتانیاهو به کانال ۱۴ اسرائیل گفت سرنگونی جمهوری اسلامی اکنون در دستور کار موساد و ارتش اسرائیل قرار دارد و افزود پس از وارد کردن «ضربه» به جمهوری اسلامی، دستور سرنگونی حکومت ایران را صادر کرده است.
-او همچنین گفت ممکن است اسرائیل تا پیش از انتخابات نیاز به حمله داشته باشد و ایران و نیروهای نیابتی‌اش را به تلاش برای انجام حملاتی با هدف تاثیرگذاری بر انتخابات اسرائیل متهم کرد.
-نتانیاهو افزود دونالد ترامپ نیز با سرنگونی جمهوری اسلامی موافق است.
-@
-VahidOOnLine
-بنیامین نتانیاهو، نخست‌وزیر اسراییل، اعلام کرد هدف اصلی دولت او سرنگونی جمهوری اسلامی است و به گفته او، با سقوط حکومت ایران، حزب‌الله لبنان نیز از بین خواهد رفت.
-نتانیاهو روز سه‌شنبه ۲۸ مهر، در مراسم آغاز سال تحصیلی در شهر کریات‌شمونه، در نزدیکی مرز لبنان، گفت ارتش اسراییل در عقب‌راندن حزب‌الله پیشرفت‌های مهمی داشته است، اما او «متعهد است که کار را تمام کند».
-او گفت: «تمام کردن کار به معنای سرنگونی حکومت تروریستی در ایران است. این حکومت، یک اختاپوس سمی است، اگر سر آن را قطع کنیم، بقیه اعضا هم سقوط خواهد کرد.»
-@
-VahidHeadline
-نتانیاهو گفت این موضوع را بیش از یک بار، از جمله دو روز پیش، با دونالد ترامپ مطرح کرده است.
-او افزود تا زمانی که جمهوری اسلامی پابرجا باشد، برای تولید بمب هسته‌ای و بازسازی محور خود تلاش خواهد کرد و تنها راه جلوگیری از آن، سرنگونی حکومت است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78779)
 
 ---
 
