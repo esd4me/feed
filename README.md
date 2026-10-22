@@ -3,8 +3,47 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-22 16:08:22 </h5>
+<h5> 🟢 Updated at: 2026-10-22 21:14:50 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-22 19:37:10
+
+<img src="https://cdn4.telesco.pe/file/uhfT_YdvbK-sJPYqd42b-Ta5dkOenxJZ3Qu8t1Bg0YPQ1N6D9pPmGbCuNAeq3Kl2DYMD6u1Pn5jNlk72dAwMDmlqu2sydyjws7mDUsCKLNyp7VkCWlJlEWKbk8QI3KYapwdvqyjytcTl99WHRGkAWDfZkB8DxAh0CrbDfQbG8q2ay1RqIyA3t4uSt1SGhGM84GbVoNvsjacb68ZfQX3dtN0ou_gDq5fiug7c3JZbL6wcVNHVW22OBICdNYkxnm8OX7UNAU4vWByzRluK-MIrhFdr5jaqanM7rGtHXwr7b5zWgkYwY_SqFnEFmpJXDuKTmhmj_vnWOOlsPjGelSduHQ.jpg" width="400"><br>
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، با انتشار تصاویر ماهواره‌ای قدیمی و جدید از پایانه نفتی جزیرۀ خارگ، در حساب خود در شبکۀ ایکس نوشت که برخلاف گذشته، اکنون هیچ نفتکش حامل نفت خامی در این پایانه دیده نمی‌شود.
+او روز پنج‌شنبه ۳۰ مهر نوشت: «جزیرۀ خارگ اکنون چیزی جز نمادی از تنها چیزی نیست که حکومت ایران هنوز می‌تواند تولید کند: شکست.»
+بسنت افزود که عملیات «طرد اقتصادی» آمریکا در حال قطع شریان درآمدهای نفتی جمهوری اسلامی است و منابع مالی مورد استفاده برای حمایت از تروریسم، تأمین تجهیزات برنامۀ هسته‌ای و زندگی تجملی مقام‌های ارشد سپاه پاسداران را محدود می‌کند.
+این اظهارات در ادامۀ سخنان روز سه‌شنبۀ وزیر خزانه‌داری آمریکاست که گفته بود از ماه اوت تاکنون هیچ بارگیری نفتی در تأسیسات جزیرۀ خارگ مشاهده نشده و ایران دیگر محمولۀ نفتی روی آب ندارد.
+بسنت پیش‌تر نیز اعلام کرده بود که ایران در ماه سپتامبر حتی یک بشکه نفت خام روی نفتکش‌ها بارگیری نکرده است؛ موضوعی که داده‌های شرکت‌های ردیابی نفتکش نیز آن را تأیید کرده بودند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78808)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-22 19:35:49
+
+<img src="https://cdn1.telesco.pe/file/TI9dTOndjA8E4qOo-80Gd7A1RfCc13XlM7GboLTX-9bsVIx2g_6M_1B2OwZIwIu7HZtPOuACiNoI6aCFGotuhmVkz9aN_c_oBOyQYnDcKc5my_eaQuLYeYWlw_a46ilIA7mekfQJwBnFShLUkh3PoaOcoUq4kvGP86PXLttGQkZyh3ypBfpm1XpfeT1-znB0JxZkf5cx07-bhk5VqeGXehvelsr_HnQ1QPLRFdhFPjUT9StMZbTDT63wIxCHtWsjBC5Jmj7-QsUKyapQ_oX0ZMzCqSpeAlrmC6Syd1Ph_hDj-tHT3qf2G_O9Y4K7r-NobewdfIuxhjGbPSB_-uHv5w.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنجشنبه ۳۰ مهرماه، در پیامی در شبکه اجتماعی تروث سوشال نوشت که ایران هر کاری از دستش برمی‌آید انجام می‌دهد تا پیش از برگزاری انتخابات میان‌دوره‌ای ایالات متحده، قیمت نفت را افزایش دهد. او تاکید کرد که ایران حتی خبرهای جعلی درباره حملات، مین‌ها و موارد دیگر منتشر می‌کند، در حالی که اکنون حجم نفت عبوری از تنگه هرمز حتی از میزان آن پیش از آغاز درگیری‌ها نیز بیشتر شده است.
+ترامپ در ادامه پیام خود با اشاره به سرکوب اعتراضات در ایران نوشت: «آن‌ها همچنان معترضان و هر فرد دیگری را که بر سر راهشان قرار بگیرد، می‌کشند. این واقعاً یک رژیم شرور است و من فقط امیدوارم مردم آمریکا و جهان درک کنند که آن‌ها تا چه اندازه شرور هستند.»
+رئیس‌جمهوری آمریکا همچنین اعلام کرد که در کمتر از هفت ماه، ۷۵ هزار معترض کشته شده‌اند و افزود: «تکان‌دهنده است که به نظر می‌رسد جهان و حزب دموکرات اهمیتی به این موضوع نمی‌دهند.» ترامپ در این بخش از پیام خود، نام حزب دموکرات را به شکل تمسخرآمیز «Dumocrat» نوشته است.
+ترامپ در پایان پیام خود با حروف بزرگ تاکید کرد: «ایران هرگز نباید سلاح هسته‌ای داشته باشد و آن‌ها هرگز سلاح هسته‌ای نخواهند داشت.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78807)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-22 15:33:20
@@ -202,7 +241,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-21 20:01:18
 
-<img src="https://cdn4.telesco.pe/file/DWB5FIPbukRZVD5uRHBrtkE81d4BGbF0xb17d6u-vIa0-insXyl4fZ1jicNjfJYN4xI-ozvFB_ueafWjYP4qW1eXcZsy15QXNSwtAsjcopaIW3FUw9GkjVl-vy2G2iH9J-4sSthgz4SudmCRzZpbQk7PHeMWpumKNBIjDjZ7KjWIvLmvb9cpZzKh_B0C9LhwzrmHM3D4IvJ_PgrLW0VyE255A_BdBwXFO0EEPPRSoc5YAXC8hKo0WX9JGYJfPL6gMe-Mkki6ok8EMxt8lmBhkXe0fvgN2ZmP83CTZIUVpsPiP5ibKAmTTyRqMHvu-QOGhgfqTyv56XhytgLWibogkQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/aZgTbd8xO4YaMHsnRR3-aybeBd2-kGTEFW3esXT6f2GJMXGp8yVAmhL-e-nvH1eS0FTJrdhDjJr95bAbxgqX-RMEB8FV65d3ZTvfbUx8fvz0UyTiirUYOrFOzLjncMOE_q0vEBNvowtHESpYGqifM4z3lvE6FWAvlZ-4uYXip12wssTWx7s_Ijlbok0q3y3CWdZbnJr7TcM9nnoq4rjIntt0gITPLW3ZXkWIRaPoc6qbEmH1lD-VtX8HpSA_LFrjaMbj44mT6uqviqV_iWHkkn-EnoAWYP7xDXmYlld8wKcXcDE7aCsrYJboRGDtgFvNDcsHo0APQPt60DBOOOwy1g.jpg" width="400"><br>
 
 خبرگزاری تسنیم، وابسته به سپاه پاسداران، روز چهارشنبه ۲۹ مهر گزارش داد که محمدباقر قالیباف، رئیس مجلس شورای اسلامی با مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی، دیدار و گفتگو کرده است.
 بر اساس این گزارش، در این دیدار، آخرین تحولات در زمینه جنگ نظامی و اقتصادی با آمریکا و اسرائیل بررسی شد. تسنیم نوشت که طرفین بر ضرورت تقویت مؤلفه‌های قدرت کشور، نقش مؤثر نمایندگان در حفظ «انسجام اجتماعی و وحدت ملی»، استمرار «حضور آگاهانه ملت در تجمعات میدانی» و اهتمام دولت و مجلس به گره‌گشایی از مشکلات معیشتی مردم و پیشبرد امور شرکای راهبردی تأکید کردند.
@@ -220,7 +259,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-21 20:00:51
 
-<img src="https://cdn4.telesco.pe/file/a671pZu1noFmP4qcAvv5KqkwqdPO5bmCmdwhlnnP4WUVCWTI2ma1IN_ZcSv_RbdI0MCIq-ORQas2NnCeGXCqfVRW9AKgWXl7f92u_g_OGSpG3COBJ_1BLML37mfEf4Q2RvKffdUs_fgpb2ei7LFPt2JaVA_6jmGChvRNiT5QLF1M40_LmR-yTfEJebPWUsBAES37wMakloIGcOzhPu3Mq-J61ba_I9XIC46DMHvOny2bZ9d9QISLtuIntMAKP3XCmunHQ5XqKgaRW94YAX5qU-nNJHzWZYtPzFUWdz-VacpGljAXHwzg9UVtANWfnKc4QUU5_92amxBjUHxE7EW9xw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/hensQegOiB1-IB-WyEbQk_YzeGLjuhCXD_lF26SaJ4tbW60NjCdSwAx5iOVtT9A4K97hFYH0EeyFnuAEMYCWbtk0mutwAv1ssavtk9qCzQNXvLayI3YKMYu62u5d4kTyQwOSbUr6DMFG1OeItM9zwx6gS8bXc82rThqJ72fJdPElyXP4WxhaEHb2et7_N3Id-Ig8xXE73uQp8rhEIt72MZf9T-e2GxTor8t7Lt3ea9iLMGjq29-buHJji-OXHVRyaLk6_Sywpk6tu_EKAKzv2S--jE5XHlq9pjsAONkCKFcLV05o6o2byxSfLF6lxwGHNWkaVmRjPXbzql5eiZYxBA.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست‌وزیر اسراییل، با متهم کردن جمهوری اسلامی به تلاش دوباره برای توسعه سلاح هسته‌ای، گفت تنها راه از بین بردن این تهدید «برای همیشه»، سرنگونی حکومت ایران است.
 نتانیاهو روز چهارشنبه ۲۹ مهر در مراسم فارغ‌التحصیلی دانشجویان افسری ارتش اسراییل در مدرسه نظامی بهاد ۱ در جنوب این کشور گفت حکومت ایران هنوز از آنچه بر سرش آمده درس نگرفته است.
@@ -336,64 +375,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78789)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 14:39:26
-
-<img src="https://cdn4.telesco.pe/file/MbXXiSXxT1zU0hi5XTHsHtDJFlxWd5SlYrnB3XVJUovGyAAXGlr3TDivW7Qy8xFHa0oCbLF0eMuwW-W0nkdA2keKOpve49Yp8ad0u5HabMapQ9V1nsLzG_XaihvEamwvLLku_JRgOttpZTxBgxKd5FuL81bqQMnLKZwfbIJULx17pBa0hqPHi-hVJFNML13c6NrPh87ZpJCvwLwCkb8mU9bTy3WyZj8wEZzHd7zAkYJkC_JKbX5OnZOgaHZGWvwAwPTaWmR8vmnePmXYLoSSLjPoGRMWSVH9fwvLaYfTyJfIio7LB4aHst-LB4q_mg3_PDnUVXAsIjFHXY3Lsd1t1Q.jpg" width="400"><br>
-
-فاکس نیوز: یک روز پس از تماس نتانیاهو با ترامپ، هواپیماهای اسرائیلی در آسمان سوریه «مسیر حمله به تهران» را تمرین کردند
-فاکس‌نیوز صبح چهارشنبه ۲۹ مهرماه گزارش کرد جنگنده‌های اسرائیلی یک هفته پیش از برگزاری انتخابات پارلمانی این کشور رزمایشی را در «کریدور هوایی به سوی ایران» در آسمان سوریه و عراق برگزار کرده‌اند.
-براساس این گزارش، این رزمایش یک روز پس از تماس تلفنی بنیامین نتانیاهو با دونالد ترامپ انجام شد. نتانیاهو در این تماس و در مقابل دوربین‌ها به ترامپ گفت: «باید کاری را که شروع کرده‌ایم تمام کنیم.»
-رسانه‌های حکومتی ایران در دو هفته گذشته بارها از پرواز جنگنده‌ها و هواپیماهای نظامی «دشمن» بر فراز آسمان عراق خبر داده بودند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78788)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 14:38:48
-
-<img src="https://cdn4.telesco.pe/file/Df7T2dtRpOvFPJ_dcFaptorUwMk4HDGbj0jgi8oZqO-D6ed_RLwgmqDFLyewC0vZ01CHDYTUcoVI0Lde7ECp8i003VutaaIjcfMwEQNWAAftpddAFSPVlMY5LsIvyej7XOiCFR4-ZkBFDJ31hZdHGSYj2HBaviMuy0rCWq9gMue4GXbr7WuWtAzWFfaw0i08fu4GCzYJgatX0_b1hDN1cZVgn6eF9ZSBBvLoiNlUt43GTDWhG6Qtj4Z8qSHxF0XC34SInIghIB-zLdnsC4EdjBEGbhBS-O3H1tCBH_NdMtcGLUPmsGtMdop_cytDnHfLBUQTTE6gUklShVGnS_RsGQ.jpg" width="400"><br>
-
-شبکه فاکس‌نیوز به نقل از دو مقام آمریکایی گزارش داد که ناوگروه ناو هواپیمابر تئودور روزولت و یگان سیزدهم اعزامی تفنگداران دریایی آمریکا راهی خاورمیانه شده‌اند.
-این شبکه سه‌شنبه ۲۸ مهر بدون اشاره به نام این مقام‌ها، افزود که با ورود این نیروها، شمار ناوهای هواپیمابر آمریکا در منطقه بار دیگر به سه فروند افزایش خواهد یافت.
-بر اساس این گزارش، حدود ۱۰ هزار ملوان و تفنگدار دریایی نیز به نیروهای نظامی آمریکا در خاورمیانه اضافه خواهند شد.
-فاکس‌نیوز نخستین بار اول اکتبر از تصمیم آمریکا برای اعزام سومین ناو هواپیمابر و یک یگان دیگر تفنگداران دریایی به خاورمیانه خبر داده بود. گزارش تازه این شبکه در روز سه‌شنبه، در واقع جزئیات تکمیلی درباره اعزام ناوگروه روزولت و یگان سیزدهم تفنگداران دریایی ارائه می‌کند.
-بر اساس گزارش‌ها، انتظار می‌رود این نیروها تا پایان نوامبر به منطقه برسند.
-این تحرکات نظامی در حالی صورت می‌گیرد که تنش‌ها میان ایالات متحده و جمهوری اسلامی ادامه دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78787)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 14:36:59
-
-
-
-ویدئویی از آلومینیوم‌سازی اراک در شبکه‌های اجتماعی منتشر شده است که ⁠آتش‌سوزی و انفجار در این کارخانه را نشان می‌دهد.
-این انفجار و ⁠آتش‌سوزی در خط ۶ شرکت آلومینیوم ایران (ایرالکو) رخ داده است و به دلیل انفجار دیگ درر این خط تولید بوده است.
-در پی انتشار این تصاویر فرماندار اراک، «خبر انفجار و هرگونه موضوع امنیتی یا خرابکاری» را به شدت تکذیب کرد و آن را «بروز یک حادثه فنی در سیستم برق» خواند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78786)
 
 ---
 
