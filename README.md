@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-23 03:26:00 </h5>
+<h5> 🟢 Updated at: 2026-10-23 06:41:19 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-23 06:01:31
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در ادامه حضور در کارزارهای انتخاباتی جمهوری‌خواهان پیش از انتخابات میان‌دوره‌ای، بار دیگر گفت درگیری با ایران به‌زودی پایان خواهد یافت و پس از آن قیمت نفت و بنزین کاهش می‌یابد.
+ترامپ در سخنرانی انتخاباتی جمهوری‌خواهان در کارولینای جنوبی گفت: «کار ایران هم خیلی زود تمام خواهد شد؛ به هر طریقی که باشد. برای من تقریبا اهمیتی ندارد که این اتفاق از چه راهی بیفتد، اما به هر حال، این موضوع خیلی زود به پایان خواهد رسید. بعد از آن، قیمت بنزین و نفت شما به‌شدت کاهش خواهد یافت.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78810)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-22 19:37:10
@@ -156,7 +173,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-22 03:53:12
 
-<img src="https://cdn1.telesco.pe/file/olkMO19gBMOVzLfsnnwwG46Kb4SOWM5_ddKkuzBqQ3JTEck8Tu8JcqlnWgFjbf7eaoB-b9uWUjm27Ic8S3Ljmc4tQMdPnvajqopIAuTWvi8edRTxv0a9675GI3JmlzVrRDlwLGH4Z00PHrZ99GPWHY4WbqmqpLL8_3ZvVzZ91dJ8dPzRF8SvUL-YbnHKvWA83uSipOQKaqjFNxgBmRE2WZaNMhjfwz7clPIDgaawMdKO5xyUdY_BUNEex2ae8g33gFQNB_axuEcH8nymKwIf134hNtXGlTw4IEAWwuhjON8S0C-_UIOAX_lUxXNauY6jHeDcbcwcq1KKnMSq4HnN-A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Y3RnGjyI6l9tooVh18bc2gO3bthDj0znSum9RIH-Tv9LRKUvLnI7eTYgM1UiDAGh06tCbsuM51GqXDlhpEyUukeumaQWO-7GKCQgpQnAw-kdSkVsiFRY8E1Df0NU6_O4FZE3OoQyMaA6wcQKQKTzURG4UE327tR89oCDbNaJbM7Csici0XHGm4LJAU7vssLn6vLgRxVn0dSJbyqreJ51UYd8v0IxsK_zxpHQEcHF61r9xqHK1SZ1zIQKuiTIohM0OJa9wGNmJmEr0I4LrJQ5qDzhO-2jtGM69Dz5evuPAjJ6SOmvSI3Z4pibhpnFtQPHvRMXm2V-vA6WJSox7dXuXw.jpg" width="400"><br>
 
 نیویورک‌تایمز گزارش داد ارتش‌های آمریکا و اسرائیل طرح‌هایی برای حملات تازه به ایران پس از انتخابات میان‌دوره‌ای آمریکا آماده کرده‌اند. با این حال، تصمیم نهایی دونالد ترامپ هنوز مشخص نیست و درباره اثربخشی این حملات تردید وجود دارد.
 این روزنامه در گزارش ۲۹ مهر خود، به نقل از مقام‌های آمریکایی و افراد مطلع از رایزنی‌ها، نوشت برنامه‌ریزی برای عملیاتی کوتاه اما شدید در جریان است و دو ارتش با افزایش رزمایش‌ها و پرواز بر فراز عراق، مانورهای حمله را تمرین می‌کنند.
@@ -352,29 +369,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78790)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 14:46:49
-
-<img src="https://cdn4.telesco.pe/file/VEHM67hbEtKRD0G-251wKcOQOAQZPIRwe9Ejcz2If70RWeFJIaP9eFG913EkzHG62pdahQsNOWv596f_I3fxNwiKm7kYoZF88oPaadvTazPmHc_oSGNpXO5xP1VsUoqXBcVnk7-9vI7y8gyunVQR4sGYn5bJmc211H0vJ10NhhY7Xv5HjEnXNMAd9WdACQjl_IgFCI4SqLJ2r1HPy0LqNNvp8GHNlSBgU7DRsYXvQYL_mNNSL2SD91apU6ypL1-8IDAdo1swZbiaW_Wynjmsl51jomU3ipgEVmOdp9HwDGmQls42Mw5uRUY37VlWPLyqWYaAyeeMQOp7piTLrCEkbA.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا چهارشنبه اعلام کرد که یک پرتابه ناشناس به یک نفتکش در ۱۱ مایل دریایی غرب «بخا» در عمان و در نزدیکی تنگه هرمز اصابت کرده است.
-خبرگزاری رویترز به نقل از این سازمان نوشت که آتش‌سوزی ناشی از این حمله مهار شده است.
-این نفتکش پس از حادثه در محل لنگر انداخته و گزارش‌ها حاکی است که تمامی خدمه در سلامت کامل به سر می‌برند.
-سازمان عملیات تجارت دریایی بریتانیا در گزارش دیگری که چهارشنبه منتشر کرده از وقوع حادثه «نظامی» در فاصله ۱۲۱ مایل دریایی شرق منطقه دقم عمان در روز سه‌شنبه خبر داد، اما جزئیاتی درباره این حادثه ارائه نکرد.
-طبق آمارهای دریانوردی، جمهوری اسلامی طی ماه جاری دست‌کم به ۲۴ کشتی حمله کرده است.
-دبیرکل سازمان بین‌المللی دریانوردی چهارشنبه گفت مین‌ها هنوز در تنگه هرمز هستند و تنها مسیر مصوب این سازمان امن نیست.
-شرکت کپلر در دو هفته گذشته دست‌کم ۱۸ حمله به کشتی ثبت کرده است.
-تحلیلگران ال‌اس‌ای‌جی هم گفتند حمله‌ها از تنگه هرمز فراتر رفته و به دریای عمان رسیده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78789)
 
 ---
 
