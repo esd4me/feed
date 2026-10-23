@@ -3,8 +3,116 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-23 12:26:49 </h5>
+<h5> 🟢 Updated at: 2026-10-23 17:33:30 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-23 16:40:42
+
+<img src="https://cdn4.telesco.pe/file/r_s8vsyUQb_Xxhc3gUfxCTT7bqvpN7MUcrpkWUn2JmP3yERSkbGPA1SNw309buyyEVhXH-fVuHi2RZsmWTh0a9EjtOgI2l3f6Gg6JduAmW-yRHi4hM3VExnpBxJd3Z9a6_D9oRTBXN60npxaBP6YnDGmt3CFqLJ48UsniJncuaf3glU9kUXJPx4AjxInKjwnBD2XgpVnBfrqKDTBc8QmadiMjiidAEsWGpi4WYwn870Jh_RO_Dtpa3sgNZSch5ZeZQoaOwl-PtDH-GbvrBcmkTx47CVqP2i_hbt1lbDnouWwWoB-9XKTAMffIb6c_UF4IknbFx0RZLUqEhzn0BKrXg.jpg" width="400"><br>
+
+خبرگزاری فارس، وابسته به سپاه پاسداران، روز جمعه اول آبان ماه به نقل از یک مقام آگاه نزدیک به نیروی دریایی سپاه گزارش کرد، تردد «شناورهای متخلف» در تنگهٔ هرمز به‌طور کامل متوقف شده است.
+به ادعای فارس، این تحول پس از انهدام «سامانه‌های کمک‌ناوبری مورد استفاده این شناورها، اصابت به ۳ نفتکش در روز گذشته و انهدام یک نفتکش دیگر در شب گذشته» روی داده است.
+این مقام سپاه پاسداران هشدار داد در صورت ازسرگیری «قاچاق نفت»، برخورد با کشتی‌های متخلف و سامانه‌های فنی پشتیبان آن‌ها با شدت بسیار بیشتری انجام خواهد شد.
+به گفته این منبع نزدیک به سپاه: «مداخلهٔ مجدد نیروی هوایی ارتش آمریکا و حمایت از قاچاق نفت با پاسخی مستقیم و قاطع‌تر مواجه خواهد شد و مسئولیت عواقب آن برعهدهٔ ارتش آمریکا خواهد بود.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78816)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-23 16:39:37
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/78815)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-23 16:38:12
+
+<img src="https://cdn4.telesco.pe/file/vuRandsot9IgCzWrZVFlvKjFCST-ZQ2AJuIx5bc5Qsvx20cwOmn3UGKQzYX5rMZQCqgxzfCtEJEpYhvz15FnHDCNoN-Z5NkiwQe-gi3g8QhyWKDbmmvLyGlJTNxQvwgcclmRiDdH3rZuOOs0a1sbizTeyZDUk9T9dB1XWmBGj3G9Dv-QTj2oEDEK8bx9rRIFIMniY02romnowm3lidMYjWQe6tB9__PpgzReeCC49beRoc0UqLgv2Bdslp2lIsNgYPj0q5wBjsZxcX1PWqqd_I8HDMSM_H7jKU6rSTB1SxxmOsMhktXtmGjN_dreph7bIEgoTT-ft7LZqeoZpcZ8CA.jpg" width="400"><br>
+
+در پی حمله مسلحانه دو فرد فلسطینی به منطقه تقاطع یهودا در جنوب کرانه باختری، پنج اسرائیلی زخمی شدند که حال دو نفر از آن‌ها وخیم گزارش شده است. ارتش اسرائیل اعلام کرد نیروهای این کشور هر دو مهاجم را کشتند.
+به گفته نیروهای امدادی حاضر در محل، سه نفر دیگر از مجروحان این حمله که روز جمعه یکم آبان رخ داد، جراحات خفیف تا متوسط دارند.
+ارتش اسرائیل اعلام کرد نیروهای این کشور در تقاطع یهودا، واقع در جاده ۳۵، به سوی مهاجمان تیراندازی کردند و دو فرد مسلح فلسطینی را کشتند.
+ارتش اسرائیل همچنین از محاصره منطقه و ادامه عملیات جست‌وجو خبر داد.
+ایال زمیر، رییس ستاد ارتش اسرائیل، گفت اقدام سریع نیروهای این کشور از وقوع حمله‌ای گسترده‌تر جلوگیری کرده است.
+او در نشستی با افسران ارتش برای بررسی این حادثه گفت: «این حمله‌ای جدی بود. اقدام سریع نیروها از وقوع حمله‌ای حتی شدیدتر و آسیب بیشتر به غیرنظامیان و نیروهای امنیتی جلوگیری کرد.»
+زمیر افزود: «مقدار زیادی مهمات در خودرویی که تروریست‌ها با آن به محل حمله آمده بودند، پیدا شد. قرار بود از این مهمات برای اجرای حمله‌ای در مقیاس بزرگ‌تر استفاده شود.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78814)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-23 16:36:22
+
+<img src="https://cdn4.telesco.pe/file/vV5LmJOX4XYc7AoPb_qlKMKyXx1B_7Yep0QFlOZl7OuhVe-iVNcJkDs3jGiWNsGg7MPcejmf1L1vwx1Bf1td2uRQYcBQv2GvYenneMVI3VY2WjtXS7ys1sgPgZ7CXPvHy2pGxD9uDUmSCNhRy9fDjuuYVAbeW4OuBVBfacR5dggvucQ0Rk4nWWcA7SJnOnKmUgaPp49cm1r_Ol8UZDR0FW-_-ryVPe4q2lRnCn8bdonYNhxfH1n4EX2M3d3JZTYjPLUWQAWoHER4i29C7Za8uC4ZZ2nz_8IbPR0UrZ8_7E3O5A199EG0v2eSa5USyRs_WNSHgqRtsZyuhklpDtOG9g.jpg" width="400"><br>
+
+روزنامه وال‌استریت ژورنال، روز جمعه اول آبان ماه، گزارش داد مقام‌های تهران از طریق میانجی‌ها هشدار داده‌اند که در صورت حمله دوباره آمریکا، حملات به کشورهای حوزهٔ خلیج فارس گسترش خواهد یافت و زیرساخت‌های اقتصادی و اهداف غیرنظامی را نیز دربر خواهد گرفت.
+به گزارش این روزنامه، این تهدیدها شامل حمله به فرودگاه‌ها، خطوط لولهٔ نفت و دیگر زیرساخت‌های غیرنظامی در کشورهای منطقه است. مقام‌های جمهوری اسلامی همچنین گفته‌اند در صورت ازسرگیری حملات آمریکا، نیروهای آمریکایی را با شدت بیشتری هدف قرار خواهند داد و حتی ممکن است برای غرق کردن ناوهای جنگی آمریکا در منطقه تلاش کنند.
+وال‌استریت ژورنال می‌نویسد جمهوری اسلامی با وجود آسیب دیدن بخش بزرگی از زرادخانهٔ موشکی و پهپادی خود در حملات پیشین آمریکا و اسرائیل، همچنان توانایی انجام حملات تلافی‌جویانه را دارد. به ارزیابی تحلیلگران، تهران ممکن است از حملات نامتقارن برای وارد کردن خسارت به زیرساخت‌های انرژی و ارتباطی منطقه استفاده کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78813)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-23 16:35:28
+
+<img src="https://cdn4.telesco.pe/file/Wa_YjRTe9XlpN7wEhv2i6XWYxay1rdffM7NwyA9Sxt99_YlsAekb2c-VKJ_B9r1pSmEEANwygLUiu7z7OTTiJxGVrNo6USdxuWhqoZIj_OHttMrKTvKO3fuYzCctqh1LxMV2718rEnS4vZDkd5YFBhO-nee8wBA_vL3B_MLUfCPBSO3_W-pCOIILXJCKrFftL4J93-Kf1t37EZ_UaOCnzSDz7l1P6wjgj_rZCAylgsr9TK3RiNXqpv1JSvsNus7F5ocSn_pEkyP8kfLHcmndyu074fbT7NeUJUkgcBZ7asklwcKzXbLyGah6vVDX7imUkwMiKNybMWRSRM4WbNGZpw.jpg" width="400"><br>
+
+با ادامه تنش‌ها در خاورمیانه و انتشار گزارش‌هایی از احتمال حمله آمریکا و اسرائیل به ایران، قیمت جهانی نفت روز جمعه اول آبان، با عبور از مرز ۱۱۴ دلار، به بالاترین میزان در پنج ماه اخیر رسید.
+قیمت نفت برنت روز جمعه در معاملات بازارهای اروپایی با بیش از یک درصد افزایش نسبت به روز گذشته هر بشکه ۱۱۴ دلار و ۵۰ سنت معامله شد. این بالاترین قیمت این نوع نفت از ماه مه تا کنون محسوب می‌شود.
+ادامهٔ حملات حوثی‌های تحت حمایت ایران به زیرساخت‌های انرژی عربستان سعودی و افزایش گمانه‌زنی‌ها از دور تازه حملات اسرائیل و آمریکا به ایران پس از انتخابات میان‌دوره‌ای آمریکا به عنوان مهم‌ترین دلایل افزایش قیمت نفت از سوی کارشناسان مطرح شده است.
+همزمان قیمت گاز طبیعی در اروپا روز جمعه چهار درصد دیگر جهش کرد و به این ترتیب، مجموع افزایش قیمت آن در ماه جاری میلادی به حدود ۳۰ درصد رسید.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78812)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-23 16:34:12
+
+
+
+در پی جاری شدن سیلاب در شهرستان‌های سلماس و ماکو، تا زمان انتشار این خبر دست‌کم سه نفر از جمله یک دختر ده ساله جان باخته‌اند.
+به گفته مدیر عامل جمعیت هلال‌احمر آذربایجان غربی، ۲۴ منزل مسکونی در سلماس و ماکو دچار آب‌گرفتگی شده‌اند.
+عملیات جست‌وجو و نجات همچنان ادامه دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78811)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-23 06:01:31
@@ -65,7 +173,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-22 15:33:20
 
-<img src="https://cdn4.telesco.pe/file/hD5qt8G81kYmGfaZw4PT2n8RKM6kZ0Rw2uHsEAsC73azqUGIQxt33QvuGUfFLk_XiBWgfokGsQ0bizGXnu-0s56orEvchF3RrH56v7oZdl2CcPQZRYdxWDgVMvwpc0SNODbh7jOMVS_vD-p8TFh_CPOhR7ONuuJ2CYCP8hrZUtcs4fbAat404wDJtemJvtgds04ij1xpeGl0OGOEtUfFuAKGyZp_bzE7JyESSe4IVy96LgVBn5Sa1WqwH-BY1ioDXuIupXzcUsPpLuaKMfAKJnQP_kF8AXfK4MUxzwJbzJuSXfedMbM1ju7w4k7TPV18qsrEFZ4OID3QYu9973rWiQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/js9TK4lJVSoiZJgN6espx9PVppi_td5p343vhnejhFs2jM1OMamkqMxMhnSkkk6v-nIV1wz36qIde-Vf8Qe97QFcCtqKo1-dU_Holz-_gMdrooQucNQ03B5Yde0kY_BGFvdF61O1EBx7fiQPTTTrv-K70B9vb6ALCTJi3BiSLOjJDMa2Wj5qDyRv02F9PN2XM_kZWQ5RWiA6YHL39luMfUYmkdyWq2czeS94M_i6VxmzCD_5cas5BdrJOQ8XaD13bH0m-K6snt4w8EYnHQuwUlCS22-Jb16x7S2BR54UMxHcgGWhrLai-Exf2EebfPZcTYx5MEe-ZWik_7LTDeou4g.jpg" width="400"><br>
 
 قیمت دلار در بازار آزاد ایران بار دیگر افزایش یافت و به ۲۷۴ هزار تومان رسید. هم‌زمان، بهای طلا و سکه نیز صعود کرد؛ افزایشی که برخلاف روند نزولی قیمت جهانی طلا رخ داده و نشان می‌دهد رشد نرخ ارز همچنان فشار قابل‌توجهی بر بازار طلای ایران وارد می‌کند.
 در معاملات روز پنجشنبه ۳۰ مهر ۱۴۰۵، قیمت هر دلار آمریکا در بازار آزاد به ۲۷۴ هزار تومان رسید. دلار پیش‌تر در ۱۲مهر از مرز ۲۷۰ هزار تومان عبور کرده بود، اما پس از آن تا حدود ۲۶۰ هزار تومان کاهش یافت.
@@ -82,7 +190,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-22 15:32:50
 
-<img src="https://cdn4.telesco.pe/file/GQbKslmB-NLr3e6JWizpkenS3aFs66ak_cj1E-Ead5bIFD9ov8FEwIYQ3jq70cS12_QtwESANOYRlmlcxm9-1qmov62A4p_PrteSiRJQdTiZviGUDVcm4Q5E71l-L-c75AR6EOI_0eqCpwJaDjyV5O18Zyio0KR9tjrIIJQloI4r4sWKJIsfKNHQVaMMQaIPcxnncZhMThycT_4nx2L6wEz5K0FAhGMlrzOUXSrAzaNW5_Y7VgP6b7f6N__lHabhZ7paY3F-9wfPHzbsPn4I0eh9UrHg8ACF6RDULRwREjFZLCV3td8RC6lBCAIlW4uYNKfZignwtjxPIYIUDZmVgg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ldNoym1PhP7oQWGyog3yNoje7mB6mkOaONF9WUJGE2LB6Tg0vDXb86q6b7tp9CIk31gsJNi1Be4mDZEmUqanFf6snDyS1WGFnGZxR2xKHxJQ8L8tfgAFuqi7VRPepIQ0S15CQIaBF6-oV8yneXiA9PAnoOLnONkDMY90F8ip6Xivvf8hfRkTy-010b5qbQBDGa-zNhafkGsiXSjiqrqG-hnTQkQhJh1eBN8JNIAJCKIUzgABp0vh0hWWO34HTWFb5ToybOwc240P84k-23tOwnDwS6BXuynygK_Ep54W2P5JvLkWZ4w-YDaJQDh7Qcxoadf2gEJABQyTJpZMuPHYaQ.jpg" width="400"><br>
 
 نیروی دریایی سپاه پاسداران مدعی شد چهار کشتی را هنگام انتقال محموله نفتی در خلیج فارس هدف قرار داده است.
 بر اساس اطلاعیه روابط عمومی نیروی دریایی سپاه، هر چهار کشتی همزمان مورد اصابت قرار گرفتند و در آتش می‌سوزند. اطلاعیه افزود این نیرو کشتی‌ها را پس از عبور از «مسیر غیرقانونی» رصد و تعقیب کرده و هنگام انتقال کشتی‌به‌کشتی نفت مورد هدف قرار داد.
@@ -103,7 +211,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-22 15:30:26
 
-<img src="https://cdn1.telesco.pe/file/F4cXmD02lScK4MXcpVRFR18mRK7zfg6jCH4TLl9LeKUZglvWvxVBDhTQkYKww9mLxq2k0DgmvgFzV4OWzTj_-6cIdWRtBolDGgG_Vq5Szsp9OSgb9Wdc4QLwIqHF8H9OBCmv5Edf5G1xHhpd-aiOBtlcmgtro5Swt5a_PdCCG-kYOXaJozcc9Ad3nlYMlU-rcImXHLwqUxTh3I0E7TjVsiXn2kG4H86PoskLVc59WbckoP3YMeChwrv1dgVAZ8heZCdfvokntVfgSYjK_jcnAiR5pgD3OJyLRPvYzYeFv6weAtZVaMLi387_TUPkvPz3QdGQQwyLIpS7HZ8rfbVvsA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/BzZWHutgeG2DBsGzhwCV9B8z2J9z10scAKezGjNHkHCSuZXvK4wUPnW8T9QjAXb30TGH3DSP1a4GQGMWniU4u6OVj5jFcnFccSR-XmJI_2E76IwJygV1vUXeyMLiVk-jRrjiYKz2qljIAfjKLJkfb6LUxq3Hpwn0IrPpRW40mBjRwZIzyqRodYfk-Jnf0GhJG6BaU4ViWBF5JqN2awXexSgFzGYY_I6BrhW2VpeiKxUErj95E6Ymt7n1RDXjpAoDyobEZFCEnyQLgVYOFQYWkAi7S8rTu_i9lIM1mBfr6jRxWHQhvA7BRQ7RITjD9Opy6uhLiFksrIh5iUX9Un6vTA.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با تشبیه حکومت جمهوری اسلامی به نازی‌ها و نئونازی‌ها، گفت تنها راه متوقف کردن آن، سرنگونی حکومت در ایران است. او با اشاره به نابودی حکومت نازی به دست متفقین در جنگ جهانی دوم، تاکید کرد که به این نتیجه رسیده است که راه‌حل دیگری برای مقابله با جمهوری اسلامی وجود ندارد.
 نتانیاهو در جریان کارزار انتخاباتی خود در گفت‌وگو با شبکه ۷ اسرائیل گفت: «به این نتیجه رسیدم که تنها راه‌حل قابل تصور در اینجا، بدون تردید، سرنگونی این حکومت متعصب است.»
@@ -128,7 +236,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-22 15:27:56
 
-<img src="https://cdn1.telesco.pe/file/eI_apVWLB-DbwvF7EXFRVphHOtlql1bTcSW5xEgbclMRDkGRtdnYR_-qNojtMuDETKCoLxjv4JLCPIzS9pXv8XMwxZm5jTiGc3SN6JXfNvneJeNK8LMyXnZF3wljTmbvZwPpvbCeHq2az93lJN3l3TvGLn9C939E8idRu2u0FMwi3zjUTC6gOKy2j4RTcThenZMnzV4XVaSGZwECbgR4KIX8leFPjK2lvKkV0Xa4DE8yLU_u4kWW9ryExqPk4Z6n67iAIdSdJ808tN7gBWGr0RnBCAK36uI5lbI2zQBs9oD2dJmFI-erF9kXNK-y2sKaMnzG01hPTqz6wLGZCWWkaw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/sJv4Ed8Uw3gtPGy2ckc9YyBzytf93FmBfAtyTHsj7TBbBajHqgiBuymcqfPlgDXF0EtnQn9m4fW53PGBRVlI7YWsyGc7vjlKSo3uhnGZsuNw5daG6Y6sGpAVIunrB7nY6yBCrWnx9gqzOrEM8QT3Mdde_lZIUBvZHY-1DLhgeI-umrWcczOKodFhawjKUgXriCXyv7SG17mnPqfo-dhUpfe23eQzu4Aw6PuAahxJQdMYNbpyX34-7JGy1nrTn2birLnD665arrvDPrz8n-ZrGaQh7mV2Kgn1PGlynoivMAqTjqk7KIgOUT4a10oUiydkmGNr_7Rji7PK6x4FNxORBw.jpg" width="400"><br>
 
 دونالد ترامپ: آمریکا با ایران مذاکره نمی‌کند، به‌زودی اتفاقی رخ خواهد داد
 دونالد ترامپ، رییس‌جمهوری آمریکا، پنجشنبه ۳۰ مهرماه، در جمع خبرنگاران درباره اینکه در این مقطع با جمهوری اسلامی مذاکره می‌کند، گفت: «نه، فکر می‌کنم ما در حال مذاکره با ایران نیستیم. به هر حال، به یک شکل یا شکل دیگر، اتفاقی خواهد افتاد. این اتفاق نسبتا به‌زودی رخ خواهد داد.»
@@ -156,7 +264,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-22 15:22:44
 
-<img src="https://cdn4.telesco.pe/file/qM42Mu0mcNoEKxNQazOY5TGhLmT5Dt4bCn-SKt2IIdQYvjr60_qEn0MZnttSh6DpZkOcfDp3ZXczZ3zIVIcQ_S_cLI9dluf_X-j06VIhCKjlml6T67rS3s7yiQX7Dk_DsksPC_FFHPv7zS9lCLcigjKFmw8SPriTEiK-bWynPNIZ1yKxPjqaRxQV_LrfysiT8fLCosUCUbSbPZJ6W09ALEod0ziUMytMPnZ1Mjm9mUOFrghHaSuzGaAfXGFKMPjpQHwQ19rWNmafV1VKBRHzlf4cDCs4Yk3pTi8d8pk7FF823iOJOH4Sa9lXFUIKzGfikJc1rURI0J0cXWRL4iN5dQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/EM-u0NzVUXIBNwK_DTNE8BqP1UjpKAMr__O4hOBmpVkdbpHjEIIQZtFPCveJ_4tcqnP5iOZEtCCNeL_gliHYSFj28XH1O-N9-opA6oLDxeemHjgjZXm0262DtQ3Py5qqnVL67x0DqGMvF1fGddUs3xcq-QehAPNLxaSsWS_l9rsdOYui2I6SzQY_-u6vEZvsALuE1wpicdCFMU-obXTvCdp41FhR-yiK237vNs8bP0mGhsVmmi7f0OIgii9saSeDG-UxdJcS6cmZqfvHwatBuNac-tL0rnbVjQGsw_6ZhDTCBvr99stODBHXTXwy6comIbfUL7AS-DwNTlFkfdd2zQ.jpg" width="400"><br>
 
 علی علی‌پور، پدر بابک علی‌پور، زندانی سیاسی اعدام‌شده، روز سه‌شنبه ۲۸ مهر ۱۴۰۵ در خانه‌اش در رشت بازداشت و به بازداشتگاه «شهدای گمنام» این شهر منتقل شد. مأموران هم‌زمان شماری از وسایل الکترونیکی او و اعضای خانواده‌اش را ضبط کردند.
 هرانا به نقل از منبعی نزدیک به خانواده خبر داد نیروهای امنیتی ساعت هشت صبح برای بازداشت علی علی‌پور به محل سکونتش مراجعه کردند. تاکنون اطلاعاتی درباره علت بازداشت و اتهام‌های احتمالی او منتشر نشده است.
@@ -251,124 +359,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78797)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 20:01:18
-
-<img src="https://cdn4.telesco.pe/file/aZgTbd8xO4YaMHsnRR3-aybeBd2-kGTEFW3esXT6f2GJMXGp8yVAmhL-e-nvH1eS0FTJrdhDjJr95bAbxgqX-RMEB8FV65d3ZTvfbUx8fvz0UyTiirUYOrFOzLjncMOE_q0vEBNvowtHESpYGqifM4z3lvE6FWAvlZ-4uYXip12wssTWx7s_Ijlbok0q3y3CWdZbnJr7TcM9nnoq4rjIntt0gITPLW3ZXkWIRaPoc6qbEmH1lD-VtX8HpSA_LFrjaMbj44mT6uqviqV_iWHkkn-EnoAWYP7xDXmYlld8wKcXcDE7aCsrYJboRGDtgFvNDcsHo0APQPt60DBOOOwy1g.jpg" width="400"><br>
-
-خبرگزاری تسنیم، وابسته به سپاه پاسداران، روز چهارشنبه ۲۹ مهر گزارش داد که محمدباقر قالیباف، رئیس مجلس شورای اسلامی با مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی، دیدار و گفتگو کرده است.
-بر اساس این گزارش، در این دیدار، آخرین تحولات در زمینه جنگ نظامی و اقتصادی با آمریکا و اسرائیل بررسی شد. تسنیم نوشت که طرفین بر ضرورت تقویت مؤلفه‌های قدرت کشور، نقش مؤثر نمایندگان در حفظ «انسجام اجتماعی و وحدت ملی»، استمرار «حضور آگاهانه ملت در تجمعات میدانی» و اهتمام دولت و مجلس به گره‌گشایی از مشکلات معیشتی مردم و پیشبرد امور شرکای راهبردی تأکید کردند.
-از این دیدار، تصویری در رسانه‌های جمهوری اسلامی ایران منتشر نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78796)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 20:00:51
-
-<img src="https://cdn4.telesco.pe/file/hensQegOiB1-IB-WyEbQk_YzeGLjuhCXD_lF26SaJ4tbW60NjCdSwAx5iOVtT9A4K97hFYH0EeyFnuAEMYCWbtk0mutwAv1ssavtk9qCzQNXvLayI3YKMYu62u5d4kTyQwOSbUr6DMFG1OeItM9zwx6gS8bXc82rThqJ72fJdPElyXP4WxhaEHb2et7_N3Id-Ig8xXE73uQp8rhEIt72MZf9T-e2GxTor8t7Lt3ea9iLMGjq29-buHJji-OXHVRyaLk6_Sywpk6tu_EKAKzv2S--jE5XHlq9pjsAONkCKFcLV05o6o2byxSfLF6lxwGHNWkaVmRjPXbzql5eiZYxBA.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست‌وزیر اسراییل، با متهم کردن جمهوری اسلامی به تلاش دوباره برای توسعه سلاح هسته‌ای، گفت تنها راه از بین بردن این تهدید «برای همیشه»، سرنگونی حکومت ایران است.
-نتانیاهو روز چهارشنبه ۲۹ مهر در مراسم فارغ‌التحصیلی دانشجویان افسری ارتش اسراییل در مدرسه نظامی بهاد ۱ در جنوب این کشور گفت حکومت ایران هنوز از آنچه بر سرش آمده درس نگرفته است.
-او با اشاره به مجتبی خامنه‌ای گفت: «مجتبی خامنه‌ای تصمیم گرفت راه پدرش را دنبال کند. او ضامن را کشیده و ایران بار دیگر در تلاش است سلاح‌های مرگبار خود را توسعه دهد.»
-نخست‌وزیر اسراییل افزود که به ارتش، موساد و نهادهای امنیتی دستور داده است برای رفع این تهدید، حکومت ایران را سرنگون کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78795)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 20:00:07
-
-
-
-بیش از هفت ماه پس از کشته‌شدن علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، یک عضو مجلس خبرگان می‌گوید، وصیت‌نامه علی خامنه‌ای پس از بمباران «هنوز پیدا نشده است.»
-سعید صلح‌ میرزایی همچنین ادعا کرده است که وصیت‌نامه «در حال اصلاح بود و نسخه مشابهی ندارد».
-به گفته این عضو مجلس خبرگان، فایلِ در حال اصلاح وصیت‌نامه هم که در کامپیوتری در محل بیت رهبری ذخیره بوده، به همراه کامپیوتر در بمباران از بین رفته است.
-این در حالی‌است که به‌طور معمول وصیت‌نامۀ سیاسی سران کشورها، در چند نسخۀ یکسان تهیه شده و در اماکن مختلفی نگه‌داری می‌شوند.
-پیش از این و در طول بیش از هفت ماه گذشته، ادعای مشابهی مطرح نشده بود.
-اندکی پس از کشته‌شدن علی خامنه‌ای در روز نهم اسفندماه ۱۴۰۴، پسرش مجتبی به‌عنوان رهبر بعدی جمهوری اسلامی معرفی شد. تا کنون فیلم یا صدای او پخش نشده و هنوز در مورد سرنوشت او هم تردیدهایی وجود دارد.
-@
-VahidHeadline
-انتشار وصیت‌نامه رهبر پیشین جمهوری اسلامی می‌تواند زمینه‌ساز تفسیر‌های جناحی از محتویات آن در درون حاکمیت شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78793)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 16:48:44
-
-
-
-2:05
-مادر پرنیان دبیری، از جانباختگان اعتراضات دی‌ماه ۱۴۰۴ در ویدئویی از سیاست دوگانه مقام‌های جمهوری اسلامی در قبال دانش‌آموزان کشته شده در اعتراضات دی‌ماه در مقایسه با کودکان کشته‌شده میناب انتقاد کرد و پرسید: کشتن دانش‌آموزان در اعتراضات دی‌ماه جرم نبود؟
-او در این ویدئو که روز چهارشنبه ۲۹ مهر منتشر شد، می‌گوید در مسیر رفتن به مزار دخترش، بیلبورد تصاویر کودکان کشته‌شده میناب را با شعار «ندیدن این صحنه جرم است» دیده است. او با اعتراض به برخورد دوگانه حکومت می‌پرسد کشتن دانش‌آموزان در اعتراضات دی‌ماه جرم نبود؟ چرا یک‌بار برای محکوم کردن کشتن دانش‌آموزان در اعتراضات، پلاکاردی نصب نکردید؟
-مادر پرنیان دبیری همچنین با اشاره به تماس‌ با خانواده‌ها برای شهید اعلام کردن فرزندانشان گفت: وقتی خودمان دیده‌ایم چه کسی فرزندمان را کشته است، چطور می‌توانیم این کار را انجام دهیم.
-این مادر دادخواه در ادامه به فشارهای امنیتی و دلایل سکوت خانواده‌ها در قبال جان‌باختن فرزندانشان اشاره کرد و تاکید کرد: کینه‌ای که در دلمان است هر روز در حال بدتر شدن است.
-@
-VahidHeadline
-📡
-@VahidOnline
-03:29
-
-[View Post](https://t.me/VahidOnline/78792)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 16:46:31
-
-
-
-"#سپهر_بابا کجایی؟"
-⚠️
-۱۲ دقیقه ویدیوی دلخراش از مرکز پزشکی قانونی کهریزک تهران پدر «سپهر شکری» به دنبال پیکر پسرش Vahid نسخه ۴۰۰ مگابایتی: twimg  آپدیت دو روز بعد: #سپهر_شکری در پی گزارش دروغ صدا و سیما درباره این ویدیو و انتساب این ویدیو به خانواده داغداری…
-
-[View Post](https://t.me/VahidOnline/78791)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-21 14:47:34
-
-<img src="https://cdn4.telesco.pe/file/BdTtdaLjlOzI8PWRaWGHw3O6xCHmJYlxE-IuPabJ0DL1s2OGgGDdGBXgWgzv_agXbQDDcj2PEsAsAzLQWcloPNhbfuTY-aH7z3gVq1dQHDVrPRp3jE9XP1aRvi43MtuyoC2ip1SnHpR4y-1rd1qZ0nGQz4DU3v8RY2WI_EKhofsHmD5Omh0WJsENRrEphitvpXoFWQcoOhyunNjstPck6k4PqDMax78ldqSGMdxCqok8odbx9inb3pXGujQpXMcV2Byza6Avi8VuEqUv2L7UUoGGjDeGPneSuWOwIhKapsUwdgv9Gop2tcnw4vj4sYUrydk791xa1OdRLVQTJeIy7w.jpg" width="400"><br>
-
-بیش از یک ماه پس از بسته و باز شدن گذرگاه‌های مرزی ایران و عراق، دولت عراق روز چهارشنبه، ۲۹ مهرماه، دستور بسته شدن گذرگاه مرزی الشیب، معادل چذابه در ایران،‌ را صادر کرد.
-شبکه خبری الجزیره به نقل از یک مقام عراقی نوشته است که این اقدام با دستور مستقیم علی الزیدی، نخست وزیر عراق، انجام شده است.
-با این حال هنوز دولت عراق بیانیه‌ای رسمی در این باره منتشر نکرده و دلیل این اقدام نیز روشن نیست.
-الجزیره همچنین خبر داده است که بسته شدن این گذرگاه «با انسداد تدریجی چند مرز زمینی دیگر طی روزهای آینده تکمیل خواهد شد».
-بر اساس این دستور، «تا اطلاع ثانوی» نه افراد حق عبور و مرور از این گذرگاه را خواهند داشت و نه وسایل نقلیه باربری.
-این خبر پس از آن منتشر می‌شود که سخنگوی وزارت خارجه جمهوری اسلامی روز شنبه ۲۵ مهر در پی انتشار گزارش‌هایی از توقف فعالیت تجاری یک گذرگاه بین ایران و پاکستان اعلام کرد که «ترددها و مراودات مرزی ایران و پاکستان موقتاً متوقف شده است».
-اسماعیل بقائی بدون اشاره به جزئیات بیشتر دلیل این اتفاق را «مشکلات فنی و لزوم اتخاذ تدابیر احتیاطی» ذکر کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78790)
 
 ---
 
