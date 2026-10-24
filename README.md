@@ -3,8 +3,92 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-24 13:30:17 </h5>
+<h5> 🟢 Updated at: 2026-10-24 17:40:05 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-24 15:30:44
+
+
+
+۲۶ ساچمه در صورت؛
+روایت صاحب رستورانی که  ۱۹ دی‌ماه بینایی‌اش را از دست داد:
+📱
+mahoor_restaurantt
+پدرام محمودی، صاحب یک کافه‌رستوران با انتشار ویدیویی از وضعیت خود، از نابینایی هر دو چشمش در پی اصابت ساچمه در شامگاه ۱۹ دی ۱۴۰۴ خبر داده است. او می‌گوید این حادثه ساعت ۱۹:۵۵، زمانی رخ داد که در رستوران خود حضور داشت و در اعتراضات شرکت نداشت. به گفته محمودی، حدود ۲۶ ساچمه به صورتش اصابت کرد و او بینایی هر دو چشم خود را از دست داد.
+محمودی در این ویدیو از زندگی در تاریکی مطلق و محرومیت از دیدن چهره همسر و فرزند ۹ ساله‌اش سخن می‌گوید.
+او با اشاره به دشواری‌های زندگی پس از حادثه می‌گوید در ماه‌های گذشته، مسئولیت تأمین معاش خانواده و اداره زندگی بر دوش همسرش بوده است.
+محمودی می‌گوید همسرش با وجود دشواری‌های فراوان، کافه‌رستوران را دوباره راه‌اندازی کرده است. او در پایان ویدیو از مشتریان و افرادی که پیش‌تر به این مجموعه رفت‌وآمد داشته‌اند درخواست می‌کند با حمایت از کسب‌وکار خانوادگی آن‌ها، در این شرایط دشوار تنهاشان نگذارند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78829)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-24 15:27:10
+
+<img src="https://cdn4.telesco.pe/file/JnB0AOgbhiB9P8G2FBilUUjar5E1ZEambu9DWBYCqfde5Ef72CNBWj-n3mrG1QdyIP-TjHmSC60myE0Juxu0LCa5JIcKM3JwXngs0ijQ1Vo5RdDhd260cD8BvDX-fXpBUqzQLjKWa2U-CegeJ1EEYi1mB-nBICBN8bwikXqAgT7S3itmSjYiRktlJeUe8zBmKInB5XjavPkjhfVj50ob90Z0qPTky1ddXa4rRWSff4VNhuVpPGzP6_YFte5uySo3ig1UY2gRy8JBU5TBhvdC4VVGBUcW2YCqd8ht2t1ioOUYHPsoO9s576armyr37iy1Wmypnp-bx5O_ZJ8_riDWjw.jpg" width="400"><br>
+
+دو مقام ارشد امنیتی جمهوری اسلامی به رویترز گفتند که تهران طرح‌های مفصلی برای هدف قرار دادن کابل‌های ارتباطی زیردریایی در خلیج فارس تهیه کرده است که در صورت حمله دوباره آمریکا و اسرائیل به ایران ممکن است به اجرا گذاشته شوند.
+این دو مقام که نخواستند نامشان فاش شود، جزئیاتی درباره محل و شیوه اجرای احتمالی این حملات ارائه نکردند، اما یکی از آنها گفت که ایران ممکن است برای جلوگیری از تعمیر کابل‌های آسیب‌دیده نیز اقدام کند تا اختلال در ارتباطات، از جمله اینترنت، طولانی‌تر شود.
+یکی از این مقام‌ها هشدار داد که در صورت حمله مجدد به ایران، «دیگر هیچ خط قرمزی وجود نخواهد داشت» و اهداف احتمالی از کابل‌های زیردریایی تا پایگاه‌های نظامی، از جمله پایگاه‌های مخفی، را در بر خواهد گرفت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78828)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-24 15:26:07
+
+<img src="https://cdn1.telesco.pe/file/Ad8FRDG89jMI4F3OdZUI5I-mTIep53RbTKKxMi5SNOrOw3sX8EPPXJ2XTGYn6duyc9gQtj7TvQs68JxKWrbFTk2myYN2cjoixO4otQbhFTzd4wzUwePLNNdus7Xp0qbdH9hBhHTc_Gxb1yufp5whOqN9rVBOMiKvTjYXyCVZG7UClLfC-3rhdbDRX7WwDFn8197Mi5pZPx6tTxHRsNkarcQdy4W_96mn7PRvorPnVMGFHJ9nnUVIpyMYKt0wnql_P3gbD7Bhu2Ckfi2P06JSCD883ODrSPUFBEYCmHErM6gNrK6sfB-QYzbAY_LyPSQ-BqBiBpHa4eMaOeY6v4cXQA.jpg" width="400"><br>
+
+ائتلاف نظامی به رهبری عربستان سعودی روز شنبه دوم آبان اعلام کرد که دو موشک شلیک‌شده از سوی حوثی‌های یمن به سمت شهرهای طائف و ینبع در غرب این کشور را رهگیری کرده است.
+این خبر اندکی پس از آن منتشر شد که سازمان دفاع مدنی عربستان درباره «خطر احتمالی» در چند منطقه غربی این کشور، از جمله مکه، طائف و ینبع، هشدار صادر کرد و از ساکنان خواست به نزدیک‌ترین مکان امن پناه ببرند.
+این هشدارها دقایقی بعد لغو شدند.
+عربستان سعودی در هفته‌های اخیر بارها هدف حملات موشکی و پهپادی حوثی‌های مورد حمایت جمهوری اسلامی قرار گرفته است. این گروه که با دولت به‌رسمیت‌شناخته‌شدهٔ یمن، مورد حمایت عربستان، می‌جنگد، فرودگاه‌ها و تأسیسات نفتی این کشور را هدف قرار داده است.
+@
+VahidHeadline
+سخنگوی وزارت امور خارجه پاکستان اعلام کرد پاکستان و عربستان سعودی روند تصویب پیمان دفاع مشترک مکه را به پایان رسانده‌اند و ترکیه مراحل قانونی خود را در پیش دارد.
+سجاد حیدر خان روز جمعه گفت: «پاکستان و پادشاهی عربستان سعودی پیش‌تر روند تصویب خود را تکمیل کرده‌اند.» او افزود ترکیه در چارچوب حقوقی داخلی خود «در حال انجام رویه‌های لازم» است.
+ترکیه پیمان را ۲۸ مهر برای تصویب به مجلس خود سپرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78826)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-24 15:23:57
+
+<img src="https://cdn4.telesco.pe/file/NxASvs_skKypIUput-kJFsAZrioQUhqzunQy68TgfeLM_f7_IZuBYhsZ3729Wj6E4FZz-B1fER_YyTNnU1SVseUNMEAiBPhgicvvwNRfYg_ohAyVe_cNzSGYCAFxPeHHAQXFC2MFCtsuiDgBqK2nsb-wSAn9CTtP9e5j0pQnUGwjov9cWynah7d_mPxsnia6SmhExG3irLLu4Pl0LFyC26DbakDgq0kWG7db0aPLcwlCCiYEXHnKIk7w0eJeOvDqDQYnUFFY_te8uId37arqN6FhVJDf3FJgi2KNSCJsGmNhCRQRGA1wJ39xK3VbbWbFaM55cFDakF3RHTvyJqZYPg.jpg" width="400"><br>
+
+مای ساتو، گزارشگر ویژۀ سازمان ملل در امور حقوق بشر ایران، از قربانیان نقض حقوق بشر، خانواده‌های آن‌ها، مدافعان حقوق بشر، سازمان‌های مدنی و کارشناسان خواست اطلاعات و مستندات خود را برای تهیۀ گزارش بعدی او به شصت‌وچهارمین نشست شورای حقوق بشر سازمان ملل ارسال کنند.
+بر اساس فراخوان منتشرشده در وب‌سایت دفتر حقوق بشر سازمان ملل، این گزارش علاوه بر بررسی تحولات حقوق بشری ایران، به‌ویژه از شهریور ۱۴۰۵ به بعد، بر سرکوب فرامرزی، فشار بر خانواده‌های قربانیان، حقوق زنان و تبعیض جنسیتی متمرکز خواهد بود.
+در این فراخوان به اقداماتی از جمله تهدید، ارعاب، نظارت و آزار مخالفان جمهوری اسلامی در خارج از کشور، فشار بر بستگان آن‌ها در ایران، محدودیت‌های سفر، مصادرۀ اموال و استفاده از خدمات کنسولی برای اعمال فشار اشاره شده است.
+همچنین از خانواده‌های افرادی که بازداشت، ناپدید، کشته یا اعدام شده‌اند، خواسته شده است اطلاعاتی دربارۀ پیامدهای اقتصادی، اجتماعی، حقوقی و روانی این اقدامات ارائه کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78825)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-24 05:29:39
@@ -48,7 +132,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-23 23:38:01
 
-
+<img src="https://cdn1.telesco.pe/file/Itiz3jgejLflLXmz9zERA56stxzB0utuZAUWHzeWbsLb9kbvuHIJd8yqH2RNxWCxYk1ZyC6o9-KxCzvia9ZeUO8rNki-kVJ66K4It7Y0aZpvC5C68v5BMVwc2mdVilC0JN6QAGThxQtcEeMA55EDjNtL5Ac2UO1BW-F534IjOggCAhTaa4vdT_S4UBzHEeRKy4IoE77IS8vgHUN85lQoF-k_OGWQPg0t-WGO-80mPYmkZFE9HNWrHfpBLQaYANETtWvNTER1Zdh8leOzvB8OI9NJdIKzbWiirnAKsIzwoNtXKrJS4KM5aCqFZxoofZwBQS6Lj4lRjEg49aOwptWAww.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا که برای سخنرانی در یک تجمع انتخاباتی به فلوریدا سفر کرده است، نسبت به اظهارات اخیر تام باراک ابراز بی‌اطلاعی کرد.
 باراک، سفیر آمریکا در ترکیه روز جمعه اول آبان در پاسخ به پرسشی درباره احتمال حمله آمریکا به ایران در روزهای آخر هفته، پاسخ داد «قطعاً».
@@ -156,7 +240,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-23 16:40:42
 
-<img src="https://cdn4.telesco.pe/file/r_s8vsyUQb_Xxhc3gUfxCTT7bqvpN7MUcrpkWUn2JmP3yERSkbGPA1SNw309buyyEVhXH-fVuHi2RZsmWTh0a9EjtOgI2l3f6Gg6JduAmW-yRHi4hM3VExnpBxJd3Z9a6_D9oRTBXN60npxaBP6YnDGmt3CFqLJ48UsniJncuaf3glU9kUXJPx4AjxInKjwnBD2XgpVnBfrqKDTBc8QmadiMjiidAEsWGpi4WYwn870Jh_RO_Dtpa3sgNZSch5ZeZQoaOwl-PtDH-GbvrBcmkTx47CVqP2i_hbt1lbDnouWwWoB-9XKTAMffIb6c_UF4IknbFx0RZLUqEhzn0BKrXg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/mT9w4Js92WxzFRpAcDbolWu7u58gWgtMxJqvM_5Hk40_ZuKYQZWzJ1myYZBc-zNnV4Vzh3p9ImVjYNLUyYJ4lRtIjdUGJBxCuzWLctGRPT4ZYe56UimROFTLlIu-OW0CdBSwrIgia3kyhchR6tPENv7_N0eze70snb6ypnaD1N7uvWGZYc8u1eWcVX4AxHgmMVWvNOwel0vMiDt4PV5k1wr8IKvJ1lk2asO4oLFFkhueUUSlMNLNdln6OR3bJyvSgKOjzDzAp40KDF9HpLS6RhX0SytlK61cOq_lKHPRpWl_Lcps4YCpmhB2sH-Cak5VqMtPelhJV5yQ1DCW5jDROA.jpg" width="400"><br>
 
 خبرگزاری فارس، وابسته به سپاه پاسداران، روز جمعه اول آبان ماه به نقل از یک مقام آگاه نزدیک به نیروی دریایی سپاه گزارش کرد، تردد «شناورهای متخلف» در تنگهٔ هرمز به‌طور کامل متوقف شده است.
 به ادعای فارس، این تحول پس از انهدام «سامانه‌های کمک‌ناوبری مورد استفاده این شناورها، اصابت به ۳ نفتکش در روز گذشته و انهدام یک نفتکش دیگر در شب گذشته» روی داده است.
@@ -187,7 +271,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-23 16:38:12
 
-<img src="https://cdn1.telesco.pe/file/C0Wa3w5_QdmcpNHZqvAG4smVqYNKR7Vq7-BUnjC2l7gAigJkfdTM496ZRRMP5Zh32uX_cHs37yOp3GQLW0xUS4UtsYqjWFM_CRfI5FrIyqIMiBVeyjjymS3EtWpQPyfDvV6POQsI1oZXzqmxRukIw_k8y8t8S_nNXo6LsToQKLxRacMh-b6nIbiYqV397dP2imnP7akcoUGD3zCjiL4pwsYK5vfbByAOX-k6nvK8X_rggs0cJaohMJdF8hVu1YPI0usuWrxKdOLD7IvIIMRnNpTWidDGZ_SzdQkSBmsk6kb20qkU4iE0yTxRP5pZCocP40gDwQovPywjC0RocWE8_Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/oW_NOS1GoqhjgssWCi1bsa81sHdqkjm96F71AL81pFk_VUs7B0DIZl2KlrSqjcXU5lgku2KZiUMMWJMC8h1dCNPGFn3FxXJyX08iHj_O3qZ8-l1VVFM9aOTGoKPSaRQRRZC39xcRmYQDP3Ho0xYgtq-Z_G492JeoLCwNMtsZycTXVPy6AcC5HokXI9AKcO3HpKlQQdP6E84-ahRiOgvLY4gXssC8Tx-8rWOCbAMmRst_C2u4vrVsnDY1iGpFypYKtqnO8kDcoBK0xgZzRlKwMSa0QNLLXxara1Ab0xKzv2xQn-TvJeNmUYMm8eAgdXOBgaCawC7NRo545D1aJaMl9A.jpg" width="400"><br>
 
 در پی حمله مسلحانه دو فرد فلسطینی به منطقه تقاطع یهودا در جنوب کرانه باختری، پنج اسرائیلی زخمی شدند که حال دو نفر از آن‌ها وخیم گزارش شده است. ارتش اسرائیل اعلام کرد نیروهای این کشور هر دو مهاجم را کشتند.
 به گفته نیروهای امدادی حاضر در محل، سه نفر دیگر از مجروحان این حمله که روز جمعه یکم آبان رخ داد، جراحات خفیف تا متوسط دارند.
@@ -219,7 +303,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-23 16:36:22
 
-<img src="https://cdn4.telesco.pe/file/vV5LmJOX4XYc7AoPb_qlKMKyXx1B_7Yep0QFlOZl7OuhVe-iVNcJkDs3jGiWNsGg7MPcejmf1L1vwx1Bf1td2uRQYcBQv2GvYenneMVI3VY2WjtXS7ys1sgPgZ7CXPvHy2pGxD9uDUmSCNhRy9fDjuuYVAbeW4OuBVBfacR5dggvucQ0Rk4nWWcA7SJnOnKmUgaPp49cm1r_Ol8UZDR0FW-_-ryVPe4q2lRnCn8bdonYNhxfH1n4EX2M3d3JZTYjPLUWQAWoHER4i29C7Za8uC4ZZ2nz_8IbPR0UrZ8_7E3O5A199EG0v2eSa5USyRs_WNSHgqRtsZyuhklpDtOG9g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/d7KWn1lb8bnVpAl9ChYVXdRRf0MjmbNFTpFx1Fv22DVWDKoJjJYDVDOcHI50Ht3D6eM8cIGZzqgOCPg1yYFvBePbX3OLg2seVluGIDow-Nm0bE3ekZB0gykBru60ZZO2xwb7Q-qROfwZtXo4W9oOHVeCCHzVIbl4vd1VOcYiewHLdTwrL9Ws7tMgjP9aGDg-OCuive8l-piK7xY797upHazJy1433AxtFzxijHFr0dg67r0rlDR7FsX2RW_Rs1ZzerWNesU6lb29RDJj-_Aw5uG-7NNpH3_majaImfctkIP3iG26CDZ9M4abZd-KQ-q9jlHblHkmt_6kd02mUsft0Q.jpg" width="400"><br>
 
 روزنامه وال‌استریت ژورنال، روز جمعه اول آبان ماه، گزارش داد مقام‌های تهران از طریق میانجی‌ها هشدار داده‌اند که در صورت حمله دوباره آمریکا، حملات به کشورهای حوزهٔ خلیج فارس گسترش خواهد یافت و زیرساخت‌های اقتصادی و اهداف غیرنظامی را نیز دربر خواهد گرفت.
 به گزارش این روزنامه، این تهدیدها شامل حمله به فرودگاه‌ها، خطوط لولهٔ نفت و دیگر زیرساخت‌های غیرنظامی در کشورهای منطقه است. مقام‌های جمهوری اسلامی همچنین گفته‌اند در صورت ازسرگیری حملات آمریکا، نیروهای آمریکایی را با شدت بیشتری هدف قرار خواهند داد و حتی ممکن است برای غرق کردن ناوهای جنگی آمریکا در منطقه تلاش کنند.
@@ -237,7 +321,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-23 16:35:28
 
-<img src="https://cdn4.telesco.pe/file/Wa_YjRTe9XlpN7wEhv2i6XWYxay1rdffM7NwyA9Sxt99_YlsAekb2c-VKJ_B9r1pSmEEANwygLUiu7z7OTTiJxGVrNo6USdxuWhqoZIj_OHttMrKTvKO3fuYzCctqh1LxMV2718rEnS4vZDkd5YFBhO-nee8wBA_vL3B_MLUfCPBSO3_W-pCOIILXJCKrFftL4J93-Kf1t37EZ_UaOCnzSDz7l1P6wjgj_rZCAylgsr9TK3RiNXqpv1JSvsNus7F5ocSn_pEkyP8kfLHcmndyu074fbT7NeUJUkgcBZ7asklwcKzXbLyGah6vVDX7imUkwMiKNybMWRSRM4WbNGZpw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/eDiteroUB6F9U-DXCIbeIw9E6NKu8qcmOlAVvOJgiR8EKWMiV8D0fv_hT80rkwx9CzFZKZbZYLN8hkvrKrIOMsyc3piN6iD6o0ovDPd7VMnKgi4JY_BW-3sBN4STM2J5LHVJnIoaaqtdQinS51hbo67MX2aCr_XEmzzQT8o8YkPtbzQ1ss_dWXbZrSQVbjsCQ0z1Azr0Mr2ZcnLohYaR1gu_X-LVXbv47fimmzl6lI2is6v99gqSnxiemsVCPJKPrKgNE0B_RGBJJOeEnLGKPhntaQgjrTcPgss0NWubil_ZIPn0-jVpyrbZ1ie2UooOnE9YausWQEHM4Jd-ic04dg.jpg" width="400"><br>
 
 با ادامه تنش‌ها در خاورمیانه و انتشار گزارش‌هایی از احتمال حمله آمریکا و اسرائیل به ایران، قیمت جهانی نفت روز جمعه اول آبان، با عبور از مرز ۱۱۴ دلار، به بالاترین میزان در پنج ماه اخیر رسید.
 قیمت نفت برنت روز جمعه در معاملات بازارهای اروپایی با بیش از یک درصد افزایش نسبت به روز گذشته هر بشکه ۱۱۴ دلار و ۵۰ سنت معامله شد. این بالاترین قیمت این نوع نفت از ماه مه تا کنون محسوب می‌شود.
@@ -284,83 +368,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78810)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-22 19:37:10
-
-<img src="https://cdn4.telesco.pe/file/IS23dYvcicyUbLbiwlAt8HHWyWsXJdDP8-wL6x-OsA6N6qTQNLwK8pKK0ThNQ7RWIG6cQls2wWAqO5JMxWdtdl6JNnFjt5fc3k0mXnYwuWlmLiG2SOVJBmoJqkCRubcPMGA0jNrbstU9JOwa2z7hOEjzBMPB6iG_uY-wZY54KD_L_-sayWw2jCDjx1RkLDSmxBRSVwJWDoWeKHZxEF5dMOUsTRvZT8ecOZiB0a4DjB9IifPsnLtEAZA7kyfd-KD61ApNPYKhom6Hj7Ye90wFXTxFFXtsBXwg31w0ThWP8WReEYsFwmRB9899nnWxPcXPbihDQHjX5gLtnutGzGYjuA.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری آمریکا، با انتشار تصاویر ماهواره‌ای قدیمی و جدید از پایانه نفتی جزیرۀ خارگ، در حساب خود در شبکۀ ایکس نوشت که برخلاف گذشته، اکنون هیچ نفتکش حامل نفت خامی در این پایانه دیده نمی‌شود.
-او روز پنج‌شنبه ۳۰ مهر نوشت: «جزیرۀ خارگ اکنون چیزی جز نمادی از تنها چیزی نیست که حکومت ایران هنوز می‌تواند تولید کند: شکست.»
-بسنت افزود که عملیات «طرد اقتصادی» آمریکا در حال قطع شریان درآمدهای نفتی جمهوری اسلامی است و منابع مالی مورد استفاده برای حمایت از تروریسم، تأمین تجهیزات برنامۀ هسته‌ای و زندگی تجملی مقام‌های ارشد سپاه پاسداران را محدود می‌کند.
-این اظهارات در ادامۀ سخنان روز سه‌شنبۀ وزیر خزانه‌داری آمریکاست که گفته بود از ماه اوت تاکنون هیچ بارگیری نفتی در تأسیسات جزیرۀ خارگ مشاهده نشده و ایران دیگر محمولۀ نفتی روی آب ندارد.
-بسنت پیش‌تر نیز اعلام کرده بود که ایران در ماه سپتامبر حتی یک بشکه نفت خام روی نفتکش‌ها بارگیری نکرده است؛ موضوعی که داده‌های شرکت‌های ردیابی نفتکش نیز آن را تأیید کرده بودند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78808)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-22 19:35:49
-
-<img src="https://cdn1.telesco.pe/file/HIXMHxi3uJE4wlRcRATTGdNfS-iKT5wS4JlNANVC0K-dl0pLat8v7PTm2f3SjpWw0C2jNSxlH3X_mDaXy_kGYASHZBnvaG7wskbO5ZGOrDDd5sYLdFp5M3tnIqginrDxnff9JW25qWocawUnm4s7PgDLkdTVp9kW-fVgZ-2hdzBXgPmsF50H6MtlJOGgG4hgykOdCfTb0-9BWvKU_VUksUTjnu37J8i0LrV9U6mKTh6Qg6q0gmnyI002jcpPwLfby5dVyHVLoNNdnZYTGLMuAlEFYfldUomiyfY8Ho4qtT3MrK9pn2Pl0hxwr7eLceUyG93CubRcPx_GpLSPLntYZQ.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنجشنبه ۳۰ مهرماه، در پیامی در شبکه اجتماعی تروث سوشال نوشت که ایران هر کاری از دستش برمی‌آید انجام می‌دهد تا پیش از برگزاری انتخابات میان‌دوره‌ای ایالات متحده، قیمت نفت را افزایش دهد. او تاکید کرد که ایران حتی خبرهای جعلی درباره حملات، مین‌ها و موارد دیگر منتشر می‌کند، در حالی که اکنون حجم نفت عبوری از تنگه هرمز حتی از میزان آن پیش از آغاز درگیری‌ها نیز بیشتر شده است.
-ترامپ در ادامه پیام خود با اشاره به سرکوب اعتراضات در ایران نوشت: «آن‌ها همچنان معترضان و هر فرد دیگری را که بر سر راهشان قرار بگیرد، می‌کشند. این واقعاً یک رژیم شرور است و من فقط امیدوارم مردم آمریکا و جهان درک کنند که آن‌ها تا چه اندازه شرور هستند.»
-رئیس‌جمهوری آمریکا همچنین اعلام کرد که در کمتر از هفت ماه، ۷۵ هزار معترض کشته شده‌اند و افزود: «تکان‌دهنده است که به نظر می‌رسد جهان و حزب دموکرات اهمیتی به این موضوع نمی‌دهند.» ترامپ در این بخش از پیام خود، نام حزب دموکرات را به شکل تمسخرآمیز «Dumocrat» نوشته است.
-ترامپ در پایان پیام خود با حروف بزرگ تاکید کرد: «ایران هرگز نباید سلاح هسته‌ای داشته باشد و آن‌ها هرگز سلاح هسته‌ای نخواهند داشت.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78807)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-22 15:33:20
-
-<img src="https://cdn4.telesco.pe/file/js9TK4lJVSoiZJgN6espx9PVppi_td5p343vhnejhFs2jM1OMamkqMxMhnSkkk6v-nIV1wz36qIde-Vf8Qe97QFcCtqKo1-dU_Holz-_gMdrooQucNQ03B5Yde0kY_BGFvdF61O1EBx7fiQPTTTrv-K70B9vb6ALCTJi3BiSLOjJDMa2Wj5qDyRv02F9PN2XM_kZWQ5RWiA6YHL39luMfUYmkdyWq2czeS94M_i6VxmzCD_5cas5BdrJOQ8XaD13bH0m-K6snt4w8EYnHQuwUlCS22-Jb16x7S2BR54UMxHcgGWhrLai-Exf2EebfPZcTYx5MEe-ZWik_7LTDeou4g.jpg" width="400"><br>
-
-قیمت دلار در بازار آزاد ایران بار دیگر افزایش یافت و به ۲۷۴ هزار تومان رسید. هم‌زمان، بهای طلا و سکه نیز صعود کرد؛ افزایشی که برخلاف روند نزولی قیمت جهانی طلا رخ داده و نشان می‌دهد رشد نرخ ارز همچنان فشار قابل‌توجهی بر بازار طلای ایران وارد می‌کند.
-در معاملات روز پنجشنبه ۳۰ مهر ۱۴۰۵، قیمت هر دلار آمریکا در بازار آزاد به ۲۷۴ هزار تومان رسید. دلار پیش‌تر در ۱۲مهر از مرز ۲۷۰ هزار تومان عبور کرده بود، اما پس از آن تا حدود ۲۶۰ هزار تومان کاهش یافت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78806)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-22 15:32:50
-
-<img src="https://cdn4.telesco.pe/file/ldNoym1PhP7oQWGyog3yNoje7mB6mkOaONF9WUJGE2LB6Tg0vDXb86q6b7tp9CIk31gsJNi1Be4mDZEmUqanFf6snDyS1WGFnGZxR2xKHxJQ8L8tfgAFuqi7VRPepIQ0S15CQIaBF6-oV8yneXiA9PAnoOLnONkDMY90F8ip6Xivvf8hfRkTy-010b5qbQBDGa-zNhafkGsiXSjiqrqG-hnTQkQhJh1eBN8JNIAJCKIUzgABp0vh0hWWO34HTWFb5ToybOwc240P84k-23tOwnDwS6BXuynygK_Ep54W2P5JvLkWZ4w-YDaJQDh7Qcxoadf2gEJABQyTJpZMuPHYaQ.jpg" width="400"><br>
-
-نیروی دریایی سپاه پاسداران مدعی شد چهار کشتی را هنگام انتقال محموله نفتی در خلیج فارس هدف قرار داده است.
-بر اساس اطلاعیه روابط عمومی نیروی دریایی سپاه، هر چهار کشتی همزمان مورد اصابت قرار گرفتند و در آتش می‌سوزند. اطلاعیه افزود این نیرو کشتی‌ها را پس از عبور از «مسیر غیرقانونی» رصد و تعقیب کرده و هنگام انتقال کشتی‌به‌کشتی نفت مورد هدف قرار داد.
-سپاه همچنین مدعی شد شب گذشته سه کشتی دیگر در غرب تنگه هرمز با مین برخورد کردند، دچار حریق شدند و متوقف ماندند.
-اطلاعیه از «معبر غیرقانونی مین‌گذاری‌شده» نام برد و آمریکا را به «تحریک شناورها» برای عبور از مسیر متهم کرد.
-عملیات تجارت دریایی بریتانیا روز سه‌شنبه در هشداری اعلام کرد یک نفتکش در ۳۰ مایل دریایی جنوب شرقی فاو عراق، در شمال خلیج فارس، با «پرتابه‌ای ناشناس» برخورد کرده است.
-سپاه ۲۸ مهر در اطلاعیه‌ای جداگانه از آتش گرفتن دو نفتکش بر اثر انفجار مین در جنوب تنگه هرمز خبر داده و از برخورد نفتکش سومی با مین در همین منطقه گفته بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78805)
 
 ---
 
