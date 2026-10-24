@@ -3,8 +3,27 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-24 17:40:05 </h5>
+<h5> 🟢 Updated at: 2026-10-24 21:13:39 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-24 20:49:04
+
+<img src="https://cdn4.telesco.pe/file/C23E2poWrZLZwTgWJX1nJSGZ6X5_u2cCynGxvFKxKNmPBLVBn8szOhYSw6RzwTthU6ZpL1KKcQD10Hw_jc1u-CzoGYv3IVp23lhy_dZpusn6iNusw3Z8C0v73WuKMxbW3A9qry_DFyWuh-YH_H7tNReJi6Dd3lJW0K6P-McpOaET1wOHDdHTzggyrxc-7dDJsBHqiJ_fysG6KOjBOhrpyQo2d-4ClKmhsKrTCdtkcjEWJT0z1YL-d4lL7n5VkTHhI79IJwYjsHUZWt7rVYwCMEpaq3KVPJ46Y21l721Faa4s3M0YMcSj7aScjxBdPSRkdRck0MsET17zOMZHDgHfRg.jpg" width="400"><br>
+
+رسانه‌های رسمی ایران،‌ روز شنبه دوم آبان‌ماه از دیدار غلامحسین محسنی اژه‌ای، رئیس قوه قضاییه جمهوری اسلامی، با مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی، خبر دادند. این گزارش در حالی منتشر شده است که پیش‌تر مسعود پزشکیان، رئیس‌جمهوری، و محمدباقر قالیباف، رئیس مجلس شورای اسلامی، نیز مدعی دیدار با او شده بودند.
+به گزارش تسنیم، در دیدار محسنی اژه‌ای با مجتبی خامنه‌ای «بر افزایش سرمایه اجتماعی جمهوری اسلامی از طریق گسترش عدالت، تأمین حقوق عمومی، مبارزه با فساد و تسریع در رسیدگی به پرونده‌های قضایی» تأکید شده است.
+تسنیم همچنین اعلام کرد که در این دیدار بر رسیدگی به کوتاهی مسئولان در انجام وظایف قانونی که به وقوع جرم منجر می‌شود، مقابله با زمینه‌های تخلف و پیگیری خسارت‌های مادی و معنوی ناشی از اقداماتی که مقام‌های جمهوری اسلامی به آمریکا و اسرائیل نسبت می‌دهند، تأکید شده است.
+انتشار این خبر در حالی است که با گذشت نزدیک به هشت ماه از نهم اسفندماه، تاکنون تصویر یا صدای جدیدی از مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی، منتشر نشده و رسانه‌های داخلی فقط پیام‌هایی منسوب به او را منتشر می‌کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78830)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-24 15:30:44
@@ -195,7 +214,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-23 19:11:58
 
-<img src="https://cdn1.telesco.pe/file/KL7Bi0AuYApWzHFsAy7mxZ2pqGPl-sxWALPlIzwehco0HkE-uQAcRHqnR5a8MYhbtCLjPWA-JE_NTBo6xg3kZ2j2PpD2ojGnU0FVUksmu4JoNQ51JE3jbkdsUK9e1otzqSX0kX-ATjU50AsBzGJC1VqKbjaWwXgOeOxHW5sgrzTTrO1WcVIRvpLs8bBz6y2PeKYIHVqc2GVEUm_2QRH1fecbYZJORGO0-T63Ym-e3BpKCiivJ3fbneNH7fK3vGxP8599ZSNw7QZ9mAi5RVhgN3ET9Shd8-VaRRiXEXSUixlMS3B5Eqqfw6DNVvXdntyDZztPtRIAT_B0aSEJUVgH4w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Uc31mjnnH1Y67FyV6ThamowfWJS9wPU5g8i6Htnkk5tkPUrQYlGg5hGjwIKKYB9tfzvym6ZnGIXqqau_qjzX9WpKon4wj4icE6Dov8uapBIP4e4JPGeWxEC04EFS88zr23bFBmHiXLXD95ZRdqSqUEgeFdo9DYcAtg3U7cegKJ9sAzRLfs6w5KiVj5GTdAUUx4kGrc1kr_Zd7qcwlcrgG1plvm2ECYRdurt7pRhD5YqBL-3hLgwGysDbPAJPAO-vaZim0vkO5_duPdBz1CRYiq-w3Q2xT4Va-E6dL5hs2MMeodlB8gIV0z11QtRcHzsx6NHhWsTM-bprcT15L2i_PQ.jpg" width="400"><br>
 
 هاکان فیدان، وزیر خارجه ترکیه، گفت کشورهای شرکت‌کننده در نشست استانبول هم‌نظرند که حمله دوباره به ایران، جنگ و درگیری را در منطقه گسترش خواهد داد و دیپلماسی و گفت‌وگو تنها راه است.
 فیدان جمعه یکم آبان پس از نشست وزیران خارجه کشورهای اروپایی و منطقه در استانبول گفت همه حاضران خواستار جلوگیری از گسترش جنگ و برقراری هرچه زودتر آتش‌بس در خلیج فارس و اوکراین هستند. به گفته او، شرکت‌کنندگان تصمیم گرفتند این پیام را به یک شکل به همه طرف‌ها منتقل کنند.
@@ -351,23 +370,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78811)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 06:01:31
-
-
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، در ادامه حضور در کارزارهای انتخاباتی جمهوری‌خواهان پیش از انتخابات میان‌دوره‌ای، بار دیگر گفت درگیری با ایران به‌زودی پایان خواهد یافت و پس از آن قیمت نفت و بنزین کاهش می‌یابد.
-ترامپ در سخنرانی انتخاباتی جمهوری‌خواهان در کارولینای جنوبی گفت: «کار ایران هم خیلی زود تمام خواهد شد؛ به هر طریقی که باشد. برای من تقریبا اهمیتی ندارد که این اتفاق از چه راهی بیفتد، اما به هر حال، این موضوع خیلی زود به پایان خواهد رسید. بعد از آن، قیمت بنزین و نفت شما به‌شدت کاهش خواهد یافت.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78810)
 
 ---
 
