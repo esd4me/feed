@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-24 21:13:39 </h5>
+<h5> 🟢 Updated at: 2026-10-24 23:29:21 </h5>
 </div>
 
 
@@ -173,7 +173,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-23 23:37:23
 
-<img src="https://cdn4.telesco.pe/file/EhIFbaL4gJDkndjoD4IOTbDCwpCp8kNuZi3i-XO4hTZxIKVcn9L4zwsjaM9T7xAVewH3KOP2Yk7K6Qfie4g_mkhhWpaQDBqnO_U4EExFXgRVqkc4hiBuaGaPmg4EJ-sS59Uzjy6bQFbgjc0uXtoEpPxWYgwtywDELocBRwiGd-FXxBHRgvkDbuhbhpt39fWcv4Jj0YgkHBO6VfskIox9oW6htEkDPptoXlfPPxMntqhRnR70OmNojGjYctSW0hq168WWNHrir0OC7BxFKQXHX6srJqyAtlgYZ1MW0cFIGO8YG8-_aVk9roZNOSNEcJJgvTtIulMcEDSb4bhtHazjQg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/neBstyPdx8_VaaFZDX_pwynNxkokYjcqF5teZORKaDkgvlWMgaPIQyGgP3lVX7tFrCSaIqJQ6tjMvDWyDTj5r2SV6fiVyAMgwTiQVg2i8rliFategRl2as202dfxiyuyfIn3uuDm0i4yeZt2GYzBXHn0kvpG1QHpjSTpVAQEf7TpV6BWF8qom-GNRXxccj-Vtmvf7xX7AewuxURbNbJRkOOJfLjFH0sTV101SqIgXkiJB7Q8z-sLLxr6WIOlsRTBhoqnnEf0zoE4E8KkxLars8mAnCZljSGwv16Xp6Y1sLaxEeQ4oWfDNtsCNLTrL4XTmqp79WPwsU0ZI05KaNy3mQ.jpg" width="400"><br>
 
 یوهان واده‌فول، وزیر خارجۀ آلمان، اعلام کرد که این کشور همراه با فرانسه و بریتانیا آمادۀ مذاکره با جمهوری اسلامی برای جلوگیری از دستیابی این کشور به سلاح هسته‌ای است.
 او این اظهارات را پس از نشست هشت کشور اروپایی و منطقه‌ای در استانبول که روز جمعه اول آبان برگزار شد، بیان کرد.
