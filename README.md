@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-25 04:11:56 </h5>
+<h5> 🟢 Updated at: 2026-10-25 09:01:25 </h5>
 </div>
 
 
@@ -142,7 +142,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-24 05:29:39
 
-<img src="https://cdn1.telesco.pe/file/scktMCrdBSRkwEha5KVLmrCqRu5V2PlCHuEbmtYCMcDlXfVIxp4kk4naSbOtaAHT7mSqZm2OtYFkGcXd3RaQJxfhCar7pnfSNdiuzKQng2-y_iOnVUmsh6e2O9jorUUJ72cBp9feKz2T4kKSpHqztKuLmbUkP__B1ZCyFlDiitVStcQLgI1Q9RjZXHAmUyfPqVKHWYLH_2qmhbwuaOoON7nVJwfyKahxlMZ03Mb66fcIcRxVV_zb5r0H-RhV9OiVsWWFkeJmsi8rh7w_WkEaIlXnaVsdasV7bmKMPnQM7cM9VGty7mbPzy38VWM89JreRP7cjJDi-RIzkh8Ss9-lgA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/nU4XeMkv4IDyopRqLELxGZMibreGXy-gmiIx0o9D1aWdmuUg5HOLF8Xlx7hppP6zx7V-MDd_QOUTT-0iYkm3_oxD7CdW8NhQq2lqNHQqC6ev92yOSRjPqPklgGb5nICH7G2-eqPU2plPebBuVHiAXMbrAIDzDME0ahdTrNnhANCpzuB3bXdGUaJIxpMC8QT40cYDRs437NulpvxqdbH8cpII2RuaqEtzSzCY6plqUNBgXiMqGwPwrfNXMx17o620fnf-OXhTA-hWy1vMNW9xDefSbowpCZIVZqptt9M1fkGSOuEflFqDIcUR5lgBErIc-dx9IWAH7Iua-LEOdiR-xA.jpg" width="400"><br>
 
 به گزارش «آکسیوس» و بر اساس یک یادداشت اطلاعاتی «غیرمحرمانه» به تاریخ اول آبان‌ماه (۲۳ اکتبر) که خطاب به مارکو روبیو، وزیر امور خارجه و مشاور امنیت ملی آمریکا نگاشته شده است، جی کلیتون، مدیر اطلاعات ملی، نسبت به «پیشرفت چشمگیر» طرح‌های ایران برای ترور مقام‌ها و شهروندان آمریکایی در خاورمیانه و برخی مناطق دیگر هشدار داد.
 در این سند تأکید شده است که اطلاعات مربوط به این تهدیدات باید به دست طیف گسترده‌تری از کارکنان در معرض خطر برسد و به همین منظور، کلیتون پیشنهاد کرده است تا سطح محرمانگی این اسناد کاهش یابد.
