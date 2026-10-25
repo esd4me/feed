@@ -3,8 +3,130 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-25 13:55:43 </h5>
+<h5> 🟢 Updated at: 2026-10-25 18:11:27 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-25 17:44:13
+
+<img src="https://cdn4.telesco.pe/file/LBY-x_SENz3_5KG7XFlOWSsGO9VcTMKsW4i2c8fGes8coon3wq_0jpP72EQz-BZWwsPWc94GAtJnn27CuroTNK3keNstY6tg-ReMICwGq2stTTymxV72fRQaAJJtyW3-JZeowVlTwfk6gQmNQpei9dC5UPsy6JKIgaWVGDDHTQJSg6-QWv4r5jmq9cHA2PKhzbAt3W5kNfmuHnQVK9Ke86HlF475Bhy2iA60xxFMvLoFqli4ah4F8F5Optbo65v7ZZKA2PtK7j5xwd8YlBRoqeMeIFra7O9sWBDgeUtIc_7gsLeDBzzdsDUZUNIm-IX49fb5PwBNc8agKqc4EmfS-Q.jpg" width="400"><br>
+
+خبرگزاری رویترز، یکشنبه سوم آبان به نقل از یک مقام آگاه گزارش داد که میانجی‌گران قطری در چارچوب تلاش‌هایی برای کاهش تنش‌های منطقه‌ای و با هماهنگی آمریکا به تهران سفر کرده‌اند.
+این مقام که در جریان تحولات قرار دارد، به رویترز گفت حضور میانجی‌گران قطری در تهران بخشی از تلاش‌های هماهنگ با آمریکا برای کاهش تنش‌ها در منطقه است.
+نشریه هیل به نقل از منابع آگاه گزارش داد ارتش آمریکا چند گزینه برای حمله دوباره به اهداف حکومت ایران پس از انتخابات میان‌دوره‌ای سوم نوامبر آماده کرده است. اجرای این طرح‌ها به تایید دونالد ترامپ بستگی دارد و هنوز تصمیم نهایی اعلام نشده است.
+بر اساس این گزارش که شنبه ۲ آبان منتشر شد، فرماندهی مرکزی ارتش آمریکا، سنتکام، طرح‌هایی برای حملات بیشتر به اهدافی در ایران تهیه کرده است. یک منبع گفته این طرح‌ها در صورت صدور مجوز رییس‌جمهوری قابل اجرا خواهند بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78843)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-25 17:43:58
+
+<img src="https://cdn1.telesco.pe/file/kfgKdcUgSkEnS0ljXopZ1a-Drt8grdsqx_iwvTCSY5pKGNLzfhcxknHK-5iFqW8VPi8CTZBD6tW4QEDOKLwCF4-_D-RtCnRdNlVYOlCn8cD83o6LQl97RRiXx2RHN6k_FXrrg-cez-T9ULN_EcTBNoxYUbvpUgqJ7SEg33ZMRpVfisGHP2q5MIh9S7vN5JflJCE_Cp4A2UeWfNB6o6hUsXStF8oP-JrXn5rqt_t3QSe7DTBsM6NLa_h9NXx-q1ysGkjbVSz4tdC0GBbnHu8IyIEyjRyl4D9tYA_KW8DbhTHkABW0lajAjK8f7ugnNblazZYD83Wjka5mYKIWo9yqcQ.jpg" width="400"><br>
+
+مرکز رسانه قوه قضاییه از صدور کیفرخواست برای سعید شکیبا، دوبلور، بلاگر و طنزپرداز، با اتهامات «اقدام آگاهانه در تایید اسرائیل در فضای مجازی، اهانت و فعالیت تبلیغی علیه نظام جمهوری اسلامی از طریق سیاه‌نمایی و حمایت از پهلوی» خبر داد.
+شکیبا پیش‌تر و در پی انتشار ویدیویی با تقلید صدای علی خامنه‌ای، بازداشت شده بود. پست‌های صفحه اینستاگرام او نیز حذف شده‌اند.
+قوه قضاییه چهارشنبه ۲۲ مهر از تشکیل پرونده برای این هنرمند در دادسرای تهران خبر داده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78842)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-25 15:04:00
+
+
+
+انتشار ویدئوهایی از اجرای حرکات آکروباتیک و انعطاف‌پذیری زنان در نمایشگاه «فیتکس» در بوستان گفت‌وگوی تهران، با واکنش رسانه‌های حکومتی و درخواست برای برخورد قضایی با برگزارکنندگان همراه شده است.
+خبرگزاری مهر در گزارشی با عنوان «ضرورت ورود دستگاه قضا به نحوه برگزاری نمایشگاه فیتکس»، خواستار بررسی مجوزها، نحوه نظارت و تخلفات احتمالی شده است. خبرگزاری تسنیم نیز با توصیف تصاویر این نمایشگاه به‌عنوان «ناهنجاری گسترده»، خواستار مداخله مسئولان ورزشی و نهادهای ذی‌صلاح شده است.
+صداوسیمای جمهوری اسلامی نیز تصاویر اجرای زنان را به‌صورت شطرنجی پخش کرده و ضمن انتقاد از صدور مجوز برگزاری نمایشگاه، خواستار ورود دستگاه قضایی و برخورد با مسئولان و عوامل برگزاری آن شده است.
+در واکنش به این انتقادها، «حبیب ستوده‌نژاد»، مدیرکل ورزش و جوانان استان تهران، اعلام کرده که نمایشگاه زیر نظر این اداره کل برگزار نشده و مسئولان آن از برگزاری نمایشگاه اطلاعی نداشته‌اند.
+هم‌زمان، گزارش‌هایی از توقیف حساب‌های اینستاگرامی شماری از ورزشکارانی منتشر شده که تصاویر حضور خود در نمایشگاه فیتکس را به اشتراک گذاشته بودند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78840)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-25 14:53:47
+
+<img src="https://cdn1.telesco.pe/file/lcbOpfr9peT-K-h9_fRXvEFGj9IX-qfo6jgAERdOUEQLNHQxlEiAvSYOloGjF2gW1BTq-27QbpgshK-hmncXSAOs16FEX6MrVFCLd2X7aE7I-0cmx5XPe0QbXpD_3-Efwz0TIGfzdodceX-aet4qwgYApS1JxKLAvrvCqgkj7Po9Ioo0HnHHiLbtx_FOv9X_owXjyyy8U6r9kseD0Cy9N2saoCeOoPSMdvTibdsyUC81aKDimsYh0xS-6o-dSZxBKsQMP_kNb6K-RAddz07kjrEWUdBgWx_IrYOnq264ByS1nIfK0u6IZ17cQnXJL0edtOfj8GhW6ust908d6Aw4sQ.jpg" width="400"><br>
+
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه ۳ آبان با اشاره به احتمال ازسرگیری جنگ با آمریکا و اسرائیل گفت سیاست‌های تهران در هر صورت تغییر نخواهد کرد و ایران برای دوران پس از جنگ نیز برنامه‌ریزی می‌کند.
+عراقچی در مراسم بزرگداشت کمال خرازی، وزیر پیشین امور خارجه و افتتاح مرکز اسناد وزارت امور خارجه به نام او، اظهار کرد: «این روزها حرف از جنگ دوباره زده می‌شود. من از الان به بعد از جنگ فکر می‌کنم. جنگ چه بشود چه نشود، سیاست‌های ما سر جای خودش است.»
+او با اشاره به دو دور جنگ پیشین گفت که اگر طرف مقابل بار دیگر حمله نظامی را امتحان کند، نتیجه متفاوتی نخواهد گرفت. عراقچی همچنین تأکید کرد که در صورت وجود عقلانیت، حمله دوباره به ایران نباید تکرار شود.
+@
+VahidOOnLine
+رییس مجلس شورای اسلامی در نطق پیش از دستور جلسه یکشنبه سوم آبان گفت: «ما مرعوب نمی‌شویم و آماده‌ایم تا در مقابل هرگونه جسارت به تمامیت ارضی، پاسخی خارج از تصورشان بدهیم؛ لذا تهدید به جنگ گسترده یا ترور، مسئله‌ای نیست که باعث کوتاه آمدن جمهوری اسلامی از حقوق و منافع خود شود.»
+محمدباقر قالیباف افزود: «تا زمانی که آمریکایی‌ها تغییر رفتار ندهند، دست از خوی زورگویی و طمع‌ورزی برندارند و تعهدات نقض‌شده خود را به ‌صورت عینی، ملموس و واقعی روی زمین جبران نکنند، هیچ ادعایی برای جمهوری اسلامی ذره‌ای اعتبار نخواهد داشت.»
+او همچنین گفت: «همان‌طور که پیش از این نیز اعلام کرده‌ام، ما حرف جدیدی نداریم؛ این آمریکا بود که با محاسبات غلط و جنگ علیه ایران، وارد باتلاق شد و اکنون هم آنها هستند که باید اقدامات لازم برای نجات خود را انجام دهند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78838)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-25 14:53:12
+
+<img src="https://cdn4.telesco.pe/file/SBKXWAPmbUcD94Hd1OoZMK6w5VgwHd8-6HY6DrahSF6d02q_eMsycrjHGU7-166v-Y3rhVzfICNah6mlpuyPCMKdOsNzZmznz-yYL5yMyvF2GKHZEwVcjFo2B6C735ov3O1ZbsJG0nto6YMzkMCbn-ECjRi3YZozkx9W8vcuQ8TYJuxPJlA28a1TC9clm5hugw9AtzTsZpU0UY7SvUsYIqjP-eApP0CFr72lnTP6Duz0H_a-jEiPrYZVlVwBMkDItonrgd_CqLd-uWvYHKEWP4t1mTOTG1bodl2NIhjODpEWhVs55--8aiM0Drf-Gg--gNgDXNej36LSyoDvTuVyDg.jpg" width="400"><br>
+
+رسانه‌های داخلی در ایران گزارش دادند که سپاه پاسداران در حمله‌ پهپادی پایگاه‌های یکی از احزاب کرد مخالف حکومت ایران را در اقلیم کردستان عراق هدف قرار دادند.
+️بنابر گزارش خبرگزاری مهر، سپاه پاسداران در عملیاتی که «اقدامات پیش‌دستانه آفندی» خوانده است، شب گذشته یک پایگاه کومله در منطقه بالیسان را هدف قرار داده است.
+کومله انقلابی زحمتکشان کردستان ایران شامگاە شنبە دوم آبان اعلام کرد یکی از پایگاه‌های این گروه در نزدیکی مرز اقلیم کردستان عراق با ایران، هدف حمله پهپادی قرار گرفته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78837)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-25 14:44:07
+
+<img src="https://cdn4.telesco.pe/file/Fp-fxJfKMeCtnzaWxiHiiH4o_X2o-2Y-A4iZOv00EpuqCGLZwlZ1gnzNkUYSqHnQOfL2RVn-oOWuP5vzW_LQDgiYc-wDFWIAip6Cbe_MNaOWjZlefG3IDoLBqRgS0P3h8HqIF4-LcqBCYVRAHflVQQDnUfHwRqCk8JleaPqbYSi1RPeMsabXOdjY7liFjbI1tR0QaLansUGNagaOCcE4SJjqNRTwTG3r5kk8jmValB3bjFTm7KBHiGsAJh8vTE3PEZf47h6NWhwBzZbLtg8F4rv3c4FQIXZGvHz2-Vaut-sPIcgHU5321628wb0hGH_nokpx36kf1gseyuI2Q9VMyA.jpg" width="400"><br>
+
+دادستان عمومی و انقلاب قم از اجرای حکم مصادره تمامی اموال منقول و غیرمنقول «صادق ساعدی‌نیا»، مدیر کافه‌های زنجیره‌ای ساعدی‌نیا و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، خبر داد. به گفته این مقام قضایی، رمزارزهای متعلق به او نیز توقیف شده است.
+«علی‌اصغر سلطانی» اعلام کرده است که اموال ساعدی‌نیا توقیف شده و اقدامات مربوط به مصادره آن‌ها نیز انجام گرفته است.
+او بدون ارائه جزئیات تازه‌ای از مستندات پرونده، ساعدی‌نیا را به «همکاری با دشمن» در جریان اعتراضات ۱۸ و ۱۹ دی متهم کرد.
+پیش‌تر دیوان عالی کشور حکم ۱۲ سال و شش ماه و یک روز حبس تعزیری، مصادره تمامی اموال به نفع دولت و دو سال ممنوعیت کافه‌داری پس از پایان حبس را برای ساعدی‌نیا تایید کرده است.
+عنوان اتهامی مبنای این محکومیت، «فعالیت رسانه‌ای و تبلیغی علیه امنیت کشور به نفع گروه‌های معاند» اعلام شده بود.
+قوه قضاییه انتشار مطالب اعتراضی در اینستاگرام، حمایت از فراخوان‌ها، تعطیلی کافه‌ها و فروشگاه‌های مجموعه و تشویق کارکنان به شرکت در اعتراضات را از مصادیق اتهامات او عنوان کرده است.
+جلسه رسیدگی به اتهامات ساعدی‌نیا روز ۲۷ اردیبهشت ۱۴۰۵ در دادگاه انقلاب قم برگزار شد. او در دادگاه اتهام تشویق کارکنان به حضور در اعتراضات را رد کرد و گفت تعطیلی واحدهای صنفی با هدف اقدام علیه جمهوری اسلامی انجام نشده است.
+صادق ساعدی‌نیا، متولد ۱۳۵۶، در دی‌ماه ۱۴۰۴ بازداشت و به زندان لنگرود قم منتقل شد. در جریان رسیدگی به پرونده نیز دستور پلمب تمامی شعب کافه‌های متعلق به او صادر شده بود.
+برخورد قضایی با این خانواده به صادق ساعدی‌نیا محدود نمانده است. پیش‌تر رییس دادگستری نوشهر از توقیف و پلمپ اموال و مسدود شدن حساب‌های بانکی «محمدعلی ساعدی‌نیا»، پدر او و از کارآفرینان این مجموعه، خبر داده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78834)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-25 01:58:05
@@ -81,7 +203,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-24 15:27:10
 
-<img src="https://cdn4.telesco.pe/file/JnB0AOgbhiB9P8G2FBilUUjar5E1ZEambu9DWBYCqfde5Ef72CNBWj-n3mrG1QdyIP-TjHmSC60myE0Juxu0LCa5JIcKM3JwXngs0ijQ1Vo5RdDhd260cD8BvDX-fXpBUqzQLjKWa2U-CegeJ1EEYi1mB-nBICBN8bwikXqAgT7S3itmSjYiRktlJeUe8zBmKInB5XjavPkjhfVj50ob90Z0qPTky1ddXa4rRWSff4VNhuVpPGzP6_YFte5uySo3ig1UY2gRy8JBU5TBhvdC4VVGBUcW2YCqd8ht2t1ioOUYHPsoO9s576armyr37iy1Wmypnp-bx5O_ZJ8_riDWjw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/VBBHiUzUO-7Ti2kxVgSiEPxsQw0A7qYgcxV_Di8eHu_bprgMncyV6VAUu5Yj9lLfTb7LCSBJsDKavBGYmxpwKJabWls5_MRedprXwmIf8rninhjf8hmKSJjc4jW0EG9f3hZkP-QFgNeZfjLs-9cdIlmo4YinqDyVLdTN_BHt-RNKKHDHf-p_JA7caPnCGlMRjXPyHEv48pDi2Yb0cRdKUSsJf6SKIX21snG6121PGTrMpIVXGUUfTilXDPzgq0P3eDmCqMS_QHuGUxOLjvd0mQH0iM99KYsY5tlp0EwXuG0V_jYc1RKrcQiYNEEnLbG8Ebdwxi9pUPe_aVJakA67Lg.jpg" width="400"><br>
 
 دو مقام ارشد امنیتی جمهوری اسلامی به رویترز گفتند که تهران طرح‌های مفصلی برای هدف قرار دادن کابل‌های ارتباطی زیردریایی در خلیج فارس تهیه کرده است که در صورت حمله دوباره آمریکا و اسرائیل به ایران ممکن است به اجرا گذاشته شوند.
 این دو مقام که نخواستند نامشان فاش شود، جزئیاتی درباره محل و شیوه اجرای احتمالی این حملات ارائه نکردند، اما یکی از آنها گفت که ایران ممکن است برای جلوگیری از تعمیر کابل‌های آسیب‌دیده نیز اقدام کند تا اختلال در ارتباطات، از جمله اینترنت، طولانی‌تر شود.
@@ -99,7 +221,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-24 15:26:07
 
-<img src="https://cdn1.telesco.pe/file/Ad8FRDG89jMI4F3OdZUI5I-mTIep53RbTKKxMi5SNOrOw3sX8EPPXJ2XTGYn6duyc9gQtj7TvQs68JxKWrbFTk2myYN2cjoixO4otQbhFTzd4wzUwePLNNdus7Xp0qbdH9hBhHTc_Gxb1yufp5whOqN9rVBOMiKvTjYXyCVZG7UClLfC-3rhdbDRX7WwDFn8197Mi5pZPx6tTxHRsNkarcQdy4W_96mn7PRvorPnVMGFHJ9nnUVIpyMYKt0wnql_P3gbD7Bhu2Ckfi2P06JSCD883ODrSPUFBEYCmHErM6gNrK6sfB-QYzbAY_LyPSQ-BqBiBpHa4eMaOeY6v4cXQA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/EL_LXOR7W1Dkazj5hl39OPiXjQ1xXR4vrhdP9inuNRqnjZ_XYlo0aw7ZPEyaeJDOtYzyBM8IKjcSghJSBjZJ8R3tQREiasHM5j_mk_mAEdEQlBGtl8rIYQtbY29Mc85RtFL1gtU8DnS19BbgZ9P4WkCW6ome7cRdEJ0weLmi76XK1jC-DvoAqmBuzF1AhgEDs5m4Rntid0c3-X7CPJWkSJyf4VKENHBOBg2zeBUB-JloXdJSnblOcf_USqO77eapqjF8dt6VtUZNxQvWZOpbiEL5_IipXcyx-WzcqPMN4tJlp28fS-fT-k1UmQr35hmxVaOn8H7UFDHRSUsN429Ntw.jpg" width="400"><br>
 
 ائتلاف نظامی به رهبری عربستان سعودی روز شنبه دوم آبان اعلام کرد که دو موشک شلیک‌شده از سوی حوثی‌های یمن به سمت شهرهای طائف و ینبع در غرب این کشور را رهگیری کرده است.
 این خبر اندکی پس از آن منتشر شد که سازمان دفاع مدنی عربستان درباره «خطر احتمالی» در چند منطقه غربی این کشور، از جمله مکه، طائف و ینبع، هشدار صادر کرد و از ساکنان خواست به نزدیک‌ترین مکان امن پناه ببرند.
@@ -123,7 +245,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-24 15:23:57
 
-<img src="https://cdn4.telesco.pe/file/NxASvs_skKypIUput-kJFsAZrioQUhqzunQy68TgfeLM_f7_IZuBYhsZ3729Wj6E4FZz-B1fER_YyTNnU1SVseUNMEAiBPhgicvvwNRfYg_ohAyVe_cNzSGYCAFxPeHHAQXFC2MFCtsuiDgBqK2nsb-wSAn9CTtP9e5j0pQnUGwjov9cWynah7d_mPxsnia6SmhExG3irLLu4Pl0LFyC26DbakDgq0kWG7db0aPLcwlCCiYEXHnKIk7w0eJeOvDqDQYnUFFY_te8uId37arqN6FhVJDf3FJgi2KNSCJsGmNhCRQRGA1wJ39xK3VbbWbFaM55cFDakF3RHTvyJqZYPg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OWFHHJqFOfno0HGAmxJ4SigrKyluD83InjJZWFtojgId-3gubyluk3wxYFE5Vy1FnJxnqhHqwBhriW4EQzLLybkK4J9QiR7Hh_cVYzCJyup6pOnWYg1iJ9b7s-9qot62KOHBWh3_0IUJPfPYLtEoJsLnSSJz5u5McqgR3xtPMyk_BptLHOZCnApMt_ObQbHlGChSaB3KhPl2EESEY5_DwTyJxeV1cHthOelQFj_IxdbXFqNXOphwa5nuodF7lpXH0RpiBN3Bi5kNGnZWRDd41Ffd0KXZgLWkpAQ5wtWV2fQz_VCgLmBpkYSJmgFByWbPeTxMNs03t3MMLhdSXhl1xw.jpg" width="400"><br>
 
 مای ساتو، گزارشگر ویژۀ سازمان ملل در امور حقوق بشر ایران، از قربانیان نقض حقوق بشر، خانواده‌های آن‌ها، مدافعان حقوق بشر، سازمان‌های مدنی و کارشناسان خواست اطلاعات و مستندات خود را برای تهیۀ گزارش بعدی او به شصت‌وچهارمین نشست شورای حقوق بشر سازمان ملل ارسال کنند.
 بر اساس فراخوان منتشرشده در وب‌سایت دفتر حقوق بشر سازمان ملل، این گزارش علاوه بر بررسی تحولات حقوق بشری ایران، به‌ویژه از شهریور ۱۴۰۵ به بعد، بر سرکوب فرامرزی، فشار بر خانواده‌های قربانیان، حقوق زنان و تبعیض جنسیتی متمرکز خواهد بود.
@@ -181,7 +303,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-23 23:38:01
 
-<img src="https://cdn1.telesco.pe/file/Itiz3jgejLflLXmz9zERA56stxzB0utuZAUWHzeWbsLb9kbvuHIJd8yqH2RNxWCxYk1ZyC6o9-KxCzvia9ZeUO8rNki-kVJ66K4It7Y0aZpvC5C68v5BMVwc2mdVilC0JN6QAGThxQtcEeMA55EDjNtL5Ac2UO1BW-F534IjOggCAhTaa4vdT_S4UBzHEeRKy4IoE77IS8vgHUN85lQoF-k_OGWQPg0t-WGO-80mPYmkZFE9HNWrHfpBLQaYANETtWvNTER1Zdh8leOzvB8OI9NJdIKzbWiirnAKsIzwoNtXKrJS4KM5aCqFZxoofZwBQS6Lj4lRjEg49aOwptWAww.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VtHJIG9mujFGJs9mNHtxqQpBumdo_vbqmm9h9klMPEB0YZtPRE9zfZ58TqqjV2aElYNLjb8P0vAuDGxO7-igvo1x6fJkJW70QLA409Cc4U3GiKWtdFOEvyHtnEmxcnMmRh6OAWkJPsUvQPslmLHJysPP1k1knZ_d2Vu5R8DT7BhLDdHD6WhZb_AiIJXUpLctORRgL8v9gqORMt5fu20ivEPC1bJ8TUnX0cN42EmTFPGPUtEqbYHXPT4U-7S1wVpSm2xux4IhgwlFrT9yhlUUjbJyNKD0ZwtPSLdotqWuSMoBTLbxtLoyuuz5NtjaVGGrWYGLu9UUyJlZXEpTEcZfTQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا که برای سخنرانی در یک تجمع انتخاباتی به فلوریدا سفر کرده است، نسبت به اظهارات اخیر تام باراک ابراز بی‌اطلاعی کرد.
 باراک، سفیر آمریکا در ترکیه روز جمعه اول آبان در پاسخ به پرسشی درباره احتمال حمله آمریکا به ایران در روزهای آخر هفته، پاسخ داد «قطعاً».
@@ -217,152 +339,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78821)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 19:13:11
-
-
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه اول آبان‌ماه در اظهاراتی درباره ایران گفت که واشنگتن می‌تواند «خیلی سریع» به وضعیت کنونی پایان دهد، اما این پرسش مطرح است که آیا باید «کار را یکسره کرد» یا اجازه داد ایران به‌تدریج تضعیف شود.
-ترامپ با توصیف ایران به‌عنوان «کشوری رو به زوال» گفت: «ما هر مقدار نفتی را که بخواهیم خارج می‌کنیم. این را در تنگه هرمز و با نیروی دریایی ما می‌بینید.» او افزود که آمریکا تنگه هرمز را برای ایران مسدود کرده است، اما دیگر کشورها همچنان می‌توانند از این مسیر نفت منتقل کنند.
-رئیس‌جمهوری آمریکا در ادامه گفت: «در واقع، هفته گذشته بیش از هر زمان دیگری نفت خارج کردیم، حتی بیشتر از دوران پیش از جنگ.» او این موضوع را یکی از اصلی‌ترین نقاط اختلاف توصیف کرد و گفت که اکنون آمریکا کنترل این وضعیت را در اختیار دارد.
-ترامپ با اشاره به شرایط اقتصادی ایران افزود: «آنها تورم دارند، پولی ندارند و سوال این است که آیا می‌خواهیم کار را یکسره کنیم یا فقط می‌خواهیم بگذاریم به‌تدریج از پا درآید؟»
-او در پایان گفت که آمریکا در حال دستیابی به تمام خواسته‌های خود است و میزان نفتی که اکنون از تنگه هرمز خارج می‌شود، از یک سال پیش بیشتر است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78820)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 19:11:58
-
-<img src="https://cdn1.telesco.pe/file/Uc31mjnnH1Y67FyV6ThamowfWJS9wPU5g8i6Htnkk5tkPUrQYlGg5hGjwIKKYB9tfzvym6ZnGIXqqau_qjzX9WpKon4wj4icE6Dov8uapBIP4e4JPGeWxEC04EFS88zr23bFBmHiXLXD95ZRdqSqUEgeFdo9DYcAtg3U7cegKJ9sAzRLfs6w5KiVj5GTdAUUx4kGrc1kr_Zd7qcwlcrgG1plvm2ECYRdurt7pRhD5YqBL-3hLgwGysDbPAJPAO-vaZim0vkO5_duPdBz1CRYiq-w3Q2xT4Va-E6dL5hs2MMeodlB8gIV0z11QtRcHzsx6NHhWsTM-bprcT15L2i_PQ.jpg" width="400"><br>
-
-هاکان فیدان، وزیر خارجه ترکیه، گفت کشورهای شرکت‌کننده در نشست استانبول هم‌نظرند که حمله دوباره به ایران، جنگ و درگیری را در منطقه گسترش خواهد داد و دیپلماسی و گفت‌وگو تنها راه است.
-فیدان جمعه یکم آبان پس از نشست وزیران خارجه کشورهای اروپایی و منطقه در استانبول گفت همه حاضران خواستار جلوگیری از گسترش جنگ و برقراری هرچه زودتر آتش‌بس در خلیج فارس و اوکراین هستند. به گفته او، شرکت‌کنندگان تصمیم گرفتند این پیام را به یک شکل به همه طرف‌ها منتقل کنند.
-وزیر خارجه ترکیه همچنین خواستار بازگشایی فوری تنگه هرمز و توقف حملات به عربستان سعودی شد و گفت در نشست، ابزارها و روش‌های دیپلماتیک برای دستیابی به این اهداف به‌تفصیل بررسی شد.
-او اختلال در عبور از تنگه هرمز و باب‌المندب و از میان رفتن تقریبی امنیت کشتیرانی در دریای سیاه را عامل فشار گسترده بر تامین انرژی، مواد غذایی و تجارت آزاد جهان دانست.
-به گفته فیدان، جنگ اوکراین، وضعیت ایران و تنگه هرمز، حملات به عربستان سعودی و نقش بالقوه بی‌ثبات‌کننده اسرائیل در منطقه از موضوعات مذاکرات بود.
-@
-VahidOOnLine
-ژان نوئل بارو، وزیر امور خارجه فرانسه، روز جمعه اول آبان‌ماه در حاشیه نشست وزیران امور خارجه گروه R4 (ترکیه، مصر، پاکستان و عربستان سعودی) و E3 (بریتانیا، فرانسه و آلمان) به همراه ایتالیا در استانبول هشدار داد که تشدید دوباره تنش‌ها میان ایران و ایالات متحده، تنها بازنده بر جای خواهد گذاشت و پیامدهای سنگینی برای قیمت نفت و سوخت به همراه خواهد داشت.
-بارو در گفتگو با خبرنگاران گفت: «تشدید دوباره تنش‌ها میان ایران و ایالات متحده هیچ برنده‌ای نخواهد داشت و بدون شک پیامدهای بسیار سنگینی بر قیمت سوخت‌های فسیلی و در نتیجه قیمت بنزین برای شهروندان فرانسوی خواهد گذاشت.»
-وزیر خارجه فرانسه با اشاره به تلاش‌های دیپلماتیک گذشته برای کاهش تنش‌ها گفت که توافق میان تهران و واشنگتن، با وجود آنکه اکنون به‌طور کامل اجرا نمی‌شود، دست‌کم به کاهش شدت حملات دو طرف کمک کرده است. او همچنین به حملاتی اشاره کرد که کشورهای اروپایی از جمله قبرس را تحت تأثیر قرار داده‌اند.
-بارو تأکید کرد که نخستین اقدام این گروه، درخواست از ایران و آمریکا برای رعایت حداکثر خویشتن‌داری خواهد بود. او افزود: «ما نمی‌توانیم تشدید دوباره تنش‌ها در منطقه را تحمل کنیم.»
-این نشست به ابتکار ترکیه برگزار شد و وزیران امور خارجه کشورهای شرکت‌کننده درباره درگیری‌های منطقه‌ای و تهدیدهای متوجه امنیت و مسیرهای کشتیرانی گفتگو کردند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78818)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 19:08:39
-
-
-
-تلویزیون دولتی اردن گزارش داد که در پی تیراندازی در داخل یک کلیسا، دست‌کم هفت نفر کشته و ۱۰ نفر زخمی شده‌اند.
-به گفته این رسانه، دو فرد مسلح به حاضران در کلیسایی در روستای حمود، در استان مرکزی کرک، تیراندازی کردند.
-مقام‌های امنیتی در تعقیب مظنونان هستند و هنوز جزئیات بیشتری از این حادثه منتشر نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78817)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 16:40:42
-
-<img src="https://cdn4.telesco.pe/file/mT9w4Js92WxzFRpAcDbolWu7u58gWgtMxJqvM_5Hk40_ZuKYQZWzJ1myYZBc-zNnV4Vzh3p9ImVjYNLUyYJ4lRtIjdUGJBxCuzWLctGRPT4ZYe56UimROFTLlIu-OW0CdBSwrIgia3kyhchR6tPENv7_N0eze70snb6ypnaD1N7uvWGZYc8u1eWcVX4AxHgmMVWvNOwel0vMiDt4PV5k1wr8IKvJ1lk2asO4oLFFkhueUUSlMNLNdln6OR3bJyvSgKOjzDzAp40KDF9HpLS6RhX0SytlK61cOq_lKHPRpWl_Lcps4YCpmhB2sH-Cak5VqMtPelhJV5yQ1DCW5jDROA.jpg" width="400"><br>
-
-خبرگزاری فارس، وابسته به سپاه پاسداران، روز جمعه اول آبان ماه به نقل از یک مقام آگاه نزدیک به نیروی دریایی سپاه گزارش کرد، تردد «شناورهای متخلف» در تنگهٔ هرمز به‌طور کامل متوقف شده است.
-به ادعای فارس، این تحول پس از انهدام «سامانه‌های کمک‌ناوبری مورد استفاده این شناورها، اصابت به ۳ نفتکش در روز گذشته و انهدام یک نفتکش دیگر در شب گذشته» روی داده است.
-این مقام سپاه پاسداران هشدار داد در صورت ازسرگیری «قاچاق نفت»، برخورد با کشتی‌های متخلف و سامانه‌های فنی پشتیبان آن‌ها با شدت بسیار بیشتری انجام خواهد شد.
-به گفته این منبع نزدیک به سپاه: «مداخلهٔ مجدد نیروی هوایی ارتش آمریکا و حمایت از قاچاق نفت با پاسخی مستقیم و قاطع‌تر مواجه خواهد شد و مسئولیت عواقب آن برعهدهٔ ارتش آمریکا خواهد بود.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78816)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 16:39:37
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/78815)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 16:38:12
-
-<img src="https://cdn1.telesco.pe/file/oW_NOS1GoqhjgssWCi1bsa81sHdqkjm96F71AL81pFk_VUs7B0DIZl2KlrSqjcXU5lgku2KZiUMMWJMC8h1dCNPGFn3FxXJyX08iHj_O3qZ8-l1VVFM9aOTGoKPSaRQRRZC39xcRmYQDP3Ho0xYgtq-Z_G492JeoLCwNMtsZycTXVPy6AcC5HokXI9AKcO3HpKlQQdP6E84-ahRiOgvLY4gXssC8Tx-8rWOCbAMmRst_C2u4vrVsnDY1iGpFypYKtqnO8kDcoBK0xgZzRlKwMSa0QNLLXxara1Ab0xKzv2xQn-TvJeNmUYMm8eAgdXOBgaCawC7NRo545D1aJaMl9A.jpg" width="400"><br>
-
-در پی حمله مسلحانه دو فرد فلسطینی به منطقه تقاطع یهودا در جنوب کرانه باختری، پنج اسرائیلی زخمی شدند که حال دو نفر از آن‌ها وخیم گزارش شده است. ارتش اسرائیل اعلام کرد نیروهای این کشور هر دو مهاجم را کشتند.
-به گفته نیروهای امدادی حاضر در محل، سه نفر دیگر از مجروحان این حمله که روز جمعه یکم آبان رخ داد، جراحات خفیف تا متوسط دارند.
-ارتش اسرائیل اعلام کرد نیروهای این کشور در تقاطع یهودا، واقع در جاده ۳۵، به سوی مهاجمان تیراندازی کردند و دو فرد مسلح فلسطینی را کشتند.
-ارتش اسرائیل همچنین از محاصره منطقه و ادامه عملیات جست‌وجو خبر داد.
-ایال زمیر، رییس ستاد ارتش اسرائیل، گفت اقدام سریع نیروهای این کشور از وقوع حمله‌ای گسترده‌تر جلوگیری کرده است.
-او در نشستی با افسران ارتش برای بررسی این حادثه گفت: «این حمله‌ای جدی بود. اقدام سریع نیروها از وقوع حمله‌ای حتی شدیدتر و آسیب بیشتر به غیرنظامیان و نیروهای امنیتی جلوگیری کرد.»
-زمیر افزود: «مقدار زیادی مهمات در خودرویی که تروریست‌ها با آن به محل حمله آمده بودند، پیدا شد. قرار بود از این مهمات برای اجرای حمله‌ای در مقیاس بزرگ‌تر استفاده شود.»
-@
-VahidOOnLine
-آپدیت:
-ارتش اسرائیل اعلام کرد که دو سرباز اسرائیلی که صبح امروز در شهر الخلیل هدف تیراندازی قرار گرفته و مجروح شده بودند، بر اثر شدت جراحات جان باختند.
-به گفته مقام‌های ارتش اسرائیل، دو مهاجم مسلح که گمان می‌رود فلسطینی بوده‌اند هم به ضرب گلوله کشته شدند.
-در این تیراندازی که در شهر الخلیل در کرانه باختری اشغالی رخ داد، پنج سرباز اسرائیل مجروح شده بودند که از وضعیت سه سرباز دیگر گزارشی منتشر نشده است.
-محل تیراندازی یک ایست‌بازرسی نظامی در ورودی شهر الخلیل بود.
-پیش‌تر گزارش دادیم که در پی این حادثه، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، دستور داد شهر الخلیل تحت «محاصره و محدودیت‌های شدید» قرار بگیرد.
-آقای نتانیاهو همچنین گفت که ارتش اسرائيل از وقوع یک «حمله بزرگ» جلوگیری کرده است.
-ویدئوهای منتشر شده درگیری مسلحانه‌ای طولانی میان نیروهای اسرائیلی و افراد مسلح فلسطینی را در نزدیکی یک ایست بازرسی نظامی، در ورودی شمالی شهر الخلیل، نشان می‌دهند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78814)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 16:36:22
-
-<img src="https://cdn4.telesco.pe/file/d7KWn1lb8bnVpAl9ChYVXdRRf0MjmbNFTpFx1Fv22DVWDKoJjJYDVDOcHI50Ht3D6eM8cIGZzqgOCPg1yYFvBePbX3OLg2seVluGIDow-Nm0bE3ekZB0gykBru60ZZO2xwb7Q-qROfwZtXo4W9oOHVeCCHzVIbl4vd1VOcYiewHLdTwrL9Ws7tMgjP9aGDg-OCuive8l-piK7xY797upHazJy1433AxtFzxijHFr0dg67r0rlDR7FsX2RW_Rs1ZzerWNesU6lb29RDJj-_Aw5uG-7NNpH3_majaImfctkIP3iG26CDZ9M4abZd-KQ-q9jlHblHkmt_6kd02mUsft0Q.jpg" width="400"><br>
-
-روزنامه وال‌استریت ژورنال، روز جمعه اول آبان ماه، گزارش داد مقام‌های تهران از طریق میانجی‌ها هشدار داده‌اند که در صورت حمله دوباره آمریکا، حملات به کشورهای حوزهٔ خلیج فارس گسترش خواهد یافت و زیرساخت‌های اقتصادی و اهداف غیرنظامی را نیز دربر خواهد گرفت.
-به گزارش این روزنامه، این تهدیدها شامل حمله به فرودگاه‌ها، خطوط لولهٔ نفت و دیگر زیرساخت‌های غیرنظامی در کشورهای منطقه است. مقام‌های جمهوری اسلامی همچنین گفته‌اند در صورت ازسرگیری حملات آمریکا، نیروهای آمریکایی را با شدت بیشتری هدف قرار خواهند داد و حتی ممکن است برای غرق کردن ناوهای جنگی آمریکا در منطقه تلاش کنند.
-وال‌استریت ژورنال می‌نویسد جمهوری اسلامی با وجود آسیب دیدن بخش بزرگی از زرادخانهٔ موشکی و پهپادی خود در حملات پیشین آمریکا و اسرائیل، همچنان توانایی انجام حملات تلافی‌جویانه را دارد. به ارزیابی تحلیلگران، تهران ممکن است از حملات نامتقارن برای وارد کردن خسارت به زیرساخت‌های انرژی و ارتباطی منطقه استفاده کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78813)
 
 ---
 
