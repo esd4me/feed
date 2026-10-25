@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-26 00:08:39 </h5>
+<h5> 🟢 Updated at: 2026-10-26 02:26:24 </h5>
 </div>
 
 
@@ -171,7 +171,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-25 01:58:05
 
-<img src="https://cdn1.telesco.pe/file/SZMKgmG7eky3L41LQ9uozp50wBR9bhrkMtWXL8M3fqivIBUQS-CUpUD8Ri0UHKQrB4D5RxNX9LjhmzS5HsaAKjjpVgV5C_Asui1uhDrZ9-EU-6r3TeOBtujbF_nijkiRyOFT2UnV9tgI9motFF0JsCo4oCXSvdEri_FOobD57qMyTE_E2F27-xzR5MWUHlU94jEh5QUzb7xtHm_32ARNDFbT8Ivoe8aboOOmNUBGohMU1FTfnKZS0KUeJtCn7Jfi5oeNGF5yFLJrZcUzrYyoAFEwq7td8bK247lJxMn2XA1AC4HYYfUPVcsUBpyQYn6bHH6iDhpkKSn4--SLz53DTg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QgdBON970J1ifhoi7kJSm75OC0wJ5J1gJ0jwZt3w8idLfKBbdiyL1RpcGQddgPwZ-k6ynIYxHMfESvjQCSRzpmPaNcu7r4HevIcESJLVmSZiB_r2OhVFLScgWQ3CtFdLCUw8H0_Nin0-86tY5V0PlV9-zfIWfVc-PNqvKPIJIO0Dt2lmiR9WCeFQS4316c5MTfIiJIEJ034V9Cd4B0vbrmKhMK9OB2Hv0H8C7arXb38JQW26zGXIW_XrggEO_TVmkZn4VxNsSycumG40bDYjIOMXHPaDUoQBO154fSr5A_znFpvR96KlQWzdez1ndgRWhJ-8MtcpbrtYign0qZ7G3g.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، بار دیگر از احتمال حمله نظامی به جمهوری اسلامی یا دستیابی به توافق با تهران سخن گفت و تاکید کرد هدف واشینگتن این است که مانع دستیابی ایران به سلاح هسته‌ای برای همیشه شود.
 ترامپ روز شنبه دوم آبان در جمع خبرنگاران در فلوریدا، در پاسخ به پرسشی درباره میزان پیشرفت برنامه‌ریزی برای حمله احتمالی به ایران گفت: «داریم به انجامش فکر می‌کنیم، شاید فردا.» او بلافاصله افزود: «واقعا فکر می‌کنید به شما می‌گویم که قرار است این کار را بکنم یا نه؟»
