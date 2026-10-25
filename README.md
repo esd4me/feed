@@ -3,8 +3,48 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-25 18:11:27 </h5>
+<h5> 🟢 Updated at: 2026-10-25 21:29:22 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-25 20:32:28
+
+<img src="https://cdn4.telesco.pe/file/mr1b_kj3qJ7kh2_nCFAVPTgQTSAzzl_OnZUPrU4xw2B6PT6Shqn6ffQAwac4VyPZRLNi4Hbxtnl4qjrxCDlf0ALENBV67iWAgNPiSzHVzbnx4V_IZRFQnCgE2QIxF3EOyrsyMg-K9JzoYx0PS5nIUZzVDLwg5rlSoV7SUsLM9Q41SwQw1KE4lKN_cVnNM3XuWbxK5ZiSdxL5TVBqUKD1Hszvn5yT76VrZGvWUHVGfLiVwMPBOFzTD8DuYJ49o6ii5xHXegHgzpX0oDaR03ha1WCLmzjjTvWO-trOQ_YuqRipmOpY3UM86LKCXH6jisdb8ruaq0HDQeU_4uRT_L52XQ.jpg" width="400"><br>
+
+بنیامین نتانیاهو، نخست‌وزیر اسراییل، روز یکشنبه سوم آبان ۱۴۰۵، بار دیگر هشدار داد که ایران یا نیروهای هم‌پیمانش ممکن است در روزهای آینده حملاتی علیه اسراییل انجام دهند.
+نتانیاهو، با حضور در محل استقرار یک سامانه پدافند موشکی «ارو»، گفت نشانه‌های اطلاعاتی حاکی از آن است که ایران و نیروهای وابسته به آن ممکن است با حمله، درصدد برهم‌زدن روند انتخابات باشند.
+هشدار نتانیاهو در حالی مطرح شده که تنها دو روز به انتخابات اسراییل باقی مانده است.
+او با تهدید تهران و نیروهای هم‌پیمانش گفت: «آن‌ها را هشدار می‌دهم؛ ما را آزمایش نکنید. ضرباتی نامتناسب متحمل خواهید شد.»
+نخست‌وزیر اسراییل در ادامه تاکید کرد: «ما بسیار قوی‌تر از آن چیزی هستیم که تصور می‌کنید. ما را دست‌کم نگیرید و آزمایش نکنید.»
+این اظهارات در حالی مطرح می‌شود که شبکه ۱۳ اسراییل هفته گذشته گزارش داده بود ایال زمیر، رییس ستاد کل ارتش اسراییل، در نشستی غیرعلنی گفته است که در حال حاضر ضرورتی عملیاتی برای حمله به ایران پیش از انتخابات نمی‌بیند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78845)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-25 19:41:25
+
+
+
+ترامپ: امروز حمله‌ای انجام نخواهد شد.
+پیش‌تر:دونالد ترامپ، رئیس‌جمهور آمریکا، می‌گوید که هنوز در مورد ایران تصمیم نهایی را نگرفته است.
+آقای ترامپ در مصاحبه تلفنی با برنامه «صبح یکشنبه» شبکه فاکس‌نیوز گفت: «سوالی که برایم مطرح است این است که با آنها معامله کنم یا کلک‌شان را بکنم. این تنها سوالی است که در ذهنم دارم.»
+او یک بار دیگر گفت که آمریکا کنترل تنگه هرمز را در دست دارد و درحالی‌که «آنها هیچ چیزی گیرشان نمی‌آید و ما همه چیز را به‌دست می‌آوریم.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78844)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-25 17:44:13
@@ -161,7 +201,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-24 20:49:04
 
-<img src="https://cdn4.telesco.pe/file/C23E2poWrZLZwTgWJX1nJSGZ6X5_u2cCynGxvFKxKNmPBLVBn8szOhYSw6RzwTthU6ZpL1KKcQD10Hw_jc1u-CzoGYv3IVp23lhy_dZpusn6iNusw3Z8C0v73WuKMxbW3A9qry_DFyWuh-YH_H7tNReJi6Dd3lJW0K6P-McpOaET1wOHDdHTzggyrxc-7dDJsBHqiJ_fysG6KOjBOhrpyQo2d-4ClKmhsKrTCdtkcjEWJT0z1YL-d4lL7n5VkTHhI79IJwYjsHUZWt7rVYwCMEpaq3KVPJ46Y21l721Faa4s3M0YMcSj7aScjxBdPSRkdRck0MsET17zOMZHDgHfRg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/DV1bRH4v_5CFaF4Kgg5evBHOcLh9x6rgwn3VyL40Xy5Fg2h39xsFFZHA1S9lWQaWVP3XT1Cfmjw6J3uXRwtHqasVzXAAwtgjusmJ-u5SEqpg3A-W4NDMVFWSuChQMTmwwncd0b6gCYun9cuJ3hpP-94JnV0_MMMhNBixJcSYtQx_I-45PajenrZKEehmZKE6AtYr_BPHoXfLZwx0C5JDysk4aMJPgagjBzDQjTCSux66K5xPMnenDX0fFHjzxbSqiqVTQzYIcLtBzpxHcpssvKRtJrtsFFVcoiZpXzjGA3Q9FAZNci7I4QrSkl871R6czU9vfS3ACzNWEKvI6DfPvQ.jpg" width="400"><br>
 
 رسانه‌های رسمی ایران،‌ روز شنبه دوم آبان‌ماه از دیدار غلامحسین محسنی اژه‌ای، رئیس قوه قضاییه جمهوری اسلامی، با مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی، خبر دادند. این گزارش در حالی منتشر شده است که پیش‌تر مسعود پزشکیان، رئیس‌جمهوری، و محمدباقر قالیباف، رئیس مجلس شورای اسلامی، نیز مدعی دیدار با او شده بودند.
 به گزارش تسنیم، در دیدار محسنی اژه‌ای با مجتبی خامنه‌ای «بر افزایش سرمایه اجتماعی جمهوری اسلامی از طریق گسترش عدالت، تأمین حقوق عمومی، مبارزه با فساد و تسریع در رسیدگی به پرونده‌های قضایی» تأکید شده است.
@@ -296,49 +336,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78823)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 23:38:01
-
-<img src="https://cdn1.telesco.pe/file/VtHJIG9mujFGJs9mNHtxqQpBumdo_vbqmm9h9klMPEB0YZtPRE9zfZ58TqqjV2aElYNLjb8P0vAuDGxO7-igvo1x6fJkJW70QLA409Cc4U3GiKWtdFOEvyHtnEmxcnMmRh6OAWkJPsUvQPslmLHJysPP1k1knZ_d2Vu5R8DT7BhLDdHD6WhZb_AiIJXUpLctORRgL8v9gqORMt5fu20ivEPC1bJ8TUnX0cN42EmTFPGPUtEqbYHXPT4U-7S1wVpSm2xux4IhgwlFrT9yhlUUjbJyNKD0ZwtPSLdotqWuSMoBTLbxtLoyuuz5NtjaVGGrWYGLu9UUyJlZXEpTEcZfTQ.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا که برای سخنرانی در یک تجمع انتخاباتی به فلوریدا سفر کرده است، نسبت به اظهارات اخیر تام باراک ابراز بی‌اطلاعی کرد.
-باراک، سفیر آمریکا در ترکیه روز جمعه اول آبان در پاسخ به پرسشی درباره احتمال حمله آمریکا به ایران در روزهای آخر هفته، پاسخ داد «قطعاً».
-ترامپ در پاسخ به سوال خبرنگاری در این‌باره، به شوخی گفت: «به نظر می‌رسد سفیر ما در ترکیه مرد قدرتمندی است. اگر چنین برنامه‌ای وجود دارد من چیزی درباره‌اش نمی‌دانم.»
-@
-VahidOOnLine
-«دونالد ترامپ»، رییس‌جمهوری آمریکا روز جمعه در یک گردهمایی انتخاباتی در ایالت فلوریدا گفت: «ممکن است یک عملیات کوچک دیگر از نوع «خشم حماسی» انجام دهیم، یا اینکه آنها توافق کنند.»
-او در ادامه اضافه کرد: «اگر باهوش باشند، به‌سادگی می‌گویند بیایید وارد مذاکره جدی شویم. اما تردید دارم چنین کاری بکنند، چون شاید چندان باهوش نباشند.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78822)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-23 23:37:23
-
-<img src="https://cdn4.telesco.pe/file/neBstyPdx8_VaaFZDX_pwynNxkokYjcqF5teZORKaDkgvlWMgaPIQyGgP3lVX7tFrCSaIqJQ6tjMvDWyDTj5r2SV6fiVyAMgwTiQVg2i8rliFategRl2as202dfxiyuyfIn3uuDm0i4yeZt2GYzBXHn0kvpG1QHpjSTpVAQEf7TpV6BWF8qom-GNRXxccj-Vtmvf7xX7AewuxURbNbJRkOOJfLjFH0sTV101SqIgXkiJB7Q8z-sLLxr6WIOlsRTBhoqnnEf0zoE4E8KkxLars8mAnCZljSGwv16Xp6Y1sLaxEeQ4oWfDNtsCNLTrL4XTmqp79WPwsU0ZI05KaNy3mQ.jpg" width="400"><br>
-
-یوهان واده‌فول، وزیر خارجۀ آلمان، اعلام کرد که این کشور همراه با فرانسه و بریتانیا آمادۀ مذاکره با جمهوری اسلامی برای جلوگیری از دستیابی این کشور به سلاح هسته‌ای است.
-او این اظهارات را پس از نشست هشت کشور اروپایی و منطقه‌ای در استانبول که روز جمعه اول آبان برگزار شد، بیان کرد.
-واده‌فول تأکید کرد که تهران باید برای دستیابی به راه‌حلی دیپلماتیک و پایدار آمادگی جدی نشان دهد.
-شهریور ماه سال جاری، این سه کشور همراه با آمریکا، به‌دلیل عدم پایبندی ایران به تعهدات خود در زمینه گزارش‌دهی هسته‌ای، قطعنامه‌ شورای حکام را برای نخستین بار طی ۲۰ سال گذشته به شورای امنیت ارجاع دادند.
-ایران از زمان حمله اسرائیل و آمریکا به تأسیسات مهم هسته‌ای خود، به بازرسان آژانس بین‌المللی انرژی اتمی اجازه بازگشت به سایت‌های بمباران‌شده را نداده است.
-ایران بیش از ۴۰۰ کیلوگرم اورانیوم با غنای بالا در اختیار دارد و پس از آسیب‌دیدن تأسیسات هسته‌ای در اصفهان، فردو و نطنز در جریان جنگ ۱۲ روزه پارسال، هنوز در مورد سرنوشت ذخایر اورانیوم غنی‌شده شفاف‌سازی نکرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78821)
 
 ---
 
