@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-26 09:19:54 </h5>
+<h5> 🟢 Updated at: 2026-10-26 15:24:44 </h5>
 </div>
 
 
@@ -106,7 +106,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-25 14:53:47
 
-<img src="https://cdn1.telesco.pe/file/lcbOpfr9peT-K-h9_fRXvEFGj9IX-qfo6jgAERdOUEQLNHQxlEiAvSYOloGjF2gW1BTq-27QbpgshK-hmncXSAOs16FEX6MrVFCLd2X7aE7I-0cmx5XPe0QbXpD_3-Efwz0TIGfzdodceX-aet4qwgYApS1JxKLAvrvCqgkj7Po9Ioo0HnHHiLbtx_FOv9X_owXjyyy8U6r9kseD0Cy9N2saoCeOoPSMdvTibdsyUC81aKDimsYh0xS-6o-dSZxBKsQMP_kNb6K-RAddz07kjrEWUdBgWx_IrYOnq264ByS1nIfK0u6IZ17cQnXJL0edtOfj8GhW6ust908d6Aw4sQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Q8ZssFLHKsebEJb7O8CoV0kFjxk21dStTLxrqjorqEGR9qmOGqz0zoEXPsg01CHmohM7L41rauha8L5irfOT4VnVNqsnUe3M05Ee4w-PSJHC59Euql3EUW2U4dbq8FeBb53KKyHZE8s7OnhseYuChyja2dUC-JkakG1Ac3cY1cthoZSQlkWG9Wd88sm3JCiGzkANwXyt-wUf0Zm-AAKalbnc73HYgpNBRVyHhbugKbzhI2iS0xdI4PIoidEzZgJ8qvxrQdFuCYnlOGR2O6SCpNg64XZnZgsaQ0pP2BXln5LmtIarVAeyJY_uy7I2aHJ3UJ5oapW9vAZqURNNawFc0w.jpg" width="400"><br>
 
 عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه ۳ آبان با اشاره به احتمال ازسرگیری جنگ با آمریکا و اسرائیل گفت سیاست‌های تهران در هر صورت تغییر نخواهد کرد و ایران برای دوران پس از جنگ نیز برنامه‌ریزی می‌کند.
 عراقچی در مراسم بزرگداشت کمال خرازی، وزیر پیشین امور خارجه و افتتاح مرکز اسناد وزارت امور خارجه به نام او، اظهار کرد: «این روزها حرف از جنگ دوباره زده می‌شود. من از الان به بعد از جنگ فکر می‌کنم. جنگ چه بشود چه نشود، سیاست‌های ما سر جای خودش است.»
@@ -129,7 +129,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-25 14:53:12
 
-<img src="https://cdn4.telesco.pe/file/SBKXWAPmbUcD94Hd1OoZMK6w5VgwHd8-6HY6DrahSF6d02q_eMsycrjHGU7-166v-Y3rhVzfICNah6mlpuyPCMKdOsNzZmznz-yYL5yMyvF2GKHZEwVcjFo2B6C735ov3O1ZbsJG0nto6YMzkMCbn-ECjRi3YZozkx9W8vcuQ8TYJuxPJlA28a1TC9clm5hugw9AtzTsZpU0UY7SvUsYIqjP-eApP0CFr72lnTP6Duz0H_a-jEiPrYZVlVwBMkDItonrgd_CqLd-uWvYHKEWP4t1mTOTG1bodl2NIhjODpEWhVs55--8aiM0Drf-Gg--gNgDXNej36LSyoDvTuVyDg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/I_DGCtgomzrGX-aMyrbdvg7cEC8AGmUwTZh93dk8RmLhBrULiPFy8Kf1LgcX7bRs_5mNZfUCENPZvLS7LTj9zHnDe18Sr702EleIdLJTHlcQXTCXP6qeCrLl9-IezCJsDmUoYsBovyPsJnFTtj0vrP1P-07uWnhiwzwkRKvu-URylrJW0t092R3O206-llQOntqF5ooCIi5Zr0EhHL_7ua5um6p6LdGd5RfU0cszvJRbLZD_XdjtxFDgtxsFDF7Uq1RvvAT9dKZqspGr-1X4nYAaY3BqjkAfiwvoqKYhCN14e5iHs5nU0SGty_IoqdcfvPlByOqSdSQSK9DtE8sfQg.jpg" width="400"><br>
 
 رسانه‌های داخلی در ایران گزارش دادند که سپاه پاسداران در حمله‌ پهپادی پایگاه‌های یکی از احزاب کرد مخالف حکومت ایران را در اقلیم کردستان عراق هدف قرار دادند.
 ️بنابر گزارش خبرگزاری مهر، سپاه پاسداران در عملیاتی که «اقدامات پیش‌دستانه آفندی» خوانده است، شب گذشته یک پایگاه کومله در منطقه بالیسان را هدف قرار داده است.
@@ -147,7 +147,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-25 14:44:07
 
-<img src="https://cdn4.telesco.pe/file/Fp-fxJfKMeCtnzaWxiHiiH4o_X2o-2Y-A4iZOv00EpuqCGLZwlZ1gnzNkUYSqHnQOfL2RVn-oOWuP5vzW_LQDgiYc-wDFWIAip6Cbe_MNaOWjZlefG3IDoLBqRgS0P3h8HqIF4-LcqBCYVRAHflVQQDnUfHwRqCk8JleaPqbYSi1RPeMsabXOdjY7liFjbI1tR0QaLansUGNagaOCcE4SJjqNRTwTG3r5kk8jmValB3bjFTm7KBHiGsAJh8vTE3PEZf47h6NWhwBzZbLtg8F4rv3c4FQIXZGvHz2-Vaut-sPIcgHU5321628wb0hGH_nokpx36kf1gseyuI2Q9VMyA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/sUuylJthJYwS2eaaOpDLnXHky84ujwwjr4vGXwBG5e-v162FzgfOedwrdd-8xBRQ7W_OQ2GpNRtOm3qtCqEIjO0QUFznnbtFHvtg2xLsUuHGtoRysRb0mCI-fXwTXkz-N3tzp6l0Lvh3hkTEvwPBKpc8aZzN07As0zLpwxDlWUr41VXN2GIPYRuc42bjHAQk2vAi8I_95-55Tu0sPAk-U0CKlSwJZbPoUeUW4LVu78hddiZ5oKxOfmBPeWuhMVsL_VFm1Zoqys2IzSEW6RsXY_STlTJP0S-zQQGi7MmG7OuH64vz4ycGSvIOkukwy-UqbrT5AauVdZ2xlS59k3MybQ.jpg" width="400"><br>
 
 دادستان عمومی و انقلاب قم از اجرای حکم مصادره تمامی اموال منقول و غیرمنقول «صادق ساعدی‌نیا»، مدیر کافه‌های زنجیره‌ای ساعدی‌نیا و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، خبر داد. به گفته این مقام قضایی، رمزارزهای متعلق به او نیز توقیف شده است.
 «علی‌اصغر سلطانی» اعلام کرده است که اموال ساعدی‌نیا توقیف شده و اقدامات مربوط به مصادره آن‌ها نیز انجام گرفته است.
@@ -243,7 +243,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-24 15:27:10
 
-<img src="https://cdn4.telesco.pe/file/VBBHiUzUO-7Ti2kxVgSiEPxsQw0A7qYgcxV_Di8eHu_bprgMncyV6VAUu5Yj9lLfTb7LCSBJsDKavBGYmxpwKJabWls5_MRedprXwmIf8rninhjf8hmKSJjc4jW0EG9f3hZkP-QFgNeZfjLs-9cdIlmo4YinqDyVLdTN_BHt-RNKKHDHf-p_JA7caPnCGlMRjXPyHEv48pDi2Yb0cRdKUSsJf6SKIX21snG6121PGTrMpIVXGUUfTilXDPzgq0P3eDmCqMS_QHuGUxOLjvd0mQH0iM99KYsY5tlp0EwXuG0V_jYc1RKrcQiYNEEnLbG8Ebdwxi9pUPe_aVJakA67Lg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/m1yYXNqSlgLy8W-F0rI0Aj4WyZNDQ7p3anYcGx4CtQlrYOS3QGgw_3O-IW0tRSteUg4PUADx4lagF8_T1cZBXN6s2ktCGDEv4tOrCF-_FlEhi7Wv1WAwVmMx9NZuek-Bl733X6aB8xCn2hRUuZSAAWqBCIhhsrnVdIUNyQXl7xBS5VeadgLX0ADxxdxCehfMJtAW3MpgAYLQzKjiQ6XPcgaxI_66Jiv2KNN7P-6ve1oX-88wIb35wTHGOvLPkMYWlkQsBVgShlTLi1Yy6byrhca-TrdEblNLEBOrtA58zCT0cvMtIeiMCx1UFW77ecjnnchk8Ju2Z6Lxvgq-vUBOag.jpg" width="400"><br>
 
 دو مقام ارشد امنیتی جمهوری اسلامی به رویترز گفتند که تهران طرح‌های مفصلی برای هدف قرار دادن کابل‌های ارتباطی زیردریایی در خلیج فارس تهیه کرده است که در صورت حمله دوباره آمریکا و اسرائیل به ایران ممکن است به اجرا گذاشته شوند.
 این دو مقام که نخواستند نامشان فاش شود، جزئیاتی درباره محل و شیوه اجرای احتمالی این حملات ارائه نکردند، اما یکی از آنها گفت که ایران ممکن است برای جلوگیری از تعمیر کابل‌های آسیب‌دیده نیز اقدام کند تا اختلال در ارتباطات، از جمله اینترنت، طولانی‌تر شود.
@@ -261,7 +261,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-24 15:26:07
 
-<img src="https://cdn1.telesco.pe/file/EL_LXOR7W1Dkazj5hl39OPiXjQ1xXR4vrhdP9inuNRqnjZ_XYlo0aw7ZPEyaeJDOtYzyBM8IKjcSghJSBjZJ8R3tQREiasHM5j_mk_mAEdEQlBGtl8rIYQtbY29Mc85RtFL1gtU8DnS19BbgZ9P4WkCW6ome7cRdEJ0weLmi76XK1jC-DvoAqmBuzF1AhgEDs5m4Rntid0c3-X7CPJWkSJyf4VKENHBOBg2zeBUB-JloXdJSnblOcf_USqO77eapqjF8dt6VtUZNxQvWZOpbiEL5_IipXcyx-WzcqPMN4tJlp28fS-fT-k1UmQr35hmxVaOn8H7UFDHRSUsN429Ntw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/S_5Oy65i2Tn5Zs_ihtsk7VOtS6EP9b6BkZ3tD3oeKX1FN18v9akoFwZANvyfi5_3q2jihA4TswgxljWuTRQDJNQL4vBlNYv9PaNdcJdhgOmdR44NmzQ4MRs7gsiKybViVY9MmST2NQK8qe7r-pbebXy9_v3B17_yea_QE3f00xoXVkW_8X56Y8dwwFrd7JnVrAtYGzGWDCrsEjFaAxb6zY8zHYKD9qQMoS6C3h7xKAP5m_P4uBdUtzVzipOVteyWi-Hvo-Reiz6gy-WqBdji7AXBymb_Iqlty2ihtIm3MLI1UvMVBq06uCk_y8Yi6yE9tnoizT-xCTmWv3lEuh2NQA.jpg" width="400"><br>
 
 ائتلاف نظامی به رهبری عربستان سعودی روز شنبه دوم آبان اعلام کرد که دو موشک شلیک‌شده از سوی حوثی‌های یمن به سمت شهرهای طائف و ینبع در غرب این کشور را رهگیری کرده است.
 این خبر اندکی پس از آن منتشر شد که سازمان دفاع مدنی عربستان درباره «خطر احتمالی» در چند منطقه غربی این کشور، از جمله مکه، طائف و ینبع، هشدار صادر کرد و از ساکنان خواست به نزدیک‌ترین مکان امن پناه ببرند.
@@ -285,7 +285,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-24 15:23:57
 
-<img src="https://cdn4.telesco.pe/file/OWFHHJqFOfno0HGAmxJ4SigrKyluD83InjJZWFtojgId-3gubyluk3wxYFE5Vy1FnJxnqhHqwBhriW4EQzLLybkK4J9QiR7Hh_cVYzCJyup6pOnWYg1iJ9b7s-9qot62KOHBWh3_0IUJPfPYLtEoJsLnSSJz5u5McqgR3xtPMyk_BptLHOZCnApMt_ObQbHlGChSaB3KhPl2EESEY5_DwTyJxeV1cHthOelQFj_IxdbXFqNXOphwa5nuodF7lpXH0RpiBN3Bi5kNGnZWRDd41Ffd0KXZgLWkpAQ5wtWV2fQz_VCgLmBpkYSJmgFByWbPeTxMNs03t3MMLhdSXhl1xw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/MqWWEsD0ydJFvKoH1JL8xP4EesEXI2H2iovIi1IfuBWK3amcP5gorJcj-r2j1OiwwcGmkZwGgQeUe4Ma4-y3-lzk-fIBYpJUANO6yNF2SIM-gpAkbf4KvbqRGhCGg-Ga0T7nU8OuA1mzVbjW_QK5euhE8N_nKuXSGIFjJwcwO7YOH2lrATlVtCRsCzZGAjN1x1MaXMMd2uRExvw3HcfiWofcyjMeySyZyNHmLiwGewI2pbVYapJE7CVI_2MTuzlttDF3DKgce6CDEhpBRjCNkr8h9UrQwls8aa-GlG5tFe6yDCtKFGlvIKQy8g8xiYQPFs5JP3C6PsUQDiWOT6lIww.jpg" width="400"><br>
 
 مای ساتو، گزارشگر ویژۀ سازمان ملل در امور حقوق بشر ایران، از قربانیان نقض حقوق بشر، خانواده‌های آن‌ها، مدافعان حقوق بشر، سازمان‌های مدنی و کارشناسان خواست اطلاعات و مستندات خود را برای تهیۀ گزارش بعدی او به شصت‌وچهارمین نشست شورای حقوق بشر سازمان ملل ارسال کنند.
 بر اساس فراخوان منتشرشده در وب‌سایت دفتر حقوق بشر سازمان ملل، این گزارش علاوه بر بررسی تحولات حقوق بشری ایران، به‌ویژه از شهریور ۱۴۰۵ به بعد، بر سرکوب فرامرزی، فشار بر خانواده‌های قربانیان، حقوق زنان و تبعیض جنسیتی متمرکز خواهد بود.
