@@ -3,13 +3,140 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-26 15:24:44 </h5>
+<h5> 🟢 Updated at: 2026-10-26 21:31:04 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-26 18:06:57
+
+
+
+رسانه‌های دولتی ایران، بعد از ظهر دوشنبه چهارم آبان ماه، تصاویری از استقبال محسن رضایی، دبیرکل شورای امنیت ملی جمهوری اسلامی ایران و عباس عراقچی، وزیر امور خارجه، از مقام‌های سه کشور عضو پیمان مکه منتشر کردند.
+شاهزاده خالد بن سلمان، وزیر دفاع عربستان سعودی، فیلدمارشال عاصم منیر، فرمانده ارتش پاکستان و ابراهیم کالین، رئیس سازمان اطلاعات و امنیت ترکیه، به نمایندگی از این سه کشور عضو پیمان دفاعی مکه در تهران با مقام‌های جمهوری اسلامی دیدار کردند.
+به گزارش صدا و سیمای جمهوری اسلامی، این نشست به پیشنهاد پاکستان برگزار شده است و موضوعاتی از جمله «همکاری منطقه‌ای، تجاوز آمریکا و اسرائیل به ایران و پیامدهای آن» در دستور کار آن قرار دارد.
+پیشتر آنتونیو گوترش، دبیرکل سازمان ملل متحد که در قاهره حضور دارد، با استقبال از این نشست چهارجانبه گفته بود: «باید به هر قیمتی از حمله نظامی گسترده به ایران و حمله نظامی از سوی ایران به کشورهای خلیج فارس جلوگیری شود.»
+@
+VahidOOnLine
+همزمان با سفر مقام‌های ارشد دفاعی و امنیتی پاکستان، عربستان سعودی و ترکیه به تهران، شورای عالی امنیت ملی جمهوری اسلامی با صدور دستوری محرمانه به رسانه‌ها، از آن‌ها خواست درباره موضوع «توافق مکه»، چه در تایید و چه در رد آن، تحلیلی ارائه نکنند.
+شعام پنج محور مدنظر خود برای پوشش خبری این نشست را به رسانه‌های داخلی ابلاغ کرده و از رسانه‌ها خواسته تاکید کنند که این سفر به پیشنهاد پاکستان و با نظر مساعد ایران انجام می‌شود.
+شورای عالی امنیت ملی همچنین از رسانه‌ها خواسته است بر این موضوع تاکید کنند که کشورهای منطقه پس از جنگ اخیر به این نتیجه رسیده‌اند که امنیت تنها با همکاری و مشارکت همه کشورهای منطقه تامین می‌شود.
+در بخش دیگری از پیام آمده است که این سفر می‌تواند زمینه‌ساز حرکت به سمت «سیاست امنیت درون‌زای منطقه‌ای» باشد و این روند از تهران آغاز شود.
+بر اساس این پیام، امنیت منطقه‌ای، پیامدهای حملات نظامی آمریکا و اسرائیل به ایران، ادامه این حملات و کمک به مردم فلسطین و لبنان از موضوعات مورد بحث در نشست تهران خواهد بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78854)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-26 15:40:27
+
+
+
+خبرگزاری قوه قضائیه جمهوری اسلامی از اعلام جرم دادستانی تهران و تشکیل پرونده قضایی برای برگزارکنندگان نمایشگاهی به نام «آرت‌فِر تهران» خبر داد.
+به نوشته میزان، این تصمیم در پی آن چه «عدم رعایت موازین قانونی و شرعی» خوانده گرفته شده و بر مبنای آن متهمان برای ارائه توضیحات به دادسرا احضار شدند.
+میزان همچنین گفته است سایت فروش بلیت نمایشگاه و حساب کاربری برگزارکننده در فضای مجازی مسدود شده‌اند.
+خبر اعلام جرم برای آرت‌فر تهران پس از آن منتشر می‌شود که انتشار تصاویری از یک رویداد دیگر به نام «نمایشگاه فیتِکس» در تهران با واکنش‌های انتقادی گسترده رسانه‌های نزدیک به نهادهای حکومتی و نظامی ایران روبه‌رو شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78852)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-26 15:35:28
+
+<img src="https://cdn4.telesco.pe/file/IQfm6CN1GT-lPda06DQtufjQJ2mfuoCcOrkJnBSxPUdJ1Bh1tcKqsfwiKioMnDPRdctdbkzZV2pZ178cz4paJS37zv2SwapMSONLjr42fh5mHkdax0y6qt-sqFJJACddI-d4wO3E3IvlJTyvZqhn10vAvDLiSlDZ-t2QvzMF4LhvFO3NYPUIb4n9-cyG8ZzqUcmFfJFxv_iDcoEvuDHMUiX2_DNi-0Ww3XyT1BSx_sUdcTOUFoQ4msn53468BnFAz4bl-8c2XnQuRBbCqWDqQGebr7GHPhc8DwgOBcfDjqFQFB7jQzVmf7whdDfyOrV52UhnR09288KaOclPuGWPOQ.jpg" width="400"><br>
+
+به دنبال انتشار گزارش خبرگزاری رویترز از سفر مقام‌های ارشد سه کشور پاکستان، عربستان سعودی و ترکیه به تهران در روز دوشنبه، چهارم آبان، معاون دبیر شورای عالی امنیت ملی ایران با تأیید این خبر، هدف از این سفر را برگزاری نشست مشترک در تهران و «هماهنگی منطقه‌ای» عنوان کرد.
+علی باقری در گفت‌وگو با تلویزیون رسمی ایران گفت خالد بن سلمان، وزیر دفاع عربستان، عاصم منیر، فرمانده کل ارتش پاکستان و ابراهیم کالین، رئیس سازمان اطلاعات ترکیه مقام‌هایی هستند که با سفر به تهران در نشستی با محسن رضایی، دبیر شورای عالی امنیت ملی ایران شرکت خواهند کرد.
+پیشتر خبرگزاری رویترز به نقل از دو مقام مطلع با اعلام انجام این سفر هدف از آنها را گفت‌وگو درباره «هماهنگی منطقه‌ای» اعلام کرده بود.
+عربستان سعودی، پاکستان و ترکیه اعضای پیمان دفاعی موسوم به «مکه» هستند که دو ماه و نیم پیش میان سران این کشورها در عربستان امضا شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78851)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-26 15:34:25
+
+<img src="https://cdn1.telesco.pe/file/DHubjMFGVekILVSDhU_kZ2iEQ0atKEpQcoNDthy2WQwlgOg2brufSwz-BhBVKxccbf48cEm2JGSyyFDRciEboFRll1bdQL-PDrGEsDn7eJwn1gbhEIE6GJ1RwQYw6bFjmzEpA_9MGm-YApuZjhq3k1aqSvx3mXOsFhY8U9gimgGqdKpkBKez4nC-P30O7nNlr6-ooK0pMxdqZjmVDLO4Uw8zixHwe0erzoH_c8Bgnjpm6JSG_SeDa95y7WI9B9kJNIVqUX96TiZ1kkztogkqQXKmQMmI9D-0lQNd3bLoFI804vl99rZX2yjTjE6355d43TCSeDv83SKvirRfs7gfIQ.jpg" width="400"><br>
+
+محمدباقر قالیباف، رییس مجلس شورای اسلامی، لانا نسیبه، دیپلمات اماراتی و نامزد جانشینی آنتونیو گوترش در سمت دبیرکلی سازمان ملل متحد، را متهم کرد که با هدف هموار کردن مسیر دیپلماتیک برای «پروژه اسراییل بزرگ» و «سفید شویی نسل‌کشی در غزه»، برای تصدی این سمت تلاش می‌کند.
+@
+VahidHeadline
+«علی النعیمی»، رییس کمیسیون دفاع، کشور و امور خارجی شورای ملی فدرال امارات، در واکنش به انتقاد «محمدباقر قالیباف» از نامزدی «لانا نسیبه» برای دبیرکلی سازمان ملل متحد، جمهوری اسلامی را به «صدور بی‌ثباتی» متهم کرد.
+النعیمی خطاب به رییس مجلس شورای اسلامی گفته است: «ادبیات شما نماینده همان ذهنیت ویرانگری است که رنج فراوانی برای منطقه ما به بار آورده است.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78849)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-26 15:32:12
+
+<img src="https://cdn1.telesco.pe/file/kwYXo0z-pKvgVkQC6NKY-fuNliWO8p_i1757dhSgDXC-WCQoQsBVCGFJ7lmsD0NYm7xDVwE0A6Ts2Sw31hMCnUHS07r8Yy405iTQ8HnhvRfwO7zTHW3gK9kjI2ueuxT-lhJcSaeByDjzXhPHMMJhtKYtFvwZDbb7a8OHn2IJoa2cM9ufpkJMXiZ45mVqKiVmvNiZasE5QTrmu6zTBca2A8t-zBvmqRF-B1Uov89h7hjaV2UqEyCHNk3KXEMAd-SrJxtlTic4IFW4ZQzKkE6y27f8nJN7-RR5h7XXLPYlAsaqKi9cw9w392fh5CiK0lCv7zsOEiyx8jb5pLPANfOZPA.jpg" width="400"><br>
+
+شبکه ۱۲ اسرائیل گزارش داده است که اختلاف شدیدی میان بنیامین نتانیاهو، نخست‌وزیر، و ایال زمیر، رئیس ستاد ارتش آن کشور، بر سر اجرای یک دستور نظامی که ممکن است به رویارویی تازه با ایران منجر شود، به وجود آمده است.
+بر اساس این گزارش، زمیر از اجرای این دستور «خودداری» کرده و خواستار بررسی‌های بیشتر و ارائه مجوز قانونی مکتوب و امضاشده از سوی نتانیاهو شده است.
+شبکه ۱۲ به نقل از منابع امنیتی گزارش داده است که در میان فرماندهان ارتش این نگرانی وجود دارد که مقام‌های سیاسی بخواهند از موضوع ایران برای کسب منافع سیاسی در آستانه انتخابات پارلمانی روز سه‌شنبه ۲۷ اکتبر استفاده کنند.
+نتانیاهو در گفت‌وگو با شبکه ۱۴ اسرائیل، این گزارش را «بی‌اساس» خوانده و گفته است: «هیچ اختلافی میان ما وجود نداشته است.»
+@
+VahidHeadline
+یک روز پیش از برگزاری انتخابات سراسری در اسرائیل، وزیر دفاع این کشور گزارش‌ها دربارۀ بروز اختلاف نظر شدید میان بنیامین نتانیاهو، نخست‌وزیر، و ارتش اسرائیل درباره حمله به ایران را تکذیب کرد.
+یسرائیل کاتز در بیانیه‌ای که روز دوشنبه، چهارم آبان، منتشر شد گفت که «به هیچ وجه قصدی از سوی اسرائیل برای آغاز حمله به ایران پیش از انتخابات وجود ندارد».
+وزیر دفاع اسرائیل در بیانیه‌اش گزارش‌های منتشر شده و واکنش‌ها به آن را تلاشی «شرم‌آور و غیرمسئولانه» از سوی مخالفان سیاسی برای تخریب دولت در آستانه انتخابات خواند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78847)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-26 15:28:13
+
+<img src="https://cdn1.telesco.pe/file/HYhdBYDIR9jZrFyaKAHiUAF1wmQbBzZP75UZ-S6pT_p07ZQOKYDsd7wVp28C3SAy3bnjgdvucBCh2pamaXTWjVsQdu1zXAV8W62fgSxeQOT8Up5G_1ogKpXChymvu3MWDRlmvQgnxzgyYBY0Olu9Kst7pRa0FdYAIRd2MgOJIlg2mwGFrRR-A0u_I8yMs_YHRg_wNd20OqINU-fiZcihhbXg5qK6J9w35kB4XgXrWG6oiINrvzgqomS2o5DzVVTpqLplu-gVRA5lEXIhX2XVsAHtq4mC0t6lAYRlSmzY95ldMpBsbRnYj9VPm54gWvhGUnHRjnFY7Eec6o3wi_1m6Q.jpg" width="400"><br>
+
+ویدیویی از اعتراف اجباری احسان ارباب، بلاگر، در صفحه اینستاگرامی او منتشر شد. این فعال شبکه‌های اجتماعی دوم مهر و پس از انتشار مطالبى در فضاى مجازى بازداشت شده بود.
+در این ویدیو به دست‌های ارباب دستبند زده شده و او فعالیت‌های خود را «تبلیغ علیه نظام»، «توهین به رهبری» و حمایت از اعتراضات می‌خواند و بابت آن‌ها اظهار پشیمانی می‌کند.
+پیش‌تر صفحه اینستاگرامی این بلاگر مسدود و تمام محتوایش به جز همین ویدیوی اعتراف اجباری حذف شده بود.
+درباره محل نگهداری، اتهامات رسمی و وضعیت پرونده احسان ارباب اطلاعاتی منتشر نشده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78846)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-25 20:32:28
 
-<img src="https://cdn4.telesco.pe/file/mr1b_kj3qJ7kh2_nCFAVPTgQTSAzzl_OnZUPrU4xw2B6PT6Shqn6ffQAwac4VyPZRLNi4Hbxtnl4qjrxCDlf0ALENBV67iWAgNPiSzHVzbnx4V_IZRFQnCgE2QIxF3EOyrsyMg-K9JzoYx0PS5nIUZzVDLwg5rlSoV7SUsLM9Q41SwQw1KE4lKN_cVnNM3XuWbxK5ZiSdxL5TVBqUKD1Hszvn5yT76VrZGvWUHVGfLiVwMPBOFzTD8DuYJ49o6ii5xHXegHgzpX0oDaR03ha1WCLmzjjTvWO-trOQ_YuqRipmOpY3UM86LKCXH6jisdb8ruaq0HDQeU_4uRT_L52XQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NZZhoPZyu8c5R-9zBb8l17nbrIGoeRo69KAOyisLUFUlDaA-PEKjt1BuxiYTHu5A_E9Qav5oGcaK1ETMLNend0_PaBfvr-WDQ5wGLwdJuCG1kOSaaUQ3am_WMZTK96IkoGkdLqRg75IkOXy-IzbAz0JFS4WnZ3wTWecJ03fzLRK6BqkHq7ch3z-vHfCCjPZOU5iBqiTQngkfolRBmGOr2Gd7tU767XVynR-QLXfhlquOORi1rLmjokfu3wnD-VqhNCw2AzniWBmYhsAJW8xIMRB7iKs7VSRpfjG_P3zNZnCZ0ZwuFW936TNo9QURhsIUuXYcTI90HaTLKi0S8CFwRw.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست‌وزیر اسراییل، روز یکشنبه سوم آبان ۱۴۰۵، بار دیگر هشدار داد که ایران یا نیروهای هم‌پیمانش ممکن است در روزهای آینده حملاتی علیه اسراییل انجام دهند.
 نتانیاهو، با حضور در محل استقرار یک سامانه پدافند موشکی «ارو»، گفت نشانه‌های اطلاعاتی حاکی از آن است که ایران و نیروهای وابسته به آن ممکن است با حمله، درصدد برهم‌زدن روند انتخابات باشند.
@@ -49,7 +176,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-25 17:44:13
 
-<img src="https://cdn4.telesco.pe/file/LBY-x_SENz3_5KG7XFlOWSsGO9VcTMKsW4i2c8fGes8coon3wq_0jpP72EQz-BZWwsPWc94GAtJnn27CuroTNK3keNstY6tg-ReMICwGq2stTTymxV72fRQaAJJtyW3-JZeowVlTwfk6gQmNQpei9dC5UPsy6JKIgaWVGDDHTQJSg6-QWv4r5jmq9cHA2PKhzbAt3W5kNfmuHnQVK9Ke86HlF475Bhy2iA60xxFMvLoFqli4ah4F8F5Optbo65v7ZZKA2PtK7j5xwd8YlBRoqeMeIFra7O9sWBDgeUtIc_7gsLeDBzzdsDUZUNIm-IX49fb5PwBNc8agKqc4EmfS-Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Ms9axLRKeKAgpceKIXNgb1p2rNJC_QXWEbl_f6UnKATsSxof43I_PU0da0B6LFn01ELZWOWC3onEngyFJggSpeuhrZVGbQKhcdoHXXZQbu74GlRxs6FB0qC1c04s67_laPyDk73TUujT77GDfBtkHlZs-CIauDu_FfbNmImfcwlelMXO2aaeU0OdCR6bXSbR5b9Vh1xnrU64X6rujiavas9glgHdQR_Z5HfE0TrHYZQw5tr97v_hHVotAVg8NkMoTJro3tz1RmrfHaiaBMDNQ2FXwY58cxCaFphxrCIwVCQLufLVJUvHlxaxAD6Je4Ed8_5GoF3xxjRtsOGHi85W3Q.jpg" width="400"><br>
 
 خبرگزاری رویترز، یکشنبه سوم آبان به نقل از یک مقام آگاه گزارش داد که میانجی‌گران قطری در چارچوب تلاش‌هایی برای کاهش تنش‌های منطقه‌ای و با هماهنگی آمریکا به تهران سفر کرده‌اند.
 این مقام که در جریان تحولات قرار دارد، به رویترز گفت حضور میانجی‌گران قطری در تهران بخشی از تلاش‌های هماهنگ با آمریکا برای کاهش تنش‌ها در منطقه است.
@@ -68,7 +195,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-25 17:43:58
 
-<img src="https://cdn1.telesco.pe/file/kfgKdcUgSkEnS0ljXopZ1a-Drt8grdsqx_iwvTCSY5pKGNLzfhcxknHK-5iFqW8VPi8CTZBD6tW4QEDOKLwCF4-_D-RtCnRdNlVYOlCn8cD83o6LQl97RRiXx2RHN6k_FXrrg-cez-T9ULN_EcTBNoxYUbvpUgqJ7SEg33ZMRpVfisGHP2q5MIh9S7vN5JflJCE_Cp4A2UeWfNB6o6hUsXStF8oP-JrXn5rqt_t3QSe7DTBsM6NLa_h9NXx-q1ysGkjbVSz4tdC0GBbnHu8IyIEyjRyl4D9tYA_KW8DbhTHkABW0lajAjK8f7ugnNblazZYD83Wjka5mYKIWo9yqcQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/b5VIfWKkCKl7mhN1TpvCO7uYpZTFNz1h_HVy-lPJYW0fXLoQJHSScu6s0oucIZF3xCyVSB5kizOYRx40ROKwMRtApy3l6LTVZQqxMcSp_GDyWSy-ygmx6HXMZRsGv1u4S7JxAC3q4f_lSirkkCqah4FtkCPdYl8QmXCAzby5jcaq_VEZdy6yADwsMb2RQbo_9yfptGRdy0MR3sRPBFjZXHqZ4rjwnTzamn169oczhLibV_ZjrB4cyH7SIwxqhMRYm7f_AuVd36fYexK5JWI7FRwYcoeAg7sGBJmatkCPirniwtYL2MGdPgNiC7_Unm57fcV7wcqDYQXJWklIpIOPTQ.jpg" width="400"><br>
 
 مرکز رسانه قوه قضاییه از صدور کیفرخواست برای سعید شکیبا، دوبلور، بلاگر و طنزپرداز، با اتهامات «اقدام آگاهانه در تایید اسرائیل در فضای مجازی، اهانت و فعالیت تبلیغی علیه نظام جمهوری اسلامی از طریق سیاه‌نمایی و حمایت از پهلوی» خبر داد.
 شکیبا پیش‌تر و در پی انتشار ویدیویی با تقلید صدای علی خامنه‌ای، بازداشت شده بود. پست‌های صفحه اینستاگرام او نیز حذف شده‌اند.
@@ -194,148 +321,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78831)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-24 20:49:04
-
-<img src="https://cdn4.telesco.pe/file/DV1bRH4v_5CFaF4Kgg5evBHOcLh9x6rgwn3VyL40Xy5Fg2h39xsFFZHA1S9lWQaWVP3XT1Cfmjw6J3uXRwtHqasVzXAAwtgjusmJ-u5SEqpg3A-W4NDMVFWSuChQMTmwwncd0b6gCYun9cuJ3hpP-94JnV0_MMMhNBixJcSYtQx_I-45PajenrZKEehmZKE6AtYr_BPHoXfLZwx0C5JDysk4aMJPgagjBzDQjTCSux66K5xPMnenDX0fFHjzxbSqiqVTQzYIcLtBzpxHcpssvKRtJrtsFFVcoiZpXzjGA3Q9FAZNci7I4QrSkl871R6czU9vfS3ACzNWEKvI6DfPvQ.jpg" width="400"><br>
-
-رسانه‌های رسمی ایران،‌ روز شنبه دوم آبان‌ماه از دیدار غلامحسین محسنی اژه‌ای، رئیس قوه قضاییه جمهوری اسلامی، با مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی، خبر دادند. این گزارش در حالی منتشر شده است که پیش‌تر مسعود پزشکیان، رئیس‌جمهوری، و محمدباقر قالیباف، رئیس مجلس شورای اسلامی، نیز مدعی دیدار با او شده بودند.
-به گزارش تسنیم، در دیدار محسنی اژه‌ای با مجتبی خامنه‌ای «بر افزایش سرمایه اجتماعی جمهوری اسلامی از طریق گسترش عدالت، تأمین حقوق عمومی، مبارزه با فساد و تسریع در رسیدگی به پرونده‌های قضایی» تأکید شده است.
-تسنیم همچنین اعلام کرد که در این دیدار بر رسیدگی به کوتاهی مسئولان در انجام وظایف قانونی که به وقوع جرم منجر می‌شود، مقابله با زمینه‌های تخلف و پیگیری خسارت‌های مادی و معنوی ناشی از اقداماتی که مقام‌های جمهوری اسلامی به آمریکا و اسرائیل نسبت می‌دهند، تأکید شده است.
-انتشار این خبر در حالی است که با گذشت نزدیک به هشت ماه از نهم اسفندماه، تاکنون تصویر یا صدای جدیدی از مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی، منتشر نشده و رسانه‌های داخلی فقط پیام‌هایی منسوب به او را منتشر می‌کنند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78830)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-24 15:30:44
-
-
-
-۲۶ ساچمه در صورت؛
-روایت صاحب رستورانی که  ۱۹ دی‌ماه بینایی‌اش را از دست داد:
-📱
-mahoor_restaurantt
-پدرام محمودی، صاحب یک کافه‌رستوران با انتشار ویدیویی از وضعیت خود، از نابینایی هر دو چشمش در پی اصابت ساچمه در شامگاه ۱۹ دی ۱۴۰۴ خبر داده است. او می‌گوید این حادثه ساعت ۱۹:۵۵، زمانی رخ داد که در رستوران خود حضور داشت و در اعتراضات شرکت نداشت. به گفته محمودی، حدود ۲۶ ساچمه به صورتش اصابت کرد و او بینایی هر دو چشم خود را از دست داد.
-محمودی در این ویدیو از زندگی در تاریکی مطلق و محرومیت از دیدن چهره همسر و فرزند ۹ ساله‌اش سخن می‌گوید.
-او با اشاره به دشواری‌های زندگی پس از حادثه می‌گوید در ماه‌های گذشته، مسئولیت تأمین معاش خانواده و اداره زندگی بر دوش همسرش بوده است.
-محمودی می‌گوید همسرش با وجود دشواری‌های فراوان، کافه‌رستوران را دوباره راه‌اندازی کرده است. او در پایان ویدیو از مشتریان و افرادی که پیش‌تر به این مجموعه رفت‌وآمد داشته‌اند درخواست می‌کند با حمایت از کسب‌وکار خانوادگی آن‌ها، در این شرایط دشوار تنهاشان نگذارند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78829)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-24 15:27:10
-
-<img src="https://cdn4.telesco.pe/file/m1yYXNqSlgLy8W-F0rI0Aj4WyZNDQ7p3anYcGx4CtQlrYOS3QGgw_3O-IW0tRSteUg4PUADx4lagF8_T1cZBXN6s2ktCGDEv4tOrCF-_FlEhi7Wv1WAwVmMx9NZuek-Bl733X6aB8xCn2hRUuZSAAWqBCIhhsrnVdIUNyQXl7xBS5VeadgLX0ADxxdxCehfMJtAW3MpgAYLQzKjiQ6XPcgaxI_66Jiv2KNN7P-6ve1oX-88wIb35wTHGOvLPkMYWlkQsBVgShlTLi1Yy6byrhca-TrdEblNLEBOrtA58zCT0cvMtIeiMCx1UFW77ecjnnchk8Ju2Z6Lxvgq-vUBOag.jpg" width="400"><br>
-
-دو مقام ارشد امنیتی جمهوری اسلامی به رویترز گفتند که تهران طرح‌های مفصلی برای هدف قرار دادن کابل‌های ارتباطی زیردریایی در خلیج فارس تهیه کرده است که در صورت حمله دوباره آمریکا و اسرائیل به ایران ممکن است به اجرا گذاشته شوند.
-این دو مقام که نخواستند نامشان فاش شود، جزئیاتی درباره محل و شیوه اجرای احتمالی این حملات ارائه نکردند، اما یکی از آنها گفت که ایران ممکن است برای جلوگیری از تعمیر کابل‌های آسیب‌دیده نیز اقدام کند تا اختلال در ارتباطات، از جمله اینترنت، طولانی‌تر شود.
-یکی از این مقام‌ها هشدار داد که در صورت حمله مجدد به ایران، «دیگر هیچ خط قرمزی وجود نخواهد داشت» و اهداف احتمالی از کابل‌های زیردریایی تا پایگاه‌های نظامی، از جمله پایگاه‌های مخفی، را در بر خواهد گرفت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78828)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-24 15:26:07
-
-<img src="https://cdn1.telesco.pe/file/S_5Oy65i2Tn5Zs_ihtsk7VOtS6EP9b6BkZ3tD3oeKX1FN18v9akoFwZANvyfi5_3q2jihA4TswgxljWuTRQDJNQL4vBlNYv9PaNdcJdhgOmdR44NmzQ4MRs7gsiKybViVY9MmST2NQK8qe7r-pbebXy9_v3B17_yea_QE3f00xoXVkW_8X56Y8dwwFrd7JnVrAtYGzGWDCrsEjFaAxb6zY8zHYKD9qQMoS6C3h7xKAP5m_P4uBdUtzVzipOVteyWi-Hvo-Reiz6gy-WqBdji7AXBymb_Iqlty2ihtIm3MLI1UvMVBq06uCk_y8Yi6yE9tnoizT-xCTmWv3lEuh2NQA.jpg" width="400"><br>
-
-ائتلاف نظامی به رهبری عربستان سعودی روز شنبه دوم آبان اعلام کرد که دو موشک شلیک‌شده از سوی حوثی‌های یمن به سمت شهرهای طائف و ینبع در غرب این کشور را رهگیری کرده است.
-این خبر اندکی پس از آن منتشر شد که سازمان دفاع مدنی عربستان درباره «خطر احتمالی» در چند منطقه غربی این کشور، از جمله مکه، طائف و ینبع، هشدار صادر کرد و از ساکنان خواست به نزدیک‌ترین مکان امن پناه ببرند.
-این هشدارها دقایقی بعد لغو شدند.
-عربستان سعودی در هفته‌های اخیر بارها هدف حملات موشکی و پهپادی حوثی‌های مورد حمایت جمهوری اسلامی قرار گرفته است. این گروه که با دولت به‌رسمیت‌شناخته‌شدهٔ یمن، مورد حمایت عربستان، می‌جنگد، فرودگاه‌ها و تأسیسات نفتی این کشور را هدف قرار داده است.
-@
-VahidHeadline
-سخنگوی وزارت امور خارجه پاکستان اعلام کرد پاکستان و عربستان سعودی روند تصویب پیمان دفاع مشترک مکه را به پایان رسانده‌اند و ترکیه مراحل قانونی خود را در پیش دارد.
-سجاد حیدر خان روز جمعه گفت: «پاکستان و پادشاهی عربستان سعودی پیش‌تر روند تصویب خود را تکمیل کرده‌اند.» او افزود ترکیه در چارچوب حقوقی داخلی خود «در حال انجام رویه‌های لازم» است.
-ترکیه پیمان را ۲۸ مهر برای تصویب به مجلس خود سپرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78826)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-24 15:23:57
-
-<img src="https://cdn4.telesco.pe/file/MqWWEsD0ydJFvKoH1JL8xP4EesEXI2H2iovIi1IfuBWK3amcP5gorJcj-r2j1OiwwcGmkZwGgQeUe4Ma4-y3-lzk-fIBYpJUANO6yNF2SIM-gpAkbf4KvbqRGhCGg-Ga0T7nU8OuA1mzVbjW_QK5euhE8N_nKuXSGIFjJwcwO7YOH2lrATlVtCRsCzZGAjN1x1MaXMMd2uRExvw3HcfiWofcyjMeySyZyNHmLiwGewI2pbVYapJE7CVI_2MTuzlttDF3DKgce6CDEhpBRjCNkr8h9UrQwls8aa-GlG5tFe6yDCtKFGlvIKQy8g8xiYQPFs5JP3C6PsUQDiWOT6lIww.jpg" width="400"><br>
-
-مای ساتو، گزارشگر ویژۀ سازمان ملل در امور حقوق بشر ایران، از قربانیان نقض حقوق بشر، خانواده‌های آن‌ها، مدافعان حقوق بشر، سازمان‌های مدنی و کارشناسان خواست اطلاعات و مستندات خود را برای تهیۀ گزارش بعدی او به شصت‌وچهارمین نشست شورای حقوق بشر سازمان ملل ارسال کنند.
-بر اساس فراخوان منتشرشده در وب‌سایت دفتر حقوق بشر سازمان ملل، این گزارش علاوه بر بررسی تحولات حقوق بشری ایران، به‌ویژه از شهریور ۱۴۰۵ به بعد، بر سرکوب فرامرزی، فشار بر خانواده‌های قربانیان، حقوق زنان و تبعیض جنسیتی متمرکز خواهد بود.
-در این فراخوان به اقداماتی از جمله تهدید، ارعاب، نظارت و آزار مخالفان جمهوری اسلامی در خارج از کشور، فشار بر بستگان آن‌ها در ایران، محدودیت‌های سفر، مصادرۀ اموال و استفاده از خدمات کنسولی برای اعمال فشار اشاره شده است.
-همچنین از خانواده‌های افرادی که بازداشت، ناپدید، کشته یا اعدام شده‌اند، خواسته شده است اطلاعاتی دربارۀ پیامدهای اقتصادی، اجتماعی، حقوقی و روانی این اقدامات ارائه کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78825)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-24 05:29:39
-
-<img src="https://cdn1.telesco.pe/file/ppEDCfZaIcudO7G5sywIhF7BR7UBAq3nVoZrVXiVzZfU6DGUdfv_KhTD-ZdEG8V6ckizQ3BfsRAXrNZfuFOV1eqLv8q9Zt5uOI_0OSinasUANx0oCuVAWzUM7fg6vU9Kr7VvVFA7qTfPVahgmwQbq3AGecao01PnfAcHw3LlFRJgcefFXd7v13XnuT77M1hKtv8DhS7-I93hKybCNlkhJ0rR-rcpXqFgS2JaP8SvGsEWM_6adb9G5vqCrn5GjkrfConN-9yogWFyTqC7UpjDdFcAKjgJruS12PQSAlf0wuxSPp60llh-pB1qXwF3x9kHj8jUoQT8OTBkzz9XEyJGdw.jpg" width="400"><br>
-
-به گزارش «آکسیوس» و بر اساس یک یادداشت اطلاعاتی «غیرمحرمانه» به تاریخ اول آبان‌ماه (۲۳ اکتبر) که خطاب به مارکو روبیو، وزیر امور خارجه و مشاور امنیت ملی آمریکا نگاشته شده است، جی کلیتون، مدیر اطلاعات ملی، نسبت به «پیشرفت چشمگیر» طرح‌های ایران برای ترور مقام‌ها و شهروندان آمریکایی در خاورمیانه و برخی مناطق دیگر هشدار داد.
-در این سند تأکید شده است که اطلاعات مربوط به این تهدیدات باید به دست طیف گسترده‌تری از کارکنان در معرض خطر برسد و به همین منظور، کلیتون پیشنهاد کرده است تا سطح محرمانگی این اسناد کاهش یابد.
-همزمان با انتشار این هشدار، «سی‌ان‌ان» گزارش داد که وزارت امور خارجه آمریکا در پی تهدیدات ناشی از توطئه‌های ایران و حملات حوثی‌ها، دستور کاهش کادر دیپلماتیک و خروج اعضای خانواده و کارکنان غیرضروری از سفارتخانه‌ها و کنسولگری‌های خود در عربستان سعودی (ریاض، جده و ظهران)، امارات متحده عربی، لبنان، قطر و اردن را صادر کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78824)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-24 01:05:55
-
-
-
-پیام‌های دریافتی:
-وحید صدای انفجار شدید بندرکنگ ساعت 1
-سلام بندرکنگ دو صدا امد
-اولی شلیک بود
-دومی خونه لرزید نمیدونم برای شلیک بود یا انفجار
-[از همون حوالی]
-بندر لنگه همین الان صدا اومد
-یه جوری بود در خونه لرزید هرشب دارن با لانچر میزنن ایندفعه خیلی بد بود
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78823)
 
 ---
 
