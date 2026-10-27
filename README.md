@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-27 17:16:51 </h5>
+<h5> 🟢 Updated at: 2026-10-27 22:35:55 </h5>
 </div>
 
 
@@ -235,7 +235,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-25 20:32:28
 
-<img src="https://cdn4.telesco.pe/file/NZZhoPZyu8c5R-9zBb8l17nbrIGoeRo69KAOyisLUFUlDaA-PEKjt1BuxiYTHu5A_E9Qav5oGcaK1ETMLNend0_PaBfvr-WDQ5wGLwdJuCG1kOSaaUQ3am_WMZTK96IkoGkdLqRg75IkOXy-IzbAz0JFS4WnZ3wTWecJ03fzLRK6BqkHq7ch3z-vHfCCjPZOU5iBqiTQngkfolRBmGOr2Gd7tU767XVynR-QLXfhlquOORi1rLmjokfu3wnD-VqhNCw2AzniWBmYhsAJW8xIMRB7iKs7VSRpfjG_P3zNZnCZ0ZwuFW936TNo9QURhsIUuXYcTI90HaTLKi0S8CFwRw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/qn2T4HiZF71r-6isA4WncmL-wkSJy6PMM5TL6KFvzKlQ-hZwKXs6pm1en_sDfn81BidKiCnpIf-V_rrsD19PaEPYPo3UAqfU_pODfPEsPXOPUAw2utt0ZJXN1RYVqlW02oU5Q2D_2v3UQ103lRJJUVexerNxvQBXH2C0-vQP2QNBfDd0KbjQzG8vPk2gFJmDVkun8wV6ryQEVDOGYkrVvq3BttqNmyR0wAdMitxXoxMsa2VRS-OwT88jsEy67fS8ZXZEXVmXk8WZ3hfrlXpOM9Iz2W_m0dSAX12KrfEWFPioYrOMdVTAKfq1z4chI8FpvRWnlomlWMeZ4zXsURvP9g.jpg" width="400"><br>
 
 بنیامین نتانیاهو، نخست‌وزیر اسراییل، روز یکشنبه سوم آبان ۱۴۰۵، بار دیگر هشدار داد که ایران یا نیروهای هم‌پیمانش ممکن است در روزهای آینده حملاتی علیه اسراییل انجام دهند.
 نتانیاهو، با حضور در محل استقرار یک سامانه پدافند موشکی «ارو»، گفت نشانه‌های اطلاعاتی حاکی از آن است که ایران و نیروهای وابسته به آن ممکن است با حمله، درصدد برهم‌زدن روند انتخابات باشند.
