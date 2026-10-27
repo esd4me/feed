@@ -3,8 +3,66 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-27 10:34:09 </h5>
+<h5> 🟢 Updated at: 2026-10-27 17:16:51 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-27 16:21:08
+
+<img src="https://cdn4.telesco.pe/file/OIFKlresEKuLBsMkgmfc_gDleTfpp2KXzxUrSafLUYzojSlXHFqknWljqFQXDVE0JH9azqmFiVIGmthlQVE9hTn6VRLR1XUem7npEtxZuI-zYqMS8noajfiwhoyzHgEcJ_MiH3n8iacHAKuFNAAKywnqL6686B65WVQ4PPdQ7VSUly9yVW1TPmxNfXtPp08sF-nzOmrC7vrV772tREr1AOUtJRwE6x08Nwcxws-uWSnEaZ0cSgzcNh1Gua3q7WuahPvRf1nuBLtDTORuTUs9tt95Rc_-_L7ERHiqEs6-mAyoffBM67t6Kcl_YT_mVHeQxYdxdb3eQzaMmo8qtzgvPw.jpg" width="400"><br>
+
+«سیدمهدی رضوی‌فرد»، وکیل دادگستری، از قطعی شدن حکم ۱۰ سال و یک روز حبس خود خبر داد.
+این وکیل دادگستری در شبکه اجتماعی ایکس
+نوشت
+: ده سال و یک روز زندانم قطعی شد و تا هفته آینده باید خود را جهت گذراندن دوران زندان به اجرا معرفی کنم.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78859)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-27 16:20:42
+
+<img src="https://cdn4.telesco.pe/file/YaiPH5MX5jvb_tlmK7h5wiSeot95wbdc_FxNcawnQA04p0ti0Z0zmwEvoNY_-tU-Epi8e6huwF1YBEusKsFpYgu3RLbPGnCkD2gH48ec28CPNPKhJEv5Aq_fVnAIXWaW8Oc8t7CzvjlheGOtv-OxdROk-ndqbvwbj7aoEKfltrCNIoJTJAZNLYBvhzouRxv5QchAq6AGWgA3pxn2odxMRtj5ftU2piDwYp3KGJPjgzTGKtLJm6uGDRhRbG4eW-1JJ4OSOSsk67m--BJi6l7fIaND29oHN4ARBQ-JJn8LmxakRtQyYOordTYXpq39J0SzJCRiCFUBNHW1nQO0H9fgIg.jpg" width="400"><br>
+
+خبرگزاری فرانسه به نقل از دو منبع قضایی کویت گزارش کرده است دادگاه کیفری این کشور سه مرد را به اتهام طراحی ترور معاون نخست‌وزیر، همکاری با ایران و عضویت در حزب‌الله، به اعدام محکوم کرده است.
+هر سه نفر از جامعه مسلمانان شیعه هستند که حدود یک‌سوم جمعیت کویت را تشکیل می‌دهند.
+به گفته این منابع، حسین عبدالله معتوق، از چهره‌های مذهبی و دبیرکل «ائتلاف ملی اسلامی»، در میان سه نفری است که به اعدام محکوم شده‌اند.
+یکی دیگر از این افراد پیش‌تر در سال ۲۰۱۶ به اتهام اقدامات تروریستی محکوم شده بود، اما بعدا مورد عفو امیر کویت قرار گرفت. گفته می‌شود این فرد ماه آوریل مجددا بازداشت شده است.
+به گفته این منابع، این افراد متهم به تضعیف منافع ملی، همکاری با ایران، برنامه‌ریزی برای ترور معاون نخست‌وزیر و وزیر کشور، و عضویت در حزب‌الله هستند.
+دولت کویت حزب‌الله را یک سازمان تروریستی محسوب می‌‌کند.
+این دادگاه همچنین ۱۱ نفر دیگر را که با این پرونده مرتبط بودند، به پنج سال کار اجباری محکوم کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78858)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-27 16:19:17
+
+<img src="https://cdn4.telesco.pe/file/bVM9zRZBrA6UjqNFFbWT08dkErBuLDnev-rg8SfLjvHkZyWCtLb2C1V2lnAOzMRtIReuEnRXqUvWLJUzuUWJAWWZrThrL7culxxw2dgOtEIVy5UkDvVfisesVtB9s1jyElWad3tOyOLPEqEVL6wS_89k0mOw6IWheLtcr6_SVEKFSLUWBECprq7HZ8j7BO7I2BPvnSFepGNbsxO_x0dBx41-PpPTaqzN-VJ03pVOszIfbpsTy2vO6GoGpkcUSoaRpwiPcnbyCLUom6WbtQKFs06taudwzuVsFKJzzmpf5nD79K_1esKe63XXdXC_rjVkK7Aqw375rgX7XXjpmlhhkw.jpg" width="400"><br>
+
+حسن گلشن‌نژاد، ۳۶ ساله و از بازداشت‌شدگان مرتبط با اعتراضات دی‌ماه ۱۴۰۴، به اتهام «اقدام عملیاتی به نفع اسراییل» از سوی شعبه پنجم دادگاه انقلاب مشهد به اعدام محکوم شد.
+این شهروند ۳۶ ساله که شغل آزاد دارد، پدر یک پسر هشت‌ساله است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78857)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-27 07:32:08
@@ -95,7 +153,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-26 15:35:28
 
-<img src="https://cdn4.telesco.pe/file/IQfm6CN1GT-lPda06DQtufjQJ2mfuoCcOrkJnBSxPUdJ1Bh1tcKqsfwiKioMnDPRdctdbkzZV2pZ178cz4paJS37zv2SwapMSONLjr42fh5mHkdax0y6qt-sqFJJACddI-d4wO3E3IvlJTyvZqhn10vAvDLiSlDZ-t2QvzMF4LhvFO3NYPUIb4n9-cyG8ZzqUcmFfJFxv_iDcoEvuDHMUiX2_DNi-0Ww3XyT1BSx_sUdcTOUFoQ4msn53468BnFAz4bl-8c2XnQuRBbCqWDqQGebr7GHPhc8DwgOBcfDjqFQFB7jQzVmf7whdDfyOrV52UhnR09288KaOclPuGWPOQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/DYDidJxivuw-CBk8bxjdEADW2iWzlmNMA1yZT9sOgV-fajE3QS9J-kQs1MUoasszoAPXggBzJUjvsHB9L1qxRwm-IxSQx7WUF5ci2RsvxPepOTdaubJzSgkb25JQMXWHV84sfWFU38oEogoO1Aj3EZQTJ1hojqz_ryiHEc3c00WNDuMszt4XwS0M9BqYEeyPNQpAI6C7kIIj3m7IxUX73A9XBgS6hII_BLs_cpAObTXuHDqyMoZDVUG5oF25WD4JZCEhTos2RUnRDvE1np0XOXtYsCyyaVLu6hOS0vl7qB02I1lR3ahAsaR0zJjowJ-4BELUtrCRTIbHPoLk8BVTKg.jpg" width="400"><br>
 
 به دنبال انتشار گزارش خبرگزاری رویترز از سفر مقام‌های ارشد سه کشور پاکستان، عربستان سعودی و ترکیه به تهران در روز دوشنبه، چهارم آبان، معاون دبیر شورای عالی امنیت ملی ایران با تأیید این خبر، هدف از این سفر را برگزاری نشست مشترک در تهران و «هماهنگی منطقه‌ای» عنوان کرد.
 علی باقری در گفت‌وگو با تلویزیون رسمی ایران گفت خالد بن سلمان، وزیر دفاع عربستان، عاصم منیر، فرمانده کل ارتش پاکستان و ابراهیم کالین، رئیس سازمان اطلاعات ترکیه مقام‌هایی هستند که با سفر به تهران در نشستی با محسن رضایی، دبیر شورای عالی امنیت ملی ایران شرکت خواهند کرد.
@@ -114,7 +172,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-26 15:34:25
 
-<img src="https://cdn1.telesco.pe/file/DHubjMFGVekILVSDhU_kZ2iEQ0atKEpQcoNDthy2WQwlgOg2brufSwz-BhBVKxccbf48cEm2JGSyyFDRciEboFRll1bdQL-PDrGEsDn7eJwn1gbhEIE6GJ1RwQYw6bFjmzEpA_9MGm-YApuZjhq3k1aqSvx3mXOsFhY8U9gimgGqdKpkBKez4nC-P30O7nNlr6-ooK0pMxdqZjmVDLO4Uw8zixHwe0erzoH_c8Bgnjpm6JSG_SeDa95y7WI9B9kJNIVqUX96TiZ1kkztogkqQXKmQMmI9D-0lQNd3bLoFI804vl99rZX2yjTjE6355d43TCSeDv83SKvirRfs7gfIQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Fb0hsCm495O4ln8AxXaeJuXKfxU9zSgCs0huLagl_Vcg8QR2yB1hvbuLS38HBU5Q0QF_hzjJgptUgokt1noghNADDGDpO_cCS7VNBOHFnPMaF80V-T2jkrWcD6SCThwjX6cTdtf_T1V55XTWF49DDL7Fhim3M0_GER3r7VHxmXJrO2Vd8MgRIlVz47AxiWDMbCXhWQOUtDTDIdp_i3QMwkZIbuv1oMNDpyRbunnIfbbYx-CtC5pZJPjnguvJjrjdzqX9j0zSV788oQunKrVqWccZYICr76n8IjK0i1f_he47gQgzmqDtuvoFs9uzDKfAkhCOjTZaijsuD_CXw-iTIw.jpg" width="400"><br>
 
 محمدباقر قالیباف، رییس مجلس شورای اسلامی، لانا نسیبه، دیپلمات اماراتی و نامزد جانشینی آنتونیو گوترش در سمت دبیرکلی سازمان ملل متحد، را متهم کرد که با هدف هموار کردن مسیر دیپلماتیک برای «پروژه اسراییل بزرگ» و «سفید شویی نسل‌کشی در غزه»، برای تصدی این سمت تلاش می‌کند.
 @
@@ -134,7 +192,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-26 15:32:12
 
-<img src="https://cdn1.telesco.pe/file/kwYXo0z-pKvgVkQC6NKY-fuNliWO8p_i1757dhSgDXC-WCQoQsBVCGFJ7lmsD0NYm7xDVwE0A6Ts2Sw31hMCnUHS07r8Yy405iTQ8HnhvRfwO7zTHW3gK9kjI2ueuxT-lhJcSaeByDjzXhPHMMJhtKYtFvwZDbb7a8OHn2IJoa2cM9ufpkJMXiZ45mVqKiVmvNiZasE5QTrmu6zTBca2A8t-zBvmqRF-B1Uov89h7hjaV2UqEyCHNk3KXEMAd-SrJxtlTic4IFW4ZQzKkE6y27f8nJN7-RR5h7XXLPYlAsaqKi9cw9w392fh5CiK0lCv7zsOEiyx8jb5pLPANfOZPA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/IzSVs8Pac_b--33dNayxPbTB49BtXBm6kq1NMkLdF4jLCkq1vqulzmZzff1hJENWWx5y_1MxIaUE0mErphAA1vaoa6X-vCsiSzxtllRCcQEINJ3FVX7D5ZE-RSYPUoIlCCQo5HC99SNOLS5Jpb7_ei5YeoaZl1Ia83u2tPA6mQoaQFyiI0U-8oOZSJTJj4YRjmHt7Yuj3MuztbPEf0rOuxDFXC5BkYrPa0Cqq8ps-nkrHZ91rVTInWcHTJ-3zbnQVNrqo6qk_IpL9dzLdkI8DJ8SQO0r8D8QN8hAm7RuKmWHU6YlUK7f-3wgQYeN1dg81RRXV-VREEXn9GJ9mqc07A.jpg" width="400"><br>
 
 شبکه ۱۲ اسرائیل گزارش داده است که اختلاف شدیدی میان بنیامین نتانیاهو، نخست‌وزیر، و ایال زمیر، رئیس ستاد ارتش آن کشور، بر سر اجرای یک دستور نظامی که ممکن است به رویارویی تازه با ایران منجر شود، به وجود آمده است.
 بر اساس این گزارش، زمیر از اجرای این دستور «خودداری» کرده و خواستار بررسی‌های بیشتر و ارائه مجوز قانونی مکتوب و امضاشده از سوی نتانیاهو شده است.
@@ -158,7 +216,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-26 15:28:13
 
-<img src="https://cdn1.telesco.pe/file/HYhdBYDIR9jZrFyaKAHiUAF1wmQbBzZP75UZ-S6pT_p07ZQOKYDsd7wVp28C3SAy3bnjgdvucBCh2pamaXTWjVsQdu1zXAV8W62fgSxeQOT8Up5G_1ogKpXChymvu3MWDRlmvQgnxzgyYBY0Olu9Kst7pRa0FdYAIRd2MgOJIlg2mwGFrRR-A0u_I8yMs_YHRg_wNd20OqINU-fiZcihhbXg5qK6J9w35kB4XgXrWG6oiINrvzgqomS2o5DzVVTpqLplu-gVRA5lEXIhX2XVsAHtq4mC0t6lAYRlSmzY95ldMpBsbRnYj9VPm54gWvhGUnHRjnFY7Eec6o3wi_1m6Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/h_rdqbcMCJFCJaA8a64r_G6lYXeWZX0q1ZkqElSfHobHq9YTula4rWeLCADXkSlE5guOAiaqrqUKLtcQy7qEHcnxtiO9bofvkH_MSzcvOI81ZQ1G3D7RsHTki7SqyqK6a7RHMNn7_E0vrWvpvvpHo0B8RAEtmyisNrkLQ-fKP0zkzbpAPr_bEbTbpoKAZLn5ZsncpHFG-y7uwHn9k8yeHT5D3od1M2uLFzGh1ccB0DjAM2nl3sRVxd4-aUv3nNnihaOOuxbeiwugob1XBjWSwIQbwU3_N-ilTgBXPz7GoS6HX-xm3T42n6RphkYyrcgV4h7w8yj1ch0wqRCb5fK9CQ.jpg" width="400"><br>
 
 ویدیویی از اعتراف اجباری احسان ارباب، بلاگر، در صفحه اینستاگرامی او منتشر شد. این فعال شبکه‌های اجتماعی دوم مهر و پس از انتشار مطالبى در فضاى مجازى بازداشت شده بود.
 در این ویدیو به دست‌های ارباب دستبند زده شده و او فعالیت‌های خود را «تبلیغ علیه نظام»، «توهین به رهبری» و حمایت از اعتراضات می‌خواند و بابت آن‌ها اظهار پشیمانی می‌کند.
@@ -217,7 +275,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-25 17:44:13
 
-<img src="https://cdn4.telesco.pe/file/Ms9axLRKeKAgpceKIXNgb1p2rNJC_QXWEbl_f6UnKATsSxof43I_PU0da0B6LFn01ELZWOWC3onEngyFJggSpeuhrZVGbQKhcdoHXXZQbu74GlRxs6FB0qC1c04s67_laPyDk73TUujT77GDfBtkHlZs-CIauDu_FfbNmImfcwlelMXO2aaeU0OdCR6bXSbR5b9Vh1xnrU64X6rujiavas9glgHdQR_Z5HfE0TrHYZQw5tr97v_hHVotAVg8NkMoTJro3tz1RmrfHaiaBMDNQ2FXwY58cxCaFphxrCIwVCQLufLVJUvHlxaxAD6Je4Ed8_5GoF3xxjRtsOGHi85W3Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/LbRdRzdUhg_uRCcdKGF0xNo4rFswryAof5c4Gcuv-X-VeAeWCPf-syDbonwgHyppPfwoBLw4x6LW6MyaAVH5zoB2C0LN3f2kbIUXmOq5rhmV_rwdSy99Rp6q4s18ZGF9WmcUeX7sfqWND-Mzf19Qya8mcfmnP4J6nPmHyt3fi6ngRcgs7hdPUuSb5yV3OTCIyAz9g9gg2LXIK-tMgTZuiwNUhBA4PwxYP_Nn5TyLhTpTMSeuPD6qK8HPSpgo4OmljaBCAqv6LTGGFiiFIgozjeP3jFUtlB1IWWXggC6vwm9EDqKHvI_3mQEqgz7o0ns4coHZ87VVfsD91sWbn-8HIQ.jpg" width="400"><br>
 
 خبرگزاری رویترز، یکشنبه سوم آبان به نقل از یک مقام آگاه گزارش داد که میانجی‌گران قطری در چارچوب تلاش‌هایی برای کاهش تنش‌های منطقه‌ای و با هماهنگی آمریکا به تهران سفر کرده‌اند.
 این مقام که در جریان تحولات قرار دارد، به رویترز گفت حضور میانجی‌گران قطری در تهران بخشی از تلاش‌های هماهنگ با آمریکا برای کاهش تنش‌ها در منطقه است.
@@ -236,7 +294,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-25 17:43:58
 
-<img src="https://cdn1.telesco.pe/file/b5VIfWKkCKl7mhN1TpvCO7uYpZTFNz1h_HVy-lPJYW0fXLoQJHSScu6s0oucIZF3xCyVSB5kizOYRx40ROKwMRtApy3l6LTVZQqxMcSp_GDyWSy-ygmx6HXMZRsGv1u4S7JxAC3q4f_lSirkkCqah4FtkCPdYl8QmXCAzby5jcaq_VEZdy6yADwsMb2RQbo_9yfptGRdy0MR3sRPBFjZXHqZ4rjwnTzamn169oczhLibV_ZjrB4cyH7SIwxqhMRYm7f_AuVd36fYexK5JWI7FRwYcoeAg7sGBJmatkCPirniwtYL2MGdPgNiC7_Unm57fcV7wcqDYQXJWklIpIOPTQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ZTay2UiubNluzZjTXKlC3CNdGY6dPbghBGo0Uf_wZYOj7B8V2NWQyfLe1aHnasyYdYqhEIW8rpT4tkg19wByUvRipG2rTYI4p8NlWP4MfRwTjQ1fQuBuzO9qF_QRkTxdbG7g6cPAfp8-XSGE5lFKqo_npnp9gU_PGSTy83KWe5a3tSEPOTndDKyTWEVGp9lQ23Ae3K_g4oZR0bok8f66yut0cGodb2IrNty7Z-OvWCV_7DbDZwhXq3iJYka6ZVF9jq6PWQuhIWd9QLF2POo7VC96MhR_mIpemfFTs7CjhRDzxwvur3zbTMT6ZEz2jYnUgIBOFIdpXFxst-6PxWwEXw.jpg" width="400"><br>
 
 مرکز رسانه قوه قضاییه از صدور کیفرخواست برای سعید شکیبا، دوبلور، بلاگر و طنزپرداز، با اتهامات «اقدام آگاهانه در تایید اسرائیل در فضای مجازی، اهانت و فعالیت تبلیغی علیه نظام جمهوری اسلامی از طریق سیاه‌نمایی و حمایت از پهلوی» خبر داد.
 شکیبا پیش‌تر و در پی انتشار ویدیویی با تقلید صدای علی خامنه‌ای، بازداشت شده بود. پست‌های صفحه اینستاگرام او نیز حذف شده‌اند.
@@ -267,47 +325,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78840)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-25 14:53:47
-
-<img src="https://cdn1.telesco.pe/file/Q8ZssFLHKsebEJb7O8CoV0kFjxk21dStTLxrqjorqEGR9qmOGqz0zoEXPsg01CHmohM7L41rauha8L5irfOT4VnVNqsnUe3M05Ee4w-PSJHC59Euql3EUW2U4dbq8FeBb53KKyHZE8s7OnhseYuChyja2dUC-JkakG1Ac3cY1cthoZSQlkWG9Wd88sm3JCiGzkANwXyt-wUf0Zm-AAKalbnc73HYgpNBRVyHhbugKbzhI2iS0xdI4PIoidEzZgJ8qvxrQdFuCYnlOGR2O6SCpNg64XZnZgsaQ0pP2BXln5LmtIarVAeyJY_uy7I2aHJ3UJ5oapW9vAZqURNNawFc0w.jpg" width="400"><br>
-
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه ۳ آبان با اشاره به احتمال ازسرگیری جنگ با آمریکا و اسرائیل گفت سیاست‌های تهران در هر صورت تغییر نخواهد کرد و ایران برای دوران پس از جنگ نیز برنامه‌ریزی می‌کند.
-عراقچی در مراسم بزرگداشت کمال خرازی، وزیر پیشین امور خارجه و افتتاح مرکز اسناد وزارت امور خارجه به نام او، اظهار کرد: «این روزها حرف از جنگ دوباره زده می‌شود. من از الان به بعد از جنگ فکر می‌کنم. جنگ چه بشود چه نشود، سیاست‌های ما سر جای خودش است.»
-او با اشاره به دو دور جنگ پیشین گفت که اگر طرف مقابل بار دیگر حمله نظامی را امتحان کند، نتیجه متفاوتی نخواهد گرفت. عراقچی همچنین تأکید کرد که در صورت وجود عقلانیت، حمله دوباره به ایران نباید تکرار شود.
-@
-VahidOOnLine
-رییس مجلس شورای اسلامی در نطق پیش از دستور جلسه یکشنبه سوم آبان گفت: «ما مرعوب نمی‌شویم و آماده‌ایم تا در مقابل هرگونه جسارت به تمامیت ارضی، پاسخی خارج از تصورشان بدهیم؛ لذا تهدید به جنگ گسترده یا ترور، مسئله‌ای نیست که باعث کوتاه آمدن جمهوری اسلامی از حقوق و منافع خود شود.»
-محمدباقر قالیباف افزود: «تا زمانی که آمریکایی‌ها تغییر رفتار ندهند، دست از خوی زورگویی و طمع‌ورزی برندارند و تعهدات نقض‌شده خود را به ‌صورت عینی، ملموس و واقعی روی زمین جبران نکنند، هیچ ادعایی برای جمهوری اسلامی ذره‌ای اعتبار نخواهد داشت.»
-او همچنین گفت: «همان‌طور که پیش از این نیز اعلام کرده‌ام، ما حرف جدیدی نداریم؛ این آمریکا بود که با محاسبات غلط و جنگ علیه ایران، وارد باتلاق شد و اکنون هم آنها هستند که باید اقدامات لازم برای نجات خود را انجام دهند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78838)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-25 14:53:12
-
-<img src="https://cdn4.telesco.pe/file/I_DGCtgomzrGX-aMyrbdvg7cEC8AGmUwTZh93dk8RmLhBrULiPFy8Kf1LgcX7bRs_5mNZfUCENPZvLS7LTj9zHnDe18Sr702EleIdLJTHlcQXTCXP6qeCrLl9-IezCJsDmUoYsBovyPsJnFTtj0vrP1P-07uWnhiwzwkRKvu-URylrJW0t092R3O206-llQOntqF5ooCIi5Zr0EhHL_7ua5um6p6LdGd5RfU0cszvJRbLZD_XdjtxFDgtxsFDF7Uq1RvvAT9dKZqspGr-1X4nYAaY3BqjkAfiwvoqKYhCN14e5iHs5nU0SGty_IoqdcfvPlByOqSdSQSK9DtE8sfQg.jpg" width="400"><br>
-
-رسانه‌های داخلی در ایران گزارش دادند که سپاه پاسداران در حمله‌ پهپادی پایگاه‌های یکی از احزاب کرد مخالف حکومت ایران را در اقلیم کردستان عراق هدف قرار دادند.
-️بنابر گزارش خبرگزاری مهر، سپاه پاسداران در عملیاتی که «اقدامات پیش‌دستانه آفندی» خوانده است، شب گذشته یک پایگاه کومله در منطقه بالیسان را هدف قرار داده است.
-کومله انقلابی زحمتکشان کردستان ایران شامگاە شنبە دوم آبان اعلام کرد یکی از پایگاه‌های این گروه در نزدیکی مرز اقلیم کردستان عراق با ایران، هدف حمله پهپادی قرار گرفته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78837)
 
 ---
 
