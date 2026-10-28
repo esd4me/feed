@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-28 06:40:24 </h5>
+<h5> 🟢 Updated at: 2026-10-28 13:40:39 </h5>
 </div>
 
 
@@ -103,7 +103,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-27 07:32:08
 
-<img src="https://cdn4.telesco.pe/file/v5OTHnURdSXa7uJEyunozj9nnEALkZLaVoOqb2R6-UDonK1bgxGtcTIE_M6K158p9Ad47TsQpHgg5s4NOHCy_1V1KYJYW_v81w76ObnJMQC_885ughsX1hMzzyFeP4HEqOultptuzJcLRzeIwbLDzONHdSqqy2FUjq-hfz9zO7lrW2an_Ig76DGrRUnmDKbBLABrAt8rCedLMCn4FqfiDXe5-M5KQGPuG9XuTjGXCXCS3vhsJBKWq9Bfu7wwgTQzNi2Z2w7MhtY6tRYJNLC6gep7NWvFNvR__JeySS7ERwon4FlKFbvowcnqsJQHOyQP01OTawdUExFvbGsTq-IgOA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/H00T5coN5TxmpEaOhXj4DLTmPRGo0YccbswkNfuQsn42dTTZAdJuoUlwp0uTDmEUbua7VTO4J8j2tIyq0V2tcWPOq_9I67RvkJDkfJJd1E-b-l4K8djp3OhFW0S-3EC3wKO3pqYDJZGHkHexI6h5ArM3jnQ53pbp6PbgtbO6WtiDj_3qQ9SjrBQHT06kurvPQuidjSAd9fgEDBPmLFLbPKgsZGmRhAf6ZR92npdZ2T_Y8Swpg6rvAFreaPyHed8V0B1vpw0IGTnlrbd1MmxPqMSS8sBVYt0xVfHcThiMZ5jm2aE2jJVOKbfypXX00Mj2FAaS84oP2RXoVphLwvALTA.jpg" width="400"><br>
 
 نیویورک‌تایمز به نقل از دو دیپلمات آگاه از مذاکرات نوشت قطر در حال تدوین طرحی برای توافق پنج‌روزه میان جمهوری اسلامی و آمریکا است که شامل بازگشایی تنگه هرمز، رفع محاصره بنادر ایران و دریافت امتیاز هسته‌ای از تهران می‌شود. اختلاف بر سر زمان اجرای تعهدات، مانع اصلی توافق است.
 این روزنامه دوشنبه چهارم آبان نوشت بر اساس طرح پیشنهادیِ میانجی‌های قطری، تهران و واشینگتن طی یک دوره پنج‌روزه مجموعه‌ای از امتیازها را به یکدیگر خواهند داد.
@@ -124,7 +124,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-27 07:28:09
 
-<img src="https://cdn4.telesco.pe/file/JJ1zWpoEgLBIifm_ZkBFx1pGZsy-PUjhu8C-lbrGW4v111_3oWbOn7dVCHkrCXLhUdToEsyBrvx_ERoimnKqqxnFEvhaxjwYjHMxuJiKjJeB-rA6on0kYYMnGnwr3STQ6Ronpr23h_lfRlsYT8-V5uhpMhGUITlBPBYQ-Frt1p_FPfJyVQcoRncXZQA2PajMtMXjxmdUN4-lbZUJivm8xox4rzD4dTW_IVgZVmDP7t0RpT1cXaCZl4vt7Ppu9DJbOND7Fpk6I83BvEvPRjo_oCCW4aXUb8wKorPOsYW4xL9b2LwfJDwp0ShR9MzwPeAH4PPjJuBwEwxPAD2-wqLQlg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/j8m7b7-6GEb14W_hu5-metasEMxIHpSa3GiPUY_oxDS5MXs5T3xEop1mWSCWRjYBtE5uGhBFUJklywJdxOQOwxg6JToD7LKT2-ScagAbGzikWQhvmmgaolTrtjjzvvVfTfyWi7L-EXVfEc7J7w-Tdw1GZZXskowHe5Zf5JvFe5Y9AKTNhdhwkq6FT-RUWI_wKTlEYlPAS2g_GP0_NktH9HfKvKjwjXEZEZGxgwLce34_UYAlSioGdt6UFwIWPpRFdkSpStM1tJ-Z3MAgshpb_dkuIE9jJqi5r3Nl2eF3R_iby3oB1rpt8-3ddEgVhvWZMTH_oGWaJAfqxWWcqsJWWQ.jpg" width="400"><br>
 
 دونالد ترامپ در گردهمایی انتخاباتی در ایالت می‌سی‌سی‌پی با اشاره به درگیری‌ها با جمهوری اسلامی ایران و برقراری یک دوره توقف در درگیری‌ها گفت:
 «ما یک آتش‌بس کوچک برقرار کردیم که من هرگز چندان از آن خوشم نیامد و آن را نوعی اتلاف وقت دانستم.
