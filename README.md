@@ -3,8 +3,119 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-28 13:40:39 </h5>
+<h5> 🟢 Updated at: 2026-10-28 20:23:58 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-28 20:16:48
+
+<img src="https://cdn4.telesco.pe/file/TH1lvUYE3tQKd9HqnK5Bos8zdc8N4MTEKr9rmzqlyrUhuGVXDZmf1eCuh5jFdJRuMfDNRJTb4UA07zvYtlSnfNJmlu6Y9QV2gS5nRRU5l6dTy8J4ZHI5wmSC_FyIe6kyDio0sRWycnrp0LP35FIL5BmQ8RDxTt2Z668tcqqf3IGLfm4W-wm01a2_69QWuK0HVmeun1YUBmtDrLzZIpLNAGV2G1w20U99LMh9YkKilo0P8571ACKTO_vH3_RFWHzRUebTCeOrjPFshuuyN1elun6zrbtWoHiXg59lE4Z2nY_-5d9QDhpYem5zMSztsz-z4Pniw9nJVZGcAmUfboPMBQ.jpg" width="400"><br>
+
+ولادیمیر پوتین، رئیس‌جمهور روسیه، روز چهارشنبه ششم آبان در اظهارنظری کم‌سابقه درباره اعتراضات دی‌ماه سال گذشته در ایران، مدعی شد این اعتراضات از شبکه‌های اجتماعی آغاز شد.
+به گزارش خبرگزاری روسی اینترفکس، پوتین در جریان بازدید از یک نمایشگاه در مسکو گفت: «آنچه هنگام گسترش بحران در خیابان‌های تهران رخ داد، تا حد زیادی از طریق شبکه‌های اجتماعی آغاز شد؛ شبکه‌هایی که مقام‌های ایرانی نه آن‌ها را مدیریت می‌کردند و نه تحت کنترل داشتند.»
+رئیس‌جمهور روسیه گفت تنها کاری که مقام‌های ایرانی می‌توانستند انجام دهند، «قطع کردن همه‌چیز» بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78869)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-28 18:49:05
+
+<img src="https://cdn4.telesco.pe/file/BvxT0kSm3NWVY7HIcH8wwEyijD9886BeXUnA1Gl4i8aH3Vioj9Qcpi_f9p5Ai2Szlo0NeLSuX-OzrBrnRT__nTzSxCmxq4FBEQvqC9K1W3imKz89vyXdZm1Nxc7F7cK9ZI-LjkOmQeIhpRUgNFSQS6EOKzmeKgCESxQNiZ0rrbtE0P4vc3H5OdQpPvtdBiHJQPvEN1s0TgAWFe9chpm5oobMEZFEBONSNh09_i5OK-A98Fnf6ZRLlu8RxXq2fHdLUF891DzFsYS4vLXBJDndlrFeVdp-aH-xz2IksqE21CfYMyAL9u67WyE_9gjy0Zvi5uQKZhf4nalxcaKzmUgHzQ.jpg" width="400"><br>
+
+با شمارش بخش عمده آرای انتخابات پارلمانی اسرائیل، ائتلاف بنیامین نتانیاهو، نخست‌وزیر، بیشترین کرسی را به دست آورد و هرچند به اکثریت ۶۱ کرسی نرسید، اما نتایج نشان می‌دهد که نتانیاهو دست‌کم در مقام نخست‌وزیر موقت در قدرت باقی خواهد ماند.
+بر اساس گزارش سه شبکه اصلی تلویزیونی اسرائیل، با شمارش نزدیک به ۸۶ درصد آرای مأخوذه تا صبح چهارشنبه ششم آبان، ائتلاف نتانیاهو متشکل از احزاب راست‌گرا، راست افراطی و یهودیان فوق‌ارتدوکس در مسیر کسب ۵۳ کرسی پارلمان قرار دارد؛ رقمی که به‌مراتب بیشتر از ۴۸ کرسی پیش‌بینی‌شده برای ائتلاف مخالفان به رهبری گادی آیزنکوت است.
+احزاب نماینده شهروندان اسرائیلی با تبار عرب نیز، در پی مشارکت گسترده رأی‌دهندگان با انگیزه بالا، در مجموع ۱۹ کرسی به دست خواهند آورد که رقمی بی‌سابقه برای این احزاب است.
+با ادامه شمارش آرا، نتایج همچنان ممکن است تغییر کند، اما به نظر می‌رسد شانس آیزنکوت برای پیروزی بسیار ضعیف شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78868)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-28 15:32:42
+
+<img src="https://cdn1.telesco.pe/file/ZxGx0NXhZ32ys8UtBzjjQG_WKfviFoiPiQgxMRPxPtLzMfyMCWG4IJat-b6BXnoHAGbVAQSZIEnhwKy36d0T7z0ZOPoxhW6c68CXZ_moDDkPcq6AzrpeoLjZfiycmBnUqdIgoA-JTabwW2ZJgpnCXAkHUeLY6Ww0xNIKqsy7rJHXkrDxw59GgxeTqbndCoPkWmBIsgn2IhZEDRiq72bdeAwH5juRUbAQgI1WWtrOEAngKJhJLlz16m5gTly0tEZ1ZrUaw-7kq8k4STP3ICtjAzKxPr4mQec4yv0silFyayal0vBSlT9yzeDq8Px6NlOr2BinIGDYezWVC05xa2OnvQ.jpg" width="400"><br>
+
+خبرگزاری مهر صبح چهارشنبه ششم آبان‌ماه گزارش کرد در پی برخورد یک تریلی با مینی‌بوس حامل دانش‌آموزان (سرویس مدرسه) در اردکان یزد، دست‌کم یک دانش‌آموز کشته و ۱۲ نفر دیگر زخمی شدند.
+براساس این گزارش حال سه تن از مجروحان این حادثه وخیم اعلام شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78867)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-28 15:23:18
+
+<img src="https://cdn1.telesco.pe/file/d4Lu8-kLI65CH2tCW78hFYqZ6axKinGIE2SERtsZueQ9ewnkIApm7dugqvm_gdRm5HSKgoO8tW-LYbVfxagYwQWnR0uhlJjzYlXl8cy_zZfxzOq0W-HIlR4B8j_OZMbbo2wawHO3FnP7jt0lM4IMek4J40s8tFFM7Y9XUToEUL1UwODSWzgTZX_QaJwOZSIIrnz4A-3DSAoZA9GkuZy3ap7VcvvxO5tGiYe_G3Ewqhhk8qa67DgU-_iz2-LpSEW89sbHC6rxdgYkCTUI92oPeUEodP_YnKeZZWxb6JeWQEgBe8VhkP39NUu_5qXg_H6vsTHneIGBEcdbcINsS99umw.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز چهارشنبه ششم آبان در یک گردهمایی انتخاباتی در تگزاس، با اشاره به ایران گفت: «دو هفتهٔ دیگر خواهید دید چه می‌شود.»
+ترامپ در بخشی از سخنان خود با اشاره به عملکرد دولتش در حوزه‌های تجارت و مسائل نظامی، گفت: «ارتشمان را بازسازی کردیم..»
+او پیش‌تر با اشاره به تنش‌ها و رویارویی نظامی با جمهوری اسلامی ایران گفت: «پیش‌تر فردی از من پرسید جنگ در ایران چه زمانی به پایان می‌رسد؟ به او گفتم هر زمان که من بخواهم تمام شود.»
+@
+VahidOOnLine
+دونالد ترامپ، رییس‌جمهوری آمریکا گفت: «جمهوری اسلامی می‌خواست توافق کند. شاید منتظر انتخابات هستند. انتخابات کمکی به آنها نخواهد کرد.»
+او با اشاره به تاثیر جنگ بر توان نظامی و وضعیت اقتصادی جمهوری اسلامی افزود: «ما توان نظامی‌شان را در هم کوبیده‌ایم و منابع مالی‌شان را به‌شدت تضعیف کرده‌ایم. آنها پولی ندارند.»
+ترامپ همچنین گفت: «آنها بالاترین نرخ تورم جهان را دارند؛ اکنون ۳۴۰ درصد است. ببینید چه اتفاقی می‌افتد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78865)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-28 15:21:07
+
+<img src="https://cdn4.telesco.pe/file/MJKa3c9Du_eFd13TokGYVaX4ul8sYetHnlE25K3Re28_SjFQvJD90i60UC0wI8DQsDdzNl_G6FhTI6ATp32651MPMSHyhjE2OHyz4YeqZqvbdW0fhFHDGTFJZK3HcTrqLPIId1zMetQjPKHWql3YQWQ6SdrbDz9wYLrU4Z3qBqyFLq8ZDhVhd8FP0XTFrwTr-m9ixfJZPihLl77Dwp9qPJC0AI8sRi4oM0XuTD009zloaNnTFm3cYqjy2oW9p1p9PlcD4sKtTaJ6M_x7urHuewl0nA9Nysvl13O5-j385i4YHLhRhdECx9DHNVcoeqffx7pk0cC_1MX87AstRQyYiA.jpg" width="400"><br>
+
+خبرگزاری‌ها و رسانه‌های حکومتی در ایران، از جمله فارس، تسنیم، انتخاب، دانشجو، ایرنا، مهر و خبرگزاری صداوسیما، با تمرکز گسترده بر انتخابات پارلمانی اسرائیل، اخبار، آمار و نتایج نظرسنجی‌ها و اظهارنظرهای جناح‌های مختلف را به‌صورت زنده و لحظه‌به‌لحظه بازتاب می‌دهند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78864)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-28 15:19:05
+
+<img src="https://cdn4.telesco.pe/file/dmS9Uygi9xra4uRivnyMsSA-xiQLzRZ31JZzjFLFLYGPWUbYFO6SjFNdpqgjprzEar-CgDtz2cWy20BC5f56-cQceNcsywDl090zClDqn05sUbZJPFTDMtdsyVGEzhlGB2bhg89nCc-aVYmJn009WC3fbV8wHTZJUSxsw6wqU3tIx3bZzC8xIfgVBStt3XAjqa0o1QRvogc9tRqtQuspf7hxvJKWyiCICmW4t2VIQ_j-yF-grwtTGAe5uhO1mfnx_Hcs-hkYu6QnswKwCJv1DtLxQpnzVD44lzmCYt0XxY24LVaIehtNdDmJm5bo8q3Efu33f9d4_qM-Dc_KkPn9Og.jpg" width="400"><br>
+
+شعبه ۱۵ دادگاه انقلاب تهران آرتین غضنفری، عکاس خبری و شهروند بهائی، را به ۲۶ سال حبس محکوم کرد.
+حکم روز دوشنبه ۵ آبان در زندان تهران بزرگ، معروف به زندان فشافویه، به او ابلاغ شد و ریاست شعبه در اختیار قاضی ابوالقاسم صلواتی بود.
+۲۰ سال حبس بابت اتهام «اقدام رسانه‌ای» با اعمال تشدید مجازات، پنج سال بابت «اجتماع و تبانی» و یک سال بابت «تبلیغ علیه نظام».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78863)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-28 00:00:34
@@ -45,7 +156,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-27 16:21:08
 
-<img src="https://cdn4.telesco.pe/file/OIFKlresEKuLBsMkgmfc_gDleTfpp2KXzxUrSafLUYzojSlXHFqknWljqFQXDVE0JH9azqmFiVIGmthlQVE9hTn6VRLR1XUem7npEtxZuI-zYqMS8noajfiwhoyzHgEcJ_MiH3n8iacHAKuFNAAKywnqL6686B65WVQ4PPdQ7VSUly9yVW1TPmxNfXtPp08sF-nzOmrC7vrV772tREr1AOUtJRwE6x08Nwcxws-uWSnEaZ0cSgzcNh1Gua3q7WuahPvRf1nuBLtDTORuTUs9tt95Rc_-_L7ERHiqEs6-mAyoffBM67t6Kcl_YT_mVHeQxYdxdb3eQzaMmo8qtzgvPw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/R6DToKh6_V8NxXkZ7LqMZZR4GUGH-a7c8jk7vZhPv5Xprv48BAJ62O5b3DJ96HXew5FaYP3VUcJNqTTzS2VzJZYNrQrfdn9-d-8QyCyxUO4hiYiTdExU2WyGp1OrYGymR5hewTLl3lvsW_Xw_PGELkJJRGSfR6EjphpbRi13Tc2T3s-7d_UoWDjLY7xOoBoiMqZR2nu37TvIo-vxqxKHvLWblV_ISPFReXEx8a6nQ-zant3gpYuKNdKy9R7ixD0SzjBZBVRrQpZK4-Hp4DtA9cD7w_KtqjqtoLBOzIRa029xwdVlZ-r959ev9TzXKEJVGdWVqqk03b4TQU9CRzOZSg.jpg" width="400"><br>
 
 «سیدمهدی رضوی‌فرد»، وکیل دادگستری، از قطعی شدن حکم ۱۰ سال و یک روز حبس خود خبر داد.
 این وکیل دادگستری در شبکه اجتماعی ایکس
@@ -64,7 +175,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-27 16:20:42
 
-<img src="https://cdn4.telesco.pe/file/YaiPH5MX5jvb_tlmK7h5wiSeot95wbdc_FxNcawnQA04p0ti0Z0zmwEvoNY_-tU-Epi8e6huwF1YBEusKsFpYgu3RLbPGnCkD2gH48ec28CPNPKhJEv5Aq_fVnAIXWaW8Oc8t7CzvjlheGOtv-OxdROk-ndqbvwbj7aoEKfltrCNIoJTJAZNLYBvhzouRxv5QchAq6AGWgA3pxn2odxMRtj5ftU2piDwYp3KGJPjgzTGKtLJm6uGDRhRbG4eW-1JJ4OSOSsk67m--BJi6l7fIaND29oHN4ARBQ-JJn8LmxakRtQyYOordTYXpq39J0SzJCRiCFUBNHW1nQO0H9fgIg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ur-IF6EQU1UnIlzlVrtnsqJ3wrahgr5OfdKF7FEEQSskAEVa--n7_2fHzXouGcymHNYzNPbAm14GXT8wrXom6Lae4q5ogH5vopY0M5Wlss_UHOFHgL8SzXb_g-u0Adv_Vg9dY-HzYiOUF5dUVNntGNBGoX9ASSnjO1pvW6oGg3_Hi9ZH8DQ79St-ko3KIO5zRU5inwQFZ40fLrQbwd0cDtuTPoKAzbU3t5t4dux6Erfqk9jRdOdwIXCpP_NPYicTf1lFR-MXkRkWGB1k8c2YdeA6gNYyGt8VTy9CzkHb7M4Pprp_I00tfehw9tml1aHSRDbbTrr3lwI9ZEWieRTbpA.jpg" width="400"><br>
 
 خبرگزاری فرانسه به نقل از دو منبع قضایی کویت گزارش کرده است دادگاه کیفری این کشور سه مرد را به اتهام طراحی ترور معاون نخست‌وزیر، همکاری با ایران و عضویت در حزب‌الله، به اعدام محکوم کرده است.
 هر سه نفر از جامعه مسلمانان شیعه هستند که حدود یک‌سوم جمعیت کویت را تشکیل می‌دهند.
@@ -86,7 +197,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-27 16:19:17
 
-<img src="https://cdn4.telesco.pe/file/bVM9zRZBrA6UjqNFFbWT08dkErBuLDnev-rg8SfLjvHkZyWCtLb2C1V2lnAOzMRtIReuEnRXqUvWLJUzuUWJAWWZrThrL7culxxw2dgOtEIVy5UkDvVfisesVtB9s1jyElWad3tOyOLPEqEVL6wS_89k0mOw6IWheLtcr6_SVEKFSLUWBECprq7HZ8j7BO7I2BPvnSFepGNbsxO_x0dBx41-PpPTaqzN-VJ03pVOszIfbpsTy2vO6GoGpkcUSoaRpwiPcnbyCLUom6WbtQKFs06taudwzuVsFKJzzmpf5nD79K_1esKe63XXdXC_rjVkK7Aqw375rgX7XXjpmlhhkw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/KnLKbMwp_2spq2iMHSjy_L1f_fZwdMR4CWBEltaEfRYwAlLgVD9w2Ri9nnzXyRtBUxxr17fev8XpSu4Q9Ozw1sjdJeAu-OhZzgvnJx8iojvYXzcMPdBKLLmRIO3m2I6kkm1D2MAipKMKda0U4dVhzAMNKkV3YY26fufxhd_Y4xko8nY_Y0SUxryjKiIlFJkqW6GmILRYPWLkgODXQ4-RfFbW7JquMeERKW7YMBvLzKza4kLCYyqk9INsg1twU14fkb4MtD2Ic8ccMdLcZbpUMhH6Fer6uQwOR9nna7nUEi6YLmi_lZL4LYmQsNFMGq7VF-UOF9QVdUzDOJ6-EVc3KQ.jpg" width="400"><br>
 
 حسن گلشن‌نژاد، ۳۶ ساله و از بازداشت‌شدگان مرتبط با اعتراضات دی‌ماه ۱۴۰۴، به اتهام «اقدام عملیاتی به نفع اسراییل» از سوی شعبه پنجم دادگاه انقلاب مشهد به اعدام محکوم شد.
 این شهروند ۳۶ ساله که شغل آزاد دارد، پدر یک پسر هشت‌ساله است.
@@ -189,7 +300,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-26 15:35:28
 
-<img src="https://cdn4.telesco.pe/file/DYDidJxivuw-CBk8bxjdEADW2iWzlmNMA1yZT9sOgV-fajE3QS9J-kQs1MUoasszoAPXggBzJUjvsHB9L1qxRwm-IxSQx7WUF5ci2RsvxPepOTdaubJzSgkb25JQMXWHV84sfWFU38oEogoO1Aj3EZQTJ1hojqz_ryiHEc3c00WNDuMszt4XwS0M9BqYEeyPNQpAI6C7kIIj3m7IxUX73A9XBgS6hII_BLs_cpAObTXuHDqyMoZDVUG5oF25WD4JZCEhTos2RUnRDvE1np0XOXtYsCyyaVLu6hOS0vl7qB02I1lR3ahAsaR0zJjowJ-4BELUtrCRTIbHPoLk8BVTKg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/GZ2FKU8o2exEZu40r_S9LE8s3JdtT5a8mZ-5Lzj0QVXDO7pkTyIhKeqh4PQnGCSs4xu4OdADGVbK7baLcBP-5-dUkgHe9ySjjcII6WBjex3HDHqnQMyEYxuz29fOYna46U29VZcykCTWbwkzakKkZV-wuNgTiVqEGN2_DK3qWmosm7UKZV8aVLhCB5R0UI-OCYCU4cuBB9FwgrvY0zj8j1OCRH3qbLhLA_sxifRiQmAG9J2PXpC1Qd5QAsUABWP6ZFYgwVh--9ulQadk5sHKZm6vn8Xc6qH-6m16BP2eyYDWfTpSA7XEI115WvXGkkqZ2hPfbGfWCUQWuhfvpbSTRA.jpg" width="400"><br>
 
 به دنبال انتشار گزارش خبرگزاری رویترز از سفر مقام‌های ارشد سه کشور پاکستان، عربستان سعودی و ترکیه به تهران در روز دوشنبه، چهارم آبان، معاون دبیر شورای عالی امنیت ملی ایران با تأیید این خبر، هدف از این سفر را برگزاری نشست مشترک در تهران و «هماهنگی منطقه‌ای» عنوان کرد.
 علی باقری در گفت‌وگو با تلویزیون رسمی ایران گفت خالد بن سلمان، وزیر دفاع عربستان، عاصم منیر، فرمانده کل ارتش پاکستان و ابراهیم کالین، رئیس سازمان اطلاعات ترکیه مقام‌هایی هستند که با سفر به تهران در نشستی با محسن رضایی، دبیر شورای عالی امنیت ملی ایران شرکت خواهند کرد.
@@ -208,7 +319,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-26 15:34:25
 
-<img src="https://cdn1.telesco.pe/file/Fb0hsCm495O4ln8AxXaeJuXKfxU9zSgCs0huLagl_Vcg8QR2yB1hvbuLS38HBU5Q0QF_hzjJgptUgokt1noghNADDGDpO_cCS7VNBOHFnPMaF80V-T2jkrWcD6SCThwjX6cTdtf_T1V55XTWF49DDL7Fhim3M0_GER3r7VHxmXJrO2Vd8MgRIlVz47AxiWDMbCXhWQOUtDTDIdp_i3QMwkZIbuv1oMNDpyRbunnIfbbYx-CtC5pZJPjnguvJjrjdzqX9j0zSV788oQunKrVqWccZYICr76n8IjK0i1f_he47gQgzmqDtuvoFs9uzDKfAkhCOjTZaijsuD_CXw-iTIw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/fwnaneHvWhL40ZBegVEQMTwANek-3I0_RKCcqSdQclkF0fGqQw_K-LBS6jYSC6lgiMyOicrDctJH2bKpyO2KdNlXjW6lQSVTvpPntoaKjeFxVBb7ACb1Fr8wQI1k4s9qkkw5GbD_ytR2qAZ2dsGGLT5g-djHceN4uAl0F3lK2Bcv4PDtrq_e7wmdUggTd-OR6fA8eejOrUlN82ZLatHP-LehpIyb-pisWS4jCNc6U30bIUTVLSnsQmpFvh9-bhxlAbaSqR5k3LAUXzTDIxv2Uim__UqF1zh8yn_D2VxOP9x59J-duN9qjA1GZmKYErIcP3kHd4q2p-erfkQ69bW1bA.jpg" width="400"><br>
 
 محمدباقر قالیباف، رییس مجلس شورای اسلامی، لانا نسیبه، دیپلمات اماراتی و نامزد جانشینی آنتونیو گوترش در سمت دبیرکلی سازمان ملل متحد، را متهم کرد که با هدف هموار کردن مسیر دیپلماتیک برای «پروژه اسراییل بزرگ» و «سفید شویی نسل‌کشی در غزه»، برای تصدی این سمت تلاش می‌کند.
 @
@@ -221,108 +332,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78849)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-26 15:32:12
-
-<img src="https://cdn1.telesco.pe/file/IzSVs8Pac_b--33dNayxPbTB49BtXBm6kq1NMkLdF4jLCkq1vqulzmZzff1hJENWWx5y_1MxIaUE0mErphAA1vaoa6X-vCsiSzxtllRCcQEINJ3FVX7D5ZE-RSYPUoIlCCQo5HC99SNOLS5Jpb7_ei5YeoaZl1Ia83u2tPA6mQoaQFyiI0U-8oOZSJTJj4YRjmHt7Yuj3MuztbPEf0rOuxDFXC5BkYrPa0Cqq8ps-nkrHZ91rVTInWcHTJ-3zbnQVNrqo6qk_IpL9dzLdkI8DJ8SQO0r8D8QN8hAm7RuKmWHU6YlUK7f-3wgQYeN1dg81RRXV-VREEXn9GJ9mqc07A.jpg" width="400"><br>
-
-شبکه ۱۲ اسرائیل گزارش داده است که اختلاف شدیدی میان بنیامین نتانیاهو، نخست‌وزیر، و ایال زمیر، رئیس ستاد ارتش آن کشور، بر سر اجرای یک دستور نظامی که ممکن است به رویارویی تازه با ایران منجر شود، به وجود آمده است.
-بر اساس این گزارش، زمیر از اجرای این دستور «خودداری» کرده و خواستار بررسی‌های بیشتر و ارائه مجوز قانونی مکتوب و امضاشده از سوی نتانیاهو شده است.
-شبکه ۱۲ به نقل از منابع امنیتی گزارش داده است که در میان فرماندهان ارتش این نگرانی وجود دارد که مقام‌های سیاسی بخواهند از موضوع ایران برای کسب منافع سیاسی در آستانه انتخابات پارلمانی روز سه‌شنبه ۲۷ اکتبر استفاده کنند.
-نتانیاهو در گفت‌وگو با شبکه ۱۴ اسرائیل، این گزارش را «بی‌اساس» خوانده و گفته است: «هیچ اختلافی میان ما وجود نداشته است.»
-@
-VahidHeadline
-یک روز پیش از برگزاری انتخابات سراسری در اسرائیل، وزیر دفاع این کشور گزارش‌ها دربارۀ بروز اختلاف نظر شدید میان بنیامین نتانیاهو، نخست‌وزیر، و ارتش اسرائیل درباره حمله به ایران را تکذیب کرد.
-یسرائیل کاتز در بیانیه‌ای که روز دوشنبه، چهارم آبان، منتشر شد گفت که «به هیچ وجه قصدی از سوی اسرائیل برای آغاز حمله به ایران پیش از انتخابات وجود ندارد».
-وزیر دفاع اسرائیل در بیانیه‌اش گزارش‌های منتشر شده و واکنش‌ها به آن را تلاشی «شرم‌آور و غیرمسئولانه» از سوی مخالفان سیاسی برای تخریب دولت در آستانه انتخابات خواند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78847)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-26 15:28:13
-
-<img src="https://cdn1.telesco.pe/file/h_rdqbcMCJFCJaA8a64r_G6lYXeWZX0q1ZkqElSfHobHq9YTula4rWeLCADXkSlE5guOAiaqrqUKLtcQy7qEHcnxtiO9bofvkH_MSzcvOI81ZQ1G3D7RsHTki7SqyqK6a7RHMNn7_E0vrWvpvvpHo0B8RAEtmyisNrkLQ-fKP0zkzbpAPr_bEbTbpoKAZLn5ZsncpHFG-y7uwHn9k8yeHT5D3od1M2uLFzGh1ccB0DjAM2nl3sRVxd4-aUv3nNnihaOOuxbeiwugob1XBjWSwIQbwU3_N-ilTgBXPz7GoS6HX-xm3T42n6RphkYyrcgV4h7w8yj1ch0wqRCb5fK9CQ.jpg" width="400"><br>
-
-ویدیویی از اعتراف اجباری احسان ارباب، بلاگر، در صفحه اینستاگرامی او منتشر شد. این فعال شبکه‌های اجتماعی دوم مهر و پس از انتشار مطالبى در فضاى مجازى بازداشت شده بود.
-در این ویدیو به دست‌های ارباب دستبند زده شده و او فعالیت‌های خود را «تبلیغ علیه نظام»، «توهین به رهبری» و حمایت از اعتراضات می‌خواند و بابت آن‌ها اظهار پشیمانی می‌کند.
-پیش‌تر صفحه اینستاگرامی این بلاگر مسدود و تمام محتوایش به جز همین ویدیوی اعتراف اجباری حذف شده بود.
-درباره محل نگهداری، اتهامات رسمی و وضعیت پرونده احسان ارباب اطلاعاتی منتشر نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78846)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-25 20:32:28
-
-<img src="https://cdn4.telesco.pe/file/qn2T4HiZF71r-6isA4WncmL-wkSJy6PMM5TL6KFvzKlQ-hZwKXs6pm1en_sDfn81BidKiCnpIf-V_rrsD19PaEPYPo3UAqfU_pODfPEsPXOPUAw2utt0ZJXN1RYVqlW02oU5Q2D_2v3UQ103lRJJUVexerNxvQBXH2C0-vQP2QNBfDd0KbjQzG8vPk2gFJmDVkun8wV6ryQEVDOGYkrVvq3BttqNmyR0wAdMitxXoxMsa2VRS-OwT88jsEy67fS8ZXZEXVmXk8WZ3hfrlXpOM9Iz2W_m0dSAX12KrfEWFPioYrOMdVTAKfq1z4chI8FpvRWnlomlWMeZ4zXsURvP9g.jpg" width="400"><br>
-
-بنیامین نتانیاهو، نخست‌وزیر اسراییل، روز یکشنبه سوم آبان ۱۴۰۵، بار دیگر هشدار داد که ایران یا نیروهای هم‌پیمانش ممکن است در روزهای آینده حملاتی علیه اسراییل انجام دهند.
-نتانیاهو، با حضور در محل استقرار یک سامانه پدافند موشکی «ارو»، گفت نشانه‌های اطلاعاتی حاکی از آن است که ایران و نیروهای وابسته به آن ممکن است با حمله، درصدد برهم‌زدن روند انتخابات باشند.
-هشدار نتانیاهو در حالی مطرح شده که تنها دو روز به انتخابات اسراییل باقی مانده است.
-او با تهدید تهران و نیروهای هم‌پیمانش گفت: «آن‌ها را هشدار می‌دهم؛ ما را آزمایش نکنید. ضرباتی نامتناسب متحمل خواهید شد.»
-نخست‌وزیر اسراییل در ادامه تاکید کرد: «ما بسیار قوی‌تر از آن چیزی هستیم که تصور می‌کنید. ما را دست‌کم نگیرید و آزمایش نکنید.»
-این اظهارات در حالی مطرح می‌شود که شبکه ۱۳ اسراییل هفته گذشته گزارش داده بود ایال زمیر، رییس ستاد کل ارتش اسراییل، در نشستی غیرعلنی گفته است که در حال حاضر ضرورتی عملیاتی برای حمله به ایران پیش از انتخابات نمی‌بیند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78845)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-25 19:41:25
-
-
-
-ترامپ: امروز حمله‌ای انجام نخواهد شد.
-پیش‌تر:دونالد ترامپ، رئیس‌جمهور آمریکا، می‌گوید که هنوز در مورد ایران تصمیم نهایی را نگرفته است.
-آقای ترامپ در مصاحبه تلفنی با برنامه «صبح یکشنبه» شبکه فاکس‌نیوز گفت: «سوالی که برایم مطرح است این است که با آنها معامله کنم یا کلک‌شان را بکنم. این تنها سوالی است که در ذهنم دارم.»
-او یک بار دیگر گفت که آمریکا کنترل تنگه هرمز را در دست دارد و درحالی‌که «آنها هیچ چیزی گیرشان نمی‌آید و ما همه چیز را به‌دست می‌آوریم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78844)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-25 17:44:13
-
-<img src="https://cdn4.telesco.pe/file/LbRdRzdUhg_uRCcdKGF0xNo4rFswryAof5c4Gcuv-X-VeAeWCPf-syDbonwgHyppPfwoBLw4x6LW6MyaAVH5zoB2C0LN3f2kbIUXmOq5rhmV_rwdSy99Rp6q4s18ZGF9WmcUeX7sfqWND-Mzf19Qya8mcfmnP4J6nPmHyt3fi6ngRcgs7hdPUuSb5yV3OTCIyAz9g9gg2LXIK-tMgTZuiwNUhBA4PwxYP_Nn5TyLhTpTMSeuPD6qK8HPSpgo4OmljaBCAqv6LTGGFiiFIgozjeP3jFUtlB1IWWXggC6vwm9EDqKHvI_3mQEqgz7o0ns4coHZ87VVfsD91sWbn-8HIQ.jpg" width="400"><br>
-
-خبرگزاری رویترز، یکشنبه سوم آبان به نقل از یک مقام آگاه گزارش داد که میانجی‌گران قطری در چارچوب تلاش‌هایی برای کاهش تنش‌های منطقه‌ای و با هماهنگی آمریکا به تهران سفر کرده‌اند.
-این مقام که در جریان تحولات قرار دارد، به رویترز گفت حضور میانجی‌گران قطری در تهران بخشی از تلاش‌های هماهنگ با آمریکا برای کاهش تنش‌ها در منطقه است.
-نشریه هیل به نقل از منابع آگاه گزارش داد ارتش آمریکا چند گزینه برای حمله دوباره به اهداف حکومت ایران پس از انتخابات میان‌دوره‌ای سوم نوامبر آماده کرده است. اجرای این طرح‌ها به تایید دونالد ترامپ بستگی دارد و هنوز تصمیم نهایی اعلام نشده است.
-بر اساس این گزارش که شنبه ۲ آبان منتشر شد، فرماندهی مرکزی ارتش آمریکا، سنتکام، طرح‌هایی برای حملات بیشتر به اهدافی در ایران تهیه کرده است. یک منبع گفته این طرح‌ها در صورت صدور مجوز رییس‌جمهوری قابل اجرا خواهند بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78843)
 
 ---
 
