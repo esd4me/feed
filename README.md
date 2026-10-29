@@ -3,8 +3,215 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-29 11:20:23 </h5>
+<h5> 🟢 Updated at: 2026-10-29 18:18:10 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-29 17:55:46
+
+<img src="https://cdn4.telesco.pe/file/NZJMDVf4Rk8MP_Ukd5Y6J9KB5kNqr2vq4LpQxl2_LS-AvYvv0ZnuPtiwF_p0b6-uk45RpDxSgvA7jZstuCoy4uGY5BKQILkIKsL1o89m-ZG2UH4I-nQlJ2xoR0kTVDJGbJn1eoMfqupivxLS_oW_iSTdXMmgXi8kW5l0w2cknmVDHfotVGVfgZ4j8Cjwkt9bM6qr6DEStFM95HJKO5bJrUFATID2DHJyC-mL3Wc-ll2tSCeayJw_-oYSGxLORBFq13BNBwA063JoQMATwAsZQkn9ynVon4heCKZUox-HTzaRQdGUQogU44pNF7LN31bubwETQ35PcOEFKf_nQmONfQ.jpg" width="400"><br>
+
+مقام‌های قضایی و انتظامی استان چهارمحال و بختیاری از کشته‌ شدن اسماعیل اسلامی باباحیدری، شهردار جونقان، بر اثر اصابت گلوله خبر دادند.
+خبرگزاری میزان به نقل از رئیس دادگستری شهرستان فارسان اعلام کرد که این حادثه بامداد چهارشنبه، ششم آبان، در شهرستان فارسان رخ داده است.
+عبدالعلی ارژنگ، معاون سیاسی و امنیتی استاندار چهارمحال و بختیاری، نیز به خبرگزاری ایرنا گفت که بر اساس اطلاعات اولیه، این حادثه «موضوع امنیتی نبوده است».
+با این حال، او توضیح بیشتری دربارۀ چگونگی وقوع تیراندازی یا هویت عامل یا عاملان آن ارائه نکرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78895)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 17:28:23
+
+<img src="https://cdn4.telesco.pe/file/O498wGD12YI90IVM5FrDl3dDZloRR1lW4_4DbPGV74iHtRPP1LXuljn3_ytKUN6FZsaTAmr5cvc_u7mOSKS2aqWUOkvYa7Ji60WMSIJOkGI40Bh2aSMoUHe3MpERRYegWP-8kiKFJ77Hjjp_LYpYdVlIh_TkvvIm9XmLHSm3-Qk_sd88n5sZg1ogjxBfygW4iPZFj1NZrQ9ykTaYpyHxFlgGjeYAH9k2erGS_2bW14stGVNa2TFBCvokgOxq3OB_Ov5Q4c7jO4SPdkYW8LFz4s6Jw_X0TLL0KGcgh65hKjgzRev76TRXqsX3u4odUpGRLOyVhznpDjkwHJbOMDjyPg.jpg" width="400"><br>
+
+شعبه ۲۳ دادگاه انقلاب تهران امیررضا رضایی، وحید قهرمانی و مهدی، روحانی‌ای که نام خانوادگی‌اش اعلام نشده، سه نفر از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، را به اعدام محکوم کرده است.
+هرانا خبر داد که این حکم روز دوشنبه ۴ آبان در زندان به این سه زندانی ابلاغ شده است. از جمله اتهام‌های مطرح‌شده علیه آن‌ها در این پرونده، «اقدام عملیاتی برای اسرائیل» است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78894)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 17:28:08
+
+<img src="https://cdn4.telesco.pe/file/lBVk6UN9X9ZutG3W0mdG2mHt8WdpJs6X2Yuuho8g8hwh7RTn8MaWpKm6K4xC94-mGxK4i9xGikcEULvbl6xHQ1HFSFXeyDVrHZQCjcKl6dPU3PmPGdfMpDAWGllxyE00KDm1VIckV1wXOFrWA1gk1vTrsRQ26QRo9UkLWTwEFBEC5Ps72uV-Zuk4TsPHlXxplUHr68KU71lxkmKVy9oiLxr1wpnljL9Q9HxkJyG0JX5PWy3H6Je-Vb1s2LWmeuCdbSjO0sJz0-3fMvKyQgXPSDteLjbWfAYk66UQVntEBDTp-1W0eV1yNhqFpcElEZLdjyYSbmdthcAVGUKJsuleDg.jpg" width="400"><br>
+
+حکم اعدام لیلا ابوالحسنی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، در دیوان عالی کشور نقض شده و پرونده او برای رسیدگی دوباره به دادگاه بازگشته است. ابوالحسنی پیشتر از سوی شعبه پنجم دادگاه انقلاب اصفهان به اتهام «محاربه» به اعدام محکوم شده بود.
+خبرگزاری هرانا گزارش داده است که دیوان عالی پس از فرجام‌خواهی وکیل ابوالحسنی، حکم اعدام او را نقض و پرونده را برای رسیدگی مجدد به دادگاه ارجاع کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78893)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 16:20:47
+
+<img src="https://cdn1.telesco.pe/file/bCuVJNAtazM0lXEg9Pcr809lnhmrCyadnpgXfD7YIjwLy7VLEyIRfntOW2zhHyozVTFLOw8eY66NuWZZJAonsM1EvE49TbaqvgLyzCQJplD41BiUzJd7wie1URGYYNzUSh7UX5XPUUceQwiXSMDG-aiNZnlvEXq8vo3hfooSP1t0g8MvMPMfZEIZW4GmpjMU34v1ugK0fU5u_aCGvJN3A7LmPC5U9ey-BP2ByxY_KEL9Dq5YVB7ssNQdAIVvlufTL3gIMwbqvNcDdP9NzSGHf9hZw8ZXqWlN06x1z_HMaX9gklRHzTMts_wTPDhp_0hpCMdEB8YoUxMj--sGcCTDVQ.jpg" width="400"><br>
+
+'یک
+#آتش‌سوزی
+بزرگ در بزرگراه
+#تهران
+کرج'
+تصاویر دریافتی از شهروندان با شرح بالا
+پنج‌شنبه ۷ آبان حدود ساعت ۱۶
+Vahid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78884)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 15:21:17
+
+<img src="https://cdn4.telesco.pe/file/pnlg3822FBnZv8vYaXWEFevpjqqGi77_1CQcCVamDpAmdZLgBwdOfksm61Hs7yOeLhMnPJXjg7cAkUUqo_TIYsTMsSFCuwSTOmAi1FuqGezLMP3wZzxYfmhUXuUScOjNxfYdZ6f_9xgMapNNVfSqhpbEZjDufY99esobdw6bWIf6kjXbHjoWAPzYLTcA0SZWQUvnMOZKbJyDvr3QFmrTdZZMdILOZWcrsXSSmNsdMgC1YSzpOE8twfWwLHEV9rxYVPNpQUYvT6L-B7a6tMCH7r5yQBTwUQT9lPcekaztpu8Mh5hav-_1MAftFLgcoo1S7neRNW5Hp4LK3PrCGfJuBg.jpg" width="400"><br>
+
+امین قنبری، خبرنگار اهل سمنان و مدیر کانال تلگرامی «پیام‌گوی سمنان»، به حکم شعبه اول دادگاه انقلاب این شهر به ۲۰ سال حبس محکوم شده است.
+هرانا خبر داد اتهام‌های مطرح‌شده علیه قنبری شامل «اقدام رسانه‌ای علیه جمهوری اسلامی»، «اجتماع و تبانی»، «فعالیت تبلیغی علیه نظام»، «حمایت از پهلوی و جان‌باختگان دی‌ماه ۱۴۰۴» و «توهین به بنیان‌گذار جمهوری اسلامی» است.
+قنبری اردیبهشت امسال مقابل خانه‌اش بازداشت شد. جزئیاتی درباره پرونده، مستندات اتهام‌ها یا محل نگهداری او منتشر نشده است.
+محکومیت این خبرنگار در ادامه برخوردهای امنیتی و قضایی با فعالان رسانه‌ای پس از اعتراضات دی۱۴۰۴ صورت گرفته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78883)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 15:20:32
+
+<img src="https://cdn4.telesco.pe/file/JIfVtp1PVxAGbutu03MArdToMetCNefygFFH7k7Po_fWsizXGt_cLan6aGi3Yp8ZnhuPPaX2ODHebIS3Zp4YHzLgK8fX0taw4tlXQDC_2Amqtvj6ahvcmZ7UqEuhVNnf49C1n4YGhHul07Bl5iFxk-RUEWDL1yMFwYTpec4_Kvqs70Y3-UGMIllLq7TlUNBiTMvZlyfZ2E2Gfwh6M2zfB2UAKaH5yEQ_Whs21Eyi-LVCyfE9picYoy17hkZCe3hHawUoX-w0S1j7EqUY4-wU6hImMbLW0FA9vUkJPzOVIlBLDwofoPSMzfpHlMSRBprnEsn2oKkvIHMZiR627dSs5w.jpg" width="400"><br>
+
+در پی انتشار گزارش‌هایی درباره ارسال نامه از سوی جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، به محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روزنامه نیویورک تایمز روز پنجشنبه گزارش داد که مذاکرات مستقیم تهران و واشنگتن ممکن است از هفتهٔ آینده در قطر یا ترکیه آغاز شود.
+به گزارش نیویورک تایمز به نقل از مقام‌های ایرانی و آمریکایی آگاه، در صورت پذیرش پیشنهاد ونس از سوی تهران، مذاکرات از نظر فنی بدون پیش‌شرط آغاز خواهد شد. با این حال، ونس در نامهٔ خود تأکید کرده است که برنامهٔ هسته‌ای جمهوری اسلامی باید از ابتدای مذاکرات روی میز باشد.
+یک مقام آمریکایی به نیویورک تایمز گفت واشنگتن تصمیم گرفت نامه را برای رضایی ارسال کند، زیرا مقام‌های آمریکایی به این نتیجه رسیده بودند که باید مستقیماً با فردی در ساختار رهبری جمهوری اسلامی گفتگو کنند که بر جناح تندرو مخالف توافق و سپاه پاسداران نفوذ دارد.
+نیویورک تایمز گزارش داد دونالد ترامپ پیش از ارسال نامه به تهران، آن را مطالعه و تأیید کرده بود.
+این روزنامه همچنین به تلاش‌های دیپلماتیک اخیر مقام‌های قطر، پاکستان، ترکیه و عربستان سعودی برای کاهش تنش‌ها اشاره کرد. به گفتهٔ دو مقام ایرانی، میانجی‌گران در این دیدارها درباره خطر وقوع آشوب و ویرانی در منطقه در صورت ازسرگیری درگیری‌ها ابراز نگرانی کرده‌اند. رهبران منطقه از جمهوری اسلامی خواسته‌اند برای جلوگیری از جنگ، در برنامهٔ هسته‌ای خود انعطاف‌پذیری بیشتری نشان دهد.
+این تلاش دیپلماتیک در شرایطی صورت می‌گیرد که ترامپ احتمال ازسرگیری حملات نظامی علیه جمهوری اسلامی، از جمله حمله به زیرساخت‌های انرژی و دیگر مراکز حیاتی اقتصاد ایران، را بررسی می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78882)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 15:19:52
+
+
+
+سپاه پاسداران انقلاب اسلامی روز پنجشنبه هفتم آبان‌ماه با انتشار ویدیویی مدعی شد یک پهپاد آمریکایی موسوم به «ام‌کیو‌ام-۱۷۰» را در غرب تنگهٔ هرمز شناسایی و به‌طور سالم به زمین نشانده است.
+به گزارش خبرگزاری ایرنا، نیروی دریایی سپاه در بیانیه‌ای اعلام کرد: «یگان جنگ الکترونیک این نیرو طی یک عملیات آفندی، موفق شده است یک فروند پهپاد آمریکایی MQM-170 را در غرب تنگه هرمز، پس از کشف و شناسایی، با در اختیار گرفتن سامانه‌های هدایت و کنترل، به‌صورت سالم بر زمین بنشاند.»
+بر اساس این بیانیه، مأموریت پهپاد شناسایی سامانه‌های پدافند هوایی جمهوری اسلامی در نوار ساحلی خلیج فارس و تنگهٔ هرمز بوده است.
+نیروی دریایی سپاه همچنین اعلام کرد بررسی اطلاعات بازیابی‌شده از پهپاد نشان داده است که مبدأ پرواز آن، سواحل یکی از کشورهای حاشیه جنوبی خلیج فارس بوده است.
+این ادعا پس از آن مطرح شد که سپاه پاسداران پیش‌تر از سرنگونی یک پهپاد دیگر آمریکایی از نوع «ام‌کیو-۱» در حریم هوایی شرق تنگهٔ هرمز خبر داده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78881)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 15:17:38
+
+<img src="https://cdn4.telesco.pe/file/ZdaOqTB2BN_b3ceQ6FVJQX0oKrzb8L4JVBtdr-a0YMH-cnROPokQbUCHKFjeUbk0W6rpCYYFEip417rywS880U0D8j-q5_2j7Ye5OiNHLQYx69OrG63GHhsQFik_PqElbIac8PXxpO1R1x_yHc_p8CB3I4l2LVnGbUvCG1-R8wny7urHd0s-xz4YEgFffIkGUVWlb7L3XC6RV0nNqwKVXLyNKsdBrRHcagdKGdwXBluGMuRVgA8daW-GH0z8Chjrbet4xdaIRjeJJ0_x_UcVH-fQKS1sQ8aUaepNhAEem9Ybhaauu8EjfVfsltAqEXRXAUfVbqUhldKrG4CQcjuhyw.jpg" width="400"><br>
+
+پیت هگست، وزیر جنگ ایالات متحده، در بحبوحهٔ بررسی گزینه‌های احتمالی دولت دونالد ترامپ برای اجرای عملیات نظامی علیه جمهوری اسلامی ایران، عالی‌ترین مقام برنامه‌ریزی پنتاگون را برکنار کرد.
+شبکهٔ سی‌ان‌ان گزارش داد ژنرال برت سیلویا، مدیر بخش راهبرد، طرح‌ها و سیاست‌گذاری ستاد مشترک ارتش (موسوم به «جی۵»)، به‌طور ناگهانی از سمتش کنار گذاشته شده و اطلاعات او از تارنمای رسمی ارتش حذف شده است. سخنگوی رئیس ستاد مشترک ارتش، خروج سیلویا را پس از ۳۲ سال خدمت تایید کرد، اما دربارهٔ دلایل آن و جانشین او توضیحی نداد. بخش جی۵ بازوی اصلی ارائهٔ مشاوره‌های نظامی کلان به رئیس‌جمهوری آمریکا محسوب می‌شود.
+این تغییر ناگهانی در حالی رخ می‌دهد که به گفتهٔ مقام‌های آمریکایی، نیروهای ایالات متحده در منطقه آمادگی دارند ظرف ۹۶ ساعت پس از دریافت فرمان ترامپ، عملیاتی گسترده علیه ایران آغاز کنند و برخی منابع احتمال صدور این دستور پس از انتخابات میان‌دوره‌ای را بالا می‌دانند.
+برکناری سیلویا تازه‌ترین اقدام در چارچوب تغییرات گستردهٔ هگست در رده‌های فرماندهی نظامی است. او پیش‌تر نیز ده‌ها افسر ارشد، از جمله رئیس ستاد ارتش و پیشینیان سیلویا، را برکنار کرده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78880)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 15:16:19
+
+<img src="https://cdn4.telesco.pe/file/sd52grrfoMtwCgHJoAEyo9ok7BDXptl0tQbdEBCPaFTk0BLjEXtX0qtEkJSn_pOKRNvIWxeOreHPMkBl4yuGx8Fg7JMzm0GznV6xXFJnkpa7SyDKHimt7Vv-z_G3yXJaPZkfK8nvjm4c-DqT2E1suQq9IbvDFFgMyo2j0NbKqCEqU7CgWTzrlaca4Yj7_xVrjQeNQ91ePXeVfr7XIGhfMSnMGeHXVstnvJLgJrsP-Nngji699IoNQs_DNeyTs48X-Ab7LexEXwKDGLKc5Gy1NCYUnfMiXMyWP8-XBwP8gmv-Oq5J8C0rcA7vsTFNJ_Ja8y-idEO-z91H9HK88Jmyuw.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا (UKMTO) پنج‌شنبه ۷ آبان از آتش‌سوزی یک شناور در تنگه هرمز خبر داد؛ هم‌زمان، سپاه مدعی شد سه نفتکش پس از برخورد با مین منفجر شده‌اند، اما سنتکام شامگاه چهارشنبه ۶ آبان ادعاهای ایران درباره برخورد کشتی‌های تجاری با مین در این آبراه را رد کرد.
+بنا بر  گزارش مرکز عملیات تجارت دریایی بریتانیا، کاپیتان یک کشتی عبوری آتش‌سوزی شناور دیگری را در حدود ۱۷ کیلومتری شمال بندر خصب عمان دیده است. هویت شناور، وضعیت خدمه و میزان خسارت یا پیامدهای زیست‌محیطی این حادثه اعلام نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78879)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 15:14:57
+
+<img src="https://cdn4.telesco.pe/file/A4DXMcrwcbnWiR3f5LbIJsmkDtgRKuIekjCT1p-kkXgUQOLffXAC7WU1rIK79U2Uv0nh5fJ760TiOSI4zAwZ8ZZTZBjfkT7bY2qsoe50CB-a-eilnwsjxQrcXd6aLzEGtTDYjU4sCzXvdH_ZUBW0FIUeYOh7zuWfHovcGKDjn4HuIh_41MtdhRsKtrc6KcudbHuGa___O0qhPuJ88Nmgm4Z_-9MHw3TvQ80NFpBwlBO9G-BMv4GrALrdePk1mo444q7eBGDE3APmHazX6NLqVJFWP4TflMYpVeo8B6mFZ5mrQasyU3F0ahLn3BHrYz-gwK92E7zFO7ca6xPjUnbhKg.jpg" width="400"><br>
+
+وزیر خزانه‌داری آمریکا، کارزار فشار اقتصادی بر ایران را «بسیار موفق» توصیف کرده و می‌گوید قطع دسترسی به دلار باعث شده جمهوری اسلامی بودجهٔ گروه‌های نیابتی‌اش در منطقه را قطع کند.
+اسکات بسنت، بعدازظهر چهارشنبه پنجم آبان، در گفت‌وگو با شبکه سی‌ان‌بی‌سی دربارهٔ فشارهای اقتصادی بر ایران در قالب طرح موسوم به «عملیات طرد اقتصادی» گفت برآوردهای داخلی نشان می‌دهند اقتصاد ایران ممکن است در طول یک سال تا ۲۵ درصد کوچک شود.
+او افزود مقامات جمهوری اسلامی «در تابستان شروع به ابراز نگرانی آشکار دربارهٔ وضعیت اقتصادی کردند. اکنون، سپاه پاسداران به‌شدت نگران است و به صورت عمومی و در محافل خصوصی از فروپاشی سخن می‌گویند.»
+اسکات بسنت همچنین گفت ایران در حال قطع بودجهٔ گروه‌های نیابتی‌اش از جمله حوثی‌های یمن، حزب‌الله لبنان و گروه افراطی حماس است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78878)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-29 15:14:30
+
+<img src="https://cdn4.telesco.pe/file/CNUAZ_C_OxwJaoYWnvmIo-O12QXttD5biCjbGNZx1lOC90R7jKzlA-d2RFVW0FMrkknSHVuUktHMszS4aLlKeCX1JSDYPaRNXVQxopuSMvv7Mosqge90-hPkxZAHRLdbM86_qsk15U3kVMsnloBuQs3BZVsrEoJHcywnUrmzFFe19OsNam3EGYGsvJVIAXBJx24lh_ztqzBCiRk_g7NM9HJd6G22ga_mYu0zWMejCMoD2TpG4OTBwPckhmadg6kyr_7UGQB_OliMSTjyQe59iUHvlffcIOf0Xv8weJJ2qum1CdhrX9zQl-WoVT4w6VC86DqEsRDeI2azMoygrJ3NkQ.jpg" width="400"><br>
+
+دکتر نبی امیدی، دانشیار اقتصاد و مدیریت مالی دانشگاه پیام نور، به اتهام‌هایی از جمله اقدام علیه امنیت ملی، تبلیغ علیه نظام و حضور در اعتراضات دی‌ماه ۱۴۰۴ در ملکشاهی، به ۹ سال حبس محکوم شده است. حکم او در دادگاه تجدیدنظر تایید و قطعی شده و اخراج از دانشگاه نیز از مجازات‌های تکمیلی اوست.
+بیشتر بخوانید: ​​
+iranwire
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78877)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-29 01:18:45
@@ -27,370 +234,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78876)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-29 00:05:14
-
-<img src="https://cdn1.telesco.pe/file/mqnQ9RSradkjf4QVyA2_H08dWyR8DpxcIq0gl6XHNcGfx6ym6UoCpHvkwi2BWCH3IUXuoIPktWOEsKoclow8CUmrJrF0aiU9g7tOrIeW3cEcDig2HFowcTk1aA9Hd5FfOAzMTuTfJAzXu6OfX0SjoaymUfIxjGLy1YAfC1cZLfrKF4cK6-l5Fz74_907BO71Co48DREUF0cvXqDlPQn0MnrdfxVLEMLEfN3CTl73Rsfwplktc_vkbyyFUnW5g07axDlNskNY-filR76MgHQFZo_JkWKFznBxr1mzsyo2ATH0ut-WqafQxf-GMBgqB6YWY5ciw0nncWySTIGct6kAtQ.jpg" width="400"><br>
-
-وال‌استریت ژورنال چهارشنبه ششم آبان، به نقل از مقام‌های آمریکایی و افراد مطلع گزارش داد که جی‌دی ونس، معاون رییس‌جمهوری آمریکا، نامه‌ای به محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، فرستاده است.
-این روزنامه نوشت که ونس در تلاش است با یکی از قدرتمندترین چهره‌های تندرو جمهوری اسلامی وارد تعامل شود تا مذاکرات صلح میان واشینگتن و تهران را احیا کند.
-این تلاش‌ها در حالی صورت می‌گیرد که دونالد ترامپ، رییس‌جمهوری آمریکا، تهدید کرده است پس از انتخابات میان‌دوره‌ای هفته آینده، جنگ را از سر خواهد گرفت.
-@
-VahidOOnLine
-واکنش ترامپ
-: نامه برای تامین تجهیزات پزشکی مورد نیاز ایران بود!
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78875)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 23:59:47
-
-<img src="https://cdn4.telesco.pe/file/KgxJhCMH9aOjNt1Ye2Tsmw2j1BhjG4ZGLUsdU8qNPXFZ3o4oLk_QD7Ttoj3Kw7v44dtPE3fhzK9h4LuM8OI7lEHG8gAjCf3lNJcxhwzikbbgoFvjInMt_fUqi70I39F1ql72KQqgw0ASTVEmtjDcV-QED9TIxxpuzdrmUjrygB7Ok_u2Mt0-a5pfEhX7eTWN2yJuGmN4BsjnEqX5jWHoixJmkitQqpHmQkdl7gDBGGI-n_UWpL7IOF7Jazmo-IbMhYZ6uPUZpMDfWdgb_4YNhtDNcajdVCw0GPDko1EGIa80fyTbr8hzri1k-Sdgr23RCY4-EOt3eW_TrNDlFzfmVA.jpg" width="400"><br>
-
-روزنامه وال‌استریت جورنال روز چهارشنبه ششم آبان به نقل از افراد آگاه گزارش داد که ایالات متحده به چند کشور عربی خلیج فارس اعلام کرده است که پس از انتخابات میان‌دوره‌ای آمریکا برای یک کارزار نظامی کوتاه‌مدت اما شدید آماده باشند.
-به نوشته این روزنامه، ارتش آمریکا در حال انتقال یک سامانه پدافند موشکی پاتریوت از تگزاس برای تقویت توان دفاع موشکی خود است و در چارچوب آمادگی برای تشدید درگیری ها، نیروهایش را از پایگاه‌های اطراف ایران که در معرض آسیب پذیری قرار داشتند، خارج کرده است.
-افراد مطلع به وال‌استریت ‌جورنال گفتند نیروهای آمریکایی در منطقه در حال تجدید ذخایر مهمات خود هستند و جنگنده‌ها نیز برای انجام حملات آماده می‌شوند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78874)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 23:07:49
-
-<img src="https://cdn4.telesco.pe/file/CBlWRIBKcETJqCKdGTWdMHnIX14TAoISMUY3heMfRJgksOd8uleEnTCttPLPh1iMF1tICWUiRLcaY1_SGhBJAGnZY9ZqdOUMM1pzbfga-EwAKRkr-lRT5W73g6mT1JiwQBFrvGYzARdf0q_MHRijIFdKC0mcFIlFDacj0TniV7BPIzzC3vUP1esWG-1XBrWX_0g3fxNdwmx84_99mOV5GQUKq0Soj8wIivTLTsZLbY8BHm-VkLKJ9pZ6tVZu4DBVr86GLlOQOXv44ie7JdCkdNuIpOZP02C2zL8qleUs9hCmNtuB9lqdjria9531tlJ51OU-4PSqMRa32Lx7BvidKg.jpg" width="400"><br>
-
-رجب طیب اردوغان، رئیس‌جمهوری ترکیه روز چهارشنبه ششم آبان در تماس تلفنی با دونالد ترامپ، رئیس‌جمهور ایالات متحده، پیرامون روابط دوجانبه و مسائل منطقه‌ای و جهانی گفتگو کرد. اردوغان با اشاره به صدمین سالگرد روابط دو کشور در سال آینده، بر تلاش برای تقویت همه‌جانبه همکاری‌ها تأکید کرد.
-اردوغان به ترامپ گفت که ترکیه در چارچوب پیمان مشترک دفاعی خود با عربستان سعودی و پاکستان، در حال تلاش برای حل‌وفصل دیپلماتیک مسائل مربوط به تنگه هرمز و یمن است. اردوغان همچنین به ترامپ اطلاع داد که ترکیه آماده است از تلاش‌ها برای احیای روند دیپلماتیک میان اوکراین و روسیه به منظور پایان دادن به جنگ میان آن‌ها حمایت کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78873)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 23:07:32
-
-<img src="https://cdn1.telesco.pe/file/K196EdDmIqZwC-QvNCS3sg18ZdAPjUA3iVWEIdQ4eoLU5easY7xmIZ6nWDFYAOhrKSJiBYsIty-1YGH_dzKFFmjysf723KE1UTP7vy6VnJJ_Tw-ZAqL_BaxSJdSxgZhZo026MBJ8w34rTkI-et9jOHllJ8LWCB_DPzsi147MRoUII6wvmlrEkZjULI6D4oZnWL8X13nXrovtI6XMiXnYPdIohOi43brq3EHfM1WUTMhcJR9cj1R49EknbMhiU1WYI8NOW37Jqo7SSOr3ezZ0_oYFia9NSIV4hEeclCj3ozIiS3lCebjYPblA55UaLSxGxe23wW7coULJcmd8Pqoilw.jpg" width="400"><br>
-
-پست سنتکام، ترجمه ماشین:
-🚫
-ادعا: طی روزها و هفته‌های اخیر، رسانه‌های تحت کنترل ایران ادعاهای مقام‌های ایرانی مبنی بر برخورد کشتی‌های تجاری با مین‌های دریایی هنگام عبور از تنگه هرمز را گزارش کرده‌اند. این ادعاها نادرست هستند.
-✅
-واقعیت: نیروهای آمریکایی تمامی مسیرهای اصلی تردد دریایی در تنگه هرمز را که در سطح بین‌المللی به رسمیت شناخته شده‌اند، از مین‌های دریایی پاک‌سازی کرده‌اند و این مسیرها همچنان عاری از مین هستند. هزاران کشتی تجاری با ایمنی از این مسیرهای عبور استفاده کرده‌اند و امروز نیز همچنان به تردد ایمن خود ادامه می‌دهند.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78872)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 22:08:31
-
-
-
-اکسیوس: فشار بر ایران برای دادن امتیازهای هسته‌ای در آستانه حملات گسترده پس از انتخابات میان‌دوره‌ای آمریکا
-ترجمه
-ماشین:
-به گفته سه منبع آمریکایی، اسرائیلی و منطقه‌ای، میانجی‌های منطقه‌ای به رهبری قطر در تلاش‌اند به توافقی دیپلماتیک برای ازسرگیری مذاکرات میان آمریکا و ایران دست یابند و از آغاز دوباره جنگ پس از انتخابات میان‌دوره‌ای آمریکا جلوگیری کنند.
-قطری‌ها تلاش می‌کنند ایران را متقاعد کنند که در ازای کاهش بخشی از تحریم‌های آمریکا، به بازرسان سازمان ملل اجازه بازدید از تأسیسات هسته‌ای بمباران‌شده خود را بدهد.
-🔻
-چرا مهم است:
-در صورت نرسیدن به توافقی در آخرین لحظات، به نظر می‌رسد آغاز دور تازه‌ای از حملات هوایی اندکی پس از انتخابات میان‌دوره‌ای محتمل باشد. ژنرال ایال زمیر، رئیس ستاد ارتش اسرائیل، روز دوشنبه برای هماهنگی پیش از حملات احتمالی با دریاسالار برد کوپر، فرمانده سنتکام، گفت‌وگو کرد.
-▪️
-به گفته مقام‌های آمریکایی و اسرائیلی، انتظار می‌رود چنین عملیاتی شامل یک هفته حملات گسترده به اهداف مرتبط با رهبری ایران، بخش انرژی، تأسیسات هسته‌ای و زیرساخت‌ها باشد.
-🔻
-اظهارات ترامپ:
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه در مصاحبه‌ای کوتاه با اکسیوس گفت مذاکرات با ایران از طریق میانجی‌ها در جریان است، اما تأکید کرد که نمی‌داند این مذاکرات به نتیجه خواهد رسید یا نه.
-▪️
-ترامپ گفت: «باید کار را تمام کنیم؛ یا از طریق توافق یا به روشی دیگر. خواهیم دید که آیا مذاکرات می‌تواند موفق شود یا نه.»
-▪️
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز چهارشنبه در شبکه اجتماعی ایکس نوشت: «در حالی که نیروهای مسلح شجاع ما کاملاً آماده دفاع از میهن هستند، ایران همچنان به دیپلماسی فرصت می‌دهد تا موفق شود.»
-🔻
-پشت پرده:
-به گفته منابع، تلاش‌های میانجی‌گرانه به رهبری قطر و با حمایت پاکستان، عربستان سعودی، مصر و ترکیه در جریان است.
-▪️
-علی الثوادی، مذاکره‌کننده قطری، اوایل این هفته برای گفت‌وگو با مقام‌های ایرانی درباره توافق احتمالی با دولت ترامپ به تهران سفر کرد.
-▪️
-یک منبع منطقه‌ای که در جریان مذاکرات قرار گرفته، گفت قطری‌ها پیشنهادهایی ارائه کرده‌اند تا راهی برای پر کردن شکاف میان خواسته آمریکا مبنی بر واگذاری ذخایر اورانیوم غنی‌شده ایران و اصرار ایران بر لغو محاصره دریایی آمریکا و آزادسازی دارایی‌های مسدودشده‌اش پیش از هر اقدام دیگری پیدا کنند.
-▪️
-این منبع منطقه‌ای و یک مقام آمریکایی گفتند میانجی‌ها به ایران می‌گویند پذیرش این پیشنهادها ممکن است تنها راه جلوگیری از حملات گسترده پس از انتخابات میان‌دوره‌ای باشد.
-▪️
-مقام‌های امنیتی عربستان سعودی، ترکیه و پاکستان نیز در جریان سفری به تهران در چند روز گذشته، همین پیام را تقویت کردند.
-▪️
-به گفته منبع منطقه‌ای، ایرانی‌ها پاسخ دادند که طی چند روز آینده برای این پیشنهادها به دنبال کسب موافقت مجتبی خامنه‌ای، رهبر جمهوری اسلامی، خواهند بود.
-▪️
-به گفته یک مقام آمریکایی، پس از سفر به تهران، مقام‌های سعودی به کاخ سفید اطلاع دادند که ایرانی‌ها نگران عملیات بمباران احتمالی آمریکا و اسرائیل پس از انتخابات میان‌دوره‌ای هستند. سعودی‌ها از ترامپ خواستند برای ورود به جنگ شتاب نکند و فرصت بیشتری به مذاکرات بدهد.
-🔻
-جزئیات بیشتر:
-یکی از ایده‌های مورد بحث، بازگشت به توافقی است که ایران سال گذشته در قاهره با آژانس بین‌المللی انرژی اتمی به دست آورد.
-▪️
-توافق سپتامبر ۲۰۲۵ به بازرسان سازمان ملل اجازه می‌داد بازدید از تأسیسات هسته‌ای ایران را از سر بگیرند. این توافق پس از آنکه شورای امنیت سازمان ملل یک ماه بعد تحریم‌های موسوم به «مکانیسم ماشه» را دوباره علیه ایران برقرار کرد، به حالت تعلیق درآمد.
-▪️
-رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، روز سه‌شنبه به شورای امنیت سازمان ملل گفت احیای توافق قاهره می‌تواند چارچوبی برای ازسرگیری بازرسی از تأسیسات هسته‌ای ایران که در حملات آمریکا و اسرائیل آسیب دیده‌اند، فراهم کند.
-▪️
-به گفته منبع منطقه‌ای، اگر ایران موافقت کند که بازرسان سازمان ملل از تأسیسات هسته‌ای‌اش بازدید کنند، ممکن است معافیت‌هایی برای فروش نفت دریافت کند و بخشی از دارایی‌های مسدودشده‌اش نیز برای خرید مواد غذایی و سایر کالاهای بشردوستانه آزاد شود.
-▪️
-این منبع گفت: «تحرکاتی در جریان است. منتظر پاسخ ایران هستیم.» او افزود: «ایده این است که ایرانی‌ها بتوانند بگویند از همان ابتدا اورانیوم غنی‌شده خود را واگذار نکرده‌اند و آمریکا هم بتواند بگوید که امتیازهایی در زمینه هسته‌ای از ایران گرفته است.»
-🔻
-موضع طرف مقابل:
-به گفته منبع منطقه‌ای، کاخ سفید به میانجی‌ها گفته است پس از مشخص شدن اینکه آیا ایران پیشنهاد را می‌پذیرد یا نه، نظر خود را درباره توافق پیشنهادی اعلام خواهد کرد.
-▪️
-به گفته مقام‌های آمریکایی، ترامپ روز سه‌شنبه در جریان سفر به تگزاس با هواپیمای اختصاصی ریاست‌جمهوری، درباره ایران با مارکو روبیو، وزیر امور خارجه، و استیو ویتکاف، فرستاده کاخ سفید، گفت‌وگو کرد. او روز چهارشنبه نیز در چارچوب جلسه توجیهی اطلاعاتی خود، موضوع ایران را با تیم امنیت ملی‌اش بررسی کرد.
-▪️
-یک مقام کاخ سفید گفت: «همان‌طور که رئیس‌جمهور گفته است، آن‌ها هم از نظر نظامی و هم از نظر مالی به‌طور سیستماتیک نابود شده‌اند و اگر به‌سرعت رفتار خود را تغییر ندهند، به‌زودی کار را تمام خواهیم کرد.»
-▪️
-این مقام افزود: «آمریکا با در اختیار داشتن کنترل تنگه هرمز و در شرایطی که اقتصاد ایران در حال فروپاشی است، در موقعیت بسیار قدرتمندی قرار دارد. ایران به‌شدت درهم کوبیده شده و به هر شکلی که باشد، درگیری در ایران خیلی زود پایان خواهد یافت.»
-axios
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78871)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 20:58:27
-
-<img src="https://cdn4.telesco.pe/file/fFgYWVXiWXEZlFq0sruZKVIcQgMWMoT8sU1cBzNrPW0vx1iBzKW2LdqhP4r6lphvsN_oq_nryTatOKE5bSCpJAVql7OVWw7ZqYmhrONWzLopCG9YIAO5lo9rmg5PF5m887BBEYgDIo21ghVTGzLl6-FJvNTrDwxOnQ-WEvYl22yuZ8doIK_MdZBkdzE28yY8tkJ9csxvPnJBiZaD5xG_JFp3UqA_2iQiuPE5Lqfu0vAcOFCfVoAxEG5aaM9z8i_fAkWMfW1tLH9rOsrgFVAXbl9X05hdvNsDAhMMUdYlo008_KU0rHdda5jkLfZEFI0ANTmiwQdtGXStHXKdczAlQg.jpg" width="400"><br>
-
-خبرگزاری رویترز روز چهارشنبه، ۶ آبان اعلام کرد میانجی‌های قطری پیش‌نویس توافق جدیدی را برای پایان دادن به جنگ با ایالات متحده و اسرائیل به ایران ارائه کرده‌اند اما به نقل از یک مقام ارشد جمهوری اسلامی نوشت که دوحه تنها ایده‌هایی «غیرقابل‌قبول» مطرح کرده و نمی‌توان آن‌ها را یک «پیشنهاد» دانست.
-یک مقام مطلع از مذاکرات که نامش اعلام نشده به رویترز گفت که روز یکشنبه پیش‌نویس جدیدی به تهران ارائه شده و انتظار می‌رود پاسخ ایران تا پایان هفته اعلام شود.
-به گفته این مقام مطلع، پیشنهاد ارائه‌شده از سوی قطر شامل یک جدول زمانی هفت‌روزه است که به نگرانی‌های تهران و واشینگتن می‌پردازد و گام‌های روزانه‌ای را برای اعتمادسازی تعیین می‌کند. این مقام افزود که اجرای این جدول زمانی می‌تواند از اوایل هفته آینده آغاز شود و چندین کشور نیز به عنوان ضامن این توافق عمل خواهند کرد.
-اندکی پس از انتشار این گزارش، یک مقام ارشد ایرانیِ حاضر در گفت‌وگوها که نامش اعلام نشده به رویترز گفت که قطر تنها «ایده‌هایی غیرقابل‌قبول» ارائه کرده و نه یک «پیشنهاد».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78870)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 20:16:48
-
-<img src="https://cdn4.telesco.pe/file/TH1lvUYE3tQKd9HqnK5Bos8zdc8N4MTEKr9rmzqlyrUhuGVXDZmf1eCuh5jFdJRuMfDNRJTb4UA07zvYtlSnfNJmlu6Y9QV2gS5nRRU5l6dTy8J4ZHI5wmSC_FyIe6kyDio0sRWycnrp0LP35FIL5BmQ8RDxTt2Z668tcqqf3IGLfm4W-wm01a2_69QWuK0HVmeun1YUBmtDrLzZIpLNAGV2G1w20U99LMh9YkKilo0P8571ACKTO_vH3_RFWHzRUebTCeOrjPFshuuyN1elun6zrbtWoHiXg59lE4Z2nY_-5d9QDhpYem5zMSztsz-z4Pniw9nJVZGcAmUfboPMBQ.jpg" width="400"><br>
-
-ولادیمیر پوتین، رئیس‌جمهور روسیه، روز چهارشنبه ششم آبان در اظهارنظری کم‌سابقه درباره اعتراضات دی‌ماه سال گذشته در ایران، مدعی شد این اعتراضات از شبکه‌های اجتماعی آغاز شد.
-به گزارش خبرگزاری روسی اینترفکس، پوتین در جریان بازدید از یک نمایشگاه در مسکو گفت: «آنچه هنگام گسترش بحران در خیابان‌های تهران رخ داد، تا حد زیادی از طریق شبکه‌های اجتماعی آغاز شد؛ شبکه‌هایی که مقام‌های ایرانی نه آن‌ها را مدیریت می‌کردند و نه تحت کنترل داشتند.»
-رئیس‌جمهور روسیه گفت تنها کاری که مقام‌های ایرانی می‌توانستند انجام دهند، «قطع کردن همه‌چیز» بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78869)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 18:49:05
-
-<img src="https://cdn4.telesco.pe/file/BvxT0kSm3NWVY7HIcH8wwEyijD9886BeXUnA1Gl4i8aH3Vioj9Qcpi_f9p5Ai2Szlo0NeLSuX-OzrBrnRT__nTzSxCmxq4FBEQvqC9K1W3imKz89vyXdZm1Nxc7F7cK9ZI-LjkOmQeIhpRUgNFSQS6EOKzmeKgCESxQNiZ0rrbtE0P4vc3H5OdQpPvtdBiHJQPvEN1s0TgAWFe9chpm5oobMEZFEBONSNh09_i5OK-A98Fnf6ZRLlu8RxXq2fHdLUF891DzFsYS4vLXBJDndlrFeVdp-aH-xz2IksqE21CfYMyAL9u67WyE_9gjy0Zvi5uQKZhf4nalxcaKzmUgHzQ.jpg" width="400"><br>
-
-با شمارش بخش عمده آرای انتخابات پارلمانی اسرائیل، ائتلاف بنیامین نتانیاهو، نخست‌وزیر، بیشترین کرسی را به دست آورد و هرچند به اکثریت ۶۱ کرسی نرسید، اما نتایج نشان می‌دهد که نتانیاهو دست‌کم در مقام نخست‌وزیر موقت در قدرت باقی خواهد ماند.
-بر اساس گزارش سه شبکه اصلی تلویزیونی اسرائیل، با شمارش نزدیک به ۸۶ درصد آرای مأخوذه تا صبح چهارشنبه ششم آبان، ائتلاف نتانیاهو متشکل از احزاب راست‌گرا، راست افراطی و یهودیان فوق‌ارتدوکس در مسیر کسب ۵۳ کرسی پارلمان قرار دارد؛ رقمی که به‌مراتب بیشتر از ۴۸ کرسی پیش‌بینی‌شده برای ائتلاف مخالفان به رهبری گادی آیزنکوت است.
-احزاب نماینده شهروندان اسرائیلی با تبار عرب نیز، در پی مشارکت گسترده رأی‌دهندگان با انگیزه بالا، در مجموع ۱۹ کرسی به دست خواهند آورد که رقمی بی‌سابقه برای این احزاب است.
-با ادامه شمارش آرا، نتایج همچنان ممکن است تغییر کند، اما به نظر می‌رسد شانس آیزنکوت برای پیروزی بسیار ضعیف شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78868)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 15:32:42
-
-<img src="https://cdn1.telesco.pe/file/ZxGx0NXhZ32ys8UtBzjjQG_WKfviFoiPiQgxMRPxPtLzMfyMCWG4IJat-b6BXnoHAGbVAQSZIEnhwKy36d0T7z0ZOPoxhW6c68CXZ_moDDkPcq6AzrpeoLjZfiycmBnUqdIgoA-JTabwW2ZJgpnCXAkHUeLY6Ww0xNIKqsy7rJHXkrDxw59GgxeTqbndCoPkWmBIsgn2IhZEDRiq72bdeAwH5juRUbAQgI1WWtrOEAngKJhJLlz16m5gTly0tEZ1ZrUaw-7kq8k4STP3ICtjAzKxPr4mQec4yv0silFyayal0vBSlT9yzeDq8Px6NlOr2BinIGDYezWVC05xa2OnvQ.jpg" width="400"><br>
-
-خبرگزاری مهر صبح چهارشنبه ششم آبان‌ماه گزارش کرد در پی برخورد یک تریلی با مینی‌بوس حامل دانش‌آموزان (سرویس مدرسه) در اردکان یزد، دست‌کم یک دانش‌آموز کشته و ۱۲ نفر دیگر زخمی شدند.
-براساس این گزارش حال سه تن از مجروحان این حادثه وخیم اعلام شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78867)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 15:23:18
-
-<img src="https://cdn1.telesco.pe/file/d4Lu8-kLI65CH2tCW78hFYqZ6axKinGIE2SERtsZueQ9ewnkIApm7dugqvm_gdRm5HSKgoO8tW-LYbVfxagYwQWnR0uhlJjzYlXl8cy_zZfxzOq0W-HIlR4B8j_OZMbbo2wawHO3FnP7jt0lM4IMek4J40s8tFFM7Y9XUToEUL1UwODSWzgTZX_QaJwOZSIIrnz4A-3DSAoZA9GkuZy3ap7VcvvxO5tGiYe_G3Ewqhhk8qa67DgU-_iz2-LpSEW89sbHC6rxdgYkCTUI92oPeUEodP_YnKeZZWxb6JeWQEgBe8VhkP39NUu_5qXg_H6vsTHneIGBEcdbcINsS99umw.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز چهارشنبه ششم آبان در یک گردهمایی انتخاباتی در تگزاس، با اشاره به ایران گفت: «دو هفتهٔ دیگر خواهید دید چه می‌شود.»
-ترامپ در بخشی از سخنان خود با اشاره به عملکرد دولتش در حوزه‌های تجارت و مسائل نظامی، گفت: «ارتشمان را بازسازی کردیم..»
-او پیش‌تر با اشاره به تنش‌ها و رویارویی نظامی با جمهوری اسلامی ایران گفت: «پیش‌تر فردی از من پرسید جنگ در ایران چه زمانی به پایان می‌رسد؟ به او گفتم هر زمان که من بخواهم تمام شود.»
-@
-VahidOOnLine
-دونالد ترامپ، رییس‌جمهوری آمریکا گفت: «جمهوری اسلامی می‌خواست توافق کند. شاید منتظر انتخابات هستند. انتخابات کمکی به آنها نخواهد کرد.»
-او با اشاره به تاثیر جنگ بر توان نظامی و وضعیت اقتصادی جمهوری اسلامی افزود: «ما توان نظامی‌شان را در هم کوبیده‌ایم و منابع مالی‌شان را به‌شدت تضعیف کرده‌ایم. آنها پولی ندارند.»
-ترامپ همچنین گفت: «آنها بالاترین نرخ تورم جهان را دارند؛ اکنون ۳۴۰ درصد است. ببینید چه اتفاقی می‌افتد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78865)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 15:21:07
-
-<img src="https://cdn4.telesco.pe/file/MJKa3c9Du_eFd13TokGYVaX4ul8sYetHnlE25K3Re28_SjFQvJD90i60UC0wI8DQsDdzNl_G6FhTI6ATp32651MPMSHyhjE2OHyz4YeqZqvbdW0fhFHDGTFJZK3HcTrqLPIId1zMetQjPKHWql3YQWQ6SdrbDz9wYLrU4Z3qBqyFLq8ZDhVhd8FP0XTFrwTr-m9ixfJZPihLl77Dwp9qPJC0AI8sRi4oM0XuTD009zloaNnTFm3cYqjy2oW9p1p9PlcD4sKtTaJ6M_x7urHuewl0nA9Nysvl13O5-j385i4YHLhRhdECx9DHNVcoeqffx7pk0cC_1MX87AstRQyYiA.jpg" width="400"><br>
-
-خبرگزاری‌ها و رسانه‌های حکومتی در ایران، از جمله فارس، تسنیم، انتخاب، دانشجو، ایرنا، مهر و خبرگزاری صداوسیما، با تمرکز گسترده بر انتخابات پارلمانی اسرائیل، اخبار، آمار و نتایج نظرسنجی‌ها و اظهارنظرهای جناح‌های مختلف را به‌صورت زنده و لحظه‌به‌لحظه بازتاب می‌دهند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78864)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 15:19:05
-
-<img src="https://cdn4.telesco.pe/file/dmS9Uygi9xra4uRivnyMsSA-xiQLzRZ31JZzjFLFLYGPWUbYFO6SjFNdpqgjprzEar-CgDtz2cWy20BC5f56-cQceNcsywDl090zClDqn05sUbZJPFTDMtdsyVGEzhlGB2bhg89nCc-aVYmJn009WC3fbV8wHTZJUSxsw6wqU3tIx3bZzC8xIfgVBStt3XAjqa0o1QRvogc9tRqtQuspf7hxvJKWyiCICmW4t2VIQ_j-yF-grwtTGAe5uhO1mfnx_Hcs-hkYu6QnswKwCJv1DtLxQpnzVD44lzmCYt0XxY24LVaIehtNdDmJm5bo8q3Efu33f9d4_qM-Dc_KkPn9Og.jpg" width="400"><br>
-
-شعبه ۱۵ دادگاه انقلاب تهران آرتین غضنفری، عکاس خبری و شهروند بهائی، را به ۲۶ سال حبس محکوم کرد.
-حکم روز دوشنبه ۵ آبان در زندان تهران بزرگ، معروف به زندان فشافویه، به او ابلاغ شد و ریاست شعبه در اختیار قاضی ابوالقاسم صلواتی بود.
-۲۰ سال حبس بابت اتهام «اقدام رسانه‌ای» با اعمال تشدید مجازات، پنج سال بابت «اجتماع و تبانی» و یک سال بابت «تبلیغ علیه نظام».
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78863)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-28 00:00:34
-
-
-
-دونالد ترامپ در جریان گردهمایی انتخاباتی در ایالت تگزاس، با اشاره به تنش‌ها و رویارویی نظامی با جمهوری اسلامی ایران تأکید کرد که واشنگتن آغازگر این درگیری نبوده است. ترامپ در سخنان خود خطاب به حاضران گفت: «باید این را درک کنید که آمریکا جنگ با ایران را آغاز نکرد، بلکه ایران از سال ۱۹۷۹ [۱۳۵۷] در حال پیشبرد این جنگ علیه آمریکا بوده و بسیاری از مردم بزرگ ما را به قتل رسانده است.»
-@
-VahidOOnLine
-جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده روز سه‌شنبه پنجم آبان، در جریان سخنرانی در کارزار انتخاباتی جمهوری‌خواهان در میشیگان، از تاثیر فوری وقایع بر قیمت بنزین انتقاد کرد.
-ونس وابستگی قیمت نفت به وضعیت روابط جهانی را با کنایه ساده‌سازی کرد و گفت: «هر بار که یک رهبر خارجی در خاورمیانه قهر کند، قیمت بنزین بالا می‌رود.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78861)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-27 23:35:09
-
-
-
-ولادیمیر پوتین، رئیس‌جمهور روسیه، در دیدار با مسعود پزشکیان از وضعیت منطقه و تحولات مربوط به ایران ابراز نگرانی کرد و در گفت‌وگو با امیر قطر نیز گفت که تفاهم‌نامۀ اسلام‌آباد همچنان مبنایی برای پیشبرد مذاکرات حل بحران ایران است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78860)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-27 16:21:08
-
-<img src="https://cdn4.telesco.pe/file/R6DToKh6_V8NxXkZ7LqMZZR4GUGH-a7c8jk7vZhPv5Xprv48BAJ62O5b3DJ96HXew5FaYP3VUcJNqTTzS2VzJZYNrQrfdn9-d-8QyCyxUO4hiYiTdExU2WyGp1OrYGymR5hewTLl3lvsW_Xw_PGELkJJRGSfR6EjphpbRi13Tc2T3s-7d_UoWDjLY7xOoBoiMqZR2nu37TvIo-vxqxKHvLWblV_ISPFReXEx8a6nQ-zant3gpYuKNdKy9R7ixD0SzjBZBVRrQpZK4-Hp4DtA9cD7w_KtqjqtoLBOzIRa029xwdVlZ-r959ev9TzXKEJVGdWVqqk03b4TQU9CRzOZSg.jpg" width="400"><br>
-
-«سیدمهدی رضوی‌فرد»، وکیل دادگستری، از قطعی شدن حکم ۱۰ سال و یک روز حبس خود خبر داد.
-این وکیل دادگستری در شبکه اجتماعی ایکس
-نوشت
-: ده سال و یک روز زندانم قطعی شد و تا هفته آینده باید خود را جهت گذراندن دوران زندان به اجرا معرفی کنم.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78859)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-27 16:20:42
-
-<img src="https://cdn4.telesco.pe/file/ur-IF6EQU1UnIlzlVrtnsqJ3wrahgr5OfdKF7FEEQSskAEVa--n7_2fHzXouGcymHNYzNPbAm14GXT8wrXom6Lae4q5ogH5vopY0M5Wlss_UHOFHgL8SzXb_g-u0Adv_Vg9dY-HzYiOUF5dUVNntGNBGoX9ASSnjO1pvW6oGg3_Hi9ZH8DQ79St-ko3KIO5zRU5inwQFZ40fLrQbwd0cDtuTPoKAzbU3t5t4dux6Erfqk9jRdOdwIXCpP_NPYicTf1lFR-MXkRkWGB1k8c2YdeA6gNYyGt8VTy9CzkHb7M4Pprp_I00tfehw9tml1aHSRDbbTrr3lwI9ZEWieRTbpA.jpg" width="400"><br>
-
-خبرگزاری فرانسه به نقل از دو منبع قضایی کویت گزارش کرده است دادگاه کیفری این کشور سه مرد را به اتهام طراحی ترور معاون نخست‌وزیر، همکاری با ایران و عضویت در حزب‌الله، به اعدام محکوم کرده است.
-هر سه نفر از جامعه مسلمانان شیعه هستند که حدود یک‌سوم جمعیت کویت را تشکیل می‌دهند.
-به گفته این منابع، حسین عبدالله معتوق، از چهره‌های مذهبی و دبیرکل «ائتلاف ملی اسلامی»، در میان سه نفری است که به اعدام محکوم شده‌اند.
-یکی دیگر از این افراد پیش‌تر در سال ۲۰۱۶ به اتهام اقدامات تروریستی محکوم شده بود، اما بعدا مورد عفو امیر کویت قرار گرفت. گفته می‌شود این فرد ماه آوریل مجددا بازداشت شده است.
-به گفته این منابع، این افراد متهم به تضعیف منافع ملی، همکاری با ایران، برنامه‌ریزی برای ترور معاون نخست‌وزیر و وزیر کشور، و عضویت در حزب‌الله هستند.
-دولت کویت حزب‌الله را یک سازمان تروریستی محسوب می‌‌کند.
-این دادگاه همچنین ۱۱ نفر دیگر را که با این پرونده مرتبط بودند، به پنج سال کار اجباری محکوم کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78858)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-27 16:19:17
-
-<img src="https://cdn4.telesco.pe/file/KnLKbMwp_2spq2iMHSjy_L1f_fZwdMR4CWBEltaEfRYwAlLgVD9w2Ri9nnzXyRtBUxxr17fev8XpSu4Q9Ozw1sjdJeAu-OhZzgvnJx8iojvYXzcMPdBKLLmRIO3m2I6kkm1D2MAipKMKda0U4dVhzAMNKkV3YY26fufxhd_Y4xko8nY_Y0SUxryjKiIlFJkqW6GmILRYPWLkgODXQ4-RfFbW7JquMeERKW7YMBvLzKza4kLCYyqk9INsg1twU14fkb4MtD2Ic8ccMdLcZbpUMhH6Fer6uQwOR9nna7nUEi6YLmi_lZL4LYmQsNFMGq7VF-UOF9QVdUzDOJ6-EVc3KQ.jpg" width="400"><br>
-
-حسن گلشن‌نژاد، ۳۶ ساله و از بازداشت‌شدگان مرتبط با اعتراضات دی‌ماه ۱۴۰۴، به اتهام «اقدام عملیاتی به نفع اسراییل» از سوی شعبه پنجم دادگاه انقلاب مشهد به اعدام محکوم شد.
-این شهروند ۳۶ ساله که شغل آزاد دارد، پدر یک پسر هشت‌ساله است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78857)
 
 ---
 
