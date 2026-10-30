@@ -3,8 +3,44 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-30 20:22:49 </h5>
+<h5> 🟢 Updated at: 2026-10-31 00:45:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-30 23:37:13
+
+
+
+خبرنگار اکسیوس، ترجمه ماشین:
+یک منبع دیپلماتیک به من گفت که مذاکره‌کنندگان قطری در تهران حضور داشته‌اند و مذاکرات به مدت ۱۲ ساعت ادامه داشته است. این منبع افزود که میانجیگران قطری در طول روز به‌طور مرتب با کاخ سفید نیز در تماس بوده‌اند.
+این منبع گفت: «گفت‌وگوها همچنان در جریان است و تلاش‌ها برای دستیابی به توافقی میان آمریکا و ایران ادامه دارد.»
+BarakRavid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78919)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-30 21:37:23
+
+<img src="https://cdn1.telesco.pe/file/lg2mcK87pm0-_RyCJ50M0rYzYZRIfKV_ax_SWvuZG8_5D8nQ0i5Cw7xo2euF_BxuJMp7KqtrMZl774GPTHJNNuiITsomAFwcHkcBHr2c7HODGBHRcDJzsxjCu48f6dgYeOBK488XEqxI9_K4RMlQPFM-dS-D0g3kbeTRlIkMunr5vhwTBFutfK7md9MUZCOxdHtkOUx4PjaFA_mjiijfV0_vuKjbOxBqqoy732qdJ-eReJesmJRY0t2UCkwTVvuln_Gw4O2nkBCMPQmSCdb_8dw9p1LJcePlV4HQgMuApNlFRedFNO8lAo5KBzDrRq7zajAh2TYy21TCl8ILJ_JU_g.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+🚫
+ادعا: امروز سپاه پاسداران انقلاب اسلامی ایران مدعی شد که یک شناور بدون سرنشین نظامی آمریکا را در تنگه هرمز منهدم کرده است. این ادعا دروغ است؛ درست مانند بسیاری دیگر از دروغ‌های سپاه پاسداران در این هفته.
+✅
+واقعیت: تمامی شناورهای سطحی بدون سرنشین ارتش آمریکا در خاورمیانه حاضر و وضعیت آن‌ها مشخص است؛ از جمله یک اسکادران از شناورهای بدون سرنشین پیشرفته که در تنگه هرمز گشت‌زنی می‌کنند و از لایه دفاعی فرماندهی مرکزی آمریکا (سنتکام) پشتیبانی می‌کنند.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78918)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-30 18:16:23
@@ -244,7 +280,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-10-29 23:59:32
 
-<img src="https://cdn1.telesco.pe/file/hMbZod5UFPF1J9tSD1IUR1PqU_17spGQYEAorXKkGqNgam3mc9Eh9aBLAlKa6YdUPfcs_v4v2zoSHns1qylrTTepcIUH4oAe0WvJGM_TkPWVwBySeLYVhLQSA5UuvcDDhcuCfEO3EFukuLhQPq-tXrxlnJIKr1w_P0cm4qB0Dv0CxyOCekz7R7mYLY3JmG0gwE35B8ZWg-kD5l6l6HeobD9FNJWAsqdQvYvbzT8AYNjXEeX3jiNc_mNxR8HcNxZ3pvUgCBwDRb7j_xnqhYfqqCzWf2056BICe6Kbc00_vqukvs5YLMQFNJxypvcg1C2bMuxVxKNBpv2NMDbfI0T5zg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/AlaCHhwSaGq47l3ebyG8RlYwiz91YLvcljjh7uBQlussVvm990DjsRG9na-yG5RwMukDibxT758FNkmnPLYv1Fk5Un-sh7dB5kUgbnmhxlSd1jiJbzkYkZcs3tA8vwS0Vk-6ThX5l9uRmsJOxYDO4q1ZVSD8PtNWDMsT3NoY-RlKhobeTFwMMVEMJDtqKSFMpvIvhRRTNQLFT0dHkwV_BgJUShRLFqhVYXyWLbBT4aoUyBHSEveXUG2pUnKv1YpStWHPAHDStTakYrpo7Ybu3iFYTxwK8ip5ztPQQ2z2mr_UWoNCQbM8a_ile_WUV3NksbqhIWUMLV8pBqeMMPqNqQ.jpg" width="400"><br>
 
 روزنامه وال‌استریت ژورنال
 روز پنجشنبه هفتم آبان‌ماه گزارش داد که دریاسالار برد کوپر، فرمانده ستاد فرماندهی مرکزی ارتش آمریکا (سنتکام)، در نشستی کم‌سابقه در کاخ سفید، گزینه‌های نظامی حمله به ایران را به دونالد ترامپ ارائه کرده است.
@@ -300,7 +336,7 @@ axios
 
 ###### 🔵 Post time: 2026-10-29 22:53:59
 
-<img src="https://cdn1.telesco.pe/file/bGi75T3ChIi_8d2oD_s5ccFHJxBeRq0y2GFZKBwtsmJg-nDD9CqpiqJV5U0sClkmeiAPN5Id8FFa8fmEFaL9MGWm4ff4llVWTCeJ_i4c0kw-qy14Mu--Nkvj-Fngfmh1Xc5cJ4xV6lkcn1thvnr_rC8lXcc5V30Dpi-1_BQxxNrJxl5WJ2ZulE5R3PxXvRlJjjzTv4Dslxa27kP0M0YavuJ-ECGx64VzLSO5IT_JSXs5SkqSICaOtkBmYpxuNb4kja1wfSAiHGG0fFarSAoiAVd4W9t5hMccdW-Crj7Onlm8kvZzvobvy2wPloi35YF2dbgmH2wNGnbhVWvWQ8z2cw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/hVT--zTfhrXFcvOvU08naQvn2-lHKnlXm8ZVp2c5DL-c0V0W2Ps1lf6JxH28c9epLOhACAaVNclJlkD9sErdid5pN9Ft24WlUz3JPuTwT6D0PZazmjpnvL4_4I8meCuIfNODVfys_LL-RaXokNmEgN2F_SiIBNs42YCsRN2GIaJYyHc25eWVx4ac5TRf3sNhtaUry6P5b9b6yD2NXdYI3QDCtIBS76JOQfKlvMiTWMdUt_7LOoAowwkJ2d5lSOo-HEDtvjFiTLptyXPrC3nrmpAFxJdY7OJwLWPDy6UHBNZFsVUETGyCqLbHQOtdrGTy9_6j1oBLOX2rknYEjSm13w.jpg" width="400"><br>
 
 پیام‌های دریافتی از قشم حدود ساعت ۲۲:۴۵
 سلام وحید جان از قشم موشک ول دادن یه صدای خیلی وحشتناکی داد
@@ -323,42 +359,6 @@ axios
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78900)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-29 21:59:48
-
-<img src="https://cdn1.telesco.pe/file/nkgpSCKZ0ctZ2DKY0Wx3Ef05QXaK0V6shjtnDjAZFsgTlmB_TUBG3xE1JXnl7OyDbZar8ehK_0YAL-UFiPItxlBSaA3dsubCWRIcGRAEJnW-zvqDwJNUvZzI0vlA2ZhdTmtYqRXy_k7aJRH4KVQneTYldZ1LXZDELqawaOr-4FphLfGYuaFxFodIFY6bUBW-jLXwIRzEoY0DUXGkvJrYoWOoC7iVhLQwAkG7S1spOBctcB2ppCaApVFjTI7tN7bYYkPLCrjAf7p210_H69RCun2VUqJ4fZZkZhia3iMu8vmcH7-CXgVzX1RxS6jAzOA_17wJOGJUzdCYKISA0YREVg.jpg" width="400"><br>
-
-محمدباقر قالیباف، رئیس مجلس شورای اسلامی:
-شرایط ایران بارها به‌صراحت به میانجی‌ها اعلام شده است. رویکرد چما
-ق
-و هوی
-ج
-هیچ تأثیری بر ایران ندارد. تنها زمانی می‌توان به پیشرفت دست یافت که با شروط هفت‌گانه ایران موافقت شده باشد.
-mb_ghalibaf
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78899)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-29 21:40:30
-
-<img src="https://cdn1.telesco.pe/file/t9px7UThsz0myNcrur2X_jfHvTQmKfTVmYUHdlwFarCQKU2B_jguhZFqoTlRdSIIp2FP3qrJF7ipN9Mc7vjYVVufnc0Ngb9S2P-5ccpkSF_Ro0YulhBkH7xl1Mip4x77fRCo7R_Nxp1QWMnzLuI2Q-a8tT96rc7cNQ5t0A62FItK4heZUqexPZCKkpEZf4pHwLREP5fqh4rPmJC-EEfUaTwUrhwb_hWgGlCocCBfDfoK1w4G_lj2xfQj1HnHQNohawjlfEbke418FgNt6j0nr-TfjvB5pn8Sje46smfeBO4UkpRPuEv-_Mm1GABXQfnG-KgctDfsPftOwbUdBC9bmw.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا:
-مسئولان امنیتی یک شرکت کشتیرانی گزارش داده‌اند یک نفتکش متعلق به آن‌ها هنگام عبور از تنگه هرمز در مسیر خروج، هدف اصابت یک پرتابه ناشناس قرار گرفته است:
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78898)
 
 ---
 
