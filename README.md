@@ -3,8 +3,46 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-30 07:08:57 </h5>
+<h5> 🟢 Updated at: 2026-10-30 14:06:26 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-30 08:11:11
+
+<img src="https://cdn1.telesco.pe/file/fG1Ku2OHj5RoLOFVOWnTTh12piF8YRv6_LfC8--oUE6LwOKTUJFYCaedlLP6RVuxJuJTyMPIgPJQ5z--nc6P6udc1-mZU0IJ0pAnEXPHNtv_lwtyTqoRO-GofPE76Py8F-ggHJFFDmv9akVVZyom06LwHA8YXsZgFSqMwmPIvryjK1atbva3io_jZnibrelkkjllBNIELM8NHixM2dX74egdJatztHbS5UCotaGrCpp7xkf9AIFn3Ruw0rm7mAyRDAF9vJsPjDuJBNg0F719J6DSu-0GP0B42Cgmu-OzlDErXdITPThGnPU7MtC2KM406HaKMWXU-hQJbYqC-GTVdw.jpg" width="400"><br>
+
+ائتلاف نظامی به رهبری عربستان سعودی اعلام کرد یک پهپاد پرتاب‌شده از سوی حوثی‌های مورد حمایت جمهوری اسلامی را در منطقه مکه رهگیری و منهدم کرده است.
+این حادثه تازه‌ترین مورد از حملات فرامرزی منتسب به حوثی‌ها علیه عربستان سعودی است.
+حوثی‌ها در هفته‌های اخیر با استفاده از پهپادها و موشک‌ها، تاسیسات نظامی، فرودگاه‌ها و زیرساخت‌های انرژی این کشور را هدف قرار داده‌اند.
+حوثی‌ها تاکنون به این حادثه واکنشی نشان نداده‌اند. این گروه پیش‌تر بارها اتهام حمله به مکه و مدینه، دو شهر مقدس مسلمانان، را رد کرده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78906)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-30 08:08:37
+
+<img src="https://cdn1.telesco.pe/file/QYRgnGmiqB5YEwaWEoZ7mIR-67PIHHQVwQfnJbpQERikt7bybJHw4kCiavQF16slcUvp6qKtoQpkfR3R_zGLkPQ7nNBwYADd5ypdUtMbmbpVHgSkfdkFKbZ6qApSJhRjH6P_sPblyrSUEPXLpGE6jKugT7alexIKRGgse1hgruLPtbirrR05FrIjHBF9fKqZoCHI9KxRxwxTFFpNPdYwOERwRunbOIqtFanY5nOEiRNJWg8i1F8FsOeVcvZTxAD0XlOX0IoaJOS7NhqSOs8df9majI0OlYCxUwoP1QWff3MIMcfiPTrulpUrF1YVIMgvwQ1UqBmfhEVN1k69229-KA.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا (
+UKMTO
+) در آخرین به‌روزرسانی هشدار خود اعلام کرد یک قایق کوچک در تنگه هرمز به یک نفتکش نزدیک شد و دو وسیله انفجاری به بدنه آن متصل کرد. انفجار این مواد باعث آتش‌سوزی در موتورخانه و از کار افتادن موقت نفتکش شد. هویت این قایق در اطلاعیه مشخص نشده است.
+بر اساس این گزارش، حادثه ساعت ۲۲:۱۲ به وقت جهانی در ۲۹ اکتبر، در فاصله ۲۵ مایل دریایی شمال‌شرق خصب عمان رخ داد. این نفتکش هنگام وقوع حادثه در حال عبور به سمت خارج از تنگه هرمز بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78905)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-30 04:40:29
