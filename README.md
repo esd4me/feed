@@ -3,8 +3,144 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-31 17:33:41 </h5>
+<h5> 🟢 Updated at: 2026-10-31 22:25:44 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-31 21:21:26
+
+
+
+محسن رضایی، دبیر شورای عالی امنیت ملی در جمهوری اسلامی،  درباره نامه جی‌دی ونس، معاون ترامپ، گفت: «نامه را مطالعه کردم. هنوز پاسخی به این نامه نداده‌ام. کاملا لحن تغییر کرده و این علامت بسیار خوبی است که ملت ایران اقتدار و پیروزی خود را تثبیت کرده است.
+محسن رضایی در گفت‌وگو با صداوسیمای جمهوری اسلامی  آبان، افزود که چون آن‌ها چیزی از نامه را طرح نکرده‌اند، من هم فعلا چیزی نمی‌گویم.
+او درباره احتمال تغییر دکترین هسته‌ای جمهوری اسلامی گفت: «هنوز در دولت، در حکومت، تصمیم جدیدی گرفته نشده است؛ البته این بحث مطرح است که اگر دوباره جنگ شود، ما می‌خواهیم همان دکترین را داشته باشیم یا نه. تصمیمی گرفته نشده اما ملت ایران به دنبال یک مطالبات منطقی هستند.»
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78935)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 20:58:50
+
+
+
+روبیو:
+ما در دنیایی زندگی می‌کنیم که یک کشور، یک حکومت، آشکارا می‌گوید: «کشتی‌های تجاری را منفجر می‌کنیم.»
+به این فکر کنید، خب؟ به دنیایی که اکنون در آن زندگی می‌کنیم فکر کنید.
+انگار این حرف مربوط به ۱۰۰ یا ۸۰ سال پیش است.
+این اتفاقی است که دارد می‌افتد و همه کشورهای آن منطقه با این چالش روبه‌رو هستند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78934)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 20:54:52
+
+<img src="https://cdn1.telesco.pe/file/H1jT6_RBMKG8wOLzsSPHhBdHGQos16rLrVI7hG2PAWHNOfpDrnjvnk0Tqq6WBj8Qe4_h-L91Y3MgcR0yYtDyFKkFAbHuu1DfTD-Ydp6RRaJpi8TC7w1XTUyiL4XDCZxH_tCvgg3NJUxwIDxvt4itk8URAvKFbmgyiV4jeQIzsy_9FYsoNcKpEKTR8sMKZKhVol-C_aV96V42ibPj9xDaEWPb5VhhbfZuSx298m7pwhfKi-7C6Q0NmYvnxMsNjS8noud3gkRe2k4wEZk99jlel4SsIABBia4W6U2SLVgXwNnWp8rJx4oWgesYfdobBOlfHerFgME8-qj6tTdMOW0OAQ.jpg" width="400"><br>
+
+مارکو روبیو، وزیر خارجه آمریکا، در نشست خبری در حاشیه اجلاس گروه ۲۰ گفت که گفت‌وگوهایی درباره ایران در جریان است و ترامپ ترجیح می‌دهد که موضوع به صورت مسالمت‌آمیز حل شود.
+مارکو روبیو، شنبه نهم آبان همچنین گفت که در عین حال برخی موضوعات وجود دارد که امکان حل مسالمت‌آمیز آن‌ها وجود ندارد.
+وزیر خارجه آمریکا اضافه کرد: «من نه پیشرفت در مذاکرات با جمهوری اسلامی و نه هیچ چارچوب زمانی را در مورد آن مشخص نمی‌کنم، جز این که بگویم که اگر راه حل دیپلماتیکی وجود داشته باشد، ما از آن استقبال می‌کنیم.»
+روبیو افزود: «درباره ایران اگر راه حل دیپلماتیکی وجود داشته باشد، ما از آن استقبال می‌کنیم اما بدیهی است که چنین راه‌حلی نمی‌تواند امنیت ملی ما را به خطر بیندازد یا نگرانی‌های اساسی ما را که در وهله نخست باعث ورود ما به این وضعیت شد، برطرف نکند.»
+@
+VahidOOnLine
+مارکو روبیو، وزیر خارجه آمریکا گفت که جمهوری اسلامی نه‌تنها به‌روشنی نشان داده که به‌دنبال تبدیل شدن به یک قدرت دارای سلاح هسته‌ای است؛ چیزی که هرگز نباید اجازه وقوع آن داده شود، بلکه این کشور و این رژیم در مرکز تمام بی‌ثباتی‌های خاورمیانه قرار دارد.
+روبیو افزود: «در لبنان بی‌ثباتی وجود دارد، چون ایران از حزب‌الله حمایت می‌کند. عربستان سعودی هدف حمله قرار می‌گیرد، چون ایران از حوثی‌ها حمایت می‌کند. عراق نیز کشوری است که با چالش روبه‌روست، زیرا شبه‌نظامیان مورد حمایت ایران، حکومت این کشور را به چالش می‌کشند.»
+او افزود: «به هر طرف که نگاه کنید، یکی از نیروهای نیابتی ایران را می‌بینید که صلح و ثبات خاورمیانه را تضعیف می‌کند.»
+روبیو همچنین با اشاره به سرکوب مردم در ایران گفت: «این رژیمی است که مردم خودش را قتل‌عام کرده است. فقط می‌توانید تصور کنید که اگر به سلاح‌های کشتار جمعی دست پیدا کند، با دیگران چه خواهد کرد.»
+وزیر خارجه آمریکاادامه داد: «جمهوری اسلامی در حال منفجر کردن کشتی‌هاست؛ از جمله کشتی‌هایی که برای مثال، ملوانان هندی در آن‌ها حضور دارند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78932)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 20:43:18
+
+<img src="https://cdn4.telesco.pe/file/u020Q30J_eA7KiMp0xuTBXA-_78kqfEP4C5909qygEAnwbgG6EbtSX73G_MgrdzIT_rvkymvDqLOjqqrfWK4Ept0jqXkInpV314Sf5uFFWDRdCgw_hEwxBdHdeE7NGsAFhTo96kD-drGtOoTdNEvhtedHgQdRVCWo2BXlh_T52Q6ztSWI-fUXh6Q67BI_uiXqyl2jfoqmfG8-6GIEW06gV7WRbN_7K5YPeFaY1Y9tcbTrtYYLGvMwSIm7ay6dSBLo0n3nFW3MagAT5cZ9FKqfijzjdxr2Qv8Z095MTXJ0RwtCoSAyjRz-rIfSmhNmxjaBp7Zecg4wDbxOVkpaiKaEw.jpg" width="400"><br>
+
+خبرگزاری آسوشیتدپرس، روز شنبه ۹ آبان ۱۴۰۵، در گزارشی نوشت حملات جمهوری اسلامی به ۲۶ پایگاه و محل استقرار تجهیزات نظامی آمریکا در خاورمیانه، میلیاردها دلار به تجهیزات و زیرساخت‌های نظامی این کشور خسارت وارد کرده است. این حملات ابتدا سامانه‌های هشدار زودهنگام و رادارهای آمریکا را هدف قرار دادند و سپس به آشیانه‌های هواپیما، انبارها و محل استقرار نیروها گسترش یافتند.
+بر اساس بررسی تصاویر ماهواره‌ای، کویت بیشترین تعداد حملات به مواضع آمریکا را تجربه کرده است. پایگاه‌های آمریکایی در بحرین، عراق، اردن، عمان، قطر، عربستان سعودی و امارات متحده عربی نیز هدف قرار گرفته‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78931)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 19:10:54
+
+<img src="https://cdn4.telesco.pe/file/VceMwF1Ezzyz1BkCB_FJRmSzcLYAAMzOQdYlKSr3aJEVTtc2bxrre6YWV9M_gr8tCbng8OkWWKUBS9hned4SIs7saTckR7DqI7r247EpGYxSLHf_RYSreczPBZp2o3cnEI3hO87S3e-btliKYDPNc0Qp8c26rRG7lPvrAp7OL5L_Fky4xbVgPugPLeY0MDIHYiIxrGMaLz3vLWhW0gE1DOFTm59QUcLZ-yMTDVocgNU97IzEPM2ZywkbswIzBpBuUhQD5YqKqw_qVJh3CTzulcjCSaDcXXNf00SDzNDanMboK89Y9FymWxqbXePK4poGU8K6HFNiqeSSQipffyqTrg.jpg" width="400"><br>
+
+شایان شکیبایی، ۲۹ ساله و ساکن کرمان که در جریان اعتراضات سراسری دی‌ماه ۱۴۰۴ بازداشت شده بود، از سوی شعبه پنجم دادگاه انقلاب کرمان به اعدام محکوم شد. در همین پرونده، سه متهم دیگر نیز در مجموع به ۲۸ سال زندان محکوم شده‌اند.
+در همین پرونده، محمد حسینیانی به ۱۲ سال زندان و دو متهم دیگر هرکدام به هشت سال حبس محکوم شده‌اند.
+تاکنون اطلاعات دقیقی درباره اتهامات منتسب به شکیبایی، مدارک و مستندات مورد استناد دادگاه و همچنین احتمال اعتراض متهمان به احکام صادر شده منتشر نشده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78930)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 17:51:42
+
+<img src="https://cdn4.telesco.pe/file/GuQuZpA-BaZfy0WX25HaBZbC_7xneWLSzt8TfhmXKtbHNC-uIrvKLtQV5HF199EOpVzYtrhZu9kHCUAbb4sYF26Ao2DGCZH1AelMlMUDDyWxECtGVdZEAwIGbkhpYPkySpVgMEwE-9ptFpiTMToGMvUxjZ3N5adrc6PFruR4nnMfrTg_wmnyoqCtq20NhnssIqlGGdrAdS1k4cOw3SetUtXebm2Mh-6zeHUEn6zZF5ra8YV4qCs2tLhCk6qamrdIqQelp93uYL7ZjFtA6uJWwPSQKMnU5vD7AQ-MQNCGd-d0cHSy5nP3VtkZN0CmW8vBdZ6rnU1ZGSRs_4E_OOEU0w.jpg" width="400"><br>
+
+مرکز اطلاع‌رسانی پلیس تهران اعلام کرد ماموران پلیس هنگام تعقیب سارقان کیف‌قاپ اقدام به تیراندازی کردند که در پی آن، یک زن راننده هدف گلوله قرار گرفت و جان باخت.
+بر اساس این اطلاعیه، این حادثه ساعت ۱۹:۵۰ پنجشنبه هفتم آبان رخ داد و گلوله ماموران پلیس به گفته این نهاد، به‌صورت «سهوی» به راننده یک خودروی عبوری اصابت کرد.
+این زن پس از انتقال به بیمارستان تحت عمل جراحی قرار گرفت و در بخش مراقبت‌های ویژه بستری شد، اما صبح شنبه بر اثر جراحات جان باخت.
+پلیس تهران اعلام کرد پرونده قضایی این حادثه تشکیل شده و تحقیقات درباره آن ادامه دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78929)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 17:51:32
+
+<img src="https://cdn1.telesco.pe/file/uHcpiQlaz3wG9viFoO-XSgPc8Ofvi4KC9UXNrSekyHu8Wz4gNFZX5QhVAsapV6u8ZMTJUoYH-6XpxVqtnFCx8D5ENiaeD0kNbi9YBxZK5vfAIkxbCfOTl2ppq0euDuIJvICxpfPaQ7Vgvij1Q4ge30rr2MMlzMtxb3hbDKtPDt9U-MMKehMv8KvQstYEKNeNzTlcXprS2SUYB4g2y20KchhIYBUx6id-bt5SujRCWcEDpEYDT0PtMLCUdurxJ08ALqZ2_22cSlnmKxprniXGIPPaUFrSzFBf77PxNmh_jw7jO7J_xElc5INfia9FcpjZ0T9zUnjBZNm3bB4JEcZlng.jpg" width="400"><br>
+
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، روز شنبه ۹ آبان‌ماه در گفتگو با شبکه الجزیره گفت پیام جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، با دقت بررسی شده و در نشست‌های سطح عالی درباره آن بحث و تبادل نظر صورت گرفته است.
+عراقچی تلاش طرف آمریکایی برای گشودن باب گفتگو و تفاهم در سطحی گسترده‌تر را اقدامی مثبت دانست، اما گفت اگر هدف واشنگتن از ارسال پیام ونس ایجاد اختلاف و شکاف باشد، این اقدام اشتباه جدیدی خواهد بود که به اشتباهات پیشین آمریکا اضافه می‌شود.
+او درباره احتمال دیدار با مقام‌های آمریکایی گفت: «در حال حاضر هیچ برنامه‌ای برای دیدار با مقام‌های آمریکایی نداریم و آنچه در این باره مطرح می‌شود، صرفا گمانه‌زنی رسانه‌ای است.»
+عراقچی افزود تهران در شرایط کنونی نیازی به دیدار با آمریکایی‌ها نمی‌بیند، زیرا شروط ایران روشن است و میانجی‌ها رایزنی‌های خود را درباره این شروط ادامه می‌دهند.
+او گفت پس از موافقت واشنگتن با شروط ایران، درباره مستقیم یا غیرمستقیم بودن مذاکرات تصمیم‌گیری خواهد شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78928)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-31 16:38:54
@@ -224,7 +360,7 @@ BarakRavid
 
 ###### 🔵 Post time: 2026-10-30 21:37:23
 
-<img src="https://cdn1.telesco.pe/file/lg2mcK87pm0-_RyCJ50M0rYzYZRIfKV_ax_SWvuZG8_5D8nQ0i5Cw7xo2euF_BxuJMp7KqtrMZl774GPTHJNNuiITsomAFwcHkcBHr2c7HODGBHRcDJzsxjCu48f6dgYeOBK488XEqxI9_K4RMlQPFM-dS-D0g3kbeTRlIkMunr5vhwTBFutfK7md9MUZCOxdHtkOUx4PjaFA_mjiijfV0_vuKjbOxBqqoy732qdJ-eReJesmJRY0t2UCkwTVvuln_Gw4O2nkBCMPQmSCdb_8dw9p1LJcePlV4HQgMuApNlFRedFNO8lAo5KBzDrRq7zajAh2TYy21TCl8ILJ_JU_g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/QfR1I2LqzsQhjn3HPPDn6fVk4DAX_URCYOi5_Ii15XiuP7_PadYmloTFPdbyGJbFwPEpFZsAmyGc6bjaMSfsloLUqct1S31i7eDJvtjCtBXavNQ9jN4qdvXfR8do4OE5MNNw9CMfnHGR8VhAtS-AYU25WkIqheeIsW2H4u1B-xu1ZxRjMbb-yjNhzWPhAQwYnNY0znZV32ULGwmpnHbsP1xh3BgEvQUF0Hoo1uhRYbCwOIst78r9fFUIdUe06sAj_XeCVZ4Q0q7kKw8vZW8KEq_qVYFs0bSVP9hp-1N45ATLgT1bpuJymZJChGNLpYM7C-yLuzwpPteEZG9uFOeScg.jpg" width="400"><br>
 
 پست سنتکام، ترجمه ماشین:
 🚫
@@ -243,7 +379,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-10-30 18:16:23
 
-<img src="https://cdn1.telesco.pe/file/rnfhYyoUTaaf9k_Kh8HpB3TnX7WO95toAwy5Z3hWcWBh-uvlfu91-XNv16u1chHDnWR4NvM7cw9KqEqEenlrP8i2XhhtpVEB0mic82DRKkEYw5szwIfzgqwn5CjpXDNntMn6MgOFoy_w0m32BoxgJX4z7JKyCgfmJcgaVvd_9VHU7hXKIR3NqJhba88biqkQrA-sTKe5783weHEBo6azfX7RhR9pE-YIV8n70E5LqjV87P6VECjIDM2lwBUtB_9Py5aOVSQRxnCXrnmWfAaqyNRWY7CMlfykGTG_GTRiOM1gaylipy8Ph4hTAVBFUgkD8BSUTHxesAzIU8Dixv16sA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/TqJ9cBEqgRIy7r-KPjEnr15FBsTuhxDjomUDh2q1Y-WT0_1onyOQotht7YzyVVB-yWaA7kZC-nV5KbE2l44a3UJJhnyAOblTwVIu2dq_HV8SxG8DNMlSMSW3oEFO6I31_XEZJtGS_s8xcuiBAGvnx9p1GgRZSV_t5T5WenWHvsKz9t0euIlHRjWzTMIuMfpbZyTt1APjO-_nw8esmP06vglDrKAkQtVUhq-j9AALM0Bmgkp_IKdlC6HL3EHOtlL0P8EPdG1YzrCi8G9P_oi3TXA5hIwuL06Y6iSNv6pC-AWf1NUYnPNPRlqOTQYlBVZx4OmOKDyiA7mDkM54ciKKkw.jpg" width="400"><br>
 
 فریدریش مرتس، صدراعظم آلمان، روز جمعه هشتم آبان‌ماه، در نشستی خبری در سئول، پایتخت کره جنوبی، اعلام کرد که دولت آلمان در حال هماهنگی و تقویت تلاش‌های دیپلماتیک برای پایان دادن به جنگ ایران در سریع‌ترین زمان ممکن است.
 به گزارش خبرگزاری فرانسه، مرتس با تأکید بر ضرورت حل مسالمت‌آمیز این مناقشه گفت: «از همهٔ طرف‌های درگیر می‌خواهم توجه داشته باشند که این مناقشه راه‌حل نظامی ندارد و باید از طریق دیپلماسی و گفت‌وگو حل شود.» او افزود که این موضوع دربارهٔ اسرائیل و دولت آینده این کشور نیز صدق می‌کند.
@@ -272,110 +408,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78916)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 15:38:57
-
-<img src="https://cdn1.telesco.pe/file/MVLmzIokGPJrFYuMlfeTfHpCw0a66t32-Yg5PQdBWRCcQk1FtLSQ-mFDSIIlZCdmDD-H3zPYthmy3-wt6HreRFNPMQL7OY4AnyLtiJM8xjLpWC-sqbBM4qWpXlxpNXF3uEpWoK631U57e-pDZ5iKN4o8JzoRbrvLObtp9p4ybesz9vyPU1JqN-NeGrgILa7iY6bXxk-0L_ntNkQc3T8Mayz1YQqsf4jbnvphdjS-y97X8yTZvM82cjIOBNgE-NCw4BuaPDuRRNZkFBrLA8KUZ-UT_MbS259OpipdvT4iCwcVLWusyFjsEC4Olqi3nzypJ0ebijBG7tKRO0eWow_ZYg.jpg" width="400"><br>
-
-خبرگزاری رویترز به نقل از یک مقام آگاه گزارش داد که میانجی‌گران قطری بار دیگر به تهران سفر کرده‌اند تا تلاش‌ها برای دستیابی به توافق میان ایران و آمریکا برای پایان دادن به جنگ را ادامه دهند.
-این مقام روز جمعه هشتم آبان به رویترز گفت که گفت‌وگوهای میانجی‌گرانه با هماهنگی واشینگتن انجام می‌شود، اما جزئیات بیشتری دربارهٔ مذاکرات تازه ارائه نکرد.
-این دومین سفر میانجی‌گران قطری به ایران در یک هفتهٔ اخیر است.
-قطر روز یکشنبهٔ گذشته پیش‌نویس طرحی برای پایان جنگ را به ایران ارائه کرده بود، اما یک مقام ارشد جمهوری اسلامی این پیشنهادها را «غیرقابل‌قبول» خواند و تأکید کرد که موضع تهران دربارهٔ برنامهٔ هسته‌ای تغییر نکرده است.
-@
-VahidHeadline
-خبرگزاری ایرنا، روز جمعه هشتم آبان ماه گزارش کرد، هیئتی به ریاست محمد بن عبدالرحمن بن جاسم آل ثانی، وزیر خارجه قطر، صبح جمعه هشتم آبان‌ماه، برای دیدار و رایزنی با مقام‌های ارشد جمهوری اسلامی وارد تهران شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78914)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 15:35:12
-
-<img src="https://cdn4.telesco.pe/file/cBJJBNebirSsO8UP__EjTXuZVvybhXNubdLrPwqn5X1HAcb63OpcQMlYvIRTqBKKLLGLngZ1NOLibP_oexzT-GGiA-nBxIYGsUmFR0wNCF_9YJNPO8vH-IQACD6rkF4NAYL_epOil5yddMkEeVB5IkNG_k_KHKQUQQgCvQ-WA16avEx8wIm7-MkZZbgTSqhC9b1wDofFIuL0d6LKUdPaTSVvbp9h6tYbUSjx1Bdcw-JQaTiu9iarYQqJ-RioDvdkzrMSwjnQNdXeGwaCP7G7szP85ZkDmYsHO2tFGV5NPBZUoQvpMgZ5RCvtBrPlP6uHMztot76xqPCmNYzJBbGdBA.jpg" width="400"><br>
-
-الناز شاکردوست، بازیگر سینمای ایران، در بخش نظرات صفحه اینستاگرام یک فیلم‌ سینمایی، در واکنش به انتشار خبر مهاجرتش نوشت، از ایران مهاجرت نکرده، بلکه حکم زندان مانع بازگشت او به کشور شده است.
-الناز شاکردوست پس از انتشار متنی مرتبط با اعتراض‌های دی‌ماه ۱۴۰۴ در روایتگر اینستاگرام، با اتهام «فعالیت تبلیغی علیه نظام» در دادگاه انقلاب محاکمه شد. دادگاه بدوی این بازیگر سینمای ایران را به ۱ سال حبس تعزیری و ۲ سال محرومیت از فعالیت‌های سیاسی، مجازی و هنری محکوم کرده است.
-هوشنگ پوربابایی، وکیل الناز شاکردوست، روز جمعه ۱۰ مهرماه در گفتگو با پایگاه خبری «امتداد» اعلام کرد که شعبه ۳۶ دادگاه تجدیدنظر استان تهران، حکم موکلش را تایید کرده است.
-در همین حال، رسانه تابناک از تلاش یک «کارگردان زن بانفوذ» برای عفو این بازیگر باسابقه خبر داده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78913)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 15:34:06
-
-<img src="https://cdn4.telesco.pe/file/MwgcbavLJjI6epuNAGfxCxTyyW29vlLW8T16nobZdhELSByyfnSe12QBY9gAmV_Gpzy5T0hwnuOCfL96Xms-llm67bw_03ZJ4nRwBqV-QLUe68CCQ6GypJkKK-L788YByd6K2L8wbbd3DiwXToj6p4UtxB9gpC7khgZrOyTsCdJRMPD9IrmOmebcZnPko2kMHZ3IAhoUfUjxrx2P_iwq2Pp8JF2gJKb1jC5qB4ooKzLPwwQ0xY6fqDwk0mtdmxlYOTKYC1yPfDlcuwEPCrZ9_ockakPGbwUexGYiEMVk8NPVCzcuaAGEJsO5oX0_jXNCduivTijSIoD6OTVKNc_Hkg.jpg" width="400"><br>
-
-دستاورد تازه جمهوری اسلامی برای ایران:
-مارک کارنی، نخست‌وزیر کانادا از ادعای مالکیت امارات متحده عربی بر جزایر سه‌گانه خلیج فارس حمایت کرده است.
-این حمایت هم‌زمان با دیدار شیخ خالد بن محمد بن زاید آل‌نهیان، ولیعهد ابوظبی از کانادا صورت گرفته است.
-در پی این دیدار دو طرف با صدور یک بیانیه مشترک در ۲۸ اکتبر بر همکاری کانادا و امارات متحده عربی در زمینه‌های مختلف تاکید کردند.
-بند پایانی این بیانیه مشترک به ادعای مالکیت امارات بر جزایر تنب بزرگ، تنب کوچک و ابوموسی پرداخته و خواهان پایان «اشغال» این جزایر به وسیله ایران شده است.
-این بیانیه می‌نویسد: «دو کشور خواستار پایان اشغال جزایر سه‌گانه تنب بزرگ و کوچک و ابوموسی هستند و آن را نقض حاکمیت ملی امارات متحده عربی و منشور سازمان ملل متحد می‌دانند.»
-ایران جزایر سه‌گانه خلیج فارس را بخش جدایی ناپذیر از سرزمین خود می‌داند که در اشغال بریتانیا بوده است.
-نیروی دریایی ایران پیش از اعلام موجودیت امارات متحده عربی در سال ۱۹۷۱ این جزایر راهبردی را در اختیار گرفت.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78912)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 15:33:39
-
-
-
-رویترز در تحقیقی از شبکه‌ای با بیش از ۵۰۰۰ نهاد مرتبط با وزارت دفاع جمهوری اسلامی پرده برداشته که با استفاده از درآمدهای نفتی خارج از کشور و واسطه‌های تجاری، به تأمین قطعات، مواد اولیه نظامی و خودرو ادامه داده است؛ شبکه‌ای که تحریم‌ها، جنگ و محاصره دریایی آمریکا نیز جریان واردات آن را متوقف نکرده‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78911)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 15:29:38
-
-<img src="https://cdn1.telesco.pe/file/B4pYee3uUFrIhsMsV2ZRmMEXlPWcbbyvEYPmQ7I7HL5IQMnZe5sPq5BXY9E4m6zoBnonkA25YwKXk7Qyx-Bl_Ar0eKJqyaBO9_5pOWDV_RG76M-UtybUPKEJPfuDYx2qdsGdOqRWjUEpOMd2MndOZ1YsL9SIYIl8m0wG_qm2CmbG5XeliaMEcn0SXdp2boKrm-fQOQU2Er62d1EaCQ9quBxspKkEX2HjY3X9Zm2I7RHy0-NLrUKdcL-Sp2Wstqv5KogAc-aXVB6FVALW92d7_8BOwZ7qgbsRHvuE5Bt5KkPhQy-p2FqlcClW2VkmPkcbjmoELoqp6TAJKgpVBIHUDw.jpg" width="400"><br>
-
-گروه مالی پاسارگاد هم‌زمان با روز  کوروش: یا پوشش اسلامی موردپسند مدیرعامل یا اخراج
-پانزده کارمند شرکت «پاد» سه‌شنبه پنجم آبان در جریان بازدید مجید قاسمی، مدیرعامل بانک پاسارگاد، شغل‌شان را از دست دادند؛ چهارده زن به‌دلیل رعایت نکردن حجاب اجباری و یک مرد به‌دلیل پوشیدن شلوار جین.
-قاسمی همان‌جا دستور اخراج آن‌ها را صادر کرد و همان روز مدیرعامل شرکت را نیز برکنار کرد.
-چند ساعت بعد، پیام به کارکنان شرکت‌های دیگر مجموعه رسید: فردا با پوشش تعیین‌شده بیایید، وگرنه اجازه ورود ندارید.
-برای کارکنانی که تا روز قبل بدون مانتو و حجاب اجباری در محل کار حاضر می‌شدند، این پیام به معنای تغییر ناگهانی شرایط کار بود. حالا باید مقنعه و لباس اداری تهیه می‌کردند، کفش‌هایشان را تغییر می‌دادند و خود را با دستور تازه تطبیق می‌دادند؛ یا صبح پشت در شرکت می‌ماندند.
-ایران‌وایر همچنین مطلع شده است که به کارکنان برخی شرکت‌های مجموعه، از جمله پاد، ده میلیون تومان برای خرید لباس مورد نظر هلدینگ پرداخت شده است. وعده کمک‌هزینه‌ای که در تصویر دستورالعمل دیده می‌شود، در برخی شرکت‌ها به پرداخت رسیده؛ همراه با الزامی که ورود به محل کار را به پوشش کارکنان گره می‌زند.
-روایت پاسارگاد، نشانه‌ای از گسترش فشار برای تحمیل پوشش حکومتی به محل تامین معاش است. در این سازوکار، مدیریت و حراست شرکت‌ها می‌توانند با جلوگیری از ورود، اجبار به گرفتن مرخصی و تهدید به اخراج، هزینه انتخاب پوشش را به درآمد و امنیت شغلی پیوند بزنند.
-هزاران کارمند زیر سایه یک تصمیم
-پاسارگاد فقط یک بانک با تعدادی شعبه نیست. گروه مالی پاسارگاد، شبکه‌ای از شرکت‌ها و هلدینگ‌های فعال در بانکداری، بیمه، فناوری اطلاعات، معدن، انرژی و ساختمان است. فناپ، میدکو و گسترش انرژی پاسارگاد از اعضای این گروه‌اند و خود نیز شرکت‌های زیرمجموعه دارند.
-آمار تجمیعی و به‌روز کارکنان تمام گروه در منابع بررسی‌شده روشن نیست؛ اما در اسفند۱۴۰۱، تفاهم‌نامه‌ای برای بیمه تکمیلی بازنشستگی چهل هزار نفر از کارکنان گروه مالی پاسارگاد امضا شده است. این عدد، شمار کارکنان امروز مجموعه نیست، اما مقیاس چندده‌هزارنفری اشتغال در آن را نشان می‌دهد. ...
-iranwire
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78907)
 
 ---
 
