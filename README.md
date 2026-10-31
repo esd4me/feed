@@ -3,8 +3,141 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-31 11:16:14 </h5>
+<h5> 🟢 Updated at: 2026-10-31 17:33:41 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-31 16:38:54
+
+
+
+تسنیم خبرگزاری وابسته به سپاه پاسداران انقلاب اسلامی:
+هیئتی از ایران به دوحه سفر کرده است اما هیچ مذاکره‌ای با امریکا در قطر مطرح نیست و حضور هیئت ایرانی برای پیشبرد امور مذاکرات اخیر با قطر است.
+‌
+خبرنگار آکسیوس ۴۰ دقیقه پیش:
+میانجی‌گران قطری به رهبری علی الثوادی همچنان در دوحه مشغول مذاکره با معاون وزیر امور خارجه ایران هستند. یک منبع دیپلماتیک به من گفت که میانجی‌گران قطری به‌طور منظم با کاخ سفید در تماس هستند.
+در این مرحله، هنوز هیچ توافقی برای ازسرگیری مذاکرات مستقیم میان آمریکا و ایران حاصل نشده و هیچ تاریخی نیز برای ورود هیئت آمریکایی به دوحه تعیین نشده است.
+BarakRavid
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78927)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 16:11:35
+
+<img src="https://cdn4.telesco.pe/file/pRFmr81C-d2YqWxQwk8OItTUPWVsmcBwDfv8yR27q_CD6jLAUqT1t_jMVfS9jtth4nuvjsqu5kU4bmfBPIfwriyE16EczwUvVlhvBlGKdzhtcpNKE4ufcy3D_t7zPQy1WcR5aZ_CFnH6mBsDat_VjwOwsANVDzYNV-mAF8jxHO9sHWCgtlN9Dm8htszKorb8Mzg3e83K4AOd9eiEv4IzidqgGZ1l-2n9aSW2zBKbhPvCwi5DC8Elp4kDcTFcRQwM2Yt268k2aVenkn_AJ8OlJa14clPRkJ_jqFnnQCwMmgXKSZ-TcrtTw6k4z9hJVsPYn3--GLL0d8F5bUdgmo6GRQ.jpg" width="400"><br>
+
+رسانه‌های ایران با انتشار متنی منسوب به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، می‌گویند او به فرماندهان ارشد نیروهای مسلح دستور داده است به هرگونه تهدید احتمالی «فوری، اثرگذار و بدون محدودیت جغرافیایی» پاسخ بدهند.
+این متن روز شنبه نهم آبان به نقل از دفتر رهبر جمهوری اسلامی منتشر شد و در آن آمده است که مجتبی خامنه‌ای در دیدار با فرماندهان نظامی، خواستار «آمادگی رزمی هوشمندانه برای مقابلهٔ پرقدرت با دشمنان» شده است.
+در این گزارش‌ها زمان و مکان دیدار اعلام نشده و هیچ تصویر یا صدایی نیز از آن منتشر نشده است. این ادامهٔ روند پیشین است که از زمان اعلام مجتبی خامنه‌ای به‌عنوان رهبر جمهوری اسلامی، هیچ تصویر یا فایل صوتی تازه‌ای از او انتشار نیافته و هیچ توضیحی هم دربارهٔ دلیل آن ارائه نشده است.
+رسانه‌های حکومتی نوشته‌اند که در این دیدار، علی عبداللهی، رئیس ستاد کل نیروهای مسلح، امیر حاتمی، فرمانده کل ارتش، و احمد وحیدی، فرمانده کل سپاه پاسداران، گزارش‌هایی دربارهٔ وضعیت آمادگی نیروها در سواحل خلیج فارس، تنگه هرمز، دریای عمان و مرزهای شمال غرب و جنوب شرق ایران ارائه کرده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78926)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 16:10:30
+
+<img src="https://cdn4.telesco.pe/file/SadgkNPGPvG29HAF__kjzcc7ypXZaeh2gtmLPhAVZ2bLDP9eZPam2B_r3E4JjLJBrAWEmr9w-6IWNhBmdKCFO9KRDA7EsCQACQk0VkCmFbYLFvp8N6hi6UNMi2WCVS4YI-RUpirRRBDwZZdiMs7lxi7_ySBXxHyemuDIjCpNTxQASDZ4Jl8l48nTB-rP7X8CVtl-wTFo973i9bLW6m_4-MyKNu3IZSJe54vBF8lRksy8hTZV2nHMIF5n_WDvF87iuzYxHAkUYUjfjJ_9wteeAE6y0mGeTDipuxu24GKb8v9Kx4lsEhRtM02fSBSbuf2HeivXkyL7m2SVFRWd8S4JWw.jpg" width="400"><br>
+
+مدرسهٔ هنری «اینورس» در ایران از توقیف اموال، مسدودشدن حساب‌های بانکی و درگاه پرداخت و فیلترشدن وب‌سایت خود خبر داد.
+علیرضا اردوبادی، بنیان‌گذار اینورس، در اطلاعیه‌ای که روز جمعه هشتم آبان در حساب اینستاگرام مدرسه منتشر شد، اعلام کرد که این اقدامات بدون ارائهٔ توضیح روشن دربارهٔ دلایل و مبنای قانونی آن‌ها انجام شده و روند مصادرهٔ اموال مجموعه نیز در جریان است.
+او با تأکید بر این که مدرسهٔ اینورس هیچ‌گاه فعالیت سیاسی نداشته است، برخورد با این مجموعهٔ آموزشی را ناشی از مواضع شخصی خود دانست.
+اردوبادی همچنین گفته است که این مدرسه در طول فعالیت خود به بیش از ۷۰ هزار نفر آموزش داده است.
+مقامات قضایی جمهوری اسلامی هنوز توضیحی در این باره نداده‌اند، اما خبرگزاری فارس، نزدیک به سپاه پاسداران، روز شنبه با اعلام این‌که «اموال علیرضا اردوبادی توقیف و در حال مصادره است»، او را متهم کرد که در صفحات شخصی خود در شبکه‌های اجتماعی «ضمن اهانت به شیعیان، به تبلیغ علیه نظام می‌پرداخت».
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78925)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 16:09:31
+
+<img src="https://cdn4.telesco.pe/file/Oaw22REsVCXdOqeoA2uTugyg3gwQ8oB8h5NSTHI52_TvGgH22gDKm99J1QjjrsKcAaqNc0Zn1ZjWXjYGdgq-N7hjzrSNQGuCEyfEG7TIMT77FBN-2flIgZGoTHZUq_af4aa2qJl8-hWedgzoFfVxmvp7opDVIUun0rk89QLKuSvWZig-yLr0qi4BTUUaWPChZcxZU8YWp8kdg2olEDJsvyr5l1LadjrhNzPCLyiMt-qo6rGjP3TLO4rg0KuNXTDnLThHdeN4WrtIB2C_4Z_pp0oY7lnIvto51tV6X9z-bF0oJQ8OTe6ERAF_yDgGcWjn58d5nMDkXW_SkKpTlq8blQ.jpg" width="400"><br>
+
+قوه قضاییه جمهوری اسلامی اعلام کرده است که اقدامات لازم برای شناسایی و توقیف تمامی اموال «جعفر پناهی»، فیلمساز سرشناس ایرانی، آغاز شده و او برای اجرای حکم پنج سال و یک ماه حبس به زندان احضار شده است. این اقدام در ادامه فشارهای قضایی بر کارگردانی صورت می‌گیرد که سال گذشته با فیلم «یک تصادف ساده» برنده نخل طلای جشنواره کن شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78924)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 16:06:22
+
+<img src="https://cdn4.telesco.pe/file/GmRvA73OuS_hftxmd2QOX2ewTcy_aLPGfNPTiXSmATDin9kg5poR3KeDDN5BJMoUcthM7jUnPBeDs-FyelSzfnDFfMBH5jzLbH94g6rLHlyjs1mBCGCPaFiLD6WWIrSeDnaOR3Ih1zuRL8v49hFni8qLI0G39x41IHKNmhsTfb6bwWYj0LKFXr1JMy9C_R3QdfNnDnAXru-xDCpqhP5L7ok2Xfzwcege2_1UUzKQ4qOGxyKLbjdwLrFY44RE9wS4_lO9nj7_4bv37tMKIMUJ1G1rzju32xEbXMLYYE4E4wzr3WawNTccKDcBiEpzgvTjOAzwPM-rMrvdDeOn6I704g.jpg" width="400"><br>
+
+در ادامه برخوردهای جمهوری اسلامی با فعالیت شهروندان در شبکه‌های اجتماعی، معاون گردشگری استان تهران از شناسایی نزدیک به ۸۰۰ صفحه اینستاگرامی در حوزه گردشگری خبر داده است؛ حساب‌هایی که مقام‌های حکومتی آن‌ها را «غیرمجاز» می‌خوانند و اکنون با دستور دادستان تهران در معرض مسدودسازی قرار گرفته‌اند.
+به گزارش ایسنا، معاون گردشگری استان تهران اعلام کرده است که تاکنون نزدیک به ۸۰۰ صفحه اینستاگرامی فعال در حوزه گردشگری که فاقد مجوز تشخیص داده شده‌اند، شناسایی شده‌اند.
+او همچنین گفته است که با دستور دادستان تهران، صفحات غیرمجاز گردشگری در اینستاگرام مسدود خواهند شد.
+این خبر یک روز پس از آن منتشر شد که
+دادستان تهران با اشاره به موضوع حجاب، دستور داد صفحات مجازی تورهای گردشگری فاقد مجوز ظرف یک هفته مسدود شوند
+.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78923)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 16:05:01
+
+<img src="https://cdn4.telesco.pe/file/s_31kPRmQsxhPBExjh_WmvTql01ykx86YV5X5_edTCpdOPgwiQFJxmuvBfXDYdEEJ8ZYV7Mc5A9V3plUpJEumI_iGgecSmnMGL0ETJqa40_x3rv5--hlaplskV8JtllcAQygBS4b4phgbGoIIQGeP30kiuYyBNOFvcgKXbnsOmJoBbjFEpjqZnlLwnLrl_ia0LSEm7ykXTrtTBsOomI-vbINU1jaPwUpOYWw6EtpVpt5Z9_LIiTR83cvBBXDKqOALqEhTzbqmb09Tdx0VZhsHh1A-i3bs73Whopvvz4_trdR2n_nzjJAGfRAYJdk5LuqXzmCAWH7BlWLXp-8m9dKGQ.jpg" width="400"><br>
+
+حمله نیروهای بسیجی و لباس‌شخصی به برگزارکنندگان هالووین در خیابان ایرانشهر تهران
+شامگاه جمعه ۸ آبان، خیابان ایرانشهر تهران، هم‌زمان با تجمع جمعی از جوانان با لباس‌ها و گریم‌های ویژه هالووین، شاهد حضور نیروهای بسیجی و لباس‌شخصی و برخورد با شهروندان بود.
+نیروهای امنیتی و لباس‌شخصی با حضور گسترده در این محدوده، مسیر خیابان را مسدود کرده و با ورود به محل تجمع، اقدام به متفرق کردن جوانان کردند. بر اساس روایت شاهدان عینی، نیروها همچنین کافه‌های خیابان را تعطیل کرده، مشتریان را از محل بیرون رانده و تعدادی از شهروندان را مورد ضرب‌وشتم قرار داده‌اند.
+یکی از شاهدان عینی در توصیف فضای حاکم بر خیابان گفته است نیروهای لباس‌شخصی با صورت‌های پوشیده و مجهز به چوب و چماق در محل مستقر بودند و عابران را نیز هدف برخورد قرار می‌دادند.
+بر اساس روایت دیگری از شاهدان این واقعه، دو نفر بازداشت شده‌اند و دامنه برخوردها تنها به جوانانی که با لباس و گریم هالووین در خیابان حضور داشتند محدود نبوده است. به گفته این شاهد، خانواده‌هایی که در پارک هنرمندان حضور داشتند نیز با برخورد نیروها مواجه شدند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78922)
+
+---
+
+
+
+###### 🔵 Post time: 2026-10-31 16:04:04
+
+<img src="https://cdn4.telesco.pe/file/T8iU7GaWaNdLLuC7hF1tYZCKzX0SsY-qQwnFudobzpiE0lU3_aeunUIdBQZrxsjgdx6Te80_RcDu-SRWBonCTd-W5PhM15Bn_rzcnVjG_JDzMWptKHwIshZH9bompn54A_DdjliReTe1egqNDykcuY_tcqXifW2ux9I-C1RrCh1veFOWIW9Q8IGkAGuwecSIF7StvJNABQAwERGPWPlE_VzKR-ufDNhk5FnHKF0gy3yZBC4ZvHqF_H9eYimavYH-Q-h_i4WbCFBdIc5-RQiSoRZcG2MeaKoISgbTVZqfQkbgJQcKKY2E4gfEyO7ynLW_51GcQD9fQvdQTJQxb03jfw.jpg" width="400"><br>
+
+«آرمین (آرمان) معرفتی»، از بازداشت‌شدگان اعتراضات دی۱۴۰۴، این هفته بار دیگر به شعبه ۱۵ دادگاه انقلاب تهران احضار شده و «ابوالقاسم صلواتی»، رییس این شعبه، حکم اعدام او را به‌صورت حضوری ابلاغ کرده است.
+آرمان معرفتی، شهروند ۳۰ ساله اهل سقز در استان کردستان، پیش‌تر به اتهام «محاربه» از سوی شعبه ۱۵ دادگاه انقلاب تهران به اعدام محکوم شده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78921)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-31 06:12:49
@@ -129,7 +262,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-30 17:06:53
 
-<img src="https://cdn4.telesco.pe/file/h920LkygAc8C8D6mo9YkBvcCul3qu3j7rTA1SRN2DHKsp2lvliKLm-qaoWHYf5tldUN6OnCwN9dJ3uGIddKL3jh5wrh7hrVAfp7ZxXKTu8MwT-IXLlKAfW_sGss0sYXXlly9PEXkRoUVIABuB9pShLm0VUEUzI1r2JpBcazWrI2i-lW3_HVhHBR0LsNGFh5QuWYvFyMQUsjx9xoX45n5X4F0Qf7kcOuj76uT6yl0JIFwNBXWHuaFRnsq87fVsf8pKXDnEWv_o3KORsW55yF-1rF_DfSNjcRpaAdWel8mn7I_4phvKh93tSAzcLe54gH4kLpyCdR2-GOoDk64tonOPw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/llv6kFSfT01qKhUVowTu9FuNB7KyoY4kEaYFe5hdxKxkejI6zT_QtM_QwcjC1Wrm5wrFuH5M4IxhnZgP4RnSCxkBdjJSsjnYoQZO6KveixJyk3dVESbkZcoTapRmE1bZFaefGCZ1TXOJjW3X3C5wMWrQX4YeU9qx8oHzJZzdhtES75sy1PPZyVUkW7-ta5y62CppNbKbYxIRen4_jA4UjQhFfBf-84YS-vGtDRP7fXP5zcu37IE1EA4xC1QsIDzEApuP3vUeJJQ6q9si1IiXtsqtKYsaDRGi_eFhWmKK2jYFXN5ROdtlhOf6plQR46TBanD2FUwy2fLxdn65a7u1-g.jpg" width="400"><br>
 
 «دونالد ترامپ» رییس‌جمهوری آمریکا، بار دیگر پیش‌بینی کرد جنگ با ایران به‌زودی پایان خواهد یافت، در حالی‌که خبرگزاری آسوشیتدپرس گزارش داده واشنگتن به متحدان منطقه‌ای خود درباره احتمال ازسرگیری حملات به ایران پس از انتخابات میان‌دوره‌ای کنگره هشدار داده است.
 ترامپ جمعه ۸آبان۱۴۰۵ در گفت‌وگو با ایستگاه رادیویی KCMO در کانزاس‌سیتی گفت: «این ماجرا به‌زودی تمام می‌شود.» او افزود: «ما به تضمینی نیاز داریم که هرگز سلاح هسته‌ای وجود نداشته باشد.»
@@ -146,7 +279,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-30 15:38:57
 
-<img src="https://cdn1.telesco.pe/file/tq0uZkLKMxL5iLlDu9PoE8UWDmrCUgmKOGAkuuXyEM00dIJa8iqIeaEVJ1Cp2iij4A1ZC3BVh5VBMSgBenLehHy-k7HN4hay5bZbJlo0M7cC-vK3iGk2HOmJU6ZLypBlnmTYclDNPiCICdIQVnGLDdE-AIKHYk_5Mw47_J1Qp-Q3_8UQi0z54ca0DTbE6eb_xBN9oX0KsyJMFA1QyvGTkoZ6lRbRwQ5pFQcMWXEDWEWIMBeu38-z3y5p7WF2-s35L3l2RhIu5xLXBL3XknAQN_9myZHT-xenb3EEnm9_YzgWlcpUsu2QG3EPfIVdPlGK3ZLPnO0VwER0pryNywm3aQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MVLmzIokGPJrFYuMlfeTfHpCw0a66t32-Yg5PQdBWRCcQk1FtLSQ-mFDSIIlZCdmDD-H3zPYthmy3-wt6HreRFNPMQL7OY4AnyLtiJM8xjLpWC-sqbBM4qWpXlxpNXF3uEpWoK631U57e-pDZ5iKN4o8JzoRbrvLObtp9p4ybesz9vyPU1JqN-NeGrgILa7iY6bXxk-0L_ntNkQc3T8Mayz1YQqsf4jbnvphdjS-y97X8yTZvM82cjIOBNgE-NCw4BuaPDuRRNZkFBrLA8KUZ-UT_MbS259OpipdvT4iCwcVLWusyFjsEC4Olqi3nzypJ0ebijBG7tKRO0eWow_ZYg.jpg" width="400"><br>
 
 خبرگزاری رویترز به نقل از یک مقام آگاه گزارش داد که میانجی‌گران قطری بار دیگر به تهران سفر کرده‌اند تا تلاش‌ها برای دستیابی به توافق میان ایران و آمریکا برای پایان دادن به جنگ را ادامه دهند.
 این مقام روز جمعه هشتم آبان به رویترز گفت که گفت‌وگوهای میانجی‌گرانه با هماهنگی واشینگتن انجام می‌شود، اما جزئیات بیشتری دربارهٔ مذاکرات تازه ارائه نکرد.
@@ -168,7 +301,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-30 15:35:12
 
-<img src="https://cdn4.telesco.pe/file/sFOA7DvlSDDdIUHFdSD3Z1vsM_2gr40kpG_l7dSOPS1cXSjGQ6YiyB4rs2Y6NHPd06MMB8apTZVhVzV7BO37LBYexEyDCNLjT5NW9-W2_P_HTLCO9m9QnDmNlH1-uM9RmNR50DF0hUGpu_Wb-8Cj6gKPrAgXv7UQ-RmN17PGaMVHmxo9ZZYFCG81rooiDY7C4l2oX3QoYeG4ipgzCPj8aswxjTJPoAxZo8ekOtdAHQ16D-OVHHfST9uW3_YjlfQwazz98HnxsV8KqLwHb7mpuUotAzWJqJAGhQpg8jEse_ltPckXUCKPbCMSYCd1XY3YryDYO5EABLtPQJNzo4Nc9A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/cBJJBNebirSsO8UP__EjTXuZVvybhXNubdLrPwqn5X1HAcb63OpcQMlYvIRTqBKKLLGLngZ1NOLibP_oexzT-GGiA-nBxIYGsUmFR0wNCF_9YJNPO8vH-IQACD6rkF4NAYL_epOil5yddMkEeVB5IkNG_k_KHKQUQQgCvQ-WA16avEx8wIm7-MkZZbgTSqhC9b1wDofFIuL0d6LKUdPaTSVvbp9h6tYbUSjx1Bdcw-JQaTiu9iarYQqJ-RioDvdkzrMSwjnQNdXeGwaCP7G7szP85ZkDmYsHO2tFGV5NPBZUoQvpMgZ5RCvtBrPlP6uHMztot76xqPCmNYzJBbGdBA.jpg" width="400"><br>
 
 الناز شاکردوست، بازیگر سینمای ایران، در بخش نظرات صفحه اینستاگرام یک فیلم‌ سینمایی، در واکنش به انتشار خبر مهاجرتش نوشت، از ایران مهاجرت نکرده، بلکه حکم زندان مانع بازگشت او به کشور شده است.
 الناز شاکردوست پس از انتشار متنی مرتبط با اعتراض‌های دی‌ماه ۱۴۰۴ در روایتگر اینستاگرام، با اتهام «فعالیت تبلیغی علیه نظام» در دادگاه انقلاب محاکمه شد. دادگاه بدوی این بازیگر سینمای ایران را به ۱ سال حبس تعزیری و ۲ سال محرومیت از فعالیت‌های سیاسی، مجازی و هنری محکوم کرده است.
@@ -187,7 +320,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-30 15:34:06
 
-<img src="https://cdn4.telesco.pe/file/E7Jn-CgQFOinnyGhWcKz4GIJqPX1S7RZ1UNZKT_CQS9Ylo_wJyxJevsRjcB_KPq7Kfq-x76UxqtLXiAm5pxVfQTvRuFMdo8_EK43ZajNkcX2JQUVF-mLfb00VgcRTI27HFy42gsxUCpJzE6FpmCh08qoo3RnHaWi4uHSwYsHzzp7ISlRheoALOIkGFKpS3oDSA2InbwVVTKpcyARfhiOmqrp-qaSAWaIieSkORIQe4Ize55peoYpmyODWxdCcegU1IndqXJrISxH3WwrfinKqTFTGw4DkBGibWFhFm2_to_7z5LZMXD6Y_zUxdR8WAOfLnl8xISuuA-Wp1aW9qqhxw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/MwgcbavLJjI6epuNAGfxCxTyyW29vlLW8T16nobZdhELSByyfnSe12QBY9gAmV_Gpzy5T0hwnuOCfL96Xms-llm67bw_03ZJ4nRwBqV-QLUe68CCQ6GypJkKK-L788YByd6K2L8wbbd3DiwXToj6p4UtxB9gpC7khgZrOyTsCdJRMPD9IrmOmebcZnPko2kMHZ3IAhoUfUjxrx2P_iwq2Pp8JF2gJKb1jC5qB4ooKzLPwwQ0xY6fqDwk0mtdmxlYOTKYC1yPfDlcuwEPCrZ9_ockakPGbwUexGYiEMVk8NPVCzcuaAGEJsO5oX0_jXNCduivTijSIoD6OTVKNc_Hkg.jpg" width="400"><br>
 
 دستاورد تازه جمهوری اسلامی برای ایران:
 مارک کارنی، نخست‌وزیر کانادا از ادعای مالکیت امارات متحده عربی بر جزایر سه‌گانه خلیج فارس حمایت کرده است.
@@ -226,7 +359,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-30 15:29:38
 
-<img src="https://cdn1.telesco.pe/file/Ik7uiCBeiUpijnfgtpFcFnZ1Ra0LuoQ4ps5xSVw8gvKUfwq9CA9PEPMQ-u8h3fzl7ACN6Va5aqeOQ5mueT0MzqB03BqWECsHe_1Awx8GbLXBTSpMLYuIVZxiYTcLVh8mjB7dmNnH9ok3jZZ3Dj1zlnCrAVHTh3ZJ6lMjlwE2E9ZxdpKqHTtanC4uL8D3jzr1eLx-12Alc2zHp50AxWYi0O7srHlRn5uHouoOqNQw8_sbcr1OebHYjMoUH_2MI0QNp6tiS9aQjiGY2Dqf9h5JEY1DIxymTmY3U3wCBkpTdXVnrjofSK9nkHK3gW5EKvO1nbu-tie19OCwqXgnyOeH0g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/B4pYee3uUFrIhsMsV2ZRmMEXlPWcbbyvEYPmQ7I7HL5IQMnZe5sPq5BXY9E4m6zoBnonkA25YwKXk7Qyx-Bl_Ar0eKJqyaBO9_5pOWDV_RG76M-UtybUPKEJPfuDYx2qdsGdOqRWjUEpOMd2MndOZ1YsL9SIYIl8m0wG_qm2CmbG5XeliaMEcn0SXdp2boKrm-fQOQU2Er62d1EaCQ9quBxspKkEX2HjY3X9Zm2I7RHy0-NLrUKdcL-Sp2Wstqv5KogAc-aXVB6FVALW92d7_8BOwZ7qgbsRHvuE5Bt5KkPhQy-p2FqlcClW2VkmPkcbjmoELoqp6TAJKgpVBIHUDw.jpg" width="400"><br>
 
 گروه مالی پاسارگاد هم‌زمان با روز  کوروش: یا پوشش اسلامی موردپسند مدیرعامل یا اخراج
 پانزده کارمند شرکت «پاد» سه‌شنبه پنجم آبان در جریان بازدید مجید قاسمی، مدیرعامل بانک پاسارگاد، شغل‌شان را از دست دادند؛ چهارده زن به‌دلیل رعایت نکردن حجاب اجباری و یک مرد به‌دلیل پوشیدن شلوار جین.
@@ -243,157 +376,6 @@ iranwire
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78907)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 08:11:11
-
-<img src="https://cdn1.telesco.pe/file/VwSAjAsdDWxIaNRlFPpWhOBKG8qzirBqn3mA9_qjhezgAOZOmE51Mjxp_N9iSt4gHeGTO5hxgUsk-Hcd_n9T9-s7ynKi2hXjsLZnTUmXzq0ThgYknj7cFwVdjw-Nb2YkVO5NFjDyJP0vsh9y4JRZd6kjlI356Nd52LHv1fVZY09wLKA_cpoLQk2-6wLyWisxRGhXwj52ZxF_qzNgAB7GX4pLj8HhjvJxR2Wu-99M0a_ws4bF9Kc9s41Fy-pfT8mPTbiKKeVU3h_rQ-gebpa7sLVNTiQ_vPady0z7CqrfIi80DYgzXf-JWPbgc4KpSpibJTa3E6eg2ibzUlI5hvLV_Q.jpg" width="400"><br>
-
-ائتلاف نظامی به رهبری عربستان سعودی اعلام کرد یک پهپاد پرتاب‌شده از سوی حوثی‌های مورد حمایت جمهوری اسلامی را در منطقه مکه رهگیری و منهدم کرده است.
-این حادثه تازه‌ترین مورد از حملات فرامرزی منتسب به حوثی‌ها علیه عربستان سعودی است.
-حوثی‌ها در هفته‌های اخیر با استفاده از پهپادها و موشک‌ها، تاسیسات نظامی، فرودگاه‌ها و زیرساخت‌های انرژی این کشور را هدف قرار داده‌اند.
-حوثی‌ها تاکنون به این حادثه واکنشی نشان نداده‌اند. این گروه پیش‌تر بارها اتهام حمله به مکه و مدینه، دو شهر مقدس مسلمانان، را رد کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78906)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 08:08:37
-
-<img src="https://cdn1.telesco.pe/file/Q9NQZ7oWm51qbbryx2ERS1-2Qju278N3-sbkfADg1xu2U9i06M7-V0mzCAkcBnhJNvQ1wj1fKBYjwq3nquR43aCsUb5vLSww9GJPgCVmcuj125qXlytnBIS4zbk7FFn1K3acogP_BZz5uFAQWh6wW_wdjeJLIcAcf6iI-FoHZA4XC7S1I4OP8qDtfj6LQl7AYXnzYVxJdTrY-ug0PV3G1MXOvKCfIms5XaK78t7S4hOWkbUe2pfP77QZ2uib8VlvYIEsoECT9U8_HRgialeVmPMvXSmrGC3SHgRsLgTXxBVlvxsJzccOTTRM2xkGkULqJwK6IDP5ZXFCqQhtdRviVQ.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا (
-UKMTO
-) در آخرین به‌روزرسانی هشدار خود اعلام کرد یک قایق کوچک در تنگه هرمز به یک نفتکش نزدیک شد و دو وسیله انفجاری به بدنه آن متصل کرد. انفجار این مواد باعث آتش‌سوزی در موتورخانه و از کار افتادن موقت نفتکش شد. هویت این قایق در اطلاعیه مشخص نشده است.
-بر اساس این گزارش، حادثه ساعت ۲۲:۱۲ به وقت جهانی در ۲۹ اکتبر، در فاصله ۲۵ مایل دریایی شمال‌شرق خصب عمان رخ داد. این نفتکش هنگام وقوع حادثه در حال عبور به سمت خارج از تنگه هرمز بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78905)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 04:40:29
-
-<img src="https://cdn4.telesco.pe/file/rNApxaCJIdijX_f4vhL0au-Vc08eHEnjkwAPEjySDUrdEruicO6v0Xbm8HX2eSllkdIaxYXOA-ieR6LmNA96tiD3E1wF0rFs6HhUx1bakXC-XJ8NHoTURdF1aqowgd1-pWoKgLhDGaDkVFRV08laOYbutmme1RbarHmiVyMzDIuMalyliZAFXW0BaEiNArNHEHxDglz6qyGEeuUFw7o3W2R1O239qsxhWU1kxAdU6reO64JqjohIlLsycfAYLlReE1p6wmG7rr9q6xdKLqwTHmbeHchI3w948QX3YlajpYIlqS1r_0PMfqKu7kKPAE3zF7b2lhpCfPrmpF0jUiPa9w.jpg" width="400"><br>
-
-جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، روز پنجشنبه هفتم آبان در نشست پرسش و پاسخ شبکهٔ فاکس‌نیوز در فورت ورث ایالت تگزاس گفت که دونالد ترامپ اجازه نخواهد داد درگیری آمریکا با ایران به «جنگی بی‌پایان» تبدیل شود.
-ونس در پاسخ به پرسش یکی از دانشجویان دربارهٔ وعده‌های انتخاباتی دولت ترامپ برای پایان دادن به جنگ‌های پرهزینهٔ خارجی گفت: «هفت ماه است که به شکلی درگیر ایران هستیم. ایالات متحده ۴۷ سال است که با ایران سروکار دارد و به شما قول می‌دهم دونالد ترامپ اجازه نخواهد داد ایران به یک جنگ بی‌پایان تبدیل شود.»
-او با اشاره به سابقهٔ خدمت نظامی خود در عراق افزود که نارضایتی از مداخلات نظامی آمریکا در خاورمیانه یکی از دلایل اصلی ورودش به سیاست بوده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78904)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 04:40:01
-
-<img src="https://cdn4.telesco.pe/file/iBivAmsjr8NPsueVhhHcSnA4CQaEta1C27Kz19p0jbbo8qif6BMa1HzaAIXgqmBr9eccHWY8bEcJedkQ9zkEWoZza8_QOHeQvwKKU58HhlIDG2QoArsnvmEfUpAwcuVZlIZ4w7Li9_v3fZXa9VFtFMtK5XG3scQPDdQCCGmH-58WGHwm3RyOy5TzPuAk7s9qlTtYe9YV2258n5DnCySk6nTRSlUxggKvaDHLcLLHZhLwOTByHC-DhLa4hpePc93Fz7zVkcY6KWQ0hyjy-5_9BgcU6MLHdCLBx7qc4npjGzbf9nbE_VN1Jm9ptzvoJdBh5s4U7o_g9kZOkFzKh282aQ.jpg" width="400"><br>
-
-رویترز گزارش داد بایننس، بزرگ‌ترین صرافی رمزارز جهان، روز پنجشنبه ۷ آبان اعلام کرد در پی بررسی یک رخنه امنیتی احتمالی، سه میلیارد دلار دارایی رمزارزی را مسدود کرده است. شرکت‌های تتر و سیرکل نیز دارایی‌های مرتبط با این حادثه را مسدود کرده‌اند.
-بنیان‌گذاران بایننس، اعلام کردند این شرکت «تمام زیان‌های ناشی از هک» را جبران خواهد کرد، اما جزئیات بیشتری درباره میزان دارایی‌های احتمالا سرقت‌شده ارائه نکرد. بایننس نیز تاکید کرد دارایی کاربران امن است و برداشت‌ها پس از تکمیل بررسی‌های امنیتی از سر گرفته خواهد شد.
-چانگ‌پنگ ژائو، دیگر بنیان‌گذار بایننس و مدیرعامل پیشین این شرکت، در شبکه اجتماعی ایکس نوشت که این حادثه «شبیه یک هک به نظر می‌رسد». شرکت تحلیل بلاک‌چین چین‌الیسیس نیز اعلام کرد در صورت تایید برآوردهای اولیه، این حمله می‌تواند بزرگ‌ترین سرقت رمزارزی ثبت‌شده تاکنون باشد.
-«تتر» نزدیک به ۱.۵۷ میلیارد دلار و «سیرکل» بیش از ۸۰۰ میلیون دلار دارایی مرتبط با این حادثه را مسدود کرده‌اند. شرکت «ورلد لیبرتی فایننشال»، مرتبط با دونالد ترامپ و خانواده‌اش، نیز اعلام کرد برای مسدودکردن دارایی‌های سرقت‌شده با شرکت نگهداری رمزارز بیت‌گو همکاری کرده است. به گفته یی هه، ۲۷ میلیون دلار استیبل‌کوین و حدود دو میلیون دلار توکن ورلد لیبرتی مسدود شده است. شرکت ریپل نیز حدود ۲۰۰ میلیون دلار دارایی را مسدود کرد.
-بایننس اعلام کرد با نهادهای مجری قانون، صادرکنندگان توکن و شرکت‌های تحلیل بلاک‌چین برای ردیابی و مسدودکردن دارایی‌های بیشتر همکاری می‌کند و احتمال افزایش رقم سه میلیارد دلاری دارایی‌های مسدودشده وجود دارد.
-خبر رخنه امنیتی احتمالی بازار رمزارزها را نیز تحت تاثیر قرار داد. بیت‌کوین در معاملات اولیه روز جمعه حدود دو درصد کاهش یافت و به ۷۷ هزار و ۶۴۶ دلار، پایین‌ترین سطح شش هفته اخیر، رسید. اتریوم نیز حدود دو درصد افت کرد و به ۲ هزار و ۲۳۸ دلار رسید. ارزش توکن BNB نیز طی ۲۴ ساعت بیش از هشت درصد کاهش یافت.
-رویترز به نقل از میگل مورل، مدیرعامل شرکت تحلیل بلاک‌چین آرکام، گزارش داد داده‌ها نشان می‌دهند احتمالا میلیاردها دلار دارایی بایننس به دست یک عامل ناشناس سرقت شده است، هرچند علت دقیق حادثه هنوز تایید نشده است.
-بایننس بیش از ۳۳۵ میلیون کاربر ثبت‌شده در سراسر جهان دارد و بر اساس گزارش سالانه این شرکت، در سال ۲۰۲۴ حدود ۱۶۰ میلیارد دلار دارایی تحت نگهداری داشت. بایننس آمریکا، که یک صرافی جداگانه است، اعلام کرد تحت تاثیر این حادثه قرار نگرفته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78903)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 03:28:35
-
-<img src="https://cdn1.telesco.pe/file/MYgZzjKyi4xlBLDllHf_-MyE-v5v0dZfSNk_gJwZiDEGSnpNwPPu6_bkaea3m8r9EK5wueZfn3taRDqftCG-YeWC42VAcPgK-DrZ5yNkZp0srFFB8dQcDbmeHOQSOz8dhvi_HKXcjlHoj38nc3kwnnGZVGbXVjl-UMZm9JLNUx8y4eZkGQf6lj_I-kwvOghjLbTzaKcbiryZuqWScg1-tSY5bX9rldPYblBf0errFxfwflF9qtSz1RQl0Gco58UUCf1SgSA4o-uHaFhqI7OTI5Jwa4GXQEtVjyXhFx1_qACa-7KhI6ybtHOfm5EyvLDc-PY9MPJCdXEib-EpPmZBhw.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا (UKMTO) گزارشی از وقوع یک حادثه در فاصله ۲۵ مایل دریایی شمال شرقی خصب عمان، در تنگه هرمز، دریافت کرده است.
-یک منبع ثالث گزارش داده است که یک کشتی هنگام خروج از تنگه هرمز دچار آتش‌سوزی شده است. علت آتش‌سوزی در زمان انتشار گزارش مشخص نیست.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78902)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-29 23:59:32
-
-<img src="https://cdn1.telesco.pe/file/AlaCHhwSaGq47l3ebyG8RlYwiz91YLvcljjh7uBQlussVvm990DjsRG9na-yG5RwMukDibxT758FNkmnPLYv1Fk5Un-sh7dB5kUgbnmhxlSd1jiJbzkYkZcs3tA8vwS0Vk-6ThX5l9uRmsJOxYDO4q1ZVSD8PtNWDMsT3NoY-RlKhobeTFwMMVEMJDtqKSFMpvIvhRRTNQLFT0dHkwV_BgJUShRLFqhVYXyWLbBT4aoUyBHSEveXUG2pUnKv1YpStWHPAHDStTakYrpo7Ybu3iFYTxwK8ip5ztPQQ2z2mr_UWoNCQbM8a_ile_WUV3NksbqhIWUMLV8pBqeMMPqNqQ.jpg" width="400"><br>
-
-روزنامه وال‌استریت ژورنال
-روز پنجشنبه هفتم آبان‌ماه گزارش داد که دریاسالار برد کوپر، فرمانده ستاد فرماندهی مرکزی ارتش آمریکا (سنتکام)، در نشستی کم‌سابقه در کاخ سفید، گزینه‌های نظامی حمله به ایران را به دونالد ترامپ ارائه کرده است.
-به گفته مقام‌های آمریکایی و افراد آگاه از جزئیات این نشست، پیت هگست، وزیر جنگ آمریکا، و ژنرال دن کین، رئیس ستاد مشترک نیروهای مسلح، نیز در جلسه حضور داشتند. این دیدار یک روز پس از نشست فرماندهان ارشد نظامی با جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، برگزار شد.
-مقام‌های دولت ترامپ پیش‌تر به کشورهای عربی حاشیه خلیج فارس هشدار داده بودند که برای یک عملیات نظامی کوتاه اما شدید پس از انتخابات میان‌دوره‌ای آمریکا آماده باشند. ترامپ نیز هفته گذشته با اشاره به حملات گسترده آمریکا و اسرائیل در بهار گذشته گفت: «ممکن است یک خشم حماسی کوچک دیگر اجرا کنیم، یا آن‌ها توافق خواهند کرد.»
-همزمان، پنتاگون طی هفته‌های اخیر سامانه‌های پدافند هوایی، مهمات و تجهیزات بیشتری به خاورمیانه اعزام کرده و برخی نیروهای آمریکایی را از پایگاه‌های آسیب‌پذیر خارج کرده است. ارتش آمریکا همچنین در حال انتقال یک آتشبار دیگر سامانه پاتریوت به اسرائیل برای تقویت توان دفاع موشکی این کشور است.
-@
-VahidOOnLine
-آپدیت:
-گزارش مشابه اکسیوس، ترجمه ماشین:
-فرمانده ارشد نیروهای آمریکا در خاورمیانه ترامپ را در جریان محاصره دریایی ایران قرار داد
-به گفته دو مقام آمریکایی، دریاسالار برد کوپر، فرمانده ستاد فرماندهی مرکزی آمریکا (سنتکام) و فرمانده نیروهای آمریکایی در خاورمیانه، روز پنجشنبه گزارشی از وضعیت جنگ ایران به دونالد ترامپ، رئیس‌جمهوری آمریکا، ارائه کرد که تمرکز آن بر محاصره دریایی جاری ایران بود.
-چرا مهم است:
-ترامپ، همان‌طور که پیش از عملیات «چکش نیمه‌شب» در ژوئن ۲۰۲۵ و عملیات «خشم حماسی» در ماه فوریه انجام داد، اکنون نیز دو مسیر موازی را دنبال می‌کند؛ از یک سو تلاش برای دستیابی به توافقی به‌منظور ازسرگیری مذاکرات صلح و از سوی دیگر، آماده شدن برای ازسرگیری احتمالی عملیات نظامی گسترده پس از انتخابات میان‌دوره‌ای آمریکا.
-پشت پرده:
-به گفته مقام‌های آمریکایی، ترامپ می‌خواست مستقیماً از فرمانده سنتکام بشنود که آیا محاصره دریایی مؤثر بوده است یا نه.
-▪️
-کوپر همچنین ترامپ را در جریان عملیات نظامی برای هدایت نفتکش‌ها به خارج از تنگه هرمز و به‌سوی بازارهای جهانی انرژی قرار داد.
-▪️
-او همچنین تازه‌ترین اطلاعات را درباره کارزار فشار اقتصادی که ارتش آمریکا با همکاری وزارت خزانه‌داری اجرا می‌کند، به ترامپ ارائه کرد.
-▪️
-به گفته این مقام‌ها، پیت هگست، وزیر دفاع، اسکات بسنت، وزیر خزانه‌داری، ژنرال دن کین، رئیس ستاد مشترک نیروهای مسلح، استیو ویتکاف، فرستاده کاخ سفید، و شماری دیگر از مقام‌های ارشد نیز در این نشست حضور داشتند.
-▪️
-کاخ سفید و سنتکام از اظهارنظر خودداری کردند.
-▪️
-روزنامه وال‌استریت ژورنال نخستین رسانه‌ای بود که خبر این نشست را منتشر کرد.
-تحولات اصلی:
-گروهی از میانجی‌های منطقه‌ای به رهبری قطر تلاش می‌کنند آمریکا و ایران را متقاعد کنند که به‌جای ازسرگیری جنگ پس از انتخابات میان‌دوره‌ای، مسیر مذاکره را در پیش بگیرند.
-▪️
-یک منبع منطقه‌ای گفت: «میانجی‌گری در مرحله بسیار حساسی قرار دارد.»
-▪️
-میانجی‌های قطری اخیراً نامه‌ای از جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، به ژنرال محسن رضایی، دبیر شورای عالی امنیت ملی ایران، تحویل داده‌اند.
-▪️
-ونس در این نامه پیشنهاد ازسرگیری مذاکرات را مطرح کرده، اما تأکید کرده است که هرگونه مذاکره باید به برنامه هسته‌ای ایران بپردازد.
-▪️
-به گفته یک منبع آگاه، ترامپ و ونس روز چهارشنبه دیدار کردند تا درباره اقدامی احتمالی برای نشان دادن حسن نیت به ایران، مانند ارسال کالاهای بشردوستانه از جمله مواد غذایی و دارو، گفت‌وگو کنند. ترامپ ساعاتی بعد به‌طور علنی از این ایده حمایت کرد.
-اظهارات مقام‌ها:
-تام باراک، سفیر آمریکا در ترکیه، روز پنجشنبه به شبکه سی‌ان‌ان گفت آمریکا و ایران برای دستیابی به توافقی جهت کاهش تنش‌ها «بسیار نزدیک» هستند.
-▪️
-او گفت: «فکر می‌کنم بسیار نزدیک شده‌ایم به اینکه سرانجام به نقطه‌ای برسیم که بتوانیم بگوییم: بیایید فعلاً یک وقفه ایجاد کنیم.»
-او افزود: «قرار نیست فوراً به یک راه‌حل جامع برسیم، اما می‌توانیم اجازه دهیم منطقه با سرعت و آهنگ خودش پیش برود.»
-موضع طرف مقابل:
-مقام‌های ایرانی روز پنجشنبه همچنان خواستار آن بودند که آمریکا پیش از ازسرگیری مذاکرات درباره برنامه هسته‌ای ایران، مجموعه‌ای از اقدامات را انجام دهد؛ از جمله لغو محاصره دریایی، آزادسازی دارایی‌های مسدودشده ایران و اجازه فروش نفت به ایران.
-axios
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78901)
 
 ---
 
