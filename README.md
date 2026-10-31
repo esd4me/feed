@@ -3,17 +3,21 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-31 00:45:14 </h5>
+<h5> 🟢 Updated at: 2026-10-31 04:45:23 </h5>
 </div>
 
 
 ###### 🔵 Post time: 2026-10-30 23:37:13
 
-
+<img src="https://cdn1.telesco.pe/file/apm5Dr5twYCmlvwYf6eufik1dLH2ZEGjoTVaqHNpRgRU1EhVXKugLzFY57dWhmmUS3drdK-3YgTtYAQDZEeKnTYM23CJrDRjoMhCFUQ8-zVB17rHIoVjuCVC5ARkayD_Znt9pjAwh-Fn-WgbmDKsXwxqHp7yCGZfWSVReK6fuY6bhOK60wAIMXSmnGDbLLQH6l-pZJb-PR2VpZ4bM9TGkUZJgWZOBTle6hjUW26iHFYpMYBPFT_tuPBNs6j1af18hYS8u9ryV-nM1KG8v5pGG3mbEOwcbGtC9hJALuHi3la2yRum9czUPrY9sMcVV1FCuqGk8gc8EU8vJ1CrpanuPg.jpg" width="400"><br>
 
 خبرنگار اکسیوس، ترجمه ماشین:
 یک منبع دیپلماتیک به من گفت که مذاکره‌کنندگان قطری در تهران حضور داشته‌اند و مذاکرات به مدت ۱۲ ساعت ادامه داشته است. این منبع افزود که میانجیگران قطری در طول روز به‌طور مرتب با کاخ سفید نیز در تماس بوده‌اند.
 این منبع گفت: «گفت‌وگوها همچنان در جریان است و تلاش‌ها برای دستیابی به توافقی میان آمریکا و ایران ادامه دارد.»
+🔄
+آپدیت حدود ۲ بامداد:
+یک منبع دیپلماتیک به من می‌گوید مذاکره‌کنندگان قطری پس از یک روز گفت‌وگو در تهران درباره توافق احتمالی با آمریکا، در حال بازگشت به دوحه هستند.
+مذاکره‌کنندگان ایرانی نیز در پرواز بازگشت به دوحه همراه آن‌ها هستند. گفت‌وگوها روز شنبه ادامه خواهد یافت.
 BarakRavid
 📡
 @VahidOnline
@@ -223,7 +227,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-30 04:40:29
 
-<img src="https://cdn4.telesco.pe/file/p8KmFJDAu-7jo_QZTUipFgLdt0p-IrRZLi6AQLYj3tfrHSMcfJHgSOmz6WSuPlINXyIPdu20IWauD7UYhzT2r-lJstVcdT-Ly95GAA-_2RynJIJvEvHMfF9_Rh-Mpa5hV2doHG6wmq-oYmVnMdaq2_dIIPlHEdD-Qc6nNorFX9-wJug0g_Cosm8uSYhKDXMAPy5EhPKdoGSyvxWZ9sI0egGHdRqeV-9a14SPf5eixVjCA4qe-2MrUq7PExQprDZA0Xj-s1BnifwywKWbuSngUFAxJ00tX56D9MdOsZHCa7-zM42_tYoT3J2stQApJE_8HZL0Js-fTmDZREFY1NcmDA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/rNApxaCJIdijX_f4vhL0au-Vc08eHEnjkwAPEjySDUrdEruicO6v0Xbm8HX2eSllkdIaxYXOA-ieR6LmNA96tiD3E1wF0rFs6HhUx1bakXC-XJ8NHoTURdF1aqowgd1-pWoKgLhDGaDkVFRV08laOYbutmme1RbarHmiVyMzDIuMalyliZAFXW0BaEiNArNHEHxDglz6qyGEeuUFw7o3W2R1O239qsxhWU1kxAdU6reO64JqjohIlLsycfAYLlReE1p6wmG7rr9q6xdKLqwTHmbeHchI3w948QX3YlajpYIlqS1r_0PMfqKu7kKPAE3zF7b2lhpCfPrmpF0jUiPa9w.jpg" width="400"><br>
 
 جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، روز پنجشنبه هفتم آبان در نشست پرسش و پاسخ شبکهٔ فاکس‌نیوز در فورت ورث ایالت تگزاس گفت که دونالد ترامپ اجازه نخواهد داد درگیری آمریکا با ایران به «جنگی بی‌پایان» تبدیل شود.
 ونس در پاسخ به پرسش یکی از دانشجویان دربارهٔ وعده‌های انتخاباتی دولت ترامپ برای پایان دادن به جنگ‌های پرهزینهٔ خارجی گفت: «هفت ماه است که به شکلی درگیر ایران هستیم. ایالات متحده ۴۷ سال است که با ایران سروکار دارد و به شما قول می‌دهم دونالد ترامپ اجازه نخواهد داد ایران به یک جنگ بی‌پایان تبدیل شود.»
@@ -241,7 +245,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-30 04:40:01
 
-<img src="https://cdn4.telesco.pe/file/jNw-VzoIBaCxn3pNfwchinKRTeXIKxZsu_rVJu8RTNG0vtui_oqA6JtBoryzW87An86liF7eK4hwy1PhKnVOx7lpyEGRediypl3Ng8vmQRnnP56Iq5Rsy66h-9csFUBL6pJtt3q2RnteUlPezxhoRA9GwUybUBsAall6HJiFLebgXcHf_kBUZcL3R9-CUXCxEj38QbD7dq64SapUCJrMJAxP-82lRXWXxmDIyK9HtZ99eFKLX8-F4hyBWg2F6czwVp1vzl8xrmJpRqFsCVKrJDeV8taHEZGiTOVC5TO0vmzTn8ibACgfsq8rJGvrrZj3K9U_xAZafbuCcfJyjm09Cw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/iBivAmsjr8NPsueVhhHcSnA4CQaEta1C27Kz19p0jbbo8qif6BMa1HzaAIXgqmBr9eccHWY8bEcJedkQ9zkEWoZza8_QOHeQvwKKU58HhlIDG2QoArsnvmEfUpAwcuVZlIZ4w7Li9_v3fZXa9VFtFMtK5XG3scQPDdQCCGmH-58WGHwm3RyOy5TzPuAk7s9qlTtYe9YV2258n5DnCySk6nTRSlUxggKvaDHLcLLHZhLwOTByHC-DhLa4hpePc93Fz7zVkcY6KWQ0hyjy-5_9BgcU6MLHdCLBx7qc4npjGzbf9nbE_VN1Jm9ptzvoJdBh5s4U7o_g9kZOkFzKh282aQ.jpg" width="400"><br>
 
 رویترز گزارش داد بایننس، بزرگ‌ترین صرافی رمزارز جهان، روز پنجشنبه ۷ آبان اعلام کرد در پی بررسی یک رخنه امنیتی احتمالی، سه میلیارد دلار دارایی رمزارزی را مسدود کرده است. شرکت‌های تتر و سیرکل نیز دارایی‌های مرتبط با این حادثه را مسدود کرده‌اند.
 بنیان‌گذاران بایننس، اعلام کردند این شرکت «تمام زیان‌های ناشی از هک» را جبران خواهد کرد، اما جزئیات بیشتری درباره میزان دارایی‌های احتمالا سرقت‌شده ارائه نکرد. بایننس نیز تاکید کرد دارایی کاربران امن است و برداشت‌ها پس از تکمیل بررسی‌های امنیتی از سر گرفته خواهد شد.
@@ -264,7 +268,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-30 03:28:35
 
-<img src="https://cdn1.telesco.pe/file/B2A5OtZe-S6NsmZ6wedksZu3pbrYtAeAx8yTX5rkMi9oj-_Idt1wjU6VgVicC1d_rM8ujH8qk6IEQs3QGV_LDZVM6JOa19KwUYhz5pC5JTLXtVzKLQWHqJ_-myNcJ7HPARDp-1WPtiJ9xjBVtmNWqLMt2CFE2T-W6hL-GlonyMC1m1FfMPDOrPtq1A5lCyGo--UchVMiSzkGCMMSmg1qlCO-84C1cIcPHFtYY2Q8Z7Rg29lQt8clXijFRfwvr3FBPNdrN0PIJ-GoXNFkxOrpQG2I1ZNyTKqzOXYdcZhgrZISNgKyUwdj_MzWT9r_YIJjp4kCRAO8-9A21NXEan91Zg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/MYgZzjKyi4xlBLDllHf_-MyE-v5v0dZfSNk_gJwZiDEGSnpNwPPu6_bkaea3m8r9EK5wueZfn3taRDqftCG-YeWC42VAcPgK-DrZ5yNkZp0srFFB8dQcDbmeHOQSOz8dhvi_HKXcjlHoj38nc3kwnnGZVGbXVjl-UMZm9JLNUx8y4eZkGQf6lj_I-kwvOghjLbTzaKcbiryZuqWScg1-tSY5bX9rldPYblBf0errFxfwflF9qtSz1RQl0Gco58UUCf1SgSA4o-uHaFhqI7OTI5Jwa4GXQEtVjyXhFx1_qACa-7KhI6ybtHOfm5EyvLDc-PY9MPJCdXEib-EpPmZBhw.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا (UKMTO) گزارشی از وقوع یک حادثه در فاصله ۲۵ مایل دریایی شمال شرقی خصب عمان، در تنگه هرمز، دریافت کرده است.
 یک منبع ثالث گزارش داده است که یک کشتی هنگام خروج از تنگه هرمز دچار آتش‌سوزی شده است. علت آتش‌سوزی در زمان انتشار گزارش مشخص نیست.
