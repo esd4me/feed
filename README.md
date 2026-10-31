@@ -3,8 +3,69 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-10-31 04:45:23 </h5>
+<h5> 🟢 Updated at: 2026-10-31 11:16:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-10-31 06:12:49
+
+<img src="https://cdn1.telesco.pe/file/VX8VsFRAzyH7aEGB4ZbhiaGUPDWx-HSEVgVW6P0QE1pHhiwommE5aTWQDx-qLXGjr7xRU_82gELvOA-bLs6R73ASc1Dwv9CX1SM0xv4WYkgBl_KT1Ep-YxczCqVqV4rCq0cRfIaYs1ogIdl3-ZtyBF07_gHu6NVRaKqhh1aUVn1SCh2_r_wFIkrBbqdQd0ybZE8dzGxDnDb18jPd9xWj2d8STQlzPOabM096722QNp9LpKXQa2PYkB0Tz4U6dJ24-DMCkhebpo3bIzWx9s8vkY3muiTCwcGohD8ccQW49DBICvGBfGH1ZG5RoY-GvpNEKmWrPPKN1Fg1vRZQ2E7Nig.jpg" width="400"><br>
+
+▪️
+یک مقام آمریکایی گفت دو خواسته متعارض تاکنون مانع پیشرفت مذاکرات شده است: اصرار دولت ترامپ بر اینکه ایران باید به‌عنوان بخشی از روند ازسرگیری مذاکرات، امتیازهایی در زمینه هسته‌ای بدهد؛ و شرط ایران مبنی بر اینکه آمریکا ابتدا محاصره دریایی را لغو کند، دارایی‌های مسدودشده را آزاد کند و اجازه فروش نفت به ایران بدهد.
+▪️
+قطری‌ها تلاش می‌کنند ایران را متقاعد کنند که به‌عنوان اقدامی اعتمادساز، به بازرسان سازمان ملل اجازه بازدید از تأسیسات هسته‌ای بمباران‌شده خود را بدهد؛ اقدامی که آمریکا در مقابل آن، بخشی از تحریم‌ها را کاهش خواهد داد.
+ترجمه ماشین:
+به گفته منابع دیپلماتیک، میانجی‌های قطری روز جمعه بیش از ۱۲ ساعت در تهران مذاکره کردند تا به توافقی برای ازسرگیری مذاکرات مستقیم میان آمریکا و ایران دست یابند و از آغاز جنگ پس از انتخابات میان‌دوره‌ای آمریکا جلوگیری کنند.
+▪️
+این گفت‌وگوها روز شنبه در دوحه، پایتخت قطر، ادامه خواهد یافت.
+🔻
+چرا مهم است:
+آمریکا اکنون تنها چند روز با عملیات نظامی احتمالی فاصله دارد که می‌تواند خسارات عظیمی به ایران وارد کند و احتمالاً به حملات تلافی‌جویانه علیه اسرائیل و شماری از کشورهای حاشیه خلیج فارس منجر شود.
+🔻
+تحولات اصلی:
+یک منبع دیپلماتیک گفت میانجی‌های قطری در جریان مذاکرات طولانی روز جمعه، به‌طور منظم با کاخ سفید در تماس بودند.
+▪️
+این منبع گفت: «پیشرفت مثبتی حاصل شد. مذاکرات همچنان ادامه دارد و تلاش‌ها برای گشودن گره توافق میان آمریکا و ایران در جریان است.»
+▪️
+قطری‌ها آمریکا و ایران را ترغیب می‌کنند بر سر مجموعه‌ای از اقدامات متقابل به توافق برسند که طی چند روز اجرا شود و دو طرف را به مذاکرات مستقیم درباره برنامه هسته‌ای ایران و دیگر مسائل بازگرداند.
+▪️
+یک مقام آمریکایی گفت دو خواسته متعارض تاکنون مانع پیشرفت مذاکرات شده است: اصرار دولت ترامپ بر اینکه ایران باید به‌عنوان بخشی از روند ازسرگیری مذاکرات، امتیازهایی در زمینه هسته‌ای بدهد؛ و شرط ایران مبنی بر اینکه آمریکا ابتدا محاصره دریایی را لغو کند، دارایی‌های مسدودشده را آزاد کند و اجازه فروش نفت به ایران بدهد.
+▪️
+قطری‌ها تلاش می‌کنند ایران را متقاعد کنند که به‌عنوان اقدامی اعتمادساز، به بازرسان سازمان ملل اجازه بازدید از تأسیسات هسته‌ای بمباران‌شده خود را بدهد؛ اقدامی که آمریکا در مقابل آن، بخشی از تحریم‌ها را کاهش خواهد داد.
+🔻
+اختلاف‌نظرها در پشت پرده:
+در حلقه نزدیکان ترامپ، دیدگاه‌های متفاوتی درباره اینکه او باید چه اقدامی انجام دهد، وجود دارد.
+▪️
+به گفته یک مقام آمریکایی، پیت هگست، وزیر دفاع، و مارکو روبیو، وزیر امور خارجه، به‌شدت تردید دارند که بتوان با حکومت کنونی ایران به توافقی هسته‌ای دست یافت. آن‌ها معتقدند میراث ترامپ باید تضعیف هرچه بیشتر حکومت ایران باشد؛ از جمله از طریق حملات نظامی بیشتر.
+▪️
+این مقام گفت در حالی که جی‌دی ونس، معاون رئیس‌جمهوری، و استیو ویتکاف و جرد کوشنر، فرستادگان ترامپ، خواهان ازسرگیری مذاکرات هستند، ترامپ تردید دارد که ایران هرگز با توافقی که از نظر او قابل قبول باشد، موافقت کند.
+▪️
+ترامپ روز جمعه به خبرنگاران گفت: «گفت‌وگوهایی در جریان است. آن‌ها می‌خواهند گفت‌وگو کنند. مدام در حال گفت‌وگو هستند... راستش را بخواهید، ما وقت داریم. این یک جنگ است، اما جنگی معمولی نیست.»
+▪️
+اسکات بسنت، وزیر خزانه‌داری آمریکا که هدایت کارزار فشار اقتصادی موسوم به «عملیات طرد اقتصادی» (Operation Economic Outcast) را بر عهده دارد، یکی از نزدیک‌ترین مشاوران ترامپ است که از او می‌خواهند به‌جای شتاب برای بازگشت به درگیری نظامی، اجازه دهد این طرح به نتیجه برسد.
+🔻
+نگاهی گسترده‌تر:
+یک منبع منطقه‌ای گفت کشورهایی مانند مصر، ترکیه، عراق، پاکستان و عربستان سعودی از ایران خواسته‌اند پیش از انتخابات میان‌دوره‌ای آمریکا با ازسرگیری مذاکرات موافقت کند.
+▪️
+یک مقام آمریکایی گفت اگر جمهوری‌خواهان در انتخابات میان‌دوره‌ای شکست سنگینی بخورند، ممکن است ترامپ تمایل بیشتری به صدور دستور یک عملیات نظامی گسترده پیدا کند.
+▪️
+این مقام گفت: «اگر احساس کند تحقیر شده یا کنار گذاشته شده است، دست به اقدامی جسورانه خواهد زد. این همان چیزی است که همه به ایرانی‌ها می‌گویند. بهترین فرصت آن‌ها برای رسیدن به توافق همین حالاست.»
+▪️
+یک مقام کاخ سفید گفت نتایج انتخابات عاملی در تصمیم‌گیری ترامپ درباره ایران نخواهد بود.
+▪️
+رهبران عربستان سعودی و ترکیه در روزهای اخیر از ترامپ خواسته‌اند فرصت بیشتری به دیپلماسی بدهد.
+▪️
+هم‌زمان، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در حال اعمال فشار بر ترامپ است تا بلافاصله پس از انتخابات، عملیات مشترکی علیه ایران آغاز کند.
+...
+axios
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78920)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-30 23:37:13
@@ -189,7 +250,7 @@ iranwire
 
 ###### 🔵 Post time: 2026-10-30 08:11:11
 
-<img src="https://cdn1.telesco.pe/file/fG1Ku2OHj5RoLOFVOWnTTh12piF8YRv6_LfC8--oUE6LwOKTUJFYCaedlLP6RVuxJuJTyMPIgPJQ5z--nc6P6udc1-mZU0IJ0pAnEXPHNtv_lwtyTqoRO-GofPE76Py8F-ggHJFFDmv9akVVZyom06LwHA8YXsZgFSqMwmPIvryjK1atbva3io_jZnibrelkkjllBNIELM8NHixM2dX74egdJatztHbS5UCotaGrCpp7xkf9AIFn3Ruw0rm7mAyRDAF9vJsPjDuJBNg0F719J6DSu-0GP0B42Cgmu-OzlDErXdITPThGnPU7MtC2KM406HaKMWXU-hQJbYqC-GTVdw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VwSAjAsdDWxIaNRlFPpWhOBKG8qzirBqn3mA9_qjhezgAOZOmE51Mjxp_N9iSt4gHeGTO5hxgUsk-Hcd_n9T9-s7ynKi2hXjsLZnTUmXzq0ThgYknj7cFwVdjw-Nb2YkVO5NFjDyJP0vsh9y4JRZd6kjlI356Nd52LHv1fVZY09wLKA_cpoLQk2-6wLyWisxRGhXwj52ZxF_qzNgAB7GX4pLj8HhjvJxR2Wu-99M0a_ws4bF9Kc9s41Fy-pfT8mPTbiKKeVU3h_rQ-gebpa7sLVNTiQ_vPady0z7CqrfIi80DYgzXf-JWPbgc4KpSpibJTa3E6eg2ibzUlI5hvLV_Q.jpg" width="400"><br>
 
 ائتلاف نظامی به رهبری عربستان سعودی اعلام کرد یک پهپاد پرتاب‌شده از سوی حوثی‌های مورد حمایت جمهوری اسلامی را در منطقه مکه رهگیری و منهدم کرده است.
 این حادثه تازه‌ترین مورد از حملات فرامرزی منتسب به حوثی‌ها علیه عربستان سعودی است.
@@ -208,7 +269,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-30 08:08:37
 
-<img src="https://cdn1.telesco.pe/file/QYRgnGmiqB5YEwaWEoZ7mIR-67PIHHQVwQfnJbpQERikt7bybJHw4kCiavQF16slcUvp6qKtoQpkfR3R_zGLkPQ7nNBwYADd5ypdUtMbmbpVHgSkfdkFKbZ6qApSJhRjH6P_sPblyrSUEPXLpGE6jKugT7alexIKRGgse1hgruLPtbirrR05FrIjHBF9fKqZoCHI9KxRxwxTFFpNPdYwOERwRunbOIqtFanY5nOEiRNJWg8i1F8FsOeVcvZTxAD0XlOX0IoaJOS7NhqSOs8df9majI0OlYCxUwoP1QWff3MIMcfiPTrulpUrF1YVIMgvwQ1UqBmfhEVN1k69229-KA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Q9NQZ7oWm51qbbryx2ERS1-2Qju278N3-sbkfADg1xu2U9i06M7-V0mzCAkcBnhJNvQ1wj1fKBYjwq3nquR43aCsUb5vLSww9GJPgCVmcuj125qXlytnBIS4zbk7FFn1K3acogP_BZz5uFAQWh6wW_wdjeJLIcAcf6iI-FoHZA4XC7S1I4OP8qDtfj6LQl7AYXnzYVxJdTrY-ug0PV3G1MXOvKCfIms5XaK78t7S4hOWkbUe2pfP77QZ2uib8VlvYIEsoECT9U8_HRgialeVmPMvXSmrGC3SHgRsLgTXxBVlvxsJzccOTTRM2xkGkULqJwK6IDP5ZXFCqQhtdRviVQ.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا (
 UKMTO
@@ -333,36 +394,6 @@ axios
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78901)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-29 22:53:59
-
-<img src="https://cdn1.telesco.pe/file/hVT--zTfhrXFcvOvU08naQvn2-lHKnlXm8ZVp2c5DL-c0V0W2Ps1lf6JxH28c9epLOhACAaVNclJlkD9sErdid5pN9Ft24WlUz3JPuTwT6D0PZazmjpnvL4_4I8meCuIfNODVfys_LL-RaXokNmEgN2F_SiIBNs42YCsRN2GIaJYyHc25eWVx4ac5TRf3sNhtaUry6P5b9b6yD2NXdYI3QDCtIBS76JOQfKlvMiTWMdUt_7LOoAowwkJ2d5lSOo-HEDtvjFiTLptyXPrC3nrmpAFxJdY7OJwLWPDy6UHBNZFsVUETGyCqLbHQOtdrGTy9_6j1oBLOX2rknYEjSm13w.jpg" width="400"><br>
-
-پیام‌های دریافتی از قشم حدود ساعت ۲۲:۴۵
-سلام وحید جان از قشم موشک ول دادن یه صدای خیلی وحشتناکی داد
-همین الان یه موشک از قشم فرستادن رفت
-سلام همین الان پرتاپ موشک از قشم
-از بالاسر خودم رد شد نرسیدم فیلم بگیرم موشک بود
-سلام وحید جان همین دو سه دقیقه پیش یک موشک از پدافند قشم شلیک شد
-از قشم موشک زدن
-میگم موشک چون رد دودش از زمین بلند شده بود
-[مطابق معمول بعضی‌ها هم این رو صدای پرواز جنگنده برداشت کرده بودند که زیاد با صدای پرتاب پرتابه اشتباه گرفته میشه.]
-🔄
-آپدیت: پیام‌های دریافتی ساعت ۲۳:۴۴
-سلام دوباره وحید جان صدای انفجار در قشم ۲ تا بود بزرگ
-دوتا صدای انفجار نسبتا دور پشت هم
-قشم
-قشم اینسری صدای انفجار شدید
-سلام وحید جان همین الان قشم دوتا صدای زدن اومد
-وحید جان سمت پدافند قشم رو زدن ساختمون ما بد لرزیید
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78900)
 
 ---
 
