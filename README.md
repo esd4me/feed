@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-01 05:11:48 </h5>
+<h5> 🟢 Updated at: 2026-11-01 11:56:46 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-01 06:39:05
+
+<img src="https://cdn4.telesco.pe/file/uCv8JJIbTysYJWXPUBzbMQz2VNVJDhiX7VadEh5iefigXpNYttpjaeIsJemA25QZckNBEr2osQitfUMa2NktMEmD7u5ixAEcvOYYRhvGbkLTmfsQqtCRF3p5YExBaO9hWbpLZuE4yVikJQ6Rtc9kRsFjUNcAbXWFq_rT6-XNlS9ywm-m1AxzJCRYfGT1mXotYKvXLoKKPlW-OWIs8qw32owswy_rhN-zdRtrAwRVHFfetM5ZlS_wC_HlqYORkfNgjlJvkShpyLDaL_39fkKDv9jnVnzipKdgWtx21IoHnRDnyVAXJo4NNPfX0d76E5nF4pv2uj2jHXNtP0dsvsOgMA.jpg" width="400"><br>
+
+دونالد ترامپ می‌گوید: «روند مذاکرات با ایران در حال حاضر به خوبی پیش می‌رود اما مشکل اصلی این است که آنها چندان قابل اعتماد نیستند، توافق می‌کنند و سپس به راحتی زیر تعهدات خود می‌زنند و از آن عقب‌نشینی می‌کنند!»
+دونالد ترامپ در اقامتگاه خود در فلوریدا به خبرنگاران گفت: «ما تأسیسات هسته‌ای آن‌ها را از کار انداخته‌ایم. هنوز باید به یک یا دو سایت دیگر رسیدگی کنیم، اما می‌توانیم این کار را در ۱۰ دقیقه انجام دهیم.» او به تاسیسات کوه کلنگ هم اشاره کرد و گفت:« احتمالاً باید نگاهی به آن بیندازیم؛ ما می‌توانیم همه این کارها را خیلی سریع انجام دهیم.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78938)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-01 02:17:55
@@ -65,7 +82,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-10-31 20:54:52
 
-<img src="https://cdn1.telesco.pe/file/H1jT6_RBMKG8wOLzsSPHhBdHGQos16rLrVI7hG2PAWHNOfpDrnjvnk0Tqq6WBj8Qe4_h-L91Y3MgcR0yYtDyFKkFAbHuu1DfTD-Ydp6RRaJpi8TC7w1XTUyiL4XDCZxH_tCvgg3NJUxwIDxvt4itk8URAvKFbmgyiV4jeQIzsy_9FYsoNcKpEKTR8sMKZKhVol-C_aV96V42ibPj9xDaEWPb5VhhbfZuSx298m7pwhfKi-7C6Q0NmYvnxMsNjS8noud3gkRe2k4wEZk99jlel4SsIABBia4W6U2SLVgXwNnWp8rJx4oWgesYfdobBOlfHerFgME8-qj6tTdMOW0OAQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/DTgtti8QQ35ilLx8DjfXSf6t2zJzTYIDpsVa-lLptnvE7AmSBMpINRJrhNDAOYvwcG0EpXg1LANn7i_Tw1-7c-z0HpzngqMYxLyddS6NAwf4VtSUWqRtj-yB6Yd8YQ8YTBma23bMkWhRDygRT8VZ7iIkGMYEaCVGFR2f2ObCStw5Zhr5pIauWCuy_xnrUf_0NFOqjUC4XW-J6Kh98mwzwpXYqbXKuX18_bW4AXvhljc_nmbU40toaEZmgWxrN6SXbjizn6PC0XMoKKStZgozjRw6OSSdXUMkiOLUZxVhuC-5yWzeJQuVOJTPiRgXu8ns7rVUg_x40JUisP2QkO3CUA.jpg" width="400"><br>
 
 مارکو روبیو، وزیر خارجه آمریکا، در نشست خبری در حاشیه اجلاس گروه ۲۰ گفت که گفت‌وگوهایی درباره ایران در جریان است و ترامپ ترجیح می‌دهد که موضوع به صورت مسالمت‌آمیز حل شود.
 مارکو روبیو، شنبه نهم آبان همچنین گفت که در عین حال برخی موضوعات وجود دارد که امکان حل مسالمت‌آمیز آن‌ها وجود ندارد.
@@ -298,7 +315,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-10-31 06:12:49
 
-<img src="https://cdn1.telesco.pe/file/VX8VsFRAzyH7aEGB4ZbhiaGUPDWx-HSEVgVW6P0QE1pHhiwommE5aTWQDx-qLXGjr7xRU_82gELvOA-bLs6R73ASc1Dwv9CX1SM0xv4WYkgBl_KT1Ep-YxczCqVqV4rCq0cRfIaYs1ogIdl3-ZtyBF07_gHu6NVRaKqhh1aUVn1SCh2_r_wFIkrBbqdQd0ybZE8dzGxDnDb18jPd9xWj2d8STQlzPOabM096722QNp9LpKXQa2PYkB0Tz4U6dJ24-DMCkhebpo3bIzWx9s8vkY3muiTCwcGohD8ccQW49DBICvGBfGH1ZG5RoY-GvpNEKmWrPPKN1Fg1vRZQ2E7Nig.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OTGWumbOaTXJzfPQmWmTK-wf0sJ1pWVm_C6m9GlfDV0HniclB8KMiowMwPLDcjdrhbzA24iuLFyEWNq_C_7qNjjp7v__dc-3RLGdeZ-1w0oMHx8e1FIUz6fc_P3-dYMB5KMtD98yf9QbPfSf1cnFvF1rkCbJCFKQH50Crt0XmNw9GY-SJ7jXPoalyxji5Z5r1KWNbmKCwze6lkjnxVfLHTYBvIykgi5MMt6Td3J8fB2ga210KDX8X53NQleWFvChUoIdzzx0B6iB15BTHW2jvwx3Tx9Nzqq_YWhBuC271dnWK76PtCuuLb52CAdoVFKWKOLS9Lx-pMdpmRvtB1Q4vQ.jpg" width="400"><br>
 
 ▪️
 یک مقام آمریکایی گفت دو خواسته متعارض تاکنون مانع پیشرفت مذاکرات شده است: اصرار دولت ترامپ بر اینکه ایران باید به‌عنوان بخشی از روند ازسرگیری مذاکرات، امتیازهایی در زمینه هسته‌ای بدهد؛ و شرط ایران مبنی بر اینکه آمریکا ابتدا محاصره دریایی را لغو کند، دارایی‌های مسدودشده را آزاد کند و اجازه فروش نفت به ایران بدهد.
@@ -392,25 +409,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78918)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 18:16:23
-
-<img src="https://cdn1.telesco.pe/file/TqJ9cBEqgRIy7r-KPjEnr15FBsTuhxDjomUDh2q1Y-WT0_1onyOQotht7YzyVVB-yWaA7kZC-nV5KbE2l44a3UJJhnyAOblTwVIu2dq_HV8SxG8DNMlSMSW3oEFO6I31_XEZJtGS_s8xcuiBAGvnx9p1GgRZSV_t5T5WenWHvsKz9t0euIlHRjWzTMIuMfpbZyTt1APjO-_nw8esmP06vglDrKAkQtVUhq-j9AALM0Bmgkp_IKdlC6HL3EHOtlL0P8EPdG1YzrCi8G9P_oi3TXA5hIwuL06Y6iSNv6pC-AWf1NUYnPNPRlqOTQYlBVZx4OmOKDyiA7mDkM54ciKKkw.jpg" width="400"><br>
-
-فریدریش مرتس، صدراعظم آلمان، روز جمعه هشتم آبان‌ماه، در نشستی خبری در سئول، پایتخت کره جنوبی، اعلام کرد که دولت آلمان در حال هماهنگی و تقویت تلاش‌های دیپلماتیک برای پایان دادن به جنگ ایران در سریع‌ترین زمان ممکن است.
-به گزارش خبرگزاری فرانسه، مرتس با تأکید بر ضرورت حل مسالمت‌آمیز این مناقشه گفت: «از همهٔ طرف‌های درگیر می‌خواهم توجه داشته باشند که این مناقشه راه‌حل نظامی ندارد و باید از طریق دیپلماسی و گفت‌وگو حل شود.» او افزود که این موضوع دربارهٔ اسرائیل و دولت آینده این کشور نیز صدق می‌کند.
-صدراعظم آلمان با اشاره به روابط خوب برلین با اسرائیل و کشورهای حاشیه خلیج فارس گفت: «ما از مسیرهای مختلف در حال هماهنگی و تقویت تلاش‌های دیپلماتیک خود هستیم تا این مناقشه هرچه سریع‌تر پایان یابد.» او همچنین تأکید کرد که آلمان با کشورهای منطقه در تماس است و برای حل مسالمت‌آمیز جنگ تلاش می‌کند.
-مرتس با اشاره به پیامدهای اقتصادی جنگ ایران برای اروپا اعلام کرد که افزایش قیمت انرژی طی هشت ماه گذشته بیش از ۱۰۰ میلیارد یورو هزینه به اروپا تحمیل کرده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78917)
 
 ---
 
