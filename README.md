@@ -3,8 +3,28 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-01 01:38:33 </h5>
+<h5> 🟢 Updated at: 2026-11-01 05:11:48 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-01 02:17:55
+
+<img src="https://cdn4.telesco.pe/file/Pa_ewqk37GRIJI3dXSCDqBYXse8JOP2qD2FPWF4BzPGekxXWSAgFb9HAi7gd8BgbWM08OoT7U1MPkK4z5RB39FdLVSZRIaSLbH5Ed7WFnbRvDUu5Biew6xcl6dxi331f5xP35dNqeognnomxAzo-zQZP0IBzRsb2H2p-vDaUez0JPMrvjhTeIvDbslC6W-1tilWViXHr9H1r9TiNN8m8_15MthGC4Qfyy2hGSgd63oTlnEVNw-DfO_p6fnOM9Eu8lclPmhdaji93VP0P_ymIKxaTySBHzpsrY6qebG5RpDPZxbIEXpNWJm5VrvMvXNTuxBkP2ppvgP__eZYMbA1-JQ.jpg" width="400"><br>
+
+اف‌بی‌آی کره شمالی را مسئول سرقت ۶.۳ میلیارد دلاری از صرافی بایننس معرفی کرد
+به گزارش رویترز، اداره فدرال تحقیقات آمریکا، اف‌بی‌آی، بامداد یکشنبه ۱۰ آبان اعلام کرد کره شمالی مسئول سرقت میلیاردها دلار دارایی دیجیتال از صرافی بایننس است.
+این نهاد گفته عاملان حمله با تبدیل دارایی‌های سرقت‌شده به اتریوم، پول‌شویی را آغاز کرده‌اند و انتظار می‌رود این روند ادامه یابد.
+ارزش این سرقت حدود ۶ میلیارد و ۳۰۰ میلیون دلار گزارش شده است. بایننس اعلام کرده تمامی زیان‌های مشتریان را از منابع شرکت جبران خواهد کرد و با همکاری شرکای خود برای مسدودسازی دارایی‌های سرقت‌شده تلاش می‌کند.
+اف‌بی‌آی پیش‌تر نیز هکرهای کره شمالی را مسئول سرقت حدود ۱.۵ میلیارد دلار از صرافی «بای‌بیت» در اسفند ۱۴۰۳ معرفی کرده بود؛ حمله‌ای که این نهاد آن را به فعالیت سایبری موسوم به «تریدرترِیتور» نسبت داد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78937)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-10-31 21:21:26
@@ -339,7 +359,7 @@ axios
 
 ###### 🔵 Post time: 2026-10-30 23:37:13
 
-<img src="https://cdn1.telesco.pe/file/apm5Dr5twYCmlvwYf6eufik1dLH2ZEGjoTVaqHNpRgRU1EhVXKugLzFY57dWhmmUS3drdK-3YgTtYAQDZEeKnTYM23CJrDRjoMhCFUQ8-zVB17rHIoVjuCVC5ARkayD_Znt9pjAwh-Fn-WgbmDKsXwxqHp7yCGZfWSVReK6fuY6bhOK60wAIMXSmnGDbLLQH6l-pZJb-PR2VpZ4bM9TGkUZJgWZOBTle6hjUW26iHFYpMYBPFT_tuPBNs6j1af18hYS8u9ryV-nM1KG8v5pGG3mbEOwcbGtC9hJALuHi3la2yRum9czUPrY9sMcVV1FCuqGk8gc8EU8vJ1CrpanuPg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/fYR49xublph8uIgMOflIrwUu4MvtHjmOWnXF6SaA30xBQCE8t9sfqsSfXk5Z_Wao_ff1ye_ivPYdv-2avJlfAK6D29jkSvkU5-r0OLQV_TtMlNiTwcQJpezS3UM9eoRoX1UVZel3bRj5tfPP1OGYgmu9LlNe1XWM-raJ9kqowcNBjcfNLp2GiFYjZRB_5KvONepgdb7pVmssojXCbfYPITIQKC_GHHpbxywqhFHFl1kdbSnI4yLyEtuH8inp4TK7ClYbmn3w4baZvB-rneUIJF-3kfTIcNlW1IzEjqgN6bUFasYDLB9n9Mz1jmky-LDCb7r5aEBuva0JeVJqrtY9GQ.jpg" width="400"><br>
 
 خبرنگار اکسیوس، ترجمه ماشین:
 یک منبع دیپلماتیک به من گفت که مذاکره‌کنندگان قطری در تهران حضور داشته‌اند و مذاکرات به مدت ۱۲ ساعت ادامه داشته است. این منبع افزود که میانجیگران قطری در طول روز به‌طور مرتب با کاخ سفید نیز در تماس بوده‌اند.
@@ -391,23 +411,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78917)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-30 17:06:53
-
-<img src="https://cdn4.telesco.pe/file/llv6kFSfT01qKhUVowTu9FuNB7KyoY4kEaYFe5hdxKxkejI6zT_QtM_QwcjC1Wrm5wrFuH5M4IxhnZgP4RnSCxkBdjJSsjnYoQZO6KveixJyk3dVESbkZcoTapRmE1bZFaefGCZ1TXOJjW3X3C5wMWrQX4YeU9qx8oHzJZzdhtES75sy1PPZyVUkW7-ta5y62CppNbKbYxIRen4_jA4UjQhFfBf-84YS-vGtDRP7fXP5zcu37IE1EA4xC1QsIDzEApuP3vUeJJQ6q9si1IiXtsqtKYsaDRGi_eFhWmKK2jYFXN5ROdtlhOf6plQR46TBanD2FUwy2fLxdn65a7u1-g.jpg" width="400"><br>
-
-«دونالد ترامپ» رییس‌جمهوری آمریکا، بار دیگر پیش‌بینی کرد جنگ با ایران به‌زودی پایان خواهد یافت، در حالی‌که خبرگزاری آسوشیتدپرس گزارش داده واشنگتن به متحدان منطقه‌ای خود درباره احتمال ازسرگیری حملات به ایران پس از انتخابات میان‌دوره‌ای کنگره هشدار داده است.
-ترامپ جمعه ۸آبان۱۴۰۵ در گفت‌وگو با ایستگاه رادیویی KCMO در کانزاس‌سیتی گفت: «این ماجرا به‌زودی تمام می‌شود.» او افزود: «ما به تضمینی نیاز داریم که هرگز سلاح هسته‌ای وجود نداشته باشد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78916)
 
 ---
 
