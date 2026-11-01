@@ -3,8 +3,48 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-01 23:28:53 </h5>
+<h5> 🟢 Updated at: 2026-11-02 02:55:21 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-02 01:01:27
+
+<img src="https://cdn1.telesco.pe/file/GvW_OYF8-WRGcEXB7d_WR3ayhljxdKolJWgmcP2RQH4x7IhA43ZDxep-u0vzjBZFlrOCxfjM_iun2UxyRrcJatHUh1wGh-I6TS_Hono8rOEl8C4JliZn5KZOCXahJvM1bA55utjwqc-cTcQd-ZggcrSt22Xan84KBD74e2v3jlj1CSa8fyzutN2lJrIsmL3X-cn5qoRKpjdKLyz0RN2aYVkvHsjXCZI116ZsMQDVQjr9mzp_IemTA0gEUu07NKXI4Cf6O-V7IIVcU1wmYh8qinWKMggZ63ae8sJKKeZ0S1OS5YESu_SxJftC8GWNvGCbdWNRDeOImX29thR8R5Kr8A.jpg" width="400"><br>
+
+به گزارش فاکس نیوز، یک هواپیمای خصوصی حامل ۹ سرنشین در بعدازظهر یکشنبه، در محله‌ای مسکونی در جنوب فلوریدا و در فاصلهٔ تقریبی ۹ مایلی (حدود ۱۴ کیلومتری) از عمارت مارالاگو متعلق به دونالد ترامپ، رئیس جمهوری آمریکا، سقوط کرد و به گلوله‌ای از آتش بدل شد.
+سانحه‌ای مرگبار که دست‌کم ۹ کشته برجای گذاشت.
+بر اساس اعلام سازمان هوانوردی فدرال آمریکا (FAA)، این هواپیما که از فرودگاه بین‌المللی آستین در تگزاس عازم باهاما بود، در نزدیکی منطقهٔ کرست‌هیون به زمین برخورد کرد.
+بنا بر داده‌های پایگاه «فلایت‌رادار۲۴»، این هواپیما پس از پرواز در ارتفاع ۴۱ هزار پایی، ناگهان وارد یک نزول تند به سمت راست شد و با سرعتی سرسام‌آور به زمین اصابت کرد.
+حادثه‌ای که در پی آن نیروهای امدادی بخش‌هایی از معابر اطراف را مسدود کرده و با اعلام وضعیت سانحهٔ پرخطر و گسترده، از مردم خواسته‌اند تا اطلاع ثانوی از تردد در این محدوده خودداری کنند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78953)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-02 00:54:24
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در حاشیهٔ گردهمایی انتخاباتی‌ در آیووا، در پاسخ به پرسش خبرنگاران دربارهٔ تماس تلفنی‌اش با نخست‌وزیر اسرائیل گفت:
+«نه جزئیاتی نمی‌گویم، فقط گفت‌وگوی بسیار خوبی با او داشتیم. گفت‌وگوی بسیار خوبی با هم داشتیم.»
+ترامپ در پاسخ به این پرسش که آیا با بنیامین نتانیاهو دربارهٔ ایران نیز گفت‌وگو کرده است، به گفتن این عبارت بسنده کرد: «بله، صحبت کردم.»
+توصیف مثبت ترامپ از این تماس در شرایطی مطرح می‌شود که پیش‌تر پایگاه خبری آکسیوس گزارش داده بود این مکالمه پیرامون وضعیت مذاکرات واشنگتن با جمهوری اسلامی ایران و زمان ازسرگیری احتمالی عملیات نظامی انجام شده است.
+به گزارش آکسیوس به نقل از منابع اسرائیلی و آمریکایی، در حالی که نتانیاهو از ترامپ خواسته است بلافاصله پس از انتخابات میان‌دوره‌ای آمریکا به ایران حمله کند، رئیس‌جمهوری ایالات متحده فعلاً تداوم مسیر مذاکرات را ترجیح می‌دهد که این موضع موجب نگرانی تل‌آویو شده است، چندان‌که منبع اسرائیلی این تماس را «سخت» و طرف آمریکایی آن را «صریح» ارزیابی کرده‌اند، هرچند ترامپ هم‌زمان با دیپلماسی خود را برای بازگشت احتمالی به اقدام نظامی گسترده نیز آماده می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78952)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-01 22:16:50
@@ -286,7 +326,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-01 02:17:55
 
-<img src="https://cdn4.telesco.pe/file/Pa_ewqk37GRIJI3dXSCDqBYXse8JOP2qD2FPWF4BzPGekxXWSAgFb9HAi7gd8BgbWM08OoT7U1MPkK4z5RB39FdLVSZRIaSLbH5Ed7WFnbRvDUu5Biew6xcl6dxi331f5xP35dNqeognnomxAzo-zQZP0IBzRsb2H2p-vDaUez0JPMrvjhTeIvDbslC6W-1tilWViXHr9H1r9TiNN8m8_15MthGC4Qfyy2hGSgd63oTlnEVNw-DfO_p6fnOM9Eu8lclPmhdaji93VP0P_ymIKxaTySBHzpsrY6qebG5RpDPZxbIEXpNWJm5VrvMvXNTuxBkP2ppvgP__eZYMbA1-JQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ujzS77riePs-X6Sp3AI6l9S6P0LTt-avkttLB7y113vp1BS5fVyHzU7FlZQrWlZKor3-DnXcipo5NGegfVYOOKgyOk0UX-MAu8s_gFbirvrNvdaxFp0-knZ8H5_R17srGyyHG284sBwenD4D2XW4zQLiE6KqmaPKPq8Jnf64SArP8BC1seWJJrWUpqgGPmKzGoI9mrrs9odZabe-grD1tLAN5BQVYOHdN6VR-3mbK2IihgwpNDQ09v1qjX2smJkj2NO-a5afQhdrE0jevY4egEd8Kypemd03EuUaPhIR2u9g1gfe_ijqLdYLPzOix-jHAN6de1YDJptKD_dazc7EJw.jpg" width="400"><br>
 
 اف‌بی‌آی کره شمالی را مسئول سرقت ۶.۳ میلیارد دلاری از صرافی بایننس معرفی کرد
 به گزارش رویترز، اداره فدرال تحقیقات آمریکا، اف‌بی‌آی، بامداد یکشنبه ۱۰ آبان اعلام کرد کره شمالی مسئول سرقت میلیاردها دلار دارایی دیجیتال از صرافی بایننس است.
@@ -335,49 +375,6 @@ VahidOnLive
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78934)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-31 20:54:52
-
-<img src="https://cdn1.telesco.pe/file/DTgtti8QQ35ilLx8DjfXSf6t2zJzTYIDpsVa-lLptnvE7AmSBMpINRJrhNDAOYvwcG0EpXg1LANn7i_Tw1-7c-z0HpzngqMYxLyddS6NAwf4VtSUWqRtj-yB6Yd8YQ8YTBma23bMkWhRDygRT8VZ7iIkGMYEaCVGFR2f2ObCStw5Zhr5pIauWCuy_xnrUf_0NFOqjUC4XW-J6Kh98mwzwpXYqbXKuX18_bW4AXvhljc_nmbU40toaEZmgWxrN6SXbjizn6PC0XMoKKStZgozjRw6OSSdXUMkiOLUZxVhuC-5yWzeJQuVOJTPiRgXu8ns7rVUg_x40JUisP2QkO3CUA.jpg" width="400"><br>
-
-مارکو روبیو، وزیر خارجه آمریکا، در نشست خبری در حاشیه اجلاس گروه ۲۰ گفت که گفت‌وگوهایی درباره ایران در جریان است و ترامپ ترجیح می‌دهد که موضوع به صورت مسالمت‌آمیز حل شود.
-مارکو روبیو، شنبه نهم آبان همچنین گفت که در عین حال برخی موضوعات وجود دارد که امکان حل مسالمت‌آمیز آن‌ها وجود ندارد.
-وزیر خارجه آمریکا اضافه کرد: «من نه پیشرفت در مذاکرات با جمهوری اسلامی و نه هیچ چارچوب زمانی را در مورد آن مشخص نمی‌کنم، جز این که بگویم که اگر راه حل دیپلماتیکی وجود داشته باشد، ما از آن استقبال می‌کنیم.»
-روبیو افزود: «درباره ایران اگر راه حل دیپلماتیکی وجود داشته باشد، ما از آن استقبال می‌کنیم اما بدیهی است که چنین راه‌حلی نمی‌تواند امنیت ملی ما را به خطر بیندازد یا نگرانی‌های اساسی ما را که در وهله نخست باعث ورود ما به این وضعیت شد، برطرف نکند.»
-@
-VahidOOnLine
-مارکو روبیو، وزیر خارجه آمریکا گفت که جمهوری اسلامی نه‌تنها به‌روشنی نشان داده که به‌دنبال تبدیل شدن به یک قدرت دارای سلاح هسته‌ای است؛ چیزی که هرگز نباید اجازه وقوع آن داده شود، بلکه این کشور و این رژیم در مرکز تمام بی‌ثباتی‌های خاورمیانه قرار دارد.
-روبیو افزود: «در لبنان بی‌ثباتی وجود دارد، چون ایران از حزب‌الله حمایت می‌کند. عربستان سعودی هدف حمله قرار می‌گیرد، چون ایران از حوثی‌ها حمایت می‌کند. عراق نیز کشوری است که با چالش روبه‌روست، زیرا شبه‌نظامیان مورد حمایت ایران، حکومت این کشور را به چالش می‌کشند.»
-او افزود: «به هر طرف که نگاه کنید، یکی از نیروهای نیابتی ایران را می‌بینید که صلح و ثبات خاورمیانه را تضعیف می‌کند.»
-روبیو همچنین با اشاره به سرکوب مردم در ایران گفت: «این رژیمی است که مردم خودش را قتل‌عام کرده است. فقط می‌توانید تصور کنید که اگر به سلاح‌های کشتار جمعی دست پیدا کند، با دیگران چه خواهد کرد.»
-وزیر خارجه آمریکاادامه داد: «جمهوری اسلامی در حال منفجر کردن کشتی‌هاست؛ از جمله کشتی‌هایی که برای مثال، ملوانان هندی در آن‌ها حضور دارند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78932)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-31 20:43:18
-
-<img src="https://cdn4.telesco.pe/file/LJmnx2E_0LzfoJALPXcmJVsAX-2xhHCOsj5S4UPsziVSmWPwS6HmtqwHrKtDwDZ44zKzRJdgEc1S5GnKZa1d13FTgFpJMbqNiXxKpEilhONEs3bxGVDsYR0qxQZQeHjTC7R2Yqg-c4KMyZght2VobsSmemb9Bafhs7ahEYPejEukmqwrsrXVqo2pV6rPox4tpBfZVjoUEFVmtmpw5ed6UfISxI_SZXtMdn8wTEgnXzJanbtIMAoO8Z5zIye4Y2gu7_ePuTDnvhYhV-aCSzRzxLg5ncXAwTN9xZ9QEwBvaWo9yR1VA7bArlMk9dDxp4Ku3dvBDjXn9W0JF-gAGml92g.jpg" width="400"><br>
-
-خبرگزاری آسوشیتدپرس، روز شنبه ۹ آبان ۱۴۰۵، در گزارشی نوشت حملات جمهوری اسلامی به ۲۶ پایگاه و محل استقرار تجهیزات نظامی آمریکا در خاورمیانه، میلیاردها دلار به تجهیزات و زیرساخت‌های نظامی این کشور خسارت وارد کرده است. این حملات ابتدا سامانه‌های هشدار زودهنگام و رادارهای آمریکا را هدف قرار دادند و سپس به آشیانه‌های هواپیما، انبارها و محل استقرار نیروها گسترش یافتند.
-بر اساس بررسی تصاویر ماهواره‌ای، کویت بیشترین تعداد حملات به مواضع آمریکا را تجربه کرده است. پایگاه‌های آمریکایی در بحرین، عراق، اردن، عمان، قطر، عربستان سعودی و امارات متحده عربی نیز هدف قرار گرفته‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78931)
 
 ---
 
