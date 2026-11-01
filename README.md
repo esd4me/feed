@@ -3,8 +3,63 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-01 19:06:54 </h5>
+<h5> 🟢 Updated at: 2026-11-01 23:28:53 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-01 22:16:50
+
+<img src="https://cdn4.telesco.pe/file/O-0Tb-zhSB30VwYJcs0o478nSgVN1MjYEcLhKtjM-_O2PGlqaX9yQuwWBxiOgks1lG54JDfwXaZWkS7Cje8bBQ8XdkKymIRHY3XAFMtsN8MAmKY3jh4ePR9WxrmW88ilqenble8weM_fNfLCbKkt39wlvYw8T-1JBx8ApVM-jYLcKOOBjRi06P00QW12Uhb58frC-DZL3s2_zfOAG2-44uZ2Z1G3O5ZnFlpQCzI8cYYMAYWgr0Sce3N9AIb9aJ7UdSteNVkuMru84NzexyNOrRpIENvjwEAx352PHQtUnZVISEOt2xUljKE51yJyEDIqDBXcNGbldKWsEU_59gOPFw.jpg" width="400"><br>
+
+وب‌سایت آکسیوس، شامگاه یکشنبه ۱۰ آبان ماه، به نقل از یک منبع اسرائیلی و یک منبع آمریکایی گزارش داد دونالد ترامپ، رئیس‌جمهوری آمریکا، روز شنبه در تماس تلفنی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، دربارهٔ وضعیت مذاکرات واشنگتن با جمهوری اسلامی و زمان ازسرگیری احتمالی عملیات نظامی گفتگو کرد.
+به گفتهٔ این دو منبع، نتانیاهو از ترامپ خواسته است، بلافاصله پس از انتخابات میان‌دوره‌ای آمریکا در روز سه‌شنبه به ایران حمله کند. ترامپ اما فعلاً ترجیح می‌دهد مذاکرات ادامه پیدا کند؛ رویکردی که نگرانی نخست‌وزیر اسرائیل را برانگیخته است.
+به گزارش آکسیوس، منبع اسرائیلی تماس را «سخت» توصیف کرد و منبع آمریکایی آن را «صریح» خواند.
+بر اساس این گزارش، می‌نویسد ترامپ هم‌زمان با پیگیری مذاکرات برای دستیابی به توافق و ازسرگیری گفتگوهای صلح، خود را برای احتمال بازگشت به عملیات نظامی گسترده پس از انتخابات میان‌دوره‌ای نیز آماده می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78951)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-01 22:00:45
+
+<img src="https://cdn1.telesco.pe/file/RjsouSKuCmUwo-wCwGDnML1XD5MyklRSSpfo7RYAR0sjirQ2hGZu-E_W_7uxzTgDUsa18cWriqrl58mUX8qrIo8CyZI1Oy-3ocGA5GZg-t7Li30OfLjg_sH4xJuT8INKsxqDfUmZrV4n-ZH8M2GTZNbq280tMVVZu_gc-tBzUde9YtBNIGm4e9ZjL0rawofnpKbIjAU3BhshlI2pWNiP-rYAEZ3OQNrCiQithRip0F7Hdj7fCoYfhg10hXxB2cs1qLCXuEvxF6rlmDYQvXwdPfRqRjpI5Td2ZAujPEIqm_15_SQ9w62P0N862NURDR2wvB2ngsms1Uk2gLM3fKFb6A.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا (UKMTO) گزارشی از وقوع حادثه‌ای در تنگه هرمز دریافت کرده است.
+ناخدای یک کشتی تجاری، پیام اضطراری «می‌دی» (Mayday) را که از طریق کانال ۱۶ رادیوی VHF مخابره شده بود، منتقل کرده است. در این پیام اعلام شده که یک کشتی دیگر با پرتابه‌ای ناشناس هدف قرار گرفته است.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78950)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-01 19:44:53
+
+<img src="https://cdn4.telesco.pe/file/olJDv9Qc65plR3R60By4vQfVLFNzJ7djHezBqWC3bvM9E33Z83uAy0aUUBIfJtbGDM9MIHG4iK6fySWlT-GRpt8WDd9qbDTMNZ0agMgBIPoUawylZATz5wnFcySu4ch6F-RlFxGhLB6VYtPfGdmk7NeDsYccMSIFK65H8K6PBZy839ioytHcbck8xXOI9RqSq2-mWNlpsQnHl967SzukFJshUup_2a0NUrrCsCs4nKWJ2JNErLG_45fLPglD4VY1z-R0Hu0_1LXlnHiwL4WTNPnCzLxUmEvQ67vePd_60poCssM4oAShEsNilmIuzQ4unEeFV8Co8iptoO6Vx7hdxQ.jpg" width="400"><br>
+
+حمید علیدوستی، بازیکن پیشین تیم ملی فوتبال ایران و از چهره‌های شناخته‌شدهٔ جامعه ورزش، عصر یکشنبه ۱۰ آبان‌ماه درگذشت. او طی ماه‌های اخیر با بیماری دست‌وپنجه نرم می‌کرد و مراحل درمان را پشت سر می‌گذاشت.
+علیدوستی متولد ۲۱ اسفند ۱۳۳۴ در تهران بود و فوتبال حرفه‌ای خود را از باشگاه تهران‌جوان آغاز کرد. او سپس با پیراهن تیم هما به شهرت رسید و به‌عنوان مهاجمی تکنیکی و گلزن در فوتبال ایران شناخته شد.
+او در دو دوره جام ملت‌های آسیا در سال‌های ۱۹۸۰ و ۱۹۸۴ و همچنین بازی‌های آسیایی ۱۹۸۲ و ۱۹۸۶ عضو تیم ملی ایران بود. علیدوستی در ۲۷ بازی ملی، ۱۵ گل به ثمر رساند.
+این بازیکن سابقه حضور در تیم زالمروهر آلمان در بوندس‌لیگای ۲ را نیز داشت و در ادامه دوران بازیگری خود برای تیم‌های دارایی، کشاورز و سایپا به میدان رفت. او همراه با سایپا دو بار قهرمانی لیگ ایران را تجربه کرد.
+حمید علیدوستی پدر ترانه علیدوستی، بازیگر سینمای ایران، و همسر نادره حکیم‌الهی، هنرمند و مجسمه‌ساز، بود. او در سال ۱۳۸۳ فرزند ۱۶ ساله‌اش، پویان، را در حوادث چهارشنبه‌سوری از دست داده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78949)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-01 18:38:52
@@ -313,7 +368,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-10-31 20:43:18
 
-<img src="https://cdn4.telesco.pe/file/u020Q30J_eA7KiMp0xuTBXA-_78kqfEP4C5909qygEAnwbgG6EbtSX73G_MgrdzIT_rvkymvDqLOjqqrfWK4Ept0jqXkInpV314Sf5uFFWDRdCgw_hEwxBdHdeE7NGsAFhTo96kD-drGtOoTdNEvhtedHgQdRVCWo2BXlh_T52Q6ztSWI-fUXh6Q67BI_uiXqyl2jfoqmfG8-6GIEW06gV7WRbN_7K5YPeFaY1Y9tcbTrtYYLGvMwSIm7ay6dSBLo0n3nFW3MagAT5cZ9FKqfijzjdxr2Qv8Z095MTXJ0RwtCoSAyjRz-rIfSmhNmxjaBp7Zecg4wDbxOVkpaiKaEw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/LJmnx2E_0LzfoJALPXcmJVsAX-2xhHCOsj5S4UPsziVSmWPwS6HmtqwHrKtDwDZ44zKzRJdgEc1S5GnKZa1d13FTgFpJMbqNiXxKpEilhONEs3bxGVDsYR0qxQZQeHjTC7R2Yqg-c4KMyZght2VobsSmemb9Bafhs7ahEYPejEukmqwrsrXVqo2pV6rPox4tpBfZVjoUEFVmtmpw5ed6UfISxI_SZXtMdn8wTEgnXzJanbtIMAoO8Z5zIye4Y2gu7_ePuTDnvhYhV-aCSzRzxLg5ncXAwTN9xZ9QEwBvaWo9yR1VA7bArlMk9dDxp4Ku3dvBDjXn9W0JF-gAGml92g.jpg" width="400"><br>
 
 خبرگزاری آسوشیتدپرس، روز شنبه ۹ آبان ۱۴۰۵، در گزارشی نوشت حملات جمهوری اسلامی به ۲۶ پایگاه و محل استقرار تجهیزات نظامی آمریکا در خاورمیانه، میلیاردها دلار به تجهیزات و زیرساخت‌های نظامی این کشور خسارت وارد کرده است. این حملات ابتدا سامانه‌های هشدار زودهنگام و رادارهای آمریکا را هدف قرار دادند و سپس به آشیانه‌های هواپیما، انبارها و محل استقرار نیروها گسترش یافتند.
 بر اساس بررسی تصاویر ماهواره‌ای، کویت بیشترین تعداد حملات به مواضع آمریکا را تجربه کرده است. پایگاه‌های آمریکایی در بحرین، عراق، اردن، عمان، قطر، عربستان سعودی و امارات متحده عربی نیز هدف قرار گرفته‌اند.
@@ -323,63 +378,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78931)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-31 19:10:54
-
-<img src="https://cdn4.telesco.pe/file/iZJiUBpwji17uC7vIgtqbh7oYWUIekSJpCMaRQ0LE69ndlf7yVIv_3cOErkoBr2qUaWps0V8nYiPq4XN7JB1YkmcuOxWaRyRERV9Pc29tlROW5yO8zx1dVm7Mljkls_kcU7qpA2Om6GUD4SpCehud2QS68RFqlemoGShMU9CXioQmS5ZxbNjbmhHIiDJsSGTnvbb7KxJdps-Ea5PxPra7j2nEGbCmgO-95ZKa_66XEP2q3HPRnSrNIsX9xPUbT6isdswtZBdS6mRuT2b84VogSAQeaihZRbVJb9qbZE58SKeKjZJNY6JqIY_IAimu5uYEpHu0S0_jYqW0MGXh-1J5g.jpg" width="400"><br>
-
-شایان شکیبایی، ۲۹ ساله و ساکن کرمان که در جریان اعتراضات سراسری دی‌ماه ۱۴۰۴ بازداشت شده بود، از سوی شعبه پنجم دادگاه انقلاب کرمان به اعدام محکوم شد. در همین پرونده، سه متهم دیگر نیز در مجموع به ۲۸ سال زندان محکوم شده‌اند.
-در همین پرونده، محمد حسینیانی به ۱۲ سال زندان و دو متهم دیگر هرکدام به هشت سال حبس محکوم شده‌اند.
-تاکنون اطلاعات دقیقی درباره اتهامات منتسب به شکیبایی، مدارک و مستندات مورد استناد دادگاه و همچنین احتمال اعتراض متهمان به احکام صادر شده منتشر نشده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78930)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-31 17:51:42
-
-<img src="https://cdn4.telesco.pe/file/WepZPiwqhp5R-T9SyzsuS_oaH1CjCybHkbmaAjzhMPh1B7wQQZaIh1VjosEFAm0b8jZOQVEsxLMqTScq7UdBYbfA63TBJj3OyQie-4RhqxUNMUQSd_fuiUhNO_NXOQG8Nkw3HA70eefIwSLgaNhWmbOIY3M2sEnizVKsd-q_lt-U4aRVnF98N5l-QKfMlAopoBKdLLUlQLSyWcOfgi_GOUXqFutQFE8eDtvzvyiMDzC0zcswhDUW0AAIW0dXhzhqT0cQK1U0UU-lzOskuTPZElQOcVuIcseObqjx85a5AX9oeSm-pLPvjqBxbRncqql5tbyifAZs7OR2i1MBxawdiw.jpg" width="400"><br>
-
-مرکز اطلاع‌رسانی پلیس تهران اعلام کرد ماموران پلیس هنگام تعقیب سارقان کیف‌قاپ اقدام به تیراندازی کردند که در پی آن، یک زن راننده هدف گلوله قرار گرفت و جان باخت.
-بر اساس این اطلاعیه، این حادثه ساعت ۱۹:۵۰ پنجشنبه هفتم آبان رخ داد و گلوله ماموران پلیس به گفته این نهاد، به‌صورت «سهوی» به راننده یک خودروی عبوری اصابت کرد.
-این زن پس از انتقال به بیمارستان تحت عمل جراحی قرار گرفت و در بخش مراقبت‌های ویژه بستری شد، اما صبح شنبه بر اثر جراحات جان باخت.
-پلیس تهران اعلام کرد پرونده قضایی این حادثه تشکیل شده و تحقیقات درباره آن ادامه دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78929)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-31 17:51:32
-
-<img src="https://cdn1.telesco.pe/file/jB8sVeIIpsLCPu8D1Q_8jZfgGxCvAXBY1-c_1bVSYA2BoxUuWBUi9aK-nt3LKYXnOe1ygGORnkaThVSEUrfpW60ts7eqvkZLTu3aF-2KOfgAxH7GsgB4qvj3el41KuVL5BrLH5zO2JlBJKQ75fDyFrj2Gc-tnos-bmWZHOTlijdpKbvT4j_iD4bCX0vfxUodmbpo80XQne-8lSLCX9FitV1rxb0-QzoHGWy39vQSTZCf9H3IO2e1P1EuOCx3vNAfNl6xS8Zy37ByrigBICVdP9npjRu7Fj2GLYvbA5D7701gp8-9Rs5wHwmdV0UqO1Wpor_JvcvxBO3LZbgSAXF-4w.jpg" width="400"><br>
-
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، روز شنبه ۹ آبان‌ماه در گفتگو با شبکه الجزیره گفت پیام جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، با دقت بررسی شده و در نشست‌های سطح عالی درباره آن بحث و تبادل نظر صورت گرفته است.
-عراقچی تلاش طرف آمریکایی برای گشودن باب گفتگو و تفاهم در سطحی گسترده‌تر را اقدامی مثبت دانست، اما گفت اگر هدف واشنگتن از ارسال پیام ونس ایجاد اختلاف و شکاف باشد، این اقدام اشتباه جدیدی خواهد بود که به اشتباهات پیشین آمریکا اضافه می‌شود.
-او درباره احتمال دیدار با مقام‌های آمریکایی گفت: «در حال حاضر هیچ برنامه‌ای برای دیدار با مقام‌های آمریکایی نداریم و آنچه در این باره مطرح می‌شود، صرفا گمانه‌زنی رسانه‌ای است.»
-عراقچی افزود تهران در شرایط کنونی نیازی به دیدار با آمریکایی‌ها نمی‌بیند، زیرا شروط ایران روشن است و میانجی‌ها رایزنی‌های خود را درباره این شروط ادامه می‌دهند.
-او گفت پس از موافقت واشنگتن با شروط ایران، درباره مستقیم یا غیرمستقیم بودن مذاکرات تصمیم‌گیری خواهد شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78928)
 
 ---
 
