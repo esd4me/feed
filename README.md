@@ -3,8 +3,59 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-02 02:55:21 </h5>
+<h5> 🟢 Updated at: 2026-11-02 07:02:44 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-02 06:19:28
+
+<img src="https://cdn1.telesco.pe/file/S3zUvV_4hdLF1Q-VBWcLLGrNfijONY0PO9GWLiuHbA6P6h7mQa5uGptgAF06Yn4iOx0_XtxTDhbcQEJBultMFtPdVhlx-b6ZgWr3faOiTowFUOaXmScSOlNfMZ2lhlW8w8_jtzL2-sJMaFW9O9p7UMuSMm2CUr8dfFx31xsw-yCQRzqW0oBfciSp2mOj3D2_UANAzSgAI2o4uccNI1zk46xAyixxBvHAIIPvIv_KHCZc1DW_hhuWxmijQnaP40t_9ylb-d2kp-W41aDTI4f_wYLtc1MvA6e2K0CT-HwGPBK9O1ICbCjqwO-TfuPSQkHk0GAmuips715EYGn5kY71Yg.jpg" width="400"><br>
+
+پست سنتکام، ترجمه ماشین:
+🚫
+ادعا: وزیر امور خارجه ایران اخیراً به‌طور علنی ادعا کرده است که ایران به غیرنظامیان در کشورهای همسایه حمله نکرده است. این ادعا نادرست است.
+✅
+واقعیت: ایران نه‌تنها عمداً به زیرساخت‌های غیرنظامی، محله‌های مسکونی و دیگر تأسیسات در کشورهای همسایه حاشیه خلیج فارس حمله کرده، بلکه عامدانه دریانوردان غیرنظامی را نیز در دریا هدف قرار داده است؛ حملاتی که در ماه‌های اخیر به کشته شدن بیش از ۲۰ نفر منجر شده‌اند. تجاوزگری کورکورانه ایران کاملاً آشکار و توجیه‌ناپذیر است.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78957)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-02 06:14:46
+
+<img src="https://cdn1.telesco.pe/file/Lhn-w-U_cfW-8DWBJeplVI4gKPo8XmDkZ5CzEQtB4WtOqd5nQs-3hEOITAF2pZEZ_GPjf5L3hL3FEq-cIim4fXCrbnihzr2RE6eQl53KEtXVCwiMR2e5IcOOo8adyHsTSEzFbk9d80LmWxeDVAfDlu88veZ739kwJ99TF0zn6Ve84phzzQjMEzaHodevtDxtiAwMugedo4Y5GIp203ZKxExNuz8u8a_1oWOs0zPPikGD7T2-Gai5mD75k5Vdr1UYd3n3bxTVo1QRmbhiAjUqcpBvX7dfIPcnQWWvPjm9bg76d3fc5ycfPdEPBu-eklP5VzIo-Va9R0JwQtrpH_ELMA.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در فاصله ۷۲ مایل دریایی شرق رأس‌الخفجی عربستان سعودی دریافت کرده است.
+یک نفتکش که در حال حرکت به سمت جنوب شرقی در خلیج فارس بوده، از سمت چپ هدف اصابت دو پرتابه ناشناس قرار گرفته است.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78956)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-02 06:14:20
+
+<img src="https://cdn1.telesco.pe/file/iqWKl7IOALP_UZt2Iz2dw0EDn3-440HVUrwPEa0NbtdlkhBnqRO7m6RsYuS2drxBgECbfVRwNmB4DekJz9iS6PGm2iGOUBsLk28ja4bOMUd3C2gnlSGHeBN67RlWKftKgwds-52QcbNyFuf7X5WDwZzdWSwe7-qEUJ5O5Pq9JSTYD5ZoH45bBReu71aotuNrSEoaKfrcEGOVtt3D_2BscIWbYv6b6GTUBGaZNgPQplBjfN1dx42edq5r6qv218APvMI4xVp3k6QQekHm3USgIE5jSg7KIkfPZIuv7CX8GTi1x9Tqf-TW-JUDbyJsI4Y6lcpATzIwovmolyuG1q9zZw.jpg" width="400"><br>
+
+دونالد ترامپ، روز یکشنبه، در گردهمایی انتخاباتی ایالت آیووا، با رد احتمال وقوع یک جنگ طولانی و فرسایشی با جمهوری اسلامی ایران نظیر جنگ‌های ویتنام و افغانستان، تأکید کرد که واشنگتن از نظر نظامی و مالی به پیروزی رسیده و این رویارویی خیلی زود «از یک راه یا راه دیگر» به پایان خواهد رسید. رئیس‌جمهوری آمریکا با بیان اینکه حمله به اهداف وابسته به تهران اقدامی اجتناب‌ناپذیر بود و ضربات سنگینی به توانمندی‌های آن وارد کرده است، یادآور شد که دستیابی به اهداف نظامی مانع از بررسی گزینه‌های دیگر نخواهد بود و در صورت لزوم، احتمال وارد آوردن یک «ضربهٔ سنگین نهایی» همچنان پابرجا است. او همچنین پایان این بحران را عاملی برای افت محسوس بهای جهانی نفت و قیمت بنزین دانست تا این مناقشه به باری بر دوش اقتصاد آمریکا تبدیل نشود، و در بخش دیگری از اظهاراتش ضمن هشدار نسبت به تکرار آنچه «سناریوی فرانسه» خواند، دستاوردهای دولتش در کاهش بی‌سابقهٔ قیمت دارو طی سه دههٔ اخیر را یادآور شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78955)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-02 01:01:27
@@ -309,7 +360,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-01 06:39:05
 
-<img src="https://cdn4.telesco.pe/file/uCv8JJIbTysYJWXPUBzbMQz2VNVJDhiX7VadEh5iefigXpNYttpjaeIsJemA25QZckNBEr2osQitfUMa2NktMEmD7u5ixAEcvOYYRhvGbkLTmfsQqtCRF3p5YExBaO9hWbpLZuE4yVikJQ6Rtc9kRsFjUNcAbXWFq_rT6-XNlS9ywm-m1AxzJCRYfGT1mXotYKvXLoKKPlW-OWIs8qw32owswy_rhN-zdRtrAwRVHFfetM5ZlS_wC_HlqYORkfNgjlJvkShpyLDaL_39fkKDv9jnVnzipKdgWtx21IoHnRDnyVAXJo4NNPfX0d76E5nF4pv2uj2jHXNtP0dsvsOgMA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/YvrjOCsOhG4pauLVw5X1Q7HrOR4C5QuAgMLck_BXoKbaOCqEXUhnuKti0hFuEqqRQhKtTUcLOnaYYXDGYKt4DVOEZiIMuqnDfJ1bECIV1liPkZEWlNVqm2Mv_DzJPNzhLo_TPKBkK02ExOm-X3CMbQGMBVp1WEWbmrPplkkDgkVqNCIXpMe2wxMLjaEOcFWLJ2Uic3fEqHXvJrIooZYWVKTRzs2Y_0QjUni1ttjT91kquPMcwwSN_ajyDTjGI7i87Smo9auiCWhz0dySParUMQaTtdcvjZOFhNxdC_SCwMs84GtSj7u2fLUiKj2GoMuAj0n0HpVAoyQ65dXEAJKHPg.jpg" width="400"><br>
 
 دونالد ترامپ می‌گوید: «روند مذاکرات با ایران در حال حاضر به خوبی پیش می‌رود اما مشکل اصلی این است که آنها چندان قابل اعتماد نیستند، توافق می‌کنند و سپس به راحتی زیر تعهدات خود می‌زنند و از آن عقب‌نشینی می‌کنند!»
 دونالد ترامپ در اقامتگاه خود در فلوریدا به خبرنگاران گفت: «ما تأسیسات هسته‌ای آن‌ها را از کار انداخته‌ایم. هنوز باید به یک یا دو سایت دیگر رسیدگی کنیم، اما می‌توانیم این کار را در ۱۰ دقیقه انجام دهیم.» او به تاسیسات کوه کلنگ هم اشاره کرد و گفت:« احتمالاً باید نگاهی به آن بیندازیم؛ ما می‌توانیم همه این کارها را خیلی سریع انجام دهیم.»
@@ -319,62 +370,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78938)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-01 02:17:55
-
-<img src="https://cdn4.telesco.pe/file/ujzS77riePs-X6Sp3AI6l9S6P0LTt-avkttLB7y113vp1BS5fVyHzU7FlZQrWlZKor3-DnXcipo5NGegfVYOOKgyOk0UX-MAu8s_gFbirvrNvdaxFp0-knZ8H5_R17srGyyHG284sBwenD4D2XW4zQLiE6KqmaPKPq8Jnf64SArP8BC1seWJJrWUpqgGPmKzGoI9mrrs9odZabe-grD1tLAN5BQVYOHdN6VR-3mbK2IihgwpNDQ09v1qjX2smJkj2NO-a5afQhdrE0jevY4egEd8Kypemd03EuUaPhIR2u9g1gfe_ijqLdYLPzOix-jHAN6de1YDJptKD_dazc7EJw.jpg" width="400"><br>
-
-اف‌بی‌آی کره شمالی را مسئول سرقت ۶.۳ میلیارد دلاری از صرافی بایننس معرفی کرد
-به گزارش رویترز، اداره فدرال تحقیقات آمریکا، اف‌بی‌آی، بامداد یکشنبه ۱۰ آبان اعلام کرد کره شمالی مسئول سرقت میلیاردها دلار دارایی دیجیتال از صرافی بایننس است.
-این نهاد گفته عاملان حمله با تبدیل دارایی‌های سرقت‌شده به اتریوم، پول‌شویی را آغاز کرده‌اند و انتظار می‌رود این روند ادامه یابد.
-ارزش این سرقت حدود ۶ میلیارد و ۳۰۰ میلیون دلار گزارش شده است. بایننس اعلام کرده تمامی زیان‌های مشتریان را از منابع شرکت جبران خواهد کرد و با همکاری شرکای خود برای مسدودسازی دارایی‌های سرقت‌شده تلاش می‌کند.
-اف‌بی‌آی پیش‌تر نیز هکرهای کره شمالی را مسئول سرقت حدود ۱.۵ میلیارد دلار از صرافی «بای‌بیت» در اسفند ۱۴۰۳ معرفی کرده بود؛ حمله‌ای که این نهاد آن را به فعالیت سایبری موسوم به «تریدرترِیتور» نسبت داد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78937)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-31 21:21:26
-
-
-
-محسن رضایی، دبیر شورای عالی امنیت ملی در جمهوری اسلامی،  درباره نامه جی‌دی ونس، معاون ترامپ، گفت: «نامه را مطالعه کردم. هنوز پاسخی به این نامه نداده‌ام. کاملا لحن تغییر کرده و این علامت بسیار خوبی است که ملت ایران اقتدار و پیروزی خود را تثبیت کرده است.
-محسن رضایی در گفت‌وگو با صداوسیمای جمهوری اسلامی  آبان، افزود که چون آن‌ها چیزی از نامه را طرح نکرده‌اند، من هم فعلا چیزی نمی‌گویم.
-او درباره احتمال تغییر دکترین هسته‌ای جمهوری اسلامی گفت: «هنوز در دولت، در حکومت، تصمیم جدیدی گرفته نشده است؛ البته این بحث مطرح است که اگر دوباره جنگ شود، ما می‌خواهیم همان دکترین را داشته باشیم یا نه. تصمیمی گرفته نشده اما ملت ایران به دنبال یک مطالبات منطقی هستند.»
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78935)
-
----
-
-
-
-###### 🔵 Post time: 2026-10-31 20:58:50
-
-
-
-روبیو:
-ما در دنیایی زندگی می‌کنیم که یک کشور، یک حکومت، آشکارا می‌گوید: «کشتی‌های تجاری را منفجر می‌کنیم.»
-به این فکر کنید، خب؟ به دنیایی که اکنون در آن زندگی می‌کنیم فکر کنید.
-انگار این حرف مربوط به ۱۰۰ یا ۸۰ سال پیش است.
-این اتفاقی است که دارد می‌افتد و همه کشورهای آن منطقه با این چالش روبه‌رو هستند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78934)
 
 ---
 
