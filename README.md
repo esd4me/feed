@@ -3,8 +3,154 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-03 14:59:23 </h5>
+<h5> 🟢 Updated at: 2026-11-03 22:21:06 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-03 18:19:30
+
+<img src="https://cdn1.telesco.pe/file/f2BS566FJlWVtGsE5_iv3HZJQKbhcfsFV9b-bSg4uoZ-hdjYqyQr3zY5hA0aZ3eV3uUmJBxLOKgaMUIalFsW-bESGaLTvYu3wF8gIFMP65rtLtd9bfq8v9JxIRm6UFEKsp-PvgI8aAlNZZC7ESEWMREKom0-ZzX4-NtJCiQB0muKrKpxS1cUiK5vMK04q2prN7J3x5fLvoKXlmiRp0TXsQ8J0ZN8M7LiQbAISVvAxLbIaT9R6UOYoqw7PUmFqzDTXNwWSOKbDIirK7YtGpf0iuvjV9zQip6UDbsJByroVpSLnqVnvrhFGbFBFecJcRHIqthqzToaOEY6Hb6YCDg5MQ.jpg" width="400"><br>
+
+محسن رضایی دبیر شورای عالی امنیت ملی در جمهوری اسلامی در شبکه اجتماعی ایکس نوشت: «پاسخ آمریکا به حقوق و مطالبات ایران قانع‌کننده نبود و آن‌ها باید کامل و صریح هفت شرط ایران را پاسخ داده و به آن عمل کنند؛ تنها در این صورت تنگه هرمز باز خواهد شد.»
+در روزهای اخیر، میانجیگران قطری در دو نوبت به تهران سفر کرده و طرح صلح جدیدی را ارائه کردند. مسعود پزشکیان نیز روز سه‌شنبه در جلسه با استانداران و شهرداران کلان‌شهرها تاکید کرد که بازگشت به جنگ به نفع هیچ‌یک از طرفین نیست. با این وجود، به نظر می‌رسد که این طرح مورد موافقت تهران قرار نگرفته است.
+@
+VahidOOnLine
+📷
+"بنر نصب شده روی دیوار سفارت آلمان در تهران"
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78984)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-03 17:29:24
+
+
+
+ترامپ: دیشب پدافندی که دو ماه ساختنش طول کشیده بود را هدف قرار دادیم
+ترجمه ماشین:
+خبرنگار: بعد از روز انتخابات چه اتفاقی می‌افتد؟ بعد از امروز، مرحله بعد چیست؟
+ترامپ: خب، خواهیم دید. ببینید،
+من دنبال این نیستم که، می‌دانید، آدم‌های زیادی را بکشم، اما اگر مجبور باشیم، این کار را می‌کنیم.
+ولی نمی‌خواهم چنین کاری بکنم.
+تمام هواپیماها به تکه‌های کوچک، تکه‌های خیلی ریز تبدیل شده‌اند و در باندهای فرودگاه‌های ایران پراکنده‌اند. دیگر هیچ هواپیمایی ندارند. هیچ پدافند ضدهوایی ندارند.
+دیشب تعدادی از آن‌ها را نابود کردیم. فقط یک حمله کوچک بود. جنگ نبود.
+آن‌ها یک تأسیسات پدافند ضدهوایی ساختند. ساخت آن حدود دو ماه طول کشید. ما مراحل ساختش را زیر نظر داشتیم. به‌محض اینکه ساختش تمام شد، دیشب حسابی هدف قرارش دادیم.
+نه، جنگ بزرگی نبود. جنگ بزرگی نبود. و می‌دانید، وقتی درباره جنگ صحبت می‌کنید، این واقعاً جنگ نیست.
+ما هنوز... ما هنوز... منظورم این است که در آغاز خیلی سخت به آن‌ها ضربه زدیم، اما فقط همان بود.
+آن‌ها خیلی سرسخت‌اند. می‌فهمم چرا خاورمیانه از آن‌ها می‌ترسید. خیلی سرسخت‌اند، اما رهبری‌شان را از بین برده‌ایم.
+...
+ایران سلاح هسته‌ای داشت. همه‌چیز برایشان آماده بود. قرار بود ظرف دو هفته به آن دست پیدا کنند.
+آن‌ها برجام را با باراک حسین اوباما داشتند. آن توافق راه رسیدن به سلاح هسته‌ای بود.
+...
+اما این واقعاً جنگ نیست. ما به چیزی شلیک نکرده‌ایم.
+می‌دانید، جنگ مثل روسیه و اوکراین است. آن یک جنگ است.
+جنگ مثل جنگ جهانی دوم است که مدام می‌جنگید و می‌جنگید و هیچ فرصتی برای توقف نبرد ندارید.
+ما آن‌ها را دقیقاً در موقعیتی که می‌خواهیم قرار داده‌ایم. می‌توانیم کارشان را یکسره کنیم، یا می‌توانیم با آن‌ها مدارا کنیم و بگذاریم هزاران نفر زنده بمانند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78983)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-03 17:28:14
+
+<img src="https://cdn1.telesco.pe/file/lu7GXAXr1vVUb_CsN4HLi1SnSL5bZNSm3zKYRF2d0hAsXYL0QWTv6cwOHJMqa3hHtRpqNAJlLoRfmppBiKhqqvTMe1D3wCzPQ0dlkuwJhlGOHE9rPPKKclkS8OHWYQ8hFpVJO3rMt_Hcvo-Us-5_-md2i75wyc-2N7zRtg2PrOCCaVvLJpfjIP4BES5QGT0zsE-xu8F9M1CM9fPM2EMyTD1jYC6fBOcWZ_YoA2x9YziUhIOqWZJ8wu6sA55IpbDaH3BS1EEWifb0RyUZqe0gn-kucbOa4UYwLIR8THAZbZkbafU6a76LL7uDA7uIqt7j0_e9g08VpfkUaEd3rC15vw.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد که گزارشی از سوی دولت هند مبنی بر وقوع حمله به یک فروند شناور بادبانی (لنج) متعلق به هند دریافت کرده است. این حادثه در تاریخ ۱۱ آبان ۱۴۰۵ (۲ نوامبر ۲۰۲۶) در ساعت ۱۱:۰۵ به وقت هماهنگ جهانی (UTC) و در زمان خروج این شناور از تنگه هرمز رخ داده است.
+بر اساس این گزارش، نیروی دریایی عمان موفق شده است خدمه نجات‌یافته این شناور را نجات دهد، اما وضعیت خود کشتی همچنان نامعلوم است. مرکز عملیات تجارت دریایی بریتانیا به سایر شناورها توصیه کرده است که با احتیاط کامل از منطقه عبور کرده و ضمن گزارش هرگونه فعالیت مشکوک، منتظر نتایج بررسی‌های مقامات مسئول باشند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78982)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-03 16:11:56
+
+<img src="https://cdn4.telesco.pe/file/D9vVlIcmKfodBKFC9ZdfbzeNjihj_Z0N8bnXGvzZtpM7S3k4dcFvYleQMx6IsVmd_9BYzRs9_7aRLQOQT7eBCh31z9Jj3uai9zchYGRQndv7nbnV203XnEEYc_8LabuBQ6y7jBZSsNMnkEh6xSfws-PiPbX7MJR5qjJr-Gs-dpMxSNtw-e2A5B-_S25uZvm6fXZ6B1R5ZaNw4mRaGsWlMPBNNsGEreVKfybYSkoTKukUBAHUYIhyKof7PJwfyFjHw5eb-QFpxOh4GhNSxVasEdfqiWDxqvL8Cy52EU8ZGssnJmtf3pRp0xR9vEQstdcf7NM9pL3SsCCPuI_6Q5LBQw.jpg" width="400"><br>
+
+روزنامه «همشهری»، وابسته به شهرداری تهران، در صفحه نخست شماره سه‌شنبه ۱۲ آبان۱۴۰۵، با انتشار یک تصویرسازی از پایگاه‌های نظامی آمریکا در کشورهای اروپایی، آن‌ها را اهداف احتمالی موشک‌های جمهوری اسلامی در صورت آغاز جنگی تازه معرفی کرده است.
+این روزنامه نزدیک به جریان اصولگرا، در گزارشی با اشاره به راهبرد تقابل «بدون محدودیت جغرافیایی»، نوشته است که احتمال گسترش جنگ به خارج از خاورمیانه افزایش یافته و پایگاه‌های هوایی، دریایی و مراکز پشتیبانی نیروهای آمریکایی در اروپا می‌توانند در فهرست اهداف احتمالی ایران قرار گیرند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78981)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-03 16:10:41
+
+
+
+محمدباقر قالیباف، رئیس مجلس شورای اسلامی روز سه‌شنبه ۱۲ آبان‌ماه با هشدار به همسایگان ایران گفت: «کشورهای منطقه بدانند جمهوری اسلامی ایران همان گونه که با انگشت روی ماشه برای نبرد آماده است، پاسخی مقتدرانه و عقلانی به طرف آمریکایی داده و اکنون توپ در زمین آمریکاست که از جنگ جلوگیری کند.»
+قالیباف که همچنان «مذاکره‌کننده ارشد» حکومت ایران در مذاکرات با آمریکا به شمار می‌رود در سخنرانی پیش از دستور در صحن علنی مجلس مدعی شد: «همزمان ما در عرصه‌‌ی میدانی و نظامی در بالاترین سطح آمادگی دفاعی قرار داریم و اگر واشنگتن بازهم دچار خطای استراتژیک شود بداند که این بار با میدانی جدید از جنگ مواجه شده و درمانده‌تر از امروز به دنبال راه فرار خواهد بود.»
+این اظهارات همزمان با ادامه مذاکرات غیرمستقیم تهران و واشنگتن و در حالی مطرح می‌شود که سنتکام نیمه‌شب دوشنبه و در نخستین دقایق بامداد سه‌شنبه، مناطقی را در جزیره قشم بمباران کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78980)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-03 16:07:19
+
+<img src="https://cdn1.telesco.pe/file/lSLsaMje8XS1eOkSWn2BS_8Nkkx7PTaT8CKK4PAv7RepidfUhd3KZ3Myn9Js3SdvH76ZILbXmoIb7RyfBRDvDxFUx-0EPKZ4h635EyF_kGkS1njzHzXWdYS0t9kldiuNulebbFL9EltlgV7AXFpSj2L6MXR85_lgaGq4hMUgT4RW3WRZxiO1R9Vq3l7b7TFC9svQu7BFEEhIJuwTa-2_7H3Z7N5CGRfFgaNVqx1BmcbyCDh9QZkwjkFQx0F5ROGWrmX72Jlt94A7_5Ibm7rKEafF0Fgsvszy3d2UBVTuOdnOF-xmPbfuCBia58orgg16lHld41MdtToJndtt5E3zdQ.jpg" width="400"><br>
+
+ماجد الانصاری، سخنگوی وزارت خارجه قطر، روز سه‌شنبه، ۱۲ آبان‌ماه، ضمن اشاره به طرح‌هایی که میانجی‌ها، از جمله دوحه، ارائه کرده‌اند گفت که حکومت کشورش به رسیدن جمهوری اسلامی و ایالات متحده به توافقی موقتی امیدوار است.
+این در حالی است که ساعتی پیشتر یک مقام ارشد ایرانی به خبرگزاری رویترز گفته بود که ایران و ایالات متحده هنوز «فاصله زیادی» تا دستیابی به توافقی برای پایان دادن به جنگ دارند.
+همزمان با مذاکرات غیرمستقیم دو کشور، ایالات متحده دوشنبه شب حملاتی به جزیره قشم در کنار تنگه هرمز انجام داد که مقام‌های آمریکایی بعدا آنها را «تدافعی» توصیف کردند.
+قطر در یک هفته گذشته بر تلاش‌های خود به میانجی‌گری میان تهران و واشینگتن افزوده و این تلاش‌ها را حتی زمانی که از طرف سپاه هدف حمله قرار گرفته قطع نکرده است.
+در حال حاضر، به گفته ماجد الانصاری، دو طرف «به ادامه فرایند مذاکره پایبند هستند و ما [قطر] تبادل پیشنهادات میان این دو را تسهیل می‌کنیم».
+@
+VahidHeadline
+خبرگزاری رویترز روز سه‌شنبه ۱۲ آبان‌ماه به نقل از «یک مقام ارشد ایرانی» گزارش کرد که «با وجود افزایش تلاش‌های دیپلماتیک برای جلوگیری از بازگشت احتمالی به درگیری‌های فعال پس از انتخابات میان‌دوره‌ای آمریکا، ایران و ایالات متحده تا رسیدن به توافقی برای پایان دادن به جنگ فاصله زیادی دارند.»
+به گزارش رویترز، این «مقام ارشد» که نامش فاش نشده پس از سفر دوشنبه شب‌نمایندگان قطر به تهران و درگیری میان سنتکام و نیروهای مسلح جمهوری اسلامی در تنگه هرمزو بمباران قشم گفت: «میانجی‌ها سخت در تلاش‌اند تا شکاف‌های میان تهران و واشنگتن را کاهش دهند.»
+همین منبع هشدار داد که «اگر آمریکا خواهان بازگشایی تنگه هرمز است، شرایط تهران باید برآورده شود.» وی افزود مذاکرات هسته‌ای تنها پس از آن می‌تواند آغاز شود و تهران «زیاده‌خواهی‌های» واشنگتن را نخواهد پذیرفت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78978)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-03 16:01:34
+
+<img src="https://cdn4.telesco.pe/file/vJAdvXtHF2iCnzfyMLxsuEp2mQutJufmXjXmDAs9S1xajXZyEwOfM6rOqLnZPucUu8rVNSXRDhcHBlzRor5KzKnHVkfdhwVOepHeShNJxC2iIX11_H2e8OJ70bYs7qHd339z5lnns3fCIl5icGHZ92mB5GVZQMCKIXasdiMtYXqpio4pYMMxr7MAnj_huSjpi9nr3zCA-O5z_0-hyk6vDOs-Pdwlkm-7-DrzmH6DWs2MhBmk0CXJ-Tn6CvciLDCl0g9qXeLLCuv0Ey9U8ZAdK3ZMTtnZDGNvoQyLvYYJGsY8N6ye23x9EY9Umq0fXNBGJurj8sx8wOVMYCk90Y3kjA.jpg" width="400"><br>
+
+قوه قضاییه جمهوری اسلامی از اعدام «امیرحسین ملکی» ۱۹ ساله و «امیرحسین ابراهیمی» ۱۸ ساله، دو تن از بازداشت‌شدگان اعتراضات سراسری دی۱۴۰۴ در اصفهان، خبر داده است. با اجرای حکم اعدام این دو جوان در بامداد سه‌شنبه ۱۲ آبان۱۴۰۵، شمار اعدام‌شدگان پرونده معروف به «میدان علیخانی اصفهان» به ۹ نفر رسید.
+خبرگزاری «میزان»، وابسته به قوه قضاییه، اعلام کرده است که این دو جوان به اتهام «محاربه و افساد فی‌الارض» به اعدام محکوم شده بودند و احکام آن‌ها پس از فرجام‌خواهی در دیوان عالی کشور تایید شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78977)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-03 07:22:17
@@ -163,7 +309,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-11-02 19:24:10
 
-<img src="https://cdn4.telesco.pe/file/cC-7qri65smkc2Q9HplQA4lFzHhSjwpebMy3VOhCUpsTt2NgISGRTM-TjNi574PLkN4l1b0jxngXKcnbYM_Q-RT7VVd5OztqPfNCuQrSh7jNfor8_CjOCZSCzBc3ryFjkpaePp6LAPXUDKQCAqgSj8gjWrXTThR-AJ9u6PdtwP-BKKbLf-hw9m-388YezQBg2hkWYS0apqAPnBZjj2MRZT8VkPzHg6yZi23HaM-KhpohOcRG101NFRuIZ1-FVDBWJiWdvzrltNQIbL1I0WcooD5fao-AAFitq5Ym2YeMhwVYzyq0y7qHzb5aEvPWlwurupnRqfD7QiHqvwru5sNNww.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/XId3W-rqUzIaVcThvgk-f9XqGfKOa7eAT4t9D2zNGdl56taKTJ6Ed0x3-pyVg4PipxGfx_ZwS3VuX0CLpGL3PjSqQKAKFJSCDkx_4TRsYsIgIg7PGf-anhFG-Piq2KpaxhSefuJ67LZR48deGqFSWe7io0z0fRJrNgl3gmtQ8YUTVGQVCD-IkLhDPj3eJ15KF_4EU92VMFlNq9VbeJiyBchgLVu-AYMTH-JB-5SnL9dN_zy5wXL7YUM_Mfu7OeU1gQB18AB2DvCB5C8T96cpgyiZR9NYJlnF2VrNmi3yE5wW45XAHGNsdtz5bFquilTVAdAuuvljJXTHG5qMLakIIw.jpg" width="400"><br>
 
 وانگ یی، وزیر امور خارجه چین، روز دوشنبه ۱۱ آبان در دیدار با مشاور امنیت ملی عربستان سعودی در پکن گفت که منطقه خلیج فارس بار دیگر به «دوراهی حساسی میان جنگ و صلح» رسیده است.
 او افزود چین امیدوار است همه طرف‌ها از طریق مذاکره به خصومت‌ها پایان دهند.
@@ -182,7 +328,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-02 19:21:59
 
-<img src="https://cdn4.telesco.pe/file/k3WPhglZththCW-Gg5w_jcMhzG4evupePxqD1SROzy2PROMv_sZ1aEwEpJmlztS1jBpiyLMN0YlU19dn6V96FJ3-lYZ7IbEVVAsYoVX9clw8Zx-E0jJaTDt3hywdn2htIQozksZIVxo3HtU92o0pDQ3dpbBXjOuDSKpP30xMMhbfWlyrp4F1xjIE57qA4R45C8ls3Zgn59cmnVDlWD_s3jr028_11LqtK2oJBD73HKqSRTITKIhQBKC3P_SEm7YW2n_Vk7Q87aVe9-Yskv9ELmYZrrZXnVRZ55ZsUr7lZG2beFR1ZjO3nR1jDFcK1TJGpXWOl4oerk24SBka-CcXJg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/RH9WWAnbQ7Lr_Oen7S0BHF_KYpNezJlecr2qoX9WQGrNnOkycI0ylTwhl78t7nqo8NsIcNWliOLAiB4-oXg2ZGOMFgnr3oV6W6mwbjLzRaM9dip_pia12eqOIG4tOyblH13EaMUpqf6ETg6pqeu46lT0fdzMyZtfTIcnb4nIHcq3CR8jSajfc2is_M6DPPQYcjayXONyXYmZOxZuv3aUoLeT0AJVwU56q2uf309ULweVh9dItpUaaQh89j5FB6a5ieGpUEX3QB2TGyPYc0kzFu_aO_XuxF9gA1GIY0i7auaunQdy7SqwppgsX3RjEU5JWZ-cDT_8tAC-vw5u5ovRCg.jpg" width="400"><br>
 
 مسعود پزشکیان که روز دوشنبه در نشستی با استانداران سخن می‌گفت، با تأکید بر اهمیت عبور از «چالش‌ها و بحرانی که دشمنان برای ایران ساخته‌اند»، گفت: «تلاش می‌کنیم با گفت‌وگو مشکل را حل کنیم».
 رئیس دولت در ایران همزمان تأکید کرد که مجتبی خامنه‌ای‌ رهبر جمهوری اسلامی در زمینۀ پیش‌برد گفت‌وگوها، اختیاراتی به دولت داده است. او به جزئیات بیشتری درباره این اختیارات اشاره نکرد.
@@ -199,7 +345,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-02 16:31:19
 
-<img src="https://cdn1.telesco.pe/file/tXOqPPWHeFtecPxUXbL0GzbfcSE2_LqxF_VDc1B23Ph8uzZOL0QMq4J4OlIHDCLbElLRXz2U5z7fbzi0WMrG3pLcCEuB2PfckbJGbyBHr9EBEK_v4EyrBQLsXDJXpMMy5GQThwUEULE318iG2-aoPOCYNG7gTHjRTwImvDWYkQbWa1oDa8oRqSV9KhqUj-mb02nKSVmzneSptOVfZSLNb6nT_5CwMPEeaI79_Mk9SHvn24S6njaDZ4jBsP0EvSMXIyWPeOtFAnv-t_AiyKv5yMIC88e3FRSxn6H5pJTrHg6XZOIzfIIywk7l4qcPqO8uLnbxmVKmMyzlK4ElxVyebg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XpFfga5dXsO9lkCPTusX7TpDp8242Fu4AT-ArU9qngtgdJe0rtclamSuX3a_Ir51TONQOwiretWSpmy8B8y7S1x-DAIYbpHwyfrcyHyOy5hNDSKmhyBmbvK4t0WxvnjmF_DsrWxijq71qhCLjwGejjoqQWxKV_c5nGQ9NRlB_W5mYHpz-5vHavd6M7uHjm3PSKcv_rr4MYAgRxZHaP6OmOQzoP103qsIRB44Ai73OtVbNsmv-ERH0eIOXtquuV1hKUOsmUeTv9HHwUO2M71-_OEs6o8IX2WAkYILLlgbivGD3XGwbHwq5xvivp6VRp6lhnYpe42cyDzc4CgOUI4sTA.jpg" width="400"><br>
 
 محمود گبرلو -منتقد سینما- تصویری از نوزدهمین جشنواره فیلم مقاومت منتشر کرده و نوشته: این تصویر واقعی است! من در سالن بدون تماشاگر جشنواره فیلم مقاومت!
 Mohammad_kali
@@ -244,144 +390,6 @@ Mohammad_kali
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78964)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 15:36:52
-
-<img src="https://cdn1.telesco.pe/file/E-XS6Qd9GCHaNkFZ9BW_6UarzxD2L95lKEeDNvcIm2jCjEI0T3RCseLHqjM9NZ4os_RTmlVL7Ap1znhwKc89H_NfIeCQmuEE0Xa4ZQH3eN4VAecyc6gg5zf1wk__-o-TIyi8vNbHk4SjtB2EQipdWiumbFi4WA-79ZoXBQIFfoftoQf4ke4AOzGreb-FFg6a3rj2zoFrIOwfYr7zZzM2rg8Alfm8l2nMRZ_FK30vEQ-3HA8OsheE_QKQD8aYWkp7PPTZHtX0CegPO1S5-_s3VlXeAiPCkGx68WowvDlvCYgF6G6VnINQguchAk3yZAPJ1dejf8_vB_zkquRW6G6XSw.jpg" width="400"><br>
-
-تاکر کارلسون، روزنامه‌نگار و مجری سرشناس آمریکایی، روز یکشنبه، با انتشار
-پیامی در اکس
-مدعی شد که دولت دونالد ترامپ «تحت فشار بنیامین نتانیاهو ممکن است ظرف چند روز آینده دست به حملهٔ اتمی علیه ایران بزند.»
-او با بیان اینکه هدف احتمالی این حمله تأسیسات نفوذناپذیر «کوه کلنگ» در مرکز ایران خواهد بود، نوشت: «هیچ سلاح متعارفی در زرادخانهٔ ایالات متحده توان نفوذ به عمق ۹۱ متری لایه‌های گرانیتی این تونل‌ها را ندارد و تنها گزینهٔ نظامی برای تخریب آن، ضربهٔ هسته‌ای است. اقدامی که به‌دلیل بن‌بست سیاسی نتانیاهو، هر روز از سوی او به ترامپ اصرار می‌شود و در صورت وقوع، با آلوده‌کردن آب خلیج فارس، زندگی ۱۰۰ میلیون نفر را به خطر انداخته و جهان را به سوی جنگ جهانی سوم سوق می‌دهد.»
-کارلسون با اشاره به اینکه ترامپ در حال حاضر مردد است و به توصیه‌های جی‌دی ونس و استیو ویتکاف مبنی بر امکان‌پذیر بودن دستیابی به یک توافق دیپلماتیک گوش می‌دهد، از افکار عمومی خواست پیش از اتخاذ تصمیمی غیرقابل‌بازگشت تا هفتم نوامبر صدای خود را بلند کنند.
-انتشار این پیام در حالی صورت می‌گیرد که کارلسون، که پیش‌تر از چهره‌های حامی جریان «ماگا» و جمهوری‌خواهان بود، در تابستان گذشته با انتقاد از سیاست‌های این حزب و اولویت‌دادن به منافع خارجی، به‌طور رسمی اعلام کرد که از این حزب و جنبش ماگا جدا شده است و دیگر از رویکردهای این جریان حمایت نمی‌کند.
-@
-VahidOOnLine
-ماریا زاخارووا، سخنگوی وزارت امور خارجه روسیه روز دوشنبه ۱۱ آبان‌ماه گفت: «نشانه‌هایی بر برنامه‌ریزی اقدام نظامی جدید علیه ایران وجود دارد و این موضوع بسیار نگران‌کننده است.»
-به گزارش رویترز، سخنگوی وزارت خارجه روسیه به خبرنگاران گفت: «تجربه غم‌انگیز ماه‌های گذشته نشان می‌دهد که ماجراجویی‌های نظامی، که باعث مرگ و ویرانی در ایران می‌شوند، نمی‌توانند اراده ایرانیان را برای دفاع از حاکمیت و استقلال کشورشان در هم بشکنند. کسانی که امروز تهدید به حملات جدید می‌کنند، باید در این تصمیم بازنگری کنند.»
-همزمان با ادامه تهدیدهای دونالد ترامپ در سخنرانی‌های کارزار انتخابات میان‌دوره‌ای کنگره، گمانه‌زنی‌ها درباره احتمال حمله نظامی گسترده به ایران در روزهای آینده و پس از انتخابات آمریکا، به‌شدت افزایش یافته است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78962)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 15:31:10
-
-<img src="https://cdn4.telesco.pe/file/p84AVPEJJiEg8ddh9idVT0I3QBVLOnaknWGrJ2BRzwI9V763AWa_C3mVXF8rHlDuuSnSTbVWSpcCEIYbS9mEsFMjI1DFl0OQq0S6bMESgPQl_r9bPIVRGV1dFxbyjqUDu73bzXaEebH5Oa-s2uhu-5nPoa7wFxod8I-X8xhOslbkqBMSQCwbtNZfcsi3zoerfVubdcaqLCPVdUYtAbmcPApDkTLG_MH8PrVX_mFYU_EJsZWlaxR39DqIeNHc7Pol784tdwgECCZtn4mz2kImc1YcOw0srZUOTZ8wxDbiDT8AJHu_yQX22Xx0cDeGxqU2CgIsUwq8S6NMenyUSecquw.jpg" width="400"><br>
-
-اتحادیه صنف طلا، جواهر، نقره و سکه مشهد با صدور ابلاغیه‌ای، خرید و فروش محصول طلا با نقش‌ها و طرح‌های دوران پهلوی یا طرح «شیر و خورشید» در این شهر را ممنوع اعلام کرد.
-بر اساس این ابلاغیه، فروش یا قرار دادن هر محصولی که نقش و طرح‌های دوران پهلوی یا طرح «شیر و خورشید» داشته باشد، در بازار مشهد ممنوع است.
-دستبند، پلاک، گردنبند، سکه و سکه‌های یادبود که دارای نقش و طرح‌های متعلق به دوران پهلوی یا طرح «شیر و خورشید» باشند مشمول این ابلاغیه اعلام شده‌اند.
-خبرگزاری مهر نوشته است که این ابلاغیه با استناد به دستور اداره اماکن صادر شده است و «فعالان بازار موظف به بازبینی موجودی و ویترین‌های خود جهت مطابقت با این دستور هستند.»
-اتحادیه طلای مشهد گفته است در صورت مشاهده تخلف، مطابق قوانین و مقررات جاری با صنفی که این محصولات را نمایش دهد یا بفروشد برخورد خواهد شد. فعالان بازار موظف شده‌اند موجودی و ویترین‌هایشان را برای مطابقت با این دستور بازبینی کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78961)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 15:27:46
-
-<img src="https://cdn1.telesco.pe/file/tnfhA07B395QJA8GgWzolwbrUkAdxp1IxTdBN-K1OPz-dhLgo7BP8ozEnxKouHyRtufNJfU23WDCCiY8z6baZ54VQuzonHU8aUTZGic3k9S-IW_r0q4n9sp1xPKgLyN7UIHjtxnAKSw-UVU8Sc9sqwRzZqODmn8caB-y2MWaoJkwtm4GXRopVEJPm4dHSwWd3N_0qUwftJ1cyREczQb8deWwnNB1wzyx9zDbjtR7ar6sWfmzXjSYxG-BUDq5UzFNWFoU2mHaTo5tz_lT9wXbS8HIMuB1eGnh2QbvhkxvfCilw7qo1CTIASlTgO2Y-EwSgGM2HudbbwTyzyTpBi33lA.jpg" width="400"><br>
-
-این هم میزان اعتبار چیزی به اسم فتوای مذهبی و نسبت فرمان‌های شخصی دیکتاتوری با قانون در جامعه:
-سخنگوی وزارت امور خارجه جمهوری اسلامی، در کنفرانس خبری خود مدعی شد که چون آمریکا و اسراییل «علی خامنه‌ای» به عنوان «صاحب فتوای منع استفاده از سلاح هسته‌ای» را ترور کرده‌اند، جمهوری اسلامی به تغییر دکترین هسته‌ای خود فکر می‌کند.
-«اسماعیل بقایی تاکید کرد که بحث تغییر دکترین هسته‌ای ایران «موضوعی واقعی» است و نباید آن را صرفا محدود به «مباحث داخلی کشور» دانست.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78960)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 15:20:07
-
-<img src="https://cdn4.telesco.pe/file/VJsp-UE9UNS51a70UtYl5jLt9r3317hmks0JsSpDi4Lf1IfHGp-Fkvs04f_2u37jsSf8b7fEurcdLpUePxCZQL3NTdruoFqt1-BEJ3-86J_BVSsxaq6PT16uaXqT56sbswdTtSKjvH39o-qFkKcMI55HRFooq8ZxfYf-7f8IFCMgd4WOY_T1aFnntjgxANWIUvmerTndxa-Zz4xnsVP5N44R4VKjfN6uaoT8jsJMr1wWLNTpFB7oHT2l9wVi5Mzfs3yS0TCecTSbdDPTxqEWDpbL66m4LaDGtCnS18wPZKFmqPhciG4SDwEdRdE-mOtVp-XaUWWN2uTM8YUcS4ucYA.jpg" width="400"><br>
-
-در ادامه اخبار مربوط به قربانیان تصادف مرگبار دو قطار در اسپانیا در روز یک‌شنبه، دهم آبان‌ماه، خبر رسید که مارتا شهبازی، پژوهشگر ایرانی‌الاصل، نیز در این سانحه جان خود را از دست داده است.
-دکتر مارتا شهبازی آلونسو، شهروند ۴۱ ساله اسپانیا و بریتانیا، و پژوهشگر برجسته در رشته «زیست‌شناسی رشد» در دانشگاه کمبریج، در راه شرکت در یک مراسم برای دریافت جایزه بود.
-«مرگبارترین سانحه ریلی اروپا» روز چهارشنبه، ششم آبان‌ماه، به دنبال برخورد قطار سریع‌السیری که از مادرید، پایتخت، به شهر سِویل در حرکت بود با قطار متوقف مانده بر روی همان خط رخ داد.
-در این حادثه که بر اساس تحقیقات اولیه به دلیل «خطای انسانی» رخ داد، در مجموع ۶۹ نفر جان باختند.
-دکتر مارتا شهبازی که از پدری ایرانی و مادری اسپانیایی بود در مؤسسه سلول‌های بنیادی کمبریج استاد بود و در آزمایشگاه زیست‌شناسی سلول‌ها مسئولیت یک گروه تحقیقاتی را بر عهده داشت.
-خانم شهبازی در توییتر چندین‌بار درباره اعتراضات «زن زندگی آزادی» نوشته بود و از معترضان حمایت کرده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78959)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 15:19:03
-
-<img src="https://cdn4.telesco.pe/file/SKOL-vmBSxTwszfndRGPFUjtcvaEFBEGosrtn10QhaHqWKVM6xYPrT2DTASXLU_qInryrsqqHinAHb4rHrpcpKqob-Jwdd3DdyUjxnTCwngjVKzwQAuAjo9HbA2KO_kCLO5qqqFQzQqRVcoRXOZH5IWAFnVe-_Fn3jYZO2Vou9TflGeZnP8r7RbKuHkZh959LjRbVbySLYtiO5A9V3MlhqP0M2TuXDpS0XNygw1fYw3yTcpMGgMSDxTSDuxtfofkhVnwe0k81b33qZcPhsDGlhgBua0ZiwksFnK9ahyLoMSTQE_FO-RmT2ZGG1dMMJVcvxUt-Gh4svE9pu83J9ef9g.jpg" width="400"><br>
-
-حکم اعدام آرمان معرفتی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ که در زندان قزلحصار کرج محبوس است، از سوی دیوان عالی کشور تایید شد. او پیش‌تر در شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی به اعدام محکوم شده بود.
-بر اساس گزارش خبرگزاری هرانا، اتهامات مندرج در حکم صادر شده علیه آرمان معرفتی شامل «مشارکت در اقدامات عملیاتی علیه امنیت کشور، ورود به اماکن مذهبی با قصد تخریب و مشارکت در آتش‌زدن مسجد و حوزه علمیه» است.
-آرمان معرفتی پیش‌تر به همراه دو متهم دیگر به نام‌های مهرداد محمدی‌نیا و اشکان مالکی در یک پرونده مشترک محاکمه شده بود. این دو زندانی در خرداد ۱۴۰۵ اعدام شدند. آن‌ها با اتهاماتی از جمله همکاری با اسراییل و دولت‌های متخاصم، ایجاد ناامنی و رعب عمومی، تخریب و آتش‌زدن اموال عمومی و مشارکت در اقدامات عملیاتی علیه امنیت کشور به اعدام محکوم شده بودند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78958)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 06:19:28
-
-<img src="https://cdn1.telesco.pe/file/U4-0NFLA_1h2RYd7VOtQkiGHaYBtm79ULS0942U7w28c5qedkQW3gGedQ67qwNAvd5Qh_D_-gopLUbesTyoeTQdI9v69hrzlSeTqMMksG2U5HEDFh0E77ZDsnbwR32Liw74c8UxDqag3Pw-dl2MMGw06NAK-TsoFKiZ4z-v-JdC-aKxAuk-4jqyu3rpC56xs_ZnyijWpgyZzpmC8PxiK_FcfH9tpUshzG1kxgeLGRLkgmQLhRQYNz_9aH3dvFwZUZFZRrhAF3L-eHEbA1siRsRByD068iPqLOg8fKzsam4YTCi6IpuCVx6evZEYTJhAP-mEe-Qteu6_PYBDt8TzirA.jpg" width="400"><br>
-
-پست سنتکام، ترجمه ماشین:
-🚫
-ادعا: وزیر امور خارجه ایران اخیراً به‌طور علنی ادعا کرده است که ایران به غیرنظامیان در کشورهای همسایه حمله نکرده است. این ادعا نادرست است.
-✅
-واقعیت: ایران نه‌تنها عمداً به زیرساخت‌های غیرنظامی، محله‌های مسکونی و دیگر تأسیسات در کشورهای همسایه حاشیه خلیج فارس حمله کرده، بلکه عامدانه دریانوردان غیرنظامی را نیز در دریا هدف قرار داده است؛ حملاتی که در ماه‌های اخیر به کشته شدن بیش از ۲۰ نفر منجر شده‌اند. تجاوزگری کورکورانه ایران کاملاً آشکار و توجیه‌ناپذیر است.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78957)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 06:14:46
-
-<img src="https://cdn1.telesco.pe/file/UKFzuR_LUnnqQwjpxjrZ42sNFoy4UD5LEb-8YwflATQnX9glAVbI4oh2KE6WWUpIek26msHvTgkAKUU9jWjoQRtG2qb73Ue-3sTUqMhFfNPe-88TH6X6cZOx6V_BuhF6ur50kSbB0zG7XdpAlqkkSph05VJYX7w6bed_-hyc9pjiEoGc87k_V9viWYveBZcElPm5eTLjYova7qsc2aO7csXKf4PzhDlo1ErQS23LFAzMT9PN9Aml3Q_gdP69c3OTT9sCGMidK4m3UPnamHH7fJTBkSb5_5fakzIq8zSIRd86KtxI0S_SADPES0XV8MDTYmBnpAWvRWNAEWJzirj7Rw.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در فاصله ۷۲ مایل دریایی شرق رأس‌الخفجی عربستان سعودی دریافت کرده است.
-یک نفتکش که در حال حرکت به سمت جنوب شرقی در خلیج فارس بوده، از سمت چپ هدف اصابت دو پرتابه ناشناس قرار گرفته است.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78956)
 
 ---
 
