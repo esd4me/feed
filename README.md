@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-03 22:21:06 </h5>
+<h5> 🟢 Updated at: 2026-11-04 03:18:12 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-04 00:20:02
+
+<img src="https://cdn1.telesco.pe/file/vyjEYltrshiuXcQDjnfRkf6p564SD8G8BpMXJqs8nJb3293efChF8MntJDBjsfBv87sXxC9lBmyQ00NmCQihA05jdKquMs8Pt9ON5Jm_Vq5y9cnLtJLPT5FrGHEg6CpEBSRrRWGbppe3kjmlkSH1p-6d_JMLWtjwl5l9xv11Xc5mAmZrQPzWyjKqd2PZ6yJoT3n2gl742_vX75zN3oi6O9EdAIkAxgC7yXW5y1BRYoxL7RADZEH-oVNnYllVHTZnQ8e456nyqGGxNIjneFJWha53LD4bJ_gPkx5yjQAjX_MBhvOykcYLInlXFCEfsp1POqd5SBF3_a7JC4Ft4hyOPg.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در فاصله ۱۴ مایل دریایی شمال‌شرق لیما، عمان، دریافت کرده است.
+مسئول امنیتی شرکت مالک یک نفتکش گزارش داده است که دو پرتابه ناشناس به موتورخانه این نفتکش اصابت کرده‌اند.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78985)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-03 18:19:30
@@ -222,7 +238,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-11-03 00:24:36
 
-<img src="https://cdn1.telesco.pe/file/F_TVZqTsExKI_Id9fkyeK0-y3cVT_QH9NEGqp4ROcfF2aIqmyPdaCtkhdJ9YPR44Qq6CpK9l_ig7Jg_exanTQeNaFT-vR-SpLlFIyu2qtYpUe0CRNbycSFYq6LfKJTaHcXqrFko6Sr8i-8RHxkVj1-8FhYRvN2k7OzrsY7F79QItkb1LB2Cg2WngsLvshi6h1g5hp6eKRTIpp0JB18b0krRFybcnLB2Yb-IQITgZvRTWVU0q74o0nQthZnXykZ85Or7tqulj5b9sDDsRKS4nIvHn1cYZHEPN74rlSc3a_AGQuuioWbW9ogXqHIZNFUSmi1u0NrC3IQtSCqEisR3NLg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/FSRv8szpabZ7fQI2k5IYSEPsrT2xuTrtml3obzzC_7Mv26fPozJ2-yx-bIc9DyuJwTO7XCH1G-v3J5cT6a0czC0NjZGKPwMTu0hCTHqh5a_p3bK4zxucp_3DmCJDp8GigCmb7zvHLunlJhrhoQeEkca0JH_mlNw2fxgj2c-hwN6NofZDZvrG6_iJ8bjNBt3BdutQIlAYItn-r0gkHyXQlV993wqMC2GLMrs94TcOkQc1hFkKn_VIpsG1_WN1KyCOrOp7X5mizjd_UCOCKLQgJiP0mkSfANfCp1CasNd7JMFUERGG9wJ4cwCbnpMrG53y7k6-J7TqC6hfMwkRGktqag.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 قیمت نفت با سرعتی سرسام‌آور در حال سقوط است؛ تقریباً ۱۰ دلار در هر بشکه کاهش یافته که یک رکورد محسوب می‌شود، چون مردم احساس می‌کنند جنگی با ایران رخ نخواهد داد. ایران می‌خواهد هرچه سریع‌تر به توافق برسد. ممکن است این اتفاق بیفتد!
@@ -353,43 +369,6 @@ Mohammad_kali
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78965)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 16:26:45
-
-
-
-ترجمه ماشین:
-🔺
-خبرنگار: حالا درباره ایران. نمی‌خواهم از شما بپرسم که آیا پس از انتخابات میان‌دوره‌ای دوباره ایران را بمباران خواهید کرد یا نه؛ اما هدفتان چیست؟ می‌خواهید به چه چیزی برسید؟
-🔻
-ترامپ: خب، خیلی ساده است. آن‌ها دارند شکست می‌خورند. ایران حالا کشوری رو به شکست است. ما ضربه بسیار سختی به آن‌ها زدیم، اما آن‌ها نباید سلاح هسته‌ای داشته باشند. خودشان این را می‌دانند و سلاح هسته‌ای هم نخواهند داشت. قرار نیست سلاح هسته‌ای داشته باشند.
-🔺
-خبرنگار: آیا برای رسیدن به این هدف، تغییر رژیم ضروری است؟
-🔻
-ترامپ: خب، به‌نوعی... می‌دانید، ما دو تا از حکومت‌هایشان را از میان برده‌ایم. بنابراین می‌توان گفت به یک معنا رژیم را تغییر داده‌ایم.
-تازه باید کسی هم باشد که بتوانید با او صحبت کنید. مدام می‌پرسیم: «با چه کسی باید صحبت کنیم؟»
-اما نه، این موضوع برای من کاملاً روشن است. آن‌ها نباید سلاح هسته‌ای داشته باشند، چون از آن استفاده خواهند کرد.
-اگر می‌خواهید دردسر واقعی ببینید، بگذارید سلاح هسته‌ای داشته باشند.
-آن‌ها بسیار تندرو هستند، بسیار افراطی شده‌اند و بزرگ‌ترین حامی دولتی تروریسم در جهان‌اند. ما نمی‌توانیم اجازه بدهیم سلاح هسته‌ای داشته باشند.
-🔺
-خبرنگار: تعجب نمی‌کنید که این‌قدر دوام آورده‌اند؟
-🔻
-ترامپ: خب، نمی‌دانم منظورتان از «دوام آوردن» چیست. ما با آن‌ها مدارا کرده‌ایم، چون هنوز کارشان را یکسره نکرده‌ایم. چون می‌دانید، آن‌ها می‌خواهند مذاکره کنند و مدام حرف می‌زنند و حرف می‌زنند.
-بالاخره در مقطعی مجبور خواهیم شد این کار را انجام بدهیم.
-اما می‌دانید، آن‌ها می‌خواهند توافق کنند. خواهیم دید که آیا توافقی حاصل می‌شود یا نه.
-....
-اگر فکرش را بکنید، ما در حال حاضر در حال جنگیدن نیستیم. در بخش بزرگی از این جنگ، واقعاً در حال نبرد نبوده‌ایم.
-چند بار با آن‌ها درگیر شدیم، ضربه‌های بسیار سختی به آن‌ها زدیم و بعد کنار نشستیم و تماشا کردیم.
-آن‌ها حالا حقوق نیروهای نظامی‌شان را نمی‌دهند. حقوق پلیسشان را هم پرداخت نمی‌کنند. می‌دانید، اوضاعشان دارد از هم می‌پاشد.
-بنابراین کسانی که می‌خواهند ما کشوری جنگ‌طلب نباشیم، به‌نوعی به خواسته‌شان رسیده‌اند. در واقع، انگار دو چیز را به قیمت یکی به دست آورده‌اند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78964)
 
 ---
 
