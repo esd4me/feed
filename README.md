@@ -3,13 +3,33 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-03 06:41:37 </h5>
+<h5> 🟢 Updated at: 2026-11-03 14:59:23 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-03 07:22:17
+
+<img src="https://cdn4.telesco.pe/file/ijXTWRal2cO_9EpHsVR7tJUP6tIruVs2JlhkpJkLHuIXbtkM2PuOBs-nfISblJ0mLq03lqq01DssyvsPZJGezp4my5qV9vHHBCVZ-hvmD1Y1W98IaKjlBZViIyIEgAqPwKrhpA-y4C5Ja9REhwiExkXg3i8egG7umZ7gYLZYu564HZn1XEc8fkJpy8pkp3cKUPCk4_y7APSVjqIGkEsbo2RG9AfSOq7E96LvVse1H0JTviyHDIS-fVHjYuDL121-ojM1nK2izb4H8CXKmO248QEaMhlvZeZm351SfnAHTb3O0scDrR0yC_uoqlQfujcu5vpA8OrLuEJW1L_EpiHMCA.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، سه‌شنبه ۱۲ آبان در گفتگو با شبکهٔ فاکس‌نیوز گفت که ایران در موقعیت مناسبی برای مذاکره قرار ندارد، اما احتمال دستیابی به توافق میان تهران و واشنگتن زیاد است.
+ترامپ با اشاره به وضعیت اقتصادی ایران گفت: «اقتصادشان به خاطر ما در حال فروپاشی است. تورم آن‌ها ۳۰۱ درصد است. پول ندارند و حقوق سربازان و نیروهای پلیس خود را پرداخت نمی‌کنند.»
+او با اشاره به حملات پیشین آمریکا به ایران افزود: «ضربهٔ بزرگی به آن‌ها وارد کردیم و بسیار سخت هدفشان قرار دادیم. این حملات نیروی دریایی آن‌ها را از بین برد و ۱۵۹ کشتی نابود شدند.»
+او در بخش دیگری از این گفتگو با اشاره به تصمیم خود برای آغاز عملیات نظامی علیه ایران در حدود هفت ماه پیش گفت که با وجود این عملیات، شاخص‌های بازار سهام آمریکا و ارزش حساب‌های بازنشستگی این کشور اکنون بالاتر از پیش از آغاز درگیری‌ها است.
+رئیس‌جمهوری آمریکا در پایان با اشاره به کشته شدن شماری از آمریکایی‌ها به دست قاسم سلیمانی تأکید کرد: «نمی‌توانیم اجازه دهیم ایران سلاح هسته‌ای داشته باشد و چنین اجازه‌ای هم نخواهیم داد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78976)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-03 05:45:45
 
-<img src="https://cdn1.telesco.pe/file/aDonqJSYRw1-5I9RfeJMTQJxzkFiJVhiOSn5QtwtpwclIs9RMfXf3ta2V6MVP0LRbtHgK_KE-xQYj8YWf0p9D8KfdL5KvYomVjg8ec-03W1132Z_3b-SWjw6T6Sj2avnRwNUsnUHvksE49thiUvNyrpTUUtkhaVT2qnG7_lgQFB4pE4GyMmvnapuqsG_wJVHO4dgKqMql2ywhglB_oRF-_y3i9yjg4EeZrNCuLjjKzIjY-FaDY5XAXC3q0mrK8q5zL60APfirZWGWq9bHcZfL5E38We3dnF5hQGSB9WEDIYVK_s011eOBuocaNSzpfej-vIW9gZKMLwocn-iFmDuvg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/E8b4BQ-dJ7LPJJkdVYsPiMDcJQFtTg8u5XVKeJtxxCQWmDIHfGoaB0jaCn_aw884LBNxexb5lzXNmBVgWiM29mWVNGSg0LIB1_2v2AzyB2kXUKzr1vpyWjkwMUUzkQhiwSOAo8y4VKeSPDIdcZIfLj2NTGXXyMg3M0wiy5t95Mqh8iX_c7gLx6xG7JIPzGz132OtbGomdxm1D7QtPFIMfJ6acCjcbx5mPShLNaeok17XzjZ78_2egSGwa5zL1RTByOeb8WdzLrAlOfwU_iv84hj0MuybDcUEC5QF8_fXgKGGF8sa_Fa7jOqTVHC0NxizqRQb1mJw4KXGPJDOuPNLTg.jpg" width="400"><br>
 
 خبرنگار اکسیوس، ترجمه ماشین:
 یک مقام آمریکایی گفت سپاه پاسداران دوشنبه‌شب از جزیره قشم موشکی به سمت یک هواپیمای آمریکایی در تنگه هرمز شلیک کرد. سپس یک جنگنده آمریکایی در دفاع از خود، پرتابگر موشک زمین‌به‌هوا را منهدم کرد.
@@ -362,25 +382,6 @@ UK_MTO
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78956)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 06:14:20
-
-<img src="https://cdn1.telesco.pe/file/RgsSUYW7U6xmSjqOpeo7bc1-VHLcn-8pLtqc09C1g3w8u5CIbI7zgudsCKWPj8OQuqBurrtph49BCDRypYtb7NwGxbONIaEKe2Xnp8VzNe1CzzrRiELe9Ibp88uHlS274QiaCAQS_OXkCQf0KMIniMM53SRIzw1-r0suZw0cnAFDZJwF4fI916oUZ3dOMsGmUqLT_UCT75V4Axzs9wA7qpjfI8XvMn42Nk6xSCvwY7Y3G5bcFfihh6wmYBrtZk6cepW_6kRBERq5QjRCJjU8vVEr_WYu47cKFx4QW7T1_5sh64ykjGC73nm72nG4HOxCUey_d-m6zhuYlhhu2ajOUw.jpg" width="400"><br>
-
-در حالی که گزارش‌ها حاکی از تلاش‌های میانجیگران منطقه‌ای برای جلوگیری از وقوع جنگی جدید میان تهران و واشینگتن است، دونالد ترامپ بامداد دوشنبه، ۱۱ آبان به وقت ایران گفت ممکن است لازم شود، «ضربه سنگینی» به جمهوری اسلامی بزند.
-رئیس جمهور آمریکا در یک گردهمایی انتخاباتی در ایالت آیوا، گفت: «تنها دلیلی که هنوز کارم را با ایران تمام نکرده‌ام، این است که می‌خواهم با آن‌ها مدارا کنم. می‌خواهم اگر می‌توانم، جان آن انسان‌ها را نجات دهم... اما در مقطعی، ناچار خواهیم شد ضربه سنگینی به آن‌ها وارد کنیم.»
-دونالد ترامپ در این سخنرانی اظهارات قبلی خود درباره طولانی نشدن جنگ با ایران را تکرار و تأکید کرد آمریکا از نظر نظامی و مالی به پیروزی رسیده و این رویارویی خیلی زود «از یک راه یا راه دیگر» به پایان خواهد رسید.
-او گفت: «من از کشورمان در برابر بزرگ‌ترین حامی دولتی تروریسم در جهان محافظت کردم. آنها از سال ۱۹۷۹ به ما حمله کرده‌اند. صدها نفر از جوانان ما کشته شده‌اند و بسیاری دیگر قربانی بمب‌های کنار جاده‌ای شده‌اند. ما این جنگ را شروع نکردیم، اما آن را تمام می‌کنیم.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78955)
 
 ---
 
