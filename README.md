@@ -3,8 +3,55 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-03 00:37:20 </h5>
+<h5> 🟢 Updated at: 2026-11-03 06:41:37 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-03 05:45:45
+
+<img src="https://cdn1.telesco.pe/file/aDonqJSYRw1-5I9RfeJMTQJxzkFiJVhiOSn5QtwtpwclIs9RMfXf3ta2V6MVP0LRbtHgK_KE-xQYj8YWf0p9D8KfdL5KvYomVjg8ec-03W1132Z_3b-SWjw6T6Sj2avnRwNUsnUHvksE49thiUvNyrpTUUtkhaVT2qnG7_lgQFB4pE4GyMmvnapuqsG_wJVHO4dgKqMql2ywhglB_oRF-_y3i9yjg4EeZrNCuLjjKzIjY-FaDY5XAXC3q0mrK8q5zL60APfirZWGWq9bHcZfL5E38We3dnF5hQGSB9WEDIYVK_s011eOBuocaNSzpfej-vIW9gZKMLwocn-iFmDuvg.jpg" width="400"><br>
+
+خبرنگار اکسیوس، ترجمه ماشین:
+یک مقام آمریکایی گفت سپاه پاسداران دوشنبه‌شب از جزیره قشم موشکی به سمت یک هواپیمای آمریکایی در تنگه هرمز شلیک کرد. سپس یک جنگنده آمریکایی در دفاع از خود، پرتابگر موشک زمین‌به‌هوا را منهدم کرد.
+BarakRavid
+فاکس نیوز:
+مقام‌های آمریکایی روز دوشنبه تأیید کردند که ایالات متحده جزیره قشم ایران در تنگه هرمز را هدف حمله قرار داده است.
+یک مقام آمریکایی گفت این حمله در واکنش به شلیک ایران به سمت یک هواپیمای آمریکایی در شامگاه دوشنبه انجام شده است.
+این مقام تأیید کرد که حمله در واکنش به شلیک اولیه ایران و با هدف «دفاعی» انجام شده و به معنای ازسرگیری حملات نظامی آمریکا به ایران یا آغاز تشدید تنش‌ها نیست.
+foxnews
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78974)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-03 04:27:49
+
+<img src="https://cdn1.telesco.pe/file/il_19JmyYfR6C1PMn6pr0U4kdV9EZEyUqcJDEc41WzzKLf2__hiMGopClsmtb2zPYbjYxY2Pi6Ym9CY_dI3HDrwj2cpwRXKrh-QwcVh8AaPRJ1gQ_yPtqbKiKsSNzM0j05FzVSZAzcUDzJs8-l3M5x53hspwM3o_9QIFlGEKI_FUNjF5h6t_oR75hSQIvQ1dZ061m01hLa7vCzGvdO3qq8vAOBjIHy2xlmB08b47iJJrZo0k8xDaBGIgvmywfkkiLv1Ls6BxYT7UjCjN2Ur-iwoD1_oBHYNdpq5vidC-pwmVh62hi_x-awfyHWbg5CPfrEZiaTt4WJg26B7yYY5dYg.jpg" width="400"><br>
+
+☄️
+آمریکا درستی خبر
+حمله به جزیره قشم
+را تایید کرد
+وال‌استریت ژورنال دوشنبه ۱۱ آبان به نقل از مقام‌های آمریکایی گزارش داد ایالات متحده جزیره قشم را هدف حمله قرار داده است. این عملیات بخشی از مجموعه حملات محدود و اعلام‌نشده‌ای است که واشینگتن در هفته‌های اخیر علیه ایران انجام داده است.
+به گفته مقام‌های آمریکایی، هدف این حملات جلوگیری از اقدام جمهوری اسلامی علیه کشتی‌های تجاری در تنگه هرمز است.
+یکی از این مقام‌ها گفت آمریکا عامدانه عملیات را بدون اعلام عمومی انجام می‌دهد تا نشانه‌ای از قصد واشینگتن برای آغاز دوباره جنگ گسترده ارسال نشود.
+قشم دارای یک مجموعه بزرگ موشکی زیرزمینی و پایگاه دریایی است و مقام‌های آمریکایی پیش‌تر درباره احتمال تصرف این جزیره گفت‌وگو کرده‌اند.
+این روزنامه نوشت برد کوپر، فرمانده سنتکام، هفته گذشته برای ارائه گزارشی درباره درگیری با ایران به کاخ سفید رفت. ارتش آمریکا نیز با انتقال سامانه‌های پدافند موشکی و مهمات بیشتر به منطقه، برای حملات احتمالی گسترده‌تر آماده شده است. واشینگتن همچنین به کشورهای حوزه خلیج فارس هشدار داده بود برای عملیاتی کوتاه و شدید پس از انتخابات میان‌دوره‌ای آمریکا آماده باشند.
+با وجود این تحرکات، دونالد ترامپ، رییس‌جمهوری آمریکا، روز دوشنبه احتمال ازسرگیری جنگ گسترده را کم‌اهمیت جلوه داد و گفت: «ما با ایران جنگ داشتیم و پیروز شدیم. اصلا نمی‌دانم می‌شود اسمش را جنگ گذاشت یا نه، چون ماه‌هاست که هیچ درگیری و جنگی نداشته‌ایم.»
+او همچنین از احتمال دستیابی به توافق دیپلماتیک با جمهوری اسلامی نیز سخن گفته است.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78973)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-03 00:24:36
@@ -28,8 +75,10 @@ realDonaldTrump
 
 
 
-پیام‌های دریافتی:
-قشم
+☄️
+پیام‌های دریافتی از
+#قشم
+:
 ۶ تا شدید
 انفجار زیاد
 6 تا انفجار پشت هم توی قشم ساعت 12:14 دقیقه
@@ -53,6 +102,15 @@ realDonaldTrump
 هر سری سه چهارتا پشت سر هم
 شدید
 وحشتناک بود ۵یا ۶بار شدید
+آپدیت: حدود یک ربع ساعت بعد ایرنا، خبرگزاری دولت در جمهوری اسلامی نوشت:
+دقایقی پیش صدای پنج انفجار در جزیره قشم به گوش رسید
+🔹
+به گزارش خبرنگار ایرنا در قشم، این انفجارها به صورت ممتد و پشت سر هم صورت گرفت و با توجه به شدت انفجارها به نظر می رسد اصابت در داخل جزیره بوده است.
+🔹
+برخی قشموندان نیز پرواز دو هواگرد در آسمان قشم را گزارش کرده اند.
+🔹
+منابع محلی و استانی تاکنون در این زمینه اظهار نظر رسمی نکرده اند.
+‌
 📡
 @VahidOnline
 
@@ -276,7 +334,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-02 06:19:28
 
-<img src="https://cdn1.telesco.pe/file/S3zUvV_4hdLF1Q-VBWcLLGrNfijONY0PO9GWLiuHbA6P6h7mQa5uGptgAF06Yn4iOx0_XtxTDhbcQEJBultMFtPdVhlx-b6ZgWr3faOiTowFUOaXmScSOlNfMZ2lhlW8w8_jtzL2-sJMaFW9O9p7UMuSMm2CUr8dfFx31xsw-yCQRzqW0oBfciSp2mOj3D2_UANAzSgAI2o4uccNI1zk46xAyixxBvHAIIPvIv_KHCZc1DW_hhuWxmijQnaP40t_9ylb-d2kp-W41aDTI4f_wYLtc1MvA6e2K0CT-HwGPBK9O1ICbCjqwO-TfuPSQkHk0GAmuips715EYGn5kY71Yg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/U4-0NFLA_1h2RYd7VOtQkiGHaYBtm79ULS0942U7w28c5qedkQW3gGedQ67qwNAvd5Qh_D_-gopLUbesTyoeTQdI9v69hrzlSeTqMMksG2U5HEDFh0E77ZDsnbwR32Liw74c8UxDqag3Pw-dl2MMGw06NAK-TsoFKiZ4z-v-JdC-aKxAuk-4jqyu3rpC56xs_ZnyijWpgyZzpmC8PxiK_FcfH9tpUshzG1kxgeLGRLkgmQLhRQYNz_9aH3dvFwZUZFZRrhAF3L-eHEbA1siRsRByD068iPqLOg8fKzsam4YTCi6IpuCVx6evZEYTJhAP-mEe-Qteu6_PYBDt8TzirA.jpg" width="400"><br>
 
 پست سنتکام، ترجمه ماشین:
 🚫
@@ -295,7 +353,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-11-02 06:14:46
 
-<img src="https://cdn1.telesco.pe/file/Lhn-w-U_cfW-8DWBJeplVI4gKPo8XmDkZ5CzEQtB4WtOqd5nQs-3hEOITAF2pZEZ_GPjf5L3hL3FEq-cIim4fXCrbnihzr2RE6eQl53KEtXVCwiMR2e5IcOOo8adyHsTSEzFbk9d80LmWxeDVAfDlu88veZ739kwJ99TF0zn6Ve84phzzQjMEzaHodevtDxtiAwMugedo4Y5GIp203ZKxExNuz8u8a_1oWOs0zPPikGD7T2-Gai5mD75k5Vdr1UYd3n3bxTVo1QRmbhiAjUqcpBvX7dfIPcnQWWvPjm9bg76d3fc5ycfPdEPBu-eklP5VzIo-Va9R0JwQtrpH_ELMA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/UKFzuR_LUnnqQwjpxjrZ42sNFoy4UD5LEb-8YwflATQnX9glAVbI4oh2KE6WWUpIek26msHvTgkAKUU9jWjoQRtG2qb73Ue-3sTUqMhFfNPe-88TH6X6cZOx6V_BuhF6ur50kSbB0zG7XdpAlqkkSph05VJYX7w6bed_-hyc9pjiEoGc87k_V9viWYveBZcElPm5eTLjYova7qsc2aO7csXKf4PzhDlo1ErQS23LFAzMT9PN9Aml3Q_gdP69c3OTT9sCGMidK4m3UPnamHH7fJTBkSb5_5fakzIq8zSIRd86KtxI0S_SADPES0XV8MDTYmBnpAWvRWNAEWJzirj7Rw.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در فاصله ۷۲ مایل دریایی شرق رأس‌الخفجی عربستان سعودی دریافت کرده است.
 یک نفتکش که در حال حرکت به سمت جنوب شرقی در خلیج فارس بوده، از سمت چپ هدف اصابت دو پرتابه ناشناس قرار گرفته است.
@@ -323,27 +381,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78955)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 01:01:27
-
-
-
-⚠️
-به گزارش فاکس نیوز، یک هواپیمای خصوصی حامل ۹ سرنشین در بعدازظهر یکشنبه، در محله‌ای مسکونی در جنوب فلوریدا و در فاصلهٔ تقریبی ۹ مایلی (حدود ۱۴ کیلومتری) از عمارت مارالاگو متعلق به دونالد ترامپ، رئیس جمهوری آمریکا، سقوط کرد و به گلوله‌ای از آتش بدل شد.
-سانحه‌ای مرگبار که دست‌کم ۹ کشته برجای گذاشت.
-بر اساس اعلام سازمان هوانوردی فدرال آمریکا (FAA)، این هواپیما که از فرودگاه بین‌المللی آستین در تگزاس عازم باهاما بود، در نزدیکی منطقهٔ کرست‌هیون به زمین برخورد کرد.
-بنا بر داده‌های پایگاه «فلایت‌رادار۲۴»، این هواپیما پس از پرواز در ارتفاع ۴۱ هزار پایی، ناگهان وارد یک نزول تند به سمت راست شد و با سرعتی سرسام‌آور به زمین اصابت کرد.
-حادثه‌ای که در پی آن نیروهای امدادی بخش‌هایی از معابر اطراف را مسدود کرده و با اعلام وضعیت سانحهٔ پرخطر و گسترده، از مردم خواسته‌اند تا اطلاع ثانوی از تردد در این محدوده خودداری کنند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78953)
 
 ---
 
