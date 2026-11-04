@@ -3,8 +3,33 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-04 03:18:12 </h5>
+<h5> 🟢 Updated at: 2026-11-04 07:29:48 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-04 04:23:04
+
+
+
+دونالد ترامپ، روز سه‌شنبه، در گفت‌وگو با روزنامه «فایننشال تایمز» با رد گمانه‌زنی‌ها درباره تصمیم واشنگتن برای تشدید رویارویی نظامی با جمهوری اسلامی ایران پس از انتخابات میان‌دوره‌ای کنگره، تأکید کرد که ایالات متحده «هیچ برنامه فوری برای حمله به ایران ندارد.» رئیس‌جمهوری ایالات متحده با اشاره به اینکه واشنگتن وضعیت فعلی در قبال تهران را «رضایت‌بخش» می‌داند، گفت: «به نظر می‌رسد ما به هر آنچه می‌خواستیم می‌رسیم.»
+او همچنین در پاسخ به نشانه‌های مطرح‌شده از سوی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، مبنی بر احتمال حمله قریب‌الوقوع طی روزهای آینده افزود: «من آماده‌ام، ما آماده‌ایم. در صورت نیاز کاملاً آماده و مسلح هستیم، اما شاید دلیلی برای انجام آن وجود نداشته باشد.»
+رئیس‌جمهوری آمریکا با تأکید بر اینکه به دلیل آسیب‌های پیشین به زیرساخت‌ها، واشنگتن را در وضعیت یک «جنگ واقعی» با تهران مانند جنگ‌های جهانی نمی‌داند، از تداوم مذاکرات غیرمستقیم بر سر ذخایر اورانیوم غنی‌شده ایران خبر داد و تصریح کرد: «با وجود اینکه این مواد زیر صدها تن سنگ قرار دارند، از بودنشان در آنجا راضی نیستم.
+@
+VahidOOnLine
+رییس‌جمهوری آمریکا گفت: «به نظر می‌رسد داریم به هر آنچه می‌خواهیم، دست پیدا می‌کنیم.»
+ترامپ به فایننشال تایمز گفت که اکنون نفت بیشتری نسبت به پیش از جنگ از تنگه هرمز، گذرگاه حیاتی انتقال نفت خام از خلیج فارس، عبور می‌کند و محاصره بنادر ایران از سوی آمریکا نیز با موفقیت در حال تضعیف اقتصاد تهران است.
+او با «فوق‌العاده» خواندن وضعیت، افزود که آمریکا «در واقع» در حال جنگ با ایران نیست.
+ترامپ درباره اورانیوم غنی‌شده ایران، گفت: «با وجود اینکه این مواد زیر صدها تن سنگ قرار دارد، باید بگویم از اینکه همچنان آنجا باقی بماند، خوشحال نیستم.»
+او گفت: «بنابراین، این یکی از موضوعاتی است که درباره آن گفت‌وگو می‌کنیم. اما می‌دانید، ما در حال مذاکره هستیم و خواهیم دید که نتیجه چه خواهد شد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78986)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-04 00:20:02
@@ -171,7 +196,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-03 07:22:17
 
-<img src="https://cdn4.telesco.pe/file/ijXTWRal2cO_9EpHsVR7tJUP6tIruVs2JlhkpJkLHuIXbtkM2PuOBs-nfISblJ0mLq03lqq01DssyvsPZJGezp4my5qV9vHHBCVZ-hvmD1Y1W98IaKjlBZViIyIEgAqPwKrhpA-y4C5Ja9REhwiExkXg3i8egG7umZ7gYLZYu564HZn1XEc8fkJpy8pkp3cKUPCk4_y7APSVjqIGkEsbo2RG9AfSOq7E96LvVse1H0JTviyHDIS-fVHjYuDL121-ojM1nK2izb4H8CXKmO248QEaMhlvZeZm351SfnAHTb3O0scDrR0yC_uoqlQfujcu5vpA8OrLuEJW1L_EpiHMCA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/cJvByozlXPkApd6YGp7tqQQD4JlyWmZGxuhKvQEDWUg1hPvTCXvOi1Taq6oxHUpe1K_HxI9hYRnoAUsyxF3qQRxRb9QSwijIl8Br-JsKI3hsai-1W3N-Uo-0ASWOaPOUF29PsKESM0yI132KI0PD2ysn82QBES79s9MpVd_rKBwGRRKKqRw1udZ2ZvHhrBLtO756hzwX1qisBmjb1_731RAUcBMWk2TgKOFO5m6nEnYZv_aamPostFh9BHS-tvquGQNnWUFbuXmKfV9ltczorHi8yO66r3cnb3Ht7_Tb8xxa4A7be9Zj3x90WgiAOS-CinMmIAxHH1MdlL0SMfnI6w.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری ایالات متحده، سه‌شنبه ۱۲ آبان در گفتگو با شبکهٔ فاکس‌نیوز گفت که ایران در موقعیت مناسبی برای مذاکره قرار ندارد، اما احتمال دستیابی به توافق میان تهران و واشنگتن زیاد است.
 ترامپ با اشاره به وضعیت اقتصادی ایران گفت: «اقتصادشان به خاطر ما در حال فروپاشی است. تورم آن‌ها ۳۰۱ درصد است. پول ندارند و حقوق سربازان و نیروهای پلیس خود را پرداخت نمی‌کنند.»
@@ -191,7 +216,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-03 05:45:45
 
-<img src="https://cdn1.telesco.pe/file/E8b4BQ-dJ7LPJJkdVYsPiMDcJQFtTg8u5XVKeJtxxCQWmDIHfGoaB0jaCn_aw884LBNxexb5lzXNmBVgWiM29mWVNGSg0LIB1_2v2AzyB2kXUKzr1vpyWjkwMUUzkQhiwSOAo8y4VKeSPDIdcZIfLj2NTGXXyMg3M0wiy5t95Mqh8iX_c7gLx6xG7JIPzGz132OtbGomdxm1D7QtPFIMfJ6acCjcbx5mPShLNaeok17XzjZ78_2egSGwa5zL1RTByOeb8WdzLrAlOfwU_iv84hj0MuybDcUEC5QF8_fXgKGGF8sa_Fa7jOqTVHC0NxizqRQb1mJw4KXGPJDOuPNLTg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/kdYMue7mzPC2CnoKLvL5ABlv1FyOc66q0h91h6e59FDNTOUbMW-MHK7EDT2m9rsoPsWTUp4jagekSnIt5vJKVvQaH1B19hCPE9xUDdoZFQRjM48stU3tNL51c_0mMWpRfmHuHAVDeMQXOZ6T8kMhypBn8rXGLzAQOXZVrNEY-aP9jry8NXHfAcfB2AzBO2MvYEh4J0XItraqOgkH8-Qy3WOPysqj0pOOE1uuhwkdOwh_qrhZCk4Fu9w28pdIzpJ1AJ53_hEclX-HKbEbVfg3V-S1CK_m32ywnsrDxGfhL0sfKGRPWc6QFrL2fotNFKVj5aaFWIC-DEMsEWLJ7dthRQ.jpg" width="400"><br>
 
 خبرنگار اکسیوس، ترجمه ماشین:
 یک مقام آمریکایی گفت سپاه پاسداران دوشنبه‌شب از جزیره قشم موشکی به سمت یک هواپیمای آمریکایی در تنگه هرمز شلیک کرد. سپس یک جنگنده آمریکایی در دفاع از خود، پرتابگر موشک زمین‌به‌هوا را منهدم کرد.
@@ -212,7 +237,7 @@ foxnews
 
 ###### 🔵 Post time: 2026-11-03 04:27:49
 
-<img src="https://cdn1.telesco.pe/file/il_19JmyYfR6C1PMn6pr0U4kdV9EZEyUqcJDEc41WzzKLf2__hiMGopClsmtb2zPYbjYxY2Pi6Ym9CY_dI3HDrwj2cpwRXKrh-QwcVh8AaPRJ1gQ_yPtqbKiKsSNzM0j05FzVSZAzcUDzJs8-l3M5x53hspwM3o_9QIFlGEKI_FUNjF5h6t_oR75hSQIvQ1dZ061m01hLa7vCzGvdO3qq8vAOBjIHy2xlmB08b47iJJrZo0k8xDaBGIgvmywfkkiLv1Ls6BxYT7UjCjN2Ur-iwoD1_oBHYNdpq5vidC-pwmVh62hi_x-awfyHWbg5CPfrEZiaTt4WJg26B7yYY5dYg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/kZ7L-4lhOO28Ah6viGYbAreDQe63m4Wu8r5EQ1qNSV1ifLtiv8Ka9TrKr9Mal0THSylur4SelYKP1BkA7jZDJ_K8NjH1bcGye4SF3qHtJ9trMcgEOTYIVaGuk4Y1IVwo3UlkMZBUaxec6WHrvqvN_88K7ivn0UQgwdYoSZSxbA25TGJ0JEK9YxjcFfQdx2xy-3Gaf0eg3MoKf-M0vA3En1dw3m88mknCUUzS1RS4ASwch4x0ko4A9PX80JuqFp6iPSNPhnuOCsfpXqJKMmWOAWwFWQxkMANzSg8-Uey1GNYqrO1sewKeE5tu8pLuscov4_G68t-ty8pXEQ0mLXINhQ.jpg" width="400"><br>
 
 ☄️
 آمریکا درستی خبر
