@@ -3,8 +3,82 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-04 07:29:48 </h5>
+<h5> 🟢 Updated at: 2026-11-04 15:28:16 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-04 09:36:23
+
+<img src="https://cdn1.telesco.pe/file/FdqYnL2GOfH7WmeE189-Sngg54SEjUYjjLvX27g8qVGT34f9XLRhAZNnFXCcLRJTmdaK9m2jyp3k87RzRa9tCJPwh2fmGEpEIZ3cWnmE0K_fY4HDfTuWo3VMz7_5WWQhvridzcd4PbgO-UucrmBPH9Kkce2j33G27AdJ54lmkAQxfRB-dL_z6BykMoV7vSJ23VGzeWh-Idtv7T18J3nBnHtKA3tuP3dt7oEZqtCkSYBIlABe7hmnvd1xhIpek4YY_x0ism-ahqh1A5ucNYsdDivs_fA5n_-isO1RwH5b-Njk7kyAGVvqj0vSFK4zI-yql7wVI8HR-nUfW2VvwnOvNw.jpg" width="400"><br>
+
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78992)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 09:34:58
+
+<img src="https://cdn4.telesco.pe/file/o0Yk9KWALf4qhU2xmiWvcZQ_nj_m6yrkJJ1uONUN9c5efkI-mb2xK6QqpujAk0tfFmM4cycN0mNaoIq5VgbLymnw3k1ygdOFKHHiqMwICmbALjro-wJkWe8eK7L67Iv-LPorXXyvEcWCh-Cl4FSkbXoCm6zRIt168ZJ-JR4NjQePmbLlTLIlQ4p_fIJaqnbx6wPBsyWqUhaHOBw8SxEBcPMRR1aeFZmk0Ql2-0crGI336rf_mD5nxG3m5NEvKJUQtS_kYwSjzR1dgAOIwKCcGq5BS6OCUk_g4x98QIQ3Duu5gvzyMCC_03Z-rIno6_pebqIyKjWRdcah-b2fY797Og.jpg" width="400"><br>
+
+محمد باقر قالیباف، رئیس مجلس شورای و نماینده ارشد جمهوری اسلامی در مذاکرات با ایالات متحده، صبح چهارشنبه ۱۳ آبان و پس از اعلام نتایج انتخابات میان‌دوره‌ای ایالات متحده، موفقیت دموکرات‌ها در تسلط بر هر دو مجلس نمایندگان و سنا را «نه» مردم آمریکا به جنگ توصیف کرد.
+قالیباف در این پیام نوشت: «چه به خاطر وجدان باشد و چه به دلیل هزینه‌های زندگی، آمریکایی‌ها به جنگ «نه» گفتند و ما از این پیام حمایت می‌کنیم.
+اگر دولت ایالات متحده به خواست مردم خود خیانت کند تا در خدمت اربابان بین‌المللی و باج‌گیران باشد، درخواهد یافت که «نه» ما، کابوسی را به دنبال خواهد داشت.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78991)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 09:34:25
+
+<img src="https://cdn1.telesco.pe/file/L05qQqj5FfAKwAGB4fZUSEhpPJFcJXRrOHL_GKq7DbX4Cys1h17a_chvFgSf1sgAEjGIA08zpm2PtV1zuXJWJdhSlJM4tz8fnuaV8ve1bt2xajtzKKVwBjQDyxBzNZWqJa3C4yDQEjirI4eIztgLLwLw4j93b69W9HHSVjIW8gaG8O0wj9xH6VDRE60TLPrr5hjtkmD-q9EYaPKYAR-6l6esPfFpDurqIqCwn9ywkFYQYEc30h4_nZfxRz5CEa4D1dENm-N4KwzmQXENv_3QPUA-hPuu19SxVscMW-4yt11MQErJ8juAJkLKkTRJTdgFrT9TnB1EBMWURvdksWnauw.jpg" width="400"><br>
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، پذیرفت که جنگ با ایران در شکست جمهوری‌خواهان در انتخابات میان‌دوره‌ای سه‌شنبه نقش داشته است.
+ترامپ به فاکس‌نیوز گفت دموکرات‌ها طرح‌هایی «دیوانه‌وار» برای امضا به کاخ سفید خواهند فرستاد و او آن‌ها را وتو خواهد کرد.
+رییس‌جمهوری آمریکا همچنین گفت که مردم احتمالا نتوانستند پیامدهای کوتاه‌مدت قیمت بنزین پس از جنگ ایران را بپذیرند.
+ترامپ اعلام کرد که قصد تغییر در ترکیب کابینه خود را ندارد.
+@
+VahidOOnLine
+دونالد ترامپ، رئیس جمهوری آمریکا، بامداد چهارشنبه ۱۳ آبان در گفت‌وگو با فاکس نیوز اعلام کرد که نتیجه انتخابات میان‌دوره‌ای کنگره را می‌پذیرد و گفت:‌ «با دموکرات‌ها کار خواهم کرد.»
+ترامپ به خبرنگار فاکس‌نیوز گفت: فکر می‌کنم دموکرات‌ها واقعا خوب کار کردند. آن‌ها سخت جنگیدند. این فضا [برتری دموکرات] وجود داشت و من نباید احساس تقصیر کنم.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78989)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 09:33:26
+
+<img src="https://cdn1.telesco.pe/file/iXmK0opU6gjIvjrezPVkedFJuxMijlpnUGYx_OiztNI8SuSG7pMMARuPTk3UIRxlqHzAyGsgkwWJcIzpggx5Z1DzeX0Yy5dBvfBFN5rWVd6bkRCyVrQFtLy5xFUL92mjyYW6r2M38s7IZ8KbMtt1bgincSM0vDR5vEHbqXKLTnf7qE6QhOJni200RwqWw5Zn0hpKcWBbjBphQN6M4MMWXGuWQaVB6vbV0sfeLZyCY15ikLyqDyXYBUNLaeEtNsR0pOlTeEQCGuyg30b7Od88_4UxjvOtl8BI3zJLNZUzp3huQNR1RC_67pP1k8lVJSc5jk0WeWVmKl46vP5jLQECuQ.jpg" width="400"><br>
+
+به گزارش سی‌بی‌اس نیوز، با شمارش بیش از ۵۰ درصد آرا در انتخابات میان‌دوره‌ای آمریکا، حزب دموکرات توانسته است اکثریت را در هر دو مجلس نمایندگان و سنا به دست آورد.
+در مجلس نمایندگان تاکنون، دموکرات‌ها ۱۹۵ و جمهوریخواهان ۱۱۵ کرسی را کسب کرده‌اند.
+در مجلس سنا هم دموکرات‌ها با ۵۲ کرسی در مقابل ۴۱ کرسی جمهوریخواهان، پیروز شده‌اند.
+شمارش آراء ادامه دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78988)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-04 04:23:04
@@ -322,78 +396,6 @@ realDonaldTrump
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78971)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 19:56:28
-
-
-
-ونس: در هالووین بیشتر شبیه یه شیخ ایرانی شده بودم تا معاون رئیس‌جمهور آمریکا!
-ترجمه ماشین:
-«برای هالووین لباس دامبلدور پوشیدم؛ می‌دونید، همون شخصیت هری پاتر، دامبلدور.
-مردم می‌پرسیدند: چرا لباس دامبلدور پوشیدی؟
-من هم گفتم: خب، چون به بچه‌هام یه شرط رو باختم. برای همین!
-وگرنه چرا یه مرد بالغ باید یه کلاه‌گیس زشت سرش بذاره که تازه خیلی هم ناراحت بود؟
-می‌دونید، با اون لباس بیشتر شبیه یه شیخ ایرانی شده بودم تا معاون رئیس‌جمهور آمریکا!
-ولی بهمون خوش گذشت.»
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78969)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 19:24:10
-
-<img src="https://cdn4.telesco.pe/file/XId3W-rqUzIaVcThvgk-f9XqGfKOa7eAT4t9D2zNGdl56taKTJ6Ed0x3-pyVg4PipxGfx_ZwS3VuX0CLpGL3PjSqQKAKFJSCDkx_4TRsYsIgIg7PGf-anhFG-Piq2KpaxhSefuJ67LZR48deGqFSWe7io0z0fRJrNgl3gmtQ8YUTVGQVCD-IkLhDPj3eJ15KF_4EU92VMFlNq9VbeJiyBchgLVu-AYMTH-JB-5SnL9dN_zy5wXL7YUM_Mfu7OeU1gQB18AB2DvCB5C8T96cpgyiZR9NYJlnF2VrNmi3yE5wW45XAHGNsdtz5bFquilTVAdAuuvljJXTHG5qMLakIIw.jpg" width="400"><br>
-
-وانگ یی، وزیر امور خارجه چین، روز دوشنبه ۱۱ آبان در دیدار با مشاور امنیت ملی عربستان سعودی در پکن گفت که منطقه خلیج فارس بار دیگر به «دوراهی حساسی میان جنگ و صلح» رسیده است.
-او افزود چین امیدوار است همه طرف‌ها از طریق مذاکره به خصومت‌ها پایان دهند.
-به گفته وانگ، همه طرف‌ها باید برای حفاظت از امنیت انرژی منطقه و امنیت مسیرهای کشتیرانی تلاش کنند.
-بر اساس خلاصه‌ای از این دیدار که وزارت امور خارجه چین منتشر کرد، وانگ همچنین گفت پکن آماده است برای دستیابی به پیشرفت‌های تازه در روابط دوجانبه، با طرف سعودی همکاری کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78968)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 19:21:59
-
-<img src="https://cdn4.telesco.pe/file/RH9WWAnbQ7Lr_Oen7S0BHF_KYpNezJlecr2qoX9WQGrNnOkycI0ylTwhl78t7nqo8NsIcNWliOLAiB4-oXg2ZGOMFgnr3oV6W6mwbjLzRaM9dip_pia12eqOIG4tOyblH13EaMUpqf6ETg6pqeu46lT0fdzMyZtfTIcnb4nIHcq3CR8jSajfc2is_M6DPPQYcjayXONyXYmZOxZuv3aUoLeT0AJVwU56q2uf309ULweVh9dItpUaaQh89j5FB6a5ieGpUEX3QB2TGyPYc0kzFu_aO_XuxF9gA1GIY0i7auaunQdy7SqwppgsX3RjEU5JWZ-cDT_8tAC-vw5u5ovRCg.jpg" width="400"><br>
-
-مسعود پزشکیان که روز دوشنبه در نشستی با استانداران سخن می‌گفت، با تأکید بر اهمیت عبور از «چالش‌ها و بحرانی که دشمنان برای ایران ساخته‌اند»، گفت: «تلاش می‌کنیم با گفت‌وگو مشکل را حل کنیم».
-رئیس دولت در ایران همزمان تأکید کرد که مجتبی خامنه‌ای‌ رهبر جمهوری اسلامی در زمینۀ پیش‌برد گفت‌وگوها، اختیاراتی به دولت داده است. او به جزئیات بیشتری درباره این اختیارات اشاره نکرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78967)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-02 16:31:19
-
-<img src="https://cdn1.telesco.pe/file/XpFfga5dXsO9lkCPTusX7TpDp8242Fu4AT-ArU9qngtgdJe0rtclamSuX3a_Ir51TONQOwiretWSpmy8B8y7S1x-DAIYbpHwyfrcyHyOy5hNDSKmhyBmbvK4t0WxvnjmF_DsrWxijq71qhCLjwGejjoqQWxKV_c5nGQ9NRlB_W5mYHpz-5vHavd6M7uHjm3PSKcv_rr4MYAgRxZHaP6OmOQzoP103qsIRB44Ai73OtVbNsmv-ERH0eIOXtquuV1hKUOsmUeTv9HHwUO2M71-_OEs6o8IX2WAkYILLlgbivGD3XGwbHwq5xvivp6VRp6lhnYpe42cyDzc4CgOUI4sTA.jpg" width="400"><br>
-
-محمود گبرلو -منتقد سینما- تصویری از نوزدهمین جشنواره فیلم مقاومت منتشر کرده و نوشته: این تصویر واقعی است! من در سالن بدون تماشاگر جشنواره فیلم مقاومت!
-Mohammad_kali
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78965)
 
 ---
 
