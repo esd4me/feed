@@ -3,8 +3,163 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-04 15:28:16 </h5>
+<h5> 🟢 Updated at: 2026-11-04 22:59:38 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-04 22:45:03
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۱۳ آبان‌ماه، یک روز پس از برگزاری انتخابات میان‌دوره‌ای کنگرهٔ آمریکا، هنگام بازدید از محل ساخت سالن رقص جدید کاخ سفید، در پاسخ به پرسش خبرنگاران اذعان کرد که جنگ ایران در شکست جمهوری‌خواهان نقش داشته است، اما تأکید کرد که اگر بار دیگر در موقعیت تصمیم‌گیری قرار بگیرد، همان اقدام را تکرار خواهد کرد.
+ترامپ در پاسخ به پرسش خبرنگاری دربارهٔ اظهارات جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، مبنی بر اینکه جنگ ایران عامل شکست جمهوری‌خواهان در انتخابات بوده است، گفت: «فکر می‌کنم این موضوع تا حد زیادی درست است، زیرا جنگ در کوتاه‌مدت قیمت بنزین را کمی افزایش داد.»
+رئیس‌جمهوری آمریکا افزود: «اما اگر مجبور بودم دوباره آن کار را انجام دهم، باز هم انجامش می‌دادم، زیرا در بلندمدت این تنها راه‌حل است. شما نمی‌توانید اجازه دهید ایران به سلاح هسته‌ای دست یابد.»
+جی‌دی ونس پیش‌تر در پیامی در شبکهٔ اجتماعی ایکس، با اشاره به شکست نامزدهای جمهوری‌خواه در انتخابات میان‌دوره‌ای و از دست رفتن اکثریت سنا، جنگ ایران را عامل اصلی این شکست دانست و نوشت که بسیاری از رأی‌دهندگانی که در انتخابات ریاست‌جمهوری سال ۲۰۲۴ از ترامپ حمایت کرده بودند، این بار به نامزدهای دموکرات رأی داده‌اند.
+ونس تأکید کرد که مشکل اصلی جمهوری‌خواهان کاهش مشارکت هوادارانشان نبوده، بلکه نارضایتی رأی‌دهندگان از سیاست‌های دولت بوده است. به گفتهٔ او، نظرسنجی‌ها نشان می‌دهد پایان دادن به جنگ ایران، رسیدگی به هزینه‌های زندگی و تورم، اجرای سیاست «اول آمریکا» و تغییر روابط با اسرائیل، چهار خواستهٔ اصلی رأی‌دهندگانی بوده که از جمهوری‌خواهان رویگردان شده‌اند.
+معاون رئیس‌جمهوری آمریکا همچنین از تلاش برخی سیاستمداران تشکیلات حزب جمهوری‌خواه برای فرافکنی انتقاد کرد و گفت هرگونه گفتگوی صادقانه دربارهٔ آیندهٔ این حزب باید با پذیرش دلایل شکست انتخاباتی آغاز شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79000)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 20:54:37
+
+<img src="https://cdn1.telesco.pe/file/VCudtQsHrdMst15n0GNEEjeUAcBpIFEk4xe1ZaD73ZHb7Q17AsMoompOZaSq0ZyIqyG8Kg0PCvwH60salMzH5hppuj9qt_X0YSgKteSuMhUucKGvUIno01IZr2rlAIe72zsMj0u3HFQkmVH45OUJt_tF4TanArcV2nE1V_dxuN5Yt-HgpBuu-EWUW5H_9_rdpkDcirKzMDUOHglvkb9wHOtawINfc-bzU_TKmN2xCNosmxoHBdDH2W9IclCzQrTT52FeuhYeG1YH1gOj1mCqA_wjzZfYCKK3SD5TcY4e7su7Gzd_9QQegQZGEivN1eCKu44wP_aHUH3rNzx7hKMEmA.jpg" width="400"><br>
+
+محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روز چهارشنبه ۱۳ آبان‌ماه، در واکنش به نتایج انتخابات میان‌دوره‌ای آمریکا در شبکه اجتماعی اکس نوشت: «ملت ایران در میدان نبرد و در تنگه هرمز، شکستی راهبردی به ترامپ تحمیل کرد و در واشنگتن نیز او را با شکستی سیاسی روبه‌رو ساخت. در همین حال، آمریکایی‌ها مجبور شدند هزینهٔ جنگ او را بپردازند.»
+رضایی در ادامه نوشت: «هر کسی که با ایران دربیفتد، بهای آن را خواهد پرداخت؛ از میدان نبرد گرفته تا آستانهٔ خانهٔ خودش.»
+همزمان، رسانه‌های جمهوری اسلامی روز چهارشنبه ۱۳ آبان‌ماه، با انتشار پیامی منسوب به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، از قول او نوشتند که امید بستن به تغییر رفتار آمریکا در پی جابه‌جایی احزاب سیاسی یا تلاش برای کاهش خصومت واشنگتن از طریق امتیاز دادن، اشتباه است.
+در این پیام آمده است: «اگر هنوز کسانی هستند که اندک امیدی به تغییر رفتار یا جابه‌جایی‌های حزبی و جناحی در نظام سلطه دارند و یا تصور می‌کنند با امتیاز دادن به آمریکا می‌توانند او را از دشمنی با ملت ایران منصرف کنند، سخت در اشتباه‌اند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78999)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 20:51:34
+
+<img src="https://cdn4.telesco.pe/file/qtDDWyEctFdhauATMCPCT7jYrSYVvbE5jtgmiBrQJoZkJAjR_-w_qos9S6SxjbA84mRl1dPS-xnzWnVIOWl69s7z6qU8Rw83aW6hQWjyKjMEfMEY2uu6__gJTMVq-gnshccP0bbz3qNsMRniaZ-awNdKWzBik-Bw0OVFY_biNdN2Oc5Nd47OAWF0Mu1KTYynqbSDrwi00w-yjxHZArSwxfjEb5dEMfe6U41XYBcvp7V8LdyFYfkJh6MTdMAk2lc_EwFdcrVaG2N3_k5hOd1obHZ8r50T5ksQ7KgOKu7J4w6YDAy9JXYLwTHR3OxHWYB9LuBKTzkEVTIegkA9OMwD4Q.jpg" width="400"><br>
+
+جی‌دی ونس، معاون رییس‌جمهور آمریکا، جنگ با ایران را از دلایل اصلی شکست جمهوری‌خواهان در انتخابات میان‌دوره‌ای کنگره دانست و گفت بسیاری از رای‌دهندگانی که در انتخابات ۲۰۲۴ به دونالد ترامپ و او رای داده بودند، این بار به نامزدهای دموکرات رای دادند. او پایان جنگ، تمرکز بر هزینه‌های زندگی و تورم، اولویت‌دادن به منافع آمریکا و تغییر رابطه این کشور با اسراییل را چهار خواسته اصلی رای‌دهندگان ناراضی جمهوری‌خواه عنوان کرد.
+ونس روز چهارشنبه ۱۳ آبان در پیامی در شبکه اجتماعی ایکس، با اشاره به نتایج انتخابات مجلس نمایندگان و سنا، نوشت مشکل اصلی جمهوری‌خواهان نه میزان مشارکت هوادارانشان، بلکه تغییر گرایش بخشی از رای‌دهندگان این حزب به دموکرات‌ها بوده است.
+او با استناد به نظرسنجی یکی از تحلیل‌گران سیاسی که به گفته او نتایج انتخابات را به‌درستی پیش‌بینی کرده بود، نوشت از رای‌دهندگانی که در انتخابات ۲۰۲۴ به ترامپ رای داده بودند اما در انتخابات امسال به دموکرات‌ها روی آوردند، درباره دلایل این تغییر و عواملی که ممکن است آن‌ها را دوباره به جمهوری‌خواهان بازگرداند، پرسیده شده است.
+به گفته ونس، چهار پاسخ اصلی این افراد عبارت بوده است از پایان‌دادن به جنگ، تمرکز بر هزینه‌های زندگی و تورم، اولویت‌دادن به منافع آمریکا و تغییر رابطه واشینگتن با اسراییل.
+معاون رییس‌جمهور آمریکا همچنین از کسانی که در حزب جمهوری‌خواه خواستار حل‌وفصل دیپلماتیک درگیری با ایران شده بودند، دفاع کرد و گفت انتقادهایی که روز دوشنبه از ریچل کامپوس دافی به دلیل حمایت از راه‌حل دیپلماتیک مطرح شد، نادرست بود و توصیه سیاسی او درست از آب درآمد.
+ونس با تاکید بر این‌که دلیل اصلی شکست جمهوری‌خواهان جنگ بوده است، نوشت خود دونالد ترامپ نیز شامگاه سه‌شنبه به این موضوع اشاره کرده است. او از کسانی که معتقدند هزینه سیاسی جنگ و از دست‌دادن کنترل سنا برای شش سال آینده ارزش آن را داشته است، خواست صریحا از این موضع دفاع کنند.
+او همچنین پیش‌بینی کرد در ماه‌های آینده اختلاف‌نظرها و تلاش‌هایی برای منحرف‌کردن بحث از دلایل واقعی شکست جمهوری‌خواهان شکل بگیرد. ونس در عین حال گفت همچنان به آینده آمریکا امیدوار است و از جمهوری‌خواهان خواست نارضایتی خود از نتایج انتخابات را به تلاشی برای بازگرداندن حزب به مسیر مورد نظرشان تبدیل کنند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78998)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 19:41:54
+
+<img src="https://cdn4.telesco.pe/file/j9O7O6JTG7kR0Tg9kqvJqzjMY58OExFi-hrfg_y5VRUqFn2oIDa_6la_0nLdezwtCMp9IpaXVuB2CxQvtp5URzdZdWDuyvQIG5PqNhwF5Q3wrSfyPl6ri8xeK0TeMSiUUGqDO6FOFCLUHl0jDxhasxazQxi8LA1DUvV4tt09Rm41lvlTcUETdb_uf2OAv-xnlGGTFrcOeSJPStMIlPifpREbqyTWOyOgDkB9u_qNtDTxZbY4K2-ajVJHq7-IAsP_k8aGQ483m572DWXs7PBsdzvzsMa3DIqloUjZis19KdVP41z30dXfkLl3KYSePGWAGz_bPE9AA59drSVAcm2X7g.jpg" width="400"><br>
+
+خبرگزاری هرانا از شناسایی هویت وحید خدری‌خواه، ۳۴ ساله، یکی از سه معترض بازداشت‌شده در مشهد خبر داده است که به اتهام «محاربه» به اعدام محکوم شده‌اند. با شناسایی هویت او، مشخصات دو تن از محکومان این پرونده احراز شده، اما هویت نفر سوم همچنان نامعلوم است.
+بر اساس گزارش هرانا، وحید خدری‌خواه به همراه متین فرنیان، ۲۳ ساله، و یک شهروند دیگر در پرونده‌ای مشترک از سوی شعبه پنجم دادگاه انقلاب مشهد به ریاست قاضی حسین یزدان‌خواه به اعدام محکوم شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78997)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 16:46:13
+
+<img src="https://cdn4.telesco.pe/file/TgDZtdXQRSEO8VkdInhWMz-3VRYn1S8axW4oz8A2f2KBJjsa6ZclW3dCDfdeRxAQLYwTIKNircd3krqAQ8wAN6Yu-LnPQTxfEp8SJZAFzcpGsv0wAY_jz8097PM4VFJt4jflnoHx_ZZPd_FSkorsjdzYU4H3uxS3JkCmlg5wr0dNncsJwXXfC_cCIwjjQcaQRH6gw-Nkazt91UqVUcEb_zwyx6E9XGSYLagpNaD7X0IsQ71UTdV7N6AbNTp83JB_Ymd1zwmzLeKzM5jQT4YAnxLBRlovWpDZYWsesZ7qR89dK3QObmrH6VNHlYG-GHtBpziCUt7qx8W_51mBGTd2zw.jpg" width="400"><br>
+
+عرضه بنزین سوپر تولید داخل در جایگاه‌های ایران آغاز شده است؛ سوختی که مدیرعامل شرکت ملی پالایش و پخش فرآورده‌های نفتی قیمت آن را لیتری ۱۰۳ هزار تومان اعلام کرده و گفته است بیش از ۷۰ جایگاه برای عرضه آن تجهیز شده‌اند. این رقم در حالی اعلام شده که مدیر بازرگانی شرکت ملی پخش، بهای نهایی بنزین سوپر را بسته به هزینه حمل، بین ۱۰۳ تا ۱۱۰ هزار تومان اعلام کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78996)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 16:45:27
+
+<img src="https://cdn1.telesco.pe/file/bNXIT7O0YeUkzAb3oei9lr1XtQnnPcuWQYJlWTw0gxorwLOwgj2PFWVEgDeYQdNwGRcEQt_ygJI9c8h4jAzpTcaL9wsBa8Es1bIVvFP8-ms92biAEcMGEKHu5drOd_zUyf9_Aj-elyy2Ax2D13jwiKwLpjFs0nw8GHPwe8D4EbGBkbGjqcKW-EuY1eQwaUNx61Ewc1TpIxnC9_e0vrpL5h8uDu2DILlphL-p4vh58a1DISdoUHuNuir7uJVPlmDez5jhZ0uoNkBglIjzh81PM0zv800UnFhxNYxLwNHzl3uwR3M7CmMePX2TzUzayXeSlRhTfJht2yq5tSFuadWF3A.jpg" width="400"><br>
+
+رسانه‌های جمهوری اسلامی با انتشار پیامی منسوب به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، از قول او نوشتند که امید بستن به تغییر رفتار آمریکا در پی جابه‌جایی احزاب سیاسی یا تلاش برای کاهش خصومت واشینگتن از طریق امتیاز دادن، «اشتباه» است.
+در این پیام که روز چهارشنبه ۱۳ آبان منتشر شد، آمده است: «اگر هنوز کسانی هستند که اندک امیدی به تغییر رفتار یا جابه‌جایی‌های حزبی و جناحی در نظام سلطه دارند و یا تصور می‌کنند با امتیاز دادن به آمریکا می‌توانند او را از دشمنی با ملت ایران منصرف کنند، سخت در اشتباه‌اند.»
+انتشار این پیام یک روز پس از انتخابات میان‌دوره‌ای کنگرهٔ آمریکا صورت می‌گیرد که بر اساس پیش‌بینی رسانه‌های آمریکایی، دموکرات‌ها در مسیر کسب کنترل هر دو مجلس نمایندگان و سنا قرار گرفته‌اند.
+در بخش دیگری از متن منسوب به مجتبی خامنه‌ای، هرگونه رویکرد مبتنی بر دادن امتیاز به آمریکا عامل تشویق این کشور به «زیاده‌خواهی بیشتر و جنگ‌ها و جسارت‌های بعدی» توصیف شده است.
+مسعود پزشکیان روز گذشته باز دیگر تأکید کرد که مجتبی خامنه‌ای اختیارات تازه‌ای برای مذاکره با آمریکا به دولت داده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78995)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 16:43:55
+
+<img src="https://cdn4.telesco.pe/file/ZmWCRbZh0npkTfSbNYBUfIkgTvKgnWtNycsHcrjdEK3Dpz79OhKw6jc11RUCP_VY68wErQuWNUvMcbKHjPKqIwC18fOZVPd6iLvIXlRIpyGoAIEfndsxoigNKmsRqgX44MUzN1r7yTFD4AdRm-_rvT6ouOBV215slkd0yF6l0VXluqMvsrov_5d9SrOuic5z3e2ufV9ALangtLiUNt1sU_-h_pUUVymJBpD9WzKB4jj38FeqToWiaylnto7uLJFh9rOsS5ne98_bona2tmoYMH04vESGsFY7vm2e-XUCNggfmE_2YnFMu1OT3qB_sIhv_JP7M3IqJBpVKct0q2dOJA.jpg" width="400"><br>
+
+عبدل السید، نامزد دموکرات، در انتخابات میان‌دوره‌ای آمریکا موفق شد کرسی سنای ایالت میشیگان را به دست آورد و به نخستین مسلمان منتخب سنای آمریکا تبدیل شود.
+بر اساس پیش‌بینی رسانه‌ها، السید، ۴۲ ساله، در رقابتی نزدیک مایک راجرز، نامزد جمهوری‌خواه مورد حمایت دونالد ترامپ، را شکست داد و کرسی گری پیترز، سناتور دموکرات بازنشسته، را برای حزب خود حفظ کرد.
+السید که از مقام‌های پیشین حوزه بهداشت عمومی است، در کارزار انتخاباتی خود بر کاهش هزینه‌های زندگی، گسترش خدمات درمانی همگانی و محدود کردن نفوذ شرکت‌های بزرگ در سیاست تمرکز داشت.
+این نامزد دموکرات پیش‌تر جنگ اسرائیل در غزه را «نسل‌کشی» خوانده و با جنگ علیه جمهوری اسلامی مخالفت کرده بود. هنگامی که یک دانشجوی ایرانی‌آمریکایی از او خواست سپاه پاسداران را محکوم کند، به جای محکوم کردن این نهاد، بر حق ایرانیان برای تعیین سرنوشت خود تاکید کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78994)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-04 16:43:29
+
+<img src="https://cdn1.telesco.pe/file/jNUMe7xogJLYnOi4LR2OO22TOVbfxVOhqZ-nLJyo0N9b-JBNH-vaGy-YTrO9CjLilN-oaOle5NfRc2FlrPk1V2QT8mco_UhgV_yRSaLLTwztITUUMqElTnmQSKSpkaiarNi9CcXWp_LZaHr8VkTad8cKhOaJsGDqmQrhvKei34cS2ESbuBTBqEU3kWXzeYmBBU46HinT23dDJNkw5lOYBS_VrFgeW4-mOg3_pyDYr7F11RZOdX9Pyfvu88DpHReiImZpTDtEdjlCz0KBqPIo3K1UJiZQwFfdYDxkBrlwOttAvhm649xAbFmX49nlrBdtDKJiqTObOHqnP-znNCsjhg.jpg" width="400"><br>
+
+«رضا شفاخواه»، وکیل دادگستری، از صدور حکم اعدام برای «امیرحسین‌ موسوی»، زندانی سیاسی محبوس در زندان اوین، خبر داد.
+به گفته این وکیل، شعبه ۱۵ دادگاه انقلاب تهران موکلش را به اتهام «افساد فی‌الارض» از طریق فعالیت در حساب کاربری «جیمز بی‌دین» در شبکه اجتماعی ایکس به اعدام محکوم کرده است.
+خواهر امیرحسین موسوی نیز با انتشار پیامی در شبکه اجتماعی ایکس، این حکم را محکوم کرد و  از کاربران شبکه‌های اجتماعی خواست: «صدای امیرحسین باشید. سکوت نکنید.»
+سومین جلسه رسیدگی به اتهام‌های این زندانی سیاسی روز دوشنبه ۳۰ شهریور۱۴۰۵، به ریاست «ابوالقاسم صلواتی» در شعبه ۱۵ دادگاه انقلاب تهران برگزار شد.
+موسوی پیش‌تر با ۹ عنوان اتهامی، از جمله «تشکیل گروه برای اقدام علیه امنیت داخلی»، «اجتماع و تبانی»، «تبلیغ علیه نظام»، «تامین مالی تروریسم» و «همکاری و تبادل اطلاعات با افراد وابسته به اسرائیل» روبه‌رو شده بود. اتهام‌های «محاربه» و «افساد فی‌الارض» نیز در جریان رسیدگی به پرونده او مطرح شدند.
+صداوسیمای جمهوری اسلامی روز ۱۴ مهر۱۴۰۴ ویدئویی از اظهارات موسوی پخش کرد و او را به «جاسوسی و همکاری اطلاعاتی و امنیتی با اسرائیل» متهم کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/78993)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-04 09:36:23
@@ -124,7 +279,7 @@ UK_MTO
 
 ###### 🔵 Post time: 2026-11-03 18:19:30
 
-<img src="https://cdn1.telesco.pe/file/f2BS566FJlWVtGsE5_iv3HZJQKbhcfsFV9b-bSg4uoZ-hdjYqyQr3zY5hA0aZ3eV3uUmJBxLOKgaMUIalFsW-bESGaLTvYu3wF8gIFMP65rtLtd9bfq8v9JxIRm6UFEKsp-PvgI8aAlNZZC7ESEWMREKom0-ZzX4-NtJCiQB0muKrKpxS1cUiK5vMK04q2prN7J3x5fLvoKXlmiRp0TXsQ8J0ZN8M7LiQbAISVvAxLbIaT9R6UOYoqw7PUmFqzDTXNwWSOKbDIirK7YtGpf0iuvjV9zQip6UDbsJByroVpSLnqVnvrhFGbFBFecJcRHIqthqzToaOEY6Hb6YCDg5MQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/cOMRsg4HH9GhFbUMCRTWV_XGA_z1b9WmZoetX5ftMBsky2HvwRIsCSjmBeqExz5luOYpOovxkYM2HfuvtA2xnIKkeIz-r_OzpXraPCJcPuIdtjhnW3_kmN236zcYs3UwcNO5DnxCDbrcvHWBs-oUIGKsPdqff-daQ-S-7IlTi2E6ETXadfXTPe5eXN2X85fVmsNgaSahjLSNyP0ps5tDzzvTfwmZ1BUC_FKlqgDAndeCqA7SbJ7vwgpq4YFGneTjhH9qKLOEYWWSK0PUWAT3xgkdsrlEEfAcI5jdsElPc60hIGasHnJYNdEujWQ9BKlBu-NwLtL7sjUX7k3PmXQuKg.jpg" width="400"><br>
 
 محسن رضایی دبیر شورای عالی امنیت ملی در جمهوری اسلامی در شبکه اجتماعی ایکس نوشت: «پاسخ آمریکا به حقوق و مطالبات ایران قانع‌کننده نبود و آن‌ها باید کامل و صریح هفت شرط ایران را پاسخ داده و به آن عمل کنند؛ تنها در این صورت تنگه هرمز باز خواهد شد.»
 در روزهای اخیر، میانجیگران قطری در دو نوبت به تهران سفر کرده و طرح صلح جدیدی را ارائه کردند. مسعود پزشکیان نیز روز سه‌شنبه در جلسه با استانداران و شهرداران کلان‌شهرها تاکید کرد که بازگشت به جنگ به نفع هیچ‌یک از طرفین نیست. با این وجود، به نظر می‌رسد که این طرح مورد موافقت تهران قرار نگرفته است.
@@ -176,7 +331,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-03 17:28:14
 
-<img src="https://cdn1.telesco.pe/file/lu7GXAXr1vVUb_CsN4HLi1SnSL5bZNSm3zKYRF2d0hAsXYL0QWTv6cwOHJMqa3hHtRpqNAJlLoRfmppBiKhqqvTMe1D3wCzPQ0dlkuwJhlGOHE9rPPKKclkS8OHWYQ8hFpVJO3rMt_Hcvo-Us-5_-md2i75wyc-2N7zRtg2PrOCCaVvLJpfjIP4BES5QGT0zsE-xu8F9M1CM9fPM2EMyTD1jYC6fBOcWZ_YoA2x9YziUhIOqWZJ8wu6sA55IpbDaH3BS1EEWifb0RyUZqe0gn-kucbOa4UYwLIR8THAZbZkbafU6a76LL7uDA7uIqt7j0_e9g08VpfkUaEd3rC15vw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/P0cEc9pJ2wxkF5A1T2_r2WhXlCSfSymrzG9a917sYux4jN2FSXjp-rxzCF-YtE6I-1bS7lkQEBakN4MaPO8vjmjF3Ir3N1itJrkZtPGnQr49rS8eb05Qu5kiAMeAUgZS_xvHnxAzjRXOg2Zv9Hnq-70DgRuRYy4cUaFtHWqn8mAM8ZvCB4zMUq5bk5XBV6JYWiDQF49nsiNL_fkqdyWBPiKl-GivSAeqGHlDBoOjbE_T4HMb6QSf0f_Xr3jJeCWF-bl4raM1F4WYElIL1urFmP1Dh-a831K7Z-rDRKJDU26pQ4l3MG2NgS7Tyg9HcWmfG-bhk46T9lViBFis2Fqb5w.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد که گزارشی از سوی دولت هند مبنی بر وقوع حمله به یک فروند شناور بادبانی (لنج) متعلق به هند دریافت کرده است. این حادثه در تاریخ ۱۱ آبان ۱۴۰۵ (۲ نوامبر ۲۰۲۶) در ساعت ۱۱:۰۵ به وقت هماهنگ جهانی (UTC) و در زمان خروج این شناور از تنگه هرمز رخ داده است.
 بر اساس این گزارش، نیروی دریایی عمان موفق شده است خدمه نجات‌یافته این شناور را نجات دهد، اما وضعیت خود کشتی همچنان نامعلوم است. مرکز عملیات تجارت دریایی بریتانیا به سایر شناورها توصیه کرده است که با احتیاط کامل از منطقه عبور کرده و ضمن گزارش هرگونه فعالیت مشکوک، منتظر نتایج بررسی‌های مقامات مسئول باشند.
@@ -193,7 +348,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-03 16:11:56
 
-<img src="https://cdn4.telesco.pe/file/D9vVlIcmKfodBKFC9ZdfbzeNjihj_Z0N8bnXGvzZtpM7S3k4dcFvYleQMx6IsVmd_9BYzRs9_7aRLQOQT7eBCh31z9Jj3uai9zchYGRQndv7nbnV203XnEEYc_8LabuBQ6y7jBZSsNMnkEh6xSfws-PiPbX7MJR5qjJr-Gs-dpMxSNtw-e2A5B-_S25uZvm6fXZ6B1R5ZaNw4mRaGsWlMPBNNsGEreVKfybYSkoTKukUBAHUYIhyKof7PJwfyFjHw5eb-QFpxOh4GhNSxVasEdfqiWDxqvL8Cy52EU8ZGssnJmtf3pRp0xR9vEQstdcf7NM9pL3SsCCPuI_6Q5LBQw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/PK1gMqpxdHavkYPY0tgrpesyNlrfwTKp4uwPuVy5ItvT-y-14Z4i89UTpvEiw1--sNMkHKR0OWIUymRvE9meEfYsB9llXBxO8iGTtzdG5uwd-hct39N4rJHv59Wjvlq5AbO7anNdkPqF5PpyWoozghyWfhJRYjKdOWC1RP2T2Nr_xI8uPX1-K4vHPBlp8NrDQu7DGtho_8Xt7QvvNP5MPDROwtz71Ao_0JsL-ORFdcZxNSSp_OMsSu_AK-92qtBNT6P1BNkQDeeY2AzmUvTe6UDUTP0rJ4cBI_mZnwlOKbvygDAVshKnzTs94Sm6c5EyWatleL-brvwLfEFg8CBWsg.jpg" width="400"><br>
 
 روزنامه «همشهری»، وابسته به شهرداری تهران، در صفحه نخست شماره سه‌شنبه ۱۲ آبان۱۴۰۵، با انتشار یک تصویرسازی از پایگاه‌های نظامی آمریکا در کشورهای اروپایی، آن‌ها را اهداف احتمالی موشک‌های جمهوری اسلامی در صورت آغاز جنگی تازه معرفی کرده است.
 این روزنامه نزدیک به جریان اصولگرا، در گزارشی با اشاره به راهبرد تقابل «بدون محدودیت جغرافیایی»، نوشته است که احتمال گسترش جنگ به خارج از خاورمیانه افزایش یافته و پایگاه‌های هوایی، دریایی و مراکز پشتیبانی نیروهای آمریکایی در اروپا می‌توانند در فهرست اهداف احتمالی ایران قرار گیرند.
@@ -221,181 +376,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78980)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 16:07:19
-
-<img src="https://cdn1.telesco.pe/file/lSLsaMje8XS1eOkSWn2BS_8Nkkx7PTaT8CKK4PAv7RepidfUhd3KZ3Myn9Js3SdvH76ZILbXmoIb7RyfBRDvDxFUx-0EPKZ4h635EyF_kGkS1njzHzXWdYS0t9kldiuNulebbFL9EltlgV7AXFpSj2L6MXR85_lgaGq4hMUgT4RW3WRZxiO1R9Vq3l7b7TFC9svQu7BFEEhIJuwTa-2_7H3Z7N5CGRfFgaNVqx1BmcbyCDh9QZkwjkFQx0F5ROGWrmX72Jlt94A7_5Ibm7rKEafF0Fgsvszy3d2UBVTuOdnOF-xmPbfuCBia58orgg16lHld41MdtToJndtt5E3zdQ.jpg" width="400"><br>
-
-ماجد الانصاری، سخنگوی وزارت خارجه قطر، روز سه‌شنبه، ۱۲ آبان‌ماه، ضمن اشاره به طرح‌هایی که میانجی‌ها، از جمله دوحه، ارائه کرده‌اند گفت که حکومت کشورش به رسیدن جمهوری اسلامی و ایالات متحده به توافقی موقتی امیدوار است.
-این در حالی است که ساعتی پیشتر یک مقام ارشد ایرانی به خبرگزاری رویترز گفته بود که ایران و ایالات متحده هنوز «فاصله زیادی» تا دستیابی به توافقی برای پایان دادن به جنگ دارند.
-همزمان با مذاکرات غیرمستقیم دو کشور، ایالات متحده دوشنبه شب حملاتی به جزیره قشم در کنار تنگه هرمز انجام داد که مقام‌های آمریکایی بعدا آنها را «تدافعی» توصیف کردند.
-قطر در یک هفته گذشته بر تلاش‌های خود به میانجی‌گری میان تهران و واشینگتن افزوده و این تلاش‌ها را حتی زمانی که از طرف سپاه هدف حمله قرار گرفته قطع نکرده است.
-در حال حاضر، به گفته ماجد الانصاری، دو طرف «به ادامه فرایند مذاکره پایبند هستند و ما [قطر] تبادل پیشنهادات میان این دو را تسهیل می‌کنیم».
-@
-VahidHeadline
-خبرگزاری رویترز روز سه‌شنبه ۱۲ آبان‌ماه به نقل از «یک مقام ارشد ایرانی» گزارش کرد که «با وجود افزایش تلاش‌های دیپلماتیک برای جلوگیری از بازگشت احتمالی به درگیری‌های فعال پس از انتخابات میان‌دوره‌ای آمریکا، ایران و ایالات متحده تا رسیدن به توافقی برای پایان دادن به جنگ فاصله زیادی دارند.»
-به گزارش رویترز، این «مقام ارشد» که نامش فاش نشده پس از سفر دوشنبه شب‌نمایندگان قطر به تهران و درگیری میان سنتکام و نیروهای مسلح جمهوری اسلامی در تنگه هرمزو بمباران قشم گفت: «میانجی‌ها سخت در تلاش‌اند تا شکاف‌های میان تهران و واشنگتن را کاهش دهند.»
-همین منبع هشدار داد که «اگر آمریکا خواهان بازگشایی تنگه هرمز است، شرایط تهران باید برآورده شود.» وی افزود مذاکرات هسته‌ای تنها پس از آن می‌تواند آغاز شود و تهران «زیاده‌خواهی‌های» واشنگتن را نخواهد پذیرفت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78978)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 16:01:34
-
-<img src="https://cdn4.telesco.pe/file/vJAdvXtHF2iCnzfyMLxsuEp2mQutJufmXjXmDAs9S1xajXZyEwOfM6rOqLnZPucUu8rVNSXRDhcHBlzRor5KzKnHVkfdhwVOepHeShNJxC2iIX11_H2e8OJ70bYs7qHd339z5lnns3fCIl5icGHZ92mB5GVZQMCKIXasdiMtYXqpio4pYMMxr7MAnj_huSjpi9nr3zCA-O5z_0-hyk6vDOs-Pdwlkm-7-DrzmH6DWs2MhBmk0CXJ-Tn6CvciLDCl0g9qXeLLCuv0Ey9U8ZAdK3ZMTtnZDGNvoQyLvYYJGsY8N6ye23x9EY9Umq0fXNBGJurj8sx8wOVMYCk90Y3kjA.jpg" width="400"><br>
-
-قوه قضاییه جمهوری اسلامی از اعدام «امیرحسین ملکی» ۱۹ ساله و «امیرحسین ابراهیمی» ۱۸ ساله، دو تن از بازداشت‌شدگان اعتراضات سراسری دی۱۴۰۴ در اصفهان، خبر داده است. با اجرای حکم اعدام این دو جوان در بامداد سه‌شنبه ۱۲ آبان۱۴۰۵، شمار اعدام‌شدگان پرونده معروف به «میدان علیخانی اصفهان» به ۹ نفر رسید.
-خبرگزاری «میزان»، وابسته به قوه قضاییه، اعلام کرده است که این دو جوان به اتهام «محاربه و افساد فی‌الارض» به اعدام محکوم شده بودند و احکام آن‌ها پس از فرجام‌خواهی در دیوان عالی کشور تایید شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78977)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 07:22:17
-
-<img src="https://cdn4.telesco.pe/file/cJvByozlXPkApd6YGp7tqQQD4JlyWmZGxuhKvQEDWUg1hPvTCXvOi1Taq6oxHUpe1K_HxI9hYRnoAUsyxF3qQRxRb9QSwijIl8Br-JsKI3hsai-1W3N-Uo-0ASWOaPOUF29PsKESM0yI132KI0PD2ysn82QBES79s9MpVd_rKBwGRRKKqRw1udZ2ZvHhrBLtO756hzwX1qisBmjb1_731RAUcBMWk2TgKOFO5m6nEnYZv_aamPostFh9BHS-tvquGQNnWUFbuXmKfV9ltczorHi8yO66r3cnb3Ht7_Tb8xxa4A7be9Zj3x90WgiAOS-CinMmIAxHH1MdlL0SMfnI6w.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، سه‌شنبه ۱۲ آبان در گفتگو با شبکهٔ فاکس‌نیوز گفت که ایران در موقعیت مناسبی برای مذاکره قرار ندارد، اما احتمال دستیابی به توافق میان تهران و واشنگتن زیاد است.
-ترامپ با اشاره به وضعیت اقتصادی ایران گفت: «اقتصادشان به خاطر ما در حال فروپاشی است. تورم آن‌ها ۳۰۱ درصد است. پول ندارند و حقوق سربازان و نیروهای پلیس خود را پرداخت نمی‌کنند.»
-او با اشاره به حملات پیشین آمریکا به ایران افزود: «ضربهٔ بزرگی به آن‌ها وارد کردیم و بسیار سخت هدفشان قرار دادیم. این حملات نیروی دریایی آن‌ها را از بین برد و ۱۵۹ کشتی نابود شدند.»
-او در بخش دیگری از این گفتگو با اشاره به تصمیم خود برای آغاز عملیات نظامی علیه ایران در حدود هفت ماه پیش گفت که با وجود این عملیات، شاخص‌های بازار سهام آمریکا و ارزش حساب‌های بازنشستگی این کشور اکنون بالاتر از پیش از آغاز درگیری‌ها است.
-رئیس‌جمهوری آمریکا در پایان با اشاره به کشته شدن شماری از آمریکایی‌ها به دست قاسم سلیمانی تأکید کرد: «نمی‌توانیم اجازه دهیم ایران سلاح هسته‌ای داشته باشد و چنین اجازه‌ای هم نخواهیم داد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78976)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 05:45:45
-
-<img src="https://cdn1.telesco.pe/file/kdYMue7mzPC2CnoKLvL5ABlv1FyOc66q0h91h6e59FDNTOUbMW-MHK7EDT2m9rsoPsWTUp4jagekSnIt5vJKVvQaH1B19hCPE9xUDdoZFQRjM48stU3tNL51c_0mMWpRfmHuHAVDeMQXOZ6T8kMhypBn8rXGLzAQOXZVrNEY-aP9jry8NXHfAcfB2AzBO2MvYEh4J0XItraqOgkH8-Qy3WOPysqj0pOOE1uuhwkdOwh_qrhZCk4Fu9w28pdIzpJ1AJ53_hEclX-HKbEbVfg3V-S1CK_m32ywnsrDxGfhL0sfKGRPWc6QFrL2fotNFKVj5aaFWIC-DEMsEWLJ7dthRQ.jpg" width="400"><br>
-
-خبرنگار اکسیوس، ترجمه ماشین:
-یک مقام آمریکایی گفت سپاه پاسداران دوشنبه‌شب از جزیره قشم موشکی به سمت یک هواپیمای آمریکایی در تنگه هرمز شلیک کرد. سپس یک جنگنده آمریکایی در دفاع از خود، پرتابگر موشک زمین‌به‌هوا را منهدم کرد.
-BarakRavid
-فاکس نیوز:
-مقام‌های آمریکایی روز دوشنبه تأیید کردند که ایالات متحده جزیره قشم ایران در تنگه هرمز را هدف حمله قرار داده است.
-یک مقام آمریکایی گفت این حمله در واکنش به شلیک ایران به سمت یک هواپیمای آمریکایی در شامگاه دوشنبه انجام شده است.
-این مقام تأیید کرد که حمله در واکنش به شلیک اولیه ایران و با هدف «دفاعی» انجام شده و به معنای ازسرگیری حملات نظامی آمریکا به ایران یا آغاز تشدید تنش‌ها نیست.
-foxnews
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78974)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 04:27:49
-
-<img src="https://cdn1.telesco.pe/file/kZ7L-4lhOO28Ah6viGYbAreDQe63m4Wu8r5EQ1qNSV1ifLtiv8Ka9TrKr9Mal0THSylur4SelYKP1BkA7jZDJ_K8NjH1bcGye4SF3qHtJ9trMcgEOTYIVaGuk4Y1IVwo3UlkMZBUaxec6WHrvqvN_88K7ivn0UQgwdYoSZSxbA25TGJ0JEK9YxjcFfQdx2xy-3Gaf0eg3MoKf-M0vA3En1dw3m88mknCUUzS1RS4ASwch4x0ko4A9PX80JuqFp6iPSNPhnuOCsfpXqJKMmWOAWwFWQxkMANzSg8-Uey1GNYqrO1sewKeE5tu8pLuscov4_G68t-ty8pXEQ0mLXINhQ.jpg" width="400"><br>
-
-☄️
-آمریکا درستی خبر
-حمله به جزیره قشم
-را تایید کرد
-وال‌استریت ژورنال دوشنبه ۱۱ آبان به نقل از مقام‌های آمریکایی گزارش داد ایالات متحده جزیره قشم را هدف حمله قرار داده است. این عملیات بخشی از مجموعه حملات محدود و اعلام‌نشده‌ای است که واشینگتن در هفته‌های اخیر علیه ایران انجام داده است.
-به گفته مقام‌های آمریکایی، هدف این حملات جلوگیری از اقدام جمهوری اسلامی علیه کشتی‌های تجاری در تنگه هرمز است.
-یکی از این مقام‌ها گفت آمریکا عامدانه عملیات را بدون اعلام عمومی انجام می‌دهد تا نشانه‌ای از قصد واشینگتن برای آغاز دوباره جنگ گسترده ارسال نشود.
-قشم دارای یک مجموعه بزرگ موشکی زیرزمینی و پایگاه دریایی است و مقام‌های آمریکایی پیش‌تر درباره احتمال تصرف این جزیره گفت‌وگو کرده‌اند.
-این روزنامه نوشت برد کوپر، فرمانده سنتکام، هفته گذشته برای ارائه گزارشی درباره درگیری با ایران به کاخ سفید رفت. ارتش آمریکا نیز با انتقال سامانه‌های پدافند موشکی و مهمات بیشتر به منطقه، برای حملات احتمالی گسترده‌تر آماده شده است. واشینگتن همچنین به کشورهای حوزه خلیج فارس هشدار داده بود برای عملیاتی کوتاه و شدید پس از انتخابات میان‌دوره‌ای آمریکا آماده باشند.
-با وجود این تحرکات، دونالد ترامپ، رییس‌جمهوری آمریکا، روز دوشنبه احتمال ازسرگیری جنگ گسترده را کم‌اهمیت جلوه داد و گفت: «ما با ایران جنگ داشتیم و پیروز شدیم. اصلا نمی‌دانم می‌شود اسمش را جنگ گذاشت یا نه، چون ماه‌هاست که هیچ درگیری و جنگی نداشته‌ایم.»
-او همچنین از احتمال دستیابی به توافق دیپلماتیک با جمهوری اسلامی نیز سخن گفته است.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78973)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 00:24:36
-
-<img src="https://cdn1.telesco.pe/file/FSRv8szpabZ7fQI2k5IYSEPsrT2xuTrtml3obzzC_7Mv26fPozJ2-yx-bIc9DyuJwTO7XCH1G-v3J5cT6a0czC0NjZGKPwMTu0hCTHqh5a_p3bK4zxucp_3DmCJDp8GigCmb7zvHLunlJhrhoQeEkca0JH_mlNw2fxgj2c-hwN6NofZDZvrG6_iJ8bjNBt3BdutQIlAYItn-r0gkHyXQlV993wqMC2GLMrs94TcOkQc1hFkKn_VIpsG1_WN1KyCOrOp7X5mizjd_UCOCKLQgJiP0mkSfANfCp1CasNd7JMFUERGG9wJ4cwCbnpMrG53y7k6-J7TqC6hfMwkRGktqag.jpg" width="400"><br>
-
-پست ترامپ، ترجمه ماشین:
-قیمت نفت با سرعتی سرسام‌آور در حال سقوط است؛ تقریباً ۱۰ دلار در هر بشکه کاهش یافته که یک رکورد محسوب می‌شود، چون مردم احساس می‌کنند جنگی با ایران رخ نخواهد داد. ایران می‌خواهد هرچه سریع‌تر به توافق برسد. ممکن است این اتفاق بیفتد!
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78972)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 00:16:13
-
-
-
-☄️
-پیام‌های دریافتی از
-#قشم
-:
-۶ تا شدید
-انفجار زیاد
-6 تا انفجار پشت هم توی قشم ساعت 12:14 دقیقه
-۵ تا قشم
-صدای انفجار زیاد
-قشم ۱۲/۱۵ چند انفجار متعدد در شهر حس شد خیلی نزدیک بود
-تعداد انفجار وحشتناک همین الان توی قشم نمیدونم کجارو زدن
-۵ تا ۶ تا خود شهر عجیب دارم میلرزم
-سلام قشم رو زدن الان
-۴ ۵ تا موشک
-همین الان
-صدا خیلی زیاد و بد بود
-سلام وحید جان همین الان چهار موشک به پدافند قشم اصابت کرد
-قشم صدای وحشتناااااک شیشه لرزید
-همین الان قشم ۵ تا زدن پدافند بود ما نزدیکشیم  موجش حس میشد
-سلام بامداد سه شنبه ١٢ ابان
-ساعت 12:13 دقيقه قشم چند بار صداي انفجار اومد
-سلام آقا وحید
-ساعد ۱۲ و رب قشم ۳ بار شدید زدند  خونه لرزیددد خیلی بد بود
-قشم رو دوبار پشت سر هم زدن
-هر سری سه چهارتا پشت سر هم
-شدید
-وحشتناک بود ۵یا ۶بار شدید
-آپدیت: حدود یک ربع ساعت بعد ایرنا، خبرگزاری دولت در جمهوری اسلامی نوشت:
-دقایقی پیش صدای پنج انفجار در جزیره قشم به گوش رسید
-🔹
-به گزارش خبرنگار ایرنا در قشم، این انفجارها به صورت ممتد و پشت سر هم صورت گرفت و با توجه به شدت انفجارها به نظر می رسد اصابت در داخل جزیره بوده است.
-🔹
-برخی قشموندان نیز پرواز دو هواگرد در آسمان قشم را گزارش کرده اند.
-🔹
-منابع محلی و استانی تاکنون در این زمینه اظهار نظر رسمی نکرده اند.
-‌
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78971)
 
 ---
 
