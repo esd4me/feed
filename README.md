@@ -3,18 +3,36 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-05 19:26:57 </h5>
+<h5> 🟢 Updated at: 2026-11-06 01:16:00 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-05 21:55:07
+
+
+
+محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روز پنجشنبه ۱۴ آبان‌ماه، پس از دیدار با ولادیمیر پوتین، رئیس‌جمهوری روسیه، به صداوسیما گفت که تهران هفت شرط به آمریکا ارائه کرده و تا زمانی که واشنگتن این شروط را اجرا نکند، تنگه هرمز باز نخواهد شد و مذاکره‌ای انجام نخواهد گرفت.
+او گفت پوتین در این دیدار، حملات نظامی آمریکا و اسرائیل به جمهوری اسلامی و بمباران تأسیسات هسته‌ای ایران را محکوم کرده و ضمن درخواست پایان سریع جنگ، آمادگی روسیه را برای کمک به پایان درگیری‌ها اعلام کرده است.
+به گفته دبیر شورای عالی امنیت ملی، رئیس‌جمهوری روسیه همچنین از گزارش نشست چهارجانبه تهران استقبال کرده و تأکید کرده است که مسکو نیز مانند پکن با دخالت کشورهای خارجی در امنیت منطقه مخالف است.
+او همچنین از تصویب پروژه راه‌آهن رشت‌ــ‌آستارا و بررسی انتقال گاز روسیه به ایران برای مصرف داخلی و صادرات به کشورهای همسایه خبر داد.
+رضایی در بخش دیگری از گفت‌وگوی خود با صداوسیما اعلام کرد که به درخواست مجتبی خامنه‌ای، رهبر جمهوری اسلامی، پیام او را به ولادیمیر پوتین تحویل داده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79013)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-05 19:18:25
 
 
 
-خبرگزاری تاس روسیه روز پنجشنبه ۱۴ آبان‌ماه تصاویری از دیدار و گفتگوی ولادیمیر پوتین، رئیس‌جمهوری روسیه، با محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی ایران، در کاخ کرملین منتشر کرد.
-خبرگزاری اینترفکس نیز به نقل از دمیتری پسکوف، سخنگوی کرملین، برگزاری این دیدار را تأیید کرد. این ملاقات در ادامه رایزنی‌های سیاسی و امنیتی مقام‌های تهران و مسکو و در چارچوب روابط دوجانبه صورت گرفت.
-پیش‌تر رسانه‌ها از گفتگوی تلفنی پوتین و رضایی دربارهٔ آخرین تحولات خاورمیانه و مسائل بین‌المللی خبر داده بودند.
-در جریان رایزنی‌های دو طرف، بر ضرورت ادامه همکاری‌های راهبردی ایران و روسیه و پیشبرد توافق‌های مشترک بر اساس برنامه جامع همکاری دو کشور تأکید شده بود.
+رسانه‌های ایران گزارش دادند محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، در دیدار روز پنج‌شنبه با ولادیمیر پوتین، رییس‌جمهور روسیه، در کاخ کرملین، پیام مجتبی خامنه‌ای، رهبر جمهوری اسلامی را در اختیار او قرار داده است.
+خبرگزاری اینترفاکس گزارش داد رضایی در سفری از پیش اعلام‌نشده به مسکو رفته است تا با مقام‌های روسیه دیدار و گفت‌وگو کند.
 @
 VahidOOnLine
 📡
@@ -239,7 +257,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-04 20:54:37
 
-<img src="https://cdn1.telesco.pe/file/VCudtQsHrdMst15n0GNEEjeUAcBpIFEk4xe1ZaD73ZHb7Q17AsMoompOZaSq0ZyIqyG8Kg0PCvwH60salMzH5hppuj9qt_X0YSgKteSuMhUucKGvUIno01IZr2rlAIe72zsMj0u3HFQkmVH45OUJt_tF4TanArcV2nE1V_dxuN5Yt-HgpBuu-EWUW5H_9_rdpkDcirKzMDUOHglvkb9wHOtawINfc-bzU_TKmN2xCNosmxoHBdDH2W9IclCzQrTT52FeuhYeG1YH1gOj1mCqA_wjzZfYCKK3SD5TcY4e7su7Gzd_9QQegQZGEivN1eCKu44wP_aHUH3rNzx7hKMEmA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/tqlu6vVGJTvqegsJhjpH1faU0JKWcSaawdIEA4h0Y2wcnQ3ucxv1fZyAtatlwHmKwEGVweg43zVb1xjNm6q3MPgSk8al0tACdG9AuJBKHJzsm6dfaY2txKpcnDJ-Hmpx7_Vp22uR6_ttyYonfkcI0uIABD1fYMCIHOMxbJo-5s-LX2_yNtAzaQgkAjz-b2cd-NOO0mwctp3jZSlof5x5JPa3pp3Ed9kKXrAiOREdPaV0mgFuIc6YEp8zybU7ntfAPwie4H4PKQAKrpId68EZGiBwm3La9xIF-VnRNzzKfrb7dTNWPcqtYYd3AQ4YdQueZDOBXMXJ-k_tQFcxFuNERw.jpg" width="400"><br>
 
 محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روز چهارشنبه ۱۳ آبان‌ماه، در واکنش به نتایج انتخابات میان‌دوره‌ای آمریکا در شبکه اجتماعی اکس نوشت: «ملت ایران در میدان نبرد و در تنگه هرمز، شکستی راهبردی به ترامپ تحمیل کرد و در واشنگتن نیز او را با شکستی سیاسی روبه‌رو ساخت. در همین حال، آمریکایی‌ها مجبور شدند هزینهٔ جنگ او را بپردازند.»
 رضایی در ادامه نوشت: «هر کسی که با ایران دربیفتد، بهای آن را خواهد پرداخت؛ از میدان نبرد گرفته تا آستانهٔ خانهٔ خودش.»
@@ -258,7 +276,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-04 20:51:34
 
-<img src="https://cdn4.telesco.pe/file/qtDDWyEctFdhauATMCPCT7jYrSYVvbE5jtgmiBrQJoZkJAjR_-w_qos9S6SxjbA84mRl1dPS-xnzWnVIOWl69s7z6qU8Rw83aW6hQWjyKjMEfMEY2uu6__gJTMVq-gnshccP0bbz3qNsMRniaZ-awNdKWzBik-Bw0OVFY_biNdN2Oc5Nd47OAWF0Mu1KTYynqbSDrwi00w-yjxHZArSwxfjEb5dEMfe6U41XYBcvp7V8LdyFYfkJh6MTdMAk2lc_EwFdcrVaG2N3_k5hOd1obHZ8r50T5ksQ7KgOKu7J4w6YDAy9JXYLwTHR3OxHWYB9LuBKTzkEVTIegkA9OMwD4Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/IfoZuVZ9pHPJRsGU9ele9xByz1vF-HELM8TeMKlSaLwDbkQpibfiwwvnhZaiTwzTko0zZfcR1MCdGhSNR9jivGUAH5VdPZ2I0BbCFLH7eEF7FAi2Lpv3vpAO_K8DTCbXPXpGkf3JoXJluXZHge3BL0uVLUg-VH2jSRYfVrV0TxyzDphUO2N1O2VxdV42FQpHlmKpu057On6pbSk2CVLsZnkkb0xE1UMuI0x7TK12_JiZdrJ-GY2PAu8IcUttYcbs3RAFR_91mNyd2IkIzqMQJb1NWL9XR74H3EhMg7b2Xxd0ry6Lu4TiwcIdih8yJPmKJ2k-C7swRIIxR18JWlPMNw.jpg" width="400"><br>
 
 جی‌دی ونس، معاون رییس‌جمهور آمریکا، جنگ با ایران را از دلایل اصلی شکست جمهوری‌خواهان در انتخابات میان‌دوره‌ای کنگره دانست و گفت بسیاری از رای‌دهندگانی که در انتخابات ۲۰۲۴ به دونالد ترامپ و او رای داده بودند، این بار به نامزدهای دموکرات رای دادند. او پایان جنگ، تمرکز بر هزینه‌های زندگی و تورم، اولویت‌دادن به منافع آمریکا و تغییر رابطه این کشور با اسراییل را چهار خواسته اصلی رای‌دهندگان ناراضی جمهوری‌خواه عنوان کرد.
 ونس روز چهارشنبه ۱۳ آبان در پیامی در شبکه اجتماعی ایکس، با اشاره به نتایج انتخابات مجلس نمایندگان و سنا، نوشت مشکل اصلی جمهوری‌خواهان نه میزان مشارکت هوادارانشان، بلکه تغییر گرایش بخشی از رای‌دهندگان این حزب به دموکرات‌ها بوده است.
@@ -345,27 +363,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78994)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 16:43:29
-
-<img src="https://cdn1.telesco.pe/file/ToQq72KmCsb-gjBnLQTqvCXyaoBTIgs1uFMS8eWsTcdc1BQVxV27PxtotGzWA8h5Ofn1n7-g3iCKl5ZOK8zUL2NfALkAr9RpIsHgbpF0VymB6n5KMmORh_c5Lhla96bvITISwMAoqrneUTtDm_X6lzfm_hrRVdo8bCjIpxtRNgZ0KN7MqrnyzuhiumOb_dOeJ82NQN4om6so1S0-8opJ2lHtVuqwqlFlGmXTu8FMvK-jHl7sXDPsuUNLf2MggcfaZ82KPq0Z2X3zQmqbl03yR2JGSpS-I5K89eiya03zCG0zGu3DEYEP49KRdW8cZxEciKMuJpI0nW0ljLDay1Zmyw.jpg" width="400"><br>
-
-«رضا شفاخواه»، وکیل دادگستری، از صدور حکم اعدام برای «امیرحسین‌ موسوی»، زندانی سیاسی محبوس در زندان اوین، خبر داد.
-به گفته این وکیل، شعبه ۱۵ دادگاه انقلاب تهران موکلش را به اتهام «افساد فی‌الارض» از طریق فعالیت در حساب کاربری «جیمز بی‌دین» در شبکه اجتماعی ایکس به اعدام محکوم کرده است.
-خواهر امیرحسین موسوی نیز با انتشار پیامی در شبکه اجتماعی ایکس، این حکم را محکوم کرد و  از کاربران شبکه‌های اجتماعی خواست: «صدای امیرحسین باشید. سکوت نکنید.»
-سومین جلسه رسیدگی به اتهام‌های این زندانی سیاسی روز دوشنبه ۳۰ شهریور۱۴۰۵، به ریاست «ابوالقاسم صلواتی» در شعبه ۱۵ دادگاه انقلاب تهران برگزار شد.
-موسوی پیش‌تر با ۹ عنوان اتهامی، از جمله «تشکیل گروه برای اقدام علیه امنیت داخلی»، «اجتماع و تبانی»، «تبلیغ علیه نظام»، «تامین مالی تروریسم» و «همکاری و تبادل اطلاعات با افراد وابسته به اسرائیل» روبه‌رو شده بود. اتهام‌های «محاربه» و «افساد فی‌الارض» نیز در جریان رسیدگی به پرونده او مطرح شدند.
-صداوسیمای جمهوری اسلامی روز ۱۴ مهر۱۴۰۴ ویدئویی از اظهارات موسوی پخش کرد و او را به «جاسوسی و همکاری اطلاعاتی و امنیتی با اسرائیل» متهم کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78993)
 
 ---
 
