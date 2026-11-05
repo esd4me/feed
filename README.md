@@ -3,8 +3,217 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-05 11:04:48 </h5>
+<h5> 🟢 Updated at: 2026-11-05 19:26:57 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-05 19:18:25
+
+
+
+خبرگزاری تاس روسیه روز پنجشنبه ۱۴ آبان‌ماه تصاویری از دیدار و گفتگوی ولادیمیر پوتین، رئیس‌جمهوری روسیه، با محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی ایران، در کاخ کرملین منتشر کرد.
+خبرگزاری اینترفکس نیز به نقل از دمیتری پسکوف، سخنگوی کرملین، برگزاری این دیدار را تأیید کرد. این ملاقات در ادامه رایزنی‌های سیاسی و امنیتی مقام‌های تهران و مسکو و در چارچوب روابط دوجانبه صورت گرفت.
+پیش‌تر رسانه‌ها از گفتگوی تلفنی پوتین و رضایی دربارهٔ آخرین تحولات خاورمیانه و مسائل بین‌المللی خبر داده بودند.
+در جریان رایزنی‌های دو طرف، بر ضرورت ادامه همکاری‌های راهبردی ایران و روسیه و پیشبرد توافق‌های مشترک بر اساس برنامه جامع همکاری دو کشور تأکید شده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79012)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 16:04:55
+
+
+
+دیروز:
+یک مسابقهٔ فوتبال زیر ۲۰ سال در برزیل به هرج‌ومرج کامل کشیده شد و داور مسابقه، پس از وقوع درگیری گسترده در زمین، ناچار شد در رکوردی بی‌سابقه ۵۳ کارت قرمز صادر کند.
+مسابقه به مدت ۴۰ دقیقه متوقف شد، اما سرانجام از سر گرفته شد و تیم ماموره در نهمین دقیقه از وقت‌های تلف‌شده، گل دیگری به ثمر رساند و نتیجه را ۳ بر یک کرد.
+به گزارش رسانه‌های برزیلی، یکی از بازیکنان ماموره، هنگام شادی پس از گل، بازیکنان اوبرلاندیا را تحریک کرد و همین موضوع به دعوای گسترده میان اعضای دو تیم و صدور تعداد زیادی کارت قرمز انجامید.
+در مجموع، ۴۳ بازیکن، هشت نفر از اعضای کادر فنی و دو عضو هیئت‌مدیره باشگاه اوبرلاندیا اخراج شدند و شمار اخراجی‌ها به ۵۳ نفر رسید.
+رکورد پیشین گینس برای بیشترین تعداد کارت قرمز در یک مسابقه فوتبال، ۳۶ کارت قرمز بود که در فوریه ۲۰۱۱، در جریان دیداری در لیگ دسته پنجم آرژانتین میان تیم‌های اتلتیکو کلایپول و ویکتوریانو آرناس ثبت شده بود.
+@
+VahidHeadline
+پریروز:
+خسوس د میگل، مهاجم ۳۰ ساله تنریف، پس از مصدومیت شدید در یکی از مسابقات دسته دوم فوتبال اسپانیا درگذشت.
+این مهاجم روز دوشنبه در دیدار با آندورا، در برخوردی سخت با خسوس اوونو، دروازه‌بان این تیم، از ناحیه سر و قفسه سینه آسیب دید. اوونو به دلیل این برخورد از زمین اخراج شد.
+وضعیت د میگل روز دوشنبه «پایدار ولی وخیم» اعلام شد اما حال این بازیکن اسپانیایی صبح سه‌شنبه وخیم شد و ساعت هفت به وقت گرینویچ (هشت صبح به وقت محلی) جان باخت.
+باشگاه تنریف در بیانیه‌ای گفت: «باشگاه تنریف با قلبی شکسته و بغضی در گلو، در حالی که هنوز نمی‌تواند باور کند این اتفاق واقعا افتاده، درگذشت تلخ خسوس د میگل آلامدا را اعلام می‌کند.»
+«هیچ کلامی نمی‌تواند تسلی‌بخش باشد. هیچ چیزی نمی‌تواند از این اندوه بی‌پایان بکاهد. ما در کنار خانواده داغدار او، عزیزانش و همه مردم تنریف هستیم که امروز در سوگ این فقدان دردناک نشسته‌اند.»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79010)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 16:03:19
+
+<img src="https://cdn4.telesco.pe/file/FP4DqeGz2WaKuHKWmfQViTFhAEwj2nkyVimNtXmwr56jRrzZq35L8XIoLpoC2Eu0PcFpgITbShelrwIbblJ4OSJE2obTjL-FMUEIEQslc_nkCh-Kruz7gCJwLhbQePony0RoHaNbgQ4LlvecpdIpcEvZQfsX7KIk9YhMz0Pvxb75vSh_Y3JcOihDDjoKp4P-6zebeIOOPsg9VB_SnoWGYIDEC-eWClXrCHcA_en188KliJ1ISHFo2ziQtD888Lh8ABobW0wpc6g2w77BtLJ1L7vaJov1-a5po4imRS1fdwrUh-hBfJOOkuFejcSsdQ8ETFz_dp3039oKSQRdo3I6tA.jpg" width="400"><br>
+
+بهمن عبدی، مدیرکل دفتر برنامه‌ریزی و مشارکت‌های اجتماعی جوانان وزارت ورزش و جوانان، اعلام کرد که ثبت‌نام دختران ۱۳ ساله در سامانه‌های همسریابی با رضایت خانواده، بر اساس قوانین موجود، لزوما تخلف قانونی محسوب نمی‌شود.
+او در واکنش به حذف اپلیکیشن همسریابی «آدم و حوا» از پلتفرم‌های گوگل و متا گفت: «چنانچه دختران بالای ۱۳ سال با رضایت خانواده در سامانه‌های همسان‌گزینی ثبت‌نام کنند، این موضوع با توجه به مقررات قانونی موجود قابل بررسی است و نمی‌توان صرف ثبت‌نام این افراد را تخلف قانونی تلقی کرد.»
+این مقام وزارت ورزش با اشاره به واکنش نهادهای حقوق بشری به ثبت‌نام دختران کم‌سن‌وسال گفت که در شرایط فعلی، مبنای قانونی مشخصی برای برخورد با این مجموعه وجود ندارد.
+او افزود که به مراکز همسان‌گزینی توصیه شده است حداقل سن پذیرش دختران را به بالای ۱۵ سال افزایش دهند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79009)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 15:57:08
+
+<img src="https://cdn4.telesco.pe/file/clAaassE_kYRVG4ojIl3-CHgbxeJhRLtUNIpe9zte-USe5rKkcSAPQdUuFgldioULbHWK2Vewhc6jDl1ZPHBqAujiSy2MpAthqw30Fuwm0ri8QQvNxF1mADxhUUmpiHgYRC3Ws3TyPQr0rBA92n5O2aKU1Liz2nxIwP-L03WZlkG29YKKje8QtyTSB3warHa8wf71Uz2ZlCoFuxSRKqXUpCuQnGp14PZ49NfsOu2kBG9HguQgREIsJ3bk_-JgByTe5LWItBfOHZeAbk9NlqNwklBy_kfcvKt1xhww3UqiH3ozZiCLYWwTEIJzO07_oucyDruQe7pmRiRWuHnCeLdMg.jpg" width="400"><br>
+
+متین شبانی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در شاندیز، به اتهام «محاربه» به اعدام محکوم شده است. حکم شعبه پنجم دادگاه انقلاب مشهد در زندان وکیل‌آباد به او ابلاغ شده است.
+هرانا خبر داد دادگاه به ریاست قاضی حسین یزدان‌خواه و با مستشاری رضا جواد موسوی، این معترض را به اتهام «محاربه از طریق مشارکت در تخریب اموال عمومی و آتش‌زدن مراکز مذهبی» و «اجتماع و تبانی علیه کشور» به اعدام محکوم کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79008)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 15:56:37
+
+<img src="https://cdn4.telesco.pe/file/jQwFsMBuPwi64xfqfMzJF4VWSPuHMoC4EvkeT_Y6uuoHUeisIYcj_EK8msrJVg2lSEqMthtSjeIPwO_xbxPT0XDjB2S-wzxIxQz_lBV8Y0M-FCOeDHHCwjIYAPADOAtQrdW9BXRYODLiq7WfhkhhIbYPRZ5sP1pFlWF5OuVxO0pS5yDcsFSf0CX88f6tL4OX3jgmgGk6KZzK8OX0MAsbfmsLg-X2fz9ir1PCOy1UhNvwFOmnVpHvLsfcPTfMLNTrLpE7fPB5-SmXDABJgDiQ0SQHgdwjIoccHUqMAJURsiA7uyPI-aRRsr7NzBMgz_rhoakso4MUgbVrUELmoqBIIg.jpg" width="400"><br>
+
+موج تازه‌ای از تهدیدهای بمب‌گذاری در روز پنج‌شنبه ۱۴ آبان باعث اختلال در پروازهای مسافربری در اروپا شد و شماری از هواپیماها را ناچار به تغییر مسیر یا فرود‌های برنامه‌ریزی‌نشده کرد.
+خبرگزاری‌ها ابتدا گزارش کردند که یک فروند هواپیمای ایرباس که از دوبلین به مقصد رم در حرکت بود، در پی تهدید بمب‌گذاری تغییر مسیر داد و به پایگاه هوایی اِورو در فرانسه هدایت شد.
+پلیس جمهوری چک نیز در شبکه اجتماعی ایکس اعلام کرد که چهار هواپیمای عازم پراگ با تهدید بمب‌گذاری مواجه شده‌اند و نیروهای پلیس در حال آماده‌سازی برای فرود این هواپیماها هستند.
+به گزارش خبرگزاری ایتالیایی آنسا، یک پرواز شرکت هواپیمایی فین‌ایر از هلسینکی به مقصد رم نیز با تهدید بمب‌گذاری مواجه شد.
+خبرگزاری آنسا در عین حال از تهدید بمب‌گذاری در دو پرواز، یکی به مقصد رم و دیگری از مبدأ میلان به ورشو، خبر داد.
+رسانه‌های محلی بلغارستان هم به نقل از مقام‌های این کشور گزارش دادند که سه فروند هواپیما در پی تهدیدهای بمب‌گذاری، فرود اضطراری انجام دادند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79007)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 15:55:42
+
+<img src="https://cdn1.telesco.pe/file/SyU17JA2Ssz-P6x6s713njfMCqFRoAIpusCmUxUvSfIi4lRWOXM1aKQ1uX2nnWEDMs0_E5PCwRdyBbBK-kHc9wlgu3NgMADeKu8mf9O8CXLuEzpCfafBVLzsNz95yockWEVoJsR1qXzPNZKTr86OoN6tI0oafeEwt9jOvCm6PKeDcri9sjTcpCoVT75yecPUCSEP_fOwL35aIc4UvQm4HftcO9PyfPi_er4w5psBOqKMWHrXTS9roEL9OjakX8XJuNn5qH1s47LmSg5aRjYxpoMfUcgETU-hXTBRemb14tPwB5XWHG-YZbkRCIp3urSTwQpd3wlYKJYsaTrOX-hLJA.jpg" width="400"><br>
+
+قالیباف به جی‌دی ونس: چرا این حرف‌ها را به رئیست نمی‌گویی؟
+محمدباقر قالیباف، رئیس مجلس شورای اسلامی، روز پنجشنبه ۱۴ آبان در واکنش به اظهارات اخیر جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در شبکه اجتماعی اکس، با کنایه به سیاست‌های دونالد ترامپ در قبال ایران نوشت: «آمریکا حس قماربازی را منتقل می‌کند که مدام می‌بازد، اما دیگر نمی‌تواند از پای میز قمار بلند شود.»
+قالیباف در ادامه پیام خود با اشاره به آنچه سیاست «اول اسرائیل» خوانده، خطاب به ونس نوشت: «درحالی‌که آمریکا در لبه پرتگاه اول اسرائیل ایستاده است، رئیس تو دارد مرحله بعدی جنگ را آماده می‌کند. از این سخنرانی تد (TED) که بگذریم، چرا این حرف‌ها را به رئیست نمی‌گویی؟»
+این واکنش پس از آن مطرح شد که ونس روز چهارشنبه، در پی شکست جمهوری‌خواهان در انتخابات میان‌دوره‌ای کنگره آمریکا، در پیامی طولانی در شبکه اکس، جنگ با ایران را دلیل اصلی شکست حزب متبوعش معرفی کرد.
+دموکرات‌ها در انتخابات ۱۲ آبان موفق شدند کنترل هر دو مجلس نمایندگان و سنا را از جمهوری‌خواهان بگیرند.
+ونس در تحلیل خود از نتایج انتخابات گفت بخش قابل‌توجهی از رأی‌دهندگانی که در انتخابات ریاست‌جمهوری ۲۰۲۴ از ترامپ حمایت کرده بودند، این بار به دموکرات‌ها رأی داده‌اند. او با استناد به یافته‌های یک نظرسنجی، چهار دلیل اصلی تغییر رفتار این رأی‌دهندگان را پایان دادن به جنگ، رسیدگی به هزینه‌های زندگی و تورم، اولویت دادن به منافع آمریکا و تغییر رابطه واشنگتن با اسرائیل عنوان کرد.
+این اظهارات در حالی مطرح شد که ترامپ، با وجود پذیرش نقش جنگ در شکست انتخاباتی جمهوری‌خواهان، همچنان از تصمیم خود برای آغاز حملات علیه ایران دفاع کرد و گفت اگر دوباره در همان موقعیت قرار بگیرد، باز هم همین تصمیم را خواهد گرفت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79006)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 15:53:22
+
+<img src="https://cdn1.telesco.pe/file/CSbox5dSxSZn1twIErKfyHio5gaALzeJUfXtd-TjO_LHAzTD1GFjox5I227Q9cVZJf4-mGssBH8oJFLBB6GUeS2tYrn_zOsAs6JXSRc-PkGFzRKJtzvtztubJoa_AKMRnqXyxN4b5S-gvGZ7S1cftrPDrV17bKe2o7EHhvCztP-YDShcTlDkZ3UZH8BrAPP75KbE_hw0Uryn6CInaXYM1aKDLEb5Y4OwPBhaRbtEG6RS_Y1O2EUZv3-qm7CNnGvus2Zn7gBoJ9gaIZnOAo_D6ktT-XOSJUhSE3KfR0WrYYW9l74O7Dol5e6Pe5VDS6Ip0VJFcS0V2L5EwtqUQYbNWg.jpg" width="400"><br>
+
+روزنامهٔ فایننشال تایمز می‌گوید به اسنادی دست یافته که نشان می‌دهد روسیه با تأمین ۹۰ پرتابگر موشک هدایت‌شونده برای جمهوری اسلامی ایران موافقت کرده است.
+این روزنامه روز پنج‌شنبه ۱۴ آبان گزارش داد که بر اساس برنامهٔ تولید یک شرکت بزرگ صنایع دفاعی روسیه در سال‌های ۲۰۲۴ و ۲۰۲۵، سفارش صادرات ۹۰ پرتابگر موشک قابل نصب روی بالگرد برای مشتری‌ای ثبت شده که با رمز «K-10» معرفی شده است.
+فایننشال تایمز می‌گوید بررسی اسناد دیگر قراردادهای تسلیحاتی روسیه نشان می‌دهد که این رمز برای اشاره به ایران استفاده می‌شود.
+سند مورد اشاره مربوط به نامه‌ای است که شرکت روسی «ویمپل»، از تولیدکنندگان تجهیزات موشکی، در ماه مه ۲۰۲۴ برای یک شرکت دیگر صنایع دفاعی روسیه فرستاده است.
+با این حال، این روزنامه تأکید کرده که اسناد به‌دست‌آمده مشخص نمی‌کنند آیا پرتابگرهای سفارش‌داده‌شده در نهایت به ایران تحویل داده شده‌اند یا نه.
+@
+VahidHeadline
+وزارت خارجهٔ آمریکا چهارشنبه ۱۳ آبان با انتشار بیانیه‌ای اعلام کرد که دو فرد و یک شرکت را به دلیل مشارکت در تلاش‌ها برای تأمین موشک‌های ضدهوایی دوش‌پرتاب برای رژیم ایران تحریم کرده است.
+بر اساس این بیانیه، محمدعلی طالبوف، مدیرعامل شرکت «آرموری الاینس» مستقر در بلاروس، در تلاش‌های این شرکت برای خرید تسلیحات به نمایندگی از ایران نقش داشته است. این شرکت به‌عنوان واسطه میان شرکت‌های چینی و ایران فعالیت کرده و در تلاش برای خرید صدها سامانهٔ پدافند هوایی دوش‌پرتاب مشارکت داشته است.
+وزارت خارجهٔ آمریکا همچنین شرکت «ونگارد تاکتیکال ساپلای لیمیتد» مستقر در نیجریه را به دلیل مشارکت در تلاش برای تأمین سامانه‌های دوش‌پرتاب ساخت چین برای ایران با استفاده از هویت جعلی مصرف‌کنندگان نهایی تحریم کرد. علیشر دومولودژانوف، فردی مستقر در روسیه، نیز به دلیل نقش داشتن در تلاش برای تأمین این سامانه‌ها مشمول تحریم شد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79004)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 15:50:26
+
+<img src="https://cdn4.telesco.pe/file/LOOKjuY566K91KKM7ci_uzdVlgngUjRqrCc113Ie4olsxMrkgzp8rwr6JHBGHRNRFgElQAFDIBfq8ItJnpjsb_kmIbxTXEhzOcrf-8z5NkLsZydbQhlji8nl74FyWWFPaY1d8rYWywn6p3nfvEZVRMnKVM9bExlfVOEqji5nw5pI0EvStSm-4gaZADNlOpImLkt0lC0xNRHrBrHNMsF7lPQF4JHcpxnU752tIxKyUUjgW_--_b6x28svnuAeiRREnwr9Qw_Qvu3CnaCydvsrWbDgh0OHzbzqlQ29WNfXj0Zo-pwi6_AkXRl5uX-12-PKVOG91Ir6RxQ2MVP1RpSZCA.jpg" width="400"><br>
+
+روزنامهٔ وال‌استریت جورنال گزارش داد که حوثی‌های یمن در پاسخ به تلاش عربستان سعودی برای دستیابی به توافق صلح، خواستار دریافت ۵۱ میلیارد دلار غرامت و به‌رسمیت شناخته شدن به‌عنوان حاکمان یمن شده‌اند.
+این روزنامه روز پنج‌شنبه ۱۴ آبان به نقل از افراد مطلع از گفت‌وگوها نوشت که حوثی‌های مورد حمایت جمهوری اسلامی، این مبلغ را بابت خسارت‌های ناشی از سال‌ها حملات هوایی عربستان و محاصرهٔ یمن مطالبه کرده‌اند.
+این درخواست در شرایطی مطرح شده که حوثی‌ها حملات خود به تأسیسات نفتی، فرودگاه‌ها و مسیرهای کشتیرانی عربستان را تشدید کرده‌اند.
+آن‌ها همچنین در هفته‌های اخیر بخش‌هایی از خاک یمن را تصرف کرده و به فاصلهٔ حدود ۸۰ کیلومتری عدن، محل استقرار دولت به‌رسمیت شناخته‌شدهٔ بین‌المللی یمن، رسیده‌اند.
+وال‌استریت جورنال می‌نویسد محمد بن سلمان، ولیعهد عربستان، تمایلی ندارد بدون برخورداری از موقعیت برتر نظامی وارد مذاکرات شود، اما گزینه‌های نظامی نیز با خطرات جدی همراه است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79003)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 15:49:47
+
+<img src="https://cdn4.telesco.pe/file/OEOwKH6uofADI-oPz-uyj1ejwxDT1T8uxgf62Reb5LtDy6XZDBf64KGAHyWCaI9JVp2Ty-MFwmKHnpXJGrHAI7nXT62A9xLoA-FHLws2haOE3MBhlYjNIKdTKVwiQOUImaUsy6CuWZSwIE1ImU71eOBZQF6AHufdaH0Hu-ml3yaP5fqxsNR_5p4PS9MvfcNm7Hbg-GCEXnjionAJw2xvQ2uBiKm733V48JWfThdSWKT1NtIERNDALBBo6DoHFlVKMB2cQNONRLHabY4mssXG6eMV8Ol36HXa6frrYcIkthuVG1Joje30qx9y1-kfIw59MSe-rGqyCzbABkrZU4aZ4A.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در فاصله ۵۰ مایل دریایی شمال شهر مدینة الشمال قطر هدف اصابت دو پرتابه ناشناس قرار گرفته است.
+ساعاتی قبل از انتشار این گزارش سپاه پاسداران از «آتش سوزی دو نفتکش و یک ید‌کش درپی عبور از مسیر غیرمجاز تنگه هرمز» خبر داده بود.
+از ابتدای ماه جاری میلادی، شش حادثه دریایی در منطقه ثبت شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79002)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-05 15:48:43
+
+<img src="https://cdn4.telesco.pe/file/ItPQqs5ljX4Qe4psz5npV48dllkdLNUWfTbx_22ZfYIPfPpVp2rTTMlXu147edh7jbVtTnrMsfNI3sE3_P_3AHJ62bz28zxWJPT0gmIPTMPU13hRCMK8W0K3ZrXDxFq0fshVbf5gLc_TQoRz5p4ZymKhJzdsWJlFT4xEMMXEqgOpwJsbQr1niYsWTuL8QQJ3LdGD8_W7bhog_2Z23IFMRiewZ29dN5i2pi8k77t-J3sKMIWxSzw0qKDw00A4bCLZQ5vGtMvIfuqVZhHyyHkElRj5HhHd5BcFR7a79of7Jus8Y0VLAs7J0gtMaDyGpvuKGPQ3OqlRJOKayIdhlpg_xQ.jpg" width="400"><br>
+
+محمدحسین سپهری، معلم معترض، چهارشنبه ۱۳ آبان‌ماه، پس از تحمل بیش از سه سال حبس از زندان وکیل‌آباد مشهد آزاد شد.
+سپهری مهرماه ۱۴۰۲ توسط نیروهای امنیتی در مشهد بازداشت و به زندان وکیل‌آباد منتقل شد.
+این زندانی سیاسی در خرداد ۱۴۰۳ به همراه خواهر و برادرش، فاطمه و حسین سپهری، در شعبه پنجم دادگاه انقلاب مشهد محاکمه شد.
+دادگاه او را به اتهام «اجتماع و تبانی علیه امنیت کشور» به پنج سال، «توهین به رهبری» به دو سال و «فعالیت تبلیغی علیه نظام» به یک سال حبس محکوم کرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79001)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-04 22:45:03
@@ -71,7 +280,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-04 19:41:54
 
-<img src="https://cdn4.telesco.pe/file/j9O7O6JTG7kR0Tg9kqvJqzjMY58OExFi-hrfg_y5VRUqFn2oIDa_6la_0nLdezwtCMp9IpaXVuB2CxQvtp5URzdZdWDuyvQIG5PqNhwF5Q3wrSfyPl6ri8xeK0TeMSiUUGqDO6FOFCLUHl0jDxhasxazQxi8LA1DUvV4tt09Rm41lvlTcUETdb_uf2OAv-xnlGGTFrcOeSJPStMIlPifpREbqyTWOyOgDkB9u_qNtDTxZbY4K2-ajVJHq7-IAsP_k8aGQ483m572DWXs7PBsdzvzsMa3DIqloUjZis19KdVP41z30dXfkLl3KYSePGWAGz_bPE9AA59drSVAcm2X7g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/G0y6ZxeZM-gLeO_XAgnfx_8iI3AZBycn6cOt7Q8QTB6LAhbY9bKsfEtb0iexaEEGCbD3_Xiosb40xLnrGlGjL0zPANEMvU6n4Z18lvwVk3a1d1Kl30Lmx77m5SYndxodhTBp-W0ixYfdJm5b-b5UvVKt7Q-3DygnLoJZqLzVQ9ps1O7O0RFdn2f-3VP9lwQGnOCM1dFOg5ooi9HUrwmyY3TWkIelOlm3irjBQG19uRG-g7z0p-_IRKgZI1FTnqBEyccRJwdh5BEDYNUKW-zdrB7LZp-UfoywGo_qD7mkIIzR-aW9uQmf3ZJczFb0M-SLWuk1tLZI9NSXayS2eua8HA.jpg" width="400"><br>
 
 خبرگزاری هرانا از شناسایی هویت وحید خدری‌خواه، ۳۴ ساله، یکی از سه معترض بازداشت‌شده در مشهد خبر داده است که به اتهام «محاربه» به اعدام محکوم شده‌اند. با شناسایی هویت او، مشخصات دو تن از محکومان این پرونده احراز شده، اما هویت نفر سوم همچنان نامعلوم است.
 بر اساس گزارش هرانا، وحید خدری‌خواه به همراه متین فرنیان، ۲۳ ساله، و یک شهروند دیگر در پرونده‌ای مشترک از سوی شعبه پنجم دادگاه انقلاب مشهد به ریاست قاضی حسین یزدان‌خواه به اعدام محکوم شده است.
@@ -88,7 +297,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-04 16:46:13
 
-<img src="https://cdn4.telesco.pe/file/TgDZtdXQRSEO8VkdInhWMz-3VRYn1S8axW4oz8A2f2KBJjsa6ZclW3dCDfdeRxAQLYwTIKNircd3krqAQ8wAN6Yu-LnPQTxfEp8SJZAFzcpGsv0wAY_jz8097PM4VFJt4jflnoHx_ZZPd_FSkorsjdzYU4H3uxS3JkCmlg5wr0dNncsJwXXfC_cCIwjjQcaQRH6gw-Nkazt91UqVUcEb_zwyx6E9XGSYLagpNaD7X0IsQ71UTdV7N6AbNTp83JB_Ymd1zwmzLeKzM5jQT4YAnxLBRlovWpDZYWsesZ7qR89dK3QObmrH6VNHlYG-GHtBpziCUt7qx8W_51mBGTd2zw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/rVMd6DQSgjqA_ITo5pKGz10ugQhbL4e45kNaIYFMInRKa6ouELUAb5Om8Y16Lz5L-6CygDeWN5cJUvczrIN2FkCsUauJz5TPPbq0GTmO0kWXIYhQRa-5NEBhsqNfgDpWA_2c8sENzhT9dDRaC2RwFbircTc_E7KGNSaA9p8Xq5asDU-3zg1NG3IF2Uy4ekUjsFPKvn_g8Y8-p-TS_Kdo_Yoe8h3VLzE81qFFXN1BVwf3q-4uAmolg1J_cKa43FLxiuWOSuirHpIpu1T5lFVJ2qATNVInt_9Z1hA32YfI7CIblcXOtHojIP1KLLXT8bLx9kPPLvUX00k0t8UkvxoS-A.jpg" width="400"><br>
 
 عرضه بنزین سوپر تولید داخل در جایگاه‌های ایران آغاز شده است؛ سوختی که مدیرعامل شرکت ملی پالایش و پخش فرآورده‌های نفتی قیمت آن را لیتری ۱۰۳ هزار تومان اعلام کرده و گفته است بیش از ۷۰ جایگاه برای عرضه آن تجهیز شده‌اند. این رقم در حالی اعلام شده که مدیر بازرگانی شرکت ملی پخش، بهای نهایی بنزین سوپر را بسته به هزینه حمل، بین ۱۰۳ تا ۱۱۰ هزار تومان اعلام کرده است.
 @
@@ -104,7 +313,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-04 16:45:27
 
-<img src="https://cdn1.telesco.pe/file/bNXIT7O0YeUkzAb3oei9lr1XtQnnPcuWQYJlWTw0gxorwLOwgj2PFWVEgDeYQdNwGRcEQt_ygJI9c8h4jAzpTcaL9wsBa8Es1bIVvFP8-ms92biAEcMGEKHu5drOd_zUyf9_Aj-elyy2Ax2D13jwiKwLpjFs0nw8GHPwe8D4EbGBkbGjqcKW-EuY1eQwaUNx61Ewc1TpIxnC9_e0vrpL5h8uDu2DILlphL-p4vh58a1DISdoUHuNuir7uJVPlmDez5jhZ0uoNkBglIjzh81PM0zv800UnFhxNYxLwNHzl3uwR3M7CmMePX2TzUzayXeSlRhTfJht2yq5tSFuadWF3A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/amNGCscERXqg2aDZdFnYyDQR9ZN0vjwawejO9jPA7JeGgv3x7iU8mjSQX8bJ2UrUKTbPrYm0pxjZh7gg-00ke2uaqw1LBeU14h3D0XetAKCrLB34yl7YqOhmJoUI4RPUHOC70ln6YXQ-QGcXmtBN1K4IOyivDxti744Bn2Fu6E8CXlcjy_kXKX86b0ffZKhA9Jx05b5DGSyDL78_bxzXH2Py5JGosur3c6pz0jozkc6hXOyklgGa913WcuexEfh4f2NoJ2YFHtSmaSVomB0iMiX-RZdzDTRJkYpgyPf-xVXviYAwm1Kdk1IoQikh6JmC-gnBGVfDqjvK2DXPZCA7vw.jpg" width="400"><br>
 
 رسانه‌های جمهوری اسلامی با انتشار پیامی منسوب به مجتبی خامنه‌ای، رهبر جمهوری اسلامی، از قول او نوشتند که امید بستن به تغییر رفتار آمریکا در پی جابه‌جایی احزاب سیاسی یا تلاش برای کاهش خصومت واشینگتن از طریق امتیاز دادن، «اشتباه» است.
 در این پیام که روز چهارشنبه ۱۳ آبان منتشر شد، آمده است: «اگر هنوز کسانی هستند که اندک امیدی به تغییر رفتار یا جابه‌جایی‌های حزبی و جناحی در نظام سلطه دارند و یا تصور می‌کنند با امتیاز دادن به آمریکا می‌توانند او را از دشمنی با ملت ایران منصرف کنند، سخت در اشتباه‌اند.»
@@ -124,7 +333,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-04 16:43:55
 
-<img src="https://cdn4.telesco.pe/file/ZmWCRbZh0npkTfSbNYBUfIkgTvKgnWtNycsHcrjdEK3Dpz79OhKw6jc11RUCP_VY68wErQuWNUvMcbKHjPKqIwC18fOZVPd6iLvIXlRIpyGoAIEfndsxoigNKmsRqgX44MUzN1r7yTFD4AdRm-_rvT6ouOBV215slkd0yF6l0VXluqMvsrov_5d9SrOuic5z3e2ufV9ALangtLiUNt1sU_-h_pUUVymJBpD9WzKB4jj38FeqToWiaylnto7uLJFh9rOsS5ne98_bona2tmoYMH04vESGsFY7vm2e-XUCNggfmE_2YnFMu1OT3qB_sIhv_JP7M3IqJBpVKct0q2dOJA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/nRBM0-0x1ZsZyYJX78ElOQ1aXhCNVIOcwuFeuBMIKgSzihz2p-hxnyoVrbhV8NU3oYPfgH7z9sBPL751MVVGYHEmrmpyPw1hbfEGHFaJRP7TeLYHeqD91SnCXWuAQT9ZfHfbphBIvC3Q4YB1-_QUyVrkiSNtHhJ-B67DDDpzAD-SuuevQptrJi5WRjcwmTnEnTk_RAB-G9mDiQA6IkqBt4ODRlV2qA0Sit-9OJuZ8CTU3gtbSgolKSNV2o3w8ldp3rxzbVXG09qI4busMr4vPugrqp6Mn1ewNWN0E_HIikhubqcCQlfl1DGcwZqBNfjWIVzakYruyeWopU895rln1A.jpg" width="400"><br>
 
 عبدل السید، نامزد دموکرات، در انتخابات میان‌دوره‌ای آمریکا موفق شد کرسی سنای ایالت میشیگان را به دست آورد و به نخستین مسلمان منتخب سنای آمریکا تبدیل شود.
 بر اساس پیش‌بینی رسانه‌ها، السید، ۴۲ ساله، در رقابتی نزدیک مایک راجرز، نامزد جمهوری‌خواه مورد حمایت دونالد ترامپ، را شکست داد و کرسی گری پیترز، سناتور دموکرات بازنشسته، را برای حزب خود حفظ کرد.
@@ -143,7 +352,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-04 16:43:29
 
-<img src="https://cdn1.telesco.pe/file/jNUMe7xogJLYnOi4LR2OO22TOVbfxVOhqZ-nLJyo0N9b-JBNH-vaGy-YTrO9CjLilN-oaOle5NfRc2FlrPk1V2QT8mco_UhgV_yRSaLLTwztITUUMqElTnmQSKSpkaiarNi9CcXWp_LZaHr8VkTad8cKhOaJsGDqmQrhvKei34cS2ESbuBTBqEU3kWXzeYmBBU46HinT23dDJNkw5lOYBS_VrFgeW4-mOg3_pyDYr7F11RZOdX9Pyfvu88DpHReiImZpTDtEdjlCz0KBqPIo3K1UJiZQwFfdYDxkBrlwOttAvhm649xAbFmX49nlrBdtDKJiqTObOHqnP-znNCsjhg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ToQq72KmCsb-gjBnLQTqvCXyaoBTIgs1uFMS8eWsTcdc1BQVxV27PxtotGzWA8h5Ofn1n7-g3iCKl5ZOK8zUL2NfALkAr9RpIsHgbpF0VymB6n5KMmORh_c5Lhla96bvITISwMAoqrneUTtDm_X6lzfm_hrRVdo8bCjIpxtRNgZ0KN7MqrnyzuhiumOb_dOeJ82NQN4om6so1S0-8opJ2lHtVuqwqlFlGmXTu8FMvK-jHl7sXDPsuUNLf2MggcfaZ82KPq0Z2X3zQmqbl03yR2JGSpS-I5K89eiya03zCG0zGu3DEYEP49KRdW8cZxEciKMuJpI0nW0ljLDay1Zmyw.jpg" width="400"><br>
 
 «رضا شفاخواه»، وکیل دادگستری، از صدور حکم اعدام برای «امیرحسین‌ موسوی»، زندانی سیاسی محبوس در زندان اوین، خبر داد.
 به گفته این وکیل، شعبه ۱۵ دادگاه انقلاب تهران موکلش را به اتهام «افساد فی‌الارض» از طریق فعالیت در حساب کاربری «جیمز بی‌دین» در شبکه اجتماعی ایکس به اعدام محکوم کرده است.
@@ -157,225 +366,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78993)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 09:36:23
-
-<img src="https://cdn1.telesco.pe/file/GGmWCSKpNzWAgz7OeFe1etu1jMiShQGj8m3PKkPUm8Th53VW-hw02XJlsUC6GGX33HX5mbK5HqhpTfK_TcdiMfsWNauBL-Jhe-P5jfVn4jNYQp9mDoLMJdMXkoGEIkoQC-9vDScprw13VBCqBSNuEp-8sm0eGzvJKT4DRNju4iMzxiD9_xl94FOeLAY-n-MASEnefjd_Vxtx2o171HJYWLUNhhDmnD-AVa-pz5x_nCeVoQDld1mU5F5fDVqP44EeduD_Yh1gdT_2PP1JLuvjULXoGa_OFH_rZRsRfuTZBjMG3vFx1ujT9-H9xux064Eve1FShBTEGTOBTiyyOUZIeg.jpg" width="400"><br>
-
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78992)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 09:34:58
-
-<img src="https://cdn4.telesco.pe/file/W1mZS2v5ijU0d7jtcIXDyCD8nUDxB1Nzg1Id5rHekWVFWGhs7TW57KxesEJttbvqMRMQEC2OwHfP0k6r9Exz2iI7fJ6YyElDAPSRRUC8HE3ZAkwSgyTTpRGlWTToppyyvr55-eoWNC8uPlKoQzTCN1dAKv0UjKeu9z35tUFYRP3r6t4kIHEukjltocR81-SUJlYU12nouwgv0alVJJGqxAbhBVN9kbqcBlNNTYy8PU8c6FPQF_w46tNjUuIJLbjBA644LJVYt7iM2R49DQ73-Tz1BBxa33Aw756NYE39iH73HEaTEHfZZOjc3vL2BVP-1Ouc6uYSftc2tZe4rPI65g.jpg" width="400"><br>
-
-محمد باقر قالیباف، رئیس مجلس شورای و نماینده ارشد جمهوری اسلامی در مذاکرات با ایالات متحده، صبح چهارشنبه ۱۳ آبان و پس از اعلام نتایج انتخابات میان‌دوره‌ای ایالات متحده، موفقیت دموکرات‌ها در تسلط بر هر دو مجلس نمایندگان و سنا را «نه» مردم آمریکا به جنگ توصیف کرد.
-قالیباف در این پیام نوشت: «چه به خاطر وجدان باشد و چه به دلیل هزینه‌های زندگی، آمریکایی‌ها به جنگ «نه» گفتند و ما از این پیام حمایت می‌کنیم.
-اگر دولت ایالات متحده به خواست مردم خود خیانت کند تا در خدمت اربابان بین‌المللی و باج‌گیران باشد، درخواهد یافت که «نه» ما، کابوسی را به دنبال خواهد داشت.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78991)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 09:34:25
-
-<img src="https://cdn1.telesco.pe/file/FJ_6K9EBEpO6NikqrGZqC_SLf-yhGRYOfXpymZ4C0y_oCk6AXQ5eFW0L2RCa6wMLWSTDEaTssGCVJlBoNI37uc8UJiZZS4whasNugjxarENWJYbY9ZpGcPTRElLXxgCT6Txj6lGF730d9P5rEZA7Uh8MEjTNEKEPs6pr47AaBVa8Nw5ZDND4x1SXJtNqoTAekjg55gC2LScm3nSLNeRryAMaZgWCoGAdx-MqunY4oV2cTu5u35vhm8OFZQAFL1ZF-QgowRBGudWQPl6XQ4qo1RFVvTSx1UvQIogU18w3D-iL4UkanWpf911jPyl7af2_kxqSFjWq53_C7JKyAilbxA.jpg" width="400"><br>
-
-دونالد ترامپ، رییس‌جمهوری آمریکا، پذیرفت که جنگ با ایران در شکست جمهوری‌خواهان در انتخابات میان‌دوره‌ای سه‌شنبه نقش داشته است.
-ترامپ به فاکس‌نیوز گفت دموکرات‌ها طرح‌هایی «دیوانه‌وار» برای امضا به کاخ سفید خواهند فرستاد و او آن‌ها را وتو خواهد کرد.
-رییس‌جمهوری آمریکا همچنین گفت که مردم احتمالا نتوانستند پیامدهای کوتاه‌مدت قیمت بنزین پس از جنگ ایران را بپذیرند.
-ترامپ اعلام کرد که قصد تغییر در ترکیب کابینه خود را ندارد.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس جمهوری آمریکا، بامداد چهارشنبه ۱۳ آبان در گفت‌وگو با فاکس نیوز اعلام کرد که نتیجه انتخابات میان‌دوره‌ای کنگره را می‌پذیرد و گفت:‌ «با دموکرات‌ها کار خواهم کرد.»
-ترامپ به خبرنگار فاکس‌نیوز گفت: فکر می‌کنم دموکرات‌ها واقعا خوب کار کردند. آن‌ها سخت جنگیدند. این فضا [برتری دموکرات] وجود داشت و من نباید احساس تقصیر کنم.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78989)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 09:33:26
-
-<img src="https://cdn1.telesco.pe/file/OFBiK9Be-OofYzSEM2h2uIRd2AZPNCCdd6RYcH_vFKEFp8dzMtlIg51jwFQMhLatKXMvhsPjpxvRgo9W18_emB606GsOSC64ftderU86C3ghfBc9ZMcKIfsvGR9jdT0sV0rAAoFfufsCMO-noKZHP9v0yhP2BRG2V3xHkLlz3nyZYAFpmygih8HBNsvFx_bA-1CMaYTW-oJlRmUtpLRisjceHmoT7_dS1xTgXikkLFF7SMxsSkt8OdbxHl1LirwYBOJhKidw4skrIOtIwi9S2zjIpI86xHfd9Gfr9uj6_HSy3-GblC6_wcktLThRu_pmNoWfcYjK1ozgyS87p4dbqA.jpg" width="400"><br>
-
-به گزارش سی‌بی‌اس نیوز، با شمارش بیش از ۵۰ درصد آرا در انتخابات میان‌دوره‌ای آمریکا، حزب دموکرات توانسته است اکثریت را در هر دو مجلس نمایندگان و سنا به دست آورد.
-در مجلس نمایندگان تاکنون، دموکرات‌ها ۱۹۵ و جمهوریخواهان ۱۱۵ کرسی را کسب کرده‌اند.
-در مجلس سنا هم دموکرات‌ها با ۵۲ کرسی در مقابل ۴۱ کرسی جمهوریخواهان، پیروز شده‌اند.
-شمارش آراء ادامه دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78988)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 04:23:04
-
-
-
-دونالد ترامپ، روز سه‌شنبه، در گفت‌وگو با روزنامه «فایننشال تایمز» با رد گمانه‌زنی‌ها درباره تصمیم واشنگتن برای تشدید رویارویی نظامی با جمهوری اسلامی ایران پس از انتخابات میان‌دوره‌ای کنگره، تأکید کرد که ایالات متحده «هیچ برنامه فوری برای حمله به ایران ندارد.» رئیس‌جمهوری ایالات متحده با اشاره به اینکه واشنگتن وضعیت فعلی در قبال تهران را «رضایت‌بخش» می‌داند، گفت: «به نظر می‌رسد ما به هر آنچه می‌خواستیم می‌رسیم.»
-او همچنین در پاسخ به نشانه‌های مطرح‌شده از سوی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، مبنی بر احتمال حمله قریب‌الوقوع طی روزهای آینده افزود: «من آماده‌ام، ما آماده‌ایم. در صورت نیاز کاملاً آماده و مسلح هستیم، اما شاید دلیلی برای انجام آن وجود نداشته باشد.»
-رئیس‌جمهوری آمریکا با تأکید بر اینکه به دلیل آسیب‌های پیشین به زیرساخت‌ها، واشنگتن را در وضعیت یک «جنگ واقعی» با تهران مانند جنگ‌های جهانی نمی‌داند، از تداوم مذاکرات غیرمستقیم بر سر ذخایر اورانیوم غنی‌شده ایران خبر داد و تصریح کرد: «با وجود اینکه این مواد زیر صدها تن سنگ قرار دارند، از بودنشان در آنجا راضی نیستم.
-@
-VahidOOnLine
-رییس‌جمهوری آمریکا گفت: «به نظر می‌رسد داریم به هر آنچه می‌خواهیم، دست پیدا می‌کنیم.»
-ترامپ به فایننشال تایمز گفت که اکنون نفت بیشتری نسبت به پیش از جنگ از تنگه هرمز، گذرگاه حیاتی انتقال نفت خام از خلیج فارس، عبور می‌کند و محاصره بنادر ایران از سوی آمریکا نیز با موفقیت در حال تضعیف اقتصاد تهران است.
-او با «فوق‌العاده» خواندن وضعیت، افزود که آمریکا «در واقع» در حال جنگ با ایران نیست.
-ترامپ درباره اورانیوم غنی‌شده ایران، گفت: «با وجود اینکه این مواد زیر صدها تن سنگ قرار دارد، باید بگویم از اینکه همچنان آنجا باقی بماند، خوشحال نیستم.»
-او گفت: «بنابراین، این یکی از موضوعاتی است که درباره آن گفت‌وگو می‌کنیم. اما می‌دانید، ما در حال مذاکره هستیم و خواهیم دید که نتیجه چه خواهد شد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78986)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 00:20:02
-
-<img src="https://cdn1.telesco.pe/file/Dl5j5E_Sw6ZqqXqxeR2SsY-GinsHi5hwWoZVLrKT30cFTWbt5_JV6X2e0N9JGjTnjyhniLlR8Gg-G-9s5SNXSWske6U6I0cGqNMoi_s1JT3D4tT9Df90NdRWsm_mrXgZIVFHutJIeZQaJtSFJeKJllUnswEoj_Vzr9oTKjyE2FPCuGTdK8aPsTPkAJ6V5JCkNPU9nmq23ERx31pCgo7bSkq6NekPmqdyHg2RezuGwObId5fhBv5-Wqe6qJ2h1XWnOlc83U2Us7foY_-KknWKqLtI2spsxXLrpF5eoz38xuMbJkurJbqOJSc1WwaGvGpFmvARNG6MdOnQXXij_JEb5w.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در فاصله ۱۴ مایل دریایی شمال‌شرق لیما، عمان، دریافت کرده است.
-مسئول امنیتی شرکت مالک یک نفتکش گزارش داده است که دو پرتابه ناشناس به موتورخانه این نفتکش اصابت کرده‌اند.
-UK_MTO
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78985)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 18:19:30
-
-<img src="https://cdn1.telesco.pe/file/cOMRsg4HH9GhFbUMCRTWV_XGA_z1b9WmZoetX5ftMBsky2HvwRIsCSjmBeqExz5luOYpOovxkYM2HfuvtA2xnIKkeIz-r_OzpXraPCJcPuIdtjhnW3_kmN236zcYs3UwcNO5DnxCDbrcvHWBs-oUIGKsPdqff-daQ-S-7IlTi2E6ETXadfXTPe5eXN2X85fVmsNgaSahjLSNyP0ps5tDzzvTfwmZ1BUC_FKlqgDAndeCqA7SbJ7vwgpq4YFGneTjhH9qKLOEYWWSK0PUWAT3xgkdsrlEEfAcI5jdsElPc60hIGasHnJYNdEujWQ9BKlBu-NwLtL7sjUX7k3PmXQuKg.jpg" width="400"><br>
-
-محسن رضایی دبیر شورای عالی امنیت ملی در جمهوری اسلامی در شبکه اجتماعی ایکس نوشت: «پاسخ آمریکا به حقوق و مطالبات ایران قانع‌کننده نبود و آن‌ها باید کامل و صریح هفت شرط ایران را پاسخ داده و به آن عمل کنند؛ تنها در این صورت تنگه هرمز باز خواهد شد.»
-در روزهای اخیر، میانجیگران قطری در دو نوبت به تهران سفر کرده و طرح صلح جدیدی را ارائه کردند. مسعود پزشکیان نیز روز سه‌شنبه در جلسه با استانداران و شهرداران کلان‌شهرها تاکید کرد که بازگشت به جنگ به نفع هیچ‌یک از طرفین نیست. با این وجود، به نظر می‌رسد که این طرح مورد موافقت تهران قرار نگرفته است.
-@
-VahidOOnLine
-📷
-"بنر نصب شده روی دیوار سفارت آلمان در تهران"
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78984)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 17:29:24
-
-
-
-ترامپ: دیشب پدافندی که دو ماه ساختنش طول کشیده بود را هدف قرار دادیم
-ترجمه ماشین:
-خبرنگار: بعد از روز انتخابات چه اتفاقی می‌افتد؟ بعد از امروز، مرحله بعد چیست؟
-ترامپ: خب، خواهیم دید. ببینید،
-من دنبال این نیستم که، می‌دانید، آدم‌های زیادی را بکشم، اما اگر مجبور باشیم، این کار را می‌کنیم.
-ولی نمی‌خواهم چنین کاری بکنم.
-تمام هواپیماها به تکه‌های کوچک، تکه‌های خیلی ریز تبدیل شده‌اند و در باندهای فرودگاه‌های ایران پراکنده‌اند. دیگر هیچ هواپیمایی ندارند. هیچ پدافند ضدهوایی ندارند.
-دیشب تعدادی از آن‌ها را نابود کردیم. فقط یک حمله کوچک بود. جنگ نبود.
-آن‌ها یک تأسیسات پدافند ضدهوایی ساختند. ساخت آن حدود دو ماه طول کشید. ما مراحل ساختش را زیر نظر داشتیم. به‌محض اینکه ساختش تمام شد، دیشب حسابی هدف قرارش دادیم.
-نه، جنگ بزرگی نبود. جنگ بزرگی نبود. و می‌دانید، وقتی درباره جنگ صحبت می‌کنید، این واقعاً جنگ نیست.
-ما هنوز... ما هنوز... منظورم این است که در آغاز خیلی سخت به آن‌ها ضربه زدیم، اما فقط همان بود.
-آن‌ها خیلی سرسخت‌اند. می‌فهمم چرا خاورمیانه از آن‌ها می‌ترسید. خیلی سرسخت‌اند، اما رهبری‌شان را از بین برده‌ایم.
-...
-ایران سلاح هسته‌ای داشت. همه‌چیز برایشان آماده بود. قرار بود ظرف دو هفته به آن دست پیدا کنند.
-آن‌ها برجام را با باراک حسین اوباما داشتند. آن توافق راه رسیدن به سلاح هسته‌ای بود.
-...
-اما این واقعاً جنگ نیست. ما به چیزی شلیک نکرده‌ایم.
-می‌دانید، جنگ مثل روسیه و اوکراین است. آن یک جنگ است.
-جنگ مثل جنگ جهانی دوم است که مدام می‌جنگید و می‌جنگید و هیچ فرصتی برای توقف نبرد ندارید.
-ما آن‌ها را دقیقاً در موقعیتی که می‌خواهیم قرار داده‌ایم. می‌توانیم کارشان را یکسره کنیم، یا می‌توانیم با آن‌ها مدارا کنیم و بگذاریم هزاران نفر زنده بمانند.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78983)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 17:28:14
-
-<img src="https://cdn1.telesco.pe/file/P0cEc9pJ2wxkF5A1T2_r2WhXlCSfSymrzG9a917sYux4jN2FSXjp-rxzCF-YtE6I-1bS7lkQEBakN4MaPO8vjmjF3Ir3N1itJrkZtPGnQr49rS8eb05Qu5kiAMeAUgZS_xvHnxAzjRXOg2Zv9Hnq-70DgRuRYy4cUaFtHWqn8mAM8ZvCB4zMUq5bk5XBV6JYWiDQF49nsiNL_fkqdyWBPiKl-GivSAeqGHlDBoOjbE_T4HMb6QSf0f_Xr3jJeCWF-bl4raM1F4WYElIL1urFmP1Dh-a831K7Z-rDRKJDU26pQ4l3MG2NgS7Tyg9HcWmfG-bhk46T9lViBFis2Fqb5w.jpg" width="400"><br>
-
-مرکز عملیات تجارت دریایی بریتانیا (UKMTO) اعلام کرد که گزارشی از سوی دولت هند مبنی بر وقوع حمله به یک فروند شناور بادبانی (لنج) متعلق به هند دریافت کرده است. این حادثه در تاریخ ۱۱ آبان ۱۴۰۵ (۲ نوامبر ۲۰۲۶) در ساعت ۱۱:۰۵ به وقت هماهنگ جهانی (UTC) و در زمان خروج این شناور از تنگه هرمز رخ داده است.
-بر اساس این گزارش، نیروی دریایی عمان موفق شده است خدمه نجات‌یافته این شناور را نجات دهد، اما وضعیت خود کشتی همچنان نامعلوم است. مرکز عملیات تجارت دریایی بریتانیا به سایر شناورها توصیه کرده است که با احتیاط کامل از منطقه عبور کرده و ضمن گزارش هرگونه فعالیت مشکوک، منتظر نتایج بررسی‌های مقامات مسئول باشند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78982)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 16:11:56
-
-<img src="https://cdn4.telesco.pe/file/PK1gMqpxdHavkYPY0tgrpesyNlrfwTKp4uwPuVy5ItvT-y-14Z4i89UTpvEiw1--sNMkHKR0OWIUymRvE9meEfYsB9llXBxO8iGTtzdG5uwd-hct39N4rJHv59Wjvlq5AbO7anNdkPqF5PpyWoozghyWfhJRYjKdOWC1RP2T2Nr_xI8uPX1-K4vHPBlp8NrDQu7DGtho_8Xt7QvvNP5MPDROwtz71Ao_0JsL-ORFdcZxNSSp_OMsSu_AK-92qtBNT6P1BNkQDeeY2AzmUvTe6UDUTP0rJ4cBI_mZnwlOKbvygDAVshKnzTs94Sm6c5EyWatleL-brvwLfEFg8CBWsg.jpg" width="400"><br>
-
-روزنامه «همشهری»، وابسته به شهرداری تهران، در صفحه نخست شماره سه‌شنبه ۱۲ آبان۱۴۰۵، با انتشار یک تصویرسازی از پایگاه‌های نظامی آمریکا در کشورهای اروپایی، آن‌ها را اهداف احتمالی موشک‌های جمهوری اسلامی در صورت آغاز جنگی تازه معرفی کرده است.
-این روزنامه نزدیک به جریان اصولگرا، در گزارشی با اشاره به راهبرد تقابل «بدون محدودیت جغرافیایی»، نوشته است که احتمال گسترش جنگ به خارج از خاورمیانه افزایش یافته و پایگاه‌های هوایی، دریایی و مراکز پشتیبانی نیروهای آمریکایی در اروپا می‌توانند در فهرست اهداف احتمالی ایران قرار گیرند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78981)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-03 16:10:41
-
-
-
-محمدباقر قالیباف، رئیس مجلس شورای اسلامی روز سه‌شنبه ۱۲ آبان‌ماه با هشدار به همسایگان ایران گفت: «کشورهای منطقه بدانند جمهوری اسلامی ایران همان گونه که با انگشت روی ماشه برای نبرد آماده است، پاسخی مقتدرانه و عقلانی به طرف آمریکایی داده و اکنون توپ در زمین آمریکاست که از جنگ جلوگیری کند.»
-قالیباف که همچنان «مذاکره‌کننده ارشد» حکومت ایران در مذاکرات با آمریکا به شمار می‌رود در سخنرانی پیش از دستور در صحن علنی مجلس مدعی شد: «همزمان ما در عرصه‌‌ی میدانی و نظامی در بالاترین سطح آمادگی دفاعی قرار داریم و اگر واشنگتن بازهم دچار خطای استراتژیک شود بداند که این بار با میدانی جدید از جنگ مواجه شده و درمانده‌تر از امروز به دنبال راه فرار خواهد بود.»
-این اظهارات همزمان با ادامه مذاکرات غیرمستقیم تهران و واشنگتن و در حالی مطرح می‌شود که سنتکام نیمه‌شب دوشنبه و در نخستین دقایق بامداد سه‌شنبه، مناطقی را در جزیره قشم بمباران کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78980)
 
 ---
 
