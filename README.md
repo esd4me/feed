@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-05 04:09:43 </h5>
+<h5> 🟢 Updated at: 2026-11-05 11:04:48 </h5>
 </div>
 
 
@@ -164,7 +164,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-04 09:36:23
 
-<img src="https://cdn1.telesco.pe/file/FdqYnL2GOfH7WmeE189-Sngg54SEjUYjjLvX27g8qVGT34f9XLRhAZNnFXCcLRJTmdaK9m2jyp3k87RzRa9tCJPwh2fmGEpEIZ3cWnmE0K_fY4HDfTuWo3VMz7_5WWQhvridzcd4PbgO-UucrmBPH9Kkce2j33G27AdJ54lmkAQxfRB-dL_z6BykMoV7vSJ23VGzeWh-Idtv7T18J3nBnHtKA3tuP3dt7oEZqtCkSYBIlABe7hmnvd1xhIpek4YY_x0ism-ahqh1A5ucNYsdDivs_fA5n_-isO1RwH5b-Njk7kyAGVvqj0vSFK4zI-yql7wVI8HR-nUfW2VvwnOvNw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GGmWCSKpNzWAgz7OeFe1etu1jMiShQGj8m3PKkPUm8Th53VW-hw02XJlsUC6GGX33HX5mbK5HqhpTfK_TcdiMfsWNauBL-Jhe-P5jfVn4jNYQp9mDoLMJdMXkoGEIkoQC-9vDScprw13VBCqBSNuEp-8sm0eGzvJKT4DRNju4iMzxiD9_xl94FOeLAY-n-MASEnefjd_Vxtx2o171HJYWLUNhhDmnD-AVa-pz5x_nCeVoQDld1mU5F5fDVqP44EeduD_Yh1gdT_2PP1JLuvjULXoGa_OFH_rZRsRfuTZBjMG3vFx1ujT9-H9xux064Eve1FShBTEGTOBTiyyOUZIeg.jpg" width="400"><br>
 
 realDonaldTrump
 📡
@@ -178,7 +178,7 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-11-04 09:34:58
 
-<img src="https://cdn4.telesco.pe/file/o0Yk9KWALf4qhU2xmiWvcZQ_nj_m6yrkJJ1uONUN9c5efkI-mb2xK6QqpujAk0tfFmM4cycN0mNaoIq5VgbLymnw3k1ygdOFKHHiqMwICmbALjro-wJkWe8eK7L67Iv-LPorXXyvEcWCh-Cl4FSkbXoCm6zRIt168ZJ-JR4NjQePmbLlTLIlQ4p_fIJaqnbx6wPBsyWqUhaHOBw8SxEBcPMRR1aeFZmk0Ql2-0crGI336rf_mD5nxG3m5NEvKJUQtS_kYwSjzR1dgAOIwKCcGq5BS6OCUk_g4x98QIQ3Duu5gvzyMCC_03Z-rIno6_pebqIyKjWRdcah-b2fY797Og.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/W1mZS2v5ijU0d7jtcIXDyCD8nUDxB1Nzg1Id5rHekWVFWGhs7TW57KxesEJttbvqMRMQEC2OwHfP0k6r9Exz2iI7fJ6YyElDAPSRRUC8HE3ZAkwSgyTTpRGlWTToppyyvr55-eoWNC8uPlKoQzTCN1dAKv0UjKeu9z35tUFYRP3r6t4kIHEukjltocR81-SUJlYU12nouwgv0alVJJGqxAbhBVN9kbqcBlNNTYy8PU8c6FPQF_w46tNjUuIJLbjBA644LJVYt7iM2R49DQ73-Tz1BBxa33Aw756NYE39iH73HEaTEHfZZOjc3vL2BVP-1Ouc6uYSftc2tZe4rPI65g.jpg" width="400"><br>
 
 محمد باقر قالیباف، رئیس مجلس شورای و نماینده ارشد جمهوری اسلامی در مذاکرات با ایالات متحده، صبح چهارشنبه ۱۳ آبان و پس از اعلام نتایج انتخابات میان‌دوره‌ای ایالات متحده، موفقیت دموکرات‌ها در تسلط بر هر دو مجلس نمایندگان و سنا را «نه» مردم آمریکا به جنگ توصیف کرد.
 قالیباف در این پیام نوشت: «چه به خاطر وجدان باشد و چه به دلیل هزینه‌های زندگی، آمریکایی‌ها به جنگ «نه» گفتند و ما از این پیام حمایت می‌کنیم.
@@ -196,7 +196,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-04 09:34:25
 
-<img src="https://cdn1.telesco.pe/file/L05qQqj5FfAKwAGB4fZUSEhpPJFcJXRrOHL_GKq7DbX4Cys1h17a_chvFgSf1sgAEjGIA08zpm2PtV1zuXJWJdhSlJM4tz8fnuaV8ve1bt2xajtzKKVwBjQDyxBzNZWqJa3C4yDQEjirI4eIztgLLwLw4j93b69W9HHSVjIW8gaG8O0wj9xH6VDRE60TLPrr5hjtkmD-q9EYaPKYAR-6l6esPfFpDurqIqCwn9ywkFYQYEc30h4_nZfxRz5CEa4D1dENm-N4KwzmQXENv_3QPUA-hPuu19SxVscMW-4yt11MQErJ8juAJkLKkTRJTdgFrT9TnB1EBMWURvdksWnauw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/FJ_6K9EBEpO6NikqrGZqC_SLf-yhGRYOfXpymZ4C0y_oCk6AXQ5eFW0L2RCa6wMLWSTDEaTssGCVJlBoNI37uc8UJiZZS4whasNugjxarENWJYbY9ZpGcPTRElLXxgCT6Txj6lGF730d9P5rEZA7Uh8MEjTNEKEPs6pr47AaBVa8Nw5ZDND4x1SXJtNqoTAekjg55gC2LScm3nSLNeRryAMaZgWCoGAdx-MqunY4oV2cTu5u35vhm8OFZQAFL1ZF-QgowRBGudWQPl6XQ4qo1RFVvTSx1UvQIogU18w3D-iL4UkanWpf911jPyl7af2_kxqSFjWq53_C7JKyAilbxA.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، پذیرفت که جنگ با ایران در شکست جمهوری‌خواهان در انتخابات میان‌دوره‌ای سه‌شنبه نقش داشته است.
 ترامپ به فاکس‌نیوز گفت دموکرات‌ها طرح‌هایی «دیوانه‌وار» برای امضا به کاخ سفید خواهند فرستاد و او آن‌ها را وتو خواهد کرد.
@@ -219,7 +219,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-04 09:33:26
 
-<img src="https://cdn1.telesco.pe/file/iXmK0opU6gjIvjrezPVkedFJuxMijlpnUGYx_OiztNI8SuSG7pMMARuPTk3UIRxlqHzAyGsgkwWJcIzpggx5Z1DzeX0Yy5dBvfBFN5rWVd6bkRCyVrQFtLy5xFUL92mjyYW6r2M38s7IZ8KbMtt1bgincSM0vDR5vEHbqXKLTnf7qE6QhOJni200RwqWw5Zn0hpKcWBbjBphQN6M4MMWXGuWQaVB6vbV0sfeLZyCY15ikLyqDyXYBUNLaeEtNsR0pOlTeEQCGuyg30b7Od88_4UxjvOtl8BI3zJLNZUzp3huQNR1RC_67pP1k8lVJSc5jk0WeWVmKl46vP5jLQECuQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OFBiK9Be-OofYzSEM2h2uIRd2AZPNCCdd6RYcH_vFKEFp8dzMtlIg51jwFQMhLatKXMvhsPjpxvRgo9W18_emB606GsOSC64ftderU86C3ghfBc9ZMcKIfsvGR9jdT0sV0rAAoFfufsCMO-noKZHP9v0yhP2BRG2V3xHkLlz3nyZYAFpmygih8HBNsvFx_bA-1CMaYTW-oJlRmUtpLRisjceHmoT7_dS1xTgXikkLFF7SMxsSkt8OdbxHl1LirwYBOJhKidw4skrIOtIwi9S2zjIpI86xHfd9Gfr9uj6_HSy3-GblC6_wcktLThRu_pmNoWfcYjK1ozgyS87p4dbqA.jpg" width="400"><br>
 
 به گزارش سی‌بی‌اس نیوز، با شمارش بیش از ۵۰ درصد آرا در انتخابات میان‌دوره‌ای آمریکا، حزب دموکرات توانسته است اکثریت را در هر دو مجلس نمایندگان و سنا به دست آورد.
 در مجلس نمایندگان تاکنون، دموکرات‌ها ۱۹۵ و جمهوریخواهان ۱۱۵ کرسی را کسب کرده‌اند.
