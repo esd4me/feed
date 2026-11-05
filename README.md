@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-04 22:59:38 </h5>
+<h5> 🟢 Updated at: 2026-11-05 04:09:43 </h5>
 </div>
 
 
@@ -263,7 +263,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-04 00:20:02
 
-<img src="https://cdn1.telesco.pe/file/vyjEYltrshiuXcQDjnfRkf6p564SD8G8BpMXJqs8nJb3293efChF8MntJDBjsfBv87sXxC9lBmyQ00NmCQihA05jdKquMs8Pt9ON5Jm_Vq5y9cnLtJLPT5FrGHEg6CpEBSRrRWGbppe3kjmlkSH1p-6d_JMLWtjwl5l9xv11Xc5mAmZrQPzWyjKqd2PZ6yJoT3n2gl742_vX75zN3oi6O9EdAIkAxgC7yXW5y1BRYoxL7RADZEH-oVNnYllVHTZnQ8e456nyqGGxNIjneFJWha53LD4bJ_gPkx5yjQAjX_MBhvOykcYLInlXFCEfsp1POqd5SBF3_a7JC4Ft4hyOPg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Dl5j5E_Sw6ZqqXqxeR2SsY-GinsHi5hwWoZVLrKT30cFTWbt5_JV6X2e0N9JGjTnjyhniLlR8Gg-G-9s5SNXSWske6U6I0cGqNMoi_s1JT3D4tT9Df90NdRWsm_mrXgZIVFHutJIeZQaJtSFJeKJllUnswEoj_Vzr9oTKjyE2FPCuGTdK8aPsTPkAJ6V5JCkNPU9nmq23ERx31pCgo7bSkq6NekPmqdyHg2RezuGwObId5fhBv5-Wqe6qJ2h1XWnOlc83U2Us7foY_-KknWKqLtI2spsxXLrpF5eoz38xuMbJkurJbqOJSc1WwaGvGpFmvARNG6MdOnQXXij_JEb5w.jpg" width="400"><br>
 
 مرکز عملیات تجارت دریایی بریتانیا گزارشی از وقوع یک حادثه در فاصله ۱۴ مایل دریایی شمال‌شرق لیما، عمان، دریافت کرده است.
 مسئول امنیتی شرکت مالک یک نفتکش گزارش داده است که دو پرتابه ناشناس به موتورخانه این نفتکش اصابت کرده‌اند.
