@@ -3,8 +3,53 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-06 19:59:51 </h5>
+<h5> 🟢 Updated at: 2026-11-07 01:23:15 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-07 00:34:00
+
+
+
+پیام‌های دریافتی:
+وحید جان شروع شد
+قشم همین الان موشک بلند شد
+موشک زدند از قشم
+موشک پدافندی بود
+الان از قشم صدایی شبیه پرتاب موشک اومد
+سلام وحید جان همین الان یک موشک از قشم
+#قشم
+00:32 16 آبان
+شلیک موشک از قشم با صدای واضح
+🔄
+پیام دریافتی:
+وحید جان دریابانی سوزا رو زدن
+منابع محلی:
+ساعت ۴۰ دقیقه بامداد ۱۶ ابان ۱۴۰۵، سوزا در مرکز قشم  مورد هدف قرار گرفت.  گزارش های اولیه از برخورد ۲ پرتابه به مرکز جزیره قشم دارد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79019)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-06 22:05:57
+
+<img src="https://cdn1.telesco.pe/file/VbG5_FvwffUQdOlrhpstFcHRAmu11KAOqXY5nZ-KZCqjLpPF7Z6rCDJehMpbfYVbuJtLYD0BddBU0Ds2Uoe5GQEv-4NKKaBLkaJOWH4YCgpCZSZOvJONPdl1quWpfx6gNGDXTsenQNzNcNrHdmCPCECgn9TajeoSKNVY6OzzmaBe-MGXKwyxF7gaasrB5zNmcvzL1arfBwufkIirE2bJ1PWz2oqX7Tt6ccAXw-8reazx7tnyPHYs35WGJW0cQ_oLBdXTdu1H08FfVwUeCIp4tqX7XFy2AaV238Vk34NlaDQXu1CIKFcpNCGfnfbyoKaqyOLFWUVlj6-Dfss7GFJZ3A.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۱۵ آبان‌ماه، در پیامی در شبکهٔ اجتماعی تروث سوشال، با اشاره به حملات واشنگتن و تل‌آویو به تهران، گفت که اگر مانع دستیابی جمهوری اسلامی به سلاح هسته‌ای نشده بود، اسرائیل و سراسر خاورمیانه امروز وجود نداشتند.
+ترامپ در این پیام نوشت: «اگر من مانع دستیابی ایران به سلاح هسته‌ای نشده بودم، اسرائیل و در واقع، کل خاورمیانه امروز وجود نداشتند. هیچ‌کس نمی‌خواهد این را بگوید، اما همه می‌دانند که حقیقت دارد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79018)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-06 17:44:49
@@ -353,7 +398,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-04 20:54:37
 
-<img src="https://cdn1.telesco.pe/file/tqlu6vVGJTvqegsJhjpH1faU0JKWcSaawdIEA4h0Y2wcnQ3ucxv1fZyAtatlwHmKwEGVweg43zVb1xjNm6q3MPgSk8al0tACdG9AuJBKHJzsm6dfaY2txKpcnDJ-Hmpx7_Vp22uR6_ttyYonfkcI0uIABD1fYMCIHOMxbJo-5s-LX2_yNtAzaQgkAjz-b2cd-NOO0mwctp3jZSlof5x5JPa3pp3Ed9kKXrAiOREdPaV0mgFuIc6YEp8zybU7ntfAPwie4H4PKQAKrpId68EZGiBwm3La9xIF-VnRNzzKfrb7dTNWPcqtYYd3AQ4YdQueZDOBXMXJ-k_tQFcxFuNERw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/eOJvn8qV4RPKKS6NgoglezdYBUXC3HYGIYXu6-ih6yJu5RN1Og7rd91uub29PTBa0OWHzbIjhe7V6nVI--bGelesDebG6RXLHAgFl3lRQXB8lHZdv7eHoIBf82yEBDRSoTKTItkjQKYBcdIJNwMpRGuvznupPBB6q-mT_g5u4ME_rwWpGcVs_iKIl0cAzx5G41VMAD78SAHE-0gijMHJMVkL2FThAPq9ShiiDdMSxr8tTUiA3a4QpoHrg4lNfAhsW2rAHKGzuqdeyodkQgjcYFuJO3HYID4SXVWB20iOWRyvVciGjnhitPA-AAluSWLXBWUK1-ShIrdCSX4Q05nsug.jpg" width="400"><br>
 
 محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روز چهارشنبه ۱۳ آبان‌ماه، در واکنش به نتایج انتخابات میان‌دوره‌ای آمریکا در شبکه اجتماعی اکس نوشت: «ملت ایران در میدان نبرد و در تنگه هرمز، شکستی راهبردی به ترامپ تحمیل کرد و در واشنگتن نیز او را با شکستی سیاسی روبه‌رو ساخت. در همین حال، آمریکایی‌ها مجبور شدند هزینهٔ جنگ او را بپردازند.»
 رضایی در ادامه نوشت: «هر کسی که با ایران دربیفتد، بهای آن را خواهد پرداخت؛ از میدان نبرد گرفته تا آستانهٔ خانهٔ خودش.»
@@ -365,45 +410,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78999)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 20:51:34
-
-<img src="https://cdn4.telesco.pe/file/IfoZuVZ9pHPJRsGU9ele9xByz1vF-HELM8TeMKlSaLwDbkQpibfiwwvnhZaiTwzTko0zZfcR1MCdGhSNR9jivGUAH5VdPZ2I0BbCFLH7eEF7FAi2Lpv3vpAO_K8DTCbXPXpGkf3JoXJluXZHge3BL0uVLUg-VH2jSRYfVrV0TxyzDphUO2N1O2VxdV42FQpHlmKpu057On6pbSk2CVLsZnkkb0xE1UMuI0x7TK12_JiZdrJ-GY2PAu8IcUttYcbs3RAFR_91mNyd2IkIzqMQJb1NWL9XR74H3EhMg7b2Xxd0ry6Lu4TiwcIdih8yJPmKJ2k-C7swRIIxR18JWlPMNw.jpg" width="400"><br>
-
-جی‌دی ونس، معاون رییس‌جمهور آمریکا، جنگ با ایران را از دلایل اصلی شکست جمهوری‌خواهان در انتخابات میان‌دوره‌ای کنگره دانست و گفت بسیاری از رای‌دهندگانی که در انتخابات ۲۰۲۴ به دونالد ترامپ و او رای داده بودند، این بار به نامزدهای دموکرات رای دادند. او پایان جنگ، تمرکز بر هزینه‌های زندگی و تورم، اولویت‌دادن به منافع آمریکا و تغییر رابطه این کشور با اسراییل را چهار خواسته اصلی رای‌دهندگان ناراضی جمهوری‌خواه عنوان کرد.
-ونس روز چهارشنبه ۱۳ آبان در پیامی در شبکه اجتماعی ایکس، با اشاره به نتایج انتخابات مجلس نمایندگان و سنا، نوشت مشکل اصلی جمهوری‌خواهان نه میزان مشارکت هوادارانشان، بلکه تغییر گرایش بخشی از رای‌دهندگان این حزب به دموکرات‌ها بوده است.
-او با استناد به نظرسنجی یکی از تحلیل‌گران سیاسی که به گفته او نتایج انتخابات را به‌درستی پیش‌بینی کرده بود، نوشت از رای‌دهندگانی که در انتخابات ۲۰۲۴ به ترامپ رای داده بودند اما در انتخابات امسال به دموکرات‌ها روی آوردند، درباره دلایل این تغییر و عواملی که ممکن است آن‌ها را دوباره به جمهوری‌خواهان بازگرداند، پرسیده شده است.
-به گفته ونس، چهار پاسخ اصلی این افراد عبارت بوده است از پایان‌دادن به جنگ، تمرکز بر هزینه‌های زندگی و تورم، اولویت‌دادن به منافع آمریکا و تغییر رابطه واشینگتن با اسراییل.
-معاون رییس‌جمهور آمریکا همچنین از کسانی که در حزب جمهوری‌خواه خواستار حل‌وفصل دیپلماتیک درگیری با ایران شده بودند، دفاع کرد و گفت انتقادهایی که روز دوشنبه از ریچل کامپوس دافی به دلیل حمایت از راه‌حل دیپلماتیک مطرح شد، نادرست بود و توصیه سیاسی او درست از آب درآمد.
-ونس با تاکید بر این‌که دلیل اصلی شکست جمهوری‌خواهان جنگ بوده است، نوشت خود دونالد ترامپ نیز شامگاه سه‌شنبه به این موضوع اشاره کرده است. او از کسانی که معتقدند هزینه سیاسی جنگ و از دست‌دادن کنترل سنا برای شش سال آینده ارزش آن را داشته است، خواست صریحا از این موضع دفاع کنند.
-او همچنین پیش‌بینی کرد در ماه‌های آینده اختلاف‌نظرها و تلاش‌هایی برای منحرف‌کردن بحث از دلایل واقعی شکست جمهوری‌خواهان شکل بگیرد. ونس در عین حال گفت همچنان به آینده آمریکا امیدوار است و از جمهوری‌خواهان خواست نارضایتی خود از نتایج انتخابات را به تلاشی برای بازگرداندن حزب به مسیر مورد نظرشان تبدیل کنند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78998)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 19:41:54
-
-<img src="https://cdn4.telesco.pe/file/Bud6q7gjnzB9RbGF74aF3LxOl8fyrJ4ZyvQJG7_-IsfekJWutVtnaGwYlHionrdMs5ApVasPT34K7okaRXFOs2q88SN1E8M7UB4ExdGmefVIViyizHX8XqShXGbxmBr_qEF8-ZeosjDrb3THadNs5BeI-w8Qr0GzpTgxqIyo_5gbMidVu-BoVBpZpiBOkIkiMfCiaI79sy16POaYdxe8YJrttbg-KwXilYysqtZoGQEi3F1Q-D_FRFRQu-jrY3_jfBOJHYM2GdwftWUYRu2G7hx1n-FeUjAj899A_c06hhiu9sVsLtIXuKCisyAFNtiOh5M8AMW53KIxSEZHcEhCHQ.jpg" width="400"><br>
-
-خبرگزاری هرانا از شناسایی هویت وحید خدری‌خواه، ۳۴ ساله، یکی از سه معترض بازداشت‌شده در مشهد خبر داده است که به اتهام «محاربه» به اعدام محکوم شده‌اند. با شناسایی هویت او، مشخصات دو تن از محکومان این پرونده احراز شده، اما هویت نفر سوم همچنان نامعلوم است.
-بر اساس گزارش هرانا، وحید خدری‌خواه به همراه متین فرنیان، ۲۳ ساله، و یک شهروند دیگر در پرونده‌ای مشترک از سوی شعبه پنجم دادگاه انقلاب مشهد به ریاست قاضی حسین یزدان‌خواه به اعدام محکوم شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78997)
 
 ---
 
