@@ -3,14 +3,34 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-06 12:22:24 </h5>
+<h5> 🟢 Updated at: 2026-11-06 19:59:51 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-06 17:44:49
+
+<img src="https://cdn1.telesco.pe/file/EkNkduEz4KQxhXKZsJ4BMZGhGUDWB335H6N0dAmW7XHvOaJf8mFqNXRiRvXgr2QutPDzFfdWMZGlX_cYHRqr3UiUAk2hk9VLrpxQp3GGcqeWIXAOMuoP0slBY7Z-V6gKL8CB-qgK_fiRzGcDbd0pt-amGQ23GzGTrgssmIhJh2p6IviPWXUdE7y0qC4RcVsOaH_GPUwXvHb8cWzm4xNSbBqfVAeDMktEJ7I3Ex_RQz5kchF3FVofxTP1PUU2HzZs5ZyNvz7BHrECgvF4JffyaGFngbCTpP3_RRT4A-_Mj40pUmCo__AR3uQfj5JroLjMbWH-KaKGMyK033h2MZGvNA.jpg" width="400"><br>
+
+شرکت یونانی «ولوس تانکرز» جمعه ۱۵آبان۱۴۰۵ کشته‌شدن یکی از خدمه نفتکش «ولوس سفایر» در حمله‌ای به این کشتی در خلیج فارس را تایید کرد. این شرکت اعلام کرد نفتکش احتمالا هدف یک موشک ناشناس قرار گرفته، اما نوع پرتابه و عامل حمله هنوز مشخص نشده است.
+بر اساس بیانیه این شرکت، حمله بامداد پنجشنبه ۱۴آبان، ساعت یک و ۱۵دقیقه به وقت محلی رخ داده است؛ زمانی که نفتکش بدون محموله به سوی «بندر سیترا» در بحرین در حرکت بود.
+به گفته شرکت، اصابت پرتابه به بخش عقبی سمت چپ کشتی باعث انفجار و آتش‌سوزی شد که خدمه موفق به مهار آن شدند. پیکر یکی از دریانوردان که ابتدا مفقود اعلام شده بود، پیدا شد و سایر اعضای خدمه آسیبی ندیدند.
+مرکز عملیات تجارت دریایی بریتانیا (UKMTO) نیز در هشدار شماره ۱۹۶ از اصابت دو پرتابه ناشناس به یک نفتکش در حدود ۵۰ مایل دریایی شمال قطر خبر داده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79017)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-06 07:42:34
 
 
 
+ترامپ، ترجمه ماشین:
 🔺
 خبرنگار: آقای رئیس‌جمهور، گزارش شده که ایران در حال بررسی مجموعه‌ای از پیشنهادهای ارائه‌شده از سوی میانجی‌هاست که ممکن است آینده برنامه هسته‌ای این کشور را تعیین کنند. آیا آمریکا در این موضوع دخیل است؟
 🔻
@@ -39,7 +59,7 @@
 🔻
 ترامپ: می‌توانید از زاویه دیگری هم به موضوع نگاه کنید.
 در طول سال‌ها، ماجرای ناو «یو‌اس‌اس کول» و بسیاری موارد دیگر... ایران باعث خون‌ریزی زیادی برای آمریکا شده است.
-آن‌ها جنگ را شروع کردند. آن‌ها در سال نوزده... تصور کنید... در واقع احتمالاً در سال ۱۹۷۹ شروعش کردند، درست است؟ از همان موقع شروع شد.
+آن‌ها جنگ را شروع کردند. آن‌ها در سال... تصور کنید... در واقع احتمالاً در سال ۱۹۷۹ شروعش کردند، درست است؟ از همان موقع شروع شد.
 و در طول این مدت، هزاران آمریکایی و بسیاری از مردم دیگر را کشته‌اند.
 و اگر فقط به هفت ماه گذشته نگاه کنید، آن‌ها ۷۵ هزار نفر را کشته‌اند. دست‌کم این آمار مربوط به دو ماه پیش است. آن‌ها ۷۵ هزار معترض را کشته‌اند و بسیاری را از جرثقیل آویخته‌اند.
 🔻
@@ -151,7 +171,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-05 16:03:19
 
-<img src="https://cdn4.telesco.pe/file/FP4DqeGz2WaKuHKWmfQViTFhAEwj2nkyVimNtXmwr56jRrzZq35L8XIoLpoC2Eu0PcFpgITbShelrwIbblJ4OSJE2obTjL-FMUEIEQslc_nkCh-Kruz7gCJwLhbQePony0RoHaNbgQ4LlvecpdIpcEvZQfsX7KIk9YhMz0Pvxb75vSh_Y3JcOihDDjoKp4P-6zebeIOOPsg9VB_SnoWGYIDEC-eWClXrCHcA_en188KliJ1ISHFo2ziQtD888Lh8ABobW0wpc6g2w77BtLJ1L7vaJov1-a5po4imRS1fdwrUh-hBfJOOkuFejcSsdQ8ETFz_dp3039oKSQRdo3I6tA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/X6QGsBTEo7fKfwd8mtYBWfqYzv4UShXk5tpXBkoDRUfgMds0dbxXP7hRvHdJxHzbXWj3sZvgz7qkSIa052IH0_ubOezKrkdcQBdpVqarimjI5hsKmzcJ4wbq_FRGueveCK7RA8sdbhwJFMX26D_RWiw4rqZCNPPdQha5s-VUSm1iBcrzDPLxNBw1rHlX41ULMF7W9PZwlKS1uljKCO8-78OgurzhhgYoo0i_7D1krkv7KirIo5s2LwVvgxuqkgriUuKy5NVbehKCLblqPIZ8gBUYvo3RCa7rTZOD3zRNYS1AXdiuTvRcF7NagGYIz6yOG0UrnnxZGIBspAV73e2q7g.jpg" width="400"><br>
 
 بهمن عبدی، مدیرکل دفتر برنامه‌ریزی و مشارکت‌های اجتماعی جوانان وزارت ورزش و جوانان، اعلام کرد که ثبت‌نام دختران ۱۳ ساله در سامانه‌های همسریابی با رضایت خانواده، بر اساس قوانین موجود، لزوما تخلف قانونی محسوب نمی‌شود.
 او در واکنش به حذف اپلیکیشن همسریابی «آدم و حوا» از پلتفرم‌های گوگل و متا گفت: «چنانچه دختران بالای ۱۳ سال با رضایت خانواده در سامانه‌های همسان‌گزینی ثبت‌نام کنند، این موضوع با توجه به مقررات قانونی موجود قابل بررسی است و نمی‌توان صرف ثبت‌نام این افراد را تخلف قانونی تلقی کرد.»
@@ -170,7 +190,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-05 15:57:08
 
-<img src="https://cdn4.telesco.pe/file/clAaassE_kYRVG4ojIl3-CHgbxeJhRLtUNIpe9zte-USe5rKkcSAPQdUuFgldioULbHWK2Vewhc6jDl1ZPHBqAujiSy2MpAthqw30Fuwm0ri8QQvNxF1mADxhUUmpiHgYRC3Ws3TyPQr0rBA92n5O2aKU1Liz2nxIwP-L03WZlkG29YKKje8QtyTSB3warHa8wf71Uz2ZlCoFuxSRKqXUpCuQnGp14PZ49NfsOu2kBG9HguQgREIsJ3bk_-JgByTe5LWItBfOHZeAbk9NlqNwklBy_kfcvKt1xhww3UqiH3ozZiCLYWwTEIJzO07_oucyDruQe7pmRiRWuHnCeLdMg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/QsGKIe3FrXYjtbvHh7JxIWwur8QGsKwnA8VLfdGybFmt7mPygmBjZswuFGJRt-YlfBngfclM9eIYL9frbEQUrYD8zFnRaOf3sv2hG6oWRfBg8NCFPf-6FGmo9308WrkY_OSbEKFveN1X_gv0lLbHXVj0e9q5zMh9LaXqbPdBL3cpmDGWUaJajyKKUeWqFA2JTPslXCag04yw12SRCK6usM_vuelDURMyebSTd-GDi0kN7GCCtw9dD4ibCM7YY_gKQ4V0KL4ydOVlpaLfrf7m9_WpIN136brKj9XuFUd-3Ra4XDSsvVZZLp9DZaQC3P_ZIg7OLVL7SzSsdBjTpEvaww.jpg" width="400"><br>
 
 متین شبانی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در شاندیز، به اتهام «محاربه» به اعدام محکوم شده است. حکم شعبه پنجم دادگاه انقلاب مشهد در زندان وکیل‌آباد به او ابلاغ شده است.
 هرانا خبر داد دادگاه به ریاست قاضی حسین یزدان‌خواه و با مستشاری رضا جواد موسوی، این معترض را به اتهام «محاربه از طریق مشارکت در تخریب اموال عمومی و آتش‌زدن مراکز مذهبی» و «اجتماع و تبانی علیه کشور» به اعدام محکوم کرده است.
@@ -187,7 +207,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-05 15:56:37
 
-<img src="https://cdn4.telesco.pe/file/jQwFsMBuPwi64xfqfMzJF4VWSPuHMoC4EvkeT_Y6uuoHUeisIYcj_EK8msrJVg2lSEqMthtSjeIPwO_xbxPT0XDjB2S-wzxIxQz_lBV8Y0M-FCOeDHHCwjIYAPADOAtQrdW9BXRYODLiq7WfhkhhIbYPRZ5sP1pFlWF5OuVxO0pS5yDcsFSf0CX88f6tL4OX3jgmgGk6KZzK8OX0MAsbfmsLg-X2fz9ir1PCOy1UhNvwFOmnVpHvLsfcPTfMLNTrLpE7fPB5-SmXDABJgDiQ0SQHgdwjIoccHUqMAJURsiA7uyPI-aRRsr7NzBMgz_rhoakso4MUgbVrUELmoqBIIg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/GshBO2g1VnKuRR0s4Y10m2Leq-MjC682mzer1CX7HNFkxAahcU4dIlw_TbAOGVPkKblAQQTplA6fbMMND9xkCwuw5uOyHdKyrgg010QBOqsSrWSVK-KKIcFVdH4wdBdgzhr7Fm6U0132sYEdNB2LWlKOz3rsi1o3AVP66pAL0aNCNCa7GXZnyMdGmT3nR1lXXXTqX3Cv4XNuHMC9ixN7udEFmxDxwC0nQ7arKEEBaY-ZQRodCojuDElCvB0jmnkUAN3vfkd69R6RDChmapuKPaqd9pdpY0fJecW-IOHywBTY71cO0rhWSPpX6oyPAJIuFPhSCi01nlPYSSm_W2DglA.jpg" width="400"><br>
 
 موج تازه‌ای از تهدیدهای بمب‌گذاری در روز پنج‌شنبه ۱۴ آبان باعث اختلال در پروازهای مسافربری در اروپا شد و شماری از هواپیماها را ناچار به تغییر مسیر یا فرود‌های برنامه‌ریزی‌نشده کرد.
 خبرگزاری‌ها ابتدا گزارش کردند که یک فروند هواپیمای ایرباس که از دوبلین به مقصد رم در حرکت بود، در پی تهدید بمب‌گذاری تغییر مسیر داد و به پایگاه هوایی اِورو در فرانسه هدایت شد.
@@ -208,7 +228,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-05 15:55:42
 
-<img src="https://cdn1.telesco.pe/file/SyU17JA2Ssz-P6x6s713njfMCqFRoAIpusCmUxUvSfIi4lRWOXM1aKQ1uX2nnWEDMs0_E5PCwRdyBbBK-kHc9wlgu3NgMADeKu8mf9O8CXLuEzpCfafBVLzsNz95yockWEVoJsR1qXzPNZKTr86OoN6tI0oafeEwt9jOvCm6PKeDcri9sjTcpCoVT75yecPUCSEP_fOwL35aIc4UvQm4HftcO9PyfPi_er4w5psBOqKMWHrXTS9roEL9OjakX8XJuNn5qH1s47LmSg5aRjYxpoMfUcgETU-hXTBRemb14tPwB5XWHG-YZbkRCIp3urSTwQpd3wlYKJYsaTrOX-hLJA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/TiUtPR9mbddVIgxymX7VZ92hM1q2C3eoK4HLPd37kvFJrDg6sPPXDQBJmcDXJ-J98SRq5pH90SCzkO3qokHVyeFglT-E60MqqIrm9rvewFUomGffNfV26pAorlRn7J_tru0kAtZBhwiq7TD-ik9G6lEzV-zdmcIvRq1c-p94PQYU2EZc_oCVVDFYH7Wl-wTTe8yXoTOHU_6JYGlQjFiQUd_7T9qoEuxGi61a7iHbeGU5fXGWbDp_1oomgEnZ-feqZz8t1xa9msdFxJeWOXCZbV7RT6XDgh-t0_RfQw6NAEF0NFRN2D_Bk5oLJFdMWjkicSc8gMyfs_UMoR9NmrXQsQ.jpg" width="400"><br>
 
 قالیباف به جی‌دی ونس: چرا این حرف‌ها را به رئیست نمی‌گویی؟
 محمدباقر قالیباف، رئیس مجلس شورای اسلامی، روز پنجشنبه ۱۴ آبان در واکنش به اظهارات اخیر جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در شبکه اجتماعی اکس، با کنایه به سیاست‌های دونالد ترامپ در قبال ایران نوشت: «آمریکا حس قماربازی را منتقل می‌کند که مدام می‌بازد، اما دیگر نمی‌تواند از پای میز قمار بلند شود.»
@@ -230,7 +250,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-05 15:53:22
 
-<img src="https://cdn1.telesco.pe/file/CSbox5dSxSZn1twIErKfyHio5gaALzeJUfXtd-TjO_LHAzTD1GFjox5I227Q9cVZJf4-mGssBH8oJFLBB6GUeS2tYrn_zOsAs6JXSRc-PkGFzRKJtzvtztubJoa_AKMRnqXyxN4b5S-gvGZ7S1cftrPDrV17bKe2o7EHhvCztP-YDShcTlDkZ3UZH8BrAPP75KbE_hw0Uryn6CInaXYM1aKDLEb5Y4OwPBhaRbtEG6RS_Y1O2EUZv3-qm7CNnGvus2Zn7gBoJ9gaIZnOAo_D6ktT-XOSJUhSE3KfR0WrYYW9l74O7Dol5e6Pe5VDS6Ip0VJFcS0V2L5EwtqUQYbNWg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/b7qs_P0iBphKJdhAXve7gOleTCmkAe1cJnzoFx2mOpBwHFPRFA1URJA7ZTSIBd1JpVufRNDHZ4sjISQZ7CabusFq6alhHfC7Eom-IU86tVu3WkgEZw-JYgGNbgpM66IK9cN812zyikWAKamPPggUhD3yO4t-62oM3MvLngW1OIP26wIeVOoKbeOFi0CzGzJhVzye4_VqKQU9e_TGwxkh-z9eXEInGSfxuu4PdvLLAUPvAvuB6XXM0IekAaC2iFPr4NZPrhWGEtg7fTDvYpC-wJiOe3KRenFhYKPrXcYqlXwuzyBg-ffcFr_KUCXKUkG7rBJoh1cnyFa8KaVc1KXdqw.jpg" width="400"><br>
 
 روزنامهٔ فایننشال تایمز می‌گوید به اسنادی دست یافته که نشان می‌دهد روسیه با تأمین ۹۰ پرتابگر موشک هدایت‌شونده برای جمهوری اسلامی ایران موافقت کرده است.
 این روزنامه روز پنج‌شنبه ۱۴ آبان گزارش داد که بر اساس برنامهٔ تولید یک شرکت بزرگ صنایع دفاعی روسیه در سال‌های ۲۰۲۴ و ۲۰۲۵، سفارش صادرات ۹۰ پرتابگر موشک قابل نصب روی بالگرد برای مشتری‌ای ثبت شده که با رمز «K-10» معرفی شده است.
@@ -255,7 +275,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-05 15:50:26
 
-<img src="https://cdn4.telesco.pe/file/LOOKjuY566K91KKM7ci_uzdVlgngUjRqrCc113Ie4olsxMrkgzp8rwr6JHBGHRNRFgElQAFDIBfq8ItJnpjsb_kmIbxTXEhzOcrf-8z5NkLsZydbQhlji8nl74FyWWFPaY1d8rYWywn6p3nfvEZVRMnKVM9bExlfVOEqji5nw5pI0EvStSm-4gaZADNlOpImLkt0lC0xNRHrBrHNMsF7lPQF4JHcpxnU752tIxKyUUjgW_--_b6x28svnuAeiRREnwr9Qw_Qvu3CnaCydvsrWbDgh0OHzbzqlQ29WNfXj0Zo-pwi6_AkXRl5uX-12-PKVOG91Ir6RxQ2MVP1RpSZCA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/cB2ieMOyDY5keeYQDF9Bov8KZJnNcVya3bp0cuutIcQGVze7hK0V4XKXFE2AcZeNcHXsWdnW7LTmJZ8I_Km2Pv6IwX9tr51BhCX2g3P7s6LU3SlhsyA4wEJi8QuaAwDZuvlBeH2eJAfD4UlP-G4L_vJW3rfEAGwK6D3VIsxs-6Ug_Z3NmJKDS3cy88hX2yekKsf7gDdX_ApPJBSboAsYbzkpyYpr8xX76-hhGhGRgaI_hC2uHHdDgvOYH4TopwTwjaMiW-_fQ7lfzpIXK67krLlAw4tgb74wA9Q7MsY_4eS1jPsbmlZRYN8ApxWwQhm_l9_cl3NH4A85My6KzjgQcA.jpg" width="400"><br>
 
 روزنامهٔ وال‌استریت جورنال گزارش داد که حوثی‌های یمن در پاسخ به تلاش عربستان سعودی برای دستیابی به توافق صلح، خواستار دریافت ۵۱ میلیارد دلار غرامت و به‌رسمیت شناخته شدن به‌عنوان حاکمان یمن شده‌اند.
 این روزنامه روز پنج‌شنبه ۱۴ آبان به نقل از افراد مطلع از گفت‌وگوها نوشت که حوثی‌های مورد حمایت جمهوری اسلامی، این مبلغ را بابت خسارت‌های ناشی از سال‌ها حملات هوایی عربستان و محاصرهٔ یمن مطالبه کرده‌اند.
@@ -275,7 +295,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-05 15:49:47
 
-<img src="https://cdn4.telesco.pe/file/OEOwKH6uofADI-oPz-uyj1ejwxDT1T8uxgf62Reb5LtDy6XZDBf64KGAHyWCaI9JVp2Ty-MFwmKHnpXJGrHAI7nXT62A9xLoA-FHLws2haOE3MBhlYjNIKdTKVwiQOUImaUsy6CuWZSwIE1ImU71eOBZQF6AHufdaH0Hu-ml3yaP5fqxsNR_5p4PS9MvfcNm7Hbg-GCEXnjionAJw2xvQ2uBiKm733V48JWfThdSWKT1NtIERNDALBBo6DoHFlVKMB2cQNONRLHabY4mssXG6eMV8Ol36HXa6frrYcIkthuVG1Joje30qx9y1-kfIw59MSe-rGqyCzbABkrZU4aZ4A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/GA30_Q5dtHwqqhUVBsKhCzgENXZcwKwgLG6wIwDOrQmZAw4I0tHjZVlpQJPbzQC9M15I9VZ8EwAfsGl1TxrxRQESlbZg1CKSgEH7w_lM8CZKKC8ZAnIJHfIx0fGnGk2s1T2tAY6G4jnpdWrPbdaP2hJ8O9LT9tVUBIyf9-kHM2DeCY3mrv0v_LoPj2Kmv4z63sDlp-vjIXHuXtcZc9RyHuKqPfH72JKvfgdAq0mjAlFl6wPvhZqrGGmhAxN5QDlfu4Y8ZNvu-B4ZbmpWDvrUGGfMzYTcuYj-howl22dEIdOj2RaDCD0CZIF8Qtnj3clLj9uUIIQ4jszcKwj9jGee9w.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در فاصله ۵۰ مایل دریایی شمال شهر مدینة الشمال قطر هدف اصابت دو پرتابه ناشناس قرار گرفته است.
 ساعاتی قبل از انتشار این گزارش سپاه پاسداران از «آتش سوزی دو نفتکش و یک ید‌کش درپی عبور از مسیر غیرمجاز تنگه هرمز» خبر داده بود.
@@ -293,7 +313,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-05 15:48:43
 
-<img src="https://cdn4.telesco.pe/file/ItPQqs5ljX4Qe4psz5npV48dllkdLNUWfTbx_22ZfYIPfPpVp2rTTMlXu147edh7jbVtTnrMsfNI3sE3_P_3AHJ62bz28zxWJPT0gmIPTMPU13hRCMK8W0K3ZrXDxFq0fshVbf5gLc_TQoRz5p4ZymKhJzdsWJlFT4xEMMXEqgOpwJsbQr1niYsWTuL8QQJ3LdGD8_W7bhog_2Z23IFMRiewZ29dN5i2pi8k77t-J3sKMIWxSzw0qKDw00A4bCLZQ5vGtMvIfuqVZhHyyHkElRj5HhHd5BcFR7a79of7Jus8Y0VLAs7J0gtMaDyGpvuKGPQ3OqlRJOKayIdhlpg_xQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/UnwxkTVyKj_fRgGPyJNb9v-1Sg4hYcPHG6ZAeZ1HCem9b054dAEWckdf9Uk5vOeZ9xgDR5ZVtg5TGOhnF8DUdCmIQOeTAs3wvCDBmAwuHyQV1dIge0Wggxgy4lfmjhxJ1tVzPG4ant8nTkPcVoALb4GAMdVMjPajDQwkpBbEOFE_n_GkiwNAovALmnel4GfL31Eh77XFNlUtCFFib-mNrLGewM8udNT9W1WRAU8ZCVT7oiNKKibODwN51sHc0GSmI2CwlzUP6Nxm_Fs5VxUs2SClrVKe4I597BFgv8bjUjUkJ7bMepvf_6eZferr9A5MC4CfXPJkDpW4vbAK9ikcOQ.jpg" width="400"><br>
 
 محمدحسین سپهری، معلم معترض، چهارشنبه ۱۳ آبان‌ماه، پس از تحمل بیش از سه سال حبس از زندان وکیل‌آباد مشهد آزاد شد.
 سپهری مهرماه ۱۴۰۲ توسط نیروهای امنیتی در مشهد بازداشت و به زندان وکیل‌آباد منتقل شد.
@@ -374,7 +394,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-04 19:41:54
 
-<img src="https://cdn4.telesco.pe/file/G0y6ZxeZM-gLeO_XAgnfx_8iI3AZBycn6cOt7Q8QTB6LAhbY9bKsfEtb0iexaEEGCbD3_Xiosb40xLnrGlGjL0zPANEMvU6n4Z18lvwVk3a1d1Kl30Lmx77m5SYndxodhTBp-W0ixYfdJm5b-b5UvVKt7Q-3DygnLoJZqLzVQ9ps1O7O0RFdn2f-3VP9lwQGnOCM1dFOg5ooi9HUrwmyY3TWkIelOlm3irjBQG19uRG-g7z0p-_IRKgZI1FTnqBEyccRJwdh5BEDYNUKW-zdrB7LZp-UfoywGo_qD7mkIIzR-aW9uQmf3ZJczFb0M-SLWuk1tLZI9NSXayS2eua8HA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Bud6q7gjnzB9RbGF74aF3LxOl8fyrJ4ZyvQJG7_-IsfekJWutVtnaGwYlHionrdMs5ApVasPT34K7okaRXFOs2q88SN1E8M7UB4ExdGmefVIViyizHX8XqShXGbxmBr_qEF8-ZeosjDrb3THadNs5BeI-w8Qr0GzpTgxqIyo_5gbMidVu-BoVBpZpiBOkIkiMfCiaI79sy16POaYdxe8YJrttbg-KwXilYysqtZoGQEi3F1Q-D_FRFRQu-jrY3_jfBOJHYM2GdwftWUYRu2G7hx1n-FeUjAj899A_c06hhiu9sVsLtIXuKCisyAFNtiOh5M8AMW53KIxSEZHcEhCHQ.jpg" width="400"><br>
 
 خبرگزاری هرانا از شناسایی هویت وحید خدری‌خواه، ۳۴ ساله، یکی از سه معترض بازداشت‌شده در مشهد خبر داده است که به اتهام «محاربه» به اعدام محکوم شده‌اند. با شناسایی هویت او، مشخصات دو تن از محکومان این پرونده احراز شده، اما هویت نفر سوم همچنان نامعلوم است.
 بر اساس گزارش هرانا، وحید خدری‌خواه به همراه متین فرنیان، ۲۳ ساله، و یک شهروند دیگر در پرونده‌ای مشترک از سوی شعبه پنجم دادگاه انقلاب مشهد به ریاست قاضی حسین یزدان‌خواه به اعدام محکوم شده است.
@@ -384,22 +404,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/78997)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-04 16:46:13
-
-<img src="https://cdn4.telesco.pe/file/rVMd6DQSgjqA_ITo5pKGz10ugQhbL4e45kNaIYFMInRKa6ouELUAb5Om8Y16Lz5L-6CygDeWN5cJUvczrIN2FkCsUauJz5TPPbq0GTmO0kWXIYhQRa-5NEBhsqNfgDpWA_2c8sENzhT9dDRaC2RwFbircTc_E7KGNSaA9p8Xq5asDU-3zg1NG3IF2Uy4ekUjsFPKvn_g8Y8-p-TS_Kdo_Yoe8h3VLzE81qFFXN1BVwf3q-4uAmolg1J_cKa43FLxiuWOSuirHpIpu1T5lFVJ2qATNVInt_9Z1hA32YfI7CIblcXOtHojIP1KLLXT8bLx9kPPLvUX00k0t8UkvxoS-A.jpg" width="400"><br>
-
-عرضه بنزین سوپر تولید داخل در جایگاه‌های ایران آغاز شده است؛ سوختی که مدیرعامل شرکت ملی پالایش و پخش فرآورده‌های نفتی قیمت آن را لیتری ۱۰۳ هزار تومان اعلام کرده و گفته است بیش از ۷۰ جایگاه برای عرضه آن تجهیز شده‌اند. این رقم در حالی اعلام شده که مدیر بازرگانی شرکت ملی پخش، بهای نهایی بنزین سوپر را بسته به هزینه حمل، بین ۱۰۳ تا ۱۱۰ هزار تومان اعلام کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/78996)
 
 ---
 
