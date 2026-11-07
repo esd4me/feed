@@ -3,8 +3,129 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-07 11:31:56 </h5>
+<h5> 🟢 Updated at: 2026-11-07 18:47:21 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-07 17:19:18
+
+<img src="https://cdn1.telesco.pe/file/DNmwrcQvx-AemwLNmVYlSb34zPPyFhi72_UUU2k9NR49AvW0CPSTja_lGRQRHgRZPdmiN4ZZxdVSAm5IFEnRVaNqfKhfXhjdA4ss8vVKkiOzdI50sbxxImGEdg1DNe_rd4bH8B_x3vLyc-J7KJthBCWosEOtwuQ80yPBbEW3gH1yxbLYtysIibfk3aY4Wvmgm8oKiOfxjKx3rgEAkNxkLRX4MUV8ph6G_M4EZd1S330PTug0sZ0PvYMvBHdkriy1sACPdDx5hKJRxCsxhU60gzBoIUSV-9omqz9LUo8lqgyFB-3cAFK_uPQ7KNeBDYkN76KQmrxPPP4nWX7-HCz7iQ.jpg" width="400"><br>
+
+☄️
+"سنتکام کارگروهی برای مختل کردن مسیرهای ترانزیت زمینی ایران در حمایت از محموله‌های غیرقانونی تشکیل می‌دهد"
+ترجمه ماشین:
+تامپا، فلوریدا — روز ۷ نوامبر، فرمانده ستاد فرماندهی مرکزی ایالات متحده (سنتکام) دستور تشکیل کارگروهی را صادر کرد که از تلاش‌های جاری دولت آمریکا برای جلوگیری از استفاده ایران از مسیرهای زمینی به‌منظور انتقال تسلیحات پیشرفته و سایر اقلام پشتیبانی خواهد کرد.
+دریاسالار برد کوپر دستور تشکیل «کارگروه دروازه آهنین» (Task Force Iron Gate) را صادر کرده است؛ یک گروه داخلی متشکل از حدود ۲۰ نیروی غیرنظامی و نظامی که در تامپا، فلوریدا مستقر خواهند بود.
+تیم جدید سنتکام با دیگر نهادهای دولت آمریکا برای جلوگیری از انتقال سامانه‌های تسلیحاتی پیشرفته، فناوری‌های دارای کاربرد دوگانه، اقلام مشمول تحریم و جریان‌های درآمدی غیرقانونی از طریق مرزهای زمینی ایران و دریای خزر هماهنگی خواهد کرد.
+کوپر گفت: «تشکیل کارگروه دروازه آهنین، موفقیت محاصره دریایی نفوذناپذیر ما علیه ایران را تقویت می‌کند. تقویت همکاری سنتکام با نهادهای مختلف دولت آمریکا، توانایی ایران برای تأمین مالی تروریسم، بازسازی کارخانه‌های تسلیحاتی و تجدید قوای نظامی خود را بیش از پیش محدود خواهد کرد.»
+در ماه‌های اخیر، محاصره دریایی آمریکا مانع از صادرات بیش از ۲۵ میلیارد دلار نفت خام توسط ایران شده است. اجرای سخت‌گیرانه این محاصره در دریا همچنان علیه تمامی کشتی‌هایی که وارد بنادر ایران می‌شوند یا از آن‌ها خارج می‌شوند، ادامه دارد.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79026)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-07 17:14:43
+
+
+
+حسین محبی، سخنگوی سپاه پاسداران انقلاب اسلامی، روز شنبه ۱۶ آبان در نشست خبری به مناسبت هفته هوافضای سپاه از برداشته شدن محدودیت برد موشک‌های ایران خبر داد و هشدار داد که در صورت آغاز دور تازه‌ای از درگیری‌ها با آمریکا و اسرائیل، نیروی هوافضای سپاه تسلیحات و
+توانمندی‌هایی را به میدان خواهد آورد که به گفته او، موجب شگفتی جهان خواهد شد.
+محبی در پاسخ به پرسشی درباره اظهارات اخیر رهبر جمهوری اسلامی مبنی بر ضرورت پاسخ فوری و بدون محدودیت جغرافیایی به تهدیدهای «دشمن»، گفت: این محدودیت برای ما برداشته شده است، اما باید در عمل از این قابلیت‌ها رونمایی کنیم و پیش از آن نباید صرفاً شعار بدهیم، چراکه وظیفه ما این است که توانمندی‌های خود را در میدان عمل نشان دهیم.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79025)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-07 16:44:25
+
+<img src="https://cdn1.telesco.pe/file/bGwCSJaqnnM40Fc7OTEiX8xA4rqu9k5TVfamHd00F3w4AYnVHnlA4atPXsZqT2S3pvUS7hloWFAyLdmq1G9XfwSoAC8HKG6-65o3BneWj38EUYRsCDZq4kEPHhcAaCbd92aUwOlqo7CS0Ouc3WKpP1Yt4Jk2uoue_M_bMpJPT8k-W5z7CBKmKBx2C-oCeth74QtKtEyB-RVSebCcGWV-4RsSQSEoMKKtMJ_DukrZo9X6GqM9b0KPZkwFX7el1TzZuetKsNriaq1TKoWSQyQxutMBvKiEKvxC-_HjXL53GIuxpUHKeSXF9tES0SmNFILERCxbpG2uoFd334jN91xYHQ.jpg" width="400"><br>
+
+پیام‌های دریافتی درباره انفجارهایی که بعد از وقوع، "انفجارهای کنترل‌شده مهمات عمل‌نکرده در جنوب و شمال اصفهان" اعلام شدند:
+ساعت ۱۰:۱۰
+سلام اصفهان همین الان صدای انفجار بسیار بلد اومد
+اصفهان همین الان صدا انفجار بدی اومد
+سمت صفه
+سلام وقت بخیر، اصفهان همین الان، سمت کوه صفحه، صدا انفجار اومد.
+۱۰:۱۰ روز شنبه ۱۶ آبان
+اصفهان همین الان صدای انفجار شیشه ها لرزید.
+وحید صدای انفجار شدید اصفهان
+ساعت ۱۰ و ۰۸ دقیقه
+اصفهان صدای انفجار ساعت ۱۰ و ۱۰ دقیقه مال چی بود!
+سلام وحید اصفهان بد لرزیییید یجارو زدن
+حدود ده و ده دقیقه صبح اصفهان صدای انفجار و لرزش خفیف زمین محدوده مسجد سید
+وحید اصفهان انفجار اتفاق افتاد ۱۰:۱۳
+سلام وحیدجان
+اصفهان حدود ساعت ۱۰:۰۵ صدای انفجار اومد که توی کل شهر پیچید.
+دوباره اومد
+الان اصفهان ساعت ۱۰ و ۱۶ دقیقه صدای انفجار اومد شیشه ها لرزید سمت اشکاوندیم ما
+همین الان ساعت ۱۰ و ۱۰ دقیقه صبح یک جایی تو اصفهان رو زد. سمت غرب و شهرک صنعتی بود
+10 و ۱۶ دقیقه باز زد اصفهان رو
+ما شرقی ولی تا غرب و شمال و جنوب لرزید
+سلام.همین الان صدای انفجار شدید در اصفهان.شیشه ها لرزید
+درود وحید جان دادا ی پنج دقیقه پیش اصفهان صدای انفجار اومد
+اصفهان،صدای انفجار اومد
+سمت شمال اصفهان
+۱۰:۱۱ صدای انفجار در اصفهان شنیده شد
+سلام اقا وحید کسی از اصفهان بابت انفجار ها خبر نداده ؟؟
+انگار ۳ ۴ تا انفجار بوده ولی یکیش خیلی مهیب بوده
+درود ساعت ۱۰ و ۱۱ دقیقه صبح صدای انفجار اومد و زمین لرزید
+دقیقا مثل چند روز پیش بود که گفتن مهمات منفجر کردن ولی شدید تر و مطمینا مهمات نیود
+سلام امروز شنبه بعدازظهر  16ابان چندین انفجار درشمال اصفهان شنیده شد
+در شیراز هم صداهایی شنیده شده ولی در اون مورد از قبل اعلام شده بوده.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79024)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-07 16:39:17
+
+<img src="https://cdn4.telesco.pe/file/T1Iw1G-sX2COLfRRJ36UfCOC8U9J3qJZV18G6jD4rBa1XTqrMPiFQ8-Sz6UvwFhAanO9YblD845NtIFe7ia7W8lmoARz-DGpmB5JoYtV7vQ35G1yS1GTCEhMNqhZRGDPxui7hr3kpEF2zfoJ_XL3Qzw3xllbuoqodzUZDqV8UVSp4O-en7m9EEMmkc1UB6wgsbgHBFvdrq93lXCiaRkfauKZlp36tfZrw0m6CW2SgoZKfyuWfHxsAbaZTa5PANVc0uDSBLmggy3Tht7d74q5zto5CB-F6q_ZRGXZ02b2-m6087yAaoemMd3udsZ8JVTiITS2lH8CgY8wSaQJD9YZKQ.jpg" width="400"><br>
+
+«امیر شهیدی‌نژاد»، پدر «مهرشاد شهیدی‌نژاد»، از کشته‌شدگان اعتراضات «زن،زندگی،آزادی» در ۱۴۰۱، به دو سال و شش ماه حبس تعلیقی و پرداخت جزای نقدی به‌جای دو سال و شش ماه حبس تعزیری محکوم شده است. حکم دادگاه در روزهای اخیر به او ابلاغ شده است.
+امیر شهیدی‌نژاد که سال گذشته بازداشت شده بود، پیش‌تر با انتقاد از روند رسیدگی به پرونده کشته‌شدن فرزندش، از عملکرد دستگاه قضایی جمهوری اسلامی انتقاد کرده بود.
+او همچنین گفته بود که قوه قضاییه جمهوری اسلامی حتی موافقت کرده است مجازات حبس محکومان پرونده کشته‌شدن مهرشاد با پرداخت جزای نقدی جایگزین شود.
+مهرشاد شهیدی‌نژاد، جوان ۱۹ ساله اهل اراک، سرآشپز و دانشجوی دانشگاه علمی‌کاربردی بود که روز چهارم آبان۱۴۰۱، هم‌زمان با چهلمین روز جان‌باختن «مهسا ژینا امینی»، در جریان اعتراضات سراسری در اراک کشته شد.
+بر اساس روایت خانواده و شاهدان عینی، نیروهای امنیتی در جریان اعتراضات مهرشاد را تعقیب کردند و پس از آنکه او روی زمین افتاد، با باتوم و شوکر به‌شدت مورد ضرب‌وجرح قرار دادند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79023)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-07 16:35:54
+
+<img src="https://cdn4.telesco.pe/file/WxxT8vMrwc2av4UNkiK5OqNj03QcOiiUEXGBGj1kEzPMIkVpthWdAknf8Hiqj_OF4HdFp8dstzb5sgOyJt3m3gzJ4WvGPRjlOL2xbMy31xjyRXz8g0toSpj6XjylSDUjcQ7ApR-M963bjs-cwqVQiG4UaUE865QzWLHeoV7dfYvYuCTemLSgXorGUUukqHRskdDna57yUjKaQAnwlmrzHX7wrlXRWhhARSf76zTGeRoFIf_9tnmK62UX0ShzjVtql3Ga1F7eJoI4vizTIK-7l-WPW0cipLWp9Jcacyse5FBJGsccuzT4EhYLk8tBYoPL3d0Unwt9nBYb5kQbvYAtvw.jpg" width="400"><br>
+
+خبرگزاری میزان، وابسته به قوه قضائیه، از اجرای حکم اعدام «محمدعارف شه‌بخش» خبر داد. به ادعای میزان، شه‌بخش با جیش‌العدل ارتباط داشت و به اتهام‌های «بغی» و «محاربه» به اعدام محکوم شده بود.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79022)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-07 04:55:31
@@ -93,7 +214,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-06 17:44:49
 
-<img src="https://cdn1.telesco.pe/file/EkNkduEz4KQxhXKZsJ4BMZGhGUDWB335H6N0dAmW7XHvOaJf8mFqNXRiRvXgr2QutPDzFfdWMZGlX_cYHRqr3UiUAk2hk9VLrpxQp3GGcqeWIXAOMuoP0slBY7Z-V6gKL8CB-qgK_fiRzGcDbd0pt-amGQ23GzGTrgssmIhJh2p6IviPWXUdE7y0qC4RcVsOaH_GPUwXvHb8cWzm4xNSbBqfVAeDMktEJ7I3Ex_RQz5kchF3FVofxTP1PUU2HzZs5ZyNvz7BHrECgvF4JffyaGFngbCTpP3_RRT4A-_Mj40pUmCo__AR3uQfj5JroLjMbWH-KaKGMyK033h2MZGvNA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/uAZKnHMo6_ZcV-izNZus-hBxoC8sj8ZzkNCZ6LGUdiSvMb274PRNtmezHRufP6gtRloRuP7ebnhSpHhXgYU5J-fXt3WLM8Gqj4Mr6QLSTRSnuB--KMvnrJPboUGOdgX5a7JAbAAXKM4PZOfVqH3GmVGEy-pC8cvFIISgcMNO3RoIKINyf9DKRfxo_-fTWZbmRmjTY_YfzDSFGNhfhVAJjwlFzhZx3xVJu_FMdhJkHtPOJf-14u9DVWfUhvagOlnROE4-6uRdvSWtOib71WiSVT_N6OPCsrCgsj_nh7sbecQF1K4Ywf-M-31cUhmhfGqvJjbOTUtwLEBYhx8wT4Nx4A.jpg" width="400"><br>
 
 شرکت یونانی «ولوس تانکرز» جمعه ۱۵آبان۱۴۰۵ کشته‌شدن یکی از خدمه نفتکش «ولوس سفایر» در حمله‌ای به این کشتی در خلیج فارس را تایید کرد. این شرکت اعلام کرد نفتکش احتمالا هدف یک موشک ناشناس قرار گرفته، اما نوع پرتابه و عامل حمله هنوز مشخص نشده است.
 بر اساس بیانیه این شرکت، حمله بامداد پنجشنبه ۱۴آبان، ساعت یک و ۱۵دقیقه به وقت محلی رخ داده است؛ زمانی که نفتکش بدون محموله به سوی «بندر سیترا» در بحرین در حرکت بود.
@@ -255,7 +376,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-05 16:03:19
 
-<img src="https://cdn4.telesco.pe/file/X6QGsBTEo7fKfwd8mtYBWfqYzv4UShXk5tpXBkoDRUfgMds0dbxXP7hRvHdJxHzbXWj3sZvgz7qkSIa052IH0_ubOezKrkdcQBdpVqarimjI5hsKmzcJ4wbq_FRGueveCK7RA8sdbhwJFMX26D_RWiw4rqZCNPPdQha5s-VUSm1iBcrzDPLxNBw1rHlX41ULMF7W9PZwlKS1uljKCO8-78OgurzhhgYoo0i_7D1krkv7KirIo5s2LwVvgxuqkgriUuKy5NVbehKCLblqPIZ8gBUYvo3RCa7rTZOD3zRNYS1AXdiuTvRcF7NagGYIz6yOG0UrnnxZGIBspAV73e2q7g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Ygz-yhFpYT7mq5KLo8NeWXmPIwHEZv1X3K7nJoHF_iFq_iSd0IxOpSYpjWLQXM5HChI6TeqUhnnk3sEYFMdQ5W970fCPJfSmLIR-GHEntPdbAV4Ce0jJJB2LlWVqoGQliuTRblq_YyxgnWzYdP7wi-mdZ8X5_gZ2eERRed22KR7n8SbRhoQ2xMFsj3JnI5RzY4OrjBqbIIJE8G_2PR73WtibHIjyS5nYnDEVfg84S3aQLgqhlwQoQyJ8LB8KVzzvz-XIngg0FfufFoc3xic_C9AQtIl-cRDzt-dVLxtftAHE-CczFe0ZQVoN98TaPponfo7_19Q7oGYrX4K2HVfMOQ.jpg" width="400"><br>
 
 بهمن عبدی، مدیرکل دفتر برنامه‌ریزی و مشارکت‌های اجتماعی جوانان وزارت ورزش و جوانان، اعلام کرد که ثبت‌نام دختران ۱۳ ساله در سامانه‌های همسریابی با رضایت خانواده، بر اساس قوانین موجود، لزوما تخلف قانونی محسوب نمی‌شود.
 او در واکنش به حذف اپلیکیشن همسریابی «آدم و حوا» از پلتفرم‌های گوگل و متا گفت: «چنانچه دختران بالای ۱۳ سال با رضایت خانواده در سامانه‌های همسان‌گزینی ثبت‌نام کنند، این موضوع با توجه به مقررات قانونی موجود قابل بررسی است و نمی‌توان صرف ثبت‌نام این افراد را تخلف قانونی تلقی کرد.»
@@ -274,7 +395,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-05 15:57:08
 
-<img src="https://cdn4.telesco.pe/file/QsGKIe3FrXYjtbvHh7JxIWwur8QGsKwnA8VLfdGybFmt7mPygmBjZswuFGJRt-YlfBngfclM9eIYL9frbEQUrYD8zFnRaOf3sv2hG6oWRfBg8NCFPf-6FGmo9308WrkY_OSbEKFveN1X_gv0lLbHXVj0e9q5zMh9LaXqbPdBL3cpmDGWUaJajyKKUeWqFA2JTPslXCag04yw12SRCK6usM_vuelDURMyebSTd-GDi0kN7GCCtw9dD4ibCM7YY_gKQ4V0KL4ydOVlpaLfrf7m9_WpIN136brKj9XuFUd-3Ra4XDSsvVZZLp9DZaQC3P_ZIg7OLVL7SzSsdBjTpEvaww.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ZDk_DO5pZ4UNnz6v2MVIAxGTAcrIVAOQPFktfDQAPf2CZLHvkm0e9QrZ1fFYtNEO9VzZZSrSA6vVTo2JvPw5LSo5zDSWO4lF1DTzy26gxcEnDGbkFWc4pXfxnVcPkheAhw-qetO9NFnob1aZ04Ryy7p5r_eVh_ZKRJcZj3B6G7fx0dTJSetnYVZnbO6_cgCacWKoDdKwyrUk8imcRmcRA5J_Epq-oQxDBu3pql5v4yHWgZz_vo2qsrBOrY-jn6G3DUkBeRk43KqHfbsivZyJueoCJxEJzd2pzJqdDCEOjbUHqMZ2fyWP_Zm95Q0bSNt2x2shLVYXBjtu4QNztHndGg.jpg" width="400"><br>
 
 متین شبانی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در شاندیز، به اتهام «محاربه» به اعدام محکوم شده است. حکم شعبه پنجم دادگاه انقلاب مشهد در زندان وکیل‌آباد به او ابلاغ شده است.
 هرانا خبر داد دادگاه به ریاست قاضی حسین یزدان‌خواه و با مستشاری رضا جواد موسوی، این معترض را به اتهام «محاربه از طریق مشارکت در تخریب اموال عمومی و آتش‌زدن مراکز مذهبی» و «اجتماع و تبانی علیه کشور» به اعدام محکوم کرده است.
@@ -291,7 +412,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-05 15:56:37
 
-<img src="https://cdn4.telesco.pe/file/GshBO2g1VnKuRR0s4Y10m2Leq-MjC682mzer1CX7HNFkxAahcU4dIlw_TbAOGVPkKblAQQTplA6fbMMND9xkCwuw5uOyHdKyrgg010QBOqsSrWSVK-KKIcFVdH4wdBdgzhr7Fm6U0132sYEdNB2LWlKOz3rsi1o3AVP66pAL0aNCNCa7GXZnyMdGmT3nR1lXXXTqX3Cv4XNuHMC9ixN7udEFmxDxwC0nQ7arKEEBaY-ZQRodCojuDElCvB0jmnkUAN3vfkd69R6RDChmapuKPaqd9pdpY0fJecW-IOHywBTY71cO0rhWSPpX6oyPAJIuFPhSCi01nlPYSSm_W2DglA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/eF3mFT5QS6ZF_sWnfGiodssEjKMZzP-EDXz03yEoSMPyzJ7yHRLwaiTOa86rKlx5UGg3yfSttDqkDZa2AG5IjWYaap1uEPcJu_mjrT1Z3kIZoF3mR8dPiydmX4vcOJO_rbQTZ8AC7VyWIagD86eGa3KJxwEI9cSZ9yYxnCuXfmpxclHA5HTX3G7bEaHnA07TVH5gERtGg3zgwtKfLQiK-fuQaEYA0XpYQTkyTI_F-pUuLUT-4STgcAzS4qfeW_22vg9P3h-o_ISQAMzEE7BsWQ7CnfPLhbQJoMo5al_UBiyTqW5w_xy7tcminTcznjmQ85diUt1Z6kBCUsIEeKzU8g.jpg" width="400"><br>
 
 موج تازه‌ای از تهدیدهای بمب‌گذاری در روز پنج‌شنبه ۱۴ آبان باعث اختلال در پروازهای مسافربری در اروپا شد و شماری از هواپیماها را ناچار به تغییر مسیر یا فرود‌های برنامه‌ریزی‌نشده کرد.
 خبرگزاری‌ها ابتدا گزارش کردند که یک فروند هواپیمای ایرباس که از دوبلین به مقصد رم در حرکت بود، در پی تهدید بمب‌گذاری تغییر مسیر داد و به پایگاه هوایی اِورو در فرانسه هدایت شد.
@@ -312,7 +433,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-05 15:55:42
 
-<img src="https://cdn1.telesco.pe/file/TiUtPR9mbddVIgxymX7VZ92hM1q2C3eoK4HLPd37kvFJrDg6sPPXDQBJmcDXJ-J98SRq5pH90SCzkO3qokHVyeFglT-E60MqqIrm9rvewFUomGffNfV26pAorlRn7J_tru0kAtZBhwiq7TD-ik9G6lEzV-zdmcIvRq1c-p94PQYU2EZc_oCVVDFYH7Wl-wTTe8yXoTOHU_6JYGlQjFiQUd_7T9qoEuxGi61a7iHbeGU5fXGWbDp_1oomgEnZ-feqZz8t1xa9msdFxJeWOXCZbV7RT6XDgh-t0_RfQw6NAEF0NFRN2D_Bk5oLJFdMWjkicSc8gMyfs_UMoR9NmrXQsQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/c9Ueapm85_3RGJY7C1R5yPPwrjO7t_rXY8-u9jkrxBbe3Tra_uFHS_RHLh52fwnHQQXROaISqz1ug1XE3TyfOMds1dVQDayNZoZrWCNmgm8G6Ko_re3NFL3jhEqkLQnSaX9UIa2ZrOqc-ihuA3jVilKCAkS9X2oKd2N813QS4924_TKEya4EqXwTMzJDCXzjW0SDdW3-6qzxcDbWJ06oWJKbYDWiSMR3A356Dc7B3n3lCEQlPpO16uGI6UkmWnjIHYZYwnZHCJ9-6SA_4WZYo0gNKTdHkmJpqLv1l-A_zyvpbtGT2ClLal6APMuZbe_wGRCUmWY_xCWyMLrQKWWJBw.jpg" width="400"><br>
 
 قالیباف به جی‌دی ونس: چرا این حرف‌ها را به رئیست نمی‌گویی؟
 محمدباقر قالیباف، رئیس مجلس شورای اسلامی، روز پنجشنبه ۱۴ آبان در واکنش به اظهارات اخیر جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در شبکه اجتماعی اکس، با کنایه به سیاست‌های دونالد ترامپ در قبال ایران نوشت: «آمریکا حس قماربازی را منتقل می‌کند که مدام می‌بازد، اما دیگر نمی‌تواند از پای میز قمار بلند شود.»
@@ -327,88 +448,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79006)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 15:53:22
-
-<img src="https://cdn1.telesco.pe/file/b7qs_P0iBphKJdhAXve7gOleTCmkAe1cJnzoFx2mOpBwHFPRFA1URJA7ZTSIBd1JpVufRNDHZ4sjISQZ7CabusFq6alhHfC7Eom-IU86tVu3WkgEZw-JYgGNbgpM66IK9cN812zyikWAKamPPggUhD3yO4t-62oM3MvLngW1OIP26wIeVOoKbeOFi0CzGzJhVzye4_VqKQU9e_TGwxkh-z9eXEInGSfxuu4PdvLLAUPvAvuB6XXM0IekAaC2iFPr4NZPrhWGEtg7fTDvYpC-wJiOe3KRenFhYKPrXcYqlXwuzyBg-ffcFr_KUCXKUkG7rBJoh1cnyFa8KaVc1KXdqw.jpg" width="400"><br>
-
-روزنامهٔ فایننشال تایمز می‌گوید به اسنادی دست یافته که نشان می‌دهد روسیه با تأمین ۹۰ پرتابگر موشک هدایت‌شونده برای جمهوری اسلامی ایران موافقت کرده است.
-این روزنامه روز پنج‌شنبه ۱۴ آبان گزارش داد که بر اساس برنامهٔ تولید یک شرکت بزرگ صنایع دفاعی روسیه در سال‌های ۲۰۲۴ و ۲۰۲۵، سفارش صادرات ۹۰ پرتابگر موشک قابل نصب روی بالگرد برای مشتری‌ای ثبت شده که با رمز «K-10» معرفی شده است.
-فایننشال تایمز می‌گوید بررسی اسناد دیگر قراردادهای تسلیحاتی روسیه نشان می‌دهد که این رمز برای اشاره به ایران استفاده می‌شود.
-سند مورد اشاره مربوط به نامه‌ای است که شرکت روسی «ویمپل»، از تولیدکنندگان تجهیزات موشکی، در ماه مه ۲۰۲۴ برای یک شرکت دیگر صنایع دفاعی روسیه فرستاده است.
-با این حال، این روزنامه تأکید کرده که اسناد به‌دست‌آمده مشخص نمی‌کنند آیا پرتابگرهای سفارش‌داده‌شده در نهایت به ایران تحویل داده شده‌اند یا نه.
-@
-VahidHeadline
-وزارت خارجهٔ آمریکا چهارشنبه ۱۳ آبان با انتشار بیانیه‌ای اعلام کرد که دو فرد و یک شرکت را به دلیل مشارکت در تلاش‌ها برای تأمین موشک‌های ضدهوایی دوش‌پرتاب برای رژیم ایران تحریم کرده است.
-بر اساس این بیانیه، محمدعلی طالبوف، مدیرعامل شرکت «آرموری الاینس» مستقر در بلاروس، در تلاش‌های این شرکت برای خرید تسلیحات به نمایندگی از ایران نقش داشته است. این شرکت به‌عنوان واسطه میان شرکت‌های چینی و ایران فعالیت کرده و در تلاش برای خرید صدها سامانهٔ پدافند هوایی دوش‌پرتاب مشارکت داشته است.
-وزارت خارجهٔ آمریکا همچنین شرکت «ونگارد تاکتیکال ساپلای لیمیتد» مستقر در نیجریه را به دلیل مشارکت در تلاش برای تأمین سامانه‌های دوش‌پرتاب ساخت چین برای ایران با استفاده از هویت جعلی مصرف‌کنندگان نهایی تحریم کرد. علیشر دومولودژانوف، فردی مستقر در روسیه، نیز به دلیل نقش داشتن در تلاش برای تأمین این سامانه‌ها مشمول تحریم شد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79004)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 15:50:26
-
-<img src="https://cdn4.telesco.pe/file/cB2ieMOyDY5keeYQDF9Bov8KZJnNcVya3bp0cuutIcQGVze7hK0V4XKXFE2AcZeNcHXsWdnW7LTmJZ8I_Km2Pv6IwX9tr51BhCX2g3P7s6LU3SlhsyA4wEJi8QuaAwDZuvlBeH2eJAfD4UlP-G4L_vJW3rfEAGwK6D3VIsxs-6Ug_Z3NmJKDS3cy88hX2yekKsf7gDdX_ApPJBSboAsYbzkpyYpr8xX76-hhGhGRgaI_hC2uHHdDgvOYH4TopwTwjaMiW-_fQ7lfzpIXK67krLlAw4tgb74wA9Q7MsY_4eS1jPsbmlZRYN8ApxWwQhm_l9_cl3NH4A85My6KzjgQcA.jpg" width="400"><br>
-
-روزنامهٔ وال‌استریت جورنال گزارش داد که حوثی‌های یمن در پاسخ به تلاش عربستان سعودی برای دستیابی به توافق صلح، خواستار دریافت ۵۱ میلیارد دلار غرامت و به‌رسمیت شناخته شدن به‌عنوان حاکمان یمن شده‌اند.
-این روزنامه روز پنج‌شنبه ۱۴ آبان به نقل از افراد مطلع از گفت‌وگوها نوشت که حوثی‌های مورد حمایت جمهوری اسلامی، این مبلغ را بابت خسارت‌های ناشی از سال‌ها حملات هوایی عربستان و محاصرهٔ یمن مطالبه کرده‌اند.
-این درخواست در شرایطی مطرح شده که حوثی‌ها حملات خود به تأسیسات نفتی، فرودگاه‌ها و مسیرهای کشتیرانی عربستان را تشدید کرده‌اند.
-آن‌ها همچنین در هفته‌های اخیر بخش‌هایی از خاک یمن را تصرف کرده و به فاصلهٔ حدود ۸۰ کیلومتری عدن، محل استقرار دولت به‌رسمیت شناخته‌شدهٔ بین‌المللی یمن، رسیده‌اند.
-وال‌استریت جورنال می‌نویسد محمد بن سلمان، ولیعهد عربستان، تمایلی ندارد بدون برخورداری از موقعیت برتر نظامی وارد مذاکرات شود، اما گزینه‌های نظامی نیز با خطرات جدی همراه است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79003)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 15:49:47
-
-<img src="https://cdn4.telesco.pe/file/GA30_Q5dtHwqqhUVBsKhCzgENXZcwKwgLG6wIwDOrQmZAw4I0tHjZVlpQJPbzQC9M15I9VZ8EwAfsGl1TxrxRQESlbZg1CKSgEH7w_lM8CZKKC8ZAnIJHfIx0fGnGk2s1T2tAY6G4jnpdWrPbdaP2hJ8O9LT9tVUBIyf9-kHM2DeCY3mrv0v_LoPj2Kmv4z63sDlp-vjIXHuXtcZc9RyHuKqPfH72JKvfgdAq0mjAlFl6wPvhZqrGGmhAxN5QDlfu4Y8ZNvu-B4ZbmpWDvrUGGfMzYTcuYj-howl22dEIdOj2RaDCD0CZIF8Qtnj3clLj9uUIIQ4jszcKwj9jGee9w.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفتکش در فاصله ۵۰ مایل دریایی شمال شهر مدینة الشمال قطر هدف اصابت دو پرتابه ناشناس قرار گرفته است.
-ساعاتی قبل از انتشار این گزارش سپاه پاسداران از «آتش سوزی دو نفتکش و یک ید‌کش درپی عبور از مسیر غیرمجاز تنگه هرمز» خبر داده بود.
-از ابتدای ماه جاری میلادی، شش حادثه دریایی در منطقه ثبت شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79002)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 15:48:43
-
-<img src="https://cdn4.telesco.pe/file/UnwxkTVyKj_fRgGPyJNb9v-1Sg4hYcPHG6ZAeZ1HCem9b054dAEWckdf9Uk5vOeZ9xgDR5ZVtg5TGOhnF8DUdCmIQOeTAs3wvCDBmAwuHyQV1dIge0Wggxgy4lfmjhxJ1tVzPG4ant8nTkPcVoALb4GAMdVMjPajDQwkpBbEOFE_n_GkiwNAovALmnel4GfL31Eh77XFNlUtCFFib-mNrLGewM8udNT9W1WRAU8ZCVT7oiNKKibODwN51sHc0GSmI2CwlzUP6Nxm_Fs5VxUs2SClrVKe4I597BFgv8bjUjUkJ7bMepvf_6eZferr9A5MC4CfXPJkDpW4vbAK9ikcOQ.jpg" width="400"><br>
-
-محمدحسین سپهری، معلم معترض، چهارشنبه ۱۳ آبان‌ماه، پس از تحمل بیش از سه سال حبس از زندان وکیل‌آباد مشهد آزاد شد.
-سپهری مهرماه ۱۴۰۲ توسط نیروهای امنیتی در مشهد بازداشت و به زندان وکیل‌آباد منتقل شد.
-این زندانی سیاسی در خرداد ۱۴۰۳ به همراه خواهر و برادرش، فاطمه و حسین سپهری، در شعبه پنجم دادگاه انقلاب مشهد محاکمه شد.
-دادگاه او را به اتهام «اجتماع و تبانی علیه امنیت کشور» به پنج سال، «توهین به رهبری» به دو سال و «فعالیت تبلیغی علیه نظام» به یک سال حبس محکوم کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79001)
 
 ---
 
