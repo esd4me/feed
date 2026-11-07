@@ -3,15 +3,63 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-07 18:47:21 </h5>
+<h5> 🟢 Updated at: 2026-11-07 23:14:42 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-07 22:47:30
+
+<img src="https://cdn1.telesco.pe/file/KWSAC1C_wdpD3P1sjcB47evdeit7Tx5_UShzp8Q48Z4Ns_hd5q8UnIK951H10vXsdHxMPL0G1UpIwzKG_OU1Fa5aTyQidv1VHGxP-BTBbhM5xaWuAD2YNvxwC103BmWFe7Os2IF8RDDWbrtbBzOQKQdGqbxA4og2MfIlHFSCI7FPPVK2W-tKhj7TO4R9-RqkqBzpUrNr0f_8ql6CiNAdev2ewgnmtkQvNXZHX3EQGm4FAa30XZbKy5JNxl_z-bwvLLNzmdabVGvk_ZPxAGAOaLHYfmMQtt6Zpu-9b8TCJG6A1hLH5hamxqzGXhC4KLVErGGFyEQQB2-RiY9jgbFRQg.jpg" width="400"><br>
+
+آپدیت: عکس دریافتی با شرح جاسک
+پیام‌های دریافتی:
+ساعت ۱۰:۴۶ شب یه انفجار قشم
+وحید جان دوباره صدایی شبیه انفجار از قشم اومد
+سلام همین الان ساعت ۲۲:۴۸
+۴ انفجار در جاسک
+سلام وحید جان ساعت ۲۲و۴۶دقیقه یه انفجار مهیب از سمت دریا و بندر شنیدیم.
+یک انفجار نسبتا مهیب ولی خیلی بم  بودش
+آپدیت:‌
+ایرنا: دقایقی پیش صدای ۲ انفجار در جزیره قشم به گوش رسید
+🔹
+خبرنگار ایرنا در قشم گزارش داد اصابت رخ داده شده داخل جزیره و از سمت شرق آن بوده است.
+🔹
+منابع محلی و استانی در مورد جزئیات این واقعه اظهار نظر نکرده اند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79029)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-07 20:22:35
+
+<img src="https://cdn1.telesco.pe/file/vzSnmoe4FWq08E_LgwiysPyO48SjpVglyDLml_NDWV8QjclUYsb9Dtcixioo3l5wzSd0LBqCorkYrxIa71TH57e7h_ZoIIoUgRLquoFQxmQK3SU0-kBEjeRUpDF0Fhsw8dYLLSOmeUfvq_-nBNaK0DFbejvEC7kXFDNoPi7sEKSQqFacyQPY2s5hNsX7gxBEnB7lAl4XJNt4CS6Rqxg75oX_Az8_0KdOZf3nCaZ7elTX4mmI_1vdDt2KWiURuIL_4tvrWqBLUYCbEBOnX5CC0bxJbbtwteMnrq97hfIEBG8iWS-c-dIWQd5Ro1t_Q8dk_DvUjkQ3E5NiaMZ5GZ7DcQ.jpg" width="400"><br>
+
+شاهزاده رضا پهلوی روز شنبه ۱۶ آبان در فرانکفورت «جایزه آزادی» بنیاد فریدریش ناومان را که امسال به مردم ایران اهدا شده است دریافت کرد.
+مراسم اهدای جایزه در کلیسای سنت پل فرانکفورت برگزار شد. بنیاد فریدریش ناومان، که به حزب دموکرات آزاد آلمان نزدیک است، اعلام کرده است رضا پهلوی این جایزه را به صورت امانی و تا زمانی که نمایندگان منتخب مردم ایران بتوانند آن را دریافت کنند، در اختیار خواهد داشت.
+شاهزاده رضا پهلوی در سخنرانی خود گفت ایران «کشوری نیست که منتظر آموزش دموکراسی باشد»، بلکه  از «عمل کردن به دموکراسی» بازداشته شده است.
+@
+VahidHeadline
+هزاران نفر از حامیان شاهزاده رضا پهلوی روز شنبه ۱۶ آبان برای حمایت از او در فرانکفورت گرد هم آمدند.
+به گزارش پلیس فرانکفورت حدود ۲۰ هزار نفر در این تجمع حضور داشتند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79027)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-07 17:19:18
 
 <img src="https://cdn1.telesco.pe/file/DNmwrcQvx-AemwLNmVYlSb34zPPyFhi72_UUU2k9NR49AvW0CPSTja_lGRQRHgRZPdmiN4ZZxdVSAm5IFEnRVaNqfKhfXhjdA4ss8vVKkiOzdI50sbxxImGEdg1DNe_rd4bH8B_x3vLyc-J7KJthBCWosEOtwuQ80yPBbEW3gH1yxbLYtysIibfk3aY4Wvmgm8oKiOfxjKx3rgEAkNxkLRX4MUV8ph6G_M4EZd1S330PTug0sZ0PvYMvBHdkriy1sACPdDx5hKJRxCsxhU60gzBoIUSV-9omqz9LUo8lqgyFB-3cAFK_uPQ7KNeBDYkN76KQmrxPPP4nWX7-HCz7iQ.jpg" width="400"><br>
 
-☄️
 "سنتکام کارگروهی برای مختل کردن مسیرهای ترانزیت زمینی ایران در حمایت از محموله‌های غیرقانونی تشکیل می‌دهد"
 ترجمه ماشین:
 تامپا، فلوریدا — روز ۷ نوامبر، فرمانده ستاد فرماندهی مرکزی ایالات متحده (سنتکام) دستور تشکیل کارگروهی را صادر کرد که از تلاش‌های جاری دولت آمریکا برای جلوگیری از استفاده ایران از مسیرهای زمینی به‌منظور انتقال تسلیحات پیشرفته و سایر اقلام پشتیبانی خواهد کرد.
@@ -197,7 +245,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-11-06 22:05:57
 
-<img src="https://cdn1.telesco.pe/file/VbG5_FvwffUQdOlrhpstFcHRAmu11KAOqXY5nZ-KZCqjLpPF7Z6rCDJehMpbfYVbuJtLYD0BddBU0Ds2Uoe5GQEv-4NKKaBLkaJOWH4YCgpCZSZOvJONPdl1quWpfx6gNGDXTsenQNzNcNrHdmCPCECgn9TajeoSKNVY6OzzmaBe-MGXKwyxF7gaasrB5zNmcvzL1arfBwufkIirE2bJ1PWz2oqX7Tt6ccAXw-8reazx7tnyPHYs35WGJW0cQ_oLBdXTdu1H08FfVwUeCIp4tqX7XFy2AaV238Vk34NlaDQXu1CIKFcpNCGfnfbyoKaqyOLFWUVlj6-Dfss7GFJZ3A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/p7FpqmdsFTmCum9XrtBxH7CSEFinI23U2s83YkJddB2VVm3ILR0gbJTF7sRRq7Hp7yS0uvdKQV3zUi0RqcwZn4Cz2Hc9lnA25M7bx0bf-Ozz_AF63GafoSMjS46EhwXQl7ummAxZEHAlOZRgBK-DYu5HIhSccM7oVDCMf6wBP0NPype-L1kpeay3gmxHWQYfjPj9kYmyK-ribmlypuDldzpDm38gb0VlvmJ_69pZ-4shZaYYLptKZdElM27xSQiv2g3FdPxMowixAJs74MSjRWVbcH1_LGUcjLHepQF2LH83723pXrz6SVoYs5LLPTd0pqJjzK5SLs3b92LQ0uZkOA.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۱۵ آبان‌ماه، در پیامی در شبکهٔ اجتماعی تروث سوشال، با اشاره به حملات واشنگتن و تل‌آویو به تهران، گفت که اگر مانع دستیابی جمهوری اسلامی به سلاح هسته‌ای نشده بود، اسرائیل و سراسر خاورمیانه امروز وجود نداشتند.
 ترامپ در این پیام نوشت: «اگر من مانع دستیابی ایران به سلاح هسته‌ای نشده بودم، اسرائیل و در واقع، کل خاورمیانه امروز وجود نداشتند. هیچ‌کس نمی‌خواهد این را بگوید، اما همه می‌دانند که حقیقت دارد.»
@@ -388,66 +436,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79009)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 15:57:08
-
-<img src="https://cdn4.telesco.pe/file/ZDk_DO5pZ4UNnz6v2MVIAxGTAcrIVAOQPFktfDQAPf2CZLHvkm0e9QrZ1fFYtNEO9VzZZSrSA6vVTo2JvPw5LSo5zDSWO4lF1DTzy26gxcEnDGbkFWc4pXfxnVcPkheAhw-qetO9NFnob1aZ04Ryy7p5r_eVh_ZKRJcZj3B6G7fx0dTJSetnYVZnbO6_cgCacWKoDdKwyrUk8imcRmcRA5J_Epq-oQxDBu3pql5v4yHWgZz_vo2qsrBOrY-jn6G3DUkBeRk43KqHfbsivZyJueoCJxEJzd2pzJqdDCEOjbUHqMZ2fyWP_Zm95Q0bSNt2x2shLVYXBjtu4QNztHndGg.jpg" width="400"><br>
-
-متین شبانی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ در شاندیز، به اتهام «محاربه» به اعدام محکوم شده است. حکم شعبه پنجم دادگاه انقلاب مشهد در زندان وکیل‌آباد به او ابلاغ شده است.
-هرانا خبر داد دادگاه به ریاست قاضی حسین یزدان‌خواه و با مستشاری رضا جواد موسوی، این معترض را به اتهام «محاربه از طریق مشارکت در تخریب اموال عمومی و آتش‌زدن مراکز مذهبی» و «اجتماع و تبانی علیه کشور» به اعدام محکوم کرده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79008)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 15:56:37
-
-<img src="https://cdn4.telesco.pe/file/eF3mFT5QS6ZF_sWnfGiodssEjKMZzP-EDXz03yEoSMPyzJ7yHRLwaiTOa86rKlx5UGg3yfSttDqkDZa2AG5IjWYaap1uEPcJu_mjrT1Z3kIZoF3mR8dPiydmX4vcOJO_rbQTZ8AC7VyWIagD86eGa3KJxwEI9cSZ9yYxnCuXfmpxclHA5HTX3G7bEaHnA07TVH5gERtGg3zgwtKfLQiK-fuQaEYA0XpYQTkyTI_F-pUuLUT-4STgcAzS4qfeW_22vg9P3h-o_ISQAMzEE7BsWQ7CnfPLhbQJoMo5al_UBiyTqW5w_xy7tcminTcznjmQ85diUt1Z6kBCUsIEeKzU8g.jpg" width="400"><br>
-
-موج تازه‌ای از تهدیدهای بمب‌گذاری در روز پنج‌شنبه ۱۴ آبان باعث اختلال در پروازهای مسافربری در اروپا شد و شماری از هواپیماها را ناچار به تغییر مسیر یا فرود‌های برنامه‌ریزی‌نشده کرد.
-خبرگزاری‌ها ابتدا گزارش کردند که یک فروند هواپیمای ایرباس که از دوبلین به مقصد رم در حرکت بود، در پی تهدید بمب‌گذاری تغییر مسیر داد و به پایگاه هوایی اِورو در فرانسه هدایت شد.
-پلیس جمهوری چک نیز در شبکه اجتماعی ایکس اعلام کرد که چهار هواپیمای عازم پراگ با تهدید بمب‌گذاری مواجه شده‌اند و نیروهای پلیس در حال آماده‌سازی برای فرود این هواپیماها هستند.
-به گزارش خبرگزاری ایتالیایی آنسا، یک پرواز شرکت هواپیمایی فین‌ایر از هلسینکی به مقصد رم نیز با تهدید بمب‌گذاری مواجه شد.
-خبرگزاری آنسا در عین حال از تهدید بمب‌گذاری در دو پرواز، یکی به مقصد رم و دیگری از مبدأ میلان به ورشو، خبر داد.
-رسانه‌های محلی بلغارستان هم به نقل از مقام‌های این کشور گزارش دادند که سه فروند هواپیما در پی تهدیدهای بمب‌گذاری، فرود اضطراری انجام دادند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79007)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 15:55:42
-
-<img src="https://cdn1.telesco.pe/file/c9Ueapm85_3RGJY7C1R5yPPwrjO7t_rXY8-u9jkrxBbe3Tra_uFHS_RHLh52fwnHQQXROaISqz1ug1XE3TyfOMds1dVQDayNZoZrWCNmgm8G6Ko_re3NFL3jhEqkLQnSaX9UIa2ZrOqc-ihuA3jVilKCAkS9X2oKd2N813QS4924_TKEya4EqXwTMzJDCXzjW0SDdW3-6qzxcDbWJ06oWJKbYDWiSMR3A356Dc7B3n3lCEQlPpO16uGI6UkmWnjIHYZYwnZHCJ9-6SA_4WZYo0gNKTdHkmJpqLv1l-A_zyvpbtGT2ClLal6APMuZbe_wGRCUmWY_xCWyMLrQKWWJBw.jpg" width="400"><br>
-
-قالیباف به جی‌دی ونس: چرا این حرف‌ها را به رئیست نمی‌گویی؟
-محمدباقر قالیباف، رئیس مجلس شورای اسلامی، روز پنجشنبه ۱۴ آبان در واکنش به اظهارات اخیر جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در شبکه اجتماعی اکس، با کنایه به سیاست‌های دونالد ترامپ در قبال ایران نوشت: «آمریکا حس قماربازی را منتقل می‌کند که مدام می‌بازد، اما دیگر نمی‌تواند از پای میز قمار بلند شود.»
-قالیباف در ادامه پیام خود با اشاره به آنچه سیاست «اول اسرائیل» خوانده، خطاب به ونس نوشت: «درحالی‌که آمریکا در لبه پرتگاه اول اسرائیل ایستاده است، رئیس تو دارد مرحله بعدی جنگ را آماده می‌کند. از این سخنرانی تد (TED) که بگذریم، چرا این حرف‌ها را به رئیست نمی‌گویی؟»
-این واکنش پس از آن مطرح شد که ونس روز چهارشنبه، در پی شکست جمهوری‌خواهان در انتخابات میان‌دوره‌ای کنگره آمریکا، در پیامی طولانی در شبکه اکس، جنگ با ایران را دلیل اصلی شکست حزب متبوعش معرفی کرد.
-دموکرات‌ها در انتخابات ۱۲ آبان موفق شدند کنترل هر دو مجلس نمایندگان و سنا را از جمهوری‌خواهان بگیرند.
-ونس در تحلیل خود از نتایج انتخابات گفت بخش قابل‌توجهی از رأی‌دهندگانی که در انتخابات ریاست‌جمهوری ۲۰۲۴ از ترامپ حمایت کرده بودند، این بار به دموکرات‌ها رأی داده‌اند. او با استناد به یافته‌های یک نظرسنجی، چهار دلیل اصلی تغییر رفتار این رأی‌دهندگان را پایان دادن به جنگ، رسیدگی به هزینه‌های زندگی و تورم، اولویت دادن به منافع آمریکا و تغییر رابطه واشنگتن با اسرائیل عنوان کرد.
-این اظهارات در حالی مطرح شد که ترامپ، با وجود پذیرش نقش جنگ در شکست انتخاباتی جمهوری‌خواهان، همچنان از تصمیم خود برای آغاز حملات علیه ایران دفاع کرد و گفت اگر دوباره در همان موقعیت قرار بگیرد، باز هم همین تصمیم را خواهد گرفت.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79006)
 
 ---
 
