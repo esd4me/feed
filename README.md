@@ -3,8 +3,131 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-08 20:23:08 </h5>
+<h5> 🟢 Updated at: 2026-11-09 00:23:46 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-08 23:57:40
+
+<img src="https://cdn4.telesco.pe/file/Gq9hdb8-KOcf0O0Ru2wdd1s-oVJc3qxqKAdica91v2mJQ4bTsFT0S5VWAcysgiDPPjtznGNqX4fAEjRX_XJmVDICu_Fsa6r_CnMECuj8DiEbUyjsXY_JJnHt-mLBnIqClsj2MKALV1BRCb3KY1XVQFwS5dbM9ylskKV0g760IyhjXxRWe29Qg6FfYffOjLWDFiY08ZC4grdgwZKi2ubbDTImXKrYPRy3gh4ag8gRa3Fj6qHsLiqQs8s14_xOCcW2e6v9yeUC4M4RDdLalbTPYEYLyaNCPIbw-y66XCIrjQ1mINUKYB-DYfzYr057ntVncgr9ZnJ3mtX_dHakT3vqiw.jpg" width="400"><br>
+
+همزمان با شنیده شدن صدای چند انفجار در جنوب ایران، تسنیم، خبرگزاری وابسته به سپاه پاسداران، یکشنبه‌شب به نقل از «یک منبع آگاه» گزارش داد: «صدای سه شلیک از محدوده سیریک به سمت تنگه هرمز شنیده شد.»
+صداوسیما نیز در گزارشی اعلام کرد که این شلیک‌ها «مربوط به برخورد با شناورهای متخلف در تنگه هرمز» بوده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79041)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-08 22:46:47
+
+
+
+پیام‌های دریافتی:
+چهار انفجار شدید قشم
+قشم ساعت 22:45 دقیقه 4 تا انفجار پشت هم اتفاق افتاد
+وحید جان ۴ تا انفجار قشم بود
+الان قشم رو زدن
+چهار انفجار بلند
+قشم شديد دارن ميزنن
+قشنگ پنجره ها ميلرزه
+#قشم
+22:45 17 آبان
+4 صدای بلند، احتمال زیاد شلیک از مبدا قشم
+سلام وحید جان صدای انفجار در قشم خونه لرزید
+۴ انفجار شدید و نزدیک به شهر
+قشم
+قشم رو  همین الان ۴ بار زدن
+سلام بندرعباسم صدای چهارتا انفجار شنیدیم [همون صدای قشم]
+سلام وحید جان همین الان چهار پنج تا موشک به پدافند قشم خورد
+بندرعباس همین الان ۴-۵ تا صدای انفجار و لرزش خفیف [همون صدای قشم]
+سلام وحید جان همین الان چهار پنج تا موشک به پدافند قشم خورد
+درود وحید جان همین الان صدای انفجار بندرعباس اومد چهارتا
+قشم چهار انجام خیلی شدید صداش خیلی نبود ولی بشدت لرزش داشت
+وحید جان ساعت ۱۰ و ۴۶ دقیقه قشم دو بار صدای انفجار شدید اومد کل خونه لرزیددد
+دود بلند شده قشنگ سمت اول شهر بالای نریمان از همون جا که چند روز پیش زدن پدافندو
+وحید جان پدافند نریمان باز زدن
+‌
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79040)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-08 22:35:09
+
+
+
+چند پیام دریافتی از ساعت ۲۲:۲۲
+سلام ماهشهر صدا انفجار اومد
+ماهشهر صدا اومد
+سلام آقا وحید صدای دو انفجار در بندر ماهشهر ساعت 22:20
+وحید جان صدای انفجار خیلی نزدیک تو بندر ماهشهر اومد مادرم اینا زنگ زدن گفتن میگن صدا خیلی نزدیک بود
+آپدیت:
+حالا در پیام‌هایی دیگر کسانی میگن که صدای انفجار ترانس برق بوده.
+آپدیت:
+منابع حکومتی:
+معاون استاندار خوزستان: صدای انفجار در ماهشهر ناشی از ترکیدن دو ترانس برق بود
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79039)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-08 21:37:07
+
+<img src="https://cdn1.telesco.pe/file/kfly_wPnUnzEhAv9OUFFeFNrQNWaRnTkc_hKs9wTbR6wuXTKxVVvfNn6gwC9m4NmKqe_9k82alNqMdWalhChaNFF6hJ2n3FyluDOJxIaaIhZDTz2xBXiFQOzCWu4AIQQIWU8itZQD9sxZH_mRTXPvETmviHSv7u0RbxmN2yOlApQIezeBQguqQpjz-G6XqCQVPa7VdrUcayRUr6hxmmtmpeL-LJImvCpYtHY9QhhUJ1BBQeazh9TeWoG8O98EpsV3iWFvH2BfWgDMOfPjizJX1wySs5t27k-f7T7fHPszpcMwbzCmXd-EykifcRiv_zswuuCHl25rLmU1TjxWaYD8g.jpg" width="400"><br>
+
+دونالد ترامپ می‌گوید اگر مذاکرات پیشرفت کند، ازسرگیری حمله به ایران «بسیار بعید» است
+دونالد ترامپ، رئیس‌جمهور آمریکا، روز یکشنبه ۱۷ آبان در گفت‌وگو با شبکه خبری سی‌ان‌ان گفت اگر مذاکرات جاری با تهران پیشرفت داشته باشد، احتمال اینکه ناچار شود دستور ازسرگیری جنگ با ایران را صادر کند، «بسیار بعید» است.
+این شبکه می‌گوید آقای ترامپ در یک مصاحبه تلفنی ۲۰ دقیقه‌ای، «پنج بار» این ارزیابی را تکرار کرده است.
+رئیس‌جمهور ایالات متحده در پاسخ به پرسشی درباره ایران گفت: «این موضوع بستگی دارد به اینکه آیا آن‌ها توافقی بسیار محکم را امضا می‌کنند یا نه. پاسخ این است که احتمالاً به‌شدت بعید است چنین اقدامی ضرورت پیدا کند. آن‌ها کشوری در حال فروپاشی هستند. همین امسال آمار تورم ۳۰۱ درصدی آن‌ها منتشر شد؛ بسیار بعید است که این اقدام ضروری شود. اگر لازم باشد، این کار را می‌کنم، اما ما ضربات بسیار سنگینی به آن‌ها وارد کردیم.»
+او ادامه داد: «بنابراین بسیار بعید است که مجبور به انجام این کار شوم. آن‌ها از نظر مالی در حال فرسوده شدن هستند. ما از نظر نظامی به آن‌ها ضربه زده‌ایم و می‌توانیم کارشان را تمام کنیم.»
+ترامپ که پیش‌تر درباره تمایل خود به پایان دادن به جنگ اظهارات متفاوتی مطرح کرده بود، در این مصاحبه تأکید کرد که نیروهای آمریکایی در منطقه در وضعیت آمادگی برای حمله قرار دارند و در صورت صدور دستور او می‌توانند وارد عمل شوند.
+او گفت: «ما برای این کار آماده‌ایم. سه ناو هواپیمابر داریم. ناو دیگر هم به‌تازگی رسیده است. ما سه ناو داریم که کاملاً آماده و مجهز به سلاح هستند.»
+رئیس‌جمهور آمریکا همچنین گفت واشینگتن در صورت ازسرگیری عملیات نظامی، زیرساخت‌هایی را در داخل ایران به‌عنوان هدف شناسایی کرده است؛ از جمله نیروگاه‌های برق و پل‌ها.
+ترامپ گفت: «ما ۳۸ پل را در فهرست اهداف خود داریم که می‌توانیم به معنای واقعی کلمه ظرف یک ساعت آن‌ها را منهدم کنیم. همه آن‌ها از بین خواهند رفت.»
+او همچنین درباره وضعیت ذخایر موشکی و پهپادی ایران اعلام کرد جمهوری اسلامی تنها ۱۰ درصد از ظرفیت موشکی و ۱۵ درصد از توان پهپادی خود را حفظ کرده است.
+ترامپ بار دیگر درباره احتمال ازسرگیری عملیات نظامی گفت: «به احتمال زیاد چنین اقدامی ضروری نخواهد بود. آن‌ها به‌شدت خواهان دستیابی به توافق هستند.»
+این اظهارات در حالی مطرح شده که عباس عراقچی، وزیر خارجه ایران، روز یکشنبه در شبکه ایکس بار دیگر اعلام کرد «پیشنهاد دو روزه» ایران برای باز شدن تنگه هرمز و پایان محاصره دریایی آمریکا علیه ایران همچنان روی میز است و افزود کاخ سفید باید در این باره تصمیم بگیرد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79038)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-08 20:38:46
+
+
+
+پست عراقچی، ترجمه ماشین:
+رأی‌دهندگان آمریکایی انتخاب خود را کرده‌اند. حالا وقت آن است که کاخ سفید هم انتخاب خودش را بکند.
+پیشنهاد دو روزه ما همچنان پابرجاست: خواسته‌ها را برآورده کنید، از جمله پایان دادن به جنگ در تمامی جبهه‌ها، و نتیجه‌اش را خواهید دید.
+یا جنگ را انتخاب کنید و ببینید جنگجویان هوشیار و آبدیده ما چگونه جهنم را بر سرتان نازل می‌کنند.
+araghchi
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79037)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-08 16:10:09
@@ -108,7 +231,7 @@ CENTCOM
 
 ###### 🔵 Post time: 2026-11-07 23:38:51
 
-<img src="https://cdn4.telesco.pe/file/FRLPd8QIpyxrj0ktfG7KrGwutTdbWUP_zDpbTILtYjO-KmaThNJfdKoi9JHza_t9NjHMEGm5yCHzQxtyZqKvJStgDDAb4ZcAtww6RRZWmG-lgzNyGkeh-bMEGVKNI6pUT8RP0AFDiJ1q-NP1ssWyTrYusmK0YFadRHIOXWKqCii0nFse7suxmP2P0-u33opkrUQSl3nlf54t34Ww76G0kWV9EDt4GM5woGjI01amx_AvWS5DzbMhKHrtxp6y2M0VIkn6vprBgiTqc3frPBi1BrOX4hVq29dxVSUbKlIy6eO_jVsJ5NoHUNCGkIefVvlWCXMbTDEFQtPYqZrkkWmSdQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/HOOiD23sKgAPv23fLKT3pvUl50cTvDGpjGLfNnrHV9nu7EaDRFCGUAMutdaxkrHswfJ5ddWYFBgnTTPb0SSMc0BE8nN_fpHOeUZUBx79jjB4koYAUyvRfdGwdziWXNgFxTULpa9xsfig8bPl6TAV6MpnAKg5H2yqQVovABtrqOedtbWYg9Gd6I89QTArhBIcsE1JC2bW0GbBp3KnhBg7IkTv97B3xbBqqfkVNJgk6jZ__6ZqM5MqVgxLyVtPgmdqLUvdOifq39ReuXdiGa5ZcQXQi03rvX1m3AtmkZZEVbuuDm6qfC4dXpGHNRpxg4Imd8_DHl6VRxCF_5123HLr0Q.jpg" width="400"><br>
 
 اسحاق هرتزوگ، رییس‌جمهور اسراییل، اعلام کرد گادی آیزنکوت، رییس حزب «یاشار»، را مامور تشکیل دولت آینده این کشور خواهد کرد. آیزنکوت که حمایت ۶۷ عضو کنست را به دست آورده است، ۲۸ روز فرصت دارد دولت جدید را تشکیل دهد. این تصمیم در حالی اعلام شده که بنیامین نتانیاهو، نخست‌وزیر کنونی، از احزاب مخالف خود خواسته است برای تشکیل دولت وحدت ملی با ائتلاف او همکاری کنند.
 دفتر ریاست‌جمهوری اسراییل اعلام کرد مراسم رسمی واگذاری ماموریت تشکیل دولت به آیزنکوت، روز یکشنبه ساعت پنج بعدازظهر در اقامتگاه ریاست‌جمهوری در اورشلیم برگزار خواهد شد.
@@ -130,7 +253,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-07 22:47:30
 
-<img src="https://cdn1.telesco.pe/file/KWSAC1C_wdpD3P1sjcB47evdeit7Tx5_UShzp8Q48Z4Ns_hd5q8UnIK951H10vXsdHxMPL0G1UpIwzKG_OU1Fa5aTyQidv1VHGxP-BTBbhM5xaWuAD2YNvxwC103BmWFe7Os2IF8RDDWbrtbBzOQKQdGqbxA4og2MfIlHFSCI7FPPVK2W-tKhj7TO4R9-RqkqBzpUrNr0f_8ql6CiNAdev2ewgnmtkQvNXZHX3EQGm4FAa30XZbKy5JNxl_z-bwvLLNzmdabVGvk_ZPxAGAOaLHYfmMQtt6Zpu-9b8TCJG6A1hLH5hamxqzGXhC4KLVErGGFyEQQB2-RiY9jgbFRQg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Dfn_T9LkgAviIOeGyB4COV0QYisFpAlBt2h6jiO0del969s6E4oAtoLYnoKlV5oYAnacF41CADEL5Oc1c5Hr_Njy58WxyqYclpMcvftcIxUPHy68m_yCpmJ3BgVHdysq6nzWBIRIMjllaFLnCxv7VN4cTfIkZB0d-IJ-pg-kvitnn5j6xeVsaUYcMwhHedwthh3vRPojSvvHJJkoQ0NQj586NC_jhpI780Dx_ijJ1Q7CBmclISkH4y23-03SvackEdJt8ngv71fcben9MId_gzDIVVJs28SZZP-vGwDh0wjjOq9fPnd-vESgsecZr_oH_NeApfKXxz-c4dvWA_Cvcg.jpg" width="400"><br>
 
 آپدیت: عکس دریافتی با شرح جاسک
 پیام‌های دریافتی:
@@ -298,109 +421,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79022)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-07 04:55:31
-
-
-
-دونالد ترامپ، روز جمعه، در پاسخ به پرسش خبرنگاران درباره گزارش‌های مربوط به حملات نظامی در جزیره قشم، این اقدام را تأیید کرد و گفت: «نمی‌خواهم درباره آن صحبت کنم. ما حملات جزئی انجام می‌دهیم.»
-رئیس‌جمهوری ایالات متحده با اشاره به استقرار سامانه‌های پدافندی جمهوری اسلامی ایران افزود: «آنها یک ابزار پدافند هوایی کوچک ساخته بودند و ما در حدود ۱۵ دقیقه، شاید هم پنج دقیقه، آن را منهدم کردیم.»
-این اظهارات در حالی مطرح شد که خبرگزاری‌های داخلی، بامداد شنبه، از اصابت دو موشک به جزیرهٔ قشم خبر داده بودند.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79021)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-07 01:31:23
-
-<img src="https://cdn1.telesco.pe/file/pJaH5SaPL11fcpnmQxZ5jdISA-cqQka2jfsqJ4SHydjcCns4FKRUprHf3W-Ys8REOq7TEwNDkIdfW7xrdfIZfQAMRFo0OORgnU9BJEhTu3ZxO5dRziGBmzx7EfXxubAKC7zi4sJKEoffC15q9A88B__5peXneE7RghD1JzFfcGWrU8flbXblGiak241yIsBiecXeCFfdsiuLBc5L-v9FaVEq5uyii-RuXQdhbRL0RS__9CDtlpqkSj51CFJDqLaNut_gbR_xF67Gr1PRJK2aqfMCkNTL86pWMRskXrMgbNE-Dhx0ZD0_eVA0T-seVxKZqDJHeYlerulxRz4IHKrohQ.jpg" width="400"><br>
-
-به گزارش تسنیم، بامداد شنبه، «صدای مهیب» ناشی از پرواز یک جنگنده بر فراز شهر قشم و مناطق اطراف شنیده شده و شدت این صدا به حدی بوده که به وحشت و خروج شماری از مردم از خانه‌هایشان انجامیده است. تسنیم در ادامه نوشت: «بر اساس گزارش‌های اولیه، دو موشک در جزیره قشم اصابت کرده است.» این درحالی است که پیش‌تر خبرگزاری ایرنا به نقل از شاهدان محلی از اصابت «دو پرتابه» در منطقه سوزای قشم خبر داده بود و خبرگزاری فارس نیز گفته بود که صداهای انفجار در قشم و بندرخمیر ممکن است ناشی از شلیک تیر هشدار به سوی تنگه هرمز بوده باشد.
-@
-VahidOOnLine
-یک مقام ستاد فرماندهی مرکزی ارتش آمریکا (سنتکام) در واکنش به گزارش‌های انفجار در جزیره قشم، به الجزیره گفت وضعیت اطراف این جزیره «نسبتا آرام» است.
-این مقام با تایید آگاهی سنتکام از گزارش‌ها، از ارائه توضیح بیشتر خودداری کرد. رسانه‌های رسمی ایران پیش‌تر از اصابت دو موشک به قشم خبر داده بودند.
-به گفته این مقام، سنتکام شنبه ساعت ۱۳:۳۰ به وقت گرینویچ، برابر با ۱۷ به وقت ایران، اطلاعیه‌ای درباره ایران منتشر خواهد کرد.
-@
-VahidOnLive
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79020)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-07 00:34:00
-
-
-
-پیام‌های دریافتی:
-وحید جان شروع شد
-قشم همین الان موشک بلند شد
-موشک زدند از قشم
-موشک پدافندی بود
-الان از قشم صدایی شبیه پرتاب موشک اومد
-سلام وحید جان همین الان یک موشک از قشم
-#قشم
-00:32 16 آبان
-شلیک موشک از قشم با صدای واضح
-🔄
-پیام دریافتی:
-وحید جان دریابانی سوزا رو زدن
-منابع محلی:
-ساعت ۴۰ دقیقه بامداد ۱۶ ابان ۱۴۰۵، سوزا در مرکز قشم  مورد هدف قرار گرفت.  گزارش های اولیه از برخورد ۲ پرتابه به مرکز جزیره قشم دارد.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79019)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-06 22:05:57
-
-<img src="https://cdn1.telesco.pe/file/p7FpqmdsFTmCum9XrtBxH7CSEFinI23U2s83YkJddB2VVm3ILR0gbJTF7sRRq7Hp7yS0uvdKQV3zUi0RqcwZn4Cz2Hc9lnA25M7bx0bf-Ozz_AF63GafoSMjS46EhwXQl7ummAxZEHAlOZRgBK-DYu5HIhSccM7oVDCMf6wBP0NPype-L1kpeay3gmxHWQYfjPj9kYmyK-ribmlypuDldzpDm38gb0VlvmJ_69pZ-4shZaYYLptKZdElM27xSQiv2g3FdPxMowixAJs74MSjRWVbcH1_LGUcjLHepQF2LH83723pXrz6SVoYs5LLPTd0pqJjzK5SLs3b92LQ0uZkOA.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه ۱۵ آبان‌ماه، در پیامی در شبکهٔ اجتماعی تروث سوشال، با اشاره به حملات واشنگتن و تل‌آویو به تهران، گفت که اگر مانع دستیابی جمهوری اسلامی به سلاح هسته‌ای نشده بود، اسرائیل و سراسر خاورمیانه امروز وجود نداشتند.
-ترامپ در این پیام نوشت: «اگر من مانع دستیابی ایران به سلاح هسته‌ای نشده بودم، اسرائیل و در واقع، کل خاورمیانه امروز وجود نداشتند. هیچ‌کس نمی‌خواهد این را بگوید، اما همه می‌دانند که حقیقت دارد.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79018)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-06 17:44:49
-
-<img src="https://cdn1.telesco.pe/file/OkE67H_LjBXRc2mkUjDx_Gu1OywGdQKcfTurkVXw1UXB04UoGE9E6Wyrvais9Db-qV9tkDhE3gB6AkWaXxWSv9bx9QpDPV0mGdwZ57whkI8JQfUF0ftKffky2hVJ8lYN8hOFbyYa7yY8hh4ki2SGNSo-yBz6Go_e7mEEYowmCT6Vusb904hm3OyF___pW98lLErlGRZD2R1HdHeIYNjbHHACWigGSElvrdUHUbuW_k1zThwIJd4-6dGnoSGvxBDiQob1wBKR98OW_UoFUYoVrFcEkjKWbVDhdBNse13UmojgWoDa2JIyS5SAECNyfW2eUgtJf_FWRVeFfqVurDrzyg.jpg" width="400"><br>
-
-شرکت یونانی «ولوس تانکرز» جمعه ۱۵آبان۱۴۰۵ کشته‌شدن یکی از خدمه نفتکش «ولوس سفایر» در حمله‌ای به این کشتی در خلیج فارس را تایید کرد. این شرکت اعلام کرد نفتکش احتمالا هدف یک موشک ناشناس قرار گرفته، اما نوع پرتابه و عامل حمله هنوز مشخص نشده است.
-بر اساس بیانیه این شرکت، حمله بامداد پنجشنبه ۱۴آبان، ساعت یک و ۱۵دقیقه به وقت محلی رخ داده است؛ زمانی که نفتکش بدون محموله به سوی «بندر سیترا» در بحرین در حرکت بود.
-به گفته شرکت، اصابت پرتابه به بخش عقبی سمت چپ کشتی باعث انفجار و آتش‌سوزی شد که خدمه موفق به مهار آن شدند. پیکر یکی از دریانوردان که ابتدا مفقود اعلام شده بود، پیدا شد و سایر اعضای خدمه آسیبی ندیدند.
-مرکز عملیات تجارت دریایی بریتانیا (UKMTO) نیز در هشدار شماره ۱۹۶ از اصابت دو پرتابه ناشناس به یک نفتکش در حدود ۵۰ مایل دریایی شمال قطر خبر داده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79017)
 
 ---
 
