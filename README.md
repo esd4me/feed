@@ -3,8 +3,71 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-08 14:24:54 </h5>
+<h5> 🟢 Updated at: 2026-11-08 20:23:08 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-08 16:10:09
+
+<img src="https://cdn4.telesco.pe/file/orF6wBRRYN36PiLwKhFEbLnMnzSO3ZuyHYZruw2qeD-_Tmi0FPjkQKsndbRSSrePYWqgW27qvBnQBNFU5HTPCCYvvtH4oGhKIiMNK5rPefEKiUdEbb26j7CBw5bX5-_uMdeToEYCU5MaTZFnQtWd1mpVRJrSPPe-8ZHYhLHeGBHAckhA4fs47SJgqWd_u5VPXSjLma4NOKfv7iOtET5Xb0G4sLGflyXE06WZXdbGApAvFlsN5BS2adOIesd0_u1D52LCFkxzkzg_hzvQ7yhSadjImgEwu61TEbJc7OzwVupJOQtDGP3-Cj4t-ndHTI8e729CIxAedAAC1JEUJ_ykHw.jpg" width="400"><br>
+
+ابوالفضل صداقت، جوان ۲۰ ساله در مشهد، به اعدام محکوم شد
+خبرگزاری هرانا روز یکشنبه ۱۷ آبان از شناسایی هویت ابوالفضل صداقت، جوان ۲۰ ساله و یکی از سه بازداشت‌شده اعتراضات دی‌ماه ۱۴۰۴ در مشهد خبر داد که به اتهام «محاربه» به اعدام محکوم شده‌اند.
+بر اساس گزارش هرانا، ابوالفضل صداقت، متولد ۱۰ اسفند ۱۳۸۴، به همراه متین فرنیان، ۲۳ ساله، و وحید خدری‌خواه، ۳۴ ساله، در پرونده‌ای مشترک از سوی شعبه پنجم دادگاه انقلاب مشهد به ریاست قاضی حسین یزدان‌خواه به مجازات اعدام محکوم شده است.
+با شناسایی هویت ابوالفضل صداقت، مشخصات هر سه محکوم این پرونده که پیش‌تر صدور احکام اعدام آنان گزارش شده بود، اکنون احراز شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79036)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-08 16:09:18
+
+<img src="https://cdn1.telesco.pe/file/bMvHeuVe8xRsDsOiwwqI4JqXyRpD2wwma6MIC-s8kTSWkOPHYgJ8drtzWYa0zuDMC2ViqRECBevFcYWTbqYLRray72wSPznKAGWKEaVqRgAo4jpLlFH-smUTeU4NUYtRXwVKe9lMTUUyfHAdhUU1WzWTZpST-w52e6R9ghG48TUOAWnGGQ31ZVVR_KrnTguKpQEY2vL80qwEqPTGWo9mQx4vMJ4qxj0mSzKbdQLnG_tcF0tZl_8CJX8Io1_-oKIfhOM78MGf2AL0dmJEfuB7RblkHEkGDdfi-SCXydEXDyiY0ndon8XVDlWEZWu4_9S1ODSHlAm8umotdkIipUlm8g.jpg" width="400"><br>
+
+اتوبوس حامل اعضای تیم بسکتبال سحر آکادمی، هنگام بازگشت از آبادان به تهران، در نزدیکی شوش واژگون شد.
+سرپرست این تیم اعلام کرد حال عمومی بازیکنان مساعد است، هرچند تعدادی زخمی شده و چند نفر نیز دچار شکستگی شده‌اند.
+فرزند سرمربی تیم، سحر آغنده، نیز در بخش مراقبت‌های ویژه بستری است.
+@
+VahidHeadline
+در پی تصادف یک دستگاه مینی‌بوس با پلاک ایران در استان وان ترکیه، ۹ نفر از جمله پنج زن و چهار مرد جان خود را از دست دادند و پنج تن دیگر مصدوم شدند.
+به گزارش روزنامه «ملیت» ترکیه، این سانحه رانندگی روز شنبه در مسیر جاده «اؤزآلپ‌ـ‌سارای» واقع در استان وان در نزدیکی مرز ایران رخ داده است.
+فرماندار خوی با بیان اینکه شماری از جان‌باختگان و مصدومان این سانحه از شهروندان ایرانی هستند، افزود روند شناسایی دقیق هویت قربانیان از طریق مراجع رسمی و نهادهای مسئول در ترکیه همچنان ادامه دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79034)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-08 16:06:39
+
+<img src="https://cdn4.telesco.pe/file/OQzkYtSJpjKVYk96vF8PS3T7hGIZQwDUcHSVinRvF_4b2M4wIiSFRju7d3FnzlJPLsQ-buu9ZCPU2UL_s7vrtwapH69YIAMoq0a0jA1fXyHTNAZydVTBja8u25PeMtEE_NDx4k3K6wSwsISRGYBMl6VOXEZySlRl2_T701mhgz-OQoWMcF2ZcK5a-3iKL4U4axmlJZB3JPr90wDs0hD2ZRo_MpUYYnjp_KlkGGEgvixyZr_ZuDFuW0DwfYEo3UbWejFvRVYj5aD3JaRBnt3Jn-Lw5GXgcrHy1I875OFigBIh3QLJxrPm04MCeyT7tEA5NKbw5klV9vre4lKUGqtzJQ.jpg" width="400"><br>
+
+قوه قضائیه جمهوری اسلامی صبح یکشنبه ۱۷ آبان از اجرای حکم اعدام حسن دیوبند، حمید کاظمی و رضا زنگنه، سه متهم پرونده اعتراضات دی‌ماه ۱۴۰۴ در کرج، خبر داد.
+خبرگزاری میزان، وابسته به قوه قضائیه، اعلام کرد این سه نفر به اتهام «مشارکت در اقدام عملیاتی برای آمریکا و اسرائیل» و اقداماتی از جمله حمل سلاح، ساخت مواد آتش‌زا، تخریب اماکن عمومی و قطع برق برخی مناطق کرج به اعدام و مصادره اموال محکوم شده بودند.
+به گزارش میزان، حکم اعدام این سه نفر پس از تأیید دیوان عالی کشور اجرا شد و هشت متهم دیگر پرونده نیز به پنج تا ده سال زندان محکوم شده‌اند.
+ادعاهای قوه قضائیه درباره همکاری این افراد با آمریکا و اسرائیل به‌طور مستقل تأیید نشده است.
+مای ساتو، گزارشگر ویژۀ سازمان ملل در امور حقوق بشر ایران روز هفتم آبان اعلام کرد دست‌کم ۳۴ نفر در ارتباط با اعتراضات دی‌ماه اعدام شده‌اند که دست‌کم پنج مورد از این اعدام‌ها در ملأ عام بوده است.
+او و هیئت مستقل حقیقت‌یاب این سازمان در نشست مجمع عمومی سازمان ملل هشدار دادند که جنگ و سرکوب داخلی، وضعیت حقوق بشر در ایران را وخیم‌تر کرده‌ است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79033)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-08 01:38:29
@@ -98,7 +161,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-07 20:22:35
 
-<img src="https://cdn1.telesco.pe/file/vzSnmoe4FWq08E_LgwiysPyO48SjpVglyDLml_NDWV8QjclUYsb9Dtcixioo3l5wzSd0LBqCorkYrxIa71TH57e7h_ZoIIoUgRLquoFQxmQK3SU0-kBEjeRUpDF0Fhsw8dYLLSOmeUfvq_-nBNaK0DFbejvEC7kXFDNoPi7sEKSQqFacyQPY2s5hNsX7gxBEnB7lAl4XJNt4CS6Rqxg75oX_Az8_0KdOZf3nCaZ7elTX4mmI_1vdDt2KWiURuIL_4tvrWqBLUYCbEBOnX5CC0bxJbbtwteMnrq97hfIEBG8iWS-c-dIWQd5Ro1t_Q8dk_DvUjkQ3E5NiaMZ5GZ7DcQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/vm5aJtut9EefcIa4XQBgRCadxXWYb9R2Q1uWUsiccpmjYn75Y8F0w7lpfQN7wKvJd3UdPUwsSggqnk1sB3VxH1kMKU-yJ27Op6N6R9v_LNVrhOLG0o0ypR7cEP2_lJ1hDq6xohgJddrPGtJ1CQO4RMZU_XULcnNQJjRtm0ZhyZNFdN9Zi7y-UmZ00pNrQ6vmdYD6RNR5GNdY_s8pAJd_LH8cY4xm_XY9gja77UYowqghZi5fmNuXxNUA2aESOS85GuCkp47VruYyRFjLgEankC2NAJ0wLgq5bp6NEbx5g8aW6N5f8b_kqO7pcE8h8uKW4Skjc8bYAHmCSCnc1AvCfQ.jpg" width="400"><br>
 
 شاهزاده رضا پهلوی روز شنبه ۱۶ آبان در فرانکفورت «جایزه آزادی» بنیاد فریدریش ناومان را که امسال به مردم ایران اهدا شده است دریافت کرد.
 مراسم اهدای جایزه در کلیسای سنت پل فرانکفورت برگزار شد. بنیاد فریدریش ناومان، که به حزب دموکرات آزاد آلمان نزدیک است، اعلام کرده است رضا پهلوی این جایزه را به صورت امانی و تا زمانی که نمایندگان منتخب مردم ایران بتوانند آن را دریافت کنند، در اختیار خواهد داشت.
@@ -122,7 +185,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-07 17:19:18
 
-<img src="https://cdn1.telesco.pe/file/DNmwrcQvx-AemwLNmVYlSb34zPPyFhi72_UUU2k9NR49AvW0CPSTja_lGRQRHgRZPdmiN4ZZxdVSAm5IFEnRVaNqfKhfXhjdA4ss8vVKkiOzdI50sbxxImGEdg1DNe_rd4bH8B_x3vLyc-J7KJthBCWosEOtwuQ80yPBbEW3gH1yxbLYtysIibfk3aY4Wvmgm8oKiOfxjKx3rgEAkNxkLRX4MUV8ph6G_M4EZd1S330PTug0sZ0PvYMvBHdkriy1sACPdDx5hKJRxCsxhU60gzBoIUSV-9omqz9LUo8lqgyFB-3cAFK_uPQ7KNeBDYkN76KQmrxPPP4nWX7-HCz7iQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/HM1bsaUVSJuZuLblLvmyxtbyEjpzcl60ZQ5f8C4aUBbjxbMIoEauu8wS8fVCxz_lwoEu1dJ2M2AIj2b4yWcOKQ9j4-9qhtUVOPfiqxenOez-EoZMedP1_GpidvdNu9htkoSzzwhE9ftkzck-HRq5mSng2HpG3p_UoEDLU5Hd-fAgM5Xm9zBRZzoDxfHCQ_y5oDxQGPMaSG-IetouGh1QHJWqiTNAPE3d_lydhiwn3TmgbiGSq5uZSGJxkhreEal1kIc5Nvk_MwgtuvIswQOvX9jFelZLCul_x5v2l-bO9dnve6r7DvIX1VvPg_SwVtFS7V4d8dC9df_QCYBNhCeeag.jpg" width="400"><br>
 
 "سنتکام کارگروهی برای مختل کردن مسیرهای ترانزیت زمینی ایران در حمایت از محموله‌های غیرقانونی تشکیل می‌دهد"
 ترجمه ماشین:
@@ -161,7 +224,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-07 16:44:25
 
-<img src="https://cdn1.telesco.pe/file/bGwCSJaqnnM40Fc7OTEiX8xA4rqu9k5TVfamHd00F3w4AYnVHnlA4atPXsZqT2S3pvUS7hloWFAyLdmq1G9XfwSoAC8HKG6-65o3BneWj38EUYRsCDZq4kEPHhcAaCbd92aUwOlqo7CS0Ouc3WKpP1Yt4Jk2uoue_M_bMpJPT8k-W5z7CBKmKBx2C-oCeth74QtKtEyB-RVSebCcGWV-4RsSQSEoMKKtMJ_DukrZo9X6GqM9b0KPZkwFX7el1TzZuetKsNriaq1TKoWSQyQxutMBvKiEKvxC-_HjXL53GIuxpUHKeSXF9tES0SmNFILERCxbpG2uoFd334jN91xYHQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/M-K7uSC44oYk_Om0ofHeffi8VxJ-TXNN_cIuomvVD3TS1CEoH0j2etyyAdj4SLBWUdy1rdDGd5uYsvhQKVLpH_3pC7I31J6vhR18Cq_se8aVylqwdSIr-5u4vpIHkDRz0WqRKRRiN0gKuvkNOS3x-95WnnlOjZxDYhC4UchqnuJ0PKrp-jhmNBAl5seibOpKPf_bet1Zr3Sbj8yUGc_h_p0gEQkk06jjqpCsLMhHkNjtVUeKo3DZIAjzsQBHwt2CRYzwxSmVeGpgylQFVwYQo_wLWAqzs6BYW1ZaqVDF6tzxr-3Q9Xh4giRZXa3ZESbXV6ddMrpZjaHfKQ_Y5rWkMg.jpg" width="400"><br>
 
 پیام‌های دریافتی درباره انفجارهایی که بعد از وقوع، "انفجارهای کنترل‌شده مهمات عمل‌نکرده در جنوب و شمال اصفهان" اعلام شدند:
 ساعت ۱۰:۱۰
@@ -206,7 +269,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-07 16:39:17
 
-<img src="https://cdn4.telesco.pe/file/T1Iw1G-sX2COLfRRJ36UfCOC8U9J3qJZV18G6jD4rBa1XTqrMPiFQ8-Sz6UvwFhAanO9YblD845NtIFe7ia7W8lmoARz-DGpmB5JoYtV7vQ35G1yS1GTCEhMNqhZRGDPxui7hr3kpEF2zfoJ_XL3Qzw3xllbuoqodzUZDqV8UVSp4O-en7m9EEMmkc1UB6wgsbgHBFvdrq93lXCiaRkfauKZlp36tfZrw0m6CW2SgoZKfyuWfHxsAbaZTa5PANVc0uDSBLmggy3Tht7d74q5zto5CB-F6q_ZRGXZ02b2-m6087yAaoemMd3udsZ8JVTiITS2lH8CgY8wSaQJD9YZKQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Rdhu0RgdCM-Uioa_Vr-4BPsvoxznNppnyXQFvLF36dZHyYQlXTToANOhHHRUzEv4dbq65wKN6gmg0rViLxulKrEh7wcfrQcqwf3uNHtEbxp27RLGRMInRwakWpNB4BxeImtqmq0hfV_D1hUWNQ4mbPPvNDNS5eb8DDnB5tsI1_q3ytze3O2LOOpfMAGItVZjksXGONkOHbPhc7hFtC6LD2TGB3m_MCAajrN6PA5yMjxTOnw92OFOgaP3d8n4fkPGH2d0F4dUYxVEtfejcUjlXIZs5JrY_0J31MaU_S3nVRpvTerhNW_gHWtVGi_aW3cFPXZGJlzQpNuEDeJ0SNcC1Q.jpg" width="400"><br>
 
 «امیر شهیدی‌نژاد»، پدر «مهرشاد شهیدی‌نژاد»، از کشته‌شدگان اعتراضات «زن،زندگی،آزادی» در ۱۴۰۱، به دو سال و شش ماه حبس تعلیقی و پرداخت جزای نقدی به‌جای دو سال و شش ماه حبس تعزیری محکوم شده است. حکم دادگاه در روزهای اخیر به او ابلاغ شده است.
 امیر شهیدی‌نژاد که سال گذشته بازداشت شده بود، پیش‌تر با انتقاد از روند رسیدگی به پرونده کشته‌شدن فرزندش، از عملکرد دستگاه قضایی جمهوری اسلامی انتقاد کرده بود.
@@ -226,7 +289,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-07 16:35:54
 
-<img src="https://cdn4.telesco.pe/file/WxxT8vMrwc2av4UNkiK5OqNj03QcOiiUEXGBGj1kEzPMIkVpthWdAknf8Hiqj_OF4HdFp8dstzb5sgOyJt3m3gzJ4WvGPRjlOL2xbMy31xjyRXz8g0toSpj6XjylSDUjcQ7ApR-M963bjs-cwqVQiG4UaUE865QzWLHeoV7dfYvYuCTemLSgXorGUUukqHRskdDna57yUjKaQAnwlmrzHX7wrlXRWhhARSf76zTGeRoFIf_9tnmK62UX0ShzjVtql3Ga1F7eJoI4vizTIK-7l-WPW0cipLWp9Jcacyse5FBJGsccuzT4EhYLk8tBYoPL3d0Unwt9nBYb5kQbvYAtvw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/a4NOQie0l2j91KeddCuk7ROxLbh84j9g0d4b11Ny-3aopaxWL334xffAuomkNGzpVNwbTXglkwWEKcTzjhp3Qm2Iz-Pdz8EDFXDymto8S3oxUnb-RaPsbTYJpYE6Og1NT_2qowtU5JZrkZO9VR9sC-_2gXGw1GGAOlkr7ilZG56f9ukbhgFx_69cxOVGZFTa6hsUiCa8IgPTnrbyXhVpPObFe8hfIexf47YAs2It-HwWuW_z0066MtjLcPYqt0sRZ59W4KAOTobTOTQY1XBMemJ8GSDtLBdCDVv9cHeJb13GpuyRJWdbQTe7AIve9fGNPzBFgY8d0bJp-gUrB5VO5Q.jpg" width="400"><br>
 
 خبرگزاری میزان، وابسته به قوه قضائیه، از اجرای حکم اعدام «محمدعارف شه‌بخش» خبر داد. به ادعای میزان، شه‌بخش با جیش‌العدل ارتباط داشت و به اتهام‌های «بغی» و «محاربه» به اعدام محکوم شده بود.
 @
@@ -326,7 +389,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-06 17:44:49
 
-<img src="https://cdn1.telesco.pe/file/uAZKnHMo6_ZcV-izNZus-hBxoC8sj8ZzkNCZ6LGUdiSvMb274PRNtmezHRufP6gtRloRuP7ebnhSpHhXgYU5J-fXt3WLM8Gqj4Mr6QLSTRSnuB--KMvnrJPboUGOdgX5a7JAbAAXKM4PZOfVqH3GmVGEy-pC8cvFIISgcMNO3RoIKINyf9DKRfxo_-fTWZbmRmjTY_YfzDSFGNhfhVAJjwlFzhZx3xVJu_FMdhJkHtPOJf-14u9DVWfUhvagOlnROE4-6uRdvSWtOib71WiSVT_N6OPCsrCgsj_nh7sbecQF1K4Ywf-M-31cUhmhfGqvJjbOTUtwLEBYhx8wT4Nx4A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OkE67H_LjBXRc2mkUjDx_Gu1OywGdQKcfTurkVXw1UXB04UoGE9E6Wyrvais9Db-qV9tkDhE3gB6AkWaXxWSv9bx9QpDPV0mGdwZ57whkI8JQfUF0ftKffky2hVJ8lYN8hOFbyYa7yY8hh4ki2SGNSo-yBz6Go_e7mEEYowmCT6Vusb904hm3OyF___pW98lLErlGRZD2R1HdHeIYNjbHHACWigGSElvrdUHUbuW_k1zThwIJd4-6dGnoSGvxBDiQob1wBKR98OW_UoFUYoVrFcEkjKWbVDhdBNse13UmojgWoDa2JIyS5SAECNyfW2eUgtJf_FWRVeFfqVurDrzyg.jpg" width="400"><br>
 
 شرکت یونانی «ولوس تانکرز» جمعه ۱۵آبان۱۴۰۵ کشته‌شدن یکی از خدمه نفتکش «ولوس سفایر» در حمله‌ای به این کشتی در خلیج فارس را تایید کرد. این شرکت اعلام کرد نفتکش احتمالا هدف یک موشک ناشناس قرار گرفته، اما نوع پرتابه و عامل حمله هنوز مشخص نشده است.
 بر اساس بیانیه این شرکت، حمله بامداد پنجشنبه ۱۴آبان، ساعت یک و ۱۵دقیقه به وقت محلی رخ داده است؛ زمانی که نفتکش بدون محموله به سوی «بندر سیترا» در بحرین در حرکت بود.
@@ -338,120 +401,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79017)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-06 07:42:34
-
-
-
-ترامپ، ترجمه ماشین:
-🔺
-خبرنگار: آقای رئیس‌جمهور، گزارش شده که ایران در حال بررسی مجموعه‌ای از پیشنهادهای ارائه‌شده از سوی میانجی‌هاست که ممکن است آینده برنامه هسته‌ای این کشور را تعیین کنند. آیا آمریکا در این موضوع دخیل است؟
-🔻
-ترامپ: آن‌ها بدون تأیید ما هیچ کاری نمی‌کنند. یادتان باشد چه گفتم: ایران هرگز سلاح هسته‌ای نخواهد داشت. آن‌ها بدون تأیید ما هیچ کاری نمی‌کنند.
-🔺
-خبرنگار: پس شما این پیشنهادها را دیده‌اید؟ پیشنهادی را که ایران در حال بررسی آن است، دیده‌اید؟
-🔻
-ترامپ: اصلاً اهمیتی ندارد که دارند چه پیشنهادی را بررسی می‌کنند. آن‌ها قرار نیست سلاح هسته‌ای داشته باشند. خودشان این را می‌دانند و من هم می‌دانم.
-🔻
-ترامپ: ما... ما... فکر می‌کنم... نمی‌دانم می‌شود اسمش را جنگ گذاشت یا نه، چون چندین ماه است که کسی کشته نشده. اما ما با جایی به نام جمهوری اسلامی ایران در جنگ هستیم؛ چه جای دوست‌داشتنی‌ای!
-ما کنترل تنگه [هرمز] را در دست داریم. الان نفت بیشتری نسبت به قبل از شروع جنگ از تنگه عبور می‌کند و حدود هفت ماه، شش ماه است که کسی کشته نشده.
-می‌دانید، اگر به روسیه و اوکراین نگاه کنید، آن جنگ است. آن واقعاً جنگ است. ماهانه ۲۵ هزار نفر کشته می‌شوند. راستی، ما به‌زودی آن را حل‌وفصل می‌کنیم. اما ماهانه ۲۵ هزار نفر کشته می‌شوند. آن‌ها شب و روز می‌جنگند، شب و روز، تمام روز.
-جنگ جهانی اول و جنگ جهانی دوم را هم داشتیم. آن‌ها جنگ بودند.
-یک نفر گفت «جنگ با ایران». نه، ما در محاصره ایران موفقیت فوق‌العاده‌ای داشته‌ایم و ویرانی به بار آورده‌ایم.
-امروز مردی از آن منطقه، از یکی از کشورهای همسایه، به من گفت که همین الان بازسازی کشورشان [ایران] ۲۵ تا ۳۰ سال طول می‌کشد.
-خب، خواهیم دید که همه این‌ها چطور پیش می‌رود. فکر می‌کنم خیلی خوب پیش می‌رود.
-شخص دیگری هم تماس گرفت. می‌دانید، می‌گویند این یک اشغال است. می‌دانید منظورم چیست؟ چون عملاً یک اشغال است. ما نمی‌خواهیم قلدری کنیم، اما این یک اشغال است.
-و این را هم یادتان باشد: ما ۱۸ نفر را از دست داده‌ایم و ۱۸ نفر خیلی زیاد است.
-اما در ویتنام طی یک دوره ۲۱ ساله هزاران هزار نفر را از دست دادیم. در افغانستان هم تعداد بسیار زیادی را از دست دادیم.
-۱۸ نفر خیلی زیاد است. حتی یک نفر هم زیاد است. اما ما ۱۸ نفر را از دست داده‌ایم و هفت ماه است که آنجا هستیم و کنترل کامل آنجا را در دست داریم.
-آن‌ها هر از گاهی یک موشک شلیک می‌کنند. گاهی یک پهپاد به ما برخورد می‌کند و از یک جسم فلزی کمانه می‌کند، می‌دانید. یا ما آن را سرنگون می‌کنیم. بیشتر اوقات سرنگونش می‌کنیم.
-اما مدت زیادی است که کسی کشته نشده.
-نمی‌خواهم با گفتن این حرف بدشانسی بیاورم، چون ممکن است از در بیرون برویم و بگویند: «حدس بزنید چه اتفاقی افتاده!»
-اما این‌ها ۱۸ جان انسان است و همین هم خیلی زیاد است.
-ولی اگر به ویتنام نگاه کنید، هزاران هزار آمریکایی کشته شدند.
-🔻
-ترامپ: می‌توانید از زاویه دیگری هم به موضوع نگاه کنید.
-در طول سال‌ها، ماجرای ناو «یو‌اس‌اس کول» و بسیاری موارد دیگر... ایران باعث خون‌ریزی زیادی برای آمریکا شده است.
-آن‌ها جنگ را شروع کردند. آن‌ها در سال... تصور کنید... در واقع احتمالاً در سال ۱۹۷۹ شروعش کردند، درست است؟ از همان موقع شروع شد.
-و در طول این مدت، هزاران آمریکایی و بسیاری از مردم دیگر را کشته‌اند.
-و اگر فقط به هفت ماه گذشته نگاه کنید، آن‌ها ۷۵ هزار نفر را کشته‌اند. دست‌کم این آمار مربوط به دو ماه پیش است. آن‌ها ۷۵ هزار معترض را کشته‌اند و بسیاری را از جرثقیل آویخته‌اند.
-🔻
-ترامپ: چند روز پیش یک نماینده بی‌اهمیت کنگره را دیدم که به خاطر ایران از من انتقاد می‌کرد، چون ۲۵ میلیارد دلار هزینه کرده‌ایم.
-گفتم: «خب، ما خیلی بیشتر از این مبلغ از ونزوئلا به دست آورده‌ایم. می‌دانید، اگر این دو را با هم حساب کنید، چون اساساً دو جنگ بوده‌اند.»
-پس در ونزوئلا کسی را از دست ندادیم. عملیات ۴۸ دقیقه طول کشید. من به آن می‌گویم یک روز، اما ۴۸ دقیقه طول کشید و تمام شد. حمله خشونت‌آمیزی بود.
-🔻
-ترامپ: و در ایران، ما هفت ماه است که حضور داریم و هر چیزی را که خواسته‌ایم کنترل کنیم، کنترل می‌کنیم.
-و حالا تصمیم خواهیم گرفت: آیا می‌خواهیم جلوتر برویم و تضمین کنیم که این اتفاق دیگر هرگز تکرار نخواهد شد؟
-فکر می‌کنم بازسازی کشورشان ۲۵ سال طول بکشد.
-ترجیح می‌دهم اگر ممکن باشد، باقی‌مانده کشور را نابود نکنم، اما شاید مجبور شوم این کار را انجام بدهم.
-خیلی زود خواهید فهمید.
-ما ارتشمان را بازسازی کرده‌ایم. الان داریم بیش از هر زمان دیگری برای ارتشمان سلاح تولید می‌کنیم.
-و کاملاً مسلح و آماده‌ایم.
-اگر مجبور شویم بقیه کار ایران را هم انجام بدهیم، کاملاً مسلح و آماده‌ایم.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79016)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-06 01:29:48
-
-
-
-پیت هگست، وزیر جنگ آمریکا، با انتشار ویدیویی در ایکس تأکید کرد که دولت دونالد ترامپ مصمم است از دستیابی ایران به سلاح هسته‌ای جلوگیری کند.
-هگست گفت: «وقتی می‌گوییم ایران سلاح هسته‌ای نخواهد داشت، واقعاً منظورمان همین است. ما تحت رهبری رئیس‌جمهوری ترامپ، اقدامات دشوار لازم را برای تضمین این موضوع انجام خواهیم داد.»
-او در ادامه افزود: «چون فارغ از اینکه مردم چه احساسی دربارهٔ جنگ دارند، من معتقدم این جنگ اقدامی شجاعانه و تاریخی است که تضمین خواهد کرد ایران هرگز به سلاح هسته‌ای دست پیدا نکند.»
-پیش از این، دونالد ترامپ، رئیس‌جمهوری آمریکا، گمانه‌زنی‌ها دربارهٔ برکناری پیت هگست، وزیر جنگ، را رد کرده و گفته بود که از عملکرد او رضایت دارد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79014)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 21:55:07
-
-
-
-محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روز پنجشنبه ۱۴ آبان‌ماه، پس از دیدار با ولادیمیر پوتین، رئیس‌جمهوری روسیه، به صداوسیما گفت که تهران هفت شرط به آمریکا ارائه کرده و تا زمانی که واشنگتن این شروط را اجرا نکند، تنگه هرمز باز نخواهد شد و مذاکره‌ای انجام نخواهد گرفت.
-او گفت پوتین در این دیدار، حملات نظامی آمریکا و اسرائیل به جمهوری اسلامی و بمباران تأسیسات هسته‌ای ایران را محکوم کرده و ضمن درخواست پایان سریع جنگ، آمادگی روسیه را برای کمک به پایان درگیری‌ها اعلام کرده است.
-به گفته دبیر شورای عالی امنیت ملی، رئیس‌جمهوری روسیه همچنین از گزارش نشست چهارجانبه تهران استقبال کرده و تأکید کرده است که مسکو نیز مانند پکن با دخالت کشورهای خارجی در امنیت منطقه مخالف است.
-او همچنین از تصویب پروژه راه‌آهن رشت‌ــ‌آستارا و بررسی انتقال گاز روسیه به ایران برای مصرف داخلی و صادرات به کشورهای همسایه خبر داد.
-رضایی در بخش دیگری از گفت‌وگوی خود با صداوسیما اعلام کرد که به درخواست مجتبی خامنه‌ای، رهبر جمهوری اسلامی، پیام او را به ولادیمیر پوتین تحویل داده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79013)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-05 19:18:25
-
-
-
-رسانه‌های ایران گزارش دادند محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، در دیدار روز پنج‌شنبه با ولادیمیر پوتین، رییس‌جمهور روسیه، در کاخ کرملین، پیام مجتبی خامنه‌ای، رهبر جمهوری اسلامی را در اختیار او قرار داده است.
-خبرگزاری اینترفاکس گزارش داد رضایی در سفری از پیش اعلام‌نشده به مسکو رفته است تا با مقام‌های روسیه دیدار و گفت‌وگو کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79012)
 
 ---
 
