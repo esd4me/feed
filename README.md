@@ -3,8 +3,77 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-09 10:57:55 </h5>
+<h5> 🟢 Updated at: 2026-11-09 21:30:01 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-09 20:11:08
+
+<img src="https://cdn1.telesco.pe/file/vIoRys-Ia6oCFGc8g2TLHt6GzphW93FYwJ0vFy-Gsvjf6oQPDqPj866gYzCQFxmweNYVtrzgjgjDn_ox3ngbbqefGy4Ol68JezDcV4xOopGYIsEFJ-9mum5AO3J8puxXEb1df9VHwTwEBmppT15JS9R39BEs1Wezlb4UsypzCkQWDovVppU4U4yWEXTYPP9vn7yFmQGj0XFdIdRWxCosDZB11AggoUD8iit3t4SsTiJmgu95O59AarD9qm79d5Ec2ch1gC4GEwRk8wFhsPIsBA4TZDuzGCH4QRogS_f3zzNksmKLJ0JDFBwDmSu7yql-_bpUdNHQTNRy2_99KtwmaA.jpg" width="400"><br>
+
+دادستانی پاریس روز دوشنبه ۱۸ آبان اعلام کرد تحقیقات درباره حمله سایبری به یخچال‌ها و فریزرهای سوپرمارکت‌های فرانسه، به گروه سایبری «شهید کاوه» وابسته به سپاه پاسداران رسیده است. هم‌زمان، وزیر خارجه فرانسه سپاه پاسداران را مسوول این حملات دانست و از احتمال اعمال تحریم‌های اروپایی علیه عاملان آن خبر داد.
+ژان‌نوئل بارو، وزیر خارجه فرانسه، روز دوشنبه در حاشیه نشست گروه هفت در پاریس گفت بر اساس بررسی‌های نهادهای دولتی فرانسه، مسوولیت این حمله سایبری بر عهده سپاه پاسداران است.
+او اعلام کرد در واکنش به این حمله، اتحادیه اروپا علیه افراد و نهادهای مسوول تحریم‌هایی اعمال خواهد کرد. بارو همچنین گفت سفیر جمهوری اسلامی در فرانسه به وزارت خارجه این کشور احضار شده است.
+وزیر خارجه فرانسه شمار مراکز توزیع مواد غذایی آسیب‌دیده از این حمله را ۷۰۰ مرکز اعلام کرد.
+دادستانی پاریس نیز در بیانیه‌ای اعلام کرد شیوه اجرای حملات با الگوی عملیاتی گروه «شهید کاوه»، یگان سایبری تهاجمی وابسته به سپاه پاسداران، مطابقت دارد. این نهاد قضایی برای رییس این گروه و دو معاون او درخواست صدور حکم بازداشت بین‌المللی کرده است.
+بر اساس اعلام دادستانی، در جریان تحقیقات استفاده از زبان فارسی و آدرس‌های آی‌پی مرتبط با برخی نهادها در ایران شناسایی شده است.
+دادستانی پاریس پیش‌تر در ۲۰ مهر اعلام کرده بود که هکرها با دستکاری سامانه‌های متصل به شبکه یخچال‌ها و فریزرهای چندین فروشگاه بزرگ مواد غذایی در فرانسه، دمای آن‌ها را تا ۵۰ درجه سانتی‌گراد افزایش داده‌اند. این حمله به آتش‌سوزی در برخی فروشگاه‌ها و فاسد شدن حجم زیادی از مواد غذایی منجر شده بود.
+به گزارش رسانه‌های فرانسوی، مقام‌های این کشور پس از وقوع حملات، به آژانس ملی امنیت سایبری دستور داده بودند تحقیقات درباره این رخداد را آغاز کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79048)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-09 17:44:02
+
+<img src="https://cdn1.telesco.pe/file/qvude85Qvdh9n9YaE0ahiMhomDff0-m3oFBmxaK_1vZ4qBkzPBPvPrjpNm-unilY2RrWZKxo0Bfs7_ynAWrOSxqAQtgxaB389wDDr2JV1P9rPsQiwdyHmoUL3Z9eNSfSuX429Rpsm7a1bMtUkbeCvaGMqhxg6HPvDvR0EmfAfwhynJ1FJIKgYdN6_99nAP5L3GJOE9makompjcoFUEE2ESDGSPEPQPjt_0GfDLLpRgQLDYruLcK5u5TxEfqtNunqMrA0zKSpQh0DLHlyKkDgjcfRmdRH-CVBWrQ3rpqFVqyCoUFPSEZ8VjeWWbVdxjOsznaJkUYN0Vd-MqsxjDt5jQ.jpg" width="400"><br>
+
+سفیر عراق در جمهوری اسلامی از سفر محرمانه علی فالح الزیدی، نخست‌وزیر این کشور، به تهران و دیدار او با مسعود پزشکیان، رییس جمهوری و محمدباقر قالیباف، رییس مجلس شورای اسلامی، خبر داد.
+یاسر عبدالزهراء الحجاج روز دوشنبه ۱۸ آبان ۱۴۰۵، به خبرگزاری رسمی عراق گفت این سفر با ماهیتی ویژه و غیرعلنی انجام شده و هدف آن بررسی راه‌های کاهش تنش و جلوگیری از تشدید جنگ در منطقه بوده است.
+@
+VahidHeadline
+به گفته ابراهیم کالین، رئیس سازمان اطلاعات ترکیه (میت)، قطر هفته آینده میزبان دیدار مهم جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، و محسن رضایی، رئیس شورای امنیت ملی در جمهوری اسلامی خواهد بود؛ نشستی که از سوی آنکارا به عنوان یک «فرصت کلیدی» برای پیشرفت در مذاکرات ارزیابی می‌شود.
+کالین طی سخنرانی در نشستی با موضوع جستجوی قرارداد اجتماعی منطقه‌ای جدید در خاورمیانه، تأیید کرد که این دیدار برنامه‌ریزی‌شده در پی تلاش‌های اردوغان برای حفظ مسیر دیپلماتیک در تماس با ترامپ و جلسات فشرده نخست‌وزیر قطر در واشنگتن انجام می‌گیرد.
+وی افزود که ترکیه و سایر میانجی‌های منطقه‌ای در حال پیشبرد یک طرح ۷ ماده‌ای عادلانه هستند. بر اساس این توافق پیشنهادی، در ازای تعهد تهران به تولید نکردن تسلیحات هسته‌ای، تعامل با آژانس بین‌المللی انرژی اتمی برای آغاز مذاکرات هسته‌ای جداگانه و رفع انسداد تنگه هرمز، ایران از لغو تحریم‌ها و دسترسی به منابع مالی مسدودشده بهره‌مند خواهد شد.
+@
+VahidOOnLine
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، به نقل از یک مقام ارشد امنیتی در تهران، خبرهای منتشرشده درباره برنامه دیدار محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، با جی‌دی ونس، معاون رییس‌جمهوری آمریکا، در دوحه را تکذیب کرد.
+این مقام امنیتی گفت سیاست و برنامه ایران در زمینه مذاکرات تغییری نکرده و تا زمانی که طرف آمریکایی اقدام عملی در چارچوب «شروط هفت‌گانه» انجام ندهد، هیچ برنامه‌ای برای مذاکره با آمریکا وجود نخواهد داشت.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79047)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-09 16:38:49
+
+
+
+ویدیوی منتشرشده
+، حاوی آخرین تماس تلفنی امیرحسین ملکی، معترض اعدام‌شده با خانواده‌اش است که در آن به مادرش می‌گوید: همین که می‌دانی من بیگناه هستم، برایم کافی است.
+امیرحسین ملکی، جوان معترض ۲۰ ساله‌ای بود که در ارتباط با اعتراضات دی‌ماه ۱۴۰۴ در محله ملک‌شهر اصفهان بازداشت و بامداد ۱۲ آبان ۱۴۰۵
+اعدام شد
+.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79046)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-09 06:48:49
@@ -214,7 +283,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-08 21:37:07
 
-<img src="https://cdn1.telesco.pe/file/kfly_wPnUnzEhAv9OUFFeFNrQNWaRnTkc_hKs9wTbR6wuXTKxVVvfNn6gwC9m4NmKqe_9k82alNqMdWalhChaNFF6hJ2n3FyluDOJxIaaIhZDTz2xBXiFQOzCWu4AIQQIWU8itZQD9sxZH_mRTXPvETmviHSv7u0RbxmN2yOlApQIezeBQguqQpjz-G6XqCQVPa7VdrUcayRUr6hxmmtmpeL-LJImvCpYtHY9QhhUJ1BBQeazh9TeWoG8O98EpsV3iWFvH2BfWgDMOfPjizJX1wySs5t27k-f7T7fHPszpcMwbzCmXd-EykifcRiv_zswuuCHl25rLmU1TjxWaYD8g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/lmIAFblr0oopJV0htb4ZSyK5yAyqCVm6ZOw37bwXH1nqoomKbermR4wztZaV3KnJJZUqRncADjW9ZewmWNKHzwkUwxgMJWkFsAE7oLjuEjQRnUjZH8e9LCHO4psGtwKuEUrjmNQnGIFMVhTgaXWV-56n56U-9zikYrr3A3MvQMODgpBc-3rHIELZnbo3SH8xGRmr39Bsgi49Rk6I-c0CJbarCvUswpHqpRlPz07UP9if1TiAzvvdMFGtkSVR98zPMmXLEdUxQZQSMM7CINg8cmyB3Pudx7d7HTRYGYJWIt-cGpgtfdPYdwGgUOTzbXDFtT0mmsmBv_TW2BKIgHWVOQ.jpg" width="400"><br>
 
 دونالد ترامپ می‌گوید اگر مذاکرات پیشرفت کند، ازسرگیری حمله به ایران «بسیار بعید» است
 دونالد ترامپ، رئیس‌جمهور آمریکا، روز یکشنبه ۱۷ آبان در گفت‌وگو با شبکه خبری سی‌ان‌ان گفت اگر مذاکرات جاری با تهران پیشرفت داشته باشد، احتمال اینکه ناچار شود دستور ازسرگیری جنگ با ایران را صادر کند، «بسیار بعید» است.
@@ -259,7 +328,7 @@ araghchi
 
 ###### 🔵 Post time: 2026-11-08 16:10:09
 
-<img src="https://cdn4.telesco.pe/file/orF6wBRRYN36PiLwKhFEbLnMnzSO3ZuyHYZruw2qeD-_Tmi0FPjkQKsndbRSSrePYWqgW27qvBnQBNFU5HTPCCYvvtH4oGhKIiMNK5rPefEKiUdEbb26j7CBw5bX5-_uMdeToEYCU5MaTZFnQtWd1mpVRJrSPPe-8ZHYhLHeGBHAckhA4fs47SJgqWd_u5VPXSjLma4NOKfv7iOtET5Xb0G4sLGflyXE06WZXdbGApAvFlsN5BS2adOIesd0_u1D52LCFkxzkzg_hzvQ7yhSadjImgEwu61TEbJc7OzwVupJOQtDGP3-Cj4t-ndHTI8e729CIxAedAAC1JEUJ_ykHw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ECgSED6N5SzdCXwcetbs6yXHzKP2L_UFZJ9Q_Ys8Oh-32pSuz4UKvXZoGRIZbgH661wPkhUYDnkNMs4jMQxaYa75eKyV79KYEMlKMEyey05CKbOU8rU81ZpHo9PdvKxkUjY5HgtP2MgTvSVLtA9jnoOU9SEEffx9SD30-FacvTVZgjp9hzdwfqQEZ0o8NafgRxv8b7a0zCttyj8fDEfzfPjSYt-Fj9UawXrdqwfVGruvH_ehDTFjepVLulGoZXsUaktN0ATkZysVfadsePKMxAgcE9CpMJzu0t0Mi0KehKSdZCDMud9RjdUSqjrGaIF9hFKbHJn6exwuvICPvH_vOg.jpg" width="400"><br>
 
 ابوالفضل صداقت، جوان ۲۰ ساله در مشهد، به اعدام محکوم شد
 خبرگزاری هرانا روز یکشنبه ۱۷ آبان از شناسایی هویت ابوالفضل صداقت، جوان ۲۰ ساله و یکی از سه بازداشت‌شده اعتراضات دی‌ماه ۱۴۰۴ در مشهد خبر داد که به اتهام «محاربه» به اعدام محکوم شده‌اند.
@@ -278,7 +347,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-08 16:09:18
 
-<img src="https://cdn1.telesco.pe/file/bMvHeuVe8xRsDsOiwwqI4JqXyRpD2wwma6MIC-s8kTSWkOPHYgJ8drtzWYa0zuDMC2ViqRECBevFcYWTbqYLRray72wSPznKAGWKEaVqRgAo4jpLlFH-smUTeU4NUYtRXwVKe9lMTUUyfHAdhUU1WzWTZpST-w52e6R9ghG48TUOAWnGGQ31ZVVR_KrnTguKpQEY2vL80qwEqPTGWo9mQx4vMJ4qxj0mSzKbdQLnG_tcF0tZl_8CJX8Io1_-oKIfhOM78MGf2AL0dmJEfuB7RblkHEkGDdfi-SCXydEXDyiY0ndon8XVDlWEZWu4_9S1ODSHlAm8umotdkIipUlm8g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Ru8eI211MqyLObezs4FViWDyAgoGJrAdUwIwJbt8z-G8V3hz-wT8O5_6HtLftbB7PysTeK8D_f6f-OO1ht7eWyhYf5TMr8JhLaVMYtqehuwHoiPoWoQbRyJHhaiHyGV0qgsW8QGgiu-7fEErFA-bdQEVa2eAWXx9AVgRjS7hqK77ckwwH_47AsU9LMyebDX9Dtcepkms-sySBkT3dFYGQeTyTg-mjfOeConSexm9btfBTo4Vi5PK8oCsdogGbnuPwtgWRJrawknL7Lwk_0IYJFVrPfKx9HH4PkJrfhXHKPEA7jtKKaGUTLmA-BIfB6IvVodbv3w84fv6iaZtg88W1A.jpg" width="400"><br>
 
 اتوبوس حامل اعضای تیم بسکتبال سحر آکادمی، هنگام بازگشت از آبادان به تهران، در نزدیکی شوش واژگون شد.
 سرپرست این تیم اعلام کرد حال عمومی بازیکنان مساعد است، هرچند تعدادی زخمی شده و چند نفر نیز دچار شکستگی شده‌اند.
@@ -301,7 +370,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-08 16:06:39
 
-<img src="https://cdn4.telesco.pe/file/OQzkYtSJpjKVYk96vF8PS3T7hGIZQwDUcHSVinRvF_4b2M4wIiSFRju7d3FnzlJPLsQ-buu9ZCPU2UL_s7vrtwapH69YIAMoq0a0jA1fXyHTNAZydVTBja8u25PeMtEE_NDx4k3K6wSwsISRGYBMl6VOXEZySlRl2_T701mhgz-OQoWMcF2ZcK5a-3iKL4U4axmlJZB3JPr90wDs0hD2ZRo_MpUYYnjp_KlkGGEgvixyZr_ZuDFuW0DwfYEo3UbWejFvRVYj5aD3JaRBnt3Jn-Lw5GXgcrHy1I875OFigBIh3QLJxrPm04MCeyT7tEA5NKbw5klV9vre4lKUGqtzJQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/tq9dleiCTTDTAWTLuAPSQGF9ZOJ-1K69YL76USSKpS9f-0qzsMx0J4ZREIuENeuA7sm1oELyF_KYPFYu4jNoifFqdFVl6cEN3USFhUIptksj_gjjTnNX2TsZ-lsLY6rmTYZHhfnR4wieqCIAP93Aketoo9j1XCYZWKFco_xa9lpDj5uXtdlgvFXNSXLJAOcSWzk3XiA74mnBzh2sQgW0IzBEhNrT7Xx9XDXpCwDLjU0uVWsushqqLlix2n-0tnxcXpzggQ1n7dsxhn5Z0V5vyGAchWxA9uc3s8DWgh7X7R1-_wqxBkFc3TCSVGCk1GS-t5hXNcIRGAfkxpO1g1Nlbw.jpg" width="400"><br>
 
 قوه قضائیه جمهوری اسلامی صبح یکشنبه ۱۷ آبان از اجرای حکم اعدام حسن دیوبند، حمید کاظمی و رضا زنگنه، سه متهم پرونده اعتراضات دی‌ماه ۱۴۰۴ در کرج، خبر داد.
 خبرگزاری میزان، وابسته به قوه قضائیه، اعلام کرد این سه نفر به اتهام «مشارکت در اقدام عملیاتی برای آمریکا و اسرائیل» و اقداماتی از جمله حمل سلاح، ساخت مواد آتش‌زا، تخریب اماکن عمومی و قطع برق برخی مناطق کرج به اعدام و مصادره اموال محکوم شده بودند.
@@ -404,51 +473,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79029)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-07 20:22:35
-
-<img src="https://cdn1.telesco.pe/file/vm5aJtut9EefcIa4XQBgRCadxXWYb9R2Q1uWUsiccpmjYn75Y8F0w7lpfQN7wKvJd3UdPUwsSggqnk1sB3VxH1kMKU-yJ27Op6N6R9v_LNVrhOLG0o0ypR7cEP2_lJ1hDq6xohgJddrPGtJ1CQO4RMZU_XULcnNQJjRtm0ZhyZNFdN9Zi7y-UmZ00pNrQ6vmdYD6RNR5GNdY_s8pAJd_LH8cY4xm_XY9gja77UYowqghZi5fmNuXxNUA2aESOS85GuCkp47VruYyRFjLgEankC2NAJ0wLgq5bp6NEbx5g8aW6N5f8b_kqO7pcE8h8uKW4Skjc8bYAHmCSCnc1AvCfQ.jpg" width="400"><br>
-
-شاهزاده رضا پهلوی روز شنبه ۱۶ آبان در فرانکفورت «جایزه آزادی» بنیاد فریدریش ناومان را که امسال به مردم ایران اهدا شده است دریافت کرد.
-مراسم اهدای جایزه در کلیسای سنت پل فرانکفورت برگزار شد. بنیاد فریدریش ناومان، که به حزب دموکرات آزاد آلمان نزدیک است، اعلام کرده است رضا پهلوی این جایزه را به صورت امانی و تا زمانی که نمایندگان منتخب مردم ایران بتوانند آن را دریافت کنند، در اختیار خواهد داشت.
-شاهزاده رضا پهلوی در سخنرانی خود گفت ایران «کشوری نیست که منتظر آموزش دموکراسی باشد»، بلکه  از «عمل کردن به دموکراسی» بازداشته شده است.
-@
-VahidHeadline
-هزاران نفر از حامیان شاهزاده رضا پهلوی روز شنبه ۱۶ آبان برای حمایت از او در فرانکفورت گرد هم آمدند.
-پلیس فرانکفورت در ساعت ۱۴:۳۰ به وقت محلی
-:
-در حال حاضر حدود ۲۰ هزار نفر در محل حضور دارند و همچنان افراد بیشتری در حال رسیدن هستند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79027)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-07 17:19:18
-
-<img src="https://cdn1.telesco.pe/file/HM1bsaUVSJuZuLblLvmyxtbyEjpzcl60ZQ5f8C4aUBbjxbMIoEauu8wS8fVCxz_lwoEu1dJ2M2AIj2b4yWcOKQ9j4-9qhtUVOPfiqxenOez-EoZMedP1_GpidvdNu9htkoSzzwhE9ftkzck-HRq5mSng2HpG3p_UoEDLU5Hd-fAgM5Xm9zBRZzoDxfHCQ_y5oDxQGPMaSG-IetouGh1QHJWqiTNAPE3d_lydhiwn3TmgbiGSq5uZSGJxkhreEal1kIc5Nvk_MwgtuvIswQOvX9jFelZLCul_x5v2l-bO9dnve6r7DvIX1VvPg_SwVtFS7V4d8dC9df_QCYBNhCeeag.jpg" width="400"><br>
-
-"سنتکام کارگروهی برای مختل کردن مسیرهای ترانزیت زمینی ایران در حمایت از محموله‌های غیرقانونی تشکیل می‌دهد"
-ترجمه ماشین:
-تامپا، فلوریدا — روز ۷ نوامبر، فرمانده ستاد فرماندهی مرکزی ایالات متحده (سنتکام) دستور تشکیل کارگروهی را صادر کرد که از تلاش‌های جاری دولت آمریکا برای جلوگیری از استفاده ایران از مسیرهای زمینی به‌منظور انتقال تسلیحات پیشرفته و سایر اقلام پشتیبانی خواهد کرد.
-دریاسالار برد کوپر دستور تشکیل «کارگروه دروازه آهنین» (Task Force Iron Gate) را صادر کرده است؛ یک گروه داخلی متشکل از حدود ۲۰ نیروی غیرنظامی و نظامی که در تامپا، فلوریدا مستقر خواهند بود.
-تیم جدید سنتکام با دیگر نهادهای دولت آمریکا برای جلوگیری از انتقال سامانه‌های تسلیحاتی پیشرفته، فناوری‌های دارای کاربرد دوگانه، اقلام مشمول تحریم و جریان‌های درآمدی غیرقانونی از طریق مرزهای زمینی ایران و دریای خزر هماهنگی خواهد کرد.
-کوپر گفت: «تشکیل کارگروه دروازه آهنین، موفقیت محاصره دریایی نفوذناپذیر ما علیه ایران را تقویت می‌کند. تقویت همکاری سنتکام با نهادهای مختلف دولت آمریکا، توانایی ایران برای تأمین مالی تروریسم، بازسازی کارخانه‌های تسلیحاتی و تجدید قوای نظامی خود را بیش از پیش محدود خواهد کرد.»
-در ماه‌های اخیر، محاصره دریایی آمریکا مانع از صادرات بیش از ۲۵ میلیارد دلار نفت خام توسط ایران شده است. اجرای سخت‌گیرانه این محاصره در دریا همچنان علیه تمامی کشتی‌هایی که وارد بنادر ایران می‌شوند یا از آن‌ها خارج می‌شوند، ادامه دارد.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79026)
 
 ---
 
