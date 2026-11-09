@@ -3,8 +3,25 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-09 00:23:46 </h5>
+<h5> 🟢 Updated at: 2026-11-09 03:50:58 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-09 00:54:25
+
+<img src="https://cdn1.telesco.pe/file/QAijRwDiiC68UkG8Bkl4zaU2H2KSDrEgnJp59iPGz0kzdazUYoZ_OMOokWGEMifmR9gU4oJ_E6tWMcCIHZKai_cWfWpA_WkY4gOaXUOn-oX_JRWdDHbKYnCcrIfLYFvEobJYaRbHtD7QOQyt4GoWJFFna_QIquAV107twygEe_OnuSc2VSJVlLqoK8v1emiUB1v_fLjBKRF-b-B0jTJ2MmvDKQESzX6yq2ZIaf5gkWbRKna07Nd_UGapGzmR8kV1waxejNT4d4VX7OIo_4UWfKJRMKk24rMpjzpUpkoGhmPPyzpmJm0uCokwUFJYkscSh9btcoNsy9a41FMU-fEFwg.jpg" width="400"><br>
+
+پست ترامپ، ترجمه ماشین:
+کارگروه «دروازه آهنین» (Iron Gate) در جمهوری اسلامی ایران با تمام قوا فعال است. در کنار بزرگ‌ترین محاصره دریایی تاریخ، تقریباً هیچ‌چیز وارد ایران نمی‌شود یا از آن خارج نمی‌شود!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79042)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-08 23:57:40
@@ -195,7 +212,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-08 01:38:29
 
-<img src="https://cdn4.telesco.pe/file/dZyqbG21nGrNZS_Ljb_yCDos8avkqW1wpLetpudAhm29PqfoviGtj_t0CSXg2Q-2ahyOoqpJEpReipfQ3-yjfc0cHtnY_LLWLY6IwX1lsuZCoQM-W9B7VAztIoG_um0e4UURCA8KzNvqtHlI0A3d33xCDlyQhJp6I6D1RMgVXue4XcgMIjsqRM6kdx2KaI2kwAilcZybYuaPIhWbBs3eXKpM3M076do-YUnBoRkQ-ZpRXrJorwzXtpYNIbxXsqsr4nhxd-mbIBHTohnE9lXm8H0F33c7Z2StYijkcWpoIR87G6JvD7-w_Nb3YzDpHEYy-0ngzw37FXz4mqPKJur9dA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/tIxo9hY7ZCd4_bD5J4oY3U7w2qY3m2Bp2NQ7JsTkZvKY3PohBLIi2PkljDwrxZENCFHLIJ2_pxcHpz7EOuN7OFP8JMb3YzXSrZlNUk5RTb2WzhZ4CLZmeX_PcDp8OMKJUuTGLTrD8FDzpmlGhSITxrhtsjWuZOkNAaEYV4caGTB5vw18e7-jSMJxEoCl7Dxznw1aZkF7k3yVfbx413wNHbgX9oKmqKOdSKlAgBSE80lM97Us7Ls9SJh2bcWlvyJp9KDgVXRBZQCEBg-gnqbvDlfUbgFxCd9z_dQW6AtK7tfYw10-07XrK1lHhXQVc07nF8s1cehVt2jSNYeDiaDY2A.jpg" width="400"><br>
 
 نیروی دریایی سپاه پاسداران روز شنبه ۱۶ آبان اعلام کرد دو نفتکش در محدوده تنگه هرمز و شرق این آبراه پس از برخورد با مین منفجر شده و در آتش می‌سوزند. سپاه این دو نفتکش را به تلاش برای عبور از مسیر غیرمجاز و خاموش کردن سامانه‌های ناوبری و موقعیت‌یاب متهم کرده است.
 بیشتر بخوانید: ​​
@@ -405,22 +422,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79023)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-07 16:35:54
-
-<img src="https://cdn4.telesco.pe/file/a4NOQie0l2j91KeddCuk7ROxLbh84j9g0d4b11Ny-3aopaxWL334xffAuomkNGzpVNwbTXglkwWEKcTzjhp3Qm2Iz-Pdz8EDFXDymto8S3oxUnb-RaPsbTYJpYE6Og1NT_2qowtU5JZrkZO9VR9sC-_2gXGw1GGAOlkr7ilZG56f9ukbhgFx_69cxOVGZFTa6hsUiCa8IgPTnrbyXhVpPObFe8hfIexf47YAs2It-HwWuW_z0066MtjLcPYqt0sRZ59W4KAOTobTOTQY1XBMemJ8GSDtLBdCDVv9cHeJb13GpuyRJWdbQTe7AIve9fGNPzBFgY8d0bJp-gUrB5VO5Q.jpg" width="400"><br>
-
-خبرگزاری میزان، وابسته به قوه قضائیه، از اجرای حکم اعدام «محمدعارف شه‌بخش» خبر داد. به ادعای میزان، شه‌بخش با جیش‌العدل ارتباط داشت و به اتهام‌های «بغی» و «محاربه» به اعدام محکوم شده بود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79022)
 
 ---
 
