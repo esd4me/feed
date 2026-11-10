@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-10 04:54:24 </h5>
+<h5> 🟢 Updated at: 2026-11-10 12:28:47 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-10 08:11:02
+
+<img src="https://cdn4.telesco.pe/file/lkQb7irwQPn6SDn4_PJfehqxaDuxPIe3pQaWnXjBqSPvZAi3v7LpsmxllnbD2S6STBbZ6eX74VWKenYd7LhrG89_yoHutpZmKfUv48eD3NOc5SjfkX1VNveZpYwHIrRLPGVKREsHNdHu5-kLu4Zzn0gczvJiO5GWXjg_tY5HrmosBV7PUtAQEaVF7XgR_fa60xk1bvKPNzIASUxsQGkI8y1WLvEQVR86kbHJ3T-t14XekcnAv2uz2k1pw0brvte6nhyhh0LCfBPRMMJvIU3VtOErL7Bt5UH4_2gSqgGdunuOJG1Gqmz4Tl07PWLVifDor_YpECJzbhjxEFA9Qrt2rw.jpg" width="400"><br>
+
+محسن رضایی، دبیر شورای عالی امنیت ملی، روز دوشنبه با انتشار پیامی در شبکه اجتماعی اکس با انتقاد از مواضع اخیر واشنگتن اعلام کرد: «جنگ علیه ایران دولت ایالات متحده را به نابودی کشانده است، اما واشنگتن مانند قماربازی مستأصل دست‌وپا می‌زند.» رضایی با مخاطب قرار دادن مقام‌های آمریکایی نوشت: «دستت را زمین بگذار. به تولید اخبار جعلی درباره مذاکرات خیالی پایان دهید و از انکار نظم نوین در غرب آسیا دست بردارید. زمان آن فرا رسیده است که در برابر هفت شرطی که ایران بارها مطرح کرده است، تسلیم شوید.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79053)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-10 03:21:54
@@ -199,7 +215,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-09 06:48:49
 
-<img src="https://cdn1.telesco.pe/file/IzvEw1hUdSeToLfvAIwj6yQSJoszAdQ6A7O9SWB5SPYM7C7AcNGfS9A23y4NdmWA1ADliE646dARdgaZpm4hW7xLKpi61z6KqX2s_GcH3HF_teduHHYv2f3snlQggmR-pOViMrRaNil_he7qJA0vzWXg8Ejuwktzn_SkdcpJtsnOkAxDxK3Feq9Eu23BB9VG30hZYt9neZ1Z_ckSKILiNTDby1V8WFPJltpUMUWYQSkST-AIk2TYb8m3J6be5Qi7lh0c2nC4dS0NvTdNd1juaP8-CK74ZgO5TPPHhRJqzWxlaFph6TSTuERKLCgSYGOv-QcJL-92dBpaWhK_XQO44g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/VB3ltOcIxytz8i82Wy0a_lhJhQCMiFX1q_QasOU5r2M3nOAbC-rZDBssUbtHNN06BEPmaPbrVwHzmMjfa0qMmarekiFWKQ9f22vLiYdvXMRBEPL92IOPXLs9uL_JrpFvsWqhB0fTFWGiBXIN6lvyjn0kIaMI9KMxBY-7i8AryQZiKCBGh413MnOfw73LYTD2I_pyWUAlPPeMLZyBUT-2WUOOhuL0xe0MUOYBvZJmgZUpAn9UvVIyaCGNHSFWjagAgJp3tfWfomvqxWsmB-B6yKqzM-DZE5tj8olqyFbM2_e7lWJgxJ87b5FEpI5APw1gg41lX9WI034RLMBwxwWyQw.jpg" width="400"><br>
 
 اکسیوس گزارش داد جی‌دی ونس، معاون رییس‌جمهوری آمریکا، روز دوشنبه ۱۸ آبان، پیش از دیدار دونالد ترامپ، رییس‌جمهوری آمریکا، با محمد بن عبدالرحمن آل ثانی، نخست‌وزیر قطر، به‌طور جداگانه با او دیدار خواهد کرد.
 بر اساس این گزارش، کاخ سفید دیدار ترامپ با نخست‌وزیر قطر را اعلام کرده است.
@@ -309,7 +325,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-09 00:54:25
 
-<img src="https://cdn1.telesco.pe/file/QHbdi3IMPkyWSQza3Z0iCBXaGi6wVb5ExByjwQu6RxxuKRApr5AD4C2CNnbkC42Evf-i_0N_AMxh5RT4mS5HrsZFb2pIS4IFB7lopG6Kyt_0qrCV6c97CFmjWsQpTEuhN1LMLs7D7LME-X8s2bhxX0DoShLR9M-wObpOnAJW-tiVK846mvby2iYorwZYKwDtzjTr_X8URuABmJ2s6A52lNdooSG2HTSP1v21xozVp-r8eeLD7fK8wsMpJsCELx_tTX15jqcsP7-fKOTGyooYo4ZRlKPZePgRv_JmSUtSr8bW1Wt2DG5D5H1o5-2aT-Gn2ujDH-zJGug8ALx3EvDrxA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/EhbEmFDQoGXCpr2pZ-dMn7RdBRGIunnX4QX8mDFTtgUe787icwZY6KnRAHrM-jg6mExWkik3UoE5DHIXUL0eCrVBDIJ6-UBMDbDABn-azxmidhF3IDzbE042KeUhjO-N4-2UBkA6j9wNx1-6UmqRYF7XU848HACFAbjMZlzcBUVT0O9g8DcqKdevb0bUNIKjCIwKVvfA330pHymM8hJ0mVP_HwUPhIrAtrODEO6yKBbAI3841hInjLsWQVKISgTmEm6rhKAzrBRDq_xiDY8sYlpif_zNQF1-jkpFxkZ4cRRbis01GZizGSo5K00YMw_kFPz6-e7KQ5JjC5AFuBGMPg.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 کارگروه «دروازه آهنین» (Iron Gate) در جمهوری اسلامی ایران با تمام قوا فعال است. در کنار بزرگ‌ترین محاصره دریایی تاریخ، تقریباً هیچ‌چیز وارد ایران نمی‌شود یا از آن خارج نمی‌شود!
@@ -484,27 +500,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79034)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-08 16:06:39
-
-<img src="https://cdn4.telesco.pe/file/tq9dleiCTTDTAWTLuAPSQGF9ZOJ-1K69YL76USSKpS9f-0qzsMx0J4ZREIuENeuA7sm1oELyF_KYPFYu4jNoifFqdFVl6cEN3USFhUIptksj_gjjTnNX2TsZ-lsLY6rmTYZHhfnR4wieqCIAP93Aketoo9j1XCYZWKFco_xa9lpDj5uXtdlgvFXNSXLJAOcSWzk3XiA74mnBzh2sQgW0IzBEhNrT7Xx9XDXpCwDLjU0uVWsushqqLlix2n-0tnxcXpzggQ1n7dsxhn5Z0V5vyGAchWxA9uc3s8DWgh7X7R1-_wqxBkFc3TCSVGCk1GS-t5hXNcIRGAfkxpO1g1Nlbw.jpg" width="400"><br>
-
-قوه قضائیه جمهوری اسلامی صبح یکشنبه ۱۷ آبان از اجرای حکم اعدام حسن دیوبند، حمید کاظمی و رضا زنگنه، سه متهم پرونده اعتراضات دی‌ماه ۱۴۰۴ در کرج، خبر داد.
-خبرگزاری میزان، وابسته به قوه قضائیه، اعلام کرد این سه نفر به اتهام «مشارکت در اقدام عملیاتی برای آمریکا و اسرائیل» و اقداماتی از جمله حمل سلاح، ساخت مواد آتش‌زا، تخریب اماکن عمومی و قطع برق برخی مناطق کرج به اعدام و مصادره اموال محکوم شده بودند.
-به گزارش میزان، حکم اعدام این سه نفر پس از تأیید دیوان عالی کشور اجرا شد و هشت متهم دیگر پرونده نیز به پنج تا ده سال زندان محکوم شده‌اند.
-ادعاهای قوه قضائیه درباره همکاری این افراد با آمریکا و اسرائیل به‌طور مستقل تأیید نشده است.
-مای ساتو، گزارشگر ویژۀ سازمان ملل در امور حقوق بشر ایران روز هفتم آبان اعلام کرد دست‌کم ۳۴ نفر در ارتباط با اعتراضات دی‌ماه اعدام شده‌اند که دست‌کم پنج مورد از این اعدام‌ها در ملأ عام بوده است.
-او و هیئت مستقل حقیقت‌یاب این سازمان در نشست مجمع عمومی سازمان ملل هشدار دادند که جنگ و سرکوب داخلی، وضعیت حقوق بشر در ایران را وخیم‌تر کرده‌ است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79033)
 
 ---
 
