@@ -3,8 +3,43 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-11 05:54:42 </h5>
+<h5> 🟢 Updated at: 2026-11-11 13:33:09 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-11 07:34:38
+
+<img src="https://cdn1.telesco.pe/file/QZP_yQPRSxeKb6rlN-Rxzf_pDr2yARQfRzrzWAohXVnhKLfmVbN_Gzm6AJQ3lXiINc6UBcCq1kQyecVrGC_nxTna9RyIymAfPE76IvLpcUWCN5wcEMIo_mzznNa3TWEj1U_X2Yhe6kl_Slw5qNLoEQTca4B4UCWgr7CoDvpLlm0jtY_LXa8OhI8kaJKjTQWuBDeyuOzGmEG4aRl3cer1HwJubfObPVrJ8pOAH2GX-KmZ7xpCvXhGMGPj5p43lN9Zy839o9J1tO4B64a9JimFFYUBJRVeqpJLzOZmjvTtKb9LNmBXf5UvAN2UcNwjLzEKKK8efXf9CW6WFNLcjznziQ.jpg" width="400"><br>
+
+بلومبرگ به نقل از یک مقام غربی و بر اساس گزارش‌های اطلاعات نظامی نوشت جمهوری اسلامی با وجود آسیب شدید به صنایع نظامی‌اش طی حملات هوایی آمریکا و اسرائیل، همچنان دست‌کم هزار و ۷۰۰ موشک بالستیک در اختیار دارد و ماهانه حدود ۵۰ موشک جدید تولید می‌کند.
+این خبرگزاری سه‌شنبه ۱۹ آبان گزارش داد ارزیابی‌های اطلاعاتی غربی از باقی ماندن بخش قابل‌توجهی از زرادخانه موشکی جمهوری اسلامی حکایت دارند. میزان کنونی تقریبا نصف ظرفیت تولید پیش از جنگ است، اما توان تهران برای حملات تلافی‌جویانه در صورت ازسرگیری درگیری‌ها را حفظ می‌کند.
+پیت هگست، وزیر دفاع آمریکا، سه‌شنبه در نشستی خبری بار دیگر بر موفقیت عملیات نظامی این کشور تاکید کرد و گفت بیش از ۸۰ درصد زیرساخت صنعتی هسته‌ای ایران نابود شده است. با این حال، به نوشته بلومبرگ، اگرچه بخش عمده توان نظامی متعارف جمهوری اسلامی در حملات آمریکا و اسرائیل از بین رفته است، تهران همچنان توان تولید تسلیحات و حفظ بخشی از ظرفیت حملات موشکی خود را دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79069)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-11 07:30:30
+
+<img src="https://cdn4.telesco.pe/file/KOJzp_2ZrAkCmfg_SFABI7BMu_TGuJ2PXS6mUtTm86eQcd6kesAFkWfH88Ky08TIotTT44SW--jjBWFkLkF5QnTP2zKexd7fL4xsAh6SkDzdQJRCV-HyC38QtJtkXMDhemCRvUSG30rC6mB0PiLAkGGAZGTRJgtOkcw1JsQ7WoDfXbV-ixzOCUj2waFt-PIZHYXWywFRUV8plINKj9SgEIT3ed6jt3IRPL6B1TXusswTSR4njvJobItkz0b8Z0GheOP9tLzFOaciAdr8LZmcxpJEUVlrDID85OdwgstZEImHBONXPz-NAb0DuwS8ikW7NQUIFvtrcQQASgvZ_jbEJg.jpg" width="400"><br>
+
+به گزارش «نشنال اینترست»، ناو هواپیمابر فوق‌سنگین و هسته‌ای «یواس‌اس تئودور روزولت» (CVN-71) نیروی دریایی آمریکا پس از توقفی کوتاه در سنگاپور و عبور از تنگه مالاکا با خاموش کردن سامانه شناسایی خودکار (AIS) به دلایل امنیتی، در مسیر اعزام به خاورمیانه و حوزه مسئولیت فرماندهی مرکزی ایالات متحده (سنتکام) قرار دارد. نشریه تخصصی «مرین اینسایت» در گزارشی با تأکید بر اینکه ورود این ناوگروه رزمی، شمار ناوهای هواپیمابر هسته‌ای مستقر در منطقه را به همراه ناوهای «جورج اچ.دبلیو. بوش» و «جورج واشنگتن» به سه ناو می‌رساند، خاطرنشان کرد که این آرایش قدرت با هدف تقویت محاصره دریایی ایران و فراهم آوردن گزینه‌های نظامی فوری در صورت دستور دونالد ترامپ برای حملات جدید شکل می‌گیرد.
+از سوی دیگر، نشریه «مریتایم اگزییکوتیو» گزارش داد که ناوگروه تئودور روزولت به همراه رزم‌ناو «یواس‌اس چوزین» و ناوشکن‌های اسکورت، در میانه نوامبر به شمال دریای عمان خواهد رسید تا پیش از بازگشت احتمالی ناو جورج واشنگتن، واشنگتن از یک پنجره زمانی مهم برای تشدید عملیات نظامی با شدت بالا یا تداوم فشار حداکثری از طریق محاصره در بنادر و خطوط کشتیرانی وابسته به جمهوری اسلامی ایران در آستانه فصل سرما برخوردار شود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79068)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-11 05:31:13
@@ -286,7 +321,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-10 08:11:02
 
-<img src="https://cdn4.telesco.pe/file/BmQBB6vy5JAMEdSFAnbx3AENOjGumK9W-vxYDYIr8Hp-SOv_Ml4yZ-FMh6Q5KeWoadLnI-Qwl366FU00wy6saYQmFn_pmNyPEyDGhpSwYj9FQHBSZw70CMafb3NcYOGE7CQhMyU5YvCh1QCqe8u7um0I7zUcjxgyVTWsQiVm727j0X6GEyvb1nQrGQt0h4t42_YTGlBMknyuPmQGtsrwiCmI9YFJr8n-2Cz1U4W2tSrm1S9yZMXHYFSwsvlgHIwI4uEPhb7eTc1xwNtZqvDHvP9Numkjk3paVIyLj2DMErE92q74H2k11zuIlfhKahkpRahkglQsRwBHWxZRE0znFg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/GXD_dR4mdlynRuaBuoNksVPF20nXg5EaMbTDkTbsEpJ2Apz4zkJGWhUP7bZWHoEV5FkZ8q4iRCVaQHzVDW-QHGHUOFmzkbUo73xf1PJnJxF8fy4osZgITc0tb6B0FtlOPwM5Za-GWmP2UpvvAuOS5j6inyOlfvZNqH5N_mV9Y5ijU0gzn7fgMI4O0Hgez6CgvvHClQYQ9b_uHQ3qJiT6SM1BxEu6yHvGA-YLBYvtVB8qk1ngH3IIwJO_isrf-E37ABLEonHUqYPswEvba1DkbTV4enaVmmykUBqveHqBwKzTS4ueE0yCViSeA2GJMW1gxzJexMvd7078WehNPe-Tlg.jpg" width="400"><br>
 
 محسن رضایی، دبیر شورای عالی امنیت ملی، روز دوشنبه با انتشار پیامی در شبکه اجتماعی اکس با انتقاد از مواضع اخیر واشنگتن اعلام کرد: «جنگ علیه ایران دولت ایالات متحده را به نابودی کشانده است، اما واشنگتن مانند قماربازی مستأصل دست‌وپا می‌زند.» رضایی با مخاطب قرار دادن مقام‌های آمریکایی نوشت: «دستت را زمین بگذار. به تولید اخبار جعلی درباره مذاکرات خیالی پایان دهید و از انکار نظم نوین در غرب آسیا دست بردارید. زمان آن فرا رسیده است که در برابر هفت شرطی که ایران بارها مطرح کرده است، تسلیم شوید.»
 @
@@ -399,46 +434,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79050)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-10 00:21:30
-
-<img src="https://cdn1.telesco.pe/file/oLCrV2jQkLK5qLg5Y6RmnUz1cadvwSapzm8o0PqikYcQHbQEovh86WJwZ2o7pILSfLwIpwBZGRt5Ae2jsEfwM_9SG4-tsfAHMH4C_cBFc02lVeGIXYd6RFXmuQQeP1AUV_L4yuGmK3a_WjihgpfWk1cTw_Hz7jzSm6H9o_K_eJanmBXVGPSBzAhXJMOu6-Jff4xoqescRVarssY7969k6dnCQgPyrxqKyAswM6XnDgvNjrwnEdZ_3NjQ9I_o6mzjzut7J4TjaxMrs9cU9XrL6mAMvkdaK7csFOGy_BykxxbIq8uUxWd2LJqaipVGBXZA46AeNgAk5reiTg_28hVnqg.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهور ایالات متحده، روز دوشنبه ۱۸ آبان در یک مصاحبه تلفنی کوتاه با خبرگزاری رویترز اعلام کرد که قطر و عربستان سعودی مشتاق دستیابی به یک راهکار صلح‌آمیز در خصوص درگیری با جمهوری اسلامی ایران هستند، اما ایالات متحده در صورت لزوم کاملاً آماده است تا حملات نظامی را از سر بگیرد.
-ترامپ که روز دوشنبه در کاخ سفید با نخست‌وزیر قطر دیدار کرده بود، تأکید کرد: «قطر ترجیح می‌دهد یک راه‌حل صلح‌آمیز ببیند»، اما در عین حال هشدار داد: «ما آماده‌ایم هر زمان که بخواهیم حملات را از سر بگیریم.» این اظهارات در حالی مطرح می‌شود که تلاش‌های دیپلماتیک میانجی‌گران منطقه‌ای برای کاهش تنش‌ها و بازگرداندن ثبات به منطقه همچنان در جریان است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79049)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-09 20:11:08
-
-<img src="https://cdn1.telesco.pe/file/QcNavkRJmt_dMEzOW3vezI_KzXuUdadFks4ScnF5OVzYPS2lJaFTgrcXsyuxIpftjSxQiRueCBIAVQj3MfmvxQVyywPrjAnRS742UaT5GeLDCW9CsT4CYqdMIiuF4SfBvYK6hutzxYA8idB898YS3FaaeWDCdAx8FRHIZDJWO_0B6LlL6NhHxWjcp1OXg855U-U4guzBHj6y8-F05ERunv5ZCgI0oWR3DNZZwBf8ofDMmVffz-WVgrj-ptR2Mg2kC9BYpR-r7bL2PtNEnFL7Ez5axuelfbLRECQqlaYjjNORwbHmWhrjBjuON5DEMNJ9juMfHYk2NZcn-61v-qGFDg.jpg" width="400"><br>
-
-دادستانی پاریس روز دوشنبه ۱۸ آبان اعلام کرد تحقیقات درباره حمله سایبری به یخچال‌ها و فریزرهای سوپرمارکت‌های فرانسه، به گروه سایبری «شهید کاوه» وابسته به سپاه پاسداران رسیده است. هم‌زمان، وزیر خارجه فرانسه سپاه پاسداران را مسوول این حملات دانست و از احتمال اعمال تحریم‌های اروپایی علیه عاملان آن خبر داد.
-ژان‌نوئل بارو، وزیر خارجه فرانسه، روز دوشنبه در حاشیه نشست گروه هفت در پاریس گفت بر اساس بررسی‌های نهادهای دولتی فرانسه، مسوولیت این حمله سایبری بر عهده سپاه پاسداران است.
-او اعلام کرد در واکنش به این حمله، اتحادیه اروپا علیه افراد و نهادهای مسوول تحریم‌هایی اعمال خواهد کرد. بارو همچنین گفت سفیر جمهوری اسلامی در فرانسه به وزارت خارجه این کشور احضار شده است.
-وزیر خارجه فرانسه شمار مراکز توزیع مواد غذایی آسیب‌دیده از این حمله را ۷۰۰ مرکز اعلام کرد.
-دادستانی پاریس نیز در بیانیه‌ای اعلام کرد شیوه اجرای حملات با الگوی عملیاتی گروه «شهید کاوه»، یگان سایبری تهاجمی وابسته به سپاه پاسداران، مطابقت دارد. این نهاد قضایی برای رییس این گروه و دو معاون او درخواست صدور حکم بازداشت بین‌المللی کرده است.
-بر اساس اعلام دادستانی، در جریان تحقیقات استفاده از زبان فارسی و آدرس‌های آی‌پی مرتبط با برخی نهادها در ایران شناسایی شده است.
-دادستانی پاریس پیش‌تر در ۲۰ مهر اعلام کرده بود که هکرها با دستکاری سامانه‌های متصل به شبکه یخچال‌ها و فریزرهای چندین فروشگاه بزرگ مواد غذایی در فرانسه، دمای آن‌ها را تا ۵۰ درجه سانتی‌گراد افزایش داده‌اند. این حمله به آتش‌سوزی در برخی فروشگاه‌ها و فاسد شدن حجم زیادی از مواد غذایی منجر شده بود.
-به گزارش رسانه‌های فرانسوی، مقام‌های این کشور پس از وقوع حملات، به آژانس ملی امنیت سایبری دستور داده بودند تحقیقات درباره این رخداد را آغاز کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79048)
 
 ---
 
