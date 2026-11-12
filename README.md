@@ -3,8 +3,28 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-11 21:43:13 </h5>
+<h5> 🟢 Updated at: 2026-11-12 04:41:22 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-11 22:26:07
+
+
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز چهارشنبه ۲۰ آبان اعلام کرد واشنگتن به‌دنبال دستیابی به «پیروزی کامل» در جنگ است و قصد ندارد به نتیجه‌ای کمتر از آن رضایت دهد.
+او در مراسم روز کهنه‌سربازان در آرلینگتون ایالت ویرجینیا گفت: «این موضوع باید خیلی وقت پیش حل‌وفصل می‌شد. می‌خواهیم مطمئن شویم که به پیروزی کامل دست پیدا می‌کنیم؛ نه پیروزی ۹۳ درصدی، بلکه پیروزی کامل.»
+رئیس‌جمهور آمریکا افزود: «بازسازی آنچه ما ویران کرده‌ایم، ۲۵ سال برای آن‌ها طول خواهد کشید و امیدوارم مجبور نشویم بخش‌های بیشتری از آن کشور را ویران کنیم.»
+ترامپ همچنین گفت ایران از سال ۱۹۷۹ (سال وقوع انقلاب ۵۷) علیه آمریکا در حال جنگ بوده و این ایالات متحده نبوده که جنگ با تهران را آغاز کرده است.
+او با اشاره به عملیات نظامی آمریکا علیه جمهوری اسلامی در هفت ماه گذشته گفت در این مدت، تنها چند هفته درگیری شدید و فعال جریان داشته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79081)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-11 18:29:49
@@ -63,7 +83,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-11 17:00:09
 
-<img src="https://cdn4.telesco.pe/file/fL1sI16KZXEq_tyKQyyNbWJmkqSOQMtI4kbYBpezM-oJFN1dUYo0lSyZpa7TT_GcO8bm0gLD1Fo2ofvMYTKuFSIjK80rZT_71n2i7VJQP4zON-4btrZuia4uUIErdP_MPx5ODtqp6CWNSgZG9Rh-8eChHRfGymuN-KSCBTEbz4Nfix9vAWnn_E7VqYLPIqeqKZW67EuU6A5Od4CbX1caSlQ2McMcYhgS98uQGEQk4m9f7479gzPNDrj1xpMt7PzJYDUNTYfFbjvW-bi4_OYp3JCkOrLVoe9vNtiRTMtGDRYPoOkpUbwKkMhmnkMW3hECx1VhgIl9zhszBL_3zeC78w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/d867CHUoXrFmCTuEwhYpy0v8vsYFRAd-dVKghKQz6-r-bjskhJeVPcTD8zWwcy46iupt6U_1rAYochrKhAHA1GeZ1lH3UqhLhimknvugpfFu77sIoQYGpkQ00C75LmYSJRbiFRVs6CovADIKf7nIcYUEIsexHsNrjUBMnw08-q4aRISDqXTkiKNnp-4-W1NMUjApFrpnQK0qEv1k5Z5IyfVHhsO1eqC1a5S6KNU4NbNjk-xB1MmilDapLU6fr5FHqjSPMS_B87IG7agqKSdPValq3KThn1RLT783SCa5D2wopBvRdkn0gEK_ufJ0D9lE9kYww67C6hVG4WXsW_v38Q.jpg" width="400"><br>
 
 «پریا مهرمند»، بسکتبالیست ۱۵ ساله و عضو تیم ملی نوجوانان ایران که در سانحه واژگونی اتوبوس تیم سحر آکادمی به‌شدت مصدوم شده، همچنان با خطر آسیب دائمی به پای راست خود روبه‌رو است. پدر او با ابراز نگرانی از وضعیت دخترش، از وزیر ورزش خواسته است برای رسیدگی فوری به وضعیت پریا، تیمی از پزشکان متخصص تشکیل دهد.
 پدر این ورزشکار نوجوان اعلام کرده است که پای راست دخترش دچار عفونت شدید شده، حس خود را از دست داده و بخش زیادی از عضلات آن به دلیل اختلال در خون‌رسانی از بین رفته است.
@@ -137,7 +157,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-11 16:57:46
 
-<img src="https://cdn4.telesco.pe/file/OCmZEu0M6AF17TW70KxcJ3ylaByAXGCryfOS-bbz0H7UjAIHT6kwGfrzUMnpXB5eZqPBR8vLFN3RRvFzollmPtCQerT5CJwvAYGJRZbW9Kv1yNpcmNRhOkSSTYQI3X1gpIg_b2KxK2tY5RCL1sqvBp7qhW2PGBX5XyeUWVw1cbJ8OjjtSnKmXsfhx59DhOXq36wxqu0EmCTy5_BXzEnalDrXZrnVhyx6WrWgSKHcnG1CSn-t8oiYNZ7zwvpHjf1h-okak223hBkhVJQLkHy0lNRcrWCVICjMocWgGhxvTy-EHfugcR9meaNKlOhKOz_bT8lLkMv907cp5vP6I7ri2w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/QOHUjIZkLq5ja8qYqNTE0X7Xrs3NK92BhY_7z3DZ7zr9WdprpC1ZUezJKEAaqoc07Vc9FQjGPnnUjy39ReDdNeZTAgiQEsrwlAK5nVq71W_mhVYv_w8bA0tRlsUp5KE5FOkDCG4ZAxBKAGY-UI-MaWzeMEzPK_YSdIQkEzNGk3x1okxeUZS82xQKWtGzUiuN67xvjxyXjDoNnRxAWyDVfAwt2QxZIlhQESESpvMrQ9k9OndiPTAqj7QQ1RTVt5kCLAw9ryM8Y8xiI0eU70zcjFvXCYsitYLzY5HsfiJBzsvoyWkRwy8kkCAhNUT1tCujrc6P_9eFo3-5gPusUJyQRg.jpg" width="400"><br>
 
 وزارت خارجه جمهوری اسلامی روز چهارشنبه ۲۰ آبان اعلام کرد نیروی دریایی و نیروی هوایی آرژانتین را «سازمان‌های تروریستی» می‌داند. این وزارتخانه در بیانیه‌ای گفت تصمیم را بر اساس «اصل عمل متقابل» و با استناد به قانونی مصوب سال ۱۳۹۸ گرفته است و مسئولیت پیامدهای آن را متوجه دولت آرژانتین دانست.
 @
@@ -222,7 +242,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-11 05:31:13
 
-<img src="https://cdn4.telesco.pe/file/Rs_cwMlFZXDDMvC55HPuQnOYZZbyW3sss1efpibWe2TbI-xqMVIegWw5OXw896FujORi9we4lAhjbSNctJmixBVGawiJuDARO83UjUF3DEW5bCTX0tntmJ8HOJsNpz6bwSgh3qWVm6iL6Skc39GYrw_A7EboK5S4-nnPn9ABc_Ma3C1I979rA4a8s5TvPKd9CDDfwmby2bhfZuz_cLeGV3tRkGdKjFtCFXQccrAMiKuXm2Wa0d-a2w6ZkbbLlBOvaNTS3XMoL0Ag8X2yl0xzZUFX5tyqFHwmofOP-SpgVZ8oWLdmiYNjb9ieZGm2Yvl99g-tk5-Y5sYWH0fNnFGtdw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/uNySBx7bw_7o9ctjUOvO1B9_fUVF6xSG0HyWcb7gsH_DtVfo5JHMpn3BF0UTmTjkjQ2o9vO0c_CAfrOeXlEE1Vtt5U_IcDV1kaUeVJx1tuooGVRjISjjjHlQKo71oi-lNe7r41JaOBG2gLwkXSaXfpnHuHl5r3ReWF0ar2mw89dO_oeSNOi1RZNT2bwzRg9ev5Np9zLf4zPThoYOAZblaVXk8h70Q6nUIAhYJIrTvQWQ3EH4aFbFmfhT9VkUZwdEPzxEar8f7ZXgu5kwOHYqS3PN13pteZZmIhRJyEWEiZCbW2mXP5xJKS_Bg-wF3KtCsY_kAnHjpUJGxvL1USP4Kw.jpg" width="400"><br>
 
 نیویورک‌تایمز به نقل از سه فرد آگاه گزارش داد اسکات بسنت، وزیر خزانه‌داری آمریکا، که هدایت کارزار فشار اقتصادی علیه ایران را بر عهده دارد، به دلیل نگرانی‌های امنیتی از خانه خود به یک پایگاه نظامی منتقل شده است.
 طبق این گزارش، مقام‌های آمریکایی در هفته‌های اخیر به این نتیجه رسیده‌اند که طرح‌ریزی جمهوری اسلامی برای هدف قرار دادن مقام‌های کنونی و پیشین آمریکا به مرحله پیشرفته‌تری رسیده است.
@@ -260,7 +280,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-11 03:24:36
 
-<img src="https://cdn4.telesco.pe/file/J0rqWbW-6Ukk2v86ujcXsE_SyEcqOd36bYPpf8ez4Go5MM0Til7Uu3esPrD1COvlB11SAaOkBIO7THmBkNgZO1r_jCUUsargwr8Hr8emeWknmK81Z4hfQPcql04C5zFHUS3BIZzs-Zv_JmKlVB9fOFr9-xz7hmQLt5ztyUv7PkenW35zCbHEpVfEGrhAMx6qMvv3zgXvUXkmjhQvNtUtdExqZ3o8TPgcFK23nJ0jhJ1Wg4x5beYB7FMzi2Hs_WoCZ83FfaMj5u1WrJ6klSRQP_Q9XPWjQI5i0_-lqtQ9Ne-aNF7ZBH5hIQwFZiBax0cpEIB6BCy8ezL9SHQQGc_u2g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/OKBkIpd2fO03xbOuTtdqJkutH7pumwkQuohqIlCmyits2qkpIhaxhH7Vak4ZtGl68YDfzd4nfm_Oeg1KSfooV6xn8jpJuGPJV8jcD5SE0qoCzx-Qvu50jk-rkhLdi72bueauUNzXsfGGZeSo-am9ZVUVC3yCJUyB-Vd5skdfIceJg_5jbMjIEuoyFgJ8Q_wYNmNq2ECsRmAUzus1dauNrFIyeKjgeRi4Q0pgMnDmlFZ3oADk3sRwSQ1pcoZCEanv4QqmN-RG9Vec37DYvioSDv9u8zJW6ZzDBN0q3JKmNKF7WdnnB_ZhH_NGgz3gfmPEOnr5h31SKyytnSXwtwNwdg.jpg" width="400"><br>
 
 به گزارش رویترز، جمهوری‌خواهان مجلس نمایندگان ایالات متحده روز سه‌شنبه با آرای متفق خود تلاش‌ها برای استیضاح پیت هگست، وزیر جنگ آمریکا، را متوقف کردند. اعضای مجلس نمایندگان با ۲۱۱ رأی موافق در برابر ۲۰۴ رأی مخالف، با ارجاع بندهای استیضاح به کمیته قضایی مجلس، که تحت هدایت جمهوری‌خواهان است، موافقت کردند تا این اقدام عملاً ابتکار عمل تامس مسی، نماینده جمهوری‌خواه کنتاکی، برای عزل هگست را ناکام بگذارد. در جریان این رأی‌گیری، تامس مسی تنها عضو حزب جمهوری‌خواه بود که به این طرح رأی منفی داد.
 @
@@ -276,7 +296,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-11 00:05:25
 
-<img src="https://cdn1.telesco.pe/file/MLNN5Hu4LSKA68I-H48AwwuM5QWlbA2W7m5thkrv7KE4Xzs_nftL7LkwV9zCw4qdG5ZiU3ru2ZAYMByENKlUePIlCLRtCTEhgz6HLNUoeKwARWd4KqAGGUcYdpBUeMStQKPWeJzjDIw9MZ1G6UZUtfQ64QnNbRy7o1pOtPihHxLK-PDVDGRgxVU7ef66hBqRhpfAFqP0tN4KraS7qKJqiiaYzlruYpRkP4-N8zjT3OreiY6FSxbeLVyp92wNfhX6lS5g8QAGS3QILMyCNDyIrzvIdt_i-5GhsqtN3fPphbE2sxQVcdS8H3Vd743deQutCFhKi6Ac0XNPZF_8IYwBNQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JlyBdpFFvoN7FJ-WrVFZWQATeVoLBH5ek_rc7Wp-d190dS8PsoNBHoGm6QBnp95a1trEt-XxvtmXxvdqA1JSAEOvNpTvmvlUM4qghHiAMnr4-hFsiiufxq2F3t2e5QvYvVviuBCUMQ8dhFBjvh5RDPf8UKyFHC72MvFZ8esn7d4W8V5SvFeNpUcnfV5H0hVmHoiWqKd4RwtA2qOkjhFwL1fCYyuB1-K6ze9w3um3QHN4tjRxh9Jsg1MfEkf4bGjiNzIW0va5GwNFDQXZpChibdLrss78QpHC9KHxCygYJcQDMV5XhhgJl2-PdCSPV6mprBClbnP4QFsDQU1-g8WaqA.jpg" width="400"><br>
 
 روزنامه «جروزالم پست» به نقل از منابع دیپلماتیک گزارش داد شیخ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر قطر، روز سه‌شنبه ۱۹ آبان در دیدار با وزیران خارجه گروه هفت در پاریس گفت دوحه توانسته است دست‌کم دو هفته فرصت برای ادامه تلاش‌های دیپلماتیک با هدف دستیابی به تفاهم میان تهران و واشنگتن و جلوگیری از حمله احتمالی آمریکا به ایران به دست آورد.
 بر اساس این گزارش، آل ثانی در نشست پاریس تاکید کرد که اختلاف‌های مهمی میان تهران و واشنگتن همچنان باقی است و چند موضوع کلیدی حل‌نشده است.
@@ -303,7 +323,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-10 23:57:13
 
-<img src="https://cdn1.telesco.pe/file/nitI843tE5JL7U5kBx44gULiEzzBohl1_m99dt7rWZ3bPyKr9LpHTz4mCbmNMvtyIQ9JNbtbkQ_WlupHrWjZiokplmQiZsf2nu2m35affxrUCoAnRYwQFF6Bw7ktam6mPWaOzP7DTmj3T0LTR_TgWrlvocxt3WV9PjloSr12TiSzycdg1YXh_29LEgMXX1phoa11cQRJHAOt0HjJXtIH5HzKiaZWBPyKo3gOl-uYrdssnlyk7GzoVM4RgPKPF5iHGsqoplDSUFiFqIheyjDA_FKwQHo0w9fs1LRCYIDey1FxGsWR1I70fVQEU0258Vi2CJZF686j3vXNLnCiRL2vsQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LOx2YNo_G-w8tOiWM9KS7m6qmGjVmbIzHBVXvHjBBZ1fkbF6mOLiav8VmvJo9gu5RlUL6au9cz30CzozOTAGmcM2AwplFcQRcGPtUcZcekZkDF2SuhSoUNnmcR0f-crhu7w_-8IEhVF9HGpy-9FlXrtBuyuVqzZswjlNFlNwtQCzTHo_QdO5coapySmhqlK6AjrAoPhcrzk5FSisByDjJx5AGWr5cI98eEeWeUf1v8RxVsX-bhmq4aHQK3tdZYQAPl7XnnfGQ6PPmbKy_7pcAwZ-rZ2LxCU9c-YkuNVjcuOM63AX4pAbeaB_2bzaKrPLFymv8p-kGnlrfS2_M3kpbg.jpg" width="400"><br>
 
 شرکت نفت و گاز پارس روز سه‌شنبه ۱۹ آبان از وقوع آتش‌سوزی در یکی از سکوهای گازی فاز ۱۴ پارس جنوبی خبر داد و اعلام کرد که حریق مهار شده و تمامی کارکنان سکو در سلامت تخلیه شده‌اند.
 در بیانیه این شرکت که در رسانه‌های ایران منتشر شده، آمده است عملیات تخلیه همزمان با مهار آتش انجام شده و کارکنان بدون آسیب از سکو خارج شده‌اند.
@@ -321,24 +341,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79062)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-10 21:12:36
-
-<img src="https://cdn4.telesco.pe/file/ZYMyFsT_kwU_DOnHbnePx5tzikVOuHzvLkNG0ghZZ-vNLSrigWXwzEFZIi3AdfeDHY-BgPcIBaokhxCBhlKeo76nhmNrioED_Nt7bOJ9MWUCwSfpfYfUdjGAHe3yXT3IWe6VP77GfyZGUTsrjE9dxIs3LieewYTGKwOoTHpybVY5wfS8IX6deJup68ng_suTy07baqinU7J9CXXKw9kwqRwBsXTEceKPPi_eKSFJdu4YP4ZqDBrK213C8MhxrwfKJHL8yBTPZ8fy7RC61o9-krt_II7rIQJBNgq-KJ4mcPkcR2zVJa8TPtV--p405MIUYnzDEXHF8fKHHuhjNqCe0w.jpg" width="400"><br>
-
-سازمان عملیات تجارت دریایی بریتانیا (UKMTO) روز سه‌شنبه ۱۹ آبان اعلام کرد گزارشی دریافت کرده است که نشان می‌دهد یک نفتکش در حدود ۱۹ مایل دریایی (حدود ۳۵ کیلومتر) شمال‌شرقی منطقه «لیما» در عمان، هدف اصابت یک پرتابه ناشناس قرار گرفته است.
-این سازمان اعلام کرد که خدمه کشتی در سلامت کامل به سر می‌برند و تا این لحظه هیچ‌گونه گزارشی مبنی بر خسارات زیست‌محیطی منتشر نشده است. همچنین کاپیتان کشتی قصد دارد در نخستین ساعات روز آینده به ارزیابی خسارات وارده بپردازد. این حادثه در ادامه سلسله مخاطرات امنیتی دریایی در آب‌های منطقه رخ داده و رصد وضعیت تردد نفتکش‌ها را دوچندان حساس کرده است.
-خبرگزاری ایسنا به نقل از نیروی دریایی سپاه پاسداران، این حادثه را ناشی از «برخورد با مین در مسیر غیرمجاز» دانست. به گفته ایسنا، این نفتکش در حال سوختن است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79061)
 
 ---
 
