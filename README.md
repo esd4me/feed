@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-12 04:41:22 </h5>
+<h5> 🟢 Updated at: 2026-11-12 12:28:51 </h5>
 </div>
 
 
@@ -102,7 +102,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-11 16:59:12
 
-<img src="https://cdn4.telesco.pe/file/DQLnyzPrsW9cxsLFXzTNcKOVsdfKu1wWZZW071DpxenRSF7yfSzGGHwt5Rry4epp8FhXKF0js9X_jHudxvA_IoJxX9oRL_Y5g8S2EM5sQ6cPptmWD819_A_N9GpJN0MRyCvGYsL21FHnF7G7Msa5YDj1UI7bCXUuW02pMFclDi8_TbjNa-yxsYhjYeAb6GdVYgqgdDSbcdRTCrh9K9KInMaQxpBPwF5jBNe1k2KV-RtlMemvugKeSyELXOaUbjeOb_wUHCR1TT3jqCtlnGgEYhSErIIYIs55lnjnUMbp-bHiC1R57XA-JQDuX4ds3KWmTtz3bAGZ2ONPj-edHSVyKQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/CxVJHxgQlftXSfLjhxcDjRa4EcynjVkjXsz6bcxRYGCouYBCJWxVa0kn68grikzQWrX-TE7fjYnromTrlozNTF7cdqBeIWDO0YP13Rru9rCLKpAg3MBi7mztroeHW7FEqefnjjf75rKqZoBgWsuTx-E6Ue6kGKfjxnAnWJXxVl-nxw-bO2XS2DjrrppR6yVyCj-5YblaCK6DxaeeNGgOZ6dF6_ojP08FGZl0OFqayp3tx3lLAvss-O0PLsxLOp7qKA_lHY4Tuw_Iv8ihSqFcKXn1Uko-0Ho1satxRHTIWAjWc21kmL__GQefHkOB0RAAqNQgagNoW_f6qHLaO3SeFA.jpg" width="400"><br>
 
 شرکت بیمه و خدمات مالی آلیانتس در گزارشی برآورد کرده است که خسارت‌های فیزیکی ناشی از جنگ با ایران در کشورهای حاشیه خلیج فارس از ۲۰۰ میلیارد دلار فراتر رفته و مجموع تولید اقتصادی ازدست‌رفته این کشورها تا سال ۲۰۳۰ به ۷۹۰ میلیارد دلار خواهد رسید.
 بر اساس این گزارش، بیش از ۸۰ تاسیسات انرژی در جریان جنگ هدف حمله قرار گرفته‌اند که حدود یک‌سوم آنها به‌شدت آسیب دیده‌اند. بیشترین خسارت‌ها به زیرساخت‌های انرژی کویت، قطر و بحرین وارد شده است.
@@ -207,7 +207,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-11 07:34:38
 
-<img src="https://cdn1.telesco.pe/file/QZP_yQPRSxeKb6rlN-Rxzf_pDr2yARQfRzrzWAohXVnhKLfmVbN_Gzm6AJQ3lXiINc6UBcCq1kQyecVrGC_nxTna9RyIymAfPE76IvLpcUWCN5wcEMIo_mzznNa3TWEj1U_X2Yhe6kl_Slw5qNLoEQTca4B4UCWgr7CoDvpLlm0jtY_LXa8OhI8kaJKjTQWuBDeyuOzGmEG4aRl3cer1HwJubfObPVrJ8pOAH2GX-KmZ7xpCvXhGMGPj5p43lN9Zy839o9J1tO4B64a9JimFFYUBJRVeqpJLzOZmjvTtKb9LNmBXf5UvAN2UcNwjLzEKKK8efXf9CW6WFNLcjznziQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GBb3ALInoMBFkvNT_7pAh2DQHMG7SkvLwVOczsDYLf0PN9aVpQMuH0WyFki4pTJOECPerQjh8LQbLYkjZ713-Gdt9T8BdeHj4rhvlg8Go1104XMiIkBSe3bhHDW02fVMWamAztc5mqiOcRhGcWKjVXMPEFEOt2Gq6SSobyYmhD_JDmNv_HIt8VQKMuaJm7r2bj26Jy8eVU0RVvl85sDy-waq9581zHP5jEzs7I0o5y01P3tICWYSgAP9332oQVH-3_YEtAGAyBF4d8pUkFWslMgSiGSDGXM4LqTBOkj9WqDhWv19nqX_2kJdgq6k9HE5-8A6rRuaML1eoh3pJdWRWw.jpg" width="400"><br>
 
 بلومبرگ به نقل از یک مقام غربی و بر اساس گزارش‌های اطلاعات نظامی نوشت جمهوری اسلامی با وجود آسیب شدید به صنایع نظامی‌اش طی حملات هوایی آمریکا و اسرائیل، همچنان دست‌کم هزار و ۷۰۰ موشک بالستیک در اختیار دارد و ماهانه حدود ۵۰ موشک جدید تولید می‌کند.
 این خبرگزاری سه‌شنبه ۱۹ آبان گزارش داد ارزیابی‌های اطلاعاتی غربی از باقی ماندن بخش قابل‌توجهی از زرادخانه موشکی جمهوری اسلامی حکایت دارند. میزان کنونی تقریبا نصف ظرفیت تولید پیش از جنگ است، اما توان تهران برای حملات تلافی‌جویانه در صورت ازسرگیری درگیری‌ها را حفظ می‌کند.
@@ -225,7 +225,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-11 07:30:30
 
-<img src="https://cdn4.telesco.pe/file/KOJzp_2ZrAkCmfg_SFABI7BMu_TGuJ2PXS6mUtTm86eQcd6kesAFkWfH88Ky08TIotTT44SW--jjBWFkLkF5QnTP2zKexd7fL4xsAh6SkDzdQJRCV-HyC38QtJtkXMDhemCRvUSG30rC6mB0PiLAkGGAZGTRJgtOkcw1JsQ7WoDfXbV-ixzOCUj2waFt-PIZHYXWywFRUV8plINKj9SgEIT3ed6jt3IRPL6B1TXusswTSR4njvJobItkz0b8Z0GheOP9tLzFOaciAdr8LZmcxpJEUVlrDID85OdwgstZEImHBONXPz-NAb0DuwS8ikW7NQUIFvtrcQQASgvZ_jbEJg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/FzYJo911STAVdQ3VXKqglrK5VJW1DqvVuOJaixzpf0qeIsZ3NmEfuaA_ANgFbEpvanoOmQTOCqbA-NVfJ9dgnc4fuDGLEYE2lf8MyWQaT9yz1FJncWqyETRx3qiFnE7TB9Xf_P_u99eR1G1bDj87CNeuWY5ZhLvdWKzDrpfGrtugAP04kB_6ub-MeNH_iA7cjSytXuZwvGyB3V6gkUj97a0J9-BP8B8gpVvzEBAM68OEGk0ZMxSJMVdOu1WAyFKvyYRdNT4nARG2OC4X89Rk4OFgUFaQh_2i4788SasA8JmNHBfKzQH5qIP3gN6VLEU3YTGy3-nKWZYRDA9DfkWGiA.jpg" width="400"><br>
 
 به گزارش «نشنال اینترست»، ناو هواپیمابر فوق‌سنگین و هسته‌ای «یواس‌اس تئودور روزولت» (CVN-71) نیروی دریایی آمریکا پس از توقفی کوتاه در سنگاپور و عبور از تنگه مالاکا با خاموش کردن سامانه شناسایی خودکار (AIS) به دلایل امنیتی، در مسیر اعزام به خاورمیانه و حوزه مسئولیت فرماندهی مرکزی ایالات متحده (سنتکام) قرار دارد. نشریه تخصصی «مرین اینسایت» در گزارشی با تأکید بر اینکه ورود این ناوگروه رزمی، شمار ناوهای هواپیمابر هسته‌ای مستقر در منطقه را به همراه ناوهای «جورج اچ.دبلیو. بوش» و «جورج واشنگتن» به سه ناو می‌رساند، خاطرنشان کرد که این آرایش قدرت با هدف تقویت محاصره دریایی ایران و فراهم آوردن گزینه‌های نظامی فوری در صورت دستور دونالد ترامپ برای حملات جدید شکل می‌گیرد.
 از سوی دیگر، نشریه «مریتایم اگزییکوتیو» گزارش داد که ناوگروه تئودور روزولت به همراه رزم‌ناو «یواس‌اس چوزین» و ناوشکن‌های اسکورت، در میانه نوامبر به شمال دریای عمان خواهد رسید تا پیش از بازگشت احتمالی ناو جورج واشنگتن، واشنگتن از یک پنجره زمانی مهم برای تشدید عملیات نظامی با شدت بالا یا تداوم فشار حداکثری از طریق محاصره در بنادر و خطوط کشتیرانی وابسته به جمهوری اسلامی ایران در آستانه فصل سرما برخوردار شود.
@@ -261,7 +261,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-11 05:30:53
 
-<img src="https://cdn4.telesco.pe/file/IoBBTh8CRomEgLLtmXqGX3gHItfDDMs6Lmswzyl64bhNk2Bx4u6jBzbooCD6fHDa6VYGsyP7ifRn4ZFrNQtVMr0X1pqJdxsyHjZgeTvvC43niQImmv5l2xY4HXGx34mWpfni-J89yP_SxoKbCq53l0tAwmeD1hYnl30iZmjUVNFh3bAorjRpClq0msshn7mAphuJVmV278TIOpn73MW3yrFqivdLSIqNXZ1xmVxwKSOMJNFL2le6jQviqy6XxZaXCjk-gQLFd4VaG1Wv0vDL9Tkko09oa-NA1-yZMXXw3WVhtKMesnZ7ti4J-LUtvOWu9ADpVwfgDUBQu1_YN8610w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/QqPsHaSIz5eLcbR8GnhLpwY_DIFld3qV09IAytMLeIEbUZaRJ-7auNfdbLu6V4VjQfEmVVMz0gKC8_CZtiIPGrImWQtF4E-JSFBTIlGtbXVODNbsN7hqdGLSW1Ah2Yny9eiBeRYmr1SAoGQfkcXbARQecXDsHNoJqP9X42MSRzqN7W7_K1yoJTUMZTlX-S2IPkrplO_ZeZwlgv6pNdmkimC8LscKjvYrCjSoYmZM5wj4qWSBjC0kGJpqxvbXiYIrCuYlM0lbHFh0BOeguE4gvROoPdbUbh7ASjVvYiqDrQHyDFHRau-YrDdOmHVk1dFBB4172Lv-FluSbrKSO84mYA.jpg" width="400"><br>
 
 وزارت دادگستری ایالات متحده آمریکا روز سه‌شنبه علیه سه مرد که از آن‌ها به عنوان «عوامل ایرانی» یاد شده، به اتهام نقش داشتن در یک توطئه تروریستی ادعایی در پایگاه نیروی هوایی بریتانیا موسوم به «آرای‌اف فیرفورد» اعلام جرم کرد.
 یک مرد (دارای تابعیت دوگانه ایرانی-عراقی) متهم به ارتباط با رابط‌هایی در بریتانیا از زندانی در نیویورک است که در آنجا منتظر محاکمه به اتهامات قبلی خود است. دو نفر دیگر نیز متهم به انجام همین کار از ایران هستند.
