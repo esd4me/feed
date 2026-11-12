@@ -3,16 +3,75 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-12 20:56:47 </h5>
+<h5> 🟢 Updated at: 2026-11-13 02:29:35 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-13 01:21:06
+
+
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۲۱ آبان در مصاحبه‌ای تلفنی با شبکهٔ «سیلم»،
+در پاسخ به پرسش خبرنگار دربارهٔ اینکه آیا باقی ماندن «دیوانه‌های ایران» در قدرت تا پایان دورهٔ ریاست‌جمهوری‌اش را شکست خود می‌داند، گفت: «بله، این یک شکست خواهد بود. قطعاً می‌گویم که این یک شکست خواهد بود.»
+خبرنگار از ترامپ پرسید: «اگر دیوانه‌های ایران هنگام ترک مقام ریاست‌جمهوری همچنان در قدرت باشند، آیا این برای شما شکست محسوب می‌شود یا کاری است که نمی‌توان در سه سال انجام داد؟»  ترامپ در واکنش پرسید که آیا منظور خبرنگار «دیوانه‌های ایران» در خود ایران است
+و افزود: «چون ما اینجا هم دیوانه‌های ایرانی داریم.»
+او سپس در پاسخ به پرسش اصلی تأکید کرد که باقی ماندن آن‌ها در قدرت را شکست می‌داند.
+ترامپ در بخش دیگری از این مصاحبه نیز گفته بود که آمریکا در صورت نیاز به استفادهٔ دوباره از نیروی نظامی علیه جمهوری اسلامی «هیچ تردیدی» نخواهد داشت. او با اشاره به آنچه «تسلط کامل آمریکا» بر خلیج فارس خواند، گفت که در پنج ماه گذشته هیچ نظامی آمریکایی کشته نشده و کارزار نظامی اصلی آمریکا در سه هفتهٔ نخست پایان یافته است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79092)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-13 00:28:54
+
+<img src="https://cdn4.telesco.pe/file/nkA9cLN7iwq0Z3njdYtnYQKty-ZQ8719AZuDYvUfFfjXFqNU4We3G2qqvW1OyOGS8jUpewTOTjEVw_tz1XqElHrn_com4tCBw2udvMTerwEQfHv30hBdP7mrZwOyUAlz6A4jeSM1snwFSJRs4Qv3886TlINvqdVWCoTlfWoh7hP_E0yEvbtmZPrGW0rAN-ExyPwChm8RAiUpTHPWNWy7Rd2ZaGnif0YbabTo0eCcAMMOg141wzpSGMuVIyp5vO2vJbXdrjLRhRO6ybLEj8GEBi-j3uspecR043-1c0mOTIysh45H_GbaEy50x-4jL8fkh44kB36BASDyCIAnAnk0jQ.jpg" width="400"><br>
+
+دونالد ترامپ روز پنجشنبه ۲۱ آبان در مصاحبه تلفنی با شبکه «سیلم» تأکید کرد که ایالات متحده در صورت نیاز به استفاده مجدد از نیروی نظامی برای جلوگیری از اقدامات جمهوری اسلامی ایران «هیچ تردیدی» به خود راه نخواهد داد. وی با اشاره به «تسلط کامل آمریکا» بر خلیج فارس، وضعیت نظامی کشورش را مطلوب توصیف کرد و افزود که در پنج ماه گذشته حتی یک نظامی آمریکایی نیز کشته نشده است.
+رئیس‌جمهور آمریکا با رد فرسایشی بودن درگیری‌ها، تأکید کرد که کارزار نظامی اصلی آمریکا در سه هفته اول به پایان رسید. او خاطرنشان کرد که واشنگتن اکنون نفت بیشتری نسبت به پیش از آغاز درگیری‌ها از تنگه هرمز خارج می‌کند. ترامپ در پاسخ به این‌که آیا حاضر است تا پایان دوره ریاست جمهوری خود محاصره دریایی ایران را برای دستیابی به فروپاشی کامل حکومت پیش ببرد یا خیر، تصریح کرد که رژیم ایران در حال فروپاشی است و این کشور با تورم ۳۰۱ درصدی، نابودی اقتصاد و ناتوانی در پرداخت حقوق نظامیان خود دست‌وپنجه نرم می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79091)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-12 22:50:24
+
+<img src="https://cdn1.telesco.pe/file/Kexy-sqQpwbrckl2Rzy_NiIR-GYHa5haJkyk8wPsYHI2fJ2yG0_aQYzBUjRcjHzKMOj1qUr0rUiQ2wNP3-J4T2_8w-vOEixAC7mSKrsBptNsZjvhvSdoXFHmlYn5pDVH8XzUlmKQO7vt4ou3-xW2O5FL1iimoWyPnkQ_sc8-OF_okR-36rOZ7k8mXZUJ71q4R9KQz4-8J9WbwEQttWsbdWQh4-iohu2ee1A4MJirrb3snuI4dVGf_3IIidpj8431UDsTkmQ62d1q_MfrJnaZjRuXxlFPEZySJpGGhPXxLQy5PJFzPlJ4l975dpo-B3gKdy1PvVaCbTMHFDC6MLv_gQ.jpg" width="400"><br>
+
+خبرگزاری ایرنا به نقل از منابع رسمی در شامگاه پنج‌شنبه ۲۱ آبان۱۴۰۵ خبر داد سیریک در استان هرمزگان هدف حمله قرار گرفته است. بر اساس این گزارش، منابع رسمی اعلام کردند که اصابت صورت‌گرفته «ماهیت نظامی» داشته است.
+@
+VahidHeadline
+پیش از خبر ایرنا:
+خبرگزاری فارس پنجشنبه‌شب ۲۱ آبان‌ماه گزارش داد که ساکنان شهرستان سیریک در شرق استان هرمزگان طی ساعات گذشته در چند نوبت صدای انفجار شنیده‌اند.
+این خبرگزاری در گزارش اولیه خود اعلام کرد که ماهیت و علت این صداها هنوز مشخص نیست، اما برخی منابع احتمال داده‌اند که صداها ناشی از شلیک هشدار به سمت کشتی‌های متخلف بوده باشد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79090)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-12 20:32:37
 
 <img src="https://cdn1.telesco.pe/file/hh0kHf79bUC64p4E0ieTcY38RJegqpazCvDKujum82OoY1XlXeawyYfvTstuk0Ei5dGuGCRC3wbKVq_sECc0rSNCZy156-DqEwE547tDDETAwtFBpvsYDT-lVhFbkvL79MuY-v4mEqs5AooAXu7C6AvhxwdJJWrhwGYYJeAPQJLhLpgWtdXux-0sisSHWJH_39vZTO2QOAMURiNKSn0EAsnQEF5byaFsvCpBHChq7SuISnAGMrdW2Xj_E6bWREHv3QxYLO_RDAyrU7xBngxbluI_sPQqIt-UGJw9A7LrMkhao7cP2fbG8SDlD7kf9BKE2b41eNKU14dZDU-vIbvMfw.jpg" width="400"><br>
 
-تصاویر دریافتی از شهروندان با شرح پرتاب سه موشک از سمت بیدگنه
-+
+تصاویر دریافتی از شهروندان با شرح پرتاب سه موشک از سمت بیدگنه و ملارد
+این روزها تصاویر مشابه زیادی رو با این شرح‌ها می‌فرستند ولی این بار:
 خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، روز پنج‌شنبه ۲۱ آبان ۱۴۰۵ ویدیویی از آسمان تهران منتشر  و اعلام کرد که نیروهای مسلح جمهوری اسلامی «موشک‌های جدید» را در غرب پایتخت ایران آزمایش کرده‌اند.
 @
 VahidHeadline
@@ -50,16 +109,20 @@ realDonaldTrump
 
 ###### 🔵 Post time: 2026-11-12 16:42:43
 
-<img src="https://cdn4.telesco.pe/file/AJXIRNa01hnLFNZjPDfMpv_XIs3R0Ia7GW2LerG0zo0RrhgLnNsHNNyVL58Ok-HFSaW-JFFndtxvTMCELfvbK1P8q8Miq-JaVQ4-6Fv_bpzUy-NURfRefgea1IHFtQ00n1hlsfobMXy3CEVy_Q4a9gH2IbkilU0-T3lXfJWRc6-HJv151F1dGsby7wBS57vGAJ_EeD1k7ehC1MCvaApfJ5joKeXz1O8WgiCYU1Sdmx1p0x3G0RKEmYDgnkiihZk8OQr8MM7sBnnrAAW5cDv21zpM-1pOiCNuYTqTxxTtqY5irJEhpuzGMpkO9VDfkJSy9xrXdPrnSpAJKbsE78tzPQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/sK8CXXX09ooFJgS-SBlbQ4pOEAMc4K5ykhdFbD55qdtKQ71LkK48eDSJRNlZPmpzBbn8tLpx50LNaGzknIn1FhH-sxuH8ysZE4k0f96js0uOiGiG5Df5fxtJg-T_nCdw_SWop0qGmMe3BDzXbISzdMyEXbHZIDq9JP4yFS5DnMij89ZOfrtk-X8Jm8oqjIikMCljo-Qc1MW9w8LMdalndiZHwmYWfFlzhI2QGH9dF5JkswUIiNhtVyb7gCvPVR0SNUDpA9V4opWAemT7gtSajlJn-iz4I3DynY41GLQN7F1D0mls6igN58ICvrDYO2bz6QFkvbRBA_GFj8SSR1gtRQ.jpg" width="400"><br>
 
-مجلس خبرگان رهبری روز پنجشنبه ۲۱ آبان در بیانیه‌ای اعلام کرد بررسی موضوع خروج ایران از پیمان منع گسترش سلاح‌های هسته‌ای (NPT)، بازنگری در «دکترین دفاعی کشور و ایجاد بازدارندگی لازم» به ضرورتی اجتناب‌ناپذیر و مطالبه‌ای عمومی و ملی تبدیل شده است.
-مجلس خبرگان در این بیانیه با اشاره به «تهدیدهای مکرر دشمنان»، به‌ویژه تهدید علیه دانش هسته‌ای ایران، اعلام کرد نمی‌توان به نهادهای بین‌المللی مسئول در این زمینه امیدی داشت.
-در بخشی از این بیانیه آمده است: «بررسی موضوع خروج از NPT و بازنگری در دکترین دفاعی کشور و ایجاد بازدارندگی لازم ضرورتی اجتناب‌ناپذیر شده و به مطالبه‌ای عمومی و ملی تبدیل گردیده است.»
-مجلس خبرگان همچنین هشدار داد در صورت آغاز حمله‌ای دیگر از سوی دشمنان، نیروهای مسلح ایران پاسخی فوری و اثرگذار و بدون محدودیت جغرافیایی خواهند داد.
-در این بیانیه از مسئولان خواسته شده است در کنار نیروهای مسلح و مردم، از پیگیری مطالبات و حقوق ملت ایران عقب‌نشینی نکنند.
-این سخنان در حالی مطرح می‌شود که پیشتر، مقام‌های جمهوری اسلامی موضوع خروج ایران از پیمان ان‌پی‌تی را رد کرده بودند.
+مجلس خبرگان رهبری در بیانیه‌ای خواستار بررسی خروج جمهوری اسلامی از پیمان منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) و بازنگری در دکترین دفاعی کشور شد.
+این نهاد، تهدیدهای آمریکا و اسرائیل درباره برنامه هسته‌ای ایران و آنچه «بی‌عملی نهادهای بین‌المللی» خواند، دلیل این درخواست عنوان کرد و بررسی خروج از ان‌پی‌تی را «مطالبه‌ای عمومی و ملی» خواند.
+خبرگان در بیانیه‌اش همچنین خواستار ایجاد بازدارندگی بیشتر شد و گفت اگر حمله دیگری به ایران صورت بگیرد، نیروهای مسلح با پاسخی «فوری و اثرگذار و بدون محدودیت جغرافیایی» روبه‌رو خواهند شد. این نهاد از دستگاه سیاست خارجی نیز خواست در مسیر مقاومت حرکت کند و موضع جمهوری اسلامی را به کشورهای همسایه برساند.
+در ماه‌های اخیر و هم‌زمان با افزایش تنش بر سر برنامه هسته‌ای ایران، شماری از مقام‌ها و چهره‌های حکومتی خروج از پیمان منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) را به‌عنوان گزینه‌ای برای پاسخ به فشارهای خارجی مطرح کرده‌اند.
+در شهریور، عباس گودرزی، سخنگوی هیئت‌رئیسه مجلس، خروج از ان‌پی‌تی را راهی برای مقابله با فشار آمریکا دانسته بود.
+محسن رضایی، دبیر شورای عالی امنیت ملی، نیز گفته بود خروج ممکن است، اما هنوز تصمیمی در این‌باره گرفته نشده است. چند روز بعد، گروهی از مقام‌های پیشین و کنونی خواستار آغاز روند خروج شده بودند.
+در بخش اقتصادی بیانیه، مجلس خبرگان مشکلات معیشتی مردم را از مهم‌ترین مسئولیت‌های مقام‌های حکومتی دانست و پیشنهاد کرد «ستاد اقتصاد جنگ» با مشارکت قوا و نظارت نهاد رهبری تشکیل شود.
+این نهاد همچنین از مقام‌ها خواست به آنچه «صیانت از عفاف و حجاب» خواند توجه بیشتری نشان دهند و از اجرای سیاست‌های فرهنگی مورد نظر حکومت دفاع کند.
+مجلس خبرگان در بیانیه خود از حضور هشت‌ماهه مردم در خیابان‌ها و تجمع‌ها قدردانی کرد و خواستار ادامه آن شد.
+این نهاد همچنین از ادامه حمایت از گروه‌های «جبهه مقاومت» سخن گفت و احکام دادگاه‌های برخی کشورهای منطقه علیه شهروندان و روحانیون را محکوم کرد.
 @
-VahidOOnLine
+VahidHeadline
 📡
 @VahidOnline
 
@@ -145,7 +208,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-11 17:00:09
 
-<img src="https://cdn4.telesco.pe/file/d867CHUoXrFmCTuEwhYpy0v8vsYFRAd-dVKghKQz6-r-bjskhJeVPcTD8zWwcy46iupt6U_1rAYochrKhAHA1GeZ1lH3UqhLhimknvugpfFu77sIoQYGpkQ00C75LmYSJRbiFRVs6CovADIKf7nIcYUEIsexHsNrjUBMnw08-q4aRISDqXTkiKNnp-4-W1NMUjApFrpnQK0qEv1k5Z5IyfVHhsO1eqC1a5S6KNU4NbNjk-xB1MmilDapLU6fr5FHqjSPMS_B87IG7agqKSdPValq3KThn1RLT783SCa5D2wopBvRdkn0gEK_ufJ0D9lE9kYww67C6hVG4WXsW_v38Q.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/gXSIGYj-S1llYPnGG6X_WwGhdEFAlMT_7G-OA_N27qfcip56gAiqO04JDr73GuiPwgnCRbCDYOsLciMlIRxo9SBGk7pCCFGh-8S0-dyVkMmHhP1Mpk8GEQOAPdRJq5a68Ouebh4wHiGMv9Lk67l5S9joMoFqw6SpEPIfyRwMWzqfu2Q1gTIxHEENjZ0oC6RxrtrChuD5kJYHul1A0GURwGAC7lvrlqbiPlLcnqjvupbU1zu_FBfTy39KIICZ-vJALOsV89aJB8NtPFJxE2iEGFw_nUewDc79xosGdIn5rycXLVQTEC7iIeyoCqYI29QTRLAHbnh9huOr3XsgoATyYw.jpg" width="400"><br>
 
 «پریا مهرمند»، بسکتبالیست ۱۵ ساله و عضو تیم ملی نوجوانان ایران که در سانحه واژگونی اتوبوس تیم سحر آکادمی به‌شدت مصدوم شده، همچنان با خطر آسیب دائمی به پای راست خود روبه‌رو است. پدر او با ابراز نگرانی از وضعیت دخترش، از وزیر ورزش خواسته است برای رسیدگی فوری به وضعیت پریا، تیمی از پزشکان متخصص تشکیل دهد.
 پدر این ورزشکار نوجوان اعلام کرده است که پای راست دخترش دچار عفونت شدید شده، حس خود را از دست داده و بخش زیادی از عضلات آن به دلیل اختلال در خون‌رسانی از بین رفته است.
@@ -212,56 +275,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79073)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-11 16:57:46
-
-<img src="https://cdn4.telesco.pe/file/QOHUjIZkLq5ja8qYqNTE0X7Xrs3NK92BhY_7z3DZ7zr9WdprpC1ZUezJKEAaqoc07Vc9FQjGPnnUjy39ReDdNeZTAgiQEsrwlAK5nVq71W_mhVYv_w8bA0tRlsUp5KE5FOkDCG4ZAxBKAGY-UI-MaWzeMEzPK_YSdIQkEzNGk3x1okxeUZS82xQKWtGzUiuN67xvjxyXjDoNnRxAWyDVfAwt2QxZIlhQESESpvMrQ9k9OndiPTAqj7QQ1RTVt5kCLAw9ryM8Y8xiI0eU70zcjFvXCYsitYLzY5HsfiJBzsvoyWkRwy8kkCAhNUT1tCujrc6P_9eFo3-5gPusUJyQRg.jpg" width="400"><br>
-
-وزارت خارجه جمهوری اسلامی روز چهارشنبه ۲۰ آبان اعلام کرد نیروی دریایی و نیروی هوایی آرژانتین را «سازمان‌های تروریستی» می‌داند. این وزارتخانه در بیانیه‌ای گفت تصمیم را بر اساس «اصل عمل متقابل» و با استناد به قانونی مصوب سال ۱۳۹۸ گرفته است و مسئولیت پیامدهای آن را متوجه دولت آرژانتین دانست.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79072)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-11 16:57:24
-
-<img src="https://cdn4.telesco.pe/file/nsjzDdzZzx50bOzZsWOyLDiuiA87vy17iL_jnLlICsoqDUztJIHInK1XiUC-t9zgiZVeB_rlGOdtRAd3bSlUy3FE7NV7J3Llx-uIzXDomE8cnFnomi1JOfpwjgC_k0nw_GzGNNaS6dW9DdJzlKvL-HXG-Y_gLLvh9JDb7vd1QXWY0aTCbRcBVH4qcn5aqzvQtnX_S7p7I7xlkDnYn2gtGGvoEtNn2U-GEWqDvsu-a30Ad_1X_xGpUof9jMGXdozr-UuD18xX8L0fTxAB6SeEhMsI13292klcY0R9f65OXrKH55yxkYFjAOfQYWBHS_W8Ho2CVqI5UcCIta3IoOXkuQ.jpg" width="400"><br>
-
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی روز چهارشنبه ۲۰ آبان با بازنشر ویدیویی از سخنان مارکو روبیو، وزیر امور خارجه آمریکا، او را به «تکرار مهملات» مایک پمپئو، وزیر خارجه اسبق ایالات متحده، متهم کرد.
-عراقچی در این پیام نوشت: «هشت سال پیش، یک شخصیت کارتونی مانند پمپئو می‌گفت ایرانی‌ها اگر می‌خواهند چیزی برای خوردن داشته باشند، باید از دستورات کاخ سفید تبعیت کنند. امروز، فردی مانند روبیو، که هم‌وطنان کوبایی‌اش قربانی همین سیاست هستند، همان مهملات را تکرار می‌کند.
-فارغ از غیرانسانی بودن این سیاست، همین قبیل توهمات و تصورات واهی هستند که به شکست سیاست‌های آمریکا منجر می‌شوند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79071)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-11 16:56:47
-
-<img src="https://cdn4.telesco.pe/file/py2hYQ5xhlJ31TOYhhMt3385tyq9zsJrsrpOKEP_3egVxNbn5JyeiDm2vP78c_ZJg0olIyBmyv1_HgegXR7opchao9_JN7zOReUxhnO9oVcdgVZeGrrviaGg5f7DB5WUYrSFZFRsDZOqTDxfASG6KHM5WiLG2Kfe1dIh92UxbtCGvzGUC93LqvGmT3EY6Uirl2lb7hmtqhW-H1C8L22Q2lm0cggUvGUK2jEfZocDoeMN7rR-IHs5B_BJAaPaEiQAYZ1xkTgc5T_YLTfvHMEJQOEIC21juFAJZuqJfkZKa5qMXEyswmPkutCqn3xzl6F2fmYfbhHWSawQ14OKSQxMzQ.jpg" width="400"><br>
-
-پرونده پیمان (امین) فرح‌آور، شاعر گیلانی محبوس در زندان لاکان رشت، به شعبه اجرای احکام ارجاع شده است. او به اتهام‌های «بغی» و «محاربه» به اعدام محکوم شده است. هرانا به نقل از منبعی نزدیک به خانواده او خبر داد که فرح‌آور روز دوشنبه ۱۸ آبان در تماس تلفنی با خانواده‌اش از دریافت ابلاغیه ارجاع پرونده باخبر شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79070)
 
 ---
 
