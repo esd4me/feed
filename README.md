@@ -3,8 +3,107 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-14 10:42:50 </h5>
+<h5> 🟢 Updated at: 2026-11-14 18:09:28 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-14 17:46:43
+
+<img src="https://cdn1.telesco.pe/file/gkNulXSvPDud9y1xx7Azwyw6DKRsYI2Dz4cIkD0GW9xH61dDeiC9TCK7uHWfNvo8NX6spS1ydOaubu7aqJe6GFFaHKvCXMr4VxpeXhIaGmSfYuD3_JqeWOYjO93q-pip9oacarny0dE9aA1gplzYGjyr6giwYCqYpqfyC85rwKhuxaBELW0MjrY7EMy6YVI6P2vdXw9b3rv6aK3its11epRZJRV9IjUKSZsX0hTkRtylcxs0GA1SCeRl1iojF3aDeSJbzH2_wwRfk5elKs65Zl1MlApPs36NgK0qwWZKb93SnzEMvj1E7gfxq7tk3Ngl8t07fOJyrLq6-XyWBwKOlg.jpg" width="400"><br>
+
+زلزله به بزرگی ۲٬۸ در عمق ۱۲ کیلومتری لواسان تهران
+پیش از آپدیت با تصویر بالا
+پیام‌های دریافتی:
+وحید الان شرق تهران یه لرزش ۲-۳ ثانیه ای اومد
+صدایی نیومد
+ولی خونه لرزید زلزله بود فک کنم
+سمت نارمک یه جوری لرزید یک دقیقه پیش
+وحید فلکه سوم تهرانپارس الان یه تکون بدددد خورد
+زلزله تهران رو لرزوند ساعت ۱۷:۴۳
+سلام وحید کل خونمون لرزید شرق تهرانیم
+ما سمت مرکزیم شریعتی
+لرزش رو حس کردیم
+مثل یه تکون یهویی بود تو یه ثانیه
+لواسون  هم لرزید قبل لرزش صدا شنیدیم ۱۷:۴۰
+حکیمیه هستم
+خونمون لرزید خیلی بد بود
+انگار یچیزی زیر زمین ترکید
+فلکه اول تهرانپارس
+زلزله بود انگار
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79113)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-14 17:37:55
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/79112)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-14 16:30:14
+
+<img src="https://cdn1.telesco.pe/file/k1iBRkJQQgjnh8CcOsxQcfX1oFjM4TY3xmHOY4nhGPf6lVlsIB-RFMbJzyaCHYNMmzxQeuOEP4wgi6nKbylkBr0TgWwMassQJVW20xf_09gd7pxH3RnCDk_KUZoZbc0187_oF5RP96BLzhI6N2124zcO66QTF5cGgik8L4kOQ9qtvEFVEjzImv8i8TeqbiSj0Sr3qtd6Jr7WMCP3rwpRKksD7ubK4IqSgkbrwOIYRz7JPOsRZ4hWtdpEaBE1w_u4A_xcOAU2WDTqGDWCdGz2RVl-II6ZvzHfUxUnj-brS4cWW7EW453YiZtAFDd8qemKBIrnamB4lsEfYudxsRHG-w.jpg" width="400"><br>
+
+♦️
+خبرگزاری رویترز در گزارشی اختصاصی به نقل از سه منبع آگاه گزارش داده است که دونالد ترامپ، رئیس‌جمهوری آمریکا، در روزهای اخیر به مشاوران ارشد خود گفته است در صورتی که ایران یا حوثی‌های مورد حمایت تهران اقدام تحریک‌آمیز تازه‌ای علیه آمریکا انجام ندهند، ممکن است از صدور دستور حملات نظامی جدید علیه ایران خودداری کند.
+بر اساس این گزارش که روز شنبه ۲۳ آبان منتشر شد، ترامپ پس از برگزاری جلساتی با مشاوران امنیت ملی و دریافت گزارش‌های اطلاعاتی، در حال بررسی امکان خودداری از آغاز دور تازه حملات است. با این حال، او هنوز تصمیم نهایی درباره چگونگی پایان دادن به جنگی که در فوریه ۲۰۲۶ با مشارکت اسرائیل علیه ایران آغاز شد، اتخاذ نکرده است.
+ترامپ طی هفته‌های اخیر مواضع متفاوتی درباره آینده جنگ اتخاذ کرده است؛ گاهی از احتمال تشدید حملات و ازسرگیری عملیات نظامی گسترده سخن گفته و گاهی از پایان دادن به درگیری‌ها و استفاده از فشارهای اقتصادی به جای جنگ نظامی حمایت کرده است.
+به گفته منابع رویترز، او همچنین نسبت به درخواست متحدان منطقه‌ای آمریکا برای پرهیز از بازگشت به یک جنگ تمام‌عیار ابراز همدلی کرده است.
+یکی از بخش‌های مهم گزارش رویترز به تلاش‌های دیپلماتیک عربستان سعودی و ترکیه برای جلوگیری از آغاز مجدد حملات آمریکا علیه ایران مربوط است.
+بر اساس این گزارش، ترامپ طی دو هفته گذشته در تماس‌های تلفنی با شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی و رجب طیب اردوغان، رئیس‌جمهوری ترکیه، نظر آنها را درباره تحولات جنگ جویا شده است. هر دو رهبر از او خواسته‌اند حملات نظامی علیه ایران را از سر نگیرد.
+به گفته منابع مطلع، ترامپ در این تماس‌ها تعهد مشخصی درباره تصمیم نهایی خود نداده است.
+رویترز گزارش داده است که ترامپ در تماس ۹ آبان به شاهزاده محمد بن سلمان گفته بود قصد دارد پس از انتخابات میان‌دوره‌ای آمریکا حمله به ایران را از سر بگیرد، اما ولیعهد سعودی از او خواسته بود از این اقدام خودداری کند. شاهزاده بن سلمان معتقد بوده که تحریم‌های اقتصادی علیه ایران در حال اثرگذاری هستند و ادامه فشار اقتصادی می‌تواند نتایج موردنظر واشنگتن را بدون بازگشت به جنگ گسترده تأمین کند.
+اردوغان نیز از ۶ آبان تاکنون سه بار با ترامپ گفت‌وگو کرده است. در بیانیه رسمی ریاست‌جمهوری ترکیه درباره تماس ۱۶ آبان بر ضرورت پایان یافتن تنش‌ها میان ایران و آمریکا تأکید شده بود.
+با وجود احتمال خودداری ترامپ از آغاز حملات جدید، تحرکات نظامی آمریکا در منطقه متوقف نشده است.
+به گزارش رویترز، ارتش آمریکا در روزهای آینده یک ناو هواپیمابر سوم را به خاورمیانه اعزام می‌کند. این ناو قرار است جایگزین یکی از دو ناو هواپیمابر حاضر در منطقه شود، اما منابع مطلع گفته‌اند در صورت نیاز ممکن است هر سه ناو به‌طور هم‌زمان در منطقه باقی بمانند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79111)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-14 16:29:56
+
+<img src="https://cdn1.telesco.pe/file/mehv3romCOyIS_wu874S4GP6C_wsWmWXAhMwpmOJxZBYEN_bB_M7_UOEBdrxbwgZH9s8-NXlQxJ7P07l2_ysbylkoZGMCpNdLoZq64QR-cYfTlr7EBEyPyjzDsbr7Omjk-sE4mFuvX_qccwJvQldQ5DuT-4GLgcKnlYIUoPYxNTsmMDDDJNQyxuX9uWosnSUifurvvSOcDsTw-Hulxj0UC3sVef0d3tqCWLlZADN7HUzyGGsVk4RwL5DzKjaXV11CMDBtWXK_L_CXjzYpH9e0dre_-aT2aUz6HUcOdqjxtfVg3Qh6EX76dpLsLzaPgCu0LwhU918x09ucdqGMOG8nw.jpg" width="400"><br>
+
+محمدرضا عارف، معاون اول رئیس‌جمهوری، به مقام‌های دولتی دستور داد تا پیش از نهایی شدن تصمیم‌ها درباره بنزین و فرآورده‌های نفتی از اظهارنظر خودداری کنند و اعلام کرد مواضع رسمی دولت تنها باید از سوی سخنگوی دولت یا مدیرعامل شرکت ملی پالایش و پخش فرآورده‌های نفتی منتشر شود.
+این دستور پس از چند روز اظهارات متفاوت مقام‌های دولتی درباره آینده کارت‌های سوخت، سهمیه‌ها و نحوه دسترسی مردم به بنزین صادر شده است.
+دولت پیش‌تر نیز در شهریور اعلام کرده بود فقط سخنگوی دولت و مدیرعامل شرکت ملی پالایش و پخش فرآورده‌های نفتی، اجازه دارند سیاست‌ها و تصمیم‌های رسمی درباره بنزین را اعلام کنند.
+بحث تازه پس از سخنان اسماعیل سقاب اصفهانی، معاون رئیس‌جمهوری و رئیس سازمان بهینه‌سازی و مدیریت راهبردی انرژی، بالا گرفت. او پنجشنبه گفت مردم دیگر نمی‌توانند مانند گذشته به کارت‌های سوخت جایگاه‌ها متکی باشند و برای سفر باید مصرف بنزین خود را از قبل برنامه‌ریزی کنند.
+سقاب اصفهانی تأیید کرد کارت‌های جایگاه در برخی استان‌ها جمع‌آوری شده و گفت دولت در شرایط فعلی با محدودیت واقعی تأمین سوخت روبه‌رو است.
+طرح محدود کردن کارت‌های اضطراری اکنون در ۱۱ استان اجرا می‌شود. همزمان، ۵۰ لیتر بنزین با نرخ سوم ۱۰ هزار تومان به کارت شخصی خودروهای مشمول اضافه شده است. سهمیه‌های اصلی فعلاً شامل ۶۰ لیتر بنزین ۱۵۰۰ تومانی و ۵۰ لیتر بنزین ۳۰۰۰ تومانی است.
+این تغییر عملاً بخشی از دسترسی به بنزین آزاد از طریق کارت جایگاه را به کارت شخصی منتقل می‌کند و برای رانندگانی که بیش از سهمیه ماهانه مصرف می‌کنند، هزینه بالاتری ایجاد می‌کند.
+رسانه‌های داخل کشور نیز درباره مشکلات سفرهای پیش‌بینی‌نشده، خودروهای عبوری و افرادی که کارت شخصی در اختیار ندارند پرسش‌هایی مطرح کرده‌اند. روزنامه جام‌جم نوشت محدودیت کارت‌های جایگاه می‌تواند برنامه سفر شهروندان را مستقیماً تحت تأثیر قرار دهد.
+این اقدامات در حالی ادامه دارد که عارف در مرداد گفته بود دولت قصد کاهش سهمیه اول را ندارد، اما سهمیه دوم باید به‌تدریج کاهش یابد، زیرا «راهبرد دولت» در بلندمدت حرکت به سمت آزادسازی قیمت‌هاست.
+او همچنین اذعان کرده بود هر تغییر در قیمت بنزین می‌تواند مستقیم یا غیرمستقیم بر قیمت سایر کالاها اثر بگذارد.
+دولت تاکنون تعیین «نرخ چهارم» را تکذیب کرده و گفته اصلاحات بنزینی باید تدریجی و بدون شوک قیمتی انجام شود. با این حال، نرخ سوم از پنج هزار به ۱۰ هزار تومان افزایش یافته، کارت‌های آزاد در بخشی از کشور محدود شده و مقام‌های دولت از کاهش تدریجی سهمیه دوم و آزادسازی بلندمدت قیمت سخن گفته‌اند.
+این سیاست‌ها با انتقادهایی در مجلس نیز روبه‌رو شده است. محمدباقر قالیباف پیش‌تر گفته بود افزایش قیمت بنزین به تنهایی «تدبیر حساب‌شده‌ای» نیست و مدیریت مصرف باید با کمترین فشار و نارضایتی برای مردم انجام شود.
+شماری از نمایندگان نیز در نامه‌ای به مسعود پزشکیان هشدار داده بودند افزایش قیمت سوخت در شرایط کنونی می‌تواند فشار بیشتری بر معیشت خانوارها وارد کند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79104)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-14 00:45:16
@@ -168,7 +267,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-13 17:41:13
 
-<img src="https://cdn1.telesco.pe/file/WiwwxX9Hwo7gGLrPdTz3zVxfL6Cda8_p7KSw_rrB1y2bYtRR2WvCqHyL0iHSjqpCwZ5y1uA7BEOGoRx1s1pQYH5EnG2QDW8Wjuj63NxTcMPAEwoW-NFN4tIDTVjKvLVtVrsGODrg9cOV-wSaP89vD5f4y_eUDHZDb-PM_P1SfixiaA_vRU4IsPCL9wP_LyCOFtLEsn878nrK0NFN11dfsLZZJbKTzxKsC1WEdUrVrklBOv_sXlEW-OHtx0-2k-ODOmxq59sK_T81Y_b-ywdcXrr7qfQ3ek--HYujOAqmSpA77IQvsLOMU_JBBE646YOQdatbtfd8HWBIY6zlmLLKmw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/WapOrqBKQ9TR8g7sxssYu1pkUUeKfByW0ghA0tUshP3i6WvhGi-ey5sEW7A7gQZtBvm4CUkwNBX8j3Hogt_ceio2EPVGgDzE_gTQHyY3V7IFJA5CTwpuSs7MWmbiX0yhe9HOZUmwgRNhjTzyU53rOkYbk30HBc2Q1sFVYI3OphS9H4S3y1jFKsI4bEGiRtkL4Eh-813CYiYCjL7ynScqMk8HN_UkmLLbjWUEG3R10kDIFwnSOqjrsh0u6pfmHqvzqFLgfHqu5_TZwArk4EDpu2AI9pK-EFMh_DdqxJmTXMTGLjv4_hGVvTzfTyzQWBg2GNvvPU1kRCLTzVyZGj2i0g.jpg" width="400"><br>
 
 وب‌سایت آکسیوس روز جمعه ۲۲ آبان‌ماه به نقل از سه منبع آگاه گزارش داد که رومن گافمن، رئیس سازمان اطلاعاتی موساد و از نزدیک‌ترین افراد مورد اعتماد بنیامین نتانیاهو، برای گفتگو با مقام‌های ارشد دولت آمریکا دربارهٔ جنگ با ایران در واشنگتن حضور دارد. این دیدارها در شرایطی انجام می‌شود که نخست‌وزیر اسرائیل برای ازسرگیری جنگ علیه جمهوری اسلامی به دونالد ترامپ فشار می‌آورد.
 به گفته منابع آکسیوس، گافمن با جان رتکلیف، رئیس سازمان اطلاعات مرکزی آمریکا (سیا)، دیدار می‌کند و انتظار می‌رود برای گفتگو با استیو ویتکاف، فرستاده کاخ سفید، به میامی نیز سفر کند. موساد، سیا و کاخ سفید از اظهارنظر دربارهٔ این دیدارها خودداری کرده‌اند.
@@ -189,7 +288,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-13 17:38:46
 
-<img src="https://cdn4.telesco.pe/file/o3FKZvREhwtNEF12hxCQZH-gyH4oqu2amgRu7G9gTNxQqFoU0cjhUowYQSG3NW5CIq88H0T5Hgu3Xb6d6cmNiyfScdm83UrrGKb6YEwoQbxCixj9Y0_1Ui3pwNuxFsxGIx0Mhck4MXfCRrHIl5wlStDA8GKSc97ByR4WcILmff5wgdpvphGF9squUnNVirlIMHi65eIFFNF9EmBpQWF5v7DkjBbJzjZFyPHwcGDQNDty5gCoexbvfj5imlzAkmpEhholBTxaBNwv04K_BGHJkKWCKAHM6wwiP9ELvO9qzF16tHB-06N---zkYFvGGYmtk2Ii4JEjbGA8Nhf3dfXCmw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/LKBXu1JZX9nbH0sBEKliXubIMmcUenN6qIHX-k-GiQaDECeKh3LSIMSGrbUTRs_F6MibEn1jFu6Dx3QNtLgpVSxrrOXldFIg-cAOQrazJMch7aVJVH4AjLcX-KJkeZwZ1J7d6KwTLpyElaWwhR4L1gZDqA0ox5OC0sdZPG-Hn6sORhl-hsWEQ7NmmCNareUEq1PdtMVrj8WDHYPDJ-KfOFPaOc28prvHnM8PY_m4uYd1yE72baIWyX-dCg4PmHbSevVCorQud0E6N4xLsOODRDXPthfNIxt4vEjHc7b7IYKj2HJ0YfmkxSqeWraOYjFtfSl95wsBEtfop1a-9AXtNA.jpg" width="400"><br>
 
 خبرگزاری‌های رویترز و فرانسه اعلام کردند نسخه‌ای از گزارش محرمانهٔ جدید آژانس بین‌المللی انرژی اتمی را دیده‌اند که بر اساس آن، آژانس در مورد تأسیسات زیرزمینی غنی‌سازی اورانیوم در اصفهان ابراز نگرانی فزاینده کرده است.
 بر اساس این گزارش‌ها که روز جمعه ۲۲ آبان منتشر شد، آژانس همچنین هشدار داده است که به‌دلیل همکاری نکردن ایران نمی‌تواند تأیید کند مواد هسته‌ای اعلام‌شدهٔ از سوی ایران از فعالیت‌های صلح‌آمیز منحرف نشده‌ باشد.
@@ -232,7 +331,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-13 17:37:27
 
-<img src="https://cdn4.telesco.pe/file/YVtPdvuHVxeD9PP0mMW7BXaV_S3tjDbES_8w-o3ov9nYtmyDeRou2ZAXsgK6XiEKnZS1IIyXeq9rKI_19387UB358Gs9bMi18Vf_DHSyXMdoC_E5bmVk9vTJ2Ym_bhrFdvEDeHh633tLSSd358s_DHFv842R0-2NjIcWEkSDXzeoIo3BHdLwLUfdCYC1AqHgGtMfgKFWfyncfMfo5Dk2II5rxNheT4fTgWqnOut2RkJKXFaueJaJCJ_FZgFT0JvFvhESAdaw2pwZKoOe8LYxPmAXMa3WNXpgjkGhxyytbfTreAA1u1vjcVskZKlIabnsNifKSvMQZ1qIhI3KlfuNoQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Mt12cp7evrPeHzoILz3SV9bZ-ShrxmAv_HDpwBd5cvW9HkqokqRukiyLigDcG3C1Ribj213AIcp0xZXyK61BzwAQGOQ741CS0SJOlIymh-YJj7MhRLqWP0DF2lP8RzHb8ZmCohhJGNWsrWVgspTd3DfUIttBehcgkRUtz0yb5Am6C7C5_S7FBhKML1mpjCoKMGaWQAEowh4tqyOzY2dEbzsUv0Of7tbh58JHiZDKnc94JocQDe6DRSHpjHTOUg6cMytrNwi1HC_Lz2r-_g16VzcOfjK4LH1aZ6USbbzDXBMufVPMQsJNKEbH07Nn6PR7yd-I2n06r5zldshmRVMhpw.jpg" width="400"><br>
 
 دستگاه قضایی جمهوری اسلامی برای ۶ شهروند در ارتباط با نمایشگاه فیتکس تهران کیفرخواست صادر کرد.
 به گزارش خبرگزاری دولتی ایرنا، این افراد شامل مدیرعامل و مدیر اجرایی شرکت برگزارکننده و ۴ شرکت‌کننده زن هستند که به «تشویق به فساد، جریحه‌دار کردن عفت عمومی و انتشار تصاویر مبتذل» متهم شده‌اند.
@@ -253,7 +352,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-13 16:55:59
 
-<img src="https://cdn1.telesco.pe/file/upUtXq1M25DBsQ-cG6CbmAJKukH-NfvFnR4fJE9L_6LHEd9XYIGGLE6Qdk3eelTG3NnnYQkITC1yRXKb4mn2vs4WDtTbW33-7n6fla2aCjujahPt4T-GzRuB7mUU6uRrT4bSIsBoc8YA1wFFfP9SX7iJoTjt9Ool9DqwqnQOZGLZ5z5BO8tjk2DgzcH2ZHtaz82XU9BWGrUGFo-rwZNGhQT_P3YGx2DEZiuU39B6EhiQYD_0-Ql4_1SqgH2HmIZfmDWVW6SYUflN5gclNhcl_R_CaNULJz4m09V_SYCT69Dagdch7-hsMiVFEkK1yvXFdaWkY6lZ-BX09d0GXv5Drg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/kOWdjPXGN_uf21awMW08xn7guZoVos533S2EfdwYlwukVAxhMmrS0PDF4691T1YxcsbvYRSA_s7-581VNts2o5TSYVrNTPsN9NqIlWzbiY95yoxcma6oTI1k-nkDcX4Av85Tt1Lb3gRTk2ycjlh68m_fuFNXWzdD0c6w8EVuVAnTBe4Zmhlyi0ekKTcT1dUnA7QuTvnB9h8OP1NGxntLT0PrKSrgX8f7uojmf7fjtFAqIA_a2g6Blpi9JLxxCb_AdeGZyaFsk1pJ5R9UUthUXIwhJKRo21xCNaxWNCArbSOc-GhSyG-CB-f2YilcY7inSve7oMUSWJdJ6IvyxxVW_A.jpg" width="400"><br>
 
 پست سنتکام، ترجمه ماشین:
 🚫
@@ -267,107 +366,6 @@ CENTCOM
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79094)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-13 06:09:01
-
-<img src="https://cdn4.telesco.pe/file/neD5hp4j2k9eZeqm2J7ybcIaDs8-pz1qEGS-CGm8RMFk-Np45CKk6fM0ytAAykoWEyjHrznVnG4CbVDuqXW4nCblVGrvA7HnDwUv8H7PCVS75Q6_2AUOtrsOdP5K9dnLuQ6ivOPW81eTFi8ynkpkxZp9f39_QkeZ2ZOXV6_fStRQD7nd9HP4AgSn4nHXzBMN44LF6KihMs5oOhaxN7K7j-eonqccuBN8Zgv885SyAxZ__chjmkKdjhLxsRkkpMZZcO5sFit7cmc-QHBcwQz2YimJdPMbMqDQAWdn6bmf3_vXmaTW3FKbWJ6r8Y2cGDB1YRZBB3g4z7Xv2_IU9ICZ7w.jpg" width="400"><br>
-
-سپاه پاسداران با انتشار اطلاعیه‌ای که بامداد جمعه خبرگزاری‌های رسمی ایران منتشر کردند مدعی شده در پاسخ به حمله هوایی نیمه شب آمریکا به سیریک، «رادار هشدار اولیه» نیروهای آمریکایی در بحرین را «هدف‌قرار‌داده و منهدم» کرده است.
-در اطلاعیه سپاه پاسداران آمده: «این یک اخطار جدی به دشمن متجاوز برای پایان دادن به شیطنت‌های هوایی و قاچاق نفت در تنگهٔ هرمز است؛ در صورت تکرار تخلفات و تجاوزها، نیروی هوافضای سپاه برای مقابلهٔ بدون مرز در آماده‌باش کامل قرار دارد. شرکت‌های متخلفی که فریب دشمن متجاوز را بخورند با تنبیهات جدی‌تری مواجه خواهند شد.»
-ساعتی قبل از این اطلاعیه، خبرگزاری‌های ایران از حمله هوایی به سیریک خبر داده بودند که سپاه پاسداران ضمن تایید آن گفته در جریان این حملات یک دکل مخابراتی در این منطقه از سواحل خلیج فارس هدف قرار گرفته است.
-عکس آرشیوی
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79093)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-13 01:21:06
-
-
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۲۱ آبان در مصاحبه‌ای تلفنی با شبکهٔ «سیلم»،
-در پاسخ به پرسش خبرنگار دربارهٔ اینکه آیا باقی ماندن «دیوانه‌های ایران» در قدرت تا پایان دورهٔ ریاست‌جمهوری‌اش را شکست خود می‌داند، گفت: «بله، این یک شکست خواهد بود. قطعاً می‌گویم که این یک شکست خواهد بود.»
-خبرنگار از ترامپ پرسید: «اگر دیوانه‌های ایران هنگام ترک مقام ریاست‌جمهوری همچنان در قدرت باشند، آیا این برای شما شکست محسوب می‌شود یا کاری است که نمی‌توان در سه سال انجام داد؟»  ترامپ در واکنش پرسید که آیا منظور خبرنگار «دیوانه‌های ایران» در خود ایران است و افزود: «چون ما اینجا هم دیوانه‌های ایرانی داریم.»
-او سپس در پاسخ به پرسش اصلی تأکید کرد که باقی ماندن آن‌ها در قدرت را شکست می‌داند.
-ترامپ در بخش دیگری از این مصاحبه نیز گفته بود که آمریکا در صورت نیاز به استفادهٔ دوباره از نیروی نظامی علیه جمهوری اسلامی «هیچ تردیدی» نخواهد داشت. او با اشاره به آنچه «تسلط کامل آمریکا» بر خلیج فارس خواند، گفت که در پنج ماه گذشته هیچ نظامی آمریکایی کشته نشده و کارزار نظامی اصلی آمریکا در سه هفتهٔ نخست پایان یافته است.
-@
-VahidOOnLine
-دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنه ۲۱ آبان در مصاحبه‌ای با استیون ای. اسمیت، مجری آمریکایی، گفت که عربستان سعودی، قطر، کویت، امارات متحدهٔ عربی و بحرین ترجیح می‌دهند وضعیت کنونی در قبال ایران برای مدتی ادامه پیدا کند.
-ترامپ در این گفتگو گفت: «می‌توانم فوراً به آن پایان دهم، اما به درخواست کشورهایی که می‌خواهم از آن‌ها محافظت کنم، این کار را کمی طولانی‌تر و به شیوه‌ای متمدنانه‌تر انجام می‌دهیم.»
-او افزود: «عربستان سعودی از من خواسته است که لطفاً اجازه دهم اوضاع برای مدتی به همین شکل باقی بماند، چون آن‌ها در حال فروپاشی هستند.» ترامپ همچنین گفت قطر، کویت، امارات متحدهٔ عربی و بحرین نیز ترجیح می‌دهند دورهٔ انتظار ادامه پیدا کند.
-رئیس‌جمهوری آمریکا با اشاره به وضعیت جمهوری اسلامی اظهار کرد: «فشار مالی بسیار سنگینی به آن‌ها وارد کرده‌ایم. تورمشان بیش از ۳۰۰ درصد است. پولی ندارند و حقوق نیروهای گارد، سربازان و پلیس خود را نپرداخته‌اند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79092)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-13 00:28:54
-
-<img src="https://cdn4.telesco.pe/file/WJAk8ZN9Sc62502zMnEFrmYZxUHvSMCS9jC6IKtQR-5E4c3-xujMa-7CEmO6BXbPdr28PBhEgB_zH7m_Z-KkWIZ2EuXY8GE6JUN-4SHTv9WdXK1dlqsWzJds0VuIDSAuirRc_69YdUHqiowvUnzh8dKlWEkh3p8Zxx8zw0WqtGk0sD3RZ4CxOeV9Dcgl_nsJJH7ZHV-7DAp0l_eY5_p59_zIRojMWBASAz4TH5yKhGcPMeF12PRF_T5aPpLw5mgpiAUa6oucaWmw-A6hVwa0A39my6dxGnQjtEaXjW8bnipx_g0vFPtcXGfrPc_nsuO8kBh-QK19LlqZIdXRrWTVuA.jpg" width="400"><br>
-
-دونالد ترامپ روز پنجشنبه ۲۱ آبان در مصاحبه تلفنی با شبکه «سیلم» تأکید کرد که ایالات متحده در صورت نیاز به استفاده مجدد از نیروی نظامی برای جلوگیری از اقدامات جمهوری اسلامی ایران «هیچ تردیدی» به خود راه نخواهد داد. وی با اشاره به «تسلط کامل آمریکا» بر خلیج فارس، وضعیت نظامی کشورش را مطلوب توصیف کرد و افزود که در پنج ماه گذشته حتی یک نظامی آمریکایی نیز کشته نشده است.
-رئیس‌جمهور آمریکا با رد فرسایشی بودن درگیری‌ها، تأکید کرد که کارزار نظامی اصلی آمریکا در سه هفته اول به پایان رسید. او خاطرنشان کرد که واشنگتن اکنون نفت بیشتری نسبت به پیش از آغاز درگیری‌ها از تنگه هرمز خارج می‌کند. ترامپ در پاسخ به این‌که آیا حاضر است تا پایان دوره ریاست جمهوری خود محاصره دریایی ایران را برای دستیابی به فروپاشی کامل حکومت پیش ببرد یا خیر، تصریح کرد که رژیم ایران در حال فروپاشی است و این کشور با تورم ۳۰۱ درصدی، نابودی اقتصاد و ناتوانی در پرداخت حقوق نظامیان خود دست‌وپنجه نرم می‌کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79091)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-12 22:50:24
-
-<img src="https://cdn1.telesco.pe/file/kraR9x0P3eh6ydZNTa054FS3X1TNMEzkOTa93OSBi-l8v7zuRsNdXF050vp-kpnlaQqXpyGC6gm_6nceAtTdmWWwJDIMIjBe-0EOykrX1tl2ZUsdAoEAT61UEvyg3jg6ICS5ETw1Cla6NyEX2ykq0uJ5jUVQ4J1sLQKcqNoykxgha1dn5nfkgzSw1JlRzi2-XdvUMH6xWs4QGVEkX_z5G9_wW4Y8cN7_5rFd548Rarqe_cTNrwlGfKSCH6eJ25DyDtj4BULhmbSx6_7vrhZHU3Lb5QF7VTVWRuIHiVNHz879XIE7EzS7G74Uu579ZYX0Km4Z8ZnnqrZy1PFLrfyDNw.jpg" width="400"><br>
-
-خبرگزاری ایرنا به نقل از منابع رسمی در شامگاه پنج‌شنبه ۲۱ آبان۱۴۰۵ خبر داد سیریک در استان هرمزگان هدف حمله قرار گرفته است. بر اساس این گزارش، منابع رسمی اعلام کردند که اصابت صورت‌گرفته «ماهیت نظامی» داشته است.
-@
-VahidHeadline
-پیش از خبر ایرنا:
-خبرگزاری فارس پنجشنبه‌شب ۲۱ آبان‌ماه گزارش داد که ساکنان شهرستان سیریک در شرق استان هرمزگان طی ساعات گذشته در چند نوبت صدای انفجار شنیده‌اند.
-این خبرگزاری در گزارش اولیه خود اعلام کرد که ماهیت و علت این صداها هنوز مشخص نیست، اما برخی منابع احتمال داده‌اند که صداها ناشی از شلیک هشدار به سمت کشتی‌های متخلف بوده باشد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79090)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-12 20:32:37
-
-<img src="https://cdn1.telesco.pe/file/Xt0WL0Dx9450hZPo-2Z4-N_dxmlhmNSoghxSqcqe9T6WTupREbRUt91TIij_SyJW_iL9NYa4MyBnXfEH3ZAspZEza0miagoZ3jAt-SKDwMj1dJriy-sFOV_uYY2ugcb4rEKw8DbQbHmwLF7l2PNuae0QtjGEOoKfgvhvdquOlHBbm-1rgfClldmryz-5MJv1xigqAHq6j0EDzT9ND4dmb0ABNJivQeSiVmUUehwwfDa_Of5rfO4zEDkQSwYUgWKYJSRLwoK1ZWCH6X2GZqcZpkrwUHTcXQOHRbx4QK4T8oTbyz3CyCGUH3ToUPEU4B-mwm0GhqH4Uvhn_MCySNzz7w.jpg" width="400"><br>
-
-تصاویر دریافتی از شهروندان با شرح پرتاب سه موشک از سمت بیدگنه و ملارد
-این روزها تصاویر مشابه زیادی رو با این شرح‌ها می‌فرستند ولی این بار:
-خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، روز پنج‌شنبه ۲۱ آبان ۱۴۰۵ ویدیویی از آسمان تهران منتشر  و اعلام کرد که نیروهای مسلح جمهوری اسلامی «موشک‌های جدید» را در غرب پایتخت ایران آزمایش کرده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79084)
 
 ---
 
