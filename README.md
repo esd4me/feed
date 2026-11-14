@@ -3,15 +3,54 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-13 22:28:36 </h5>
+<h5> 🟢 Updated at: 2026-11-14 03:42:52 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-14 00:45:16
+
+<img src="https://cdn1.telesco.pe/file/XiaeyKJuarlS4tFXeVlhVyjFUGh4nh9OiVcUKVri0VZwg5EpPN5xgThwFe4HlkoJQHG8oYXujKzEmrV-yFua5YgFEeZc9kFyGDUpFcPfZ_XutkHbR_Om1l2oJTljuSpq8niPYmlNs-JhHRmbiYKdChyG0uujXWRU-hVcscq9ngAm9Ge4n94mv-LW3FnhdbQ_9rn9w63yh67sHOy9g_u8kix9IbkVtuA2vkeRZxG0B7LWU4eiOLSyQ4BrBP3S5zqYGqVlAcCxak3h8tI5agdewUbjXMC4l9_0-y6sK_YqExKz6pYmm1tEpjMWL5A_w9NqbTnMuH-WIdG3H2XOiDtkig.jpg" width="400"><br>
+
+به گزارش رویترز، شان دافی، وزیر ترابری ایالات متحده، روز جمعه ۲۲ آبان اعلام کرد اداره هوانوردی فدرال (FAA) به دلیل بروز «اختلال ارتباطی» که تمامی مراکز کنترل ترافیک مسیرهای هوایی را تحت تأثیر قرار داده است، دستور توقف سراسری پروازها را برای تمامی فرودگاه‌های آمریکا صادر کرده است. دافی افزود کارشناسان فنی اداره هوانوردی فدرال در حال بررسی این مشکل هستند.
+اداره هوانوردی فدرال آمریکا نیز در اطلاعیه‌ای هشدار داد که به دلیل از کار افتادن تجهیزات، مسافران و کاربران باید انتظار ماندن هواپیماها در آسمان را پیش از فرود در تمامی فرودگاه‌های سامانه حریم هوایی ملی داشته باشند.
+@
+VahidOOnLine
+مارک‌وین مولین، وزیر امنیت داخلی ایالات متحده، که هم‌اکنون در کاخ سفید در حال گفتگو با خبرنگاران است، می‌گوید هیچ نشانه‌ای وجود ندارد که اختلال در شبکه ارتباطی فرودگاه‌های این کشور بر اثر حمله‌ای علیه ایالات متحده بوده باشد.
+او گفت: «این یک اختلال در شبکه مخابراتی است.»
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79103)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-14 00:12:03
+
+<img src="https://cdn1.telesco.pe/file/dPhHFaizZqppC6o-fqtzZGk2Eilgz2cW4SxZ7l-qmFCMbneciTlqR6MxJsHRt4eDFaw5MbU5qmOKnSD1nEi0Yqwrp-xCmJ3UP-osVvDlGjAkJAKkAxZFQMaRW6Fd2y2fpDmHpvdlQcCd53oz9dDfYYZzaj_NfalUC0ju58f2KNuI3Dxo5ZE8zBoUjNI4thsJfDMV5sfWUFTAJVLcgAhNTgjwd949UCIJf0jn-tYdSqD6Uq0Wvo6t3qdkfEZO8oHsdIzlhnxQlyuQDS-EjKmtBBBNvM0Xmknadf1p8V3y3VdDLJP2YIE9S0rhXD4Qz61KBP_oLxB1Van660_Ato3WBA.jpg" width="400"><br>
+
+نیروی هوایی آمریکا اعلام کرد که عصر روز جمعه به «فعالیت مشکوک پهپاد غیرمجاز» بر فراز پایگاه نیروی هوایی سلطنتی لیکن‌هیث در سافولک واکنش نشان داده است.
+سخنگوی نیروی هوایی آمریکا اعلام کرد: «هیچ‌یک از نیروها، هواپیماها یا زیرساخت‌ها در جریان این واقعه آسیب ندیده‌اند.»
+این اقدام پس از گزارش‌های تایید نشده مبنی بر به صدا درآمدن آژیر خطر در این پایگاه صورت گرفته است که ساکنان گزارش داده‌اند از روستایی در نزدیکی شنیده شده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79102)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-13 21:53:11
 
 
 
-پلیس بریتانیا ویدیویی لحظه بازداشت دو مرد ایرانی  که به  جاسوسی برای ایران متهم شده‌اند را منتشر کرده است. این دو نفر توسط یکی از نهادهای اطلاعاتی جمهوری اسلامی برای زیر نظر گرفتن روزنامه‌نگاران ایرانی و یک وکیل، استخدام شده بودند.
+پلیس بریتانیا ویدیوی لحظه بازداشت دو مرد ایرانی  که به  جاسوسی برای ایران متهم شده‌اند را منتشر کرده است. این دو نفر توسط یکی از نهادهای اطلاعاتی جمهوری اسلامی برای زیر نظر گرفتن روزنامه‌نگاران ایرانی و یک وکیل، استخدام شده بودند.
 مصطفی سپهوند، ۴۱ ساله، و فرهاد جوادی‌منش، ۴۶ ساله، روز پنجشنبه ۱۲ نوامبر، پس از محاکمه‌ای شش‌هفته‌ای در دادگاه وولویچ لندن، به اتهام انجام فعالیت‌هایی که می‌توانست به یک سرویس اطلاعاتی خارجی کمک کند، مجرم شناخته شدند.
 کامبیز حسینی و مجتبی پورمحسن، دو روزنامه‌نگار شبکه تلویزیونی فارسی‌زبان ایران‌اینترنشنال مستقر در لندن، و جاناتان ترنر، از بنیان‌گذاران سازمان «وکلای بریتانیا برای اسرائیل»، از جمله افرادی بودند که تحت نظر قرار گرفته بودند.
 @
@@ -102,7 +141,7 @@ F the Iranian leadership
 
 ###### 🔵 Post time: 2026-11-13 17:42:33
 
-<img src="https://cdn4.telesco.pe/file/CSdgeLu_Yr6xKx9IcURdjqL8AmtX-e7qb1yI-0MGwhtPQymMU1hX6EaMbYl_IMKTeWtl5UiHHBGEdonF7l8c-2G_MKPxL6fNAOXe7MHlJqSCLGrKxcaXsGbBOhNxrHCgBnO63Y8NKHffq5jHaoWP7YlRs9-CnoEt01zFmWnehJvxXTlDwKJpPVRtVchxh-cMAYxlkS_LDx-ULWEyZuWjhwjm6F7eLllhHkl5M1gwPgWJEn0eMzwnfV7kOjXU00ap-BnCNZJItKZ6LXX_EISEL_kyByDKaZbbaw9t2TfbjvnHtCq9Hvf48OSgz4zM2PwkOb6y-9xQvPZB8QmqwBmWcQ.jpg" width="400"><br>
+
 
 «سعید شکیبا» بلاگر و طنزپرداز زندانی در زندان تهران‌بزرگ، بابت انتشار ویدیویی از تقلید صدای «علی خامنه‌ای» رهبر دوم جمهوری اسلامی به پنج سال حبس محکوم شد.
 @
@@ -147,6 +186,9 @@ VahidOOnLine
 آژانس در گزارش فصلی خود به کشورهای عضو اعلام کرده است: «آژانس از محل دقیق تأسیسات غنی‌سازی سوخت اصفهان، وضعیت آن از نظر اجرای پادمان‌ها و این‌که آیا مواد هسته‌ای در آن وجود دارد یا نه، اطلاعی ندارد.»
 @
 VahidHeadline
+بر اساس گزارش محرمانه آژانس که روز جمعه ۲۲ آبان میان کشورهای عضو توزیع شد و به دست اسوشیتدپرس نیز رسید، تهران تأکید کرده است که مذاکرات برای از سرگیری بازرسی‌ها در سایه «تهدیدات مداوم، صریح و علنی رئیس‌جمهور ایالات متحده آمریکا» مبنی بر انجام اقدامات تهاجمی بیشتر علیه ایران، به‌ویژه با هدف قرار دادن تأسیسات هسته‌ای آن، متوقف می‌ماند.
+@
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -266,7 +308,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-13 00:28:54
 
-<img src="https://cdn4.telesco.pe/file/nkA9cLN7iwq0Z3njdYtnYQKty-ZQ8719AZuDYvUfFfjXFqNU4We3G2qqvW1OyOGS8jUpewTOTjEVw_tz1XqElHrn_com4tCBw2udvMTerwEQfHv30hBdP7mrZwOyUAlz6A4jeSM1snwFSJRs4Qv3886TlINvqdVWCoTlfWoh7hP_E0yEvbtmZPrGW0rAN-ExyPwChm8RAiUpTHPWNWy7Rd2ZaGnif0YbabTo0eCcAMMOg141wzpSGMuVIyp5vO2vJbXdrjLRhRO6ybLEj8GEBi-j3uspecR043-1c0mOTIysh45H_GbaEy50x-4jL8fkh44kB36BASDyCIAnAnk0jQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/WJAk8ZN9Sc62502zMnEFrmYZxUHvSMCS9jC6IKtQR-5E4c3-xujMa-7CEmO6BXbPdr28PBhEgB_zH7m_Z-KkWIZ2EuXY8GE6JUN-4SHTv9WdXK1dlqsWzJds0VuIDSAuirRc_69YdUHqiowvUnzh8dKlWEkh3p8Zxx8zw0WqtGk0sD3RZ4CxOeV9Dcgl_nsJJH7ZHV-7DAp0l_eY5_p59_zIRojMWBASAz4TH5yKhGcPMeF12PRF_T5aPpLw5mgpiAUa6oucaWmw-A6hVwa0A39my6dxGnQjtEaXjW8bnipx_g0vFPtcXGfrPc_nsuO8kBh-QK19LlqZIdXRrWTVuA.jpg" width="400"><br>
 
 دونالد ترامپ روز پنجشنبه ۲۱ آبان در مصاحبه تلفنی با شبکه «سیلم» تأکید کرد که ایالات متحده در صورت نیاز به استفاده مجدد از نیروی نظامی برای جلوگیری از اقدامات جمهوری اسلامی ایران «هیچ تردیدی» به خود راه نخواهد داد. وی با اشاره به «تسلط کامل آمریکا» بر خلیج فارس، وضعیت نظامی کشورش را مطلوب توصیف کرد و افزود که در پنج ماه گذشته حتی یک نظامی آمریکایی نیز کشته نشده است.
 رئیس‌جمهور آمریکا با رد فرسایشی بودن درگیری‌ها، تأکید کرد که کارزار نظامی اصلی آمریکا در سه هفته اول به پایان رسید. او خاطرنشان کرد که واشنگتن اکنون نفت بیشتری نسبت به پیش از آغاز درگیری‌ها از تنگه هرمز خارج می‌کند. ترامپ در پاسخ به این‌که آیا حاضر است تا پایان دوره ریاست جمهوری خود محاصره دریایی ایران را برای دستیابی به فروپاشی کامل حکومت پیش ببرد یا خیر، تصریح کرد که رژیم ایران در حال فروپاشی است و این کشور با تورم ۳۰۱ درصدی، نابودی اقتصاد و ناتوانی در پرداخت حقوق نظامیان خود دست‌وپنجه نرم می‌کند.
@@ -283,7 +325,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-12 22:50:24
 
-<img src="https://cdn1.telesco.pe/file/Kexy-sqQpwbrckl2Rzy_NiIR-GYHa5haJkyk8wPsYHI2fJ2yG0_aQYzBUjRcjHzKMOj1qUr0rUiQ2wNP3-J4T2_8w-vOEixAC7mSKrsBptNsZjvhvSdoXFHmlYn5pDVH8XzUlmKQO7vt4ou3-xW2O5FL1iimoWyPnkQ_sc8-OF_okR-36rOZ7k8mXZUJ71q4R9KQz4-8J9WbwEQttWsbdWQh4-iohu2ee1A4MJirrb3snuI4dVGf_3IIidpj8431UDsTkmQ62d1q_MfrJnaZjRuXxlFPEZySJpGGhPXxLQy5PJFzPlJ4l975dpo-B3gKdy1PvVaCbTMHFDC6MLv_gQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/kraR9x0P3eh6ydZNTa054FS3X1TNMEzkOTa93OSBi-l8v7zuRsNdXF050vp-kpnlaQqXpyGC6gm_6nceAtTdmWWwJDIMIjBe-0EOykrX1tl2ZUsdAoEAT61UEvyg3jg6ICS5ETw1Cla6NyEX2ykq0uJ5jUVQ4J1sLQKcqNoykxgha1dn5nfkgzSw1JlRzi2-XdvUMH6xWs4QGVEkX_z5G9_wW4Y8cN7_5rFd548Rarqe_cTNrwlGfKSCH6eJ25DyDtj4BULhmbSx6_7vrhZHU3Lb5QF7VTVWRuIHiVNHz879XIE7EzS7G74Uu579ZYX0Km4Z8ZnnqrZy1PFLrfyDNw.jpg" width="400"><br>
 
 خبرگزاری ایرنا به نقل از منابع رسمی در شامگاه پنج‌شنبه ۲۱ آبان۱۴۰۵ خبر داد سیریک در استان هرمزگان هدف حمله قرار گرفته است. بر اساس این گزارش، منابع رسمی اعلام کردند که اصابت صورت‌گرفته «ماهیت نظامی» داشته است.
 @
@@ -315,54 +357,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79084)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-12 16:43:24
-
-<img src="https://cdn1.telesco.pe/file/imsB9vU4rwoTFybTsVlcF6Ce_Vpx7WUrUDYuu7HMAvAb3fxrc_jTManwLtGzAdDDuV7nN-n6YI2WfUDjLvhGzKuBSiW_bGmD_HAVbrZip6iZl5S6Yp-cOPEMfMMX9NWegQtlpj959OO6EcrEm0xMi2CYqOuRGaW1IFBpDkBhMNLbWRaVN_YaEwXQjROKUOdceFnDo-G3HYNxm656rOYScbXVwy1Laz3JtbR0FJy2anJJyeJueCCRRNqu3C1BkkfSSx_XppgOixcU5psCsbnJsCDpjKrcJB6Afnu45H47dwEftGdtf7Xo75wEMyOu8RJQWZQgBtCN0rKfIlEz01JnJw.jpg" width="400"><br>
-
-ترامپ: ما نیازی به توافق با ایران نداریم. آن روزها مدت‌هاست که گذشته است.
-ترجمه ماشین:
-من از معاون رئیس‌جمهور، ونس، خواسته‌ام که تمام توجه و تمرکز خود را بر فساد و جرایم گسترده‌ای معطوف کند که در شهرها و ایالت‌های تحت اداره دموکرات‌ها در سراسر آمریکا جریان دارد.
-ایالت‌های آبی [دموکرات]، مانند مینه‌سوتا، کالیفرنیا، ایلینوی و بسیاری دیگر، همگی فاجعه‌هایی هستند که به‌شدت بد اداره می‌شوند و غرق در فسادند.
-هر ماه میلیاردها دلار به سرقت می‌رود. با مقابله با این فعالیت‌های مجرمانه گسترده، می‌توانیم به‌سرعت بودجه کشور را به تعادل برسانیم.
-فساد در خون رهبران دموکرات‌هاست!
-ما نیازی به توافق با ایران نداریم. آن روزها مدت‌هاست که گذشته است. پولشان، صدها میلیارد دلار، دست ماست و تنگه‌شان هم در اختیار ماست!
-از توجه شما به این موضوع سپاسگزارم.
-رئیس‌جمهور دونالد جی. ترامپ
-realDonaldTrump
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79083)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-12 16:42:43
-
-<img src="https://cdn1.telesco.pe/file/sK8CXXX09ooFJgS-SBlbQ4pOEAMc4K5ykhdFbD55qdtKQ71LkK48eDSJRNlZPmpzBbn8tLpx50LNaGzknIn1FhH-sxuH8ysZE4k0f96js0uOiGiG5Df5fxtJg-T_nCdw_SWop0qGmMe3BDzXbISzdMyEXbHZIDq9JP4yFS5DnMij89ZOfrtk-X8Jm8oqjIikMCljo-Qc1MW9w8LMdalndiZHwmYWfFlzhI2QGH9dF5JkswUIiNhtVyb7gCvPVR0SNUDpA9V4opWAemT7gtSajlJn-iz4I3DynY41GLQN7F1D0mls6igN58ICvrDYO2bz6QFkvbRBA_GFj8SSR1gtRQ.jpg" width="400"><br>
-
-مجلس خبرگان رهبری در بیانیه‌ای خواستار بررسی خروج جمهوری اسلامی از پیمان منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) و بازنگری در دکترین دفاعی کشور شد.
-این نهاد، تهدیدهای آمریکا و اسرائیل درباره برنامه هسته‌ای ایران و آنچه «بی‌عملی نهادهای بین‌المللی» خواند، دلیل این درخواست عنوان کرد و بررسی خروج از ان‌پی‌تی را «مطالبه‌ای عمومی و ملی» خواند.
-خبرگان در بیانیه‌اش همچنین خواستار ایجاد بازدارندگی بیشتر شد و گفت اگر حمله دیگری به ایران صورت بگیرد، نیروهای مسلح با پاسخی «فوری و اثرگذار و بدون محدودیت جغرافیایی» روبه‌رو خواهند شد. این نهاد از دستگاه سیاست خارجی نیز خواست در مسیر مقاومت حرکت کند و موضع جمهوری اسلامی را به کشورهای همسایه برساند.
-در ماه‌های اخیر و هم‌زمان با افزایش تنش بر سر برنامه هسته‌ای ایران، شماری از مقام‌ها و چهره‌های حکومتی خروج از پیمان منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) را به‌عنوان گزینه‌ای برای پاسخ به فشارهای خارجی مطرح کرده‌اند.
-در شهریور، عباس گودرزی، سخنگوی هیئت‌رئیسه مجلس، خروج از ان‌پی‌تی را راهی برای مقابله با فشار آمریکا دانسته بود.
-محسن رضایی، دبیر شورای عالی امنیت ملی، نیز گفته بود خروج ممکن است، اما هنوز تصمیمی در این‌باره گرفته نشده است. چند روز بعد، گروهی از مقام‌های پیشین و کنونی خواستار آغاز روند خروج شده بودند.
-در بخش اقتصادی بیانیه، مجلس خبرگان مشکلات معیشتی مردم را از مهم‌ترین مسئولیت‌های مقام‌های حکومتی دانست و پیشنهاد کرد «ستاد اقتصاد جنگ» با مشارکت قوا و نظارت نهاد رهبری تشکیل شود.
-این نهاد همچنین از مقام‌ها خواست به آنچه «صیانت از عفاف و حجاب» خواند توجه بیشتری نشان دهند و از اجرای سیاست‌های فرهنگی مورد نظر حکومت دفاع کند.
-مجلس خبرگان در بیانیه خود از حضور هشت‌ماهه مردم در خیابان‌ها و تجمع‌ها قدردانی کرد و خواستار ادامه آن شد.
-این نهاد همچنین از ادامه حمایت از گروه‌های «جبهه مقاومت» سخن گفت و احکام دادگاه‌های برخی کشورهای منطقه علیه شهروندان و روحانیون را محکوم کرد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79082)
 
 ---
 
