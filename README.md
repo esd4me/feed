@@ -3,8 +3,44 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-14 23:07:11 </h5>
+<h5> 🟢 Updated at: 2026-11-15 03:01:14 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-15 02:21:18
+
+<img src="https://cdn4.telesco.pe/file/lUHcUQNGwAnd4oDH_SZ5MfjpvyIfxcrokr_q4J1BXNrA35-z6_uf5sACWCc72V8NOBEUQfGRUhuH7lZnFATsc8a-MhAG4An8hnoZYbFg2DHiAPhQI9SDx-ZpBMHPYkH5xXUNBqqLDaVf3Za3vEjU8wpwJC38JrfxYbZjaFWMG5174273ThIOojdF-RMLYAJKdaTaSBIK_trc4jN90n1ju6_ml7NV4ayu0spMlZzJkhnCctdaONuEZG2wHPUKBycPqSEO2_2kYiycRm3qMofJEFY-DaBzAzRrYP0mt227eBuIcVA5i2TCRczS-rqNxzMdvfiXxgBhLWD7KdhqvtBEkQ.jpg" width="400"><br>
+
+نیروی دریایی سپاه پاسداران، بامداد یکشنبه در بیانیه‌ای اعلام کرد که دو نفتکش که با سامانه‌های ناوبری و شناسایی خودکار خاموش قصد داشتند به‌طور مخفیانه از مسیر غیرمجاز تنگه هرمز عبور کنند، پس از برخورد با «مین‌های دریایی» در جنوب این تنگه منفجر شدند و دچار آتش‌سوزی شدید شدند. در ادامه این بیانیه آمده است که پس از انفجار این دو شناور، دو نفتکش دیگر که قصد تردد مخفیانه در این محدوده را داشتند، پس از دریافت اخطارهای مرکز کنترل تردد نیروی دریایی سپاه در تنگه هرمز، مسیر خود را تغییر داده و به سمت آب‌های خلیج فارس بازگشته‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79116)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-15 00:56:06
+
+<img src="https://cdn1.telesco.pe/file/BRBr2uh2c0hMtUqXFWo2lrwZPGwIQkBigXqEFci1tzy6MOtBAnEWzu6jEXQFQxEWwnubBSfNeDiN100yenj6URnnq7VxpxCv0rcUewuHYfVR198UpxYiS_9er6NiRBiNQqqnct2mrpjGRQjOqZfJGvf3A4JG0c0caGlpHYsl_ZZgHzILOVojx5KLEkSx7UcV8HVFZpoOOM18BdxVAOw4kux6GDuuZ-rhQ7r6YSzIt6yJfjNR7cWU-adTgweAbYRjhFUUUmSLWSz7NOYDlRGQzVYfBhd8hBVBV0W0Vi7Izc-HC7GXGorAaorKOHv1cNoRAxMVx9Emdtov2uhHTnQn0A.jpg" width="400"><br>
+
+رئیس اورژانس پیش‌بیمارستانی استان ایلام روز شنبه ۲۳ آبان‌ماه اعلام کرد که بر اثر واژگونی اتوبوس حامل کارکنان شرکت ان‌جی‌ال دهلران در جاده دشت‌عباس به مورموری، دست‌کم ۱۰ نفر جان باختند و ۱۸ نفر مصدوم شدند.
+به گزارش خبرگزاری فارس، این اتوبوس که سرویس رفت‌وآمد کارکنان شرکت ان‌جی‌ال دهلران بود، در محدودهٔ سه‌گر و حوالی چاه‌های نفت واژگون شد.
+مدیر حوادث دانشگاه علوم پزشکی ایلام از وخامت حال چند نفر از مصدومان خبر داد و اعلام کرد که مجروحان در بیمارستان‌های استان‌های ایلام و خوزستان تحت درمان قرار گرفته‌اند.
+@
+VahidOOnLine
+گفته میشه همه کشته‌شدگان اهل آبدانان بودند.
+به نوشته منابع حکومتی، یک روز عزای عمومی در استان ایلام و دو روز عزای عمومی در آبدانان اعلام شد.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79114)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-14 17:46:43
@@ -108,7 +144,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-14 00:45:16
 
-<img src="https://cdn1.telesco.pe/file/XiaeyKJuarlS4tFXeVlhVyjFUGh4nh9OiVcUKVri0VZwg5EpPN5xgThwFe4HlkoJQHG8oYXujKzEmrV-yFua5YgFEeZc9kFyGDUpFcPfZ_XutkHbR_Om1l2oJTljuSpq8niPYmlNs-JhHRmbiYKdChyG0uujXWRU-hVcscq9ngAm9Ge4n94mv-LW3FnhdbQ_9rn9w63yh67sHOy9g_u8kix9IbkVtuA2vkeRZxG0B7LWU4eiOLSyQ4BrBP3S5zqYGqVlAcCxak3h8tI5agdewUbjXMC4l9_0-y6sK_YqExKz6pYmm1tEpjMWL5A_w9NqbTnMuH-WIdG3H2XOiDtkig.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/jfDa5yUZM-bD6mHh5cJ87qZWTp24XWTwrsSBnIoT93i3eG9sM_zEBINDro_HEFL7AtrTIt39nBYmNpZLSTjNvtLMx1V_shYGByMW15jU_1cLWqOfrztEbd1wdl6-I8MMElLEy63locLZZHyMo6BQBv4PIqXcX2Y9OBuZUuIypSU0h_RBKbsoYQeBz9l9PCwUfJaaPnxrXXsmTsk-gPbgi-u_zxL0kaRulniUsStmEsxFgdtubxJLeGdbYt4wOVpTI-QOuCkDepmoB1z7RksuPEr0Wy1-ryQRyJXvK6W2TkNHMdxzLtkqz0QwQG4EkCV3budiP3FX5SDWPpoFoqj-HA.jpg" width="400"><br>
 
 به گزارش رویترز، شان دافی، وزیر ترابری ایالات متحده، روز جمعه ۲۲ آبان اعلام کرد اداره هوانوردی فدرال (FAA) به دلیل بروز «اختلال ارتباطی» که تمامی مراکز کنترل ترافیک مسیرهای هوایی را تحت تأثیر قرار داده است، دستور توقف سراسری پروازها را برای تمامی فرودگاه‌های آمریکا صادر کرده است. دافی افزود کارشناسان فنی اداره هوانوردی فدرال در حال بررسی این مشکل هستند.
 اداره هوانوردی فدرال آمریکا نیز در اطلاعیه‌ای هشدار داد که به دلیل از کار افتادن تجهیزات، مسافران و کاربران باید انتظار ماندن هواپیماها در آسمان را پیش از فرود در تمامی فرودگاه‌های سامانه حریم هوایی ملی داشته باشند.
@@ -140,7 +176,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-14 00:12:03
 
-<img src="https://cdn1.telesco.pe/file/dPhHFaizZqppC6o-fqtzZGk2Eilgz2cW4SxZ7l-qmFCMbneciTlqR6MxJsHRt4eDFaw5MbU5qmOKnSD1nEi0Yqwrp-xCmJ3UP-osVvDlGjAkJAKkAxZFQMaRW6Fd2y2fpDmHpvdlQcCd53oz9dDfYYZzaj_NfalUC0ju58f2KNuI3Dxo5ZE8zBoUjNI4thsJfDMV5sfWUFTAJVLcgAhNTgjwd949UCIJf0jn-tYdSqD6Uq0Wvo6t3qdkfEZO8oHsdIzlhnxQlyuQDS-EjKmtBBBNvM0Xmknadf1p8V3y3VdDLJP2YIE9S0rhXD4Qz61KBP_oLxB1Van660_Ato3WBA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/j9luJT8MjtHRGiiz5DnXDK2LPBGgulCnKF7TgBp36GtjqkOm8BKQFKgrWnLdGhBzef6AKVqHcVa1nQIXH9x01FW30gch_5Ju0uJBYV8VBCPEJ8gWmXkIN2yIRVXejOf61H-pAAo_m3cAlN5xxMFP3P6jAqlDf76bpVLlW9CDcoUDyNeUHF4-Ellj85c_sEBEKBa-0YyerXsGtQAnYTSLcobA-2pcIGePZJyE53kgiTQVEpgWwbxOdtozfbIbRK5Zx2ehKZ8lpuhImn1PSYf2WKGFA7Jc3ktruSMmE2fkKpMXUl9H8oIVJ1ttGDsj6FwtoTrxzRLuyx0wGqW0XKm6Kg.jpg" width="400"><br>
 
 نیروی هوایی آمریکا اعلام کرد که عصر روز جمعه به «فعالیت مشکوک پهپاد غیرمجاز» بر فراز پایگاه نیروی هوایی سلطنتی لیکن‌هیث در سافولک واکنش نشان داده است.
 سخنگوی نیروی هوایی آمریکا اعلام کرد: «هیچ‌یک از نیروها، هواپیماها یا زیرساخت‌ها در جریان این واقعه آسیب ندیده‌اند.»
@@ -297,69 +333,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79097)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-13 17:38:30
-
-<img src="https://cdn1.telesco.pe/file/No35KjdgqK4JpAzE88HVsAHPDLBdeTh6g4a-4nZOKkiQKhdLdTz4-lBLDFp71Vuegh4p_-H1-1TIwrrmlTLtIkQo0k0TyddnRNWi2PATaRK7RuEmeXdy6w7Sg6R7ixJNX-3sRfMTOtcEqYe9fwHfkEDmQUa9YUgvrtvHaRD_4XYeTKpJyTefcpARMFzDPtyY8M1UkMtwkMHMZUZiI50ynUQW8f6QrEk2ILv-fBm0n4C9bBcxFP7nEnG__5jE3bk2qcNwh1DiRctK-gYNeA8OFd1L7WJV8J5h3G-AYW6a-U4yU8QhinD9ALGbQgH3FfuLjeU_l148OM7IdG90m3k5dQ.jpg" width="400"><br>
-
-خبرگزاری مهر روز جمعه ۲۲ آبان گزارش داد که عراق گذرگاه مرزی «سومار» با ایران را بست. زمان مشخصی برای بازگشایی این مرز اعلام نشده است.
-یک روز پیش از این، رسانه‌های ایران از اعلام سازمان راهداری و حمل‌ونقل جاده‌ای ایران درباره بسته شدن این مرز از روز جمعه خبر داده بودند.
-در تصویر منتشرشده از نامهٔ این سازمان به مدیران راهداری و حمل‌ونقل جاده‌ای استان‌های ایران گفته شده بود که بسته شدن این گذرگاه مرزی در پی اعلام وزارت امور خارجه و «در پی مکاتبه دیپلماتیک سفارت جمهوری اسلامی ایران در بغداد» اطلاع داده می‌شود.
-عراق پیشتر نیز مرز چذابه را با ایران بسته بود، اما حدود سه هفته بعد، در روزهای اخیر رسانه‌های ایران از بازگشایی آن خبر داده بودند.
-در همین ارتباط فؤاد حسین، وزیر امور خارجه عراق، روز یکشنبه ۱۷ آبان در گفت‌وگو با شبکهٔ الجزیره گفته بود وزارت خزانه‌داری آمریکا از بغداد خواسته است در چارچوب سیاست واشینگتن برای افزایش فشار اقتصادی بر حکومت ایران، تمامی گذرگاه‌های مرزی با ایران به‌جز دو گذرگاه را ببندد.
-یکی از این دو گذرگاه مستثناشده در منطقهٔ اقلیم کردستان عراق قرار دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79096)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-13 17:37:27
-
-<img src="https://cdn4.telesco.pe/file/Mt12cp7evrPeHzoILz3SV9bZ-ShrxmAv_HDpwBd5cvW9HkqokqRukiyLigDcG3C1Ribj213AIcp0xZXyK61BzwAQGOQ741CS0SJOlIymh-YJj7MhRLqWP0DF2lP8RzHb8ZmCohhJGNWsrWVgspTd3DfUIttBehcgkRUtz0yb5Am6C7C5_S7FBhKML1mpjCoKMGaWQAEowh4tqyOzY2dEbzsUv0Of7tbh58JHiZDKnc94JocQDe6DRSHpjHTOUg6cMytrNwi1HC_Lz2r-_g16VzcOfjK4LH1aZ6USbbzDXBMufVPMQsJNKEbH07Nn6PR7yd-I2n06r5zldshmRVMhpw.jpg" width="400"><br>
-
-دستگاه قضایی جمهوری اسلامی برای ۶ شهروند در ارتباط با نمایشگاه فیتکس تهران کیفرخواست صادر کرد.
-به گزارش خبرگزاری دولتی ایرنا، این افراد شامل مدیرعامل و مدیر اجرایی شرکت برگزارکننده و ۴ شرکت‌کننده زن هستند که به «تشویق به فساد، جریحه‌دار کردن عفت عمومی و انتشار تصاویر مبتذل» متهم شده‌اند.
-بر اساس این گزارش، همه ۶ متهم در بازداشت هستند.
-پیشتر دادستان تهران از بازداشت یک بلاگر ورزشی زن در پرونده نمایشگاه فیتکس تهران خبر داده بود.
-رسانه‌های اصولگرا در روزهای گذشته با انتشار تصاویری از پوشش زنان در این نمایشگاه کارزاری علیه برگزارکنندگان راه انداختند.
-پس از این کارزار، صفحه اینستاگرام فیتکس مسدود شد و وزارت ورزش و جوانان ادعا کرد این نمایشگاه ارتباطی با این وزارتخانه نداشت و اداره ورزش تهران نیز مدعی شد برگزارکنندگان از این اداره مجوز نگرفته بودند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79095)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-13 16:55:59
-
-<img src="https://cdn1.telesco.pe/file/kOWdjPXGN_uf21awMW08xn7guZoVos533S2EfdwYlwukVAxhMmrS0PDF4691T1YxcsbvYRSA_s7-581VNts2o5TSYVrNTPsN9NqIlWzbiY95yoxcma6oTI1k-nkDcX4Av85Tt1Lb3gRTk2ycjlh68m_fuFNXWzdD0c6w8EVuVAnTBe4Zmhlyi0ekKTcT1dUnA7QuTvnB9h8OP1NGxntLT0PrKSrgX8f7uojmf7fjtFAqIA_a2g6Blpi9JLxxCb_AdeGZyaFsk1pJ5R9UUthUXIwhJKRo21xCNaxWNCArbSOc-GhSyG-CB-f2YilcY7inSve7oMUSWJdJ6IvyxxVW_A.jpg" width="400"><br>
-
-پست سنتکام، ترجمه ماشین:
-🚫
-ادعا: امروز سپاه پاسداران انقلاب اسلامی ایران
-اعلام کرد
-که به یک «رادار هشدار زودهنگام آمریکا» در بحرین حمله کرده است.
-✅
-واقعیت: سپاه پاسداران دو پهپاد انتحاری به سمت بحرین پرتاب کرد که هر دو توسط نیروهای آمریکایی سرنگون شدند. این حمله هیچ تلفات جانی یا خسارتی در پی نداشت.
-CENTCOM
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79094)
 
 ---
 
