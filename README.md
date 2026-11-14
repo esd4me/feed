@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-14 18:09:28 </h5>
+<h5> 🟢 Updated at: 2026-11-14 23:07:11 </h5>
 </div>
 
 
@@ -165,12 +165,6 @@ VahidHeadline
 کامبیز حسینی و مجتبی پورمحسن، دو روزنامه‌نگار شبکه تلویزیونی فارسی‌زبان ایران‌اینترنشنال مستقر در لندن، و جاناتان ترنر، از بنیان‌گذاران سازمان «وکلای بریتانیا برای اسرائیل»، از جمله افرادی بودند که تحت نظر قرار گرفته بودند.
 @
 VahidHeadline
-📱
-هور آر یو
-؟
-📱
-فور وات
-؟
 📡
 @VahidOnline
 
@@ -310,7 +304,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-13 17:38:30
 
-<img src="https://cdn1.telesco.pe/file/TM_fgJLD0aTXQEe7Ejn9P9ahEeyBeEJ6h1YPjhDYCZUwuKJCEMqqNuVJ5sHPinBMcAsdXqlEg6ksIRLbA3VG_r9hoDtFD3G3pGJweNYAFbQxUsefvuURgXx8_3tz3sWxuf-BezwXJujF_EUSAz4ji3An7YAbxDjWzEkA3Nnq62O8ea5BVebOVMmDJVDi8jEx8E45Z8v4p0A9hw0CcxntL3MqKnm7PKqGKytKSOqJQbrnrsxxwKTPCML5FU-avHiG8rnoeCLvNGTqlEU5DBElG9-zaFyVYbHzFHWJTSs4L73GMnGMvFNB4JHd4TXz21K1RbQFMplKkwq6hqMD7aO0aw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/No35KjdgqK4JpAzE88HVsAHPDLBdeTh6g4a-4nZOKkiQKhdLdTz4-lBLDFp71Vuegh4p_-H1-1TIwrrmlTLtIkQo0k0TyddnRNWi2PATaRK7RuEmeXdy6w7Sg6R7ixJNX-3sRfMTOtcEqYe9fwHfkEDmQUa9YUgvrtvHaRD_4XYeTKpJyTefcpARMFzDPtyY8M1UkMtwkMHMZUZiI50ynUQW8f6QrEk2ILv-fBm0n4C9bBcxFP7nEnG__5jE3bk2qcNwh1DiRctK-gYNeA8OFd1L7WJV8J5h3G-AYW6a-U4yU8QhinD9ALGbQgH3FfuLjeU_l148OM7IdG90m3k5dQ.jpg" width="400"><br>
 
 خبرگزاری مهر روز جمعه ۲۲ آبان گزارش داد که عراق گذرگاه مرزی «سومار» با ایران را بست. زمان مشخصی برای بازگشایی این مرز اعلام نشده است.
 یک روز پیش از این، رسانه‌های ایران از اعلام سازمان راهداری و حمل‌ونقل جاده‌ای ایران درباره بسته شدن این مرز از روز جمعه خبر داده بودند.
