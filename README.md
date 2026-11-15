@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-15 21:44:52 </h5>
+<h5> 🟢 Updated at: 2026-11-16 02:45:52 </h5>
 </div>
 
 
@@ -28,7 +28,7 @@
 
 <img src="https://cdn1.telesco.pe/file/Kwsp5-tuCNVQ_hAPtbYaBcSMMCSFpLw_IsJ0gqWAMSIOWCsiUp7PobIvyInf1QnA2BsoXaWdXr6QGElq-jmqtu-ZDPz__BG0N-s1ArKGK588R3DyRT-imYnmbE0ft2IChJkEXJfgKXzmIr6TWKi-2YougXi9Pwq8GwcEEtgvJPsC_wbQSNbRXlRa2gdu8SFjcECRW3Fd30dFSTrNVB0w2Rb9AMAguUgJ19oawnBDIhxCjR-5lsfP5HZCZZ7Kl9yqgFCvkn4NVvh5a2gCq6_QrrBVNli0nAjANuvaXQqqyPMmnAbrjN1liOq9Dc0RsD2kWZWqHvjRqzVoeP8v60aGXA.jpg" width="400"><br>
 
-برای سومین بار در ۲۴ ساعت گذشته زلزله منطقه لواسان در شمال شرقی تهران را لرزانده است.
+برای سومین بار در ۲۴ ساعت گذشته زمین‌لرزه  لواسان در شمال شرق تهران را لرزانده است.
 جدیدترین لرزش زمین ساعتی پیش گزارش شد که سازمان لرزه‌نگاری دانشگاه تهران بزرگی آن را ۳ ارزیابی کرده است.
 پیام‌های دریافتی:
 دوباره ساعت ۲ ظهر زلزله اومد شدید تر بود
@@ -192,7 +192,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-15 02:21:18
 
-<img src="https://cdn4.telesco.pe/file/lUHcUQNGwAnd4oDH_SZ5MfjpvyIfxcrokr_q4J1BXNrA35-z6_uf5sACWCc72V8NOBEUQfGRUhuH7lZnFATsc8a-MhAG4An8hnoZYbFg2DHiAPhQI9SDx-ZpBMHPYkH5xXUNBqqLDaVf3Za3vEjU8wpwJC38JrfxYbZjaFWMG5174273ThIOojdF-RMLYAJKdaTaSBIK_trc4jN90n1ju6_ml7NV4ayu0spMlZzJkhnCctdaONuEZG2wHPUKBycPqSEO2_2kYiycRm3qMofJEFY-DaBzAzRrYP0mt227eBuIcVA5i2TCRczS-rqNxzMdvfiXxgBhLWD7KdhqvtBEkQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/LbeN_3CXhrSi3ziOSSExj8iLT2FOI60PgOMUlyXinV6WqdcrDGuodcQFVGHJfehhDjBsgFeCF720y52otMo47stPCTu9x0yA2Mdw0tPXVihpQkV52rfdG3Y2HfRiOKEBxzD2srVJ2EWTeCDLZVEHWi_ke8oHKQoiByjPCJeHzMrB744GEUwd9Q1JXFxc1ntEJNDZ2zB8yITAUCTD9Q2QjybqNPWK9WQkLztXEOuxJpILXws5zIZlNdtRkdQcC0hjdeNPkVj1grePiXSMdbsFWmfjP3aIGXqa9MxgmXBAbm_FUTZ23pqCgFuv_z1zhmDHncrLh6gaaDzk9A8qY-uHGw.jpg" width="400"><br>
 
 نیروی دریایی سپاه پاسداران، بامداد یکشنبه در بیانیه‌ای اعلام کرد که دو نفتکش که با سامانه‌های ناوبری و شناسایی خودکار خاموش قصد داشتند به‌طور مخفیانه از مسیر غیرمجاز تنگه هرمز عبور کنند، پس از برخورد با «مین‌های دریایی» در جنوب این تنگه منفجر شدند و دچار آتش‌سوزی شدید شدند. در ادامه این بیانیه آمده است که پس از انفجار این دو شناور، دو نفتکش دیگر که قصد تردد مخفیانه در این محدوده را داشتند، پس از دریافت اخطارهای مرکز کنترل تردد نیروی دریایی سپاه در تنگه هرمز، مسیر خود را تغییر داده و به سمت آب‌های خلیج فارس بازگشته‌اند.
 @
@@ -208,7 +208,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-15 00:56:06
 
-<img src="https://cdn1.telesco.pe/file/BRBr2uh2c0hMtUqXFWo2lrwZPGwIQkBigXqEFci1tzy6MOtBAnEWzu6jEXQFQxEWwnubBSfNeDiN100yenj6URnnq7VxpxCv0rcUewuHYfVR198UpxYiS_9er6NiRBiNQqqnct2mrpjGRQjOqZfJGvf3A4JG0c0caGlpHYsl_ZZgHzILOVojx5KLEkSx7UcV8HVFZpoOOM18BdxVAOw4kux6GDuuZ-rhQ7r6YSzIt6yJfjNR7cWU-adTgweAbYRjhFUUUmSLWSz7NOYDlRGQzVYfBhd8hBVBV0W0Vi7Izc-HC7GXGorAaorKOHv1cNoRAxMVx9Emdtov2uhHTnQn0A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/f4XjT_0ltBlxbUrbhggFinDI6Acw4qknTPo36PTnODtD_0fRKjqZH_pvAauXh8Ts99I3AJS3EfVHFCDZ0_i94V8rCeKwwx9l0NDj9beeDGTg9tomwFojMSgCiGOaykgrK1jomzRiu251907nynaeQQsLGOPOxu7BonubSSJ6kjQNHKsS1zDevcHDSDlAbqF31j6I5OWNu-zWl2DpIdGYLP3lCcMUX15snsBXYNseRrR-9j_oRgFSLmsYyvS4-iCBt-w5oIZNocqntv148Sxwv0ujq9FWrKimxfx1QRM6RYG80yL14tGf4PvgqZuhPAeCpB5m2Xi26444bWVTHmNzfA.jpg" width="400"><br>
 
 رئیس اورژانس پیش‌بیمارستانی استان ایلام روز شنبه ۲۳ آبان‌ماه اعلام کرد که بر اثر واژگونی اتوبوس حامل کارکنان شرکت ان‌جی‌ال دهلران در جاده دشت‌عباس به مورموری، دست‌کم ۱۰ نفر جان باختند و ۱۸ نفر مصدوم شدند.
 به گزارش خبرگزاری فارس، این اتوبوس که سرویس رفت‌وآمد کارکنان شرکت ان‌جی‌ال دهلران بود، در محدودهٔ سه‌گر و حوالی چاه‌های نفت واژگون شد.
@@ -330,7 +330,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-14 00:45:16
 
-<img src="https://cdn1.telesco.pe/file/jfDa5yUZM-bD6mHh5cJ87qZWTp24XWTwrsSBnIoT93i3eG9sM_zEBINDro_HEFL7AtrTIt39nBYmNpZLSTjNvtLMx1V_shYGByMW15jU_1cLWqOfrztEbd1wdl6-I8MMElLEy63locLZZHyMo6BQBv4PIqXcX2Y9OBuZUuIypSU0h_RBKbsoYQeBz9l9PCwUfJaaPnxrXXsmTsk-gPbgi-u_zxL0kaRulniUsStmEsxFgdtubxJLeGdbYt4wOVpTI-QOuCkDepmoB1z7RksuPEr0Wy1-ryQRyJXvK6W2TkNHMdxzLtkqz0QwQG4EkCV3budiP3FX5SDWPpoFoqj-HA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/E9k0NopqwRezNpC8053WOf8fFuiPryIO51OSgsPpX95enc2qKViYxUwvdVQJ4hEj6tmN3OOyXB0zR1a3-wqpTL4r7tpP5r9wz310LeKjMLy91-wWVw5DKtmzaGG2VyDHbxgAVdOg-vHhlaKigay7nkIdIgII85rIxYZDq8J--XUuUlhTzPaye4FRKYjClVKDqNPFmywO3IJGTsN3DG-gXo0LwC9PMFys0atf9B6JbUrEBt7k1zlXAHv2jC28trYBDyV93bW6JgzVnv9MJxP8AvQ6idOWqBfdILPvC0BgbTmFAtnqgISiDr69SoztK7mRYAx2pjSCJUnbBkoY9-ytdA.jpg" width="400"><br>
 
 به گزارش رویترز، شان دافی، وزیر ترابری ایالات متحده، روز جمعه ۲۲ آبان اعلام کرد اداره هوانوردی فدرال (FAA) به دلیل بروز «اختلال ارتباطی» که تمامی مراکز کنترل ترافیک مسیرهای هوایی را تحت تأثیر قرار داده است، دستور توقف سراسری پروازها را برای تمامی فرودگاه‌های آمریکا صادر کرده است. دافی افزود کارشناسان فنی اداره هوانوردی فدرال در حال بررسی این مشکل هستند.
 اداره هوانوردی فدرال آمریکا نیز در اطلاعیه‌ای هشدار داد که به دلیل از کار افتادن تجهیزات، مسافران و کاربران باید انتظار ماندن هواپیماها در آسمان را پیش از فرود در تمامی فرودگاه‌های سامانه حریم هوایی ملی داشته باشند.
@@ -362,7 +362,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-14 00:12:03
 
-<img src="https://cdn1.telesco.pe/file/j9luJT8MjtHRGiiz5DnXDK2LPBGgulCnKF7TgBp36GtjqkOm8BKQFKgrWnLdGhBzef6AKVqHcVa1nQIXH9x01FW30gch_5Ju0uJBYV8VBCPEJ8gWmXkIN2yIRVXejOf61H-pAAo_m3cAlN5xxMFP3P6jAqlDf76bpVLlW9CDcoUDyNeUHF4-Ellj85c_sEBEKBa-0YyerXsGtQAnYTSLcobA-2pcIGePZJyE53kgiTQVEpgWwbxOdtozfbIbRK5Zx2ehKZ8lpuhImn1PSYf2WKGFA7Jc3ktruSMmE2fkKpMXUl9H8oIVJ1ttGDsj6FwtoTrxzRLuyx0wGqW0XKm6Kg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/KQ41VZOgv5kvD10YHDxDrI8XOlwYFQN1nETqloQQW2X4ZJ6NJexo_3vG9MFMXv_Qb7KrOq9d2Eml8-k7sw8rtdvnMPqGIk_XGSv20DPpUunr67zZK_hdtRwozY3tKZIWt3sT22rAJwpPRgpJ0co4kXsbpMjrE8hndFeLyvIkAyNkOn7d4Ssi-yk58__lvs6GkGkEYhq9EBwAyrcf75Ww303BYhoQks7j7ZNDFcsZq721Eutcd3juFLQC1eD74z-euf4wNrTCmeQv_uihoFtPUheMzX81_ZuCPcxY_SAfv6U7O1z9AE2JGfMxZuWemgnjyi6x4nlIO2cR4_2NMx7l2g.jpg" width="400"><br>
 
 نیروی هوایی آمریکا اعلام کرد که عصر روز جمعه به «فعالیت مشکوک پهپاد غیرمجاز» بر فراز پایگاه نیروی هوایی سلطنتی لیکن‌هیث در سافولک واکنش نشان داده است.
 سخنگوی نیروی هوایی آمریکا اعلام کرد: «هیچ‌یک از نیروها، هواپیماها یا زیرساخت‌ها در جریان این واقعه آسیب ندیده‌اند.»
