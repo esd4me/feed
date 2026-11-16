@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-16 07:25:27 </h5>
+<h5> 🟢 Updated at: 2026-11-16 15:51:58 </h5>
 </div>
 
 
@@ -136,7 +136,7 @@
 
 ###### 🔵 Post time: 2026-11-15 08:15:22
 
-<img src="https://cdn1.telesco.pe/file/TaGjzaWBMHmj9WAEb1geqdzhhdVtI7lfOkgf47y2u3J1kYy3Sfu7uf3r-PPjPo3GTKMh4NDutthizxbnD8xm6aSAQF2hmge5Hq0TfNv9isc-oxbxzlQpEHLeuAEYslZDzr8r0mz2UbB1bQVZzz_VBZx227BoJKnqGvVoZDQEIb93_51sh9vQqvxtP-2dkARie5bQGkyHHiMaUe8iEb1iteXhEuI1M0AlSTeMjCdkfWyCDCUIRcTklwAMyJO_eb-raTI6iUVwHqIwY5jmYK5cdP4BstxqPh9fVly8zLNAFhgcDfrn9tkLCwOeuw3A6qEKZfD7E2i5QPkxerPIf7H0jw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/GGeFY0c-U5Veu_0lHnLH55Vuq4NSZbiXwZlaXrhzFNYjCICuza2jBOVwNSjkC6b4W7eq3DWu21kAgasOmpwI4ejU6XbT3LvZC8ya4X7JWdTUamxLD6-BiOn3KDhfl1EHDuZ1_oddjNX8A89N4QL9RvoY7_I7jZRzfah4vmdCbl1s0UAF2x77QPEOIXvqNAGzR9VzOUkd9dhHYXTrYry5yJ0iNIp2w6fYJOYniWwgwF7zujAdJeWjL5g-BjV0w-Qgb0gPRfVf7xRb7KEeT_k4lXFSEIsRIxEPW3MQ8O8qbp20KevqmCbgHIuxn1Znd6mIUcB8yzyOWqi1G47kO3qVfA.jpg" width="400"><br>
 
 زلزله
 دیگر
