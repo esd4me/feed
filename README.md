@@ -3,13 +3,203 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-16 15:51:58 </h5>
+<h5> 🟢 Updated at: 2026-11-17 02:09:39 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-16 21:40:56
+
+<img src="https://cdn1.telesco.pe/file/Hg3Bo1RIT3XsaAS364f0ZaI6GyiHDcqpyNN7prxFugU1JewbJj3grw9H-0QykChQu1JCJXMgW0YzpazelBT55L87NZsf8rimAdo6R3WdwwnwEVImmVzlb1hn6NQFBP6P1z5G86rP0ZHijJP1SWe1gXEKcNrGGbrMGIc2en7BSumg7hmcjGIb_cToT2fgxHop1meTUz31kV5BQLm8K0nTr9uVJN4_YRH8uPctrk9LPlTg82kuUxY6x0x4pDBZ4SHpYOS_apj5aBPLXIavFMlUra18WDAnghbLdDOASz74PMyq7gRI9VxPTgOc64yDkM0EqYZ0p5IvJEyUOYq1gOleIA.jpg" width="400"><br>
+
+یک دختر ۱۶ ساله در کرمانشاه به قتل رسیده و پلیس و آموزش و پرورش تحقیق و بررسی در این باره را آغاز کرده‌اند.
+خبرگزاری رکنا که این خبر را منتشر کرد در این باره از مدیر روابط عمومی آموزش‌وپرورش کرمانشاه سوال کرد.
+آقای آقایی گفت: «طبق اطلاعاتی که از مدیر مدرسه دریافت کرده‌ایم، پدر سوگند یک روز پیش از حادثه به مدرسه مراجعه و درخواست دریافت پرونده تحصیلی او را مطرح کرده است. با این حال، مدیر مدرسه موظف است پرونده دانش‌آموز را تنها در صورت انتقال او به مدرسه‌ای دیگر تحویل دهد و در صورت قصد ترک تحصیل، اجازه تحویل پرونده را ندارد.»
+او همچنین گفت: «ظاهرا سوگند برای بازگشت به شهرستان تحت فشار بوده است اما اینکه پس از بازگشت به خانه چه اتفاقاتی رخ داده، هنوز مشخص نیست. برای روشن شدن ابعاد ماجرا باید با پدر و نامادری این دانش‌آموز گفت‌وگو شود و تمام این موارد در دست بررسی است.»
+در همین حال، در یک فایل صوتی که رکنا منتشر کرده، فردی که گفته می‌شود از دوستان سوگند است، می‌گوید او پیش از رفتن به خانه گفته بود: «اگر به خانه بروم، پدرم من را می‌کشد.»
+به گزارش رکنا، «بر اساس اطلاعات دریافتی از منابع محلی، روز ۲۳ آبان‌ماه، از مدرسه موضوعی را با عنوان علت ارتباط شخصی به پدر سوگند اطلاع می‌دهند. گفته می‌شود پس از این اتفاق، پدر سوگند حدود ساعت ۸:۴۵ صبح به مدرسه مراجعه کرده و دخترش را با خود به خانه می‌برد.»
+گزارش رکنا می‌گوید: «پس از ورود به خانه میان پدر و دختر درگیری رخ می‌دهد و حدود ساعت ۹ صبح، پدر سوگند او را از پنجره طبقه پنجم ساختمان به پایین پرتاب می‌کند. این دختر نوجوان در پی این حادثه جان خود را از دست می‌دهد.»
+سازمان حقوق بشری هه‌نگاو هم این خبر را به نقل از منابع خودش منتشر کرده و نوشته است که سوگند صیادی «اهل روستای علیرضاوندی از توابع گیلانغرب و ساکن محله کیانشهر کرمانشاه» از «طبقه پنجم ساختمان مسکونی به پایین پرتاب شده و جان خود را از دست داده است.»
+پلیس کرمانشاه هنوز اظهار نظری نکرده است.
+@
+VahidHeadline
+سوگند صیادی، دانش‌آموز ۱۶ ساله اهل گیلانغرب و ساکن کرمانشاه، یک‌شنبه ۲۴ آبان به دست پدرش کشته شد.
+سازمان حقوق بشری هه‌نگاو علت این قتل را مخالفت پدر با ارتباط سوگند با خواستگارش گزارش کرده، اما
+در شبکه‌های اجتماعی روایت شده است که ماجرا پس از اطلاع مدرسه از ارتباط این نوجوان با دختر دیگری آغاز شد.
+به گزارش هه‌نگاو، مدیریت دبیرستان دخترانه رضوان کرمانشاه یک روز پیش از قتل، پدر سوگند را به مدرسه فراخواند و او دخترش را در حضور همکلاسی‌ها و مسوولان مدرسه به‌شدت کتک زد.
+بر اساس این گزارش، سوگند به مسوولان مدرسه هشدار داده بود که پدرش او را خواهد کشت، اما بدون انجام اقدامات حمایتی، همراه پدرش به خانه بازگردانده شد.
+هه‌نگاو گزارش داد که کیومرث صیادی، پدر سوگند، پس از ادامه ضرب‌وشتم در خانه، او را از طبقه پنجم ساختمان به پایین پرتاب کرد. پیکر این نوجوان صبح یک‌شنبه در حیاط ساختمان پیدا شد.
+سوگند با پدر و نامادری خود زندگی می‌کرد و به گفته هه‌نگاو، پدرش طی سال‌های گذشته مانع ارتباط او با مادرش شده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79130)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-16 21:39:56
+
+
+
+انتشار تیزر تبلیغاتی برنامه «صحنه» واکنش‌های زیادی را برانگیخته و انتقادهای بسیاری از آن کرده‌اند.
+در تیزر تبلیغاتی این برنامه حاضران یکی از آهنگ‌های ابی، خواننده معروف ایرانی را همخوانی می‌کنند.
+خبرگزاری تسنیم در یک گزارش با تیتر «عادی‌سازی همخوانی با لس‌آنجلسی‌ها» از این همخوانی انتقاد کرده است و با اشاره به مواضع سیاسی ابی، انتخاب ترانه‌ای از او را برای یک برنامه پرمخاطب، موردی دانسته که «نمی‌توان از کنار آن ساده گذشت.»
+مخالفان جمهوری اسلامی هم به این برنامه واکنش‌های مختلفی نشان داده‌اند و در شبکه اجتماعی ایکس نقطه نظرات مختلفی را مطرح کرده‌اند.
+از «عادی‌سازی» زندگی سرشار از مشکلات مردم گرفته تا «سفیدشویی» کشتار معترضان در دی‌‌ماه ۱۴۰۴ توسط حکومت ایران.
+گروهی از مخالفان حکومت ایران می‌گویند جمهوری اسلامی با تهیه برنامه‌های نظیر صحنه «آخرین دست و پاهای خود را می‌زند»
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79129)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-16 18:22:38
+
+
+
+ترجمه ماشین:
+خبرنگار:
+... نگران این نیستید که پهپادهای ایرانی شخص شما را هدف قرار دهند؟
+ترامپ:
+من نگران شما هستم، چون اگر مرا بزنند، شما هم از بین رفته‌اید. ببینید، [شعاعش] تقریباً همین‌قدر را می‌گیرد
+(با انگشت دور محوطه‌ای خط می‌کشد)
+. مراقب باشید.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79128)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-16 18:20:16
+
+<img src="https://cdn4.telesco.pe/file/V5t18KbKBEyEEfoAyGDeAa9xxcxsa-6kgie9NBrMqb-Aq9IzZ3ro7tVkpyFxVBdgv5cQe6mH0r6Ef4GsicNT4R0Av6LW0jpDXL8-Etm_5ae_BIJIaondJagx-GiYCNCD-45Rj1rAQBlwPmr9Xi420iRNlaCu7yWbGtb66h4WqAqBIkDGmS62oUBsFC9Rz54F1Rg_9Po3WfqHz1i6dG7sPKD5lm0qeofsKwKjrSGnVTFpWPVwwGvVWkxpBzNKsU_q5BxYCUb_ZGn6fz0RPPMJ4TvRPP_7aoBSf3QrD_hgQ2sGIbawT0K_XMxnlJ2T9TEPdMwytzpb2Dq2JKunV2aI1Q.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده روز دوشنبه ۲۵ آبان در شبکه اجتماعی «تروث سوشال» به گزارش اخیر برنامه خبری «۶۰ دقیقه» (محصول شبکه سی‌بی‌اس) واکنش نشان داد و مدیران جدید این برنامه را از پیشینیان خود بدتر توصیف کرد.
+برنامه «۶۰ دقیقه» روز یکشنبه گزارش داده بود که جمهوری اسلامی ایران از زمان آغاز جنگ در ماه فوریه، دست‌کم ۳۱ تأسیسات نظامی و دیپلماتیک ایالات متحده را در سراسر خاورمیانه هدف حمله قرار داده است. با این حال، ترامپ این آمار و ارقام را نادرست خواند و تأکید کرد که از زمان آغاز عملیات «خشم حماسی» در ۲۸ فوریه ۲۰۲۶، ایران بین ۸۰۰۰ تا ۹۰۰۰ پهپاد انتحاری شلیک کرده که تنها ۲ عدد از آن‌ها توانسته‌اند از خط پدافند عبور کنند و تلفات آمریکایی‌ها نیز در همان روز نخست در کویت و عربستان سعودی رقم خورده است.
+@
+VahidOOnLine
+پست ترامپ، ترجمه ماشین:
+افراد جدیدی که اداره برنامه «۶۰ دقیقه» را بر عهده گرفته‌اند، حتی از پیشینیانشان هم بدترند. در گزارش اخیر درباره حمله‌ای در مراحل آغازین جنگ با ایران، واقعیت‌ها به‌درستی بیان نشده‌اند.
+از ۲۸ فوریه ۲۰۲۶، یعنی آغاز عملیات «خشم حماسی» (Epic Fury)، ایران بین ۸۰۰۰ تا ۹۰۰۰ پهپاد انتحاری شلیک کرده است. تنها دو فروند از آن‌ها توانستند از سد دفاعی عبور کنند و موجب کشته‌شدن نیروهای آمریکایی شوند. هر دو مورد در روز نخست رخ دادند و کویت و عربستان سعودی را هدف قرار دادند.
+همچنین ایران حدود ۲۰۰۰ موشک بالستیک شلیک کرده است. تنها یکی از این ۲۰۰۰ موشک توانست از سد دفاعی عبور کند و موجب کشته‌شدن نیروهای آمریکایی شود (در اردن).
+به عبارت دیگر: ۹۹٫۹۹ درصد موشک‌ها و پهپادهای ایرانی سرنگون شده‌اند یا در هر صورت، موجب کشته‌شدن آمریکایی‌ها نشده‌اند.
+تدابیر دفاعی فرماندهی مرکزی آمریکا (سنتکام) از نظر تاریخی به‌شکلی بی‌سابقه مؤثر بوده‌اند. هیچ‌کس در جهان توانایی دستیابی به چنین عملکرد موفقی را ندارد.
+تمام این موارد از «گزارش» برنامه «۶۰ دقیقه» حذف شده‌اند.
+از توجه شما به این موضوع سپاسگزارم.
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79127)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-16 17:47:48
+
+
+
+«علیرضا دبیر» در گفت‌وگو با خبرگزاری «فارس»، وابسته به سپاه پاسداران، گفت کسانی که می‌پرسیدند چرا نیروها به سوریه می‌روند، حالا دلیل آن حضور را فهمیده‌اند.
+او گفت شورای شهر در سال ۱۳۸۶ برای ساخت «پارک ایرانیان» در جنوب لبنان بودجه‌ای اختصاص داد. علیرضا دبیر می‌گوید اعتراض‌ها به هزینه‌کرد این پول در لبنان را با «قاسم سلیمانی» در میان گذاشت.
+به روایت علیرضا دبیر، قاسم سلیمانی خندید و گفت: «۳ میلیارد چه پولی است؟ این طفلک‌ها به‌خاطر ما ایستاده‌اند. روزی اگر نباشند، دشمنان سراغ ایران می‌آیند و ما را می‌زنند.»
+این روایت درحالی از سوی علیرضا دبیر نقل می‌شود که قیمت هر دلار آمریکا در سال ۱۳۸۶ حدود ۹۵۰ تومان (یعنی کمتر از یک هزار تومان) بود. به عبارتی شورای شهر برای ساخت یک پارک در لبنان بیش از ۳میلیون دلار هزینه کرد و قاسم سلیمانی حتی همین عدد را خنده‌دار می‌دانست.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79126)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-16 16:34:31
+
+
+
+ژان-نوئل بارو،‌ وزیر امور خارجه فرانسه روز دوشنبه ۲۵ آبان‌ماه گفت شواهد و مدارک دست داشتن ایران در حملات سایبری به یخچال‌های فروشگاه‌های این کشور را به دیپلمات‌های اروپایی ارائه خواهد کرد.
+بارو در آستانه نشست ماهانه وزرای امور خارجه اتحادیه اروپا در بروکسل گفت امیدوارم که تحریم‌های جدید علیه ایران به علت مشارکت در حملات سایبری ماه آینده (نیمه دوم آذر) تصویب و اجرا شوند.
+بارو می‌گوید اکثریت قریب به اتفاق وزاری امور خارجه اروپا، با این طرح همراهی می‌کنند.
+وزارت امور خارجه جمهوری اسلامی و سخنگوی سپاه پاسداران با رد اتهام پاریس مبنی بر مشارکت سپاه در حملات سایبری ماه گذشته به یخچال‌های چند فروشگاه فرانسوی، ادعا می‌کنند که این حملات «یک عملیات پرچم دروغین اسرائیل» بوده و با هدف ایجاد بدبینی در افکار عمومی اروپا علیه ایران انجام شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79125)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-16 16:06:30
+
+<img src="https://cdn4.telesco.pe/file/AJWwbYlFgqS-zpadOE7eCQgUgXRBsXO84KkwJ39Kd1TH9M41omEjf1W7wB3lNsgenAz3KIrOF-p-Lz0riT1fPh7sCdkrc98EH5bSIpK7e0uqEoN4vYlst5DULAyZ8L5PEz5V0hgAGmMOxzTB5ZsaT4vh67faYLunniXUQsMWPwc5YHMzmglxmSunyR7NpPz1-cU4hnsYM5g-_nwvmlF3HAqAG2977KvmKAdwXt98BycVgz2UZIcswjkgkJCzydTs2M0pVd0Md96bgs5QbVAT7ylmVBFnhuzI_0BuT9QZf7eojB1AP74r7pE9BScnrDyzNCNTi6kct88Jsc2HgVTd1A.jpg" width="400"><br>
+
+یک دادگاه در بحرین روز دوشنبه ۲۵ آبان، ۶۴ شهروند شیعه این کشور، از جمله ۵۷ روحانی، را به اتهام‌های مرتبط با «تروریسم» و ارتباط با سپاه پاسداران به حبس ابد محکوم کرد.
+مقام‌های بحرین متهمان را به «تشکیل گروه تروریستی، همکاری با سپاه پاسداران و تلاش برای سرنگونی نظام حکومتی» این کشور متهم کرده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79124)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-16 16:06:16
+
+<img src="https://cdn4.telesco.pe/file/G4bCRmsdUX2SO7V4-SzN_6NtJ84JcmqW0huAnKfST9TyFcGeqdmCf-qPqu1BJyzEHSZ1icatKd-PhTRBdTx9BYRHZMS0lBK1KnUsC4VanWPoxHh1ZaJndS4rIpte-kX13-NjR-xbAB9YqjK_YYxV_KNKS0PKWjQpHrMV4MyfqNfj3oXSy-zRg7HjwW-5B9z_mavll_L5ea3QZgTdwzWrF3wCiBUJrZBKKwBBDRf-zKSquein6y1d8wJVU06XMeka7Xj04oLJ_GvRHofGDyMd50k9tCbg8hxXy0lVePqdWhyahLqzV4VgHbMTZLFnqr-2CaSK3jc_XsSCopkVrS70kA.jpg" width="400"><br>
+
+«نازنین عابدینی»، مربی موسیقی کودکان و شهروند بهایی ساکن قائم‌شهر، به ۳ سال حبس و ۸ سال محرومیت از حقوق اجتماعی محکوم شده است.
+براساس گزارش رسیده به «ایران‌ وایر»، شعبه اول دادگاه انقلاب ساری، نازنین عابدینی را با استناد به ماده ۵۰۰ مکرر قانون مجازات اسلامی به سه سال حبس تعزیری و هشت سال محرومیت از حقوق اجتماعی محکوم کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79123)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-16 16:05:29
+
+<img src="https://cdn4.telesco.pe/file/NTcwpuxvVpk4HT7HEUKrn_esctqgzE6u1lqvRbVfj62mG6IfB4jQKDWFvF6rcprgmM6FYsV72Bj4ya95mpZKJ3i1IDaYQlNhleoYGoIAV9TbdQzbhydsslSsgX_Bs1JoklzxI7KfDguwlavGBqvI232Vv8zbkYU3u3DwyT-GNFUqIO5T0Yw4DoSC0GWV1w76TqBsmIhp_ty2T-EYdLFg0Q6r26RJWD_nHj07_Phw5WrJh0_oB615vrKgVTb8wal-hZnNVpAB59XYx-D1nn06e5IN3IbFC6X7DgylEw1CPENLsGWs7omTDiuE-71vR3JsgzC_Wi57DkIDA6pGpQVgCw.jpg" width="400"><br>
+
+«عباس موسوی»، وکیل «جواد علیکردی»، اعلام کرد دیوان عالی کشور درخواست فرجام‌خواهی موکلش را رد کرده و حکم «۱۸ سال حبس تعزیری»، «دو سال تبعید»، «محرومیت دایمی از وکالت» و «ممنوعیت خروج از کشور» برای این وکیل دادگستری را تایید کرده است.
+جواد علیکردی در پی سخنرانی و بیان مطالبی در مراسم برادرش، «خسرو علیکردی»، و در ارتباط با موضوعات مربوط به آن مراسم، با اتهام‌های سیاسی و امنیتی روبه‌رو شد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79122)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-15 18:55:32
 
-<img src="https://cdn1.telesco.pe/file/JjqCW7tmaT-AAkwG9kyPmLuVwQ-zjqb6gduc69dZ6tFtovCDjBtbODbIvZOMU0AWvfdygqX36PF6PR2iAU-Xmta_ZLx5CKIlDDAloNz160VOJnca3xpSccZYjNQcNky5GWPs_qJKReSZjoNApMHQxnOFqm8sBl8AtW4NBdTP5pM3p0G35BYaQbCGREUtvI3FgfuQel4W476hp4chRpYNK6TTtJEtCYmL_vxdHx_d2vUEDc2sAhjXdFnJyMkwED2ZIL2I9SHZuEljpaqTDxo7b42iHbx7YCef5QrIr_pHLhKxCPEWdYO93KpAbV2gbeibLwexN5R_lEhwIpvhIFEKEg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/n_2vOlQeC4hVO1oaRRBgEfifu0IlyQ4Ul7IQhjFG2M8adBtFpFXwuimxVyZjJqMUlja-lk9-yENWNNEeYafrEjjLhvheun0O_GTv4Rk-_F9Z1elEcdrRuatBm4HEAe3KWNKOfsEgkd_mdAF7jhbEJNN-ISSgLYlF1DGgDT7y-9vOgMLiBZoLXhebVQ2LzO8KPkckZzEGo0YE0axIPw9rQj-fZJTx9njTWMesqQ8hC6aXYg5TXHvoI27io4OV1HhYViz6LKl5U07UWRwuLbrJm_t8Ouyddlvgl27kg6oxSGm_-ZLUnRX5qgrDtJiUPTgDIR4X3Tt-AnA4jxb6GG12iQ.jpg" width="400"><br>
 
 پیام‌های دریافتی:
 وحید جان الان از قشم صدایی شبیه پرتاب موشک اومد
@@ -26,7 +216,7 @@
 
 ###### 🔵 Post time: 2026-11-15 16:28:29
 
-<img src="https://cdn1.telesco.pe/file/Kwsp5-tuCNVQ_hAPtbYaBcSMMCSFpLw_IsJ0gqWAMSIOWCsiUp7PobIvyInf1QnA2BsoXaWdXr6QGElq-jmqtu-ZDPz__BG0N-s1ArKGK588R3DyRT-imYnmbE0ft2IChJkEXJfgKXzmIr6TWKi-2YougXi9Pwq8GwcEEtgvJPsC_wbQSNbRXlRa2gdu8SFjcECRW3Fd30dFSTrNVB0w2Rb9AMAguUgJ19oawnBDIhxCjR-5lsfP5HZCZZ7Kl9yqgFCvkn4NVvh5a2gCq6_QrrBVNli0nAjANuvaXQqqyPMmnAbrjN1liOq9Dc0RsD2kWZWqHvjRqzVoeP8v60aGXA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/F_qw5g7w0RpKQ94RAl_dJAEBjP0erC-RlxNOyDmQU-GS-gndJPsCTg2lr9-Gmo_jV0z2GNqO1wrh_fpn1DO72PtYiPu3hZALkZlwMRGzsP0Bt0B_xU-Ul8G8CK64C51PryvDrRjk4Q0FcgmwY6du5NbRkr2kKC5BC0UrGE0rFGw70Rz8bdBsg08Z8_-XYL7s67hW20gbS1QmZi2FySuRoljjeLwNUJCJxjyDCQf3sbe11G5udndmek_ok2MbaoBvYtCbJho2P_Nep7r7dmJM9kx29lkmfZOf_MFSfwOu4jKQMmR5fP-Qe_p0eK1EhM6f5c8TcqquM-sBFMPXOGOPrw.jpg" width="400"><br>
 
 برای سومین بار در ۲۴ ساعت گذشته زمین‌لرزه  لواسان در شمال شرق تهران را لرزانده است.
 جدیدترین لرزش زمین ساعتی پیش گزارش شد که سازمان لرزه‌نگاری دانشگاه تهران بزرگی آن را ۳ ارزیابی کرده است.
@@ -170,7 +360,7 @@
 
 ###### 🔵 Post time: 2026-11-15 08:14:13
 
-<img src="https://cdn1.telesco.pe/file/pbIaKMFkNMeYdfuTBpwUcHRhoh9FohU3TWhZ_AMic9qOMdxGa2GDAaHmDSw4XjzpEX_42Z1-fp0XjhCV1ej2SEZE9JveIVYrbOZWdv3SgnCfUJQzT3ASajRHoDOThQ7xdR89w4pXG9QYuet5OExUN9i2VoUhgv9drZRPek1mazeCWZGdlpTgyjMVw0-1J3IPNsQCvhmrENxP4Rqg8ONmKD93B1BvR3hl4PEwcH9I6t-V_DoO3SpfN7wrjPhQm8uFw7ntr0KfRvn62QmW0o8MSWKfRn7AvnVP2J-fmvUZtd8p_7txuFGvF9eIw8GP8OQWRC0aHgesPJ9Fut2nXP6qEg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/sp5jx9vdV_TBLGG1IahWyNhQNpbF_gCGVUlqMCig7jjwaUrLP1KwMKCPmcAlxZPFeQ3rcaRHlt40HmwJrLddCC8uiKkY894vHHnnLmQB17EzO9zBa3fMKnHxcrYG5-dsd1nwIvZt4MqELQpT2POA4SsGyOBYabi8DsFL3s5jyPYPErwVlf6LsubkvxBsemtcoWCKkNNAZD-qxppZ_p-3PpWPNRCMbAT3nNIZWzx5Qfj33NuJhyv1gtQWNKoGYN0_H0xGNdRvDuQRjzbCDdKi8zU6S83sBsSm2dGUb15fHgAoNjgl4pjbDQROIQnFHdvV26RrMhUushH2M3U0LhE2ew.jpg" width="400"><br>
 
 وزارت کشور بحرین روز یکشنبه ۲۴ آبان برای نخستین بار از ماه سپتامبر دو هشدار درباره تهدیدهای احتمالی صادر کرد؛ همزمان سپاه پاسداران مدعی شد یک پایگاه نظامی آمریکا را در این کشور هدف حمله پهپادی قرار داده است.
 همزمان با انتشار بیانیه‌ای از طرف سپاه مبنی بر حمله به خاک بحرین در بامداد یک‌شنبه،‌ ۲۴ آبان‌ماه، خبرگزاری فرانسه از به صدا درآمدن آژیرها در منامه، پایتخت بحرین، خبر داده و نوشته است که چند مقام این کشور در شبکه‌های اجتماعی از مردم خواسته‌اند به پناهگاه بروند.
@@ -192,7 +382,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-15 02:21:18
 
-<img src="https://cdn4.telesco.pe/file/LbeN_3CXhrSi3ziOSSExj8iLT2FOI60PgOMUlyXinV6WqdcrDGuodcQFVGHJfehhDjBsgFeCF720y52otMo47stPCTu9x0yA2Mdw0tPXVihpQkV52rfdG3Y2HfRiOKEBxzD2srVJ2EWTeCDLZVEHWi_ke8oHKQoiByjPCJeHzMrB744GEUwd9Q1JXFxc1ntEJNDZ2zB8yITAUCTD9Q2QjybqNPWK9WQkLztXEOuxJpILXws5zIZlNdtRkdQcC0hjdeNPkVj1grePiXSMdbsFWmfjP3aIGXqa9MxgmXBAbm_FUTZ23pqCgFuv_z1zhmDHncrLh6gaaDzk9A8qY-uHGw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ln2oyicZsuDgxBJLbp19qrtdKMciIHa7LgAIZmwWYPmgXXt1WAFvuM-q8XdX4B-w8MGQcOE24csiwy4xV_0MoZGSEezJ8IagNON3knkcrZRTIiEkIX_1E594hiZA55oP2-WqzvX70l0KjbPPuFpw3sr0L3sAqZI-FmgheNJXGrPKP4ZCTUsOuWxQr0gNI2dT-4P4ZybBIm6oebU9Es3A6mo5PpGGyWDaiSJVyoRmOefQoidySLlQCsm0D5kpFFcxjiaQd7PDun9Ayb4kyQg6xZSORJcdTa7eW9nogkAyAV0ZOiP7bbnDxgxlKsDzP4QJ8i99J6fWZ73nY69fVF7PKw.jpg" width="400"><br>
 
 نیروی دریایی سپاه پاسداران، بامداد یکشنبه در بیانیه‌ای اعلام کرد که دو نفتکش که با سامانه‌های ناوبری و شناسایی خودکار خاموش قصد داشتند به‌طور مخفیانه از مسیر غیرمجاز تنگه هرمز عبور کنند، پس از برخورد با «مین‌های دریایی» در جنوب این تنگه منفجر شدند و دچار آتش‌سوزی شدید شدند. در ادامه این بیانیه آمده است که پس از انفجار این دو شناور، دو نفتکش دیگر که قصد تردد مخفیانه در این محدوده را داشتند، پس از دریافت اخطارهای مرکز کنترل تردد نیروی دریایی سپاه در تنگه هرمز، مسیر خود را تغییر داده و به سمت آب‌های خلیج فارس بازگشته‌اند.
 @
@@ -208,7 +398,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-15 00:56:06
 
-<img src="https://cdn1.telesco.pe/file/f4XjT_0ltBlxbUrbhggFinDI6Acw4qknTPo36PTnODtD_0fRKjqZH_pvAauXh8Ts99I3AJS3EfVHFCDZ0_i94V8rCeKwwx9l0NDj9beeDGTg9tomwFojMSgCiGOaykgrK1jomzRiu251907nynaeQQsLGOPOxu7BonubSSJ6kjQNHKsS1zDevcHDSDlAbqF31j6I5OWNu-zWl2DpIdGYLP3lCcMUX15snsBXYNseRrR-9j_oRgFSLmsYyvS4-iCBt-w5oIZNocqntv148Sxwv0ujq9FWrKimxfx1QRM6RYG80yL14tGf4PvgqZuhPAeCpB5m2Xi26444bWVTHmNzfA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/JElw3JAhYW1UFeniG56HXA_IfHbmYvHCKQW-5rhZfJjUCl9VKEfAWoEd_ZkhFNS5yUD634Tz0FDyf_YfBpBD2tml9drvhQUeEb5mGkvysWIYDb7ml_52wfSVCiJYJCiH9DxfjNFIrf-zqZuz0MgCVscRe8V4JtX6mJr47Y0hp7xUY8ScBtbAKGl5Jy51ruwCRcE8KgBOuq_wzFDIgUAWbVskksNeRSjA5s_W18FwWuy_b-iScXOAYJqBa6MDJtVG61YqIQZQymxh8nuf7Kc17HCglvfKKL2qIFatAJqt2XnirD7kQJ02pUzER1aCI1RXkj8I0r068T63_YQgkGBYOA.jpg" width="400"><br>
 
 رئیس اورژانس پیش‌بیمارستانی استان ایلام روز شنبه ۲۳ آبان‌ماه اعلام کرد که بر اثر واژگونی اتوبوس حامل کارکنان شرکت ان‌جی‌ال دهلران در جاده دشت‌عباس به مورموری، دست‌کم ۱۰ نفر جان باختند و ۱۸ نفر مصدوم شدند.
 به گزارش خبرگزاری فارس، این اتوبوس که سرویس رفت‌وآمد کارکنان شرکت ان‌جی‌ال دهلران بود، در محدودهٔ سه‌گر و حوالی چاه‌های نفت واژگون شد.
@@ -231,7 +421,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-14 17:46:43
 
-<img src="https://cdn1.telesco.pe/file/d8WY9C9Qf9H3i_x1HzHckKenqQt3XgXR7peWlgadXDPNX_FBmNoApAMa-v3eS_A0KPnE3On4i6JTo2dRFK1xNChyw78f-tvB-Krk51F7TcUdrsMxK4F_uh4twUVH9-XFTwvltBopwEdkyBmyJpLhE8n7mZgpfOl73xEmqcK4ev3tEyOgAoDWulG8ZQ1qBuZJ9sdEkTl0jwlyzwE9uyat4IT4GbDmoxBJSpqOIC55C-cpxY7UUomLbKYssYiOlkgnqcNK3FShzv2w_fxNNgt6BJnY6bJsyVqOyIkILQ4R9uhoF1U_9hIAmWuEXMP3yRRM_0P6sGDSt-0nMfeWZJE45g.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pFoOJrdf03TEPdQN06R5PtSaaFao7L26NvEwcPFkp0f8LTM8WR88pie25jdmS05_Jnk3yJfvntmch3fFw3vhFcHC8G17BUvZ3Nd-VA-43s1ahYSu5JRtq6VRewfUWHtFHns228EHpxK8aZQFzQORqWAp08A8f219YDQPzKussejSIiLXbJLK2B8fb7uqXDrb3VQH4QWnlB1AAZS9CR09ZiUfGFXXK2ez1QK8tSgNf1I8oCP_Vz4ydrZi29d2mkRcYEzbMuU2nfX9cFq1OYNFYcTrfRkWLcGjgQDSx3bVUP20KOnSvivpxns4D6LMtwHNqSxZy-K-twZq_SuA_WuNBg.jpg" width="400"><br>
 
 زلزله به بزرگی ۲٬۸ در عمق ۱۲ کیلومتری لواسان تهران
 پیش از آپدیت با تصویر بالا
@@ -268,111 +458,6 @@ VahidOOnLine
 
 
 [View Post](https://t.me/VahidOnline/79112)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-14 16:30:14
-
-<img src="https://cdn1.telesco.pe/file/FJkUzlKzSXcWR3hKj8UKAoxYEveYKkR6bQJGoAmdxA5ayZ2nXOXetA1ApUTWXdTOMM96xBqpdoudYAmXCu8EFVyL_8GTokn3nG3MDR1PZN43InVuMPcOrrJWnwQLkjv1_OsPUvTgWVe4W8mgOFprY2kh7uiZGRej1dmWp1z2FgEjkHA43FJ68wnPN1kQDZhYB5wnP9fo-WWjmxxzFupFLZc5x3F210mSeLZQ9nPJmyWZAD1hkdn1-FPqPw4RWtPGtCwiKm65ry54RSS25kb9sa98boSt7SH8YK8GsAUbUqafapbtLq66MTchDGZx-NOrEqdVUusz__hEtP9glott9w.jpg" width="400"><br>
-
-♦️
-خبرگزاری رویترز در گزارشی اختصاصی به نقل از سه منبع آگاه گزارش داده است که دونالد ترامپ، رئیس‌جمهوری آمریکا، در روزهای اخیر به مشاوران ارشد خود گفته است در صورتی که ایران یا حوثی‌های مورد حمایت تهران اقدام تحریک‌آمیز تازه‌ای علیه آمریکا انجام ندهند، ممکن است از صدور دستور حملات نظامی جدید علیه ایران خودداری کند.
-بر اساس این گزارش که روز شنبه ۲۳ آبان منتشر شد، ترامپ پس از برگزاری جلساتی با مشاوران امنیت ملی و دریافت گزارش‌های اطلاعاتی، در حال بررسی امکان خودداری از آغاز دور تازه حملات است. با این حال، او هنوز تصمیم نهایی درباره چگونگی پایان دادن به جنگی که در فوریه ۲۰۲۶ با مشارکت اسرائیل علیه ایران آغاز شد، اتخاذ نکرده است.
-ترامپ طی هفته‌های اخیر مواضع متفاوتی درباره آینده جنگ اتخاذ کرده است؛ گاهی از احتمال تشدید حملات و ازسرگیری عملیات نظامی گسترده سخن گفته و گاهی از پایان دادن به درگیری‌ها و استفاده از فشارهای اقتصادی به جای جنگ نظامی حمایت کرده است.
-به گفته منابع رویترز، او همچنین نسبت به درخواست متحدان منطقه‌ای آمریکا برای پرهیز از بازگشت به یک جنگ تمام‌عیار ابراز همدلی کرده است.
-یکی از بخش‌های مهم گزارش رویترز به تلاش‌های دیپلماتیک عربستان سعودی و ترکیه برای جلوگیری از آغاز مجدد حملات آمریکا علیه ایران مربوط است.
-بر اساس این گزارش، ترامپ طی دو هفته گذشته در تماس‌های تلفنی با شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی و رجب طیب اردوغان، رئیس‌جمهوری ترکیه، نظر آنها را درباره تحولات جنگ جویا شده است. هر دو رهبر از او خواسته‌اند حملات نظامی علیه ایران را از سر نگیرد.
-به گفته منابع مطلع، ترامپ در این تماس‌ها تعهد مشخصی درباره تصمیم نهایی خود نداده است.
-رویترز گزارش داده است که ترامپ در تماس ۹ آبان به شاهزاده محمد بن سلمان گفته بود قصد دارد پس از انتخابات میان‌دوره‌ای آمریکا حمله به ایران را از سر بگیرد، اما ولیعهد سعودی از او خواسته بود از این اقدام خودداری کند. شاهزاده بن سلمان معتقد بوده که تحریم‌های اقتصادی علیه ایران در حال اثرگذاری هستند و ادامه فشار اقتصادی می‌تواند نتایج موردنظر واشنگتن را بدون بازگشت به جنگ گسترده تأمین کند.
-اردوغان نیز از ۶ آبان تاکنون سه بار با ترامپ گفت‌وگو کرده است. در بیانیه رسمی ریاست‌جمهوری ترکیه درباره تماس ۱۶ آبان بر ضرورت پایان یافتن تنش‌ها میان ایران و آمریکا تأکید شده بود.
-با وجود احتمال خودداری ترامپ از آغاز حملات جدید، تحرکات نظامی آمریکا در منطقه متوقف نشده است.
-به گزارش رویترز، ارتش آمریکا در روزهای آینده یک ناو هواپیمابر سوم را به خاورمیانه اعزام می‌کند. این ناو قرار است جایگزین یکی از دو ناو هواپیمابر حاضر در منطقه شود، اما منابع مطلع گفته‌اند در صورت نیاز ممکن است هر سه ناو به‌طور هم‌زمان در منطقه باقی بمانند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79111)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-14 16:29:56
-
-<img src="https://cdn1.telesco.pe/file/BInSLGyol5Wm48SVKNqw14bWdJr7S7awAMo27JF2qMpcaTwptO5JZUk-BptC8TOSFLzUMcDCrIQ2jCnAUeyi00or0zZguU9v_-KrlGJPRIawB0vGJt2dehhR8ksw4pmkNQIBZllr7pU45DGTr40tDuhw2JbKff5gwk6sTap0rLtxY6U_wBvEYwWF7NWEclukgeAhG-yy2JrwxvzaxWfPi2NL7ICMRveqQAs-KZkE0t8gixIeEulnrKxBmlHbNrSmiRyH1ggUmwnkFrD2N6muJpb5r7dsGfiCSrKaye4Av_BDG98RRR4f_uqvmXXTgaIzLZJKyDpRphi80bpqTIMPmg.jpg" width="400"><br>
-
-محمدرضا عارف، معاون اول رئیس‌جمهوری، به مقام‌های دولتی دستور داد تا پیش از نهایی شدن تصمیم‌ها درباره بنزین و فرآورده‌های نفتی از اظهارنظر خودداری کنند و اعلام کرد مواضع رسمی دولت تنها باید از سوی سخنگوی دولت یا مدیرعامل شرکت ملی پالایش و پخش فرآورده‌های نفتی منتشر شود.
-این دستور پس از چند روز اظهارات متفاوت مقام‌های دولتی درباره آینده کارت‌های سوخت، سهمیه‌ها و نحوه دسترسی مردم به بنزین صادر شده است.
-دولت پیش‌تر نیز در شهریور اعلام کرده بود فقط سخنگوی دولت و مدیرعامل شرکت ملی پالایش و پخش فرآورده‌های نفتی، اجازه دارند سیاست‌ها و تصمیم‌های رسمی درباره بنزین را اعلام کنند.
-بحث تازه پس از سخنان اسماعیل سقاب اصفهانی، معاون رئیس‌جمهوری و رئیس سازمان بهینه‌سازی و مدیریت راهبردی انرژی، بالا گرفت. او پنجشنبه گفت مردم دیگر نمی‌توانند مانند گذشته به کارت‌های سوخت جایگاه‌ها متکی باشند و برای سفر باید مصرف بنزین خود را از قبل برنامه‌ریزی کنند.
-سقاب اصفهانی تأیید کرد کارت‌های جایگاه در برخی استان‌ها جمع‌آوری شده و گفت دولت در شرایط فعلی با محدودیت واقعی تأمین سوخت روبه‌رو است.
-طرح محدود کردن کارت‌های اضطراری اکنون در ۱۱ استان اجرا می‌شود. همزمان، ۵۰ لیتر بنزین با نرخ سوم ۱۰ هزار تومان به کارت شخصی خودروهای مشمول اضافه شده است. سهمیه‌های اصلی فعلاً شامل ۶۰ لیتر بنزین ۱۵۰۰ تومانی و ۵۰ لیتر بنزین ۳۰۰۰ تومانی است.
-این تغییر عملاً بخشی از دسترسی به بنزین آزاد از طریق کارت جایگاه را به کارت شخصی منتقل می‌کند و برای رانندگانی که بیش از سهمیه ماهانه مصرف می‌کنند، هزینه بالاتری ایجاد می‌کند.
-رسانه‌های داخل کشور نیز درباره مشکلات سفرهای پیش‌بینی‌نشده، خودروهای عبوری و افرادی که کارت شخصی در اختیار ندارند پرسش‌هایی مطرح کرده‌اند. روزنامه جام‌جم نوشت محدودیت کارت‌های جایگاه می‌تواند برنامه سفر شهروندان را مستقیماً تحت تأثیر قرار دهد.
-این اقدامات در حالی ادامه دارد که عارف در مرداد گفته بود دولت قصد کاهش سهمیه اول را ندارد، اما سهمیه دوم باید به‌تدریج کاهش یابد، زیرا «راهبرد دولت» در بلندمدت حرکت به سمت آزادسازی قیمت‌هاست.
-او همچنین اذعان کرده بود هر تغییر در قیمت بنزین می‌تواند مستقیم یا غیرمستقیم بر قیمت سایر کالاها اثر بگذارد.
-دولت تاکنون تعیین «نرخ چهارم» را تکذیب کرده و گفته اصلاحات بنزینی باید تدریجی و بدون شوک قیمتی انجام شود. با این حال، نرخ سوم از پنج هزار به ۱۰ هزار تومان افزایش یافته، کارت‌های آزاد در بخشی از کشور محدود شده و مقام‌های دولت از کاهش تدریجی سهمیه دوم و آزادسازی بلندمدت قیمت سخن گفته‌اند.
-این سیاست‌ها با انتقادهایی در مجلس نیز روبه‌رو شده است. محمدباقر قالیباف پیش‌تر گفته بود افزایش قیمت بنزین به تنهایی «تدبیر حساب‌شده‌ای» نیست و مدیریت مصرف باید با کمترین فشار و نارضایتی برای مردم انجام شود.
-شماری از نمایندگان نیز در نامه‌ای به مسعود پزشکیان هشدار داده بودند افزایش قیمت سوخت در شرایط کنونی می‌تواند فشار بیشتری بر معیشت خانوارها وارد کند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79104)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-14 00:45:16
-
-<img src="https://cdn1.telesco.pe/file/E9k0NopqwRezNpC8053WOf8fFuiPryIO51OSgsPpX95enc2qKViYxUwvdVQJ4hEj6tmN3OOyXB0zR1a3-wqpTL4r7tpP5r9wz310LeKjMLy91-wWVw5DKtmzaGG2VyDHbxgAVdOg-vHhlaKigay7nkIdIgII85rIxYZDq8J--XUuUlhTzPaye4FRKYjClVKDqNPFmywO3IJGTsN3DG-gXo0LwC9PMFys0atf9B6JbUrEBt7k1zlXAHv2jC28trYBDyV93bW6JgzVnv9MJxP8AvQ6idOWqBfdILPvC0BgbTmFAtnqgISiDr69SoztK7mRYAx2pjSCJUnbBkoY9-ytdA.jpg" width="400"><br>
-
-به گزارش رویترز، شان دافی، وزیر ترابری ایالات متحده، روز جمعه ۲۲ آبان اعلام کرد اداره هوانوردی فدرال (FAA) به دلیل بروز «اختلال ارتباطی» که تمامی مراکز کنترل ترافیک مسیرهای هوایی را تحت تأثیر قرار داده است، دستور توقف سراسری پروازها را برای تمامی فرودگاه‌های آمریکا صادر کرده است. دافی افزود کارشناسان فنی اداره هوانوردی فدرال در حال بررسی این مشکل هستند.
-اداره هوانوردی فدرال آمریکا نیز در اطلاعیه‌ای هشدار داد که به دلیل از کار افتادن تجهیزات، مسافران و کاربران باید انتظار ماندن هواپیماها در آسمان را پیش از فرود در تمامی فرودگاه‌های سامانه حریم هوایی ملی داشته باشند.
-@
-VahidOOnLine
-مارک‌وین مولین، وزیر امنیت داخلی ایالات متحده، که هم‌اکنون در کاخ سفید در حال گفتگو با خبرنگاران است، می‌گوید هیچ نشانه‌ای وجود ندارد که اختلال در شبکه ارتباطی فرودگاه‌های این کشور بر اثر حمله‌ای علیه ایالات متحده بوده باشد.
-او گفت: «این یک اختلال در شبکه مخابراتی است.»
-@
-VahidOnLive
-آپدیت:
-اداره هوانوردی فدرال آمریکا اعلام کرد که دستور توقف سراسری برخاستن هواپیماها در این کشور، پس از بیش از چهار ساعت لغو شده است.
-این دستور به دلیل اختلال در سامانه‌های ارتباطی صادر شده بود و به موجب آن، هواپیماهای پروازهای داخلی آمریکا اجازه برخاستن از فرودگاه‌ها را نداشتند.
-اختلال در ارتباطات مخابراتی و توقف پروازها باعث شد هزاران پرواز در فرودگاه‌های بزرگ آمریکا با تاخیر مواجه شوند یا لغو شوند.
-لغو دستور توقف سراسری به این معناست که هواپیماها می‌توانند بار دیگر اجازه برخاستن دریافت کنند، اما به معنای بازگشت فوری تمام پروازها به برنامه عادی نیست.
-@
-VahidOOnLine
-شان دافی، وزیر ترابری ایالات متحده، در نشست خبری در کاخ سفید درباره علت توقف سراسری پروازها در این کشور گفت: «به دلیل این ناپایداری، از سر احتیاط فراوان و برای تضمین امنیت مسافران آمریکایی، دستور توقف پروازها را صادر کردیم.» او با رد شایعات درباره علت این رخداد افزود: «ما با یک سامانه کنترل ترافیک هوایی به‌شدت قدیمی روبه‌رو هستیم که بر پایه مخابرات آنالوگ (قدیمی) کار می‌کند. سوئیچ‌ها و روترهای ما دچار بارگذاری بیش‌ازحد داده‌ها شدند و اطلاعات ناهماهنگ فرستادند و به همین دلیل سامانه را خاموش کردیم.» دافی خطاب به کنگره گفت: «این موضوع نه حزبی است و نه دموکرات و جمهوری‌خواه، بلکه مسئله‌ای آمریکایی است. منابع مالی را در اختیار ما بگذارید تا یک سامانه کنترل ترافیک هوایی کاملاً مدرن و پیشرفته بسازیم.»
-مارکوین مولین، وزیر امنیت داخلی آمریکا نیز در پاسخ به سوالی درباره احتمال دست‌داشتن ایران در این اختلال گفت که «چنین نشانه‌ای دیده نشده است.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79103)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-14 00:12:03
-
-<img src="https://cdn1.telesco.pe/file/KQ41VZOgv5kvD10YHDxDrI8XOlwYFQN1nETqloQQW2X4ZJ6NJexo_3vG9MFMXv_Qb7KrOq9d2Eml8-k7sw8rtdvnMPqGIk_XGSv20DPpUunr67zZK_hdtRwozY3tKZIWt3sT22rAJwpPRgpJ0co4kXsbpMjrE8hndFeLyvIkAyNkOn7d4Ssi-yk58__lvs6GkGkEYhq9EBwAyrcf75Ww303BYhoQks7j7ZNDFcsZq721Eutcd3juFLQC1eD74z-euf4wNrTCmeQv_uihoFtPUheMzX81_ZuCPcxY_SAfv6U7O1z9AE2JGfMxZuWemgnjyi6x4nlIO2cR4_2NMx7l2g.jpg" width="400"><br>
-
-نیروی هوایی آمریکا اعلام کرد که عصر روز جمعه به «فعالیت مشکوک پهپاد غیرمجاز» بر فراز پایگاه نیروی هوایی سلطنتی لیکن‌هیث در سافولک واکنش نشان داده است.
-سخنگوی نیروی هوایی آمریکا اعلام کرد: «هیچ‌یک از نیروها، هواپیماها یا زیرساخت‌ها در جریان این واقعه آسیب ندیده‌اند.»
-این اقدام پس از گزارش‌های تایید نشده مبنی بر به صدا درآمدن آژیر خطر در این پایگاه صورت گرفته است که ساکنان گزارش داده‌اند از روستایی در نزدیکی شنیده شده است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79102)
 
 ---
 
