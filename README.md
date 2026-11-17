@@ -3,8 +3,59 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-17 08:23:39 </h5>
+<h5> 🟢 Updated at: 2026-11-17 17:29:37 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-17 17:16:15
+
+<img src="https://cdn1.telesco.pe/file/mHiH7tu0KYbhdsRpcoQfFvZH9rm02rGlahLTWDC7H4edeVkzyEG3V3ntkaZPqvqykV4NIvFvOwj3AJ92rCbEtlsWLtPZndNkWs5VLMSz-bunRuQOt47n6TYwrt5iRMY6GMMrulDXrTNgEi1WZzy0tqUWt9fuNewAok7STaXEM_2ACV4HMizZMfbmw-GN9PVAlaywT_vTruWyDYJiaqLVrwuUDFMiMVnA7n4520Er1fQ1nke02RaFMuuMTSCT-y4Ft_9Lk3k-Mu9W9grTLAtRlxbKOPO-i6TgpwyE7aklNnlidjwKt5I3NLDaO5R5uMz8H7MvneHqryFScIxFz18ZEg.jpg" width="400"><br>
+
+پیام‌های دریافتی از ۱۶:۲۲
+همین الان صدای انفجار اومد قشم
+دوتا افنجار قشم
+پشت سرهم دارن میزنن قشم رو سومی
+وحید قشم کوبوندن چند بارر
+تا 4/23 پنج‌تا انفجار خیلی شدید توی شهر قشم، احتمال میدم سایت پدافند نریمان قشم بوده.
+مثل روزای اول جنگ بود
+تا الان صدای ۴ تا انفجار وحشتناک از قشم
+سلام وحید جان الان ۴ و ۲۳ دقیقه پنج باری قشم رو زدن
+صدای انفجار زیاد قشم
+با دود شدید سفید
+سلام وحید قشم
+چهارتا انفجار شدید داشتیم
+شیش تا صدای انفجار تو قشم اومد الان
+سلام قشم ۵ بار صدای شدید انفجار اومد
+همین الان
+قشمو ۶ بار زدن
+دو سه دقیقه پیش خیلی موج انفجار بالا بود همه چی لرزید
+بالای ۷ تا انفجار داخل قشم پدافند نریمان و گمرک قشم
+دود قشنگ معلوم کل شهر
+هوا هم اینقدر صافه هم موشک و دیدم هم دود هم پخش شدن تیکه های جایی که بمب برخورد کرد
+سلام قشمو زدن
+پدافندو زدن
+پریروز دوتا لانچر اورده بودن جلوی پدافند که مردم میدیدن
+حدود 6 تا زدن چه بسا بیشتر
+صدای چندین انفجار در قشم
+وحید  ۵ تا موشک زدن، فکر کنم پدافند نریمان رو زدن
+دوباره پدافند قشم رو زدن ۵بار صدا اومد
+درود الان قشم ۵تا انفجار شدید بود خونه لرزید
+۱۵ دقیقه پیش ۴ بار صدای انفجار توی شهر قشم اومد
+خیلی صدای وحشتناکی بود و دود انفجارش هنوز روی شهر مشخصه
+انگار پدافند توی شهر رو زدن
+وحید جان پدافند قشمو زدن خیلی صداش وحشتناک بود
+سلامممم قشم صداهای ممتد انفجار وحشتناک
+چند بار قشمو زدن
+پنج انفجار در قشم
+ساعت 16:24 دقیقه پنج انفجار پدافند هوایی نریمانو زدن
+پنج یا شش  پشت هم تا انفجار  سمت پدافند قشم یه ربع پیش
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79135)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-17 03:08:01
@@ -59,9 +110,21 @@ VahidOOnLine
 
 
 پست قالیباف، ترجمه ماشین:
+‌
 عملیات‌های پرچم دروغین دوباره در راه‌اند. سوداگران خون پشت میکروفن‌ها رفته‌اند. این کارزاری مبتنی بر عذاب وجدان دادن و باج‌گیری است تا آمریکایی‌ها را به‌خاطر مخالفت با جنگ علیه ایران و «نه» گفتن به سیاست‌هایی که اسرائیل را در اولویت قرار می‌دهند، شرمسار کنند.
 آن‌ها می‌خواهند نقش آدم ابلهی را که فریب می‌خورد به شما بدهند. این نقش را نپذیرید.
 mb_ghalibaf
+در پستی دیگر با انتشار
+مطلبی از نیویورک تایمز
+:
+در حال آماده‌سازی دور بعدی حملات به زیرساخت‌های غیرنظامی هستند و «کارشناسانشان» به نیویورک‌تایمز می‌گویند: «سدهای نزدیک به پایگاه‌های موشکی ایران کاربرد دوگانه دارند.»
+خیلی خب. قانون جدید: هر سد، بندر یا نیروگاهی که نزدیک یک پایگاه آمریکایی یا اسرائیلی باشد، کاربرد دوگانه دارد. ما هم منطق شما را به‌طور یکسان و بدون تبعیض به کار خواهیم بست.
+mb_ghalibaf
+پیش‌ترر:
+نیویورک‌تایمز به نقل از کارشناسانی که همپوشانی میان محل زیرساخت‌های آبی ایران و مناطق هدف حملات هوایی آمریکا و اسرائیل را شناسایی کرده‌اند، گزارش داد که شبکه گسترده سدها و پروژه‌های انتقال آب در ایران ممکن است تا حدی با هدف پشتیبانی از پایگاه‌های موشکی زیرزمینی ساخته شده باشد.
+کارشناسان حوزه آب و امور نظامی به این روزنامه گفتند پروژه‌هایی که توجیه غیرنظامی مشخصی برای ساخت آن‌ها وجود ندارد، می‌توانند به تداوم فعالیت تاسیسات نظامی زیرزمینی ایران کمک کنند. با این حال، این گزارش تاکید کرد که ارتباط میان این پروژه‌ها و تاسیسات نظامی همچنان در حد گمانه‌زنی است.
+@
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -212,7 +275,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-16 16:06:30
 
-<img src="https://cdn4.telesco.pe/file/AJWwbYlFgqS-zpadOE7eCQgUgXRBsXO84KkwJ39Kd1TH9M41omEjf1W7wB3lNsgenAz3KIrOF-p-Lz0riT1fPh7sCdkrc98EH5bSIpK7e0uqEoN4vYlst5DULAyZ8L5PEz5V0hgAGmMOxzTB5ZsaT4vh67faYLunniXUQsMWPwc5YHMzmglxmSunyR7NpPz1-cU4hnsYM5g-_nwvmlF3HAqAG2977KvmKAdwXt98BycVgz2UZIcswjkgkJCzydTs2M0pVd0Md96bgs5QbVAT7ylmVBFnhuzI_0BuT9QZf7eojB1AP74r7pE9BScnrDyzNCNTi6kct88Jsc2HgVTd1A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Zyll2vVjy4JeIYRg5dD3y50ZIwpwq_TLqsJ8wbYy6J9gV7QK-3VhXCftR7Kt8kGF_hz4aOrq0ZXm7qwQwtsFxPs2WxQPsVi0yuopne6dRSAaKuumy1JvCdD_v7gk40Qg-E-dZgJ5Ud5_ww475EEgbk_QdZGOmUITVdIuMsU3FbILqq9VATHsYF6zFfp4ZibWK6kIuc7f-yeWrqZ_GG7W8onBoNSr7ZPN--iDeYNjHOdVPj3GVQYxQHEkb9FoifSE3qG35RORNcSTYZQa2aO6smfnb7odd1BwyZozIFyRlgLadXxagUwonzuKmWT-_suZsxjDZQ5mVVSNFfFOyHIETA.jpg" width="400"><br>
 
 یک دادگاه در بحرین روز دوشنبه ۲۵ آبان، ۶۴ شهروند شیعه این کشور، از جمله ۵۷ روحانی، را به اتهام‌های مرتبط با «تروریسم» و ارتباط با سپاه پاسداران به حبس ابد محکوم کرد.
 مقام‌های بحرین متهمان را به «تشکیل گروه تروریستی، همکاری با سپاه پاسداران و تلاش برای سرنگونی نظام حکومتی» این کشور متهم کرده‌اند.
@@ -229,7 +292,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-16 16:06:16
 
-<img src="https://cdn4.telesco.pe/file/G4bCRmsdUX2SO7V4-SzN_6NtJ84JcmqW0huAnKfST9TyFcGeqdmCf-qPqu1BJyzEHSZ1icatKd-PhTRBdTx9BYRHZMS0lBK1KnUsC4VanWPoxHh1ZaJndS4rIpte-kX13-NjR-xbAB9YqjK_YYxV_KNKS0PKWjQpHrMV4MyfqNfj3oXSy-zRg7HjwW-5B9z_mavll_L5ea3QZgTdwzWrF3wCiBUJrZBKKwBBDRf-zKSquein6y1d8wJVU06XMeka7Xj04oLJ_GvRHofGDyMd50k9tCbg8hxXy0lVePqdWhyahLqzV4VgHbMTZLFnqr-2CaSK3jc_XsSCopkVrS70kA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/FWNwqXAQvBryHVNGvxExgFLsV2Q8Jag3Ed4stH8NzBH1uxY6sWCULztalwNwgm4bB4d41TWW_zuZQK50Bjxx7MxKWgi3e8k3yytM-dI3h7VL1LQ7KlJ5_l5NCK-zWyxAE7FS9DqYXFVSdbt3pTFvjSsvtdVDlWMtY8EEMmvm6_Ul7OdO6muF3qqIMkuDNHlyj7WgExKB0-Pa6aCaf5OhwR-VDV2YbGZKbG6nCm2vk-8r7_xrEbQJGUQS7FaCm73G16WOdWhuuHQhmQkf1r9TrRmNhP-aUDGe5oYYBM8PlTajhFgK6Hv8WKGRMduMCuoSREF3en37o56lIYGscFGpxg.jpg" width="400"><br>
 
 «نازنین عابدینی»، مربی موسیقی کودکان و شهروند بهایی ساکن قائم‌شهر، به ۳ سال حبس و ۸ سال محرومیت از حقوق اجتماعی محکوم شده است.
 براساس گزارش رسیده به «ایران‌ وایر»، شعبه اول دادگاه انقلاب ساری، نازنین عابدینی را با استناد به ماده ۵۰۰ مکرر قانون مجازات اسلامی به سه سال حبس تعزیری و هشت سال محرومیت از حقوق اجتماعی محکوم کرده است.
@@ -246,7 +309,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-16 16:05:29
 
-<img src="https://cdn4.telesco.pe/file/NTcwpuxvVpk4HT7HEUKrn_esctqgzE6u1lqvRbVfj62mG6IfB4jQKDWFvF6rcprgmM6FYsV72Bj4ya95mpZKJ3i1IDaYQlNhleoYGoIAV9TbdQzbhydsslSsgX_Bs1JoklzxI7KfDguwlavGBqvI232Vv8zbkYU3u3DwyT-GNFUqIO5T0Yw4DoSC0GWV1w76TqBsmIhp_ty2T-EYdLFg0Q6r26RJWD_nHj07_Phw5WrJh0_oB615vrKgVTb8wal-hZnNVpAB59XYx-D1nn06e5IN3IbFC6X7DgylEw1CPENLsGWs7omTDiuE-71vR3JsgzC_Wi57DkIDA6pGpQVgCw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ucpyqH_uPjlDrV72aHXPzCAzJhtpy2g3uYuiE-X2OakhAVaVqKNUQsxrYkRkicSXqy1MMpCOEdTFW_lCNaS8vOVC0Fr2zygRNa2w2Lk5SbyDkkAJsZ1YPk8A__d26BqLEl6SyQWxCyEsa7H3D_hxrCLzR5eGBJqBoRxTw1dXqUPvBq0LPFywFa7EtD4opvy90YOnBch1gJsxwlWAYkutomBtHcUM2BSR3CtYs1GYqkDzWPO-xfV1qTvjO1P6Zh5ro1Z-5qMPszraMrvv8tbrki15laslRD0xKsniCQc4ytRZq_qujNGf825n-dtawqiS_falMwJStCOBFwQYQqEtsw.jpg" width="400"><br>
 
 «عباس موسوی»، وکیل «جواد علیکردی»، اعلام کرد دیوان عالی کشور درخواست فرجام‌خواهی موکلش را رد کرده و حکم «۱۸ سال حبس تعزیری»، «دو سال تبعید»، «محرومیت دایمی از وکالت» و «ممنوعیت خروج از کشور» برای این وکیل دادگستری را تایید کرده است.
 جواد علیکردی در پی سخنرانی و بیان مطالبی در مراسم برادرش، «خسرو علیکردی»، و در ارتباط با موضوعات مربوط به آن مراسم، با اتهام‌های سیاسی و امنیتی روبه‌رو شد.
@@ -280,7 +343,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-15 16:28:29
 
-<img src="https://cdn1.telesco.pe/file/F_qw5g7w0RpKQ94RAl_dJAEBjP0erC-RlxNOyDmQU-GS-gndJPsCTg2lr9-Gmo_jV0z2GNqO1wrh_fpn1DO72PtYiPu3hZALkZlwMRGzsP0Bt0B_xU-Ul8G8CK64C51PryvDrRjk4Q0FcgmwY6du5NbRkr2kKC5BC0UrGE0rFGw70Rz8bdBsg08Z8_-XYL7s67hW20gbS1QmZi2FySuRoljjeLwNUJCJxjyDCQf3sbe11G5udndmek_ok2MbaoBvYtCbJho2P_Nep7r7dmJM9kx29lkmfZOf_MFSfwOu4jKQMmR5fP-Qe_p0eK1EhM6f5c8TcqquM-sBFMPXOGOPrw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/sGKQaOjvCvliBnj8OeCKFyzCBvT_QqMt_oYR6Ggn6rmLSxW77NrBxfExUlv0NYWSsOJ8ukDfO8OVCB_2S4DFrk6jLV4sFC65MrMyu3gouMv7LclT24GvA2cL5sJox3EYG7yLVSftghOHbQvljqBjRGobmWQIrmj-ZPG09Mjq0YdicyGBARte9RUumB2DcX4D8PEzTXKoCaR4OzW8cKwEtdJX9QviANhI3dULFE6bAl0lFYiFVVN6uj6MT4iwn-EtTX4Y4-eadxM4hkw3mzxCFDVia0Edvf_WHHc_coN2CHar2rMNuN4qnwRkOz-pmRqxvgYsrmvj4yDE8MaTnvyRHQ.jpg" width="400"><br>
 
 برای سومین بار در ۲۴ ساعت گذشته زمین‌لرزه  لواسان در شمال شرق تهران را لرزانده است.
 جدیدترین لرزش زمین ساعتی پیش گزارش شد که سازمان لرزه‌نگاری دانشگاه تهران بزرگی آن را ۳ ارزیابی کرده است.
@@ -424,7 +487,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-15 08:14:13
 
-<img src="https://cdn1.telesco.pe/file/sp5jx9vdV_TBLGG1IahWyNhQNpbF_gCGVUlqMCig7jjwaUrLP1KwMKCPmcAlxZPFeQ3rcaRHlt40HmwJrLddCC8uiKkY894vHHnnLmQB17EzO9zBa3fMKnHxcrYG5-dsd1nwIvZt4MqELQpT2POA4SsGyOBYabi8DsFL3s5jyPYPErwVlf6LsubkvxBsemtcoWCKkNNAZD-qxppZ_p-3PpWPNRCMbAT3nNIZWzx5Qfj33NuJhyv1gtQWNKoGYN0_H0xGNdRvDuQRjzbCDdKi8zU6S83sBsSm2dGUb15fHgAoNjgl4pjbDQROIQnFHdvV26RrMhUushH2M3U0LhE2ew.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/HKoFVAOKrSiQn_nCg4SAjctMUOWhoyu59UktUgU7OOASAFxGpwqpI1OLNDyY8ipJjkGxvAOg8kan_lDWCmDt5Fe0Ob1UocEEkeUbe04mvp4Z2EjK7vxG3KcnyxV93GzfpQTOJ0Mq5bv3DmQ9pMD8Iox8oGWF08rjUfsrZ2lvlRfeM2_cNyZD-QErq30-PvBrJdfU8rEQ3N-Lor9f4zzlJOv92zGQfIjznbYQqqy64H9i_A9m-kszIX09_tRXqEQw46Hx4s0pmyrQhQRSn_nP2bHR163Hby3Gu2TBrXblSxtL7ZEAJJa2dKACjxXQHM5Mvnl6Wa_-a0QJaB9KcjLwUQ.jpg" width="400"><br>
 
 وزارت کشور بحرین روز یکشنبه ۲۴ آبان برای نخستین بار از ماه سپتامبر دو هشدار درباره تهدیدهای احتمالی صادر کرد؛ همزمان سپاه پاسداران مدعی شد یک پایگاه نظامی آمریکا را در این کشور هدف حمله پهپادی قرار داده است.
 همزمان با انتشار بیانیه‌ای از طرف سپاه مبنی بر حمله به خاک بحرین در بامداد یک‌شنبه،‌ ۲۴ آبان‌ماه، خبرگزاری فرانسه از به صدا درآمدن آژیرها در منامه، پایتخت بحرین، خبر داده و نوشته است که چند مقام این کشور در شبکه‌های اجتماعی از مردم خواسته‌اند به پناهگاه بروند.
@@ -439,45 +502,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79117)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-15 02:21:18
-
-<img src="https://cdn4.telesco.pe/file/ln2oyicZsuDgxBJLbp19qrtdKMciIHa7LgAIZmwWYPmgXXt1WAFvuM-q8XdX4B-w8MGQcOE24csiwy4xV_0MoZGSEezJ8IagNON3knkcrZRTIiEkIX_1E594hiZA55oP2-WqzvX70l0KjbPPuFpw3sr0L3sAqZI-FmgheNJXGrPKP4ZCTUsOuWxQr0gNI2dT-4P4ZybBIm6oebU9Es3A6mo5PpGGyWDaiSJVyoRmOefQoidySLlQCsm0D5kpFFcxjiaQd7PDun9Ayb4kyQg6xZSORJcdTa7eW9nogkAyAV0ZOiP7bbnDxgxlKsDzP4QJ8i99J6fWZ73nY69fVF7PKw.jpg" width="400"><br>
-
-نیروی دریایی سپاه پاسداران، بامداد یکشنبه در بیانیه‌ای اعلام کرد که دو نفتکش که با سامانه‌های ناوبری و شناسایی خودکار خاموش قصد داشتند به‌طور مخفیانه از مسیر غیرمجاز تنگه هرمز عبور کنند، پس از برخورد با «مین‌های دریایی» در جنوب این تنگه منفجر شدند و دچار آتش‌سوزی شدید شدند. در ادامه این بیانیه آمده است که پس از انفجار این دو شناور، دو نفتکش دیگر که قصد تردد مخفیانه در این محدوده را داشتند، پس از دریافت اخطارهای مرکز کنترل تردد نیروی دریایی سپاه در تنگه هرمز، مسیر خود را تغییر داده و به سمت آب‌های خلیج فارس بازگشته‌اند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79116)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-15 00:56:06
-
-<img src="https://cdn1.telesco.pe/file/JElw3JAhYW1UFeniG56HXA_IfHbmYvHCKQW-5rhZfJjUCl9VKEfAWoEd_ZkhFNS5yUD634Tz0FDyf_YfBpBD2tml9drvhQUeEb5mGkvysWIYDb7ml_52wfSVCiJYJCiH9DxfjNFIrf-zqZuz0MgCVscRe8V4JtX6mJr47Y0hp7xUY8ScBtbAKGl5Jy51ruwCRcE8KgBOuq_wzFDIgUAWbVskksNeRSjA5s_W18FwWuy_b-iScXOAYJqBa6MDJtVG61YqIQZQymxh8nuf7Kc17HCglvfKKL2qIFatAJqt2XnirD7kQJ02pUzER1aCI1RXkj8I0r068T63_YQgkGBYOA.jpg" width="400"><br>
-
-رئیس اورژانس پیش‌بیمارستانی استان ایلام روز شنبه ۲۳ آبان‌ماه اعلام کرد که بر اثر واژگونی اتوبوس حامل کارکنان شرکت ان‌جی‌ال دهلران در جاده دشت‌عباس به مورموری، دست‌کم ۱۰ نفر جان باختند و ۱۸ نفر مصدوم شدند.
-به گزارش خبرگزاری فارس، این اتوبوس که سرویس رفت‌وآمد کارکنان شرکت ان‌جی‌ال دهلران بود، در محدودهٔ سه‌گر و حوالی چاه‌های نفت واژگون شد.
-مدیر حوادث دانشگاه علوم پزشکی ایلام از وخامت حال چند نفر از مصدومان خبر داد و اعلام کرد که مجروحان در بیمارستان‌های استان‌های ایلام و خوزستان تحت درمان قرار گرفته‌اند.
-@
-VahidOOnLine
-قبل از اینکه خبر اولیه سه کشته اعلام بشه در پیام‌ها اعداد دو رقمی می‌نوشتند.
-گفته میشه همه کشته‌شدگان اهل آبدانان بودند.
-به نوشته منابع حکومتی، یک روز عزای عمومی در استان ایلام و دو روز عزای عمومی در آبدانان اعلام شد.
-آپدیت:
-۸:۳۰ صبح تعداد کشته‌شدگان اعلام شده به ۱۲ نفر رسید.
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79114)
 
 ---
 
