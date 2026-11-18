@@ -3,8 +3,53 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-18 16:12:39 </h5>
+<h5> 🟢 Updated at: 2026-11-19 00:30:05 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-18 18:21:10
+
+<img src="https://cdn1.telesco.pe/file/eHwTjLnMVOEivi3nAExYhJOG1Em2RTrw9d6HjQHie_sG-rRNrUaI5mXaA3iFzcTbQM3lHBUv6YHU9Og9F72XXt6ACgEYfaASFDtCc31kAOQkLpsDEgzrGMPl7-4MPwZv_Gvo-cTK96c5U68uN8MnMOn6XR3gHNAeRe1cKVlLrH8CsnWy-hdd7WWEVSjtjgpfqUxgTeRtU4ZOHQTk70MB6tE1kXNKLyN2FmQtHZXNYz_-zff0z91G7SjU1Z2pQfAiYjnRqZyARISMMPkoe8VDV0GhT1_DDQkfikHmolHg4C0VHJPy8Qz1SnInloFx4w78be7reVYEnUAJQZbef1qAJQ.jpg" width="400"><br>
+
+رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، روز چهارشنبه ۲۷ آبان اعلام کرد که این نهاد، به‌استثنای نیروگاه هسته‌ای بوشهر، نه اطلاعاتی از ایران درباره وضعیت مواد و تأسیسات هسته‌ای اعلام‌شده دریافت کرده و نه به این تأسیسات برای انجام بازرسی و راستی‌آزمایی میدانی دسترسی داشته است.
+گروسی این اظهارات را در سخنرانی آغازین نشست شورای حکام آژانس در وین مطرح کرد و گفت در نتیجه این وضعیت، آژانس نتوانسته است مسئولیت‌های نظارتی و پادمانی خود را در چارچوب توافق‌نامه پادمان ایران ذیل معاهده منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) انجام دهد.
+مدیرکل آژانس با اشاره به حملات نظامی به تأسیسات هسته‌ای ایران در خرداد ۱۴۰۴ گفت نزدیک به ۱۸ ماه از زمانی می‌گذرد که آژانس امکان حفظ تداوم آگاهی و نظارت بر موجودی‌های پیش‌تر اعلام‌شده اورانیوم غنی‌شده ایران، از جمله ذخایر با غنای حداکثر ۶۰ درصد، در تأسیسات آسیب‌دیده از این حملات را از دست داده است.
+او تأکید کرد تا زمانی که ایران اطلاعات لازم درباره وضعیت مواد و تأسیسات هسته‌ای اعلام‌شده خود را در اختیار آژانس نگذارد و امکان دسترسی بازرسان برای انجام راستی‌آزمایی میدانی فراهم نشود، این نهاد قادر نخواهد بود نتیجه‌گیری کند که هیچ‌یک از مواد هسته‌ای اعلام‌شده از فعالیت‌های صلح‌آمیز منحرف نشده است.
+گروسی همچنین گفت آژانس در شرایط کنونی قادر نیست درباره اجرای مفاد مرتبط قطعنامه‌های شورای امنیت سازمان ملل متحد و قطعنامه‌های شورای حکام که در آبان سال گذشته و خرداد امسال تصویب شده‌اند، گزارش دهد.
+مدیرکل آژانس در بخش دیگری از سخنانش بر ضرورت بازگشت به مسیر دیپلماسی و مذاکره برای حل اختلافات مربوط به برنامه هسته‌ای ایران تأکید کرد. او از تهران خواست مجموعه‌ای از اقدامات فنی و تدریجی را در نظر بگیرد که زمینه بازگشت بازرسان آژانس به تأسیسات هسته‌ای ایران را فراهم کند.
+به گفته گروسی، چنین اقداماتی می‌تواند به بازگشت اجرای عادی تعهدات پادمانی و ایجاد فضای اعتمادسازی برای دستیابی به توافقی گسترده‌تر کمک کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79164)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-18 18:18:38
+
+<img src="https://cdn1.telesco.pe/file/PZTK5PcAaHsLsLggyBNsWJqS-6InbT-uAE05m0kz6oZP_sETQRYosDqdLcwvj11n2RC5HxdhZuCiix2rU8is6v9cxKbvgUh-MB9mvsQ21XqCmNXFw37Lr7beG6vijElV3gKSM9kEhisAa5MUMouzZ0jCtLydzfp84PQnK42QR1s3mPVRA_NMTfByy8nkzulZXXwUO7PwpT-afCuUpGF6RynwguDxsQi8FDl4WHnZPaxXW_NPHhDG5pskldGlvAGQMnZyhT-nK6G9qtrJjlE7i6850IkyOQQe9V9DCnSjzvjlnCYkNFKkQ4Lwij1X0kIsNeh4N-mjrwvInlCZXKudng.jpg" width="400"><br>
+
+خبرگزاری هرانا چهارشنبه ۲۷ آبان گزارش داد شمار شهروندان بازداشت‌شده در جریان اعتراضات آبدانان، در استان ایلام، به دست‌کم شش نفر رسیده است.
+به گزارش هرانا سینا درویشی، نوجوان ۱۵ ساله، اصغر اکبری، آرمین سلیمانی، ایرج حیدری، سعید عبداللهی و بهنام مرادی از جمله بازداشت‌شدگان هستند.
+با این حال، سازمان حقوق بشری هانا در گزارشی تازه اعلام کرد سینا درویشی پس از دو ساعت بازجویی در اداره اطلاعات آبدانان، با اخذ تعهد آزاد شده است.
+این سازمان همچنین از بازداشت محسن باویر خبر داده و شمار افرادی را که وضعیت بازداشت آن‌ها همچنان نامشخص است، شش نفر اعلام کرده است.
+@
+VahidHeadline
+اسدالله چراغی، نمایندۀ آبدانان در مجلس، به خبرگزاری تسنیم گفت: «در پیگیری‌های انجام‌شده، گزارشی مبنی بر بازداشت افراد در جریان اتفاقات اخیر آبدانان نیست».
+او ضمن تأیید برگزاری اعتراضات و سرداده‌شدن شعارهایی علیه مسئولان، مدعی شد که اکنون وضعیت شهر آرام است. چراغی همچنین گفت دادستانی و دستگاه قضایی در حال پیگیری این رویداد و شناسایی «مقصران» هستند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79163)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-18 08:55:48
@@ -76,7 +121,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-17 23:50:36
 
-<img src="https://cdn4.telesco.pe/file/RTADblfY83SqjASc3xnqql51H0c-by-jas6U9dGD94SwehFBCS0Ow4QWoVseFkHuSd6aBKvUw21UtVobx7vEXyvWpuRTQOpKPySJKOoRAhj_Xl2ZYIyqwzdMV2xPerZHVvXnYIEM6boTu83b3pqyrh4hRh5RI-esy4jW52RKkmDeySzDRLfx15EagNHNqyrkk3hhK0Erg1GDT40_KB1NzaB080y74ic565tZwrzPi8OHgTHy5_K_lRMwIhKXMH_WXSu9wRPvfGjOBkZG1Aol4i4hdWPpTF2Pdit6rmNOr1CxL5Vy3n-JbAxKpm0lVFrsbds1DtP2uIpdnO30LEy9wQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/MimCQEU9etvbBZVCI1GPY82eraLeTA830pmTnJIkVdLfDSR5iTBjn88hq27JZG7bueJjLmcqoKpqrKF4yHgz356PCjVBj_WU_9Z2RcwfXFny3xDKqohKwB66hcM_gQuPgwfRFb5UP3pWqBZbP8PfPZEDt0ORyT9GSoiwOCrqKhtT3yDu-D4dQGoKRH5Hf_feOmfeTbKN4KgvA5OkjrfZhYxsF66C1IXDEbvrjMFZnMqlvd-iwFGMXXPhdpNVFbeBSKAGSrHTzf5gps4jmpeW3VRI17hX7WOBhJxR64U2j3muIuhQwAFuhUCBs1AgIznupPVQRb41dXn0DyWWDNw7tA.jpg" width="400"><br>
 
 یک مقام نظامی آمریکا اعلام کرد جنگنده‌های این کشور روز سه‌شنبه ۲۶ آبان با استفاده از مهمات هدایت‌شونده دقیق، یک محل استقرار و پرتاب موشک متعلق به سپاه پاسداران در جزیره قشم را هدف قرار داده‌اند.
 باراک راوید، خبرنگار اکسیوس، در شبکه اجتماعی ایکس به نقل از این مقام نظامی نوشت که این حمله در چارچوب «اقدام دفاع از خود» و در واکنش به حملات سپاه پاسداران علیه نیروها و تجهیزات آمریکایی انجام شده است.
@@ -97,7 +142,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-17 18:35:29
 
-<img src="https://cdn1.telesco.pe/file/qabsRcK-pCVYpIe4Es68rdK12iqH5yDvVxeAivGITCgV8pPkmOX1m1oW6nUCotl-SZpU7xL4uyab0wEFMH9BhQA8jSb8J3pk4xWN61dO2yurqOu8PIy-b3yOIc19Zw2vUINTCN6oJ_Ngqag1rimLJ7dTyaXpvY4cUkhPhxgSWqp1HIKh1cG9Vs_FRqXmmHiSmtbhJ0V5aCaQnpk_hBRX9NzIcvvJPcKyXPVVC46wS7TWLIbDtkjI6k9KEJabQFNiZm-DFs2NITaQdJftx_L8T8-j6Gc7ZL9_3vs01j9JBp6mfU-nyv2mG3rwqVlB1A5ImjC9RuFtR0gEQpXOSKVcfw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/m_GX1IZ_hK7xWNXmPYdsWD51KhvLsAzL6MMqbDrQ7YRJ-UGTpy4trczeCZGl_U4HYXelC5dM3DZ43g-mhMvW7QEEmqbDfR-1vDL3QmNmyqwoG3MF560vxdWcWxuayLytGDqhc1gCcn024DIuYy0YFxMhd67XMnTtQFmFEyQR9ajjWJ9KPQlrij-A7dQtoWB-jKmEmt2nrXaTyySN204OnKERp02M_57MnDs3wTuEoA6JSwMem0iM0ba9hjOPh4ap1lgWzydLmhuRg7WdICowJ_hFT-RV6HaodDPAvV1prmmzLuw5KeKJDjpPkdSBSuphWkPzWVZrwtJdm311p43lrg.jpg" width="400"><br>
 
 پیام‌های دریافتی از ۱۶:۲۲  همین الان صدای انفجار اومد قشم دوتا افنجار قشم پشت سرهم دارن میزنن قشم رو سومی   وحید قشم کوبوندن چند بارر  تا 4/23 پنج‌تا انفجار خیلی شدید توی شهر قشم، احتمال میدم سایت پدافند نریمان قشم بوده. مثل روزای اول جنگ بود  تا الان صدای…
 
