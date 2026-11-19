@@ -3,8 +3,58 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-19 05:57:16 </h5>
+<h5> 🟢 Updated at: 2026-11-19 14:26:29 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-19 09:12:05
+
+<img src="https://cdn4.telesco.pe/file/ZNFr6hxrTQYEz7e8-DNxFiN83fdLkVboffVephR2x8AxhuP2twuLXdzI9d7KE4MX0KQVbSddOvvm8JrafuNlbOy60YDucEmYYQ_idtaBmGWFuHvXC2XZMmNcCzVuPkpNEmJokweGw-YgHytWKzjB5lwEbK9lkVJQNcuOSuADbVXgjvmYCoxasyrJSms-4nsk3zQLUwiPEiTt9vA-aRQNYhiJq6Edi2-nTZGsJegYzEHiGruL5ByxiCe4GLXf14v62ESM57jSfQFyhfmfzOAjEuNIoqlHbk7To_6RAIthckJ3yzPAe8vfVAkry2EjRvIwXf0hcTx_QQzEhQHeEiMcwQ.jpg" width="400"><br>
+
+چین، روسیه و جمهوری اسلامی ایران در بیانیه‌ای مشترک در شورای حکام آژانس بین‌المللی انرژی اتمی تأکید کردند که حملات نظامی به ایران و تأسیسات هسته‌ای این کشور و تداوم تهدید به تکرار این حملات، اجرای عادی پادمان‌های آژانس را عملاً ناممکن کرده است. این سه کشور اعلام کردند که ازسرگیری کامل فعالیت‌های راستی‌آزمایی آژانس در ایران به پایان تمامی درگیری‌ها، رفع تهدیدهای نظامی و ارائه تضمین‌های معتبر برای جلوگیری از تکرار حملات مشروط است.
+بر اساس بیانیه‌ای که نمایندگی روسیه در وین روز چهارشنبه ۲۷ آبان به نمایندگی از سه کشور ارائه کرد، حملات و تهدیدهای نظامی علیه ایران و تأسیسات هسته‌ای آن، ممنوعیت تهدید یا استفاده از زور در منشور سازمان ملل متحد را نقض می‌کند. در این بیانیه همچنین آمده است که ایران با وجود شرایط موجود، مجوز تمامی بازرسی‌های برنامه‌ریزی‌شده آژانس از نیروگاه هسته‌ای بوشهر در سال ۱۴۰۵ را صادر کرده است. سه کشور تأکید کردند که گفت‌وگو و تعامل دیپلماتیک بر پایه احترام متقابل، تنها راهکار عملی برای پیشبرد همکاری ایران و آژانس است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79169)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-19 09:11:45
+
+
+
+
+
+[View Post](https://t.me/VahidOnline/79168)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-19 07:13:26
+
+<img src="https://cdn1.telesco.pe/file/qF9SZITmhjlmAfj9u3ketZ5d_2r14WJuZU21bbCiwcsGXFikQ35YzeHjSYbIigoMhGOKBEnONjAQMYZK4YncgRLSNmtyMyJHjXNf0WIQ1CMW3zI90pXtBl-axFkUOwG-4Ij73nr_fTPYZT_GrEca9hKi4XTl6N2iFYHkOR0xlDrJiDmJkajCSuw0ckshSUYubOCbIMDFjzxCmA4kXwAZjvJfxqkpHpJbzfG9_jlImsXCsaFF9gwEON2sljSiG1g8gVvEF3lSqPX8aftKA9rxZjct449eTarKLnuDiFL63nEHrextxF_jrAiZWF51Kde5YxfsJ7XMIUWetEWvh-HFoQ.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۲۷ آبان‌ماه در گفت‌وگو با جکی هاینریش، خبرنگار ارشد کاخ سفید شبکه فاکس‌نیوز، تلاش برای دستیابی به تفاهم‌نامه با جمهوری اسلامی را «اتلاف وقت» توصیف کرد و گفت که این روند، با وجود ایجاد تأخیر، به واشنگتن کمک کرد تا به این نتیجه برسد که نمی‌توان به مقام‌های جمهوری اسلامی اعتماد کرد.
+او در این مصاحبه که در شهر شنژن چین انجام شد، توضیح داد که از ابتدا تمایلی به پیگیری تفاهم‌نامه نداشت، اما توصیه مشاورانش را پذیرفت. به گفته رئیس‌جمهوری آمریکا، این تصمیم اشتباه نبود، زیرا فرصتی فراهم کرد تا دولت او شناخت بیشتری از طرف ایرانی به دست آورد.
+رئیس‌جمهوری آمریکا همچنین محاصره ایران را مؤثرترین اقدام دولتش علیه جمهوری اسلامی دانست و تأکید کرد: «به‌زودی به هر شکلی کار با ایران را تمام می‌کنم.»
+او با اشاره به تمایل مقام‌های جمهوری اسلامی برای رسیدن به توافق گفت که واشنگتن به دنبال توافقی پایدار است. به گفته او، در موارد متعددی توافق‌هایی حاصل شده، اما طرف ایرانی روز بعد از آن‌ها عقب‌نشینی کرده است.
+رئیس کاخ سفید همچنین از عملکرد مقام‌های جمهوری اسلامی در حوزه روابط عمومی سخن گفت و تأکید کرد که توافق آینده نباید به وعده‌های کوتاه‌مدت وابسته باشد.
+او درباره ضرورت دوام توافق احتمالی گفت: «من توافقی می‌خواهم که حتی اگر رئیس‌جمهوری احمقی داشته باشیم، که احتمال آن زیاد است، همچنان پابرجا بماند.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79167)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-19 01:47:17
@@ -116,7 +166,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-18 08:49:18
 
-<img src="https://cdn4.telesco.pe/file/nDiDkSGYtrm6kQjLH7XYB73Wvjb_1qaREQti35ML9JObxHZjgFhaLx9V3Z0crkWHiTsMLmZS2OaQCU6QrGOrc6KcJIQv9p1U5IeJIwA1QSmvP1pLqOI_AeoKT2uWZjjfU_RG66tQz7bc8-S4XF_wZRQ23Xht0Mt3TMh2jpb_BbVPJTd3vuH4YZwvpbxwE9uA97Iv4HZ3Upi5clkNXC5GezWcPrQGSbxb23GyKJPHcBai4fLxHFMbNmEtdL_19aXddK0QfW9qD8w6SNyuh3E9qlN27JWVBneh2VB8UWlu2qVWKNEpVAM9THTLCw2wQBGB4lGLw8X6hTQnKNmA1f_zfw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/nu2Oa7_LKUlZgqez7DfYbWjLzRar-7_-5ELk0DAcEIJoA0sHYm0aIHRSGOCsuiHd313uMg2hS3SYx74GOJGNbPZDi5HsF4gwgIdO-LSEPC6mtXSz_S06jiP-r4Jm5hU8kZhnX7QNmZJbjByObAI3Sddr--_79uLdDVa2XbYnRJXb7oXp6daSPIMMVmjNLXK097TG7uhbJQ-JTrqN_wFMQsluiNSoNL0rnMkR84hn50Rayer0swszXENpy2rDCEh2uz6xxFpw8cujWFzqyJe4kKrF6K7n3bFS8uBdslC-FK0J7HswbjxUcDjHyurSayjWj0XRWovzPZaFIqa4BZV-Hw.jpg" width="400"><br>
 
 روابط عمومی ارتش جمهوری اسلامی چهارشنبه ۲۷ آبان اعلام کرد که در عملیاتی بامدادی با استفاده از پهپادهای انهدامی، سامانه‌های پدافندی پاتریوت و سکوهای پرتاب پهپاد و موشک ارتش آمریکا را در پایگاه هوایی علی‌السالم کویت هدف قرار داده است.
 به گزارش خبرگزاری فارس، ارتش جمهوری اسلامی در اطلاعیه‌ای اعلام کرد که پایگاه هوایی علی‌السالم یکی از مراکز مهم ترابری هوایی و انتقال نیروهای نظامی آمریکا به منطقهٔ غرب آسیاست و در فعالیت‌های نظامی و لجستیکی این کشور نقش دارد.
