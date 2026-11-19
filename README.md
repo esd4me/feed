@@ -3,8 +3,49 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-19 00:30:05 </h5>
+<h5> 🟢 Updated at: 2026-11-19 05:57:16 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-19 01:47:17
+
+<img src="https://cdn4.telesco.pe/file/priCSICxhz6pK52uWupWsV81knLmdpPkl-t3PDz5f1j37En6Bj5Xt2BwjRCgAuAkA_vcI5K2WY7aoOe_RqPQVbkeM9FCmrPOVCjRJaQlTz7TNcdBWV7hK3NDviyMoDeHaMoj7L9MWyUiWFbKQ1738gEbhnFfUGcdqrEiNMWWoQYw699MtFjEMbIz5ciE9OGNruU-JZUl8hcBJWjqdDfPMouKteaBWMwobDw9OANf2xZ25ZR4cBbDrZyvLEBK5389n6G3zMExgrZzHwHXxR0MNYe4LGFShQ4PnHCw-3orBeAQgke8KFh0g74PeBF_3M4Qwn2zZg9D4kBpqMz8yH66SQ.jpg" width="400"><br>
+
+به گزارش بلومبرگ در روز چهارشنبه ۲۷ آبان، ناو هواپیمابر آمریکایی «جورج واشنگتن»، که در چارچوب محاصرهٔ دریایی ایران در منطقهٔ خلیج فارس مستقر بود، این منطقه را ترک کرده است. با خروج این ناو، دو گروه ناو هواپیمابر آمریکا همچنان در منطقه حضور دارند.
+به گفتهٔ مقام‌های آمریکایی، احتمال می‌رود ناو جورج واشنگتن به بندر محل استقرار خود در یوکوسوکا در ژاپن بازگردد.
+گروه ناو هواپیمابر «تئودور روزولت» که روز دوشنبه وارد منطقه شد، همچنان در آنجا مستقر است. حضور این ناو به‌عنوان عاملی برای افزایش گزینه‌های نظامی دونالد ترامپ، رئیس‌جمهوری آمریکا، در قبال ایران ارزیابی شده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79166)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-19 01:47:03
+
+<img src="https://cdn4.telesco.pe/file/rQxAIOt4DBxUVuuQ29LH4zmfzunP9wk9Q7ZICdRKMBkqnnMawQ8Dr_6O2F9B3ARB3nGEVp2GOnUxDDJcpjZhJo-Hm7Vl8vU6KbWGuqHZJllEvuPfVesV51RQVIq1tMpW6EbOOUnMwfjPECkssIQN7dCLUc0THRUA7y5gDBIZX_EwkmxL3O7v8Xf4IAVMIl73-oYfSaMjSZUNlDpfTpDMOd_6_JEVbhraxE9ZCl_tkPbMKxKRYoAUzbpicu4dc2ROM8a-9qpfeFfs8X5fh2dPJRBCMZBDB_4aXCWqakAkhgsrqNQIHWXbu7X0BySXPP-kKc7ZsIMB854MaecVM4p2RQ.jpg" width="400"><br>
+
+265 likes
+‌
+ارتش اسرائیل اعلام کرد که برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (سنتکام)، روز چهارشنبه در جریان سفری به اسرائیل با مقام‌های نظامی و امنیتی این کشور، از جمله رئیس ستاد کل ارتش و رئیس موساد دیدار کرده است.
+این دیدار در حالی صورت می‌گیرد که تنش‌ها میان آمریکا و ایران بالا گرفته است.
+ارتش اسرائیل در بیانیه‌ای اعلام کرد: «نشستی سه‌جانبه میان ایال ضمیر، رئیس ستاد کل ارتش، رومن گافمن، رئیس موساد، و برد کوپر، فرمانده سنتکام برگزار شد.»
+به گزارش خبرگزاری فرانسه، کوپر و ضمیر همچنین به همراه «فرماندهان ارشد هر دو ارتش» از جمله عمر تیشلر، فرمانده نیروی هوایی اسرائیل، به «ارزیابی مشترک و جامع وضعیت منطقه» پرداختند.
+در ادامه بیانیه ارتش اسرائیل آمده: «این مقام‌ها درباره تحولات منطقه‌ای و چالش‌های امنیتی مشترک گفتگو کردند.»
+این سفر در حالی انجام شد که بحرین و کویت روز چهارشنبه اعلام کردند حملات هوایی ایران را، که در پی حملات آمریکا به قشم صورت گرفته بود،‌ دفع کرده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79165)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-18 18:21:10
@@ -93,7 +134,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-18 05:35:02
 
-<img src="https://cdn4.telesco.pe/file/Xq0yu_6ywfThyFfbgSp3EREB5RwYB4nwDMSOT4ji-_YIRVf3P-23DG8mwpali_2PV0JDlsvF71MuHbVC8lSw6fMcGPykr5TJT7oieAf3f-rU2ED6_rbf2WsXMWvIL34cS63x6wWFKu1iyEPLDOTIFDfmK2Au9J_J46X-ayRVeNasK0o-yj7ZXKzyeW6CKPdsE5MRXwsKH5kHWXgA9O9DmaZDG2Iai3znh6X8e5CoyeS1StVB01RMkyUDVDYgNQtisvnwLerJmqtN3ZQTtQmsT-_C_m1X-3b0LZytuXIZGc5PkmgsZfno_iHIU-OJLrZauyHAL98Z2wT-B4nzXDg3lQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/CCQU7BQL43t1M8-8y7hT8aux1KZ8YQ-n1WdmnYy6rw7Bj86VS7BSaJkEiR5RUv5HdOJBK1fvaguDCAnsPNtI1eSGq1hjbh4_HERBvtDbPMDOXNvCl30uSsrR0K17u5eKopfQmQveGPvBsns8vPwKECSdIY2z1R9dhy3W3AXRep-EGnTV0PSBj5VIppy3mv11bCu2Fv9yZOR4rkWqqucFEwr8RgOr7PnBAeK2ARqJlwqss6rcXRP7CQgIsviL8xpSsFcn5E3ECibUupVJBNlj9yvrhnr5corModaXahQYt-m1lc_v3DEt8rtzYq1PgrrHpujAmRaX2MfHsrQLB3EKhw.jpg" width="400"><br>
 
 عصر روز سه‌شنبه، آصف مرچنت، ۴۸ ساله و تبعه پاکستان و از عوامل سپاه پاسداران، از سوی اریک آر. کومیتی، قاضی دادگاه فدرال بروکلین، به ۳۳۰ ماه زندان محکوم شد.
 او به تلاش برای ارتکاب اقدام تروریستی با ابعاد فراملی و اجیر کردن آدمکش برای قتل محکوم شد.
