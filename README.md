@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-20 05:03:05 </h5>
+<h5> 🟢 Updated at: 2026-11-20 12:57:09 </h5>
 </div>
 
 
@@ -330,7 +330,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-18 08:49:18
 
-<img src="https://cdn4.telesco.pe/file/nu2Oa7_LKUlZgqez7DfYbWjLzRar-7_-5ELk0DAcEIJoA0sHYm0aIHRSGOCsuiHd313uMg2hS3SYx74GOJGNbPZDi5HsF4gwgIdO-LSEPC6mtXSz_S06jiP-r4Jm5hU8kZhnX7QNmZJbjByObAI3Sddr--_79uLdDVa2XbYnRJXb7oXp6daSPIMMVmjNLXK097TG7uhbJQ-JTrqN_wFMQsluiNSoNL0rnMkR84hn50Rayer0swszXENpy2rDCEh2uz6xxFpw8cujWFzqyJe4kKrF6K7n3bFS8uBdslC-FK0J7HswbjxUcDjHyurSayjWj0XRWovzPZaFIqa4BZV-Hw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/l25W4gHZn1CADCi8R96S323X0J--7Du7scRIFUXHRnzWyxOfohvaYBfZ-e7uU6ZfGCzSEapwKLP9PzBAuLWuQacEnHB1t6nrBxmAVxekDTbmQaqUdxvHrpLNw1jc_rn_xHbU9dQCmUYhwDkP95GD9dD0g0teBkA6npND-D0roSvzzXnGS9jBkg4swlA2b0lUyhSDM2EWtN3k-Xw3wTmWOpDAFyoF-PkRo0Mft2Fx4dJnINgncn0QOPYn_OgsTv5HgJ9SYxDO82W0ViiVX0eHqBflV9kRLyBy9zzqEMxsKQVITNTkGZd0oYnjupqVN67NMa0Tw2kk-5r0a5278989wg.jpg" width="400"><br>
 
 روابط عمومی ارتش جمهوری اسلامی چهارشنبه ۲۷ آبان اعلام کرد که در عملیاتی بامدادی با استفاده از پهپادهای انهدامی، سامانه‌های پدافندی پاتریوت و سکوهای پرتاب پهپاد و موشک ارتش آمریکا را در پایگاه هوایی علی‌السالم کویت هدف قرار داده است.
 به گزارش خبرگزاری فارس، ارتش جمهوری اسلامی در اطلاعیه‌ای اعلام کرد که پایگاه هوایی علی‌السالم یکی از مراکز مهم ترابری هوایی و انتقال نیروهای نظامی آمریکا به منطقهٔ غرب آسیاست و در فعالیت‌های نظامی و لجستیکی این کشور نقش دارد.
@@ -348,7 +348,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-18 05:35:02
 
-<img src="https://cdn4.telesco.pe/file/CCQU7BQL43t1M8-8y7hT8aux1KZ8YQ-n1WdmnYy6rw7Bj86VS7BSaJkEiR5RUv5HdOJBK1fvaguDCAnsPNtI1eSGq1hjbh4_HERBvtDbPMDOXNvCl30uSsrR0K17u5eKopfQmQveGPvBsns8vPwKECSdIY2z1R9dhy3W3AXRep-EGnTV0PSBj5VIppy3mv11bCu2Fv9yZOR4rkWqqucFEwr8RgOr7PnBAeK2ARqJlwqss6rcXRP7CQgIsviL8xpSsFcn5E3ECibUupVJBNlj9yvrhnr5corModaXahQYt-m1lc_v3DEt8rtzYq1PgrrHpujAmRaX2MfHsrQLB3EKhw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/g6weJr9mv0x-3K-5hRt_0RDo-_otbveoKXXS13DApCbMHqE2TupJxiWNS64mSArkdDVHzSWhCT0jLFbKBTl2VyIhnnWh18zK9IHTpNm1KPM0LetC3s-XP_r9utMHLvOFSKPjQTgog9LMqd0gSRBUp7Zr1r6ifaAC5-HO7v5XdYJ-SyN6VfFJ5in-n0K6Akb2wIn3cvjg_dTrY7hapKq67cP1NpC6pJpOiN3cH44qoSMPF6YSF087DQWYukeYHRC1RoGfFzQoKYRIaGQvB_Poj1_knhFFRlO-KFS8VmokIh_1Vaf8Rn7NGmHmB8wcgBjqJJLFpJ1pu_0BleGELvczyA.jpg" width="400"><br>
 
 عصر روز سه‌شنبه، آصف مرچنت، ۴۸ ساله و تبعه پاکستان و از عوامل سپاه پاسداران، از سوی اریک آر. کومیتی، قاضی دادگاه فدرال بروکلین، به ۳۳۰ ماه زندان محکوم شد.
 او به تلاش برای ارتکاب اقدام تروریستی با ابعاد فراملی و اجیر کردن آدمکش برای قتل محکوم شد.
