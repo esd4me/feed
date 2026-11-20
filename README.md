@@ -3,8 +3,132 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-20 12:57:09 </h5>
+<h5> 🟢 Updated at: 2026-11-20 21:39:50 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-20 19:54:08
+
+<img src="https://cdn1.telesco.pe/file/A2dLjjf63EiIwqbYHdeZseVHz1PVXu0MG6Ov1u8v9NO5YFGGJMkbGv1PpKFk1jdoDTWbMgRhBazM8fcfyfhV-ITowcMFBB6LhkfwqjK7YfcZoo5QQdnCLMaf9BDjStDyD5FcBHOB_H5daF3c6LxL4dOj0lnAHkwM_ZSl-CFy6kxasGwKCVIRRvqQTVKBEYkQRY-IWPhwLOBnJMmTWc070HUsgmrtWmtKU1vfIC5i5hcqH6mYLIFzmqlS0rvVQQehf7RtfOvaDOVeD9OOSzoY7a5dBz2PrpB3JyUep2AZVCXGjtvuskqAfiY1ih3Dr2EJfp0Ipnc56oUcvJagHCZQjA.jpg" width="400"><br>
+
+مرکز عملیات تجارت دریایی بریتانیا () گزارشی درباره وقوع حادثه‌ای در فاصله ۸ مایل دریایی شمال خصب در عمان دریافت کرده است.
+یک نفتکش که در حال خروج از تنگه هرمز بوده، از ناحیه دماغه سمت چپ با پرتابه‌ای ناشناس هدف قرار گرفته است.
+مسئول امنیت شرکت کشتیرانی (CSO) از وقوع آتش‌سوزی در این شناور خبر داده است.
+UK_MTO
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79188)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-20 18:47:18
+
+
+
+پیام‌های دریافتی:
+ساعت 18.45 یه انفجار در محدوده شهر قشم
+سلام وحید جان همین الان یه موشک به پدافند قشم خورد
+سلام وحید جان امروز ۲۹ ابان ساعت ۱۸:۴۶ دقیقه در قشم فقط یک صدای مهیب شنیده شد که احتملا از سمت پدافند قشم بوده و شاید پرتابه به پدافند خورده
+سلام وحید جان ساعت ۶ و ۴۶ دقیقه یک صدای انفجاری اومد قشم
+آپدیت؛
+خبرگزاری تسنیم، وابسته به سپاه پاسداران:
+اصابت موشک به حاشیه شهر قشم
+▪️
+یک موشک ساعت ۱۸:۵۰ امروز به حاشیه شهر قشم اصابت کرد
+▪️
+به گزارش خبرنگار تسنیم در جزایر خلیج فارس، ساعت ۱۸:۵۰ امروز یک موشک از سوی دشمن آمریکایی ـ صهیونیستی به محدوده‌ای در حاشیه شهر قشم اصابت کرد.
+▪️
+جزئیات بیشتر درباره میزان خسارات احتمالی و ابعاد این حادثه پس از دریافت اطلاعات موثق اعلام خواهد شد.
+آپدیت:
+احمد نفیسی، معاون سیاسی، امنیتی و اجتماعی استانداری هرمزگان، جمعه ۲۹ آبان اعلام کرد که صدای انفجار و دود مشاهده‌شده در قشم ناشی از عملیات انهدام مهمات عمل‌نکرده باقی‌مانده از حملات آمریکا بوده است.
+مقام‌های استان هرمزگان پیش از انتشار گزارش‌ها درباره شنیده شدن صدای انفجار در قشم، اطلاعیه‌ای درباره اجرای عملیات انهدام مهمات در روز جمعه منتشر نکرده بودند.
+@
+VahidOOnLine
+و یهو بعد از
+شلیک موشک
+به ذهنشون رسید که همچین کاری بکنند.
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79187)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-20 17:12:24
+
+<img src="https://cdn1.telesco.pe/file/PM_clCjGyNPcK6pZ4bctjKvQ6dqz7UO2wgsTV1ewnZnQCrV58Ii3xE7QZVz163quJkDbtnGDrh_rO7pf9_ZZXwLIl_Om9cHf6fp1myMfqcNFWd24g-jA3hI4GcX_3TaYpaHDDI41ZzqNEZoYOWwSzsd-2hkjhnFRjh8LGFj9nkVlpNqVxkLyxuBGmfGa6xLDcqarPbVRiEdLFc8Z8RYlNvDozq0ZLPbVHl2vvQB6uP-WZ7GUpXl4UT2jixJcn0vRJ_PVJnf0ZhwssMufGocr9R3Zx8Oth--k7ZETalqDumF9HuqTeJCHhOEO1VcYjCq0Y91k_3u7uvRtm1Y4mz74_A.jpg" width="400"><br>
+
+پیام‌های دریافتی:
+#قشم
+29 ابان 15:55
+صدای شلیک موشک از قشم
+وحید جان یه صدای مهیب شبیه صدای فعال شدن پدافند هوایی در قشم اومد الان
+همین الان ساعت ۱۵:۵۶ صدای پرتاب موشک و رد موشک تو آسمان قشم
+قشم موشک فرستادن هوا ۱۵:۵۵
+۳:۵۶ وحید جان جنگنده از رو اسمون قشم رد شد
+امروز ۲۹ آبان حوالی ساعت ۱۵:۵۵ دقیقه یک موشک از سمت قشم به تنگه هرمز شلیک شد که از بالای قشم رد شد و صدای نسبتا بلندی داشت
+الان یه موشک از قشم پرتاب شد به مکان نامعلوم و این هم رد موشک
+سلام وحید جان همین چند دقیقه پیش یک موشک از قشم به سمت تنگه شلیک شد
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79186)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-20 17:12:17
+
+<img src="https://cdn4.telesco.pe/file/UFzJ9T7OwTqv5pfSy9HkFKbaF5Xlyfi9nsj5yHx3QxwIzhDrBCisvarf1dIQaMORH325wxXMifpUtLhINgGJeqx9JLcZsqdVDcSkdu4yojRbDtNqyrH3OqxJecfGzO7tYoDbVDt6JerY7fMKO_86dZVUc3QIMSlm1tR0GgA4VYJEb-g2Wjb6X84b-TeW_A7nw1CHWRbwHTPRAu_G1dUj6b6YBqJw_imdnQNhrMW97XWxpjzRN4PEv5CCyqbnd78KJqHlWF2JK8j942dm_9evObp8pDa7FWilu-yxohFmFFMQYfoIXlk-0eJYpgtu8e5QIMH-V4g_orp5k8gTily7xA.jpg" width="400"><br>
+
+دادستانی عمومی و انقلاب اشنویه در آذربایجان غربی از بازداشت شش نفر و صدور کیفرخواست در پرونده تعرض‌جنسی به زنی دارای معلولیت خبر داد. این پرونده در حالی به دادگاه ارسال شده که طی سال‌های گذشته گزارش‌های متعددی از خشونت جنسی علیه زنان و دختران دارای معلولیت در ایران منتشر شده و نهادهای حقوق بشری درباره کمبود حمایت و نبود آمار شفاف در این زمینه هشدار داده‌اند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79185)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-20 17:11:43
+
+<img src="https://cdn4.telesco.pe/file/eVEHBwHESKXe3jJDYbdxURK7859WGjf4RHbimqgLky4JRecgfWq5cKE4hegOTugoBUiRXfUfvTnptSzlyKivSfqES1icQKgWqw9ZdkaHmnhOGbRKeZkc07bUkDTJAXv83AUzdFmU-R2YBorvFlgRcaiubobVnRB2WYLiNUoNdG478lYMs5BPEvQGR5p11Z1hDWnwZXHZ75thiFJO0M9BwjFSxPQ03MZ6KK5Z_daoVwUqHNnfat5On3FD1xaPRGxJKDj0RZRZ8jb4C-9zNriq_OHN8tD9cIIBYIMl9Px9WMFyAchhbov0LSgKQRx3p7HqBGi_GQs5bH_wMueVUD2o0A.jpg" width="400"><br>
+
+در پی افشای پرونده قاچاق نفت به ارزش صدها میلیون دلار، دولت عراق برای بازپس‌گیری کنترل منطقه جرف‌الصخر از کتائب حزب‌الله وارد عمل شده است. با وجود میانجیگری اسماعیل قاآنی و آغاز استقرار نیروهای دولتی، هنوز مشخص نیست این توافق تا چه اندازه نفوذ شبه‌نظامیان وابسته به جمهوری اسلامی را محدود خواهد کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79180)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-20 17:10:10
+
+<img src="https://cdn4.telesco.pe/file/VuMjU57aBlz_i_PXZTViIuPsBFBlfoA7lPbGTQHvLKXDGUxEOHLGGX9WLhXNthSxgVeMtuqInDnr0E6WkQfQDVzfo9Y4eTMOl9pUcjpjwazaxoohYeDKj43iS3YjSoc-ffhja3xIvPgBOqr6oXt5caAVp_qZa-egdF7hs9fHxB9W5UyBRyKPY1fuRgofQr-PR63xe_S5-CwB1Z39S7Cg0T66VL5yYEZhOD0LQy-f6ehqh7M_lomaX71Y_U4hlzf4PEFRafT4SMS9jpQ6Jw8SlhA-rnwrapMrpueuxSYUl0UbCnjBDaHrJy_A3xWOAtyjy4gIE3dTPpgMDkTGQgo2yA.jpg" width="400"><br>
+
+شبکه حقوق بشر کردستان از کشته‌شدن «بهمن خدری» کولبر ۳۴ ساله و پدر دو فرزند، بر اثر تیراندازی نیروهای مرزبانی جمهوری‌اسلامی در منطقه مرزی «بانه» خبر داد. این دومین مورد گزارش‌شده کشته‌شدن کولبران با شلیک نیروهای مرزبانی در این شهرستان طی یک هفته گذشته است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79179)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-20 04:57:37
@@ -29,7 +153,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-19 21:46:56
 
-<img src="https://cdn4.telesco.pe/file/hE5yvWSFDE-GeRLOWAZBmLlmD123KOD0Rm4OKt7tH9vRB8vowOMAMVw8AktgXVaCvVx27jT0ORJROHwevb1jBAcJEgUIYEPjbOQSGvvcExzc2T9cEwEbKQR3-7aKdCN8WosVIoEMmbVzzj0xPHcGssr0MvO2jzvHRqTuSGgTlimlJ3IfogRHqLczZyL0mYvYXeh_TknXj9PXP3a5rUK2j1gZf-CTSEZQYUobcT7nRwxx6CTtTGFUyu5zXrcaCIxvOzQ2ZpnkHLFG1qK73sJA1_XEdGg6_xYF5inlFLpIHvdYY_feh3gOQslpYnfWEdQ6XFJrAymwGk5O06LseQN2Rw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/DTN5ICB6Erf6pFub4__mLtX6x4Zw-qjuA59cHx1lwscmr7JKBJqOf4fHicmtigSab65w4F83Rj7qapXhOOxoiDcUAkHYV5TzuQ3HwCcDQC7861uPgolPWaw9AJ4bfpuv8O_A7DcG3tjl7FNBJsMDINRq9EIlWnXezuFxmrLMOdcmw7VHvnmxN73Vd3ZnjT-ajEG_wL5_kGoZwdsod5B38ip3lcxUShag1GEfcgthvDLzV2LCqbFIUgwznqnuM2eOJucfLGRtefwTQVF9ZraL8-ay_YD7LX-0LUBOA_l6-WNUrmkM6SZLC43hFAVaer-gF2oq_EswLUw6itUhaEFrlg.jpg" width="400"><br>
 
 دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با باراک راوید، خبرنگار کانال ۱۲ اسرائیل، پنج‌شنبه ۲۸ آبان اعلام کرد که هنوز درباره اقدامات بعدی علیه ایران تصمیم نگرفته است. او گفت: «من برای گرفتن هیچ تصمیمی درباره ایران عجله ندارم. ببینیم پس از آغاز سال جدید، یعنی بعد از اول ژانویه، چه اتفاقی می‌افتد.»
 باراک راوید در گزارش خود اعلام کرد که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، برای ازسرگیری هرچه سریع‌تر جنگ با جمهوری اسلامی به ترامپ فشار می‌آورد.
@@ -54,7 +178,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-19 19:49:03
 
-<img src="https://cdn4.telesco.pe/file/s9QCjgAHjA9L2XKyUX2gqwVIUAKGipVpM7vsy1JqD4L_eASKGb-Yfd8nWhll9lSVRevUGIJa64ynmsT3Lt4yhsvkYDD1uTegk-B0ZHhiMqGQex1rZGyYFJQHQoB4SkYjflG_31hzQkG50s_YBt4-0zshvsyumHl9w3QOtflZw6JLD2fwT3r7mSNiU-7HsQBCSwJ7CZh5sSocwo6-wzZsk3l9EZxFR5QiIQlzpA6GCP4OzKgP4iKKearIIo4GcBwaWFf0DOCTmVlr3AzSgC--5xzARsRqoxFO_9Faq4SwUi7KQsVCdoRxXeCSdmdltYoYEcntnzkPlOhbUEkZKaoOig.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/FNEOx_JYR2HNPBKD4otFBT0iVmle3jm1uQCrhg3WV3kJj1AedK-1g-HREu5-FF4uhb4T8t1lvzzkuFN09VuPEza20To3CyhNV969U_GAnABWqK7U8mbhVYU77EKl8fFEguMmHZOBch8nNYGLjBZONH_dI2xRCAuA-S8rhK1vx51SFgU1Y8-S9zhD16EN7xUJd6zVIX2Jc1fEB56LsgQdY3HPX-Eh6I6_I55CT0-b-jRZwx27LO1TiMct_bqOLh0zvle3ikBkKl9PPErMxwTwHSOb7LWNkv5ZZ0rc7latvT4WzVi6y747cj87U5kc1cZvFtTFydtwAMLvTcAuGCtvRw.jpg" width="400"><br>
 
 سازمان دفاع مدنی عربستان سعودی روز پنجشنبه ۲۸ آبان اعلام کرد که یک برج در مرکز مالی ریاض، پایتخت این کشور، در جریان حمله حوثی‌های یمن دچار آسیب شده است.
 در بیانیه این نهاد آمده است که این حمله به وارد آمدن خسارات مادی به چندین طبقه از این برج و همچنین ساختمان‌های مجاور آن منجر شده، اما تاکنون هیچ‌گونه تلفات یا جراحتی گزارش نشده است. تیم‌های امدادی و مقام‌های ذی‌ربط بلافاصله در محل حادثه حاضر شده و اقدامات لازم را برای تأمین امنیت منطقه و ارزیابی دقیق خسارات آغاز کرده‌اند.
@@ -71,7 +195,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-19 16:39:13
 
-<img src="https://cdn1.telesco.pe/file/NVMSH9HcxDEqYCYqeNxKEBtncSb1bAPWyELtx2mxBG5CijEmYcvY6VzwO2mkbnMNa5yL_KtKtiQ4jOtl05iL3HpJhQRUyPs_lVakSpaa3td83brX9oO7R8tOXhQwYcKgxmjDaNfUdcDw2xIDi-VyA_nJzz6fb6YNnnJn2SIKQvr_ynjo0_rkbqsD77rh_ReHao4whcnnTXF7D_c3JaWK7PFu-FopslfTdg8KYlQ_SCOGxm2Fy0a40FnJXR6WwNAeGXXBDWch62e7xGOgqOt1ePZ_wZvhYSmdbI9wpUmpJ5ZybnXfVR7fHbH3CwUpQJWbCafz8J_6uDtkkH72n6KT9A.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/cyJ7gk69Jztdr1pr1ch2_tcxrWCpRisW2hLfbJZNJzlHP9HTg9BZLmaQzpJp7-9fxk-CmctK9HR0f9uKgmJP2kvzGP1ax9_O5qhw2XksacKrvAlcVAT-ernCYXTH8lnrUyyTR5ftdD37Wv51QTVOW2QFHv_R9Glo0xnOe-wegnNbn_iq3UHvuHT89mwPyZ42mxbENdxybt2SFkI9CqMDm-Z_oYkviVYsiZDNmHOfRt_yM_4rsfkyRex3dt5nWF-JDS9dr2JxJH3rkjZ8zLPu0yd-tUVxTgQX3I1Dx-Bd5sNq2vetdxav0TCzqpyrLF74pqC1CapxljVUB3lnlvydPQ.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه ۲۸ آبان، در دیدار سه‌جانبه با شی جین‌پینگ، رئیس‌جمهوری چین، و ولادیمیر پوتین، رئیس‌جمهوری روسیه، در شهر شنژن چین گفت سه رهبر با برگزاری این نشست «در حال رقم زدن تاریخ» هستند.
 ترامپ در آغاز مذاکرات اعلام کرد که جنگ اوکراین نیز از موضوعات مورد بحث در این دیدار خواهد بود. او گفت: «ما دربارهٔ جنگ میان روسیه و اوکراین گفت‌وگو خواهیم کرد.»
@@ -101,7 +225,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-19 16:37:28
 
-<img src="https://cdn4.telesco.pe/file/MOgjzll1orHuTH5BfcBA65a2xgRY4vdHuUpVy-i_dDLt7PHUdzYJAQbZuSOZEzFR8A4_85aCpZtUH0F9-WhGxjPRgfAbLQj4yePOPgknBRABBXA0BiG0qCXxcHMq9ZuU2kUWvAlStgVwXTuhA2VY_lid1SSEw0m_7Gx9da-UnAfCGZ5VO81jZCwkFL-grqxankMxocwvNm8zJ0ynQ5fUZs-T_bOVGlxi39Z6KcsBfh_ieXNlcMg-rHRZh5WL30o3uDDQY_WtsmAJvItDyvMxls-SSmn8DO-4V-on-LRh06GEcAJPV5sGPaC9FrE9LNK8C4C2blJtSzicyWaj8J0zNg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/aIsrAg-GAsDBBEFgABq-gJ7CZKfLhVEjvy5TF1J0q0d0tenx53Az4d7D7rl0li9N-8m2zRMv0Zbgo8d2cERQXj1tIDw4Dku-IyIsAEsEmUWy0OtLWQZKRecAMGcPzabXBa1heAsDoGUKQG8zqL6eh1vy_IcAMzc35MUH4wwF2B-Ei_ySoEkrxU6rM-nk45n2H76YYrScMOZG41trReoI65T-JdH71YBhojF_0zVtg3zjBA551VgNzWPTYkAxHQA6esVYjgtyzJXN5qF9VBknA5GvifmUmI4-hbgEuMwDIbxkoqPhB_my0OcpdAhZP-H55U9O3Rn7WVw2Z3Wuko_JBA.jpg" width="400"><br>
 
 ابراهیم صادقی، قاضی شاغل در دادگستری پیرانشهر‌، شامگاه چهارشنبه ۲۷ آبان در تیراندازی در محله حیدرآباد تبریز کشته شد.
 همسر و پسر خردسال او نیز در این حمله جان باختند.
@@ -125,7 +249,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-19 16:37:05
 
-<img src="https://cdn5.telesco.pe/file/NpK61GERPtKwhDYkK35M2FgmHE_0XO3M2xy3JQpl0KLSfO_5vncy0pO_SCjcleblX54y0xACPMKQQ08oQ9YN97SVvD0k2G_WNBEw4-Pr7TDQslht5PwFwuxKRv5wiw-MUs86-MuAV6ElOfe7rX2sQJQC3JfeKHTZvZ3T6Hi_GTaSBFK477ydFwgqRHbXB3LHhrzHVf1rGq-tXnvR0ALPduekooICgjb0JeqZ7ZUTS_x9l3NEgO9FiLNkshFRsYkAN5sZceA_cf0T89ysEiyCOT3rE102R1AbVdO_QFUExWcQa9M-VptBcxenz3UMgNsUJuiiyh3lkQD1VwMhoqAUBA.jpg" width="400"><br>
+<img src="https://cdn5.telesco.pe/file/WAArXPcd4PALCchSqSovJAsaBpqpE5IkubAXwJMOsjBTJ-0ESCcjyIkMuAO2SIZu6Mkwhvou6D17ZhagCalrMC5lZ5_rUdTGDP8xDi97XkrJjvAFb-qlB4abb-QpcqanmgOxyQsWYU93n6Ruxp1GgH3Lu5OClz9gIruEaOXAg-oqCTg22HycD8200vsvoxI9r-ZL5qmEVGg3chNf_ZJlZKMUTNmBNZC22YFnGHTx1yI9A-cawsttoz7tSoiqGo8WviNKCmX-XvdkiqJk8qkEAJjKLVKhQkJMK-P3Sr0uhDtsxNn0GgbdVlyBDlizgE-azmHbXSHaVgh-OC_BIAhw0Q.jpg" width="400"><br>
 
 ️ گزارش‌ها از بررسی احتمال آغاز حمله‌ای گسترده و دوباره از سوی آمریکا علیه ایران حکایت دارد. این در حالی است که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، واشنگتن را برای مشارکت در یک کارزار چهار تا هفت‌روزهٔ حملات هوایی علیه جمهوری اسلامی تحت فشار گذاشته است.
 به گزارش نیویورک‌تایمز، نتانیاهو هفتهٔ گذشته رومن گوفمن، رئیس موساد، و شلومی بیندر، رئیس اطلاعات نظامی اسرائیل، را برای رایزنی با مقام‌های آمریکایی، از جمله جان رتکلیف، رئیس سیا، به واشنگتن فرستاد. مقام‌های اسرائیلی در این دیدارها دربارهٔ بازسازی زرادخانهٔ موشکی و پهپادی ایران و پیشرفت برنامه‌های تسلیحات شیمیایی و بیولوژیکی این کشور هشدار دادند.
@@ -146,7 +270,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-19 16:32:00
 
-<img src="https://cdn1.telesco.pe/file/tIF5-_BmMtgS9AVsF05vhFKR4z4CHaYW2asmcZfnkJI7q0bnk10TRn46vq4f29Bk025eVIBX7s_nBT7ysAawN-CuhQ5jVsszpBCRyBVChAWgQqlCKrdokvBCsH0mQ4MRm2Irjc-IYMQVvyGG0m9EJr99Rg-QcJpSueWhLth8lRLSiutxOkKaCN4iEvYUe1Vr3q50yO2VAYfeRQMyj9R_QysMyLpa958SPQF_n8Jjjx7hMC8NgXMmDqvyfSAhfHfD1u2jpPC_r4mxCYLb2fVF8HE9zcFNCPiCYuED0YtLinxU4YDYv1wjQtsZXjdlpxaGUCqwE7MeST3ToqV3p4wmcg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/RQfpDYWGEumNGcTJuFrt90cAvhJKWl7IzppJlkJtY-P_HyGaVclvLjpmDrc90uwesmtiSeeEX0G2hIPEde262QSOxpUSyrDJ6440v_eiirIrYOfvCP0rBSIrt-unBfgNyMQUyQl8q2OmrEulGAEM85QZHt8XKM2I4dubOLvaO6vRClrbPaT7jZn0VmzRU6JUsIQV_VrdeR64H_iJXX4r9ypFbFBfRZhninbmTj2SF-pQOyaSj08nfK85u1Nrsjg6dWq10SwEMNLpf-tPCRs---8z1f6pLMIyEK_qPHfsKrX--hP26zbchjommviUcSOf5iezIdxc2ZVBd_4Q5Ds6QQ.jpg" width="400"><br>
 
 کمیته سوم مجمع عمومی سازمان ملل متحد چهارشنبه ۲۷ آبان پیش‌نویس قطعنامه‌ای درباره وضعیت حقوق بشر در ایران را با ۷۶ رای موافق، ۲۷ رای مخالف و ۶۴ رای ممتنع تصویب کرد.
 آمریکا در میان کشورهایی بود که رای ممتنع دادند و گفت متن به‌اندازه کافی برای پاسخگو کردن حکومت ایران قاطع نیست.
@@ -173,7 +297,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-19 09:12:05
 
-<img src="https://cdn1.telesco.pe/file/EUcrhR6BFCM8Ib2_PSajlHNWpV8V5h0lHwN8lj-OKyMJUwmZepv5E3m0juat5YtAdqu-yLTeKOnKti3pv_5vaoWEm8cR834aDao1Vs4u41rZXaTK54ZZ7bpF4c7869URMewLct4LFPJ9xhbZT86qG9gFKtl3_6u9eYNESSn1vD5ckqbSdSVLTDHSr1jegrsd10e-Bai0SJnG9cyz6Ak_AFS9sotjk3NwP7h7k9zGGGHYivsjciVfwXZCJ89FUP2QsGqjQlz7BqogSBoS3LOH8Dk9Vmwm4F8I5dVdDOFC0oRPdxpGtuGlZoPgQbA2VCzgTKvW6XHFJU7R38VH8aoNrw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pnJWpYHGFNGeSpUw0LPQxBwlxQRY0RogwzNnSoU0GJ4E0BTrurzcoS1CPfv67iY_xNkRDO0BUuSvzo5rhAqNJ79VHpeRh9JOEDNy9lQubvTXLH4IeJHQ79OV1luMe8iVNrB0d-XV5f_rBe5L1lRlvWlq3X94YHX3_0A9J7WzrQogMJG1FYNpYzMWu2keFZYknlo_bcJKlBTKdCvTTOtr43N4XDtavP-tRsk0UW7edaH1a_6I5qXQdtJZuyYPlUMdn97Bty7pyjjp-Q29oA1YgT5ztBnrnVSlvdYaELw8gwzK9Gcouml1mgs_wXnbFIax1xdFILXrZWgJQm9DYJAaWA.jpg" width="400"><br>
 
 چین، روسیه و جمهوری اسلامی ایران در بیانیه‌ای مشترک در شورای حکام آژانس بین‌المللی انرژی اتمی تأکید کردند که حملات نظامی به ایران و تأسیسات هسته‌ای این کشور و تداوم تهدید به تکرار این حملات، اجرای عادی پادمان‌های آژانس را عملاً ناممکن کرده است. این سه کشور اعلام کردند که ازسرگیری کامل فعالیت‌های راستی‌آزمایی آژانس در ایران به پایان تمامی درگیری‌ها، رفع تهدیدهای نظامی و ارائه تضمین‌های معتبر برای جلوگیری از تکرار حملات مشروط است.
 بر اساس بیانیه‌ای که نمایندگی روسیه در وین روز چهارشنبه ۲۷ آبان به نمایندگی از سه کشور ارائه کرد، حملات و تهدیدهای نظامی علیه ایران و تأسیسات هسته‌ای آن، ممنوعیت تهدید یا استفاده از زور در منشور سازمان ملل متحد را نقض می‌کند. در این بیانیه همچنین آمده است که ایران با وجود شرایط موجود، مجوز تمامی بازرسی‌های برنامه‌ریزی‌شده آژانس از نیروگاه هسته‌ای بوشهر در سال ۱۴۰۵ را صادر کرده است. سه کشور تأکید کردند که گفت‌وگو و تعامل دیپلماتیک بر پایه احترام متقابل، تنها راهکار عملی برای پیشبرد همکاری ایران و آژانس است.
@@ -183,213 +307,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79169)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-19 09:11:45
-
-
-
-
-
-[View Post](https://t.me/VahidOnline/79168)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-19 07:13:26
-
-<img src="https://cdn1.telesco.pe/file/canbTDnCxuyq7c6UHUna87c9bR2JnZLMXgPtwhiVZ7sObFKSJRPklhx5SdVkQUYhOHUikR9Rrekjoo0OBZaNxDVChSdEOKA5V6u668pdqFYfkR9cPLAmMCyF7hB_iEOkBi2xW70uq1FlB437uJXqEG1TmrPX2GMx_h32Zc-PvcA9iP6T6xSKwF5xY4p6r1oz0QOr9-lGykKTNvz4Nx49VEKjUabvyv9atcOGZdpj7I7N5ujzF7YlltQ_zNdvKSneJGEG2G3_Jt7qFsXmFUPTCrsYLlOPIsHjxrorDaStzVqWzEpcVW-7ExzHZavuxqSvtnz7uNAR5rgLchYNRZC6NA.jpg" width="400"><br>
-
-دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۲۷ آبان‌ماه در گفت‌وگو با جکی هاینریش، خبرنگار ارشد کاخ سفید شبکه فاکس‌نیوز، تلاش برای دستیابی به تفاهم‌نامه با جمهوری اسلامی را «اتلاف وقت» توصیف کرد و گفت که این روند، با وجود ایجاد تأخیر، به واشنگتن کمک کرد تا به این نتیجه برسد که نمی‌توان به مقام‌های جمهوری اسلامی اعتماد کرد.
-او در این مصاحبه که در شهر شنژن چین انجام شد، توضیح داد که از ابتدا تمایلی به پیگیری تفاهم‌نامه نداشت، اما توصیه مشاورانش را پذیرفت. به گفته رئیس‌جمهوری آمریکا، این تصمیم اشتباه نبود، زیرا فرصتی فراهم کرد تا دولت او شناخت بیشتری از طرف ایرانی به دست آورد.
-رئیس‌جمهوری آمریکا همچنین محاصره ایران را مؤثرترین اقدام دولتش علیه جمهوری اسلامی دانست و تأکید کرد: «به‌زودی به هر شکلی کار با ایران را تمام می‌کنم.»
-او با اشاره به تمایل مقام‌های جمهوری اسلامی برای رسیدن به توافق گفت که واشنگتن به دنبال توافقی پایدار است. به گفته او، در موارد متعددی توافق‌هایی حاصل شده، اما طرف ایرانی روز بعد از آن‌ها عقب‌نشینی کرده است.
-رئیس کاخ سفید همچنین از عملکرد مقام‌های جمهوری اسلامی در حوزه روابط عمومی سخن گفت و تأکید کرد که توافق آینده نباید به وعده‌های کوتاه‌مدت وابسته باشد.
-او درباره ضرورت دوام توافق احتمالی گفت: «من توافقی می‌خواهم که حتی اگر رئیس‌جمهوری احمقی داشته باشیم، که احتمال آن زیاد است، همچنان پابرجا بماند.»
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79167)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-19 01:47:17
-
-<img src="https://cdn4.telesco.pe/file/An0qfxU_SuTB9VAs0JyOen7Ih4Wq-hUTUnpeMKyfGrGPFQ7D8C6dLH9q5JThrP67rLniRdwhRmbV9Yp_1u0FETwC_YUR4FmSor8iblWE5R9BR0Fe8C2iiiPWG0BTgARSFRT5LJ3oJzYZ8gxuv73cYcU4b-lr39txstmOCaWcdZjyi1sMdYgqOpG-_e5nKFxdqtPMVvfkGwyih2_JCNyJ1HjpGojo6Z-RVZIshn2AKXRiHAK-3duMgGHU1c8Ma1XpPU5-7cLQrI7OcHIEwpsODTMyPqm8GufGnAxlbM-Pljr3kqArd_z2-KIl1Z9ahjV6M2m7WBpOPyeO3pxV09infQ.jpg" width="400"><br>
-
-به گزارش بلومبرگ در روز چهارشنبه ۲۷ آبان، ناو هواپیمابر آمریکایی «جورج واشنگتن»، که در چارچوب محاصرهٔ دریایی ایران در منطقهٔ خلیج فارس مستقر بود، این منطقه را ترک کرده است. با خروج این ناو، دو گروه ناو هواپیمابر آمریکا همچنان در منطقه حضور دارند.
-به گفتهٔ مقام‌های آمریکایی، احتمال می‌رود ناو جورج واشنگتن به بندر محل استقرار خود در یوکوسوکا در ژاپن بازگردد.
-گروه ناو هواپیمابر «تئودور روزولت» که روز دوشنبه وارد منطقه شد، همچنان در آنجا مستقر است. حضور این ناو به‌عنوان عاملی برای افزایش گزینه‌های نظامی دونالد ترامپ، رئیس‌جمهوری آمریکا، در قبال ایران ارزیابی شده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79166)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-19 01:47:03
-
-<img src="https://cdn4.telesco.pe/file/BpofPSoGh2JzI7DwMRuWd-ly5gMZ6ZV82jPpi6-hXpsqDKGnkkvw8f-GFQuu1MbqvNgsXDwpP6e2NNv5qfUbTDN0uk3XEOKSAkUj-S4EVGFcoXth9-ShAdFl7kFP5ydDCMOW9llQaQdtSFBnmI9rusI215akYrj0-8hgolz0y6selgUmx4gjh1NlExCoE9yDoVggyIOW_K-WgCQsuirQQbGhrwyF5uDeOTGHDD7jt2HW7QDiQwikftjBKStbMTN7GkYt2BCloEwuSP6k_s0N9DQFI4hC2LvtLEbEnZp9s7dTu-hWtJjcISpyDZjM-Fxhh9m_VfqVJ1bC6NbMKBJ64A.jpg" width="400"><br>
-
-265 likes
-‌
-ارتش اسرائیل اعلام کرد که برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (سنتکام)، روز چهارشنبه در جریان سفری به اسرائیل با مقام‌های نظامی و امنیتی این کشور، از جمله رئیس ستاد کل ارتش و رئیس موساد دیدار کرده است.
-این دیدار در حالی صورت می‌گیرد که تنش‌ها میان آمریکا و ایران بالا گرفته است.
-ارتش اسرائیل در بیانیه‌ای اعلام کرد: «نشستی سه‌جانبه میان ایال ضمیر، رئیس ستاد کل ارتش، رومن گافمن، رئیس موساد، و برد کوپر، فرمانده سنتکام برگزار شد.»
-به گزارش خبرگزاری فرانسه، کوپر و ضمیر همچنین به همراه «فرماندهان ارشد هر دو ارتش» از جمله عمر تیشلر، فرمانده نیروی هوایی اسرائیل، به «ارزیابی مشترک و جامع وضعیت منطقه» پرداختند.
-در ادامه بیانیه ارتش اسرائیل آمده: «این مقام‌ها درباره تحولات منطقه‌ای و چالش‌های امنیتی مشترک گفتگو کردند.»
-این سفر در حالی انجام شد که بحرین و کویت روز چهارشنبه اعلام کردند حملات هوایی ایران را، که در پی حملات آمریکا به قشم صورت گرفته بود،‌ دفع کرده‌اند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79165)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-18 18:21:10
-
-<img src="https://cdn1.telesco.pe/file/Y-t43pY17xSSOOCYiZsar-Gl98CLOLLupyhTcGhEAMveqZaas28xeZi9mycGDGl6OzUSUthMipBk27ltzLmJkXBg0FKiQ6tmRzG8TBT7YKALiHTVWHioSgMyh0cxxmvvBp-_xouMzOc7oefLLK1b_y4Yh6SjlU6si9HcRWkJYRoes19FrHhDDAbqzl7Catx6F9-Ec3y-D0PfGWAcV9IrDmF3syXROVliLZI4tKl55ssR5sZIrTq1fRKY8d_WKfMPQ55cBkgig6hMJTH97xbooOKuK_4I-hrGR9AOFDc1XlmRxHu5zSnBxipDq0Bv7D-jAU5h0aqvxTxhvmUvZgo_Rw.jpg" width="400"><br>
-
-رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، روز چهارشنبه ۲۷ آبان اعلام کرد که این نهاد، به‌استثنای نیروگاه هسته‌ای بوشهر، نه اطلاعاتی از ایران درباره وضعیت مواد و تأسیسات هسته‌ای اعلام‌شده دریافت کرده و نه به این تأسیسات برای انجام بازرسی و راستی‌آزمایی میدانی دسترسی داشته است.
-گروسی این اظهارات را در سخنرانی آغازین نشست شورای حکام آژانس در وین مطرح کرد و گفت در نتیجه این وضعیت، آژانس نتوانسته است مسئولیت‌های نظارتی و پادمانی خود را در چارچوب توافق‌نامه پادمان ایران ذیل معاهده منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) انجام دهد.
-مدیرکل آژانس با اشاره به حملات نظامی به تأسیسات هسته‌ای ایران در خرداد ۱۴۰۴ گفت نزدیک به ۱۸ ماه از زمانی می‌گذرد که آژانس امکان حفظ تداوم آگاهی و نظارت بر موجودی‌های پیش‌تر اعلام‌شده اورانیوم غنی‌شده ایران، از جمله ذخایر با غنای حداکثر ۶۰ درصد، در تأسیسات آسیب‌دیده از این حملات را از دست داده است.
-او تأکید کرد تا زمانی که ایران اطلاعات لازم درباره وضعیت مواد و تأسیسات هسته‌ای اعلام‌شده خود را در اختیار آژانس نگذارد و امکان دسترسی بازرسان برای انجام راستی‌آزمایی میدانی فراهم نشود، این نهاد قادر نخواهد بود نتیجه‌گیری کند که هیچ‌یک از مواد هسته‌ای اعلام‌شده از فعالیت‌های صلح‌آمیز منحرف نشده است.
-گروسی همچنین گفت آژانس در شرایط کنونی قادر نیست درباره اجرای مفاد مرتبط قطعنامه‌های شورای امنیت سازمان ملل متحد و قطعنامه‌های شورای حکام که در آبان سال گذشته و خرداد امسال تصویب شده‌اند، گزارش دهد.
-مدیرکل آژانس در بخش دیگری از سخنانش بر ضرورت بازگشت به مسیر دیپلماسی و مذاکره برای حل اختلافات مربوط به برنامه هسته‌ای ایران تأکید کرد. او از تهران خواست مجموعه‌ای از اقدامات فنی و تدریجی را در نظر بگیرد که زمینه بازگشت بازرسان آژانس به تأسیسات هسته‌ای ایران را فراهم کند.
-به گفته گروسی، چنین اقداماتی می‌تواند به بازگشت اجرای عادی تعهدات پادمانی و ایجاد فضای اعتمادسازی برای دستیابی به توافقی گسترده‌تر کمک کند.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79164)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-18 18:18:38
-
-<img src="https://cdn1.telesco.pe/file/VhXLP9PTc6VEK7m7RbkV-fRFcuZGzsjKJgLlg4xqBIbWcGON96XTjsut2bcjLSfQzgI1zUOdxDZATZs8oR3zp2XZIh53kAYxWW_Fb63joxNa5xvf9DxA40GjgFwDXsedyP3qohuVHxccRDNoaWphWcsKTMZapB5Z-pptzsvNHbP7iJRfqmwuHqvRXzKJYdN9b7TPOaq3KLAjTvKaRwOzalQE8nmk-dZeYiEFra4X368FIE8kA-afcYSSqJM2aDSS--g2O67E5O6Xz1PBs-p4Fjd1n6FqkOiiU1asHG31kd_KzuhpWJBjC1wLXzO_mwQ4SrOcJDMPMis9I-EJBvee9A.jpg" width="400"><br>
-
-خبرگزاری هرانا چهارشنبه ۲۷ آبان گزارش داد شمار شهروندان بازداشت‌شده در جریان اعتراضات آبدانان، در استان ایلام، به دست‌کم شش نفر رسیده است.
-به گزارش هرانا سینا درویشی، نوجوان ۱۵ ساله، اصغر اکبری، آرمین سلیمانی، ایرج حیدری، سعید عبداللهی و بهنام مرادی از جمله بازداشت‌شدگان هستند.
-با این حال، سازمان حقوق بشری هانا در گزارشی تازه اعلام کرد سینا درویشی پس از دو ساعت بازجویی در اداره اطلاعات آبدانان، با اخذ تعهد آزاد شده است.
-این سازمان همچنین از بازداشت محسن باویر خبر داده و شمار افرادی را که وضعیت بازداشت آن‌ها همچنان نامشخص است، شش نفر اعلام کرده است.
-@
-VahidHeadline
-اسدالله چراغی، نمایندۀ آبدانان در مجلس، به خبرگزاری تسنیم گفت: «در پیگیری‌های انجام‌شده، گزارشی مبنی بر بازداشت افراد در جریان اتفاقات اخیر آبدانان نیست».
-او ضمن تأیید برگزاری اعتراضات و سرداده‌شدن شعارهایی علیه مسئولان، مدعی شد که اکنون وضعیت شهر آرام است. چراغی همچنین گفت دادستانی و دستگاه قضایی در حال پیگیری این رویداد و شناسایی «مقصران» هستند.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79163)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-18 08:55:48
-
-
-
-روبیو در واکنش به گزارش سی‌ان‌ان درباره «بمب کثیف» و ایران: هیچ تهدید فوری متوجه آمریکا نیست
-مارکو روبیو، وزیر خارجه آمریکا می‌گوید در حال حاضر «تهدید فوری» از جانب ایران متوجه ایالات متحده نیست.
-او این اظهارات را روز سه شنبه در مانیل فیلیپین و در پاسخ به خبرنگارانی گفت که از او درباره گزارش جدید سی‌ان‌ان مبنی برای تلاش ایران برای «کشتن مقام‌ها و بمب کثیف» ایراد کرد و پاسخ داد:‌
-«اجازه بدهید چیزی به شما بگویم. برخی از منابع اطلاعاتی شما (رسانه‌ها) دروغ‌گو هستند. برخی دیگر هم دروغ‌گو و هم مجرم‌اند. آنها دروغ می‌گویند، چون مطالبی را از خودشان می‌سازند. ادعا می‌کنند به اطلاعاتی دسترسی دارند که در واقع به آن دسترسی ندارند و صرفا به این دلیل که یک نشانی ایمیل در دولت دارند، شما به‌نوعی برایشان اعتبار قائل می‌شوید. در وهله نخست، افراد دروغ‌گوی زیادی وجود دارند که اطلاعات ساختگی را در اختیار دیگران می‌گذارند. منظورم مشخصا گزارش مورد بحث نیست، بلکه به‌طور کلی درباره این موضوع صحبت می‌کنم... در مورد گروه دیگر، مجرم هم هستند چون اگر اطلاعات محرمانه‌ وجود داشته باشد را که نباید درز دهند، بیرون می‌دهند.»
-وزیر خارجه آمریکا در ادامه ضمن تاکید بر اعتماد خود به دستگاه‌های اطلاعاتی کشورش گفت تهدید آمریکا از سوی کشورهایی چون ایران «چیز تازه‌ای نیست» و افزود: «آنها از ۱۹۷۹ (۱۳۵۷) شعار مرگ بر آمریکا می‌دهند... تهدیدهای آنها برای آسیب رساندن به آمریکا چیز تازه‌ای نیست.»
-با این حال، آقای روبیو با اشاره به گزارش جدید شبکه سی‌ان‌ان و نگرانی از احتمال «تهدید فوری از جانب ایران» گفت:‌ ««خیر، چنین نگرانی‌ای ندارم... فکر نمی‌کنم هیچ تهدید قریب‌الوقوعی وجود داشته باشد.»
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79162)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-18 08:49:18
-
-<img src="https://cdn4.telesco.pe/file/l25W4gHZn1CADCi8R96S323X0J--7Du7scRIFUXHRnzWyxOfohvaYBfZ-e7uU6ZfGCzSEapwKLP9PzBAuLWuQacEnHB1t6nrBxmAVxekDTbmQaqUdxvHrpLNw1jc_rn_xHbU9dQCmUYhwDkP95GD9dD0g0teBkA6npND-D0roSvzzXnGS9jBkg4swlA2b0lUyhSDM2EWtN3k-Xw3wTmWOpDAFyoF-PkRo0Mft2Fx4dJnINgncn0QOPYn_OgsTv5HgJ9SYxDO82W0ViiVX0eHqBflV9kRLyBy9zzqEMxsKQVITNTkGZd0oYnjupqVN67NMa0Tw2kk-5r0a5278989wg.jpg" width="400"><br>
-
-روابط عمومی ارتش جمهوری اسلامی چهارشنبه ۲۷ آبان اعلام کرد که در عملیاتی بامدادی با استفاده از پهپادهای انهدامی، سامانه‌های پدافندی پاتریوت و سکوهای پرتاب پهپاد و موشک ارتش آمریکا را در پایگاه هوایی علی‌السالم کویت هدف قرار داده است.
-به گزارش خبرگزاری فارس، ارتش جمهوری اسلامی در اطلاعیه‌ای اعلام کرد که پایگاه هوایی علی‌السالم یکی از مراکز مهم ترابری هوایی و انتقال نیروهای نظامی آمریکا به منطقهٔ غرب آسیاست و در فعالیت‌های نظامی و لجستیکی این کشور نقش دارد.
-ارتش جمهوری اسلامی در پایان این اطلاعیه هشدار داد که پاسخ آن به هرگونه تهدید و حمله «قاطع، کوبنده و بدون محدودیت جغرافیایی» خواهد بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79161)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-18 05:35:02
-
-<img src="https://cdn4.telesco.pe/file/g6weJr9mv0x-3K-5hRt_0RDo-_otbveoKXXS13DApCbMHqE2TupJxiWNS64mSArkdDVHzSWhCT0jLFbKBTl2VyIhnnWh18zK9IHTpNm1KPM0LetC3s-XP_r9utMHLvOFSKPjQTgog9LMqd0gSRBUp7Zr1r6ifaAC5-HO7v5XdYJ-SyN6VfFJ5in-n0K6Akb2wIn3cvjg_dTrY7hapKq67cP1NpC6pJpOiN3cH44qoSMPF6YSF087DQWYukeYHRC1RoGfFzQoKYRIaGQvB_Poj1_knhFFRlO-KFS8VmokIh_1Vaf8Rn7NGmHmB8wcgBjqJJLFpJ1pu_0BleGELvczyA.jpg" width="400"><br>
-
-عصر روز سه‌شنبه، آصف مرچنت، ۴۸ ساله و تبعه پاکستان و از عوامل سپاه پاسداران، از سوی اریک آر. کومیتی، قاضی دادگاه فدرال بروکلین، به ۳۳۰ ماه زندان محکوم شد.
-او به تلاش برای ارتکاب اقدام تروریستی با ابعاد فراملی و اجیر کردن آدمکش برای قتل محکوم شد.
-به گزارش وزارت دادگستری آمریکا، مرچنت از نیروهای آموزش‌دیده نیروی قدس سپاه پاسداران، بازوی تروریستی بین‌المللی حکومت ایران، بود.
-هیئت منصفه دادگاه فدرال در مارس ۲۰۲۶ او را به دلیل سفر به ایالات متحده با هدف سازمان‌دهی ترورهای سیاسی در خاک آمریکا مجرم شناخت.
-مرچنت بنا بر اعتراف خود، داوطلبانه به سپاه پاسداران پیوسته و به یک عامل اطلاعاتی آموزش‌دیده تبدیل شده بود.
-او سپس به ایالات متحده سفر کرد و به نمایندگی از سپاه پاسداران، افرادی را برای قتل مقام‌های دولت آمریکا شناسایی و به آن‌ها پول پرداخت کرد.
-مرچنت در جریان شهادت خود در دادگاه اعتراف کرد که حدود سال ۲۰۲۲ از سوی سپاه پاسداران جذب شده است.
-در آن زمان، او سفرهای زیارتی به ایران را آغاز کرد و از طریق یکی از بستگانش به یوسف مهرحداد، رابط سپاهی خود، معرفی شد.
-از حدود سال ۲۰۲۳، مرچنت طی یک سال و نیم، حدود ۱۵ بار در تهران با رابط خود در سپاه پاسداران دیدار کرد.
-در این ملاقات‌ها، رابط سپاهی او را با روش‌های ضدجاسوسی آموزش داد و مامور کرد برای سازمان‌دهی طرح ترور مقام‌های دولت آمریکا به این کشور سفر کند.
-مرچنت سپس با افرادی تماس گرفت که تصور می‌کرد آدمکش حرفه‌ای هستند، اما در واقع ماموران مخفی اف‌بی‌آی بودند.
-مرچنت سپس پنج هزار دلار به‌عنوان پیش‌پرداخت برای اجرای طرح ترور به این افراد پرداخت کرد.
-او این پول را با کمک بستگانش در خارج از آمریکا تهیه کرده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79160)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-17 23:50:36
-
-<img src="https://cdn4.telesco.pe/file/CAJVL0LCzab_See7l9j0VoATLZf7b0q_UcxkreBkOzXUHX_5R6UiKH6Rx03ff6letLXLijhJObAj-l1Bn3paJixan10hrFEWm5SY0xC860yLjwkqQ_agad3TNoEg6tb2EJH_MMf74WLD6X7CLhbX6nb_QPtiTwUe9lSr4B57u0GRDKysCVJy6NItVKplzEyJbS8lDn3y1rx3kAuh6JrK5D2bXiPcvhYP71FzUModQ6REXaWmkdaDjr8YcyrYUYOduXG8lngp5hsiTKYVMhkSk_uHlzugiJYWt030E7SYFP9CT7mLVi4JljNEGI6p_TOsZV-lvlQlyWCs_Kem7L5CwQ.jpg" width="400"><br>
-
-یک مقام نظامی آمریکا اعلام کرد جنگنده‌های این کشور روز سه‌شنبه ۲۶ آبان با استفاده از مهمات هدایت‌شونده دقیق، یک محل استقرار و پرتاب موشک متعلق به سپاه پاسداران در جزیره قشم را هدف قرار داده‌اند.
-باراک راوید، خبرنگار اکسیوس، در شبکه اجتماعی ایکس به نقل از این مقام نظامی نوشت که این حمله در چارچوب «اقدام دفاع از خود» و در واکنش به حملات سپاه پاسداران علیه نیروها و تجهیزات آمریکایی انجام شده است.
-این مقام نظامی همچنین گفت فرماندهی مرکزی ارتش آمریکا (سنتکام) همچنان در سطح بالایی از آماده‌باش قرار دارد و برای حفاظت از شهروندان و نیروهای آمریکایی در سراسر منطقه آمادگی کامل دارد.
-احمد نفیسی، معاون سیاسی، امنیتی و اجتماعی استانداری هرمزگان، پیش‌تر حمله آمریکا به نقاطی در محدوده جزیره قشم را تایید کرده و گفته بود این حمله خسارتی به مناطق مسکونی، تجاری و زیرساخت‌های جزیره وارد نکرده است.
-همزمان با این تحولات، سپاه پاسداران مدعی شده بود یک سامانه راداری متعلق به نیروهای آمریکایی در پایگاه شیخ عیسی بحرین را هدف حمله پهپادی قرار داده است. سنتکام این ادعا را رد کرد و گفت پهپادهای شلیک‌شده از سوی سپاه به سمت بحرین رهگیری و منهدم شده‌اند.
-خبرگزاری رویترز نیز روز سه‌شنبه به نقل از یک مقام نظامی آمریکا گزارش داد که جنگنده‌های آمریکایی حملات هوایی تازه‌ای به یک محل پرتاب موشک در جزیره قشم انجام داده‌اند و این حمله در واکنش به هدف قرار گرفتن نیروها و تجهیزات آمریکا صورت گرفته است.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79159)
 
 ---
 
