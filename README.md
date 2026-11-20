@@ -3,8 +3,28 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-19 22:49:53 </h5>
+<h5> 🟢 Updated at: 2026-11-20 05:03:05 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-20 04:57:37
+
+<img src="https://cdn4.telesco.pe/file/uVCaetCbtgcKjbfWLX0KgAJjRN4oINsXXCEVrbvomp28xAo-plWoZs7ClnBcAxXkPeN-r0fr-plcOPkNW3dFOMIPXwwPEmbsDKZod6iuNYNf8O5rtrNiCixAj2Sea-f-xewvr7AsH0pfEFu5R4JhblLchdxVc3N5XMxdpBEIszPANoalq7R4k0hO3PCC5VpSLy9n2ropdBfOeLDwSclkmS1pjf1FRF00OMTbwc6f4FYNSLERd75By7EyLw7piaxPuoI53c1EEOJljlaw5TUkprlGUiOlxfVmBgV3UVZUIWBc4FSSHy0Ukp-AD7YD4lBvRONOfkN6k_KocsONowXj9A.jpg" width="400"><br>
+
+به گزارش خبر آنلاین روز پنجشنبه ۲۸ آبان صدف حق‌بین، زن جوان ۲۳ ساله اهل خمام در استان گیلان، سه‌شنبه ۲۷ آبان در جریان یک مهمانی با شلیک گلوله شریک عاطفی سابقش کشته شده است.
+بر اساس روایت‌های منتشرشده در رسانه‌های محلی، مرد جوان با سلاح شکاری وارد محل مهمانی شد، حاضران را در اتاقی حبس کرد و سپس به سراغ صدف رفت. برخی گزارش‌ها می‌گویند او پس از ضرب‌وشتم صدف، از او خواست موافقتش را با ازدواج اعلام کند و پس از مخالفت او، به سویش شلیک کرد. انگیزه مرتبط با مخالفت صدف با ازدواج در گزارش رسمی پلیس تایید نشده و پلیس از «اختلافات شخصی» سخن گفته است.
+در شبکه‌های اجتماعی همچنین به آخرین مطالب منتشرشده صدف حق‌بین پیش از کشته‌شدنش اشاره شده است. بر اساس تصاویر منتشرشده از حساب کاربری او در اینستاگرام، صدف دو شب پیش از کشته‌شدن، مطلبی در سوگ «سوگند صیادی»، در روایتگر خود منتشر کرده بود.
+سرهنگ ایمان جهان‌دیده، فرمانده انتظامی خمام، وقوع این قتل را تایید کرد و گفت عامل قتل پس از تیراندازی از محل گریخت، اما ماموران او را در مدت کوتاهی در مخفیگاهش بازداشت کردند. به گفته او، یک قبضه سلاح شکاری نیز کشف شده و متهم در تحقیقات به ارتکاب قتل اعتراف کرده است.
+سوگند صیادی روز شنبه ۲۳ آبان، پس از آنکه پدرش او را از مدرسه به خانه برد، از طبقهٔ پنجم ساختمان محل سکونت خانواده سقوط کرد و جان باخت. روایت‌های منتشرشده در شبکه‌های اجتماعی حاکی از آن است که او پیش از بازگشت به خانه از واکنش پدرش ابراز ترس کرده بود.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79178)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-19 21:46:56
@@ -203,7 +223,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-19 01:47:17
 
-<img src="https://cdn4.telesco.pe/file/priCSICxhz6pK52uWupWsV81knLmdpPkl-t3PDz5f1j37En6Bj5Xt2BwjRCgAuAkA_vcI5K2WY7aoOe_RqPQVbkeM9FCmrPOVCjRJaQlTz7TNcdBWV7hK3NDviyMoDeHaMoj7L9MWyUiWFbKQ1738gEbhnFfUGcdqrEiNMWWoQYw699MtFjEMbIz5ciE9OGNruU-JZUl8hcBJWjqdDfPMouKteaBWMwobDw9OANf2xZ25ZR4cBbDrZyvLEBK5389n6G3zMExgrZzHwHXxR0MNYe4LGFShQ4PnHCw-3orBeAQgke8KFh0g74PeBF_3M4Qwn2zZg9D4kBpqMz8yH66SQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/An0qfxU_SuTB9VAs0JyOen7Ih4Wq-hUTUnpeMKyfGrGPFQ7D8C6dLH9q5JThrP67rLniRdwhRmbV9Yp_1u0FETwC_YUR4FmSor8iblWE5R9BR0Fe8C2iiiPWG0BTgARSFRT5LJ3oJzYZ8gxuv73cYcU4b-lr39txstmOCaWcdZjyi1sMdYgqOpG-_e5nKFxdqtPMVvfkGwyih2_JCNyJ1HjpGojo6Z-RVZIshn2AKXRiHAK-3duMgGHU1c8Ma1XpPU5-7cLQrI7OcHIEwpsODTMyPqm8GufGnAxlbM-Pljr3kqArd_z2-KIl1Z9ahjV6M2m7WBpOPyeO3pxV09infQ.jpg" width="400"><br>
 
 به گزارش بلومبرگ در روز چهارشنبه ۲۷ آبان، ناو هواپیمابر آمریکایی «جورج واشنگتن»، که در چارچوب محاصرهٔ دریایی ایران در منطقهٔ خلیج فارس مستقر بود، این منطقه را ترک کرده است. با خروج این ناو، دو گروه ناو هواپیمابر آمریکا همچنان در منطقه حضور دارند.
 به گفتهٔ مقام‌های آمریکایی، احتمال می‌رود ناو جورج واشنگتن به بندر محل استقرار خود در یوکوسوکا در ژاپن بازگردد.
@@ -221,7 +241,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-19 01:47:03
 
-<img src="https://cdn4.telesco.pe/file/rQxAIOt4DBxUVuuQ29LH4zmfzunP9wk9Q7ZICdRKMBkqnnMawQ8Dr_6O2F9B3ARB3nGEVp2GOnUxDDJcpjZhJo-Hm7Vl8vU6KbWGuqHZJllEvuPfVesV51RQVIq1tMpW6EbOOUnMwfjPECkssIQN7dCLUc0THRUA7y5gDBIZX_EwkmxL3O7v8Xf4IAVMIl73-oYfSaMjSZUNlDpfTpDMOd_6_JEVbhraxE9ZCl_tkPbMKxKRYoAUzbpicu4dc2ROM8a-9qpfeFfs8X5fh2dPJRBCMZBDB_4aXCWqakAkhgsrqNQIHWXbu7X0BySXPP-kKc7ZsIMB854MaecVM4p2RQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/BpofPSoGh2JzI7DwMRuWd-ly5gMZ6ZV82jPpi6-hXpsqDKGnkkvw8f-GFQuu1MbqvNgsXDwpP6e2NNv5qfUbTDN0uk3XEOKSAkUj-S4EVGFcoXth9-ShAdFl7kFP5ydDCMOW9llQaQdtSFBnmI9rusI215akYrj0-8hgolz0y6selgUmx4gjh1NlExCoE9yDoVggyIOW_K-WgCQsuirQQbGhrwyF5uDeOTGHDD7jt2HW7QDiQwikftjBKStbMTN7GkYt2BCloEwuSP6k_s0N9DQFI4hC2LvtLEbEnZp9s7dTu-hWtJjcISpyDZjM-Fxhh9m_VfqVJ1bC6NbMKBJ64A.jpg" width="400"><br>
 
 265 likes
 ‌
@@ -356,7 +376,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-17 23:50:36
 
-<img src="https://cdn4.telesco.pe/file/MimCQEU9etvbBZVCI1GPY82eraLeTA830pmTnJIkVdLfDSR5iTBjn88hq27JZG7bueJjLmcqoKpqrKF4yHgz356PCjVBj_WU_9Z2RcwfXFny3xDKqohKwB66hcM_gQuPgwfRFb5UP3pWqBZbP8PfPZEDt0ORyT9GSoiwOCrqKhtT3yDu-D4dQGoKRH5Hf_feOmfeTbKN4KgvA5OkjrfZhYxsF66C1IXDEbvrjMFZnMqlvd-iwFGMXXPhdpNVFbeBSKAGSrHTzf5gps4jmpeW3VRI17hX7WOBhJxR64U2j3muIuhQwAFuhUCBs1AgIznupPVQRb41dXn0DyWWDNw7tA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/CAJVL0LCzab_See7l9j0VoATLZf7b0q_UcxkreBkOzXUHX_5R6UiKH6Rx03ff6letLXLijhJObAj-l1Bn3paJixan10hrFEWm5SY0xC860yLjwkqQ_agad3TNoEg6tb2EJH_MMf74WLD6X7CLhbX6nb_QPtiTwUe9lSr4B57u0GRDKysCVJy6NItVKplzEyJbS8lDn3y1rx3kAuh6JrK5D2bXiPcvhYP71FzUModQ6REXaWmkdaDjr8YcyrYUYOduXG8lngp5hsiTKYVMhkSk_uHlzugiJYWt030E7SYFP9CT7mLVi4JljNEGI6p_TOsZV-lvlQlyWCs_Kem7L5CwQ.jpg" width="400"><br>
 
 یک مقام نظامی آمریکا اعلام کرد جنگنده‌های این کشور روز سه‌شنبه ۲۶ آبان با استفاده از مهمات هدایت‌شونده دقیق، یک محل استقرار و پرتاب موشک متعلق به سپاه پاسداران در جزیره قشم را هدف قرار داده‌اند.
 باراک راوید، خبرنگار اکسیوس، در شبکه اجتماعی ایکس به نقل از این مقام نظامی نوشت که این حمله در چارچوب «اقدام دفاع از خود» و در واکنش به حملات سپاه پاسداران علیه نیروها و تجهیزات آمریکایی انجام شده است.
@@ -370,18 +390,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79159)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-17 18:35:29
-
-<img src="https://cdn1.telesco.pe/file/qvmzCxRjKtWZZWskw8_wnnlQkbG91BV8XqioBXjg2uciCXoONdEcDnSObj6lmVNjV67BpL7e6G_mcAARwqcsvEKCbLNI9joF5c5SEoN2zFAiA6u6xkNGHF-YqYjnnooEcJbclbDVl9jv-lptum-gYaqUV4Y6heCkSF3M1U7Tw8ExXpCd6ToIyOfADUX7fM6IyVu3NDPR_wKInXDZVZLf-J4xOXFHWXcJgVfkmaA-fqK-hpl05KkZAfUzD4cnq0f_W-KOxpxMX2sM3UmMyh6cpchltr_sXlb4qlje3THYPsXs9n6uazkGOwTIp5a2-rie_N9o7LO_8ZJBM8o8Yq5slw.jpg" width="400"><br>
-
-پیام‌های دریافتی از ۱۶:۲۲  همین الان صدای انفجار اومد قشم دوتا افنجار قشم پشت سرهم دارن میزنن قشم رو سومی   وحید قشم کوبوندن چند بارر  تا 4/23 پنج‌تا انفجار خیلی شدید توی شهر قشم، احتمال میدم سایت پدافند نریمان قشم بوده. مثل روزای اول جنگ بود  تا الان صدای…
-
-[View Post](https://t.me/VahidOnline/79154)
 
 ---
 
