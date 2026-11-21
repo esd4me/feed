@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-21 04:01:34 </h5>
+<h5> 🟢 Updated at: 2026-11-21 11:22:37 </h5>
 </div>
 
 
@@ -209,7 +209,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-20 04:57:37
 
-<img src="https://cdn4.telesco.pe/file/uVCaetCbtgcKjbfWLX0KgAJjRN4oINsXXCEVrbvomp28xAo-plWoZs7ClnBcAxXkPeN-r0fr-plcOPkNW3dFOMIPXwwPEmbsDKZod6iuNYNf8O5rtrNiCixAj2Sea-f-xewvr7AsH0pfEFu5R4JhblLchdxVc3N5XMxdpBEIszPANoalq7R4k0hO3PCC5VpSLy9n2ropdBfOeLDwSclkmS1pjf1FRF00OMTbwc6f4FYNSLERd75By7EyLw7piaxPuoI53c1EEOJljlaw5TUkprlGUiOlxfVmBgV3UVZUIWBc4FSSHy0Ukp-AD7YD4lBvRONOfkN6k_KocsONowXj9A.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/udFVTJJB78JwvK1tCz2WcZVfmkfdISpy9T9ITQ6m2sDACJMNEHNOHJSfkEK4oqe2cg8H1sF9CfZiMzOIHTeBxalOJSmVVvVlIRy_kIRVIWpI7J_UWfTXlJM51aR8Wyw4-bJPhKFB6OahIJDwY6zwCPrHN_ROxwgBokOzmJkBvpkEbQiTiab-K8fof_rvIrQh8xL1niS8mGPBzRFsnIxEatH1MfdyJ6hjYHe4TrLhe3k8EAjs3bvCgzvnGlLTFjocmG3kTdp_SLot7g6ZFViqS_a05Rlg2Oah0UTSOOYAQnvEMRWesocy4TLHQBoWwgFHALLnHQgaVWTIUFwk_v6haA.jpg" width="400"><br>
 
 به گزارش خبر آنلاین روز پنجشنبه ۲۸ آبان صدف حق‌بین، زن جوان ۲۳ ساله اهل خمام در استان گیلان، سه‌شنبه ۲۷ آبان در جریان یک مهمانی با شلیک گلوله شریک عاطفی سابقش کشته شده است.
 بر اساس روایت‌های منتشرشده در رسانه‌های محلی، مرد جوان با سلاح شکاری وارد محل مهمانی شد، حاضران را در اتاقی حبس کرد و سپس به سراغ صدف رفت. برخی گزارش‌ها می‌گویند او پس از ضرب‌وشتم صدف، از او خواست موافقتش را با ازدواج اعلام کند و پس از مخالفت او، به سویش شلیک کرد. انگیزه مرتبط با مخالفت صدف با ازدواج در گزارش رسمی پلیس تایید نشده و پلیس از «اختلافات شخصی» سخن گفته است.
