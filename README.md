@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-22 00:51:03 </h5>
+<h5> 🟢 Updated at: 2026-11-22 05:18:51 </h5>
 </div>
 
 
@@ -26,7 +26,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-11-21 23:27:43
 
-<img src="https://cdn4.telesco.pe/file/mDF5dyoknfO2zCJbQuluANtRBpc5gSJcr94LkkJyLf6wJu6Pb4NNEE1I_JOH09qJKgWxGqAG_ApjjVNaaY-FIEk-SFIVCorh4PaloXIGQjFOwNGoJoA0anW2VZvdrSTVPXFULa1Kmynsoc_mVDnjNCzy7-gLqvyjloy1jBZiY33RpmHBIdWF_7dS0QFgHeeUZUsA0KPCi_JAwNJwyyJFoeCOOs2qbosIbIAjQ6-QrxkQqYXBfpWjtp3BPbh76zxXGNjyH5po0aW_MwTlSUmwXPO-19vr0aqSVtW5Tph2Du6G51t1TFId0aNeNTNcxRlllsZJnNdvszOpYpjtUSulRg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/Cqlc-QCkphw2gZlv9Rm6NNbcE6-ras7g5VxSPPvS2inFVJ1fFTAKBjHXs8xDKEY8w6Sku_HnwVS1IP080Xq858pgvOzvTGCUYLbphLJiCtopbZn1MHRa9r9FKbNkSyzJPkxwIfc2i3pxRuBAmXLdBJT405pM_bBYZv5RK8LQ_wH8D6mZkqJtXVBgDEJ2XN-A8ZP-e0aPgk6jX7b5B5F5AqHG3_uSNf3lGFemc2DdunhiHzoPJ0LVYzrt5iqcHexzY9VMAFNmi1pbqscrOrQBAS95ZK1mSxRa120fPacm1uFmYexSP16WhtiG4QYT_lJ3UgRaoO1go84QBKdbcsbQXg.jpg" width="400"><br>
 
 وزارت کشور بحرین اعلام کرد که در پی حملهٔ ایران به «تأسیساتی صنعتی و غیرنظامی» در این کشور، آتش‌سوزی رخ داده و نیروهای امدادی برای مهار آن وارد عمل شده‌اند.
 این وزارتخانه شامگاه شنبه ۳۰ آبان در پیامی در شبکهٔ ایکس اعلام کرد که بر اساس گزارش‌های اولیه، این حمله خسارات مادی به بار آورده، اما هیچ‌گونه مصدومیتی گزارش نشده است.
@@ -151,7 +151,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-21 17:38:35
 
-<img src="https://cdn1.telesco.pe/file/c0x167vzoVORLLvcTKUwYnvFjFRbb2zxWpKU8GwBY4W78AbKXDDVd2lwGGp2gWOfsBQmtCsi-my8fX9yQsveQ7Exkw_ixC1oG_RSGBqEWjJAUqlMkzKXkfbWGJUdzYK_4XU5arOCW1QNjjIsbdUyUM5nWtDAG283U7FomgF4maJSLORfPXnJWkTU8Au25Plo9VaQQSNTaTP0pBK4EBJdArpmmfQ9rB73Zufx67g4kI-zl5pX5Ckfz-mlzkGi7-3XMFp6wOwe5MuWJMkWGIwzk255j_0pGbKU_N0QDYyXKiatYITuDr8Jo3TqMLUBBiXnEOoX4vu51nWVb3QX6sx0NA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/KgEVabuTz2of_U_X5QaCgRNNDUAMHcxS7DO8fXOTzVHg_GIQlYDWf_dEh569YYw1x2IslPmeGXaJb_qUv8vAmsWR5dpBi3Wh_O3SbLpM0PaBoL0b-7BTKjEfrMlud86EVDVFyepENI8CBUIj6TxVdOf0ni5ZZ8V76qZacc-Q631nCgGvmcOpHzcfZ2s0AbuP6-X1u-pdCDDuvnAFATVy93ElaVUoDV9DHG7xStA7lysussXnI7tCjwqW5J8lNeCKhs0uNByymxlKqF1XiTMVvpVHKhW_mJJEgKiHpItV_kIG_KykgJwRZBeTbxnw4sNmAzfhbxyXOLEzX2otagQnGA.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا، می‌گوید دونالد ترامپ در دیدارهای اخیر خود با رهبران روسیه و چین، با آن‌ها درباره جلوگیری از دستیابی ایران به سلاح هسته‌ای و ضرورت تضمین آزادی کشتیرانی در تنگه هرمز «به اجماع رسیده است.»
 بسنت روز جمعه ۲۹ آبان در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت آمریکا، روسیه و چین در این دو موضوع با یکدیگر اتفاق نظر دارند و «هر سه کشور با آن موافق‌اند».
