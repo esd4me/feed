@@ -3,8 +3,66 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-22 12:35:26 </h5>
+<h5> 🟢 Updated at: 2026-11-22 21:00:20 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-22 19:25:13
+
+<img src="https://cdn4.telesco.pe/file/fpPpY4_4H3WSIWOfjsAijiY8pUD4lvX09eUmzz0BJPH96-Yx8dUDwrpc57PNGxsZWwtwvX2BX8kghwvUn6xWoW-WohJ81Ktb2Vu_0ZVcuem1H8gm55E51n0gF-dgxQiQ_hteyg6rhxSm3x_HbULt1WdYu9r_zpfhKhQ0pXp7vUaG3kRh1l8tgXeKOZZIiOnDYgwMPe7PKrnelZTQuJJAWJT9-EjAb-RaEXZuNuvUN8lmNU3OQS34szNP9qxCm9dCml8dF0QQFdGx9BFeRInIfnZWdcLGC0JKtg75a_f77sZ1iuPNzabb9Zx5RkhNpT6z-FqISpNn7HHfhpboXYMqWw.jpg" width="400"><br>
+
+نوید نجاران (راست) و میلاد آرمون
+سازمان حقوق بشر ایران در نروژ روز شنبه، ۳۰ آبان، تأیید کرد که میلاد آرمون و نوید نجاران، دو معترض «زن، زندگی، آزادی»، «در خطر اعدام قریب‌الوقوع» هستند.
+این سازمان روز شنبه، در پی انتشار خبر انتقال این دو زندانی سیاسی به سلول انفرادی در شبکه‌های اجتماعی، نوشت: «میلاد آرمون و نوید نجاران، دو معترض «زن، زندگی، آزادی» و از متهمان پرونده اکباتان، شنبه به سلول انفرادی زندان قزل‌حصار منتقل شدند.
+ایران در ماه‌های اخیر با موج تازه‌ای از اعدام‌، بازداشت و صدور احکام سنگین روبه‌رو بوده است، موجی که به گفتهٔ نهادها و سازمان‌های حقوق بشری، در فضای جنگ، بحران امنیتی و اعتراضات، به‌عنوان ابزاری برای ایجاد ترس و کنترل جامعه عمل می‌کند.
+رسانه‌ها در ایران روز سوم خرداد سال جاری خبر دادند که در دادگاه انقلاب تهران برای محمد حسینی، میلاد آرمون، مهدی ایمانی و نوید نجاران حکم اعدام صادر شده است.
+این در حالی است که هنوز یک هفته نشده بود که بر اساس حکم دادگاهی دیگر این متهمان جوان از حکم اعدام تبرئه شده بودند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79212)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-22 19:22:00
+
+<img src="https://cdn1.telesco.pe/file/pDItI7zUHshurrqPbDZyw-jqdVoze3Ne9HSq0bPKcklZZ3THfpfr5_BkvAVg4XKqklVXx8o2HXH7ZME_ECkgmWuLEeX-s0rrOLvUS9aRVZmNVpeHMSLDyDJRuam_EWuCjWsnu137enaovDVi_oqXcsCorYsT-dxdFRQDIE3to5D2l5KnFs7hFf3kfU4k4VJOV4BjrS3KNjfNUqUoA5dc8U2KVp8AJ4PS4wCtZn6HOUzpR0v7fPVY7M-KcBCoFe0QgM_hYQMpHzAwcqjwc43J9eUDpAMsGTbhDK-v3L1ar5pVM4Py8k4cyJ-0-1hGAG-f8gTJVSMuUjC2jWmZQOJt6Q.jpg" width="400"><br>
+
+میلاد تقدسی، معاون درمان دانشگاه علوم پزشکی نیشابور، در گفتگو با رسانه‌های رسمی ایران، با ذکر آنکه تا ظهر یکشنبه اول آذر ماه، ۷۲ نفر بر اثر مصرف مشروبات الکلی مسموم شده‌اند، اعلام کرد تعداد قربانیان به ۴ تن افزایش یافته است.
+به گفتهٔ او، از میان مسمومان ۶۷ نفر مرد و ۵ نفر زن هستند. ۸ بیمار نیز برای ادامه درمان به مشهد اعزام شده‌اند و ۴۹ نفر نیز تحت درمان دیالیز قرار دارند.
+هم‌زمان، مجتبی موهبتی، فرمانده انتظامی نیشابور، از بازداشت ۱۲ متهم در ارتباط با تهیه و توزیع مشروبات الکلی سمی خبر داد.
+او گفت در عملیات‌های جداگانه ابتدا ۸ نفر از متهمان بازداشت شدند و سپس ۳ مرد و یک زن از عوامل اصلی تهیه و توزیع این مشروبات نیز دستگیر شدند. تحقیقات برای شناسایی دیگر افراد مرتبط با این پرونده ادامه دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79211)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-22 19:20:44
+
+
+
+قتل‌های پروانه اسکندری و داریوش فروهر در اول آذر ۱۳۷۷ پرده از یکی از تاریک‌ترین فصل‌های رویه حکمرانی جمهوری اسلامی یعنی قتل‌های سازمان‌یافته دولتی برداشت.
+قتل آنها، زنجیره‌ای از قتل‌های دولتی را افشا کرد.
+تنها چند روز بعد، جسد محمد مختاری و سپس محمد پوینده، دو نویسنده و روشنفکر سرشناس با نشانه‌های خفگی پیدا شد.
+هرچند با فشار افکار عمومی و رسانه‌ها و مدارک انکارناپذیر در نهایت تنها وزارت اطلاعات مسئولیت انجام ۴ قتل  توسط عوامل خود را پذیرفت؛ اما سر رشته این قتل‌ها به آغاز روی کار آمدن جمهوری اسلامی می‌رسد و تا امروز همین رویه حذف فیزیکی ادامه داد.
+IranRights_org
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79210)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-21 23:59:06
@@ -112,7 +170,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-21 18:18:01
 
-<img src="https://cdn4.telesco.pe/file/uDN1EPp1rGJWX-5PbB0bMm2BNEuECxnwVJL72sYS0NBUKrPdIq4SD1OoLkj6hwo0hZtNVjc4jlIDL_LE0sYRwG-O5NXPL72pRvzauglwyVsqBwrJOhjYVJyNtSxbz8HpRNeMWUtt4wN9LImvcheK63UBUpykRcnUTQyO0Ap3hMEX39B3HMwL28YHutEdDvm096nZou8-2VqG97HC8CNz9Yqxt0ss3BLxA-tsAdBPE-QgWtfSlEzq5thxtY4EhiJ8L78j6kj-mzk2GCPeBk9P1YRwOE8K9AZ5hs3O5SB8AnYr8yhJTGIIlTHzYLHEKiHjkvHV3GS_wf-OrjfpydQwBg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/NYyrGaQTuRkgko6IuDgpoX_MHwL6fjnLveS6DwKd7LQmjaY8ABJn3nhSNsx5etmOT9pLdEYpPxJgROGzreo_eya95OL3XSQ2aBRpuRsNXK-v_Vxa7bKZOw4o8hgjy6EYUJioMuQpmNLGd1xkM1yZBLhlyNCzyA-y9TMfli0mZV1NMbWBTmdrMjcURZbUaWOzpSt7Egw6BBsHIXgTGN9f2_FzIZAVZce2JFTlxUoPgNRFHYR4gCZoOzunVhyaKpLU138hHEIHg61JmoRmk4ISVuKloEVYhcNySXnVQ1uaYDeewcUFs7OX6d5hM4h5TWRS3Qe3icjmmZa2shZ0BdtsoA.jpg" width="400"><br>
 
 وزارت خزانه‌داری آمریکا چهار ایرانی را در ارتباط با فروش نفت تحریم‌شده ایران تحریم کرد. مجید تاج، برادر مهدی تاج، رئیس فدراسیون فوتبال ایران، در میان تحریم‌شدگان است.
 خزانه‌داری آمریکا می‌گوید این افراد در فروش نفت ایران به خریداران خارجی و وصول درآمد آن نقش داشته‌اند. دارایی‌های مشمول صلاحیت آمریکا مسدود می‌شود و معامله با این افراد برای اشخاص آمریکایی، جز در موارد مجاز، ممنوع است.
@@ -129,7 +187,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-21 18:08:16
 
-<img src="https://cdn4.telesco.pe/file/ZXPIOedNg6RhyIJf_GFPH-P0p2i0Mcc6L-3CO8_umypxPYusc8DzeQzZwFL_-gZVh1rdLDJkt-EmoR2oMLqmoXCvYy4uxdopfJ79VVwPRjwrIeTR9EBd2qNHYA1sklqPXiJbUabbtdhtKmziVDX757UWV5_czdcVkI_ODaNEUcphRaLKoGkiFdte-5alWkq-by8Zm2sgPQ7lJJ_G9qo_9RzsecFt_RpmLLAhrYjmTg6zRxnnwBDuKx6cLQ7q0Gr6FO7kbRlki9HPa0IK4Si2WLR1HQECX70SqotkFWFWeraxxml7T-ev-4QLQBDggGlpN5BoY3EJGLo670uyah0ZxQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/uLSj42Nf9jLE--Bg0hpiacjzftCXiNDuAi_TtwLDJjjMyVu4PYWNdr9C9w_e2tSI1C9HiNukhIztZumU4wyW7bxUaGUmaBwztkkvf9lvv8kzvVN2i_SAARwHe3Q-eXL82LCjvFrSaZBle_1n1PdxrRY32hC2mmmwFHV-Sf47TVdYgit2y1nPlMyDKXwHXQeLSh8WxJ06ug13vSQcjC2q7CAA5MmigNhjxNE_4GRbACMxhZxnR1GqU3PWo5vroiNpev4VqfI8tyYHHIojtNSnwRY1ftkYKW8pzNzVIfdYGgIu1AygZSJkPHeKVoWPe42Uee3AbhT0BOtQKGnj2L1Jsg.jpg" width="400"><br>
 
 باراک راوید، منبع خبر در اکسیوس و کانال ۱۲ اسرائیل، دقایقی پیش:
 به گفته یک منبع آگاه، علی الثوادی، فرستاده قطر، شب گذشته برای گفت‌وگو با مقام‌های ایرانی به تهران سفر کرد. این سفر بخشی از تلاش‌ها برای ازسرگیری مذاکرات میان آمریکا و ایران است.
@@ -195,51 +253,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79192)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-21 00:46:06
-
-
-
-پست اسکات بسنت، وزیر خزانه‌داری آمریکا، ترجمه ماشین:
-رژیم استبدادی ایران هرگز از ترجیح دادن منافع خود بر منافع شهروندانش دست برنمی‌دارد، حتی در شرایطی که مردم عادی ایران با کمبود نان و سوخت مواجه‌اند.
-ذخایر نفتی این رژیم در دریا به پایان رسیده و ممکن است هرگز درآمد حاصل از نفتی را که پیش‌تر فروخته است، دریافت نکند.
-این کشتی در حال غرق شدن است.
-SecScottBessent
-متن بالا رو روی این پست اکانت وزارت خزانه‌داری امریکا نوشته که دو دقیقه قبلش منتشر شد، ترجمه ماشین:
-امروز، در چارچوب عملیات «طرد اقتصادی» (Operation Economic Outcast)، وزارت خزانه‌داری آمریکا افراد کلیدی موسوم به «امین‌های نفتی» را هدف قرار می‌دهد؛ افرادی که رژیم ایران برای تسهیل فروش نفت در خارج از کشور به آن‌ها متکی است.
-در شرایطی که هیچ محموله نفتی خارج از محدوده محاصره نظامی آمریکا در دریا باقی نمانده و از زمان آغاز عملیات «طرد اقتصادی» نیز هیچ نفتی در کشتی‌ها بارگیری نشده است، رژیم تلاش می‌کند میلیاردها دلار از درآمدهای نفتی خود را از این امین‌های نفتی پس بگیرد.
-در بسیاری از موارد، این امین‌های فاسد درآمد حاصل از فروش نفت را برای منافع شخصی خود نگه داشته‌اند.
-USTreasury
-آپدیت:
-پست تازه با ویدیوی بالا: برای نخستین بار در تاریخ، از زمانی که ایران تولید نفت را آغاز کرده، دیگر هیچ نفتی روی آب [در نفتکش‌ها] ندارد... آنچه شاهدش بوده‌ایم این است که جهان می‌تواند بدون نفت خام ایران به زندگی ادامه دهد...
-اجماع میان آمریکا، روسیه و چین در شنژن این است که ایران هرگز نباید به سلاح هسته‌ای دست پیدا کند و آزادی کشتیرانی در تنگه هرمز از اهمیت فوق‌العاده‌ای برخوردار است.
-USTreasury
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79191)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-20 23:37:09
-
-<img src="https://cdn1.telesco.pe/file/iDe4gazGw-KLAzEAdc00oD7NSQcAFF6a5vCcd2MF8IzUhN26agjyKS4hdvNSb9QQCUZ4ulIDGlI9F9YpNY6uVSy3BnY1UizVVg1u99-2QGl8_iP388HLAvr323RYf7iDChok7RyRKJvFvOWCLLVxCm3nJaFUVorS_HoK0mvgW17BaZ51dYFsHshBtzbWnWuTSx4tPNPT6G_Dp4oHGsGq8ZO92rwH59HiX8o5J3CA8Jp4DttGiu_ao7HAdpCBxk85OSI3N9Ad-6LnYtETx838mwyr-Y_V9cHv5uD8vmvA-gkRZjdhxEGmi0y_ZUmgWuNXx-t62Cz9wrOfqbym5YLZUQ.jpg" width="400"><br>
-
-آکسیوس روز جمعه ۲۹ آبان‌ماه به نقل از دو منبع آگاه گزارش داد که استیو ویتکاف و جرد کوشنر، فرستادگان دونالد ترامپ، روز پنجشنبه ۲۸ آبان‌ماه در برلین با مقام‌های ارشد قطر درباره ازسرگیری مذاکرات هسته‌ای میان واشنگتن و تهران دیدار کردند.
-به گفته منابع آگاه، شیخ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر قطر، و علی الثوادی، فرستاده او، در این نشست حضور داشتند. قطر طی هفته‌های گذشته برای ازسرگیری آتش‌بس، احیای مذاکرات هسته‌ای و جلوگیری از جنگی دیگر تلاش کرده است.
-ترامپ روز جمعه اعلام کرد که ایران خواهان توافق است، اما توافقی را که برای او قابل‌قبول باشد، نمی‌پذیرد. او تأکید کرد که واشنگتن به دنبال «توافق واقعی» است و نباید اجازه دستیابی تهران به سلاح هسته‌ای داده شود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79190)
 
 ---
 
