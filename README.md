@@ -3,8 +3,79 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-22 21:00:20 </h5>
+<h5> 🟢 Updated at: 2026-11-23 02:29:24 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-22 21:14:36
+
+
+
+🔻
+تری یینگست، خبرنگار فاکس نیوز:
+همین حالا با رئیس‌جمهور ترامپ درباره درگیری جاری با ایران صحبت کردم.
+رئیس‌جمهور به فاکس نیوز گفت تمایل دارد حملات به ایران را اگر توافقی حاصل نشود، پس از سال نو از سر بگیرد.
+او گفت گفت‌وگوها همچنان به‌صورت غیرمستقیم ادامه دارد، اما ایرانی‌ها را «رقاص‌های حرفه‌ایِ طفره‌رفتن» توصیف کرد و افزود که آن‌ها مدام حرف می‌زنند. تمام کارشان حرف‌زدن است، اما همه‌اش مزخرف است.
+در حال حاضر تنش‌ها در تنگه هرمز بالا گرفته، چون ایرانی‌ها همچنان به نفتکش‌ها در این منطقه حمله می‌کنند و محاصره دریایی آمریکا علیه بنادر ایران همچنان برقرار است.
+این هفته رسانه‌های دولتی ایران اشاره کردند که شاید بخواهند محاصره دریایی آمریکا را به چالش بکشند.
+رئیس‌جمهور گفت امیدوار است این کار را بکنند، چون در آن صورت همه‌شان به قعر دریا خواهند رفت؛ مثل بقیه نیروی دریایی ایران. البته اگر این شناورها تلاش کنند از محاصره دریایی آمریکا عبور کنند.
+این همان روشی است که ایرانی‌ها اکنون در پیش گرفته‌اند. دارند امتحان می‌کنند که با این تهاجم علیه کشورهای خلیج فارس تا کجا می‌توانند پیش بروند.
+دیشب هم شاهد حملاتی به نیروهای آمریکایی در بحرین بودیم.
+....
+بر اساس گفت‌وگویی که همین حالا با رئیس‌جمهور داشتم، هیچ نشانه‌ای دیده نمی‌شود که ایرانی‌ها در این مقطع حاضر به توافق باشند.
+و باز هم همان رفت‌وبرگشت‌هایی است که پیش‌تر شاهدشان بوده‌ایم.
+این چرخه‌ای عجیب است که تمام دنیا نظاره‌گر آن است؛ چون بعضی روزها تیتر خبرها این است که ایرانی‌ها آماده توافق‌اند و می‌خواهند برای نوعی راه‌حلِ مورد مذاکره برای این درگیری گفت‌وگو کنند.
+اما وال‌استریت ژورنال گزارش داده هنوز حدود ۱۵۰۰ موشک بالستیک در زرادخانه‌شان دارند و همچنان می‌توانند هر ماه حدود ۵۰ موشک دیگر تولید کنند.
+بنابراین پرسش‌هایی مطرح می‌شود درباره تهدید موشک‌های بالستیک که هنوز برقرار است، آنچه از برنامه هسته‌ای این کشور باقی مانده، و اینکه این درگیری واقعاً چگونه می‌تواند پایان یابد.
+حالا نکته جالب دیگری هم در این میان وجود دارد: ما دوباره شاهد شکل‌گیری اعتراض‌ها در داخل ایران هستیم.
+امروز هم در ایران اعلام شد که قطعی‌های نوبتی برق در کشور اجرا خواهد شد.
+از رئیس‌جمهور پرسیدم آیا از این اعتراض‌ها خبر دارد.
+گفت بعضی از ویدیوها را دیده و از معترضان در ایران خواسته به اعتراض ادامه دهند.
+این سخنان بسیار شبیه چیزی است که تقریباً همین موقع در سال گذشته در ایران شنیدیم؛ زمانی که معترضان به خیابان‌های کشور آمده بودند و با گلوله جنگی روبه‌رو شدند.
+پس بار دیگر، رئیس‌جمهور ترامپ به فاکس نیوز گفته تمایل دارد عملیات رزمی گسترده علیه ایران را پس از سال نو از سر بگیرد.
+هنوز دقیقاً نمی‌دانیم این عملیات چه شکلی خواهد داشت، اما از آرایش کنونی نیروهای نظامی آمریکا در منطقه اطلاع داریم.
+دو گروه رزمی ناو هواپیمابر در حال فعالیت در دریای عرب هستند.
+همچنین هواپیماهای سوخت‌رسان آمریکا اینجا در اسرائیل مستقرند و باز هم ایرانی‌ها دارند آزمایش می‌کنند که با حملاتشان در نزدیکی تنگه هرمز تا کجا می‌توانند پیش بروند.
+حتی در یک ساعت گذشته نیز حملات بیشتری به نفتکش‌ها گزارش شده است.
+رئیس‌جمهور گفت اگر بخواهند این محاصره دریایی را به چالش بکشند، نیروهای آمریکایی به آن شناورها شلیک خواهند کرد.
+🔺
+مجری:
+متحدان دیگر آمریکا چطور؟
+مثلاً سعودی‌ها و اماراتی‌ها؛ آیا به دولت آمریکا فشار می‌آورند که تقریباً به هر قیمتی توافق کند تا سرانجام این وضعیت پایان یابد، یا خواهان واکنش قاطع‌تری از سوی آمریکا هستند؟
+🔻
+تری یینگست:
+...  نگران‌اند که اگر جنگ از سر گرفته شود، دو مشکل عمده پیش بیاید:
+ایرانی‌ها در پاسخ به زیرساخت‌های انرژی کشورهای خلیج فارس حمله خواهند کرد.
+مسئله بزرگ‌تر دیگری هم مطرح است: اگر حملات علیه حکومت ایران از سر گرفته شود، چه تفاوتی با عملیات «خشم حماسی» خواهد داشت؟
+همین یکی از دلایلی است که قطری‌ها تا این اندازه در این روند مشارکت دارند.
+...
+در حال حاضر در چرخه‌ای از مذاکره و حمله هستیم و فعلاً پایانی برای آن دیده نمی‌شود.
+TreyYingst
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79214)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-22 21:07:44
+
+<img src="https://cdn1.telesco.pe/file/kYFAKF1CtlHz2VKF8Kbakls1n6egpX6nS2x0JMLLtbBokfdTqGVgeo_sus2_Glb3PrjwhRf546jYdfdUKWuYQrd0LWSZbKh1MDYkEH4YeCTs66S6MIGCuvruDE53haU68p6d0cu9BJhqqOdSD2-p_NYElvylVJIamGq1FbpbPu0rhS5PvgksCVsHyQpuLJucRcHwS00tf5lxv18ErTam-CYfZtbxtavEN2O1OR_IqGzLD862ZRuN_fJCuvijLQ8QoCxpxkkOE1kx_2CVfaqoMjGPKqa48AJTDtP8p9G8JZ_JDC8GgewqDnUizaj_hgZgfVIlvHN-8fjT47PqInF3NA.jpg" width="400"><br>
+
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد که گزارشی مبنی بر وقوع حادثه‌ای «میان یک نفت‌کش و نیروهای نظامی» در دریای عمان دریافت کرده است.
+این سازمان جزئیات بیشتری درباره این حادثه ارائه نکرد و افزود که مقامات در جریان امر قرار گرفته‌اند و تحقیقات در این زمینه ادامه دارد.
+در مورد مالکیت این نفتکش و هویت نیروهای نظامی تاکنون اطلاعاتی منتشر نشده است.
+@
+VahidOnLive
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79213)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-22 19:25:13
@@ -67,7 +138,7 @@ IranRights_org
 
 ###### 🔵 Post time: 2026-11-21 23:59:06
 
-<img src="https://cdn1.telesco.pe/file/h7m_gU5Ow4YBrj1o1LiqJKGYb2TqAzd6BST_Lp6Wdmw4jfqv4wfckxG4SfJtqJQmsT8oFY0dlS1swucK_1QG8i69Kw7V4dCewBnbK_sudyhjwp4DwE5SE0KLHr2z__B1pM3KBhnwSww1PJPdI56Kvn5SX_K76r7xNDXn_9m-ypOIIq5M5ZEqiLypu6TXpX6zKnU1TxwK0zYdhGP-vbAXFt0X629F6rc3Nhd3U-omQIm7n0Ceb73Fs1JZHDyK9RAx62rfz0RgAaCJn8V8mXuqFukJy_343kJaWaS8yv7pl_dapcw8aev4s_AQiUUlFpmfkSuLiRiXHIiDyGsoykGRzQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/h07JbT6q38h86FAldZSnQBSj79sk2ftKvu-YS7LkxWnCItFv7x_Uk7LOp-zwMvU9kDd1FkaG7udSOzme3n8ZwD8OWOwHowbtsZwEOmv-upIdse0v4exdtw7tPUSwFGb6WZNepUlZ-xnvX_QFop1KcBCY7ebfd4OO2gVDwFdfKk4ooYKSHRN-d2REb_7w8eSk1BbBGi6AJxwQK33hzJnMmBIX0nfusgVhqSKDqFAS8IcESB4sJZWsMcs1XS3lE1_Jb7NBNF8M-mdSujnqcG0dNx0oylJlixL-ZJCjBfODZp7tnSyTLhe22s3SYIZj2Xs0gsB4FvVBPiZqR6yKRxoJLA.jpg" width="400"><br>
 
 روابط عمومی سپاه پاسداران شنبه ۳۰ آبان اعلام کرد که پایگاه‌های الرفاع و عوالی در بحرین را با موشک و پهپاد هدف قرار داده است.
 بر اساس این بیانیه، در جریان این عملیات ترکیبی، دو رادار متعلق به سامانه‌های پدافند هوایی پاتریوت ارتش آمریکا در این دو پایگاه هدف قرار گرفته‌اند.
@@ -84,7 +155,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-11-21 23:27:43
 
-<img src="https://cdn4.telesco.pe/file/Cqlc-QCkphw2gZlv9Rm6NNbcE6-ras7g5VxSPPvS2inFVJ1fFTAKBjHXs8xDKEY8w6Sku_HnwVS1IP080Xq858pgvOzvTGCUYLbphLJiCtopbZn1MHRa9r9FKbNkSyzJPkxwIfc2i3pxRuBAmXLdBJT405pM_bBYZv5RK8LQ_wH8D6mZkqJtXVBgDEJ2XN-A8ZP-e0aPgk6jX7b5B5F5AqHG3_uSNf3lGFemc2DdunhiHzoPJ0LVYzrt5iqcHexzY9VMAFNmi1pbqscrOrQBAS95ZK1mSxRa120fPacm1uFmYexSP16WhtiG4QYT_lJ3UgRaoO1go84QBKdbcsbQXg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/SS1wt4H1JRrf_6MEqRqTRPBBJazQpUZufcu7U9Midm3snGsdVZgwkVZQGvCL6jz3Wzhb9cmVpUgNCzIP2I3eVlZPjX5eKA9eFGp9qmN8TN4B3ejleevEqdZLPQ7ET30nKhYXZ2_j9SiA59q5UVuH60LkBINyAzGxILJjq8JL3GSKLY-vgoshnCzqrWv4wtY7OPW41pOTmtE06OIRYNXH6Aiqli9B5fuLJVjnA_Fbz6ntCWSz2sz30u7JlF5obX1Jutks24DzytVEb8KlR6XmnalSFl2tFlxyrm-EXBUMGNYqK0PfPWwzEkQUgVxOVRtUvwa66J4vhogjazevrQzaHg.jpg" width="400"><br>
 
 وزارت کشور بحرین اعلام کرد که در پی حملهٔ ایران به «تأسیساتی صنعتی و غیرنظامی» در این کشور، آتش‌سوزی رخ داده و نیروهای امدادی برای مهار آن وارد عمل شده‌اند.
 این وزارتخانه شامگاه شنبه ۳۰ آبان در پیامی در شبکهٔ ایکس اعلام کرد که بر اساس گزارش‌های اولیه، این حمله خسارات مادی به بار آورده، اما هیچ‌گونه مصدومیتی گزارش نشده است.
@@ -209,7 +280,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-21 17:38:35
 
-<img src="https://cdn1.telesco.pe/file/KgEVabuTz2of_U_X5QaCgRNNDUAMHcxS7DO8fXOTzVHg_GIQlYDWf_dEh569YYw1x2IslPmeGXaJb_qUv8vAmsWR5dpBi3Wh_O3SbLpM0PaBoL0b-7BTKjEfrMlud86EVDVFyepENI8CBUIj6TxVdOf0ni5ZZ8V76qZacc-Q631nCgGvmcOpHzcfZ2s0AbuP6-X1u-pdCDDuvnAFATVy93ElaVUoDV9DHG7xStA7lysussXnI7tCjwqW5J8lNeCKhs0uNByymxlKqF1XiTMVvpVHKhW_mJJEgKiHpItV_kIG_KykgJwRZBeTbxnw4sNmAzfhbxyXOLEzX2otagQnGA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/X4MmJWY4UGFdsxvhyVW2cKYI0gbpCQsvaagsfhtz_O3o6ZcVFDj7_qiLCIiEKmo5lfnOSq-TZaPpTDUZspQqQx1Vna84VZuKY4yLo30BNkcVQFOVKcTTtvbuujiBkz-0-9b4vUv5dgc7EqfQSk4dO_FjcJceZGi0AK5868qYoqnA_pUANG96VRUfN-Htl1n88chGkqVsbYB-B_rPktB7DF0nrFn0urtqBZMaJqII_hksTRxVWeH4WwPmXIw7RDAZjN27MnnwyQqhY6ZSr1ccHbN3akLTe5wfVP9uC0cLj-4fMX8dH9CXNXGF6YSOnWmT7kh48neajJ4J1cvaDprpSA.jpg" width="400"><br>
 
 اسکات بسنت، وزیر خزانه‌داری آمریکا، می‌گوید دونالد ترامپ در دیدارهای اخیر خود با رهبران روسیه و چین، با آن‌ها درباره جلوگیری از دستیابی ایران به سلاح هسته‌ای و ضرورت تضمین آزادی کشتیرانی در تنگه هرمز «به اجماع رسیده است.»
 بسنت روز جمعه ۲۹ آبان در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت آمریکا، روسیه و چین در این دو موضوع با یکدیگر اتفاق نظر دارند و «هر سه کشور با آن موافق‌اند».
