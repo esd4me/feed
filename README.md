@@ -3,8 +3,24 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-23 07:06:47 </h5>
+<h5> 🟢 Updated at: 2026-11-23 17:23:06 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-23 10:21:41
+
+<img src="https://cdn4.telesco.pe/file/dc5O_X2fKLZZIleNRTCG-iFpaX3_TEiXlHns4okf4GMERQMZUcNJuysdaHDN8uqAbzNEUa1hccNBrHAHKMmfQv4NHlDDW-alQiQLigWiDwXFMml-cf_TJGXQK-Em0owFA5Fx8RxIDp1XD90dvVAVSPd2GB7JZdxrz9r_wlvY9OMWjLgm2NXRBUcIIwvOv_0ExxcFBAd8bHZPCG9Rx9jgdCyZ6k4JfsyAen8TYUhp5ldXeF1xHbCLPRYt9etkjjIuZh3cOFuocew9mue0s5pj4stUEedG03ioSqOlx7TnemPpYh7-XpSZLTNDlaxnT1x0THJa_J7pi0wZEdXDIMWp3w.jpg" width="400"><br>
+
+دانشگاه‌های علوم پزشکی در ایران روز یکشنبه اول آذرماه از مسمومیت حدود ۱۵۰ نفر در شهرهای نیشابور، شیراز و مرودشت بر اثر مصرف مشروبات الکلی دست‌ساز و حاوی متانول خبر دادند که تاکنون به جان باختن پنج نفر و مرگ مغزی یک نفر دیگر منجر شده است. بر اساس اعلام سرپرست معاونت درمان دانشگاه علوم پزشکی نیشابور، از مجموع ۱۲۰ مسموم شناسایی‌شده در این شهر، چهار نفر جان باخته‌اند، یک بیمار دچار مرگ مغزی شده و ۱۱ نفر نیز تحت لوله‌گذاری داخل نای قرار گرفته‌اند. همچنین ۱۸ بیمار برای ادامه درمان به مشهد اعزام شده و ۱۶ نفر ترخیص شده‌اند. در همین حال، معاون درمان دانشگاه علوم پزشکی شیراز نیز از مسمومیت حدود ۳۰ نفر در شیراز و مرودشت طی ۲۴ ساعت گذشته خبر داد و تایید کرد که یک نفر جان خود را از دست داده و چهار بیمار دیگر در بخش مراقبت‌های ویژه بستری هستند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79216)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-23 02:56:26
@@ -283,7 +299,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-21 18:08:16
 
-<img src="https://cdn4.telesco.pe/file/uLSj42Nf9jLE--Bg0hpiacjzftCXiNDuAi_TtwLDJjjMyVu4PYWNdr9C9w_e2tSI1C9HiNukhIztZumU4wyW7bxUaGUmaBwztkkvf9lvv8kzvVN2i_SAARwHe3Q-eXL82LCjvFrSaZBle_1n1PdxrRY32hC2mmmwFHV-Sf47TVdYgit2y1nPlMyDKXwHXQeLSh8WxJ06ug13vSQcjC2q7CAA5MmigNhjxNE_4GRbACMxhZxnR1GqU3PWo5vroiNpev4VqfI8tyYHHIojtNSnwRY1ftkYKW8pzNzVIfdYGgIu1AygZSJkPHeKVoWPe42Uee3AbhT0BOtQKGnj2L1Jsg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/vOUSFVzkxClvkPjvMIfxuvX6xq56Xf5vBxH8BavC0c_ZQnKeFkNEQ-I_U2djGwMn9jBpWynZLq2uBvVxSMCbXL8vFv-PAYhRIAhYiBHhjXWjJZZliAeT0Ov-BYYwxxPSc-juNFmC4dG0brN41gO9DsPK4cQPhYBRCNnuIR5sHqTvsquFpUu651JQufRq4HftEUI04Vqt64NYkyLstPdiU5N4q4NRDTYTHSnLbEOjpazTPmUyOsw7tw1WxhPZ51CPp34ms6yaDZ8EWVf5DeOkSoEKVTYKWtw9VCPSQZg_8Qyqa6DdTDCUkO7ihjkJibDmlpiCC4YSKgZdAS8mkjWKqQ.jpg" width="400"><br>
 
 باراک راوید، منبع خبر در اکسیوس و کانال ۱۲ اسرائیل، دقایقی پیش:
 به گفته یک منبع آگاه، علی الثوادی، فرستاده قطر، شب گذشته برای گفت‌وگو با مقام‌های ایرانی به تهران سفر کرد. این سفر بخشی از تلاش‌ها برای ازسرگیری مذاکرات میان آمریکا و ایران است.
@@ -324,31 +340,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79197)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-21 17:28:20
-
-
-
-پس از گرانی‌های پی‌درپی، چند روزی‌ست که نوبت به محدودیت در خرید نان رسیده است.
-دولت مسعود پزشکیان از اواسط آبان ۱۴۰۵، بدون اطلاع‌رسانی عمومی قبلی، اجرای آزمایشی طرح‌های تازه‌ای برای کنترل خرید نان را در برخی استان‌ها آغاز کرده است؛ طرح‌هایی که به گفته مقام‌های صنفی، با هدف مقابله با کم‌فروشی و خریدهای غیرمتعارف اجرا می‌شوند.
-در استان‌هایی از جمله مرکزی، خوزستان و زنجان، تغییرات سامانه‌های فروش نان و محدودیت خریدهای حجیم، شهروندان را با سردرگمی و تغییر مبلغ پرداختی روبه‌رو کرده است. هم‌زمان، اجرای آزمایشی فروش وزنی نان در برخی مناطق، به تشکیل صف‌های طولانی مقابل نانوایی‌ها انجامیده است.
-مشکلات تنها به نانوایی‌ها محدود نمانده و گزارش‌هایی از قطع سهمیه آرد خام برخی خانوارهای عشایری نیز منتشر شده است.
-در حالی که دولت از کنترل مصرف و جلوگیری از تخلف سخن می‌گوید، هنوز توضیح شفافی درباره جزئیات اجرای طرح‌ها و تاثیر آن‌ها بر خرید روزانه خانوارها ارائه نشده است.
-نان که قوت غالب بسیاری از خانوارهای ایرانی است، حالا به یکی دیگر از نگرانی‌های روزمره آن‌ها تبدیل شده است.
-@
-VahidHeadline
-حسین ظفری، سخنگوی شورای آرد و نان، از شناسایی موارد گسترده خرید و مصرف غیرمتعارف آرد و نان یارانه‌ای در کشور خبر داده و اعلام کرده است در یکی از این موارد، مصرف ماهانه ۱۲ هزار و ۵۰۰ کیلوگرم آرد به نام یک فرد ثبت شده است، رقمی که بر اساس سرانه متوسط مصرف آرد، معادل نیاز ماهانه حدود ۱۵۰۰ نفر است.
-ظفری در تشریح این موارد گفت بررسی سامانه‌های ثبت خرید نان، الگوهای غیرعادی متعددی را آشکار کرده است. به گفته او، افرادی شناسایی شده‌اند که طی ۱۰ ماه بیش از ۱۰.۵ تن آرد مصرف کرده‌اند. همچنین در یکی از موارد، میزان مصرف ثبت‌شده یک فرد به ۹ درصد کل آرد یک استان رسیده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79192)
 
 ---
 
