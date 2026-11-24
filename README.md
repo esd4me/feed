@@ -3,8 +3,140 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-23 17:23:06 </h5>
+<h5> 🟢 Updated at: 2026-11-24 04:54:36 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-24 00:34:56
+
+<img src="https://cdn1.telesco.pe/file/KzkOjbL0HCoFSQAsh4WgQSpOUaDTve5Bxx_yC8qMwecGcJ1NRqCeB1ZOPKGuEkUFvcgJ8yGAiTqEXjpzl6MMHvob-AaZ5r4u9rS5gO8lBLuXQ6sbSBl9vQVXwuNezpXC_DGu6o4Cv7k44ob-MLb4qzpA3HiSdA8S1_ZkSGZuSjPzVIfJIe-NOxi6bYMQPUIE5UocK3A864nuEuzoRnytGZDqMhmIr5H-B-sH9sbR7AvbIS9_fd5i0j99lDQWo0EIcBJkFAuP5sxLuVOgbCZoC5sdlEdk20utWZ4JcdP9Pi9xBJZjFtXkEgr-907maBzliExtv6wEgGmWUtTpvaVhYw.jpg" width="400"><br>
+
+آکسیوس روز دوشنبه دوم آذرماه به نقل از یک منبع آگاه گزارش داد که شیخ محمد بن عبدالرحمن آل ثانی، نخست‌وزیر قطر، و علی الثوادی، فرستادهٔ این کشور، در واشنگتن با جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، دربارهٔ مذاکرات با ایران دیدار و گفت‌وگو کردند.
+پیش از این دیدار، مارکو روبیو، وزیر خارجهٔ آمریکا، نیز با نخست‌وزیر و وزیر خارجهٔ قطر ملاقات کرده بود.
+آل ثانی پس از دیدار با روبیو، در گفت‌وگو با شبکهٔ الجزیره اعلام کرد که دوحه در تماس با تهران و واشنگتن برای احیای مسیر مذاکرات تلاش می‌کند. او همچنین گفت خاورمیانه تحمل تشدید تنش تازه‌ای میان ایران و آمریکا را ندارد.
+نخست‌وزیر قطر همچنین تأکید کرد که گفت‌وگوهای راهبردی با آمریکا بخش اساسی روابط دو کشور است و دوحه برای تقویت همکاری‌های دفاعی با واشنگتن تلاش می‌کند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79223)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-24 00:32:58
+
+<img src="https://cdn1.telesco.pe/file/C2bzJq9ZfuGKMKdEZDM27otm2Q4b0IMw825encx30ADAqCAV3ooF-zIkXA1Y8vWW435TnpzJrf3Hvvq7mINRmnIRf2xxxss1n10yQhZ5nJFLnqDwKvg5orEiDOAQRj4SWAqri7RVJqPUU0zZC0L3rO0n4rFv6g_P6AdJWz2f2QE8jM8ibUeCazSo9itr3AtbY6X2w1TrHI42QHXXl9DecVHpgP4FGeUE3G24mdWqEVvs3LL8FaRJXZqeoUFYBMyxNmqWfj2673763dm5IElnpepynmQ7I-iWF5-WE6qKFtdEJQTXKNxmdFKS5lAYMafG8yJWSBefiU8Yo6ytJ2-1JQ.jpg" width="400"><br>
+
+پست اکانت وزارت خزانه‌داری آمریکا، ترجمه ماشین:
+امروز، در چارچوب عملیات «طرد اقتصادی»، وزارت خزانه‌داری در اقدامی گسترده برای مختل کردن شبکه‌های جهانی بانکداری سایه ایران، بیش از ۲۴ صرافی، شرکت پوششی و فرد کلیدی ایرانی را تحریم کرد.
+در حالی که اقتصاد ایران همچنان زیر فشار تحریم‌های اقتصادی سنگین قرار دارد و درآمدهای نفتی آن رو به کاهش است، عوامل تسهیل‌کننده بانکداری سایه رژیم بیش از پیش در بازگرداندن درآمدهای رو به کاهش صادراتی به کشور ناکام مانده‌اند و هم‌زمان با سرقت منابع دولتی که به‌حق متعلق به مردم ایران است، خود را ثروتمند کرده‌اند.
+USTreasury
+پست وزیر خزانه‌داری آمریکا، اسکات بسنت:
+اقتصاد ایران در حال غرق شدن است و رهبرانش به وحشت افتاده‌اند. نظام بانکداری سایه ایران آخرین شریان مالی یک رژیم ورشکسته است. وزارت خزانه‌داری به متلاشی کردن این شبکه‌های غیرقانونی ادامه خواهد داد تا سر مار را به خاک بسپاریم.
+SecScottBessent
+بهای جهانی نفت روز دوشنبه دوم آذر نزدیک به سه درصد کاهش یافت؛ معامله‌گران افزایش عرضه نفت از خاورمیانه و بازگشایی یک خط لوله نفتی در لیبی را ارزیابی کردند که نگرانی‌ها درباره حملات به پالایشگاه‌ها و کشتیرانی در منطقه را تحت‌الشعاع قرار داد.
+بهای معاملات آتی نفت برنت با ۲ دلار و ۶۲ سنت کاهش (معادل ۲.۸۳ درصد) به ۸۹ دلار و ۹۵ سنت در هر بشکه رسید.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79222)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-23 19:03:18
+
+<img src="https://cdn4.telesco.pe/file/gXaUjKJi_Vtkacz4XXih9WlGEZ1h8TOCvbecwFvd6pKXW_72G6RNzOvXabOk_d0ZBdVee11xXW-SizS1bzFvLi4sleQ-jI9S0C475-egAXR5xyqaonVv2dHsdxJVIYwTOKifiMw-oLt_fK6ueTrE2p1499TuS1TS2YYzBCe_ao3_MpOo8ex0fi1bBLBRwVK7JCElv2H9-VbnTqWbt0wYfP_O_v7UtSa3-pxf1f-iC7M57bL0V1Z_0ymWu4tVURaOJqeWCx6Ydbn9v4NF1q5ECgbDqfUzoPNMNwb33aeqVB0lt_Z7dTbatktb59l9RZy1h2dZ_-KVtH6qXph7jkF_rg.jpg" width="400"><br>
+
+گادی آیزنکوت، رهبر حزب یاشار در اسرائیل می‌گوید در حال حاضر تهدید فوری از سوی ایران که پیش از تشکیل دولت جدید اسراییل نیازمند اقدام نظامی باشد، وجود ندارد.
+آیزنکوت روز دوشنبه ۲ آذر، در نشست فراکسیون حزب خود در کنست گفت: «بزرگ‌ترین تهدید ایران، ۴۴۰ کیلوگرم اورانیوم غنی‌شده است که هنوز نابود یا خارج نشده. باید روی این موضوع تمرکز کنیم.»
+در مقابل، بنیامین نتانیاهو با متهم کردن مخالفان سیاسی خود به کم‌اهمیت جلوه دادن تهدیدهای امنیتی علیه اسراییل با انگیزه‌های سیاسی، بار دیگر خواستار تشکیل دولت وحدت شد.
+نتانیاهو در اظهاراتی کم‌سابقه مقابل رسانه‌ها، پیش از نشست هفتگی فراکسیون حزب لیکود در کنست، گفت توانایی اسراییل برای حفظ موجودیت خود در برابر تهدیدهای بزرگ، به اتحاد داخلی بستگی دارد. او افزود کسانی که تهدیدهای فوری، دشوار و جدی اطراف اسراییل را کوچک جلوه می‌دهند، این کار را با انگیزه سیاسی انجام می‌دهند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79221)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-23 17:29:16
+
+<img src="https://cdn4.telesco.pe/file/akmrFgi0wvqQfDa3gb7DtXoSH478KANs__9Ojz3GJ7n4NvzBcJDiIZ4VNZzc1KwKFRDNN5sno0Jvk5icQ_kdASjM2QgraGpR930Nfclmic4PD-l1Md7B2djvMJMGH8D-uAX0iIEtT4mOaXGXx9Vo5EZ2ccO70VgQW1q3G8Ct2VHaUf2zTux4dZocC_VS2F2m3bkijh-DIXxJ6Uw9vHCAh_wUYeiFXiHLfj8m5n40NpPL0EChBH18POqLl6bMFux0DZD7eoAhpDOH9GT4totI5JMaI2cNyQ9l9ZEU__cnWWnFoHTBgJ_AK7QBROKYKleM2C43H8CP01aZvUwZ_302Eg.jpg" width="400"><br>
+
+به گزارش رسانه‌های ایران، قیمت سکه طرح جدید روز دوشنبه ۲آذر۱۴۰۵ با افزایش ۱۳ میلیون و ۷۰۰ هزار تومانی به ۲۵۲ میلیون تومان رسید. هر دلار آمریکا نیز در بازار ایران به بهای ۲۷۲ هزار و ۲۰۰ تومان معامله شد.
+بهای هر گرم طلای ۱۸ عیار از ۲۳ میلیون و ۱۵۲ هزار و ۱۰۰ تومان در روز یکشنبه ۱آذر، امروز دوشنبه به ۲۴ میلیون و ۳۳۱ هزار و ۷۰۰ تومان رسید.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79220)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-23 17:28:51
+
+<img src="https://cdn4.telesco.pe/file/DDwlnIbCkp8eqhHNDx6UpGzJpQltJSB3QDKzVzCDypTOozhRkgV0O8An89cPw7H3nqIL9s5jiCIxzzuomSO15dPjLCGxByI6tnRo3IzHiyBmPDND_WhGdSCpjSeunDtRuY5HjjGVS9NJR_F3zWGX4QJsePZ31Ybvw7juqaNQu4C7O2QVgfNCDCeLFWb551xUPbTrxPt-JlBbmgWR_xlkE7mF9hTjklM0V0XKDyxRTSJZio0v4j1lryJL9c1W2PvCA01ehnv__P_s57qhERUBVVR_aEhw-usPQb1OR_N_7jL0z8Axud-XaMhdZkoAEygfwjdeC65ePqie4mJmE7sc6g.jpg" width="400"><br>
+
+«مصطفی نیلی»، وکیل دادگستری، به وب‌سایت «امتداد» گفته که حکم ۷۴ ضربه شلاق «پرستو احمدی» و چهار نفر از عوامل اجرای او در کاروانسرای تاریخی «دیرگچین»، امروز دوشنبه ۲آذر۱۴۰۵ در دادسرای قم اجرا شده است.
+به گفته مصطفی نیلی، پرستو احمدی، «سهیل فقیه‌نصیری»، «امین طاهری»، «امیرعلی پیرنیا» و «محسن لشکری» پس از تایید حکم در دادگاه تجدیدنظر و ارجاع پرونده، در واحد اجرای احکام دادسرای قم حاضر شدند. حکم شلاق هر پنج نفر در همان واحد به اجرا درآمد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79219)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-23 17:28:14
+
+<img src="https://cdn4.telesco.pe/file/Yj9LURcpXIxpwz4_zB7W8M1RQlNommKfip_kQ64PdnZicPBZh1J4LZNnK9073f-X1dFU6GyJ7OmYZoyLg5k_9_oZSqfw41mmAseejUmW1jQsVBoz2_r6oqyMbKHGMBEfxym7jmTycFltaFx18TMFjAzfQHMbTwiNgGnKBjkdGoggVAsoQLLsPhWakp7NRAY4zSCxNT4FFo2xxIgPoyhm0Abqgg4_NIXbMLF6GhPCF6Y8xGlb_Kf5WYP5jsYRwqVY4jkSjyyKU5qQGK5pYwQFUAm_uTtAlvtWKuTGJhqH_WWe5KDr4k4hFYzz0uaS9kSkUWyGfC8VMhgaT9epZcDuog.jpg" width="400"><br>
+
+غلامرضا نیکخواه، بازیگر باسابقه تلویزیون و سینمای ایران، که به خاطر نقش‌های خود در سریال‌های کمدی تلویزیونی شهرت داشت، درگذشت.
+به گزارش تلویزیون ایران آقای نیکخواه، روز دوشنبه دوم آذر بر اثر سکته قلبی در شیراز درگذشت.
+آقای نیکخواه متولد فروردین ۱۳۲۷ بود و از جمله آثارش می‌توان به بازی در سریال‌های طنز تلویزیونی همچون «زیر آسمان شهر»، «نوروز ۷۲»، «پرواز ۵۷»، «بزنگاه» و «مرد هزارچهره» اشاره کرد.
+آقای نیکخواه به ویژه به خاطر همکاری‌های خود با کارگردانان طنز مانند مهران مدیری و رضا عطاران شهرت داشت و در حال حاضر هم سریال «مرد سه‌هزارچهره» از او در حال پخش از تلویزیون ایران است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79218)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-23 17:27:46
+
+<img src="https://cdn1.telesco.pe/file/Ib7xQbSFqWYd_9nndgfRUHz6mv6Uhm1oi48hPNUCX2pNWqXjAnXs7X64YVoMzcmNrKH1LXd8W_6wpoxdoun_Qra4-JJGESbwqY7K_g9_Vf2TDfKW3kJjm9zeVp7PtGM-xIHBNCUGSrKYdX7bdhZYM2lL_CcoYL_ttuQz16kkzh7prT5OO3gR2enabJMlDh6VI1dyC6TOrTe0JZxkPFkivnJAdOLZzwQSqx_SA7wiVbhjPNGIYbtTYQ-42S6hDDeUBc5tJTzWRgnBOtDvG4i2u93NoyOJyoBwd3Ln7uX6c_Mo1pP2kuLvd3217LRBb-hMkaewHXL4pyYHjPbydEeq8A.jpg" width="400"><br>
+
+«رضا امیرخانی»، نویسنده و منتقد ادبی و از نزدیک‌ترین نویسندگان به «علی خامنه‌ای»، رهبر پیشین جمهوری اسلامی، روز یکشنبه ۱آذر۱۴۰۵ در ۵۳ سالگی درگذشت. او حدود یک سال پیش بر اثر سقوط پاراگلایدر در منطقه مشاء دماوند به‌شدت آسیب دیده بود.
+خبرگزاری «مهر» بامداد امروز گزارش داد که رضا امیرخانی روز ۹آذر۱۴۰۴، پس از سانحه، ابتدا به بیمارستانی در دماوند و سپس برای ادامه درمان به بیمارستان کسری در تهران انتقال یافت. به نوشته مهر، این نویسنده چند بار تحت عمل جراحی قرار گرفت و پس از مدتی به خانه بازگشت، اما وضعیت جسمانی‌اش در ماه‌های پس از حادثه همچنان نامساعد ماند.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79217)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-23 10:21:41
@@ -25,7 +157,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-23 02:56:26
 
-<img src="https://cdn1.telesco.pe/file/RyoOy1lSbcbjgUMl4KVGv3z5llGOYpnDNwHECg8UFapvGufEAxTKv_VnIw8v5SWAa6iY70bxPgjrPEri4Vl30Cf0Fbspo9DoycFV-sOnMj9oRf9IEEYErptM7xOLyJ1pCYAVFFe1RmEnVhyFIdIQ1xWbkQMKpU4JkThHGDDnFFFdKjGFL9DcYmuyj-RFhJFrBQeNZmnvISz3x_9M8_8Z6qZVG4amOfcrHWUXl4wArrTZRXkVdvYv974hQWi7f6ShTwrsmtdUBv2xe8ZDrRZtfEdCxSPooBfEPY48JeFZel0180bF0v3OxYiSP_zWicYN1vT3qSelIAF6Fwniqbob8w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/s5h38N0Zb5Fv7XQuqcRoNWRKx1bHJxw-bnjWN3VRqy3QMZrmHrstqeDqRy_BlyxLSxweGQy2RM41JwRXX5mDObDbfxmhPk9ahdKHIUu7YMwGImX-vorf2T4oEyy8J-9lXy6owS7cWpOyS9q5gK1EPIea1I5j8Unoj258aj8odRqHjejcpCZDAxB72SKxZTjoN9fzlCW6Xmfi5pKIPNknTMunUrq_USaeydUKUsyWhghKm19UkWDO0mvvb4MVzZa4dtwq5vK9g8UrHY63-KEWf56vfumLdFerxCqYevwRawKPCMrzWLmlNfOG63NbfW-XhIisDLP4L5mUicJWUDxnWg.jpg" width="400"><br>
 
 پست ترامپ، ترجمه ماشین:
 همان‌طور که همه به یاد دارند، من درباره انتخابات میان‌دوره‌ای سوم نوامبر دو چیز را پیش‌بینی کرده بودم.
@@ -103,7 +235,7 @@ TreyYingst
 
 ###### 🔵 Post time: 2026-11-22 21:07:44
 
-<img src="https://cdn1.telesco.pe/file/kYFAKF1CtlHz2VKF8Kbakls1n6egpX6nS2x0JMLLtbBokfdTqGVgeo_sus2_Glb3PrjwhRf546jYdfdUKWuYQrd0LWSZbKh1MDYkEH4YeCTs66S6MIGCuvruDE53haU68p6d0cu9BJhqqOdSD2-p_NYElvylVJIamGq1FbpbPu0rhS5PvgksCVsHyQpuLJucRcHwS00tf5lxv18ErTam-CYfZtbxtavEN2O1OR_IqGzLD862ZRuN_fJCuvijLQ8QoCxpxkkOE1kx_2CVfaqoMjGPKqa48AJTDtP8p9G8JZ_JDC8GgewqDnUizaj_hgZgfVIlvHN-8fjT47PqInF3NA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/FFUVLws2RzYnhHV_X5aOqa50z1kqN2gY-w-jkCxxO_s6Eru2wM3ZlntzB6AZqY7m2CW40-I11S5-zIpaREQlSkFrlQmh7kkNkJyakPQBqpWDa6VXavHgxT7VPuLylTlWIETeW_2iHL0wM0RpKojYonfTy1q23FEKDvpcocHoZWT9SIZ9jRmcYy2CIW0RFF6qPIO1L1HLjTw4yek7nWMHjJW-wwk-VTomGfQFwgmRGopG2KZvVQ7Xfqr7VP04Qnem-bFogMXAAYOjniGbyLo9kZ6O57G3DwgQJX0gAE2lV3TAShpHHAwi72RoZG6yN3fW5OQcziI3vpYHxd79lodkxQ.jpg" width="400"><br>
 
 سازمان عملیات تجارت دریایی بریتانیا اعلام کرد که گزارشی مبنی بر وقوع حادثه‌ای «میان یک نفت‌کش و نیروهای نظامی» در دریای عمان دریافت کرده است.
 این سازمان جزئیات بیشتری درباره این حادثه ارائه نکرد و افزود که مقامات در جریان امر قرار گرفته‌اند و تحقیقات در این زمینه ادامه دارد.
@@ -121,7 +253,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-11-22 19:25:13
 
-<img src="https://cdn4.telesco.pe/file/fpPpY4_4H3WSIWOfjsAijiY8pUD4lvX09eUmzz0BJPH96-Yx8dUDwrpc57PNGxsZWwtwvX2BX8kghwvUn6xWoW-WohJ81Ktb2Vu_0ZVcuem1H8gm55E51n0gF-dgxQiQ_hteyg6rhxSm3x_HbULt1WdYu9r_zpfhKhQ0pXp7vUaG3kRh1l8tgXeKOZZIiOnDYgwMPe7PKrnelZTQuJJAWJT9-EjAb-RaEXZuNuvUN8lmNU3OQS34szNP9qxCm9dCml8dF0QQFdGx9BFeRInIfnZWdcLGC0JKtg75a_f77sZ1iuPNzabb9Zx5RkhNpT6z-FqISpNn7HHfhpboXYMqWw.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ZI-ryg6lOxsyUZ7W4BRTAbqOcfww4CY6SNO7rom-zBdo1CU7HUWI8ma_92ToNpOYfnLotwhha7_W_X1CPqGhXyidbg1XGh38ilfV2qqxBonsIzcX90LrYiLJafBRwlIgWxk1J3xxSJParG20vMDgA1FuR2boM96RScP341_xMl4tqGemv70u3tH946KoTo_1gWfuFfvCvfDWBOBU-cc1Ha9YkQgzrL80q-i3iWnB-q5O86kgnLzaxSe2yKG_cV1RdsoQwtyOpOhEmeXIRLpCDhCbyvhcje4iqywJjHQixYis0hAlf969H_uUPC0tXirtMHo8ZHklCwCUHoeV2EGXSg.jpg" width="400"><br>
 
 نوید نجاران (راست) و میلاد آرمون
 سازمان حقوق بشر ایران در نروژ روز شنبه، ۳۰ آبان، تأیید کرد که میلاد آرمون و نوید نجاران، دو معترض «زن، زندگی، آزادی»، «در خطر اعدام قریب‌الوقوع» هستند.
@@ -142,7 +274,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-22 19:22:00
 
-<img src="https://cdn1.telesco.pe/file/pDItI7zUHshurrqPbDZyw-jqdVoze3Ne9HSq0bPKcklZZ3THfpfr5_BkvAVg4XKqklVXx8o2HXH7ZME_ECkgmWuLEeX-s0rrOLvUS9aRVZmNVpeHMSLDyDJRuam_EWuCjWsnu137enaovDVi_oqXcsCorYsT-dxdFRQDIE3to5D2l5KnFs7hFf3kfU4k4VJOV4BjrS3KNjfNUqUoA5dc8U2KVp8AJ4PS4wCtZn6HOUzpR0v7fPVY7M-KcBCoFe0QgM_hYQMpHzAwcqjwc43J9eUDpAMsGTbhDK-v3L1ar5pVM4Py8k4cyJ-0-1hGAG-f8gTJVSMuUjC2jWmZQOJt6Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Fei-5Jo65RfDQco5sS72mbbMmHi6xiY58y1pn4KebL1uCRoxviTKgqnHLLfACv7lL7-FPJVAMDBnRvjJt7h6OeL9Hz6n14bUZ6sO6o2YfI7QiPdy6Uno7Lq2E7TLIbau45VBKBzQkfi7eSBrdC-qkkq2uIiJK0amtY_Mm-l40_8GOAUE5CQg36cVqztc6SqbUSnBDxKEIaZSCpXzptANCGjCWZlo3s_3RiFNeUZ5XSk1E0kxf2zjw-9uMDS0oOV2UI_JtYeVqRjowUU8vmJMQDgX4PD9PgxuM8SDvLnYq2Dye9afB9OkEGRAbbSuXsB0d1Gg6_7tD9gcH1YYK-zSqw.jpg" width="400"><br>
 
 میلاد تقدسی، معاون درمان دانشگاه علوم پزشکی نیشابور، در گفتگو با رسانه‌های رسمی ایران، با ذکر آنکه تا ظهر یکشنبه اول آذر ماه، ۷۲ نفر بر اثر مصرف مشروبات الکلی مسموم شده‌اند، اعلام کرد تعداد قربانیان به ۴ تن افزایش یافته است.
 به گفتهٔ او، از میان مسمومان ۶۷ نفر مرد و ۵ نفر زن هستند. ۸ بیمار نیز برای ادامه درمان به مشهد اعزام شده‌اند و ۴۹ نفر نیز تحت درمان دیالیز قرار دارند.
@@ -179,7 +311,7 @@ IranRights_org
 
 ###### 🔵 Post time: 2026-11-21 23:59:06
 
-<img src="https://cdn1.telesco.pe/file/h07JbT6q38h86FAldZSnQBSj79sk2ftKvu-YS7LkxWnCItFv7x_Uk7LOp-zwMvU9kDd1FkaG7udSOzme3n8ZwD8OWOwHowbtsZwEOmv-upIdse0v4exdtw7tPUSwFGb6WZNepUlZ-xnvX_QFop1KcBCY7ebfd4OO2gVDwFdfKk4ooYKSHRN-d2REb_7w8eSk1BbBGi6AJxwQK33hzJnMmBIX0nfusgVhqSKDqFAS8IcESB4sJZWsMcs1XS3lE1_Jb7NBNF8M-mdSujnqcG0dNx0oylJlixL-ZJCjBfODZp7tnSyTLhe22s3SYIZj2Xs0gsB4FvVBPiZqR6yKRxoJLA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/HLbqcoVXdXAjRziPwoZ_3MDegi4MVIeK49GLMv6yp4nIzn4-fel-z7-fnb6Qz0QyeQAnrDRni0HRUNPXQ8GqmRJo1T7nhuyPyqkE3hCiUm9HD1xpRh1p9m-Gcji3l7p0raAoSAvSV3E4855fsFHwweO9--N4a023WrZDc9O0r4GqjXrPryHcHTzNAdPdSKg2UyT2sMNrPJqPrb98LdH11p9nuJL1yHPqJuLIi8-sL-ANGK9wlQ8c8nyWzwILlqVu6lQLEIxk7xfZYFp5aC-gPJMbotKi8IatBOqv048fUR2o5jiXgo5PxXtjnVf5OkrhjZ5jS568-taKiitv58Y6mQ.jpg" width="400"><br>
 
 روابط عمومی سپاه پاسداران شنبه ۳۰ آبان اعلام کرد که پایگاه‌های الرفاع و عوالی در بحرین را با موشک و پهپاد هدف قرار داده است.
 بر اساس این بیانیه، در جریان این عملیات ترکیبی، دو رادار متعلق به سامانه‌های پدافند هوایی پاتریوت ارتش آمریکا در این دو پایگاه هدف قرار گرفته‌اند.
@@ -196,7 +328,7 @@ VahidOnLive
 
 ###### 🔵 Post time: 2026-11-21 23:27:43
 
-<img src="https://cdn4.telesco.pe/file/SS1wt4H1JRrf_6MEqRqTRPBBJazQpUZufcu7U9Midm3snGsdVZgwkVZQGvCL6jz3Wzhb9cmVpUgNCzIP2I3eVlZPjX5eKA9eFGp9qmN8TN4B3ejleevEqdZLPQ7ET30nKhYXZ2_j9SiA59q5UVuH60LkBINyAzGxILJjq8JL3GSKLY-vgoshnCzqrWv4wtY7OPW41pOTmtE06OIRYNXH6Aiqli9B5fuLJVjnA_Fbz6ntCWSz2sz30u7JlF5obX1Jutks24DzytVEb8KlR6XmnalSFl2tFlxyrm-EXBUMGNYqK0PfPWwzEkQUgVxOVRtUvwa66J4vhogjazevrQzaHg.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/SryedDeTU9q0lk-a2O3p3pHELV7Q0HLI3EuNBNpxZvyzYiLkcs-yqhJ6YUtIMFpBtaVbW_1bGZaup7mwIzKT5jgGii8nPRKi8goPLo4hIPxRhWEvWEgFH3SsqUcP79jK-DCH9WQSRQ757sLft3a-GA-kPUkWS-fkahaNIuHZiOjGLjjfiK4LrHTb_AP6u-VWfIg4lvNo-IqOgLOfYN3Tteq1wi7_1gY-SskX4Lel8uSjgtM1854X6FwNysFhXVOwREWJC1gw9g4BRFV5KQ7Y3gBN7Sdv-1HrSax6yH5Waagwv36E_SEVIL2nHMPa8nKtvR5RsW21MGF0mFNSrWpM6w.jpg" width="400"><br>
 
 وزارت کشور بحرین اعلام کرد که در پی حملهٔ ایران به «تأسیساتی صنعتی و غیرنظامی» در این کشور، آتش‌سوزی رخ داده و نیروهای امدادی برای مهار آن وارد عمل شده‌اند.
 این وزارتخانه شامگاه شنبه ۳۰ آبان در پیامی در شبکهٔ ایکس اعلام کرد که بر اساس گزارش‌های اولیه، این حمله خسارات مادی به بار آورده، اما هیچ‌گونه مصدومیتی گزارش نشده است.
@@ -282,7 +414,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-21 18:18:01
 
-<img src="https://cdn4.telesco.pe/file/NYyrGaQTuRkgko6IuDgpoX_MHwL6fjnLveS6DwKd7LQmjaY8ABJn3nhSNsx5etmOT9pLdEYpPxJgROGzreo_eya95OL3XSQ2aBRpuRsNXK-v_Vxa7bKZOw4o8hgjy6EYUJioMuQpmNLGd1xkM1yZBLhlyNCzyA-y9TMfli0mZV1NMbWBTmdrMjcURZbUaWOzpSt7Egw6BBsHIXgTGN9f2_FzIZAVZce2JFTlxUoPgNRFHYR4gCZoOzunVhyaKpLU138hHEIHg61JmoRmk4ISVuKloEVYhcNySXnVQ1uaYDeewcUFs7OX6d5hM4h5TWRS3Qe3icjmmZa2shZ0BdtsoA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/ZTvmtmHXEvZLvBU90yUTE3yXW78xKQlbkFSiu5ouFNO93ywZ5m0QZBMC2G6YZhhLRIiN45ybuLNwoUUmmdtsVC7X0Gf_AU8edB0mtX4kjYbb8lXa8GPM3GevxEL-UN5a70SWBBHhZ2lCqI_oH88xJVuoPpDfWYHQBpi1ytG2qQfYhrOtBcXV7NO54iTiZM5D1tj1N3XMC9dRHKlI5ARsf-eOrVQo9epKgjr2p0FJxB2dxTTiTE2Z1NxFaaqEGGtk9XIjHmfazT3OilTB-reidE869n8cxuEmBL3lvCQBigCDxkm5UbJ1PbCzeUcHNw0bI0hOtadHi0bGUn2oy0qHRw.jpg" width="400"><br>
 
 وزارت خزانه‌داری آمریکا چهار ایرانی را در ارتباط با فروش نفت تحریم‌شده ایران تحریم کرد. مجید تاج، برادر مهدی تاج، رئیس فدراسیون فوتبال ایران، در میان تحریم‌شدگان است.
 خزانه‌داری آمریکا می‌گوید این افراد در فروش نفت ایران به خریداران خارجی و وصول درآمد آن نقش داشته‌اند. دارایی‌های مشمول صلاحیت آمریکا مسدود می‌شود و معامله با این افراد برای اشخاص آمریکایی، جز در موارد مجاز، ممنوع است.
@@ -292,54 +424,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79200)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-21 18:08:16
-
-<img src="https://cdn4.telesco.pe/file/vOUSFVzkxClvkPjvMIfxuvX6xq56Xf5vBxH8BavC0c_ZQnKeFkNEQ-I_U2djGwMn9jBpWynZLq2uBvVxSMCbXL8vFv-PAYhRIAhYiBHhjXWjJZZliAeT0Ov-BYYwxxPSc-juNFmC4dG0brN41gO9DsPK4cQPhYBRCNnuIR5sHqTvsquFpUu651JQufRq4HftEUI04Vqt64NYkyLstPdiU5N4q4NRDTYTHSnLbEOjpazTPmUyOsw7tw1WxhPZ51CPp34ms6yaDZ8EWVf5DeOkSoEKVTYKWtw9VCPSQZg_8Qyqa6DdTDCUkO7ihjkJibDmlpiCC4YSKgZdAS8mkjWKqQ.jpg" width="400"><br>
-
-باراک راوید، منبع خبر در اکسیوس و کانال ۱۲ اسرائیل، دقایقی پیش:
-به گفته یک منبع آگاه، علی الثوادی، فرستاده قطر، شب گذشته برای گفت‌وگو با مقام‌های ایرانی به تهران سفر کرد. این سفر بخشی از تلاش‌ها برای ازسرگیری مذاکرات میان آمریکا و ایران است.
-BarakRavid
-از سوی دیگر:
-برد کوپر، فرمانده سنتکام، و هیئت همراهش با سعود بن عبدالرحمن آل ثانی، وزیر دفاع قطر در دوحه دیدار کردند.
-برد کوپر هفته پیش به اسرائیل سفر و با مقام‌های اطلاعاتی و نظامی اسرائیل ملاقات کرده بود.
-وزارت دفاع قطر در شبکه اجتماعی ایکس نوشت در این دیدار درباره «شماری از موضوعات مورد علاقه دو طرف و راه‌های تقویت و توسعه» بحث و بررسی شد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79199)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-21 17:38:35
-
-<img src="https://cdn1.telesco.pe/file/X4MmJWY4UGFdsxvhyVW2cKYI0gbpCQsvaagsfhtz_O3o6ZcVFDj7_qiLCIiEKmo5lfnOSq-TZaPpTDUZspQqQx1Vna84VZuKY4yLo30BNkcVQFOVKcTTtvbuujiBkz-0-9b4vUv5dgc7EqfQSk4dO_FjcJceZGi0AK5868qYoqnA_pUANG96VRUfN-Htl1n88chGkqVsbYB-B_rPktB7DF0nrFn0urtqBZMaJqII_hksTRxVWeH4WwPmXIw7RDAZjN27MnnwyQqhY6ZSr1ccHbN3akLTe5wfVP9uC0cLj-4fMX8dH9CXNXGF6YSOnWmT7kh48neajJ4J1cvaDprpSA.jpg" width="400"><br>
-
-اسکات بسنت، وزیر خزانه‌داری آمریکا، می‌گوید دونالد ترامپ در دیدارهای اخیر خود با رهبران روسیه و چین، با آن‌ها درباره جلوگیری از دستیابی ایران به سلاح هسته‌ای و ضرورت تضمین آزادی کشتیرانی در تنگه هرمز «به اجماع رسیده است.»
-بسنت روز جمعه ۲۹ آبان در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت آمریکا، روسیه و چین در این دو موضوع با یکدیگر اتفاق نظر دارند و «هر سه کشور با آن موافق‌اند».
-@
-VahidHeadline
-عراقچی در مصاحبه‌ای با روزنامه دولتی ایران که روز شنبه ۳۰ آبان منتشر شد، افزود: «من معتقدم نباید تصور کنیم کسانی که خواهان تغییر دکترین هستند، منطق سستی دارند؛ آن‌ها هم منطق قوی‌ای دارند.»
-@
-VahidHeadline
-عراقچی درباره احتمال تغییر دکترین هسته‌ای ایران تأکید کرد که چنین تصمیمی پیامدهای بسیار مهمی خواهد داشت و روسیه و چین نیز در این زمینه مواضع مخالفی دارند.
-وزیر امور خارجه جمهوری اسلامی در گفت‌وگو با روزنامه «ایران» از پیشنهاد هفت‌روزه ایران به آمریکا خبر داد که پس از حدود دو ماه رایزنی و با توصیه واسطه‌ها، به طرحی ۴۸ ساعته تبدیل شد.
-بر اساس این پیشنهاد، آمریکا باید در روز نخست تعهدات موردنظر ایران را اجرا می‌کرد و ایران نیز در روز دوم تنگه هرمز را بازگشایی می‌کرد.
-او همچنین گفت یادداشت تفاهم اسلام‌آباد، به دلیل تحولات بعدی و نقض یکی از بندهای مهم آن از سوی آمریکا، دیگر موضوعیت اجرایی ندارد، اما تعهدات پذیرفته‌شده در آن همچنان می‌تواند مبنایی برای توافق نهایی باشد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79197)
 
 ---
 
