@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-24 04:54:36 </h5>
+<h5> 🟢 Updated at: 2026-11-24 15:20:27 </h5>
 </div>
 
 
@@ -141,7 +141,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-23 10:21:41
 
-<img src="https://cdn4.telesco.pe/file/dc5O_X2fKLZZIleNRTCG-iFpaX3_TEiXlHns4okf4GMERQMZUcNJuysdaHDN8uqAbzNEUa1hccNBrHAHKMmfQv4NHlDDW-alQiQLigWiDwXFMml-cf_TJGXQK-Em0owFA5Fx8RxIDp1XD90dvVAVSPd2GB7JZdxrz9r_wlvY9OMWjLgm2NXRBUcIIwvOv_0ExxcFBAd8bHZPCG9Rx9jgdCyZ6k4JfsyAen8TYUhp5ldXeF1xHbCLPRYt9etkjjIuZh3cOFuocew9mue0s5pj4stUEedG03ioSqOlx7TnemPpYh7-XpSZLTNDlaxnT1x0THJa_J7pi0wZEdXDIMWp3w.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/sFfoC9frQNaK0r7mr6OaSl4lJqX6kXIHO9FTAtmf5DZ0ilbJ1J7ZIhCpSjpnEx9NN6u6nABZUCFPj6jGn4JkLRr6fma-LSbjCraU86Ll2wb8XspCSXaMOzVolxeXFo-kHANOmpeViuf8DkDx82E2BjqrjySfund3czw9jEuzMrU4BUJUiZfN3EXN8JoGoHI3v4bvhEz58iH9kCBq49J2MHBT6tczBnhHIwHmDFTgqWqr5VgXXZ9y54YV34np2glTU4Z9scTSngLpwB0QJs9t1YxjTxhobeWIlz_ur6KFouZ_txpelXErp-Hiaew4BIVb4K1ZX_xcQ8lGnu_KmjmGAA.jpg" width="400"><br>
 
 دانشگاه‌های علوم پزشکی در ایران روز یکشنبه اول آذرماه از مسمومیت حدود ۱۵۰ نفر در شهرهای نیشابور، شیراز و مرودشت بر اثر مصرف مشروبات الکلی دست‌ساز و حاوی متانول خبر دادند که تاکنون به جان باختن پنج نفر و مرگ مغزی یک نفر دیگر منجر شده است. بر اساس اعلام سرپرست معاونت درمان دانشگاه علوم پزشکی نیشابور، از مجموع ۱۲۰ مسموم شناسایی‌شده در این شهر، چهار نفر جان باخته‌اند، یک بیمار دچار مرگ مغزی شده و ۱۱ نفر نیز تحت لوله‌گذاری داخل نای قرار گرفته‌اند. همچنین ۱۸ بیمار برای ادامه درمان به مشهد اعزام شده و ۱۶ نفر ترخیص شده‌اند. در همین حال، معاون درمان دانشگاه علوم پزشکی شیراز نیز از مسمومیت حدود ۳۰ نفر در شیراز و مرودشت طی ۲۴ ساعت گذشته خبر داد و تایید کرد که یک نفر جان خود را از دست داده و چهار بیمار دیگر در بخش مراقبت‌های ویژه بستری هستند.
 @
