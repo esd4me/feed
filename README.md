@@ -3,8 +3,26 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-25 18:40:36 </h5>
+<h5> 🟢 Updated at: 2026-11-26 03:24:36 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-25 19:16:10
+
+
+
+حضور مردی ایرانی که شباهت ظاهری زیادی به بنیامین نتانیاهو، نخست‌وزیر اسرائیل، دارد، روز چهارشنبه چهارم آذرماه، در مراسم تشییع و خاکسپاری غلامرضا نیک‌خواه، توجه حاضران را به خود جلب کرد.
+در ویدیویی که رسانه‌های ایران از این مراسم منتشر کرده‌اند، تعدادی از حاضران با این مرد عکس می‌گیرند و او نیز به شوخی از مردم می‌خواهد از او فیلم‌برداری نکنند تا برایش دردسر ایجاد نشود.
+پیش‌تر نیز انتشار ویدیویی از مردی با شباهت ظاهری قابل‌توجه به بنیامین نتانیاهو در یک مغازهٔ شیرینی‌فروشی، توجه کاربران شبکه‌های اجتماعی را به خود جلب کرد و بازتاب گسترده‌ای در رسانه‌ها داشت.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79257)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-25 18:35:17
@@ -15,6 +33,12 @@
 ترجمه ماشین:
 رژیم ایران کشتی در حال غرق شدنی است. ایران که از زمان آغاز عملیات «طرد اقتصادی» از سوی وزارت خزانه‌داری آمریکا در ماه اوت نتوانسته حتی یک نفتکش را بارگیری کند، دیگر حتی یک قطره نفت روی آب برای فروش ندارد.
 SecScottBessent
+بسنت همراه با این پیام ویدیویی منتشر کرد که نشان می‌دهد ذخایر نفت شناور ایران از بیش از ۵۲ میلیون و ۷۰۰ هزار بشکه در ۲۴ اوت ۲۰۲۶، در ۲۲ اکتبر به صفر رسیده است.
+بر اساس گزارش تحلیلی کپلر، میزان نفت خام و میعانات گازی ایران در خارج از منطقه محاصره دریایی در اواسط اکتبر به صفر سقوط کرده است.
+طبق این گزارش، ایران از ۲۵ اوت هیچ محموله‌ای بارگیری نکرده و نفتکش‌هایی که از اواسط ژوئیه بارگیری شده بودند نیز قادر به عبور از خط محاصره نبوده‌اند.
+کپلر همچنین پیش‌بینی کرده است با توجه به تأخیر یک تا دوماهه خریداران چینی در پرداخت پول، درآمدهای نفتی ایران که ۳۰ تا ۴۰ درصد درآمدهای دولت و بزرگ‌ترین منبع ارزی کشور است، برای نخستین بار در تاریخ تا اواسط دسامبر به صفر برسد؛ رخدادی که بازار ارز ایران هم‌اکنون آثار آن را نشان می‌دهد.
+@
+VahidOOnLine
 📡
 @VahidOnline
 
@@ -48,12 +72,12 @@ VahidOOnLine
 
 <img src="https://cdn1.telesco.pe/file/JArQgpz6c5s4YhlnBMA8VVaEAFmmAZUakGr61UXtVjPjataResapIKPGf7geiBQFQusnuNnFlRtX2TW8db_22u-DacdwFfWd6Iv4ydaXHDOZnMh8ujsMlufzR7rLraDip-M160ELh2vDSJ0tmqUqq4tHOoex1xEfASwhpUMFumAvbmOf8ey5zZWHzjNNx4HXmVnTJmldzJXA4hnFzilc6MR2Bm9LEqYNVN5R1PJ1WQxsN4Tvd0lOcagaFA6rJw1a-_AQtJd8PMXROq9Rly9GRuT92gMkzqzyz_49sml8Gz8W5acMW7rWqaOSShuP-_VOf4zlgbX53011JtQN-POdyA.jpg" width="400"><br>
 
-زهره لاجوردی، نماینده تهران در مجلس، درباره معطلی ۱۴ساله لایحه حمایت از زنان، به خبرگزاری تسنیم گفت: «درباره به‌کارگیری واژه خشونت در عنوان لایحه حفظ کرامت و حمایت از زنان و خانواده در برابر خشونت، دلایل و مستندات روشنی داشتیم. تعریفی که ما از خشونت ارائه می‌دهیم، با نگاه غرب به این مقوله کاملا متفاوت است.»
+زهره لاجوردی، نماینده تهران در مجلس شورای اسلامی، درباره معطلی ۱۴ساله لایحه حمایت از زنان، به خبرگزاری تسنیم گفت: «درباره به‌کارگیری واژه خشونت در عنوان لایحه حفظ کرامت و حمایت از زنان و خانواده در برابر خشونت، دلایل و مستندات روشنی داشتیم. تعریفی که ما از خشونت ارائه می‌دهیم، با نگاه غرب به این مقوله کاملا متفاوت است.»
 لاجوردی افزود: «متاسفانه اصرار زیادی بر موضوع خشونت شد و باید توضیح دهند که چرا این‌قدر بر استفاده از واژه خشونت پافشاری می‌کنند؛ آیا قرار است مطابق اسناد ۲۰۳۰ عمل کنیم؟»
-این نماینده مجلس ادامه داد: «تعریف غرب از خشونت با تعریف ما متفاوت است و نباید با دست خودمان چیزی را وارد این لایحه کنیم و به تصویب برسانیم که غربی‌ها بتوانند به‌ناحق از ما مطالبه‌گری کنند. اتفاقا اسلام بیش از هر دین، مذهب و مسلکی مدافع حقوق زنان است و این موضوع کاملا قابل اثبات است.»
+این عضو مجلس شورای اسلامی ادامه داد: «تعریف غرب از خشونت با تعریف ما متفاوت است و نباید با دست خودمان چیزی را وارد این لایحه کنیم و به تصویب برسانیم که غربی‌ها بتوانند به‌ناحق از ما مطالبه‌گری کنند. اتفاقا اسلام بیش از هر دین، مذهب و مسلکی مدافع حقوق زنان است و این موضوع کاملا قابل اثبات است.»
 @
 VahidOOnLine
-مسعود پزشکیان، رئیس‌جمهوری اسلامی، روز چهارشنبه ۴ آذر، هم‌زمان با روز جهانی مبارزه با خشونت علیه زنان، در پیامی در حساب کاربری خود در شبکه اجتماعی اکس، با اشاره به جایگاه زنان در تعالیم اسلامی، پیامبر اسلام را پرچم‌دار مبارزه با خشونت علیه زنان توصیف کرد.
+مسعود پزشکیان، رئیس جمهوری اسلامی، روز چهارشنبه ۴ آذر، هم‌زمان با روز جهانی مبارزه با خشونت علیه زنان، در پیامی در حساب کاربری خود در شبکه اجتماعی اکس، با اشاره به جایگاه زنان در تعالیم اسلامی، پیامبر اسلام را پرچم‌دار مبارزه با خشونت علیه زنان توصیف کرد.
 پزشکیان در این پیام نوشت: «پیامبر اسلام، پرچم‌دار مبارزه با خشونت علیه زنان بود. در برابر تبعیض ایستاد و کرامت زن را احیا کرد.»
 او در ادامه با تأکید بر اهمیت نقش زنان در جامعه افزود: «بالندگی زنان افتخار ایران اسلامی است و امروز نیز باید همه قوانین و اقدامات در مسیر تأمین حقوق، امنیت و رشد زنان و مردان ایران اسلامی باشد.»
 با این حال، وضعیت زنان در ایران همچنان با محدودیت‌های گسترده قانونی و اجتماعی همراه است.
@@ -162,10 +186,9 @@ nypost
 
 ###### 🔵 Post time: 2026-11-25 01:56:20
 
-<img src="https://cdn1.telesco.pe/file/M1uJ7rzrdv0uhWLZx378SQg9sQKZk09PtCqyDKbtmXGs_t9iiItRggPvLwEdiAwJGd5u01tSNMQj6ZOhbqup5LCvyzHW9D5RGsnZXAgKPycxQhSu7X8TSmjcMqjbCj8v6mPJGd1Lale2GXw7lYSF8-3jWmV4Rg1NArQHhkVsz0o_JWJlI-jSuN1pyXRy797OCA_Sn2SzKQjL6mkUVmrJ-dddTZ7SsLXZ9uk_9CblM7DW6ak7O_omrolJMA2n8DOGXOYptGWwz-vKhw9NJGq6NRsIHwt7a8os2Sil_zpbrPUx0zuTMmcSye9B0ffXkgqFlx-uHljF-FSgn55pPCGjGg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/gqSvLgEl_s82rS7vkZ9s50QNdtoJfwVQCsXsFVIg0D7Re261yKAy96Xl1jIgY2624l_b_hha_4yJk-arTEsm5Qk_nK14wyia7g-adoMFmxpWlnofIfujL4DKA5XeTgyLzAsLCrDrfIbVjDMfi2Cmx1pQX1XL1GMJYsudr2suyUMcq7DG3arl31uxmTpm-9tElKORThD2D27DQTnSzNVMsq5YtwUTJm-HQnSuxCaMKuDyNqjAnhOaT7StfEia3oJz2W4eYzXigJzVp1gDSq4t1D__K8tr4mcs2VUZMKEEj7jOVxk58aAdhsVAZc6pCNjwns6Kpc-2yS0caUG7Jw6LCg.jpg" width="400"><br>
 
 'توقف اجرای حکم اعدام میلاد آرمون و نوید نجاران'
-توییت وکیل میلاد:
 Mhaghasi1
 اعدام دو زندانی سیاسی محکوم به اعدام در پرونده شهرک اکباتان، که بر اساس گزارش‌ها، قرار بود سحرگاه چهارشنبه چهارم آذر اجرا شود، متوقف شد.
 محمدحسین آقاسی، وکیل میلاد آرمون، روز سه‌شنبه سوم آذر با انتشار
@@ -202,7 +225,7 @@ pinned a photo
 
 ###### 🔵 Post time: 2026-11-24 22:51:42
 
-<img src="https://cdn1.telesco.pe/file/cHqDBNCsKIUMCXknWURw4hVVYxjZrlRaB8uLiTfd6CaCBlbPsxEBUWw6gZaVN7jYAAwPsI-DO0K-WX995zQDSlASJ5o7JBThrjfqAP1u9Nf5AXAKQNiw0CDyhyEXjVCZOfrKjg-A8OrdrNguuRVEQVAIhDB9pc4DtnKQI36AB2fInpyva9BJMjcxrFCGpi0kWLr3ocGHZj46cAh7NrhuHn7BAQDm7hmveLEIWB2OZYEn1mvdhvEpZ12SX7hfrW5Wi9qwHuZc0U3uEILLzxIEukQhVX4abXB7iLsp8oJQaMgdP1uyDu8Elco4Arn3rgX2R8yhnxJg-64Z5tmzIZRwKg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/opu40W7Da9gJwZLHrJP0jYbr-xswTYG76m-tlwbteXpZNn2DA3lkNKguuFh7THsXtf7eDgl1hMW7mCmSv2uq4wd3J7XgZ71GudoKD45K1PU36W0LzBNXr27iG0GKQ8pFHsqj7C3F0tK7C61tVp4yCKV40iXbEKAqZS-4BU2MZcwSyNDAhHL6-2PqkqXREJwxPFBQ4IPOFZDRWcMiiEaJYN9gOgRPg9H59gF8-ddlfQ5oBq_L1YQtrjsekhhmx-6UinPzklGUHj5hvL7GmAgE6L0bapueyz2cfh7crYgcSXi5-C3i8EmhsmDLMRQLItUVboseuWPHLylZQJAecOp_vQ.jpg" width="400"><br>
 
 محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روز سه‌شنبه سوم آذر گفت جمهوری اسلامی مصمم به شکستن محاصره دریایی است و به هرگونه حمله جدید با تمام قوا پاسخ خواهد داد.
 رضایی در پیامی به زبان انگلیسی در شبکه ایکس نوشت که طرح‌های دونالد ترامپ و تیم شکست‌خورده او برای محاصره ایران، به اندازه راهبرد جنگی شکست‌خورده‌شان «وهم‌آلود و بی‌نتیجه» است. او افزود ملت ایران، نیروهای مسلح و تمام ساختار حکومتی جمهوری اسلامی برای شکستن محاصره و پاسخ قاطع به هرگونه تجاوز جدید مصمم هستند.
@@ -223,7 +246,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-24 22:44:47
 
-<img src="https://cdn1.telesco.pe/file/hC_Qkj4jVaNQ0zPViwtzmraQL9muCo8vYwvniQ0pqj-FicW67M_ifZ7r--Aq_JBj7Vh3o3YZ8y9qRaOiWrgaDwcxgScNhTPFLU_hMvfNzVXcS3W2XKrLED6UScAG27NWRHnA78XKvjL326LZ_maN1CPg3hCfyZx3FfaZsFT1ILeIHU39We3r9LXQWf8pwAfrkeJaqIlRLkZQJ77NuXEVSFkpHSLd3CVH2m_LEIEpqKG2rFLAVaaIQX2k_p8C4L_CdmjnpNutU6DXWPmH2oZAxpW0CBUeOytgNo9LeCGM1d0o7rXRlvWecSceq2EIwxeHjV-ooYZzkwZZEXmkamXcTg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XcEq_Nt3u_QJ1M8DHeyTmq6PsigkzeR-jjHm-e8-Us2W64dltsTj0i9Nxd0_kmIOCmx6MePVljTpX6XjBaHFBdox1aQul1YnEk99PWwv1tGpPFLn_pKJQgemF1bt_D9do-ufbc6UGdB-UvN31VuPieH3AnhQiWMbcMKnBQFo-6bA4u9cqkZfPJfCZ67Qd_HZ27rP9GrqWQ7aJL5IYTU_XBhD-QlpNDK35UkJyl8XPbWlfQ65Bkr6Vy7ZNpEArrEB6x2E6IQObWTpkqzcQS4ROsc-sNytWaMeIwmVpOOS0yFl5JUlrtu5agmFbMGWHFcPBhPGTqjm8VghxX7LfAGwIw.jpg" width="400"><br>
 
 وزیر دفاع اسرائیل گفت ارتش اسرائیل و ستاد فرماندهی مرکزی آمریکا، سنتکام، برای انجام عملیات مشترک آماده‌اند و طرح‌های عملیاتی نیز تهیه شده است، اما تصمیم دربارۀ مشارکت آمریکا بر عهدۀ دونالد ترامپ خواهد بود.
 @
@@ -252,7 +275,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-24 21:20:51
 
-<img src="https://cdn1.telesco.pe/file/Mev6kxNqSD0ab9nNt7iNOKwy-KFsVIiewl5PcQtCK-1-z0AfM5T2BIR7mcaUlyxj8Akcuu1cBH6wgMCheFIElitZv33OPzCH6xo6s9u91v2oUamJkrpPYdrYG5q3nEB2tywytEAOP5jiVteF54UKosWjqsdhmjFhMuYsSwazmiOeP7kT63i5trzsMKuR07MBD-DezlOXQU7wfz5CHyx8fFkocbpqqbcdLYX_ANQpg9bQIWVng5xdPNxcNH4LtonmlVI_XZnxsjtoSjTfemMCEhfA7ka-h7uQV3ukEGgbh5rvVIfeXeQUCRfeUdQY5cAVDVvtQsIWCbwQMtiVNudBdg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/mzkgfUvubrrH6IWYCWqNIZJIUdvt2h-ZVbVWTYMX4gzG-28ti-RQbPjulvjWYYWdVGorVht_-FfuNa91BKGL-2swwROPS8-AX2mr7xjeDXUZDeESrmy8f_wwwfjIitEwx04ClYfn7jg-4-qwvDATNe0SjAgamPj1lb7huQDBbc_RxL3G8KKemPPQgCVMJQ1B3WkySSrQF-S7vnx68Ek3Dr31S6EEiAUDtTkeMv12ZuFPz3GyeYG3080sjEBv1a1rRyjdJ5-NkowWNteFsqQDZ6faf6_Ps50Y7xttSjpxCOeE23LsCCNnnvS6d2i3cQy_PqjIHHyULZgFRaeYTbGJZA.jpg" width="400"><br>
 
 ⚠️
 صبح فردا
@@ -267,7 +290,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-24 21:18:51
 
-<img src="https://cdn1.telesco.pe/file/eBCa-cJvoA_SKfdyRZAcXS53VvRRTAkBqqRPUbHnR6hhU8ac_NdmMGi30n7rwfxquc_WRWZn7oS8wZBvKXnU2INn5jNiNKkl5gONB0MwOdw5moMAA2z6-Q4aGRblRQTx2PAcp6ulgtEtGtK_G-ytMQVaaGke2_L8vqN7CKE7JRl1UMT8R98xaIgquBRgz2FsOFLhenKhqZcY6A6RjeKsBc3LeCf6bF404ZLvzOkAnvpt68sjCpsw-y7YtXEA9oskiom5CxYomfSEzZnhicOAChID_-EWBIrIgYzazK5_P_ad6LrNfJx4lqs5mD-6PoYQ8z2dSVf865RtFc4lSHGPAw.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/pOdukKm-UtL0af60s-2fOrgmsuJYSPYU3cbwZsZ69o_fcRPMXUEa0D1DZT9YIPmwxL8mY88hR_Ouz9UmEfSUZUihpIKHjyH_HbSRM1eHdcMMXZ1wuLtxVqn615rCHD8OPk460f_N5kNrH-2KW1g4vMvbjV4tzSoO3SnqrrPAPG6_EbmfedNurG2c1MV2PwTCIxBm24AqaBdqOQ9DTj5q-lbBy6q9Egm_JkJVzqykEfhfivMnY_BfInm3g1ORLl9owD5tbyBqYhdfMhk31HV7654Uy2-NACgyOyukHQ4IwPCIJP9a3cnerpvnvHsi-ZZv-6EfWYDQ48jeJIzAUE7YCw.jpg" width="400"><br>
 
 جنسن هوانگ، ۱۱ روز پس از اعلام کناره‌گیری در پی افشای روابط خارج از ازدواج، با حمایت و مداخله دونالد ترامپ به مدیرعاملی انویدیا بازگشت؛ بازگشتی که با جهش حدود ۳۱٫۵ درصدی سهام شرکت همراه شد. با این حال، تحقیقات داخلی و بررسی‌های کنگره درباره نگرانی‌های امنیتی ادامه دارد؛ از جمله رابطه گزارش‌شده او با زنی مظنون به ارتباط با دستگاه اطلاعاتی چین.
 @
