@@ -3,8 +3,112 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-25 08:12:20 </h5>
+<h5> 🟢 Updated at: 2026-11-25 18:40:36 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-25 18:35:17
+
+
+
+پست اسکات بسنت، وزیر خزانه‌داری آمریکا
+ترجمه ماشین:
+رژیم ایران کشتی در حال غرق شدنی است. ایران که از زمان آغاز عملیات «طرد اقتصادی» از سوی وزارت خزانه‌داری آمریکا در ماه اوت نتوانسته حتی یک نفتکش را بارگیری کند، دیگر حتی یک قطره نفت روی آب برای فروش ندارد.
+SecScottBessent
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79256)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-25 18:21:42
+
+<img src="https://cdn1.telesco.pe/file/chLqe4YTjupjQJTgDSGGkK-EwFWuJFrtCktp7AgOhjopSMw4-uAXmypmIeeflncpZA5Rj5Qu3hQbHJYZKiXMUWtj-DzfHSM2jguEUQ3jXs9HMfUe2myUgkOGe0KLy8YkF8NKNkZ3FcxhIFIlHZ8gBqeBdmkOSQgYcwBmUsDJPu0qBNTQLGdoCFEmUizdrb6bXCu6KC2fYGqM3LC46rKcH_v5JeeXwlsg2oF4iqBOqLLpeD8UDhNNnSU2WKuKvJl1hKyLVvAwF7YhOxWpdEvIRlb9H01V9tlgSuReKSoIWCXiikVIF_6_iQCgKCX6Bp_L3mvrlVqD4JrSRuEAh3cNrg.jpg" width="400"><br>
+
+دلار آزاد تهران از ۲۹۰ هزار تومان گذشت. بازار چهارشنبه ۴ آذر، ساعت ۱۵:۵۹ به وقت تهران، نرخ فروش دلار را ۲۹۰٬۵۰۰ تومان ثبت کرد.
+هم‌زمان، خبرگزاری فارس مدعی شد محموله بزرگی از اسکناس دلار از یکی از کشورهای همسایه وارد ایران شده است.
+فارس مبلغ محموله و زمان عرضه آن را اعلام نکرده و ورود آن هنوز تایید مستقل نشده است.
+انتشار این خبر ممکن است بعضی خریداران را به صبر وادارد.
+اثر آن بر قیمت به این بستگی دارد که چه مقدار ارز و چه زمانی به بازار برسد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79255)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-25 18:12:45
+
+<img src="https://cdn1.telesco.pe/file/JArQgpz6c5s4YhlnBMA8VVaEAFmmAZUakGr61UXtVjPjataResapIKPGf7geiBQFQusnuNnFlRtX2TW8db_22u-DacdwFfWd6Iv4ydaXHDOZnMh8ujsMlufzR7rLraDip-M160ELh2vDSJ0tmqUqq4tHOoex1xEfASwhpUMFumAvbmOf8ey5zZWHzjNNx4HXmVnTJmldzJXA4hnFzilc6MR2Bm9LEqYNVN5R1PJ1WQxsN4Tvd0lOcagaFA6rJw1a-_AQtJd8PMXROq9Rly9GRuT92gMkzqzyz_49sml8Gz8W5acMW7rWqaOSShuP-_VOf4zlgbX53011JtQN-POdyA.jpg" width="400"><br>
+
+زهره لاجوردی، نماینده تهران در مجلس، درباره معطلی ۱۴ساله لایحه حمایت از زنان، به خبرگزاری تسنیم گفت: «درباره به‌کارگیری واژه خشونت در عنوان لایحه حفظ کرامت و حمایت از زنان و خانواده در برابر خشونت، دلایل و مستندات روشنی داشتیم. تعریفی که ما از خشونت ارائه می‌دهیم، با نگاه غرب به این مقوله کاملا متفاوت است.»
+لاجوردی افزود: «متاسفانه اصرار زیادی بر موضوع خشونت شد و باید توضیح دهند که چرا این‌قدر بر استفاده از واژه خشونت پافشاری می‌کنند؛ آیا قرار است مطابق اسناد ۲۰۳۰ عمل کنیم؟»
+این نماینده مجلس ادامه داد: «تعریف غرب از خشونت با تعریف ما متفاوت است و نباید با دست خودمان چیزی را وارد این لایحه کنیم و به تصویب برسانیم که غربی‌ها بتوانند به‌ناحق از ما مطالبه‌گری کنند. اتفاقا اسلام بیش از هر دین، مذهب و مسلکی مدافع حقوق زنان است و این موضوع کاملا قابل اثبات است.»
+@
+VahidOOnLine
+مسعود پزشکیان، رئیس‌جمهوری اسلامی، روز چهارشنبه ۴ آذر، هم‌زمان با روز جهانی مبارزه با خشونت علیه زنان، در پیامی در حساب کاربری خود در شبکه اجتماعی اکس، با اشاره به جایگاه زنان در تعالیم اسلامی، پیامبر اسلام را پرچم‌دار مبارزه با خشونت علیه زنان توصیف کرد.
+پزشکیان در این پیام نوشت: «پیامبر اسلام، پرچم‌دار مبارزه با خشونت علیه زنان بود. در برابر تبعیض ایستاد و کرامت زن را احیا کرد.»
+او در ادامه با تأکید بر اهمیت نقش زنان در جامعه افزود: «بالندگی زنان افتخار ایران اسلامی است و امروز نیز باید همه قوانین و اقدامات در مسیر تأمین حقوق، امنیت و رشد زنان و مردان ایران اسلامی باشد.»
+با این حال، وضعیت زنان در ایران همچنان با محدودیت‌های گسترده قانونی و اجتماعی همراه است.
+زنان در زمینه‌هایی مانند ازدواج، طلاق، حضانت فرزندان و ارث از حقوق برابر با مردان برخوردار نیستند.
+اجرای قوانین حجاب اجباری، برخورد قضایی و جریمه زنان مخالف این قوانین، توقیف خودروها، تعطیلی کسب‌وکارها و نظارت بر پوشش زنان در فضاهای عمومی و دانشگاه‌ها نیز ادامه دارد.
+از سوی دیگر، نبود حمایت‌های قانونی کافی در برابر خشونت خانگی و قتل زنان، فقدان آمار رسمی شفاف درباره زن‌کشی و کنار گذاشته شدن لایحه مقابله با خشونت علیه زنان از جمله مواردی است که همچنان مورد انتقاد نهادهای حقوق بشری قرار دارد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79253)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-25 18:10:40
+
+<img src="https://cdn4.telesco.pe/file/J6_iyAiKxxH4LEC_is30LCbdQoMBlcbvIfgnv2-iq6-mJDOlwPRCGcgzy4fxizG4OeEt9wsuCd3efPFrtFzPog6LjTyeEB9jEkHn5DzaxOlbG3txqLIuixBFulVuXJDd6kJ17PA0SvssRtHi5r-q4gZFMjTXnhNZUO0ckL_vM5EIsDY7UOSc8g2qaB88tI9dASjMIIRUp4WeaWPFeVjupqGbbjjTCDoE4g6Z0JTAkyGQKEwDoFcbcrVKW28aRVTaQvZgY8McHW2KQtYbJXaclz_q5FTy4ESrAw2dSWYW0O9S_pujgcXnD-WSjfh6UoKmv36_OxcuP5E3fFy4SsRpDA.jpg" width="400"><br>
+
+«زهرا جدیدی»، ۱۵ ساله، روز سه‌شنبه ۳ آذر ۱۴۰۵ در پارک ساحلی میاندوآب به قتل رسید.
+«یوسف اشرفی»، فرمانده انتظامی میاندوآب، گفت بررسی‌های اولیه پلیس نشان می‌دهد نامزد ۲۱ ساله این دختر او را به قتل رسانده و پس از آن در نزدیکی محل حادثه به زندگی خود پایان داده است.
+فرمانده انتظامی میاندوآب این قتل را در پی «اختلافات خانوادگی» دانست. سازمان حقوق بشری هه‌نگاو، به نقل از منبعی نزدیک به خانواده دختر، گزارش داد که او در کودکی به عقد این مرد درآمده بود و پیش از قتل خواستار جدایی و پایان‌دادن به این رابطه شده بود.
+گزارش‌ها درباره سن این دختر متفاوت است. هه‌نگاو او را ۱۶ ساله، معرفی کرده و رکنا سنش را ۱۵ سال نوشته است. هرانا نیز‌ به نقل از رسانه محلی «آذربایجان آنلاین» سن او را ۱۴ سال اعلام کرده است.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79252)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-25 18:09:36
+
+<img src="https://cdn1.telesco.pe/file/UqKY_xklavnKK5-lEI8PsXSYZiL595A7F3yQ_Bt0Qa8xzqZnM75Jstp4I5M3XHpGbIjLYeYLeMVA3lxK2NvF8yD_yjWoFe0EYB5JPySH-n_r4pg6487JGkD-dREDwRzx_P-Iqjiua9FZZeQesPz_Y6xXcWkmtNp-UHpCxAnOAOXwhfsRaflY6WoNoTVO-4g5_QSI8dN4kdYkTQyMZWZweFmRuVBIdi-lETPU49h7sQ4v0NktKRroxLGuI_xkdRk6XiJRWI-k3uKZV97WTkzm3B28o4_z4vpJqRE35AWp-9maJ2vv0ywGU8FsCF1USaanRMtAZekZiF3V1dG3bgKNBQ.jpg" width="400"><br>
+
+تصویر مزار مجید نیک‌اندیش از بازداشت‌شدگان دی‌ماه که حکم اعدام او هشتم مهرماه ۱۴۰۵ در مشهد اجرا شد.
+بر اساس اطلاعات رسیده، پیکر نیک‌اندیش به خانواده‌اش تحویل داده نشد و به دستور دادستان مشهد، در بلوک ۲۵، ردیف ۲۱، قبر شماره ۱۲۱ آرامستان بهشت رضای مشهد به خاک سپرده شد.
+مجید نیک‌اندیش ۲۰ دی‌ماه ۱۴۰۴ در مشهد بازداشت و به اتهام «محاربه» به اعدام محکوم شده بود.
+حکم اعدام او و علی همتی سیستانی، دیگر بازداشت‌شده اعتراضات دی‌ماه، هم‌زمان در مشهد اجرا شد.
+نیک‌اندیش در آخرین دست‌نوشته خود پیش از اعدام، ضمن وداع با خانواده و طلب حلالیت از مادرش، نوشته بود: «امشب مثل بچه‌های کوچک شدم که از آمپول می‌ترسد.»
+او در بخش دیگری از این نامه پرسیده بود: «فقط یک سوال تو ذهنم هست؛ چرا؟»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79249)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-25 05:51:19
@@ -172,66 +276,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79230)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-24 19:35:36
-
-<img src="https://cdn4.telesco.pe/file/JhSys4twfLCAVXN7BSyRYOPb_g5UnCDUwEGgX5t3w1kzCp_A98g73oupkYjQxMlmfUVdpLyeVgQAbWn4TNZi47mE7Jl1xQ40xV0Porh9Guu4v5zBwcnZs8w0mgPr-dZjJSBp477uRhvGvnGcdVfJnu_k1u3baUaBOfOnI5a7QjIC9d-nurv1_5ZBf1fFEh0AATmkQkpJC7GT4DLtcOxy1jp3BLstW7_D76Y5-eU-sNxaIVJ9tlZWBE2u6U272OZHvvgfPmbH60Nja9bMh9h0DkaQQwbXdBGr7ip8tAenFyhTO1cJUEgIAAe14bCUwyTMx807M0Lf6lKrZG0e07LPvw.jpg" width="400"><br>
-
-اداره دفاع مدنی عربستان سعودی اعلام کرد که در پی حمله روز سه‌شنبه سوم آذرماه شبه‌نظامیان حوثی به یک برج در منطقه مالی شهر ریاض، پایتخت این کشور، ۱۱ نفر زخمی شده‌اند. این سازمان اعلام کرد که این مجروحان شامل دو شهروند عربستان سعودی، دو شهروند هند، سه شهروند نپال و چهار شهروند مصر بودند.
-این گزارش ساعاتی پس از آن منتشر شد که ائتلاف نظامی به رهبری عربستان سعودی در یمن، هدف قرار گرفتن این برج را یک «حمله تروریستی» توصیف کرده و از آغاز بازرسی و بررسی محل حادثه توسط نهادهای ذی‌ربط خبر داده بود.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79229)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-24 17:26:01
-
-<img src="https://cdn1.telesco.pe/file/FvJClyAGHFcTCu82ZLaUFobdrZrZn99OhsnSQ4-RnoN1ligipeYjiWHMkzd8duslqjtnBRKna9JztLs49qkXGAAkmIZ9N0HKonaSELfUFQVjZnS7aeFVXGSbBVjRsXuP-X5hGXEWT-VhfaXw1D9-QbTZjv757Zc7z2YkhPgYVhQbbFRlJYRJ215bx-bYpzVNIKWmiiX1xwgHtzQETXipyBwnahUedRzIxMawh2CQ9847EG7yEm3zf26v5XRdw9Hd6uUDl8MEZlFzrJtSUwx29WR0BEy1BEtsvmkZSI6G7ra6KfYd4Vcbt9_B4nBiJrC71FTQUlewHTRg7wkHneFVpw.jpg" width="400"><br>
-
-⚠️
-صبح فردا
-⚠️
-امتداد سه‌شنبه سوم آذر اعلام کرد که صبح این روز به وکلای میلاد آرمون و نوید نجاران، از متهمان پرونده موسوم به اکباتان، ابلاغ شده است که حکم اعدام موکلانشان چهارشنبه چهارم آذر اجرا می‌شود.
-شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی صلواتی، این دو زندانی را به اتهام «افساد فی‌الارض» به اعدام محکوم کرده بود، در حالی که پیش‌تر دادگاه کیفری یک هر دو را از اتهام قتل عمد آرمان علی‌وردی تبرئه کرده بود.
-به گفته وکلای نوید نجاران، او در مرحله بازپرسی از اتهام وارد کردن ضربه با چاقو تبرئه شده بود و دادگاه کیفری یک نیز قتل با چاقو را احراز نکرده بود.
-وکلای میلاد آرمون نیز گفته‌اند که او هیچ سلاح سردی همراه نداشته و شاهدانی که پیش‌تر علیه او شهادت داده بودند، در نامه‌ای رسمی از شهادت خود عدول کرده‌اند.
-وکلای این دو زندانی با ثبت درخواست اعاده دادرسی در شعبه ۳۹ دیوان عالی کشور، خواستار رسیدگی منصفانه به پرونده موکلانشان شده‌اند. با این حال، تا زمان انتشار گزارش امتداد، دستور توقف اجرای حکم اعدام آنان صادر نشده است.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79228)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-24 17:24:57
-
-<img src="https://cdn4.telesco.pe/file/Z_MixPO_g6AL6-oCnDJKURICxzdSre4uBbLxANeoxgp95NvvJrV6bEEqs5aL92V8ycMe7W8LwfCHQ8ySctMoWVk1je-R4Eyj5SII0uL9LADNPjLl8wW_i0JpiPL3CbPZu14vuANx5NWjniuGbIH8SQP_ZGANmQRSPUZSQVLpGGOJR-j17PbLoK9FOFsvbq8fRVH0tXid3KXmmu48ensznkkFWiQkilF5z_GRo7N0Af9wJ2n1UT602dNABCNJR6HSJqePZN-kQqzxzQWRKowP-bI4rPafI8cNzpi_xXePxmw9EharFcXRXaaozuUSiY5Vp3LsswoGmi3Ab-lfy1rSww.jpg" width="400"><br>
-
-دلار در بازار آزاد سه‌شنبه سوم آذر تا ۲۸۵ هزار و ۲۰۰ تومان بالا رفت و رکورد تازه‌ای ثبت کرد.
-آخرین نرخ ثبت‌شده ساعت ۱۶ به وقت تهران، ۲۸۴ هزار و ۶۹۵ تومان بود که بیش از پنج درصد نسبت به نرخ پایانی روز گذشته رشد داشته است.
-رکورد پیشین، ۲۷۴ هزار و ۵۰۰ تومان، ۱۲ آبان ثبت شده بود. این موج افزایش قیمت پس از اعلام تحریم‌های جدید ایالات متحده صورت گرفت.
-اسکات بسنت، وزیر خزانه‌داری آمریکا، سوم شهریور و در آغاز عملیات «طرد اقتصادی» در شبکه اجتماعی ایکس نوشت «دلار ۳۰۰ هزار تومانی در راه است».
-بسنت پیش‌تر پیش‌بینی کرده بود اقتصاد ایران تا پایان اسفند ۲۵ درصد کوچک شود.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79227)
 
 ---
 
