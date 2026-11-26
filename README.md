@@ -3,8 +3,103 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-26 09:42:17 </h5>
+<h5> 🟢 Updated at: 2026-11-26 20:56:24 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-26 20:23:46
+
+<img src="https://cdn4.telesco.pe/file/gEbGHAE7AqAlONslC5uyUsXUjx7ce2VzVv8SB1QgUMrLpolsVa-0QKhGRTrPRHDb6x3kq0WcaRIJ3H4J2V-S3yBBYT0RnREiahnKz58jQ8cqLPRSo8HNPGODShGTshKKHwQu-vEi7Za0sNU9uTu03fiS1-eHxbVUtVEMvO01F65TFzkSHcz1ro8Ho-lratrV8ilFvhbIErXRx4lMrPCjugsijUAe31Q-qbZ3ZHB3ICxLgreV_tsODGJ0p4oCLzfzdAUrPVHZs1KdU5jKVNGJTyt5YB_lEevSbG68MyQ8L_z30SvilGgb6aM8ijHp4mU8gB0csmMplZOtoyXgALzM4g.jpg" width="400"><br>
+
+سردار ابوالفضل شکارچی، سخنگوی ارشد نیروهای مسلح جمهوری اسلامی، ادعاهای مطرح‌شده مبنی بر دست داشتن ایران در حمله پهپادی به کویت را «به‌شدت» تکذیب کرد.
+به گزارش خبرگزاری رسمی ایرنا، روز پنجشنبه پنجم آذر، شکارچی اعلام کرد که هیچ‌گونه عملیات نظامی یا تهاجمی از سوی نیروهای مسلح ایران در منطقه انجام نشده است.
+او با طرح این ادعا که اسرائیل و نیروهای آمریکایی سابقه استفاده از عملیات «پرچم دروغین» و ماجراجویی در منطقه را دارند، گفت: «این اتهامات پوششی برای تداوم فعالیت‌های خبیثانه و تلاشی برای افزایش ناامنی در منطقه تلقی می‌شود.»
+این تکذیبیه در حالی منتشر می‌شود که مقام‌های کویتی پیش‌تر ایران را مسئول حمله پهپادی امروز به یک تأسیسات حیاتی در خاک این کشور دانسته بودند؛ حمله‌ای که در جریان آن دو کارشناس فنی ایتالیایی شرکت دفاعی «راین‌متال» جان خود را از دست دادند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79262)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-26 17:40:09
+
+<img src="https://cdn1.telesco.pe/file/mY9upTWWSHgtNh-ug0aNcbwXBbUCzeytMG32GOhxgnV-rFokPDt9z6rxHmK2VQx4XnnGF5TFkfVNjSzPcPjNeT0lKX53yA8nvyY--eYWWEWgS80CWIZjNtVDvJILa73VUQeDr3D-PlBCHyM-9ifztC880AojolW0FMhWJdUQRj1A_xy9fHDNeQPeTjesHOv4aoUEKhmzJ3EQfN7LY8Eyx7sn2kMeQBqoyOyvqmMIuSRSD6zhH0N1Zy7puCiytkJ_A5mCiitAyrv_PKDZnaxIZyjD0_ajLrRr_uFfed1pYyb1qlMuL3TkWZw_Id4jASESAASxY-4DWTGSTlWxDtrn6w.jpg" width="400"><br>
+
+خبرگزاری آنسا و روزنامه لارپوبلیکا، دو رسانه ایتالیایی، گزارش دادند که دو تکنسین ایتالیایی شرکت صنایع دفاعی راین‌متال پنج‌شنبه پنجم آذر بر اثر اصابت بقایای پهپادهای رهگیری‌شده جمهوری اسلامی به یکی از تاسیسات حیاتی کویت کشته شدند.
+@
+VahidOOnLine
+سخنگوی وزارت دفاع کویت، ساعتی پیشتر اعلام کرد که در پی حمله جمهوری اسلامی به یکی از مراکز حیاتی این کشور، چهار نفر شامل یک شهروند کویتی، دو شهروند ایتالیایی و یک شهروند پاکستانی مجروح شدند.
+بر اساس بیانیه ارتش کویت که در شبکه اجتماعی ایکس منتشر شد، نیروهای مسلح این کشور شماری از پهپادهای متخاصم را در حریم هوایی کویت شناسایی و با آن‌ها مقابله کردند.
+@
+VahidOOnLine
+پست‌های اکانت ریاست ستاد کل ارتش کویت
+ساعت ۱۶:۳۱، ترجمه ماشین:
+بیانیه شماره ۸۳
+سرهنگ ستاد سعود عبدالعزیز العطوان، سخنگوی رسمی وزارت دفاع کویت، اعلام کرد که نیروهای مسلح امروز تعدادی پهپاد متخاصم را در حریم هوایی کویت شناسایی کرده و با آنها مقابله کرده‌اند.
+در جریان تجاوز جنایتکارانه ایران، یکی از مراکز حیاتی هدف قرار گرفت که سقوط ترکش‌ها در پی آن به مجروح شدن چهار نفر، شامل یک شهروند کویتی، دو شهروند ایتالیایی و یک شهروند پاکستانی، منجر شد. مجروحان برای دریافت خدمات درمانی لازم به یکی از بیمارستان‌ها منتقل شدند. این حمله همچنین خسارات مادی به همراه داشت.
+نیروهای مسلح تأکید می‌کنند که در چارچوب آمادگی مستمر و هوشیاری دائمی، به انجام مأموریت‌ها و وظایف خود با کارایی بالا ادامه می‌دهند و با هماهنگی نهادهای ذی‌صلاح، تمامی اقدامات لازم را برای حفاظت از حاکمیت کشور، حفظ امنیت و ثبات آن و تضمین سلامت شهروندان و ساکنان اتخاذ می‌کنند.
+KuwaitArmyGHQ
+ساعت ۱۷:۳۹:
+بیانیه شماره ۸۴: در تکمیل بیانیه شماره ۸۳ درباره هدف قرار گرفتن یکی از مراکز حیاتی کشور در پی تجاوز جنایتکارانه ایران، دو مجروح ایتالیایی بر اثر شدت جراحات وارده جان باختند.
+وزارت دفاع مراتب تسلیت و همدردی صمیمانه خود را به خانواده‌های دو جان‌باخته ابراز می‌کند و برای دیگر مجروحان آرزوی بهبودی سریع دارد.
+KuwaitArmyGHQ
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79261)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-26 09:55:30
+
+<img src="https://cdn4.telesco.pe/file/hwD4pwM4hrCpfyAr4rPMRy6nZUraJ031FNan3oo2soZwyiKEeRnJS9ZSMTsCwaWB16FkjFjMmJPgHS4kLzcy55kmZTzV_8jZ5fuEIR44LlWbvFBbkhyNlryw6cLvxGi-PZlHN6Z5nqOHH3yidUinE_wuzeBSINQb_eIWxAa5WMijLK4Nhpw4mF8a-dzcpvWIHTZ1uDjQMKj9BPTKxmjiQVAjzmi7Ast5fcjnmIWmebEg6QDvp89xgRqQbGo28NOp71TRksC4rHuEdGzJVSV_kJLkZut5JObvB0WFWzTcIgwG08B4DPMDZdT57y55_rpYCF2elzp6wI5b1So2ARQrlQ.jpg" width="400"><br>
+
+پایگاه خبری فرارو اعلام کرد، در آغاز معاملات روز پنجشنبه ۵ آذر، نرخ دلار به ۲۹۲ هزار و ۸۹۰ رسید.
+قیمت دلار آمریکا در بازار آزاد تهران روز چهارشنبه چهارم آذر ۱۴۰۵ رکورد تازه‌ای ثبت کرد و در بازار فردوسی تهران، به ۲۹۰ هزار و ۵۰۰ تومان رسید.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79260)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-26 09:55:17
+
+
+
+در جریان دیدار تیم‌های فوتبال گل‌گهر سیرجان و الجزیره امارات در رقابت‌های لیگ قهرمانان آسیا سطح دوم که روز چهارشنبه چهارم آذر در ابوظبی برگزار شد، حنا حطاب، داور سوری مسابقه، پس از تصمیم‌های بحث‌برانگیز و اعتراض اعضای دو تیم به «حالت غیرعادی» او، بین دو نیمه جای خود را به داور چهارم داد.
+به گزارش ورزش سه، در دقیقه ۳۲ مسابقه، پس از خطای یکی از بازیکنان الجزیره روی علی‌اصغر عاشوری در میانهٔ زمین، داور به‌اشتباه به ارسین دستان‌اوغلو، دروازه‌بان الجزیره، کارت زرد نشان داد. این تصمیم با تعجب و اعتراض بازیکنان و اعضای کادر فنی دو تیم همراه شد و داور پس از حدود چهار دقیقه وقفه در مسابقه و مشورت با داور چهارم، کارت زرد را پس گرفت.
+به گزارش یاهو، در تصاویر منتشرشده از این دیدار،
+مهدی رحمتی، سرمربی گل‌گهر، در واکنش به عملکرد داور خطاب به اعضای نیمکت تیمش فریاد می‌زند: «او مست است.»
+حیدر افسری، مدیر تیم گل‌گهر، نیز پس از مسابقه اعلام کرد که داور در حالت عادی قرار نداشت و حتی بازیکنان الجزیره نیز به این موضوع اشاره کرده بودند. به گفته او، باشگاه گل‌گهر موضوع را به مسئولان مسابقه اطلاع داد و هشدار داد که در صورت تعویض نشدن داور، بازیکنان این تیم برای ادامه مسابقه به زمین بازنخواهند گشت.
+کنفدراسیون فوتبال آسیا تاکنون دربارهٔ علت تعویض داور توضیح رسمی نداده و ادعای مصرف الکل نیز تایید نشده است.
+این دیدار در نهایت با تک‌گل اندرسون تالیسکا به سود الجزیره پایان یافت و گل‌گهر از ادامه رقابت‌ها بازماند.
+@
+VahidOOnLine
+داور در واکنش به اتهام مستی: اقدام قانونی می‌کنم
+حنا حطاب، داور سوری دیدار گل‌گهر و الجزیره در لیگ قهرمانان ۲ آسیا، روز پنجشنبه پنجم آذر در صفحهٔ شخصی خود در فیس‌بوک نوشت حق دارد علیه هر کسی که به او توهین کرده و آبرویش را برده است، اقدام‌های حقوقی و قضایی انجام دهد.
+حطاب در پست خود نوشت منتظر اطلاعیه و موضع رسمی فدراسیون فوتبال سوریه می‌ماند و پیش از انتشار بیانیه‌ای رسمی با مسئولان خود در داخل و خارج هم‌فکری می‌کند. او تأکید کرد زندگی خانوادگی و شخصی او به دیگران مربوط نیست و حق دارد علیه هر کسی، فرد باشد یا نهاد یا مجموعه‌ای ورزشی، که به او توهین کرده است، اقدام حقوقی و قضایی انجام دهد.
+به نوشتهٔ ایسنا، محمد کزاز، کمک‌داور این مسابقه، با انتشار تصویری از حطاب پیش از شروع بازی، افت فشار خون را دلیل رفتار عجیب او دانسته است. عیسی سعید، خبرنگار عمانی، هم در حمایت از داور سوری گفت حطاب در برزیل زندگی می‌کند و برای قضاوت این مسابقه ۱۵ ساعت پرواز داشته و این امر به گفتهٔ او باعث افت فشار و قند خون و برهم‌خوردن تمرکز داور شده است. این ادعاها از منبع مستقل تأیید نشده است.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79259)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-25 19:16:10
@@ -50,7 +145,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-25 18:21:42
 
-<img src="https://cdn1.telesco.pe/file/chLqe4YTjupjQJTgDSGGkK-EwFWuJFrtCktp7AgOhjopSMw4-uAXmypmIeeflncpZA5Rj5Qu3hQbHJYZKiXMUWtj-DzfHSM2jguEUQ3jXs9HMfUe2myUgkOGe0KLy8YkF8NKNkZ3FcxhIFIlHZ8gBqeBdmkOSQgYcwBmUsDJPu0qBNTQLGdoCFEmUizdrb6bXCu6KC2fYGqM3LC46rKcH_v5JeeXwlsg2oF4iqBOqLLpeD8UDhNNnSU2WKuKvJl1hKyLVvAwF7YhOxWpdEvIRlb9H01V9tlgSuReKSoIWCXiikVIF_6_iQCgKCX6Bp_L3mvrlVqD4JrSRuEAh3cNrg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/OMma9RmyP4eyKT4pBalQ-gzKaY8Ou3Xr-4Uz8xx5htpo3ePwaM-zdQDSqnVbcTGgSGr3axngFYS090iGsyFuLXkN76Vz2cy--vwIB0lxyqVTF3RKpaIgF6EXObMxtOZTrjJLzw4mbxQXg0Q7y-dgxTlWoYGLINzorUAbTMCtwHdvHR6rof3_mIbnb-6TuPcXW_nSRB5ZswXZn_GmvUGOcsa-XKUcOTTnhqsiSE_7AAm8g5iQzkB0aB88QAxS76vTxkFthQmtTdvfgbmb6eHz1DLZOonPRM45mjtBzH8AIVbdqLDwibgiVYfVtwMwI-UUutAD68OWcAXTuhCov1icew.jpg" width="400"><br>
 
 دلار آزاد تهران از ۲۹۰ هزار تومان گذشت. بازار چهارشنبه ۴ آذر، ساعت ۱۵:۵۹ به وقت تهران، نرخ فروش دلار را ۲۹۰٬۵۰۰ تومان ثبت کرد.
 هم‌زمان، خبرگزاری فارس مدعی شد محموله بزرگی از اسکناس دلار از یکی از کشورهای همسایه وارد ایران شده است.
@@ -70,7 +165,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-25 18:12:45
 
-<img src="https://cdn1.telesco.pe/file/JArQgpz6c5s4YhlnBMA8VVaEAFmmAZUakGr61UXtVjPjataResapIKPGf7geiBQFQusnuNnFlRtX2TW8db_22u-DacdwFfWd6Iv4ydaXHDOZnMh8ujsMlufzR7rLraDip-M160ELh2vDSJ0tmqUqq4tHOoex1xEfASwhpUMFumAvbmOf8ey5zZWHzjNNx4HXmVnTJmldzJXA4hnFzilc6MR2Bm9LEqYNVN5R1PJ1WQxsN4Tvd0lOcagaFA6rJw1a-_AQtJd8PMXROq9Rly9GRuT92gMkzqzyz_49sml8Gz8W5acMW7rWqaOSShuP-_VOf4zlgbX53011JtQN-POdyA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/XpDOsQ3ONYDF0G5kkY9donZRazAz7pWJdp5j6rduN5F2ZHZv2M7SjMJNKTGUN8oSzIugOtEZOsa_GTsY2MbImGKreuakSkVM-A6vu289BBsLgv2ZaRJIq9vHR_XwXX8BN33-Ql0VtBB1mTjx-WgYob6fZsD7n0qsTr5MWTv8d96DNtvtknjyOpEIfYXWeo8wMQSSn_iS-d0iaLn24j5c2kjrNSBZ3uV5EASM4tXbYI3sq_-761o86VByngF57DWZccLgP691zlGL7kO3k-JAfjMySw9PCgMwJJnffPVKhjof1wsBPbHo0KHq78QmSOFaXwECJj3YvfhKeI3tuwsYDA.jpg" width="400"><br>
 
 زهره لاجوردی، نماینده تهران در مجلس شورای اسلامی، درباره معطلی ۱۴ساله لایحه حمایت از زنان، به خبرگزاری تسنیم گفت: «درباره به‌کارگیری واژه خشونت در عنوان لایحه حفظ کرامت و حمایت از زنان و خانواده در برابر خشونت، دلایل و مستندات روشنی داشتیم. تعریفی که ما از خشونت ارائه می‌دهیم، با نگاه غرب به این مقوله کاملا متفاوت است.»
 لاجوردی افزود: «متاسفانه اصرار زیادی بر موضوع خشونت شد و باید توضیح دهند که چرا این‌قدر بر استفاده از واژه خشونت پافشاری می‌کنند؛ آیا قرار است مطابق اسناد ۲۰۳۰ عمل کنیم؟»
@@ -97,7 +192,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-25 18:10:40
 
-<img src="https://cdn4.telesco.pe/file/J6_iyAiKxxH4LEC_is30LCbdQoMBlcbvIfgnv2-iq6-mJDOlwPRCGcgzy4fxizG4OeEt9wsuCd3efPFrtFzPog6LjTyeEB9jEkHn5DzaxOlbG3txqLIuixBFulVuXJDd6kJ17PA0SvssRtHi5r-q4gZFMjTXnhNZUO0ckL_vM5EIsDY7UOSc8g2qaB88tI9dASjMIIRUp4WeaWPFeVjupqGbbjjTCDoE4g6Z0JTAkyGQKEwDoFcbcrVKW28aRVTaQvZgY8McHW2KQtYbJXaclz_q5FTy4ESrAw2dSWYW0O9S_pujgcXnD-WSjfh6UoKmv36_OxcuP5E3fFy4SsRpDA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/lOvwbYcOB_QKXlxq3Jrmz0Kun_2casV-TNJ6G1CkobeLv1m17HO3nYzLbHBmbv-PNEB4eJItqVMZW93YiCQHEFB7FLRYxyZm01OdVczn1Oubfp0HtzTWUUwwqTgoPynhipT7trCg2DOSTkPNzGQMq902AIueMUo7DOO4L2ofhQYgbwwpDCMV7O_Z6-ebIyAqgJXbhyk1UX4cKhhKakES8PO9XRgX6pZ_4uEJwr1og6ZO3LOpR_9EsrMQgS9ycn0O7TeMxg5nNU2Cf4-2FXulWtKVUxZYIHR9spGr9K349pznj8bwUYbb4Wv32EUcUB6mQuQVD7d2-1vaTrVf2qzlXQ.jpg" width="400"><br>
 
 «زهرا جدیدی»، ۱۵ ساله، روز سه‌شنبه ۳ آذر ۱۴۰۵ در پارک ساحلی میاندوآب به قتل رسید.
 «یوسف اشرفی»، فرمانده انتظامی میاندوآب، گفت بررسی‌های اولیه پلیس نشان می‌دهد نامزد ۲۱ ساله این دختر او را به قتل رسانده و پس از آن در نزدیکی محل حادثه به زندگی خود پایان داده است.
@@ -116,7 +211,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-25 18:09:36
 
-<img src="https://cdn1.telesco.pe/file/UqKY_xklavnKK5-lEI8PsXSYZiL595A7F3yQ_Bt0Qa8xzqZnM75Jstp4I5M3XHpGbIjLYeYLeMVA3lxK2NvF8yD_yjWoFe0EYB5JPySH-n_r4pg6487JGkD-dREDwRzx_P-Iqjiua9FZZeQesPz_Y6xXcWkmtNp-UHpCxAnOAOXwhfsRaflY6WoNoTVO-4g5_QSI8dN4kdYkTQyMZWZweFmRuVBIdi-lETPU49h7sQ4v0NktKRroxLGuI_xkdRk6XiJRWI-k3uKZV97WTkzm3B28o4_z4vpJqRE35AWp-9maJ2vv0ywGU8FsCF1USaanRMtAZekZiF3V1dG3bgKNBQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/E4KYlcx7A9dHKI1oirwO7qZdg4sh5gyvz_49phghVYTYVucXXYS__sc10e0YvO8oVp1QaTB-cvhlP5ef9NyHYWWelkPOlVVtyBYWdApeAGpWYajaL-rNqT7muX9k7ggthXNZOyhEMXYTFGHPGrD-idVKNrQ7XcgB4iYgIEuaphrprNd12kQFj6gNgIfwRLZ-x-7H_dYmmY49_bQ5VUgBJLiDP2uBoFodRBBn-V-xpDOXFUsUvHMPv-feBmLSDSiniqbUGOby0vI_NIP0TJdwP3_45hAIaQGFb1DB-jehFW0qYHZAL1vqJzPVbxZV4X_z0uUeRUumVZTEOH2eybmbeQ.jpg" width="400"><br>
 
 تصویر مزار مجید نیک‌اندیش از بازداشت‌شدگان دی‌ماه که حکم اعدام او هشتم مهرماه ۱۴۰۵ در مشهد اجرا شد.
 بر اساس اطلاعات رسیده، پیکر نیک‌اندیش به خانواده‌اش تحویل داده نشد و به دستور دادستان مشهد، در بلوک ۲۵، ردیف ۲۱، قبر شماره ۱۲۱ آرامستان بهشت رضای مشهد به خاک سپرده شد.
@@ -268,37 +363,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79242)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-24 21:20:51
-
-<img src="https://cdn1.telesco.pe/file/mzkgfUvubrrH6IWYCWqNIZJIUdvt2h-ZVbVWTYMX4gzG-28ti-RQbPjulvjWYYWdVGorVht_-FfuNa91BKGL-2swwROPS8-AX2mr7xjeDXUZDeESrmy8f_wwwfjIitEwx04ClYfn7jg-4-qwvDATNe0SjAgamPj1lb7huQDBbc_RxL3G8KKemPPQgCVMJQ1B3WkySSrQF-S7vnx68Ek3Dr31S6EEiAUDtTkeMv12ZuFPz3GyeYG3080sjEBv1a1rRyjdJ5-NkowWNteFsqQDZ6faf6_Ps50Y7xttSjpxCOeE23LsCCNnnvS6d2i3cQy_PqjIHHyULZgFRaeYTbGJZA.jpg" width="400"><br>
-
-⚠️
-صبح فردا
-⚠️
-امتداد سه‌شنبه سوم آذر اعلام کرد که صبح این روز به وکلای میلاد آرمون و نوید نجاران، از متهمان پرونده موسوم به اکباتان، ابلاغ شده است که حکم اعدام موکلانشان چهارشنبه چهارم آذر اجرا می‌شود.  شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی صلواتی، این…
-
-[View Post](https://t.me/VahidOnline/79240)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-24 21:18:51
-
-<img src="https://cdn1.telesco.pe/file/pOdukKm-UtL0af60s-2fOrgmsuJYSPYU3cbwZsZ69o_fcRPMXUEa0D1DZT9YIPmwxL8mY88hR_Ouz9UmEfSUZUihpIKHjyH_HbSRM1eHdcMMXZ1wuLtxVqn615rCHD8OPk460f_N5kNrH-2KW1g4vMvbjV4tzSoO3SnqrrPAPG6_EbmfedNurG2c1MV2PwTCIxBm24AqaBdqOQ9DTj5q-lbBy6q9Egm_JkJVzqykEfhfivMnY_BfInm3g1ORLl9owD5tbyBqYhdfMhk31HV7654Uy2-NACgyOyukHQ4IwPCIJP9a3cnerpvnvHsi-ZZv-6EfWYDQ48jeJIzAUE7YCw.jpg" width="400"><br>
-
-جنسن هوانگ، ۱۱ روز پس از اعلام کناره‌گیری در پی افشای روابط خارج از ازدواج، با حمایت و مداخله دونالد ترامپ به مدیرعاملی انویدیا بازگشت؛ بازگشتی که با جهش حدود ۳۱٫۵ درصدی سهام شرکت همراه شد. با این حال، تحقیقات داخلی و بررسی‌های کنگره درباره نگرانی‌های امنیتی ادامه دارد؛ از جمله رابطه گزارش‌شده او با زنی مظنون به ارتباط با دستگاه اطلاعاتی چین.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79230)
 
 ---
 
