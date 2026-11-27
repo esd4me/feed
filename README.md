@@ -3,8 +3,43 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-26 20:56:24 </h5>
+<h5> 🟢 Updated at: 2026-11-27 04:48:40 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-27 04:03:22
+
+<img src="https://cdn4.telesco.pe/file/p4xCl3eaOpvPB8yydBzTyKDCkKGWcL56lm0SXh1Xx2jiFthRk-aSVLA35sEzUADZI48BP6yh4Gq9-m_sgXPUsMJ5FM8CoKHKb9rZp1KEM-Bc5SDC1tqymNTwykY1RtAVcwC2zqh_TUg4btyo9-GB_cUJFXS_nHMS_oyi2rA-LShVbJhj5KYtnGxUnoq1KDJwytUeST8-nMOj2z1prhTIzaCntSsfvjRDFZhF5jeK0DGiol1Gzgfht1hmY7gYe4Pvh9Qx_IAhwHGdyv3bHEpg_MSwFFPLDVlipV9jpc6_Dj0XGD6CIspQdMXtHkQ5RaPbDnF9uGg5s30glR4Iueg32w.jpg" width="400"><br>
+
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز پنجشنبه پنجم آذر در گفت‌وگو با نیروهای نظامی آمریکا به مناسبت روز شکرگزاری، با اشاره به تلاش‌ها برای دستیابی به توافق با ایران گفت: «ما همهٔ فرصت‌ها را در اختیار آن‌ها گذاشته‌ایم تا به توافق برسند و جان افراد بسیاری را نجات دهند، اما مطمئن نیستم که از این فرصت استفاده کنند.»
+رئیس‌جمهوری آمریکا همچنین با تمجید از عملکرد نیروهای نظامی این کشور در تنگهٔ هرمز، محاصرهٔ دریایی را بزرگ‌ترین محاصرهٔ دریایی تاریخ توصیف کرد و گفت که نیروهای آمریکایی برای جلوگیری از اصابت موشک‌ها و پهپادهای دشمن به کشتی‌های تجاری در این تنگه، ۱۵۰ موشک شلیک کرده‌اند.
+ترامپ همچنین اعلام کرد که نیروهای پدافند هوایی آمریکا در جریان عملیات «خشم حماسی» ۵۶۰ موشک و پهپاد دشمن را منهدم کرده‌اند و میزان موفقیت آن‌ها در سرنگونی موشک‌ها نزدیک به ۱۰۰ درصد بوده است. او در بخش دیگری از سخنانش گفت: «پیروزی در دسترس است و تقریبا هر زمان که بخواهم اتفاق خواهد افتاد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79264)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-26 22:04:54
+
+<img src="https://cdn4.telesco.pe/file/lhUGeVaG4PCv4PHOEly1Gz9YhCbBSxjWdW_FEE16Q_U2h1SkD_3lDywQ8joDqtrJeDMHUoIZRkg7G_Ywv-2L_39pgwavw3iMwAn7CFx4v5El7wxn6JXEbSslHkKS5YG6JeNBh_bIrTziSl2dzUG17AWkwvOgso6Ac_quTZ5cTdRlwODblXg9CUFuSsFXIFUPrCEOAbqERSI8_mXj73EF1szh6ayR6hTZq31t7IqngWwNZcaQTT7rYP_Mqeeb48u7UKnwKV2HBuXDjVjjkvslUyQ1fj4QxvPetwrLQXzXjRbw9z8prpKyj0mvUfsDfROfaGzu4KF8q9HdiL7lt6vopA.jpg" width="400"><br>
+
+«عباس عراقچی»، وزیر خارجه جمهوری اسلامی، پنج‌شنبه پنجم آذر۱۴۰۵ در گفت‌وگویی تلفنی با «جراح جابر الاحمد الصباح»، وزیر خارجه کویت، دخالت جمهوری اسلامی در حمله پهپادی به این کشور را رد کرد.
+او همچنین از آمادگی جمهوری اسلامی برای انجام تحقیقات مشترک با کویت خبر داد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79263)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-26 20:23:46
@@ -37,7 +72,7 @@ VahidOOnLine
 بر اساس بیانیه ارتش کویت که در شبکه اجتماعی ایکس منتشر شد، نیروهای مسلح این کشور شماری از پهپادهای متخاصم را در حریم هوایی کویت شناسایی و با آن‌ها مقابله کردند.
 @
 VahidOOnLine
-پست‌های اکانت ریاست ستاد کل ارتش کویت
+پست‌های اکانت "ریاست ستاد کل ارتش کویت"
 ساعت ۱۶:۳۱، ترجمه ماشین:
 بیانیه شماره ۸۳
 سرهنگ ستاد سعود عبدالعزیز العطوان، سخنگوی رسمی وزارت دفاع کویت، اعلام کرد که نیروهای مسلح امروز تعدادی پهپاد متخاصم را در حریم هوایی کویت شناسایی کرده و با آنها مقابله کرده‌اند.
@@ -59,7 +94,7 @@ KuwaitArmyGHQ
 
 ###### 🔵 Post time: 2026-11-26 09:55:30
 
-<img src="https://cdn4.telesco.pe/file/hwD4pwM4hrCpfyAr4rPMRy6nZUraJ031FNan3oo2soZwyiKEeRnJS9ZSMTsCwaWB16FkjFjMmJPgHS4kLzcy55kmZTzV_8jZ5fuEIR44LlWbvFBbkhyNlryw6cLvxGi-PZlHN6Z5nqOHH3yidUinE_wuzeBSINQb_eIWxAa5WMijLK4Nhpw4mF8a-dzcpvWIHTZ1uDjQMKj9BPTKxmjiQVAjzmi7Ast5fcjnmIWmebEg6QDvp89xgRqQbGo28NOp71TRksC4rHuEdGzJVSV_kJLkZut5JObvB0WFWzTcIgwG08B4DPMDZdT57y55_rpYCF2elzp6wI5b1So2ARQrlQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/bQ0zN1uQvC1IhEOqWQb4yfZuEoR59f2cXHgcP9eRAeLfAWbw3P5ubnjDEqBF6CKU26Pjj2OGR3f8rjuI5AjGTIzzFBLIysHaWiVUSnDqX2o9UXaVtFG63O7wbzLI5mlxfThCS1GY8nZy-bJnlyYE3T_rJLKe72q5gMcqE_pZldBBxXomEQuH8efybcfhQxzTVdqvkQMk_lq9agd8wkDwT7yAUBE6OFI1vBjUXBeWKhRB9fqznTZnLFDmhtz58EudUAntTGxoUwYnmmQ0Cr0eQ-8oW9-BZEeVObjD-LBk8LMyPZq5CW6exvXZDOv5PXeU0hSzVwgIU6bIAsM73WL-zw.jpg" width="400"><br>
 
 پایگاه خبری فرارو اعلام کرد، در آغاز معاملات روز پنجشنبه ۵ آذر، نرخ دلار به ۲۹۲ هزار و ۸۹۰ رسید.
 قیمت دلار آمریکا در بازار آزاد تهران روز چهارشنبه چهارم آذر ۱۴۰۵ رکورد تازه‌ای ثبت کرد و در بازار فردوسی تهران، به ۲۹۰ هزار و ۵۰۰ تومان رسید.
@@ -281,7 +316,7 @@ nypost
 
 ###### 🔵 Post time: 2026-11-25 01:56:20
 
-<img src="https://cdn1.telesco.pe/file/gqSvLgEl_s82rS7vkZ9s50QNdtoJfwVQCsXsFVIg0D7Re261yKAy96Xl1jIgY2624l_b_hha_4yJk-arTEsm5Qk_nK14wyia7g-adoMFmxpWlnofIfujL4DKA5XeTgyLzAsLCrDrfIbVjDMfi2Cmx1pQX1XL1GMJYsudr2suyUMcq7DG3arl31uxmTpm-9tElKORThD2D27DQTnSzNVMsq5YtwUTJm-HQnSuxCaMKuDyNqjAnhOaT7StfEia3oJz2W4eYzXigJzVp1gDSq4t1D__K8tr4mcs2VUZMKEEj7jOVxk58aAdhsVAZc6pCNjwns6Kpc-2yS0caUG7Jw6LCg.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/ccjb46Yblp1_mTxNc0RsvADJlOdCeWN5LwKs0Nu84mvBRDWScr0Ij7IZM9ajKPLmhJaBazDsYDIH_z3oaj-_FAuubm_Jpv3PDxeKdUE84OzOEDnc67ZyPyTQn803tRvj0dwF7qpUPiEiUmUfe7vQoU0phme00rz7tq5fbRMBJrU0Ct_XR0t22Vcsg-zx-lHMa_FcvwZ44b5zImdoJWkxBK3huGA2tLEuK9AF3syy6AiBotJyxHjaCryJzc1xbg0omFAne0ZxHqP6kiG8V798sMSna41O40wfURyUcz7OCpEto8Q_mbUKnlBphw4EqTKIcZB1FVnjALSymVs1Cq4M1w.jpg" width="400"><br>
 
 'توقف اجرای حکم اعدام میلاد آرمون و نوید نجاران'
 Mhaghasi1
@@ -320,7 +355,7 @@ pinned a photo
 
 ###### 🔵 Post time: 2026-11-24 22:51:42
 
-<img src="https://cdn1.telesco.pe/file/opu40W7Da9gJwZLHrJP0jYbr-xswTYG76m-tlwbteXpZNn2DA3lkNKguuFh7THsXtf7eDgl1hMW7mCmSv2uq4wd3J7XgZ71GudoKD45K1PU36W0LzBNXr27iG0GKQ8pFHsqj7C3F0tK7C61tVp4yCKV40iXbEKAqZS-4BU2MZcwSyNDAhHL6-2PqkqXREJwxPFBQ4IPOFZDRWcMiiEaJYN9gOgRPg9H59gF8-ddlfQ5oBq_L1YQtrjsekhhmx-6UinPzklGUHj5hvL7GmAgE6L0bapueyz2cfh7crYgcSXi5-C3i8EmhsmDLMRQLItUVboseuWPHLylZQJAecOp_vQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/D4IYf-9MjuxNwZUGScNHeQYN11xbAJYMi2w5Zc7cm8IuL7WFewPDFlm5yDuwmPCMsKEyqHmEyt4ZhQvwLJthl3UGyWDvoDCbKjkpT1cnj-pAQhrLkRJCF398xOlo7P6OyXoqrKYc9JYyOFIZ3OlVPkakxcnEVL0fe9pJD2O6-XdSmebtPzMq1i1X6ZTuZiZy7PLpddeXcHxa47pawY2-MBN-YsfNfkWrRcIHCCn2ujpcqggM79xzsr5ON6Usds9SZSJzTn98pIJSo-gTY2JXeOU4VAbhBAZvh7B3D-b86E9NaDWrsNO-JkLoEMgJNShJdg_iuyMqmrCMIk_B6GHinw.jpg" width="400"><br>
 
 محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روز سه‌شنبه سوم آذر گفت جمهوری اسلامی مصمم به شکستن محاصره دریایی است و به هرگونه حمله جدید با تمام قوا پاسخ خواهد داد.
 رضایی در پیامی به زبان انگلیسی در شبکه ایکس نوشت که طرح‌های دونالد ترامپ و تیم شکست‌خورده او برای محاصره ایران، به اندازه راهبرد جنگی شکست‌خورده‌شان «وهم‌آلود و بی‌نتیجه» است. او افزود ملت ایران، نیروهای مسلح و تمام ساختار حکومتی جمهوری اسلامی برای شکستن محاصره و پاسخ قاطع به هرگونه تجاوز جدید مصمم هستند.
@@ -334,35 +369,6 @@ VahidHeadline
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79244)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-24 22:44:47
-
-<img src="https://cdn1.telesco.pe/file/XcEq_Nt3u_QJ1M8DHeyTmq6PsigkzeR-jjHm-e8-Us2W64dltsTj0i9Nxd0_kmIOCmx6MePVljTpX6XjBaHFBdox1aQul1YnEk99PWwv1tGpPFLn_pKJQgemF1bt_D9do-ufbc6UGdB-UvN31VuPieH3AnhQiWMbcMKnBQFo-6bA4u9cqkZfPJfCZ67Qd_HZ27rP9GrqWQ7aJL5IYTU_XBhD-QlpNDK35UkJyl8XPbWlfQ65Bkr6Vy7ZNpEArrEB6x2E6IQObWTpkqzcQS4ROsc-sNytWaMeIwmVpOOS0yFl5JUlrtu5agmFbMGWHFcPBhPGTqjm8VghxX7LfAGwIw.jpg" width="400"><br>
-
-وزیر دفاع اسرائیل گفت ارتش اسرائیل و ستاد فرماندهی مرکزی آمریکا، سنتکام، برای انجام عملیات مشترک آماده‌اند و طرح‌های عملیاتی نیز تهیه شده است، اما تصمیم دربارۀ مشارکت آمریکا بر عهدۀ دونالد ترامپ خواهد بود.
-@
-VahidHeadline
-یسرائیل کاتس، وزیر دفاع اسرائیل، روز سوم آذر اعلام کرد که جمهوری اسلامی ایران از زمان کارزار نظامی اخیر، در حال تلاش برای توسعه و تولید تسلیحات شیمیایی بوده است.
-به گزارش آی۲۴، کاتس با بیان اینکه اسرائیل از مدتی پیش از این تحرکات آگاه بوده و اطلاعات مربوط به آن را با ایالات متحده به اشتراک گذاشته است، تأکید کرد: «نباید اجازه دهیم ایران ما را با سلاح‌های کشتار جمعی تهدید کند.»
-وزیر دفاع اسرائیل دستیابی احتمالی ایران به توانمندی تسلیحات شیمیایی را برای اسرائیل و سایر کشورهای منطقه «تغییردهنده بازی» توصیف کرد و گفت تهران می‌تواند از این ابزار برای بازدارندگی در برابر اسرائیل و همسایگانش، هم‌زمان با پیشبرد برنامه هسته‌ای خود، استفاده کند. او با تأکید بر ضرورت فوری جلوگیری از تولید این تسلیحات افزود که اگر اسرائیل ارزیابی می‌کرد بحرانی در حال شکل‌گیری است، دست به اقدام پیش‌دستانه می‌زد.
-کاتس همچنین اظهار داشت که ایران گام‌هایی را برای احیای برنامه هسته‌ای خود برداشته و ارزیابی‌های اخیر اسرائیل نشان می‌دهد که حملات بیشتر به تأسیسات هسته‌ای ایران می‌تواند این برنامه را برای دهه‌ها به عقب براند.
-@
-VahidOOnLine
-عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، با بازنشر گزارشی از خبرگزاری رویترز درباره بحران مالی «سازمان منع سلاح‌های شیمیایی» (OPCW)، ایالات متحده را به کارشکنی در مأموریت این نهاد بین‌المللی و «به خطر انداختن صلح و امنیت جهانی» متهم کرد.
-عراقچی در شبکه اجتماعی «ایکس» نوشت: «آمریکا چنان نگران تسلیحات شیمیایی است که دیده‌بان جهانی سلاح‌های شیمیایی را فلج می‌کند.»
-او با اشاره به احتمال تعلیق فعالیت‌ها و کاهش برنامه‌های حیاتی این سازمان افزود: «ایالات متحده با مانع‌تراشی در اجرای مأموریت این نهاد، عمداً صلح و امنیت جهانی را به خطر می‌اندازد. شرم‌آور است.»
-در گزارش رویترز که عراقچی بازنشر کرد، به نقل از مدیرکل جدید سازمان منع سلاح‌های شیمیایی و یک سند داخلی، آمده است که این نهاد به دلیل پرداخت نشدن سهم مالی ایالات متحده با بحران شدید بودجه روبه‌روست و ممکن است مجبور به تعلیق روند امحای مهمات ممنوعه در سوریه شود.
-عراقچی در این نوشته کنایه‌آمیز، به گزارش سی‌ان‌ان درباره احتمال استفاده تهران از بمب کثیف یا تسلیحات شیمیایی برای انجام حمله تروریستی نیز اشاره کرد.
-@
-VahidOOnLine
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79242)
 
 ---
 
