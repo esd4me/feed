@@ -3,8 +3,96 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-27 13:49:17 </h5>
+<h5> 🟢 Updated at: 2026-11-27 23:14:27 </h5>
 </div>
+
+
+###### 🔵 Post time: 2026-11-27 20:42:42
+
+
+
+سنتکام: موتورخانه یک کشتی که از بندرعباس راه افتاده بود تا محاصره را بشکند هدف قرار گرفت
+ترجمه ماشین:
+فرماندهی مرکزی آمریکا (سنتکام) روز ۲۶ نوامبر یک کشتی تجاری را در دریای عمان از کار انداخت، پس از آنکه خدمه این کشتی که از بندرعباس حرکت کرده بود، با وجود هشدارهای متعدد، تلاش کردند محاصره دریایی آمریکا را بشکنند.
+یک هواپیمای نظامی آمریکا مهمات هدایت‌شونده دقیقی شلیک کرد که به بخش انتهایی کشتی تجاری «پاسیفیک آرچر» با پرچم پالائو اصابت کرد. در نهایت، سامانه پیشران کشتی از کار افتاد و به خدمه غیرنظامی آن آسیبی نرسید.
+CENTCOM
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79269)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-27 19:54:06
+
+
+
+محمد مخبر، دستیار مجتبی خامنه‌ای، در گفت‌وگو با خبرنگاران درباره وضعیت تنگه هرمز و محاصره دریایی آمریکا گفت: «به صورت قطعی نه تنگه هرمز باز می‌شود و نه می‌گذاریم محاصره، بسته بماند.»
+دستیار رهبر جمهوری اسلامی در واکنش به این پرسش که این اتفاق از چه زمانی رخ خواهد داد، گفت: «همین الان دارد صورت می‌گیرد.»
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79268)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-27 19:50:19
+
+<img src="https://cdn1.telesco.pe/file/Ovo3OMQK6NHGb-bLWWbUuQE5HlWR3QhRSkb8qMlHyprcidoWfCZBMgUYX289n4fFh0QIhaHfpiXFKSfe-rSIAN8kg93P1eK3f_OBiRY5SGTlLkPIxg3ZOxtetzPPjdqtEWC0ugcEUlUiBnrUuuOQYefu_EOQvr3WNLJflx7yte1Fq2DWis8HDYI9auS6lcA7P-pKMIsDsmASFYXvWf-kq8CKJLnjz0uXiKqODBgopnW_m8S8tiG04xA1yCfgVjugH-06_zPXh_s0DkO6Z7XPs6DPExOt3eGCCcQGVcklSlP-JwqEEdC2gWDY_mn6vrKpUeo2yvMHWwoUVsSAUfix6g.jpg" width="400"><br>
+
+خبرگزاری صداوسیمای جمهوری اسلامی اعلام کرد در پی جان‌باختن دو دانش‌آموز پسر سیرجانی و افزایش نگرانی از شیوع بیماری‌های تنفسی در مدارس سیرجان، شنبه هفتم آذرماه، مدارس شهرستان سیرجان غیرحضوری شد.
+مجید اسفندیارپور، مدیر آموزش و پرورش سیرجان گفت که در برخی مدارس تعدادی از دانش‌آموزان دچار سرماخوردگی شدید یا آنفلوآنزای حاد شده که در منزل بستری و از آمدن به مدرسه منع شده‌اند.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79267)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-27 19:49:00
+
+<img src="https://cdn4.telesco.pe/file/XOR_93guiCNSpj8Z92DXbHr-Spu0TuCUT5Eer2xEnwaelI6wK3vR9eQeF29eED3kwov7ovhWwFCllaq2gHcAFLOSvQbPIZ_XYbrMPeSzpoykK2ifWSZ7V1KdupwUf1uXg6XXV7eAAuPjgYh3JRO8oJbFnAg123T1i71GbYGS5lF4Tk5lZHfpNP4LEWFHcGmC_9Qtf00dPtEEG2EMn3dScYEaVbz4Y4wHx7T0fcF8ugfDzEPyoH1zKUQPQh6ZVg7oEwQM5bTtGA6Hs7bhQfPN2yMTsu6zJ96dARWJac6Znbxj0tDhbirtyCb37DhPEzK7MdMZcLvKruhOsHtbabbUiA.jpg" width="400"><br>
+
+کانال تلگرامی خبرانه، متعلق به مهدی محمودیان، فعال مدنی بازداشتی، جمعه ششم آذر ویدیویی از فاطمه الوندی، مادر مهدی محمودیان، منتشر کرد که در آن می‌گوید ماموران هنگام بازداشت فرزندش با کشیدن کیسه‌ای پلاستیکی روی سر او و پیچاندن آن دور گردنش، تلاش کرده‌اند او را خفه کنند.
+به گفته او، محمودیان بر اثر ضربات واردشده به قفسه سینه بیهوش شده و پس از چهار تا پنج ساعت بستری در بیمارستان سجاد، دوباره به زندان منتقل شده است.
+فاطمه الوندی دلیل بازداشت فرزندش را
+خبررسانی
+درباره خطر اعدام میلاد آرمون و نوید نجاران، دو جوان محکوم به اعدام در پرونده اکباتان، و تلاش برای نجات جان آن‌ها از اعدام در روز چهارشنبه عنوان کرد.
+@
+VahidOOnLine
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79266)
+
+---
+
+
+
+###### 🔵 Post time: 2026-11-27 19:47:50
+
+
+
+در ایران، شمار قربانیان موج تازه مسمومیت‌های الکلی رو به افزایش است. دو روز پیش، وزارت بهداشت اعلام کرد که در نزدیک به یک ماه گذشته، بیش از ۵۴۰ نفر مسموم شده و دست‌کم ۲۳ نفر جان باخته‌اند، اما گزارشهای تازه‌تر مقام‌های محلی از افزایش شمار قربانیان حکایت دارد.
+@
+VahidHeadline
+📡
+@VahidOnline
+
+[View Post](https://t.me/VahidOnline/79265)
+
+---
+
 
 
 ###### 🔵 Post time: 2026-11-27 04:03:22
@@ -37,7 +125,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-26 22:04:54
 
-<img src="https://cdn4.telesco.pe/file/lhUGeVaG4PCv4PHOEly1Gz9YhCbBSxjWdW_FEE16Q_U2h1SkD_3lDywQ8joDqtrJeDMHUoIZRkg7G_Ywv-2L_39pgwavw3iMwAn7CFx4v5El7wxn6JXEbSslHkKS5YG6JeNBh_bIrTziSl2dzUG17AWkwvOgso6Ac_quTZ5cTdRlwODblXg9CUFuSsFXIFUPrCEOAbqERSI8_mXj73EF1szh6ayR6hTZq31t7IqngWwNZcaQTT7rYP_Mqeeb48u7UKnwKV2HBuXDjVjjkvslUyQ1fj4QxvPetwrLQXzXjRbw9z8prpKyj0mvUfsDfROfaGzu4KF8q9HdiL7lt6vopA.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/aRoa8WU_g79TzutS1_LxX3SR7RP9ycmwPeqKDPi1bJWtzOMLPUHtH8sSUOHuXYQVAzm_BM1NiZjG9___fYO4FDoQB9PeuOWYgkI4egy1zGKYrG0cby9uZ4cqcKwx4e-WBrEWvRLtxT3T0EfWFgIg5BgLusrYnAL2esbEFrds27NEw-OstucyKE3_PgqfHTrgZuyiaGFPvdqjATsL-PEYj1PHepTYSQsmHVBzlkDsAlGQVpbsvvBygr4WMrQ7WDe484si9mnN5mTBP3hB-cROPSHgBHAg_YbwJkDqDllWAH2oglAn2hw3jFCrOs6uIRIV4WSOGoaaxxME9Utj7-oCUg.jpg" width="400"><br>
 
 «عباس عراقچی»، وزیر خارجه جمهوری اسلامی، پنج‌شنبه پنجم آذر۱۴۰۵ در گفت‌وگویی تلفنی با «جراح جابر الاحمد الصباح»، وزیر خارجه کویت، دخالت جمهوری اسلامی در حمله پهپادی به این کشور را رد کرد.
 او همچنین از آمادگی جمهوری اسلامی برای انجام تحقیقات مشترک با کویت خبر داد.
@@ -54,7 +142,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-26 20:23:46
 
-<img src="https://cdn4.telesco.pe/file/gEbGHAE7AqAlONslC5uyUsXUjx7ce2VzVv8SB1QgUMrLpolsVa-0QKhGRTrPRHDb6x3kq0WcaRIJ3H4J2V-S3yBBYT0RnREiahnKz58jQ8cqLPRSo8HNPGODShGTshKKHwQu-vEi7Za0sNU9uTu03fiS1-eHxbVUtVEMvO01F65TFzkSHcz1ro8Ho-lratrV8ilFvhbIErXRx4lMrPCjugsijUAe31Q-qbZ3ZHB3ICxLgreV_tsODGJ0p4oCLzfzdAUrPVHZs1KdU5jKVNGJTyt5YB_lEevSbG68MyQ8L_z30SvilGgb6aM8ijHp4mU8gB0csmMplZOtoyXgALzM4g.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/H4lR5-eJZXyL5Mvfpxx7p-ec411rT3u_CJsiz-QEev1lmxrTtXKBhagWnjbZUNawOBB0Z0re0tXjJojI4Aa5yWxjRN6v_dpOP0tR-Teh3uhsRcr6o8Cm_2T1Ma25NelW70NrXnRADSlqzZQU_-hdX3x8QaoJg-EA8g-JzIzkDHc-4ybdpnx-m-iIKzOHpqXkrWXDGUqAz-6BKDkTvXmBldSvR8vuugKVqELpX18BiggZ_8NuBsvtHeUDW8nX3kqHSxjuRXmu7UPxCeYakPAaqG5TH6mBOYdXYMB3AseJL5Gqa64q1UOXdCj2iyifgac2aj2H2cs2VMbjmykCKJjnyA.jpg" width="400"><br>
 
 سردار ابوالفضل شکارچی، سخنگوی ارشد نیروهای مسلح جمهوری اسلامی، ادعاهای مطرح‌شده مبنی بر دست داشتن ایران در حمله پهپادی به کویت را «به‌شدت» تکذیب کرد.
 به گزارش خبرگزاری رسمی ایرنا، روز پنجشنبه پنجم آذر، شکارچی اعلام کرد که هیچ‌گونه عملیات نظامی یا تهاجمی از سوی نیروهای مسلح ایران در منطقه انجام نشده است.
@@ -73,7 +161,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-26 17:40:09
 
-<img src="https://cdn1.telesco.pe/file/mY9upTWWSHgtNh-ug0aNcbwXBbUCzeytMG32GOhxgnV-rFokPDt9z6rxHmK2VQx4XnnGF5TFkfVNjSzPcPjNeT0lKX53yA8nvyY--eYWWEWgS80CWIZjNtVDvJILa73VUQeDr3D-PlBCHyM-9ifztC880AojolW0FMhWJdUQRj1A_xy9fHDNeQPeTjesHOv4aoUEKhmzJ3EQfN7LY8Eyx7sn2kMeQBqoyOyvqmMIuSRSD6zhH0N1Zy7puCiytkJ_A5mCiitAyrv_PKDZnaxIZyjD0_ajLrRr_uFfed1pYyb1qlMuL3TkWZw_Id4jASESAASxY-4DWTGSTlWxDtrn6w.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LCf057z-2lZ8pgNNKITwUu66gZM_H28UaoORZ2GRXn7Mdn3muI1pfIP_NWNrtHxxsNOgUdDkcIC62B6_uJymElYYC0KMoTlqh3PNxErSIoIZh60FANzw_sReFLTOg48zJrUvsGVhYtGHy-HUSU3MtFVEsgVEzeZzUxp12QBZISrN2EKG4noOwxZay3K-XTxPUUeNnpQLKG4pQxpQ4U3U3Bf3sRBQw7ZRCJ9pbQSzfYt0nJxtznuSOnAmWDgKfle6lQtn6OsSdqR3JblmZL4nlJT08mB81zs6BoAP62thPJyU0cRC-wjWpV0Hmo9aUQXgY0m2zr6cq7tZbQmvxuYIZg.jpg" width="400"><br>
 
 خبرگزاری آنسا و روزنامه لارپوبلیکا، دو رسانه ایتالیایی، گزارش دادند که دو تکنسین ایتالیایی شرکت صنایع دفاعی راین‌متال پنج‌شنبه پنجم آذر بر اثر اصابت بقایای پهپادهای رهگیری‌شده جمهوری اسلامی به یکی از تاسیسات حیاتی کویت کشته شدند.
 @
@@ -190,7 +278,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-25 18:21:42
 
-<img src="https://cdn1.telesco.pe/file/OMma9RmyP4eyKT4pBalQ-gzKaY8Ou3Xr-4Uz8xx5htpo3ePwaM-zdQDSqnVbcTGgSGr3axngFYS090iGsyFuLXkN76Vz2cy--vwIB0lxyqVTF3RKpaIgF6EXObMxtOZTrjJLzw4mbxQXg0Q7y-dgxTlWoYGLINzorUAbTMCtwHdvHR6rof3_mIbnb-6TuPcXW_nSRB5ZswXZn_GmvUGOcsa-XKUcOTTnhqsiSE_7AAm8g5iQzkB0aB88QAxS76vTxkFthQmtTdvfgbmb6eHz1DLZOonPRM45mjtBzH8AIVbdqLDwibgiVYfVtwMwI-UUutAD68OWcAXTuhCov1icew.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/Za0aUDtBP-4aCXK7mOg1R8Wkhk0f1JRBW4wQo5riDZ2-w1IViEd-9hYEUVzrsVw6Kv8c4RBG3dcsvMT0sSEDg7PW60whsoF_XTffSh2iHqkFTO1LudAn9_1E1NLWUa8y70fI1G4M-16PyQ2zLefS1hSfDAkecKvJDii7pr8Pq0XIsXcSTko49cYM8RKHZOpayOtPTG44K2F37M17lgwcBs1ug9Q2j3gvB7xz6zrLPTXKLy1c7lqxC15L4gOU9TecyCWliTUxWUfCDXljyvJBiIy-k3RjyTMsW_Wdq7odYn1wTZlJkiVAQhlKRXhI0ekU8Sgt_stWERloe4Hf9bBwyQ.jpg" width="400"><br>
 
 دلار آزاد تهران از ۲۹۰ هزار تومان گذشت. بازار چهارشنبه ۴ آذر، ساعت ۱۵:۵۹ به وقت تهران، نرخ فروش دلار را ۲۹۰٬۵۰۰ تومان ثبت کرد.
 هم‌زمان، خبرگزاری فارس مدعی شد محموله بزرگی از اسکناس دلار از یکی از کشورهای همسایه وارد ایران شده است.
@@ -210,7 +298,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-25 18:12:45
 
-<img src="https://cdn1.telesco.pe/file/XpDOsQ3ONYDF0G5kkY9donZRazAz7pWJdp5j6rduN5F2ZHZv2M7SjMJNKTGUN8oSzIugOtEZOsa_GTsY2MbImGKreuakSkVM-A6vu289BBsLgv2ZaRJIq9vHR_XwXX8BN33-Ql0VtBB1mTjx-WgYob6fZsD7n0qsTr5MWTv8d96DNtvtknjyOpEIfYXWeo8wMQSSn_iS-d0iaLn24j5c2kjrNSBZ3uV5EASM4tXbYI3sq_-761o86VByngF57DWZccLgP691zlGL7kO3k-JAfjMySw9PCgMwJJnffPVKhjof1wsBPbHo0KHq78QmSOFaXwECJj3YvfhKeI3tuwsYDA.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/LVqS6cetMk8A4G7-ZfdFBRzMYnUoR1VFVHsqihQnISXVSKcesrE9_80sNw5qols21vxSwZRHjWVIOpKfrJaSgYcwxnUFPMfIZsgYv7anxHxSjNbvTQRIVXUHzsOr7_7Z-PtqMier9pZqryjww_hPt9SkOCSKfghllx4uf_YlOubwLV-Gwf_kwj7KdG5jm-fOhlxRjtjYBz2Q_cvzS-zL73gpgP_6a3OTxMAxCqBiktND0GXiAtsnSc42aZv-ecLCPho1DqddYKrwefPjAPAb6f_lndjJqCRjJIOdScI4oTej8ATai7GemhHUqnrDDgHpB4m9PeFV_GgHpFvjHn4wkw.jpg" width="400"><br>
 
 زهره لاجوردی، نماینده تهران در مجلس شورای اسلامی، درباره معطلی ۱۴ساله لایحه حمایت از زنان، به خبرگزاری تسنیم گفت: «درباره به‌کارگیری واژه خشونت در عنوان لایحه حفظ کرامت و حمایت از زنان و خانواده در برابر خشونت، دلایل و مستندات روشنی داشتیم. تعریفی که ما از خشونت ارائه می‌دهیم، با نگاه غرب به این مقوله کاملا متفاوت است.»
 لاجوردی افزود: «متاسفانه اصرار زیادی بر موضوع خشونت شد و باید توضیح دهند که چرا این‌قدر بر استفاده از واژه خشونت پافشاری می‌کنند؛ آیا قرار است مطابق اسناد ۲۰۳۰ عمل کنیم؟»
@@ -237,7 +325,7 @@ VahidOOnLine
 
 ###### 🔵 Post time: 2026-11-25 18:10:40
 
-<img src="https://cdn4.telesco.pe/file/lOvwbYcOB_QKXlxq3Jrmz0Kun_2casV-TNJ6G1CkobeLv1m17HO3nYzLbHBmbv-PNEB4eJItqVMZW93YiCQHEFB7FLRYxyZm01OdVczn1Oubfp0HtzTWUUwwqTgoPynhipT7trCg2DOSTkPNzGQMq902AIueMUo7DOO4L2ofhQYgbwwpDCMV7O_Z6-ebIyAqgJXbhyk1UX4cKhhKakES8PO9XRgX6pZ_4uEJwr1og6ZO3LOpR_9EsrMQgS9ycn0O7TeMxg5nNU2Cf4-2FXulWtKVUxZYIHR9spGr9K349pznj8bwUYbb4Wv32EUcUB6mQuQVD7d2-1vaTrVf2qzlXQ.jpg" width="400"><br>
+<img src="https://cdn4.telesco.pe/file/VghQDEM84ijKAIYBm7G-_9J449haiRfPsCVGwQs65Nz5QhEpftHwgIP2dbg5x0dAkv4UByqqoN5kuApKJms3prfYkjVzvQPc1Yt4wxe8D73uQ2MM9tSAgAl0DV2JjuYXTbuh6rU6IDZJFLlZG4eRuB-x3Y2cHTU-ecfeIG12H6dKdbl7nkUYUze1yZ97SQHZDYREK_AZ8fppHt5EpR-EMG7SZWDki7fWNfL3MRQdvlYAVZ3af7fH0eGiQD0VSi8w2-WmHP9mfuimJFbudB6Eb7zMzZ3L69NuHVDteUETgHI08F0XJfEzWpMtayHmOK4P9mVyIm4gfLZsfkc_4eYrPQ.jpg" width="400"><br>
 
 «زهرا جدیدی»، ۱۵ ساله، روز سه‌شنبه ۳ آذر ۱۴۰۵ در پارک ساحلی میاندوآب به قتل رسید.
 «یوسف اشرفی»، فرمانده انتظامی میاندوآب، گفت بررسی‌های اولیه پلیس نشان می‌دهد نامزد ۲۱ ساله این دختر او را به قتل رسانده و پس از آن در نزدیکی محل حادثه به زندگی خود پایان داده است.
@@ -256,7 +344,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-25 18:09:36
 
-<img src="https://cdn1.telesco.pe/file/E4KYlcx7A9dHKI1oirwO7qZdg4sh5gyvz_49phghVYTYVucXXYS__sc10e0YvO8oVp1QaTB-cvhlP5ef9NyHYWWelkPOlVVtyBYWdApeAGpWYajaL-rNqT7muX9k7ggthXNZOyhEMXYTFGHPGrD-idVKNrQ7XcgB4iYgIEuaphrprNd12kQFj6gNgIfwRLZ-x-7H_dYmmY49_bQ5VUgBJLiDP2uBoFodRBBn-V-xpDOXFUsUvHMPv-feBmLSDSiniqbUGOby0vI_NIP0TJdwP3_45hAIaQGFb1DB-jehFW0qYHZAL1vqJzPVbxZV4X_z0uUeRUumVZTEOH2eybmbeQ.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/HjAujgPEITJ9rasODagMyjJrywxt0S53ZtHxJ802VddYeBkOg0c4Z2OIak8Cf_FgdmkLF3VX0jsk62-2Nnnr8pmYQQKMI1q6hBZ8gWCSoSo_xM85p6O9YHJBmmw6PY0jD-MDdvMCsn0PIlwT1Q6OvSHomEZP20i_6Z9waiJ26vBxkEGg1UET5BeHep1hOoxxx2XZkID1gkQ6dU4cdXokbzvXL43zdTwkGZm7SXsduwqWywawDKLdm2A-GWxE3iB8Hgg_jWznmn-Yky184gs9T1wlRkrXwuXqjRk6KHO-fm7hj-G3t3VT1Pw95fGuZh_q9-Ebshn2u1NhdbenpEhQYQ.jpg" width="400"><br>
 
 تصویر مزار مجید نیک‌اندیش از بازداشت‌شدگان دی‌ماه که حکم اعدام او هشتم مهرماه ۱۴۰۵ در مشهد اجرا شد.
 بر اساس اطلاعات رسیده، پیکر نیک‌اندیش به خانواده‌اش تحویل داده نشد و به دستور دادستان مشهد، در بلوک ۲۵، ردیف ۲۱، قبر شماره ۱۲۱ آرامستان بهشت رضای مشهد به خاک سپرده شد.
@@ -270,115 +358,6 @@ VahidOOnLine
 @VahidOnline
 
 [View Post](https://t.me/VahidOnline/79249)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-25 05:51:19
-
-
-
-نیویورک پست:
-🔴
-ترامپ می‌گوید بودجه جنگ با ایران تا پایان ژانویه تأمین شده است
-🔴
-ترامپ گفت هدف اسرائیل برای پایان دادن به حیات جمهوری اسلامی «احتمالاً دست‌یافتنی است»، اما هدف او چنین چیزی نیست.
-🔴
-ترامپ درباره اقامه دعوی احتمالی بابت حمله هوایی به مدرسه‌ای در میناب: اگر بخواهند بازی غرامت را راه بیندازند، ما برنده‌ایم.
-ترجمه ماشین:
-واشینگتن — دونالد ترامپ، رئیس‌جمهوری آمریکا، به نیویورک پست گفت بودجه عملیات جنگی او علیه ایران تا پایان ژانویه «تأمین شده است».
-او همچنین از دموکرات‌های کنگره که تهدید کرده‌اند به جنگ او پایان خواهند داد، انتقاد کرد و گفت چنین اقدامی یک «پیروزی کامل» را به «شکست» تبدیل خواهد کرد.
-ترامپ در مصاحبه‌ای اختصاصی در دفتر بیضی‌شکل کاخ سفید اذعان کرد که با به دست گرفتن کنترل کنگره از سوی دموکرات‌ها در ژانویه، ممکن است گزینه‌های نظامی او محدود شوند، اما ابراز امیدواری کرد که حزب مخالف به جنگ، به آنچه او پایانی زودهنگام توصیف کرد، خاتمه ندهد.
-ترامپ مدعی شد: «آن‌ها یک پیروزی کامل را به شکست تبدیل خواهند کرد. منظورم این است که اگر چنین کاری کنند، ببینید، نیروی دریایی ایران از بین رفته، نیروی هوایی‌اش از بین رفته، پدافند هوایی‌اش، همه‌چیزش از بین رفته است. رهبرانشان از بین رفته‌اند. اگر دموکرات‌ها چنین کاری کنند، فقط یک پیروزی را به شکست تبدیل خواهند کرد.»
-«نمی‌دانم از نظر سیاسی چطور می‌توانند چنین کاری کنند، چون ما پیروز شده‌ایم. هر وقت بخواهیم می‌توانیم به این جنگ خاتمه دهیم.»
-وقتی از ترامپ پرسیده شد که آیا فرصت او برای انجام آزادانه حملات نظامی رو به پایان است، گفت: «برایم سخت است باور کنم که آن‌ها [دموکرات‌ها] یک پیروزی را به شکست تبدیل کنند، چون همین اتفاق خواهد افتاد. بله، اما عملاً تا پایان ژانویه، کم‌وبیش، می‌دانید، بودجه‌مان تأمین شده است.»
-ترامپ جنگ را در فوریه آغاز کرد و در ابتدا پیش‌بینی کرده بود که «حدود چهار هفته» طول بکشد؛ اما مذاکرات پر فراز و نشیب با تهران به آتش‌بسی در آوریل و سپس امضای یک تفاهم‌نامه در ژوئن انجامید که چند هفته بعد، در پی حمله ایران به کشتی‌های تجاری، فروپاشید.
-اسرائیل خواهان تغییر کامل رژیم برای پایان دادن به جنگ است، هرچند ترامپ در ماه جاری گفته بود که جنگ از همین حالا «عملاً پایان یافته است»، اما قصد دارد محاصره بنادر ایران را برای وادار کردن تهران به پذیرش توافق هسته‌ای ادامه دهد.
-ترامپ گفت هدف اسرائیل برای پایان دادن به حیات جمهوری اسلامی «احتمالاً دست‌یافتنی است»، اما هدف او چنین چیزی نیست.
-او گفت: «من فقط نمی‌خواهم آن‌ها سلاح هسته‌ای داشته باشند. هیچ‌وقت موافق یا مخالف تغییر رژیم نبودم. این هرگز ملاک من نبوده است.»
-ترامپ همچنین به اعلام این هفته ایران واکنش نشان داد که گفته بود برای دریافت غرامت بابت حمله هوایی به مدرسه‌ای که ده‌ها دانش‌آموز و معلم را کشت، علیه آمریکا اقامه دعوی خواهد کرد.
-ترامپ در پاسخ گفت: «خب، من هم برای کسانی که آن‌ها کشته‌اند غرامت می‌خواهم که میزان آن بسیار بیشتر است، چون اول از همه، آن‌ها در هفت ماه گذشته ۷۵ هزار معترض را کشته‌اند. اما سال‌هاست که مردم ما را می‌کشند.»
-«ناو یواس‌اس کول؛ آن‌ها صدها و صدها آمریکایی را کشته‌اند. بنابراین اگر می‌خواهند بازی غرامت را راه بیندازند، ما برنده‌ایم.»
-ترامپ افزود: «این جنگ در سال ۱۹۷۹ آغاز شد. من آن را آغاز نکردم، اما تنها رئیس‌جمهوری بودم که حاضر شد دست به این کار بزند. این جنگ در سال ۱۹۷۹ آغاز شد. مدت زیادی است.»
-[ادامه درباره کره شمالی و اوکراین]
-ردوبدل کردن «نامه‌های عاشقانه» با کیم می‌تواند بلافاصله از سر گرفته شود
-ترامپ در این مصاحبه به دیگر کانون‌های تنش در جهان نیز پرداخت و گفت ردوبدل کردن «نامه‌های عاشقانه» با کیم جونگ اون، حاکم مستبد کره شمالی، که در نخستین دوره ریاست‌جمهوری‌اش انجام می‌شد، می‌تواند «بلافاصله از سر گرفته شود».
-رئیس‌جمهوری آمریکا این موضوع را که کیم او را نادیده گرفته است، رد کرد. وال‌استریت ژورنال پیش‌تر گزارش داده بود که ترامپ نامه‌ای به رهبر کره شمالی نوشته، اما نماینده پیونگ‌یانگ در سازمان ملل آن را بدون باز کردن بازگردانده است.
-ترامپ به نیویورک پست گفت: «این کار می‌تواند بلافاصله از سر گرفته شود. فقط فعلاً چنین اتفاقی نمی‌افتد.»
-«اما می‌تواند دوباره آغاز شود و موضوع آن تسلیحات هسته‌ای و از این قبیل مسائل خواهد بود. اما می‌دانید، او این سلاح‌ها را دارد، چون بیل کلینتون، رئیس‌جمهوری پیشین، جلوی او را نگرفت.»
-ترامپ گفت او و کیم «اخیراً» برای یکدیگر نامه‌ای ننوشته‌اند.
-او گفت: «اخیراً نه. مشغول مسائل دیگری بوده‌ایم. وقتی من روی کار آمدم، این مسئله بسیار مهمی بود. یک تهدید بود و نمی‌دانم، به نظر می‌رسد اوضاع آرام‌تر شده است. اما من رابطه بسیار خوبی با او دارم.»
-وقتی از ترامپ پرسیده شد که آیا کیم پیش از سفر هفته گذشته او به آسیا، تلاشش برای برقراری ارتباط را پس زده است، گفت: «نه، او آن را نادیده نگرفت. می‌دانید، رهبران زیادی آنجا حضور داشتند... زمانی فرا خواهد رسید که با هم دیدار کنیم... فقط واقعاً زمان مناسبی نبود. دو روز بسیار پرمشغله‌ای بود.»
-ترامپ همچنین وقتی درباره گفته ولودیمیر زلنسکی، رئیس‌جمهوری اوکراین، مبنی بر اینکه مذاکره‌کنندگان آمریکایی خواهان دستیابی مسکو و کی‌یف به توافق صلح تا ژانویه هستند، از او سؤال شد، با صدای بلند خندید.
-ترامپ در حالی که می‌خندید و با یکی از دستیاران ارشد حاضر در اتاق نگاه ردوبدل می‌کرد، گفت: «چه کسی این را گفته؟»
-«او می‌خواهد من چه کار کنم؟»
-ترامپ گفت علت طولانی شدن این جنگ آن است که «برای رقص تانگو دو نفر لازم است.»
-nypost
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79248)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-25 01:56:20
-
-<img src="https://cdn1.telesco.pe/file/ccjb46Yblp1_mTxNc0RsvADJlOdCeWN5LwKs0Nu84mvBRDWScr0Ij7IZM9ajKPLmhJaBazDsYDIH_z3oaj-_FAuubm_Jpv3PDxeKdUE84OzOEDnc67ZyPyTQn803tRvj0dwF7qpUPiEiUmUfe7vQoU0phme00rz7tq5fbRMBJrU0Ct_XR0t22Vcsg-zx-lHMa_FcvwZ44b5zImdoJWkxBK3huGA2tLEuK9AF3syy6AiBotJyxHjaCryJzc1xbg0omFAne0ZxHqP6kiG8V798sMSna41O40wfURyUcz7OCpEto8Q_mbUKnlBphw4EqTKIcZB1FVnjALSymVs1Cq4M1w.jpg" width="400"><br>
-
-'توقف اجرای حکم اعدام میلاد آرمون و نوید نجاران'
-Mhaghasi1
-اعدام دو زندانی سیاسی محکوم به اعدام در پرونده شهرک اکباتان، که بر اساس گزارش‌ها، قرار بود سحرگاه چهارشنبه چهارم آذر اجرا شود، متوقف شد.
-محمدحسین آقاسی، وکیل میلاد آرمون، روز سه‌شنبه سوم آذر با انتشار
-پیامی در شبکه ایکس
-از ابلاغ توقف اجرای حکم موکلش خبر داد و نوشت: «موکلم میلاد آرمون که از اتهام مشارکت در قتل تبرئه شده بود در دادگاه انقلاب به اتهام مفسدفی الارض به اعدام محکوم و قرار بود چهارشنبه صبح حکم اجرا شود. ساعاتی قبل از اجرا، تلفنی توقف اجرای حکم به من ابلاغ شد، که به خانواده‌اش اطلاع دادم.»
-صفحه دادبان نیز به نقل از یک منبع مطلع نوشت، نوید نجاران در تماس تلفنی با خانواده‌اش از بازگشت به بند عمومی زندان قزل‌حصار خبر داده است.
-@
-VahidHeadline
-توقف اجرای حکم به معنای لغو اعدام نیست.
-من هم ساعتی پیش همچین پیامی دریافت کرده بودم:
-ما الان دم زندان قزل حصار بودیم
-میلاد زنگ زد به پدرش و گفت منو اوردن بند
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79247)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-24 22:51:49
-
-
-
-Vahid Online وحید آنلاین
-pinned a photo
-
-[View Post](https://t.me/VahidOnline/79246)
-
----
-
-
-
-###### 🔵 Post time: 2026-11-24 22:51:42
-
-<img src="https://cdn1.telesco.pe/file/D4IYf-9MjuxNwZUGScNHeQYN11xbAJYMi2w5Zc7cm8IuL7WFewPDFlm5yDuwmPCMsKEyqHmEyt4ZhQvwLJthl3UGyWDvoDCbKjkpT1cnj-pAQhrLkRJCF398xOlo7P6OyXoqrKYc9JYyOFIZ3OlVPkakxcnEVL0fe9pJD2O6-XdSmebtPzMq1i1X6ZTuZiZy7PLpddeXcHxa47pawY2-MBN-YsfNfkWrRcIHCCn2ujpcqggM79xzsr5ON6Usds9SZSJzTn98pIJSo-gTY2JXeOU4VAbhBAZvh7B3D-b86E9NaDWrsNO-JkLoEMgJNShJdg_iuyMqmrCMIk_B6GHinw.jpg" width="400"><br>
-
-محسن رضایی، دبیر شورای عالی امنیت ملی جمهوری اسلامی، روز سه‌شنبه سوم آذر گفت جمهوری اسلامی مصمم به شکستن محاصره دریایی است و به هرگونه حمله جدید با تمام قوا پاسخ خواهد داد.
-رضایی در پیامی به زبان انگلیسی در شبکه ایکس نوشت که طرح‌های دونالد ترامپ و تیم شکست‌خورده او برای محاصره ایران، به اندازه راهبرد جنگی شکست‌خورده‌شان «وهم‌آلود و بی‌نتیجه» است. او افزود ملت ایران، نیروهای مسلح و تمام ساختار حکومتی جمهوری اسلامی برای شکستن محاصره و پاسخ قاطع به هرگونه تجاوز جدید مصمم هستند.
-در تحولی مرتبط، مهدی محمدی، مشاور راهبردی محمدباقر قالیباف، رییس مجلس شورای اسلامی، نیز روز سه‌شنبه امارات متحده عربی را از بازیگران اصلی محاصره نظامی ایران دانست و گفت پاسخ نظامی یکی از گزینه‌های اصلی جمهوری اسلامی برای مقابله با این وضعیت است.
-محمدی همچنین از کویت و بحرین به‌عنوان دیگر کشورهای دخیل در محاصره نام برد و گفت سازوکار آنچه او «قاچاق نفت از تنگه هرمز» خواند، با سازوکار محاصره ایران مشترک است.
-او با تاکید بر اینکه درباره ضرورت شکستن محاصره اختلاف‌نظری وجود ندارد، گفت محاصره نظامی از نظر حقوقی اقدامی جنگی محسوب می‌شود و پاسخ نظامی به آن مشروعیت دارد.
-مشاور قالیباف در عین حال افزود که پیش از هرگونه اقدام نظامی باید از موفقیت آن اطمینان حاصل شود و زمان مناسب با در نظر گرفتن متغیرهای مختلف انتخاب شود. به گفته او، آمادگی‌های جمهوری اسلامی برای پاسخ به محاصره همچنان ادامه دارد.
-@
-VahidHeadline
-📡
-@VahidOnline
-
-[View Post](https://t.me/VahidOnline/79244)
 
 ---
 
