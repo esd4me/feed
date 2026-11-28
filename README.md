@@ -3,7 +3,7 @@
 <!-- POSTS_START -->
 
 <div align="center">
-<h5> 🟢 Updated at: 2026-11-28 05:53:30 </h5>
+<h5> 🟢 Updated at: 2026-11-28 14:39:29 </h5>
 </div>
 
 
@@ -156,7 +156,7 @@ VahidHeadline
 
 ###### 🔵 Post time: 2026-11-27 04:03:22
 
-<img src="https://cdn1.telesco.pe/file/HO8SDYZBO0ONAxEbpcm-1IJM6iiDVU9m3KNAZRGGgfY0UT56AMkVfpgxKjNcXcG-rxQThODIJ5Bz8YJCoDfizWaQ3l0RuEFOL6FvIU7WboFERuRXrckU1Fuhtm0xcX5BPjW626LNZenkZaAEkHpSYn-b7H2n988lacuVo_rrZcV4Pqz4fbz8ql4PHpDik2BKaZkm7n1OKNmfThF9lp20uc6qNWLJOrB4NEFfH6fNri67izUPmcHGxIGPBhH8ZFHR-DdOOrW8kTJ15t-osPc1zhVBxOFB5eJ9TUVNBhgcXKLeotOBr_j7f0JoIdTxXdFjoPECduWs9C74Yzzw_FJL4Q.jpg" width="400"><br>
+<img src="https://cdn1.telesco.pe/file/fvCVH1mWQwm4g6h25vldsphOr-wBkE-cJyiUcQFQw9JnB_N52OCTal3YK0y1j6RKTD_owbquI25WtLBSKra8lE5F_QCtYyvQkVrqJNc2bz1ftKgoGR3NqzcT9oiyaEOINPi_6byfDcg9-mqJfBs2uTBfBAFyT1fpomytXlxFvgnSkA-rZwhgVq5qi3PGf2ZpeVliAQWSvZRRTkNn8Ws2xiqn_01W72Zl0Ymj-UJKmY1JkiX486jfFRN2eSteQDecGBo0cBnKecUXwpUQANzViQseX5GlTww8GRanKZBTuk3m-EX6MGdOpcDdxnuYmF1oXG6ZtcM26sdIzXAchA-mvw.jpg" width="400"><br>
 
 دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز پنجشنبه پنجم آذر در گفت‌وگو با نیروهای نظامی آمریکا به مناسبت روز شکرگزاری، با اشاره به تلاش‌ها برای دستیابی به توافق با ایران گفت: «ما همهٔ فرصت‌ها را در اختیار آن‌ها گذاشته‌ایم تا به توافق برسند و جان افراد بسیاری را نجات دهند، اما مطمئن نیستم که از این فرصت استفاده کنند.»
 او در بخش دیگری از سخنانش گفت: «پیروزی در دسترس است و تقریبا هر زمان که بخواهم اتفاق خواهد افتاد.»
